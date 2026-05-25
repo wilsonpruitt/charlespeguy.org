@@ -7,117 +7,53 @@ author: anatole-france
 isAvertissement: false
 wordCount: 15211
 ---
-
-{]
-
-E PREMIER CAHIER DE LA QUATRIÈME SÉRIE
-Ë ANATOLE FRANCE
-L'AFFAIRE
-
-t
-
 | Grai bill
 
 L Crainquebille
-fl EDITION COMPLETE
-
-À 139847
-
-L | A to. Lt |
-
-É
-
-2 CAHIERS DE LA QUINZAINE
 
 LA paraissant vingt fois par an
 
-h PARIS
-
 | 8, rue de la Sorbonne, au rez-de-chaussée
 
-: ARS
-PAU ie ; ie ÿ
-nt {HAT
-eg Ki ie
 l'AÈURE mettons ce cahier dans le commerce; nous l
-Ê , ; Le 00
 Tu nn.
-\ 2 1 Pa $
-( ‘188
-‘4 AP ne
-1 vu
-ht ser. À ‘5
-\ 12 14
-1 ro 1-4 “1 M
-Je 1 A Bt)
-Ai o ‘ :
-‘ 1 Fi
-NE A
-KA à NA 31 ds:
-de Ë FAT 4
 Le ta "HE
-TL 4
-ÿ We ‘x
-HP EUR ; HT 110
-" JL LT FFE :
 
 | à Den | é 1 à 17700
-DANEE E RC x : 5
 | 2 1e 2500 d ou
 | fr TRS } : 4
-ARE À + an
 | RAPIDE Le à y VAE
 | À. L'IEEl ee
-l Dés AT =
 # LS 2 à
-LT ORLE EN %
-f ARTE EE n ï La
 | 1,00 f £ L CHER
 | f ARE w . 4 î S hi RAM:
 | PS 2m l La] LAN
-L'OTTES k Eat ; A
-DRE sr. 175, vas
 
 ET À Aa ; ds L " CERTES tar ET JA PTE OI AS D MA Et VE
 | SSSR
-1412 10 4 + » re ÿ n LES SE NN
 1110 Du même auteur, Calmann-Lévy éditeur, volumes &
 44 trois francs: cinquante, en vente à la librairie « des
 JET cahiers : Et
-MU à Balthasar. ‘ LME
-eo, # HU.
 % é Le Crime de Sylvestre Bonnard. \ RC
-UN ARS ] DRE:
 11e L''Etui de nacre. 12
 ‘34 Le Jardin d'Épicure. ie PTE
 “1 Jocaste et le chat maigre. +. qe 7
 de Le Livre de mon ami. ‘it 4
 Eu | Le Lys rouge. RE:
-Qu ASE Zn . 1 EN
 “ANEOPR Les Opinions de M. Jérôme Coignard. ST
 La Le Puits de Sainte Claire. “A “RS
 ‘11 La Rôtisserie de la Reine Pédauque. SUCRE
-“0 Thaïs. ; me + En:
 RE La Vie littéraire, quatre volumes. +.
-0 Va s 2 ROAETE
 | TM HISTOIRE CONTEMPORAINE 1 He À
 Er I. L'Orme du mail. $ [LT
 6 He IT. Le Mannequin d'osier. PS fe .
 RE III. L'Anneau d'Améthyste. RON:
-No à Fe Fri SR
 : a IV. M. Bergeret à Paris. ; pe de
-LEA Te : PUS ;
-10 Alphonse Lemerre éditeur : LUN
-Er . . x D « de RTE CAT
 Le Si Pierre Nozière, un volume à trois francs cinqua si A
 62 Poésies. — Les Poèmes dorés. Les Noces cos né
-RE . Ste = NT | r
 2 thiennes, un volume à six francs, dans la colle: SEE
 fi KR tion des auteurs contemporains. 10 ja ne
-Htc ue,
-AL Dee
 
-:ué vi w “#
 54 5 Les cahiers ont publié du même auteur : à à
 î ré _ Dans le troisième cahier de la première série, daté du k
 … 5 février 1900, aujourd'hui épuisé, n'existe plus que ,
@@ -149,33 +85,24 @@ Le . d'hui épuisé, n'existe plus que dans les collections com-
 16 31 juillet 1900, le discours prononcé l'avant-veille à la
 se salle Wagram par Anatole France pour la Célébration 9
 _ de Diderot.
-D
 
 ce
-ANATOILE FRANCE j
 ; de l'Académie française 1
-ÿ Ç
-L'AFFAIRE CRAINQUEBILLE
-ÉDITION ORIGINALE
 63 compositions de Steinlen F
 Gravées par DELoCcHE, ERNEST et FRÉDÉRIC FLORIAN, Ê
 les deux FROMENT, GUZMAN, MATHIEU et PERRICHON
 In quarto et in octavo jésus, tirage en rouge et noir sur les
 presses à bras de Lahure, limité à 4oo exemplaires
-numérotés.
-IN QUARTO, TEXTE RÉIMPOSÉ
 Un exemplaire — numéro 1 — sur whatman, contenant tous
 les dessins originaux, avec une double suite d'épreuves
 d'artiste, sur japon et sur chine ;
 Un exemplaire — numéro 2 — sur whatman, avec un
 dessin original sur chacun des faux-titres, soit dix, plus
 une double suite d'épreuves d'artiste, sur japon et sur
-chine ;
 25 exemplaires — numéros 3 à 27 — sur japon ancien ou
 sur grand vélin, contenant un dessin original de Steinlen, :
 plus une collection d'épreuves d'artiste, sur chine, au prix
 net de 600 francs
-IN OCTAVO JÉSUS
 30 exemplaires — numéros 28 à 57 — sur chine, au prix
 nel de 300 francs
 343 exemplaires — numéros 58 à 400 — sur vélin à la cuve
@@ -186,161 +113,63 @@ Il a été tiré en outre :
 sur chine, au prix net de 150 francs
 5 collections d'épreuves d'artiste de toutes les gravures
 sur japon ancien, au prix net de 195 francs 5
-Et.
-:
 
 _ Cette édition originale de l'affaire Crainquebille
 1 L. est l'œuvre de M. Édouard Pelletan, éditions d'art,
 _ 125, boulevard Saint-Germain, Paris. Nous avons fini s
 _ de lire pour la première fois l'affaire Crainquebille dans à
 _ le Figaro en janvier 1901. L'édition que nous donnons |
-ns: ;
 aujourd'hui est la première édition complète en un ;
-_ volume ordinaire.
 
 | 4; K og.
-ne. ;
 
 _ Nous avons publié du méme auteur:
 4 Cahiers de la Quinzaine, quinzième cahier de la
 _ troisième série, un cahier de 72 pages, un franc:
 | La liberté par l'étude;
 hi. _ La loi est morte, mais le juge est vivant;
-Vol domestique; >
 D. Les juges intègres ;
 _ Pensées de Riquet;
-va F : . » LE » » #
 s à . Discours pour la liberté, prononcé à l'assemblée générale
 …_ extraordinaire, du 20 avril 1902, de la
 sn Ligue française pour la défense
 ‘4 È des Droits de l'Homme et du Citoyen.
 
-PARA RER LACET JAQU PAR TRS SR EL PRE U) MON Re à
-1 EN eE 4 LA LT d a #4 FILS" ER
-p'RE GTA) ÿ 4 PAPE :
-ti î MONTE
-A ï 1 FO PATES
-REANUte ï fs ‘4441 EE
- PNEREN { LC TR TRE 1274
 # j ê. TOITS Ke
-VE ; ï Fa MAR
-14 W À De ù
-2: AR 5 not ‘4: ETES di
-RCE ‘ AC
-LS 3 , +50
-ET 4PIUS : 2H e. FPNRE
-ÿ + OS A *@ v 0 nus
 AN ñ Lie HET PAS con
-FAO 4 ce PAR “ 2 FETE
-Re. Sr ErS NE RE 4e
-FACE v: 1 USE 4 MR
 Miel, L n : CI an: EAU A7 Se RUN
-Es) DER FORD
 
 l'affaire Crainqguebille
 
-Na # 4 ei
 n F Te LÉ te de FRS
 ir 6 ENS SC de aie eee Eau Te OR ;
-LS En % brie à TIRE Te FEMEAR
-JE à RENTE
-A Re x h É.
-. : | ‘ ASE
-Le | 4
 | CLR
-* | ke.
-+ k 41000
-3 + NS ER
-4 7 RÉ
-a É
 
-Le . | :
-EE | ; : |
-Ha k | j #
-are 4
-“ PR
-DSL. : : 4 ;
 | TÉNEE +
-ET ï | | | |
-Le % 2 CNRS # "1e
-L TS
-: F A SNS
-. | : MIT RU TA À
-ee à |: HSE
 
-ï PREMIER CAHIER DE LA QUATRIÈME SÉRIE
-ANATOLE FRANCE
-L''AFFAIRE
-Crainquebille
-‘ds ÉDITION COMPLÈTE
-ÉDITIONS DES CAHIERS
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-DA ENT ae Li Paye LITE PERS PEUT A s
 FRUU at fi ‘ 4 EE NT 1 TN A ER EE 4 He + MA e
-Ale Le SH ANS AS ROM EN TAOLE: ATEN. Fr 444 x
 
-nt a *e 1 | Ve: ei M! ZT DUT Te a À de « \ ANT + € EE
-
-te RC" | < 5 COUR 7
-
-ET + D,
-1 X AUS x MN
-RME 1: NOTE ?
 | ASS 01, 0
 mers e L'NETORSE
 AE L ' HET ERRUR we"
-Er 4 " CPR
-SHARE #, | « j : 22! TC
-ut j : { RATIO
 #54 L68 - 0" 0m 5
-ere D,
-PES UT
 he. Lee EN Le
-Ÿ: ÉRERNE 9 È na
-a ; # . à" EPGTENS
-Es dr ' t : 3 EL * PSE
 | 18 SRE 4 sc À AAC Le 0
-1300 ter Re
 
-. Fa MAT de
-
-Rue ' D »
-Ne AE LC
-110424 DER, 4 4 QE
-% +. SE A
-1 WT / +}
-, : XV ANNE + Le
-111,30 SE
-CG ETES ,
-x D TRES i ; k
 | L ARTE É ; a
-; HE Be | -
-PEUR ANSE LE
-Ê A : LR E k
-! RS 0) è
-4 da. | rn É 2 MISES
 # HE ad es
-RARE 4%
-“ TS FAT v
 | 5 "LIBRES -44
-+4 4 CAS { £
-“HAUTE . [ LE:
-"x MX » DR « ù De.
-RS 4 : L'LF GARE
-Mit SUR VS, 0 t
 
 Rae du ANT à Ru nt 7 dr LAN C7
 
 de à ‘ ANNEES
 o Avant que l'on commence à relire l'histoire de Crain-
-‘12 5 à MS : ACIER
 ce quebille, Anatole France me pardonnera d'y épingler
 ù une citation, parce que cette citation jette une lumière
 FRE sur les débats engagés pour et contre la liberté de
 c l'enseignement : LUE
-a \'EARNE
 à Le système scolaire serait calqué sur le système judi-
 \ ciaire : les magistrats de la raison diraient le vrai,
 RE dans les mêmes conditions et sous les mêmes garanties
@@ -348,75 +177,22 @@ FAR que les juges disent le juste. : nr
 “ (Gustave Téry, dans la Petite République
 FN du mardi 23 septembre 1902) JANTES
 “4 Je m'en voudrais de commenter ce texte. sn 3 à
-Charles Péguy
-je DAC »
-1 : À JE
-ù 7
 
-à > PEN à
-
-PAL d'uuf, mA € 1 AY RER « L OT AE PRE APR
 2 CA 0e AT VS ere A PAR HO Na gs PRES can
-LAN CARTE 5 AP ANA a AU EE RASE AE A ESA AREA
-Li INR ANSE ARTE \ ARE | l nLSE TA CRT
 LL ET AITRNSS save F | EPS
-] # ÊE., $ Fa + OI
-" DENT \ ‘NL
-£ 7} NOR ANNEE LL M |
-ILE < ju YA
-Re LR TES
-ne 00 Î Ÿ : \ ÿ ; } Ai
-Li ENS : tro
-AE AE Nu! ; { “110
-PA £a ON À PA
-À LORIE Et NAS * (PSS
 | ' AGE Du AMP : #1 aps
-AR 9 AL A
 | X PTE | LEE FAUX - ï Er
 | : 1 (AN EE LE PAGE " Een fe
-MERE V5 AUCES CNTIINESS AU U À É Ven.
 le +" HER PAU Ar TOURS Ke ; VL HARAS
-EN VOA ë ” 4
-+21 MO TAN NET : } 2:00
-2 1 HSE | 2 dr te
 | 5 A LU D " pe : ù PAU PSE
 At RUN DENT PAU ANT PAS + ne DFE
-FA OO LS SAC CURRENT Er EE ? É 1 ME SR
 PRIS ae ET Aa LA SLR et No LAN PE RE net
 
-STE ER 29 PRIT ALT QUE
-Re don ad
 seroii dit D 4 PIN RATE Wu Lo
-RMI ENS AOE EN AEe TE (in a FRA 10) ETS
-A d ua AR AUS NOR
 | LTÉE . À SEA TALT A LE
-EE PT EE NN) RE SR, 'AE2RIES
-‘LA 1 RAS LE $
 
-4 à »! he
-Ye e h e ANT TRS
-02 ; Le RSR
-7510 LPS
-
-2 Ne 1 CRUE ‘+764 2
-
-LY Q k D NT M *e
-
-10 ‘ Fier LR 1
-Pa. LS |
-{LS 3 4 PAPE Le
-
-YA % ] A FN 1 fs La
-
-‘Fa Le, ADO 1, AMEN
-
-à L : TT en CR MEET Ds HT LS
-
-En
-CHAPITRE PREMIER
 La majesté de la justice réside tout entière dans
 chaque sentence rendue par le juge au nom du
-peuple souverain. Jérôme Crainquebille, marchand
 ambulant, connut combien la loi est auguste,
 quand il fut traduit en police correctionnelle pour
 outrage à un agent de la force publique. Ayant pris
@@ -433,7 +209,6 @@ attachées sur sa poitrine. Un buste de la République et un Christ en croix sur
 toire, en sorte que toutes les lois divines et
 humaines étaient suspendues sur la tête de Crain15
 
-Anatole France di
 quebille. 11 en conçut une juste terreur. N'ayant
 point l'esprit philosophique, il ne se demanda pas
 ce que voulaient dire ce buste et ce crucifix et ilne
@@ -448,7 +223,6 @@ seuls sont légitimes les pouvoirs auxquels elle a
 donné l'investiture. Or la République française
 prétend encore ne pas relever de la puissance
 pontificale. Crainquebille pouvait dire avec quelque
-raison :
 
 — Messieurs les juges, le Président Loubet n'é-
 tant pas oint, ce Christ, pendu sur vos têtes,
@@ -456,17 +230,14 @@ vous récuse par l'organe des Conciles et des Papes.
 
 Ou il est ici pour vous rappeler les droits de
 l'Église, qui infirment les vôtres, ou sa présence
-n'a aucune signification raisonnable.
 
 * A quoi le président Bourriche aurait peut-être
-répondu :
 
 — Inculpé Crainquebille, les rois de France ont
 toujours été brouillés avec le Pape. Guillaume de
 Nogaret fut excommunié et ne se démit pas de ses
 charges pour si peu. Le Christ du prétoire n'est pas
 
-; 2]
 | L''AFFAIRE CRAINQUEBILLE
 le Christ de Grégoire VII et de Boniface VII. C'est,
 si vous voulez, le Christ de l'Évangile, qui ne savait
@@ -491,35 +262,9 @@ sociale. Déjà son avocat l'avait à demi persuadé
 F Une instruction sommaire et rapide avait relevé
 les charges qui pesaient sur lui.
 
-à LA AR AS SE Er SL OL Ge En
-
 LH SR LYS Ar AP PNR ts DU espere Ur TPS EN ES
-TR LD x OR RE dE EE
-PEN ' É « à LT
-Le " 1% 00 SITES
-2e ‘+ 1, S'YNENSES
-203 $ N . 4/04
-1 y À 40 "LUE
-‘16 À 7 CICR
-F8 4 NE ve 4)
-nee . 1147 2 ROVER
-t4 + A ÉUHEURNESES
 
-‘4 Hair he
-
-[AR | | FLE ESS
-FINS 2 : : { 4 TA
-+ÿ DER MC 2 MERS \
-TN 4 Û RME £
-APR “> £ 5 LE 216794
-HS PANIERS ; s = Mar
-: EE x $ Saut Duc : A
 25 0 CAD rie PRES LIT Ent RE LL TES
-: A d ï ' £ TENTE
-
-di ' ki g AS *
-CHAPITRE IT
-L'AVENTURE DE CRAINQUEBILLE
 
 Jérôme Crainquebille, marchand des quatresaisons, allait par la ville, poussant sa petite voiture et criant : Des choux, des navets, des carottes!
 Et, quand il avait des poireaux, il criait : Bottes
@@ -541,14 +286,7 @@ daigneusement une botte de poireaux :
 Et elle rejeta la botte dans la charrette, avec un
 geste de dégoût.
 
-: ‘ 19
-
-Anatole France Ë
-
 C'est alors que l'agent 64 survint et dit à Crain- à
-quebille :
-
-— Circulez.
 
 Crainquebille, depuis cinquante ans, circulait du
 matin au soir. Un tel ordre lui sembla légitime et
@@ -573,17 +311,11 @@ dans la cordonnerie où une cliente, portant un
 enfant, l'avait précédée. |
 
 A ce moment l'agent 64 dit pour la deuxième fois |
-à Crainquebille : ,
-
-3 — Circulez !
 
 — J'attends mon argent, répondit Crainquebille.
 
 — Je ne vous dis pas d'attendre votre argent; je |
 vous dis de circuler, reprit l'agent avec fermeté.
-
-&: ;
-L'AVENTURE DE CRAINQUEBILLE
 
 Cependant la cordonnière, dans sa boutique, F
 essayait des souliers bleus à un enfant de dix-huit
@@ -615,7 +347,6 @@ de circuler !
 
 Crainquebille avait de rester en place une raison
 
-: Anatole France "2
 #
 trop considérable à ses yeux pour qu'il ne la crût “4
 pas suffisante. Il l'exposa simplement et sans art : 2
@@ -627,7 +358,6 @@ tion ? Si vous le voulez, vous n'avez qu'à le dire. l 4
 En entendant ces paroles, Crainquebille haussa 4
 lentement les épaules et coula sur l'agent un regard 4
 douloureux qu'il éleva ensuite vers le ciel. Et ce .
-regard disait :
 — Que Dieu me voie! Suis-je un contempteur 4
 des lois? Est-ce que je me ris des décrets et des
 ordonnances qui régissent mon état ambulatoire ? î
@@ -637,16 +367,13 @@ Halles. Depuis sept heures, je me brûle les mains à
 des carottes! J'ai soixante ans sonnés. Je suis las.
 Et vous me demandez si je lève le drapeau noir de |
 la révolte. Vous vous moquez et votre raillerie est
-cruelle. |
 Soit que l'expression de ce regard lui eût échappé, |
 soit qu'il n'y trouvât pas une excuse à la désobéis- |
 sance, l'agent demanda d'une voix brève et rude si
 c'était compris.
 Or, en ce moment précis l'embarras des voitures |
 était extrême dans la rue Montmartre. Les fiacres,
-22 |
 
-Se L'AVENTURE DE CRAINQUEBILLE 4
 les haquets, les tapissières, les omnibus, les camions, $
 pressés les uns contre les autres, semblaient indis- À
 solublement joints et assemblés. Et sur leur immobilité frémissante s'élevaient des jurons et des cris.
@@ -657,7 +384,6 @@ rant Crainquebille comme la cause de l'embarras,
 l''appelaient « sale poireau ». |
 Cependant sur le trottoir, des curieux se pressaient, attentifs à la querelle. Et l'agent, se voyant
 observé, ne songea plus qu'à faire montre de son
-autorité. É
 — C'est bon, dit-il. j
 Et il tira de sa poche un calepin crasseux et un
 crayon très court. à |
@@ -667,13 +393,11 @@ _ maintenant d'avancer ou de reculer. La roue de sa
 charrette était malheureusement prise dans la roue
 d'une voiture de laitier.
 Il s'écria, en s'arrachant les cheveux sous sa cas-
-._. quette:
 — Mais, puisque je vous dis que j'attends mon
 argent ! C'est-il pas malheureux ! Misère de misère!
 Bon sang de bon sang !
 Par ces propos, qui pourtant exprimaient moins
 
-08 Anatole France
 la révolte que le désespoir, l'agent 64 se crut insulté. Et comme, pour lui, toute insulte revêtait
 nécessairement la forme traditionnelle, régulière,
 
@@ -693,7 +417,6 @@ soleil l'agent 64, et de sa voix cassée, qui iui sor-
 
 | tait tantôt de dessus la tête et tantôt de dessous
 les talons, s'écriait, les bras croisés sur sa blouse
-bleue :
 
 — J'ai dit: « Mort aux vaches » ? Moi ?.. Oh!
 
@@ -706,13 +429,8 @@ populaire, un vieillard très triste, vêtu de noir et
 coiffé d'un chapeau de haute forme, s'approcha de
 l'agent et lui dit très doucement et très fermement,
 
-à voix basse:
-
 — Vous vous êtes mépris. Cet homme ne vous a
 pas insulté.
-
-4 LE
-L'AVENTURE DE CRAINQUEBILLE
 
 — Méêlez-vous de ce qui vous regarde, lui répondit
 l'agent, sans proférer de menaces, car il parlait à
@@ -721,10 +439,7 @@ un homme proprement mis.
 Le vieillard insista avec beaucoup de calme et
 de ténacité. Et l'agent lui intima l'ordre de s'expliquer chez le commissaire.
 
-Cependant Crainquebille s'écriait :
-
 — Alors! que j'ai dit « Mort aux vaches! »
-oO!
 
 Il prononçait ces paroles étonnées quand madame
 Bayard, la cordonnière, vint à lui, les quatorze
@@ -735,7 +450,6 @@ sous dans la poche de son tablier.
 
 . Et voyant tout à coup sa voiture en fourrière, sa
 liberté perdue, l'abîime sous ses pas et le soleil
-éteint, Crainquebille murmura :
 
 — Tout de même!
 
@@ -747,11 +461,6 @@ David Matthieu, médecin en chef de l'hôpital
 Ambroise Paré, officier de la Légion d'honneur. En
 d'autres temps, un tel témoignage aurait suflisam-
 
-: 25
-IL
-
-Anatole France 4
-D
 ment éclairé le commissaire. Mais alors, en France, 4
 les savants étaient suspects. s "
 -Crainquebille, dont l'arrestation fut maintenue, 4
@@ -760,7 +469,6 @@ dans le panier à salade, au dépôt. À
 La prison ne lui parut ni douloureuse, ni humi- 3
 liante. Elle lui parut nécessaire. Ce qui le frappa en %
 y entrant ce fut la propreté des murs et du carrelage. E
-Il dit: 4
 — Pour un endroit propre, c'est un endroit ÿ
 propre. Vrai de vrai! On mangerait par terre. Ë
 Laissé seul, il voulut tirer son escabeau:; mais il h
@@ -779,19 +487,13 @@ Le troisième jour, il reçut la visite de son avocat,
 maître Lemerle, un des plus jeunes membres du 4
 barreau de Paris, président d'une des sections de la :
 * « Ligue de la Patrie française ». 4
-26 > Si
-Le
 
-: RASE
-724 L'AVENTURE DE CRAINQUEBILLE
 | Crainquebille essaya de lui conter son affaire, ce
 qui ne lui était pas facile, car il n'avait pas l'habi_ tude de la parole. Peut-être s'en serait-il tiré pourtant, avec un peu d'aide. Mais son avocat secouait
 _ la tête d'un air méfiant à tout ce qu'il disait, et
 feuilletant des papiers, murmurait :
 | — Hum! Hum! je ne vois rieu de tout cela au
-dossier.
 Puis, avec un peu de fatigue, il dit en frisant sa
-moustache blonde : ;
 — Dans votre intérêt il serait peut-être préférable
 d'avouer. Pour ma part j'es$time que votre système
 de dénégations absolues est d'une insigne maladresse. à
@@ -800,30 +502,8 @@ avait su ce qu'il fallait avouer.
 .
 
 7 RCE ÉMIS tar za, CENT PAIN TE D LE in
-RARE ARE UE ere DRE ENT, PAU APT PERS AN ET COMPTES ET R ETIEES
-RE ENS MESSE EE PA LEE SE CRISE ARE AIRE
-LES ; FA 22 VAE PRE à
-128 è \ FAPPES ee LP) Maur
-We 2° * AMAR
-Pace s FA: 118
-HE AL.
-TES ‘ x HET
-Mrs * x vis KE 0 GRR
-es : 2 REA ; MHNTRE "40 RES
-+ RÉ M:
-LIN À ; 6 : : M
 L' NES de « ki = +. ESCAESS
-2 . À t L 19 CORRE
 | 11 1 A se) ROME æ
-ee, LACS : EN CEE EVE
-FE LOUE 7 +. - 18 le ft TERRE F >
-Men 52 0° Ve L b [#74 PART; TA CNRS
-0 Ÿ où ; 17 AIRE EE PERS
-nee AE HEC RS “FAN
-74 d: 477 ù U +' ES M
-
-CHAPITRE III
-CRAINQUEBILLE DEVANT LA JUSTICE
 
 Le président Bourriche consacra six minutes
 pleines à l'interrogatoire de Crainquebille. Cet
@@ -836,16 +516,12 @@ le silence et le président faisait lui-même les
 réponses ; elles étaient accablantes. Il conclut:
 
 — Enfin, vous reconnaissez avoir dit : « Mort
-aux vaches! »
 
 Alors seulement l'inculpé Crainquebille tira de
 sa vieille gorge un bruit de ferraille et de carreaux
-cassés. ;
 
 — J'ai dit : « Mort aux vaches! » parce que
-29 II.
 
-Anatole France ; M
 M. l'agent a dit : « Mort aux vaches! » Alors j'ai “à
 dit: « Mort aux vaches! » 4
 Il voulait faire entendre qu'étonné par l'impu- Ë:
@@ -854,14 +530,11 @@ répété les paroles étranges qu'on lui prêtait fausse- 1
 ment et qu'il n'avait certes point prononcées. IL
 avait dit : « Mort aux vaches! » comme il eût dit : :
 « Moi! tenir des propos injurieux, l'avez-vous pu KE
-croire ? » 4
 M. le président Bourriche ne le prit pas ainsi. 1
 — Prétendez-vous, dit-il, que l'agent a proféré ce 4
 cri le premier?
 Crainquebille renonça à s'expliquer. C'était trop À
-difficile. k
 — Vous n'insistez pas. Vous avez raison, dit le ;
-président. ke
 Et il fit appeler les témoins. \
 L'agent 64, de son nom Bastien Matra, jura de À
 dire la vérité et de ne rien dire que la vérité. Puis Ê
@@ -875,11 +548,7 @@ encombrement de voitures. Je lui intimai par trois
 fois l'ordre de circuler, auquel il refusa d'obtem- |
 30 4
 
-a CRAINQUEBILLE DEVANT LA JUSTICE
-
 .  pérer. Et sur ce que je l'avertis que j'allais verba-
-
-: liser, ilme répondit en criant : « Mort aux vaches! »
 
 , ce qui me sembla être injurieux.
 
@@ -894,7 +563,6 @@ entendu. Le docteur Matthieu se trouvait dans la
 
 . foule assemblée autour de l'agent qui sommait le
 marchand de circuler. Sa déposition amena un
-incident.
 
 — J'ai été témoin de la scène, dit-il. J'ai remarqué
 que l'agent s'était mépris : il n'avait pas été insulté.
@@ -910,14 +578,11 @@ M. le docteur Matthieu ne vous a-t-il pas fait
 observer que vous vous mépreniez ?
 
 — C'est-à-dire, monsieur le président, qu'il m'a
-insulté.
 
 |  — Que vous a-t:il dit?
 
-Anatole France
 — Il m'a dit : « Mort aux vaches! »
 Une rumeur et des rires s'élevèrent dans l'audi- 4
-toire. ;
 — Vous pouvez vous retirer, dit le président
 avec précipitation. s
 Et il avertit le public que si ces manifestations
@@ -932,7 +597,6 @@ la Préfecture, « ces modestes serviteurs de la société, J
 fatigues et affrontent des périls incessants, et qui |
 pratiquent l'héroïsme quotidien. Ce sont d'anciens 1
 soldats, et qui restent soldats. Soldats, ce mot dit
-tout... » 4
 Et maître Lemerle s'éleva, sans effort, à des con- |
 sidérations très hautes sur les vertus militaires. Il E
 était de ceux, dit-il, « qui ne permettent pas qu'on
@@ -942,11 +606,6 @@ Le président inclina la tête. .
 Maître Lemerle, en effet, était lieutenant dans la
 réserve. Il était aussi candidat nationaliste dans le É
 quartier des Vieilles-Haudriettes. à
-32 ; |
-À
-
-dé :r 40
-CRAINQUEBILLE DEVANT LA JUSTIQE
 
 Il poursuivit :
 
@@ -977,7 +636,6 @@ d'honneur, médecin en chef de l'hôpital Ambroise
 Paré, un prince de la science et un homme du
 monde, a crié : « Mort aux vaches! » nous sommes
 
-Anatole France |
 bien forcés de reconnaître que Matra est en proie
 à la maladie de l'obsession, et, si le terme n'est pas
 trop fort, au délire de la persécution. <
@@ -989,7 +647,6 @@ quebille est l'enfant naturel d'une marchande am- :
 bulante, perdue d'inconduite et de boisson, il est
 né alcoolique. Vous le voyez ici abruti par soixante
 ans de misère. Messieurs, vous direz qu'il est irres- k
-ponsable. » ;
 Maître Lemerle s'assit et M. le président Bourriche ;
 lut entre ses dents un jugement qui condamnaïit k.
 Jérôme Crainquebille à quinze jours de prison et |
@@ -999,7 +656,6 @@ Mené par les longs couloirs sombres du Palais,
 Crainquebille ressentit un immense besoïin de sym- |
 pathie. Il se tourna vers le garde de Paris qui le
 conduisait et l'appela trois fois : |
-— Cipal !... Cipal!.. Hein ? cipal !.… |
 Et il soupira :
 — 11 y a seulement quinze jours, si on m'avait |
 dit qu'il m'arriverait ce qui m'arrive !.… Ê
@@ -1007,10 +663,7 @@ Puis il fit cette réflexion :
 — Ils parlent trop vite, ces messieurs. Ils parlent |
 bien mais ils parlent trop vite. On peut pas s'expli- |
 
-CRAINQUEBILLE DEVANT LA JUSTICE
-
 quer avec eux... Cipal, vous trouvez pas qu'ils
-parlent trop vite ?
 
 Mais le soldat marchait sans répondre ni tourner
 la tête.
@@ -1026,38 +679,10 @@ dit avec amertume :
 me parlez pas ? Vous ouvrez jamais la bouche :
 Vous avez donc pas peur qu'elle pue ?
 
-"ACER PRET 4 Er PA 7 JO + Let More PER NENe ST NOES
-SR) ; ONE Ne; Ÿ ré LS (ù
-10 k De # EUR € WT AÙ AUS! 4: fs LU “ART | ARC g En
-Hs \ De q RD
-:xdé S : ! MERDE |
-AS 4 A 11: SR
-É Ÿ NL É IL IUBUSAGERS
-A € AE EE: SEA +
-TOME ; AT : AU TX
-‘#4 a DE 6 7 -
-y ; î 2H h 14 GUERRES
-tr s È { : lee -:
-Î 4 | # 11% ‘a « +
-f . ARR nu
 | fx VA 1 Se PRE
-: Fe \ 4 } YT TRES
-R: y VE RS
-Je L 2 % ; REY sl Au:
-ù & 4 ÈS
-ü, k * À = rs 1 À + 1 Fi A Ÿ
-ir 10
-nt na \ NPC
-LATE ON Le <<, PTE es x
 148 ts Ex QUE 'ÉTHCTEURE
-a, HE ANT 4 DE F3" PINCE EE
-RSS : ? #10" PAPE: 2 1 9 Let à). OT FIENRERSSS
 en H F4 DNS ON SCA CU
-NET : Ft ÿ À ÉNCLNAURERTSS Re ei ro”
-‘: ï <£ à CHR £ Fer QE CARTONS
 
-6 CHAPITRE IV
-i APOLOGIE" POUR M. LE PRÉSIDENT BOURRICHE
 Quelques curieux et deux ou trois avocats quittèrent l'audience après la lecture de l'arrêt, quand
 déjà le greffier appelait une autre cause. Ceux qui
 sortaient ne faisaient point de réflexion sur l'affaire
@@ -1065,7 +690,6 @@ sortaient ne faisaient point de réflexion sur l'affaire
 laquelle ils ne songeaient plus. Seul M. Jean Lermite, graveur à l'eau-forte, qui était venu d'aventure au Palais, méditait sur ce qu'il venait de voir
 et d'entendre.
 Passant son bras sur l'épaule de maître Joseph
-Aubarrée :
 — Ce dont il faut louer le président Bourriche,
 | lui dit-il, c'est d'avoir su se défendre des vaines
 curiosités de l'esprit et se garder de cet orgueil
@@ -1074,10 +698,6 @@ l'une à l'autre Les dépositions contradictoires de ;
 l'agent Matra et du docteur David Matthieu, le juge
 serait entré dans une voie où l'on ne rencontre que
 
-e II
-
-RS OR D LUN RARE 6 ER A OS TS NN RER
-Anatole France "3 “4
 le doute et l'incertitude. La méthode qui consiste à k
 examiner les faits selon les règles de la critique est
 inconciliable avec la bonne administration de la à
@@ -1103,9 +723,7 @@ passait sous ses yeux, il jeta au feu le manuscrit de
 son histoire. 4
 Si les juges avaient les mêmes scrupules que
 sir Walter Raleigh, ils jetteraient au feu toutes
-38 È
 
-ne APOLOGIE POUR M. LE PRÉSIDENT BOURRICHE
 | leurs instructions. Et ils n'en ont pas le droit. Ce
 serait de leur part un déni de justice, un crime.
 Il faut renoncer à savoir, mais il ne faut pas renoncer à juger. Ceux qui veulent que les arrêts des
@@ -1133,7 +751,6 @@ police idéale. Non pas que Matra (Bastien), né à
 
 RTE OU PAM or NS TS RTE UE RE
 
-Anatole France :7°30
 Il n'a jamais pensé que Bastien Matra fût doué d'un V4
 grand esprit d'observation, ni qu'il appliquât à 4
 l'examen des faits une méthode exacte et rigou M
@@ -1162,9 +779,7 @@ cendu à la barre. ÿ
 En présidant de cette manière, le président Bour- À
 riche s'assure une sorte d'infaillibilité, et la seulea
 laquelle un juge puisse prétendre. Quand l'homme à
-40 ;
 
-APOLOGIE POUR M. LE PRÉSIDENT BOURRICHE
 qui témoigne est armé d'un sabre, c'est le sabre
 qu'il faut entendre et non l'homme. L'homme est
 méprisable et peutavoir tort. Le sabre ne l'est point
@@ -1193,7 +808,6 @@ l'agent 64, parce que l'agent 64 est l''émanation de la
 force publique. Et pour reconnaître ma sagesse, il
 vous suflit d'imaginer que j'ai agi inversement.
 
-Anatole France
 Vous verrez tout de suite que c'eût été absurde. Car è
 si je jugeais contre la force, mes jugements ne se- F.
 raient pas exécutés. Remarquez, messieurs, que les à
@@ -1221,7 +835,6 @@ car il a l'esprit juridique et il sait ce qu'un magis- }
 trat doit à la société. Il en défend les principes Q
 avec ordre et régularité. La justice est sociale. IL |
 
-LC APOLOGIE POUR M. LE PRÉSIDENT BOURRICHE
 x n'y a que de mauvais esprits pour la vouloir
 humaine et sensible. On l'administre avec des ;
 — règles fixes et non avec les frissons de la chair et
@@ -1254,58 +867,22 @@ une si haute métaphysique. A mon sens, en admettant le témoignage de l'agent 6
 ; un honnête homme. On appelle gens de bien ceux
 1 qui font comme les autres.
 
-+
-Ce”
-
-ARR EN RATE OM TASSE RUN RE RTS j
-PROS AAA EQU 0 Le (El ARE LE MR Er bide PEN
-‘HAE À (ROTANRLS NE UE RO AUE Ve LA RTE |
-Gin / * j L 8 CERN
-Re: | FLE raie UF NES C
-11 ÈS : {1 HSSRSURUE
-RARE ù 1 À ANR
-EE ÿ RU er
-PAU £ + ‘2 # & ss 1
-Le | TANT FT
-Er v fi 2 : " KA ri 2
-RAT EAU A LU ERNNES
-1 EAN 12 * é die | FENTE
-FT FRERES GA À $ t f DE Sp
-4 ? CE à se PC
-TS CAES AA j ; =) 18 na vi TE Lo .
-EN ER A OR SENS Er
-MER ( NUE 4 è TES LA SANTO LATE
-ATEN ae . A : \EY { ARMEEU FEAR FER +244
-
 TR DS a PO Re 5 Agts Hate Le ee LPS
-NS CHAPITRE V | 4e
-D ÿtd #2
-il x DE LA SOUMISSION DE CRAINQUEBILLE EL:
-RH AUX LOIS DE LA RÉPUBLIQUE :N72
-NF 10e RASE
-_… Crainquebille, reconduit en prison, s'assitsurson
-Nr FA : : : Ê SE
 escabeau enchaïné, plein d'étonnement et d'admi- En.
 : ration. Il ne savait pas bien lui-même que les Are
 “juges s'étaient trompés. Le Tribunal lui avait "7
 EN caché ses ,faiblesses intimes sous la majesté des CE
-AR RCE ; : SVT TR D:
 Ep mes. Il ne pouvait croire qu'il eût raison contre L'AR
-FORT T PTT SUR “ à FES
 5 D dont il n'avait pas compris les rai- DA.
 ne. sons F il lui était impossible de concevoir que quel- FES
 _ que chose clochät dans une si belle cérémonie. Car, ne
 è  n'allant ni à la messe, ni à l'Élysée, il n'avait, de > 548
 _ Sa vie, rien vu de si beau qu'un jugement en police 0
-FRE . * Ë se , . 4 € !
 a De ou Il savait bien qu'il n'avait pas crié 570
-et LE x 28 FRE 114
 on aux vaches ! » Et, qu'il eût été condamné à Re
-TENTE Es AS Es a
 _ quinze jours de prison pour l'avoir crié, c'était, en 24
 _ sa pensée, un auguste mystère, un de ces articles ti
 
-Anatole France sl 1
 de foi auxquels les croyants adhèrent sans les com- 4
 prendre, une révélation obscure, éclatante, ado- j
 rable et terrible. 4
@@ -1334,20 +911,17 @@ Le lendemain son avocat vint le voir : )
 mal? Du courage! deux semaines sont vite passées.
 Nous n'avons pas trop à nous plaindre.
 
-É DE LA SOUMISSION DE CRAINQUEBILLE
 | — Pour ça, on peut dire que ces messieurs ont été
 bien doux, bien polis; pas un gros mot. J'aurais
 pas cru. Etle cipal avait mis des gants blancs. Vous
 avez pas vu ? |
 | — Tout pesé, nous avons bien fait d'avouer.
-— Possible.
 — Crainquebille, j'ai une bonne nouvelle à vous
 annoncer. Une personne charitable, que j'ai inté-
 . ressée à votre position, m'a remis pour vous une
 somme de 50 francs qui sera affectée au payement
 de l'amende à laquelle vous avez été condamné.
 — Alors quand que vous me donnerez les
-5o francs ?
 — Ils seront versés au greffe. Ne vous en inquiétez
 pas.
 — C'est égal. Je remercie tout de même la personne.
@@ -1358,40 +932,12 @@ pas rare, loin de là.
 — Vous pourriez pas me dire où qu'ils m'ont
 étouffé ma voiture ?
 
-ie. ; è À « 5401 TPE AP TAPIE
-(50 rt.
-LE LM # à 1 ' ir Le “à >
-
 va W | MES D D F, ke
-L US PL LFNANRE ER
 Ra 176 CE da ol
-{ Le ?. * +: hs: éd
-\SUe da { f AT AN
-RER % ARR
-y: + PAU
-HR à 2 0 CE
 
-\ ° he PA UN
-F: F4 LAIT PART:
-PAP At LT Re
-T0 : "41
-1 RSR { A ART:
-DIN É NE (a d
-ME , L Re
-: HE SL: "à
-ANT - EEE
 LHC LE Arr NOR
 UE Fes 4 La EVA
 
-400È EE #14 LAN
-
-k g, 3 4 CEE
-
-1 4e No AE PAPAS AE AE EL Et
-ANRT ANT À " V
-HAN ERIC LAPS Un ‘ Ut
-DT Pr Ad : Pa:
-CHAPITRE VI |
 | CRAINQUEBILLE DEVANT L'OPINION !
 Crainquebille, sorti de prison, poussait sa voiture \
 rue Montmartre en criant : Des choux, des navets, |
@@ -1414,15 +960,9 @@ chée, lui disait en tâtant des céleris : $
 — Qu'est-ce qui vous est donc arrivé, père Crain-
 | 49
 
-Ec:
-
-Anatole France pe
-
 quebille ? Il y a bien trois semaines qu'on ne vous
 a pas vu. Vous avez été malade ? Vous êtes un peu É
-pâle. à
 — Je vas vous dire, m'ame Maiïlloche, j'ai fait le À
-rentier. $
 Rien n'est changé dans sa vie, à cela près qu'il à
 va chez le troquet plus souvent que d'habitude, $
 parce qu'il a l'idée que c'est fête, et qu'il a fait
@@ -1448,7 +988,6 @@ lui. Parvenu à la cordonnerie de l'Ange Gardien, L
 50 1
 
 19 ,
-4 CRAINQUEBILLE DEVANT L'OPINION
 | qui est le point où commencèrent ses aventures
 _ judiciaires, il appela :
 
@@ -1478,13 +1017,10 @@ monde qu'elle s'était fait une idée du panier à
 $ salade et du Dépôt. Mais on peut être honnête dans
 tous les états, pas vrai ? Chacun a son amour51
 
-Anatole France TN
-1%
 propre, et l'on n'aime pas avoir affaire à un individu &
 qui sort de prison. Aussi ne répondit-elle à Crain- “4
 quebille qu'en simulant un haut-le-cœur. Et le vieux à
 marchand ambulant, ressentant l'affront, hurla : È
-— Dessalée ! va! TR
 Madame Laure en laissa tomber son chou vert 1
 et s'écria : 4
 — Eh! va done, vieux cheval de retour ! Ça sort à
@@ -1509,8 +1045,6 @@ cette scène acheva de perdre Crainquebille dans É
 l'esprit du faubourg Montmartre et de la rue Richer. à
 
 .
-CHAPITRE VII 4
-LES CONSÉQUENCES |
 Et le vieil homme allait marmonnant :
 — Pour sûr que c'est une morue. Et même y a
 pas plus morue que cette femme-là.
@@ -1525,9 +1059,6 @@ jardin et d'élever des poules. C'était une bonne
 cliente. De la voir acheter des choux au petit Martin, un sale coco, un pas grand chose, il en avait
 reçu un coup dans l'estomac ; et quand il l'avait
 
-+ ATOS
-<
-Anatole France "4
 vue faisant mine de le mépriser, la moutarde lui |
 avait monté au nez, et dame ! ;
 Le pis, c'est qu'elle n'était pas la seule qui le
@@ -1561,9 +1092,7 @@ le troquet, il engueulait les camarades. Son ami, le 1
 marchand de marrons, qui ne le reconnaissait plus,
 déclarait que ce sacré père Crainquebille était un
 vrai porc-épic. On ne peut le nier : il devenait à
-incongru, mauvais coucheur, mal embouché, fort ;
 
-F0 LES CONSÉQUENCES
 D en gueule. C'est que, trouvant la société imparfaite, ;
 À il avait moins de facilité qu'un professeur de l'École
 3 des sciences morales et politiques à exprimer ses
@@ -1587,11 +1116,9 @@ sobre, il s'émerveillait lui-même de ce changement.
 | — J'ai jamais été fricoteur, disait-il. Faut croire
 : qu'on devient moins raisonnable en vieillissant.
 : Parfois il jugeait sévèrement son inconduite et sa
-paresse :
 | — Mon vieux Crainquebille, t'es plus bon que
 pour lever le coude.
 
-Anatole France : ‘à
 Parfois il se trompait lui-même et se persuadait s 1
 qu'il buvait par besoin : 1
 — Faut comme ça, de temps en temps, queje F
@@ -1619,66 +1146,28 @@ populeuses, toute sa vie innocente et rude de cheval
 humain, qui, durant un demi-siècle, porta, sur son 3
 56 4
 
-A D D 0 OR TEE ie RACE A NE NE
-
-DA NIP ON | LES CONSÉQUENCES AO
 _  étal roulant, aux citadins brûlés de veilles et de M
 F _ soucis, la fraîche moisson des jardins potagers. Et (0
 _  secouant la tête il soupira : 1} NE
-EN N ms ., . ë FAR
 # — Non! j'ai plus le courage que j'avais. Je suis VE
 le fini. Tant va la cruche à l'eau qu'à la fin elle se 710)
 5 casse. Et puis, depuis mon affaire en justice, je D
-Lu We, Aie x . 1e Mn,
 _… n'ai plus le même caractère. Je suis plus le même AVES
 $ homme, quoi! 0
 ‘MER Enfin il était démoralisé. Un homme dans cet 15
-SEL : : \RCRUEN
 …  état-là, autant dire que c'est un homme par terre L ni
 _ et incapable de se relever. Tous les gens qui pas- NOR
 - sent lui pilent dessus. JF ; 2
 Fi VE z : de tax,
-D vi due
-SANTE, F Ÿ Du
-(a
-(4 À d SA DEE
-£ * nu dd
 
 #4 NE
 
 RSA: ss É CAGE MATE RAT APRES TES e He ù
-LÉ AAA TRE: DANATANE ARE VASTE AS
-28 TOR + Rs LORS ON “ 4 RANCE 2":
-US x F - LÉ CRREERS
-SUR CAR Li PR
 | PARTIE è EAN
-Ru F3 + LEONE
-\'ÉTSIES à LA EP
-LENS 1 LEUR
-\s TEE 4 S ‘SN NSER
-HSE ' à 2 CURE TL
-AA 4"; CRE
-SENS 6 ME 4
-RU T “ ‘ MT .
-FPNGRE 1 . ENG.
-2 FEMRSERS LR LS È
-Eee An 2
 te 1 ; REX ce ME
-FPE ge c É
-+5 : TS
-RTE à + re 40e
 De : File “a AGE, née
-RAS t 4 ; CRE
-LUTTE : RE ; OR su È
-LS ARE 17,6
-CROATIE Bu
-PR ULS,
 
 “x Satan, de
-
-: | CHAPITRE VII #
-
-LES DERNIÈRES CONSÉQUENCES Fi
 
 La misère vint, la misère noire. Le vieux mar- “<
 
@@ -1707,8 +1196,6 @@ de marrons, il se rappela les deux semaines durant À
 _… lesquelles le gouvernement lui avait donné le vivre |
 | : :
 
-, TPE
-Anatole France
 et le couvert. Il envia le sort des prisonniers, qui
 ne souffrent ni du froid ni de la faim, et il lui vint
 une idée :
@@ -1746,14 +1233,12 @@ lui donnait de loin l'aspect d'un monstre amphibie,
 
 et armé, il avait l'air monacal et militaire. Les gros
 
-f LES DERNIÈRES CONSÉQUENCES î
 traits de son visage, encore grossis par l'ombre du
 à capuchon, étaient paisibles et tristes. Il avait une
 … moustache épaisse, courte et grise. C'était un vieux
 4 sergot, un homme d'une quarantaine d'années.
 : Crainquebille s'approcha doucement de lui et,
 à d'une voix hésitante et faible, lui dit :
-! — Mort aux vaches!
 Puis il attendit l'effet de cette parole consacrée.
 … Mais elle ne fut suivie d'aucun effet. Le sergot
 . resta immobile et muet, les bras croisés sous son
@@ -1776,25 +1261,17 @@ Enfin le sergot parla :
 
 plus de connaïssance... Passez votre chemin.
 È — Pourquoi que vous m''arrêtez pas ? demanda
- Crainquebille.
 
 ë Le sergot secoua la tête sous son capuchon
 
-bumide :
 — S'il fallait empoigner tous les poivrots qui
 
-É 61
-
-* IV
-
-Anatole France D
 disent ce qui n'est pas à dire, y en aurait de l'ou-
 | vrage !.. Et de quoi que ça servirait ?
 
 Crainquebille, accablé par ce dédain magnanime, |
 demeura longtemps stupide et muet, les pieds. |
 dans le ruisseau. Avant de partir, il essaya de s'ex- 3
-pliquer : |
 
 — C'était pas pour vous que j'ai dit : « Mort aux
 vaches ! » C'était pas plus pour l'un que pour l'autre l
@@ -1806,88 +1283,37 @@ Le sergot répondit avec une austère douceur : |
 chose, ce n'était pas à dire, parce que quand un ;
 homme fait son devoir et qu'il endure bien des À
 souffrances, on ne doit pas l'insulter par des paroles futiles.. Je vous réitère de passer votre |
-chemin. |
 
 Crainquebille, la tête basse et les bras ballants,
 s'enfonça sous la pluie dans l'ombre. ï
 
-TABLE
-4 Le US
 CxaPrTRE IL. L'aventure de Crainquebille . . . . . . . 19
 CxaAPITRE ll. Crainquebille devant la justice. . . . . 29
 CxaprrRe IV. Apologie pour M. le Président Bourriche. 37
 CuapiTRE V. De la soumission de Crainquebille aux
 
-RE publique... 2." UNS
-
 CHAPITRE VI. Crainquebille devant l'opinion . . ... . 49
-Berne VIE Les conséquences. . .. . : : . . .. . 53
 CxapirRe VIII. Les dernières conséquences. . . . . . 59
 
-LA
-
-NS UHEEATE AE Nes ALES RU RUN ES SRE :
-AUS nl 12 RTS
-“ 4 î £ fre 2 ee de 2 FA Fi
-Mt ds k g ‘ATARI fe .
-“REINE È EUR
-LAN EMRE Ês 4 MORE"
-SENS ROEE 2 ë L à SALE Fa LE 0 A CN
-:1 LA 1 ST l EN HE
-OST if : ‘ RNA ei
-+ LIRE 3 D at VUE LR ME +
-al AM É À 7 ÉD: | ÉTARSRENE
-AIN ENPE ss Î 4
-, NOTA î L | L'EFNOER 1
-(45 MA WT £ D
-LUREN TS F 5 2 AN ORREER
 HAL RER ÿ € AS en RCE ne
 ASIE Lie y 4 R + LE AE) FRE arte À.
-LEA NE AS LR " RARE D UT x TANT SPA k + a
-PAR EE OM Mc À RENE : < 188
 
 Fini d'imprimer cinq mille exemplaires pour la
-P T Je
 première édition le jeudi 9 octobre 1902
 à l'Imprimerie de Suresnes
-(E. PAYEN, administrateur)
 à 9, rue du Pont
 
-” È
-IV.
-
-(ts Eden
-S 3 LS
-a NE
-KIA TEE 3
-Mets : .
-LU >
-7 Ra:
 ne À ne DA }0
-EX 1/4, CHENE
-N SFR
-PRE
 sr Nous sommes heureux d'annoncer les œuvres d'Ana- af
-1 904 M
 A ÿe tole France éditées en éditions d'art par M. Pelletan:
-A] mari
-4 ER:
-Dal | 7 à
-ss ss
 
-sic x ; (
-TT THÉOCRITE
 4 2
-MON RIST YVES
 Texte grec et traduction nouvelle de M. A. BELLESSORT
 précédée d'une
-LETTRE DE SICILE
 par M. Anatole France, de l'Académie française
 Illustrations de GEORGES BELLENGER
 Gravées par E. FROMENT
 In quarto et in octavo, imprimé par Lahure, tirage à la
-presse à bras, limité à 350 exemplaires numérotés.
-IN QUARTO, TEXTE RÉIMPOSÉ
 
 Un exemplaire — numéro 1 — sur whatman, contenant tous |
 les dessins originaux, avec une double suite d'épreuves
@@ -1907,8 +1333,6 @@ prix net de 300 francs
 forme, avec une double suite d'épreuves d'artiste signées,
 sur japon et sur chine;
 
-IN OGTAVO RAISIN
-
 5o exemplaires — de 31 à So — sur japon des manufactures
 impériales, avec un tirage à part de toutes les gravures,
 sur japon et sur chine, au prix net de 150 francs
@@ -1920,28 +1344,17 @@ prix de 7 francs
 
 170 exemplaires, sur vélin à la cuve des papeteries du
 
-+ Marais, filigrané KTHMA EE AEI, auprixde 30 francs
-
-RUE CN VE OS 7 RQ AN RP IN TE Re PEAR NP EP NE SORT MESSE
-; j : LENS
-SNA RON
-ANATOLE FRANCE é 7 SPC
 de l'Académie française ERP ee: É:
-JEAN GUTENBERG
-SUIVI DU ù
-TRAITTÉ DES PHANTOSMES A
 de Nicole Langelier ;
 Illustrations de G. BELLENGER, BELLER Y-DESFONTAINES, à
 STEINLEN et FRÉDÉRIC FLORIAN ‘à
 Gravées par Derocne, les deux FROMENT, ERNEST ;
 et FRÉDÉRIC FLORIAN he
 Grand et petit in quarto, tirage à la presse à bras, 1
-limité à 113 exemplaires.
 Un exemplaire — numéro 1 — sur peau de vélin, contenant
 tous les dessins originaux, avec une double suite d'é- pe
 preuves d'artiste signées, sur japon ancien et sur chine, k
 plus une collection d'épreuves de toutes les gravures sur À
-parchemin ; Ë
 Un exemplaire — numéro 2 — sur peau de vélin, avec une 04
 double suite d'épreuves d'artiste signées, sur japon ancien :
 . et sur chine, plus une collection d'épreuves de toutes les
@@ -1959,27 +1372,15 @@ AEI, au prix de 60 francs EE
 Il a été tiré en outre : 4
 17 collections d'épreuves de toutes les gravures, dont une 3
 sur parchemin, 6 sur japon ancien,.et 10 sur chine. “4
-à
-1%
-E:
 
-M es
-Re
-"e CHARLES NODIER
 précédée d'une
-LETTRE A JEANNE
 par M. Anatole France, de l'Académie française
 25 compositions de STEINLEN, dont 5 hors texte
-en couleurs
 
 Gravées par DELOCRE, FROMENT, ERNEST et FRÉDÉRIC FLORIAN
 Un volume in quarto, tirage limité à 127 exemplaires
 
-numérotés.
-
 Établi spécialement pour l'Exposition Universelle
-
-de 1900
 
 Un exemplaire — numéro 1 — sur whatman, contenant tous
 les dessins originaux, avec une double suite d'épreuves
@@ -2004,7 +1405,6 @@ Il a été tiré en outre :
 
 15 collections d'épreuves d'artiste signées, de toutes les
 
-gravures, dont :
 | 5 sur japon ancien, au prix net de 125 francs
 
 10 sur chine, au prix net de 100 francs
@@ -2014,19 +1414,12 @@ Plus 10 collections polychromes, sur chine;
 Plus 10 collections, sur chine, des gravures non utilisées
 dans l'édition.
 
-ti
-
-BCP MUR SEEN TS PUS AE RO PUS STE FUREUR RETIENS é
 de l'Académie française + %
-x
-Compositions d'AUGUSTE LEROUX (
 Gravées par ERNEST FLORIAN De
 
 In quarto et in octavo raisin, imprimé par Lahure, tirage
 
 à la presse à bras, limité à 200 exemplaires numérotés. b
-j
-IN QUARTO, TEXTE RÉIMPOSÉ ë
 
 Un exemplaire — numéro 1 — sur whatman, contenant 1
 tous les dessins originaux, avec une double suite « d'épreuves d'artiste, sur japon et sur chine;
@@ -2034,14 +1427,11 @@ tous les dessins originaux, avec une double suite « d'épreuves d'artiste, sur 
 Un exemplaire — numéro 2 — sur whatman, contenant une J
 aquarelle sur chacun des faux-titres — soit cinq, — avec ÿ
 une double suite d'épreuves d'artiste, sur japon et sur
-chine; É
 
 23 exemplaires — numéros 3 à 25 — sur japon ancien ou
 sur grand vélin des papeteries du Marais, contenant une à
 aquarelle originale, plus une suite d'épreuves d'artiste, 1
 sur chine, au prix net de 500 francs
-
-IN OCTAVO RAISIN 2
 
 30 exemplaires — numéros 26 à 55 — sur chine fort, au :
 prix net de 200 francs ;
@@ -2054,43 +1444,23 @@ Il a été tiré en outre: ?
 20 collections sur chine de toutes les gravures au prix 4
 
 net de 60 francs :
-, ‘4
 
-EN PRÉPARATION » ANATOILE FRANCE
 de l'Académie française
-LA ROTISSERIE DE LA REINE PÉDAUQUE
-ANATOLE FRANCE à
 de l'Académie française
-POMPÉI
-ANATOLE FRANCE
 | de l'Académie française
-LE PROCURATEUR DE JUDÉE
-Compositions en camaïeu d'EUGÈNE GRASSET, gravées
 sur bois par Florian
-ai LE \
 
-ALMANACH DU BIBLIOPHILE 1898 |
-(PREMIÈRE ANNÉE) +. 28
 98 illustrations de BELLERY-DESFONTAINES, gravées :
 è par Froment 1
 ANTISÉMITISME, par ANATOLE FRANCE -
-ALMANACH DU BIBLIOPHILE 1899 ;
-À (DEUXIÈME ANNÉE) 4
 38 compositions dessinées et gravées k
 par FRÉDÉRIC FLORIAN Ë
-LES BOUQUINISTES ET LES QUAIS .
 par ANATOLE FRANCE
-R ALMANACH DU BIBLIOPHILE 1900 |
-(TROISIÈME ANNÉE) N d
 31 compositions de SxEINLEN, gravées
 par les deux Froment
 LE PETIT PALAIS, par ANATOLE FRANCE
-ALMANACH DU BIBLIOPHILE 1901
-(QUATRIÈME ANNÉE)
-30 compositions cn couleurs d'EUGÈNE GRASSET, K
 gravécs par Émile Froment
 
-A
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 3 rez-de-chaussée, Paris.
 
@@ -2116,19 +1486,13 @@ ouvrière ; les intellectuels dans les U. P.; vie et fonctionnement de l'U. P. ;
 72 pages, un franc
 
 Au commencement du même cahier, Charles Péguy,
-vraiment vrai. -
-
-Ê Y
-Î
 
 Cahiers de la Quinzaine 5 2%
 Gzorces Sorez. — De l'Église et de l'État,
 fragments, troisième cahier de la troisième série, un 4
 cahier de 72 pages, un franc #
-; JEAN JAURÈS. — Études Socialistes : introduction,
 question de méthode; préface, République et Socia- À
 lisme; le mouvement rural; revision nécessaire; évolu-- " #
-tion révolutionnaire : majorités révolutionnaires; Lieb- “4
 knecht et la tactique; grève générale et révolution; le …
 but; le socialisme et la vie; de la propriété individuelle : 4
 les radicaux et la propriété individuelle; propriété individuelle et code bourgeois; la propriété individuelle. ù
@@ -2142,7 +1506,6 @@ quatrième cahier de la troisième série, un très fort
 cahier de cvi + 276 pages. RL
 Ce cahier n'est pas mis dans le commerce. Nous ne le
 vendons que dans les collections complètes. -
-. +
 GEORGES DELAHACHE. — Juifs, cinquième cahier de <
 la troisième série, un cahier de 72 pages, un franc î
 - Dans le même cahier: l'affaire Hervé, documents, ar- +
@@ -2150,30 +1513,21 @@ ticles de Hervé : à bas la guerre; nos intérêts en Chine; :
 embarquement pour la Chine ; au conseil général de 3
 l'Yonne ; à quoi servent les armées permanentes ; deux
 cas de refus de service militaire en Hollande. — Charles :
-Péguy, lettre à M. Charles Guieysse. “4
-74 ù :
-° C0 4
 
-“LA à TROISIÈME SÉRIE
-3 A de
 0 JEAN HuGurs. — La Grève, trois actes, sixième
 _ cahier de la troisième série, un cahier de 72 pages,
 Br - un franc
 4 Dans le même cahier : une lettre de Maurice Bouchor; :
 = Charles Péguy, Racine, l'affaire Téry, une lettre à :
-; M. Gustave Téry. |
-É
 ; Septième cahier.— Polémiques et dossiers : M. Gus__ tave Téry : réponse de M. Gustave Téry; réponses
 sk particulières à M. Gustave Téry; une lettre de M. Gal-
 # louédec; un cahier de 72 pages, épuisé,
 _ n'existe plus que dans les collections complètes.
 : Dans le même cahier : Gustave Hervé, l'Anniversaire
 L: de Wagram ; à nos amis de l'Yonne; Félicien Challaye,
-; _ Courrier d''Indo-Chine.
 5 BERNARD Lazare. — L'Oppression des Juifs dans
 ; l'Europe orientale, les Juifs en Roumanie, huitième
 cahier de la troisième série, un cahier de 116 pages,
-deux francs :
 Dans le même cahier : Georges Sorel et Charles
 | RER Coste.
 | Tozsror. — Une lettre inédite, adressée à Romain
@@ -2184,11 +1538,9 @@ de _ Charles Péguy.
 # Dixième cahier. — Les Universités Populaires
 _ 4900-1901, I, Paris et banlieue, introduction de
 _ M. Gabriel Séailles, un cahier de 48 pages, un france
-“€ 7 |
 
 CAMES NS Gore PENSE DIN RARES ROUES, 0 Ne nf |
 Cahiers de la Quinzaine FENTE
-Quatorze notices d'Universités Populaires Paris …
 banlieue; Édouard Dujardin, la Question budgétaire ; 4
 liste et adresses des U. P. à la date du premier mars %
 1902. 34
@@ -2200,7 +1552,6 @@ cahier de 72 pages, un franc 4
 JÉRÔME ET JEAN THARAUD. — Dingley, l'illustre “
 écrivain, treizième cahier de la troisième série, un 2
 cahier de 88 pages, un franc 7
-: Quatorzième cahier. — Georges Sorel, Socialismes ;
 nationaux ; Félicien Challaye, la Russie oue de Vladi
 vostock, journal d'un expulsé, un cahier de 72 pages, 120
 un franc 52
@@ -2213,30 +1564,21 @@ Seisième cahier. — Les élections; emprunt des
 cahiers, un cahier de 72 pages, ; un franc A
 76 4
 
-I AR LE SON AR Ge: Or SN Re
-1: ÉNORÈNS :
-Fe :; HS 1 : ‘
-‘3e TROISIÈME SÉRIE
 Br: Cahier de courriers, dix-septième cahier de la
 “ troisième série, un cahier de 72 pages, un franc
 . Félicien Challaye.— Impressions sur la vie japonaise.
 = Edmond Bernus. — La Russie vue de la Vistule.
 3 Jean Deck. — Courrier de Finlande. É
-ke
-2e Dix-huitième cahier.— Personnalités, Monographies,
 un cahier de 72 pages, un franc
 ; Dossier Gohier; ligue française pour la défense des
 3 Droits de l'Homme et du Citoyen; élection Beauregard ;
 à élections dans l'Yonne; René Salomé, courrier de
-_ Belgique.
 | PIERRE QuirLarRD. — Pour l'Arménie, mémoire et
 dossier, dix-neuvième cahier de la troisième série, un
 fort cahier de 168 pages, trois francs
 Vingtième cahier. — Les Universités Populaires
 1900-1901, II, Départements, préface de Charles
 Guieysse, un cahier de 156 pages, deux francs
-Quarante-deux notices d'Universités Populaires
-départements.
 Dans le même cahier, Louise Lévi, Rectification.
 & JEAN DECK.— Pour la Finlande, mémoire et docu-
 ; ments, vingt-et-unième cahier de la troisième série, un
@@ -2244,8 +1586,6 @@ Dans le même cahier, Louise Lévi, Rectification.
 He Dans le même cahier : le Livre pour tous;
 Fe Pour et contre les Congrégations, dossier : appel du
 1: “= comité catholique pour la défense du droit; une lettre de
-8:
-Ë 27
 
 Cahiers de la Quinzaine Fr 2 4
 M. René Goblet à l'Éclair; une lettre de M. Goblet au
@@ -2255,7 +1595,6 @@ et les congrégations; une lettre de M. Gabriel Monod
 au Siècle : une lettre de M. Michel Bréal; un article de À
 Jaurès ; une citation de M. Francis de Pressensé ; deux ‘à
 citations de M. Ferdinand Buisson; une citation de 4
-M. Paul Guieysse. ; 3
 Les Cahiers servent des abonnements ordinaires à 4
 vingt francs et des abonnements de propagande à
 douze francs. Il va de soi qu'il n'y a pas une seule A
@@ -2278,16 +1617,11 @@ d'une série, le prix de cette série est porté au moins au
 total des prix marqués; ainsi à partir du premier jan- Ë
 vier 1903 la troisième série, si des collections nous en
 restent, sera vendue au moins trente-trois francs. S
-78 Ge
-%
 
-h LAS ie , #
-mn: QUATRIÈME SÉRIE a
 …_ Nos Cahiers sont édités par des souscriptions men- :
 _  suelles régulières et par des souscriptions extraordi-
 . naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-_ demeurent libres.
 ERA Nous servons :
 à = des abonnements de souscription à cent francs;
 S$ des abonnements ordinaires à vingt francs;
@@ -2316,6 +1650,5 @@ M. André Bourgeois, administrateur des cahiers, +4
 reçoit pour l'administration et pour la librairie tous .
 les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept 4
-heures. “3
 M. Charies Péguy, gérant des cahiers, reçoit pour À
 la rédaction le jeudi soir de deux heures à cinq heures. « ;

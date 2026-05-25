@@ -8,10 +8,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 43057
 ---
-
-2 PREMIER CAHIER DE LA NEUVIÈME SÉRIE
-UM EOCHAREES PÉGUY
-
 de la situation faite
 
 | au parti intellectuel
@@ -21,77 +17,30 @@ devant les accidents
 
 “ de la gloire temporelle
 
-Fe 139934
-
-pes 4.10.1@
-
 ue CAHIERS DE LA QUINZAINE .
-
-LASER
 
 pe LS paraissant seize fois par an $
 
-EU PARIS
-
 fi. _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-AU Va EE Te RU Re PAPER A ANT ET Er NE
-LL ONE Es ace RATE MUNIE ES AIS NÉE
-L'EONIERAAONS A] é F4 à É OS RIRE 2
-À Ra RAP dr CEE TETE CNE
-se "1 à PAR UT RE à
-F ce 1 # ŒESRp" AE ARE
-+0 ARTS À « c F n MER NPA 6e 0 A
-ATEN £ ; RQ: ORPI RENE
-: SCT : MA US
-A7 AO VASE ETES ï
-y ns: Ê ‘ NN PAM E CH
-À 10 AS 2 PE : / ; î TA | SÉLERES Cyr:
 | ) ‘0 PAR j tA UN OS Yet SAT
 L MAR en. if ir À 40 AUTO DA ÉENS: 4 :
 
-MURS à AT dura en eee Rte “ fé % Hi AP ME à ape Ÿ É: au NA
-SE 1 FREE CEST: CAT nb Der UT TO: 12 POMET AMIE £.
-
-à MAT 08 (ER ‘ ; a 2 LRO +:
-s; 20  L'NPRReS ” Ê Î 11 FRERE
-1, POSER %: Eur ! cr
-Fa "FRS ‘à , 4 AY 4 "#4 #
 | “HE | 15
-;. LLÉNERE ste À , LS Ç ñ : 544
-0 IE
-” HR TE j re? 4 :: 1°" PRESS
-Le © |, à A" ‘ 3e 0. At
-' "4 1e RAP À : à à
-M1 ? À x il ) L 1 Dre r
 
-ë ru Da: PS VER $ : Ç K'ONRT ur.
-_! L'ATSTRINNNROEES (FOR MA We VA
-04 SION SNRRANSS ‘ { JL FEUSTER
-+ : VIRE BAY } À4 4 K SEC
 :. CHARS RAT Le morte môdrhase NEA Re
-"4 A Lo M] ACT ATOS 'H { É r at * FRA |
-17 FR COPA WPPEL Î Et ET SA) (Le. CHUTES RTC
 
 SEA adedie # HE DE jà fées F0 DS jt « ho ER A AT A :
 
-CCR MAS EE
-! AT EMA
-+ 1 pe.
 +100 Nous avons publié dans nos éditions antérieures et te ‘3
 D. _ dans nos cinq premières séries, 1900-1904, un Si il
-\ a La E ©
 ni / grand nombre de documents, de textes formant dos- ie.
-Ke J É ; 3
 …_  siers, de renseignements et de commentaires; — un es
 te k L Dec
 14 si grand nombre de cahiers de lettres, — nouvelles, “5
 Fa M romdäns, drames, dialogues, poèmes et contes; — un #P
-NE . 5 « « . CRE
 - si grand nombre de cahiers d'histoire et de philo
-L 50 4 . nus
 DCE + sophie; et ces documents, renseignements, textes, 0
-: 200 : : : QE
 -__ dossiers et commentaires, ces cahiers de lettres, ‘tr
 44 d'histoire et de philosophie étaient si considérables 1
 + e que nous ne pouvons pas songer à en donner ici 28
@@ -103,21 +52,17 @@ ne: 4 suffit d'envoyer un mandat de cinq francs à M. André ER
 _ Bourgeois, administrateur des cahiers, 8, rue dela Sor- Re:
 bonne, rez-de-chaussée, Paris, cinquième arrondisse-
 …_ ment; on recevra en retour le catalogue analytique LS 530
-MAC ÿ À "4 s 2:80
 
 .__ sommaire, 1900-1904, de nos cinq premières séries. pl ê
 
 f Ce catalogue a été justement établi pour donner, 4:15
 ; be. autant qu'il se pouvait, une image en bref, un raccourci, :NR
 
-e Se, : LUS
-
 _ une idée, abrégée, mais complète, de nos éditions anté- (HER
 
 3 _ rieures et de nos cinq premières séries ; tout y'est classé Dal .
 * dans l'ordre; il suffit de le lire pour trouver, à leur
 1164 place, les références demandées. LH
-514 ï ral À
 QU, _ Ce catalogue, in-18 grand jésus, forme un cahier
 _ très épais de XI1+/08 pages très denses, marqué cinq
 _ francs; ce cahier comptait comme premier cahier dela
@@ -128,153 +73,32 @@ _ série; toute personne qui jusqu'au 31 décembre 1905 We
 JAI _ vait, par le fait même de son abonnement, en tête de la AE.
 5 _ série; nous l'envoyons contre un mandat de cinq francs
 _ à toute personne qui nous en fait la demande. A
-4 - « RIAD
-
-ÿ Ra 1 nn
-
-16 EME |
-(EN EU
-NS: { | #8
-Ur. En
-1% L.
-1168202 “AE
-1° , NUE
-‘si ‘CNRS
-
-oi “ \ 12 er
-
-DR © ds Ur
 
 Me, in De
 
-JR ” à LL tres JD x k
-LOT LUN } A Gé Ab AA ErRE ARE ES ENT
-Se Em À Y 1KIS ii
-PRE {RATES
-JE LCR L
 # 0 ER ;
-4 ‘Fi LE 14 ” n
-Ro. : k FAR
-‘fi ue
-2,80 Ê TL
-FAX PE NE a
-AVS FLEURS
-Ris fe En:
-+4 “ Re.
 
-he à POP 6
-
-we 24 nr,
-
-4 KT
-
-Dre TE
-10 LU.
-
-ER < \ (Tate
 | POP <a
-mA! AU
-
-die mere
-108 = a A
-® " Y mt
-EL ‘ di {ra
-
-it 15 RER
-
-A; + : TNA
-
-L À
 
 L. . ut if
-2] É A
 
 "ee è Le ses
 
-A u TR
-RONDE TR pe LR
-
 dans le monde moderne
 
-il #1
-4724 Gi SR A (NS A a AA SUR AUS MPa He
-1024 HAN ANR ST AE CN PE ÉVITE
-AUTONET TU RS ER N à 200
-© FATRNITR |” 14 Be
-HAE Le LR ORNNERl
-RR 4 UN
 NY ait , 4 HUE ne Je %
-NAN SEE TN
-NUE sl a Ve :
-L. ie 25 0T0NRR 2 Vi ï;
-W EU
 | À + ARE
-D ESS 4
-à * 1fts Tan
-ct à 4 di
-LAPS ns
-E à LRU |
-Ar X La 21 :
 
-1 à 4, FANS
-‘4 LFAÈNERS
-4 {29410
-480 | à
-Rs, ‘ Q ne à
-Eli, * JE
-
-51 L Den
-‘# +F \ é ! Ne:
-+4 DE LA SITUATION FAÎITE T4
-1 AU PARTI INTELLECTUEL NN.
 100 DANS LE MONDE MODERNE nn:
-_ DEVANT LES ACCIDENTS 11
 ne. DE LA GLOIRE TEMPORELLE mn.
-D 4
 
-CT ONRUENT RS LE AN RO AR 1 |
-380 COR TRE CAE 26) ï à ; ur RATS
-SE # ; A % Cr RASE NA
-À En nr . DA re }
-: ARE ARE nu,
-a J 4) BEEN :]
 J 1 Pa ‘ne F ve
-08 ' ë DRE
-H LUE
-HA ES '
-UE +2 ER
-‘We MAN
-4 | wi
-"il , n'R
-D 0
-0 1tes
-: CARRE 3% RE,
-K: 1 CHU PURE
-ES É 1 SUR
-34 NA es
-Part: : f ANS
-/ Hire.
-? 4402 il [A
-‘1 4 fANERE)
-: el : Fy FAT
-(4 LME
-“10 w L y re vw,
-13 Not rte Hu
-1 - ; ne ; Fr AA
 
-nue , Û u PA
-GA F 14
-ë DE LA SITUATION FAITE ‘41
-2 L F VASE
-PS. à au parti intellectuel : T4
-4 a . + \ 7
 M. dans le monde moderne Es 24
-nL z : QC
 ee devant les accidents : 704
 1108 de la gloire temporelle a
 on Quand on a dit ce que nous avons indiqué seulement,
 +142 quand on a dit que l'entrée d'un jeune homme dans le
-. si ë. ns à F I *
 EX grand parti intellectuel moderne lui confère automatian, . . . . AA
 _  quement aujourd'hui toutes les puissances de la domi- Fe
 HE. nation temporelle, on n'a rien dit. Et 3
@@ -282,18 +106,12 @@ HE. nation temporelle, on n'a rien dit. Et 3
 tion, que l'initiation d'un jeune homme dans le grand Rit
 à “parti intellectuel moderne lui ouvre automatiquement . % fe
 toutes les puissances de la domination temporelle
-nn Ë 4 : CE
-_ moderne, — places, richesses, honneurs, vanités, siné- 4
 cures, chaires, titres et décorations, prébendes laïques,
-_ rentes civiques, avancements, gouvernements d'État, jt
 __ dominations politiques parlementaires, honneur de
 MU Sauver, — aujourd'hui, — 5 “République, — et par AP ë ‘4
 __ dessus le tout ce que je vois qui est le plus prisé
 % 9 monde moderne, — 1. RU,
-À #1 4
-(4 2% . Er
 
-1580 $ VASE FAT er, DL MEET Gun tie Fi Mis bn
 _ aujourd'hui par et parmi nos jeunes gens : faire un AE
 | grand et brillant mariage, demi-riche, ou riche tout à
 1 fait, de cette richesse très particulière aux gros uni-
@@ -326,8 +144,6 @@ _ comment se parjurer, quelles trahisons commettre, et 2%
 4 ils savent comment on peut trahir des trahisons mêmes. : ‘À
 …_ Un peintre joue la difficulté en mettant blancs sur he:
 _ blancs, noirs sur noirs. Nos jeunes camarades jouent | #
-D. : æ “4 Ê
-\ AN PA “2
 
 ar ; SAM E TT € LE MONDE MODERNE pi de.
 
@@ -348,7 +164,6 @@ Es auprès d'eux. Ils savent ce qu'ils ont à faire, et ce qu'ils ‘128
 À ont que nous n'avons pas, que nous n'aurons jamais; “à
 Le ni de nos aversions et de nos découragements. Ils nous 4
 1 méprisent. Ils nous tiennent pour des sots. Ils ont bien .
-L raison. ? ‘1408
 El Sur ces grandes vilenies, sur les turpitudes gouverne- \ à
 he % mentales, sur les hontes politiques, sur les roueries des : 20
 % combinaisons parlementaires, sur les fraudes électorales % K à
@@ -366,15 +181,9 @@ MÈ Ceux qui ne veulent pas, ne veulent tant pas que vous ts ?
 = ne sauriez pas les faire ne pas vouloir plus, ni moins,
 parce que vous n'êtes bon à rien. a
 
-WE … W A
-
-DC te. . en dl
-Ds - RE
-
 :5aSSS Charles Péguy UN
 2 Sur tout cela, qui est usuel, qui est habituel, toutes te |
 _ les habitudes et tous les usages sont pris. ‘1
-Li ? d
 Sur les turpitudes publiques ou secrètes, sur les bas- Are ji.
 ‘ _sesses des dominations temporelles, de part et d'autre À #
 = les partis sont pris. Vite pris. Les vies sont courues. à
@@ -393,7 +202,6 @@ __ lents jeux de barre sous les marronniers lourds, dès | D:
 ; “4 peut-être avant, tout cela était joué. Dès les plus an- ME
 __ ciennes parties de barre, et au-dessous, au-dedans, rl
 À hi ñ cette partie-là était jouée. il
-L A
 É: Sur les arrivismes temporels, de part et d'autre les 4
 % jeux sont faits. Les âmes turpides vont aux turpitudes ; 0
 _ les âmes serviles vont aux servitudes. 1 à
@@ -434,10 +242,7 @@ __ comment s'y prendre, qui ne veut pas savoir, le type 10
 4 dans nos genres, l'imbécile enfin, le pur niais, nidax 1 u
 : e. vere simplex, le bon homme sait très bien, sent très “4 à
 F: bien, depuis qu'il est venu au monde, et même avant, 4 Ë x
-Lo: 13 Hu
-à 41
 
-à “à cL Charles Pégur FPE Rice
 F: parce que son père et sa mère étaient d'honnêtes gens, - 4
 f que toute sa vie on lui fourrera les sales besognes. Ou à
 a du moins ces admirables petits métiers, tenus ettenants, , À
@@ -445,7 +250,6 @@ a du moins ces admirables petits métiers, tenus ettenants, , À
 ‘138 comme de sales métiers. Il sait pertinemment que toute
 F4 sa. vie on lui fera éreinter les yeux à corriger des copies î
 ‘à et des compositions ou de la copie et des épreuves * 1
-£ d'imprimerie ï |
 4 Dans les honneurs obscurs de quelque légion. {
 ñ 7 Mais il aime cela, cet homme. Il est si bête qu'il ne 1
 f pense même pas à nommer cela probité, honnêteté, n
@@ -469,8 +273,6 @@ f sa vie sera telle, toute entière, et que telle sera sa î
 x sa vie. ‘4
 "41 ; Car pour cette sorte de gens, de petites gens, elle 4
 
-oo 0
-+ DANS LE MONDE MODERNE 1 | A
 n'est pas, elle me paraît pas beaucoup le commence- 4
 ment de leur éternité. A
 Infiniment plus dangereuse que la tentation du gou- ; ï
@@ -491,7 +293,6 @@ véritable, qu'il y a des hommes qui ne trahiraient point
 car, — et dépendances, — et dont le cœur chancelle et 43
 ï qui feraient on ne sait pas bien quoi, et on se le demande }
 avec inquiétude, pour être mis seulement dans un dernier chapitre, que l'auteur ferait, de l'histoire de V4
-Lanson. *
 | I1 est heureux pour la solidité du régime que des é
 À hommes comme Andler et Lanson soient de fermes 1)
 4 républicains. Qu'ils en soient les appuis les plus solides “4
@@ -500,7 +301,6 @@ k et comme qui dirait les bâtons de vieillesse. On ne sait V
 à capables pour entrer dans la gloire, — même considé-
 4 rée comme une puissance purement spirituelle, — nommément pour entrer dans l'histoire, — comme on y |
 
-DUO Charles Pégay RE
 48 entre aujourd'hui, c'est-à-dire pour entrer dans le tissu s Es il ;
 _ linéaire, dans le ruban de l'évolution littéraire, dans le TEA
 3 ruban scientifique d'une évolution littéraire linéaire, —
@@ -533,10 +333,7 @@ Ke: connaissance, heureusement que nous avons la certitude “À \
 "2 de dictature enthousiastes, infiniment plus embêtantes 4%
 1 _ que celles qu'ils ont déjà, et qui sont si insupportables, 2
 _ quelles gardes prétoriennes, et plus que dévouées, attaæ
-pl S
-1 0 ._ Mie:
 
-LES DANS LE MONDE MODERNE “ER
 \  chées, ils pourraient lever parmi tant de jeunes gens 54
 A" que l'on croit et qui se croient eux-mêmes de la défense RS
 4 républicaine la plus pure. 34 1
@@ -550,7 +347,6 @@ ne laquelle je ne pense pas qu'il soit opportun de revenir, Hu
 | ou édictent les fonctions de l'enseignement dans les Du:
 _ Universités de l'État. Des hommes qui reçoivent ou ne A:
 _ reçoivent pas, en France, des candidats, nés Français, 14
-Ë aux ui licences, aux agrégations, à
 ÿ l'École Normale, aux bourses, même de voyage, des ‘à fi
 hommes qui ont reçu licence de faire des docteurs et des 44 £
 _normaliens exerceront toujours en France une puissance #4
@@ -569,11 +365,8 @@ _ avaient échappé aux premiers, aux anciens communs :14
 | ravages. De.
 14 Il se produit ainsi un nouveau, un dernier déchet, le “<CNR
 | pire de tous. M:
-4 L: " à ;
 
-D 0 À Le EME]
 :4k Charles Péguy RL de,
-Dot: , EVE S 2
 ‘1 si Une âme un peu noble se méfie, d'elle-même, instne
 RS tivement et sans qu'on ait rien à lui en dire, de tout ce ÿ 23
 F qui ressemble à de la domination temporelle. Un homme 4
@@ -591,7 +384,6 @@ ne même lieu d'en parler. Ce qu'il faut dire, ce qu'il faut ‘Al
 À qu'elle se glisse à des âmes plus précieuses ayant elle- k.
 % même revêtu les aspects presque d'une vertu, presque }
 n. d'un devoir, presque d'une obligation métaphysique et L
-À morale. | !
 d à De bons esprits s'aperçoivent aisément, de naissance, A]
 ; de race, et sans qu'il soit besoin de les tirer par la N
 4 manche, de ce que c'est qu'une domination temporelle,
@@ -606,7 +398,6 @@ d, moderne, elle aussi une puissance temporelle, moderne, F
 ; comme il y en a malheureusement tant d'autres. ‘ 4
 F Je dis encroûtement parce que je ne suis pas scienti- #
 5 fique. Si j'étais savant je dirais incrustation, cela ferait ne:
-CR ‘ 1
 
 L _ une loi biologico-sociologique, et tout le monde me res- Ne à
 | pecterait. < “#
@@ -633,15 +424,12 @@ comme une puissance à peu près uniquement spirituelle ‘8
 est devenue, par un effet de l'incrustation capitaliste 114
 moderne, sur ses vieux jours uniquement une puissance En. M
 temporelle, et la plus dégradée des puissances tempo- DU:
-prelles, ‘4 110
-à De.
 a [Je dis : la seule entreprise qui, dans l'ordre de l'édi- 8
 _ tion; je ne dis pas la seule entreprise absolument par- 36
 k lant, Nous sommes quelques-unes, heureusement. Mais 1
 “1% les autres entreprises ne sont pas proprement de l'ordre : 44
 hey LE
 
-FE Charles Péguy jen SNA “
 Le: de l'édition. Je sais autant que personne, pour prendre Se #4 à
 - un exemple qui m'est particulièrement cher, je sais ÿ te
 É, ÿ pertinemment, puisque j'y suis inscrit, combien cette fi
@@ -649,7 +437,6 @@ F. personne morale, qui se nommait Union pour l'Action NL 4
 {a . morale,etquiaujourd'hui se nomme Union pour la vérité, \ ts
 ns. pi a résisté utilement aux puissances temporelles dans :#
 À # l'ordre de l'opinion, d'une certaine opinion, nommément “
-4 aux puissances d'argent, aux puissances capitalistes] ‘1
 Hal Ordre de l'opinion qui était de son programme même. Ÿ
 Ds (J'espère que ces éloges que je fais d'eux, que c@
 500 témoignage que je rends à leur compagnie ne les com- S
@@ -674,9 +461,7 @@ nu: gnie est pauvre : pourquoi le taire ? Étant donnée l''im- À |
 14 qu'elle pouvait avoir, qu'un très grand nombre de ses
 À b membres avaient déjà individuellement, elle ne serait
 pas restée longtemps ou toujours pauvre si elle avait Ÿ
-A: È CL
 
-" ( PAU NE DANS LE MONDE MODERNE e ÿ LE
 ue è fait les affaires de quelqu'un. C'est à peu près la seule ; 0
 
 1 _ loi de sociologie qui se soit jamais vérifiée. Les affaires “. |
@@ -716,7 +501,6 @@ monde, qui a toujours ce mot d'expérience à la bouche, Le
 
 _ entendue dans le sens de la technique scientifique, au Es ‘a
 
-58 Charles Péguy FIRE TIENNE
 4172 sens d'expérience de laboratoire : faire une expérience,
 : : installer une expérience, monter une expérience, réus- PE
 1 sir, ne pas réussir une expérience, NOUS Savons par
@@ -728,7 +512,6 @@ _ entendue dans le sens de la technique scientifique, au Es ‘a
 ‘4 sement incalculable et constant, qui est dela vie même, A
 F ; cette entrée perpétuelle de l'événement total dans l'évé- n :44
 ‘4 nement de la vie propre. Nous ÿ reviendrons certai- 1 M
-54 nement. ' é L
 Fe Je n'apporte donc mon témoignage que pour avoir la
 ‘ti conscience tranquille, et parce qu'il ne faut rien oublier. W,
 À J'ai Dieu merci non seulement un grand nombre de 4
@@ -746,12 +529,7 @@ RE) de seconde sans faire intervenir dans mes propos une fl |
 ni certaine opposition que j'ai fait déjà un certain nombre #3
 “#c de fois intervenir par écrit dans ces cahiers mêmes. IL {4
 ‘4 m'arrive par exemple d'opposer des mots comme intel- JU
-‘14 lectuel à industriel, scolaire à vivant, fonctionnaire à er
-24 producteur, fonctionnaire à citoyen, fonctionnaire à con- 10
-Ke 22 Dei
-DL: ‘Ti
 
-0 DANS LE MONDE MODERNE LS
 É tribuable, particulièrement universitaire à éditeur. On le ‘4
 | sait de reste, je n'y insiste pas. Ce que tout le monde ne é : 4
 + sait peut-être pas, parce que tout le monde ne vient pas DURS
@@ -785,8 +563,6 @@ _ . quoi je ne fais que suivre un des exemples de notre bon À h
 _ ment-là, ces entretiens. C'est à ce point en effet que 14
 hi mes amis universitaires me serrent généralement la ne
 4 14
-à 23 ‘A
-É HAS
 
 +148 main, avec une affectueuse, bien-affectueuse, toute- H. F
 ë N: affectueuse commisération, que quelques-uns dissimu- ja.
@@ -853,7 +629,6 @@ faut le dire, et je suis assuré que Berth et que M. Sorel # (
 font généralement les partis politiques, tous également We à
 25 monde moderne. — a bi À
 
-Charles Péguy +.
 parlementaires, (et au moins autant ceux qui se disent
 et peut-être qui se croient antiparlementaires, qui se ù
 vantent d'être antiparlementaires), que ne les font les
@@ -883,7 +658,6 @@ consonance profonde industrielle, qui est un sentiment, 1
 une situation, un phénomène d'une importance capitale, É | |
 dont nous avons ‘je crois dit quelques mots dans un 1 |
 .
-EL
 
 “341 ‘Arts DANS LE MONDE MODERNE TS
 ; 4 précédent cahier, sur lequel nous reviendrons certaine- NW” ;
@@ -917,8 +691,6 @@ F _ discerne, qui sépare en deux le bon peuple de France, : 114
 # petit appareil, mais infiniment plus répandu, surtout 4
 aujourd'hui, qu'on nomme le guichet. Quelques cadres WA
 + de bois, plus ou moins mobiles, un grillage métallique, ‘4
-
-LS Charles Péguy ASIN
 
 4 . plus ou moins fixé , font tous les frais d'un gui 1e
 440 C'est pourtant avec cela, c'est avec ce peu que l'on De
@@ -1010,11 +782,6 @@ ii et, dans l'ordre économique, imposés, nommés contri- FE K°
 
 Mmbes, Ouvriers en révolte on ouvriers résignés , QUE
 
-Ta 4 ! à 29 monde moderne. — 2. 4 ë:
-1 NNCS TS MAS
-
-MU OT OR PTT
-144 Charles Péguy
 ‘à graine d'électeurs, graine de grévistes, et toujours
 4 graine de sacrifiés. .
 } Ils se battent, entre eux, mais ils ne se battent que
@@ -1046,9 +813,6 @@ ces mots qu'il connaissait, qu'il prévoyait, qu'il précon-
 | organique intérieure. On sait sa mort, on ne la croit pas,
 L ou on n'y croit pas. C'est je crois l'un des mots les plus
 A profonds que l'on ait prononcé depuis qu'il y a la mort. F
-\ 30
-
-{4
 
 PAS Gr à ÉLUS ANNE ne Le HAL
 ss DANS LE MONDE MODERNE CE F4
@@ -1083,11 +847,7 @@ _ vertus et les vices n'ont pas besoin de nous pour conti- :
 L f nuér, pour courir leurs carrières. Ce que je voulais noter à
 | seulement aujourd'hui, et c'est pour cela que je faisais
 . appel à mon propre témoignage, à ma propre expé- |
-a 31 ,
-" , ."
 
-150 * Charles Péguy " Ron.
-Q 4 k ": er
 LE à rience, faute d'autre, c'est qu'il y a trois degrés dans la nu
 | tentation de la puissance. FTP
 : A Le premier degré est la tentation de la puissance tem- F:
@@ -1118,11 +878,7 @@ ai même pas admissible. Il est aussi refusé d'abord. Celui |
 14 subit de quelque manière, qui même y pense, il serait M
 bien admissible, Mais il est malheureusement refusé, il (30 |
 ; Le échone à l'oral, il n'est malheureusement pas sur la liste re: |
-_ . définitive. 4
-A . 50
-2... 2: LOUE
 
-1e | DANS LE MONDE MODERNE ant. “0
 |  Telles sont sensiblement les relations, les superposi- ‘a 1 É
 13 tions et imbrications de ces trois degrés. 4 46h
 Un deuxième degré est la tentation, intermédiaire et 1e
@@ -1135,7 +891,6 @@ Fe considération là-dedans. Cette tentation est encore plus Se :
 _ qui s'attarde à cette tentation est encore plus jugé que (‘8
 l _ l'autre, que le premier. Encore moins admissible. Nous LV
 F ne nous y attarderons donc pas. ‘1
-re 4 F
 É -_ Ily a en effet dans ce cas, dans ce deuxième cas, une ; ‘4
 c espèce de contamination, une sorte d'intoxication parti- = $ 3
 \ # culière très particulièrement désagréable. Nous regar- EU
@@ -1151,10 +906,7 @@ F _ lement temporel dans les puissances intellectuelles. É ch
 Nous aurions presque de la sympathie pour le premier, : 4 :
 _ par comparaison avec le second. Nous aimons mieux, 44 M
 _ nous aimons presque le premier, en comparaison du :40
-second. ab aimons beaucoup mieux avoir affaire au cs
-Si NA
 
-‘4 Charles Péguy pin
 s} premier. Nous aimons infiniment mieux celui qui fait 4
 à son métier, ou qui a l'air de faire son métier, Pambi- 4
 LL tieux qui exerce (l'ambition) (temporelle) comme une à
@@ -1187,11 +939,7 @@ pensée de simonie, de quelque simonie. Cette arrière- À
 h pensée, cet arrière-sentiment, cet arrière-goût est si profond, cet arrière-souvenir, cette arrière-mémoire est si }
 1 profonde qu'elle a survécu même à l'établissement du 4
 % monde moderne, où tant de souvenirs, plus ou moins
-à 34 À
-06 F
 
-DANS LE MONDE MODERNE à
-À
 organiques, ont sombré, qu'elle est demeurée dans le \ \
 fond même dans ce monde moderne où tant de traces à
 n'ont pas survécu, ont été abolies. Aujourd'hui même 1
@@ -1224,10 +972,8 @@ _ un intellectuel, et même généralement quand c'est un
 j intemporel, quand c'est un professeur, quand c'est un
 - magistrat (bien que ceux-ci, vraiment, nous y aient !
 À habitués plus que d'autres), même quand c'est un officier
-J 3 14 ‘ y
 |
 
-1) Charles Pégay NON
 14 (militaire), bien de l'on fasse tout ce que l'on peut ji
 3 pour nous y habituer aujourd'hui. Et ceux de nos cama-
 +480 rades qui ont des ambitions temporelles (où l'on peut
@@ -1259,9 +1005,7 @@ Le même ils ne feraient pas de bien, ils ne peuventtoujours
 14 ù intentionnés, (il y en a), même ceux qui seraient de vul- 4
 4 gaires et de bas ambitieux ne peuvent pas faire beau- …
 18 coup de mal. Pourvu qu'ils demeurent dans le temporel, …
-D: ' LA Ve 4 |
 
-LRU DANS LE MONDE MODERNE ‘ER
 4 qu'ils ne fassent jouer que des ressorts temporels. Parce qe
 _ quedans le temporel, dans la politique (temporelle), nous Ee
 # sommes avertis, nous ne sommes pas désarmés, nous “Yi
@@ -1297,7 +1041,6 @@ niques, ce sont ceux qui par des moyens temporels dans 6
 #4 \ ii
 Fe 37 monde moderne. — 3 4
 
-10e Charles Péguy ee Rise
 + mener les esprits à la baguette, faire des écoles et des |
 4e sectes qui soient comme des régiments prussiens, ce
 KA sont ces hommes, ces professeurs qui se conduisent |
@@ -1330,10 +1073,7 @@ ke logues, il faudrait tous les citer. LIN
 #2 C'est là qu'est le danger, la tyrannie insupportable;
 6 c'est là qu'est le danger, l'inendurable audace de la
 5 tyrannie; la menace qüe nul ne supportera; c'est là, |
-À: : 51
-RE. L MÉCÉES
 
-TR LA NPA
 he DANS LE MONDE MODERNE je
 c'est alors que se produit cette espèce de contamina- 4
 
@@ -1358,9 +1098,7 @@ dé même par trop le ministère de l'Instruction publique :
 - Préfecture de police. %
 | Le troisième degré de la tentation, particulièrement }
 dangereux, est le degré de la tentation de la gloire. s]
-Ü Particulièrement nocive, particulièrement redoutable u ki
 ) parce qu'elle s'attaque à des âmes nobles, inconsidé- ni
-D, rées. ‘4
 : Une révolution capitale s'est accomplie, dans l'histoire +44
 L sociale des arts et des lettres, avec l'avènement des 4
 … temps modernes. On oublie trop que le monde moderne, ï
@@ -1408,16 +1146,12 @@ nn autres forces, étant supprimés, rien n'est allé à l'esprit, À
 
 k À; moderne. Contrairement à ce que l'on pouvait espérer,
 L quand on était mal averti, contrairement à ce qu'espé- 4
-12 4o k
-
-K #4: ::1
 
 1 nr DANS LE MONDE MODERNE ‘ ? Fe
 0 raient peut-être en effet les démolisseurs de l'ancien % 1
 monde ou la plupart de ces démolisseurs et les promo: 4
 teurs et les introducteurs du monde moderne, tout est ÿ ne
 < allé aux seules puissances de force qui fussent demeu- REA.
-k rées, aux puissances d'argent. 0
 f Dans les anciens mondes, sous les anciens régimes, él :
 ;, _ d'autres puissances de force balançaient à la fois et fi L
 # cette puissance de force qu'est l'argent et les puissances 1
@@ -1446,7 +1180,6 @@ _ tualisées, une indéfinité de puissances de force ou de Au:
 | demi-force à la fois luttaient ou pactisaient et se com- 4
 b attaient entre elles, et ainsi doublement se balançaient, 38
 
-54 Charles Péguy ART RAY
 Fe | et à la fois tantôt luttaient contre les puissances d'esprit, 1
 10e ou pactisaient et se mariaient plus ou moins avec elles, ÿ
 “Hi Il en résultait dans les anciens mondes et sous les 1
@@ -1479,12 +1212,8 @@ avons dites. C'est-à-dire qu'assez de puissances de 4
 4 pour que chaque puissance d'esprit en particulier y fût si
 F4 en définitive ou y devint libre et survivante, Autant Ë
 É qu'elle voulait. C'est-à-dire autant qu'elle avait -en elle- 4
-j: j
-: |
 
-D OR po APN A
 ‘ DANS LE MONDE MODERNE : ut
-dl # 9
 même de force, et ainsi de raison d'être et de justifi- k %
 cation. De quelques déséquilibres, de quelques troubles Re:
 3 et de quelques désordres que ces équilibres, ensuite, 7
@@ -1517,7 +1246,6 @@ _ cution, dans ce fatras mystérieux de grandeurs et de 4
 le tissu des histoires des successives humanités, dans ce 1
 .  fatras vivant d'équilibres et de déséquilibres les puis- ÿ
  sances d'esprit vivaient. Elles aussi elles avaient leurs is
-À ê
 |:
 
 V1 Charles Pégay 0 0 UN
@@ -1554,10 +1282,6 @@ NW l'organisation et à la vie, puisqu'il vous y contraint, ne
 E' ber à peu près sur leurs pieds, elles finissaient toujours
 Es; par s'arranger de manière à retrouver leur compte, à ”
 
-1 ts
-Qu. À
-
-12 2 EE | DANS LE MONDE MODERNE 74
 | É ai faire dans l'humanité la recette qu'elles avaient à faire 4 “
 2 _ ou qu'elles voulaient faire. Toute idée faisait sa mois- 4
 0 son. Toute idée alors avait son grenier et sa grange. +30
@@ -1595,8 +1319,6 @@ _ aucun espoir avec un ordre mort. ;°
 _ régimes il y avait de la vie partout: les humanités ‘14
 = suintaient la vie. Alors toute vie pouvait toujours s'ar- F4
 _ ranger, et faire sa naissance, toute petite, et son ali- Rd: 4
-ï 1 45 monde moderne. — 3. Ne 5
-1° e i HT v
 
 _ mentation, et sa vie, et sa place. Toute vie obtenait sa th ie
 De croissance. Dans de la vie, dans un univers de vie, de a ») in la vie aussi pouvait venir, toute vie pouvait et devait al
@@ -1619,8 +1341,6 @@ Ni. sances temporelles qui vivaient, organisées, et ces l
 ra _ entreelles et avec les puissances d'esprit qu'on s'arran- É
 
 7 geait toujours. Les puissances d'esprit pouvaient tou- 4
-
-_ jours se glisser quelque part, mener quelque aventure,
 
 | jouer de quelque manière, improviser, inventer, pousser, ‘4
 comme un pied de violettes de chien, dans quelque 3
@@ -1683,8 +1403,6 @@ fi astucieux qui ferait un curieux déplacement des respon- 4
 ... apparence de raison, le jugement de quelque honnête nu $
 homme, s'il en était surnagé un seul, ou de quelque È
 
-Ë 47 ‘4
-
 homme intelligent, si un seul par hasard avait survécu 14
 1108 aux assassinats des anciens carnages, cet agglomérat 4
 :) Va congloméré, ou ce conglomérat aggloméré a imaginé 1
@@ -1717,7 +1435,6 @@ ne nand Buisson n'était point, alors, le grand-maître de
 ‘31 l'Université. C'étaient les ministres qui étaient les D.
 1 grands-maîtres de l'Université. Directeur de l'enseigne- 4
 ll ment primaire pendant on ne sait combien d'années, et {
-as à PAPA
 
 on Me
 1 | DANS LE MONDE MODERNE nat ®
@@ -1759,10 +1476,6 @@ avant le X, au lieu d'après) Joinville, Guillaume de ‘à
 fallait aller, décidément, et ne s'arrêter point avant les ta
 
 k origines. Il y avait même dans tout cela un assez grand ‘4
-4 49 S.
-(62 #
-
-_ PA 4
 
 nombre de vérités, comme dans toute opération de
 TS  feinte qui se respecte, dans toute opération de fente
@@ -1775,7 +1488,6 @@ Mat incontestables. Elle suppose en outre, elle admet et ‘
 | elle aime un vêtement scientifique. C'est un vêtement
 1 4 tout fait, aujourd'hui, et c'est ce qui coûte aujourd'hui ‘4
 A le moins cher. Qui n'a point aujourd'hui son (petit) vête- CMS.
-_ ment scientifique. Quelle idée, quelle hypothèse, quel k
 …__ système. Un système aurait l'air d'aller, de marcher 4
 (13 tout nu dans le monde s'il n'avait point passé son petit
 ‘#0 _ vêtement scientifique. On l'enfermerait certainement
@@ -1796,12 +1508,7 @@ De grand Bon Marché, un peut-être encore plus grand Bon ‘À
 Marché, car s'il fait beaucoup moins d'affaires à Paris, 4
 4 comme il envoie dans tous les départements, et même 1
 CA en Corse, dans toutes les communes de tous les cantons ; L
-M ÿ va 3 à
-+ (HAN NE AE
 
-acliiess PE da ARE DOC SOEUR ALLAN P' | DIRES
-? DANS LE MONDE MODERNE x
-k
 | de tous les arrondissements de tous les départements À
 français, en Algérie, en Tunisie, dans les colonies et 4
 les pays de protectorat, et qu'il a même commencé ù
@@ -1834,9 +1541,6 @@ sommes heurtés tout au commencement de ces études, Ë
 … toujours le même heurt et le même accompagnement; J
 ces deux noms, Taine, Renan, ces deux hommes. Taine, ;
 — Renan nous ont accueillis, nous ont salués au seuil de %
-‘y À
-4 51 ;
-; jh
 
 13 ces recherches; nous les avons salués alors de notre "A
 ‘ part ; depuis ils n'ont pas cessé, ils ne cesseront jamais
@@ -1859,7 +1563,6 @@ D F4 France, comme s'il s'agît d'un peuple ou d'une patrie,
 ‘ à sur tout le monde; et il ne faut pas dire contemporaine;
 “1 contemporaine se meut avec nous, contemporaine est \
 Fe. d'un temps qui se meut avec nous, avec le nôtre; con- F
-__  lemporaine remue; contemporaine bouge; contem- {
 ne, poraine varie; on se sert de contemporaine au cours |
 fe he: d'une phrase, pour marquer un temps comme en pas- À
 Mn, sant, au cours d'une phrase, un temps par comparaison, ;
@@ -1869,10 +1572,7 @@ he: à nous, à notre temps, un temps par voie de relation, À
 à même (notre) temps; mais contemporaine, qui est fugi- 1
 ‘14 tif, qui est léger, volage, qui se meut, qui s'enfuit, À
 à exactement avec la même vitesse que nous, que notre
-: te 1
-ge A7 1
 
-A A ' DANS LE MONDE MODERNE “1
 ÿ temps, puisqu'il est du même ou le même, ne suflit pas, ' pt )
 À _ n'est pas ce qu'il faut pour graver, pour une inscrip- 1
 à tion, pour une prise de date, pour une assiette aussi qu
@@ -1911,8 +1611,6 @@ qui intérieurement, personnellement a jailli de.son or- Qu
 - sance ou de son imbécillité. Cette bonne, cette très 14
 _ bonne, cette excellente méthode intérieure et person- j
 . nelle est exactement et symétriquement la contre- à (M
-* 53 | ‘4
-LATER e
 
 à Charles Pégur L
 7:10 4 méthode, fait exactement et symétriquement la contre-
@@ -1937,7 +1635,6 @@ Gi avons nous-mêmes bel et bien pris ce nom de dreyfu- L.
 16 sards. Sans être hollandais. Maïs je me trompe. C'est au )
 ne | moins aussi loin que la Hollande, à présent. Ces deux
 dl méthodes de nommer, ou plutôt ces deux parties com- à
-14 plémentaires, apparemment contraires, apparemmehñt
 À adverses, de la même méthode, ces deux faces de la :
 "0e même méthode, au fond aussi intérieures et personnelles |
 Eu l'une que l'autre, cette méthode intérieure et personnelle f
@@ -1953,7 +1650,6 @@ ne dedans, parce qu'il sort de l'intérieur de l'objet nommé, )
 ‘1 tention, une pénétration, une atteinte intérieure, qui ‘
 ‘4 É par la haine vaut un intérieur, Quand deuxièmement À
 
-ï DANS LE MONDE MODERNE | 6
 en outre nous disons moderne, ainsi nous nommons un ï
 temps très déterminé, avec un commencement (une 4
 époque) et une période, ayant un commencement, une nu
@@ -1988,10 +1684,8 @@ plaçables. Il en a eu heureusement, et qui sont indé- 4
 aussi devenues à leur tour indéplaçables, heureuse- Re
 |
 
-à
 | ;
 
-: 100 Charles Péguy MR:
 4 tn ment, dans le futur. Moderne est un terme tee D:
 14 dans tout le sens et la force du mot terme, du terme 1
 "4 terme, dans tout le sens et la force du mot technique.
@@ -2020,9 +1714,6 @@ F1 sur. Contemporaine a je ne sais quoi d'un peu sucré. Il L
 A dire, d'un mot, c'est un mot qui est un peu trop dans le è
 : ton et dans le goût de la vie et des opinions de M. Fré-
 ‘à déric-Thomas Graindorge, douzième édition, un volume. 1
-‘4 56 L
-144 #
-n. ol
 
 tan DANS LE MONDE MODERNE Sn
 4 Moderne au moins, dans toute sa cuistrerie, est resté ‘1
@@ -2039,12 +1730,8 @@ Moderne enfin peut être un mot d''injure. On n'injurie # 4
 Quand on eut fini d'expliquer aux petits garçons ce ‘4
 qu'il y avait dans Taine ancien régime (deux volumes) En:
 on se garda bien de leur expliquer ce qu'il y avait dans ‘4
-_  Taïine Révolution (six volumes) Taine Anarchie (deux “10
-volumes) Taine Conquéte jacobine (deux volumes) ‘4
-Taine Gouvernement révolutionnaire (deux volumes) 14
 et surtout ce qu'il y avait dans ce que Taiïne si juste- Fi;
 ment (voir ci-dessus) si proprement nomme LE RÉGIME 5e
-MODERNE, Taine régime moderne, trois volumes. AT
 Régime moderne. I faut bien dire ainsi : régime mo- "4
 derne; et tout le monde moderne. Et non pas (seule- à De
 ment) France, ni contemporaine. Et régime moderne Li:
@@ -2054,11 +1741,7 @@ _ aboutir. Celle-ci a réussi au delà de tout escompte. #0
 _ Vingt, trente générations de Français, sans compter les 2
 x suivantes, et celles qui viennent, d'avance, croient qu'en 4
 & effet ça s'est fait comme ça. Que c'est comme ça. Que 4
-! Ÿ
 
-ges Fe SU AA di hi bi di ju ii di bi.
-
-7. Charles Péguy : ‘1
 % tous les gens sans aucune exception depuis le com-
 É mencement du monde, qui toutefois n'a pas été créé, M
 jusqu'au trente-et-un décembre dix-sept cent quatre
@@ -2094,7 +1777,6 @@ ne plus il y en a de suivantes qui le prennent. Les généra-
 ï $ tions majoritaires, groupées, massées, compactes, qui :
 SUR s'accroissent d'une chaque année, font un gouvernement ‘
 4 : majoritaire. Et comme c'est le gouvernement, comme c'est \
-:% 58 |
 
 na ce gouvernement majoritaire qui fait les élections, et les ‘1 Lt
 | électeurs, et qu'il ne manque naturellement pas de les ke
@@ -2115,21 +1797,17 @@ gent avait eu sans doute une répercussion importante ‘ti
 sur les résultats des élections auxquelles nous devons ‘1
 la belle Chambre que nous avons. C'était une remarque ‘15e
 fort juste. Mais l'on n'a pas fini d'en voir ces réper- a
-cussions. 3 120
 Ces répercussions sont sans fin. Mécaniquement, au- HS 1
 tomatiquement, extérieurement elles sont sans fin. Pour Ÿ “1
 qué cela casse, il faut que ça casse en dedans, comme ‘0
 cela paraît bien en train de commencer à se produire, : Le.
 _ il faut que les répercussions automatiques, mécaniques, (8
 | extérieures, soient interrompues par l'effet soudain de D
-quelque cassure intérieure. 10
 . Une opération de cet ordre réussit toujours. Et elle PR
 | est sans aucun danger. Au moins pour l'opérateur, AL
 Comment ces pauvres petits garçons s'apercevraient-ils +0
-w 5 ‘4
 
 1180 La : Charles Péguy RTC
-TA é ARE
 2% qu'on leur a conté des histoires ? Tout contrôle estim-
 
 f 1:30 possible. Parmi ces flaupées de petits garçons qui usent
@@ -2170,12 +1848,8 @@ de l'immense majorité, la presque unanimité, on sait quelle
 2: sera leur culture, et quelle sera leur liberté. Ce n'est
 +" point pour la formation de la personne, ce n'est point
 
-AG ja ai té A A HAE EE AN oo | "4 x
-
-D "1 /")\ DANS LE MONDE MODERNE x EE
 __ pour les dangers de la culture et les dangers de la *53
 ‘à liberté, ce n'est point pour l'enseignement du secondaire 1 428
-1 À # Ze # HUE S 1
 _ ou l'enseignement du supérieur que des armées d'insti- He
 tuteurs enseignent à un peuple d'écoliers tout ce que À 5
 À nous ne savons pas. C'est pour qu'à treize ans, et même V2
@@ -2187,11 +1861,8 @@ l qu'à vingt-et-un ans accomplis, et même avant, souvent AT
 avant, avec presque autant de zèle, ils puissent lire en 414
 
 _ connaissance de lettres les pornographies des pro- Ra
-qu : A
-._ grammes électoraux. Es,
 
 à Et couvrant le tout, fournissant le tout, pour les crimes, Des
-£ {74
 
 4 pour les horreurs de l'alcoolisme moderne. s
 ‘il Ils sont ainsi gardés, et bien gardés, contre les dan- ‘14
@@ -2199,7 +1870,6 @@ qu : A
 … gers des anciens catéchismes. Ils sont garantis, bon Dre:
 | teint, contre les dangers du catéchisme (romain). FA
 V4 A toute personne qui sur ce point me démentirait, ne
-18 ! . . « . e a
 2 j'offre de faire pendant un mois, à ses frais, naturelle- ë L
 ._ ment, parce que je suis un ladre, ce que je fais souvent +4
 
@@ -2209,14 +1879,11 @@ V4 A toute personne qui sur ce point me démentirait, ne
 
 … Paris, dans un train ouvrier. Ft
 
-1h = 2) ra
-
 ; Ah non, ils ne sont pas analphabètes. Et l'on ne pourra 77%
 __ pas dire que nous sommes sous le gouvernement des Qt.
 
 -  analphabètes. On pourra même dire que nous sommes Ur
 . sous le gouvernement des alphabètes. 54
-‘4 ‘ j F. 1H
 
 -_ Quand tout le monde entier était un immense, était A0
 
@@ -2227,17 +1894,6 @@ __ pas dire que nous sommes sous le gouvernement des Qt.
 
 _ temporels et organismes de toutes sortes, organismes 430
 
-8 61 monde moderne. — 4 (0
-
-k ‘à
-
-f 1 d PR:
-
-‘6 Des
-
-DRE: Los
-
-R Charles Péguy \ ds #4
 4 ; particuliers organisant eux-mêmes des organismes plus
 0 vastes, s'organisant eux-mêmes ainsi de proche en pro- È
 2:50 che jusqu'à l'organisme total, jusqu'aux grands orga- :
@@ -2267,10 +1923,7 @@ M. démolir, sans toujours en avoir l'air. Il y a tant de
 ne moyens, doucereux ou aïgres, sournois ou violents, de
 Hi. démolir un enseignement qui à cessé de plaire, un
 1% enseignement d'État, quand on est l'État. Il y a le remana: nierent incessant des programmes, savamment conduit, |
-1 ‘ ñ |
-17,9 d
 
-4 DANS LE MONDE MODERNE 1
 savamment dosé, savamment administré, Il y a un heu- es F4
 reux choix des titulaires, une conduite particulière de 14
 lavancement. Il y a le népotisme, il y a le socérisme, il 4
@@ -2289,11 +1942,8 @@ François premier, Un remaniement heureux des pro- Si
 grammes et des chaires, beaucoup de remaniements, il
 un remaniement incessant, le choix scandaleux de ts
 certains candidats pour titulaires, une préférence mar- ‘Le
-quée, renouvelée, incessamment confirmée aux candi- 54 À
 
 | dats politiciens sur les candidats simplement universi- 18
-
-taires simplement intellectuels, simplement travailleurs, ss
 
 ! il y a cent moyens pour un État, tous également sûrs, “4
 
@@ -2310,13 +1960,7 @@ aussi complètement, anéantir (ce qui ne reviendra peut- +14
 . être pas complètement au même), le christianisme, la ‘fi
 culture chrétienne (et ce qui ne se passera peut-être pas : 100
 
-À 110
-5 ee
-
-! v'
-
 RAA dns É ÿ à ù ji + HT RL AY ne di ' PAT LEUR
-10e Charles Péguy TS AT ERS
 4 È tout à fait de même), qui étaient, à des titres fort diffé- %
 ne. _ rents, les deux seuls morceaux d'humanité que l'on 4
 TH avait, l'un essentiellement éternel, mais l'autre si res- 4
@@ -2348,14 +1992,12 @@ pi * d'heureux remanièments incessants un avilissement
 : incessant des programmes. En éliminer savamment, en |
 # % chasser brutalement tout ce qui est culture et tout ce f
 ; ‘4 qui est liberté. Opérer par d'heureux choix un avilisse- F
-111 en]
 
 | nans LE MONDE MODERNE FT 0
 ” ment incessant du personnel, par le népotisme de 4
 ! famille et par le népotisme de clan, par le plus honteux 10
 | favoritisme de dynastie et de parti, éliminer sournoiïse- ni
 ment, refouler brutalement et incéssamment aux places il
-basses, aux places pauvres, aux postes ingrats, mépri- \i M à
 sés, — aux postes et aux places qui seules sont de AU
 véritable honneur, aujourd'hui, — tout ce qui est faible, à Ru |
 — socialement, — tout ce qui est pauvre, tout ce qui est qu (2
@@ -2383,14 +2025,6 @@ ment, depuis que l'ancienne Université impériale est la . 50
 _ femme de l'État français, ménage uni, parce que les HN:
 . deux conjoints qui forment ce drôle de ménage ne vivent Fe
 malheureusement pas sous le régime de la séparation 4
-‘4 65 monde moderne. — 4. Ÿ “
-à + \
-; 54
-APR ur
-
-ÉRR
-
-F- Charles Péguy ; 1
 
 1 de biens et encore moins, si possible, de la séparation $
 
@@ -2451,10 +2085,6 @@ J très singulier. Voir Démographie. Et même démographie |
 
 4 mathématique. Les créatures font une série continue et
 
-ÿ 66 {
-
-RL k
-
 joel se re | DANS LE MONDE MODERNE à af ”
 à | incessamment illimitée. Et même toujours grossissante. F4 W ns
 _ Du même geste, par la même action continuée l'État. ‘4 4
@@ -2478,7 +2108,6 @@ est de son instinct. Yi
 | Avilir est de son instinct, le plus profond. Quand il 5
 _ avilit, quoi que ce soit, très profondément mais très #1 :
 _ sûrement il se sent bien dans la voie de sa desti- 1
-nation. à Re
 11 faudrait donc plutôt dire que c'est encore plutôt h ‘il
 _ pour avilir l'enseignement que l'État case ses créatures .
 _ qu'il ne faut dire que c'est pour caser ses créatures ou, jo 4
@@ -2488,10 +2117,7 @@ _ en cette opération double, en ces deux parties complé- SR
 4 mentaires d'opération, l'avilissement qui est le secret ns se
 _ désir, la fin plus profonde, moins immédiate, la fin #8
 j _ moins journalière, la fin profonde, et le placement qui \ 5%
-D © 1
 
-' 4 Charles Péguy put.
-MURT
 “ est un moyen, que ce n'est le placement qui est la fin et |
 ET l'avilissement qui serait un moyen, une conséquence, J
 ni une clause ou condition.
@@ -2520,11 +2146,8 @@ avilit. C'est sa spécialité. Je dirais presque que c'est ;
 son métier, s'il ne fallait point respecter au-dessus de |
 tout ce beau nom de métier. Quand le monde moderne
 avilit, mettons que c'est alors qu'il travaille de sa
-partie.
 Le monde moderne avilit. Il avilit la cité; il avilit |
 l'homme. Il avilit l'amour; il avilit la femme. Il avilit la à
-
-‘ {
 
 Fe M Ont DANS LE MONDE MODERNE SN
 _ race; il avilit l'enfant. Il avilit la nation; il avilit la pe
@@ -2583,14 +2206,10 @@ ré mot de réactionnaire, et l'avait souligné d'un coup LOU
 Re que vous, chers lecteurs et abonnés, ce que là il 4 à
 ne entendait par ce mot de réactionnaire. Et ce mot de … ti
 (a # réjouir, dit par lui, avait un sens particulièrement à
-On sévère, 25 4
 à ‘4 Les détails suivirent, lamentables. Non, en effet, jene h
 pee | savais pas ce qu'ils avaient fait de l'enterrement de F
-1 . Berthelot. Quelques indications seulement, suflirent, ue
-ee quelques indications suivirent, pitoyables, odieuses à
 D: pour qui entendait, et que le spectateur avait honte à 1
 #4 rapporter, que l'interlocuteur avait honte à dire. 3
-153 Quelques détails échappèrent, suivirent, cortège N
 1e inavouable de loqueteux, lugubres, mais non pas au 4
 FN sens où dans le mot lugubre il y a le mot deuil, ou si }
 QU l'on veut c'était un deuil de contraste grotesque infini14 ment plus atroce qu'un vrai et simple deuil, quelques A
@@ -2606,10 +2225,7 @@ He. Notre collaborateur avait reçu, étant de la famille, une #
 108 carte d'entrée. La cérémonie, à l'intérieur du Panthéon, 4
 ù ‘4 c'est-à-dire la cérémonie la plus oflicielle, la plus somp- F
 N: tueusement et splendidement officielle et gouvernemen- 4
-F 6, ee 1 |
-M, LI
 
-RAT (DANS LE MONDE MODERNE : a à
 F _ tale, cette cérémonie laïque voulue, mijotée comme une | à D
 __ apothéose du monde moderne, imaginée comme une ‘0e
 _  apothéose personnelle, fabriquée comme une apothéose Re.
@@ -2640,11 +2256,8 @@ huissier sans tenue, un huissier sans style criant à tra- ‘à l
 | vers tout cela au chef de la musique : Allons! hop! “4
 _ là-bas! la musique. V'là le président. Vot' Marseillaise. 4
 _ Vous autes. AE « _ Huissiers de la République, appariteurs de ces nou- A
-il Por : +0
 
-11 Gharles Pégay ONE
 54 ÿ velles pompes funèbres, nous ferez-vous regretter les É
-_ 7 moins grossiers sacristains ? à
 704 Voilà ce que l'on m'a dit qu'ils avaient fait de l'en
 
 ‘2 terrement de Berthelot. Voilà ce que l'on m'a dit de
@@ -2681,7 +2294,6 @@ dv pour les cérémonies, officielles, des enterrements gou-
 
 4 | strictement exact de ce mot. Et même elle n'est bonne, À
 13 pour cette sorte de cérémonies, que dans ce sens, pour
-14 72 |
 
 PAS. és ok Hd. DANS LE MONDE MODERNE LPS
 J - cette cause et à cette condition, qu'elle est de la musique J k
@@ -2714,11 +2326,6 @@ M  trefois un mariage, un enterrement, valaient en eux- \%
 : Et ce n'est pas parce que je ne suis pas musicien que 4 « 3
 DL je suis froissé. Au contraire. Si j'étais musicien je serais ;
 l ni : froissé en outre et au contraire de la part de la musique. :
-710 | F 73 monde, moderne. — 5 à À
-
-a 2% <2M EU D 72 à +
-
-‘4 © Charles Pégay
 
 RT à Si l'on voulait faire le procès du monde moderne, —
 
@@ -2749,7 +2356,6 @@ Tes de tous ces mondes anciens dont il passe en même
 En temps tout son temps à dire que tous ces mondes-là,
 a Ë < que tous ces mondes précisément étaient des mondes j
 + à stupides, des mondes foutues bêtes, et les derniers des
-PA mondes imbéciles.
 
 708 Méthode : celui qui ne pourrait pas résister à la ten-
 
@@ -2771,8 +2377,6 @@ de discerner, bien départir et bien répartir, faire une redis-
 ‘4 tribution, bien distribuer quel serait le sens des difté- » (1 rentes valeurs, et avant tout ne pas se tromper de
 
 ‘% signe. Je prends cette expression dans le sens le plus {
-14 74 , ÿ
-M0: ‘À
 
 is DANS LE MONDE MODERNE Fe
 te rigoureux des mathématiciens : ne pas mettre le signe + "1 :
@@ -2807,17 +2411,12 @@ que ça dépasse, de quelque manière, vite alors, avec un
 —…._ semblable il chausse les vieilles bottes, il coiffe les
 l # vieux chapeaux. On se coiffe les pieds, disait un personbr . nage du premier Victor Hugo, qui était je pense notre
 
-4 } 405 er
-
-:# .. Gharles Péguy PONT ANGL ph:
-
  ! vieille fripouille d'ami don César de Bazan. Le monde J
 / R. * moderne, lui, se coiffe impunément la tête, Il se la coiffe +
 a même des casques les plus antiques. Et il chausse des |
 
 | 5% bottes, militaires et autres, qui sont plus vieilles que
 De les plus vieilles et les plus authentiques bottes de sept x
-7. , . lieues. £ : |
 
 5 Il chevauche les vieux chevaux avec une impudence a
 +4 _ tranquille, un sans-gêne, avec une assiette, une incon- |
@@ -2855,10 +2454,8 @@ Je tout ce qu'il a de mieux, tout ce qu'il peut montrer au (
 L: peuple moderne en vient à cette épreuve, de sortir une F
 u_ cérémonie? Nous voyons d'abord, — je ne suis pas mé-
 
-‘a
 N Ê ne
 
-_ LME ‘ _ DANS LE MONDE MODERNE s M
 f. chant, on le sait, et je n'éprouve aucun embarras à ‘Ta
 ù constater que cette cérémonie, quand elle est une céré- À .
 k monie politique, et surtout une cérémonie de politique \ (à
@@ -2885,14 +2482,11 @@ Et nous la prenons tous les jours davantage. Mais de 148
 F: est le décor? On peut dire, cette fois, que le décor en F 41
 4 était tout fait et que le monde moderne était heureux 14
 4 que les mondes ses pères fussent venus au monde avant 1
-ù 4. AT
 4 ( C'est là qu'il faut voir dans les comptes ce qui est de (a
 °% Jactif, ce qui est du passif, ce qui est de l'arriéré, ce ‘ai
 _  quiest du zéro, ce qui est du pour et du contre, du plus \TH
 “__ et du moins, de l'allant et du venant, du descendant et ‘
-D .
 
-pe Charles Péguwy ae di É
 1 du remontant, du sens et du contre-sens. Bien faire
 3444 attention que les mêmes mots recouvrent, peuvent re- de
 4 couvrir des réalités différentes, même contraires, que |
@@ -2906,7 +2500,6 @@ ki | nom et sous le nom de moderne. Ainsi, encore, ce gou- |
 44 fend, que l'on célèbre, que l'on prône sous le nom de |
 _ constitutionnel, de République, et de républicain, que k
 js. l'on démolit au besoin, le même, sous le nom de parle- \
-‘4 mentaire. in 11 2
 ‘à à Il est heureux pour le monde moderne, qui d'ailleurs |
 à s'en sert très libéralement, avec une aisance non |
 #4 affectée, il est heureux pour lui, et pour nous qui le
@@ -2922,9 +2515,6 @@ passé, lui aient fait et laissé Notre-Dame et la |
 "4 Le très parfait, très horizontal et très vertical, très É
 4 parfaitement, le très romain et très autre; très impérial
 M et très classique Arc de Triomphe,
-Ni
-4 78 |
-x a. H , LÉ) LÉ ÉCE
 
 no, DANS LE MONDE MODERNE ‘a
 Très imposant, très majestueux, mais d'une assurance à
@@ -2942,7 +2532,6 @@ Marseillaise de Rude, cette Marseillaise de pierre, qui }
 
 le officiellement est un Chant du Départ, ou un Départ 14
 f' des Volontaires, ou un Chant du Départ des Volon- qi
-“ taires. si
 je Qu'on lui ait fait Paris, monument de monuments, F
 | monument des monuments, monument capital de tant : 1
 n - de monuments élémentaires, ville monument, capitale 1 1]
@@ -2956,7 +2545,6 @@ rales, équitables, et à ce cercle de collines, à ce cirque, M
 è tielles, qui toutes seront graduellement mangées, et : N
 j ainsi deviendront intérieures, savamment, sagement, %
 
-É intelligemment espacées, discrètement, élégamment à
 #4 disposées, semées, ce réseau de rues et de voies, de À
 
 É veines et d'artères, cette aorte centrale, la Seine, légè- À
@@ -2968,9 +2556,6 @@ rement, lentement, attentivement cintrée, non pas ni.
 ‘ii peuple de maisons d'un peuple d'hommes, ce peuple ‘ie
 
 +4 aussi de peuples, peuple de maisons de tant de pts
-
-C0 }
-14 “
 
 :450 _ Charles Péguy bee. LH MES
 ‘44 peuples d'hommes, ce peuple enfin de la ol É
@@ -3012,7 +2597,6 @@ Fm, du monde, la ville aussi, la ville encore, la ville \
 4 toujours, la ville quand même qui a le plus souffert, qui |
 M al plus travaillé, qui a le plus prié pour un salut qui ÿ
 “4 dépasse infiniment le salut temporel; cette première
-F à
 
 jtd DANS LE MONDE MODERNE dns
 |. ville du monde; capitale du royaume ; ville unique du 2114
@@ -3100,11 +2684,6 @@ _ la seule ville révolutionnaire du monde. |
 
 _ toutes les villes modernes; ville historique, ville antique
 
-4 P ;
-
-à . \à ::-W
-
-BR LT DANS LE MONDE MODERNE +50
 À la plus ancienne, la plus historique, la plus authentique, :t
 ‘ la plus traditionnelle des villes antiques, la plus antique 1 e
 
@@ -3124,7 +2703,6 @@ nouveaux platanes, terres mortelles pour les racines, 200
 4 qui ne soit de l'humus et du terreau historique. 50
 
 Ville pour ainsi dire la plus extérieure du plus de vie 364
-intérieure. :
 * Ville du plus grand peuplement, du plus de surpopu- ? nr
 
 . lation. Ville aussi du plus de solitude, de la plus grande, 5
@@ -3136,7 +2714,6 @@ k du plus de salon, de monde, de mondain, de mondanité. De
 L Ville la plus sérieuse, ville la plus frivole. Toute pleine à
 ï de sa frivolité, de ses frivolités innumérables, inépui- Me.
 
-4 sablement renouvelées, infatigablement réinventées, %
 A faites avec plus d'ardeur que l'on ne ferait, avec plus de L 4
 th zèle, avec plus de soin, avec plus de sérieux, avec plus si
 ‘4 de frivolité aussi que nul ne ferait du travail. Ville du ‘1%
@@ -3145,8 +2722,6 @@ F4 médisance, de petitesse, de grandeur. Ville du plus de ï
 Lu  papotage, de temps perdu, de temps gagné. De temps 4
 F ni. employé. De temps occupé. Sérieusement. Temporelle- N
 LE _ ment. Et même éternellement. Ville du plus de journa- *
-
-1710 LU
 
 | HER MES
 
@@ -3171,7 +2746,6 @@ Fa Ville du commerce, d'exercer la marchandise, et poële “2
 Re Ville odieuse du plus de pépiaillerie, et ville respec-
 ‘24 table, ville respectueuse, ville quand on veut du plus ;
 ‘1 ; total silence, du plus infini, du plus éternel, du plus
-D authentique silence. E
 11 Du plus grand des biens : le silence. Du silence qui (
 ; est presque aussi cher que la conversation d'un ami, q
 ës plus éternel, presque aussi cher que l'interruption que i
@@ -3183,10 +2757,7 @@ A devant la porte de votre gare, les plus belles fleurs du
 ‘1 monde dans le plus beau jardin du monde (il n'est 4
 ‘4 jamais si beau que dans cette période; ça commence |
 ‘0 peut-être dans les deux dernières quinzaines de juillet, %
-‘4 Li Lt A |
 
-“ ñ PUR OL CN RM MS Ne 109 AU RL RARE EN ESS CAUS
-DANS LE MONDE MODERNE A: "5
 | dans la dernière, au quatorze juillet), en cette saison, ï D:
 LS le plus parfaitement dessiné, et qui sait se taire. RU
 | . La ville donc du jeu, du papotage et du divertissement. 1 le :
@@ -3197,7 +2768,6 @@ Ville où se fabrique, ville où se fomente et se cuit, 4
 comme on cuit le pain, ville où germe et se travaille le ‘18
 plus de cette matière de l'élévation dans cette forme de 1504
 l'élévation, de la contemplation, de la méditation. De la < h
-prière. 1:15
 4 Ville où se vend le plus de vice, où se donne le plus | ai
 de prière. | as
 Où vous avez ce Luxembourg ami pour ainsi dire à Ac
@@ -3216,16 +2786,11 @@ _. et non pas encore de grande feuille sèche, passage de T2
 ; aux intimités du foyer, approchement des veillées ‘4
 . ; d'hiver, sentiment poignant doubleface, attente et F. : É
 ñ crainte, espoir, calme, avec, peut-être, un soupçon de 3
-" regret. 14
 2 Couleur singulièrement calme du soleil de septembre. Ne
 _ Les fièvres sont passées, définitivement pour un 1
 an, les ardeurs, les insolations. Les autres fièvres, $ :
-!. 85 Re
-Da, \F a
 
-2° EE ETC
 +4 les viles fièvres d'hommes, ne sont point encore com- 8
-+4 mencées. #51"
 3 Ville du silence où ce silence total, ce silence univer-
 | sel, on peut presque se le faire presque toute l'année, avec '
 ni un peu de bonne volonté, avec un peu plus : avec un peu À
@@ -3252,15 +2817,12 @@ D et ça pourrait même se chanter; d'une ligne beaucoup 4
 “1 moins pure; beaucoup plus juillet et août par consé-
 “4 quent; les lourdeurs de l'été; et donc infiniment moins
 #4 septembral; infiniment moins ambré, moins fin, moins
-ke ! pur; dessiné beaucoup moins sec, beaucoup moins jeté, |
 118 d'une rive à l'autre, beaucoup moins lancé, beaucoup ]
 _ moins posé, comme avec la main; beaucoup moins fin, :
 4 beaucoup moins trait; d'une indication beaucoup moins
 3 86
 - 4
-” A ha roi
 
-ETS J v T0
 | prompte, d'un lancé beaucoup moins sûr et moins ‘à
 ï ferme, d'un jeté beaucoup moins fin, d'un dessin (faut-il 116
 
@@ -3296,12 +2858,6 @@ _ veulent se faire passer pour de la plume ou de l'or mo- von
 _ numentale, un peu ornemental, un peu surchargé, un ‘3
 | peu ornement luimême, un peu ornementaire, un peu Re
 4 réception de rois et d'empereurs, par conséquent %
-F 87 De
-D * .: N A
-
-idéal ju _ Charles Pégat
-
-A # 1 jets | F {pi js do: bi
 
 500 un peu trop pont de défense et d'alliance républicaines,
 ‘ou à qui pourtant il faut rendre cette justice que vu d'en >
@@ -3315,8 +2871,6 @@ A # 1 jets | F {pi js do: bi
 44 fleuve et dessus le fleuve où passent tant de beaux È
 
 73 bateaux, chalands de toute sorte et de toutes charges,
-
-À 4h remorqueurs si vites, si fins, relativement si petits, si 4
 
 ‘4 vaillants et si guêpes, comme quelques-uns se 4
 
@@ -3350,10 +2904,6 @@ N x nade; c'est un bon point pour l'avenue de ce pont qu'elle
 
 22 pour un imbécile, que l'un est une pure petite merveille, l
 
-Lf “ 88 | k
-sr |
-
-À DANS LE MONDE MODERNE * "+
 4 _ et l'autre une horreur (malheureusement je ne sais pas | 1
 L _ lequel que c'est qui est une petite pure merveille, et M:
 l'autre une horreur) (parce que ces deux palais, mo- 2°
@@ -3394,9 +2944,7 @@ cette admirable vue n'en'soit point déparée et que cette ‘se
 _ monument, qu'elle ne porte aucune injure à cette hori- #4
 _  zontale impeccable, à ce dôme, sous les flamboyantes E:
 L, ardeurs de l'été, dans le fin, dans le ténu brouillard À
-(4 ‘48
 
-‘4 , Gharles Pégay\\ 1" NNORN
 ‘4 a d'automne, à cause de la Seine, qui est si près, dans le À
 te transparent brouillard du premier automne, sous les
 “LR neiges de l'hiver; et je vous défends bien de regarder À
@@ -3426,11 +2974,8 @@ D peu béquillards; un de ces vieux se nomme naturelle- ‘
 1 tous beaux, selon la beauté de leur âge; tous done, tous
 (TA ainsi merveilleusement accordés, d'un seul accord
 . accordés entre eux directement; et tous ensemble
-1 accordés au beau fleuve; accord mutuel direct, accord
 L # avec le fleuve; réprésentant, symbolisant, ‘ramassant 4
 Me. ainsi, dans ce raccourci linéaire, toute la beauté de À
-à go |
-À ”
 
 | DANS LE MONDE MODERNE 1e
 | cette ville où tant de beautés de tant d'âges se marient | F x.
@@ -3443,7 +2988,6 @@ haut de ces trois collines équivalentes, excellemment 4
 du haut du mont Martre, des hauteurs de la rue Lepic, 310
 ! océan de toits; immenses vagues immobiles des toits de Er
 _ tant de maisons; apparemment mobiles ; vagues mobiles F
-_  immobiles; immenses vagues mobiles immobilières ; Pr.
 D: qui recouvrent, qui revêtent, qui traduisent, qui ne font “à
 4 que traduire les membrures, la serrée, la forte mem- 108
 . brure du terrain subordonné, d'un terrain tout inécrou- | L_  lable, perforé pourtant depuis la plus haute antiquité, 4
@@ -3466,7 +3010,6 @@ __ France actuelle, une si bonne héritière, qui a tant :
 W: 4 F un carrefour le plus banal du monde; un caravansérail hi!
 
 530 Charles Pégay "UN
-“ * : STE INR LR
 <S des peuples; la plus antique des Babels modernes; la
 k. 1 confusion des langues; la plus moderne des Babels + ?
 De: antiques; un boulevard où on parle tout excepté fran-
@@ -3496,10 +3039,7 @@ F s. Ville apparemment la plus suiveuse, où toutes les
 Fe imbécillités du monde, où tous les orgueils, où toutes
 4 les futilités, où toutes les vanités de la terre trouvent
 À immédiatement et automatiquement un asile. Plus
-‘3 L 92 “
-+14 Chr al
 
-6 DANS LE MONDE MODERNE # Do.
 | qu'un asile, un temple. Une faveur, un crédit, un éclat
 ÿ incomparable. Unique. Ville de l'engouement. Et du plus 4
 _ sot. Et du plus inlassable. Imbécile pourtant le bénéfi- ‘+100
@@ -3539,9 +3079,7 @@ _ et se débarbouille la face, afin de: recommencer. De 4
 . ligne droite faite d'autant de courbes, d'autant de brisures ; 2
 
 k « t d'autant de brisés, une création, une créature aussi 54
-à 93 nt
 
-D 0 2 char ré
 * F continue faite d'autant de discontinu, un droït chemin FA
 14 fait d'autant de chemins de traverse, une vertu faite 1
 ‘SE d'autant de fautes, une ligne droite poursuivie aussi
@@ -3549,10 +3087,7 @@ os infailliblement; aussi sévèrement, aussi sérieusement, |
 ‘4 L aussi strictement assurée par autant d'incertitudes 4
 4 4 apparentes et réelles, par autant de fausses et de vraies
 
-NA aberrations. |
 ‘e ÿ Du modernanianisme, rendez-vous de toutes les héré
-
-: Tai sies.
 
 440 Et des systèmes ainsi, qui sont très réellement autant
 
@@ -3613,12 +3148,9 @@ poussières de pavés de pierre, poussières de résidus, de ; d!
 h tant d'huiles lourdes, vapeurs aussi de tant de respira- 5 \
 (1 tions malsaines, cœur d'où monte, à travers toute cette ‘4 ‘4
 L buée temporelle, le plus de spécifiquement, le plus de que
-techniquement véritable prière. f 14
 ‘à De même que (généralement, universellement parlant), 3
 il est bien heureux pour le monde moderne que ces £
 L mêmes mondes foutues bêtes et sans aucune espèce nu
-br #
-À 5 fé 4
 
 4 d'existence aient inventé, lui aient inventé, sans même
 En lui demander son avis, les insolents, aient fait uh cerme. tain nombre d'introductions, naturellement stupides,
@@ -3694,7 +3226,6 @@ _ de ces mails, et non point seulement les villages circu- L à
 
 97 monde moderne. — 6 . Fi
 
-4 ‘Charles Pégay! 1 MOINE
 à de laires, les villages ronds, qui sur nos cartes aujourd'hui
 ? se : font une tache, mon cher Blanchard, sur nos cartes
 55 d'État-Major, au quatre-vingt millième, un rond,unetache
@@ -3713,26 +3244,16 @@ PE. mais modestes, allongés chaudement sur la terre materFe nelle, tant de beau
 : 74 deux côtés de la route, dans le réseau des chemins et des
 ke sentiers, dans les lacs innombrables de la terre, murs
 12 et recoupements doucement rectangulaires, toïsons des ,
-Fi : mousses, toits parallélogrammes, villages couchés au
 à: - pied de leurs églises, — villages fidèles, devenus infi74 | dèles, — comme les lévriers des honorables tom4 beaux.
-be Villages resserres, villages repaires, villages abris; |
-ki villages carrefours, villages auberges; villages repères,
-b. villages jalons. j
-40 Villages cuirassés; villages simplement protégés; vil-
 # lages croiseurs; villages détendus. Et comme aban- .
 Es. donnés au long d'une route, comme couchés dans les
-à. 98
-‘Ÿ 44
 
 | DANS LE MONDE MODERNE +
-
-: AE
 
 ÿ fossés de la route. Parce qu'il fait chaud, sur la route, 0
 Ml. entétésirt L 10
 Murs et toits quadrangulaires et parallélogrammes ; 0
 linéaires et parfaitement dessinés; parfaitement longs, 10
-parfaitement horizontaux, parfaitement grands; longi- Ÿ 17
 
 tudes infinies et assises des bâtiments; toits penchés 10 "3
 
@@ -3747,7 +3268,6 @@ on des toits bruns ; sévérités des toits bleus; vigueurs des il En
 _ tuiles; duretés des ardoises ; tous moites et tous égale- 13
 ment abriteux. je
 % Profilement parfait du village français. 8
-E Le :.
 1 Qu'on lui ait fait et qu'on lui ait gardé pour les lui ‘#
 - donner tous ces admirables et parfaits vallonnements 3
 ‘4 de l'Ile de France, le très parfait Soissonnais; non pas # ‘
@@ -3755,7 +3275,6 @@ E Le :.
 2 pays aux lignes admirables, où des étangs et des marais 14
 £ ! savent être plus parfaitement beaux que des lacs, le pays 4 4
 “ aux plans parfaits, aux courbes et ondulations parfaites, ù Le
-À aux lignes presque planes parfaites, aux descentes admi- 13
 _  rables, aux descentes presque sans montées, aux des- 110
 
 * d centes qui sont des descensions, aux lignes de repos et 4 3
@@ -3765,15 +3284,12 @@ nobles, le pays de Racine et de La Fontaine. ES
 
 … moutonnements sans fin, tous également veloutés, tous a
 
-D "3 TS
-
 >. Charles Péguy MG: 1 4
 + également doux, toisons moutonneuses des lichens et ,
 : ‘is des motisses vêtant les toits des maisons, toisonnements
 7 des bois, des moissons, des foins vêtant le sol, toit de
 Pi _ la terre. - FA
 2 4 Le Vermandois, la Thiérache, le Tardenois, Fère en |
-ee Tardenois. |
 : Pa Le plus beau pays d'avant le jugement.
 “4 Que de tout cela on lui ait fait et gardé pour le lui |
 _ commettre ce monument unique au monde : la France. |
@@ -3798,8 +3314,6 @@ s 14 rectangulaires et quadrangulaires des toits penchés |
 ‘# obliques parfaitement horizontaux ; non plus ces beau- }
 . : tés du premier livre de la géométrie, et du troisième; À
 
-. | | DANS LE MONDE MODERNE 1 1120
-; VO
 mais une beauté parfaitement horizontale, assez latitu- di ni
 __ dinaire et toute longitudinaire; une beauté infiniment a
 superficielle et linéaire ; une beauté de platitude parfaite, M
@@ -3832,11 +3346,8 @@ crochent aux détails temporels comme quelqu'une de D.
 _ ces odieuses couronnes d'immortelles qui lugubrement à
 _ s'accrochent aux piquants en bronze véreux des grilles (4
 _ des tombeaux des cimetières. 41
-4 A
 ; IOI monde moderné. — 6. \ 1
 
-11 Charles Péguy ie:
-M Plaine infinie. Plaine infiniment grande. Plaine infini
 110 ment triste. Sérieuse et tragique. Plaine sans un creux |
 | id et sans un monticule. Sans un faux pas, sans un dévers, |
 : À F4 sans une entorse. Plaine de solitude immense dans toute
@@ -3856,7 +3367,6 @@ F4 accroche-cœur, d'une affection, d'nne attention particu- ;
 :N@ ment pour toute la création, sans une faveur, sans une
 ‘2 bassesse, pour toute la création de la terre dans la
 _ même calme inaltérable splendeur. ,
-È É
 Le. Plaine du jugement, où le soleil monte comme ‘un
 a arrêt de justice. ‘
 De, Plaine, océan de blé, blés vivants, vagues mouvantes;
@@ -3868,11 +3378,9 @@ A. vaches, à peine quelques fourrages pour les chevaux, ;
 À une tache; une tare; mais C'est pour la grande sucrerie |
 De: de Toury.
 #
-De 102
 
 if \ DANS LE MONDE MODERNE pa
 Plaine, océan de blé, blés mouvants, vagues vivantes, j À
-vagues végétales, ondulations infinies; mer labourable "1
 et non plus comme l'était celle des anciens Hellènes, inla- ! 1
 bourable et rebelle à la charrue; mais également invin- : É.
 cible, et également inépuisable; terre essentielle du midi, LR
@@ -3897,39 +3405,21 @@ _ plus parfaitement accommodée, la vieille ogive, aux 74
 . courbes parfaites de toutes parts, à l'angle courbe ter- LA 1
 _ minal parfait, terminaison douce ét lente et pointe ogi- #
 | vale; innocentes courbes et formes, dites-vous ; inno- 3
-_ centés, apparemment; astucieuses en réalité, astucieuses US
 _ ét très habiles, d'une patiente et invincible habileté 1
 _ paysanne, invinciblement astucieuses contre la pluie ‘4
 oblique et le vent démolisseur, <+ 302
 Lie Formes qui donnez le moins, — ou lé plus, — de Le
 . fouttières à la pluie, le moins d'angles au vent, le 4
-‘TA 103 C4
-A Ch
 
-Ë
-4 vu
-/
-/
-I
-illiance
 |
-* SUR
 | route
-paré
-a |
-D F ù |
 ir le rebord |
 |
 ; ous aviez bien
 F aison c'était
 vous expliquais
 ; sement jamais nous
-(
 
-* tu PE à È
-vom 1h Î 4
-DANS LE MC ï
-Let 4
 passer d'explications (6 l snidé 1 |
 donner et d'écouter de ) (d'en LU
 recevoir, et, quand on en de- k | 1
@@ -3942,7 +3432,6 @@ n'est aussi bon qu'un les LUE |
 longues marches, pc très LS |
 poussées, très soutent ôt surtout F H} j
 que l'on avait affaire a é o- (| | |
-tamment aux terres lab pre- Nf. | |
 nait ses avantages, et s me et if 4 11 : *
 sec d'une route, bien € t dire d'une LA ON |
 route théorique en « D no il 1 (|
@@ -3962,12 +3451,8 @@ rassaient, quand leurs RUE LUE
 leurs sabots les gênaic aient plus AR :
 envie (des sabots ont ir mieux RARES (
 que des souliers, tot t s'en lasser, | FORIL 1
-MST +
-
-:5 Charles Péguy Lie AE.
 
 d dE moins de prise à la tempête, le moins de surface au *
-0 malheur.
 
 A1 Bâtiments de blé, insubmersibles aux tempêtes de
 É 1 : terre, qui debout contre le vent, contre les larges vents
@@ -4007,16 +3492,11 @@ te Bâtiments de blé, navigateurs infatigables, qui dans
 
 u futur, dont on sait qu'il viendra, et le blé passé, que l'on .
 
-4 104 |
-
-4 n 188
-
 ds ar Tate _ DANS LE MONDE MODERNE LS
 tient dans ces meules, labourage profond des terres, * Ai
 océan de labours, de terres profondes et grasses, moites 410
 et pleines, noires et rouges, noires et bleues, noires et Re
 blanches, océan de terres animales, graisseuses, fé- nie.
-condes, nourrissantes. D:
 Alors la terre sans plus, la terre sans rien, la peau è ut
 labourée de la terre. ‘Ne
 De de platitude. Le seul horizon où le soleil 4
@@ -4038,13 +3518,10 @@ innocentes : où vous cacheriez la Grande Armée. Vous ? pe
 _ verrez seulement si ça masque une division de cavalerie 180
 _ indépendante à trois brigades à trois régiments. A on 13
 _ ne sait plus combien d'escadrons.et de pelotons. Plaines ‘12
-_ équitables en effet. Justes, non démocratiques..J'y pen- #4
 _ sais beaucoup, Halévy, et dedans je pensais beaucoup vai
 _ à vous la dernière fois que j'ai vu sérieusement du blé. 0 à
 _ Ce n'était malheureusement pas en Beauce. Non licet ‘0
 _ omnibus. N'étant pas universitaire, vous savez encore -0k
-à 105 : * ï
-ASE x pui
 
 2% Charles Péguy PAR des té.
 Es un peu de latin. Par amitié. C'était dans un pays que |
@@ -4055,8 +3532,6 @@ Z trouve très beau, que vous trouvez très beau, que j'aime
 . beaucoup pour lui-même, et parce que nous y avons
 
 x quelquefois marché côte à côte, un pays que nous avons
-
-% quelques fois parcouru ensemble, quelques rares fois,
 
 F où nous avons quelques rares fois fait cette alliance,
 
@@ -4096,12 +3571,6 @@ Fr m'aviez apporté cette admirable Histoire de quatre ans;
 | ‘ raison; mais j'étais tout près de ma maison; et c'était |
 fe vous, en passant, qui m'aviez enlevé; je vous expliquais Ê
 É même (nous ne pouvons malheureusement jamais nous
-
-? , 106
-
-4 |
-
-* DANS LE MONDE MODERNE J
 
 F pe. passer d'explications (c'est le grand vice intellectuel), de ÿ
 
@@ -4167,10 +3636,6 @@ __ envie (des sabots ont beau être bon(s), et valoir mieux $
 
 _ que des souliers, tout de même on peut s'en lasser, 6
 
-À 107 Ç ù
-
-Pau } Charles Péguy OO
-FR, LA Fa? : = ) EN k
 a if à la fin) ils faisaient, les bons gars, comme on a tou
 “pit jours fait dans tous les pays du monde où l'on a su
 ia £ marcher proprement quand on a voulu marcher pro4 prement : ils mettaient leurs deux sabots sur leur épaule,
@@ -4198,10 +3663,8 @@ L abrité, dedans, pour y mettre la bonne volonté, la |
 à ment faits pour les grandes manœuvres, et encore, par
 14 * les plus puissantes commissions militaires scientifiques !
 4 modernes, qui iraient s'asseoir (je dis bien les sacs, je ne
-“
 #4 105
 
-NO ! ©? | DANS LE MONDE MODERNE AT ONE
 dis pas les hommes) qui seraient poliment priés d'aller ‘I
 à s'asseoir dans les fossés des routes, un nombre qui serait | 10
 à calculer, évidemment, qui resterait à déterminer par ne.
@@ -4240,9 +3703,6 @@ le portaient. Il n'était pas lourd par un décret du Prési- 12
 
 _ dent de la République. Lourd ou léger, suivant l'occa- 1
 
-, +1
-1 109 monde moderne. — 13 À
-
 is 14 sion, suivant l'événement, suivant la fortune. Du jour. |
 ‘7 Quand il était léger, c'était bien, parce qu'il n'était pas
 14 lourd à porter. On y mettait ce qu'on pouvait, ce qu'on
@@ -4266,14 +3726,12 @@ he: Et le peu d'administration qu'il faut qu'il y ait dans
 # Le boire et le manger, sans quoi l'homme n'a jamais 1
 114 rien fait dans le monde. Le
 “4 C'étaient des hommes, de pauvres hommes comme .
-114 nous. |
 fl 4 Quand donc ils portaient leur sac, ils en étaient heu- |
 4 reux, de leur sac. Et de le porter. C'était un ami. Ce
 ‘0h n'était pas Le sac, c'était leur sac. C'était leur affaire à
 1 Ê eux. Ils y mettaient leurs affaires. Quand ils portaient ;
 “4 ce sac, ils portaient une affaire à eux: ils portaient leurs !
 . affaires; leur propre intérêt; leurs intérêts: ils portaient f
-À 14 L h st 1
 
 | leur propre corps. Ils ne portaient point un objet de Qi:
 | revues, de misères, d'inspections de toutes sortes, d'em- à ‘4
@@ -4286,14 +3744,12 @@ ne travaillaient pas arbitrairement, ils travaillaient li- 14
 brement. Ils ne travaillaient pas gouvernementalement, À 14
 ils travaillaient naturellement. Ils ne travaillaient pas ‘4
 scientifiquement. Ils travaillaient, ils allaient, ils vi- 0
-vaient humainemeni. 30 ÿ
 : Portant ce sac ami, portant leur ami leur sac, leur seul “1
 d mobilier, mais leur mobilier, leur petit meuble, pardieu, \t
 } _ unsac de berger, de bouvier, d'ouvrier des champs; je lai { 4 e
 dit : un sac de peau de bête, fauve, avec le poil; mais Re.
 n'étaient-ils pas tout cela et n'allaient-ils pas le devenir y
 tout à faiten grand; des bergers, des bouviers de quels Lu.
-Ë grands troupeaux; maréchaux d'Empire; littéralement f v
 à un sac de trimardeurs, mais n'étaient-ils point essentiel- 3 54 à
 ; lement des trimardeurs, et n'ont-ils point été essentielle- ‘
 __ ment des grands compagnons, des compagnons du tour #3 S
@@ -4308,9 +3764,7 @@ peuple de trimardeurs qui ayant fini, une bonne fois fini - +
 $, leur tour de France éprouvèrent ce besoin, cet irrépres- ‘1
 44 _ sible besoin de faire un peu, après ensuite, (et cela se Fe
 à + * Art ne
-RL. 14
 
-Bu 0 0 AGE Pégay NOR
 ë ïé f comprend si bien), leur tour d'Europe; et la Révolution
 <10e elle-même et l'Empire elle-même n'est-elle point toute
 RE entière là, toute entière issue, sortie, venue de là : toute
@@ -4341,9 +3795,6 @@ ET * toujours pour faire de bonnes semelles de cuir de peau; £
 1, et qu'une seielle de bois, quand elle est usée, il faut |
 4 aller chez lemarchand:; ils gardaient donc leurs sabots À
 4 i pour les par trop mauvais chemins de cailloux et de ;
-‘À mauvaises pierres, trop pointues, trop irrégulières, trop k
-À 112 ï
-r ER) « ‘
 
 |. DANS LE MONDE MODERNE “+
  dansantes sous le pied et perçantes ; ils gardaient leurs 4
@@ -4352,7 +3803,6 @@ que je vais vous dire, mais n'en parlez pas trop, je le L
 * sais, moi aussi j'ai mes fiches; ils gardaient leurs ‘2
 sabots, les faquins, les pendards, ils gardaient leurs Le:
 sabots pour faire dans les villes des entrées triome Li
-phales. D
 Non pas seulement même l'armée de la Moselle en Get
 _… sabots; mais l'armée de la Moselle tout nu-pieds; ne les % EN!
 _ plaignons pas; envions-les plutôt. On est très bien à hu
@@ -4365,7 +3815,6 @@ _  reux, qui les plaignons. Sots que nous sommes. C'est 14
 _ nous. Ou plutôt, parmi nous, c'est le pâle historien, 4
 V'intellectuel historien, le cérébral historicus qui artifi- MS
 , f ciellement les fait malheureux. Demandez aux grands Û 4
-_  bougres, aux véritables historiens, à Michelet, à Hugo, 5
 À à ceux qui les ont vus, réellement, vus, s'ils étaient "0
 | malheureux. Be
 | Ils étaient heureux, les bougres. Ils faisaient quelque D.
@@ -4379,12 +3828,9 @@ F monde une résonance, des cordes, des routes de ce Ne.
 Ro monde une résonance, un rétentissement que nul n'en : ‘ +
 14 a tiré depuis. ll L
 
-“nt Ê Charles Péguy ME 44e
 “ & Nul homme, isolé, nul grand homme n'en a tiré depuis
 
 544 un retentissement de cette résonance. Et encore moins
-
-122 nuls hommes en troupes.
 
 er” Paris ville de la révolte. Ville de la soumission. Ville
 
@@ -4397,8 +3843,6 @@ D beau jour. De tant de platitudes. D'une telle fierté.
 12 des vieux faubourgs, du faubourg Marceau, du faubourg
 
 ne. Antoine, et parmi eux, emmêlés à eux, et tout autour:
-
-‘4 d'eux petits paysans français, gamins paysans, paysans
 
 L 4 des plaines et des vallonnements, paysans des bois et
 
@@ -4421,7 +3865,6 @@ Dos vriers paysans ils partirent dénicher de bien autres nids;
 Pr - temps-là, sur tous les chemins du monde. à
 1 Ïls étaient heureux. C'est nous, les cuistres, qui les à
 4 faisons malheureux, dans nos bouquins, dans les ma- {
-“4 * nuels d'histoire.
 1 O soldats de l'an deux! 6 guerres! épopées! C'est ça,
 
 18 mon ami, une épopée. C'est toujours une opération de
@@ -4431,9 +3874,7 @@ Fe et que le bruit des pas que lon a faits sur cette route
 Ne ne puisse plus s'effacer de la mémoire des peuples. \
 ‘4 Compagnons du tour d'Europe. A condition que l'Eu- 1
 He. rope ce soil le monde. Ce qu'elle était d'ailleurs en ce Ï
-‘ ; 114 {
 
-AE DANS LE MONDE MODERNE |, ‘10
 temps-là. Presque. En tout cas beaucoup plus qu'à pré- Ÿ à d à
 sent. Et je ne parle pas senlement de l'Égypte et de l'Asie 10
 plus ou moins Mineure, de la plus antique Egypte et des Meter,
@@ -4466,15 +3907,10 @@ _ Une autre définition de l'épopée : Se méler (frénéti- it
 er. quement) de tout ce qui ne vous regarde pas. Si
 . Notamment, pour un peuple, se mêler du monde; assu- K
 _ mér la conduite temporelle du monde; régenter l'histoire. #2
-4 115 +
-a: ‘4
-LA à
 
-144 ë Charles Péguy TEA
 5 Louis XVI, ainsi, a fomenté le commencement dela h
 ‘1 Révolution et de l'Empire. C'est bien fait pour lui. Etàa
 “#4 tant d'autres égards, on la fomentait depuis avan
-L Richelieu. ' d \
 7 Du tourisme, aussi. Naturellement du très grand tou- 1
 ï ‘:108 risme. Commencer par l Amérique. En ce temps-là New- |
 # =) York n'était pas à cinq jours et je ne sais plus combien |
@@ -4503,7 +3939,6 @@ ue. qu'est-ce que ce serait que le calendrier républicain ? IL |
 ‘M Et puis, qu'est-ce que ce serait que le repos décadaire, À
 54 quand c'est à peine déjà si le repos hebdomadaire nous
 Dee suflit, à présent, quand en réalité le repos hebdomaee 116
-4 F CERTES 1
 
 pa ji DANS LE MONDE MODERNE pu.
 daire ne nous suflit déjà plus. Nous n'eussions sauvé 15
@@ -4540,7 +3975,6 @@ ci brables pas d'hommes innombrables aussi petits, aussi M
 5 misérables, aussi insignifiants, aussi transitoires que jh
 L 117 monde moderne. — 7. : RE
 
-j , Charles Péguy | 71
 \ , nous; ainsi nous allons sur la plaine, sur les routes et
 
 par les chemins de la plaine; nous y allons par hygiène,
@@ -4574,9 +4008,6 @@ js biles qui vont s'effaçant l'une l'autre,
 L poussière, ni l'eau ne mettra jamais en boue, ni aucune
 k roue de char n'effacera jamais la trace de leur pas,
 # Ce qu'il y a de plus fort, les bougres, c'est qu'ils le
-ÿ 118 + |
-È 4
-4 A Re
 
 és DANS LE MONDE MODERNE qu
 savaient: très bien. Ils avaient oublié d'être bêtes. Et ‘120
@@ -4585,13 +4016,10 @@ propres de l'éternité temporelle que celui qui lobtient 4 il
 peut pour ainsi dire, je ne dis pas toujours, mais dans l'E
 certains cas, sous certaines formes, peut pour ainsi dire 11
 la toucher instantanément, que l'éternité temporelle 110
-peut se toucher instantanément. Ayant, obtenue, léter- ii: |
 nité temporelle, ils savaient parfaitement qu'ils venaient, fi
 en effet, de l'obtenir, que c'était une affaire faite, pour a
 cette éternité temporelle, Qu'ils nemanquèrent d'ailleurs ‘160
 généralement point de prendre pour une éternité éter- à Di:
-nelle. 4
-Naturellement. HA
 Quand un peuple, quand une nation; quand des 0
 hommes, quand une race obtient de quelque manière, 4
 sous quelque forme une consécration temporelle, quand 10
@@ -4611,7 +4039,6 @@ F imaginer des cas, non pas des cas de peuples, de 0
 W . viager; dans la durée, dans le courant de leur vie tem- à A
 porelle cet événement (temporel), cette désignation, ‘10
 cette attribution (temporelle), enfin leur propre grandeur que
-RL * NA!
 
 on Charles Péguy UMA LUE
 mi (temporelle). Pour cela, il faudrait pour cela supposer 1
@@ -4645,10 +4072,6 @@ Al souvent son propre, d'attendre jusqu'après la mort du  . |
 x temporel au contraire se touche tout de suite. On ne
 2 voit pas qu'il attende, ni même comment il attendrait.)
 1e (Ni ce qu'il attendrait.) Des hommes, un peuple, une .
-pe 120 |
-TA
-(Ni . x! Jul
-Le sL
 
 sl Lt DANS LE MONDE MODERNE à “3
 | nation, une race, un homme qui obtient d'avoir de ‘4
@@ -4683,11 +4106,6 @@ _ pénétrer, historiquement, tout un (tel) peuple. fi :
 à _ Ne les plaignons donc pas; envions-les plutôt. Non V4
 _ Seulement ils étaient heureux, mais ils savaient qu'ils Me
 _ étaient heureux. Non seulement ils avaient obtenu, ils 4
-4 ; 121 l A
-
-ie:
-
-4 Charles Pégur "
 
 É ; obtenaient de frapper un événement, une puissance
 
@@ -4700,8 +4118,6 @@ ni _ éternellement temporelle, une singulière puissance éter-
 ne” ça y était.
 
 à Une singulière fortune éternellement temporelle, in-
-
-Ÿ stantanément connue. Sue. Possédée, ;
 
 1 Surtout ne geignons point pour eux. Ils ne geignaient
 
@@ -4764,7 +4180,6 @@ Hugo déjà l'entendait : 5
 
 Eux, dans l'emportement de leurs luttes épiques. 4
 
-è ES
 | Ainsi quand il nous a échappé de dire qu'ils étaient ci
 des héros, j'entendais naturellement par là, très propre- "à
 ment, très techniquement, qu'ils faisaient de l'héroïsme. A per
@@ -4784,11 +4199,7 @@ __ usage. De fécondité intérieure; de force comme d'une F:
 14 race et dans le propre sang de l'homme, un trop plein de 1
 …. sève et de sang. Sans aucun raidissement, sans aucune ta
 10 _raideur. Sans trimer. Sans suer. | Fe
-ri %
-LR u
 
-PS Ce
-1 : Charles Péguy Us
 3 Surtout sans se plaindre. Sans gémir et sans geindre. A À
 à Le héros temporel joue son temps. Il n'a aucune raison, 4
 Ë aucune envie, aucune idée, aucune image même de
@@ -4804,7 +4215,6 @@ au point de geindre et de se plaindre d'un autre événe-
 ïl Le jeu seul est essentiel à ces grands joueurs. Le
 À seul jeu les intéresse. Ils aiment infiniment mieux
 1 jouer sans gagner, qu'ils n'aimeraient de gagner sans
-jouer.
 ] Ce que je dis là, tout ce que nous venons de dire est
 | totalement vrai des peuples; d'une nation, d'un peuple,
 ue d'une armée, d'une race. C'est peut-être un peu moins :
@@ -4821,7 +4231,6 @@ porellement) infiniment une opération de joié. Ne les
 plaignons donc pas. Envions-les plutôt. Quand ils ne se |
 ? plaignaient pas, ne les plaignons pas, pour eux, ne leur |
 faisons pas l'injure de les plaindre, pour eux, Quand D
-124 1!
 
 ÿ di DANS LE MONDE MODERNE VE
 4 ils ne geignaient pas, ne geignons pas, pour eux, Sur , ‘4
@@ -4837,7 +4246,6 @@ pas (bien) ensemble. Et qu'on ne se rappelle jamais où le « hs
 est prier, dans les trois, ni même où sont les deux 4 ‘4
 autres entre eux. Prier, pleurer, gémir ; pleurer, prier, ae à 7 #
 gémir : il y a malheureusement six combinaisons (voir % 1
-formules). r 0
 Prier est d'un autre ordre que les deux autres. Prier 4
 n'est sans doute pas ce que Vigny s'était ce jour-là re- #88
 présenté. Ni aucun autre jour. Même, en poussant plus ‘5
@@ -4855,19 +4263,15 @@ _ , prier. (Saint Louis, le don des larmes) ‘tl
 À ë chose. ne:
 | Les plaindre serait une manière artificieuse de les
 À faire se plaindre. Par la réverbération de la mémoire. Fe
-. » 44
 # 125 4
-4 Ve.
 
 a SR ARRETE PAR " AT pl à A TA SA RO gun. à
-‘ _ Charles Péguy SCA €
 û . Par la vitale participation du souvenir. Et aussi, au
 Ki sens, aux deux sens où nous sommes leurs enfants, leurs
 ÿ À fils, leurs enfants (temporels) charnels et leurs enfants j
 h temporels de gloire, par cetteresponsabilité remontante,
 “ bénédiction ou malédiction remontante, par cette héré-
 
-dité remontante dont j'ai parlé. :
 \£ Comme aussi c'est un moyen, sournois, une manière
 ‘ artificieuse de les ramener à nous, de les réduire à .
 
@@ -4894,24 +4298,17 @@ e et dans l'autre, dans l'un par opposition, par contrariété 2
 ni pour jouer, pour être, pour être (un) héros (temporel), \
 pi « non pour gagner. Il aime infiniment mieux jouer sans
 nv gagner, que de gagner sans jouer. Il aime jouer Sans
-É 126 J
-N: hu
 
 1 \ De gi |A Lea at nt FEI PAT AURA RER ER TEEN EAST RAM QUE NN TE RARE AIO
 
 je WE APR PP MAETEN ( ; À da DCE
-à DANS LE MONDE MODERNE ‘4
-1 LAN
-/ : . . . VW
 gagner. IL n'aime pas, il n'aimerait pas gagner sans VON
 jouer. Un saint au contraire qui s'amuserait à jouer :X NN
 
 {son salut), qui aimerait à (le) jouer, qui ne se propose- : 134
-ô A RUN
 rait pas uniquement, dans cet ordre, de gagner (le ciel), } V4)
 commettrait perpétuellement, et pour ainsi dire au . DU
 maximum, à l'infini, à la limite, à l'éternel, celui de \ 0
-: |
 
 tous les péchés qui est coté le plus sec, l'orgueil, et sans D
 doute, avec, un certain nombre d'autres. Ce qui serait HS
@@ -4920,7 +4317,6 @@ De À Vue
 
 le plus rigoureusement contradictoire dans les termes PAL
 
-ri
 mêmes. fl ne |
 Puisque ce serait faire du principe de sa sainteté M
 
@@ -4949,7 +4345,6 @@ lébile, une de ces oppositions irréductibles, une de ces Vi
 
 , , 401
 
-V1 0
 contrariétés infinies qui trahissent, qui représentent, CL
 
 | qui manifestent, inéluctablement qui sortent cet écart, 17
@@ -4959,13 +4354,8 @@ pétence et cette incompatibilité absolue, infinie, elle- 0
 
 | même éternelle, de l'éternel au temporel. Celui qui est \ 10
 du temps, le héros qui est du temps aime infiniment 7
-127 Li
 ne
 
-TON MA
-
-114 ‘à F Charles Péguy AAA pute
-DE à ù L #
 LR jouer (sôn temps); il aime infiniment mieux jouer sans
 3 gagner que de gagner sans jouer; il aime infmiment
 Lo * jouer, même sans gagner; il n'aimerait pas gagner sans
@@ -4983,8 +4373,6 @@ Ex ce qui, au dire d'Immanuel, est le plus important dans
 
 14 mie pragmatique, dans une économie de conduite et
 
-‘1 d'action. : ï
-
 hi Un saint ne joue aucunement, ne peut jouer aucu-
 
 #0 nement, ne peut avoir aucune idée ni représentation
@@ -4993,8 +4381,6 @@ hi Un saint ne joue aucunement, ne peut jouer aucu-
 
 Da On,ne voit pas, on ne se représente pas comme il |
 __  joucrait, comme il aimerait à jouer.
-
-54 Opposition, contrariété . totale, irréductible, infinie,
 
 4 absolue, elle-même éternelle d'autant plus capitale, |
 ‘11 d'autant plus significative que le mode, nous l'avons |
@@ -5007,5 +4393,4 @@ Eu. l'éternel une contrariété diamétrale pour l'objet, pourle
 (0 1 moyens à la fin, dans le même temps, en même temps
 1 il ne cesse pas de lui faire, au contraire, il continue, au S
 Mc besoin il commencerait de lui faire un parallèle, de ù
-N: 128 À
 #3 FA PU

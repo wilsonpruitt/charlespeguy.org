@@ -7,64 +7,20 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 100961
 ---
-
-PART ns A SEE PE DAT VER PEUR RES TULTAP CENTRE TEL NT TE US Dr
-
-ETAT LR MARUET RG ASANSLNE A PL AS CR 7 LE SAN
-
-RAA un OPA HE 7 A M LE
-
-V2 06 0 PEUX Dar es PT
-
-RS + LUE RER 6
-Fes s = re hear
-NN £ £ > Ne
-D AE
-Dr « r L LEE
-ha hr 180) 2er Lu
-“ÉNRS es eu
-CE € . ; at
-A, | FN RES
 | AISNE Fr
-1 RSS ; UP dt
-
-- PONS À à 4
 
 | LASER WPRALE DU
-en ‘ 4 È RE PLUIE ee
 SD CA LE SERV PL SR ee PEN Se
 
 -
 
-+.
-ee
-==
-….— y
 se L
-0 Von —.
-Pa .
-; n Re" .
 #! ns
-: L ne PE
-é È y
-Le. .. 4
-1 e Le. 7
-+ à À s
-.e*
 > 1 if
-ss ,
 
 | M politique Us
-Rousseau « D
 | De —
-; A > 4 » # à
-+ à È E N
-LS L
-D
-:
 
-NE SR re CR AE | A EN
-À À FRA AREAS Ho 'ÉAISENES
 Il est impossible de suivre honnêtement le mouve- _ à
 qe à ment littéraire, le mouvement d'art, le mouvement
 politique et social si l'on n'est pas abonné aux Cahiers
@@ -75,7 +31,6 @@ LEE. 2 à M. André Bourgeois, administrateur des cahiers,
 Un 8,rue de la Sorbonne, rez-de-chaussée, Paris, cinquième }
 mt arrondissement. On recevra en spécimens six cahiers
 He de la deuxième, de la troisième et de la quatrième
-Ÿ série.
 ë Pour savoir ce qui a paru dans les cinq premières
 séries des cahiers, 1900-1904, envoyer un mandat de
 cinq francs à M. André Bourgeois, même adresse; on
@@ -98,23 +53,15 @@ sommaire des cinq premières séries.
 Nous mettons le présent cahier dans le commerce ;
 quatrième cahier de la sixième série; un cahier jaune
 de LII + 180 pages; nous le vendons trois francs
-cinquante. à
 
 : EC RAR ARE l'A M ra © 9 x NS ‘as
 CIN QUIÈME CAHIER DE LA SIXIÈME SÉRIE là
 ._. TEXTES ET DOCUMENTS pe
-Dr 7 ; + ÿ Lt
-HAT. L ° ° s 4 té
-e testament politique
 le Waldeck-Rousseau
-! LITE ÿt 4 ut
-+ PCR l Ne
 27 CAHIERS DE LA QUINZAINE Los
 
 : NAS paraissant vingt fois par an De
-LES PARIS 0
 nue de la Sorbonne, au rez-de-chaussée à
-Ge el fe x 4 "1 y
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
@@ -129,7 +76,6 @@ cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 3 cinquième arrondissement; on recevra en retour le
 
 : BE catalogue analytique sommaire, 1900-1904, de nos
-cinq premières séries.
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un rac-
@@ -161,133 +107,24 @@ H la série; nous l'envoyons contre un mandat de cinq
 |
 
 AUS VAST re RE Et ANT A CA RS RE
-DE ENTORSES AN SEA ST BRIE LUN Jette OR ES Se
-A neo SAR PIE PRESS
-2, RAM SE EEE : "+: DÉS UE
-LE TORR j k A
-SRE - DEAN ÉCRIRE
-Re FA IHÉS SAS
-7 HYGNEIS à SSI
-4 a “ = TE SA
-LORRAINE à : * > MIS
-100 A È Ÿ AC 32 MECS SE
-RS 5 0 ë ‘ F4 NE RCE RIE
-LIGNE ? BV ARE SD me
-20 VS NME M. k HT,
-« TIRE 15 Ce rt D \ » À “ <- " " Pas FA É fa ce
 
 AIME ARR Pure Ur ner ae PAS FL
-ART EC SRE AP Ps RE PARENTS TEE RENE EUR OR PEUR Tete +
 fa) ! fa À Base NRC RP PÈRE Ur ed DAS
-Here ; Re M re
-STONE L MR Sc UN PMR
-x * Fr à Se £ #7 Li +: + a Fa à " DTA »
-LTÉE , à RAA
-D F1
-SAP PLUS "Le Ÿ. k * k 1: FIN PRE
-RS À LRU ER
-Dour ARS ‘ : 5: TON El a
-:. FREE 4 | A à
-AE AE 1e LEURS SE Fes h
-USE TS MAC AR RUES Mb
 
-jl
-til
-Al!
-ji
-NE
 |
 |
-ail
-‘ *
-À
-ut |
-là
 
-- x
-
-l 4 =
-L
-€ .
-ë
-É LEE. A LvVÉPE En. HÉROS |
-= RES 47 En Fa sa VS ET 2 HE 200
-RE e « 3 < F3 71e CINE
-UN 4e a "de ||
-D Se Î
-ES er enenrrenee |
-è } e \/a\7 VA 17 } 3 AINe |
-1) FE TO = |
-Î ] = |
-+
-à
-U œ
-En
-
-É = 2 NET — E
-= e = EE [l il .
-= A cé ai — RE CÉSAR ES
-+ = PT 2 EN En © + 2
-z £ , : Pr LR RS Ë
-4 : =. 3 : En: |
-. : ne
-E i : : - : x — CRE. à
-: : DR
-È L RTE
-ë : ce À TRES
-à : OR CE
-= x LRO
-US = : > - ne
-ES + # STÉSURE
 | ; , | Ë Re =
-- - : $ = ie +
-: |
-é : à . RE
-Fe * L \ x : e” RES ;
-+ à ; gene :
-EP Lg La É = CE ER s
-Ca, 7 … PC So à ee L :
-US, Ë PRE. RL
 # À. 4 L EE
-Ps Lx EL TR EURE
 (OR PUUTE Te CES LE} ri
-k _ 5 = RC Fe AS 1
-FR RSR D 3 ' F L'RRN PTE- NURSCEES L
 
-GENE LS RTE NME RCE ns PR LE a RSR ANSE PS
 0 MT ANNPMRRESERERE PRES ri FAR PAPRENELE FAST es Li ON
-LAON = 3 ES - fs PANTIN
-+ ri ref N FE > + T: u
-A 2 PAUVRE d RENE, Vs
-él 3 2 : 3 DR RES ner
-an. Ca nd
-_ TESTAMENT POLITIQUE
-s he ET. v K L s EE Le
-ve - : fa RCA
-Et À ; % AR LS rent s a
-D \e
 
-L 258 5 Ù FN SR RETENIR PERCE
-; TA PART - e à 2e SAS TA
-N 1000 : — FE SRES TENTE
-[AR : RM 0
-CR 4 : à — PRTYAES PUS LE 1 »
-FL 1e api « PE heure >
 Le FR y NAN ONE Cr ms
-ELU ï 7 ARS ETC [he
-LR ETRRS 5 ut AUTO RNA TRE
-[2 Re [RSS
-: Lee : ù TN Tec RTE “CF PRRPRETEES
-12000 î = EMRORS SU NE Ne AGER
 Fe on Ce.
-[7:20 re DS Tee DL RS
-è Fr Lr » ES 1er ALL RUES <e
 ee, “ À e G 1) -(PA HAESS Pas, Y
 REA FAQ Ent VD DE ES LES ÉRNAIR
 | PR ce bat A M DAC IH LE a pe à RÉ 44 core JE HOUSE 4 D
-
-CHARLES PÉGUY
-TESTAMENT POLITIQUE
 
 Nous nommons testament politique de Waldeck-
 
@@ -313,9 +150,6 @@ de l'édité et la publication de l'inédit ; cette règle se
 justifiait en raison, car dans la constitution d'un corps,
 et au regard de l'histoire, il n'y a pas lieu de distinguer
 
-VIL
-
-Charles Péguy à
 entre hier et aujourd'hui, entre ce qui est publié d'hier,
 et ce que nous publions aujourd'hui seulement, entre
 ce qui est publié présentement et ce qui se publie pré-
@@ -353,11 +187,6 @@ même, au développement historique de l'événement,
 
 | logique à l'intérieur de chaque ordre, mais à présenter
 
-VIII
-
-1 Ar Pre‘
-
-__ LE TESTAMENT POLITIQUE DE WALDECK-ROUSSEAU |
 les ordres eux-mêmes successivement, séparément, Ge
 libres les uns des autres.
 
@@ -389,17 +218,11 @@ et public de la note communiquée à la presse et résumant la déclaration fait
 le 29 janvier 1903 devant le premier bureau lors de ;
 l'élection de la commission chargée de l'examen des
 démarches d'autorisation déposées sur le bureau dm
-Sénat.
-re
-“34
-
-Charles Péguy
 
 Revenant alors aux textes non officiels et non publics,
 mais pour nous y enfoncer d'autant plus profondément,
 nous avons gardé pour en faire la deuxième et la dernière moitié du cahier ces notes inédites dont la famille
 de M. Waldeck-Rousseau a bien voulu nous confier la
-publication.
 
 Je ne doute pas que toute l'attention des personnes
 qui liront ce cahier ne se porte immédiatement sur cette
@@ -428,16 +251,12 @@ comme édition ni leur apporter une publication digne
 
 Ayant à faire une édition de textes, je ne dirai pas
 que nous en avons établi une édition savante, une édition
-x
 
-LE TESTAMENT POLITIQUE DE WALDECK-ROUSSEAU
 scientifique; mais je dirai que nous en avons fait une
 édition honnête; cette copie grande et triste nous a été
 remise en mains propres par M. René WaldeckRousseau; notre collaborateur M. Jacques Maritain l'a
 lue, déchiffrée, recopiée pour les imprimeurs beaucoup
 mieux que je ne l'aurais pu faire moi-même; nous avons
-soumis à M. René Waldeck-Rousseau quelques lectures
-particulièrement difficiles; M. René Waldeck-Rousseau
 a bien voulu me dire que la copie de M. Maritain était
 ressemblante comme une photographie du texte; je
 suis en mesure d'affirmer que le cahier même.est aussi
@@ -461,11 +280,6 @@ plan de ces pensées; mieux valait, pour cette édition
 première, garder rigoureusement l'ordre premier, le
 seul ordre que nous connaïssions directement, immé-
 
-XI
-
-" NA
-
-Charles Péguy :
 diatement, le seul en définitive dont, au fond, nous
 soyons premièrement sûrs, l'ordre où ces pages étaient
 quand on nous les a remises; la plupart de ces notes
@@ -496,7 +310,6 @@ Ainsi constitué ce testament politique forme un corps
 
 - de documents complet; une édition définitive et ne
 warietur; nul texte ne sortira plus, venu de cette
-XII
 
 | LE TESTAMENT POLITIQUE DE WALDECK-ROUSSEAU
 _ main; nuls papiers de cette période ne restent plus
@@ -509,148 +322,57 @@ de cette période qui restaient à publier; un seul
 manque, mais il est beaucoup trop grave, et met en
 cause de trop graves responsabilités, pour que sa
 publication soit de longtemps possible.
-CHARLES PÉGUY
 La plaquette de Vernon que nous reproduisons en
 tête de ce cahier a été faite pendant le ministère en à
 1900 ; elle est donc antérieure de deux ans aux textes
 qui viennent au commencement du cahier.
-ie
-x M
 
 DR NE e See EN, PIERRE
-me AA EN APS RE
-FENETRE VAT RE Le LM SPA Et Re SARAE PSC ALT RS
 
-Mn e": OR RS NA SAR “
-See MURS AAATEC Ve à HER A UT ST TI EE PE
-Ra EN E: RER EN RS AN Pi MR ee PR EN re à |:
-
-LES x ; FA RARE LEP UC UNE MARINES SERRE z
 EN SE Red ee AR NEA |A AE JA RENE Le à
 
-4 QU # 3, DR NAN F4
-
-MORT À : | L A Rue
-
 LA ne Ste AR 2
-MERE. AE A ‘ ÿ PRE PETER
-
-Es, do
 
 |: RUN POSTE CNET EREARERE INTIME TON à MAR MY AND 7
-10e à SE. | LUN BSD E LORS ES ARS M, 8 ERA PET
 
 DU Me a Es É * ME TE PL UNES EU Kit se RAR ce è
 Re EDR PAR AS NAS RARE de
-Re M Se
 
 le testament politique
 de Waldeck-Rousseau
 
-ESPN NE SE ES ORAN RENTE EP
-ds See nie PRET Re ,
-RSC RER PR ET PCR VAE RES RENE EE
-APE ORANIESRSS - LR SR RP AN SSSR
-HORS : Re 6 PT
-RER F - DRE nee A
-LISE RAT
 ; ee NE pe SES SP Re
-ETC) ; PURE ÿ ke ;
 | “HE SRE : ; ÉNISELAE) Cu Rss
-DS Piste. : D
-CAPE 2 a DEL USER SN RS
 ne
-j FIV DANEENS = Een HET a
-M . É 2: PONT EEE cRN Ed PART
 up Vers dy ITR MUR A UE TS À
-LS RRRRRANO PEU 4 £ ï : FA Set ANNE TT ASIN
 An Les Sur £ RAR 2 A LUE in we
 
 . ER Lit eme EU NC TPE T NE Core
-he es ER EE PE Vo PSE RS LEE
 A Me Dr UNI Mg le te LME Ca Ci
 OR MR = RU Ce em TO eg LP (nie à et 7:
 + ie SEE à, 2 : À CA ne AS Er
 #: "re æ - CENTER
-1e # REA
-LES STE
-24 PER Ÿ é SEE 2 -
 __ DOCUMENTS DU FIGARO vs
-LÉO PRIOR
-Ne X.:12 000
 17e ET DE LA REVUE su
-1 EPA
-M NET
-La rx Por È 2328)
 # 2 > hs
 | LEA SR ee :
-€ TA x Er
-Rare ER
-+40 ne 6 tn
-CAE 4 = PR ee:
-27 ES à TS a
 pas s1 Poter D a =
-AR NE F 1 F + “ei
-? d Le _ ÿ ENST
-FÉES È AE fra HE
 “ÉTRTRRSE . ne
-Le Æ CRUE
 
 à Mrpee q AUS” Es rt PR SA OL
-LÉ T2 Cine pes: 4 A RAS
 3 MARNE LE. Lois. OMR MINES
-, PAPE RER ER SES
-. x Fr A EEE 2e k
-LOIS Ab + se : à RSR NS MAT El
 + 600 Le Figaro du mercredi 12 octobre 1904 publiait
-RTC à TRIER SRE
 ___ les textes suivants : LTÉE SESNRr
-à'FTES x 217,7 SMS AE SCT ECEEEESS s
 > APR Re
-LEE AS RS
-VAE : ê 10e CAR URI Ver
 PAS s Ë A Loc de "4 ge
-MCE k £ À, « RS ONE
-\ HEURE \ > AN RE EE
-24 CERTA à $ ER
-LANDES F AS. TRS NOR
-LL RSR * x 3 : RCE
 DES OR 3 es TE OR en.
 # METE à + « { Crus 5% RE ;
-+5 F5 L ? RE te
-RAT re : "y SET AN TR
-: FARINE AN en
-
-DOCUMENTS INEDITS
-LA POLITIQUE
-DE
-M. WALDECK-ROUSSEAU
-JUIN 1902 — AOUÛUT 1904
 
 D CE AS ER NE RG Urs HE
 D ne Un ae
 DA et ie à Na PERS PRE :
-RAS 0 : A muse
-D RE
-SAR ; RENE en
-HAN TOR ESS SEE « 9
-D | RE ur.
-SUS Var É FÉRELR Sr ROME
-EST Th È Re FH RTSSES TEST HEURE
-D LCR ER FRAME
-1 06 TO 4 FN NS SR RTE f
-PENSE MG à
-TNT ES EME PR DA. re
-PRE ONE NEIL NE RER
 RP AN Ne tie Es ME es AS
-TR CSSS PLEASE RCE ren
-RS PEER 14 DRE + Ex ES ia FI
-LE + ESS ji “e TC 2, 8 RACE
-ASE A
 LES “ su MANA en Re FA
-FE GEST > % ? LE TASSE RON EEE STE
-MERE z FAN SE
-$ Rat e # j e É : SE LEURS re
 SNS NE K fra ES der 4, rs VESTE
 
 La famille de M. Waldeck-Rousseau a réuni divers
@@ -667,32 +389,12 @@ et que la Revue politique et parlementaire, dont
 
 Nous nous sommes donc bornés à indiquer à quelle
 | époque et dans quelle circonstance chacune de ces :
-à pièces a été écrite.
 
 Tout le reste émane de la main même de M.
-_  Waldeck-Rousseau.
-2h \
 
-APS Re r LAN Peer ie
-'ÉRAROA PRE SEAT PT APR SPRL ANOUE à
-ER LENS He ME . RS ER NDES VEr NES
-SES NI PR NE M
-LUN ER à ” DRAM | A
-Sn à rx VOA ES $
-LS : ; RE
 | SNS Re 2 7 LÉRERTÈRSE RTE PNR
-HER Rd
-nr D - PARDON.
-RU Dee PA EUR
-LACS M
-Re à TES NA
 | FINIS à A
-CE 2% £ Fa PEER et
-+ HAE u Les Re :
 
-I
-L'INTERPRETATION ET L'EXECUTION
-DE LA LOI DE 1901
 M. Wakdeck-Rousseau, président du Conseil, avait écrit
 la lettre suivante au garde des sceaux pour fixer l'interprétation de la loi de 190r sur les associations. Cette lettre,
 écrite tout entière de la main de l'auteur de la loi, offre un
@@ -713,7 +415,6 @@ convient d'arrêter sans retard les mesures qui devront
 En ce qui concerne les congrégations non dispersées,
 
 NS, de
-Waldeck-Rousseau
 un jugement prononçant leur dissolution ne paraît pas
 nécessaire. L'article 18 dispose, en effet, que les congré- .
 gations existantes au moment de la promulgation de la
@@ -736,13 +437,10 @@ telle congrégation, mais de la déclarer illicite dans
 les termes de l'article 16 et d'appliquer à ses membres
 les peines portées par son paragraphe 2. | à
 A l'égard des ordres qui se seront dispersés, une
-autre difficulté doit être prévue. Tel ordre religieux,
 les Jésuites, par exemple, quitte la France. Ou les biens
 par lui occupés ont été réalisés ou ils sont, en vertu
 d'un titre, la propriété réelle ou simulée d'un tiers.
-8 >
 
-30 ‘INTERPRÉTATION ET EXÉCUTION DE LA LOI DE IQOI
 …_ Ya-t-il lieu de s'arrêter, soit au fait de la réalisation
 “ opérée, soit à l'apparence résultant du titre, et par
 À conséquent de ne pas procéder à la liquidation? Cette
@@ -807,12 +505,10 @@ S'agissant d'un expédient qui consiste dans une interposition de personnes, il 
 sera plus ou moins facile à établir suivant les cas et
 les espèces, mais ce qu'il importe de déterminer, c'est
 
-50 INTERPRÉTATION ET EXÉCUTION DE LA LOI DE IQO1
 “ Fe une règle de conduite générale. Convient-il de décider
 3 _ d'appliquer, partout où s'opérera cette transformation,
 2 les dispositions de l'article 14 et de considérer les
 …._  ex-religieux devenus séculiers comme des personnes
-“à interposées ?
 
 4 Telles sont les questions qui se sont présentées à mon
 4 esprit et qu'il m'a paru nécessaire de soumettre à une
@@ -821,39 +517,21 @@ les espèces, mais ce qu'il importe de déterminer, c'est
 …_ premier octobre vous soyez en possession de tous les
 3 renseignements concernant les congrégations auxquelles
 a il y aurait lieu d'appliquer quelqu'une des dispositions
-' - dela loi.
 
-fr WALDECK-ROUSSEAU
-
-A een OCR
 ne ae DORA en AE PNR PAR Se ' ARTE
-RE :; AURA RARE SC
-PR ; : î ù SRE ST
-RE < 11-113 CPAS RENNES
-M D
 À DV SEE CR Er TM CRU 0 de
 LEUR OEUS ; Ace Fe Sr SP EME
-D Re
-\ + rer. ; et
-DRAP DE 7 CE T1 20 IS
-1 12 AN ER EE : : LIENS TE STE D
-‘ 1 LT ECS : Ne RP MER
 # Mn itez ; "6 AN PE PEN NOESIS
 TR str gtx ER le >
 LEE avr à De haie pe AREA EL
-Gt =" LE À ; LS
 DRAP er ï ; rs 1,111 Dit PORN ARS
 
-$ LETTRE A M. DELCASSÉ
 ; Cette lettre a été écrite à M. Delcassé par M. Waldeck4 Rousseau au retour du premier voyage qu'il fit à sa sortie
 à du ministère en août 1902. En raison de son importance,
 # M. Waldeck-Rousseau en avait, contrairement à ses habi-
-à tudes, gardé copie :
-ä 6 août.
 4 Mon cher ami,
 E J'ai vivement regretté de ne pas vous voir hier, et si
 É tout n'eût pas été préparé pour mon départ, je vous
-1 _ aurais attendu. Lundi, après avoir été à Rambouillet,
 ke j'avais reçu la visite de Combes, dans la soirée, et sa
 sérénité, dans les conjonctures actuelles, m'avait quelque
 É peu effrayé. Je lui ai dit combien j'avais été surpris de
@@ -869,12 +547,8 @@ _ voir le ministère se mettre sur les bras une affaire avec
 . tait, cependant, assurément à cette séance. L'avait-il
 e. oublié? Quant à vous, dont je connais la mémoire et
 Ë l'esprit politique, je pense que vous n'étiez pas ce
-É
-
-LEARN
 
 | Waldeck-Rousseau 2:
-! x
 | , matin-là au Conseil, et pour bien des raisons, il importe
 | que vous sachiez avec précision ce qui s'y est fait. Je
 | n'en ai pas la date précise, mais il fut tenu entre le
@@ -904,7 +578,6 @@ local. Une seconde catégorie comprenait les établissements ouverts par des con
 le 1° juillet 1907. IL n'était pas douteux que la loi nou-
 | velle leur fût applicable. A cette époque, cent soixantequinze s'étaient ouverts avec demande au Conseil
 
-43 LETTRE A M. DELCASSÉ
 à d'État du décret d'autorisation, deux cent huit avaient
 É omis cette formalité. Je proposai, et le Conseil accepta
 cette proposition, de choisir les congrégations les
@@ -942,9 +615,6 @@ En prenant une décision toute différente, le cabinet a
 entrepris une tâche devant laquelle j'avais reculé, et je
 reste persuadé que c'était de bonne politique. L'agitation
 
-se:
-
-Waldeck-Rousseau :
 que nous eussions évitée, existe et n'est pas près de
 prendre fin. Je vois par les journaux, et je ne lis pas les
 mauvais, qu'on commence d'opposer ma modération ! à
@@ -970,7 +640,6 @@ Et dire que si j'ai tant peiné pour faire voter la loi de
 je l'ai dit à Combes, pour que le gouvernement mît
 
 ‘ toujours, entre les congréganistes et lui, au moins trois
-magistrats.
 
 Il m'a dit avoir ignoré notre décision, il m'a paru
 satisfait de la situation et trouver préférable le système
@@ -979,12 +648,6 @@ situation, que j'ai apprise en revenant des fjords, est si
 engagée, que je ne sais si je dois vous suggérer un
 expédient et lequel. Je suis étrangement surpris que les
 congrégations intéressées, reconnues, et dont les établissements avaient été ouverts avant le premier juillet
-
-(er
-
-D LETTRE À M. DELCASSÉ
-
-HS
 
 4 1907, ne se soient pas pourvues au contentieux, tant la
 | légalité de l'application rétroactive de la loi me paraît
@@ -1008,12 +671,8 @@ $ pour les raisons que je vous ai dites, toute visite et
 É en inspirer, mais il vous est tout personnel, et je ne
 à veux point prêter au reproche de critiquer mon succes-
 Î seur avec la liberté d'un homme qui est rentré sous sa
-n tente. œ
-ee.
 
 +à Croyez-moi votre affectueusement dévoué.
-
-à , W ALDECK-ROUSSEAU
 
 ÿ Dès qu'il eut reçu cette lettre, M. Delcassé fit savoir à
 ; M. Waldeck-Rousseau que, sitôt au courant de la circu-
@@ -1021,23 +680,11 @@ ee.
 | nication que, comme ministre des affaires étrangères, il en
 : avait faite alors au Vatican. Le Livre jaune porte, d'ail4 leurs, la trace de cet incident.
 
-È
-
-Be. :
-
-MR à Sn tn SNS
-A . DR nent
-TNA Ken Se ÉENEE À
-AC > e 2, FRERES EEE À
-no. 2 Rd +
 Rte ï ER A Ne
-“Hs A
 nes Fe ee PR QAR GE LE Fes es
 Mes ne de
 | FAT NNESSEE x s RICE ae ne RE er 4
 MAMA ee î 4 2 LE EN RE DEP RNEEETES
- . | D
-DFE : ; RIUOCE ANNALES Re
 Re ne
 
 Le Sénat se réunit le 29 janvier 1903 dans ses bureaux,
@@ -1057,8 +704,6 @@ M. Waldeck-Rousseau prit la parole dans le premier
 Fy beaucoup moins étendue fut adressée aux journaux, qui la
 
 “_ publièrent. Voici le texte de la première analyse, jusqu'ici
-
-_ inédit:
 
 b Les projets soumis au Sénat sont conformes à l'es-
 
@@ -1090,12 +735,6 @@ _  L'appréciation variera « suivant le degré d'intérêt ou
 
 ‘ d'utilité que présentent la congrégation ou l'établis-
 
-É 19
-
-à À
-
-, j
-Waldeck-Rousseau
 sement congréganiste, le caractère de son œuvre ». (1)
 Mais, sous ces réserves, par là même que l'autorisation est exigée pour toutes les congrégations, aucune
 d'elles ne peut être considérée comme exclue, a priori,
@@ -1125,7 +764,6 @@ exploiter, d'y répondre en ne se laissant pas entraîner
 
 Telle est, sans doute, la pensée du gouvernement,
 puisque chaque demande a fait, de sa part, l'objet d'un
-projet séparé.
 
 Dans la même circonstance que j'ai rappelée, M. le
 président du Conseil a constaté que l'État « s'était laissé
@@ -1133,8 +771,6 @@ distancer dans les œuvres de charité par linitiative
 privée, qu'il aurait mauvaise grâce à décourager, dans
 
 ( () En marge figure cette note : Discours Combes, 15 janvier.
-
-f 20
 
 ts | LES CONGRÉGATIONS AU SÉNAT
 
@@ -1161,32 +797,16 @@ _ d'autonomie française, quelles limites doivent être assi4 gnées à son expa
 ; _ dement de ne pas essayer de lui faire produire des
 3 conséquences inconciliables avec les considérations qui
 É _ont déterminé le Parlement à l'adopter.
-5 :
 
 LE ARTE ARR A ARE AE RARE de SU LATE
 LATINE AE LA Tan NT EU RAU EE 1 TRS RSS
 D Me Hurt, 4 + Er CHAUDE TPrHry A LES RAA SC ue.
-a Ut CPS LAN Le ANDRE UE s
-Fe A D ] : FLN RSR FER
-RS ie (AA CI ANSE Ten
-+R ne
-VAN AE dE" FLN REIN RES A ENRAREREES
-CPAM Lt £ 4 RAA TU de
-MEME " SÉT LA CHOOMS 4 FAN RE SER
-SPACE EL NN SERRES
-a X OR EVE ES
 LACS RE L MATE ee Æ RS
 LEE Est NET EREEN
-SES : t AR ÉSRR CURE RARE
 1 PR RSA de FA Le £ re » De #Y ul A >
-AU AN 2 ARC ANE RP
-MAR Ho 10e MP IS INR
 ASTM l'sre FA Se ae)
 SAN ENERE LAN NE ae RER TES
-APT ETRERE Sc LEE à Ni 2 CORRE
 MAPAQUTe 0e NE ln LS pe RU MER AE Aie PAIOPEE SR pee ES à
-
-CONVERSATION AVEC M. COMBES
 
 Le récit, daté et écrit de la main de M. Waldeck-Rousseau,
 de sa conversation avec M. Combes, ainsi que le télé-
@@ -1210,9 +830,7 @@ crainte que la neutralité du gouvernement tourne au
 profit d'une majorité dont la plus forte partie serait
 
 formée par la droite, l'ont obligé de changer d'attitude.
-È 23
 
-Waldeck-Rousseau
 Il posera la question de confiance, il a tenu à m'en
 prévenir, parce qu'il subit une nécessité et ne voudrait
 pas que je voie là une critique de mon attitude personnelle. Je lui réponds que sa décision est grave, que,
@@ -1240,9 +858,7 @@ n'oblige pas le gouvernement à supprimer ni les établissements hospitaliers, n
 accompagnait les projets de loi, les mêmes congrégations pourront, le lendemain du vote, former des
 demandes nouvelles, portant seulement sur leurs établissements hospitaliers, et je suis prêt à déclarer, plus
 
-5 CONVERSATION AVEC M. COMBES
 catégoriquement encore que je ne l'ai fait précédemment, que le gouvernement les accueillera avec
-faveur. »
 
 Je réponds, à mon tour, qu'il serait plus logique alors
 de modifier les conclusions de la Commission ; de ne
@@ -1264,34 +880,15 @@ voire égard. » C'est sur ces derniers mots que nous
 
 nous séparons.
 
-s
-
-+ 3
-
-à
-
-Re SAR EU GR Ne ARR QUE EIRE
-
-‘ARR EE Bi NT NE HAE PR NO ESS RS
-
-D  : ”
 Se ne a es
 Rue Re le ue ie et RE ie
 
 |. LISA A “ k e : LE A a
 
-LCA Sea NL RC Em SRE td x
 NN DRE LA HN T RE Fees
 
-1) ee à | He LM PET SAN ER CEE
-
-i: î Es MES A RCE 1e Eee ;
-
-i A à }\ (Re EE (2 PONS PT ONE LEP RER AE vos EE HN
 0 es DA RENE NE Dal
 
-ere
-AUTRE LETTRE
 > 10 mars 1903.
 .. Mon cher ami, on raconte, paraît-il, à la Chambre,
 - que je me suis rallié aux conclusions de Rabier. Depuis
@@ -1299,27 +896,13 @@ le jour où je me suis expliqué au Sénat, sur la procé-
 dure à suivre, le texte de la loi de 1901 n'a pas changé
 — et mon opinion non plus.
 Bien cordialement,
-R. WALDECK-ROUSSEAU
 
 pe ete ce, AT RME
-RAGE SP SUN Te AR Sen AS RM TUE NL RESEEER Ass
 RU Rs De ne MT ES ÿ
 Mn ne RARE RENTE TS A CT OR Re
-PORN AE a £ o Den er RENE IE
-soc A Re ER
-LA SCANS À à RC BERS FRET ENS
-ATV 40" "+, PAIE ES CDN FCPI
-2 A ERNESS k * Prose at
 De Due RMS AU es. ER
 j UNE Mer DEN ARE 7 PR
-f ST x RER Ce
-FAR RS. HAE TEE
-l LR À FERRER TENTE
 il HORS sk = + LS PRAEIESE FN Re
-2 RE em £ CPR AE RO
-\ : LE =. 2 < x FAO El
-FEAR ÿ 2 Pare “e LR ERP
-GER. to f r : + ur Jr rt NOR
 
 | UNE ALLOCUTION
 Résumé d'une allocution prononcée par M. WaldeckRousseau au groupe de l'Union républicaine du Sénat,
@@ -1344,7 +927,6 @@ secret. Elle se dégageait et des textes et de la discussion.
 devant la Commission de la Chambre.
 à Elle a succombé devant cette assemblée dans les
 circonstances -que l'on connaît, et les conséquences de
-$ 29 IL.
 
 | Waldeck-Rousseau vs
 | | ce vote se font maintenant sentir. Il a permis de conclure
@@ -1370,7 +952,6 @@ Il n'y a qu'une règle de conduite sûre, elle consiste à
 se montrer scrupuleux observateurs des lois, à ne pas
 laisser croire qu'on veut leur faire produire des consé-
 quences différentes de celles qui avaient été affirmées et
-garanties.
 Bientôt, la Commission sénatoriale, chargée d'examiner un petit nombre de demandes d'autorisation,
 j déposera son rapport. Ce jour-là — et je suis persuadé
 que la Commission voudra qu'il soit prochain — le
@@ -1398,34 +979,14 @@ proposer l'autorisation, tout en demandant qu'elle ne
 Chambres une véritable demande de rejet en une forme
 qui ne permettait pas à l'autre Chambre d'en connaître ».
 
-BNC OR
-FREE : Les É Ve, 0 Ta US EE NET RER RER
-SORA Fu: ADS NES
-MAMAN UNE À ; LL ON TUE SAT JRACRIFIRSS
 FRET USEESNE ; Que À EURE ETES
-Lt è 5 RS es
-LEE ; : 7 LR TENNIS
-Ra Pr A nt ©
-TRES < $ Fee FAR
-RES + Re" = ARE
-RUN SP Fe è È IL PTS ECS
 * Tes She À * + LASER QUE
 | Pt * . A El nc
-a PEN : Ze L'ETÉ
-A fe : - x hrs re.
-TEE 7 SITE PARENTS ES
 LEP ES de EN RER
-Ra 3 æ MT =
 
-Il
-LA POLITIQUE GENERALE.
-HS Er EX
-SÉPARATION DES EGLISES ET DE L'ETAT
 La lettre suivante fut écrite à M. Millerand, à la suite de
 l'interpellation que l'ancien ministre du commerce avait
 adressée au gouvernement, le 17 mars 1904, sur les retraites
-ouvrières :
-[Cap-d'Ail, 19 mars 1904.]
 
 + Mon cher ami, les nouvelles arrivent lentement au
 Cap-d'Aïl, et ce matin seulement j'ai eu un aperçu de
@@ -1437,10 +998,6 @@ sent. L'anticléricalisme est une manière d'être constanie, persévérante et 
 s'exprimer par une succession indéfinie d'actes et ne
 constitue pas plus un programme de gouvernement, que
 
-= 5 #
-
-y pet LIRE NES
-Waldeck-Rousseau
 le fait d'être vertueux, ou honnête, ou intelligent. La
 preuve en est qu'on épuise toutes les ressources du
 parti pour faire une loi que la loi de 1901 rendait inutile. Vous avez eu votre courage habituel et votre coup
@@ -1453,14 +1010,7 @@ aussi; mais, c'est jusqu'à présent mon seul progrès. Le
 i sommeil et le reste, ne se sont pas modifiés depuis
 Paris. Mais j'espère, en mangeant un peu plus, retrouver
 un peu de forces et mon ambition ne va pas présente-
-; ment au delà.
 Votre tout dévoué ami,
-Ù WALDECK-ROUSSEAU
-
-PROJET DE DISCOURS
-2 CONTRE LA
-
-SÉPARATION DES EGLISES ET DE L'ETAT
 
 Ce projet de discours au Sénat fut écrit par M. WaldeckRousseau, après son dernier ministère.
 
@@ -1484,7 +1034,6 @@ est et sera toujours de les concilier et, si un conflit
 s'élève, de les accorder par un juste départ, par une
 juste appréciation des droits de chacun et de ses obli-
 
-Waldeck-Rousseau See
 gations. — Sans cesse ces conflits se produisent, sans
 cesse le gouvernement s'emploie à les dénouer par un
 règlement équitable, de sorte que la politique courante
@@ -1509,7 +1058,6 @@ Saint-Siège leur conférera l'institution canonique.
 
 : Il ne peut donc ÿ avoir d'évêque, au sens du Concordat, que par le concours de deux circonstances : la
 nomination par l'État, — l'institution canonique par le
-Saint-Siège.
 
 Au sens du Concordat, — car on peut imaginer la
 nomination d'un évêque sans l'intervention de Rome,
@@ -1525,8 +1073,6 @@ il y a deux moyens de la réaliser.
 Le premier consiste, de la part de l'État français, à
 nommer l'évêque sans: chercher à s'assurer que l'institution canonique pourra lui être donnée.
 
-A
-CONTRE LA SÉPARATION DES ÉGLISES ET DE L'ÉTAT
 Il pèche par un défaut de logique et de prévoyance.
 
 Défaut de logique, car lorsque deux parties ont fait une
@@ -1550,7 +1096,6 @@ qu'en pareil cas l'État s'arrêtera devant un non possumus abstrait et souverai
 à des raisons plutôt politiques que religieuses, le devoir
 de l'État est non pas de nommer un évêque qui ne
 serait pas un évêque, mais de ne pas nommer à l'évé-
-ché vacant. À
 
 Une autre difficulté a sollicité l'attention. Elle tient à
 l'introduction dans les bulles d'institution canonique
@@ -1558,14 +1103,10 @@ d'une formule empruntée — sans qu'elle puisse rien
 modifier dans la nature des choses — au dictionnaire
 de ces formules diplomatiques destinées à sauvegarder
 les amours-propres et à donner une certaine parure aux
-soumissions inévitables.
 
 Nobis nominavit !.. Quand j'ai pris la direction des
 cultes, l'État avait coutume de ne pas prendre au tra-
 
-37 IX
-
-Waldeck-Rousseau
 gique cet exécrable latin. Il ne lui apparaissait ni assez
 clair pour être accepté sans mot dire, ni assez anticontractuel pour mériter un éclat. À un langage obscur il
 répondait par des réserves très claires qui maintenaient formellement les droits qu'il tient du concordat
@@ -1579,7 +1120,6 @@ l'État, — soutenir qu'il peut donner l'institution à un
 \ ecclésiastique qui ne serait pas nommé par l'État?
 — Je ne le crois pas si téméraire; et, le droit de
 l'État étant constaté, affirmé, je persiste à penser qu'il
-peut rester assez indifférent aux quelques gouttes
 de miel par lesquelles s'adoucirait un aveu nécessaire.
 
 : Séparation des Églises de l'État.
@@ -1606,15 +1146,7 @@ dont nous subissons les conséquences, le plus considé-
 rable, celui dont la répercussion sera le plus durable :
 le catholicisme.
 
-3 Ode - *
-
-L'$N2s
-
-: _ GONTRE LA SÉPARATION DES ÉGLISES ET DE L'ÉTAT
-
 L Associations. P. Bert, page 44 :
-
-j
 
 à « Nous pensons, écrit Paul Bert, non seulement que
 
@@ -1664,28 +1196,17 @@ il n'en est pas qui atteste moins de changements.
 
 Sans remonter au delà de dix ou quinze ans, interro-
 
-UE NT RON Re HORS Ç
-Waldeck-Rousseau
 gez l'histoire des législatures qui se sont succédé et qui
 ont vu, après des ministères modérés, des ministères
 radicaux — des cabinets Floquet, Goblet, Brisson après
 des cabinets Ribot, Dupuy, Tirard, Méline.
 La séparation recueille :
-En 1887 : Ministère Goblet. ...... 173 voix
-1888 — TirardeNAPRIee 180 —
-1890 — Tirard SN 191 —
-1896 — Bourgeois. . . .. 1592 —
-1897 — Méline: une 181 —
 Chiffres instructifs : le nombre des suffrages moindre
 1 avec les ministères radicaux — pourquoi? sinon parce
 que la séparation ne recueille pas seulement les voix
 | des partisans de la séparation, mais des suffrages d'op-
 | position.
-Elle recueille en 1900. . . : « 179 voix
-— LODE. UND 167 —
-nel — 1002 eee NET RS O TR
 Avee ce maximum, elle a sept voix de moins qu'en
-1890 !
 De ces constatations conclure :
 | Qu'un État, une République surtout, qui a le libre
 examen pour affirmation, le Droit divin, c'est-à-dire
@@ -1696,10 +1217,6 @@ Rome nomme ses évêques, ces évêques leurs curés...
 Alors, il faudrait conclure avec P. Bert, page 49 () :
 « Or, la conséquence, nous n'hésitons pas à le dire,
 ce serait avant trente ans la mainmise sur la France
-(1) Paul Bert, eod. loc., page 49.
-4o
-
-CONTRE LA SÉPARATION DES ÉGLISES ET DE L'ÉTAT
 
 _ par l'Église catholique, à moins que quelque réaction
 violente ne vienne soulever ce pays. Oui, l'Église rayée
@@ -1713,7 +1230,6 @@ Il faut donc qu'il y ait des rapports.
 
 Quels peuvent-ils être ? Ils ne peuvent dériver que de
 la convention ou, à défaut d'un régime contractuel, de
-sanctions pénales.
 
 Loi de police des cultes? Personne n'en a jeté les
 bases ni donné la formule.
@@ -1725,7 +1241,6 @@ des réunions? Établira-t-on des incapacités personnelles.…, une capitis dim
 
 La loi pénale punira-t-elle la nomination d'un prêtre
 par le chef d'une Église que la loi civile ne connaît ‘
-pas ?
 
 Et si on abandonne toute cette force incommensurable
 à sa propre gravitation.…, par l'Église libre, une
@@ -1736,7 +1251,6 @@ pas. La séparation se fera; elle se fait par l'action
 lente et presque invisible du temps sur l'état des esprits,
 sur l'état des mœurs, par le progrès insaisissable, mais
 
-Waldeck-Rousseau
 certain, de l'esprit de discussion, de contrôle, de cri-
 ÿ tique et d'analyse, et par la nécessité même pour le
 catholicisme d'évoluer vers cette conception plus moderne, qui a déjà ses apôtres, de la séparation de la
@@ -1772,7 +1286,6 @@ point en mesure de réaliser ?
 Comment ne pas mettre en présence la vanité et la
 stérilité — non de certaines réformes — mais de certaines agitations, et le poids dont elles ont pesé sur
 
-CONTRE LA SÉPARATION DES ÉGLISES ET DE L'ÉTAT
 l'évolution même que l'on voudrait seconder? Le parlementarisme a été, et il est encore, violemment attaqué;
 mais le véritable péril pour lui n'est pas dans ces attaques ; il est dans les fautes qu'il peut commettre, et il
 n'est pas de faute plus grave, et au point de vue de la
@@ -1790,7 +1303,6 @@ plaisir, soulevé plus de difficultés qu'il n'est permis d'en
 surmonter dans un laps de temps mesuré.
 
 Les procédés que je combats, cette politique hâtive,
-imprévoyante, fertile seulement en équivoques, peu
 favorable à l'action d'un parti républicain désireux de
 rester.uni et non de se diviser et de se subdiviser, n'a
 jamais été la politique du Sénat. Je lui demande, en ne
@@ -1799,25 +1311,8 @@ la haute conception qu'il a de son devoir d'initiative et
 de contrôle, et par laquelle il n'a pas cessé d'accroître
 son autorité dans le pays. À
 
-ee FR TE SNA
-A PEATN MAULRE HT À AAA D SN ON TES
-fi Lun (ur Poe REP TTEES En
-UT ( k& LA LUS HAN
-12 TN AN ONE Lai 1 TE
-19 UNS j (THE ANUS AS V
-LL ReRRS DR
-RE N, ! Gt à* EAN CUT
-HU Rte ÿ É ï RE TAN PS Re
-: FRANS AA CANONS SEC
-RATE fs RU XIE ER
 : fa 1 De VAR MALE do ft AT
-OA: 4 ÿ \ A LEBEE FAR DURE. 4
-EME 1 DAVINILR 111007 NOR ER
-Rural AE RATE HE En PA” ñ} cer
 D APE AR UC UNS FUN ds AMAR LU il
-VAE D Le Se NA
-
-L'AFFAIRE HUMBERT
 
 Dès la réunion de la nouvelle Chambre, en juin 1902, une
 demande d'interpellation sur ce sujet avait été déposée.
@@ -1832,7 +1327,6 @@ fuite des Humbert, à cinq heures du soir. En marge,
 M. Waldeck-Rousseau a écrit cette note :
 
 J'ai appris le départ des H. à quatre heures, en revenant d'une promenade. J'ai fait envoyer de suite le télé-
-gramme ci-joint :
 
 Suit un télégramme de service sans intérêt.
 
@@ -1843,12 +1337,8 @@ gramme circulaire du juge d'instruction.
 Le télégramme de la Sûreté était parti depuis trois
 heures quand le ministère a reçu la réquisition du pro-
 
-4 IL.
-
-Waldeck-Rousseau
 cureur de la République. A partir de l'ouverture de
 l'instruction nous ne pouvions plus qu'exécuter ses
-ordres.
 
 M. Waldeck-Rousseau a écrit au crayon la note suivante
 sur une cote qui enveloppait les notes détaillées qu'on va
@@ -1860,8 +1350,6 @@ Très irrité de voir que le cambriolage des Vives-
 - Eaux avait été possible, bien que l'affaire fût alors
 { entièrement dans la direction du Parquet, j'ai rédigé le
 18 mai les notes ci-incluses, qui témoignent de ma mau-
-
-vaise humeur.
 
 (Je me rappelle très bien avoir prié, dès avant cette
 date, M. Herbaux (1) de venir me voir et me dire quelles
@@ -1883,8 +1371,6 @@ au Mont-de-Piété, le tapissier qui a aidé Romain Dau-
 
 (1) Procureur de la République.
 
-ri opte EEss Se '
-L'AFFAIRE HUMBERT
 rignac à brûler les papiers, etc., etc. — Sont-elles surveillées de façon à savoir si elles reçoivent des visites,
 de quelles personnes, si elles ont écrit, à qui; si elles
 ont reçu ou retiré de la poste des lettres ?.….
@@ -1893,12 +1379,10 @@ A-t-on surveillé les différentes maisons où propriétés
 en province — les Vives-Eaux, les domestiques demeurés dans les immeubles, ceux qui les ont quittés ?..
 
 — Si ces mesures n'ont pas été prises, elles doivent
-être immédiatement mises à exécution.
 
 (Note remise le 18 mai à la justice.)
 
 Monis est venu le lendemain avec Herbaux me rendre
-compte.
 
 Un certain nombre de personnes, spécialement les
 Parayre, avaient toute la confiance des H. — Quelles
@@ -1924,7 +1408,6 @@ maisons ou propriétés appartenant aux prévenus ? Ce
 qui reste de leur famille ?
 
 #
-Waldeck-Rousseau
 Quelles dispositions ont été prises pour connaître les |
 départs de bateaux soit en France, soit en Espagne,
 leurs escales, leur point terminus? — pour assurer
@@ -1952,11 +1435,6 @@ pour les créanciers Girard.
 Je dois dire que si M. Duret était justement inquiet
 du retard apporté au paiement, pas plus que personne à ce moment, il ne croyait que toute cette histoire fût une simple fable. Quand, plus tard, je lui ai
 
-'
-;
-s. 4
-
-L'AFFAIRE HUMBERT
 dit mon opinion, il a été d'abord incrédule, puis stupéfait.
 
 IL me fut presque impossible, au début, de me faire
@@ -1970,7 +1448,6 @@ l'histoire judiciaire des procès Humbert.
 
 C'est après les vacances de 1897 que j'ai dépouillé
 tous ces documents, et voici les circonstances qui m'ont
-frappé :
 
 1° Un homme, du nom de Crawford, était mort, laissant 100 millions : nul n'avait jamais dit ni demandé où
 il était mort, où il avait vécu, où il habitait, s'il avait
@@ -1979,7 +1456,6 @@ une terre, un château, une chaumière.
 2 Dans une plaidoirie, il était dit que les époux
 Humbert avaient été envoyés en possession : nul n'avait
 jamais demandé ou dit quel Tribunal avait ordonné cet
-envoi en possession.
 
 3 Il y avait eu un testament. Nul ne l'avait vu ni
 demandé à le voir. S'il était authentique, personne n'en
@@ -1991,13 +1467,11 @@ le dépôt au greffe.
 testament : où demeuraient-ils ?.. Ils avaient été assignés tour à tour chez les époux Humbert, 170, rue de
 Rivoli, dans un hôtel, — au Havre dans un hôtel. Pour
 
-Waldeck-Rousseau
 è leurs actes de procédure, ils s'étaient domiciliés &
 Londres, sans plus de précision. Cependant, leur avocat
 affirmait que 100 millions pour eux n'étaient pas une
 affaire, — car ils étaient plus riches du double! — Ils
 n'avaient pas un établissement soit à la ville, soit aux
-champs !
 
 5° Ces actes étaient nuls, cette nullité les Humbert ne .
 l'avaient jamais fait valoir. C'est là Le fait qui a déterminé mes soupçons.
@@ -2025,8 +1499,6 @@ Tribunal de la Seine.
 
 Une décision antérieure, devenue définitive, avait
 jugé bonne la iransaction sur laquelle on plaidait
-
-L'AFFAIRE HUMBERT
 
 depuis tant d'années. Elle rendait aux Humbert la libre
 disposition de la fortune moyennant payement de trois
@@ -2060,7 +1532,6 @@ En dépit de l'insistance de l'avoué de M. Duret,
 M. Guyon, l'affaire fut renvoyée de quinzaine en quin- ”
 zaine. Elle ne vint à l'audience qu'après que M. Fori-
 
-Waldeck-Rousseau
 chon fut devenu premier président, et ce qui vint à
 l'audience ce fut la question de non-recevabilité de
 notre intervention et non l'affaire Humbert-Crawford
@@ -2094,7 +1565,6 @@ l'avait fait M. Duret,
 - L'autre, que je ne nomme pas, parce qu'il est venu à
 mon cabinet en client, m'exposa que ses neveux et
 
-L'AFFAIRE HUMBERT
 pupilles étaient également créanciers, du chef de leur
 père, pour prêt, d'une somme très importante. Je lui ;
 donnai le même conseil. Ni l'un ni l'autre n'ont engagé
@@ -2126,7 +1596,6 @@ plaide, donc j'hérite. Puis, les Crawford venant peut-
 être à disparaître, on continuait de plaider en leur nom.
 Cette hypothèse était aventureuse, sans doute, mais
 
-Waldeck-Rousseau
 moins étrange que celle des gens inventant spontanément par le seul effort de leur imagination cette prodigieuse comédie.
 Un peu plus tard encore, ce fut mon confrère et collègue Vallé qui, ayant lu aussi ma plaidoirie, me parla
 d'un procès dont il était chargé par un M. Cattaui. Je ;
@@ -2152,8 +1621,6 @@ fut : qu'une heure après la plainte déposée, l'instruction
 sera ouverte, € et, me dit-il, ce sera bien simple : nous
 perquisitionnerons, nous ferons ouvrir le coffre, et, si
 les valeurs existent, il faudra bien nous les montrer ».
-
-L'AFFAIRE HUMBERT
 
 M. Vallé vint le lendemain ou le surlendemain me
 voir, c'était avant le premier tour de scrutin; après
@@ -2189,7 +1656,6 @@ Il m'apprit alors que son client venait enfin de se
 décider à déposer la plainte et je lui donnai le conseil
 d'aller immédiatement la remettre au procureur de la
 
-Waldeck-Rousseau
 République, au besoin à son domicile, si, en raison du
 jour férié, il n'était pas à son cabinet. C'est ce qui fut
 fait, trop tard.
@@ -2207,12 +1673,10 @@ procuraient simplement les deux jours d'avance nécessaires pour disparaître.
 L'idée compliquée d'une comédie judiciaire, celle
 romanesque d'une figuration de titres, se sont fait jour
 aisément; nul n'a soupçonné la fuite logique et devenue
-nécessaire.
 
 A trois heures, on était avisé au ministère de l'inté-
 rieur de l'absence des Humbert. On travaillait à forcer
 le coffre. La Sûreté télégraphia à tous les commissaires spéciaux un signalement provisoire, complété
-bientôt.
 
 Quant aux mesures prises de suite pour arriver à
 
@@ -2227,14 +1691,12 @@ Trois mois avant ce brusque dénouement, personne
 ne voulait admettre la possibilité d'une mystification,
 dont les hommes d'affaires les plus avisés, les magis-
 
-L'AFFAIRE HUMBERT
 trats les plus défiants, les prêteurs les plus difficiles
 sur leurs sûretés, auraient été victimes, et qui se serait
 déroulée devant tous les degrés de juridiction.
 
 Huit jours après, avec la même unanimité, on a
 décidé que des pièges si grossiers ne pouvaient tromper
-personne !…
 
 La vérité est plus simple. Le début, seul, dans une
 pareille affaire était difficile : le premier tableau une
@@ -2259,8 +1721,6 @@ frappe d'indisponibilité, voilà qui est bien plus ingé-
 nieux encore, puisque cette cenvention explique le fait
 inexplicable d'un héritier millionnaire réduit à emprunter. Cette double combinaison est même si géniale que
 
-, DRE nn à. Lt RS 4
-Waldeck-Rousseau |
 je ne me résignerai qu'en face de l'évidence à croire
 qu'elle a été imaginée dans le vide. Tout n'est pas fiction : il y a eu, au début, quelque réalité qu'il est
 impossible de préciser.
@@ -2290,9 +1750,6 @@ de leur procédure. Par hasard, oui. Les relations des
 Humbert avec Girard ne permettaient nullement de
 conclure à la fraude. Ce procès, envisagé isolément,
 
-PR *
-L'AFFAIRE HUMBERT
-
 comme chacun de tous les autres, ne contenait aucun
 germe de révélation. Il a fallu une certaine habitude,
 un certain goût de clarté, pour s'aviser de reconstituer
@@ -2305,83 +1762,24 @@ resser Cattauï. Celui-ci payé, combien de temps encore
 le syllogisme cartésien aurait-il fait son œuvre ?
 
 | RNA Re ee AT FES TL VAN dE EAN MONO ARE k
-Re nn PRISE M RES
-! CHAN SMIEE ERA ALES OM AE SURSO PSN
-MAIS 25 À f à 4 QE d'A EU PACS TUNER
-5 ‘ LR PA ER do SRE
-ac ARE | 11 ONE
-DAMEAN: à 1 Ne NON A ANSE ASE ;
-
-SRE : FT Ra ie Fe 6 k
-HAE RARE RNA RSS IE
-12440 | An à
-
-EN SM i * 5} A APRES
-
-‘1 : ORNE : à PA VUE he
 
 Meur 17 An Vip mue Le RE ARR 1x À
-“KR d PRE re a È
-4 RE : L ! ; d MALTA EE NTI PNR
 MCE | et 2 STE AE HORS AN ER ARE
-mo 0 PP AE AM RL
-
-D 3 es Ji M AR
-
-Re
-
-HU Ann SE NES F1 10 AMP TE NSEA EE) CLR NE ETES
 
 2 TENNIS CANNES Pasot LR A1 ET).
 
 RL Cia YARDAE Y'a TEE de A RER APE A SFR :
-le 0 | CMOS EUR
-DRE ©: FRERE (A
-"ie TA Et AT 1} AIRES
-1e Tee Re 27
-2 NLOPRe #0 RAA ‘+ Teit 1e ANT
-7 We 2 ROPPRN r eer
-% 2 LE 27% À Le Fo AGE LE
 ‘L'ERRSCES pus { ÉPICES
-0 | : LUN
-NS eV
-M LR np R RE
-ANRT E . f M Le
-F mA ef 2%
-: MF ONCE ; : FE À
-LTRRESS à 10
-PER ti MRRENTS
-A: LA SUR [ee - L ; ç; D
-1 SÉA OE É « ,' P4 IPS
-cat pr arab S
-3 “UE > : 1% ONE
-Fe: : : 5 41
-Se. 5 NOTES
-“24 : SA à > Fa +
-- CR : CR
-L REP « Ho
 | SN 4 N 22 ANNEE
 si QE bi « L ÿ " TMS CNT SR Pre
-Le IP FR RER EUR
 
 ue AE Gare à ie À} las pa. (T on RATE PAT TER
 Po LU Re je OPERA FA NX A on LR NEA RAT
-2 Sn HUE EAN Mr
-RL F ù ÿ HAS ARS bre TEE
 {FREE Le Fig RUES
 NN) (ai | textes suivants : UN QE RL dar
-: WANT M R
-LE ! M A LEURS CESR
-AE } : { LV res US LERARE,
-Lieu NORRIS
 ge | 4 HA NIAUMRRSORS ANA NE
 | ‘4 A : LRO EN ESS
-BA ER Rss (NT ESA
 | AUS NAS * “ 1E Ki ter yo Ce ON
-1 Fa ' 7, li EAN
-11 FANS é < k NRA per
-f VUE À j NET AND LE à
-ï #0 {APR ; FA dl MAP NO ERE
 | l'E PAT MERS
 
 Une autre responsabilité encore plus grande, se trouve
@@ -2409,19 +1807,15 @@ dans l'avenir, et il a laissé dans ses papiers le récit d'une
 visite que lui fit le général Percin, chef du cabinet militaire
 du général André. M. Percin, écœuré de l'importance
 donnée aux renseignements maçonniques et aux fiches du
-capitaine Mollin, venait confesser à M. Waldeck-Rousseau
 l'indignité des procédés policiers du ministre de la guerre.
 Voici le résumé de cet entretien : il est tout entier de la
 main de M. Waldeck-Rousseau :
 
 35, rue de l'Université,
-24 décembre 1902.
 Reçu la visite du général Percin. Au mois de
 . septembre, le capitaine Humbert, venu à Corbeil pour
 m'entretenir de la situation difficile qui lui était faite,
 me donnait incidemment sur certaines pratiques du
-
-Waldeck-Rousseau
 
 cabinet cette indication : que certains correspondants
 spontanés étaient trop écoutés lorsqu'il s'agissait de
@@ -2452,10 +1846,6 @@ fournis par le premier venu. La délation n'avait pas
 besoin d'être encouragée. Le général m'a promis qu'il
 se conformerait à la ligne de conduite que je lui
 
-indiquais.
-
-CONTRE LES DÉLATEURS
-
 30 décembre. — Vu Combes. Je lui ai rapporté la
 conversation précédente. Mon avis est que le procédé
 mis en vigueur à la guerre est inadmissible et déchaïînera
@@ -2470,60 +1860,20 @@ exacte du texte lui-même afin que les amis de M. WaldeckRousseau puissent véri
 lauthenticité de ce témoignage posthume si accablant :
 
 [Suivait dans le Figaro une épreuve du cliché de cette
-photographie.]
 
-IV.
-
-PRET PATES A ATSE US LAAMAIROT UTSR F
-HE LES RER EE PTE PANERNOR
-RARE PF ANA He SR A TR SAS
-Br CR A IE EURE CU EE GET CREER ul
 M à à À IA 7 ait à L'etr Ve TR :
-7 30 ES x ; RCE RAI TE 0 }! FAITES -
-+ pu “ Ü F Me o SAT TRS a AU
-BAS Co M
-4 ï { 2e FEI Fe pu ROSES à
-PC SOINES CA 1: Set) D'OR
-1 TN je FEAR LE 21 RER
 | LR ARRRRRE ñ For + ET 4 CAF CR ONIRRRERS
-cn. Ÿ Ve y SRE À
-FPE # LS ROSES
-à AE Ê DR ART Fe nie
-LAETE SUR 7+- ER LE
-D: 6 j AUALUR RIT
-LES Le : ë ADR MO MA à (23
 
 dre Li RE dal MOT RAD SEE OR AU À LA DISPO M
-RTS E AE CAR ART ATEN PRIAL S PR NRC K 4 9
-A)" 4 A û t LL s 1 CES LE
 | Ten (HE
-127 4120 x 5 A.
-* é 4 en KL?
-DAT DOCUMENTS Re
-RATES es Li À Me Rene à
 | TRES à en UE
-D DU JOURNAL OFFICIEL 4
-LETTRES NN ES à £ UE NE
 nn Fr je i ñ FH
-7 tee k ». 1 PÉNANES
-RTL € : XNA
-Hs CE ; : ÉNERENE
-MAN ee , - * ‘AMOR
 | ENTRE) 4 tu DE ne WHEe
-EL NE : MERE AA A M
-Re M! a - D en
-PE à gr : 1 MATE TS
-19 -ÀE AR FOUR et MR
-F \ RS OM ENER ; : { 4 À : Lo) (Re +
-QUE APT À “À 2 A PATATE
 
 Le Journal officiel du dimanche 28 juin 1903 publiait
 le compte rendu suivant :
 
-14 ia SN SSNINERS ESS
-SENAT
 Session ordinaire de 1903
-COMPTE RENDU IN EXTENSO. — SOIXANTIÈME SÉANCE
 Séance du samedi 27 juin
 Suite de la discussion du projet de loi, adopté par la
 Chambre des députés, modifiant la procédure instituée par l'article ro de la loi du 20 mars 1883 et
@@ -2531,14 +1881,12 @@ par les articles 41 à 50 du décret du 7 avril 1887
 pour la construction d'office des maisons d'école. —
 Suite de la discussion générale : MM. Béraud, rapporteur; Sébline, Bruman, commissaire du Gouvernement; Combes, président du conseil; WaldeckRousseau. — Clôture de la discussion générale. —
 Scrutin sur le passage à la discussion des articles.
-PRÉSIDENCE DE M. FALLIÈRES
 M. Sébline. — Je ne sais pas qui l'a dit; mais si
 cette loi ne peut pas être appliquée sans une série de
 lois de circonstance, je suis fondé à dire : ou cette loi a
 été mal faite, ou elle est mal appliquée. (Très bien! à
 droite et au centre)
 M. Waldeck-Rousseau. — Je demande la parole.
-(Mouvement)
 
 M. Waldeck-Rousseau. — Messieurs, si ce débat
 
@@ -2599,8 +1947,6 @@ suflisait pas à elle-même; donc, en la faisant voter telle
 
 qu'elle est sortie de la délibération des deux Chambres,
 
-pre |
-PREMIER DISCOURS AU SÉNAT
 nous avons manqué de prévoyance; et des esprits
 moins bienveillants que le sien tirent des mêmes considérations et des mêmes circonstances, cette conclusion
 plus pénible que nous avons sans doute prévu les difficultés, mais que nous en avons gardé le secret.
@@ -2632,10 +1978,8 @@ d'efforts et de ténacité, qui intéressait l'état de
 soixante-quinze mille personnes, — je ne parle que des
 religieux et des religieuses non autorisés, — et qui
 
-Waldeck-Rousseau
 devait, lentement et graduellement, déterminer une
 transformation profonde dans tout l'organisme départemental et communal des services d'assistance et des
-services d'enseignement. ,
 
 ÿ Pour penser ainsi, il aurait fallu, messieurs, ne point
 considérer — je ne parle plus des difficultés de la tâche
@@ -2643,8 +1987,6 @@ considérer — je ne parle plus des difficultés de la tâche
 il fallait envisager le problème financier et l'envisager
 à un point de vue qui est, je crois, celui auquel tous les
 républicains de cette Assemblée se seraient eux-mêmes
-
-; placés.
 
 Nous avions devant nous un programme financier qui
 n'était pas au-dessous de 110 millions — et M. le ministre de l'instruction publique ne me contredira pas —
@@ -2665,7 +2007,6 @@ Je n'ai pas besoin de dire que non seulement il n'était
 pas possible — et le Gouvernement le pense comme
 moi — d'engager sur l'heure un programme financier
 
-PREMIER DISCOURS AU SÉNAT
 de cette importance, parce que les ressources financières ne s'y prêtaient pas, mais que tout gouvernement
 devait encore obéir à d'autres soucis.
 
@@ -2693,9 +2034,6 @@ quand on envisage l'œuvre de ces quinze dernières
 années, on voit que, sur les 36.000 et quelques communes de France, il n'y en a plus que 2.500 qui n'aient
 pas exécuté les prescriptions de la loi.
 
-73 y
-
-Waldeck-Rousseau met
 : A plus forte raison, et frappé du fardeau inévitable
 qu'imposait la loi de 19071, ne pouvait-on songer à en
 augmenter le poids et à assumer des obligations qui,
@@ -2732,12 +2070,9 @@ formé. (C'est cela !)
 
 Or, le raisonnement qui nous a déterminés se présen-
 
-à PREMIER DISCOURS AU SÉNAT
-
 _ tait avec une force singulière. Il m'est arrivé de le
 soumettre à des amis politiques dont les opinions
 sont loin d'être semblables ; il est toujours resté sans
-réplique.
 
 Jusqu'à la loi de 1907, quel était le régime légal des
 congrégalions ? Toutes les congrégations, en général,
@@ -2771,8 +2106,6 @@ court, mais qui achevait de donner à ces dispositions
 leur signification exacte. C'est l'honorable M. Bérenger
 qui était à la tribune. IL combattait la disposition
 
-dde AAA 1” ONE
-Waldeck-Rousseau
 . exigeant l'autorisation par une loi; il soutenait que,
 pour parvenir à cette autorisation, la procédure serait
 laborieuse, longue, pénible, incertaine; puis se plaçant
@@ -2783,11 +2116,9 @@ Je répondaïs par une dénégation; et, sur les bancs de
 cette Assemblée, le Journal officiel en a conservé la
 trace, c'étaient nos collègues qui répondaient : « Non!
 non! puisqu'il faut une loi. » (Applaudissements au
-{ centre)
 
 À coup sûr, messieurs, ce rapide commentaire n'impose une interprétation à personne.
 
-J'ai expérimenté souvent, ailleurs qu'au Parlement,
 que les magistrats, même en présence d'une déclaration
 du Gouvernement ou du rapporteur, conservent intact
 le droit d'interpréter les textes.
@@ -2808,10 +2139,6 @@ ce décret par un autre décret du 26 octobre 1902. Les
 expressions dont je parlais et que j'ai soulignées ont
 disparu et ce texte nouveau a permis l'application d'une
 méthode consistant à soumettre à une Chambre un
-
-‘à PREMIER DISCOURS AU SÉNAT
-
-F
 
 _ projet de loi dont le dispositif est ainsi conçu : « IL y a
 
@@ -2849,7 +2176,6 @@ et sans nombre; et si l'on eût compris qu'il était possible
 de faire des séries et des groupes, ah! la réponse était
 trop facile, il était aisé de dire que la procédure législative serait cent fois plus expéditive que celle du conseil
 d'État. (Très bien! très bien! sur plusieurs bancs au
-centre)
 
 Aussi, lorsqu'on vit la Chambre grouper les demandes
 et prononcer le rejet en bloc et par catégories, au lieu
@@ -2858,8 +2184,6 @@ la loi a paru devenir plus irritante, et l'on a pu dire et
 un homme d'État qui siégeait jadis sur ces bancs a pu
 écrire que, ce jour-là, la Chambre des députés avait
 
-À M PRE £
-Waldeck-Rousseau J
 Ï fait une loi nouvelle destructrice de l'ancienne, parce
 | que, en effet, c'était un bouleversement profond apporté
 | dans son économie.
@@ -2868,7 +2192,6 @@ IE Sur ce point, me voici affranchi de l'embarras qui
 l'aflirmation que je viens de formuler, je ne suis plus
 : exposé à me trouver en contradiction avec l'opinion
 qui, à la première heure du moins, fut exprimée par le
-ministère actuel.
 Une loi avait été jugée nécessaire : l'autorisation ne
 [et serait donnée qu'à bon escient; elle devrait être
 | mesurée, elle ne serait donnée qu'après une étude du
@@ -2884,7 +2207,6 @@ quelque éclairés qu'ils soient, non pas dans les bureaux
 | Chambre des députés de 54 projets de loi distincts.
 | C'était la mise en œuvre la plus claire, la plus franche
 et la plus ferme du système que je n'ai cessé de
-défendre!
 Ÿ Mais ce premier commentaire fut suivi d'un second.
 Au mois de janvier 1902, si je ne me trompe, M. le
 | président du conseil fut interpellé tout à la fois par
@@ -2892,13 +2214,9 @@ l'honorable M. Plichon et par l'honorable M. Meunier.
 Il eut l'occasion d'indiquer, avec les plus grands détails
 et avec une clarté et une précision absolues, comment
 
-15 PREMIER DISCOURS AU SÉNAT
-
 Fe il entendait appliquer la loi; et, aux paroles qu'il a
 
 Er prononcées, je n'aurais ni un mot à retrancher ni un
-
-_ mot à ajouter.
 
 x Que disait-il en effet?
 
@@ -2922,7 +2240,6 @@ _ des questions de temps et de lieux. »
 % Or, comment se livrer à ce contrôle si précis, à cet
 examen si détaillé, si l'on n'entre pas dans l'examen de
 chaque demande, des faits particuliers et de chaque
-espèce.
 
 Voici donc la commission de la Chambre saisie. Que
 décida-t-elle ?
@@ -2930,7 +2247,6 @@ décida-t-elle ?
 Elle décida d'abord de réunir en un seul projet de loi
 les 54 projets distincts déposés par le Gouvernement.
 Elle en fit 54 articles. Rien n'était plus conforme au
-droit parlementaire.
 
 Mais après avoir incorporé dans une seule loi ces
 54 articles, elle proposa de décider qu'ils ne seraient
@@ -2942,8 +2258,6 @@ moment de la nomination de votre commission des
 congrégations, je me suis élevé de toutes mes forces.
 Et pour m'y résoudre, je n'ai eu qu'à me poser une
 question bien simple.
-
-Waldeck-Rousseau
 
 Si, ou devant la Chambre, ou devant le Sénat, j'avais
 laissé paraître que lorsque les demandes avaient été
@@ -2964,7 +2278,6 @@ d'abandonner les résolutions qu'elle avait prises. Il
 annonçait qu'il serait obligé de les combattre, ajoutant
 toutefois qu'il n'irait pas, pour assurer l'échec de la
 commission, jusqu'à poser la question ministérielle.
-(Mouvements divers)
 
 Alors, la commission réfléchit et elle fit au Gouvernement une concession ; elle avait jusque-là — passez-moi
 une locution un peu vulgaire — mis les 54 projets dans
@@ -2985,15 +2298,11 @@ trouvent les enseignants, ici se trouvent les commer-
 était d'hospitaliers. Et, pour vaincre la résistance
 légitime qui se manifestait dans les rangs de la majorité
 
-: 0 PREMIER DISCOURS AU SÉNAT
-
 _ républicaine, M. le président du conseil dut déclarer,
 acceptant une méthode dont je n'examine pas la portée
 
 _ juridique, (Mouvement) que les mêmes demandes qui
 auraient été rejetées par un vote général pourraient
-être ultérieurement reproduites. (Légères rumeurs au
-centre)
 
 J'abrège. La Chambre des députés était appelée à
 
@@ -3009,7 +2318,6 @@ bizarre, si contradictoire où toutes les positions furent
 que si elle persistait à soutenir les propositions qu'il
 avait d'abord défendues, et non point celles de la commission qu'il avait combattues, il croirait n'avoir pas
 conservé sa confiance. (Rires et applaudissements au
-centre)
 
 M. Aucoin. — Ce sont ceux qui n'ont pas voté la loi
 qui vous applaudissent. (Très bien!)
@@ -3021,9 +2329,6 @@ président du conseil déclarait, il y a peu de temps, être
 sans précédent, et qui est, en tout cas, il me semble,
 tout à fait hors de propos avec ce qu'on devait attendre
 
-81 V.
-
-Waldeck-Rousseau
 : d'une application non moins ferme, non moins tenace,
 mais plus patiente et plus mesurée. :
 
@@ -3063,7 +2368,6 @@ s'étaient inclinés devant la loi, et, jusque dans le même
 ordre, par des violences sans péril, des discours poussés
 à la diatribe, ceux-là qui n'avaient pu entraîner avec
 
-TS D EN TT EL ET ME LT E N
 #4 & PREMIER DISCOURS AU SÉNAT
 3 eux les plus sages s'appliquèrent à rendre insoutenable
 __ une cause qui n'était déjà plus la leur; et, paradoxe sin-
@@ -3097,8 +2401,6 @@ on a fixé la limite. (Très bien!)
 Ce que nous avons voulu, et je me cite moi-même,
 c'était « restaurer dans leur plénitude les prérogatives
 nécessaires de l'État », c'était « fonder une société civile assez forte pour qu'elle pût se montrer respectueuse de tous les droits de la conscience »,.et, à me- »
-
-Waldeck-Rousseau
 
 sure qu'on a déployé plus d'efforts pour unir et solidaiser dans une même résistance et la libre pratique des
 cultes, et la cause des ordres monastiques, nous nous
@@ -3135,10 +2437,6 @@ temps n'a pas manqué de vérifier.
 J'ai moi-même dit, messieurs, à la Chambre des
 députés, que la politique comptait avec les faits et |
 
-84 ‘
-
-F: PREMIER DISCOURS AU SÉNAT
-
 ; qu'entre tous les faits il n'en était pas de plus considé-
 rable que ce catholicisme, traversant les siècles, jusqu'à :
 la Réforme, avec le monopole de l'enseignement, avec
@@ -3147,7 +2445,6 @@ et survivant aux grands mouvements intellectuels ou
 du seizième ou du dix-huitième siècle, sinon comme
 une loi religieuse fidèlement observée par tous, au
 moins comme un statut social dont bien peu se sont
-départis. (Nouvelles marques d'approbation)
 
 J'admire l'assurance avec laquelle on prend texte de
 ce qui se passe dans d'autres pays. Nous n'avons pas
@@ -3173,11 +2470,9 @@ Nous portons le poids du long atavisme dont parlait
 Paul Bert et par lequel il expliquait ces mouvements
 
 ; soudains et ces coalitions brusques qu'hier encore il
-fallait dompter.
 
 Les défaillances du passé nous obligent d'exercer de
 
-Waldeck-Rousseau
 nombreuses reprises, qu'il n'est pas malaisé de pré-
 senter aux esprits prévenus comme des usurpations.
 Aussi ne s'exposerait-on pas, sans un véritable péril,
@@ -3197,7 +2492,6 @@ synthèses abstraites, mais la mesure et la sauvegarde de
 ses droits; et c'est parce que nous sommes un paÿs de
 légalité, qu'ayant rencontré dans d'autres entreprises
 des résistances non moins formidables, nous les avons
-surmontées. 4
 
 Faut-il rappeler toutes les difficultés auxquelles se
 heurta l'exécution de l'œuvre de Jules Ferry ? Il nous a
@@ -3211,14 +2505,11 @@ l'arme qui nous a, tant de fois, assuré la victoire. Alors,
 messieurs, c'est l'existence même de la loi de 1907 qui
 
 sos serait compromise. N'allons pas au delà de ce que nous
-avions voulu.
 
 Nous avons voulu soustraire la société moderne à
 l'envahissement d'une milice devenue trop hardie et qui
 préparait pour l'avenir non pas la défaite de l'esprit
 moderne irrévocablement affranchi, mais des luttes plus
-
-D | PREMIER DISCOURS AU SÉNAT 3
 
 ‘a _ dommageables pour notre pays et des déchirements
 
@@ -3254,63 +2545,22 @@ testé contre le huis clos des conseils de guerre pour admettre jamais le huis c
 
 NE RO AS se da re rar
 SERIES Fes PARA NE AT PR Ron AA DIR EDS
-Es F : S RARE PORT RATE ER pa MA RUE: A DAV
-AMENER : Fe LATE MERE an FRRDE
-ES AIN $ + FAN ÉNEESS SUR
-ÉRTENl © : TT MOSS TRR
 HAS NAE Ne si Ù LPS LATE RTS TRES NA RrE
-ER ; h EPS ONE FREE NEO
-KE à AR FE MURRSE EUR re
-rt LL ROIS CS AE
-LÉ NEER A
-r13 ETES : ‘1 MS MR ta
-SOLE LE Fr: EE CVS
-: ETS ï * :, 9e, TANT NP EORIN ASE
-Mate D
-EU FT PANNE
-1 re % NS ARTISTES
-D. | 1002
-PR ANNE £ ù à (4 GER A OME PANEE
 
 Ah en D Vu D ÉN OREERNEESre e
-1 a TU RONA 22e VIS RE RS TS ON DE RER ME E"
-LG ER TE AR UN Er CRU PUMA EU SEAT ES RAA RER ER
 RTE RAR ERNe MR PAR ne NL RS LR AUACTES
 TA Séncvs Ces A CT MA EM AA RUE ne AE PA ro DIT RS
-: à CES A ÿ VAR
-A es < A 1
 Ta HR à . = ut es
-PE re €
-LES :
-: JON ENEMNER 3 “ SUEANE
-+2 FRE ; lé
-; ne LEA < AT ES
 je AMOIe ME ARE US eee) F ARE
-PA LEA D = 4 TPM ARR STE TT Pr AO LATE
-AE OR RE eat DES UE Ê CSS 13
 
 Le Journal oficiel du samedi 27 notenbre M
 
 « 7 EME LI: F EEE ES Pre SA Ron
 ‘10 publiait le compte rendu suivant : TROIE
-LITE ri : XF ESS RCE Er 2 :
-L'HNE ER PR RES
-
-ÉLSNES 2> f LIVE 2 Ève PR
-
-10e ee
 
 | MISE ! a CNE
 
-Un Ra |
-
-:, 348
-
-J SÉNAT
-
 ; Session extraordinaire de 1903
-
-Ps. COMPTE RENDU IN EXTENSO. — ONZIÈME SÉANCE
 
 #4 Séance du vendredi 20 novembre
 
@@ -3330,25 +2580,15 @@ E du projet du gouvernement, devenu l'article 2 du
 
 4 projet de loi. — Amendement de M. Delpech :
 
-4 MM. Thézard, rapporteur; Dominique Delahaye,
-
 Maxime Lecomte, Combes, président du conseil, ministre de l'intérieur et des cultes; Waldeck-Rousseau,
 Clemenceau. — Adcption de la première partie du
 paragraphe c. — Scrutin sur le maintien des mots
 « non autorisée ». Rejet. — Adoption de l'ensemble
 du paragraphe c, moins les mots « non autorisée ».
 — Renvoi de la suite de la discussion à la prochaine
-séance.
-
-, PRÉSIDENCE DE M. FALLIÈRES
 
 : M. le président. — La parole est à M. Waldeck-
 
-à Rousseau. (Mouvement d'attention)
-
-Ë 91
-
-Waldeck-Rousseau
 M. Waldeck-Rousseau. — Messieurs, des raisons
 qui n'ont rien à voir avec la politique m'avaient conseillé de ne pas me mêler à ce débat et je me proposais
 ; seulement, en motivant mon vote, d'indiquer comment
@@ -3358,7 +2598,6 @@ Mais l'intervention à cette tribune de notre honorable
 collègue M. Delpech, les conclusions qu'il a cru pouvoir
 tirer de certaines de mes paroles qu'il a reproduites,
 me font un devoir d'anticiper sur l'heure que j'avais
-“Y choisie.
 
 M. Delpech a dit au Sénat en quels termes en 1883,
 C ici même, en 1901, à la Chambre des députés, j'ai parlé
@@ -3383,7 +2622,6 @@ quelle doit être la relation entre la loi des associations
 de se reporter aux déclarations que j'ai eu l'honneur
 de faire à un moment où les questions mêmes qui se
 
-DEUXIÈME DISCOURS AU SÉNAT
 débattent aujourd'hui étaient posées et où chacune |
 d'elles a reçu sa réponse.
 
@@ -3402,10 +2640,8 @@ ouvrir des établissements d'instruction — ils le peuvent
 congrégations autorisées qui se seront inclinées devant
 la Loi pourront donner l'enseignement — elles le peuvent
 et vous le savez. » (Applaudissements au centre et sur
-plusieurs bancs à gauche)
 
 Personne, je le suppose, messieurs, ne me fera l'injure de penser que je sois disposé à m''écarter de ces
-déclarations.
 
 Mais, puisque je suis à la tribune, et que j'ai fait en
 y montant l'effort qui me coûte le plus, je demande au
@@ -3420,8 +2656,6 @@ d'ordre particulier, non pas celle du pouvoir, mais celle
 des solutions proposées. Ceux qui aiment naturellement
 à vivre, ne füt-ce qu'un jour, sur les idées qu'ils se sont
 
-a
-Waldeck-Rousseau
 | formées la veille, éprouvent quelque embarras devant
 le spectacle sans cesse changeant qui leur est offertet
 les transformations qui ne portent pas sur les décors,
@@ -3452,8 +2686,6 @@ de résoudre en lui-même un problème scolaire. C'est
 dans ce but, je pense, que fut proposé l'amendement
 de notre honorable collègue M. Girard.
 
-a DEUXIÈME DISCOURS AU SÉNAT
-
 M. Girard, laissant de côté la loi de r9o1, oubliant
 que cette loi permet non pas seulement de retirer l'autorisation aux congrégations enseignantes qui l'ont
 obtenue, mais, à plus forte raison, de la retirer à chacun de leurs établissements, et que par là elle permet
@@ -3474,14 +2706,12 @@ M. Thézard a appelée un message. (Sourires) Il contenait en tout cas de très 
 En ce qui concernait l'interdiction de l'enseignement
 par le clergé séculier, il importait, disait le Gouvernement, de surseoir jusqu'au moment où l'on aurait
 statué sur la question des relations entre l'État et les
-Églises.
 
 J'avoue ne pas très bien comprendre la relation qui
 peut exister entre la séparation des Églises et de l'État,
 par exemple, et l'interdiction d'enseigner portée contre
 les prêtres séculiers ; et même, si je suis les inspira-
 
-Waldeck-Rousseau
 tions premières de ma raison, j'arrive à considérer que
 | moins le prêtre séculier sera fonctionnaire, que moins
 il sera dans la dépendance de l'État, et plus il sera
@@ -3507,13 +2737,10 @@ de nombreux établissements et disposer d'un nombre
 comme tout à fait en harmonie avec une sage méthode,
 c'était l'ajournement.
 Un mot, messieurs, sur le texte lui-même, sur cette
-interdiction d'enseigner aux congrégations autorisées.
 Ici, encore, je ne comprends pas aisément comment une
 congrégation autorisée — car le texte ne vous propose
 pas du tout de lui enlever l'autorisation — comment,
 dis-je, une congrégation autorisée à donner l'enseignement restera, en vertu de l'amendement de M. Delpech,
-
-DEUXIÈME DISCOURS AU SÉNAT
 
 une congrégation autorisée, mais à la condition de ne
 pas pouvoir donner l'enseignement. (Mouvements divers)
@@ -3534,20 +2761,16 @@ beaucoup ou, pour mieux dire, elle passe au second
 plan, en présence des réflexions que suggère tout naturellement la constatation d'un état de choses sollicitant
 à chaque instant un nouvel effort législatif, des armes
 nouvelles, je ne veux pas dire de nouveaux expé-
-dients.
 
 Lorsque, à une date récente, j'ai eu l'occasion de
 m'expliquer sur l'application de la loi sur les associations, j'ai fait connaître très librement et avec beaucoup de modération mes critiques. Je ne les renouvellerai pas et je me garderai d'affaiblir par là le mérite
 d'une prévoyance trop facile, en ayant l'air d'en
-triompher.
 
 Mais il est impossible de feindre d'ignorer tout ce
 qui s'est passé depuis ce moment.
 
 Le propre d'une campagne bien conçue et bien conduite semble être que son plan se simplifie à mesure
 qu'il s'exécute, et qu'il restera d'autant moins de
-
-97 VI
 
 Waldeck-Rousseau L
 : combats à livrer que l'on aura remporté plus d'avantages,
@@ -3577,13 +2800,9 @@ le costume; les sentiments sont restés les mêmes. =
 La vérité, c'est qu'il existe, en effet, une grande disproportion, non pas entre les résultats qu'on pouvait
 espérer et ceux qu'on a obtenus, mais entre les résultats obtenus et ceux qu'on avait laissé espérer; et le
 malaise, l'agitation que l'on constate n'ont pas d'autre
-cause. (Marques d'assentiment)
 
 Simples escarmouches! dit l'honorable M. Béraud.
 
-à 98
-
-De j DEUXIÈME DISCOURS AU SÉNAT
 Ah! messieurs, je le trouve bien exigeant et bien difli__  cile, si à tant de traits si frappants : dix mille écoles
 fermées, la force publique mise partout en mouvement,
 è une grande agitation propagée dans tout le pays, toute
@@ -3617,10 +2836,6 @@ choses qu'est née la pensée d'un premier expédient ; je
 Oui, beaucoup d'écoles se sont rouvertes ; ici, ce sont
 des laïques qui sont survenus ; là, des congréganistes
 : sécularisés, et les débats qui se sont déroulés devant
-; 99
-A.
-
-Waldeck-Rousseau
 
 les tribunaux autorisent à tenir pour certain que, de
 ; même qu'il y a eu des sécularisations sincères, il y a eu
@@ -3640,8 +2855,6 @@ Si le sécularisé demeure dans son ancienne commune,
 
 c'est affaire de myriamètres : bonne foi en deçà, comé-
 
-die au delà.
-
 D'autres ont préféré une solution plus absolue : ce fut
 ce monopole qui a succombé dans la dernière séance.
 Comme on était fort embarrassé de discerner quelles
@@ -3651,7 +2864,6 @@ seraient les initiatives favorables à l'État et les initiatives qui ne seraien
 Donc, le monopole a disparu. Le projet de M. Massé
 est gardé à vue par une commission, (Sourires) comme
 certains enfants qui ne donnent pas d'orgueil aux
-familles. (Æilarité générale)
 
 Mais il faut faire quelque chose. A toutes les périodes
 de notre histoire politique, l'opinion ambiante finit
@@ -3663,11 +2875,9 @@ tre aujourd'hui dans les entretiens d'hommes politiques
 qui ont la même foi républicaine, c'est: il faut cepen-
 | 100
 
-DEUXIÈME DISCOURS AU SÉNAT $
 dant faire quelque chose. Alors est survenu l'amendement de l'honorable M. Girard, retiré bientôt par
 M. Girard, mais aujourd'hui représenté pour la plus
 grande partie tout au moins par l'amendement de
-M. Delpech.
 
 Que proposait M. Alfred Girard ? De supprimer l'enseignement de toutes les congrégations autorisées. Et
 alors, messieurs, quand je tiens compte des résultats de
@@ -3688,14 +2898,10 @@ porte le respectueux défi à tous mes collègues d'affirmer que lorsqu'on aura 
 pourra soutenir encore que le droit d'enseigner ne doit
 pas être nécessairement refusé aux congrégations qui
 donnent l'enseignement primaire. (Très bien! — C'est
-vrai! au centre)
 
 Je vais plus loin. Vous partez de cette conception,
 vraie ou fausse, que laisser donner l'enseignement par
 
-IOI VI.
-
-Waldeck-Rousseau TRE
 des congréganistes même autorisés, tend à blesser la raï-
 4 son, le droit public, et vous aboutissez à ce paradoxe
 | qui me confond : tous les principes seraient méconnus
@@ -3712,7 +2918,6 @@ DR deux enseignements. (Nouvelle et vive approbation sur
 à les mêmes bancs)
 Quelles seront les difficultés du problème aïnsi rendu
 à ses termes vrais? C'est la question qu'il faut ré-
-soudre.
 Combien, monsieur le ministre de l'instruction pu-
 ‘ blique, aurez-vous d'enfants à recueillir au lendemain
 | du jour-où tous les établissements congréganistes sans
@@ -3725,13 +2930,10 @@ faudra-t-il de maîtres nouveaux ? 3
 Nous discutons une question scolaire, tous les orateurs qui ont passé à cette tribune l'ont élevée à de
 grandes hauteurs, mais à l'heure où je parle, il n'est
 | 102
-t
 
-Fe DEUXIÈME DISCOURS AU SÉNAT
 _ pas un d'entre vous qui ait reçu des éclaircissements sur
 __ un sujet aussi grave. Il ne faut pas en être outre mesure surpris puisqu'on n'a même pas jugé nécessaire,
 dans la commission, de les demander à l'honorable ministre de l'instruction publique. (Très bien! très bien!
-au centre)
 
 Eh bien, toutes ces choses, le Sénat a le droit de les
 savoir; je vais plus loin, il a le devoir de les savoir et
@@ -3740,7 +2942,6 @@ je me demande comment un instant il a pu sembler possible qu'un débat de cette 
 _  ladoption d'une résolution qui semblerait, en vérité,
 avoir été délibérée partout ailleurs que dans cette
 enceinte. (Nouvelles marques d'approbation sur les
-mémes bancs)
 
 J'ai entendu tout à l'heure avec quelque surprise l'honorabie président du conseil vous dire : « Mais il n'y à
 pas d'autre solution qui donne satisfaction à la logique,
@@ -3761,20 +2962,13 @@ nous départagera. Vous dites : « Nul ne pourrait ouvrir
 
 _ un établissement privé d'enseignement secondaire s'il
 
-103 :
-
-. Waldeck-Rousseau
 n'avait pas souscrit certaines déclarations et notamment cette déclaration qu'il n'appartenait pas à une
-À congrégation non autorisée. »
 4 M. le président du conseil. — A quelle date ?
 . M. Waldeck-Rousseau. — Et si cela ne veut pas
 û dire que le congréganiste dépendant d'une congrégation
 : autorisée pouvait donner l'enseignement, je demande ce
 à que désormais les mots signifient. (Applaudissements
-< au centre)
-n 1
 ë M. le président du conseil. — Je demande, moi, à
-: quelle date.
 , M. Waldeck-Rousseau. — Messieurs, je compren-
 ë drais encore ce qu'on nous propose de faire s'il y avait
 : péril en la demeure, si d'heure à heure, on devait conjurer un danger présent. N'êtes-vous donc pas armés ?
@@ -3791,12 +2985,9 @@ vous estimez que notre jeunesse soit en péril, un geste
 vous suffit pour qu'il soit fermé, que vous pouvez procé-
 der tout à la fois avec sûreté et avec mesure ; et vous
 voulez vous faire donner une injonction à laquelle vous
-\ 104
 |
 
-DEUXIÈME DISCOURS AU SÉNAT
 * serez dans l'impossibilité de répondre ! (Très bien! au
-centre)
 
 Oh! je sais, messieurs, que la loi de 1901 a beaucoup
 vieilli. (Sourires) On se plaît à raïller son insuffisance,
@@ -3833,7 +3024,6 @@ se mêle pas longtemps à la vie sociale sans lui demander bientôt toute sa par
 
 La loi de 1901 n'est donc pas une loi impuissante;
 
-Waldeck-Rousseau
 elle l'est si peu qu'elle vous fournit toutes les armes que
 vous pouvez exiger.
 
@@ -3852,52 +3042,21 @@ et vue, aucune explication ne peut affaiblir la portée de
 cette constatation que c'est cependant à la déclaration
 ministérielle lue, il y a huit jours, à cette tribune, que
 reste empruntée la solution que nous demandons au
-Sénat d'adopter. (Applaudissements répétés au centre
 1 et sur divers bancs à gauche)
 
-ke CUENX EE NE A NA Ou = RE PL PP TR Ut "
-RUSSE VUS NP RIET OA PRE PES TER SUN ARE RES PARENT
-RD Re ES D + MR PANNE ER nr LU NT ME
 LT ENE Era PS en EE M TIMES EMEA 2 Te DST De DL. SI CLR PERS
 ae ADS NAS NE S à eg Ÿ A fat AE
-F6 : . HÉTRE
 et Le Lots ? » si
-Mel TR CARE \ Q £ DRE COURS
-< TS PAU nt ÿ RO
 NES Fair 4: de REC X
-"re PORTES Se VERT
-TRE NOTES 1 à À > _ mi
-PT el : 5H à g: > AY LEA TER
-: FA TVR CORRE PASSES PURE LT TE 7 NET AS STONES
-ER Pen ER LUE Ra n
-LEA TE MSN ENTER AN LT M Da VE VE PA PAGE, LÉORIESEREE
 .&È SPACE EURE re HE DIN TRE RER EN Crea Ne ART Re ENS FAT
 
-LS UNS DEN / 7 ge À
-PE D RD RER RUN PE AUS Rad
 ; ÉR CEPEL SERRES PASS Li PUR A NE UT RE er ds
-HAINE Pine NM As
 SA ENS re RO Pre pe NL 2
-RUN Er CAR UMR ESA Al 4 Se Dr NT PAT Er EN LES RE 8 MEET re Ê
-& RS ARCS Sr AL EE ASE TESTER tbe PS RE LATE va <
-AT RAES ik > CE D 2 * AAA
 TES Jones RL
-FN A PR
-15 LÈRESSS
-nn, + TN
 LCA ce À CCE RS ARE CRNl
-HAE :) ONE ORRSRES
 se » < "ns TA CIE
-LL LTONSRREERSES = enr
-FLY 6 ? DANCE
 FREE RE on en 2
-mie CRISE
-d 7 Pre. ; : EU 74 Que
-HAL Ce . PE Lys 2 7e
-9 100 F he
-SATA ENTER r * ve Ltée" sTNRS ERA RER
 
-LA LE CE MERE DS ESS 2 a D Re NT
 FN ASE 5 4 À Ce pe pr
 : + MCE Ci-après la note communiquée à la presse et résu- |
 sa fi mant la déclaration faite par M. Waldeck-Rousseau le
@@ -3905,20 +3064,11 @@ sa fi mant la déclaration faite par M. Waldeck-Rousseau le
 Mon l'élection de la commission chargée de l'examen des
 ESS Te - sie DES a
 | V0 démarches d'autorisation déposées sur le bureau du
-Re ‘ Sal te PE
 ne Sénat: on a lu plus haut, page 19, la première analyse
 ; SO Pue L £ Los DER er Pl
 F1 de cette déclaration, qui parut trop longue, et ne fut
 1 2 pas communiquée à la presse. x D
-LT ANSE IS PA NESS
-À EAU b v RS
-we ee 4e 2 d 2 C2 Pe
-Ne STE R
 |: 2, FAR : AE
-Ce KE CITE
-4 | à
-
-: F
 
 L'application de la loi de 1901 soulève, à l'égard de
 toutes les congrégations en instance d'autorisation, une
@@ -3944,12 +3094,6 @@ d'ordres religieux. Le gouvernement les a combaïitues,
 - favorable ou défavorable, suivant qu'il s'agissait de
 - telle ou telle catégorie d'ordres religieux.
 
-3 III
-
-TT
-
-; ST PA NS ME 7
-Waldeck-Rousseau à
 Le Parlement, constitué juge de l'opportunité des autorisations, reste donc en présence de questions de fait,
 et, comme on dit au Palais, d' « espèces ».
 
@@ -3960,90 +3104,31 @@ poursuivent, que le Sénat n'hésitera sans doute pas à
 
 ; leur donner l'autorisation. \
 
-Re Se MER RE” Patte USE Sr SE 2 EL net ER AN [ES I RL ”
-F AR PART RON OR ELEC PAU SE Ha à 4 1119 TUE
-LUN Een Ê | ar S 5: RM RSS
-ne NA { 5 pe: BE*
-LE TRS à È PEL 02
 FA RACE la Le + KL LA EEE
-$ "A ? \ 3 ÿ SE PIN
-RE ; RE (12 5 SNS
-RAT PE : $ 5 FACE
-TER AS
-ES DES
-: DÉRNTT RS À ; + EURE
-re DA " A
-LACS Ÿ cs e ag ” ' TE AVC *
-SORE ae à +: ee =
-DT |! 4 ARS,
-MAPS à : re Dee,
-+ CRU, - à fo CCE
-LIT Se £ KT
-E ï Ep É < 1 LPO
-ER D L a + > ; HE FTRAES
 
-Sn
-our ue RE
 ! Ta SP TES À re aus a AO, MS SALLE MT à
-511 PAS NPA A RUES | k
 | LE TSERS : Root . LORS FRS A:
 u VX EEE Fi \ Eee PT MES ANSE Ce + 2 PEU es
-BRETON : ÉCRURE ÉD ÉTNET e 42
-FT EEE : = Fes HR RER RE
-:: FRERES = à He NS « pa Eur RE a he
 |} LESSRREENSS Dr
-ÿ ES se HAINE KE
-ARTE Pe LR Tee A BTS
 ( j nu” GUuv de Non LEE ES É Se :
-Ai. Sr SAMU a 2 FT NE ASE RESE
-À LUE VER eo E 1€ AE
 | Rire ET see à A nn SE
 | PURE: À HU 4 RICE ESS EE
-jh KMYE Fe … RARE
-VS) NE LL Re : UN
-f PACE CE RES RSS
-= LR ES RES ù Fe L A ES rs
-TAC [Fe pas * A # ERA M CAPAL PSS 4 ARR AR,
 LU ne ESC SC ARNTR EE
 
-PA se RAD LU P Es VOLE Pie Fe GEL F7
-s DR NUE UP Ne OURS à ER MARS So) FROM ES
-RES ‘4 Late
 | ps ACT VÉRS
 ré AC NI
-TS, As Se Re.
-+ D r "7 PCA
 LASER 3 ne FA
-0 : #1 M
 #4 A ; à + Di 2 ne
-Es à _ & ; MP OESS
 LKT pie L2 Le
-NOTES INÉDITES LES
-EN FER
-nn, Se
 EN + DE ti ne
-+2 50 L QU
-LCR - FT
-ME ET LES
 
 SR NS D MAN ce UP de WE MON APE AURA NS ER men EEE Eten
 ae eue ce AO OU ONU NN ERA AE ;
 
-SUTRAN MER ER Pr ARNO NON D TN CORRE à
-NA Vs ve À : Re RTL NT Hi AN SARNEES
 na ; 1 HE AR ONEEE ne LINE
 
-Mau) LL OR EN RER
 re CRAN è KI ER Valle te ee NE
-fi} ASS ae ; PR A Re 200 ei
-474 PR [+ PSN VRREER Er
-AT : DRE nie ee
 | "EE 2 s $ CS
-RC Le F x Nr ES CEE
-
-E
-
-‘4 te [papier blanc, au crayon]
 
 3 Il n'était pas besoin d'appeles de tous les
 1% points de l'horizon tant de (1) nuages flottants
@@ -4053,8 +3138,6 @@ E
 . Je sens l'opinion troublée. Tandis que la
 + crainte de paraître faire des concessions à
 1e l'esprit clérical réunit à la dernière heure une
-: majorité (2) composée d'hommes politiques
-2e
 
 Louvt dont les uns trouvent le mouvement actuel trop
 
@@ -4067,15 +3150,9 @@ E, lent, dont les autres le trouvent trop rapide —
 ne plus à droite peuvent au contraire l'affaiblir.
 Do tant de en surcharge. Rayé : ces.
 
-_ (2) pariementaire en surcharge.
-
-D. $ I17 VIL, ù
-
-Waldeck-Rousseau 4
 constat Ce sont là des éventualités et des constatations qui méritaient d'être signalées au Sénat, +
 Gouv au Gouvernement, car c'est une fausse interinterpret®" prétation du parlement, celle qui semble réserexclusivt ver exclusivement à l'opposition systématique :
 opp°* le soin de lui faire entendre des conseils. |
-[papier blanc, au crayon] E
 Il se plaint que les lois nouvelles se suc-
 = cèdent, d'un caractère exceptionnel parfois, il
 Parlemt en conclut qu'en la proposant au Parlement
@@ -4104,7 +3181,6 @@ créé du jour au lendemain (1) une de ces situa-
 
 F (1) Rayé : des obligations des charges. ;
 
-LL RE Na nNanan 2er ASE Phys ja Lens Re avi EP
 |. SSSR NOTES INÉDITES :
 pes: - tions auxquelles ni les ressorts ordinaires du
 pouvernt gouvernement ni ses ressources ne suflisent — <
@@ -4118,20 +3194,12 @@ LR _ étaient plutôt exclues —
 | eh — C'est ce qui résulte du Livre Jaune.
 L'4 — Mais à vrai dire toutes les difficultés de
 3 l'heure présente ont passé par une même
-L +10 . fissure — :
 art. . les articles 13 et 18.
-s te
-4 É sd [papier blanc, au crayon, verso]
 9 Je n'ignore pas que certains ordres n'ont rien
 rapplication négligé pour déterminer une application de la
 instant loi qui fût instantanée.
-12e c 5
 E 8 Rien n'était plus conforme à leur politique.
-ve :
 
-: | TE a
-f N [papier blanc, au crayon]
-@
 te Je n'ai pas cédé seult à une lassitude qui se conciliait
 | mal avec la constante application et le labeur continu
 qu'impose la responsabilité du gouv'. Il m'a paru nécessaire dans l'intérêt supérieur du régime de montrer
@@ -4153,46 +3221,31 @@ limiter le personnel —
 — de réduire la main-morte ?
 oui puisqu'elle permet de
 limiter le patrimoine
-() rayé en marge : Débat élargi.
-
-th FH + D Ld
-NOTES INÉDITES
 
 — d'exercer sur les manifestations excessives un
 
-contrôle ? ; : :
-oui puisque dissolution.
 Mais n° n'avons jamais eu la témérité de penser qu'elle
 permit en 6 mois ou en une année de transformer l'âme
-d'un 1/2 siècle — ”
-[papier blanc, au crayon, verso]
 elle intéressait 70.000 pers. l'organ® de l'ass. et de
 l''instr. dans toutes les communes elle comportait pour
 _l'enseignt seult un progr de 110 m. m.
 
 Les chiffres donnés 59 m. m. et 9.500.000
 mais si on ajoute à cela dépense
-de la loi de 1886, 2550 — 12 et 110 —
 
 Non seul‘n‘ne trouverons pas dans nos finances l'élasticité nécessaire, mais si on précipitait la réalisation
 d'une œuvre qui devait être Fan
 fallait renoncer et pour combien de temps à toute
-réforme sociale !
 
 On vient de discuter la loi sur l'Ass. obl. un seul min.
 est resté muet. des finances demandez-lui s'il est
 possible de doter ce service
 si le budget doit être grevé du chef de l'enseignt d'une
 charge annuelle de 12 mill. et d'une dép. extraor. de 52 *
-ou de 110 …
 
 Que la loi de 1907 n'a pas suffi à l'œuvre qu'on a
 entreprise, c'est lui reprocher de ne pas s'être retournée
 contre la pensée qui l'avait inspirée.
-
-I2I
-
-Waldeck-Rousseau : 5
 
 Et maint®rant, — si déclare prêt... cette loi n'est-elle
 
@@ -4204,9 +3257,6 @@ pas grave, l'agitation hier apaisée ne reparaît-elle pas
 Ainsi son argum‘#tior pourr'it devenir plus pressante,
 mais elle ne me convaincrait pas et je me refuse à
 reconnaître que je ne sais quelle fatalité m'ait condamné à n'être que l'homme des situations trop diffi-
-
-“| ciles.
-[papier blanc, au crayon]
 
 Le débat s'est élargi — on ne saurait en être surpris.
 écho de polémiques auxquelles, comme auteur de la loi,
@@ -4228,7 +3278,6 @@ qu'il paraîtrait être en contradiction avec lui-même.
 | Ce qui pèse sur l'application de la loi ce qui la
 rendue plus irritante c'est qu'on [a pu] peut dire et on
 
-NOTES INÉDITES
 la dit (x) qu'elle ne tenait pas un cpte suflist des engagements qu'elle avait consacrés et d'autre part qu'on a à
 voulu lui faire produire des effets différents de ceux qui
 avaient été prévus. ï
@@ -4247,14 +3296,11 @@ seule't que la demande sera portée ?.. -
 
 Décret du 16 août. « Cond. a l'aut. on a rejet.
 
-[papier blanc, au crayon]
-
 On a craint que procédw® trop longue — Décret du
 28 8.
 
 Il en est résulté que les conseils du Sénat ont manqué
 au Gouvt — sa tâche facilitée s'ils ne lui euss®?t pas fait
-défaut.
 
 Cette facilité a suggéré — non pas au gouv!', (2) une
 autre résolution plus hardie. Je ne sais s'il est un
@@ -4263,7 +3309,6 @@ autre résolution plus hardie. Je ne sais s'il est un
 
 (2) mais à rayé. à
 
-Waldeck-Rousseau
 membre de cette assemblée qui ait compris que le
 Parlt étant substitué au c” d'Etat, la demande ne serait
 & pas étudiée et jugée comme elle l'eût été par cette juridiction. à
@@ -4276,10 +3321,8 @@ pis d'examiner le fonds même des demandes et créé une
 Lu fin de non recevoir par catégorie, on a pu penser et
 M: Goblet a dit loi nouvelle destructrice de la première —
 Aucune solution ne paraissait plus imprévue
-— en 1901 deux solutions en présence,
 | l'une absolue et sommaire
 l'autre inspirée par la tradition du droit
-k public.
 Une autorisation nécessaire : elle ne serait
 donnée que...
 et de même...
@@ -4290,9 +3333,7 @@ il ne faut pas s'écarter, c'est le respect de la loi.
 | rencontré la coalition violente des préjugés et des inté-
 rêts, des passions et des habitudes
 i Tous ses efforts ont été vains.
-Fe 124
 
-NOTES INÉDITES
 [sur papier blanc, au crayon]
 — Ici je n'ai rien à dire que le gouvt n'ait admis et
 soutenu tout d'abord —
@@ -4300,8 +3341,6 @@ Dépôt du 2 XP... interpell®® Plichon 15 janvier.
 Son opinion ne fut pas partagée par la Com —
 54 articles — pas de discussion !
 © intervention dans le bureau — pour
-m'y résoudre.
-‘ Langage Combes.
 se rend à la comm".
 3 sacs au lieu d'un —
 Une question politique se substitua à l'acte de juridiction…
@@ -4331,41 +3370,23 @@ remède : la légalité.
 ——— signifie que dans la copie le mot est souli-
 
 |. 47 gné au crayon rouge ; are Ur
-HUE À £ A
 
 |: Res eme _ ES au crayon bleu ; STE
 
- KK —  —  aucraÿon noir; ESA
-
-l: 51 : S a =. — 7à la plume, noir ER
-
 | a SE
-ANTENNES e à à 52
-
-jee FASI ER
 
 : |: a 73 [à l'encre, sur feuille de papier ministre formant cote:]
 
 | 00 : : LORS
 
-FE TOR RR : SES CA LATE SR PT
-
-LE Sa ++ À > æ , Les É 7 1
-
-— Déclarations faites —
 — Aujourd'hui — opinions et propositions.
 — Se conformer à l'esprit de la loi — à sa pensée 2
-politique — :
 | Une autorisation jugée nécessaire
-\ demander.
 | 2
 { Chacune d'elles doit être
 ) examinée en elle-même.
 Cet examen s'impose d'autant plus
 |
-au Parlement.
-RSR SRE TRE
-Deux raisons d'accepter —
 1° La Ch. avait repoussé le système de l'autorisation
 sans personnalité
 donc
@@ -4373,16 +3394,8 @@ donc
 ce que cette procédure serait peu expéditive —
 demanderait beaucoup de temps.
 
-‘ ETES FA Hs CNE DANSE Me qu Br qe
 JA RS EE FAN RD TEE, je PURE
 TP CRE SNS LE RE ar à
-NET VX. 2 12 Cprilot À FAT OCR Pl
-LATE Re LR
-LR ; A RE
-se + t0 24108 2 3, ESS il
-ANNEE 4 44 | 27,7 PAROI RER
-0 #14 Les un 2) MR © L
-D ; [HS
 | LR ni 25 0 DRE
 rt: € ne
 
@@ -4390,7 +3403,6 @@ rt: € ne
 
 J'ai pensé ne devoir laisser à personne le soin de rappeler les déclarations que j'ai eu l'honneur d'apporter
 soit à la Chambre soit au Sénat lorsque fut discutée la
-loi de 1901.
 
 Que ces déclarations dictent mon vote, c'est ce dont
 personne ici ne saurait douter. Elles ont une portée
@@ -4401,13 +3413,8 @@ se rappellera qu'elles émanaïient du gouvernement ; qu'à
 ce titre elles n'ont pas sans doute été étrangères au
 vote d'un certain nombre de nos collègues. Elles ont
 par conséquent une place dans le nouveau débat qui
-s'engage.
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
-
-I
-
-Propositions soumises au Sénat.
 
 Je lui demande de se conformer au texte à l'esprit de
 la loi de 1901 (x) à la pensée politique qui la (2) domine.
@@ -4416,14 +3423,10 @@ la loi de 1901 (x) à la pensée politique qui la (2) domine.
 
 (5) La en surcharge.
 
-Waldeck-Rousseau 4
 Une autorisation a été jugée nécessaire pour qu'une
-: congrégation pût se former légalement.
 - Les ordres religieux qui n'avaient qu'une existence
 { de fait ont été mis en demeure de régulariser leur situa-
-à tion —
 à Demandes formées. Le Sénat est saisi de quelques-
-! unes.
 
 Chacune d'elles doit être examinée en elle-même.
 Pour qu'elle soit accueillie il faut que l'œuvre à laquelle
@@ -4434,35 +3437,22 @@ qu'elle émane d'une congrégation. Ce serait aller à
 l'encontre de la loi et faire triompher par une pratique
 sans franchise un système d'exclusion que le législateur
 
-pe: a repoussé.
 [à l'encre, sur feuille de papier ministre formant cote :
 
 Cette opinion parut d'abord unanimement
-adoptée.
 2. X" 1902. Dépôt d'autant de projets de loi.
-15 janv. 1903. Interpell® Meunier Plichon.
 . Ainsi dans l'application on
-; recherchera..….
 Rien de plus juste.
 Mais il tombe sous le sens qu'une
-telle appréciation
 emporte l'examen
 
 RASE TR EE RAA RICAL ER RON KT EN Gen CRUE LORS DU te PS OC DRE GE dE 2
 a n AN ne
 Mr à à RE ee de
-CAT è RM ei,
 PRE ane F x DUREE De ET 200 * pe
-: 0
-DAT # K Sie SRE Det
-‘SYRIE Ho nn Et |
 | NE TRANS at SUR Ra a FAT
-JA FRS Gi 7 : + z 21 (MS TS
-TRES ERAA RU RS LE ñ Le À
 #/5E 0 RENSE h È x tt PURE re
-\ |. LP MANARSES o At FN Lo
 | L 4 Rte, "4 EE, RFRANS
-PMR SU + ‘ré P. VF ee M T NEAES
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -4476,8 +3466,6 @@ Il n'y a pas de témérité à dire que tel est bien le
 * sens évident de la loi que telle est bien sa pratique
 naturelle (3) car tout d'abord cette interprétation n'a
 fait question pour personne.
-
-SX: 1902 fau crayon]
 
 . Dépôt par le Gouvernt d'autant de projets de loi
 qu'il y avait de demandes.
@@ -4494,10 +3482,7 @@ sens le plus net de son devoir.
 (2) qui avait été, rayé.
 () que telle est bien sa Pratique naturelle, en surcharge.
 (4) M. en surcharge. et Plichon en surcharge.
-133 VII
 
-d ML 4 PET ER CE
-à Waldeck-Rousseau 4
 Il a justifié les mesures par lui prises à l'égard d'éta- 3
 blissements qui s'étaient fondés sans autorisation, et
 dont les directeurs (1) au lieu de se pourvoir régulièrt
@@ -4524,13 +3509,10 @@ En ce qui concerne les autres ordres.
 « pourvu à tous les besoins... en attendant ce
 « moment que tous les démocrates de cette
 (1) dont les directeurs en surcharge. qui, rayé.
-(2) rayé : a tenu.
 
-“na NOTES INÉDITES
 « assemblée pressent de leurs vœux, nous
 « tenons que l'esprit de bienveillance doit pré-
 « sider à l'examen de ces demandes d'autori-
-« sation.
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 Ainsi dans l'application on recherchera si les services
 de l'Etat du Départt de la Commune peuvent se substituer à l'action des commté religieuses —
@@ -4539,80 +3521,36 @@ leur opportunité.
 le caractère de l'œuvre
 le but
 : même les circonstances de
-= "lieu.
 Rien de plus juste, de plus équitable de plus conforme à la loi. — Je ne l'ai pas interpr. autrt.
 Mais il tombe sous le sens qu'une telle appréciation,
 un débat aussi approfondi ét aussi conscieux, (1)
 emporte de toute nécessité, l'examen de chaque demande,
 puisque les raisons d'opportunité et de lieu doivent
 conduire à supprimer ici et à maintenir là une congrég du même ordre et (2) un établissement de même
-pature.
 | (1) consciencieux.
 ‘ (2) du même ordre et en surcharge.
 
-PP dre Re cn
-D Re SUN ST RE NN TA ML CSS OO
-Mrs
-FF FC ia TIR er 2 ANSE ES
-NE RP Re
 | RS HN SR nu
-LA TPE à LEE FE RAR
-LATEST HVARE LA LE REA
-REA > 97 "# HT TERENE ESS
 ns ë À Feet Rite LE
-SAS CIQRE at £ 29 SET
-DL + # D PAT TA
-} "aa Én 4, . RAS NE >
 | LME Re
-PA Us * L L2 J ire RL
 : LE FAR [à l'encre, sur feuille de papier ministre formant cote:
-re SAUT ds F
 Re \ PAPAS EN ET qe
-PGI $ = £ LEA A IT I NN œ
 
 Cette doctrine simple et claire n'a pas
-satisfait.
 
-Deux solutions proposées en 1907.
 la seconde a triomphé après les
 explications les plus catégoriques.
-EE EE SE
 Pensée du Gouvernement.
-RE ——
 ———————
 
 Une loi est nécessaire. à bon
--  escient.. autorisation mesurée.
-; Statuts revisés…
 Mais par là même que le Parlement s'est
 réservé ce droit de juridiction.
 il doit l'exercer.
-PES
-VIII. :
 
-: NAS AN ST D D Les
-Le APR A AURAS Mr
-ARE RSR OUET— HAE TRE »
 RSS È ETS TES ee NES :
-ORAN Si SENTE TEA
-Free A Pr n
-D  ÉUNESSSS
-MAR: ea A Se
-LR Lie
-( LATE ; A n S
-ll SP SLERT RO ARS Dre
-nee Fe Let ER ONE 2 À
-H SANS PERS 4 ASE ASS
-: 0 ES PSN Re ER Es
-HO r Sy DÉS es ES
-AE À ete ASUS En PTE ;
-a  e.
-LATE RE RE Mother EP 4
-‘ ADR g FRLREES 15 -AESE
-1e | He RER
 
 {sur papier blanc, à l'encre, à l'intérieur de la cote précédente]
-14 mars. Chambre.
 
 Si des religieux ou des religieuses sont émus par la
 vue de tant de souffrances ou d'infortunes, si la foi est
@@ -4622,34 +3560,25 @@ une congrég®" n'obéit qu'à l'élan qui porte celles-ci à se
 dévouer aux malades, ceux-là à se faire missionnaires... :
 je n'éprouverai pas plus d'hésitation à soumettre cette
 demande au Parlement, que je n'en aurais éprouvé à la
-soumettre au Conseil d'Etat.
-
-Amendt Dansette.
 
 Ce qu'a dit l'hon. M' Dansette est de nature à montrer que lorsque les congrégations s'adonnant aux missions étrangères solliciteront [verso] l'autorisation, la
 demande qu'elles porteront dev‘ la Chambre devra être
 examinée dans un sentiment de haute bienveillance.
 
-Sénat.
-
 Ici comme dans l'autre chambre on a vanté les services rendus par les congrégations religieuses; on a
 montré quelle somme de bienfaisance elles représentent; <
 
-Waldeck-Rousseau
 on a rappelé celles qui assistent les malades recueïllent
 les orphelins les vieillards et les infirmes; et parlant
 des hommes qui vont dans l'Extrême Orient et dans
 î les contrées les plus lointaines porter leur apostolat
 là religieux, on n'a pas manqué de faire valoir que du
 même coup ils servent la cause de notre expansion
-[recto] coloniale.
 
 : Sur ce point, M.M, on peut aisément triompher, car
 on ne rencontrera d'objections ni de la part du gouverti nement, ni de la part de la majorité républicaine de
 
 1 cette assemblée.
-
-Sénat.
 
 Enfin j'ai déclaré à plus d'une reprise devant la
 
@@ -4661,21 +3590,16 @@ se proposent de soulager les malades de recueillir les
 infirmes, de pénétrer dans les régions les plus lointaines, d'y porter notre [verso] Civilisation et notre
 langue, elles trouveront un gouvern: disposé à examiner
 leurs statuts et après vérification à les recommander
-au Parlement.
 
 Quant à affirmer que le Parlement ne donnera pas
 d'autorisation, c'est à mon avis instruire bien vite son
 procès. Croyez-vous donc que des Chambres françaises
 mises en présence de statuts sincères et non pas semés
 
-t #2 \ :
-NOTES INÉDITES
 de dissimulations, proclamant hautement un but philosophique, philanthropique ou d'intérêt social seront
 animées d'un parti pris absolu et diront : C'est une
 congrégation nous refusons l'autorisation.
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
-
-o
 
 Cette doctrine simple et sûre n'a pas satisfait un certain nombre de républicains. -
 
@@ -4686,10 +3610,6 @@ qui entendaient exclure toute considération de temps
 de lieu, de caractère de but et d'opportunité consistait
 à exclure aussi toute congrégation.
 
-amendement combattu.
-
-repoussé.
-
 L'autre solution s'inspirait d'un principe traditionnel,
 le plus incontesté, incorporé de tous temps au droit
 public de tous les peuples : … [défendue dès 1883]
@@ -4698,24 +3618,19 @@ C'est cette solution qui a triomphé.
 
 après les explications les
 | plus catégoriques et les plus
-\ claires
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
 Un long débat, de multiples amendements permirent
 au gouvt de dire à mainte reprise quelle était sa
 pensée — à savoir que chaque demande serait exami-
 
-x à . ri *
-Waildeck-Rousseau ;
 née suivant le but poursuivi, l'importance (1) des services rendus.
 Enfin, un amend! tendant à créer un régime spécial
 pour les cong. char. ou les missions, amenaiït le gouv' à
 déclarer que la loi, de même qu'elle n'impliquait aucune
 fin de non recevoir contre aucune demande, ne pouvait
 ï admettre l'autorisation sans examen pour aucune
-? œuvre.
 [sur papier blanc, à l'encre, à l'intérieur &e la cote précédente]
-6. mars 1883.
 (2) Il est manifeste que l'État ne peut pas reconnaître
 à l'avance, les yeux fermés toutes les catégories de conie grégations qui voudraient se fonder...
 .… le gouvernt actuel revendique le droit qu'ont maintenu tous ses prédécesseurs de n'admettre une congré-
@@ -4729,11 +3644,8 @@ cette autre association supérieure qui s'appelle l'État.
 volonté de la loi. *
 Une loi d'autor. nécessaire —
 sera donnée à bon escient
-(1) Importance en surcharge. Rayé : utilité.
 (2) Rayé : La loi.
-142 :
 
-see NOTES INÉDITES
 statuts seront examinés —
 la sincérité du but poursuivi contrôlée
 — l'autorisation mesurée
@@ -4748,34 +3660,16 @@ la défaire. Aussi longtemps qu'elle subsiste il doit l'appliquer.
 
 (:) Il ne saurt refuser de la juger. En surcharge.
 
-3 ;
-
-à Led FR ES SEA Te
-SUP DA A SP AS RUN
-"LAPS RTE RES UN RNÈRE TA RTS |
 RIRES ss : DS LSE EI LA ITEMS
 SNA : ne Har HET M ed
 Ver Ne : F ERNEST
-LPS x RER Me ur:
-LRSPIRREES ; AR Ch te
-. I RSSS Sue LAVE
-1 0 FEES k 15 TENUE Met
-LOTO RS Ë SRE ENS PATES RES
-Re NE \ F4 CS EL RS
-LATE EE MESSE 4 5 ï à LEURS, ARS EST
 ; MER ne : RDA Re ie
-Mo ï : à NE SNA
-KE RS # NE & a" LR D RES" 4
 AD. CE ncre, Sur i : RTE rt FE S'IS RON
 à le RUE" A sur feuille de papier ministre formant cote A
-HET e + 3 À CURE
 
-Me |
 Cependant la première application
-faite.
 Saisie de 5£ projets la C°" frappée de
 l'énormité de sa tâche.
-A [crayon bleu]
 
 L'art. 13. « Aucune congrég®" ne pourra se fonder
 sans être autorisée par une loi qui dé-
@@ -4789,41 +3683,24 @@ refuser l'aut®,.
 
 Cette interprétation proposée par le gouvt.
 Commandée par le respect d'un
-engag* implicite.
 
 Séance du 19 juin 1907
-——————…—….….….……—…_….….…."."...
 
 . (1) intéressés en surcharge, par-dessus comp [étents] rayé.
-À
 
-" RUN \ k Mr 1
-LAN x WE : {x AU Na N* ie MU AAC te
-Do D
 ed A XD xt k LES A * CLS Na “ PEU Ai RATE
-TVR EE j 41 LAN UV IV Pre FAST
 sl de \ À ë AU ENTER ARE UE AA MAS
-5 NN fe “ XNA Per REA N ES CT
-6 DIN ; % RO ARE SAMU EX Eu
-NN À ‘ An Le
 PAU \ NANIE Ver Ac ET ARR st
-(is Me : - A an) Late ui,
-4 er ONE ANNE } UE RAR RAA TT PET
 AE Te N LAC PEN E  PeA NE CIRE Eee
-n. « of ie À A EI RENAN AE ù
-AU \ METAL
 RL LE: LVMETE + à ÿ PAR net
-IPN Ur à k ÿ f ATEN aa
 ‘700 4 ne {fi ARIANE
 
-rt NIQUE FRE ARTS ;
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 —
 
 Cependant si on examine la rere application faite à
 — elle se rapproche beaucoup plus de la conception
 que le gouvt avait combattue que de celle qui avait
-prévalu.
 
 M'expliquer avec une absolue franchise. C'est une
 fausse conception du régime parlementaire qui réservant
@@ -4846,25 +3723,16 @@ a été frappée de l'énormité de sa tâche. Sa sollicitude
 s'est même étendue au Sénat, elle a considéré combien
 Sa mission serait pénible et son labeur écrasant s'il
 devait être associé à son œuvre législative.
-LAS CRE
 
 (1) Tout ce paragraphe est barré. !
-147 ;
-
-} SAT 0 RE UML
-Waldeck-Rousseau
-
-L'art. 13.
 
 Le sens pas douteux. Les débats ne fournissent qu'une
 brève indication, mais elle atteste combien peu la ques-
-\ tion paraissait douteuse.
 
 L'art. 21 du Règlemt d'Ad® publique du
 
 porte la disposition suivante :
 Cette disposition arrêtée d'accord avec le
-Gouvernt
 | j'avoue qu'il ne m'a pas paru douteux
 qu'une loi étant nécessaire le refus ou
 l'autorisation ne dussent être prononcés
@@ -4876,14 +3744,12 @@ dirige sa critique contre l'attribution au Parlemt du
 que l'autorisation par une loi constituait une procédure
 peu favorable aux Congregt — et parlant alors de la
 procédure non au point de vue des autor. mais des
-refus : -
 
 En cas de non autorisation c'est bien autrem! grave.
 
 Et ici permettez-moi une question incidente sur laquelle
 il faudrait bien que nous fussions éclairés. Sera-ce devt
 la Ch. des Députés seule que la demande devra être
-portée.
 
 y M'le P. du C. fait un signe de dénégation
 
@@ -4891,52 +3757,24 @@ y M'le P. du C. fait un signe de dénégation
 
 nn AU ET
 
-(1) montrait, rayé.
-
 ANS? RARES ae LE RU VBA RE QUN ie ce & nt
-AA à ER RTE 1 . 1 4 ANR) *
-AAA CRE ( LIEN
-REA RG ci + ù NII
-DAT # \ UN ) e HAE ds
-VPN SR HOT i ra PA à Ag
-4 PRE et AE 0 RSS URNE LA
-s DÉS # < “ * 1 SEEN
-CRT NE 4 5 Ê # ACER
-CRD F7 ASTON + FAURE EN
 SA TRE s pe ? Tnt: Fa) CCR
-mA UE À EN RS TARN ERRE US
-+ PR PETER ONT k Ÿ LT
-REA NPA EL LENS
 HE x FA ne à ; ANNALES Tr.
-EN RRE : FA LI PH PAAE .
-EAST SA ARS ) AR D.
-LA DRE SES CAE ÿ MR Le ET CA AE SERA ER MES NES
 ae ; aie VOS 5 MX LA Fe
 
-+ MEN SU l | ES Meet QE ARS
-TPS AOARATTRUE À ; ORAN SRI SERIE RO
-0 RATE FN NES A UON AE
-no A
-FAURE RL M AE AR Me
-PRE it ; 5 À A A Ne P MERE)
-De Vs , 707 re SE
 ne url. à FEAR A ENRER h
 | 1 SOS 3 407 ASIN
 Ne Ha Je AE HENRS si BAL
 NE À ille de papier ministre tome ei
 LATE [à l'encre, sur feuille } Ra NT AE
-1) CH "4 W ' À SERA ARTE
-AT À ART CHANT ERTE
 CET \ } ea AT een {
 
 La Comm°" a demandé une modification
-Disposition nouvelle.
 
 Avis du 20 gbre 1901 — [au crayon]
 
 Alors méthode qui a permis de mettre
 au jour.
-B [au crayon bleu]
 
 Cepend! la C°" restait en présence de 54 projets.
 alors on a entendu les critiques
@@ -4949,39 +3787,20 @@ rapport concluant à ne pas
 discuter ces 54 articles
 
 C'est contre cette procédure que je me
-suis élevé.
 
 LAS ie AE LE A
 {DE AREAS Ent NEA li At AA CA LCA SRE
 TE Ce PAST agi RE KR a Ce de HE A SD Le EE En s
-HR IN Al AE LA A RSA A EE
-211 CR AORENS A EE ERP An AE RUE PR AT EL À
-Nr K 4 Aer L'AGLT TN) NAN
 1, SANS Û DORE pa ae MEN
-1e | LR SERRE
-:/oR A (En fé NN a RME RARES
-C2 A É } AO AT TR He) Roue TNT RE STARS DS
-(RNARS \ Homes ax DAS
-Rates 1 PRE Are A PR at
-AA M he
-: NT AE 1h RAR MANN
-que : 1 CIO
-( ATOS ENNEMI rer EEE
 1 PMAAENUAS « 4 id L See Nute + NE MECS
 1 RAR RE el : ARR AN TT Les e D NAN
-ÿ vi: E HOT CA REA te
-el {1H à RE RE ER
-(in VASTE # 0 AMP AON
 | Ya BPM Le LU OPINRUNESS MT
-ALT UE AU VON NE TES
 100 ur de x A ? EN DNS RAIenE
 
-\ “ NP
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 La C°* a demandé une modification à cette procédure.
 Le C! d'État saisi à nouveau a modifié le règlemt
 d'ad® publique du —
-Disposition nouvelle
 
 Alors on a suivi une méthode qui pour la première
 fois a permis de mettre au jour des projets de loi tendant à l'autorisation (2) et à les nantir d'un (2) exposé
@@ -4991,7 +3810,6 @@ et cette innovation on la justifie par la nécessité un
 peu difficile à admettre au Sénat de permettre à l'une
 des Chambres à la Ch. (4) seulement de refuser les autorisations, tout en reconnaissant qu'elles devront
 toutes les deux être consultées s'il s'agissait (5) de les
-admettre.
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -5002,12 +3820,9 @@ Alors on « a entendu les objections les plus fortes tirées
 de l'extrême difficulté pour le Parlt d'accomplir une
 
 () à autoriser une œuvre déterminée, rayé.
-(2) projet, rayé.
 (3) à refuser ces Projets de loi — de sorte, rayé.
 (@) à la Ch., en surcharge.
 @) pour quelles puissent être admises, rayé. s'il s'agissait, en
-surcharge.
-153 IX.
 
 | Waideck-Rousseau
 pareille tâche. Il faudrait prendre une à une chacune
@@ -5017,7 +3832,6 @@ FA des demandes, examiner chaque dossier... Ge furent les
 À! formulées par ceux qui ne les avaient entendues autre-
 î fois (2) qu'avec impatience.
 4 1 La C° prit le parti de fondre les 54 projets en un
-&| p. . 2 . . .
 ji seul. Rien n'était plus parlementaire, mais elle conclut
 af à ce que ces 54 articles ne fussent pas discutés. rien
 14 n'était plus contraire à la volonté formelle de la loi.
@@ -5025,7 +3839,6 @@ af à ce que ces 54 articles ne fussent pas discutés. rien
 11 C'est contre cette fin de non recevoir que je me suis
 élevé dans le bureau —
 pour m'y résoudre je n'ai eu qu'à me poser cette
-Li . . 2 4
 | question : si en 1901 j'avais indiqué cette forme d'exé-
 : cution sommaire, cette loi si combattue, dont tous les
 { articles ont été conquis pied à pied, et au prix, laissezmoi le dire, de quelle persévérance !.… cette loi auraitelle été votée? Personne ne pourrait avec q.q. raison
@@ -5036,68 +3849,28 @@ honnête homme, c. à d. qu'elle tienne scrupuleust ses
 engagem! et ne puisse pas être accusée [d'avoir surpris
 le consent d'un seul par] (3) de subtiles promesses. (4)
 (1) maintenant, en surcharge. Rayé : cette fois.
-(2) autrefois, en surcharge.
-(3) en surcharge.
 (4) Ce paragraphe, barré.
-L
 
 Fe PRO A MA "AMSTRAD a TRE PUS TRES je ja
-bu : DE ‘RATS
-EN NERO DA “ EM ENTUL
-AC AUS RAY, EPA {1 6 #1 1, » AS
-1 MESSE | D
-MT ANT PA LS À (LE TUEUR
-a d FRA AU
 
-AY NE \? : PUS
-A CE TNT Ç 4 « sf, 07 RSNAINENRSE
-
-Sd A à
-+ LPS CNT HAS à AURAI LORS CNP AUS
 la te ; DRAC EMA RER: RE Last
-KIA A ET A
-qe « | REA Ant EL ONN Re à LU
 | VE HAE SR 4, ; DANS UT RARE ps
-NAN EN ARE A 2] à! 1 rx
-UNS (Ep PAARNNE AL EA X
-x Va AS MS ” se RSR %
-NII see CNE Na TR set ï FE 2 ee
-TRE L RENTREE KT ES
-“ren AO \ PAST ES {
-; *74% à ; L'NFRSSTARS
 ni Dune [à l'encre, sur feuille di ME NT ET
 LEE ! e de papier ministre formar A7
 
 Hâte de dire que cet expédient fut combattu
 par le Gouv‘
-; Concession.
-trois sacs : ici enseignants
-là prédicants
-là commerçants.
 : Il se trouva que les enseign“ hospitaliers —
 l'art. 13 prévoyait le cas. 5
 Mais comme on était sorti de la loi on est
 tombé dans l'arbitraire et la confusion.
 On aboutit à une situation parlemenEEE La
-taire si nouvelle.
 Ce jour là on a fait une loi nouvelle  .
 destructrice de la première. (Goblet)
 
-MAD ER ATOS ju) ANATOLE ENT ‘
-RAA MER EL RAR LATE SAT RATS ANS
-NRA < 1 AUS dun SA
-ANTENNES AA m4: PS
-TN GA 24 NT EN PR ONE 2
-LA: A ES LA CAN EA RTE RIRE ÿ
 RE Dre AE Lt In SCAN Ne ENR
-ter SUP TE ie ! + 2e AN NET NES AR ANUS
 LAN ASE L { fl ANEN MAS
-ne " à \ PAU AC RU ENT
-M ( ; ti W# qe AE A
-VAE fe a ii
 RAC à nn l , Life) Nat En
-2" ER j NP CR A
-‘He / OUR TEE PAL ME
 
 {sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -5128,10 +3901,6 @@ entendu que les mêmes établiss compris dans la
 
 (2) Rayé : J'ai vérifié toutes ces requêtes sur lesquelles.
 
-(3) Rayé : en vérifier.
-
-* : È
-Waldeck-Rousseau Ë
 demande dont le rejet était proposé, pourraient faire
 l'objet de demandes nouvelles.
 
@@ -5145,38 +3914,22 @@ déelarer à la majorité que si elle adoptaït ses premières
 
 propositions il croirait avoir perdu sa confiance.
 
-i
-
 fà l'encre, sur feuille de papier ministre formant cote :]
 
-1 ÿ À [au crayon bleu] ;
 Peu de justice à ne pas faire la part des responsabilités —
 Pendant les débats et après le vote
 deux états d'esprit très-différents….
 tactique du tout au pire
-PES
 que s'est-il passé ?
-$ au mois d'août, fermeture d'écoles
-[au crayon bleu] ‘ FA Ê
 fondées sous le régime de la loi de 86.
 et p' lesquelles aucune autor. demandée
 depuis le 1° juillet rgox.
-Recours possible —
 les intéressés ont suivi d'autres
-inspirations…
 
-RE UM A RARES OI ANS
-LME ONE PNR LA DAT AR a Ne CH OAN MI CIS OO AS
-: MARINS ER ENS AU PM ATEN LAN PE ae PAC OR TRES
-TRUITE LR AT ne Le LE ; DE ER FAURE LRU Po NN
-: ITS Lo |
 Dre À Î LÉ RATS ma k
-WP DR ie PARA MUT RAR ER 4
 ne: Pas 4 FCO AAA Res Fe
-:. ANAPANEALS FC PR RU ARRRESE RUE se
 ARC UHR Le FRUR he SEULE ER AT
 |; 0e LE ANNEES
-NT TNT F TAN MIRE
 D ÉVSORT I AE le NS
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
@@ -5205,11 +3958,6 @@ rique d'une C. révolution.
 Tactique du tout au pire, dont aucun conseil aucun
 ordre de si haut qu'il vint n'a pu les détourner. Notre
 
-(1) congrégations, en surcharge. Rayé : religieux.
-
-(2) celles-ci, en surcharge. Rayé : ceux-ci.
-
-: Waldeck-Rousseau he
 pays est laborieux et par là-même avide de paix; c'est
 : cette paix qu'il faut rendre impossible; il faut partout
 organiser l'agitation, fomenter la discorde entretenir la
@@ -5220,7 +3968,6 @@ ouverts avant la loi du 1° juillet.
 On pouvait soutenir que régulièrt ouverts, antérieurem! à cette loi si une congrégation charitable voulait
 ouvrir. un décret. Si une école remplir les formalités
 
-{ de 1886.
 Au lieu de recourir aux voies légales les intéressés
 ! ont suivi d'autres inspirations fait des barricades, usé
 des moyens de résistance plus propres à soulever le
@@ -5229,32 +3976,17 @@ dégoût qu'à éveiller l'intérêt.….
 
 bi DU du it
 $ à mesure qu'approchait l'heure.
-[au crayon bleu]
-paradoxe singulier !..
 $ si de ces événements d'hier remonte plus haut.
 époque souvenir des élections gs
-[au crayon bleu] £
 Jamais pareil déchaînement
 . de polémiques.
-pareil abus pareille surexce°"
 des passions religieuses
 Les esprits avisés les calculateurs profonds
 peuvent contempler leur œuvre...
-=
 Demandera-t-on plus de raison...
 
-Jo D PIRE ARE
-QUE AN ORNE 24 ET D er A DA PA GTA } \ ï
-(OA MO AMETnIX 2'RTR TE RS A LES Ar SU
 1! NN ANNEE 10 f< ' Lit " QUE 7 Re ds Hoi
-AMAR LE EANANE 2 NE
-040 Ve El RER A Le RUN
-VER ANA CON MASSE TT
-11008 | TC 0 EN CRE
-ft A PEMITN ÿé GUA A AN EE IN HA die
-{HAT NN { 0 CRT ER ART
 | D me
-140" ONE y £ DDR AA 4, AMEN EE
 DA ee HE A AE BALAI ANA Ne REPAS
 DA fe él TON PS HA NACRE A AE EE HA ie
 
@@ -5278,14 +4010,8 @@ fut marquée par un tel (1) déchaîne [sur feuillet jaune, à l'encre,
 à l'intérieur de la cote précédente] ment de polémiques aggressives, diffamatoires, par un pareil abus une (2) pareille
 surexcitation (3) des passions religieuses.
 
-(1) tel en surcharge.
-
 (2) une en surcharge. Rayé : un.
 
-(3) surexcitation en surcharge. Rayé : excès.
-
-As + di
-Waldeck-Rousseau
 Les esprits avisés, les calculateurs profonds de la
 politique du tout au pire, peuvent admirer aujourd'hui
 les heureux effets de leur méthode
@@ -5299,41 +4025,20 @@ ni la perfidie ni les insultes ne leur ont été épargnés?
 | Eh bien oui, il faut le leur demander.
 (1) de justes retours en surcharge.
 [à l'encre, sur feuille de papier ministre formant cote :]
-x
 
-NS HF {
 Le propre de l'esprit gouvern‘!
 n'allons pas au delà de ce que n° apons
-müûrement résolu.
 Nous avons voulu.
 Cette constante préoccupation dictée
 par l'esprit de prévoyance — de politique autant que de mesure —
 Paul Bert par cette considération empruntée en1883 core à la discussion de r9o17.
-EE —— j
 Beaucoup sourient lorsqu'on envisage
 comme un des grands facteurs de la politique
 le problème religieux.
 L'examen le contrôle des mouvements
 de l'opinion donnt d'autres renseign'
 sur la Société Française
-EEE EEE
 ><
-
-ANR A do
-1 RIT ï PARA PIRE DER ERA DER NS AIRES 1
-STORES sk t a ALES MR LÉ en res
-MAIS OUR ù \ à RE 29 RASE At RAS
-51) Pt IRTIER Ta TANT PUTR D ANTENATE
-AE ; Fe Ù EURE FLEURS (As
-DA NRA à | ï CINE RSS Mers
-2H NS LUN UNE NAN
-AE à ' ù dl MAEANE AT ARR
-RON NT. 9 : 4 : SUR AL LR END RRE AXE
-(4 CAE } } L ER RENTE l'A LES CCE
-ON RG \ NADaY 1: SAP ONMENNNAE ARONCTL AE HEN
-{ 25 y TION \ FT Ai) LA OONNNNE EAN
-er ANS TRE { LRU TARA QU Pr NAN MINES PARRIPA
-DAME CE 1 GAS OR LS NES
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -5359,13 +4064,8 @@ mais au Ministre de l'Intérieur.
 
 (1) il en surcharge. Rayé : on. 4
 
-(2) mürem* en surcharge.
-
-(3) souligné rouge.
-
 (&) l'œuvre en surcharge. Rayé : La cause.
 
-Waldeck-Rousseau
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 Cette constante préoccupation (1) nous était inspirée, (2) non par une pusillanimité qui n'était pas la caFA ractéristique de nos actes, mais par un certain esprit
 de justice et de prévoyance, par cette considération que
@@ -5385,16 +4085,12 @@ cénacle ou plus philosophique ou moins éclairé, soui rient lorsqu'on envisage
 de la cote précédente] comme l'un des facteurs les plus
 (1) constante préoccupation en surcharge. Rayé : ligne de conduite.
 (2) inspirée en surcharge. Rayé : dictée. Rayé une première fois :
-a été tracée.
-(3) en en surcharge.
 (@) plus considérable que ce fait en surcharge. Rayé : /pas de] fait
 [historique] plus considérable et d'une influence plus certaine sur
 Vétat actuel de l'opinion.
 () pour un gd nomb en surcharge.
 (6) Toute la citation encadrée de rouge.
 (2) Pâle reflet de La parole de, en surcharge, au crayon.
-
-NOTES INÉDITES
 
 importants de la politique le problème religieux.
 l'examen le contrôle des mouvements de l'opinion
@@ -5414,13 +4110,10 @@ l'erreur [ou le sectarisme.] (2) des représailles.
 
 [sur papier blanc, à l'encre, à l'intérieur de la cote précédente]
 
-Bert. [au crayon]
-
 Il ne s'appliquait pas à rechercher l'influence que le
 catholicisme peut exercer sur les âmes, mais celle qu'il
 exerce sur les mœurs sur les habitudes sociales et par ;
 suite sur tout ce qui à de certaines heures détermine les
-courants d'opinion.
 
 « Il ne s'agit pas ici d'une religion de minorité mais
 d'une religion qui inscrit au registre de ses baptêmes
@@ -5429,10 +4122,7 @@ d'une religion qui inscrit au registre de ses baptêmes
 
 (2) o Le sectarisme en surcharge.
 
-173 +
-
 | an
-Waldeck-Rousseau
 les 97 centièmes des enfants de ce pays. …. qui depuis
 son triomphe sur l'Arianisme a dominé en souveraine
 | dans ce pays. qui pendant 14 siècles a élevé les
@@ -5445,18 +4135,14 @@ jusqu'aux moelles.. à qui les circonstances politiques
 |
 | {
 | .
-Ù
 Ë [à l'encre, sur feuille de papier ministre formant cote :]
 
-l
 Quiconque a réfléchi sur un passé récent.
-reconnaîtra
 que nous avons une longue histoire.
 nous avons dû exercer de nombreuses reprises
 ce n'est pas en pain que nous donne- À
 rions des raisons
 C'est pourquoi la résolution de la Chambre
-si regrettable
 les commentaires si impolitiques…
 pourquoi regrettable aussi que le
 problème des Congrégations doublé
@@ -5466,20 +4152,8 @@ Oh je sais trop le fardeau laissé.
 SP PAR \ ( CRUE UT En eee RATE
 L'ELARNAQNENREE À ACTES pe MATAURS
 ON TeN Ÿ NU our 1 ANOSPE dr
-à, ONE El N ie TETE Fr ENTER, ar
-FN “\ fn AT LEA
-MA UE 4 NL AR CARSEEA AAA RU
 L'OR RAE à A PL DE PCA HANA à Poe a
-) FAN à K ; ÿ di Bou RUE PA
-+4 ROUE Fa ! MAN ANT AU GARE Ro
-AR A NUE Le Fe LLC ARRETE Ne
 + AMEN HA ne
-Ra ee : ; RARES
-(ot A YU Le 0 EN a Re DR
-0 : 1 TONNES
-DRE UT Nr aie oh
-AA 3 LT si a ANUS ps
-! LATE ER Kiuuna Ki RUE à HA NT EU TEE g #4
 
 , [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -5505,17 +4179,9 @@ qu'une injustice une faute.
 C'est pourquoi dès la première heure la résolution
 prise par la Chambre (4) a paru regrettable, pourquoi
 les commentaires qui l'ont soutenue (4) ont semblé si
-impolitiques —
 
 (1) Nous... légitime en surcharge.
 
-(2) J'aire rentrer en surcharge. Rayé : ramener.
-
-(3) constituerait en surcharge. Rayé : doit être évité.
-
-(4) n° rayé.
-
-Waldeck-Rousseau
 C'est pourquoi encore il est fâcheux que dans le,
 t même temps le problème des congrégations ait semblé
 exposé à se doubler d'un problème concordataire.
@@ -5542,28 +4208,12 @@ Celle de la légalité.
 Nous avons voulu soustraire la Société
 à l'envahissement.
 
-A AE A SRB ANA AL EE
-1 HAN ane HADEE JENE RE) FAIR HA LH Ve BRAUN |
 RE ENT NE Su ù TE TONI PRE qui “Rue.
-LE RUN i RC NY D PTUSC A D L'INT MÉNPR Mn ANETMERTT ARE y
 | FU ENeE ; À LA Wu je ere (l A
-er 4 y x f Ê À PR NC MER: Ru ER
-: 1 NE {CUBE NE
 Ar ja M à (I LATE ET RNR ENS
-EMA ARINRS É ‘ DRM AARE M RE Es NE
-RE En ARR EU à RÉTREGc: AR AT
-AS à
 | ANNE à L NOÉ EE Rd a LT
-Hour mA #4 f SR AE AL A UE Ve
-: À à D CN SON
-1 NON) JA } RENE EVANS
-VAS NAN ee } MRC MALE SENS
 | teen At fe MN NAT
-104 NA LA Ë L'ART RER
-LAS Re
-M RCE ù +R RARE NS
 Kai LE 4 ) Nr ! je LEA AN (2à ni
-En AP À Era (V4, AU NES Eu ù
 
 [sur feuillet jaune, à l'encre, à l'intérieur de la cote précédente]
 
@@ -5577,7 +4227,6 @@ elle est l'expression matérielle (2) de notre droit et chaeun y voit sa sauvega
 
 Gardons-nous d'affaiblir ce pouvoir (3) incomparable
 et de laisser passer en d'autres mains l'arme qui nous
-a victorieusement défendus.
 
 [au verso et à l'envers]
 des habitudes, tous ses efforts ont été vains parce
@@ -5593,15 +4242,11 @@ parait pour l'avenir non point la défaite de l'esprit
 
 (1) celle en surcharge. Rayé : Le sens le respect.
 
-(2) matérielle en surcharge.
-
 G) ce pouvoir en surcharge. Rayé : cette puissance.
 
 (4) parce qu'une force, rayé.
 
 (5) La pressait en surcharge. Rayé : peu à peu arrivait à l'investir.
-
-181 XI
 
 | Waldeck-Rousseau
 moderne dont l'essor ne peut plus être enrayé mais des
@@ -5629,7 +4274,6 @@ et dont le souvenir est d'hier. FES
 ,. ( il ne faut pas qu'on puisse dire } Le $
 Ray : } éoites qu'il soit possible de dire ÿ Telles ont été pronon,
 cées sans défense et sans débats.
-(8) Accomplissons... lois en surcharge.
 [à l'encre, sur feuille de papier ministre formant cote :]
 
 Aucun autre Peuple on ne les a discutées avec plus
@@ -5649,33 +4293,12 @@ Dans ces limites toutes les réformes que demande
 l'application logique des principes posés par la Révolution sont possibles, on n'en Sortirait pas sans s'exposer
 à de détestables surprises.
 
-EL EIRENES
 (1) Notre caractéristique semble étre Le resp.., rayé.
 (2) dont la discussion, en surcharge. Rayé : qui.
 
-Re ; (OX LADUR TET M MNENMENNTIREES
-ENS à f RAT NE EL LUS,
-ia TER Ÿ LUN
-AE V ; LS MONTRE
-* FN 1 RTE TEEN
-GE LE AE RTE EEE
-“ue } 17 ns ET NN
 | LS ISERE
-LUS ' 1 dre PE
-PE Ye ; BEEN
-AFIN ' 0
-À Mes. : 14008
-DAS À 4 RIRES
-P EAN y PA:
-vn RE \ tn
-EN PONT N % A ONE
-HE à à M
-\) L Ç fl À CMS
-4 0 SAP 1 NUS
 OU 3 tre QUE GT VAT
-nl LT NON PES
 
-;.
 [à l'encre, sur feuillet de papier blane, à l'intérieur de la cote précédente]
 
 Beaucoup de difficultés eussent été évitées et dans le
@@ -5704,15 +4327,10 @@ qui eût mérité que des réserves fussent faites, rien n'a
 
 (1) S en surcharge. et s, rayé.
 
-(2) et, rayé.
-
-(3) £t d rayé. D en surcharge.
 | 185
-L
 
 ; PAR ETATS dd Li HA AU
 ' HN CRUE 1 L) ji # ae
-Waldeck-Rousseau
 n'ait pas jugé assez grand le nombre des adversaires,
 la somme des difficultés. (1) Des circonstances qui
 n'étaient pas nouvelles ont déterminé un conflit nouveau. Il était visible que par un calcul très habile on
@@ -5720,7 +4338,6 @@ tendait à déplacer le théâtre des hostilités, à mettre en
 question q. q. chose de plus que la cause (2) des réguliers. Tout commandait de ne pas doubler le problème
 des congrégations d'un problème concordataire…
 [à l'encre, sur feuillet de papier blanc, à l'intérieur de la cote précédente]
-;
 
 Je sais quel pesant fardeau j'ai dû laisser à nos successeurs et si je parle avec une entière liberté c'est
 qu'il est d'une mauvaise pratique parlementaire, en
@@ -5745,7 +4362,6 @@ s'étend rapidt à l'organisme tout entier. (3)
 G) Rayé : « que certains sentiments vagues sy cristallisent
 soudain sous » — « fibres (surajouté, puis rayé : « cordes ») inactives
 
-NOTES INÉDITES
 \ [à l'encre, sur demi-feuillet jaune, à l'intérieur de la cote précédente]
 
 Nous n'avons pas le bonheur d'être un pays neuf
@@ -5756,7 +4372,6 @@ divers. (2) où chacun a pu se faire sa place sans avoir
 à la conquérir sur un précédent occupant... où la
 coïncidence [en marge, trois lignes verticales descendant] des droits
 de l'Etat et de ceux de la conscience ne détermine
-aucun problème religieux.
 
 [sur papier blanc, à l'encre, à l'intérieur de la cote précédente]
 
@@ -5766,11 +4381,9 @@ s'appelle le catholicisme : traversant tous les âges jusqu'à la réforme avec 
 moral. il a représenté pour le peuple sa part d'idéal et
 d'éducation et aujourd'hui encore il est pour tous ceux
 et presque indifférentes endormies y vibrent parfois avec une
-soudaineté surprenante ».
 
 ï quil en est. tout entier, en surcharge. — que l'on croit dessé-
 chées, surajouté. — réveille, en surcharge au lieu de développe. —
-rapid!, surajouté.
 
 On lit encore : « que sous un choc imprudent certaines fibres
 tressaillent qui semblaient engourdies [Rayé : « vibrent soudain
@@ -5815,8 +4428,6 @@ la vigueur de la forme.
 Le débat s'est considérablt élargi. Rien de plus naturel puisque c'est pour la 1'° fois que le Sénat est saisi
 (1) chacun d'eux... — un autre, en surcharge.
 
-NOTES INÉDITES
-
 d'une proposition qui touche à l'appl. de la loi de 1901.
 Dans les discours prononcés j'ai retrouvé l'écho des
 polémiques que cette application a fait naître et dans
@@ -5851,12 +4462,7 @@ expédient passager suivant qu'elle gardera son carac-
 
 (5) une certaine en surcharge. on a pu craindre rayé.
 
-189 XI.
-
-Waldeck-Rousseau
-l :
 | tère de loi de contrôle ou qu'on tentera d'en faire une
-loi d'exclusion.
 Û Toutes les difficultés auxquelles on se heurte ont
 passé par une première brèche ouverte sinon dans le
 | , texte, du moins dans l'esprit de la loi.
@@ -5873,7 +4479,6 @@ s'il s'agissait de refuser l'autorisation.-Le refus par la
 Chambre suflirait-il 2... sur les bancs de cette assemblée on répondait non puisqu'il faut une loi! le gouvt
 s'associait à cette protestation — et dans le règlement
 du 16 août fidèle à sa parole il faisait inscrire cette
-disposition :...
 Le règlt du 16 août fut modifié, il supprima ces mots:
 tendant à accorder ou à refuser l'autorisation….
 il en est résulté que les conseils l'opinion du Sénat
@@ -5881,23 +4486,18 @@ ont manqué au gouvernt. j'ai éprouvé plus d'une fois
 combien ils étaient utiles, et je demeure persuadé que
 la tâche du gouvt eût été facilitée s'ils ne lui eussent
 pas fait défaut.
-(1) pouvoir législatif en surcharge. Rayé : Parlement.
 (2) l'intervention en surcharge. Le refus rayé.
 
-NOTES INÉDITES
 [à l'encre sur feuille blanche épinglée aux trois précédentes]
 
 Ce qui pèse sur l'application de la loi, ce qui l'a rendue plus irritante, c'est qu'on puisse reprocher au
 législateur de n'avoir pas scrupuleust tenu sa parole …
-
-s /
 
 Je ne crois pas qu'il soit ici un membre de cette
 assemblée qui ait compris ou admis qu'une demande
 d'autorisation étant formée par une congrégation elle
 pourrait n'être point examinée individuellt comme elle
 l'eût été par le c! d'Etat si la juridiction administrative
-füt demeurée compétente.
 
 Une loi jugée nécessaire.
 congrégations de fait mises en demeure.
@@ -5906,8 +4506,6 @@ chacune d'elles doit faire l'objet d'un examen — Pour
 qu'admise — objet utile. pour que rejetée il ne suffit
 pas qu'elle émane de telle ou telle catégorie car la loi
 n'a pas fait de catégories …
-
-Ten marge, cinq lignes verticales remontant]
 
 Ce que tout le monde a compris en 1901 et lorsque
 par une autre méthode on a refusé d'examiner le fonds
@@ -5920,13 +4518,7 @@ une nouv. loi destructrice de la première.
 
 L'application de la loi qui allait être votée intéresserait des milliers [70.000] (1) de personnes. elle impli-
 
-(1) 70 000 en surcharge, au crayon.
-
-à 191
-
-Ù HE en 4 APTE
 il Waldeck-Rousseau
-1l ; ï
 { quait dans tous les départ" et dans toutes les communes
 | une transformation des services de l'enseignement, des
 (l œuvres d'assistance proprt dite, de celles qui concer-
@@ -5940,14 +4532,10 @@ il Waldeck-Rousseau
 a Il fallait préparer l'ouverture de 1.500 écoles de
 garçons — de 3.600 écoles de filles — l'acquisition de
 plus de 5.000 mobiliers scolaires — instituer et doter
-6.000 instituteurs nouveaux
 | — programme de 60.000. dépense {
 | 10 millions de trait.
 2550 écoles à laïciser soit plus de
-5o 000 000 et plus de 3500 de trait!“
-[en marge, quatre lignes verticales descendantes]
 100 millions de dépenses de matériel
-14 millions
 Or si on souscrivait une lettre de change à court
 terme pour de pareils engag! il fallait pour longtemps
 renoncer à toute [verso] autre entreprise.
@@ -5955,18 +4543,14 @@ Il fallait donc à q.q. point de vue qu'on se plaçât que
 l'exécution fût continuée sans défaillance, mais progres-
 (1) ni de briser... années en surcharge, au crayon.
 
-NOTES INÉDITES .
 sive procédant par étape et que la fermeture d'un établisst congréganiste (1) fût précédée de l'aménag‘ d'une
-école laïque.
 [à l'encre, sur feuille de papier ministre]
 
-Les art 13 $ 1% et 18 $ 1°" de la loi du 1° juillet 1901
 qui réservent au Parlement le soin d'accorder ou de refuser les autorisations demandées par les congrégations
 religieuses ne laissaient pas prévoir de graves difficultés d'application.
 
 La décision réservée aux chambres constituait un acte
 de leur juridiction administrative, ainsi que le remarquent justement M.M. Trouillot et Chapsal dans leur
-remarquable commentaire.
 
 Elle supposait un examen individuel par là-même
 qu'elle constituait un acte de juridiction.
@@ -5986,7 +4570,6 @@ apte à statuer sur des demandes nombreuses diverses,
 (1) congréganiste en surcharge. Rayé : fût toujours précédée de
 la préparation.
 
-Waldeck-Rousseau
 le rapporteur de la loi au Sénat avait répondu que
 l'œuvre serait en réalité simple; qu'une jurisprudence
 se formerait bien vite et que les congrégations étant (r)
@@ -6003,23 +4586,18 @@ soit à refuser l'autorisation ».
 Cependant la Chambre s'étant trouvée en présence de
 53 demandes, il est advenu que peu à peu on s'est
 écarté des idées fondamentales qui viennent d'être
-rappelées.
 Les Projets de loi distincts ont été fondus en un seul
 projet, puis en deux projets collectifs et un projet distinct.
 Il n'a pas semblé seulement désirable de simplifier la
 tâche de la Chambre, on a jugé nécessaire de simplifier
 la procédure, et en proposant des dispositifs tendant à
 l'autorisation dont on demandait le rejet d'éviter que
-(1) étant en surcharge.
 (2) Le Ministre en surcharge. Rayé : après avoir.
-(3) intéressés en surcharge. Rayé : compétents.
 | 194
 |
 |
 
-NOTES INÉDITES
 le Sénat eût à se prononcer après la Chambre sur les
-mêmes demandes.
 
 Les actes de juridiction prévus par la loi de 1901 ont
 
@@ -6046,12 +4624,8 @@ admettre l'exclusion a priori de toute autorisation.
 M. le Président du Conseil a rappelé les termes de
 l'exposé des motifs du Gouvernement réservant aux
 congrégations mixtes le droit de former de nouvelles
-demandes spéciales à leurs établissements charitables
 ou étrangers. M. le rapporteur avait exprimé la même
 
-(1) formées en surcharge. Rayé : présentées.
-
-Waldeck-Rousseau
 opinion et au cours d'un discours de M. RenaultMorlière, M. le Président de la Commission formulait
 la même déclaration.
 
@@ -6077,7 +4651,6 @@ spéciales d'établissements très variés, dont le but charitable devra être v
 
 Les demandes formées par des congrégations
 d'hommes ne constituent qu'une faible partie des
-demandes totales.
 
 Les congrégations de femmes ont déposé..
 
@@ -6086,8 +4659,6 @@ Les congrégations de femmes ont déposé..
 (2) Rayé : Les plus [utiles].
 
 (3) ou en surcharge; et les plus, rayé.
-
-NOTES INÉDITES
 
 £ [à l'encre, sur feuille de papier ministre] d
 
@@ -6119,7 +4690,6 @@ Nous considérons d'ailleurs que les dispositions nouvelles qui s'imposent doive
 
 1° aux demandes portant sur des établissements d'as-
 
-Waldeck-Rousseau \
 sistance fondés en France ou des établissements fondés
 à l'étranger
 
@@ -6136,8 +4706,6 @@ dans le même cas quels établissements lui sont néces-
 accomplit chaque fois qu'il est en présence ou de la :
 formation d'un établissement nouveau ou d'une demande en autorisation d'accepter une donation ou un
 
-: legs.
-
 Enfin par cette méthode le Parlement resterait seul
 juge des demandes qui intéressent la question de l'enseignement, (1) dont on ne peut méconnaître qu'elle est en
 
@@ -6149,28 +4717,11 @@ juge des demandes qui intéressent la question de l'enseignement, (1) dont on ne
 
 | 4
 
-JAN HER LEE HOME L'Oe  E L'ORDRE NE EE RTS Te
 A UN nn UM
 : TMS RER CE A EN AT et PANETS
 D Noos JUS LA MERE
 LEUR Re EE OR EU AE RE D ne
-ji VAR ETS SMS ; A #0 NAT ES “
-LOTS GAS REA , HER NA Mas
-d: He ee no NS STAR Dep n
-Do ARE EX (pe : AL 148) RE NRE
-DA: SR SNEES \ HET
-WE 4 Eur 6 5 HETTANE NS
-11 RENAN : EUR y à 51 KE
-s PA Te à , fun 407
-SEA MT } |
-TS Re sl 1} RCE
 4 ne St pr à k at + 4 MR
-K: ya fe ; e ‘ A tbe APE DAC
-set 1 ' * é A LE 4
-LUMNE RERO à LRETINEE
-à FR NURNS ASENE
-
-". 1 LS CÉNEMANTE" CEE
 
 En dossier annexe, une lettre qui fut envoyée à
 M. Waldeck-Rousseau et qui portait sur l'interpré-
@@ -6184,7 +4735,6 @@ paroisse de la banlieue de Paris, de faire appel à votre
 
 Je le fais avec d'autant plus de confiance que vous êtes
 la cause indirecte, mais bien involontaire sans doute, de ce
-dommage.
 
 L'école paroissiale, dirigée au Pré-Saint-Gervais par les
 
@@ -6209,11 +4759,9 @@ que, si le dommage est pour nous, l'affront s'adresse directement à vous et je 
 venger votre honneur ainsi publiquement outragé, en aidant
 à réparer le dommage causé à l'une des plus humbles victimes de la loi que vous avez soutenue devant le Parlement
 
-UNE LETTRE A M. WALDECK-ROUSSEAU
 et que l'on interprète aujourd'hui contrairement à vos
 déclarations : plus modeste sera la cause, et plus grand
 l'honneur de l'avocat qui défendra en elle le droit et la
-justice.
 
 Nous venons donc vous demander de prendre notre
 défense devant telle juridiction qu'il appartiendra de saisir
@@ -6229,7 +4777,6 @@ l'assurance de notre profonde reconnaissance.
 Je serais très honoré si vous vouliez bien, à bref délai,
 m'adresser une réponse qui me fixe sur vos intentions et
 qui me permette d'aviser à prendre des mesures pratiques
-en conséquence. -
 
 Je vous adresse ci-joint une feuille explicative de notre
 situation légale : cette feuille a été répandue à profusion
@@ -6240,7 +4787,6 @@ explication complémentaire que vous auriez à me demander.
 Veuillez agréer, Monsieur le Sénateur, l'assurance de ma
 considération la plus distinguée.
 
-Ch. Lavalle,
 curé du Pré-Saint-Gervais (Seine)
 
 Suivait une proclamation aux citoyens qui ont conservé
@@ -6248,11 +4794,8 @@ Suivait une proclamation aux citoyens qui ont conservé
 | le culte du droit et l'amour de la liberté.
 
 A cette lettre, M* Waldeck-Rousseau fit préparer la
-réponse suivante :
 
-à TR RER
 | du
-M: Le Curé |
 M: W.R. me prie de vous accuser réception de votre
 lettre du 12‘. Il ne lui est pas possible d'accéder au
 \ désir que vous voulez bien lui exprimer. Si la Congré-
@@ -6268,65 +4811,33 @@ Veuillez agréer, M: Le C. l'expression de ma considé-
 ration la plus distinguée.
 () et rayé.
 (2) [impliqu]ant en surcharge. qui [impliqu]erait, rayé.
-, (3) seulement en surcharge.
 (4) rentre dans L en surcharge. revient à l'emploi d rayé. y
 [d'une autre encre)
 
-PA TONER PER Te RTE EN ITR LES NES
 A Sa A ES go sen A SE 1 Le RAA LAN HE er CNE
-A A STE Dan NAT OS UP LMD CENT LEA Eh Bu MERE
 CAPES SPA DES CAES SCA A TUR, EU CTP LNN") ARR P NO URNSS (Een te
-a (VTT ANR HU Me Ë 10 PPT NES
-ÿ BE 10100 fre ; ÿ à EE
-1: NE a ñ À LT et:
-x : {4 RER ï ‘SNA 4
-di A RQ : 17
-a AE FU LENAR à: { à L HN ANS
-RENTE di ER AY # Q' LEA POENASENS
- LNVSSMIMEN e | i AAA A |"
-nt JA RAIN 2 h 7 AN ii
-ALAN * À À Û ÿ"vrbprre || FAIR Do
-LOS AOTER \ Ÿ \ à MENT
-ANNE CN HU H 2 ANT LElNNIER
 TA NC Te Ann } F0 k PME ASE L''apee
 
 fun ao à a PURE SUR EENR CUT (En CE Fe LANTA UE "4 PRE PRE )
 60 RETIRE En LEE VANNES PAR NEE AACRRE pe) F3 Le TRE PRE TS Tes PS
-ROVER AAA ANR VAE TO E NET EE +7 ANT 1104 PSN
 Lorop "TA + (} Het COST AA, L Lei 3
-LR ASIE DAC NET AR ETR LI NNÉENE
 ue #2 A LtEE LA SAUTER ne
 DUR À tu Rs MERE: Te
-ANTIES #1 % # RUE, f
-Da FE PA OC ENS HT
-ATV INONERES y “ DO: à
-11 FX ; “y 15 DS AT
-+ HV RENE 2174
-OT PTT à LPS
 je À SRE AU NAN Qi
-11 CIM ITA
 
-e
-TABLE DE CE CAHIER
-PAGES
 Notre catalogue analytique sommaire . ...... nn
 la plaquette de Vernon, avant la. ..........
 CHARLES PÉGuy. — Testament politique de
-Waldeck-Rousseau. ............... V
 le testament politique
 de Waldeck-Rousseau
 Documents du Figaro et de la Revue politique et parlementaire. . :....,...... I
 numéro du mercredi 12 octobre 1904 et Revue 4
 politique et parlementaire du lendemain ;
-iredAnS lé PISGrOUNS EN RARE NA LE PETITES
-RAMIAUCHON AU FPUTO Ne. (ANNÉE NET NS
 1.— L'interprétation et l'exécution de la loi de 1901. 7
 Lettre écrite par M. Waldeck-Rousseau, président du Conseil, au garde des sceaux pour fixer
 l'interprétation de la loi de 1901 sur les associations ;
-ME TO AN DEICASS ENS RAER UNS SN rene Sens
 Lettre écrite à M. Delcassé par M. WaldeckRousseau au retour du premier voyage qu'il-fit
 à sa sortie du ministère en août 1902; commentaire;
-205 XII
 
 le testament politique de Waldeck-Rousseau
 Premier bureau pour la commission sénatoriale . 19
@@ -6342,32 +4853,24 @@ suivante des observations qu'il avait présentées ; le document, à l'examen, p
 une note beaucoup moins étendue fut adressée
 aux journaux, qui la publièrent; texte de la
 
-{ première analyse;
 Conversation avec M. Combes. . ....... 3
 Récit, daté et écrit de la main de M. WaldeckRousseau, de sa conversation avec M. Combes;
 opinion très ferme sur la procédure que commandait la loi de 1901; 35, rue de l'Université,
-8 mars;
-Autre lettre... RL ANT OMAN MERE RES
 Télégramme à M. Georges Leygues; même
-sujet ; 10 mars 1903; non rallié aux conclusions
 de Rabier ;
 Une allocution ‘2.1.7: SRE RER
 Résumé d'une allocution prononcée par
 M. Waldeck-Rousseau au groupe de l'Union
 } républicaine du Sénat, quelques jours avant
 son premier discours du 27 juin 1903;
-Note 2.52 ee OR RENE
 Note relative au discours du 27 juin;
 Il. — La politique générale et la séparation des
 Églises et de l'État... 412 100 OMIS
 
-TABLE
-Ene lettre à: M: Millerand.. "2:10.
 Lettre à M. Millerand à la suite de l'interpellation que l'ancien ministre du commerce avait
 adressée au gouvernement, le 27 mars 1904, sur
 les retraites ouvrières ; [Cap-d'Ail, 19 mars 1904]
 Projet de discours contre la séparation des Églises
-EME PEACE Re Pr ee pe GES 7 en TS
 Projet de discours au Sénat écrit par
 M. Waldeck-Rousseau après son dernier minisF tère ;
 EE L'afpare Humbert A D
@@ -6384,7 +4887,6 @@ du préfet de police et de la chancellerie; note
 remise le 18 mai; résumé complet de l'affaire;
 Documents du Figaro 204.4 GE
 numéro du jeudi 3 novembre 1904 ;
-OAITEIESdÉlA LENS ONCE PE RER EG
 Introduction du Figaro; fragment de journal;
 35, rue de l'Université, 24 décembre 1902; reçu
 la visite du général Percin; 30 décembre;
@@ -6393,7 +4895,6 @@ vu Combes; commentaires du Figaro;
 le testament politique de Waldeck-Rousseau Le:
 Documents du Journal officiel. . ........ 67
 numéro du dimanche 98 juin 1903 ; } ÿ
-Discours du samedi 27 juin 1903. . . ........ 69 É
 Sénat. — Session ordinaire de 1903; compte ‘4.
 rendu in extenso; soixantième séance; suite de Qt
 la discussion du projet de loi, adopté par la ul
@@ -6402,11 +4903,9 @@ instituée par l'article 10 de la loi du 20 mars 1883 Éà
 | et par les articles 41 à 5o du décret du 7 avril ne
 1887 pour la construction d'office des maisons he:
 d'école; présidence de M. Fallières; ‘#
-n D
 Ÿ Journal officiel du samedi 21 novembre 1903; ‘#4
 Discours du vendredi 20 novembre 1903. . .... 91 M
 Sénat. — Session extraordinaire de 1903 ; æ
-compte rendu in extenso; onzième séance; suite |
 de la première délibération : 1° sur la proposi- 1
 tion de loi de M.Béraud et plusieurs de ses col- LA
 lègues, tendant à l'abrogation du chapitre pre- :
@@ -6416,7 +4915,6 @@ seignement secondaire libre; paragraphe c de :
 l'article premier du projet du gouvernement, bi:
 devenu l'article 2 du projet de loi; amendement vo
 de M. Delpech ; présidence de M. Fallières ; ph
-Autre document: :V. 1.10 NME F3
 Note communiquée à la presse. 1. 1-1N METEO |
 Note communiquée à la presse et résumant la ‘#4:
 déclaration faite par M. Waldeck-Rousseau le Li
@@ -6424,56 +4922,27 @@ déclaration faite par M. Waldeck-Rousseau le Li
 l'élection de la commission chargée de l'examen Li)
 des démarches d'autorisation déposées sur le ï: À
 bureau du Sénat ; ne
-Notes inédites... 00e TIENNE Di
-4 F
 
-PAT EE ANA NT 5
-DOM AT DNS a Sn PS AIMENT AA en PV ONU NME AT
 rafez"RR ER LE LE UC Eten NE Ace AI bn EE {au f TAC MARNE
 RE hr RO NC des a NN AE ALUTES HIS A MN POSER LaD Rte PU hier AVES
-RAIN PRES HO HQE AS AT * PSE PT STONE } ANA AL re à
-Pa ‘NES MARS at eo tar NT TR NV 5 CANIN APR NES port
-RENE UE PRE RE MER AAC ACER at VEUT PE Er RU AE
-Û , LRO (PA AU AO TER Fre ES MAN AE SU CORP APTE A2 SNS
 GT ST LE RON MERE Nntr NE AO à NE TE NE EN EEREEE QUE de
-ACER NUE OREN HAE 1 UPS LANTA ONE PL CHECCES RUN : Par
 : "FASSENT à UE DNS DE NE res,
-DDR ANUE DANS RUN ET ADO EE A ANUS SA K ‘An
 ! SNS RENE Pa TARN BA PA LULU NE LEA ts
-AU ML XIPASNT ER RE CAE EEE APE TEMANN 5 Ÿ A %, DE" HT Het
-“LR NT ASS SHRTL PRES (ER PA KR ‘ PE 100
-“F2 ee À CARE RAIN Ar CANON A st NARUPMNE
 LE ru RO AE an DR MFP TR SPL NE NT T be A ya LAN
 t DRNI CAE CARS ALENT Ar, ANR Lo? Nr LR TA RCE EP 1e pe ' me: A Fun
 > LANDIS ve 2 NAS AA MER ÏR: P8 RTE va EN x GUN si LED AE Cr n x“ £ hit
-LA ERARSNRES NAT ENVEX, Tr Etes LANDE EE Ve LE AL MAR ANT CE MARNE À: 1 PAPE
-(57 RES CRE PE ELU HUE AT OT CRTC EME AIMONS EN (: Det va ra | AU GA
 D Jen AUDE NE RME EN DT TS Met AE RU LORIE AtÉ PA Se RU L A
-us Te AMEN SRn MR ARS LENS VA CS
 REA R'AFAUE RCE Vus 2 ol A DR ER TANT A SNA (IAE EEE CORTE tie
 Dr Fu NE ie : CAES BANANE VE RIRE KG) AL) « it si MAC ENE JA Me
 DRAC Le DONS PEUT AA AMEATE nue LU ent DOU Ft
-HS ES sh FUREUR NE NT TA UUNE DRE ANA EURE LAN EME ARE L'AHA MES NNENE RS FA
-FAN TN ÉEEARR Are HAL LA ERA AT NE EVE MECS LANCE ES EE DT NN
-LL ANUS APPART  CPNIA IN D ARR ATEN LD Et 17 DIM AR RSNNE #
 #1 EN AE RE a Ne ESA EN AA LEUR ALU AE AE JON ET: ER
-- "AND l'A APPARUE 1) US ANA M RENE ER Er ro CE LECTURE
-Ra EN PE AE (! SAN LT PEN EI RE RAA CN au
-PATUCANANE LEA TA VON REY ARR AUUEE à PAU OT EU D MN AE
-LE NORRIS ERA ANR AUS MAD LS TVA LE ANNEES
-F1 % AUTOS DES EA | 1 AE RAF AE ANT A DAMES T Li VA.
 HET Fin “Ro ne pie) RS ao os Le M ns
 ; LANTA RS sh LA RANCE NN Fa AT AR OL nee e
-Et EL MER SSSR Wé: AS x + ARENA ET LOU PET HUE
-F LC OS RAS as, 44 RO See PPS SE MNT AM
 ST VRP MAG ni PAM PER ENAT ES
 
 ‘4 4 Collège de France. — Premier semestre 190-190 5.
-AT Rte SR x EP Mqu M
 Man: — MM. les lecteurs et professeurs ouvriront leurs co: urs
 M v+ le lundi 5 décembre 1904. MEL LA DA.
-7 4 té , 5 a anis se
-FAC $ % La A an 3 DO
 4h Philosophie moderne. — M. Bergson, membre de LE
 Gi l'Institut, Académie des Sciences morales et politiques, - |
 le traitera de l'Évolution du problème de la liberté, les
@@ -6481,103 +4950,34 @@ le traitera de l'Évolution du problème de la liberté, les
 ‘INA elques passages des Premiers principes de Herbert
 (: Spencer, les samedis, à quatre heures. : AT »4
 
-3 RP OU
-We s Lans dr
 hs Nous mettons le présent cahier dans le nee
 48 cinquième cahier de la sixième série: un cahier vert 12
 « n de XVI+ 216 pages; in-18 grand jésus; nous le M
-à vendons trois francs cinquante. RAR Me
 
-a
- SIXIÈME CAHIER DE LA SIXIÈME SÉRIE
-x ELIE EBERLIN
-Î NX GEORGES DELAHACHE
-ï È  Ê } . 2
-LE BUND ET LE SIONISME
-UN VOYAGE D'ÉTUDES
- GAHIERS DE LA QUINZAINE
 paraissant vingt fois par an j
-na PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
-NA \
-
-A Rat 4 #
-US is (EM EUM A ER A FRAC RTE M PA *
-DAME DST ASE RE 4h pan Fe ENS Ro
-
-(HN ARR RER APS DNA VE NN RTE
 
 D “il HA \ ! VE LUTTER an Fi MN
 
-PENSE ÿ k AE NEO )
-à FAN HAS VOA v FA VER 2 : b
-: ANNE A4 L + LT RON TE es HE AATE
-FHINNNAS NT MT ENT
-
 ne GARE AT BE ar L'EUNA tt
-a 1 i } ( + AL INNPEURNE ë
-1 MANN 1 RC "ITS AE TAC
-. 9 AMEN ! ( PRE es
-D ÿ SAC + HORATEE dt À
-INT É PARLE Ne à EATA
 
-à 14 0e Fes Ro : ; TNA a AE RES
-NA RE 4 n À 60 HU SC EENRE Ÿ
-
-NME ES à ÿ si LEE NAN ETES
-MELUN ! 4 d 4 LE LA SENS
-
-LR RO NRINES LR TS EN RURE TU RES
-VI AO RE PRE MSN I ARE Et ANS
-
-DE INA d'A A EMEA SE PAR EE Vi RARES ” )
-
-r PER AMRGEOUE CE Er LEA 8 PRE CAN AP NAUrE A0 A a APE ARNO :
-
-Res (LME RE x 3 EN NNES A D DE
-
-CARS TRENSE ! J & NEARRER EATESS
-ANA CARRE « RER À
-
-L. 14 RSMAINARRES ; HS KEUA à A SNA IPS
-(NT DEL à 10 j À > r { ; DA
-4 ETS ASP ES CAC (EE NNANE HS F4 à À 1 ONE
-LEE RS ER SA Ne EATE PARU : ER LNAS FÉES UE 1 1 AUS TUNIS
 a He NES ki ee Ke Rest LES AA PASS ARE RODE IA nr MAL sh
- t LR QE RS
 ME UN AS CPR AE MONA APT RE AUOT tal Te
 VENUS ES AA ii MAS CAL DR DE ( a NON mA at re
-ARRET LS EEE en A NN COUR RP STE PCA SAT EAN
 
 D eu ne (1, FAI IN
-LA TAPIE NES MAUR AR CES ATEN V5 PA ARS A CAT PAS DU Te fa
 
-AA PEER A ETATS TE MEN Es pe per AUOT NÉE
-
-A ASE EE MATERNEL 2 AT Te Ni He ir ROUE |
-
-1723 2 POLE NN
 SA RL ni
-:
-Ka |
-di à
 Nous avons publié dans nos éditions antérieures et
-ñ 14 . DES "HA D .
 k dans nos cinq premières séries, 1 900-1904,un si grand
-À .
 nombre de cahiers de lettres, — nouvelles, romans,
-"
 drames, dialogues. poèmes et contes : — un si grand
-î
 | nombre de cahiers d'histoire et de Philosophie; nous y
 de avons publié un si grand nombre de textes et commenEts laires, de documents et renseignements, de contribute tions, de dossiers et de travaux portant sur l'histoire
-ï
 | du peuple d'Israël; en particulier sur lhistoire COR
-: %
 lemporaine de ce peuple; en particulier sur l'affaire
 : Dreyfus; en particulier de Bernard-Lazare sur. loppression des Juifs dans l'Europe orientale; et ces cahiers …
 de lettres, d'histoire et de Philosophie, ces textes, com
-HA mentaires, documents, renseignements, contributions,
 dossiers, travaux étaient si considérables que nous
 ne pouvons pas songer à en donner ici l'énoncé méme
 le plus succinct; pour savoir ce qui a paru dans les ;
@@ -6585,8 +4985,6 @@ cinq premières séries des cahiers, ül suffit d'envoyer
 un mandat de cinq francs à M. André Bourgeois,
 administrateur des cahiers. 8, rue de la Sorbonne, rezIl
 
-" % is n
-CATALOGUE ANALYTIQUE SOMMAIRE ; +
 de-chaussée, Paris, cinquième arrondissement; on rt
 recevra en retour le catalogue analytique sommaire, |
 1900-1904, de nos cinq premières séries.
@@ -6603,82 +5001,25 @@ série; toute personne qui s'abonne à la sixième série le
 reçoit, par le fait même de son abonnement, en tête de
 la série; nous l'envoyons contre un mandat de cinq ‘
 francs à toute personne qui nous en fait la demande.
-ï
-Lu
-N
 
-Ra HO CAN | Ÿ AN NV ARE Re Re Pre
-Ps PRE a
-ie 4 | Cf | ÿ È AAA IE RAA id
-11 NPTRES AUTRE St K À MAVET A XoLre NEC HA Nous ;: AVAS
 dE Pr RUN F1 FAIRE i de Weil LUI AE nn NE
-Lo $ k RAT FI AU (RES AT RE ; ;
 | | OPA | (Pt h MU: LES TRS RUE,
-1000 cn Apr SU 1 SAC Ur vi ARE Her
 D 7 ie dit AS A
 ARE * FE Ut À VE M) EU t TVA You pat hu js Es nt il FEU MAN +
 M RDA MEET ss Mt CA PR de
 A ne ue ass
-AN AI A) hits k +
-I AE .
 
-k SLOUT DAT ÉNDEREN À Le Ve ERA EE LAC gta AS: ARRETE
-D RM
-(A OR f ON MT TS *.
-f br. LA w 3 ue ”' <, lŒUE
 F ton is 2 ent PLUS f
-nu HAE (IE
-WF URSS LE LORS
-x310 A
-LT SN MINES ÿ É 3, TAN URI
-ERA TA f " MAR
-D CAHI à Fu
-M C LA QUINZAINE
-1° 14 MN ENNE ï + LAVE Ho
 Y44 SEEN de : D'ATIRURNIRE
 wt f, PI L À fe Te
-PAS ee ? NE AN
-MAT. k 4 {ARTE
-FÉES RO 22 RUE TES
-4 ATEN : AD o
 ni CHÉET ONE » \ RAC
-Se # g dv TR
-1}: LT SRE |" ES
-LT AA - $ L'TAUR
-PE QU SE F LIN rs
-Tee : * 4 $ MR A ja f
 
-M CAL AA RAT NRC ATEN PR ARNEA or reu PRAANANTeUSE
-0 SAR AE A Et DU A UE NN SAN
 ‘ANNONNNES l'Hi $ L \f Fou EC SENS EAN
-AE Ra d' À PATES MAP TRES HI MREE NEA “
-FAR We LAN ft MAAa re He Ale RAA fi
 rt Het Ra 2 ) : \ , AA AE Wa) FE CRE {a LEUR A
 |: FREE { en. pe NE
-EL : SU RESTE NEA Ac. me
-jo CAT | j PET aT ANEER DIR TRS ENS
-AU L M ANR SAS P AE i; Le
-Au oi DA AMD URE RENTE A NA
-1 HE vi Ur MT N MT DAS 0
-MN \ A tn
-LL PANNES * A RénrIbINe 40 ay
 A "sean à NU De PAU nr LRNEAE
-AA oo LAN 14e PRATTA 1 NN
-Re HA Aa
 Ati a RAETONNRES À UN ENS
 « pis PEN) À 21 MIRE Tri HAE de FA
-LV RARE \ ‘ Ko A F2 0AS ARR
-Eure MAT 7 LT
-ï Re | À AP" NT va
-TT NAN PRE (HA ENES NACRE
-1 NE TN
-D Crob EVENE fa RAS EUR ALAN PAC RE?
-
-UE FF
-CraARLes PÉGuy
-'
-CAHIERS DE LA QUINZAINE
-}
 
 Raoul Allier. — L'enseignement primaire des indi-
 
@@ -6690,7 +5031,6 @@ justement pour débarrasser de tout souci de transcription la lecture du cahier 
 transcriptions importantes ; cette omission était inévitable ; il eût fallu, pour ainsi dire, transcrire presque
 tout; car presque tout se prêtait à la transcription,
 presque tout s'indiquait, presque tout s'imposait pour
-Ja transcription.
 
 Je ne me rappelle pas si j'ai transcrit, dans le chapitre IL, vieillerie condamnée, du 29 mai 1904, un important passage, et qui détermine fort exactement la situation des protestants probes envers un essai du
 monopole de l'enseignement ; l'auteur vient de citer le
@@ -6701,9 +5041,6 @@ gouvernement et les différents Instituts catholiques
 avaient imaginé, par ces contrats, vieillerie condamnée, |
 de faire de l'enseignement congréganiste, de l'enseigne-
 
-VII
-
-Charles Pécuy F2 |
 ment confessionnel, catholique, l'enseignement officiel,
 gouvernemental, de revêtir un enseignement confessionnel d'une investiture officielle, de faire coïneider avec un
 monopole de l'enseignement congréganiste un monopole
@@ -6718,8 +5055,6 @@ et même ainsi nous en souffrons beaucoup ; tel était aussi
 ù \ l'effet du contrat passé avec les Frères de la Doctrine
 chrétienne ; « il aurait été impossible de donner à des
 écoles oflicielles un cachet plus neitement confes-
-
-sionnel ».
 
 Mais comme il faut être juste pour tout le monde, et
 que l'État croit volontiers que l'égalité s'obtient par des
@@ -6736,9 +5071,7 @@ religieuse de lÉtat qui était, là-bas, désirable par
 
 dessus tout. Il compromettait des droits évidents. Au
 lieu de s'associer à ce régime et de le consolider, il
-VII
 
-CAHIERS DE LA QUINZAINE
 fallait en désirer la fin. Pourtant les écoles protestantes
 françaises reçurent une subvention globale de dix mille
 francs, élevée un peu plus tard à vingt mille. C'était :
@@ -6770,8 +5103,6 @@ et que les écoles officielles, ayant déjà tout cet immense
 appareil autoritaire de l'État, ne soient pas confessionnelles; c'est la formule même où nous devons nous en
 tenir, aussi longtemps que des remaniements plus proIX CA
 
-‘à ONCE
-Charles Péguy |
 fonds, que de véritables révolutions n'auront pas renout velé l'humanité, supprimant la servitude d'État, supprimant la servitude d'Église; aussi longtemps qu'il y aura
 des servitudes, qu'au moins elles soient isolées, qu'au
 moins elles ne soient pas solidaires, liées, et ne se
@@ -6792,8 +5123,6 @@ gations et de leurs écoles ont amené le gouverneur général
 à modifier la réglementalion de l'enseignement à Madagascar conformément à l'orientation donnée par le gouvernement de la métropole. Un arrêté récent pris à ce sujet
 supprime désormais aux associations religieuses toute
 
-j subvention. »
-
 On voit comment retenlissent dans nos colonies nos
 agitations démagogiques métropolitaines; de même que
 cet essai de monopole à Madagascar faisait comme un
@@ -6803,7 +5132,6 @@ nements qui en France ne donneraient encore que des
 indications ; je me permets d'attirer l'attention sur la
 méthode même que suit un gouverneur général dans la
 
-CAHIERS DE LA QUINZAINE
 plus parfaitement insulaire de nos grandes colonies; ce
 général gouverneur général ne se demande pas ce qu'il
 faut à sa colonie considérant sa colonie; pour savoir
@@ -6830,9 +5158,7 @@ ral, si cette comparaison ne l'offense pas, est comme
 un ouvrier qui se garderait par-dessus tout de regarder
 son travail; de peur de voir son ouvrage; un tel ouvrier
 ne réussirait pas beaucoup dans les arts et dans les
-XI
 
-Charles Péguy ù
 métiers, parce que la réalité industrielle a des sanctions
 W immédiates que les fictions gouvernementales n'exercent point; et inséparablement c'est comme elles ont
 des sanctions immédiates que toutes les réalités non
@@ -6848,7 +5174,6 @@ point regarder son travail, parce qu'il est couvert contre
 par l'énorme appareil de la force gouvernementale; un
 général gouverneur général ne demande point à la
 colonie ce qu'il faut à la colonie; mais il demande au
-} gouvernement central, aux agitations démagogiques
 métropolitaines ce qu'il faut faire à la colonie ; c'est un
 triomphe de pius de la méthode indirecte, scolaire,
 extérieure, extrinsèque, livresque, factice, et comme on
@@ -6861,10 +5186,8 @@ ce qui nous attend, de même que le gouvernement de
 ce général nous donne un bon exemple de méthode
 6 indirecte, pareillement, et particulièrement, le gouvernement de ce général nous donne un assez bon exemple
 de ce que c'est qu'un gouvernement centralisalteur; il
-\ XII
 |
 
-1 CAHIERS DE LA QUINZAINE
 ne suffit point de dire qu'un gouvernement centralisateur est un gouvernement qui rapporte tout au centre;
 il y a lieu d'examiner d'un peu plus près quelle est la
 méthode et le jeu de la centralisation.
@@ -6891,14 +5214,6 @@ quand on rapporte au gouvernement de l'État tout l'immense travail d'art et de 
 même quand on rapporte au gouvernement de V'État
 tout l'immense travail industriel, économique, il y a
 évidemment exercice, et il peut y avoir abus de la centralisation; mais tous ces exercices et tous ces abus
-
-XUX
-
-ns Fa AS RE
-
-H SAAURQES
-
-: Charles Péguy : 4
 
 4 peuvent n'être pas pleinement et scandaleusementappa- Ï
 
@@ -6931,7 +5246,6 @@ cation; nous ne pourrions imaginer un exemple de
 centralisation aussi bien fait que cet exemple de Mada-
 
 | gascar, historique, réel, tout fait; saisissons donc cet
-exemple.
 
 Une île immense; des intérêts immenses; des besoins
 immenses; un ayenir immense; mais des difficultés
@@ -6951,13 +5265,9 @@ d'ailleurs, allant ailleurs; toujours provisoire, passager,
 intermittent, succédané, placé là par quelque combinaï-
 son parlementaire; quelquesrancunes et quelques endur-
 
-XIV
-
-: CAHIERS DE LA QUINZAINE
 cissements; quelques manœuvres éphémères, un bud-
 
 . get particulier voté au hasard des combinaisons et des
-préoccupations étrangères; quelques vices militaires
 ou civils, également coloniaux; dominant le tout, le
 jeu des influences, des recommandations, des ambitions,
 des faveurs politiques parlementaires, gouvernementales; quelques habitudes; quelques vices; quelques
@@ -6990,11 +5300,7 @@ Une énorme réalité pendue au bout d'un long fil et
 se mouvant comme elle peut au bout de ce long fil; ce
 fil attaché à un centre, à un point, à un infime point
 
-XV
-d °
-
 | LME TONNES
-Charles Péguy
 | central; et tout le gouvernement de cette masse venant
 : de ce point, passant par ce fil ; tel est le schème de la
 . méthode de la centralisation que nous obtenons tout
@@ -7022,8 +5328,6 @@ méthode de la centralisation, et sans entrer dans la cri
 tique même de l'État moderne, premièrement une invérsion du courant du commandement, deuxièmement une 4
 énorme disproportion entre le commandant et le commandé.
 Premièrement une inversion du cours du commandeXVI
-
-CAHIERS DE LA QUINZAINE
 
 ment; j'ai beaucoup insisté, dans les trois leçons que
 j'ai faites l'hiver dernier à l'École des Hautes Études
@@ -7054,11 +5358,7 @@ le commandement venu du centre ne füt qu'une réponse
 C'est le renversement même, c'est le renversement bout
 pour bout du mouvement naturel, rationnel, raisonnable, historique; la nature, la raison, l'histoire
 
-* XVII S
-L
-
 # Charles Péguy N
-LC
 ti demandent que ce soit la périphérie qui fasse l'appel, À
 ri qui donne la secousse initiale, qui fasse la toute pre- ÿ
 1h mière mise en train; la nature, la raison, l'histoire
@@ -7080,14 +5380,12 @@ k par l'itinéraire du fil soit le courant descendant d'auto4 rité gouvernement
 qu'un renversement lotal, une inversion complète dans
 ïn le sens du courant qui fait la communication des colo-
 à nies et de la métropole; elle substitue au sens naturel,
-À rationnel, raisonnable, historique, exactement, bout
 pour bout, un sens factice, le sens contraire.
 À Notons que le même phénomène se produit toutes les
 ‘TRE fois que fonctionne la méthode de la centralisation;
 peut-être pourrait-on dire que ce phénomène de retour-
 $ nement n'est pas essentiel à la méthode de la centralisation, qu'il en est un abus, ou le résultat d'un abus, et
 non pas le résultat d'un exercice ; et en effet, si l'on
-Me XVII
 
 ss CAHIERS DE LA QUINZAINE
 voulait s'en tenir à la rigueur d'une analyse qui remonterait elle-même à des recherches plus approfondies,
@@ -7114,9 +5412,6 @@ centre, et revienne ensuite à la partie intéressée de la
 périphérie, à la partie originelle; cette forme aujourd'hui presque effacée de la centralisation demande
 donc enfin que limpulsion vienne de la périphérie, que
 
-XIX
-
-Charles Péguy
 | '
 le mouvement fasse un voyage d'aller et retour; telle
 serait, telle a été la forme complète, antérieure, première de la centralisation; un mouvement né au bord,
@@ -7143,8 +5438,6 @@ périphérie, au lieu qu'il faudrait qu'il y eût un mouvement d'appel, d'exigen
 inverse, contraire, préalable et à qui le mouvement
 | descendant d'autorité ne fat qu'une réponse; et ce mouvement redescendant d'autorité a tout envahi au conXX
 
-À L
-CAHIERS DE LA QUINZAINE
 traire, tout annulé ce mouvement montant d'exigence
 et de liberté.
 
@@ -7174,9 +5467,6 @@ républicaine trahissait la France; enfin ce général
 n'était pas très aimé de ses subordonnés, ni très estimé,
 j'entends comme général, et non comme homme;
 
-XXI
-
-N Charles Péguy 4
 Ne comme homme je ne le connais pas; on lui attribuaït 4
 à une certaine incapacité technique et professionnelle;
 à : enfin les officiers qui servaient sous ses ordres avaient
@@ -7214,7 +5504,6 @@ i l'immense et rebelle réalité du pays parcoure, en ce
 conversion, opère l'immense changement de direction
 à correspondant; je le répète, c'est ce qui se passe
 
-CAHIERS DE LA QUINZAINE
 aujourd'hui partout; c'est là toute la centralisation, |
 tout l'étatisme, et je puis le dire sans offenser M. Déroulède, c'est là tout le jaurésisme; el si nous nous
 sommes arrêtés à cet exemple de Madagascar, si nous
@@ -7228,7 +5517,6 @@ retrouver plus facilement ensuite el cette méthode, et ce
 mécanisme, et ce schème, dans les exemples beaucoup
 moins simples, beaucoup plus complexes, et beaucoup
 plus revêtus, que nous présente de toutes parts la
-réalité.
 Avant d'en venir, si nous le pouvons, à ces exemples
 beaucoup plus pleins, je veux dire encore un mot, et ce
 sera tout pour le commentaire d'aujourd'hui, je veux
@@ -7242,9 +5530,6 @@ mouvement populaire, un mouvement politique parlementaire, un mouvement démagog
 changement de direction; le gouverneur général, qui ne
 regarde point la colonie de son gouvernement, ne .
 regarde pas même, au dehors, un mouvement ofliciel,
-XXI
-
-Charles Péguy
 
 1 administratif; el ce n'est pas même sur une indication
 
@@ -7282,8 +5567,6 @@ h colonie dont il à le gouvernement; mais quand c'est sur
 
 11 les variations de la foule qu'il veut aligner ses comman-
 
-REA dements généraux.
-
 « Les mesures prises récemment en France au sujet
 des congrégations et de leurs écoles ont amené le gouverneur général à modifier la réglementation de l'ensei-
 
@@ -7306,7 +5589,6 @@ tation dont la boussole manque un peu de constance;
 
 | XXIV
 
-CAHIERS DE LA QUINZAINE
 un gouvernement central qui s'oriente uniquement sur
 les fluctuations de la démagogie; et un gouvernement
 - colonial qui se guide uniquement sur les orientations
@@ -7337,12 +5619,8 @@ prend les agitations de ces remous démagogiques, les
 soubresauts de ce gouvernement central pour le point
 fixe de son orientation; déplacements doubles, redou-
 
-XXV b
-
-É Charles Péguy
 blés; aberration double, redoublée; premièrement les
 aberrations informes et vaseuses, colloïdales, de ces
-. foules démagogiques, perdues, bêtes, ignorantes, corrompues, barbares, vicieuses, flattées, grotesques, flatteuses, corruptrices, cruelles, méchantes, mauvaises,
 détournées, sournoises, orgueilleuses et basses, rampantes et mordantes, servantes maîtresses, ét qui joignent toutes les corruptions de la fausse grandeur à
 toutes les corruptions des misères véritables; deuxiè-
 mement les aberrations raides subordonnées d'un gouvernement d'État; troisièmement les aberrations multipliées, agrandies d'un gouvernement colonial.
@@ -7358,18 +5636,12 @@ vraiment cette nouvelle et jusqu'à plus ample événe-\
 ment dernière forme de tyrannie, la tyrannie contemporaine ou moderne, particulièrement la tyrannie qui se
 nomme aujourd'hui de défense républicaine, enfin la
 tyrannie dont nous jouissons, ne présentait certains
-caractères particulièrement inquiétants.
 
 Non seulement elle présente certains caractères particulièrement inquiétants, mais de tous ces caractères
 le plus inquiétant est qu'elle présente, surtout, une
 superposition, une coïncidence, une coexistence, un
 surajoutement nouveau de deux anciennes formes de
 tyrannie qui n'avaient point encore accoutumé beaucoup
-
-XXVI
-*
-
-CAHIERS DE LA QUINZAINE
 
 d'aller ensemble; parmi toutes les formes de tyrannie
 que la vieille humanité n'a guère cessé de subir, on a
@@ -7399,9 +5671,6 @@ accompli en démagogie que nous devons cet accouplement monstrueux.
 
 Les tyrannies dures, anciennes, simplement dures,
 
-XXVII
-
-Charles Péguy
 avaient leurs avantages et leurs inconvénients; elles
 avaient naturellement plus d'inconvénients que d'avan-
 
@@ -7415,7 +5684,6 @@ aussi démocrate qu'on nous l'a récemment fait, s'est
 
 plusieurs fois représenté le long achèvement de la
 science poursuivi sous la tyrannie dure d'une autorité
-gouvernementale monarchique.
 
 Les tyrannies molles, anciennes, simplement molles,
 les tyrannies de plèbes, de tourbes et de foules avaient
@@ -7424,7 +5692,6 @@ naturellement plus d'inconvénients que d'avantages,
 puisqu'elles étaient des tyrannies, et qu'étant des tyrannies elles faisaient des servitudes; mais enfin elles pré-
 sentaient quelques avantages compensatoires; par leur
 mobilité même, qui faisait leur mollesse, elles pouvaient
-laisser quelque ouverture, quelque échappatoire aux
 éruptions des libertés, aux évasions, aux invasions,
 aux interruptions, aux brisures et aux introductions ;
 les révoltes et les troubles de la vie pouvaient à la
@@ -7437,14 +5704,10 @@ Mais tyrannies dures et tyrannies molles, tyrannies
 de chefs et tyrannies de troupes, je ne crois pas que
 jamais ces deux tyrannies, qui paraissent inconciliables,
 
-XXVIIT
-
-é CAHIERS DE LA QUINZAINE
 incompatibles, aient coïncidé comme elles paraissent
 vouloir coïncider dans le monde moderne, d'une coïncidence aussi régulière, aussi organique, aussi solide,
 aussi statutaire, aussi parfaitement acceptée; considé-
 rons en effet comment fonctionnent, dans la réalité, nos
-gouvernements modernes, prétendus démocratiques,
 réellement démagogiques, nos gouvernements d'État;
 ils cumulent tous les inconvénients des tyrannies molles
 et tous les inconvénients des tyrannies dures; ils ajoutent
@@ -7469,9 +5732,6 @@ rien ne peut échapper aux oppressions de ce régime;
 ce régime cumule tous les inconvénients des tyrannies
 dures avec tous les inconvénients des tyrannies molles ;
 
-XXIX -
-
-Charles Péguy : à
 et il ne cumule point, il annule au contraire les quelques avantages qu'elles peuvent respectivement avoir;
 car en pareille matière les inconvénients se cumulent, ;
 
@@ -7491,7 +5751,6 @@ toutes les oppressions des unes et des autres tyrannies; l'incohérence, l'incon
 sur la continuité du travail et de la vie; la cohérence
 de l'État, la consistance du gouvernement retombe sur
 la discontinuité de la révolte et de la liberté; tout est
-réglé.
 
 J'arrête ici ce commentaire; nous recommencerons
 comme et quand nous pourrons; du train dont je vais,
@@ -7503,10 +5762,6 @@ lire n'a pas besoin que je le présente; il est un cahier
 de plus apporté en contribution à l'histoire du peuple
 d'Israël, et particulièrement à l'histoire contemporaine
 
-XXX
-
-LR ES à £ +
-CAHIERS DE LA QUINZAINE
 de ce peuple; dans le cahier de M. Henri Dagan, qui
 fut le premier cahier de la cinquième série, l'Oppression des juifs dans l'Europe orientale, — les massacres
 de Kichinef et la situation des prolétaires juifs en
@@ -7531,122 +5786,26 @@ série, nous apporte les résultats personnels directs d'un
 voyage d'études qu'il fit au pays même ; enfin une nouvelle de Vladimir Korolenko, la maison numéro 13,
 traduite par M. Elie Eberlin, donne la vision directe et
 saisissante d'un épisode du massacre.
-CHARLES PÉGUY
-an
-C
 
-“LASER ae, Re DER NC MARS RATS AIT ER
-L'ÉRRR Se ER 15 SUMPSTIANTE pe ÉNE RER RSR
-HER * F - LE 4". LCR OS Fa > de -
-LES ERA LES NÉE <
 RE = G 3 va ÿ Eee de FA PORT Don M n
-L  ..
-2e ie EUR Saut nn D
-nn : NE
-Ke 4 MARCEL EU
-ne ! ? ; KT: 0 DS * à
 NE ts : FLE T SERRES)
-AE 7 r NANTES er SALLE AMEN ONEER
 CRE er ET ; ANSE LAN
-4 un LT LUS
 LES Res Aie : RÉNTLES is FRUTE FRAIS ES
 L'ENCRE sr at re FARM EE VE HI MAP NES Fr Re
 FENTE de Fa vais 4 M AE Ve see (ui RSR
-JR CS ue € D AM AR PRADA TANTEE vs NOR SP STE RS A +2 ‘
-D HITS Oo TPE Re A (RES RARE
 
-+ bi UE 40 DIM EE DA 144
-2 PORC HAE AE ET RS NOT ANG P ESS M
-1 EEE EE SERA 2 res D TR AIRE AD PERTE NT NE QUE: RAT
 DM EC 1 AN a LATEX pie URLS LA GE VE RAT Nn RENAN À ae AO
-ÿ, RS au Las FAX TIRER à TUpé CRE PE vo RARE
-D NAT A PARIS RASE LS à
-Me. k à ' TS NE
-NÉ ONERER AS NOTE
-LE © ‘ ME
-ELU Ô | LATTES
 (hate CET CINE VA SRE a.
-Re ès HE.
-MÉRITE {* HUIT
-Met) MU
-À, EN ENS \ MAI NSE
-2 T2 Ÿ LEA DST TN
-Ve ER ‘FOREG LS °
-EN NE ER PAU!
-1 AU RE a ae Ÿ | HA
-PERS { ATLAS
-‘ANNEE “ Ô UE SE
-1:7774e k ÿ tÿ UE AA SE À ME
-MAS CRE ; ‘ \ t (ET en (x
 
 fi 14 RON EN RO AARE on AA RAA 1
-1, RÉ eNAnenEere AN AE REA AL EN AT RO
 Ni EMA « { Me A LEARN FAT at eee LEE PRANTTOPE
-ss \APN ; FLAN PP MT D A A ERA ME Lu
-Ve 0 ERA RR 3 DRE ONE TONEN OU Es NE RES SRE cie
-y A OMEERE # 1e, DROITE EUR PT ASE A Ca n
-1" ARE LA NN RE Eee
-we Duel À : LTN ONE LR ARE
-4 d ls) na AO nor ii VA ILES NS
 : LR DANS IRIS \ NME MEME FA Mon Un
 Fe NNENOE (1 | EDR PEN ENEES deja LE à
-VENUE Î RENOM PR SpA RES
-RES AN \ LH 2 à RP ALE Re E NUE
-Ê “ie 24 , TO AN nt KES (AU
-L'PHÉNITTENSES À LE PT LATE 40e Le ANAL
-Le HU Tr NEUES X 1 HR RMANPRNTE RS #0 ARTE Net
-AE ! } 4 AUD OPEN DES
 | NEA 12" RTRPeRRR CES
-: 00 AR
-RAT Clos à VAR EVA TER cie PARIS EU & EU
-1 A f IE NOR Ni De
-es 15 Le #40 FMeE VRP) 0 1: VAN
-V4) ATSMANEES 4 D: U CRTNINES A LE CU AUS NP
 MES Pan NET x AC ETA ERS DA
 
-H 4 AN nr) k AE TRTAN HN
-FT ARTE AA MG EE Re ue:
-rl STAR IN A ue ER PAM AO he
-RIM OEIBEREINS NET AURT ER RANEUS PE 12 M 1 ANUS
-dE 1% SNA TERRE
-MARS L 5420
-{HT ENS 1 UNE ns]
-AXE En Ê 4 HA
-‘1 TRES RE
-5,. CEE : LR ANT
-à AR IE EE à 3 AE
-D a - J ‘PASSES
-PRES PARTIS. QJUIFS EN RUSSIE. 17100
-Pre te 0 ; ô 100
-Me E : F & ELA FINE
-: WT PO ) ï OEM L.
-Nr 7 XI)
-PT NAE FE NES
-D. dès : + Ÿ Ÿ 1 SUN ARIANE
-FR Mae: 11 À à JE APE
-LAS PONS AE UPS Ÿ 5 À LA UNE
-
-A MEN NE APP AND MMA AT ND PS NAN EN pH re
-LACS Te La TE F3 NAONURS
-À {60 ñ L Fe AA Lis GT PT. À £
-14 ANNEES k RENE PEUT LUE ENS w FA
-RTE 1 Lee Re TMAL SNS ATOS AE FR
-4 HE: k k 18. 4 " +4 ARR AU
 L'EURO 34 Le DO lx k pe d'iES RES eut
-“ol CAE M US pere RS AS
-NES : LR TIME SNANENEES
 ER RUN \ | NV de at NL ORNE
-D ST N SOON P2 (4e MERN RDS
-1 HONTE al vif, RE NC
-TN de } 1! “ L MAN QU AL TE AE
-f | IUT AMENS Y \| NE ANNEES
-vi. \ RTL EU)
-RME LU {; FL NUES it AN PRES
-AU VA 4) We LAON ESS
-41) ON MARIE PO à g DANONE RAR AC RNNER LATE EC
-
-)
-Introduction
 
 Sur les onze millions de Juifs que l'on compte dans le
 monde entier la Russie en possède plus de cinq : cinq
@@ -7672,10 +5831,6 @@ historiens juifs n'ont jamais fait que l'histoire de la
 (:) Le Terriloire ou la zone de résidence comprend vingt-six
 gouvernements où les israélites peuvent résider, mais dans les
 villes et les bourgs seulement.
-
-"6
-
-Elie Eberlin
 
 bourgeoisie juive et à l'usage des bourgeois juifs de
 leur temps. (1)
@@ -7714,7 +5869,6 @@ K juste, — ils ont eu constamment une préoccupation : ne pas faire
 : lhistoire des juifs en tant que nation. » — Grande Revue, août 1899.
 La conception sociale du judaïsme. Bernard-Lazare.
 
-INTRODUCTION
 l'affranchissement humain n'a été plus vivace en Israël
 qu'à l'heure présente.
 
@@ -7744,8 +5898,6 @@ tout son appui, malgré l'exaspération de la réaction et
 les représailles de Kichinev. Il faut avoir été dans les
 grands centres juifs, il faut avoir étudié le Juif, soustrait à l'influence étrangère, produit de son milieu, de
 
-É Elie Eberlin
-
 sl son éducation religieuse, de ses traditions nationales,
 \ pour connaître l & esprit juif », le véritable esprit juif,
 me non celui de l'oisif et du repu, mais du pauvre et du
@@ -7763,7 +5915,6 @@ de Russie. Nous nous proposons seulement, en nous ap- :
 | il
 La population juive de la Russie: la bourgeoisie,
 la classe ouvrière, les petits marchands et les
-agriculteurs.
 
 Si l'on calcule d'après la méthode Besser et Bailod
 le chiffre de la population masculine juive de Russie
@@ -7774,12 +5925,10 @@ se répartissent ainsi d'après leur profession :
 MARNE de mena des danse Ne seed 85.000
 Ouvriers de la grande industrie......... 25 .000
 PIC AILEURS ER NU le ces ve 21.000
-Idastriels,-financiers 1.0.2. 3.000
 
 Professions libérales (diplômés de lUniversité, instituteurs religieux juifs)... 25.000
 
 Marchands, intermédiaires, gens de proLESSIONS IROELETMINCES 4 EL ER eee 530.000
-Dotal (nee Eat. 000
 
 @) Nous avons établi le chiffre de manœuvres, d'ouvriers de la
 grande industrie, d'agriculteurs et d'artisans en nous basant sur
@@ -7793,9 +5942,6 @@ des raisons d'ordre fiscal et administratif le Recueil ne contienne
 pas de renseignements sur la classe de marchands, d'intermé-
 diaires et d'industriels.
 
-9 Re
-
-Elie Eberlin
 On voit donc que dans la population juive en Russie,
 | l'artisan, l'ouvrier, le petit boutiquier prédominent. Les
 | Juifs cultivés, diplômés, sont en infime minorité. Les
@@ -7826,9 +5972,6 @@ toutes sortes de difficultés opposées aux israélites qui
 veulent fonder une société commerciale entre eux
 ou avec des chrétiens (dans ce dernier cas ils ne sont
 admis qu'en proportion infime), d'une manière générale
-
-NT To' RS r da
-LA POPULATION JUIVE DE LA RUSSIE
 
 tout développement régulier de l'industrie leur est
 rendu impossible. Un fabricant juif, par exemple,
@@ -7867,9 +6010,6 @@ de Vilna)
 
 (3) Un rouble, 2 francs 65.
 
-II
-
-Elie Eberlin À
 \ sans-travail par les progrès du machinisme. C'est parmi
 ce prolétariat que se recrutent les éléments les plus
 actifs du « Bund », ainsi que le noyau de l'émigration.
@@ -7877,30 +6017,11 @@ actifs du « Bund », ainsi que le noyau de l'émigration.
 ; différents métiers dans les seize Gouvernements ci-après
 “ indiqués. Ce tableau a été dressé en 1891.
 É __Nombre des Ts
-; aideGouvernements artisans artisans apprentis Total
-" 1. Bessarabie 15.465 6.586 2.677 24.498
-DEV EE URR RS 19.593 8.880 10.601 39.074
-SAIVALEDSN Tee 12.706 3.703 DATE 19.620
-4. Volhynie ........ 23.392 7.304 5.667 36.363
 | H'IGrodnp tr Cri 27.245 7.605 10.532 45.382
-Ü 6. Iékatérinoslav …. 5.608 1.510 go1 8.019
-DÉMRLE VAN NT AUS MNENS 15.2/9 79-459 5.597 28.305
-sus S:HKOYNON. TAPER 26.226 SRG 4.897 34.678
-9-LGourlande: "12 5.707 1.089 1.294 8.050
-l 107 MMS EUR R Ce 24.368 7:902 8.491 40.597
-TT IMOhHey est" 14.307 4.983 2.070, 21.354
-12. Podolies. :.....0 24.705 10.735 10.537 45.977
-ES RPOLtAVAL ERA 3.978 1.959 1.779 9.716
-ti Tauriden:-. he 3.181 1.592 1.014 5.787
-19: RDErTSONS. CEE 13.853 4.952 2,707 21.562
-16. Tchernigov...... 6.385 2.050 939 9:374
-Total 0e 241.662 81.714 92.904 396.280
 Ce tableau nous montre que la majorité de la classe
 ouvrière juive se compose de petits artisans, qui travaillent soit seuls, soit avec un ou deux ouvriers au
 plus. Ces ouvriers, après quatre ou cinq ans d'apprentissage, se marient ordinairement et deviennent à leur
 tour propriétaires de petits ateliers; la classe des artisans juifs est donc essentiellement mobile et changeante; ses cadres se renouvellent sans cesse.
-
-LA POPULATION JUIVE DE LA RUSSIE
 
 D'ailleurs le nombre des petits patrons juifs diminue
 sensiblement et la prolétarisation de la classe ouvrière
@@ -7911,44 +6032,12 @@ en 1901-1902 par une société de statistique juive. Il comprend aussi les dix g
 
 9 Nombre des
 
-A —
-aideGouvernements artisans artisans apprentis Total
-+1, Bessarabie ...... 8.580 7.075 D:99E 20.976
-Be 0 A IÈTE DRAP 18.404 3.241 4.595 26.240
-SAINATEDSK re 10.671 7.077 5.725 23.473
-Noyer. 18.146 12.729 6.089 36.964
-PrEGroUno) 17. 23.623 11.561 10.005 45.189
-6. Iékatérinoslav …. 4.910 2.220 909 8.039
-Der EN ARR RE SEC) 1/1 14.511 7.131 43.386
-CMICOVRO Sn 14.313 3.590 5.62r 23.924
-NO Minsk: 2... 18.129 10.451 6.707 35.287
-LoMOonTeT 12.821 7.649 5.359 25.849
-I Podolie. 00%. 19.753 13.392 7.656  4o.8or
-HI POlIAvA SC 4.924 2.097 1.794 8.815
-HS Taunidée 3... 3.732 2.237 1.497 7.466
-HRK HerSOn.. 7.2. 11.036 8.530 5.216 24.782
-19: MEChernigov..... 5.196 3.666 2.201 11.063
-MO Varsovie... 16.149 3.540 3.598 23.287
-ET RNA Et 3.635 1.476 2.68/ 7.79
-15 PCtrOKOV. 7.800 5.680 2.869 16.349
-MO ALES (OPA PREE EUR 3.397 1.220 1.837 6.454
-ot Radons. 2%" 7.253 2.505 3.480 13.238
-SOU DIU ee 8.910 4.879 2.842 16.637
--22. Siedlecz . =... 4.819 3.937 2.673 11.467
-PS HTIONIA es 5.466 2.490 2.347 10.303
-RAR PRIOR 16e 2.909 1.194 1.723 5.826
-N2): SUVAIKI.. 1... 3.318 840 1.163 5.327
-Total..... 259.636 137.827 101.062 498.525
-
-\ Elie Eberlin
 Si nous retranchons de ce tableau les artisans, aideHe artisans et apprentis des dix gouvernements de la
 Pologne, dont les nombres respectifs sont de 63.654,
 in 27.801 et 25.216, nous verrons que dans une période de
 dix à onze ans le nombre des petits artisans, nous vou-
 | lons dire des patrons, dans les quinze gouvernements
-l du Territoire, a diminué de 45.680 (241.662 en 1891 et
 4 195.982 en 1901), tandis que celui des ouvriers (aideartisans et apprentis) n'a augmenté que de 31.254
-: } (154.618 en 1891 et 185.872 en 1901).
 ÿ Le taux moyen des salaires, tant dans les ateliers d'arti-
 { sans que dans les fabriques, peut être considéré comme
 un taux de famine. Il ne dépasse pas 3 roubles et demi
@@ -7970,9 +6059,7 @@ causes : d'abord le manque de traditions, d'expé-
 la grande industrie, — le repos du samedi, qui occa-
 : sionne soit des diminutions de rendement, soit des dif-
 : ficultés d'organisation intérieure, — le nombre insufliJde sant de contremaîtres israélites, — enfin le désir même
-a 14
 
-LA POPULATION JUIVE DE LA RUSSIE
 des ouvriers juifs de faire prévaloir leurs revendications de classe. Pour toutes ces raisons, les fabricants
 chrétiens et même juifs hésitent à prendre des ouvriers
 israélites à leur service. Néanmoins, dans certaines
@@ -7983,44 +6070,26 @@ centre industriel, connu par ses fabriques de draps,
 72 o/o des ouvriers sont des israélites. à
 Voici le tableau des ouvriers juifs comparé à celui des
 ouvriers chrétiens dans différentes fabriques appartenant aux israélites de cette ville.
-Nombre Ouvriers o/o
 Genre de A ———- des
 de fabriques fabriques juifs chrétiens Total juifs
-Fabriques de drap ...... 60 974 449 1.223 63
-LES URSS SE A IOI 117 218 46
-PURES 2 cat ce A 88 9° 183 51
-Fabriques de châles..... 9 276 123 399 69
 Fabriques de couvertures 2 27 25 52 51
-CHR Ie Das re 2 12 » 12 100
-L LÉ RORNERMRER RS RRCERR 4 527 » 527 100
-SOIES dE PpOrC,----.-..-." 3 162 » 162 100
-PTASNErIES JET me I 10 » 10 100
-Tannerie................ I 20 4 Cire
-RENE OGC ETES I 10 I IT 90
-Mécaniques. 4793.02 4 20 I 21 9ÿ
-MeRHISEPIES 1 0e 3 27 10 37 T2
 Trial MN GR doit 805 la.820 QU
 Les métiers favoris des artisans israélites en Russie
 sont : la confection des vêtements, la cordonnerie, la
 menuiserie, la tannerie, la reliure. A Vilna, par
 exemple, où le nombre des artisans est de 19.000, et où
 
-Ha Elie Eberlin :
-
 iQ deux tiers de tous les métiers sont exercés par les
 É É juifs, il n'y a que 5 o/o de tailleurs chrétiens.
 
 À Mais il ne faut pas croire que les métiers durs répuME gnent aux israélites. Juifs paveurs, ramoneurs, forge-
-{ ; rons, maçons, charbonniers, potiers, charpentiers, —
 à vous les rencontrerez par milliers dans les villes du
 | « Territoire ». Une statistique curieuse, en date de 1857,
 1 nous donne quelques chiffres sur les ouvriers juifs de
 45 la Pologne russe, dont la population israélite n'était à
 Lt cette époque que de 563.093 âmes. Sur ce demi-million
 L de juifs on comptait alors 129.538 ouvriers, dont
-32.957 tailleurs, 14.182 cordonniers, 1.973 maçons,
 jt 37.106 journaliers, etc.; le nombre de journaliers,
-manœuvres, cochers, débardeurs, etc., juifs, s'élève
 ji actuellement d'après le Recueil de matériaux sur la
 k situation économique des juifs russes à 105.000. Il ressort en.somime de loutes ces statistiques que sur trois
 
@@ -8037,11 +6106,8 @@ inconnu. Néanmoins, — métamorphose difficile entre
 toutes, — les boutiquiers, les marchands et les artisans
 juifs établis par le gouvernement russe en 1807 et 1808
 dans les steppes des gouvernements de Kherson et
-d'Iékatérinoslav devinrent rapidement d'excellents
 colons. Il résulte d'une étude approfondie sur les colo16
 
-Ë *
-LA POPULATION JUIVE DE LA RUSSIE
 nies agricoles juives publiée dans le Recueil de maté-
 riaux que les agriculteurs juifs sont mieux outillés que
 les paysans russes et qu'ils ne le cèdent en rien aux colons
@@ -8055,32 +6121,10 @@ court, et c'est là le témoignage le plus significatif de
 leur aptitude à l'agriculture.
 Nous empruntons au Recueil des matériaux quelques
 données statistiques sur les juifs agriculteurs en Russie.
-JUIFS AGRICULTEURS ù
-Etendue
 de terres
-cultivées
-en
-Nombre Nombre déciatines
 Gouvernements de colonies de colons QG)
-Mila umo. 32 3.932 4.392
-Nesle, Dane La 28 1.648 1.914
-HONOR MN JUL 14 2.792 3.585
-YO EE AAA NE 15 4.954 2.649 !
-RDS T Era nude 26 7.946 6.601
-Mobile met 76 4.500 5.343
-Molhynie 21528. 18 6.548 5.551
-LE Te POS DAME EN 23 15.960 2.812
-Podohe ANT 15 18.822 2.191
-Hchernigov: 2. 4 1.024 1.280
-Bessarabier 420 II 2.100 3.300
-Kherson: er 22 19.419 42.839
-Iékaterinoslav....... 17 7.849 17.650
-Totale 301 97.454 Too. 107
 (2) Environ un hectare.
 
-Fe REA AG AH 0 O2 os ARTE RUE ASS FUN EAN PTURRT AO MR PETA
-1 10 He Ne SL CUITE
-(A Elie Eberlin VAR oi
 ton Dans tous ces gouvernements, en Bessarabie surHT UE À . a CU C
 As tout, les juifs sont employés aussi dans les plantations
 11 J de tabac; un grand nombre d'entre eux s'occupent de
@@ -8091,28 +6135,13 @@ TES de 12.000 israélites s'étaient engagés comme journaliers
 141 pour les travaux des champs. ; sa
 |; 4e En dehors des agriculteurs juifs dans le « Territoire » il
 ne y à un certain nombre de colons israélites en Sibérie;
-M d
 
 bi) n en outre près de vingt mille juifs au Caucase, indigènes
 10 du pays, et parlant le géorgien, s'adonnent aussi à
 ‘108 l'agriculture et à la viticulture. |
-l { Eu
-FAN
-RE
-\' ot ,
 
-Fu #
-
-h Le | Po |
-
-A.
-
-(NARER : K
-
-II
 Les causes historiques, psychologiques et morales
 du mouvement révolutionnaire parmi les Juifs
-russes.
 
 Cette nombreuse population ouvrière est cantonnée,
 — ainsi que tous les israélites russes, — dans les vingtsix gouvernements du « Territoire ».
@@ -8137,7 +6166,6 @@ Outre ce refoulement systématique dans les villes du
 Juifs. On leur interdit certains emplois et certaines
 professions; on chasse les infirmiers juifs des hôpitaux,
 
-k Elie Eberlin
 k on n'y admet même pas de malades israélites; on
 je Ë congédie les employés juifs dans les compagnies de
 l'A chemins de fer et de navigation; on limite le nombre de
@@ -8168,14 +6196,10 @@ Les ouvriers d'usines juifs ne forment que 2 o/o du
 trois fois plus d'ouvriers organisés israélites que d'ou1e * vriers russes. Tandis que le parti social-démocratique
 russe n'a qu'un seul organe ouvrier en Russie, neuf
 1 journaux clandestins paraissent régulièrement dans les
-‘ 20
-À
 
-CAUSES HISTORIQUES, PSYCHOLOGIQUES ET MORALES
 villes du « Territoire », à Vilna, Varsovie et ailleurs.
 On tire de 4.000 à 5.000 les proclamations du parti
 social-démocratique russe et de 40.000 à 80.000 celles du
-« Bund ».
 
 Une question se pose alors naturellement : Comment
 de ce peuple parqué dans les limites étroites d'une
@@ -8187,12 +6211,10 @@ lutte, et qui forme l'avant-garde de la Révolution russe?
 Pour répondre à cette question, il faut tout d'abord
 connaître l'histoire des Juifs en Russie. Cette histoire
 n'est qu'une suite ininterrompue d'expulsions impitoyables, de vexations sans trêve et de tueries en
-masse.
 
 Nous allons esquisser dans ses grands traits le martyrologe des Juifs russes, qui, à lui seul, pourrait déjà
 justifier cet état de malaise et de méfiance particulier
 qui règne dans cette fraction du prolétariat de l'Empire
-moscovite.
 
 Les Juifs ne sont point des intrus dans l'Empire des
 tsars. Ils comptent parmi ses plus anciens habitants.
@@ -8205,7 +6227,6 @@ les Juifs comme des étrangers, tout en les astreignant
 
 Les Juifs du nord et de l'est de la Russie, d'origine
 
-; Elie Eberlin
 lithuanienne et polonaise, ne deviennent « sujets » russes
 qu'aux dix-septième et dix-huitième siècles. Mais ils
 n'avaient pas attendu si longtemps pour connaître la
@@ -8223,7 +6244,6 @@ j victoires sur les Polonais, massacra 300.000 Juifs. Dans
 É une seule ville, Ouman, près de Kiev, les moscovites et
 les cosaques immolèrent 10.000 victimes. Les Juifs
 russes ne se relevèrent pas de ce désastre et le considèrent comme l'événement le plus tragique de leur vie
-d'exil.
 
 Les survivants furent expulsés. D'ailleurs les Juifs
 avaient déjà été chassés de Russie bien avant, au
@@ -8249,8 +6269,6 @@ ment (Leroy-Beaulieu, Empire des Tsars, III, page 630).]
 
 massacres de Chmelniczki, fut annexée à la Moscovie.
 3 22
-
-CAUSES HISTORIQUES, PSYCHOLOGIQUES ET MORALES
 
 Alors, en 1727, le Haut-Conseil privé de l'Impératrice promulgua une ordonnance signée par Catherine
 et prescrivant d'expulser « les galeux juifs », hommes et
@@ -8285,7 +6303,6 @@ commença donc par marcher sur les traces de ses
 prédécesseurs. Dans son premier manifeste, en invitant
 les étrangers à venir s'installer en Russie, elle eut soin
 
-Fe Elie Eberlin
 ; d'en exclure expressément les juifs. Mais à la fin de
 (EX son règne, l'annexion de la Pologne, qui contenait des
 “ centaines de milliers de Juifs, força le gouvernement
@@ -8297,7 +6314,6 @@ fussent trouvés mal de cette expulsion en masse. On
 i et les décrets sénatoriaux de 1786, 1791 et 1794 les
 hf cantonnèrent dans les provinces conquises avec défense
 pe d'en sortir. Ces provinces constituèrent dès lors le
-fameux « Territoire juif ».
 ‘ Donc, dès les premiers jours de leur entrée dans
 l'Empire russe, les Juifs furent soumis à ce régime
 d'exception qui pèse encore sur eùux. En confinant les
@@ -8315,16 +6331,12 @@ hi loi à tous les autres sujets du Tsar, la loi le dénie aux
 cinq millions d'Israélites et aux. forçats libérés.
 f C'est cette inique et cruelle restriction de domicile
 } qui est la source principale des souffrances juives en
-Russie.
 : En montant sur le trône, Alexandre premier avait
 ÿ permis aux Juifs de louer et d'acheter sous certaines
-: :
 
-CAUSES HISTORIQUES, PSYCHOLOGIQUES ET MORALES
 conditions des terres dans les limites du « Territoire »,
 ce qui leur était rigoureusement interdit avant. Il les
 autorisa également à se fixer dans les domaines de la
-couronne à condition d'y être agriculteurs.
 
 Mais en même temps cet empereur défendait aux Juifs
 
@@ -8355,9 +6367,7 @@ lieu la première grande émeute antijuive. Le général
 Kotzebue, gouverneur d'Odessa et Allemand de
 
 naissance, vexé de la sympathie que les Juifs de sa
-, 25 I
 
-A Elie Eberlin
 ville témoignèrent à la Framce pendant la guerre de
 1870-71, ne trouva pas de meilleure vengeance que de
 1 lâcher quelques milliers de Russes et de Grecs sur les
@@ -8406,7 +6416,6 @@ actuelle, aux conseillers de commerce israélites, etc.; mais il w'ap-
 ñ porte guère de modifications notables au droit du séjour des Juifs
 ; dans l'intérieur de la Russie.
 
-CAUSES HISTORIQUES, PSYCHOLOGIQUES ET MORALES
 libérateur ». La presse signala le Juif, « ce pelé, ce
 galeux », au courroux des populations. Le peuple
 déchargea sur lui à la fois ses vengeances patriotiques
@@ -8426,7 +6435,6 @@ Mais si les Machiavels russes peuvent se flatter d'avoir
 réussi à démoraliser le peuple russe, — les massacres
 de Kichinev le prouvent suffisamment, — il leur fut
 impossible d'étouffer les revendications sociales des
-populations juives.
 
 Cependant les persécutions, les souffrances subies par
 les Juifs en Russie ne sauraient expliquer à elles seules
@@ -8439,7 +6447,6 @@ y a des nations, — hier encore maîtresses de leurs desti-
 un changement de régime plus nécessaire qu'à ces
 te) M. Roubanovitch, Pages libres. Les massacres de Kichinev,
 
-Hs Elie Eberlin
 4 éternels persécutés que sont les Juifs. Et néanmoins
 ; ï c'est le parti révolutionnaire juif qui est, de l'aveu de
 au à révolutionnaires russes eux-mêmes, le plus avancé et le
@@ -8475,10 +6482,7 @@ L (Bernard-Lazare, l'Antisémitisme)
 } révolutionnaire. Leur conception de la divinité leur
 ; donna le second élément. Elle les conduisit à concevoir
 à l'égalité des hommes, et par conséquent l'idée de la
-pe
 
-MN PAR AT TP ME ï
-CAUSES HISTORIQUES, PSYCHOLOGIQUES ET MORALES
 justice sociale. La charité n'existe pas pour l'antique
 Israël; l''aumône n'est qu'une restitution. C'est de la
 justice seulement qu'il est question dans les psaumes et
@@ -8488,8 +6492,6 @@ parmi les hommes, tel a été l'idéal social des prophètes;
 individualisme imbu d'idéalisme, tel est le sens profond
 des imprécations enflammées des prophètes. Or un
 individualiste imbu d'idéalisme est et sera toujours un
-
-révolté ! :
 
 Nonobstant leur long esclavage, en dépit des années
 de martyre qui furent leur partage, malgré les siècles
@@ -8501,7 +6503,6 @@ Et peut-être plus que les persécutions, plus que l'oppression politique et éc
 atavique, cette haine enracinée de l'injustice qui travaille
 les masses miséreuses juives, d'où sortent les meilleurs
 combattants de la lutte engagée en Russie pour un
-avenir meilleur. (1)
 
 (1) En dehors de ces motifs psychologiques ou historiques on ne
 saurait méconnaître les causes d'ordre économique et social (la
@@ -8509,13 +6510,8 @@ concentration industrielle, les progrès du mouvement ouvrier
 russe); nous en avons d'ailleurs tenu compte dans les chapitres qui
 suivent. Mais si nous insistons sur les premiers, c'est que seuls ils
 peuvent expliquer l'essor puissant et rapide du mouvement *
-ouvrier juif.
 
-t II.
-
-III
 Le mouvement ouvrier juif avant la création
-\ du « Bund »
 L'industrie, la grande industrie surtout, n'existait en
 
 : Russie, il y a trente ans, qu'à l'état embryonnaire. Les
@@ -8529,7 +6525,6 @@ l'antagonisme aigu entre la classe patronale et la classe
 ouvrière, antagonisme qui apparaît généralement à une
 époque avancée du développement économique, était
 encore latent. La population juive semblait être homogène, et les rapports sociaux empreints d'un caractère
-patriarcal.
 
 : L'abolition du servage vint les changer de fond en
 comble. L'industrie prend un essor considérable, le
@@ -8537,7 +6532,6 @@ commerce se développe, grâce à la construction des
 
 . chemins de fer. Dans un espace de trente ans la population des villes s'accroît rapidement jusqu'à décupler
 
-LE MOUVEMENT OUVRIER JUIF AVANT LE BUND
 dans certains centres industriels. Une nouvelle caté-
 gorie d'ouvriers apparaît, — les travailleurs d'usines et
 de fabriques. Le développement du commerce et de
@@ -8569,7 +6563,6 @@ cultivée juive se tenait durant le règne d'Alexandre II à
 l'écart de son peuple. Profitant du régime de tolérance
 relative inauguré par ce tsar envers les juifs, elle se
 
-: Elie Eberlin
 ; rua dans les écoles russes, chercha à s'assimiler la
 a langue et la littérature slaves; elle prit part à
 a tous les mouvements littéraires, esthétiques, et surtout
@@ -8588,8 +6581,6 @@ raisons avaient déterminé une grande partie de la jeu-
 suite et de ténacité qui en forçant l'admiration de leurs
 + camarades attira sur eux les colères du gouver-
 
-1 nement.
-
 Après la mort d'Alexandre II le réveil de la réaction
 autoritaire fut effroyable en Russie. Les juifs en furent
 les premières victimes. On déchaïîna contre eux la
@@ -8605,7 +6596,6 @@ comme un acte de protestation du peuple orthodoxe
 encourageaient les émeutiers et voulaient voir dans le
 « pogrome » le prélude de la Révolution russe. Vous
 
-LE MOUVEMENT OUVRIER JUIF AVANT LE BUND
 devez battre le juif, disaient-ils, mais n'oubliez pas
 qu'il n'est pas ïe seul exploiteur. Il faut traiter de la
 même façon la police et les « tchinovniks » (les fonctionnaires).
@@ -8637,8 +6627,6 @@ part active à la lutte révolutionnaire. Dans cette lutte
 nous montrerons, pour la première fois peut-être depuis
 notre séjour lamentable en Europe, une sorte de selfactivité pour conquérir un sort meilleur. Jusqu'ici, nous
 attendions timidement l'amélioration venant du dehors
-
-Elie Eberlin
 
 et nous n'avons pas compris que pour avoir droit à un
 
@@ -8673,10 +6661,8 @@ vaste agitation. Le mouvement prend de l'extension. IL …
 gagne Minsk, Smorgon et Varsovie. En Pologne, où la
 masse ouvrière juive était moins avancée qu'en Lithua34
 
-LE MOUVEMENT OUVRIER JUIF AVANT LE BUND
 nie et la classe cultivée beaucoup plus assimilée, le
 mouvement ouvrier juif s'est développé beaucoup plus
-lentement.
 
 Mais il devient à Vilna, en Lithuanie, et en Russie
 Blanche, de plus en plus considérable. Une série de
@@ -8688,14 +6674,12 @@ dix heures la journée de travail sert de point d'appui
 aux revendications des grévistes. Cette loi restée sur
 le papier devient une arme légale dans les mains
 des ouvriers contre les patrons et la police qui les
-soutient.
 
 Vers cette époque paraît aussi la brochure intitulée :
 De l'agitation dans la masse ouvrière. Destinée à combattre les errements de révolutionnaires juifs partisans
 de « petits cercles d'études » socialistes, et adversaires
 d'une large agitation, cette brochure précise en même
 temps le rôle et les devoirs des propagandistes et des
-agitateurs.
 
 L'auteur, un des fondateurs du mouvement, après
 avoir retracé la marche de l'évolution capitaliste, passe
@@ -8708,7 +6692,6 @@ aura vu l'impossibilité d'améliorer sa situation économique sous tel ou tel r
 économique et politique sont donc étroitement liées
 entre elles.
 
-À Elie Eberlin
 L'auteur préconise une agitation continue et persévé-
 rante dans la masse ouvrière par les agitateurs intel-
 | lectuels. Une communion étroite doit toujours exister
@@ -8722,7 +6705,6 @@ la possibilité, mais la nécessité même de lagitation
 | parmi les artisans, vu surtout que l'évolution inévitable
 de la petite industrie vers la grande pourrait amener
 des crises à laquelle il faut préparer la classe ouvrière
-juive.
 
 L'auteur aborde ensuite la question juive en Russie.
 L'émancipation nationale juive, dit-il, doit venir de la » classe ouvrière. Plus la classe ouvrière juive sera une
@@ -8734,7 +6716,6 @@ Constitution russe à la population juive seront étendus.
 Il préconise donc la formation d'un parti ouvrier juif.
 
 | Cette idée fut reprise en 1894 et 1895 par quelques autres
-% théoriciens.
 
 La classe ouvrière juive ne peut plus, écrivaient-ils,
 attendre comme avant son salut des ouvriers russes où
@@ -8749,15 +6730,12 @@ l'instruction; ces droits qui sont pour nous des reven-
 | 36
 
 Res du SR as à Li HS ie Er RATE PTE
-LE MOUVEMENT OUVRIER JUIF AVANT LE BUND
 
 dications essentielles ne Sauraient avoir pour le proléta-
 
 riat russe qu'une valeur de Principe. C'est donc un
 
 parti ouvrier juif qui doit conquérir ses droits spéci-
-
-fiquement juifs.
 
 Là constitution d'un tel parti, spécialement juif, ne
 Saurait être en contradiction avec les principes internationalistes du socialisme, car il n'existe pas parmi les
@@ -8788,10 +6766,7 @@ une seule année, — 1895, — parurent 5 brochures, soit
 () Le jargon est un patois allemand, mêlé de mots hébreux,
 
 russes, polonais, qui est la langue des juifs russes, roumains et
-galiciens.
-37 III
 
-Elie Eberlin
 | l'étranger. La nécessité d'une imprimerie clandestine en
 î Russie se fait bien sentir, mais les intellectuels con5 coivent des doutes sur la possibilité de l'entreprise.
 : Pour mettre fin à leur hésitation, les ouvriers de Vina
@@ -8822,15 +6797,12 @@ nommé Segal, fut condamné à trois années de déportation
 D: pour n'avoir pas voulu nommer l'auteur d'un article
 socialiste, dont il fut trouvé porteur.
 
-LE MOUVEMENT OUVRIER JUIF AVANT LE BUND
-
 Malgré ces persécutions impitoyables, le mouvement
 se répand de plus en plus. Il gagne Vitebsk, Grodno,
 Dvisk, Lodz, grandes villes manufacturières et industrielles. Les grèves se multiplient. Des journaux socialistes, le Juedischer Arbeiter et l'Arbeiterstimme, commencent à paraître régulièrement à des milliers d'exemplaires. Le groupe de Vilna, qui centralisait jusqu'ici
 les efforts des autres villes, ne peut plus suflire à la
 besogne. La création d'un parti régulier, d'une organiSation générale s'impose.
 
-IV
 Le « Bund » et son activité; ses rapports avec
 le parti Social-Démocratique russe
 |
@@ -8849,12 +6821,10 @@ peuples habitant l'Empire. Cela doit être l'œuvre des
 partis nationaux. C'est donc à un parti ouvrier juif que
 doit incomber la tâche d'organiser le prolétariat juif.
 4 Quelques mois après le congrès, ea 1898, le « Parti
-social-démocratique ouvrier russe » s'étant consti-
 (4) Bund veut dire Union. C'est surtout sous ce nom que
 l « Union générale ouvrière juive » est connue en Russie, et c'est
 ainsi que nous l'appellerons au cours de ces chapitres.
 
-a
 | LE BUND
 
 tué, le « Bund » ÿ entre, à titre d'organisation auto-
@@ -8883,10 +6853,8 @@ indispensable aux ouvriers que l'air pur à la respiration.
 et lui seul, qui saura la conquérir. Ce sera son premier
 pas vers l'affranchissement intégral, vers cette société
 où il n'y aurait plus l'exploitation de l'homme par
-l'homme...
 
 « Le parti social-démocratique estime que l'affranchissement des travailleurs sera l'œuvre des travailleurs
-eux-mêmes...
 
 « Il reconnaît à chaque nationalité ou groupe ethnique le droit à la reconnaissance par les autres nationalités et groupes de son individualité propre. »
 
@@ -8894,12 +6862,10 @@ Ce droit à la reconnaissance de l'individualité « nationale » a déterminé,
 « Bund » et le Parti social-démocratique russe. Mais
 r'anticipons pas, et avant de traiter des rapports entre
 
-Elie Eberlin
 le « Bund » et le parti social-démocrate, russe, nous
 allons étudier son organisation, telle qu'elle a été arré-
 Ê tée dans ses grandes lignes par le premier congrès et
 modifiée par les quatre congrès suivants qui se tinrent
-en 1898, 1900, I901I et 1903.
 
 Les fonds du « Bund » sont alimentés surtout par les
 caisses de grèves (caisses de combat). Le nombre des
@@ -8908,7 +6874,6 @@ leurs cotisations, a été en 1900 de 200 à Bialystok
 (20 o/o du nombre total des ouvriers israélites orga-
 
 nisés de la ville), 180 à Gomel (40 o/o), 350 à Vilna
-(25 oo), etc.
 
 Ces caisses de grève, comme leur nom l'indique,
 poursuivent un but économique. Mais elles subventionnent en même temps les bibliothèques ouvrières et
@@ -8925,8 +6890,6 @@ et le « comité étranger » qui est le représentant du
 l''Ouvrier juif, (Juedischer Arbeiter) organe officiel du
 « Bund » à l'étranger; il répartit les secours entre les
 
-Mr R © #:
-£ LE BUND
 membres du parti arrêtés ou déportés, et contrèle
 Vactivité des organisations bundistes à l'étranger.
 
@@ -8935,7 +6898,6 @@ constitution du parti cinq congrès ont eu lieu. Les délé-
 gués des comités locaux et des deux associations
 ouvrières professionnelles (° « Union des trieurs de
 soies pour brosses » et | « Union des mégissiers ») y
-prirent part.
 
 Les comptes rendus de ces congrès, les rapports des
 délégués, les discussions soulevées au sein du congrès
@@ -8957,7 +6919,6 @@ artisans, 3 par les monteurs et les démonteurs de
 radeaux; le nombre moyen d'ouvriers pour chaque
 grève était de 160 pour les usines et de 100 pour les
 ateliers d'artisans. Le résultat de ces grèves n'a été connu
-que dans 262 cas. 239 grèves (91,2 0/0) ont réussi et 23
 (8,8 0/0) ont échoué. Le succès de la plupart des grèves
 s'explique par la solidarité des ouvriers, par les secours
 énergiques du « Bund » et par la désunion des patrons.
@@ -8967,7 +6928,6 @@ journée de travail, telles étaient les réclamations prin-
 # Elie Eberlin
 : cipales des ouvriers dans la plupart des grèves (66 oo
 ; pour les fabriques et 88 0/0 pour les ateliers d'artisans).
-aa De 1901 à 1903 il y a eu 172 grèves, avec 10.331 gré-
 é vistes. Les résultats ne sont connus que pour 95 grèves
 dont 80 se sont terminées par la victoire des ouvriers,
 12 par un échec, et 3 par une réussite partielle.
@@ -8995,16 +6955,11 @@ ateliers d'artisans de 21 jours et demi (817 jours pour
 
 38 grèves). De 89 grèves dont les durées sont connues
 une dura 18 semaines; une, — 15 semaines; deux, —
-9 semaines; douze, — de 6 à 8 semaines (13,5 0/0);
-vingt-deux, — de 3 à 5 semaines (24,7 0/0); trente, —
 de 1 à 2 semaines (33,7 0/0); et vingt, — moins d'une
 
-ë semaine (22,5 0/0).
 Il faut remarquer que grâce à ces grèves les travail-
 ‘ leurs israélites sont parvenus dans différentes villes à
 améliorer notablement leurs conditions d'existence. Les
-
-LE BUND
 
 salaires dans quelques endroits (peu nombreux d'ailleurs) ont augmenté de 15 à 40 0/0, dans d'autres de 15
 à 25 o/o. La journée de travail, qui était de 17 et de
@@ -9012,7 +6967,6 @@ salaires dans quelques endroits (peu nombreux d'ailleurs) ont augmenté de 15 à
 Néanmoins il faut constater que dans les dernières
 années le « Bund » tend de plus en plus à abandonner
 le terrain de la lutte économique et à devenir un parti
-révolutionnaire politique.
 
 Cette évolution s'explique par plusieurs raisons. En
 Russie le droit de grève n'existe pas. Toute participation
@@ -9037,11 +6991,6 @@ ont été obtenues d'eux grâce à la solidarité des travailleurs. Et encore le
 amélioré. Car s'il travaille moins et s'il est payé un peu
 mieux, il chôme davantage, par suite de la dispari-
 
-45 TT.
-É
-
-MDN LS
-Elie Eberlin
 tion lente mais fatale de la petite industrie, et de la
 crise générale où se débat depuis vingt-cinq ans la
 Russie et que les persécutions gouvernementales et les
@@ -9070,18 +7019,14 @@ démontrent que le nombre des victimes est plus grand
 dans le « Bund » que dans le parti socialiste russe ou
 polonais. D'ailleurs voici les chiffres, qui sont éloquents
 par eux-mêmes. Le nombre de bundistes arrêtés, détenus, et déportés s'est élevé à mille environ pendant les
-années de 1897 à 1900 et à 2.180 dans les années 1901,
 1902 et 1903. 2.180 personnes arrêtées sur 30,000 membres
 du « Bund », quelle effrayante proportion! Le nombre
-
-LE BUND
 
 * des israélites condamnés à la déportation est aussi
 de beaucoup plus élevé que celui de toutes les autres
 nationalités, les russes non exceptés. Du mois de
 mars 1903 au mois de novembre 1904, 384 condamnés
 politiques ont passé par la prison Alexandrovskaïa,
-dont 53,9 oJo Juifs, 26,4 o/o Russes, 10,4 o/o Polonais,
 5,9 0/0 Géorgiens, 1,5 o/o Esthes, Lethes et Lithuaniens,
 et 1,9 o/o Arméniens, des Kirghizes, des Moldavanes,
 Biélo-Russes (Blancs-Russiens) et Malo-Russes (PetitsRussiens) ; parmi les femmes, il y avait environ 64,3 0/0
@@ -9113,8 +7058,6 @@ pourquoi le gouvernement traite les manifestants avec une
 cruauté inouie, pourquoi il fait massacrer des gens qui se promènent paisiblement, pourquoi il ne recule devant aucun moyen
 pour empêcher les manifestations dans la rue. »
 
-Elie Eberlin F
-
 5 Ce sont les ouvriers juifs qui ont les premiers porté
 leurs revendications dans la rue. C'est dans les villes
 juives, pour la première fois, qu'a retenti le cri « A bas
@@ -9140,18 +7083,10 @@ Fo fut lancé dans la salle. Un de ces billets tomba
 l'occasion de la fête internationale du Premier Mai. À bas
 | l'autocratie! Vive la liberté politique! » Von Wahl ne
 (:) Ainsi d'après le rapport du « Bund » il y eut trente manifestations au cours des années 1901 et 1902, avec un nombre de
-7.520 manifestants ; en outre dix manifestations eurent lieu à
 Poccasion du Premier Mai, avec 1.000 manifestants à Varsovie,
 700 à Minsk, etc. 260 réunions et meetings ont été tenus: plus de
 36.000 personnes y assistaient. Le chiffre moyen des assistants pour
 chaque réunion variait de 100 à 150, mais il y eut des meetings de
-
-1.000 et de 1.500 personnes.
-
-“
-
-MeLe É * g
-LE BUND
 
 l'entendit pas ainsi. Immédiatement, sur ses ordres, la
 police envahit la galerie et arrêta dix-huit personnes.
@@ -9184,9 +7119,6 @@ règne de la justice, de la liberté et de la fraternité. Nous ne
 
 (1) Il faut remarquer que les Juifs, en leur qualité de citadins, ont
 été de tout temps soustraits à la peine des verges, « réservée » à la
-classe rurale. \
-
-Elie Eberlin
 
 voulons pas que la terre soil arrosée de sang, de sueur et
 
@@ -9233,7 +7165,6 @@ la responsabilité.
 Cet appel fut entendu. Deux jours après, un ouvrier
 juif, Hirsch Lekert, tira plusieurs coups de revolver sur
 
-LE BUND
 le gouverneur. Celui-ci fut légèrement blessé. Le « Bund »
 salua en termes enthousiastes l'acte du justicier, qui
 « avait vengé l'honneur de la classe ouvrière juive et
@@ -9269,8 +7200,6 @@ l'Iskra.
 Comme nous l'avons déjà dit, le Parti socialiste russe
 reconnaissait dans son « Manifeste » à chaque nationa-
 
-É < PPT OR TU
-Elie Eberlin
 lité « le droit à la reconnaissance et à l'aflirmation de
 son individualité propre ». Ce droit vague et mal défini
 n'a pas peu contribué à tenir .à l'écart du parti
@@ -9296,7 +7225,6 @@ Il ne restait donc au « Bund » d'autre ressource que de
 > Les provinces historiques (c'est-à-dire territoriales) doivent être
 remplacées par des groupements nalionaux aulonomes (national
 abgegrenzte selbstverwaltungskoerper), administrés par des
-chambres nationales élues au suffrage universel.
 æ Les districts autonomes de chaque nationalité doivent être
 constitués en une fédération nationale (National einheitlicher
 Verband), gérant avec l'autonomie la plus complète toutes les
@@ -9304,8 +7232,6 @@ affaires touchant cette nationalité.
 & Les droits des minorités nationales seront garantis par des
 4 lois spéciales préparées par le Parlement central.
 
-: LE BUND À
-À
 se détacher du parti, et de travailler en toute indépen- 524
 dance. Mais cette scission a sans doute affaibli le parti. ; :
 - On ne peut que le regretter pour les chefs de la Socialdémocratie russe, qui ont sacrifié à l'unitarisme étroit
@@ -9316,11 +7242,7 @@ liberté, à lutter contre le tsarisme; mais ses tendances
 nationales s'accentuent de plus en plus, et sous ce rapport, le parti bundiste seconde les efforts et contribue à
 l'action d'un autre parti puissant, le parti sioniste.
 
-à
-
 ss Le Sionisme
-
-sin
 
 Æ Tandis que, en dehors du « Bund », il n'existe ni en
 
@@ -9359,13 +7281,7 @@ NS les pays. En Russie, où se trouve le gros du peuple
 
 # et plus profond qu'en Occident.
 
-EE I y a à cela plusieurs raisons.
-
 % Le Sionisme, comme l'a dit M. Max Nordau, est une
-
-k
-
-LE SIONISME
 
 désignation nouvelle d'une chose très ancienne. A l'origine, après la destruction du second Temple et la conquête romaine, le Sionisme s'est manifesté par des
 révoltes et des soulèvements. Ce désir naturel à un
@@ -9387,7 +7303,6 @@ de la morale juive, morale de fraternité et de justice.
 Loin de se rassembler en un corps de nation, les juifs
 devaient rester dispersés parmi les peuples, afin de les
 amener à la fraternité universelle, au cosmopolitisme ,
-idéal.
 
 Le moment semblait propice à la réalisation des
 théories de Mendelssohn. « La Révolution émancipatrice
@@ -9395,15 +7310,12 @@ aidant, dit M. Rouflie dans son excellent article sur le
 Sionisme, (Pages libres, numéro 157) on pouvait entrevoir le jour où le judaïsme ne serait plus qu'une confession religieuse. En professant une religion d'idéal
 progressif, les juifs s'étaient préparés de bonne heure
 
-6)
-
 L Elie Eberlin
 à être les artisans du progrès social et du progrès économique. Que leur fallait-il pour y parvenir ? La liberté
 
 | réelle et la légalité absolue, c'est-à-dire la dissolution de
 
 ; l'hostilité séculaire qui les entourait : ils ne lobtinrent
-; pas. »
 
 L'antisémitisme, qui avait sommeillé, se réveilla dans
 
@@ -9426,7 +7338,6 @@ parvenu jusqu'aux bourgades juives de Pologne et de
 Lithuanie. L'émancipation des israélites, proclamée en
 France dès 1789, commençait à peine en Russie dans
 le troisième quart du dix-neuvième siècle. Et elle fut
-aussitôt arrêtée.
 
 C'est pourquoi le sionisme en Russie, à la différence
 
@@ -9439,7 +7350,6 @@ impulsions spontanées, de leur enthousiasme pour
 
 (n) « Le Sionisme », page 8.
 
-LE SIONISME à
 l'histoire et le martyrologe du peuple juif, de l'ambition
 qu'ils ont de sauver, pour un avenir sans fin, le tronc
 antique, d'ajouter aux hauts faits de leurs aïeux les
@@ -9473,7 +7383,6 @@ constituent une nation. Ils veulent vivre dans leur
 propre pays, en Palestine. Leur régénération doit être
 à la fois économique, physique, intellectuelle et morale.
 
-11 Elie Eberlin
 | Enflammés par les idées de Pinsker, plusieurs
 1 groupes d'étudiants et d'ouvriers juifs émigrèrent en
 fi Terre Sainte et y fondèrent une vingtaine de colonies
@@ -9490,7 +7399,6 @@ f un système où se trouveraient réalisées les espé-
 1 par des centaines de milliers de juifs comme un acte
 de délivrance, fut le point de départ du sionisme poliLe tique.
 LE Les paiestinophiles juifs de Russie, partisans de la
-di petite colonisation en Palestine, se rangèrent en grand.
 j' nombre sous la bannière sioniste. Ils prirent une part
 | très active aux différents congrès sionistes, tenus à
 \ Bâle et à Londres. C'est principalement par l'argent ;
@@ -9503,15 +7411,8 @@ c une cotisation minime en fait, mais relativement oné-
 reuse pour eux, à l'œuvre de la propagande sioniste,
 si Ainsi, la majorité des actionnaires de la « Banque colo-
 À niale sioniste » et des souscripteurs du « Fonds Natio4: nal », — établissements financiers du Parti, — se trouve
-en Russie. Ù
-FL
-
-k
-
-LE SIONISME
 
 Nous lisons, en effet, dans le rapport du « Comité
-d'action » : qi
 
 « Naturellement, c'est la Russie qui tient la tête du
 mouvement sioniste. Les chiffres que nous avons sous
@@ -9526,7 +7427,6 @@ de Vitebsk, il atteint 61 0/0.
 « Comme témoins vivants de l'extension du sionisme
 en Russie, nous pouvons voir à ce congrès des délégués
 de Sibérie, de Tachkent et des montagnards juifs du
-Caucase.
 
 « Les nombres des Schekels (1) rentrés, des actions
 vendues et des dons reçus pour le Fonds national sont
@@ -9544,13 +7444,8 @@ de la propagande orale, il a été distribué un grand
 nombre de brochures et appels s'élevant à 180.000;
 
 (1) Contribution annuelle de un franc environ payée par chaque |
-sioniste.
-
-Elie Eberlin : ;
 
 pour le rayon d'Elisabethgrad seul, ce nombre a été de
-
-83.000. :
 
 Les sionistes russes laissent le soin des démarches et
 
@@ -9595,7 +7490,6 @@ journaux, des revues, paraissant à des milliers d'exem-
 plaires, se sont fondés. Toute une pléiade de poètes,
 
 5 (Bialik, Tchernichovsky) d'écrivains et de philosophes,
-(Achad-Haam, Braïnin, Sokolov) surgit.
 
 L''hébreu est devenu de plus en plus une langue parlée
 dans les agglomérations juives de Russie, grâce à ce
@@ -9604,9 +7498,6 @@ courants divers se formèrent. Il y a le groupe des vieux
 
 (1) M. Rouffie, le Sionisme, page 10.
 
-;
-
-- LE SIONISME }
 sionistes : les rabbins et les orthodoxes. Il y a le groupe
 avancé : les sionistes socialistes. {
 « Les idées salntaires du socialisme, écrit l'un d'entre
@@ -9631,17 +7522,13 @@ réformes socialistes ne portant atteinte à aucun intérêt
 privé, mais réglant seulement le mode d'emploi des
 capitaux populaires, seront faciles à réaliser. L'esprit
 démocratique du peuple juif ne s'épanouira définitivement que dans son propre pays; c'est ainsi que les
-juifs auront puissamment contribué non seulement au
 socialisme théorique, mais aussi au socialisme pratique. »
 Et il conclut : « En Occident la France, en Orient la
-61 IV
 
 je. des TP Ris: 510
-: Elie Eberlin
 Judée autonome deviendront les foyers d'où la Ilamière
 il et l'action socialistes jailliront sur le monde entier. » (5)
 1 Grâce à l'initiative des sionistes avancés, les ouvriers
-“tbe sionistes se groupèrent en associations (Poalé Zion).
 ï Les « Poalé Zion », c'est-à-dire les ouvriers de Sion, se
 | placent sur le terrain de la lutte de classes ; ils afirfi ment hautement leurs revendications socialistes ; mais
 ih tout en combattant pour leurs intérêts économiques
@@ -9658,7 +7545,6 @@ di principalement, la lutte s'impose contre le régime d'opx] pression et de mas
 à d'exemplaires, ils préconisèrent la résistance armée
 $ aux émeutiers et aux policiers.
 « Assez de s'incliner, dit un « Manifeste », devant
-2 cs. *
 À G) Revue Socialiste, page 210, année 1903. —Deka-Duo. Autonomie
 : juive et philanthropie.
 $ (2) Le parti « Poal& Zion » est un parti prolétarien juif. Le parti
@@ -9670,9 +7556,7 @@ rl socialiste international qui tend à l'abolition de la société capita-
 fl la création d'un centre national et politique en Palestine comme
 k une condition essentielle de l'existence et du développement
 À normal du peuple juif... (Programme des « Poalé Zion »).
-u 62
 
-LE SIONISME È
 chaque fonctionnaire... Les temps sont passés où les
 juifs se laissaient opprimer sans opposer la moindre
 résistance. L'heure est venue de répondre à la violence par la force, en combattant nos ennemis les
@@ -9699,12 +7583,10 @@ Zion », unis aux bundistes, avaient dispersé les bandes
 des émeutiers. IL y eut des collisions sanglantes, des
 blessés et des morts de part et d'autre. Mais on n'a
 pas eu à enregistrer d'assassinats-ni de viols. (1) Depuis
-lors, à Smela, à Rovno, grâce aux organisations
 
 (1) A Homel, comme partout, la troupe protégeait les émeutiers.
 Elle ne tirait que sur les Juifs ; quelques ouvriers furent tués.
 
-Elie Eberlin
 ouvrières, des violences purent être conjurées. On peut
 même être certain dorénavant, si toutefois les « Comités
 } de défense » continuent à se montrer actifs, que l'ère
@@ -9740,8 +7622,6 @@ le peuple juif en Russie et entrave par tous les moyens
 De sorte que sous la poussée des événements un rapprochement tend à s'opérer entre les deux partis, qui,
 dans leur ensemble, représentent le judaïsme russe contemporain. Le gouvernement russe, — est-il besoin de le
 
-LE SIONISME
-
 dire, — ne fait pas meilleure figure aux ouvriers sionistes qu'aux ouvriers socialistes. Il a frappé avec la
 dernière rigueur le sioniste Dachevsky, l'auteur de l'attentat contre le sinistre Kruchevan, organisateur des
 massacres de Kichinev. Il sévit contre les « Poalé
@@ -9750,8 +7630,6 @@ sévères contre les sionistes en général.
 
 Malgré ces persécutions, le mouvement sioniste gagne
 de plus en plus du terrain en Russie.
-
-IV.
 
 | à à Conclusion
 | Nous avons essayé dans les chapitres qui précèdent
@@ -9775,106 +7653,32 @@ que ce soit en Palestine, où ils rêvent d'une société
 vérité qu'Israël poursuit avec une ténacité inlassable.
 Dans la grande lutte pour l'émancipation humaine, le
 À peuple de la Bible et des prophètes n'abdique pas ses
-Ke anciennes traditions.
-__ Ex EBer
 | 4
-*
 je
 
 ne Dé à VEN et PUR HUE:
-; HR RE FEV FT RER Fe ACER Re ACT CNRS RE 2 9 TER De
-&, Éra RL Lt PEER ME LE 7 Ex PTS LE FSU FER
-LENS MEN Cr >, | Sur a ENS: + NÉE (Er
-En # Are PRE Re RSS s
 LEONA vièt : » ce fe RES
 £ es PS net 18 4 TS Le PES
-Pr EE x Au 1.3 ,K RES
 “SES Dre Te je 72
-477 EEE - FES
-PEAR HET Ë.
-“EE Ne : ETS
-PRÉ NQIe A > SA
-w 2 es 2 Enr
-PSE TE RENE S £ - TRE
-ARC 5 +4, : LR
-IR ESE F Se
-ES PRE LAURE
-Ÿr dt C4 LÉ SAERER
-AR Te “ Re 20
-nt 1 (20 - EE à LA
-MUR ; s De
 | LASER (as AE Le
-; Lo Er j M.
-SRE Re
-4 & RIRE ESA Ne
-: KT 57 SNS
-FETE Re LÉ
 RME MT IT pre ET FETES
 
-HARAS D ST OT IE LE ES PAR MEN PES RE à
-2 HR RON ê ) RP à
 de $ LUE SSSR FES ; REP EAR
-RASE ee nt pe
-: VENAIS ARE ë k HT AS BE PRE RO RE EREE “
-is Re SRE à LÉ Sie RSR
-É DNS A CEE Jr A Re BR
 | L'URSS M
-LENS 3 \ x # re PENSE Cr ENT
-FN RE LAS EMPIRE
-LPS < LI SÉRIE
-PF EN ONN ANNE ES 4 LL RAS EURO EERERS
 RAR be LE LR ET SAR
-k TUE ALES = Û + TE FRS
-220 M ME We LAS FERA
 AT LR MERE. de RÉ ACS Dep
-SIC \ ARLON AT MS RE te Sue trie
-& SE F : re re SE
-î ÉCNA MH TN RÉ al Ne EME ET ON SR CES D , à =
 
 PRIE ae ve PARLE + Perle SA © à :
-“ ! 4 LE LU TER EST NUL CAES Da RP AS ra CPE
-: me PUR SRE MAR RE PEN ES PE
-AR NNAEES £ SN THÈSE À
-SS PA - x NA D
-te RE & - = FEES
-rc à - MR !
-nn” 7 NS eZ “ Ÿ NE ”
-DRE - FREE.
-LS TERRS) : à è nl
-SFA ; LEA ÿ
-RSS F2 FL TASER
-He ATEN V'RLAENSES
-ETES ct à s. PÉCTS
-JTE De
-LE. : La ? 12 PES Nr CEE
-ee 4 à LE x OUR
-A CURE ZE SE PERS ES PERRES
-ES Frs : an ras
 
 ÉRUNNE + MANS TA E EN à ee #f MT ES
-"NC EU ALT ENS È « 1 ù £ 4 EUR MS R El LR STRICTES mp
-RME AE ? Fi, PS CN SET ROUES HET APS
 
-5e RE
 D PAR D ou
-1o4E Ur: AN sr RS PE Te DE a SE
-EE a
-LU TR Ë nr en
 
 RS Le MR ne Li
-PR Lee à An nn
 {17 ANR ue PT Toi du Rose
-Pc RU ts
-A" EPA Ÿ L Le ie #5
-EP" : Ke L REA
-Du: M |
-LTÉE PR LAURE SES “0
 
 É Hu ; L ESS ES Ÿ dim ENES 24 ia
 
-AN HAE a + POS ER LES LE
-
-UN VOYAGE D'ÉTUDES
 Tous les hommes naissent et de- 3
 meurent libres et égaux en droits.
 Nul ne pourra être inquiété pour
@@ -9882,7 +7686,6 @@ ses opinions religieuses.
 Déclaration des Droits de
 l'Homme et du Citoyen.
 … Nos deux nations amies et
-‘ alliées …
 
 A bord du « Pothuau », 1897.
 Devant quiconque, n'étant pas Russe, prétend s'aventurer
@@ -9902,7 +7705,6 @@ protestation, ét sa probable ineflicacité; mais je l'estime :
 nécessaire; aussi bien une protestation vaut-elle par ellemême, par la raison, par le droit sur lequel elle se fonde.
 On acclame la France, mais, quand les jours de liesse
 
-Georges Delahache à
 sont passés, que les délégations chamarrées se sont évanouies avec la fumée du champagne, on l'arrête à la frontière, comme les autres nations, peut-être un peu plus que
 
 : les autres, étant plus représentative de la liberté: l'esprit
@@ -9916,8 +7718,6 @@ est juif, il faut qu'il ait l'âme chevillée au corps pour ne
 car c'est là, — pour le Parisien du moins, — que se joue
 le prologue de tout voyage en Russie. « Vous avez votre
 { passeport ?.. Vous vous appelez ?.. Ah! vous êtes … israélite?
-, — Oui, Monsieur.
-ê — Alors.
 6 — Alors, il faut vous procurer un certificat du chef de la
 3 maison pour laquelle vous partez, constatant que vous
 êtes bien à son service, et dont la signature doit être légalisée par le commissaire de police de son quartier. Il vous
@@ -9934,16 +7734,11 @@ signifie de démarches, de pourparlers, de vexations, de
 témoins à produire, de signatures à solliciter, — mieux
 encore, entrevu tout ce qu'il recèle, dans un État autocratique et religieux, de misères et d'iniquités.
 
-*#
-3 He
 .… Dès l'entrée en Roumanie on comprend que Paris est
 ; loin et qu'on a quitté l'Europe libre : il suffit de subir à la
 5 frontière les formalités du passeport sous l'œil d'une police
 déjà soupçonneuse, de voir les douaniers fouiller de fond
-ÿa
-è
 
-UN VOYAGE D'ÉTUDES
 en comble la maigre valise d'une voyageuse mal vêtue, —
 parce qu'ils yont aperçu deux brochures en hébreu, — fouiller,
 dis-je, fouiller, ce qui s'appelle fouiller. sans hésitations
@@ -9980,11 +7775,6 @@ dont ils sont l'objet et qui par à-coups passent dans le
 domaine des faits, s'énerve particulièrement en ce moment : ;
 Kichines n'est pas loin dans l'espace, — quatre heures de
 chemin de fer, — ni dans le temps, — trois mois à peine, —
-73 Y
-fi
-‘
-
-Georges Delahache
 
 ils se ressentent encore de l'ébranlement qu'ils ont éprouvé,
 et la même impression se dégage de toutes les conversa-
@@ -10009,9 +7799,6 @@ provoquer le mouvement, ensuite pour le comprimer : tel
 fut, en effet, nous l'allons voir, la caractéristique et pour
 
 ainsi dire l'originalité des journées de Kichinev.
-
-%
-CNE:
 
 De Jassy à Kichinev, — il n'y a pas cent ans que les deux
 villes sont séparées par une frontière politique, — c'est le
@@ -10076,10 +7863,6 @@ filles Il est vrai qu'à deux pas de la confiserie à la mode,
 dont l'esprit serait trop occupé par l'objet de son voyage,
 — les malheureux regardent d'un air défiant létranger qui
 
-7ù
-
-Ne
-; Georges Delahache
 | passe et portent dans leurs yeux l'affolement des effrois
 d'hier, — tel l'assassiné dont la rétine convulsée garde,
 dit-on, l'image de l'assassin; — et, dans le vague de tous
@@ -10118,8 +7901,6 @@ soldats : « Vous êtes ici pour protéger, et vous assommez ! »
 | G.…. se sent réconforté par ce cri de protestation, mais
 voici qu'on a dépassé le groupe des pillards, qu'on arrive
 76 1
-l
-;
 
 ne UN VOYAGE D'ÉTUDES
 
@@ -10161,10 +7942,6 @@ très important de la ville, un homme d'intelligence très
 nette, qui connaît la valeur des mots, et qui ne dit que ce
 qu'il sait et voit. C'est le dimanche à six heures du soir
 que lui parviennent les premiers bruits de l'émeute com-
-
-p &
-
-Georges Delahache
 
 ji mençante. Comme depuis plusieurs jours on discutait en
 ville au sujet des troubles prévus, il comprit immédiatement
@@ -10260,11 +8037,7 @@ lundi soir à six heures, — elle se fondit presque instantanément. Et pourtan
 les troupes étaient impuissantes à protéger les juifs attaqués!
 (1) La mère d'un des émeutiers fit une réclamation en ces termes
 au médecin qui soignait son fils : « Il a travaillé deux jours, on lui
-doit trois roubles. »
-4 2e)
 
-ve A US LU,
-ÿ Georges Delahache
 Le mardi matin, il n'y avait plus de violences que dans les
 Hd faubourgs écartés, et lon commençait à recueillir les
 À cadavres et les blessés, sur les trottoirs, dans les caves et
@@ -10299,13 +8072,10 @@ livrer aux émeutiers les rouleaux de la loi : il fut tué.
 + au fond d'une cave et y restaient dans un silence apeuré
 f pour ne pas attirer sur leur retraite l'attention des bandes
 e qui de temps en temps passaient dans la rue. Tout à coup
-A ALU RCE
 (1) Un jeune homme, élève à PÉcole professionnelle de Kharkov,
 qui était venu passer les vacances de Pâques chez ses parents, fut
 trouvé mort dans les water-closets de leur maison.
-k 80
 
-à UN VOYAGE D'ÉTUDES
 _ un des enfants réfugiés reconnait par le soupirail sa grand_ mère qui, tremblante, fuyait, cherchant un abri; l'enfant
 erie à la vieille d'entrer, de venir auprès d'eux. Affolées,
 les femmes veulent étrangler l'enfant, mais le vieillard les
@@ -10337,7 +8107,6 @@ incombe, soulevé la haine des habitants; le rire désarme la
 haine elle-même. Il était vieux, impuissant, très soumis à
 l'influence d'une dame aimable, aux conseils d'un ami douteux et aux malices de son sSous-gouverneur, antisémite
 forcené, une sorte de policier intrigant que l'on compare,
-81 V.
 |
 
 | Georges Delahache
@@ -10384,8 +8153,6 @@ gance; jeune, riche, brillant, heureux, épris de la vie, il
 était le coq du village et tout le monde savait ses aventures
 aimables, dont la diversité lamusait sans que leur simultanéité le gênât. Dans les journées de Kichinev il eut la mala-
 
-AA EURE BA È ; hi
-UN VOYAGE D'ÉTUDES
 dresse, sinon de diriger les assaillants, du moins de se ;
 montrer au milieu d'eux avec sa casquette d'uniforme, et,
 parmi ces forcenés, de se distinguer par une particulière
@@ -10423,11 +8190,7 @@ Pâques étaient particulièrement favorables à l'explosion,
 non seulement parce que le crime prétendu rituel de Doubossari fut un prétexte commode, mais encore à cause de
 l'effervescence spéciale des orthodoxes en ce jour de fête :
 la nuit se passe à l'église dans la joie du Christ ressuscité,
-à 83 |
 
-l É A NE LU
-!
-1 Georges Delahache
 Ê et s'achève en festins, dont la fumée resta manifestement
 } au cerveau de beaucoup de ces élégants et de ces élégantes
 qui applaudirent les émeutiers, et s'offrirent la curiosité de
@@ -10464,7 +8227,6 @@ conséquence parmi les avocals, médecins ou pharmaciens de la
 ville, fait passer quelquefois ses affaires avant celles de ses coreligionnaires. Et dans cette division des fonctions, il n'y a plus de
 place pour l'autorité morale d'un représentant de communauté.
 
-UN VOYAGE D'ÉTUDES
 Huit jours avant l'affaire, un important négociant d'Odessa, 1
 qui se trouvait à Pétersbourg, avait entendu parler très
 clairement du pogrome qui se préparait, et en faisait
@@ -10502,14 +8264,6 @@ que l'on devine pour être agréable à M. de Plehwe, qui lui
 avait dit, en le parcourant dans sa première forme, qu'il ne
 pourrait pas le présenter ainsi à l'empereur. Les délégués
 juifs de Kichinev allèrent rendre visite au gouverneur
-\
-
-A Li ï is
-
-f
-
-i Georges Delahache ‘
-ii
 
 1 d'Odessa, subirent, en manière de consolation, un discours
 + qui était une apologie de l'antisémitisme et qui se termi-
@@ -10562,8 +8316,6 @@ ne faites pas la plus légère allusion au isar lui-même :
 
 immédiatement les plus hardis se dérobent, les voix
 
-_:DRSS
-UN VOYAGE D'ÉTUDES
 s'assourdissent, les regards fuient, l'entretien se défile en
 formules d'excuses : « L'Empereur a des ministres et s'en
 fie à leurs rapports, naturellement. L'Empereur n'a pas
@@ -10595,11 +8347,7 @@ mais il emprunte sa propre force à cet organisme lui-même,
 et l'on conçoit quelle en doit être la puissance dans un “
 pays où la sécurité du monarque et la sauvegarde des idées
 dont il vit, semblent être la cause finale de toutes les institutions et l'essentiel devoir de tous les sujets. L'Adminis-
-à
-87 ;
 
-Î
-Georges Delahache
 tration, c'est l'affaire Vidrine: les marchands juifs qui sont
 “a autorisés à s'établir hors du territoire, peuvent amener
 avec eux le nombre de commis nécessaire à la bonne
@@ -10635,9 +8383,6 @@ Si l'on a besoin d'une preuve particulièrement précise,
 | immédiate, directe, de ce lien étroit entre l'Administration
 et le crime, dans l'affaire de Kichinev, il faut se rappeler
 
-4 £ "ta
-; 52 1
-UN VOYAGE D ÉTUDES à
 un fait sur lequel on n'a pas suffisamment insisté : c'est * '
 qu'il n'y a ici que 50.000 juifs sur plus de 120.000 habitants, À
 que ces juifs sont presque tous ouvriers ou petits mar- fe
@@ -10655,7 +8400,6 @@ vit, s'il vit seul et sans contrepoids, c'est que l'Adminis- L
 tration le veut ! En Russie, nous disait un indigène aussi Fil
 spirituel que véridique, en Russie tout vient d'en haut,
 même l'émeute…
-4%
 Aussitôt après l'événement, l'Administration, émue des
 proportions que l'affaire avait prises et aussi de la répercussion inattendue qu'elle avait eue sur l'opinion à l'étranger,
 ordonna d'en effacer les traces au plus vite. Les vitres, les
@@ -10674,8 +8418,6 @@ fatalement sur l'autre. En outre, c'est une grande ville,
 riche, où l'existence apparaît de loin comme moins difficultueuse, un port important où se rencontrent beaucoup
 d'éléments divers, où l'absolu de l'autorité s'assouplit et
 
-ll
-tt Georges Delahache
 é s'éparpille : du haut de l'escalier de granit que domine la
 pi statue du duc de Richelieu, la vue s'étend sur la mer à
 | l'infini, et il semble qu'on respire, avec l'air du dehors, un
@@ -10690,7 +8432,6 @@ ho agiltées, l'exuloire de toute la Russie centrale et méridionale.
 ji Il y a quelques semaines, deux mille artisans juifs ont été
 { chassés de Kiev : tous les jours il en arrive quelques-uns à
 A Odessa, ils s'entassent ici, sans savoir comment ils vivront
-{ demain. M. Brodovsky a consacré au prolétariat juif
 à dOdessa une étude très complèle et très documentée, II
 ) connaît toutes les maisons, toutes les familles, les cours,
 1 les caves du faubourg Moldavanka, où gîte la partie la
@@ -10713,9 +8454,6 @@ représentent peut-être pas un loyer très élevé; mais, dans
 la misère de ces gens, el pour ces immondes logis souterls rains, c'est, comme on dit, « bien payé ». Il faut avouer que
 
 |
-
-fs ;
-; UN VOYAGE D'ÉTUDES
 
 ces maisons n'appartiennent pas toutes à des non-juifs,
 que d'ailleurs la police intervient parfois pour fermer, vider
@@ -10756,7 +8494,6 @@ des prodiges de diplomatie; il sait que, chassé d'ici, il ne
 sera, rentrant dans sa patrie, qu'un « Juif » encore, ou
 même qu'un « Juif russe » : comment ne rêverait-il pas
 
-Georges Delahache
 . d'une patrie propre, autonome et indépendante? II est sioHA niste. Et ces hommes consacreront au sionisme des quaAL TE lités d'intelligence, une énergie, une ardeur qui ne s'emtil ploieraient, dans des pays plus heureux, qu'au paisible
 RARE exercice de quelque vice-présidence d'un comité de bienfaisance, ou qu'ils réserveraient tout simplement au soin
 Die de leurs affaires personnelles, ne sentant pas, entre eux et
@@ -10791,7 +8528,6 @@ Remués périodiquement à travers les siècles par des espé-
 rances messianiques qui ne se sont pas réalisées, ils ont
 
 | gardé, des tressaillements passés, une facilité plus grande
-MNQEE 92
 
 UN VOYAGE D'ÉTUDES ie
 à tressaillir encore. Très instruits de leurs antiques ori- F
@@ -10830,7 +8566,6 @@ de la famille de l'émigrant jusqu'au plus lointain degré de
 parenté.Les non-juifs ne sont soumis qu'à un paiement de cent
 roubles, et qui ne peut être exigé que des parents immédiats. fé
 
-17 Georges Delahache
 |
 A tiers en une formule de trois mots : « Europa, — Berditit chev, — Palestina ». Berditchev est en effet une grande
 (1: ville juive, presque absolument juive, « la Ville Juive ».
@@ -10865,14 +8600,7 @@ leurs coreligionnaires. Quelques entreprises de couture, de
 Ÿ modes, de mercerie permettent aux femmes de gagner huit
 î ou dix roubles par mois. On me dit même que les trois
 | 94
-ue
 
-Jr CU
-a!
-
-Ÿ
-UN VOYAGE D'ÉTUDES 4
-AT
 quarts du salaire passent en frais de toilette ; les samedis k
 de Berditchev sont pernicieux !.… Mais la misère est réelle et À
 profonde. Sur les 55.000 juifs de Berditchev, 25.000, environ, Fa
@@ -10903,7 +8631,6 @@ soit un disciple dangereux de Karl Marx et de Lassalle. d
 Mais à des autorités toujours en éveil ce vague humanita- \
 risme, ce désir du mieux, ce « mécontentisme » est un pré- k
 texte suflisant à suspicions, à vexations, et, au besoin, à 1
-massacres. 1
 Pas plus que leur socialisme, leur judaïsme n'est absolu,
 ni sous sa forme religieuse, ni sous sa forme politique. Au
 premier point de vue, il est piquant d'observer que, dans :
@@ -10912,9 +8639,6 @@ tions sociales » s'exerce, ironique et dissolvante, sur les ÿ
 choses de la tradition. On m'avoue que les plus malheureux à
 sont les plus pieux, que les bourgeois aisés sont volontiers ]
 négligents : j'en ai même vus, que des liens ofliciels 1
-9ù 3
-
-Georges Delahache
 
 | attachent cependant à la communauté, et qui étonnent par
 } la désinvolture de leur indifférence. La « petite ville » est
@@ -10954,8 +8678,6 @@ beaucoup de juifs à Kiev, — précisément parce que la ville
 à n'est qu'une enclave administrative au milieu d'une région
 () Z G A. Abréviation de Zewish Colonisation Association.
 
-D Luis.
-UN VOYAGE D'ÉTUDES ‘
 généralement ouverte aux juifs, — comme la bourgeoisie 1
 juive de Kiev compte beaucoup de vieux « Kiévois » depuis
 longtemps « assimilés », on peut observer ici d'une façon
@@ -10991,12 +8713,8 @@ obligé de quitter la ville où il remplissait ses fonctions,
 pour suivre à Pétersbourg son fils qui voulait faire ses
 études artistiques dans la capitale, donna sa démission et
 obtint l'autorisation d'exercer comme avocat. On cite le
-97 VI
 
-HAE
 #1 34
-PEN
-SUAN Georges Delahache
 LE cas d'un vieil avocat d'Odessa qui, devenu aveugle, profita
 He du passage du ministre dans la ville et lui demanda pour
 11 son fils l'autorisation de prendre la suite de ses affaires,
@@ -11014,14 +8732,12 @@ UN de Kiev, pourquoi, devant certaines exagérations oeciden4 pourq
 1 * tales du formalisme bureaucratique, nous parlons de chiAL noiseries et de byzantinisme : la Russie est plus près!
 je Hélas ! ses fantaisies sont moins risibles qu'odieuses. —
 3 Deux affaires sont ici dans toutes les mémoires, reviennent
-ê ü 2 F
 il dans toutes les conversations. D'abord celle des artisans :
 fÙ ! 2,000 juifs, qui vivaient à Kiev depuis une dizaine d'années,
 l'AS L ont été mis en demeure de partir dans les quinze jours :
 A on venait de découvrir que leurs passeports, déposés à la
 di mairie, portaient le mot ouvriers (rabotchi) au lieu d'artiW sans (remeslinik) : or, comme « ouvriers », ils ne peuvent
 4 as, mais, comme artisans », ils peuvent vivre à Kiev. La
-D x pas, P
 À différence n'est pas toujours facile à établir, et les gens
 \} sont à plaindre dont l'existencé dépend de l'interprétation
 à de mots si voisins par une autorité si partiale !... Puis
@@ -11036,14 +8752,7 @@ FA de leur travail. Or, des marchandes de lait juives furent un
 it acquittées celles qui vendaient le lait de leurs propres
 Fe vaches, condamnées à l'interdiction de séjour à Kiev et à
 W la confiscation celles qui vendaient le lait des vaches d'auRCE trui. On raconte même que le lendemain du jugement
-ji I J ;
 Hi l'avocat de ces maiheureuses, rencontrant le vice-gouverneur,
-
-h 4
-
-:: 4) 49)1 9 bd 0
-PRE $
-UN VOYAGE D'ÉTUDES
 
 lui fit remarquer que la condamnation allait amener la à
 
@@ -11163,8 +8872,6 @@ les uns les autres, au lieu de se mépriser a priori : qui sait
 si avec le temps ce Kiévois et quelques-uns ‘de ses conci-
 , toyens ne prendraient pas à leur compte la définition
 
-: SNS L
-‘a UN VOYAGE D'ÉTUDES
 spirituelle : « Le juif, c'est l'israélite qu'on ne connaît pas » ?
 MIEL il semble que les juifs, de leur côté, si pessimiste que
 … soit leur état d'esprit, — après vingt ans de malveillance et
@@ -11189,8 +8896,6 @@ que rarement et diflicilement à convaincre, — selon les vues
 du gouvernement d'alors, — les groupements juifs de faire
 apprendre le russe aux enfants.
 
-*
-
 A Homel, à Minsk, à Bialystok, il semble également que
 ces deux catégories de la population vivent en face l'une
 “de l'autre sans se mesurer perpétuellement d'un regard
@@ -11199,14 +8904,7 @@ et vit paisiblement. La ville allonge ses rues très droites
 bordées de maisonnettes de bois sans étage; en face du
 Marché une Synagogue en bois ét une autre en pierre, au
 fronton de laquelle le mot CHNATOTA se détache en russe
-{
 |: TOI VI.
-
-li
-
-ï HO NTNATE LAN 12 A VANNES AT TE
-41 5 ” 7
-ï
 
 | Georges Delahache
 
@@ -11268,16 +8966,11 @@ Li des amis, elle se déride : j'ai rarement vu changer, d'une »
 j façon aussi complète et aussi brusque, l'expression du visage w
 humain. La vie générale est relativement heureuse à
 
-{|
-
 } (x) L'examen des événements postérieurs à notre passage, nin-
 
 ( firme nullement, — au contraire, — celle impression : la police ah
 | mis trop de complaisance à troubler la paix.
 
-À 102
-
-UN VOYAGE D'ÉTUDES \ D
 Minsk, même pour les juifs. Il y a peu d'indigents; si les ‘4
 * industries ne sont pas très nombreuses, ni très impor- 153
 tantes, — quelques fabriques de sabots, d'allumettes et de 14
@@ -11314,7 +9007,6 @@ s'intéresser à leurs coreligionnaires; de plus l'arrêt du tra- 1
 vail juif, pendant deux heures le vendredi, et pendant toute
 la journée le samedi, occasionne soit des diminutions de 4
 rendement, soit des difficultés d'organisation intérieure; L
-103 dl
 
 il Georges Delahache
 il enfin beaucoup de patrons craignent de trouver chez l'ouAE vrier juif une moins grande habitude des métiers manuels
@@ -11351,9 +9043,6 @@ Wu on entre, — en se pliant en deux, — quand on vient de la
 jf cour : trois marches y descendent, mais il faut brüler des
 l allumettes en plein jour pour ne pas descendre trop vite !
 (ji Or, quatre personnes logent ici, le mari, la femme et deux
-La
-ii 104
-Lo |
 
 ya 3 UN VOYAGE D'ÉTUDES ” è
 enfants, et le loyer est de trois roubles, — huit francs par
@@ -11393,7 +9082,6 @@ ni morale pour soi-même, l'occasion de victoires faciles? ï.
 Ces socialismes n'ont pas étouffé le vieux nationalisme
 polonais. Les Juifs sont ici plus anciens que les Russes;
 
-\LRE Georges Delahache
 il contemporains des Polonais, ils ont partagé leurs vicissi1 b tudes historiques, et gardent fièrement les noms de ceux
 { ‘ d'entre eux qui, dans les insurrections nationales, ont
 A trouvé la gloire, et la mort. Mais, si la domination russe
@@ -11416,9 +9104,6 @@ LL jeunes gens chrétiens, — une politesse qu'en fait les chré-
 tiens ne leur rendent pas volontiers. — Mais mal considé-
 à rés quoi qu'ils fassent, ils n'osent plus mépriser, du haut de
 { leur fierté polonaise, le « nationalisme-juif » des sionistes... (1)
-k
-) *
-Sa
 
 k Il ne convient pas de faire de la question des juifs
 IN p4E russes un bloc. Même dans la servitude il n'y a pas d'éga-
@@ -11437,10 +9122,6 @@ hé Russie, hors du Territoire, sans formalités spéciales : avantage M
 HA considérable pour tous les hommes que leurs affaires obligent à
 
 | 106
-\4
-
-; |
-UN VOYAGE D'ÉTUDES À
 
 d'Odessa; le petit marchand de Shlobine, perdu au fond de )
 la Russie, vit en bonne intelligence avec ses voisins chré- è
@@ -11485,8 +9166,6 @@ leurs bouges les coureurs de route, qui ne rentreront cha- ÿ
 
 eun chez soi qu'après avoir rétabli la paix à la manière
 
-impériale, — ubi solitudinem faciunt… , — en raréfiant
-
 un peu la population juive par des coups de sabre, des pié-
 
 tinements de chevaux, des arrestations et des expulsions...
@@ -11512,11 +9191,8 @@ conversion à leurs coreligionnaires originels : on cite le cas d'un
 juif qui mourut naguère, à la synagogue, un jour de Kippour,
 
 et dans les formalités qui suivirent, on s'aperçut que ce juif était
-administrativement chrétien.
 
 | qe Georges Delahache Fr
-
-\\DReNeE
 
 l Ni champs à Moyenne-Fontaine, le grand usinier des fau-
 
@@ -11558,8 +9234,6 @@ les moins la part du malheur est-elle, si lon peut dire, encore
 
 k. Le inciter à rechercher quelles sont les véritables causes de la
 
-fn situation exceptionnelle faite aux juifs russes. F
-
 FR Il faut d'abord remarquer la forme spéciale de cette mi-
 
 Ke sère. Non qu'il n'y ait pas d'autres misères à côté, chez les
@@ -11589,9 +9263,6 @@ k : six millions de juifs de l'Empire font porter en quelque
 hi constituant à eux-mêmes et aux autres une concurrence
 j fe. désastreuse pour tout le monde, soil quelle diminue le
 
-HP
-
-F UN VOYAGE D'ÉTUDES {i
 taux des salaires, soit qu'elle augmente le nombre des indi- |
 gents, — et qui ne peut que concentrer davantage autour j
 d'eux la haine : au lieu que, s'ils étaient répandus dans
@@ -11636,11 +9307,8 @@ on sait que les accusations de meurtre rituel sont aussi
 
 Vaines au point de vue de la vérité qu'eflicaces, hélas !
 
-109 VII
 |
-p.
 
-AE Georges Delahache à
 (REA comme prétextes de troubles et d'émeutes. Les juifs usuar \ riers? mais dans ce pays, les prêtres, les femmes, ni les
 | Le © paysans, ne peuvent souscrire d'effets; d'ailleurs l'usure
 | Ne } sévit avec bien plus d'intensité hors da Territoire. Les
@@ -11675,12 +9343,8 @@ les autres suivent leurs préjugés jusqu'à la haïne, et leurs
 . juifs de Russie apparaissent comme plus disposés à Passi-
 î milation que leurs voisins de Galicie par exemple : la
 il! lévite, les bottes, le chapeau haut de forme, les boucles de
-?
-
-À
 
 ‘ir UN VOYAGE D'ÉTUDES ; 1
-A
 cheveux descendant au long des tempes, — ils ne consi- k
 dèrent plus tout cet « uniforme » comme de rigueur, et on À
 ne le rencontre ici qu'exceptionnellement. — Le critérium “
@@ -11718,10 +9382,7 @@ n'ont rien à y voir. Mais l'originalité de l'antisémitisme
 russe est d'être, avant tout, administratif : quand on
 apprend en Europe la nouvelle d'un pogrome, on croit à des
 haines sans trêve et sans merci, tandis qu'en réalité, presIII
-L
 
-It \ x4 As nn AE OR à
-À
 LA Georges Delahache
 | DES que partout, Juifs et chrétiens vivent côte à côte, plutôt
 | 1 . . indifférents qu'hostiles les uns aux autres, confondus dans
@@ -11760,13 +9421,7 @@ f effraie : ce n'est rien, — c'est un article que la censure a
 ! et sauver la Russie de sa contagion. Vous allez enfin, ce
 #
 
-AM ARRET "
-
-Dé.
-
 ë UN VOYAGE D'ÉTUDES “le
-
-à
 
 soir, prendre le train du retour : halte-là! Ne vous embar- :
 
@@ -11806,9 +9461,6 @@ quand on vient d'un pays où, par le long travail des institutions démocratique
 gories de la nation, on est d'autant plus surpris de constater, à égalité sociale, des différences aussi étranges que
 l'inertie intellectuelle du Russe pauvre, dont les yeux
 
-f
-
-LiraL Georges Delahache
 à | vaguent sans lueur el sans vie, et l'ardente curiosité de
 CA l'adolescent juif. Nous les avons vus, pendant trente-six
 ne) : heures de suite, dans l'entrepont du bateau qui nous conJoie duisait de Kiev à Homel, — les moujiks misérables, dun
@@ -11845,10 +9497,8 @@ NES pour l'illusion, — le Sionisme est un admirable élan d'esIl Fe pérance e
 1 sionisme, l'émigration en masse implique mille questions,
 14 complexes et délicates, d'argent, de débouchés, d'acclimall tation nouvelle, de bon accueil au point d'arrivée et même
 | d'autorisation au point de départ : car, bien que les me-
-{| 114
 | |
 
-. UN VOYAGE D'ÉTUDES 4
 , 114
 sures récentes soient dirigées, au dire de l'Administration, 1
 non pas contre le sionisme agence d'émigration, mais É
@@ -11878,7 +9528,6 @@ six millions de sujets russes, sujets de dernière classe,
 sans sécurité et sans droits, troupeau vil d'humanité auquel
 on refuse tout ce qui fait la dignité de la vie humaine,— et
 cela, parce que ces hommes sont juifs dans une nation orthodoxe, intellectuellement libres dans un milieu d'asservissement intellectuel, merveilleusement aptes à la vie moderne dans un état social qui s'obstine à méconnaître l'évo115
-"
 
 | Georges Delahache
 TER lution. Et il faut, pour peu qu'on ait de confiance dans la
@@ -11914,56 +9563,12 @@ le vivante et pensante malgré tout, autour des frères affranchis
 11 a qui viennent leur apporter, d'un lointain de liberté, un peu
 li de compassion, d'amitié et d'espérance.
 
-ONE
-
-11 | GEORGES DELANACHE
-
-lee
-
-pie
-
-ir
-LU AE
-
-ÿ Ur RR MD UN EN PAÉMRNETAUEN LATE <
 DATES LEE ss LE (id RDS t PEU EANNS Fil NA NE SAS
-Un PAT: ARMES
-Aa RARE DL UX RE LATE NE 2
-LL NTI 10
-e PO TR FE x « ce LEA
-LR . 7 AS TO 3 TASER
-à OTHER Fo + LEA CERRERS
-7 CURRENT 11 NS AURAS
-Ke! 1 4 ALL MAUR r + } \ re D re 7 ÿ 4
-AGE LU A PAS RES k DNA HE
-FOIE PRES FN NCIS
-RENE ie MAR FA RAC w A FA Mie AE HR
 
 M A PO NLEAE A Le te CS
-LS ONE A En #| K RAA EP Pa: e BCE A Fe Re
-1), HOMMES h R Ÿ SR NT CNE RUE ie :
-sh pe EP GRR DEEE POS Or
-fonte VHS Pau pa na “TRES
-ie HO : A or
-{ ANTÉNERE S F È LRU RES
 |AFSOUUER RP ES 1 ÉPNENEE AN
-TETE ARR NS PORN 1
-; M" \ LAPS RER
-* RIRE 1 ANR:
 | Le PE no K p Ta TA HF EN « à ahnu
-NOTE M à rt 4 FU" cn 3
-' HAE EN gs MR TE
-LA AS MA
-TAN ! 7 TS
-PAU à ; Ut ut fie
-1 NT
-1 FONRES k { "7 LAN SRG re
-HAT) M DCR ER de 74
-::5 SSPARISES ti À RTE ADS A) #4
-PR LL AE A J “ Hd 6 HÉNCU TE
 
-VLaADimIR KoRoLENKoO
-LA MAISON NUMERO 13
 traduit par Elie Eberlin
 
 MAN Après Tolstoi et Gorki, l'écrivain le plus aimé en
@@ -11971,28 +9576,16 @@ Russie est Vladimir Korolenko, chantre de la pitié ei
 4 enr maine, l'auteur du « Musicien aveugle » et des « Récits
 | EUR | HIS de Sibérie ». ARS PRO:
 | à ; A la première nouvelle des massacres de Kichinev, Tr
-NEA ï 1 FU RE
 LÉ ORUE Korolenko s'est rendu immédiatement sur le lieu du à
-1. 10 : à 3 à = Be TE |
 LAN désastre et il a résumé ses douloureuses impressions
 |: NON dans ce récit émouvant dans sa simplicité et pénétré
 408 è d'un sentiment d'immense pitié. VAR EE
-Es Elie Eberlin | }…
-"TAN \ i RENE ER
-NUE UE K fe Fa NA L4 Le 4
-Le ANRT h CAEN:
-Maurel, CR als
 ne | PRES Rpie
 
-ro | À
 il LL
 
-; LA MAISON NUMERO 13
 # |
-1}
 
-ÿ
-à I
 î Je suis arrivé à Kichinev deux mois après le
 | « pogrome » (1) dont l'écho douloureux retentissait
 , encore dans toute la Russie.
@@ -12018,12 +9611,7 @@ Krouchevan, n'était pas un homme ordinaire, mais un
 
 (2) Journaliste antijuif, l'instigateur des massacres de Kichinev.
 
-È
-Ex
-
 | LE Vladimir Korolenko
-
-An4
 
 A . ou trois jours après, lorsque j'étais déjà à Kichinev, trois
 
@@ -12084,8 +9672,6 @@ pat il
 | à n'expliquer le drame mystérieux et terrible qui venait
 de s'y jouer, je me promenais à travers la ville et les fau- $
 
-4 LA MAISON NUMÉRO 13 ‘
-;
 … bourgs, àtravers les rues et les marchés, en interrogeant à
 ; les Juifs et les chrétiens sur les événements récents. 1
 À Je nai certes pas ici la prétention d'expliquer d'une De
@@ -12131,15 +9717,7 @@ sang-froid que possible un épisode des massacres. Ce
 
 sera l'histoire de la maison numéro 13, désormais tris-
 
-tement célèbre.
-
-]
-À
-nt
-
 il Vladimir Korolenko
-
-LES III
 
 | La maison numéro 13 est située dans le quatrième
 
@@ -12165,11 +9743,7 @@ I n'a pas compris d'abord où nous voulions aller. Alors
 
 | sacres, lui dit: « la maison numéro 13... Là où on
 
-j tuait.… »
-
 ll — Ah! Bon! répondit l'automédon en inelinant sa
-
-ll tête.
 
 Et il donna un coup de fouet à son cheval, aussi
 
@@ -12195,10 +9769,6 @@ chaux étouffent les maigres arbustes qui poussent sur M
 l la pierre même, et où semblent planer les fantômes du À
 temps des boyards et des invasions turques. Les mai- 1
 
-124 rl
-
-, LA MAISON NUMÉRO 13 Le:
-4 {4
 … sons sont petites, entourées de murailles en pierre, aux $
 | embrasures étroites. \
 Enfin dans une de ces ruelles nous avons trouvé la É
@@ -12221,8 +9791,6 @@ diocre aux massacreurs, elle a pris des mesures éner-
 ._ giques envers les Juifs, en les forçant à réparer les
 maisons qui ont été saccagées et détruites. Mais elle n'a
 . plus aucun pouvoir sur le propriétaire de la maison ‘!
-
-numéro 13.
 
 La cour garde encore des traces éloquentes de la
 
@@ -12254,10 +9822,8 @@ stinctement une grande tache brune, — du sang coa-
 
 | RERTRE AC y: ER MESURE
 LES Vladimir Korolenko
-DAME
 | Lu gulé, — au milieu de mille débris de glaces, de briques, :
 | UE - de chaux et de plumes d'oreiller.
-pue IV
 | ÿ « Ici, on assassina Gruenschpun.. », s'écria une voix
 | Ke étrange, en se rapprochant de nous.
 L Quand nous entrâmes dans la cour elle était déserte.
@@ -12285,7 +9851,6 @@ d'écouter ses paroles; les mots ne sortaient qu'avec M
 Il semblait que c'était une machine qui parlait plutôt
 Li qu'un être humain. ‘
 
-SRE LA MAISON NUMÉRO 13 :
 _ — Voilà ici... il a couru..., disait-elle, en respirant ete
 … difficilement et en tendant la main dans la direction du NCA
 4 hangar et de la mare de sang. é
@@ -12317,13 +9882,6 @@ les unes contre les autres, huit familles juives, en tout
 | ses entreprises, — commission, fonds de commerce
 et maison, — ne lui rapportaient que 1.500 roubles
 1 127
-à
-
-1 ;
-
-If Vladimir Korolenko
-
-Eu +
 
 | (G.000 francs) par an. Les autres habitants de la maison
 
@@ -12332,8 +9890,6 @@ l, le considéraient comme un heureux richard. D'ailleurs
 4 il n'habitait pas la maison numéro 13; c'étaient sa fille,
 
 HE son gendre et ses petits enfants qui occupaient un des
-
-HAL logements. ; ;
 
 Navtoula Sercbrenik, petit boutiquier, en était un des
 
@@ -12391,7 +9947,6 @@ fi Tous les chiffres cités sont tirés des dépositions des
 |
 
 he ere RE HUB NI a OU
-E ; LA MAISON NUMÉRO 13 :
 4 _ Ainsi menaient paisiblement et tranquillement leur
 ‘À vie les habitants du numéro 13 jusqu'au 6 avril de cette
 ‘4 année. Nissensohn allait dans les boutiques et dressait
@@ -12421,11 +9976,8 @@ main matin dans le calme. Le soir les troubles cessè-
 
 Les anciens habitants et les voisins de la maison
 __ numéro 13 nous ont aussi raconté ce qui se passa le
-_ lendemain :
 Vers dix heures du matin, apparut le sergent de ville,
 
-PA CIM DOC OR ARMRNNR EI RUE CET RES RES
-He Vladimir. Korolenko 1
 HE (plaque numéro 148) personnage bien connu dans le 4
 la ; quartier, qui, se souciant sans doute du sort des Juifs,
 AIX leur conseilla à haute voix de rentrer dans leurs loge- |
@@ -12452,13 +10004,10 @@ A « ordres » qui devaient venir dans la nuit et mettre fin M
 ji aussi dans ce faubourg qui n'avait pas encore été w
 ant éprouvé par les massacres et attendait avec horreur le
 | ‘a « pogrome », et il fut aussitôt entouré des Juifs et des
-FX Moldavanes. 4
 Il leur a dit qu'il revenait à son poste sans avoir reçu
 07) d'ordre spécial et que dans la ville le « pogrome » allaït
 ai en croissant en présence des troupes et de la police. :
-UF : ,
 
-13 LA MAISON NUMÉRO 13 0
 . Les Moldavanes tirèrent leurs conclusions de cette com- de 4
 4 munication oflicielle. Ils tinrent conseil. L'idée générale FR
 + qui se dégageait de leur conciliabule était que les habi- à
@@ -12512,10 +10061,6 @@ sans comprendre encore ce qui était arrivé, commença
 
 ÿ fille. I ne pouvait la voir, puisque le « garçon chrétien »
 
-É 131
-
-!]
-
 | Vladimir Korolenko ‘4
 
 | lui avait crevé l'autre œil avec un poids, sans doute
@@ -12545,8 +10090,6 @@ Ho prendre. Et s'il en était incapable, il serait aussi une
 victime, une victime plus malheureuse encore. Mais.
 
 | est-ce bien à Meyer Weissmann qu'on doit cette vic-
-
-time ?
 
 |
 
@@ -12583,12 +10126,6 @@ times des juifs ». 1
 
 | |
 
-DH:
-
-À : LA MAISON NUMÉRO 13 À
-
-v 7!
-
 | Ce sergent de ville, après ce conseil si bienveillant, à
 
 . s'est assis sur une borne, puisqu'il n'avait pas évidem- tt
@@ -12623,8 +10160,6 @@ préconçu, étaient-ils dirigés, comme on le dit à Kichinev, par une organisa
 fonce en avant les yeux fermés, avec l'inconscience
 d'un élément. C'est la question qu'élucidera (ou que
 n'élucidera peut-être pas) le procès qui aura lieu pro-
-
-, 133 VU ;
 
 | Vladimir Korolenko !
 
@@ -12689,7 +10224,6 @@ If selle réduits en pièces. Les feuilles des livres sacrés
 
 | enfer de fracas, de craquements, de ricanements sauvages, de rires et de cris de terreur, la soif du sang
 
-134 |
 | s
 
 A LA MAISON NUMÉRO 13 et
@@ -12718,13 +10252,11 @@ râle du vitrier, et les Juifs, et la foule elle-même peut-
 Les israélites s'agitèrent &« comme des rats dans une
 _ souricière », selon l'expression d'un des « chrétiens »
 . de Kichinev, homme jovial et qui trouve en pareils cas
-__ matière à plaisanteries.…
 ; Quelques juifs s'élancèrent dans le grenier... Sous le
 même hangar où fut tué Gruenschpun, un trou noir dans
 ._ le plafond mène au grenier. Issue étroite et incommode. |
 _ Le premier qui s'y engagea fut Berlatzki avec sa fille; le J
 | propriétaire de la maison, Makline, l'y suivit. Makline, A
-135 :
 
 il Vladimir Korolenko 1
 1 . comme nous l'avons déjà dit, n'habitait pas la maison.
@@ -12772,8 +10304,6 @@ Ho désespoir, à démolir le toit.
 
 (l d'un de ces trous gisait au moment de notre visite un
 
-Li lavabo en fer.
-
 lR Il a fallu que les gens fussent bien désespérés pour
 
 fe pratiquer, en quelques instants de danger mortel, rien
@@ -12783,8 +10313,6 @@ L toit. En haut, c'était la clarté du soleil, c'étaient les
 { maisons, la foule, le sergent de ville numéro 148, la
 | 4
 
-nn 7
-LA MAISON NUMÉRO 13
 patrouille... C'était tout de même le jour, la lumière. |
 et les hommes.
 … Etils ont pratiqué deux ouvertures. Le premier qui
@@ -12798,7 +10326,6 @@ lorsqu'il s'engagea lui-même dans le trou, ses persécuteurs étaient déjà l�
 1 si sa fille, après avoir cessé de tirer son père, ne s'était
 « penchée vers l'ouverture et n'avait prié le persécuteur
 _ de le lâcher.
-_ Etille lâcha.
 * Qu'au moins une partie de sa faute soit pardonnée à
 | cet homme, qui a laissé pénétrer dans son âme, au milieu
 de ces ténèbres, un rayon de pitié humaine, ne fût-ce
@@ -12813,15 +10340,10 @@ les religions, se manifeste dans l'amour des hommes
 F et dans la fraternité, et non dans l'assassinat des » êtres sans défense. Ou, peut-être, est-il revenu de
 | son sentiment primitif, et « s'en voulut-il », non de ses
 accès de férocité, mais de son élan de pitié pour les
-ù .
-137 VIN,
-ÿ
-À
 
 |
 ou | Vladimir Korolenko HU
 ci Juifs massacrés, comme nous lavions vu par d'autres w
-E p À exemples. *04
 Liv Quoi qu'il en soit, les trois victimes apparurent surle M
 St toit. Pour une fois encore ils virent la lumière du jour, #
 è et la place, et les maisons voisines, et le ciel bleu, et le 1
@@ -12848,16 +10370,12 @@ premier mouvement, son impulsion immédiate, fut de …
 retira. C'était, évidemment, un brave homme, non pasun « à héros du devoir chrétien. Il faut supposer au moins qu'il M
 “ait n'a pas eu honte d'être intervenu et d'avoir cédé à sa
 
-Jo première impulsion.
 ho Est-ce à ce moment précis ou non que cet épisode
 
 ‘ eut lieu, toujours est-il que les trois victimes apparurentm
 ji sur le toit, au milieu d'une ville, parmi des centaines
 {2 de gens, sans défense cependant. Derrière eux surgirent
 ‘# les assassins. Ils se mirent à courir sur le toit, tantôt M
-$ j
-
-* ï
 
 ELA LA MAISON NUMÉRO 13 ce k
 apparaissant sur le côté qui donne sur la rue, tantôt tes
@@ -12878,8 +10396,6 @@ d'oreiller. Ensuite on vérsa sur eux quelques tonneaux
 de vin, et les malheureuses victimes (on affirme que |
 Makline respira encore pendant quelques heures)
 étouffaient dans cette flaque de boue, de vin et de |
-duvet.
-VII 5
 Nissensohn fat assassiné en dernier lieu. IL était
 caché avec sa femme dans la cave lorsqu'il entendit les
 cris de ses coxeligionnaires qu'on assassinait ; il comprit
@@ -12891,8 +10407,6 @@ sur les traces de sa femme, il l'appela. Ses cris attirèrent ï
 attention sur lui. On laissa la femme et on poursuivit
 le mari; il fut rejoint et tué en face du numéro 7 de la
 
-11e a
-lt Vladimir Korolenko ÿ
 il . ruelle Asiatsky. On dit que l'un des assassins est Polo1 | nais et l'autre Moldavane. Comme il avait plu avant
 | Pâques, il y avait des flaques d'eau aux bords de la rue.
 
@@ -12932,12 +10446,6 @@ jl fallu pour cela ni effusion de sang, ni coups de feu. Il à
 
 ‘ fallu seulement un peu de décision.
 
-A1! 140
-
-NI
-
-MRC / , Ci
-LA MAISON NUMÉRO 13 }
 ; Mais il faudra maintenant des années pour effacer le
 souvenir honteux de ces événements, qui sont une 4
 - tache de boue et de sang sur la conscience des chré-
@@ -12947,7 +10455,6 @@ autres en leur prêchant la haine et le mensonge; de
 _ ceux qui trouvent que les coupables sont les assassinés
 _ et non les assassins, et qui pensent qu'il peut y avoir
 une irresponsabilité et une privation de droits collectives …
-VIII
 Je sens combien je renseigne peu le lecteur par cette
 chronique de reporter. Mais j'ai voulu tirer un épisode
 de ce chaos enchevêtré et impersonnel qui a nom
@@ -12962,11 +10469,7 @@ comme dans une forêt. Les cadavres sont là... Et
 après n'est-il pas indifférent aux Juifs de savoir comment on les a tués ? A quoi bon inventer des détails 2.
 La moralité des événements est claire pour tous ceux
 en qui vit encore le sentiment humain. Mais ceux-là
-141 |
 
-Le N
-Gt SH ÉEU ë. |
-Korolenko
 sont-ils nomb ieslion pénible se dresse 4
 quand noi, à Kichinev.
 Et} s en train de finir ces
@@ -12974,19 +10477,9 @@ n 1 amas de terribles matéria surnaux le suicide du
 n de cet homme étaitssn |
 tout 1 je me trouyai bi
 de Kic bte de,
-ll j F3 F
-ES
-n
-$
 3 4
-d
 
-sé Re
-sd
-dy ï Ÿ NUMÉRO 13 £a
-( 1
 À spective du proc tait, qu'il avait des chagrins à
-d'amour. \ As
 Est-ce bien tot ait est là, le triste règlement
 des comptes a et Je crois ne pas avilir la mé 24
 moire du malheur upposant que dans ce compté Mu
@@ -12999,14 +10492,11 @@ Juifs. D'ailleurs t ne sont que des conjecturés.
 « MMais la vérité, la ilé, bien que pas neuvé pouR
 Mol n'a été do ntendre avant mon départ,
 ache d'ux du peuple, d'un cocher dé {
-riginair d'ailleurs. Lorsque nou
 ec ni « ne » et de ses conséquences
-té qu naissances, tn RO
 evait ouvriers, était vent dé
 r en l'argent à Kichinev Le
 ncert idémain, avaient cotpéle 0
 fut cle iculteur de s'adresser" att Ÿ
-ns isuriers Juifs. « Etdèslors, 19
 mor 1 chose est certainéfi st
 bve nu, lorsque le "
 b, r urier russe vous L@
@@ -13015,18 +10505,13 @@ Bs'c très bien à Kichin@
 È mule les préjugés obsetl
 : 1 uivages de meurt
 ) r certains usuriers très 008
-be profit
 À préconiser les projets déstf
-"1
-“à
 
 |
 
 MR ne COEUR
-{1 KO NONEE Vladimir Korolenko
 hi sont-ils nombreux? Celte question pénible se dresse.
 is ALTO quand on a vu ce que j'ai vu, moi, à Kichinev. 14
-VEMEL pe Wa g Pal
 Le 1 Et pourtant. Lorsque j'étais en train de finir ces
 L 1 ù notes décousues, écrasé par cet amas de terribles ma-
 :Lv tériaux, j'ai appris par les journaux le suicide du À
@@ -13053,7 +10538,6 @@ d À vrai dans ce qu'on avait raconté à ce sujet, mais déjà F4
 13 ensuite la cervelle. COMORERE des journee “4
 l “A nous apprennent qu'il était alcoolique, que la PA
 
-LM LA MAISON NUMÉRO 13 4
 spective du procès le hantaït, qu'il avait des chagrins 1
 Est-ce bien tout ? Le fait est là, le triste règlement “
 des comptes a eu lieu... Je crois ne pas avilir la mé- : !
@@ -13086,10 +10570,8 @@ de rapine, on pourrait citer certains usuriers très con-
 | nus qui y ont trouvé leur profit.
 | Je n'ai pas l'intention de préconiser les projets desti-
 | 143 :
-\
 | 1
 
-ER Vladimir Korolenko \
 4 nés à résoudre la question juive. Mais si j'étais un de
 À : ces millionnaires juifs qui semblent s'occuper de cette |
 L question, je ne saurais pas résister à la tentation d'une
@@ -13113,80 +10595,24 @@ aussi pénible que celui de leurs collègues chrétiens... |
 | Et, en effet, l'oppression de l'usurier est-elle done
 | moins lourde parce qu'il porte un costume européen et |
 \ se dit chrétien ?..
-Le VLADIMIR KOROLENKO' |
 |
 EE traduit par Elie Eberlin
-A |
 | p >
 | 10
 
 A (#2 La mer et ASUS: PACE APN MF TE ARE e sp LEE H
-; HAT AIS PHASE GUN d is +, RUN ON +, RL, LP YOT A QE TEEN
-"NN RS EG ETS dir) MENT EPS RER
 LP TER re CAPE ANT TE k ar LA SAR ET IC SES AP
-/ 477 ARISSAOES ê PT TN RAR + CNET ai H \RRP UNSS
-RAT nr AA 4 } AAA LME "ap: Ro #
-LEE A AS NENANENERES) ÿ 1)" 8 AU NÉ RAR ERER L'ATRE TNRS
-: 1 ONE - be à RAS
-DER 7 M . Me 4 F4? va # na ci ,
-ÉtA 2'AUFEES * AE FE SR F4 at
-ER LTÉE IN SRE EN SOC A TRÉTRRRENE
-0 RENNES 1/4 SENS Det
-; MENT +R & $ ; { 5127. PANNES
-AL HEURE SFANETET MAP AS OP » 1 IV VOEUEENEN PRESS
-A Ru h a F LEA 4" RP :
-D SE. à « 1 LS 14 A Tee ME
-22094 VANECHPAREREeSE L HREdet if 254 PAUNTERRSS
 En She sa de FLE PAU +0 +, » TION
-7 CNRS REA À LAON A EREES CAR
-' ARRET SC ÿ à RSS ONE ONE EU PE NANTES Les
-Men APORATE D + \ RENE ANT nf: DCE TTC TT Me den
-"2 RAR ER EN CURE QAR ÉSE RE NT ee LAS DR LE CINRCES
 TE CU Een OA ge € 0e) Ce een TE ENS RATE
-2 RER RSR RE ne" NS CRE. TA 1FÈ8S FS D LP
-HONTE Ar rpieie NS FAR ETAT) arte REA Re SR
-DAY: SE) PNR A RSA PR Le NRA EM AC PARLAIT À 0
-AHÈNSUNES ANT NE PDT ce TRES "a AN PURES A A Le Ne
 ne de ul AR PACA COTE RAREMENT
 MA ca ie, MN A ES
 A En mec Née A NEA PR RG Et sen ASIE
 
-AA ET TO FRONT TERRE 5 SE
 da eAt de MS USE UE Le PRE ONE re Dur ;
 
-AU, TA ', ñ * ré “1 PU de
-LME SA a MAR AUUERNSS
-RE 2
-
-Ch ORAN ñ EF A AOME
-h fins s Héliq y 4 CRUE. EUR
-{KA À 4 NT LT rom
-PRE à EAU 0e
-MTL À FROM RER É: FE
-MENACE Eh PET.
 \ Rap JE Rip
-Ft + EU LUN
-ES te 4 pi 114 Hi
-MT, ‘LAON RE x
-A LCL EE 3 HSE OPA
-1° sa À EU: 120% Lea :
-ve 4 à, 44) nie t: NT
-ri kb à 2€) à Lol
-ER a Gt
-+, LL NS ER 14 HER fs ,
-RL Du \ 11H ENTREE \
-
-VAT EN TE Ÿ RATES DL Du" Re TE, LTATSS COR Er: Le RAT
-(ent AT 1 l'ENS
-lu : TER
 
 | RES iv
-
-é TABLE DE CE CAHIER FA
-
-hi PAGES ÿ
-
-Ne } à L.:
 
 _ Notre catalogue analytique sommaire ............ xx MA
 
@@ -13196,10 +10622,7 @@ Raoul Allier. — L'enseignement pri- 4
 
 maire des indigènes à Madagascar ...... vu x]
 
-‘
-Juifs russes k
 ELre EBEerLN. — Les partis juifs en Russie . 5 ê
-Pa.
 Le et rt OT ORNE A EM RSR Re 7 5 À
 : Sur les onze millions de Juifs que l'on compte NUE
 dans le monde entier la Russie en possède plus À
@@ -13217,16 +10640,9 @@ les causes économiques; les motifs d'ordre
 
 ÿ social et psychologique prédominent; le véri-
 
-Fi
-
-LL i
-
-à f
-ki Juifs russes |
 : ‘table « esprit juif »; esquisser le grand mouvement intellectuel et social qui agite à l'heure
 é actuelle le judaïsme russe, et suivre la formaFX Lion ainsi que l'évolution des partis qui se sont
 constitués au sein du prolétariat juif dans ce
-1 1 pays;
 I. — La population juive de la Russie : la bourgeoisie, la classe ouvrière, les petits marchands
 et les'agriculteurs.:.15."L "MAN ENNEEERNOREEEREEE 9
 { D'après la méthode Besser et Ballod, chiffre
@@ -13247,16 +10663,12 @@ mendiants ; une armée de sans-travail; grossie \
 tous les jours ; progrès du machinisme; « Bund »
 et émigration; tableau du nombre des artisans
 israélites des différents métiers dans les seize
-Gouvernements ci-après, dressé en 1891; majo- 4
 rité, petits artisans; prolétarisation de la classe
 ouvrière; tableau dressé en 1901-1902, où ajouté
 les dix gouvernements de la Pologne russe;
 ; comparaison de ces deux tableaux; petits ;
-'
-148 |
 | 4
 
-TABLE Ne
 patrons diminué; ouvriers augmenté; mais
 augmenté beaucoup moins; salaires de famine,
 hommes et femmes; nombre relativement restreint d'ouvriers juifs dans les établissements
@@ -13275,7 +10687,6 @@ rinoslav; mieux outillés; malgré tous empêchements; progrès rapides; quelque
 
 IL. — Les causes historiques, psychologiques et
 morales du mouvement révolutionnaire parmi
-ut russes). li. ui lies PONT Er
 
 Cantonnée dans les vingt-six gouvernements
 
@@ -13293,28 +10704,19 @@ comptent parmi ses plus anciens habitants;
 détail de leur histoire; mais les persécutions,
 les souffrances subies par les Juifs en Russie ne
 sauraient expliquer à elles seules les progrès
-149 IX.
 
-UT ANA a LE ur D ; CAE
-RAAAEU ANRT VE FRA LAN d
 Lee LR OT TE LA AU L À . russes pre { El de: #3 NA
 APR l'ARN s DO juif en Us ie
-AM nr ie AA Juifs DATA juif LME AR
 A MAD A 14 À 0 Ft évolutionnai caractère < Ne Lo
 AS AN vement ré ature et aulieu; (ES 0
-HUE, NET ei WA mou imés: n -Be. è 13e x
 15 tra ANA ides du rimés; Leroy. de la è RS
-AMC À | rapide utres opp énéral; M. DUT jus” Pet À
 FES M Russie; w juif Pau ption de A seule J% ON à
-4 Le \ TL ce: snité. es « a)! À S à n. . 1é S SU
 AR juifs, esp zare; CO la divini Re tice; cau: 45
 FA non ce rnard-La, tion de la d l'injus L “1
 VEt. A e ep sa e Wat 21e
 #4 11 mort; e è enraciné social; + 2h
 À nue À ice; haine nique el la créa- Te ra
-ENT lice; re économ juif avant 30 g)
 164 d'ordre ier juif perce NI
-A nt ouvrie Fes an.
 à Le Ni \ Te mouveme L'AILE Le n'exis- AE.
 NE AN EN mn DL ie sur£o 'état em- FA
 AREA TE du « Bu > industr 'à l'éta À va
@@ -13323,59 +10725,42 @@ R industrie, la ; et ive sem ints 2e
 A Lin ssie, il y lation jui iaux ermpre € AN
 FH TRE tait en Rus: la popula pris sociau du servagl k 4
 FAT ART les at Te ; industrie, ei.
-: EN ène € iarcal; ? ine; pa
 710 rt RON PO en AN ma PAU.
 26 ara de pu itali- 7
 + TIR un ce r € RCE OF ; cap 4 #
-At , d'u hange e'Ler ip iques ; = 9
 {3 al ; »s cha ins de briqu : len: VEf OR
 En nt les “hemin: fa nce; VERS
 RTS ARE oo et va Su € entre } ER
-1 M co rs d'us PROS iali: ic:
 1: OM illeurs iers; mage ifférenc ère et les “40
 re travai étiers; la di 'opère [50
-LAS s m. nt k juive s'op és, s'a0: *84
 FA 6) ion de üreme uive $, s''a HU:
 | Tee satio ais sûù lation j à effacés, idé 21h vin
 LS LE ment sun la ROBE jusque-là ion rapid FES i
 Ne te de ses, jusqu isation ra »ÿ HAN
 ui (3 les classes s de . La prolétar d'Ignatiev ? Re.
-ns \ isme us; is Lite A1
-EYE agonis s en p ive: cdlo en, LR
 nn anlag de plus isie juive; issance Un A.
 |, 4006 ent € "geoisi ier; nai vrier: AR
 TRE centu ile bourg 1vrier; les ou tie 4
 VDS etite nt ou x ercle nde SANS ‘ON
 | ie à de la A mouveme remiers ; ; propaga lti- us
-‘100 à AA prnAQLS Vilna ; aa Shnes 2e ge 1} DIS
 FO nie, à es Çin PR la je IL s | ui » 1 thua 886; jeunes A ela- 140
 | TA 5-1886; iers i Pa 1
-Lot 885-1 rier règne € érance \ pol
 ML s AG les ou rant le Mr RIEE MONTANT
 “1 va juive, M de son pe études, a F0)
-PA] e écar L & x IS
 cer it à l'écart oles, aux urtout po uoi ; ne.
 É EN tenait ée aux ée thétiques, S ses: PM ES {
 NE ive; rué es Ë russes ; 0 #
 “(HR ÉNÉAEE éraires, aires russ il effroy. (9
-(RFA s littére évolutionn réve émago- ms.
 D \ Le rl MER IH, EAN Mau 12 .
-Fi ho parm rt d'Alex ire: exc ouv! t V2
 (SUR £ mor ritaire; nis g ra- fi
 DAS Là "ès la 4 autori »A2EME. cou : ka
-(He apr éaction a ourag 5 FAEQUE PR.
 108 Hi la réact as RTE MA LE FREINS \
 LUN ie antisémitiq iémagog ds la jeune ‘15
 RU gie a c à cette “ naires »; "Li
 “L Nm mentaux révolution XIE
 No ù gements 150 on:
-M NW SFA
-NAS
-Ji
 
 ARR ON RS LT mn Wt3 PAR TT AN NUE PRES
-LEE
-ES TABLE "CN
 , se tourne vers le prolétariat juif; mais au com- & $
 A mencement non particulariste ; attendaient de 1x?
 4 louvrier russe le salut de l'ouvrier juif; seule- se
@@ -13393,7 +10778,6 @@ polilique des classes; tendances politiques futures du « Bund »; deux luttes �
 entre elles; masse ouvrière et agitateurs intellectuels; communion étroite; complémentation
 mutuelle; agitation partout, et non seulement
 dans les centres industriels; artisans aussi;
-\ question juive en Russie; émancipation natio-
 ‘164 nale juive doit venir de la classe ouvrière; un
 4 parti ouvrier juif; idée reprise en 1894 et 189ÿ
 par quelques autres théoriciens; affranchissement des ouvriers juifs doit être l'œuvre des
@@ -13408,11 +10792,8 @@ clandestine en Russie ; {a Voix de l''Ouvrier;
 $ relations avec organisations prolétariennes de
 Russie et de l'étranger; le Premier Mai; au Con-
 | grès de Londres; le gouvernement russe poursuit; mais le mouvement se répand de plus en
-\ 191
-j
 
 | 5
-Juifs russes |
 plus; journaux socialistes; Vilna insuffisant; il
 ? : faut un parti régulier;
 kl IV. — Le « Bund » et son activité; ses rapports
@@ -13432,7 +10813,6 @@ le « Manifeste »; points essentiels ; individualité
 é « nationale »; cinq ans après, rupture entre le
 « Bund » et le Parti social-démocratique russe;
 organisation du « Bund »; quatre congrès, 1898,
-À 1900, 1901 et 1903; fonds du « Bund »; caisses
 de grèves; ouvriers payant régulièrement leurs
 l cotisations; bibliothèques; le contrôle des comi- k
 tés locaux; le comité central; activité; le
@@ -13448,12 +10828,9 @@ terrain de la lutte économique et à devenir un
 Russie un crime politique; et un Juif est puni F
 plus qu'un chrétien; moins une question de
 | réglementation qu'une question d'offre et de
-demande; chômage augmente; crise; dispari152 j
-W
 
 # TABLE j
 tion fatale de la petite industrie; grande industrie non encore pris son essor; ne peut le
-prendre ; patrons eux-mêmes arrivés aux {
 limites des concessions; eux aussi des prolé-
 taires; d'où intérêts communs des ouvriers et
 des patrons; d'ailleurs le « Bund » non organisation purement ouvrière; les chefs et bon
@@ -13502,28 +10879,21 @@ russe; — tendances nationales s'accentuent de
 
 LE TN AAA A RNA SR EN mer PP TA AR NE ait 48
 EL NM MON ARAREUS Juifs russes |. \ HOT NO NORRIS
-RE M be Siantsme..., 1... AUESNNN ENCRES Nu
-dE f TARN AL j RUN
 DRE ou Dans tous les pays de la dispersion juive des FA 48 k
-UV CRT fe . # # o . o * at à] y D Ê
 
 |} RAIN partis et des fédérations sionistes; un État juif A
 \75 04 de en Palestine; le docteur Herzl; négociations pan
-M) IV _ diplomatiques; institutions financières ; agita (Etes
 { M tion et propagande ; en Russie plus intense, a nor
-AE > X ; . Ÿ UE
 ne 4 4 plus étendu et plus profond qu'en Occident ; D ie
 ci nie x M. Max Nordau ; le Messianisme ; les idées éga- 32208
 ‘\ 0 litaires de la Révolution française ; Moïse Men- 1: 1,00
 NE delssohn et ses disciples en Allemagne ; établis- "nd dE
 À ti À sement du monothéisme juif; morale juive pour
-$ Al eu : . ° 2 TR MEN
 es la fraternité universelle; religion d'idéal pro
 EU ñ 4 gone RE MEs Sr
 W Feu gressif ; mais réveil de l'antisémitisme ; coup 4 MM
 | décisif au sionisme spirituel de Mendelssohn;  … Res n
 He MEN sionisme traditionnel ; Moïse Hess,, Rome et DA
-Ke: LANCE } s 1 ANANIORS
 LEE Jérusalem ; juifs allemands ; mais en Russie un FES
 \HAONES mouvement populaire ; en Occident, antiquité de 4 HET
 LE te race; sentiment de nationalité; antisémitisme; Jai TiEPl
@@ -13531,54 +10901,37 @@ Ra en Russie instinct; traité de Berlin, exemples A:
 
 4 NM nationaux; une colonie agricole en 1879 en ‘5 5
 
-a Me Palestine; en 1881 émeutes antijuives ; brochure ee 44
 51 EUR du docteur Pinsker, l'autoémancipation ; prélu aie Fi
 LR dait au sionisme politique; une nation; en Lu à
 ! ‘5 Palestine ; régénération à la fois économique, &
 PT NAN physique, intellectuelle et morale ; une vingtaine 1
 FA Wen de colonies agricoles ; plusieurs sociétés auxi- r #3
 | si U liaires ; Théodore Herzl; l'État juif; point de He à
-\ AM 19% ” . . ss, =. . o +14 eo
 
 FN f départ du sionisme politique; congrès sionistes; #Q TS %
 
-* ON Y ET Pet . . ER < LE :
 | HE souscriptions des pauvres et des misérables; &
 Le RUN la Russie tient la tête du mouvement sioniste; : {T0
 LUS k activité des sionistes russes; laissent aux
 Ê Hi rl Comités occidentaux le soin des démarches et ou 1
 
-LAURE / A UE PE » . ss w L
 Fieus des négociations politiques ; éducation politique RU.
 FE 4 a 10 et nationale des populations juives; sionisme
 FE ie d'Occident et sionisme russe ; toute une culture, D:
 LANTA toute une vie hébraïque ; l'hébreu ; vieux five ne
 RE LE sionistes ; sionistes socialistes ; en Occident 7x # el
 LIRE la France, en Orient la Judée autonome ts +
-(D ANS Pt
 
-Fi RS ( E Ne
-
-PROS LU » LA RR
-
-IN CON MR 4 F- » 1 ) A0 IR
-
-: TABLE 11 NTI ATENES
 24 deviendront les foyers d'où la lumière et : ( ne
 ; : laction socialistes jailliront sur le monde ie
 \ entier ; les Poalé Zion; lutte de classes; en rat
 3 même temps sionistes ; un « Manifeste » ; Comi- ; ie
-2 0 ” (nai 7e = k: Vimt
 be À tés de défense ; une émeute antijuive à Homel ; Fes
 ” une résistance vigoureuse; ailleurs; premiers Ft
 rapports tendus entre bundistes et Poalé Zion; Nr
-4 : “= » Ê
 au cours dé ces dernières années, rapproche- à
-jy ment ; persécutions communes ; ÿ
-; COTE CR TÉNNONRAR ERNEST CE
 Un parti national et-un parti prolétarien ; en l
 somme un véritable réveil national des juifs en
-e Russie ;
 ‘ GEorGes DELAHACHE. — Un voyage d'études... 69
 Nous ne ferons point le sommaire de ce courrier ; si
 l'on veut bien se reporter à notre catalogue analytique
@@ -13590,89 +10943,32 @@ en suivant le fil de la narration, et non pas à lire puis
 à consulter pour y trouver des références; le courrier
 de M. Georges Delahache, tout considérable qu'il soit,
 et tout plein de renseignements, reçoit ce traitement
-commun.
 VLADrmir KoroLENKo. — La maison numéro 13;
-ji — traduit par Elie Eberlin..................... 119
-. Elie Eberlin. — Vladimir Korolenko............. 120
-:
 1e VLaDprmiR KorOLENKO. — La maison numéro 13.. 121
-ARE » '
 de fe Lx
-M
 
 ## sale L À y
-Ja HN CRAN va 110) #0)
 ARS es EVE NAME NA Ke EE Le
-FA AN NRA At M NP Un f ISÉTRÈNE ANR AE Proc 1 408
-ke DATA TRAVEL 1 FENTE PO os
-È AURA AU À FUNNA ke LH
 | MEANS ; RENTREE
-pre DEA ‘ à FAUNE Me
-ANA UIEER LH NUS
-706 RADEON 1 fé à, RON "dE OR E
-P'NENARES LT TON M
-!' VANNES "À i à 4 +4
-UE)" 4 fl k LT ER S
-\ En NU 4 « AT ENTRE Red
-NRA {4 Fi AR RENE (Fil
-(NON , VU ANNE 44
-1% 'l 74 s NA LA
-DD 4 + ‘ : L'HERAI Lh
-PA) AT Ÿ LLC E TRS
 mr Al Hire ( je IN FO ti
-NUL SMA MESA
-AO Fa SET
-ADR DATE (UE A] Î Me Ka
 À ha T EE MEN L Fate AA 8
-RAC) #5 V Me lee fe
-f, 14 ti AUS NN MR
 he 14) Lu ll 1 CRT A YEN TA
 :.. SES an ei no
 ÿ P'eUTEN “ : \ F fe \ LE MA et
-MP Ut li | LC à
 
-2 AO ES LT FN PL AN Per JOUE ETS CRE
-Te Hs A À ; n'a RU He LA EN
-‘100 PAIN SMS UE,
-RPUU, | _ Hi CEA
 # (Sr TRES LU à NU R
-NA :, 1 2 RTE
-eu L - |A CL NORE
-M  . f k |'AANE LPS
-BRON ET. 2e x Ÿ BEAUTE
-QG LEURS
-TS £ M.
-AE : / \ YA
-Mn : 2 DRE.
-2047 SAN DANT,
-MAT x FL DS APE
 : Des S k Her
-: 21 EORNPREE SN IRE ES
-RE | j UE L'AUR |
-: } EDEN à . : UN DATE
-"AC RICE y : PONS AC
-SAUTER 4 “ LOIS VEN EN ES
-; 12 EPS ere PA LA
-ee { ui ' UC Rg
-3 AR: à LL O À C " ‘. MOSS
-12, LT MANS j à ALTER (VEGAS
-A AU EN RD A GPA} Len NT AN) CARRE
-À 11 FLERENTR RNA me PA I RTE Ru RER RC SpA 0 Tu 4
-LT OR UP EN ER RAR FORTE ONE RM EN PA AT Eee
 
-or vus,
 8 M est impossible de suivre honnétement le 1 me
 fe :\ is ment littéraire, le mouvement d'art, le mouve nt
 é A politique et social si l'on n'est pas ahonné aux | ete ers
 RS | de la Quinzaine. See au
-{NRISnee TROIS
 4. a PE Pour savoir ce que sont les Cahiers de la Quinze ine,
 Fe MT à il suffit d'envoyer un mandat de trois francs cinquante
 5 à M. André Bourgeois, administrateur des cahiers,
 on A 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième.
 AR arrondissement. On recevra en spécimens six © ahiers
 (Are ns À de la deuxième, de la troisième et de la quatrième ?
-1 “1e Pre “k Fi Re
 ni Pour savoir ce qui a paru dans les cinq premières
 Fe séries des cahiers, 1900-1904, envoyer un mandat de
 jura ne cinq francs à M. André Bourgeois, méme adresse; . |
@@ -13693,44 +10989,9 @@ son A Nous mettons le présent cahier dans le commerces
 qu te sixième cahier de la sixième série; un cahier jaune
 Re de XXXII + 164 pages; in-18 grand-jésus; nous le
 UNE vendons deux francs. EE
-PAUL < RAR OS
 
-LE. Ah , 5 | ME 1.
-Es 18 (74) a 4 SR: :
 ne Rss 7 LS en)
-AT: PECUTE "SE
-DR hé f 5 FER
-me “RFA
 
-:47 x: POI ‘ L
-
-2 : k
-AT bre À ol
-5 * + s. -
-
-+ El t F =
-Dm, h
-: + s x
-LETER D :
-: FES) EU, È AO
-LIFE Ë ke
 v de ei x - Ce
-RE
-ru _
 
-x 4 0 Me : 5
-A nr "re
-ur. 2e dt Ph Ée
-+ A M
-TRE sx . 3
-
-FT EST 1 Re
-EAT En RER : 1 è
-LAC ORNNE PE è
-Ÿ Le ÿ gpe L ” ; A *
-ER | 4e dé j TE
-PEU © : hs
-DR ES à ren
-\ Tao ‘ , 3
-RR -| LH
 DR UM Le ne exe Le eus : TERRES

@@ -7,9 +7,6 @@ author: andre-bourgeois
 isAvertissement: false
 wordCount: 8519
 ---
-
-*André Bourgeois*
-
 Montceau-les-Mines, la ville du charbon, sous la
 neige, ses hautes cheminées sans fumées, ses ateliers
 sans bruits, apparaît, à l'étranger qui débarque à l'heure
@@ -36,7 +33,6 @@ est à la limite du Charolais et de l'Autunois, au pied
 des collines de Combrailles. Ce n'est pas une ville
 proprement parler, mais bien plutôt un territoire d'en-
 
-LE QUATRE JOURS A MONTCEAU
 viron cinq kilomètres carrés, sur lequel sont disséminées ou groupées les maisons des mineurs. Ce territoire, qui comprend les gros villages de Bois du Verne,
 de Rugny, des Alouettes, de Bois Roulot, de la Croix
 des Oiseaux, de Vernoy, de Lucy, de Bois du Leu, de
@@ -47,8 +43,6 @@ damier allongé avec des rues parallèles et perpendiculaires dont les trois ali
 peu près orientés N.-E., S.-O. — sont le canal du Centre,
 la ligne de chemin de fer de Montchanin à Roanne, et
 entre les deux, la plus importante rue du pays, la rue
-Carnot.
-A Montceau, deux villes en présence. Rive gauche,
 la ville d'habitation, maisons grises de deux étages au
 plus, surmontés d'un toit pointu de tuiles rouges. Rive
 droite, derrière le canal, large et profond fossé, entourée de son mur d'enceinte haut et noir, la mine, la ville
@@ -69,7 +63,6 @@ bateaux portant le nom Juces CHAGor, MonTcEAU-
 LES-MINEs, on peut voir, par-dessus son mur d'enceinte,
 la ville de travail, aujourd'hui morne en sa solitude.
 
-André Bourgeois bi
 Pourtant une des cheminées commence à fumer, celle
 des compresseurs ventilateurs où la Compagnie a mis
 les quelques hommes qui lui sont restés. Il faut, en effet,
@@ -99,7 +92,6 @@ des agents de renseignement et de domination. Le manquement aux oflices, l'absen
 furent de mauvaises nôtes. Les femmes et les hommes
 qui ont actuellement de vingt à trente ans, la généra-
 
-Re QUATRE JOURS À MONTCEAU
 tion élevée dans les écoles religieuses, déclarent avoir
 soupé — mais soupé jusque-là — des curés. Le désir d'affranchissement de la surveillance cléricale naquit ainsi
 “et s'accrut rapidement. D'où la première cause du conflit entre les ouvriers et l'autorité patronale. A celle-là,
@@ -128,7 +120,6 @@ avaient travaillé, sur laquelle il se trouvait avoir des
 - monsieur quelconque, ayant acheté un morceau de
 ÿ papier à la Bourse ou en banque, pût venir non seule-
 
-André Bourgeois
 ment prétendre partager le fruit de son travail, mais
 encore lui enlever, sans fatigues, la plus grosse part .
 des bénéfices de l'entreprise, sous forme de dividendes.
@@ -149,7 +140,6 @@ La grève fut l'arme trouvée.
 
 C'était la seule qui püût atteindre le Capital dansses
 forces vives. La première grande grève, présentant un
-caractère économique, remonte à environ deux ans. ñ
 Elle aboutit à la reconnaissance du Syndicat des
 mineurs et similaires de Montceau-les-Mines : c'étaient
 les premiers pas vers l'organisation ouvrière ; la grève
@@ -163,7 +153,6 @@ municipales de mai 1900.
 Jusqu'alors la Compagnie avait été maîtresse de
 l'hôtel de ville; le maire et le conseil municipal lui
 
-nr QUATRE JOURS À MONTCEAU
 étaient tout dévoués. Pour la première fois, après une
 lutte acharnée, malgré toutes les fraudes électorales
 que purent commettre les agents de la Compagnie
@@ -186,7 +175,6 @@ rent le canal et se dirigèrent vers la résidence du préfet,
 et là, sur un rang, bordant le trottoir, le dos tourné
 vers l'hôtel, à un signal donné, relevèrent leurs jupes
 et montrèrent leur derrière au représentant de l'autorité
-gouvernementale.
 
 Un des premiers actes de la nouvelle municipalité,
 ne pouvant laïciser elle-même l'hôpital, propriété de la
@@ -195,7 +183,6 @@ seulement la diminution du nombre des Sœurs infirmières et la réduction du tr
 
 taiïent. Elle exigea aussi la vérification des comptes de la
 
-André Bourgeois
 Caisse de secours et demanda des explications à la
 Compagnie au sujet d'un déficit de plusieurs centaines fe
 de mille francs qu'elle y aurait trouvé. Les explications
@@ -227,7 +214,6 @@ Syndicat, à la Compagnie, et lui firent remarquer
 qu'ils étaient pour rien dans la qualité. du charbon
 extrait, et que, pour eux, leur travail avait, comme
 
-ki IS QUATRE JOURS À MONTCEAU
 4? peine et comme temps, la même valeur que celui de
 leurs camarades des autres puits; en conséquence, ils
 réclamèrent l'égalité de salaire pour le même travail.
@@ -237,7 +223,6 @@ se joignirent à eux. La grève fut ainsi déclarée de fait
 le 19 janvier 1901 par la cessation du travail des travailleurs de Montmaillot, imités successivement, dès le
 par ceux de Magny, de Lucy et des autres puits.
 Dans quelles conditions allait pouvoir se faire la
-grève ?
 La paie a lieu par quinzaine; il faut de quatre à cinq
 jours pour établir les listes de paie. Les ouvriers
 avaient touché du 15 au 20 la paie de la première
@@ -256,12 +241,10 @@ lapins, une douzaine de poules, sept ou huit canards,
 quatre ou cinq oies. Les journées de huit heures qu'ils
 
 font à la mine leur rapportent de dix à douze francs.
-Ceux-là disent eux-mêmes pouvoir tenir six mois.
 Mais les autres, qui, gagnant quelques fois à peine
 trois francs par jour, n'ont jamais pu faire la plus petite
 épargne, allaient se trouver, leur quinzaine épuisée,
 
-André Bourgeois 1:
 dans la misère la plus absolue. C'est alors que l'on
 eut l'idée des soupes populaires.
 
@@ -291,21 +274,13 @@ coopératives. Le Syndicat ne donne de légumes qu'à
 celles des cuisines qui par la situation de leur quartier
 reçoivent fort peu de dons en nature. Le Syndicat
 délivre à ses membres des bons qu'il paie ensuite aux
-fournisseurs.
 
 Le siège social du Syndicat est installé au-dessus
 d'un café, au premier étage de la maison qui fait le coin
 la salle Pézerat, salle de bal où se tiennent généralement les réunions publiques et où se font les confé-
 
-Cia a QUATRE JOURS A MONTCEAU
 rences. Sur le mur de la maison, près de l'entrée de la
 salle, sont collées des affiches dont celle-ci
-VILLE DE MONTCEAU-LES-MINES
-Parti Socialiste Révolutionnaire
-GROUPE DE LA JEUNESSE SOCIALISTE RÉVOLUTIONNAIRE
-NOEL SOCIALISTE
-” Fête d'adoption j
-Camarades Libres-Penseurs !
 
 Les gouvernants de toutes les époques n'ont jamais su
 prendre aucune mesure pour détruire le cléricalisme.
@@ -314,10 +289,8 @@ Il faut, par des manifestations imposantes, montrer
 nos dirigeants que nous entendons faire notre besogne
 nous-mêmes. Aussi le groupe de la jeunesse socialiste révolutionnaire, d'accord avec le groupe de Libre Pensée de
 Montceau et des environs, vous convie à une
-FÊTE ANTICLÉRICALE
 qui aura lieu le lundi 24 décembre (veille de Noël), salle
 Pézerat, à huit heures du soir.
-PROGRAMME
 
 1° Conférence par un élu du parti; k
 
@@ -325,18 +298,14 @@ Punch monstre offert à tous les possesseurs d'une carte
 (des cantiques socialistes seront chantés par plusieurs membres de la Jeunesse Socialiste pendant que brülera le punch
 dans l'obscurité); .
 
-3° Grand bal.
-
 N. B. — On peut mener les enfants à cette fête.
 
 Des cartes sont en vente au prix de o fr. 50, chez tous les
 collecteurs du groupe de la Jeunesse socialiste, chez les
-citoyens...
 
 ! Le groupe de la Jeunesse Socialiste
 de Montceau-les-Mines
 
-André Bourgeois
 Derrière la maison occupée par le Syndicat est in- i
 stallée la cuisine de la première section dans la ‘cour ci
 donnant sur la rue de la Cantine. A côté de la porte k:
@@ -344,8 +313,6 @@ de planches vermoulues surmontée d'un grand drapeau d
 rouge, une longue bande de toile rouge a été pendue
 la crête du mur. Sur la bande rouge, un écriteau blanc
 portant en grosses lettres l'inscription:
-CUISINE — PREMIÈRE SECTION
-SOUPE A LA CARMAGNOLE
 
 La porte poussée, on se trouve dans une petite cour
 à peu près remplie par une baraque de planches et de
@@ -354,7 +321,6 @@ demi-cercle, avec un volet et une tablette, a été amé-
 nagé pour les distributions; à côté, une petite porte
 simplement fermée d'un vieux rideau autrefois rouge.
 
-Deux petits drapeaux tricolores, quelques écriteaux. s
 gauche, écrit à la main
 Il est interdit à toute personne étrangère ‘op
 de stationner sans autorisation.
@@ -370,14 +336,11 @@ Toute la famille comprise.
 
 Tous les adhérents fourniront le pain, excepté ceux qui
 pourront fournir un billet de nécessiteux signé de leur
-boulanger.
 
 Les sans-travail n'auront droit à la soupe que s'il y en'a
 de reste.
 
 Le Bureau Syndical.
-
-EE QUATRE JOURS A MONTCEAU
 
 En dessous, à droite, écrit à la main
 Ce matin soupe maigre sans portion.
@@ -412,7 +375,6 @@ s'amassent à la porte de la rue. Un des cuisiniers va
 l'ouvrir et la tête de la colonne arrive au guichet. Ces
 femmes, toujours proprement vêtues, sont plutôt les
 
-André Bourgeois
 mères de famille, les jeunes ne venant guère à la corvée; :
 sous le fichu blanc ou la fanchon dont elles se couvrent
 la tête, elles ont en général des airs fatigués et vieillis;
@@ -429,7 +391,6 @@ quatre coins, et qu'elles prendront ensuite par le nœud
 comme par une anse pour ne pas se brüler. « Ditesdonc, les fumelles, faudrait voir à venir éplucher les
 truffes, ce soir », commande lou Crassou, & et puis
 tâächez de dire à vos hommes de venir à la corvée de
-bois, à deux heures, hein. » d
 La corvée de bois, si vous saviezcomme c'est simple!
 Il y a sur le port tout le chargement d'un bateau
 destination d'un marchand de bois de Chalon. Eh bien,
@@ -444,7 +405,6 @@ qui se contentèrent de regarder, ramenèrent au village
 les deux voitures pleines.
 Quand tout le monde est à peu près là, un des cuisiniers, un ancien zouave, prend un clairon garni des
 
-QUATRE JOURS À MONTCEAU
 glands d'ordonnance à torsade tricolore, sort dans la
 rue et s'arrête au milieu du carrefour, caresse un instant
 de ses lèvres l'embouchure de l'instrument, puis, le pavillon en l'air, sonne à coups de langue secs, le refrain
@@ -478,7 +438,6 @@ bien le diable si... Seulement dépèchez-vous. » Et les
 
 autres tendent le dos et filent vivement.
 
-- André Bourgeois di
 La grande occupation du gréviste, c'est demanifester.
 La manifestation, c'est le défilé dans tout le pays; en
 colonne par quatre et par sections, avec fanfares de
@@ -508,7 +467,6 @@ avec en lettres d'or l'inscription : Syndicat des ouvriers
 mineurs et similaires de Montceau-les-Mines, et en
 dessous, en faisceau, métal jaune, le chapeau, la lampe,
 le pic du mineur et le marteau du similaire. Ces insignes
-IN OREN ARS QUATRE JOURS A MONTCEAU
 ne sont délivrés par le Syndicat qu'à ses adhérents ou
 à des militants connus. Aussi tout inconnu, qui n'a pas
 cette décoration' est-il dévisagé de la tête aux pieds.
@@ -535,7 +493,6 @@ double; dans tous les cas, ils reçoivent de fortes allocations, et l'on cite te
 sont payés sur le pied de cinq cents francs par mois.
 C Si le matin viennent en ville quelques corvées mili-
 
-André Bourgeois
 taires, dans le jour on n'y voit pas un troupier. Il n'y a
 pas de postes dans la ville populaire: Seul, un escadron
 de dragons est cantonné, à l'autre bout du pays, à côté
@@ -565,7 +522,6 @@ parfaitement que leur vraie force est la seule passivité,
 sans troubles, sans émeutes, sans attentats, et alors
 sont tout de suite tentés de voir dans les exaltés, dans
 
-ï QUATRE JOURS A MONTCEAU
 les anarchistes, de simples agents provocateurs soudoyés par la Compagnie ou même le gouvernement, et
 destinés à amener le « coup de chien » désiré.
 Il y a, en effet, des anarchistes à Montceau. Combien
@@ -591,13 +547,10 @@ sans avoir un respect religieux de la propriété d'autrui
 inutile, n'éprouvent en aucune façon le besoin de la violer pour le plaisir ; quand c'est nécessaire, pourquoi ne
 prendrait-on pas ce qu'il y a sous le soleil, mais quand
 ça ne presse pas...”? Et, de fait, il n'y a pas eu une
-André Bourgeois
 seule violation de domicile privé depuis le début de la
-grève.
 
 Donc, tout s'étant passé jusque-là le plus paisiblement
 du monde, les anarchistes de Montceau décidèrent de
-se montrer.
 
 Ce fut le dimanche 17 février, au lendemain de l'émeute
 de Chalon-sur-Saône, qui avait eu pour résultat de faire
@@ -624,10 +577,8 @@ des rangs pour qae l'on fit les sommations. Au premier
 roulement, un des grévistes bondit sur le tambour et
 d'un furieux coup de pied de bas en haut creva la caisse,
 
-QUATRE JOURS A MONTCEAU
 mais le coup avait été si violent que le pied y resta et
 l'infortuné, pris au piège, ne fut délivré que par les
-agents.
 Dès midi, les grévistes commencent à remplir la rue
 Carnot, la grande rue, et à se diriger vers la place de
 Grève qui desceng, en pente douce, de l'hôtel de ville
@@ -655,8 +606,6 @@ serrée sur une tortue de parapluies. Toutes les portes de
 la mairie sont ouvertes, le peuple occupe sa maison.
 À Alors les orateurs arrivent au balcon. Fort peu ont la
 ] parole facile, et leurs discours, d'ailleurs assez brefs, ne
-MAS Dan
-É André Bourgeois
 
 sont guère qu'une suite de mots à effets, sans liaison,
 jetés à la foule qui applaudit indistinctement. L'un
@@ -672,7 +621,6 @@ camarades de Montceau tiendront ferme et haut le drapeau de la Révolution. »
 
 Un autre encore : « Camarades, le temps n'est plus de
 patienter. IL y a en ce moment, dans les prisons de la
-République bourgeoise, cinquante malheureux braves
 citoyens qui, hier, ont fait tout leur devoir. Camarades,
 allez-vous tolérer plus longtemps les crimes du Capital?
 Allez-vous vous laisser enchaîner? Allez-vous vous
@@ -688,9 +636,7 @@ la grève, les plus écoutés jusqu'à ce jour par les gré”
 vistes : Goujon, Chalmandrier, secrétaire du syndicat,
 et Maxence Roldes; ils combattent la violence, font
 appel à l'union, défendent le drapeau rouge. Mais l'expression deuil et misère a frappé la foule; elle reste
-favorable au drapeau noir.
 
-À QUATRE JOURS À MONTCEAU !
 _Bouveri arrive au balcon. De taille moyenne, à peine
 voûté, la longue moustache blonde tombant de chaque
 côté de la bouche, l'œil gauche un peu voilé, donnant
@@ -721,7 +667,6 @@ occuper du triomphe de nos légitimes revendications.
 Camarades, vous vous honorerez en accompagnant
 paisiblement nos morts à leur dernière demeure. »
 
-André Bourgeois É::
 Et comme il est quatre heures et qu'il y a plus de F4
 trois heures que l'on piétine dans la neige, tout le 2"
 monde en a assez. On vote plus ou moins un vague
@@ -730,7 +675,6 @@ poches : &« Ah! zut, il fait trop froid pour les lever. »
 Tous les drapeaux, les noirs en tête, rentrent à l'inté-
 rieur de la mairie, les cuisiniers aussi. La foule s'écoule,
 la plupart des grévistes se rendant au domicile des
-camarades morts.
 Et ce fut un long cortège qui suivit les deux cercueils
 portés chacun, sans drap, sur les épaules de quatre
 mineurs, précédés de deux drapeaux noirs sans inscription, accompagnés de toutes les sociétés avec fan- La
@@ -750,10 +694,7 @@ que l'on résisterait ouvertement aux menées anarchistes, que tout le monde con
 faire tomber les grévistes dans un piège.
 Le mardi, qui était le mardi gras, on annonça larrivée de Guesde et de Lafargue venant de Chalon.
 Beaucoup de monde s'en fut au devant d'eux à la gare.
-pes
-NUE SE ANNE
 
-QUATRE JOURS À MONTCEAU
 Is débarquèrent le soir par le train de 3 heures 47 et,
 précédés d'un seul drapeau tricolore, escortés des
 grévistes, se rendirent à la mairie. La foule les attendait en bas sur la place. L'anarchiste Broutchoux
@@ -784,7 +725,6 @@ sacristie, et trouva même le moyen, à ce propos, de
 
 à citer saint Paul; il plaignit ses auditrices et les flatta
 
-André Bourgeois
 sous toutes les formes; il fut très applaudi. Guesde fit
 ensuite le tableau de la cité future, celle où l'on travail- = e
 lera de trois à quatre heures, et même peut-être une
@@ -815,7 +755,6 @@ Il avait été bien convenu et annoncé la veille au peuple
 du haut du balcon de l'hôtel de ville que le mercredi il
 y aurait, à une-heure, manifestation pour entendre
 Guesde et Lafargue. A une heure, les cinq ou six
-ie 1 QUATRE JOURS À MONTCEAU
 
 cents grévistes qui ne manquent pas une réunion
 étaient groupés aux abords de l'hôtel de ville sur la
@@ -846,7 +785,6 @@ la circulation? Tenez, voilà une voiture qui est arrêtée.
 Allons, descendez. Eh quoi! vous les connaissez bien
 vous savez bien qu'ils ne valent pas la peine d'être (
 regardés.… » Et il gagne encore ainsi un peu de terrain.
-André Bourgeois
 Enfin, le clairon sonne l'assemblée, et tout le monde
 s'en va de l'autre côté de la mairie.
 Alors il fallut bien annoncer qu'il y avait eu erreur,
@@ -867,7 +805,6 @@ grande facilité sans jamais chercher les mots ; les gens
 disent : il parle bien.
 Maxence est donc très populaire. On appelle Maxence
 tous les nouveau-nés. Il y a, dit-on, maintenant trois
-cents petits Maxence à Montceau. Maxence arrive au
 balcon, s'y appuie d'une main, et de l'autre se découvre,
 saluant la foule. Comme il neige, on lui crie : « Cha- è
 peau, Maxence, mettez votre chapeau! » Maxence sourit
@@ -877,7 +814,6 @@ pas en cassant des vitres, en brisant des grilles, en saccageant quelques atelie
 de nous-mêmes que nous arriverons à triompher, parce
 qu'alors nous sommes imprenables et que l'on ne peut
 
-Dr QUATRE JOURS A MONTCEAU
 rien nous faire. Voyez ce qui s'est passé à Chalon. Dès
 le lendemain de la grève, on fit l''émeute. Cinquante de
 nos meilleurs camarades sont maintenant en prison.
@@ -908,7 +844,6 @@ où ils n'ont évidemment pu passer leur matinée qu'à se
 chauffer, — et qui s'en retournent déjeuner chez eux,
  universellement considérés comme inoffensifs.
 
-André Bourgeois
 Cependant le mineur, dans sa campagne, jouit, contre
 son habitude, de son foyer. Il reste dans sa petite maison à deux pièces où il habite avec ses vieux, sa femme
 et ses enfants; sur les murs blanchis à la chaux les
@@ -931,9 +866,7 @@ camarades des autres puits. On sait bien que cette concession faite ne changera 
 vailleurs. Il n'est pas douteux qu'après cette grève,
 d'autres grèves viendront. Car tout ceci n'est bien qu'un
 épisode d'une longue lutte maintenant irrévocablement
-engagée.
 IÉAGIMERIE DE SURESNES (G. RicHARD, administrateur), 9, rue du Pont.—4100
-ere cannans 1 À À, ol ostmotmiennnerene tee
 
 -_ Nous prions ceux de nos abonnés qui nous envoient
 
@@ -987,10 +920,7 @@ dun abonnement ordinaire. Nous ne les vendons qu'à
 nos abonnés.
 Nous avons donné le bon à tirer après correction pour
 seize cents exemplaires de ce neuvième cahier le mardi
-If Mars 1401.
 
-CAHIERS INDÉPENDANTS DE LA DEUXIÈME SÉRIE
-Éditions
 Nous tenons gratuitement à la disposition de nos
 abonnés la Jeanne Œ Arc de Marcel et Pierre Baudouin
 et la Lumière de Jérôme et Jean Tharaud. Envoyer un
@@ -1001,6 +931,5 @@ René Salomé, Vers l'action 7 2 francs
 Hubert Lagardelle, les Intellectuels devant
 le Socialisme 1 france
 Romain Rolland, Danton 3 francs
-Lionel Landry. Bacchus 2 francs
 Adresser les commandes à M. André Bourgeois.
 administrateur des cahiers.

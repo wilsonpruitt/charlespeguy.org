@@ -7,238 +7,62 @@ author: andre-suares
 isAvertissement: false
 wordCount: 29151
 ---
-
-MR ) : à Es ] à
-L: VOL qe t : ;
-h TER 14 |
-À L- . Me ai - R \ {
-a FU l é
-Ra: L $
-NE"
-An:
-AL FE « e ;
-NT : 1
-f : 4
-AL |
 |A : a
-L L. ‘ sil
-LR « ET Ar
-si :
-F2 n
-D .
-FU
 ji ET
 > 1
-L El and ,
-” ", # - .
-k ‘# pi x
-ER IS '
-ER
-Pa
-Us -
-1É Lot L
-nr
 —
 LP AT COR de
-1 4 FER r h:
-4.4 Pa si Di } 4 €
-144" 0 # RAT le JL Fi
-FAO +
-4 TRES D l :0
-1°. TOITS . Û
-1 ve il PAL « .
 RTL, pre 2 PR PA th mer L'
-4 ya ! ". ni u VE FX. Ls RE
-EN ON AA OS CES ILTE RE, ;
-
-E à ER Er
-: ‘ = ee à
-Ju "1 pl (ES E
-PE … 5 hi Fe A RE.
-k CURE 7 4PE  #
 
 Vs L | nettes RS
-F 4 : À. feat 10, PROMIS
 y \ Le CENT RRE lin Lies
 
-À nn. D FAN TE AE
-& x - ; : D JL | M Ar: (VEN
 es {SR ne ee
-Pr L ï 5 l 1 A AR 11 TIR ARS
-a \., FAMSERIC Re AE +
-ai: | + THE OT À, 8 l'OS DEEE
 | ARE Ven AUPONLINSRE NRA Vo Mn
-:' T0 À Dre AS LENS
-fe Fi { É } FAUNE y LS
 te EU G k de rs TER ï "Ye
-Re En LL; SANTE “ ie
-Pa Watt, À ; : LAS t: d", LPO 14
 ' C: LIEN Ne pt PURE RS Re vi
 
 \) RS FA (M É 1 ne ITR date Poe:
-LOUE ' LT or, Ê Et z
-LS À - D , + NÉE ris
-AN 4 > . L'NORR EP
-104 : - 4 taleta : APR à Le
-LCA + (100 Ye A
-À De k #: a Ne : LAFLUNTE À 7e L l
-RUE RENE Û % - A ENS THE RUE"
 “re CA à ni , u ù ps all A ©! re Ù
-
-( A : Ku æ DES : x NERO Su JIRPRYUS #0 aise
-
-SMS RER DVI SE RIRAQNE 1e RES ER LA EAN 2.
 
 Mae as ts LE NEC eR TRS AE L'EXOTER
 
-HUITIÈME CAHIER DE LA TREIZIÈME SÉRIE
-N ù
-SUARÈS
-DostoiïevsK1
-p
-De
-*
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
 | PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-PU DU St QU TE 1
 IT AES Le LE AR ED Le vd PTS "APE SAC POSTEUR ce
 # AN 4 sig FRANS : à % AUS 2e *# de BAS. À #4
-SR ” 3 ATIESR 153
-+ 1 LA ; = à + 1? TPS FAR
-JET : A k F HIT wi A
-LH me | LA Le ï 4 À ' Li. À
-NE, LEE CS ETRRUR N'PUS - née AEOTE RES RENE À
-NS 0 CES AN 9 NEA SE Le RC NN SR TRE
-De 2 El 1T \ : 5 : ré LCR à het ie
-uen” 2 2 SRE 427408 ENT
-RE: 10 Je: | ] S 97 VAaIRNES PR Ne e
-Put : Mu Le 7 e Ÿ £: 15 4 | : 1] 14 D 7 EC
-TES fLcser IS ESS
-Le VE 7 y : Re ut
-EUR r % 1 : ‘ 1 UNS NREESSS / NE
-FAN é 4: > RS GO AN À ue 2
-RER À } ; ï 4 ed "1 “ (Rp “ALr 2% À LÉ vÉ
-FU , J VAI ES 1848 240 MERE : “@
 ME Le À " Les : à a fl : HT ERRSSSE 4 Ar F Vict:
-À 2 * cn) Are “+ HR : 4% AT Le RARE
 Nos. “1 À Tà & ILAATS eo 4:
-Her iR RE TE REN FAITES FH 1
-Mr 7 d TR RAT EE TNT A tee:
-Se FER RP NTENe LAN tn PT A Mie At Fe k
 
-£ RIRE SRE ES Ps SET 2
-PORN TP CO AR TA Le Ms
-MR NET Ce. 27 CRC RES | 0
-2, LT Sie AUTRE A Le +. MEL CCS ÿ 14
 PET LA) Lg ie tn A 4 { M, e
-PE * Û + Fe 10
-je 2 - FOIRE
-44 L UP a
-‘Ca ER ñ h te ‘54
-PE:
-RE - , LT
-1 “2 RE 4
-et cer ) 1 = 54
-EL #,
-: N'EUCRSS 3 À
 #54 A: D
-\ Lt or À :
-LA 1e 4 sn 1 s
-:. 400 < ÿ 4
-; ee 3; :
-* 3# 2 #
 50 -
-2, FFE 7 fo
-5 S'y "
-At ee À
-de 3 RE
-<e", CDS ‘ Arr
-4e - ; os
-A" + à + * #.
-é LS ”
-£ à +. +
-L#
-L' ” R 1: ÉAP
-Fe “14
-PET | Be
-D à. “
-37708 : 4
-LS : Fe « i
-. = MODES Fu
-4 TR ‘
-mir
-LI LL t .
-" \ ra
-RS \ ne
 #4 … . . ge SA ,
-re: : Pa
 
 NET e OO Et SAM PE PR: ASE voice
-RS ES US PE PUR UNS a DRE CE
-RS TE 0 EN 0 + Ce HAS RE WU RER
-b MU RP SAUNRENT APR Re SARA SES
 RTS — M Pete à TPE Dre VE CEE LL CES EX 34 PR
 ES Ke o QE + Lai pa Æ LA DCR AS LA PAF L, 5
-7 27 L : Fe TZ ve AR
-ET < AT = = OUTRE SPP
-ER cu ; # : + AIRE PSS ES
-te LS AT - 7 ect FRE A
-AVE FRA F: " n Er CENTS,
-MIDI PES 2 S : - TÉL TS 2
-FR e 3 ARTE : "re a sx RTS ER,
 DRE en | Re ne are
-% eu 2 CE ROME CRE
-SSCREREMER “ - Ée Le sn 27
-DORA ES 1 M nel Dr F :
-: TL TRE : 5e D: : 72
-ENS RE CT
-LIRE CORTE z h TL SERRE
 ed Pan iar ; de
-DSC LOSC CRE EN LERS MES UN
 QE s HA ue LE SENTE
-TOUR - = 2 DORE
-REA IERCE, aps DE 7 APR RU A © 260
 AP LR ER ns 2 gr CR ON dar 3 Ë; He à de SE a x À
-ns AR RATE SP AL ÈS PRES K&,
-k PCR QE 0 OMR NT > RES HART Se d
-2 AXE RON ER See < u 1 N: 7 SAME EURE
-EE Do Qu CRC RENTE
 D RE RL ne GT, TT ee Pi, sir RC RES
-
-2 ve ® * CA "
-M PS D Pr). es
-ADR.  - LE L'URSS 3
-
-LES =
-
-….. QUELQUES ŒUVRES a
 
 CAR be
 
 | 16, D de . w
-+ 15 SUARÈS |
-
-4 43 fe : . a
-MD L : |
 
 _ aux CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne :
-
-VER
 
 Sur la mort de mon frère, 1 volume petit in-8, 1904.
 La tragédie d'Electre, 1 volume grand in-18, 1905. Ar
 
 Le portrait d'Ibsen, 1 volume grand in-18, 1908. -
 
-… Visite à Pascal, 1 volume grand in-18, 1909.
-
 ; | Tols où vivant, 1 volume grand in-18, 1911. F
-Nr Du ” ? +
 
-‘ Fe à V'OCCIDENT, 17, rue Éblé :
 | Voie L'homme, 1 volume grand in-8, de 450 pages, 1905. '
 
 " mage: de la grandeur, 1 volume grand in-8, de 221 pages, 1901.
@@ -249,7 +73,6 @@ ne CALMANN-LÉVY, éditeur : ;
 L livre de l'émeraude, 1 volume in-18, 1901.
 4 36 .
 Æ. ÉD. CORNÉLY, 101, rue de Vaugirard :
-ER
 Suntla vie; Essais, tome I, 1 volume grand in-16, 1909.
 
 — Sur la vie: Essais, tome 11, 1 volume grand in-16, 1910.
@@ -258,106 +81,25 @@ Voyage du Condottière, tome I, 1 volume grand in-16, 1910. A
 _ Le poète tragique
 ANS nn L
 
-FR 4
-F RER, ra { s F. *
-ie L2 * .
-
-LISTER LE à RE LE É DEC C0 ;
 AR SSSR ENS RS EE" ARS LT CE LEA Fed 3
-FRS DU RENE DÉS A Et AA FRE HE
-LEE PRET a CMP T ES n: MCE ES nu # y En PLV :
 MEME EE EST TS ER ACTE re +
-RL TE ë SLR Es AT AR 24
 ER y L Asso LonNRE LS ES
-KES FAR 4 Tr SE RATE: NA): 406
 #2 à = P DER rt ‘ e SperLe
-Re ECÉMS . au YU SR AA PS at Là,
 D + È FE de + Er PE ie xls À
 ne k ETAT E FORRRE RAA RON
 MES: Que : ï * MS MORE me”: 2
-ESC EE, + à 1H AS NN RRE
-Pa TEE PR N - 1 WF Ù ‘Ca %
-7 Eos (RS 2 LE 7 ; FONFN RE CE A SERRE 4
-Re: 2 RS" 0 ef M LORS
 LEE (AS d À FERA oh | VÉRTKe LA
-FEES € QAR c'e % A TEE E À 2 MORE En es
-ri ‘8 * > 11,16 2 A y REAART:
 LL LAINE ‘ ae L$.: LÉRRESSS + CARNET
-RTS. ve e = à À + #°i HA FA L Re
 LAVER ne Ve + THAT TER Fe ER AU A A
-PSE a # Hi n 4 : 10 ETES 4 NRA
 sn Ti L ‘HAE ire TE ait
 FE -] 8 à r sh À Les
-NAPPES 4 ANS EAU de TEE ,) Le - + VX. UE
-2 CRE ur. À. 1 Etat HER se CR
-ME VIE e AE En $ 270 HA
 RE ÉTAPE re TA et < NT RÉRRTENRS
-Le TER RAS TT i RAC | .
 
-RTS, je #7 SSSR AS FRS RE CN
-y RARES 7 CRE ) 2 EE TA di Pr
-. Là, NES S'ETE APE ARE
-_ SAME : ‘ à 3
-À à ES da * AGE, A .
-À “a L” x , €
-FINS Go E: + !
-LA EPS EE
-2° 3 te F1
-"SE .
-Tr 4
-% f
-2 9e +=
-SL “er n
-FE
-A
-
-_  Dostoievski
-LOTS 3
-:+ "LORS
-." PTE
-st
-D nu
-“Ta
-: 1 £ “ \
-ni. ,
-SE
-A
-00 :
-L ; Ne Ÿ,
-ALT
-Le peer » « "ES ù
-DR
-Ft CES
-
-LOVE 2 VAE NB RE PARS : PRE PE UE TS LS : CNP TES
-: LAPTOP OT EE VER A DT RARE UT dr MEL:
-LTÉE RONDE A ES MM Dee HU RS Se SORTE as
 j ee) LATE ee 4 h UE < s ESP ER SAR Le
-NAS #5 Fe FES CHINE
 f Fig FA) # ET ati cry
-LES | RENE
-PR © | NÉE UE
-LL NRATE 7 FREE DRE,
-PTS 4 ? 3 VEN RENE ESS
-à CORSA - 2 D EC CSN EN
-LE VARIE + ' ee WA Se
-23 Pr TIONE F JS SAR 54
-ASE 1 FERRER
 UE de EX me l'E sie
-Al". 01 Lo à LA 4 . VISE eg À ENT
-LPS M = * FEAT RIRE RE
- ÉFCMRRE- Fe 4 À ES RCE TE ErES EP
-+ - k Vire FRET réa
-D LS, à 3 LT AE
 | ARS TES FRANS
-LE CT US NES CORAN Ye CUt i
 - VF Rue UM S Pr RE PAR
-5 TPE dt ; « t 2 EN NENESS
-Rs, Lourr 7 RNCS VA AK ex PETER
-EXT RE EAN EE 1.1 POTAGE, TPE
-à cat Cal ; EE PEN LS 6 # its, D'OR EET
-
-f
 
 _ Né à Moscou, le 12 octobre 1821. Mort à
 Pétersbourg, le 28 janvier 1881. Il perd sa mère
@@ -384,15 +126,11 @@ il se remet à écrire.
 | Il épouse la veuve d'un médecin militaire, femme
 … malade et plus âgée que lui; il adopte le fils de
 cette femme. Vie misérable à Semipalatinsk,
-$ |
 
-Suarès
 1857-58. Après bien des démarches, il obtient de
-rentrer en Russie : d'abord, à Tver, 1858-60;
 enfin, à Pétersbourg, où il est rendu à la liberté
 entière, sans conditions. Son épreuve et son exil
 ont duré douze ans. Dès cette époque, il a deux ou
-trois amis dévoués.
 
 Il fonde une Revue avec son frère, 18671. Elle a
 du succès. Elle est résolument russe et nationaliste. Il publie Humiliés et Offensés, puis la Maison
@@ -417,11 +155,6 @@ Il publie alors Crime et Châtiment, 1865-66.
 Le 15 février 1867, il épouse une jeune fille de
 
 22 ans, Anna Grigorievna Svitkine. Il a eu quatre
-6 |
-
-Saut Fe > DOSTOIEVSKI ,
-
-Te
 
 _ enfants, deux morts en bas âge, deux qui sur-
 
@@ -468,118 +201,33 @@ _ de Pouchkine ou de Nékrassov, au sujet de la
 _ guerre contre les Turcs, aux étudiants, aux juges.
 Il a pour lui le peuple et les lettrés.
 
-"A i 9 Suarès. — 1.
 ce"
 
 MA 0 LUFn 1880) 1ldonne les Frères Karamazov. FA
-Dre - ja cu : Na 274) r
 1 Il meurt le 28 janvier 1881. On lui fatds
-nc LS + à Fr STRESS
 +2 funérailles à la Victor Hugo. Quarante-deux
 HR *députations suivent le convoi, et représententtoutes
 ta _ les classes de la société. Le cortège s'étend sur la
-,Y dE a ne 7 24
 LR _ longueur d'une lieue. JUS ER
 Fe +2 Quinze ans plus tard, Tolstoi condamnant tous
 4 les livres et les siens mêmes, n'excepte dans l'art
 moderne que les œuvres de Dostoïevski. LE 4
 
-PENSE LT a à
-is RES 5 F
-nn ke à
-{LACHEEE Ÿ RTE
-Kat PLU D:
-+ CEE € Part TE
-Lt . Û % F ve + En
-
-Ectee > #4 ALES
-LÉ FÉES M, Alter ER
-BATIR ox Ps LL pO te
-
-MN + : Re LD
-
-! SU APRES | LES AU A), Ar
-
-r e Fe ie AU ; AK | « < 244 PAR “Ha 1 se RS
-
-DR ee pe # " < RSS
-DONS ET ES ONCE 2 ES PE CEE
-
 RO Cr MAT és ON
 L “Le ANUS % sr et FA IN . FR
-TRS: Up. Re 1 TES à . res
 
-« VEN RASE - , fu
-
-€ A EU « 7 $
-
-ad re x
-
-Ü M. F 3 x
-
-LA EE *
-‘1 " NS :
-
-n EN . Hi 4"
-LEP LE
-MES à k +
-D LUN. SAS ï
-
-1400 k c* « 8
-! 2 + * A
-: SORTE Le Ë
-D: aa
-24 TA :
-; et Fe. .
-CM 4 r
-FETES |
-. JTE |
-ES \
-n 1 Fe :
-D a
 # CLR cv L
-Fr 1e H st
-4 « . UT
 
 MANS LT HT sg 0e PUS ART LT dE RP TUE Eux
 ROSE TT RER és RTE. LS be à ARS Et
 EST SÉès Air AT EC MER Ses se FRET vas 3 7 SR
 LE rs ENTRE MES Le De Ag Et RAS RS
-ÈS RS Pt PU TNA LEA NH \
 UE ne ; 4 SR EP te CRE à ‘ LE : Mi
-EST s $ F } " s ES Er Re PES 3403
-LCR AE Mani ee - : 2 LÉ FENEER NC ETES À
-0 ; È : | :ÉCRETERSURE ETES
-7 TE = Hs a : “+ AE RUE à Ce 0
-EE. re Ro re Mate" - RE En c- -
-RU EL . < RE LÉO TE ACER Tr
-RRQ 7 QUE 6 Jar e FN | CRE SES
-17 ÉCRAN l S AÂT SSP REC Fi
-1 CE : : : LEA Re PE RÉEL
-Ps Pins. ee . e ute E NO NÉE: NOEUDS
-A SR PT 2 D Le EN RR
-LEE AS ANS TETE eh,
 Er RE à AS vi : 2, TOR NT OU MU TE ee /E
-RE à ITR ; : e se OR HER ACTE
-LÉ PITE CRE : L'ÉPÉTÉRRESS
-Z -"i M PEL PA À, cè V2, er unt is g 4
-ÉS< Ve gr UE è : 17 NRETE PIE TN
-EU À fn RES ms te
-EU Li ps ch + LCPORE + # OR re EE
 LÉ SAGE L 1 D RENNES ' Der
-M
-De 6 ne és : * En A
-MORE SES CELLES Ps CU PR +4" + ty SH EME RNNRSS À
-mt" a #7 # Date me £s 1 4 é - 1 . LAURE Lai 2
-CAS DRE LE *? Ds LENS PU LP sf Rs x CTP Cr
 LRO RIRES HAN TL IN Ce. APE re Le
 LES - # Re Ce À UE jh: ÉTELN ares Er Es he
-FAST ù Es EN Lo PS PA" PRIT. RE LNEES
-Rene | PER OR RE NT TS *gÉR RS
-M #16 70e RE) en T3 ANS
-MORE PU ACTES ER x
 
-« RCE à
 À Jusqu'ici, je n'ai point nommé Dostoïevski.
 4 _ Je n'ai jamais laissé voir le visage de Fédor
 | Mikhaïlovich dans mes clartés de midi, ni
@@ -596,9 +244,7 @@ L de plus fort et de plus ardent, sinon de plus
 et tel que je serai dans le ventre éternel, renoué
 > au nombril de la mort, je mesurais, avec le
 … calme du vertige suprême, le jet de la tige
-É x 13
 
-j Suarès :
 douloureuse; et je suivais du regard mon arbre |
 É dans toute sa croissance, depuis les racines du |
 sein noir jusqu'aux glands des planètes et à 1
@@ -611,17 +257,14 @@ mon âme pleine d'amour était la sève même |
 | l'aubier vivant. Et, toujours montant, dans |
 mon silence, je palpitais au firmament entre
 telle et telle fleur céleste, ou pensée, ou senti- :
-ment. |
 Alors j'ai senti, dans la fière cohorte de ceux
 que j'aime le plus, comme l'explosion d'un
 F salut ; ou bien, au milieu d'une joie déchirante, |
 _ telle la rencontre, souriant, du mort le plus |
 chéri, se levant pour me donner la main. et me }
 baiser au front, ce nom el cette présence
-admirables : Dostoïevski.
 Æn lui, je veux me discerner moi-même. Il
 
-PE _._  posromvsxi D.
 _ faut descendre dans ce précipice, au flanc de
 K 1 la montagne; et il faudra remonter la pente,
 | du fond le plus bas, jusqu'au sommet qui
@@ -639,42 +282,18 @@ $ des grands-prôtres cachés sous les haïllons.
 Le rien ne lasse, un cœur aimant, un élan vers la
 EX lumière, une volonté qui tend sans relâche à
 4 la rédemption.
-4 à
-\
-Dr ! ‘ ww
 
-2 FE PR RENE €: C7 RUE LORS at AA TE ge À Re
-PARU RIT Re VAN MU EC EU EN I TE :
-14 TS DE RE US M O7 â A RORSR PEL s
-EN OR PRE -LR TER OU INT HEC OR ISESNER LS
-NRA Rs
-y” GE AE QT Ÿ VAS RR BR LR
-RS à ; NET CUITE LU OUT S ÊTES ER NES 7
-+ ee) OMAN E NT RUE T'Y SNS
-NANTES ERP + THEN TRES
-x : Ÿ : 4 #5 COMTE * APE
 ue LA De k r Des LÉ RES
 NE I à se AA À] : > ês Ne, re ep
-ANR Ÿ CF s VE CNRS UNRETES Fe
 MR or. à É ; RCE CPE ne
-MORT LA g PRES
-LE Le RSS
-LISE M ENPARENNR IE ER ITS ENTER CIE STRESS ANT SNL
-MP ë & Fe Lt TNA
 a 5 Es Ve ARTS ST MESSE de
 AT du “ OT mire ! MAS NE né ” #
 
 DA ET - STE FE re PACRIFANTARRE $ d
-RE EN OR 3 4 +
-CONTRE NAS ee 4 Ft 4 + LISTER
 LT ONE PORN ne MERE: “MP SRE UE SRE
-3 Cie CELLIER EAN) 7 TR ATEN SENEUR
 RL en) PL. RCE LE RE TS
 
 | Et.
-Ya RSR .
-. <
-MES SUR SA VIE :
 <a Il est né en automne. Il est mort en hiver.
 _ Îla vu le jour dans une chambre triste, au fond d'un
 _ hôpital où son père était médecin. Un soir de brouillard
@@ -696,11 +315,7 @@ _ lieues de Moscou près de Toula, voisins de Tolstoi,
 _ nombreuse, et plusieurs serfs domestiques, se pressaient
 É dans un espace étroit : à dix ou douze, ils avaient deux
 chambres et une cuisine. On vivait là pauvrement, mais
-dos : +
-$« P4e É
 
-<J 49
-Dostoïevski ER 1
 chaudement. Une pitié ardente était la flamme de la
 maison. Le père, grand lecteur des Écritures; la mère, :
 humble et maladive, toujours prête à l'oraison : tous
@@ -733,8 +348,6 @@ liés comme le pouce et l'index, sont voués aux mêmes %
 se quittent pas. l
 Le jeune Dostoïevski est élevé dans l'intimité pro18 k
 
-à Eu à er DT PTT <  RRr  AtR , RER
-D + SUR SA VIE : 4
 Te Fe fonde de la famille, où le lien religieux fait un nœud si
 _ solide à tous les autres. Il est sensible à l'excès. Sombre
 De ettendre, pensif et violent, d'humeur parfois exubérante, a4
@@ -749,7 +362,6 @@ Le _ tous de corps inquiet, dans la famille. 5
 E _ limites. Son caractère maladif, sa complexion chagrine k
 De ne lui permettent pas de se plaire en société. Cepen- :
 4 à _ dant, il aspire à l'amitié, en tous temps et de toutes ses à”
-forces. 1:30
 | #4 . Il n'a jamais été de loisir. Les peines moindres ne le f
 __  quittentque pour faire place aux plus grandes douleurs. 4
 D _ La maladie le hante sans relâche; elle est toujours su
@@ -765,15 +377,8 @@ _ signe qu'il se préfère à autrui; mais, comme il ne 4
 | connaît point le contentement de soi, il craint le juge
 +0 .. ment des autres : il redoute en eux la fausse note; il ( » pressent l'erreur à son endroit; il devance l'injustice
 _ qui l'afllige. Sa défiance est toujours dans l'ordre du » sentiment : enfin, il veut qu'on l'aime ! Le risque de À
-La 2h A g Lis
-Be. - | EA
 
-bi. /à SET. Je rh vw” - Li y A6 . re 1. Imit, 2 = Du |
 | :
-X
-Î
-, É Dostoïevski
-Ë
 À chaudement. Une pitié ardente était la flamme de la
 à maison. Le père, grand lecteur des Écritures; la mère,
 £ humble et maladive, toujours prête à l'oraison : tous
@@ -804,14 +409,7 @@ RSR SU Î liés comme le pouce et l'index, sont voués aux mêmes
 CR. A | études, et, jusqu'à vingt-quatre ou vingt-cinq ans, ne
 a A Î se quittent pas
 Date a ; Le jeune Dostoïevski est élevé dans l'intimité pro- |
-M Te 7 Pa H
-TNA gr 0 à L
-LU NV dt H Î
-‘ |
 
-s
-x :
-SUR SA VIE
 fonde de la famille, où le lien religieux fait un nœud si
 solide à tous les autres. Il est sensible à l'excès. Sombre .
 ettendre, pensif et violent, d'humeur parfois exubérante,
@@ -822,7 +420,6 @@ pouvant se donner que totalement. Affamé d'affection,
 il ne se lie pourtant pas. D'ailleurs, il semble avoir tou :
 Il ne nie pas qu'il n'ait eu un amour-propre sans
 ne lui permettent pas de se plaire en société. Cependant, il aspire à l'amitié, en tous temps et de toutes ses
-forces.
 Il n'a jamais été de loisir. Les peines moindres ne le
 quittent que pour faire place aux plus grandes douleurs
 Je m'étonne de lui trouver moins d'orgueil que d'amoursigne qu'il se préf À autrui; mais, comme il ne
@@ -830,7 +427,6 @@ ment des autres : il redoute en eux la sse note; il
 qui l'afllige. Sa défiance t jours da l'ordre du
 sentiment : enfin, il veut qu'or in Le risque de
 
-Dostoïevski
 n'être point aimé l'irrite ou l'indigne. C'est le seul
 homme qui ne soit pas plus petit, à mesure qu'on le voit
 plus susceptible.
@@ -857,16 +453,10 @@ dans l'habit de tout le monde. Mais Dostoïevski ne peut
 vêtir l'habit de tout le monde sans paraître porter une
 défroque, et s'être glissé dans le vêtement d'autrui.
 
-$
-
 Plus il tâche à vivre en société, et moins il est
-sociable.
 
 Plus il aspire à l'amour, moins il se croit digne d'être
 aimé. Il ne peut se faire à l'idée d'être tout pour les ;
-
-: 20
-« +
 
 “Atoe! ns 1S4E TES -
 4 re SUR SA VIE
@@ -899,14 +489,11 @@ vif; la volupté le détraque, la jouissance l'atterre. S'il
 La gêne et même la misère l'ont tourmenté sans
 # at
 
-F NNRR ER mn Ÿ EUR RD Er AE MAR EE Se
-Dostoïeeski  :
 répit. Le malheur l'accable, à tous les âges. Entre les
 deux extrémités de la douleur matérielle et de la
 douleur morale, il se débat dans une lutte perpétuelle.
 Au début comme à la fin, il gémit : « Que m'importe
 la gloire, quand je travaille pour mon pain ? »
-$
 On dit parfois que la misère est bonne aux grandes é
 ; âmes. Il paraît qu'elle les fortifie. C'est l'idée de ceux |
 qui n'ont jamais passé par cette damnation et cet enseve- -
@@ -930,11 +517,8 @@ lamentation d'un éternel mendiant. A vingt ans ou à %
 gémissement. Il pleure famine. Il appelle au secours. Il Él
 n'a plus de vêtements, il ne sait où trouver de quoi {
 payer son terme. « Il s'agit de payer toutes mes dettes j
-22 ; |
 
 D ri a DURE. Er Le sf Po HAE te a: UÉ
-D Re
-j Het 55 PE CN: RES 4
 avec mon prochain roman. Si l'affaire ne réussit pas, il |
 _ est possible que je me pende. » (1) Un quart de siècle 2
 |. ensuite, ayant femme et enfant, il crie : « Il m'a fallu J
@@ -963,14 +547,8 @@ fois. (3) A tout instant, il se prosterne, alterré parla
 ÿ, peine : « Je suis au désespoir. Je suis perdu. » On 2
 [ “ÿ tremble de sa propre impatience ; on a les nerfs tendus 2
 …._ (1) Lettre du 24 mars 1845, Correspondance de Dostoiecski, traduite Le. PA
-(2) Lettre du 16/28 octobre 1869. RS
 _ (3) Lettres de juillet 1856. te
-ES CU
-FE u 23 « ti
-+ Li k. Me
-DEA k : +
 
-… Dostoïevski
 d'attendre avec lui. « Au nom du ciel, répondez-moi
 Une réponse immédiate, pour l'amour de Dieu! » c'est
 la prière qu'il répète dix fois, cent fois, mille fois, à
@@ -1004,13 +582,6 @@ la gloire et une sorte d'aisance, sont la place au soleil,
 
 | (r) Lettre d'octobre 1869.
 
-(2) Lettre du 26 février/10 mars 1850. 3
-
-24 |
-
-ES PE M CR De Li MER A 7
-D SUR SA VIE. :
-1 CMORNEER
 _ qui sépare de la fosse celui qui fait halte. Pour venir
 …_ jusque là, un chemin affreux dans les orties et les
 tourments. Et, une fois sur la terrasse, qu'elle est vite
@@ -1019,7 +590,6 @@ _ la paume, tient l'homme aux épaules et le pousse dans
 1 le dos. Encore un pas, et la place dorée tombe à pic dans
 + une marge de nuit, étroite hélas comme un corps
 _ d'homme ramené au cocon, mais d'une profondeur
-: _ insondable.
 ‘4 Ni Tolstoi, ni Tourguenev, ni les autres fameux
 Russes n'ont connu le sort du pauvre et du malade. Je
 à ne parle pas de l'homme humilié : car Dostoïevski, s'il Ë
@@ -1045,7 +615,6 @@ h: ose se prononcer pour l'usage héroïque de la souffrance.
 … Jose faire choix de l'exercice puissant que le mal proTR 25 Suarès. — à
 
 FAR Té CRT A TES E, ag "te Lie de PTE SNS
-Dostoïeeski |
 pose à notre âme, celui qu'on nous fait et celui que nous
 sommes tentés de faire. Pour lui et pour toute sa race, .
 il embrasse le parti de l'amour souffrant, lequel, selon
@@ -1062,7 +631,6 @@ considère la vie apparente de Dostoïevski comme le
 fortune, les injures du malheur, autant de coutres et de
 socs qui servent, tranchants, au labour de la beauté |
 cachée, et que seul le déchirement du sein devait rendre |
-visible. |
 
 Voilà comme en Dostoïevski s'opère la révélation de |
 tout un monde. Tel il est, telle la Russie. De toute L
@@ -1076,13 +644,8 @@ a plus grandement agi pour sa race ? C'est dans Dostoïevski, enfin, que la Russ
 
 se manifeste une réserve pour l'avenir, une ressource r
 pour le genre humain.
-©
-
-ET M 9 : PR à
 
 | LE À o
-
-1 Il
 
 #f IMAGE ;
 — Nerveux et saccadé, il y avait de l'inquiétude en tous
@@ -1111,8 +674,6 @@ et large, à deux fortes bosses au-dessus du pliquile
 
 divis entre les sourcils. Jeune homme, il a dû ressem- ve
 
-L.
-Dostoïevski 24
 bler au prince Muichkine, qu'il a seulement lavé de
 toute chair, et décharné jusqu'à le rendre exsangue. La
 barbe est pauvre, irrégulière, longue d'ailleurs, roussâtre, à reflets gris.
@@ -1127,7 +688,6 @@ la joue droite, s'arrondit une verrue bien populaire.
 Et voici les yeux, qui sont toute la vie. Clairs, pâles,
 de vieille ardoise, assez reculés dans l'orbite meurtrie,
 ils sont étroitement bridés du haut, et cousus par la
-paupière supérieure au sourcil.
 
 Ils sont pleins de tristesse voilée, où perce une pointe
 de feu, le grain noir de la prunelle, qui tantôt s'éteint E
@@ -1150,8 +710,6 @@ Mais une immense tristesse y réside. Une tristesse
 _ religieuse, et quasi populaire : la tristesse dela misère, \
 la tristesse du charpentier qui essaie les bois de la vie,
 qui fait voler tous les copeaux de la conscience, et qui
-28 . :
-+
 
 entasse la sciure pour boire le sang répandu. Voilà
 l'homme de douleur, s'il en fut un. Et il est bon, même
@@ -1165,7 +723,6 @@ Pour saisissant qu'il soit, son aspect me séduit moins
 cache. Le visage de Dostoïevski est un masque, s'il rit.
 Mais, au repos des muscles, quand il médite, le visage
 - _. de Dostoïevski est le reflet, surgi dans l'ombre, d'un
-_ autre visage tourné au dedans. Caractère étrange,
 De: d'une intensité rare : l'homme visible est le spectre de
 m 4 l'homme intérieur.
 De là, que tout est douleur sur cette figure : le grand
@@ -1182,11 +739,7 @@ _ fantôme de la face. Chaque trait est une ligne qu'il faut :
 _ Ce que Stendhal est à l'intelligence pure, et à la l
 ; . mécanique de l'automate, Dostoïevski l'est à l'ordre et ;
 Pa \ la fatalité des sentiments. “
-2 : 29 Suarès. — 2. »
-D > 4 ,
-DA … Pa ,
 
-Dostoiesski x 40
 3 Stendhal atteint au fond des passions par l'analyse de 1
 leurs effets, et des actes. Dostoïevski touche au plus ;
 secret des esprits par l'analyse des sentiments et des 4
@@ -1221,9 +774,6 @@ C'est en vertu de ce sentiment insondable, du moins k
 croix et Jésus-Christ, n'a jamais pu voir la vie que sur
 30 4
 
-Li QE CE ESS si 1
-Ms ' e FC +
-7 3 Ê À ;
 a croix et en Jésus-Christ. Étant au bagne, une femme
 pieuse, qui visitait les prisons, lui fit don de l'Évangile.
 Le vrai Dostoïevski date de ce moment. Il avait, de
@@ -1234,51 +784,20 @@ tout temps, beaucoup lu la Bible; mais il n'avait pas
 1 l'intuition. Voilà pourquoi tout, chez lui, étant si vrai,
 … semble du rêve. Il faut y consentir, pour bien l'entendre; |
 2 e cet accord ne se fait pas du premier coup, ni même É
-De"
-E
-2 :
 
-A ”
-%
-
-AU EURE SAUT PEN Le Ne
-AT 4 SEUL HA PTE Sr Er NET Re
-CR à PALIER FT DT RÉ oo Ke à FOR SOU
-Per SANT. re Rate pbs Dee, pee
 - EE GE" HMEAT SE GNAEIe Nos ÉNET at FER
-€ SR 'RFRAMETL 7e En Le Fe à! SR de à” PAPAS ACTE À
--ÉOEA 2 RL TATA {tir +: 7. £ 7 PES re +. S
-Perte { a ,: À LATSRSS Te FARMER Be nee
-EE BR TRE i STE : $ :, ae ELA : at.
-SATENES FE N t RE NU: RAA ER
-ON 4 EE RARES A PH 4
 Re ne TI $ 5} + È "cite NEA: LU Me:
-Len Gr 1 pin & EN Es RIVES
-ACER 4 À à PEL. 1 | Sr USE Due.
-42 CSS ï re SR 7
-a RE CES
-de. gi: e La £ ÿ ; 1 de: ke SE ee Ke? A A
-KE A MAUR : ANA EL ESS) Le YSS
-Mc ES i == TMS c'e MO !
 er: Ÿ ke : De PRE qe PTS ENS FESSES
 or ACER Dee +. PS Ne Le RPPAS, PAS TN CE
-pe  A0E 200 À “ el « PAM 702 a ASC
-EAN AR ee , 7 FAT LEE CunE LÈT À]
-D | te NS RE
 DR Vor" ET Re PIRE Là DEAN RE à
-PS ARTS E We L KT 4 RON: se R TA
 Root ‘es *S ME FA Ve des LEE SE ME xd SR SCA PARLES
 
-“48 |
-ÿ É SUR SON ART |
 ° Dès le début, il sait où est sa force. Et même s'il ne »
 # le montre pas encore dans ses œuvres, il pressent quelle
 4 .… sorte de génie il y fera plus tard paraitre.
 — Je suis original, dit-il à peu près, en ce que mon
 __ moyen est l'analyse, non la synthèse. Je vais au dedans;
 “ et examinant les atomes, je m'enquiers du tout.
-8 F. $ “
-ns
 E. _ ]l a toujours répugné aux sciences, comme vaines.
 J É Son éducation, après tout, fut très littéraire. De bonne |
 - heure, il sut le français et l'allemand. Les petits
@@ -1289,15 +808,8 @@ h. Souchard. Dans la pauvre maison de son père, Dos-
 x _bagne, fut de ne pas lire. Étudiant ou banni, dans sa k
 4 prison, en Sibérie, de mansarde en mansarde, il a toujours des livres avec lui: la Bible, Shakspeare, Schiller,
 … Racine, Dante, Pouchkine. Quand il ne demande pas
-+
-+ 33
-à lé '
-1 er k
 
-Dostoieoski 4
-“4
 de l'argent à ses amis, il implore qu'on lui envoie des
-livres. à
 Il est très nourri d'œuvres françaises. Elles lui ont
 tenu lieu de l'antique. Le français est son grec et son e
 latin. Il avale tout, d'un égal appétit, Voltaire et Balzac, ;
@@ -1309,7 +821,6 @@ Tourguénev, de Gontcharov et de Tolstoï; il suit les 4
 / auteurs de tout ordre, et même les critiques. Seuls, à 3
 ses yeux, Pouchkine et Gogol ont du génie ; à Tolstoi, 4
 il le refuse. D'ailleurs, l'exemple de Gogol, mort fou, le !
-hante.
 On fait souvent de Dostoïevski une espèce de barbare inculte, qui ne doit rien qu'à lui-même. Rien m'est J
 si faux. Idée bonne aux maîtres d'école et aux sergents
 de lettres : ils y flattent leur propre barbarie, pour la ;
@@ -1326,7 +837,6 @@ un homme austère, uniquement occupé d'idées religieuses : il lit, lui aussi; 
 la guerre contre Napoléon. Il voit au delà de son quar-
 - tier, de la ville, et même de la Russie. 2 |
 
-ï 6 “E SUR SON ART
 ]1 faut chercher Dostoïevski où il est : au centre de la
 ; a pléiade qui a fait la gloire de l'esprit russe. Il a deux
 -. ans de moins que Tourguénev, et sept ans de plus que
@@ -1359,9 +869,6 @@ artiste de génie n'aura jamais la paix avec les gens de
 garder un ami. Il exige trop de l'amitié, sans doute.
 | 4 - Humeur mélancolique ! Aimer trop ceux qu'on aime,
 
-M = L: - ARE 4 | > de
-ÉPrCR
-Dostoieoski :
 _ On s'en fait une trop belle idée. Il voudrait, ce cœur
 passionné, qu'on vécût pour lui seul, je le crains: car il
 serait capable de vivre pour ceux qu'il préfère. |
@@ -1381,8 +888,6 @@ De là, qu'il est le moins égal des grands écrivains : il #
 donne un chef-d'œuvre après un roman confus ; et le F.
 chef-d'œuvre est suivi d'un livre médiocre. (1) {
 
-N 1
-
 IL semble bâiller d'ennui, lui-même, en certaines de
 
 ses œuvres. Elles sont d'une longueur, d'une recherche,
@@ -1392,13 +897,8 @@ détail intérieur à la manie de l'infiniment petit. L'inco- Æ
 
 (:) Après Crime et Châtiment, le Joueur, 1866 et 1867 ; l'Éternel .
 
-Mari après l'Idiot, 1868 et 1870. 4
-
 | 36 1
 
-L sé g _. E-
-
-fa > SUR SON ART *
 _  hérence de Dostoïevski est piteuse, quand il ne trouve
 pas son ordre. Elle ricane, elle grimace. Quel sourire
 contraint! Alors Dostoïevski va d'un pas terriblement
@@ -1429,17 +929,13 @@ intérieure, au grand. feu du foyer invisible. Ainsi, les
 - de dire que ce drame admirable se passe tout entier,
 “ … actes sur actes, dañs la conscience de Raskolnikov.
 — Les deux longs volumes ne contiennent que la suite des
-É 3 Suarès. — 3
-ANS
 
-Dostoiepski é:
 sentiments, des visions et des pensées créées par l'imagination du héros, et que sa conscience déroule. Ils
 n'enferment qu'un très petit nombre d'heures; mais
 chaque instant de ces heures est totalement épuisé de
 son essence pensive et de son action, de ses échos et |
 de ses contre-coups. Une telle œuvre, quand on la saisie, semble la merveille longtemps souhaitée par l'esprit: 3
 l'art est enfin le rêve de la vie, qui elle-même est un
-rêve. $
 
 Dostoïevski est riche en mots inoubliables, qui montent des abîmes. Ce sont des paroles sans faste et sans
 éloquence ; mais comme une crique d'eau profonde,
@@ -1461,15 +957,10 @@ aussi, tu t'es mise au-dessus de la règle : tu as détruit :
 une vie, la tienne : cela revient au même. » (4) — Et LE
 encore : « J'ai voulu oser : j'ai tué. Et c'est moi que j'ai Ÿ
 
-(x, 2, 3) L'Idiot, IV, 5; IL, 23 IV, 7. è
 (4) Crime et Châtiment, IV, 4; V, 4. > j
-
-u |
 
 |
 
-Théo La NM M PET VAN 2" BA.
-1:58 #3 SUR SON ART
 4 tué. » (1) — Ou ces traits dignes de l'oraison : « Le
 | Christ est avec les bêtes avant d'être avec nous. » (2) —
 _ « Si le juge était juste, peut-être le criminel ne serait
@@ -1486,7 +977,6 @@ funèbres hypocrites baisent aux lèvres des rebelles
 4 le de son fumier l'innocence subtile; où la luxure est un |
 _ raisin à pépins de remords, et où les vierges ont une
 _ odeur qui tente le péché.
-+908
 Es | Un monde à part. Ê
 _ Dans l'œuvre de Dostoïevski, il y a une société com- K
 | F . plète, à savoir une société religieuse. Car tous les porte- k
@@ -1497,13 +987,7 @@ moins encore : pour l'homme, la religion, quelle qu'elle ;
 artisan au maître d'hommes altier. Chez lui, non pas des
 | rangs et des titres, la hiérarchie est de la vertu vivante {
 _  €t des caractères. Il a ses voleurs et ses boues, ses
-…. (1) Crime et Chätiment, IV, 4; V, 4. .
-(2,5) Frères Karamasov, XI, 6. :
-<< F
 
-RDS. SEA DR RS EN ES RC
-à LS NS ET
-RS Dostoïepski E Fos 3
 assassins pareils à des conquérants, ses lâches,'ses vils 174
 | coquins et ses bouffons énormes, comme ïil a ses ;
 princes, ses vierges, ses saintes héroïques et ses saints. 2
@@ -1523,7 +1007,6 @@ degré de l'acuité et de l'ardeur, semble l'enfer de la À 4
 souffrance et le paradis des fous. Là, où toutestintense, à
 tout est excès. La règle ordinaire est abolie. L'ordre 4
 commun est l'ordre moyen. Et le moyen est l'espace du À
-médiocre. 4
 \ La mesure, telle quelle, est un élément de la vie ordi- ‘© « paire. La mesure, en art, paraît la vérité, comme la 4
 moyenne des statistiques. La mesure varie avec es "4
 grandeurs que l'on compare. Elle n'est pas la même À
@@ -1537,7 +1020,6 @@ Car, chiffres et mesure ne révèlent que le monde de la #
 FE quantité. La qualité est la règle suprême, ainsi que le À
 
 “a 5 SES 2AdRr ï pes TR de Loue
-PSS. SUR SON ART $ bc:
 … lieu de tous les sentiments et de tous les actes en relation avec la conscience.
 mn A Le monde de la profonde conscience fait figure du |
 — rêve; et même de la folie, quand il arrive, avec Dos
@@ -1565,9 +1047,7 @@ De . de l'analyse, pareils aux plus hautes montagnes dela
 deux ou trois autres cimes, entre lesquelles Dostoïevski.
 RE Nulle puissance plus proche de la vie. Les grands s
 ré eurs sont les grands vivants. Où ils semblent s'éloiLi. $ |
-Pa "Le
 
-Dostoïepski à
 gaer le plus de la vie, ils y touchent encore de plus près
 que les autres.
 Tout est intérieur. Ce n'est même pas la pensée qui
@@ -1598,10 +1078,6 @@ vaines qu'à la condition de n'en pas être vain. C'est F
 une autre musique et moins vulgaire que je pense, dont &
 l'harmonie matérielle n'est que l'enveloppe. Plonger k
 
-À
-
-ra LR ; L A +
-1 SUR SON ART |
 ru utes les idées dans l'amour, et en donner l'émotion,
 … non plus la notion telle quelle, voilà la musique que je |
 \ _ veux dire. En un tel art, nous voulons que tout soit
@@ -1618,49 +1094,14 @@ MEME la vie.
 > On ne croit à la vie qu'en ce qu'on aime, et dans le
 Fr. _ rêve de ce qu'on aime.
 
-. EL 4
-0 :
-æ
-= APE dd
-ft S- LA
 L'or
 
-, * + 1 ç a? &
-MONPRRE EE 2 "EN QUE. RE DE CU ET PES > Ÿ
-
-LE 1 ee ë M
-€ RL : Mr RSC ES
-TEE RUE F . PAST CPE SRE
-. SOC £ » ' à
-A: ER sh
-T2 le Les ») wi ' x.
-FAURE: % à LAVER
 Due: ” EE ne
-FAN TOP £ à SONT
-RARE RUE
-VASE ss ME
-FE Mn CEE * ITR
 
 f Leg, ni
-Fit 3 CLEAN MU |
 >: \ As LL SRE |
-}! 2 RTS PE e t SES
-D : É 5 4e -° SR
-EE ET i r > + 4 RS |
-ELA ATREE ; ? 12
-te D à Fr ‘Ye Re
-EE EM 2 ÿ
 
-PAT. LINE L ” LUN
-RER E + INT “ nl TS
-NES | EE É … “4 Eve A © à,
-
-RER As 1: à CR à ? x 434$ NES è
-2: Dre Ps CR CU ES TT LR NT: AR ES Li
-
-FAT x. ‘ |
 10 7. ,
-*@ PASSIONS ET MOMENTS $
 …. Son art ne vient pas de son mal. Mais il y a de son \
 _ mal dans son art. Et puisque ce mal sacré n'a point ;
 … tué l'art dans le malade, l'artiste s'en aide pour étendre 1
@@ -1685,9 +1126,7 @@ trente ans, alors, et trente années durant, qu'il lui
 ÊF estait à vivre, il s'est courbé sous la main dure qui 71
 4 JAterre. Étaitce la véritable épilepsie, ou quelqu'une re
 à des formes nerveuses qui limitent? En tout cas,les
-« ÊL
 
-; Dostoïevski
 accès n'étaient point rares : il en a eu jusques à trois
 et quatre dans le mois; parfois même, tous les jours.
 . Dostoïevski a vécu dans le mal sacré. Et ce mal lui
@@ -1710,7 +1149,6 @@ de mouvement. Une haleine mystérieuse se met à ourdir ;
 une toile, qui sépare l'âme de tout ce qui l'entoure, sans |
 _ pourtant l'en priver : un tissu complexe de passion et 3
 de possession, un abîime pour le sens propre, une
-obscure révélation d'univers. à
 Si l'on veut à tout prix que ce soit un mal, je l'appelle :21
 la maladie du trépied. C'est l'état des voyants, la con- Fs
 dition même de la présence mystique. Car, ne croyez f
@@ -1719,12 +1157,8 @@ les objets disparaissent parce qu'ils ne comptent plus $
 un à un. Mais, au contraire, tout y prend sa juste place, :
 et les formes de l'univers s'assemblent autour du seul }
 point fixe. Voilà saint Paul, quand la parole attendue $
-kb
-4 :
 > q
-À
 
-\ A LS 4 L. Lu - UT }
 | PASSIONS ET MOMENTS
 fond sur lui avec le soleil, au chemin de Damas; et il
 _ entend, il voit, il sent, il est engendré par ce qu'il
@@ -1757,9 +1191,7 @@ __  quia visité la profondeur ne peut plus vivre que dans
 \ 4 les grands fonds : elle y plonge tous les objets de la
 _ vie, toutes les pensées et tous les actes. La profondeur
 est sans repentance comme elle est sans pardon, Qui a .
-DE. Te
 
-Érc Dostoïevski F1
 senti une présence éternelle, ne veut rien connaître De
 qu'en fonction de l'éternité. Et, tel il y aspire, tel il 4
 ë s'obstine à rêver, si on lui dit qu'il rêve. E
@@ -1789,10 +1221,8 @@ _ inflexions de la courbe intérieure. Les grandes œuvres E
 A _ à mesure que nous les incarnons à notre rêve. Elles 4
 2 naissent de toutes les touches et de toutes les nuances E
 qu'elles peignent en nous. On ne comprend Dostoïevski,
-FANS 48 F1
 rt on + ST
 
-- : EE PASSIONS ET MOMENTS È ,
 chacun qu'à raison de sa propre vie intérieure. Jamais
 , poète ne donna moins à l'entendement seul et à la
 — simple notion. Ses chefs-d'œuvre sont des moments,
@@ -1802,7 +1232,6 @@ caractères : moments choisis, d'ailleurs, où toute une
 _ brin de récit.
 -— La descente de Dostoïevski dans les émotions incon- |
 nues tient du calcul et de la découverte. Elle est toute à
-en pressentiments, en essais, en allusions, en pro-
  dromes, les uns prochains, les autres qui se perdent
 dans un éloignement immense, mais dont l'approche
 est certaine, dès qu'ils ont paru poindre à l'horizon de
@@ -1822,10 +1251,7 @@ De tous les poètes, Dostoïevski est celui que je peuxle
 L: plus et toujours mieux relire.
 —. ILse pent que la maladie ait préparé Dostoïevski à
 | …. ces états les plus rares de l'intuition, où l'élément pen_sant et l'élément sensible naissent l'un de l'autre, où
-“0 49
-pi *
 
-ä Dostoïeoski
 l'on touche dans le sentiment la pensée à l'état naissant, où le sentiment se lève, comme l'aube douloureuse, dans le chaos nocturne des sensations.
 
 D'abord, l'absence de soi.
@@ -1841,11 +1267,9 @@ ne me lasse.
 De la sorte, le cœur est rétabli dans sa prérogative.
 
 Ii a le privilège du prince, que sa déchéance même ne
-saurait prescrire. ;
 
 La véritable connaissance fonde le monde de la charité, et elle seule. On ne saurait rien connaître à moins k
 d'aimer. Et ce n'est pas connaître que de savoir et 5
-n'aimer point.
 
 La vie entière est cette femme voilée, que l'homme
 < cherche, dont il fait son épouse, et cognovit eam,
@@ -1861,12 +1285,6 @@ ardentes. Et, parce qu'elle résiste, elle est abandonnée.
 
 O terreur! Elle est laissée là, comme une guenille
 
-50 s
-
-ë
-
-MT | he 20 LT Fa 160" ae
-PAR 17 LÉ R
 : dE ni _ PASSIONS ET MOMENTS
 vile, par l'âme au seuil de la connaissance. Elle est là,
 _ comme une peau de rat, crevé de la peste, dans une
@@ -1881,7 +1299,6 @@ elle tâte les murs de la prison; elle compte les pierres,
 - et les larves dans les fentes. Elle reconnaît son chemin,
 - en ne négligeant pas un signe, en renouvelant les plus
 ": humbles démarches par l'ingénuité des pas qu'elle
-LS
 tente : elle découvre, comme si elle venait de naître, ;
 … ce qu'elle a connu et pratiqué naguère, mais dont elle a |
 | perdu le souvenir.
@@ -1900,15 +1317,12 @@ d'une mort temporaire ce vol au delà du temps. Il faut
 _ d'avoir eu, un moment, la toute connaissance. |
 + Au fond, il n'est pas vrai qu'on puisse tenir l'équilibre
 ' nt re la chair et l'esprit. Toujours l'un des deux
-" À ' . . ,
 
-- Dostoïevski
 l'emporte. Dans tous les grands poètes, la matière est
 vaincue. Plus ils aiment la chair, plus ils la craignent.
 Ou bien, ils s'en défient. En vérité, qu'est-ce donc
 qu'un art qui n'est pas idéaliste? Mais qu'est-ce même |
 qu'une pensée ? |
-$
 Comme il est en amour, voilà le grand secret de
 l'homme, et que l'artiste cache le plus. Ce secret connu
 fait connaître le reste du caractère. Je' ne pense pas |
@@ -1920,7 +1334,6 @@ espace de mystère. Et souvent, le secret de l'homme .
 n'est pas dans ce qu'illivre de soi à l'objet de son amour, ;
 mais beaucoup plus en tout ce qu'il réserve, en ce qu'il ê
 _ _. dissimule, qu'il ne laisse jamais voir et ne confie à
-personne. F1
 De livre en livre, Dostoïevski fait un ménage bizarre
 avec les femmes. Quelles noces tristes et ardentes que
 les siennes! Je cherche en lui la clé de ses chefs. « d'œuvre. Sa vie n'a pas osé tout ce que ses œuvres M
@@ -1934,7 +1347,6 @@ romans, noces de la compassion et du délire, un
 remords. Dostoïevski et ses héros se marient comme |
 $ on choisit la plus longue torture en tous les genres de …
 
-_ PASSIONS ET MOMENTS
 sup plices. Il s'agit de prendre la croix, et souvent sans
 à Le désir n'y est qu'un attrait de plus au sacrifice. La
 “chair, même faible, ne cherche pas son plaisir, mais
@@ -1965,8 +1377,6 @@ ne pouvait sans doute pas se passer de la présence
 féminine; et sans pouvoir faire, en rien, le bonheur ) |
 . d'une femme, il lui fallait rêver qu'une femme fit le sien. |
 
-Dostoïepski
-
 Son premier mariage est affreux : il pue la laideur et
 le taudis. C'est un amour grabataire. Là, Dostoïevski
 a voulu son propre sacrifice. Il a cherché un châtiment;
@@ -1984,7 +1394,6 @@ ce sourire entre chair et cœur, qui est le charme des 8
 jeunes filles; il songe aussi, avec elles, aux douceurs $
 des amants, si des enfants pouvaient l'être, s'ils è
 pouvaient donner des caresses délicieuses, ou si les Ée
-amants en pouvaient recevoir d'innocentes. d
 
 Je considère avec terreur la vie d'une femme avec un Ê
 tel homme, et la vie d'un tel homme avec toute femme, .
@@ -2002,8 +1411,6 @@ elle compte peu. La douleur seule est éloquente. |
 Il faut qu'une femme souffre avec lui. Il le faut,
 dis-je; parce qu'ilsait que telleest sa vocation, si elle est
 
-41 60, ÉSUINIEESE PESTE pe ” jee
-DR PASSIONS ET MOMENTS
 own aiment femme. Il faut qu'elle souffre; et il faut, lui,
 _ qu'il souffre de la faire souffrir. Ainsi se reconnaissent
 . les sexes, et ils s'aiment à la fin. L'amour est inné à
@@ -2030,14 +1437,8 @@ _ hideux plaisirs qu'elles y goûtèrent. (1)
 _ Parce qu'il les a vu souffrir, et qu'il a fait souflrir les
 Le mmes, tout en souhaitant avec passion de les élever et
 1e les guérir, Dostoïevski les connaît mieux qu'un autre. *.
-= (1 Di quella so:za scapigliata fante,
 ee Che Là si graflia con l'unghie merdose, ;
-Pr Ed or s'accoscia, ora à in piede stante.
-"#4 V Inf., XVI, 44.
-1e ; US .
-EC 3 Le;
 
-£ Dostoïevski À È
 Il les voit tantôt cruelles comme le reproche de la
 chair, tantôt plus douces que le lait nourricier dans la |
 bouche, mais toujours toutes folles : folles d'égoïisme, |
@@ -2070,7 +1471,6 @@ reproche sans pitié. Elles sont bien, dans leurs parfums
 f acides, la fleur qui exige le pollen, et qui réclame
 É _ d'être fécondée, tandis qu'elle a l'illusion de s'y résigner
 
-a | PASSIONS ET MOMENTS
 seulement. Elles sont aussi le fruit qui espère le soleil
 : pour mûrir; et qui veut maudire la maturité, dont sa
 _ pulpe est avide.
@@ -2099,11 +1499,8 @@ pour la même femme, parce qu'il les trouve en lui; et
 C'est de ce fond obscur que se lèvent les héros étranges
 _ de ses livres : à tous ensemble, dans le même amour,
 … ils n'en font qu'un, qui est lui, Dostoïevski. De là, cette
-+ 57 k
-+ £
 NOR L pr
 
-Dostoïevski ;
 patiente analyse, qui ne considère une face du carac- |
 tère qu'en fonction des autres faces. De là, enfin, :
 l'accord dans la vie, et surtout dans l'extrême amour,
@@ -2134,8 +1531,6 @@ elle est irréparable. IL me souvient de Wagner, qui
 penche, avec un zèle du même ordre, à multiplier « l'amour des amants par la parenté, et qui ne s'arrête
 pas aux degrés défendus. L'amant est le frère de son
 amante. Siegfried est presque le fils de sa bien-aimée,et
-
-58 h
 
 # & U 5 Ü PASSIONS ET MOMENTS
 “4 pe asant à elle, toujours il pense à sa mère. Kundry vole
@@ -2171,7 +1566,6 @@ y passion fait vivre et celle qui la tue. N'est-ce point, |
 Dopsoir ténébreux de l'/diot, les deux hommes, le mari
 # LL: “ wY
 
-e = Dostoïevski à 4
 et l'amant, la victime et le bourreau, que lon voit . }
 veiller la même femme, qui fut double et qui est morte,
 3 victime elle aussi et bourelle? A la fin, la joie qu'on :
@@ -2203,7 +1597,6 @@ plus, souffre le plus. A l'ordinaire, la femme reçoit la \
 4 part douloureuse; et souvent, elle choisit d'en jouer le …
 rôie. Mais le meilleur homme ne le lui laisse pas.
 
-“_ PASSIONS ET MOMENTS À
 _ En amour, le cœur est trop avili, s'il ne souffre. La
 _ souffrance seule nous rétablit dans notre dignité ne
 _ d'homme. Quel est l'amant profond qu'Amour n'abaisse à
@@ -2237,8 +1630,6 @@ Ja vaincre. Et nous, nous devons la sauver. .
 #3 La douleur n'est point le lieu de notre désir, mais À
 ne: 6t Suarès. — 4 Si
 
-RARE Ne D NS RER TE LAN T 0T OS EE SPORE PS
-k Dostoïevski À
 celui de notre certitude. Les Anciens sont trop charnels.
 Je ne prétends pas que nous devions faire élection de
 la douleur. Tant s'en faut, qu'on doit tout faire pour
@@ -2262,7 +1653,6 @@ On ne saurait se vanter, ni de ramener l'homme à un à
 âge qu'il n'a plus, ni d'abolir en lui aucune des puis- +
 sances que le passé y a mises, et qui lui étaient néces- |
 saires, puisqu'il se les est données. La douleur est une 1
-auguste puissance. 4
 
 ; . Au lieu de rien détruire, il faut tout accomplir en j
 nous, et y tout achever. à
@@ -2280,9 +1670,6 @@ ne qui brille et qui se consume, chez les Anciens. Notre ]
 des Anciens n'est que l'enveloppe du nôtre: aux sens
 4 est ajouté le cœur.
 
-DRE Fe
-É Y
-à LA PROFONDEUR RUSSE
 -_ Passions du fond caché, lames de fond : le plus
 “. souvent, elles dorment; mais il arrive, soulevées, |
 … qu'elles emportent les rives de la paix commune. L
@@ -2294,7 +1681,6 @@ qu'elle y attache. Il les porte à tous les excès, que vous j
 .. ils sont trop asservis à leurs idoles : les Juifs, dans leur
 esclavage des biens terrestres, et selon leur inclination
 — à en jouir commodément; les Yankees, dans leur brutal
-- mensonge d'automates, à deux ressorts d'agitation :
 … vaine et de vaine morale. Donner sa vie, et même
 …— prendre la vie des autres, sans en peser exactement la l
 … valeur aux poids de la raison, de l'agrément et du
@@ -2305,10 +1691,6 @@ l'honneur mystique au même degré qu'un saint apôtre.
 — Je bourreau d'une femme et le jouet d'une autre. Mais,
 E- pour toutes les deux, il n'aura que des caresses dans
 . l'âme, et toutes de son sang. 1
-ss 63
-EM “1
-
-Dostoïevski
 
 La passion de l'innocence le poussera, peut-être, à
 - vivre en amant avec une petite fille. Non pour la
@@ -2334,7 +1716,6 @@ toute l'apparence. Mais remords est un gros mot, qui
 cache ce qu'il devrait définir. Dostoïevski a le désespoir
 
 : de ne jamais atteindre ce plein de la passion qu'il
-poursuit. Suave désespoir, déception terrible, espace
 du désaveu, déserts de l'entier délaissement de soimême. L'unique passion est, en somme, la passion de
 la plénitude.
 
@@ -2348,11 +1729,8 @@ noyau du fruit. Tous les crimes pourront hanter son ï
 âme : elle ne saurait rien perdre de sa pure volonté, :
 qui est de ne pas nuire, ni de sa primitive convoitise,
 
-64 ;
-à
 |
 
-2444 ? x 7 LA PROFONDEUR RUSSE Û
 ‘£ qui est l'innocence, après tout. Elle n'aspire qu'à saisir {
 _ l'objet vivant, à l'adorer en lui-même, à le posséder
 
@@ -2398,13 +1776,7 @@ _ Juste et salutaire, dans le coupable qui l'accepte : car |
 _ Son cœur le réclame. Ou avoir la force de se punir soi-
 
 _ même, ou être puni. La vie, perdue dans la faute, se de
-É : 65 Suarès, — 4. DR »
 
-È L
-, s
-: FSC is
-
-Dostoïeeski 1
 retrouve dans l'expiation. Le crime égare le cœur, et
 m'a peut-être pas d'autre horreur que cet égarement. ;
 Dostoïevski a souvent paru méchant homme, et il a ]
@@ -2435,11 +1807,7 @@ Il pouvait être exquis ou cynique, par un désir égal
 _ d'être soi-même, de plaire à qui lui plaisait, et de
 À déplaire à qui ne lui aurait plu jamais. Et comme il
 traitait les gens tête à tête, le public est traité par ses |
-livres. *
-. 66 E
 
-SATA SAR ; É
-LR LA PROFONDEUR RUSSE $
 _  Piqué d'amour-propre, dans l'extrême ivresse de ses
 -_ sentiments, plutôt que dans l'orgueil de ses pensées, il
 _ se portait à cet excès qui offense le plus les autres : qui
@@ -2469,11 +1837,6 @@ du sentiment enferme tout, et le style même.
 Je dirai que la dureté de Dostoïevski à l'égard des
 — étrangers et des Juifs est une raison de style : Ils n'ont Fe
 pas les mêmes larmes. IL déteste tous les peuples de
-k. 67
-“.
-+ d
-
-Dostoïevski
 
 l'Ouest; il se moque de l'Occident. Forcé de vivre en
 Suisse, en France ou en Allemagne, il étouffe. Tout lui
@@ -2484,7 +1847,6 @@ de leur rendre justice. Il les veut employer au bien de
 la Russie, à la condition qu'ils s'y prêtent. Or, ils s'y
 refusent, et même ils haïssent les larmes russes, bien
 loin de méler leurs pleurs aux pleurs de ce grand
-visage.
 
 Voilà comment tout finit, chez Dostoïevski, par la |
 condamnation des Juifs. Au lieu d'être Juifs en Russie, |
@@ -2494,7 +1856,6 @@ querelle qu'entre l'Ancien et le Nouveau Testament. Le J
 
 _ second abroge l'autre, puisqu'il l'accomplit. Le mort
 enté sur le vivant corrompt le vivant.
-$
 
 Enfin, Dostoïevski est joueur. Et d'autant plus, qu'il
 perd toujours.
@@ -2512,10 +1873,6 @@ est donc satisfaite. 4
 Ceux qui ne croient pas au sort n'ont jamais regardé $
 la vie. Le hasard est le nom public de la fatalité. Le jeu !
 
-68 à
-tal
-
-: STE LA PROFONDEUR RUSSE \
 x _est la consultation populaire du destin. Œdipe joue sur
 _ la route de Thèbes. Oreste naît joué. Les Anciens,
 
@@ -2526,7 +1883,6 @@ _ pour garder un atout contre la série noire : tel est le À
 Pa sage Polycrate de Samos, lequel fait en vain une part « - au malheur : comme il est juste, sa réserve ne le |
 . protège point. Le destin n'entend pas qu'on le flatte. Il |
 -  punit l'un pour son humilité, et l'autre pour son inso- #2
-_ lence.
 $ Dostoïevski, inquiet en tout, devait avoir l'âme au
 - jeu. Il jouait ses six derniers roubles, comme on sème
 . dans les champs d'Eldorado, pour en récolter dix mille,
@@ -2540,7 +1896,6 @@ il suffit que la male fortune regarde ailleurs, un clin
 _ d'œil, et l'on gagne. Bien pensé, et d'autant mieux que
 
 _ la sueur d'effroi fait encore la part de la mauvaise
-_ chance. :
 4 Celui qui perd toujours n'a pas de raison pour ne
 __ pas toujours tenter l'aventure. L'orgueil le veut ainsi, |
 …. et le sens du juste. Dans le joueur d'un certain ordre,
@@ -2559,16 +1914,10 @@ mais il joue encore pour forcer le bonheur qui le fuit.
 
 _ refuse de répondre, plus on l'interroge. 1
 
-à É ls
-Ft Sa
-
-‘ Dostoiepski |
 Si je gagnais toujours, je voudrais jouer pour perdre. ù
 Comme il est plus ordinaire de toujours perdre, on joue 1
 pour gagner, ce soir ou demain, ou la semaine pro- s
 chaïne, ou quelque jour, enfin. Je gage, en jouant, que
-Dostoïevski priait.
-$ à b ?
 
 . . . . 7 4
 Qu'il manque de dignité avec noblesse! Qu'il s'élève *
@@ -2601,8 +1950,6 @@ Mais du foin dans la tête, et du galet sous le sein gauche. Ils x
 +4 de leur mère, qu'il est défendu de nommer.
 50 3
 
-« à LÉ LAN CR NE SE À + : |
-F Re LA PROFONDEUR RUSSE =:
 Rex _ Dostoïevski ne se cache pas pour pleurer. Il ne rougit ge
 _ pas de mendier. Il ne donne pas tant de valeur à Ne.
 _ l'argent. Il n'a pas tant de respect pour l'or, ni pour { É
@@ -2636,10 +1983,7 @@ h C'est qu'il n'arrive jamais à se satisfaire. Celui qu'on à
 pren d pour un Barbare, aime la perfection comme un 720%
 Ne: iste de France ou d'Athènes. Il se laisse abaisser 4
 
-eo. 2
-
 .
-Dostoïevski
 aux yeux de tout le monde; mais il ne saurait trahir
 l'œuvre qu'il porte. :
 
@@ -2653,9 +1997,6 @@ combinent, s'enlacent, se nouent et se dénouent, la
 même volonté du cœur, ici et là, enveloppent un 4
 sentiment unique. Elles vivent d'émotion, et, en deux
 ordres différents, elles tendent à produire une émotion
-semblable.
-
-$
 
 Les arbres ne sont pas de la même essence. Les
 feuillages diffèrent ; et les branches se dirigent vers
@@ -2675,10 +2016,6 @@ des enfants. Et ils aiment la vie, comme des saints.
 On peut donc les aimer, jusque dans le mépris qu'ils « inspirent. À la vérité, Dostoïevski est un des croyants h
 magnifiques à la beauté de ce monde, qui seraient ;
 
-à
-
-:; LUN 7 jé
-PES LA PROFONDEUR RUSSE
 Pr capables de guérir les esprits fins de tout mépris, si
 .{ lon pouvait guérir la petitesse d'être petite, et la
 | morale d'être étroite. Criminels ou ridicules, Dostoïevski
@@ -2716,13 +2053,11 @@ d ladov en chaque père de famille, pour peu qu'il eût à
 
 | 73 Suarès. — 5
 
-Dostoieeski |
 vivre dans les conditions où ceux-là ont vécu. Ils ne
 sont pas dans la mort, ni impitoyablement condamnés,
 comme les deux secrétaires perpétuels de Flaubert,
 automates de l'universelle dérision. i
 
-: |
 Il est contre l'Occident, dans la mesure où l'on s'arme |
 à de l'Oècident contre la Russie. |
 Jamais Dostoïevski n'a pu donner de gages à quelque |
@@ -2738,7 +2073,6 @@ tout parti, je le sens à la force de sa fibre première : (
 l'art, la politique, la religion, en Dostoïevski, tout sort
 de la même cellule : l''humble orgueil d'être le confident
 de la vie universelle, et de se confondre avec elle, indé-
-finiment.
 Il faut qu'un homme en vaille bien la peine, pour
 | qu'il se donne à l'univers. Ou quel don ferait-il? Qu'il À
 ë tombe du plus haut, ou qu'il s'agenouille d'abord, s'il
@@ -2746,10 +2080,7 @@ Il faut qu'un homme en vaille bien la peine, pour
 doit, c'est pour rendre à cette mère tous ses baisers et
 toutes ses larmes, un grand amour et une grande joie.
 Tout donner enfin n'est pas assez, si l'on ne donne
-beaucoup.
-PERS
 
-Dostoïepski : :
 ne craint pas que l'Europe lui dévore la Russie; mais
 il s'oppose à ce qu'on jette la Russie comme un os à
 l'Europe. En tout ordre, à tous les degrés, Dostoïevski
@@ -2772,16 +2103,12 @@ de la mélodie que naïssent les formes, prodige obscur. 2
 Telle est la raison pourquoi le Russe ne vaut rien, !
 s'il n'aime. Il ne critique pas : il nie. 1l ne doute pas : à
 il détruit. Il n'est pas athée : il est prêtre du néant. ÿ
-$ ;
-Avant quarante-deux ans, Dostoïevski n'a rien pro- J
 duit qui vaille. Toutes ses grandes œuvres sont de l'âge 1
 plein, entre quarante et soixante ans, où il est mort. :
 Les autres Russes sont plus précoces : Pouchkine, Ler- |
 montov et Gogol ont peu vécu, mais d'une vie ardente.
 Téodor Mikaïlovitch n'était pas de ces jeunes gens.
-76 F
 
-. al DENT, M PROFONDEUR RUSSE e
 + S La Russie ne s'est reconnue en Dostoïevski, que peu L
 _ de temps avant de le perdre. Il a été le héros de sa à
 14 _ nation, l'homme qui pense, le cœur qui bat pour toute x
@@ -2801,7 +2128,6 @@ $ 4 russe dans Dostoïevski : elle n'est pas seulement À
 _ russe n'a aucune vertu. Les peuples jeunes ont toujours ;
 _ assez de joie, puisqu'ils veulent vivre. La joie que vous |
 _ cherchez vous déprime. :
-b
 _ Pour en venir à ce règne douloureux, il fallait que =.
 … la vie de Dostoïevski fût tout ce qu'elle a été en effet. ,
 —_ Il fallait qu'il tombât dans l'erreur politique, qu'on le +
@@ -2815,7 +2141,6 @@ _ Pour en venir à ce règne douloureux, il fallait que =.
 É < page, et la face visible ne Ini est qu'un moyen de mieux
 _ connaître l'autre. ect
 
-: à Dostoïeeski SCÈT PA
 : L'erreur d'une grande âme n'est jamais que dans ;
 l'action : la volonté ni le cœur n'errent point, étant É
 toujours fidèles à la grandeur qui les anime. On ne se 4
@@ -2845,11 +2170,7 @@ premières œuvres que par l'embarras de l'action et la 4
 contorsion des caractères. f
 : Au début comme à la fin, Dostoïevski ne peint que
 (1) Les Pauvres Gens, 1846 ; Le Double, Les Nuits blanches, etc., ;
-1847 à 1849.
-78 Œ
 
-MT, LA PROFONDEUR RUSSE
-La
 _  des”jeunes gens, et quelquefois des vieillards. Là
 -._ encore, c'est la Russie même, qui n'est pas mûre,
 toujours trop verte ou trop avancée; elle a ses adolescents pourris et de vieilles gens à l'âme plus fraiche
@@ -2879,12 +2200,8 @@ et de la race slave. Toutes les erreurs de fait n'empé-
 nous incarne. Elle n'est pas seulement en lui; mais
 il nous la révèle, il achève tout ce qu'on en voit
 — dans Pouchkine et dans Gogol, dans Tourguénev et
-_ Tolstoi.
 4 Il faut qu'il y ait un peuple russe dans les langes. Il :
-4 79 :
-n F
 
-Dostoïevski ? %
 faut que ces esclaves politiques soient admirables de à
 liberté morale. Il faut que ces brutes, dans l'enfer de
 l'ivrognerie et des massacres, soient tout de même
@@ -2919,11 +2236,8 @@ resté, comme tant d'autres, à mi-chemin de l'ascension ?
 sainte et terrible. Ce n'est pas à un moindre prix que è
 l'on prend à soi toute souffrance et tout supplice. On 4
 ne gravit sûrement la montagne que sur des échelons :
-sanglants. 1
 
 80 4
-j
-; 4
 
 send 7. | LA PROFONDEUR RUSSE Me
 _ 3 _ Surtout, il lui fallait le bagne et l'enfer des crimes, (1) Fe,
@@ -2958,11 +2272,7 @@ L' _ Dostoïevski est une vie dans la profondeur et dans la
 (1) Et moi aussi, j'ai mon enfer, le bagne des auteurs, des t#
 .… critiques et des faux arlistes, où je purge, dans un coin d'ombre, È
 # la colère de ma solitude et le vieil amour de la gloire. vL
-ne 81 Suarès. — 5. S
-Fe ii
 
-D à
-Dostoiepski 4
 vérité secrète, qui est l'unique vérité, sans doute. Là, il
 s'est établi inébranlablement au-dessus de tous les
 _ préjugés; et ceux de la raison n'ont pas tenu devant 7
@@ -2977,7 +2287,6 @@ soi-même? L'homme n'est point une figure achevée, 4
 mais un élan à la forme parfaite, un essai continuel -#
 à l'homme. Je trouve cette vertu héroïque dans |
 Dostoïevski, et cette grandeur intérieure. *
-$ :
 L'intuition est une vue du cœur dans les ténèbres. La L:
 -_ nuit extérieure s'illumine de l'éclair jaillijdu dedans. k.
 C'est là que rien ne se formule, et tout s'éclaire : là où #
@@ -2992,9 +2301,7 @@ En Dostoïevski, je finis par tout référer à l'intuition. ;
 Dostoïevski a conscience de son intuition, et tel est son É
 miracle. Il faut le lire en musicien. ‘4
 La chasteté n'est que le signe le plus visible des 4
-82 "4
 
-De a t LA PROFONDEUR RUSSE
 4 âmes pures, La pureté suprême est l'innocence de la
 _ bonté : l'horreur de faire le mal. Dostoïevski n'hésite
 pas à produire des prostituées plus chastes et des
@@ -3026,10 +2333,6 @@ proprement pitié du mal : à moins que le châtiment
 — blesse, elle ne tient pas au larmoiement : elle est la
 — vertu humaine par éminence, la vertu des vertus, la
 à charité sans quoi tout reste mort et vide.
-à. 83
-
-POP SITE EE OMC ES À oo.
-Dostoïiepski F %
 
 L'amour véritable est là, où celui qui aime s'oublie #
 soi-même et se confond entièrement dans l'objet aimé. %
@@ -3068,7 +2371,6 @@ là, sa force et la vocation de sa puissance; là serait È
 son repos, s'il en existait un. Dostoïevski n'a pas man- Fo
 
 | RHONE RS EE ve AU je ?
-LA PROFONDEUR RUSSE 4
 # e qué la couronne promise à l'amour errant. Il est entré
 au port de la recherche idéale. + :
 LE La réalité! font-ils; la réalité! Hé, oui! Nous savons, F
@@ -3100,9 +2402,7 @@ __ A ses yeux, tout le mal qu'elles peuvent faire, est :
 __ compensé, de bien loin, par l'action qu'elles ont sur
 _ lAme humaine : elles en provoquent l'excellence, en y
 L  prodiguant la douleur. S'il finit par les défendre, ces ù
-D" 85 è
 
-Dostoïerski : 4
 : puissances mortelles, jy vois un triomphe de l'affirmation. Dostoïevski connaît son peuple par soi-même. “7
 Toute révolte de la race déchaîne son instinct d'aveugle Ë
 ‘ destruction et d'anéantissement. Le joug, qui lui fléchit E.
@@ -3115,7 +2415,6 @@ voies de la douleur. En un mot, elle ne veut choisir ÿ
 qu'entre la foi mystique et le néant, entre l'amour de Î
 Dieu et la haine de la vie. 1
 
-F4
 Dostoïevski, maître en toutes passions, et tenant
 toutes les clés de l'abîme, ferme les portes du néant. n.
 Tenté de toutes négations, il ne détruit rien et il #
@@ -3133,10 +2432,8 @@ _. grandeur, qu'il monte d'un degré encore. Il porte à la +
 rédemption l'accablement de nos fatalités. Si je l'ai 4
 peint comme il est, je ne sais; mais jamais, il me 2
 semble, on ne mesura mieux la distance qui séparela
-86 %
 2 10
 
-__ LA PROFONDEUR RUSSE
 _ mortelle théorie de l'œuvre vivante, et le penseur sans 4
 _ amour du véritable artiste.
 __ Encore un pas.
@@ -3167,16 +2464,12 @@ tous, dans le temps : il a prévenu toutes les insolences
 jeu de la logique, prend forme dans une œuvre d'art.
 - Il faut sortir de la cage à l'écureuil. Une pensée vivante
 Î sur la vie n'a pas d'autre expression qu'un chef1 É
-Eu
-‘4
 
-Dostoïepski
 . d'œuvre. Les livres de Nietzsche sont des essais au
 R chef-d'œuvre; mais cet Apollon est toujours dans la ;
 cage; il fait le dieu, en vrai Phébus d'Université, à É
 bésicles d'or ; tout de même, son char est une chaire, à
 et son Pégase une rosse allemande harnachée de
-lexiques in-folio.
 
 Nietzsche peut servir de guide à l'Enfant Prodigue
 dans ses routes de jeune homme. Nietzsche est une
@@ -3207,8 +2500,6 @@ tandis que Nietzsche est insupportablement l'homme
 du cabinet et des livres. Par lui-même, il ne sait rien 4
 de la vie, rien de l'actiou, rien des passions; et ii donne £
 
-88 H
-
 “Rar LA PROFONDEUR RUSSE |
 Ë des lois aux passions et à la vie. Je ne m'étonne pas
 _ qu'il soit le prophète des professeurs et le dieu des
@@ -3237,14 +2528,8 @@ _ marché de Jupiter. Et rien de surhumain n'a de sens
 _ qu'à la mesure de l'homme. Sois pleinement homme, si F
 _ tu veux passer l'homme. Telle est la grande, l'unique
 | vérité. ;
-$
 _  L'intuition est le lieu de toutes les intelligences.
-* 8 Ÿ
-k î
 
-Dostoïevski . |
-X si
-$
 Il n'est rien dans Nietzsche, qui ne soit dans Dos- 3
 toïevski. Mais tandis que tout est négation, dans è
 Nietzsche, même ce qu'il affirme, — et lui, d'abord, le &
@@ -3263,8 +2548,6 @@ Dostoïevski pleure avec délices, et ses amis pleurent ] ;
 bien souvent comme lui. Je dirai, pour moi aussi, le &
 mystère des larmes. Dostoïevski connaît la merveilleuse É
 humilité des bonnes larmes. Et certes, il est en elle un ,
-grand secret. 1
-$ 108
 | Larmes de la tendresse, pluie qui espère et qui renou- ,
 velle la forêt humaine, vous êtes la source ouverte aux
 cœurs pleins d'amour. Et partout où l'on frappe ce tendre rocher, l'ondée s'épanche ; et elle n'est jamais tarie, j
@@ -3298,13 +2581,9 @@ il n'est pas d'autre damnation. L'enfer est la souffrance
 dans le vide. Couché contre la terre, tu es le mort béni
 — de la mort volontaire, qui est toute vie: en te quittant,
 tu ressuscites. Ce départ sans retour est le véritable
-_ amour, chère Ame.
-$
 - Ce n'est pas cet amour de tête, qui crie: Vivre!
 Vivre! avec la bouche affreuse d'un mort. C'est la mélo4 os J
 
-F
-Dostoïevski :
 die du cœur qui se retrouve, et qui répond à toute la à
 nature : me voici! me voici! Il chante la vie, il en est £
 l'éternelle modulation jusque dans la mort : parce qu'il Fe
@@ -3330,12 +2609,9 @@ gie de cette âme infatigable, et ses brûlantes langueurs, F:
 ses abandons si tendres. Infatigable à souffrir et à vou- |
 loir laver l'or des souffrances, pour en séparer le trésor
 de la joie : à la constance de cet orpailleur, à celle-ci, M
-quelle énergie s'égale ? k
 O saintes, bonnes larmes, routes de l'eflusion, sentes M
 profondes de la tendresse, c'est vous, très douces lar- +
 |
-À
-:
 
 > LA PROFONDEUR RUSSE En
 _ mes, qui parlez seules d'amour, et de cet amour qui ÿ
@@ -3357,7 +2633,6 @@ _ en exemple à tout service. Et je veux bien que la vie
 …_ trouve son compte à l'humiliation de l'homme. Je ne i
 _ parle jamais que pour la vie; et je ne vois de 1
 bel orgueil qu'en tout ce qui l'augmente et la rehausse. 4
-*# w.
 _ Amour de la vie, c'est mal dit encore. La vie n'est 4
 _ pas si grande ni si forte que l'amour. Elle en attend la :
 _ parfaite beauté, dont notre désir s'est fait une pro- ;
@@ -3365,12 +2640,10 @@ messe. Plus que l'amour de la vie, la vie d'amour : tel |
 est le fond de Dostoïevski. A l'amour, de faire naître et -
 _de sauver la vie. Les meilleurs ne vivent que pour :
 servir ce dessein. Et le plus pur amour est le plus 5
-; amour. Û
 _ © Fédor Mikhaïlovitch, si ardent, si aigu et si hum- d
 ble, vous êtes profond et vrai entre les grands. Vous 1
 
 .
-Dostoieeski % 4
 allez au delà de tous autres, sans doute. Car enfin, où 4
 j'en suis venu, il n'est de vérité que dans la profonHET deur. Pour prendre toute notre hauteur, il nous est
 nécessaire de mouiller dans les abîmes. Tout est de k
@@ -3385,185 +2658,54 @@ absorbe toute la matière, comme une matrice seconde,
 idée; ici, l'acte et l'idée sont tout amour. Tout trempe %
 dans la compassion de la vie pour elle-même, et dans É
 la certitude du salut, que le cœur exige d'un amour
-créateur. 3%
 Où tout est amour, tout est vie! Par delà le néant s
 de tous les objets éphémères, c'est là-dessus enfinque
 notre foi ou notre espoir se fonde. Dostoïevski, sijene « me trompe, et moi-même à mon rang, nous sommes F
 lantidote de la tyrannie rationnelle, des philosophes, et 4
 de tout poison inhumain : Dostoïevski, le cœur le
 : plus profond, la plus grande conscience du monde
-moderne. 0
-£ à È
-ra
-re, À È
-ps) ÿ
-je Re 4 ‘À
-AGE Ke ® VE 2
 
 A" rs er RARE TETE ,  L'ORPORARE EE: CUT ANR
-er SAR PR NS D à « Ed
 ar Nr Nr E RTS SA ue. 7 s TR
-1 Ton LICE ES QC  « N A8 TN RE a" Er »” £ # } 4 é a
-e AT TR LA : É:
-}°.: "#6 148
-tre er 40
-sl : 4 . ÿ ii
-LT ue.
-MERS x j 4
-27 RARE :
-SP TA h
-+ 28 CAE #6 , +3
-7 LS A A er 4
-+ NCIS FER N
-et Dr |
-À ARS re
-0e F L'At
-er à
-: °C ;
-4 PRE M
-Pi a EA Rr
-L " M em
-Dis: c
-Re 4
-L à) “
-A 7 " RE :
-p ri "Ciel k
-ot se + he 7
-FRS . s + DR, *
-, L. d pl ; ReuE
 
-< Ses e Li MAG CA QUE MERE LOT BE CA TEST ER SES
-LV LHSNES é « - à E EF D, LME: £ MS
 Lys) han Es > 2e UNE 9 pe RS “et
-* ï $ DL pré 0
-+ ee ARCS |
-4 1 NU PS NENRRENSESS |
-— Ù ONE ë
-é 3 : D ÉEN | US
-l oc. AE
-hu 5; MÈRES
-<a d Ve" | À TN el
-10 N'ARCS . F3 3
 
-à . RE + 0,
 4 ss e wù ERRO SPP. CE PRE
 A A RO re LE dit T0 NC NES
 
 ROBES] Le Pa TT ne EU MERE 2) CV SRE
 
-ERA le y & " "A ” « +
 > 2 3 AE
-loue : ee.
-: 3 Se 1e =
 FLE il s SIN Lil
-TR pe rt:
 
-C2 ri 1 Le 4 + " er
-D : 4
-e PR à ”
-fe fie |
-© JESNESS N
-sf PE Fu 7
-Gen - i
-1e, sv. 5
-a GE
-De TT. E- E CAHIER à
-Es û
 CL ne
-RE, 0. * )
-« 1 ÈS ù
-dr: PAT à “0
-Re 2. 4
 
-a 4 É :
-: LT Le
-NOTES =
 1088 0
 
-: 270
-
-D '
-À DE. " 4
-- . cé
-RL. e
 #7 « 1
-Re. 4 oR
-« NE 230
-D. Suarès. — 6 à
 ro: L LFP ER
 
-D CN NE RS RS AR. TO à
-ue NS Rx PRESS Here MER Ass:
-< SC PRNUe
-à FSI “
-+ “ 3
-… = - e — r 4
-« n ré
-- f D |
 ( ne RE PRRE TRS
-4 cs E TE S
-: s e LÉ
-Ra: [=
-és ” >
-dl à — val 0 r
 | |AACRRRME ASS
-È E s PR
-x Re L
-AL NERES
-CN f É 4 - +
-LCA
-Mr : ET
-er: > 2 TR
-ai à g R : MRC,
-ve es “7
 
-LL À ven
-D TABLE DE CE CAHIER #
-quelques œuvres de Suarès......................... 3 à
-TE 2... 2520 Ke
-Moscou... .>:...............................1004 È
 2 Jusqu'ici, je n'ai point nommé Dostoïevski 13 %
-4 LE AT NREES É
-ES. , $. — Plus il tâche à vivre en société ........7. 20
-_. $. — On dit parfois que la misère.............. 929 €
-FA SS #— Voilà bien le cri........................... 96 OUR
-Re RE Om EE 5... D. CU 4
 D. $. — Il a toujours répugné aux sciences........ 33 Le
 D - $. — Il a le respect et l'amour de son art...  3%6
-ee $. — 11 semble bäiller d'ennui ................. 36 :
 NUS $. — Dostoïevski est d'un prodigieux désordre, 39
 70 $. — Dostoïevski est riche en mots inoubliables 38 &
 & $. — Dostoïevski a la conscience de Pétersbourg 39
-k. — Un'monde à part. ............. 4:22: SOS
 Er. $. — Le monde de la profonde conscience ..... 41 #
 2 $. — Nulle puissance plus proche de la vie.... 41 Fa
-DIV. Pasaions sT MOMENTS ..................:....-. 60  -
 4% $. — Je compare la marche de l'épileptique.... 48
-: $. — Comme il est en amour................... 52
-‘a $. — Parce qu'il les a vu souffrir .............. OS
-ne 9 R
-M Ed
 
-L ; « de Re AT "| Re
 huitième cahier de la treizième série +
-$. — Il est plus d'un homme................... 59 ë
 $. — Quelle est donc cette recherche de la :
 dOULCUr ee ane ce 60
-WE TA PROFONDEUR /RUSSE .: 0.74... 63
 $. — La force du style emporte tout............ 67
-$. — Enfin, Dostoïevski est joueur.............. 68 |
 $. — Qu'il manque de dignité avec noblesse! .. 70 à
 $. — Les arbres ne sont pas de la même essence 72 N
 == Il'est contre l'Occident!" 1114 74 :
-$. — Avant quarante-deux ans................. 76 |
 $. — L'intuition est une vue du cœur dans les ë
-ténePres 20.2 SLR CE NOR 82 F
 $. — Dostoïevski maître en toutes passions... 86 3
 Si Encore-up pas: ni... 2.20 Rene 87 ë
-S-:—L''intnition est le.lieu.:.:.+1...0.02 0000 89 ï
-$. — Il n'est rien dans Nietzsche............... 90 È
 S':— Larmes de la tendresse. .x:.,7.:- et 90 €
-$. — Ce n'est pas cet amour de tête............ 91
-= Amour de la vie..." 0 20 93
-$. — O; Fédor Mikhaïlovitch...:.....::=.....000 ‘
-HMabieidece cahier"; "1.5 ACER Fe

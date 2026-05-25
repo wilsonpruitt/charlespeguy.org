@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 1203
 ---
-
-*Charles Péguy*
-
 Je voulais parler pour ma maison au commencement
 de ce premier cahier. Mais le cahier est déjà plein. Il
 faut que je finisse de publier les communications qui
@@ -21,9 +18,6 @@ J'espérais un peu à part moi que les cahiers seraient
 toujours pleins et que je serais toujours dispensé de
 présenter une apologie. Mais un ami me communique
 ce morceau de journal : — cri de Paris — numéro
-— dimanche 11 novembre.
-
-INDISCRÉTION
 
 On s'est demandé de qui étaient les beaux articles de La
 Petite République, signés « Un Universitaire ». On les a
@@ -37,7 +31,6 @@ l'Ecole Normale. Autour de M. Lucien Herr se forme en ce
 moment une admirable école de philosophes socialistes,
 qui, abandonnant les abstractions et les disputes vaines,
 apportent au peuple leur intelligence et leur volonté
-genereuse.
 
 Le nom du jeune philosophe commence par un H et finit
 par une. Cherchez...
@@ -70,7 +63,6 @@ abstractions vaines et les disputes vaines. Jamais nous
 n'avons entendu abandonner par là rien de ce qui fut la
 passion ou le travail de l'ancienne humanité. Personnellement je déplore que plusieurs de nos anciens cama-
 
-AJOURNEMENT L
 rades n'aient fait que substituer des vanités nouvelles
 à de vieilles vanités, donnant une importance qu'elles
 n'ont pas, en premier lieu à la spéculation sociologique,
@@ -88,7 +80,6 @@ sens que nous sommes assurés que les devoirs qui sont
 le plus souvent considérés comme étant des devoirs de
 
 charité généreuse ne sont en réalité que des devoirs de
-stricte justice.
 
 Puisque les jeunes essais dont ces cahiers sont enfin
 nés ont aussi donné naissance au rassemblement dont
@@ -109,13 +100,11 @@ d'un degré plus haut en grade, il ne m'a jamais méprisé, il ne me
 
 premier cahier de la deuxtème série
 que je le pourrai je donne en bref l'histoire de ma
-maison.
 
 Je n'aurai pas la parole dans le prochain cahier. Nos
 abonnés savent qu'il sera tout entier constitué, texte et
 couverture, par le roman de René Salomé, vers l'action.
 Ce roman nous promet un fort beau cahier de plus de
-cent vingt pages.
 
 Nous supprimons pour la deuxième série les nombreux
 services de presse que nous avions consentis. Nous ne

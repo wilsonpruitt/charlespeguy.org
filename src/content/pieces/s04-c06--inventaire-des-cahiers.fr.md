@@ -7,17 +7,10 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 14396
 ---
-
-_ SIXIÈME CAHIER DE LA QUATRIÈME SÉRIE
-Cahier
 _de Courrier.
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-1 NS SETBE PRES ENS rad
-ñ PRES : 2 NSP ETES
 à Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
@@ -29,142 +22,45 @@ vendons un franc 55
 
 2 0
 5-4
-y Es
 CA TA ee Es
-AUTE E RS" #
-. L'RA MLE LY ARR RENSRE
 
-AVE (AN) AD 24 RAR TN ES en FEUIN ‘
-PEN à Û KA 60 0 SEA RSR fer ct LR
-Li a NAS NAS APE RoiN DR RME LT:
-
-A Bot 7 NCA EE it , re Rt A
-1 4 ASS PARANTRES À EL Lt
-
-4 FO mL METE ee “AY à « |: VRPFS RSS | NI EUR
-
-J HONTE RETE . CRUE te KL
-M 0 0. VAR URSS
-À PA EEE M 1e À HIDE |
-tr LRU NES 1 1248
-\ 14 ANA f : ARNO EE we
-PT LR
-NL D EU PU PT < l'A
-2 1 EL AISERTES PINCE L\ F0
-LMRSS AN CMOS Le î AL
-Ph RE * USE NARRE AL
 TT L pe PE MURS sa “2 Te
 
 2 Vogrt VIN 1 HAER AC LE fe
-k NN NT "7e À EN #
-À: WALNE à Br a Ltes { 1 RL c
-Ace # : | SHÉNENR : PAU U u CH
-LE, a PARCS RÉ A : pr
-TE D, AN HR An 71! & : ER
-Li PAS ATIA Li ER , “qe U
-
-: BEL TICAYR 4H in TOR
-FRITES ae ÿl CR C7 A t sg 20
-DRAC ANT Ur SAT Ses: : EE 7
-
-A UE ns noe TOR b #8
-ST He MANN. : 1 Pac h
-
-6 (CAEN, A M: * RAR 0 |.
-
-Fe ER oh x x re te
-ES 2 DETTE Or UT UE NA di,
-
-EG A RAM 4 san Nid
-
-HAE ER ANA NEA CEA A Aa 0
-
-FA ES (ENS CA EE IE ARE AE STE EE EAU A A RQ EU Le Û
-
-AN AUS AE ee NE MAN LA DINAN VE EURE MER MAUR SE JR EME
 
 Cite Î w I 4 ; Con #4 M" 41 TON ET ANNE au A OT pm)
 
 à % + F4) AO do Hate PRADA QUE CEE NA ee cs ANA ire
 
-ë É 4 A LU ENS re LATE Aou RARE LAS
-
-HS F 114 Que # ere vt A 17)
-
-AE 4 NE UND) AP AR SEE
-
-+: 19 ra 4
-
-née : ! ee À
-
-L À p, At 14 4
-
 nu ! ge RON NUE LE SAUT ARE
 
-ae D NES à
-
 | “4 - ji ARRET y, Es JAPON
-RSR Ar RE AN ART REN ES
 
 Courrier de Paris
-À Fi
-a
 
-HR AE f Se LAPS AIRES Ce A
 fuM D A HS EE LA tD PURES NUE Rare
-MUR CTP A EN à AE ENS A
-HN | A OMR N EE 1 AN NOR A AR
-h REC MNUE et 4h ë d & 4 CR ARE RAA CR SR,
 | LIENS Er ee A
-NS EM ARE MN ERA RAS En
-ge AN at
-DENT Ne à SF TT RATE PRE RE
 HI RP gai Nr tt D ch are NE cet
-RNA EL MU ANUS DE A RENE \f
 ‘is FUEL de
-nes À 4 AA LEA FUSREELE n AT
-pu ! 3 ! # L LE ANSE pas NN A * A
-CAD TEN os NOR VAR RS ADN:
-FN MERE a lie HA RU RRADS #43 70
-AUS 1 M ARR NAME
-16 4 RE f ; - à | RE ÉCRAN ER AR 1]
 DT A QE 54 À des NE CR de
-LAURE ë : Ô EN à PPS COUER AE EU AAA
-HAS à RAP Er ALMA MARNE RER
-An EL NE PAT AS “HUE SAS RC
-SATA HAUTE, : EU TE AT EEE Li
-4 HAUT ANA Ty ; n ; [en eee AU E RE TO #A
-UT, RAREMENT ESS
 
-INVENTAIRE DES CAHIERS
 Les cahiers possédaient, le 31 août 1902, les valeurs
-marchandes suivantes :
-MATÉRIEL ET FRAIS GÉNÉRAUX
-Deux lampes;
 un bougeoir ;
 une table de 1 mètre 26 X o mêtre 75;
 une table de 2 mètres 20 X o mètre 75;
-quatre tréteaux ;
 une glace ;
 une armoire ;
 un appareil complet de cyclostyle ;
-deux composteurs, caractères cuivre ;
 un cachet;
 un timbre dateur ;
-sept timbres en caoutchouc, divers ;
 un pot à colle et quatre pinceaux plats;
 un verre;
 deux paires de ciseaux ;
-quatre corbeilles à papier;
 : une balance et jeu de poids de 1 gramme à 5 kilos;
 six chaises cannées et une en bois;
 un tabouret bois:
-Jo
 
 Inventaire des cahiers 1
-six patères ; 1
-boîtes à fiches; !
-registres ; |
 un Bottin étranger; |
 un petit dictionnaire Larousse; |
 un annuaire des communes ;
@@ -176,7 +72,6 @@ papier d'emballage, lisse et ondulé;
 8 mètres 88 de planche à o mètre 63 de largeur;
 balai (un tiers, en commun avec Pages libres pour un
 tiers, Jean-Pierre et | Œuvre du Livre pour tous pour un
-tiers);
 échelle double (un tiers, même répartition) ;
 une toilette de libraire ; ï
 une brosse à habits;
@@ -188,39 +83,26 @@ un marteau ;
 une paire de tenailles ;
 un mètre pliant; |
 un colle-timbres:; |
-écritoires ;
 six mois de loyer payé d'avance ; ;
 Bien que ces installations nous aient coûté un assez
 bon prix à établir, il est sage de ne les compter que
 pour mémoire
-Ne
 
-ur
-ÉDITIONS DES CAHIERS
 antérieures à la fondation des cahiers
 
 MARCEL ET PIERRE BAUDOUIN. — Jeanne d'Arc,
 drame en trois pièces : Domremy, les batailles, Rouen,
-fini d'écrire à Paris en juin 1897, fini d'imprimer en
 décembre 1897, un volume grand in octavo de 752 pages,
-
-416 exemplaires, à dix francs, 2.496 francs
 
 Pierre Baupoux. — Marcel, premier dialogue de la
 cité harmonieuse, un volume grand in octavo, 228 pages,
-fini d'écrire à Paris en avril 1898, fini d'imprimer en
 juin 1898, éditions de Georges Bellais,
-
-714 exemplaires, à deux francs, 856 francs
 
 JÉROME ET JEAN THaArAuD. — Le Coltineur débile,
 un beau volume in-12, carré, de 116 pages, avec une
 lithographie de HENRY DE Groux, dédié à Lucile de
 Châteaubriand, qui mourut d'avoir aimé son frère, épisodes l'Échafaudage, la Merveille, sur les routes, la
 Détresse ; éditions de Georges Bellais, Paris, hiver 1898,
-fini d'imprimer en août 1898,
-
-629 exemplaires, à deux francs, 794 francs
 
 JÉROME ET JEAN THARAUD.— La Lumière, un cahier
 de 96 pages; épigraphe : Qui perd les yeux perd la
@@ -231,11 +113,9 @@ Inventaire des cahiers |
 mouvement et vie, Léonard de Vinci; dédié à notre |
 maître Villiers de l'Isle-Adam ; le navire, le magicien,
 Timor, les ténèbres; Rome — Paris, mars 1898 —
-août 1899: fini d'imprimer en juin 1900; À
 
 541 exemplaires, à un franc, 324 francs |
 
-RomaIN RoLLanp. — Aërt, trois actes, représenté
 pour la première fois à Paris, sur le théâtre de l'Œuvre,
 le 3 mai 1898; la scène se passe dans une Hollande de
 fantaisie, au dix-septième siècle; épigraphe : Je n'ai pas
@@ -246,8 +126,6 @@ d'Art dramatique, achevé d'imprimer le premier août
 
 les 28 derniers exemplaires, à trois francs,
 
-84 francs
-
 Roma RozLaAnp. — Le Triomphe de la Raison,
 drame en trois actes, représenté pour la première fois
 à Paris, sur le théâtre de l'Œuvre, le 21 juin 1899,
@@ -256,33 +134,21 @@ du malbeur. Les esclaves adorent la fortune et le
 pouvoir. Nous, honorons le malheur. Robespierre,
 7 mai 1794 ; la scène à Paris et en province, en juilletaoût 1793; éditions de la revue d'Art dramatique, où
 achevé d'imprimer le 20 octobre 1899, un volume de
-94 pages, in-16, carré,
 
 les 17 derniers exemplaires, à trois francs,
-
-51 francs
 
 RomaiIN RozLanp. — Les Loups, trois actes, repré-
 senté pour la première fois au théâtre de l'Œuvre, le
 18 mai 1898, sous le titre de Morituri, épigraphe
 
-Es ;
-jrs CAHIERS ANTÉRIEURS
-
 homo homini lupus, la scène à Mayence en 179,
 éditions de Georges Bellais, un beau volume grand
 in octavo, carré, de 128 pages, avec une lithographie
 de HENRY DE GRoUx, fini d'écrire à Paris fin mars 1898,
-fini d'imprimer en octobre 1898,
 
-731 exemplaires, à trois francs cinquante, 1.535 francs
-
-JEAN JAURÈS. — Action Socialiste, première série,
 un fort volume in-18, carré, de 560 pages, éditions de
-Georges Bellais,
 
 Le Socialisme et l'Enseignement :
-; Écoles municipales populaires :
 
 Aux instituteurs et institutrices ;
 
@@ -319,17 +185,13 @@ La Question religieuse ;
 La Laïcité de l'Enseignement ;
 
 Les libertés du personnel enseignant. — Znterpellation
-Thierry Cases;
 
 9 1.
 
 Inventaire des cahiers Li
-(cs
 L'Enseignement laïque et l'enseignement clérical; ji
 La crise de l'Université ; \
-:
 Le Socialisme et les Peuples :
-La Paix; |
 Les Alliances européennes ;
 Les Écoles militaires;
 La Loi militaire égale pour tous; |
@@ -353,22 +215,14 @@ L'alliance russe et la réaction;
 La guerre hispano-américaine ;
 Fashoda, l'Angleterre et la paix; |
 L'action internationale;
-195 exemplaires, à trois francs cinquante, 409 francs
-
-CAHIERS DE LA QUINZAINE
-PREMIÈRE SÉRIE
 
 Premier cahier, du 5 janvier 1900, un cahier de
-144 pages :
 
 Lettre du Provincial;
-
-Réponse au Provincial ;
 
 Le « Triomphe de la République » ;
 
 L'affaire Liebknecht : un incident au premier congrès
-socialiste national, mardi 5 décembre 1899, à bas
 Liebknecht: compte rendu officiel de cet incident ;
 documents : une lettre adressée par Liebknecht au
 directeur de la revue die Fackel, supplément à
@@ -381,8 +235,6 @@ l'article de Liebknecht; un incident au punch de SaintMandé, d'après la Petite
 cembre; explications, deux lettres de Liebknecht, pré-
 sentées par Gérault-Richard dans la Petite République
 du mercredi 20 décembre; chez Liebknecht, interview
-
-Il
 
 Inventaire des cahiers à
 de Liebknecht par M. Marcel Hutin, publiée dans l'Écho s
@@ -399,28 +251,19 @@ du dimanche 24 décembre ; chez Liebknecht, troisième
 interview, dans l'Écho de Paris du dimanche 24 dé-
 cembre, le général Mercier sénateur, — en France et
 en Allemagne, la situation en Allemagne, — Liebknecht
-à Paris: — commentaires ;
 Avant la première quinzaine : chronique financière
 de l'Aurore ; départ de M. Clemenceau; l'affaire Zola,
 lettres de Zola au général de Gallifet et à M. WaldeckRousseau, la réponse de M. Waldeck-Rousseau ; la
 ligue des Droits de l'Homme : la grâce de LiardCourtois, la ligue des Droits de l'Homme et les massacres d'Arménie ; de l'affaire Dreyfus, une assignation
 du colonel Picquart, une lettre de Philippe, duc
 d'Orléans, au duc de Luynes, Dampierre, de Kis-Jenoë,
-6 décembre, 9 heures matin ; contreles barbares, union
 Populaire contre les courses de taureaux ;
 cahier marqué un franc cinquante ; en dehors des
 collections complètes il n'en reste que
-24 exemplaires, à dix francs, 240 francs
-: 12
-
-PREMIÈRE SÉRIE
 
 Deuxième cahier, du 20 Janvier 1900, un cahier de
-144 pages :
 
 Du second Provincial ;
-
-, Réponse provisoire;
 
 La préparation du congrès socialiste national : un
 article de Jaurès dans /a Petite République du samedi
@@ -456,7 +299,6 @@ rectification de M. Gabriel Monod ; commentaires ;
 Travail des enfants, discussion à la Chambre de la
 proposition de loi, adoptée par le Sénat, portant modification de la loi du 2 novembre 1892 sur le travail des
 enfants, des filles mineures et des femmes dans les établissements industriels ; séances du mercredi 20 et du
-Jeudi 21 décembre 1899: compte rendu emprunté au
 Journal officiel ; plusieurs discours de M. Vaillant et de
 M. Millerand, détail des scrutins pour les députés socialistes;
 
@@ -475,12 +317,7 @@ du samedi 13, Le discours de M. Bourgeois;
 cahier marqué un franc cinquante; en dehors des
 collections complètes il n'en reste que
 
-14 exemplaires, à douze francs, 168 francs
-
-PREMIÈRE SÉRIE
-
 Troisième cahier, du 5 février 1900, un cahier de
-144 pages : :
 
 Pour et contre le socialisme : la liberté par l'étude,
 
@@ -508,17 +345,13 @@ même Petite République ; dans la Petite République du
 mercredi 19, Jaurès continue sa réponse, les responsabilités ; dans la même Petite République, une lettre du
 citoyen docteur Ferroul, datée de Narbonne, 16 juil-
 
-L
-
 Inventaire des cahiers ;
-A
 let 1899, adressée mon cher Gérault-Richard: ensuite
 une lettre du même, député de l'Aude, même date, au
 citoyen Guesde, adressée mon cher Guesde; dans La
 même Petite République, les démissions : une lettre de
 E. Degay, datée Paris, 17 juillet 1899, adressée mon
 cher Landrin, portant démission de membre du Parti
-socialiste révolutionnaire, à transmettre au Comité
 révolutionnaire central ; une lettre de Louis Parassols,
 conseiller municipal de Sainte-Florine, adressée mon
 cher Landrin, portant démission de membre de la commission administrative du Parti socialiste révolutionnaire, à transmettre au comité révolutionnaire central;
@@ -539,9 +372,6 @@ Jean Jaurès; dans la Petite République du vendredi
 une lettre du citoyen Carnaud, en réponse à l'article du
 citoyen Rouanet, courtoise réponse, adressée mon cher
 Rouanet; une lettre du citoyen Légitimus, membre du
-
-he PSE
-PREMIÈRE SÉRIE
 
 Conseil national du Parti ouvrier français, député, pré-
 sident du conseil général de la Guadeloupe, datée de
@@ -565,19 +395,15 @@ portant modification de la loi du 2 novembre 1892 sur
 le travail des enfants, des filles mineures et des femmes
 dans les établissements industriels ; suite de la séance
 du jeudi 21 décembre 1899; compte rendu emprunté
-au Journal officiel ; M. Cadenat ; amendement Vaillant ;
 discours de M. Édouard Vaillant; amendement Groussier; M. Arthur Groussier; M. Dejeante; détail des
 scrutins pour les députés socialistes ;
 
 cahier marqué un franc cinquante; en dehors des
 collections complètes il n'en reste que
 
-13 exemplaires, à douze francs, 156 francs
-
 Inventaire des cahiers |
 
 Quatrième cahier, du 20 février 1900, un cahier de
-72 pages :
 
 De la grippe;
 
@@ -602,10 +428,6 @@ de la Fédération des travailleurs socialistes de France,
 pour le Conseil national du Partiouvrier français, pour
 la Commission administrative du Parti socialiste révolutionnaire, et pour le secrétariat de l' Alliance communiste révolutionnaire ; l'article de Gérault-Richard contient cette déclaration; dans la même Petite République,
 
-î 18
-
-PREMIÈRE SÉRIE
-
 un article de Jaurès, vers l'unité ; une résolution du Parti
 Ouvrier Socialiste Révolutionnaire, Union fédérative du
 Centre, aux travailleurs ; dans la Petite République du
@@ -628,30 +450,22 @@ République du samedi 12 août, une communication du
 Comité d'entente socialiste, portant lecture des propositions faites par le Parti Ouvrier Socialiste Révolutionnaire ; dans la Petite République du lundi 21 août, une
 note du Comité d'entente socialiste; dans la Petite
 République du mardi 22 août, du Parti Ouvrier Socialiste Révolutionnaire, Secrétariat Général, un manifeste
-aux travailleurs ;
 
 Travail des enfants, suite de la discussion, à la
 Chambre, de la proposition de loi, adoptée par le Sénat,
 portant modification de la loi du 2 novembre 1892 sur
 
-S 19
-
 Inventaire des cahiers
 le travail des enfants, des filles mineures et des femmes
 dans les établissements industriels ; fin de la séance du
-Jeudi 21 décembre ; compte rendu emprunté au Journal
 officiel ; amendement Lemire ; le texte; amendement des
-Rotours ; amendement Walter ; amendement Dejeante;
 amendement Cadenat; amendement Colliard ; amendement Dron; amendement Walter; sur l'article premier; sur l'article deux; sur l'ensemble; détail des
 scrutins pour les députés socialistes;
 
 cahier marqué o franc 80; en dehors des collections
 complètes il n'en reste que
 
-14 exemplaires, à huit francs, 112 francs
-
 Cinquième cahier, du 5 mars 1900, un cahier de
-72 pages :
 
 La Consultation internationale ouverte à la Petite
 République sur l'affaire Dreyfus et le cas Millerand :
@@ -669,7 +483,6 @@ adressée citoyen Millerand; dans la Petite République
 du samedi 22 juillet une lettre collective des députés
 socialistes belges à Jaurès, adressée cher ami; dans la
 
-PREMIÈRE SÉRIE
 Petite République du jeudi 17 août, une note, consultation internationale des militants socialistes sur l'affaire
 Dreyfus et la participation des socialistes au pouvoir
 en régime bourgeois : formule de la consultation, liste
@@ -684,10 +497,8 @@ notice sur l'auteur ; dans la Petite République du
 samedi 16 septembre, notice, réponse de Auguste Bebel,
 datée de Berlin, 16 septembre 1899, adressée chers
 camarades ; Gans la Petite République du jeudi 21 septembre, notice, réponse de Émile Vandervelde, datée de
-Bruxelles, septembre 1899, adressée chers camarades ;
 dans la Petite République du vendredi 22 septembre,
 notice, réponse de George Plekhanov, datée de Genève,
-septembre 1899, adressée chers citoyens ; notice,
 réponse de Pablo Iglesias, datée de Madrid, 7 septembre 1899, adressée honorables citoyens GéraultRichard et Jaurès; notice, réponse de Andrea Costa,
 datée de Prison de Imola (Italie), septembre 99, adressée mes chers amis ; dans la Petite République du lundi
 25 septembre, notice, réponse de Ænrico Ferri: dans
@@ -697,7 +508,6 @@ septembre 1899, adressée mes chers amis ; notice,
 réponse de Louis Bertrand, datée de Bruxelles, septembre 1899, adressée chers camarades ; dans la
 Petite République du jeudi 28 septembre, notice,
 
-à
 Inventaire des cahiers |
 
 réponse de Karl Kautsky, datée de Berlin-Friedenau,
@@ -723,25 +533,19 @@ de Portici (Napoli), septembre 1899;
 cahier marqué o franc 80; en dehors des collections
 complètes, il n'en reste que
 
-14 exemplaires, à huit francs, 112 francs
-
 Sixième cahier, du 20 mars 1900, un cahier de
-72 pages :
 
 De la grippe; inclus Prolétariat et science, allocution
 d'Anatole France, prononcée le dimanche 4 mars pour
 
-PREMIÈRE SÉRIE
 la fête inaugurale de l'Université populaire le Réveil des
 premier et deuxième arrondissements, texte emprunté
 à la Petite République datée du mardi 6 mars ; et dans
 la même Petite République un article de Jaurès,
-Universités populaires ;
 
 La Consultation internationale ouverte à la Petite
 République sur l'Affaire Dreyfus et le cas Millerand,
 suite : dans la Petite République du dimanche 22 octobre, notice, réponse de Tom Mann, datée de Londres,
-septembre 1899, adressée chers camarades ; notice,
 réponse de Xeir Hardie, datée de Glasgow (Écosse),
 septembre 1899, adressée camarades ; dans la Petite
 République du samedi 28 octobre, notice, réponse de
@@ -762,19 +566,13 @@ Paul Singer, adressée chers camarades : dans la
 Petite République du dimanche 31 décembre, notice,
 réponse de Belfort Bax, adressée chers camarades ;
 notice, réponse de Ludwig Meyer, adressée chers
-citoyens ;
 
 Inventaire des cahiers
 
 cahier marqué o franc 80; en dehors des collections
 complètes, il n'en reste que
 
-14 exemplaires, à huit francs, 112 francs
-
 Septième cahier, du 5 avril 1900, un cahier de
-72 pages :
-
-Annonce au Provincial;
 
 Toujours de la grippe ;
 
@@ -784,12 +582,10 @@ République du dimanche 15 octobre publiait du Comité
 d'entente la circulaire préparatoire au Congrès général
 des Organisations Socialistes Françaises ; dans /a
 Petite République du dimanche 22 octobre, une note du
-Comité d'entente socialiste, congrès général socialiste ;
 dans la Petite République du vendredi 17 novembre,
 une note de Jaurès, avant le congrès, introduisant une
 communication de l'Agglomération bordelaise du Parti
 ouvrier français sur le Congrès général des Organisations socialistes françaises ; {enue du congrès, un
-complément au compte rendu sténographique officiel ;
 dans la Petite République datée du jeudi 7 décembre,
 une note de Jaurès après son article ; une protestation
 de députés et de membres du Parti ouvrier français ;
@@ -800,13 +596,8 @@ le navire ;
 cahier marqué un franc ; en dehors des collections
 complètes, il n'en reste que
 
-9 exemplaires, à neuf francs, 81 francs
-
-PREMIÈRE SÉRIE
-
 Huitième cahier, du 20 avril 1900, un cahier de
 72 pages, bon à tirer du mardi 24 avril et du samedi
-5 mai :
 
 Première annonce, groupe des Étudiants collectivistes
 de Paris ;
@@ -816,16 +607,13 @@ l'Art; l'Unité de l'Art, allocution prononcée par
 Anatole France à la représentation du Théâtre-Civique
 donnée à la Porte-Saint-Martin le vendredi 13 avril 1900,
 texte emprunté à la Petite République datée du
-dimanche 15 ;
 
 La Consultation internationale ouverte à la Petite
 République sur l'affaire Dreyfus et le cas Millerand,
 suite : dans le Socialiste daté dimanche 20-27 août 1899,
 une lettre de Liebknecht adressée mes chers amis:
 notice inédite, réponse inédite du docteur Charles
-Schidlowski, adressée chers camarades; notice inédite,
 réponse inédite du docteur Boris Kritchewski, adressée
-chers citoyens;
 
 Jérôme et Jean Tharaud, la lumière, deuxième
 partie, le magicien;
@@ -833,20 +621,12 @@ partie, le magicien;
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que
 
-11 exemplaires, à huit francs 88 francs
-
 Neuvième cahier, du 5 mai 1900, un cahier de
 120 pages, bon à tirer du mardi 8 et du jeudi 10 mai :
 
 Entre deux trains;
 
-ao
-ul
-
-‘8
 Inventaire des cahiers
-
-Rectifications ;
 
 Le Socialisme et les intellectuels, conférence donnée
 par le citoyen Paul Lafargue à l'Hôtel des Sociétés
@@ -863,14 +643,11 @@ Timor, et quatrième partie, les ténèbres ;
 cahier marqué deux francs ; en dehors des collections
 complètes, il n'en reste que
 
-6 exemplaires, à douze francs, 72 francs
-
 Dixième cahier, du 20 mai 1900, un cahier de
 80 pages, bon à tirer du lundi 11 et du mardi 12 juin :
 
 Communications; dont une rectification du citoyen
 Rubanovitch, datée de Paris, le 18 mai 1900, adressée
-monsieur, afférente au compte rendu sténographique
 de la conférence Lafargue ;
 
 Les Petits Teigneux, documents sur l'attitude prise
@@ -881,7 +658,6 @@ articie de M. Georges Deherme dans {a Coopération des
 Idées, samedi 7 avril 1900, le Correspondant et le Socialiste contre l'Université Populaire : un article du Temps,
 jeudi 12 avril 1900, rubrique au jour le jour, le projet
 
-PREMIÈRE SÉRIE
 de loi Waldeck-Rousseau sur les syndicats et les socia- È
 listes, interview de Jules Guesde où se trouve la phrase
 devenue fameuse : « Les universités populaires, elles
@@ -890,8 +666,6 @@ République du samedi 14 avril 1900, contenant et
 reproduisant une précédente rectification de Guesde au
 Temps; un article du Temps, vendredi 13 avril 1900,
 Nouvelles du Jour, enregistrant, reproduisant et commentant la rectification de Guesde;
-
-Annonce;
 
 Socialisme et collectivisme, conférence donnée par le
 citoyen Emile Vandervelde, député de Charleroi, professeur à l'Université Nouvelle de Bruxelles, sous la
@@ -902,12 +676,8 @@ texte revu par l'auteur;
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que
 
-9 exemplaires, à huit francs, 72 francs
-
 Onsième cahier de la première série, un cahier de
 90 pages, bon à tirer du mardi 3 et du mercredi 4 juillet 1900 :
-
-Réponse brève à Jaurès; à
 
 Le Socialisme et les Intellectuels, documents : dans
 
@@ -923,7 +693,6 @@ mon cher Gérault; dans la Petite République du dimanche 17 une rectification, 
 Rémy, 71, rue de Buffon,'adressée camarade, annoncée
 dans la Petite République par une lettre d'envoi adressée mon cher Gérault-Richard; dans la Petite République du lundi 18 une rectification, réponse au citoyen
 Lafargue, de Charles Péguy, datée Paris, 19, rue des
-Fossés-Saint-Jacques, samedi 16 juin 1900, adressée
 monsieur l'administrateur délégué, annoncée dans {a
 Petite République par une lettre d'envoi adressée
 citoyen rédacteur; un article du Socialiste, numéro du
@@ -933,18 +702,12 @@ Comparaison : un article du Parti ouvrier, numéro du
 3 juin 1900, nouvel effort; et un article du Socialiste,
 numéro du 3 juin, l'affaire Dreyfus, le nouveau spectre
 rouge: dans la Petite République du dimanche 10 un
-article, Basile;
 
 La Consultation internationale ouverte à La Petite
 République sur l'affaire Dreyfus et le cas Millerand,
 fin : notice inédite, réponse inédite de Rosa Luxemburg; dans la Petite République du jeudi 3 août 1899,
 larticle de Jaurès auquel Rosa Luxemburg se réfère
 dans sa réponse à la consultation internationale,
-méthode socialiste ;
-
-(HN) OM
-it Lee. ke
-: PREMIÈRE SÉRIE
 
 cahier marqué un franc ; en dehors des collections
 complètes, il n'en reste aucun exemplaire ;
@@ -952,31 +715,13 @@ complètes, il n'en reste aucun exemplaire ;
 Douszième et dernier cahier de la première série, un
 cahier de 72 pages, bon à tirer du vendredi 16 novembre 1900 :
 
-Deuxième série au Provincial;
-
-Administration ;
-
-Nouvelles communications ;
-
-Demi-réponse à M. Cyprien Lantier;
-
 cahier marqué un franc ; en dehors des collections
 complètes, il n'en reste que
 
-45 exemplaires, à huit francs, 360 francs
-
-4 Première série complète,
-6 collections, à cent francs, Goo francs
 | IL.
-
-+ 1900-1901
 
 Premier cahier de la deuxième série, un cahier de
 56 pages, bon à tirer du jeudi 29 novembre 1900 :
-
-Ajournement ;
-
-Nouvelles communications ;
 
 Nos annonces; nos comptes rendus ;
 
@@ -992,10 +737,6 @@ et pour l'ouverture des cours ;
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que P
 
-4 exemplaires, à douze francs, 48 francs
-
-DEUXIÈME SÉRIE
-
 Deuxième cahier de la deuxième série, un cahier de
 120 pages, fini d'imprimer le 17 décembre 1900 :
 
@@ -1004,20 +745,11 @@ René Sacomé. — Vers l'Action; mars 18937-janvier 1898, Saint-Germain-en-Laye
 cahier marqué deux francs; en dehors des collections
 complètes, il n'en reste que
 
-trois exemplaires, à douze francs, 36 francs
-
 : Troisième cahier de la deuxième série, un cahier de
 76 pages, bon à tirer du vendredi 21 décembre 1900 :
 
 Pour ma maison ;
 
-Administration;
-
-Pages libres;
-
-Rectifications ;
-
-Matinée-conférence, Parti Socialiste, Comité général,
 dimanche 22 juillet 1900, à deux heures, au Théâtre de
 la République, — organisée avec le concours de la
 Presse socialiste au profit du Congrès international de
@@ -1027,22 +759,17 @@ Jaurès, Le théâtre social ;
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que
 
-21 exemplaires, à huit francs 168 francs
-
 Quatrième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du vendredi 18 janvier 1901 :
 
 Hubert Lagardelle. — Les Intellectuels devant le socia-
 
-7%
 Inventaire des cahiers
 lisme, causerie faite au Groupe des Etudiants Collectivistes de Paris le 14 décembre 1900 ; du même, l'amnistie et les socialistes, article publié dans le Mouvement
 Socialiste du premier janvier 1901;
 
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que
-
-10 exemplaires, à huit francs, 80 francs
 
 Cinquième cahier de la deuxième série, un cahier de
 80 pages, bon à tirer du lundi 28 janvier 1901 :
@@ -1059,35 +786,25 @@ signée Alfred Dreyfus; Pierre Félix, Paris, 10 janvier Iÿ01I, une contributio
 
 Lionel Landry, courrier de Chine, un courrier daté
 de Tien-Tsin, 13 novembre 1900; un courrier daté de
-Tien-Tsin, 27 novembre 1900;
 
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que
-
-10 exemplaires, à huit francs, So francs
 
 Sixième cahier de la deuxième série, un cahier de
 180 pages, bon à tirer du jeudi 7 février 1901: ;
 
 Danton, trois actes de RomaAIN RoLLAND, datés de
 
-DEUXIÈME SÉRIE
-Paris, novembre 1898, donnés au Nouveau-Théâtre,
 le 29 décembre 1900, par le Cercle des Escholiers, et le
 30 décembre 1900, par le Théâtre Civique; la même
 pièce épuisée dans les éditions de la revue d'Art
 dramatique ; aux cahiers fini d'imprimer le samedi
-9 février 1901 ;
 
 cahier marqué trois francs ; en dehors des collections
 complètes, il en reste
 
-82 exemplaires, à trois francs, 147 francs
-
 Septième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du samedi 2 mars 1901 ;
-
-Casse-cou;
 
 Librairie des cahiers ;
 
@@ -1104,20 +821,13 @@ complètes, il n'en reste aucun exemplaire ;
 Huitième cahier de la deuxième série, un cahier de
 108 pages, bon à tirer du jeudi 28 février, fini d'imprimer du samedi 2 mars 1901 :
 
-Lioxez Lanpry. — Bacchus, drame en trois actes;
-Paris, octobre 1898-28 janvier 1900 ;
-
 Inventaire des cahiers
 
 cahier marqué deux francs; en dehors des collections
 complètes, il n'en reste que
 
-4o exemplaires, à huit francs 320 francs
-
 Neuvième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du mardi 19 mars 1901 :
-
-Procès-verbaux ;
 
 Intellectuels et socialisme : une contribution de
 M. Paul Mantoux, datée de Paris, ce premier février
@@ -1125,31 +835,19 @@ M. Paul Mantoux, datée de Paris, ce premier février
 
 Librairie des cahiers ;
 
-André Bourgeois, quatre jours à Montceau:
-
 cahier marqué un franc: en dehors des collections
 complètes, il n'en reste que
 
-six exemplaires, à huit francs, 48 francs
-
 du même, sans couverture, ï
-
-22 exemplaires, à 3 francs, 66 francs
 
 Dixième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du jeudi 4 avril 1901 :
-
-Cahier d'annonces : :
-
-Procès-verbaux ;
 
 Pour les étudiants russes ; appel aux étudiants fran-
 çais; meeting salle d'Arras, 3, rue d'Arras, le mercredi
 27 mars 1901 à huit heures et demie du soir, vote d'une
 adresse aux camarades russes; comité de solidarité
 
-d'en 2 2 t
-DEUXIÈME SÉRIE f
 universitaire en faveur des étudiants russes ; la crise
 des universités russes ;
 
@@ -1171,8 +869,6 @@ La Revue d'Art dramatique ;
 
 Société nouvelle de librairie et d'édition :
 
-École socialiste ;
-
 cahier marqué un franc, en dehors des collections
 complètes, il n'en reste que
 
@@ -1188,12 +884,9 @@ Librairie des cahiers;
 Collège libre des Sciences sociales, fondé en 1895,
 sixième année : 1900-1901, rue Danton, à Paris (entrée :
 28, rue Serpente); programme des cours; certificat
-d'études sociales; statuts;
 
 cahier marqué un franc; en dehors des collections
 complètes, il n'en reste que
-
-quatre exemplaires, à douze francs, 48 francs
 
 Inventaire des cahiers
 
@@ -1209,8 +902,6 @@ une préface de l'éditeur;
 cahier marqué trois francs cinquante; en dehors des
 collections complètes, il n'en reste que
 
-trois exemplaires, à vingt francs, 6o francs
-
 Treizième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du samedi 22 juin 1901 :
 
@@ -1218,10 +909,7 @@ Librairie des cahiers ;
 
 Compte rendu de mandat;
 
-Jean Coste;
-
 Georges Sorel, quelques mots sur Proudhon; réfé-
-rences ;
 
 Ludovic Marchand, Jean Grave et Urbain Gohier,
 dossier, daté de Paris, avril 19017; nous avons reçu
@@ -1233,7 +921,6 @@ Le Palais du Peuple, dossier : un article de M. Gabriel Séailles dans la Coopé
 la Coopération des idées, université populaire, apposée
 au commencement de l'année scolaire 1900-1901; une
 
-DEUXIÈME SÉRIE
 l'affiche de la même, même date, pour le Palais du
 Peuple; une déclaration publiée dans la Coopération }
 des idées, même numéro du samedi 7 juillet 1900:
@@ -1260,8 +947,6 @@ Expulsion de Nicolas Paouli, dossier: avertissement;
 une lettre de policiers russes, datée de Paris, 15 juin
 1901, adressée monsieur, signée Æ. Boisselier, Guillaume, un post-scriptum ; une traduction de la lettre
 décalquée mentionnée dans cette missive ; du même
-37 |
-LE
 
 Inventaire des cahiers
 auteur, dans Le Petit Sou du samedi 29 juin, une lettre
@@ -1275,19 +960,14 @@ Librairie des cahiers ;
 Léon Deshairs, Boecklin chez les Français :
 
 Louise Lévi, Congrès de Lyon, 26-28 mai 1901,
-compte rendu analytique non officiel:
-
-Bibliothèque ouvrière socialiste ; ;
 
 Société pour l'enseignement supérieur populaire et
 l'éducation mutuelle, Société des Universités Populaires,
 statuts : but et composition de l'Association, administration, comité de propagande, ressources annuelles et
 fonds de réserve, assemblées générales, démission et
-radiation, dissolution ;
 
 Lionel Landry, courrier de Chine, un courrier daté
 de Tien-Tsin, 25 février 19017 ; et un courrier daté de
-Tien-Tsin, 13 avril 1901 ;
 
 cahier marqué un franc; en dehors des collections
 complètes, il en reste
@@ -1298,13 +978,8 @@ Quinsième cahier de la deuxième série, un cahier de
 72 pages, bon à tirer du mardi 23 juillet 1901:
 
 Mémoires et dossiers pour les libertés du personnel
-enseignant en France :
 
 Préface du gérant ; :
-
-ÿ 38
-
-DEUXIÈME SÉRIE
 
 Interpellation Lavertujon: discussion au Sénat de
 l'interpellation de M. Lavertujon sur les actes de M. le
@@ -1316,8 +991,6 @@ de l'ordre du jour sur son interpellation ; compte rendu
 dans le Journal officiel du mercredi 3 juillet ;
 
 Jean Jaurès, Vérité, un article dans la Petite République du jeudi 11 courant ;
-
-Daniel Delafarge, M. Brunetière historien ;
 
 Attentats dans l'Yonne: qu'il ne faut jamais se
 brouiller avec son curé; en avril 1900, la Fédération
@@ -1356,7 +1029,6 @@ Compte rendu sténographique non ofliciel de la version française du cinquième
 ; On à ici le texte même du cinquième congrès socialiste international, tenu à Paris en septembre 1900.
 MM. Corcos frères, sténographes habituels du Parti
 socialiste français, en avaient établi par nos soins la
-sténographie.
 
 Nous avons publié cette sténographie comme les sté-
 nographes nous l'ont fournie. M. Hubert Lagardelle a
@@ -1368,9 +1040,6 @@ avons évité de communiquer aux orateurs la sténographie de leurs discours.
 
 Hubert Lagardelle préparait une introduction au .
 
-4o
-
-DEUXIÈME SÉRIE
 compte rendu dont il avait relu le texte. Puis cette
 introduction dut faire un cahier de la troisième série.
 Finalement elle ne nous est pas parvenue.
@@ -1383,11 +1052,7 @@ place dans ses travaux ultérieurs ;
 cahier marqué trois francs cinquante ; en dehors des
 collections complètes, il en reste
 
-109 exemplaires, à trois francs cinquante 228 francs
-
 De la deuxième série complète, il reste
-
-dix collections, à cent francs, 1.000 francs
 
 De la deuxième série nous avons formé des collections
 incomplètes mais continues :
@@ -1396,46 +1061,32 @@ Collections continues, complètes depuis le douzième
 cahier, inclus, de la deuxième série, c'est-à-dire comprenant les douzième, treizième, quatorzième, quinzième,
 et seizième cahiers de la deuxième série,
 
-71 collections, à 25 francs, 1.775 francs
-
 Collections continues, complètes depuis le treizième
 cahier, inclus, de la deuxième série, c'est-à-dire comprenant les treizième, quatorzième, quinzième, et seizième
 cahiers de la deuxième série,
 
-149 collections, à 6 francs, 894 francs
-
-En
-
-‘4 il Q
 1901-1902
 Premier cahier de la troisième série, un cahier de
 72 pages, bon à tirer du mardi premier octobre 1901 :
 Compte rendu de congrès ;
-Bilan ;
 Attentats dans l'Yonne, suite :
 l'affaire du Pioupiou de l'Yonne,
-suite ;
 une mauvaise affaire pour les
-socialistes ministériels;
 où l'administration universitaire,
 ayant cru lever un lièvre, leva un sanglier; inclus un
 article de Sans-Patrie dans Le Travailleur socialiste, les
 droits politiques des fonctionnaires ;
-Cahiers nivernais ;
 cahier marqué o frane 60; en dehors des collections
 complètes, il en reste
 654 exemplaires, à un franc, 392 francs
 Deuxième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du jeudi 17 octobre 1901 :
 
-ê 0
-TROISIÈME SÉRIE
 .  CnaARLes Guysse. — Les Universités Populaires
 et le mouvement ouvrier :
 
 L'Université populaire institution ouvrière ; la lutte
 de classe pour la liberté; l'Église et les U. P.; l'U. P.
-force ouvrière ;
 
 Les intellectuels dans les U. P.; l'enseignement;
 l'éducation artistique ;
@@ -1446,7 +1097,6 @@ rieure; lecercle et l'U. P.;
 L'avenir des U. P.;
 
 au commencement du même cahier, Charles Péguy,
-vraiment orai ;
 
 cahier marqué un franc; en dehors des collections
 complètes, il en reste
@@ -1472,28 +1122,16 @@ du même, sans couverture,
 
 21 exemplaires, à un franc, 12 francs
 
-\
-
-”
-À
 Inventaire des cahiers
 
 Quatrième cahier de la troisième série, un cahier de
 Gvi + 276 pages, fini d'imprimer du jeudi 5 décembre
-1901 :
-
-JEAN JAURÈS. — Études Socialistes :
 
 Introduction, question de méthode, datée de Paris,
-
-17 novembre; :
 
 Préface, république et socialisme, datée du 13 octobre 1901 ;
 
 Études socialistes, le mouvement rural: lentes
-ébauches ;
-
-Revision nécessaire ;
 
 Évolution révolutionnaire: en cinquante ans; majorités révolutionnaires ; paroles de Liebknecht; Liebknecht et la tactique ; « élargir, non resserrer »; le
 socialisme et les privilégiés; les raisons de majorité ;
@@ -1511,8 +1149,6 @@ individuelle et les sociétés de commerce ; propriété individuelle et sociét
 
 au commencement de ce cahier, Charles Péguy, avertissement, de la raison;
 
-TROISIÈME SÉRIE
-
 ce cahier n'est pas mis dans le commerce; en dehors
 des collections complètes, il en restait, au 31 août 1902,
 
@@ -1524,22 +1160,14 @@ L''avertissement que l'on a pu lire dans le quatrième
 cahier de la troisième série n'a pas été réimprimé dans
 l'édition Ollendorf; -
 
-volume marqué trois francs cinquante ;
-
-20 exemplaires, à trois francs, 40 francs
-
 Cinquième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du jeudi 19 décembre 1901 :
 
 GEORGES DELAHACHE. — Juifs ; introduction du
-gérant ;
 
 dans le même cahier, l'affaire Hervé, plusieurs articles de Hervé : à bas la guerre; nos intérêts en
 Chine; au conseil général de l'Yonne ; à quoi servent
 les armées permanentes; deux cas de refus de service
-militaire en Hollande;
-
-Charles Péguy, lettre à M. Charles Guieysse ;
 
 cahier marqué un franc ; en dehors des collections
 complètes, il en reste
@@ -1549,17 +1177,12 @@ complètes, il en reste
 Nous avons eu par les soins de Léon Deshairs une
 photographie de Tolstoi et Gorki se promenant en-
 
-4 nt.
-À
-
 Inventaire des cahiers
 
 semble à Iasnaia Poliana. Cette photographie a été
 prise par une des filles de Tolstoi. Elle a été communiquée à Deshairs par le docteur Schlepianoff. Nous
 l'avons fait reproduire à trois cents exemplaires. Nous
 la vendons deux francs. Il nous en reste
-
-233 exemplaires, à deux francs 466 francs
 
 Sixième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du samedi 28 décembre 1go1:
@@ -1573,8 +1196,6 @@ l'ouvrier Jean Allemane ;
 
 dans le même cahier, introduction du gérant ;
 
-Racine ;
-
 Une lettre de Maurice Bouchor;
 
 L'affaire Téry ; une lettre à M. Gustave Téry, datée
@@ -1582,23 +1203,18 @@ L'affaire Téry ; une lettre à M. Gustave Téry, datée
 _ Cahiers de la Quinzaine, 16, rue de la Sorbonne, au
 
 second, dimanche 24 mars 1901, adressée mon cher
-camarade :
 
 cahier marqué un franc ; en dehors des collections
 complètes, il en reste
-
-465 exemplaires, à 1 franc, 279 francs
 
 Septième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du jeudi 16 janvier 1902:
 
 M. Gustave Téry, polémiques et dossiers ; une
 
-TROISIÈME SÉRIE
 réponse de Gustave Téry; réponses particulières à
 M. Gustave Téry ; une lettre de M. Gallouédec, datée
 mercredi soir, 8 janvier 1902, adressée mon cher
-Péguy ;
 
 Gustave Hervé, l'Anniversaire de Wagram, article
 incriminé, publié dans le Travailleur Socialiste de
@@ -1606,11 +1222,8 @@ l'Yonne, numéro du samedi 20 juillet 1901; à nos amis de
 l'Yonne, article publié dans le même journal, numéro
 du samedi 14 décembre 1901 ;
 
-Bilan bref; .
-
 Félicien Challaye, Courrier d'Indo-Chine; un courrier
 daté de novembre 1901; un deuxième courrier daté de
-novembre 1901 ;
 
 La Grève ;
 
@@ -1622,17 +1235,11 @@ Huitième cahier de la troisième série, un cahier de
 
 BERNARD-LAZARE. — L'oppression des Juifs dans
 l'Europe orientale, — les Juifs en Roumanie, daté
-Janvier-février 1902 ;
 
 dans le même cahier, Georges Sorel et Charles Péguy,
-Jean Coste;
 
 cahier marqué deux francs ; en dehors des collections
 complètes, il en reste
-
-130 exemplaires, à deux francs 156 francs
-
-A
 
 Inventaire des cahiers À
 Neuvième cahier de la troisième série, un cahier
@@ -1641,10 +1248,8 @@ de 36 pages, papier fort, bon à tirer du samedi
 Tozsror. — Une lettre inédite, adressée à Romain
 g Rolland, datée du Z octobre 1887, adressée à monsieur |
 Romain Rolland, écrite en français, signée Léon |
-Toistoy ;
 une introduction de Romaïn Rolland ;
 un avertissement de Charles Péguy, daté de Paris,
-samedi 22 février 1902 ; |
 cahier marqué un franc ; en dehors des collections
 complètes, il en reste
 1.390 exemplaires, à un franc, 834 francs
@@ -1652,35 +1257,23 @@ Dixième cahier. de la troisième série, un cahier de
 48 pages, bon à tirer du jeudi 27 février 1902:
 les Universités Populaires, 1900-1901, I. — Paris
 et banlieue ;
-Gabriel Séailles, introduction :
-Notices :
 La Fraternelle, troisième arrondissement, datée
-d'avril 1901, signée B. ;
-Union Mouffetard, cinquième arrondissement, signé
 les secrétaires : lu et approuvé en séance du comité
 d'administration, le 20 avril 1901 ;
-Voltaire, onzième arrondissement, avril 1901;
-Diderot, douzième arrondissement, mai 1901;
 Le Contrat Social, Université Populaire des quartiers
 48 ,
 
-TROISIÈME SÉRIE
 . de Chaillot et de la Porte Dauphine, seizième arrondissement, avril 1901, signée F. IL. ;
 
 L'Éducation sociale de Montmartre, dix-huitième
-arrondissement, avril 1901, signée madame W. ;
 
 La Maison commune, dix-neuvième arrondissement,
-mai 1901, signée madame T. ;
 
 Fondation Universitaire de Belleville, dix-neuvième
-arrondissement, signée A. I.;
 
 La Semaille, vingtième arrondissement, avril 1901 ; Û
 
 L'Émancipation de Vincennes, Vincennes, mai 1901 ;
-
-Germinal, Nanterre, mai 1901 ;
 
 L'Idée, Puteaux, mai 1901;
 
@@ -1695,7 +1288,6 @@ la Question budgétaire ;
 Liste et adresses des U. P. de Paris et banlieue à la
 date du premier mars 1902; Paris; banlieue ;
 
-+
 1 cahier marqué un franc ; en dehors des collections
 complètes, il en reste
 
@@ -1711,18 +1303,11 @@ dédiée au peuple de Paris; en épigraphe : Pour qu'une
 
 Inventaire des cahiers
 nation soit libre, il suffit qu'elle le veuille, La Fayette,
-11 juillet 1789; fini d'écrire à Paris en juin 1901; |
 cahier marqué trois francs cinquante; en dehors des
 collections complètes, il en reste
 
-290 exemplaires, à trois francs cinquante,
-
-Gog francs
-
 Douzième cahier de la troisième série, un cahier de
 72 pages, bon à tirer du samedi 5 avril 1902:
-
-Monographies. — Personnalités ;
 
 cahier marqué un franc; en dehors des collections
 complètes, il en reste
@@ -1735,7 +1320,6 @@ du mardi 15 avril 1902;
 
 JÉROME ET JEAN THARAUD. — Dingley, l'illustre écrivain; dédié à la mémoire de Mr. Cecil Rhodes, mort
 avant la consommation de son injustice; fini d'écrire à
-Paris en mars 1902 ;
 
 cahier marqué un franc; en dehors des collections l
 complètes, il en reste
@@ -1747,17 +1331,12 @@ de 72 pages, bon à tirer du mardi 22 avril 1902 : ;
 
 Une citation; du Mouvement Socialiste, numéro 979,
 
-TROISIÈME SÉRIE
 du samedi 15 février 1902, sous la signature de
-M. W.-H. Vliegen, Amsterdam, premier février 1902,
 Etranger, Hollande, le Ministère et le militarisme ;
 commentaires ; citations de Jaurès, Action Socialiste ;
 
-GEORGES SorEL, Socialismes nationaux ;
-
 Félicien Challaye, {a Russie vue de Vladivostock,
 journal d'un expulsé, daté vendredi 21 juin 1907,
-samedi 22 juin, dimanche 23 juin, lundi 24 juin;
 
 cahier marqué un franc; en dehors des collections
 complètes, il en reste
@@ -1774,11 +1353,7 @@ ANATOLE FRANCE. — Cahiers de la Quinzaine:
 France à l'inauguration de l'Emancipation, université
 populaire du quinzième arrondissement, texte reproduit d'après les journaux du jeudi 23 novembre 1899;
 
-Histoire contemporaine :
-
 La loi est morte, mais le juge est vivant;
-
-Vol domestique;
 
 Les juges intègres ;
 
@@ -1787,8 +1362,6 @@ Pensées de Riquet;
 Discours pour la liberté, prononcé par M. Anatole
 France, membre de l'Académie française, Président de
 la Section du quartier de la Porte-Dauphine (seizième
-
-5r
 
 Inventaire des cahiers
 arrondissement), à l'assemblée générale extraordinaire, du 20 ayril 1902, de la
@@ -1806,7 +1379,6 @@ complètes, il en reste.
 Du même, second tirage, deuxième édition, bon à
 tirer du mardi 13 mai, fini d'imprimer du jeudi
 15 mai 1902; en dehors des collections complètes, il
-en reste
 
 1.890 exemplaires, à un franc, 1.134 francs
 
@@ -1828,13 +1400,8 @@ de 52 pages, bon à tirer du mardi3 juin 1902:
 Cahier de courriers :
 
 Félicien Challaye, impressions sur la vie japonaise ;
-envoi du 11 mai 1902 ;
-
-;
-TROISIÈME SÉRIE
 
 Edmond Bernus, la Russie vue de la Vistule, histoire
-de 1895 ;
 
 Jean Deck, courrier de Finlande ; en particulier sur
 les troubles des 17 et 18 avril 1902 ;
@@ -1851,9 +1418,6 @@ complètes, il en reste
 Dix-huitième cahier de la troisième série, un cahier
 de 72 pages, bon à tirer du mardi 10 juin 1902 :
 
-Personnalités. — Monographies :
-
-M. Urbain Gohier, dossier; M. Urbain Gohier quitte
 l'Aurore ; Consultation électorale, article de M. Vaughan dans l'Aurore du vendredi 11 avril 1902; dans
 l'Aurore du dimanche 13 avril, du même un article,
 intitulé le départ d'Urbain Gohier, où inclus une lettre
@@ -1864,18 +1428,14 @@ M. Gohier avait publié un long article d'intérêt général,
 intitulé Bilan ; une note, Gohier et l' « Aurore », dans
 la Raison datée du dimanche 20 avril, sous la rubrique les actes ; une réponse de M. Gohier; dans la Raison datée du dimanche 25 mai, M. Gohier a publié un
 
-; 53
-
 Inventaire des cahiers
 article intitulé larmes d'assassins ; post-scriptum de cet
-article ;
 
 Ligue française pour la défense des Droits de l'Homme
 et du Citoyen, rue Jacob, 1, Paris, sixième arrondissement, manifeste ; le comité central ;
 
 Élection Beauregard, dossier préparé par M. Émile
 Terquem : Paul Beauregard, à ses électeurs, mes chers
-concitoyens, signé Paul Beauregard, député sortant,
 texte emprunté à l'Union du seizième arrondissement,
 journal politique et littéraire, cinquième année, numéro
 27, du dimanche 20 avril 1902; une lettre ouverte à
@@ -1893,9 +1453,6 @@ Du Mouvement Socialiste; une lettre de M. André
 Morizet, datée du Mouvement Socialiste, revue hebdomadaire internationale, 10, rue Monsieur-le-Prince,
 Paris sixième, rédaction, Paris, le 30 avril 1902,
 adressée mon cher et intègre Péguy, signée ton bien
-cordial, André Morizet ;
-
-TROISIÈME SÉRIE
 
 Au Mouvement Socialiste; citation de M. André
 Morizet ; numéro 73, du samedi 4 janvier 1902; numéro
@@ -1903,19 +1460,13 @@ Morizet ; numéro 73, du samedi 4 janvier 1902; numéro
 8 février 1902; numéro 80, du samedi 22 février 1902;
 numéro 81, du samedi premier mars 1902; numéro 85,
 du samedi 29 mars 1902; numéro 87, du samedi
-12 avril 1902; numéro 90, du samedi 3 mai 1902; une
 lettre du même, parvenue le 31 mai, même en-tête que
 la première, intitulée fiche rectificative à joindre au
 dossier du Mouvement Socialiste (lettre de l'inculpé
-Morizet) ; commentaires ;
 
 René Salomé, courrier de Belgique: grève dite géné-
-rale d'avril dernier ; choses vues, documents; daté
-Jeudi 10 avril, vendredi 11, samedi 12, dimanche 13,
 lundi 14, mardi 15, du mercredi 16 au vendredi 18;
 envoi du 3 juin ;
-
-Editions d'art Édouard Pelletan, 125, boulevard SaintGermain, Paris ;
 
 cahier marqué un franc ; en dehors des collections
 complètes, il en reste
@@ -1927,13 +1478,8 @@ Dix-neuvième cahier de la troisième série, un cahier de
 du jeudi 26 juin 1902:
 
 PIERRE QuizLARD. — Pour l'Arménie, mémoire et
-dossier :
-
-Introduction ;
 
 Interdiction de circuler ; perception des impôts ; police
-
-5ù
 
 Inventaire des cahiers
 et prisons; installation d'émigrés sur les terres armé-
@@ -1951,8 +1497,6 @@ ou par les Russes ; d) au reste les Arméniens se laissent
 ces arguments ; où inclus expédition de Khannazor, coup
 de main d'Antranik, pendaison d'Andrinople ;
 
-Documents annexes :
-
 Mémorandum du 11 mai 1895; réduction éventuelle
 du nombre des vilayets; nomination des valis, garanties;
 amnistie ; rentrée des émigrés ; règlement des procès ;
@@ -1964,20 +1508,13 @@ de la Turquie d'Asie ;
 
 Projet de réformes administratives à introduire dans
 les provinces arméniennes, vilayets actuels d'Erzeroum,
-Bitlis, Van, Sivas, Mamouret-ul-Aziz, Diarbékir ; valis ;
-mutessarifs ; kaïmakams; cercles communaux (nahiés);
-police ; gendarmerie ; prisons ; comité d'enquête préli-
-
-TROISIÈME SÉRIE
 
 minaire ; contrôle des Kurdes ; cavalerie hamidié ; question des titres de propriété ; la perception des dîmes;
-justice; deux dépêches : Sir Philipp Currie au comte
 
 de Kimberley, Constantinople, 9 mai 1895, du Blue
 Book, numéro 1, février 1896, numéro 42; le comte
 
 de Montebello à M. Hanotaux, Saint-Pétersbourg, le  .
-10 mai 1895, Livre Jaune, 1897, numéro 55 ;
 
 Projet minimum de réformes pour l'Arménie turque,
 sur la base du mémorandum du 11 mai 1895, élaboré par
@@ -1991,25 +1528,19 @@ européens, datée de Constantinople le 16/28 septembre 1895, adressée Excellen
 pièce annexe numéro 1 au numéro 50; pétition du comité
 hentchakiste, datée de Constantinople, le 30 septembre 1895, Blue Book, pièce annexe numéro 2 au
 numéro 5o ; note des ambassades, Blue Book, pièce
-annexe numéro 3 au numéro 50;
 
 Affaire de la banque ottomane,mercredi 14/26 août 1896;
 récit d'un témoin, signé Manasküitch ; lettre circulaire du
-comité droschakiste aux ambassadeurs européens, datée
 Constantinople, le août 1896, adressée Excellences,
 signée le peuple arménien; manifeste du comité droschakiste (le Comité Central de Constantinople de la
 Fédération des Révolutionnaires Arméniens dite « Dachnaktzoutioun »), Blue Book, Turkey, numéro 1, 1897,
 pièce annexe numéro 1 (lettre circulaire) et pièce
-annexe numéro 2 (manifeste) au numéro 25; déclaration
 
-PA
 Inventaire des cahiers
 
 des droschakistes enfermés dans la Banque, le comité
-révolutionnaire arménien au chargé d'affaires français,
 (les représentants du Comité Central de Constantinople
 de la Fédération Révolutionnaire Arménienne dite
-« Dachnaktzoutioun »), cinq signatures arméniennes,
 Blue Book, Turkey, numéro 1, 1897, pièce annexe numéro 3 au numéro %; manifeste de Tigrane Yergate,
 copie conforme à l'original du manifeste de Tigrane
 Yergate, transmis à monsieur Paul Cambon, ambassadeur de France, et à tous les ambassadeurs accrédités
@@ -2018,25 +1549,17 @@ lendemain des massacres survenus dans la capitale les
 26 et 27 août 1896, signé La nation arménienne, daté de
 Constantinople, 7 septembre 1896: notes collectives des
 Ambassades, présentée le 27 août par le premier drogman de l'ambassade d'Autriche au nom des représentants des Grandes Puissances, Blue Book, Turkey, k
-numéro I, 1897, pièce annexe numéro I au numéro % ;
 deuxième note collective des Ambassades, le 31 août
-1896, Blue Book, Turkey, numéro 1, 1897, pièce annexe
-au numéro 98 ;
 
 Annonces du Pro Armenia: comité de rédaction ;
 rédacteur en chef Pierre Quillard ; secrétaire de la
 rédaction Jean Longuet ; paraît le 10 et le 25 de chaque
 mois ; administration, 10, rue Monsieur-le-Prince ; rédaction, 10, rue Nollet ; sommaire du numéro du 10 juin 1902;
 une circulaire du Pro Armenia, datée de Paris, le
-15 juin 1902, organisation d'ur congrès philarmène à
 Bruxelles pour la seconde ou la troisième semaine de
 
 juillet ; formule d'adhésion au congrès ; citations du Pro
 Armenia, numéro 1, première année, 25 novembre 1900;
-
-HÉLEA ; À
-É%
-TROISIÈME SÉRIE
 
 numéro 2, première année, 10 décembre 1900 ; numéro 3,
 première année, 25 décembre 1900 ; la presse des opprimés, liste des principaux journaux arméniens, jeunesturcs, macédoniens, arabes, albanais, kurdes: bibliographie sommaire des principaux ouvrages concernant
@@ -2045,28 +1568,18 @@ la question arménienne ;
 cahier marqué trois francs ; en dehors des collections
 complètes, il en reste
 
-548 exemplaires, à trois francs, 986 francs
-
 Vingtième cahier de la troisième série, un cahier de
 156 pages, bon à tirer du mardi 22 juillet 1902 :
 
 Les Universités populaires 4900-4904. — II.
-Départements :
 
-Charles Guieysse, annonce, préface ;
-
-Notices :
-Alais, 20 avril 1901, signée F. Dugas;: continué pen8 s' P
 dant l'hiver 1900-1901 l'œuvre commencée l'année pré-
-cédente ;
 
 Angers, 3 septembre 1901, Mercier, fondée du mois
-de mai 1901 ;
 
 Angoulême, 7 avril 1901, Jules Delvaille, président du
 comité de l'U. P., professeur de philosophie au lycée,
 fondée et organisée dans le courant du mois de novembre
-1900 ;
 
 Annecy, la Solidarité, 6 avril 1901, G. Martin ;
 
@@ -2078,25 +1591,16 @@ Beauvais, le Cercle laïque d'éducation morale de
 Beauvais était dans sa troisième année d'existence ;
 
 Besançon, fondée au début de l'année 1900, Georges
-Drouhard ;
-
-Bourg, Cercle Edgar Quinet, 17 avril 1901, cher monsieur, Martin, inspecteur d'académie ;
 
 Bourges, l'Éducation mutuelle, avait été fondée l'été
-d'avant, 20 avril 1901, C. Siméon, secrétaire-trésorier ;
 
 Brest, assemblée constitutive le premier décembre 1900,
 prit plus tard le nom de /a Solidarité, René Litalien,
 secrétaire de l'U. P.
 
-Calais, en germe depuis novembre 1899, a pris forme
 au mois de février dernier, le président Ledoux, le secré-
-taire Gustave Brullé ;
 
-Clermont-Ferrand, 19 avril 1901, fondée en septembre
 dernier, a inauguré ses conférences le 19 novembre sui-
-
-; vant, Demay;
 
 Épernay, l'Émancipation intellectuelle, C. Lœvwenguth,
 secrétaire général de l'U. P. d'Épernay (Marne) ;
@@ -2111,13 +1615,9 @@ Le Mans, inaugurée le 31 octobre 1900;
 
 Lisieux, fondée le 20 novembre 1900 ;
 
-Lorient ;
-
 Lyon, Société de l'U. P. L., créée en décembre 1899,
 sous le nom de Société lyonnaise d'instruction et d'éduGo
 
-j: EX UG S
-TROISIÈME SÉRIE
 cation populaire, déclarée comme Société d'enseignement supérieur libre; section de la Croix-Rousse ;
 section de la Guillotière ;
 
@@ -2137,8 +1637,6 @@ mentaires sur le Mazet du peuple, Louis Planchon:;
 Reims, 3 mai 1901, séance d'inauguration le 3 juillet
 1900, le secrétaire général E. Lesourd ;
 
-Rennes, Victor Basch;
-
 Rochefort-sur-Mer, 11 avril 1901, les Veillées du Peuple,
 fondées à la date du premier janvier 1901, séance d'ouverture le 8 février, L. Poitevin ;
 
@@ -2150,21 +1648,11 @@ conférence le 5 avril 1900, le secrétaire F. Millot;
 Saintes, 16 avril 1907, constituée, ne fonctionnera pas
 avant un mois, A. du Bouays ;
 
-Saint-Quentin, {a Mutualité intellectuelle ;
-
 Tarbes, 9 septembre 1901, née vers la fin de 1900,
 E. Récéjac, professeur de philosophie au lycée ;
 
-Toulon, 30 avril 1907, vœu émis en septembre 1900,
-comité formé, première conférence quelques jours
-Gr
-
-IV
-
 Inventaire des cahiers
 après, l'Aurore, au début de 1901 l'Union, l'Émancipation sociale se forme au Mourillon, vu Le président
-Henri Guinard, ancien conseïller municipal, ouvrier
-mécanicien ;
 
 Tours, comité d'initiative au mois de juin 1809,
 l'Union populaire ;
@@ -2174,11 +1662,7 @@ deux mois ; compte ouvrir son local au mois d'octobre,
 le vice-secrétaire Maurice Gerson ;
 
 Tulle, 8 avril 1901, les Veillées populaires, fondées en
-septembre dernier, Louis André, professeur au lycée,
 trésorier de VU. P. à Tulle ;
-
-Valréas, avril 1901, Société d'Éducation populaire
-mutuelle, Léo Cheriils secrétaire adjoint ;
 
 Vannes, 12 mars 1901, monsieur et cher collègue,concours assurés dans le courant de l'année 1900, intention
 annoncée le 29 juillet dernier, conférences commencées
@@ -2189,17 +1673,11 @@ Vitry-le-François, l'Union fraternelle, régulièrement
 organisée dans les premiers mois de l'année 1900, autorisée arrêté préfectoral portant la date du premier août
 même année;
 
-Deux-Sèvres :
-
 Brioux-sur-Boutonne, Société d'instruction et d'éducation populaire, appel du 13 janvier dernier, Edouard
-Naudon;
 
-Chef-Boutonne, Société d'instruction populaire, au
 mois de mai 1896 trois conférences, au mois-de novembre 1899 idée de fonder une Université Populaire,
 
-TROISIÈME SÉRIE
 non encore définitivement organisée, mais a donné sept
-conférences ; É
 
 Chey, Coopération démocratique des idées et des
 bonnes volontés, seconde année d'existence, Édouard
@@ -2207,7 +1685,6 @@ Soulier; statuts, la Mutualité scolaire de Chey la première année; l'Universi
 
 | fondé à Chey le 13 octobre 1899, le secrétaire C. Coynault, le président Édouard Soulier ;
 
-Circulaire, Chey, 4 octobre 1900, monsieur, Édouard
 Soulier, préparatoire à la fondation d'une Université
 générale poitevine; projet de statuts définitifs, dans
 l'arrondissement de Melle Université poitevine ; statuts
@@ -2229,8 +1706,6 @@ Paris, premier juillet 1902 ; je répondrai à ces rectifications aussitôt que 
 cahier marqué deux francs ; en dehors des collections
 complètes, il en reste
 
-586 exemplaires, à deux francs, 703 francs
-
 |
 
 Inventaire des cahiers
@@ -2242,7 +1717,6 @@ JEAN DECK. — Pour la Finlande, mémoire et documents :
 
 Notes bibliographiques ; généralités; le conflit finlandais ;
 
-Introduction :
 Conquête de la Finlande ;
 La Finlande jusqu'en 1890 ;
 La Question finlandaise :
@@ -2261,7 +1735,6 @@ Les manifestes de 1900 ; l'administration en 1900 et
 1901; la loi militaire de 1907 ;
 
 a). — La restriction de la liberté de la presse et de
-réunion ;
 
 b). — Larussification des administrations finlandaises;
 
@@ -2273,15 +1746,9 @@ d). — La suppression des timbres-poste finlandais ;
 Les derniers événements ; les questions prochaines ;
 a) la question scolaire ;
 
-TROISIÈME SÉRIE
-
 b) la question douanière ;
 
 c) la réforme de la diète;
-
-d) autres questions ;
-
-Conclusion ;
 
 Dans le même cahier, Le Livre pour tous, Émile Boivin secrétaire administrateur, 8, rue de la Sorbonne,
 Paris, cinquième arrondissement, une circulaire datée
@@ -2308,8 +1775,6 @@ de M. Michel Bréal à M. Viollet, datée de Paris, le
 Petite République du dimanche 3 août, un article de
 Jaurès, conclusion; commentaires ; l' Aurore du samedi
 
-65 IV.
-
 Inventaire des cahiers
 
 9 août reproduisait la conclusion de Particle publié par
@@ -2324,71 +1789,37 @@ citation; même lettre de M. Buisson, citation; commentaires ;
 cahier marqué trois francs cinquante ; en dehors des
 collections complètes, il en reste
 
-123 exemplaires, à trois francs cinquante, 258 francs
-
-‘
-
 De la troisième série complète, il nous reste
-
-248 collections ;
 
 du premier août au 31 décembre 1902 on peut encore
 avoir pour vingt francs les vingt et un cahiers de la troisième série; à partir du premier janvier 1903 la troisième
 série sera vendue trente-trois francs ; ci a
 
-248 collections, à 33 francs, 4.960 francs
-
 De la troisième série nous avons formé des collections
 incomplètes mais continues, complètes depuis le huitième cahier de la troisième série, inclus, comprenant
 par conséquent les huitième, neuvième, dixième, onzième,
-douzième, treizième, quatorzième, quinzième, seizième,
 dix-septième, dix-huitième, dix-neuvième, vingtième et
 vingt-et-unième cahiers de la troisième série,
 
-488 collections, à 22 francs 5.856 francs
-
-WAiCe LEP
-LIBRAIRIE DES CAHIERS
 Volumes de librairie en magasin, total des prix forts
-983 francs, valeur en inventaire : 589 francs
-TOTAL GÉNÉRAL
 de ces valeurs marchandes au 31 août 1902 :
-34.955 francs
-&7?
-
-MAP E PAM FAT A UaR MT TN PT ANER PNEU En 4
 
 RTE ur A AAA V AN Ab RE ou A pou AD à CM NT { e
 
-ju l ù *: {4 AE TE AIRE NN A OE Ÿ 1,
-
-ee ANA NAN DA GENE ONE PDA IAUAS (UP AVG NA ' AT PATTES
 Au pet (CAE SEE A & RETENU ALES FAR AL BR EE LE RSS SIENNE + 3 ONE pis
 RS APN ( RAD S so AE TVR A ne RO
-RAA An Lt NT NANTERRE SET ANS
-14 PATES RAA AND ! Fo
 An nt SE ANNE TMENEENS D et Mr Aa
 ta MR YA Date OMAN one A PA HU
-AAA # 1 PNA “ LUCE AE NPN (RE EUE FAT
 ROSE UN St ATEN EE , x Ÿ L PARU nr ee | MOMENT Se us TS A:
 Ten AL AAC me L (RE AA UT SU PR AIOT
-LION AE NDS LAN Hp Mt AN NII ANNE NTANEAT En e RACE EI
 AS PANON ee UHAL tr NUE h rh ALU UN RES MNT ee, NA PASSES Art PAT EU SUR
-VAE 0
-Le ANNEE DE CN RE AA D AR à ARS NEA MR QU « A
-PR Es ROUE 1 A. A ANE TUE Ma ROUE MONA TER
-(OX PME CA AA 14 ARR RUE VA a PU CO
-A IPN 5 MP & AL PAZ LE EE AVE A dc DU
-LT AMEN RAP] 1 Te AE A RAA FRA PE te nn:
 À ASENEE PURE \ INA NME QAE SM sa ge k NET FN RE (|
 D 0 nn) on us
 
-QE DTA EE ; L DO EUUIRL EAN MALUS" à d CEA FA ANT ES
 di An A TE AO MANN JEUNE AU Les 1
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-demeurent libres.
 
 Nous servons :
 
@@ -2416,7 +1847,6 @@ pour chaque série à l'achèvement de cette série; la
 troisième série ayant fini fin juillet dernier, on pouvait à
 jusqu'au 31 juillet inclus avoir au prix de propagande
 les vingt premiers cahiers de cette série énoncés
-ci-dessus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui-suit
@@ -2424,35 +1854,16 @@ l'achèvement de cette série ; ainsi du premier août au
 31 décembre 1902 on peut encore avoir pour vingt francs
 les vingt et un cahiers de la troisième série énoncés cidessus.
 
-(4)
-
-A it ny Us ACTUS ai A
 HE NASA JA Ë AAA TARMES MON RSR Lu ot
-1430 AS EN LUS OR MAR NSP ere EE
-Ne US Ë A QR NE EE k ART RL EE LAUS
-D ETES A FAR SAN PANEUTE KA AMIS EE
 PEN CH 5 AT EU A COR SANT Vita UNE AL
-EMA NT NL k { ÿ | a LU NA RE A Re I
-LATE po RE eu FA
-“ot ï ! ATOM PNA EEE à ARS TARMNT
 È [au PO ai WANT } RE LINTNLAN ANR RES Le Ut b
 PA Ho CRT NE ji NANTES FE RE
-fie LAMY ORS FR Ch AUER AUTANT SENTE 4 AR
-A AR EE UT ji NOM EMMN EEE E te
-SON SRNANNT ES \ k N PORN RU ED LR TAN PAEE
-CRAN AFS DRAC! DA DEILA! VRE LUE an
 POP ANS DANS Ur POELE ANUS \ ji RPM LITE M ENGIN ; Free NAN
-D CMP DA ANTSE AR Ve SE A ML NES Ps LE
-é AA (ATEN, À AE TE SO ARIANE ne NEA PAT:
 [Me A Does LAPAUEU DU pe SE) ANTENNES Due je ox as
-Val ie NEO ÿ 241 0 RAT MENT 1
-hs ADN NP AIN \ { LOT NENEE A
-OT OR ÿ PORN ES taeE | NP AUS EINES \#
 
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins au
 total des prix marqués; ainsi à partir du premier janvier 1903 la troisième série sera vendue au moins,
-trente-trois francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous

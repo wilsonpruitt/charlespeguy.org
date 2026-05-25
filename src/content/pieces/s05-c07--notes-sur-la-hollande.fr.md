@@ -7,80 +7,33 @@ author: henri-michel
 isAvertissement: false
 wordCount: 38382
 ---
-
-SEPTIÈME CAHIER DE LA CINQUIÈME SÉRIE
-CAHIER DE COURRIERS
-HENRI MICHEL.
-NOTES SUR LA HOLLANDE ET SUR L'INTIMI
-LEBEAU ET THARAUD
 | MOINES DE L'ATHOS
-BULLETIN DE L'OFFICE DU TRAVAIL
 | LA GRÈVE DES TISSEURS D'ARMENTIÈRES
 | CHARLES PÉGUY
-É. CAHIERS DE LA QUINZAINE
-: CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-PE ETAT A 0e ES PR A
 2384 Le VERT DE tes PEN Dire ete D JR AT E
 Res Pour savoir c cé ue sont les Cal ers de la Cuers
 + il suffit d'envoyer un mandat de trois francs cinquante AA
-MS < RE he ns ù TRY Se EREcEus #3 if
 . à M. André Bourgeois, administrateur des cahiers,
-LS, © > HART L PE : 50 ATEN KP
 D ruse la Sorbonne, reae chaussée, Paris, CHARME #
 ù 24 _ arrondissement. On recevra en spécimens six cahiers |
 | di deuxième, de la troisième et de la quatrième
-D à.
 FE Nous mettons ce cahier dans le commerce; nous le.
 _ vendons deux francs. S LE
-ee F2 ; S “AE
-1LVERR ‘ Re
-L'URSS SE ; Fe.
 CRE Nous avons fait tirer à dix mille exemplaires sur
 +408 quatre pages pour ce septième cahier an vient de
 4 ss paraître constitué par la table sommaire et par …
-+ plusieurs extraits. "2
-‘LS - 8
-1 CU
-as : c L
 
-SAP MANIERE 1 PET NAN TRE AIN RSTANIE 3
 1 SLR VAR AUIERS ae 4 Pre EU SA EE 2
-ÉCERT Tr à RUETRE MS UE) M SE C2 ACER EE PRE ;
 1 EN sr en ERA ES FN T LE (LE PH EMA
 MT DE qe © ET fr: HER
 jui NS RARE CT" :h A Ce Ci © Han
-24e RO ROUEN è ire ORNE A
-{+ ER 1 : FT CURE
-5 * VEUMA ÿ DAUS 212 à
-À 4 LES & : et
-Le VU È F1
-AN tt “ re à $ \ 4 F saut È
-DT 3% GYMNIL « a
-4 (intel Fa 5 4 - TNA
-. ANSE 3 1.1 Dee 0
-: : : LINE ; SNA SE
-LORS “13 ER
-LE ACER ” F £ QUES cr
-LIEN NES : : # Chat.
-LÉTERER : 00
-100 F0
-FESSES AA QE PATES
-LÉ SAT PR
-D TONNES - RS HUE
 AUTE re res S + { L HE
-La JR
 À LED ne AU ua £. de SOU te lai À
-Le 2, PR PAL le
 
-LA à #à Cia 20
-TR û
-Re : Û
 Ke pi , Sur les courriers des cahiers, courriers de Chine,
-" S 7: . . . FJ 0
 _ courriers d'Indo-Chine, courriers du Japon, courriers
 Ë iù \ de Finlande, courrier de Russie, cahier d'Arménie,
 EME cahier de Roumanie, courriers de France, publiés dans
@@ -90,67 +43,23 @@ x Les trois premières séries des cahiers, se référer au
 A AREA rier, courrier de Paris, inventaire des cahiers, en
 _ forme de catalogue, un cahier de 72 pages, un franc
 Fa Nous publierons dans un cahier de la cinquième série
-Da d La . . D
 Li le relevé sommaire des courriers publiés dans la
 mon V quatrième série de nos cahiers.
-h e ü
-DEA
-Ed fai Y
-PS
-AN {
-Re 2
-ÿ ES ;
-DTA
 148 0
 
-Lait LIN LEA RE PS DENT H AVR MR :
-D Ù 7102
-AS ge 78
-: SIPEEIRSS À go
-RE - ‘4 10e
-LAON 16
-Le We. à N 7 FR
-‘* 158 $ “ M
 notes sur la Holland 4
-. NOES SU IA ROUGANOE : |
 et sur l'intimité +10
-e Ch ÿ 4j
-FA ESA à 708
-5 Er
-etre Ÿ
-: Mi | K
-440 Li
-& ATART | :
-ne 4 ; Fa
-\ AS L'ia é Fe
-é- 10 - FY
-‘508 74 x on À
 
 4 las 5 je à SRE 2e is ne PUR MOMENT LT RE FT
 M CL Nos abonnés ne confondront pas avec notre collabo_ rateur M. Henry Michel, qui fait en Sorbonne le cours
 4 ie d'histoire des doctrines politiques, et dont nous avons
-f ka " .
 TER reproduit une leçon d'ouverture, Edgar Quinet, en téte
 Dre de notre cahier Edgar Quinet, vingt-et-unième cahier,
 premier cahier supplémentaire de la quatrième série,
 2 de — notre nouveau collaborateur M. Henri Michel,
 “r conservateur de la bibliothèque d'Amiens :
-fa ;
-1108 :
-1e -
-Mu:
-RCE
-ee
-
-D
 
 > :
-sal 1 $
-CA Le LT
-
-Henri Micnez
-NOTES SUR LA HOLLANDE
-ET SUR L'INTIMITÉ
 
 Le goût de l'aventure et celui de l'intimité sont peut-
 être les deux sentiments primitifs dont les alternances
@@ -207,7 +116,6 @@ dunes ou la ligne sérieuse d'une digue, la Hollande
 tout entière est comme une vaste demeure close, pleine
 | 6.
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 d'air, d'ombres et de lumière, de silence et de mouvement. Bien que l'espace y soit très libre etle payspartout découvert, l'homme ici a toujours l'impression
 d'être étroitement et doucement chez lui. Tous les
 tableaux des maîtres hollandais, — si l'on en excepte
@@ -287,7 +195,6 @@ qui s'afline et s'approfondit par sa durée même.
 C'est ainsi, d'ailleurs, que vécut le plus souvent le
 peuple de ce pays. Le réalisme de ses peintres est toujours comme pénétré de conscience. Descartes le choisit
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 entre tous pour y venir poursuivre sa méditation et y
 trouver le silence et la suite de vie dont Spinosa se
 montra, après lui, si jaloux. Et l'on peut, semble-t-il,
@@ -319,10 +226,8 @@ C'est gris toujours, mais gris vert ou gris rose ou gris
 poudré d'or. Cette sensibilité du paysage, d'un paysage
 fait de rien, est le grand charme de ce pays. C'est
 comme un délicat visage pâle, où le sang est pourtant
-9 à
 
 SVERR Re Mal LE
-à Henri Michel ‘
 | à fleur de peau, qu'un sourire des yeux transfigure et
 où se reflètent les plus fugitives impressions.
 | Deux ou trois fois, au cours de sa brève navigation,
@@ -352,7 +257,6 @@ clairs, la bouche édentée sous le nez pointu. Il suit la
 manœuvre des éclusiers de son regard fixe de vieux
 paysan, et je ne l'ai point vu bouger d'une ligne tout le
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 temps que nous restâmes là. Mais le plus attrayant de
 la scène était assurément deux fillettes de sept ou huit
 ans, vêtues pareillement d'une robe noire, un peu
@@ -369,8 +273,6 @@ pour nous voir partir, sur la passerelle de l'écluse,
 toutes deux une main sur la hanche, d'un geste
 arrondi de leur bras nu, et je me retournai pour voir
 de loin sur le ciel très doux leur double silhouette gra-
-
-j cieuse.
 
 En approchant de Dordrecht, la campagne et le
 fleuve, jusque-là plutôt vides et solitaires, prennent un
@@ -395,8 +297,6 @@ par instants au sifflet du vapeur ; mais ces rares bruits
 
 | 4
 
-SR? LAN NON ENRRRR
-Henri Michel
 s'harmonisent au tableau de vie et ne paraissent pas
 en rompre le silence. Mouvement des voiles, glissement des nuages, routes passantes, ailes mobiles des
 moulins à vent, — le mouvement silencieux, c'est
@@ -427,7 +327,6 @@ efforts et sans heurts du présent au passé, comme elle
 se fait de la nature à l'homme. Étant peu tourné vers
 le rêve, ce peuple a mis dans l'humble réalité toute la
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 poésie qui est en lui. Son ingénieuse bonhomie le sauve
 de la vulgarité et atteint à l'harmonie et à la profondeur à force de sincérité. L'adaptation et l'aménagement des choses aux fins de l'intime vie humaine, c'est
 le charmant secret qu'il a toujours à nous apprendre.
@@ -457,8 +356,6 @@ souvenirs. Son passé date de trois siècles, et, sans
 plutôt une jeune ville. À quoi tient donc son originalité, par où nous touche-t-elle et par quel privilège
 est-elle bien un de ces lieux d'élection où l'on peut
 goûter dans l'air même qu'on respire quelque chose
-
-È Henri Michel k
 
 À d'invisible et d'unique, une âme singulière qu'on ne
 
@@ -513,7 +410,6 @@ ma chambre, d'aller passer une petite heure au café de
 
 l'hôtel, le temps de somnoler un moment dans la fumée
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ S
 d'un cigare. La disposition des cafés hollandais est
 assez particulière. A la vérité, ce qui les distingue tient
 à peu de chose ; mais rien ne révèle mieux le caractère
@@ -542,8 +438,6 @@ plaisanteries, un baiser sonore, enveloppé d'une bourrade. Cette animation et c
 sans gouaillerie et sans fièvre, avec je ne sais quoi
 d'honnête, de tranquille et de bon enfant. A la Haye,
 
-n à LOTO OR EP
-Henri Michel
 c'est le Spui Straat qui prend chaque soir cet aspect
 de kermesse, et c'est précisément sur le Spui Straat que
 se trouvait le café de l'hôtel où j'étais descendu. Rien
@@ -576,10 +470,7 @@ qu'il nous fait pressentir de l'intérieur, une grâce
 hospitalière, une vie pleine et souriante, un goût
 et des habitudes de confort qu'on devine l'ordre et
 
-?
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 la règle des plus humbles maisons comme des plus
-opulentes.
 
 Il faut bien entendre qu'il ne s'agit pas de ce confortable qui, sous prétexte de commodité, ne sert qu'à
 embarrasser l'existence de tout un appareil inutilement
@@ -607,7 +498,6 @@ Voilà ce que j'ai cru entrevoir ou deviner derrière les
 façades brunies des hôtels du Lange Voorhout ou derrière les grilles des jardins du Wilhelm Park. Les
 pelouses vallonnées, d'un vert si profond qu'il étonne et
 
-Henri Michel |
 retient les yeux, imposent aux allées, depuis la grille
 jusqu'au perron, une courbe avenante qu'il y aurait
 plaisir à suivre. Sur les balcons, des faïences et des
@@ -618,7 +508,6 @@ cuivre luisant d'un lustre. Sans doute il n'y a rien là de
 | bien rare, et ce sont choses que l'on peut voir partout.
 Mais il en est des images de la vie comme des chefsd'œuvre de l'art; leur valeur expressive tient à d'im-
 
-: perceptibles nuances, à quelque chose d'insaisissable
 que l'analyse ne peut atteindre et que l'à peu près du
 langage est impuissant à exprimer. Je me souviens, à
 | l'angle de deux canaux, d'une maison d'apparence
@@ -641,7 +530,6 @@ celui de la Haye et d'Amsterdam. Autant l'une des deux
 capitales hollandaises évoque l'idée d'une existence
 calme qui n'a plus qu'à jouir d'elle-même et n'a conservé d'activité que juste ce qu'il en faut pour la pleine
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 conscience de son élégance et de son bien-être, autant |
 l'autre, la capitale de la mer, étonne par l'animation de
 ses rues, son mouvement et son trafic de cité marchande. Place de banque et place de commerce, c'est
@@ -673,9 +561,6 @@ l'Ij. Les canaux concentriques, en lignes parallèles et
 brisées, les rues qui les coupent dans le sens des
 rayons d'un cercle, imitent les fils de la toile, d'autant
 
-19 ;
-
-Henri Michel —
 plus enchevètrés et pressés, qu'ils se rapprochent du
 centre ; et ce centre lui-même, le cœur de toute la
 figure, c'est la place du Dam, entre la Bourse et le
@@ -708,8 +593,6 @@ sur le monde, on dirait plutôt qu'il ramène le
 monde vers lui. Le mouvement des navires, le va-etvient des matelots suggèrent, je ne sais comment, des
 idées de retour plus que de départ. Les vieilles barques
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
-\ Ê
 avec leurs voiles affaissées, le long des quais trempés
 par la brume, y sont revenues vers les vieilles maisons
 qui les regardent de leurs innombrables petites fené-
@@ -738,7 +621,6 @@ viennent d'outre-mer et celles qui sont demeurées
 d'outre-temps, tout ce qui contient mystérieusement du
 soleiLet de la vie, prend un pouvoir intense de fascination sous ce ciel pluvieux, dans ce pays de marais,
 
-Henri Michel
 dans cette ville fourmillante et compliquée faite de
 à! cachettes et de recoins. Il faut voir au Jardin des
 S plantes la flore exotique amenée du Japon et de la
@@ -774,8 +656,6 @@ le comprend après l'avoir vue. Chaque maison est elle-
 à même un retrait. Le soir surtout, quand les lampes
 s'allument derrière les petits carreaux des fenêtres, on
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ ?
-F .
 imagine qu'il doit y avoir là plus qu'ailleurs de ces 4
 solitaires vies humaines, penchées sur quelque minu- À
 tieuse besogne, toutes retirées en elles-mêmes et |
@@ -806,7 +686,6 @@ humaines. Il ne voulut peindre des êtres que le reflet
 de leur vie intérieure. Il ne chercha dans les formes et
 dans les couleurs que leur essence lumineuse et l'enve23
 
-% Henri Michel
 loppa dans l'ombre pour la concentrer et la posséder
 mieux, comme un avare qui cache un trésor. — L'autre,
 ; du seuil de l'existence la plus humble et la plus fer-
@@ -839,7 +718,6 @@ si rapidement traversée, des ciels, des eaux et des
 grands herbages dont je retrouvais partout dans les
 musées la vision calme et profonde, aux tableaux des
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
 vieux maîtres. Un attrait me ramenaïit vers cette nature
 sobre et claire que j'avais à peine entrevue. Je résolus
 de consacrer les dernières journées de mon voyage à
@@ -871,8 +749,6 @@ cours en a brisé la force. Son glissement invisible ne
 fait qu'accumuler de nouveaux sables au long des ;
 dunes. La mer est plus redoutable, et l'on a dû, de ce
 
-Il
-
 # Henri Michel
 côté, élever contre elle la plus robuste digue des PaysBas. Dunes et digues encerclent l'ile tout entière et la
 ÿ séparent des autres terres. Une haute clôture barre
@@ -892,7 +768,6 @@ l'air. On la devine présente ou toute prochaine. L'herbe
 des pâturages est humide de ses embruns autant que
 ; des brouillards du fleuve, et les bœufs, en dressant la
 tête, semblent en humer l'odeur ou en écouter le gron:-
-“ dement.
 
 Malgré les fines ondées qui alternaient avec les sourires hésitants du soleil, j'avais pris à Middelbourg une
 : voiture ouverte pour aller voir la grande digue de
@@ -909,12 +784,10 @@ rais de lumière blanche perçaient à travers la pluie.
 | alors comme un rapide scintillement aux menus dé-
 | 26
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ |
 tails du paysage, et ces frissons de la lumière, qui |
 semblaient élargir la plaine, y rendaient tout plus vif et
 plus léger, y faisaient saillir mille traits délicats qu'on :
 n'avait point aperçus, comme des hachures dans une
-eau-forte. c
 
 C'était un dimanche et le matin. A tout instant, sous
 les grands ormeaux de la route, je croisais des bandes
@@ -942,8 +815,6 @@ qui nous touchent du plus près. Nous les séparons de
 tout le reste pour en composer un petit monde privé
 qui se suffise à lui-même etn'emprunte rien du dehors.
 
-he
-li Henri Michel
 La plus furtive clarté, la plus timide chaleur de ce
 foyer secret a plus de prix pour nous que toutes les
 splendeurs extérieures. Aucune barrière ne paraît asse:
@@ -978,8 +849,6 @@ poursuit, c'est l'assimilation parfaite; ce que l'on veut,
 
 duelle, et la limite. -
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ
-
 c'est d'avoir si bien ramené cet autre à soi qu'on se :
 reconnaisse en lui tout entier et qu'il n'ait plus rien de
 secret pour nous. Dans les paroles de notre amie, nous |
@@ -998,7 +867,6 @@ des actes et des pensées. C'est un fruit lentement müûri
 que ne cueillent pas les agités et les inconstants; ou
 c'est mieux encore, un arome profond de la vie pareil à
 celui que les vins les plus généreux ne prennent qu'en
-vieillissant.
 
 Les choses elles-mêmes ne résistent pas à cette
 patiente conquête. Dans la maison d'intimité, voyez
@@ -1013,7 +881,6 @@ Steen, des scènes bourgeoises de Metzu, de Terbug, de
 
 29 11.
 
-y Henri Michel
 À L Gaspard Netscher. Le sujet, ici, n'est rien, et peu
 É importe qu'il soit le plus souvent d'une familiarité qui
 # touche à l'insignifiance et quelquefois à la grossièreté.
@@ -1048,7 +915,6 @@ h à l'ndéfinissable quiétude répandue partout dans le petit
 $ de l'air, le recueillement du jardin et le mystère de sa
 110 30
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ k
 perspective ; le sentiment de calme et de paix qui enve- l
 loppe tout d'une discrète magie. Comme on sent que is
 rien, dans la maison silencieuse, n'est indifférent à ceux ü
@@ -1076,12 +942,8 @@ un champ trop vaste pour ce dessein, il cantonne sa vie
 dans un système clos où rien ne se perdra de sa chaleur et de son expansion. Il se crée un empire dans un
 empire avec le secret espoir d'y trouver le terme deses
 
-(rad FAO SAIS
 | > à
-\
-à Henri Michel
 1 désirs et le refuge où il pourra tenir enfin le repos et la
-j sécurité.
 i Que cette espérance soit vaine, la Hollande le nie,
 ne. non par des mots qu'on peut toujours soupçonner de
 4 mensonge, mais pour avoir vécu de son succès, pour
@@ -1107,8 +969,6 @@ rien détruit ? La foudre a grondé, la foudre n'a donc
 a donc pas de deuils ? On ne pleure donc jamais chez
 vous ? Vous avez tous été amoureux, comment le saïiton ? » C'est que l'écueil, c'est que le mensonge de l'inti32
 
-{ 7.
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ 44
 mité est précisément sa réussite même. Croire toucher î
 le terme, c'est ne pas comprendre qu'il n'y a pas de ;
 terme ; penser tenir le bonheur, c'est en méconnaître &
@@ -1137,11 +997,8 @@ Cela pourtant ne suflit pas. Dans la maison de la Marthe
 hollandaise, toutes les fleurs coutumières, les jacinthes +
 et les tulipes qu'elle cultive avec tant de soin, nous lasseront vite après nous avoir charmés quelque temps, si
 
-À = ù %
-à Henri Michel \
 ! Magdeleine, occupée d'un plus haut souci, n'a su y
 garder, fraîche et vivante, la fleur passionnée de son
-Ÿ rêve.
 D Est-ce à dire qu'à cette pénétrante vie intime il faille
 | préférer je ne sais quel vagabondage du cœur et de la
 \ pensée? Sous prétexte que nulle satisfaction n'est
@@ -1173,9 +1030,6 @@ l puisse, sans en franchir le seuil, si l'on a le cœur
 | 3
 
 LATE PTS de - ad k ER
-e %
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ \ ;
-L
 soit fragile et précaire; rien n'est si proche qui ne soit À
 lointain; rien n'est dit qui ne demeure à dire; rien Le
 n'est si familier qui ne puisse étonner par son mys- à
@@ -1206,9 +1060,7 @@ la table un frugal repas d'auberge. Comme les deux
 disciples tiennent près d'eux, entre eux, l'ami divin :
 qu'ils ont rencontré sur la route! Qui pourrait le leur
 
-] Ë
 |
-Fi Henri Michel
 | enlever dans l'abri secret où ils l'ont conduit, sous la
 protection des épaisses murailles et de la porte massive? N'est-il pas d'ailleurs l'un d'entre eux, un homme
 l comme ils sont? Il rompt le pain qu'ils vont manger
@@ -1238,7 +1090,6 @@ délaissé toute la partie du ciel au-dessus de l'île. D'un
 côté, on ne voyait devant soi que le sable désert, la
 mer toute sombre et sans une voile, rudement fouettée
 
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ 4
 par le vent, et des nuages confus et rapides qui s'en- * JL 8
 gorgeaient à l'horizon. De l'autre, c'était le contraste |
 de la campagne scintillante et rafraîchie, avec ses $
@@ -1251,109 +1102,33 @@ toujours blottis dans leur refuge comme de petits robinsons; puis, comme l'heure
 quitter l'île le soir même, je regagnai, pour leretour,
 la voiture qui m'attendait.
 
-HENRI MICHEL
-pose
-
-:2 LARRRURRRE a a Ki dr LT à à ARR NEE ©
-PES re 1 CORDSEU 4 Trés DIN 3) ÉNCRENEES
-A ï sh 4 h sie Ar
-RS ir : arr # TRE ARER
-RIRES : 5
-Pt HSE AE A RAS Ve
 fa 2ÿES de $ DORE \
-‘ 1 RSS : VPN, HAS
-LL h A à 1H L à
-+1 pe “ : ï | REA V4
-: 4 à 6 ii? j |
 Le y e SIDE ed
-. 17 VAS
-F 1% 1
-es # \
-54 ‘3
 F ni À
-"4 ( \ ÿ
-ÿ ù 4
-fre ci r 3 ee
-‘3 | ARR « et: 4
-Ar: À :
-LME 4
-“AE À
-l'E ot. 1
-« | ER
 
 vie FT. LÉ the É u
-LE 4 {3 160
-PA ED , 1 AS 1%
-LA SNS 1, 4 y TH
-tin à: NA:
-Tite NEA Au
-À 3 vise l (SIA (REA
-A À es:
-_ Moines F2
-À 7 è ML 2:
-e 1 ME
-2 FAT SES
-w LKR
-C FAN
-Gi RS:
-DENT FE
-à PE:
-9 a #$ » FU TR
-‘49 Le
-= + TES FE
-241] 'ESPEE
-Ka 21 ANT)
-R4 | ARE
-LEFT ARE [ #3 ai
-À : à 11000
-y à : 08) #:
-\ ; 15 ORDER
-2 Nue
-(AE | j No ui
-F1/041 {10
-AA PPPAL 3 2640
-Ant | 14 1 PAL
-{ A0
 
 Tél ie M e (St RAT * PES ù L
 re ET RE UMTE STE fon Ha ani NOT NH RE TN
-LAS RMD TS ANRT ANNEE CR ETS A DEEE ET R VAR à
-PEUX + + Le AT TES a ri LE É BA k FER v
-“ na 5]
-ae
 A Sur les œuvres et les travaux de Jérôme et Jean :
-Dr, . 2 72
 nu raud, — romans et contes, — publiés dans les édit
 RSC) des cahiers antérieures à la fondation des cahier
 ‘R dans les trois premières séries des cahiers, se référe
 À Ne Sixième cahier de la quatrième série, cahier de c
 sr rier, courrier de Paris, inventaire des cahiers
-FRS 4
 M: forme de catalogue, un cahier de 72 pages, un fi
 :S = Nous publierons dans un cahier de la cinquième s
 2e le relevé sommaire des romans et des contes pu
 |. 758 dans la quatrième série de nos cahiers.
 
-\:488
-fe Le ‘
-l ‘4 d
 #
 | à Le courrier que l'on va lire a été publié pour la,
 : (1 mière fois, mais abrégé de plusieurs pages, dan
 | 12 Renaissance latine ; aujourd'hui nous en publion
 |" AURONE texte entier ; ce courrier a été rédigé en commun
 Ex : M. Henri Lebeau, et par Jérôme et Jean Tharaud :
-F 12 sg
 #1 #
 
-d AR DS CO CLP TT NA LL ae TD US OT PC ORREES
-
-4 \ es
-
-E j 4 À
-BEAU ET THARAUD 4 c
-MOINES DE L'ATHOS 4
-Constantinople, 21 juin 1902
 e voyageur qui désire visiter les monastères de ;
 hos doit, à Constantinople, se munir d'une double re- k:
 imandation. Il lui faut d'abord obtenir du patriarche
@@ -1374,11 +1149,8 @@ ses reconnaissent la suprématie du patriarche grec, |
 'est pas mauvais, nous dit-on, pour être reçu avec 4
 ucoup de bonne grâce, d'arriver chez eux avec une {
 re du représentant du tsar auprès du sultan, — alors À
-Zinovief. ft
 ans le caïque qui nous emmenait à travers la Corne à
-4 ;
 
-: je
 4 Lebeau et Tharaud
 d'Or de la rive de Galata au Phanar, on nous conte que
 3 Sa Sainteté Joachim III avait été deux fois élu patriarche
@@ -1413,15 +1185,12 @@ sommes introduits auprès de Sa Sainteté, qui se lève.
 c'est un homme gigantesque, d'une grande beauté, dans
 la force de l'âge. Au mont Athos nous vimes des barbes
 
-MOINES DE L'ATHOS
 merveilleuses : nous ne devions pas en voir de plus
 belles. Une simple croix d'or brille sur sa poitrine. Il
 nous reçoit debout; son secrétaire lui chuchote d'où
 nous venons. Alors il s'écrie d'une voix retentissante
 qui remplirait Sainte-Sophie, — si Sainte-Sophie, hélas,
 n'était devenue mahométane :
-
-— Ah! ah! Sie kommen von Pest!
 
 Nous acquiesçons de la tête. La conversation se
 serait ainsi poursuivie quelques minutes en allemand,
@@ -1478,10 +1247,6 @@ de la mer, se font remarquer les unes aux autres les
 menus incidents qui rompent la monotonie du voyage
 et les commentent avec des gestes animés. Nous les
 
-AA |
-
-ÿ 4
-MOINES DE L'ATHOS
 retrouverons bientôt à l'Athos, tous ces pèlerins, promenant de couvent en couvent leur foi aveugle et leurs
 loques à l'indéfinissable odeur, pareils à un troupeau
 . de grands enfants mal tenus.
@@ -1509,20 +1274,15 @@ le visage était rubicond d'un récent coup de soleil :
 — Votre face est rouge comme la mienne : nous
 sommes tous les deux nés dans l'Aurore!
 
-22 juin
-
 Nous sommes réveillés, le lendemain, par des chants
 et des prières. Des pèlerins russes sont debout, tête
 nue, rassemblés autour d'une large ouverture carrée
 
 _ découpée dans le pont. Un prêtre officie à fond de cale
 | et les paysans assistent à l'office, groupés dérrière lui
-45 I.
 
 É - rs exe TU és
-= ‘.
 Lebeau et Tharaud /
-k
 
 dans un profond recueillement : ceux qui n'ont pu 4
 trouver place au fond suivent d'en haut la cérémonie. i
@@ -1561,7 +1321,6 @@ points blancs, les monastères etles skites.— On nomme 4 |
 ainsi des couvents en quelque sorte secondaires, par- 1
 fois très considérables et très peuplés, mais n'ayant
 
-: Pr ; é SRISS ANNEES Lei
 | MOINES DE L'ATHOS
 pas le rang officiel de couvent, parce qu'ils n'envoient
 pas de délégué au conseil central de Karyès. — Un de
@@ -1594,7 +1353,6 @@ crénelées. Dès le onzième siècle, les moines ont dû ‘
 . fortifier ainsi leurs enceintes pour se défendre contre
 | les attaques répétées des pirates, qui les assaiïllaient
 encore au seizième siècle. Les couvents de Saints-Pierreet-Paul, de Saint-Grégoire, de Simopétra, resteront
-L 47
 
 Lebeau et Tharaud
 dans nos mémoires comme les plus singuliers types
@@ -1614,18 +1372,15 @@ mer est toute rose. Les montagnes à l'horizon baignent
 dans une lumière violette et dorée. Le débarquement,
 qu'éclaire toute la splendeur d'un soir d'été oriental,
 s'opère au milieu des cris ; moines et pèlerins se bousculent. On voit sortir du fond de la cale d'étranges
-choses : vieux lits, vieilles glaces, cages à poulets,
 armoires démantibulées, tout un bric-à-brac poussiéreux qui dormait Dieu sait où, et que les moines
 apportent là comme des trésors. Trois petits garçons
 musulmans, conduits par un vieux maître d'école,
 achèvent gravement un repas composé en majeure
 partie de concombres et de pastèques, et considèrent
 ce spectacle avec une indifférence tranquille d'êtres
-A. supérieurs.
 Il est trop tard pour songer à gagner Karyès : il faut
 s'arranger pour passer la nuit à Daphni. Nous entrons
 
-MOINES DE L'ATHOS
 dans l'unique auberge de l'échelle, et nous prenons R
 pour la première fois contact avec la saleté et la ver- |
 mine de l'Athos. Le patron de l'auberge, un Albanais
@@ -1677,7 +1432,6 @@ vont rejoindre leurs couvents ou skites respectifs, qui à
 pied, qui à mulet. Nous avons dormi tout vêtus, couchés sur nos manteaux. Hélas ! la vermine pourtant est
 triomphante ! Mais la mer est là, heureusement, et les
 grèves de l'Athos n'ont pas leurs pareilles ! |
-Daphni, 23 juin
 Nous préparons, nous aussi, notre bagage et nous
 descendons, par des couloirs empuantis de relents
 d'ivrognes, vers le môle de Daphni. La matinée est È
@@ -1685,11 +1439,6 @@ superbe. Des mulets sont à la porte : on charge notre
 hejbe, (1) et en route pour Karyès. |
 () Sac turc à deux poches, séparées par une ouverture qui
 s'engage dans le troussequin de la selle.
-: 50 \ |
-
-Re PT oi
-
-MOINES DE L'ATHOS ;
 
 Tout de suite l'étroit sentier grimpe dans la montagne. K
 
@@ -1709,7 +1458,6 @@ le pas de nos mulets, le scintillement de la mer audessous de nous, l'éclat du 
 d'un peu de vie primitive, tout concourt à nous assoupir |
 doucement, nous fait fermer à demi les yeux de volupté.
 
-Matinée divine !
 Au fond d'une vallée nous nous arrêtons un instant
 sous l'ombre fraîche de gigantesques platanes, et nous
 recommençons de monter un sentier dallé de larges
@@ -1721,7 +1469,6 @@ source voisine : nos mulets s'abreuvent à la rigole;
 lagoyate, — conducteur de chevaux ou de mulets, —
 puise à la source dans une coupe de bois. A mesure
 que nous montons, les châtaigniers et les chênes remplacent les oliviers et les vignes. Des prairies étroites
-I
 
 Lebeau et Tharaud |
 au milieu de bois de sapins font songer à des paysages alpestres. Le sentier est bordé des deux côtés
@@ -1749,13 +1496,11 @@ hagard, un homme, qui se distingue des autres consommateurs par ses vêtements e
 l'oreille. |
 — Mystère. tout est mystère... Les nuages amèneront 4
 une flotte Ah! les poules! ils ne veulent pas de
-poules !.… Ha ! ha ! 4
 Et le bonhomme, en nous regardant, éclate de rire. |
 Les yeux de Johann disent en nous regardant :
 — Encore un fou, bien sûr. Pays cocasse !
 Pendant que l'hôtelier nous sert, une sorte de sacrisb2 K
 
-MOINES DE L'ATHOS
 tain assis à quelques pas de nous nous glisse un papier
 - dans la main, où nous lisons :
 
@@ -1791,13 +1536,8 @@ l'Aghion Oros des skites qui par leur splendeur écrasent
 les vieux couvents grecs. Pourtant ce sont les Grecs
 qui possèdent la terre de la sainte montagne. Ils n'en
 
-AA 53
-
-Me.
-
 ‘ Lebeau et Tharaud 4
 aliènent aux Russes que des parcelles, et au prix de '
-quelles luttes !
 
 Le Seraï est construit sur le type traditionnel des couvents de l'Athos : une enceinte de bâtiments, une cour.
 
@@ -1833,7 +1573,6 @@ palikares, — à l'air insolent et qui font songer, avec F
 leurs fustanelles bouffantes, à des paons, — la ceinture À
 pleine de pistolets et de coutelas, préparent sur un É:
 
-À MOINES DE L'ATHOS
 réchaud à charbon du café à la grecque. En face, de
 l'autre côté de la cour, sur un balcon tout semblable,
 des soldats turcs, — la garde du kaïmakam, — font
@@ -1895,7 +1634,6 @@ Demain, nous devons revenir au protaton. Le secré-
 taire nous remettra une lettre pour les higoumènes et
 
 : épitropes des monastères grecs, russes, serbe, bulgare,
-roumain.
 
 Nous prenons congé des moines pour aller chez le
 kaïmakam. Le jeune fonctionnaire égrène toujours
@@ -1961,7 +1699,6 @@ une Française de Châlons-sur-Marne, qu'il a fait ses
 de malheurs, qu'il ne s'explique pas, il s'est engagé à
 
 | DO D
-i VA
 
 4 Lebeau et Tharaud
 la légion étrangère, a servi trois ans à Saïda. Il est à
@@ -1993,20 +1730,16 @@ Le fou continue de parler, intarissable comme l'eau
 
 . de la source qui s'égoutte derrière nous. Il parle de
 politique, vaguement. Il prévoit une apocalypse au
-mont Athos :
 
 — Les nuages amèneront une flotte. Et alors, vous
-devinez ! j
 
 Et il rit d'un rire convaincu et plein de sousentendus.
 
 Il accuse les moines de conspirer la chute de l'empire
-ottoman :
 
 — Des négriers, je vous dis, les chefs de la jonction...
 précisément... Cela est mystérieux qu'on les laisse
 
-MOINES DE L'ATHOS J
 ici. ha ! ha! les jongleurs de la Turquie. Prenez garde
 surtout, si vous restez quelque temps ici, qu'on ne vous
 empêche ensuite de retourner à Constantinople.
@@ -2037,8 +1770,6 @@ tout cela, et il y voit un symbole de la bonne entente
 qui règne en ce moment entre France et Russie. Tout à
 coup ses yeux tombent sur une estampe barbare où l'on
 
-: |
-
 s Lebeau et Tharaud
 
 ‘à voit une armée en déroute, sous la neige, poursuivie
@@ -2053,7 +1784,6 @@ aigrelette de bon petit vieux, en faisant le geste de
 
 | balayer le plancher :
 
-— Cosaques... Cosaques.… Napoléon.… eh! eh!
 Dieu l'a voulu.
 
 é Simple et touchante philosophie !
@@ -2084,21 +1814,17 @@ de l'iconostase s'ouvre, laissant apercevoir, tout au
 fond de l'abside, les prêtres à l'autel, revêtus d'ornements sacerdotaux anciens d'une richesse inouïe.
 
 Pour sortir de l'église, il nous faut passer entre des
-corps, prosternés pêle-mêle, d'innombrables moujiks
 venus en pèlerins et qui assisteront, eux aussi, à l'office entier, priant et mélant leurs voix à celles des
 
-MOINES DE L'ATHOS
 moines. Nous allons dormir, non sans qu'on nous ait
 offert encore le thé cher aux moines russes, d'autres
 verres de vin, d'autres gâteaux acidulés au goût douceâtre.
-Karyès, 23 juin
 
 Le lendemain nous avons vite fait de visiter le Seraï.
 Dans l'église entrevue hier à la lueur des cierges tout
 est neuf, clair, verni, doré, rutilant et d'un goût plus
 détestable que celui des magasins de la rue SaintSulpice. Nous regrettons l'intimité de la vieille église
 du protaton au jour discret, imbibée d'encens et de
-prières.
 
 Sur de vigoureux chevaux cosaques, accompagnés
 du père Isaac, nous nous mettons en route pour le couvent de Saint-Pantéléimon. C'était autrefois un couvent
@@ -2116,11 +1842,7 @@ de la viande, des liqueurs! Ils peuvent fumer! Par
 exemple, le couvent où nous allons gun caviar excellent ! Ce moine botté, énorme, à cheval sur une énorme
 bête, un immense parapluie d'un vert déteint sous le
 
-e “
-
 | Lebeau et Tharaud
-
-F1
 
 130 bras et aspirant à de plus substantiels repas, dans ce
 0 décor prodigieusement beau d'arbres, de rochers, de
@@ -2134,7 +1856,6 @@ Fr . montagnes et de mer, nous rejette très loin dans le
 ‘4 létable. Nous nesommes pas depuis cinq minutes dans
 LE notre chambre qu'on frappe à la porte.
 
-Pi: — Entrez!
 ‘0 C'est le père Anaximène, un grand seigneur russe de
 M. Toula, voisin de campagne de Tolstoï, Français par sa
 ‘1 mère, polyglotte et fort aimable, qui s'avance vers nous
@@ -2150,7 +1871,6 @@ k Il nous propose un bain de mer avant le déjeuner.
 à sive et nous engageons dans une allée de cyprès, d'ifs
 Ÿ et de lauriers-roses géants. Le père Anaximène paraît
 à : sincèrement gai de voir des hôtes. Il nous parle des
-He. moines en riant.
 
 1 — lis ne se lavent jamais. Ils considèrent la propreté
 ve comme un péché. Ainsi, tenez, moi, je suis un objet de
@@ -2163,15 +1883,12 @@ L premier déshabillé, car il est nu sous sa robe.
 
 | 62
 
-; >
-L MOINES DE L ATHOS FE:
 En revenant au couvent, il nous parle de Tolstoï, de à
 son excommunication par le saint synode. ‘1
 — Cette excommunication, nous dit-il, est une folie. *
 On ne s'attaque pas à un homme comme Tolstoi. Pour
 moi, je le crois sincère. Ah! quel bien il aurait pu ,
 faire en Russie à la cause de la religion s'il avait {
-voulu ! 1
 Tout autour du couvent, une activité fiévreuse. On
 bâtit de toutes parts. Deux surveillants à vaste chapeau à
 de pailie plat, à face mongole, si pareils l'un à l'autre
@@ -2183,7 +1900,6 @@ l'esprit large, sont de religions et de rites différents,
 mais ils s'entendent très bien et sont faciles à mener,
 pourvu qu'on leur paie leur salaire. :
 Comme nous nous étonnons de l'étendue des con- +0
-structions neuves :
 — Oh! nous sommes riches, répond le père Anaximène, très riches. Les moines de l'Athos sont très
 vénérés en Russie. On nous y considère comme des
 saints. — Il rit d'un rire méprisant et ironique. —
@@ -2194,7 +1910,6 @@ est aujourd'hui plus difficile qu'autrefois d'obtenir un
 passeport pour faire un pèlerinage à l'Athos; il est surtout très difficile pour nos moines de retourner en
 Russie : ils doivent avoir une autorisation du saint
 
-à
 Lebeau et Tharaud
 | synode. On trouve qu'il nous arrive trop d'argent...
 Ah ! tenez, voici l'ossuaire du couvent. Voulez-vous
@@ -2237,15 +1952,11 @@ découpés à jour, de poissons, de petits cyprès.
 
 64 6
 
-h
-MOINES DE L'ATHOS
-
 Le frère vendeur déploie devant nous une bande de
 toile grossière où est imprimé, dans toute sa longueur,
 un Christ en croix.
 
 — Mais ce linceul est trop étroit pour que le mort y
-soit roulé ?
 
 — Aussi bien, répond le père, le cadavre du pèlerin
 n'est pas roulé dedans. On pose cette bande de toile
@@ -2270,7 +1981,6 @@ soleil, seize cents chapelets. Oh ! c'est une religiosité
 de sauvages !
 
 Sommes-nous au Tibet, au pays des moulins à
-prières ?
 
 Nous regardons le père Anaximène, étonnés. Ses
 jugements sur les moines sont toujours durs. Comment
@@ -2278,8 +1988,6 @@ s'expliquer que cet homme intelligent et instruit soit
 venu échouer ici et qu'y étant venu il y reste ?
 
 Il n'a pas de livres. Pour se distraire, il résout des
-
-65 IV.
 
 } Lebeau et Tharaud
 | problèmes de mathématiques. Il nous parle de M. Flamj” marion, qu'il considère comme un grand esprit et un
@@ -2311,8 +2019,6 @@ ce bon terreau où croissent des cactus, des vignes, des
 figuiers, des glycines, de merveilleuses roses. Car
 aucun de ses élèves n'a la vocation du jardinage.
 
-:
-MOINES DE L'ATHOS 1
 — Voyer-les, dit-il au père Anaximène en lui dési- 2
 gnant d'un mouvement de tête deux longs/jeunes gens
 hâves aux soutanes maculées, voyez-les, c'est toute une Ù
@@ -2364,14 +2070,11 @@ Anaximène. Je me souviens, il y a quelques années,
 
 : de Circassie. J'en ai même acheté trois pour mon
 
-É compte.
-
 | — Vous les avez gardées longtemps, mon père ?
 
 : — Non, quelques semaines. Je m'ennuyais à Constan-
 
 | tinople, et je ne pouvais songer à emmener ces femmes
-en Europe.
 
 — Et qu'en avez-vous fait? Vous les avez revendues?
 
@@ -2389,16 +2092,11 @@ sa vie monogame.
 Quant à la polyandrie, elle ne lui semble pas le
 
 | moins du monde contre nature. Il l'a rencontrée en
-Asie centrale.
-2{ juin
 
 Les moines russes sont très hospitaliers, mais ils
 n'ont aucun souci de la liberté de leurs hôtes. Ils ne
 leur laissent pas faire un pas sans les surveiller. Cette
 
-; 68
-
-MOINES DE L'ATHOS À
 gêne continuelle est insupportable. Aussi quittons- F
 nous le Roussikon sans beaucoup de regrets. Nous
 allons voir si les Bulgares sont aussi tyranniques.
@@ -2425,7 +2123,6 @@ fense. Nous arrivons au Zôgraphe à la nuit. Il dresse
 ses immenses murailles en pleine montagne, au milieu
 des bois. Presque en même temps que nous arrive au
 couvent notre ami le kaïmakam, suivi de son soldat en
-bas roses.
 
 Le père Anaximène, très respectueux, le traite
 d''Excellence, ce qui nous étonne, étant donnée la façon
@@ -2464,12 +2161,9 @@ s: pierres de prix. Jadis, selon la légende, cette figure à
 
 vertu de son pouvoir surnaturel. C'est là l'origine
 
-70 î
 |
 
-MOINES DE L'ATHOS
 du nom même du couvent : Zôgraphe, qui signifie k
-peintre. À
 L'église est riche aussi en reliquaires d'argent. Le à
 sacristain qui découvre les reliques est un jeune frère !
 au front bas, mangé par une toison de cheveux noirs, À
@@ -2483,11 +2177,9 @@ vénérables des saints. Le moine bulgare qui nous fait |
 visiter Le couvent, le père Euphorion, est d'une timidité
 enfantine. Il n'a pas le courage de résister à cette jeune
 brute : il se contente de nous dire avec une grimace
-résignée : À
 — C'est un fanatique! k
 Ensuite il nous fait visiter de haut en bas le couvent, |
 confus assemblage des édifices les plus variés : tours,
-chapelles à coupoles, kiosques peints, buanderies, 3
 appartements pour les moines et les étrangers. La
 cuisine, le réfectoire, les cours et le cloître sont de
 proportions colossales : le couvent a dû être autrefois
@@ -2499,7 +2191,6 @@ foncé, de vert. A chaque pas des tableaux, gravures,
 chromos, panneaux sculptés, qui tous ont pour sujet la
 légende de saint Georges. Dans le salon où nous |
 reçoivent les deux supérieurs, dont l'air affable et la
-bonne humeur rabelaisienne contrastent agréablement
 
 Lebeau et Tharaud
 û , avec l'hostilité des moines de l'église, une admirable
@@ -2518,7 +2209,6 @@ k ji plus haut que les frêles balcons coloriés perchés çà et
 ; d'hirondelles se donnent la chasse dans le jour finis-
 
 “ sant et crient.
-$ 25 juin
 Le lendemain nous quittons le couvent, dont nous
 - n'avons pu visiter la bibliothèque, les moines ayant
 imaginé toutes sortes de prétextes pour nous empêcher
@@ -2533,10 +2223,6 @@ père Anaximène, qui repart au Roussikon, et nous
 prenons la route de Vatopédi. Nous sommes confiés
 aux bons soins du père Euphorion, le seul moine du
 Zôgraphe qui parle français. La vie de couvent semble
-ane
-
-F ‘
-MOINES DE L'ATHOS y
 
 m'avoir eu aucune influence sur le père Anaximène.
 On ne saurait en dire autant du père Euphorion. Le
@@ -2580,19 +2266,10 @@ S — Des cabinets modernes, monsieur, avec de l'eau.
 
 Il nous tarde d'arriver dans un aussi confortable
 
-; couvent.
-
 - Le vin qu'on nous y a servi délie la langue du père
 
 | Euphorion. Il devient même bavard. Il se lance dans la
 
-_ métaphysique.
-
-À vY
-
-Las
-
-\
 Lebeau et Tharaud
 
 — Le progrès, nous explique-t-il, est une illusion.
@@ -2627,8 +2304,6 @@ Mais le père semble craindre d'en dire trop long.
 Nous lui parlons du genre de vie des moines bulgares,
 il nous répond : ;
 
-MOINES DE L'ATHOS
-
 — Messieurs, connaissez-vous Assouân ? Quelles
 cataractes ! Vous savez, n'est-ce pas, qu'on a découvert
 à Lougsor, sur un bloc de granit rouge, le plan détaillé
@@ -2660,8 +2335,6 @@ ornée de fleurs, s'accolent aux murailles du couvent :
 … de grands filets et des voiles rouges pendent des balus_ trades en planches. Nous regardons tomber le soir au
 bord de la mer. Des pêcheurs de Longos et de Cassandra, les jambes nues, habillés de haillons, tirent à la
 
-y
-
 té, ÿ Lebeau et Tharaud
 À grève, rangés sur deux files, un long filet maintenu au
 it fond par des plombs, dont une barque montée par deux
@@ -2674,8 +2347,6 @@ ee Chalcidique font-ils cette pêche primitive, que nous
 % plus vénérées de l'Athos, tellement sainte que nous
 ï. ne pouvons l'apercevoir qu'en passant et à la hâte : les
 * moines ne souffrent pas qu'on s'attarde à la contem- » pler.
-Me
-Ah 26 juin
 ‘à Pantocrator, qu'un cap rocheux sépare de Vatopédi,
 ; est un couvent bien déchu de son ancienne splendeur.
 ; Quelques moines y vivent chichement du produit de
@@ -2692,8 +2363,6 @@ f précédente deux peintres français ont fait à Panto-
 qu'on puisse imaginer : elle est haute, grande, éclairée
 Ë par la double lumière qui vient du ciel et de la mer.
 Dans les murailles rougeâtres de la cour sont enchâs76
-
-\ MOINES DE L'ATHOS
 
 , sées de vieilles faïences turques aux tons éteints; une
 double porte bardée de fer et qui date du haut moyen
@@ -2763,15 +2432,11 @@ Son imagination lui représente une éternité de
 É Ce jeune homme nous donne, nous ne savons pour-
 ; quoi, une impression de chrétien des premiers temps
 du christianisme : un jeune Syrien, adorateur de
-nn
 
-1e
-MOINES DE L'ATHOS
 Mithra, qui se serait converti à la doctrine du Christ.
 Avec son teint chaud d'olive mûre, sa belle barbe
 frisée, ses traits réguliers, ses yeux d'une douceur
 féminine, on le verrait mieux prêtre d'une religion plus
-sensuelle.
 
 Le soir, nous l'admirons, dans l'église faiblement
 éclairée par les cierges, tandis qu'il chante de sa belle
@@ -2781,8 +2446,6 @@ l'église grecque; sa figure grave et mystique semble
 transfigurée. Ce n'est pas sans émotion que nous lui
 dirons adieu le lendemain, au bas de la rampe bordée
 de lauriers qui accède au couvent.
-
-28 juin
 
 A l'Athos les couvents se suivent, mais ne se ressemblent pas. Du couvent d'Iviron nous garderons le
 souvenir du corps de garde le plus malpropre où nous
@@ -2803,8 +2466,6 @@ l'église et la bibliothèque. Ce couvent a été l'un des
 plus pillés par des visiteurs peu scrupuleux, philologues ou collectionneurs. Aussi les moines sont-ils
 devenus très méfiants. Le moine qui nous montre les
 
-“47 à
-ns à
 "10 Lebeau et Tharaud ;
 13 , livres ne nous quitte pas des yeux : il nous fait voir
 2 des manuscrits dont toutes les miniatures et initiales
@@ -2824,7 +2485,6 @@ Fe Assis pêle-mêle sur des tas de foin odorant qu'on vient
 | © marins de Longos, où la race grecque s'est conservée
 x: pure de tout mélange.
 | . 29 juin
-VE
 ; D'Iviron à Lavra la route est longue : nous n'arrivors
 È qu'à la nuit au couvent fondé par saint Athanase à
 ! 1: l'extrémité méridionale de l'Aghion Oros. Précédés
@@ -2836,7 +2496,6 @@ par de périlleux escaliers ou le long d'argiles glis-
 (E et fin, où le bruit de la mer se mêle au bruit du vent
 ne. dans les arbres. Sur un escarpement rocheux qui
 k s'avance en éperon dans la mer se dresse une tour
-ë 80 -
 
 | MOINES DE L'ATHOS .
 carrée à baies en ogive; derrière, là où cesse le rocher,
@@ -2870,9 +2529,7 @@ vents sont si capricieux que la traversée demande
 quelques heures ou quelques jours.
 Plus nous avançons vers Lavra, plus la forêt devient
 épaisse. Des sources s'égouttent dans les taillis au
-81 v.
 
-RR . “is
 ï Lebeau et Tharaud :
 V pied de châtaigniers séculaires. La lueur rosée qui
 u flamboyaïit au sommet du mont Athos s'est éteinte. La
@@ -2891,7 +2548,6 @@ G des lignes on aurait des mois de bonheur... La vie nocturne de la forêt s'év
 td glissent sous les branches; un renard en chasse glapit
 | au loin; un oiseau plonge vers la mer d'un vol lourd.
 - Les eaux courantes changent de voix.
-% Lavra!
 °# L'agoyate nous montre du bout de son bâton,
 | ‘ au-dessous de nous, au milieu des oliviers, l'immense
 ÿ couvent qui domine la mer. L'allée qui mène à la
@@ -2905,8 +2561,6 @@ Go: Par la beauté de son site, par le pittoresque, l'im-
 \ merveille de l'Athos. Le voyageur qui n'aurait visité
 K que ce seul couvent emporterait de la montagne sainte
 144 une vision éternelle de beauté. L'antique enceinte
-
-MOINES DE L'ATHOS
 
 carrée, flanquée de tours aux quatre angles, est restée
 debout. Çà et là dans la muraille, des lézardes, envahies
@@ -2987,10 +2641,6 @@ rouge de la féerie de couleurs des jardins d'Orient?
 SR Ici, où toutes choses ont un air ancien, les moines ont
 conscience de la valeur des trésors d'orfèvrerie, pré-
 
-84 :
-
-: MOINES DE L'ATHOS
-
 sents des empereurs, que renferme leur église : ils ne les
 montrent qu'avec respect et suivant les règles d'un
 cérémonial impressionnant. Devant l'iconostase en
@@ -3021,15 +2671,9 @@ qu'on nous a faites dans tous les monastères :
 
 — Vous venez copier des manuscrits ? j
 
-— Non.
-
 — Vous venez photographier, alors?
 
-— Non.
-
 Nous avons ainsi souvent regretté de ne pas avoir
-
-\ — TM
 
 Lebeau et Tharaud
 
@@ -3039,8 +2683,6 @@ simples un appareil photographique est encore une
 
 | machine mystérieuse, et qui confère de l'autorité à son
 | porteur.
-
-premier juillet
 
 C'est de Lavra que l'on part pour faire, en deux
 
@@ -3076,21 +2718,15 @@ les méprise moins que les Grecs, parce que ceux-ci ont
 maille à partir avec le kaimakam. Dernièrement, quand
 il construisait son église, le kaïmakam est venu lui
 demander s'il avait une permission du sultan. L'épitrope a mis le fonctionnaire à la porte par les épaules
-en criant :
 
 — Le sultan, c'est moi!
 
 ù Et ce sultan en soutane ajoute, en fermant à demi ses
 gros yeux bleus à fleur de tête, que traversent parfois
-d'inquiétantes lueurs :
-
-86 :
 
 |. rt MES Listes AR AN PTT NT PEER TT | 4 FA
-MOINES DE L'ATHOS
 
 — Ah! si vous saviez le russe, je vous en raconterais,
-allez! »
 
 Oh ie grêle, l'occidental kaïmakam de Karyès ! Cet
 épitrope l'aurait écrasé d'un coup de poing.
@@ -3105,15 +2741,12 @@ Il faudra se lever de bonne heure.
 
 — Vous trouverez là-haut, avant d'arriver au sommet,
 nous dit le père, un vieil homme, un vieil ermite barbu,
-noir, noir, noir, (mâvro, mâvro, mâvro).
 
 Le vieil homme doit évoquer à l'épitrope une vision
 des plus cocasses, car il se rejette en arrière sur sa
 chaise, un verre en main, les jambes en l'air, ses cheveux
 hérissés, en riant aux éclats et répétant d'une voix
 étouffée par les rires:
-
-— Ah! mâvro, mâvro, mâvro!
 
 Cet ermite s'impose sans doute des mortifications
 exagérées, pour qu'il le traite si irrévérencieusement.
@@ -3125,7 +2758,6 @@ De bonne heure, à pied, nous avons commencé l'ascension de l'Athos. Par des es
 le chemin monte à travers des bosquets où errent en
 
 à Lebeau et Tharaud
-*
 4 liberté de robustes chèvres ; bientôt toute végétation
 ; cesse, et l'on grimpe au milieu des éboulis calcaires
 k jusqu'au cône dénudé qui, dès l'antiquité, portait le
@@ -3157,9 +2789,7 @@ Kurrachee pour aller à Lavra. Nous sommes accueillis
 Ne par un jeune moine du pays des cosaques du Don,
 blond, les cheveux frisés, timide comme une fille, char-
 ! mant. Il nous parle de la vie des cosaques, de leurs
-88 7e
 
-MOINES DE L'ATHOS
 chants, de leurs danses, de leurs oatumes, en un grec
 très correct :
 
@@ -3167,7 +2797,6 @@ très correct :
 ouverte une école grecque, où l'on enseigne la langue
 grecque et la théologie. Beaucoup de moiïnes grecs la
 fréquentent. C'est là que j'ai appris ce que je sais de
-grec.
 
 Nous causons des écrivairis russes. Celui qu'il pré-
 fère, c'est Pouchkine. Le nom seul de Tolstoï lui est
@@ -3180,15 +2809,11 @@ tout ce qui n'est pas l'orthodoxie russe chez ce jeune
 moine si intelligent et instruit, enlevé dès douze ans à
 la vie à demi barbare du steppe !
 
-3 juillet
-
 Les sentiers de la côte méridionale sont plus escarpés
 encore que ceux de l'ouest. La montagne tombe presque
 à pic sur la mer. Même, pour aller du couvent de
 Saint-Denis à Simopétra, il est plus sûr de prendre une
-barque. ?
 
-Saint-Paul, Saint-Denis, Saint-Grégoire, perchés au
 sommet de rochers dominant des torrents furieux,
 évoquent le temps où les pirates écumaient cette côte.
 
@@ -3233,11 +2858,6 @@ chapelles, le réfectoire commun, l'infirmerie, où dort
 ï un moine centenaire. À la pharmacie, le père pharmacien nous exhibe avec orgueil... de la teinture d'iode!
 L'air du dehors ne circule pas dans ces réduits séparés
 
-90 }
-
-A PARA DENT: L
-“ w
-MOINES DE L'ATHOS
 l'un de l'autre par des murs énormes, parfois creusés
 dans le roc vif : ‘des bosses, des arêtes de granit font
 saillie dans des corridors inhabilement maçonnés. Dernier refuge des défenseurs en cas de siège, une tour
@@ -3252,13 +2872,11 @@ Le jour où il allait être terminé, le couvent entier
 s'écroula d'un coup. Mais le lendemain l'architecte
 stupéfait put le voir debout, miraculeusement redressé
 par la toute-puissance de Dieu.
-4 juillet
 
 Le moment du départ approche : nous devons repasser à Karyès pour remettre au protaton la lettre
 d'introduction qu'il nous a donnée voici quinze jours.
 Dans la salle du conseil, orageux débat... Un muletier
 a laissé vagabonder son mulet dans une propriété
-monastique.
 
 Le muletier s'humilie, demande pardon, s'agenouille
 à trois reprises devant le président du protaton, lui
@@ -3268,10 +2886,6 @@ moine le fait taire d'une voix rude :
 — Tais-toi, tais-toi, écoute !
 
 Le mulet, une jeune bête au beau poil luisant, que
-
-9x
-
-fs = SR.
 
 k Lebeau et Tharaud
 
@@ -3286,20 +2900,15 @@ _plus vite, lui et sa bête.
 
 ecclésiastique, autrefois, dût être plus douce que la
 
-laïque.
-
 ' Le kaïmakam a assisté au débat, roulant son chapelet
 | d'ambre entre ses doigts, l'air distrait. Tout à coup les
-moines se signent. Quelques-uns tombent à genoux.
 1 Tous tremblent et deviennent livides. La veilleuse :
 
 allumée devant la Panaghia se met à danser.
 — Quoi? qu'y a-t-il? demandons-nous ahuris.
 — Vous n'avez pas senti? répond le kaïmakam, qui
 reprend péniblement ses esprits. Un tremblement de
-terre.
 Ê Un peu de café, en effet, s'est renversé dans nos
-f soucoupes.
 Au Seraï, nous retrouvons une ancienne connaissance, le-père Anaximène, qui vient d'y accompagnét
 | deux hôtes : il nous fait de grandes protestations d'aF mitié. Au diner, il s'amuse à faire raconter à un moine
 pèlerin un miracle très populaire en Russie : comment
@@ -3317,9 +2926,6 @@ leur crédulité. De temps en temps il nous jette un clin
 
 Le soir, réception par l'higoumène, un grand vieillard
 
-ga 4
-
-MOINES DE L'ATHOS
 à barbe blanche, très représentatif. Le père Anaximène
 est traité avec beaucoup de déférence par les hauts
 dignitaires. Il est prince. Peu à peu le salon se remplit
@@ -3340,7 +2946,6 @@ comme à un chien. Ce nain, nous dit le père économe,
 est un vagabond roumain échoué ici : le couvent le
 nourrit parce qu'il est polyglotte et sert d'interprète
 entre les entrepreneurs russes et les ouvriers albanais.
-5 juillet
 
 Nous pensions le lendemain nous arrêter au couvent
 de Xeropotamou, où est conservée la patène de sainte
@@ -3352,8 +2957,6 @@ son couvent de saint Pantéléimon; il nous tente avec
 une soupe russe, du caviar, des fruits. Rendus lâches
 par plusieurs jours de carême dans les couvents grecs, .
 nous abandonnons la patène pour un bon diner.
-
-93 E
 
 Lebeau et Tharaud
 
@@ -3403,94 +3006,25 @@ nous heurtons à... notre ami le médecin fou de Karyès.
 
 Pendant les quinze jours que nous sommes restés à
 
-A CR Rene RE .
-MOINES DE L'ATHOS
 lAghion Oros, il est allé à Constantinople, et maintenant il va à Salonique. Il nous semble devenu plus
 raisonnable depuis qu'il a quitté ce fantastique pays,
 _ merveilleux et baroque à la fois. Il parle des moines
 avec plus de liberté, moins d'amertume. Il répète sa
-phrase favorite :
 — Ni femmes, ni poules, ni mules! Ah! ah! Ils sont
 capables de tout!
 Étendus sur le dos, les yeux presque fermés, nous
 regardons la pointe de l'Athos s'éclairer des rayons du
 soleil levant. C'est à demi endormis que nous entendons notre voisin fou s'écrier, avec son étrange rire:
 — Et tout ça avec la devise : Tout pour le bon
-Dieu !
-LEBEAU ET THARAUD
 
-is, ss #3 à HS he MS! (y < | ïé
 ne RU NE EU à HN TRS
-D SR EUR Re SANS
-1 EN AP NÉAER SCALE DEN L PRE NT D OAI CES A 68 ANSE FE NENE PEER
 ou x} | qi ve ? L “ K. M PAT Frs é
 | CARE re { LS CAPE CEE
 FAO ut « ti L Es TN
-MURS D Ù ut 4
-k INA ut vi 4 $ 1 | M 1
-HAN / FAURE ‘1
-% si 4 f 4e {V2
-4 AU ‘# Ÿ ; | Be ” |
-1 LINE À : 42
 | | "ne X Ÿ
-LR ce. j
-He LE: | su É.
-(541 30 ' 3]
-D | à 1
-\ Je L } 1 # an :; (2
-. 0e | VRAIES
 FMI de te
-k js | | ' : Le tu ? & pa
-AU mn | 1
-20 pie 11e
-SAN ‘ ' à
-Re | 4
-Y LS à 4 r j , \ ;
-DSi « | R na.
-5 #< 400
-RL | Ml ; n
-EE RSS | LE 4
-Le \ Un: | |
-APTE À ie à
-107 TUE l L
-DAME Cu ie
-Ts Le À | U.
-CE: Fe à
-EAN > ÿ à à
-HE , | 4
-k ‘ ra F | | |
-é E Man 4 1
-PEat $ À 1 |
 
 |
-LCR LENS F V'AnN 41% à. Nu MUR à L
-Fc CAES h ne 2
-8 s RD - TR
-M. LA ASURES
-à | RE, er
-Lis ÿ 4 ' AE
-Lg > L x
-à à ÉRne
-Fa: Gun RARE
-Ne < CRE:
-NE L
-; a grève d'A 10
-pe rmentières
-2È NT
-= 7 ANNEE
-. : . ù 1 pa d sb Hi
-PE HT ARER
-; ? X 0
-GR ” É fe
-/ RUES
-à ; AE
-} + LATE
-h D
-$: Ve
-(A ; ue | NÉ e x
-1 See È ? RE ES
-TR # Ÿ VI À 441
-4 NE : es |
 
 Dans le neuvième cahier de la quatrième série, almanach des cahiers pour l'an 1903, nous avons publié,
 | d'après le Bulletin de l'Office du travail de novembre
@@ -3502,14 +3036,11 @@ demandé, notre collaborateur a continué depuis à :
 dépouiller pour nous le Bulletin de l'Office du travail;
 il nous a indiqué récemment ce nouveau compte rendu.
 | Le rédacteur en chef du bulletin, gérant, est M. Charles
-Picquenard. F
 Le Bulletin de l'Office du travail de novembre 1903
 publiait le compte rendu suivant, sous le titre : la grève
 des tisseurs d'Armentières et de la région:
 
-; N
 BuLLETIN DE L'Orrice pu TRAVAIL
-GRÈVE D'ARMENTIÈRES
 
 Le salaire des tisseurs de toile d'Armentières et de la
 région avait été fixé par un tarif établi, en 1889, à la
@@ -3517,12 +3048,10 @@ suite d'une grève. Ce tarif, plus élevé que celui des établissements similai
 Nord, avait subi de nombreuses variations. Sur certains
 articles, les prix de façon avaient été réduits et la rétribution d'articles nouveaux, non prévus par ce tarif,
 ne suffisait pas à compenser les réductions opérées
-d'autre part. En septembre, se produisirent à Armentières trois grèves partielles, intéressant 320 ouvriers ;
 deux de ces conflits aboutirent à la consolidation du
 tarif de 1889 avec maintien des prix consentis pour les
 articles nouveaux; la troisième grève, commencée le
 21 septembre, durait encore au moment où le conflit se
-généralisa.
 
 / Le 30 septembre, dans un établissement, les ouvriers à
 de la « préparation » (dont les salaires, ainsi que ceux
@@ -3545,7 +3074,6 @@ Linselles, à Hazebrouck, à Roubaix et, dans le Pas-de- :
 | Calais, à Richebourg-l'Avoué et Sailly-sur-la-Lys. Le
 | 8 octobre, la grêve atteignait son maximum d'intensité;
 150 tissages étaient déserts et l'on comptait 47.500 gré-
-vistes.
 
 Dès le 6 octobre, par un manifeste faisant appel à la
 solidarité de toute l'industrie textile du Nord, le comité
@@ -3562,10 +3090,6 @@ la dernière échéance de la loi du 30 mars 1900, réduisant à 10 heures au 31
 . dans les établissements industriels occupant, dans les
 mêmes locaux, hommes, femmes et enfants, était
 motivée par les craintes qu'avaient fait concevoir aux
-
-t
-
-GRÈVE D'ARMENTIÈRES f
 
 ouvriers les vœux émis par les Chambres de commerce
 de Lille (5 juin), Tourcoing (28 juillet) et Valenciennes
@@ -3600,8 +3124,6 @@ après que les patrons eurent accordé, avec la réduction 5
 immédiate de la durée du travail à 10 heures, une
 augmentation de tarif compensatoire. À la Gorgue-
 
-I0I VI.
-
 Bulletin de l'Office du travail #
 à Estaires, à Comines, à Werwicq, à Richebourg-l'Avoué,
 le travail fut repris le même jour. Les usines de Roncq
@@ -3632,8 +3154,6 @@ durée du travail. Les patrons mirent comme condition
 à leur acceptation la reprise du travail par les gré-
 vistes, avant tous pourparlers, « aux conditions du tarif
 de 1889, intégralement et loyalement appliqué dans
-
-GRÈVE D'ARMENTIÈRES
 
 toutes les usines ». Le préfet organisa un referendum
 qui eut lieu, le 18 octobre. Par 7.264 voix contre
@@ -3666,10 +3186,6 @@ autres centres textiles, des tarifs identiques et que, en
 cas d'insuccès, après un délai à déterminer, le tarif de
 1889 serait rétabli, afin que les industriels d'Armentières
 ne se trouvassent pas, du fait de l'augmentation des
-
-RUES La - FC
-
-!
 
 Bulletin de l'Office du travail $
 frais de main-d'œuvre, en état d'infériorité vis-à-vis de
@@ -3710,9 +3226,6 @@ pour les autres.
 Si tel est, et je n'en saurais douter, votre sentiment, je
 vous propose de mettre fin au conflit par un arbitrage.
 
-À :
-GRÈVE D'ARMENTIÈRES « 8
-
 La mission donnée à l'arbitrage unique ou aux arbitres
 désignés par les deux parties pourrait être ainsi définie :
 
@@ -3748,7 +3261,6 @@ Chambre. Après avoir fait observer que, « au fond, le
 bénéfice réclamé par les ouvriers représentait à peine,
 d'ici au premier avril, la valeur d'une semaine de travail », il concluait en ces termes : « J'ai confiance que
 
-Ve" ! \ TEE
 | Bulletin de l'Office du travail
 
 | vous ne resterez pas sourds à l'appel solennel que vous
@@ -3791,8 +3303,6 @@ des avantages promis au cours de l'entrevue du
 
 3 adressèrent au préfet une lettre donnant, sur ce second
 
-point, satisfaction aux ouvriers.
-
 1. — Le tarif de 1889 sera immédiatement et intégralement appliqué dans tous les tissages d'Armentières et
 d'Houplines. Comme garantie, le dépôt en sera fait au Conseil des prud'hommes.
 
@@ -3805,8 +3315,6 @@ rétroactif à partir du jour de la reprise du travail.
 nouveau tarif de tissage destiné à remplacer, au premier
 avril prochain, le tarif de 1889, jugé défectueux et incomplet par les deux parties.
 
-GRÈVE D'ARMENTIÈRES
-
 Conformément aux engagements pris dans la réunion du
 30 octobre, il sera tenu compte dans l'établissement de ce
 tarif du préjudice causé à l'ouvrier par la diminution des
@@ -3815,7 +3323,6 @@ Les patrons d'Armentières et d'Houplines prennent cet
 engagement dans la conviction où ils sont que la dernière :
 application de la loi Millerand-Colliard amènera fatalement
 les industriels concurrents de la région à consentir des
-sacrifices équivalents.
 
 Mais si, contrairement à leurs prévisions, il était démontré,
 après expérience d'une certaine durée, six mois au maximum, que les sacrifices actuellement consentis par eux
@@ -3847,55 +3354,35 @@ continuait pour les ouvriers et les ouvrières de la
 filature et des tissages de la banlieue.
 
 é ÿ 10e année. — Ke 11 Prix du numéro : 20 centimes . Novembre 1993
-L. BULLETIN
-ri
-L'OFFICE DU TRAVAIL
 M 1 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
-5 SOMMAIRE
-: Mouvement social en France
-Pages
 É Revue du travail en octobre 4 21. LME RER en
-f Situation générale 45.7: 0.4. 100 NN PNPRENENR ER
-r Grèvès en octobre; £ 2:12 2 LR ANNEE ENS
 | Conciliation et arbitrage en octobre. . . . . . . . . 886
 Bordereaux de salaire et de durée du travail en 1902 . 888
 $ ; La grève des tisseurs d'Armentières et de la région. . 892
 Application, en 1902, de la loi du 2 novembre 1892, sur
 | le travail des femmes et des enfants. (Deuxième
-article); LR) 0 CM RER RETS RON EEE
-Jurisprudence
 Louage de service à durée déterminée; défaut de renouvellement. — Louage de service à durée indéterL minée; preuve de la légitimité de la résiliation . . . 907
 | Mouvement social à l'étranger
 Allemagne : Revue du travail. — Placement. — Grèves.
 — Les unions locales de syndicats en 1902. — Les
-secrétariais ouvriers En 1902.44.) MORIN
 Autriche : Placement. — Grèves. — L'inspection du
-travailen 1902.47... LANNPUNPRMNPRRSRRES
 Belgique : Revue du travail. — Placement. — Grèves. 920
 
 | Pages À
-Canada : Revue du travail. — Grèves . . . . . . . . . 920 {
 Chine : Salaire et conditions du travail des ouvriers
 indigènes à Shanghaï et Hong-Kong. . . . . . . . . 922
 Grande-Bretagne : Revue du travail. — Grèves. — La
-participation aux bénéfices en 1902 . . . . . . . . . 993
 Actes et documents officiels
 Circulaire du 23 octobre 1903 relative aux déclarations
 LE TETE OT ARE RER PAS LORS Pme A 7
 Chronique législative : Bureaux de placement. — Le
 budget du commerce. — L'interpellation sur la grève
 HR R TERESA Le ne HA RENE ESS que)
-Hhbdesitravaux lésislaufs 2/04) 4 0 EE 059
-* Renseignements divers
 Analyse, par département, des renseignements fournis : 1° par les associations patronales, etc.; 2° par
 Eirorsespondants "02. CAMES IST UNE Ne
 Analyse, par département, des renseignements fourmis par les associations ouvrières. : . . . .. 1.5.0
-Adjudications ; prix courants divers, commerce exté-
 rieur; transports; faillites; autorisations de bâtir. . 947
-Placement gratuit (troisième trimestre 1903). . . . . . . 949
 Monvementesyndical.:,. er. des A DEN ST
-RAD ERADRIES ZEN ER US Re RS EE re
-PARIS
 BERGER-LEVRAULT et Cie, éditeurs LIBRAIRIE ARMAND COLIN
 5, rue des Beaux-Arts (6° arr‘) 5, rue de Mézières (6° arr')
 Le Bulletin de l'Office du travail paraît tous les mois. On
@@ -3903,99 +3390,22 @@ le trouve chez tous les libraires. On s'abonne également
 dans tous les bureaux de poste et à l'Imprimerie nationale.
 Les abonnements ne sont pas reçus au Ministère du Commerce.
 PRIX DE ( POUR LA FRANCE . . . 2fr. 5o par an
-L'ABONNEMENT { OUR L'UNION POSTALE. 3fr. 50 —
-VII
 
 L'ETAT PR A | CE CO ES rs En ECS Aaron FU A (AT TN
-PA F4 VA ANA AT EMA NT ARE HU LV: | FANR IN
-1 NA TRE fl ET STONE ARS ARTS SE A CU EEE LES JU
-DE dpi R'APTRE TS 0 FRS AÉLRSPCEES : ANA :
-<j CAR ne , PPS
-4 A “ D " * v va # “M 0
-à VRP: AIG 24: NRCIENNSS
-ARR: \ A.
-ALT Le 14 Fee 3
-4 à 7 L l x
-CR L' U Fi KE "4
-(ve | 1) 18 à k
-FX. Fi
- ! # Au:
-12 PÈRE EST 1.4
-AH ; ; PAIX:
-& Rte ; fi
-\ ENS 44
-FRS ; 44
-e :108 * 1 AM. Pt
-PES. pl
-LATE :
 el Le / xs
-Ne: “ ÿ \ ; \7#
-RHONE 1
-4 ps rs 1 x Fi
-hot: L ; E Me
-VO : 14
 
-PR LP x n
-SR EST PTT
-Are, Pi-- Che te VERT ONE
 Je ANR M pate À] J IS AR ï SRE: F2 di
-L ‘ \ CA
-\ 488 "a D
-‘y | FRE 1
-s | PEU . ME
-(V0 JE
-7 fl u : ue
-Re: nc *
-7: to
-ES SPATERE
 cahiers de la guinzai 5
-€ sr "u
-_ Cahiers ae IA QUINZAINE D.
-s Liu, TEE, T0
-F 5 Re
-M Panel.
-. Laws “4
-a
-CN £ se °13 0
 ne - or F4
-È 4 Fe
-n. e AT nd
 
-MES AS TAN EE f DRE UE CT,
-1 ENTRE 5 \ ù À POINTE AN AA
-à S: in $ CA s RE RU AR 1 À
-+ p. s , +: AL CEE
 nn f ce SE NE de
-“te * Le ï 1 4 VOTRE Gr
 Dre 1 DES RARE PA ARE
-LEE « g SUORTEAETENEURS
-‘10 Do.
-LÉGER 4 : sx y reel
-XLR RATE
 FER ONR LE NPAT en sut
-de. AO Ë NE MEET ARS (7100
-LE CRIE HOT ANS
-PA NE 10 SV } US ;
-1 FRAIS PA À " : [ie AA: A
-FE Æ RD Li
-LELDIERE ! ! : Pa Tee
-7 F3 14 (FERA
-LITE PERS * k W'\T 2 10e
-CHER 1 ds 9 VERRINE
-OCEAN è STUNT TER
-DE RNREE L N PIS 4 a
-
-1  CxarLes PÉGUY ,
-
-;
-
-CAHIERS DE LA QUINZAINE
 
 Nos Cahiers sont édités par des souscriptions men-
 - suelles régulières et par des souscriptions extraordi-
 … naires; la souscription ne confère aucune autorité sur
 “ La rédaction ni sur l'administration : ces fonctions
-- demeurent libres.
 
 Ce sont vraiment ces souscriptions qui ont fait et qui
 “ font les éditions des cahiers; éditions des cahiers anté-
@@ -4016,10 +3426,7 @@ premier ordre d'opérations, à qui nous devons laisser
 « aucun esprit de retour; les souscriptions sont exacte-
 | 113
 
-L.
-
 septième cahier de la cinquième série
-ment, absolument, parfaitement données; données au
 sens où donner et retenir ne vaut; ainsi nos souscripteurs sont littéralement avec nous les auteurs, les
 nourriciers et les fondateurs de nos cahiers ; ils en sont
 les auteurs économiques ainsi que nos collaborateurs
@@ -4047,9 +3454,6 @@ croire que si les souscriptions mensuelles régulières que
 nous recevons sont aussi peu nombreuses encore au
 commencement de cette cinquième série, c'est unique-
 
-4e E Ù us Fe A À “ PRES F 24 *
-
-ù 4 hr : MDI ÿ à ; +
 # CAHIERS DE LA QUINZAINE
 ment parce que l'attention de nos amis ne s'est pas
 4 portée assez fermement sur ce moyen et sur son eflica-
@@ -4062,8 +3466,6 @@ s solidité du travail constant; nos cahiers, si considé-
 s rables qu'ils soient, paraissent régulièrement par quin-
 …._ zaine; à cette production régulière il est juste, il est
 “ harmonieux, il est normal qu'une alimentation réponde
-k régulière. \
-“À
 L Souscriptions extraordinaires. Nous avons été puis-
 …._ samment aidés par des souscriptions extraordinaires,
 —._ quelques-unes antérieures à la fondation des cahiers, la
@@ -4078,11 +3480,8 @@ _ commencement de la cinquième; un très grand nombre,
 ” tel ou tel service des cahiers, ou à tel cahier même, soit
 ‘4 que le souscripteur contribue à la fabrication même
 “ du cahier, soit qu'il nous en achète un certain nombre
-‘4 d'exemplaires. !
 à. Emprunt des cahiers. Nous avons nous-mêmes orga-
 “  nisé, au cours de notre troisième série, une opération
-
-% 115
 
 septième cahier de la cinquième série
 financière qui n'était pas une souscription extraordinaire collective, mais que nous avons nommée emprunt
@@ -4115,8 +3514,6 @@ peuvent ne pas se représenter en valeurs espèces
 ni en valeurs marchandises dans nos inventaires; par
 exemple une souscription extraordinaire affectée par-
 
-Net
-_ CAHIERS DE LA QUINZAINE
 à ticulièrement à la fabrication d'un cahier ou à l'achat
 | d'un certain nombre d'exemplaires peut s'épuiser
 | dans cet achat même et dans cette fabrication; au
@@ -4147,8 +3544,6 @@ souscrites : c'est là une clause de texte, uniquement
 destinée à nous garantir contre tous accidents; mais
 nos abonnés peuvent nous demander le remboursement
 
-117 VIT.
-
 septième cahier de la cinquième série
 de leurs parts; et allant au-devant de leur demande
 nous nous réservons le droit de proposer nous-mêmes
@@ -4156,7 +3551,6 @@ lé remboursement ; et, à la rigueur, nous nous réservons
 de l'effectuer d'office; dans la première partie de l'opé-
 ration même, et avant d'avoir obtenu sur son accomplissement des indications suffisantes, nous avons de
 nous-mêmes remboursé quatre parts imprudemment
-souscrites.
 
 Quand nous avons annoncé dans les cahiers cette
 opération particulière, nous avons demandé à nos .
@@ -4179,10 +3573,6 @@ le renouvellement de polémiques anciennes, qui seraient
 justifiées, qui seraient justes, qui nous empêcheraient
 de travailler ; mais c'est malheureusement un fait
 
-F A A4 dede Con alta PEN MR PRES NN DER rte
-
-ke
-À Q CAHIERS DE LA QUINZAINE À
 F- d'expérience aujourd'hui acquis que non seulement les
 sociétés de librairie et d'édition, que dans tous les
 ; ordres du travail et de la production la plupart des en-
@@ -4216,7 +3606,6 @@ résultats d'un essai aussi rare; nous nous devons à
 nous-mêmes, nous devons au public, nous devons à nos
 
 souscripteurs, et à tous nos abonnés, de leur commu119
-;
 
 septième cahier de la cinquième série
 niquer ici les résultats de cette opération; c'est un
@@ -4239,8 +3628,6 @@ partie de l'opération, qui devait en être la seule partie,
 fut que le déficit budgétaire dépassa de beaucoup l'excédent personnel; après que le mouvement de souscription fut arrêté, il s'en fallait d'au moins deux
 cinquièmes que cet emprunt indispensable fût entière-
 
-ment couvert.
-
 J'éprouve toujours un extrême embarras à parler de
 cet emprunt ; non que je sois embarrassé de demander
 de l'argent; c'est une opération fort honnête, pourvu
@@ -4248,8 +3635,6 @@ qu'on la nomme par son nom ; j'en ai contracté depuis
 longtemps l'habitude ; j'étais élève, boursier, de rhétorique ou de philosophie au lycée Lakanal quand je
 demandais à mes camarades leurs souscriptions pour
 Carmaux; et dès lors plusieurs amis accompagnaient
-
-4 CAHIERS DE LA QUINZAINE
 
 mes démarches de leur amitié; c'était le temps des
 
@@ -4294,7 +3679,6 @@ dès lors à nous laisser mourir d'inanition ; mais les
 mêmes hommes aussi qui ont sauvé le peu d'Universités Populaires qui ont survécu firent dès lors tous
 leurs efforts pour nous assurer une alimentation indis-
 
-pensable.
 Je dois dire que plusieurs grosses souscriptions globales, venues de grands capitalistes, nous furent
 acquises d'abord; la plupart demandées et obtenues
 pour nous par ce Bernard-Lazare dont le nom résonnera
@@ -4315,8 +3699,6 @@ quoi le gouvernement des parlementaires politiques
 à radicaux et radicaux-socialistes, qui est éminemment
 un gouvernement de demi-bourgeoïis demi-capitalistes,
 
-\ 122
-
 | CAHIERS DE LA QUINZAINE
 À est aussi, de tous les gouvernements, le gouvernement
 Ë le plus éloigné d'un gouvernement populaire.
@@ -4330,7 +3712,6 @@ mêmes préoccupations ; sur une autre échelle sans
 | doute, mais disposées de même ; car il ya des conditions sociales du travail, générales, universelles, qui
 sont les mêmes pour les plus grosses compagnies de
 chemins de fer que pour les plus petits restaurants
-coopératifs.
 
 Les raisons pour lesquelles ces politiques parlementaires, ces radicaux et ces radicaux-socialistes, ces
 demi-bourgeois demi-capitalistes ne souscrivirent pas à
@@ -4359,7 +3740,6 @@ Les demi-bourgeois demi-capitalistes ont beaucoup
 plus que les véritables capitalistes un faible pour les :
 entreprises véreuses, douteuses, prometteuses; leur
 intelligence économique est beaucoup plus bornée, leur
-compréhension administrative, budgétaire, industrielle,
 commerciale, beaucoup plus limitée; ils ont un éloignement naturel d'une entreprise honnête, qui ne
 promet rien ; ils aiment confier leur argent à de moins
 grands capitalistes, à de moins grands entrepreneurs,
@@ -4374,11 +3754,6 @@ une impression de détresse et d'angoisse; ne leur
 demandez pas de constituer une alimentation saine pour
 un enfant bien né qui a besoin de grandir; ils exigeront
 absolument que cet enfant soit préalablement rendu
-
-à ;
-À LL
-
-4 CAHIERS DE LA QUINZAINE
 
 scrofuleux, si possible, ou qu'on lui casse au moins les
 
@@ -4453,7 +3828,6 @@ pauvre, le misérable budget; je nai pu m'habituer
 encore à cette idée, je ne m'y habituerai jamais, que
 sur ma demande, ou ma recommandation, sur mon
 
-î CAHIERS DE LA QUINZAINE
 instance, ou enfin sur ma réquisition, il y a des hommes
 qui altèrent leur budget de famille; j'ai toujours professé que les devoirs de famille et que les devoirs d'état,
 que les devoirs simples, pauvres etnus, que les devoirs
@@ -4508,19 +3882,12 @@ quand ils sont, par ailleurs, des hommes publics, ayant
 vigoureusement participé à des actions publiques,
 ayant publié, signé des livres, au moins des articles.
 
-À
-
-ÿ CAHIERS DE LA QUINZAINE
-
-)
-
 Quand nous nous interdirions de les prononcer, respectueusement, des journalistes les publient, sans
 ménagement. On me communique un article du Gil
 Blas, numéro du 6 décembre 1903, intitulé la presse
 d'aujourd'hui, la Dépêche de Toulouse, signé Louis
 Vauxcelles, Paul Pottier, où je lis cette fin de phrase :
 un socialiste de l'espèce dite universitaire, collectivisme
-normalien, école Herr, François Simiand, Péguy.
 
 Nous sommes habitués, aux cahiers, à ce que les
 grands quotidiens nous entendent peu ou mal et ne
@@ -4598,13 +3965,11 @@ avec ce que nous nommons le communisme de l'enseignement, il faut ou ne savoir p
 ou trop savoir de mots de la politique. Parmi lesquels
 des deux, ceux qui ont désappris Le socialisme, ou ceux
 qui ont appris la politique, serons-nous contraints de
-mettre Jaurès?
 
 Que si l'effrayant danger d'une usurpation, d'un
 envahissement de la vie vivante par la vie scolaire a
 été constamment dénoncé quelque part, c'est assuré-
 ment dans Pages libres et dans ces Cahiers de la
-Quinzaine.
 
 Sur le collectivisme normalien, je sais parfaitement
 ce que c'est, mais on sait parfaitement aussi que je
@@ -4618,12 +3983,9 @@ caractère, je n'aime pas réussir.
 je n'en suis pas, mais le collectivisme normalien n'a
 pas cessé de poursuivre ces cahiers d'une haine impla-
 
-: 131
-
 septième cahier de la cinquième série
 cable, d'un boycottage économique total, de machinations économiques attentives. Du moins il en était
 encore ainsi, à ma connaissance, au premier janvier 1904, après la rentrée effectuée de la cinquième
-série. À
 
 Par collectivisme normalien si l'on entend quelques
 imaginations scolaires, si l'on veut imaginer un État
@@ -4680,8 +4042,6 @@ un petit contingent d'arrivistes, fermement résolus à se
 pousser dans le monde, quelques-uns par la voie de
 l'enseignement secondaire, devenant de la haute administration, ou, pour parler justement, du haut gouvernement universitaire ; quelques-uns par la voie de l'enseignement supérieur, postulant les chaiïres brillantes
 et les situations retentissantes ; mais la plupart de ces
-133 k
-VIII
 
 septième cahier de la cinquième série
 jeunes arrivistes n'empruntaient que pour l'apparence
@@ -4707,7 +4067,6 @@ des librairies, des éditions, des brochures, des livres,
 des cahiers, occupations misérables et viles, vaines
 occupations de petits boutiquiers, soudainement on vit
 nos jeunes gens se précipiter dans la politique parlementaire ; ils avaient vu, huit ans avant nous, que la
-politique allait rendre; quelques-uns, niais, se glis-
 . sèrent sournoisement, habilement, les maladroiïts, dans
 la politique réactionnaire, — je veux dire la politique
 des réactionnaires professionnels, des réactionnaires de
@@ -4717,8 +4076,6 @@ prolétariat soudain devenu conscient, sous le nomde
 
 > . -
 
-CAHIERS DE LA QUINZAINE :
-socialistes, ministériels, gouvernementaux, se ruer
 comme des furieux à la défense de la République, un
 peu de temps toutefois après qu'ils se furent assurés
 qu'elle ne courait plus aucun danger; on ne pouvait pas
@@ -4780,7 +4137,6 @@ somptueux sur un Champ d'usines et de mort, le grand
 patron capitaliste féodal et réactionnaire, le Motte et
 le Rességuier, est éminemment un homme hors nature;
 
-CAHIERS DE LA QUINZAINE
 j'entends par là qu'en outre de toutes les responsabilités mentales, morales, sociales qu'il encourt, en outre
 c'est un homme qui ne sent pas la nature, qui ne sent
 | pas, physiquement, l'horreur de la juxtaposition, la profonde incompatibilité, la physique, la naturelle contrariété de son palais et de son usine; ainsi le grand
@@ -4807,7 +4163,6 @@ en lui-même, par ses caractères intrinsèques, le bon
 innombrables victimes ne fait pas qu'il est juste; et
 quand un acte est délictueux ou criminel chaque fois,
 l'innombrable répétition de ce même acte ne fait pas
-137 VIIL.
 
 septième cahier de la cinquième série
 qu'il est juste ; et pas plus la répétition par tout le
@@ -4827,73 +4182,13 @@ cessant d'être éloquents, ils redeviendraient justes.
 Heureux l'homme qui sait bafouiller quelquefois, qui
 ne connaît pas toujours la fin de sa phrase, et qui
 n'est pas le maître impeccable de sa péroraison.
-CHARLES PÉGUY
-+
-HR
 
-: ; it ut RS) AN ; L
 Aù PAR He AA AE clé CAE " À
-NAT LE] v C'MARAT Peu 4 4
-SRE a ‘N PARENT PEAR EN AE
 #4 & PNA ù = À + ENT £ | Va TA OR ES
-:. ÈA Rai 212" a L “ k CRT ce 4
-te EN pres t À se
-Que | 4 * (004
-: PTE 4 -
-AT, x 0
-TA AE Re
-FRS Fr :
-Li Mer $ ei |
-SE, x « Dr *
-MO = L %
-D Cr ESS F ÿ ddr
-. ARR
-“ALT TN *
-CH Wa LE CP:
-“6. AREAS ÿ Me À
-pont: à : : VS
-MORE ‘ 1:10
-; BK ee : TER re x
-PNR, 40
-D: * 42
-D LOU, +2
-mn: TE > # h)
-1 # a : 5 ÿ < 15
-, dé d " SL
-100 Es s] :
- :. "47
 
-ÿ SO DATES | EDS Li ANS LOU x 3
 NUS CE Ty et2I0 MEN CET QNE LT PNA ES E P4 Pei A A 4
-7e € NAT 17 LE « 9 RTS
-12 HER Rs n
-:! LTSSRENSS L 1 SE GOT
-“IAE Ru 4
-A KL | | »
-"FANS D:
-TT L : |
-MERE EL nr À 1
-à 5 | à fe ; Te
-Tone . 2
-4 N “He
-N LENS
-38 PANNE à 4
-F6 el 5 g
-‘4 | Ê 4 ER Li 484
-- SA : AR 1 à
-2 ; L e 4 NE
-CMS ; #4 me ni:
-‘LRO te | :
-14,45) ra ae à
 #4 TE
-\ Lu À .
-LEP bi.
-Lis Fe | a |
-113 à = ne
-NACRE 4
-NE LE CSN
 
-f 6 Pages
 Cahier de courriers.
 Henr: Micuer. — Notes sur la Hollande et sur l'intiRÉEL 0 ESANSRAMET N ANEREPREN e n 3
 Henr: LEBEAU, JÉROME ET JEAN THArAuD ». — Moines
@@ -4911,34 +4206,11 @@ IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8372
 
 ee 0 2 RP POE PAS ATLPRN DE RRT
 MR eo DO D RCONE DNA SANT VOS
-A PO AR ON 01e ET De
-Aa) ti, Fes PA TACRPET ROSE RP MOTEUR RER
-EEE ; # k 1 LR NT on 28 LE
-AN 2€ A k } A A EUEN 24 \ F3
-TNIERE Vas AA RE x { FT CERR
 | | FAIRE | Ein PA IÉ OURRS
-JL 1: JR SON 25 40
-! AP RE ANA } RAS RC TS ENRR
-PR ROUE d 2h: QAR RATER À FL
-we 12 PP RAT ES
-4 pa : 5 A Fi à “1 pa ne
-La k : 4 ASE an * PRE à
-1H ù ANT. dr UN PE ME MTS
-CAPE Sr : FLN SR ARS
-RU ! at VER OUT CHR
-D A ÿ k RSR 1e FN CES
-DR, À PAT e PA pe hé
 à L DA È re SAS Es s€ ren
-js SR
 DES Dre. è AIMER nue #
-Rs FUTT AR FLN & LR
-a A Sa 2 | RSA 1e Le
 25: et URLTS ti EE E ne,
-"ait: 200 r— < n di VE
-FREE ; Le ‘ 1 ; EUR
-È / 2 LAN ALTER ONE
 
-A OS TU FU 4 VER LEE ES
 | Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi.
 à naires ; la souscription ne confère aucune autorité sur '
 la rédaction ni sur l'administration : ces fonctions :
@@ -4982,7 +4254,6 @@ A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi depuis le premier
 janvier 1904 la quatrième série se vend trente-cinq .
-francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous

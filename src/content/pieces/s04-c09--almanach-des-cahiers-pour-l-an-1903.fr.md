@@ -7,113 +7,48 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 18659
 ---
-
-à,
-
-NEUVIÈME CAHIER DE LA QUATRIÈME SÉRIE
 des Cahiers
-POUR L'AN 1903
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-DU TAN NP PTS Le QU CR VIE OT ONE ET LCA QUES CU PS RE NT PRO PICN TINEN
-MAT J | # LOIS RENE LS ATP Ar 1
 ÿ : Ü RULES d TL le EC A fes, 14
 } : Pour savoir ce que sont les Cahiers de la Quinzaine,
 4 il suffit d'envoyer un mandat de trois francs cinquante
 11000 à M. André Bourgeois, administrateur des cahiers, À
 | 8, rue de la Sorbonne, Paris. On recevra en spécimens
 : six cahiers de la deuxième et de la troisième série. sa
-1 ÿ, 14
 Nous mettons ce cahier dans le commerce; nous le :
 ( ê vendons un franc M
 il (ER OCPR
-: à NET.
 
-CITE LES - à
 : ne Re El FRS Era 14 :7 VAE
-0 doux PR e PRET 4
-A ee AR
 Ai HA UPET rs Lure AAA LE ke 4 CE
 RASE ee LU © HAL TA SPAS VAR N + OHPÈTS ei
 # +1 (CEE À ' CA MEPREE LES ï te CE F2
-UE RL à AE 1 DO, OC MERS
-APRES QE te Vue fa Fr, LL os
 GREC UNE 2 SL A EUR Î ; dt nn Ee
 ése TU ver HOT OUR OMG à 2 ENTER 1 (20
 ur 3 + me Ex + 1 RER WAR te L - y CRE n"
 EU PANNE AMONT ER g nr PEN « FRS EE Me TA M PS de Lis : AT 28 y.
 nee Pb DOET dit. Sat A0 : + APE
-L 27 Ne Re k A: ‘ k | ' LT
 Ne re DAV Re r ce.
-: ÉTER PARA » AL A Ê + ae 77
-É DA 67 EN # Ê k FLueE
  ERRTEN Era DE A à 1
-+”. CET SR 44 . + ‘ES
-ORALE À TN
 % 1 x FAUNE FES à F Ex je Chr
-FANS 2 AE à. * Vite 4
 4 TS AT Men RL. ur on \ PA ME
 CET LR RE " HS du “ee
-Rs Le Ann Le 3
 a MR EUA à LEE ci et fe LL et
-; NEC 4 Aa ) : re"
 4 rfi RE je £ p Ya ee
-LE 4 ] L? ' * De. 4
-pe, à E + k Ds
-EPS RG RNS AL COR
-ons LP PART ENS Muitir LP
-LH ins Fa Fi ft 4 a ! 4 (13 T8
-PTE DLAUN, LR 1!" 4-20 L
-AE SNL ST \ RE
-o AU ' Ü \ % 107 1
 les SPaRS qui Le ANA RH
-Us ere x : re Y« LATE 12
-We. SRE us ; ù DR v s ref | NT D
 \ ee gs LA RE ve AU rAl
-ar us Lt à 1 4 Mat EAU
-
-+ TEST PERS RUN AN] AN ee NAN AN
 
 are # A RU EU EAN MMS HUE TON ANNEE
 
-Lan PER COR, TRI A MO A A A ER AE LEA TI NS
-
 FL ct a Cr Ve nt NO UT a ASSET on Der Le eV DOME RE 2 ur
-2 ARNOrene "CPE EE MR RS AH INC RASE US FE
-LV ASE TE M RAT AL PSE NN LEO AR NN SU EE ; NA que
-Yi a ER À f VAE + Pr Ra VF 21: RITES
-401 ele ; NEA UNTEARR dors, LIRE EE es
-CA TNRAER SR } É 2 HIeE MT eee PO PRANE ALAN
-D ui: ne, | +
-ae À PT rte Lo nu A MUR RER
-MRC NE $ A 1 OR EE L'RAs MENU er TR
-STE ! É ; ti LES AN AU UE EME A2 DUT LENS 3 SAPIN
-ù DEN ï S LU Le Ar ER MANS ER DA PAIE TE 2 TENTE
 xt DEC AAA } Cet APP ATEN ro NW A ET TT PAL A nf
-ARE Lt ñ ? < AT NTM ART SNA NE A A NC EEE É
-SE X À 4 AT AR UN ET AT Eee SON CFE OIOU TES à
 « RUN = v TA ANT ae FC LS Pet ere RE
-LA TTOR Ÿ u 23 HAMSTER RÉRARR HND LES ee Le }
-LEARN ; ; ‘ ï MUR ER TAN 7 PNA SDCAE EUR A ee "à
-DU. : TAAURE OM EE ATOS AE SA PEN 0e #4 A
-RMEEURN \ i " 7 CCE ES PSN SEM Dee |
-Le AA LE F k ” PALSAT EE 10 ON x LMÉCATE
 Ne MAOMONEr Ha { : Van tuer TF5 tu Fa nee PATTES
 5 (Ne ANR jé, LT VOD TONNES KUANE LAGRE
 
-PM ANS VA U pe Me AR ME ATE Lg ARTS SEM VE? à EU
-
-PRET ET NRS NE RR ART H ARR JA F4 APE ME EN
-
-EE per ét pivA ASE
-
 almanach des cahiers
-".}
-
-e H
 
 Le printemps commence le samedi 21 mars, à
 7 heures 24% minutes du soir ;
@@ -124,87 +59,21 @@ l'automne commence le jeudi 2% septembre, à
 5 heures 53 minutes du matin: ;
 
 l'hiver commence le mercredi 23 décembre, à minuit
-29 minutes.
 
-î i 2 janvier |
 du 10 NÉS an J AN VI E R ou Monte Pluviôse |
 Les jours croissent de 23 minutes SOLEIL | LUNE |
 
 15 heures 23 minutes de nuit. lever |coucher| lever | coucher |
-h. m. h. m. h. m. h. m. |
-1 |Jeudi.....:..:.| 7 56 | 411 | %Œ 0 Ur
-JPNendredt: 2227 107 56 4 12 9=30 8 10
-A POameon ee 22 56 4 13 9 57 9 12 |
-4 | Dimanche ....| 756 | 414 | 10 23 | 10 16
-Mina. 22.210755 1415 | 10 48 | 11 2
-6: Mardi. ...:....|) 7,55 |U 416 | 11 15 | — —|
-APMercredit#. 22.100755 4 17 | 11 44 | 0229
-den 20%.-2.102 560 | 4198 0516 1530 |
-9 | Vendredi.......| ‘7 54 420 | 055] 250
-dONMSamEd 2.2.1 :7 54 4 21 1 49 4 1}
-11 | Dimanche ....| 753 | 422 | 237 510!
-van /007 53 424 3 43 6 13 |
-TOMATE ru. 7-52 4 25 4 56 | s: |
-14 | Mercredi... ...| 752 | 4927 | 613 | 7 54
-NE Le 7 61 | 498 | 7 30 | 8 34
-16/\:Vendredi,....:.|, 7 50 |. 4:29 | “8 46 | 9 8
-LS ameos. 227... 11 7 50 4 31 | 9 59 | 9 38
-18 | Dimanche ....| 7 49 432 | 11 9 107.
-Dean) 74% | 438 | — — | 1085.
-DO Mardi. N 7 47 4 35 0Ë16 | 11 3
-21 Mercredr: 1.1: 17 46 4 36 1°20 | 11 34
-OURS 102. 7 45 4 38 2:22 05 7 |
-23 | Vendredi.......| 7 44 | 440 | 320 | 045]
-24 \EFSamedn.. 2.2.1 7 43 AA | 4:14 FR 27
-25 | Dimanche ....| 7 42 443 | NEA
-26 | Lundi..........| 741 | 444| 549| 3 6
-2 Mardi... |, 7 40 À 446 | 6 28 4 2
-2OnHMarcredr. 400.117 39 [M 4147 |. 7: 3 |. 5
-DORE 4: 7 38 4 49 7 34 6 2
-30 | Vendredi.......| 7 37 4 51 8 2 7: 5
-SONO: 221.107 35 | 452 |. 8:29 |: 8° 2!
-EDS MOREL US Sr Le
 / Premier quartier le 6, à 10 heures 6 minutes du soir. |
 se Pleine lune le 13, à 2 heures 26 minutes du soir. |
 ”  ) Dernier quartier le 20, à 11 heures 58 minutes du matin.
 
 l Nouvelle lune le 28,:à 4 heures 48 minutes du soir.
 
-Premier février 2 21 février
 ou 11 Pluviôse, an 111 F EVR | E R ou ue Ventôse
-D AE OT SEE URI
 
 Le-45) 40 heures S minutes de jour, TT CE TE
 Érrae 55 minutes de nuit | lever |coucher| lever |coucher
-h:1gm:- h. m. h. m. h. m.
-1 | Dimanche ....| 7 34 | 4 54 | 8:54 | 9513
-2 Dune AIONTSS 4 56 9 20 | 10 19
-21] Mardi. 2 Me NIORT 457. 29481111 27
-ÆIEMercredi:# 220041087280 4 59 | 10 18 | — —
-pAItJeudis er Ne NIE/12e 5 Y0/\1083 0535
-6/|"Vendredi 78 %|1187027 5 211134 1744
-1/\HSamedrer2#%)087025 DA 0:24 DRE
-8 | Dimanche ....| 7 24 | 5 6 122 3 55
-DE Etindi. 462271287222 Du 2 29 4 52
-102 Mardi er 5 9 3 43 5 42
-ME EMercred A "719 5 10 4 59 6 25
-12 Heu PR PNENTEAT HZ 6 17 AE
-132\HVendredr 220408) Me7216 5 14 7183 139
-14 Samedi Men St 5,15 28"461 185
-15/| Dimanche, | ADN ESS Mr ON TERRE T
-16 | Lundi. 210600) 67 A0 RS MON MARS UE
-17: | Mardi...) 007 20) NN
-18:| "Mercredi 4/71/7007 5722 05 9 | 10 8
-19 Jeudis Re) STE SRE 1°10 | 10 44
-20, | Vendredi.:.,7 1 040306051808 60
-21: |, Samedi: 7 0) 709 NS 27) 5 ISAOEI0
-22 { Dimanche ....| 7 0 | 528 | 3 4 AT
-23: | Lundi..5.1#4.0 | 86/58 0800/0026 1 54
-24 | (Mardi! gras.) NG 5612 RP ANS?
-25 Mercredi...) NGHANINS SSI Sn 53
-26 |:Jeudi |:::44x | 20 52h) 65/85 MO MANIEE 55
-27 | Vendredi... .....| *6/501|.°5 371653310559
-28 | "Samedi : ./3.1 À | PGASP| PES NAGER
 
 / Premier quartier le 5, à 10 heures 22 minutes du matin.
 
@@ -216,422 +85,92 @@ Nouvelle lune Je 27, à 10 heures 29 minutes du matin.
 
 6 3
 
-Premier mars 23 mars
 ou 9 Ventôse, an 111 M A RS ou premier Germinal
 Les jours croissent de 1 heure 3 mi- SOLEIL LUNE
 12 heures 16 minutes de nuit. lever |coucher| lever | coucher
-h. m. h. m. h. m. h. m.
-1 | Dimanche ....| 6 46 | 5 40 | 7:25 | 8211
-211 Lundi. ........l! « 6 44 | 5 42 1193415 :OF18
-a4eMardi:.:11%,2:.1h 6142 5 43 8:23:}10:27
-4 | Mercredi. ......l 6 40 | 5 45 | 8 56 | 11 35
-5AlJeudi.:...7..!..1l 6 38 || 5 46 | 9 35 | — —
-6 | Vendredi.......| 6 36 | 5 48 | 10 20 | 0:42
-21 amer :::2..| 6.94 D'AMILTL 13 1545
-8 | Dimanche ....| 632 | 551 | 0215 | 2 43
-JA Eundié 522.:.:l « 0-90 D DA 1 23 3 34
-AO Made. 2... 6:28 | 5 54 11 2 36: / AUS
-11 | Mercredi.......| 6 26 5 56 3 51 4 57
-124 leu 24: 71.1 6 24 D 5% | 7570 T9
-13 | Vendredi.......| 6 22 5 59 6 20 6, Z
-ANS ame 42:81 06 20,1 6. 0 |. 7331 1N 6242
-15:| Dimanche .:..| 618 | 6 2| 843| 7 2
-ON PRE 7 ..1 G 16 | 6 3 |"9.51 7 32
-AA MardRe El 6 14 C9 MID 8 5
-18 | Mercredi.......| 6 11 6 6 | 11 54 8 41
-HO JeREe 220) 16 19 6 8|—— | 920
-20 | Vendredi.…......| 6 7 6, 9 0:49 | 10 4
-DIR Same. 2210. 1.46 05 | 6.11 1538 | 10 53
-221 Dimanche. !..| 6 3 | 612 | 222 | 1145
-uno al 6 1 6 14 9.0 0:42
-ANAL 6e 40 9971 6:15 |. 3.34 1 41
-25 | Mercredi.......| 5 57 6 17 4 5 2 42
-DoPdendié 3.027) 25 55 | 6 18 433 3 46
-AARNendredi.:122. 11 5.53 |. 6/20 |! 5, 0 |. 451
-28N| Samedi ........| 5 50 6 21 5 27 D 08
-29 | Dimanche ....| 548| 623] 555| 7 6G
-HUE GNARE:7 N..| D .46 6 24 6 24 8 15
-RO Nrande. hs. | D 44 6 26 | 6 57 | 9 25
 { Premier quartier le 6, à 7 heures 23 minutes du soir. |
 È \ Pleine lune le 13, à 0 heure 22 minutes du soir.
 Li ms Dernier quartier le 21, à 2 heures 17 minutes du matin.
 | | Nouvelle lune le 29, à 1 heure 35 minutes du matin.
-J
 
-ier avri 22 avril
 v ou à a 111 AV R | [Ds , ou ne Floréal
 Je mate et de AA mins leon. | 0 POIL NN EEE ONU
 Le 15, 13 heures 35 minutes de
 jour, 10 heures 25 minutes de nuit. lever |coucher | lever coucher |
-h. m. htm h. m. Horn |
-1'\Mercredi 00542 67 ESS 11032
-2e NPA ID 6 29 8°19 | 11 39
-aMAViendredi EAPENIRERSS 6.30 | 9404! — —
-4) 12Samedi 2.1 .2"105 86 6 32 | 10 8 | 0:38
-5 | Dimanche... 15 54/1 6 53 MSN 431
-Can ALAIN 6 35 0523 | 2 16
-2 Mardi. CCS SD AG EG MS SR 05
-81\Mercredis 09158 6 38 2 48 3 30
-ONSeudisen) te NES 6 39 4 1 4 1
-10 | Vendredi.......| 523 6 41 DM
-HUSamedir ARS 6 42 62321540
-12 | Pâques .......| 519 | 644 | 732 | 5 30
-19 | Lundi 2090720105 ir GAS SAGE
-1 Mardi 2 NS 6 47 9 40 6 36
-15 | Mercredi.......| 5 13 6 48 | 10 38 7 14
-16 Jeudi es een ES 6 50 | 11 30 1057
-17 | Vendredi.......| 5 9 | 651|——\ 844
-18 \Samedr. AIMANT ENS 6 53 0216 9 35
-19 | Dimanche ....| 5 6 | 654 | 0°57 | 10 30
-20. under er 6 55 1293411028
-21<|/Mardi even) En 67 205 0228
-22 | Mercredi." 0500 6 58 2 34 1 30
-24 | Jeudi Al ESS NS NON ST 2 34
-24 | Vendredi.......| 4 56 PR | 927. 3 40
 2)1|NSamedeE et en MEET GARE) 3 54 4 48
-26 | Dimanche ....| 452 FO 4 23 | 5 58
-27 Lundi ee 0 NE 706 4 55 JE)
-28: Mardi. 2022020) MT) HO 5 31 8 20
-29 Mercredi..." 47 Ti) 6 13 9 28
-30 Jeudi 100 AE AO NUNTRS M0?
 / Premier quartier le 5, à 2 heures 1 minute du matin.
 Le \ Pleine lune le 12, à 0 heure 27 minutes du matin.
 LUXE / Dernier quartier le 19, à 9 heures 40 minutes du soir.
 \ Nouvelle lune le 27, à 1 heure 41 minutes du soir.
 
-22 mai
 ou 10 Florent an ll M AI ou premier Prairial |
-Ts nc oument ss minutes SOLEIL LUNE |
 Le 15, 5 MAR SE ul do jours note eue
 8 heures 54 minutes de nuit. lever |coucher| lever coucher!
-h. m. h. m. h. m. h. m.
-MEVendredr 21... V4; 44 121 | FE ML TIE2S
-2) Samedi ......:.| 442 7131 9 5 | — —
-3 | Dimanche ....| 4 40 | 7 14 | 10 14 | 0:16 |
-4 Pundi: 1.110439 7 16 | 11 26 | 0 57|
-DR Mardi, :7 1437 PEAR 0:38 12331]
-Grl'Mercredi. 11435 7 19 1 49 2 5
-mbleude 2:54.) "434 7:24 3:0 | 23%
-ox Vendredi..2...|) 4,32 T2 I MAO TIR SE 2
-9 | Samedi..…....:| 431| 723| 518| 331!
-10 | Dimanche ....| 429| 724| 624| 4 1|
-He Pound. ©... 24 28 7 26 7.27 4 34
-Mardi: 114 26 4 2 8 27 5 10
-13 | Mercredr.:...:|! 4 25 7 29 922.| 5,51
-1 TEA. :4l. 423 4 30111011 6 36
-15) Vendredi. ::2..1.422 |: -7 31 10 54\| 726
-161 Samedr 5... 421 932 NII 8 20 |
-17 | Dimanche ....| 4 19 734 | — — | 916 |
-ds Pan"... 11.418 7 35 0ë 5 | 10 15
-Na) Mende 2.1: 4117 2730: 120735; EPA
-20 | Mereredi.......| 4 16 7 38 1 2 | 0:18
-21 | Ascension ....| 414] 739] 128| 12
-22 Vendredi. 2.11. 413 7 40 1 55 |[N 2128!
-23.1: Samedi . 2... 4 12 7 42 2, 22 3 36 |
-24 | Dimanche ....| 411 7 43 | 2 51 4 46 |
-A Eundi... 6.0.1 4 10 7 44 3 25 5 58 |
-OMC. 220. | 4:79 7 45 4 5 LMI
-211 Mercredi.....:.| 4 8 7 46 4 52 8 17 |
-ARR Jeude er 4 7 7 47 5 47 9 19 |
-AJ VendredR , ll 4 6 7 48 6: 51: NL 10 0)
-SUIS MEN 20. 4 5 7 49 8: 1 10/57
-31 | Pentecôte ....| 4 5| 750| 9 14 | 11 36
 Premier quartier le 4, à 7 heures 35 minutes du matin.
 + 4 Pleine lune le 11, à 1 heure 27 minutes du soir.
 LUNE Dernier quartier le 19, à 3 heures 27 minutes du soir. |
 { Nouvelle lune le 26, à 10 heures 59 minutes du soir.
-9 ù
 
-\
-Premier juin juin
 ou 11 Prairial, an 111 J (ë | N ou Mur Messidor
 Then etes de O7 || Meyerit cote helene een
-h'0: h. m. h. m. h. m. |
-LL UNdAT 2. SEE 7 51 | 10228 | — —
-2MarAi ee OPA 7 52 | 11°40 0:10
-31 Mercrédi.}. 23. .4| 4831) 798110510720
-AA Jeudis PAR 7 54 20 3 107
-5 | Vendredi.......| 4041 7 55 340 1535
-6 Samedi sn ve AE 11564 PR" A
-7; Dimanche!" #16 01MIS7A SMS
-8 |FLundi NAN OUT SN MORE SO
 9 Mardi: 0 NS ON ATOS NIMES TS
-10: | Mercredi: "411408 5917159 SG "4059
-11: Jeudi: !:24 2222008150 SD ee) 5 10
-122 Vendredi} 0247106168 ce (0) 9132 6 11
-13 | Samedi}? CR Pl PS 5e MS IN MO her!
-14 | Dimanche ....| 358 | 8 211033 | 8 5
-SNA TA RRNES 58 8 2 AMEN 0 05
-16; Mardi MS S SNS Mn) SN MID
-17: Mercredi. 7211895058 1/NS MS) OTMISNIRRS
-18 |l'Jeudi 201 SR0R 35e 8 3 | — — 0:11
-19, Vendredi} 2 R31580NS RE 0:23 47
-20 |: Samedi 44 24: 0) NS 681 NS MN) PO SEAT
-21 | Dimanche ....| 358 | 8 4 1/22/0334
-22 Lundi. 2 RS 81 RS NE D'OTA AUS
-23 |:Mardi... 2201003 5908060 PS On AS
-24 |'Mercredi..".1" 3159 81/51 13130 AE
-25 Teudi 2224 24/0950) SENS ONS 70
-26. |” Vendredi. 4." 13159) 08 5 SON 50
-; 27 | Samedi..# 2. PAR O/ESS CON MES IrsS
-28 | Dimanche ....| 4 O| 8 5| 8 9 | 10 10
-29/\MLun dr 7 PS) MP SUEAAOP2 5 NIMLIO A2
-30) | CMar a rien TE 8 (5 AD /S9 A2
 / Premier quartier le 2, à 1 heure 33 minutes du soir.
 à \ Pleine lune le 10, à 3 heures 17 minutes du matin.
 UNE | Dernier quartier le 18, à 6 heures 53 minutes du matin.
 Nouvelle lune le %5, à 6 heures 20 minutes du matin.
 
-mier juill 21 juillet
 ‘ ou PTS . 111 dl, (8 ILLET ou aie Thetldor |
 Le 15,45 heures 5 minutes de jour,
 8 heures 55 minutes de nuit. lever |coucher| lever | coucher
-h. m. h. m. b. m. h. m.
-WiMércredi 1218448211, 181,5 l'11850 |; 11240
-MP (RNA 8 5 | 1504 222
-JhlVendredi 47400443) 7-84 | 2 714109
-A\rSament :.27:01P064 13 8 4 JUIL 0°39 :
-5° Dimanche ....| 4 4| 8 4| 412 1 12
-Lundi 225.9 0IM485 8113 5 10 1 49
-NCA Mardue 7 RS OU 4 F5 619 605 2 30
-8h Meéreredi.”.2..| 146: |:8:,3 6 50 3 15
-heu ner. 477 8 2 7 32 4 6
-10:| Vendredi.......| 4 8 1 8 9 5.0
-HiteSamedse". | 429 8 1 8 41 5.57
-12 | Dimanche ....| 4 10 8" 0 | 910 6 56
-13 | Lundi..........| 4 11 7 59 9 37 751
-14 | Fête nationale| 4 12 1 58/|"10%2 8 58 |
-15 | Mercredi.......| 4 13 | 7 58 | 10 28 | 10 0
-AO IPS.) did 7 57 | 10 54 | 1174
-17 | Vendredi... ...:| 415 | 756 | 11 22 | 0: 9
-ds 1LSamedr.s:..2,.) 04 16:| 77 55.) 11 54 1 16 d
-19 | Dimanche ....| 417 | 7 54 | — — | 2 24
-AN EMA" "| n 4 18 7153 0532 | 3 33|
-21 | Mardi..........| 4 19 | 7 52 | 1°17 | 440
-22 |: Mercredi.......| 4 21 7:51 2 11 5 42 |
-Ada Jeudis: 27...) 14 22 7:50" | 13114 6 37|
-2ANVendredi.2%-11423 | 7:49 | 4-26 | ‘7251
-ANAOoaMenL. ul 424.) 7 47 | 543). S1EN
-26 | Dimanche ....| 4 26 7 46 AE | 8 41 |
-2 Lundi. !.......| 427 | 745| 818 pt
-2OEMArdL. 40%... | 14 28 7 44 9 33 9 43
-29 | Mercredi.......| 4 29 7 42 | 10 46 | 10 13
-SO ded0r. sum | 4.31 7 41 | 1859 10 43 |
-31 | Vendredi.......| 4 32 7 40 18 2: || 1 |
 Premier quartier le premier, à 9 heures 11 minutes du soir.
 \ Pleine lune le 9, à 5 heures 52 minutes du soir. |
 Luxe < Dernier quartier le 17, à 7 heures 33 minutes du soir.
 | Nouvelle lune le 24, à 0 heure 55 minutes du soir. |
 Premier quartier le 31, à 7 heures 24 minutes du matin. |
 
-Premier août 4 20 août
 ou 12 Thermidor, an 111 AO U an ou premier Fructidor
 Je mn Et de DS toutes Je soie à | NS ONE CN RE
 Le 15, 14 heures 24 minutes de Er DER
 jour, 9 heures 36 minutes de nuit, lever |coucher | lever |coucher
-h. m. h. m. h. m. h. m.
 19 Samedi ess 7 38 DE OU AllEnt
-2 | Dimanche ....| 435 737| 3 4|——
-SAUCES T8 6 ANS INSEE 0530
-AN Mard een) PAST 7 33 4 47 1°14
-5 | Mercredi.......| 438 vhar) 5 31 202
-Genuine ee AMONT 6 10,|° 2 55
-raMendredi, 22 221erPr 7,29 6 44 | 3 51
-SRSamen PAPERS 7 28 7 14 | 4 50
-9 | Dimanche ....| 4 4 7 26 12 IE 0
-104 DUNCAN SAS) 7 24 8 8 6 51
-11 Mardi); ANA 1123 8 33 1055
-12 Mercredi 22" EPNIMAMS NPA 8 59 | 856 |
-131) Jeudi 06202119 11149 9 26 | 10 O0
-141 Vendredi} 2#00e)| ME 7 18 DSONELS
-15 | Assomption ..| 452 | 7 16 | 10 31 DE
-16 | Dimanche ....| 4 54 7 AA) TS 1 18
-17) Mundi 2204/0e eee 1MA2NNM1759 203
-18 | Mardi..........| 4 56 | 7 10 | — — | 3 35
-19 Mercredi," 2#IM4158 TU) 0356 | 4 22
-120//Jeudir 229020) 04259 TOUT 252 SMS
-21=|UNVendredi.7 215 TES 3/15 DL
-221 Samedi pen Se ARS 4132406739
-23 | Dimanche | 598 | 70 01501720
-1241 /Dundi er ets SM GES 7 8 7 A1
 25 Mardi eee AS NE) GY57NMS PANNES 12
-26 10Mercredi 407 2715 6/55%m987 8 43
-211 Jeudi 00 0e er 0 6 53 | 10 46 9 15
-28 | Vendredi") G\S1APTS21100 50
-29 ASamed ee es 2 G 49 | 0£54 | 10 29
-30 | Dimanche ....| 5 13 6 47 LS 112
-1 NEundi ie "er s 6 45 24301159
 / Pleine lune le 8, à 9 heures 3 minutes du matin.
 \ Dernier quartier le 16, à 5 heures 32 minutes du matin.
 LUXE | Nouvelle lune le 22, à 8 heures 0 minute du soir.
 . Premier quartier le 29, à 8 heures 43 minutes du soir.
 
-remier septembri
 fé, 13 ne 1 S EË PTE M B R E 1er Ce rage |
-PE PE ot pps can ROUS |
 . Le 15,12 heures 38 minutes de ((
 jour, 41 heures 22 minutes de nuit. | lever |coucher| lever coucher |
-he mm: h. m. h. m. h. m. |
-WiEMard #1 516 6 43 3229 | — — |
-2 | Mercredi.......| 518 | 641| 4 9| 0850 |
-Jeudis AND 19 6 39 4 45 1°45 |
-L 4 Vendre 2.115120 6 37 DREZ 2 42 |
-‘D 'ÉSamedt+. 71060122 6 35 5 45 3 42
-6 | Dimanche ....| 5 23 6 33 6 12 4 43
-lande CC UE DE95) 6 31 6 38 5 45
-GC EMari 2.208216 6 29 7 4 6 48
-9 | Mercredi.......| 5 28 6 27 LTDL HZ
-10 Tendre 529 6 25 Sn 01R:8157
-THEVendredi..:22:125 301" 6293 48h 100S
-12/\BSamed.......|"532 6 21 BAIEAUMI
-13 | Dimanche ....| 533 | 618 | 955 | 0:14]
-14 | Lundi..…........| 535 | 616 | 1047 | 116|
-Le EMandie2 e, Q1 : 5,36 G 14 | 11 47 2:13:|
-101 | EMercredz."./...|538 6 12 | — — 3 4]
-tAllendue. #5.) 05:39 6 10 0:54 3 49 |
-18 | Vendredi.......| 5 40 6 8 27 7 4 29 |
-19 Same. .:..1L10422|116 6 | 3:24) 5 4 |
-20/} Dimanche .:..| 5 43 | 6 3| 441| 537]
-21 Éondi.......| 545 | 6 1| 557 | 6 8!
-D PMavdr a 100460) 5*59/| 711210061391
-23, | Mercredi.......| 5 47 5157 8 24 7:12 |
-24 Jeudr 224.2...) 549 5155 9 34 7 47
-2011 Vendredi......| 5:50 5 53 | 10 40 8 25
-200} Samedr......:l 952 5 51 | 11 40 9 6
-24 || Dimanche:....| 553 | 548 | 0535 | 952
-20 Euadr 0:12, 11,0 55: 1 5 46 ft 2à | 10 42
-ASF IRMare ee.) 09 56 5 44 2: 6: l'a: |
-30 | Mereredi..….....| 558| 542] 244 | — —|
 / Pleine lune le 7, à 0 heure 29 minutes du matin.
 \ Dernier quartier le 14, à 1 heure 23 minutes du soir.
 our Nouvelle lune le 21, à 4 heures 40 minutes du matin.
 Premier quartier le 28, à 1 heure 18 minutes du soir. |
 
-\
-
 Premier octobre ou 24 octobre
 8 Vendémiaire, an 112 OCTOBRE ou Med y AU
 De 4 CR ent ji lever |coucher| lever |coucher
-h, m. h. m. h. m. h. m.
-NTeude. 20%) R05859 5 40 | 3£17 | 0:33
-2}? Vendredi... 4% 168 0105 380108 EMI?
-sHSamedt.t 08 602 5 36 4 14 2 32
-4} Dimanche. .:.|! 6: 3 "5 340441 3 34
-5 Lundi 2015666 )106199 NS ENS
-6, Mardi... 06060005 300 NS ISA
-Mercredi. 2.410066 801005 28 10e MEET
-SJeudi 4.210) GA 0 RE 95 INGSSNRT DT
-S\Mendredr 49) MG 5129 rh D'a
-10:1NSamedr 2225416202 4153041087
-11 | Dimanche ....| 6 14 Ce KO POSE EP PE BE 0)
-12,|/Tandi::-:°17 10646185 174 MOP0NMDErS
-15;|\ Mardi. 2.227 10607) MO) 0
-14 | Mercredi. :: 41614815 st az
-1SANDeudi Se enPEerA)RE 5 11 | — — DA
-16 #Vendredi. 241806 22 15 ON MEERIRE RE
-17;/\VSamedi. 1.020060 5 TND ENAIRReS
-18 | Dimanche : |} 625 105 50 SAN TN
-à 19 \Lundi..:2.4 1110062605 IeMMONEnRS
-20 Mardi. 2%20018/6028 502 6 2 5 u8
-AL”\iMercredi. "12176129 85 CONSTANTE
-DIN ETES AGE 4 58 | 8 21 6 18
-2941 Vendredi f##")B0G92 A 56019050 6158
-241} Samedi 2.110632 415 MD 7 43
-25 | Dimanche ....| 6 36 | 452 | 11 16 | 8 33
-20 4PLundis 2 PES EE GS IMAET 02 211% 926
-27: Mardi... 1061391240 NOR SIDA
-28 |Mercredi::.4..-|M6 408 4147 1216041119
-2J4NJeudie Fe de lo 4 45 147 | — —
-30 | Vendredi.......| 6 43 | 443| 215 | 0:19
-31 Samedi!) GAP DRE 1°20
 
 / Pleine lune le 6, à 3 heures 33 minutes du soir,
 x \ Dernier quartier le 13, à 8 heures 6 minutes du soir.
 LUXE ! Nouvelle lune le 20, à 3 heures 39 minutes du soir,
 \ Premier quartier le 28, à 8 heures 42 minutes du matin.
 
-P vi
 coamaeare NOVEMBRE opus Par |
 Le 15, 9 heures 40 minutes de jour, Éd re nr ec da |
 14 heures 50 minutes de nuit. lever |coucher| lever | coucher |
-h. m. b. m. b. m | h. m.
-1 | Toussaint ....| 6 47 | 4 40 | 328 | 252
-2h Tundi #0 211146 48 438 | 334 | 3 26
-Do Mara. 45602106: 00! |" 4/37 44.214
-4 | Mercredi.......| 6 51 | 435 | 433 | 5 38
-DiiJeudis +...) 4698 434 | 5 8 "647
-HE |EVendrens.. 2.11 6551185432 5 49 7 55
-FAN Samedi 22.11 06:26 :1101430 | 6:37 gù T
-8 | Dimanche ....| 6 58 4 29 1133: 11063
-End tr... 07 40 ||? 4028/1836 "1h 10709
-LU ES Te RATE EN y 1 | 4 26 | 9 44 | 11 48
-11 | Mercredi... .::| 7 3| 425 | 10 55 | 0:29
-RON iendre 0. . [27 4 423 | — — 1 5
-13? "Vendredi... 7: 6 |. 422 | O8 1 38
-MAAF Samed.. 472.) 7. 8 4 21 1 ALANUSIRES
-15 Dimanche ..| 7 9| 419 | 233/| 2137
-HO on 2.) 72 4 18 3 45 Ur
-LA PNManou" 2.2... 1712 4 17 4 55 | 3 39
-18 | Mercredi.......| 7 14 4 16 6 4 4 13
-HORS... 21. 07 15 4 15 710! 4 52
-20 | Vendredi.......| 7 17 4 14 8 11 5 39
-214l4Samedu. 10. :| 07218 | 413 | 9 7 IN6A
-22 | Dimanche ....| 720| 412| 956| 714]
-D onde.) ‘2191 | 4 11 | 10.59)| "0504
-DA EMA e ES, | 0425 4 10 | 11 16 ET
-25 | Mercredi.......| 7 24 | 4 9 | 11 48 | 10 6
-or dendi 42...) 5226 4 8 | 0817 | 11,6
-27 | Vendredi. ......| 7 27 Cp 0 4 | — —|
-281 Samedr .%..:..| -7 29 4 7 110 | O7]
-29 | Dimanche ....| 7 30 4 6 1 35 | 1° 9|
-SUR Eu ul 7 31 4: 5142502) 2 12 |
 / Pleine lune le 5, à 5 heures 37 minutes du matin. |
 k \ Dernier quartier le 12, à 2 heures 55 minutes du matin.
 Luxe Nouvelle lune le 19, à 5 heures 19 minutes du matin.
 { Premier quartier le 27, à 5 heures 46 minutes du matin.
 
-een DÉCEMBRE
 Le 45, Sheures 13 minutes de jour,
 45 heures 47 minutes de nuit. lever |coucher | lever |coucher
-h. m. h. m. h. m. h. m.
-1 Mardi ess 4 4 DES 3:18
-2 Mercredi ee Cet 4 4 3 4 4°26
-Jul Jeudi. .2:.00004) ISSUES ES 5 35
-41M Vendredi" M70S6 453 4 27 6 44
-HiiSamedr 5741007881 SN SE 7.50
-6 | Dimanche ....| 7 39 4 2 6 23 8 50
-FU Lundi eee IAA ONIRARR2 TS. 9 43
-SA Mardi 27 Cl 4 2 8 44 | 10 29
-JAEMercredi 000760 PE OP ATRES
-10 TeudL ir Rats 2.1 PO LS Ge 2
-114) Vendredi... "AAA Et NO 13
-12) Same Ernie 4 1 0:24 0 4
-13 | Dimanche ....| 7 46 | 4 1 1:55 1h
-44 Eundie Vernet AA 2 45 1 41
-151 Mardi- et NS 4h 3 AS) 2 14
-164) Mercredit.:"001907/249 AN2 4 58 2 50
 Te Neue NN O7 ON AA AIG ID EEE 0
-18 1 Vendredi: 22117860 402 6 58 4 15
-191 Samedr een 4 2 HASOMANSRS
-20 | Dimanche ....| 7 52 4% 8 35 5158 ?
-DA BEun di ERA eT ED) LYS 9 15 6 55
-22 Mardi CE ANNE 4.14 1009150 754
-25 Mercredi ess 4 4 | 10 20 8 53
-DE TJeUdiE Renan ET 4 5 | 10 47 9 53
-251 NOËL Re ST 4 5 | 11 13 | 10 54
-20 Same ARR NS 4 6 | 11 38 | 11 56
-27 | Dimanche ....| 7 55| 4 6 | 03 | — —
-28! Lundi, 2.0. 1055 NAT A PND SDS
-29 Mardi etre) ETS 4 8 110 Du
-30 Mercredi 0791271506 4 9 1 34 3,12
-31 | Jeudi... 42-0766 04H00) D NIELE20
 / Pleine lune le 4, à 6 heures 22 minutes du soir.
 | Re \ Dernier quartier le 11, à 11 heures 2 minutes du matin.
 QÈE / Nouvelle lune le 18, à 9 heures 35 minutes du soir.
 | | Premier quartier le 27, à 2 heures 32 minutes du matin.
-
-PAPERS A \ D! "
-à
 
 Le milieu de l'année est le jeudi 2 juillet à midi.
 
@@ -642,16 +181,9 @@ Jour solaire dure 16 heures 7, et la nuit solaire
 7 heures 53; le jour civil dure 17 heures 35, et la
 nuit civile 6 heures 25.
 
-LES EÉCLIPSES POUR 1903
-Soleil
 Dimanche 29 mars. — Invisible à Paris, partielle ou
-annulaire en Asie; commence à o heure 43 minutes,
 milieu à 2 heures 15, finit à 2 heures 45 du matin.
-Lundi 21 septembre. — Invisible à Paris; commence
 à 2 heures 37, milieu à 5 heures 20, finit à 7 heures 1 du
-matin.
-Lune e
-Dimanche 12 avril. — Visible à Paris, partielle;
 commence le samedi 11 avril à 10 heures 44 du soir,
 milieu le dimanche 12 avril à o heure 22 minutes du
 matin, finit à 2 heures 1 du matin.
@@ -662,13 +194,11 @@ courrier de Montfaucon
 L'an mil neuf cent deux, le dix-neuf décembre, à la
 requête de monsieur Colomb, président du Comité de
 l'Œuvre « les Journaux pour Tous », dont le siège est
-à Paris, 17, rue Cujas.
 
 Élisant domicile en mon étude,
 
 J'ai, Louis Maillard, huissier près le Tribunal civil
 de la Seine, séant à Paris, y demeurant, 9, boulevard
-Saint-Michel, soussigné
 
 Fait sommation à monsieur Charles Péguy, pris en
 qualité de directeur-g'érant du journal Les Cahiers de
@@ -678,7 +208,6 @@ la Sorbonne, numéro 8, où étant et parlant à un employé à son service ains
 De, dans trois jours pour tout délai ou dans la première édition du journal Les Cahiers de la Quinzaine
 avoir — en réponse à un article paru dans le quatrième
 cahier de la quatrième série des dits Cahiers de la
-Quinzaine, pages 91 à 102 inclus, intitulé « monsieur
 Georges Colomb », commençant par ces mots « Je
 n'établis pas seulement des questionnaires » et finissant
 par ceux-ci : « On ne s'ennuiera pas. Il y a un pape en
@@ -686,9 +215,6 @@ couleurs près de qui le sous-lieutenant s'efface » — à
 insérer à la même place et en mêmes caractères que
 l'article incriminé, la réponse suivante en conformité
 de l'article 13 de la loi du 29 juillet 1887, sur la
-Presse.
-
-Monsieur,
 
 Dans l'article que vous avez bien voulu me consacrer (Cahiers de la Quinzaine, quatrième numéro de la
 quatrième série), comme dans l'article que vous consacrez à M. Émile Terquem, plusieurs erreurs relatives à
@@ -709,13 +235,8 @@ passé, à opérer, dans les campagnes, la diffusion des
 journaux et brochures qui défendent ce que l'on est
 convenu d'appeler la politique du bloc à condition toutefois que de prétendus républicains n'essayent pas de
 jeter la suspicion sur elle et ne tentent pas de la discré-
-; 21
 
-É
-
-j 14
 diter aux yeux de tous ceux dont elle a besoïn pour
-vivre.
 
 Vous m'attaquez dans un article de treize pages. La
 loi me permet de me défendre et me donne, pour le
@@ -745,14 +266,8 @@ du procès, ou plutôt du différend survenu entre nous. Ils
 vont être satisfaits, puisque mon rapport ne se compose
 guère que d'une succession de documents dont je possède et conserve précieusement les originaux.
 
-(1) Du comité.
-
-PE A RE =
-
 Voici ce rapport, ou tout au moins la première partie
 de ce rapport :
-
-Messieurs,
 
 Je dois vous mettre au courant des incidents qui se
 sont produits pendant le déménagement que nous
@@ -818,8 +333,6 @@ les pieds aux Journaux pour Tous tant qu'ils seraient
 installés là! » Il a tenu parole, et M. Alfred Alexandre
 donna sa démission provisoire d'administrateur de
 
-24 ;
-
 l'œuvre. J'avais bien envie d'imiter l'exemple de
 M. Alexandre ; mais je considérai qu'ayant mis l'œuvre
 dans l'embarras, il était de mon devoir de l'en sortir. Je
@@ -865,7 +378,6 @@ administrateurs de l'École des Hautes Études sociales,
 sûr de pouvoir désormais gratuitement et en toute indé-
 pendance installer nos bureaux dans les salles disponibles de l'immeuble occupé par la dite école, le démé-
 nagement prochain fut résolu conformément au vœu du
-Comité.
 
 Mais comme on se trouvait alors en pleine période
 électorale, il eût été maladroit de réaliser immédiatement cette décision et, de plus, il était correct de
@@ -886,11 +398,8 @@ vous avez reçu de Mascart (1) — sans savoir exactement
 le motif de cette réunion. Ils ont tous, vous le savez, un
 temps trop précieux; ..... etc.
 
-Signé : BorvIN
 (1) Ces mots ne sont pas soulignés dans la lettre de Boivin.
-(Georges Colomb)
 
-PARU ENT à
 Si l'on ne tient pas compte de ce qu'avait d'incorrect
 et même de blessant pour moi le début de cette lettre,
 je reconnais que M. Boivin avait raison, au fond, sinon
@@ -901,7 +410,6 @@ comme ordre du jour, la question du déménagement et
 je le priai de copier textuellement, au cyclostyle, cet
 ordre du jour pour l'expédier aux membres du Comité
 et leur demander de venir bien exactement à la réunion
-fixée au 16 mai 1902.
 
 Je reçus cette réponse :
 Mon cher ami, ;
@@ -914,7 +422,6 @@ joindre aucune invitation d'aucune sorte. Tout sera
 dans l'intimité absolue à cause de notre deuil.
 
 À vous.
-Borvix
 Comme il n'était fait à la convocation du Comité
 aucune allusion, je supposai qu'elle avait été faite et, le
 vendredi suivant, 16 mai, je me rendis à l'École des
@@ -960,8 +467,6 @@ J'avais, au début, commencé par plaisanter, mais
 quand il devint évident que M. Péguy ne plaisantait pas
 et qu'il était sous le coup d'une apoplexie imminente,
 je cessai de rire : « Mais enfin, dis-je, faites-moi au
-
-(1) Le service.
 
 —————
 moins savoir pourquoi vous ne voulez pas que nous
@@ -1009,11 +514,6 @@ semaine, m'a dit Boivin.
 ILest clair que ce changement de domicile n'implique en
 aucune façon un divorce des Journaux pour Tous avec des
 œuvres sœurs comme Pages Libres et les Cahiers de la
-A —
-
-29 [LE
-
-Re
 
 Quinzaine, œuvres pour lesquelles nous navons cessé
 
@@ -1028,41 +528,30 @@ adhérents; un certain nombre d'entre eux ont en effet
 manifesté leur désir exprès que leurs noms ne sortent pas
 de nos bureaux.
 Veuillez croire, mon cher Péguy, à mes meilleurs sentiments.
-Grorces Corome
 On ne dira pas, je pense, que cette lettre n'était pas
-conçue en termes modérés.
 La réponse m''arrivait le 9 juin. La voici :
-Lundi 9 juin 1902
 Je ne sais pas, monsieur, Pourquoi vous m'écrivez
 celte lettre : de relations personnelles entre nous il ne
 peut être question et les relations administratives que
 Vous pouvez avoir avec les Cahiers ne se traitent pas
 avec moi; je ne suis pas locataire de la boutique située
 au 8 de la rue de la Sorbonne.
-CHARLES Pécuy
-/
 
 M. Charles Péguy persistait à être furieux sans raison.
 
 M. Boivin était rentré après un mois de vacances et
 avait été mis aussitôt au courant de la situation. IL
-m'écrivit :
 
-11 juin 1902
 Mon cher président,
 
 Pour ma part je serai prêt, à partir de demain, à
 disposer d'un peu de temps pour ce qu'on voudra.
-SR RERO 0
 
-\ “2e M TA ” kr .
 J'attends donc que vous vouliez bien me dire à partir
 de quand, tout étant réglé, je pourrai entreprendre le 1
 transport du matériel.
 
 Croyez-moi votre tout dévoué. ;
-
-Emice Borvin
 
 Je dis à M. Boivin de déménager le plus vite possible,
 après avoir naturellement payé le terme jusqu'en
@@ -1070,9 +559,6 @@ octobre, entre les mains de M. Bourgeois, administra-
 
 teur des Cahiers.
 
-M. Boivin me répondit :
-
-Jeudi 12 juin, 3 heures
 Mon cher président,
 
 Je viens de recevoir votre lettre et me suis mis immé-
@@ -1086,13 +572,6 @@ me tenir en dehors de ces négociations.
 
 Bien à vous. \
 
-. Emice Borvin
-
-J'écrivis aussitôt à M. Bourgeois :
-
-' 12 juin 1902
-Monsieur,
-
 Une lettre de M. Boivin m'apprend que vous vous opposez à notre départ avant que vous n'ayez reçu un congé
 
 régulier; le voici :
@@ -1100,23 +579,16 @@ régulier; le voici :
 J'ai l'honneur de vous informer que les Journaux pour
 Tous ont l'intention de quitter le local qu'ils occupent au
 8 de la rue de la Sorbonne et que le Comité a décidé que le
-déménagement se ferait immédiatement.
-
-” 31
 
 Nous tenons done à votre disposition le prix de la
 location jusqu'en octobre. M. Boivin est chargé de vous le
-remettre.
 
 Si vous avez quelque communication à me faire, je serai
 à partir de quatre heures à l'École des Hautes Études
 Sociales, 16, rue de la Sorbonne, où nous comptons emmé-
-nager.
 
 Recevez, monsieur, l'assurance de ma considération très
-distinguée.
 
-GEORGES CoLomB
 Président des Journaux pour Tous
 
 Pas de réponse.
@@ -1127,7 +599,6 @@ ne pas me donner.
 
 Réponse de M. Boivin :
 
-18 juin 1902
 Mon cher président,
 
 Je n'ai rien à vous répondre; vous savez que je nai
@@ -1148,8 +619,6 @@ J'ajoute que je n'ai plus suffisamment d'argent :
 Voulez-vous m'envoyer deux cents francs.
 
 Merci et bien à vous. ï
-
-Emice BorviN
 
 Permettez-moi, messieurs, de vous faire remarquer
 en passant combien les assertions de M. Péguy sont
@@ -1173,7 +642,6 @@ M. Boivin, qui voulait rester bien avec tout le monde,
 n'ayant pas pu me renseigner sur les causes du silence
 de M. Bourgeois, j'écrivis à ce dernier une lettre recommandée.
 
-19 juin 1902
 Monsieur l'administrateur,
 
 Je vous ai écrit le 12 de ce mois. Comme je ne reçois pas
@@ -1196,12 +664,9 @@ notre dette contre quittance.
 Veuillez, je vous prie, m'accuser réception de ce congé
 et agréer l'assurance de mes sentiments distingués.
 
-GEorGEes CoLoMB
-
 Réponse de monsieur Bourgeois adressée au 16 de la
 
 rue de la Sorbonne (École des Hautes Études sociales)
-23 juin 1902
 Monsieur le Président,
 
 Nous sommes disposés à entrer en pourparlers avec
@@ -1212,8 +677,6 @@ Ainsi nous vous prions de vouloir bien nous faire
 savoir quelle est, selon vous, votre situation juridique
 envers nous.
 
-ANDRÉ BOURGEOIS
-
 Je vous prie, messieurs, de remarquer l'absence totale
 de formule de politesse à la fin de cette lettre, la première que monsieur Bourgeois ait daigné nr'écrire.
 
@@ -1223,7 +686,6 @@ Et il y avait un grand mois que les négociations
 
 Je répondis :
 
-25 juin 1902
 Monsieur l'Administrateur
 
 Je vous ferai d'abord remarquer que mon adresse étant,
@@ -1233,7 +695,6 @@ Je vous ferai d'abord remarquer que mon adresse étant,
 une imprudence en déposant votre lettre au 16 de la rue de
 la Sorbonne où je ne vais plus que par accident, l'établissement étant officiellement fermé. C'est donc un hasard si
 votre réponse ne m'est parvenue qu'avec deux jours de
-retard.
 
 Maintenant, que signifient ces paroles : « Vous vous
 prions de bien vouloir nous faire savoir quelle est, selon
@@ -1256,11 +717,8 @@ Vous savez que les délais expirent le 30, à midi.
 Ensuite, vous seriez bien aimable de me dire pourquoi,
 sous quel prétexte ou de quel droit vous faites des diflicultés pour nous laisser partir du 8 de la rue de la Sorbonne, où nous ne voulons plus rester. Je veux croire que
 ces difficultés ne sont pas insurmontables et peuvent se
-régler amiablement.
 
 Je fais encore une fois appel à vos bons sentiments.
-
-GrorGEs CoLomB
 
 Pas de réponse !
 
@@ -1273,7 +731,6 @@ plutôt nos propriétaires, qui ne marchaient pas du tout.
 
 Enfin le 30 juin, n'ayant toujours pas de nouvelle de nos
 propriétaires, j'écris, un peu énervé :
-: ir Paris, le 30 juin 1902
 Monsieur l'Administrateur,
 
 Il est temps que prenne fin cette situation ridicule que
@@ -1291,13 +748,11 @@ n'acceptions pas de nous y installer.
 Je viens donc vous demander quel jour vous convient le
 mieux pour que nous opérions le déménagement ou, en cas
 d'opposition de votre part, quelles sont les raisons de votre
-opposition.
 
 C'est clair, net et précis.
 
 Ci-joint un timbre pour la réponse.
 
-GEorGEs CoLoMB
 22, avenue de l'Observatoire
 
 P.S.— Voudriez-vous, par la même occasion, nous dire
@@ -1306,17 +761,12 @@ monsieur Bourgeois, ou est-ce quelque autre? car je l'ignore
 encore à l'heure qu'il est. J'avais cru que c'était monsieur
 Péguy; mais une lettre de ce dernier nva fait savoir qu'il
 n'était rien dans la boutique. Quel est le signataire du
-bail ?
 
 Enfin monsieur Bourgeois daignait utiliser les quinze
 centimes que je lui envoyais et m'écrire :
 
-2 juillet 1902
-Monsieur,
-
 Nous ne demandons qu'à entrer en pourparlers avec
 vous. Voici quelle est, selonnous, votresituation juridique
-CnVErS NOUS :
 
 En août dernier vous avez envoyé à M. Émile Boivin
 la lettre suivante :
@@ -1352,10 +802,6 @@ des gens qu'on estime et (1) qu'on aime. (Je ne dis pas
 cela pour la Société Nouvelle de Librairie et d'Éditions
 avec laquelle nous ne pouvons avoir que de bons rapports). De plus Jean Pierre s'installant aussi avec nous,
 
-(1) Même.
-
-[EL
-
 vous avez vos deux bureaux sous la patte, si j'ose m'ex-
 
 primer ainsi. Enfin Pages Libres et Guieysse suivant
@@ -1378,7 +824,6 @@ Annoncez donc officieusement à la Société que nous
 f....ichons le camp. Je me réserve d'écrire une belle
 lettre officielle le jour où j'aurai cessé de faire le veau
 sur le sable micacé des rivages paraméens. C'est si
-pénible d'écrire!
 
 Entendez-vous avec Péguy, sur les bases que je vous
 indique plus haut et sitôt que le local sera arrété,
@@ -1387,15 +832,10 @@ endroits où l'on sait étre une g'éne.
 
 J'ajoute que je suis personnellement ravi d'être conjoint à de bons b....f.... comme Péguy et Guieysse.
 
-Cordialement,
-GEORGES CoLoMB
 Villa Maurice à Saint-Malo ou hôtel DuguayTrouin à Paramé. .
 
 Cette lettre nous faisait une obligation de contracter
 pour les Journaux au même titre que pour nous. Nous
-An D AU NA NEO TT ASS à
-
-f
 
 nous sommes entendus avec Boivin, avec Pages Libres et
 avec Jean Pierre pour louer à nous quatre cette boutique; pour ne pas être exposés à déménager malgré
@@ -1409,14 +849,12 @@ pour le faire cesser au premier octobre prochain. De
 même il faudra le dénoncer avant le premier avril 1904
 pour le faire cesser le premier octobre de la même
 année.
-ANDRÉ BourGEo1Is
 
 Le surlendemain vendredi, 4 juillet, vers quatre
 heures du soir, je me trouvais à l'École des Hautes
 Études Sociales, bureau du secrétaire, qfand M. Bourgeois entra.
 
 — Tiens! lui dis-je, bonjour ! J'allais justement vous
-écrire !
 
 — Bonjour Monsieur ! me répondit-il. Puis, prenant un
 air sévère, il manifesta si clairement par son attitude,
@@ -1424,16 +862,12 @@ son désir de ne point avoir avec moi des rapports
 oraux que je jugeai prudent de ne pas pousser plus
 loin l'entretien; seulement, le soir mème, je lui écrivais :
 
-4 juillet 1902
-Monsieur,
-
 Puisque vous boudez, je me vois dans la nécessité de
 vous écrire ce que je vous aurais dit très volontiers aujourd'hui si vous maviez pas immédiatement pris à mon
 aspect une attitude, passez-moi le mot, hérissonne.
 
 Je suis bien heureux de connaitre enfin, la raison de
 
-ONU OR ES
 votre résistance jusqu'ici incompréhensible pour mon
 âme simple. Je sais maintenant que si vous vous opposez
 à notre déménagement c'est que vous étiez müû par la
@@ -1482,19 +916,16 @@ août 1901 ? « Péguy cherche un local. Il le trouvera si les
 Journaux pour Tous consentent à payer 150 francs par an.
 Or si les Journaux pour Tous sont incapables de trouver
 cette somme, il faut mettre les dits Journaux pour Tous en
-liquidation. »
 
 Je vous ferai d'abord observer que ma lettre parlant de
 150 francs, il eût été au moins poli de me demander si je
 consentais à en payer 250. Or je n'ai connu ce surcroît
 imprévu de dépenses que par Boivin... après l'emménagement provisoire des Journaux pour Tous dans votre couloir. Cette façon d'agir et ce loyer plus élevé que le loyer
 consenti, n'ont pu que nous confirmer dans notre intention formellement exprimée déjà de filer le plus vite
-possible.
 
 Si nous ne l'avons pas fait plus tôt, c'est que j'avais
 encore à cette époque, contre l'École des Hautes Études
 Sociales, des préventions que j'exprimais un peu énergiquement dans ma lettre à Boivin, préventions que, mieux
-renseigné, j'ai constaté être erronées.
 
 Tous les obstacles de ce côté étant levés, nous nous en
 allons donc de chez vous, mais dans un désir de conciliation, cédant à des conseils amicaux, le Comité a décidé
@@ -1507,17 +938,12 @@ opposerez plus maintenant à ce que Boivin fasse ses
 paquets le plus rapidement possible et je termine en vous
 assurant de toute ma considération.
 
-GrorGEs CoLomeB
-
 P.S.— Un mot encore : je ne réclame pas l'original de
 la lettre très familière que j'écrivais à Boivin et de laquelle
 seul, le passage recopié dans celle-ci, vous intéresse. Je ne
 
 | ferai même pas à Boivin un reproche sur le manque de
 tact dont il a fait preuve en vous communiquant une lettre
-dont plusieurs passages pouvaient, à bon droit, être
-
-gt
 
 regardés comme confidentiels. Cette abstention de ma part
 vous montrera je pense que je suis meilleur « patron » que
@@ -1541,7 +967,6 @@ tiendrons le public au fait de cet incident.
 
 Le « coup de force », c'était le déménagement. Les
 « patrons » c'était nous et nos ouvriers (au pluriel),
-M. Émile Boivin.
 
 Je reprends mon historique.
 
@@ -1556,14 +981,10 @@ Monsieur le Président,
 
 Nous avons bien voulu entrer en pourparlers avec
 vous parce que nous espérions, malgré de nombreux
-RER EM RU 2 | y
 
-NE 5 ts ri » ?
 précédents, que ces pourparlers seraient sérieux. Nous
 avons reçu hier de vous une lettre de plaisanteries
 (sic) et de grossièretés (resic), nous ne pouvons continuer la conversation.
-
-ANDRÉ BOURGEOIS
 
 C'était une rupture sans phrases.
 
@@ -1576,7 +997,6 @@ c'est-à-dire plus de deux mois après le moment où
 M. Charles Péguy affirmait qu'il avait commencé contre
 nous une « lutte pied à pied » :
 
-a 16 juillet 1902
 Mon cher Président,
 
 Je viens d'apprendre que Bourgeois qui est absent ne
@@ -1588,11 +1008,9 @@ opposition (du moins je le crois) et vous demande ce
 que je dois faire.
 
 Bien à vous,
-Borvin
 
 Et le lendemain :
 
-; 17 juillet 1902
 Mon cher Président,
 
 Bourgeois m'a répondu à peu près textuellement que
@@ -1603,7 +1021,6 @@ en était au même point qu'avant que les pourparlers
 fussent engagés (je garantis le sens sinon les mots), que
 faut-il entendre ?
 Bien à vous,
-Borvin
 
 Tous les moyens non violents étant épuisés, il fallut
 bien me résoudre à en employer d'autres: je citai
@@ -1613,7 +1030,6 @@ M. Charles Péguy, lettre qui eut le don d'égayer fortement M. le Greflier.
 
 Il est certain qu'il y avait de quoi.
 
-Lundi 21 juillet 1902
 Monsieur le Juge de Paix,
 
 M. André Bourgeois, administrateur des Cahiers, est
@@ -1626,8 +1042,6 @@ sera sans doute de retour à Paris au commencement
 de la semaine prochaine. Il nous est impossible de le
 remplacer dans l'affaire pour laquelle il est appelé
 devant vous; nous vous prions de vouloir bien prononcer la remise de cette affaire.
-
-CHARLES PÉGUY
 
 Vous m'en auriez voulu, Messieurs, si je ne vous
 avais pas mis sous les yeux cette lettre écrite par mon-
@@ -1663,11 +1077,6 @@ Boivin ne fit la moindre objection au déménagement.
 Ce n'est que le 25 juin qu'il nous quitta brusquement
 sans que rien eût fait prévoir cette volte-face soudaine,
 en faisant claquer les portes, ainsi qu'en témoigne la
-lettre suivante...
-
-45 IT.
-
-Monsieur,
 
 Nous arrêterons ici la citation du rapport, car la suite
 n'a plus trait à la question du déménagement. Nous
@@ -1678,7 +1087,6 @@ encore, l'exige.
 
 Quant aux attaques personnelles dont je suis l'objet
 de votre part, quant aux injures qui sortent tout naturellement de votre encrier et qui me sont aussi personnelles, vous me permettrez de n'en pas tenir compte —
-provisoirement. —
 
 D'ailleurs, quand je vois quels sont ceux que vous
 insultez, quand je considère que de Henry Bérenger à
@@ -1698,10 +1106,6 @@ que j'ai prise pendant l'affaire Dreyfus; vous, Monsieur,
 vous avez changé de camp.
 
 Et c'est pourquoi je vous prie d'agréer toutes mes
-condoléances.
-
-GEORGES CoLoMB
-A)
 
 Lui déclarant que faute de satisfaire à la présente
 sommation, le requérant se pourvoira ainsi que de
@@ -1714,17 +1118,10 @@ copie sous enveloppe fermée ne portant d'autre indication, d'un côté, que les
 de l'autre, que le cachet de mon Étude apposé sur la
 
 à fermeture du pli le tout conformément à la loi.
-Coût : Soixante-treize francs soixante-cinq centimes.
 Copie : huit feuilles de papier spécial à 1 franc 20 et
 ; une à 60 centimes : Total dix francs 20 centimes.
 
-Rayé cinq mots nuls.
-
-Louis Maillard
-
 Maître Louis Maillard, huissier, successeur de
-maître Chapet, 9, boulevard Saint-Michel, Paris.
-Re te ER
 
 Je rappelle, pour mémoire, que M. Bernard-Lasare,
 contrôle administratif de Œuvre du Livre pour tous,
@@ -1735,35 +1132,16 @@ Cujas, Paris, proposé de constituer des arbitres ; — et
 que j'ai demandé à être entendu en témoignage par
 ces arbitres sur toutes les parties du débat.
 
-Charles Péguy
-
 15 INT RNPN IRÈNE SONO RE EAN AO ARS CE BEA eme n re Ne L'ANNRE
-HER Ne A MAN A ARE ER Guute AN Cr LH DEN MAUR ARE
-ET ARE PAIE 20 A # HUE A OO T CR ENRRSRE STANE  RnETS
-NPA PASS MANCHE j ) NAT ETES NN EAN PEER ETES fre DE IC EAN
-DR AT AAA Ne AA LORS LA EE NRA 0 AN NAN ADR ES
 A SA PAU La A DA EN E AEN QE (rs N'ES eu ATARI LINE ESA
 SUN ii GNU ONE APE IE Ÿ ROUE OST KO UN jen
-ME NL TES ait Ç £ HAT 1 ANTENNES AE 1
-1 ATEN TENTE j FH à} RON ANT ENS EU AIR in AVR
-1: 4 0 RONA EN NEr AIN 1 A API ONE M ee non
 | CN Ua
 Mie OU EN 3 j RAI TRTAUX FA PPT EN RUES
 | RAN SANS AE f Gr AR PGA CARTE PAIE ( ANARUSE LE RARE RE
-RAS RAT RULAT LEE sl HI IE SO UTR P OO UE f\ Val RAT) TN
 LR AE CM Et A re CORRE ol
-NN a tt RE PER COPA RAT ONE ONU
-NE UE fu D PA NON AAA RO EME TE MEANS HN AC ARE
-(7 NIUE RS . Rs: N PIRE LE PEU A NN AL ANR TE TE AT A
 DAS LA UE AE ANS A ee
-DSL Ca ARE GE ART NEO rs NA ee A
-AA RE CAP A A ONE AR SAT RC
-‘NAN et VA } PAS NAN? VAN EME) PAPA AE A Au A
-AR C0 é US } £ CR DL N LDAE LL TON Er qu RUE LA
-NTM OMR ERtRRre AE LAON ER ES AUS VD
 HA ut AR AIAENRS LEE PEN OR VAE ANS LAURE ke d AC LE À (CAE
 
-4 décembre 1902
 Mon cher Péguy
 
 Le Bulletin de l'Office du travail de novembre 1902 contient un compte rendu de la grève générale des mineurs. Je
@@ -1776,9 +1154,6 @@ inversement des affreux grévistes et du généreux Comité
 des houillères.
 
 Jean le Clerc
-
-A “a
-GRÈVE GÉNÉRALE DES MINEURS
 
 La grève générale des mineurs, décidée en principe
 au congrès de Lens (avril 1901), ajournée par le Comité
@@ -1828,13 +1203,9 @@ leurs yeux, comme aux yeux de M. Gruner, leur arbitre
 (1) Voir Statistique des grèves et des recours à la conciliation et à
 l'arbitrage survenus pendant l'année 1899, page 605 et suivantes.
 
-\ L2
-
-\ GRÈVE GÉNÉRALE DES MINEURS
 en 1900, la sentence était périmée depuis le 30 juin
 1901. La seule concession qu'ils pussent faire était de
 maintenir la prime à 3 °,, au lieu de la supprimer
-intégralement.
 
 Dès ce moment, une vive agitation en faveur de la
 grève se manifesta dans le bassin de la Loire. Le
@@ -1871,7 +1242,6 @@ de 2 francs par jour à 5o ans d'âge, après 50 années de
 service; minimum de salaires ; modification des lois de
 1890 [sur les délégués à la sécurité des mineurs] et de
 1898 [sur les accidents du travail] ; création de
-prud'hommes mineurs).
 
 Au Comité des houillères le comité national des mineurs
 
@@ -1896,12 +1266,6 @@ Le président du Comité des houillères répondit, le
 6 octobre, au comité national. Il déclinait l'offre des négociations, attendu que les statuts du Comité des houillères excluent « des délibérations de l'association les
 conditions selon lesquelles il convient à ses membres
 
-Bt 0 RE SR
-f # “
-
-: « » #
-
-GRÈVE GÉNÉRALE DES MINEURS :
 de gérer l'exploitation économique, technique ou commerciale de leur entreprise ».
 
 A cette date, il y avait déjà, dans le Nord et le Pasde-Calais, 32.000 grévistes. Le comité national, assemblé à la Bourse du travail de Paris, le 7 et le 8 octobre,
@@ -1941,7 +1305,6 @@ comptait 111.266 grévistes, appartenant à 51 compagnies. Après le Nord et le 
 bassin du Cantal, du Puy-de-Dôme et de la HauteLoire, où les ouvriers n'avaient pas attendu la décision
 du comité national, les Bouches-du-Rhône, le Gard, le
 Tarn, avaient cessé le travail le 9 octobre, l'Allier, le
-10, l'Aveyron, le 13.
 
 Devant les retards apportés par les Compagnies à
 répondre aux invitations des préfets du Nord et du
@@ -1958,7 +1321,6 @@ Dunkerque. Dans cette dernière ville éclatèrent, le
 déclinèrent toute responsabilité etinvitèrent les ouvriers
 à observer le plus grand calme et à reprendre le travail. Ces conseils furent suivis: la reprise du travail,
 
-GRÈVE GÉNÉRALE DES MINEURS
 votée par voie de referendum le 24, eut lieu le 25. A
 Calais, le 24, et à Marseille, le 25, la grève s'était terminée sans incidents.
 
@@ -1984,7 +1346,6 @@ ouvriers des deux départements avaient choisi le même
 arbitre, M. Delafond, inspecteur général des mines: les
 Compagnies du Pas-de-Calais avaient désigné M. Bros-
 
-, L t :
 + Bulletin de l'Office du travail
 selin, inspecteur général des ponts et chaussées; celles
 du Nord, M. Heurteau, ingénieur des mines, directeur
@@ -1993,7 +1354,6 @@ deux sentences conclurent qu'il n'y avait pas lieu, aux
 termes des conventions dites d'Arras (c'est-à-dire en
 calculant le taux des salaires d'après la hausse ou la
 baisse du prix de vente du charbon) de relever les
-primes actuellement en vigueur.
 
 Cette sentence causa une vive déception dans les
 centres miniers du Nord et du Pas-de-Calais. Un congrès, tenu à Lens le 8 novembre, décida de continuer
@@ -2008,15 +1368,12 @@ grève, la Compagnie n'a pas encore répondu (15 novembre) aux propositions du P
 
 Le travail a repris dans l'Aveyron le 25 octobre, et
 dans le Gard, le 30, les ouvriers ayant abandonné leurs
-revendications.
 
 Dans le Cantal, la grève a pris fin, sans conditions, le
 21 octobre. Dans le Puy-de-Dôme, des entrevues, provoquées par le sous-préfet d'Issoire, ont eu lieu le 6 novembre. L'accord s'est établi sur les revendications
 secondaires ; la question des salaires a été réservée. Le
 15 novembre, les Compagnies r'avaient pas encore
 accepté l'arbitrage. Dans la Haute-Loire, les négociations sont sur le point d'aboutir à une entrevue. $
-
-GRÈVE GÉNÉRALE DES MINEURS
 
 Dans la Loire, on décida de recourir à un arbitrage
 pour régler la question des primes. Les ouvriers
@@ -2039,15 +1396,8 @@ Le Bulletin de l'Office du travail de décembre 1902
 publiait la suite et fin de cet article :
 
 ge année. — No 12 Prix du numéro : 20 centimes Décembre 1902
-BULLETIN
-DE
-L'OFFICE DU TRAVAIL
 (Ministère du Commerce, de l'Industrie, des Postes et des Télégraphes)
-SOMMAIRE |
-Mouvement social en France
-Pages |
 Revue du travail en novembre. . 41853
-Situation générale :. 4.1/1 ENS RS5
 Grèves'en novembre "NV NE EN PEENERER AG x
 Conciliation et arbitrage en novembre . . . . . . . 864
 La grève générale des mineurs. (Suite et fin.) . . . . . 865
@@ -2056,7 +1406,6 @@ céruse et au blanc de zinc. MN VEN EE NN 567
 Le congrès à Cologne de l'Association internationale |
 pour la protection légale des travailleurs . . . . . . 87
 Cinquième congrès de l'Alliance coopérative internationale 10e EURE ENTREE 0
-Jurisprudence
 Syndicats ; droit d'ester en justice. — Loi du 2 novembre :892; cumul des contraventions identiques en |
 matière d'inspection du travail. — Loi du 9 avril 1898;
 accidents du travail, COINS
@@ -2065,17 +1414,12 @@ Allemagne : Revue du travail. — Placement. — Grèves.
 — Durée du travail dans les maisons de commerce |
 sans magasins de vente publics, — La Bourse du |
 travail de Berlin. — L'ivresse et les accidents du |
-Autriche : Placement. — Grèves. . . . . . . : 188)
-Canada : Revue du travail. — Grèves. . . . . - : : : 890
 États-Unis : Grève générale des mineurs de Pensylvanie. — L'assurance-accidents dans le Maryland. . . 890
 Grande-Bretagne : Revué du travail. — Grèves. — Le
 congrès des Trades-Unions. — Réparation des acci-
 
-! gi SNS SIREN
-! Pages
 À dents du travail (1901). — Les sociétés coopératives
 | de consommation et de production. . , . . . . . . . 895
-TAC ATOS SCENE ER INOO . Le. . à. , 0. a. 4.004
 Nouvelle-Zélande : L'inspection des fabriques (r901Suisse : Application de la loi fédérale sur les fabriques.
 — Loi du 26 juin 1902 sur le paiement des salaires et
 DRAP I CDS AM ea de à à, ain otie 4e RE
@@ -2086,30 +1430,21 @@ commerce, en date du 15 novembre 1902, sur les
 conditions des avances aux banques coopératives
 ouvrières. — Lettre du Sous-Secrétaire d'État des
 1 Postes et Télégraphes, en date du 11 août 1902, sur
-, l'application des décrets du 10 août 1899. . . . . . . 907
 Etat des travaux législatifs (novembre-décembre 1902). gog
 PIQUE IORTAIAETVE. ne TL 4 2 ECO
-Renseignements divers
 Analyse, par département, des renseignements fournis :
 1° par les associations patronales, etc. ; 2' par les
 CORPS ROMAN une Ch NN
 Analyse, par département, des renseignements fournis
-par les associations ouvrières. . . . . . . . . . . . 920
 Prix au détail de certaines denrées (4° trimestre 1901) . 934
-Prix courants divers ; commerce extérieur ; transports,
 faillites ; autorisations de bâtir ; adjudications. . , . 935
-MAVEMÉRDIS YA. 12 4 0. Li. 1400
-LED ER RSR SEEN
-PARIS
 BERGER-LEVRAULT et Ci, éditeurs LIBRAIRIE ARMAND COLIN
 5, rue des Beaux-Arts (6° arr') 5, rue de Mézières (6° arr')
-À ES
 Le Bulletin de l'Office du travail paraît tous les mois. On
 le trouve chez tous les libraires. On s'abonne également
 dans tous les bureaux de poste et à l'Imprimerie nationale.
 Les abonnements ne sont pas requs au Ministère du Commerce
 PRIX DE {POUR LA FRANCE . . . 2fr. 50 par an
-L'ABONNEMENT | POUR L'UNION POSTALE. 3fr.50  —
 # :
 
 À la date du 15 novembre, la grève persiste dans les
@@ -2139,23 +1474,16 @@ l'industrie minière », rendit, le 28 novembre, une sentence
 comportant les trois clauses suivantes :
 
 1° La prime des salaires, réduite de 9 à 3 ‘ depuis le
-16 août 1902, sera, jusqu'au 30 juin 1903, portée à 5 ‘/, du
 salaire de chaque ouvrier, sans pouvoir être, ni inférieure
 
-62 “or
-
-GRÈVE GÉNÉRALE DES MINEURS
 à 20 centimes, ni supérieure à 35 centimes par journée de
-travail ; :
 
 2 Elle sera de 4 °/, pour le deuxième semestre de 1903
 
 avec un minimum de 15 centimes et un maximum de
-2ù centimes ;
 
 3 Elle sera de 3 ‘°/, pour le premier semestre de 1904
 avec un minimum de 10 centimes et un maximum de
-20 centimes.
 
 Cette sentence fut acceptée par les deux parties, Le
 travail avait été repris, dans tout le bassin, le jour
@@ -2185,7 +1513,6 @@ faire subir au salaire.
 Travail au Ministère du Commerce, se rendit à Messeix
 le 26 novembre et ne put que constater la baisse des
 
-É
 Bulletin de l'Office du travail |
 cours. Les ouvriers obtinrent cependant des mesures
 leur permettant de contrôler l'exécution de l'engagement
@@ -2198,7 +1525,6 @@ fut votée le 5 décembre.
 
 Dans le Tarn, à Albi, l'entente s'établit, le 17novembre,
 entre la Compagnie de Cagnac et le représentant des
-mineurs, M. Viviani, aux conditions suivantes :
 
 1° Le contrat du 6 juin 1902, qui devait tomber en cas
 de nouvelle grève, est maintenu dans son intégralité ;
@@ -2216,19 +1542,15 @@ fonçage des puits de la Gare pour la mettre en exploitation
 et accélérer la descente et la remonte des ouvriers ;
 
 , 5° Comme conséquence, les ouvriers reprendront le
-travail.
 
 A Carmaux, la Compagnie des Houïillères de Carmaux
 accepta l'arbitrage et choisit maître Ménard, avocat à la
 Cour d'appel de Paris; M. Viviani fut désigné par les
 ouvriers. La sentence fut rendue le 3 décembre, elle
-décidait :
 
 ARTICLE PREMIER. — a) Les ouvriers renoncent, en l'état,
 aux revendications présentées dans leurs lettres des 6 et
-27 octobre 1902 précitées ;
 
-jé
 | GRÈVE GÉNÉRALE DES MINEURS
 
 b) La Compagnie renonce à se prévaloir du cas de rupture
@@ -2251,7 +1573,6 @@ ARTICLE 4. — La Compagnie confirme l'intention qu'elle
 a manifestée et prend en tant que de besoin l'engagement
 de ne prononcer aucun renvoi et de n'exercer aucune
 représaille à raison des faits de grève antérieurs au présent
-arbitrage.
 
 En conséquence, la reprise du travail a été votée le
 4 décembre et effectuée le 5.
@@ -2261,71 +1582,28 @@ La grève est terminée.
 Je-prie notre correspondant de vouloir bien continuer
 à dépouiller pour nous le Bulletin de l'Oflice du travail.
 
-IV.
-
-AC Rate MONACO PRE SE NL EN |
 ne A CE EP ANNEE EEE EU
 PNA DE PO AE EM MNT RU RQ Dee Lt
 ‘ FA ES A He NE e FIV A | js pe JR “POS Mit)
-1 LION ANNNNRÉES i} HA A EE : PEN) CARE €, LR ME SRE
-1 1NAEASSS ee UE ù ic PR pi SHARE D Lee ES
 De | RE LORS MERE EE É FE HO HÉPACS RTE0 seu ARS MAUR nur ae
-nn | D ANS CPR".
-DMLER } 0 NUE. \ V1 LE(S ARE PRE Fa
 rtf 1 THNON ; \ nl GAY ji PA D CE Br ei
 qe RUN Rn l , : UFCE CR A Lo A RAT pe pa
 0 HAE tee À AAC LE ER EEE NA AE EUR Nat
-SN | LA DO NE Re OA
-NEA HA) h : if START “ARTE 2 US HN ME LAMEN
-HP) \ A ) NUE en F
-NN PANN : AN 0 © SENTE f
-Ya CALE (pu AURA ÿ Re RUE MAL EAN Rat
-: OMENEROUES : {ANNE dora
-“ x AR Re £5 es NET TR A “ ADEME 14.7 À cd AVE À
 
-courrier d'Indo-Chine
-
-Ua CT ANS Re ALAN
 A LA Ar RAS Graine HO AA ANUS TN EM
-LCA NELARNNRER TE LRO AE PTE ON TER ES de
-À MT Ie RATE CHE AR MA AR NOM APE
 LU NANOENSS NE NL PA NAIL A TRS FE jt
-Va AA De k 1 n Le pe NE PRET)
-ES Er Jr Ji TUE EPA "ADP rot
 {ie OH AT ARE A PAR EEMS
-:| 1 EN Re à AE
-à ee D DURE ae ï
 1 TENTE Par ' f x NE AE le
- : Di
-a NA ANA à US ANNEE CAMES A A
-AN DONS Ho VE AMRNTENTE (or Mn
 LA Re k A) LD À ae RO je
-Li AR ro jl ; STE TS ALMA b
 } MR A RLEN late RS DU A LATTES
-D ESTEREPEN HENTe ASE RTE DR EU à
 | NAN Re En A
 OUR ÿ it vi La À a UE
 LE REPARER fr ER £ (EN ERA SE ot
-FRSMEAIMIAN 4 ‘ DDR A FANES ANA MR qi
-MAL LEE x se SL AR '
-J'EN HUE k ÿ ny : AT Mn NOTA
-EN PERS TE LEA er é À LEA : 1 LP RENAN TES PACE
-LD INTER é : CNE TO LENS LATE
-MATE) k x k + PR AU EU À
-1 ANR RES , £ LARGE ART RENE ; At
-AG Mr LUE TE MERE }
-FA Su j FAN 47 NAN
-ki] K PAU fu at us dr
-ee $C | RORUNE ANNE us
 A LA tee Ne NA RU ei ne
 OT NT Een ATE Mn TN (1 AE De PATES
-157 CAN get ROC PENSE ES [EPA ATS EN 15
 
-FÉLICIEN CHALLAYE
-SECOND COURRIER D'INDO-CHINE
 Aux Français de bonne volonté il faut rappeler de
 temps à autre les souffrances lointaines de nos sujets
-annamites.
 
 Dans un premier Courrier d'Indo-Chine paru dans le
 septième cahier de la troisième série (janvier 1902) j'ai
@@ -2337,7 +1615,6 @@ Le premier découvre assez bien quels sentiments ont
 pour les Annamites les colons français.
 
 Indépendance Tonkinoise du 10 août 1902 : Chronique
-locale (Hanoi) :
 
 Vendredi soir, vers deux heures, des cris de douleur, des
 hurlements déchirants partaient d'une maison sise à l'angle
@@ -2352,8 +1629,6 @@ distrait une somme de cinquante cents au préjudice de son
 
 * patron indigène! Les lambeaux de chair voltigeaient en
 
-nv
-Félicien Challaye ;
 l'air sous chaque coup de la cadouille, et le chef de la rue
 qui assistait à cette horrible scène paraissait très satisfait
 du spectacle.
@@ -2381,14 +1656,10 @@ par quelles cruautés se manifeste un pareil état d'esprit.
 pas compte de la psychologie spéciale du Français
 habitant l'Indo-Chine.
 
-fs
-
 Autre correspondance, se rapportant, celle-là, à la
 
 Mission. (Je l'emprunte à un journal tonkinois plutôt
 
-4 *HVL 1 (1 Le
-: COURRIER D'INDO-CHINE
 ? favorable au catholicisme et qui d'ordinaire défend
 \ énergiquement la Mission.)
 
@@ -2422,7 +1693,6 @@ La leçon eùt porté et ces incidents ne se seraient pas
 reproduits, au moins pendant quelque temps.
 
 Or, voilà qu'on les met en liberté, et qu'il n'y a plus de
-condamnation.
 
 Je ne sais pas qui a pu donner de pareils ordres; mais
 
@@ -2437,11 +1707,7 @@ A peine relâchés et revenus dans leur village, ils se sont
 leur promettant une vengeance plus éclatante encore, et se
 vantant d'avoir de puissants protecteurs à Hanoï!
 Ont-ils tort”? Non, puisque les faits prouvent le contraire,
-?
 6 71
-
-\
-Félicien Challaye : |
 
 Leurs victimes vont être obligées de quitter le village, |
 chassées par eux, et ne pouvant plus habiter à côté de gens
@@ -2468,6 +1734,3 @@ Appelons de nos vœux, et, si possible, provoquons
 par nos efforts l'énergique action morale et politique
 qui délivrera nos sujets annamites des brutalités fran-
 çaises et de la tyrannie catholique.
-
-Félicien Challaye
-ARE ARE EN CAN US seems

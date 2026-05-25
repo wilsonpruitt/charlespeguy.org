@@ -7,11 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 4691
 ---
-
-*Charles Péguy*
-
 De la Province,
-jeudi 21 décembre 1899,
 Mon cher Péguy,
 
 Aussi longtemps que l'affaire Dreyfus a duré, je
@@ -186,10 +182,6 @@ Vous avez célébré à Paris Le Triomphe de la Répu- ù
 blique. Dans la Petite République du lendemain je
 trouve une manchette vraiment grandiose : Une
 
-Journée Historique. — Paris au peuple.- Manifes-
-
-tation triomphale. — 500,000 travailleurs accla-
-
 ment le socialisme. Et dans l'Aurore je trouve une
 manchette plus modeste : Le Triomphe de la Ré-
 publique. — Une Grande Journée. - Défilé de
@@ -292,12 +284,10 @@ nous proclamions au commencement de cet hiver:
 Cette proposition est-elle annuelle, ou bisannuelle ?
 Fond-elle avec la gelée? Et voilà ce que nous décla- é
 
-Jeudi 27 décembre 1899, M
 rons encore aujourd'hui contre les antisémites.
 Cette proposition est-elle, aussi, locale ? Non. Elle
 est universelle et éternelle, disons-le sans fausse
 honte. Nous demandons simplement qu'on dise la
-vérité.
 Cela peut mener loin, ces blessures faites ou censées faites aux organisations. 1l est évident que cette
 résolution a été proposée au Congrès par sa commission plus particulièrement pour protéger contre
 la critique certaines organisations. Ces organisations sont justement celles qui ont des chefs et de
@@ -482,8 +472,6 @@ communiquées par la presse au public. Elles
 
 sont nombreuses, importantes, quelquefois capi-
 
-tales.
-
 Tu me diras ce que tu penses des hommes et des
 événements. Non pas que je m'engage à penser
 comme toi, ni à penser avec toi. Mais tu me diras
@@ -502,12 +490,9 @@ Le Mouvement, plus court, plus portatif, nourri,
 amical, très largement international, ne quitte
 guère la poche de ma veste. Pour avoir les autres
 
-F 127 MARS
 journaux et revues et les livres, nous avons fondé
 un cercle d'études et de lecture. Mais il ne suflit pas
 d'avoir tout cela. Il faut encore s'y retrouver. Tu
-
-m'aideras à m'y retrouver.
 
 Tu me transcriras tous les documents ou tous les
 renseignements qui sont à conserver. On ne peut
@@ -580,7 +565,5 @@ du monde par quinzaine, ou une chronologie du
 monde par quinzaine. Je te prie de m'envoyer des
 cahiers de renseignement, sans esprit de parti, sur
 ce qui m'intéresse.
-
-LE ProviINCIAL
 
 ---

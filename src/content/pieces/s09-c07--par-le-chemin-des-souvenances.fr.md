@@ -7,7 +7,6 @@ author: rene-salome
 isAvertissement: false
 wordCount: 10745
 ---
-
 Qu'il avait mis là pour-le ménager, sans doute, ; " 4
 Etpour avoir le front plus léger sur la route. ere à
 À le
@@ -19,7 +18,6 @@ Des rides qui ressemblaient à des lèvres fendues us
 Par les éclats de la gaîté bien entendue; ;
 î Et tout alors, sur son épiderme, était rire. SEA de
 
-; {
 On causait. On lui rappelait des souvenirs, 3e #
 Le temps jadis où, n'étant pas encore un Faune, re 456
 Il marchait vaillamment de Paris à Épône j 1
@@ -35,8 +33,6 @@ Mais où l'on n'était ni malotru ni maussade; Past SA :.
 Du temps jadis où l'on dressait des barricades à ;
 Pour y mourir avec des gestes de Talma 2 ARE
 
-Er 79) À a ie ;
-
 DE ea WPT 4 DES SOUVENANCES :
 Vieil oncle d'autrefois que mon enfance aima
 # Pour sa gaîté foncière et ses propos rustiques, |
@@ -48,83 +44,32 @@ p Si bien que l'effacée, l'humble et modeste tante,
 Ne tenait pas beaucoup de place en sa maison,
 Et sa parole avait des rumeurs d'oraison;
 Mais, nonobslant son doux maintien, sa voix contrite,
-. . *
 Un orgueil Ia tenait,
 car elle était spirite
-a
-$ = YA
-s _ »
-SRE 2
-po "rar
-Eux
-MES 4
 
-Fe NAN SES Ne à TRS ARE EG.
-cn ADN re A; Se Ha er
-EVE RARES EUR CEE AMEN ES She nue FRA RENE | Hier DONS 54
-MERE ES AE 3 PC GR PE MAS RE RES APE EE RE LOTS HAE
 NH ENES Eee DNS AT LE LT OS TST ANTENNES RSR Pt ere ROSES F1 cm “a
 PAYUET:) ] RURALE PRET MES TNT 4 ae A Rte His TER FA UE * ATETEUR
-DAC, LP SONDE ARTS PEN ee
 on Re ETES RE dou
 nes AUS ee IN ER MISES US ATEN de 1 TRS She ne 4
-PC TR ARE RESTO LATE nd. RE PS a
-ei à Ame RUN EN Er DNA Eee PS PRES a
 | FREE SU to no M à
 Pr AP Le ap At BE Cou GAME au s Ke DEAR or.
-NN HS EAN AT É SRANRS à Per MON MAT Ad, : SORTIES :
 à ne Frs D Fe
-DA à : A RENE PRAMENTTE “ER Are pete FT PE
-AAC Re ER : MINE RAR Me HE Re RARE à
-LA SES Rd  . do.
-ie T x " ñ arr LEA Msn TER PT à RE A TO T 1 dr st
-LGPEAPES Se OUR RENE HA SNA
-: HAE ES TE es Fra Due
 Lena 1 HN La 1e DO ES CR LEE FENTE HHEM PLANS Se Dre
 Ne) CIE Re VS AE Are Eee EN ET En ie
-60 Her LEE PEN a ras NA
-RSS Can nr A A Fo SR AU
 een ALEANNGeE WEAR LR 114 TRES A ne
 2 SH AR Re NA RS LE PANC en Ne Ne Lors
-A ARS RAS at Pr Rae tance RTE STARS Rs ARE Se
 2h ATEN ra at an, te AE nNE TU HAS CR RL DAME VE He TASER
-Se Et, Re CARRE A DEA Be SA sr RS RS À L LYS
 M Es EN ETF DES PMR VA AU ET een: : Fetes
-FLE STE PA RER 4 RE As LUTTE VAE DURS JAN TL $
 La Fe CES Cal et #1 DE 2
-at AURAS AMEN NET
-2 HÉTEPETAE
-
-FACE SRE z: 4
-FAC & AG = INT" : SN sr JAM re
-
-rs LA \ We CAT We
-Fes ‘ EME y Ÿ TRY '
-
-+
-LA
 
 é Monique, Agnès et vous, Sylvie
 |
-\
-ÿ
 
 RL 7 de Agnès et vous, Sylvie, sœurs d'autrefois,
 è Poudrées, busquées, vous évasant toutes les trois
-= : » . . .
 à De la taille aux talons grâce aux paniers qui grincent,
-2 3 x > !
 | Dans ce cloître discret et désert de province,
-3 + p À
 | Vos ombres m'ont accompagné au promenoir,
-L.
-k | 73 chemin. — 5
-î
-4 ré, LE
-
-LUN ONNENR
-
-à 6 AO LUNETTES MES A RL VU
 
 à par le chemin. MAN IN PANNRE
 Et dans le vieux jardin où vous veniez le soir pee
@@ -145,15 +90,12 @@ Et Madame l'abbesse avec son clavecin Les
 Vous accompagne en levant aux nues ses yeux saints R
 Que n'empourpra jamais le feu des convoitises, 54 ï
 
-à
 Bien qu'en son art d'accommoder les friandises, - AA
 
-“ . . . 2 (
 Nulle autre ne la vainque et peu lui soient rivales. î 4
 Aussi la flattez-vous d'un caquet virginal NES
 Qui ravit l'innocente et pieuse créature, : ‘1
 
-+7
 Et parfois vous pouvez goûter les confitures He 4
 
 Et les pâtes de fruits et les fins caramels Re:
@@ -161,21 +103,8 @@ Et les pâtes de fruits et les fins caramels Re:
 Et les bonbons fondants de jujube et de miel j de ‘#
 Qui sont fort estimés de Messieurs les chanoïnes. Do
 
-ASE LCR
-
-* TIC ETR
-
-“TES
-
-es QUNF ENV ATOS
-à 215 x pl
-
-LD Le NS ARR
-PIN 7 7) | DES SOUVENANCES
 rs Nes es re TA - à
-2 PO
 
-Mis
 TMC Monique, Agnès et vous, Sylvie, plus rien ne voile |
 “5 _ À mon cœur le passé qui fut vôtre au couvent. .
 
@@ -188,28 +117,22 @@ A A haussé vos maintiens, vos gestes, votre organe
 # Vous l'avez honoré des soupirs de Racine,
 Er A Et lui, fixant vos yeux de mauve ou de glycine
 we Qui se baissaient modestement sous son grand nez,
-nf Ê
 LT Il vous a fait des compliments fort bien tournés ; ‘
 __  Puisila dit qu'à la grand gloire de son diocèse,
 4 Il était membre de l'Académie française,
 ë Pour avoir fait de petits vers, étant abbé.
-M: -
 re de.
 
 RS. _ Monique, Agnès et vous, Sylvie, les scarabées |
 _  Aïlés, les sphinx, les bourdons passent el repassent :
 ÉS Le long des avenues où vous jouiez aux grâces
 Fe. Et qu'envahit le flot des plantains et des ronces
-ue
 are Entre les treillis verts qui ferment les quinconces. 4
 É Et la cloche a cessé de mêler ses complaintes, |
 + Qui marquaient les moments de folie ou de crainte,
 ; - Au doux grésillement du feuillage et des eaux.
 êË _ Plus de joie; la volière a perdu les oiseaux .
 “à * Qu'un oncle voyageur vous rapporta des Iles,
-
-Re
-HR RC
 
 par le chemin
 L'oncle qui avait vu nager des crocodiles
@@ -219,8 +142,6 @@ Semblait un parchemin de la bibliothèque,
 Dans le donjon fumeux où du soir au matin
 L'aumônier du couvent tournait des vers latins
 Suivant l'art délicat de Properce et d'Ovide.
-
-À
 
 Monique, Agnès et vous, Sylvie, le temps dévide |
 Sans cesse, el jamais plus, dans les jours, dans les mois,
@@ -255,122 +176,47 @@ Pour les douleurs de Madame la chanoinesse,
 : Votre tante. Il y eut des soupirs, des promesses
 ‘ Puis vous voilà roulant sur le pavé du roi,
 Monique, Agnès et vous, Sylvie, sœurs d'autrefois
-:
-3 NS
-DAT.
-api a
 
-AMEN LAS ME gs
-DA ENTREE DRE EE ER METTRE EME
-FERRER É à Dr A MIE Se Re DAT CUT Eye AR Aa EE
-D AN EN TRES PAU < CHARS EPA TESS “A RMATTENETAe LR - Air El
-ri LAN ERA ARNRUERER ARE DEA PAT ee
-RTE ù ; LL al 1 OO « a HE NANREESS
-M ohe. 0e OO TRRESERREES REC AGEN
-HT SR INTEL ù RAR RAT Re EST CORAN PRIE
-SHARE RE Ne He A A Le FM ENS
 ae RSR EN ME de ee à LS VS ANS
-M. Pi DER HI POUERS fi AR ue Fi
 LS NE LE (Ne PR NE PR et APE A RE
-M 0 us a “FES
 AS CA NANTES TT A MNT TES FEAT AR ne 0
 CAE A ER ee je EN BORN ET PES Fe SALE SP Aez
 EP APr EEE AR Re LE Lu Et RAR ARR ant
-LA EE CES AS ae SACANUTNT ES LITATE a ETS LE SO
-SA TN ER TES CAE NORD PEU re Te NORMES RE A Hi
-RU AMEL AAA | AS EE 1% EAU AE SAR LA paie LPC ATIS PEN
-VS Er RARES SERA NET SRE HEILURE 2 TE OT ANS RON
 AR ONE PRADA DS Le pre CUS Lei, TRES a
 MA Pr Nan HONTE TE F
 
-TR NS PRES KR sy
-£ RIRES RICO CAS A ht &
-AUSY N'AVESAIN SAN NES AVES AIN À à VS ARTE US
-ASS SSSR SNS SES SES
-Peut CS) CDOSCSOSOSCOSOSEOSS
-Der AE 2 rte
-a M
-
-ITR s q 2e
-SIP ERERSS F ee
-FIN a * UT
-.. Re  .
-Let PEINE DORE
 tte ra Vous n'avez fait songer aux dandys Pur En
-SRE RE d
-RETERS OUR
-FA à PRE “+ Max :
 
 x JOUS m'avez fait songer aux dandys romantiques 3 MER
-tn 8 y ques, È û &
-eo du ; 1 FT. : : : Le, 2
 __ V Beaux ténébreux comme on en voit dans les boutiques RE
  D'estampes, sur les dessins de Tony Johannot, MAN
 _ Ils s'appelaient Gaspard, lidefonse où Renaud; roue n'a
-Lé: À à ; = LE '
 
 it “ Ils savaient imiter les gestes de Werther, ie
-eù. k A $ Rare
 
 2% Leur père avait guillotiné, volé des terres, FE St
 CAN FA dE es.
 
-+ SOPTRE s % Fi k :
-
-TA SE do L mA +
-
-“67 CNT #7 « is #8 =. PA DE PS TA L*
-
 par le chemin ‘Ko
 Détroussé lestement ses maîtres abattus
 En prononçant de grands discours sur la Vertu. rs
-Ê
-à
 Mais eux, les fils, gènés de leur force nouvelle, |
-à
 Ne trouvant rien, et moins que rien, dans leur cervelle,
 Qui servit de passé, de croyance et de foi, $
 Donc, incurablement bourgeois, fils de bourgeois,
 Affectaient d'éprouver l'effroi des destinées j
 Qui les poussaient vers les tâches insoupçonnées Ô
 D'un Hamlet qui n'a point rencontré de fantôme. We:
-- >
-=
 Ils cachaïent leurs mentons sous de hauts foulards jaunes,
 Ils portaient des gilets en forme de pourpoints, :
 Autour d'un jonc à pommeau d'or crispaient leur poing
 Ganté, se corsetaient pour être plus étiques —— :
 Vous m'avez fait songer aux dandys romantiques.
-:
-?
-à
 
-5 LU LORS ONE SES RERNS À ESPN TS
-D D Nu es
-M D NET ER Nr Ras
-RS ma RS RE 7 ENS
-DNA Tee RU NP REUTERS ANT ER EU EE EE Te à
-LES OR
-PTLN LUE RSR ES
-RTE Re Can À TS QE
-ve EME E CALE KART #08 FAT à x CRD ANS Er y.
-+. ie a te PLAN UT | À 4 : … ‘M4 ne | AT
-LRO AIRNESS : : “LPS RER
-"NT Lx SLR Me nn
-PE Un: ST. … v pr 19 Pi RE
-
-_ HBt AAAESSSS Cu CET À AMIENS | ER FOR
 F4 RER “ANR Re * er ci ÉPANUNES L
 | ARRETE Ra ra VE Ne RPTHLAC:
 “PRE RER |'HRVES PAS tx CALE CNET Des |
-UN SNS  LATHP ENS
-A EN 0 Ch - * FUN SUR RSS
 [ete 25 ANR ROUE #4 LE NES L' (is DIRE (rare
-LEUR FRET a PIE JOUR) N L 315% a TRE ECS
-COUUSSS 4 1ÈRsSS » 7 { AVAPDAEEN 2e PORN ; ET
-SAS HITS AAA: fe Pr MORE SENS
-PATTERN < 3 RE RSS ... an RC FR TE
-k 4 SACRÉ LUN ER LA ,— i ASS
 AE Le | ré Fe CNP COTES
 
 je rt: (AE Se) ETES HAE FRE
@@ -379,45 +225,15 @@ je rt: (AE Se) ETES HAE FRE
 
 Dre. PACE + L tr 1 DR LR Pme
 
-LICRTÉ ONE DR RS ASS D Se
-
-SES SRESES ANRT IDE POULE RP NET TET
-“HR NES os MR tune
-PSN cs Mu
 + NRA TES 2 pe FE D AE SARNIA RES
 en TT L INORTAERE REA IE <
-SCIE PAIN Ho ra2r PReie
-PR 4° AN TTES S à à 2 HAE Pa ste FINE k
-IN CURNR SÉRIE: PP ON ACER
-AA: His Te EX M4 EME UE ee
 PUR TAU ON à AS : Men Et NS ME UE
 ER OU re RO EAN ER
-LTÉE TOI RSS EE RE
-7 ÿ ‘TOUR ; ; Sr Ras
-FEU RSS £ Ja HIT ACT" lion AU
-LR VÉRINS A D
-LÉ RER PS DOI NEES RTE .
 
-DR EEE = k MR du NN Re As,
-? AR ù DRE Tr #
 RS DT us à ET eg nn ne ie
 
-À NAS PONS : Fr, HAE CTI t
-
-RNA TETE re 3T LS RE
-Lu. Re
-ue CREER AT PETER LUE EE TE 4 Lo
-
 TS D En de ed eu 4 A)
- RORORORORORUORORORO
-RAGGA CAL CAE CA A ea
-_ HTC rC) OCCCE
-ee
-me
-“SRE F
-FE \ À
 5 F = Lei, le ciel est transparent 22
-sf en
 
 on, le ciel est transparent. Tout s'y profile, CAPES RES
  polecilesttr Tout fil F
@@ -429,22 +245,18 @@ Dr Leurs beaux flanes sont piqués de bouquets de pommiers 2.
 _ Dont les ombres bleuies s'arrondissent en dômes MT
 se Sur les labours cuivrés, les prairies et les chaumes. A
 #4 Et la plaine, à leurs pieds s'étend, puis se redresse Pr à
-na | à DM NE
 
 par le chemin |
 Avec des ondoîments de Nymphe ou de Faunesse
 Qui se réveille après un long sommeil égal.
-;
 Ici, le ciel est transparent. Tout s'y régale ÿ È
 De la lumière qui tombe en finesse et candeur, 4
 Sans trop roussir les châtaigniers de ses ardeurs, 1
 Et sans troubler au bois joli, dessous les hêtres, ÉsEOs
 Les fleurs qui cherchent l'ombre et la palpent des lèvres. \
-SR me ; s : CE
 Et c'est au bois joli que s'appuient les maisons .
 Dont les longs toits aux correctes inclinaisons
 Se découpent en rouille et velours dans les feuilles 3
-x
 Des vieux noyers, gardiens de la fraîcheur des seuils. 2
 Or, c'est dans ce pays si pur qu'est mon église
 Je ne sais pas du tout si je vous scandalise,
@@ -455,12 +267,7 @@ Ne m'a pas enseigné les leçons de vos sages, 4 4
 Et ma petite église, entourée de tilleuls, <i
 Est demeurée pour moi la nourrice et l'aïeule, à
 Même après que ma foi d'enfant se fut dissoute. SN
-84 VTRUeS
-M 7 Loi
 
-xd | ss #
-
-4 DES SOUVENANCES ,
 C'est que dans ses arceaux, ses piliers et ses voûtes;
 Dans la montée de ses fenêtres ogivales; È
 Dans son toit mince et long qui lestement dévale,
@@ -489,7 +296,6 @@ Les fleurs des chapiteaux, leurs pampres et leurs grappes,
 _ Les œillets délicats brodés sur l'or des chapes
 Et les rinceaux qui sont des lauriers et des lierres
 
-PA £ à SAT « A a Ce se a
 par :le::chenuni ENS E PE ee
 ù Et les rosiers miraculeux sur les verrières < RER
 Me montrent le secret des courbes végétales. he
@@ -508,7 +314,6 @@ Qu'on a verni et peint de couleurs qui s'effritent, É
 Va sur l'ânesse, et cette ànesse est bien contrite, “4
 Bien douce et bien modeste et bien sage et bien probe; ee:
 
-; De:
 On lui a peint des raies de zèbre sur sa robe, 5 4
 De sorte qu'on fit d'elle un animal étrange. ;:4
 La nef a les parfums des forêts et des granges, | RTE 0 ;
@@ -520,16 +325,10 @@ Le vieux curé qui tend ses bras au firmament, FEES
 Le vieux curé noueux, ridé, solide et torse ue ;
 Semble un tronc revêtu de rameaux et d'écorce 50
 Et tout ainsi végète et fleurit et verdoie - LEO
-KP TIENNE
-« ‘ os ;
-
-/ mile ee LEP SN / æ
 
 TU pes SOUVENANCES
-A UT: MMS ee. sot pate « PE, |
 - Et s'enracine au sol vénérable où il doit
 + Rejoindre les aïeux qui ont fait cette église. -
-3 L de ” 5 ‘
 _ L'enfant sort. Le pays s'éclaire et se précise;
 3 Les arbres, les bosquets, les maisons, les jardins,
 . Le profil des coteaux qui, sans écart soudain,
@@ -544,52 +343,15 @@ Doucement infléchis, vont de la noble allure
 Et l'âme illuminée y trouve, sans analyse, :
 . Les contours effilés de la petite église.
 
-te!
-
-se
-
 A DR Set ne.
-Fe x FUMER k sr
 
-PT ES MAÉ eee # RAA RP NRA NES
 RAT CRD CE À Le a ER EE tt SEE MAN EE
-TA TR RL EU SAR RATE A AS SENS OUR EE SE
 jar DRE VE Pa DE CES UE AGP LE NON LS RAA Rae NEA
-RSR en AR EL AUS TE CN PER TR
-HAINE AE TNA À j ARA 20 ASP AT RE
 
 PAT UEE e Pa ne 0 Eu eo « APT Es
-INR Babe CLR.
 > LRO" Mar 3 À A RARE! NE MASTER
-Babar iv h £ : 4 RANCE LAC EU Palo
-NA ARE ER AN AT TN Pt:
-ÉAe ENE LE RNEStET
-HAE AN, À < ROFCOAR IRAN ES CON EE à
-A 8 PEN j BRAIN EURE BD NE) LL
-LS EN NP ESS 3 « NES RAT)
-CARS FLAN à 2e LPS SES CET NT APE
-L'ETÉ LR (} È N } HOME ?, MEN"
 NE ANNE NE À PRE en A Fe Lire
-FÉES : PES RENTE ve
 ex OST ee ne: 'ApédGee LUS
-PMR ARS
-MAN ST RRQ : ° - LU OR SERRE RE RS
-NOT ER RE 4 ER A CN:
-
-D |
-“2 > “4 ss Ae Le PEAU Ca Fe AU Fe # Le Te
-4" Le Re Cr ë Li FAN e  LRTRET ax m DR
-TS PEN RES i 12 NOR
-
-Mn ee TNT) HR LAPS
-
-HET PRN he À î -
-— CZNANANZAN ANA TANT
-RAA AAA ANA
-_ NN NZ, = (4 ST 7. ST Ne SN EX 7
-_ SRE NAN ANA SAT
-a
-D ANONAN ON ANNONIAN TS
 
 = Nous montions les rues
 
@@ -599,17 +361,12 @@ D ANONAN ON ANNONIAN TS
 
 p Parmi les brouillards de laine ou de tulle.
 
-_
 Nos coudes frôlaient dans les rues étroites :
 Les murs des logis posés de guingois,
 
 Les murs écaillés, fendillés et moites. x
 ne so i
-de” à
-72 *
-a A "= ;
 
-É T'AS 267 L EE AE
 Lea FRS MS CAN AT Le HR D h 2
 AO Ce ne
 Ê SE Aa Date A des fe ë ; ue Lee FER AE FES
@@ -617,23 +374,17 @@ AO Ce ne
 NA ART RTS HT EN DATE se FRS M Ne. di A UC
 CRE LE ENT PME A UE dr Te LS as 1e Ent FR PRE Re PAU Se
 SA un es à
-ÉORERTS RS ; ÿ 1 PNR MORT TRI VARS
 Des croisé illai DER RENE AN
 ro Révél es bâillaient sur notre passage, | Au on 4
 pe évélant soudain la lampe et 1 ÉD ONU ANS
 SE : réunis des époux bien sa ERA) CAE
-ges. nie AIR UE à à
-s'OPUONE TER RS 2 ES
 | EAN TRAR d pe eee manquait à votre poitrine EE Re
 ci Ve 4 l'on s'arrêtait tous deux dans la brise Das À See mn
-ete ux feux languiss NES
 RS ant Re ARE E LE
 Hit a À s de quelque vitrine. AR
 sa Vous m' 3 sr M te
 NAT Q avez montré un vieux cimetière be ut
-Nan ue ë PE Se
 CAEN les murs géants des maisons nouvelles RTE DA ÿ
-ESP RNE vaient enserré d' 5 $ HAUTE
 : LATE si un cerclé dé pierre. © V0 OU
 Me Et vous m'avez dit : « Peu de ge DL TRS SES
 BR On l'utilisai gens y viennent. MR
@@ -641,21 +392,14 @@ Don. utilisait du t VERSET HER
 EN HE emps des abbesses; ET ET PER
 AUS es morts sont bi ë (le ARS En aire
 | LME oin pour qu'on s'en PEU IE SU
-; LAN MORTE
 
 ne J'y fus un EST BAPEURURE a
 FER 1 ; matin; j'étais très petite; ne
-di 4 ? avais : RSR AT RS RENE
 LEE ee. peur de me piquer aux orties FAR ps
 Era: ais je vis du lie LOIR GUN
 RUE ; rre et des clé $ SN 4 Re
 “e ; clématites. RP Et Fa tt
-FAT 3 o SANT Fi es
-6.4: 1 # © ARE CURE
 
-FRA ha INR S 7 À
-
-s . . DES SOUVENANCES
 C'était une sœur du couvent d'en haut
 Qui guidait mes pas le long des tombeaux :
 Dont la mousse avait recouvert les mots.
@@ -676,39 +420,17 @@ Et vous me disiez : « Peut-on vivre là ? »
 Un frisson passait dans quelque vieil arbre;
 Votre bras s'était blotti sous mon bras.
 
-a 91
-
-;
-
 À 7 Me, LA ARR Se ce « D PRESS LME Ep Lorl DAT PAL TR ON EE RSS TEE PE }. 4 Le
-RS 0 Pt F4 parle chenun 4000 Den S
 an Vous disiez : « Voilà, il faut qu'on se quitte. Ra k:
 re : Regardez là-bas ces feux dans la nuit. 2 ARE LR
-FT ONE © ++ ot tà
 Pi Ne m'embrassez plus, je rentre bien vite. » AY: PR:
-71 - LT
-* De 4ÿ Br:
 me Nous faisions durer longtemps nos adieux. 2: RES
-! : ns | Ce & É, à È PA:
 F Sous le réverbère un chien doux et vieux à pe
 LE Nous examinait de ses tristes yeux. N'ES 3
-DER) : RME
 ne, co F Po 2
 ES + ne CS A # pres LES fe 4
-ÿ S TS RES
-19 ra + > Ne É a
-FE ; ROSE Ne. t
-nd
-ARCS dr: 7 PET ES
 E CS PARA pe DONC ST
-ANT é à À 1 ie 1 NE
-EN Ÿ Fe 2 A Re
-PA NS ONE RE 2" SP CLONE L'RS "1
 
-LAINE ee Na Re DT, à « -
-NET ERA CERN AN CRE
-BA
-L
 Le vieux Monsieur revient
 per . & vieux Monsieur revient du fin fond des années
 e L Quand nos contemporains falots, ratatinés,
@@ -716,15 +438,9 @@ Tout en prenant des airs brutaux de gens d'affaires,
 Me font fuir au passé toujours viril et vert
 __ Qui retourne vers nous ses petits yeux narquois.
 _ Le vieux Monsieur vivait aux champs pour être coi 1
-"
-ts, À s
-Je T4 ;
 
-D RTE Ur ee D ER NE MN NE ARNO LS RER SEE :
 PE RREN EE AT RQ ne er nes
-LT à ii SE ÉTÉ METTRE 22 FUE 2e Le AU
 k de a ; BA VE REPAS TEEN RENE Pl TR
-M en pre.
 & Et grignoter en paix sa pension deretraite. ROC
 I revient ___ Ce sont bien sa canne et ses lunettes,
 2, 4 Sa petite barbiche argentée, son manteau gris,
@@ -747,11 +463,8 @@ SRE Sur la pendule on voit parader Annibal, ti
 Un Annibal ressemblant à lord Palmerston < 5e
 PURE AN ren La
 
-{ PE VOLS SR ER Le ERP MON TECT RON ETES
 RP RE le RUE HSE ES Pa mn AE
-; MER MES 2 RE RP RCE x
 PARA CU eV fers RO RE Er TMC EN OU
-53 ne “ ne LA gt È à 1 d T'ES (22 ”
 É Ÿ nan an coffret que des lauriers festonnent, ie ke
 LEE Et ce guerrier semble priser le visiteur, s LT sd
 AR: ar lui-même est mondain, courtois, complimenteur, | eiel
@@ -759,29 +472,21 @@ Ce qui lui a valu d'être vainqueur à Cannes. ;  ÉÉSE a
 # RE si « RES c
 _ Le visiteur est fort galant. Il offre aux dames $ PRET à
 Ke _ Des bonbons et des fruits confits qu'il fut chercher À rs
-Le + MR TORRES PERTE
 xs Tout exprès à Paris, au Fidèle Berger; ST SEX
 EE a pour les offrir des paroles exquises, ; KA
 HER “Des baïse-mains, des saluts qu'on faisait aux marquises Hi
 _ Dont les falbalas blanes neigeaient à Trianon. Re +R
 ve ape il fut à la cour et porte un noble nom. ” *< cé 4
-} e f - 24
 RS revient, Je le trouve amusant et brave homme. = F %
 ‘it quittant le logis, il emporte l'album LES £
 Sn Du salon pour y déposer un madrigal. RSA EE
-DR RE Let. : : - ( Ken 5
 Car il rime au printemps et n'a point son égal ; ÿ A
 _ = Pour lacrostiche. Il a du trait ét de la sève. Ê AVR
 _ L'institutrice a lu parfois à ses élèves Peer
-Er 4 SX ; ê N'ereee
 : ag Au grand ennui de deux conseillers radicaux) uw =?
-SEE Se TR FR . Lan %
 be … Des vers qu'il fit pour feu son perroquet Jacquot. RE:
 LE Et quand on a donné les prix dans la grand salle &ra Peu >
 Rise (Aux sons cuivrés de la Fanfare municipale) M =
-APRES KT
-Se û VAE s dé CAE
-} His “, a Re 7 , 34” 1h Le
 
 par le chemin k $
 Sur l'estrade où siégeaient le maire et le curé
@@ -796,7 +501,6 @@ Elle avait appris l'art vieillot des révérences
 Et faisait concevoir aux siens des espérances,
 Car elle avait beaucoup d'orthographe et de style.
 
-s :
 Et ce jour-là, de façon modeste et civile, D
 Elle sourit aux regards que sur elle on braquait 3
 Et récita sans peur la mort du perroquet
@@ -809,94 +513,48 @@ Il n'est plus. Le chat blanc, le chien couleur de feu er
 Dont il ne manquait guère à prendre des nouvelles,
 Bien qu'il n'ait point tenté de les rendre immortels
 
-+"
-PRE
-
-PT, LEAR PS dé y LATE Je: x di ', « dre, 208 F' UP: 4
-e NC yrE if Te à ER AR COUT N PART EPS LR LA LS
-HR NEED AT AT, DES SOU VENANCES
-RU Re Une 7 à
-dr |
 Dans quelque fin poème imité de Parny,
-Her el . : A a CRT TC, .
 Ont aussi glissé hors de mon rêve infini; É
 __ Etmes pieds les cherchaient vainement sous la table,
 Le soir Cétaient lous deux des gens bien respectables,
 ARTE Et je comprends la sympathie du vieux Monsieur. à
-PR - &
 NE O village habillé de noyers, sous des cieux
 Qui me font évoquer les cieux purs de l'Attique, & |
 _ Tu étais un musée charmant d'êtres antiques.
-a
-2 RE
-& PR ( CHR en
-à à
  -
-Dis chemin, — 6
-RAALEU x “
-VEN + ‘sh
 
-FA ME CNE AU CNRS RES AU
-SEL) MAN HR ARR RP MEN PAT T CL SE MERE CRU EN #
-Rs too se
-EAN AR EEE PTE A PEACE RENE j LT aes
 # Ro Mine HARAS TAANE NUE An EU
 ed ie DE NTSC AE TS
 TES Re VR  ORRE ENSN A RRANTE L AAUET MAR ANT ne ER ET an PA SEE
 nt ei lies” PR TRS NE CRE Ce RE AE
 LATE AE TN RAT PO en TA de ENT NRA FE AE
-SRE MNT PEAR NN RE de CL SOPEAUR PAU) SPC RGP CE ROSE RTE
-APE SRE a rien re HELENE DS EE PEER EN Pr A
-FA RP CRAN TITRE EME MP OMR AU à 2 NS A GET ADS OU CURRENT
 D re ci nr (je DRE ELA Se RE er
 Hi DS RP ER ES M nr CE EL UNE EU te
 PEER A TR es L dE PU NEDER ESL PEINE Pi Yes RER ER RAP NNTE HEAR
 RP RAT TA TEA OT MAIS Med s NES ren CPE RE
-Dei re MAR ARE ur
 PME Ne MARS one FRE TRE ee An
 PET RS EE CNP DA AR RE ne LE RUE CCR
 JE CANNES LE GÉANT UNE ed
-AR A M alt LR | LINE TRS RAT Abe
 ES INAN ER DEEE TE F RU Nr ER en AE RSR SEE TAN Une PONTS
 LA REtETEcER LR ARAAE RU RUN ARTE nn JR 1 TERRA Se te
 re A er uen LL FAN ” à ANGES A AL NE
 NT AT A ee AA RRE D ALT 7 A TE LA tite LEUR 2 HR
 A PL AAA re HA AT er ne RE AS TNA EPP el ton EU
 dq 17 ee NS SE Pc AMEN NE y A TEEN PRIE LATRRENL OM EME
-HE TAN ee SRE + VAT ME ETES 1% SUR EDR CHERS UE PE e LNEE
 RE Et nr eme 0e TN ARR PE d'OS
-STIONrE FPS ES Le LS SR TER EE ASE
-Wa MAUR MAR er AL “x PL MERE ll : )
 
 HET AS T'AS TARN PSE pe sut LE LRE OHERIEREERES
 
 TU en DT EEE Me AE PA LAS CNET PES ;
-DATA UIDDAN AU) RO MR AR
-EM ë NE EST AT I ONNRSE
-EAP CERN * PS TOUT PE
-DRM AU Va { ARTE KE
-AA EL L'ESPACE ES
-LE  . 257
-RE « | HSE
-SR 7 Ch > DRRNT L
 SR Notre pendule n'est pas frivole. Eat D pr à
-j4 rs « CRE
-EAU, CE PE ÿ
-RAT 2: | RME EN 2
 | Ms 5 À RER v
 14 N°" pendule n'est pas frivole ou lunatique. REZ
 (Se # LN Je parle ici de celle qu'on voit dans la grand salle
 Et qui connaît la théorie et la pratique FR
 Fi Var De son mélier qu'elle exerce en être moral, pu
 #. Sachant bien qu'elle a des responsabilités. ù de EU
-te: d . Je s
-VA Ts PR Here
-28 Let Pre eo Fr, RES F
 RE lei le temps se laisse avec docilité Fans res
-ARTS "Tax an Re
-& ARR 99 L En S à
 | VE TNASR SNS TR ‘Le Sen
-CRM 4 SOAT RS
 
 fe À La
 par le chemin
@@ -920,15 +578,11 @@ Tous les actes des gens qui se tiennent dans la saiïle,
 Observent les avis constants de la pendule.
 On a toujours de la mesure et des scrupules.
 Quand on s'échauffe un peu en parlant du présent, 4
-100 :
 
-DR NE RETURN t é ;
-LE DEN Et DÉS SOUVENANCES
 : On fait scandale. On se rattrape en devisant
 | _ Avec lenteur de ce qui s'est passé naguère, ©
 ?* Et des uhlans qui sont venus pendant la guerre
 3 - - Demander des chevaux, de l'avoine et du foin.
-k À
 À La pendule a senti que cela était loin,
 ;. Et ses commandements toujours bien en cadence
 Se sont faits plus discrets. Près du poële en faïence
@@ -936,107 +590,34 @@ Qui ronflait en Cyclope et mangeait en glouton
 | J'étais assis et j'écoutais. Monsieur Mouton,
 | Chat blanc, fermait les yeux dans quelque vague attente.
 Et je pensais que la pendule était contente.
-à :
-À
-le “ AA
-; DAS
-SSL
-a So
-x ;
 .
-( 1 chemin, — 6,
-Le
-ve * ë
-" ii
-PR
 
-SRE FAR Dé DUT er CAE PEU SERRE
-a Se RL) AS NERRE RAR Dei
-EME a trs PDK D DES e ARR *| Re
-APOAES # RAIN Re Er +
-TES AR PSE RER SMS D es LS QE 22 MR)
-JT RARAES ESA PRE RQURE Bars RIDE FAC LIN "Re AUS ST
-1 HAUTES AAA Cha RU) VER Fete ae PER ARE RAS Fr me TH SEA
-F': NA VS LAN LCRCIAS PS PRES Ye RINaTE RARE PERS ñ RD
-core ESA asc MMM Hors. AUS ee RASE Rire QU RS Fe
-Es ATEN MEME - EE - TEE RS * FRANS FRANS
-D : + y 2% : ; FEU AA S ROHEPEE RES LT
-et 2 : - . PAL PES PO) SENTE LEE à 4
-er A CAT TRS ES î RU re Fentas Etc LUE Se AR TS
-172 RE AN Ru Re NT. RAA à
 RATE SAUCE AE PNA SN ANT ou CRAN ME
 dr Ne £ DÉS ARE HER CR 14 AR AC OR EE es
 Mt. v b EE É L AU RES nes ee NP te LE pt ANR
-PR An ñ / Être RO ®, MUST Hu" PME LEGR cr
-SION HN EE A : SD A ARE Te ni. AA à à
 ETES Leur rs - LEONE PAT ON FA EU LE FENEC Ferre
 FETE AU NE SAT ed RL LT OT Re AO ue
-APE. La NÉ ALT APTE 4e # | + SALRRtES à A
-ue Het TS SAS + RAA HUF at 22 7 SAEUE FREE er
 LE CSST ri Le AP 14 ee Mu LE | ARTE ES HEMENIETS JE
 Dh pee / PS De Hire PO Tr rt sel Fr E Dove Ho %
 ME # F#. Fibr SR RSS ÉETOENR AÉRNTAURE sa
 Ô TEE HE MES STE ; AR w ERA LME ARE ei LR CE PE mt ER
-x F529 Er +E ER + È Q æ y RU st ARS ES Vese Wei 4e à OMR
-DCE COSEUTS ” Mo LE PARENT , \
 
-ns,
- MARANIPAANO GA M/ANEU AR ) AN JAN AT PIANESA ñ
-NB \) NUL MD (| (nl JU ( HAN
-. (OL ( KES | (SU [ (pp) ll (LL
-M f
 Le Le donateur et sa famille
-“ER
 y s donateur et sa famille, agenouillés
 LORS E Dévotement des deux côtés de Notre Dame,
 À En Les hommes du côté droit et de l'autre les femmes, )
 À _ Joignant les mains paume à paume afin de prier
 ue … Pour leur salut au ciel ou leur négoce aux Halles, »: _ Sont des seigneurs de vie opulente et béate.
-DTA
 Re Le père, un peu ventru dans sa robe écarlate,
-NAS 103
-QE
 
 4 74
 
-708 a
-
 2,40
-h;
 je
-Hi
-ji
-nl
-ii
 |
-ail |
-fi
-al
 
-% L:
-
-SE *
-« \ y / :
-4 CCC (
-\ + \XZ ,
-Rae , ;
-Le: U
-TA s
 |. tre” se TE
-ER » 184
-Né ve \ \ h , d 3 L
-È | L'RNpE | . 4 eu
-. L re. = ; L 3
-- Ava
-1 4 Bi
 | k tas |
-i 0 É
-n Le
-À . à 1
-- À
-
-L :
-A lentes: +
 
 par le chemin
 Le teint fleuri, l'œil satisfait, le menton double,
@@ -1059,12 +640,9 @@ La bannière où l'on voit, tout en or, la patronne 214
 Des marchands qui sourit dans le ciel et pardonne
 (La débonnaire !) au possesseur d'un mauvais gain.
 Il la porte bien haut quand luit Noël ou Pâques.
-LS
 
 Le soir il lit quelque légende au coin de l'âtre ca
 Où siffle et crie le tronc résineux d'un sapin ; #
-
-104 F
 
 EE pee !) DES SOUVENANCES
 -_ Et Monseigneur le due lui envierait le vin
@@ -1091,9 +669,6 @@ Et qu'on les ait coiffés comme on l'est à Florence
 Porte un manteau bordé de martre zibeline,
 Et sa coiffe ajourée est en points de Malines.
 ki, Elle a de fortes joues et des lèvres charnues,
-ch à *
-ER 105
-BA + ee
 
 par le chemin > PA er
 Des yeux bovins, couleur d'élang, jamais émus,
@@ -1121,49 +696,34 @@ Leur bec inquisiteur et leurs yeux qui clignotent. 3
 Or la plus jeune, au lieu de joindre ses menottes, ‘
 Tend vers le haut du cadre un rose œillet gantois, 1 É
 Pour attirer les yeux du petit Enfant-Roi, 4
-c 106 mi |
 
-RP ENT DES SOUVENANCES "7 ::,. Le Lu L'eEE
 RL Pr UN ie Re" ur CD SE
 Tout nu, blondin, frisé, joufflu, le nez en l'air, é NP
 De + Assis sur un genou de la Vierge sa mère, PR RE Re #
 _ Montrant d'un doigt le ciel à ces humains fragiles AS NDS
 _ Et désignant, de l'autre doigt, son Évangile TASER
 es _ Qui gît ouvert, livre blanc, sur l'autre genou. MCE SE
-DES 2,
-EYE A PTT
-x LA PARU > sé 2% |
 Rise Le donateur et sa famille, ainsi que nous, RES Ye
 CA Sont gens de chair et d'os qui boivent et qui mangent. DE
 due Mais ils ont rencontré des saintes et des anges FRE
-Sa F4 Le
 -  Etles voici Lout près de Marie et Jésus x A
 Fa Sans être intimidés ni surpris ni émus, ER TEDNEE
 ke  Carils ne voient pas là de redoutables juges, EU
-ARTE *
 # Mais deux bons habitants de la cité de Bruges A:
 LE Dont, par la porte ouverte à droite, on aperçoit PE,
 EE Deux tours, un petit pont de pierre et quelques toits = a
 Dont les pignons font des escaliers qui s'affrontent. OR
 __ Et, parmi ces logis pointus, la Vierge blonde ,
-A AE bé sis P 8g es
 __ Aux humbles yeux presque à fleur de tête, aux traitsfins
-RE Rs y presque à FR
 ke Ge l'artisan brugeois avec amour a peints Er
 | Malgré que le nez soit un peu charnu des ailes, AVES
 a _ À sa maison de brique où chantent avec elle ju on
 JE Aux soirs de Mai les enfants et les demoiselles DOME
-ARTISTE « Bras U à
 RER TL sont venus la voir en longeant les canaux. Fey AS
-pe + (hs a x E,
 re Crest là, dans des coffrets plaqués d'or et d'émaux, ER
 MUC DS Qu'elle a ses voiles, ses robes bleues et de grands peignes rs à
 …_ © Pour onduler ses cheveux couleur de châtaigne. “ETES
-È Kg "+ ie VA "M4
-vx EN 107 e
-RL 2 1: JR Pau TEE 2
 
-D
 par le chemin
 Chacun est son ami, lui parle et lui demande
 Sa grâce, en murmurant des oraisons flamandes.
@@ -1171,64 +731,20 @@ Et elle sourit et ne veut contrarier personne,
 Et paraît s'amuser des carillons qui sonnent
 Et des petits cadeaux qu'on dépose à ses pieds.
 Le donateur est son ami particulier.
-r
 1906-1907
-RENÉ SALOMÉ
 
-A # ELLE RS ARS
 LRO er AS ue CES
-z ACIER PP PERTE à EN? PL af OR PRE DLL Hate MEL
 4 A el ONE Dpt M1 TA ES F ESA VS" CA PERS UM,
-“#4 2 5 sr HET ASE ERRES Che AT DC aire (AE PAUNTs
-& FRREAR HN FUN Pr nn 5 PR TYS
-4 A Tr EE NT: RAT UE PRÉC EN A RUES
-FETE VEN LTÉE Pit ARS The Te SE AS TT ph | NÉ RARESEe P tt AS
 E: ER is REA AU TA A TA SEE ES
-AIT SN NCA
 FAR pi LÉ RP. LU oe RE he Je
 nr A ST PR tee pare PRE LE ie ê û ARE NL) ne
-ARS Me - RS PR An ER TN ERES Av
-As 73 ST PE Re TUE 1 ar" “As EVANS
 L'HSÈRE VERS arr SAN VF
-A ALTEMES » + SAP RAA F à RS STE <?
-tits AA Rein ci 0 A : s Î SROMITS
-PAT 4 PRES NE TES ( | FRÈRE QT SPP
-AE TE RER LATE ASE Eee \ ; | EE NET
-x #9 PERS Re LAlEe SUR) Le SCALE
-he FLE FRE DE V5 AO ACTES : : : ÉLUS
-S Le * PSG ARE US V2: ; * RAS MA ar
-Fi Far ANT x ÉAMeUTE + RE À Lee” DIR
 "ATEN re” LR Eur SRE a A ET
-F$ n'ANCES) : ‘R SE USE ms ct: Ex x 2 . ru DS Re,
-CT TR # . #6" TRE ” "in 2 . DR. Les
 Ê TEMPS Ent "oe de: AU SR EU" +6 ai Sie”
-L'CRSE ADR EEE Re
 de Ro RÉ der RE
-:<3 2 CAO ERRES Sy SV LETTRE TRES LA * % f % ® cor
-ut 5 RCE D AE nu) A €
-DS y: DST na Rx DAS - F “à à AT ER PENSE
-Re APE PT
 ÿ 4 FAURE are ne F # Fr) te k Se À . ar f T4 SLT É
-RE Vo EPA LAS É | AB KR NATIENS FRS
-- AR SEA) PS EL HG FI A. MT es AL: RETU Are
-LPS CORRE PAPE HER SRE AANES AE re Re
-SP MURS sf “ * 7 RS PEL - : ail
 | RUE NE 3 4 « A AS 2 Abe
 Bee C, De - SES VE ire ue” PAS ns
-fe 2 LR 7 si st s EL ERSE
-Ur ï a CU PES SOS Rs Due. Ut
-RL + SERRE : el gi 1
-AD - LR Fa 4" HE a
-
-RP A Se le De CRT FAT LT LT SE TT LEP AE TR ETES
-PRES PAM UE R ES à À D Pr ET: HR ANRT Gr LIRE
-0 PPS NIE N À 172 FETE ASE RTS OA NN ie
-
-MAR EAST AN La y EE 4 En FOTO ENAINE A RSS
-
-FLEUR +. ; ù Pen NAS EPA Mec OP
-
-D M pes
 
 US ENS ETES 4 TRES COL ER F2 ce
 
@@ -1236,20 +752,11 @@ Mono > A et.
 
 | LT REG NC ; PRET A ($ EVE RE AR
 
-USE Tr ; SR PE PNR Er
 RE ES ne ê : 3 2 + RULES De Ris
 
-1 5 AFTER = GS pee LR TER
-
 St es ste ES a SANS ARE SRRN ASE à
-SUR APRES F ; { LT, RE RE ECS
 RARE A RES he ce  *) s Lt : ee LA Pre FA AS NS LE Car
-1000 TES à % : à Se RUE RENE RRPARE- Pat
 A DER is des y i : HE HÉST FE BRDRE 4 à
-‘1 NOSES A
-MR OMR PAS 0 LS 7 RRANNESAERS
-
-DUT Es Pa 6e CRC HT ER de 11: DA PSN
 
 | Ila été tiré de ce cahier douse exemplaires sur ù
 _ whatman ainsi distribués :
@@ -1258,7 +765,6 @@ deuxième exemplaire de souche, exemplaire de l'ad_ ministrateur;
 troisième exemplaire de souche, exemplaire de l'im-
 | primeur; :
 neuf exemplaires d'abonnement, numérotés de I à 9
-_ exemplaires d'abonnement.
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 _ tirages d'exemplaires sur whatman sont rigoureusement limités au. nombre d'abonnements à chaque instant souscrits: nous ne vendons point d'exemplaires
@@ -1268,40 +774,13 @@ sur whatman à cette neuvième série est de cent francs
 . Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie succes-
 - seurs) 21, rue du Montparnasse, à Paris, sixième
-arrondissement,
-+ | ;
-2e > tait
-e
 
-AE UE. An RS RE ART ACT
-so à se PER EN
 VT PES ns NU tr 4 sl dE PEL ATEN CRE
-:
 Par VOUS NET SRE EE LT CAN ne Hs £ £ ;
 EE SANS AAC A RENE Er <o Etes ré F PRIOR P LEE
-es VOSer HEURE F5 PTE A RSA AUTO te NA RCA VS Pan PL +
-SP EC die + PPAMOTSE à RATE VRRRE Re ie BnE
 Rat k LEUR : ha FAN EEE 4 VAR: ER Pape Ltd ANSE
-TR AE ART SR 5 ; Ÿ Ernie LE (HA NH MALTA Fa
 res CU efe tN Rene TA AUES LIL a 2 Men RAS je PR
-AA as ï à AT RE: RAM HAE DYSE pe RADARS me
-ME PA e ARTE es MISES % AR AN Dpn UE pet RU NET AR SEA ë REA PE
-Bite PMU : Po OS a os Re |
-rs sr É RL: PC nt SEGA SEE UE: EE 1 REA RATER RAA CORAN
-See BRRES ten ÉTAT ; , LATE, RE VER PU ER RNE CNRS AN
-FERRER AS TAN SEE LES AE Ne ês DL RAT CA DE NnE 5
-PRE NANCRRES eee ATARI SE È TRE 2% Dee k
-A EL, TR es Dr 3 US SET DNS SN RESTES SE (NET Lu ‘4
-ave 200 # ÿ 2 USE RUE He ME hate ie RAT Ut te ch
-APN 2 DS PA LS 5 US VASE He Or MT y F2 Sais Va LES OR Le
-. LR * 2 a TE Fes ae LD
-c'e RAT RAR Nue Don ER a FRS
 LEE PAS. RAR CE ire ‘TR AE a MÈRE
-A A TRS FU RAS AURA: A e Fous CU ee Mel Parce ge Or
-4! dr 1 Ÿ RARE OT De É 1e
-LR ES TRUE 1 REC PS ATEN ae ae RARE TE PRE “7 ane ANT
-ENS ar ati AE
-TLC Sr Fate rss es aie $ ; 4
 
 ; 7 5 Pour savoir ce que sont les Cahiers de la Quinzaine,
 qu il suffit d'envoyer un mandat de trois francs cinquante
@@ -1317,7 +796,6 @@ Bree cinq francs à M. André Bourgeois, même adresse; on
 | recevra en retour le catalogue analytique sommaire,
 Net 1900-1904, de nos cinq premières séries, premier cahier
 Fe , de la sixième série, un très fort cahier de XII+408
-HS pagestrèsdenses,in-18 grand jésus, marqué cinq francs.
 HS Pour s'abonner à la huitième série des cahiers, qui
 ES est la dernière série, envoyer en un mandat à M. André
 _ Bourgeois, même adresse, le prix de l'abonnement; on
@@ -1328,47 +806,18 @@ de Pour s'abonner à la neuvième série des cahiers, qui
 re Bourgeois, même adresse, le prix de l'abonnement; on
 ‘1 _ recevra les cahiers parus, et de quinsaine en quinsaine,
 _ à leur date, les cahiers à paraître de cette neuvième 1
-s a ; ve chemin. — 7.
 
-87 FM
-
-NE a SF OS FANS AS RUE NP PA NN TR ARE f
-fe AR AR A PRE ï
-AAA ARTE DEEE INDE FORT SRE RER REA NE î
-ESA ET AEN CE ROLE RE RAS Le TEA EURE el ANR
-D 0 de
-PRG Ve 7e LS ANIC LES DD AMIS « I RE LATE NES
 nee Dee ME ” de SAR LE nt & et e St
-RP ON REC MR APS.
-102 ES TES PR Tr MANU ER A
 nt LES LUN PRE SARA
-Men | : SR a D LAIT
 ns Hour ; SN Tr MERS PONS A DER AN Le €
 DRAP FRE Le ‘ex « ANNE ER ER EL ane
-12 AUS NE ORPI PNA Pl. F ve: £
 LINE AA fie LS DA ARMES LE EI HE
-(RAC MINE VEN 1 PN RTE
-PAT eee s Fe SNS SOA S
-Rte LETTRE SNA D RME
-D, |. do
-Ju) AN ; Re RU EE
-LAN re RE nn eo AE, LAN SE re
-JP ES CIS * à # Ve NL ATSE NAN ENT | HAN
 | EN RSR : ie AM nel
-LL GNT CEE TNT EE À Lau 1, RETOURS V4)
-RE” À LÉ TAN M SEE PA ARTS EUX” ÿ ÿ
-LPC NE RTC IEER ; * CAT ERERRRRNES $
-11 VOL PACUENESEE j ETES RS CHER SOLE A
-LEA PA | LAS 2 2 PTT NON "
-à à PME CM rl ; AT Eu EPL À
-LAIT STAR ES PC AN ES RAT
 
-ie CN RTL RTE : | 0 7 p # À
 de AHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres.
 
 | Nos Cahiers Paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -1382,7 +831,6 @@ valable pour la série en cours.
 _Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série :
 L ; Paris, départements, Alsace-Lorraine,
-Abonnement ordi- | Algérie, Tunisie... vingt francs
 paire ........... } Autres pays de l'Union postale uniVO à \ verseile....... vingt-cinq francs
 _ Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
@@ -1395,45 +843,19 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 _ naturellement aux premières inscriptions; c'est ce nu_ méro d'inscription qui devient automatiquement le
 . numéro du tirage réservé à chacun des souscripteurs ;
 . l'édition sur whatman est strictement limitée au
-… nombre d'exemplaires à chaque instant souscrit.
-iz
-hi. »: (U
 
-TO AN eee RSA AU ATEN ES
-Se M ou Pa IN TON Me REP SE A OT SN LE à 3
-ANT. Nr RATER ST EST NIQUE PT ROSES PE
-CE JS ARE 2 TR URSS DÉMARRER Pr AEN TA à 2 K£ vel
 M ere Re Mes Le" SON TS 1 LS EUR
 ARR ER CAT: Lt ce SRI OL RR 1 1 PE Fer PE A rt AT
 De Lean FR NT ASE Cent ee NACRE ÉÉVRRS EEN LATE ET
 L'ONU Enr ie Met 1 PUUMS ANSERSOENNNE | PA SR SRB NE A No
-A Er té ST RTE PRET DEAR RE:
-SHARE AS OR A Re A à LR NES MR AS QUI
-AE D M RTE (PC Ms à TNT AGEN
-AT El A Len TARN TES PS TT NI ARTE Ra OST VS
 AA arr I , US Sue pd A A SAR A De
 1 PROPOS Ë De ee AAC HEUTES
 Ê 2 TANR de " RD bar LA : A HAE SOUPE ve
-ne : A 44
 Le IN SHARE ù f ACTUS (lv Ce a es De PO LT € D RASE
-AU SR RENAN LEE SN ROLL DA) LOTS
-LPS IAE NES ? FETE TS Se RS NE NRNS TRS MN ER
-ARS ARE - Le ÿ Ve LOS AE TE] MES ACE MAT AL 5
-ANNEES ; > 3 ETES REA R EN NE RÉ ES MR A FAO Ka
 LA FRANCE ‘ LENS De LR SEEES Res DER
-A Ar Ne ME OS LEUR SON
-AT 70 g Î + ET HIS D EP ROUTEENS A1, PSN DEEE de PAS DRASS
-API ERA - TNT 2e MED prose MAT En
-14 are à SE PAPE AA. HONTE LOUE Ce MER TARER
-L ONE) ae ; Te SR OI "SE RE IT ENS RNA TASER
 TE SES ; ! : ARS Tai” Fred el IEEE AS NAME TE LATE
 
-LTUMETENR ÉD TS UN COMPTES FLEUR JLDES
-
-LEFT TP INE PSE ROME PONT I TN RSMIERS ARPORT ANEITe
-
 DOS OL" Fu ART M ET it RAR UC SN pr EEE BEN F2 .
-dt 27 1 IS HMRRIRENS ete SN PRE EN CR PEN ve È % NACRE
 Sa PR JA VAE SES NA RES L'RALAEEES as !
 
 RTS UE er EL 5 RRATE RONA AE a ir Rues de MAG
@@ -1441,7 +863,6 @@ RTS UE er EL 5 RRATE RONA AE a ir Rues de MAG
 Ç ARR 0 TS RER Tab ED Et VSD ECM
 PRÉ 7 A8 6 Lit TU SE AAPAIER ITS
 
-TC ts |
 Pour tout changement d'adresse envoyer soixante
 1 PE 06 ntimes, six timbres de dix centimes. :
 7 Nous engageons nos abonnés de certains pays à nous
@@ -1453,7 +874,6 @@ destinataire contre certains abus; pour cette recom_ mandation, pour tous pays, 
 LP Automatiquement et sans augmentation de prix les
 | exemplaires sur whatman sont tous recommandés et
 sé envoyés aux souscripteurs dans des enveloppes-sacs.
-es
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
 l'achèvement de cette série ; ainsi jusqu'au 31 décembre

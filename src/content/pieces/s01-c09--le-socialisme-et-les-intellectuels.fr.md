@@ -7,11 +7,6 @@ author: paul-lafargue
 isAvertissement: false
 wordCount: 21031
 ---
-
-*Paul Lafargue*
-
-ES INTELLECTUELS
-DISCOURS DU CITOYEN VAILLANT
 de: Citoyennes et Citoyens,
 li Les organisateurs de cette réunion m'ont offert, et j'ai
 accepté volontiers, cette présidence comme un signe de
@@ -37,7 +32,6 @@ Si 1 ES he bourgeois (3). C'est alors que nous nous sommes renconPT % ‘i trés
 De (@) M. Vaillant nomme sans doute ainsi le
 ee l'alliance antiboulangiste. f
 
-+] « ; LE SOCIALISME ET LES INTELLECTUELS
 naire, et nous avons déclaré dans un manifeste qu'il fallait
 rester fidèles au socialisme pour le faire triompher.
 Eh bien, citoyens, douze ans après, les mêmes circonstances se sont produites, et nous retrouvons le Parti Ouvrier Français, prenant avec® lui le drapeau socialiste en
@@ -75,7 +69,6 @@ croyons que l'uni et dans le cerveau de tous: évo-
 orce, que l'unité, ÿ
 
 élaborée par cette mé
-me force, fini
 f elle ne peut se fonder d'une Les se fonder; mais
 } du parti socialiste qu'à la condition Er développement
 ration de l'unité nous donnions au Pal Se Prépathode, la direction et les principes de CE #elu mé.
@@ -136,7 +129,6 @@ nous; il faut donc que nous fassions connaître, non pas
 seulement à ceux de nos amis qui peuvent avoir des idées
 différentes des nôtres, mais aussi à ceux qui adhèrent au “4
 Parti Socialiste, ce que nous avons le droit d'attendre ia
-d'eux. T0
 . Quel est le résultat obtenu jusqu'ici de ces adhésions? Si
 ns les intellectuels aux manuels, il est bien évi-
 ‘ AR : fa ris qué nous concevons qu'il y a une diffé- EE À
@@ -156,13 +148,9 @@ uen plus intéressante que a pas de
 or, que vous allez entendre d Farah est propo-
 ppée avec cette En
 
-clarté
 ! té, cette netteté, cette force de pensée et d'ex i
 k qui sont la Caractéristique du citoyen Lafar Lg
 Suite je donne la parole. {Applaudissements a a
-Mouvements.) * ACélamations.
-CONFÉRENCE DU CITOYEN LAFARGUE
-“ Citoyennes, Citoyens,
 à its commencerai par vous demander votre indulgence
 j'ai eu le tort de me mettre à la mode hier et d'attraper la
 grippe; si je n'avais eu peur de désappointer des cam.
@@ -192,9 +180,6 @@ dans le siècle, et comment la bourgeoisie a tenu les
 PRESSE ' iècle dernier la Révolution fut pré-
 dr: $ Vous savez qu'au siecle ne Encyclopédistes, philo- È
 VF A parée par les intellectuels, pa
-
-ie M. Lafargue.
-“ (1) M. Lafargue oublie M. Lafarg
 
 sophes du dix-huitième siècle. Jamais dans Yhistoire il n'y
 a eu un tel déploiement d'intelligence, d'énergie qu'il en a
@@ -238,8 +223,6 @@ mille De se sont révoltés contre
 ns et Loustalot ont dit : « M cette loi et Ca- u
 : (Mais avec votre loi Ne
 
-ak iii, à
-Rousseau
 E 1 es votre devin, ER (), l'auteur du Contrat
 Û éligible. Voilà e e, ne serait ni
 s omment la bourgeoisi ni électeur ni
@@ -314,8 +297,6 @@ Inment sacrée, elle est sacro-s e, cette propriété est abso- ‘4
 ce fait est. ce qui s'est passé Rs la meilleure preuve de Fe.
 sémaphore de Durban, qui à ernièrement : l'exécution du el
 —— à voyait des dépêches héliogra- !
-(2) EE er à a conjecturé ici malérialisme.
-Phiques
 aux Bocrs, leur ann :
 <ntraient dans le port, la quantité d'homs mo
 Suerre qu'ils em ortai : ,
@@ -356,13 +337,11 @@ Er 5 : ore il ne peut se protéger que pendan
 De procès, et enc ; ns en France: au bout de quinze ans
 le plus merveilleuse invention ess Aya
 publie et tous peuvent s enrichir avec
-Not ?
 i it-on : mais c'est
 Aussi, dans les familles RE . la nature a
 un malheur, d'être inventeur; l'invention est destiné au
 marqué au front du génie de ie une partie de sa
 malheur, var il #arnts 2 A ne: il je trouve, ‘
-nouvelles,
 1; A mate er pour les lui voler; ou bien il
 a appliquer ses idées, il Jui faut un sen Se ES Ft
 quand il peut les appliquer, c'est dans les de
@@ -439,7 +418,6 @@ que des intelligences [Bruyante approbation]; on s'est mis
 à fabriquer des intellectuels à Mulhouse, dans l'Alsace, où
 se trouvaient les patrons les plus intelligents, les plus phi- à
 lanthropes et par conséquent les plus exploiteurs de France! Ex
-(Rires)
 La bourgeoisie a fondé des écoles de chimie, de physique
 de rie où les fils de ses ouvriers allaient recevoir une
 ueation très complète, trè éri i
@@ -459,7 +437,6 @@ la bourgeoisie fabrique en ole, mais une foule d'autres; D NE
 He et d'autres en des chimistes, des ingé- ie
 en e pas la première fois que cel :
 les anciens, les grands a arrive dans l'huSr maitres d'esclaves de l'an-
-() Ecole municipal,
 pale de Physique et de Chimie industrielle,
 
 tiquité, mais ils développaient li
@@ -489,7 +466,6 @@ avait le propre de transformer tout en or; la bourgeoisie !
 r d'hui les capacités intellectuelles sont devenues une mar-
 Ë chandise ; on achète des chimistes, on achète des ingénieurs,
 des pharmaciens, comme on achète du guano.. {Rires et
-approbation) Î
 à Une voix. — Et comme on achète des députés aussi! /Ap- Ni
 plaudissements et protestations) F
 . Le citoyen LAFARGUE. — Les gens qui n'ont pas de ee 7 Lo
@@ -507,7 +483,6 @@ no. quand sur le marché, il y £ dites diminue;
 Ne et depuis que cette École de Physique e uw E TEE j
 tionne, depuis qu'elle jette tous les ans, 1
 
-LE SOCIALISME ET LES NTELLECTUE
 v rix des chimistes
 puis ot chimistes Phys Vingaine d'années
 a considérablement baissé; 1 raisonnablement, on Li
@@ -523,7 +498,6 @@ renvoie avec les manœuvres; le patron dit à son ° ù
 j à la cam
 ya crever où tu voudras, parce que je suis sûr qui al -
 pagne prochaine, j'en “HAE autant que jen
-in." (Applaudissements)
 be ne pas seulement ainsi pour les chimistes, vous
 le savez bien, mais dans toutes les branches, il y a abon- L
 } dance d'intellectuels ; quand une place est libre, il ya tou-
@@ -565,7 +539,6 @@ dk considérait descendre au rang des esclaves quand il venLe sn Son travail. Ci
 pr attaqué les sophistes qui faisaient payer leurs leçons; ils
 nn disaient 4 non, la pensée est tellement grande, tellement
 Le haute, qu'elle ne doit jamais être payée! {Vifs applaudis-
-Ée sements)
 î 4 Aujourd'hui, qu'ils sont devenus mercantiles, les intellec-
 h tuels ne sentent pas cette dégradation; aussi, quand ils se
 n. trouvent en présence de socialistes, ils leur demandent
@@ -585,12 +558,10 @@ nee: he a conjecturé ici : les intellectuels. )
 ouvelle et plus profonde Révolution o j
 Hiarole pour transformer la propriété et la moralité, »
 
-k LE SOCIALISME ET LES INTELLECTUELS
 Une autre. — Si nous n'avions qu'à compter sur eux,
 ne serait pas fait en l'an deux mille... (. Rires)
 Une autre. — Ce ne serait pas à la fin du monde.
 Une autre.— I vous faut compter sur les gueules noires!
-(Vif mou ement d'approbation à gauche, applaudissements)
 Le citoyen LAFARGUE: Après avoir examiné la situation
 faite aux intellectuels, nous allons examiner leur rôle historique! Li
 à Une voix. — Vous confondez l'ouvrier intellectuel avec
@@ -614,29 +585,21 @@ ouis-Philippe, qui l'a fait pai À A
 servi la science, aussi ! /A i
 à droite et dans les tribunes) ; FÉES ë
 Le citoyen La
-à FARGUE. — .
 je prends leur rôle Seine 2e Lys pas le contraire, mais
 
-à cop pre
-RARES 770
-cahier : .
 du rôle scientif .
 ntifique, Et je di
 à abaisser sa his à fente éMpereurs, n'avait pas
-Plaudissements à gauche : mou “e faveurs. (Vifs apdroite) à vement d étonnement
 ns Une voix
 à : re son
-nant là-bas! {Rires) bec, mainte.
 Le citoy : à
 ee yen Larareue. — Je vous dis Peut-être des choses
 vous paraissent un Peu nouvelles, un peu désagréa
-{Vives protestations. — Mouvements divers)
 as Une voix. — 11 n'y a que des socialistes, ici!
 “4 Une autre, — Nous Sommes entre camarades!
 a des camarades qui veulent faire des observations, eh bien,
 je me ferai un plaisir de leur répondre, de leur donner les
 explications qu'ils me demanderont. {Longue agitation. —
-Interruptions diverses)
 Non seulement les savants se sont mis au service du goube. vernement, mais ils ont falsifié la science, pour rendre
 service au gouvernement et à la bourgeoisie. /Exclamations
 Le. à droite)
@@ -669,7 +632,6 @@ que lorsque les savants combattaient le darwinisme, ils le
 combattaient contre leur propre conscience. {Vives prolestations à droite. — Applaudissements à gauche)
 Une voix. — Même Pasteur?
 ue a a Si vous avez des observations
-érieurement.
 Le citoyen LAFARGUE. — fan ee
 a. savants sont devenus NES per Macaiee i
 rwiiénp en faveir de In bourseoisies ils see
@@ -721,8 +683,6 @@ ment à cause des progrès de la science. /Applaudissements
 
 à gauche. — Exclamations à droite) N'est-ce pas une ban-
 
-‘te queroute? /Rires à droite)
-
 r 0 Ceux qui ont lu les journaux de la révolution doivent
 PT: A savoir que, lorsqu'on s'occupa de l'abolition des privilèges
 A | aristocratiques; il y eut un cri général dans tous les journaux, parce qu'on disait qu'il y avait des nobles qui faisaient
@@ -735,11 +695,9 @@ milieux mortels; il y a des industries où il faut que
 ë, tellement il est entouré de germes de mort, et Us .
 cause des progrès de la science! La science, parce qu
 
-sOCIALISME ET LES INTELLECTUELS
 dus : par italiste, est une arme
 possédée aujourd'hui Par la classe A ie
 terrible entre ses mains pour ne e
-vrière. (Applaudissements à gauche) no
 Les économistes ? ils ont vendu la science; depuis Ricardo
 et Adam Smith il n'y a plus de science économique, tous les
 économistes ne font que répéter ce qu'ils ont dit, ou purs
@@ -759,10 +717,8 @@ on M. Giffen, le grand statisticien de Londres, se seres nos chifres contre la c
 e n'a jamais été plus heureuse qu'
 anjourd'hni, P reuse qu'elle ne l'est a
 se Le re Sul nomistes, aujourd'hui, ils sont des aboyeurs
-Tarnata D ue lorsque Cecil Rhodes, A ‘5 è
 , : autres voleurs ont lancé 1 i , VS
 l'économiste qui était à é leurs mines d'or Sd
-ait ê , À
 M. Paul Len on ra : ce lancement, c'était
 gistes, car la bourgeoisie qui Fe et ils sont aussi des apolo- 34 = IT
 qui n'a pas l'éducation Se on LE qui est incapable, ne
@@ -771,11 +727,9 @@ mistes qui sont des apologistes, c onne ce rôle aux écono-
 nn contre le socialisme » Qui, pour argent comptant, À
 es intellectuels de la littéra
 flatieurs, des Pen mon Dieu, ce sont des
-class itali R F s
 les œuvres dont ont besoin da de PRIMES ils lui font
 &oûts dépravés, et ils ne k
 
-ë. SE RC ORONORRRS
 A1 x ue a M Ho MONDES URSS Que : PTE
 somprennent pas la grandeur
 £. ils ne comprennent pas la su qu'ils auraient à jouer,
@@ -783,9 +737,7 @@ adorent, ur de ce Molière qu'ils
 SEA Molière est être l'écrivat
 Pie. cri "3 0n remplirait cette salle q
 écrits sur Molière: il y a des ke es volumes
-PER ; gens
 SE Chercher la date de tel acte, la d D RE rie
-Fe été jouée ; à ramasser t 1 or lnelle telle pièce a
 ‘HAE se Le ous les morceaux d'acte o l
 qu'il à jetés au hasard de sa vie er es vers
 jeune ; et qui, s'ils tr i ente, quand il était
@@ -817,17 +769,11 @@ vous serez ridiculisés, volés, battus; arrière! formez voire
 ss 1 sans
 ton intellectuel il n'a pu conjecturer utilement.
 
-iLLECTUELS ‘a
-LE SOCIALISME ET LES INTELLE
-nus : yous serez constitués
 classe, opposez-la à celle-ci, et Lee
-eut-être lutter contre
-Due Molière faisait au dix-septième siècle, au mili
 i és é nous le faisons aussi aujourd'hui, €
 de difficultés dns disait tout à l'heure Vaillant, à ‘la
 nous disons, comme !€ lisai : ie.
 classe ouvrière : séparation complète avec la bourge
-(vifs applaudissements) , È
 Les intellectuels politiques ne sont que des re Se
 remarquez que les grands financiers comme Rothse i
 France, les milliardaires comme Gould et Vanderbilt, ou les
@@ -837,7 +783,6 @@ leurs commis. /Rires) Et c'est parmi ces intellectuels que se
 trouvent les pires ennemis de la classe ouvrière. Non seu- A
 lement ce sont de grands ennemis, mais encore cé sont
 des ennemis jésuitiques, ils sont les dupeurs de la classe "al
-ouvrière. { Vifs applaudissements) 4
 Contrairement à ce que pense Jaurès — et Vaillant ne
 me démentira point — la propagande dans les milieux intellectuels est la plus difficile. Quand nous sommes rentrés
 de l'exil, Vaillant, Guesde et moi, nous sommes venus nous
@@ -852,20 +797,16 @@ et qui glisse entre les doigts... (Rires) ‘4 1 .
 amis, bourgeois décoré de la légion d'honneur. (Rires) Des
 î z donc, il faut que jeunesse se passe: be
 moi, voyez-vous, sous Louis-Phili « i passe; É
-RAS ; ouis-Philippe, j'appartenai hs
 sociétés secrètes ; j'ai fait partie de éette délé Rene
 été j ë élégation qui a
 à trouver le roi pour lni demander Ja gràc de B a
 voyez, aujourd'hui, je sui À grâce de Barbès;
 Eh bien, les bour J° suis un très bon bonapartiste
-eois i + _—
 tendent même pas e réa tellectuels, aujourd'hui, ils n'atntrer dans leurs foyers, ils n'at69
 
 tendent pas d'avoir d
-es u ventre po
 socialisme ; immédiatement sers Le tendon Lo
 Ho onverlis, ils deviennent des anti-socialistes..
-TRE U : ñ
 Fe ne voix. — Et les députés Socialistes?
 É 1 Une autre voix. — pt Vaillant?
 Le Le citoyen Lararaur. — Je ne comprends pas, aussi je
@@ -891,7 +832,6 @@ Fi spéciale, et qui s'improvisent du jour au lendemain sociaS bu ñ i croient q
 du parce qu'ils nee les mœurs des huîtres, croient
 qui, re iétés humaines. (Rires el
 que cela suffit pour diriger les sociétés h
-exclamations)
 k Une voix. — Ce n'est pas flatteur pour Milleran
 
 . Le citoyen LAFARGUE. — Ils viennent au nie de nous
@@ -939,7 +879,6 @@ F “Lt aun autre côté la ositi De
 lalistes n'auront pas de rai time a donne dE
 capitaux, } aison d'être; ils donneront leurs
 À ; I , \eureux de travailler, Comme disait M. Waldeck.
-à Rousseau dernièrement.
 d ts théorie-là est Purement enfantine et prouve leur
 absolue ignorance des phénomènes économiques. Au siècle
 dernier Adam Smith reconnaissait déjà, en Angleterre, pour
@@ -967,7 +906,6 @@ les organisations. Or, on a voulu désorganiser le See
 Er nd à voulait désorganiser les organisations qui pes pour
 ds ae iali tous, €
 } AS i liste. Le socialisme pour aus
-Fo: parti socia ; ents à gauche)
 soi, c'est ce qu'on a voulu. /Applaudissem
 j é plus rares.
 È (1) Le citoyen sténographe a conjecturé p
@@ -982,7 +920,6 @@ de répression de Bismarck a été levée, les intellectuels se F3
 sont rués vers le parti socialiste et se sont présentés comme r
 chez nous avec des théories nouvelles. Ainsi il ne fallait
 pas faire la guerre au capital, mais à Dieu, qui n'a jamais
-embêté personne! /Rires)
 Eh bien cette crise, loin de désorganiser le Parti Ouvrier ,
 Français, le Parti Socialiste Révolutionnaire, elle nous a
 fait au contraire serrer les coudes. Je viens dernièrement
@@ -1003,7 +940,6 @@ le mécanicien, mais il ÿ Cagnes à semi-intellectuel, comme
 à bien aujourd'hui
 Jourd'hui on ne peut Concevoir la production
 
-modern
 èrne Sans que ces de
 d ee ux travaux ne Soient intimement
 € peut pas concevoir un chemin de fer sil »
@@ -1018,7 +954,6 @@ j coup. Si la classe intellectuelle s'affranchit, elle
 see le travail eue Jusqu'ici c'est la classe ou-
 ! | € qui a pris les devants ; c'est elle qui s'est organisée
 en parti socialiste, c'est elle qui a lutté, a bravé toutes les
-k colères.
 Et les poursuites qu'on exerce contre la classe ouvrière
 P ‘4 sont autrement terribles que celles que les gouvernements .
 Dir font contre les propagandistes socialistes, car l'ouvrier de
@@ -1030,23 +965,19 @@ Eh bien, malgré toutes ces misères, la classe ouvrière
 les intellectuels veulent rester en arrière? Est-ce qu'ils ne
 veulent pas suivre les ouvriers? Est-ce qu'ils veulent attendre que les ouvriers les affranchissent ? Est-ce que l'heure
 n'est pas venue pour eux de se mêler à la révolution
-sociale? Rae
 La production moderne sera bientôt généralisée, elle bou-
 à leverse tout; vous avez un journal à Paris, ages
 des machines; vous avez des machines à Ste e
-À <, chine aujourd'hui pénètre partout. ie Re ées
 N Fta de tout qu'un seul métier. Autrefois il fallait des ann
 q à ur être ébéniste, par exemple. Maintenant si on est mécaL ù po il ste plus qu'un seul
 5e nicien on peut labourer, semer, il ne Te pus légalité
 se métier, mécanicien. Le résuliat qui se produii, € bis
-L NES ,
 , 70 ARR itions de production.
 à qui nur Es vice ee LÉ és e, et cependant un des
 if Cela crève les ye À i e vous
 , | isme, M. Durkheim, que
 flambeaux de LE ES ande influence, dans sa diviFR connaissez, car il a eu une gr
 
-LE SOCIYALISME ET LES INTELLECTUELS
 sion du travail (1), lui qui prétend Lier les ts se
 à prétend connaître la production économique, a _.
 toujours la société ira comme elle va aujourd'hui; qu
@@ -1076,13 +1007,10 @@ salariat. Venez avec na ir la pensée du joug du
 les mains de la one arracher la science d'entre
 d'hui un instrument de Lo qui en fait aujourrte Pour la classe ouvrière
 Q) De la division du travait social. Alcan.
-arrachez-]
 €z-la pour en faire un
 l'humanité ; voilà votre pin ; - bonheur pour
 Ne nous vous appelons, Applandissements Pride
-acclamations. — Mouvements divers) FLE
 E Le citoyen VAILLANT
-P: Citoyens,
 Avant de donner la Parole aux personnes qui la demanha deront, je crois que je devrai adresser tous mes remercie- l
 ments au citoyen Lafargue pour l'intéressante conférence
 qu'il vient de faire. ‘
@@ -1101,15 +1029,12 @@ sion qui a pu naître est maintenant dissipée à la seule
 réflexion. Mais cependant si quelqu'un a des observations
 de à faire, sur la demande du citoyen Lafargue, je lui donne
 ‘708 la parole.
-Citoyens, Re
 J'ai demandé la parole, parce que je crois . a
 >” q 4 Lafargue a beaucoup généralisé. Vous Fe Fe laisser de
 che à Taine, c'est de prendre des petits fai
 . () Le citoyen Crépin est, me dress secrétaire
 populaire du quinzième arrondissement. E Er:
-Los,
 
-CTUELS
 Ne AE èse qu'il voulait soucôté tous ceux qui déplaisaient à la thèse qu
 tenir. i je le dis
 Le citoyen Lafargue — nous nous connaissons, j ei
@@ -1150,18 +1075,14 @@ Guesde; le socialisme utopiq signé Paul Lafargue, Jules
 brochures de Jaurès, et rs cie d'autres
 isalent : croyez-vous que
 
-AS SN EDS RNA Un
-à 80) que c
 ne viens, j'allais déranger jes ao! Quelquefois, je me
 Do et Lafargue étai, à 8 rédacteurs,
 ce inielognes orage. Ban
 dans les Uni Tui demandaient s'il fallait rés "V2
-ù versités Populair. t répandre cela
 “# Hier nous sommes allés is Bo : JL
 t;le tableau était auditeur an Conseil
 11158) ch Par terre, des adre us
 FR : nous étions tous les deux Nes ne
-copier, pattes:
 “% Nous allons avoi i : “un
 véritable université a dans le quinzième une
 ‘4 prendre Je titre en mauvais no ape — Car on peut
@@ -1169,7 +1090,6 @@ E° Dans , 7° de Sen servir; la nôtre est socialiste,
 “ ces conditions, je le demande, d à Les
 avec nous des intellectuels ?  SONONENONS acceptée
 À Lorsque nous avons défilé de ù
-vant in”
 î blique, nous avons déployé notre . on
 ‘3 Université, sur notre terrai a ut
 Fe. mai etl ain, séra inaugurée le premier * #Æ
@@ -1182,7 +1102,6 @@ entre les mains de tous les camarades s\c'est un camarade
 qui a répondu à l'appel que nous avions fait, tandis que
 d'autres, comme le citoyen Deville, pour des raisons de
 santé, n'est pas venu.
-ÿ Citoyens,
 È Je ne répondrai pas directement, mais je crois répondre
 0 6 d'une certaine manière; j'appartiens au deuxième arron
 é À ne dissement. Dernièrement il y a eu üne réunion sous le titre
@@ -1190,8 +1109,6 @@ santé, n'est pas venu.
 à (1) Le citoyen Demesy représentait au Congrès le Syndicat des
 bourreliers de Toulouse, adhérent au Parti Ouvrier Français.
 
-Lx SOCIALISME ET LES INTELLECTUELS Fe:
-Hop i ous VO 4e
 beaucoup parlé des es Énorec 7e be
 bien qu'il est nécessaire de s'en OCCuper, er Fa . .
 des statuts au citoyen Lafargue, de manière à lui mor je 4 "4
@@ -1215,11 +1132,8 @@ qu'avec celui-ci les ouvriers peuvent s'instruire et arriver dl
 an socialisme, je crois que ce sera toujours un de pris.
 Voilà ce que je voulais dire. {Vive approbation à droite) Fe:
 . Le citoyen Rusanovrrcx Re
-Citoyens, 4 ro
 Quand on nous a annoncé une confé j k ?
-ére Socialism ed )
 et Intellectuels, surtout lorsque ss, jet a PA is pes.
-être fai : fr e
 Fe . dE nee un des représentants les plus auto- De &e
 tendre à une définit pren j'avais le droit de m'at- 5È
 constaté qu'il s'est produi , ; en effet, j'ai
@@ -1231,7 +1145,6 @@ Vous conviendrez avec pue tout à fait spéciale,
 actuelle sociqliste intellectuel, que lorsqu'on dit à l'époque » ce ne sont pas les ouvriers
 fl d hommes Qui, soulevés ve LE Vue un Certain groupe
 FI _ à la défense d'une certaine pas Se Justice, se sont
-si n a aujourd'hui
 Lavrov: le ne Nha du Philosophe russe
 à. sr les œuvres de Lavrov, Re po. qui conie cré la moitié de ses fins V à consa-
 ) F nalité humaine, le rôle “ Dre rôle de la person-
@@ -1248,7 +1161,6 @@ F Par un esprit de justice, tend, en se développant toujours,
 h. en s'assimilant toujours la science, en s'approchant toujours du groupe actif, à réaliser un certain idéal. Voilà la
 définition de l'intellectuel. Et Lavrov explique même les
 conditions dans lesquelles ils trouveront l'application de
-leurs idées.
 L. Et Lafargue nous parlera justement de ces intellectuels,
 %-.. 4 de ces personnes qui, armées de l'esprit critique et du désir
 de réaliser la justice, arriveront à la réalisation de leur
@@ -1259,12 +1171,9 @@ Le citoyen Rusanoviren. — Est-ce qu'en eee .
 Fe domicile dans le cinquième, ils se sont tri Hs ‘ls ont
 trouver des adhérents; et je trouve que les efforts qu
 
-LE SOCIALISME ET LES INTELLEC : à
-s è ons ici
 été fait sans succès. Nous av
 faits n'ont pas été tout à rs laudissements
 un représentant de la jeunesse, Zévaès.… (APP É
-à gauche) è
 Le citoyen Zévaès. — Membre du Parti Ouvrier
 Le citoyen Rusanovrren. — Qui appartient à la jeunesse.
 Une voix. — Ce n'est pas un ouvrier!
@@ -1289,15 +1198,12 @@ Le citoyen Larareur. — Je
 de Parlez! Parlez ! — Il répond très bien)
 Le citoyen Varzzanr
 — de ferai simplement
-à rema
 que Lafargue n'a pas parlé de cela !
 Le citoyen Rusano
-VITCH, — :
 Pris parti, parmi ces i Certes, Parmi ceux qui ont
 intellectuels qui ont pri
 d'un innocent injustement condamné il ed
 sonnes qui entendaie 6 ‘ L y avait des pernt ne défendre que cette cause.
-Alt
 { cahi du
 Une voix, — 9
 Un, OX. — Ce pauvre Alfred... {Rires)
@@ -1335,14 +1241,12 @@ ii des fils de petits électeurs, des fils de paysans et d'ouvriers, de la
 chair du peuple. Vont-ils laisser les iniquités, les supplices, les
 assassinats durer et se multiplier sans fin? »
 
-LE SOCIALISME ET LES INTELLECTUELS
 ment des intellectuels vers le peuple, pour l'éclairer ; Je
 salue ce mouvement parce qué c'est la répétition de celui (:
 qui a eu lieu en Russie, où les intellectuels sont venus au
 peuple et de cette union sont sorties de grandes choses,
 comme vous le savez.
 {Vifs applaudissements à droite et dans les tribunes)
-Citoyens, ;
 Rubanovitch a répondu à des choses que Lafargue n'a
 pas dites et c'est là qu'est la confusion ; Lafargue n'a nulle- “ L
 ment critiqué le rôle de l'intelligence dans le développe-
@@ -1356,11 +1260,7 @@ il ya place pour sa critique. individuel
 crois par consé : - Fe
 les Fra a ss ss sis citoy en Rubanovitch, dans
 lrque j ;, n'a pas répondu au citoyen La- ‘4
-(Mouvement) EP “
-citoyen CxaARLes RAPpoporr F2 CA
-Citoyens, : 1, "n
 Quand le cito. ; LL:
-yen Lafar, he:
 rence sur les intellectuels. ne re : annoncé une confé- s& re
 dans les journaux sociali quand il a maintes fois dénoncé Le
 danger social, i lalistes, que les intellect
@@ -1372,7 +1272,6 @@ cest ait à vaincre, qui a pré que la classe proléta-
 ‘ geois, le socialigme PR le socialisme petit
 en, tous les socialismes,
 
-dus ÿ
 le enfin, comment n'a:t-il as pré
 à intellectuel ? Pes prévu le danger du Socialisme
 ‘1 des intellectuels ; il n'y en a qu'un Para Où Marx parle.
@@ -1381,7 +1280,6 @@ prolétariat qui souffre et les Mtellegiee de
 dans le Manifeste un à uels; ily a encore
 Fe historique : les i Passage où Marx parle de l'évolution
 de dit Pas un mot sur le danger que les intellectuels Pourront
-ee devenir.
 ni. ie I y a encore un autre fondateur du socialisme scienti-
 fique, Lassalle, qui a Prononcé un grand discours : Ja
 ss science et le Drolétariat, et là il a fait ressortir non Je
@@ -1408,7 +1306,6 @@ el fité de la science. pour défendre les intérêts capitalistes,
 A ; ou Darwin aussi était un intellectuel dont la science
 dia intellectuels socialistes et des intellectuels, anti
 Des
-LE SOCIALISME ET LES INTELLECTUELS
 socialistes. {Applaudissemenis, agitation, la voix de l'ora- ê
 teur est couverte par des interruptions continues) Ce
 On ne peut pas attaquer les intellectuels en général, j
@@ -1445,7 +1342,6 @@ questions élémentaires. Oclalisme discute encore sur ces
 Une voix. — Je cond :
 Une autre, — Jus que le citoyen n'a rien compris!
 — Alors, c'est un imbécile ?
-e? (Rumeurs)
 
 s Le citoyen
 el A Raproronr. — Plekhanov, fondateur du parti
@@ -1461,7 +1357,6 @@ atlaqués jadis par lui. Mais je crois qu'ils n'ont qu'un tort,
 es les intellectuels : allant dans le Parti Ouvrier, ils seraient
 Je bien reçus. (Applaudissements et longues Protestations)
 se Une voix. — Nous irons à vos conférences Jaurès, nous
-Fi autres!
 F4 Une autre voix ironiquement. — À bas les idées, vivent
 ‘34 les individus ! {Longue agitation)
 Le citoyen VAILLANT. — J'espère que personne n'a l'in11 tention de troubler cette réunion... on:
@@ -1478,11 +1373,8 @@ S° Les camarades précédents nous ont parlé avec éloqu
 mn () Le citoyen De postes ns Socialiste Rérlnior
 licaine socialiste de 1 + tes-Alpes), du
 É. . et le Groupe socialiste de Veynes (Hautes-Alp
-E Ouvrier Français.
 
-LE SOCIALISME ET LES INTELLECTUEL
 ésir de sacrifice, et je
-rar M mena sacrifice tellement
 ‘ dirai mieux : qu'il y a des F de douF dans un sentiment de do!
 longues qu'ils ne parlent que dans
 leur, d'affection et d'estime; et je suis heureux de leur re
@@ -1529,7 +1421,6 @@ Peuple; au moment du triomphe de
 Populaire tout entière, au moment où ils celte classe
 Ke, peuple se réveillait: ils ne RÉ ae ont senti que le
 ï ils ne l'ont pas su par leur iidipne à ee Cr
-SRE À ar cela mé
 ils ont cessé d'être intelligents. Ils ont senti qu'il er ge
 i Fe contre lequel il n'y a rien à faire.
 à ais yen 4 qui ont senti que des idées autres venaient
@@ -1558,10 +1449,8 @@ ont pensé qu'ils avaient assez de science pour enseigner
 “à ouvriers, mais ceux-ci n'avaient pas assez de temps pour
 à entendre leurs enseigne A e tout le monde
 de dix heures a préparé une loi pour qu
-travaille onze heures.
 ia Le citoyen Zévaës. — Très bien! ca
 
-CTUELS i
 r avons dit : vous
 i ité, mais vous vous êtes trompés ; 1! ÿ
 avez agi avec a I y a une question qui prime
@@ -1571,7 +1460,6 @@ Une voix. — Réduisez, c'est une répétition générale. — On
 vous nommera, allons, vous serez nommé
 (L'orateur ne peut continuer par suite des interruptions}
 Le citoyen LAFARGUE
-Citoyens,
 Tous ceux qui sont venus à cette tribune n'ont pas atla- H
 qué la conférence. (Rires) Ils ont dit: vous eussiez dû
 définir l'intellectuel. Marx n'a pas dit cela, n'a pas fait cela.
@@ -1665,7 +1553,6 @@ Pari nous, parce qu'il est un deg pro 00* de l'avoir
 actifs que nous ayons sa des Propagandistes les plus
 tout; il ne reste pas au P le parti socialiste ; il court parle pays — avec le permi alais-Bourbon, il circule d
 is de voyager des Co: ans tout
-mpagnies…
 
 4 | Nous aimerions avoir des intellectuels Parmi nous, des
 
@@ -1675,7 +1562,6 @@ liste et ne s'improvisant pas socialistes pour Nous impo-
 
 ser un socialisme de leur fabrication. (Applandissements
 
-à gauche)
 j Rappoport croyait me lancer une pointe terrible en disant:
 
 a s'ils étaient avec vous, vous seriez enchantés |... Vous avez
@@ -1698,8 +1584,6 @@ il Pour eux-mêmes; s'ils veulent s''émanciper, ils rallieront le
 
 je € {Applaudissements et longues Protestations ; exclamations
 
-à ae diverses, interpellations)
-
 La | bi Les camarades Sarraute et Estève demandent la parole, qui leur
 
 a a est refusée,
@@ -1707,18 +1591,14 @@ a a est refusée,
 È ! di. Le citoyen EsTÈève. — Merci, citoyen Vaillant, É
  : La séance est levée.
 
-Jérome sr Jean THARAUD
 notre Maître Villiers de l'Isle-Adam
 la lumière
 Qui perd les yeux k à
 perd'Ila ‘beauté de : Le
 homme qui serait L “à Le
 enfermé vivant dans
-aurait mouvement
 et vie.
-Léonarp:nr Ver .
 
-TIMOR
 À 4. Une voiture attelée de trois chevaux en flèche, et
 ï “ abritée contre le soleil par un tendelet de toile écrue
 rouge et blanc, emmena Clément et sa mère de la os
@@ -1748,7 +1628,6 @@ de suite, fut très près de son cœur. Élisabeth “a . ji
 dès qu'elle le vit, cet étrange frère tombé du Ciel. l
 
 Elle le conduisit par la main, fidèle comme son
-” ombre. l
 La maison était sans livre et sans musique. ne
 Dehors brûlait le soleil. La forêt était tout près, L
 avec sa végétation d'arbres monstrueux.
@@ -1777,16 +1656,13 @@ he père est une intelligence caduque. Maître, je.
 n'aurais pas dû venir ici: JY meurs d'ennui. La
 ri fête de cette nature qui est autour de moi, et qui
 n'est pas pour moi!
-TIMOR È
 Élisabeth entr'ouvrit la porte. Si léger Los
 le bruit, il réveilla Clément de son sommeil. En i
 même temps un oiseau chanta.
 — Un loriot!
-Élisabeth se mit à rire :
 C'est done bien étonnant un loriot? Tu n'en
 avais pas'encore entendu ici ? Mais il y en a beaucoup autour de la maison. Les premiers colons en
 apportèrent avec eux. Ce sont de très vieux émi- D
-grés.
 Clément s'habilla et sortit pour entendre de plus
 près l'oiseau. Élisabeth l'accompagna.
 leur approche l'oiseau s'envola et d'arbre en
@@ -1795,7 +1671,6 @@ Ils demeurèrent quelques minutes aux aguets. Ils s
 n'entendirent plus rien. : 1%
 — Cette forêt étrangle le chant des oiseaux dans A Ex
 leur gorge. Elle m'est odieuse.
-Élisabeth demanda : a.
 — Comment sont donc les forêts là-bas ? i =? à ee
 — Dans noire vrai pays il n'y a pas de forêts, à
 petitesœur ; il y a seulement des bois où poussent des °.
@@ -1822,7 +1697,6 @@ Ni nous ?
 venu ici, je n'aurais pas pu t'embrasser.
 É — Cependant tu n'es pas heureux d'être avec nous.
 DU Tu rêves toujours à des choses lointaines.
-TIMOR 13
 Élisabeth défendit Clément contre ses frères. Elle
 leur disait
 Ne vous irritez pas contre Jui. Et ne croyez pes
@@ -1844,12 +1718,9 @@ des barbares, il regrette la nature et plus encore les Rs
 hommes de l'Europe occidentale. Le
 Les six garçons répétèrent ensemble : 54 ho
 — C'est bien cela, il regrette les hommes de l'Eu- ‘à
-rope occidentale, : js
-Élisabeth
 cs mieux : il regrette ses amis.
 pourrez le devenir.
 
-Pi CROSS
 k Par dun, . En
 à la lumière
 — Tu es plus fine Te nous tous, Élisabeth, mai
@@ -1919,14 +1790,11 @@ nos têtes, quand, allant et venant sur la digue, nous
 Ve Mes
 CESR Le: nous entretenions du Christ. Il me le représentait
 dans la Judée. —
-Madame Saint-Adjutory, aux écoutes, entendit
 Vu, PU ces paroles. L'influence de Majorel avait été siprodon 4 fonde, que son mari la subissait encore! Elle
-s'écria: , ù
 3 — N'achève pas; tu parlerais du Christ comme
 -.i s'il était un homme. A la dérive de tes souvenirs,
 tu redeviendrais le blasphémateur que tu as été. -
 
-TIMOR
 Toi, Clément, songe àton père. I n'est plus le au
 ciple désespéré de personne. Avec la croyance, n .
 retrouvé, sur cette terre que tu maudis, la joie
@@ -1957,8 +1825,6 @@ la lumière
 lade onu d'orgueil, malade de regret, ma
 — Qu'importe que je sois malade d'orgueil
 regret ou d'amour si je suis malh hs
-ï eureux ?
-É Majorel écrivit à Clément:
 Ta désolation m'afflige, Il aurait fallu ne jamais
 ps et de l'espace, dans
 les combinaisons innumérables du possible, nous
@@ -1979,7 +1845,6 @@ vois: les Esprits du soir et les Esprits du matin, les
 cercle de leurs rondes. Il s'est débattu et à la brume
 k il s'est noyé dans la fontaine.
 
-TIMOR 16e
 Les frères de Clément couchèrent " pes
 étendus le corps d'un gros 018620 ee tesques
 C'était une sorte de goéland aux ailes geo
@@ -2007,7 +1872,6 @@ l'espace aux premiers rayons du soleil; il tournait
 dans la lumière; ou bien, repliant ses ailes, il
 
 (] la lumière
-s'abandonnai
 t à la houle atlantique, qui le bereai
 sur é Sale
 à ses ondes allongées. I…1 a PU Voir dans le cie]
@@ -2022,7 +1886,6 @@ démonté par la rafale.
 à lumière! La terre se meut silencieusement dans
 re l'espace; il me semble que personne au monde
 n'aurait plus joui de voir les aspects divers de sa
-ï révolution éternelle.
 ke. — Frère, en t'attristant ainsi tu nous fais injure.
 Il ÿ a tant d'amour autour de toi qu'il devrait en
 . L. naître invinciblement du bonheur.
@@ -2085,7 +1948,6 @@ Janesh, déesse de la Sagesse, Gourou, es ”
 sa longue barbe, sa cruche d'eau, son ee
 son trident, les Bouddhas ventrus aux yeux 0e Fét
 
-TIMO Ml
 — ou pour invoquer Allah dans l'aire chaotique Li)
 d'une mosquée sans coupole. 1 k
 l'angle nord-ouest de cette ville morte, une
@@ -2096,8 +1958,6 @@ accompagner sa famille, mais c'était un scandale de 1{
 voir, debout dans l'église, ce jeune homme qui ne %
 faisait aucun geste de prière. E :!
 
-, PRES
-VIL
 la lumière
 L Clément ne recevait plus de lettres de Majorel.
 ù n maître ne se Souvenait déjà plus de lui? Il écri.
@@ -2111,7 +1971,6 @@ ra Peut-être Pensez-vous que je n'ai Pas assez résisté
 Fa Majorel, lui aussi, attendait en vain des lettres de
 a Clément. Madame Saint-Adjutory interceptait tous
 les messages; son mari ne se résignait pas à cette
-“ol manœuvre.
 1 — 11 ne faut tromper personne: jamais Clément
 in n'a été plus triste. Tu exaspères ses regrets.
 #2 — Le salut de son âme vaut un mensonge : ils
@@ -2135,13 +1994,9 @@ boire. La cloche des repas tintait, il ne l'entendait F “d rs ras
 pas. Ses frères se mettaient en quête, le ramenaient F: x
 à la maison. Insoucieux des tendresses familiales, il 23 % “à Mes
 poursuivait ses rêveries sur d'anciens récits de
-Majorel.
 — Les mages de Chaldée étudiant les astres au
-tps a a Fe bergers poussant leurs
 e l'Iran. Les troupeaux d'esclaves ramenés à coups de fouet dans A À
 courses des pirates phénici ssur. Les .
-Phéniciens. cs
-ris
 la lumière
 Élisabeth Surprit par hasard le mensonge de sa
 k f tue maintenant son ami.
@@ -2153,7 +2008,6 @@ Quand Clément arriva près d'elle, elle lui
 dit
 BE. — Non, Majorel n'est pas mort.
 
-TIMOR
 — Vous m'avez trompé.Je veux partir.
 Madame Saint-Adjutory répondit avec fierté
 — Si je t'ai menti, c'est que je t'aime. Je croyais
@@ -2163,7 +2017,6 @@ plus aller à un autre.
 partir. Quand je serai loin de vous je vous pardon- ë +
 nerai votre mensonge. .
 Madame Saint Adjutory se révolta contre la
-dureté filiale.
 — Pourquoi me parles-tu ainsi? Tu n'as donc ‘4
 jamais menti? Pars. Emporte à ton ami ton cœur
 inhumain. Je te souhaite de ne souffrir par personne comme je souffre par toi.
@@ -2200,17 +2053,13 @@ Le hasard fit d'elle aux déjeuners le xomue
 fa Clément. Elle fut longtemps Le un me
 à singulier étranger était sveies
 
-TIMOR É
 Clément s'amusa de sa méprise : il vourmat # E
 tête vers les objets qu'elle désignait. Pourquot _ L
 ‘ paraissait-il jamais ému par le spectacle de chosen
 Vous êtes beau — — la grâce enfantine der
 traits — — — mais vos yeux — VOS See
-yeux? — Î
-Clément pensa
 — Elle va découvrir le mystère.
 Et il trembla que sa grâce pour lui n'en fût
-diminuée.
 — Vous ne voyez pas —— regardez bien. Ce doit
 pourtant être clair — clair comme le jour — clair
 comme la nuit. — _.
@@ -2228,7 +2077,6 @@ visages, apportant les claires
 la lumière
 pensées, et chassant des cervell
 es les souveni
-trouble Orient. a y
 Clément salua Alexandrie avec la joie de l'Hellène
 qui revient des pays barbares dans sa patrie,
 Près de Malte un Passager lui raconta une
@@ -2241,9 +2089,7 @@ frayeur. Le roi demeura calme au milieu d'eux. Et d
 comme ils s'étonnaient de son intrépidité, Le saint k
 répondit : N'ayons point de crainte; à cette heure, s
 les moines de Citeaux sonnent les cloches et chantent pour nous.
-LES TÉNÈBRES À À
 Reims était seul à attendre Clément.
-— Majorel?
 Nous allons chez lui. Un bateau de pêche Le l
 s'était échoué au bout de l'estacade, démonté par les À é k
 ‘ grandes marées de ces derniers jours. Quelques
@@ -2252,7 +2098,6 @@ driers qui étayaient les planches de la jetée; la mer | i 14:
 les recouvrait à chaque instant. Majorel voulut les à | FL"
 secourir : il s'était ouvert le ventre sur un pieu.
 la lumière
-Majorel n
 MUa pas quand ils entrèrent.
 garde leur fit signe av; : Ps
 gne qu'il dormait. Au mili
@@ -2261,7 +2106,6 @@ clarté de la vei (ans la
 t illeuse. Clément S'approcha de lui. Il ml
 le reconnnt.
 L. C'est toi, Clément? Je savais que tu arrivais
-aujourd'hui.
 Sans que je t'aie entendu. Dis-moi, avant que je
 meure : De quoi me remercies-tu le plus? — le
 Maître vous m'avez appris à aimer la vie et
@@ -2274,20 +2118,16 @@ Jamais je n'ai tant vécu qu'au moment où la vague
 m'a jeté sur ce poteau éclaté. ñ
 Les ténèbres éternelles commencèrent à s'appesantir sur les yeux du moribond, qui agita les bras
 hors de son lit pour retenir une chose qui fuyait. Il
-) ©  murmura: ë
 Pr. #4 À Reims s'approcha de lui. Majorel devina sa
-pensée : ee
 — Je ne me confesserai pas. Dans ma vie jen?
 ai Bb fait ni bien ni mal. Je n'attends, après ma mori,
 4% punition ni récompense.
 
-LES TÉNÈBRES Hd
 Le jour encore lointain fit pâlir la pan à ù LA E
 étoiles. Majorel ouvrit les yeux pour contempler
 travers les fenêtres blémies et sans rideaux le céré
 monial de l'aurore — sa dernière aurore.
 Il vit mourir Vénus, mais il ne vit pas s€ lever le
-Soleil.
 Clément demanda à l'abbé de le laisser seul avec 2: e
 le cadavre. Il s'assit au chevet du lit et songea : 0e
 Celui qui a voulu mettre la lumière dans mes Dh
@@ -2298,10 +2138,8 @@ son corps est inerte. Il est mort depuis cinq minutes
 à peine, son corps est encore chaud, et il est aussi de
 mort qu'Alcibiade ou que Darius.
 
-ersonnes à Là
 ms et adresses des pers FH Sr
 RAR ANSE ne des abonnements éventuels HiAT
-servirion FREE rs v
 qui nous atui s d'ailleurs; RE
 ou des abonnements 81 atuits payé :!
 en nous envoyant des documents j
@@ -2313,7 +2151,6 @@ des deux le nom et l'adresse de la personne — qui reçot
 l'abonnement payé, — qui pare l'abonnement reçu Et
 Pour pouvoir envoyer à nos futurs abonnés des collec
 tions complètes, nous avons renoncé rigoureusement ï ‘ : à
-I
 Administration et rédaction le lundi et le jeudi, CEE
 de 2 heures à 5 heures. Adresser toute la corres- LA 11:
 pondance à M. Charles Péguy, 19, rue des Fossés- S j
@@ -2345,7 +2182,6 @@ J'ai toujours vu toute efficacité fuir en de t lles né ” fl
 Manifesterons des indignation 0 1
 S Où que nous allongerons És
 de: S r'écriminatio an
-pendant deux he. S%%8 Pouvoir ‘garder pne
 pas eux heures un quart, il y. S'Éer. Une
 Dour la canaille n ationaliste Y dura de beau Jos
 he. {uand j'ai peur que la néplige Je ne: & tout og ÿ
@@ -2357,8 +2193,6 @@ ion et qui samedi dernier Darlait encore
 :ÿ88 Nous publior i pp
 avons 4 6 1e vraiment notre état de situation
 ie $ tré le huitième cahier à 800 exemnlais
-re A 191 exemplaires d'abonnements annue a
-Hé SR LCA 4 201 abonnés éventuels:
 el nous avons fait 5 1 services, dont 6 aux imprimenré
 Fe lion, 1 7, rue Cujas, Paris, le premier roman de. érôme
 et Jean Tharaud : le Coltineur débile, un beau vatan
@@ -2374,11 +2208,7 @@ vince et à l'extérieur. !
 auront fait la commande et qui nous auront
 nf % n à un franc pour les frais d'envoi, nous enyerrons ns
 aucun retard la Jeanne d'Arc de Marcel et-Pierre
-douin. ; A
 214 Nous avons donné le bon à tirer de ce neuvième Cdi
 À M pour l'intérieur, le mardi 8 mai; les imprimeurs ame
 D D eux-mêmes donné le bon à tirer de la couvertan ee
-Sie Jeudi 10 mai. ; ; plu
 De Le dixième cahier sera sans doute en retard de pi 1550
-cé , SHC
-sieurs Jours.

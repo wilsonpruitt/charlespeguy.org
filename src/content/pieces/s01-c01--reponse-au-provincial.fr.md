@@ -7,18 +7,12 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3077
 ---
-
-*Charles Péguy*
-
-Paris, lundi 25 décembre 1899,
 Mon cher ami,
 Pendant un an, et à titre d'essai, je ferai tout ce que je
 pourrai pour t'envoyer ces cahiers de renseignement.
 Le premier cahier partira le 5 janvier prochain. Je t'enverrai le 20 de chaque mois le cahier de la première quinzaine et le 5 le cahier de la seconde quinzaine du mois pré-
-cédent.
 Je tiens dès à présent à te rassurer sur ce Triomphe de
 la République. Autant que l'on peut nombrer une aussi
-grandiose manifestation, deux cent cinquante mille citoyens
 au moins défilèrent. On peut évaluer à un nombre égal au
 moins les citoyens qui acclamèrent le défilé, qui acclamè-
 rent le socialisme. Ainsi la Petite République et l'Aurore
@@ -43,7 +37,6 @@ plusieurs socialistes, et acceptés d'eux par le Président
 du Conseil.
 
 Enfin la République triompha dans la rue par la procession du peuple parisien le dimanche 19, le grand
-dimanche.
 
 Comme les prêtres catholiques réconcilient ou purilient par des cérémonies expiatoires les églises polluées par l'effusion du sang ou par le crime honteux,
 comme ils ont récemment fait une réparation pour
@@ -154,7 +147,6 @@ boule jaune, parfois surmontée de deux ou trois petits
 fils jaunes, qui figurait, grossièrement et naïvement,
 les étamines et le pistil. Aujourd'hui la boule centrale
 
-. . LÉTANEONRS
 est plus grosse et toute rouge. Naguère on mettait pour
 la plupart une seule fleurette à la boutonnière, comme
 une marque. Aujourd'hui, dans un besoin d'expansion,
@@ -178,7 +170,6 @@ pas là, retenu dans l'Ain et dans le Jura par les soins
 de la propagande. On regretta son absence, non pas
 seulement parce que ses camarades l'aiment familièrement, mais aussi parce qu'il manquait vraiment à cette
 fête, qui lui ressemblait, énormément puissante, et
-débordante. )
 
 Il était midi et demie environ quand Gérault arriva,
 toujours cordial, et gai comme le beau temps. Il venait
@@ -191,7 +182,6 @@ Il était midi et demie passé quand on forma le cortège. Quelques vieux milita
 récemment échappés de la caserne, chantonnèrent en
 riant la sonnerie: au drapeau ! quand on sortit du magasin le rouge étendard. L'idée que l'on allait marcher
 en rangs, au pas, au milieu de la rue, éveillait chez
-beaucoup d'assistants d'agréables souvenirs militaires,
 car invinciblement une foule qui marche en rangées au
 pas tend à devenir une armée, comme une armée en
 campagne tend à marcher comme une foule. Et ce qui

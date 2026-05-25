@@ -8,22 +8,15 @@ isAvertissement: false
 ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 wordCount: 39546
 ---
-
-[p. VI]
-
 elle s'oppose, la tentation d'un catéchisme laïque est d'opposer au catéchisme religieux, à l'autorité de commandement exercée par le catéchisme religieux, une autorité de commandement, égale, ou plutôt supérieure, et des sens contraire ; ainsi le vice profond des catéchismes laïques est aussi le dogmatisme, l'audace, l'affirmation dogmatique ; les catéchismes laïques, étatistes, que nous connaissons ne sont pas la plupart des catéchismes religieux, en particulier des catéchismes catholiques, retournés, des catéchismes contre-catholiques, des contre-catéchismes ; ils ne se proposent pas de libérer l'esprit humain ; ils ne se proposent pas d'exercer une autorité de commandement ; ils parlent du catéchisme moderne, ils traitent, ils enseignent de l'État moderne et du monde moderne au moins aussi catégoriquement, au moins aussi merveilleusement, au moins aussi miraculeusement que les vieux catéchismes enseignaient de l'Église et de la chrétienté ; ils ne sont pas moins mystiques ; ils ne sont pas moins autoritaires ; ils ne sont pas même une réplique aux catéchismes religieux ; ils sont de leur droite filiation ; ils sont des catéchismes religieux plus particulièrement affectés au culte rituel d'un nouveau Dieu qui est l'État moderne.
 
 Le *nouveau catéchisme* de M. M. Mangasarian n'est pas exactement un catéchisme laïque, un catéchisme catholique retourné.
 
 C'est ce que l'on verra dès la première page : le baptême liminaire du vingtième siècle *au nom de la Paix, de la Liberté et du Progrès* n'est nullement un de ces baptêmes laïques et civils, répliques, imitations grossières et contrefaçons grotesques d'une cérémonie
 
-[p. VII]
-
 religieuse, du baptême catholique ; cette invocation, cette réclamation, cette revendication du vingtième siècle est profondément humaine ; et, pour qui ne s'arrête pas à quelques imitations de forme, symboliques et voulues, elle est profondément originale ; pareillement les épigraphes ne sont pas deux citations, produites superstitieusement, de nouveaux livres saints.
 
 Par l'*introduction* anglaise on connaîtra qui est l'auteur américain, et comment le livre est né ; l'auteur du livre, M. M. Mangasarian, est Arménien d'origine, et pour nous qui nous sommes tant occupés de l'Arménie et des Arméniens, qui personnellement connaissons quelques Arméniens, cette origine est extrêmement intéressante ; l'auteur est le conférencier de la Société de Religion indépendante de Chicago, *lecturer of the Independent Religious Society of Chicago*, que le traducteur français aimerait mieux traduire : *orateur de la Société de Libre Pensée religieuse de Chicago* ; on nous dit qu'une assemblée de deux mille personnes entend toutes les semaines sa parole ; ce sont là des mœurs que nous n'avons guère en France, et qui, à première vue, pourraient nous déplaire un peu ; pour ce qui est d'un service hebdomadaire, nos prétendus libres-penseurs n'ont eu rien à imaginer que de manger gras, rituellement, tous les vendredis ; et, véritables libres penseurs, nous nous représentons malaisément ces sortes de sermons laïques américains ; mais nous sommes internationalistes ; et nous devons nous entendre les mœurs des peuples étrangers, pourvu qu'elles soient honnêtes ; il ne nous suffit pas qu'une coutume s'établisse, qu'une institution naisse et fonctionne en dehors de cette nation française pour que
-
-[p. VIII]
 
 nous la réprouvions ; nous n'avons rien de commun avec ces radicaux de gouvernement nationalistes qui crient avoir tout dit contre l'Église catholique aussitôt qu'ils ont découvert, dans le catéchisme de leur enfance, qu'elle était l'Église romaine ; si l'Église catholique nous apportait la vérité, nous accepterions que l'Église et que la vérité, l'un portant l'autre, nous vînt de Rome ; c'est parce que nous croyons que l'Église catholique ne nous apporte pas la vérité, non parce qu'elle est romaine, que nous avons rejeté ses enseignements ; et nous ne croyons pas qu'il suffise que l'État français résidât à Paris pour que les enseignements de l'État soient, aussi pour ceux de l'Église, miraculeusement soustraits aux critiques légitimes rationnelles.
 
@@ -33,8 +26,6 @@ Je dois avouer que j'hésitai longtemps à en faire un cahier ; j'avais tort ; m
 
 En même temps que ce cahier parvient à nos abonnés
 
-[p. IX]
-
 paraît chez MM. Cornély et compagnie, éditeurs, 101, rue de Vaugirard, Paris, un volume identique, sous cette réserve que le présent secrétariat n'en pas reproduit ; ce volume a été tiré à quinze cents exemplaires, au moins-pour la première édition ; il forme la seule édition française qui soit aujourd'hui mise dans le commerce ; elle est donc la seule aussi qui soit en vente à la *librairie des cahiers* ; l'auteur, le traducteur, les éditeurs ont entendu en faire une édition de propagande ; ils ont donc marqué le volume un franc cinquante, ce qui est un prix de propagande, un prix réduit, un prix inférieur au prix de revient strictement économique, un prix commercial, un prix marchand.
 
 Le traducteur et les éditeurs, considérant que le mot de *catechism* avait subi en français une dégradation que le mot de *catechism* n'avait pas subie dans l'anglais et dans l'américain, ont jugé qu'il valait mieux intituler la traduction française *le monde sans Dieu* ; toutefois, par loyauté intellectuelle et bien entendue, par simple fidélité de traducteur, ils ont, dans le sous-titre français, maintenu le titre américain : *a new catechism* ; nous avons, pour le cahier correspondant, respecté scrupuleusement leurs intentions.
@@ -42,8 +33,6 @@ Le traducteur et les éditeurs, considérant que le mot de *catechism* avait sub
 Quelque opinion que l'on ait de ce catéchisme nouveau, nous le présentons d'abord à nos abonnés, et les éditeurs le présentent au public particulier de leur maison, historiquement et géographiquement parlant, comme un exemple, comme un *specimen* de ce que l'on fait en Amérique, et peut-être comme un modèle de ce que, une fois le genre admis, on peut se proposer de faire en France.
 
 A ce titre, comme *specimen*, et peut-être comme
-
-[p. X]
 
 modèle, quel accueil peut-on prévoir pour ce catéchisme nouveau ?
 
@@ -55,8 +44,6 @@ Son origine américaine le servira peu, si elle ne le dessert, auprès d'un publ
 
 Ses qualités propres le desservirent sans doute auprès d'un public singulièrement gâté ; l'anticléricalisme, l'anticatholicisme français n'a jamais été bien fort, même celui du dix-huitième siècle, jadis tant vanté, même celui de Voltaire, même celui du dix-neuvième siècle, même celui de Renan, naguère tant critiqué ; le socialisme seul fournirait une base d'appui suffisante, je ne dis pas pour attaquer, mais pour examiner, pour attaquer, avant toute critique, avant toute expérience, mais pour critiquer honnêtement le christianisme, en particulier le catholicisme ; mais qui parle encore de socialisme ? le plus grand mouvement des temps modernes, remis criminellement aux mains des
 
-[p. XI]
-
 politiques parlementaires, a versé presque entièrement dans la plus basse démagogie radicale.
 
 Reste l'anticléricalisme, l'anticatholicisme radical et radical-socialiste, politique, parlementaire, autoritaire, bourgeois, traditionnel, conservateur, démocratique, démagogique, prétendu rationaliste, prétendu libre-penseur, gouvernemental, préfectoral, vulgaire, électoral.
@@ -64,8 +51,6 @@ Reste l'anticléricalisme, l'anticatholicisme radical et radical-socialiste, pol
 Je dis anticatholicisme et non pas anticléricalisme seulement ; c'est en effet la première tartufferie de ce mouvement bourgeois, sa première hypocrisie, qu'officiellement il est dirigé contre le cléricalisme, c'est-à-dire contre l'autorité de commandement exercée par l'Église, contre l'abus d'autorité de l'influence de l'Église dans le domaine gouvernemental, mais qu'officieusement et dans la réalité, dans les journaux, dans les discours, dans ses entraînements, dans ses prétentions, il est dirigé contre le catholicisme, c'est-à-dire contre une certaine autorité de compétence exercée par les consciences par des moyens religieux ; qu'il soit juste, qu'il soit convenable, qu'il soit inévitable de combattre le catholicisme même et non pas seulement le cléricalisme, c'est une opinion parfaitement soutenable, et qui au moins mérite la discussion ; mais la seule discussion qu'elle puisse mériter, et qu'elle puisse invoquer, est la discussion rationnelle ; attaquer le catholicisme même par les moyens du gouvernement dans les consciences, comme on le fait tous les jours, et déclarer officiellement qu'on n'attaque rien que le cléricalisme, c'est effectuer une opération gouvernementale d'hypocrisie bourgeoise.
 
 En tout état de la cause, on ne doit procéder contre
-
-[p. XII]
 
 une religion que par la voie de la raison ; nulle autorité de commandement, en particulier nulle autorité de gouvernement, nulle autorité d'État, ne vaut dans les débats de la conscience.
 
@@ -75,23 +60,17 @@ Anticléricalisme, anticatholicisme radical-socialiste, s'il est radical, n'est 
 
 Anticléricalisme, anticatholicisme politique, subordonnant la morale à la politique, traitant les personnes morales comme des moyens politiques et non comme des fins morales, employant les hommes et les institutions, les personnes morales, comme des moyens politiques,
 
-[p. XIII]
-
 admettant, professant que la fin justifie les moyens, en particulier que la fin politique, tout immorale soit-elle, justifie les moyens politiques, tout immoraux soient-ils, admettant, professant, enseignant le mensonge, le parjure et la trahison, ne peut rien, ne vaut rien contre la morale chrétienne, en particulier contre la morale catholique ; seule une morale socialiste, strictement kantienne en sa forme, astreinte à ne jamais traiter les hommes et les institutions comme des moyens, mais à les traiter toujours et sans exception comme des fins morales, peut et vaut elle-même comme institution conscientielle au regard et en face de la morale chrétienne, en particulier de la morale catholique, au besoin contre la morale chrétienne, en particulier contre la morale catholique.
 
 Une morale comme en physique et en chimie, les déplacements ne se font pas au hasard ; ils ne se font pas à l'avantage des vanités ; les plus graves déplacent les moins graves ; les plus efficients déplacent les moins efficients ; un État politique tend opprimer ; mais moralement il ne peut pas déplacer une *cité de Dieu* ; une cité morale seule peut déplacer une cité religieuse.
 
 Anticléricalisme, anticatholicisme politique, subordonnant la sociale à la politique, ignorant, négligeant, méconnaissant les besoins économiques légitimes, ignorant, négligeant, méconnaissant le travail économique indispensable et du, ignorant, négligeant, méconnaissant toute organisation du travail économique, toute organisation de la production économique, toute organisation de la consommation économique, ignorant, négligeant, méconnaissant toute servitude
 
-[p. XIV]
-
 économique, ne la connaissant que pour la subir servilement, ou pour la détourner aux fins politiques, ne la connaissant pas pour en libérer le travail humain, bref un anticléricalisme, un anticatholicisme inéconomique et misérablement politique ne peut rien, ne vaut rien contre le mysticisme chrétien, en particulier contre le mysticisme catholique ; seul un socialisme économique, seul un socialisme, seul un socialisme, seul un socialisme, n'omettant rien de l'économique au sein matière, seule une sociale économique, strictement économique au sens matière, astreinte à ne jamais traiter les travailleurs et les institutions de travail, tout le travail économique, tout le travail social, comme un moyen négligeable, mais à les traiter toujours et sans exception un bien comme une fin, ou bien au moins comme un moyen respectable, et en quelque sorte final, subsidiairement final, peut et vaut comme institution sociale, et pour la genèse d'institutions sociales, au regard et en face de la mystique chrétienne, en particulier de la mystique catholique, au besoin contre la mystique chrétienne, en particulier contre la mystique catholique.
 
 En sociale comme en morale et ailleurs, les déplacements ne se font pas au hasard ; et ils ne se font pas à l'avantage des vanités ; les plus efficients déplacent les moins graves ; les plus efficients déplacent les moins efficients ; un État politique, livré par ignorance, inertie, malfaçon aux servitudes économiques, peut opprimer ; mais socialement il ne peut pas déplacer une *cité de Dieu* ; une cité sociale, pour sauver le monde humain des servitudes économiques, seule peut déplacer une cité religieuse.
 
 Une politique ne déplace pas une religion ; une poli-
-
-[p. XV]
 
 tique ne déplace pas une mystique ; une morale déplace une religion ; une sociale, une économique déplace une mystique.
 
@@ -101,29 +80,19 @@ Les misères des misères économiques sont du même ordre de grandeur que les m
 
 Or une révolution ne peut affronter une conservation, ne peut se mesurer à elle, que si elle est au moins du même ordre de grandeur.
 
-[p. XVI]
-
 Anticléricalisme, anticatholicisme parlementaire peut valoir contre ce qu'il y a de parlementaire dans l'Église contemporaine ; il ne peut rien, il ne vaut rien contre ce qu'il y a de populaire dans une religion ; seul un socialisme populaire peut et vaut au regard et en face d'une religion, au besoin contre une religion beaucoup plus populaire que ne le disent ou que ne le croient ses adversaires, ses ennemis, ses docteurs, ses maîtres, ses parlementaires.
 
 Anticléricalisme, anticatholicisme autoritaire, exerçant une autorité de commandement, une autorité de gouvernement, une autorité d'État, peut valoir contre une Église exerçant elle-même une autorité de commandement, une autorité de gouvernement, une autorité d'État ; l'État-Église peut valoir contre l'Église-État ; il n'a aucune autorité de compétence ; il ne peut exercer aucune autorité morale, aucune autorité conscientielle, aucune autorité dans l'administration des croyances, dans les prières, dans les élévations, dans les contemplations, dans les méditations des consciences ; un socialisme seul, exprimant un mouvement profond de vie intérieure, ayant une valeur intrinsèque, manifestant un mouvement profond originel, répondant à une inquiétude profonde intérieure, exerçant, accomplissant, satisfaisant un profond désir intérieur de solidarité, accomplissant une opération intérieure de solidarité, toute une révolution intérieure, ayant sa source au plus profond de la conscience et de la connaissance, au cœur même de la vie morale, seul un socialisme peut exercer une autorité morale, une autorité conscientielle, une autorité de vie intérieure, une autorité intrinsèque, une auto-
-
-[p. XVII]
 
 rité dans l'administration des croyances, dans le travail, dans les méditations des consciences.
 
 Anticléricalisme, anticatholicisme autoritaire peut s'opposer comme une puissance à la puissance de l'Église ; il peut opposer à son autorité de commandement, à son autorité de gouvernement, une autorité de commandement, une autorité de gouvernement, une autorité de domination, égale, au moins égale, plutôt supérieure, et de sens contraire ; mais pourquoi veut-on que l'humanité ne s'affranchisse d'une autorité de commandement au moins égale et de sens contraire ; pourquoi veut-on que l'humanité ne sevre d'une domination au moins égale et de sens contraire ; pourquoi surajouter tout au travail, tout un effort humain de libération, d'affranchissement, à tout un travail d'asservissement pour aboutir, en fin de compte, qu'à changer de servitude, pour n'aboutir, somme faite, qu'à remplacer une servitude par une servitude au moins égale et de sens contraire, pour n'aboutir qu'à substituer à une servitude insupportable une servitude au moins également insupportable et de sens contraire ; — et sans doute une servitude pire, car une servitude qui se présente comme un dogme, c'est-à-dire comme une autorité intellectuelle, et non pas comme une liberté, parce qu'elle est, comme en effet ici au moins, est moins dangereuse, plus honorable, moins avilissante, moins asservissante qu'une servitude qui est servitude et qui se présente comme une liberté ; et une servitude ancienne, ayant eu le temps qu'on l'ait généralement reconnue comme servitude, est moins dangereuse qu'une servitude récemment
 
-[p. XVIII]
-
 fondée, qui ne manque pas de se présenter comme une liberté, sous prétexte que son établissement a nécessité qu'on se libérât de la servitude précédente antagoniste ; — seul un socialisme libertaire justifie le mouvement, le travail, tout l'effort de libération qu'il demande à l'humanité, car il ne lui demande pas cet effort pour fonder une libération même une servitude nouvelle ; mais au contraire un l'affranchissement économique est l'affranchissement total qu'il se propose de fonder.
 
 Anticléricalisme, anticatholicisme bourgeois ne peut soulever le monde ouvrier, ne peut émouvoir le prolétariat que par un perpétuel abus de confiance, par un perpétuel détournement du dévouement ouvrier, du travail et de l'effort prolétarien ; car le bourgeois voltairien, contre son adversaire, contre son ennemi, contre son concurrent le bourgeois catholique, fait perpétuellement appel au dévouement ouvrier, au travail, à l'effort prolétarien ; généralement l'ouvrier, le prolétariat répond à cet appel ; et même il y répond avec enthousiasme ; en échange de quoi, toutes les fois que les intérêts de classe ou les revendications ouvrières opposent les patrons aux autres bourgeois voltairiens aux ouvriers, au prolétariat, une expérience constante, et qui n'a jamais souffert aucune exception, nous montre que le patron bourgeois voltairien, contre les bourgeois catholiques, contre les patrons catholiques, vaut tous les mêmes féroces que le patron, parce que le bourgeois catholique, s'il ne l'est pas davantage ; le patron général, et pour ne citer qu'un seul exemple, aujourd'hui en temps de paix, le préfet de police est maître de Paris comme il ne l'a jamais été sous les précédents gouvernements
 
-[p. XIX]
-
 réactionnaires ; M. Lépine a commis impunément sous le gouvernement, historiquement et constitutionnellement responsable, de M. Combes, des abus d'autorité de commandement, — envahissement de la Bourse du Travail, et quantité d'autres, — qui n'avaient pas été commis sous le gouvernement de M. Méline ; le réactionnaire de gauche n'est pas moins féroce que le réactionnaire de droite ; un gouvernement réactionnaire bourgeois de gauche emprisonne et le faille autant qu'un gouvernement réactionnaire bourgeois de droite ; les quelques atténuations apparentes s'expliquent toutes par des intérêts politiques parlementaires, en particulier par des considérations électorales ; regardez vers vos circonscriptions ; ces apparences tombent avec ces intérêts ; elles n'impliquent pas une modification profonde de l'attitude gouvernementale ; sommairement les bourgeois voltairiens, les patrons voltairiens, au nom de la liberté générale, au nom de la culture générale, au nom de la civilisation, au nom de la société moderne et du progrès, au nom du salut de l'humanité, invoquent l'énergie ouvrière, la révolution prolétarienne contre les bourgeois et les patrons chrétiens, en particulier contre les bourgeois et les patrons catholiques, leurs adversaires, au moins momentanés, leurs ennemis, au moins momentanés, leurs concurrents perpétuels, concurrents économiques et concurrents politiques ; le danger passé, quelquefois en plein danger, concurremment avec le danger, ils se retournent contre leurs auxiliaires, ils retombent sur le prolétaire avec une lourdeur, une férocité au moins égale à celle des bourgeois chrétiens, catholiques, des patrons chrétiens, catholiques.
-
-[p. XX]
 
 Ce qu'il y a d'admirable, c'est que cette manœuvre, séduction, détournement et retournement, réussit toujours ; le prolétariat marche toujours pour la bourgeoisie voltairienne et contre la bourgeoisie chrétienne, en particulier catholique ; et toutes les fois que le mouvement de la bourgeoisie voltairienne contre la bourgeoisie catholique rate, c'est contre et sur le prolétariat que retombe le ressentiment féroce de la bourgeoisie catholique ; mais toutes les fois que le mouvement de la bourgeoisie voltairienne contre la bourgeoisie catholique réussit, c'est contre et sur le prolétariat que tombe l'ingrate vacance féroce de la bourgeoisie voltairienne enfin libre.
 
@@ -131,21 +100,15 @@ Non qu'il faille attribuer au prolétaire un dévouement sublime, une vertu surn
 
 Il y a dans le prolétariat conscient des parties entières qui vont perpétuellement au secours de la bourgeoisie voltairienne contre la bourgeoisie catholique et généralement chrétienne consciemment, sachant parfaitement le peu de cas que la bourgeoisie voltairienne, attendant de la bourgeoisie voltairienne exactement le traitement que peut en attendre un prolétariat conscient ; ces fractions du prolétariat conscient, averties, désabusées, vont tout de même perpétuellement au secours de la bourgeoisie voltairienne contre la bourgeoisie chrétienne et particulièrement catholique ; c'est qu'elles se proposent perpétuellement de sauver, de conserver, même sous une forme restreinte, en attendant de pouvoir généraliser, universaliser,
 
-[p. XXI]
-
 certaines vérités, certaines libertés, en particulier de penser, de conscience, dont la bourgeoisie voltairienne, tout indigne, est, dit-on, provisoirement dépositaire ; selon ces fractions du prolétariat dit organisé, qu'il vaut mieux nommer prolétariat conscient, la bourgeoisie voltairienne est, par l'effet d'événements qui la dépassent, provisoirement dépositaire de vérités et de libertés qui la dépassent, et que nous devons provisoirement sauvegarder en elle, au risque de la sauvegarder elle-même, en défendant le tout ensemble, sinon dépôt et dépositaire, humanité future, éventuelle, et bourgeoisie présente, actuelle, ensemble contre la bourgeoisie réactionnaire de droite, catholique, généralement chrétienne, contre le patronat catholique, généralement chrétien ; le raisonnement de ces fractions prolétariennes est éminemment respectable ; il demanderait un examen sérieux ; mais dans l'examen sérieux que l'on en ferait il faudrait faire entrer en ligne de compte ceci que la bourgeoisie voltairienne, ayant depuis longtemps découvert elle-même le point cardinal, de son détournement et le secret de sa force, exerce un véritable chantage historique sur ces fractions du prolétariat, chanterie dont le gage est précisément le trésor de vérités et de libertés humaines, supérieures à la bourgeoisie voltairienne, dont des événements qui la dépassent l'ont faite provisoirement dépositaire.
 
 De telles raisons respectables et discutables ne peuvent décider que quelques fractions particulièrement éclairées du prolétariat ; c'est pour des causes beaucoup plus basses, et beaucoup plus mêlées, ce sont pas pour des raisons et aussi hautes, et aussi pures, que la grande masse du populaire, inconscient, appuie le mou-
-
-[p. XXII]
 
 vement de la bourgeoisie anticatholique ; c'est pour des causes qui ne tiennent aucunement à la culture humaine, à la civilisation, aux vérités humaines, aux libertés humaines ; c'est enfin pour des causes qui ne relèvent que de la plus basse démagogie.
 
 La grande masse du populaire appuie le mouvement de la bourgeoisie voltairienne contre la bourgeoisie catholique, ou plutôt se jette à corps perdu dans le débat et prend à son compte pour ainsi dire ce mouvement parce que la grande masse du populaire a une imbécillité mentale et une imbécillité sentimentale ; une imbécillité mentale qui la livre désarmée à tous les sophismes, à tous les entraînements de la démagogie ; et une imbécillité sentimentale qui lui fait aimer d'une affection particulière tous les vices, tous les entraînements.
 
 Ainsi quand la grande masse du populaire emboîte le pas aux bourgeois anticatholiques, généralement aux bourgeois antichrétiens, quand la grande masse du populaire endosse même devant l'histoire et devant l'humanité la lourde responsabilité des mouvements anticatholiques, généralement des mouvements antichrétiens, il y a chez son énormément d'imbécillité mentale ; premièrement ce populaire inconscient et inorganisé demande aux bourgeois, aux bourgeois voltairiens, de lui accorder quelques fragments de justice sociale non pas comme les objets d'une revendication légitime et comme des objets justement exigibles, mais comme les récompenses facultatives d'un appui militaire prêté pour une bataille politique ; voyez la grande imbécillité initiale ; il abuse ignorant et naïf remplace la révolution sociale, c'est-à-dire la revendication légitime de toute la justice
-
-[p. XXIII]
 
 sociale, par une servile demande gracieuse de faveurs partielles troquées pour une avance de force, d'autorité de commandement.
 
@@ -154,8 +117,6 @@ Deuxièmement il part d'une énorme imbécillité mentale pour croire, pour comp
 Premièrement ensemble et deuxièmement le populaire ainsi abusé remplace la révolution sociale entière et légitime, universelle et droite, non seulement par un marché diminué, avili, fragmentaire, gauche, mais, ce qui double cette imbécillité mentale, par un perpétuel marché de dupes. Premièrement le populaire achète ce qui n'est pas à vendre ; il transforme en marchandise la justice ; et deuxièmement la livraison de la marchandise n'a jamais lieu.
 
 Imbécillité sentimentale, beaucoup plus profonde encore et plus grave que l'imbécillité mentale ; si le populaire ainsi abusé abandonne lâchement la revendication légitime de toute une révolution sociale pour un vil marché fragmentaire, ce n'est pas qu'il ne voit pas clair seulement, ce n'est pas pour un perpétuel marché de dupe, ce n'est pas seulement qu'il ne sait pas escompter ; beaucoup plus profondément, et beaucoup plus
-
-[p. XXIV]
 
 gravement, c'est qu'il aime d'une affection singulière les entraînements de la démagogie.
 
@@ -167,13 +128,9 @@ Un des moyens qui réussissent le mieux parmi les innombrables moyens heureux de
 
 Telle fut la double opération tentée naguère par la démagogie antisémitique, réactionnaire, nationaliste,
 
-[p. XXV]
-
 antidreyfusiste ; et qui réussit pendant plusieurs années ; l'économie de cette opération était simple ; et les politiciens catholiques réactionnaires, qui la mirent en représentation, ne se fatiguèrent pas la mentalité ; il s'était formé une minorité dreyfusiste résolue ; la démagogie consistait premièrement à représenter cette minorité dreyfusiste comme une minorité sémitique, ce qu'elle n'était pas, comme une minorité maçonnique, ce qu'elle n'était absolument pas, et pour cause, deuxièmement à représenter cette minorité juive comme dominante, comme écrasant la nation ; de manière premièrement à lancer le populaire sur cette minorité représentée comme juive et deuxièmement à représenter le populaire à lui-même comme accomplissant une insurrection sainte, comme se sacrifiant, noblement, comme se révoltant contre une oligarchie souveraine au prix des plus grands dangers ; cette double opération réussit plusieurs années ; le populaire avait le bonheur de se ruer sur une minorité, le double bonheur de sauver la France en se ruant sur cette minorité.
 
 C'est une double opération du même ordre, une double opération analogue et de tous points comparable que la double opération tentée aujourd'hui par la démagogie anticléricale, anticatholique, réactionnaire, nationaliste ; et qui réussit depuis plusieurs années ; l'économie de cette seconde opération double n'est pas plus compliquée ; les politiciens radicaux réactionnaires, qui la mettent en représentation, ne se fatiguent pas davantage la mentalité, pour ainsi dire ; ils ont un parti officiellement constitué, circonscrit une minorité catholique, assez irrésolue ; la démagogie consiste
-
-[p. XXVI]
 
 premièrement à représenter cette minorité catholique comme une minorité cléricale, deuxièmement à représenter cette minorité cléricale comme dominante, comme écrasant la nation ; de manière premièrement à lancer le populaire sur cette minorité représentée comme cléricale et deuxièmement à représenter ce populaire à lui-même comme accomplissant une insurrection sainte, comme se sacrifiant, noblement, comme se révoltant contre une oligarchie souveraine au prix des plus graves dangers ; l'insurrection est le plus sacré des devoirs ; cette seconde opération double réussit depuis plusieurs années ; le populaire a le bonheur de se ruer sur une minorité, le double bonheur de sauver la République en se ruant sur cette minorité.
 
@@ -181,13 +138,9 @@ J'entends bien qu'on prétende que les catholiques dans l'État constituent une 
 
 Nous ne pouvons entamer un aussi gros débat d'évaluation dans ce simple *avertissement* ; mais personnellement je crois que dans presque toute l'histoire de l'humanité, je crois qu'en particulier dans l'histoire de la France contemporaine la majorité de force et de domination, la majorité souveraine et de domination n'est constituée par aucun parti ayant un sens, par aucune minorité ; elle n'est aujourd'hui et en France constituée ni par la minorité dreyfusiste, ni par la toute différente minorité sémitique, ni par la minorité maçon-
 
-[p. XXVII]
-
 nique parasitaire, ni par la minorité nationaliste, ni par la minorité antisémitique, ni par la minorité catholique, ni par la moindre minorité protestante ; mais à tour de rôle, selon les événements de l'histoire et selon les combinaisons politiques, parlementaires, des hommes, selon les fortunes et les évolutions et les dévolutions des entreprises, des institutions, chacune de ces minorités, pour se sauver elle-même de la persécution, ou pour asseoir sa domination propre, et se donner à son tour le rare plaisir d'exercer à son tour une persécution, autant qu'elle peut, par politique et par démagogie, exerce l'entraînement de la véritable majorité ; qui est donc cette véritable majorité ? cette véritable et perpétuelle majorité, c'est la lourde et lâche masse du populaire informe ; car ce n'est pas seulement dans les assemblées parlementaires qu'il y a des masses flottantes, des libéraux populistes, des plaines et des marais ; ces planitudes parlementaires ne font que représenter d'énormes planitudes populaires ; c'est ici un des rares cas où la représentation parlementaire en effet représente ; il y a dans le pays des plaines infinies, des marais immenses.
 
 Les politiciens réactionnaires catholiques exerçaient incontestablement, il y a plusieurs années, une énorme autorité de commandement, une extrêmement dangereuse domination ; mais il ne s'ensuit nullement, comme voudraient nous le faire croire leurs adversaires, leurs ennemis, leurs concurrents, leurs émules les politiciens bourgeois réactionnaires anticatholiques, il ne s'ensuit nullement que depuis plusieurs années leur situation soit demeurée la même ; leur force en effet, leur autorité de commandement, leur force de domination ne
-
-[p. XXVIII]
 
 résidait pas en eux-mêmes ; elle résidait dans les forces populaires, dans les masses que leur démagogie, au nom de la France, au nom de l'idée nationale, avait momentanément entraînées.
 
@@ -197,13 +150,9 @@ Nous avons depuis les premiers temps de l'affaire connu le goût même, la saveu
 
 Momentanément et en fait, l'autorité de commandement dominante n'est pas dans le catholicisme ; et nous qui depuis les tout premiers commencements de l'affaire avons appris à connaître notre personnel poli-
 
-[p. XXIX]
-
 tique parlementaire, et les masses populaires aussi, nous n'en voulons que cette preuve : si le catholicisme était aujourd'hui et depuis plusieurs années aussi dangereux qu'il était il y a plusieurs années, nous ne verrions point partir en guerre contre le catholicisme tant de politiciens valeureux, tant de comités intrépides, et tant de masses impétueuses, qui le flattaient, qui le ménageaient, qui le servaient du temps qu'il était redouté.
 
 Un simple recensement de comparaison nous en donne la certitude ; il y a plusieurs années, dreyfusistes libertaires, nous avions contre nous la formidable ruée devant le populaire, la trahison et l'oppression de tous les politiciens ; aujourd'hui, comme alors, socialistes libertaires, aujourd'hui et depuis plusieurs années, depuis quelques années seulement, pour combien d'années ? nous avons contre nous le mauvais vouloir et envers nous la suspicion de tout le populaire, la trahison et l'oppression de tous les politiciens ; comme l'avancement des hommes dans l'acheminement de la vie n'est point merveilleux et instantané, comme les générations du populaire et les générations de politiciens ne se renouvellent pas instantanément, ni en quelques années, à moins de supposer que dans un corps donné il peut y avoir deux majorités absolues qui n'aient pas d'éléments communs, ce à quoi l'arithmétique s'oppose immanquablement, à moins de supposer que dans un corps donné il peut y avoir deux unanimités qui ne soient pas formées des mêmes éléments, ce à quoi s'oppose infailliblement et la même arithmétique, et la logique formelle, par le principe d'identité, par le principe de non-contradiction, il faut
-
-[p. XXX]
 
 bien admettre que ce sont les mêmes éléments populaires et parlementaires, sommairement, il faut bien que ce soient les mêmes masses et les mêmes politiciens qui naguère exerçaient la démagogie antisémitique et aujourd'hui qui exercent la démagogie anticatholique.
 
@@ -213,15 +162,9 @@ Qu'il nous suffise aujourd'hui, et dans ce bref *avertissement*, de constater qu
 
 Ni la France, tout de même cette grande nation de liberté, ni la République, ce régime de liberté, somme toute, ne sont responsables de ces accaparements, de ces contrefaçons et de ces détournements politiques ;
 
-[p. XXXI]
-
 il y a dans la réalité de la vie politique et sociale une importante minorité catholique sincère ; comme il y a une importante minorité socialiste sincère ; comme il y a une importante minorité de libres-penseurs sincères ; cette importante minorité catholique sincère a été exploitée, dans sa sincérité même, par tout un personnel de politiciens prétendus catholiques ; afin d'établir leur domination, ces politiciens prétendus catholiques, par les moyens de la démagogie, entraînaient la lourde masse populaire et populacière contre la minorité sincère et contre la minorité des libres-penseurs sincères ; pendant tout le temps que cette opération d'entraînement réussissait, pendant tout ce temps les politiciens professionnels du socialisme et de la libre-pensée, les politiciens prétendus socialistes et libres-penseurs, parasites, en réalité, du socialisme et de la libre-pensée, voyant que les affaires ne marchaient pas, se taisaient, se terraient, se déliaient, — ou pactisaient avec l'ennemi, flattaient l'ennemi, traitaient avec l'ennemi, se faisaient ennemis ; — et justement pour justifier l'entraînement de démagogie exercé, par eux, de la masse populaire et de la masse parlementaire, au nom et en exploitation de la minorité catholique sincère, contre la minorité socialiste et de libres-penseurs sincère, les politiciens catholiques, insincères, professionnels, exploiteurs, attribuaient à cette minorité sincère ennemie justement les mauvaises qualités, les crimes et les vices des politiciens correspondants ; d'autre part la minorité socialiste et de libres-penseurs sincère, exploitée, dans sa sincérité même, par tout un personnel de politiciens prétendus socialistes et prétendus libres-penseurs, bourgeois en
 
-[p. XXXII]
-
 réalité, bourgeois, dogmatiques et parasites ; afin d'établir aujourd'hui leur domination, ces politiciens radicaux, radicaux-socialistes, socialistes parlementaires, prétendus socialistes, prétendus libres-penseurs, par les moyens de la démagogie, entraînent la lourde masse amorphe, la masse populaire et la masse parlementaire, contre la minorité catholique sincère ; — ici reconnaissons un manque dans la symétrie ; avouons que si les mêmes platitudes et les mêmes abaissements se précipitent aux pieds de la démagogie anticatholique réactionnaire que se précipitaient aux pieds de la démagogie réactionnaire catholique, du moins les politiciens, prétendus catholiques, les politiques parlementaires, les chefs nommément catholiques paraissent avoir un peu plus, un peu mieux couvert leurs troupes que dans des événements symétriques nos chefs ne nous avaient couverts ; les chefs catholiques résistent à la bourrasque anticatholique un peu mieux que les chefs radicaux et radicaux-socialistes et socialistes parlementaires et socialistes prétendus révolutionnaires n'avaient résisté à la bourrasque antidreyfusiste ; — aussitôt après la symétrie reprend, en ce que, pour justifier l'entraînement de démagogie exercé, par eux, de la masse populaire et de la masse parlementaire, au nom et en exploitation de la minorité socialiste et de libres-penseurs sincère, contre la minorité catholique sincère, les politiciens radicaux, radicaux-socialistes, socialistes parlementaires, socialistes prétendus révolutionnaires mêmes, insincères, professionnels, reprochent, attribuent à cette minorité catholique sincère justement les mauvaises qualités, les crimes et les vices, les forfaitures et les faux, les injures et les
-
-[p. XXXIII]
 
 iniquités des politiciens qui lui correspondent ; et dans la deuxième opération de démagogie, comme dans la première, le populaire et le parlementaire marche, parce que le populaire et le parlementaire se plaît à marcher magnifiquement, héroïquement, en troupe, en foule, ensemble du côté du plus fort.
 
@@ -229,13 +172,9 @@ En morale, en sociale, ces deux opérations sont équivalentes, comme étant sym
 
 Attribution également injuste de part et d'autre ; et mal fondée ; car il est aussi injuste d'attribuer les crimes et les abus politiques des politiciens catholiques aux hommes qui ont fondé le *comité catholique pour la défense du droit*, qu'il serait injuste de nous attribuer les crimes et les abus politiques des hommes qui se réclament de nous, du socialisme et de la libre-pensée.
 
-[p. XXXIV]
-
 Anticléricalisme, anticatholicisme traditionnel ne peut rien, ne vaut rien contre un christianisme, en particulier contre un catholicisme éminemment traditionnel ; c'en est fait que l'anticléricalisme, que l'anticatholicisme radical est honteusement traditionnel ; j'entends par là premièrement qu'il est traditionnel, et obstinément que lui-même en même temps il en a honte, qu'il s'en cache ; il s'est essaie de se faire passer pour ce qu'il n'est pas, pour nouveau, réformateur, novateur, et même révolutionnaire ; il a ainsi ni pleinement la force traditionnelle, ni pleinement la force révolutionnaire.
 
 Anticléricalisme, anticatholicisme radical et traditionnel en ce premier sens qu'il n'a pas apporté à l'humanité pensante un mode nouveau de penser, de travailler, une méthode nouvelle, une mentalité nouvelle, une révolution mentale, une mentalité nouvelle ; mais au contraire que ce n'est si ancien, que rien n'est si vieux, si connu, si aboli, si entendu et réglé que ce que l'on me pardonnera de nommer la mentalité radicale anticléricale anticatholique ; une homme quelque peu habitué, exercé, peu exercé au travail intellectuel, au maniement des idées, au travail mental, sans hésitation, sans tâtonnement, du premier regard, au premier aspect, au son, à la simple résonance, reconnaîtra du premier coup, du premier abord une imagination radicale, une invention, une fiction radicale, à beaucoup de marques, mais en particulier à ce qu'elle se dévoile, et de déjà vu, d'imité, souvent du nouveau, de péniblement recommencé ; le radicalisme est principalement un système de vieux qui veut se faire passer pour du neuf ; un socialisme seul peut rompre
-
-[p. XXXV]
 
 une tradition ; un socialisme seul, neuf, entièrement nouveau, du moins autant qu'une institution humaine, actuellement, est entièrement nouvelle, un socialisme, sincèrement et profondément, intérieurement nouveau, peut briser une antique tradition, dans la mesure et au sens où il est permis honnêtement, où il est convenable de rompre une aussi antique tradition que la tradition catholique et généralement chrétienne.
 
@@ -243,15 +182,11 @@ La situation du radicalisme et d'un socialisme envers la tradition catholique et
 
 En face et au regard de cette fierté, contre cette fierté, contre cette superbe, qui vaudra ; contre cette antiquité, contre cette réclamation, contre cette revendication, contre une antiquité aussi hautement revendiquée, aussi hautement traditionnelle, qui vaudra ; sera-ce une antiquité, une ancienneté bassement dissimulée, une ancienneté la fois aussi ancienne et beaucoup moins ancienne ; aussi ancienne en ce sens qu'elle enveloppe, qu'elle implique les mêmes antiques bassesses, les mêmes antiques vilenies, les mêmes antiques misères, les mêmes antiques infirmités, les
 
-[p. XXXVI]
-
 mêmes antiques platitudes, vanités, faiblesses, habiletés, habitudes et débilités humaines, les mêmes antiques servitudes, les mêmes antiques avilissements humains ; et beaucoup moins ancienne en ce sens qu'elle n'implique pas les mêmes grandeurs antiques, les mêmes antiques forces, les mêmes antiques puissances et la même continuité ; non, tout radicalisme, étant à la fois traditionnel et honteux de ce qu'il est traditionnel, ne peut avoir pleinement ni l'avantage de la situation traditionnelle, ni l'avantage de la situation révolutionnaire ; traditionnel en réalité, il ne peut jamais donner que les illusions et les contrefaçons d'un mouvement révolutionnaire ; honteux de cette réalité, il ne peut jamais donner que les apparents démentis, en réalité les contrefaçons d'un christianisme et particulièrement du catholicisme, le radicalisme manque de tout ce qui fait l'antique force traditionnelle ; en comparaison d'un socialisme, et en face du catholicisme, le radicalisme manque de tout ce qui fait une force neuve, révolutionnaire.
 
 Le christianisme et particulièrement le catholicisme a pleinement l'avantage d'une situation traditionnelle ; un socialisme a pleinement l'avantage d'une situation révolutionnaire ; le radicalisme, traditionnel, ne peut avoir pleinement l'avantage de la situation révolutionnaire, honteux, ne peut avoir pleinement l'avantage d'une situation traditionnelle.
 
 Ce qui peut valoir seulement contre une pleine situation traditionnelle, c'est une pleine situation révolutionnaire ; ce n'est pas une pleine situation traditionnelle attenuée ; ce n'est pas une pleine situation révolutionnaire ; une situation révolutionnaire atténuée ne vaut
-
-[p. XXXVII]
 
 pas ; contre une pleine situation traditionnelle une situation traditionnelle atténuée ne vaut pas ; contre une pleine situation traditionnelle rien ne vaut qu'une pleine situation révolutionnaire.
 
@@ -259,53 +194,38 @@ Ce qui fait la force d'une pleine situation traditionnelle, c'est que située ac
 
 Contre une situation traditionnelle pleinement traditionnelle, contre une pleine situation traditionnelle, rien, absolument rien ne vaut qu'une pleine situation révolutionnaire, c'est-à-dire non pas une situation de transbordement ou de chambardement autoritaire, arbitraire et livresque, mais, au fond, un appel à une tradition plus profonde ; une révolution est un appel d'une tradition moins parfaite à une tradition plus parfaite, un appel d'une tradition moins profonde à une tradition plus profonde, un recoulement de tradition, un dépassement en profondeur ; une recherche à des sources plus profondes ; au sens littéral du mot, une ressource ; ce n'est pas seulement parce qu'elles sont également puissantes, ce n'est pas seulement parce
 
-[p. XXXVIII]
 qu'elles sont également fortes, parce qu'elles sont des grandeurs de même ordre que seule une pleine situation révolutionnaire peut affronter une pleine situation traditionnelle ; parce qu'elles sont seulement parce qu'elles sont des grandeurs de même ordre ; c'est, beaucoup plus profondément, parce qu'elles sont des grandeurs de même espèce, de même nature ; c'est parce qu'elles constituent des opérations de même nature, la même opération à des profondeurs variables, et, autant que nous le pouvons, croissantes ; une révolution n'est vraiment et pleinement révolutionnaire et ne réussit comme révolution que parce qu'elle aussi, comme d'un coup de sonde, que si elle fait surgir et sourdre une humanité plus profonde que l'humanité de la tradition à qui elle s'oppose, à qui elle s'attaque ; elle ne vaut que si elle vainc une humanité plus profonde, proprement, plus traditionnelle, que l'humanité courante, que l'humanité actuelle, usuelle, que l'humanité connue ; elle ne vaut que si elle apporte et merveilleux renouvellement, et merveilleux rafraîchissement de l'humanité, par approfondissement, qui donne tant de jeune ivresse aux véritables crises révolutionnaires, dans toute leur peine, dans toute leur misère, dans tout leur effort ; au fond une révolution n'est une pleine révolution que si elle est une plus pleine tradition, une plus pleine conservation, une antérieure tradition, plus profonde, plus vraie, plus une pleine révolution que si elle est une révolution dans la circulation, dans la communication, si elle fait apparaître un homme, une humanité plus profonde, plus approfondie, où n'avaient pas atteint les
 
-[p. XXXIX]
-AVERTISSEMENT
 révolutions précédentes, ces révolutions de qui la conservation faisait justement la tradition présente. Une pleine révolution, il faut littéralement qu'elle soit plus pleine, s'étant emplie de plus d'humanité, il faut qu'elle soit descendue dans des régions humaines antérieures, il faut qu'elle ait, plus profondément, découvert des régions humaines inconnues ; il faut qu'elle soit plus pleinement traditionnelle que la pleine tradition même à qui elle s'oppose, à qui elle s'attaque ; il faut qu'elle soit plus traditionnelle que la tradition même ; il faut qu'elle passe et qu'elle vainque l'antiquité en antiquité ; non pas en nouveauté curieuse, comme on le croit trop généralement, en actualité fiévreuse et factice ; il faut que par la profondeur de sa ressource neuve plus profonde, elle prouve que les précédentes révolutions étaient insuffisamment révolutionnaires, que les traditions correspondantes étaient insuffisamment traditionnelles et pleines ; il faut que par une intuition mentale, morale et sentimentale plus profonde elle vainque la tradition même en traditionnel, en tradition, qu'elle passe en dessous ; loin d'être une simple augmentation, comme on le croit beaucoup trop généralement, une révolution est une excavation, un approfondissement, un dépassement de profondeur.
 
 De si loin revenons au radicalisme ; anticléricalisme, anticatholicisme radical est traditionnel en ce deuxième sens, particulier, que loin d'apporter à l'humanité pensante un mode nouveau de penser, de travailler, une méthode nouvelle, une matière nouvelle, une révolution mentale, une mentalité nouvelle, non seulement il n'apporte pas du vieux, du déjà connu, mais ce
 
-[p. XL]
 vieux, ce déjà connu est du vieux catholique, du déjà connu catholique ; tout homme quelque peu habitué, quelque peu exercé aux comparaisons, aux rapprochements, aux analogies, aux méthodes comparatoires, au maniement de ces méthodes, qui ont tant contribué à l'avancement de nos connaissances, et aussi tout homme qui aura de quelque manière subi l'oppression de la domination catholique, et tout homme surtout qui, ayant subi de quelque manière l'oppression de la domination catholique, pour avoir tenu la même conduite morale et sociale, ensuite aura, exactement de la même manière, subi l'oppression de la domination radicale, tout homme réaliste, éprouvé, sans hésitation, sans tâtonnement, du premier regard, au premier aspect, au son, à la simple résonance, reconnaîtra du premier coup, du premier abord, dans une imagination radicale, dans une invention, dans une fiction radicale, toujours une inspiration catholique, toujours un mécanisme radical, dans une matière radicale, dans une fiction radicale, toujours le perpétuel esprit catholique, l'éternelle imagination, invention, fiction catholique ; c'est un fait d'histoire aujourd'hui si universellement admis, que le radicalisme, autoritaire, dogmatique, politique, parlementaire, gouvernemental est un cas particulier du catholicisme, exactement un cas particulier de le mécanisme du catholicisme, que l'on me permettra de n'y pas insister davantage dans cet *avertissement* ; tout ce que j'en veux provisoirement dire est que c'est un cas si parfaitement réalisé que l'on pourrait, dans le besoin, en faire un cas modèle, un cas *specimen* ; c'est un cas si parfaitement réalisé qu'il dépasse les cas imaginaires mêmes ; si, ayant l'expérience de l'histoire, on aurait voulu imaginer un cas
 
-[p. XLI]
-AVERTISSEMENT
 particulier de retournement de catholicisme, on n'aurait jamais osé le supposer aussi topique, aussi parfait.
 Anticléricalisme, anticatholicisme radical, étant conservateur, ne vaut pas contre un christianisme, et particulièrement contre un catholicisme aussi puissamment conservateur ; un socialisme seul, pleinement révolutionnaire, peut affronter une aussi énorme puissance de conservation ; qui veut de la tradition, il va aux pleins traditionnalistes, aux chrétiens, aux catholiques ; et qui généralement veut de la conservation, il va aux pleins conservateurs, aux chrétiens, aux catholiques ; mais qui ne veut ni tradition, ni conservation, il va aux pleins révolutionnaires, aux socialistes, libertaires, anarchistes ; les situations bâtardes, les traditions atténuées, les conservations atténuées, comme les révolutions atténuées, n'obtiendront jamais que des fortunes accidentelles, des réussites politiques, truquées, des autorités de commandement précaires ; un radicalisme, politique, n'obtiendra jamais ni des dévouements entiers, ni des collaborations entières, ni des fortunes entières.
 Les dévouements entiers, les collaborations entières, les fortunes et les infortunes entières ne sont jamais données qu'aux idées entières, aux théories entières, aux sentiments entiers, aux systèmes entiers.
 Les idées entières, les théories entières, les sentiments, les systèmes entiers seuls vivent et meurent, vivent ou meurent, vivent puis meurent, se réalisent dans la vie ou s'éternisent dans la mort ; à eux seuls reviennent ces deux formes de la réalité totale, de la vie et de la mort ; les autres ne meurent dans l'irréel, dans l'imaginaire ; les autres ne vivent pas, comme ils ne meurent pas : ils ne font de la politique.
 
-[p. XLII]
 Une mort de réalité est plus éminente, plus importante, plus vivante, qu'une vie non réelle, imaginaire, politique.
 Revenons au radicalisme anticatholique. Il est conservateur, mais partiellement, misérablement conservateur ; il veut conserver ce qui est à lui et ne conserver pas ce qui n'est pas à lui ; misérables distinctions ; ni les conservations, ni les révolutions ne peuvent distinguer ainsi ; les conservations ne se peuvent ne peuvent conserver que si elles prétendent conserver tout un système social ou moral ou mental, tout un monde ; les révolutions ne prennent ou n'entament et ne réussissent que si elles prétendent renverser, éverser tout un système social et moral ou mental ; ni une tradition atténuée, mitigée, ni généralement une conservation, atténuée, timide, ne réussit à conserver, ni une conservation, atténuée, timide, ne réussit à éverser.
 Ni une tradition, ni conservation, ni en face une révolution ne consiste à faire des mixtures, des combinaisons, calculées, politiques, à fabriquer des arrangements ; une tradition, une conservation consiste à faire vivre, dans la réalité, à maintenir la vie, réelle, de toute une organisation, vivante, réalisée, de tout un système social, moral, mental, de tout un monde ; une révolution consiste à faire vivre, dans la réalité, à faire vivre, la réelle, de toute une organisation, qu'il faut qui soit vivante, réalisée, de tout un système social, moral, mental à faire intervenir, de tout un monde à naître ; une conservation consiste à continuer à faire vivre, exactement à continuer à faire continuer de vivre ; une révolution consiste à faire vivre, exactement à commencer à faire commencer de vivre ; le
 
-[p. XLIII]
-AVERTISSEMENT
 point d'appui de la tradition, de la conservation, est dans la réalité présente ; mais le point d'appui de la révolution ne peut être que dans une réalité à venir, dans une réalité au moins éventuelle ; dans une réalité à faire, à élaborer, à réaliser ; une révolution qui n'aurait qu'un point d'appui tout imaginaire ne serait elle-même qu'une révolution imaginaire ; elle ne serait pas une révolution ; elle ne serait qu'une imagination, une invention, une fiction de révolution ; à une tradition, à une conservation qui maintient, qui conserve de la réalité, il ne peut rien être opposé, qu'une révolution qui apporte de la réalité.
 Ainsi une révolution n'est pas le contraire d'une conservation sur le même plan ; elle ne s'oppose pas, elle ne s'attaque pas à une conservation comme une anti-conservation, comme une opération égale et de sens contraire ; une révolution n'est rien, si elle n'est pas l'introduction d'un nouveau plan, si elle ne s'engage pas tout en nouveau regard, toute nouvelle vue, toute une nouvelle vie, si elle n'introduit pas tout un nouveau plan, social, moral, mental ; une révolution n'est révolution que si elle est entière, globale, totale, absolue.
 La conservation, elle, n'a pas tant de précautions à prendre, ne saurait d'attention à donner ; parce qu'elle est ce qu'elle maintient, que ce qu'elle conserve, c'est du présent, donc du réalisé, elle est assurée que c'est en quelque sens du réel ; au contraire la révolution, travaillant dans le futur, dans l'éventuel, se proposant de faire naître, ne se peut assurer de rien ; n'ayant fait aucune expérience, du moins totale, seule vaudrait, n'ayant, somme toute, pas éprouvé la réalité qu'elle présente à l'acceptation de l'humanité, — car une expé-
 
-[p. XLIV]
 rience totale de la révolution reviendrait à être la révolution même, — une révolution ne peut rigoureusement garantir la réalité, — en pareille matière la réalisation exige la réalité même, — une révolution ne peut rigoureusement garantir la réalité de son idéal, et ainsi la possibilité de sa réalisation, en aucune éprouve, en aucune expérience ; puisque par définition même il n'y a jamais eu aucune réalisation de cet idéal ; de ce que nous avons dit il résulte en effet que s'il y avait eu jamais quelque véritable réalisation, la révolution serait faite ; donc une révolution ne peut garantir la réalité de son idéal, et ainsi la possibilité de sa réalisation, que sur le témoignage du génie, qui est proprement le seul substitut de la réalité, le seul équivalent, le seul remplaçant de la réalité, qui en matière sociale peut en devenir le substitut, l'équivalent, le remplaçant provisoire ; car le talent, et encore quand il cat bon et vrai, ne fait qu'un aménagement de la réalité, tandis que le génie, à lui seul, et lui seul, en est un substitut, en fait un remplacement, ou plutôt le talent, quand il est vrai, quand il est bon, fait un aménagement de la réalité réalisée ; le génie est fort dans une intuition ; l'opération du génie est une intuition, la sens, l'intuition de la réalité non réalisée.
 Ainsi la conservation ne se demande que des hommes ordinaires, ou des hommes de talent ; la révolution demande et des hommes ordinaires, et des hommes de talent, et, en outre, elle exige du génie, ce soit le génie d'un homme, ou de plusieurs hommes, ou le génie plus profond d'une race, ou d'un peuple, ou d'une classe, ou enfin ce génie particulièrement profond qui naît d'une expérience continuée de la misère.
 
-[p. XLV]
-AVERTISSEMENT
 La conservation ne requiert aucun génie, parce que la réalité réalisée, qu'elle conserve, lui confère de la réalité de quoi s'emplir ; la révolution au contraire exige impérieusement un génie, qui, ayant l'intuition d'une réalité non réalisée, lui confère cette réalité de quoi s'emplir.
 Une révolution est en face de la conservation correspondante non pas comme un adversaire, non pas comme un ennemi sur le même plan, non pas comme un antagoniste, mais comme un candidat au remplacement total.
 Ainsi une atténuation de la révolution est forcément à l'avantage de la conservation, puisque la conservation occupe ; une atténuation de la révolution, diminuant le remplacement ou l'éventualité du remplacement, renforce d'autant ce qui est, ce qui existe, ce qui est réalisé, puisque, en attendant, cela est toujours.
 Mais une atténuation de la conservation n'est pas forcément à l'avantage de la révolution, car la révolution n'occupe pas ; elle attend ; elle n'occupe qu'en idée, en génie ; elle n'occupe qu'une réalité éventuelle, une réalité non présentement, non actuellement vivante, une réalité non fonctionnant, non réalisée, non actuelle ; une atténuation de la conservation peut fort bien tourner à l'avantage d'une autre situation réactionnaire, d'une -situation plus réactionnaire même, ou simplement d'une autre conservation ; ou généralement, et malheureusement, une atténuation de la conservation peut tourner en corruption ; l'atténuation de la conservation romaine impériale n'a pas, dans la réalité, tourné à l'avantage de la révolution chrétienne ; elle n'a servi qu'à léguer à la révolution
 
-[p. XLVI]
 chrétienne les germes, les corruptions de vice et d'autorité de commandement de la Rome impériale ; l'atténuation de la conservation politique en France dans les dernières années du second Empire n'a pas, dans la réalité, tourné à l'avantage de la troisième République ; elle n'a servi qu'à léguer à la troisième République les germes, les corruptions de vice et d'autorité de gouvernement du second Empire ; logiquement, la diminution, l'atténuation de la conservation romaine impériale pouvait tourner à l'avantage de la révolution chrétienne, et la diminution de la conservation, de l'autorité politique en France pendant les dernières années du second Empire pouvait tourner à l'avantage de la troisième République ; mais, en fait, il y a eu été ainsi ; que la faute en soit aux premiers chrétiens et aux premiers républicains, ou, à des circonstances, à des événements indépendants de leur action, les faits sont là, et on pourrait multiplier les exemples ; et ils ne font que vérifier le raisonnement ; une atténuation de la révolution est forcément, automatiquement, à l'avantage de la conservation ; une atténuation de la conservation n'est pas forcément, automatiquement, à l'avantage de la révolution ; la conservation, la réaction joue à qui perd peut gagner ; la révolution joue à qui perd ne gagne rien ; la conservation ne risque pas tout ; la révolution risque toujours son tout.
 S'il en est ainsi, quiconque atténue, diminue la révolution fait en réalité les affaires de la conservation, quand il ne fait pas les affaires de la réaction ; quiconque atténue au contraire, diminue les affaires de la conservation ne fait pas forcément les affaires de la révolution ; c'est pour cela qu'il est rigoureuse-
 
-[p. XLVII]
-AVERTISSEMENT
 ment vrai de dire que l'on voit dans la réalité beaucoup d'anciens ou de prétendus révolutionnaires trahir la cause de la révolution ; tandis que, pour cette raison et pour beaucoup d'autres, on ne voit pas d'anciens ou de prétendus conservateurs trahir la cause de la conservation ; qui n'est pas contre la conservation est contre elle ; qui n'est pas contre la conservation est pour elle ; une révolution a contre elle tous les neutres et tous les indifférents ; la conservation a pour elle tous les neutres et tous les indifférents.
 Ainsi encore tout ce qui est perdu pour une révolution est gagné forcément, automatiquement pour la conservation, ou pour de la réaction ; mais tout ce qui est perdu pour la conservation n'est pas gagné forcément, automatiquement pour la révolution.
 Tout ce qui est gagné sur une révolution est gagné forcément, automatiquement pour la conservation, ou pour de la réaction ; mais tout ce qui est gagné sur la conservation n'est pas gagné forcément, automatiquement pour la révolution.
@@ -314,96 +234,50 @@ Ce qui est gagné sur la conservation n'est gagné pour la révolution que si c'
 Tout est gagné pour la conservation ; tout gain est gain pour elle.
 Un commencement de révolution ne fait pas une révo-
 
-[p. XLVIII]
 lution, même commencée, ne fait pas de la révolution, pas pour la valeur même de ce commencement ; un commencement de conservation fait une conservation, fait de la conservation, au moins pour la valeur de ce commencement.
 Un tiers de révolution ne fait pas de révolution, même pour un tiers ; un tiers de conservation fait de la conservation, au moins pour un tiers.
 Comme trois tiers de preuve ne font pas une preuve, ainsi trois tiers de révolution ne font pas une révolution, trois tiers de conservation font de la conservation pour ces trois tiers.
 Parce qu'une révolution, n'ayant à sa disposition aucune réalité, réalisée, ou n'ayant à soit soit propre, qui soit sa matière et qui soit en elle, doit apporter de la réalité, doit faire elle-même une organisation ; au lieu qu'une conservation, ayant à sa disposition pour soi, ou presque toute la réalité politique et sociale, réalisée, par conséquent organisée, qui lui appartient, qui c'est sa matière et qui est en elle, n'a plus besoin d'apporter elle-même, d'être elle-même une organisation ; ce c'est pour cela que d'une organisation qu'elle n'est une organisation que si elle est totale, globale, absolue ; elle ne s'obtient point par une addition, par une juxtaposition de ses parties, mais elle n'existe que par une organisation, par une composition de ses membres.
 C'est pour cela que les fractions de conservation, même inorganisées, sont valables pour la conservation ; tandis que les fractions de révolution, si elles sont distinctes, si elles restent séparées, ne peuvent s'organiser et devenir valables pour la révolution, ni du fait de la révolution, ni du fait de la réalité ; tant que
 
-[p. XLIX]
-AVERTISSEMENT
 les fractions de révolution restent inorganisées elles-mêmes, tant qu'elles n'ont pas une organisation intrinsèque, elles ne peuvent attendre, de la révolution, de la réalité, une organisation introduite.
 Quand on fait sa part à la révolution, quand on limite la révolution, on ne fait pas de révolution, on tue la révolution ; quand on fait sa part à la conservation, quand on limite la conservation, on tue la conservation, on fait vivre la conservation, elle trouve la part bonne et s'en fait un avantage.
 On ne peut pas faire de la révolution ; on est tenu de faire, on ne peut faire que la révolution ; tandis qu'on peut parfaitement faire de la conservation, sans faire absolument la conservation.
 Si l'on veut bien prêter quelque attention à cette profonde disparité intérieure de la conservation et de la révolution, sans nier qu'il y ait eu des trahisons, des défaillances, des déviations individuelles ou personnelles, politiques, parlementaires, partielles, on s'apercevra que cette imparité profonde intérieure est peut-être la principale cause pourquoi il est si facile de faire de la conservation, et si difficile de faire la révolution ; pourquoi, par suite, il y a tant de gens qui font de la conservation, et si peu de citoyens qui font la révolution, tant de véritables conservateurs, si peu de véritables révolutionnaires ; enfin pourquoi nous voyons tant d'anciens ou de prétendus révolutionnaires devenir de véritables conservateurs ; ils suivent la pente naturelle, ils prennent le plus grande pente ; pourquoi nous voyons si peu de véritables conservateurs devenir de véritables révolutionnaires ; ils sont ou ils seraient contraints de remonter.
 
-[p. L]
 Il est sage d'être conservateur, si l'on croit que la conservation vaut mieux que la révolution ; il est sage d'être absolument révolutionnaire, si l'on croit que la révolution vaut mieux que la conservation ; il n'est pas sage de fragmenter la révolution, si l'on croit que la conservation n'est pas bonne.
 Loin que ce soient les modérés, les socialistes parlementaires, les socialistes radicaux, les socialistes opportunistes, les radicaux-socialistes, les radicaux, les opportunistes, les modérés, les progressistes qui soient sages et les socialistes révolutionnaires qui soient fous, c'est au contraire tous les républicains non sages, socialistes révolutionnaires qui ne sont pas sages, parce qu'ils veulent fragmenter un tout indivisible, et ce sont les conservateurs et les socialistes révolutionnaires, de part et d'autre, chacun de leur bord, qui sont sages.
 Nous avons vu précédemment, et dans un certain détail, quelle était la situation du radicalisme anticlérical, anticatholique envers un catholicisme traditionnel, par ce qu'elle était envers la tradition même ; mais la tradition n'est qu'un cas particulier de la conservation ; la tradition est la conservation des usages, des habitudes, la conservation des moeurs ; la conservation est la tradition de tout ; la situation particulière du radicalisme anticlérical, anticatholique envers un catholicisme traditionnel et envers la tradition ne fait qu'annoncer la situation générale de ce même radicalisme envers un catholicisme conservateur, envers la conservation même, situation générale de non moins misérable, non moins stérile, non moins précaire, non moins inégale ; car à une situation pleinement conser-
 
-[p. LI]
-AVERTISSEMENT
 vatoire, une situation pleinement révolutionnaire se peut seule opposer ; le radicalisme entend conserver la propriété individuelle des moyens de production et d'échange dans la mesure où cette conservation profite à ses intérêts politiques, parlementaires ; il entend ne conserver pas cette propriété, ou la supprimer, dans la mesure où elle nuit à ses intérêts politiques, parlementaires, par exemple quand il s'agit des biens ecclésiastiques ; il entend conserver la petite propriété, la petite agriculture, la petite industrie et le petit commerce, la petite boutique, dans la mesure où cette conservation profite à ses intérêts politiques, parlementaires ; il entend ne les conserver pas, ou les supprimer, dans la mesure où ils nuisent à ses intérêts politiques, parlementaires ; il entend conserver la petite propriété, agriculture, industrie, commerce, boutique, pourvu qu'elle soit radicale ; mais il entend ne la conserver pas, ou la supprimer, pourvu qu'elle soit réactionnaire et catholique ; il entend conserver le capitalisme, le plus grand capitalisme, le patronat le plus injurieux, et même il décore les patrons des rubans les plus rouges d'honneur, pourvu que les capitalistes subventionnent les journaux radicaux, pourvu que les patrons subventionnent, entretiennent les députés radicaux, soit directement et personnellement, soit subventionnant les comités ; quand ce ne sont pas les patrons directement eux-mêmes et les grands capitalistes qui sont, comme c'est le cas le plus fréquent, députés radicaux ; il entend conserver le nationalisme quand le nationalisme profite à ses intérêts politiques, parlementaires, par exemple contre le catholicisme romain ; il entend ne les conserver pas quand il nuit à
 
-[p. LII]
 ses intérêts politiques, parlementaires, quand il est par exemple le nationalisme catholique, réactionnaire ; ennemi du nationalisme réactionnaire, il ne se propose que de passer les nationalistes réactionnaires en nationalisme même ; il flatte bassement les associations militaires, les sociétés de tir et de gymnastique ; il entend conserver le surnaturel, merveilleux, miraculeux, il entend conserver le miracle quand la conservation du miracle profite à ses intérêts politiques, parlementaires, quand il s'agit par exemple du miracle politique, patriotique, démocratique, du miracle que l'on nous demande aujourd'hui d'accorder pour la reconnaissance surnaturelle de l'État moderne ; il entend ne pas les conserver quand le miracle nuit à ses intérêts politiques, parlementaires, quand il est, par exemple, le miracle catholique, ecclésiastique.
-
-CHARLES PÉGUY
 
 *Je suis contraint de continuer cet* avertissement *à la quatrième page de la couverture.*
 
-[p. — half-title]
 *le monde sans Dieu*
 
-[p. — translation notice]
-TRADUCTION DE L'AMÉRICAIN
-AVEC L'AUTORISATION DE L'AUTEUR
-
-PAR
-LE CLERC DE PULLIGNY
-
-DE
-
-[p. — half-title section]
-*a new catechism*
-
-[p. — author]
-PAR M. M. MANGASARIAN
-
-[p. — epigraph]
 *Nous baptisons le vingtième siècle au nom de la Paix, de la Liberté et du Progrès. Nous le nommons — Le Siècle du Peuple. Nous demandons à ce siècle nouveau une Religion sans surnaturel ; une Politique sans guerre ; une Science et un Art sans grossièreté ; et de la Richesse sans misère ni injustice !*
 
-[p. — epigraphs]
 Notre pensée grandissante nous est une révélation grandissante.
 
-GEORGE ELIOT
-
 Croyez-le, mes bons amis, aimer la vérité pour l'amour de la vérité est la partie principale de la perfection humaine dans ce monde. De là découlent toutes les autres vertus.
-
-LOCKE
-
-[p. 7]
-GEORGE JACOB HOLYOAKE
-
-Introduction
 
 L'auteur de ce livre, M. M. Mangasarian, Arménien d'origine, a l'honneur d'être le conférencier de la Société de Religion indépendante de Chicago, et chaque semaine, sa parole charme, paraît-il, une assemblée de deux mille personnes qui, pour leur qualité, constituent la plus nombreuse chambrée de fidèles qui soit connue dans aucun pays. Nous en avons de plus nombreuses en Angleterre, mais ce sont des enfants du Dogme qui s'y entassent. Les auditeurs de M. Mangasarian sont des fils de la Raison, qui cherchent l'Esprit et la Morale. C'est une race bien plus rare. La *Open Court publishing company,* (1) de cette cité vivante et tumultueuse qu'est Chicago, a publié plusieurs éditions de ce livre, pour la commodité des lecteurs américains. La *Rationalist Press Association* (2) a eu raison, je crois, de décider qu'elle donnerait aux lecteurs de Grande-Bretagne une pareille facilité pour posséder ce catéchisme original et nouveau.
 La forme la plus difficile de composition littéraire,
 
-(1) Société américaine d'édition.
 (2) L'association d'édition rationaliste (de Londres). La préface de M. George Jacob Holyoake a été écrite pour l'édition de *A new catechism* publiée par cette société.
 
-[p. 8]
-George Jacob Holyoake
 qui ait la qualité d'intéresser le lecteur, est sans aucun doute le catéchisme.
 L'auteur doit être expert à plonger dans l'océan profond des polémiques pour y retrouver les faits essentiels cachés dans ces profondeurs. Un catéchisme est une méthode courte et commode pour acquérir un savoir précis. Il n'y a que deux personnes en scène — le Questionneur et le Répondant. Un bon questionneur est un type distinct. Il doit savoir quels renseignements demander. S'il est banal, il ne sert à rien ; s'il est vague, on ne peut lui répondre. Le Répondant doit être maître du sujet en discussion et précis dans l'expression de sa pensée. Le « Nouveau Catéchisme » a possédé ces qualités. C'est le plus hardi, le plus vif, le plus varié et le plus instructif de tous les ouvrages qui existent dans ce genre. Il fait irruption dans les principaux champs du savoir humain que les Religions ont encore comme de fausses idées et des terreurs surnaturelles ; il chérit ce qui est beau et montre ce qui a été déformé. Les notes sont nombreuses, et touchent à l'antiquité comme aux temps modernes ; les unes et les autres sont aussi frappantes que le texte. Ce livre est une encyclopédie de théologie et de raison logée dans une coquille de noix.
 L'Esprit de Recherche, dont la curiosité a pour objet salutaire la vérification de la vérité, est l'instrument de savoir le plus efficace dont dispose l'humanité. Une question bien posée est comme le pic du mineur, — qui libère l'or du quartz qui l'environne. Des systèmes entiers d'erreur tombent parfois à terre sous l'effort de questions auxquelles il n'est pas de réponse.
 Toute erreur renferme une contradiction intérieure ;
 
-[p. — INTRODUCTION continued]
-INTRODUCTION
 celle-ci peut être révélée par une interrogation libératrice là où une artillerie de contre-affirmations n'ouvrirait pas de brèche.
 On peut éluder des arguments, tandis qu'une question loyale et pertinente ne crée pas d'animosité et exige une réponse, ou bien le silence est un aveu d'erreur ou d'ignorance.
 L'auteur du catéchisme a montré beaucoup de jugement dans le choix des questions. Les réponses sont simples et sans prétention ; elles arrivent avec promptitude et décision, apportant souvent une documentation inédite qui a l'attrait de la surprise. Ces réponses ne se traînent pas comme un attelage surchargé, mais elles volent comme un message de télégraphie sans fil, rompant les entraves, franchissant les obstacles, par dessus l'océan de la pensée nouvelle. Comme il convient à la célérité de notre époque, ces réponses sont exprimées brièvement. La prodigalité des mots appauvrit celui qui les distribue et déprave le goût de ceux qui les acceptent.
 M. Mangasarian, comme Phocion, conquiert avec peu de soldats et convainc avec peu de paroles. Il n'est pas de meilleure définition, dit Landor, d'un capitaine ou d'un maître vraiment grands.
 
-*Eastern Lodge, Brighton.* — *20 octobre 1902*
-
-I.
-
-[p. — translator's note]
 Note du traducteur français. — *Tout dans ce volume, texte et notes, appartient à l'auteur américain. Si le traducteur avait écrit ce livre pour exprimer sa pensée propre, il l'aurait fait différent sur quelques points. Tel quel, il a jugé utile de le faire connaître au public français. Il n'y a rien ajouté.* — Jean le Clerc.
 
 [p. — Préface de l'auteur]
@@ -413,11 +287,6 @@ Les vieux catéchismes qui furent imposés à notre jeunesse — quand notre int
 Ils se rouillent à l'abandon. Les temps où ils furent conçus et composés sont morts — bien morts !
 Il faut un catéchisme nouveau pour exprimer ce que pensent les hommes, femmes et enfants qui vivent dans les temps nouveaux.
 Ce livre est un modeste effort dans cette direction.
-
-[p. — blank]
-
-[p. 13]
-CHAPITRE PREMIER
 
 Raison et Révélation
 
@@ -436,7 +305,6 @@ Raison et Révélation
 (1) La vérité est définie par Thomas d'Aquin « *adaequatio intellectus et rei* ». Kirchhoff définit le savoir une « description de faits ». — Cf. Carus. *Primer of Philosophy,* pages 37 et 46.
 (2) Le savoir nous révèle les choses telles qu'elles sont ; donc la vérité, qui est le plus haut savoir, est un reflet de la réalité. « La sagesse, » dit Schopenhauer, n'est pas la perfection purement théorique mais aussi pratique ; c'est la connaissance ultime et vraie de toutes choses en gros et en détail, qui a tellement pénétré l'être humain qu'elle apparaît comme le guide de toutes ses actions. » — Zimmern. *Vie de Schopenhauer.*
 
-[p. 14]
 *le monde sans Dieu*
 
 5. *Demande.* — Comment la vérité, c'est-à-dire le « savoir le plus parfait », peut-elle s'acquérir ?
@@ -457,11 +325,7 @@ Raison et Révélation
 10. *Demande.* — La « Révélation » ou « parole de Dieu » ne nous enseigne-t-elle pas bien des choses que nous ne pourrions pas savoir sans elle ?
 *Réponse.* — Comme on connaît plusieurs « révélations », il faut d'abord décider de laquelle nous nous occupons.
 
-11. *Demande.* — Nommez-en quelques-unes.
 *Réponse.* — Celles de Zoroastre ; de Brahma ; de Buddha ; des juifs ; des chrétiens ; des mahométans ; des mormons...
-
-[p. 15]
-RAISON ET RÉVÉLATION
 
 12. *Demande.* — Toutes ces « révélations » se réclament-elles d'une origine divine ?
 *Réponse.* — Elles s'en réclament.
@@ -481,11 +345,9 @@ RAISON ET RÉVÉLATION
 17. *Demande.* — Que veut dire « convertir » ? (3)
 *Réponse.* — Amener les autres personnes à penser et à croire précisément comme nous.
 
-(1) Oldenberg, *Buddha.*
 (2) Évangile de saint Jean. Il est possible que ni Jésus ni Buddha n'aient jamais exprimé ces sentiments étroits.
 (3) « Cette vraie foi catholique hors laquelle nul ne peut être sauvé. » — *Credo* du pape Pie IV. — « Je déteste toute... secte opposée à la sainte Église catholique, apostolique et romaine. » — Paroles en usage pour la réception des protestants dans l'Église catholique. *Catholic Belief,* page 254. — Le même esprit prévaut dans les principales Églises protestantes ; — voir le chapitre sur la Prière et le Salut.
 
-[p. 16]
 *le monde sans Dieu*
 
 18. *Demande.* — Pour quel motif ?
@@ -504,13 +366,9 @@ RAISON ET RÉVÉLATION
 *Réponse.* — Non ; car cette Révélation doit être reconnue par notre raison avant que nous l'acceptions.
 
 23. *Demande.* — Si vous aviez la croyance qu'un certain livre contient « la parole de Dieu », ne lui obéiriez-vous pas par cela même, que votre raison l'approuve ou non ?
-*Réponse.* — Non.
 
 24. *Demande.* — Et pourquoi ?
 *Réponse.* — Si j'obéissais en aveugle, mon obéissance n'aurait aucun mérite ; si c'était par compulsion, ce ne serait pas de l'obéissance volontaire. Mais si
-
-[p. 17]
-RAISON ET RÉVÉLATION
 
 j'obéis intelligemment et avec l'approbation de ma raison, alors c'est à ma raison que j'obéis et non au livre.
 
@@ -535,7 +393,6 @@ j'obéis intelligemment et avec l'approbation de ma raison, alors c'est à ma ra
 31. *Demande.* — Donnez encore un autre exemple.
 *Réponse.* — La chute originelle de l'homme.
 
-[p. 18]
 *le monde sans Dieu*
 
 32. *Demande.* — Que savons-nous aujourd'hui sur ces questions ?
@@ -553,14 +410,9 @@ j'obéis intelligemment et avec l'approbation de ma raison, alors c'est à ma ra
 36. *Demande.* — Que devons-nous faire dans ces circonstances ?
 *Réponse.* — Suivre la meilleure lumière que nous possédions.
 
-37. *Demande.* — Laquelle ?
 *Réponse.* — Notre raison.
 
 38. *Demande.* — Mais notre raison peut-elle nous induire en erreur ?
-*Réponse.* — Oui.
-
-[p. 19]
-RAISON ET RÉVÉLATION
 
 39. *Demande.* — Pourquoi la suivre alors ?
 *Réponse.* — Parce que nous n'avons rien de mieux, et qu'il est de notre devoir de suivre la meilleure lumière que nous possédons. (1)
@@ -576,7 +428,6 @@ RAISON ET RÉVÉLATION
 (1) « Perdu à la nuit tombante dans une forêt, je n'ai qu'une faible chandelle, dit-il, c'est mon guide. Arrive un étranger : : Souffllez votre chandelle », dit-il, « et vous serez à même de mieux voir le chemin ». Cet étranger est un théologien. » (Diderot). — « Toutes les religions ont demandé le sacrifice de la raison. La religion de l'avenir rendra ce sacrifice inutile. » Cf. la brochure de l'auteur *Religion of the future*, page 6.
 (2) Théodore de Bèze, le successeur de Jean Calvin comme chef de l'église réformée de Genève, fit publiquement l'éloge de Poltrot de Meré, l'assassin de François de Guise, prince catholique, et lui promit une croix lumineuse dans le ciel. Jean Calvin lui-même, au nom de « la parole de Dieu », condamna Michel Servet aux flammes. L'assassin d'Henri III de France n'est presque pas dénoncé par les divins des mains des catholiques. Son nom fut introduit dans les litanies de l'église, [?] son portrait fut exhibé sur les autels, et son livre forfait fut assimilé aux sacres mystères de la religion. Le maire de Jacques Clément, l'assassin, vint à Paris demander une récompense pour le crime de son fils, et les prêtres organisèrent une souscription en sa faveur, et la portèrent en procession comme la femme bénie qui avait donné le jour à l'assassin d'un roi qui favorisait les hérétiques... Cf. *Esprit de la ligne*, Estoile, volume III, page 94 ; aussi Jules Simon, *la liberté de conscience*, pages 86, 87. — On pourrait aisément fournir bien des exemples similaires, pour montrer que la Révélation, loin de protéger les hommes, leur a souvent rendu plus violentes. Tout les supposés enseignements de l'ancien Testament cités ici commis avec la formule : « Et le Seigneur parla à Moïse, disant, etc. »
 
-[p. 20]
 *le monde sans Dieu*
 
 des plus nobles esprits du monde n'ont jamais rien su d'aucune Révélation. (1)
@@ -601,9 +452,6 @@ des plus nobles esprits du monde n'ont jamais rien su d'aucune Révélation. (1)
 (1) Socrate, Phocion, Epaminondas, Épictète, Marc-Aurèle et bien d'autres sages du monde païen. De Chilon, un des sept sages de la Grèce, on raconte qu'il réunit ses amis auprès de son lit de mort et leur déclara que dans sa longue vie il ne pouvait se rappeler qu'une seule action qui attristât son heure dernière. C'était d'avoir, par un défaut momentané de vigilance, permis à l'amitié d'obscurcir sa notion de la justice.
 (2) Des chrétiens. — *Note du traducteur*.
 
-[p. 21]
-RAISON ET RÉVÉLATION
-
 47. *Demande.* — Est-il bon d'enseigner que toute moralité est impossible sans une Révélation ?
 *Réponse.* — Ce n'est pas bien ; d'abord parce que ce n'est pas vrai et, en second lieu, parce que les gens en perdant leur foi dans la Révélation perdraient aussi leur foi dans le Bien.
 
@@ -623,7 +471,6 @@ RAISON ET RÉVÉLATION
 
 (1) Pour nous respecter nous-même, nous devons respecter l'humanité dont nous sommes une partie.
 
-[p. 22]
 *le monde sans Dieu*
 
 52. *Demande.* — Quelle est la conséquence d'un tel enseignement ?
@@ -639,15 +486,11 @@ RAISON ET RÉVÉLATION
 
 (1) Pour une définition de la loi, voir au dernier chapitre.
 
-[p. 23]
-CHAPITRE II
-
 La Révélation chrétienne
 
 1. *Demande.* — Des révélations que vous avez citées, laquelle a exercé la plus grande influence dans le monde ?
 *Réponse.* — Sans aucun doute, la révélation chrétienne.
 
-2. *Demande.* — Comment cela ?
 *Réponse.* — Elle a contribué à constituer l'histoire des nations de premier ordre qui existent dans le monde.
 
 3. *Demande.* — Cette influence a-t-elle été bonne ou mauvaise ?
@@ -659,7 +502,6 @@ La Révélation chrétienne
 5. *Demande.* — Faites-moi connaître votre documentation la plus exacte au sujet de cette *Sainte Bible*.
 *Réponse.* — C'est une collection de soixante-six livres écrits par divers auteurs, à diverses époques, en divers langages et en divers pays du monde.
 
-[p. 24]
 *le monde sans Dieu*
 
 6. *Demande.* — Comment se fait-il alors que nous les ayons tous en un seul volume ?
@@ -672,7 +514,6 @@ La Révélation chrétienne
 *Réponse.* — De l'origine et des progrès du peuple juif, de ses lois et coutumes, de ses guerres et persécutions.
 
 9. *Demande.* — Ce récit diffère-t-il en rien de l'histoire d'aucun autre peuple primitif ?
-*Réponse.* — Matériellement, non.
 
 10. *Demande.* — Y trouvons-nous une seule vérité intellectuelle ou morale de première main ?
 *Réponse.* — Non. La Vérité ou le Savoir se conquièrent. Ils ne sont fournis par aucune Révélation.
@@ -683,14 +524,10 @@ La Révélation chrétienne
 12. *Demande.* — Combien de livres sont compris dans le nouveau Testament ?
 *Réponse.* — Vingt-sept — quatre Évangiles, un recueil d'Actes des apôtres, vingt et une Épîtres, et une rêverie ou vision appelée l'Apocalypse de saint Jean.
 
-[p. 25]
-LA RÉVÉLATION CHRÉTIENNE
-
 13. *Demande.* — Le Nouveau Testament a-t-il toujours contenu le même nombre de livres ?
 *Réponse.* — Non. C'est seulement cent cinquante ans après la mort de Jésus qu'une collection d'écrits a été reconnue comme la nouvelle Alliance. — Le mot « testament » est probablement une traduction erronée de ce mot.
 
 14. *Demande.* — La « révélation » n'a donc pas été enregistrée à l'époque où elle a été donnée aux hommes ?
-*Réponse.* — Non.
 
 15. *Demande.* — Ni par les hommes qui l'ont reçue ?
 *Réponse.* — Non. À l'exception des quatre épîtres de Paul et d'une de Jacques nous ne possédons absolument aucune connaissance certaine quant à l'attribution des autres livres du nouveau Testament.
@@ -701,7 +538,6 @@ LA RÉVÉLATION CHRÉTIENNE
 17. *Demande.* — Pourquoi les Apôtres n'ont-ils pas écrit eux-mêmes ?
 *Réponse.* — Ils n'en voyaient pas l'utilité, car ils
 
-[p. 26]
 *le monde sans Dieu*
 
 étaient persuadés que le monde allait finir de leur temps.
@@ -728,9 +564,6 @@ LA RÉVÉLATION CHRÉTIENNE
 (1) L'Évangile de l'Enfance, l'Évangile de Nicodème, ceux de Hermas, de Jacques le Mineur, de Thomas l'Israélite ; l'Évangile de la Nativité de Marie et de l'Enfance de Jésus, et les Évangiles attribués à Jésus-Christ, à la Vierge et aux Apôtres.
 (2) De deux mots grecs signifiant « dissimulé, caché ».
 
-[p. 27]
-LA RÉVÉLATION CHRÉTIENNE
-
 *Réponse.* — Non. Le « Berger d'Hermas » et d'autres, probablement, y furent compris à une certaine époque.
 
 24. *Demande.* — En quelle langue furent écrits les livres de la Bible ?
@@ -746,7 +579,6 @@ LA RÉVÉLATION CHRÉTIENNE
 *Réponse.* — Les copies supposées des originaux disparus.
 
 28. *Demande.* — Savons-nous si ces copies sont dignes de confiance ?
-*Réponse.* — Non.
 
 29. *Demande.* — Quand ces copies ont-elles été produites ?
 *Réponse.* — Peut-être quelques centaines d'années après que les originaux eurent été perdus.
@@ -755,7 +587,6 @@ LA RÉVÉLATION CHRÉTIENNE
 
 (1) Denis, de Corinthe, au deuxième siècle, — an 170 de l'ère chrétienne, — se plaignait que « les écritures du Seigneur étaient falsifiées ».
 
-[p. 28]
 *le monde sans Dieu*
 
 30. *Demande.* — Combien existe-t-il de ces « copies ? »
@@ -769,9 +600,6 @@ LA RÉVÉLATION CHRÉTIENNE
 
 33. *Demande.* — Si les manuscrits originaux sont perdus, comment expliquez-vous les mots « traduction de l'original grec » qui figurent à la page de couverture du Nouveau Testament ?
 *Réponse.* — Les reviseurs ont fini par supprimer ce mot, ne pensant pas qu'il était honnête de le conserver plus longtemps à cette place.
-
-[p. 29]
-CHAPITRE III
 
 Le canon de la Bible
 
@@ -789,7 +617,6 @@ Le canon de la Bible
 (1) Après l'Ancien Testament, la tradition était la principale source de savoir dans l'Église primitive.
 (2) Hermas, Barnabias, Papias, Polycarpe, Ignace, Justin et Clément ne font presque aucune citation expresse du Nouveau Testa-
 
-[p. 30]
 *le monde sans Dieu*
 
 tribuaient pas au Nouveau Testament une autorité égale à celle de l'Ancien.
@@ -807,11 +634,7 @@ tribuaient pas au Nouveau Testament une autorité égale à celle de l'Ancien.
 
 ment et appliquent l'appellation de « les Écritures » à l'ancien Testament seulement. — Cf. Davidson, *Introduction*, etc. — Hégésippe, qui écrit en l'an 180 après Jésus-Christ, ne fait appel qu'à « l'Ancien Testament et au Seigneur » comme à la source de toute autorité.
 (1) « La formation d'une Église Catholique et celle d'un canon furent simultanées. » — Davidson.
-(2) Fisher, *Christian Doctrine*, page 72.
 (3) Origène parle de trois catégories d'Écritures : les authentiques, les inauthentiques et la classe intermédiaire. Dans celle-ci il rangeait l'épître de Jacques, celle de Jude, la deuxième de Pierre et la troisième de Jean, qui sont dans la Bible actuelle.
-
-[p. 31]
-LE CANON DE LA BIBLE
 
 7. *Demande.* — Qu'était le canon de Muratori ?
 *Réponse.* — Il a paru vers l'an 170 après Jésus-Christ et ne contenait pas l'épître de Paul aux Hébreux, ni celles de Pierre, ni la première de Jean, ni celle de Jacques.
@@ -835,7 +658,6 @@ LE CANON DE LA BIBLE
 
 (1) Luther rejetait le livre de Job comme n'étant rien autre qu'un « pur *argumentum fabulae* ».
 
-[p. 32]
 *le monde sans Dieu*
 
 d'Écritures saintes nous comprenons tous les livres canoniques du Vieux et du Nouveau Testament dont l'autorité n'a jamais été mise en doute dans l'Église. » Mais ceci est à la fois obscur et trompeur, car il n'y a presque pas un seul livre dans le Nouveau Testament qui n'ait été mis en question dans l'Église. (1)
@@ -843,7 +665,6 @@ d'Écritures saintes nous comprenons tous les livres canoniques du Vieux et du N
 13. *Demande.* — La Bible Catholique est-elle d'accord à tous les points de vue avec la Bible Protestante ?
 *Réponse.* — Non. La Bible Catholique contient soixante-douze livres « inspirés ».
 
-14. *Demande.* — Comment cela ?
 *Réponse.* — Les Catholiques acceptent comme inspirés plusieurs livres que les Protestants rejettent comme apocryphes.
 
 15. *Demande.* — Comment l'Église Catholique traite-t-elle ceux qui nient l'inspiration de ces livres apocryphes ?
@@ -856,9 +677,6 @@ d'Écritures saintes nous comprenons tous les livres canoniques du Vieux et du N
 
 (1) La position des autres Églises Chrétiennes est à peu près la même.
 (2) Un des conciles infaillibles ; — voir l'*Introduction à la Bible catholique*, version de Douay.
-
-[p. 33]
-LE CANON DE LA BIBLE
 
 17. *Demande.* — Quel est le nom de cette traduction ?
 *Réponse.* — La Vulgate Latine. (1)
@@ -878,14 +696,12 @@ LE CANON DE LA BIBLE
 22. *Demande.* — Les variations sont-elles importantes ?
 *Réponse.* — Quelques-unes sont très importantes.
 
-23. *Demande.* — Lesquelles ?
 *Réponse.* — Le verset septième du chapitre premier de Jean : « Car ils sont trois qui portent témoignage dans le ciel, — le Père, le Fils et le Saint-Esprit et ces trois sont un seul. » Ce verset, qui a été cité à l'appui de la doctrine de la Trinité, n'apparaît pas dans la nouvelle version.
 
 ————
 
 (1) Une version anglaise en a été faite en 1609.
 
-[p. 34]
 *le monde sans Dieu*
 
 24. *Demande.* — Quoi encore ?
@@ -905,14 +721,10 @@ LE CANON DE LA BIBLE
 (1) Onze versets à omettre en tout.
 (2) La commission américaine n'ayant pu faire accepter ses observations par la commission anglaise, elle les publia en appendice à l'édition revisée... Parlant de l'auteur d'un des livres saints, Justin le martyr fait remarquer négligemment « un homme d'entre nous, nommé Jean, l'écrivit ». Et l'introduction de Luc à son évangile contient ces mots significatifs : « Pour autant que *plusieurs* ont entrepris d'avancer, etc..., il m'a semblé bon d'écrire aussi... » — Luc, chapitre I, versets 1-3. — Est-ce là le langage infaillible de l'inspiration ?
 
-[p. 35]
-LE CANON DE LA BIBLE
-
 28. *Demande.* — Ces traductions sont-elles les seules qui ont été faites ?
 *Réponse.* — Non. Bien des savants ont fait des traductions indépendantes, croyant que les versions autorisées étaient inexactes.
 
 29. *Demande.* — Les Catholiques et les Protestants regardent-ils la Bible du même point de vue ?
-*Réponse.* — Non.
 
 30. *Demande.* — Expliquez la différence.
 *Réponse.* — Les catholiques croient que c'est l'Église qui donne à la « parole de Dieu » son autorité. (1)
@@ -921,14 +733,12 @@ LE CANON DE LA BIBLE
 *Réponse.* — Ils citent saint Augustin qui confessa « qu'il y avait plus de choses qu'il ne comprenait pas, dans la Bible, que de choses qu'il comprenait ». Si un aussi grand docteur ne peut pas comprendre la « parole de Dieu » sans un interprète infaillible, disent les Catholiques, bien moins encore le peuvent des mortels ordinaires. (2)
 
 32. *Demande.* — Les catholiques permettent-ils l'interprétation individuelle de la Bible ?
-*Réponse.* — Non.
 
 ————
 
 (1) « Nous catholiques... non seulement ne voudrions pas, mais simplement nous ne pourrions pas croire que la Bible est la parole inspirée de Dieu si nous n'avions pas pour elle l'autorité de l'Église. » — Révérend John Scully.
 (2) *Catholic belief*, chapitre VIII, par le Révérend Louis Saint-Lambert.
 
-[p. 36]
 *le monde sans Dieu*
 
 33. *Demande.* — Permettent-ils aux fidèles la lecture de la Bible ?
@@ -944,24 +754,17 @@ LE CANON DE LA BIBLE
 *Réponse.* — Évidemment non, car il y a bien des interprétations contraires.
 
 37. *Demande.* — Tous les protestants sont-ils d'accord sur la question du baptême ? (2)
-*Réponse.* — Non.
 
 38. *Demande.* — Ou sur la question de la Prédestination ?
-*Réponse.* — Non.
 
 ————
 
 (1) « Pour protéger des fidèles contre l'erreur, il a été jugé nécessaire de défendre la lecture des Écritures en langues vulgaires sans la permission des guides spirituels. » — *Bible Catholique*, Préface.
 (2) « De quelle manière le lavage de bébés nouveau-nés » assure leur salut est encore un sujet de discussion dans les Eglises ; — voir les ouvrages de James Martineau.
 
-[p. 37]
-LE CANON DE LA BIBLE
-
 39. *Demande.* — Ou sur la Damnation éternelle ?
-*Réponse.* — Non.
 
 40. *Demande.* — Ou sur la doctrine de l'Expiation ?
-*Réponse.* — Non.
 
 41. *Demande.* — Ou sur la divinité de Jésus ?
 *Réponse.* — Non ; et cependant ils prétendent avoir une Révélation infaillible sur toutes ces matières disputées.
@@ -978,7 +781,6 @@ LE CANON DE LA BIBLE
 45. *Demande.* — Et encore ?
 *Réponse.* — Il rend inutiles toute nouvelle discussion et toute investigation ultérieure ; il donne à une secte ou à une Église le pouvoir de supprimer toute vérité nouvelle, et de persécuter tous ceux qui aident à élargir l'horizon de l'esprit.
 
-[p. 38]
 *le monde sans Dieu*
 
 46. *Demande.* — Quel est le témoignage de l'histoire à cet égard ?
@@ -994,9 +796,6 @@ LE CANON DE LA BIBLE
 
 (1) Martin Luther dénonça les astronomes en ces termes : « Des gens ont prêté l'oreille à un astrologue ambitieux qui s'efforce de démontrer que c'est la Terre qui tourne et non pas les cieux ni le firmament... Cet insensé veut renverser toute la science de l'astronomie. Mais l'histoire sainte nous enseigne que Josué a commandé au Soleil de s'arrêter et non pas à la Terre. » Quand l'imprimerie fut inventée, elle fut haïe par l'Église comme une magie noire, et un gouverneur de la Virginie disait : « Je remercie Dieu de ce qu'en ce temps-là il n'existait pas une presse à imprimer ni une école dans toute la Virginie pour y engendrer l'hérésie. »
 
-[p. 39]
-LE CANON DE LA BIBLE
-
 49. *Demande.* — Est-elle encore vénérée quelque part comme une autorité infaillible ?
 *Réponse.* — Uniquement parmi les personnes les moins instruites. (1)
 
@@ -1007,11 +806,6 @@ LE CANON DE LA BIBLE
 
 (1) « Il existe des personnes vulgaires et il faut qu'elles aient leur religion. » (James Martineau) — Mais ne laissons pas oublier qu'il existe aussi des hommes et des femmes cultivés, savants et raffinés, qui ont un droit égal à avoir une religion pour eux. — Voir les *James Martineau's Speeches*, etc., page 433.
 (2) Quand l'Église était toute puissante, personne n'avait la permission de rejeter une partie quelconque de la Bible. Pour sanctionner les persécutions contre les savants et les philosophes, on citait les versets 18 et 19 du dernier chapitre de l'Apocalypse, qui menacent d'horribles fléaux tous ceux qui ajouteront ou retrancheront quelque chose à la Parole écrite. L'auteur d'un livre hérétique devait signer la rétractation suivante pour échapper au bûcher : « L'auteur a fait une soumission louable et réprouvé son livre. » *(Auctor laudabiliter se subjecit et opus reprobavit.)*
-
-[p. 40]
-CHAPITRE IV
-
-Dieu
 
 1. *Demande.* — Dites-moi quelque chose des idées courantes au sujet de Dieu.
 *Réponse.* — La plupart des gens considèrent Dieu comme la Personne qui a créé le ciel et la terre et tout ce qu'ils contiennent.
@@ -1031,9 +825,6 @@ Dieu
 6. *Demande.* — Expliquez votre pensée.
 *Réponse.* — Le dieu des sauvages était un sauvage et un bandit ; le dieu de Job, chef arabe, était un des-
 
-[p. 41]
-DIEU
-
 pote oriental ; le dieu des Juifs était un homme de guerre et de vengeance ; et le dieu de bien des chrétiens est un être qui punit les erreurs de cette courte vie par des tortures sans fin. (1)
 
 7. *Demande.* — Quelles sont les autres idées relatives à Dieu ?
@@ -1052,7 +843,6 @@ pote oriental ; le dieu des Juifs était un homme de guerre et de vengeance ; et
 
 (1) Bien que la croyance en des châtiments éternels soit encore professée par les chrétiens pratiquants, il est difficile de trouver une personne de nos jours qui agisse comme si elle croyait réellement à une doctrine aussi horrible. Abraham Lincoln disait que si cette doctrine était vraie, personne ne devrait prendre le temps de faire rien autre dans cette vie que de prier à genoux depuis le berceau jusqu'à la tombe.
 
-[p. 42]
 *le monde sans Dieu*
 
 11. *Demande.* — Mais quand les gens disent « Dieu », n'attachent-ils pas tous le même sens à ce mot ?
@@ -1078,9 +868,6 @@ pote oriental ; le dieu des Juifs était un homme de guerre et de vengeance ; et
 (1) Cf. au chapitre sur la Prière la discussion relative à la personnalité de Dieu.
 (2) Doit-on exclure les Chrétiens de cette liste à cause de leur croyance en la Trinité ?
 
-[p. 43]
-DIEU
-
 17. *Demande.* — Ces peuples ont-ils toujours cru en un seul Dieu ?
 *Réponse.* — Non. Le polythéisme a été la religion primitive de toutes les nations. (1)
 
@@ -1100,13 +887,11 @@ DIEU
 
 (1) La prétention que l'Unité de Dieu a été divinement révélée aux Juifs n'est pas justifiée par les faits. Les récits de l'Ancien Testament montrent clairement que les Juifs croyaient en d'autres dieux et que leur dieu était jaloux de ceux-là.
 
-[p. 44]
 *le monde sans Dieu*
 
 22. *Demande.* — Quelle est l'origine de la croyance en des dieux ?
 *Réponse.* — Cette question a donné lieu à plusieurs théories.
 
-23. *Demande.* — Mentionnez-en quelques-unes.
 *Réponse.* — On rencontre d'abord celle-ci que l'ignorance a conduit les peuples primitifs, qui ressemblaient beaucoup à des enfants, à *craindre* ce qu'ils ne comprenaient pas, et à attribuer ce qu'ils *craignaient* à l'action d'êtres invisibles, constitués d'après le même modèle qu'eux-mêmes mais à une échelle beaucoup plus grande. Une seconde théorie est que le sentiment de la faiblesse des hommes et de leur sujétion est responsable de la croyance dans des êtres plus puissants qu'eux-mêmes. En troisième lieu, d'après une autre théorie, l'homme, qui est un être sociable par sa nature, sent la nécessité d'entrer en relation avec les forces invisibles qui l'entourent, et c'est dans ce but qu'il les personnifie. Enfin la quatrième théorie est que la mort est la cause principale de la croyance dans des dieux.
 
 24. *Demande.* — De quelle manière ?
@@ -1115,10 +900,6 @@ DIEU
 25. *Demande.* — Le nombre des dieux est-il en croissance ?
 *Réponse.* — Il est en décroissance.
 
-[p. 45]
-DIEU
-
-26. *Demande.* — Pourquoi ?
 *Réponse.* — À mesure que les hommes avancent en connaissance et en puissance ils se sentent de plus en plus capables de prendre soin d'eux-mêmes.
 
 27. *Demande.* — Les peuples instruits ont-ils moins de dieux que les peuples ignorants ?
@@ -1143,7 +924,6 @@ DIEU
 
 (1) Consulter la *Critique* de Kant, *l'Idée de Dieu dans la critique contemporaine*, de Caro, et *l'Irréligion de l'avenir*, de Guyau.
 
-[p. 46]
 *le monde sans Dieu*
 
 33. *Demande.* — Qu'est-ce que cela ?
@@ -1171,16 +951,11 @@ DIEU
 
 (1) Voir le chapitre sur Kant dans l'*Histoire de la philosophie*, de George Henry Lewes.
 
-[p. 47]
-DIEU
-
-40. *Demande.* — Expliquez ceci.
 *Réponse.* — Il est dit que, bien que nous soyons des êtres imparfaits, néanmoins nous portons dans nos esprits, comme dans un miroir, l'idée ou l'image d'un être parfait.
 
 41. *Demande.* — Quelle est la conclusion ?
 *Réponse.* — Que cette réflexion d'un être parfait dans le miroir de l'esprit prouve l'existence d'un tel être, qui est — Dieu. (1)
 
-42. *Demande.* — Expliquez davantage.
 *Réponse.* — Si nous avons dans nos esprits l'image d'un être parfait, cet être doit aussi posséder l'existence, car, si elle lui manquait, il ne serait pas parfait.
 
 43. *Demande.* — Que s'ensuit-il ?
@@ -1189,14 +964,12 @@ DIEU
 44. *Demande.* — Quelle est la valeur de cet argument ?
 *Réponse.* — Il n'est pas considéré comme aussi fort que le précédent.
 
-45. *Demande.* — Pourquoi ?
 *Réponse.* — La perfection est une *qualité*, l'existence est une *condition* et l'argument confond l'une avec l'autre. Nous pouvons avoir dans nos esprits par exemple l'image ou le rêve d'une cité parfaite cachée
 
 ————
 
 (1) Ceci est le célèbre argument de Descartes, qui, avec de légères modifications, a été présenté aussi par Malebranche, Leibnitz, Reid, et bien d'autres.
 
-[p. 48]
 *le monde sans Dieu*
 
 dans le sein de l'Océan ou flottant dans les nuages, sans qu'il existe aucune cité de ce genre pour correspondre au tableau qui est dans notre esprit.
@@ -1205,7 +978,6 @@ dans le sein de l'Océan ou flottant dans les nuages, sans qu'il existe aucune c
 *Réponse.* — Pendant bien des siècles on a nourri l'idée que la Terre était plate, cependant cette idée logée dans les esprits de ce temps-là n'était pas la réflexion de la Terre, car une Terre plate n'a jamais existé.
 
 47. *Demande.* — Les êtres parfaitement bons ou parfaitement mauvais n'existent-ils que dans nos esprits ?
-*Réponse.* — En effet.
 
 48. *Demande.* — Quel est l'argument suivant ?
 *Réponse.* — On l'appelle l'argument du plan de l'univers. (1)
@@ -1219,9 +991,6 @@ dans le sein de l'Océan ou flottant dans les nuages, sans qu'il existe aucune c
 ————
 
 (1) Paley et l'évêque Butler ont été les grands avocats de cet argument.
-
-[p. 49]
-DIEU
 
 51. *Demande.* — Ne reconnaît-on pas un plan dans la nature avec autant d'évidence que dans une montre ?
 *Réponse.* — Si cela était, il n'y aurait pas de mystères et nous saurions toutes choses.
@@ -1241,7 +1010,6 @@ DIEU
 56. *Demande.* — Quelle est la signification propre à donner au mot « Dieu » ?
 *Réponse.* — Il doit représenter les plus hauts idéals d'une nation. Tout bien en lequel nous croyons de tout
 
-[p. 50]
 *le monde sans Dieu*
 
 notre cœur et dont nous cherchons la possession avec toute notre volonté, celui-là est notre Dieu.
@@ -1258,9 +1026,6 @@ notre cœur et dont nous cherchons la possession avec toute notre volonté, celu
 ————
 
 (1) On peut aussi à bon droit parler de Dieu comme représentant la constitution de l'Univers ; cependant même alors elle ou il ne serait pour nous ni plus ni moins qu'une image dans notre esprit. C'est seulement avec un Dieu subjectif que nous pouvons avoir des relations quelconques.
-
-[p. 51]
-CHAPITRE V
 
 La Terre
 
@@ -1283,7 +1048,6 @@ La Terre
 
 (1) Cf. Clifford, *Virchow on the Teachings of science* ; Winwood Reade, *Martyrdom of man*.
 
-[p. 52]
 lança des fragments qui devinrent des mondes. La Terre est un de ceux-là.
 
 6. *Demande.* — Comment la vie commença-t-elle sur la Terre? (1)
@@ -1304,10 +1068,6 @@ lança des fragments qui devinrent des mondes. La Terre est un de ceux-là.
 11. *Demande.* — Quelle fut la forme suivante de la vie?
 *Réponse.* — Il apparut alors d'autres taches qui vivaient aux dépens des premières; celles-ci possédaient
 
-   (1) Tyndall's Belfast lectures, 1874; *Revue d'anthropologie : Philosophie zoologique* (Lamarck); *The Origin of species* (Charles Darwin, 1859); *The Physical basis of life* (Huxley).
-   (2) Winwood Reade.
-
-[p. 53]
 une organisation plus compliquée et on les appelle des animaux embryonnaires.
 
 12. *Demande.* — Ces taches vivantes étaient-elles les ancêtres de l'homme?
@@ -1331,7 +1091,6 @@ une organisation plus compliquée et on les appelle des animaux embryonnaires.
 18. *Demande.* — Qu'est-ce que cela?
 *Réponse.* — D'après cette théorie, les cieux et la Terre et tout ce qu'ils contiennent ont été créés dans l'espace de six jours, par « la parole de Dieu ».
 
-[p. 54]
 19. *Demande.* — Quelqu'un était-il présent quand Dieu a créé les cieux et la Terre?
 *Réponse.* — C'était impossible.
 
@@ -1348,7 +1107,6 @@ une organisation plus compliquée et on les appelle des animaux embryonnaires.
 *Réponse.* — C'est la seule preuve qu'ils offrent.
 
 24. *Demande.* — La théorie de la création, par conséquent, est une supposition aussi?
-*Réponse.* — En effet.
 
 25. *Demande.* — Des deux laquelle devons-nous préférer?
 *Réponse.* — Celle qui se recommande aux esprits les plus éclairés et qui explique le mieux les faits connus.
@@ -1356,7 +1114,6 @@ une organisation plus compliquée et on les appelle des animaux embryonnaires.
 26. *Demande.* — En acceptant l'une ou l'autre théorie, acceptons-nous par cela même d'être enchaînés à elle pour toujours?
 *Réponse.* — Non! Nous nous réservons la liberté de la changer pour adopter une théorie meilleure si jamais nous pouvons le faire.
 
-[p. 55]
 27. *Demande.* — Quel est l'auteur de la théorie de l'Évolution?
 *Réponse.* — Charles Darwin est l'homme dont le nom, plus qu'aucun autre, est associé à la théorie de l'Évolution.
 
@@ -1377,9 +1134,7 @@ une organisation plus compliquée et on les appelle des animaux embryonnaires.
 
    (1) Moïse lui-même, en essayant d'expliquer le monde, a obéi à une impulsion scientifique, — son histoire de la création étant la meilleure solution qu'il pût imaginer. Mais la science de Moïse est devenue la théologie des Eglises.
 
-[p. 56]
 33. *Demande.* — A-t-on jamais employé une violence quelconque pour propager les idées de Darwin?
-*Réponse.* — Non.
 
 34. *Demande.* — Et pour propager celles de Moïse?
 *Réponse.* — Oui. Des hommes ont été mis à mort par le fer et par le feu.
@@ -1391,9 +1146,6 @@ une organisation plus compliquée et on les appelle des animaux embryonnaires.
 *Réponse.* — Que l'erreur ne peut être maintenue par force, et qu'aucun miracle inscrit dans les calendriers ou dans les bibles du monde ne peut empêcher le triomphe de la vérité. (1)
 
    (1) Le mahométanisme est aujourd'hui la religion de près de 200 millions d'hommes ; mais nous devons penser à l'effusion de sang, aux longues périodes de persécution, et aux grandes sommes d'argent qui ont été nécessaires pour perpétuer l'Islam. On peut en dire autant du christianisme ; il a coûté deux mille ans de guerre, de persécution, d'inquisition, et des océans de vies humaines et d'argent. Mais tournons nos yeux vers cet autre tableau : Il y a peu d'années, quelques savants, parmi lesquels au premier rang Charles Darwin, ont annoncé une nouvelle doctrine, — la doctrine d'Évolution, qui était aussi nouvelle, aussi radicale, aussi révolutionnaire que le mahométanisme et le christianisme, et cependant elle a surmonté l'opposition la plus déterminée et la plus fanatique, et elle est, à l'heure actuelle, acceptée et enseignée dans le monde entier. Et pourtant, pour achever ce stupéfiant triomphe, il a suffi d'un demi-siècle de temps, sans le moindre soupçon de persécution, sans seulement roussir un cheveu d'un seul être humain. Peut-on imaginer un plus grand hommage à la puissance de la vérité? Dans le cours de quelques années la science a établi un empire plus grand que ne l'ont pu faire toutes les Bibles du monde, malgré les mers de sang dont elles ont couvert la terre pendant des milliers d'années.
-
-[p. 57]
-CHAPITRE VI
 
 L'homme
 
@@ -1415,7 +1167,6 @@ L'homme
    (1) Cf. *Natural history of man* de Pichard ; *Man's place in nature* du professeur Huxley ; *Descent of man* de Charles Darwin ; *Unité de l'espèce humaine*, de Quatrefages, Paris, 1861 ; *Early history of man*, de Tylor ; *Antiquity of man*, de Lubbock.
    (2) La plus haute classe des vertébrés, — tous les animaux qui nourrissent leurs petits de leur lait.
 
-[p. 58]
 6. *Demande.* — Quoi encore?
 *Réponse.* — Ils sont composés des mêmes matériaux, possèdent les mêmes parties physiques, et sont sujets aux mêmes lois de vie et de mort.
 
@@ -1436,7 +1187,6 @@ L'homme
 
    (1) « L'abîme qui, grâce à l'ignorance de l'homme, a été jeté entre lui et le monde des animaux, cet abîme n'existe pas. » — Docteur G.-L. Duprat, professeur de l'Université de Lyon, France.
 
-[p. 59]
 naissance, traverse des phases de développement où il a des ouïes comme un poisson, une queue, de longs orteils, un corps couvert de poils, et un cerveau pareil à celui du singe.
 
 12. *Demande.* — Quelle est la signification de ces faits?
@@ -1454,7 +1204,6 @@ naissance, traverse des phases de développement où il a des ouïes comme un po
 16. *Demande.* — Y eut-il jamais un témoin oculaire de l'évolution d'un animal en homme?
 *Réponse.* — Non. La nature travaille en secret. Des animaux inférieurs à l'homme le passage s'est fait par des gradations douces, lentes, imperceptibles, comme une vue de projection se fond dans la suivante.
 
-[p. 60]
 17. *Demande.* — Cette croissance ou ce développements sont-ils limités à son corps?
 *Réponse.* — Son esprit ou sa raison sont juste autant que son corps les résultats d'une évolution.
 
@@ -1464,7 +1213,6 @@ naissance, traverse des phases de développement où il a des ouïes comme un po
 19. *Demande.* — Quelle est cette raison?
 *Réponse.* — Les conditions défavorables.
 
-20. *Demande.* — Veuillez expliquer ceci.
 *Réponse.* — Le progrès résulte de la nécessité. Animaux et sauvages restent stationnaires aussi longtemps qu'ils peuvent se maintenir à l'aise. Ils n'inventent et ne développent de nouvelles ressources que quand ils sont forcés ou menacés par le danger et la mort.
 
 21. *Demande.* — Veuillez vous expliquer davantage.
@@ -1476,7 +1224,6 @@ naissance, traverse des phases de développement où il a des ouïes comme un po
 23. *Demande.* — Existe-t-il d'autres opinions sur la genèse de l'homme?
 *Réponse.* — Oui. Un grand nombre de gens croient
 
-[p. 61]
 encore qu'il fut créé par Dieu, d'une seule pièce et parfait, il y a quelque six mille ans. (1)
 
 24. *Demande.* — Que veut-on dire par « créé parfait »?
@@ -1486,7 +1233,6 @@ encore qu'il fut créé par Dieu, d'une seule pièce et parfait, il y a quelque 
 *Réponse.* — Je ne le pense pas.
 
 26. *Demande.* — Alors il était imparfait, par comparaison avec Dieu?
-*Réponse.* — Oui.
 
 27. *Demande.* — Pourquoi dit-on alors que l'homme fut créé parfait?
 *Réponse.* — J'imagine qu'on veut dire aussi parfait qu'un homme pût jamais espérer d'être.
@@ -1499,9 +1245,6 @@ encore qu'il fut créé par Dieu, d'une seule pièce et parfait, il y a quelque 
 
    (1) L'Association américaine pour l'avancement des sciences, par un vote presque unanime, a déclaré « qu'Adam et Eve étaient des mythes ». — *Procès-verbaux in extenso de l'Association, 29 août 1901.* — Nonobstant l'unanimité des hommes de science sur ce point, à travers toute la terre, le clergé persiste à continuer le tralala de ses phrases creuses sur le premier homme, etc. Le clergé peut-il ignorer les faits et gestes des hommes de science?
 
-                                                                              IV
-
-[p. 62]
 30. *Demande.* — Alors il a obéi à Dieu au lieu de lui désobéir?
 *Réponse.* — Oui, s'il a aidé à réaliser les éternels desseins de Dieu.
 
@@ -1525,7 +1268,6 @@ encore qu'il fut créé par Dieu, d'une seule pièce et parfait, il y a quelque 
 
    (1) Comme Satan et l'Enfer existaient avant Adam, l'homme ne peut pas être rendu responsable de l'introduction du mal dans l'univers.
 
-[p. 63]
 sayant de se rendre compte de l'existence de la lumière et des ténèbres, de la vie et de la mort, de l'amour et de la haine, a accepté la solution la plus simple, celle qui supposait l'existence de deux êtres, l'un bon et l'autre méchant, gouvernant le monde.
 
 37. *Demande.* — Le diable est-il aussi savant que Dieu?
@@ -1546,7 +1288,6 @@ sayant de se rendre compte de l'existence de la lumière et des ténèbres, de l
 42. *Demande.* — Existera-t-il toujours un diable et un enfer?
 *Réponse.* — D'après beaucoup de personnes, oui.
 
-[p. 64]
 43. *Demande.* — Pourquoi les gens croient-ils à de telles histoires sur le diable, etc...?
 *Réponse.* — Parce que leurs père et mère y ont cru.
 
@@ -1562,13 +1303,7 @@ sayant de se rendre compte de l'existence de la lumière et des ténèbres, de l
 47. *Demande.* — Que devons-nous redouter par dessus tout au monde?
 *Réponse.* — La peur.
 
-48. *Demande.* — Pourquoi?
 *Réponse.* — Parce qu'elle paralyse à la fois notre esprit et notre corps, et par là nous retire la capacité de nous défendre nous-mêmes ; et quand nous ne pouvons nous défendre nous-mêmes, nous devenons le jouet des fantômes de la politique et de la religion.
-
-[p. 65]
-CHAPITRE VII
-
-Jésus
 
 1. *Demande.* — Quelle est la croyance dominante relativement à Jésus?
 *Réponse.* — Qu'il était un Dieu et un fils de Dieu.
@@ -1585,9 +1320,6 @@ Jésus
 5. *Demande.* — Quelle est la valeur de ces assertions?
 *Réponse.* — On ne peut les admettre comme certaines.
 
-                                                                              IV.
-
-[p. 66]
 6. *Demande.* — Pourquoi pas?
 *Réponse.* — En ce qui concerne l'Immaculée Conception, nous pouvons dire que de Jésus en tant que « miracle » nous ne pouvons avoir aucune opinion, quelle qu'elle soit.
 
@@ -1606,24 +1338,19 @@ Jésus
 11. *Demande.* — Continuez votre argument.
 *Réponse.* — Et comme un petit nombre seulement parmi ceux qui ont vu les miracles les ont considérés comme probants, — car beaucoup hésitaient et demandaient plus de signes, — nous, qui ne les avons pas vus du tout, nous avons le droit de traiter l'élément mira-
 
-[p. 67]
 culeux dans la vie de Jésus comme nous le traitons dans les vies de Buddha, de Moïse et de Mahomet.
 
 12. *Demande.* — Expliquez-vous davantage.
 *Réponse.* — Sans entrer dans la discussion des miracles en général, on peut dire que, en tant qu'ils sont un appel aux sens de ceux qui peuvent avoir été présents, il reste à établir, en premier lieu, que leurs sens ne les ont pas trompés, et en second lieu que leur témoignage est infaillible, avant que nous puissions les accepter comme des témoins.
 
 13. *Demande.* — Nous n'avons, par conséquent, que des affirmations humaines relativement aux miracles faits par Jésus?
-*Réponse.* — Rien d'autre.
 
 14. *Demande.* — Si un homme, affirmant être dieu, ressuscitait les morts en *notre* présence, cela prouverait-il la vérité de son assertion?
-*Réponse.* — Certainement non.
 
-15. *Demande.* — Pourquoi?
 *Réponse.* — Parce que, même s'il créait en plus un nouveau monde en notre présence, il ferait seulement un certain nombre de choses que nous ne pourrions faire nous-mêmes. Parce qu'un homme peut ressusciter les morts, etc., il n'en suit pas qu'il puisse faire n'importe quoi. (1)
 
    (1) Voir le chapitre I, *Raison et Révélation*. Une règle sûre en ces matières est de toujours préférer le moins merveilleux au plus merveilleux : il est plus probable que les hommes qui ont rapporté les miracles de Jésus se sont trompés, comme on l'admet pour ceux qui ont rapporté les miracles de Mahomet, qu'il n'est probable que les morts, par exemple, se sont levés de leur tombeau.
 
-[p. 68]
 16. *Demande.* — Que faudrait-il qu'il fasse pour prouver qu'il est Dieu?
 *Réponse.* — *Tout.* Mais dans la nature des choses, aucun homme ne peut donner des preuves qu'il peut tout faire.
 
@@ -1644,7 +1371,6 @@ culeux dans la vie de Jésus comme nous le traitons dans les vies de Buddha, de 
 
    (1) Des pouvoirs surnaturels sont attribués au diable et à ses anges dans toutes les écritures religieuses du monde : les Mages d'Egypte rivalisaient avec Moïse, et Simon le Magicien avec les Apôtres dans l'accomplissement des miracles.
 
-[p. 69]
 meilleur en grandissant, il est impossible qu'il ait été parfait depuis sa naissance. (1)
 
 22. *Demande.* — Parlez maintenant de Jésus-homme. — Quand naquit-il et où?
@@ -1665,7 +1391,6 @@ meilleur en grandissant, il est impossible qu'il ait été parfait depuis sa nai
    (1) Voir chapitre VIII. — *Enseignements de Jésus.*
    (2) Sénèque, Ovide, Epictète, Josèphe, Philon, Pline, Tacite, Juvénal et Quintilien vivaient à peu près à la même époque que Jésus et ses apôtres.
 
-[p. 70]
 27. *Demande.* — Combien de temps Jésus a-t-il vécu sur la terre?
 *Réponse.* — Entre trente-trois et cinquante ans d'après la tradition et les Évangiles. (1)
 
@@ -1688,7 +1413,6 @@ meilleur en grandissant, il est impossible qu'il ait été parfait depuis sa nai
    (2) « N'est-ce pas le charpentier, le fils de Marie, le frère de Jacques, de Joses, de Jude et de Simon? Ses sœurs ne sont-elles pas ici parmi nous? » — Marc, VI, 3.
    (3) Plusieurs centaines d'années avant que Jésus fût né, Gautama, le Buddha, était adoré comme le Sans Péché. On racontait qu'il était né sans avoir eu de père, et qu'il faisait des miracles. Les mêmes choses ont été dites de Sérafis, d'Apollonius, et de bien d'autres. Les Chinois croient que Lao-Tseu, le fondateur d'une des religions de cet empire, est né à l'âge de quatre-vingt-quatre ans, avec des cheveux gris, afin qu'il pût posséder la sagesse dès sa naissance.
 
-[p. 71]
 33. *Demande.* — Eurent-ils eux aussi leurs fidèles?
 *Réponse.* — Oui, et leurs temples et leurs autels, et ils les ont encore aujourd'hui.
 
@@ -1701,15 +1425,11 @@ meilleur en grandissant, il est impossible qu'il ait été parfait depuis sa nai
 36. *Demande.* — Quels sentiments convient-il de garder vis-à-vis de ces anciens prophètes?
 *Réponse.* — Ceux de la reconnaissance de leurs services et d'une critique loyale de leurs erreurs.
 
-[p. 72]
-CHAPITRE VIII
-
 Les enseignements de Jésus
 
 1. *Demande.* — Quelles étaient les idées de Jésus?
 *Réponse.* — A peu près celles des gens de son temps et de son pays.
 
-2. *Demande.* — A quelle nationalité appartenait Jésus?
 *Réponse.* — C'était un Juif.
 
 3. *Demande.* — Quelle était la condition politique des Juifs à cette époque?
@@ -1721,7 +1441,6 @@ Les enseignements de Jésus
 5. *Demande.* — Quel était leur état intellectuel?
 *Réponse.* — En raison de la longue période d'oppression politique sous laquelle les Juifs vivaient, les arts,
 
-[p. 73]
 les industries, les sciences, la littérature et la philosophie, étaient nécessairement négligés par eux.
 
 6. *Demande.* — Par quoi les Juifs se distinguaient-ils?
@@ -1744,9 +1463,6 @@ les industries, les sciences, la littérature et la philosophie, étaient néces
 
    (1) Le mot *christ* est *Christos*, un mot grec qui, — comme *messiah* en hébreu, — signifie « l'oint ».
 
-                                                                              v
-
-[p. 74]
 terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme le roi des rois. (1)
 
 12. *Demande.* — Quelle était son attitude vis-à-vis de César?
@@ -1772,12 +1488,10 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
 
    (1) Voir la tentation de Jésus dans le désert.
 
-[p. 75]
 19. *Demande.* — Quels ont été les pires persécuteurs dans le monde?
 *Réponse.* — Sans aucun doute, ceux qui se sont intitulés chrétiens.
 
 20. *Demande.* — Les enseignements de Jésus doivent-ils en être rendus responsables?
-*Réponse.* — Seulement en partie.
 
 21. *Demande.* — Par exemple?
 *Réponse.* — Quand il dit que ceux qui ne croient pas en lui sont enfants du démon et seront damnés. (1)
@@ -1790,11 +1504,9 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
 
    (1) On trouvera ci-après quelques paroles de Jésus à ce sujet : — « Quant à mes ennemis qui n'ont pas voulu que je règnasse sur eux, amenez-les ici et faites-les mourir en ma présence. » (Luc, XIX, 27.) — « Et partout où l'on ne vous recevra pas, et où l'on n'écoutera pas vos paroles... je vous dis en vérité que Sodome et Gomorrhe seront traitées moins rigoureusement au jour du jugement que cette ville-là. » (Matthieu, X, 14.) — « Et celui qui ne croit pas sera damné. » (Marc, XVI, 10.) — « Retirez-vous de moi, maudits! et allez dans le feu éternel. » (Matthieu, XXV, 41.) — « Et s'il ne daigne pas écouter l'Eglise, regardez-le comme un païen et un péager. » (Matthieu, XVIII, 17.) — Lire aussi ce que Jésus aurait dit sur la branche qui doit être jetée au feu ; sur ceux qui refusent de le confesser devant les hommes ; et aussi les paroles : « Il y a beaucoup d'appelés mais peu d'élus », etc...
 
-[p. 76]
 24. *Demande.* — Définissez la persécution.
 *Réponse.* — C'est une tentative en vue de soutenir une opinion par la violence.
 
-25. *Demande.* — Expliquez davantage.
 *Réponse.* — C'est un complot pour conquérir la raison sans l'éclairer. (1)
 
 26. *Demande.* — La persécution a-t-elle jamais aidé la vérité?
@@ -1812,7 +1524,6 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
    (1) « La bouche d'où sortent de telles hérésies doit être fermée à coups de trique et non par des arguments. » — Extrait d'une lettre de saint Bernard au pape Innocent II. — Cf. *Abélard*, par de Rémusat et Jules Simon. — Voir aussi le chapitre sur les *Credo*.
    (2) Voir la conclusion au chapitre sur la Terre.
 
-[p. 77]
 30. *Demande.* — Quelle opinion a-t-on de ses enseignements sur ces sujets?
 *Réponse.* — Une très haute opinion.
 
@@ -1828,7 +1539,6 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
    (1) Luther excusait souvent sa véhémence en citant l'exemple de Jésus : « Que pensez-vous du Christ... quand il appelait les Juifs une génération adultère et perverse, une race de vipères, d'hypocrites et des enfants du démon? Que pensez-vous de Paul, qui appelle les ennemis de l'Evangile des chiens et des séducteurs? » — Luther. *Propos de table.*
    (2) Voir l'histoire de son recours au fouet contre les marchands du Temple.
 
-[p. 78]
 34. *Demande.* — Donnez des détails.
 *Réponse.* — Dans ce temps-là, en Orient, les gens mangeaient avec leurs doigts, car on ne se servait ni de couteaux ni de fourchettes, et quand on demanda à Jésus pourquoi ses disciples ne se lavaient pas les mains avant de manger, il défendit cette habitude malpropre en disant que rien de ce qui entrait dans le corps venant du dehors ne pouvait causer de mal à personne. (1) C'est aussi la doctrine des Derviches, qui ne se lavent jamais.
 
@@ -1842,9 +1552,7 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
 *Réponse.* — Nos lois punissent des actes comme celui-là.
 
    (1) Nul doute que les moines et anachorètes du Moyen-Age qui cultivaient la malpropreté comme une vertu ne se rappelassent cette célèbre parole de Jésus.
-   (2) Matthieu, VIII, 28-34.
 
-[p. 79]
 38. *Demande.* — Mais si Jésus était Dieu, n'a-t-il pas eu le droit de faire ce qu'il voulait?
 *Réponse.* — Si c'est la réponse, alors il est absurde que nous ayons une opinion quelconque en ce qui le concerne. Si Jésus pouvait faire tout ce qui lui plaisait, sans égard pour le bien ou le mal, tels que nous les comprenons, alors nous n'avons aucun étalon auquel nous puissions même juger qu'il était bon. Nous ne pouvons pas respecter ou aimer quelqu'un qui est purement une énigme.
 
@@ -1859,7 +1567,6 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
 
 42. *Demande.* — Que fut l'enseignement de Jésus touchant le mariage?
 
-[p. 80]
 *Réponse.* — Il préférait le célibat (1) et recommandait l'exemple de ceux qui deviennent eunuques (2) pour l'amour du Royaume des cieux. (3)
 
 43. *Demande.* — Quel était l'enseignement de Jésus touchant l'avenir ou le « Royaume des cieux »?
@@ -1874,7 +1581,6 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
    (4) « Et si quelqu'un t'ôte ton manteau, ne l'empêche point de prendre aussi l'habit de dessous. Donne à tout homme qui te demande. » (Luc, VI, 29-30.) — « Ne résiste pas au mal ; et à celui qui te frappe à une joue présente lui aussi l'autre. » (Luc, VI, 29.)
    (5) Matthieu, V, 12 ; et aussi : « Heureux ceux qui sont dans l'affliction, car ils seront consolés. » (Matthieu, V, 4.) — « Vous êtes bienheureux, pauvres, parce que le Royaume des cieux est à vous. Vous êtes
 
-[p. 81]
 45. *Demande.* — Quel serait l'effet d'un pareil enseignement?
 *Réponse.* — Pendant qu'il aiderait peut-être quelques personnes à supporter les maux de l'existence, il découragerait la généralité des hommes de tout effort en vue de redresser les torts qu'ils souffrent présentement.
 
@@ -1890,9 +1596,6 @@ terre appartenaient au diable, mais qu'un jour il serait lui-même reconnu comme
 bienheureux vous qui avez faim maintenant, parce que vous serez rassasiés. Vous êtes bienheureux vous qui pleurez maintenant, parce que vous serez dans la joie. » (Luc, VI, 20-21.) — « Mais malheur à vous, riches, parce que vous avez déjà reçu votre consolation. » (Luc, VI, 24-25.)
    (1) Comparer à la parabole du blé et de l'ivraie qui grandissent ensemble jusqu'au jour de la moisson.
 
-                                                                              V.
-
-[p. 82]
 49. *Demande.* — Est-ce une bénédiction d'être pauvre, faible et misérable?
 *Réponse.* — C'est un grand malheur.
 
@@ -1908,11 +1611,6 @@ bienheureux vous qui avez faim maintenant, parce que vous serez rassasiés. Vous
 53. *Demande.* — Dans l'ensemble, l'influence de Jésus a-t-elle été bonne ou mauvaise?
 *Réponse.* — Ses paroles d'amour et de bonté ont parfumé les siècles, mais ses doctrines théologiques ont causé beaucoup de haine et d'effusion de sang.
 
-   (1) Luc, XVI, 19.
-
-[p. 83]
-CHAPITRE IX
-
 L'Église
 
 1. *Demande.* — Définissez le mot « église ».
@@ -1927,7 +1625,6 @@ L'Église
 4. *Demande.* — Existe-t-il d'autres Églises?
 *Réponse.* — Les églises libérales, — savoir l'église
 
-[p. 84]
 Unitarienne, Universaliste, et Non-Sectarienne, — *Unsectarian.*
 
 5. *Demande.* — Fraternisent-elles entre elles?
@@ -1945,10 +1642,8 @@ Unitarienne, Universaliste, et Non-Sectarienne, — *Unsectarian.*
 9. *Demande.* — Comment l'Église Catholique est-elle née?
 *Réponse.* — Elle fut organisée à peu près à l'époque où l'Empire romain a été converti au christianisme. L'empereur Constantin (2) fut le premier empereur chrétien et le protecteur de l'Église Catholique.
 
-   (1) [Aux États-Unis.]
    (2) Cf. Jules Simon, *la liberté de conscience*, pages 32-35.
 
-[p. 85]
 10. *Demande.* — Quelle sorte d'homme était-ce?
 *Réponse.* — Il était à la fois cruel et faible. Parmi beaucoup d'autres crimes, il assassina sa femme et son fils ; néanmoins il a présidé, revêtu de ses vêtements impériaux, les conciles importants de l'Église. (1)
 
@@ -1966,7 +1661,6 @@ Unitarienne, Universaliste, et Non-Sectarienne, — *Unsectarian.*
 
    (1) Constantin, dans sa robe de soie brodée d'or, a présidé le concile de Nicée, réuni pour procéder contre l'hérésie d'Arius. Au concile de Chalcédoine, les prêtres présentèrent l'adresse suivante à l'empereur : « Vous avez établi la Foi, exterminé les hérétiques. Que le roi du ciel garde le roi de la terre, telle est la prière de l'Église et du clergé », etc.
 
-[p. 86]
 que nul ne pouvait avoir Dieu pour père, à moins qu'il n'acceptât aussi l'Église pour mère. (1)
 
 15. *Demande.* — Quel est le verdict de l'histoire sur les persécutions de l'Église Catholique?
@@ -1978,11 +1672,8 @@ que nul ne pouvait avoir Dieu pour père, à moins qu'il n'acceptât aussi l'Ég
 17. *Demande.* — Pourquoi ne persécute-t-elle plus aujourd'hui?
 *Réponse.* — L'État ne le permet pas.
 
-   (1) Cf. Winwood Reade, *Martyrdom of man.*
-   (2) Cf. Lecky, *History of European morals.*
    (3) Cf. Jules Simon sur le massacre de la Saint-Barthélemy, *Liberté de conscience*, pages 43-84. Dans son *Histoire de France*, Henri Martin cite ces terribles mots d'un prêtre catholique en réponse aux soldats qui se plaignaient de ne pas reconnaître les catholiques des hérétiques : « Tuez, tuez tout », répondit le prêtre, « Dieu reconnaîtra les siens. » La joie de l'Europe catholique lors du massacre de la Saint-Barthélemy fut si grande que le Parlement français décida qu'une procession annuelle serait instituée à Paris pour commémorer le fait. Heureusement, cette mesure ne fut jamais exécutée. A Rome, toutefois, Grégoire XIII organisa une procession qui parcourut les rues en chantant et louant Dieu pour le massacre des hérétiques ; le même pape commanda aussi une fresque représentant les scènes de massacre de la nuit de la Saint-Barthélemy, et on peut la voir encore aujourd'hui à la Chapelle Sixtine. Dans un sermon prêché devant ce pape, quelques jours seulement après le massacre, Muret, le prédicateur, disait : « O nuit mémorable! La plus glorieuse de toutes les solennités de l'Église! Dans cette nuit les étoiles elles-mêmes ont lui plus brillantes », etc... Le sermon se terminait en déclarant que Charles IX, Catherine sa mère, et le Pape étaient bénis entre tous les hommes d'avoir été choisis pour exécuter le massacre des huguenots! — *Les prédicateurs de la Ligue*, de Labitte.
 
-[p. 87]
 18. *Demande.* — L'influence de l'Église Catholique a-t-elle été entièrement mauvaise?
 *Réponse.* — Non, elle a aussi servi l'humanité de plusieurs manières, — en protégeant les pauvres, en encourageant les arts, et en formant une coalition européenne contre les envahisseurs asiatiques.
 
@@ -2022,9 +1713,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
 [leaf 0156] [p. 89]
 
-                              L'ÉGLISE
-
-  27. *Demande*. — Quelle conséquence implique ceci ?
   *Réponse*. — Qu'une Église qui obéit au pouvoir séculier au lieu de lui commander ne peut pas être une institution divine. (1)
 
   28. *Demande*. — La constitution américaine reconnaît-elle la religion chrétienne d'une manière quelconque ?
@@ -2038,7 +1726,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
   (1) Autrefois l'Église s'arrangeait de cette objection en déclarant que le Roi était « l'oint du seigneur, délégué par le Christ au gouvernement de la terre et que l'obéissance au Roi était l'obéissance à Dieu ». Mais la valeur de cet argument s'est évanouie avec le « droit divin » des rois. L'État moderne exerce son autorité comme venant de l'Homme, — et non comme venant de Dieu.
   (2) George Washington, dans son message au Sénat, en 1776, constata que le gouvernement américain n'était « en aucun sens fondé sur la religion chrétienne ».
-  (3) Cf. Schaff, *Creeds of Christendom*.
   (4) On a fait observer aussi que peut-être l'hérétique était brûlé au pilori parce qu'il était plus facile de le réduire au silence par le feu que par les arguments. L'Église dans ce temps-là revendiquait le droit de tuer tous ceux qu'elle ne pouvait pas convertir. Cf. *Story of the Crusades, the Inquisition, etc.*
 
 [leaf 0157] [p. 90]
@@ -2067,11 +1754,7 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
 [leaf 0158] [p. 91]
 
-                              CHAPITRE X
-
-
                               L'Église libérale (1)
-
 
   1. *Demande*. — En quoi les Églises libérales diffèrent-elles des orthodoxes ?
   *Réponse*. — Les Unitariens et les autres Églises libérales soumettent dans une certaine mesure les doctrines de la religion au jugement de la raison.
@@ -2081,8 +1764,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
   3. *Demande*. — Quelles sont les croyances des Églises libérales ?
   *Réponse*. — C'est très difficile à dire, car les Églises libérales ne suivent ni la Révélation ni la raison exclusivement, mais elles s'efforcent de se faire guider un peu par toutes deux.
-
-  (1) [Protestante.]
 
 [leaf 0159] [p. 92]
 
@@ -2105,8 +1786,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
 [leaf 0160] [p. 93]
 
-                              L'ÉGLISE LIBÉRALE
-
   9. *Demande*. — Et les Églises orthodoxes ?
   *Réponse*. — Exclusivement d'après la Bible.
 
@@ -2124,8 +1803,6 @@ de son influence pour empêcher le pape d'accorder le divorce. Henri se maria si
 
   14. *Demande*. — Comment essaye-t-on de prouver cette assertion ?
   *Réponse*. — Par des citations de la Bible et par le
-
-  (1) [Aux États-Unis].
 
 [leaf 0161] [p. 94]
 
@@ -2155,8 +1832,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
 [leaf 0162] [p. 95]
 
-                              L'ÉGLISE LIBÉRALE
-
   21. *Demande*. — Précisez la nature de cette révélation.
   *Réponse*. — Rien n'existe que Dieu ; Dieu est santé et pureté ; donc les maladies et le péché sont des illusions.
 
@@ -2183,7 +1858,6 @@ témoignage d'hommes et de femmes actuellement vivants.
   *Réponse*. — Ils l'emploient pour les nécessités du corps.
 
   27. *Demande*. — Les Savants Chrétiens croient-ils au corps ?
-  *Réponse*. — Non.
 
   28. *Demande*. — Que doit être un jugement impartial sur la Science Chrétienne ?
   *Réponse*. — Comme tous les systèmes humains, il contient à la fois de la vérité et de l'erreur.
@@ -2194,12 +1868,9 @@ témoignage d'hommes et de femmes actuellement vivants.
   30. *Demande*. — Quelle est la nature de leur enseignement ?
   *Réponse*. — Il est purement pratique. Faire de notre vie ici-bas l'usage le plus élevé que nous pouvons, sans établir aucun rapport entre cette vie et une vie avant, ou une vie après, et sans aucun rapport, non plus, avec des dieux, des démons, un ciel ou un enfer.
 
-  (1) [Aux États-Unis.]
   (2) [Pour la culture de la morale.]
 
 [leaf 0164] [p. 97]
-
-                              L'ÉGLISE LIBÉRALE
 
   31. *Demande*. — Cet enseignement nie-t-il Dieu et la vie future ?
   *Réponse*. — Non ; car il sait que nous n'avons pas encore de connaissances assez certaines sur ces questions pour en traiter d'une façon définitive et positive.
@@ -2215,11 +1886,7 @@ témoignage d'hommes et de femmes actuellement vivants.
 
 [leaf 0165] [p. 98]
 
-                              CHAPITRE XI
-
-
                               Les « credo »
-
 
   1. *Demande*. — Qu'est-ce qu'un *credo* ?
   *Réponse*. — Une règle de foi, c'est-à-dire une expression autorisée des doctrines d'une Église. (1)
@@ -2237,8 +1904,6 @@ témoignage d'hommes et de femmes actuellement vivants.
   (2) On prétend que Jésus a proclamé la nécessité d'un *credo* quand il a dit : « Quiconque donc me confessera devant les hommes, je le confesserai aussi devant mon père qui est aux cieux. » (Matthieu, X, 32, 33 ; Épître de Paul aux Romains, X, 9, 10.)
 
 [leaf 0166] [p. 99]
-
-                              LES « CREDO »
 
   5. *Demande*. — Le désaccord fut-il sérieux ?
   *Réponse*. — L'Apôtre Paul le considéra comme tel, car il accusa Pierre de dissimulation, d'hypocrisie, et d'une conduite *inique*. (1)
@@ -2285,8 +1950,6 @@ témoignage d'hommes et de femmes actuellement vivants.
 
 [leaf 0168] [p. 101]
 
-                              LES « CREDO »
-
 munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en doute le dogme de la Trinité.
 
   17. *Demande*. — Quel est ensuite le plus important *credo* ?
@@ -2302,7 +1965,6 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
   *Réponse*. — « D'abolir la diversité des opinions » et « d'extirper du pays les doctrines papiste et calviniste ».
 
   (1) Les sectateurs d'Arius, qui avaient des opinions hérétiques sur la divinité du Christ.
-  (2) Cf. Schaff, *Creeds of christendom*, volume I, page 41.
 
 [leaf 0169] [p. 102]
 
@@ -2312,7 +1974,6 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
   *Réponse*. — Oui. Même les universités d'Oxford et de Cambridge exigeaient de tous ceux qui prenaient un grade qu'ils souscrivissent aux trente-neuf articles avant de recevoir leur diplôme ; un *Bill* du parlement obligeait tous les professeurs et prédicateurs à y souscrire.
 
   22. *Demande*. — Cette loi atteignit-elle son but ?
-  *Réponse*. — Non.
 
   23. *Demande*. — La coercition peut-elle empêcher les gens de penser ?
   *Réponse*. — Elle peut seulement les empêcher d'enseigner ce qu'ils pensent.
@@ -2326,11 +1987,7 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
   26. *Demande*. — Quel est le plus important des *credo* modernes ? (1)
   *Réponse*. — Le symbole de Westminster, formulé par une assemblée consistant en cent cinquante membres choisis et réunis par un *Act* du Parlement en 1643 pendant le court règne du Presbytérianisme en Angleterre.
 
-  (1) [Protestants.]
-
 [leaf 0170] [p. 103]
-
-                              LES « CREDO »
 
   27. *Demande*. — Quelles sont les idées dominantes de ce Symbole ?
   *Réponse*. — La prédestination, le salut des enfants élus (1) seulement, la damnation de tous les gens et de toutes les nations qui ne sont pas chrétiens et l'emploi de la force matérielle contre tous les hérétiques.
@@ -2367,8 +2024,6 @@ munié les Ariens (1) et a fulminé l'anathème contre eux pour avoir mis en dou
 
 [leaf 0172] [p. 105]
 
-                              LES « CREDO »
-
 les forces dont le progrès des connaissances est capable de l'animer.
 
   34. *Demande*. — Devons-nous jamais souscrire à un *credo* qui interdit la liberté de pensée et de parole ?
@@ -2379,11 +2034,7 @@ les forces dont le progrès des connaissances est capable de l'animer.
 
 [leaf 0173] [p. 106]
 
-                              CHAPITRE XII
-
-
                               Le Clergé
-
 
   1. *Demande*. — Qu'est-ce qu'un membre du clergé ?
   *Réponse*. — Un homme qui a reçu les « ordres sacrés ».
@@ -2404,8 +2055,6 @@ les forces dont le progrès des connaissances est capable de l'animer.
   (2) Telle était l'opinion de saint Augustin et aussi de Jérôme. Saint Matthieu a été désigné par les apôtres pour remplacer Judas, au moyen d'un tirage au sort. La coutume la plus répandue était d'écrire les noms des différents candidats sur des bulletins et de les mettre dans une boîte ; alors, après avoir dit des prières, on remuait la boîte et le premier nom qui en tombait était considéré comme « choisi par le Seigneur ».
 
 [leaf 0174] [p. 107]
-
-                              LE CLERGÉ
 
 appliqué aux apôtres et aux premiers prédicateurs pour marquer leur autorité. (1)
 
@@ -2446,8 +2095,6 @@ appliqué aux apôtres et aux premiers prédicateurs pour marquer leur autorité
 
 [leaf 0176] [p. 109]
 
-                              LE CLERGÉ
-
 pur partout où il le trouve. De la même manière il peut croire à la divinité du Christ, dans ce sens que tous les hommes bons et nobles sont divins.
 
   15. *Demande*. — Les gens comprennent-ils toujours ce que le candidat veut dire ainsi ?
@@ -2463,17 +2110,12 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
 
 [leaf 0177] [p. 110]
 
-                              CHAPITRE XIII
-
-
                               Prière et Salut
-
 
   1. *Demande*. — Qu'est-ce que la prière ?
   *Réponse*. — C'est une supplication adressée à Dieu ou un désir d'être en communion avec lui.
 
   2. *Demande*. — Les gens prient-ils quelquefois aussi les lois de la nature ?
-  *Réponse*. — Non.
 
   3. *Demande*. — Ou de grands idéals ou de grandes chimères ?
   *Réponse*. — Non ; la prière est toujours adressée à une personne, parce que seule, une personne peut entendre une prière et y répondre.
@@ -2486,12 +2128,9 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
 
 [leaf 0178] [p. 111]
 
-                              PRIÈRE ET SALUT
-
   6. *Demande*. — Dieu peut-il être une personne ?
   *Réponse*. — Il ne peut pas être Dieu et une personne à la fois.
 
-  7. *Demande*. — Pourquoi ?
   *Réponse*. — Être Dieu c'est être infini ; être une personne c'est être fini. L'infini ne peut avoir conscience de lui-même, car une telle conscience impliquerait qu'il se distingue de quelque autre chose, et qu'il n'est pas, conséquemment, le « Tout ». Pour pouvoir dire « ceci est moi », l'infini doit pouvoir dire aussi « ceci n'est pas moi », ce qui voudrait dire que l'infini n'est pas infini.
 
   8. *Demande*. — Ne peut-il exister une personne infinie ?
@@ -2522,7 +2161,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   15. *Demande*. — Les gens prient-ils jamais pour que la loi de la chute des corps soit suspendue dans leur intérêt ?
   *Réponse*. — Plus maintenant.
 
-  16. *Demande*. — Pourquoi ?
   *Réponse*. — Ils ont appris que la loi de la chute des corps est inviolable.
 
   17. *Demande*. — Quand cesseront-ils de prier à propos du beau temps ?
@@ -2532,8 +2170,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
   *Réponse*. — Oui ; car ces qualités ne peuvent pas nous être données. On les acquiert par un long effort.
 
 [leaf 0180] [p. 113]
-
-                              PRIÈRE ET SALUT
 
   19. *Demande*. — Mais la prière n'aide-t-elle pas certaines gens à les acquérir ?
   *Réponse*. — Ils *croient* qu'elle les aide, tout à fait comme un Asiatique pense qu'il doit toute sa bonne fortune à l'amulette qu'il porte sur lui ou au tatouage qui est sur son bras ; ou comme le bigot croit la devoir à la Vierge Marie ou aux cierges qu'il brûle devant l'autel de quelque saint.
@@ -2568,8 +2204,6 @@ pur partout où il le trouve. De la même manière il peut croire à la divinit�
 
 [leaf 0182] [p. 115]
 
-                              PRIÈRE ET SALUT
-
 est une idée très pernicieuse, et qui doit être détestée. » (1)
 
   28. *Demande*. — Quel est l'effet de tels enseignements ?
@@ -2587,7 +2221,6 @@ est une idée très pernicieuse, et qui doit être détestée. » (1)
 
 louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté. Par conséquent toutes ces opinions aboutissent en pratique à nier Dieu.
 
-  30. *Demande*. — Comment cela ?
   *Réponse*. — Il y a peu de différence entre un Dieu qui n'existe pas et un Dieu qui existe seulement en dehors des affaires humaines ou un Dieu qui peut être influencé par nous.
 
   31. *Demande*. — Quelle est la forme de prière la moins recommandable ?
@@ -2597,17 +2230,12 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
   *Réponse*. — D'apprendre diligemment quelles sont les lois de la vie et de leur obéir.
 
   33. *Demande*. — Que devons-nous apprendre aux gens au lieu de leur apprendre à prier ?
-  *Réponse*. — A penser. (1)
 
   (1) Maistre de Balliol disait que plus il avançait dans la vie, moins il priait et plus il pensait. Lire aussi l'essai d'Emerson sur « la confiance en soi ». Les gens perdus, d'après Dante, sont ceux qui ne peuvent plus penser. Kant dit que « celui qui a fait un grand progrès moral cesse de prier, car l'humilité est une de ses maximes principales ». Il dit aussi que le désir de devenir les gens mis à crier appel à leur sensualité », c'est-à-dire à « s'abaisser jusqu'à eux ».
 
 [leaf 0184] [p. 117]
 
-                              CHAPITRE XIV
-
-
                               La mort
-
 
   1. *Demande*. — Depuis combien de temps la mort existe-t-elle sur la terre ?
   *Réponse*. — Depuis aussi longtemps que la vie. (1)
@@ -2646,8 +2274,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
 [leaf 0186] [p. 119]
 
-                              LA MORT
-
   10. *Demande*. — Pourrait-il exister aucun progrès dans le monde sans la mort ?
   *Réponse*. — Comme les vieilles feuilles doivent tomber des branches pour faire place aux nouvelles, — plus vertes, — ainsi nous devons mourir pour faire place aux hommes et femmes de l'avenir, — meilleurs que nous.
 
@@ -2679,12 +2305,6 @@ louanges, des pénitences et des offrandes, nous pouvons influencer sa volonté.
 
 [leaf 0188] [p. 121]
 
-                              CHAPITRE XV
-
-
-                              Immortalité
-
-
   1. *Demande*. — Que signifie le mot : Immortalité ?
   *Réponse*. — C'est l'état d'un être qui ne meurt pas, c'est-à-dire une vie sans fin.
 
@@ -2713,7 +2333,6 @@ ment dans le corps, mais qui, à la mort, retourne vers son auteur — Dieu.
   *Réponse*. — Peu de personnes le croient.
 
   8. *Demande*. — Le corps peut-il vivre sans l'âme ?
-  *Réponse*. — Non.
 
   9. *Demande*. — Et l'âme, peut-elle vivre sans le corps ?
   *Réponse*. — On croit qu'elle le peut.
@@ -2731,8 +2350,6 @@ ment dans le corps, mais qui, à la mort, retourne vers son auteur — Dieu.
   *Réponse*. — Nous ne le pouvons pas.
 
 [leaf 0190] [p. 123]
-
-                              IMMORTALITÉ
 
   14. *Demande*. — Que s'ensuit-il ?
   *Réponse*. — Que l'âme et le corps sont, autant que nous avons le droit de parler ou de penser, inséparables et que si l'un est immortel, l'autre doit l'être aussi.
@@ -2783,8 +2400,6 @@ qui ont la vraie foi ; tous les autres, d'après les *credo*, iront en enfer.
 
 [leaf 0192] [p. 125]
 
-                              IMMORTALITÉ
-
   27. *Demande*. — Quels sont les arguments en faveur d'une immortalité consciente ?
   *Réponse*. — L'un des plus forts est l'universalité de cette croyance. (1)
 
@@ -2818,8 +2433,6 @@ qui ont la vraie foi ; tous les autres, d'après les *credo*, iront en enfer.
 
 [leaf 0194] [p. 127]
 
-                              IMMORTALITÉ
-
 mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite toujours. (1)
 
   35. *Demande*. — Quel effet une pareille croyance produirait-elle sur nous ?
@@ -2830,11 +2443,7 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
 
 [leaf 0195] [p. 128]
 
-                              CHAPITRE XVI
-
-
                               La fin suprême de l'homme
-
 
   1. *Demande*. — Qu'y a-t-il de plus grand au monde ?
   *Réponse*. — Vivre, avec honneur ; car sans vivre nous ne pouvons avoir rien autre de bon.
@@ -2852,8 +2461,6 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
   *Réponse*. — Par l'expérience ; par l'expérience accumulée de l'humanité autant que par la nôtre.
 
 [leaf 0196] [p. 129]
-
-                              LA FIN SUPRÊME DE L'HOMME
 
   6. *Demande*. — Est-ce par l'expérience que nous apprenons tout ce que nous savons du bien et du mal ?
   *Réponse*. — Absolument tout.
@@ -2898,15 +2505,12 @@ mais elles s'incorporent à de nouvelles formes de la vie, et ainsi de suite tou
   17. *Demande*. — Par quelle précaution la Nature a-t-elle incité à l'obéissance à ses lois ?
   *Réponse*. — Elle a lié l'action à la réaction, la cause à l'effet.
 
-  18. *Demande*. — Expliquez ceci.
   *Réponse*. — A chaque pensée, à chaque parole, à chaque action, la Nature a donné la même puissance qu'à la semence, — de croître et de porter le fruit que chacun comporte.
 
   19. *Demande*. — Quels autres moyens la Nature emploie-t-elle pour imposer l'obéissance ?
   *Réponse*. — Elle a logé en nous un représentant de
 
 [leaf 0198] [p. 131]
-
-                              LA FIN SUPRÊME DE L'HOMME
 
 son autorité que nous pouvons appeler la « conscience ».
 
@@ -2947,8 +2551,6 @@ dements sont impératifs, (1) mais tout ceci est de la spéculation métaphysiqu
 
 [leaf 0200] [p. 133]
 
-                              LA FIN SUPRÊME DE L'HOMME
-
   28. *Demande*. — Le bien est-il en croissance dans le monde ?
   *Réponse*. — A travers bien des oscillations en arrière et en avant, l'humanité progresse constamment quoique très lentement.
 
@@ -2987,43 +2589,13 @@ dements sont impératifs, (1) mais tout ceci est de la spéculation métaphysiqu
 
 [leaf 0204] [p. 137]
 
-                              TABLE
-
-                                                                  Pages
-AVERTISSEMENT . . . . . . . . . . . . . . . . . . . . V
-
-le monde sans Dieu . . . . . . . . . . . . . . . . . . 1
-
-(a new catechism) . . . . . . . . . . . . . . . . . . 3
-
-*Adresse liminaire* . . . . . . . . . . . . . . . . . . 5
-*Épigraphes* . . . . . . . . . . . . . . . . . . . . . 6
-George Jacob Holyoake. — *Introduction* . . . . . . . . 7
-*Note du traducteur français* . . . . . . . . . . . . . 10
-*Préface de l'auteur* . . . . . . . . . . . . . . . . . 11
-
 Chapitre premier. — Raison et Révélation . . . . . . . 13
 Chapitre II. — La Révélation chrétienne . . . . . . . . 23
-Chapitre III. — Le canon de la Bible . . . . . . . . . 29
-Chapitre IV. — Dieu . . . . . . . . . . . . . . . . . 40
-Chapitre V. — La Terre . . . . . . . . . . . . . . . 51
-Chapitre VI. — L'homme . . . . . . . . . . . . . . . 57
-Chapitre VII. — Jésus . . . . . . . . . . . . . . . . 65
 
 [leaf 0205] [p. 138]
 
-                              *table*
-
 Chapitre VIII. — Les enseignements de Jésus . . . . . 72
-Chapitre IX. — L'Église . . . . . . . . . . . . . . . 83
-Chapitre X. — L'Église libérale . . . . . . . . . . . 91
-Chapitre XI. — Les « credo » . . . . . . . . . . . . . 98
-Chapitre XII. — Le Clergé . . . . . . . . . . . . . . 106
-Chapitre XIII. — Prière et Salut . . . . . . . . . . . 110
-Chapitre XIV. — La mort . . . . . . . . . . . . . . . 117
-Chapitre XV. — Immortalité . . . . . . . . . . . . . 121
 Chapitre XVI. — La fin suprême de l'homme . . . . . . 128
-
 
   *Nous avons donné le bon à tirer après corrections pour deux mille exemplaires de ce onzième cahier le mardi premier mars 1904.*
 
@@ -3032,7 +2604,5 @@ Chapitre XVI. — La fin suprême de l'homme . . . . . . 128
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 IMPRIMERIE DE SURESNES (E. Payen administrateur), 9, rue du Pont. — 8603
-
-[leaves 0206-0213] [blank back matter]
 
 [leaf 0214 = s05-c12 half-title "petites garnisons" — STOP, boundary reached]

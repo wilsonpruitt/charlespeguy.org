@@ -7,82 +7,20 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 20495
 ---
-
-ONZIÈME CAHIER DE LA HUITIÈME SÉRIE
-JÉROME ET JEAN THARAUD
-NOTRE HONNEUR
 139928
-À. 16.16
 | CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 “ à PE MER RENE ENTRE ee MR te D tt
-É : pe à" EE LEP EE DUT ALTER RES. * D TINER
 Ÿ LATE rx L RAT PE os à Là ER AE PR « à } Ç * À D. FA œr HIT PEN 2 7 1 We
 
 | % ;
 
-2h F0
-
-Hs3 4° À . Ma
-RES * Î 44
-RASE P +: HAE
-FE age e 1 a A
-
 > L. L x. C4 1
-: Pa SEE: LE
-ÉSMES d ax
-vie +: CR
-ARR : ; 544
-42 Eye à Ë Ü : 4 EUR
-PS : HE ÿ,
-12, 4 ARE : SLÉTFE
-EL 2 CLETR
-LÀ Se: 3 BE:
-LITRES | UT RENE TO RESTES
 
 : # DC LA 4 PAU re, Ér FA * are sp ; fr:
 
-, AO LEE En 4 AE 22 à HUE AO &
-
-AH | he ARR ARTE WU SU À ji “
-
-CL RONS : y \\ ? LORS
-
-HAN ; AU
-
-À MAUR E \ ya HPyeNl
-
-\ te JUAN 4 ; \ A
-
-dt U
-
-5 (1e ‘4 ñ
-
-\ |. {RAS L 14
-
-; mine \ AA
-
-] Ni F Ai VAE Ne
-
-ÿ { RARAU ) * de
-
-] £ \ASEN tn 7 AN (1
-
-ae Ÿ : HA A
-
-TS QE
-
-LA j AE ANR
-
-M Pat
-TENTE { D ON TR TNT
-
-NVIAESS Bar-Gochebas. —1 |
-
-Li
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-190f, un Si
 grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
@@ -105,12 +43,9 @@ dans l'ordre ; il suffit de le lire pour trouver, à leur. |
 place, les références demandées.
 . Ce catalogue, in-18 grand jésus, forme un cahier *
 ‘ très épais de XI1+408 pages très denses, marqué cinq ;.
-2 (é
 
 | A PR TE ANIMALE RON ARE PRG PARA PA LS NON NES
-: et 4 : t 4 à {a
 0 He _ francs ; ce cahier comptait comme premier cahier de la
-124 ) cs W
 Ke _ sixième série et nos abonnés l'ont reçu à sa date, le HA
 ‘ire 2 octobre 1904, comme premier cahier de la sixième
 1 ne série; toute personne qui jusqu'au 31 décembre 1905 É
@@ -131,46 +66,15 @@ LL pe dans notre premier catalogue analytique sommaire, con1e: à) sulter le pet
 | 18 tique sommaire dans l'index total de nos éditions anté- 4
 Ù  rieures et de nos sept premières séries, même premier 4
 1 Re cahier de la huitième série. # WE
-F1
 | a à : w)
-1 Le ï ! ANA ne
-F Ÿ A VHS À % 14
 
-A ‘ EM Al NOM INN ATERPIN) SAN PNE 2 TEE
-KIA : "': A NOTE sn val
-: 40AGR 4 i ve À VI AIN AT EN ia
-15 18 FO "LPS
-TVR 1 1,9 109 PANNES
-::0}ii - | « } “LCCANIONSS
-
-35 ; ‘ RE À 4 |! (LIVES
-RATES : (VS 2410
-: 147 ET ÿ" | }1 LEURS
-
-"2100 ! ‘ Me Ft: A:
-714 7 ; À, f! DAV.
-LLC NNSNRORTENNTES NA ERA:
 FX ER a set Whé ES LA ) D:
-1} 2 HAS CUS NERO ET ÿ RAIN PARU
-DEC Lee PMR UP RDS FETE RT es RE RE AN + 1700
-% Lt ie LEA Au ri x cu NOTE AA “ns ‘2
-*: RSC ANA NE TIE MAUR MER D we En NII NE RS PA
-LU NE RON
-RSNAUEER Fe NA AE A AN Er A Aie
 PACE ON et FÉRAAN 24e et 7e PHLEQ
 
-NA AT CR PRIOR fi id A, ji à LME . HAT st AA Na
 de DT MS SA NE Dr ESS A AE ML és D RER Re
-‘+ 148088 De.
-Un HA
-. ‘1 (
-DA 4
 | ‘4 DU MEME AUTEUR LT
-RAR 1!
-NN 4 1
 | aux Cahiers de la Quinzaine î
 | 100 *
-D, t
 ; g pe: y Le présent petit index donne automati- 4:
 Î 4 4] , quement pour tout volume et pour tout
 | HOT cahier indiqué : |
@@ -182,7 +86,6 @@ D, t
 | de fs déterminée, en chiffres arabes, de sorte CM
 | 1 que V-r7 par exemple doit évidemment se 4:
 | 144 Yi: lire dix-septième cahier de la cinquième Ra
-JR À
 i | fi dr) à b) la date du bon à tirer, ou, à son dé- ' ;
 ; “es faut, la date du fini d'imprimer, ou, à son | Ya
 { L 10 : défaut, la date du cahier même; ÿ %
@@ -192,17 +95,12 @@ LM à d) quand il y a lieu, c'est-à-dire pour nos Hi
 l De mières séries, la page du catalogue ana- 0
 JÉNON lytique sommaire où ce cahier se trouve \
 | par | catalogué. x +
-EN à :
 | ( TT * F st
 Fi Jérôme et Jean Tharaud, — le Coltineur débile : l'Écha- Ur r:
 | 40 _ faudage, la Merveille, sur les routes, la Détresse, août 1898 4
 | LAS | deux franes 1 {A
 | (Ni % UT He
 | : 40 AU — — la Lumière : le navire, le magicien, Timor, les :}
-RIT Far PR: »)
-; ténèbres, JU FOOT REA LS LIT ES a frands) a pt
-ti # VE
-! AT6 TR P $ ; NUIT À s 47140
 M0 — a Dingley, V'illustre écrivain (Ul-13, samedi 12 avril QUE
 | Dai 1902, un cahier épuisé, n'est plus mis en vente que dans les un
 | collections complètes de la troisième série............. 140 fe
@@ -215,20 +113,16 @@ Dame Sainte Marie ; du cierge qui vint se poser sur la viole
 de Pierre de Syglar; du clerc qui priait Notre Dame pour
 sa luxure (IV-7, samedi 20 décembre 1902, un cahier épuisé, ‘
 k : n'est plus mis en vente que dans les collections complètes
-de la quatrième série. }...........1.4.. 2/00 OR
 Henri Lebeau, Jérôme et Jean Tharaud, — Moines de
 l'Athos (V-7, mardi 5 janvier 1904 ...... deux francs 306
 Jérôme et Jean Tharaud, — Les hobereaux, — histoire
 vraie; — et trois annonces d'éditions chez Pelletan (V-19,
-mardiWraÿuillet 1904 ........... 174.4... u0/ franco
 — — Contes de la Vierge, dans le Cahier de Noël de la
 sixième série; Renaud lutte avec les mauvais anges; la ÿ
 Vierge aux colombes, — ou la Vierge ennemie d'orgueilleuse vertu; les trois ducats; la Vierge aux voleurs; la <
 Vierge aux oiseaux; celui qui fit pleurer la rose; la jongle
 resse qui fut en danger d'être noyée; la statue de Dionysos
-(VI-7, mardi 20 décembre 1904 ............... vingt francs
 — — les frères ennemis (VIl-10, mardi 23 janvier 1906,
-deux francs
 — — Éditions d'art. — Voir dans l'index complet larticle Edouard Pelletan.
 
 De ce petit index il résulte que le Dingley est complè- à
@@ -236,208 +130,72 @@ tement épuisé dans l'édition des cahiers, qui en est la
 première édition; cette édition des cahiers n'est plus
 mise en vente que dans nos collections complètes de la
 troisième série; nous demandons à nos amis et à nos je
-a
 
-:% L'e AUX CAHIERS DE LA QUINZAINE
 | abonnés qui veulent se procurer l'édition Pelletan de 5
 L vouloir bien la commander à la librairie des cahiers Û
 4 _ pour trois francs cinquante.
 ï Il a été tiré du présent cahier treize exemplaires sur
 |  whatman ainsi distribués : ;
 4 premier exemplaire de souche, exemplaire du gérant;
-‘à . . .
 ‘4 deuxième exemplaire de souche, exemplaire de l'ad4 ministrateur; |
 à troisième exemplaire de souche, exemplaire de l'imprimeur;
 
 qi dix exemplaires d'abonnement, numérotés de r à 10
-exemplaires d'abonnement. |
 fe Tous nos exemplaires sur whatman sont numérotés
 à. * à la presse et imprimés au nom du souscripteur ; nos j
 à tirages d'exemplaires sur whatman sont rigoureuse- #1
-4 _ ment limités au nombre d'abonnements à chaque in- ‘ ‘
 ‘1e stant souscrits; nous ne vendons point d'exemplaires 14
 > sur whatman en dehors de l'abonnement; l'abonnement
-\ s 1" . |
 _ sur whatman à cette huitième série est de cent francs
-1 Le
 | pour tous pays. le!
 _ Les Cahiers de la Quinzaine sont composés à la main, #
 - en caractères fin dix-huitième siècle (Didot) de la fon
 _  derie Mayeur (Allainguillaume et compagnie succes- Ke
 _  seurs) 21, rue du Montparnasse, à Paris, sixième
-_ arrondissement. 4
-RS Ne
 
 di 1 de NOR ER Rat LV AU EEE RS de dd te (OS ñ 4
-LS VER LES A A +
 MD HE , TT MENT ENS THEME de CA
-EE APR A | 402 OPEN
-IUT y F RAR dt: A! PR)
-nr: FRA L'æ4 TA LA L PR: TS AU
-0 , VAT
-je 1 Ÿ 1 ! ; : 4 4080
-78 . 1" CT 2,
-De: : : | SACS
-‘188 : : P 2 NONIESS
-- 100 HS Fa We
-+4 RE i Ù À RARES
-nur MIT ‘nantes ( RL.
-- NU 4 f è fi" (* tre [Ni DRE . tn! t
-47 ; à : à PO L 4.04 OO
-Û L F ! gt TA 34 \ Le na f É 4 LR “ #7
-A or, SORTE E RENTE À MAN
-TN Fe ACCRU A DEL CR RL EE 6 en Fat \
-A A AE PUR PE RU EAEST ASE LMNTS EEE CS Win: x
-A M ARR bg ioh RENE UT RAT LAC TT MORNT  ÉNOESESS
-A UE 0 Te IE OO « a A
-RAR MERE A ee PEL A NS Ua ti PTE OI
 pe PAS CRAN A RU Te 1 RAT Te
 LE PORTE RER APN AE NU ch 4e VÉPAES
-' LE TES PORTES ART LA ATEN CANNELLE
 
-MA \ ; LA ON
-! 11) 5 DT Ne
-BRU F He AE +
-‘RIRE T7
-CARE ‘ 4: SRE
-D. Bar-Cochebas ‘1
 nn" à ' LA si
-US Re
-À AIRE LUE
-! ET 1 MER A
-Ra | PE ” : Cut fa
-: #0 ; + EN} mr
-“ONE j 6 Or
 UN pie NN
-{5 GONE : Loue
-Ar | 7 NY EVENE
-:: PTE | Bar-Cochebas. — 1.
-
-Le, 8 SAR ER EANSz MATE D'ÉTAT CESR NS ENTRE à
-
-148) 4 RP
-4 # LATE
-ni" | "HO
-::17° V0 ; a PER
-: te É \ 4 {11 i
-+08 2e k À. AE
-DE: 4 | jt MNNENSS
-K _ NOTRE. 00
-45 NNEUR
-D D Ru te Fil
-+4 $ Î \ 100 qe
-20 à ; 4. SOS
-“RE i x : e : FAR
-10 : ‘4 Lu É
-1108 s rs APR
-113 f :, l'AS TRES
-4 à \ 4 À à È UE |
-Do : . LEA FOR
-+ PNR FX \ , y Û S 1 NE (19 1
-16 ARTE à 21400
-M AU AE À L (ae (104 NS
-: LE } 0 EX Li: LR ea c On
 
 ABVUE AL \ ri D 4 À L f me AP
 
-0 GR SNS
-
-A 02) RM EE RAP Al RATE LEA ES STRESS
-. DEEE À V'XA seat ir À re D A CR RUES
-
 a tn AU A NS Le a as
 
-IN "RE
-{x 4e ‘ PATUE VA
 N « à la mémoire du grand Bernard-Lazare ne fi
 MU ; Tharaud et Péguy L Fa Ne
-RNA 1 à FAUNE
-‘aiilas . ie
-DAS R'
-RUE ia
-NME È ER
-(M: ; AL
-AGE ; il
 | CERN 1), a
-1 RE Ê #7
-Q A GAY : L AO
-AU ANNE Ro:
-qi, L } ve #71 Pate
-LA +4 \CFÈ PA
 | TRS | d À à MA: f
-D ci #1 4
-+1 En:
-42 | ‘4
-TER { \ } FH TES
 ne. NIV 1 4 Ait r EM
-NAME 2 ANA 4 LA 1
-150 ; CPR"
-DR à # k des ÊT SR LRO
-
-1 Lù # "Lan 1 br à
-1h FN 0ie HRCUN AIME La EUX SE PNA ATOS VENT EN ERIC }
 
 RNA TL : rm chi: APE VE ENORME et
-42 ? : , vous L'AITETS 1
-D QUE ARR
-100 lé RE
 | APS F E Ke? OR 178 15h
-‘21008 4 MAL
-
-è i 2 Mi +
-44 nr TER
-1008 L } { #57 CNRS
-DC! \ NF
-Ni 5 : AUS | ‘710
-44 À ‘ n 00 À
-
-D. LA 0 r' k A 1k DUR te
-{ TE \ , MEN A
-RC « d € ER
-
-: 0 1 ÿ 5 ÿ 1 AIRE AU à
-D \ EN 2,27" HIPRRERS
 
 # 164 LL J k S EX Li ! F. 1680
-à ge COS * È L: { ; En
-Dr x M ‘ A tn * 1180
-
-SA s MÈRE Aya 1 PaY FN Le à * FA VO
 
 116 A ‘ge D LANTA Va Et ne OT THON 15, nr y
 
-‘8 | HT k Be Las : AS NES ETRS + IMC ANLE 257 SOUPE
-A A 2 OC SU at NAARELUT FN ;
-
-LISTES : + AUS
-OR Fra mue
-108 BAR-COCHEBAS ‘4
 É te L . L ul
 js | h 1 1 La vieille Palestine, sacrifiant J N
 _ FOI ÿ des” brebis à Yahveh, quelle
 il Jeu < figure de granit, comparée à
 ‘1 lui, si subtil, si mobile!
-D ; 1 ISRAEL ZANGWILL Gi
 +4 sr une besogne baroque d'expliquer La Fon1 taine ou le Neveu de Rameau à des cervelles
-FU l: : j Si MEL C
 AVR exotiques. J'appris à connaître la vanité d'une D.
 | ji pareille entreprise dans le séjour que je fis en quais
 « A lité de lecteur à l'Université d'une de ces tristes
 FR capitales des régions du Moyen-Danube où la vie est
-À: Mi: UN . : à LUE Fa Ru
 108 si terne qu'on n'y peut que choisir entre les femmes €.
 1 et le désespoir. À Le
-AN d L k RMA
 00 Certes ce n'étaient pas mes compatriotes qui "4
 0 auraient pu, là-bas, me défendre de l'ennui! Un
-\ MP ; F F4 fe.
 À ‘à Français à l'étranger, c'est un Français défleuri.
-d À 14 di: : . . , Re
 114 Rien de plus gris que ces pauvres diables qu'une
 _ dure nécessité a contraints de s'expatrier et qui
-LAN ONE ERERRN + 18/4000
 
-. à F ;
 Jérôme et Jean Tharaud J
 vivent dans le regret, l'irritation, l'amertume, pleins
 d'un orgueil méprisant et souvent injustifié pour le
@@ -463,7 +221,6 @@ nuent ensuite leur route vers Milan, Munich, Paris,
 Londres, poussés par un désir de richesse, de culture, de liberté, la neurasthénie, l'éternel besoin de
 changer de lieu et de maison, un instinct de gyrovague, et, pour tout dire, l'âme du Juif errant. Ils
 
-Fe % | BAR-COCHEBAS 0
 4 jouent là-bas dans la vie intellectuelle leur rôle his- :
 à torique d'intermédiaires entre l'Occident et l'Orient, 4
 \ de colporteurs de sentiments et de pensées. Je di- :
@@ -496,46 +253,30 @@ dl nr De (ul ù Li FA sd: ÿ te à 7 Fe AE fi Mb Eur FT si) Ma je %
 ) #00 | Jérôme et Jean Tharaud à PPT ASITONEES
 ‘1 _ une sorte de volupté. Un jour il me confia, avecun x
 enthousiasme puéril, le plaisir qu'il aurait d'en
-11410 | * 4
 7 _ tendre des voix d'hommes et de femmes alternées, De.
 D « car, me dit-il, cela est surtout beau lorsque vos ‘4
-_ voix se mélangent ». 151
-NÉ RSR
 14 Je lui promis ce plaisir. : WAR
-f # d L
-164 NIET
-rh { ) DO"
-ES À # 2h DER
 _ J'avais trouvé dans la maison de M. L..., notre
-Lt DR à
 _ Consul général, avec les meubles, la cuisine et les 451
 _ vins de France, cet esprit superficiel et délié, cette
-}L0n 44704 ;
 ignorance avertie qui fait parfois d'un simplehomme KA
 _ du monde de chez nous un des plus élégants spéci
 mens de l'humanité. Je le priai d'inviter mon étu- 00 Ÿ
 _  diant à dîner. Il commença par regimber (un juif!
-en. . tre : > RES 110
 Chez lui!); mais je lui représentai vivement quele A. à
-:'48 : À >. À V4 (2)
 spectacle d'un homme qui voulait troquer contrela
 _ nôtre l'âme que lui avaient fabriquée les siècles, ‘0 4
 _ c'était en somme le spectacle le plus original que ce Hi “EME
-: 4 ; . 24 AR V4
 L ik pays pût nous offrir. Il fut convenu que je lui amè ni 40
 _ nerais le lendemain mon Sémite à diner. Fe Pa
 Quand je communiquai à mon amil'invitation du
-ESS : f & % 14e *
 È - Consul, il me remercia avec une effusion qui alla #70
 jusqu'au baisement de main, mais le soir même il
 _ tombait chez moi, et déclarait ne pouvoir m'accom- 11 EX
 
-4 hdi ii di 7 ue is " cr pig Li | di FAN VO
-A (RUES ; BAR-COCHEBAS RARE.
 2 pagner. Je n'eus pas de peine à pressentir les rai- 12
 4 sons de son refus : il redoutait d'être ridicule. Après k
 { une heure de bataille je le convainquis de me “a
-n. suivre. : h.
 Ë Nous rencontrâmes chezle Consul quelques Fran- Ÿ
 4 çais de passage. L'impression que mon Juif pro- ne
 4 duisit sur eux et en particulier sur les femmes, je 1
@@ -560,7 +301,6 @@ y ne de mes aimables compatriotes; mais il avait senti
 ph leur dédain, et il m'avoua qu'à subir une pareille
 A épreuve il préférait vivre toute sa vie dans la …
 
-\
 Jérôme et Jean Tharaud
 toundra des Vogouls. Alors pour se relever à ses
 propres yeux et aux miens, tandis que le long du
@@ -577,11 +317,7 @@ dernier Messie, le dernier héros juif : Bar-Cochebas!
 ce qui fit éclater de rire deux petites prostituées
 qui dansaient à quelques pas de là, pour se réchauf- à
 _ fer, dans la neige.
-PA
 
-PARA De:
-
-L k AA € | A}
 En EU après, je quittai ces régions danubiennes, Di:
 Hs et, dans mon souvenir, le visage de mon Juif À Fe
 ni allait se confondre avec les mines jaunies de ces
@@ -597,10 +333,8 @@ hi Je suis donc revenu à D... plus exactement dansun
 19 petit village prochain, où mon père tient une na \
 auberge. Ces auberges de la Plaine, elles n'évoquent
 pour vous, monsieur, que d'agréables souvenirs; ai
-Un * HN
 a vous y avez entendu, quand les lampes s'allument, 44
 _ nos admirables chansons, et le violon, et le cymba- :108
-“M 19 k à
 
 “El Die Jérôme et Jean Tharaud bal: VA kr
 1 à lum du tzigane. Ah! ce doit être délicieux de n'être 34
@@ -629,10 +363,7 @@ _ Seulement, avec cette manière d'envisager les pro- ' 42
 “0h n'ai-je le courage de m'abandonner à mon instinct! 1
 1 Mais que serais-je, monsieur, si je cessais d'être 13
 he. intelligent ?.… J'ai relu votre tragédie du Cid parce ns Fe
-AHFSDE j RP:
 
-ee RO
-BAR-COCHEBAS
 | que, sur l'analyse que vous en avez faite à l'Univer- i
 sité, je me suis souvenu qu'elle posait un cas de
 : conscience qui n'était pas sans analogie avec le
@@ -661,8 +392,6 @@ zers ?.… Il est tout de même profondément regret- id
 table que nous ayons poussé vers le ciel les plus à)
 sublimes cris de justice que l'humanité ait entendus ( 4
 
-21 PA
-
 Jérôme et Jean Tharaud
 pour qu'un sale paysan ivre vienne cracher au
 visage de mon père, et qu'il ne soit pas châtié…
@@ -688,7 +417,6 @@ Je lui répondis sur-le-champ :
 ie « Certes non, mon cher ami, ne brandissez pas
 à l'épée de Rodrigue! Et le revolver n'est pas davanui 22
 
-ji BAR-COCHEBAS 1
 k tage de saison. Laissez en paix tous les paysans de 4
 Hi la Plaine. Je les connais un peu ; ce sont de bons et 1
 # sympathiques ivrognes. Et quant à monsieur votre ‘4
@@ -720,12 +448,10 @@ L la boutique. Les intelligences de votre espèce sont 2
 Î depuis quelque. vingt-cinq ans que votre père se 4
 . He livre au négoce, il doit avoir amassé de sérieuses 4
 
-MR MRNR LS ln Re
 ! ,jNPINSES Jérôme et Jean Tharaud MINOR
 | économies. Tâchez donc de découvrir le coin où il
 …_ cache ce pécule; distrayez-en l'argent nécessaire ie
 1 pour un voyage à Paris; ajoutez-y la petite somme
-rl ; Ki . ete Ye:
 _ qui vous permettra de vivre ici en attendant qu'on ti
 .__ vous trouve un emploi. On m'assure qu'il existe à 4
 MAL la Bibliothèque nationale des textes mandchous #3
@@ -745,49 +471,19 @@ _ faire feu, saisi d'on ne savait quel scrupule, tour
 nant son arme contre lui-même, il s'était fait sauter 14
 104 la cervelle. SA
 Je _ L'aimable consul ajoutait : non:
-n: NA 14 s*
-DA: - Ë fou
 _ « La fin de votre ami ne me surprend pas. Quand
 ces Juifs ne sont pas les plus abominables coquins,
-D! PAS ; Der
-14 g è +!
 
-x MURS M HU NS EUR ACT A ES EE A Er Ne PE LIN Le Fe ACC ANNE EL Y
 8 MEN AN PAN Ne Aer Sn nt M AE DRE OA TOR AU PNA SALES TANNER
-D PET SACS 0 0 LC
 ‘4 ils atteignent ces hautes régions où le bourgeois
 | transi n'inscrit plus ses maximes. Il y avait sans 1
 doute dans votre ami Bar-Cochebas une étincelle du
 _ feu qui animaiït les Prophètes, mais le pauvre diable
-M : à ja À « IRIS
 est mort pour avoir voulu jeter sur sa souquenille
 |_ de Juif la livrée de notre honneur. » :
-10 0NRNE LT
-Don % Re
-TR JÉROME ET JEAN THARAUD 10
-À À 1 DR
-2, 1H
-\ 1040
-4 By à (
-‘4 VA à
-FE Bar-Cochebas. 2
-L'EST SV CUP TE RAIN
 
-EN U FA L
-DC FR AN PRE 320 EUR ra HAN ;
-FIM RE À UN | RL |
-He: > 0 } Per 1 4 k M
 #4 \ : \ RAS Dee
-HS NM MTS. our 4 hp >. 2 FREE
-CANON N'APAVI) 1H OURS a
-APTE RC AAUON SATA ; < PRÉ EC ES LENS
-VER pui HA AE à70 nine CACCOMAUE TER MR 10 LANCER EE AE LS LHC ONE
-Eh ae ‘Ra Es TOR DA PARUS NPA RTS NOR NEC MERE EL CT AA CURE
-11 PATENTS HE LA OR RE DR OR CN LA NUE) HE
-NTMRANA PGA (NT CE AE: CU SL DAS 4
 
-à CAHIERS DE LA QUINZAINE | ‘5
-EN { # f 4 14) MAR | À
 Rue Mardi 11 décembre 1906. — De la situation faite à (14
 l'histoire et à la sociologie et de la situation faite au Va
 parti intellectuel dans le monde moderne. — Les re- À a:
@@ -811,8 +507,6 @@ _ rons jamais quel t. 1 HENNS
 V  Jument m'interdire de relever en cours de route, — « 8
 l'en cours de série, — pendant que je corrige tant 1
 _ d'épreuves de tant de ons cahiers que nous nous
-
-"te Charles Péguy
 
 l efforçons de produire et d'organiser en une bonne et
 ns forte et nombreuse série non indigne déjà de tant de
@@ -843,26 +537,21 @@ i à réservé une place pour la neuvième série dans le
 : #4 Notre collaborateur, —et je crois en effet me rappeler
 a 11 qu'à la fin de l'un des précédents cahiers je lui avais
 
-en AAA PACIEU ER
-E3 CAHIERS DE LA QUINZAINE
 x touché comme on dit quelques mots, — notre collaborateur m'a répondu par une si bonne lettre que je ne puis ;
 me retenir, — et que je ne le dois, — de la publier sans
 plus attendre. Car si j'attendais outre son tour passerait, des événements viendraient, il en vient toujours,
 elle passerait, comme tout passe, et ce serait une grande û
-perte.
 | Cette lettre est un peu familière. Mais c'est un des
 L plus grands avantages de ces cahiers que les conversa- |
 tions les plus familières, c'est-à-dire, de ce chef, les
 À plus exactes, les plus réelles, et aussi les plus poussées,
 les plus profondément poussées, s'y peuvent poursuivre
 et conduire, entre gens avertis, et ainsi définitivement
-s'y achever.
 Après quelques commandes de librairie, qui regardaient M. Bourgeois, notre collaborateur écrivait ceci,
 Î qui me regardait : ee
 J'ai lu avec intérêt de la situation et je fus touché À
 d'être l'objet de votre finale prosopopée. Mais êtes-vous
 ! sérieux quand vous accusez le bloc d'avoir une méta- :
-ï physique officielle ?
 | Je m'interromps tout de suite, à peine commencé, !
 _ pour faire observer, une fois pour toutes, une fois pour ; ÿ
 4 toute cette citation, combien cette lettre est heureuse, 3% Ÿ
@@ -872,9 +561,7 @@ F elle verse au débat que nous avons à peine commencé 4
 _  familières, hardies, posées. Nous n'aurions peut-être K:
 | jamais obtenu d'adversaires politiques une expression { \
 pe aussi claire de l'antithèse. Par la vertu de cette anti- %
-\ P 29 Bar-Cochebas. — 2. :
 
-10 Charles Pégray) |) NUE uit
 1 or thèse, venue d'un collaborateur tout impolitique, au seul : à ;
 ‘100 contact, à la seule contrariété de cette antithèse, les …
 144 formules de notre thèse se dessineront d'elles-mêmes. ;
@@ -906,10 +593,8 @@ TAN avoir sa métaphysique, — sa religion, — n'est pas en
 44 au contraire a sa métaphysique, profonde ou super- “
 _ ficielle, forte ou faible, bonne ou mauvaise, grossière #3
 14 ‘4 ou fine, ou déliée. Rien n'est aussi commun que la mr
-À OO * vi: Le THERE
 
 {à or CAHIERS DE LA QUINZAINE is
-LYt Fe à At
 “à physique. Tout le monde en fait. Tout le monde en a. |
 pe Rien n'est aussi répandu. Seulement, non seulement 0
 F tout le monde n'a pas la même, ce qui n'est que trop 1
@@ -943,10 +628,6 @@ di. Les autorités et les autoritaires l'ont autoritaire. Les 008
 1 cienne. Les parlementaires l'ont parlementaire. Les 1
 _ imbéciles l'ont imbécile. sut 13
 qu ru on
-
-e Charles Péguy
-
-L 1e]
 
 ‘18 Tout le monde a sa métaphysique. Mais les métaphy-
 (à siciens l'ont seuls métaphysique, ou si l'on préfère, et
@@ -985,7 +666,6 @@ M lectuelle n'aboutit pas, qu'elle ne rend pas, dans cet
 Le ordre, en ce sens, qu'elle ne donne et qu'elle n'apporte
 
 ‘4 et qu'elle ne peut apporter que des renseignements d'un \
-h ordre particulier, eux-mêmes classés d'avance, essen-
 à tiellement faux, essentiellement et toujours incomplets, |
 . essentiellement et toujours à côté, juxtalatéraux.
 
@@ -996,7 +676,6 @@ n sera la nôtre, est naturellement précédée d'une thèse
 1 en cause dans cette réponse, ou du moins dans ce \)
 1 paragraphe, et qui sera évidemment qu'il y a une thèse À
 j métaphysique du parti intellectuel dans le monde
-Î moderne. \y
 \ Quand donc je dis qu'il y a une thèse métaphysique y
 , du parti intellectuel dans le monde moderne, je supplie
 1 qu'on n'entende pas que pris d'une sorte de frénésie, d
@@ -1015,10 +694,7 @@ p sérieux quand vous accusez le bloc d'avoir une méta- À à
 4 Je n'accuse pas le bloc ni le parti moderne intellec- A
 14 tuel d'être capable. J'accuse le bloc et nommément dans |
 
-in A OS ee nd
-
 Un ET 4 AE SUN ep POI TEEN
-4 y Charles Pégur AIS Ier
 4 le bloc le parti intellectuel moderne récemment agglo78 méré d'avoir une métaphysique, de la vouloir imposerà
 x 14 tout le monde par les moyens de la force gouvernemen4 1 _ tale,en matière d'histoire et dans la matière de la socio
 RC logie, par un abus de l'histoire et par un usage de la
@@ -1030,7 +706,6 @@ y: # à dans le bloc j'accuse capitalement le parti intellectuel
 7100 et d'avoir commencé d'assurer par les moyens de la
 204 force gouvernementale temporelle une domination em
 ET ‘semble et étroitement mêlée et confondue temporelle et
-ÿ spirituelle, intellectuelle enfin, redoutablement contraire #
 1 a aux principes, et au principe, de la République, redou- HS
 D tablement contraire aux principes et au principe de la À
 : 252 Révolution, infiniment contraire au principe de liberté,
@@ -1045,16 +720,10 @@ que sont ou deviennent seules véritablement insuppor- mA
 12 sont, qui se veulent donner pour des physiques. 4
 D: Hélas il [en] est bien incapable! quant 4
 à ceux de ses membres qui pensent à remonter aux ï
-2 causes premières (combien peu!) Mr
 nr Ne pas remonter aux causes premières, mon cher M
 
 à ‘14 collaborateur, et même ne pas penser à remonter aux Fe ki
 
-Ne: Pr
-
-TE AN EP ON 0e MT
-
-:103 gi | CAHIERS DE LA QUINZAINE ; #
 ‘ ‘causes premières, c'est déjà une métaphysique; c'est ‘4
 | même et très précisément la métaphysique des causes |
 | secondes. Comme par hasard.
@@ -1072,7 +741,6 @@ L quant à ceux de ses M
 À membres qui pensent à remonter aux causes premières (l
 ns (combien peu!) ily en a je pense plusieurs qui admet- Hi
 tent les propositions suivantes : à
-À K
 b: Moi je ris (en moi-même), non point de me voir si : !
 À belle, mais de voir venir d'un bon pas régimentaire plu- ‘4
 Le sieurs belles propositions bien alignées, qui nous servi- 1}
@@ -1082,17 +750,14 @@ Le sieurs belles propositions bien alignées, qui nous servi- 1}
 1 plusieurs qui admettent les propositions suivantes : 1
 De. 1° les métaphysiques des diverses religions sont des 5h
 _ contes de fées pour bébés sauvages [:] 1
-Res ‘LT
 hi. C'est là ce que je nomme un raccourci de l'histoire 11
 _ des religions. Nous ne sommes pas près de finir d'en 1
 7 he entendre parler quand dans nos recherches de la situa- } ;
 ke tion faite à l'histoire nous en viendrons particulièrement 1
 
-400 ù Charles Péguy CRETE
 1100 à la situation faite à l'histoire des religions dans le
 440 monde moderne. Maïs aujourd'hui je préfère passer
 es tout de suite à la proposition deuxième.
-Ci:
 #0 2° les métaphysiques des plus célèbres philosophes
 14 grecs et celles de quelques notoires modernes qui se sont
 ‘7 livrés aux mêmes jeux d'esprit sont des logomachies
@@ -1121,7 +786,6 @@ D: anciennes mythologies physiques et métaphysiques. Je
 
 égale done elLe à à
 La Niue RE CAHIERS DE LA QUINZAINE b “à
-NS." 1 A: al
 1 notoires, je ne dis pas par les savants les plus renom- 1
 ; més, les plus célèbres, les plus glorieux : cela ne prouve : é
 l généralement rien, sinon que généralement ce ne sont L
@@ -1158,9 +822,7 @@ _  malicieuses qu'il ne faut pas dire seulement que l'on en 1
 _ des petits bons dieux. Toutes ces grandes théories 1158
 4 modernes et prétendues modernes, pour qui sait un 1
 | 4 peu lire et pour qui sait un peu d'histoire de la philo- ‘4
-Î ; 37 Bar-Cochebas. — 3 À
 
-M Charles Péguy Vo
 #0 sophie, ne sont très généralement que des transposi-
 \ tions en langage moderne de théories antiques ou
 Es anciennement modernes et quelquefois chrétiennes. Et
@@ -1194,8 +856,6 @@ s Phidias, et que nous, autres, tout Français que nous À
 à ‘ phies. Et ils faisaient des métaphysiques et des philo
 à sophies, même quand ils disaient et faisaient le f
 
-a LA A VA NS a A A AR
-A CAHIERS DE LA QUINZAINE 1
 À contraire, comme ils faisaient des poèmes et des tragé- ‘À
 É dies et des statues et des temples. C'est la meilleure }
 . manière d'en faire, et sans doute la bonne, et la seule, ;
@@ -1228,10 +888,7 @@ _ difficile que de faire comprendre à celui qui ne le veut wi
 1 | tout de même de la religion, — que généralement ne 41 Û
 À pas prendre certaines positions, ne pas occuper cer- f
 
-d ; HAE A Charles Péguy Li
 L taines situations, c'est infailliblement en prendre et en
-
-ï: occuper d'autres.
 
 ; . Je prends une comparaison, ce que l'on ne devrait
 4 jamais faire, parce qu'une comparaison altère toujours
@@ -1306,7 +963,6 @@ _ tendaïent introduire, à ce qu'ils étaient introduits ou 25
 _  prétendaient être introduits. Il semble bien qu'à cet en
 - égard au moins, à cet égard en particulier ils aient eu ni
 
-Charles Péguy di:
 raison, contre eux-mêmes, qu'il n'y a pas eu un miracle, :
 que l'introduction du monde moderne a été comme les 1
 modernes veulent que soient les introductions, que l'in- à
@@ -1322,7 +978,6 @@ ou hypothèses métaphysiques au sens et dans la mesure
 où elles s'embranchent sur des théories ou hypothèses
 physiques, est, comme d'ailleurs le demandent expressément les physiques et les métaphysiques scientifiques
 modernes, une marche, une tradition, une légation sen- |
-siblement continue.
 La seule difficulté qu'il y aurait peut-être serait seulement de trouver, dans la plupart des théories modernes,
 notamment dans celles qui nous sont contemporaines, |
 sinon dans toutes, d'en trouver qui soient justement
@@ -1369,8 +1024,6 @@ Dans ce système la relation des sciences pures et ie
 | auteurs, o Péguy, et il fait bien de renoncer, malgré 100
 1 leur autorité, à leurs « métaphysiques » aussi. Ils n'en 14
 
-AN PT RE RO OR
-;ù Charles Péguy "100
 sont diminués en rien car ils avaient de bonnes raisons É,
 d'expliquer toutes choses comme ils le faisaient et nous |
 en avons de meilleures pour /de] les expliquer différem- 4
@@ -1405,7 +1058,6 @@ ot n'est nullement lié au sort des physiques. Ce serait
 h: commettre l'erreur la plus grossière, et la plus barbare, 4
 “% — j'entends ce dernier mot très techniquement au sens 1
 
-Ne UN CAHIERS DE LA QUINZAINE ë Nr
 À où l'entendaient les anciens Hellènes, — ce serait être PR
 __ inintelligent de cette sorte particulière qui se contrarie no
 assez justement, — au sens de ajusté, — à la sorte dont ‘40
@@ -1428,7 +1080,6 @@ _  prement la plus barbare que de s'imaginer que, en 18
 | matière de métaphysiques, il y aurait, et il n'y aurait ‘A
 ! que, une succession linéaire des métaphysiques ainsi pet
 définie, soit linéaire discontinue en ce sens que chaque 4
-métaphysique suivante anéantirait, annulerait chaque ‘0
 ‘ métaphysique précédente, la mettrait à zéro, elle-même nu
 absolue, totale et définitive jusqu'à l'heure du temps, à
 k jusqu'à l'heure passagère où elle-même annulée à son d :
@@ -1438,11 +1089,7 @@ _ à régner du même règne dans le même royaume, soit 100
 k . linéaire continue en ce sens que chaque métaphysique Di
 à _ suivante assumerait pour ainsi dire, absorberait sa pré . PM
 _ cédente, s'en nourrirait par épuisement, et jusqu'à 11
-4 1 ‘HU
-in $ 45 Bar-Cochebas. — 3. f É À
-A $ DR
 
-CASE A ES
 Ru Charles Péguy de:
 + épuiséement, pour la remplacer mieux et d'un remplace- è
 ment ainsi moins provisoirement définitif, jusqu'à ;
@@ -1455,7 +1102,6 @@ tive s'anéantirait instantanément, à un moment donné, .
 | laissant la place parfaitement vide, et libre, devant la a
 métaphysique suivante, qui occuperait absolument tout, 1
 elle-même pour un temps totale et définitive. Et ainsi î
-dé suite. : !
 Au contraire et de même, dans l'hypothèse du progrès linéaire continu, contraire comme continu, mais |
 identique au titre de linéaire, chaque métaphysique À
 présente et présentement plus réellement définitive, Ù
@@ -1473,14 +1119,11 @@ ne serait pas diflicile de démontrer que leurs méca- f
 ÿ nismes ne sont point aussi étrangers l'un à l'autre qu'ils
 veulent bien le paraître, et nous aurons sans doute à le à
 4 démontrer quelque jour, et à un autre point de vue ces 4
-à 46 4
-"R ‘130
 
 nn js M AN NE CEA HIERS DE LA QUINZAINE FT ns
 À ; deux hypothèses, ces deux imaginations, font sensible- il "1
 À ment même figure dans le monde. Ce sont deux sœurs D
 ( qui se chamaillent, mais ce sont deux sœurs, également ‘4
-disgraciées. | 48)
 | Ces deux hypothèses, ces deux imaginations abou- pe
 | tissent ensemble et également au mot dont eux-mêmes a
 | ils sont gonflés, au mot qui à chaque fois leur emplit la ‘1
@@ -1509,7 +1152,6 @@ plus haute expression. Et il y aurait même plusieurs ou 10
 | siques ne veulent aucunement être les jalons d'aucune mi.
 à route. Elles ne se veulent prêter à aucun dépassement ‘1
 
-Charles Péguy FRET EN ‘5
 d'aucune sorte. Et non plus au dépassement industriel, À
 auquel on pense toujours, qui dans les temps modernes À
 fascine tout le monde, qui fait comme une sorte d'immense et impérieux et inévitable précédent. Descartes 1
@@ -1542,8 +1184,6 @@ création. Mais faite à l'image et à la ressemblance de à
 | son Créateur. Une immense bonté tombait du fir- M
 mament. Réciproquement les grandes philosophies, les ti
 
-4 MARS CAHIERS DE LA QUINZAINE 4
-<S (KE.
 à grandes métaphysiques ne sont que des réponses. HS $
 k L'athéisme lui-même, qui est une métaphysique, est une ï
 : réponse. Comme le blasphème est une réponse. Comme 2
@@ -1576,10 +1216,7 @@ E: se donner pour elle, ni faire croire qu'elle est elle, ni la ‘
 L humanité ne pouvait remplacer, suppléer l'humanité a
 4 grecque et nous faire croire que cela fût revenu au 3
 : même. Et pour la même raison. Comme il n'y a ici é pe
-4 49 L
 
-D a RD DE 6 ET TT à
-Charles Péguy ”
 aucuns dépassements, il n'y a aussi nuls remplacements
 non plus. Et je ne dis pas même des remplacements k
 4 totaux et bout pour bout. Ce serait une folie que de
@@ -1610,9 +1247,7 @@ ne s'agit nullement, dans cet ordre, de parties ét de !
 | certaine race, d'un certain peuple, sous un certain ciel ü
 ue et dans un certain climat, elle manquait, et nulle autre
 1 philosophie, née d'une autre race, d'un autre peuple, s
-4 Ji
 
-AM Un CAHIERS DE LA QUINZAINE DL:
 | sous un autre ciel et dans un autre climat ne la pouvait 1 1
 aucunement remplacer. Tout ainsi de la philosophie 148
 cartésienne, et de la philosophie kantienne, et de la phi- :14
@@ -1650,10 +1285,6 @@ sation mythique, et de l'insertion des esprits ou des DU.
 R âmes dans les corps devra parler un langage de nt ni
 
 LE DL ee
-
-" Charles Péguy dd ki. |
-
-; M L
 
 l'ancienne Grèce hellénique, un de ces langages nommés |
 
@@ -1723,7 +1354,6 @@ particulièrement de leffort musculaire, pour m'en
 
 Î ainsi dire en même temps que ce cahier, éternellement è
 | il faudra qu'il parle le langage nommé philosophie f'
-bergsonienne. (4 ;
 
 k C'est ce qui fait, c'est une des causes et des raisons ï
 Ü essentielles pour laquelle on peut dire qu'il n'y a jamais f
@@ -1746,10 +1376,7 @@ daires, se tiennent, se comportent et se requièrent, 4
 
 À ; qu'elles s'exigent l'une l'autre. De même que l'humanité 1
 
-US
-A
 NE) Charles Péguy nue ji h. |
-vil
 n'a reçu aucun don, aucune faculté de substitution, de ‘|
 même qu'il ne fonctionne aucun remplacement, qu'il ne
 joue aucun service de remplacement dans, entre les |
@@ -1788,7 +1415,6 @@ tion de réalité donnerait une autre résonance. Une voix d
 existe, c'est-à-dire qui se fait entendre, ne sera éternel- ï"
 lement pas doublée par une seconde voix, par une autre |
 
-4 VE | CAHIERS DE LA QUINZAINE ‘A
 s voix qui par définition factice voudrait en même temps if
 ‘à être la même, c'est-à-dire donner la même résonance. il
 Un élève ne signifie plus rien. Le plus grand des élèves, (it
@@ -1826,17 +1452,7 @@ L comme une chaîne ininterrompue, continue ou discon- h
 
 ; tinue, toujours linéaire, dont chaque maille annu- Ne
 
-. 10 ! : V4
-
-D
-
-k ÿ Charles Péguy TN NAT
-
-à ( , ? s
-
 # lerait ou dépasserait la maille immédiatement pré-
-
-f d cédente. ñ
 
 il [On entend bien qu'une série, qu'une suite historique
 
@@ -1896,11 +1512,6 @@ fe essaie de regarder un peu derrière lui, quand regardant À
 
 Fe quelquefois en arrière il essaie de faire monter un re- à
 
-4 56 À
-U : F
-ÿ F
-“ii: y É
-
 | 18 CAHIERS DE LA QUINZAINE F
 | À gard insuffisant vers de plus nobles, vers de plus hautes ;
 4 anciennes humanités, répétons le mot : c'est une des
@@ -1926,22 +1537,18 @@ K progrès linéaire, chaque ou toute pratique meilleure, 1
 di chaque technique plus avancée, toute économie ulté- Ne
 ki rieure, toute machine suivante, tout mécanisme, outil, Un
 # appareil, outillage, appareillage inventé, imaginé, réa-
-& lisé meilleur annulant, supprimant, dépassant ipso Jacto ii
 4 son précédent, — son concurrent, son modèle? — son x
 ] antérieur, son antécédent. A 4
 | Mais de ce que les pratiques avancent par un progrès à
 4 linéaire ininterrompu continu ou discontinu, il ne suit 74
 É nullement, — et l'on ne peut passer de l'une à l'autre
 proposition que par une assimilation indue, qui esttrès Ÿ ù
-L | ‘y
 
-1 à Charles Péguy F2) dd
 04 précisément l'assimilation indue que commettent perpé-
 ‘1% element sn à leur métaphysique hontense, les pob:
 D. ticiens du parti intellectuel moderne, — il ne suit
 : 0 nullement a priori, peut-être au contraire, qu'il y ait un
 0 progrès des théories, et surtout que ce progrès soit un
-3 progrès linéaire.
 100 Une métaphysique, une philosophie, un art, un peuple,
 40 une race, une culture est au contraire de l'ordre de
 si 11 l'événement. C'est un événement, qui arrive, ou qui
@@ -1966,7 +1573,6 @@ _ mon énumération faible et beaucoup trop incomplète
 encore de ce langage, la distinction du théorique et du (
 | pratique a généralement échappé aux modernes, Et ils |
 ‘1 y ont généralement mis de la complaisance. Car nous
-"1 pi à k pu A1)
 
 x CAHIERS DE LA QUINZAINE jou ‘4
 montrerons tout au courant de ces recherches que nulle it
@@ -1975,8 +1581,6 @@ redoutée, plus ou moins confusément, plus ou moins #4
 obscurément, plus ou moins inconsciemment ou con 4
 | sciemment, — pour et par les fortifications imaginaires à
 et pour et par les trop réelles dominations du parti mo- ‘à
-
-derne intellectuel.
 
 Ce que je veux noter seulement pour aujourd'hui, ce à
 
@@ -2006,15 +1610,11 @@ saisissable et ne réserverait à l'homme que de faciles w
 Ÿ triomphes, et selon laquelle aussi on nommerait méta- \
 | physique tout ce qui est insaisissable et ne réserverait 1
 | à l'homme que d'ingrates déconvenues, une sorte de À
-A chasse gardée, à
 ù Nous montrerons au contraire et nous aurons à mon- ÿ 4
 | trer que la métaphysique est peut-être la seule recherche 1
 K de connaissance qui soit directe, littéralement, et que la lt | ù
 physique, au contraire, ne peut jamais être qu'une {
 
-1 (1
-
-311 Charles Péguy D
 Pr tentative de recherche de connaissance indirecte, admijé f Vs nistrée par le ministère intermédiaire des sens. Et nous
 x | montrerons et nous aurons à montrer que toutes les k
 P métaphysiques ne sont point par cela même des théo410 ries, ni que toutes les physiques ne sont point ipso
@@ -2041,7 +1641,6 @@ C8 à souvent que d'instrament à des superstitions de devine- h
 ‘44 resse et à des essais de calculs de la destination, iln'y \
 3 A “ a qu'un mot à dire : une métaphysique, une philosophie, 344
 412408 un art, une race, un peuple, une œuvre est une réussite.
-Va « NES
 
 D A D dt eme Un
 Ü ù CAHIERS DE LA QUINZAINE eus \ 6
@@ -2076,8 +1675,6 @@ JL ou un ensemble d'arguments, un raisonnement qui dé- Ve
 | ainsi dire effacé comme un chaïînon aboli de la même À
 | 1 61 Bar-Cochebas. — 4 464
 
-COUR ANT Ten CE OP ET TI (RENNES OR A PR TETE ETATS LT A
-; 104 Charles Péguy ONE
 Fr série linéaire. Nous n'avons pas dépassé l'argument
 
 À Es éléatique. Nous y avons échappé, ce qui est tout diffé-
@@ -2124,9 +1721,7 @@ cette assimilation et que ce parallélisme a été nié, cri- ;
 “ même, et qu'enfin nous sommes donc là en présence d
 pe d'un fait nouveau, d'un fait acquis, une fois pour toutes,
 d'un progrès, comme il y en a dans la science. 1
-; 62 £
 
-p ; CAHIERS DE LA QUINZAINE
 | 4 Mais c'est qu'en effet il ne s'agit plus ici de philo-
 | \ sophie et de métaphysique : il s'agit, en effet, d'une
 science. Il s'agit de la science nommée psychologie. Il ï
@@ -2139,8 +1734,6 @@ a en ce sens un fait acquis. Mais ce dépassement est un
 | discontinu scientifique, ininterrompu si l'on veut. Ce
 | 1 n'est pas une théorie qui chasse une théorie. Car il ne \“UR
 1 s'agit point là de théorie, mais de savoir en fait, en
-\ événement, comment jouent, comment fonctionnent, f
-[ comment s'obtiennent certains mécanismes, certains
 | résultats, déterminés, de la connaissance psychoW _ logique. Et pour la part où il y aurait peut-être inter-
 |  calation de théories, nous démontrerons en son temps
 AU qu'il ne s'agit plus d'un dépassement linéaire, mais,
@@ -2157,11 +1750,6 @@ Il temps spatial dont les éléments premiers seraient
 |'1 lui-même de l'étendue. D'un certain sens premier de
 | |  l'étendue. à
 Quand il s'agit vraiment de métaphysiques et de phiLA 63
-Li
-« il ‘14 Es
-
-HA Re FOUR ia w Lu id ju TE ORT
-‘1 jh Charles Péguy HAN ; (Lx
 
 #1 losophies, quand il s'agit de théories, ni dépassement,
 ARS ni doublement. Ni progrès linéaire ni faculté de retour.
@@ -2181,7 +1769,6 @@ LA d'avoir dépassé Platon. Je vais plus loin. J'ajoute
 ‘4 [ qu'un homme cultivé, vraiment cultivé, ne comprend
 “ & pas, ne peut pas même imaginer ce que cela pourrait
 \ s } bien vouloir dire que de prétendre, avoir dépassé
-OT Platon.
 11 : Platon est, comme les autres. S'il n'était pas, ce n'est
 DU pas vous qui l'inventeriez. Vous pourriez y mettre tout
 11108 l'apparatus criticus que vous voudrez, assaisonné de
@@ -2194,9 +1781,7 @@ $ 574 tient à l'ordre de l'événement. Dans cet ordre tout ce ;
 10 qui est fait est fait et peut se défaire, se perdre. Et au …
 Du: contraire tout ce qui est perdu est irrémédiablement Û
 14 perdu et ne peut se rattraper. Car dans cet ordre les …
-100 ca F
 
-À CAHIERS DE LA QUINZAINE ï.
 renaissances, toutes merveilleuses, toutes miraculeuses (
 qu'elles soient, sont toujours fort incomplètes, et, quand "x
 elles ne demeurent pas complètement impossibles, hi
@@ -2211,7 +1796,6 @@ mons la Renaissance, sans plus, fut une véritable mer- D
 veille dans l'histoire de l'humanité. Elle n'en était pas FA
 moins fort incomplète. Et nous pouvons voir aujour- LA |
 d'hui, nous pouvons mesurer combien elle aura été À
-précaire. y
 
 | C'est pour cela que hous ne pouvons absolument pas \ l
 compter sur les renaissances. Nous n'avons absolument Na
@@ -2237,7 +1821,6 @@ fois, si cette voix, si le langage nommé la philosophie d:
 
 L 65 Bar-Cochebas. — 4. à
 
-Charles Péguy %
 ‘ hommes et les dieux, si la Grèce antique elle-même ï
 L n'était point née, une fois, si elle n'était pas vente, au
 monde, cette fois, si ce langage n'avait pas sonné dans ;
@@ -2268,12 +1851,9 @@ la grandeür et la force et la moelle de l'humanité, aura 4
 , commencé de ruinér dans les consciences un christia- |
 \ nisme quinze et vingt fois séculaire (on peut compter
 : sommairement vingt siècles, parce que s'il y à eu la &
-l 66 ù
 À ne
 7 1 30
 
-a AE ang A
-Li j CAHIERS DE LA QUINZAINE !
 1 préparation de l'établissement, il y avait eu aussi une
 sotte d'incubation) alors nous verrons, et nous pourrons
 
@@ -2310,15 +1890,11 @@ IL les lampions vraiment laïques des électorales réjouis-
 | AN
 | 4 67 À
 
-f Lo L
-An Charles Pégur h
-B ï j
 1 peut-être bien plus l'humanité qui disparaît de cette L
 | métaphysique et de cette religion, de cette philosophie. 4
 ïs Ces grandes passions de toute l'humanité ne se k
 4 comportent point autrement que les passions de tout 4
 dl homme :
-4 + LW
 :! Toutes les passions s'éloignent avec l'âge, A
 # L'une emportant son masque et l'autre son couteau, Ft
 14 Comme un essaim chantant d'histrions en voyage
@@ -2344,11 +1920,7 @@ di: 4 Remontons de deux siècles. Ce grand classique dix- F
 Hi raison la formule brève et quasi définitive. Nous dirons ‘4
 nur) qu'il se produit dans l'administration des métaphy- ‘4
 À siques un phénomène très comparable à celui qui se 1
-LS 470
-b' HE 10
-4 Fe
 
-F CAHIERS DE LA QUINZAINE
 produit dans l'administration de ce que les hommes
 1 du dix-septième siècle osaient nommer des vices.
 à Réflexions, sentences et maximes morales. 197 : Quand
@@ -2375,12 +1947,8 @@ quand nous commençons à nous déprendre d'une mé- fé,
 taphysique et d'une religion, d'une philosophie, et quand in
 nous voyons que nous en sommes dépris, ne nous van- a
 1 tons pas, et surtout ne faisons pas les malins, ne nous je
-L 7 4
 # LA à
 
-MAR A PO PER ENTER MNT AI MERE
-Vi Charles Péguy "V4 |
-f Li
 4 gonflons pas et ne faisons pas les sots, et ne disons pas À
 que nous l'avons dépassée. Car il n'y a pas de quoi à.
 nous vanter et faire les malins. Tout ce qui se pro- | À
@@ -2409,7 +1977,6 @@ k de malheur suprême, et non plus seulement d'infortune 5%
 4 sique, dans une sorte de malheur suprême, de finale #
 En catastrophe allant jusqu'à une espèce d'anéantissement 44
 d peut-être total, ce n'est point seulement parce que cette 4
-je 90 ' 7 ÿ l
 
 | NS AN a
 | PUS CAHIERS DE LA QUINZAINE
@@ -2435,5 +2002,4 @@ F1 l'éternité, seule elle soit demeurée accordée jusque dans
 À la mort.
 | CHARLES PÉGUY
 |
-di n
 |

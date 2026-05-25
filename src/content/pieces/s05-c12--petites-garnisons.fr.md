@@ -8,26 +8,13 @@ isAvertissement: false
 ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 wordCount: 43137
 ---
-
-petites garnisons
-
-LA FRANCE VUE DE LAVAL
-
-[p. 9]
-
-AVERTISSEMENT
-
 Dans le quatorzième cahier de la troisième série, bon à tirer du mardi 22 avril 1902, nous avons publié de notre collaborateur Félicien Challaye un bref courrier : la Russie vue de Vladivostock, journal d'un expulsé ; le premier jour de ce journal était le vendredi 21 juin 1901, et le dernier le lundi 24 juin.
 
 De Vladivostock Challaye revint, enseigner, à Laval en France ; tout aussitôt je lui demandai un courrier réciproque : la France vue de Laval ; j'entendais par là qu'il y aurait de bons courriers à faire de France et de pays que nous croyons connus ; l'étrange n'est pas toujours au pays étranger ; on ferait d'immenses découvertes chez soi ; on obtiendrait de singuliers résultats, si l'on savait regarder le pays habituel d'un regard inhabité ; regarder la France comme si on n'en était pas ; j'entendais un peu aussi par là qu'une France vue de Laval ne serait pas sans répondre à une Russie vue de Vladivostock, parce que toutes les servitudes ne résident pas en Russie.
 
 Je suis particulièrement heureux que ce nouveau courrier de Challaye soit prêt au moment des élections municipales ; comment se font les élections d'arrondis-
 
-[p. 10]
-
 sement et de commune, c'est ce que permet de se représenter un courrier comme celui que l'on va lire ; comment elles se préparent, c'est ce que Challaye lui-même a pu éprouver récemment : il avait accepté de faire à Évreux, autre petite garnison, où il a enseigné, où il a conservé des relations amicales, une série de conférences populaires sur le socialisme ; ces conférences étaient organisées sous les auspices, comme on dit, de la Société de la jeunesse républicaine ; cette Société fait là-bas, si l'on veut, fonction d'Université Populaire ; les conférences étaient fixées à certaines dates ; elles se faisaient le dimanche ; la première conférence, la critique socialiste, alla bien ; c'était la première ; et puis on est habitué à ce que les socialistes critiquent ; c'est même un peu devenu leur fonction sociale, dans le monde bourgeois, par entente mutuelle ; et s'ils ne critiquaient pas, ils auraient l'air de vouloir être des révolutionnaires ; de vouloir changer les habitudes ; un certain instinct conservateur des bourgeois républicains et réactionnaires est flatté quand ils voient que les socialistes critiquent ; c'est signe, évidemment, que rien n'est changé encore ; s'ils ne critiquaient pas, c'est alors qu'on s'inquiéterait ; enfin les bourgeois sont contents de leur courage, comme des dompteurs, de leur libéralisme, quand dans une salle populaire ils écoutent un socialiste critique ; on voit bien qu'ils n'ont pas peur d'un socialiste ; on voit bien qu'ils savent écouter toutes les opinions ; ils n'ont pas peur des idées avancées ; la deuxième conférence, l'idéal socialiste, n'excita presque point de mouvements divers ; le bourgeois aime qu'on lui parle d'idéal ; par une bonne après-midi, ou par une bonne après-dînée,
-
-[p. 11]
 
 parler d'idéal réchauffe un peu le cœur ; pendant la troisième conférence, la réalisation de l'idéal socialiste, le conférencier remarqua des mouvements divers ; les gens se regardaient ; une salle très légèrement houleuse ; car si parler d'un idéal après un bon repas réchauffe le cœur, un idéal que l'on parle de réaliser devint singulièrement inquiétant ; Challaye expliquait à ses auditeurs que la révolution sociale, bien entendue, ne fermait pas l'avenir, qu'elle ne prétendait pas instituer un état définitif, stable, arrêté, que le progrès, qui a tant marché, marche et marcherait toujours ; que par exemple il n'était pas défendu d'imaginer que la liberté conduirait tous les jours davantage et que l'on parviendrait à des organisations d'anarchisme croissant, à des anarchies croissantes ; ce mot d'anarchie a, dans les petites garnisons, une extraordinaire valeur d'épouvantement ; les gens se regardaient, gênés, pleins, honteux de se trouver là, d'avoir entendu ce mot, devant tel ou tel, qui l'avait entendu aussi, d'avoir été à une conférence où on avait prononcé, entendu ce mot ; en public ; devant tout le monde ; et en sortant Challaye vit bien que les gens se regardaient, encore, et qu'il y avait quelque chose.
 
@@ -35,25 +22,13 @@ Rentré à Paris, il reçut une lettre de ses amis d'Évreux, lui demandant, au 
 
 Dédié à quelques socialistes sincères qui s'imaginent, aujourd'hui encore, après tant d'expériences
 
-[p. 12]
-
 malheureuses, que le radicalisme électoral politique parlementaire fait un acheminement au socialisme ; avis et renseignement aux démocrates soucieux d'étudier dans la réalité le fonctionnement du suffrage universel ; tout le jeu du radicalisme électoral revient à faire tout ce que les électeurs demandent, quoi que ce soit, pour être assuré que l'on aura les voix des électeurs ; hâtons-nous, républicains, de faire de la réaction, pour que ce ne soient pas les réactionnaires qui en fassent.
-
-Charles Péguy
-
-[p. 13]
-
-Félicien Challaye
-
-LA FRANCE VUE DE LAVAL
 
 Faire la psychologie d'une petite ville de 30.000 habitants, située à l'ouest de la France ; décrire sa vie morale, religieuse, politique, sociale, en étudiant les événements qui s'y passent pendant une année ; établir ainsi quelles forces de résistance et quelles forces de progrès s'y combattent ; tel est l'objet de cette monographie sur Laval.
 
 Stendhal disait que pour connaître la France il faut passer huit à dix mois dans une petite ville de province, peu accoutumée à voir des étrangers : Laval répond à cette définition.
 
 Il serait faux de dire que toute la France subisse, comme Laval, la tyrannie d'un état d'esprit catholique et réactionnaire. Mais il faut comprendre en sens large le mot de tyrannie. Quand ce n'est pas le cléricalisme catholique qui opprime les consciences, c'est l'anticléricalisme radical, ou le patriotisme nationaliste, ou le moralisme protestant, ou le socialisme verbal de certains révolutionnaires. Partout des tyrannies occultes limitent la liberté des individus. Partout l'opinion publique, médiocre et lâche, cherche à écraser les initiatives intéressantes. Les hommes qui osent vouloir sont rares partout. Ce qu'il faut aux petites villes pour qu'elles s'éveillent, à la nation pour qu'elle prospère, à
-
-[p. 14]
 
 l'humanité pour qu'elle progresse, au socialisme pour qu'il s'accomplisse, c'est un nombre croissant de consciences audacieuses.
 
@@ -64,8 +39,6 @@ Laval, chef-lieu du département de la Mayenne, est une ville de 30.354 habitant
 La ville s'étend sur un double coteau au pied duquel coulent les eaux lentes de la Mayenne. On peut en avoir une harmonieuse vue d'ensemble, du haut du viaduc, haut de 38 mètres, sur lequel passe la ligne de chemin de fer Paris-Brest. Aux matins d'automne surtout, le paysage est évocateur de rêveries et de pensées. Un brouillard léger enveloppe la ville, voilant le détail des rues et des toits ; on aperçoit nettement que les flèches de nombreuses églises et les ruines d'un vieux château. De mystiques sons de cloches traversent les brumes grises. On devine une cité fidèle au passé, vivant de souvenirs, pieuse et féodale. Impression mélancolique, dont aurait su jouir Rodenbach : c'est Laval-la-Morte...
 
 La ville est agréable à habiter. Les quartiers neufs sont d'une élégante propreté. Les vieilles rues sont pittoresques, mêlées de ruelles et de culs-de-sac si étroits que le soleil n'y descend jamais. Quelques monuments historiques éveillent le sentiment des siècles lointains : le vieux château des comtes de Laval, onzième et douzième siècles, très pittoresque, servant aujourd'hui de prison ; la cathédrale de la Trinité, commencée au douzième siècle ; les ruines de fortifica-
-
-[p. 15]
 
 tions anciennes, l'imposante Porte Beucheresse, quinzième siècle, couverte de lierres, couronnée de broussailles ; la Maison du Grand Veneur, et d'autres maisons du quinzième et du seizième siècle ; le nouveau château des comtes de Laval, seizième et dix-septième siècles, servant de Palais de Justice ; la Halle aux toiles, élevée au dix-huitième siècle par le comte de la Trémouille. Parfois, en se promenant dans les rues, on a le sentiment précieux d'un contact direct avec les siècles lointains ; l'imagination du passé enrichit l'âme presque autant que la vision d'un pays nouveau : c'est comme un voyage autour de l'histoire.
 
@@ -79,13 +52,9 @@ A qui cherche à faire la psychologie d'une petite ville, les monographies ancie
 
 (1) On me dit que depuis 1903 les rues sont beaucoup mieux éclairées. Serait-ce aussi un symbole ?
 
-[p. 16]
-
 avant le développement moderne des voies de communication, les villes, plus isolées, avaient sans doute une physionomie plus distincte. Pour Laval, nous avons une curieuse étude écrite en 1807 : « La topographie médicale de la ville de Laval, par M. J.-B. Denis Bucquet, médecin. » (1) Ce petit livre, d'une saveur antique, fleuri de citations d'Hippocrate, nous renseigne sur tous les aspects de la vie lavaloise au temps du Premier Empire. L'auteur, en bon déterministe, explique par le climat uniforme et mou du pays « le tempérament lymphatique bien prononcé » des habitants, comme aussi, au point de vue moral, « cette tranquillité flegmatique propre au tempérament pituiteux ». Voici quelques-uns des traits par lesquels il caractérise le Lavalois : « Le Lavalois vit trop près de la nature ; sa civilisation se borne à vivre paisiblement en société, étranger à toutes ces passions qui remuent fortement le cœur de l'homme, et tirent les individus de leur sphère particulière pour les lancer dans le tourbillons des affaires générales. Les sciences, les arts et les lettres ne lui sont connus que de nom. Nul peuple n'est plus que lui attaché à son sol, à ses pénates, à ses coutumes ; il ne voit rien au delà ; hors de sa famille et de ses habitudes, il n'y a rien pour lui. — Un Lavalois ne fera jamais ce que font les autres, il ne suivra jamais son impulsion ; et n'osera rien entreprendre sans s'être assuré un nombre d'imitateurs ; il craint toujours les suites, les conséquences ; si quelqu'un s'écarte de la ligne tracée, on le montre au doigt, il encourt la censure
 
 (1) Bulletin de la Société des Études Scientifiques d'Angers, 1803. — Angers, Germain et Grassin, 1899.
-
-[p. 17]
 
 générale et devient l'objet de tous les regards comme de toutes les conversations... — Le Lavalois a un caractère indolent qui touche le mélancolique ; ses sensations sont peu vives et encore moins profondes ; ses idées sont peu nombreuses et peu rapides ; il articule mal et traîne ses mots. Il a le jugement sain, mais point d'esprit ni d'imagination... S'il éprouve le sentiment de la haine, c'est avec modération, mais persévérance... »
 
@@ -96,8 +65,6 @@ mêmes personnes qu'on rencontre aux mêmes endroits ; ce sont les mêmes affich
 
 Dans la petite ville somnolente, la plupart s'ennuient. Étonnante maladie que l'ennui : il serait si facile de ne pas s'ennuyer, en travaillant et en aimant : le travail donne la certitude d'être utile, l'amour appelle l'amour ; la joie d'être utile, la joie d'être aimé suffiraient à remplir la vie. Et il y a encore toute la science et l'art ; il y a la joie de s'intéresser à toutes les complexités de l'humanité et de l'univers. Dans la petite ville, on n'est pas assez cultivé pour prendre grand plaisir à ces jouissances intellectuelles ; pas assez généreux pour se consacrer à une grande cause qui serait à tous les instants une nouvelle raison de vivre. On cherche à éviter l'ennui en introduisant, dans son existence monotone, la diversité dont elle manque, par ce qu'on nomme des distractions. Distractions médiocres et elles-mêmes somnolentes : à Laval, le jeu préféré, l'art du pays, c'est la pêche à la ligne. Les hommes jouent aussi aux cartes, dans les cercles et dans les cafés. Les femmes se font des visites à leur jour : dans des salons mal éclairés, on potine sur les uns et sur les autres ; on cause des décès et des mariages, mais surtout du temps et des domestiques. Pauvre petite vie mondaine, touchante à force d'être mesquine : un jeune professeur
 
-[p. 19]
-
 nouvellement arrivé me raconte la première journée des visites faites aux femmes de ses collègues : l'une n'a pas fait allumer de feu et a oublié de mettre du pétrole dans ses lampes, parce qu'elle pensait que la pluie arrêterait les visiteurs ; une autre s'est déjà déshabillée parce qu'il est tard, six heures du soir ; un vieux professeur, qui a des filles à marier, conseille le mariage à son jeune collègue et lui précise le chiffre de sa fortune. Pendant l'hiver, au plaisir des visites se mêle le plaisir de quelques dîners et de quelques bals. Les hommes en profitent pour faire la cour aux femmes ; et ensuite ils se plaisent à annoncer à tous leurs bonnes fortunes : la fatuité des mâles est un des spectacles les plus écœurants que donne la province, pour qui aime d'un cœur tendre les intimités de l'amour.
 
 Dans cette vie si lente que toute énergie s'y endort, il n'y a plus d'autre règle d'action que le respect passif de l'opinion publique.
@@ -106,15 +73,11 @@ Plus un milieu social est étroit, plus s'y fait sentir la contrainte de la soci
 
 Dans la petite ville tout le monde se connaît. Les familles établies depuis un certain temps ont passé des années à se visiter, à s'étudier, à se rapprocher ou à se haïr. Les nouveaux venus sont vite connus et classés. L'œil du citadin, habitué à l'aspect familier de la ville, a vite distingué l'étranger de passage, celui qui, ne sachant où aller, hésite aux coins des rues. Si l'étranger paraît se fixer, l'indigène a vite fait de se renseigner sur lui, de connaître sa profession, son milieu, ses idées politiques et religieuses. Le nouveau venu, accueilli d'abord par la curiosité de
 
-[p. 20]
-
 tous les regards, devient bientôt l'un de ces passants dont on attend la rencontre, objet accoutumé des sensations visuelles d'autrui.
 
 Dans la petite ville tout le monde se connaît, et chacun constamment cherche à savoir ce que font tous les autres. Chez soi, derrière les rideaux de la fenêtre, on regarde les passants, et à leur costume, à leur allure, on cherche à deviner où ils vont. On se pose la même question au sujet des gens qu'on rencontre dans la rue : si M. X... passe aujourd'hui rue du Gué-d'Orger ou rue du Pin-Doré avec un chapeau haute forme sur la tête, c'est sans doute qu'il va faire visite à madame Y..., ou assister à l'enterrement de M. Z... On remarque avec soin les gens que vous saluez, ceux que vous arrêtez dans la rue, ceux avec qui vous vous promenez. On interprète l'amplitude des coups de chapeau, la tendresse des sourires ; on cherche à deviner les sympathies et les antipathies.
 
 Si un jeune homme et une jeune fille ou une jeune femme causent ensemble dans la rue, — avec cette bonne familiarité anglo-saxonne qu'il faudra bien réussir à introduire dans nos mœurs françaises, — tout de suite on imagine un mariage ou un adultère. Ce qu'on ne constate pas directement, on l'entend dire. Le bavardage est une des distractions préférées de la petite ville : c'est des autres surtout que l'on cause, de leurs faits et gestes, de leurs intentions, de leurs sentiments supposés. Tous les endroits où l'on se rencontre deviennent des potinières où s'échangent les nouvelles : les salons, les cafés et les cercles ; le Trimard, la place sur laquelle tous se promènent en été ; le tennis du préfet, celui du secrétaire général ;
-
-[p. 21]
 
 l'Hôtel de Paris et l'Hôtel du Grand Dauphin, où dînent les fonctionnaires célibataires ; le marché du samedi, où les dames se retrouvent ; la Halle aux poissons, qu'elles fréquentent le vendredi. — Quelques personnes se font une gloire d'être informées de tout ce qui se passe ; elles colportent partout ce qu'elles viennent d'apprendre. Elles confient à d'autres, sous le sceau du secret, ce qu'on leur a confié à elles, sous le sceau du secret. — Le contraste est saisissant, entre la lenteur de la vie provinciale, et la rapidité avec laquelle circulent les moindres bruits.
 
@@ -126,8 +89,6 @@ Cette perpétuelle surveillance d'autrui caractérise la province ; mais elle se
 
 Dans la petite ville, chacun constamment cherche à savoir ce que tous les autres font ; quand il faut agir,
 
-[p. 22]
-
 chacun se préoccupe d'abord de ce que les autres diront. Le sentiment fondamental des habitants, celui qui oriente toute leur vie psychologique, c'est le souci, la crainte, le respect, la hantise de l'opinion.
 
 La plupart cherchent à désarmer la critique, à éviter qu'on parle d'eux, en se conformant à tous les usages, en faisant, comme on dit, ce qui se fait. — Le même mot condamne les grosses malhonnêtetés et les généreuses initiatives : on en parlerait ; cela ne se fait pas... Ce qui se fait, c'est une suite monotone de petits actes égoïstes, mesquins et plats ; ce qui se fait, c'est d'être méprisant vis-à-vis des petits, et rampant devant les forts ; ce qui se fait, c'est de n'éprouver et de n'exprimer que des sentiments artificiels, d'ignorer toutes les naïvetés, toutes les vaillances, toutes les tendresses. — La vie dans la petite ville est une quotidienne éducation de la lâcheté.
@@ -135,8 +96,6 @@ La plupart cherchent à désarmer la critique, à éviter qu'on parle d'eux, en 
 Et c'est aussi une quotidienne éducation de la vanité. On cherche moins à être heureux qu'à être envié. Paraître riche ou influant, tout est là. L'idéal, c'est d'arriver par protection à une fonction honorifique où il n'y ait rien à faire. — On se soucie moins d'avoir un mérite réel que d'obtenir une distinction banale, signe d'un mérite prétendu. On s'aplatit devant les gouvernants qui peuvent par des rubans récompenser les platitudes. Que de bassesses on commet pour obtenir la croix d'honneur! Les belles carrières dissimulent de laides vies.
 
 Dans ce concours de vanités, certains arrivent à se distinguer par une vanité plus outrancière. Le snob provincial cherche à attirer sur lui l'attention de tous. Qu'il arrive à se faire inviter aux soirées intimes de la
-
-[p. 23]
 
 Préfecture, ou à forcer les portes d'un salon réactionnaire, qu'il séduise la femme d'un ami, qu'il arbore une nouvelle cravate ; il sait qu'on en parlera : il est heureux.
 
@@ -150,13 +109,9 @@ Rares sont, dans la petite ville, ceux qui ne craignent ni ne se réjouissent qu
 
 les groupes sociaux
 
-[p. 24]
-
 Le mouvement économique n'est pas encore assez développé à Laval pour que les classes y soient nettement différenciées. La grande industrie, le grand commerce sont encore inconnus ; la moyenne industrie fait à peine son apparition ; la petite industrie et le petit commerce dominent. Les ouvriers peuvent encore assez facilement devenir petits commerçants ; les petits commerçants peuvent encore assez facilement devenir petits patrons. Les industriels se différencient à peine de leurs contremaîtres, surveillent en général eux-mêmes leurs usines, travaillent avec leurs ouvriers. Dans les environs, beaucoup de paysans possèdent les terres qu'ils cultivent. Les Lavalois adressent au socialisme l'objection courante que la propriété est la récompense du travail et de l'épargne ; et s'ils ne sentent pas l'erreur monstrueuse d'une telle affirmation en présence du développement du capitalisme moderne, c'est qu'ils peuvent invoquer, à l'appui de cette prétention loi économique, des exemples empruntés à l'étroite expérience de leur petite ville.
 
 Cependant on peut déterminer dans la population certains groupes, différenciés surtout par leur effort pour se distinguer des autres. Un penseur hindou, mon ami Lala Baij Nath, remarque judicieusement que le système des castes repose sur des sentiments d'un caractère universel : en Europe comme dans l'Inde, les classes dites supérieures cherchent à se constituer en castes héréditaires fermées. A Laval, c'est une vanité commune qui rapproche les membres d'un même
-
-[p. 25]
 
 groupe social ; c'est leur mépris réciproque qui distingue les uns des autres ces groupes sociaux. D'abord la noblesse. Elle comprend quelques authentiques nobles d'Ancien Régime, des nobles de l'Empire, et aussi plusieurs roturiers enrichis, qui ayant ajouté à leur nom le nom de terres achetées par eux. Quelle que soit leur origine, ils ont tous le même désir de constituer une petite société aristocratique fermée : madame de B..., dont le mari est à la fois noble et fonctionnaire, reçoit le vendredi les fonctionnaires et le mercredi la noblesse.
 
@@ -165,8 +120,6 @@ Les fonctionnaires constituent aussi un groupe social assez distinct : ils se vi
 Nobles et fonctionnaires : ces deux groupes sociaux occupent à Laval le devant de la scène. Ils empêchent presque de voir deux autres groupes, beaucoup plus importants à tous points de vue : les petits commerçants et les ouvriers. C'est dans le milieu aristocratique et dans le milieu fonctionnaire que s'élabore surtout cette opinion publique à laquelle presque tous obéissent. Le Lavalois a un égal respect pour les titres de noblesse et les décorations gouvernementales, pour ce qu'on appelle les grands noms, et les hautes situations.
 
 D'ailleurs presque tous les Lavalois, quel que soit leur groupe social, sont catholiques ; beaucoup sont
-
-[p. 26]
 
 catholiques pratiquants. Il y a une trentaine de protestants, une seule juive, un tout petit nombre de libres-penseurs. L'opinion publique, que tous redoutent, subit à la fois l'influence des préjugés aristocratiques, officiels, et catholiques.
 
@@ -182,11 +135,7 @@ On peut y lire des allusions aux potins locaux, ainsi formulées :
 
 On connaît les relations adultères qui existent depuis quelques mois entre la femme B.. et son ami G... A la requête du mari, les amoureux ont été pincés...
 
-Etc...
-
 (Avenir de la Mayenne, 16 février 1902.)
-
-[p. 27]
 
 Au point de vue politique, le groupe des journaux réactionnaires est de beaucoup le plus important : toutes les nuances de l'opposition s'y trouvent représentées.
 
@@ -196,8 +145,6 @@ La Mayenne, étant le seul journal lavalois paraissant tous les soirs, est fort 
 
 Le Courrier du Maine, hebdomadaire, paraissant le
 
-[p. 28]
-
 dimanche, est le journal royaliste. Il attaque aussi la République, les républicains et l'évêque. Il garde cependant plus de tenue que la Mayenne, montre parfois un peu plus d'impartialité. Les grosses calomnies qu'il veut répandre sans en prendre la responsabilité, il les emprunte à la Mayenne.
 
 Dans le même groupe des journaux réactionnaires violents, il faut ranger le Patriote de la Mayenne, qui parut, hebdomadairement, pendant la période électorale : (1) organe nationaliste, ardent, injuste, tout plein d'attaques personnelles, mais intéressant, souvent spirituel, le moins écrit des journaux lavalois.
@@ -206,15 +153,9 @@ Il faut faire une place à part dans la presse locale à l'Écho de la Mayenne, 
 
 Le traité de la chrétienne Angleterre avec le Japon polythéiste, sauvage, et à peine civilisé, est une honte et un scandale.
 
-(Écho, 15 février 1902)
-
-[p. 29]
-
 Un article paru au moment de la grève générale des mineurs peint avec des couleurs charmantes la situation des travailleurs du sous-sol :
 
 Peuvent-ils accuser les pouvoirs publics de n'avoir jamais rien fait pour eux ? Certes, non ! Un édit de Henri IV, promulgué le 14 mai 1601, prescrit de retenir un trentième de la recette totale de chaque mine, d'établir un compte spécial du produit de ces retenues, et d'employer le fonds à l'entretien de prêtres, de chirurgiens, et à l'achat de médicaments.
-
-(Écho, 23 octobre 1901)
 
 A la première lecture, j'avais pris cet article sérieux pour une aimable fantaisie d'Alphonse Allais...
 
@@ -222,33 +163,21 @@ Le grand journal républicain modéré est l'Avenir de la Mayenne, daté du dima
 
 (1) Interrompu quelques mois, le Patriote a recommencé à paraître régulièrement toutes les semaines.
 
-[p. 30]
-
 ces éléments opposés. Pour rapprocher tous ses amis en un même sentiment de républicanisme atténué, l'Avenir attaque à la fois les royalistes ou les nationalistes, adversaires de la République, et les socialistes, destructeurs de la patrie, de la famille et de la propriété. Par de savants appels à l'histoire, il critique la Monarchie et l'Empire ; il triomphe quand une crise de « patriotisme » verbal unit tous les républicains « patriotes » de la Chambre contre les internationalistes de l'Extrême Gauche. Quand un conflit s'élève entre le Ministère et les progressistes, entre les modérés et les radicaux, il cherche à l'atténuer, fait appel à la bonne volonté de tous. Dans les cas graves, tiraillé entre des intérêts contradictoires, il se contente d'exposer les faits, de citer les textes ; ce conflit de tendances opposées arrive ainsi à donner au journal un certain air d'impartialité, d'honnêteté... C'est dans la politique locale que se manifeste le mieux cet ingénieux esprit d'union républicaine ; par exemple, dans la passionnante question des processions, ne pouvant réclamer leur suppression sans blesser ses patrons progressistes et ses lecteurs catholiques, ne pouvant invoquer en faveur de leur maintien l'intérêt de la religion sans choquer certains lecteurs anticléricaux, l'Avenir résout élégamment la difficulté, en réclamant qu'on les laisse libres, parce qu'elles
 
 sont agréables à voir, font la joie des parents et surtout celle des enfants,... font marcher le petit commerce.
 
-(Avenir, 28 juin 1903)
-
 Remarque importante : les rédacteurs de l'Avenir
-
-[p. 31]
 
 connaissent le fait historique de l'innocence de Dreyfus ; pourtant ils écrivent :
 
 L'Avenir de la Mayenne n'a jamais été dreyfusard, et nous considérons ici cette épithète comme injurieuse.
 
-(Avenir, 22 mars 1903)
-
 Reste enfin le Journal de Laval et de la Mayenne, « organe politique, agricole, départemental », paraissant les mardi, jeudi, samedi et dimanche, cinq centimes. C'est le journal le plus avancé du pays, se disant radical et anticlérical, d'ailleurs fort mal rédigé. L'un des collaborateurs du journal radical, celui qui y écrit, sous un pseudonyme, les articles de haute philosophie politique, est un chanoine bien connu à Laval pour l'audace de ses idées et la liberté de sa conduite. Ami personnel de certains républicains notoires, le chanoine soutient avec complaisance cette thèse, que, le Pape ayant conseillé de se rallier à la République, les catholiques disciplinés doivent devenir des radicaux. Trois jours après avoir informé ses lecteurs qu'il venait d'être choisi comme correspondant pour la Mayenne par le Comité exécutif du Parti radical-socialiste (28 décembre 1902), le Journal de Laval annonçait avec joie qu'un de ses meilleurs amis, le chanoine D..., venait de recevoir la bénédiction du Pape, et il publiait complaisamment, en première page, le télégramme du cardinal Rampolla (premier janvier 1903). A ce propos, le journal modéré, l'Avenir, écrivait assez justement :
 
 Notre confrère a toutes les chances. Les honneurs pleuvent sur lui de tous les points cardinaux. Être distingué par un libre-penseur comme Henri Brisson, et recevoir trois jours après la bénédiction du Pape, voilà assurément
 
-[p. 32]
-
 qui n'est pas banal. Faut-il conclure que nous assistons à la formation d'un nouveau parti, le parti radical-socialiste-ultramontain, avec notre confrère de la Rue du Lieutenant pour organe et pour grand-prêtre le chanoine D... ?
-
-(Avenir, 11 janvier 1903)
 
 Il est remarquable, en tout cas, que le radical-socialisme lavalois, quand il cherche à se déduire de principes philosophiques, se réclame surtout des instructions pontificales.
 
@@ -258,15 +187,11 @@ la vie religieuse
 
 Dans la petite ville, peuplée presque exclusivement de catholiques, dont beaucoup sont pratiquants, ce sont les questions religieuses qui s'imposent d'abord à l'attention. Non pas que le sentiment religieux soit sincère et profond ici ; non pas qu'il pénètre les cœurs et crée de nouvelles manières de vivre. A Laval, comme ailleurs, il y a peu d'âmes chrétiennes. Mais la religion est une de ces conventions généralement
 
-[p. 33]
-
 acceptées, auxquelles les individus doivent obéissance. Il est convenable d'être catholique.
 
 Tout révèle, à Laval, l'importance du catholicisme : le grand nombre des églises et des chapelles ; la fréquence des prêtres dans les rues, leur allure orgueilleuse et dominatrice ; la multiplicité des niches à saints dans les maisons des vieux quartiers ; l'abondance des croix et des christs aux carrefours des routes dans la campagne. — Le dimanche, hommes et femmes vont à la messe et aux vêpres, en beaux habits, fiers d'exhiber leur luxe provincial, heureux d'humilier les pauvres. C'est d'un paganisme inférieur, mesquin et triste. Dans les églises, au premier rang triomphent les riches, les mondains, les oisifs, les puissants, les gens arrivés... tous les ennemis de Jésus. — Rien de commun entre le catholicisme des Lavalois bien habillés et le christianisme des guenilleux suivant Jésus le long du lac de Tibériade.
 
 L'aspect de Laval est surtout extraordinaire les deux dimanches après la Fête-Dieu : les fenêtres sont ornées ; des reposoirs se dressent au coin des rues. Des sociétés catholiques passent, portant haut leurs bannières, précédées de fanfares bruyantes ; des prêtres les conduisent, marchant au pas, militairement, comme s'ils allaient à la conquête du monde. Des processions se déroulent lentement, suivies de foules immenses. On éprouve quelque frisson à voir passer ces masses sombres : le catholicisme apparaît d'une réalité redoutable ici, fort des cerveaux de tous ces fidèles, de leurs bras et de leurs poings. Presque tous se découvrent. Les rares spectateurs qui n'ôtent pas d'eux-mêmes leurs chapeaux sont parfois encore contraints
-
-[p. 34]
 
 ces luttes de charlatans. Il s'y fût précipité de bonne foi jadis : il y eût trouvé la victoire. Son disciple bien-aimé, Dominique, se présente pour le remplacer dans l'épreuve du feu. Le prieur de Saint-Marc se trouve ainsi vaincu par le plus simple de ses frères. Consummatum est. Le peuple ne croit plus en lui. On fausse les votes à la Seigneurie. La foule se rue contre le vaincu, l'accable de coups et d'outrages, en attendant qu'il se renie lui-même dans la chambre de torture. Le repos ! Le repos ! Il implore le coup de grâce.
 
@@ -278,13 +203,7 @@ Encore un prodige pourtant avant le dernier sommeil. Sandro Botticelli et France
 
 Restons-en là. Sur cette parole d'espérance, je veux fermer le beau livre de M. Trarieux. C'est une grande pensée de ce jeune homme de nous avoir offert, à l'heure
 
-[p. 35]
-
 précise où nous sommes, de hautes méditations sur les grands vaincus de l'Histoire. D'autres s'offraient en foule. J'aurais voulu montrer le lien profond des âmes dans les trois drames qu'il a choisis. Le lecteur se lasserait de tant d'articles sur le même sujet. Je saurai me borner. Il me suffit d'avoir fait entrevoir que toutes ces accumulations de défaites sont des victoires en devenir et qu'il n'y a jamais de vaincus historiquement que ceux qui ont tort. Que M. Trarieux, surtout, soit remercié de nous avoir donné la forte joie de sa poésie, de sa pensée. Il y a encore une jeunesse en France. Espérons.
-
-Georges Clemenceau
-
-[p. 36]
 
 de la messe, faire une visite de politesse à l'église : autrement, lui écrit-on, son mari perdra toute sa clientèle catholique.
 
@@ -292,13 +211,9 @@ Petits faits très significatifs : ils démontrent que l'Église n'a pas changé
 
 Dans la petite ville unanimement catholique, de graves dissentiments séparent les croyants. Une lutte ardente est engagée entre l'évêque et la congrégation, entre les catholiques républicains et les catholiques antirépublicains. Je n'ai pas assisté aux premières hostilités de l'évêque, M. Geay, et des Pères de Pontigny ; à la fermeture des chapelles du collège libre, l'Immaculée Conception, par l'autorité épiscopale ; aux manifestations des élèves du collège et des jeunes catholiques royalistes sifflant et huant leur prélat. En 1902 la bataille continue dans les journaux, dans les
 
-[p. 37]
-
 conversations : sur la personnalité de l'évêque, sur sa valeur morale, sur les causes de la campagne menée contre lui, deux thèses s'opposent radicalement.
 
 La thèse des adversaires de l'évêque est exprimée, entre autres, dans une brochure d'Albert Monniot, — de la Libre Parole, — intitulée l'Apôtrat de Laval. Avec une extrême violence, l'auteur attaque « l'évêque indigne, impudique, rebelle au pape, faussaire et excommunié » (page 2). Il lui reproche sa platitude devant le pouvoir et son immoralité. « C'est son indignité même qui le maintient à la tête du diocèse de Laval » (page 3). « Le prélat s'est dépouillé du prestige et de l'autorité inhérente à sa mission sacrée pour endosser la livrée chamarre du plus plat des fonctionnaires de Waldeck et Millerand » (page 5). En ce qui concerne l'immoralité de l'évêque, citons les passages les moins orduriers de la brochure : « C'est pendant qu'il était curé à Lyon que l'abbé Geay amène une novice du couvent des sœurs de Saint-Vincent-de-Paul à jeter la robe de bure aux orties... C'est cette novice qui devait suivre la fortune de l'abbé Geay, travestie en marraine ou noyau lors de l'installation à Laval » (pages 5-6). « La marraine, que l'évêque faisait passer pour sa parente, habitait des mois entiers l'évêché dans une chambre contiguë à celle de monseigneur, » etc., etc. (page 9). « Parlant de l'abbé Geay, un nonce s'écriait, navré : « C'est un « cochon au milieu des lys ! » (page 7). L'accusation se précise à propos d'un incident survenu au couvent des Carmélites, qui fit grand bruit à Laval : « Au moment de la retraite et l'évêque s'enferma dans leurs cellules avec les novices pour les confesser... Un jour, une novice s'enfuit de sa cellule, échevelée, n'ayant certainement
-
-[p. 38]
 
 pas la vocation que lui supposait l'évêque. La prieure dut aviser aux moyens de sauver le Carmel, et pendant de longs mois, elle dut subir seule les assauts du zèle épiscopal. On ne pourrait écrire cette page de l'histoire du Carmel que dans le huis clos de la Cour d'assises. De ce siège d'une sainte religieuse, il reste des preuves tangibles. Un jour, pour en finir, la Prieure se détermina à un éclat : deux de ses compagnes assistèrent à l'un de ses entretiens avec l'évêque, et lui donnèrent pour conclusion une exclusion en bonne et due forme accompagnée de l'ordre formel de ne plus remettre les pieds au Carmel. L'autorité supérieure, après enquête, ratifia cette expulsion, et le Carmel fut directement placé sous la juridiction de Monseigneur de Tours » (pages 10-11). L'auteur cite à l'appui de sa thèse une lettre singulière du propre père de la Prieure ou celui-ci écrit : « Il a fallu que je lise la correspondance de cet indigne prélat pour croire à sa monstrueuse duplicité. Ce que vous nous dites par ailleurs est, hélas ! la vérité, mais bien atténuée ! » (page 13).
 
@@ -306,13 +221,9 @@ Cependant beaucoup de catholiques républicains défendent leur évêque contre 
 
 Il est difficile de résoudre avec certitude ce petit pro-
 
-[p. 39]
-
 blème d'histoire locale. Pour ma part, interprétant les affirmations très nettes des personnes les mieux informées, je serais assez porté à croire que plusieurs des accusations dirigées contre l'évêque sont bien fondées, particulièrement en ce qui concerne l'affaire du Carmel. La culpabilité de l'évêque est la seule hypothèse qui explique tous les incidents, souvent fort comiques, de la lutte. — Par exemple, tout le monde croit à Laval que la supérieure du Carmel a pour ami très intime le chanoine républicain qui écrit au Journal de Laval ; un jour, paraît-il, des jeunes gens l'ont surpris quittant le Carmel à trois heures du matin ; ils l'ont attaqué à coups de bâton et meurtri au point qu'il dut garder quinze jours la chambre. Au cours de la lutte, l'évêque met en interdit le chanoine ami du Carmel ; la supérieure du Carmel se garde de démentir les accusations portées contre l'évêque, auxquelles son nom est mêlé. En octobre 1901 paraissent, le même jour, un ordre de l'évêque levant l'interdit prononcé contre le chanoine, et une lettre de la supérieure assurant l'évêque de ses respects. Tout le monde remarque la coïncidence, et pense que la lettre de la supérieure paye la levée de l'interdit prononcé contre son ami.
 
 En tout cas, il est certain que les cléricaux auraient fait le silence sur ce qu'ils appellent « l'indignité » du prélat, si celui-ci avait consenti à adopter une politique antirépublicaine. A un moment où les Pères de Pontigny crurent que l'évêque renonçait à la lutte, ils lui écrivirent une lettre l'assurant de leur « religieux respect » et de leur « obéissance filiale ». Albert Monniot, qui cite la lettre, ajoute que l'évêque « avait fait, pour l'obtenir, les plus belles promesses » (même
-
-[p. 40]
 
 brochure, page 29). S'il avait tenu ces prétendues promesses, s'il avait consenti à servir la cause des adversaires de la République, sans aucun doute les attaques contre lui auraient cessé. Il est donc bien vrai que l'immoralité du prélat n'a été que le prétexte de la campagne cléricale ; la raison véritable en est le loyalisme républicain de l'évêque.
 
@@ -326,39 +237,25 @@ Si les prêtres qui vont succéder aux Pères de Pontigny obtiennent la confianc
 
 Ce sont des prêtres de chez nous, que nous avons pu voir à l'œuvre, qui n'ont pas dissipé leur existence entre les bords du lac de Genève et les rivages de la Méditerranée, et qui heureusement ne sauraient être compromis par le patronage d'un Geay.
 
-(Mayenne, 31 septembre 1901)
-
 Le même journal catholique décrit ainsi la platitude de l'évêque devant les moindres fonctionnaires :
 
 Au seul nom du préfet, tout l'être de l'Illustrissime Pierre-Joseph tressaille. Le moindre désir de son collègue noir est pour le préfet violet un ordre. Qui ne l'a vu,
 
-[p. 41]
-
 notre préfet violet, plat comme une punaise en face d'un lourdaud magistrat rural ?... Qui n'a été témoin des courbettes de notre mitré en présence du pauvre maire épaté, ébahi ?
-
-(Mayenne, 14 décembre 1901)
 
 Le royaliste Courrier du Maine raconte ainsi les réceptions du premier janvier :
 
 Le premier janvier
 
-A L'ÉVÊCHÉ
-
 L'expulsé du Carmel a eu soin de publier dans la Semaine dite religieuse la liste des personnes qui se sont présentées à l'Évêché le premier janvier.
-
-Excellente idée !
 
 Cette liste n'est pas longue, et il suffit de la parcourir pour constater à quel point le Préfet violet est tombé bas dans l'estime de ses diocésains : des fonctionnaires, rien que des fonctionnaires, c'est-à-dire des hommes qui étaient contraints et forcés à saluer celui qui figure l'évêque de Laval.
 
 Quel contraste avec les réceptions du jour de l'an, au temps où ce n'était pas un citoyen-évêque, mais des prélats en communion avec Rome qui résidaient à l'Évêché !
 
-A LA PRÉFECTURE
-
 La Pierre-Joseph s'est retrouvé dans son élément. A l'aspect du représentant du Pouvoir, il plongea trois fois par des révérences progressivement profondes, si bien qu'à la troisième son occiput faillit se faire une bosse contre la peigne du sabre de bois préfectoral ; puis il laissa couler son éloquence.
 
 Prenant pour texte et dénaturant, suivant son habitude, la parole d'un illustre et austère protestant, il entreprit d'expliquer quel respect, quelle soumission les ministres de l'Église catholique doivent avoir à l'égard de la République actuelle, maçonnique, juive, dreyfusarde et athée. Alors M. le Préfet répondit.
-
-[p. 42]
 
 Quoiqu'il soit habitué aux platitudes de son Illustrissime compère et ami, il n'en est pas blasé. Il n'a donc pas manqué d'exprimer ses remerciements . . . . .
 
@@ -376,8 +273,6 @@ M. l'abbé B... était venu, envoyé tout exprès par notre épiscopal auvergnat
 
 Si l'attitude républicaine de l'évêque provoque les attaques violentes des réactionnaires cléricaux, elle lui mérite en revanche l'énergique appui du préfet. Le plus cordial accord règne à Laval entre le pouvoir spirituel et le pouvoir temporel. Même la loi sur les associations n'a pas réussi à rompre cette entente. Il y a eu concessions réciproques. Par exemple, quand la loi fut votée, le Carmel de Laval se transforma en société civile ; la supérieure quitta le vêtement religieux, s'habilla en femme du monde, se fit appeler sur ses cartes de visite : « Supérieure de l'ex-Carmel, en son hôtel, rue du Paradis. » Ce fut le seul changement accompli dans la pieuse maison, — ironique destinée des lois républicaines : les Ministres, les Députés, les Sénateurs travaillent et discutent pendant des mois,
 
-[p. 43]
-
 gravement ; le seul résultat de leurs efforts, c'est d'obliger la supérieure d'un couvent à modifier la couleur de sa jupe...
 
 Seuls les adversaires politiques de l'évêque et du préfet protestent contre la loi sur les associations, au nom de la liberté. Le libéralisme catholique consiste à réclamer la liberté pour les catholiques. Dans plusieurs usines, les patrons contraignirent leurs employés et leurs ouvriers à signer des protestations contre la loi « tyrannique ». La plupart consentirent, craignant, s'ils refusaient, d'être renvoyés. Un ouvrier, anticlérical, me disait, les yeux humides : « J'ai dû donner mon nom ; j'ai quatre enfants à nourrir. » — Ainsi furent signées à Laval les pétitions catholiques invoquant la liberté.
@@ -387,8 +282,6 @@ la vie administrative, l'enseignement
 L'entente cordiale de la Préfecture et de l'Évêché, c'est le trait le plus significatif de la vie administrative à Laval. Double ralliement : ralliement de l'évêque à la République préfectorale ; ralliement du préfet au catholicisme épiscopal.
 
 La grande pensée du préfet paraît être de constituer, à égale distance des cléricaux réactionnaires et des républicains avancés, un parti républicain modéré, sympathique au catholicisme et, au point de vue social, résolument conservateur. Il s'agit de faire accepter à une population timide le mot seul de République, en le vidant de tout contenu proprement républicain. La formule républicaine devient alors la plus conservatrice de toutes, la mieux adaptée à une population
-
-[p. 44]
 
 molle et passive. Les royalistes eux-mêmes, puisqu'ils veulent changer quelque chose à la société actuelle, prennent une allure révolutionnaire, quand on les compare aux républicains lavalois.
 
@@ -402,8 +295,6 @@ Ces paroles discrètes résument tout un programme. Le préfet veut plier ses fo
 
 De tous les services publics, c'est l'enseignement qui porte surtout la marque de la politique préfectorale.
 
-[p. 45]
-
 C'est aussi celui où il est le plus facile de distinguer la pression de l'opinion publique catholique. L'Église exerce une influence presque égale sur les écoles laïques et sur les écoles libres : pourquoi n'arriverait-elle pas à réaliser, sous une République nominale, son rêve de domination spirituelle et de tyrannie politique ? L'enseignement primaire n'est qu'à demi laïcisé. Il y a des crucifix dans toutes les écoles laïques de la ville, sauf une, et dans toutes celles du département. Les instituteurs et institutrices sont tenus de faire la prière plusieurs fois par jour et d'enseigner à l'école même le catéchisme. Dans l'emploi du temps pour l'enseignement moral et civique, un mois sur dix est consacré à l'étude des devoirs envers Dieu. Les adjoints et adjointes sont obligés d'accompagner leurs élèves, de l'école à l'église, non seulement aux processions, mais tous les dimanches matin à la messe, et tous les dimanches soir aux vêpres. Une adjointe, de famille non religieuse, me disait : « Je ne vais à l'église que depuis que je suis institutrice laïque. » (1)
 
 L'esprit de l'enseignement surtout est profondément catholique. L'inspecteur d'Académie, à l'occasion d'une œuvre de charité, vante ceux qui s'en sont occupés, et termine ainsi son discours :
@@ -413,8 +304,6 @@ Ils auront à leur heure dernière, selon le mot du grand poète que l'on vient 
 (Avenir de la Mayenne, 11 janvier 1903)
 
 (1) Ces faits, exacts en 1901-1902, ne sont plus tous vrais pour 1904. Ainsi les adjoints et adjointes ont réussi à faire supprimer à Laval le service supplémentaire du dimanche pour la messe et les vêpres.
-
-[p. 46]
 
 A l'inspection académique, on recommande aux rares institutrices protestantes envoyées dans l'intérieur du département, d'aller dès leur arrivée faire une visite au curé du village. — La Petite République du 6 juillet 1902 raconte le fait suivant, qui est authentique :
 
@@ -434,19 +323,13 @@ L'année prochaine, on se propose d'ouvrir à Laval des cours d'enseignement sec
 
 — Oui, je ne nommerai qu'une catholique.
 
-(Petite République, 6 juillet 1902)
-
 Des cours du soir et conférences populaires ont été organisés par l'inspecteur d'Académie, certains professeurs du lycée, quelques notables de la ville. Systématiquement on ne demande de conférences sociales ou philosophiques qu'aux catholiques déclarés. Un professeur du lycée, catholique pratiquant, intelligent et sincère, — qui a le rare courage, à Laval, d'être dreyfusard, — utilise ces conférences populaires à faire une apologie hardie et insinuante du christianisme. Un hiver, il parle de la devise républicaine :
-
-[p. 47]
 
 liberté : l'homme n'est libre qu'en se subordonnant à Dieu ; il faut choisir entre Dieu et César, « Nous ne voudrions pourtant ni de l'un ni de l'autre, » me disait un ouvrier. La conférence sur l'égalité se termine par une prosopopée en l'honneur du Christ. En l'hiver 1901-1902, le même conférencier étudie, dans le même esprit, « l'éducation de troisième, quatrième et cinquième État » : bourgeois ; ouvriers ; vagabonds. Les ouvriers se sentent médiocrement fiers d'être considérés comme une classe intermédiaire entre les capitalistes et les va-nu-pieds... Dans l'une de ces conférences, l'orateur critique l'institution des bourses, et il représente la plupart des boursiers, venus du peuple, comme intelligents, mais manquant de conscience. Dans une autre, citant un passage de l'Évangile, il ajoute : « Sans doute une démocratie méprise cette leçon parce que c'est un Dieu qui l'a donnée... » — Un autre professeur du lycée, parlant sur la tolérance, développe complaisamment ce thème, que le catholicisme n'a pas été plus intolérant que les autres religions et les autres philosophies ! — Le ton même de ces conférences populaires suffirait à en indiquer l'esprit conservateur : on y garde la forme oratoire et prétentieuse de la prédication catholique, au lieu de parler avec cette simplicité élégante qui convient en une démocratie.
 
 Les ouvriers, nombreux aux premières conférences, se rendirent vite compte de l'esprit clérical et bourgeois qui animait l'œuvre ; ils cessèrent de venir, et commencèrent à souhaiter la création d'une Université Populaire d'esprit laïque, républicain, prolétarien.
 
 Sur l'enseignement secondaire, même influence du catholicisme. Certains professeurs appellent plaisan-
-
-[p. 48]
 
 ment le lycée « notre petit séminaire ». Il y a des croix dans toutes les classes, dans tous les dortoirs. (1) Le lycée prend une grande part aux cérémonies de la Fête-Dieu. Après le proviseur, l'aumônier est le personnage le plus influent. Les internes catholiques doivent assister à la messe non seulement le dimanche, mais le jeudi. Les élèves qui n'accomplissent pas leurs devoirs religieux se prétendent mal notés par l'administration. — Chaque année au palmarès fixe la date de la messe du Saint Esprit et ajoute : « Les externes devront y assister. » L'instruction religieuse, au lieu d'être placée, comme ailleurs, parmi les cours accessoires, occupe les premières pages du palmarès ; en 1902, il n'y a pas moins de 30 prix et 60 accessits d'instruction religieuse ou catéchisme.
 
@@ -456,15 +339,9 @@ Chargé du discours à la distribution des prix du
 
 (1) Les journaux ont annoncé que l'administration a fait enlever les croix du lycée de Laval en octobre 1903.
 
-[p. 49]
-
 lycée, le professeur de philosophie, dans le projet remis à l'administration, paraît mettre en doute les châtiments et les récompenses d'une vie future ; il reçoit l'ordre suivant : « Atténuez ce passage, où l'on pourrait voir une négation de l'immortalité, alors que le mot est encore sur les programmes de votre enseignement. » Comme si la position du problème impliquait nécessairement une solution affirmative ! D'autre part il a nommé ensemble, parmi les philosophies dont procède notre morale, le bouddhisme, le socratisme, le christianisme ; on lui demande, par écrit, de supprimer le mot christianisme : « Vous ne pouvez, dans un discours de distribution des prix, mettre le christianisme sur le même rang que les autres religions ou que des doctrines purement humaines. » — L'amusant de l'histoire, c'est qu'à la sortie de la séance, l'aumônier se plaint au professeur de n'avoir pas entendu nommer le catholicisme parmi les doctrines dont procède notre morale actuelle ; et le journal royaliste, le Courrier du Maine, lui demande assez justement si le christianisme n'a pas agi sur nos croyances plus que l'hindouisme et le bouddhisme. — Courrier du Maine, 10 août 1902. — Mais ce petit fait, s'il est comique, est instructif aussi ; la formule employée caractérise à merveille l'état d'âme qui domine encore dans les milieux gouvernementaux de l'ouest de la France : le christianisme ne peut pas être considéré comme une religion purement humaine ; il est encore officiellement la religion divine, la vraie religion. C'est l'affirmation du catholicisme religion d'État. C'est la négation la plus brutale de tout esprit laïque, de tout esprit scientifique, de toute histoire impartiale, de toute libre philosophie.
 
-[p. 50]
-
 Comment arrivera-t-on à faire pénétrer à Laval la civilisation laïque ? Comment pourra-t-on faire sentir aux Lavalois l'incomparable valeur de l'esprit laïque ? Sans doute en insistant moins sur ce qu'il détruit que sur ce qu'il fonde. L'esprit laïque affirme la double nécessité d'une science sincère et d'une morale sans étroitesse. — La science laïque est exactement sincère ; elle n'a pour objet que de connaître et de faire connaître la réalité telle qu'elle est ; aucune doctrine, aucune tradition ne limite ni n'influence la libre recherche. — La morale laïque est infiniment large en sa méthode : elle tâche de découvrir, en les traditions philosophiques et religieuses les plus diverses, « l'âme de vérité », l'âme de bonté, cachée sous les symboles obscurs ; et elle interprète les expériences morales des grands sages et des grands saints à la lueur de la conscience, qui nous révèle comment la vie morale se développe en chacun de nous. Infiniment large en sa méthode, elle est encore infiniment large en ses conclusions : elle ne condamne que l'inintelligence et l'étroitesse de l'égoïsme ; elle oppose à la vie étroite de l'égoïste, vivant, comme l'animal, pour les seuls plaisirs de son corps, la vie large de l'homme réfléchi, trouvant son bonheur à vivre pour les grandes réalités supra-individuelles qui l'entourent, la famille, la nation, l'humanité, l'univers. — Devant l'esprit laïque s'ouvrent les horizons immenses d'une science et d'une morale que rien ne limite. L'esprit laïque consiste à ne laisser aucune réalité en dehors de notre compréhension et de notre sympathie. Aucun idéal ne saurait être plus vaste : tout comprendre et tout aimer. — « L'homme n'est produit que pour l'infinité. » L'esprit laïque pro-
-
-[p. 51]
 
 cède du besoin fondamental qu'éprouve l'homme, d'étendre à l'infini sa personnalité finie, par la connaissance et par l'amour.
 
@@ -475,8 +352,6 @@ A Laval et dans la Mayenne, le niveau de la vie politique est très bas. C'est l
 Ouvertement, cyniquement, le candidat cherche à attirer, l'élu cherche à retenir l'électeur en s'adressant à ses appétits les plus grossiers. Aux réunions publiques tenues pendant les campagnes électorales, le candidat a l'habitude d'offrir à ses auditeurs des bolées de cidre, parfois il les autorise à aller chercher, à ses frais, chez le charcutier du village, des pots de rillettes. Le comte d'Elva, député depuis plus de treize ans, tient sa circonscription par les services qu'il rend à ses électeurs, utilisant à leur profit ses relations avec les grands propriétaires, avec les prêtres, avec les officiers de la garnison, avec l'administration de la Compagnie de l'Ouest, — jadis même, au temps du ministère Méline, avec la Préfecture.
 
 Tout autant que les réactionnaires, les républicains font appel aux intérêts les plus bas des électeurs. Voulant faire nommer au conseil d'arrondissement un certain M. Lesellier, républicain, contre un certain M. Brochard, conservateur, le journal républicain, l'Avenir de la Mayenne, publie une prétendue lettre de cultivateurs, écrite dans les bureaux du journal,
-
-[p. 52]
 
 et exprimant avec naïveté des sentiments fort répandus :
 
@@ -492,14 +367,11 @@ Une autre lettre de cultivateurs constate que les deux candidats protestent cont
 
 Non seulement M. Brochard ne peut rien contre l'application de ces lois, mais il ne sera même pas capable d'arrêter un procès ou d'en faire adoucir la peine lorsque la loi sur les bouilleurs sera mise à exécution ; tandis que M. Lesellier... dame !... Ne croyez-vous pas qu'il aura plus
 
-[p. 53]
-
 d'influence ?... C'est encore pour cette raison que nous voterons tous pour lui.
 
 Propriétaires, bouilleurs de cru, — cultivateurs, ouvriers, votez pour M. Lesellier, il y va de votre intérêt !...
 
 Vos dévoués serviteurs,
-Plusieurs cultivateurs
 
 (Avenir de la Mayenne, 15 mars 1903)
 
@@ -509,11 +381,7 @@ Le conseil municipal de Laval est, dans son ensemble, républicain très modér�
 
 En avril 1902 ont lieu les élections législatives. Dans la première circonscription, le député sortant est le comte d'Elva, qui se représente. Une fois de plus
 
-[p. 54]
-
 il sera « le candidat des services rendus ». Sûr de son succès, il se contente de faire afficher et distribuer la proclamation suivante :
-
-ÉLECTEURS,
 
 Voici treize années que je suis votre mandataire au Parlement, c'est dire que je suis parfaitement connu de vous.
 
@@ -543,8 +411,6 @@ Sous prétexte de favoriser l'ouvrier, il a fait voter des lois qui ne sont qu'u
 
 Si vous ne mettez un frein à ce débordement de passions honteuses et malsaines, gare l'avenir!
 
-Électeurs,
-
 Vous pouvez comme toujours compter sur moi.
 
 Je reste le candidat de la République tolérante et libérale; de la République patriote; en un mot, de la République française.
@@ -559,12 +425,9 @@ A bas les Dreyfusards!
 
 A bas le Ministère!
 
-CHRISTIAN D'ELVA,
 Maire de Changé,
 Conseiller général de Laval-Ouest,
 Député de la Mayenne.
-
-[p. 55]
 
 Il n'y a peut-être pas en toute la France une proclamation aux électeurs plus bête et en même temps plus cavalière et méprisante que celle du comte d'Elva : pas une idée ; pas l'indication du moindre projet de réforme ; un appel brutal au fanatisme, à l'intolérance, à la stupide crédulité.
 
@@ -572,13 +435,9 @@ Aucun républicain modéré n'ose se présenter contre le comte d'Elva.
 
 Le petit groupe socialiste, qui comprend l'élite des ouvriers et employés syndiqués, et deux ou trois bourgeois, décide d'organiser une candidature de propagande. Le candidat sera un cordonnier, le citoyen Lanslin, conseiller municipal ouvrier, vice-président de l'Université Populaire. — On fait venir de Paris les affiches du Comité général : Déclaration de principes
 
-[p. 56]
-
 et Programme de Réformes. Que les électeurs lisent et discutent ces affiches, c'est tout l'intérêt de cette campagne de propagande. Un zèle extraordinaire anime les militants. A la fin de la longue journée de travail, une fois la nuit tombée, des ouvriers, des employés, vêtus de blouses blanches, circulent mystérieusement, portant des pots de colle, affichant partout des proclamations socialistes. Quelques-uns, à cette besogne, passent la moitié de la nuit. Beaucoup d'affiches sont lacérées ou recouvertes : il faut constamment recommencer le même travail. — Le dimanche, les militants vont dans les villages coller les affiches socialistes : les paysans les regardent faire, parfois avec malveillance, parfois avec une ironique curiosité. — Le secrétaire du Syndicat du Bâtiment rentre à Laval, un dimanche soir, brisé de fatigue ; il me raconte les incidents de la journée. Dans un village où il a posé une affiche juste à la sortie de la messe, un paysan le suit, l'aborde et lui demande : « Combien qu'on vous paye pour ce travail ? » Le maçon calcule qu'ayant dû déjeuner dehors, il dépensera, sans avoir rien gagné, une vingtaine de sous de plus qu'à l'ordinaire. Le paysan ne comprend pas. Alors l'ouvrier, âme ardente, essaie de lui faire sentir la généreuse espérance qui l'anime ; mais il n'est pas orateur, les mots lui manquent. « C'est pour le Parti, comprenez-vous? c'est pour l'Idée... »
 
 Les partisans exclusifs de l'action syndicale ou coopérative condamnent l'action politique sous prétexte qu'elle est toujours automatique et machinale, — ne consistant jamais qu'à compter des bulletins dans des urnes. — C'est méconnaître les efforts positifs des
-
-[p. 57]
 
 libres individus qui, dans la petite ville, luttent peu nombreux contre la majorité compacte. Il faut un beau déploiement d'énergies viriles, pour arriver à grouper, à Laval, plusieurs centaines de voix sur un programme socialiste...
 
@@ -590,8 +449,6 @@ Le 27 avril, le comte d'Elva est élu par 11.374 voix contre 2.367 voix au candi
 
 A la mairie, où sont proclamés les résultats du vote, je rencontre le secrétaire de la Bourse du Travail ; il me
 
-[p. 58]
-
 dit, avec un calme énergique : « Il faut continuer à travailler ; il faut piocher les cerveaux. »
 
 Dans la deuxième circonscription, le député sortant est M. Heuzey, qui s'intitule radical. Contre lui la campagne est vivement menée par un candidat nationaliste, ancien officier de cuirassiers, M. Dutreil.
@@ -601,8 +458,6 @@ Des incidents singuliers animent cette violente campagne électorale. M. Heuzey,
 Le préfet songe quelque temps à demander l'invalidation du député nationaliste ; puis, craignant un nouvel échec, il cesse de la conseiller. Un groupe d'électeurs de M. Dutreil, à Evron, écrit à ce propos au Patriote de la Mayenne :
 
 On prête ici à M. Heuzey l'intention de faire invalider l'élection de M. Maurice Dutreil, notre nouveau député. Je ne sais si c'est vrai, mais, si oui, jamais cette phrase latine : Lasciate ogni speranza, ce qui veut dire en français :
-
-[p. 59]
 
 « Laissez toute espérance », n'aura si bien trouvé son emploi. (Je traduis, car bien qu'il soit apprenti avocat, M. Heuzey ne sait peut-être pas le latin.)
 
@@ -618,25 +473,17 @@ la classe ouvrière; le mouvement syndical
 
 A Laval, la classe ouvrière est en général dans une situation très précaire. C'est à l'industrie du coton qu'appartiennent la plupart des ouvriers. Quatre
 
-[p. 60]
-
 grandes usines mécaniques de tissage, une grande filature, une dizaine de petites maisons. Il y a 2.200 travailleurs du coton, 50 hommes, 1.300 femmes, 850 enfants. L'industrie reste stagnante par suite de la mollesse des industriels ; les salaires sont extrêmement bas. « Quand ils travaillent, les hommes gagnent 3 francs en moyenne, les femmes 1 franc 50, les enfants 0 franc 75 ; et beaucoup ne gagnent que : hommes, 1 franc 50 ; femmes, 1 franc ; enfants, 0 franc 60. » Et ils chôment souvent. « Avec le chômage actuel, il y a des chefs de famille qui n'ont gagné que 5 francs, non pas par jour, mais par quinzaine. »
 
 Dans les autres métiers la situation n'est pas beaucoup plus satisfaisante. Les ouvriers cordonniers « travaillent à domicile quatorze heures en moyenne et gagnent environ 2 francs 50 par jour... Une des fabriques chôme trois mois par an ». Les maçons qui, en vertu du tarif syndical accepté par les patrons, mais non appliqué, devraient gagner 3 francs 50 en ville, « sont obligés d'aller travailler à la campagne pour 2 francs 25 ». (1)
 
 Il y a peu d'années que quelques ouvriers socialistes ont commencé à prêcher l'idée syndicale. Ces ouvriers socialistes sont des esprits libres et des consciences audacieuses. Dans beaucoup de grandes villes c'est passivement et sous l'influence du milieu qu'on peut arriver à professer les opinions les plus révolutionnaires ; à Laval, pour être socialiste, il faut avoir rompu avec bien des préjugés, et méprisé bien des craintes ; il faut avoir réfléchi personnellement, et oser vouloir.
 
-(1) Pages libres, 15 novembre 1902.
-
-[p. 61]
-
 Quelques ouvriers socialistes commencent à organiser en syndicats la classe ouvrière. En même temps, grâce à l'appui de certains radicaux, ils exigent que la liste républicaine, aux élections municipales, contienne quelques noms d'ouvriers et de socialistes : celui d'un docteur socialiste, entre autres, dont l'entraîn et l'activité sont connus et aimés de tous les travailleurs. Les républicains se résignent à cette concession pour obtenir les voix ouvrières ; la liste ainsi formée est élue. Bien que ce conseil municipal soit dans son ensemble plus que modéré, les conseillers municipaux ouvriers et socialistes lui arrachent une subvention de 2.000 francs pour la Bourse du Travail. A ce moment, la classe ouvrière, qui commence à s'organiser, ne possède absolument rien en commun ; la subvention municipale est indispensable. L'action politique communale, dans ce cas particulier, a seule rendu possible l'action syndicale. Au lieu de comparer et d'opposer les mérites relatifs de ces deux formes d'action, comme aiment à le faire certains théoriciens socialistes ou syndicalistes, les ouvriers lavalois ont eu la sagesse d'utiliser ensemble tous les moyens pratiques d'améliorer leur situation et de préparer un avenir meilleur.
 
 La Bourse du Travail réunit six syndicats : le Livre, le Bâtiment, l'Industrie cotonnière, la Chaussure, les Employés, les Marbriers. Le syndicat des cotonniers comprend 700 membres, hommes et femmes : Laval est une des villes de France qui compte le plus de femmes syndiquées.
 
 Au secrétariat de la Bourse, les travailleurs ont la sagesse de placer celui de leurs camarades qui mérite le mieux de les représenter : un ouvrier d'une rare intel-
-
-[p. 62]
 
 ligence pratique et d'une belle activité ; un socialiste en qui l'on a la joie de découvrir un précieux mélange d'ardeur révolutionnaire et de bon sens.
 
@@ -646,8 +493,6 @@ Tandis que progresse le mouvement syndical, quelques travailleurs commencent à 
 
 En octobre 1901, un jeune professeur de philosophie arrive à Laval, débutant dans l'enseignement après un an de séjour en Allemagne et en Angleterre, et deux ans de voyage autour du monde. Il souhaite d'échapper, par l'action, à la morne oisiveté provinciale ; parmi toutes les joies de la vie, il préfère ses émotions, nommées par Angèle sacrifice, qui se mêlent à l'action, à la lutte contre l'indifférence des choses et la méchanceté des hommes ; socialiste enfin, il désire travailler à répandre ses croyances, surtout parmi les
 
-[p. 63]
-
 travailleurs, dans la petite ville inconnue où le hasard l'a envoyé.
 
 Il comprend vite l'impossibilité de faire œuvre utile aux conférences populaires officielles, d'un esprit étroitement bourgeois, où les ouvriers ne viennent plus. — Un jour il exprime à un de ses collègues du lycée son désir de mettre au service des travailleurs les connaissances acquises dans les livres et par les voyages. Le professeur plus ancien, lavalois de naissance, prévient aimablement du danger son jeune camarade : « Vous ne connaissez pas notre ville : un professeur qui irait à la Bourse du Travail faire des conférences aux ouvriers syndiqués serait à tout jamais compromis. L'opinion publique le condamnerait. — Laval est comme une ville entourée d'une haute muraille, fermée aux agitations du dehors. Tous les pouvoirs sont d'accord à maintenir ce calme : l'Église, la Préfecture, la Mairie, l'Université. Le poids formidable des autorités de tout ordre écraserait l'individu coupable de troubler la fête paisible... N'allez pas à la Bourse du Travail : vous ne resteriez pas ici plus d'un an. »
@@ -656,8 +501,6 @@ Ces paroles, destinées à arrêter le jeune philosophe, l'encouragent à agir. 
 
 Alors il se rend d'un pas léger à la Bourse du Travail, cause longuement avec le secrétaire, se met à sa disposition pour les conférences que les syndicats pourront vouloir organiser. — Quelques jours après, une réunion a lieu à la Bourse, dans une petite salle, ornée d'affiches syndicalistes et antialcooliques, et de la
 
-[p. 64]
-
 Déclaration des Droits de l'Homme. Tous les secrétaires de syndicats sont là, avec le docteur conseiller municipal socialiste, et le jeune philosophe. Tous sont unanimes à vouloir la fondation d'une U. P. Le docteur promet de trouver l'argent nécessaire à la location d'une grande salle, dans le local même de la Bourse, pendant trois mois. On décide d'exiger des adhérents une cotisation, mais extrêmement minime : car toute cotisation un peu élevée empêcherait de venir à l'U. P. les ouvriers, si mal payés, de l'industrie textile ; la cotisation est fixée à dix centimes par mois. On décide de ne demander aucune subvention aux pouvoirs publics, ni aux hommes politiques, ni à ceux des bourgeois qui ne viendraient pas spontanément se faire inscrire à l'U. P. — Les ouvriers déterminent eux-mêmes, tenant compte des circonstances locales, les jours et heures des conférences ou lectures ; ils discutent les noms des conférenciers possibles, éliminent les uns, approuvent les autres. On demande des conférences au professeur de mathématiques élémentaires du lycée, dont les sentiments démocratiques sont connus ; à un jeune avocat qui, sans être socialiste, a consenti souvent à défendre les ouvriers victimes d'accidents du travail.
 
 En quelques jours, l'U. P. en formation recrute quatre-vingts membres, ouvriers et employés.
@@ -665,8 +508,6 @@ En quelques jours, l'U. P. en formation recrute quatre-vingts membres, ouvriers 
 Le 15 décembre a lieu solennellement, à la Mairie, l'inauguration de l'Université Populaire. — On vote les statuts :
 
 « ARTICLE PREMIER. — Il est fondé, sous les auspices de la Bourse du Travail de Laval, une Association
-
-[p. 65]
 
 laïque dite l'Éducation mutuelle. Elle se propose de développer l'enseignement populaire supérieur...
 
@@ -679,8 +520,6 @@ laïque dite l'Éducation mutuelle. Elle se propose de développer l'enseignemen
 « ARTICLE XIX. — Tous les travaux commandés par l'Association devront être exécutés par des ouvriers syndiqués. »
 
 En même temps que l'Assemblée générale vote les statuts, elle nomme le comité d'administration. Président : le professeur de philosophie ; vice-président : un cordonnier, conseiller municipal ouvrier ; secrétaire : un typographe ; secrétaire-adjoint : l'avocat ; trésorier : le
-
-[p. 66]
 
 docteur ; trésorier-adjoint : un typographe. Membres : le secrétaire de la Bourse, le professeur de mathématiques, un employé de l'industrie cotonnière, un menuisier, un cordonnier, un maçon. — Ainsi, sur les douze membres du comité, huit sont des ouvriers ou employés syndiqués.
 
@@ -696,15 +535,11 @@ L'esprit en sera républicain. Les statuts de l'Université Populaire Lavaloise 
 
 Les ouvriers, les employés, les paysans, les travailleurs manuels de tout genre constituent l'immense majorité des nationaux, la plus grande part de la nation. En vertu de la doctrine républicaine, c'est eux qui devraient diriger la
 
-[p. 67]
-
 nation. Si, en fait, ils ne la dirigent pas encore, c'est que les travailleurs ne sont pas assez instruits pour tirer parti du pouvoir que leur accorde la constitution républicaine. La doctrine républicaine exige donc que les travailleurs soient instruits : l'Université Populaire est une conséquence nécessaire du principe républicain. Jeunes sommes, dit M. C..., des républicains qui prenons au sérieux l'idée républicaine, qui ne la considérons pas comme morte ou épaissie, mais comme vivante et féconde en conséquences nouvelles ; nous nommons des républicains qui travaillent à l'éducation populaire pour réaliser plus exactement la République, le gouvernement de la nation par la nation.
 
 L'esprit de l'Université Populaire est aussi nettement ouvrier. L'Université Populaire est une association ouvrière travaillant à l'éducation ouvrière, comme le syndicat est une association ouvrière travaillant à la défense des intérêts corporatifs de la classe ouvrière, comme la coopérative est une association ouvrière travaillant à l'abaissement du prix de la vie ouvrière. Ces trois associations ouvrières s'efforcent ensemble d'améliorer la situation matérielle et morale de la classe ouvrière, et d'accroître son influence dans la nation ; elles sont des produits d'un mouvement historique profond et durable, qui fait la grandeur et la beauté de l'époque actuelle. Nous demandons, dit le conférencier, à tous les républicains sympathiques au mouvement ouvrier, de travailler avec nous ; mais nous ne demandons de travailler avec nous qu'aux républicains sympathiques au mouvement ouvrier. (Applaudissements prolongés.)...
 
 Certains ouvriers rêvent déjà d'une Maison du Peuple qui grouperait les bureaux de la Bourse du Travail et des Syndicats, les bureaux et les magasins des coopératives, l'Université Populaire et aussi, sans doute, une buvette de tempérance. Voilà, dit en terminant M. C..., un beau rêve qui sûrement se réalisera un jour. Les beaux rêves ont ceci de bon, qu'ils préparent les belles actions. Aujourd'hui, très patiemment, nous commençons à réaliser un beau rêve. Dans la société actuelle, déchirée par les haines et les intérêts hostiles des individus, nous créons une maison commune,
-
-[p. 68]
 
 une œuvre collective de cordiale camaraderie. Dans la société actuelle, encore si laide, bête et tyrannique, nous créons une union joyeuse et vivante pour la beauté, l'intelligence et la liberté. Dans la société actuelle, tout écrasée sous les forces injustes du passé, nous créons une œuvre qui regarde délibérément vers l'avenir, l'appelle et le prépare.
 
@@ -714,15 +549,11 @@ Fondée en décembre 1901, l'Université Populaire se développe graduellement p
 
 L'Université Populaire réussit parce que les travailleurs ont confiance en elle. Ils s'étaient détournés des conférences populaires organisées par l'administration universitaire, sentant bien l'esprit conservateur qui
 
-[p. 69]
-
 les animait : on n'y cherchait qu'à justifier l'actuelle répartition du travail et de la propriété, qu'à rapprocher les classes dans l'intérêt de la paix sociale, c'est-à-dire du maintien de la société injuste. Au contraire, les travailleurs conscients viennent à l'U. P., parce qu'ils en comprennent bien le caractère révolutionnaire et prolétarien : l'enseignement donné à l'U. P. les rend plus forts pour la lutte contre les iniquités sociales. Les travailleurs se rendent compte qu'après avoir étudié dans un libre esprit les grands problèmes politiques et sociaux, ils seront mieux capables de les résoudre dans l'intérêt de leur classe et dans l'intérêt de l'humanité.
 
 Et ils ont confiance aussi en l'administration de l'U. P., dirigée par un comité de camarades dont les deux tiers sont des ouvriers ou employés syndiqués. Ils ont confiance dans les intellectuels venus travailler avec eux : ceux-ci sont d'un désintéressement incontestable ; dans la petite ville cléricale, c'est par le catholicisme et le modérantisme qu'on arrive, ce n'est pas par le socialisme. Immense avantage pour l'U. P. que les socialistes et les anticléricaux soient une toute petite minorité à Laval. En venant à l'U. P., on se compromet. Ce n'est pas autour de la Bourse du Travail qu'il faut chercher le troupeau des arrivistes.
 
 Dans les trois premiers mois de 1902, il y a régulièrement à l'U. P. trois réunions par semaine, deux consacrées à des séries de leçons, une à des lectures. Quatre cours, dont chaque classe a lieu alternativement toutes les deux semaines : cours de médecine usuelle ; cours de législation ouvrière ; cours sur la situation des ouvriers à l'étranger ; cours de musique.
-
-[p. 70]
 
 Enseignement cohérent, systématique, pratique et populaire, bien fait pour intéresser les travailleurs. Dès le début, on se décide à faire suivre de discussion la causerie ou la lecture. Les ouvriers, se sentant chez eux, prennent souvent la parole, posent des questions, soulèvent des objections.
 
@@ -732,21 +563,15 @@ La réussite des premières conférences sur la musique, faites par un jeune soc
 
 Souvent le dimanche ont lieu des fêtes. Chacun apporte aux autres tout ce qu'il peut leur donner de joie ; les uns font de la musique, les autres jouent de petites comédies ; d'autres chantent ou récitent ; on montre Guignol aux enfants, toujours fort nombreux. Même, en ces fêtes intimes d'une cordialité touchante, des enfants de dix ans, de six ans, n'hésitent pas à dire des
 
-[p. 71]
-
 vers : quand ils sont trop petits, on les juche sur une chaise, pour que toute la salle les voie. — Les adhérents de l'U. P. sont invités à la fête donnée par la Bourse du Travail à l'occasion de son anniversaire : le professeur de philosophie, président du comité de l'Université Populaire, ouvre le bal avec la femme du secrétaire de la Bourse du Travail.
 
 En été, les fêtes du dimanche sont remplacées par des promenades. Ouvriers, employés et bourgeois, hommes, femmes et enfants, partent ensemble à pied ou dans de vastes voitures louées par l'U. P. Au milieu de la promenade on s'arrête pour collationner, — comme on dit à Laval ; — et les chœurs chantent l'Hymne à la France, ou l'Hymne à la Jeunesse, de Maurice Bouchor.
 
 Ces réunions fréquentes, ces discussions amicales, ces fêtes, ces promenades, créent entre tous les adhérents de l'U. P. des liens de sincère solidarité. Tous s'appellent camarades ; et l'on se sent vraiment entre camarades, entre égaux. — Plusieurs de ces ouvriers sont remarquablement intelligents, — d'une intelligence pratique qui rappelle celle des travailleurs anglais, — s'intéressant aux faits précis plus qu'aux grandes phrases méthodiques ; plusieurs se sont donné une culture assez étendue : plusieurs lisent Pages libres et s'intéressent aux Cahiers de la Quinzaine. — Surtout l'activité de certains de ces travailleurs est stupéfiante. A la suite de leurs journées de travail, ils passent presque toutes leurs soirées aux réunions de l'U. P. ou des syndicats. Voilà de belles vies, pleines et saines, utiles et généreuses. Ces hommes représentent vraiment non seulement une élite ouvrière, mais encore une élite humaine.
 
-[p. 72]
-
 De véritables amitiés s'établissent entre certains travailleurs et certains intellectuels. Ces relations sincèrement égalitaires entre bourgeois et ouvriers, c'est un étrange et nouveau spectacle, dans la petite ville où de mesquines vanités divisent et hiérarchisent les classes. Comme les premiers chrétiens avaient le sentiment, par leur mutuelle charité, de s'opposer à la société antique, injuste et haineuse, les camarades de l'U. P. ont la joie d'opposer leur fraternité intelligente au lourd snobisme de la petite ville. « Ils n'étaient, dit saint Paul, qu'un cœur et qu'une âme... »
 
 Cependant le succès de l'œuvre entreprise encourage les syndiqués de la Bourse et les adhérents de l'U. P. à étendre les institutions ouvrières existant déjà, à en créer d'autres nouvelles. On projette de former une Fédération des U. P. de l'ouest, de s'entendre avec les U. P. voisines pour des échanges de conférences. On songe à annexer à l'U. P. une salle de lecture et une bibliothèque ; — jusque-ci le temps et l'argent ont manqué. — On rêve de fonder à l'U. P. un patronage laïque dont les enfants, aux vacances, pourront être envoyés quelques jours ou quelques semaines au bord de la mer. On se préoccupe d'établir, autour de la Bourse du Travail et de l'Université Populaire, tout un système de coopératives qui transformeront la condition économique des ouvriers : buvette coopérative, restaurant coopératif, coopératives de boulangerie, peut-être de boucherie. Quelques-uns parlent de créer un journal local socialiste, honnête. — Avec enthousiasme pour l'action, les camarades de l'U. P., au milieu de 1902, discutent tous ces projets. Mais au moment même où ils songent à étendre ainsi leur œuvre, ils se voient forcés de la défendre contre
-
-[p. 73]
 
 des attaques qui deviennent de plus en plus fréquentes et violentes.
 
@@ -755,8 +580,6 @@ la ville contre l'Université Populaire
 Dès le début, les catholiques se sont montrés résolument hostiles à l'U. P. C'est une œuvre de pensée libre, de libre critique religieuse et sociale. Et c'est peut-être aussi le premier groupement qui se constitue à Laval en dehors de toute influence catholique. Sans se rattacher à aucun mouvement d'anticléricalisme verbal, la fondation de l'U. P. est un acte d'anticléricalisme réel. — On ne détruit que ce qu'on remplace ; ou plutôt on ne détruit qu'en créant ; on ne peut détruire efficacement qu'après avoir créé. On ne détruit l'Église qu'en satisfaisant par des œuvres nouvelles les besoins profonds que l'Église satisfait encore. Le besoin religieux essentiel, qui cherchent à apaiser toutes les religions, théistes, panthéistes ou athées, c'est le besoin qu'ont tous les hommes d'éprouver en commun des émotions désintéressées et fortifiantes, de communier dans l'intelligence et l'amour de la Vie Universelle. Une inclination puissante nous pousse à partager avec d'autres hommes les idées qui résument notre expérience, les croyances qui dirigent notre action, les rêves dont la beauté console notre misère. Comme l'Église catholique, orientée vers le passé, l'Université Populaire socialiste, orientée vers l'avenir, satisfait ce besoin profond. (1) A l'U. P.
 
 (1) Au congrès tenu en novembre 1902 à Rennes, par la Fédération socialiste de Bretagne, à laquelle se rattachent les socialistes lavalois, un délégué de Rennes propose « de s'appuyer sur le sentiment religieux qui est en chaque homme pour répandre la pensée socialiste ». — Pages libres, 15 novembre 1902.
-
-[p. 74]
 
 l'ouvrier cesse de se sentir isolé ; à côté de ses camarades, aidé par leur amitié, il atteint à la connaissance des grands faits de l'histoire, des grandes hypothèses de la science, des grandes créations de l'art ; il précise les idées morales nouvelles qui le poussent à agir pour la libération de ses frères ; il participe à la haute espérance révolutionnaire, qui commence à animer, d'un bout du monde à l'autre, toutes les consciences généreuses. — Alors il n'a plus besoin de l'Église. — Les catholiques doivent être hostiles à un groupement d'hommes qui veulent se passer de l'Église ; ils doivent tout tenter pour le détruire. Le libéralisme catholique consiste à ne vouloir la liberté que pour les catholiques. Le libéralisme catholique consiste à refuser la liberté aux non-catholiques.
 
@@ -768,15 +591,11 @@ Jusqu'à présent, la description minutieuse des œuvres pornographiques a été
 
 Le journal républicain, l'Avenir de la Mayenne, défend l'U. P. ; il répond au journal clérical qu'on peut trouver dans la Bible des passages aussi lestes que dans n'importe quel roman de Zola (5 janvier 1902). Sur quoi la Mayenne publie une analyse de Travail,
 
-[p. 75]
-
 juxtaposant les passages les plus violents et les plus audacieux, pour terroriser les bourgeois ; l'analyse se termine par cette conclusion très littéraire :
 
 Cette dernière citation montrera que ce livre, avec des utopies dangereuses, des doctrines révolutionnaires, des théories philosophiques absolument condamnées, des longueurs et des répétitions oiseuses, des symboles burlesques et des facéties scientifiques, contient aussi des passages d'un faux réalisme déplaisant et d'une sensiblerie vraiment bébête.
 
 Sur quel singulier volet sont triés les sujets de méditation de l'U. P. L.!!!
-
-(Mayenne, 13 février 1902)
 
 La polémique continue quelque temps encore :
 
@@ -784,29 +603,21 @@ Le professeur de philosophie du lycée de Laval est-il, comme Zola, pour la supp
 
 Il serait temps que le public soit enfin fixé à cet égard.
 
-(Mayenne, 23 mars 1902)
-
 Malheureux ouvriers auxquels on veut faire renier l'Évangile du Christ, et imposer l'Évangile de Zola!
 
 (Courrier du Maine, 9 mars 1902)
 
 Un dimanche, à la suite d'une fête terminée par la Marseillaise, quelques membres de l'U. P., la séance levée, chantent l'Internationale. Le bruit s'en répand dans Laval ; les bourgeois s'alarment. Le préfet fait appeler le professeur président du Comité de l'U. P. ; il lui déclare qu'il ne connaît pas l'Internationale, mais qu'il sait que c'est un chant séditieux : si on la chante à nouveau, il interdira aux fonctionnaires d'aller à l'U. P.
 
-[p. 76]
-
 — Les journaux réactionnaires exploitent l'incident. Le maire ayant autorisé l'U. P. à se réunir dans un local municipal, destiné à être démoli quelques mois après, la Mayenne écrit :
 
 Nous nous étions laissé dire que le Conseil municipal de Laval comptait encore dans son sein des hommes qui refusaient de frayer avec les représentants socialistes que l'administration avait imposés dans leurs rangs. Si ces messieurs n'ont pas changé d'opinion, comment laissent-ils la municipalité fournir un lieu de réunion aux soldats de Millerand, dont le chant de ralliement n'est autre que l'hymne des sans-patrie, l'Internationale?
-
-(Mayenne, 13 avril 1902)
 
 Redoutant les effets de cette habile campagne de presse sur les timides Lavalois, les républicains modérés commencent à témoigner à l'U. P. quelque froideur. La puissance des journaux réactionnaires est faite de la lâcheté des politiciens républicains.
 
 Le dimanche 27 avril, quand est proclamé le résultat des élections, quelques socialistes, présents à la mairie, y chantent l'Internationale. Comme ils sont membres de l'U. P., les journaux réactionnaires rendent l'U. P. responsable de la manifestation. L'incident paraît très grave. Sous la pression des autorités, plusieurs maîtresses de l'École Normale et le mari d'une institutrice envoient leur démission d'adhérents ; l'avocat envoie sa démission de membre du Comité et cesse de faire des conférences. Le parti modéré, tout autant que le parti clérical, commence à souhaiter la disparition de l'U. P.
 
 Cependant l'U. P. cherche à résister à la tourmente.
-
-[p. 77]
 
 L'avocat est remplacé au Comité par l'employé de la poste qui a si remarquablement organisé la Chorale ; les leçons de législation ouvrière sont remplacées par un cours d'astronomie dont se charge un employé de commerce, intéressé par cette science, d'une intelligence lucide et d'une parole étonnamment précise.
 
@@ -832,25 +643,17 @@ M. C..., l'illustre M. C..., le commentateur admiratif de Zola, le grand meneur 
 
 Voilà ceux que l'Université des Leygues, des Chaumié et des francs-maçons met en vedette!
 
-(Mayenne, 26 juin 1902)
-
-[p. 78]
-
 Aux derniers jours de juillet, le professeur de philosophie apprend qu'il sera déplacé, contre son désir et en violation des traditions de l'Université : car ce n'est pas le titulaire de la chaire, socialiste et rédacteur à la Petite République, qui reprend son poste ; on fait revenir un ancien suppléant, pour avoir l'occasion de déplacer le professeur suspect, en évitant « l'apparence d'une disgrâce ». On reconnaît d'ailleurs que le professeur suspect a fait son métier d'une manière irréprochable ; même, cette année, sa petite classe de onze élèves a eu ce qu'on nomme des succès : dix baccalauréats de juillet, et le premier accessit au Concours Général entre les lycées des départements. On ne reproche au professeur déplacé que ses « imprudences ». Imprudences, la fréquentation de la Bourse du Travail et la fondation de l'Université Populaire. A Laval, cela suffit...
 
 Une jeune Russe intelligente, à qui je contai cette histoire, prit le ton le plus sérieux pour me poser cette question : « En France, êtes-vous en République ? »
 
 C'est sans doute à des démarches accomplies directement au ministère par des politiciens républicains modérés, peut-être aussi par le préfet, qu'il faut attribuer le déplacement du professeur suspect. — Les fondateurs de l'U. P. ont répété qu'ils ne cherchent pas à faire œuvre de politique locale ; leur idéal est plus élevé, plus lointain : ils veulent participer au vaste mouvement historique qui conduit l'humanité à la révolution sociale, à la destruction de toutes les injustices et de tous les privilèges, à la création de la société juste et libre. Dans les conditions spéciales d'espace et
 
-[p. 79]
-
 de temps où ils ont à agir, à Laval, en 1902, ils ne peuvent tirer grand parti des moyens politiques que peuvent utiliser ailleurs les socialistes plus nombreux. — Mais les politiciens républicains lavalois, en leur âme étroite, ne peuvent admettre qu'on se consacre à une œuvre autrement que par ambition personnelle, pour la satisfaction du succès immédiat ; il leur paraît plus intéressant d'être conseiller municipal ou sénateur que de travailler à la rénovation d'un monde, à l'apparition d'une nouvelle humanité. Ils comprennent en langage parlementaire ce que disent en français honnête les fondateurs de l'Université Populaire. Et ils s'effraient. Qui sait si les ouvriers dont la conscience de classe s'éveille continueront à voter docilement pour des républicains modérés sans exiger la garantie de sérieux engagements ?
 
 Surtout les modérés et le préfet redoutent l'effet produit, par la campagne de la Mayenne et du Patriote, sur les petits bourgeois, lecteurs des journaux réactionnaires, électeurs des républicains modérés. Si l'Université Populaire mourait, les Lavalois vivraient plus tranquilles...
 
 Dès la fondation de l'Université Populaire, les réactionnaires ont pris peur. Par la campagne de leurs journaux, ils ont communiqué cette peur à la population timide des petits bourgeois. La peur des électeurs petits-bourgeois a gagné les politiciens républicains modérés. Par peur des politiciens républicains modérés, le ministère radical, soutenu par le Parti Socialiste, déplace le professeur socialiste coupable d'avoir agi en républicain. Solidarité dans la peur ; contagion de lâcheté. L'expérience de la petite ville confirme la
-
-[p. 80]
 
 loi générale formulée par Ostrogorski : la lâcheté est un des plus grands vices du gouvernement démocratique.
 
@@ -860,11 +663,7 @@ Le coup de force essayé contre l'U. P. ne réussit pas à la tuer : elle n'est 
 
 En 1903, la Bourse du Travail s'installe dans un vaste nouveau local, avec l'Université Populaire, et une société coopérative de consommation qui vient de se fonder. Laval a sa Maison du Peuple.
 
-[p. 81]
-
 La coopérative nouvelle, l'Émancipatrice, présente un caractère nettement socialiste :
-
-Statuts
 
 « ARTICLE XXII. — Pour les répartitions, il sera d'abord prélevé 5 % sur les économies nettes réalisées, pour le fonds de réserve collectif...
 
@@ -876,15 +675,11 @@ Statuts
 
 « Quinze parts à l'amortissement du matériel, dont l'entretien sera compté dans les frais généraux.
 
-« Cinq parts aux employés. »
-
 Articles spéciaux, irrévocables et irrévisibles
 
 « ARTICLE PREMIER. — Le prélèvement fait sur le total des économies nettes, après déduction de ce total de 5 %, destinés au fonds de réserve collectif, est fixé à 50 %. Ce prélèvement ne peut, en aucun cas, être diminué, mais il pourra toujours être augmenté par une réduction du nombre des parts accordées à la consommation. L'assemblée générale a tout pouvoir pour décider cette augmentation.
 
 « ARTICLE II. — Le fonds de réserve, le fonds de prévoyance et tous les fonds qui y seront ultérieurement ajoutés constituent, à partir de ce jour, un capital social et impersonnel servant à instituer tous les ser-
-
-[p. 82]
 
 vices de consommation et de production que la société jugera bon d'entreprendre, et à créer ou subventionner toute organisation sociale jugée utile à la société.
 
@@ -900,8 +695,6 @@ L'Émancipatrice fonde d'abord un cabaret antialcoolique, dans une des salles du
 
 « ARTICLE IV. — La société s'interdit rigoureusement la distribution de l'alcool et des boissons distillées, apéritifs ou liqueurs.
 
-[p. 83]
-
 « ARTICLE VII. — L'employé [e] devra faire tous ses efforts pour amener les consommateurs à substituer l'usage des boissons non fermentées (café, thé, lait, chocolat, bouillon, sirops, eaux minérales, etc...), à l'usage des boissons fermentées (vin, cidre, bière).
 
 « ARTICLE VIII. — La consommation des boissons fermentées est rigoureusement réglementée. Il ne pourra être délivré à la fois, à un consommateur, plus d'un quart de litre de vin, d'un demi-litre de cidre ou d'un demi-litre de bière. Cette ration ne pourra être accordée plus de trois fois, non consécutives, dans une journée, à un même consommateur. »
@@ -914,8 +707,6 @@ conclusion ; — le socialisme à Laval
 
 S'il fallait désigner, par une brève formule, l'état d'âme de l'élite des travailleurs lavalois, on pourrait l'exprimer en réunissant deux des plus beaux mots de notre langue. C'est un Socialisme d'action.
 
-[p. 84]
-
 La société capitaliste est profondément injuste, parce que la propriété n'y correspond pas au travail. Un petit nombre d'hommes possède sans travailler, sans avoir jamais travaillé. La plupart travaillent sans posséder, sans pouvoir arriver à posséder. Seule une révolution totale mettra fin à cette totale injustice.
 
 Mais cette révolution urgente, nous pouvons immédiatement commencer à l'accomplir. Il faut dès maintenant travailler à créer la société juste. Il faut agir.
@@ -926,8 +717,6 @@ Ce ne sont pas les moyens d'action qui manquent aux hommes ; ce sont les hommes 
 
 Ainsi compris, le socialisme cesse d'être un bavardage stérile ou nuisible ; c'est le programme d'une tâche à commencer dès aujourd'hui. Ce n'est pas l'attente passive d'une révolution fatale ; c'est le plus
 
-[p. 85]
-
 énergique appel à la libre activité des consciences généreuses et audacieuses.
 
 Ce socialisme d'action, à mesure qu'il se réalisera en œuvres nouvelles d'émancipation intellectuelle et économique, il transformera de plus en plus profondément la petite ville.
@@ -936,21 +725,9 @@ Déjà commence à s'accomplir, à Laval, la révolution.
 
 Une Cité nouvelle s'élève, foyer de vie ardente, vaillante, libre et sincère, parmi les somnolences, les lâchetés, les tyrannies, les hypocrisies de Laval-la-Morte.
 
-Félicien Challaye
-
-ORLÉANS VU DE MONTARGIS
-
-Charles Péguy
-
-AVERTISSEMENT
-
-[p. 89]
-
 Je n'oublie pas les bonnes gens de mon pays ; et puisque mon vieux camarade Henri Roy ne se résout point à citer nos cahiers dans son Progrès du Loiret, je serai bon camarade, et prendrai les devants ; je citerai dans ces cahiers le Progrès du Loiret, dont il est devenu le rédacteur en chef.
 
 La situation d'Orléans n'est pas analogue à la situation de Laval ; non pas que les catholiques réactionnaires orléanais soient moins mauvais, moins autoritaires, plus vraiment libéraux, moins portés aux dominations temporelles, moins avides, moins tyranniques, moins portés à exercer les autorités de commandement et de gouvernement que les catholiques réactionnaires lavalois ; nous connaissons par Challaye les catholiques réactionnaires lavalois ; je connais pour les avoir éprouvés les catholiques réactionnaires orléanais ; pour les avoir éprouvés en un temps où nos radicaux de gouvernement politiques parlementaires se terraient à plusieurs degrés au-dessous de l'horizon. Mais les catholiques réactionnaires orléanais sont momentanément les moins forts, dans leur province ; ils n'ont pas reculé devant l'État-Major d'un radicalisme de gouvernement ; ils ont dû reculer devant une action,
-
-[p. 90]
 
 devant une propagande révolutionnaire socialiste et dreyfusiste, admirablement soutenue et nourrie par quelques vieux radicaux orléanais, simples hommes ; je me rappelle encore cette célèbre ancienne conférence de l'ancien Pressensé, de Quillard et de Mirbeau, dans la salle du Théâtre.
 
@@ -958,15 +735,11 @@ Les catholiques réactionnaires orléanais sont momentanément les moins forts d
 
 Usurpant les résultats de cette action, de cette propagande révolutionnaire socialiste et dreyfusiste si admirablement soutenue et alimentée par quelques vieux radicaux, républicains sincères, inambitions, ignorés, nos ennemis les amis politiques, les radicaux de gouvernement politiques parlementaires, les États-Majors précédemment terrés n'auront pas de cesse qu'ils n'ussent assis, en face de la domination catholique réactionnaire, momentanément repoussée, leur domination opposée, leur autorité de commandement égale et de sens contraire, leur autorité de gouvernement parlementaire et politique ; leur action n'a nullement consisté à libérer les citoyens qui se voulaient affranchir de la domination de l'Église, mais elle a fort exactement consisté à substituer, point pour point, bout à bout, sans aucun jeu, la domination de l'État laïque, autoritaire, gouvernemental, préfectoral, parlementaire, politique, à la domination de l'Église autoritaire, gouvernementale, épiscopale et politique ; tout ce qui a été perdu pour l'Église a été gagné pour l'État ; ainsi la part de la vraie liberté est demeurée
 
-[p. 91]
-
 strictement la même, nulle ; ni la justice, ni la liberté n'ont gagné d'une ligne ; le bénéfice de l'opération devient le suivant : tout ce qui se dérobe à la domination de l'Église est asservi à la domination de l'État ; tout ce qui se dérobait à la domination de l'État était asservi à la domination de l'Église ; sans compter ce qui est asservi ensemble et à l'une et à l'autre domination ; car ces deux dominations chevauchent.
 
 Ainsi partagé entre ces deux dominations égales et de sens contraire, opposées, l'une plus officiellement forte, l'autre plus sournoisement forte, Orléans représente mieux que Laval ce que nous pouvons nommer la situation générale, moyenne et commune, du pays ; plié sous la servitude catholique, réactionnaire, cléricale, presque unique, Laval représente, par un cas de survivance intéressant, ce qu'était le pays moyen sous la domination cléricale ; il y a quelques années, avant le sursaut, la révolte et la révolution de l'affaire Dreyfus, du socialisme révolutionnaire, du dreyfusisme révolutionnaire ; ou si l'on veut, par un phénomène intéressant d'anticipation, dès aujourd'hui Laval représente ce qui nous attend, ce qui nous guette, pour quand le détournement parlementaire, pour quand la corruption politique aura fini d'épuiser toutes les forces de liberté, toutes les forces révolutionnaires, de dreyfusisme, de socialisme et d'acratisme qui seules maintiennent la République.
 
 Pourtant ce n'est point pour donner une image, une représentation du pays commun, moyen, ordinaire, à la date d'aujourd'hui, que nous publions ci-après trois articles du Progrès ; — que je me permets de nommer
-
-[p. 92]
 
 familièrement le Progrès tout court, comme un du pays ; — pour donner une représentation de tout le pays commun, il faudrait tout un courrier d'Orléans, comparable au courrier que nous avons de Laval ; un tel courrier ferait la France vue d'Orléans ; les trois articles du Progrès font Orléans vu de Montargis.
 
@@ -976,33 +749,21 @@ De même que la conservation catholique reparaît surtout aux grandes circonstan
 
 Je me permets de publier ci-après, empruntés au Progrès du Loiret, deux comptes rendus d'enterrements et un compte rendu de mariage ; le respect que nous devons à tous les morts pourrait nous interdire de publier sur la mort des comptes rendus ennemis ; il ne peut nous empêcher de publier un compte rendu ami ; et si l'on voyait dans les textes reproduits la matière de quelque irrévérence, la faute en reviendrait toute
 
-[p. 93]
-
 aux amis, — aux amis politiques, — du défunt ; ce que nous voulons laisser voir, c'est justement qu'un certain rituel civil, en réalité politique, c'est qu'un certain cérémonial politique apporte quelque gêne à la manifestation des simples sentiments respectueux ; qu'un certain cérémonial, en réalité catholique, apporte quelque ostentation à la manifestation des simples sentiments affectueux.
 
 J'ai lu bonnement les obsèques du docteur Gebaüer ; j'ai lu ce compte rendu d'autant plus sérieusement, d'autant plus respectueusement que j'avais jadis beaucoup entendu parler de cet homme, en bien, par des hommes de bien, et que dans l'assistance, exceptionnellement nombreuse, nous avons reconnu plusieurs de nos véritables amis, qui sont des hommes sérieux ; mais quand verrons-nous des enterrements civils vraiment libres, où il n'y aura pas la musique républicaine ; et qu'est-ce enfin qu'une musique républicaine ? quand n'y aura-t-il plus des bannières couvertes d'un long voile de crêpe, qui remplacent les drapeaux couverts d'un long voile de crêpe ; quand n'y aura-t-il plus de drapeau de la Société de secours mutuels, qui remplace les drapeaux militaires ; et quand ne mènera-t-on plus les petits garçons de l'école laïque aux enterrements laïques des grandes personnes ; laissons jouer nos petits enfants ; nos petits garçons ne sont pas des enfants de chœur ; et ce cercueil recouvert du drap mortuaire de la Libre-Pensée ; qu'est-ce qu'un drap mortuaire de la Libre-Pensée ; faut-il avoir des draps mortuaires particuliers, cérémoniels, et quand on est mort, pourquoi n'accepter pas le drap mortuaire de tout le monde ; que si dans ces petites communes le
 
-[p. 94]
-
 drap mortuaire est un drap catholique, orné de croix, que la Libre-Pensée fasse faire un drap qui ne soit pas catholique, mais qui ne soit pas nommément, rituellement, et cérémonielement, le drap mortuaire de la Libre-Pensée, qui ainsi étant commun puisse devenir quelque jour le drap mortuaire de tout le monde ; ce corbillard orné d'écussons ces assistants qui portent la boutonnière l'immortelle rouge ; comme si nous n'étions pas déjà pourris de décorations ; toujours se distinguer ; toujours n'être pas vêtu comme le simple citoyen ; toujours porter un uniforme, et des galons ; et surtout la voiture habituelle de M. Gebaüer que suit, lanternes allumées et voilées ; cette voiture habituelle, c'est le fameux cheval de guerre, le cheval accoutumé, le cheval habituel, tout harnaché, conduit en main ; pour moi, né du peuple, et demeuré peuple et simple autant que je le puis, je ne comprends pas qu'une voiture se promène avec personne dedans ; c'est un cheval et une voiture de dérangés inutilement ; la voiture d'un médecin de campagne n'est pas une relique, un moyen de miracles et de béatification, un appareil sacramentel, qu'il faille promener en procession, tête nue, et devant qui s'agenouiller ; et comme dans cette vieille et nouvelle comédie je retrouve la naïve mentalité politique radicale anticatholique et catholique, d'opposer le médecin au curé comme un faiseur de miracle à un autre faiseur de miracle ; mais non, citoyens, le médecin est un praticien, modeste, un travailleur ; il travaille, il doit travailler, d'après les savants, et, s'il peut, lui-même être un savant, c'est-à-dire un homme qui travaille et qui cherche, nullement un homme merveilleux ; la voiture d'un médecin de
 
-[p. 95]
-
 campagne, pour moi socialiste, c'est son instrument de travail ; et je ne connais pas que l'on en puisse rien dire qui soit plus respectueux et plus honorable que ceci, que c'est un instrument de travail ; car je ne connais rien de plus respectable et de plus honorable qu'un instrument de travail ; aucune cérémonie cultuelle ne me paraît plus respectable et plus honorable que le simple travail humain ; si donc une voiture habituelle, d'un médecin de campagne, est un instrument de travail, et nullement un objet sacré, un objet de cérémonie religieuse, le jour que le médecin ne travaille pas, parce qu'il est mort, laissez reposer aussi ses instruments de travail ; et que son vieux cheval en paix se repose dans son écurie ; ce cheval n'est point un cheval de bataille, un cheval d'armes ; c'était un cheval qui traînait une voiture ; soyons simples ; restons simples et professionnels ; restons peuple ; soyons hommes de métier ; nullement cérémoniels ; restons pragmatiques ; je ne comprends pas qu'une lanterne soit allumée, si on veut la voiler ; ou qu'une lanterne soit voilée, si nous l'avons allumée ; les pompes funèbres ne sont pas considérables, à moins que de mettre en mouvement six divisions d'infanterie, l'artillerie de corps, et une division de cavalerie indépendante ; mais ni les six divisions d'infanterie, ni l'artillerie de corps, ni la division de cavalerie indépendante ne valent un modeste cortège de simples amis conduisant leur ami, sans lanternes, en plein jour ; les lanternes étaient faites pour éclairer les routes et les chemins, la nuit, dans les boues d'automne et dans les gelées d'hiver, quand le docteur, vivant, dans sa Sologne plate ou dans son val de Loire, allait visiter ses malades.
-
-[p. 96]
 
 Comment ne pas s'indigner que les comédies politiques parlementaires aillent se produire jusque sur les tombes ; l'oraison funèbre, en elle-même, est déjà un genre extrêmement délicat ; je n'ai jamais bien compris que l'on pût parler dans le silence de la mort ; mais que dire du boniment politique parlementaire assez impudent pour jouer sur un mort sa partie de comédie ; on lira plus loin qu'au cimetière, M. Descolle, juge de paix, ayant excusé MM. Fernand Rabier, député ; Le Carpentier, procureur de la République, — ici va commencer la comédie, — donne lecture de la lettre suivante, — ici commence l'audace, — de M. Viger, sénateur.
 
 On lira plus loin la lettre de M. Viger, sans doute écrite par quelque secrétaire. Elle est adressée à M. Baconnet, ami dévoué et exécuteur testamentaire du docteur Gebaüer. Pour l'intelligence de la comédie, et pour la mesure de l'audace, il faut savoir que le docteur Gebaüer appartenait à la deuxième circonscription d'Orléans, Orléans campagne, et que cette circonscription fut la circonscription de M. Viger député ; le docteur Gebaüer appartenait donc de quelque manière à M. Viger ; il était de son arrondissement, de sa circonscription, de son royaume ; en outre, si j'en crois les biographies, le docteur Gebaüer avait été en situation, à un moment de sa carrière politique, de devenir le député de cet arrondissement, qui était le sien, de cette seconde circonscription d'Orléans ; il était, à ce moment de sa carrière politique, tout désigné aux suffrages préliminaires de ces assemblées plénières, de ces comices généraux qui aujourd'hui, dans les pays de la domination radicale, anticipent les résultats du suffrage
 
-[p. 97]
-
 universel, fonctionnant comme un premier degré, mais comme un degré souverain, de suffrage, restreint ; depuis, M. Viger est devenu sénateur du Loiret ; son ancienne circonscription est tombée aux mains d'un réactionnaire ; c'est ici un des rares événements qui font tache dans la carrière politique d'un politique parlementaire ; c'est la seule tache qu'il y ait dans sa carrière politique, disent les hommes entendus ; la morale, ou si on la nomme ainsi, l'immorale politique parlementaire, qui supporte tout, supporte mal cet accident ; il a laissé sa circonscription à un réactionnaire ; cela fait un dilemme ; cela donne à penser aux simples ou bien que dans le temps de sa législature ce député a bien mal entretenu l'esprit républicain de ses électeurs, ou bien que dans le temps de sa législature ses électeurs étaient déjà, au moins pour une partie, réactionnaires, et qu'il représentait des éléments réactionnaires ; et l'on se demande comment il rémunérait les réactionnaires qui lui donnaient leurs voix ; car d'imaginer au contraire qu'aujourd'hui ce soit le député réactionnaire qui représente au Parlement des éléments républicains, nul n'y songe ; on a vu des républicains représenter des éléments réactionnaires ; — par quelles complaisances réactionnaires et nationalistes ; — on ne voit pas un réactionnaire qui représenterait des éléments républicains.
 
 Pour toutes ces raisons il fallait bien que M. Viger enterrât M. Gebaüer. M. Viger avait été comme le substitut, au moins imaginaire, de M. Gebaüer. M. Viger avait des remords politiques sur son ancienne circonscription, cette circonscription qui lui était commune, en un sens, avec M. Gebaüer. En terminant, M. Viger
-
-[p. 98]
 
 fait connaître l'empêchement absolu où il se trouve d'assister aux obsèques et en exprime tous ses regrets.
 
@@ -1012,15 +773,11 @@ Ce qui fait ici la funèbre comédie politique parlementaire, c'est que si je me
 
 Ces vieux républicains, que l'on enterre en peu partout aujourd'hui, et sur qui les jeunes républicains font des oraisons funèbres, appartiennent justement à cette première génération républicaine dont je parle dans ma courante des cahiers ; c'est ce qui fait un intérêt de ces cérémonies ; ces vieux républicains eux-mêmes
 
-[p. 99]
-
 étaient un peu cérémoniaux, aimaient un peu la cérémonie, un peu la magnificence, pourvu qu'elle fût civique ; mais cette affection particulière avait nous ne savons plus quoi de naïf et de jeune, et aussi de naturellement grand, qui sauvait tout ; rien de bourgeois ; au contraire nos jeunes gens aiment la cérémonie comme un instrument de domination.
 
 Il serait intéressant d'examiner, d'essayer de démêler dans des cérémonies comme celles dont nous publions aujourd'hui, dont nous reproduisons le compte rendu, quelle serait la part qui revient au cérémorialisme traditionnel des vieux républicains, et quelle au cérémorialisme arriviste de nos jeunes politiques parlementaires ; et comment ces deux sentiments, sentiment traditionnel des anciens, sentiment politique et utilitaire des jeunes, se confondent, se soutiennent ; aujourd'hui, nous n'avons voulu donner que des exemples de la résultante ; et nous avons été chercher ces exemples dans un journal rédigé en chef par un homme intelligent.
 
 C'est en effet une vieille règle de la méthode historique, et nous ne manquerons jamais de l'appliquer, que de demander les textes et les renseignements aux témoignages amis, autant qu'il se peut, et non pas aux témoignages ennemis ; ayant à donner des exemples de ce que nous avons souvent répété que le radicalisme de gouvernement nous prépare une antireligion, une religion d'État, que la politique parlementaire nous prépare une immorale d'État, qu'une certaine libre-pensée, prétendue, nous prépare un culte rituel, formel, avec intronisation de nouveaux saints, qu'un certain rationalisme, prétendu, nous prépare un certain surna-
-
-[p. 100]
 
 turel, c'est aux journaux radicaux, puisque nous le pouvons, que nous devons demander nos preuves et nos témoignages ; et non pas aux ennemis politiques parlementaires des radicaux.
 
@@ -1028,15 +785,11 @@ Et parmi les journaux radicaux, selon ce que je dis dans mon courrier des cahier
 
 Ces comptes rendus d'enterrement ne manquent pas de laisser quelque embarras, un sentiment de gêne ; la grandeur de la mort est telle que tout ce qui tient à la mort, et même aux cérémonies qui l'accompagnent, en reçoit un assombrissement particulier ; des sentiments particuliers fonctionnent aussitôt que la mort intervient ; et puis parmi cette foule, souvent désagréable, bavarde, vaine et frivole, qui accompagne, il peut y avoir, il y a de véritables amis, qui éprouvent toute la tristesse de la séparation ; ces amis ne sont pas plus engagés par des cérémonies laïques, nouvellement instituées, aus-
 
-[p. 101]
-
 quelles ils sont contraints de participer, que nous ne sommes engagés par les cérémonies catholiques anciennes auxquelles nous participons dans les enterrements catholiques ; l'amitié demeure fidèle et constante à elle-même dans les évolutions et dans les retournements des cérémonies religieuses.
 
 Le troisième compte rendu que nous reproduisons est le compte rendu d'un mariage, non pas d'un simple mariage privé, entrée en famille de l'homme et de la femme ; c'est dans l'arrondissement de Montargis le compte rendu d'une cérémonie laïque et républicaine ; et vraiment, puisqu'il paraît, d'après ce compte rendu, que tant de monde s'est fait réjoui assistant ou y assistant pas à ce mariage vraiment politique et bien parlementaire, je ne vois pas pourquoi nous nous interdirions de nous en réjouir pour autant.
 
 J'offre la deuxième circonscription d'Orléans, l'ancienne circonscription de M. Viger, vacante, puisqu'elle appartient momentanément à un réactionnaire, à qui me découvrira la moindre différence entre cette cérémonie publique, laïque, bourgeoise, et le plus grotesque des mariages catholiques ; je nomme grotesques non pas les mariages catholiques sincères, que nous devons respecter, mais les mariages catholiques bourgeois comme nos ministres radicaux de défense et d'action républicaine s'en commandent pour le mariage de leurs héritiers dans les chefs-lieux de leurs départements ; on sait en effet, par les journaux républicains, que nos ministres ne peuvent marier leurs fils dans leurs circonscriptions électorales à moins que bénis par l'archiprêtre catholique, fonctionnaire du gouvernement, par
-
-[p. 102]
 
 l'évêque, fonctionnaire, par l'archevêque catholique, fonctionnaire, entre ministres et fonctionnaires, en musique de grand opéra, au milieu d'un concours d'immenses populations, dans la majesté des cathédrales concordataires.
 
@@ -1048,19 +801,11 @@ Lisant ces textes, quelque abonné dira : Ce n'est pas possible ; ce Progrès du
 
 Ainsi parlerait un abonné irrespectueux, — il en est. — J'affirme sur l'honneur qu'il y a bien un Progrès du Loiret, paraissant à Orléans, et que nous n'avons pas fabriqué ces textes ; le compte rendu que nous publions de ce mariage, non pas mariage, mais cérémonie laïque et républicaine, a bien été publié dans le Progrès du Loiret, numéro daté du samedi 19 décembre 1903, deuxième page, en haut de la cinquième et dernière colonne.
 
-[p. 103]
-
 Et d'ailleurs qu'on relise un peu ces textes, et qu'on y réfléchisse : qui de nous, qui d'ailleurs serait capable de forger des textes aussi admirables ; j'ai la plus grande estime pour nos auteurs et pour nos collaborateurs accoutumés ; mais ce n'est pas leur faire injure que de demander : qui de nos auteurs, qui de nos collaborateurs accoutumés forgerait un texte aussi admirable ; il y a dans madame Bovary un discours de Comices agricoles que prononce un conseiller de préfecture et que l'on entend un peu partout, aujourd'hui, attribuer au préfet ou au sous-préfet, ce qui n'est pas juste, puisqu'il fut prononcé par un conseiller de préfecture, et que M. le préfet, dit l'auteur, n'avait pu venir ; pour faire, pour forger des textes et des comptes rendus comme ceux que l'on va lire, il faudrait être plus fort que le vieux Flaubert et que Maupassant ; or on n'est pas plus fort que le vieux Flaubert et que Maupassant ; saluons modestement une réalité aussi grande que le génie ; et respectueusement dédions le courrier que l'on va lire
 
 à la mémoire du vieux Flaubert.
 
-Charles Péguy
-
 Le Progrès du Loiret, dans son numéro daté du vendredi 29 janvier 1904, publiait le compte rendu suivant :
-
-[p. 105]
-
-OBSÈQUES DU DOCTEUR GEBAUER
 
 Hier ont eu lieu à Cléry, puis à Meung-sur-Loire, les obsèques civiles du docteur Gebaüer.
 
@@ -1073,8 +818,6 @@ Puis la Société de secours mutuels dont le drapeau est crêpé de noir. Les ad
 Voici les petits garçons de l'école laïque. Puis le corbillard chargé de couronnes offertes par la famille, le Comité républicain de Cléry, la Société de secours mutuels, la fanfare, les facteurs, les comités républicains d'Orléans, etc.
 
 Le cercueil est recouvert du drap mortuaire de la Libre-Pensée, le corbillard orné d'écussons. La plupart des assistants portent à la boutonnière l'immortelle rouge.
-
-[p. 106]
 
 La voiture habituelle de M. Gebaüer suit, lanternes allumées et voilées.
 
@@ -1090,8 +833,6 @@ Elle est adressée à M. Baconnet, ami dévoué et exécuteur testamentaire du d
 
 Je prends une part immense à votre douleur et à celle de tous nos amis du canton de Cléry où depuis de si longues années le bon républicain et le sincère démocrate que nous
 
-[p. 107]
-
 pleurons aujourd'hui tenait si fermement le drapeau de la République.
 
 Son dévouement passionné aux idées qui me sont chères, son désintéressement et son attachement à la cause des petits et des humbles m'avait de longue date inspiré pour ce vaillant défenseur des conquêtes morales de la Révolution une profonde estime.
@@ -1106,13 +847,9 @@ En terminant, M. Viger fait connaître l'empêchement absolu où il se trouve d'
 
 Après M. Descolls, qui ajoute quelques mots au nom des fonctionnaires républicains de Cléry qui trouvèrent toujours chez Gebaüer soutien et réconfort, M. Foiret, instituteur à Cléry, prononce le discours suivant :
 
-Mesdames, Messieurs,
-
 Comme instituteur de Cléry, je ne veux pas laisser disparaître M. Gebaüer, qui fut un si ferme soutien pour l'enseignement laïque et républicain, sans faire une courte énumération des services éminents qu'il a rendus.
 
 M. Gebaüer a été maire de Cléry de 1878 à 1884, conseiller général de 1883 à 1889, délégué cantonal depuis 1878, prési-
-
-[p. 108]
 
 dent de la délégation cantonale depuis 1881 ; membre honoraire de la Société de secours mutuels des instituteurs et institutrices du Loiret depuis environ vingt-cinq ans, membre honoraire de toutes les œuvres post-scolaires de Cléry et de l'U. S. T. L. depuis la création desdites Sociétés.
 
@@ -1144,8 +881,6 @@ La musique joue un dernier morceau et les assistants se séparent, après avoir 
 
 Le Progrès du Loiret y joint les siennes. Le docteur Gebaüer fut pour nous un ami et un compagnon de luttes.
 
-[p. 109]
-
 J'ai eu un moment, sur sa tombe, la tentation de le rappeler : j'ai pensé que les paroles seraient vaines et impuissantes à résumer le passé de luttes, à évoquer l'avenir de promesses de victoires.
 
 Je regardais les larmes sourde puis ruisseler sur les figures, hâlées par le soleil et ridées par l'effort, des paysans de Cléry, de Mareau, de Mézières, de tout le canton. Et je pensais que ceux-là, pendant toute leur vie, se souviendraient de leur ami et de leur chef, qu'ils évoqueraient son exemple et ses leçons chaque fois qu'un acte politique devrait être accompli par eux.
@@ -1154,15 +889,7 @@ Le parti réactionnaire du canton de Cléry peut manifester une joie indécente,
 
 Gebaüer aura des continuateurs qui reprendront son œuvre et la mèneront à bonne fin. Le jour de l'émancipation luira quand même dans le canton de Cléry et nous ferons tous nos efforts pour que rien ne le vienne retarder.
 
-H. R.
-
 Le Progrès du Loiret, dans son numéro daté du jeudi 21 janvier 1904, publiait le compte rendu suivant :
-
-[p. 110]
-
-NOUVELLES DU DÉPARTEMENT
-
-ARRONDISSEMENT D'ORLÉANS
 
 Sandillon. — Obsèques de M. Amédée Bonhaume. — Hier ont eu lieu les obsèques civiles de M. Amédée Bonhaume, conseiller municipal de Sandillon.
 
@@ -1172,11 +899,7 @@ Reconnu parmi les assistants : MM. Rocher-Poteau, maire de Saint-Denis-de-l'Hôt
 
 Au cimetière des discours ont été prononcés par : M. Octave Desnones, chef de la fanfare, dont nous citerons le passage suivant :
 
-Mesdames, Messieurs,
-
 M. Bonhaume fut pour nous un ferme soutien qui, sans aucune défaillance, nous a toujours tenus à la brèche. Il aimait cette fanfare qu'il fut d'ailleurs un des premiers à fonder. Tout d'abord membre exécutant pendant de longues années, il lui fallut avec l'âge abandonner ce rôle, mais de
-
-[p. 111]
 
 suite il s'inscrivit en tête de notre longue liste de membres honoraires, et l'an dernier, alors que, dans des moments difficiles à passer, la fanfare avait plus que jamais besoin de toutes les énergies pour résister aux attaques qui lui furent successivement portées, il ne craignit pas d'accepter les fonctions de vice-président, que lui avaient unanimement attribuées nos amis.
 
@@ -1190,11 +913,7 @@ Le jeune Jeangirard prononce ensuite quelques paroles au nom de la Société de 
 
 Voici le discours que prononce ensuite M. Desnoux père, ancien maire de Sandillon, d'une voix que l'émotion fait trembler :
 
-Mesdames, Messieurs,
-
 ... Lorsque l'an dernier le comité républicain me fit l'honneur de me nommer son président, j'envisageais courageu-
-
-[p. 112]
 
 sement la lourde tâche qu'il me faudrait accomplir cette année, mais je n'avais pas prévu le pénible devoir qui m'incombe aujourd'hui. Avant de laisser refermer cette tombe sur l'ami qui n'est plus, je veux lui adresser mon suprême adieu.
 
@@ -1207,8 +926,6 @@ Mes chers amis du comité républicain, nous perdons beaucoup en ce cher Amédé
 Amédée, au nom de tous tes amis qui sont les miens, ton compagnon de lutte te dit adieu à jamais.
 
 C'est le tour de M. Roche, conseiller municipal, un des vieux amis et collègues de Bonhaume. Dès les premières paroles qu'il prononce l'émotion l'étreint, comme
-
-[p. 113]
 
 elle étreint tous les auditeurs. Il doit renoncer à parler plus longtemps et c'est M. Octave Desnoues qui lit le discours suivant :
 
@@ -1229,8 +946,6 @@ Ces qualités, vous les aviez appréciées, et, à plusieurs reprises, vous avie
 Tous ceux qui ont été ses collègues, peuvent témoigner qu'il apporta dans les affaires publiques les mêmes qualités de loyauté, de probité et d'indépendance dont il donna tant de preuves dans sa vie privée.
 
 Jamais Bonhaume n'a laissé passer une occasion de pro-
-
-[p. 114]
 
 tester hautement de ses sentiments de républicain et de libre penseur.
 
@@ -1266,17 +981,11 @@ Le conseil fut rassemblé par les soins de l'adjoint. Mais, — il s'agissait de
 
 Ceci se passe de commentaires, comme aussi l'attitude singulière, pour ne pas dire plus, de quelques individus qui regardaient défiler le cortège des fenêtres du « siège social » de la réaction.
 
-
 Le *Progrès du Loiret*, dans son numéro daté du samedi 19 décembre 1903, publiait le compte rendu suivant :
 
 [leaf 0331] [p. 116]
 
-
-ARRONDISSEMENT DE MONTARGIS
-
-
 Cérémonie laïque et républicaine
-
 
 Ainsi que nous l'avons annoncé, le mariage de M. Henri Guingand, fils du sympathique député de Gien, avec mademoiselle Adrienne Couté, de Montargis, a été célébré, mercredi matin, à la mairie de cette ville.
 
@@ -1310,8 +1019,6 @@ Une agréable surprise était réservée à la nombreuse assistance. Un chanteur
 
 composé pour la circonstance et dû à l'un de nos concitoyens qui désire conserver l'anonymat. Nous croyons faire plaisir à nos lecteurs en le reproduisant :
 
-TRINITÉ RÉPUBLICAINE
-
   Qu'un chant, qu'un hymne d'hyménée
   Vous accueille, jeunes époux !
   Tous deux, bienvenus parmi nous,
@@ -1332,13 +1039,11 @@ TRINITÉ RÉPUBLICAINE
   L'amour ailé soudain l'efface,
   Là-haut de son souffle immortel.
   Chacun de vous en dot apporte
-  Cœur généreux, droite raison ;
   Le bonheur qui frappe à la porte,
   Restera dans votre maison.
 
   Quittant sa demeure éthérée,
   On voit descendre dans ces lieux,
-  Autre figure vénérée,
   L'*Égalité* de nos aïeux.
   La plus noble de leurs conquêtes,
   Sans entre vous faire aucun choix,
@@ -1366,7 +1071,6 @@ TRINITÉ RÉPUBLICAINE
   Pour l'amour de l'humanité. »
 
   Devant vos pas s'ouvre la vie,
-  Aux horizons mystérieux ;
   Elle n'est point toujours fleurie,
   La route que fixent vos yeux.
   Mais pour marcher sans qu'on chancelle,
@@ -1438,17 +1142,9 @@ Et, heureux, par le chemin du travail et de l'honneur, ainsi que l'ont fait vos 
 
 [leaf 0340] [half-title]
 
-CAHIERS DE LA QUINZAINE
-
 [leaf 0341] [blank verso]
 
 [leaf 0342] [p. 127]
-
-CHARLES PÉGUY
-
-
-CAHIERS DE LA QUINZAINE
-
 
 Georges Clemenceau.— *Discours pour la liberté*. — Je n'ai pu revenir plus tôt sur ce cahier, cinquième cahier de la cinquième série ; je n'ai pu apporter plus tôt les quelques commentaires que je préparais ; l'édition, la fabrication de cahiers tous les jours plus considérables, la publication de textes tous les jours plus considérables m'ont totalement empêché pendant deux mois d'écrire ces commentaires ; mais nous sommes ici d'accord sur ce que nous devons avant tout éditer, fabriquer, autant que nous le pouvons, des cahiers tous les jours plus considérables, publier, autant que nous le pouvons, des textes tous les jours plus considérables ; que les textes valent par eux-mêmes et passent avant les commentaires ; que nous devons réduire nos commentaires autant que la publication de nos textes nous le demande ; que nous savons lire des textes ; et que nous nous passons aisément de commentaires.
 
@@ -1478,8 +1174,6 @@ Un grand, un énorme mouvement, événement d'histoire, comme le christianisme, 
 
 [leaf 0346] [p. 131]
 
-CAHIERS DE LA QUINZAINE
-
 lité mentale, sentimentale, correspondante ; il y a de grandes réalités mentales, sentimentales, qui n'obtiennent jamais les mouvements, les événements d'histoire qu'elles nous paraissent mériter ; il y a des événements sans contenu ; il y a des contenus sans événement ; c'est là, du moins il me le semble, un sujet de méditations impuisables pour les philosophes et pour les historiens, selon que l'on aborde tel ou tel problème et cette inquiétude apparente du contenu même ou partant de l'événement, c'est un problème où l'histoire et la philosophie, venues de chez elles chacune, sont étroitement, solidairement engagées.
 
 Par exemple particulier, c'est un cas particulier de problème que de savoir si le socialisme, ayant commencé à donner un mouvement, un événement d'histoire assez proportionné à son contenu idéal, ayant promis, ayant fait espérer la continuation, et l'achèvement de ce mouvement proportionné, ne devrait pas, sous nos yeux va s'arrêter court, pour avoir été criminellement remis aux mains des politiques parlementaires ; c'est un problème particulier de savoir si le socialisme en fin de compte sera un mouvement proportionné ou un mouvement disproportionné, improportionné, à l'événement d'histoire socialiste épuisera dans son déroulement tout au plus tout le contenu de l'idéal socialiste.
@@ -1497,8 +1191,6 @@ Pourtant si redoublement de ces hautes et grandes considérations nous regardons
 Nous avons du mal à nous le représenter aujourd'hui, parce que tout ce qui tient à la République bourgeoise et à l'État démocratique nous apparaît à travers les
 
 [leaf 0348] [p. 133]
-
-CAHIERS DE LA QUINZAINE
 
 déformations radicales, à travers les contrefaçons politiques ; mais ce ne sont là que les tristes conséquences de la corruption, les tristes résultats de la décadence ; il y a eu un personnel républicain ; et la constance et le dévouement de ce personnel prouve que si un mouvement, un événement d'histoire a besoin d'un idéal approprié, ajusté, en fin de compte, proportionné qui l'emplisse pour demeurer au livre de l'humanité, il n'a pas besoin d'un idéal aussi plein pour tenir une assez pleine réalisation temporaire.
 
@@ -1518,8 +1210,6 @@ Quand un jeune homme, un homme au-dessous de vingt ans, assiste aujourd'hui aux 
 
 [leaf 0350] [p. 135]
 
-CAHIERS DE LA QUINZAINE
-
 entière et droite, une intelligence à la fois laborieuse et claire, une intelligence et demi-voulue naïveté, une bonté ancienne, un courage aisé, gai, infatigable ; et ce perpétuel renouveau de courage et de gaieté ; nous ressemblons peu à ces hommes ; et nous devons continuer à les aimer d'autant ; nous avons des soucis et des tristesses, des peines mêmes qu'ils ne connaissaient pas ; justement parce que notre socialisme est plus plein, il nous fatigue davantage, nous vieillit plus que ne faisait une simple républicanisme ; ces vieux républicains sont plus jeunes à cinquante ans que nous ne le sommes à trente ; ils n'ont pas connu les désillusions, les détournements et les déceptions qui nous attendaient au seuil de l'action socialiste ; ce sont aussi des hommes qui n'écoutent pas volontiers leurs propres désillusions ; ils ont connu des temps heureux, où les républicains vétaient des republicains, et le reflet de cet ancien bonheur, les illuminant encore aujourd'hui, leur maintient une perpétuelle jeunesse.
 
 Les réactionnaires bourgeois, les républicains orléanistes, les nommaient hier épouvante les rouges, les radicaux ; car ce nom même de radicaux, prostitué aujourd'hui à toutes les aventures de politique et d'argent, recouvrait en ce temps ancien, et dans les départements, que je connais, la constance et la fidélité des plus admirables dévouements républicains ; mais jeunes gens ne connaissent guère aujourd'hui de tels hommes ; les mœurs politiques de tous les partis politiques parlementaires sans exception, bourgeois et prétendus socialistes, ont subi depuis vingt ans une altération dont peuvent seuls s'apercevoir les hommes d'un certain âge ; et tout le monde participant au mouvement, à
@@ -1537,8 +1227,6 @@ Nous ne devons pas plus faire porter à ces vieux républicains la peine des alt
 Je ne sais pas s'il y a de ces vieux républicains à nos jeunes socialistes assez de communication ; le serait
 
 [leaf 0352] [p. 137]
-
-CAHIERS DE LA QUINZAINE
 
 vite dit, et le serait d'un marxisme grossier, inexact, sans doute infidèle, de dire qu'après tout ces républicains étaient des politiciens bourgeois ; non, ils n'étaient nullement des politiciens ; et même ils n'étaient des républicains bourgeois ; ils étaient des ouvriers républicains ; ils ont été les ouvriers de la République ; ils attendaient tout de la République ; ce n'est pas de leur faute si, remise criminellement aux mains des politiques parlementaires, la République a fait faillite ; ils ne sont pas plus responsables de leurs politiciens que nous ne sommes responsables des nôtres.
 
@@ -1558,8 +1246,6 @@ Oublions pour cela les enseignements que nous avons reçus dans nos classes de l
 
 [leaf 0354] [p. 139]
 
-CAHIERS DE LA QUINZAINE
-
 lité de son contenu mental, et un jeune homme, un homme au-dessous de vingt ans, à peine entré dans les premières années de son apprentissage, ayant aperçu les immenses profondeurs du socialisme révolutionnaire et libertaire, jettera un coup d'œil dédaigneux sur cette pauvre ancienne République politique bourgeoise et dira : Il n'y avait rien dans cette misérable et vieille République ; aucune pensée, aucun système, aucune philosophie, aucune connaissance de l'histoire ; donc elle n'a rien pu développer dans l'événement ; il n'y a pas eu un personnel républicain, un dévouement républicain, un dévouement républicain. — Erreur grossière, jeunes écoliers, — je parle comme ces anciens, — confusion venue de naïveté. Cette République, si pauvre, en théorie, de contenu mental et sentimental, a, dans la réalité, suscité un peuple de dévouements qui la dépassaient de beaucoup ; et c'est justement de quoi nous n'avons pas à nous vanter, que le socialisme, qu'un socialisme aussi plein de sens en soit encore à soulever les dévouements jeunes, constants, non vieillissants, qu'une République aussi pauvre a certainement suscités.
 
 La satisfaction de l'esprit ne fait pas la loi de la réalité ; les événements ne sont pas proportionnés justement à leur contenu ; nous qui représentons le grand socialisme, combien de défaillances, de fatigues et d'aigreurs ne reconnaissons-nous pas autour de nous, et la simple République bourgeoise, mère ingrate, a été servie en son temps par tout un peuple d'ouvriers laborieux et gais.
@@ -1575,8 +1261,6 @@ rien, qui n'avait rien, ni grande philosophie, ni grande pensée, ni grand conte
 Ainsi est la réalité ; Hugo était un bourgeois ; et même il l'était pas en des meilleurs parmi les bourgeois ; il n'en a pas moins obtenu un peuple de lecteurs ouvriers, qui lisaient pieusement, constamment, patiemment, avec enthousiasme ; et joyeusement ; car ces hommes étaient joyeux ; bons et gais ; ils chantaient ; on ne chante plus comme ils chantaient ; ils allaient, ils chantaient, l'âme sans épouvante ; ils avaient des souliers autant qu'aujourd'hui nous en pouvons avoir ; ils chantaient des chansons qui n'étaient nullement des pornographies et qui n'étaient pas non plus l'inévitable *Internationale* ; ils chantaient la *Marseillaise* ; et toute la disparate de fortune obtenue par les mauvais mouvements se ramasse en la disparité de fortune obtenue par les deux hymnes ; ce mouvement, où il n'y avait presque rien, s'est manifesté par un grand événement,
 
 [leaf 0356] [p. 141]
-
-CAHIERS DE LA QUINZAINE
 
 parce qu'un peuple de pauvres gens y ont mis leur cœur ; cette *Marseillaise*, dont les paroles sont si peu pleines, et si contestables, elle a tenu, dans la réalité de l'histoire, de la passion révolutionnaire complète comme aucune *Internationale* n'en a contenu encore.
 
@@ -1598,8 +1282,6 @@ Je n'ai aucune illusion sur la politique de M. Clemenceau. Trois jours après ce
 
 [leaf 0358] [p. 143]
 
-CAHIERS DE LA QUINZAINE
-
 discours ; dans l'intervalle de ces trois jours, que s'était-il passé ; la politique avait repris le dessus ; Clemenceau homme politique avait regretté son beau discours ; il en avait eu honte ; et il se hâtait de le rattraper ; il se faisait pardonner.
 
 Je n'ai aucune illusion sur la politique de M. Clemenceau ; M. Clemenceau a consommé la plus grande partie de sa vie politique à tomber des ministères ; tomber des ministères est une opération politique, parlementaire, aussi vaine, aussi oiseuse, que de soutenir ou de former des ministères ; c'est une opération de même plan, du même ordre, de même grandeur, de même utilité, de même efficacité ; l'antiministérialisme politique parlementaire est aussi misérable qu'un ministérialisme politique parlementaire ; c'en est le contraire et l'équivalent.
@@ -1620,8 +1302,6 @@ Je n'ai aucune illusion sur le ministérialisme politique parlementaire de M. Cl
 
 [leaf 0360] [p. 145]
 
-CAHIERS DE LA QUINZAINE
-
 en faveur gouvernementale, du gouvernement ; mais voilà ; lui-même il se dit : c'est de la politique ; ce sont des boniments politiques ; c'est bon pour le public politique ; — les politiques nous-mêmes pensent comme nous de la politique ; ils sont les premiers à l'estimer ce qu'elle vaut, c'est-à-dire à la mépriser ; mais ils disent : voilà, c'est de la politique ; — et ce mot excuse tout ; on fait ainsi, on diminue un domaine séparé où les obligations les plus simples de la morale ne fonctionnent plus, ne pénètrent pas, où les devoirs les plus élémentaires sont nuls et non avenus ; et les hommes politiques sont les premiers à savoir le peu que vaut le public politique.
 
 Je n'ai aucune illusion sur le nouveau ministérialisme, sur le ministérialisme politique parlementaire de M. Clemenceau ; comme tout le monde je suis excédé de lire tous les matins dans l'*Aurore* le même article, où toute l'argumentation, fort brillante, revient à qualifier de *romains* les catholiques français ; comme si ce n'était pas une gageure d'aberration que le jugement historique et social que de nommer romain tout un culte rituel, toute une religion, aussi vieille, aussi indigène, aussi terrienne, et aussi enracinée ; étaient-ils donc des Romains, un Théroude et un Villon, un Ronsard et un du Bellay, un Descartes, un Corneille, un Pascal, un Racine, un Chateaubriand, un Lamartine, un Pasteur ; devons-nous croire, si nous sommes nous-mêmes, qu nulles traces de leurs anciens et de leurs nouveaux catholicismes français n'aient subsisté dans ces pays ; devons-nous croire, si nous sommes sérieux et historiens, que tout un héritage de pensée, de sentiment, de religion, d'âme, aussi vieux, que tout un passé,
@@ -1639,8 +1319,6 @@ bien que je ne le tutoie pas ; comme tout le monde, plus que tout le monde, éta
 M. Clemenceau ne sait aussi bien que nous ; il disait l'un dans ses couloirs, par un de ces délicieux écarts de langage qui lui gardent l'amitié de ses amis, qui lui ramènent instantanément la sympathie des tiers, sympathie affectueuse, curieuse et amusée, mais bonne, — car ou a peur, on ne sait jamais bien quel acte, quelle parole va sortir de ce grand humoriste, échapper
 
 [leaf 0362] [p. 147]
-
-CAHIERS DE LA QUINZAINE
 
 de sa fantaisie ou jaillir de sa verve, — il disait : Je ne sais pas si je ne deviens pas ridicule, avec mon histoire. — Mais belle le jour où cette pensée lui vint, comme il est aussi intraitable avec lui-même, et plus intraitable, qu'il ne l'est avec les autres, il a redoublé son histoire, il a refait son article avec une certaine volupté.
 
@@ -1660,8 +1338,6 @@ Jaurès fait un merveilleux exemple d'homme politique envahi peu à peu, ravagé
 
 [leaf 0364] [p. 149]
 
-CAHIERS DE LA QUINZAINE
-
 un certain détail son évolution, ce fut pour beaucoup de raisons sans doute, mais ce fut en particulier parce que l'histoire de cette évolution nous renseigne admirablement sur la marche de la maladie.
 
 Clemenceau fait un exemple plus merveilleux encore ; ce n'est point par longues et lentes invasions, ce n'est point par vagues longues, ce n'est point par ondes que la politique parlementaire l'envahit et le pénètre ; il est beaucoup trop fort pour cela ; il se connaît trop bien lui-même ; et il connaît trop bien les environs ; la politique parlementaire fait le pain quotidien de son existence ; il connaît parfaitement la politique parlementaire et les moyens de cette politique ; il fut député, longtemps ; il est sénateur ; et a situation politique a presque toujours dépassé le grade politique où il était parvenu ; son action politique a presque toujours dépassé de beaucoup sa situation officielle ; aussi connaît-il parfaitement la politique et, n'en a presque jamais, comme Jaurès, ému des grandeurs où elle paraît conférer ; son caractère aussi le garde contre les automontages de coups, contre les envahissements de la fatuité ; la politique fait la trame ordinaire de sa vie, de ses articles et de ses discours ; il en parle brusquement, comme un homme averti, comme un homme spontané, un impulsif qu'il est, ayant des amitiés et des inimitiés, solides, que ses ennemis nomment des rancunes, il fait des orties ; qui, entendues en leur sens littéral, le mèneraient toute sa politique même ; cela lui vient justement de ce qu'il représente un peu parmi nous, dans leur esprit et dans leur geste, ces vieux républicains de je parlais ; cela lui vient surtout, et ensemble, de son tempérament même, qui, intraitable, subit malai-
@@ -1673,8 +1349,6 @@ Clemenceau fait un exemple plus merveilleux encore ; ce n'est point par longues 
 sément les fictions, y compris et surtout les fictions de M. Clemenceau. Ou plutôt son tempérament fait en un exemple persistant d'un ancien tempérament ; indivisément il représente le tempérament des anciens républicains parce qu'ils avaient en eux ce tempérament ; et qu'on lui-même il en a gardé un. Ce sont de telles sortes qui lui maintiennent l'inaltié constante, obstinée, fidèle, de ses vieux amis et admirateurs ; car à son âge, ayant tant vécu, ayant subi tant de vicissitudes politiques, il a conservé ce que Jaurès n'a déjà plus, des amitiés et des admirations ; amitiés, admirations personnelles, d'hommes qui le connaît, qui ont fondé sur lui des admirations, des sympathies qu'il n'aura jamais connues, d'hommes ignorés, qui aiment et l'admirent silencieusement ; qui homme, aujourd'hui, n'a, encore, autant d'amis inconnus parmi les petites gens honnêtes et avisées ; il suscite même aujourd'hui des amitiés et des admirations ; tels de le premier abord, du premier choc, parmi de tout jeunes gens, socialistes, qui préfèrent son radicalisme natif et verjuteux aux vanités oratoires du socialisme scolaire ; ils savent tout ce qui lui manque ; mais ils aiment sa verve primesautière ; ils ont d'autres théories, ils ont d'autres oppositions, et le coup de bouture, ces raides agressions, ces saillies imprévues, ces plaisanteries à la Voltaire, à la Diderot ; car il n'est pas seulement un exemple d'une génération précédente, il remonte fort loin dans la tradition de l'esprit français ; il est clair, ouvert ; il n'est un *philosophe* qu'au sens du dix-huitième siècle ; mais en ce sens il est exactement ce qu'on nommait alors *philosophe* ; averti du travail
 
 [leaf 0366] [p. 151]
-
-CAHIERS DE LA QUINZAINE
 
 scientifique et philosophique juste assez pour ne l'avoir pas approfondi, pas pénétré ; juste à point, assez renseigné, assez ignorant, pour en faire des exposés ; il est pour tous ses amis et admirateurs, pour les uns et pour les autres, j'entends pour les jeunes et pour les vieux, non pas comme un enfant gâté, mais, ce qui est plus amusant, plus rajeunissant, plus délicieux, comme un quart gâté, comme un vieil oncle, qui a de mauvais quarts d'heure, mais à qui, dans ses bons moments, on ne peut résister ; ces bons moments sont proprement les frasques du vieux politicien ; car c'est la trame ordinaire de sa vie politique, parlementaire, gouvernementale, qui condamnerait M. Clemenceau ; et ce qui le sauve, et ce qui lui ramène la sympathie des tiers, la mienne propre, c'est qu'à découvrer, ce sont justement ses moments d'oubli, ses incartades, quand le naturel, et par suite quand la vérité reprend le dessus ; ce sont ses frasques, ses blagues, ses gambades, ses brimades, ses boutades et ses écarts ; on lui pardonnera beaucoup parce qu'il a beaucoup blagué ; il n'a pas toujours, évidemment, le sens du respect que nous devons aux puissances politiques parlementaires ; il ne sait pas toujours obéir et trembler, comme nous devons ; cet irrespect démoniaque a manifestations intermittentes a beaucoup nui à sa carrière politique parlementaire ; mais c'est cela aussi qui le sauve dans la considération des honnêtes gens, dans l'estime des hommes libres ; on assure que c'est à une mauvaise plaisanterie qu'il avait faite à un député qu'il dut de ne pas devenir président de la Chambre ; de tels traits honorent un homme.
 
@@ -1691,8 +1365,6 @@ Il reste que certains jours, à certaines heures, le vieux sang de l'ancien rép
 Le vieil orateur à ces moments retrouve ces parties de grande comédie, des fameuses pochades, des grotesques politiques, des fantoches parlementaires, des bêtes de Voltaire et de Diderot se retrouve aussi le fils de Molière ; on m'assure que dans cette séance du mardi 17 novembre il y eut des parties de la plus grande
 
 [leaf 0368] [p. 153]
-
-CAHIERS DE LA QUINZAINE
 
 et de la plus haute comédie ; on était à cent lieues du Sénat ; c'était tout le vieux débat français, — nullement romain, que l'on n'en croie, — de *l'honnête homme* et de la vie contre la domination de l'école ; c'était le vieux *dit* de Montaigne et de Rabelais, de Descartes et de Molière, de Pascal et de Rousseau contre nos ennemis les doctes ; et l'on dit que l'honorable M. Lintilhac, assis à sa place, faisait mine aussi piteuse que Thomas Diafoirus dessus son tabouret ; il essaya vainement de repousser les premières incursions ; vainement vainement, il se tint coi jusqu'à la fin de l'opération.
 
@@ -1714,12 +1386,9 @@ Il y a là non pas sans doute l'effet d'une justice imma-
 
 [leaf 0370] [p. 155]
 
-CAHIERS DE LA QUINZAINE
-
 nente, mais tout de même comme une immanente sanction, une correspondance, une communication de la cause que l'on soutient au langage que l'on parle ; un homme, pris au hasard, peut très bien dire vrai et bafouiller ; mais le même homme, étant donné le même talent, le même génie, à valeur égale, à dispositions égales, — sauf exceptions et sommairement parlant, — parle plus net, agit plus droit, pousse plus franc de pied quand il sait qu'il dit vrai, que quand il sait qu'il ment.
 
 C'est ce qui fait l'intérêt particulier du *Bloc* et de certaines œuvres, ou études, plus littéraires de M. Clemenceau ; dans *le Bloc* il n'avait tout de même pas des préoccupations politiques autant immédiates.
-
 
 *Cahiers de la Quinzaine. — Souscriptions mensuelles.* Je ne sais pas si j'ai dit, dans un cahier précédent, commençant mon compte rendu de gérance, du moins si j'ai exact dit qu'en fait les souscriptions mensuelles modestes annoncées pendant les séries précédentes ont été continuées, depuis le temps de leur annonce, avec une régularité, une constance parfaite.
 
@@ -1737,8 +1406,6 @@ Reconnaissons ici l'infériorité naturelle de notre fortune, comparée à celle
 
 [leaf 0372] [p. 157]
 
-CAHIERS DE LA QUINZAINE
-
 de son indépendance. En outre, tout le monde peut vérifier. Tout le monde, après coup, peut voir ce que c'est que du radium. Il suffit que le chimiste en montre. Au contraire il s'est constitué officieusement parmi le personnel politique professionnelle pacifique une entente internationale assez curieuse, fort connue de tous ceux qui étudient le monde politique parlementaire ailleurs que dans la chaleur communicative des banquets. Il s'est constitué dans plusieurs pays, dans les pays parlementaires, un personnel politique pacifique professionnel dont nous ne devons parler qu'avec le plus grand respect, car ces hommes réchauffent en leurs mains, fomentent les premières, fabriquent les premiers contrats de la paix internationale ; nous examinerons quelque jour leur action ; je ne connais pas personnellement les pacifiques des autres pays ; mais les politiques parlementaires pacifiques professionnels français ont assez de regrettable, qu'ils se font la main en faisant la guerre aux pacifiques français qui ne sont pas politiques parlementaires, par exemple aux socialistes révolutionnaires ; on demanderait que ces grands apôtres politiques parlementaires de la paix internationale eussent un peu moins, pour leur consommation, pour leur usage particulier, les sentiments de la haine et de la guerre.
 
 Nous examinerons quelque jour leur action ; historien, nous examinerons ce que vaut, historiquement, leur action ; socialiste, et révolutionnaire, nous examinerons quelque jour ce que vaut une action sociologique, parlementaire ; nous examinerons particulièrement si les progrès de la paix internationale se mesurent aux quantités de champagne portées en son honneur ou au con-
@@ -1752,8 +1419,6 @@ traire s'ils ne se mesureraient pas aux ententes économiques et aux ententes mo
 Les hommes qui plus ou moins officiellement représentent parmi nous les populations opprimées, — non pas les populations ouvrières socialement opprimées chez nous et partout, mais les populations nationales nationalement opprimées en Extrême-Orient, en Afrique, en Finlande, en Russie, en Amérique, dans toutes les colonies européennes, en Roumanie, dans toute la péninsule des Balkans, dans tout le monde, — sont, de ce chef, grandement respectables ; ils ont droit à un premier respect, comme ambassadeurs, comme représentant parmi nous des populations étrangères ; ils ont droit à un deuxième respect, extraordinaire, comme ambassadeurs de populations opprimées ; à ce troisième et autre titre, ils ont dans nos luttes politiques parlementaires comme un privilège d'extraterritorialité ; les mêmes hommes, sommairement, sont aussi parmi nous des apostolats ne coïncident-ils pas autant que paraissent le croire des politiques parlementaires avisés et de révolutionnaires enthousiastes ; car la résistance à l'oppression, la révolte, si elle est le premier des devoirs, est exactement un devoir de guerre et non pas un devoir de paix ; et l'autre part, au contraire, le devoir de paix n'est pas un devoir de révolte et combat
 
 [leaf 0374] [p. 159]
-
-CAHIERS DE LA QUINZAINE
 
 contre le devoir de justice ; mais laissons d'examiner cette contrariété intérieure de la paix et de la justice pour quand nous examinerons l'action des pacifiques ; aujourd'hui tout ce nous seulement noter que nous devons respecter triplement les pacifiques parmi nous, comme ambassadeurs, comme ambassadeurs de populations opprimées, comme ambassadeurs de la paix internationale, et nous devons leur conférer dans nos luttes civiques un véritable privilège d'extraterritorialité.
 
@@ -1771,8 +1436,6 @@ De tous les détournements, de toutes les prévarications politiques parlementai
 
 [leaf 0376] [p. 161]
 
-CAHIERS DE LA QUINZAINE
-
 rare ; on peut le schématiser ainsi : un oppresseur nationaliste étranger opprime un peuple national étranger ; par exemple un Tsar nationaliste russe opprime un peuple national finlandais ; un député, mettons socialiste parlementaire français, se constitue en France le représentant, le défenseur, l'avocat, l'ambassadeur de ce peuple national étranger opprimé ; par des discours prononcés dans des meetings plutôt qu'à la Chambre, par des articles de journaux et de revues ; nous obtenons ainsi à l'ambassadeur une autorité morale, un triple respect ; l'ambassadeur alors se retrouve politique parlementaire ; comme politique parlementaire il convertit en autorité de commandement cette autorité morale qu'il avait reçue comme ambassadeur ; il exerce enfin cette autorité de commandement sur et contre les simples citoyens qui lui avaient constitué son autorité morale ; et quand, déniaisés, nous commençons à nous vouloir défendre contre cette autorité de commandement, l'ambassadeur se retrouve sous le politique parlementaire ; comment ! disent les bons camarades, vous avez écrit un mot contre ce député qui voulait vous imposer l'autorité de son commandement, son gouvernement, sa politique et son arbitraire ; vous ne savez pas, malheureux, que vous faites le jeu du Tsar et du Sultan.
 
 C'est, appliqué aux relations internationales, ce fameux : *vous faites le jeu de la réaction*, par qui les politiques radicaux réactionnaires obtiennent si aisément, depuis l'amnistie et la corruption de l'affaire Dreyfus, que les mesures de réaction les plus arbitraires, les plus violentes, les plus
@@ -1785,8 +1448,6 @@ graves, soient précisément volées par nos révolutionnaires professionnels de
 
 [leaf 0378] [p. 163]
 
-CAHIERS DE LA QUINZAINE
-
 Nous aurons beaucoup à conter quand nous traiterons de la politique internationale de nos socialistes gouvernementaux ; nous examinerons en particulier comment il se fait qu'étant députés, ayant un pouvoir constitutionnel d'interpellation, de délibération, et de vote parlementaire effectif, ils n'interpellent jamais le Gouvernement sur sa politique étrangère à la Chambre, où il peut y avoir sanction efficiente, et pourquoi ils interpellent toujours le Gouvernement sur cette politique étrangère dans des groupes socialistes nationaux, où il n'est pas, où il n'est pas représenté, dans des meetings, où tout se passe en paroles ; nous leur demanderons comment on peut soutenir à fond et sans aucune réserve tout un Gouvernement, et n'accepter pas sa politique étrangère, à moins de supposer que la politique étrangère d'un Gouvernement est négligeable, pour les internationalistes, ou que toute notre prétendue opposition ne soit qu'un faux-semblant ; je continue aujourd'hui simplement le compte rendu de ma gérance ; il faut que je dise à nos amis, à nos souscripteurs, à nos abonnés, quel accueil nos cahiers reçoivent auprès des différents publics, auprès des différents personnels ; quand nos abonnés lisent un aussi grand nombre de cahiers, aussi travaillés, aussi considérables, publiés pour les populations opprimées de tout le monde, — et sans excepter les cahiers que nous avons publiés, en tenant aux cahiers des quatre premières séries, et au commencement de la cinquième, à la première partie de la cinquième, — quand nos abonnés lisent tant de cahiers, si considérables, pour les populations extrême-orientales, chinoises, massacrées par les expéditions européennes, asio-chinoises, opprimées par les mission-
 
 [leaf 0379] [p. 164]
@@ -1798,8 +1459,6 @@ naires catholiques et par les fonctionnaires français, pour les Juifs de Rouman
 C'est ici l'effet d'un de ces raisonnements que je suis beaucoup trop bête pour comprendre ; je n'ignore pas que le combisme a gagné toujours les jours du terrain dans le pays politique parlementaire ; et il en a encore pour un certain temps, à se maintenir ; les oppositions, les défections qui apparaissent tous les jours un peu plus nombreuses ne sont l'effet ni de révoltes libérales ni de révoltes libertaires ; elles ne sont elles-mêmes que les manifestations de combinaisons parlementaires et politiques ; elles menacent moins le combisme que le minis-
 
 [leaf 0380] [p. 165]
-
-CAHIERS DE LA QUINZAINE
 
 tère de M. Combes ; et le combisme est aujourd'hui si puissant dans le monde politique parlementaire, si entré, et profondément, dans les mauvais raisonnements et dans les habitudes mauvaises, dans les plis de discours et dans les plis d'actes que son sort n'est plus lié au sort du ministère Combes ; ce qui est très grave, le combisme reçoit récemment d'illustres et de solennelles adhésions ; ce qui est beaucoup plus grave, et ce qui personnellement m'est très douloureux, je vois qu'il a gagné parmi nos amis, qu'il est entré dans les esprits, qu'il trouble les consciences, qu'il a pénétré ; le combisme réussit, et non d'une réussite éphémère ; non pas seulement de cette réussite extérieure et grossière dont nous pourrions pour un temps nous consoler, non pas seulement de cette réussite matérielle, temporelle, de puissance et de politique, d'aventure et de fortune, et d'opportunisme ; mais de cette réussite beaucoup plus grave qui est de la pénétration dans les consciences ; pour moi, quelque tristesse que j'éprouve quand je vois de grands amis, ou des amis prochains, se séparer, ou s'éloigner de nous, je ne bougerai pas d'une ligne ; je ne plierai pas ; je ne m'inclinerai pas ; je n'inclinerai pas mon idéal socialiste devant les substitutions, les altérations, les abâtardissements du radicalisme politique, devant les adulterations du radicalo-socialisme, devant les limitations de l'opportunisme ; je n'inclinerai pas ma méthode révolutionnaire devant les compromissions, devant les déviations de la politique parlementaire ; dreyfusiste, je n'inclinerai pas la justice devant la raison d'État ; je n'inclinerai pas la vérité devant la raison d'État ; je n'inclinerai pas devant la raison
 
@@ -1814,8 +1473,6 @@ C'est pour cela, je le croirais, ils l'ont, on ne connaissait pas l'esprit et le
 Singulière mentalité, vraiment, et que je ne puis pas même un imagination me représenter ; pour se faire le défenseur des libertés nationales finlandaises, n'est-il pas indispensable de se faire le complice des asservissements politiques parlementaires français ? pour qualifié contre les servitudes étrangères il est indispensable de participer aux asservissements français ? de tels raisonnements me passent.
 
 [leaf 0382] [p. 167]
-
-CAHIERS DE LA QUINZAINE
 
 De tels raisonnements passent la raison ; mais dans le déraisonnement général d'un pays tout entier corrompu par la politique parlementaire, ils réussissent d'autant plus ; ainsi nos cahiers, pour avoir maintenu l'indépendance de la rédaction et de l'administration, l'indépendance de leur texte et l'indépendance de leur budget, contre les empiétements d'un gouvernement autoritaire, pour avoir maintenu des droits de la justice, les droits de la vérité, les droits imprescriptibles de la conscience, pour avoir maintenu leur idéal socialiste, leur méthode révolutionnaire, leur méthode dreyfusiste, leur méthode libérale, ou libertaire, sont ou maltraités ou au moins desservis par des hommes qui trouvaient tout cela excellent pour la France il y a quelques années, qui aujourd'hui trouvent tout cela excellent pour tous les autres pays que la France, qui aujourd'hui trouvent tout cela pernicieux pour la France, et dangereux, et hautement condamnable, par cette seule raison qu'aujourd'hui en France ils sont momentanément les plus forts.
 
@@ -1841,8 +1498,6 @@ Ce qu'il y a de désagréable dans les fondations que l'on fait de prix et d'aca
 
 [leaf 0384] [p. 169]
 
-CAHIERS DE LA QUINZAINE
-
 qu'une certaine tenue, et que les prix vont toujours aux candidats qui ont le plus de parrains. Parrains combistes ou parrains réactionnaires, là aussi on a simplement substitué, au baptême catholique, un baptême laïque, un sacrement de défense républicaine.
 
 Contribution à ce que j'ai dit du vice bourgeois : les prix, surtout les prix en argent, comme les souscriptions, iront toujours de préférence aux riches, avares ou prodigues, et aux besogneux prodigues, aux institutions éblouissantes, sans rendement, sans travail, aux gérants dépensiers, aux grands consommateurs.
@@ -1860,8 +1515,6 @@ peut partout et toujours a seul qualité pour parler en leur nom.
 Ainsi l'entendait ce grand Bernard-Lazare ; assailli déjà des inquiétudes, menacé des fatigues, miné de la maladie qui devait nous le dérober treize mois plus tard, ce n'est point par une juxtaposition fortuite que dans le vingt-et-unième et dernier cahier, cahier supplémentaire, de la troisième série, la *consultation* suprême sur *la loi et les congrégations*, datée de Paris, 8 août 1902, joignait un énorme *mémoire et documents de Jean Deck pour la Finlande* ; ce n'était point par un voisinement fortuit que Jean Deck avait de l'amitié pour Bernard-Lazare ; mais cette amitié n'était d'une solidarité d'action ; ces deux hommes faisaient exactement le même métier ; il n'y a qu'une justice, finlandaise et française ; il n'y a qu'une vérité, finlandaise et française ; il n'y a qu'une liberté, finlandaise et française ; demain si les Finlandais, devenus les Russes, nous serions contre les Finlandais, avec les Russes ; la fidélité, la constance dans l'action ne consiste pas à suivre dans la voie de l'injustice les anciens justes, quand ils deviennent injustes ; elle ne consiste pas à suivre dans la voie du mensonge les anciens véridiques, devenant menteurs ; elle ne consiste pas à suivre dans la voie de l'erreur ou du mensonge les anciens libertaires ou les anciens libéraux devenus autoritaires ; c'est la justice même, à la vérité même, à la liberté même que nous devons constance et fidélité, non aux faibles hommes qui peuvent momentanément, et j'ajoute que parmi les hommes constant à beaucoup d'hommes et à beaucoup d'institutions, à tous les partis politiques, pour demeurer fidèle et
 
 [leaf 0386] [p. 171]
-
-CAHIERS DE LA QUINZAINE
 
 constant à la justice, à la vérité, à la liberté ; pour demeurer fidèle et constant au dreyfusisme, il fallait fausser compagnie aux partis politiques parlementaires qui prétendant continuer le dreyfusisme en réalité de détournement, l'exploitaient, le méconnaissaient, le trahissaient ; le dénaturaient ; ce sont les hommes et les institutions politiques, ce sont les partis qui sont infidèles et inconstants à la justice, à la vérité, à la liberté ; pour demeurer fidèles nous-mêmes et constants à la justice, à la vérité, à la liberté, il faut que nous fassions aux hommes et aux institutions politiques, aux partis, des contre-infidélités, des contre-inconstances, égales et de sens contraire à leurs propres, directes, et véritables inconstances, à leurs propres, directes, et véritables infidélités.
 
@@ -1881,8 +1534,6 @@ La terre de France est la plus vieille terre de liberté, la plus féconde ; la 
 
 [leaf 0388] [p. 173]
 
-CAHIERS DE LA QUINZAINE
-
 monde la mère de la liberté moderne ; il serait prodigieux que les efforts qu'elle fait pour aller au secours des peuples opprimés lui revinssent en servitude pour ses propres enfants.
 
 La politique de M. Combes est accueillie favorablement. Bernard-Lazare ne séparait pas les libertés françaises de toutes les libertés nationales et internationales ; comment l'eût-il fait, lui qui était plongé tout entier dans les revendications des libertés et de la vie des populations opprimées.
@@ -1901,8 +1552,6 @@ Un homme comme Bernard-Lazare, qui ne croyait pas aux banquets, qui n'allait plu
 
 [leaf 0390] [p. 175]
 
-CAHIERS DE LA QUINZAINE
-
 travail diplomatique et du travail de propagande, qui avait pris et qui gardait le contact de l'ennemi, de la tyrannie ennemie, ne faisait pas de ces différences, politiques, parlementaires, inattendues ; se tournant vers le monde il ne revendiquait pas les libertés des populations opprimées pour ensuite se retournant sur Paris gouverner l'étranglement des mêmes libertés ; et parmi nous tous, et comme nous tous, n'était-il pas frappé, au plus profond de son instinct libertaire, par la similitude presque inespérée des raisonnements et des prétextes autoritaires dans tous les pays d'avant et de gouvernement. Qu'on oublie un instant les préoccupations politiques parlementaires absorbantes ; qu'on relise impartialement ces cahiers que nous préparions alors pour la Finlande ou pour les Juifs de Roumanie ou de Russie, et que l'on nous réponde, si ces raisonnements, si les prétextes, si les raisonnements autoritaires n'ont pas en tous pays comme une même résonance ; et en tout temps : un protestant des plus qualifiée me disait, au courant de juillet dernier, que les mesures préparatoires, ou les mesures d'approchement prises par le gouvernement radical successivement contre les catholiques présentent une singulière analogie avec les mesures d'approchement prises par Louis XIV contre les protestants avant la révocation de l'Édit de Nantes ; nous ne pouvons poursuivre ici la comparaison ; je demanderai peut-être à l'auteur même de la poursuivre en un cahier ; mais un véritable instinct de libéral, ou de libertaire, ne s'y trompe pas ; il y a comme un arrière-goût de l'autorité de commandement de le vrai libertaire, que le vrai libéral reconnaît dans un décret présidentiel comme dans un oukase impérial,
 
 [leaf 0391] [p. 176]
@@ -1915,11 +1564,7 @@ Nous avons reçu, nous, ce contact immédiat et glacial de la tyrannie ; j'ai vu
 
 [leaf 0392] [p. 177]
 
-CAHIERS DE LA QUINZAINE
-
 la respiration de la liberté a du bon ; que la France est un bon pays, et Paris une bonne ville ; qu'il ne fallait pas que l'effort de tant de générations fût perdu ; car nos aïeux n'ont pas tant souffert et tant lutté, tant vécu et ils ne sont pas morts seulement pour assurer la multiplication des palmes académiques ; mais ils ont peiné, lutté, souffert leur vie et leur mort pour que ce peuple devînt un peuple libre, pour que ce coin de terre devînt le chaud foyer de la liberté dans le monde, pour que Paris devînt ce qu'il est, littéralement la capitale de la liberté dans le monde.
-
-  CHARLES PÉGUY
 
 [leaf 0393] [blank verso]
 
@@ -1929,36 +1574,15 @@ la respiration de la liberté a du bon ; que la France est un bon pays, et Paris
 
 [leaf 0396] [p. 181]
 
-TABLE
-
-PAGES
-
 *Notre catalogue analytique sommaire* . . . . . . . 2
-
-**petites garnisons** . . . . . . . . . . . 5
-
-**la France vue de Laval** . . . . . . . . . 7
-
-Charles Péguy. — *Avertissement* . . . . . . . . 9
 
 FÉLICIEN CHALLAYE. — *La France vue de Laval* . . . 13
 
-  la ville . . . . . . . . . . . . . . . 14
-  les habitants . . . . . . . . . . . . 15
-  les groupes sociaux . . . . . . . . . . 24
-  les journaux . . . . . . . . . . . . 26
-  la vie religieuse . . . . . . . . . . . 32
   la vie administrative, l'enseignement . . . . 43
   la vie politique ; les élections . . . . . . 51
   la classe ouvrière ; le mouvement syndical . . 59
-  l'Université Populaire . . . . . . . . . 62
   la ville contre l'Université Populaire . . . . 73
-  l'action ouvrière depuis 1902 . . . . . . . 80
   conclusion ; — le socialisme à Laval . . . . 83
-
-**Orléans vu de Montargis** . . . . . . . . . 87
-
-CHARLES PÉGUY. — *Avertissement* . . . . . . . 89
 
 *Le Progrès du Loiret*, numéro daté du vendredi 29 janvier 1904. — *Obsèques du docteur Gebaüer* . . . . 105
 
@@ -1970,16 +1594,11 @@ CHARLES PÉGUY. — *Avertissement* . . . . . . . 89
 
 *Le Progrès du Loiret*, numéro daté du samedi 19 décembre 1903. — *Arrondissement de Montargis ; cérémonie laïque et républicaine* . . . . . . . 116
 
-**Cahiers de la Quinzaine** . . . . . . . . . 125
-
 CHARLES PÉGUY. — *Cahiers de la Quinzaine* . . . . 127
 
 *Georges Clemenceau ;* — *discours pour la liberté* . . 127
 
 *Cahiers de la Quinzaine ; souscriptions mensuelles* . . 155
-
-*Souscriptions extraordinaires* . . . . . . . . 155
-
 
   *Nous avons donné le bon à tirer après corrections pour deux mille exemplaires de ce douzième cahier le mardi 15 mars 1904.*
 

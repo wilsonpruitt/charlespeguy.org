@@ -7,208 +7,60 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 17071
 ---
-
-SEPTIÈME CAHIER DE LA QUATRIÈME SÉRIE
-Cahier
 de Noël
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-$ PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-£”
 |
-RNA SUR a
-RG A ad st UE LETTRES ES
-MIA RS) ALAN CE son PAUCNO CA FACUEE MES SE AGE ME DEN \ AE VApE
 Hart 122 AP LA EE AA EMMAQUE LE iL NT | SRE fs Je tr
-TA ÿ MALE YA RAR RAP à
-Fa AE D
-i@ AU 1 NTI NLE FE
-} He ed AE na ARTE UT RL
-L *->à AT LME MNT " “+ Ua
 | ù ? ; HOT OP NÉ: YEN UNE ONE
-L, #1 TER ‘ HAE V1 0LETS CRC.
-Ÿ x FREE d'A NÉE 1 HAT 23
-: ‘ + MR MENT BAR V0
-ñ ‘SE (EN CE La DR:
-r S É2 A AE NE Me FA QUES
-PNEU LT PLU Et MER
-f : SAP ERA A a à BIS AN À
-se Te LRU
-U 4 F Ur NRA ra ; EL ET HAL
-+ T2 Dee LA
-ñ # fé JA 4 LME Fus 1 ; 1
-{ H IRAN LEARN 2
-RER D 1.29 4 RON PRE REA (STATE
-MER FA LS DATA RL EN 4: Le MT
 
 A Ron La et Enter 9 AT TS L
-US A lue 1 APE RME fs “AL A nie é 7
 ed TRUE FTP rs ET SPORE ENRR CR Er
 VV AU LES APPART 3; Fee PAT EE
-LP UDATE. de #0 ERA RATE À f r RNA {0 EUR
-DRE ie Dane 0 Vas LENS PE Arts
-NP Ge: + A0 OA he / + 0708 PMLGIEN
-HAN ÉErOE 750 AMEN ACT TR ARS À vs
-ARR ME ET ANS 134 2 1000
-Lt NO ES DTA SORT SENS j | 17e ANR SRE
 ES fie TANT RMC E HOT E APCE
-FANS ae k CA n ; peu + A En jee {
 NET HAINE 4 et qe À : ML, ?
-PAT OR tie 2 NPA
-KA TE EE ÿh HIER * A Eu pate AR "
-à NOTE NP LR PET db VE
-CHSTE: F Ÿ 0 x] % Us
-HOUR PEL, 0 * | FAURE T tes Er
 GER fie, x ñ FENTE NE
-4 à PR e  EE J J Vie + F
-F ANEUOES  ONNre € OA te
-RAS AE ALEER nat VENTRE
-RL ae AUOT 0 à : La TER F4
 a VE ri de nas ‘ AE AK \
 ÿ JA TA D 1 : ent ny
-Gb d'il 10 7 MÉDPAS. 4 à NOTES
 MOMIE LRO ESNREEE s ll ; ni pe
 Dpt ps È LA MT quil . é LIES
-ROUES à Dom. Pa AS x LATE) TT AUS
-DUAL TE CARTE } | 1, 4: 0 DR NU RER
 Ets LOT ANR OREANNE CE u l , Fi TRS
 NAS CE Per ? ESRI
-Pi LES ET An. : ÿ (te LE RNR #, AUTO EE
 NE a 0e ls SN NE 24 É 3 EN as
-D ARMES A OL RAA TEE A cire nr) ,
 PS LPERRPE et, TOUR ; j ANNE
-Pat CE QU Le: 7 , À De D'UN
 A! “a MORE Lo d'ANS F ‘HA | x Les RES D on
-PANNE: ROSNPRNE RENE | RASE à
-Ua KE FI AUL 0 * MIE * + NS
 #r Ex - 0e j rie pr AS À
-AA Sen 2 ant Ù 710) NSESE
-TRE PCA ACSLERS NES (1 TC RTS
 dÉ Le À 4120 PU LAN NAN 4 d ave em
-; mix FETES r, \'RMELR
 4 LPS MMRUONURE La | ss TAENE
-PR LL BE ME y RE Lie |
-PÉTROLE ER LE
-
-SE RS SALE FA MONTE
 
 ANNEE a ME SAT FPE à AU FANS Vie
-À SN ANA AE EC NC NN QU 2 à ,
 
-AO NDI ANNEES { LR LR RTS PR FER
-ee Li * - S AS TN PARUS VA A LIN
-AU SANEN F ? 4 LAS CT EMA QU'A Li RENE
 12 L'ÉTÉ NR #4 pee TAN SAN En ci NO NC RER
-UE TS Ru: f SENS RE M HER PAR:
-DAT ; « 1 RATE Ne LDERNELTE Le PET
-ASIE RME AA A NE SR RS EEE AP à AS CSN
-
-‘le gs (| 2 Le P % FR CIE
 
 AAA (A SA Pau nel A
 
-6 ME A $ ù | HS NT RRENRES Hs tous
-ARE UN OPA
-TONER è K ie PNEUS URL EU
-
-NA A NAT j = ÉPRRR EL Er TRUE NAN A AE
-
-AN , \ UP RO SMEREEe LS Ex.
-DNA € Re AQU 5 RE ne LS
-nu. | Mn 0 os
 AMAR A de AN PR Ne
-DR. Ù EAP UE Mo
-
-11 URI ERNST à & g 1 Ales ANFANÉETS ONE enr , À
-
-RCATOTOR HE) ARCS ES à DR RICA UNRE ME V eee
 
 rt ASIE De ÉVaR , Fo For Ft jen PES
 fur Por Ca ni diese VU fe ti SES AR
-$ on. RL , ; À 4. ee 1
-EM AU DETTE ; “CE
 AE PRRMCrATEC FE l'A: 71 it
-TA: UYPR 1: HET AU À : “+ NV
-Lu AN US RTE TRE J'ACNCRR
 #4 AE IAA 1 j mie
-se ES #1 CET À 11
-ONE Ÿ ta s à Re: :
-PAT: * A TA FRE. ‘
-* È we, à « Le
-SES | LS
 # AM ; SE
-Re. ; C2 5H
-DR EINTER. . ir
-ME k ; SR
-4044 . k Dr.
-Er L ; ë M r 1
-"1 LA p*
 ‘4 Cahier de Noël va
-ù # ris
-x ‘ era
-È [Re , L F7 sk PE
-EU DES e à TA
-ARUUE TES - | ENS
-NME dE : ui Cd
-TRE MA us, ?
-FN LE TER ' « C “ g =.
-HAS MERS 4 +
-$ AU RUN j | i AL
-VOUS ARE k à { s' Le 4
-F, CR FN ATEN
 
-À \ JR SAUT MERE LS TRES PES TAN { £
 AN ITS A PATATE ATH és PE Le bre ÿ
-Me RME Peur ANIEPI DEN NS Lo dt
-AMAR NEA RUE ZE NRA REA CR DAME RON
-IAE AE CA Re AIR ii
-AN AR ANR PNR TERRES AMC AA HT
-dr a us
-hi 1 pen 0 Ur
-V2 NA : ÿ LE HA EIRE SUV ER CES
-1 NET ja CE (# Ê ; CŒ EVE VAE RS ee (5 8 6 EN
 FLAN AR ti = F À ea LE ps he te AA AAES PATSANANE
-GS 1 f , ! A à LR HAN Ne MAO AV
-rt IR ÉRENt ; À RS Lo ARS ETAT FRERE
 METEO NÉS re tn NT AL VA l NEA
-Su S OS ON “ AO RAS 1 TNTE k $ TAN
 ci AATARIERS ÿ # LES CRT EN ESP Fo !
 
-BALLADE
-QUE VILLON FEIT À
-LA REQVESTE DE
-SA MERE POVR PRIER
-NOSTRE-DAME
-f
-
 DR ou. 1e ONE RUN T Les An LUS in:
-NAS) RAA EE TTE à LE 3 LCR AN ON ST Er Ho, FUN HA 5%
-DANS Ur \ AU MENT ETS LORTEES EEE | IN
-RO NON st 1e te MEME re: FA LAS
-HN Ce NUE AT Sd RE LA A
 “HAS Ë p ONE “PTS RE Fe Le home
 OST ÿ * APE MOULE ne MU EE RE Et
-* PA \ CCS 2 RE AREA RS A be RUE
-CNE ; ! RUN ARE ENS PRAIRIE LA
 *: UR NY \ ? us à 4. LS QUE RD NY ra ITS LA,
-NL EN À { 9% PR) si A DE LA Me
-FE PA 4e pe ; RME er NUQUE;
-AU UN 5 1 À FORUM ETES € pi PERLES k:
-* {> CRI x « L LT ST RE 20 ENTRE TU ROLL ETES
-“, AUTE AS CNET Fa DAS VERU EME nt CC SENS ,
 
-+ PRE
-te
-BALLADE
-QVE VILLON FEIT A
-LA REQVESTE DE
-À SA MERE POVR PRIER
-NOSTRE-DAME S
 Dame des cieulx, regente terrienne,
 Emperiere des infernaux paluz,
-Receuez moy, vostre humble chrestienne,
 Que comprinse soye entre vos esleuz,
 Ce non obstant qu'oncques rien ne valuz.
 Les biens de vous, ma dame et ma maistresse,
@@ -231,7 +83,6 @@ En ceste foy ie vueil viure et mourir.
 
 Femme ie suis pourette et ancienne,
 Qui riens ne sçay: oncques lettre ne leuz;
-Au moustier voy dont suis paroissienne
 Paradis paint, où sont harpes et luz,
 Et ung enfer où dampnez sont boulluz :
 L'ung me fait paour, l'autre ioye et liesse.
@@ -239,8 +90,6 @@ La ioye auoir me fay, haulte Deesse,
 À qui pecheurs doiuent tous recourir,
 Comblez de foy, sans fainte ne paresse.
 En ceste foy ie vueil viure et mourir.
-
-ENVOI
 
 Vous portastes, digne Vierge, princesse,
 Jesus regnant, qui n'a ne fin ne cesse.
@@ -250,49 +99,15 @@ Offrit à mort sa tres chiere ieunesse.
 Nostre Seigneur tel est, tel le confesse,
 En ceste foy ie vueil viure et mourir.
 
-; PTE & je 1 87 VA + RAA
-À 0 MP CU OR RS ee
 À LA NNURE Ha er DA NO AIRES bg PAETAIEr2" Sa
-. é LE > + À k
-MEN IE CCS : AM à:
-A: M re : Ÿ “rs à
-HR ÉUOS i 52 9
-ARR s ñ # Li ï
-Fi 4 * “ A,
-; ANT FAR . { A
-DES Me AE
-"RNCENE ire
-Fr TROIS LETTRES (avi
-a DE TOLSTOI . Et
-4 k \ 7 % Fer
-‘% AreR . A Une ;
-{ 40
-4 LR! Ces
-2: Et; 1 (SR
-nr F: k A ÿ
-ar etre à Fe \* e
-RE D L œ a -
-pt Lie mn, \ “ s 4 NT |
-je 4 Le y 41° CNRS
-n'a ” 3 Cr
 #] dé 4 i La
-FA r'ÉN : ar ù 7
-EME ET ER LE:
-RTE : v +, 01
-Ne D: n° à ; “ii:
 de RAT RORES AE
-2 ANSE AT PNETS € ral
-Fat DR Ale rs ; h Mb T
 nt ee MAL STE à Le ue" ré
-ne FER : d D:
 Re : aol ] L f* dt « ÿ [TEAM PANENTS si Là PRE AT RU OT +4
 ne ee PEAR 1 LE SSSR
 
-ACTE
-
 Ces lettres ont été publiées dans V'Athenaeum du
 { octobre 1902, avec la permission de M. Aylmer
-Maude.
 
 La première, écrite en anglais, est adressée à John
 Bellows, président du Comité des Amis des Doukhobors,
@@ -301,19 +116,13 @@ par M. Aylmer Maude et provenant de sa traduction de
 Résurrection. Il avait écrit à Tolstoi pour lui reprocher
 limmoralité de son livre, se plaignant surtout du
 chapitre xvir du livre I. Les deux autres lettres sont en
-russe.
 
 Traduction établie pour les cahiers par les soins de
 Romain Rolland.
 
-PREMIÈRE LETTRE
-7 décembre 1907
-À John Bellows
-
 Cher ami, j'ai reçu votre lettre et je voulais y
 répondre, mais j'ai été si faible depuis deux mois
 que je n'ai pu le faire. Ainsi, il faut excuser mon
-long silence.
 
 J'ai lu deux fois votre lettre et j'ai considéré la
 chose aussi bien que j'ai pu mais je n'ai pas réussi
@@ -328,10 +137,6 @@ Tout ce que je puis dire pour ma défense, c'est
 que, quand je lis un livre, ce qui m'intéresse
 surtout, c'est la Weliausschauung des Autors : ce
 qu'il aime et ce qu'il hait. Et j'espère que quiconque
-
-Il
-
-À Léon Tolstoi
 
 lira mon livre avec cette idée, verra ce que l'auteur
 aime et ce qu'il déteste, et qu'il sera influencé par
@@ -350,18 +155,12 @@ mes intentions n'ont pas été mauvaises.
 
 Bien à vous
 
-Léon Tolstoi
 |
-
-DEUXIEME LETTRE
-26 août 1902
-Cher Aylmer Maude
 
 La Revue Blanche de mars dernier contenait un
 bref exposé de vues qui m'étaient attribuées sur la
 question des sexes, suivi des opinions d'un certain
 nombre d'auteurs français concernant ces mêmes
-vues.
 
 Les opinions qu'on m'y attribue sont d'une absurdité grotesque et ne sont qu'un résumé incorrect,
 inexact, et de seconde main, d'une collection d'articles et d'extraits non datés, réunis et publiés par
@@ -373,15 +172,10 @@ eux pour l'exposé de mes véritables opinions. Aussi
 suis-je heureux de voir dans votre préface à l'édition
 revue et corrigée de Résurrection un nouvel exposé
 de mes vues sur la question des sexes, aussi raisonnable que le résumé de la Revue Blanche était
-absurde.
-
-Léon Tolstoi
 
 |
 |
-TROISIÈME LETTRE
 (Tout récemment écrite à une proche parente)
-Chère S.…. k
 
 J'ai été très heureux d'avoir une sérieuse conver-
 
@@ -406,11 +200,8 @@ mal terrible qui rend les gens mentalement infirmes. Pour l'amour du ciel, chèr
 pas tout à fait de mon avis, soyez sûre que je ne
 vous écrirais pas à ce sujet, si ce n'était pas une :
 
-PRE :
-; TROIS LETTRES
 - affaire d'une aussi énorme importance. Surtout,
 croyez votre mari qui voit les choses tout à fait
-raisonnablement.
 
 Mais alors, vient l'objection habituelle. Si l'on
 n'enseigne rien aux enfants, comment les occuperat-on? Faut-il qu'ils jouent aux osselets avec les
@@ -435,7 +226,6 @@ toujours propres sont nettoyés non par amour
 pour lui, mais pour quelque autre raison tout à
 fait inintelligible, c'est quelque chose qu'il peut et
 
-Léon Tolstoi
 doit comprendre, et dont il doit être honteux. |
 S'il n'est pas honteux et s'il continue de s'en
 servir, voilà le pire commencement d'éducation
@@ -447,7 +237,6 @@ la mort, je vous supplie de faire pour vos enfants.
 Qu'ils fassent pour eux-mêmes tout ce qu'ils pourront; qu'ils portent leurs eaux sales, remplissent
 leurs brocs, lavent et arrangent leur chambre,
 nettoient leurs souliers et leurs habits, mettent le
-couvert, etc.
 Croyez-moi, ces choses, bien qu'elles puissent
 paraître sans importance, sont cent fois plus importantes pour le bonheur de vos enfants que la connaissance du français ou de l'histoire, etc. Il est vrai
 qu'ici la principale difliculté se présente : les
@@ -460,10 +249,7 @@ s'habitueront ainsi à la simplicité, au travail, à se
 suflire à eux-mêmes. l
 S'il vous plaît, faites-le. Vous en serez satisfaite |
 dès le premier mois, et les enfants encore plus. |
-16 |
 |
-
-TROIS LETTRES
 
 Si vous pouvez ajouter à ceci le travail de la
 terre, quand ce ne serait qu'un jardin potager, ce
@@ -492,8 +278,6 @@ façon de vivre, depuis son lever jusqu'au repas
 du soir, lui prouve le contraire. Non seulement
 il cesse de croire à ce que lui disent ses aînés sur
 
-Léon Tolstoi
-À
 la moralité, mais au fond de son âme, il voit que
 tous ces enseignements sont mensongers, et il cesse
 de croire ses parents, ses maîtres, il cesse même de |
@@ -510,13 +294,9 @@ dans cette affaire, ne craignez pas le ridicule. Les
 neuf dixièmes de toutes les choses mauvaises dans
 le monde sont faites parce que ne pasles faire serait
 tenu pour ridicule. |
-Léon Tolstoi
-
-LA LÉGENDE DE LA VIERGE
 
 M. Joseph Bédier avait indiqué à Tharaud ces contes
 de la Vierge. Tharaud les a lus, et nous les donne
-aujourd'hui.
 
 En face de ces contes anciens, et authentiques, deux
 attitudes se présentent. On peut, comme savant, comme
@@ -542,70 +322,24 @@ d'une série qui sera intitulée la légende de la Vierge.
 La en EE nt TO er AMAR LE AN Obe
 PU ir ne ES "4
 A1 en cé NE LI RNNNE TR LL ANT
-PART VPN EEE À : : UN x #
-CAUSE L PERTE
 DER fr ON
-HAE ; VAN
-FN  at FA SAUE
-ait AA 1
-tr # A | 178
 HAN, NE RAn Ari ” Ü bec
-QUE qu ; ‘ \
-x Fe
-a PAU É LUC
 ee DU MOINE EX
-Me QUI Et
-Res , 1-8
-Ne VOULUT VOIR De
-y L PR L'
-\, | NOTRE DAME : “4 st
-A L + "2
-fi L d D :
-1 ; , 1
-PE 4
-\ À \ ! A FE
-LL 4 : À 11 y
-DE en e ; À
-us AUD | AU AL :
 | TL NON MREUS A #4 EN
-"4 ts n Fo 0
-ARE } d LAN
-foe pa MT 1
-L QU'A: PAM TE k 4
-UT RER PEL] Es |
-Ê FRE 1 * ; '
-PNR + Hé
-TS TON k i £ » 1 LPAUIE
-LR DU 0: * n se. EN T
 
 A AN Se AE de SR HENEAMENENE SAT
 | NOR AN NN PA MAR AE ATARI DE NU PE Lee ET NOEL ORNE ee AE
 lee PART UN « 1 No À { ' ÉARLASS es M'éer Men rre À RU
 Jai SAN < ) RE Ed à PEER de
 GMA CEE LORS de CÉSAR RE
-act) 0 MR ee
 | FERRSS ; 44 L PARLE ù rar Hs REN
-OPEL ÿ ' « Ds ST ART ONNNEN TS ANIONT RE ARR
-VHC DAS AE ee DORA ÿ BARS
-4 SN d QI KL AS EE EEE AS LAS MR
 th EAN ERNE OM?) k MATE Nr ui ANS VEN OT AELNe Et NA REA
-DRE ; (il 41h25 (CR PAONENEErET 2 NE
 A SES OHNEOS CN RAS en s N CA Brent HA
-TIMES
 Monet À É LOU UNE RON are
 TRES à ane OR PRESS 5 MA
-: 1 We Jon
-A Te RE RER PE NERE AE
-MR AL He À D ES NU en RAT
 
-Re Fi 2 N NET Re Wie HAL EVA A Sen
 oh TR ASE AE FUME RE ts NE Mal À \
-0 AMOR AE 3 RNs
 1 HE Ter QT CE NPA EN NNPRREEEES
-
-DU MOINE QUI
-VOULEP VOIR
-NOTRE DAME
 
 Un jeune moine chantait :
 
@@ -631,13 +365,10 @@ la douce dame sur toutes choses précieuse, entre
 toutes femmes élue, entre toutes bénie, la gloire
 du monde, la joie du ciel, le trésor de toute merci,
 
-i
-
 la légende de la Vierge
 l'espérance de tout salut, la gemme, la fleur de lys
 et d'églantier, Notre Dame Sainte Marie. Il aurait
 voulu la voir, ne fût-ce qu'une fois, des yeux de son
-corps.
 
 Exact à chanter chaque jour ses Heures, il la
 priait très humblement, à la fin de chaque office,
@@ -650,7 +381,6 @@ Pour tromper un désir que les jours, les semaines,
 les années exaltaient sans le satisfaire, il peignit
 sur les parchemins les plus précieux des images de
 celle qu'il n'avait jamais vue et qui emplissait son
-cœur.
 
 Aucune de ces peintures n'était pareille : car ses
 visions de la Reine d'amour étaient changeantes
@@ -664,9 +394,6 @@ Pourtant une image qu'il peignit de la mère de
 Dieu, dans un buisson de roses fleuri, son fils
 enfant entre ses bras, le plongea en un tel ravissement qu'il s'arrêta de peindre, épuisé d'une fatigue
 délicieuse. Son pinceau lui tomba des doigts et son
-
-IN IS j
-DU MOINE QUI VOULUT VOIR NOTRE DAME
 
 corps s'alanguit dans les bras de sa chaise. Par la
 fenêtre ouverte entraient dans la cellule les derniers rayons du jour. La Vierge qu'il venait de
@@ -701,9 +428,6 @@ joie et d'espoir :
 Mais vivement le moine couvrit de sa main son
 autre œil, et d'un seul regarda. Ce fut une éblouis-
 
-Lu
-KP
-
 la légende de la Vierge
 
 sante vision d'or, d'azur et de blanc, de vermillon
@@ -731,7 +455,6 @@ permettez qu'une seconde fois je vous voie.
 
 — Tu me verras, répondit l'Image posée sur le
 pupitre, si tu consens à perdre le second de tes
-yeux.
 
 — Il est à vous, reine des Anges, répondit le
 moine, et tout ce que je possède et ma vie.
@@ -745,9 +468,6 @@ tourmentés par un vent furieux, venir à lui, une
 humble femme, dont il ne pouvait distinguer ni le
 visage, ni les mains, ni les pieds perdus dans les
 
-° 4
-
-DU MOINE QUI VOULUT VOIR NOTRE DAME
 plis d'une robe sombre. Quand la pauvresse passa
 près de lui elle leva doucement la tête, et le moine
 contempla un visage qui n'était ni celui d'une jeune
@@ -763,7 +483,6 @@ dans votre gloire et votre joie.
 
 Notre Dame allait disparaître dans le lointain de
 la route, elie se retourna pour dire au moine en
-extase :
 
 — Continue, beau doux ami, de jouir de la
 douce clarté de Dieu.
@@ -781,12 +500,9 @@ ses yeux. \
 voulu me rendre aveugle. Vous m'avez pris un de
 mes yeux et puis me l'avez rendu. Merci. Mais
 
-Là, 3
-
 la légende de la Vierge
 volontiers j'aurais consenti à ne plus rien voir de
 ma vie et garder dans la nuit le souvenir de votre
-passage béni.
 
 A nul clerc de son moutier le moine dit qu'il
 avait vu Notre Dame, et de ce jour ne toucha plus
@@ -797,64 +513,19 @@ Au prieur qui s'en étonnait répondit :
 — Pauvres sont les lignes, pauvres les couleurs, pauvre notre art, pour exprimer la douleur
 et la gloire.
 
-5 Pen IR EEE ER | ré
-RS ARE PE le : i 41%
-+ Ma RES Ah ANEUR “ À' #18
 | “MONET : û ‘pr
-Men AE 1200
-LL SUR AS * Fi
 to fils , NA
-À NES r NA:
-SR 0
-‘ k 4 4x : AT We ü
 M be Le ee x à ‘ FOR
-SR Has * ve": RER
-AS FAR re
-LA OO TPE TRE, L ‘ sa
-+208 He PAT UNE + Nr
-DURE ORNE, 14 : L “Ya
 | Ya AELis N'a 14 se : FC
-ENT. ANSE Co 22 OM 4 , M 7
-ALU ATOME EE { But:
-Ar » pet EUR Mt Pr NE Tr.
-j PEN HA “a ORTUSE : ; ML:
-He Live 1 AM è
-PAT ER DUT PUR ARMES +
-1 17 00250 Te |” ! ñ “S :
-+ TO AA ANT EE | 0 “is
-7% MES PR, A
-*J NAS PNA 4 + L
 Mot in NE U “ à a #,
 ni LX Là 1 A TAN GPU) SSSR
 
 | Fans ANA AO ANT AE
-TONER (1 RO YTTNESTA NAME ee FL SERRE M
-1 PLV AIN fl CPU } x + f. “AAA TA PAET A SSL
-APR DRE AA AN TAN ME ire 1 UC Er RS ere
-SE ( AU ' Ft ONE IN EN NAN Pere fi HER à NES
 PR et pal a à LS + RON NE) Et D'EVENE x
-1 LANTERNE Fa CO CA ARURS RÉ UUE L. 7 EU
-: OS SN ne ULe A RU
-DR RE ln LEE US NME AATN UE" SAR ARTE:
-A REOrUE 1 ‘ Û pr d'énbe 1e PEER » MONS.
-1 2 LPS : $ ) 14 79 MAR r S OR PRET
-CNT ORNE RAT. URI TT SES 2 l
 10,1 Aa AGEN k (aLA 6 pi, Rd Avr 4 RE CARPE EN SRE, TES
-: 1102 Re ON SRE D Ton
-1 AE or MIEL AS Fi pe.
-{ANR ASE À Re 2 MEL PTT “1
-D er ua Di 0e
-‘1 A0 RTE LUE CAE FES RARE RE. RMOEAT
-LAMESR a x f 14420 TE LATE Nr Me EU A
-Loin ï È }° RCE Tee TOUR à AA
 L' TN s' RFA A : J| ru é DARN 1 RO TER L'CEUR Pal)
 
-LEA ASE TIC s ( ME ; RE UT KR RE D
-
 ml COM LA T 2 RCA gr A: (oies a.
-
-PAT
-L'IMAGE
 
 Pour honorer et servir l'émeraude, la gemme,
 
@@ -917,12 +588,9 @@ salem. Ma lasse d'âme, mon las de corps auraient
 grand joie, si dans mon oratoire était la face de la
 douce mère de Dieu. È
 
-L'IMAGE
-
 — Ma dame, répondit le clerc, la mort seule
 pourra m'empêcher de repasser par ici et de me
 souvenir de la prière que vous me faites si
-bellement.
 
 Le lendemain, quand il partit, son hôtesse lui
 rappela sa promesse :
@@ -958,7 +626,6 @@ Pilate, là le saint tombeau, Et
 
 AÀ ce moment, tout près de lui, il entendit une
 voix à la fois très impérieuse et très douce qui
-disait :
 
 — Vite, retourne sur tes pas, clerc oublieux...
 
@@ -990,17 +657,14 @@ loyales de bons artistes.
 
 C'est la nuit : sculpteurs et peintres ont allumé
 
-; L'IMAGE
 dans leurs boutiques des lanternes. Le clerc va et
 vient dans la rue étroite, sous l'œil des Saintes et
 des Saints, de la Vierge et de son fils.
 
 Les images lui font des signes et lui parlent à
-voix basse :
 
 — Prends-moi, chuchote un saint Théodore qui
 appuie sa lance dans la gueule ouverte d'un
-monstre...
 
 — Achète-moi, murmure une sainte Catherine
 qui porte sa roue dans ses bras.
@@ -1059,10 +723,6 @@ Le clerc releva la tête, fit mine de s'étonner,
 s'approcha de la dame et pénétra dans l'ermitage.
 Comme jadis, la dame lui servit une écuelle pro-
 
-à
-
-L'IMAGE
-
 fonde de soupe. Elle n'osait lui demander s'il avait
 tenu sa promesse. Ils se tinrent longtemps silencieux. Le clerc se disputait avec son âme pour
 savoir s'il abandonnerait l'image cachée sous sa
@@ -1076,7 +736,6 @@ des Oliviers ? Comment les clous, comment la couronne d'épines, enfoncée sur l
 gloire ? mais elle n'ose toujours lui demander son
 image. Et tandis qu'il répond à ses questions, le
 moine pense qu'il ne lui donnera pas la belle
-image.
 
 — Beau très doux sire, se décide enfin à dire la
 nonne, n'avez-vous en une poche de votre robe une
@@ -1090,17 +749,12 @@ des cieux.
 poitrine, seulement à cette minute, je me souviens
 de la promesse que je vous fis. Hélas! que n'en
 
-nt
-\
-
 la légende de la Vierge
 ai-je eu plus tôt souvenance ! Pardonnez-moi,
 bonne dame, le cœur est sûr mais la mémoire est
-faible.
 
 La nonne s'attriste en son âme; peu s'en faut
 qu'elle ne pleure. Elle ne fit rien paraître de son
-chagrin.
 
 Le lendemain, au petit jour, le clerc s'habille :
 l'image est bien cachée sous sa robe. Il lui tarde
@@ -1125,8 +779,6 @@ paroi de tombeau. Une sueur froide perle aux
 tempes du pèlerin : il recommence une fois, deux
 fois, trois fois sa promenade autour de la chapelle. |
 
-) a, KA NON ARANESESSS ; :
-L'IMAGE
 Sous ses ongles la pierre grince. Il frappe du poing
 fortement la muraille qui ne répond pas. S'il était
 enterré vivant! il saute en avant, en arrière, à
@@ -1137,7 +789,6 @@ ouverte ; la nonnaïin paraît sur le seuil effrayée :
 — Beau sire, qu'avez-vous? Votre visage ruisselle de sueur et de sang ?
 Avec effort, avec regret, de dessous sa robe, sans
 une parole, le clerc lui tend l'image de la mère de
-Dieu.
 La nonnain entre ses doigts, vivement, la
 prend et contemple ravie le visage douloureux de
 la reine de pitié.
@@ -1146,105 +797,36 @@ bien que n'aviez oublié votre promesse. Tant mon
 cœur est ému que je ne trouve rien à dire : que la
 mère de Dieu vous bénisse pour la joie que m'apportez, beau doux ami.
 
-CHA NEA Mt À RMS) d. RUE
 LR eRS Fan el MNT ae ART A CRUE L à À
 Fee Ne pau Hi DOTE AS Le PARA cel
 EAN eh UE UNE UTE EHESS
-M LUTAE ES pe: ER EME £ FM
-ur 4 | AD À EL 7 SN EI
 ne Li Ut ÉTAT
-jo he SE ATOS UE DAT |
-LORIE" 4 ; MORAL AS er D'UN
-Hart : : QÉRREe A SRE Er
 CARTER L re & HE Hp a La res SA
-CERTES É à
 rs QE EN RE Cu ATOME ET à Dre
-DNA TE j ER ÉTOILE
 a AQU FACE NET Ke La OCT cie 4 ri
-SAUT SAN AU NE DRE As ASUS NEO
-CPL ap LA AN RE A) LR? (26 à
-6 Ir EE NE so STI | SAR
-el +R { a si RAT or AEESS
-NME \ À PNA LA: ARS NE T0
-5 mn
-310 LD : ; RAA EDEN
-L AU +4 3 # L "a x a ‘4
-f 4 | AU D a "al h ; ne à Re | 3 à
-LATE MAN." * AL 1 ce Le STORES \
 
 L +r EE ÉLUS rs Heat PINOT NC MORT FREE
 > LAN EAST 4. IN GNT Ce AAA T AU ME. LE als
-ST oem
 US 44 AUS he 5 ASE TA re | Pa Es 3
 LE SO net rt NAT x KACIE £ 4 MER Et
-SPF RL 4 NI È RE
-1 PR N ù FAT
-4 3h : NE) F ; s ; Pa:
-AR e ::
-Ë dir À “UN
-“Ur x
-VAN TELS C L 1 wi
-DRE fs A
-L'AGMLEE : ER
-ka A 4 1
-4 ' 1 Rts
-ÿ LES TROIS ROSES TER
-1 FX:
 NE eu.
-Fe : e L FL
-4 ' DE NOTRE DAME à L EX
-LARPREE SNL:
-À Are SAINTE MARIE Me:
-RAR ] A : A
 lé A Ê ' ; L joel
 | A SJ ; « à 4
-: 3
-Li 4 u
-ét) Lu { FE
-AS e #
-:
-16 À AL:
 A pue e k heu L
-f f pu. A CR
-NEO Li A
 pes se De
-À rs ? * RCE: :
-EL? à sf Al
-RD al
-k A à Ke k dé: +
-FPE Le
-$ : = L Foi
-PPS '
-RS al 1: : h de (*
-FA nr " ! + : dé vi A
-134 SE PAL À bs + ae
-{ VITRES da: CA - vb SE fl RAT
 à | 21 CRT ON à bee di st, he
 
-AR ANA PER AT & nt Li, AE AAC AL 1 DEN LS
-va AS pete NA AU dv pe
 HAE AR RARE co on 4
 de Sn AURUE Xa rat PA \E K AN AMD Gi ce AURTE 1
 GE SHARE à Ro AAA Ja ne era M
 Fa PARTS no F \ JE NTM NE IPS te
-4) UT i WE ÿ At RTE AL à Mo:
 5e piece ‘à Din ue ai AA PAG NE 1 te NATUE
 \ pie en ï A Qu es AUS FA Le JAN
-RUE \. “ 1 è LE SU Rte We" Lx Le AT AMELS
 ; Dr } Ù f À RITES A fe Lau s NE ER en FAUNE |
 | SU PM AE h vi FyAe “à Bu, ù se ne a HS fra AE ñ
 He PAT fe NPA D'EUES AS Ed EL LE AU
-ia MST A , 1e Re RAY ie a CPE se
 Ru “y RENE ot ( vit, fi ue At de We LA, RS \e css » \ (} 4 f
-: 000 0 as sn a oo
-fl RCA Var 1 ANEA NA ( HR {HN NME AN AV
-FANS OR t ML eur AU eV dE Pr ME LTN DAC LE
 du ii FA dau ul A os fl A Ê rs
-PA 12e AU RE on AO
-
-LES TROIS ROSES
-DE NOTRE DAME
-SAINTE MARIE
 
 Amour voulut que dans le grand bois qui entoure
 le château de son seigneur, Beowulfe, un jeune
@@ -1264,7 +846,6 @@ arrivé dans le pays et que c'était, dans cette forêt,
 la première chasse qu'il suivait.
 
 — S'il en est ainsi, noble sire, je vais au chà-
-teau.
 
 Beowulfe descendit de cheval, et la bride négligemment passée sous son bras, il suivit la nonnain.
 
@@ -1299,8 +880,6 @@ chemins, plongé dans une rêverie délicieuse ; l'en
 tirèrent des sons de trompes, un bruit de rires et de
 voix encore lointaines. Beowulfe se jeta dans le
 
-LES TROIS ROSES DE NOTRE DAME
-
 fourré ; c'était la chasse de son seigneur qui revenait ; il laissa passer les cavaliers. Quand le dernier
 homme eut franchi la poterne, la nuit déjà était
 presque venue ; le chevalier s'étonnait que la nonnain ne fût pas encore de retour. Il commençait à
@@ -1317,8 +896,6 @@ Il offrit de l'accompagner, — la nuit était noire,
 — et de prendre la charge sur ses épaules, — le sac
 était lourd. La nonnain lui dit en souriant :
 
-— Merci.
-
 Elle était accoutumée à aller par les chemins, la
 nuit comme le jour, et à porter des fardeaux.
 
@@ -1334,7 +911,6 @@ les chênes, après les chènes un pré qui descendait
 en pente douce au bord d'un lac au fond duquel
 
 sommeillait l'ombre immense des hautes murailles
-6] IX,
 
 la légende de la Vierge
 
@@ -1343,13 +919,10 @@ Beowulfe s'arrêta à la limite des arbres sur la lisière
 du pré: il entendit la voix légère de la nonnaïn qui
 appelait le passeur :
 
-— Ohé.. ho.
-
 L'écho répéta : Ohé.. ho...
 
 Trois fois elle fit le même cri : personne dans
 l'ile n'y répondit. Le passeur était sans doute
-endormi.
 
 La nonnain s'assit sur une pierre et elle aurait
 passé là toute la nuit, près de la lourde barque qui
@@ -1370,11 +943,6 @@ visage ; elle dit:
 
 — Notre passeur, le vieux Jacob, s'est endormi
 là-bas près du puits.
-
-TC ? r
-
-À
-LES TROIS ROSES DE NOTRE DAME
 
 Le chevalier sauta dans le bac amarré près du
 bord, dénoua la chaîne.
@@ -1435,9 +1003,6 @@ cette lumière, se dépouilla de ses vêtements, entra k
 dans l'eau et se mit à nager vers la haute muraille
 du couvent.
 
-ie. A ÉRUTAMENR)
-LES TROIS ROSES DE NOTRE DAME
-
 Quand il fut au milieu du lac, la nonnain l'aper-
 çut qui nageait sans bruit, une épaule à demi hors
 de l'eau, laissant traîner derrière lui un sillage
@@ -1464,7 +1029,6 @@ son amie, toutes les veines de son visage gonflées
 dans un terrible effort. Apollonie lui dit à miVoix :
 
 — Pour l'amour de Dieu, redescendez. Vous êtes
-perdu.
 
 la légende de la Vierge
 
@@ -1482,7 +1046,6 @@ elle était amoureuse.
 Ainsi pendant longtemps, chaque soir, le chevalier vint retrouver son amie. Quand la nuit était
 noire, Apollonie plaçait une chandelle allumée sur
 l'appui de sa fenêtre : le chevalier se guidaït sur la
-lumière tremblante.
 
 Or, une nuit qu'il nageaït ainsi dans l'eau paisible, tout d'un coup un vent furieux s'éleva qui
 éteignit le cierge de la nonnain. La nuit devint si
@@ -1497,7 +1060,6 @@ rive. Il sentit qu'il était perdu et recommanda son
 âme pécheresse à la Vierge. Certes il regrettait
 en ce moment son coupable amour et il en avait
 
-LES TROIS ROSES DE NOTRE DAME
 grande contrition. S'il réchappait de ce péril, il
 irait le reste de sa vie en un cloître faire pénitence.
 
@@ -1528,9 +1090,6 @@ la fenêtre sur Le corps de son ami. Mais retenue par
 la crainte de la damnation, elle alla dire sa faute à
 l'abbesse.
 
-I
-
-AS
 la légende de la Vierge
 
 Le passeur tira de l'eau le chevalier et l'amena
@@ -1555,68 +1114,27 @@ et coloré comme s'il eût été vivant : une telle paix |
 était sur le visage du mort qu'il semblait seulement
 endormi; de sa bouche sortaient trois roses et
 chaque pétale était marqué du sceau de Marie : |
-A. M. |
 
 Le chevalier fut enterré en terre bénie.
 
 ; sé FINE EST EN" E ARN ta NX Fe
-NS TL, tetes
-HEAR NT LOT NT ES ” » + ANR
-Ps ee % . L A A
-FAR |
 ain (He nf à A » LA car re LEE:
 MA APRES Ù ee
-LS | Fa
-“ee DU CIERGE QUI | : :{1 80
- VINT SE POSER LISE
-SUR LA VIOLE DE <NSS
-HAÈVANETEN _ PIERRE DE SYGLAR Sr
-An 1 A ; ù +: L ES
-ENT à 5 (à pes
-à VE AR “ , ve À
-UE HAL s FPS 18
 pas: LEE
-HAS ù A LE
-L' | ï LF the
-Ha i ' ! | 1, 288
-mu an 0
-Me ay i nl.
-FA À \ 0 “ « 0 : SAME MUR EE
 
-UE Ho OUR AGEN 1) RAI RURAUU AZ Ne
-! MA CA A “ } EAU Fi En NRA TNT DA PANNE
-MAN A NS DT ORNE QUES ALT RER VE)
-ARR PA AA Et
 AU Ne) Ÿ BRU NON n noie
 OU SANE re La Sent (RL Sol
 Va Hi Hs sa At (HAINE Rs ES TS
 AAC pr ENTRE MERS de A A DAT
 #, 10
-ASE NS ARE
-BANPMLE D" ARR i Len NEA. SAN ) pipi
 1; MES RARE AL ru HAE AOTTRE Dante Ne Fra
 NL ro RTE EN NAN ETUAL ANT po ni SU #5 UE “à
-APE LA" . (} 0 D'UN Nos EL. 742 LE RSU
-HSM { } % 0 pe PÉTER
-(LP ES #4 FOND LANPOATE FASO Strat ARMAN Are
-ET Re OR OS RER DUMAS
-DAY HA y { FOR TU AT LL RER K 44 ot
-NEA PANIER i APR A (0) (AN ie TETE ARE
-SERIE AE De) À ; MAR ES Ra NE RQ NME FT
 EAU ROUTES ÿ À je COPA AN DURE Le YNTIERAERS 20 AE a TN as
-VND AE RAR à DAPATNAN 1 RUN NES ALTER
-AREA ANS \ \ 7e LME NUS PEN Ang d'ÉRAUER N
-
-DU CIERGE QUI
-MINT SE POSER
-SUR LA VIOLE DE
-PIERRE DE SYGLAR
 
 Roc Amadour est un pèlerinage très ancien : on
 dit que saint Amadour n'était rien d'autre que ce
 petit homme nommé Zachée qui grimpa sur un
 figuier pour voir Notre Seigneur quand il entrait à
-Jérusalem.
 
 Pourtant ce n'était pas vers son tombeau que
 s'acheminait, un jour de juin d'il y a très longtemps,
@@ -1633,8 +1151,6 @@ des paysans déchargeaient dans une grange. La rue
 était si étroite que le jongleur riant dut passer
 entre les roues. La chaleur était très lourde ; il
 était couvert de poussière, il avait faim, il avait
-
-à
 
 la légende de la Vierge
 soif. Les auberges nombreuses pendaïent au-dessus
@@ -1666,9 +1182,6 @@ mi-voix une chanson en l'honneur de Notre Dame. é
 Si pure était la voix, si belle la chanson, si déli- |
 cieux le son de la viole, que des pèlerins qui déjà
 
-56 |
-
-DU CIERGE QUI VINT SE POSER
 passaient la porte revenaient vers l'autel discrè-
 tement, sur la pointe du pied, pour ne pas troubler
 le chanteur. Et de tous les coins d'ombre de l'église
@@ -1714,7 +1227,6 @@ Sainte Marie en personne qui lui sourit de ses yeux |
 ! clairs, sous son diadème d'étoiles serties de rayons |
 de soleil, en sa robe ouvrée dans la douce clarté des |
 nuits, là haut, emmi la moisson tremblante des |
-cierges. |
 
 Insensiblement, légère comme la respiration de |
 l'enfant qui sur son épaule s'était endormi, s'acheva |
@@ -1729,8 +1241,6 @@ fois devant Notre Dame, il dit à haute voix :
 daigné te plaire à ma chanson, je te demande, en k
 témoignage de ta grâce, pour m'éclairer dans mon 4
 
-l
-
 its ve DU CIERGE QUI VINT SE POSER
 auberge et faire la fête de mon souper, un des
 cierges qui environnent ton corps gracieux et béni,
@@ -1743,7 +1253,6 @@ où il était planté et vint se poser tout droit sur
 les cordes de la viole de Pierre de Syglar, qui
 s'était mis à genoux. Un murmure d'admiration
 courut la foule des pèlerins; ils crièrent d'une
-seule voix :
 
 — Los, los au roi des chanteurs!
 
@@ -1754,7 +1263,6 @@ démenant fort et criant :
 
 .— A la porte! A la porte! Boutons-le hors la
 porte. Ce gueux est un sorcier, un magicien, un
-enchanteur !...
 
 En même temps il prend le cierge sur la viole
 du ménestrel, hausse ses jambes torses sur un escabeau et plante le cierge dans son chandelier. La
@@ -1765,7 +1273,6 @@ n'était qu'un traître de magicien ?
 Des murmures hostiles circulent maintenant dans
 les rangs des pèlerins qui s'écartent de Pierre
 
-EN
 la légende de la Vierge
 de Syglar avec des mouvements d'hostilité craintive.
 Pierre de Syglar sourit d'un énigmatique sourire.
@@ -1792,9 +1299,6 @@ encore frémissantes de la viole de Pierre de Syglar.
 |
 | .
 
-L hi a) x +
-DU CIERGE QUI VINT SE POSER
-
 Le sacristain forcené bondit et saisit le cierge :
 
 — Non, jamais, s'écrie-t-il de sa voix aigre,
@@ -1806,7 +1310,6 @@ ente solidement le cierge, avec ses deux mains, sur
 la pointe du chandelier; et pour le mieux assurer il
 le lie avec une ficelle de fer. Puis il se retourne
 et, s'adressant à Pierre, toujours à genoux, il lui
-crie:
 
 — Sache bien que Symon Magus, le prince des
 enchanteurs, n'était rien auprès de toi si tu fais
@@ -1816,7 +1319,6 @@ Par métier le jongleur est un homme sage et ami
 du rire. Et Pierre de Syglar, dans sa vie, avait eu
 tant et tant d'aventures, que pareille histoire ne
 pouvait pas l'émouvoir. Il se mit à rire tranquillement de la fureur du petit homme, dont la colère
-redoubla :
 
 — Tu peux rire, magicien du diable ! nous verrons
 si ton maître t'écoutera encore une fois.
@@ -1826,9 +1328,6 @@ Pierre de Syglar se remit à vieller et à chanter
 de printemps : et les pèlerins, dans l'église devenue
 toute noire, pensaient être dans la campagne, un
 matin d'avril, quand les hirondelles montent en
-
-GI
-IV
 
 la légende de la Vierge
 chantant vers le soleil. Le ménestrel disait de sa
@@ -1858,61 +1357,23 @@ cœur du jongleur qui chante et vielle si haut, si fort, |
 \ que sa musique monte à Dieu. Et pour la troisième
 fois, flamboyant comme l'épée de l'ange Gabriel, le |
 cierge descend et se pose sur la viole de Pierre de
-Syglar. J
-— Alleluia !
 |
 
-Rail , " F
-A 1
-TPE EN
-Ng LS W à \ SR
-PLU DU CLERC QUI D
 DAMES : PRIAIT NOTRE ji ETES
-EURE DAME POUR NL PE a
 se pd SA LUXURE ta 3
-+ PR Mi )e8S à 14 . Mi
-as à ae
-cr \ vas LR
-Lite ÿ RES PER Ur re
 se ni WE 2 1 né LUE Fr
-. EAUX | D,
 où Ni + Le re e
 s Pa Ne Rat . uv ; (AA Ô
 
-De EL ANR Ce A CARE UE K]
-
-MAT PU PME, PAR LA ET Le
-
-LA AA FR RAS Fa É DE NA D UPEN
-NT RTE k | RON: Ed A  FÉTAE
-TOC “ è 1 “h 2 DER » TLAX CE
-SN : Ce LRU): RAT 4
 ne de DR ” De RMY Er Fa AL A]
 PR: à { ' er RSR VER CH, és Les
-M NT ANS: PROS
-M er SAT { SPA ANNE ROOMS
-ARE 1 fs" ATEN PP:
-PRES) 1 ñ RES RENAN RER CONS
-M. LENS RES
 D, TASER pe 1 SN HE TON ERNERS Pro 0e {
-NÉE FTP ARE ee
-+ & y N ÉERe D (LS ALERT CE” Rx TN
-FE : FAR EN F pe ds ee Fe \t TV Te AE à
 20 re ir s Gr REA En 7e Feu ne f Lie
 Re RACE TE 14 AT Le AVE RE ae
 
-. SES ; RP ACER (he CREER CR.
-ete È {4/60 (TRS : US
-
-TRS ; ! À 1 él ORNE ÿ ete
 AC NAN VE il Li}: RENE
 Var F CADRE e JA res je SP TC ENS
 
-DU CLERC QUI
-PREAPFENOTRE
-DAME POUR
-SA LUXURE
-Florence
 Il y avait à Rome un jeune clerc patricien, de à
 famille sénatoriale, nommé Césaire, dont l'âme fort
 pieuse était aux prises avec un tempérament très
@@ -1931,7 +1392,6 @@ la voix de son âme. Souvent il fut tenté de fuir,
 de mettre entre sa maîtresse et lui des fleuves et
 des montagnes : jamais il n'eut la force de passer
 seulement la porte de la ville. Toutes les femmes
-65 IV.
 
 la légende de la Vierge
 
@@ -1959,7 +1419,6 @@ n'est-ce donc pas toi qui l'as voulu?
 Césaire ne répondait rien : sa maîtresse disait
 vrai. Il l'avait décidée, et maintenant il se sentait
 lié à elle par des liens que nulle force humaine ne
-pouvait rompre. |
 
 Un matin qu'il s'était endormi sur un banc de |
 pierre, dans l'atrium, torturé par la jalousie, le |
@@ -1969,8 +1428,6 @@ frère, il vit dans un nimbe couleur d'outre-mer, la À
 forme céleste de Notre Dame qui lui dit :
 
 — Maintes fois tu m'as honorée et mainte fois tu
-
-; DU CLERC QUI PRIAIT NOTRE DAME
 
 m'as priée de te délivrer de la domination de
 ta chair. Il sera fait comme tu le veux, car tu as de
@@ -2002,7 +1459,6 @@ amant : mais celui-ci la repoussa doucement, se
 leva, lui dit adieu, et se dirigea vers la porte.
 Elle le suivit toute tremblante et tenta de le retenir.
 Penchée sur lui, elle lui disait d'une voix basse,
-désespérée :
 
 — Où t'en vas-tu ? Je ne te cherchais pas. C'est
 toi qui m'as ensorcelée !
@@ -2013,11 +1469,8 @@ Le frère de Césaire parut dans l'atrium. Domitilla
 essuya vivement ses yeux. Quand son frère fut
 près de lui, Césaire se mit à ses genoux et lui baisa
 les pieds. Le mari de Domitilla étonné lui de- |
-manda :
 
 — Que fais-tu là ?
-
-Domitilla répondit haïineusement : |
 
 — Ne voyez-vous pas qu'il est fou. |
 
@@ -2045,9 +1498,6 @@ successeur dans la chaire de saint Pierre. j
 Césaire apprit avec tristesse la nouvelle que le ?
 conclave avait ratifié les vœux du pape défunt. S
 
-Dé UN tr CR $ 4
-J
-DU CLERC QUI PRIAIT NOTRE DAME
 Quand il dut quitter son couvent, le cœur lui
 défaillit ; il avait été si heureux dans cette haute et
 solitaire maison. Maintenant il lui fallait rentrer
@@ -2112,7 +1562,6 @@ dont les yeux brülaient d'une flamme pécheresse.
 Au moment où le pape posait l'hostie dans sa bouche, elle baisa de ses lèvres, jadis tant aimées, le ;
 bout de ses doigts. Ce baiser ralluma l'ardeur de ;
 
-DU CLERC QUI PRIAIT NOTRE DAME
 l'ancien amour, le pape sentit couler du feu dans ses
 veines, le souvenir de toutes les jouissances d'autrefois passa dans son esprit!
 
@@ -2148,7 +1597,6 @@ perverses comme le soleil les nuées. Et le pape se
 mit à penser que cette reine était la reine des cieux:
 
 il eut grande douleur de son péché et il se mit à
-pleurer.
 
 Quand la Vierge vit qu'il pleurait, elle repassa
 lentement devant lui; arrêtant sur lui ses yeux
@@ -2169,7 +1617,6 @@ Le soldat recula épouvanté :
 — Seigneur, dit-il, que m'ordonnez-vous ?
 
 — Coupe-moi le poing, répéta impérieusement le |
-pape. |
 
 Alors le garde tira son épée et d'un seul coup, |
 il trancha le poing. La main tomba. |
@@ -2177,10 +1624,6 @@ il trancha le poing. La main tomba. |
 Si ta main te scandalise, coupe-la.
 
 Le pape Léon, ayant fait oindre son bras de 1
-
-, TE) À
-
-' DU CLERC QUI PRIAIT NOTRE DAME
 
 baume et de myrrhe, fit savoir par la ville qu'il ne
 pouvait se lever, étant malade. Les nobles romains
@@ -2195,7 +1638,6 @@ Il fallait demander au pape Léon pourquoi il refusait de célébrer l'oflice di
 Depuis que notre Seigneur avait choisi Pierre
 pour être le chef de son Église, jamais scandale
 pareil ne s'était vu. Tout bas on murmurait le mot:
-« hérésie ».
 
 Les nobles de Rome se décidèrent à se réunir.
 L'un d'eux se leva et dit :
@@ -2207,12 +1649,7 @@ Le pape ne sait que répondre ; il est triste en son
 cœur. À voix basse il implore l'aide de la douce
 vierge Marie. Au ciel, la reine de miséricorde entend sa prière ; elle descend jusqu'au lit dans un
 rayon de soleil. Elle passe au-dessus des Romains
-assemblés.
 
-7e
-v
-
-PE TN
 la légende de la Vierge
 Le Pape tremblant la voit qui vient à lui. Elle
 s'approche de son oreille et lui dit :
@@ -2225,7 +1662,6 @@ main de ton corps céleste.
 Le pape alors sortit de son manteau son bras qu'il
 y tenait caché, vit qu'une main avait repoussé à |
 son poignet mutilé, et il connut que cette main était |
-incorruptible.
 I se leva, étendit des deux doigts sur le Concile |
 un geste paisible de bénédiction ; et sans un mot
 se rendit à l'église de Latran célébrer l'office divin.
@@ -2233,52 +1669,19 @@ se rendit à l'église de Latran célébrer l'office divin.
 
 MES Me OA ER er ES TOP tt PET ARE
 
-DRE dar, TUNIS
-
-a :
-MES 2 TS Ed
 Vie Û x, ee 4
-+R EN 1508
 
-Lo Lÿ> AS
 nt F: 1 LA ri
 
-Ÿ PAR ++ aa à
-LA TOUR D'ARMO 30
 7 RÉTEL Le NÉ vu EVE
-Dr pe La 4 F à: Vi
-TS ! NÉS " 0 v Us
-k : h ‘ à
-De à AT d ! er
 | SNS LATE
-S ENT ANNEE x ÿ
 
-+ PC RUE « “X
-
-141 a Er T2 Le
 | LATE a: Air ; en
 RAR ee PS à LA:
-ROME. 1 > CE
 
-Ÿ SE UTEUS 7
-rer + AD -U 4 140
-EN RON , = CE
-
-21e 8 PARA - x
-ete AE Pa EE, 1 :
-4 #7 F
-
-LM SON M
-
-M x, PAGE - k j Le
-CR: & PRARCIER . sp
 RUE LATNOR p” à ER se Le
 
-SP.
-- |
-s :
 |
-NOTE |
 Le poème suivant n'est que la traduction d'une 1
 gwerz en breton de Cornouaïilles ; ou plutôt, comme Ë
 je ne sais pas le breton, c'en est une traduction en \
@@ -2294,7 +1697,6 @@ dont voici la première sirophe : |
 « Qu'as-tu vu, marin, sur la mer?
 « — Une barque sans rames et sans voiles; et sur ;
 l'arrière, pour pilote, un ange debout les ailes È
-étendues. » ;
 J'ai cru mieux faire de réserver les vers 3 et 4 pour à
 le dernier trait. g
 Quand j'écrivis cette pièce, dans le premier mois
@@ -2305,14 +1707,11 @@ de Morlaix, en 1640, dans la nouvelle édition que les
 chanoïnes de Quimper ont donnée de son grand ouvrage .
 (La vie des Saints de la Bretagne Armorique, in
 
-LA TOUR D'ARMOR
-
 quarlo, cinquième édition, 1901, page 645). Is l'y donnent pour l « œuvre d'un poète anonyme », et l'ont
 extraite du Barzaz-Breiz, où elle se lit en effet (neuvième édition, page 490). J'ignorais alors tout le travail
 de critique qui s'est fait depuis trente ans sur le
 « macphersonnage » de Hersart de la Villemarqué : on
 peut lire sur la composition de ces pastiches ce qu'en
-écrit M. Luzel (Gwerziou Breiz-Izeil, volume I,
 page 284), et le petit travail qu'il a consacré au BarzazBreiz (Bouillon, éditeur).
 
 Je ne saurais toutefois déterminer dans quelle mesure
@@ -2330,59 +1729,28 @@ et non avec foi qui est singulier, Brutus avec vertus
 mais non avec {étu, etc. Tout cela n'empêche pas que
 je ne me reproche ces licences, et que sans trouver des
 vers moins bons pour manquer à cette règle, je ne travaille de tout mon cœur à y conformer les vers que
-j'écris aujourd'hui.
-
-15 décembre 1902
 
 MR RES RAS LT SP ANR Ar LE NES me de.
 \ re Fa Pate MP EL ENS LRO NE A VE A TEEN ARLES Le
-Eee $ : ÿ + 47 : Ti ALT AE Ne ÉRE
-LS ÊTES PARTS STE
 FACE É ne LP VEN TER ES AE PUR re
 NE F x si AU DRE EN EN LL ARR
-M 2. AT LE CU MEN MNER RE
-re | : SU er
-BAR En Le | : \ PT 0r QUE EE se ES
-RL De à 2 En ee a A NS: à
-FENTE : MR RIRE GE Vu AURA
-TR ENARTE 3 Cr POITRINE AE
-"eR ; … C RENE er. VA RCRRRR EEE U LE
-LR CNET LT nn DUT OPA SE: à
-E Le AS à 12 \A NT LARTS FRANS SET 1 à
 TE LA AR SRE pen ST
-HSE VF RAT HORS ENT RER ACER
-me += ! SE HE RP CEE SUR
-44 RE Er CN D BE
 TR £ j PRESSE Le LA ae See
-:2°#0e8 | A
 eh LE ne. Ep 1,45 RDA LT *
-MR re É t KA AN Le CURE « . É
-EAN SERRE ; rh AN UÈE PE ES
 TEEN as ee % ” È PL TUE ET STE
 
-LA TOUR D'ARMOR
-GWERZ DE CORNOUAILLES
-I
 — Pécheurs si ces vagues décombres
 Furent bien Armor, nul de vous
 N'a-t-il vu, vers l'heure des ombres,
-Madame Azénor à genoux ?
 — Monsieur nous l'avons vue : où penche
 Ce mur noir fouetté par le grain.
-Robe noire, catiole blanche,
 Front pale, et l'air pourtant serein.
-Il
 Un jour d'août arrive une troupe
 D'envoyés du sang de Trégor.
 On voit des housses sur la croupe
 Des chevaux gris harnachés d'or.
-$ 79
-di,
 
-ARTE PRE
-{ < EYES MERE RS (e
 cahier de Noël 4
-;
 Descend l'homme de l'échauguette : es
 — Sire ils sont là de manteaux bleus à
 Une douzaine, dit la guette ;
@@ -2391,32 +1759,24 @@ Faïs dresser dans ma salle haute
 Une table pour eux et moi. k
 C'est de Dieu que viennent les hôtes :
 Quiconque est roi reçoive en roi! : VA
-*
 — Seigneur notre roi nous envoie |
 Vous demander un cher trésor : |
 Pour son fils ravir votre joie,
-!
 Votre fille dame Azénor.
-. &
 — Ab! Messieurs de tout mon cœur. Elle, à
 Elle est le regard de mes yeux. ;
 On le dit beau, ma fille est belle ; 4
 Un vrai couple de rois, messieurs | !
-+ 4
 La noce dura deux semaines, À
 Officiait l'évêque d'Ys ;
 Quinze jours la danse se mène :
 Des harpes, comme en Paradis.
-80 #
 |
 
-x Ad
-LA TOUR D'ARMOR
 — Maintenant veux-tu, ma mignonne,
 Veux-tu nous en venir chez nous ?
 — Seigneur, que mon seigneur ordonne :
 Où vit mon roi, vivre m'est doux.
-À
 Quand elle vit la belle fille,
 La belle-mère en étrangla.
 — C'est fini ! Toute la famille
@@ -2425,8 +1785,6 @@ Tout nouveau tout beau. Bah qu'y faire ?
 Ces jeunesses... Malheur aux vieux !
 Les clefs neuves on les préfère.
 Pourtant les vieilles ouvrent mieux.
-*
-Avant huit mois — à mer ! montagne !
 Huit mois d'amour ! à temps jaloux ! —
 La vieille dit : C'est bon, Bretagne,
 De garder la lune du loup ?
@@ -2435,19 +1793,15 @@ Si tu n'as pas d'yeux ? Casse-cou,
 Sot ! Le renard pille tes treilles,
 Et ton nid loge le coucou.
 
-CH
-
 cahier de Noël 10
 — Merci madame. Ah ! fini d'elle. 1
 La perfide ! Gueuse en prison ! È
 Seules les mères sont fidèles.
 Dans trois jours au feu ce poison !
-III
 Quand le vieux roi sut la nouvelle,
 Il pleura, — pleura ! pauvre roi :
 — Vieil imprudent ! fou sans cervelle !
 Malheur à moi ! malheur à moi!
-% « e . (3
 A l'heure où rentre la flottille |
 Des pêcheurs par les soirs sereins :
 — Est-ce qu'on m'a brûlé ma fille,
@@ -2456,16 +1810,11 @@ Ou vit-elle encore, marins ?
 Seigneur, on la brûle demain.
 Dans sa tour, captive sonore,
 Nous l'entendimes en chemin.
-:
 Elle chantait sur la presqu'île,
 Dans l'ombre, oiseau mélodieux.
 Elle chantait un air tranquille :
 — Pitié pour eux ! pitié mon Dieu!
-82 à
 
-RP RS An *
-LA TOUR D'ARMOR
-: IV
 Azénor se rend vers les bûches
 En chemise longue et pieds nus.
 L'essaim d'or vibre autour des ruches :
@@ -2478,10 +1827,8 @@ Le peuple pleure : Ah ! pauvre père !
 Mais la chienne ardente après eux :
 — C'est œuvre pie, une vipère !
 De l'écraser avec ses œufs.
-Ds
 Hobhé ! souffleurs, ho ! de l'haleine !
 Hohé ! soufflons, ho ! des poumons.
-Soufllez, bons gars, à bouche pleine.
 Souflions ce feu comme démons.
 J'ai beau soufiler, j'y perds ma peine.
 Soufllez, soufllez. Qu'a-t-il ce feu ?
@@ -2493,7 +1840,6 @@ cahier de Noël 4
 Fait le juge de Goello; 1
 Ce bois, démon, tu l'ensorcelles :
 Ah ! tu ne brûles pas : à l'eau !
-V
 — Un canot sur la mer, regarde : Ë
 Sans mât, sans rame, infortuné ! :
 IL porte sur la mer hagarde ë
@@ -2502,7 +1848,6 @@ Et la mère sur cette tombe à
 L'allaite, pauvre petit ver, : "0
 Suspendu, comme une colombe
 Au bord d'une conque de mer. |
-!
 Écoutez! elle chante. Etrange
 Sur la mer sa voix retentit : É
 — Dors, mon amour! va dors, pauvre ange! 1
@@ -2512,11 +1857,7 @@ Mais ton père est perdu, chétif. %
 Or son ange, droit derrière elle, de
 Pilotait des aïles l'esquif. Ë
 
-LUE 2x0 RU EN PE CRE FA PO ESA 4
-ee 2 è
 ae LA TOUR D'ARMOR
-+ | ? \
-A4
 6 Sur Armor plane une épouvante.
 Au pied des murs pleins de rumeur
 Les hêtres que l'ombre âpre évente
@@ -2529,7 +1870,6 @@ Alors comme un hideux reptile,
 Sa face, orbe terreux et brut,
 Crache une langue à double style,
 Qui la piquant, elle mourut.
-* j
 Aussitôt s'en court le crédule.
 Sept ans la mer, du sud au nord,
 | Flot à flot, verte ou bleue, ondule
@@ -2538,8 +1878,6 @@ Dans tous les ports, Chypre, Surate,
 Rome, désir du pèlerin,
 Sousse, repaire du pirate,
 Parut le pilote chagrin.
-Ê 85
-A
 
 : cahier de Noël SRE 4
 Tant qu'il aborde à la grande île. C2
@@ -2563,12 +1901,8 @@ Et l'homme dont la gorge anhèle k
 Courait : et l'enfant caressant ; 4
 Avait pris la main paternelle, ÿ
 Et dans leurs mains bouillaït leur sang.
-86 È
-
-ri to Tru 4
 
 wi LA TOUR D'ARMOR
-+ g L
 
 Maman ! maman ! c'est lui ! regarde,
 | Papa que nous avions perdu !
@@ -2582,5 +1916,3 @@ Jusqu'en Armor leur fit cortège
 Une bande d'anges chanteurs. 4
 — Ainsi la Trinité protège
 La voile des navigateurs !
-Louis GILLET
-Lesneven, octobre 1go1

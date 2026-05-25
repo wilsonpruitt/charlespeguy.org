@@ -7,9 +7,6 @@ author: gabriel-trarieux
 isAvertissement: false
 wordCount: 5564
 ---
-
-PRIÈRE ET SALUT
-
 19. Demande. — Mais la prière n'aide-t-elle pas certaines gens à les acquérir ?
 
 Réponse. — Ils croient qu'elle les aide, tout à fait
@@ -25,13 +22,11 @@ que louange de Dieu ?
 Réponse. — Dieu, est-il dit, demande que ses créatures s'adressent continuellement à lui en termes de
 glorification et de tendresse; et par conséquent, un
 des objets de la prière est de satisfaire à ce désir de
-Dieu.
 
 21. Demande. — Une telle idée peut-elle faire honneur à qui que ce soit ?
 
 Réponse. — Non. Un être vraiment grand et bon
 serait vite fatigué des génuflexions et des louanges de
--sectateurs intéressés.
 
 22. Demande. — D'où vient une idée de ce genre ?
 
@@ -39,16 +34,12 @@ Réponse. — Elle vient d'Orient, où l'on ne peut approcher les sultans qu'ave
 sents et des salamalecs.
 
 23. Demande. — Quel est l'argument moral contre la
-prière ?
 
 Réponse. — Elle habitue les hommes à attendre leur
 secours de l'extérieur et par miracle; ce faisant elle
 atrophie et mutile leur énergie.
 
-113 ;
-
 le monde sans Dieu :
-F
 
 4 24. Demande. — Quoi encore ? |
 
@@ -76,7 +67,6 @@ Réponse. — Oui, carilest dit que nous n'avons pas
 
 : Réponse. — Oui, comme il est montré par le larron
 sur la croix qui reçut en don le salut quelques instants
-avant d'expirer. :
 
 97. Demande. — Quelles sont les idées de l'apôtre
 
@@ -102,11 +92,6 @@ dit: « Encore bien moins peuvent être sauvés les
 
 | nature : et d'aflirmer et de soutenir qu'ils le peuvent
 
-î à 114
-
-F
-
-PRIÈRE ET SALUT
 est une idée très pernicieuse, et qui doit être détestée. » (1)
 
 28. Demande. — Quel est l'effet de tels enseignements ?
@@ -148,19 +133,11 @@ moyens de salut.
 mendiant, parce qu'il serait trop pénible de le gagner. Les prêtres
 sont les courtiers de cette transaction. » — Vie de Schopenhauer, par
 Zimmern, page 124. — Cette critique s'applique avec autant de force
-aux Eglises protestantes.
-
-th
-
-14 Pi .
 
 L le monde sans Dieu
 
 a louanges, des pénitences et des offrandes, nous pouvons
 ne influencer sa volonté. Par conséquent toutes ces opi-
-{ | nions aboutissent en pratique à nier Dieu.
-
-{}| 30. Demande. — Comment cela ?
 
 l Réponse. — Il y a peu de différence entre un Dieu qui
 (f r'existe pas et un Dieu qui existe seulement en dehors
@@ -168,7 +145,6 @@ l Réponse. — Il y a peu de différence entre un Dieu qui
 par nous.
 
 { $ 31. Demande. — Quelle est la forme de prière la
-A moins recommandable?
 
 | Réponse. — La prière publique, parce qu'elle n'est
 gi pas silencieuse, mais bruyante; parce qu'elle n'est pas
@@ -187,9 +163,6 @@ ii lois de la vie et de leur obéir.
 ul 33. Demande. — Que devons-nous apprendre aux
 AU gens au lieu de leur apprendre à prier ?
 
-À ï Réponse. — A penser. (1)
-
-LES
 ai (@) Maistre de Balliol disait que plus il avançait dans la vie,
 ÿ moins il priait et plus il pensait. Lire aussi l'essai d'Emerson sur
 x « la confiance en soi ». Les gens perdus, d'après Dante, sont ceux qui
@@ -198,16 +171,6 @@ qi à progrès moral cesse de prier, car l'honnéteté est une de ses maximes
 ia, principales ». Il dit aussi que de prier devant les gens est « faire
 ii appel à leur sensualité », c'est-à-dire « s'abaisser jusqu'à eux ».
 
-He
-FU
-
-Ft
-
-qu
-
-1 ile SONORE
-: “ { | SS
-CHAPITRE XIV
 La mort
 
 1. Demande. — Depuis combien de temps la mort
@@ -241,23 +204,15 @@ formes connues de la vie. Pour parler exacternent, quelque chose
 a dû exister avant que rien pût mourir; tandis que quelques-uns
 des organismes les plus simples ne meurent pas mais se multiplient
 par scission en deux moitiés dont chacune devient un organisme
-entier.
 
-\
-117 VIT.
-
-SQL e s 2 PANTIN RARE PAL
 d ÿ ts tu, A Divan gi Ne SN À
-My . ! < RU NE
 L le monde sans Dieu
 4 5. Demande. — Se retrouvent-elles toujours dansle +
 même corps ? à
 ri Réponse. — Non. S'il en était ainsi les morts ressusci-
-à teraient. |
 | 6. Demande. — La mort est-elle une punition ?
 Réponse.— Pas plus que la vie.
 7. Demande. — Pourquoi les gens craignent-ils la
-mort?
 Réponse. — Ils ont appris à la regarder comme
 Û . la malédiction de Dieu pour les péchés de l'homme, et
 à croire qu'elle marque le commencement d'un jugement irrévocable ; mais les peuples sont en train de se
@@ -278,10 +233,6 @@ se trouvaient deux îles; dans la première la mort ne pouvait jamais
 4 de leur immortalité, apprirent à jeter leurs yeux sur l'autre île
 comme sur un port de refuge; ils lancèrent leurs barques sur les
 4 flots sombres; ils touchérent son rivage, et furent en repos. » —
-Lecky, History of European morals, volume I, page 214.
-
-PARA :
-LA MORT
 
 10. Demande. — Pourrait-il exister aucun progrès
 dans le monde sans la mort ?
@@ -323,37 +274,23 @@ nobles esprits sont affranchis des superstitions qui sont le cauchemar
 des faibles. » — Lecky, History of European morals, volume I, page 213.
 — Perdre ce qui ne peut plus nous manquer n'est pas un mal.
 
-I19
-
-D IN ARE AIONE ICRA SAM na COR
-EN IEN TT CL 4 Û V9' ot TCTATT MATNNRMINERS au 1
 D. le monde sans Diea "0 NN
 (a 14. Demande. — Est-il mal de pleurer les morts?
 4 Réponse. — C'est naturel; car tandis que nous |
-id fs Ÿ . = . La ;
 M VA devons faire face à notre destinée comme des hommes,
 nu nous devons aussi sentir comme des hommes.
 Re 45. Demande. — Comment pouvons-nous triompher
 4 de la mort?
-DATE ÿ J
 :V] | Réponse. — En aimant et servant quelque noble
 AL. cause, dans laquelle nous puissions nous survivre longAR temps après que nous avons disparu. dr
 | à 16. Demande. — Quels ont été les plus grands bienfi ‘ii faiteurs de l'homme ?
 |:10 Réponse. — Ceux qui ont soulagé son esprit d'une
-A de . . ŒUET .
 %f frayeur et qui l'ont aidé à faire un pas en avant dans
 1e la voie de l'affranchissement de la pensée.
 443 1
 ie l LA
 je
-D
 |: \YaNR
-si
-L'HIVER ÿ
-(UML } #
-
-CHAPITRE XV
-Immortalité
 
 4. Demande. — Que signifie le mot : Immortalité ?
 
@@ -381,8 +318,6 @@ est immortelle.
 Réponse. — Dans la croyance populaire c'est une
 étincelle, une flamme, ou une essence logée temporaire-
 
-121 \
-
 k le monde sans Dieu RENE
 ' 4 ment dans le corps, mais qui, à la mort, retourne vers
 if son auteur — Dieu.
@@ -391,9 +326,7 @@ Réponse. — On le croit ainsi.
 7. Demande. — Les animaux ont-ils aussi une âme?
 Réponse. — Peu de personnes le croient. 1
 8. Demande. —- Le corps peut-il vivre sans l'âme ?
-Réponse. — Non.
 9. Demande. — Et l'âme, peut-elle vivre sans le
-corps ?
 } Réponse. — On croit qu'elle le peut.
 10. Demande. — A-t-on une connaissance scientifique
 à cet égard ?
@@ -407,14 +340,9 @@ des esprits. ;
 À Réponse. — C'est impossible.
 } 13. Demande. — Pouvons-nous même imaginer un
 esprit sans lui donner une forme et un corps dans notre
-; pensée?
 x Réponse. — Nous ne le pouvons pas.
 
-\
 | |
-
-5 001 AUS HE
-IMMORTALITÉ
 
 14. Demande. — Que s'ensuit-il ?
 
@@ -451,15 +379,11 @@ Mahométan, c'est un lieu de plaisir et de danse; pour le
 Chrétien, c'est un éternel Sabbat. '
 
 20. Demande. — Croit-on que tout le monde ira au
-ciel?
 
 Réponse. — Non; seulement ceux-là, proclame-t-on,
 
 JE le monde sans Dieu
 1 qui ont la vraie foi; tous les autres, d'après les credo,
-1 1 iront en enfer.
-
-ji
 
 1 21. Demande. — Qu'est-ce que cela?
 
@@ -476,11 +400,7 @@ ni espoir du tout pour la plupart des gens.
 
 ; 23. Demande. — Le ciel et l'enfer sont-ils tous deux
 
-4 éternels?
-
 À Réponse. — C'est la croyance ordinaire. (1)
-
-Li
 
 j 24. Demande. — Quelle autre opinion existe sur
 
@@ -492,27 +412,15 @@ Réponse. — Qu'il n'y a ni ciel ni enfer et que l'autre
 
 A 25. Demande. — Scra-ce un monde meilleur que
 
-celui-ci ?
-
 ji Réponse. — Oui, si nous le rendons tel.
-
-1%
 
 à 26. Demande. — Cette opinion exclut-elle la possibifi lité d'un au-delà conscient ?
 
 "A Réponse. — Non. Mais elle laisse la question ouverte.
 
-{l
-ju ————————
 uk @) Henry Ward Beecher fut le premier parmi les modernes pré-
 x dicateurs orthodoxes à protester contre cette doctrine. — Cf. The
 ii Passing of orthodox Religion, par l'auteur.
-
-l 124
-
-A
-
-IMMORTALITÉ
 
 27. Demande. — Quels sont les arguments en faveur
 d'une immortalité consciente ?
@@ -532,7 +440,6 @@ planète et tourner autour d'elle; et la croyance en la
 . sorcellerie, la magie, l'alchimie, etc. (2)
 
 29. Demande. — Quel est l'argument qui vient
-après ?
 
 Réponse. — On dit que l'homme, en sa qualité d'âme !
 et d'esprit pensant, est trop précieux pour ne pas être
@@ -554,12 +461,8 @@ fausses, et alors c'est la majorité qui est dupée.
 sir Thomas Brown et sir Matthieu Hale partageaient la croyance
 populaire dans l'existence des sorcières.
 
-il 2e ON IN
-
 1 le monde sans Dieu . ï
 31. Demande. — Quel est l'argument qui vient
-
-kW après ?
 
 | Réponse. — L'argument moral, qui est le plus fort.
 
@@ -569,7 +472,6 @@ Réponse. — Comme: il y a beaucoup de souffrance
 imméritée dans le monde, nous regardons instinctivement en avant de nous vers un autre monde où tous
 les comptes seront balancés; où les larmes seront
 essuyées des yeux qui pleurent et où ceux qui s'aiment
-se retrouveront.
 
 33. Demande. — Cet argument est-il décisif?
 
@@ -604,8 +506,6 @@ et de ses affections. Celles-ci, pas plus que les molé-
 \ cules qui composent son corps, ne périssent à sa mort,
 | 126
 
-RO Se :
-IMMORTALITÉ
 mais elles s'incorporent à de nouvelles formes de la
 vie, et ainsi de suite toujours. (1)
 35. Demande. — Quel effet une pareille croyance produirait-elle sur nous ?
@@ -615,15 +515,12 @@ qui est vrai et noble, pour en faire le cerveau et l'âme
 de l'avenir. (2)
 () « Sous cet aspect la mort cesse d'apparaître comme un anéantissement ; car notre âme ne peut pas plus être effacée que la loi
 de causalité ne peut être suspendue. » — Paul Carus, Whence
-and Wither, page 135. .
 (2) Quand nous serons au-dessus de cette illusion que l'existence est limitée à notre individualité personnelle, quand nous
 étendrons notre être jusqu'à le fondre dans l'humanité, qui est
 immortelle, et par laquelle nous continuons à vivre à jamais, — la
 mort, à la vérité, ne sera plus que le « clignement d'une paupière
 qui n'interrompt pas le regard ».
 
-ur
-CHAPITRE XVI
 La fin suprême de l'homme
 4. Demande. — Qu'y a-t-il de plus grand au monde?
 Réponse. — Vivre, avec honneur; car sans vivre nous
@@ -631,7 +528,6 @@ ne pouvons avoir rien autre de bon.
 2. Demande. — Quel est, en conséquence, le devoir
 de l'homme ?
 Réponse. — De rechercher ce qui élargit et élève la
-vie. .
 3. Demande. — Comment nommons-nous les actions
 ; qui font la vie plus large et meilleure ?
 Réponse. — Les vertus; et celles qui diminuent et
@@ -645,8 +541,6 @@ pr le vice et ce qui est la vertu?
 Ÿ Réponse. — Par l'expérience; par l'expérience
 : accumulée de l'humanité autant que par la nôtre.
 
-LA FIN SUPRÊME DE L'HOMME
-
 6. Demande. — Est-ce par l'expérience que nous
 apprenons tout ce que nous savons du bien et du mal ?
 
@@ -654,7 +548,6 @@ Réponse. — Absolument tout.
 
 7. Demande. — N'avons-nous pas besoin d'une révé-
 lation pour nous parler infailliblement du bien et du
-mal”?
 
 Réponse. — Non. Si nous ne savons pas discerner
 nous-mêmes le bien du mal, une révélation ne nous sera
@@ -664,7 +557,6 @@ pas de plus d'utilité qu'aux animaux.
 pour les besoins de la vie morale?
 
 Réponse. — Une révélation est seulement un accident, (1) tandis que la vie morale est une loi de la
-nature humaine.
 
 9. Demande. — Qu'est-ce qu'une loi ?
 
@@ -691,7 +583,6 @@ I le monde sans Dieu
 4 12. Demande. — Qu'est-ce que la Nature?
 
 ( Réponse. — La somme de toutes les forces qui entreme tiennent le mouvement du monde. 5
-NM
 
 À 43. Demande. — Pourquoi l'autorité de la Nature estl elle la plus haute de toutes ?
 
@@ -713,10 +604,6 @@ is ceux qui lui obéissent.
 ie Réponse. — Elle a lié l'action à la réaction, la cause
 la: à l'effet.
 
-UPS
-
-à 18. Demande. — Expliquez ceci.
-A J Réponse. — A chaque pensée, à chaque parole, à
 Je chaque action, la Nature a donné la même puissance
 î qu'à la semence, — de croître et de porter le fruit que
 la chacun comporte. À
@@ -726,10 +613,7 @@ Fa emploie-t-elle pour imposer l'obéissance?
 4 Réponse. — Elle a logé en nous un représentant de
 |A
 
-sé 130
-
 jt OAV "ne
-LA FIN SUPRÊME DE L'HOMME
 son autorité que nous pouvons appeler la « conscience ». ÿ
 
 20. Demande. — Veuillez l'analyser et la définir.
@@ -741,7 +625,6 @@ de l'Avenir. La pression de l'un et l'aspiration de l'autre
 trouvent une voix en lui; cette voix est la conscience. (1)
 
 21. Demande. — Est-ce là la définition communé-
-ment acceptée ?
 
 Réponse. — Non. Bien des gens croient que la
 conscience est « la voix de Dieu dans les âmes »; mais,
@@ -764,11 +647,8 @@ conscience : « Les instincts accumulés de la race coulant à flots dans
 chacun de nous, et débordant comme si l'océan était versé dans
 une tasse » — page 134.
 
-131 +
-
 le monde sans Dieu
 dements sont impératifs, (1) mais tout ceci est de la
-spéculation métaphysique.
 
 23. Demande. — Quels sont les enseignements de
 l'évolution à ce sujet ?
@@ -784,8 +664,6 @@ comme le langage, la musique, l'amour et l'humanité.
 dans cette théorie ?
 
 Réponse. — Pour son utilité, sa beauté et sa joie.
-
-!
 
 25. Demande. — Est-il obligatoire de faire le bien?
 
@@ -807,11 +685,6 @@ et l'avenir.
 | (1) L'impératif catégorique de Kant a été comparé à un Dieu
 | fait sur commande, un deus ex machina.
 (2) « Cherchez-vous une récompense plus grande que celle-là ? »
-(Epictète.)
-
-;
-
-LA FIN SUPRÊME DE L'HOMME
 
 28. Demande. — Le bien est-il en croissance dans le
 monde ?
@@ -827,7 +700,6 @@ Réponse. — Parce que nous n'obéissons pas à toutes
 les lois de la Nature.
 
 30. Demande. — Pourquoi ne leur obéissons-nous
-pas ?
 
 Réponse. — Principalement par ignorance.
 
@@ -838,7 +710,6 @@ Réponse. — Oui, si c'est la seule manière pour nous
 d'apprendre à connaître et à observer ces lois.
 
 32. Demande. — Quelle chose nous est le plus nécesSaire pour que nous-mêmes et le monde devenions
-meilleurs ?
 
 Réponse. — Le savoir ; car nous ne pouvons rien faire
 que nous ne sachions comment le faire ; et pour agir de
@@ -853,9 +724,6 @@ Savoir sont la graine dont la Conduite est la fleur et le fruit. Il est
 vrai cependant que notre savoir s'améliore et s'accroît aussi souvent que nous « faisons » ce que nous « savons ». Charlemagne, dans }
 une lettre à Sturm, abbé de Fulda, écrivait : « Quoique l'action soit
 meilleure que le savoir, cependant il est impossible d'agir sans
-savoir. »
-
-À VIII à
 
 |: MUSNENTEESS RE PTS EN REE
 |. 1 le monde sans Dieu (Nota
@@ -887,71 +755,14 @@ x Réponse. — De chercher la sagesse suprême par
 34 la raison, et de pratiquer le souverain bien par la
 À volonté, (1) et cela pour le bien de l'humanité.
 
-dl
-“5
-LÀ
-
-n 9
-‘40 è
-l
 ui (1) Giordano Bruno et de Tocqueville.
 
-MU, FRA MAS ETS ARTE k DAS tr er
-PSS F5 j. D AN A PS US EN be
-os ED ETES re 4 4 y Ÿ : T0 x
 NT AIMER DE Get LL ASS
 SEE l'<" 2080 TRES px rs À) ATROREANN
-Ho UE riens
-1 SES ASE. Na AIS
 KT ANRE ia (OU E RE ATNS RAR €
-RTS ENS È 2 ant MORTE
-AL AT ÉEN EEE x LE 7 ANA
-in RE | M
-PIE RTE RUN TEE
-ASC ê ARE SUR
-PAL à FE 27 y È LE 4 ” LCA 2000
-se A ; | NATURE ENS LU
 DA AN ne Le À \ 28 RER Pret
-+ LP LUE ei Fi FR
-rx CA RENE & À Watt: RESORTS
-} 26 Ex TC He l'ENS
-58, PAT PTE L'RCEN SUUR TN
-Le INTER MAROC 0
-MAMIE Ke ' : FL NAT
-AP 28 AN EE à A RSR NEA
-TOME ; lg À L (PT ENE
-
-VTAOURSR ER OA ARNONNERS DE
-MAR N Sp AT RE OMENERENEeet
-ANAEES E4 PÉE PR TNA EN HN
-. ATEN ; % AM Et AU “Ru
-
-D
-
-LEE \ RE TAN EE
-
-re ‘ ; TAG ATIEES
 
 ‘AT : ed ne
 
-KE “A KT) de REA MM
-AE LUS Eu
-
-DPAUE Fu AÙ
-
-EN r a a N'EAA
-
-a rs : Ge
-
-HOT # : tre
-
-FAT SAR d V4
-
 He dal on ' mit é
 VPN ji Le AE
-Ko \ DAS TaUNE
-} : 40e ‘ $ 1 ARE RELETET
-D. Ne mn
-ous K 111 ESA
-LYS TONER EM
-EN CNNINR ï A: | AU

@@ -7,74 +7,22 @@ author: andre-suares
 isAvertissement: false
 wordCount: 21379
 ---
-
-Digitized by the Internet Archive
-in 2010 with funding from
-University of Ottawa
-http://www.archive.org/details/s11cahiersdelaqui01pg
-
 f en CAHIER DE LA ONZIÈME SÉRIE
-
-k £
-
-é SUARES X
-
-visite à Pascal
-
-: 4 1O0.1t
-
-:
 
 | GAHIERS DE LA QUINZAINE
 
 È ; paraissant tous les deux dimanches '
 
-L PARIS ARR * #)
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Een FR Bi” PAS POST TOO OUR
-AR ; RENE SUV NÉSFES 20
 Nors FRS Vents, NE ERNEST E MATE. dite rs 2
 LES RER detre AU 24 MENT ANSE Fe
-LE LT VÉRRR ES Lire (79 CHU LÉ -R LT NX Mu j
-R. ct #4 $ TA 1 à LI CA +74
-ENS f ; ; Rp: DUR
-LE D" Lie , Va w vE WPX « Me,
-“SSSR # È ; ACTE a
-UN. !.* INR
-“0 1 : . : 4 de Eu VER
-Pi + 2 JUPES
--, 1 “24 “À : i * -XRES
-1 CALE pa 17 TT 84
-TRE ns e P 2 nt.
-DR { | k\ 14") ÊK 87 RES
-: EN Ris à pe re MAS
-;” à . NS 1 $ QE Le ‘4
-ALP AATE Es ” : 151 RUE
 | LORS NP X Fu FC
-A FA À ACÉIE + AURA "1 GRAS
 
 ORALE Le ji FAO NE a" PAPNAUTEA AUS ES TAN PERTE ne
-14 à ë , f A RES LS
-“#4 U Ç : “ ARRET hs € VAR
 Han 1 : de BAD" RTL EU IST AS
 
-. . # AVE
-k 110
-Y: À | ASH A
-0 Hire NKCATANENENE
-100 | : FAIRE
-:%08 f YA
-"+ OO Aa.
-148 ! ( DL n 77. 1%
-LCR " i } | ff}. ! NACRE
-po, 1 ë & , QT
-!418 A2 TE RACE 1e ! : er nT) 1: NS HO EATNR
-k A EU 0 ADP TR NT: PME ATEN: d'AT OT RRATA) ENV HNEI
-MR a CT
-EE "V7 AREA QUE MC SAUT PMR 0 (y CORNE LR param MERE
-
-e AE ; |
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
 grand nombre de documents, de textes formant dos- |
@@ -93,7 +41,6 @@ Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; on recevra en reto
 sommaire, 1900-1904, de nos cinq premières séries. |
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
-i ‘
 
 É 4 une idée, abrégée, mais complète, de nos éditions anté-
 
@@ -121,68 +68,31 @@ ON série; nous l'envoyons contre un mandat de cinq francs
 
 | à toute personne qui nous en fait la demande.
 
-IR
-
 |
 
-{4
-
 D. > Los NRA NET hr Éd NE CAS PAT RE Et '
-NI CES san SOLE 4 (25 PAU D ELP AIS ENTREE
-4 OR REN ENTRER à ES EEE EE ANR
-
-N RAT [4/1 HRONEPES NUL ET PTE AR HAE er DEAR ROSE ER
 
 DUT) du | an Fe TOR AURAS) LEE Ge NTe we ASE QE ME Li ur EE à
-: ï MER RON Le PRET ET 0 V); VERS Es Et
 
 | LAVE Nr AE RSR RENE COR AIT LAVER Me
 DRE mr y FR AN NS et \ 1,287) CCE
 
 . 1, IGN À de ALAN RAM EL sde) Ntta } | ANNEES
-{4 PAU É Ÿ EU SU, SITES M CAPI « RAI
-A Qi A te À 44
 
-Ai s Er: . N Tr ‘ : NX ELA
-ts 2 Y. ui “ F. k Û 10H
-1240 Sao LEE
-PS DR 5 . j&: À . es
-: 10h : / ( us te SU RAR
-OR #: HA ) T4 PPT ARE
-Feu M": - À ‘ 15 À A PATRONS
-MR ; PU ON : 1x4
-y +" 240 3 - Ÿ : A 1e
-42 CRE ‘5 ! T4 AN
 en" AU de "LR
-Ps) :f ART 4 UE |
-Re RE ‘ à \ . FN 4 NU
-:, 1 RIRE ar F 142 C4 CP ARR
-1 TL PR FRERES | ve sp 6 USSRRSE
-4 US LS | NW i 4 : Lt AV EA 4
 EU: Ka ne ru N L L in 5 4 os DAS ee Du “x
-“ANGL 1 (4 DRM Nr ST NM: PEN
 
-NT WIR 1 4 us LUE Ed Vas 4; È ‘r LP 4
-
-L PAS: à Fos (AE
-18 DU MÈME AUTEUR : EE
 £ aux Cahiers de la Quinzaine AT à
-EP VA dy LM
-ET: (RENE a US
 R': , Le présent petit index donne automati 0 À
 # quement pour tout volume et pour tout (FRE
-h DU d TOP
 ù a) le numéro d'ordre de ce cahier dans : de
 Fr le classement général de nos collections | SÛR fhes ÿ
 k complètes, le numéro d'ordre de la série
-8 étant naturellement composé en ‘grandes A2 1 GPA
 1 . capitales de romain et le numéro d'ordre Cats 3
 RE du cahier lui-même, dans la série ainsi ‘à Fe
 h déterminée, en chiffres arabes, de sorte à
 hr ” que V-17 par exemple doit évidemment se (4 GAY a
 lire dix-septième cahier de la cinquième | »
-h série; 1 PRES (XIE
-Ê OT ECIENER
 N b) la date du bon à tirer, ou, à son dé à
 (0h faut, la date du fini d'imprimer, où, à son  ..
 }: défaut, la date du cahier même; LA
@@ -192,195 +102,55 @@ s: d) quand il y a lieu, c'est-à-dire pournos à ENT
 #Q mières séries, la page du catalogue ana- À Rire à
 : lytique sommaire où ce cahier se trouve ou
 __ Suarès, — la tragédie d'Electre et Oreste, — trois actes als ia
-(Wir, mardi 21 février 1905...... trois francs cinquante FA 1Ÿ
-di i » M d4t NACRE
 +4 _ — — le portrait d'Ibsen (X-5, mardi 8 décembre 1908... A
-AMENER: / Y [4 PA Ti
 A (L'U NUE Ü + FENAANE NE Een
 
-A Poe  Ue
-+‘ e LAL ER A AR ENESS SALAIRE Ed NU NS MR QE Pa M à:
 +4 CHORA Y CPE LR LE ANR GUN TR FOR ar to Ver EN NS pu
-LIRE HT PVR | PNEU v. Hop |, APR var
-l''enté ' , Le : #4 = "4 Û
 Res. ? FA A IA et Ÿ 1 LEURS ELA
-L LE € Si à Fa LA : \ LA VE AD: Û V2
-: BIS ; Ç < MAL. « 2h "2 RON ‘#4
-[5 HLNRRRS RE RUSSE DALAAUA
-A 7 "Eu AT ie +. "ER
-LR ' \S AN ; « 4 s ?. ren
-:< VERS 2 VPN
-FF CR | RU
 
-ct "0
-+: 140 ; | | x | Ta
-/0rte 108 :! “. ï t VUE
-DRE" , 4 ; "RCE
-15 R r ë : 50
-PE k ‘ À vi. AENPE
-ENS ; +.
-
-“QE A À { À 1
-FA ' , DA
-ENS A ÎLES
-PARA: $ MUNARN
 # 4! vi , TS 16 AO SSANEES AUS
-LL RATE n'' LAPS PR
 ah 4, , # VER É) AE PAR we
-NOLAEES « ete \ DACTRER AIR
 
-. LS ETES
-ar. © y” ' \ ; $ 44 *}
-ve! « ! : ? 1 Dec +) RS
-NEA TT P - 4? 1 LM, RSS A 418
-: AXVONES \ TVA à 0 21! ARTE FA
-,, # Mn © 4 à à s D NE Re: if
-
-AUTRES ŒUVRES
-DE
-SUARÈS
 On les trouve :
 aux Cahiers de la Quinzaine
 et à l'Occident, 17, rue Éblé.
-‘ à,
 
-DA PL CN UE (y ere 7 RP à à TL at) TEL DENIS
-
-CN ER ES AS ES PATTES GHANA Aa LUE ER TN CORNE
-MATE AT: RARE NS HEAR AVEC ANEEE ME ps à Fe NOTES Ta
-CFA 3 : D VLUE À TORTA 1 FAR AUS
-
-A 00 0 A 0 A
-
-' gd + ARTE Dur ‘ (à VIN PRES
-‘RL « at 1 à TR
-TARA : tar EN
-AE \L a DATE ©
-ne , | 27 MENT INR
-ER d : 4 ONE NUL: 114
-ALP 1 1e DR
-LUS STRESS " s FU INE
-DT, & \ <: 7 PEUR
-!' TEEN | ; 4.410
-, (* La CRIER » LT
-L'ILE y *! De
- , 4 : 4 ) t RAM
-Nr - À z OT 1x SCORE
-A ke / ‘ EN NS UN NERO
-RL. Me , TEE
-RP". FAN \ ET CPR
 | 2 TRE î : 110, AR RNINERSS
-: (FEES APE , Ce TN
-DRE ER... ; | f 47 1741 EEE 41
-"TRUE 4 OR,
-4 ÿ LAURE
 
 4} dr 99 Lot L VAT "ACIEN
-AT CNE pole : | PTE ARE ee 4
-Ale se Rene | 4 : + À CAPES " re
 
-u À F # En LE LR j DR &
 #4 A PHONE nn. ; 4 Di TS AC
-4 + ; , L'art J SENTE LT
-
-AUD a, : } S ARE NAME ‘ire (sd HAN
-
-+ SROPAV EDEN ENERE Le AA Ÿ 7e A PR Se 0
 
 |
-visite à Pascal
-rad
 
 ji ASE Ve ere NAN EE EL à tu Ag
-‘ Fe” ANNE : FAN" Fi ATEN À
 Fat 106 HAT DRE ET HAL NEREE RE Mit OUT FER | ,
 {ASIE rs BAR TN EE A ES AN ORAN Me à: La SE HU Kane,
-LH: ENG FN AL KA 4 RATE TUE ASE AE ARR + :
 1% Te k #, LE Lun da EN RENTE FAP ARRET LA
-: LT AN SNNPMRERSS URe MONA EL 70 ASE LE RENE Fa AU
-RC à DR NN ES RER GATE Me AU 0 NES AA !
 RL 1 ô ÉPPAER MEN A L'ART fo.
-:"MSRONONSS Nr MENT RUE NL KO GE ‘À 14 CSUUINENS }
 RU: HR RN Lun ERA UNE 4 NISE Le
-d ne 12 } ; à . Ca ‘SAT Ut à: AE DU FU
-}; Er ve ‘ 4 x \ \ DOS TEE u NRC Ci ÉAE APE ALES
-EN: (0 \ NUE , " VE AS PROS 20
-a LT ; < Î “4 HA NS (ALES
-PRE è i VERS
-LT à (A: ù n 1 n hs"
-(ere << 0 SA } + 0
-t'YF ER FAT
-D : À à Re (2
-14 Le M” % + : \ 110100
-RATES". i } oh FPE
-['E RUN AA PA , 8
-n 410 \ k * r f Fa] 2
-DR. à ‘ f RS r TNT
-NAS \ CA 1 RP NES
-JAN U Ÿ té FA 5)
-46 ST ARR À TRES x
-à ART à ' ; , \h: LISA 12408
-N AL RE "S Lo \ : AUS
-MUC: Y LA st 7 FR L'AIR
-NP ° 4 2 ke it EURE MAN
-LENS ER CES ARNO
-
-A PORT-ROYAL
-{
-RARE |
 
 1: K : tre DE DE NP ET he es Ne A4
-+£ ler 97 Hit 2 0 St Re (3 NRALR x
-4-0 TH XV AE AE PUR PAP TRE CAE ARS 73 SPRINT
-1e NET E ARS RE NE RON TNNE DS EH ee OT PES
 ri LT ARS SR TES ENT à, 4 pins ANNE AR 4 LA AIN IE 4
 ÿ-.1 Êre a Se TEE 1 HA | Le HE x w: to4 PER
 A EXT 4 Ten ar nf NA ae x Ro NN PU VA URLS 4L NPA 4 =
 A | M res TURN MORUUT Ent DE 2 HNBUET
-À : ANTENNES 5 Î M Ne ‘53 ERA HO PÉRTART SAC Fe re
-REC + AS x : + Le HE RDA - à LATE LHENTE
-0 4} FA , SEA EE 1E448 +" È 0
 L Een rl ë pt ‘à AE TR
-% 1400 | F / k + 1: FAR 4
-VF 0IeRR CE À | DS
-nt, 118 0 ER À e T4E SR
-Phare M CR : ? A0
-LT: ; $ ROOMS
-AT i SLI
-TION à ; SATA TE)
-RER . r, A LANCER
-R EE Pi N HP "He CRU
-EU A Que ÿ : L HET 1 AL 4
-OCR ‘# LENS EE A1 TRS
-no, "4 , ñ f ES 1. À SONO
-br { Me -
-SAR LA n AA RCA NA 4
 ; er Le sr “ ' ISEUER
-Re: F: 4 É/p4 Ro |P4, PORN ÉMRUURS
-4402 A REA V'ATATERES
-4 CS II Met: EX DER Rare AS “re LD SPA MORE?
-s \ OR Re Pere. |
 UN © ARR TER TT M PUS NAS Sa Pa js
 jbl Na TES rie AVS
 
-À # OPEL E YU: ru) Ca. Paie
 |: LA Fig
-D) - VISITE À PASCALE 0
 | ‘7 # (4 ni 23
-D l' LPS
 | #1 I À T4 Je
 | À Tama
-( A PORT-ROYAL IN ERP
-M | Let fe
 | 0 ; U: jour que le tumulte de la calomnie et desinvec-
 : M tives s'était répandu le plus insolemment dans ETES ;
 . Paris, et troublait le plus cette ville injurieuse, M. de 7 7
-D ve L à AE 5 ATNNE ?
 X Séipse, incapable de le subir plus longtemps, prit parti 11e
 |°4 de le fuir, et s'en fut à la campagne. M. de Séipse souf- AAA
 Mn  frait, en effet, du désordre comme d'une injure person va Pts
 "1 nelle, que son temps lui eût faite, et que tout le peuple
-Î à : n : : . PAROIEN
 | eût conspiré à lui faire. Une profonde colère, froide et de
 | secrète, le dévorait de sentir en lui-même la puissance 1e
 |. 48 de l'ordre, de s'en connaître la volonté, et de savoir Qt
@@ -388,14 +158,9 @@ Mn  frait, en effet, du désordre comme d'une injure person va Pts
 4 la moyenne de ce qu'il peut lui-même, et de ce queles es |
 ire circonstances lui permettent, — l'accord de sa force pu Ê
 M propre avecla fatalité des événements. C'est pourquoi pt 4 î
-A2 - . . « b e: É 4
 | 1e tout homme puissant s'est toujours senti à deux doigts HAUT
 M de ne pas l'être; et il appelle son étoile ce bonheurde à
-(1 k PANNE
-ÿ » Fe" / $ | k Ÿ: RE OUT :
 
-* p, a ‘4 ; LA FE Gy
-visite à Pascal
 l'accident, qui ne suffit à rien, maïs sans quoi la voie
 est fermée à tout le reste. Le hasard, qui fait naître un
 homme à son heure, fait plus pour lui qu'il ne fera 1
@@ -426,17 +191,13 @@ quand il se voile, il invite à la réflexion ou à l'ennui
 plutôt qu'à la colère. Aussi M. de Séipse s'estimait-il
 heureux que le temps s'accordât à ses pensées diverses. \
 11 était venu en voiture, à travers les champs mouillés
-f
 
-ex 4 È | AY
 | A PORT-ROYAL
-(A
 Hi de rosée, frais et limpides, comme la matinée même,
 ‘4 le ciel clair et le vent léger. Les blés verts, et les avoines à
 ] déjà hautes, aux reflets ardoïsés, frémissaient dans la
 À plaine, où parfois l'on voyait au loin, — comme un es
 insecte en suit un autre, — une charrue guidée par un
-4 paysan.
 És A mesure qu'on approche de Port-Royal, le pays se s
 k fait plus désert. On ne voit plus que des hameaux cou- CA
 chés au ras de la terre. Le plateau âpre règne; et l'ho1 rizon recule, grave et triste, comme tout ce qui est
@@ -451,7 +212,6 @@ l'aspect, sérieux en tout temps, est tragique quand le
 ‘ chemin heurté, entre les arbres, on descend au fond
 ! d'une sorte de trou, où, ceinte de hautes murailles, et
 F4 voilée sous le feuillage, avait été fondée l'abbaye de
-(4 Port-Royal.
 F L'abbaye a été vaste, les fabriques considérables. J
 È y eut plusieurs corps de bâtiments. L'hôtel où logeaient
 | les solitaires, faisait face au cloître où les Filles du
@@ -463,10 +223,8 @@ F L'abbaye a été vaste, les fabriques considérables. J
 4 pensée commune : en dépit de tout, la marque en om.
 | 15 |
 
-PT D nee VTT OR
 visite à Pascal ie ‘ L
 ; restait ineffaçable, tant elle avait mordu fortement sur "4
-Ni l'âme. \
 k Un jardin séparait la maison des religieuses et celle ".
 1 des Messieurs. Les enfants logeaient dans une aile basse, . :
 # où se tenaient les catéchismes. Le verger, le potager,
@@ -496,11 +254,7 @@ F son âme. j
 |
 2 Les Messieurs de Port-Royal n'étaient point des
 K. cleres. Les uns ne s'en jugeaient pas dignes; les autres ;
-x 16 * ; {
-es }
-1 d
 
-US Dee \ l
 | ; \ : A PORT-ROYAL 4e :
 “ y répugnaient de nature, ou par état. Ils formaient une ie S
 e espèce de tiers ordre. Ils étaient à peine des laïcs, et 5%
@@ -534,13 +288,8 @@ au leur. Plus elle est humble en conduite, plus elle les LC
 | 4 solitaires et les frappe. IL ne faut pas trop de saints ne
 Eh dans l'État, ni même dans le monde; d'école de sain- à
 | teté, encore moins : la sainteté menace la nature, et la #
-(À 17 " Par. “
 | 4
 | 4 il L Pr EE” .
-
-"EN TR
-
-xt pisile à Pascal
 
 nature ne veut que des esclaves ou de faux témoins : à
 elle haït les juges. j
@@ -574,20 +323,14 @@ l'horizon de la vallée solitaire. Elle semble fermée de |
 toutes parts, pareille à une vasque de terre cachée :|
 entre des collines boisées. Les arbres voilent le bord {
 ouvert de ce fossé. Le ciel paraît verser la clarté de plus À
-18 |
 
 |
 
-‘|
-
-ni :
-. A PORT-ROYAL \
 haut que sur la plaine. La couronne des feuillages posée : j
 sur les hauteurs les ceint d'une ombre claire et pensive. !
 | Tout, ici, est ramassé sur soi-même et penché sur le k
 | fond. Et tout, en ces étroites limites, à la manière du
 | recueillement, parle d'une grandeur intime.
-;
 à Les lilas, sur leur fin, balançaient, ici et là, leurs
 4 branches fleuries, dont le vent agitait les thyrses. Un peu Î
 de pluie était tombée, que la terre, les prés et toutes les
@@ -613,17 +356,10 @@ devant la chapelle. Quelques degrés mènent au portail; |
 j les lilas ajoutent la grâce d'une parure charmante. Où |
 l'art admirable n'élève pas son chant, la nature seule
 peut parler. Quel qu'en soit le mensonge, ou la cruauté,
-} 19
 
-AU A ST EC SR
-CRIE NE Nul: XP: RS Tr SATA PEER AR LENS TRES
-M RE “: _ pisite à Past 11 CPP RARE DC ER PL EC:
-ï x IROT LT IR RE NE = LES ; ECTS ER
 Br, si son langage a l'unique séduction où l'on ne sait pas 40 1
-‘ 4 L4 y L APTE X à
 | résister et l'accent qui persuade. : 1 CHIOTS
 v y On le sent trop à la rencontre de deux bustes en
-ER à È “ % A
 ae we bronze, sur les marches qui mènent à cette église des qu “4
 _ reliques. C'est Pascal et Racine qu'on a posés, malgré
 À 3 CR eux, sur ces degrés, pour y recevoir toute sorte de gens,
@@ -632,7 +368,6 @@ d'horreur peut-être, sinon seulement avec le plus d'en
 FE _ nui. Passe encore Racine; et qu'on y mette aussile
 grand Arnaud, si l'on y tient. Mais Pascal! Il ne se
 LT souciait pas qu'on lui rendit un tel honneur. Si ces
-:% , JR . pie . J ste + “a
 "1 _ bustes, du moins, n'étaient que ridicules : maisilssont
 # ., Pie > . “
 
@@ -643,77 +378,24 @@ SR sûre de soi, où le modèle commun, qu'ils en ont sous “4
 
 LE _ les yeux, a fini par forcer les sculpteurs de ranger tous
 Ag _ les grands hommes. #
-K Pt à ; « h# 4
-ê5 + É È 4 #1
 Ana À ce
 
-: ‘M , 1%
-DER: ; A
-AN F " dé 1
-AU J AA
-T'AS ‘0
-
-: mr : " ‘ai © Le: MES
-
 cts à si CE Fe a { 1 Mt y Lo: un "1
-ER Tru (AE “ER 7e HE VTT ENS ART Ron paniare Cv
-! ENS ML: | En RE ver SEM RU AS is KA SV AUTE Ris
 . NAVARRE LR Ca LA APR Le FAI PHEUE as, RS a PA AE me RAT di
-D ER AE A a Leo Re
-4, À 2 FCO à # 1 AU « he ANS TR ET VINS OPEN
-54% : 0 G NP : de: NRC 4 HAE
-4 RE ‘ é UE } ASE à LA À LAN
-“HAE VE Th - m'ir LU RATE PE NI
 #8 « 4 5 : ; , for RCE Moi
-L 1 LA LE Do
-AITE : * 1 LEE Lo; 0
-; . Rev RUE"
 | ) É _ \: j PA tan! VANNES
-HUM , NES ? Tr VIP LEA Da: ?
-+ TRE #2 À Et ren LS Ve + 10100 V FIVE
-TORRES PNA LL INTAES | A NM Or à MA
 ORPI RSS DC NAS EAN V € " SPA it Je
-J VX Re LT LENS HR: La NE À HNATRE. SRAVTEE SAR) NN
-4“ Gr: HAE ER SALUE D (4 « RS PIN CE M À (PE 1h Ar:
-ANT PS IEC AMEN TES LEA DRMATONT TERRE EAN LOVE MUC ROMIeE *
-ES DR Rp HE AUS Han FU © AUX LATE AS M via ART
 4 Sri CE pes CAL Ah PTE ME DA OM TAN D PE LE Me CITE
-a PA HE à rer Ft ANAE TT: Pret PME UE AURA 4 0 x!
 RM et
 
 r (4 RE TES in RE PARA NE UE sh RER RO
-A PEUT PR: LOS e AT AR PSE] AURUE PAM RAS RAM TES , MA
 RES fe nis HdANRES " diaaoun) SUR
 NAN en ee Te) RTE ET NE NUE D'ART HAL PTR
-TN D OMAN ONE PSN DE
 vi H Fax. k at VAR APRS EE DMER RTS DUC KM RERO Ne ru UN %: de
-2 RAGE PRE ER CN NS RE < 3 H PCA Pt Te.
-OU SO NRA TA LENS
-Er? : DAS din À (WE APP CAL 4 dre RS %
 ÿ sa MAALS 7 Ù % 71 ‘re ES TE Kat LI U x. LA :* Eu
-wie DR AR FAN RARES
-À . 50288 ae HUMEUR
-D 4 \ . t + ?hi RE CURE
-Y DA e " 6 \ 4 } CA AUMENS +
-EL NA A L À i ù 11 08 NS
-SAUT NX 4 3 DE | 1
-TROIE F 4,048 : « t ! k RENE AN.
-v RUE (A sf i "M SN
-AN] + 0 | A / Ù NTI
 | : dà: h } CAR | 1 41
-"MSN ! HAT NRC
-< RS RASE AN CEE" SR ONRNRRER
-, CE ST PEER L'URL AT à NT TUE
-EU. | RU
-ÿ À A" LA r ' : È OP RCONATE ER 1): HE ‘4 V' és LORLAAE NE
-4 DR. th SN Cas at AT VE OR ge 5 #1 TEA
-L° Ds 1 AY At x RE L AVRQRREe PNMET 20 ES NO EEE "
-
-IT
 
 | PASCAL
-
-;
 
 |
 
@@ -754,9 +436,6 @@ fice : c'est une femme rude, épaisse, membrue comme un
 
 | :
 
-23 }
-
-visite à Pascal EN IENS
 | sous la graisse, l'on sent les os, gros et larges : voilàla
 mère d'une famille redoutable par le nombre et les res- À
 | sources; tout en elle est solide, volontaire, nourri de |
@@ -788,13 +467,10 @@ E”., qu'elle emprisonne, et l'enveloppe est trop fragile pour ;
 4 que Pascal a d'unique vient de lui ; mais, plus que tous
 | les autres, il a l'air de son temps : le mélange de cette
 ÿ singularité propre et d'un caractère commun, général
-1 2%
-1: ” #
 
 » même jusqu'à en être abstrait, frappe l'imagination. 1 |
 __ On est d'autant plus surpris que les deux éléments : NE ‘
 _ s'ajoutent l'un à l'autre et qu'ils sont moins combinés, ‘#4
-AN
 On retrouve, d'abord, dans ce visage la courbe vio-  . Fa us
 . lente qu'on voit à tant d'hommes en ce temps-là. Le
 front et le menton tournent court, par rapport au centre FACE
@@ -822,7 +498,6 @@ _ suit les traits de ses modèles avec une fidélité rare; il y 100 494
 met de la conscience ; et, d'un janséniste comme lui, on PA 4
 peut dire que l'exactitude dans le dessin est la pratique KA X 4
 1 d'une vertu. Quel peintre, pourtant, est fidèle comme la AVI ‘a
-‘4 25 Pascal. — à À $ d
 
 . mort? Elle peint par le fond; et sa fidélité est celle qui +. ms
 _ ne cache rien, qui dévoile le mystère, et qui livre le. 5
@@ -856,10 +531,7 @@ de n'a tout dédaigné que sur l'ordre d'une pensée toute- J |
 "108 puissante. Et cet ordre impérieux lui a été cruel, sans A]
 # # ed: doute. Elle a voulu peut-être s'y soustraire. Qui résis- 4
 
-Li)
-FQ PASCAL
 __  tera à Pascal, si ce n'est Pascal même? — Mais qui
-à Pascal craindra, sinon Pascal?
 Il a connu ses précipices ; et il les a redoutés profon- 4
 dément, parce que la profondeur lui en était connue.
 Pascal sait bien que tous les hommes en seraient là
@@ -889,14 +561,7 @@ infini du pied, et chercher le gué de l'infini. Mais Pascal | |
 Mais fort comme il est, il mesure sa faiblesse, Et il se
 tient immobile, mettant toute sa puissance uniquement
 à s'élever sur cette eau infinie et à téndre ses bras au
-secours unique.
-L 27
 
-at.
-
-RO RO cn id
-à #3 ) - PME LUC ANNE Li COM
-, visite à Pascal ME NT A
 Pour demander si Pascal doute, il faut douter s'il vit.
 fe Qui ôte Jésus-Christ à Pascal lui ôte tout. Le doute pour
 h,? Pascal est la mort même. Pour vivre, mieux vaut tenir
@@ -927,10 +592,6 @@ du reste, qu'il n'y a point de demi-vérité ni de demi-
 des hommes qui assure le train du monde. Et il
 l n'irait pas au delà de l'heure où nous sommes, sans
 
-D t'en
-Te CID ras À AA
-ne RE 76 À L $
-
 È les moyens termes de cette médiocrité qui ne finis- ! ‘6
 D‘ sent pas. de
 k « Tous ces atermoiements assurent la durée à la ds
@@ -953,7 +614,6 @@ quoi ils l'évitent : sinon eux, le misérable et magnifique
 vivre; et n'en ont pas de raison plus forte, à la vérité, . MS ;
 sinon qu'ils le veulent. Admirons encore ici un des S
 4 coups de la nature, ce tyran qui fait chérir et désirer sa DAS.
-à tyrannie. ASUS
 4 « Ceux qui ne sont médiocres en rien, ni par le cœur h
 4 ni par l'esprit, se portent bientôt à contempler deux A
 
@@ -969,11 +629,8 @@ C4 contre soi, ou pour soi contre le monde. On ne se tire rt
 de trois. De là ces partis pris sublimes, celui des saints as
 
 ou de Tolstoï, qui fait la bonne bête. Quelque forts
-4 29 Pascal. — 2. j
-PAS T0 v 4 A PARA
 
 RSR or On de Rte ONE ON
-LAON GENRE € APN TRE CO RQ ER CV TRE
 Fa qu'ils soient, ils s'immolent; ils veulent croire en Dieu à Le.
 re ou à ce monde, à tout prix. Et comme la volonté d'une fox
 % 4 | parfaite croyance est déjà la moitié d'une foi, bientôt
@@ -1004,14 +661,11 @@ Ta aspire. Pascal se sent superbe, plein d'amour et de 14
 “ p s haine, égal à tout, supérieur à tout même. Si grand
 4 É “ qu'il fût, il se savait plus grand encore, en bien et en :
 F4 De mal, que ne le pouvaient savoir les autres. C'est pourUE S quoi il se fait une guerre admirable. « Si j'avais le
-æ #1" à RE 77e NT)
 
-2. PASCAL :
 ‘ cœur aussi pauvre que l'esprit, je serais bien heureux, »
 | s'écriait-il quelquefois. Mais il l'avait riche infiniment.
 Vous n'avez pas remarqué la puissance de ce cœur.
 — Je n'y ai point pris garde. Ou plutôt, je ne la distinguai point de la grandeur propre à cet homme
-: unique.
 : — Elle est unique, en effet. Personne ne l'a pressentie,
 si ce n'est quelque peu ses proches, et M. de Sacy. On
 devine quelque effroi mêlé à l'étonnement de ce sage
@@ -1041,7 +695,6 @@ le cœur sera grand, plus il aura de peine à se quitter.
 
 | visite à Pascal PI ES
 | Car n'oubliez point qu'il lui faut tout quitter en se
-quittant. EU,
 | « Je m'assure qu'il y a des hommes pour qui le con- |
 d tact d'un cilice pointu sur la peau peut être délicieux;
 y et d'autres que l'orgueil même d'une pensée profonde :
@@ -1070,9 +723,7 @@ servir; il fait souvent plus de la moitié du chemin.
 | « Le doute n'est pas tenable pour une volonté grande. |
 | Le doute n'est une preuve de force que dans l'esprit, et
 # la faiblesse consommée du caractère. L'homme puissant
-32 |
 |
-1 :
 
 nos Nr UT ‘  PASCAL
 
@@ -1107,16 +758,13 @@ des paupières abaissées, dont les bords paraissent Map
 s'entr'ouvrir, et dont l'épaisseur surprend; c'est que la A
 ; cire, qu'on y mit pour défendre les cils contre la brûlure |
 du plâtre, a fait corps avec lui, et l'empreinte étrange
-33 ;
 
-visite à Pascal
 en est restée au masque. Ainsi cet ennui sans bornes, ce
 ' parfait dédain dans la sérénité du repos, semblent sourire. Et rien n'est plus émouvant pour la pensée que
 cette paix sereine de Pascal entre les mains de la mort:
 elle contemple la douceur du salut, au sein de la
 volonté divine, et sourit désormais à son mépris même
 de la vie, et de toutes les misères qui tourmentent cette
-malade.
 « Quel homme en France, pensait M. de Séipse, fut
 jamais l'égal de celui-là ? — Il a été le plus grand; car
 il a eu les grandeurs de presque tous les autres. Il est
@@ -1171,11 +819,7 @@ Fe, m'est digne d'elle qui ne l'exerce pas; et ce qui ne coûte 24 55 +
 724 certain degré, ni le cœur ni la raison ne se satisfont de À pt Es
 Por: _ rien qui ne soit achevé. Celui qui est épris de perfec- * NAT
 Le ; tion n'a qu'une volonté, — qui est de la joindre, et que PEU
-AQ UFSRERANT + {2.11 PNR
 
-l'A É OTUNBRLARR A
-
-; visite à Panoab te NN RENTE
 tout contrarie. Sans cesse il y va pour lui de la vie, et |
 de rien moins. Nul effort ne le retient à ce qu'il a. Il est
 tout en ce qu'il cherche. Au cœur passionné, le déplai- |
@@ -1205,11 +849,7 @@ Re ne l'estima assez vaincu. Il aimait à dompter la nature,
 comme Alexandre à conquérir. Chacun de nous, s'il est
 assez fort, prend de plus en plus plaisir à ses victoires : À
 et si elles sont âpres, douloureuses, remportées sur soi- )
-E
 
-; fi VAR EE #
-‘ PASCAL k
-[#
 même, peu importe; tant nous sommes, malgré tout, ñ
 attachés à notre propre force que nous aimons mieux
 l'exercer contre nous que de ne l'exercer pas. C'est une À
@@ -1242,7 +882,6 @@ tenir pour des faits. Ils sont asservis dès qu'ils sont mis u
 à leur rang. Le mal est le plus souvent un effet de la
 faiblesse, une usurpation de la partie mauvaise sur la F
 bonne, qui est la plus faible, mais qui n'en existe pas |
-: 37 Pascal. — 3
 
 ETES De moins. C'est le point de vue d'un Dieu, celui d'où tout
 est à son rang, et selon son ordre: là, le pireaune |
@@ -1276,9 +915,7 @@ Li Ka commet des jardiniers aux décombres. Vous savez le
 _  lence de la nature s'ajoute : l'une et les autres se nient.
 de, De _ Pascal n'eût pas voulu de cette gloire posthume. Il suf- \
 Ni _ 1isait qu'on vit Port-Royal en poussière et ce que c'est 4
-“TR Re
 
-, PASCAL
 que la nature livrée à elle-même. Qu'est-ce bien que les
 restes d'un grand esprit? Il n'est tout entier qu'en luimême, — je dis en nous. Il faut des tombeaux fastueux
 
@@ -1317,7 +954,6 @@ Image de ce temps, en vérité.
 
 à ss vieil à Pascal 0 (IN TE ON
 se dans la contemplation d'un si grand passé qui n'est \
-54 40 plus.
 TRS — Vous voulez rire, dit-il. Ils ne sont pas envieux de
 Le la mort, ceux qui vivent. La curiosité de la mort glace
 ane toute vie. Surtout une vie si pauvre. Ces gens-là veulent,
@@ -1347,8 +983,6 @@ Pascal : le noyer où Pascal vint s'asseoir. Et si ce n'est
 celui de Pascal, il faut que ce le soit; car s'il ne l'est,
 que m'importe cet arbre? Mais je crois y voir cet
 homme, terrible en pensée, accabler de mépris sa pen-
-} 4o
-j
 
 # ÿ PASCAL
 sée même, et chercher pour son repos l'aide qui n'est ‘
@@ -1381,10 +1015,7 @@ quoi on ne sait guère ce qu'il en accepte : et Pascal Ke
 bel esprit de profession. Mais Pascal n'est assurément K
 Pascal que pour ne se point satisfaire de la religion ni
 de la philosophie de M. Cousin, — si tant est qu'il y î
-à fe
 
-L | M F Et NE NOR PRISES
-visite à Pascal
 ait rien qui réponde à ce mot-là. Et bien plus, pour tout
 dire, Pascal n'est Pascal que pour ne se point contenter
 des places et des cordons que l'on trouve en ce monde.
@@ -1410,9 +1041,6 @@ passer de Dieu; mais il n'a pu s'empêcher de lui accorder une chiquenaude, pour
 peint toute la puissance de Descartes, qui construit sa
 mécanique de l'anivers, et se fût passé de la chique-
 (1) Madame Périer : Cf. Lettre de Pascal à Fermat, 10 août 1660. |
-42 |
-
-à PASCAL
 
 -naude, s'il l'avait pu. Encore est-il douteux qu'au fond
 
@@ -1452,23 +1080,18 @@ pas connaître. Et Pascal passe le temps à le lui prouver,
 « La philosophie n'est pas même la science des géomètres, qui, elle du moins, exerce la force de l'esprit, et
 en fait l'essai, sinon l'emploi. Au contraire, la philosophie est tout à fait sans objet; et, comme elle se donne
 
-. \ j “ L > à
-visite à Pascal
 insolemment le plus grand de tous, qui même est
 l'unique, elle ne mérite que le mépris, ou, peu s'en
 faut, la haine. Elle est haïssable en ce qu'elle trompe
 sur l'unique affaire où il y aïlle de tout, pour l'homme,
 VA de n'être pas trompé, — et qu'elle feint de ne le savoir
-pas. ;
 « Que prouve toute la philosophie, et de quoi est-elle
 : certaine touchant la vie et la mort, l'univers et l'homme?
 Voilà la question; et comme il y faut répondre qu'elle
 n'a pas la moindre certitude, il est juste de conclure
 que toute la philosophie ne vaut pas une heure de
-peine. |
 « Ce n'est point là douter, — c'est nier. Et, pour moi,
 partout où Pascal n'est pointen Dieu même, il ne doute
-pas : — il nie. |
 « Il faut à Pascal une certitude. Et il me la faut comme
 à lui. A défaut de ce qui est certain, je ne vois point le :
 doute, mais le vide. Ce qui n'est pas — n'est point. Je
@@ -1486,14 +1109,11 @@ qui perdez tout pour ne rien perdre.
 à sans raison. C'estpourquoi vous vivez de moyens termes.
 Comme s'il y avait un terme moyen entre être et ne pas
 
-Hp \ PASCAL ie
-; 4
 j être; comme si une demi-vie, une demi-mort, une demivérité pouvaient avoir le moindre sens ! N'y eût-il pas
 ‘ de vérité, nous sommes bien obligés de faire comme À
 s'il en était une, et de toute évidence. Et comme si vous
 ne montriez pas que vous n'êtes vous-mêmes que des rie
 demi-riens, pour que cette médiocrité infinie puisse vous
-suflire ? {
 « Il en faut un peu plus à Pascal : rien de moins que :
 cette vérité pleine. Et d'abord, sans la certitude, il ne $
 peut vivre. L'homme qui vit dans l'incertitude lui semble ;
@@ -1519,7 +1139,6 @@ Jésus-Christ; Dieu est à toutes fins : qu'il soit, si l'on as
 * veut, le nom de la vérité sensible au cœur; — cette V.
 vérité ne fût-elle pas la même, en sa forme, pour tous '$
 les hommes. Le monde comprend plus d'un langage. ne
-4 Pascal. — 3. | 5
 
 Le 0) k Mais sentie par le cœur, elle est parfaite; elle est li ee Er
 20 unique; par là elle suflit : elle ruine le Moi, etellel'en- 9
@@ -1554,17 +1173,14 @@ le res ; d'une parfaite foi, il se fait tout à Dieu. Mais l'étant, il
 ie: ‘4 « connaissons Dieu que par Jésus-Christ, mais nous ne ÿ
 Le vus | « nous connaissons nous-mêmes que par Jésus-Christ.
 
-PASCAL
 « Nous ne connaissons la vie, la mort que par Jésus-
 « Christ. Hors de Jésus-Christ, nous ne savons ce que
 4 « c'est ni que notre vie, ni que notre mort, ni que Dieu,
 « ni que nous-mêmes. » (1)
 È « Hors de lui, il n'y a que vice, misère, erreurs, ténè-
-« bres, mort, désespoir. » (2)
 
 « Sans Jésus-Christ, le monde ne subsisterait pas, car
 « il faudrait, ou qu'il fût détruit, ou qu'il fût comme un
-« enfer. » (3) ;
 
 , M. de Séipse répéta lentement ces mots, comme s'il
 en parcourait les précipices. Et je ne pus m'empêcher
@@ -1572,7 +1188,6 @@ de lui dire : « Ainsi, voilà le terme de votre philosok phie ? Je vois mieux d
 désespérée qui vous anime.
 4 — Ce n'est point une philosophie; elle est sans
 doute; c'est une foi très sombre. Je respire une peine
-; infinie.
 f — Il faudrait que ce monde fût comme un enfer, ou
 , qu'il fût détruit ?
 
@@ -1585,17 +1200,6 @@ me manque les miracles. Ils lui eussent peut-être manqué, aujourd'hui. Je l'en
 | plus facile de prêter foi aux miracles des imposteurs,
 que de la refuser aux vrais; et pour ne pas douter de
 
-(1) Pensées, article xxu, 1.
-
-(2) /bid., article xx1t, 1.
-
-(3) 1bid., article xxn, 1.
-
-(4) Zbid., article xx, 1, XXv.
-
-(5) 1bid., article xxrr.
-
-visite à Pascal
 ceux-ci, il croit même aux miracles des charlatans.
 « Ayant considéré, fait-il, d'où vient qu'on ajoute tant
 « de foi à tant d'imposteurs qui disent qu'ils ont des
@@ -1634,9 +1238,6 @@ Nous nous étions assis sur un tertre, au pied d'une
 
 # l'on accède par quelques degrés de terre, sorte d'ora-
 
-(1) Pensées, article xxnr.
-
-$ PASCAL
 id toire rustique. Pascal a peut-être prié là. Il devait aimer
 : passionnément la prière : toutes les puissances d'amour
 s'y portent, à qui l'on ferme les autres voies. M.de Séipse !
@@ -1707,8 +1308,6 @@ fi puissant, quel salut et quel refuge que ses bras ? Qui
 A autres, c'est que Jésus-Christ lui est tout, et que tout le
 ri ;. reste ne lui est rien. Votre Tolstoï aime tant les raisons
 
-6 / : a
-
 | PASCAL
 et les faits, qu'à peine si la personne de Dieu l'occupe.
 | Il aime tant l'Évangile, qu'il se passe de Jésus-Christ.
@@ -1730,7 +1329,6 @@ que lui.
 chrétien ? Il n'eût jamais fait un athée. Il avait trop
 d'étoffe ; et il avait mesuré que, s'il en faut un peu pour
 tailler un athée, il n'en faut pas beaucoup pour l'en
-draper.
 
 . « Il faut un Dieu à toute âme puissante. S'il n'avait
 eu Jésus-Christ, dans l'impuissance d'en avoir aucun
@@ -1751,7 +1349,6 @@ qu'elle était' triste. Les simples d'esprit sont seuls
 
 | 5x
 
-visite à Pascal
 monde comme Colomb revenant d'Amérique: et elle
 pense que le monde est peu.
 « Le mol oreiller, que dit Montaigne, a beaucoup de
@@ -1775,33 +1372,11 @@ Les partis de la volonté sont les plus beaux de tous.
 Ce sont ceux de l'Intelligence qui a pénétré l'abime du ,
 Cœur. Et la beauté de l'âme ascétique est là.
 
-W, 4 4 rw f Ms f fr ki: fe :
-‘ Va NTI RE \ + LU 9
-UT PUS RO US PERMET MEN À N /
-ol RENE FETE SARA are MAN ÿ Lu FAPNIUAS ; h à À
 14 L'pl NS d'A je 214 "R ce ARE HA PE AE AIS tra Y'LAUNeS À
 At: : Ses MONT PARCS AG A) MAUR AN HUE ta TR: : NET
-MEME ARE AAA AIT AURA FLN EMT (CERN NIET ROLT
-+ "10 SA ER LR) CAVE AE A 1 EL AE PEAU ti TU RON
-ur AE. ' HAT TAS ROUE ECS US 4 A TARN ENST RARE) Fe
-+ #0 DCE "1 A " # Men LR ATUN $ DAT EN
-CU CE SRE EME HP JE } AS NA ARE HR J
-ut ï { ) Pa
-3 | : COQ OMR
-F ERA ti A h ÿ 4 FIRE
-20 t {4 € n PASS eve
-YU Le Lite : D } 4 MS j: 4 ‘4 à on
-: #44 CCR \ ' À $ Î Ne
-4 Mu * A LR TES
-43 UE hr ; AN ONEER
 MA pi à TA ré ; t À J'TE 4
-OF A RNA INT Be LS MISERERE
-LALU "LT EU LOS “Se #,9 A MAR pere te Art HN HAN (A ke
 RL TG MA ee EVANS
 
-;
-IT
-ASCÉTISME DU CŒUR
 'ASCÉTISME du cœur est le triomphe le plus rare de
 
 L l'âme. C'est l'exercice de prédilection pour les âmes
@@ -1822,9 +1397,6 @@ les coupables pour les sauver, et les lépreux pour les ;
 entretenir. Mais ce n'est encore qu'une charité sans
 passion. Pour sainte qu'elle soit, elle a toute sorte de
 
-\
-
-visite à Pascal c
 f limites ; elle est même basse, parfois; car enfin il y a
 des degrés dans la sainteté même. Chacun est saint à
 Ù sa manière, quand il l'est; ou plutôt, chacun qui peut
@@ -1859,7 +1431,6 @@ l'homme de cette fin presque divine. ]l ne veut pas
 qu'on le range parmi les saints. Sa grandeur, pleine
 
 ÿ VAI de ties TAN  GP RNA PLAN NUS MARS NAS ue ve je
-ASCÉTISME DU CŒUR
 d'une humilité superbe, s'en confesse très indigne. Oh, ris
 que je le vois viser plus haut! Et par ce qu'il voit, lui- |
 même, au fond de son cœur, comme nul autre homme %
@@ -1890,9 +1461,6 @@ belle, et sur l'aire on recueille à peine un peu de grain. (4
 Que de gens doux sans douceur, et que de mollesse ou À
 de froideur qui paraît bonne ? Le plus souvent, la ;
 bonté n'est faite que du mal absent, comme la paix
-57 i 12
-‘
-INTER À
 
 ne 1 HS ARE RER 7 à Pascal PAR in A
 
@@ -1953,8 +1521,6 @@ EM au côté de son maître. Familiarité sublime que celle-là,
 
 PE où la mort d'un Dieu est toute trempée. Familiarité dans
 
-AR D el EU
-RAT A TE ASCÉTISME DU CŒUR D
 | ce qu'il y a de plus auguste et de plus fort, où la pas- Pau
 sion s'est faite si grave qu'elle tombe, de tout le poids DA,
 | infini dont elle s'est chargée, sur le cœur de la mort, ARS
@@ -1991,12 +1557,6 @@ _ et plus il use de termes froids, plus je le sens qui se 1h
 
 grand pour s'en défendre : il prend le flot de cette pas- r
 
-“a 2 4
-
-Du.. A
-CARAAArL:T. [*
-
-visite à Pascal 4
 sion, il le précipite et l'accroît; mais il le détourne sur à
 ce qui n'est plus rien de propre au moi. Il parle contre |
 les attachements du monde, non pas en homme qui se
@@ -2026,15 +1586,8 @@ Il ne le daigne pas. Voilà à quoi sert d'être bon géomètre jusque dans la s
 suprême pour le cœur d'une force infinie. La passion
 de Pascal fait la guerre à sa passion, comme au seul
 
-s
 |
-we:
 
-dB Puy CEA NS Re « 7° À à FASNIES LU POST QE ARR RE
-me NU an CU à FT
-! A M + * ÿ 14% L ge : 4
-Et l L " à
-: ASCÉTISME DU CŒUR Ÿ
 ennemi digne d'elle, et elle lui en fournit des armes.
 | Pascal vit dans la fièvre, le tremblement, et les délices :
 tristes de ce cœur qu'il nourrit et qu'il dévore.
@@ -2064,11 +1617,7 @@ L du reste, il en propose le problème à toute l'Europe,
 (l ce qu'il en coûte de vouloir se dérober à cette humilia1e tion. Mais où l'on ne voit que l'orgueil, ou même la
 | mauvaise foi de Pascal, je reconnais son humilité
 superbe. Pas plus qu'au doute, il ne laisse point de
-k | 61 Pascal, — 4
 
-ARTE OASRR ENT
-iv} AR OROIES An AT A UP cas
-qu visite à Pascal ALAN FUI
 te AS place en lui à la contradiction. Il ne méprise point la |
 \ Li ; géométrie en lui-même, mais dans les géomètres : car !
 ge ils ne sont que géomètres. Et de petite géométrie.
@@ -2100,8 +1649,6 @@ le fond de mon âme. Pascal fait son lit, et se sert luimême : cette idée me p
 homme au monde n'eût alors suppléé en ce qu'il a fait.
 C'est où l'on connaît la vraie grandeur. Mais il est bien
 
-ASCÉTISME DU CŒUR
-
 ‘ plus grand par l'amour où sa passion se consacre, que
 par où il force son cœur à s'oublier.
 
@@ -2128,7 +1675,6 @@ l'oreille, n'est pas vide. Pascal, au contraire, y voit cou-
 
 Aussi Pascal peut tout dédaigner; et, s'il le faut, se
 soumettre à tout. Car où est le tyran, la chaîne, le supplice même, y parût-il soumis, où son âme en vérité i
-n'échappe ?
 
 Pascal ne sort plus guère de sa chambre que pour se
 rendre à Port-Royal, ou à l'église. Et, quand il est dans
@@ -2136,12 +1682,6 @@ la rue, il vit de même entre les quatre murs de Ja solitude, comme au moment o�
 
 | C'est ce Pascal de la solitude, que je vois parler, un
 
-MIRE
-
-nm)
-
-ENS era p; ALAN Ste (HA au” LETR
-gr visite à Pascal DRE À
 Lan soir d'hiver, à une fille de la campagne, l'ayant trouvée 4
 % sur la place, errante, jeune et belle, seule, en haillons, À
 F presque perdue comme un enfant. Il ne peut la voir, ;
@@ -2186,10 +1726,6 @@ d'où dépend l'empire du monde, ne s'abuse pas sur le
 prix d'une petite fille. S'il la sauve, c'est beaucoup
 moins pour elle, que pour l'amour passionné de Dieu,
 
-à
-1 pe 4 40
-
-Ù ASCÉTISME DU CŒUR
 où l'ascétisme du cœur l'incline. Cet amour ne va pas
 | sans la haine de la nature. Pascal, qui prend cette fille
 par la main, ne s'inquiète guère d'une once de sa chair,
@@ -2209,7 +1745,6 @@ s force de leurs mensonges. Presque tous les hommes ge
 Pascal est du petit nombre en qui l'homme passe infiniment les actions. Le livre de Pascal est lé plus beau ÿ
 qu'il y ait en France. Il ne contient rien, pourtant, qui
 vaille la Vie que la sœur de Pascal a écrite de lui, en
-quelques pages.
 Cette femme, d'un esprit si solide, d'une vertu si
 ferme et si drue, ne put pourtant pas assez connaître son
 frère : mais il suffit qu'elle en ait eu le modèle sous les
@@ -2218,7 +1753,6 @@ de cette grandeur incomparable : un homme que la
 nature a créé pour son triomphe, et qui ne vit que pour
 triompher de la nature.
 Enfin, ce Dieu qu'il faut conquérir, Pascal touche à sa
-65 Pascal. — 4.
 
 conquête. Enfin Pascal est sur le lit de mort. Enfin, D: VAN
 + +8 voici comme un enfant : c'est qu'il meurt. Le temps en
@@ -2231,195 +1765,69 @@ _ pas de sa victoire. Elle livre un combat terrible àla
 chair. Tout ur jour s'écoule dans l'agonie. A la fin, elle À
 _ reçoit le prix. Avide comme elle est de toute fixité, sa
 _ grandeur se fixe : elle n'est plus. DATA
-LES. | ‘ } à j
-Fi OURS « En
-l 1 3 mai 1899. A
-LUE » QE
-e., ta
-, A1*,
 
 Pau TE mnt dents AE PT UN TA A HR? AN ; AO AE
-MT PTS ATOS RE PAL EMA ON A A EE OLA NAS: 1070 RTS TRES
-1° 4 10 USE A OA OR Se HOUNT Vue: POMA VENUE EN RME T8
-Lan gt PSM LT EN REP RE EE E at AE LS LAON NN ANS
-HAE VAT NAT 2 DL A4 FA AN HOT 1 PT NEN A RRERS ASE OS
-PRET RS PPT NT ET PRET 17140 CITE ALU AU FT 7 EVER
-4 ë he) FA FI 74 + » } ñ PAC " D 4 ha is ue
 1 LA NN Rte REA s DA RICE
-RS « ; ; AA
-FRE À * A F M * ; tr EC) 1; LP ENS F
-At ‘ 5 : p NT RE TU
 0 LE mn ; 1103 quitta Ci KA Pi VX FR y)
-4 FREE HAS P 24 RTE UN PCR 21141 0 CARTER)
 \ TA is e ñ . ps ODA v0, 8 D NAS wi
-SR Al. fr Et OAI NOTE AT ARE, 419 MI ACETRERS “
 | {SSI NE De PAR Pa 1 NC SRE ANNE da ‘arab
 1 |: “PR mi Pre SAUT LA 0: TORRES A Ra
-ENNEMI) CREER MMM es
-MONA NON ROUTE à AAA DR 0) MAMAN EC Lo
 2 A0 Par à KES ne 0 RS se MONTE TE à LE Le :: RON
 MER PAM NE W'uE el RTE UE L 'R
 
-Ra CARMEN OPA AUTO SPORE SAC RU ORNE t Ar OL, PEL A De DE A
 POIL SRPRN D Nu) NES ER PR NE AT ro Ter oue L
-CUT at (257 ÿ EU CS EONNE C'ROR OCT EE TROT DUR
-D A
-: X:HMRRE JR NET NOEL UE HS AMRET LENS PEN Te.
-- NME PRE CON DRE A 2 Te d'f) lie A l A À
-ar Ch LRU A TS SE Fr See 7 5 À Eu a HET NS . QU 2e (US
-à AN: tf Le: ti "Re 3 ‘ L ; P £ Ds sat * pe Lt
-72 * “4 ME n ES , APT EE" : ‘4
-5 ÉD in , ie ‘ L d , Le 1]
-D À ph Cage
 L'ENA À CAT ENRE h mc:
-CNE Hi A à : EL
-: SES n + Le L'427
-DAT 7 : 4), NS
- " PX | | RTL
-200 0 + PS ' ? . NS
-EE ' # i PRE
-ire no Fe 13 pue COM
-MALE \ û { Var (45% CNRS
-A | pr NC À \ 18 « !' PURES
-7 TOR TAN Qi ; 2700
-RP | . | FROM del, ‘564
 #7 É 4; La } ‘ ol CR re" Le pr ox SR
-4 1 . \ S DHL USE RCE
 | PAU a Le “4 Lan TO AMIE FE Te LR
 210 NENRSRSS CIEL A 1 PR ee) AU ot 2 SES 4
 | JE As RUE (a 3 Te \ Late VAR
 
-: L ( Pat UE LR HORS EURE RE
 di ART PEN FT AAA ERA US de 4 à RUE
-oi ed a: " AE ) IR
-Bi #7 * b AT 1 : Au DEA
 __ Il a été tiré de ce cahier vingt exemplaires Sur: AN hi
-1% . « D . : 4 av GARE)
 À è whatman ainsi distribués : A TANT
 14 premier exemplaire de souche, exemplaire du gérant; Fe
 d deuxième exemplaire de souche, exemplaire de l'ad- |
-(À ministrateur : HA MW
-3 A « F' pare;
 \ troisième exemplaire de souche, exemplaire de lim- ma
-; à primeur ; Ÿ WE
-D! Us ARE
-“ neuf exemplaires d'abonnement, numérotés der à \é
-‘4 9 exemplaires d'abonnement ; VUE nu
-f . : » i N
 Ÿ et huit exemplaires d'auteur, numérotés à, b, €, d, ‘
-. e, f, g, h exemplaires d'auteur. Lt
-: "Le
-È A PMR
 Tous nos exemplaires sur whatman sont numérotés aura
-g 4 . LA he, L
 \ 1 à la presse et imprimés au nom du souscripteur; nos 6
-M : d $ LENN EU
 | tirages d'exemplaires sur whatman sont rigoureuse
-: ‘4 ment limités au nombre d'abonnements à chaque in D
-(0 ï u | in 41
 174 stant souscrils; nous ne vendons point d'exemplaires ‘bi
-1% ; à $
 Le - sur whatman en dehors de l'abonnement; l'abonnement
 A. sur whatman à cette onzième série est de deux cents ae
 : francs pour tous pays. û 1
-; à . t ; TH
-À ÉRNE ESEERE REROR EE RE RE AeR el nte | te
 M Les Cahiers de la Quinzaine sont composés à la main, qe
 À: #4 en caractères fin dix-huitième siècle (Didot) de la fon
 LA … derie Mayeur (Allainguillaume, J. Saling et compagnie nl “
 71 successeurs), 21,rue du Montparnasse, à Paris, sixième mn Fe
-Æ: + | “ 2 '
-& arrondissement. mu
 
-RP AR OU NEN 4 ANSE
-RE EEE EE ES À CARTER b U { i <
 HER ANR EURE D Le oo HAN
 LYH URSS CARE FRANS CE Dr fes 4 sg te #4 : US
-. SNORCG IRIS A vo UE à CSS NEO ERR NE RE PRE (07 0
-: + L'ARRERSRSS PORT OS Tete RM AU PAL AU Cr :
-Ÿ % TEA A ht ENS RR A FAMNAT THE VA Te LANPE CIN ONE à EME ,
-” GE - AR HAN DEAR UE SR A EN sel 1 FER 56 nat
-2 2 COR AR LEP EPTAT EEE Le DRE € BAT PU 18e "ART + ARUNTTENS
-:* 4, TINESRRNEEE ( A do VAN ER 2% « 78 RON UE
 1LONE Fev S L l LE RU nr
-RAA 1 » Pa 2 RU T HS CEE Te “HP (!
-RE (0 : j Hu « « | L'AŸR NRA EE AVC
-« are Er 27 +4 * « LS AA TEA FREE LEP \
-« #2 TA À 4 a (LE RENTRE à” L
-F4 y Fi ï \ 14 1ÈEs AS!
-3 a « : HO #
-nt, b l ; \ FES
-" D Coût # i : qi j E : + AN |
-x a y l y! : ou CENT
-AUCOUR è : "LENS
 Va h:! N PER rate DES
-"AR ‘ee ñ £ : Net Eux M
-Per: : 1e mi i FUVA st A ,
-se 1 » ATOM e
-x P- j » L. y * Ÿ A DER: "
-10 À AS HA (A 40
-re TR “ MT SAUT PUR sc
-V2 VUE 4 V T4 Mr 14000 LR wi }
-: 100 L D # +. 08 AAA ‘ SN UE k
-RL LL. 4 À F : ONE ITTEE
 ‘à # ni, 0 NE RES RE NT Pie TUNER
-De C0. RS ss JE : x {4 Dh ESC RS 9
-‘hs 4 " LA # 4 4 ET 4 rai pr L de el
-US LL F5 SAN SEE al ASS
 
-Î
-TABLE DE CE CAHIER
-$ PAGES
 : Notre catalogue analytique sommaire............ 2
 | DU MÊME AUTEUR aux Cahiers de la Quinzaine... 5
 | À AUTRES, ŒUVRES DÉ SUARES: 11 040.. VCR SR 7
-visitèra Pascal). 17 ER SNA RE
-Ve 4
-F Pia Port-Royal es PRES
 sa
-: Un:jour' que le tamulies24 1550480012 240000 13
 À On était au temps de la Pentecôte.............. 14
-1 Éabhaveé æ été vastes SENS ANS 15
-! Les Messieurs de Port-Royal ........:....1:,.... 16
-Hi Pascale RENE ra PURES
-Le musée, en forme de chapelle. ................ 23
-Pascal, COpéRdant. 771,721. 24
 On retrouve, d'abord, dans ce visage........... 25
 | Un petit portrait de Pascal. ........,.......::.. 25
-Pont mo'fare Savoirs: 07342 dre t 26
-« Il a distingué notre agonie..................1. 28
-« Je m'assure qu'il y a des hommes ..........,. 32
-Déjà le'idur baissait,/:5 11.49... 4687 /t NUe 33
-« Quel homme en France: 5... 240040 200 34
-« Nul homme n'a aimé plus que lui............. 35
 "  « Rien n'était donc trop diflicile pour Pascal... 36
 ie nds cet 7 Se 2. ARC EP 38
 * M. de Séipse s'informa si les étrangers ......... 39
-Rous vimes un bel arbre:.:...,...., 22,208 ho
-j 71
 
 pi ESS Me || MOI Mare UE NP ET ane VS TON LR E ont NL E
-D ER A Ad EE AN ER a RU A EE A
 4 TR RO BLESSE a PO RTE ire CR tan re de à QI
 PNA le La ph lose »hie n'est pas même... je a Lau LÉREN
 M. de Séipse répéla lentement ces mots. = PEUT NONE TIR CON
 Nous nous étions assis sur un tertre. Se eee EU RE
-“4 (1è par +4 ‘ REARLE
 | LÉNAMATTE —Agcétisme du cœur: :.2:.:..1.,. 00 NN OS OINNRR
 D L'ascétisme du cœur est le triomphe... 55
-NE J'ai connu des hommes épris .........,......... 55 : ‘Ne
 2 PRIE L'ascétisme du cœur est l'exercice .............. 57 80
 NE |" HD nveuL pot Jje.le Sais... Le Role NTALR ne:
 ‘ act MA MGe puissant (Pascale et es CERN ER 6x |
 La vue de cette chambre... Ga À
-Don C'Eestice Pascal dela sobtude.. 2.7.0. 20070 ENS
-IE : - ' 4.4
-Mi On dit de beaucoup d'hommes.................. 65
 #3 re ! Enfin, ce Dieu qu'il faut conquérir.............. 65 “4
-_  llaététiré de ce cahier......................... 6
-D Table de cé cahier... .......:.:..............,. 0 9 Ga,
-_ +43 SN
-731 : - Mile |
-1 Fo PO ke
 a ie D ON ON
-Ra _

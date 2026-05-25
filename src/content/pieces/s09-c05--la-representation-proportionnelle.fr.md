@@ -7,72 +7,29 @@ author: von-wendt
 isAvertissement: false
 wordCount: 25403
 ---
-
-4 CINQUIÈME CAHIER DE LA NEUVIÈME SÉRIE
- JHAN DECK #r G. VON WENDT
-
 la représentation proportionnelle
 et la récente loi électorale
 
 du grand-duché de Finlande
 
-__ TEXTE ET COMMENTAIRES
-
-PE 4,j0./6
-
-HS CAHIERS DE LA QUINZAINE
-
 j 2x paraissant seize fois par an
-
-F PARIS
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-si CARRE ae:
 ee € “s on 24 POP RICA
 | a
-j K FNDT IN ARS RE
 7 % pe. HÉRST du
-LE CORTE Pc SR LT Et à
-« _ Sad MÉLISS LS NES ee
-? 2,0. : UNSS
 # É ST FERA Goo £
 DATI Pet L'ASIE
-4 « FA LRU AE AC NEA
-TE Je AT PAPAS ADN EUX
 « Etet =: A Le ARS, de
-K $. A AA MIS 0
 Re: on
-; “ RC, AOC. MUNIE Ed
-: Er; TARN Le 242 ;
-Eù ée - ÿ ° PMR C7 ho MAD RER.
-à \ H MIA REA SN ELA 2
-LEUR MFHRNTENES EN Et
-A +, EE FSTSUE — 28 4
 es, - — Ko Es ea #9 HN « 7 gen eù Tir De ES Er
 
-HAT ;
-"1 ÿ MUR
-\” de J
-D EU Fa Là
-si ‘a 4, V9 À ( nr.
-Ps nl (A Ÿ PA CAY 144 ( 4 4. 5
 1eu poil Un ni \ EU à t 4 KA !
-! at 0 a WA he % 4 4 ê
-ME f À 0 PA tre a l \
 ï jt fs d Se SA !
-100 de . + | mo ‘ h i
-jar . D \ vi QUES À: re ' [A
-Fu 1 1h ji no. x ua * d ARE ,
 “Al me tt AT ( et WE } Ÿ hi; ïe
 | ju ; 0 \ W\\ ie | a} | + Ur
-Ÿ jt va) PR Ni LR ti \ \ Mn \ À « _ f. dd:
-Lure Ai 0e mA # S
-} (1 A Net LEX RQ # à
-; en Lu 4
 
-1 Re MN
-RE:
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904; un Si ï à
 grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; = un Rsit
@@ -91,7 +48,6 @@ ment: on recevra en retour le catalogue analytique ie
 sommaire, 1900-1904. de nos cinq premières Séries UN
 Ce catalogue a été justement établi pour donner: |
 autant qu'il se pouvait, une image en bref, un raccourci,
-+ A TA
 
 TL M NN en SA
 ÿ une idé e , abrégée, mais complète, de nos éditions anté- hr
@@ -99,73 +55,30 @@ x rieures et de nos cinq premières séries ; tout y est classé 42 3
 ÿ dans lordre ; il suffit de le lire pour trouver, à leur NS
 _ place, les références demandées. ; à.
 _ Ce catalogue, in-18 grand jésus, forme un cahier N
-12, 4 CRAN T ON ES ï 1,9
 ces DL LT rl de XIFF408 pages très denses, marqué cinq 4
 _ francs; ce cahier comptait comme premier cahier de la ‘4
 sixième série et nos abonnés l'ont reçu à sa date, le #4
-LCR EE MOPARRE ä : PART à
 _2 octobre 190%, comme premier cahier de la sixième 4
 2 | sé rie; toute personne qui jusqu'au 31 décembre 1905 À
 _ sa bonnait rétrospectivement à la sixième série le rece- te
 ET _ vait, par le fait même de son abonnement, en tête de la
 Ne: sb ie; nous l'envoyons contre un mandat de cinq francs x
 td toute personne qui nous en fait la demande. : ,
-PEU ENIREA
-. LAN TS = }
-Ta RAIN TIR Eu
 | F NES KP TS Lu : k
-AU. SURSR SR ; * “
-RE. ‘4
-MOUSE IQ OS ï
-F4 NAIL ; LA À
-A7 RARE Lin N'ES
 
-(à NE AT ON NACETA NAT D EN AE € à 1 }
 à ENG EE À ne LU AAE RS) hs CN INA CRETE
-NAME Pi CAE EAU AU SPA EU. ( À 1
 L te d'A DRE TTUe NT % LAN" fe
-ee TO A PAEU EU AA LU tan
-pe TELUS A AT
-mu, Ï RPM ALES à » à À
-W ÿ A / VUE se AL f A +
 AAA MU sis RU | UE TN LES P
-He ‘ pe AETIAEIR LAON SEP
-(F2 5 ApT E MSOAS RATE LE EUR F
-DT Ô DNA, QU RAS |
-{ 4° 88 à: NOR U pe NEO Ai HA MARNE?
-HA Ê NE A NE A (BAS
 MALE ! k ji EAU ANS LE
-1 a
-720 PAT TEE FA 1 RULES
-RATE } M LR Ve ERA HE Lo DA GUN:
-A à Net UE DÉPART
-{EVE k à 00 LA (ra Un
-D AT
-44 U d'A NOÉ ta oUe 1
-F rt ÿ Au val ! sl 111 fi [HS
 AN 09 ON re CAEN En jt \
 
 à, A PNR NA. ONE VRAGAS AS SAS de
-( JEU ae PET A QU, RETPNCIETE 4 Re
-) | LR à RUN ANA RER EE NES è ï
-4.70) ANT + HA à 4
-NE ‘4 1 ‘1 ALU ENSEEENS ; ut
-CRVEN LAON j. Léon RO PE 1
-RAA RNA ve |
-_ DU MÊME AUTEUR QU
-au |
 aux Cahiers de la Quinzaine ,
-NOTE PRES F
-LS CE PT OMR ENNERIT
-Meur È
 ES HU QE 4 d * Le présent pelit index donne automati- à
 j (ae De Le quement pour tout volume et pour tout |
-f EM HN NPA cahier indiqué : 1
-& L Le A * Fs - *
 SH UNE ! HR a) le numéro d'ordre de ce cahier dans 17e
 (RU MATUR DOM | le classement général de nos collections MAT:
 (AE nn RANCE complètes, le numéro d'ordre de la série ‘4
-ï “EN Me \ étant naturellement composé en grandes
 M7 MS à “A capitales de romain et le numéro d'ordre à É
 RUE AN We s du cahier lui-même, dans la série ainsi F
 CHÉARAL MALE déterminée, en chiffres arabes, de sorte FR
@@ -175,97 +88,41 @@ MAUR UT La lire dix-septième cahier de la cinquième. À
 30H ETS ri faut, la date du fini d'imprimer, où, à son Ra
 *. 401 TNT défaut, la date du cahier même; Ne
 1 ail Le A PS c) le prix actuel; '
-BORA, te C
 te A HMOIDS ñ d) quand il y a lieu, c'est-à-dire pour nos à
 ga se EN ÿ éditions antérieures et pour nos cinq preDEAR ia mières séries, la page du catalogue ana- à
 4 1€ (2) ES k lytique sommaire où ce cahier se trouve L
 Le ME ue catalogué. N ]
-PAS
-CAEN
 \ ai ean Deck, — cahier de courriers, — courrier de Fin- “, À
 " lai de, — en particulier sur les troubles des 17 et 18 avril LOrere
-_ 1902 (H-17, mardi 3 juin 1902.............. un frane 149
 je — — Pour la Finlande, mémoire et documents (Il-x1, à
-x " n « Ant
-. samedi 16 août 1g02.......... trois franes cinquante 167 nu
 MA AUE Van
-F3 CL NRA SEE "Re L Le
 
 La er à. EU ri ve CE eine DES ‘À c
-HAL DAME te TR Ent AT TE CRUE En gl (TAPER
-10 ARR LA ÿ ES ART FAC U RENE A Et ï
 + TA x LA At AE IH REnES A UT pat x se S
-LES 1110 AS ANNE
-CSS À HA MOTS NOTE AN ATEN
-s # NE PH AMEN TEE À “|
-d'A ! i | NQUARAANE NS ke Re CC ME
-ANS . S Le Ni DRM LAON ARE AIN A
-‘Me ho;
 ATEN 5: NT NE que di
-‘4311170 f SNA MNENE RER À A À
-1 NE JA RANE ES SE "TES We “
-NE Ÿ : RULES PRIE SISTER NE REES AE
-« 4 X | PARC pe PEU
-SARAH LM
-QE. NA AIS LL PARA
-“HAT : ARE. 2 VS AUS AE
 AMP Lee Rey du aie HER TAN \ :
-ee TER LUE 4 AU EU ENT AOC EME
 
-de (a
-représentation proportionnelle
-
-q #
 | 131 Fo |
 
-FN ARE NRC eut) a a A AA An ELU À
-ue MU RE MARIENE PA RU 1 PAST |
-‘ME MeRe A
-AN EN (A À Ale ERA OLLT RAMAUUS COTE GS
-LATE PRE F TEE AAA A ant A AMV
-EU ! (CAN ES AT NN FE EAN
-DT HU NES ï | , Û à 4 LE ONE 4 AU AE !
 L "? AAA à Ju DATA ,  P)ÉCENR ei) ki ns el Mn
 bit AD NRA red RE Re [ae Rte Dit ÿ
 1 FUN ANT DA et D OUR ANS EnnS RD AE ;
-HS Len DEN AR AN VRRR GA TAUEE in REIN ENtE e
 : 1 DONNEES RTE " DE ee ANUS PARTIE
-114 20 HART NES j ADR PAL EAN OPEN
 NE AO AIN PC Are Rues UNS mt ‘a
 
-DANS LE GRAND-DUCHÉ
-DE FINLANDE
-Jean Deck.— 1,
-
 on MES HI PA Una
-À AA OM NN ni ! Ne
-I EURE 7 Dear PE PAPA AT Pa A EP A ANNEE } !
 o nue ( À Ë [lui à: ONG RPRODRANS DPRUE NAT Hi L
 Marat Eur ' LANTA D DL EST RENTE VA
-DRMAE EE) LE 2 SU NEA ARE CN ORPI ENS À
-1/0) ON AE } 1 ERA ENS ENS
 fe or ts : F ñ AA AURA MES gd Ut 4
-ARC NE | LRO AIN RNEERES
 RNA ÿ aa NHEUS NRA de REY
-MM nn <\ AE eur
 : HAINE DRE 1 ee NE dus
-254 TM à té ( JT TAN Rene AUX ARE, LL uen
-LA | Dr o Ji es
 
-Pr EUR 4 A 2 ANA MISE Lei
-1 ASE TAN O NU
-AN AVANT-PR ñ
-x ANRT GER î uvais. tou- \ gt \
 AN is est ma e va 1 (202
-ue ti Fu ) ais orm h
 1 D ncirat F tas de rise (CNE
-ki “id G KA A me e e ‘senta- Lol
 FAR po i le sentent nde surtout ‘une représe à HU
 AE. es ceux qui t. On dema oduction d'u été nomm Ve
-jee À. AM rOiSSan s ec intr ission @ ME
 x APE “rl de liste, av une commis, réforme. ses F
 oran tionnelle ; étudier cette été depuis as i 4
-TRI A opor a a
 152 par. mue ésentation p Mie. que ne l'ont pas nes Vi À
 re repr iée et app litiques PE TENUE do:
 : gris du emps étudié élections DUT e, m juste des PU
@@ -274,7 +131,6 @@ l'ont VELO une d AARTÉRE PA 2214
 He jours fait a faussée par efus de rec diète finlan AA #4
 res ages, té tions et par a voici que Der deux FA (1
 Rs. tr irconserip unes. — 0 chant à re me pour l'é r | <Ù
-vs Pres corn tire a mécanis isser échappe 3 \ À
 _ datu sys licité du laisse sai (]
 | | a adopté un : la simplic rent à DR N
 Ur opposés : lesse “KA importan te l'attention 4 VE
@@ -286,12 +142,7 @@ ar "és or' il est q Finlande T 148
 HN. 1068 pa ortionne ime élec la diète e no- Ye
 AS ion prop du régi orme de ion » de Fe:
 De PS H LA réforme à La r'éfi évoluti ments, AA y
-MEME Zur intement à da « r »s événe 1108
-fe: D) orig rai p “NUE
 Ha” le a ss Je raconte \ Ph ER
-DU nbre 1905. 11 val sh
-196 g MEL
-à AN HSE UE K 7
 
 | Jean Deck
 comme j'ai commencé de le faire, dans les Cahiers. Pour
@@ -300,7 +151,6 @@ le moment, il me suffira de rappeler que, devant les
 entre autres la convocation d'une diète chargée de
 réformer le régime parlementaire, sur la' base du
 suffrage universel direct, égal et sans distinction de
-sexes.
 Le manifeste ne disait rien du régime électoral. Les
 discussions commencèrent aussitôt dans la presse, libérée
 de toute censure. Parmi les publicistes qui firent campagne en faveur de la représentation proportionnelle,
@@ -318,11 +168,7 @@ questions), le professeur de mathématiques E. Lindelôf,
 le professeur de littérature scandinave W. Vasenius et
 l'ancien sénateur J. Serlachius. Ce dernier était le seul 1
 Juriste ; d'autre part le comité ne comprenait pas un
-seul bureaucrate, circonstance sûrement heureuse. —
 
-æ
-
-ME AVANT-PROPOS
 Le comité modifia, compléta et perfectionna le projet
 ñ du docteur von Wendt; ce nouveau projet, adopté par
 : le comité, le sénat et la diète, est devenu la loi électorale du 7/20 juillet 1906.
@@ -347,30 +193,12 @@ forme électorale, et qu'on leur objectera qu'ils pouvaient
 répondre avec un semblant de raison : nous n'en avions
 qu'une connaissance imparfaile, et ne pouvions la lire
 _ , dans sa teneur.
-Octobre 1906
-Jean Deck
 # * (1) Docteur Georg von Wendt. Die Proportionalwahl sur finnischen
-‘ Volkscertretung. Leipzig, Veit, 1906. 46 pages in#.
-re
 
-» y nn (Ten LAN
 k us Cr fs Et NY es #4 il ta “ TN ARTE
-MES RON Sa CE CAE CA A ME NUE AE LR TA IR !|
-AT EX ul ( PAU au ATOS DA IN MEN AE RS AL ISA
-ie JS are n XL PAU AN AUS “ANA M aire
-re VAL 4 ANS UNANE *ot NS POSE A Lai ;
-CORNE 4 Ê AN AE MR ERNE HR A LA LEA:
-‘EE ANA NE API DA PE , ÿ
 LUI ARE AE ARTE de
-QE ARE EN ETE ane REA AE A
-EE : : a
 An. EE nu 4 TU PUS 40 a RAA: L ke
-PA 1 Php) SEM ERA RL NAT nf
-NAT GA EE ME
 
-DRM |
-} PosT-SCRIPTUM '
-1]
 _ Depuis que-cet avant-propos a été rédigé, divers incidents sont survenus, qui n'ont f'ait que me confirmer dans #
 _ mes appréhensions. La Commission de la Chambre fran- 4
 çaise a déposé un projet de représentation proportion- ;
@@ -382,7 +210,6 @@ _ aménagé pour perpétuer la tyrannie des partis politi-
 
 _ ques et de leurs comités, dont souffre la vie politique
 _ en France, et qui a produit les beaux résultats que nous \
-_ connaissons. }à
 … Il serait donc plus nécessaire que jamais que le sy-
 
 _  stème finlandais fût connu en France. Les élections du
@@ -398,19 +225,13 @@ __ n'était que du battage. Quelques semaines après, +
 … j'écrivais à un des chefs d'orchestre du groupe, pour mi ‘4
 - donner quelques détails sur les élections finlandaises, (4
 ! appeler son attention sur ce système électoral, et de- >
-Gi: \
-+ F4
-PRE
 
-Jean Deck
 mander à être entendu par la commission parlementaire
 lors d'un prochain voyage en France. Je n'ai pas reçu
 un mot de réponse, et un ami du parlementaire en question m'a dit depuis qu'il était probable que le destinataire n'avait même pas lu ma lettre. Maintenant je suis
 fixé. Les parlementaires ne marchent que la botte au
 derrière, comme l'ont montré les événements du Midi.
 Ne gardons pas d'espoir de voir en France un bon système de représentation proportionnelle.
-
-JA
 
 Post-scriptum à ce post-scriptum et note du gérant.
 — Nos abonnés savent combien rigoureusement je min ‘+
@@ -432,9 +253,6 @@ place, autant qu'on le peut, sur la matière même et sur
 la réalité que peut seulement se poursuivre une étude
 de cette sorte, ;
 
-16 !
-
-tt ï POST-SCRIPTUM
 Il n'est donc pas là. Il est trop loin pour que nous
 pussions lui envoyer utilement des épreuves. Il m'a
 donné le bon à tirer sur sa copie. J'ai dû lire ce cahier
@@ -456,35 +274,14 @@ quelle somme de dévouement, d'affection, d'amitié,
 j d'admiration un honnête homme comme notre ami et
 collaborateur est aujourd'hui désabusé.
 le gérant,
-Charles Péguy
-(1) française.
-Le : »
 
-MAN : ELA DREAM PANNE Pate
-LM RTE 4) TPM OUT ANR Fa TT A Vo
 EUR AN jui AA ET ANNE AE LA Le \
-1000 Den FL DADCABERE 1 ; re a RE
 | UE rs “ PRE El cu PAIE ENT
-(HN ( ; \ ara A Us LE Re NU L
 } a UE 4 NUE TE HU nr tr cl 1 L d nat
-DATE | À SOEUR AE NN LMEOR GTR
-Pt à AAA a nt
-0 W { 4811 ANA A Au Une
-NON { A RPANE ST AA Y UN D DATE
-k EE RS 4 d'A HAT OA TA PU
 LR Vu à ? EN À lt (te NAN
-L'PNEÉ WU, ë 115 1a se NN QUE FUN FERA MON \
-ARE NRA ANTANC NN DT A
-: GS fu ÿ \ +) ONE a RAA \
-PTE ! | à: 1 ALIEN 1) HU TIEe i
 % 74 ne “ ST AD nnIE Pan) ja UT
-' 1 à pi ANA CA : “a
 ei. Et ù H } MA aN HN) mi 20 RENE
-13 2 MARNE 4 PAU PE tas se pt WA
 
-LOI ÉLECTORALE
-POUR LE GRAND-DUCHE DE FINLANDE
-CHAPITRE PREMIER
 Des cercles électoraux et des autorités électorales
 
 Pour les élections de députés à la diète, la Finlande est
@@ -504,12 +301,8 @@ comprenant les bailliages de Birkkala, Ruovesi et Jämsä;
 
 6. Cercle électoral Ouest du gouvernement de Viborg,
 comprenant les bailliages de Kymmene, Lappvesi et
-Stranda;
-
-2 FAT IUT
 
 A de à AG
-loi électorale |
 
 7. Cercle électoral Est du gouvernement de Viborg,
 comprenant les bailliages de Jääskis, Ayräpäaä, Kexholm,
@@ -539,8 +332,6 @@ Temmes, Tyrnävàä, Muhos et Utajärvi du bailliage d'Uleä;
 15. Cercle électoral Nord du gouvernement d'Uleäborg,
 comprenant le bailliage de Kemi et les communes de Kuivaniemi, 1jo, Haukipudas, Kiïiminki, Ylikiiminki, Pudasjärvi, Taivalkoski et Kuusamo du bailliage d'Uleä;
 
-et |
-
 16. Cercle électoral de Laponie, comprenant le baïlliage
 de Laponie.
 
@@ -551,24 +342,17 @@ Dans les quinze premiers cercles sont élus par scrutin
 direct et proportionnel cent quatre-vingt-dix-neuf députés,
 répartis entre les cercles électoraux en proportion de leur
 
-y AURAS
-
-a Rp hate
 #
-4 POUR LE GRAND-DUCHÉ DE FINLANDE
-Aa HIER 12, LA IMC A OU Re I SEE SE EEE
 population inscrite sur les rôles de l'impôt. La répartition :
 incombe au sénat; elle est effectuée tous les dix ans, et ;
 publiée au Bulletin des Lois. |
 Le cercle électoral de Laponie élit un député comme il est
 dit à l'article 55. :
 
-LA
 . Pour chaque cercle électoral il sera institué en temps
 utile, avant les élections à la diète, un comité central de cinq
 membres, qui se réunit dans la ville où se trouve la direction provinciale du gouvernement. Le comité central du
 quinzième cercle est cependant aussi comité central du
-seizième.
 Le président et deux membres du comité central, ainsi :
 qu'un suppléant, sont nommés par le sénat, et deux
 membres avec un suppléant par le conseil municipal de la
@@ -592,20 +376,12 @@ _trat dans le nombre voulu de districts de vote.
 Une commune comptant moins d'habitants qu'il n'est dit |
 . ci-dessus peut aussi, quand la commission communale ou se
 |
-x 21 J
-V
 
-loi électorale AIR À
-a —— ———————————— }
 le magistrat le juge nécessaire, être divisée en districts de 1
-vote. j | à
 La division faite par la commission communale ou le )
 magistrat sera valable, même en cas de contestations, jus- À
 : qu'à ce que l'arrêt intervenu à l'occasion des contestations è
-ait acquis force légale. :
 La commune fournit un local de vote ds chaque di- é
-strict. . |
-M]
 Dans chaque commune rurale, la commission communale
 doit, au commencement de janvier dans l'année au cours de
 . laquelle le terme de trois années s'écoulera depuis les der1 nières élections à la diète, constituer un comité électoral …
@@ -614,7 +390,6 @@ doit, au commencement de janvier dans l'année au cours de
 4. si de nouvelles élections ont eu lieu par ordre de l'Empereur ‘to
 n? et Grand-Duc, (1) un nouveau comité électoral sera nommé. * …
 él dans le mois de janvier de l'année qui suit celle où ont eu #
-3 lieu lesdites élections. ! |
 | Dans les communes divisées en districts de vote, il est ut
 ‘& constitué un comité par district. ;
 3 Le président et les membres du comité électoral, ainsi que 1
@@ -629,18 +404,11 @@ s se divise pour les opérations du scrutin en un nombre
 selon le besoin. MT ty #
 S'il n'y a pas de magistrat, le tribunal de police remplira 5
 ‘ les fonctions attribuées dans cette loi au magistrat. AP \4]
-F JS
-4 RS
-AE A ROLE ASS
 
-$ à A di AE 8 + Ë TR
-ht A8 NU à ins pa 1 ADR Re F6 fe FE PIE
 POUR LE GRAND-DUCHÉ DE FINLANDE Das
-2 UHR TAPER ; TAC
 NU? Lee act . LA se
 # CHAPITRE I 2%
 a De la liste électorale ; he À
-FE à 6 ‘4 470
 e _ La liste électorale est dressée pour le district de vote par Ba.
 L. __ son comité électoral. "he
 ri ! Dans les villes divisées en districts de vote, la liste électo- 11100
@@ -648,36 +416,25 @@ je rale de chaque district est dressée par le magistral. D:
 | ca 10e
 Dans le mois de janvier de l'année au cours de laquellk
 expire le terme de trois ans depuis les dernières élections à
-ART ss : A : A UE
 É la diète, le greffier chargé du rôle des impôts remettra au
 À _ comité électoral, pour servir de base à la rédaction de la
 liste électorale, une liste, dressée par village et numéro de <e
 _ propriété, ou, dans les villes, par quartiers et îlots de maisons, de toutes les personnes domiciliées dans le distriet de #4
 _ vote d'après le rôle des impôts pour l'année précédente, et # 4 ;
 qui au commencement de l'année ont atteint l'âge de vingt- \ M
-_ quatre ans. Ke
 Le Outre cette liste, le greflier dressera trois listes complé-
 nt _mentaires, une pour la première, une pour la seconde et. Ke:
 4 une pour la troisième des trois années suivantes, compre
 _ nant, chacune dans le même ordre, les personnes domici- ka k
 __ liées dans le district de vote qui, pendant l'année précédant na
 L:. "œelle pour laquelle la liste est faite, ont atteint vingt-quatre _
-ans.
 Les listes sont rédigées sur des formulaires fournis aux à
 | grefliers par les soins du sénat. ‘+
 _  Silya un motif connu qui prive du droit de vote une 4
 Le ü personne comprise sur la liste, mention ef sera faite en “Li
 _ regard de son nom. + 1318
-Abo: 23 ro
-al nt
-HONTE PM à
-R ram ie RUN |
-RME 1: : 1 FES
-Di ie  , 1& € Ti
 
-PAU QUE ON CACHE ENT 1
 | M nt
-loi électorale
 
 Dès que la liste dont il est parlé dans l'article 7 lui sera |
 * parvenue, le comité électoral lexaminera soigneusement; il
@@ -698,12 +455,8 @@ avis de ce dépôt dans l'ordre prescrit par les arrêtés communaux. ;
 Si quelqu'un estime qu'il a été indûment exclu de la liste É
 1 électorale ou qu'un autre y a été indûment porté, et qu'il
 veuille demander correction, il doit remettre au président
-2.7 1: L
 du comité électoral, au plus tard le 16 mars avant midi, une à
-réclamation écrite adressée au comité. j
-pa
 |
-10 À
 Les demandes reçues sont rapportées au comité électoral Fi
 le 16 mars après midi. Î
 Si une réclamation vise la radiation d'une personne
@@ -711,14 +464,8 @@ inscrite sur la liste électorale, le comité en avisera le même |
 . jour l'intéressé, lui indiquant qu'il peut prendre part de la |
 réclamation à un endroit indiqué, et remettre au comité
 des explications écrites au plus tard le premier avril avant t
-midi.
 Cei avis, placé sous pli fermé avec le nom et le domicile
-24 à
-. n 1
-M ji
-A Re RANNLS PARENLE
 
-M, POUR LE GRAND-DUCHÉE DE FINLANDE ‘1
 du destinataire, est remis au bureau de poste le plus ER
 proche; le comité peut pourtant le faire transmettre d'une f
 
@@ -730,18 +477,15 @@ se tient l'assemblée communale, en ville à l'hôtel de ville. M
 | * Des formules d'avis sont fournies au comité électoral par é
 les soins du sénat.
 
-+
 Après que les demandes parvenues, et, si des avis ont été À
 envoyés conformément à l'article 10 paragraphe 2, que les î
 explications données ont été rapportées, les pièces, pour- “à
 _ vues de l'avis du comité, sont envoyées au gouverneur, qui à
 doit sans retard prononcer son arrêt sur les réclamations à
-faites. f
 _ Les explications provoquées par les réclamations men- 5
 tionnées dans l'article 10 paragraphe 2, peuvent cependant à
 être envoyées aussi au gouverneur, tant que celui-ci n'a pas pe
 * encore tranché l'affaire. ;
-12 RUE:
 . L'arrêt prononcé par le gouverneur dans les questions Fi
 touchant la liste électorale est transmis au comité électoral, :
 . quile fait publier et envoie au gouverneur une attestation
@@ -756,8 +500,6 @@ _ bureaux du magistrat et à la campagne chez le président Le
 
 _ du comité. :
 
-LA 13 É:
-
 | Celui qui veut en appeler de l'arrêt du gouverneur doit le
 
 _ faire par un pourvoi femis au gouverneur au plus tard
@@ -768,14 +510,12 @@ l'arrêt. je
 | 25 Jean Deck. — à
 
 |.
-loi électorale .
 Si des pourvois ont été remis, le gouverneur doit, aussitôt
 après le terme ci-dessus, les envoyer, avec une copie de
 l'arrêt et des pièces de l'affaire, à l'autorité judiciaire suprème du pays. En cas contraire, le gouverneur avisera le
 comité que l'arrêt a acquis force légale.
 Le tribunal suprême fait parvenir au comité électoral, par#
 ÿ l'intermédiaire du gouverneur, son arrêt dans la cause.
-14 $
 Si aucune demande de changement à la liste électoraie
 n'a été remise au comité électoral dans les délais prescrits,
 celui-ci doit inscrire sur la liste qu'elle a acquis force lé-
@@ -789,23 +529,18 @@ l'attestation qu'elle a acquis force légale. ÿ
 k La liste devenue légale doit être suivie sans changement |
 lors du scrutin. à
 
-! é FA
 Si, sur un décret de l'Empereur et Grand-Duc, de nou- ;
 velles élections doivent être faites avant que la liste élec-
 : torale ait été à nouveau dressée selon la procédure stipulée À
 ci-dessus, la dernière liste électorale, avec les suppléments
 mentionnés à Particle 7, servira de liste électorale.
-L ” 4
-16, :
 Avant les nouvelles élections, la liste électorale doit être
 \ examinée comme il est dit à l'article 8, et immédiatement M
 après être déposée pendant dix jours en publie sous la sur-
 è veillance nécessaire dans le district de vote. Avis sera
 donné de cette publication. \
 4 Les demandes de rectifications à la liste électorale seront
-26 {|
 
-: ef | POUR LE GRAND-DUCHÉ DE FINLANDE ; |
 _ adressées par écrit au comité dans le même délai. Si la de- "re
 mande concerne une radiation, le comité communiquéra la +
 demande à l'intéressé comme il est dit à l'article 10, en l'in- |
@@ -820,10 +555,7 @@ L'année qui suit celle au cours de laquelle ont eu lieu
 _ les élections indiquées dans l'article 15, une nouvelle liste ;
 électorale complète avec des listes complémentaires pour p
 deux ans sera dressée selon la procédure stipulée dans ce (
-chapitre. |
-CHAPITRE II
 Des unions d'électeurs et des alliances électorales
-} 18 à
 * Si, dans un cercle électoral, des électeurs au nombre d'au |
 moins cinquante se sont, par une déclaration écrite portant
 . leurs signatures, groupés en vue d'élections déterminées, et *
@@ -833,17 +565,10 @@ moins cinquante se sont, par une déclaration écrite portant
 . liste de candidats soit publiée et introduite sur les bulletins |
 … de vote qui, dans le cercle électoral, seront employés aux &
 4 élections à la diète. J
-À 19 k
-. à
 Lagéclaration constituant une union d'électeurs indiquera |
 - le domicile de l'union, et contiendra l'autorisation pour au à,
 Î moins un de ses membres d'être son délégué; elle sera Ve.
-f à
-4 27 1% » ”
-PRE 12
 
-Ko pu jus DA
-loi électorale  : |
 également datée. La liste des candidats doit comprendre
 distinctement les noms des personnes, trois au plus, qui ‘
 sont proposées comme membres de la diète, avec leurs profession et domicile. Elle peut, pour les cas prévus dans les
@@ -856,7 +581,6 @@ La demande de publication de la liste des candidats est t
 faite par écrit au nom de l'union par son délégué. Si deux |
 ou plusieurs délégués ont été choisis, ils ne peuvent repré-
 senter qu'ensemble l'union; ce qui est dit ci-dessus du
-délégué s'applique à chacun d'eux.
 La demande doit être accompagnée de la déclaration
 constituant l'union d'électeurs et d'une copie spéciale de sa
 liste de candidats. Dans sa demande le délégué doit donner pe
@@ -876,10 +600,6 @@ Les pièces indiquées dans l'article 20 seront remises au
 comité central du cercle électoral par le délégué en personne, |
 ou par un délégué pourvu de sa procuration, au plus tard \
 le trentième jour avant le scrutin. #
-28 È
-nñ
-. p:
-ÿ mx AS
 
 | pOUR LE GRAND-DUCHÉ DE FINLAN De | 7 ANUS
 | Siles pièces ont été remises à la poste assez tôt pour Nue:
@@ -907,26 +627,16 @@ Ro Si le délégué n'est pas autorisé lui-même à opérer ce * #3
 Le |: ?*hangement, l'avis sera accompagné de la déclaration men- : 14
 __ tionnée dans l'article 23 paragraphe », et contiendra lattes RS
 tation donnée par le délégué que les signatures sont au- Ne
-_ thentiques. AL:
-:1r ; "25 TE
-AE ;
 f À k Si deux ou plusieurs unions électorales veulent travailler f 1e
 die ensemble pour le serutin, elles auront le droit de se réunir Ne
 en une alliance électorale. ci
 ns | Cette coalition se fait par une déclaration de chaque union
-1MRCES Le
-11 4 29 Jean Deck, — 2. "2 4
-NU, dE 4
 D ne 1 ail
-LR MO L-
 
-Dr AUPIÉF IE PAIN Ne) a
-Al loi électorale PEN LATE
 1e sur la constitution d'une alliance électorale, et un avis donné } À
 au comité central du cercle électoral. ; 40
 Le nombre total des candidats d'une alliance électorale ne ti d
 peut dépasser le nombre des députés à élire par le cercle , “À
-électoral. 1
 
 it La déclaration mentionnée à l'article 23 sera faite par f
 M. écrit et désignera toutes les unions avec lesquelles il est Ê
@@ -937,31 +647,21 @@ l, (y: Cette déclaration sera datée et signée de la moitié au ;
 4 W moins des personnes qui ont signé la déclaration de con- l
 k Stitution de l'union. Pour l'avis à donner au comité central, É
 s on se conformera aux dispositions de l'article 24. eu
-k 27 |
 ÿ L'union d'électeurs qui appartient à une alliance électorale à
 | ne peut entrer dans une autre alliance. Des alliances élec- Leo
-: é …
 torales ne peuvent s'allier entre elles.
-À
 f Quand une alliance électorale a été déclarée au comité à
 #k central, les listes de candidats portées dans la déclaration w.
 foi de formation d'alliance ne euvent plus subir de change- (4
-a P P £ hé
 Ÿ ment que celui indiqué à l'article 92. 1 1%
 + CHAPITRE IV de
 4 Des mesures à prendre par le comité central 1510
 Ris pour préparer le scrutin 1208
-Al:
 | 29 : :10
-1 h
 | Le comité central se réunit pour la première fois, sur la REA
-a . sis : : He,
 ji Convocation du président, au plus tard quarante-cinq jours dé ENS
 de avant les élections, pour choisir un secrétaire et pour déter- ; 50
-4 A
-ñ , 30 RSA
 
-JE POUR LE GRAND-DUCHÉ DE FINLANDE
 miner le temps et le lieu de réception des pièces, et ensuite
 les trentième, vingt-deuxième et quinzième jours et ensuite
 au plus tard le second jour après les élections à la diète à
@@ -975,8 +675,6 @@ les formes requises, ou qu'une union n'a pas été constituée
 légalement, avis sera donné à son délégué que la demande
 n'a pas été acceptée ; les raisons du rejet seront en même
 temps indiquées.
-
-3x |
 
 Les demandes faites selon les formes requises par des
 unions légalement constituées sont pourvues d'un numéro
@@ -1002,11 +700,7 @@ b dement imprimées sur le recto d'une seule feuille, rangées
 
 à Si, dans le cas prévu par l'article 30 paragraphe 2, une
 …. union d'électeurs a remis dans un délai de sept jours une
-F demandé -nouvelle, corrigée quant aux remarques faites,
-ll 31
-‘#
 
-loi électorale RS à 21
 mais par ailleurs intacte, cette demande sera rapportée et |
 } examinée le vingt-deuxième jour avant les élections à la
 diète. Le même jour sont examinées aussi les demandes parvenues en retard sans qu'il y eût de la faute des requérants. )
@@ -1024,7 +718,6 @@ du public. À
 A la réunion qui a lieu le quinzième jour avant le scrutin
 sont rapportés et examinés les avis de modifications aux
 listes de candidats publiées et les déclarations d'alliances |
-électorales parvenues au comité. ;
 Si une déclaration ne peut être acceptée, il est procédé
 nu comme il est dit à l'article 30, paragraphe 2. 1
 ; Puis la liste imprimée doit être corrigée en tenant compte *à
@@ -1034,17 +727,11 @@ sous un titre commun et séparées des autres listes, de 1
 manière que lalliance et les listes de candidats qu'elle 18
 comprend ressortent nettement. Le groupement ainsi obtenu je
 des listes de candidats définitives sera aussitôt imprimé. 4
-n.
-Li ;|
 
 Le comité central fera ensuite imprimer rapidement des 4
 QE bulletins de vote pour tout le cercle électoral, et en enverra à
 un nombre suffisant à la commission électorale de chaque ‘1e
 district de vote. Les bulletins seront placés sous pli fermé, * ï
-(A
-cs JA
-4 AUDE
-+ À AT RO PRE TE y
 
 ae scellé du sceau du cercle électoral et portant à l'extérieur la Jui
 mention du nombre des bulletins de vote. “let
@@ -1053,7 +740,6 @@ mention du nombre des bulletins de vote. “let
 F tera toutes les listes de candidats publiées par le comité E:
 #4 central en conformité exacte avec les prescriptions des + 2
 fi _ articles 32 et 33; pourtant il ne peut plus ÿ être désigné de it
-Lu suppléant. ME
 1 Les bulletins de vote doivent être disposés de telle sorte 4
 qu'on voie nettement de quelle manière ils doivent être pliés > 354
 et fermés, et ne doivent porter rien d'autre que ce qui est RU:
@@ -1063,36 +749,21 @@ K aux commissions électorales un nombre suflisant d'exem- 18
 _ plaires de la feuille rectifiée comprenant les listes de ; #48
 Lu _ candidats et un timbre électoral avec accessoires. La feuille 4@ is
 AR rectifiée est en outre distribuée comme il est dit à l'ar- LE
-hriticle 33. 1 12
 Le timbre électoral doit être identique pour tous les di- ; ‘a Fr.
 ñ ee stricts de vote dans le cercle électoral. 5 10
-ri à vl "M
-À A j (3h £
-HA CHAPITRE V 13508
-TA à 10
-SU Du scrutin \+ “à
-14 KW J « Fe ' : . +14
 Le premier juillet de l'année au cours de laquelle expire » 4008
 de délai de trois ans depuis les dernières élections à la
 diète, les opérations du serutin commencent dans chaque 120
 4 district de vote à neuf heures du matin et se poursuivent A
 _ jusqu'à huit heures du soir, et le lendemain également de Re
 Ÿ meuf heures à huit heures, chaque jour avec une suspen- “+4
-ÿ 4
-‘15 De LES
-Lu. : à" , Li | ALES ‘
-D 148 TAME RER dti
 
 ii , , * CAP TA vd” bal jte EE AE Fi] 7 ji "e NE D RTUN M Ë |
-loi électorale" FNAC
 j sion de deux heures au plus d'après la décision du comité , 1
-électoral. 2 1
 Si l'Empereur et Grand-Duc a décrété de nouvelles élec
 tions, le scrutin commencera le premier jour du mois qui (il
 commence après soixante jours à dater de la publication 4
 : du'‘décret, et se continue comme il est dit dans le premier 1
-$ paragraphe. <
-j : 38 ; |
 Il appartient au comité électoral de prendre toutes les dis- : |
 positions nécessaires pour les opérations du scrutin. ï
 fr En particulier des mesures seront prises pour éviter que \
@@ -1117,15 +788,10 @@ d Il est remis aux soins du comité électoral de faire afficher nr
 | et tenir à la disposition de tous, dans le local du vote, la ) FA
 Û chambre et lantichambre voisines, la feuille publiée par le Dé
 ü comité central et portant le groupement des listes de can- de.
-didats définitives. Us Pic
 
-ue, es gt CN SP RS ESS ES "1 FLAN
-POUR LE GRAND-DUCHÉ DE FINLANDE
-4x »
 Aux élections à la diète assistera une personne choisie
 par le comité électoral, et chargée, sur la demande des
 électeurs, de les aider à mettre sur le bulletin de vote les
-indications nécessaires.
 Ce mandataire suivra consciencieusement les indications
 de l'électeur, et gardera le secret sur tout ce qu'il apprendra
 à l'occasion du scrutin. S'il trahit ce secret, il sera puni
@@ -1134,15 +800,11 @@ de ses fonctions.
 
 Lors du scrutin le président du comité électoral montrera
 aux personnes présentes, immédiatement avant le commencement du vote, que l'urne est vide, et ouvrira ensuite l'enveloppe dans laquelle sont placés les bulletins de vote. è
-C 8
 L'électeur qui veut exercer son droit de vote doit s'annoncer au comité électoral pour retirer un bulletin de
-vote.
 
 ! Lors du scrutin chaque électeur aura le droit de voter
 pour trois personnes au plus; il doit indiquer, comme
 il est dit à l'article 45, l'ordre dans lequel il désire les voir
-élus.
-45 |
 Si un électeur veut donner sa voix à la liste de candidats
 d'une union d'électeurs inscrite sur le bulletin de vote, il
 marquera cette liste d'un trait rouge. S'il veut modifier
@@ -1151,12 +813,6 @@ chiffre 1 devant le nom qu'il met en tête et le chiffre 2 |
 devant le nom qui doit être le second.
 Si l'électeur n'approuve aucune des listes de candidats
 inscrites sur le bulletin de vote, il écrira dans l'espace vide |
-
-art. ti
-
-D. À
-
-loi électorale
 
 4 laissé à cet effet le nom de la ou des personnes pour qui il
 vote, qu'elles figurent ou non sur les listes ; il les placera
@@ -1199,17 +855,10 @@ reprennent, le comité, avant d'enlever les scellés, doit s'assurer que les sce
 : Avant qu'une interruption ait lieu ou que le scrutin soit
 déclaré clos, tous les électeurs arrivés avant l'heure déterminée ont le droit de voter.
 
-36 |
-
-470 po td) Lin EN TO
-
-‘ POUR LE GRAND-DUCHÉ DE FINLANDE .
-
 Dès que le scrutin est clos, les bulletins sont retirés de |
 l'urne et comptés sans être ouverts. De même on compte le
 nombre des personnes qui, d'après les annotations à la
 liste électorale et au procès-verbal, ont exercé leur droit de
-suffrage.
 Tous les bulletins de vote émis sont ensuite placés dans
 une enveloppe solide, que trois au moins des membres du
 comité scellent de leurs sceaux placés de manière que l'enveloppe soit soigneusement fermée.
@@ -1224,7 +873,6 @@ Si les bulletins émis ne peuvent être comptés de suite
 parce que l'heure est trop avancée, il est procédé avec
 lPurne comme il est dit à l'article 48; les bulletins sont
 comptés et placés sous enveloppe le lendemain.
-' 5
 Lors des opérations du scrutin un des membres du co- .
 _  fité électoral rédige un procès-verbal indiquant le jour du
 scrutin, les membres présents du comité, les heures d'ou-
@@ -1236,15 +884,11 @@ le nombre des bulletins émis et des personnes qui ont voté,
 … et l'heure à laquelle les enveloppes mentionnées à l'artiele 49 4
 … ont été fermées. Une empreinte des sceaux employés est
 marquée sur le procès-verbal.
-37 Jean Deck. — 3
-PTE ; €
 
 f NAME OS { PACE ROMANE OR N A Mu à pes ME OY je
-loi électorale
 Les opérations se terminent par la lecture du procèsverbal et l'annotation faite par le président du comité que
 le procès-verbal est exact. Ensuite le procès-verbal est placé
 dans une enveloppe adressée au comité central du cercle
-électoral.
 Des formulaires imprimés de procès-verbaux sont fournis
 au comité électoral par les soins du sénat. ï
 
@@ -1253,11 +897,9 @@ que possible en personne au bureau de poste le plus proche
 les bulletins mentionnés à l'article 49 et le procès-verbal de
 scrutin, placés sous enveloppes séparées.
 
-%
 Dans le cercle électoral de Laponie chaque électeur ne
 votera que pour une personne, et pourra employer le bulletin qu'il veut. On se conformera par ailleurs, pour les
 élections à la diète dans le cercle de Laponie, aux dispositions de la présente loi dans leurs parties applicables.
-h CHAPITRE VI
 Des principes pour le caloul des voix "114
 
 Celui pour qui l'électeur a voté en première ligne reçoit une Ù
@@ -1267,13 +909,8 @@ didat constitue son chiffre de voix. \
 
 Si un de ceux pour qui l'électeur a voté n'est pas éligible 2
 ou n'est pas désigné nettement, la voix de l'électeur compte 1
-4 À
 néanmoins pour les autres. HAE ï
 
-à
-: MR
-
-} POUR LE GRAND-DUCHE DE FINLANDE
 | .
 | Si l'électeur a sur son bulletin de vote marqué plus d'une
 liste de candidats,
@@ -1281,9 +918,7 @@ liste de candidats,
 . cation que celle de l'ordre des noms,
 ? ou écrit sur son bulletin de vote plus de trois noms,
 ou pourvu son bulletin d'un signe particulier ou de sa
-signature,
 ou employé un bulletin autre que celui fourni par le
-comité électoral, .
 ou si le bulletin de vote n'est pas timbré,
 le bulletin est nul.
 | 56
@@ -1291,7 +926,6 @@ Les bulletins de vote émis pour la liste de candidats d'une
 mème union d'électeurs comptent ensemble comme un groupe
 de voix. %
 | 57
-\
 Les candidats à l'intérieur d'un même groupe de voix se |
 classent d'après la grandeur des chiffres de voix obtenus
 par chacun dans le groupe d'après l'article 54, et sont
@@ -1302,9 +936,7 @@ Chaque candidat dans le groupe reçoit ainsi, pour déter-
 . groupes, un chiffre de comparaison, qui, pour le premier k
 | du groupe, est égal au nombre total des bulletins du groupe,
 … pour le second la moitié et pour le troisième le tiers de ce
-_ nombre.
 | 58
-\
 - Si deux ou plusieurs groupes de voix appartiennent à une
 … alliance électorale, ils forment un groupe de voix composé,
 dans lequel les candidats se classent d'après la grandeur
@@ -1312,11 +944,7 @@ dans lequel les candidats se classent d'après la grandeur
 . l'article 57, paragraphe 2. Si un candidat est commun à !
 deux ou plusieurs groupes de voix simples, sa place dans ‘
 ,
-hi à
-LAS
 
-loi électorale LAN
-DANONE SAM CIN RRIRIes
 le classement est déterminée par la somme de ses chiftres ë
 de comparaison.
 | Tous les candidats qui auront reçu des voix dans le groupe
@@ -1327,45 +955,29 @@ des bulletins obtenus par le groupe de voix composé, le
 second la moitié, le troisième le tiers, le quatrième le quart
 et ainsi de suite.
 
-Li
 Si, dans des bulletins de vote n'appartenant à aucun
 groupe de voix, des voix ont été émises pour une seule et} 104)
 ( même personne, la somme de ces voix constitue son chiffre
 L' de comparaison. -
-60 us |
-Pb
 Si, dans un autre cas que celui spécifié par Varticle 58, un }
 candidat est commun à deux ou plusieurs groupes de voix,
 simples ou composés, la somme des chiffres de comparaison
 4 qu'il a obtenus dans ces groupes constituera son chiffre de
-: comparaison définitif. , À
 | IL en sera de même, si quelqu'un a un chiffre de compa- |
 | raison dans un groupe de voix et en même temps un chiffre l
 de comparaison d'après l'artiele 59. |
-ï * A 4
 | Le chiffre de comparaison résultant de l'addition définie }
 par l'article 6o paragraphe 1 ne peut dépasser celui qui
 | serait échu au candidat si tous les groupes de voix envisagés
 avaient constitué un groupe de voix composé. (
-? 62 à
-\]
 En cas d'égalité du chiffre de voix ou du chiffre de comparaison, le sort décide du classement. NA
-l . À
-j
-Wi Ve 4: 4 PE A EUR
 
-he Re EIRE % va à \
-9 # d ss
-- POUR LE GRAND-DUCHE DE FINLANDE
-‘
-CHAPITRE VII
 : De la fixation des résultats du sorutin
 et de la rédaction des mandats
 
 Dès que les bulletins de vote d'un district sont parvenus
 __ au comité central, les enveloppes doivent être ouvertes et
 les bulletins comptés en présence de tous les membres. du
-comité.
 Puis les bulletins de vote doivent être ouverts et rangés
 d'après les groupes de voix simples qu'ils constituent; les
 bulletins de chaque groupe et les voix obtenues par les
@@ -1375,8 +987,6 @@ de voix sont séparés des autres, et on additionne les voix
 - qui, d'après ces bulletins, sont échues à la même personne. |
 | Les bulletins de vote nuls sont mis à part et placés ensuite
 … dans une enveloppe spéciale qui est cachetée.
-‘hi
-(4 À
 Après que les bulletins de chaque district de vote ont été
 … ainsi comptés et mis en ordre, et les voix émises addition- .
 à nées comme il est dit à l'article 63, tous les bulletins de vote*
@@ -1387,8 +997,6 @@ les voix des candidats présentés sont additionnées.
 4 Ensuite il est procédé de la manière suivante :
 a) les candidats dans chaque groupe de voix simple sont
 classés d'après la grandeur de leurs chiffres de voix, et on :
-:
-à
 
 loi électorale De
 marque les chiffres de comparaison qui leur sont échus
@@ -1435,10 +1043,6 @@ accepte la charge de député à la diète, {1
 ‘ comité central son acceptation dans les dix jours qui
 suivent la demande, la vacance est remplie comme il est dit
 
-… à l'article 67. à
-
-POUR LE GRAND-DUCHÉ DE FINLANDE
-
 Celui qui a été élu dans deux ou plusieurs cercles électoraux est proclamé député dans le cercle où il a le plus haut
 chiffre de comparaison.
 
@@ -1476,23 +1080,16 @@ attestation servira de mandat de député à la diète. » Lieu et
 | date.
 
 Ù En cas de vacance le comité central expédie un mandat
-} .
 
 | 43
 
-L.
-
-CN
-loi électorale SENS
 pour celui qui d'après l'article 67 doit entrer à la place du
 ; député sortant. En ce cas le mandat doit avoir la teneur
-suivante :
 « Attendu qu'aux élections à la diète qui ont eu lieu le:
 “1 À “1 dans/le cercle électorale "Rene
 j N. N. a été élu député à la diète du Grand-Duché de Fin-
 : lande, à dater du. : jusqu'à la clôture des pro-
 | chaines élections à la diète; mais que cette place est devenue
-vacante, N. N., domicilié à. MAN arété enivertu
 4 de l'article 67 de la loi électorale du 79/20 juillet 1906, choisi
 pour entrer en qualité de député à la diète. La présente
 attestation servira de mandat de député. » Lieu et date.
@@ -1503,7 +1100,6 @@ lis dans une enveloppe qui est scellée des sceaux du comité
 } tions suivantes. et
 1 Tous les calculs doivent être reliés ensemble, placés de
 ï même sous pli scellé et conservés comme annexe au procès-
-Ë verbal.
 pe de 1
 ; En cas d'interruption dans les opérations de scrutation,
 F tous les bulletins de vote et calculs doivent être conservés |
@@ -1518,13 +1114,8 @@ Le procès-verbal doit faire mention spéciale du nombre 1
 des bulletins nuls dans chaque district de vote. à
 Le procès-verbal est signé par le secrétaire; son exactitude
 est attestée par le président. à
-; C) +
-14 . L D
 
 di hit ot Re) (: « de ALT RES à « AN costs rit : J:
-POUR LE GRAND-DUCHÉ DE FINLANDE ;
-ing age 2 ARS ER AS PR SEA SRE RAR ER EE
-72 . |
 
 Lors de la fixation des résultats du scrutin, le procèsverbal doit contenir les noms à la fois des élus et de ceux
 qui en cas de vacance doivent entrer à leur place.
@@ -1532,8 +1123,6 @@ qui en cas de vacance doivent entrer à leur place.
 Chacun d'eux est mentionné avec l'indication de ses nom,
 profession et domicile, ainsi que de son chiffre de voix et
 de son chiffre de comparaison.
-
-; 73
 
 Le comité central doit de suite informer le gouverneur,
 ainsi que les comités électoraux du cercle des résultats du
@@ -1546,26 +1135,16 @@ Les délégués des unions d'électeurs ont le droit d'assister
 aux séances du comité où sont comptés les bulletins de
 vote et fixés les résultats du scrutin.
 
-7ÿ
-
 Les expéditions sortant du comité central sont signées au
 nom du comité par le président et contresignées par le
-secrétaire.
 
-CHAPITRE VIN
 | Des contestations d'élections
-W- 76
 ‘ Celui qui veut contester une élection de député à la diète
 | doit le faire par écrit, et remettre sa plainte au gouverneur,
 …._ au plus tard le quatorzième jour avant midi après le jour
 … où les résultats du vote ont été aflichés conformément à
-Æ . . .
-_ l'article 66. .
-F y
-; : 4 Jean Deck. — 3.
 |
 
-41e U# k MIX La ne He
 ER Si des contestations touchant une élection lui sont par- (oh
 “TA venues, le gouverneur demandera aussitôt les renseigne
 piac ments et explications auxquelles les plaintes donnènt leu, 70504
@@ -1573,29 +1152,17 @@ Lo et prononcera au plus vite son arrêt dans l'affaire. Al
 No Concernant la publication de l'arrêt du gouverneur, l'avis un!
 DA à en donner aux parties, et l'appel à faire de cet arrêt, on j
 “110 appliquera les prescriptions des articles 12 et 13. \ MA
-Dec CHAPITRE IX ii M
-ë É We f« c4 \12l
-E Dispositions spéciales 10
-De. 79 Dan
 3 su Toutes les dépenses des comités électoraux seront payées
 ci: par les communes ; le prix des bulletins de vote et toutes
 pe _ les dépenses des comités électoraux centraux sont payés
 Mic sur le budget de l'état. st:
 <RR Les comités centraux et les comités électoraux ont lafran
-A : LAURE
-5 chise postale. fi
-à ARE:
 1148 Si un jour fixé dans cette loi tombe un jour férié, les dis- Le
 1 positions de la loi s'appliqueront au premier jour nonférié
 14 qui suivra. b De:
-\1:2108 VENU.
-Ed LH
-FACON + ti Au Hit n
 ÿ nu TR rl J PT A dé àrE + 8 14 41 é Le TON na TRUE
 
 ii Sc Gta EAN TIARE Te PA NT UE hf faute did ou L FA
-4 SU r} id L :
-NOTES
 (1) La Loi organique de la Diète du 3/20 juillet 1906 stipule que
 le mandat de député à la diète dure en principe trois ans; celle-ci
 est donc renouvelée intégralement tous les trois ans. Le souverain
@@ -1603,7 +1170,6 @@ a pourtant le droit de dissolution, défini par la loi (articles 3 et
 18). Mais il doit prescrire en même temps de nouvelles élections
 (voir article 37 de la loi électorale) ; la nouvelle diète se réunit au
 plus tard 90 jours après la dissolution de la précédente, et ses
-pouvoirs durent trois ans, sauf nouvelle dissolution.
 (2) Le « magistrat », composé du bourgmestre et des échevins,
 est l'autorité administrative et judiciaire de la ville. Ses fonctions
 sont plus étendues que celles du maire et des adjoints. La com- g
@@ -1615,54 +1181,20 @@ peut être libéré de cette charge à moins qu'il n'invoque une excuse
 légale ou une autre raison approuvée par la diète. » C'est ce qui
 explique qu'on lui demande son acceptation avant l'élection, ou
 DA avant de le proclamer élu (article 66 de la loi électorale). :
-+
-À Ê
 
-1 HN nn QU
-ie A anis FAN Ho Al
-Dr ‘ \ £ Ar LEA ft
 PRÈS Ep PAM UT LR ART sa
-10% ÿ SR PAC AL Ne
-‘1 A TNS TRI NE ASS
-TS DER SP UT
-: 14 HAS 1 ET ei
-:_ ri ÿ ‘ FA PAM SPAS
-D: + | ANNEES
-LE ; Ê j PAU UE (ALT PAS
-‘A l FRNEUN MANS NE
 (CR) (L MÉAUE tee AP peu”
-lis Se and pd Lo ue PIS Lies DO ES ANS
 
-4 À a:
-5 REPRESENTATION PROPORTIONNELLE L
-‘4 DANS LE *
-À GRAND-DUCHE DE FINLANDE "à
 de Cercles électoraux LE
-is V0
 ‘à Ce qui frappe quand on étudie les divisions électo- "1e
 | rales fixées par la loi, c'est leur grandeur. s.
 k La répartition des sièges entre les cercles a donné  :
 les résultats suivants : (1) n. Fa
-h Li Cercles Sièges e (a
-D: LICE RPM FERRER SRE 14
 A RAD ANA SR Ua et 2 AR
-\ À ‘ 528)
-3 DAARDENQrd EE Re NC 0 27 Fe
 be DURANASLE US QUE 14e aceee OUTT De
-14 0 Lavastehus-Nord. 4.2.1..." hi
-M GAMIDONMQUEST St PE 0 8 ES
-K: 52 Var ENT ARRRERRRRENES d +10
-\ DRSRIDU MICRO AS hein tue sean LT DR
-Er: M nOpioOuegt. 00 T1 18 14
-54 10. Kuopio-Est ......................... II AA
 hi LE GIE NN ESS SERPENT REREET ENCEER à di!
 R D AMAR D ee LR Mi nya Ni
-fÙ CL VINS 0 te RSS EN SRE PANNE "A
-FN RDA DATES ES uit ue.Ceditis es sectes (1 13 18
-4 AUDE DORENONd: 471... iii 6 : TE
-n RAR OR AEN  hrins seen 1 En
 h (à) Décret du 17 décembre 1906. à
-: re His. is ‘\ eà
 
 Ex | de la représentation proportionnelle
 Nous sommes loin des chiffres de 4 à 6 députés à
@@ -1679,15 +1211,10 @@ k parties de la sorte : ,
 | A 500, À 520, B 330, B 220, C 180, C 460... Î
 
 et que les limites des cercles électoraux soient ainsi |
-à tracées : ÿ À !
-fi … | A 500, À 520, B 330 | B 220, C 180, C 460 | …; h
 fi d'après le système français, B n'aura aucun représen- D.
 tant; au contraire ce sera C, si les limites deviennent 4
-de … | A 500, À 520 | B 330, B 220, C 180 | C 460... |
-1 sa « ô AE 4
 
 ; Si l'on veut assurer à toutes les fractions de l'opinion (à
-; . ' . CPS 2 É
 re une représentation équitable, il‘faut donc opérer avec É
 
 ie de grands chiffres, spécialement avec un grand nombre 11
@@ -1703,12 +1230,6 @@ be un parti comme représenté, que quelques fractions de \
 ÿ ce parti aient dans quelques cercles électoraux enlevé à
 
 : quelques mandats. Il faut que tous les groupes de ce 4
-
-“es x
-
-re 50 : ut
-
-; nl
 
 M 4 À JU PES AR A oi et
 
@@ -1738,7 +1259,6 @@ qu'elle puisse être représentée dans la proportion exacte
 . de sa force, il faut un cercle élisant 12 + 41 — 53 sièges.
 Toute réduction du nombre des sièges nuira dans la
 plupart des cas aux minorités prises en bloc, et toujours
-à quelques-unes.
 
 Il ne suffirait donc pas, si on voulait établir en France
 
@@ -1748,11 +1268,8 @@ de faire de chaque département un cercle électoral,
 5o mandats, le Nord avec ses 23 sièges, le Pas-de-Calais
 avec 16 seraient infiniment plus favorisés que la plu-
 
-‘ Ha
-
 41H de la représentation proportionnelle
 part des départements ruraux avec 3 à 6 députés. (à) IL
-US . ST
 ne sert à rien de dire que le nombre des partis n'est pas
 très considérable en France. D'abord ce n'est pas vrai:
 on voit souvent aux élections plusieurs candidats ,
@@ -1769,10 +1286,8 @@ parti se scinderait souvent en autant de fractions qu'il y
 a de nuances réellement existantes.
 | On peut donc, pour un pays comme la France, poser
 comme exigence minima : 1° que les cercles électoraux °
-+ . . . . 4
 ne comprennent jamais moins de quinze mandats, et
 | que par suite on réunisse en un même cercle trois ou |
-quatre petits départements; (2) |
 
 2° que les départements qui ont un nombre de députés *
 
@@ -1791,10 +1306,6 @@ des directions de parti). ‘
 (2) Les colonies sont des exceptions insignifiantes; encore peut- l
 on réunir celles qui sont voisines : l'Inde, les Antilles, l'Algérie
 peuvent former chacune un groupe. {
-
-52 À
-Ù
-“ vw RAR ti
 
 jh DANS LE GRAND-DUCHÉ DE FINLANDE
 \ entrer de minorités. Or il y a des minorités infimes et
@@ -1828,9 +1339,6 @@ préoccupations professionnelles ou idéales.
 C'était le plan primitivement proposé par M. von
 Wendt dans ses articles de journaux. Cependant ce
 
-À 53
-
-US pes DEN NE AE U IU ANT ORAN AA ON ER TNT A TT NN RP ONE C
 de la représentation proportionnelle ii 1
 
 projet était difficilement réalisable en Finlande. Le pays 4
@@ -1842,7 +1350,6 @@ cile que dans les autres; les régions moins peuplées se- |
 : raient proportionnellement moins représentées que les
 autres. Il est donc nécessaire de leur assurer une repré-
 sentation en attribuant à des régions déterminées des 4
-mandats déterminés. :
 Mais cette objection n'a plus de sens dans un pays
 comme la France, où la densité de population est plus 1
 | uniforme, et où les distances à parcourir pour aller
@@ -1864,11 +1371,8 @@ fixe, et le reste serait distribué entre les différents cer- 1
 de voter hors de leur cercle géographique, toutes les \
 ê exigences idéales seraient satisfaites. Nous reviendrons L
 | plus loin sur ce dernier point. NUE
-M: 54 ÿ
 
-LL
 | / DANS LE GRAND-DUCHÉ DE FINLANDE
-Comités électoraux
 Il est à peine besoin d'insister sur ces institutions. 1
 La représentation proportionnelle exige pour chaque
 cercle électoral une autorité chargée des calculs qu'implique le dépouillement du scrutin. Il suffit que le recrutement de cette autorité garantisse son impartialité,
@@ -1877,8 +1381,6 @@ u Dans le cas envisagé plus haut d'une répartition de
 mandats mobiles, il faut naturellement, outre les
 | comités de cercles, un comité central recueillant l'ensemble des données du scrutin pour procéder à la
 répartition. De mème si le pays ne forme qu'un seul ñ
-cercle.
-Groupements d'électeurs
 et listes de candidats
 | Le système idéal de représentation proportionnelle
 serait évidemment celui-ci. Étant donnés la population
@@ -1904,7 +1406,6 @@ Mais le scrutin de liste pur a deux inconvénients principaux : 1° l'électeur 
 élus; et à
 2° on ne peut attendre de lui qu'il connaisse tous les
 . candidats, surtout si la liste est longue; il est obligé de
-voter au hasard.
 mr C'est la direction du parti, un comité souvent inconnu
 de l'électeur, qui décide et du choix des candidats et de ,
 leur place; cette direction à ainsi un pouvoir despotique. Plus la liste est longue, plus lés dangers de cette
@@ -1919,11 +1420,7 @@ le système des alliances de listes. De même que linstitution de la liste a pou
 en auraient besoin, l'alliance des listes permet aux élec- |
 teurs d'une liste de reporter leurs voix en excédent sur ÿ
 des listes concurrentes mais non rivales, et qu'ils estiment pouvoir appuyer à l'occasion. — Un des principaux
-56 à
-r |
-h
 
-si di vi marne Fe gi cut “old: be.
 da DANS LE GRAND-DUCHÉ DE FINLANDE TER
 Ne À avantages de ce système est qu'il permet de faire des ‘4
 listes plus petites sans nuire à aucun parti, puisque le l 6
@@ -1932,7 +1429,6 @@ Le système le plus remarquable dans ce genre est 13
 celui proposé par Siegfried lors de la réforme constitu- Fe
 _ tionnelle en Wurtemberg. (1) Ce projet, dont le seul
 | défaut est le trop de complication, a servi de base au “+0
-4 système finlandais. +00
 # D'après la loi électorale finlandaise, les électeurs M 1
 peuvent se grouper, au nombre de cinquante au moins, 1
 n dresser et présenter une liste de trois candidats ; cette à “+
@@ -1951,17 +1447,11 @@ auront peu à peu pour effet de décentraliser la direction 11
 _ des partis. Les nuances d'opinion qui naissent à l'inté- "44
 il rieur d'un parti peuvent se donner libre carrière sans D:
 # _ troubler le parti, mais sans que la direction les étouffe 18
-arbitrairement. ‘ Ke
 4 . Mais on est en droit d'en attendre un effet autrement di
 important : la dissolution même des partis politiques. CE
 _ Chaque union d'électeurs est autorisée à mettre en tête 4
-F fi () Siegfried. Die Proportionalwahl. Berlin, deuxième édition, 1898. ; : T0
 Le à Les
-* T3 bu, 7e LÀ ” Pr FA
-AE Le dr. | " TE? L
 
-D
-gts Men NN
 de la représentation proportionnelle 1
 de sa liste l'indication de ses tendances générales ou
 
@@ -1974,7 +1464,6 @@ ou la tendance n'a pas besoin d'être empruntée à un
 
 \ parti politique, mais peut désigner ou des intérêts très
 généraux, ou des intérêts particuliers, matériels ou |
-autres.
 Or, dès qu'on se groupe autour d'intérêts matériels, |
 
 les idéologies plus ou moins abstraites qui constituent |
@@ -2010,7 +1499,6 @@ les aflinités entre électeurs ne peuvent donc rester tou- É
 jours les mêmes, et doivent pouvoir se traduire en unions 1
 
 | différentes autour de candidats différents. Le même 1
-0 58 (
 
 et homme qui convient à tel programme n'est pas toujours ‘121
 le meilleur pour tel autre; et le système électoral doit 110
@@ -2042,16 +1530,13 @@ fonction se crée un organe, il est permis d'espérer que, a, :
 inversement, l'organe pourra susciter la fonction, Qu'on ii
 applique ce système; la logique de son fonctionnement 0
 sn. amènera les électeurs à se grouper au mieux de leurs “4
-intérêts. he,
 \ Ainsi qu'en peut le voir en lisant le texte de la loi, de:
-LM EVER é |. pal etes ti
 
 Ê de la représentation proportionnelle L
 celle-ci laisse à l'électeur toute la liberté désirable.
 Celui-ci peut choisir sa liste; s'il n'en approuve aucune,
 il peut voter pour trois noms isolés. Pour se déterminer
 dans son choix, il lui suffit de se rendre clairement
-compte :
 
 ; 1° Qu'en votant pour une des listes proposées, il sou-
 
@@ -2095,7 +1580,6 @@ prend les résultats pour base dans la confection des 4
 listes de candidats (sinon on s'exposerait à la défection ;
 d'un grand nombre d'électeurs). Les nuances de parti
 
-PATENT, AR k ie F
 | DANS LE GRAND-DUCHÉ DE FINLANDE 15 st,
 et les désirs des électeurs trouvent avant la période ( Fr
 _ électorale uné occasion de se manifester, et ne sau- ‘ re
@@ -2127,8 +1611,6 @@ _pas de droit à un privilège électoral. L'électeur finlan- M:
 dais, où qu'il soit, ne dispose que de 3 voix. Il subsiste, * 4
 il est vrai, l'inégalité des cercles; mais elle est inévi- 15
 table si on ne recourt pas à la ressource du cercle ) "4
-4 : "
-À Gt Jean Deck. — 4 d ‘4
 
 | M di
 | à PCs
@@ -2158,10 +1640,7 @@ serve son droit de suffrage. Il lui suffira de se faire
 délivrer une carte d'électeur et de la présenter le jour f
 ; du scrutin, en quelque lieu qu'il aïlle voter. Rien ne w
 s'oppose à l'introduction en France d'une semblable dis- \
-Li
-ST NOR NN :
 
-DANS LE GRAND-DUCHÉ DE, FINLANDE 1528
 3 position, quoique la commission de la Chambre ne 5
 _ paraisse pas s'en être souciée. Pas
 Mais on peut aller plus loin, et résoudre le problème 4
@@ -2192,9 +1671,6 @@ des partis permanents. vw
 4 (1) M. von Wendt propose qu'en pareil cas l'électeur se procure ù
 . lui-même par l'intermédiaire de la poste le bulletin nécessaire. Le ne
 … système indiqué ci-dessus paraît aussi simple. 2
-î L "3 r'aù
-A! 1] (1
-‘ST l ,
 
 de la représentation proportionnelle |
 A vrai dire cette disposition n'aurait pas de sens
@@ -2206,9 +1682,7 @@ de ce système. Dans ce cas, la combinaison ci-dessus
 A émis pour te! cercle électoral, et cet accroissement amè-
 (a nerait une augmentation correspondante du nombre de
 ses représentants, à la faveur duquel le candidat ainsi
-poussé serait élu.
 Calcul des voix
-L2
 Le Le calcul des voix échues aux candidats, le classe- +.
 ment de ceux-ci et la répartition des sièges se font
 n d'après des principes dérivant tous d'une même règle, :
@@ -2225,24 +1699,11 @@ suffrages la totalité, la moitié, le tiers, etc. Les chiffres
 
 Ÿ ainsi obtenus sont rangés par ordre de grandeur décrois- ,
 sante, et les n sièges à pourvoir sont affectés aux n
-_ premiers nombres.
 Supposons donc un cercle élisant 7 députés et 3 partis |
 ! présentant 7 candidats chacun. Le parti A réunit :
-, 64 l
 
-ik di RUE
-: DANS LE GRAND-DUCHÉ DE FINLANDE
 4.200 suffrages, le parti B 6.000 et le parti C 2.800.
 En opérant les divisions indiquées, on. forme les
-3 séries :
-A B CG
-Me sn à 4.200 (2) 6.000 (1) 2.800 (4)
-DAS te 2.100 (5) 3.000 (3) 1.400
-IS ENSATO REA 1.400 2.000 (6) 933 1/;
-Die ele 1.050 1.900 (7) 700
-CARE 840 1.200 560
-NÉE 700 1.000 466 ?/;
-LE RTANERS rs 600 859 1/- 400
 
 Comme on le voit, le parti B obtient 4 sièges, À en a
 2 et C 1. S'il y avait 8 sièges, A et C arrivant ex æquo,
@@ -2281,7 +1742,6 @@ k en les suivant attentivement; d'autre part je ferai
 remarquer que ces longs calculs, inséparables de toute
 représentation proportionnelle, sont faits par des
 comités spéciaux, et que l'électeur na point à s'en
-occuper.
 : On a soulevé, il est vrai, l'objection que, dans ces
 : conditions, l'électeur ne peut contrôler la scrutation. *
 à Cette objection n'a aucun sens. Le scrutin tel qu'il est 1
@@ -2297,9 +1757,7 @@ lement dans des conditions telles que les calculs peuvent être refaits à tout 
 ; maximum de garanties.
 Il y a en présence sur les bulletins de vote: des
 unions d'électeurs avec des listes isolées, des alliances l
-66 J
 
-ERA | DANS LE GRAND-DUCHÉ DE FINLANDE “1
 | _ avec des listes groupées, et des candidats isolés inscrits "1
 | sur l'espace laissé en blanc. De ces candidats, certains ; e
 peuvent être communs à deux ou plusieurs de ces eh
@@ -2332,13 +1790,7 @@ tres listes, la loi finlandaise n'attribue plus au candidat Ja
 son chiffre de voix. Il faut en effet considérer le calcul D
 1 _ du chiffre de voix comme une sorte de vote préliminaire \4l
 institué entre les partisans de la liste pour déterminer En
-( y
-LS 69 | e
-‘a \ : ? {
-F0 RS.
-ui AN à LL: ir, MAS
 
-A a OR PRESS SR A A LR Le CuttouN
 Hat de la représentation proportionnelle
 si l'ordre des candidats proposé par l'union d'électeurs
 ; est bien celui qu'adopte le parti. Maïs on ne peut mé-
@@ -2349,7 +1801,6 @@ suflrages qui doit servir de base : sinon, on ferait pâtir
 { l'union qui les propose, et on avantagerait injustement
 les candidats dont l'union aurait, plus ou moins acci-
 + dentellement, rencontré la résultante des opinions des
-électeurs. ;
 Pour déterminer le rang des candidats par rapport à
 ceux d'autres listes, on part donc de la totalité des suffrages recueillis par la liste ; conformément à la règle
 générale, le premier candidat a pour symbole ce chiffre,
@@ -2366,11 +1817,8 @@ il concurrence de cette alliance avec d'autres alliances ou
 3h chiffres. La loi finlandaise, en limitant les listes, oblige
 | les partis à se scinder. Les partis forts seraient done
 Jin lésés, ne pouvant déployer toute leur force. Le total des
-ÿ '
 18 (1) On remarquera que, pour une même liste, la somme des |
 ko chiffres de voix des trois candidats et celle de leurs chiffres de com1 1 paraison sont égales. :
-‘15 68 |
-ñ d:
 
 si | DANS LE GRAND-DUCHÉ DE FINLANDE 0
 # | suffrages accordés aux diverses listes de l'alliance peut Ne:
@@ -2409,10 +1857,8 @@ de la représentation proportionnelle
 tion concrète des règles citées "plus haut, nous nous
 contenterons à moins de frais.
 Soit donc un cercle élisant 9 députés. Il y a en pré-
-sence : ;
 1° Une alliance électorale (parti A) comprenant 3 unions
 HIER A;, A+, A>, dont les listes de candidats sont respectivement
-À Aa, Ab, Ac; Ad, Ae, Af; Ag, Ah, Ai;
 Ç °° Une alliance B avec 2 listes d'unions B, et B;. Candidats : Ba, Bb, Bc et Bd, Be, Bf; 4
 | 3 Une alliance C avec 2 listes : Ca, Cb, Cc et Cd, Ce, Cf;
 1 {4° Une union isolée D avec les candidats Da, Db, Dec;
@@ -2421,20 +1867,9 @@ La liste A, a 2.200 suffrages; 1.600 conservent l'ordre
 } proposé; 45o adoptent Ab, Aa, Ac et 150 Ab, Ac, Aa. k,
 Les voix acquises par chacun seront donc :
 50 150
-Pour Aa : 1.600 + EE + done 1.879
-Ÿ 1.600 \
-LUS Pour A6 : Man + 450 + 150 — 1.600
-\ “
-ÿ 1.600 450 150
 Pour Ac nn ent Rens
-ourAc Eee 78 1/3
 Les trois candidats conservent leur rang, et on a :
 Chiffre de voix Candidat Chiffre de comparaison
-1.895 Aa 2.200 *
-l 1.400 Ab 1.100 |
-( 958 1/2 Ac 933 1/3 |
-à 4.033 1/3 4.033 1J
-AA ; RP AE |
 
 14 h La liste A, a 1.800 suffrages, dont aucun ne change
 ï l'ordre des noms. On a donc comme chiffre de voix et ‘4
@@ -2444,66 +1879,32 @@ i La liste À, a 3.500 suffrages. Admettons que, dans le D:
 calcul des voix, le chiffre de voix de Ah soit inférieuràa
 celui de Ai. L'ordre et les chiffres de comparaison /2
 _ seront alors : ! 54
-: Ag 3500, Ai 170, Ah 1.166}. ‘%
-M $ LE
-L'alliance A a réuni en tout 2.200 + 1.800 + 3.500 4
 _ —7.500 suffrages. Les chiffres de comparaison pri- ‘2
 | À . . . . de:
 maires, indiqués ci-dessus, permettent le classement 1
 _ des candidats. En suivant la règle indiquée pour les ‘1
 _ chiffres de comparaison que j'ai appelés secondaires, Le
 ti on voit que la liste devient : 0
-sl Chiffre primaire Candidat Chiffre secondaire 0
-4 2,200 2 Aa 3.950 Je
-‘ 1.800 3 Ad 3.500 ‘h
-px 1.950 4 Ai 1.875 à
-‘ ” 1.166 1/4 5 Ah 1.500 ‘€
-8 1.100 6 Ab 1.250 1
-4 900 NCA 1.071 5/; ‘00
-‘0 933 !Js 8 Ac 937 !/2 M:
-‘ie 600 9 Af 833 1/5 A
 La liste B a 4.950 suflrages; malgré des changements Ÿ
 _ isolés, l'ordre des candidats subsiste. La liste B, a 4
 * 1900 bulletins, et les changements de classement
-AE “u
-4% 1 J
 
 d de la représentation proportionnelle ARC
 oc donnent comme résultat que Be passe avant Bd :
 | ordre Be, Bd, Bf. Le classement dans l'alliance B à
-AL devient :
 | j ; Chiffre primaire Candidat Chiffre secondaire
-te 4.950 1 Ba 6.850
-4 2.475 > Bb 3.425.
-Aer 1.900 3Be 2.283 1/ »
-
-Fa 1.650 4 Be 1.912 1}
-AU 950 5 Bd 1.390
-A 633 1}; 6 Bf 1.141 ?/4
 
 Î Les deux listes de l'alliance C ont respectivement :
 LA C, 2.750, et C, 1.450 voix; l'ordre des candidats dans
 les listes n'est pas changé. On a alors pour lalliance :
 
-F *
-: à Chiffre primaire Candidat Chiffre secondaire Ê
-{ 1 ï 2.750 1, Ca 4.200 À
-al 1.450 2 Cd 2,100 1
-( 1.375 311Gb 1.400
-725 4. Ce 1.050 ;
-tte “ 916 2}; CC 84o ,
-1) 483 1e 6 cf 700
 . La liste D a 3.100 suffrages; l'ordre des candidats 4
 F n'est pas modifié. Les chiffres de comparaison sont donc: ä
-1 Da 3.100, Db 1.550, De 1.033 1/3. 4
 1 La liste E a 1.500 suffrages; Æc passe avant, Æb. il
 Chiffres de comparaison : 1
-"re Ea 1.500, Ec 550, Eb 5oo. À
 \ 1 Supposons en outre des candidats isolés, dont les L
 Îk chiffres de voix sont en même temps chiffres de com
 # paraison : ;
-1" ; F avec 312, G 44e, H 207... on.
-A { sm U ‘4
 # nr
 
 nil DANS LE GRAND-DUCHÉ DE FINLANDE
@@ -2524,7 +1925,6 @@ ces symboles par des noms différents (chiffre de voix
 et chiffre de comparaison) ; aux autres degrés ils ont le
 même nom. Si l'on a présente à l'esprit cette distinction, la scrutation devient très facile à saisir.
 | les Candidatures communes
-À
 Le problème des candidatures communes est un de
 
 ceux qui se posent naturellement dans les systèmes de
@@ -2536,13 +1936,10 @@ Il se trouve ou peut toujours se trouver dans une
 … société donnée des personnes d'un mérite assez éminent
 …. pour que plusieurs partis désirent avoir leur concours.
 _ Le cas se présentera certainement souvent dans des
-organisations analogues au système finlandais :
 
 1° des listes, alliées, fragments d'un parti, peuvent
 
 ; désirer présenter un candidat commun. Ce désir n'a
-4 73 Jean Deck. — 5
-L.
 
 EE de la représentation proportion: elle ER
 Wie rien que de un du moment que, par le système
@@ -2584,8 +1981,6 @@ hd qu'à les accentuer. Et si on admet, comme nous l'avons : 4
 pui! : portée par plusieurs groupements qui représentent ce- 4
 a pendant des partis politiques. ‘1
 ï L'un des graves défauts de la loi belge par exemple 1
-' « 4
-Mn + à LA LL Pat AU
 
 | DANS LE GRAND-D UCHÉ 1 DE FINLANDE g a VF
 sd de ne pas admettre le cas de ces candidatures com- “50
@@ -2616,10 +2011,7 @@ pe sons que, dans l'exemple cité plus haut, les candidats hi
 _Bc et Be de l'alliance B soient une seule et même per- si
 sonne. Dans le classement, ce candidat aura pour Le
 _ chiffre primaire la somme des chiffres de'Be et Be, . s:
-Soit 1.650 +- 1.900 — 3.550. I1 passe donc avant Bb qui À
-n'a que 2.475. He
 … Lorsqu'un candidat est commun à plusieurs groupes d
-:14 75 “}
 
 de la représentation proportionnelle
 de voix non alliés, on additionne de même les chiffres
@@ -2634,7 +2026,6 @@ de grandeur décroissante des chiffres de comparaison,
 la liste des candidats et proclame le résultat.
 Supposons donc que le candidat Bd de l'alliance B
 soit le même que Db de la liste D. Son chiffre de comparaison définitif sera Lu
-\ Bd + Db — 1.370 + 1.550 = 2.920.
 Une seule prescription reste à expliquer : c'est celle
 de Particle 61 qui fixe un maximum au chiffre de comparaison de troisième ordre. Elle a pour objet de pré-
 venir des manœuvres électorales, dont un exemple montrera la possibilité et le sens. |
@@ -2643,25 +2034,20 @@ Be, et qui est devenu le deuxième candidat de l'alliance
 B avec le chiffre secondaire 3.425) soit le même que Da
 de l'alliance D. D'après l'article 60, il aurait pour chiffre |
 de comparaison définitif À
-Be + Da — 3.425 + 3.100 — 6.595.
 (1) Un candidat peut donc avoir successivement, au cours de la |
 serutation, un chiffre de voix et trois chiffres de comparaison :un
 L dans la liste, un dans l'alliance, un dans le cercle électoral.
 
 | H\yro SA LE NES a a pe: ' ' RON Le
-il UK, 5 We Aa D FLE, jé N : 4:
 Ne, ee NS LE GRAND-DUCHÉ DE FINLANDE +10
-DT AT PUR) EV % ' a
 7 _ Or, si Bet D formaient une alliance avec 6.850 + 3.100 L x i
 _ —9.950 suffrages, le candidat Be (Da), avec le chiffre :
 Le de comparaison primaire 6.525 y occuperait le deuxième 2:
 # rang, Ba étant au premier rang avec 6.850. Leurs chiffres ‘4
 _ de comparaison secondaires, avec lesquels ils concour- he
 #% raient définitivement, seraient pour Ba 9.950, et pour cn:
-Be %% 4975, chifre inférieur à 6.525.
 _ C'est cette possibilité de maquignonnages que l'ar- à
 _  ticle 61 a supprimée. Le candidat Be n'aurait pour chiffre 44
-4 définitif que 4.975. ' “
 _ Outre les cas envisagés ici, la position de candida- a
 _ tures communes peut servir à effectuer des manœuvres h :
 _ électorales que nous étudions plus loin. 3
@@ -2669,9 +2055,7 @@ _  Telle,est la solution donnée par la loi finlandaise au LÀ
 _ problème; c'est celle que, dans son projet primitif, À
 _ M. von Wendt avait indiquée. Cependant, comme il le En
 _ fait maintenant remarquer, on peut en concevoir une À
-:;A0TE : x #
 _ autre peut-être meilleure, (pour le cas des candidats ci
-‘| communs aux listes non alliées). Puisque, en définitive, 134
 on les sort des groupes où ils figurent, il est plus simple Ne
 1 d e ne pas même les y faire entrer. Au lieu d'additionner ni
 _ leurs chiffres de comparaison, on prendrait simplement ‘AR
@@ -2682,13 +2066,9 @@ _que les candidats communs, en général, n'occupent pas D:
 Fi es premières places; et les thiflres de voix de ces can- _X
 “ didats, dans la pratique, seront toujours assez voisins EE:
 des chiffres de comparaison. { k » Une seule exception doit être faite à la règle. Dans le Pal
-M: D &
 cas de candidatures communes, il y a toujours un parti ‘à
 qui doit être considéré comme celui auquel le candidat “1
-s du Cr 1
-TR Là ji, MAIRE
 
-D AT NE ANNE a
 de la représentation proportionnelle  * |
 est le plus attaché. Ce parti est celui où le chiffre de
 comparaison du candidat est le plus en excès sur son
@@ -2718,16 +2098,12 @@ Ki place dans les opérations de scrutation, qui sont faites
 É} par des techniciens. Le rôle de l'électeur est au contraire
 ' simple : il va chercher, dans l'alliance de son parti, la
 “ | liste qui lui plaît le plus, la marque, change, s'il le veut, !
-TE (TL M pt) PASSER
 
 |
-
-JAM AN st ES }
 
 | DANS LE GRAND-DUCHÉ DE FINLANDE
 
 .. l'ordre des noms et dépose son bulletin : son rôle est
-fini.
 
 Dans le projet français la scrutation et l'aspect des
 listes sont simples; mais l'électeur hérite de la complication inévitable, dès qu'il veut s'affranchir des pures
@@ -2753,11 +2129,6 @@ sait qu'il ne saura user avec discernement, et dont le
 sorte que, ces candidats une fois élus, celui qui les
 suit sur la liste passe aussi grâce à l'excédent de voix,
 tout en ne recueillant lui-même qu'un nombre de suffrages ridiculement petit. On aura alors une caricature
-d'élection.
-( 29
-cu !
-i
-Lh. |
 
 de la représentation proportionnelle
 En fait le projet français enlève à l'électeur sa voix
@@ -2786,7 +2157,6 @@ franchissable, il y a un intérêt de premier ordre à Ÿ
 : s'orienter pour savoir les noms qui ont les plus grandes É
 à chances de succès. Les nuances ressortent d''elles- Û
 mêmes, puisqu'on va au-devant d'elles.
-80 i
 
 A jt 7 Dans LE GRAND-DUCHÉ DE FINLANDE * is
 ‘4 = 2 Les combinaisons de noms, sauf la réserve ci- 144
@@ -2799,7 +2169,6 @@ pas de place pour une pression du comité central. +
 È * a montré Cine ac renâcle HAT, Lane il en K.
 È a le Heu et qu'on est alors obligé de tenir compte Eu
 À de lui. ÿ À:
-« +. 1EA
 4 Glassement définitif des candidats à
 1 Revenons à l'exemple de scrutin étudié plus haut. ‘30
 Supposons que, dans l'alliance A, Ae et Ab, Ah et Af 1
@@ -2809,54 +2178,33 @@ F est le même que Ab. Enfin, parmi les candidats isolés, 254
 _ Fest le même que Ca, H le même que Bb. ‘4
 ! _ Le classement des alliances se modifie. Dans Pal 1
 _  liance A, 4e et Af disparaissent. Ah a pour chiffre pri- Mi
-_  maire1.166!/, + 600 — 1.766!/,; Ab a 1.100 —- 900 —2.000. 54
 " ï Les chiffres secondaires ne changent pas de valeur, LE:
 _ mais de titulaires. Ab est devenu 3° et a 2.500; Ad est 4
-{ à 4°, Ah reste 5°, Ai tombe au 6° rang avec 1.250. — Dans 58
 _ l'alliance B, Be disparaît, et Be passe au second rang 1
 143 avec le chiffre primaire 3.550 et le chiffre secondaire 4
 3.425, tandis que Bb prend le chiffre secondaire 2.283 ‘/,; Le
 Bd devient 4° et a le chiffre secondaire 1.712 ‘/,. 3
 ‘4 _ Les candidats communs à une alliance et à une liste 4
-vi ‘+
-Bo: 8x Jun Deck. — 6. RS
 
 x -de la représentation proportionnelle di.
 1 isolée, ete., sont séparés des autres. Pour ces candidats,
 } les chiffres de comparaison deviennent ape e
-‘UE Ab (+ Ec) 2500 + 750 — 3,250
-; Bd (+ Db) 1.712 1/, + 1.550 — 3.262 1};
-i Ca (+ F ) 4.200 É W8T2 —=W:o12
-: Bb (+ H ) 2.2831/; + 207 — 2.490 l/; |
 til Le classement général des candidats, en combiil _ nant les résultats de la page 91 avec ceux de ce: |
-% chapitre : ;
-hi 1 Ag 9.500! 4 Aa 3.750 7 Ab 3.250 |
-è 2 Ba 6.850 5 Be 3.425 + 8 Da 3.100 à
-ne 3 Ca 4.512 6 Bd 3.262 1e 9 Bb 2.490 !/; ;
 de L'alliance À a trois sièges, B quatre, C et D un cha- |
 pa cune, E n'a pas de siège en propre, mais Ab est
 aussi son représentant, de même que Bd est aussi
 À - celui de D. 4
 To S'il n'y avait pas eu de candidats communs, le résultat
-" aurait été : 1
-ni 1 Ag 9.500 . 4 Aa 3.750 7 Be 2.283 1/, j
-“35h 2 Ba 6.850 5 Da 3.100 8 Cd 2.100 14
-11 3 Ca 4.200 6 Ad 2.500 9 Ai 1.875 K
 4 soit pour À quatre sièges, pour B deux, pour C deux et 1
 fi pour D un. Trois candidats seraient différents. !}
 4 » Les dispositions prises pour le remplacement de dé- dl
 k putés sortant avant la fin de la législature n'ont pas ‘4
-i Ni:
 à besoin de commentaires. C'est ainsi que le suppléant de ‘4
 +4 . Ag sera, non Ah, mais Ac qui sur la liste A, est placé 4
 D avant lui; le suppléant de Ab sera pris dans la liste À, : à
 k, à ce sera donc Ac, et ainsi de suite. “À
-ÿ 4 82 !
-Ne ji 21480
-he | di
 
 | DANS LE GRAND-DUCHÉ DE FINLANDE
-Manœuvres électorales , |
 Le meilleur des systèmes élecioraux est évidemment |
 celui qui, non seulement permet à toutes les opinions
 . d'êtrèreprésentées, mais encore empêche les manœuvres
@@ -2882,14 +2230,9 @@ celle-ci : ces manœuvres seront-elles aïisées, et par
 À 1° Un parti cherche à en décapiter un autre. Le
 parti A a pour candidats : Aa, Ab èt Ac. Le parti B
 4 83
-af à ; ,
-VER PATR
 
 de la représentation proportionnelle EUR
 désigne Ba, Ab et Bc. Supposons que A aït 2.700 suffrages, B 3.000. On aurait alors : &
-L 1 Aa 2.700 Ba 3.000
-Ab 1.350 Ab 1.500
-Ac 900 Bec 1.000
 
 Ab obtient 2.850 voix et passe avant Aa;
 
@@ -2898,9 +2241,6 @@ candidat commun pour obtenir une place de plus. Supposons un parti À comptant s
 en deux listes alliées Aa, Ab, Ac et Ad, Ab, Ae, obte-
 
 | nant chacune la moitié des suffrages du parti, soit : ‘
-Aa et Ad 6.000
-Ab 3.000 x 2
-Ac et Ae 3.000
 
 Aa, Ab et Ad ont donc chacun 6.000 voix; si l'un |
 d'eux est élu, tous les trois le sont.
@@ -2921,22 +2261,17 @@ nœuvre à échoué, et B a perdu 1.500 suffrages qui pou- 4
 
 L vaient s'employer mieux. — Dans le second cas, suppo- \
 sons que le quotient s'élève à 6.050 voix : le parti A ï
-54 r
 
-CU La AR NS SNA RTE RER SENS FMTIPA Fe AE fe ANIEEE
-DANS LE GRAND-DUCHÉ DE FINLANDE
 _ n'aura aucun représentant, au lieu qu'il était sûr d'en 1
 avoir un ef restant honnête. 3
 Or il faut se rappeler que les cercles électoraux fin- ne:
 landais sont très grands. Il est en fait impossible d'éva- a:
-CU
 luer les forces des adversaires et les siennes proprés à ù
 une centaine de voix près, et encore plus de calculer le #
 quotient d'élection avec cette précision; car ce quotient di
 dépend du nombre total des votants, qui variera d'une Aa
 élection à l'autre, et que des circonstances imprévues, 1
 par exemple les conditions météorologiques lors du 20
-. 0 . . F
 scrutin, peuvent faire varier de 10 0/0 au moins. Et une A:
 variation de 10.000 unités dans le total des suffrages 14
 émis fait varier le quotient de quelques centaines de Le
@@ -2948,50 +2283,23 @@ de plus que son dû. — On peut donc considérer que les N
 manœuvres indiquées ci-dessus n'ont qu'un intérêt théo- nie
 rique; il est peu probable qu'on essaie jamais dé les ; 44
 | mettre en pratique. À ce titre, la loi finlandaise offre de .}
-. r . T4 . a
 précieuses garanties pour la sincérité des élections. A .
 
-£ L + M TA
-4 #7, ! J
-VA” g (n
-; io
-Leu à He:
-PMR \ HA
-ARR Has 6 1 di PARTY r
-
-t RO RNA PEN RME EU ANR ARS Se MALE R AE
-LACS \ à M RO A € SE LA PANNE
-DA R f AE A EN V7 ai Qt A
-DA EU à LU RME
 DA er A CERTES CAR RONEE ar en RAT
-MA { { PP CAT AN CE I
-2 HR i } RAD EN DE de 11
 (1 ORTEN | LM RE ne en Te RAR
 ete Ë TA RE ORNE
-\KÉaU É « Ag nn FA ee a PA RS (1
-: 1660 : X 2f AA ANR LASER LENTILLE
-pe ! " ; ) AR ON DE < 198)
-‘1 FA RME IL RE
-à ‘ NX RNA TA ETS A
 L'ANR À l n \ LUE AER) Are 1 et
-{CV00S f Ÿ id FEU SAT RIM) Li Ron (a
-« Vera Ù ; AU MN ii RO
-+ CU +: LAN) 1 8 Je MAN à
-L'IEES ‘ Ë ; je MARRANT (0) He
 AA #3 où (DA) M ee A eue
 JA : je ; ( PNONS AN AE se i
-: SENS x RRULRS AUUNLE ARE PATATE
 nou É : PAPAS DNNeE NE Le HVARAEN f
 AR ed Ad Lait  je tr Si A (Qi AE tits gi
 
-tE À 0) LUN) AM Suns DX , 1 :
 Il a été tiré de ce cahier douze exemplaires sur
 whatman ainsi distribués : À
 premier exemplaire de souche, exemplaire du gérant;
 deuxième exemplaire de souche, exemplaire de l'administrateur ;
 troisième exemplaire de souche, exemplaire de l'imprimeur ;
 neuf exemplaires d'abonnement, numérotés de 1 à 9
-exemplaires d'abonnement.
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires
@@ -3001,28 +2309,8 @@ pour tous pays.
 * Les Cahiers de la Quinzaine sont composés à la main,
 . en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie succes-
 . Seurs) 21, rue du Montparnasse, à Paris, sixième
-arrondissement.
-}
-(1 a,
-4) F
-LM L
 
-MAAUAE © CA (HA br { ques AN.
-Me € j NA Né ATARI te a HA pot
-- Ai à NM TC PER EE Mn Ja A
-"its u A TARA se te
-10% 5 PAL NA EN à
-1144 ER CEE CON AUTONET
-IT) RS 4e Ë ON AU APTE NM EU TAN RÉ TAL
-11 À { ANA TE Bal Len AN EE 114
-ASE ) | PU LA NL A Ru CE
-RES su ! MINE FAN MATE
-due \ NUAT TANEN MUR U NES NA AN TS
-THE ñ RE { ae NT LUE A AR jo
 LE + k * DA AR tel MAOTARE UE US
-LUN ï RH AR AU PE PIRE nt f
-MORE. 0e # RARE RE EEE PET L
-RATE a Ent A Lt) 0) 1 En eus EN NES
 
 YU à Me savoir ce que sont les Cahiers de la Quinzaine,
 ñ à _ül suffit d'envoyer un mandat de trois francs cinquante ‘à
@@ -3031,60 +2319,35 @@ _ &,rue de la Sorbonne, rez-de-chaussée, Paris, cinquième %
 is _ arrondissement. On recevra en spécimens six cahiers re k,
 mt de la deuxième, de la troisième, de la quatrième, de la *e
 % cinquième, de la sixième ou de la septième série. 1h
-WE » LA: *
 14 Pour savoir ce qui a paru dans les cinq premières en.
-LES | JR
 Ki séries des cahiers, 1900-1904, envoyer un mandat de
 at cinq francs à M. André Bourgeois, même adresse; on er
-Es : à 0:
 recevra en retour le catalogue analytique sommaire, 1
 ï à! 1900-1904, de nos cinq premières séries, premier cahier 81
 15 de la sixième série, un très fort cahier de XI+408
-“4 ag'es trèsdenses,in-18 grand jésus, marqué cinq francs. 1
 * Pour s'abonner à la huitième série des cahiers, qui 12
 _ . est la dernière série, envoyer en un mandat à M. André
 ni _ Bourgeois, même adresse, le prix de l'abonnement: on M
 _ recevra en retour les seise cahiers parus de cette hui- #
-De. 4 di
 __ tième série. Le: :
-DL pe ÿ
-1770 ) 7
-AN { A!
-A À s . . “ . a
 ue Pour s'abonner à la neuvième série des cahiers, qui
 _ est la série en cours, envoyer en un mandat à M. André /
 _ Bourgeois, même adresse, le prix de l'abonnement; on
-KI « . . « « ‘LES
 _ recevra les cahiers parus, et de quinzaine en quinsaine, ,
 …_ à leur date, les cahiers à paraître de cette neuvième sA
 | série. ‘3
-4 st M k
-À Ê di LR 4 UT
-TASNMINTEPRE MR. » ET LU
 
-LINE h & \ RATE NT DE TE Den LM |
-+ PE À D UT UE AA RARES
 te sel ) ! vs 4 Vas il
-1 ORDRE AA ERUT La
-F0 ï D AE AE in D KE 23 AS
-NY j LAN AT ENS À]
-NA (A4 { Te PAR NE | Er
-Yi NE LA UE +
 FSC AR AN LE dr
-CN (IE UE AR AC be
 on k FA 1 eee NULS
-. AS U LI TN RE MANN UE EN
 el ‘ TA j RAA LEA AR
-FPE TM RO TR NS VAE QE PES LÉ a SRE Ya
 
 = CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, D:
 (4 _ rez-de-chaussée, Paris, cinquième arrondissement. 10
-“h EE Dur an
 À Nos Cahiers sont édités par des souscriptions men- k
 _ suelles régulières et par des souscriptions extraordi- ‘Ce
 7 _ naires ; la souscription ne confère aucune autorité sur | #
 1% la rédaction ni sur l'administration ; ces fonctions )4
-_ demeurent libres. *
 _ « + Nos Cahiers paraissent par séries; une série paraît À
 dans le temps d'une année scolaire, d'une année Ne.
 | ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- en.
@@ -3092,11 +2355,8 @@ _ ment se prend pour une série. 10
 à On peut souscrire cet abonnement à tout moment de AE Ÿ
 l'année, maïs l'abonnement ainsi souscrit est, de droit, ‘0
 … valable pour la série en cours. 11
-% Fall
 ñ Prix de l'abonnement, pour chaque série annuelle Ex.
 _ pendant le cours de cette série : « 10
-Ge ; Paris, départements, Alsace-Lorraine, V (à
-( Abonnement ordi- Algérie, Tunisie.... vingt francs à #0
 a: MAR PA daim 0p s | Autres pays de l'Union postale uni- : de
 À Ë verselle....... vingt-cinq francs et
 Li Abonnement sur whatman... cent francs pour tous pays k Al J
@@ -3115,31 +2375,10 @@ l'édition sur whatman est strictement limitée au D
 | Fe rombre d'exemplaires à chaque instant souscrit. nr
 
 ù j! 4 me IN ‘il 4 IV ANNEE 6
-à HN AMEN A NE LAOOT AN k RAA NN NE
-\\he ! ù 4 A MU STEP APR PS EAU
 \5tes is bai NE AN EEE
-Ft ï PNR CG AE Men à
-Ke A : s CARE URI EE ï Vl
-Le ; À 1) AMONT AE
 ne À Ye) fat
-JR à 4 a ARCS à
-PS * PANIe dr
-DR MANS A ASRTE mu
-LAURE RAT EE AN
 gr : ATOyAe Ne À
-« 3 RS “1 FD A UNE
-M: fe . { 5 Ts KIA
-LEA il a À HU ®
-‘1 d A RON TA NES
-SE SANTE EUR
-RL: 1 INT neo
-04 K Q { D 44 As à
-LAURE 1 FLY CA NARU
-AN à 4 t MEN 1 NTM
-ns 4 % COPA UNS A PAS TA
-OP 2 + + Le RANCE
 # ( AIO UNE
-A aa it (ob ét 48 AN ES RS
 
 sa pda jé di " We MPa M + ES g: E
 Pour tout changement d'adresse envoyer soixante 4.

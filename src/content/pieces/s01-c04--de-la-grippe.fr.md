@@ -7,10 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 5092
 ---
-
 ## De la grippe
-
-*Charles Péguy*
 
 ## DE LA GRIPPE
 
@@ -75,8 +72,6 @@ Pavions fait monter pour qu’il me dît la vérité qu saurait de la santé de 
 — Contez-la moi donc. _ Je travaillais pour un patron collectif
 
 — Comment cela ? — J’étais employé pour une
-
-Société anonyme à capi-
 
 ,. personnel variables; ce que je nomme un patron collectif était, si vous le voulez bien, le conseï nstration de’cette Société. Un matin je me sentis ma: lade. C’était le commencement de ce qui vient de se consommer. Je fis dire à mon patron que je ne pourrais pas y aller. Puis, par endurance et par vanité, je me levai quand même et je me harnachai. Le harnois soutient la bête. Quand on a des souliers cirés, on marche, à moins d’en être où j’en suis aujourd hui. Quand j’arrivai à mon bureau, je vis clairement que mes patrons voulaient bien ne pas me faire voir qu ils ne croyaient pas un mot de ce que je leur avais fait dire. — Cette histoire en effet m’intéresse peu. Nous la retiendrons cependant pour quand nous causerons du patronat individuel et du patronat collectif. C’est une question considérable. Beaucoup de socialistes s'imaginent que la Révolution sociale consistera sûrement à remplacer le patronat capitaliste par un certain patronat de fonctionnaires socialistes. — Je m’imagine au contraire que la révolution sociale consistera sans doute à supprimer le patronat : aussi on me nomme anarchiste. - Ne nous laissons pas effrayer par les mots. Pensez seulement à la misérable situation de tous les ouvriers qui ont l’air d’aller plus ou moins bien et qui sont déla. bres par l’exercice du métier. manady pensais, bien avant que je ne fusse tombé à unejsilest vrai que ïs pense a présent corme — reate propre. — Pourquoi donc ce médecin ne... il _. •. ment à votre bonne mine ? pas fié seule-. Sans doute parce qu’il savait que nous ne devons pas nous lier aux apparences. Tel est du moins le sens un vieux dicton. Il savait que quelques personnes ont 1 air malade et se portent bien, qu’un grand nombre de personnes ont assez bonne mine et sont délabrées. — Nous en usons plus astucieusement pour les maladies sociales : nous nous gardons soigneusement de critiquer les apparences; pourvu que les groupes soient nombreux et acclament des résolutions retentissantes, pourvu que les meetings soient vibrants, pourvu que les manifestations fassent pleuvoir les pommes de terre sur la voiture de Rochefort, pourvu que les congrès finissent en chantant l'Internationale, qui est une hymne admirable, pourvu que les délégués s’intitulent socialistes et le soient politiquement à peu près, pourvu que les élections marchent à peu près, pourvu que les suffrages montent, et surtout pourvu que Von n’abandonne pas le terrain de la lutte de classes, nous nous gardons soigneusement d’examiner ce qu’il y a là-dessous, nous nous gardons soigneusement d’examiner si les âmes jouissent de la santé socialiste ou si elles travaillent du mal bourgeois. — Pourquoi donc, citoyen, s’il est permis que je vous interroge à mon tour. — Surtout par habitude, un peu par paresse, et aussi parce que nous avons peur des belles découvertes que nous ne manquerions pas de faire.. — Dans le civil on a peur au contraire que le médecin ne fasse pas toutes les découvertes qui sont à faire. -Je crois savoir pourquoi vous vous êtes surmené depuis quelques années; mais puis-je vous demander connaissance des circonstances particulières ■
 

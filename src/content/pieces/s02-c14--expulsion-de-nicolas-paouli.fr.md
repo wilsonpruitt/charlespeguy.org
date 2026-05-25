@@ -7,15 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 2618
 ---
-
-*Charles Péguy*
-
 Le 16 juin dernier, le courrier du soir apporta
 nombre de réfugiés politiques russes la même lettre
 suivante, que je transcris textuellement en respectant
 l'orthographe de l'original
 Paris, le 15 juin 1901
-Monsieur, ,
 Au mois d'Avril de l'année dernière, nous soussignés,
 étions chargés de la surveillance de Paouly, demeurant .
 rue Gassendi, réputé comme un révolutionnaire russe
@@ -39,7 +35,6 @@ a pu pénétrer en Russie, et s'est rendu à Saint-Pétersbourg,
 où il a eu plusieurs entrevues, avec un Chef de la Police
 politique, par ordre duquel il est rentré à Paris en passant
 
-EXPULSION DE NICOLAS PAOULI
 par Berlin et Zurich, dans cette dernière ville il y est resté
 quelques jours avant de rentrer à Paris.
 
@@ -66,13 +61,11 @@ Si nous pouvions voir un des vôtres, nous aurions cer-
 tainement, long à en dire à ce sujet, seulement nous crain- À
 derions voir étouffer cette affaire, et pour le moment nous
 nous contentons de vous faire parvenir cela.
-E. Boisselier Guillaume
 
 P.S.— Au dernier moment nous avons appris que c'est
 sur la plainte de Paouly, que nous avons été révoqués.
 
 Voici la traduction exacte de la lettre décalquée mentionnée dans la missive
-Monsieur,
 
 Hier je me suis adressé. à vous par une lettre anonyme, aujourd'hui je vous écris sous ma signature.
 Certes, je cherche quelque profit, mais je pense que les
@@ -83,7 +76,6 @@ seront très considérables. C'est pourquoi j'espère que
 vous daignerez répondre à la présente lettre. Mon
 adresse : 15, rue Gassendi. , Le
 Votre serviteur,
-N. PaouLr
 La « dénonciation » était trop grotesque. Paouli est
 dans le mouvement révolutionnaire depuis plus de vingt
 ans. Il fut membre du glorieux partit Narodnaïa Volia »
@@ -99,15 +91,12 @@ fut encore pour combattre les bourreaux du peuple
 russe. Arrêté pour la troisième fois et envoyé denou
 veau en Sibérie, il s''évada et vint à Paris. C'est cet.
 homme qu'on voulait nous présenter comme une brebis
-galeuse. : ES
 L'auteur de ce dossier publiait dans le Petit Sou du : -
 samedi 29 juin cette Fe
-LETTRE OUVERTE AU CITOYEN JEAN JAURÈS RE
 Très honoré citoyen Jaurès,
 Je m'adresse à vous par la voie de la presse parce qu'il
 faut que vous expliquiez publiquement devant les socia-
 
-EXPULSION DE NICOLAS PAOULI
 listes du monde entier, votre conduite et celle de votre
 Parti à l'égard du Parti socialiste russe.
 Ee gouvernement dont fait partie M. Millerand, membre
@@ -137,14 +126,12 @@ a saisi tous ses papiers et toutes ses lettres qui, certaine- à
 ment, seront livrés à la police russe. Il y aura donc des
 us victimes en Russie qui seront emprisonnées, jetées dans
 les forteresses de Pierre et Paul, de Schliesselburg, envoyées
-en Sibérie. .
 Ce n'est là qu'un premier essai. S'il réussit, on continuera.
 Mais vous pouvez prévenir votre ami, le socialiste « en
 congé », que ses agents ne trouveront rien chez nous : nous
 ce avons tous passé la soirée d'hier à brûler nos papiers et les
 lettres de nos amis et de nos parents, ne voulant pas que
 des sales mains policières puissent souiller ce qui nous est
-à cher. .
 
 quatorzième cahier de la deuxième série
 Ce n'est pas la première infamie que M. Millerand commet à l'égard de notre parti. Lorsque le tsar est venu
@@ -180,7 +167,6 @@ cetté lächeté de votre ami et camarade, membre de votre
 parti, non seulement à nous autres révolutionnaires, mais
 même à nos libéraux les plus timides!
 Mais jusqu'ici M. Millerand ne se solidarisait que morale-
-EXPULSION DE NICOLAS PAOULI
 
 ment avec le tsarisme. Or, en arrétant Paouli, en lexpul-
 
@@ -227,7 +213,6 @@ tional, qu'ils remplissent done une mission, pour ainsi dire,
 internationale. D'autre part on leur disait qu'en France le
 
 parti socialiste était si fort qu'un de ses membres est devenu
-ministre.
 Mais voici que ce ministre reçoit à table leur ennemi,
 Witte, qu'il s'incline bassement devant leurs bourreaux,
 qu'il accepte de leurs mains des décorations, que le ministère dont il fait partie arrête et expulse leurs camarades,
@@ -274,11 +259,9 @@ sur le véritable sens de votre méthode nouvelle. Bientôt il €
 Un membre du Parti Ouvrier Démocrate-Socialiste .
 
 de Russie
-ER EXPULSION DE NICOLAS PAOULI E
 
 Enfin les journaux du lundi premier juillet publiaient
 cette
-PROTESTATION
 Les réfugiés russes résidant à Paris, réunis hier, ont
 voté la protestation suivante
 Les réfugiés politiques russes résidant à Paris, réunis
@@ -299,13 +282,11 @@ années de prison et de déportation en Sibérie;
 Espèrent que tous les socialistes, ainsi que les honnêtes gens de tous les partis, se joindront à leur protestation indignée et demanderont avec eux justice complète pour Paouli.
 
 Pour la réunion, et par ordre
-Boris KrircHEvsKky, E. RuBANOvITCH,
 L. Cuicako.
 
 Nous avons publié dans le dixième cahier de cette
 série les premiers éléments d'un dossier du récent mouvement pour la liberté en Russie.
 
-LIBRAIRIE DES CAHIERS
 Nous renvoyons au treizième cahier de cette série
 pour tous renseignements sur la librairie des cahiers.
 Abonnements gratuits. — C'est trente et non cinquante francs par mois que les Journaux pour tousnous
@@ -328,6 +309,5 @@ est devenue générale. J'avais demandé à notre ami -
 Léon Deshairs de vouloir bien nous éclairer sur la
 partie du débat qui intéresse Boecklin. On lira ci-après
 sa contribution.
-Léox DeEsnaiRs
 
 ---

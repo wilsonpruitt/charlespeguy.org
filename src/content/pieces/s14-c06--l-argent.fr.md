@@ -7,220 +7,47 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 28610
 ---
-
-:  SIXIÈME CAHIER DE LA QUATORZIÈME SÉRIE
-; CHARLES PÉGUY
 l'argent
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-5 A NOTA MITA TS Vs DR AU NS PARENT « EE À NY
 \ DES é na OU LS nue AMANLATS EAU ES
-D RAA ALES PU RUN ‘ae EN REV EMEA
-Er DL RS PA AE A ANA HI AUTEE if DE ISO ANESRRENN
-QAR nue J { y MM End SN En) À
-ue ci : k NV ENES 2
-AR 1 ;:. NES
 * nd MOULE TA
-CAE " DEAR 7
 | $ ALIAS GA He
-: < |; Ft
-ns 0 ge 4 Dane Ë
-s 12, + (GRR
-LORS
-1 411 ENS
-RL.
-FA
-1 DANGEMERNLE à
-À x . EEQUSE nt
-
-L É RTE PDC PER RE QE AE NT SO MERE La ET PTT
-
-re Re Cr M ES OR AE 0 >
-
-‘ FA EU TE TR Pe  MÉT e r  e M, O AC UT  CN ORDER
-
-: Fan RC ETES RTE MERE EP PU SN EE FLN TEE
-
-Le PRET LT ARE Ut REC PE ETES LAS Pet FT TE MATTER ARR
-
-RAA 0): , TETE Dr OT En Ve MO EENOC
-
-IE CAPEESS : FE à + £, 14 7 RNA
-RL. | LE DER ES SO
-
-ET Recis À : à “ : T'AL ESPN
-
-2.5) FERRIERE x SALSA TETE RESTE Le.
-Dr Er LIRE x gr L 5 4 OR ENEES A BEC
-
-* ‘14 LL RENE S \ : SU PESTE
-D 7 SENS
-
-4 PRET + “ “ 1 {AS Li TN RER
 
 de CEA HNARRRS ae HE TURC
 Re | , tes NT RAM EUR fi DÉS
-ÉTIENNE Eu) WESS LE ES Re
 AS PR PL PO n LE ca nt A TR FANS
 
-Sel RE 'agr x ue, PERS POLE ANNEES “EME CHAR
 SAS ANTA EE pr ‘ . N À TE LA CROIRE
-L'ÉTAT MRC DORE ET SAS x f 7 5e +0 RENE
 157723 ES dr AS RAT ER e vais ñ RON TUE EMA ne
 RP) à Æ D Gui EP pri AIS RENT Ke Par ET | PEER Ce AS "2,
-Re ue 5e AM OT EN EEEEREE LCR
-
-121) SR AXEL Ne LE AP RER AT EP NERO RUE SR ARTE RE, AE
-TS SRE ES OR RAR ROUTE RU k
-
-D RETURN LT EEE Er SR ESS C e ONTE TAN Ne Ur
 
 DA AE TAN Dans BAR PUe EVER SE ND DE CAES LÉ EE VA ts
 NES, Rare 4 Re 73 pire ne | Ge Nue SRE 24 te PTE
-NP VON SE BE LR Mr TE à DÉAMMENE EE" Le"
-AT ATOPE 5 o L Fe © EL 06e
-Fe Le E? « “4 1 LÉ UE
 Ai EP ets % RAT Dire de o
-PAS ALMA à 7. PE A4 BEA
-EN PRE 4-11 RSS
-NE | LS
-(2 RP K We: 307
-PARA, nm” sav AUTRE CÉNESSONEE
-
-LES Le, HN LEE PRIS SANT EC eNL QE AE ON FU PME AS A PEARESUR D 228 POS SES MOTTE
-
-SE En Neo à A A A
 
 | CR SN RAIN Re
 
-NAS Re fées A RE CAE STATS
-een NT Eu vs CN PORTA Re
-
-eu AR dm à
-
-M rue ee HT 0 UD ORNE
-
 Re tn LT < Der k #1 RSR ON NIUE AT RTS DRAC SEE
-
-AN 2 \ A AR een js
-D Re RENE RSR HER SSSR
 
 PGI run « ‘ 4 » NI AAATE De Dies 151
 
-ES KE EE sn $ RRST IS PARA RU te or
-N'a PER er 4 L'ANPE | AE SAR
-
-125 TR CI RTN TS NES LIRE MA RENE
-1° 2 TAN SRE ' PL AA eee |
-RUN TITRE t PAT 6 VE END RSC DE MARQUES
-
-1 Sp Re 4 RENE ; D EE AE LS
-
-Re. NS AUS MITA RARES
-
-17.71 SUCRES) s PaN M1 Li 20 NC APE RARES TRE RE qi RUE
-
-: NES ù PU AL “ VIEN RON RNA UNE
-1 RARE CAPI RIT RTE D RANCE TS à HAE NS Hi
-
 Led EN TE DE Ge Ci TEMPLES ES LEE LM AE
 
-À "0.4 ms: nu" \
-FR PR Re
-ROUTES HA SN NAT Du EE
 HMPRENS L'GARUES NEA EME ac Er
 et PEU AE Mipues AU Re aude NU MES £
 Nate et he QUE ON: MES ere ù
 
-FE DAS { Are LME ME MR qiy Vus
-dE NE (AR NL » À MONS na NS PTS NE
-Mo ; d PART PTT a à
-5 N &- E PA,
-
-2-5 RENE x DR >
-; Aa Cl 7e
-CES LUS
-TUE PRE a E L':, 7 qplt
-STE pe
-NES SES
-AS SENS
-NEA Sr. à 4 È DU”
-À (PE Li us . 147022 1 "ES
-
-CAHIERS DE LA QUINZAINE
-nd
-
-RU LIVRET A AE NE SEE
-ÉJ AAA CR OPERA CEA A SE RE D
 HAE UE MEME ARTE RARE Des ra LAC MC PRET 1 NOR
 re RE NE de ES Fa HARAS EEE 1e ++ & FOUT ESS rep
-De FU A Ÿ, + 4 I %
-fact T _ 'LSRRIR
-£ s'#Çua
-È +. FC JUNE
-% ER > J
-Ê è = 9e OF
-x ré = RE EUR
-ie AE ë LLHPRRRIEES
 # .° 19 ARE
-Ç f |: GTR
-AU -. LT
-RENE : : | LL PERRIER
 ES , : ee LA RÉRRERRES
-\Six LA ENRESS 3 0
-1h A n du + "5 FANS DA ”
 
-MAR D ART EL OO LS Here x RARES SAS
-RP ARRETE 0) RAT RE A, HAT ET REN ECS AA RME ANT,
-vi CA A Re ee Fan ie HNUEREINE ASE
-Na Ne Sr ER) PRE TR "17 RTE LUEUR D PLEASE T'AS PAPAS SARL
-: 575 ÉVNSCNENE x TON NET
-PRE ra > à ” ê à« TEA TRS CAE
-+. REMOTE Ë ‘ ë ; Ÿ F7) ETS NNEENE
 PE MP RER 3 ra et
-FREE CRAN » A FENTE AE
 ÉÉÉAET AC. è Hoi ADN Â À ! LAN TES
-Re Le DURE | SUCRÉS OMR
-z ARE Arte ; s RS a “RES
-& en pes 2 F. CA SEA Dam SE
-$ LOS "ri F7 12 ICRA OMR
-BAR fi 2 d + V4 ch REA) AP ra NON
-LD RC OR 2 = < à La 4 PA ESA
-Le. ; : Gi à | LT TT CMOS
-AXES EE x ERA LE PETER Re SR *
-7 rt STEP ORNE #, $ À a! à ART LANCE we AUA
-+ 1 TT RCUS Se Se PER Punta Lee 12 LAN EN EE eu
-ARR OU PT Et, * / : +.) 3 AAC IEE
-LT TAMERGNPREEES EX KE LV RAT APN
-D, nes <PANDE
-For FO SP TAN ESS EE : SI cor SF: CARS
-
-ÉTTAUESS À | 17 TT
-RENTE : 150
-Lex | FE SR
-MIRE .
-Fa : 7 ÈS
 
 A ee n Ne
-
-jt (A à re 4 Re
-
-È = SISTER
-
-RS ; LL FRS SENNESSSS
-
-: LITRES |
-h, ETES
-
-L N 217 42 (ORNE 2
-
-2e { ; » à. 72680 À NOTE t
-
-4.4 Er = ENT £
-CAHIERS DE LA QUINZAINE
 
 L'argent. — L'auteur de ce cahier, — du cahier qui
 vient, du cahier dont celui-ci n'est que l'avant-propos,
@@ -251,10 +78,6 @@ C'était le temps des folies scolaires. Les réactionnaires nommaient folies sco
 fort honnêtes constructions, en briques ou en pierres
 de taille, où on apprenait à lire aux enfants. Ces folies
 scolaires étaient commises par l'État, par les départe-
-
-9 argent, — 1,
-
-DS GP =
 
 <e cahiers de la quinzaine Ne: x
 
@@ -296,8 +119,6 @@ dans un coin de la première cour de l'École Normale, à :
 
 ; droite en entrant, comme une espèce de nid rectangu10
 
-RE SR AE \ L ARGENT
-
 Les ss
 
 Le laire, administratif, solennel et doux. Cette petite école
@@ -329,7 +150,6 @@ l'enseignement primaire. Plus généralement j'essaierai
 de représenter ce qu'était aiors tout cet admirable ;
 
 | monde ouvrier et paysan, disons-le d'un mot, tout cet
-admirable peuple.
 
 C'était rigoureusement l'ancienne France et le peuple
 de l'ancienne France. C'était un monde à qui appliqué
@@ -342,9 +162,7 @@ est bourgeois. Puisque tout le monde lit son journal. Le
 peu qui restait de l'ancienne ou plutôt des anciennes
 
 .  aristocraties est devenu une basse bourgeoisie. L'ancienne aristocratie est devenue comme les autres une
-II
 
-": * pa A
 cahiers de la quinzaine FANS fe
 
 bourgeoisie d'argent. L'ancienne bourgeoisie est devenue
@@ -352,7 +170,6 @@ une basse bourgeoisie, une bourgeoisie d'argent. Quant >
 aux ouvriers ils n'ont plus qu'une idée, c'est de devenir
 des bourgeois. C'est même ce qu'ils nomment devenir
 socialistes. IL n'y a guère que les paysans qui soient À é
-restés profondément paysans. Re
 
 Nous avons été élevés dans un tout autre monde. On =
 peut dire dans le sens le plus rigoureux des termes 4
@@ -373,7 +190,6 @@ peuple, quand il y en avait un. Le dernier ouvrier de ce
 temps-là était un homme de l'ancienne France et aujour- ÿ
 d'hui le plus insupportable des disciples de M. Maurras
 n'est pas pour un atome un homme de l'ancienne
-France,
 
 Nous essaierons, si nous le pouvons, de représenter ,
 cela. Une femme fort intelligente, et qui se dirige allè-
@@ -382,8 +198,6 @@ Le monde a moins changé pendant mes soixante premières années qu'il n'a chang
 aller plus loin. Il faut dire avec elle, il faut dire au delà |
 d'elle ; Le monde a moins changé depuis Jésus-Christ
 
-D: AR L'ARGENT
-F3
 _ qu'il »'a changé depuis trente ans. Il y a eu l'âge
 - antique, (et biblique). IL y a eu l'âge chrétien. Il y a
 _  lâge moderne. Une ferme en Beauce, encore après la
@@ -418,10 +232,7 @@ parlementaire. Mais quand Michelet et ceux de sa race
 
 . parlaient du peuple, c'est eux qui étaient dans la réalité
 même, c'est eux qui parlaient d'un être et qui avaient
-; 13
 
-LT ap) Fe te j At se PARAIT à MER
-1") cahiers della Gainstine ©
 kr £ connu cet être. Or cet être-là, ce peuple, c'est celui ( que
 Fe - nous aussi nous avons connu, c'est celui où nous avons
 | à été élevés. C'est celui que nous avons connu encore
@@ -450,12 +261,10 @@ Le croira-t-on, nous avons été nourris dans un peuple
 gai. Dans ce temps-là un chantier était un lieu de la F4 n
 -_ terre où des hommes étaient heureux. Aujourd'hui un … WE
 chantier est un lieu de la terre où des hommes récriri- 14
-nent, s'en veulent, se battent; se tuent. DEN
 De mon temps tout le monde chantait. (Excepté moi, <
 mais j'étais déjà indigne d'être de ce temps-là). Dans s
 la plupart des corps de métiers on chantait. Aujourd'hui
 
-es M OR TAUI ARGENT: |:
 : _ On renâcle. Dans ce temps-là on ne gagnaïit pour ainsi
  - _ dire rien. Les salaires étaient d'une bassesse dont on ;
 aie n'a pas idée. Et pourtant tout le monde bouffait. Il y avait :
@@ -471,14 +280,12 @@ Il n'y avait pas cet étranglement économique d'au- Ù
 $ gulaire, régulière, propre, nette, sans une bavure,
 implacable, sage, commune, constante, commode comme
 une vertu, où il n'y a rien à dire, et où celui qui est
-st étranglé a si évidemment tort.
 Fa On ne saura jamais jusqu'où allait la décence et la
 _ justesse d'âme de ce peuple; une telle finesse, une telle
 je culture profonde ne se retrouvera plus. Ni une telle
 finesse et précaution de parler. Ces gens-là eussent
 rougi de notre meilleur ton d'aujourd'hui, qui est le
 ton bourgeois. Et aujourd'hui tout le monde est bour- À
-geois. ï
 Nous croira-t-on, et ceci revient encore au même,
 nous avons connu des ouvriers qui avaient envie de
 travailler. On ne pensait qu'à travailler. Nous avons
@@ -489,9 +296,7 @@ onze heures ils chantaient en allant à la soupe. En u
 l somme c'est toujours du Hugo; et c'est toujours à
 Hugo qu'il en faut revenir : Zls allaient, ils chantaient.
 | 19
-AE 4 CA
 
-HRISONNE SNS
 cahiers de la quinzaine : <=
 Travailler était leur joie même, et la racine profonde
 de leur être. Et la raison de leur être. Il y avaitan
@@ -528,8 +333,6 @@ Cette victoire.
 Il y a eu la révolution chrétienne. Et il y a eu la
 révolution moderne. Voilà les deux qu'il faut compter.
 
-ae Se, 1
-STATS | L'ARGENT
 Un artisan de mon temps était un artisan de n'importe
 quel temps chrétien. Et sans doute peut-être de
 n'importe quel temps antique. Un artisan d'aujourd'hui h
@@ -553,7 +356,6 @@ brutalité, dans cette sorte d'incohérence qu'ils appor-
 à quémander. Ah oui ils demandent quelque chose à
 quelqu'un, à présent. Ils demandent même tout à tout
 le monde. Exiger, c'est encore demander. C'est encore
-servir.
 
 Ces ouvriers ne servaient pas. Ils travaillaient. Ils
 avaient un honneur, absolu, comme c'est le propre d'un
@@ -562,7 +364,6 @@ C'était entendu. C'était un primat. Il ne fallait pas qu'il
 fat bien fait pour le salaire ou moyennant le salaire, Il
 ne fallait pas qu'il fût bien fait pour le patron ni pour
 
-nn
 cahiers de la quinsai 8 TYPES
 les connaisseurs ni pour les clients du patron. n fallait 0
 qu'il fût bien fait lui-même, en lui-même, pour lui-même, De
@@ -597,7 +398,6 @@ atelier et l'honneur du foyer et l'honneur de l'atelier S
 était le même honneur. C'était l'honneur du même lieu. ë
 C'était l'honneur du même feu. Qu'est-ce que tout cela 2
 .
-18 ste
 
 PACE à Rave À PR M ENS SAR ET OR AR à
 
@@ -619,7 +419,6 @@ travailler c'est prier, et ils ne croyaient pas si bien
 dire.
 
 Tant leur travail était une prière. Et l'atelier était un É
-oratoire.
 
 Tout était le long événement d'un beau rite. Ils eus-
 
@@ -640,13 +439,9 @@ mais quelle autre victoire. Quelle même et quelle autre.
 Une victoire de toutes les heures du jour dans tous les
 
 … jours de la vie. Un honneur égal à n'importe quel
-à 19
-Se 7
 
-Fi OU
 cahiers de la quinzaine FT DES
 honneur militaire. Les sentiments mêmes de la garde de.
-impériale. se
 Et par suite ou ensemble tous les beaux sentiments a
 adjoints ou connexes, tous les beaux sentiments dérivés - :
 et filiaux. Un respect des vieillards; des parents, de la
@@ -710,7 +505,6 @@ conservé le statut.
 
 Ainsi les ouvriers n'ont point conservé les vertus
 ouvrières; et c'est la petite bourgeoïsie qui les a
-conservées.
 
 Er STATS cahiers de la quinsaine de sr
 Ke La bourgeoisie capitaliste par contre a tout infec VE.
@@ -718,9 +512,7 @@ Ke La bourgeoisie capitaliste par contre a tout infec VE.
 de la même infection. Elle a infecté le peuple double Ée. ;
 ment; et en elle-même restant elle-même; et par les
 _ portions transfuges d'elle-même qu'elle a inoculées dans ‘4
-_ le peuple. M :;28
 Elle a infecté le peuple comme antagoniste ; et comme 5
-maîtresse d'enseignement. : se ë
 Elle a infecté le peuple elle-même, en elle-même et :
 _ restant elle-même. Si la bourgeoisie était demeurée non ss
 pas tant peut-être ce qu'elle était que ce qu'elle avait FE
@@ -775,10 +567,7 @@ politique, un antagoniste parti politique. Les partis syndicalistes sont eux-mê
 infectés d'éléments politiques, les mêmes, d'autres intellectuels, des mêmes, d'autres bourgeois, des mêmes.
 k Ils ont pu croire plus ou moins sincèrement qu'ils
 | s'étaient débarrassés de l'ancien personnel politique
-TNA 23
-ET En
 
-; à 120,2 Te GÉANT ANNEE
 cahiers de la quinzaine ps Pa
 socialiste. Ils ne se sont pas débarrassés de l'ancien Me ES
 esprit politique socialiste, qui était éminemment un
@@ -810,8 +599,6 @@ jauressiste. C'est-à-dire qu'au fond tout ce monde-là est
 radical. C'est-à-dire bourgeois. Cest partout la même
 démagogie; et c'est partout la même viduité ; l'une por- ;
 
-MR
-QUE L'ARGENT
 __ tant l'autre; l'autre reportant l'une. Cette pauvreté de
 : pensée, peut-être unique dans l'histoire du monde, ce
 F manque de cœur qui est en politique la marque propre :
@@ -840,12 +627,9 @@ inquiétude, cette alerte perpétuelle, cette constante
 épouvante qu'il n'y ait, qu'il ne vienne quelque part de
 la fécondité, qu'il ne se fasse, qu'il ne vienne, qu'il
 ne se fonde, qu'il ne naisse quelque vie, quelque race,
-\ quelque œuvre.
 Je ne veux point revenir ici sur ce nom de Jaurès.
 L'homme qui représente en France la politique impé-
-25 argent, — à
 
-Sd ARPARAONES PEN GI PSE
 als % ANS % f EE ES LAC PNRe ES ET EEE
 ae cahiers de la aime ni
 | riale allemande est tombé au-dessous du mépris cu LS dé: Te
@@ -866,7 +650,6 @@ ne trouveront peut-être pas toujours une égale réussite. A k
 Ce qu'il avait fait du socialisme, ce qu'il avait fait du cd. “ Fe
 dreyfusisme, il voulait le faire de la France aussi. Une +0
 misérable loque. Mais il s'est trouvé que la France était Ro
-mieux gardée. RE
 Je demande pardon au lecteur de prononcer ici le EN
 nom de M. Jaurès. C'est un nom qui est devenu si bas- €
 sement ordurier que quand on l'écrit pour l'envoyer £ Ne
@@ -880,8 +663,6 @@ a capitulé mais qui a toujours enguirlandé toutes : tr
 les capitulations des festonnements de ses airs de
 bravoure. Et non seulement qui a toujours capitulé in LEA
 
-AGEN SEE ARR Mn ous PU
-à F2 F SAR RTE PRES É
 _ lui-même et pour lui-même, mais qui a toujours eu HA
 Pire 18 manie, maladive, la monomanie, de capituler non
 + seulement pour toutes les causes qu'il représentait, plus
@@ -904,19 +685,16 @@ peu ce que c'est que le peuple, Qu'est-ce qu'il a de
 commun avec un ouvrier. Et n'est-ce pas la plus grande
 misère de ce temps, que ce soit un tel homme qui parle
 * pour le peuple, qui parle dans le peuple, qui parle du
-peuple. :
 Tout ce que je voulais dire aujourd'hui, c'est que ce
 ; grand mépris que l'on a universellement pour M. Jaurès
 empêche de voir que tout le monde, (je dis dans les
 partis politiques), fait du jauressisme, et ainsi du radicalisme. Le gouvernement en fait beaucoup moins,
 _ même quand il est radical, même quand c'est le même
 - personnel, parce que le radicalisme est bon pour
-Fe 27
 
 cahiers de la quinzaine | HS :
 exploiter un pays, mais que tout le monde, et même les …—
 radicaux, le trouvent vraiment impossible pour le gou Re
-verner. js
 Sous cette réserve tout le monde fait du jauressisme
 et ainsi dedans tout le monde fait du radicalisme. Je ;
 dis tout le monde dans les partis politiques. Et même
@@ -945,12 +723,7 @@ avenir meilleur. Aujourd'hui est meilleur qu'hier, demain sera meilleur qu'aujou
 peuple n'est peut-être point tari pour toujours. Les
 vertus uniques de la race se retrouveront peut-être. ‘#
 Elles se retrouveront sans doute. Il faut seulement
-28 k
-LA
 
-a |
-PE" 4 C
-DR 4 L'ARGENT
 - savoir que nous passons, mettons que nous venons de À
 Ë passer par la plus mauvaise crise par laquelle ce peuple
 ait jamais eu à passer. Et en outre par une crise entiè-
@@ -981,7 +754,6 @@ rale, un ordre, une hiérarchie qui paraissait naturelle
 ne faisaient qu'étager les différents niveaux d'un
 commun bonheur. On ne parle aujourd'hui que de
 l'égalité. Et nous vivons dans la plus monstrueuse
-29 argent. — 2,
 
 DEMR US ESS ohore de ln quinsaine FREE
 | | CR
@@ -1014,7 +786,6 @@ teur de l'école annexe, de jeunes maîtres de l'école nor- Fes
 BA mare venaient chaque semaine nous faire l'école. Parlons a Pre
 bien: ils venaient nous faire la classe. Ils étaient comme : De
 les jeunes Bara de la République. Ils étaient toujours
-30 se
 
 Se prêts à crier Vive la République! — Vive la nation,
 _ on sentait qu'ils l'eussent crié jusque sous le sabre
@@ -1022,7 +793,6 @@ nn prussien. Car l'ennemi, pour nous, confusément tout
 _  lennemi, l'esprit du mal, c'était les Prussiens. Ce n'était
 * déjà pas si bête. Ni si éloigné de la vérité. C'était en
 1880. C'est en 1913. Trente-trois ans. Et nous y sommes
-revenus.
 Nos jeunes maîtres étaient beaux comme des hussards
 noirs. Sveltes; sévères; sanglés. Sérieux, et un peu
 , tremblants de leur précoce, de leur soudaine omnipotence. Un long pantalon noir, mais, je pense, avec un
@@ -1045,7 +815,6 @@ semaines il en remontait un de l'École Normale vers
 4 l'École Annexe; et c'était toujours un nouveau; et ainsi
 cette École Normale semblait un régiment inépuisable.
 Elle était comme un immense dépôt, gouvernemental,
-Son 31
 
 cahiers de la quinzaine SAR
 de jeunesse et de civisme. Le gouvernement de la NE
@@ -1079,12 +848,6 @@ les premiers vers que j'aie entendus de ma vie et dont
 on m''ait dit : On appelle ça des vers, c'était les Soldats
 de l'an II : 6 soldats de l'an deux, 6 guerres, épopées.
 On voit que ça m'a servi. Jusque là je croyais que ça
-
-32 |
-
-D
-
-+ 2 HRnbRiEe L'ARGENT
 
 s'appelait des fables. Et le premier livre que j'aie reçu
 en Prix, aux vacances de Pâques, c'étaient précisément
@@ -1121,7 +884,6 @@ j'ai connu, je dis comme élève-maître, cet homme d'un
 si grand cœur et de tant de bonté qui fit depuis une si
 belle et si sérieuse carrière scientifique, Charles Gravier,
 et qui est je pense aujourd'hui assistant de malacologie
-4 33 ;
 
 ; cahiers de la quinzaine NF RES
 au Muséum. Et qui devrait être plus. Là j'ai connu, ae
@@ -1158,7 +920,6 @@ jardins de maisons d'école. ee
 Avant tout ils ne faisaient pas les malins. Ils étaient
 juste à leur place dans une société bien faite. Ils
 savaient jusqu'où ils iraient, et aussi ils y parvenaient è
-infailliblement.
 
 | di
 
@@ -1191,14 +952,10 @@ sous-maîtres, comme on les nommait aussi, mais
 c'était une appellation peut-être un peu moins exacte,
 _ et surtout un peu moins élégante). (Un peu moins
 noble). Nous ne nous en apercevions pas. La
-AE 35 ;
-RCA
 
 cahiers de la quinzaine Re |
-L'ÉRLNNEEZ
 
 République et l'Église nous distribuaient des enseigne
-ments diamétralement opposés. Qu''importait, pourvu
 que ce fussent des enseignements. Il y a dans l'en- -
 seignement et dans l'enfance quelque chose de si rs
 sacré, il y a dans cette première ouverture des yeux de :
@@ -1238,7 +995,6 @@ coup moins simple. Je veux parler de ce qui s'est passé
 ? en nous pour ces deux métaphysiques, puisqu'il est
 entendu qu'il faut bien qu'il y ait une métaphysique
 dessous tout. Je l'ai assez dit, du temps que j'étais |
-_ prosateur. É : d
 . Nous venons ici à une difficulté extrême, à un point ;
 de difficulté. C'est le moment de ne point esquiver les
 difficultés, surtout celle-ci qui est importante. C'est le
@@ -1262,7 +1018,6 @@ métaphysique qu'il y a dans le catéchisme.
 Nos maîtres et nos curés, ce serait un assez bon titre
 pour un roman. Nos maîtres laïques avaient un certain
 enseignement, une certaine métaphysique. Nos maîtres
-% 37 argent. — 3 |
 
 M VEN cahiers de la quinzaine
 | Curés avaient, donnaient un enseignement diamié ralement contraire, une métaphysique diamétralement p" ss
@@ -1297,8 +1052,6 @@ gnaïent nos maîtres laïques, et toute la métaphysique
 qui était dessous eux est pour nous moins qu'une cendre ù 74
 vaine. Nous ne croyons pas seulement, nous sommes SNA
 
-LL RE ET Te Ê à LIRE? Ÿ ï
-RNA $ à L'ARGENT 8
 “ES | iñtégralément nouvris de cé qué nous enseignaient les
 
 Et . curés, de ce qu'il y a dans le catéchisme. Or nos maîtres
@@ -1327,8 +1080,6 @@ fermer les yeux. Que ceux qui ont la confession n'aient
 
  éxplication, c'est un fait, et le centre mème de la
 
-_ difficulté.
-
 Je ne crois pas que cela tienne au caractère même du
 
 _ prêtré. Je me rends très bien compte que depuis quel-
@@ -1349,8 +1100,6 @@ nous aimions le plus, même avec ceux que nous aimions
 L filialément, qu'une liaison un peu réticente et un certain
 sentiment de défense. C'est Ià un dé ces secrets dù
 cœur où l'on trouverait les explications les plüs pro-
-
-f 3
 
 cahiers de la quinzaine ACTUS
 fondes. Nous ne croyons plus un mot de ce que disaient dE
@@ -1382,10 +1131,7 @@ qu'il dit. Mais au plus profond un être se détermine
 uniquement par ce qu'il est. Qu'importe pour ce que je
 veux dire que nos maîtres aient eu en effet une méta- L
 physique qui visait à détruire l'ancienne France. Nos
-4o
-f f
 
-“Re ; : L ARGENT ,
 _ maîtres étaient nés dans cette maison qu'ils voulaient
 démolir. Ils étaient les droits fils de la maison. Ils
 étaient de la race, et tout est là. Nous savons très bien
@@ -1444,7 +1190,6 @@ en était une maladie au contraire, et l'annonce et Le.
 Yamorce des temps futurs, le commencement de l'in NM
 trigue et de la foule et de la délégation et du nombre : 04
 et du suffrage et d'on ne sait déjà quelle démocratie 204
-parlementaire. =
 C'est toujours la même histoire, et le même glisse- 51
 ment, et le même report, et le même décalage, Parce Res
 que c'est toujours la même hâte, et le même superficiel, SE -
@@ -1454,8 +1199,6 @@ d'attention. On ne regarde pas, on ne fait pas attention 155
 qu'ils disent. On fait attention à ce qu'ils disent qu'ils. ES
 
 CO ne NE
-LE CME TES LE SESSRE L'ARGENT ; |
-_ HARCRERS
 _ font, à ce qu'ils disent qu'ils sont, à ce qu'ils disent $
 va qu'ils disent. C'est une maldonne tout à fait analogue Se
 À celle qui se produit constamment dans la célèbre ; k
@@ -1483,10 +1226,8 @@ fond, la morale même et l'être de l'ancienne France. Je
 vais bien les étonner : ils nous enseignaient la même 4
 (1) Tyran de Padoue.
 
-dd
 SAR SR ar À SP ot ne Me FAR NT
 cahiers de la quinzaine
-e ra FA "en
 chose que les curés. Et les curés nous enseignaientla | “;
 même chose qu'eux. Toutes leurs contrariétés métaphy- Fr
 siques n'étaient rien en comparaison de cette commu- FA
@@ -1510,7 +1251,6 @@ morale, ils nous disaient que un homme qui travaille . 538
 bien et qui a de la conduite est toujours sûr de ne È et
 manquer de rien. Ce qu'il y a de plus fort c'est qu'ils le … #4
 croyaient. Et ce qu'il y a de plus fort, c'est que c'était : 8 ‘4
-vrai. 1
 Les uns paternellement, et maternellement; les autres 24
 scolairement, intellectuellement, laïquement; les autres ne
 dévotement, pieusement; tous doctement, tous pater- de
@@ -1519,7 +1259,6 @@ ils croyaient, ils constataient cette morale stupide : pee:
 (notre seul recours; notre secret ressort) : qu'un homme +
 qui travaille tant qu'il peut, et qui n'a aucun grand Fe 14
 vice, qui n'est ni joueur, ni ivrogne, est toujours sûr de À
-44 ch
 
 RES AT SES ER PR 7 ce
 re. L'ARGENT
@@ -1551,11 +1290,7 @@ tement caressée); on se demande où a pu naître,
 comment a pu naître une opinion aussi déraisonnable,
 un jugement sur la vie aussi pleinement indéfendable.
 Que l'on ne cherche pas. Cette morale n'était pas stupide. Elle était juste alors. Et même elle était la seule
-45 argent, — 3,
 
-ee
-
-cahiers dela quineaine
 juste, Cette croyance n'était pas absurde, Elle était
 
 _ fondée en fait. Et même elle était la seule fondée en
@@ -1595,8 +1330,6 @@ l'ai dit, à la date que j'ai dit. Et ici nous recoupons une à 4
 fois de plus cette ancienne proposition de nous que le ÿ 12
 monde moderne, lui seul et de son côté, se contrarie ne
 
-1æ De
-
 Less L'ARGENT |
 4 d'un seul coup à tous les autres mondes, à tous les
 Se anciens mondes ensemble en bloc et de leur côté. Nous
@@ -1627,8 +1360,6 @@ celui qui se bornaïit dans la pauvreté, ne jouant, n'introduisant aucun risque
 de tomber dans aucune misère. L'acceptation de la
 pauvreté décernait une sorte de brevet, instituait une
 sorte de contrat. L'homme qui résolument se bornait
-
-L
 
 cahiers de la quinzaine Hole ENT d: 4
 dans la pauvreté n'était jamais traqué dans la pauvreté. 36
@@ -1664,8 +1395,6 @@ Dans le système de nos bons maîtres, curés et laïques,
 et laïcisateurs, et c'était le même système de la réalité,
 celui qui voulait sortir de la pauvreté par en haut '
 
-SH  ! L'ARGENT
-
 ie risquait d'en sortir, d'en être précipité par en bas. Il
 n'avait rien à dire. Il avait dénoncé le pacte. Mais la
 pauvreté était sacrée. Celui qui ne jouait pas, celui qui
@@ -1674,7 +1403,6 @@ ne voulait pas s'en évader par en haut ne courait aucun
 « risque d'en être précipité par en bas. Fideli fidelis, à
 celui qui lui était fidèle la pauvreté était fidèle. Et à
 nous il nous était réservé de connaître une pauvreté
-infidèle.
 
 À nous il nous était réservé que la pauvreté même ï
 nous fût infidèle. Pour tout dire d'un mot à nous il nous
@@ -1734,7 +1462,6 @@ parole que qui s'abaisse sera élevé, et que qui s'élève 260
 sera abaissé. Ainsi entendue, en ce sens, temporel, ce 5)
 n'est pas seulement la parole de David, Deposuit
 potentes; et exaltavit ; c'est presque la parole antique F4
-PETER
 
 | SR
 : Ce rt ee.
@@ -1776,7 +1503,6 @@ quand devenus jeunes lycéens nous entretenions des 54
 concours constants de sports avec les jeunes normaliens. 4
 Car on venait d'inventer aussi le sport, et de fonder “4
 cette autre fondation. Mais ceci m'entraînerait dans des $
-complexités. 1
 Ainsi M. Naudy vint vers nous comme un surdirec- Re
 teur. Officiellement il ne dirigeait que l'École Normale. "4
 Mais son activité débordante ne pouvait ignorer, ou Ê Fe
@@ -1784,7 +1510,6 @@ négliger la filiale. Dirai-je qu'il me distingua. Ce serait fé
 parler grossièrement. Il se fit bientôt mon maître et $
 mon père. J'ai dit plus haut qu'il était l'homme du 2
 monde à qui je devais le plus : il me fit entrer en A
-sixième. 434
 Le fils de bourgeoisie qui entre en sixième comme il
 a des bonnes et du même mouvement ne peut pas se 5
 représenter ce point de croisement que pouvait être ;
@@ -1802,10 +1527,7 @@ alors l'École professionnelle). M. Naudy me rattrapa si
 je puis dire par la peau du cou et avec une bourse
 municipale me fit entrer en sixième à Pâques, dans
 l'excellente sixième de M. Guerrier. Il faut qu'il fasse “4
-52 |
-_1v
 
-ME M MR RE E
 ne A L'ARGENT :
 du latin, avait-il dit : c'est la même forte parole qui
 
@@ -1869,7 +1591,6 @@ se temps. ' ÊTES
 On trouvera dans ce cahier les résultats d'une expé- F4
 rience de trente ans, poussée, poursuivie dans l'ensei- | “ae !
 
-TS Et |
 _ gnement primaire par un homme qui n'en était sans
 doute pas originairement, mais qui s'en était fait sans que
 | réserve. Par un homme qui s'en était mis entièrement, A
@@ -1914,10 +1635,6 @@ et de projets de loi, il les a eues, celles qu'il fallait,
 
 quand il fallait, depuis longtemps, puisées dans une |
 
-longue expérience.
-
-55 #
-
 cahiers de la quinzaine | PÉUEIES
 Je n'ai pas besoin de dire que je n'ai point changé FOR ke
 une ligne à la copie de mon ancien maître. On y trou- à À
@@ -1949,7 +1666,6 @@ Il suit qu'on trouvera dans ce cahier cette même
 ardeur de laïcisation qui emplit toute la vie de ces ;
 hommes, qui chez quelques-uns dégénéra en une fureur à
 |
-rè h
 
 | POSE EEE L'ARGENT 6
 
@@ -1983,7 +1699,6 @@ peu à mes définitions. Nous savons très bien qu'il n'y
 a d'argent que pour ceux qui entrent dans les partis
 et qui font le jeu des partis. Et quand ce ne sont pas
 les partis politiques il faut au moins que ce soient les
-partis littéraires. :
 
 Telles sont pourtant les mœurs de la véritable liberté.
 
@@ -1999,7 +1714,6 @@ indiqués sont toujours ceux qui réussissent le mieux. Et
 
 c'est ici une incroyable confusion. Et je ne hais rien
 
-RON US, Lg 0 2 EEE SRE NS DOCS ES
 © cahiers de la quinsaine
 | tant que le modernisme. Et je n'aime rien tant qüéla
 liberté. (Et en elle-même, et n'est-elle point la condition |
@@ -2012,7 +1726,6 @@ fond, à exiger), que le voisin aussi croie ce qu'il croit.
 pour ne pas léser l'adversaire qui ne croit pas non plus. Be
 ë Cest un système de déclinaison mutuéllé. La liberté. 4
 consisté à croire. Et à admettre, et à croire que l'advér.
-saire croit. ; :
 Le modernisme ést un système de complaisance. La -
 liberté est un système de déférence. 27%)
 Le modernisme est un système de politesse. La libétté
@@ -2065,7 +1778,6 @@ protestants qui trichent; les juifs qui trichent; les
 partis ; les Laudet de tous les bords. Et ça fait beau
 coup de monde. Outre que tous les tricheurs ont une
 . Sûreté pour se reconnaître entre eux et pour s'appuyer; l
-Din s
 
 er cahiers de la quinzaine “ ASE LCR
 F une sûreté infaillible ; une sûreté invincible; pour se. pe
@@ -2105,7 +1817,6 @@ est, qui il est, descende dans son être propre. Dans son
 
 être profond. Nous ne sommes pas ces purs jeunes
 
-LL HP L'ARGENT
 hommes, innocents et fâcheusement enthousiastes, candides, aveugles, si naïvement pieux envers leurs
 __ maîtres, que leurs maîtres ont trompés. Nous sommes
 ces enfants d'avant douze ans, ces mêmes enfants,
@@ -2125,7 +1836,6 @@ bassesses, de trahisons, de délations et d'honneurs, de
 s'assurer, de perpétuer parmi eux un gouvernement
 temporel des esprits. Ils ont ce qu'ils voulaient. Et au
 delà de ce qu'ils espéraient. Qu'ils ne demandent pas
-au delà,
 
 C'est dire par conséquent que le plus beau métier du
 monde, après le métier de parent, (et d'ailleurs c'est le
@@ -2136,10 +1846,6 @@ secondaire. Mais alors que les institateurs se contentent
 donc de ce qu'il y a de plus beau. Et qu'ils ne cherchent
 point à leur tour à expliquer, à inventer, à exercer un
 
-61 argent. — 4
-
-DE LPS AA QE LE LUE NS CL
-MSA 0e itahiers dé là quinsaine has
 | ÿouvernement spirituel; et ün gouvernement temporél |
 | des esprits. Ce serait aspirer à descendre. C'est à ce
 jeu précisément que les curés ont perdu la France. Il
@@ -2172,10 +1878,8 @@ monde, aucune honte à en parler. Et à en parler comme
 tel. Il n'y a même que cela qui soit honorable. Et qui …
 soit droit. Et qui soit décent. Il faut toujours parlée
 d'argent comme d'argent. Que les instituteurs aient le ne 1%
-SES PAU, |: 4
 
 FAR NE Mer.
-L'ARGENT
 RS droit de vivre, comme tout le monde, qui le nie, et nous
 Re le contesterons moins que personne, nous quine sommes
 588 pas seulement avec eux, nous qui sommes d'eux, nous
@@ -2207,11 +1911,7 @@ il se proposa de ruiner en France l'enseignement secondaire et qu'un certain nom
 petit nombre), répondit à cet appel.
 , Ici encore je me permets de trouver que ce ne sont
 pas les instituteurs qui ont tort. Ce ne furent pas les
-63 |
-SE :
-ET
 
-es
 cahiers de la quinzaine FIGE
 instituteurs qui furent les plus coupables, ni même les à
 véritables coupables. Dans toute démagogie celui qui A
@@ -2243,9 +1943,7 @@ primaire. Ceux qui étaient reçus passaient ensuite
 trois ans dans cette École Normale primaire. On recommençait : première année; deuxième année; troisième 5
 année. En tout ça faisait six ans. Avec le temps qui
 pouvait se perdre entre les deux à la coupure ça faisait
-ci
 
-LR ; L'ARGENT
 ia sensiblement précisément tout le temps qu'il faut pour
 _ faire des études, du commencement de la sixième à
 _ l'achèvement de la philosophie. Or ces enfants de
@@ -2275,7 +1973,6 @@ r'eussent point fait leurs études. Car enfin il est au
 moins aussi difficile et il faut au moins autant de travail
 et autant de besogne pour entrer à l'École Normale de
 Saint-Cloud que pour entrer à l'École Normale de l'enseignement secondaire. (C'est la nôtre, mes enfants).
-65 argent, — 4.
 
 : cahiers de la quinzaine | TRES F3 RS
 Alors pourquoi s'y est-on pris de telle sorte que le. © fe.
@@ -2311,9 +2008,7 @@ seulement très honorable. C'est la base de tout. Æ sait :
 ses quatre règles, disait-on de quelqu'un quand j'étais pt
 petit. Qu'ils nous apprennent donc nos quatre règles. Je 22
 ne veux pas jouer sur les mots, mais sans parler d'écrire |
-66 i
 
-D 'ERANEr ; ‘
 GA ce serait déjà un grand progrès, (puisque nous sommes
 Kt _ dans un système du progrès), que d'avoir, que d'être
 _ un peuple qui saurait lire et qui saurait compter. Et
@@ -2344,23 +2039,12 @@ métrique, qui est la raison même, et qui est si parfait.
 Parler aussi du système solaire, qui est une sorte
 de système métrique, avec des multiples et des sous67
 
-‘5
-
 |
-
-OUR
 
 | |
 
 |
 
-il { PA
-I. |
-
-(4
-
-IL
-
 |
 |
 |
@@ -2368,10 +2052,7 @@ IL
 |
 |
 |
-fl
 ||
-rE
-ÿ
 | cahiers de la quinzaine | |
 fi) multiples, et qui est réellement si grand, des planètes,
 H des satellites, de la voie lactée; pour les plus savants | |
@@ -2392,42 +2073,18 @@ ft barré“erticale, et où il y avait toujotrs des robmets
 ! (drôle d'occupation ien d'heures...); et il pure
 Fi] avait toujours d eubler. Et on nl Le
 { Qtipliait le tapis ) t 2 tien
-nl . 12 0272
-ki LT TS
-fl CRE CT TS
-[ai
-fl
-l
-h Li
 il
 il
 il
-ff
-]
 
-(HA
-\HRI
-M
-
-IN |
-{ DE É
-QUE j
-i1) :
-KE *
-\Hu
 |
-{4 mé ji ; Î j
 |
-LANGLOIS TEL QU'ON LE PARLE |
 ne sera peut-être point hors de propos de marquer un L' +
 peu ce que nous devons à nos maîtres de l'enseigne- 1 ,
 ment supérieur. Dans son numéro du 15 Juillet 1911 Le
 (Vème Année, numéro 7, Deuxième Série) (eux aussi +
 ils ont des séries), (Prix : 0,60), la Revue Critique des l +
 Livres Nouveaux publiait l'article suivant : À
-COMPTES RENDUS | j
-Pt | -
-* Cnances Péouy. — Œuvres choisies, r900-1gr0. — Paris, lu -
 Li rate E: de — Bernard Grasset, in-12, 414 pages, 3 francs 50. L: Uk
 san Ce volume de morceaux choisis a été composé pour || 28
 ETTE Tévélétau grand public un écrivain connu seulement, ( ‘à
@@ -2441,7 +2098,6 @@ pla. par ailleurs aucun moyen, et 11e
 vérifier si elle est exacte. { nl L
 public est un homme du ner
 de ferveur violente dans 11
-verdeur d'expression, 1:14
 ut d'esprit (çà et là, LEE |
 ourdeur). Rien de De
 pre (1) et, en même (11e
@@ -2451,12 +2107,9 @@ sans bornes, qui ne 1 di
 '" > d'envie — ce qui est LE |
 uffirme de la façon la DETE
 Péguy commencent par L L
-$ |:
-9 (
 | Sa
 | à
 
-: Fe TC TER
 cahiers de la quinzaine EEE Li
 multiples, et qui est réellement si grand, des planètes,
 des satellites, de la voie lactée; pour les plus savants Ë |
@@ -2477,22 +2130,16 @@ souvent les deux), (pour emplir et vider ensemble),
 (drôle d'occupation), (après combien d'heures..…); et il
 y avait toujours des appartements à meubler. Et on
 multipliait le tapissier par le prix du mètre courant. |
-CHARLES PÉGUuY :
 Langlois tel qu'on le parle. — Au moment où je viens
 d'indiquer, si mal, et si peu, ce que nous devons à nos
 maîtres de l'enseignement primaire, et ce que nous
 devons à nos maîtres de l'enseignement secondaire, il
 
-LT LANGLOIS TEL QU'ON LE PARLE
 _ ne sera peut-être point hors de propos de marquer un :
 peu ce que nous devons à nos maîtres de l'enseignement supérieur. Dans son numéro du 15 Juillet 191r
 (NIère Année, numéro 7, Deuxième Série) (eux aussi
 _ ils ont des séries), (Prix : 0,60), la Revue Critique des
 Livres Nouveaux publiait l'article suivant :
-COMPTES RENDUS
-
-CHARLES PÉauy. — Œuvres choisies, 1900-1910. — Paris,
-Bernard Grasset, in-12, 414 pages, 3 francs 50.
 
 Ce volume de morceaux choisis a été composé pour
 révéler au grand public un écrivain connu seulement,
@@ -2515,7 +2162,6 @@ des plaisanteries d'une incroyable lourdeur). Rien de
 vulgaire; mais quelque chose de très äpre (x) et, en même
 temps, de geignard; et aussi, à l'occasion, de roublard.
 Bref, un type dans le genre de Michelet, proportions
-gardées.
 
 Ajoutons : un orgueil frémissant et sans bornes, qui ne
 paraît pas toujours pur de tout alliage d'envie — ce qui est
@@ -2564,7 +2210,6 @@ ou yieux, qui, quoiqu'ils aient aussi plus ou moins souf- “Fa
 n'en ont pas fait, depuis, tant d'embarras. Il a été dreyfusiste; mais il ne saurait se consoler que l'affaire Dreyfus
 À n'ait pas amené le règne de la Propreté sur la terre, et,
 subsidiairement, la glorification personnelle de ses MEME
-30 ne
 
 | lburs combattants. Quoi, nous avôns été soulevés parune
 es telle vague d'enthousiasme, nous avons été si « grands », me
@@ -2615,7 +2260,6 @@ thies a priori du beau monde, si grossièrement méprisant, ÿ
 FE (1) Il y a bien : « et de l'Empire », — {Note de la Revue Critique).
 
 cahiers de la quinzaine “+3
-%, .é EE
 d'ordinaire, pour ceux de sa race. Le beau monde, c'est-à*
 dire les gens qui, s'ils avaient pu, il y a dix ans, soupçonne L
 son existence, n'auraient pas été éloignés, avec leur bruta- js
@@ -2641,8 +2285,6 @@ déplaisants. On y a découvert notamment, depuis quinze :
 ans, la grâce exquise de Charles-Louis Philippe et l'étince- ca
 lante fantaisie de Bernard Shaw. N'y passez pas” s'il vous ie
 plaît, sans jeter un coup d'œil sur les essais incohérents de Ô
-Péguy. F.
-Pons DAUMELAS. |
 L'article que l'on vient de lire est de M. CharlesVictor Langlois, professeur à la Sorbonne, et je pense
 directeur du Musée Pédagogique et autres. Aujourd'hui
 directeur des Archives Nationales. Pons d'Aumelas est
@@ -2676,9 +2318,7 @@ quelque chose qui la dépasse. Avec une obstination
 sourñoïise et aigre, et basse, avec des lâchetés constantes d'écriture, avec une hypocrisie laborieuse, avec
 un acharnement fatigué M. Langlois m'accuse proprement de vénalité. C'est pour faire ma fortune littéraire
 et pour gagner une fortune d'argent que je me suis
-publiquement déclaré catholique.
 Il est évident que quand je me mettais le matin à ma
-73 argent, —5
 
 RS AR RUOAT ce
 cahiers de la quinzaine FANS
@@ -2690,9 +2330,7 @@ me demande d'abord combien ça va me rapporter. On |
 sent ça dans tout mon texte. Et il est évident que les
 vingt ans de peine et de production que j'ai derrière |
 moi m'ont au moins assuré une grosse situation d'ar- 1
-gent. :
 L. — c). — Eh bien sur ce point je suis en mesure de
-rassurer complètement M. Langlois. Si M. Langlois |
 savait un mot d'histoire il saurait que depuis que le
 monde est monde les catholiques n'ont jamais soutenu
 leurs hommes. Si les catholiques avaient soutenu leurs
@@ -2710,9 +2348,6 @@ dire respectueusement, dans la mesure où un pauvre a
 encore le droit de parler à un riche, il n'y a pas seule2. ment une sorte d'indécence propre et d'indiscrétion, il
 n'y à pas seulement un manque de propos et un manque
 de goût, il n'y a pas seulement un décalage et une rup74
-!
-
-LÉ Fa LANGLOIS TEL QU'ON LE PARLE
 
 . ture de convenance, il y a une sorte de cruauté froide,
 et préméditée, il y a une sorte de basse dérision à ce
@@ -2744,13 +2379,10 @@ moi) : nous demandons que les universitaires qui ont ‘
 moins la paix, nous qui avons épousé comme nous
 avons voulu. Nous demandons que les coureurs et
 
-ER US
-AS Lo OR See ER
 pre cahiers de la quinzaine
 î même que les amateurs de dots respectent au moins
 ‘ notre pauvreté. C'est entendu, monsieur Langlois? et su È
 Ni trouvez-vous à présent que je suis assez geignard, et pe Ée.
-assez roublard ? 140
 L. — f). — Ici j'ouvre une parenthèse, monsieur Fe
 Langlois, (vous voyez que je n'en ai pas perdu l'habi- n:
 tude), et je vous fais à mon tour une querelle particu- ÿ D:
@@ -2779,9 +2411,6 @@ M. Langlois fait les sept génuflexions devant M. Lavisse
 et l'entoure d'appareil, ce n'est pas M. Lavisse qui a 1
 tort, c'est M. Langlois. Car je vois votre nom, monsieur s
 -
-76 +
-
-TES |
 
 ss Mr _  LANGLOIS TEL QU'ON LE PARLE
 
@@ -2828,7 +2457,6 @@ M. Langlois. Si on ne fête pas en M. Lavisse l'adminis-
 , 77
 
 Le ; cahiers de la quinzaine
-LE M a CNE j F9 7 OST
 Lo _ trateur et le fondateur et le réformateur et le gouver- $ À
 _ neur et le régulateur, l'homme temporel, c'est donc ‘1e
 l'historien que l'on célèbre. Et c'est ici que je demandeà
@@ -2861,7 +2489,6 @@ quefois devant les puissances temporelles. Et ici je |
 ferme ma parenthèse. dr.
 L. — g). — Et il faut que je me résume. M''accuser
 
-LCR LANGLOIS TEL QU'ON LE PARLE À
 ne _ de vénalité, c'est une sottise; et une grossièreté. (D'une
 PE double vénalité, d'une vénalité de gloire et d'une véna-
 . lité d'argent). M'accuser de vénalité quand on est riche,
@@ -2887,7 +2514,6 @@ point dénuées d'une certaine sévérité. C'est la règle que
 le directeur couvre les pseudonymes, quand ils ne se
 couvrent ou ne se découvrent pas eux-mêmes. Non
 seulement M. Langlois laissa M. Rudler payer pour lui.
-Non seulement M. Langlois laissa M. Rudler exposé à
 ma célèbre cruauté. Mais depuis plus de dix-huit mois
 que ça s'est passé M. Langlois n'a jamais demandé à
 reprendre sa place, il ne s'est jamais resubstitué à .
@@ -2927,7 +2553,6 @@ _ la communion des saints. Mais ils veulent bien qu'ily /
 _ ait les promotions d'École Normale. |
 L. — 0). — Ces terribles athées ne veulent pas qu'il
 y ait de bon Dieu. Mais ils veulent bien qu'il y ait
-M. Lavisse.
 L. — p). — Ce fut une bien grande imprudence que
 . de célébrer avec tant de fracas le demi-centenaire de
 l'entrée de M. Lavisse à l'École Normale Supérieure.
@@ -2953,8 +2578,6 @@ ne jamais parler que de ce que nous ne connaissons :
 pas. Ainsi ils paraîtraient toujours des aigles. Ce doit
 être bien agréable, d'être un aigle. Non point que je
 
-81 argent, — 5,
-
 LAN EL TT caRiére (de la nn PRE
 | veuille dire que si Charles V revenait il ati due deu
 ë M. Charles-V. Langlois est un aigle. Et non point que re
@@ -2969,11 +2592,9 @@ _ Quelle idée alors de s'en prendre à quelqu'un de vivant; +33
 et qui est là. Restons un aïgle, monsieur Langlois, i*
 #. comme disait Victor Hugo. Et travaillons dans les … SA
 ñ morts, comme le fait M. Lavisse. 0
-HE
 L.— r). — Ce Charles V, ce Pons Daumelas sont
 2 beaucoup plus accommodants. Ils ne reviennent pas #4
 pour nous dire si c'est vrai, tout ça. C'est une bonne
-matière. Aucune confrontation à craindre. Monsieur … +
 Langlois, restez dans les matières où nous croyons que. :
 k vous êtes un aigle. F: 4 :
 L. — s). — Heureusement que moi-même je suis un Me
@@ -2987,9 +2608,7 @@ ne sont point épuisantes de la réalité de ce document. |
 que j'en sois lhumble matière il faut bien que j'avoue
 que c'est une question historique. Reprenons l'article 2
 de M. Langlois, puisque c'est notre document. Ni la A
-82 Le
 
-i; : TR _ LANGLOIS TEL QU'ON LE PARLE
 : 48 méchanceté naturelle au plus éminent de nos bons
 18 #4 maîtres, ni l'aigreur, ni la furie, ni la fureur ni l'âcreté
 à _ ne suflisent à expliquer tout le ton de cet article. Elles
@@ -3047,7 +2666,6 @@ _ envoyé sur mon auguste figure un article de gueule de : 4
 bois, mais cet article n'était point de gueule de bois 4
 ordinaire, et comme dit M. Laudet, hebdomadaire. | :
 M. Langlois m'a envoyé un article de gueule de bois |
-nationale.
 Dix-huit mois de recherches acharnées, dont on ferait el
 une thèse, m'ont permis de reconstituer, jusque dans le : {
 plus humble détail, la journée précédente. Je sais,
@@ -3055,8 +2673,6 @@ minute par seconde, tout ce que fit M. Langlois dans la :
 journée du 14 juillet 1911 et pourquoi son article du 15 h
 était si excité. Le matin du 14 M. Langlois, dont la $
 fureur patriotique est bien connue, s'était violemment ;
-he
-?
 
 nn d è _  LANGLOIS TEL QU ON LE PARLE
 Ne excité à acclamer nos vaillants petits troupiers à la
@@ -3089,7 +2705,6 @@ se pose une question. Quand nos maîtres ont inventé la
 méthode, quand ils l'ont introduite parmi nous, fut-il <
 entendu qu'ils se réservaient, eux seuls, le droit de ne
 pas la suivre. La loi est faite pour tout le monde. Futil entendu que nos maîtres introduisaient la méthode
-FFE 85
 
 \P 1 CAE cahiers de la quinzaine
 pour que nous fussions forcés de la suivre etpourque Qu
@@ -3104,7 +2719,6 @@ même que pour nous M. Lavisse peut être un historien “ Re:
 mais que pour M. Langlois il ne peut pas être un histo- L +4
 rien, de même pour moi je puis être une quantité négli- va j
 geable, mais pour M. Langlois je ne puis pas en être 12%
-une. | 27
 Dans mon système je puis être négligeable, parce 0
 que je peux me considérer comme infime. Dans le … à.
 système de M. Langlois nul ne peut me considérer 4
@@ -3125,7 +2739,6 @@ Dans mon système je puis me contenter de trois LS
 quarts de page et trouver que c'est encore beaucoup
 trop pour moi. Dans le système de M. Langlois je ne K
 
-D A ON PEN A PR EE CR 7 4
 16e AN dec on
 me _ LANGLOIS TEL QU'ON LE PARLE
 puis me contenter de trois quarts de page, parce que Fa
@@ -3144,7 +2757,6 @@ Le système de M. Langlois est un système démocratique. Il n'a pas le droit de
 
 Dans le système de M. Langlois il n'y a ni héros ni .
 saints ni Dieu : tout se vaut. Alors moi je vaux bien les
-autres.
 
 : Notre système est un système de la dignité ; (et de
 À l'indignité); dans mon système je puis me déclarer
@@ -3158,8 +2770,6 @@ a droit au même traitement. Et moi dans tout le monde.
 Tout le monde a droit à la même dignité. Et moi dans
 tout le monde.
 
-M. Langlois peut me détester, M. Langlois peut me
-
 _persécuter, M. Langlois ne peut pas me négliger.
 
 M. Langlois peut m'en vouloir plus qu'à tout le
@@ -3172,11 +2782,9 @@ comme objet de son mépris il ne peut pas me mépriser;
 comme étant devenu sa matière il ne peut pas me
 mépriser, il ne peut pas me négliger.
 
-D N  n
 PU 10 7 © | cahiers de la quinsaine D: 2e
 7% Aussitôt que M. Langlois, historien, parle de moi, je | + 4
 A deviens matière historique, je suis revêtu de la dignité 5 * .
-historique. ; LS
 “ La méthode de M. Langlois consiste à soumettre àun
 ne 3 certain même traitement, qui est le traitement historique, +0
 3 tout le monde également, tout le monde sans aucune . SO
@@ -3206,10 +2814,7 @@ tion, écrire un mot sur un objet (d'étude) avant d'avoir J
 épuisé et la documentation et la littérature sur cette È
 question et sur cet objet. Qu'est-ce que c'est alors que cet
 air de fantaisie que prend ce Pons Daumelas et ce genre |
-88 à
 
-QU Cu  LANGLOIS TEL QU'ON LE PARLE
-FT F4 M f
 se cavalier et ce genre bel esprit et cet air de dire, parlant
 _ de mes Œuvres choïsies, et en faisant le compte rendu
 dans une Revue Critique : Vous savez, je ne connais pas
@@ -3225,7 +2830,6 @@ Mais qu'il la quitte. Ou bien qu'il la garde. Qu'il soit
 Pons Daumelas. Ou qu'il soit M. Langlois. Qu'il ne soit
 pas les deux ensemble et dans le même temps. Qu'il ne
 joue pas, ensemble et dans le même temps, le vêtu et le
-dévêtu.
 
 Tant qu'il est M. Langlois je réclame ma documentation et ma littérature. Je veux dire que j'exige qu'il ne
 parle de moi qu'après avoir épuisé la documentation et
@@ -3277,10 +2881,7 @@ scientifique, et comme gouverneur de la méthode scientifique, de sorte que M. L
 mentir à lui-même, qui ne peut se dérober à la réputation qu'il a, qui ne peut se refuser à la réputation
 qu'il a si justement, à la réputation qu'il a acquise ; de
 sorte que M. Langlois sur la couverture authentique
-Ê
 
-'É _ LANGLOIS TEL QU'ON LE PARLE
-Eu . 4 2 …
 sé _ Pons Daumelas à l'intérieur ; M. Langlois sur la couver_ ture garantit la méthode scientifique de Pons Daumelas
 _ à l'intérieur; et le pamphlétaire Pons Daumelas à l'inté-
 .. … rieur jouit de la garantie scientifique et de l'autorité de
@@ -3312,7 +2913,6 @@ méme rapport professeurs et pamphlétaires.
 
 L. — +), — (Dépêchons-nous, mes enfants). — En
 
-PU NT PONT AT UE NET ai AO TLA PR ND LT AE * d
 Ru NT UNE | cahiers de la quinzaine
 titi _ d'autres termes je veux savoir si, quand je me trouve
 en présence de M. Pons Daumelas, pamphlétaire, e 118 :
@@ -3328,7 +2928,6 @@ AGE maîtres jouent des deux mains, et à la fois sur les deux 110
 L. — x). — D'autant que M. Langlois, sous son
 propre nom, sait fort bien avoir une opinion littéraire. 2
 Ce qui fait presque trois rôles, et non plus seulement
-deux. M. Langlois historien, M. Langlois critique lité.
 raire, et Pons Daumelas (M. Langlois) pamphlétaire. … « Gela ne fait qu'accroître la confusion. i:4
 Car M. Langlois lui-même et sous son nom a presque #
 découvert un grand écrivain. Ou il a découvert presque K
@@ -3338,7 +2937,6 @@ sur saint Martin, (celui de Tours). Dans cette même 4
 Revue Critique, numéro du 15 janvier 1913, M. Langlois Î k
 écrit : Ne
 Les démonstrations dont ce livre est tramé.…. ; |
-A
 Ce livre c'est le livre de M. Babut. : |
 Les démonstrations dont ce livre est itramé sont d'une à
 vigueur et d'une élégance rares. Qu'il y en ait, çà et là,
@@ -3350,7 +2948,6 @@ ne gravité. Il vaut mieux constater, pour finir, le plaisir sans |
 Na mélange que donne, d'un bout à l'autre, le style simple,
 … discret, fort et plein qui contribue à faire de M. Babut un
 _ des meilleurs historiens de la génération nouvelle.
-a Cu.-V. LANGLoIs. ;
 j On voit que M. Langlois sait louer. Ce serait une
 erreur de croire que M. Langlois ne sait pas louer.
 M. Langlois n'est pas toujours revêche. Je ne sais si le !
@@ -3367,28 +2964,8 @@ raffinée, elle eût peut-être moins emporté le suffrage
 de M. Langlois. Le travail, on le sait, consiste à
 démontrer que les héros et les saints n'existent pas.
 Si j'avais démontré que Jeanne d'Arc est une gourgandine, M. Langlois trouverait que je suis un grand d
-écrivain.
-Charles Péguy
-ven |
 
-EAN 10 DTA DU ON LUS AN EP OPA Er NSP MNT Dr OA es AP ARRET AA AC SRE GS “
-
-ONE EN PL N D We (A NSTSRA LS OS PME ra At (TES
 ds is A EAN vu lé tt AL TN
 
 D EU IE A AL se Mer M Oo EE DRE Le :
-Pi A à HA ROME CRM GA ENT FA Eu ET E PRLLPIES À FN AU LM/CEE Ê
-Le AN PA ER MTL (a RATE NNReES
-RAA nu 4 NN Ÿ \ PINOT : LS AT DR CT] Ve SM +44)
 L'ORPENNE NES t L ii 4 AL 2 RUN PONS
-Et 2 HAINE 4 1! \e A if û 117 42 RTS ;
-NES UE à LU } H H REV É::
-
-ji SNS : ( | US UETENEES
-nn IE | SOINS
-as VE k HS) À \ LR SE Res
-ANS OO
-AMIS TER ETES na AU 7
-se RTE F CCR
-HI a SUN ai ÉUS NOR
-F 4144 |, (We q JA AA ‘Male

@@ -7,33 +7,13 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 39441
 ---
-
-UTP NT TU MZ QE PR ED NE EST UTE SPORE Le RSR AO RE PRO 5. 2.19 PNEU OR
 a bac sa do. US
-CR As, ANR ER UE CRC CC Seat" DAS
-Re NEIL ET a AL ES
 FA on xél Sn ee TER TRUSTE D Se TEE Are %
-A 5 Feu
 USINE Sa nie AL PERS
-on 242 si no " J Ad J #7 j x Fe
-42 vue SRE 3 y | 14 PUS 1
-7 RAR ODA +4 | w°
-a Zip LAON Fil : SAR ; à
-$ MR x 4 Ve < 14 ne.
-, # x LH NEDE J nl $ me Later Â
-L'LTONACRPIRSERER ; ; x ERP
 TRE F0 is ] 4 JA5 À ce VER ne
-k Ju FÉES RS nn ee
-M) Vo
-: EX 4 0 x 4 1 =! LC QE CUNR ERNET
 Ne AN e RD RARES Lana en Sr S HE RFA LUE ANERS
-un Eu 0 * d 0 A; L » 1 + LE NL RSEL #
-sh na Nr 2 + Far CAIRN A OA TER CCR
-ST SR RO TR ENS EE 1
 MR 2. ut Ad nr, : Te LP £ L'ATTENTE fs she PL
 ME T D 7e re CIE MY dE ro AA LAN VRNTEE pa
-
-M
 
 Il est impossible de suivre honnêtement le mouve- j
 ment littéraire, le mouvement d'art, le mouvement
@@ -74,57 +54,22 @@ blanc de XVI + 164 pages; in-18 grand jésus; nous
 
 | QUINZIÈME CAHIER DE LA SEPTIÈME SÉRIE
 les cahiers d' Arnold Scherer
- GAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-AA 3 TS PR À MAR DA ah
-Me LE PAL ARRET NE CARTES HècÉe EUR Ar ARE ONE"
-ARTE TA (DRE ONE ER PE FL EME 2e ARE SN LA}:
-F4 + PORTES ES) FEU OMTR Lars RARE St Eee dal +
-MALE D'ART NES VE TP SRB TA En AE E 2 FRANS Les
-ë { as À Û $ Ra, L'TLT EN ES NE REERREE
 Tel sreos A PR RE ERA EU TER PAR MP RO Ur A RE € Es Mt à 4
-LÉ AE 5) 2 EUX ; re RER Rire ve RE %
 A ne ART Ain x LUE » Lo EMI SAME k
 ANR Dors + Le PIS EEE
 LS Cr ft à + Le FUN EE TONER F3 Tee Se ET 5 À
 au , certe j. ; ar AN Et le. ! SCANS
-FRE SCE La À Dave 5 Nr Re RON AE :
-TE Ù + ÿ er En RAT L'ART FPE
-ARE 417 (rs (C7 PRE 4e 1 HITS N NON CE SAIE RRRE TT) WT
 È L 4 TRUE Ve Pape TOME VERT EN
-HS , "à, 2 : , À ve | ATTIÈNES s
-RE EU Ç Et 4” VAUX + ASS
-Ua À 4 . BNUEPNI NX: CARRE 1À 7 ENTENENRES
-vs CT UE ; 4 170 ei RE RE EeS à
 OL 6 #1 ie “us RENNES Une t
 
 Rene PAL RTS AU (il fut (e APR (94 ( Are" ATEN D M PA
-HR AREA 1 SORA
 # QI Ÿ AA RE
-FO ANA s fo 14:
-L'HEURE } ! UN ANT)
-20 FR | | { él AIN SAN
-Pen RUE NA LUE gt
-SN PURE : (3) ARR
 MAL Vox et ; AASTTENS
-EN UT TRANS x } PA
-DE Le MNT ER z ‘ AlQUR
 | PÉNALES EE | NME
-Le NUS RARES 1 (1e
 AI ne La ae à fl if M À |
-PANNE l Le 0 K4 pa AA
-DER Al he “ x Mt
-LUN nl Arnold Scherer. 1 "M
-1 RIRE ! : 300
-LINE. ARTE 1 1e CAN Vannes CR TRE AN
-AE LR PRE 2) PR BAATTRTO RENE EEE
-
-? : de.
-
-Ne LATE
 
 ai Nous avons publié dans nos éditions antérieures et nn
 
@@ -160,8 +105,6 @@ A teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, |
 
 “+ le catalogue analytique sommaire, 1900-1904, de nos
 
-g cinq premières séries.
-
 à t Ce catalogue a été justement établi pour donner, 1
 autant qu'il se pouvait, une image en bref, un raccourci,
 
@@ -177,12 +120,7 @@ W { place, les références demandées. ‘A
 
 je très épais de XI1+/08 pages très denses, marqué cinq
 
-a F 2
-
-va AM
-
 a AA. D NAN A ta a LE PAS ph
-SNA)
 francs ; ce cahier comptait comme premier cahier de la À nt
 sixième série et nos abonnés l'ont recu à sa date, le si
 2 octobre 1904, comme premier cahier de la sixième SE
@@ -206,7 +144,6 @@ série en cours, le reçoit, par le fait même de son abonne- KA
 ment, en tête de la série; nous l'envoyons contre un f
 mandat de un franc à toute personne qui nous en fait l
 la demande. f:
-} \
 Pour la sixième série, année ouvrière 1904-1905, et à
 en attendant que paraisse le catalogue analytique som- \
 maire de nos deuxièmes cinq séries, 1904-1909, on tÿ
@@ -215,38 +152,16 @@ analytique très sommaire que nous avons publiée en fin L
 de ce cahier index.
 
 #7 ON AO SU" LR MR de 14 AQU NC PR ETAT Te Ab} | AM
-RE LU A CIM EAU A RUN ECM ENS
-SON ER OT NA DES RTS TER NI IN ALES ASE 2S ANSE DENT (A ENS
 su Vs UP MON NS, MEURT Se FRA n4 MR TRE ONETE tue A su MAN
-1 6e UN TA Fe ÿ k » RAS LT T0 KO NE
 | 10e
-VA: ea HE 2 a
-A He bat F + 2 COPIOENR Qi" h
-2 1x MATE SES FA AR k
 de ae \ Au Sa REA |
 LES RE Gh: (MATE RLUES hs
-* AE AUS - 4 PAPAS nt À 4-0 F:
-L ï MOTE f y + LL \ 0 “Ÿ
-à NN t * NO ; HA dE
-RENTE \ V- TT RTE
 | RIRE 19 RU EE
-} \ pt 3 N - à LODINOMTECE FR LPS F
 \L ESS NUE be! nn MeMErE
 # ri à \ s . H te at IAURUR LA
-ME Ne ñ ' My VA À A PH
 DA LL à \L AUTO TOURS KA Eté
-VE." YA 1 IG PNA ANS
-LT 14 f \ 0 U re) aus À
 4 ist LA lits
-RMS MF AANLES
-4e M: tr à 4 # il TN 3 ) 1 AEAUS
-)\ ER A x 11% ll JON as lu]
-JAe Ke (ON 4 ÿ QUE. LA À, a
-: FN ÉRAN a 00 NU AI RNIeNSS
-pH GIE ANEENU Ju not Di) LT RReEe ETES
 
-ë NY
-ARNOLD SCHERER 1
 B Arnold Scherer naquit le 17 août 1853; il mourut à ne
 Menton le 8 janvier 1873. Les extraits de journal qu'on Hu É
 va lire furent donc écrits par un garçon de dix-sept : HE
@@ -270,10 +185,7 @@ ses impressions dans ces notes. Minutes de fièvre qui x
 1 mürissent, qui vieillissent plus que des années! La com- 118 à
 . motion qu'Arnold en garda, j'en trouve la trace en des F À :
 
-RP Et DA PTE PUNTO TE US SEE EE 7e DU ALERTER
-Gabriel Trarieux
 papiers trop intimes pour être imprimés, dont je détache
-quelques phrases : è
 
 Je suis très ambitieux, écrit-il en février 1872. Ma pensée
 entière, la voici (et je n'ose songer au cas où elle ne serait
@@ -306,16 +218,10 @@ en vérité, ni l'un ni l'autre. Arnold Scherer, en mourant jeune, a moins perdu
 changé quelque chose? La question peut paraître enfantine. Cependant Bersot, sur sa tombe, qui ne parlait pas
 à la légère, dit ces émouvantes paroles :
 
-\
-
 Quand on réfléchit aux dons qu'il tenait de la nature, à la
 puissance du travail et d'une direction comme celle qu'il
 recevait, on se demande, et c'est l'éloge singulier de ce
 
-if
-
-À ag MOSS RONEe VENT ARS SG OA A AE 0 EG
-d 7 ARNOLD SCHERER î : LENS
 A _ jeune homme de dix-neuf ans, ce que le pays aussi a peut- |: 104
 | être perdu. a.
 Telle fut cette destinée, plus touchante d'être si D
@@ -323,7 +229,6 @@ _ brève, pareille à ces marbres brisés que, malgré leur BRL!
 _mutilation, on sent animés d'un beau rythme. Elle nl
 _ évoque ces vers de Sully-Prudhomme, ces vers poignants 5 FE
 de l'homme d'étude aux conscrits tombés sur le champ VAS
-: QAR
 : de bataille : Fe
 Nous lutterons aussi, nous qui sommes restés, \ ‘à à
 O fils des paysans vainement économes!.… qe M
@@ -331,40 +236,14 @@ O fils des paysans vainement économes!.… qe M
 - De ces morts fut Arnold Scherer. Il mérite qu'une : METRE
 main pieuse grave son nom sur un petit livre, comme DEA
 sur une urne funéraire. Puisse-t-elle arrêter le pas- 14 iU )
-. GABRIEL TRARIEUX 4 Fi
-ai
-FAURE st w
-ASE 1
 
 1 A ji fl Fe de qi ff SU hu AE BAT a HAN RUN
-Rp AR FT AQU MR EN IR PONT ANT A DANS
-MAO EPA EAU LE D ASAAE | \nt HU (EST EMA DRM MS ï Ê
-SN AR ARS NL NL PAT NCE LENS INNe RSA EAN RO ALU À k
-CANNES 4 9 DEA OPEN EME NT à :
 \'E fl re A ; \ ART AE TA EME F4 ï k
-LATE pe) ft, £ { ! 4 VE VA AR Mt: nl ) 4m à
-1 RARE ] Aa (RS 156 00
 |: et : : HAL VAN ORAN ESS
-DEAN (A j LU TS MER at à
-$ Gant à # VU AS TEE AL AS LE
-LAGRUIURE \ AA OE à LR NL TEE
 ton AU ANA * NL ( MENTON
-RUN LRANMAUES nes
 (1 ON er x Er A RAM re ;
-PALAU * : VAN
-Ha PA : CHA PRO UNI EE h
 as qe RNA de LEN AN SUREER Re
-Re A fe SA) D ER OT
-! RS MA MN TERRS
-TE AN Un
 V'ugl M ï . Ex de HAMIRES k
-n +! ll 1 d Ré8T a}
-MEN EE Ré SAONE EN DE En #4
-A n RLAQNE ‘Ni t
-0} ROUNAS } Ê 1e Re 1
-\ MURS ‘ { i MER ot
-ee NN A LAURENAN
-10 L) (PERS PATES A | (Ur PEN ù Na
 
 Î Discours de M. Ernest Bersot 14
 RER. prononcé sur la tombe d'Arnold Scherer Ÿ à LR
@@ -390,11 +269,8 @@ médiocrement. Il fit son modeste début d'orateur pen- Hs
 dant l'invasion, devant les enfants de l'école primaire 42
 de Sèvres, interrompu de temps en temps par le bruit 4 A
 des batteries voisines ; il leur parla et très bien de ‘ji
-nue 9 Arnold Scherer. — 1. ‘4 à:
-UNS CLR
 
 discours de M. Ernest Bersot ki
-ÿ
 
 Jeanne d'Arc, de ceux qui, ayant foi en leur pays, ont ;
 réussi à le sauver. Plus tard, ce fut devant les enfants
@@ -426,9 +302,7 @@ tout le monde, et l'enfant le plus tendre et le plus
 caressant. Il ne lui venait pas à l'idée de mal user
 d'une liberté qui lui était familière, et il avait, pour
 se maintenir, les bonnes passions, qui préservent des
-mauvaises.
 
-EX SUR LA TOMBE D'ARNOLD SCHERER : 1e
 Il aurait fallu à cette âme ardente, au moment où LA
 -  s'opérait le travail dangereux de la croissance physique, FR
 un régime de calme, d'apaisement, que les événements :#4
@@ -458,8 +332,6 @@ s'ils avaient encore un père ou une mère à qui ils vou- ? miel
 laient écrire, et ce qu'il fallait leur écrire pour ne pas 1
 les inquiéter. 24
 Encore étaient-ce les meilleures heures, celles où on ‘5
-LL . 11
-io à Ja + 'UBG
 
 ee ET A ER NE NE
 
@@ -521,7 +393,6 @@ demande, et c'est l'éloge singulier de ce jeune homme !
 Dieu seul le sait, car il sait seul quels fruits auraient
 
 ni donnés les fleurs de ce riche printemps. ; |
-Ne 12 À
 
 | 1 4
 
@@ -532,7 +403,6 @@ vive flamme qui a été assez forte pour dévorer ce corps #00
 nest pas éteinte ; l'indestructible société de la famille et ; va
 de l'amitié subsiste; la mort a beau nous envelopper de LA 4
 sa nuit, ceux qui s'aiment et se cherchent sauront bien A :
-se retrouver. ue % ;
 Adieu, Arnold. Blessés français, qui reposez dans ce À k
 cimetière, vous connaissez cet enfant; recevez-le, c'est \ 14
 un des vôtres, un blessé comme vous. Pour. vous, mes Li.
@@ -554,169 +424,39 @@ vérité et la liberté. Vous avez tous les deux la douleur ” HA:
 généreuse qui se modère par peur de la douleur que À 45
 l'on sent près de soi; puissiez-vous étre récompensés de Ne
 votre bonté, et puisse la paix rentrer un jour dans vos ne 4x
-cœurs ! ji À
-"1 VE CRAN
 
-CADRE EE A SN ER RT PACA MEESE VAT 2 ue SPF ÿ
 RE. ra Met ï Le a AAA AL LE tn 1 AA AN AN
-RS A A PA AN (ÉTNOTOERE
-L NRNN SaA VARIE Vote RUB E RE 4 API ERREE
-‘LUN t Ÿ RTE AT
-2 FO GRR Te LM FO NREUERRRE
 ?) je ANNE MS RERO
-VER f ÿ = Ris 48 RUE TE
 |A d } FAST
-Me 1 0 ; \ AE Ass Le
-“& dt PACE \ VAR EU M2 à 00
-nu NN EM EE
-10e LORS î EAU CON #
-RUN à Ÿ sh MARGE :
-À De 4 ANA f ACTA RUN re ‘700 41
-SRE , de NE < #0]
-1: PSV \ jt TAPER Sr
-NA CIREN te RAUL EE EUR
-- LU REENR AT NUS j
-TN : S ÿ À 11 ERRS
-UT ‘ A { « NE SEA
-(HIER (ENT HO
-Aa { AT ALU 8
-+ PE à 1 A 6
-nb FATEI Vi XA
 ka M, MC NE LATAS
-‘1 | ATOS
 4 lu NME (et “At ë AE À
-AMONT * A
-4 E { F L VS"? TRANS
-PATRINNN ET x 148) 18 Ke
-} HN MONA) 13 VUE
-À f LVL Ê # Par)
 TE UN CHE à LAN ER Ver
 
-ji 0 ii AU PAC a su Fi fée APANER ‘4 jt W
-FA FA Le ; Ü PA
-LE ÿ NY IEEE
-4 23 { AT
-" À ‘ ki QAR LE L
-pa ‘ A3]
-fr! d 5 ‘ Ÿ FASO
-$ $ 1,4 10
-+ CRE" à
-k QE {
 je Ê ÿ AR
 des cahiers d'Arnold Scherer
-2 fa 0 AR Lau
-PATaE PEyT 1 \ ES
-:$ 2 ANT) AR ES Lt #2
-RE “ CG us
-7, js 4 À (SR
-AA LIN
-; #4
-He a Pa, ; - ; Vin M
 
 SON PA RER da ae e ANT EAUAUS AL HASS (VE a?
-( à e # he) 1) s À “ot un RL We
 ‘QUE p ire
-7 VAR) PAR NE L 2 ds)
-AC de 4 1 QU, 4 CARTER
-ARTS 4e x Re: IS MURAL
 purs ” , Sur CPAM |
-CS MUST) f ut HT TND 148)
-LR sol A PU CR
 CUITE sl nel À Ne Fa nt
-!'TS INR DERNS AO AE AU Te NE :1
-ERA 14 49 SR HN
-DE. QU 14 à ZAR 1
-Re cru JOUER URS
-a RATES +16 VA IAE
-pi Ÿ A Ne « y “a SRE:
 r'A PSE RATE Le tt
 CAR pe MAP tU Er
-LACNEN x Ê À 60 HET TER
-11, SAR GT ATEN + ANAL ARNO
 NE 0 ' eue PAG UN, PRÉSTANENNNES
-1 LPUROT Re RS Re
-1 ? 4: N Ji il : RAD
 jh, FRA STONE A: po ui SRE NE LA
 
-F L 1
-Fat {
-mn :
-Hi 4
-{ii ;
-h
-nn :
-Ë .
 |
-:
 
-CE
-4 Fi |
-Fo |
-{ : tu
-/
-[T1
-, “RQ |
-
-CU
-
-ke 5 0
-à a
-? e + La
-< |
-
-14 E ER 2 ais PR 7:
-e be EL RP LÉ I ATRES is
 de RS CRI nr
-l j é RS + a
-.: { , Bt.
-, + eu -
-l 7 EE
-“=. n 2,5 L F4
-en.
-RL.
-ANS El à ME TER 4
-TR IE a"
-1. LA =
-: UM La En L +
 à ne, Da car
-“ ra
-“| F1 D "AE
-À …: SÉRIE
-À : £ | ER rie : ï
 | : re ru JS
-ÿ Le si RL "
 | 3 S \, EUR
-À : Te Pl Ti
 sa | Te LENS ENTREE æ
-À ÉD T Mr
-2 r* EL LS
-LA EUR | É : : T0
-U = LA"
-x ; el +, # » J
-= x à CE: (1 | .
-« 4 5 Je"
-J 4 PRE - A") Ro
-5 $ . : . St . LORS
-; Do
-ri :
-a :' ;
-;. “ 178
-+ : _ | ll s
-El L ; : er : ? L
 kr, Lex en L it LL :
-“« ù 2 rt : Pr. 2
-RL D : -L CES
 PR et
-
-ÿ N:
-
-(1 cahier) ! 1
 
 Journal de l'invasion à Versailles. (1870) Ga":
 
 Du 15 septembre au 17 novembre — pa 1
-
-à HE a 4
 
 1870 Jeudi 15 septembre. Je commence aujourd'hui A
 mon journal de siège — J'y inscrirai jour par jour ce NE.
@@ -732,7 +472,6 @@ municipal. Puis j'ai été lire l'Oficiel aux bureaux de ÿ à
 l'Union libérale, (qui suspend sa publication.) Rien de HU
 nouveau ce matin : on dit que les communications avec 4 se)
 Lyon sont coupées. Je ne recevrai donc plus de lettres Lo
-COR
 
 d'Ordinaire — Les Prussiens sont à Mormant, Clos- ne ‘a
 Fontaine, & dans le dépt. de Seine & Marne. h ee
@@ -741,11 +480,7 @@ aller à la Poste. Rentré : fait ma toilette. Sorti à ‘ei
 6 h.1/4 avec mon père pour aller diner chez M. Charton. A
 Il y avait M. & M Charton, leur fils, le frère de a.
 
-is ben
-
 je les cahiers d' Arnold Scherer - 11
-
-es Mr° Charton, M. Saglio, M.M. Délerot & Bersot. Après. à
 
 \! diner, j'ai été à la Préfecture avec ces messieurs. Puis 4
 
@@ -761,7 +496,6 @@ j'ai été retrouver mon père & M. Nefftzer au café Chapuy 4
 
 V. Hugo, avant de m'endormir.
 
-} Vendredi 16 septembre. Levé à 8 h. 1/2; travaillé, |
 | toujours la Prusse de Chevalet. M. Nefftzer est venu
 avant déjeùner. Il quitte décidément Versailles pen-
 
@@ -802,12 +536,8 @@ M. Bersot. En rentrant, je l'ai rencontré qui s'en allait '
 
 heures — (Les communications sont coupées entre |
 
-18 |
-
-4 0 ARS EEE # 1208
 | JOURNAL DE L'INVASION À VERSAILLES ÿ E {
 la préfecture de Versailles & la sous-préfecture de "4 |
-Corbeil.) Ex
 
 Samedi 17 sept. Levé à 8 h 1/4. Lu un article Bis
 de Xavier Raymond ds la Revue des 2. Mondes sur SA
@@ -838,12 +568,8 @@ diner. Après dîner, M. Bersot est venu : il nous apporte ki
 lOfficiel, qui fixe les élections municipales au 25 & au à
 28, sept. l'élection des maires au 29, les élections pour 03
 la Constituante au 2 octobre — On va donc voter sous ï à
-19 RU
-4)
-À ñ
 
 #4 les cahiers d'Arnold Scherer US
-Ke
 À F le canon Prussien — Ce sera très beau & très digne de 1
 : répondre ainsi aux insolences du Roi Guillaume, qui À
 ; refuse de reconnaître la République commeun gouverne
@@ -874,11 +600,7 @@ Villeneuve S‘ Georges, Choisy le Roi, & Clamart. Cela À
 sans doute être attaché, à partir de demain, à la rédac- }
 tion de l'Union libérale & démocratique de Seine & À
 Oise. Je vais à la Préfecture avec M. Bersot à 3 h: belle à
-20 ‘à
-fa
 
-D
-; JOURNAL DE L'INVASION À VERSAILLES 1:40
 circulaire de Favre à l'Officiel. A 4 h. le commissaire ‘3
 central de police vient annoncer l'arrivée de 3 cavaliers. 14
 (hussards de la mort.) Je sors avec M. Saglio. Foule 5
@@ -908,14 +630,11 @@ comme chef de cabinet de Laurier — Je rentre chez 1126
 moi, annoncer cela à mon père, & manger un morceau Ne
 — J'écris ces lignes à 5 h. Je vais ressortir, sans Li
 doute pour être témoin de leur arrivée — Pauvre fe
-France ! nr.
 10 h. 1/2 Je rentre avec mon père de chez M"° de 114
 Charnacé — Les Prussiens ne sont pas venus; il paraît | à
 que les choses se sont mieux passées qu'on ne l'avait hi
 dit. Douze d'entre eux sont restés à la grille: mais on a ne
-\w hole
 
-À 7/00
 les cahiers d'Arnold Scherer \ "4
 eu tort de laisser entrer même trois d'entre eux, sur- pa |
 tout le pistolet au poing. La foule attend toujours de- f
@@ -929,7 +648,6 @@ une dépêche adressée à M. Charton par le ministère — {
 On va organiser un service de piétons — Demain je serai
 installé à l'Union libérale par M. Délerot. Après diner, |
 nous allons chez M. Charton, puis chez M°° de Char- |
-nacé — S ; |
 Lundi. 19 sept. 1870. Ce matin à 7 h. mon père
 m'a réveillé. On entendait une vive cannonade du
 côté de Meudon, Vélizy & Clamart. Je m'habille à la É
@@ -948,10 +666,7 @@ de la garde nationale armée, sans cartouches. — Occupa- |
 | tion par les Prussiens des postes extérieurs. Ambulance $
 prussienne à Versailles pour les blessés de la bataille. :
 Je vois arriver encore un officier Prussien & un soldat. À
-22 À
-, "
 
-JOURNAL DE L'INVASION A VERSAILLES é
 _ On parlemente — M. Delaroche, (Horace) est envoyé au A
 _ général : il revient. Les Prussiens se retirent. Je rentre 1e
 déjeûner — Après déjeûner, je sors avec mon père: nous j sl
@@ -986,17 +701,12 @@ nous visitons le bivouac Prussien, place d'Armes. Les (4
 réquisitions continuent, Environ 2000 h. bivouaquent \ L
 23 1,724
 
-b. 4
-12 >" 11008
-Le, Vs
-
 les cahiers d'Arnold Scherer
 ici : Pas de désordre: mais les subsistances vont bientôt
 1 devenir pénibles — Nous allons à la mairie, puis chez
 ; ; M. Charton, qui reste encore en fonctions — Je rentre
 à 10 h. & j'écris ces quelques lignes à la hâte avant
 de me coucher. Je finis, dans mon lit, l'article de Leroy- -
-Beaulieu —
 Mardi 20 sept. Je me lève à 8h. 1/2. J'entends les à
 tambours. C'est un nouveau corps Prussien qui défile
 dans la Rue Satory. Cela dure terriblement longtemps.
@@ -1020,10 +730,7 @@ les prochaines élections. Après déjeûner, je sors avec
 mon père : nous allons à la Mairie : les Prussiens sont
 partout. Nous entrons avec M. Délerot à la Préfecture.
 La capitulation d'hier n'a pas été ratifiée par le Prince
-2%
-"
 
-JOURNAL DE L'INVASION À VERSAILLES j 144
 Royal, qui a déclaré ne pas pouvoirtraiter avec une j 108
 _ ville ouverte. La garde nationale sera désarmée, & no. À
 _ nous serons à la discrétion du vainqueur — À # ji k
@@ -1056,14 +763,11 @@ comme précision : mais les hommes sont lourds, gros- Nr.
 siers, sans finesse ni élégance, laids, petits ; — une vilaine ï ‘ nl j)
 race! Oh! que les Français leur sont supérieurs, malgré LAN
 leur civilisation tant vantée! ; à È ÿ ‘
-25 Arnold Scherer, — 2 fé Me.
-Li +
 
 | les cahiers d' Arnold Scherer
 Les rapports continuent à être vagues sur le combat
 | d'hier — Mais le fort de Châtillon a été pris par les
 Prussiens; les mobiles se sont sauvés, en déroute, lais-
-: sant leurs armes —
 
 On a entendu le canon aujourd'hui à diverses reprises,
 dans la direction de St Germain —
@@ -1077,7 +781,6 @@ s'en vont vers S' Germain. MM. Délerot & Bersot dînent
 chez nous — °
 
 Nous n'avons pas de garnisaires encore — mais notre
-tour viendra.
 
 Jeudi 22 septembre 1870. Levé à7 h. du matin, pour
 aller m'inscrire à l'Internationale pour le service des
@@ -1105,7 +808,6 @@ Rue des Réservoirs, de la Place d'armes, etc — Ils ont Ds:
 
 établi un bureau de poste, avenue de Paris, 26. Ils 4
 reçoivent les lettres ouvertes, ne contenant pas de poli- fi À
-tique. ÿL
 Léopold de Hohenzollern est ici : je l'ai vu hier — 148
 C'est un grandbel homme, en rouge et noir, comme tous j. )
 les officiers supérieurs et généraux. # e
@@ -1118,28 +820,18 @@ Pas de nouvelles de Paris, ni même des environs — CE
 Pas de départ d'ambulances. On dit que les Prussiens “44
 ne veulent pas laisser partir d'ambulances, pour qu'on nn,
 ne sache pas les pertes qu'ils ont faites. ‘à
-à
 
-n°
-
-Vendredi 23 septembre. Levé tard. Travaillé au 1-08
 Journal, puis chez M. Bersot, au service de la corres- ! 1
 pondance. Eté à l'Internationale, et au bureau de poste “#4
 de l'avenue de Paris. Après diner, nous avons été chez *NISN
 M. Charton. Nous y avons vu M.M Délerot & Bersot. de.
 Le canon a grondé dans la direction de... toute la ‘
 journée. Il est impossible de préciser : peut-être S‘ Ger- #2 P
-main, peut-être Saint-Denis. : 1
 Deux ballons (à nacelle) ont passé aujourd'hui au- 5
 dessus de Versailles, dans la direction de Dreux, à peu mn
-près. ‘4
 M. Boullin-Saint-Amand, est parti pour Tours, chargé je ÿ
 de recueillir de l'argent pour l'Internationale. Je l'ai V 2
 chargé d'une carte pour ma famille. De.
-
-27 ‘14
-
-t 4
 
 à = les cahiers d'Arnold Scherer $ Ab
 j Pas de départ d'ambulance : pas de nouvelles de
@@ -1187,10 +879,7 @@ intrigues cléricales ignobles pour les élections municipales de demain. !
 
 Dimanche 25. Élections municipales : on vote beau-
 ë coup, plus qu'on n'avait osé l'espérer. C'est bien — 4
-28 |
-*
 
-Key JOURNAL DE L'INVASION A VERSAILLES ! ES
 M. Rameau me donne des nouvelles de Paris — On résiste A A
 
 bien, paraît-il : nous apprenons qu'un engagement a eu a
@@ -1233,17 +922,11 @@ Le résultat des élections municipales est très bon — 14]
 Toute la liste démocratique passe à une immense majo- Li
 
 rité. Les élections législatives sont permises par les ; 1e
-autorités Prussiennes — à
 
 Dîner chez M. Bersot avec M. Délerot. Après dîner, en fr À
 
 allant chez M. Charton, nous rencontrons Albert Joly, m:
-k 29 Arnold Scherer. — 2. “ ÿé
-Le”
 
-xt
-
-AU dE à 2 PS EN IN SEE
 | les cahiers d'Arnold Scherer
 qui nous annonce de graves nouvelles. Les négociations
 ÿ pour la paix sont rompues — La Prusse demande l'Alsace
@@ -1259,7 +942,6 @@ jusqu'à 10 h. chez M. Charton, puis nous allons boire
 Ÿ une tasse de thé chez M. Bersot, et nous rentrons à
 ; 10 1/2 ou 11 h— Avant de m'endormir, je relis le fameux
 , Discours de Thiers sur l'Allemagne, à la veille de
-Sadowa —
 Mardi 27 sept. Le conseil municipal élu dimanche,
 et annulé par le décret annoncé hier, a été néanmoins
 installé aujourd'hui, comme municipalité provisoire, |
@@ -1276,10 +958,7 @@ js l'armée de la Loire marche vers Paris. Le bruit court
 | le g* Trochu —
 | Strasbourg a fait une sortie très heureuse et a repoussé |
 victorieusement un assaut formidable — Paris tient
-30 ;
 
-à HAN
-JOURNAL DE L'INVASION A VERSAILLES é.
 bien : mais le siège en règle ne paraît. pas encore com- g
 mencé jusqu'ici — On prête de divers côtés aux Prus- %
 siens le plan de prendre Paris par la faim — ;
@@ -1287,7 +966,6 @@ Mais il faut se défier de tout ce qui se dit : Les Prus- fe
 siens font circuler de leur côté les canards les plus absurdes, et les Français imaginent ce qui leur plaît —
 On a entendu distinctement le canon ce matin —
 On a enterré ce matin M. Génie, ancien secrétaire de
-M. Guizot.
 On a fusillé hier ou ce matin un franc tireur; qui avait
 tiré sur les Prussiens sans uniforme — Les Prussiens
 sont allés à la mairie requérir des fossoyeurs; c'est
@@ -1308,7 +986,6 @@ De sorte que le cheval mange la moitié du tas, et que
 le reste est gaspillé —
 Hier a eu lieu une revue, & une distribution de croix,
 ds la cour du Château.
-L 31
 
 | les cahiers d'Arnold Scherer
 \ FU Mon père a fait aujourd'hui la connaissance du G*
@@ -1320,7 +997,6 @@ $ On dit le prince de Würtemberg blessé.
 | environ 5 ou 6 000 soldats fixes. Maïs il est difficile de
 | calculer tout ce qui a passé par la ville depuis le 19,
 | Probablement entre 100 et 200 000 hommes — Le défilé du
-‘ - 19 comptait au moins 50000 h.
 Les appréciations varient beaucoup sur le décret
 | d'ajournement des élections : peut-être le blâme dominet-il, mais il y a une donnée qui nous échappe forcé-
 ment: Nous ne savons pas tout. On parle d'une cireulaire de Favre tombée du ballon — Un troisième ballon
@@ -1339,10 +1015,7 @@ Trappes : la reddition de Toul, (le 23.) après une admirable sortie des França
 L'armée Prussienne est démoralisée ; la nouvelle de la |
 * prise de Strasbourg, n'est peut-être qu'un faux bruit û
 destiné à la remonter. Versailles va peut-être devenir le \
-32 î
 
-CAN NI 2 NU AS
-7 JOURNAL DE L'INVASION A VERSAILLES 4 #
 théâtre d'un combat entre l'armée de la Loire & les 54
 
 Prussiens, pris à revers par une sortie de Paris. VV
@@ -1368,10 +1041,6 @@ tard nous avons rencontré d'autres ambulanciers à \
 
 cheval, qui cherchaient un hôtel — : ;
 
-‘4
-
-Jeudi 29. Après déjeûner, visite d'Adolphe d'Espine, j |
-
 qui nous raconte plusieurs choses intéressantes sur son de:
 voyage. IL nous donne quelques nouvelles du dehors, |
 
@@ -1392,7 +1061,6 @@ Ils ont été fortement battus le 23 septembre, à Mon- À
 | tretout, je crois. s il
 
 # les cahiers d'Arnold Scherer
-TES | | 16
 4 5 Deux ballons ont encore passé aujourd'hui ;
 \ î M. Jeandel, directeur & rédacteur unique du Journal .
 h de Versailles a été arrêté, comme il entrait au conseil 4
@@ -1404,7 +1072,6 @@ e est très émue de tout cela—
 Ÿ é J'ai passé ma journée comme à l'ordinaire au Journal, à
 # chez M. Bersot & à l'Internationale — M.M. Délerot &
 Bersot ont diné chez nous. É
-PE"
 
 # ! Vendredi 30 septembre. Encore deux ballons. l
  - Bataille au sud de Paris à
@@ -1420,27 +1087,19 @@ France d'une contribution de guerre d'un million, pour ;
 
 $ Il est probable qu'on lancera le non possumus, & alors.
 
-es gare au pillage & aux perquisitions — 4
 > J'ai été au Journal, puis chez M. Bersot puis à l'Inter- |
 , # nationale, puis à la Poste, & de là à la mairie où À
 k _ j'ai dit adieu à d'Espine, qui allait partir avec son
-“ ambulance. É }
 & Après diner, nous avons été chez M"° de Charnacé, & À
 FE de là, au café Chapuy, où l'on nous a prêté un instant %
 | le rapport de Jules Favre à ses collègues, & un mani- .
 hi feste à l'Allemagne, tombé du ballon de ce matin. L
-3%
 
-a. à Te CE
-
-nie a ts FT DATE.
-A | JOURNAL DE L'INVASION À VERSAILLES ‘1 Ni
 ST Le gouvernement Prussien a manifesté aujourd'hui LT
 l'intention de nommer un préfet Prussien; la question p 54
 est maintenant de savoir si notre municipalité républi- EXT 1
 caine, consentira à devenir municipalité Prussienne, ou : 1108
 si elle donnera sa démission — ; : F
-. Samedi r octobre 1870. M. Gustave d'Alaux a #
 déjeûné ce matin avec nous. J'ai passé ma journée ne
 comme à l'ordinaire entre l'Internationale & le Journal. We
 La situation de la municipalité devient de plus en plus VE
@@ -1451,23 +1110,18 @@ _ forcée de donner sa démission. Il y a eu aujourd'hui à ii À
 M. Rameau est très souffrant, de la vessie. Il y a en ' +4
 | France un vif mouvement de colère contre Versailles, $ KA
 | qui nourrit l'ennemi au détriment de la défense natio- ‘04
-nale. 10
 | Le bruit court d'un grand succès des Français à 1
 | S' Denis. ‘t 0
 | Dimanche 2 octobre. Ma journée se passe comme $ 44
 à l'ordinaire, Les nouvelles de Paris sont consolantes. (00
 On a vu le dôme des Invalides illuminé hier soir. C'est 18
 peut-être pour ce succès de S‘ Denis, où l'on parle d'en- ne j:
-viron 35 000 tués, blessés & prisonniers, mr
 On raconte ainsi l'affaire de Vendredi matin. Deux 28
-- sorties auraient eu lieu simultanément à Meudon & à ER
 _  Bicêtre— La sortie de Meudon, une fois la Seine passée, “Ca
 aurait eu son pont de bateaux détruit, & une chaloupe 9 AE
 ; cannonière engravée par le feu des Prussiens établis à wi
 : Sèvres. Voyant cela, les Français auraient donné la ê %
-À La
 
-AMATEUR APE PRE PTS PRE SE TP SRE STAR
 À les cahiers d'Arnold Scherer
 4 main à ceux de Bicêtre, & auraient enlevé tous les
 1 avant-postes Prussiens placés au sud de la ligne des ;
@@ -1475,7 +1129,6 @@ AMATEUR APE PRE PTS PRE SE TP SRE STAR
 L É ont reculé jusqu'à la Croix de Berny & à la Belle-Épine,
 | aux deux intersections de la route de Chatenay,
 La Fresnes, &, avec les routes qui convergent du Sud sur
-À Paris.
 | # Le soir, nous allons chez M. Charton, qui nous fait ses
 3 “rE adieux. Il part demain pour Tours.
 4 Il nous a prêté des journaux de Tours, l'Union, &
@@ -1483,25 +1136,19 @@ La Fresnes, &, avec les routes qui convergent du Sud sur
 Tours. Ce Moniteur contient dans un supplément, le
 ne rapport admirable mais navrant de J. Favre — Je
 à n'aurais jamais cru que l'Union, put me faire tant de
-À ‘ plaisir.
-% k
 ; Lundi 3 oct. Rien de nouveau. Journée ordinaire.
 Installation du nouveau préfet. Entrevue avec le
 : Conseïl Municipal — Diné chez M. Bersot, avec M. Déle-
-; rot.
 | Mardi 4 octobre. Le matin, avant déjeûner, conférence
 4 à l'Union, au sujet des exigences du Préfet, M. de
 ” Brauchitsch, qui demande l'engagement de reproduire
 à tous les actes & toutes les communications administra4 tives. On répond que devant ces exigences, on cesse de
-4 paraître.
 
 J'ai été, comme à l'ordinaire, chez M. Bersot, & à
 k l'Internationale. Rhume épouvantable. Couché de bonne
-; heure —
 | Mercredi 5 octobre. Nouvelle conférence à l'Union.
 M. de Brauchitsch désire entamer des négociations. Il |
 
-“4 | JOURNAL DE L'INVASION A VERSAILLES À à.
 est blessé de la réponse qu'on lui a faite, & vexé de la He ds
 _ suppression volontaire du Journal. Mon père & M. Bersot ‘4 a
 sont délégués auprès de lui pour causer & négocier — Le
@@ -1512,18 +1159,15 @@ Tours, est admis à conférer avec les Messieurs du vs
 Conseil : il annonce que les élections se font le 16 octobre, de
 définitivement. Les Prussiens renoncent aux 400 000 fr. ;
 exigés de Versailles. (Canon ce matin) Arrivée du roi de {
-Prusse. y
 Jeudi 6 octobre. Rien de nouveau — Voici les bruits
 qui courent. La redoute de Montretout aurait été reprise
 hier par les Français : le château de Saint-Cloud (aile i
 de Valois) brûlerait. — La dépêche suivante de Gam- à
 betta aurait paru à l'Officiel, & serait affichée dans les $
-départements non envahis : « Français, depuis quinze à
 jours, il n'y a plus lieu de désespérer. Les Prussiens ont je
 été battus dans toutes les rencontres. Les armées de Le
 l'Ouest & du Rhône marchent à grands pas: l'armée à
 de la Loire sera prête dans dix jours. Elle est formi- « 1
-dable. »
 On dit aussi avoir vu 200 000 h. au Mans. |
 Vendredi 7 octobre. Rien d'extraordinaire — Entre- ï
 vue entre M.M. Rameau & de Bismarck. M. de Bismarck A:
@@ -1532,9 +1176,7 @@ annonce à M. Rameau que les élections n'auront pas
 voyant. M.M. Bersot & Délerot ont diné chez nous. \
 4 Samedi 8 octobre. Rien encore de bien saillant, La
 | ville de Versailles est exemptée de 400 000 fr. par le roi $
-à 37 Arnold Scherer. — 3 à
 
-SAR Ne LÉ F
 310 les cahiers d'Arnold Scherer
 5e de Prusse — Je recois, au Journal, un Prussien, très
 
@@ -1548,8 +1190,6 @@ hé g4 cours chercher M. Bersot, qui après quelques mots
 LE bon — Nous n'insérerons rien. — Passage de troupes
 
 15 pendant 1 heure ce matin. Rien de nouveau. Engage-
-
-1 ments à Rambouillet. :
 
 n, Lundi 10. Nouvelles difficultés au sujet du Journal. Je
 
@@ -1569,8 +1209,6 @@ ke Mardi 11. Arrivée de neuf Prussiens chez nous.
 
 à * un sergent avec 2 hommes, formant un bureau, plus
 
-1 4 soldats —
-
 es Le major & l'adjudant dînent avec nous. Ils sont assez-
 
 É bien. Ils étaient auparavant l'un, chez M®° Ameille, (dont
@@ -1580,14 +1218,10 @@ ok chez M. Delaunay, directeur des Postes — Le Journal
 Li paraît aujourd'hui pour la dernière fois : J'ai été à
 \ ie l'Internationale, où j'ai vu M.Boullin Saint Amand, qui
 F revient de Tours où il a vu ma mère & ma sœur — D
-Pt ä
 VE Mercredi 12. On se bat entre le Mont-Valérien et {
 4 Saint Cloud. M. Tavernier est arrivé de Marly, nous L.
-3 l'annonçant. 4
-12 *
 
 Je ji OURNAL DE L'INVASION A VERSAILLES AR nn
-AO ANENES x , 49! SAN
 4 à Une ambulance Anglo-Américaine, est arrivée à Ver- < ‘4
 - sailles, avec 2 nègres & un singe. Us:
 FR Le major & l'adjudant ne dineront plus avec nous — i ji
@@ -1605,7 +1239,6 @@ que les Prussiens, maîtres d'Orléans en ont été chassés AUS
 _ par les français. 5 000 bavaroïs auraient péri. | Va
 Gustave d'Alaux dine avec nous. SNS
 ï Été chez le P. Gagarin. Un brave homme, très- 1
-… agréable —" D.
 | Vendredi 14. Pas de nouvelles. L'affaire d'Orléans ‘tes
 4 semble mise en doute. Été chez le Père Gagarin — ; à ki
 & Un général français, (d'Etat-Major) est arrivé aujour- NE “ sl
@@ -1617,14 +1250,10 @@ _ Samedi 15. Rien de nouveau. On continue à com- 110
 menter l'arrivée du g‘! français. C'est, dit-on, le général A Le
 _ Boyer, venant de la part de Bazaine — Il demeure dans En
 _ la maison d'Agnan, rue Satory. Il est gardé étroite- RE
-_ ment. 24 |
-Ca) : FAT LA
 
-; f LRO * Le h 1e re } nd 54
 les cahiers d' Arnold Scherer à 4
 au Dimanche. 16. Rien de nouveau — Mac-Lean dîne
 avec nous. — |
-Lundi 17. Levé à 7 h. Travaillé. Lu Odilon-Barrot.
 la Centralisation. Déjeûné à ro h. Été voir Mac-Lean: il
 m'a annoncé la prise de Soissons.
 Vu le P« Royal, partant pour S‘-Germain, Promené }
@@ -1635,7 +1264,6 @@ jusqu'à 3 heures. Eté chez Mac Lean; à l'Internationale.
 Proclamation de Gambetta : très-encourageante. Diîné
 chez M. Bersot avec M. Délerot.
 Le g°! Boyer est reparti hier soir à 9 h. en voiture ne
-fermée. 4
 Mardi 18.‘Pas de nouvelles du dehors. Mais à Ver- ;
 sailles, arrestation de M. Lesourd, hier soir à 11 h. x
 Il a passé la nuit dans une cellule infecte, à la maison #
@@ -1644,27 +1272,21 @@ Corbeil. Son sort n'est pas encore réglé. À
 Aujourd'hui jour de naissance du Prince-Royal — Les à
 È eaux ont joué. J'ai vu le roi, gros homme à la figure FE
 enluminée, le P° Royal, Bismarck & le major de ë
-Moltke. É
 | M. Bersot est venu le soir. À
 Mercredi 19 oct. 70. 11 y a aujourd'hui un mois que
 les Prussiens sont à Versailles, & que l'investissement
 est complet autour de Paris.
 Ce soir, les troupes, sont, paraît-il, consignées. On
 craint quelque chose. Déjà, depuis plusieurs jours, les |
-Go
-"2
 
-x JOURNAL DE L'INVASION A VERSAILLES 5
 _ Prussiens paraissent inquiets. Ils se lèvent de bon ï 7
 matin : les officiers bouclent leurs valises; on est HP
 même venu les réveiller la nuit, dans plusieurs mai- ‘04
-sons. FF
 M. Lesourd est parti pour Mayence, où il sera prison- 4e:
 nier sur parole. %
 Un officier Prussien, arrivé à la mairie, dit à l''Em- ;
 ployé, chargé du service des logements, de réserver 4
 les plus beaux logements, parce qu'il va y avoir un 7
-congrès. (
 M. Journault de Sèvres, est venu à Versailles —
 Jeudi 20 oct. La nouvelle d'un congrès se confirme : |
 mais ce n'est pas en vue de la paix; c'est un congrès de
@@ -1677,16 +1299,12 @@ qu'Eugène Mallet était en bonne santé à Épinal, le 4 de ; $
 ce mois. J'ai travaillé chez M. Bersot, & j'ai été à l'Internationale. >
 Hier soir, il y a eu un incendie rue des Chantiers, 4
 annoncé par une cloche à la main, sonnée ds les rues.
-Vendredi 21 octobre 1870. Journée émouvante. "
 Dès 8 heures, le canon tonne dans la direction de la ‘4
 Celle Saint-Cloud, jusqu'à 9 h. On suppose que c'est une
 simple attaque sur le Mont-Valérien. Je sors un instant
 avant déjeûner. Après déjeûner, visite de M. Hottinguer,
 en uniforme de chevalier de Saint-Jean. Lettre de ma ‘à
-mère. !
-4x
 
-PA SCA AS RP RENE A SE EE
 ) les cahiers d'Arnold Scherer Ô
 A 1h. je vais chez le Père Gagarin, où je reste jusqu'à
 2 h. passées. En sortant de chez lui, j'entends une
@@ -1718,17 +1336,13 @@ de Jardy,) en deça des bois, une grande plaine. La
 bataille est à deux lieues de Versailles à peine; c'est
 une sortie considérable, appuyée par les canons du
 Valérien. Audessus du bois, on voit paraître à chaque
-42 ‘à
 
-: | JOURNAL DE L'INVASION À VERSAILLES ‘2
 instant les obus qui éclatent en fumée blanche. Ce 1
 ; matin, nous dit-on, la fumée blanche paraissait à NE
 l'extrême droite du spectateur; maintenant elle est en :1510 Ft
 
 face de nous, juste au nord de Jardy. La ligne de NES
 bataille s'étend probablement jusqu'à Beauregard & la 2 pa
-
-Celle Saint-Cloud. Fi
 
 Dans la plaine située en deça des bois, nous voyons Le
 
@@ -1740,7 +1354,6 @@ ment, de temps en temps pourtant il se rapproche; à À
 
 5 b. 1/2, tout est fini; alors les nouvelles commencent à 126
 arriver; les cancans de pleuvoir. A demain les détails MS
-sérieux. AC
 
 M.M. Bersot & Délerot dînent chez nous. Le soir, la is
 
@@ -1779,14 +1392,12 @@ d'autre. Ils diminuent donc évidemment leur chiffre;
 qu'il faut porter à 7 ou 800. Un nombre égal de prisonniers de chaque côté : ce qui veut aussi dire 5o pour
 les prussiens, 100 pour les français— Ils s'étaient d'abord
 ( vantés de 2 000 prisonniers, puis de 100, & cela se ré-
-duit à 50. En somme, bonne journée.
 Entretien, hier soir, de Bismarck avec le Maire. Il lui
 a témoigné son déplaisir de l'attitude de la population,
 | pourtant très pacifique: ils ne veulent pas être regardés,
 quand ils partent à la hâte : ils ne veulent pas d'attroupement —
 Dimanche 23. Visite de M. Hottinger le matin —
 à Déjeûner, notre major nous annonce son départ pour 4
-demain. à
 Un arrêté de Voigts-Rhetz, annonce que, lorsque le }
 signal d'alarme est donné, les hommes doivent rester $
 ou rentrer chez eux. — Sans quoi, après sommation, on L
@@ -1800,7 +1411,6 @@ d plus grande partie de nos garnisaires. Il reste l'adjudant
 J'ai travaillé assez longtemps aujourd'hui. l
 Sorti à 4 h. Assisté à un immense enterrement mili44
 
-han - 2 à
 | JOURNAL DE L'INVASION A VERSAILLES #
 taire Prussien; au cimetière N. Dame : 3 colonels, des k
 officiers bavarois; en tout onze cercueils : musique mili- : à
@@ -1809,7 +1419,6 @@ taire splendide : un premier cortège de trois cercueils, *
 bleus, a descendu la rue Satory en jouant une marche
 funèbre admirable : je n'ai jamais entendu de plus belle
 musique de ma vie. Une puissance & une plénitude
-incomparables —
 Arrivé à la place d'Armes, le cortège a fait halte, &
 un autre cortège, de trois cercueils aussi, (dont 1 colonel
 ou général,) est descendu du château, Dans le premier, les 3 cercueils étaient en bois blanc, sans drap,
@@ -1820,10 +1429,8 @@ officier marchait devant, tenant un coussin de velours,
 orné de fougère, sur lequel étaient posées les décorations du défunt. Les 2 autres cercueils étaient couverts
 d'un simple drap blanc —
 En partant de la place d'armes, la musique du 2“ cortège a joué la marche funèbre de Chopin, d'une façon
-incomparable.
 Un autre cortège a encore rejoint les 2 autres au cimetière.
 . Les troupes ont tiré à deux reprises, trois salves de
-mousquèterie.
 Deux services ont été faits sur la tombe : l'un protestant, l'autre catholique, tous les deux en allemand.
 Deux pasteurs & un prêtre ont parlé sur cette fosse
 ouverte, où onze officiers allemands dormaient.
@@ -1831,46 +1438,33 @@ L'un des pasteurs a fini son discours par cette belle
 prière : « que le Seigneur vous maintienne en paix &
 | 45 Arnold Scherer. — 3.
 
-A A
 | les cahiers d'Arnold Scherer fi
 en prospérité; » le dernier mot de sa prière se trou- ÿ \
 vait être Frieden, & à ce moment la musique a joué une À
 mélodie si douce & si voilée, que tout le monde était |
-; f ému. ( .:
 res Retour de notre ambulance de Dreux — rh
 L Diner chez M. Bersot avec M. Délerot. À
 Après diner, nous sortons pour admirer une splendide Ÿ
 % à aurore boréale — Je n'en avais jamais vu avant.
 LE Nous avons lu aujourd'hui des Zndépendances Belges. à
 ) Nous voyons en somme beaucoup de journaux, anglais,
-français & allemands. k
 $ Désagrément à la mairie entre un lieutnt de police k
 Prussien & des conseillers, à propos d'une réquisition. de
 è . Le Prussien, fou de colère, dégaîne — Puis il va cher- !
 1 cher des soldats du poste, & fait emmener MM. Laurent À
 Hänin, de Montfleury & Albert Joly — Ils sont relächés j
-à aussitôt. à
 | Mardi 25. Départ de notre lieutenant Prussien, assez 4
 souffrant, avec son brosseur — 1 |
 - Rien de nouveau du tout. Travaillé &lu des journaux — à
-Nouvelle aurore boréale. ù
-'
 3 Mercredi 26. Bonnes nouvelles de Bazaïne. Il k
 aurait fait une sortie heureuse pour se ravitailler. ï
 Bonnes nouvelles de Dreux & de Châteaudun. 7
 M.M. Bersot, Délerot & Gustave d'Alaux viennent le 4
-soir après diner. }
 | Jeudi 27. Nouvelle de la prise de Metz — Sérénade
 À à la Préfecture le soir. |
 K Réquisition de 6 000 couvertures pour les soldats; les 3
-46 2h
-ai
 
-Ra : JOURNAL DE L'INVASION A VERSAILLES û
 | conseillers municipaux vont en quêter chez les habi- ‘1
-
-Triste journée — Pluie torrentielle 5
-2H
 
 | Vendredi 28. Rien de nouveau. MM. Bersot & Sr
 Délerot à diner — Un ballon — he
@@ -1883,26 +1477,12 @@ Bizoin, Fourichon. Gambetta & Glais-Bizoin sont « ti
 
 contre la paix & les élections, Les autres pour, surtout cit ;
 
-Thiers & Grévy. Thiers a réussi à Saint-Pétersbourg. tv
-
-Ha passé trois jours à Tours, & après avoir passé 40
-
 par Versailles, est rentré à Paris. K
 Visites de M.M. Ephrussi, de Paris, & Hoff, de la 1
-
-gazette d'Augsbourg. 1:08
-
-d
 
 | Dimanche 30. Thiers a passé quelques heures ici me
 ce matin. Il a déjeûné aux Réservoirs avec Horace Wet rh
 Delaroche. Il est reparti dans la journée & doit revenir re
-
-demain. 4 a)
-
-Gustave d'Alaux à diner. 5 fa h:
-
-MER
 
 Lundi 31 octobre 1870. Travaillé — Visite de 18
 
@@ -1926,9 +1506,7 @@ M. Bersot, & à l'Internationale — Ye W
 
 les cahiers d' Arnold Scherer é
 chaux par un décret du 28; je crois. Thiers est toujours
-ici —
 Mon père a vu M. Thiers & Paul de Rémusat &
-Cochery.
 Mercredi 2 novembre. Rien de nouveau — sauf l'arrestation de M. de Raynal, substitut, ce matin : on
 - ignore les motifs. Mon père a été passer la soirée chez {
 Thiers : moi à l'Internationale. — Depuis vendredi soir, !
@@ -1936,7 +1514,6 @@ le canon tonne jour & nuit, avec des intermittences : on
 l'entend plus la nuit que le jour.
 Jeudi 3 novembre 1870. Le canon continue. Rien de
 nouveau. Dîner chez M. Lebourdais avec MM. Délerot
-& Bersot. |
 Vendredi {. Rien de nouveau. M.M. Délerot & Bersot
 dinent chez nous — G. d'Alaux dans la soirée. |
 Samedi 5. Encore rien — Mon père voit Thiers, qui ‘
@@ -1955,11 +1532,9 @@ justice autrement qu'au nom de Napoléon III |
 Dimanche 6. Sortis après déjeûner, après une visite
 de M° Lean. Été à la mairie. Vu de Moltke — Rentrés
 
-, JOURNAL DE L'INVASION A VERSAILLES
 — Travaillé — G. d'Alaux à diner. Après dîner, mon Li
 père va chez Thiers, & revient à 11 h. avec de mau- Ê
 vaises nouvelles. Les négociations sont à peu près rom- NE:
-pues, Thiers part demain matin à 6 h. 4
 Lundi 7. Les négociations sont rompues. Thiers ;
 est parti. On a refusé à Cochery un sauf-conduit pour
 aller faire une dernière tentative à Paris. (un factionpaire Prussien blessé ds la nuit.) Visites de Rosseuw
@@ -1978,13 +1553,11 @@ Arrivée des principicules allemands. Sortis assez tard —
 . pour la sentinelle blessée.
 Vendredi 11 nov. 1870. A 4 h. du matin canonnade
 épouvantable, mais courte. Réquisition de 6000 chemises,
-& 2000 p. de bottes.
 Le congrès des plénipotentiaires allemands continue :
 d'autre part, les ducs d'Oldenbourg, de Bade, de
 Mecklembourg, & & arrivent un à un, on parle d'une
 séance solennelle du Reichstag, qui se tiendrait au
 
-Se RAP URI A TAN ANR RU RS OA RS
 | les cahiers d'Arnold Scherer
 | château de Versailles, & qui proclameraït Guillaume de 4
 4 Prusse, empereur d'Allemagne. Mais c'est loin d'être "7
@@ -1994,7 +1567,6 @@ payer 2000 fr. d'indemnité au soldat blessé l'autre nuit, wi
 celui qui dénoncera le meurtrier. Vive discussion dans le F
 k Conseil municipal. M. Rameau refuse de signer l'affiche 4
 promettant ces 2000 fr. Elle est signée par M. Lasne, É
-1% adjoint, À
 Il paraît que la ré-arrestation de M. Thiroux, & son 3
 F5 envoi en Allemagne (ainsi que M.M. de Raynal & Harel, 4
 “EM viendrait d'un désaccord entre le Préfet Prussien & de 3
@@ -2017,10 +1589,8 @@ des postes, alors qu'il était révoqué. M. Thiroux a
 répondu qu'il avait adressé la circulaire avant. Le pré- R |
 fet a alors répondu : Monsieur, vs. savez bien que les À
 employés Français sont révoqués par le seul fait de S
-5o 4
 
 Luce din 16 MA EM es ANRT ET ANS TS APT SO OX ECTS EE VAR ER AS: Br VNEAS
-JOURNAL DE L'INVASION A VERSAILLES FA 4
 % is occupation allemande. Thiroux a allégué comme preuve vs
 
 . du contraire: 1° La demande de concours à lui adressée. et
@@ -2036,13 +1606,11 @@ Aujourd'hui, longue visite de Gustave d'Alaux; je AE
 
 ' travaille avec lui. 118
 MM. Délerot & Bersot dinent chez nous — Canon AU
-avant dîner — Qu |
 Samedi 12 novembre. Visite de M° Lean — Bonnes ‘#4
 nouvelles d'Orléans, qui est repris par les Français. ' D.
 Les Bavarois ont perdu 2 canons à Artenay. Les "ESS
 Prussiens sont furieux contre von der Tann — LS
 Deux divisions sont parties Lundi pour Chartres. 0
-Samedi 12 novembre 1870. ‘50 Æ
 Je travaille jusqu'à 2 heures. Je sors à 3h. avecmon
 père. Je vais à la mairie. M. Délerot m'apprend que 0
 Hoff s'est suicidé, & que M. Passa l'a enterré ce matin — TA
@@ -2057,7 +1625,6 @@ accès de désespoir, & s'empoisonna. Le mercredi, il J A fi
 prenait le ‘thé chez nous, & empruntait même un livre + à
 
 les cahiers d'Arnold Scherer É:
-J
 à mon père — Le Jeudi à 4 h, il faisait demander une ;
 voiture, qu'on n'a pas pu lui trouver; il parut ne pas 6
 5 s'en inquiéter, & à 5 h. 1/2 il rentra chez lui. A |
@@ -2070,14 +1637,12 @@ entra dans sa chambre. Il était étendu mort sur son lit,
 tout habillé, & sa fiole de poison à côté de lui. 4
 Un grand nombre de familles anglaises ont quitté 3
 # Paris & sont arrivées aujourd'hui à Versailles. Les E
-bonnes nouvelles d'Orléans se confirment. ;
 Dimanche 13 nov. Rien de bien nouveau — Capture 4
 d'un 3° ballon, avec 3 aéronautes — Lors de la capture ;
 des 2 ballons précédents, on a tenu un conseil de À
 guerre, pour savoir ce qu'on ferait des aéronautes —
 Bismarck a demandé énergiquement qu'on les fusillât.
 Mais le conseil a décidé simplement qu'on les enverrait à
-en Allemagne. 4
 Hoff s'est empoisonné avec de l'arsenic. Le pauvre .
 garçon était, dit-on, d'une bonne famille de Mannheim — 1
 Lewyssohn, son ami, est parti pr l'Allemagne — Il a dû Là |
@@ -2085,10 +1650,8 @@ beaucoup souffrir. Son corps était, paraît-il convul- 4 |
 sionné — Ses yeux ouverts, une jambe, pendant hors r À
 du lit — un couteau ouvert, à côté du verre — 4
 Gustave d'Alaux à diner. Été chez M" de Charn'acé & |
-Me Landais, ttes deux sorties —
 Lundi 14 nov 70. Il y a une quinzaine de jours, À
 les Prussiens ont renoncé, (ec à d. le P‘ Royal) à +
-52 ñ 14
 
 & JOURNAL DE L'INVASION À VERSAILLES hi
 650 000 fr. qu'ils réclamaient pour réquisitions non x 1
@@ -2102,11 +1665,9 @@ fini par mettre à la porte le concierge et sa femme — ä
 Visite de Gustave d'Alaux — Dîner chez M. Bersot |
 avec M. Délerot. Barbu venu le soir. La défaite des
 Prussiens à Orléans se confirme. Les français sont <
-probablement à Toury —
 
 Mardi 15. On prétend qu'il va y avoir aujourd'hui
 ou demain une grande bataille à Etampes — Ed. Valentin, préfet du Bas Rhin, a été fusillé à Wiesbaden — L
-(faux.) —
 
 ,
 
@@ -2129,7 +1690,6 @@ Préfet, chargé des intérêts de la ville, de forcer celle-ci
 à faire un grand magasin, que lui, Baron, se chargerait y |
 de fournir des denrées nécessaires. Ms — ces marchandises qu'il dit être nécessaires, (& qui ne sont pas |
 celles dt on a réellement besoin) il faudra les acheter à
-53 Un
 
 « 4 NEA CAES As AT MAN LE Fe es a RES SD en "MTS
 les cahiers d'Arnold Scherer Re \*
@@ -2142,7 +1702,6 @@ se montent environ à 5 ou 600 000 fr. Un quart du prix |
 | devra être payé immédiatement & le reste lorsque les
 Es marchandises arriveront à Nogent l'Artaud, —(Or, elles
 # y sont, on les [a] vues : donc, il touchera le tout immé-
-diatement.)
 Fe Ainsi 1° La ville sera contrainte à s'approvisionner
 de marchandises dont elle n'a pas besoin. 2° Elle |
 courra le risque de les voir pillées de Nogent l'Artaud
@@ -2164,14 +1723,9 @@ même à Versailles, de Nogent l'Artaud. Il est probable 4
 LE veau, sinon la confirmation des nouvelles d'Orléans. \
 < Promené ds les bois avec mon père, M.M. Housay, :
 Mainguet & Barbu; D'alaux le soir — À
-x ;
 | set)
 
 22 MoN tu SEA de MAS y". FAN 0e
-ci ï ie , FIURSS
-Der. ve
-LR ; (11
-Re (eme cahier) * {4h
 4 Journal de l'invasion à Versailles — (1870-1871) Ke #
 à Du 18 novembre 1870 au M)
 * Jour du départ des troupes Prussiennes. : We
@@ -2179,7 +1733,6 @@ Vendredi 18 novembre 1870. Rien de nouveau, AA à
 sauf la reprise de Dreux par les Prussiens, sur 6 ou Ru
 8 000 mobiles, M.M. Délerot & Bersot dinent chez nous.
 Commencé un travail sur la décentralisation. : 4
-Samedi 19 novembre 1870. Dimanche 20. Rien #
 de nouveau. L'affaire de Dreux semble se réduire. On “ ds
 s'est battu à Châteauneuf — Dimanche, retour de ‘
 M: Lean. Promené avec Joly. On dit que Houdan est A a
@@ -2191,9 +1744,6 @@ en sûreté — On dit que ns avons été battus à Chà- ds ra
 | teauneuf. — A 7 h. du soir, inauguration des cours ps: ï
 | d'adultes, à l'école de la rue Saint Simon — Discours
 : de M.M. Rameau & Bersot. 2,
-PAR
-AA : 14
-7510 . } L 1e 21
 
 les cahiers d'Arnold Scherer
 La Russie a dénoncé, il y a déjà qques jours, le
@@ -2223,9 +1773,6 @@ sien constate la présence d'Odo Russel à Versailles — II
 | paraît que les journaux anglais ont embrassé chaudement la cause de la France — Changement de front complet. On dit que les français jettent des ponts à Bezons
 & à Chatou — On dit aussi que Vernon, (Eure) aurait
 résisté aux Prussiens : on aurait massacré & pris beaucoup d'hommes & 3 canons — (les francs-tireurs.)
-56 S
-
-s
 
 Ê JOURNAL DE L'INVASION A VERSAILLES pre
 
@@ -2255,7 +1802,6 @@ Dimanche 27. La cannonade a repris ce matin
 entre 6 & 7 heures. — (J'apprends qu'elle a duré toute
 la nuit, depuis 10 h. jusqu'à 7 h.) La canonnade conti- U
 nue faiblement dans le lointain, probablt. au Sud de 1$
-Paris. (midi)
 
 Promené avec M. Délerot, à la butte des Moulins —
 
@@ -2292,8 +1838,6 @@ A5 3 fois ce matin sur la route de Viroflay à Châville |
 ‘14 Sèvres, étaient, ns disaient-elles, dans les boiïs de
 
 4 Châville. Elles avaient entendu leurs clairons sonner la
-
-À | charge —
 
 A Nous rebroussons chemin & nous allons à l'Interna-
 
@@ -2337,13 +1881,6 @@ Charles, ce qui prouve qu'il n'est pas pris, comme on
 
 | y dons 5 ou 6 coups de canons espacés — 4
 
-58 à
-
-i ; st
-
-4 ie
-& . he L
-
 È is MAN JOURNAL DE L'INVASION A VERSAILLES ni Ni
 _ Mercredi 30. Le canon a tonné violemment toute la Re
 nuit. Ce matin, j'ai été, après déjeûner, à la grille de 1118
@@ -2354,7 +1891,6 @@ leuses seules grondaient — Ms à 2 h. le canon a repris AS
 avec force jusqu'à 3 h. 1/2, où j'écris ces lignes. 14
 Entre quatre & cinq heures, tout s'est apaisé — LR
 Nous avons dîné chez M. Bersot avec M. Délerot & au
-M. Barbu — Le
 On annonce une défaite de l'armée de la Loire, & une . : AS
 _ défaite de l'armée du Nord. Celle-ci est certaine, mais ‘ei
 - celle de la Loire mérite confirmation. ‘oi
@@ -2370,22 +1906,16 @@ d'État. Pas de nouvelles: je me trompe, un congrès à Ni: in
 Londres, pour régler le conflit anglo-russe. L'affaire de 1
 Beaune la Rolande n'a pas été une défaite pour nous. 34
 L'affaire du.29 & du 30 n'ont pas non plus été mau- ‘os
-vaises. \ RE
 On continue à affirmer que le P® Fréd Charles est k si
 prisonnier — QUE
 | On parle d'une victoire des Français près de Longju- N:
 k meau, & d'une autre à Méréville — . na 1)
 q M.M. Délerot & Bersot dinent chez nous. nn qe
-5 ni:
-k M.
-ph FAR
 
-Le un PA EE MP TER CMP ES ARTE T ONE TEEES
 À les cahiers d' Arnold Scherer :
 Le canon a un peu tonné aujourd'hui & beaucoup
 daps la nuit (du 2 au 3 —)
 . Samedi 3 décembre. Ce matin à 11 h. nous nous
-4 sommes mis en route, MM. Bersot, Albert Joly &
 % moi pour Sèvres, où Délerot nous a rejoints. Nous
 4 ï avons déjeùné chez M. Journault, maire de Sèvres,
 avec 2 ou 3 conseillers municipaux. Après quoi, j'ai
@@ -2411,14 +1941,10 @@ sur Arras après l'affaire de Villers Bretonneux.
 Lu l'indépendance belge du 30. La situation paraît
 | bonne — (Lettre de ma mère par poste prussienne
 J'ai vu aujourd'hui une douzaine de personnes attroupées devant une affiche en langue allemande, annonçant
-6o
-x
 
-3 JOURNAL DE L'INVASION A VERSAILLES “34
 £ l'établissement d'un magasin d'objets militaires — Les
 bons Versaillais étaient occupés à compter les lettres 4
 d'un mot qui en avait bien 20 ou 30 — C'était le mot : 7310
-Ausruestungsgegenstaende. A: à
 M.M. Délerot & d'Alaux sont venus le soir. F0
 Lundi 5. Qques coups de canons isolés hier soir & 1
 ce matin — Grandes nouvelles — Orléans est repris TS
@@ -2427,8 +1953,6 @@ la Marne, ravitaillerait Paris, & donnerait la main à ; ‘4 p
 l'armée de la Loire — ‘@
 Nous dinons chez M. Bersot avec Délerot. Après diner, "
 nous allons entendre une leçon de Dietz, sur le Misan- $
-thrope, (aux adultes) 70
-Ch
 Mardi 6. Triste journée, la plus triste que nous ‘
 ayons eue depuis la prise de Metz. Orléans.a été repris, 1e
 mais après une défaite d'Aurelles de Paladines. Ducrot We
@@ -2438,7 +1962,6 @@ de Chartres. 21:00
 Mon père a vu Odo Russell & W. H. Russell, corres- #
 pdt, du Times — J'ai faitlune visite à M° Lean, chez qui 4, 5
 j'ai vu un g*! américain, G* Duff, qui m'a prêté des !
-journaux anglais. (2
 Mon père est très triste & découragé — Il a fait une |
 troisième leçon à la rue S* Simon, ce soir — ë à
 La situation paraît grave, Paris ne pouvant plus se K
@@ -2446,7 +1969,6 @@ ravitailler, & l'armée de la Loire étant battue, ainsi que f: &
 } celle du Nord — Comment tout cela finira-t-il? Il y a KT
 des moments où l'on devient fou. « 2
 On a envoyé un parlementaire à Trochu, pour lui 4e
-61 Arnold Scherer. — 4 4
 
 “ annoncer la bataille d'Orléans, & pour l'inviter à ne d
 Dee envoyer un commissaire sur les lieux pour se convaincre
@@ -2463,10 +1985,6 @@ NS assisté à la bataille avec le gros de l'armée. Gambetta
 | a été blessé, dit-on. Le soir, après la leçon de Pigeon-
 
 108 neau, M.M. Bersot & Délerot prennent le thé chez
-
-7 | nous.
-
-due
 
 & ï \ ‘és Jeudi 8. La situation paraît de nouveau moins bonne. :
 
@@ -2499,10 +2017,7 @@ ff. br: Nord. — Sauf cela pas de nouvelles — M.M. Bersot &
 
 740 > Délerot dinent chez nous — Leçon de Colomb, le soir,
 
-me aux adultes.
-
 D NE dt
-;; FPS JOURNAL DE L'INVASION À VERSAILLES DU
 “A HE Samedi 10 déc. I870. Albert Joly est père d'une SET
 | petite fille — Pas de nouvelles — Je lis l'Indépendance 4
 5 du 7 déc. Leçon de M. Girardin sur La fontaine. n: é S
@@ -2560,10 +2075,7 @@ maire tenait un des cordons du poële : les autres étaient
 tenus par MM — le docteur Fropo, de Nansouty & le co-
 : lonel Michel. M. Rameau a parlé sur la tombe ainsi
 À que le Dr. Fropo. Plusieurs officiers Prussiens assistaient
-GA
 
-2 JOURNAL DE L'INVASION A VERSAILLES 714
-_ aux obsèques, parmi eux Voigts Rhetz & Treskow : à ‘4
 un peloton Prussien & une musique Prussienne précé- ‘
 daient le convoi, ainsi qu'un peloton d'infirmiers fran- tes
 çais — Le cercueil était couvert d'un drapeau tricolore — 11
@@ -2571,8 +2083,6 @@ Le canon à repris depuis hier par intervalles — Le É à
 soir, j'ai fait une conférence aux cours d'adultes, rue *
 Saint Simon, sur Herculanum & Pompéi: j'en ai été bi.
 plus content que de la rère, va
-M. Brecoster, mort avant hier, a été enterré aujour- s
-d'hui. &
 Dimanche 18 déc 1870. Aujourd'hui, la députation A
 du Reïichstag, chargée de présenter au Roi de Prusse n.
 l'adresse l'invitant à prendre le titre d'Empereur d'Alle- ÿ
@@ -2590,11 +2100,9 @@ charretée de carnaval ! le drapeau de la confédération : 14
 a été hissé sur la Préfecture pendant la cérémonie, & à
 baïssé ensuite — Tous les hobereaux étaient en l'air — À
 Conférence ennuyeuse de M"° hommaire de Czell. ù
-d'Alaux à diner 14
 . Pas de nouvelles — Retour de Barbu — %
 Un directeur des postes de Seine & Oise est nommé — 54
 (— Il est bon de noter, en passant, que la Préfecture de rar
-À 65 Arnold Scherer. — {. à ÿ
 
 '# les cahiers d'Arnold Scherer
 
@@ -2607,21 +2115,17 @@ si ‘Vu des numéros intéressants du Pall Mall, contenant
 : de vue politique & moral —
 js Une batterie française est à Meudon, capable de tirer
 js sur Versailles — Nous allons donc être bombardés inces-
-à samment —
 
 nt La Prusse persiste ds l'affaire du Luxembourg —
 
 jé Les Anglais qui sont ici sont très émus de l'arrestation
 14 du capitr Hozier & de ses collègues à Étampes, où ils
 F6 ont été pour ainsi dire, mis au secret —
-s ‘ Jaurès commande au Mans, & Bourbaki à Bourges,
 ; Chanzy au Nord dela Loire, mais onnesait où, au juste —
-+ Faidherbe à Lille —
 ÿ Le canon a tonné un peu cette nuit, & toute la journée
 | d'aujourd'hui par intervalles. Demain lundi, il ÿ aura
 : trois mois que nous sommes envahis; les Prussiens sont
 Fe entrés à Versailles le lundi, 19 septembre —
-Fu
 k Lundi 19. Trois mois! — Pas de nouvelles — Visite de
 AR G.D — 2 lettres, une de Jeanne & de ma mère, l'autre de
 À ma tante Catherine — Dîner chez M. Bersot, avec Délerot.
@@ -2632,7 +2136,6 @@ a) Bruits vagues — Arrivée de 150 marins Prussiens — Assez
 
 #1 pri
 
-44 : JOURNAL DE LINVASION À VERSAILLES HA ; si
 30) Mercredi 27. On a vu, lundi soir, une vive lumière, Hal
 “SO tantôt blanche, tantôt rouge, audessus de la Préfecture D:
 ' — Les uns ont cru que c'était une lumière électrique, les 14 à
@@ -2662,19 +2165,12 @@ de Garibaldi, qui les a beaucoup attirés — Dans la même AS
 maison, ils ont fouillé la cave, & ont même sondéles
 murs de la cave— Ils ont trouvé dans l'appartement de 1 %
 
-M. Meynier, capit® d'État major, actuellement prison- #
-
 nier en Allemagne, des épées, qu'ils ont emportées; f 1
 
 Cela a motivé l'arrestation du beau père du propriétaire, ru K:
 
 un monsieur assez âgé — Le quartier S' Louis était blo- MN
 
-ù SPA
-
-s. : ge 4
-
-8 A M In ns :
 F les cahiers d' Arnold Scherer
 qué par toutes les issues — Il fallait, pour passer, une
 | permission des officiers qui dirigeaient les perquisitions—
@@ -2695,7 +2191,6 @@ Pc Putbus, ce qui équivalait à rien du tout — On a
 18 ‘aussi été chez Duff & M° Lean —
 Résultat des perquisitions ds. la ville — Environ 100
 } ou 200 arrestations, dont une dizaine seulement mainte-
-? nues — 75 fusils saisis, qques épées, poignards & re-
 | volvers — La ville a été frappée de terreur par tout cet
 f appareil. Les Prussiens craignaient, dit-on, une conspi-
 ï ration contre le roi & Bismarck, & ils cherchaient autant
@@ -2706,20 +2201,15 @@ chercher, & ont fait des recherches dérisoires. D'ailleurs,
 beaucoup d'armes pouvaient être cachées en dehors des
 maisons ; beaucoup de francs tireurs, si francs tireurs
 ; il y a, pouvaient être à se promener dans la ville —
-E 68
-°
 
 | JOURNAL DE L'INVASION À VERSAILLES nn.
 Chez nous, un des soldats a oublié la baguette de son +51 1e
-fusil. :Ue
 Pas de nouvelles — M.M. Bersot & Délerot le soir. Vu Re
 Delaroche, M° Lean, &. à de
 Jeudi 22 Déc. 1830. Les Prussiens avaient annoncé 4
 avant-hier soir un succès vers Nuits — Ce sont eux au 24
 contraire qui ont été battus; ils ont dû évacuer Nuits & ‘
-reculer jusqu'à Dijon — \e
 Dans la nuit dernière — (de mercredi à Jeudi) une sh
-batterie française, établie à Billancourt, a bombardé C
 Sèvres, mais sans grand dommage pour les Prussiens, 4
 qui n'ont eu que 8 blessés — une vieille femme a été tuée 2
 — 500 bombes environ sont tombées ds la ville — Les :
@@ -2732,7 +2222,6 @@ ment de Sèvres ne fait aucun mal aux Prussiens, & peut s
 causer de graves dommages à la ville, qui a déjà subi '
 environ 2.009.000 de pertes: Des objets d'une valeur %
 d'environ 2 000 000 sont accumulés à la mairie, & "47
-_ devraient être abandonnés — à
 La ville de Versailles a été taxée aujourd'hui d'une w:
 amende de 50 000 fr. par herr von Brauchitsch, préfet s
 de Seine & Oise, député au Reichstag, gendre de M. de 74
@@ -2740,10 +2229,7 @@ Roon, pour n'avoir pas encore rempli le fameux maga- ve
 sin, (voy. plus haut.) Or les marchandises sont en route, [ESS
 & sont arrêtées par la Commission des lignes Prus- ta
 siennes. Si, au 5 Janvier, le magasin n'est pas fourni, la #2
-ville devra payer 75 000 fr. d'amende — ñ
-L ; pi
 
-a
 les cahiers d'Arnold Scherer $
 
 Czerniski est venu aujourd'hui voir Delaroche à l'Internationale & lui a annoncé que dans 3 jours, la
@@ -2756,8 +2242,6 @@ cu, conseil municipal & à déporter les membres de l'Internationale —
 1 à Versailles, pourront, si bon leur semble, être conduits
 ; aux avant-postes, pour regagner la Société centrale
 française : les membres non domiciliés ici, devront
-
-quitter Versailles —
 
 Ce soir, par moments, une très-vive canonnade, qui
 
@@ -2772,7 +2256,6 @@ moment, il semble venir de 2 côtés à la fois —
 
 On dit que Gambetta a été frappé d'aliénation mentale:
 d'autre part, on prétend que Thiers est ministre de la
-guerre —
 
 Vendredi 23 décembre 1870 — Hier, Czerniski est
 ‘ venu comme je l'ai dit, intimer de la part des autorités
@@ -2784,9 +2267,6 @@ désolé, & a dit à Delaroche qu'il devait y avoir un
 
 gage, a dit qu'il conférerait avec les autorités supé-
 
-EUTARS" "!
-
-DUR JOURNAL DE L'INVASION À VERSAILLES 1 ‘1 |
 | rieures, & a remis la réponse à l'après midi — Il est en *110
 effet venu à 6 h. ms Delaroche venait de quitter : VAR
 _ l'hôtel des Réservoirs — On a dû aller le chercher —Je ne À ie
@@ -2803,7 +2283,6 @@ lement de se transporter sur la Loire, ayant été nommé :4
 des membres du comité ferait ce que bon lui semble- 3
 rait, que pour lui, il comptait garder sa carte, qui lui 3 Et
 appartenait, & qu'il permettait seulement que la signa- AS
-ture Putbus fût rayée — “4
 D'autre part, les ambulances particulières sont accou- \ 02
 rues se mettre sous la protection de Putbus, qui a été "VUS
 vexé d'avoir tout cela sur les bras, & désolé de toute 2 F
@@ -2819,8 +2298,6 @@ Il y aurait une sortie au nord — 087
 Vu M°Lean, Delaroche — Visite de M®° P, Labouchère SNS
 de Jouy — M.M. Bersot & Délerot à diner. D'alaux le :: 11
 soir — On annonce une conférence à Londres pour le à Le
-a ais
-MES LRU 0
 
 ' les cahiers d'Arnold Scherer
 “ 12 Janvier — Pas d'autres nouvelles — Rien d'impor-
@@ -2839,7 +2316,6 @@ de Voigts-Rhetz? de Putbus? ou d'une intervention
 étrangère? Enfin, quel est le rapport entre les perquisitions de mercredi & l'ordre de dissolution de Jeudi?
 Toujours est-il que l'Internationale est rentrée en fonctions —
 D'Alaux à diner — Rien de nouveau — Vu M° Lean,
-. Delaroche — À
 Dimanche 25. Jour de Noël. Nouvelle d'une bataille
 | indécise près d'Amiens — Canon toute la nuit & la
 journée — On parle de sorties — Vu M° Lean, Delaroche
@@ -2850,33 +2326,23 @@ Pas de nouvelles — La situation du conseil municipal
 devient grave — On s'attend pour demain à une démis:
 sion collective, le préfet exigeant l'amende de 50 000 fr.
 & ds 5 jours, celle de 75 000, si les marchandises
-! 72
 |
 
-et JOURNAL DE L'INVASION A VERSAILLES \ D PA
 du magesin n'arrivent pas; Peut être après demain, les ne:
-. à SUN
 conseillers seront-ils en route pour l'Allemagne. . . . . “ie
 — Interrompu par l'arrestation de d'Alaux — Mardi 14
-matin. titi
 
 31 déc. délibération du conseil. Refus de payer ti
 l'amende — nn.
 Arrestation de Rameau, Mainguet, Lefebvre, Barrué- DL
-Pérault. Re
 > OLX
 1e" Janvier. On entend le canon plus ou moins tous AT
 ces jours. Eu
 4 Janvier. Perquisition faite chez nous par Czer- 24
-RS |
-niçki — ‘408
-EE Z * (A
 Du 27 novembre au 4 Janvier, mon journal a été LU
 déposé chez le Père Gagarin; du 4 Janvier au 15 février, on.
 de
 chez M. de Cappot. 0
-Cl
-OAI
 Mercredi 15 février 1871. L'interruption de mon ., ne
 journal et sa mise en sûreté ont été motivées 1° Par la +.
 situation dans laquelle se trouvaient placés les conseil- ñ
@@ -2886,10 +2352,6 @@ envoi de garnisaires — 2° Par l'arrestation & le procès (2
 qui avait entre les mains des extraits de ce journal — He
 D'Alaux a été jugé comme prévenu d'espionnage & {1 hÈ
 d'excitation à la guerre de broussailles. Il a été défendu UE
-HUE,
-NON
-\ 73 Arnold Scherer. — 5 ; V2
-: tr
 
 4 î les cahiers d'Arnold Scherer HP Mans
 F: par mon père & acquitté — Maintenant tout danger
@@ -2922,11 +2384,7 @@ j manifesta d'une façon curieuse, par une longue visite
 | faite par le général Voigts-Rhetz, le 1% Janvier, au .
 # maire prisonnier. ;
 Depuis, les marchandises sont arrivées — 4
-74 ;
 
-ei + Ne!
-
-Het” | JOURNAL DE LINVASION A VERSAILLES 1e k F3
 ‘1 Jeudi 16 février. Je continue mon résumé très rapide À "5
 des principaux événements depuis le 1° Janvier — Et ke
 :: A Versailles, il n'y a rien eu d'important, sauf les AE
@@ -2934,10 +2392,6 @@ _ élections & la campagne électorale, menée rondement ‘à F0
 en 8 jours, & pour laquelle nous avons ressuscité ‘14
 VUnion Libérale. La liste démocratique a passé tout 1e
 entière, sauf 3 noms — Voici les noms de nos députés Fa
-1° Barthélemy S‘ Hilaire. 2° Rameau. 3° Lefèvre-Pon- Fe
- talis — 4° Ernest Feray 5° Léon Say 6° Ernest Picard. #4
-7° Carnot. 8° Thiers 9° Léon Journault 10° Jules Favre. CL
-11° Léon Gambetta. 2
 Graduellement, nous recevons, un à un, les résultats 4 À
 du vote à Paris & dans les départements. es.
 La capitulation de Paris a été comme un immense Ge
@@ -2959,7 +2413,6 @@ _ moutons, de Brie, de Lorraine &. &. va 4
 Aujourd'hui, ce sont des bandes de 10, 20, 50, 100 | ae
 | voyageurs à pied, hommes & femmes, (qquefois une ‘0
 ou deux voitures dans le cortège, le sac sur le dos, pal. vu
-ki 75 fl à
 
 È les cahiers d''Arnold Scherer |
 des bottes aux pieds, le bâton à la main, qui traversent la ville, escortés de soldats Prussiens, pour
@@ -2992,8 +2445,6 @@ s M. de Hatzfeld partagèrent les bijoux — [du premier
 texte:] Enfin le soldat fut relâché & les objets volés
 ne furent jamais rendus.
 
-À
-
 je me JOURNAL DE L'INVASION A VERSAILLES HR à
 Ex Demain, je vais à Paris. Je continuerai régulièrt. mon :r
 journal à partir de ce moment à
@@ -3012,7 +2463,6 @@ part de Bismarck, de 6 verres à Champagne, de plu- ‘14
 sieurs nappes & serviettes — d'une chaise longue & d'une 3,60
 chaise percée pour le même : de plumes, porte-plumes, = ie
 encriers, & fournitures de bureau pour le congrès des ‘4
-ministres allemands. ; A
 Aujourd'hui, dimanche 19 février, il y a eu à la mairie 154
 une réunion de maires du département, au sujet d'une % #
 contribution de 10 000 000 ‘, imposée au département, ne à
@@ -3025,17 +2475,13 @@ de payer les contributions indirectes, soit 150 000 fr. par LA
 mois. — (Elle paie déjà 150 000 environ de contributions De
 directes.) On est allé réclamer; mais il a répondu que (n Ë
 les journaux & le gouvernement de la défense natio- Va
-Re
 le DE:
-nt AN. 4 LORD" ©
 
-ner Fr 4 pate a HER ae FENNT FTSP'E LPS PAT EN
 les cahiers. d'Arnold Scherer À
 nale ayant maintes fois répété que les richesses de la Don
 4 France étaient inépuisables, on n'avait qu'à s'exécuter.
 à Les nouvelles de Bordeaux nous font voir la paix
 pis comme certaine — Thiers estnommé président du pouvoir i
-1 exécutif.
 | Samedi 25 février 1871. La situation redevient
 | de nouveau tendue. Les négociations pour la paix n'ont
 pas encore abouti. La municipalité est de nouveau sous
@@ -3048,7 +2494,6 @@ eus des adjoints, qui ont révélé à Nostiz-Wallwitz, commis-
 1 abstenus) une délibération par laquelle il refuse les
 } 230 000 francs. Que va-t-il s'en suivre ?
 Ÿ Hier, Vendredi, visite du P. Hyacinthe, retour d'An-
-$ gleterre. i
 | Samedi — (25 fév.) hier soir, les négociations n'avaient
 " pas abouti. Thiers est revenu aujourd'hui —
 s Il n'y a pas eu de mesure de rigueur contre la muni- |
@@ -3058,14 +2503,8 @@ pi cipalité — Vu de nouveau le père Hyacinthe, & causé
 4 politique. Il n'a rien de mystique, rien d'exalté. Il cause
 4 froidement, avec une certaine réserve, émettant des
 y opinions très modérées & terre-à terre.
-Ë Dimanche 26 février 1871. J'ai été en omnibus
 \ jusqu'à Sèvres, où j'ai vu passer en voiture Thiers & 1
-\ 78 ;
 | if
-
-RE | JOURNAL DE L'INVASION A VERSAILLES | "10
-
-D Jules Favre, se rendant à Versailles — J'ai poussé M
 
 jusqu'au fameux pont de Sèvres, dont une arche est \ 10 d
 
@@ -3105,8 +2544,6 @@ grande vengeance, du feu du ciel, Sodome & Gomorrhe. # LA
 On aurait dit que ce repaire d'une famille maudite, ce u W:
 
 | lupanar, cette tanière d'où le bandit & son fils sont partis ; ÿ je |
-} LME
-L- AE 79 4 14
 
 les cahiers d'Arnold Scherer s {
 pour la guerre, ce palais où a été commis le 18 bru6 maire, devait être détruit par l'étranger. Maintenant le
@@ -3138,14 +2575,10 @@ décombres, & bordées de grands pans de murs qui
 menacent ruine. Déja qques habitants sont revenus
 : & travaillent à déblayer — On entend partout des cris
 
-M NAS Eee
-‘oi JOURNAL DE L'INVASION A VERSAILLES ‘10
 d'imprécation contre les Prussiens, qui ont brûlé Saint 148
 Cloud le lendemain de la convention de Versailles — Dre
 Je suis revenu à Versailles par la route de Ville RS
-d''Avray — EE.
 On dit la paix à peu près faite, avec l'abandon de D)
-Metz, & 5 milliards d'indemnité. ï
 Vendredi 10 mars. Le départ des Prussiens, an- j
 noncé pour demain, est contremandé, par suite de l'en- LA
 combrement des trains. Le Roi, le P‘, le Bismarck, de ‘4
@@ -3167,9 +2600,7 @@ la garde nationale de Versailles. 4
 Mardi 14. Arrivée de M. Thiers, à pied, de la « gare des Chantiers à la Préfecture, suivi du seul Bar- "]
 thélemy Saint Hilaire. Le drapeau tricolore hissé sur ÿ
 la Préfecture. te
-(2
 | ‘ 81 Arnold Scherer, — 5. LA:
-L \
 
 se a Qui DA FA e ui PARATRE & à TA j Moines ne a AN TR
 les cahiers d'Arnold Scherer *
@@ -3177,7 +2608,6 @@ Mardi 2 mai. Été à Montretout avec M. Crawford.
 Vu le duel d'artillerie entre Issy, le point-du-jour, À
 Vanves, & & d'une part, & Bellevue, Breteuil, les 3
 L Moulineaux, Châtillon, d'autre part. Vue admirable. |
-L
 Ç Vendredi 26 mai. Et aujourd'hui, les palais, les
 \ monuments, les Églises, les bibliothèques ont brûlé. 1
 * Paris est découronné, Paris, la cité Sainte, & ce peuple |
@@ -3197,7 +2627,6 @@ n'a plus l'air d'une pierre taillée, mais d'un roc brut. |
 4 Le plafond est tout noir de fumée. Du côté de la cour
 de Cassation un monceau de décombres —
 Jeudi 8 Juin. Séance de l'Assemblée Nationale.
-À
 | Jeudi 15 Juin 1871. Dans le train de Paris à Ver-
 É sailles, (rive gauche) de 3 heures 5 minutes, dans un
 | compartiment de r"° classe, je vois entrer un monsieur ‘4
@@ -3206,7 +2635,6 @@ hi, certaine élégance soigneuse. Sa figure est insignifiante, l
 F4 son nez long & pointu, ses lèvres un peu pincées. IL à
 ; porte de gros favoris roux entremélés de quelques fils | » Ai DA
 
-JOURNAL DE L'INVASION A VERSAILLES YA pa.
 f blancs : son œil est froid & terne. C'est un banquierin ñ but
 _ telligent, ou peut être un avocat de 3° ordre, en tout 1
 cas un mari ennuyeux & ennuyé. (Hs
@@ -3232,17 +2660,10 @@ Au bout de 10 minutes, un large baïllement contracte BAL A
 | sa figure; il remet son livre dans sa poche, tire un FT
 ; _ cigare & un figaro — Beaucoup de gens comme ce Pa
 | monsieur, & la France sera sauvée — — — — — — va
-— — — — — O prêtre! animal dangereux & sournois, 44 \
-flatteur & féroce, doucereux & sanguinaire, rampant M
-& orgueilleux, hypocrite & cynique, humble & despo- ” “ol
-tique ! Ph 14
 | Instrument de crime & de perdition, artisan de 4 He |
 révolution, ennemi du progrès, ennemi du juste, du NS
 beau, du vraï, ennemi de la nature, ennemi du corps FN
-w 83 38
 
-PO TR TN LR PT TA On AVENIR : AR NOT L'NE PEe: PER RENE
-d ' 4 ARE !:
 les cahiers d''Arnold Scherer
 humain et de la pensée humaine: O prêtre, c'est toi qui |
 as fait de nous ce que nous sommes! C'est toi qui as
@@ -3253,15 +2674,12 @@ chair humaine! C'est toi qui as préludé aux massacres
 de septembre & aux massacres de 1871 par la SaintBarthélemy, à la guillotine par le bûcher, à Louis XVI
 par Jeanne d'Arc, au tribunal Révolutionnaire par l'Inquisition. C'est toi qui as bu le plus pur de notre sang, ‘
 & qui veux encore aujourd'hui saigner notre pauvre
-France anémique & souffrante.
 Malheur à toi! sois maudit devant les hommes que tu |
 étouffes & devant l'être inconnu dont tu profanes le
 | mystère ! sois maudit par l'intelligence que tu éteins,
 & par la volonté que tu brises, par l'âme que tu |
 détruis, par le corps que tu corromps! Sois maudit, |
 par la terre que tu souilles, & par le ciel, que tu ;
-infectes! Sois maudit, prêtre, sois maudit! 1871
-Lundi dernier, 30 octobre 1871, à diner, M. Boutmy |
 nous a cité le mot suivant de Taine : « Si le Rhin d'un
 côté, la Vistule de l'autre, débordaient & submer- |
 geaient l'espace compris entre eux, j'en serais enchanté. » 4
@@ -3270,7 +2688,6 @@ chose, puisqu'elle a réveillé chez un homme comme
 Taine la fibre patriotique & française, jusqu'alors profondément endormie. 4
 |
 
-JOURNAL DE L'INVASION À VERSAILLES “100
 Dimanche 17 décembre 1871 — J'ai vu aujourd'hui 4% #
 Albert Joly, & j'ai causé avec lui de Rossel. Tout ce qui x
 
@@ -3305,8 +2722,6 @@ Votre mari les a gardés — Il a d'ailleurs, contribué à le $
 faire fusiller, ainsi que M. Barthélemy St Hilaire ,
 qu'il voyait souvent, & à qui il a dû livrer ces papiers. Je.
 85 1
-Ê
-} a
 
 | les cahiers d'Arnold Scherer pipe
 \ M: Joly, après avoir exprimé son étonnement d'une 4 :
@@ -3347,7 +2762,6 @@ jf je n'efforçais de tout assoupir, de tout atténuer. Elle, au ‘
 | Fa dé ls ;
 
 É tu RETENUE AR EURO OPEN POP RNA LAN E SENS ee
-hi “ JOURNAL DE L'INVASION A VERSAILLES 1 De
 | contraire, allait partout, disant les grandes choses que 5
 
 ! son fils ferait quand il serait gracié, comment il réorga- Me 11
@@ -3422,7 +2836,6 @@ communier, de se préparer à la mort, & qui voulait être :
 88 4
 
 din di li mr dé ss ji jé jé à À A Fe AAA du {: F ty ne +4 Û 4 È
-M. JOURNAL DE L'INVASION A VERSAILLES ; ‘1
 Je le questionnai ensuite sur la sincérité du patrio
 
 | tisme de Rossel. Il dit qu'il y croyait, sans nier ce qu'il ne.
@@ -3459,7 +2872,6 @@ avec moi dans des relations amicales, je lui ai toujours 19
 trouvé une certaine dureté. Ce n'est que le matin de sa ‘4
 89 2
 
-MAT EURE PR SC ES TARN SES
 4 k Ne deses DRATTE HOUR
 les cahiers d'Arnold Scherer
 4 mort que je l'ai trouvé réellement expansif & affectueux À
@@ -3489,14 +2901,11 @@ il me dit qu'il n'avait jamais vu chez lui de traces de ‘3
 5 compagnon, sur qui la jeunesse prenait des droits, & L
 1h non comme un être immaculé, sans vices. Joly parut 4
 j étonné, & dit qu'il se le figurait ainsi, immaculé & sans À
-ri vices. 4
 Je l'interrogeai aussi sur les opinions politiques de 4
 A Rossel. En particulier, je voulus savoir si, selon lui, f
 \: } Rossel était républicain avant le dix-huit mars, ou du l
 a moins, s'il avait conscience de son républicanisme, si ce \
 
-su | JOURNAL DE L'INVASION À VERSAILLES ‘à Un
-(ps * NAS
 _  républicanisme, au lieu d'être une cause,n'avait pas été | à 10
 chez lui un résultat. Joly confirma pleinement mes sup- "St à
 À positions. Je lui citai cette phrase tirée des Derniers 1
@@ -3527,7 +2936,6 @@ petit trou noir. « Sa mort a été belle », me dit Joly h F4
 humain, vrai, & courageux, sans se soucier de l'effet DEN
 1 qu'il allait produire — C'est ainsi que je voudrais HN
 | mourir. » Qt
-ns 9x FUN
 
 ur les cahiers d'Arnold Scherer %
 
@@ -3561,8 +2969,6 @@ Il parle beaucoup de Victor Hugo, auquel il paraît À }
 antipathique par nature. Il cite un mot que Victor Hugo
 lui adressa, vers 1850, dans une réunion de la gauche de
 l'assemblée; quelques membres s'étant retirés pour
-92 Ÿ
-à
 
 JOURNAL DE L'INVASION A VERSAILLES pa
 rédiger un procès-verbal de la réunion, plusieurs projets 8 ;
@@ -3596,19 +3002,15 @@ faire une profession de foi très-peu orthodoxe — février 4
 Lundi 4 février 1872. Passé la soirée d'hier, dimanche, ÿ
 chez la famille Charton. 1 i
 93 4
-ke
 
-: ANT FAT RAU AIAN 5 sil 137 4 45 ROMANE
 he PAÉAUEEN les cahiers d'Arnold Scherer
 TE Février 1872. Course à Auteuil & à S‘ Cloud avec
-d J Ron ; & 5 |
 ‘As k Mars. 1872. Jeudi 14 mars. Vu la 31° représenta |
 UE tion de la reprise de Ruy Blas, à FOdéon. La pièce
 qi SAR froide mais belle & intéressante. Geffroy (Salluste) & « +
 à Sarah-Bernhardt, (la Reine) très-bons — Mélingue, vu
 “a _gaire & médiocre dans Don César. Lafontaine, détes-
 # table dans Ruy Blas — e
-14 A f 4
 k Mardi 19 mars. Vu les Noces de Figaro à l'Opéra à:
 F6 Comique, avec M Miolhan dans le rôle du Page, À
 Der. M: Cico, (Suzanne) & Marie Battu, (la Comtesse) Les
@@ -3619,20 +3021,13 @@ a portrait d'une Espagnole en rose — Fait connaissance À
 Ron avec l'Exécution sans jugement, & le reste — me
 18 Vendredi 22 mars. Vu, au Palais-Royal, Tricoche à
 ve & Cacolet, de Meilhac & Halévy, joué par Brasseur,
-BY Gil-Pérez, Lhéritier, Hyacinthe & Lassouche — À
 Pit Mardi 26 mars. Vu aux Français, Christiane de à
 1 Gondinet, jouée par Delaunay, Coquelin, Febvre,
-AOTEUS Prudhon, Thiron, M‘ Ponsin, Reichemberg. 3
-n
-U He Mardi 21 & Mercredi 22 mars 1872. Assisté aux
 ns F interpellations de M. Rouher sur les marchés passés. 13
 pendant la guerre — Entendu Rouher, (2 fois) le duc
 : d'Audiffret-Pasquier, Gambetta, le duc de Broglie — M
 pu 2 mai 72. Vu Gambetta & Challemel chez Ordi ‘4
-ee 94 Ja
-nt 4 RAS
 
-4 ei nn Mn FAIR :
 ‘ _ Trouville. Sept. 1872. M'y voici encore, & toujours oi 10
 
 | pourmasanté. J'ai passé le mois de Juillet à me soigner M |
@@ -3647,105 +3042,32 @@ f Commodités du travail. 1° Livre pour les fragments DA
 Not 2 Répertoire alphab. pour les lectures — 1
 in æ Liste des livres lus. RARE A
 | 4° Recueil des sources à consulter sur chaque sujet D nn
-* |!" (avec table alph.) : 1108
 ns 5° Petit livre pour notions pratiques usuelles — ‘ii | 1
 po 6° Livre-recueil de faits observés, détails de mœurs IS
 É renseignements curieux. (avec table.) 0
 pi 7° Recueil de conversations remarquables, avec ou M fil (1
 nt sur des hommes intéressants. Mots curieux & Seti
-; authentiques. 1 À y Dr
 ! _ 8 Chemises logiquement classées, contenant des “0
 : notes ou documents divers. (avec répertoire) DA à
 | 9° Cahiers de notes & de rédactions pour cours 7) Na
-ke publics. 1410
 | 10° Pensées intimes & détachées. ‘VAR
 
 PE : PR: ST PAL A Er do LA Due ART
 14 ÿ [annexée à ces cahiers la liste imprimée ci-après] CAR de
-A4 è Le (a À É'
 ik Résultät des Elections Municipales du 25 Septembre 1870 tu
 4 f ul Électeurs inscrits, 9.923. — Votants, 5.256 Ne
-fe: CANDIDATS ÉLUS Di
-4 MM. 1. RAMEAU.............. 5.150 Voix Ne:
-IAE 2. En. CHARTON......... 5.004 À
-4. HUNEBELLE .......... {4.001 cer
-‘13 5. DE MAGNy............ 4.897 D
-‘4 6. BARRUÉ-PÉRAULT ..... 4.892 A
-dr 7. LAURENT-HANIN....... 4.881 ‘4
-‘4 BHBARBU:: LT EU OR SOS 4
 re 10: ARICRRE. 0 ONE N EMEA de.
-Fi 11. HORACE DELAROCHE.. 4.481 4
-I < 19 STASNE TURIN EN MUR GR
-f 13. PosTEL-GRUSSE. ...... 4.350 4
-; TA DEROISIN.. 5.200700 2e LEE one à
-Rise 15. C. FONTAINE.......... 4.263 4
-re 16. PESTY-RÉMONT........ 4.155 L
-134 U 19. DE MONTFLEURY...... 4.151 \
-or 18-(MAINGUET 05.00 IST D,
-{ 10-UBRRSOP. AE DIEU LR 800 4
-1 AO HHOUSAYE 2 00 EUE. SES 80 4
-° 4e 21) (JRANDEL. 22: S 600 Û
-HA An ANGE: 0-20 Cet OUR 4
-En 93: ALBERT JOLY.:../.2: 119.000 à
-Ê oh. DÉLEROT.:. ....... 2... 103.738 4
-FA 25 SCHERER 1.0. MN OU
-‘#l 26. LEFEBVRE 1.1.4. 71305 à
-D 27. LEBOURDAIS........... ‘3.505. 4
-‘à 29! DRBAINS . 1510002 PS Re 14
-ÿ 4 30. MAGNIER-LAMBINET ... 3.343 4
-ÿ ? CANDIDATS NON ÉLUS |
 # Ploix, 1.712 voix. — Guilloteaux-Vatel, 1.585. — Du Val- D
-le dailly, 1.538. — Talbot, 1.412. — Franchet d'Esperay, 1.370.
 Pa — De Loinville, 1.248. — Noguet, 1.180. — D'Amonville, È
-he 982. — Charpentier, 976. — Liébaut, 948. — Lefaivre, 655. —
-15 Duhaut, 640. — Bréchemin, 600, ete., ete. 1
-4 ÿ il
 
-RAT A Va HOUR NT D QE A A PM PRES AN TE CELA ER ,
-PATES 1550
-24 DRDAe ? Rs
-D © PRIE DA:
-._ LETTRES D'EDMOND SCHERER ‘3 5
-A MADAME EDMOND SCHERER An
-“TA | |, AA
-MERS IC A
-ÿ Ex a! î s5 p À 0 9
-
-1,588 PRE F À SAR a
 AR ER Arnold Scherer. — 6 ' ni PA
-54 PER 4 SPA
 
-ARENA A NE Da ARE à NT at 2 A <
 #4 : A AOL QU SERA EE A À AR APPEL RO EEN PAUSE RM PENENR TERRA
-PENSE EAN HA à See x NC SORA CERN
-RERYAS à À aux XP $ ct) Fe? PR AT
-F1 DONNE FER \ 147 | NV HAE
-‘TRE | | ‘1 NTRENRNNSS
-L'HEURE " APS EMA
-DE UNE } ART ES RS (ol
-A ON T0 TA AS
-! ANUE à VUS ENTRER mi NS
 <HOENUNRI re 1 k DE MAMIE ñ
 SU AIRE ar ts ARRAAEN TES js)
-HA LIN EE TES ÿ Fe DEL 1 SR TOAN Va
-FAN \ PNA ANNE Pts
-DA ATEN TN A MMS
-{LASER F ETS HR al
-è 53 ta { AE 9 (EU Ne CENTS ETES
-M alt 5 \ MANS STARS hat
-NET) | 4 : AUS 291 T0
-ALTER 1 LAS TERINRENEESEES
-AU 4 : NUE
-s PL } } : *: re Hs CERN
-He EE Eole | ‘ j É } AR 1 A (HR
-FAN Nan d lACE DS CAT LAA
 | ar ACL ATP TES AE dt de AU VUE eee SE NRRSS
 
-LETTRES D'EDMOND SCHERER RC.
 pie à madame Edmond Scherer A du
-EL L " h
-f PAZa
-k Lundi matin 9 h. (19 sept. 70). ni: 0 À
 7 Ma chérie, Dre:
 _  J'ignore complètement quand cette lettre t'arrivera, et je à DE: :
 _ ne suis même pas sûr qu'elle te parvienne; l'ennemi peut ICE
@@ -3772,10 +3094,7 @@ _ me plaît pas assurément, ms qu'y faire? On ne peut faire FRE
 _ travailler un jeune homme en de pareilles circonstances, et, Fe +4
 au fond, il vaut mieux qu'il soit occupé d'une manière après A à j
 _ tout instructive. Il voit le monde, la vie, les hommes, — il Li 1
-ü à + à EE « HELE ? Nord k
-LE 1 HN ‘4 DU
 
-re: lettres d'Edmond Scherer ‘
 re x voit la làcheté, l'ignorance et le bavardage, — il assiste au S
 à 1 ; choc des opinions et des passions, — et n'est-ce pas de cela M
 1 que l'expérience se compose. DA.
@@ -3798,7 +3117,6 @@ S avait très peur et voulait absolument me faire décider pour ‘#
 ù elle s'il valait mieux qu'elle restàt ou qu'elle se retiràt en
 F0 Bretagne près de sa sœur. Je lui ai dit qu'elle ne courait
 F7 aucun danger. Je t'envoie un billet qu'on a laissé ici pour -
-k toi. Ë
 % Hier après diner, ns avons été voir Charton que ns 4
 3 \ avons trouvé seul avec sa femme, jouant aux échecs. Il a M
 quitté la préfecture. Son fils est à Tours. Il va assez bien, et
@@ -3813,12 +3131,7 @@ dr 3 Mardi matin, 8 h. 1/2. Quelle journée que celle d'hier,
 k mon enfant! Le matin done, cette canonade, qui a duré
 
 À environ trois heures, et au bruit de laquelle les ambusg J
-} 100 4
-À n'
-4e VIN is 43
 
-Ne A MADAME EDMOND SCHERER RE.
-LE % 108 %
 __ lances ont couru vers le champ de bataille pour ramasser 474
 _ les blessés. Bersot s'y est joint. On s'est battu depuis 4
 Vélizy jusque vers Meudon et Clamart. Ça n'a pas été 54
@@ -3857,12 +3170,9 @@ rangs : ns les avons salués, acclamés. Toute la ville était f 4
 . là naturellement pour regarder, et naturellement aussi bien $ 4
 des légèretés, des rires, un ignoble empressement: cependant |
 | _en général une certaine dignité, et çà et là des cœurs gros AE #
-L 24
-j: 101 Arnold Scherer. — 6. Eur
 1 44
 
 PRE EE VERRE ENT at Et PMR
-Diet lettres d'Edmond Scherer fie a.
 AS We comme le mien. Il semblait que cela ne finirait jamais; À
 
 pisse il a bien passé 4o mille hommes; on sentait que c'était …
@@ -3877,7 +3187,6 @@ DA façon, un tout autre type; c'était même l'un des traits
 k puis se sont étendus ds leurs manteaux pr la nuit. Ns
 j à avons traversé ce bivouac le soir, avec Bersot et Délerot;
 A ns avons dîné chez Bersot, bien ému de sa campagne de la M
-1648 journée. : 4
 Dre Les deux gares sont fermées, la poste ne va plus, on n'aeu W
 | hier ni lettres, ni journaux, ns sommes coupés du monde, M
 en On me dit pourtant qu'on tâchera de faire un départ par
@@ -3887,7 +3196,6 @@ ja 1) nous aurons le corps qui doit rester ici. Oh! ce 19 septem- M
 re bre, quelle date cela va faire dans mes souvenirs ! "170
 À \ P. S. Au moment où j'écris, le défilé commence, ils ar-
 À rivent par Satory. + \ 18
-M} À
 | Versailles, 22 octobre 1870. Du:
 it} Ma bien aimée femme, ‘18
 il Voici enfin et pour la 1° fois une occasion sûre, et j'en pro -\ 4
@@ -3902,12 +3210,7 @@ Ke tobre, je reçus, par voie inconnue, une lettre d'Eugène, qu, V:
 fe me prévenait de ton départ pour Genève; alors le 7, j'écri is KW
 ‘A à Louise un billet de 4 lignes, conçu de manière à vs fa ir an
 :4 comprendre que je savais ce départ. Ne comprenant que
-4 102 so ù
-à \. 410
-LD ete * À d {We
 
-14 Pare VA NE Chr al ‘1862: L f A #1 à
-A RUE A MADAME EDMOND SCHERER ‘ANUS
 | NE trop bien que la poste prussienne était une sorte de souri- ao A
 Re cière, je m'en tins là jusqu'au jour où ils annoncèrent que STE
 F . Je service était réorganisé, et qu'on pouvait même rece- or
@@ -3934,7 +3237,6 @@ dont lun avait aussi vu Jeanne, mais c'étaient des nou- KE to
 ; mande. Cette administration prend les lettres, les fait payer ‘y iN
 , et ne les envoie pas; et Dieu sait cependant si les miennes AUre. ‘f
 étaient innocentes et insignifiantes. Enfin, hier, j'ai reçu {10
-E PRE E s{ !" (00e
 4 la 1” et seule lettre de toi que j'aie eue depuis le 18 sep- ARTE,
 tembre (datée du 16)! Tu peux penser quelle joie! Elle était 1
 ‘ accompagnée d'un billet de M°* Favre, qui n'explique pas la Hs
@@ -3948,11 +3250,7 @@ nois; bref, tout en m'exhortant à répondre, ne m'indique pas Vi |
 À date, je ne savais même pas que tu fusses en Suisse. Avee | dl
 # quelle émotion j'ai revu ton écriture! Je t'assure qu'il y a NES
 L 45 des moments où le cœur se gonfle joliment dans cette sépa- ‘à
-A 4 ve 15
-ex k : 18
 
-DC lettres d'Edmond Scherer 111600
-tai : Me.
 AE ration, et cependant je n'ai pas cessé un moment de m'ap- Ke
 U plaudir de te savoir au loin, et quand je t'ai sue partie 1e
 er pour Genève, cela a été une immense satisfaction. Le fait É.
@@ -3992,9 +3290,7 @@ Le Tu ne peux te faire une idée de la Mairie, envahie £
 + toute la journée par des militaires qui viennent demander me
 x ' des logements, des vivres, toute espèce de choses. Un jour, De
 er, c'est 180 mille chemises de flanelle, un autre jour 150 ton- ‘4
-A 104 1%
 
-ARR RES à j RAR
 ne A MADAME EDMOND SCHERER | ne É
 FE peaux de vin, un 3 une contribution de guerre de a é
 4 400.000 fr. Le conseil a été très digne et ferme, au total, Et 4 ns
@@ -4036,10 +3332,7 @@ est celle de Gustave d'Alaux, qui avait été à Sedan comme fe 4
 correspondant des Débats, et que je connaissais par des 4
 articles dans la Revue des deux Mondes; très bon enfant, C4. 60
 pas poseur; il a déjeuné et dîné avec nous. Le 2 Oct. 440
-px
-105 A.
 
-°S san lettres d'Edmond Scherer RE che
 Charton et Saglio sont partis, ce qui a réduit notre cercle; D,
 _  Délerot voulait s'en aller aussi, ms ns lui avons fait com }
 HA: prendre facilement que son devoir était de rester au poste.
@@ -4073,15 +3366,11 @@ D} 3 leur présence est notre grande occupation et préoccupation; À É
 (4 . Ns avons dû arranger tout, vos chambres en particulier, h
 Ru tout enfermer dans les armoires. J'ai mis toutes tes
 cu affaires dans ton cabinet de toilette, dont j'ai pris la
-1 clef. È
-RS Our poor little house, what a pig-sty it willbewhenthey
 ke leave! Ms je me hâte de finir. Hier matin grand étonne
 à ment, Hottinguer entre en uniforme, avec la croix de S'
 1 Jean, une belle barbe blanche; il veut m'embrasser, je ‘
 RES l'arrête, je parle de méprise, enfin il est obligé de décliner #4
-Pan: à
 
-1 OR RO GA AS ARE ANUS RAT METRE TRE
 là (NE A MADAME EDMOND SCHERER < in 4
 4 son nom! Il arrive de devant Metz (comme hospitalier), et il | nn
 | yretourne demain. C'est lui qui se charge de cette lettre. Il a a:
@@ -4115,15 +3404,10 @@ ma chérie; quel bonheur d'avoir pu t'écrire. Je voudrais 014
 mettre ici, dans un mot, toute la tendresse de mon cœur ‘ \
 pour toi, nos filles, Lucien, avec des amitiés pour tout le 1 1
 monde à Presinge. Your own fi he: Y
-ÿ Ed 8; |! Ut
-Dimanche 13 nov na:
-« 70 } FEU
 Ma chère femme, je veux te donner une idée de nos jour- He “AN
 nées; c'est la meilleure manière de te mettre au fait el au as
 #] : RNA
-i1\ TPE
 
-: lettres d'Edmond Scherer <
 courant de notre genre de vie. J'ai insisté pour qu'A* se 1
 He, levàät un peu de bonne heure; il se lève donc vers 7 h. et |
 1 commence tantôt par sa toilette, tantôt par ses lectures. |
@@ -4155,17 +3439,14 @@ véritablement une autre race que nous, aucune notion, |
 aucun goût d'ordre ou de soin. Le seul défaut d'Ernestine |
 peut-être c'est un peu de susceptibilité, mais cela ne paraît
 pas quand on sait la prendre, et nous faisons excellent mé- |
-nage ensemble. |
 Quand les Prussiens sont là ou qu'il pleut, nous allons |
 tout de suite dans mon cabinet, où nous passons le temps
 à diverses choses. Vers 11 h. 1/2 ou midi on se rend au
 travail; A‘, sur mon conseil, s'occupe avec beaucoup de
 suite et de zèle d'un travail sur la décentralisation : il a
 | déjà fait beaucoup de lectures, et il va se mettre un de ces
-108 |
 |
 
-$ : |. A MADAME EDMOND SCHERER FE
 jours à la rédaction. Il prendra ensuite un autre sujet. Er.
 Je suis très content de lui, après avoir eu un moment à
 de grande sollicitude : je craignais qu'il ne perdit tout à 4
@@ -4204,9 +3485,7 @@ très souvent seuls. Le dimanche, par exemple, ns avons ce #
 pauvre D'Alaux, qui est ici sans ressources, dans une misé- L À
 rable chambre d'auberge, ne pouvant rentrer à Paris, et à
 qui un bon dîner et un bon feu font grand plaisir. Le lundi, ns
-109 Arnold Scherer, — 7
 
-lettres d'Edmond Scherer à À
 dînons de fondation chez Bersot avec Délerot, et le vendredi -
 De ces deux diînent chez nous. Puis il y a des extras; ainsi 4
 3 mercredi dernier Bersot, Délerot et d'Alaux se rencontrèrent |
@@ -4243,13 +3522,7 @@ natus, que la blouse et les sabots sont le véritable costume |
 È démocratique, qu'il faut se rapprocher du peuple, ete. 4
 I me taquine souvent, ce garçon; je lui dis alors que je #
 técrirai tout. Je lui ai trouvé un nom : je l'appelle mon
-gros bêtat. 4
-110 “4
-F i j
-{
-. sd 22
 
-“re A MADAME EDMOND SCHERER na
 _ Ê Jeudi, 17. — Je continue, quoique je ne doive pas avoir FR
 _ d'occasion de quelque temps. Mac Lean qui me les fournit ea
 Fa ou me les indique, est parti pour Orléans où il veut voir =
@@ -4290,26 +3563,15 @@ l'apparence extérieure. Il y avait un article de Renan en « 16
 ë les murs des caves. J'ai été appelé l'autre jour chez le com- Ke
 _  missaire de police prussien par suite d'une plainte de à
 | de III ; À 5
-pri à £
-à
-"à 1
 
 HR ASE M de
-TTC lettres d'Edmond Scherer 28 bee
-EN e SCSI
 ir + À Georges qui, furieux d'avoir été mis à la porte, avait voulu -
 D: Fa se venger, prétendant que je l'avais appelé chien de Prussien, ie
 cb) et réclamant huit jours de gages, sous prétexte que je l'avais Br.
 = renvoyé sans délai. J'ai expliqué quel était ledit Georges, et
 DE, je ne pense pas que l'affaire ait de suite . . . . . . . . . . ‘=
 ‘ Fe There I have them both on my table, the poor girls, in the “HE s
-4 little wooden frame, you know, Jane squatting at the feet of
-É her sister ; it is such an excellent likeness, I like to look at #
-« À them; Jane seems actually to stare at me. But adieu, dar- 54
-4 ling, I must go out and take a walk in the park; the
 E weather is very variable of late, but milder and to-day De .
-ï 2 rather fine. £
-Ê A kiss, and Igo. C4
 3 ï Dimanche 20, 11 heures du soir. — J'aurai, je crois, une
 De occasion demain, je ferme done ma lettre; j'en attendsune
 les de toi avec bien de l'impatience. L'avenir est plus obscur et
@@ -4318,8 +3580,6 @@ ee d'adultes, le soir, j'y ferai des lectures. J'ai reçu une lettre
 "4 de Katie relative à ses affaires. Adieu, je t'embrasse ten-
 à drement, ainsi que mes chères filles, Lucien, la petite.
 | Comme dit Catherine, il semble qu'on ne s'est jamais tant
-F aimé. Adieu. :1s
-mie Versailles. — 25 octobre 1870. à
 ES … J'ai oublié de te dire que le Vendredi, ar, la ville a été M
 À dans un fameux émoi à l'occasion de cette sortie quia
 É poussé jusqu'à Bougival; tout le monde était dans les rues, “4
@@ -4331,11 +3591,6 @@ Ye fendu à l'avenir de sortir de chez soi en cas d'alarme,
 Lu autrement on nous tirera dessus; c'est affiché. Hier, lundi,
 è We le major est parti avec la plupart des soldats, etce matin
 À l'adjudant qui était resté un jour de plus à cause d'une à
-“ 112 :2 700
-
-+ 3. È rs je gi".
-
-À a
 
 | h À MADAME EDMOND SCHERER |
 fluxion. Nous nous sommes séparés poliment; ils ont été 4
@@ -4375,8 +3630,6 @@ tion, sans ressources, ruinée, rayagée, mais l'esprit de ré- "
 sistance est encore très vif. Je lis beaucoup, plus que je t
 n'avais fait depuis longtemps, et de grands ouvrages : beau- J
 
-“a : PUS EE CR
-+ Th lettres d''Edmond Scherer # "ER
 ë coup de Shakespeare, l'histoire de la Fronde de S* Au-. LE
 # laire, le Sixte V de M. de Hübner, et, en ce moment,
 < l'Histoire de ma Vie de G. Sand, que m'a prêté Délerot. I1y
@@ -4412,12 +3665,7 @@ j'ai été de maison en maison, d'appartement en apparte-
 : ment, racontant la même lamentable histoire, dépouillant 4
 ; ces pauvres gens, — suivis d'une charrette où nous entassions k
 les objets recueillis ! J'avais honte de moi-même, je me fais 114 Lex
-sy
-; »
-‘
 
-RPC à Er Cvt
-2 A MADAME EDMOND SCHERER Ré
 | De K Le DL:
 4 sais l'effet d'un malfaiteur. Pourtant en rentrant j'ai passé ESS
 4 : près d'un groupe de femmes où l'on disait: « Oh! ils sont kS
@@ -4445,7 +3693,6 @@ faire trois mille lieues, ce qui l'a un peu fatigué, moins ji
 cependant que ces discussions si difficiles et délicates avec +
 un adversaire exigeant. J'ai été le voir avant-hier dans la Ne
 journée, ei j'ai passé hier la soirée chez lui, avec lui et ses D:
-compagnons...
 30 Oct... Sais-tu ce que je lis avec rageet délices.? L'his- k.
 toire de ma vie, de G. Sand. Je n'en avais jamais lu une &
 ligne, et je n'en avais jamais entendu parler; j'ignore com- Ÿ
@@ -4456,15 +3703,9 @@ fâcheuse, une jeune fille pourrait le lire, et quel talent! 4
 C'est bien supérieur à tous ses romans. Je suis sous le :
 charme et j'en rêve. On a rarement une bonne fortune de ce w
 genre en fait de lecture. Il y a 10 volumes, j'en suis Loue
-au 7”. — :
 #
 115 4
-x ë
-U
-L
-has, 4
 
-MT, lettres d'Edmond Scherer
 PES Lundi 7; Nov. Le cœur plein de tristesse! Ce qui me |
 Es +448 navre, c'est que Thiers est reparti ce matin, sans avoir |
 _ réussi dans sa mission. Donc point d'armistice, point d'élec- |
@@ -4484,57 +3725,22 @@ Ha personnelles n'ont pas le droit de compter en ce moment. …
 | ee tères. » C'est vrai, et j'espère qu'Arnold en profitera. Il ya .
 8) des moments où nous nous embrassons nous deux avec
 “#3 une tendresse que double l'émotion secrète de nos cœurs...
-Fi. @e TT
-HÈt* 5
 _ Nous avons donné le bon à tirer après corrections
 D pour deux mille exemplaires de ce quinsième cahier
 mots et pour treize exemplaires sur whatman le mardi « + É #4 +
-De 3 avril 1906. 5
 nee Le gérant : CHARLES PÉGUY :
-Pr: —
 LS Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-- % "# Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 995 2
-TUR Re.
-FL Ù 4 AE "LCR
 
-\ DRE REMge Rat j
-fi : A Se CR RTE Con ; PPS à
-EE. PE Re Dis F
-ra Â : 0 SRE
 pas t nes xp"
-Re 25
-se Eire.
-AS ! à 15640
-0 ete
-Le ” Wie
-Re 1” L'ILE
-TR £ A ,.
-D DE -
-‘5e ‘0 ie
-LR > 13
-FPE < To
-+1 sal es
 ee Du
-TN v og s x: #
-SLT ÿ & et
-.\1 20 TES TES
-TEE S TE
-veux +200
-278 F ke
-nn: A rm
-as, js
 ne Enr “ u ; Ra.
-” - Er
-End 2. ‘ F . a Cr a
 
-s à RS À 4e:
 À CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne va
 à rez-de-chaussée, Paris, cinquième arrondissement. !
 Fe Nos Cahiers sont édités par des souscriptions men- +8
 : suelles régulières et par des souscriptions extraordi- 2
 6 naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions 6
-É demeurent libres. S 200
 Nos Cahiers paraissent par séries; une série paraît à
 dans le temps d'une année scolaire, d'une année 4
 ouvrière, d'octobre-novembre à Jjuin-juillet ; l'abonne- 4
@@ -4544,10 +3750,7 @@ l'année, mais l'abonnement ainsi souscrit est, de droit, “à
 valable pour la série en cours, et pour toute cette série. 3
 Prix de l'abonnement, pour chaque série annuelle 3
 | pendant le cours de cette série : 4
-! Paris, départements, Alsace-Lorraine, +
-Abonnement ordi- | Algérie, Tunisie... vingtfranos
 mare... ) Autres pays de l'Union postale uni- 4
-,  verselle....... vingt-cinq francs 14
 Abonnement sur whatman... cent francs pour tous pays % E.
 Les exemplaires sur whatman, tirage non réimposé,
 ; sont numérotés à la presse et imprimés au nom du 5.
@@ -4561,35 +3764,11 @@ naturellement aux inscriptions les plus anciennes; c'est ?
 ce numéro d'inscription qui devient automatiquement le
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au D
-4 nombre d'exemplaires souscrit à chaque instant. 4
 > 4
 | | f
 
-RAR at,
-2 { L'ONU ‘ ht (AS 70 EX CREME Se ::
-2 PR
-740 DR.
 #, :° 24
-SA mr +; FRE
-es LEE
-HUM à M S
-ME. FTMIE
-12 E 4
-+ CORAN MA
-à: CRT \ F TRES
-LA in k 568
-BOAT RON ea
-Air RAT,
-LR) t (NT 24
-24 Dre Te
-LA RRS 2
-+ VIE à DUREE 1
-Lg Er * : ge,
 hs L at CPE
-Mr: ‘ ‘ 2 Pre) 0
-Ur 2 € , . ë
-à VE <y Ê À Fr # NL 21e
-ANT 8 TROIE F au 9 27 100 x
 
 % Pour tout changement d'adresse envoyer soixante ÿ
 NS è centimes, quatre timbres de quinze centimes. FER

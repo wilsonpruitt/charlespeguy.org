@@ -7,48 +7,13 @@ author: georges-picquart
 isAvertissement: false
 wordCount: 29244
 ---
-
-NE AUE PE » Fo RNA PEER NCA SOL EME ASE D À Or
-
-: FR RS ACER US y Ve M D'ARRS AE ORNE
-NEVER 3 # RE
-
-r '« 454 . n A ) \: pl »
-AAC : 1 Eos
-0e 6 ; LENCO NP
-ARS FACE
-El ner À u À k Fe 2
-!°4AÈES 5 LASER
 Beni, l'ARN
-Ÿ RAISON k à  ” 4
-LS 5 1Ef4 TRES
 
-2 LCR [3 \ : UNE
-. FUTE TAN
-VON : ‘ 11240
-EC DE RS ! + : j'x Me
-MC ve, 4 NE
-MTL Ne
-A FR M % k V4
-5, ROUE a (
-Li J ; S j À RACE
-LA. l * a" y
-y !] ra" A
-PE, | Pa AA n \ 4 PC |
-à ne, + L r F 4 F
-
-: LCR v” Max 4
 #1! À L 1) u à # » LENS : 4 L Pad on
-
-"20 n à À MIRE
-“ FAN NS KR 7 #
-
-Fe MN RE EEE DE 4 CE MR AT CEE pe RE PO DS
 
 4 ‘Il est impossible de suivre honnêtement le mouve-.
 Ft ment littéraire, le mouvement d'art, le mouvement \,
 4 olitique et social si l'on n'est pas abonné aux Cahiers ”
-ASS P hiers
 # de la Quinzaine. . ‘ , LR
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 fut il suffit d'envoyer un mandat de trois francs cinquante
@@ -61,7 +26,6 @@ F de la cinquième série. Re.
 FOR séries des cahiers, 1900-1904, envoyer un mandat de
 # cinq francs à M. André Bourgeois, même adresse; on
 ‘a recevra en retour le catalogue analytique sommaire,
-20 . . pe . . Ÿ “HSÈ
 5 1900-1904, de nos cinq premières séries, premier cahier 24
 À de la sixième série, un très fort cahier de XII+408
 vf pag'es très denses, in-18 grand jésus, marqué cinq francs.
@@ -71,97 +35,30 @@ Fr est la série en cours, envoyer en un mandat à M. André | "M
 fi recevra les cahiers parus et de quinzaine en quinzaine, à M
 7 leur date, les cahiers à paraître de cette septième série.
 Voir à l'intérieur en fin de ce cahier les conditions et
-Ÿ Le
 le prix de l'abonnement. ET
-* 1050
 | Nous mettons le présent cahier dans le commerce; ‘*@
 } douzième cahier de la septième série; un cahier jaune M
 CA de 120 pages; in-18 grand jésus; nous le vendons « ‘a deux francs. è « 4
-re À 14 4
-4 ‘ À 1,88 Par
-\ We * à # LS 132
 
-ln a A as Lt ANA fe 1 PA EAU à D ÉRSNON DISR
-1 TREIZ7I ÈME Fi MS IER à FRS HARAS RAM d'A a LE
-D 707 CANERDE LAS EPTIÈME SÉRIE
-LEA TN RES MERE À LD A Ge LA RER NE LATE ER NOIRS
-LT OPUESS NEA LA PAS AE ME VERS CREUSE. | MAR A AE A Le LC (pe
 LE sg je ; à D 5 MAS ÿ î k OV
-PANIER SVT + c pr ; : à H HAE
 L. Ye SET AVE Lieutenant-Colonel en réforme | FES “ANNE
-MANS RSNENUUENRE IDDN
-MR a" te = Er
-1 EN ARSEES a : DE RRRRAES
 RAA { ss à SA RINS Lx
-- | FRAME 4 (44:20 XV
 de la situation faite
 | aire. |} 308
-Ke LR SAME PIE 4 LÉONES PIS dy
 | LUXE RES ar : Le ATOS
 ARE TA TN Pi ce VS
-_ IUHARRERENS VAL
-1 POI GEMMIER / L 5 SRE RER
 poor DE LA QUINZAINE ü
-M 070 pet fois paren PR
-: RANCE PARIS “FLAN
 QUE. ae la Sorbonne, au rez-de-chaussée À
-BRL + Le Rd À
-DU : ue ER
-ALT EMI
 
-3 VA W-(4 LA 'HOPRES LT FRS ONE PEYRE LES \
-FA VE e AE Ra eh AS à Re k
-EL ÿ 7 !: rte + AR
-
-TNA ‘€
-
-es : PA.
-ps te à
-, k f : à KE
-ï | Hs F; Ês Ex #2
-4 Es s + * STE
-à. 6e 5
-
-fi & r, ;
-dl rt he.
-ee
-” DES.
-, L FR
-71 à
-té , Ce
 | ù
-1 j }
 
-À À
-au | :
-à FC
-au 7
-
-EPA.
-y “AR ; me ‘4
 | 1 » , f \ ÂN
-4 RAT AN 4 Re"
 7T ri LE VF, . EM à d nt
 
 | Se EN A NS EE AU ME ENT | RFA
-À re FÉES AMAR IPS POIEPE ES 1e ' K LUCE
-14 GTR EEE ki AREA DEALe +
-ROM PSC: \ \ "VIA
-HVU si: . AGE + +
-LT RE à à ' À } ; } : FINI
-? ; HT ANUS - l !, UP ANNE
-} LITE 1 [rte
-RNCS PE ï ; 1( 0
-FAR MT
-RAA . RUES
-y à SAN . l'4 Ko MAT
-è 1H MIE ? { à UE
-RU PAM ra | À t# ' 12
 l A % fut VARIT RO ul ; fu £t (ARR
 Cat, » ei “FER FRS mi 1h à \ jan js : ij ri a fie ne
-SR RTE RE OP RAR CT
 
-Î My à AL & & à û À
 di 4 Nous avons publié dans nos éditions antérieures et À
 7 dans nos cinq premières séries, 1900-1904, un si à
 _ grand nombre de documents, de textes formant dos- 5
@@ -172,7 +69,6 @@ ia _ romans, drames, dialogues, poèmes et contes; — un A
 MAL phie ; et ces documents, renseignements, textes, dos- #
 16 _ siers et commeniaires, ces cahiers de lettres, d'histoire à
 _ et de philosophie étaient si considérables que nous ne ‘à
-x dr s her 2 4
 de _ pouvons pas songer à en donner ici l'énoncé même le \
 _ plus succinct; pour savoir ce qui a paru dans les cinq É:
 d: _ premières séries des cahiers, il suffit d'envoyer un man- ‘4
@@ -181,17 +77,14 @@ Li _ teurdes cahiers, 8, rue de la Sorbonne, rez-de-chaussée, . 4
 _ Paris, cinquième arrondissement ; on recevra en retour Î
 220380
 QE le catalogue analytique sommaire, 1900-1904, de nos Re
-_ cinq premières séries. {
 ç al CES Ce catalogue a été justement établi pour donner, h:
 1h _ autant qu'il se pouvait, une image en bref, un raccourci, ‘14
 _ une idée, abrégée, mais complète, de nos éditions anté- ‘4
 _  rieures et de nos cinq premières séries ; tout y est classé A.
 _ dans l'ordre; il suffit de le lire pour trouver, à leur d
-‘à ‘ mn |
 _ place, les références demandées. à
 1% Ce catalogue, in-18 grand jésus, forme un cahier }
 _ très épais de XI1+408 pages très denses, marqué cinq 4
-5 D | a
 
 a: francs ; ce cahier comptait comme premier cahier de la ‘
 : 10 sixième série et nos abonnés l'ont reçu à sa date, le NS
@@ -216,7 +109,6 @@ MN: personne qui s'abonne à la septième série, qui est la à
 “ ment, en téte de la série; nous l'envoyons contre un 1 ki
 de mandat de un franc à toute personne qui nous en fait 5
 ï ‘ é la demande. t | 10
-Ds 0 ' dt ï 4 4
 lt Pour la sixième série, année ouvrière 1904-1905,et
 : va _ en attendant que paraïsse le catalogue analytique som
 Me: _ maire de nos deuxièmes cinq séries, 1904-1909, on : 118
@@ -226,169 +118,37 @@ AL ÿ : analytique très sommaire que nous avons publiée en fin Er
 x Si 4 g' DATE L ERA « : M ARE EAU SE ri d WU ei TS Ar Re
 D NTI FROPPUNNE D AE M de.
 Le PM uk e PR RME UT NE MERE FTIS ns
-NET CA 2 Mar É BEN AU IT AA
-F4 1 ! Are 2% PORN A
-DRE NE £ f EURE
-TARA 4 4 SAS HS
-1 ( jt Le
-ET # ESC
-REA: ke Ni.
-35 « dr
-AR 2 DUR.
-: s SR ; 4
 
-(124 j à
-NÉE Fo
-TA |
-. SA ï
-Da
-L'TYR 4
-br: 150
-ù Ye Î RE
-He n ÿ
-86 +"
-Fu À 08 '
-PA » EEE #1
-14 Le"
-VLC
-MTL NN 13
 il > ne
-RU : ji
-‘4 F7
-0 DA : hi,
-En + ‘ x
-BUT De:
-, V2 A J N: hf
 PES que
-‘à + LE
-Res |! L 79 10
-Loue à Hi
-PATENTS ALPOPNER
 MNT PR l'UE LEA À fl
 
 HN PEINE DR ENST RME, A PNA ri RANCE NI
-PL ER Ce pi LAN à F 417410
-DR Ta its NS Es d 154 D ‘#10 Al
-A NUE
-M 50
-“2 OR 4 CROSS
 Pau tout ce qu'il EE : IR
 ta RAC " TRE
-LH NN 5
-TR * Q À DE
-LT RARE D AAC
-£ 4 conférence d'Algésiras 2208
-QE 5 à 215
-OP ie | + } 400
-à: PÉCRUNER : 13608
-+ ARESHEENEE : FES TRE
 + ANNEE lent L'AUTRE
-RU +4 É COR
-Li PR HIDE
-{ NAN (1 0
-1400 Ni" RUE à
-ENS TR 1 1.14 “AT
-HE à 142
-374 PIN ax V HE
-MRC * FA :
-DCOUALE. À { » LI LP
-Là hi: 7 : +1 SNS
-FINE f LR \ L4 : RTRPRA
 Ar er ue, Xi AU \ L4 À ; :,; 2FATEES
-Ke ARNO A NES PRONSP RU RUE MEME 0
 
 #4 Fr MAC REUA ae LA: RE )
 
 EL at ui É- PAT FAITES AS UN UE nc
-si ANR CROP ME PUNRMRPRT FE A A AN AA ETS MAT
-51h BY Val (V2 TR ZE « ; #4} sr0 \! Ne 0
 
-: 2 Arr COURSES A0 FRA TENNE pe nt LR
-1, TS k { ; Le à OS DRE
-234 rtp5 \ A à É Pre
-9 ne k 4: es 1 Lr
-Med, À : Fee 49 dl
-(T: Fu} % LES "2
-CAE h ( PAT LO, À Te
-D : Lime €
-1 74040 1 Te NES
-+ SEP LC PRAGUE
-FA : EUR EX > 0
-‘Fa £ “A
-4 À au ; V2 | 0
-Li ‘1 AL ER
 L gi Le s
-ADS Wu
 | AGIR à 6 54
-Ar i ASIN Un
-j à (y We te ;
-À ARR | LPS.
-ART: e HE RATLTE
-4 “3 dec:
-‘GER - À FLE A “
-“2 un : iLy4S
-rs t TELE! | à EX?
-Lt QUE Lx £- 1 ne
 
-MED 1 LUTTE OT RAT A ERP DIE A UE PREND TENTE VE TELE Este
 ne AO CCR A AA ADN M AE
-LR AL A TA LR DA ASE ASS SA DR REC
-LA LIN EE WR ; / NE À À \ À MEL
-LA SMIC ÿ VA ARE
-NN n Re:
-ti VEUX ER MR + we
-LOT AE ir
-EE Hé 114500 te Wis
-EE LA" ! * 7 AUS
 LAS AE ES il K'AURTASS (M
 ea ve et cahier pour la discussion ‘(82e
-j RME APE ARR
 HS NES des interpellations ia 70
 ( M V4 et du budget « 4 ES
-pi Re 5 TRES
-1 le PÈRE LCR : 20/4 NS
 USM TIRER du ministère 11
-Fe AM US ! . \ # MONO
-À Mt avis 11 DR. (514
-1} ER ï (A
-V:: Vis A r | | AU
-LIN h y \ "1 +. FR
 4 Fin IN NTRENOE TA L ÿ j{UYLe 14 À FA ie Ti
-PRE, CAS à be JUR SARL IL ART "US ASS LITE
 
-AL RP AE TANT ES
-à j Ana a KR ARE EAST Fat Qy " 1
 21410 ARS MEN rs DOM PPT TANT RAA RUE RON QUE rés
-AC SA A Nm RUSSES 147 MNT
-NT à ‘ AUD LUE MAT AS RTE NX ‘FAN
 VAT DEAN la 4 j 8,12 4 # fr PXi AE) hs Lo
-LS CPV TRES | CU EN
-di? SVT ENENOERNRS
-Dei" # h FO SN
-+ Haute Se
-YF ER * AU ï 1 DRE HA)
-\ pe F \ CRETE We
-LEON : 7e PRET
-LG ANES ï / : AE $ 1e 24Va
-HR 2 ; LAN 2 174 8
-11480 4 RQ TL
-CHAN) trio É S DA ds A
 \WQ * LHSRAUTE ne
-‘à ". LAVE
-1 708 4h fs
-44 "25 EE
-"A WELL FAIR
-ER 20 CE # 4e
-4 s'y 100: 10
-LAN : j A:
 | | \\ 40 pl
-kh ï ALU O ET UE:
 Ur x À du PORRRUIL A
-Ya ICE : NT RER
-LAN ; MÉCONNU
-DEA ka NEA
-FOR ES Â 1 170
-Fa ae à 4 ANA
 
 Tout ce qu'il faut savoir de la conférence d'Algésiras,
 effet, c'est exactement quelle est la tenue civique et
@@ -405,7 +165,6 @@ mmodément le matérialisme de l'histoire.
 Bi l'on veut dire qu'il y a des affaires financières dans
 affaires du Maroc, cela est possible, cela est proble, cela est même sûr. Cela était sûr et acquis a
 iori, car il y a partout, aujourd'hui, des affaires finanes. Mais quand on a dit cela, on n'a rien dit, justent parce qu'il y a partout, aujourd'hui, des affaires
-ancières.
 Justement pour cela cette proposition n'apporte plus, |
 jourd'hui, aucun caractère discriminant. Et s'imaginer
 jourd'hui qu'on a vidé une histoire de son contenu
@@ -415,11 +174,7 @@ alismes les plus marqués de tous ceux qui aujourd'hui
 asitent le vieux socialisme révolutionnaire.
 Je vais plus loin : les financiers, qui sont eux-mêmes  :
 S parasites, ne peuvent vivre qu'à la condition de
-IX
 
-FAR PR ST CE AE LES TPE 70 SE ST Te ART à LUE NOCTURNE l
-RS ee
-j Charles Péguy NP TOUR
 parasiter quelque réalité. S'il n'y avait point de la mon-…
 naie, il n'y aurait point de papier-monnaie. S'il n'y avait
 jamais eu quelque mine d'or dans la réalité, il n'y aurait L
@@ -446,18 +201,11 @@ qui n'a point cessé de nous menacer. Nous nous sommes
 détestable démagogie hervéiste. Sous l'invocation de.
 Louis de Gonzague nous avons résolu de conduire à son”
 plein achèvement cette septième série comme si de rien |
-. n'était. \
 Les études que l'on va lire ont été publiées pour lan
 première fois dans l'Aurore, à peu près régulièrement ù
 deux ou trois fois par mois. Trop peu de personnes les
 avaient lues dans l'Aurore. Nous sommes particulière
-x k Al
-à si
-id
-:\4a
 
-A A ED DAT MANS
-D 0 D TOUT C QU'IL FAUT v'hl
 L ment heureux de les réunir aujourd'hui en un cahier et el
 nos abonnés sans aucune exception, — je dis sans à
 a ucune exception précisément parce que je pense à 1
@@ -487,97 +235,28 @@ du vieux dreyfusisme ; et que la démagogie hervéiste, |
 au contraire, est peut-être ce qui a le plus contribué à
 créer un danger réel de guerre; et qu'elle est une A
 perversion, une contrefaçon et un contre-pied de l'ancien
-dreyfusisme. |
-4 Charles Péguy
 4 —
 R: Que
-F4 si ; [e)
 
 DANRSART ENTRE À Pat AA Lie RE AE
-€ MARS HULL AA MATAATE | LCEEE Lit
-TERME Ana AU ARR 10 4e RÉ TMET APN RE 4
-ee qu ] : x AAC
-: NOR 1 Ru Le: Re:
 LE ur: LATE Ve
-SR AN eee à
-AM ê RU RON tte UE
-LABS DANONE JS ui
-1 0RMET) UNE TRAINS SES
-1 4 00 . À PERS AT A FOR
-L'ATs P: FU LES |
-‘NES He 1 1
-DÉPAX. ANA ue DRASS an |
-De CH 4 RUE RE UN |
-1 AS AN 1 (ARR Fan F:
-; 4 ANR
-4 LOPÉLETEN ICE CT |
-FES : at ‘a |
-CAE À AL ERANTPRS J
-UNE HEAR SRE
-L ANA 4 AE {Est |
-j TA ; QUE |
-‘HAN : NAT |
-Won dia RH RRNEN |
-k PNA R : : RTE. AE
-Dao 1 + È FANS D |
-il x ? » FAN |
 : AFIN x : ni Yan ;
-14 RAR ATEN :
 Era #3 ne LEE we
-;4 mA ; Le 'Hr CNR AUS
-LAN / FRAME PE UEO
-KP AMEL \ AN
 LE LS RG Re es
 PAR ds CHANT : AU ONN PEL era
-OR , gt 7e à. PLOMIRRS ;
 
-PU IRR AA TiT, eu 2 Ë : 4
-fé LI y 1: "TES
-D. £ ts 1 4,
-Le + _ E æ a
 Mt de la situation faite 08
 E à la défense militaire 12
 de la France ‘828
-4 Lun 7 os ? Ja DA
-r TOME ‘ ADe
-LR L4 {M
-er } RUE
-‘ 8 \° fa 1 ( ‘11
-:'T CET La
-4 AVE”; À / \ HA
-y ETS Fe LITE
 De FA rges Picquart. — 1 FR
 
 F4 pa PAU NO CAL LE A AE LOL Ge
-RRITAP ARMELLE DA LE TEARE Ep PEU NAN AE FM PALIN NT PNEU EE ;
 OR CT SR ARE S Don LCL OR fe EAN VA ADS NON LS LA Le RSA RME uk
-QUE 1 D ÿ Pal ; | VE TE SU à Ë SR
-TANT / A k SA a MAO » ht
-l'ENA AAAOMC ETES
 ia Ur je ; 2x ol à RENTE AT 4 ais
-MA \ À MANS PMR TL RRLE Ce
-HONTE y } AARONERMNNTS |
-Wars, Li ur e j À AU VV ÉGAL |
-% ie “ à É St Na |
-dec } , da! Fe A NTSR AS MANETTES
-eV Jin” : FA PORN En |
-{LOTO LE CRT ANS + FR
 | Outrai ' j 412) ICT MARIA NESS |
-c' A TON ï « * a ter ON UT
-_|('AMSEORNE NIUE
-AQU « RUE EN AY |
-: UNIS = MAR |
-1400 | MUR |
-NE V2 STE GARANTIE
 | ANGERS JAP LA ENCRES
-HR $ è Ÿ ARRET à
-+: HG AEPER 1 NUE JR MERS à
-DE is 1 GPO LE LL 9 AIR
 
-Deux armées K
 # qu
-‘44 ARMÉE FRANÇAISE - L
-me Mardi 13 juin 1905 4
 4 Les difficultés que crée à notre diplomatie la question nu.
 (a du Maroc ont fait naître en France, dans certains ;
 Ya milieux, des accès de nervosité qui pour être habituels ï
@@ -587,14 +266,12 @@ AA chez nous, en de semblables circonstances, n'en sont et)
 ji On s'est demandé si, au cas où nos dissentiments LR
 k avec l'Allemagne viendraient à s'accentuer, nous serions At
 \ rêts à tout événement. Des voix plus ou moins sin- :
-4 P
 
 F4 cères se sont élevées pour dénoncer le mauvais emploi k
 |. des milliards consacrés depuis tant d'années à l'œuvre
 
 ge de la défense nationale, et pour faire ressortir l'état
 
-x d h
 Là d'infériorité où nous place la crise morale que traverse À
 FA l'armée.
 
@@ -605,18 +282,12 @@ El - danger surgit à l'horizon, les adversaires du régime \
 
 4 établi s'empressent d'en profiter pour incriminer les in-
 
-ul . - . . La . . . » d\
-
 _ stitutions qu'ils ont intérêt à combattre. Mais il est indé-
 
 nt niable qu'il y eut quelque chose de plus.
 
 k L'émotion n'est pas née seulement des clameurs
 
-SR
-EN \ e
-
-Georges Picquart
 | poussées par les ennemis de la République. Une appré-
 R hension s'est propagée dans les rangs mêmes des répu- |
 
@@ -625,15 +296,12 @@ blicains, juste au moment où le plus grand sang-froid |
 | justifié. |
 ; Portés aux extrêmes, nous avons la mauvaise habitude, en France, de passer avec une facilité incroyable
 de l'excès de confiance à une complète défiance de nos
-AE forces. |
 Notre situation militaire à l'égard de l'Allemagne |
 n'est pas faite, cependant, pour motiver de pareilles |
-exagérations, |
 Moltke l'a dit souvent : « Tout ce que l'argent peut
 donner, l'armée française le possède; pour le reste on a
 le droit de faire des réserves. » L
 Les aflirmations du vieux maréchal sont encore |
-exactes aujourd'hui. 4
 Nous possédons un excellent matériel d'artillerie.
 L'arme de notre infanterie est comparable aux meilleurs
 fusils des armées étrangères. Nos approvisionnements
@@ -649,9 +317,7 @@ pour assurer une défense énergique. |
 Sans doute l'Allemagne nous distance au point de vue 1
 du nombre d'hommes. Sa population de plus de 56 mil- F
 lions d'habitants laisse loin derrière elle nos 39 millions.
-4 À
 
-a DEUX ARMÉES Ù
 \ Cependant, jusqu'ici, cette différence n'a pas conduit à
 U donner aux effectifs de l'armée allemande une supério-
 À rité aussi considérable qu'on pourrait se l'imaginer.
@@ -665,7 +331,6 @@ W' les troupes coloniales stationnées dans la métropole).
 , L'Allemagne a 23 corps d'armée; la France en a 21.
 Enfin il est probable qu'en temps de guerre la même
 k proportion numérique subsisterait entre les deux armées
-mobilisées.
 
 La question du nombre n'a donc rien de particulièrement inquiétant pour nous aujourd'hui. Il est à prévoir
 toutefois qu'elle s'aggravera dans l'avenir.
@@ -687,10 +352,6 @@ d'homogénéité provenant d'une diversité d'origine : ici
 les officiers sortant du rang; là ceux qui ont passé par
 les grandes écoles. L'avancement au choix, devenu trop
 
-Ai
-Del:
-
-: Georges Picquart | ‘a
 n - souvent l'avancement à la faveur, décide des carrières ; 1
 il n'est point fait pour fondre entre elles les catégories À
 créées par la différence d'origine, ni pour écarter des D
@@ -699,7 +360,6 @@ belles relations ou le génie de l'intrigue.
 Je n'insisterai pas sur les éléments de trouble que les À
 | dissentiments politiques et religieux qui agitent le pays
 apportent dans un milieu où les influences réactionnaires 30
-dominent.
 Sans aller plus loin dans cet ordre d'idées, je tiens à (
 constater seulement que si, depuis 1870, des efforts À
 sérieux ont été faits pour mettre nos officiers à hauteur 5
@@ -724,21 +384,12 @@ guerre longue et meurtrière l'armée nationale soit en
 aux temps héroïques de la Révolution, les chefs qui lui |
 sont nécessaires. 1
 
-AA FA DEUX ARMÉES |
-pe I
-
-L'ARMÉE ALLEMANDE
-
-Mercredi 14 juin 1905
-
 k Depuis 1870, les forces militaires de l'Allemagne se
 
 ( sont accrues dans des proportions considérables. L'in- 1
 1 fanterie a augmenté d'un tiers; l'artillerie de moitié
 
 F* environ. Mais les institutions en elles-mêmes n'ont guère
-
-fi] changé.
 
 K Tandis que sur les ruines accumulées par nos désastres
 @ . nous nous efforcions de construire un édifice nouveau,
@@ -764,7 +415,6 @@ Ki: le patriotisme des Chambres françaises, si larges en
 
 x" matière de crédits militaires, lui a été proposé comme
 
-pi exemple. : à
 À On ferait erreur cependant, si l'on concluait de là que
 __ le gouvernement ne trouverait pas un concours dévoué
 
@@ -776,13 +426,7 @@ Et cause. Tout porte à croire au contraire que ce concours
 
 # lui serait alors pleinement acquis.
 
-x 5 7
-
-À 1
-L. 2
-
 | À À 1 TES
-Georges Picquart gai #3
 Aujourd'hui les Allemands sont outillés à peu près s
 comme nous. Ils ont un bon fusil d'infanterie. Mais leur |
 canon de campagne ne vaut pas le nôtre. Ils s'occupent À
@@ -815,11 +459,6 @@ chiffre des recrues illettrées n'atteint pas 5 sur 10.000,
 — le régiment ne reçoit que des éléments déjà dégrossis. Une fois sous les drapeaux, l'homme est soumis à |
 un entraînement méthodique au cours duquel les exer- 4
 
-8 {
-À él
-
-Le HA ra ; :
-J DEUX ARMÉES
 6 cices gymnastiques et le tir jouent, pour le fantassin, un
 grand rôle. En vue des exigences du combat moderne
 4 on cherche à développer chez lui l'initiative de l'indivi-
@@ -848,19 +487,16 @@ I est naturel que des officiers ayant même origine et
 même instruction ne prennent rang entre eux que
 d'après leur ancienneté. Aussi l'avancement à l'an9 Georges Picquart. — 1.
 
-! Ra Let M FRE UOEUE AN METIER
 | Georges Picquart AA 2 Hi |
 à cienneté est-il de règle, avec cette réserve toutefois que ï
 l'officier reconnu incapable de passer au grade supérieur Se
 prend sa retraite au moment où arrive son tour de pro- vi
-ll motion. ;
 1 Quelques avantages sont réservés aux officiers d'état- $
 _ major, afin de leur permettre d'arriver plus vite aux
 « grades supérieurs, Cette exception est pleinement justi- À
 ar fiée par la valeur de ce corps d'élite qui est devenu un
 19 modèle pour toutes les armées, depuis que Moltke la à
 sui porté au degré de perfection où il se trouve encore ÿ
-ji aujourd'hui. ‘4
 ji Le corps d'officiers allemands, solide et homogène, 4
 : comme il nous apparaît, constitue évidemment l'un des à
 éléments de puissance les plus sérieux de l'armée, à 1
@@ -874,7 +510,6 @@ et sans doute exagérés que quelques romanciers pré- \
 tendent avoir découverts dans telle ou telle « Petite è
 73 Garnison » et qui tendraient à faire croire que sous 4
 1 cette belle façade se cachent des germes de décomposi- “4
-U tion. ï 1
 Maïs, à un autre point de vue, n'avons-nous pas con- ‘4
 FU staté, en 1870, combien les corps allemands les plus ;
 k -éprouvés par le feu souffraient cruellement du manque j
@@ -882,10 +517,7 @@ k -éprouvés par le feu souffraient cruellement du manque j
 Cette situation ne menaçait-elle pas de devenir cri- À
 À tique pour certaines de ces unités si la paix ne fût b
 J intervenue ? Et n'est-ce pas pour une armée une cause ‘4
-10 i
-7 M
 
-\ A LA FRONTIÈRE DE L'EST
 à d'infériorité réelle que cette impossibilité de recourir à
 | la nation tout entière quand il s'agit de reconstituer des
 éléments essentiels, fauchés lors des premières ren-
@@ -907,19 +539,14 @@ ni Quand on compare notre situation vis-à-vis de l'Alle- {
 magne avec ce qu'elle était alors, on a le droit d'attendre
 | les événements avec sérénité. \
 À la frontière de l'Est
-Mercredi 21 juin 1905 |
 On aurait pu croire qu'après la première émotion
 causée par l'affaire du Maroc, chacun se serait ressaisi.
 On était en droit d'espérer que le sentiment de la É
 dignité nationale, soutenu par une appréciation raisonnable de nos forces, mettrait bientôt fin à des manifesII
-Le
-La
 
-Georges Picquart Re:
 tations de découragement regrettables toujours, mais L
 k surtout en un pareil moment. ï d
 C'eût été compter sans l'aveuglement et la passion
-politique. ;
 La presse réactionnaire continue à nous apporter, \
 | chaque jour, les nouvelles les plus inquiétantes : Notre
 ; armée est incapable' de résistance; nos forteresses sont
@@ -929,7 +556,6 @@ que beaucoup de réservistes ne marcheraïent point, il ;
 nous est impossible de prouver mathématiquement le 1
 | contraire. Tout ce que l'on peut faire c'est de constater
 la faiblesse des arguments qui accompagnent ces 4
-à fâcheuses prédictions. ;
 4 D'autres allégations, en revanche, s'appuient sur des R
 données précises. On nous oppose des chiffres. On nous à
 met en présence de faits. Telles, par exemple, les déclarations alarmantes qui ont été citées ici-même, d'après #
@@ -944,11 +570,7 @@ pour mobiliser notre armée de seconde ligne. Enfin,
 dans les régiments de l'Est nos effectifs sont de 90 à )
 $ 95 hommes par compagnie, alors que les régiments ÿ
 allemands ont tous sur le pied de paix des compagnies À
-de 170 à 180 hommes. » |
 | Voilà un tableau bien sombre. Dans quelle mesure à
-12 !
-
-À A LA FRONTIÈRE DE L'EST
 
 ‘ correspond-il à la réalité? C'est ce qu'il peut être inté-
 ressant de rechercher. \
@@ -968,7 +590,6 @@ rôle de troupes de couverture. Cela veut dire qu'en cas
 de guerre ils sont chargés de protéger, de « couvrir » la
 mobilisation du reste de l'armée, sa concentration par
 voies ferrées et son débarquement à proximité de notre
-frontière.
 
 F Pour mettre ces troupes en état de remplir effective-
 
@@ -992,8 +613,6 @@ Le total des forces de couverture allemandes sur
 
 Georges Picquart je
 
-à DE:
-
 pagne, comprenant 318 pièces de canon; il faut y ajouter 1 ù
 
 un fort contingent d'artillerie à pied pour le service des fi:
@@ -1008,11 +627,9 @@ pièces de place et de position; des pionniers, des soldats
 ÿ frontière sont donc à prévoir, et il dépend beaucoup de 1
 # la vigilance et de l'activité de nos propres troupes de 1
 Fair, couverture, que ces opérations aboutissent ou non à des À
-résultats appréciables. #
 
 à Mais de là à craindre une brusque invasion de notre #
 | territoire par une armée de 400.000 hommes, il y a K
-loin. À
 É ke L'armée allemande compte, il est vrai, 600.000 À
 & hommes, sur le pied de paix, et, dans ces conditions, il à
 peut ne pas paraître absurde, à première vue, de sup- il
@@ -1023,7 +640,6 @@ F4 non pas en vingt-quatre heures, — la capacité de trans-
 1e port des chemins de fer, même allemands, n'a pas K
 
 it encore atteint ces proportions, — mais du moins en (
-AN quelques jours. ‘A
 1 La question présente un autre aspect quand on con- n
 $ naît les besoins d'une armée, quand on sait ce qu'il lui 4
 Dh faut pour entrer en opérations, c'est-à-dire pour se ‘à
@@ -1059,9 +675,7 @@ Saarlouis, petite place située très en l'air, à 7 kilomètres - \
 seulement de la frontière française, IL voulait que tout
 le mécanisme de la mobilisation se déclanchât à la fois
 et poursuivit ensuite sa marche régulière et prévue sans
-qu'aucune disposition prise hâtivement en troublât ê
 lharmonie. Il obtint gain de cause et l'événement lui
-donna raison. |
 Il n'y à aucune raison de croire qu'entre les deux
 systèmes l'Allemagne préfère aujourd'hui celui qui nous |
 a si mal réussi en 1870 et que le général Boulanger avait
@@ -1069,14 +683,6 @@ commencé à rééditer en 1887, lors de l'alerte causée par
 l'affaire Schnæbelé.
 Les forces de couverture dont nous disposons sont,
 d'ailleurs, suffisantes pour tenir en échec la couverture
-
-A |
-
-" AN REA AO RER SERRES
-
-1 te
-
-Georges Picquart : 77
 
 ‘ allemande et pour nous permettre d'accomplir en toute 4
 sécurité nos opérations de mobilisation et de concentra- £
@@ -1087,7 +693,6 @@ tion qui, quoi qu'on en ait dit, ne dureraient certaine- #
 les opérations correspondantes allemandes, — à condi- *
 
 tion, bien entendu, que tout se passe avec calme et V ï
-sang-froid. 4
 4 Notre frontière est jalonnée, comme du côté allemand, |
 par trois corps d'armée (6°, 20° et 7°). 1
 Quand bien même nos effectifs seraient descendus à a)
@@ -1119,13 +724,6 @@ Ils prétendent qu'une batterie de quatre pièces de notre |
 
 matériel allemand. Je ne demande pas mieux que d'y {
 
-}
-
-16 |
-
-jh
-
-:. We LA NEUTRALITÉ BELGE
 _ croire, mais tout le monde sait que l'Allemagne est en
 * train d'améliorer son artillerie, et jusqu'à présent rien
 d n'indique, de sa part, l'intention de diminuer le nombre
@@ -1147,15 +745,11 @@ large, ou même passer de l'autre bord, c'est bien l'Alsace-Lorraine.
 la frontière française avait à tenir compte de difficultés
 de ce genre?
 La neutralité belge
-Mardi 4 juillet 1905
 Parmi les hypothèses relatives aux projets du commandement allemand dans le cas d'une guerre avec la
 France, il en est une que l'on entend revenir souvent
 - dans les conversations. C'est celle d'une invasion de
 notre territoire par la frontière belge. i
-j 17 :
 
-A TT
-ÿ Georges Picquart NANSREETESE
 1 Nous sommes parés du côté de l'Est? Fort bien. Mais |
 qu'adviendrait-il de nous si l'empereur Guillaume, vio- | à
 lant la neutralité de la Belgique, marchait droit sur à
@@ -1172,7 +766,6 @@ je mesure la préparation d'une base d'invasion, sans se
 Font rendre compte que chaque corps d'armée allemand est
 *k pourvu d'un camp de cette espèce, et que les environs 4
 de de Malmédy se prêtent tout particulièrement à une i
-ï pareille installation. ï %
 15h Il est cependant facile de démontrer que l'Allemagne M
 | ferait un bien mauvais calcul si elle espérait arriver M
 k plus rapidement au cœur de la France en violant la
@@ -1188,10 +781,7 @@ l donc rien de particulièrement avantageux. |
 ï Supposons cependant qu'une armée allemande pénètre
 i ea territoire belge pour marcher sur Paris. 1
 La ligne d'invasion la plus naturelle, celle qui pré- …
-" 18 3 A
-“ME er
 
-_ SASANAn LA NEUTRALITÉ BELGE |
 . sente les voies de communication les plus directes et
 ( les plus commodes, remonte la vallée de la Meuse, de
  Liége à Namur; elle continue par la Sambre, de Namur FA
@@ -1202,7 +792,6 @@ _ SASANAn LA NEUTRALITÉ BELGE |
 { Brialmont. Ce sont des massifs énormes de béton de
 ‘ ciment, d'où émergent des coupoles cuirassées, tour-
 " nantes ou à éclipse, garnies de canons de place du plus
-gros calibre.
 x En amont de Liége, la place de Namur est organisée
 “ d'après les mêmes principes. :
 ( Une armée d'invasion allemande pourrait éviter, il est
@@ -1214,20 +803,12 @@ pauvre, d'un accès difficile. Les moyens de communica- |
 deux journées de marche de la ligne Liége-Namur, en
 ayant leur flanc droit constamment exposé aux attaques
 des forces actives belges débouchant de ces positions
-retranchées. BA
 _ Or ces forces sont loin d'être négligeables. Indépendamment des garnisons des places fortes (y compris
 Anvers), la Belgique dispose, en effet, d'une armée
 d'opérations composée de quatre divisions d'armée dont
 l'effectif total s'élèverait, sur le pied de guerre, à
-60 ou 80.000 hommes.
 Au point de vue stratégique, une armée se placerait k
 dans la situation la plus délicate si elle laissait intact,
-% 19
-RTS
-FF ñ
-
-A EE TE PS PRO OPEN EE EN PANNE
-Georges Picquart SE Gi:
 
 ; sur son flanc, ou à proximité de ses lignes de communication, un groupement ennemi aussi important.Lamise
 hors de cause de l'armée d'opérations belge serait done
@@ -1250,8 +831,6 @@ trer sur son propre territoire, —enutilisantlesressources
 de son réseau ferré, — les forces nécessaires pour s'op- 4
 
 poser à la marche de l'envahisseur. Ces forces trouve- 4
-
-raient d'ailleurs d'excellents points d'appui : en première :
 
 | ligne, le camp retranché de Maubeuge ; plus en arrière, 4
 les groupes fortifiés de La Fère, de Laon et de Reims.
@@ -1276,8 +855,6 @@ point menacé des forces suflisantes. à
 Enfin, dernière considération qui a son importance:
 
 depuis la conférence de Londres, en 1831, l'Angleterre $
-20 l
-; %
 
 jé LA DÉFENSE DE LA BELGIQUE
 s'est toujours montrée la gardienne jalouse de la neutralité de la Belgique. Elle ne souffrirait pas qu'une grande
@@ -1287,7 +864,6 @@ _ du côté du port d'Anvers.
 “ signal pour ainsi dire automatique d'une intervention
 “ armée de l'Angleterre.
 La défense de la Belgique
-Vendredi 7 juillet 1905
 La Belgique, comme la Suisse, sait qu'il ne suffit pas
 | d'être pays neutre pour se sentir protégé contre les
 entreprises de voisins puissants. Comme la Suisse elle
@@ -1306,11 +882,8 @@ fortifications. A la frontière sud seulement, on trouve
 des ouvrages fortifiés : ceux du Gothard et ceux de
 Saint-Maurice, qui barrent les principales routes d'invasion venant de l'Italie. )
 
-RARE AT A PAIN MEN ER NRES
-Ha Georges Picquart ii M
 Le système militaire belge repose, au contraire, sur 14
 l'emploi combiné d'une armée permanente et de |
-retranchements puissamment organisés : procédé lo- ‘4 |
 gique en principe, du moment qu'il s'agit d'un pays
 généralement dépourvu de défenses naturelles. \
 Le recrutement de l'armée belge est analogue à celui
@@ -1327,21 +900,16 @@ il a été augmenté. Par compensation, on a diminué le. 4
 ; les conscrits tombés au sort : variable suivant les 1
 Mr armes, cette durée est actuellement de vingt mois seulement dans l'infanterie; mais l'homme n'est définitive- # |
 (4 ment libéré de ses obligations militaires qu'au bout de |
-F 2 treize ans. h
 Vs En somme l'armée belge est fort éloignée du type de
 ‘74 la nation armée dont on trouve la réalisation en Suisse.
 é Elle ne se recrute guère que dans le prolétariat. À
 Le L'effectif permanent des troupes belges est de 40.000
 is hommes en temps de paix. Par l'incorporation des
 réserves, ce chiffre serait porté, en cas de guerre, 4
-à environ 150.000 hommes, dont 60 à 80.000 hommes
 | constitueraient l'armée d'opérations, tandis que le reste
 Si fournirait les garnisons des places fortes et les dépôts.
 h Quant à la garde civique (45.000 hommes disponibles
-L' ; 4
 
-D Li 4 A HG RSR A CN
-DU LA DÉFENSE DE LA BELGIQUE ñ
 : 2 environ), qui représente ce qu'était autrefois en France À
 - la garde nationale, elle est animée sans doute de bonne à
 . volonté et de patriotisme; on ne saurait cependant en | 4
@@ -1363,7 +931,6 @@ l'Angleterre.
 k Belgique à entretenir qu'une armée peu considérable. Il
 présentait l'inconvénient grave de laisser la plus grande
 partie du pays à l'abandon, au moment d'une guerre. Il
-_ permettait aux grandes puissances militaires voisines
 d'utiliser, sans rencontrer d'obstacles sérieux, la ligne
 … d'invasion classique : Liége, Namur, Charleroi, qui est
 … la route la plus directe entre la Prusse rhénane et la À
@@ -1371,7 +938,6 @@ région française de l'Oise. |
 É C'est sans doute cette dernière considération qui a
 . décidé la Belgique, en 1888, à entourer Liége et Namur |
 - d'une ceinture de forts du type le plus nouveau, et À
-puissamment armés.
 Dès lors la situation s'est trouvée changée sur toute
 la frontière orientale de la Belgique, car ces fortifications
 
@@ -1405,13 +971,9 @@ tion la Belgique pourrait la réaliser facilement enadop-
 | tant le service militaire obligatoire. |
 La Suisse, qui a un peu plus de trois millions d'habitants, met sur pied en cas de guerre près de trois cent |
 1 mille hommes armés, sans compter le landsturm non
-armé. (
 La Belgique, dont la population est double de celle de |
 
-; 16e LA DÉFENSE DE LA BELGIQUE ;
 la Suisse, ne peut aligner en cas de guerre qu'une armée
-! moitié moins nombreuse, soit cent cinquante mille i
-{ hommes environ. ù
 ! En faisant un effort proportionnel à celui des Suisses, 2
 ü les Belges pourraient mettre sur pied de cinq à six cent
 Ë mille hommes. Mais il ne serait pas nécessaire d'aller
@@ -1444,7 +1006,6 @@ secours des autres.
 
 34 Georges Picquart Le D RE de hi
 3 ; L'armée anglaise 1
-“0 Dimanche 20 août 1905 ‘4
 4 : Tout le monde connaît la supériorité incontestable de
 
 à la marine britannique. On est moins bien fixé en géné-
@@ -1463,7 +1024,6 @@ A la métropole. Toutes les unités de l'armée sont sou- J
 ê mises à un roulement analogue, excepté les régiments i
 ‘& de la garde qui, normalement, restent stationnés en
 
-FA Europe.
 \ ; La plupart des colonies sont en outre défendues par É
 à des troupes indigènes. |
 mx L'armée régulière compte en chiffres ronds 280,000
@@ -1475,7 +1035,6 @@ ni TR disposition de l'autorité militaire. Mais si l'on déduit de
 14 et 70:000 hommes stationnés dans les autres colonies; !
 \ | si l'on défalque en outre les dépôts, les indisponibles,
 Fe __ les troupes de garnison, etc., on arrive à cette conclu « A Argus
-4 nO | L'ARMÉE ANGLAISE 1
 ‘4 sion qu'à l'heure actuelle les Anglais n'ont pas plus de ÿ
 14 100 à 120.000 hommes à lancer, comme entrée de jeu, F
 { dans une guerre européenne. : À
@@ -1506,19 +1065,15 @@ Fi la défense du pays ». ÿ
 ‘ recrutée parmi des propriétaires ruraux et de petits
 fermiers qui, généralement, fournissent eux-mêmes leur ñ
 monture. L'effectif des yeomen est d'environ 28.000
-hommes. ;
-AN 27
 
 un Georges Picquart FENTE
 | Enfin les volontaires, composés d'infanterie, d'artil- F
 | lerie à pied et de troupes spéciales (du génie, des che- à
 mins de fer, etc.) sont au nombre de 250.000, dont !
-4 200.000 seulement pourraient rendre quelques services. |
 k C'est en somme une espèce de garde nationale au sujet {
 ; de laquelle la commission de lord Norfolk n'est pas h
 ÿ moins sévère qu'à l'égard de la milice, puisqu'elle l'a à
 ” trouvée & hors d'état de faire campagne contre une
-me armée régulière ». j
 A la suite de la guerre du Transvaal, M. Brodrick, {
 alors secrétaire d'État à la guerre, avait été frappé des 1
 \ difficultés de la mobilisation et, d'une façon générale,
@@ -1532,16 +1087,13 @@ affecté, comme cela se passe en France, en Allemagne
 Les forces régulières devaient fournir les troupes des
 ! trois premiers corps d'armée; les forces auxiliaires
 devaient contribuer à former presque entièrement les
-trois derniers.
 Pour obtenir les fortes réserves nécessaires à la
 mobilisation, M. Brodrick avait en outre réduit de 7 à3
 le nombre d'années que devaient passer sous les draif peaux les soldats de l'armée régulière engagés pour Î
-douze ans.
 La faillite complète de ce système a montré claire- à
 ment qu'il est impossible d'avoir une armée à deux fins, 1
 à la fois coloniale et métropolitaine. 4
 
-FA L'ARMÉE ANGLAISE
 Le service de trois ans compromettait gravement la à
 relève des garnisons d'outre-mer pour laquelle il est ï
 nécessaire d'avoir non seulement des soldats rompus au ;
@@ -1564,23 +1116,17 @@ Quant aux six corps d'armée de M. Brodrick, — dont L
 . deux n'ont pas même eu le temps de voir le jour, — ils
 ont été remplacés par des commandements militaires ,
 mieux appropriés à la composition actuelle des forces
-britanniques.
 L'armée régulière anglaise est, je le répète, une armée l
 essentiellement coloniale. Elle est organisée et recrutée
-en conséquence.
 — Sans doute en cas de guerre européenne la portion
-disponible, — 100 à 120.000 hommes, — pourrait être
 … employée offensivement comme appoint de forces alliées
 ou pour des opérations spéciales telles qu'une expédition
-29 Georges Picquart. — 2.
 
 4 \ Georges Picquart ‘ LE ue.
 “4e dirigée de concert avec la marine contre un port de
-1340 guerre ennemi. "A
 fi. tt Elle apporterait dans de semblables actions de guerre 4
 0 * les qualités et les défauts inhérents aux armées de E
 LR ÈTRE métier et, en plus, la froide obstination propre aux
-14 troupes britanniques. ‘4
 #18 Mais le rôle d'une si petite armée ne peut être
 Ë 4 qu'épisodique au début d'un conflit où s'entrechoque- 4
 A € raient plusieurs grandes puissances militaires. Comme
@@ -1597,16 +1143,13 @@ K 1 * Le recrutement par voie d'engagements volontaires est
 ‘7 incapable de les lui fournir. È
 #NTE |
 4 N La puissance de l'armement moderne
-21 | Mercredi 30 août 1905 1
 4e : L'industrie est arrivée à perfectionner d'une façon
 * PR vraiment extraordinaire les instruments de mortqueles
 LL peuples civilisés emploient pour faire la guerre. |
 M 4 + Toute armée qui se respecte possède aujourd'hui un
 }, ne fusil à tir rapide dont les balles atteignent efficacement
 "4108 l'adversaire à 2.000 mètres et plus. f
-FAT ù me hf: 4
 
-: ES LA PUISSANCE DE L'ARMEMENT MODERNE 1
 É Notre canon de campagne, une merveille du genre, if
 Ï tire vingt coups à la minute. Il envoie jusqu'à 5 kilo- à
 fi mètres un obus dont l'explosion couvre le sol d'une j '
@@ -1647,12 +1190,8 @@ de précision.
 
 en deux ou trois minutes fait couler des flots de
 
-_ sang?
-
 | En aucune façon. Des statistiques officielles, irréfuta-
 
-À RARE POS NOR RPONE RAR RP ES
-% Georges Picquart 10
 f bles, le démontrent. Non seulement une bataille gagnée É
 14 ou perdue coûte proportionnellement moins de monde
 : qu'autrefois, mais encore il faut beaucoup plus de temps
@@ -1662,7 +1201,6 @@ Ye A l'époque du grand Frédéric, les forces en présence 4
 4 perdaient couramment 15, 20, 30 o/o de leur effectif; on
 ‘à a l'exemple de pertes prussiennes qui se sont élevéesàa
 Ë { 4x 0/0. Dans ce temps-là une bataille duraït de quatre à
-2 six heures, rarement davantage.
 k Les batailles napoléoniennes ne furent pas plus san- 1
 à glantes, mais elles se terminaient moins vite parce que k
 K les troupes étaient disposées en profondeur et non en 4
@@ -1683,9 +1221,7 @@ les Français perdirent 30 0/0 de leurs soldats, en huit M
 prisonniers non blessés ; quant aux Allemands, ils lais- D
 sent ce jour-là 11 0/0 des leurs sur le carreau. Mars-la-
 : Tour, une des actions les plus sanglantes de la guerre,
-A coûta aux Allemands 23 0/0, aux Français 11 0/0, en dix |
 
-Li LA PUISSANCE DE L'ARMEMENT MODERNE |
 _ heures. A Gravelotte, les deux partis perdent 10 0/0, \
 chacun, en huit heures. Quant à la victoire de Sedan,
 elle est achetée par les Allemands au prix de 5 1/2 o/o ;
@@ -1715,8 +1251,6 @@ jours de suite. A Liao-Yang, la lutte occupe une
 semaine ; au Chaho, neuf jours. A Moukden, elle traîne
 pendant une quinzaine de jours. Cependant la première
 et la dernière de ces affaires n'ont coûté chacune aux
-ï 33
-°° 4UR
 
 MAN ON ON nn ANR
 
@@ -1728,10 +1262,8 @@ il ces batailles 11 0/0, dans la deuxième 22, dans la troi-. 1
 14 et d'hommes dispersés). C'est là tout le dommage qu'ont ‘1
 ‘0 pu produire l'entrain japonais et la ténacité russe M
 ie opposés l'un à l'autre dans des combats d'une longueur
-à jusque-là inusitée. 1
 de a Comment expliquer cette anomalie entre l'effet ter- M
 Hi rible des armes modernes et le résultat pratique ob- \
-Hal tenu ? ‘à
 qi FER Quand les fusils portaient efficacement à 2 ou 300mè-
 14 tres; quand les canons ne commençaient à cracher la M
 144 mitraille qu'à 4 ou 5oo mètres, les troupes marchaient M
@@ -1770,9 +1302,6 @@ _ instant ils se collent contre le sol pour laisser passer LA » les gerbes meur
 larmement moderne produit plus d'effet dans la ba- )
 fe taille, par l'appréhension qu'il cause que par les pertes ;
 _ qu'il occasionne. l à
-Ê1
-PA Recrutement régional if
-$ Mercredi 20 septembre 1905 \
 _ Dans quelques semaines, les jeunes gens que leur âge (
 appelle à remplir leur devoir militaire seront sous les 18
 … drapeaux, et plus d'une famille est en train de se de- \\
@@ -1781,8 +1310,6 @@ mander, anxieuse, vers quels rivages lointains partira
 Mais, cette année-ci, nos futurs soldats n'auront, pour 2
 . la plupart, que peu de chemin à faire pour rejoindre
 . leur corps, car M. Berteaux, à l'exemple de son prédé-
-
-Er
 
 4 ù Georges Picquart Le
 g cesseur, paraît décidé à s'engager franchement dans la
@@ -1825,11 +1352,8 @@ ri subdivision de région sont affectés au régiment staFe tionné dans cette s
 # enfants, ils font de droit leur service militaire dans le
 a régiment qui tient garnison au lieu de leur résidence,
 
-W,- À
-[sé RECRUTEMENT RÉGIONAL
 - ou, à défaut, dans le régiment le plus voisin. C'est une
 prime au mariage qui réjouira certainement le cœur de
-M. Piot.
 Quelle différence avec ce qui se passait autrefois,
 sous le second Empire, par exemple! Bien loin de favo- |
 riser le recrutement régional, on cherchait alors à
@@ -1856,8 +1380,6 @@ Pendant de longues années on envoya couramment les
 recrues d'une région de corps d'armée faire leur service |
 militaire dans une autre région. Récemment encore, un
 homme appelé à servir trois ans ne devait être affecté
-37 Georges Picquart, — 3 |
-kes
 
 hi en aucun cas au régiment stationné anus le eee à
 ; ‘4 At de région où il habitait. On craignait que l'influence de
@@ -1895,16 +1417,12 @@ Ton tion du contingent tiennent largement compte de ces |
 WELL réalisation du système de recrutement régional, vers
 1 38
 
-LES GRANDES MANŒUVRES . (U
 | l'organisation définitive de la nation armée. On doit i ai
 _ s'en réjouir et souhaïter que l'administration de la guerre ke
 | persévère dans une voie où elle a semblé trop long- di:
 k temps ne s'avancer qu'à regret. ‘à
-“4
 : Les Grandes Manœuvres (:
-Ë Vendredi 6 octobre 1905 4
 On a beaucoup médit des grandes manœuvres 4
-_ d'automne. }
 = Pour bien des gens elles ne sont pas autre chose $
 | qu'un spectacle coûteux, une caricature de la guerre, d
 . inventée pour permettre aux grands chefs de parader à + L
@@ -1925,11 +1443,7 @@ Et pourtant l'on aurait tort de condamner l'institution
 parce qu'elle a dévié de son but, parce que le côté
 réclame et parade y a pris trop d'importance. ;
 | 39
-LR
 
-… A RSOErS OS PRE RS ET D.
-
-4 Georges Picquart S'AUIES
 F Les grandes manœuvres sont non seulement utiles.
 ; Elles sont encore indispensables. Sans elles il serait M
 3 impossible de maintenir nos forces militaires au degré
@@ -1953,7 +1467,6 @@ FRE la manière dont se comportent au cours d'une action
 2 au-devant des plus graves mécomptes que d'attendre le
 ? k moment du danger pour faire jouer le mécanisme
 14 humain dont l'ensemble (états-majors, services divers « N et troupes) constitue ce que l'on appelle une armée
-mobilisée.
 
 4 Or les grandes manœuvres ont précisément pour
 # utilité principale de réunir et de mettre en action les
@@ -1969,13 +1482,8 @@ Sans doute les péripéties d'une bataille figurée ne « x sauraient se déroul
 
 # d'une action de guerre réelle. Elles donnent souvent lieu
 
-. f
-+ 4o |
-42 F NW
-
 Lip LU Lt Let Ne Lee MALURPIEN ASSURE ALES SSSR SL CL rit 2 LA Lo"
 is LES GRANDES MANŒUVRES 4
-‘4
 _ à des invraisemblances criantes, parce qu'il manque à
 | aux manœuvres du temps de paix certains éléments &
 " dont la puissance est décisive en campagne, notam- 4
@@ -2004,11 +1512,8 @@ tout le monde des idées! fausses, il vaudrait mieux se
 borner à esquisser les exercices de combat pour reporter
 toute son attention sur les épisodes qui précèdent ou
 suivent les chocs décisifs : marches, cantonnements,
-bivouacs, ravitaillements, établissement d'avant-postes,
 déploiements en vue du combat, etc., etc., en un mot |
-A
 
-Georges Picquart ; 40
 toutes les opérations qui peuvent être exécutées dans « 4
 des conditions identiques, ou peu s'en faut, à celles du "A
 temps de guerre. 3 Ë.
@@ -2018,7 +1523,6 @@ tout entière dans les limites de la vraisemblance. Elle "
 ferait cesser cette comédie trompeuse des batailles figu- ÿ 1
 rées, à la réussite de laquelle on sacrifie trop souvent la ge:
 partie vraiment sérieuse et utile des grandes manœu- #4
-vres. (1
 ; Quant à l'instruction des troupes en vue du combat, 1
 elle doit être donnée sur des champs de tir en terrain M
 varié, avec des fusils chargés à balle, avec des canons À
@@ -2027,9 +1531,7 @@ représentant des objectifs semblables à ceux que l'on
 rencontre en campagne. Les tireries à blanc dont on 10
 abuse tant aux manœuvres ne sont que des exercices À
 puérils, dépourvus de toute sanction. 4
-i*
 | Les forces morales et la guerre ‘
-Mercredi 18 octobre 1905 À
 Les maîtres qui furent chargés, il y a une trentaine à
 d'années, de nous initier, mes camarades et moi, aux 4
 beautés de l'art militaire, étaient des gens très savants, 1
@@ -2037,19 +1539,16 @@ fort imbus de la supériorité de leur enseignement. A les M
 en croire, ils possédaient le secret de vaincre. Et comment en douter quand on les entendait relever d'unton
 doctoral les fautes qui avaient conduit tant de généraux
 à la défaite : celui-ci ne s'était pas gardé suffisamment
-À | ñ
 
 A LES FORCES MORALES ET LA GUERRE noue
 sur sa droite; celui-là n'avait pas accordé assez d'atten- N
 l tion aux dangers qui menaçaient sa gauche; tel autre, ail
 \ — qui l'eût cru! — s'était montré assez inepte pour se W
-k laisser percer en plein centre. (
 Quant au vainqueur, sa marche oblique, son ordre x
 1 échelonné ou son mouvement tournant avaient produit ÿ
 . un effet décisif. C'est avec une désinvolture parfaite je
 : qu'en un tour de main il avait coupé et enveloppé l'ar- ÿ
 mée ennemie, ni plus ni moins que s'il s'était agi d'une br
-\ simple galette. f
 | Tout cela donnait à nos jeunes imaginations l'impres- AA
 sion que la guerre est une sorte de jeu dont les soldats
 sont les pions, et où il suffit, pour gagner, d'observer +
@@ -2061,7 +1560,6 @@ j tait à nous inculquer les arides principes de l'administration militaire. Mai
 À coutumière, — par quel subterfuge, je n'en sais plus ?
 | rien, — et alors il nous entretenait longuement des <
 forces morales sans lesquelles, disait-il, tout n'est que û
-i vanité.
 D'ailleurs, on l'écoutait peu; on le tournait généralement en ridicule; on le traitait de prêcheur. C'était lui 11
 | pourtant qui disait vrai et ceux d'entre nous dans l'es- à
 prit desquels il a déposé la graine qui germa plus tard $
@@ -2071,9 +1569,7 @@ elles les plus habiles combinaisons échouent misérable- i
 ment. Grâce à elles les manœuvres les plus simples
 -comme ies plus osées permettent d'aboutir au succès.
 | 83 |
-b ee
 
-Georges Picquart 0
 Car le soldat n'est pas un automate, bien qu'on ait
 
 cherché à le réduire à cet état, dans certaines armées É.
@@ -2123,9 +1619,6 @@ Mais dans cet ordre d'idées comme en beaucoup
 
 d'autres, il est un peuple que notre ignorance traitait,
 
-\
-
-” LES FORCES MORALES ET LA GUERRE k
 _ hier encore, de barbare, et qui s'est révélé tout à coup à
 supérieur à ceux qui prétendaient lui montrer le che- 5
 min. Je veux parler des Japonais. F3
@@ -2140,7 +1633,6 @@ ment éveillés dans leur esprit. 1
 . Comme document intéressant à ce sujet, nous avons :
 les ordres du général Oku, dont un exemplaire, tombé 4
 entre les mains des Russes, a été publié récemment. En
-voici quelques extraits : j
 | .« Le secret de la victoire réside dans le courage, :
 l'énergie, l'entrain, l'endurance dont les troupes font ñ
 preuve en cherchant à atteindre, à tout prix, le but qui
@@ -2154,8 +1646,6 @@ par les difficultés et les dangers, — et cela jusqu'à ce à
 que nous soyons arrivés au but.
 « Le véritable fondement d'une forte discipline, ce
 sont les bonnes relations, résultat d'une confiance mutuelle, qui doivent exister entre supérieurs et subordonnés.
-45 Georges Picquart. — 3, à
-A .
 fl L
 
 | Georges Picquart FT
@@ -2164,17 +1654,14 @@ FE le bien du service, le bien général. » à
 5 Un autre passage dénote une singulière préoccu- à
 14 Û pation de faire toujours mieux sans se laisser distraire
 ni \ par les soucis et les fatigues de la vie en cam- w
-j: pagne : 1).
 À « Comme la guerre durera longtemps encore, il faut w
 È que notre armée reste forte à tous les points de vue. À
 DU Les jeunes officiers devront travailler à perfectionner L
 di leurs connaissances. Il faudra aussi ne laisser échapper M
 me aucune occasion d'améliorer l'instruction des réser- M
-hi vistes. » ‘4
 Ta | ÿ Et enfin, pour conclure, cette phrase typique : À
 ne « Des soldats qui ne pensent qu'à eux et ne pensent
 Bts pas aux autres ne savent pas ce que c'est que la
-ÿ guerre. » &
 Remarquez combien, tout en s'inspirant d'idéesélevées, "
 | le général japonais sait rester pratique. Il n'oublie pas
 M qu'il parle à des hommes et il tient compte d'un sentii ment très humain quand il fait observer que marcher M
@@ -2190,13 +1677,10 @@ commandement japonais, les faire passer dans l'âme de « | ceux auxquels on s'a
 français surtout, on n'a des chances de réussir dans cet
 î art que si l'on est animé d'une conviction sincère et si
 | l l'on sait prêcher d'exemple. À
-î 46 }
-an) à ‘-
 
 | MGR . LA DÉFENSE NATIONALE } FE ER
 
 Ë La Défense nationale a 31
-‘ Dimanche 22 octobre 1905 * d'
 l M. de Lanessan vient de publier dans le Matin trois 18
 L articles sensationnels tendant à prouver, chiffres en AL
 _ main, que l'infériorité de notre organisation militaire et À Be » la supériorité de l'organisation militaire allemande nous 712
@@ -2229,20 +1713,15 @@ Le sommes-nous ? : UNIS
 M M. de Lanessan n'en croit rien. Il estime que les
 … troupes chargées de couvrir notre frontière, —les troupes j 1
 fs : à de couverture, — ont des effectifs trop faibles, et qu'elles ; # É
-FN PTE
-
-Georges Picquart
 
 contiennent à tout moment de l'année trop d'hommes
 insuffisamment instruits. Une pareille situation lui paraît
 d'autant plus inquiétante qu' « en Allemagne les troupes
 de couverture ont toujours leurs effectifs de guerre au
-complet ».
 
 Nos ouvrages fortifiés sont-ils du moins assez bien
 protégés, assez puissamment armés, pour fournir des
 points d'appui sérieux à nos faibles bataillons de couverture et pour arrêter l'ennemi pendant que le reste de
-Parmée se mobilise ?
 
 M. de Lanessan ne le croit pas davantage. :
 
@@ -2261,17 +1740,10 @@ foudroyante les masses allèmandes pourraient envahir
 notre territoire tandis que les armées françaises seraient
 non seulement incapables de prendre l'offensive, mais ;
 encore hors d'état de s'opposer en temps utile à cette
-formidable poussée.
 
 Si la situation était telle que la dépeint M. de Lanessan, nous aurions le droit de nous montrer justement
 alarmés. Nous aurions le droit de demander des comptes É
 sévères à un État-Major qui, au bout de trente-cinq ans,
-
-es
-
-1 LA DÉFENSE NATIONALE -
-
-; à
 
 | n'a pas su faire un meilleur usage des ressources mises
 
@@ -2286,12 +1758,6 @@ H Mais ce tableau répond-il bien à la réalité ?
 : C'est ce que je me propose d'examiner en commençant
 aujourd'hui par les deux premiers articles de M. de |
 É Lanessan, et en réservant le troisième pour une étude
-
-1 prochaine.
-
-Î x
-
-, %X *%
 
 ! M. de Lanessan dit qu'une guerre peut surgir à l'im-
 
@@ -2319,12 +1785,9 @@ M. de Lanessan dit qu'au lieu de maintenir nos com-
 et 175 hommes, puis à 3 officiers et 130 hommes. Ce
 dernier chiffre me paraît contestable. A supposer qu'il
 
-RENE Lan » ER RR TENTE TA OU ARS PE 3 AVR A AN PUS ARTE
-TAN TAN ‘4
 À Que Georges Picquart SA à
 füt vrai, la situation par rapport aux effectifs allemands
 ne serait pas particulièrement défavorable, puisque la
-compagnie allemande renforcée compte en chiffres ronds
 . 5 officiers et 160 hommes (et non 250). Nous possédons È
 du reste sur les Allemands quelques avantages à d'au- :
 tres points de vue. C'est ainsi que nos bataillons de
@@ -2367,8 +1830,6 @@ se magne! Remarquons, en outre, que depuis cette année0 ci les recrues françai
 14 à la même époque, au commencement d'octobre. L'inKa struction de ces hommes se poursuit donc parallèlement.
 | S'il y a infériorité de notre côté, — et je ne le crois pas,
 + « —-on ne saurait s'en prendre aux défauts d'organisake tion invoqués par M. de Lanessan. )
-F4 *
-& 1 QUE
 | ‘4 Je passe à la question de nos forteresses. f
 WC M. de Lanessan dit que l'Allemagne possède plus de
 Ki 150 pièces (obusiers de 150 millimètres et mortiers de
@@ -2380,13 +1841,9 @@ F2 de campagne, destinée à être attelée pour pouvoir ac0 compagner les armé
 È l telages sont formés dès le temps de paix. Mais déjà
 a: leur répartition est bien faite pour calmer les inquié-
 | A  tudes ‘que nous pourrions concevoir, car au lieu d'être
-CN
-62: 4<NTDERS
 
-Georges Picquart
 réunis tous à la frontière, ces groupes sont dispersés
 dans les places suivantes : Spandau, Magdebourg,
-Glogau, Cologne, Strasbourg, Metz, Thorn, Mayence
 et Ingolstadt.
 
 Le seul groupe de Metz serait à portée d'agir d'un
@@ -2411,16 +1868,12 @@ Il a fait ressortir très nettement que la tâche de celle-ci
 ne serait pas précisément commode en présence de nos
 calibres supérieurs (canon de 155 et mortiers de 270),
 sur un terrain admirablement connu et repéré par la
-défense.
 
 M. de Lanessan dit enfin que l'artillerie lourde d'armée nous fait entièrement défaut. C'est là une grave
 erreur. M. le général Langlois, dans l'article que je
 viens de citer, affirme formellement le contraire : nous
 
-‘8 LA DÉFENSE NATIONALE
-
 possédons depuis 1898 une artillerie de gros calibre
-attelée.
 
 | M. de Lanessan, qui est député de Lyon, a dû pourtant voir circuler plus d'une fois dans cette ville de gros
 canons traînés par un fort attelage et escortés d'un
@@ -2435,8 +1888,6 @@ lourde de corps d'armée.
 N Nous possédons du reste d'autres dépôts que celui de
 
 Lyon et plus rapprochés de la frontière du Nord-Est.
-
-+ %*
 
 Je remets à un numéro prochain l'étude du troisième
 
@@ -2454,13 +1905,11 @@ deux ans et qu'il déposa à cette occasion un contre-
 ; projet dont l'économie consistait : 1° dans l'adoption du
 service de dix-huit mois; 2 dans la création de
 60.000 rengagés destinés à donner du corps à notre
-jeune armée.
 
 Je ne serais donc pas surpris si M. de Lanessan proposait d'appliquer son système de rengagés au renforcement des troupes de couverture, à la création d'une
 armée de premier choc, pas plus que je ne m''étonnerais
 de l'entendre demander l'augmentation de notre grosse
 
-à Georges Picquart Arai
 artillerie et le perfectionnement de nos défenses au ï i
 moyen de cuirassements, par exemple. Ce serait la ?
 conclusion logique de ses articles. pi
@@ -2476,7 +1925,6 @@ sins de l'Est: |
 ; « L'Allemagne est prête à attaquer. |
 1 « Nos moyens de résistance sont inférieurs.
 ou « Il nous faut douze jours pour rassembler nos
-té troupes.
 2 « Il faut vingt-quatre heures aux Allemands. ;
 « Même pour la défensive, nos voisins sont mieux :
 “ organisés que nous. » |
@@ -2484,17 +1932,11 @@ té troupes.
 à l'honorable député de Lyon et à la suite desquels il Ë
 cherche à nous faire toucher du doigt les causes d'une k
 aussi déplorable situation. f
-to * * th
 vit L'Allemagne est prête à attaquer, dit M. de Lanessan: (il
 ‘ni « L'État-Major allemand peut en vingt-quatre heures
 | masser sur un point quelconque et à deux pas de notre ;
-4 f #4
-th 54 « :
-P Re
 
-REULS LA DÉFENSE NATIONALE " à
 territoire, 110.000 fusils, 10.000 sabres et 888 pièces d'ar- d
-tillerie. »
 
 A. Cette concentration est, en effet, admissible, maté- à
 riellement, à condition que l'on ne chicane pas trop su : ii
@@ -2511,7 +1953,6 @@ fort difficile de mettre plus tard sur le pied de guerre,
 4 Que ferait cette masse de 130.000 combattants sans
 ! trains, sans échelons de munitions, sans les compléments
 et les rechanges de toute sorte que seule fournit une |
-; mobilisation générale ?
 } Elle serait réduite à la défensive. Elle se trouverait
 À identiquement dans le même état que nos corps d'ar- fi
 À mée jetés étourdiment à la frontière au début de la ;
@@ -2526,8 +1967,6 @@ restreint, parce qu'elles ont un effectif renforcé et }
 \ leurs positions et de prendre une offensive sérieuse,
 h sans être au complet de guerre, sans être munies des
 
-0e OO
-Georges Picquart
 moyens mobiles de ravitaillement destinés à remplacer
 en marche les magasins fixes dont elles s'éloigneraient.
 Et ce qui est vrai pour les troupes de couverture est
@@ -2545,9 +1984,6 @@ Une petite remarque en passant. Si M. de Lanessan
 | refaisait le calcul de nos forces de cavalerie disponibles
 à la frontière dans les vingt-quatre heures, il arriverait
 certainement à un chiffre presque double de celui qu'il
-indique.
-k
-% *
 
 Mais M. de Lanessan ne croit pas seulement que les
 Allemands sont en état de masser 120.000 hommes à la
@@ -2567,11 +2003,6 @@ de rassemblement, prête à prendre l'offensive. Et il est
 possible au gouvernement de Berlin de faire tout cela
 sans rien dire, sans même que nous puissions faire
 
-56 |
-
-À
-
-RE LA DÉFENSE NATIONALE
 entendre une plainte, dont le résultat le moins douteux
 serait la rupture diplomatique et l'entrée en campagne
 immédiate de forces déjà constituées, déjà rendues peut-
@@ -2630,7 +2061,6 @@ bi __ ©Vieux Allemands » font le chassé-croisé et viennent E
 \êE renforcer les corps et les places de première ligne. 4
 ne C'est une raison de plus pour repousser avec énergie 4
 À cette double affirmation, si nettement énoncée par M. de 14
-À Lanessan : 1
 n € Il nous faut douze jours pour rassembler nos troupes. 1
 ‘ri Il faut vingt-quatre heures aux Allemands. » 34
 q . M. de Lanessan trouve que nos places sont à la a
@@ -2648,7 +2078,6 @@ RES Ce matériel serait d'ailleurs insuffisant pour venir à :
 Li Une artillerie de ce genre est faite pour agir contre #
 # ‘=
 
-D Ur na
 4 AT jose | LA DÉFENSE NATIONALE À
 les obstacles matériels du champ de bataille, que les +5 |
 _ pièces légères ne peuvent entamer. Elle peut être utile We
@@ -2681,7 +2110,6 @@ est précisément analogue à celui de notre adversaire et 1
 grosse artillerie qui existe déjà et peut-être vaudrait-il x
 | 59
 
-Georges Picquart
 mieux nous occuper de notre matériel léger, excellent,
 mais inférieur en nombre à celui des Allemands.
 Nous n'avons nul besoin d'améliorer des ouvrages
@@ -2689,7 +2117,6 @@ Nous n'avons nul besoin d'améliorer des ouvrages
 employons moins de cuirassements que les Allemands :
 mais la cuirasse est d'une efficacité discutable et discuFA tée. Ses avantages les plus clairs sont ceux qu'elle
 ; procure, sous forme d'espèces sonnantes, à la grande
-‘0 industrie métallurgique.
 Il n'y a, d'autre part, aucune urgence à construire des
 j lignes nouvelles en vue d'augmenter les facilités de la
 concentration. La situation est bonne. Il faudrait d'ail-
@@ -2707,7 +2134,6 @@ guerre. Mais, si l'on y réfléchit un peu, ne voit-on pas
 | qu'à notre époque une ville ouverte est rarement appe-
 | lée à subir des épreuves aussi terribles que celles
 qui attendent immanquablement une ville forte assié-
-gée ?
 
 En tout cas le budget de la guerre est assez grevé à
 l'heure actuelle pour que l'on y regarde à deux fois
@@ -2715,7 +2141,6 @@ avant d'engager le pays dans des dépenses extraordinaires aussi importantes.
 
 Les progrès les plus urgents à accomplir ne sont pas
 
-; CONTRADICTION ! j
 d'ordre matériel. Ils ne s'achètent pas avec des millions. |
 Ce qu'il nous faut avant tout, c'est un meilleur commandement, c'est une cohésion plus grande entre les diffé-
 rents éléments qui composent la nation armée.
@@ -2723,8 +2148,6 @@ Il serait également désirable que nos esprits se
 laissent moins facilement impressionner par des fantômes et qu'ils s'habituent à discerner avec plus de
 sang-froid ce qui constitue réellement le fort et le faible
 de nos adversaires.
-Contradiction
-Mercredi 6 décembre 1905
 Les lecteurs de l'Aurore n'ont pas oublié la publication du Grand État-Major allemand, dont un de nos
 collaborateurs a parlé récemment, ici-même, et qui
 traite du droit des gens dans la guerre continentale.
@@ -2740,10 +2163,7 @@ Ce serait folie de la part de l'assiégeant de laisser
 sortir d'une ville bombardée les femmes, les enfants,
 les vieillards, les malades, puisque les souffrances
 éprouvées par ces catégories d'individus sont précisé-
-4 6x Georges Picquart. — 4
-à
 
-& Georges Picquart = 00e
 : ment une des causes qui peuvent amener une reddition.
 à à s plus prompte de la place. j
 ‘ En voici un autre :
@@ -2778,7 +2198,6 @@ Na auteurs, de toutes les nations, sont d'accord pour
 Ë :h condamner de semblables procédés. Néanmoïns on ne
 à pourra pas toujours s'en dispenser; on les emploiera À
 ;) sans doute à regret, mais les exigences de la guerre
-& forceront souvent d'y avoir recours. »
 # Le livre n'indique pas les violences que l'on mettra
 N en œuvre pour obliger à des actes de trahison vis-à-vis
 228 de leurs compatriotes les non-belligérants, c'est-à-dire
@@ -2788,18 +2207,15 @@ ti mais il est facile de concevoir qu'à cette besogne
 
 r: inavouable ne peuvent satisfaire que des moyens plus
 ra inavouables encore.
-1e 62
 
 120 - 14
 
-; K LES | CONTRADICTION ;
 x Cependant vous auriez tort de vous indigner : tout 4
 2 cela, avec bien autre chose encore, est non seulement à
 admissible, mais louable, car, — je continue à citer tex- nn
 . tuellement : « Certaines rigueurs sont inhérentes à la .
 guerre et c'est dans l'emploi impitoyable des violences ;:
 nécessaires que réside souvent la seule et vraie huma- 4
-nité, » ÿ
 Par contre, ce qui est impardonnable, aux yeux du ki
 Grand État-Major, ce qui est un véritable retour à la 4
 sauvagerie des premiers âges, c'est d'employer à la %
@@ -2826,8 +2242,6 @@ D'ailleurs la France n'est pas la seule puissance qui
 _ emploie des troupes musulmanes au même titre queses
 | 63 #
 
-DR A ee DR Qu
-Georges Picquart à
 forces nationales. L'Autriche-Hongrie, alliée de l'empire
 d'Allemagne, possède bel et bien des contingents
 mahométans, recrutés en Bosnie-Herzégovine, et il n'y
@@ -2849,18 +2263,13 @@ C'est un des officiers les plus en vue de l'armée allek mande, le général von
 non seulement l'état-major, mais encore tout le système
 militaire de la Turquie et, à l'issue de la guerre grécoturque de 1897, il a publié un récit de la campagne, |
 dans lequel il constate avec amour les progrès de ses |
-élèves. |
 Mais il y a plus. Toute une pléiade d'officiers ottomans sont venus perfectionner leur instruction dans l'armée prussienne. Ils ont fait des stages dans les régile ments et y ont exercé un commandement effectif, — ce
 qui par parenthèse a dû cruellement afiliger l'âme chré- |
 J tienne des soldats allemands placés sous leurs ordres. |
 L'un d'entre eux, Pertev Bey, ayant servi auprès du
 
-&
-
-NOTRE ARTILLERIE DE CAMPAGNE |
 comte de Haeseler, alors commandant du 16° corps
 d'armée à Metz, a même écrit sur son ancien chef un
-livre fort intéressant, fort attrayant, plein d'aperçus
 ingénieux et dans lequel ïil reconnaît au vieux H
 général les solides vertus qui distinguent un bon musulman ! -
 
@@ -2872,8 +2281,6 @@ reproche nos turcos, et ce n'est pas la manière
 d'une pareille contradiction.
 
 Notre artillerie de campagne
-
-Mercredi 20 décembre 1905
 
 Je crois avoir démontré suflisamment, dans de récents
 
@@ -2891,10 +2298,6 @@ conclure qu'il ne reste rien à faire au point de vue de la
 | importantes, touchant notre organisation militaire,
 méritent d'attirer l'attention des pouvoirs publics. Je
 m'occuperai aujourd'hui de celles qui concernent l'artillerie de campagne.
-
-65 Georges Picquart. — 4.
-
-Q Georges Picquart \ k
 
 Nous possédons, comme l'on sait, un canon du calibre 1
 
@@ -2942,7 +2345,6 @@ e est inutile de mentionner ici, notre canon tire-t-il nor-
 Ps malement, par minute, vingt coups parfaitement ajus-
 
 ÿ tés. On peut même aller un peu plus vite en cas de
-besoin. 4
 
 Le canon de campagne allemand est d'un calibre ;
 
@@ -2958,10 +2360,6 @@ NE maximum,
 
 \ ment, en 1896; ils ont achevé d'en armer les troupes
 
-ju é : 4
-
-D: AID , « 4 2 \A01
-: NOTRE ARTILLERIE DE CAMPAGNE î
 en 1899. Mais après avoir reconnu combien il est infé-
 rieur au nôtre, ils n'ont pas hésité devant les frais ñ
 d'une transformation renouvelée à si brève échéance, "4
@@ -2983,7 +2381,6 @@ nement toutes leurs batteries munies de cette pièce per- À
 fectionnée. Ce jour-là, ils n'auront pas seulement rat- Ÿ
 trapé l'avance que nous avions sur eux au point de vue
 de l'artillerie : ils nous auront dépassés de beaucoup, et
-voici pourquoi : à
 Quand notre nouveau matériel a été mis en service,
 _ on a réduit de six à quatre le nombre des pièces qui
 composent une batterie d'artillerie de campagne, et l'on }:
@@ -2993,9 +2390,7 @@ En agissant ainsi, on a voulu assurer aux nouvelles
 pièces un approvisionnement de projectiles qui fût en
 rapport avec la rapidité de leur tir, sans que l'effectif
 _ dela batterie en hommes, chevaux et voitures fût sen- :
-; 67
 
-Georges Picquart “4
 siblement modifié. Cet expédient est évidemment com- g
 mode au point de vue de l'organisation, de l'administration, et même de la conduite du feu, puisqu'il réduit 6
 le nombre des unités dont le capitaine doit s'occuper À
@@ -3004,7 +2399,6 @@ part, et je ne sache pas que l'on aït jamais songé,
 par exemple, à réduire le nombre des tireurs d'in- 1
 | fanterie lorsqu'ont paru les armes à répétition, sous
 prétexte qu'un nouveau fusil en valait deux ou trois :
-anciens. 4
 Quoi qu'il en soit, les Allemands ne paraissent aucu- 1
 nement disposés à diminuer le nombre des pièces de :
 leurs batteries, et comme ils mettent en ligne autant de |
@@ -3025,9 +2419,7 @@ avec des pièces de gros calibre, comme on l'a demandé |
 récemment. Les obusiers de campagne, lançant de fortes 4
 charges de mélinite, peuvent avoir leur utilité dans
 certains cas, quand il s'agit de battre des ouvrages solidement armés et fortiliés, et des obstacles très résistants. Mais c'est là un rôle exceptionnel, auquel il ne |
-) 68
 
-1 TABLEAUX D'AVANCEMENT
 faut pas sacrifier l'essentiel, c'est-à-dire la pièce légère,
 larme de bataille. On ne tire pas les perdreaux à
 balle, pas plus qu'on ne combat des lignes d'infanterie
@@ -3040,8 +2432,6 @@ vus en conséquence, et si l'on craint de manquer de
 chevaux pour traîner tant de voitures, ce sera le cas
 d'étudier l'emploi de la traction automobile, du moins
 pour les échelons les plus éloignés du champ de bataille.
-Tableaux d'avancement |
-Lundi premier janvier 1906
 Dans quelques semaines, dans quelques jours peut- 4
 être, paraîtront les tableaux d'avancement des officiers k
 de l'armée française pour 1906; tableaux « impatiemment attendus », suivant l'expression consacrée; source
@@ -3053,7 +2443,6 @@ candidats. Depuis longtemps on n'avait pas eu en
 perspective un pareil remue-ménage dans les hauts
 grades. Une vingtaine de généraux de division à nommer, une soixantaine de généraux de brigade, plus de |
 
-A Sd
 | Georges Picquart + AIT CAMES te
 quatre-vingts colonels : telles sont les prévisions k 4
 actuelles fondées sur la limite d'âge, sans compter les i:
@@ -3067,7 +2456,6 @@ SE choix seront mauvais ou bons, la tête de l'armée va se :
 a trouver, et pour longtemps, encombrée de non-valeurs E
 _ou peuplée par l'élite du corps d'officiers. È
 La responsabilité est grande; elle est même redou- 4
-4 ; table. :
 Lu Le ministre est-il, du moins, suffisamment armé pour ‘à
 k: pouvoir agir au mieux des intérêts qui lui sont confiés ? a
 # Si l'on en juge d'après la multiplicité et la diversité
@@ -3088,9 +2476,7 @@ comptent que quelques années de grade. 4
 HA Le travail qui s'effectue dans le mystère du cabinet
 ministériél n'est pas moins fécond en variations de
 pe L
-AA 20
 
-LUN TABLEAUX D'AVANCEMENT ;
 principe, que celui qui s'élabore sous les yeux du 11e
 public. Tel ministre éprouve une répugnance marquée : d
 à laisser avancer les officiers qui ne sortent pas des 1
@@ -3105,7 +2491,6 @@ sionnaires, et de ces conférences successives sort, dans à
 chaque corps d'armée, un tableau des officiers proposés 1
 pour le grade supérieur, classés suivant l'ordre de pré- à:
 férence définitivement arrêté par le commandant de YU
-corps. \
 Les propositions pour le grade de colonel et au-dessus 5
 vont, en outre, aux généraux inspecteurs de corps à
 d'armée qui réduisent chacun en un tableau unique, É
@@ -3124,10 +2509,7 @@ doit se passer, — toujours théoriquement, — de la façon
 
 la plus loyale et la plus propre à assurer un excellent ‘
 recrutement des cadres supérieurs. 4
-{ 71 n}
 
-5 FFT “
-Georges Picquart
 | En réalité, les choses se présentent différemment.
 D'abord tous les officiers sont admirablement notés, à
 j peu d'exceptions près, et je dois dire que ce phénomène
@@ -3143,7 +2525,6 @@ ceux qui comptent le plus d'années de service. Mais il
 ; entraîner par des motifs différents et chez qui l'esprit
 Lr de coterie, les relations personnelles ou mondaines
 jouent un rôle décisif. D'ailleurs, l'exemple vient de
-haut.
 Ne voyons-nous pas des officiers attachés à da maison
 militaire du président de la République décrocher jusqu'à trois grades en cinq ans (sans compter les décora4 tions), et l'Élysée n'est-il pas devenu la véritable pépinière du haut commandement?
 Ne voyons-nous pas la plupart des ministres de la
@@ -3151,20 +2532,15 @@ guerre, au moment de quitter leurs fonctions, assurer
 Î par un « testament » en bonne et due forme la fortune
 militaire des officiers qui les ont secondés, ne fût-ce que
 pendant quelques mois, — sans préjudice des faveurs
-exceptionnelles prodiguées antérieurement?
 De pareils errements sont contagieux. Aussi,
 M. Étienne ne devra-t-il pas s'étonner si les états de
 | proposition qu'on lui soumet sont encombrés d'ofliciers
 | d'ordonnance, de membres des « grandes familles mili72
-] r Ÿ
 | 4%
 
-FAVORITISME 4
 taires », et de « postards », transformés pour la circon- |
-stance en loyaux républicains.
 
 ? Mais quelle que soit sa bonne volonté, il restera jù
-désarmé, faute d'éléments d'appréciation suffisamment |
 précis et sûrs. Il pourra peut-être écarter quelques choix 1
 scandaleux, réparer quelques injustices trop criantes. Il ?
 sera hors d'état d'empêcher que l'œuvre, dans son |
@@ -3179,9 +2555,6 @@ sérieuse et tangible les motifs pour lesquels un officier
 est préféré à ses camarades, l'arbitraire continuera à
 régner et tous les efforts tentés pour obtenir une amélioration resteront inutiles.
 
-Favoritisme
-Samedi 20 janvier 1906
-
 Les tableaux d'avancement de l'armée métropolitaine,
 récemment parus, justifient en grande partie les pronostics auxquels ils ont donné lieu.
 
@@ -3192,12 +2565,8 @@ jour. Chaque officier connaît ses notes et sait quel rang
 
 \ grade supérieur. Il était évident, dès lors, qu'il ne pour-
 
-; rait y avoir grand chose à redire aux divers choix
 | 4 73 Georges Picquart. — 5
 
-À { SRE RSC LOL Tr PROC AT RENE
-; "EN :
-Georges Picquart
 exercés dans les corps de troupe, milieux nombreux, où
 : l'on se connaît, où les passe-droits donnent facilement
 prétexte à récriminations et à commentaires, sinon à
@@ -3207,7 +2576,6 @@ de faire passer indûment sur le dos de ses camarades
 j un oflicier qui sert dans un régiment, il éprouve naturellement moins de gêne pour favoriser son officier
 d'ordonnance ou d'autres individualités isolées telles
 que des gens attachés à des services spéciaux ou à des
-états-majors.
 Aussi les tableaux d'avancement pour 1906 présentent-ils les particularités suivantes.
 L'ancienneté de service a une grande influence sur le
 choix exercé dans les régiments. On voit même reparaître sur les tableaux approuvés par M. Étienne une
@@ -3224,11 +2592,7 @@ montrer ce qu'elle est dans l'artillerie, à un moment
 décisif de la carrière.
 Sur 55 capitaines acceptés en 1906 pour le grade de |
 chef d'escadron au choix, 25 seulement sont pris dans |
-L
-74 |
 
-+ LOS ME PAR RER eUR ES . #
-3 | FAVORITISME
 | les régiments. Encore faut-il observer que sur ce nombre
 plusieurs officiers, pourvus du brevet d'état-major, ne
 font que passer dans la troupe. Trente, au contraire,
@@ -3242,7 +2606,6 @@ d'être récompensé d'une manière éclatante.
 Quoi qu'il en soit, la préférence donnée aux « embus-
 | qués » sur les officiers de iroupe est, ici, évidente, et
 j'en pourrais citer d'autres exemples, nombreux et pro- Ù
-bants.
 De pareïls symptômes sont inquiétants. Sacrifier des
 gens attachés à un labeur qui constitue le métier militaire par excellence.et d'autre part favoriser outre mesure
 des officiers employés au service personnel d'un chef
@@ -3261,16 +2624,12 @@ tourmenté d'un pareil souci, quelle autorité pourrait-il
 
 La ' cs AA y LAURE LA 73 f \ had:
 
-; Georges Picquart PE
-à é
-
 ! avoir à ce sujet sur les généraux, s'il ne donne pas lui- À
 | même l'exemple? Comment arrivera-t-il à refréner les
 | abus s'il prodigue de son côté les faveurs les plus ex- \
 : 4} traordinaires à ses collaborateurs d'un moment, — à }
 RE des collaborateurs dont, par surcroît, l'armée sait fort |
 è bien qu'ils sont loin d'être choisis tous pour des raisons J
-s d'ordre militaire?
 £ ; Les chiffres que je vais citer paraîtront incroyables. J
 ie Ils sont rigoureusement exacts. Chacun peut les vérifier ;
 k en consultant les publications officielles.
@@ -3279,7 +2638,6 @@ Le cabinet militaire de M. Étienne compte, en plus du |
 E: général chef de cabinet, dix-huit officiers de l'armée, du k
 k grade de lieutenant à celui de lieutenant-colonel. Sur |
 VAE ces dix-huit officiers, neuf faisaient déjà partie du ca- |
-É ‘ binet précédent.
 {5 Or, deux mois à peine se sont écoulés depuis la dé- j
 sh mission de M. Berteaux, et déjà seize de ces officiers À
 | ont récolté, qui une croix, qui un avancement, qui une 4
@@ -3305,9 +2663,7 @@ s Tous ceux qui étaient encore en état d'attraper 1
 #4 cien oflicier d'ordonnance du général Gonse, égaré
 
 À dans ce fromage par suite d'une de ces confusions de j
-: M }
 
-Le S FAVORITISME +
 noms, une de ces erreurs de personnes, comme il s'en
 . produit plus fréquemment qu'on ne se l'imagine, lors- à
 L qu'il s'agit de constituer rapidement le cabinet d'un ù
@@ -3337,10 +2693,7 @@ récompensé par un choix qui lui fait gagner des centaines de rangs sur les plu
 ‘ lui permettra, sans doute, par une anomalie singulière, j
 | d'être promu légalement, dans un avenir prochain, sans
 avoir jamais exercé de commandement. Le législateur
-K 77
-4 L
 
-Georges Picquart 3
 : n'avait pas prévu qu'un officier de troupe ne paraîtrait
 6 jamais dans la troupe, et c'est une simple circulaire
 ministérielle, facilement révocable, qui invite les offciers non brevetés à remplir un emploi de leur grade
@@ -3372,9 +2725,6 @@ sement et aussi indistinctement qu'au cabinet du
 ministre de la guerre et l'on y voit, comme à l'époque
 de l'ancienne monarchie, des colonels vaquer à leur /
 
-Pr: {
-
-44 L'APPLICATION DE LA NOUVELLE LOI MILITAIRE
 | service de cour, tout en restant les chefs titulaires de
 régiments qu'en réalité leurs lieutenants-colonels instruisent et dirigent. 1
 Et c'est à une pareille école que se recrutent et se
@@ -3384,23 +2734,19 @@ autres la pratique des rigoureux devoirs qui forment 6
 l'essence du métier militaire!
 Il serait temps d'aviser.
 L'application de la nouvelle loi militaire
-Lundi 5 février 1906
 Nos anciennes PAR de métier, recrutées dans un
 milieu spécial, constituaient un monde fermé, s'organisant avec ses propres ressources. Pour compléter leurs
 effectifs, au moment d'une mobilisation, elles ne recouraient pas à l'ensemble de la nation, comme cela
 se passe aujourd'hui. Elles ne disposaient que de
 réserves relativement peu nombreuses, composées de
-soldats en congé.
 Il était donc indispensable que ces armées fussent +
 _ dotées en tout temps des services administratifs et sanitaires qui leur étaient nécessaires le jour d'une entrée en
-campagne : trains, infirmiers, boulangers, etc.
 Pareïllement il fallait que les corps eussent à leur disposition, d'une manière permanente, des tailleurs, des
 bottiers, des selliers, des bourreliers ou autres ouvriers
 , du même genre.
 Enfin, comme la durée du service atteignait huit,
 , 79
 
-Georges Picquart v
 sept ou cinq ans, suivant les époques, — et même plus, à
 ï en cas de rengagement, — on ne voyait que des avan- 4
 | tages à occuper les hommes qui avaient terminé leur 4
@@ -3424,14 +2770,12 @@ jusque-là, et parmi les éléments nouveaux appelés L
 assurer la vie matérielle des troupes de campagne.
 Mais les anciennes habitudes n'en subsistèrent pas
 moins, entretenues par la routine, par l'esprit de particularisme, par l'attrait de la commodité et des avantages matériels que cette situation procurait aux 1
-: cadres. .
 On assista même au développement d'abus nouveaux. 4
 C'est ainsi que les officiers virent reconnaître légalement un droit qui leur était formellement dénié par les
 anciens règlements : celui d'employer des soldats pour |
 leur service personnel. M
 Aussi aujourd'hui, à la veille de l'application de la loi 4
 
-1 L'APPLICATION DE LA NOUVELLE LOI MILITAIRE ÿ
 de deux ans, l'armée est-elle encombrée d'une multitude
 d'emplois qui n'ont rien de commun avec le métier des il
 armes; une foule de jeunes gens perdent, à remplir des W:
@@ -3442,7 +2786,6 @@ D'après les calculs faits par des personnalités compé- “
 tentes, c'est à plus de cent mille hommes que s'élève le Er
 
 ù chiffre des ordonnances, garçons de cantines et de ù
-mess, tailleurs, cordonniers, manutentionnaires, etc. ; ï
 
 Plus de cent mille hommes, c'est-à-dire, au bas mot, la
 moitié d'un contingent annuel, le quart de leffectif |
@@ -3472,16 +2815,7 @@ On peut y comprendre, par exemple, dans les régiments
 
 à d'infanterie, les bicyclistes, les conducteurs de voitures,
 
-+ 81 Georges Picquart, — 5,
-
-4 ù "
-
-L
-
-' ; à
-Georges Picquart |
 les hommes chargés de soigner les chevaux des officiers
-montés. |
 
 Mais il est inadmissible que chaque officier ait à sa
 disposition comme domestique un soldat-ordonnance |
@@ -3512,15 +2846,12 @@ supprimés, les autres assurés par la main-d'œuvre 1
 classés dans les services auxiliaires, — car la loi prévoit |
 l'incorporation des soldats de cette catégorie dès le
 temps de paix, ce qui est, d'ailleurs, une mesure 1
-discutable.
 
 Dans le même ordre d'idées nos services accessoires : |
 trains, troupes d'administration, sections d'infirmiers et
 de secrétaires, qui sont organisés en France avec un
 luxe de personnel dont on ne trouve point d'égal dans
 les armées étrangères, devraient être réduits à un minimum. Les réserves sont assez riches en spécialités de
-
-; L'APPLICATION DE LA NOUVELLE LOI MILITAIRE |
 
 | tout genre pour pouvoir satisfaire, et au delà, aux
 
@@ -3535,7 +2866,6 @@ de Paris, plus de 500 hommes se relaient toutes les |
 vingt-quatre heures pour accomplir un fastidieux et
 inutile service de garde ? Sans compter, bien entendu,
 les troupes déléguées aux obsèques, aux réceptions
-solennelles, etc., etc. à
 
 Enfin il serait indispensable de remettre en honneur
 comme elles le méritent, les fonctions de l'officier de
@@ -3560,12 +2890,7 @@ d'homogénéité et de valeur professionnelle.
 
 |
 
-D.
-
-‘1 Georges Picquart Ke
 Saint-Cyr et Polytechnique à la caserne 1
-É
-Mercredi 21 février 1906 k
 Au mois d'octobre prochain, pour la première fois, les \
 élèves admis à Saint-Cyr et à Polytechnique iront 1
 accomplir, dans les régiments, le temps de service ‘à
@@ -3583,7 +2908,6 @@ d'esprit que l'histoire incroyable, et pourtant authen- $
 £ * tique, de ce rejeton d'une très noble famille qui ayant
 échoué à Saint-Cyr, il y a quelques années, préféra :
 déserter plutôt que de servir son pays comme simple |
-troupier.
 | Ce jeune homme avait évidemment des traditions
 militaires incompatibles avec le régime d'une démocra-
 ï tie. Mais il ne faudrait pas croire que sa mentalité fût
@@ -3592,14 +2916,11 @@ tous les tons, à l'occasion du vote de la loi de deux ans, 1
 que si l'on forçait les futurs officiers à passer tous par à
 le rang, personne ne se donnerait plus la peine d'entrer
 dans nos grandes écoles militaires ? ]
-Fr 7"
 
-à SAINT-CYR ET POLYTECHNIQUE À LA CASERNE ï
 On eût été, d'ailleurs, plus près de la vérité en disant
 que, dans ces conditions, l'épaulette attirerait moins Ë
 d'amateurs du genre de ce réfractaire titré dont je viens #
 de citer l'exemple, et il n'y a rien là qui doive nous ;
-chagriner, au contraire! |
 Quoi qu'il en soit, aucun candidat au grade d'officier S
 ne pourra se dispenser désormais d'aller faire ses premières armes au régiment. Mais on connaîtrait mal la
 | ténacité de l'homme attaché à ses privilèges si l'on
@@ -3618,22 +2939,18 @@ Ils mèneront une vie complètement séparée, moralement
 et matériellement, de celle des autres soldats. Comme
 6 autrefois les volontaires d'un an, ils auront sans doute
 à leur service des ordonnances, et vivront en mess, à la
-cantine !
 Il n'est pas besoin d'insister beaucoup pour démontrer
 qu'une pareïlle manière d'envisager la question serait
 | complètement opposée à l'esprit de la loi. Rien ne ferait
 perdre plus sûrement le bénéfice des dispositions nou__ vellement édictées.
 ; On à insinué maintes fois, dans le camp réaction-
 …  naire, que si le législateur a voulu obliger les candidats
-fs 85
-f 73
 
 à Georges Picquart L
 FE officiers à partager pendant quelques mois l'existence Î
 4 de la troupe, c'est qu'il s'est plu à exercer sur eux ;
 une puérile brimade, c'est qu'il a obéi à je ne sais
 1 | quel sentiment de jalousie égalitaire, mesquin et ran- |
-ie cunier. !
 à Ce sont là de bien misérables chicanes. Comme s'il
 7 n'était pas nécessaire, indispensable, que celui qui |
 1 assume la lourde responsabilité d'instruire et, le cas |
@@ -3644,13 +2961,11 @@ quel est le langage qu'il comprend, par quels moyens
 on peut gagner sa confiance, éveiller et cultiver en lui
 | cet esprit de dévouement et de sacrifice, sans lequel une ;
 armée n'est qu'un troupeau voué aux paniques et aux L
-4 défaites !
 Aujourd'hui encore, quand un jeune homme, sorti
 des grandes écoles, arrive au régiment, investi de cette
 ; autorité redoutable, qui est celle de l'officier sur le
 soldat, il tombe dans un milieu dont il a certes beau- 1
 coup entendu parler, mais qui, pratiquement, lui est
-complètement étranger.
 Les inconvénients de ce manque de préparation ne
 À tardent pas à se faire sentir. Ce nouveau venu, géné-
 | ralement gonflé d'une science fraîchement acquise, — et
@@ -3659,12 +2974,8 @@ plutôt qu'il ne les conquiert, et les sous-officiers rompus
 au métier, qui observent en sa présence un respect de
 commande, ne se gênent pas pour prendre leur revanche
 derrière son dos en riant de son inexpérience et de ses
-k inévitables maladresses.
 Certaines natures, bien douées, savent vaincre ces
-86 ;
-ALI
 
-À SAINT-CYR ET POLYTECHNIQUE À LA CASERNE
 premières difficultés. L'instinct du devoir les conduit à :
 reconnaître et à combler les lacunes de leur éducation
 militaire. Mais ils restent nombreux ceux qui, traînant
@@ -3695,10 +3006,7 @@ castes, les coteries, les catégories, les privilèges.
 cet ordre d'idées, il ne faut pas commencer par tourner
 . la loi en faisant une situation spéciale aux élèves
 | 8
-LA
-L
 
-‘es . Georges Picquart "2100
 M des grandes écoles, pendant leur séjour dans e #0
 5 jt Il importe, au contraire, que ces jeunes gens suivent 4
 _ la règle commune, qu'ils mènent réellement la vie du
@@ -3709,55 +3017,21 @@ DA les répartir à raison de deux ou trois par régiment,
 | A sans autre faveur que de les placer dans des compaFIN . . A ES:
 TRE gnies, des escadrons ou des batteries commandés par
 Re S des chefs particulièrement intelligents, énergiques, k
-VE _ - attachés à leurs devoirs. di:
-RU DÉAMICNE 2e S 110
 pur Nulle initiation ne vaut celle-là. ù Le.
-Ai : 0
-oh x "1 “à
-Me " 4
-T'NTER d 4
 AS ne
-pie Ent: “à
-CSS Hs
-‘as 20 y
-STE tt
 
-LRU AE Se
-Vs (NE (5
-As | Te 14 Per $ ; LT FE
 DR CAS £ née ( ke ANR URE Que
-HORS eus NÉ < 3 } OURS
-D EE eee FA AF1 1 HR
-“SARA à | \ HI
 de: D ae à WP" HO ce
-AA MAUR e IE
-Fr DCR Pa < L ÿ ) RAI fs
-108 dt RTE L EL
-NEC AUV AT" TEUTA HA ANNEES
 # tr NAN OA SV FIN FAN
-NUL LS ATEN F FR À nt
-LEA EP EIRE BA
-40 NE KT AE \ | pe
-/ GetLA NAS " + IR
 San 9 ALU EE i dt) ne
-0 Ru Le l a A Ÿ
-LIU AN PEUR NRA
 on VAN } HU au F us
 PU PIN MON Ier , À EL
-1 ROMA t ;} (ARCS
-MEURT ARTE : \ Ft “t
-(OR ENERRE g 7h42 4 SPAIN
-ot k , » ÿ 40)
-SEEN wi À 1 j': AE ER
-: NEA ARENA ANNE À QAR #ü FUME
-AA à 0e AR Rte AE A En LOL US
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 Nos Cahiers sont édités par des souscriptions men-
 ÿ suelles régulières et par des souscriptions extraordi4 naires ; la souscription ne confère aucune autorité sur |
 t la rédaction ni sur l'administration ; ces fonctions
-Due demeurent libres. =
 Nos Cahiers paraïssent par séries; une série paraît +
 È dans le temps d'une année scolaire, d'une année ;
 # ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- 3
@@ -3767,11 +3041,7 @@ ment se prend pour une série. 4
 ; valable pour la série en cours, et pour toute cette série.
 Prix de l'abonnement, pour chaque série annuelle 4
 4 pendant le cours de cette série : ;
-E.
-À ! Paris, départements, Alsace-Lorraine, à
-Abonnement ordi- \ Algérie, Tunisie.... vingt francs
 naire........... } Autres pays de l'Union postale uni- 1
-verselle....... vingt-cinq francs 4
 Abonnement sur whatman... cent francs pour tous pays ë
 Les exemplaires sur whatman, tirage non réimposé, ;
 à sont numérotés à la presse et imprimés au nom du 4
@@ -3786,34 +3056,11 @@ Le numéro du tirage réservé à chacun des souscripteurs; M
 l'édition sur whatman est strictement limitée au
 | nombre d'exemplaires souscrit à chaque instant. à
 
-ARENA HAT RAS OI NME CITE
 it US ACT NAN EE L } ñ cu !
-AM 20 NE
-BA ar. LR AL TR lé ! , Ra &
 
-mA ï "Lx PAU », A k ) RU,
-: MOU ol \ NAT
-M VE) NY +HAUTE
 | INSEE M) Hit 400
-: NO PE A TPE à 00
-Xe) PALAE ‘ À , \AUER
 KE st aa PL , ‘ l ; “AER
-AA ed } k LUE
 ki “it METE Le ; nt
-
-re MER FN 40
-CEST #
-Dh ei : le 1088)
-
-1 0004 F1 14, AUTOMAE EN
-es Ah ar ) OT
-LRU “ L Der dE
-6e Là ; NE
-
-DAME TA" 4 ' " UE
-
-{ Mn RL à L'ÉTAT: A Re,
-LEE PTE ORNE 7 7 SOS CRT RE RATER ATOS QRESDE
 
 $ Pour tout changement d'adresse envoyer soixante -
 centimes, quatre timbres de quinze centimes. =

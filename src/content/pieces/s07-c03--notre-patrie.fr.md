@@ -7,61 +7,20 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 22578
 ---
-
-_ TRO SIÈME CAHIER DE LA SEPTIÈME SÉRIE
 eu. LES ST AR
-1 VRP £ É Ex
-CAHIERS DE LA QUINZAINE :
-LÉ
 lu paraissant vingt fois par an |
 l <-1#tpties on ASSET F Ÿ :
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-RER EE RE ESC NS LENS PARCS ARR ARES 1
 RS SRE NET CR ee PCR a: DL NE NP EI
 sÿl Ware MEN 1£ ” 4 Ps k LS Le Br 1
-RCE r MC
-RARES #2, #4 TA A
-PAC NT : k L , de %
-: = 7 & 4 Ce Pt:
-Ë De ! L L 0
-‘AU EE à
 #5 XD TOR
 Ne Rex
-* FE
-ee é à RS
-F : #4 rue + +”
-: è st J pr
-cf 2 A En '
-a s
-; 1 POUR xd
-É re D
-n 20 -
-ù ;
-"Fan 2 Vars E .
-% ;: ET +
-Re ! Æ LT
-Ce À RS,
-DE Vi HRRE Et Li
-ASS ée NES #
 
 DRE CNNTE OM RATS U et A Se
-CAT. 4 FA NARAQRE 7 ; 1 f RUE
-LORIE NEA
-11 die P as:
-: 148 6 nr.
-UNIES REP
-
-LS TR ke
-RE À Ke #1 NS TEE
-\ COR ù ; ‘ re PS
-à MON CN à ME
-HAN TEE . ra
-MN à ah
 
 | FÉSMNENEN : \ RES er UE
 
-ñ
 Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, I900-I904, un si
 grand nombre .de documents, de textes formant dossiers, de renseignements et de commentaires; — un À
@@ -76,7 +35,6 @@ dat de cinq francs à M. André Bourgeois, administra-.
 teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 Paris, cinquième arrondissement ; on recevra en retour.
 le catalogue analytique sommaire, 1900-1904, de nos :
-cinq premières séries. A
 Ce catalogue a été justement établi pour donner, 4
 autant qu'il se pouvait, une image en bref, un raccourci, D
 une idée, abrégée, mais complète, de nos éditions anté- d
@@ -84,7 +42,6 @@ rieures et de nos cinq premières séries ; tout y est classé |
 dans l'ordre ; il suffit de le lire pour trouver, à leur. « place, les références demandées. r
 Ce catalogue, in-18 grand jésus, forme un cahier"
 très épais de XI1+408 pages très denses, marqué cinq
-2 +
 -
 
 4 _ francs ; ce cahier comptait comme premier cahier de la
@@ -118,134 +75,27 @@ ki. peut consulter, — provisoirement, — la petite table
 n_ analytique très sommaire que nous avons publiée en fin
 LS de ce cahier index.
 
-; + #- ARS MA 0)
-“AL à A NT
-PEAR VAE RAA -
-CEA
-. ta 4
-L 4
-ÿ 0
-AE « ' PSE à
-‘1
-1%
 > ARCS
-à
 
-L\2
-LS:
-
-Re
-Dr :
-
-Gi
-: AE
-œ MS
 ta
-es |
-4 +0
-À 51: ATOS
-\KucaE (1
 
-A ee M
 | ERLES <
-(th se 2 * Le
-bi
-11 lx
 n. cahier pour le voyage
 a de visite
 “14 du président de la République \
-‘2008 française en Espagne ù
 ie (et en Portugal)
-n À ?.
-à No ; *
 ‘1 Alors dans Besançon, vieille ville espagnole. ? ñ
-V4 &
-‘Ap |
-« 11
-
-D PT RAR 0 NO RCE
-À £ . ; £ 1.9; AIRE
-3 SLR
-\ * Me
-& k NV nt
-: : ETC TAN TES
-ne Fee ; F % 7e)
-È 4 SOS
-Ne |
-, LA
-No
-FE ‘ Qt
-
-en |
-: 150
-À 1° #00
-:1à )
-Het
-
-n°
-à KR 8 4 |
-RATE 143 En H
-? 5x DNS
 
 | RE PAS EE ARC MArAU LOWER EURE RARE A el ONE
-PE SE
-DC HUE 1 p L pr
 
-k
-ï [l
-4 |
-
-‘ 1 LI
 4 notre patrie |
-‘1 ;
-à
 ni!
-h |
-Î 7 a
-AL: : 2
 | ià (| ; Ps
-ah
-JE ;
-[ou HA “ ;
-V1 ;
 
 RPACARS AUTONET, VOD SENS M. ts et 01 Pa y<:2ns
-“es NTSC RTS DER # NÉS S HE D An } MÉE ho ee: FRA re
-DEUIE £ Fr 2, FAP TMS
-k LR D'ÉCRAN
-* La KE ri
 | Ce ? TER es
-UE
 | 5/2 cé
-: - AN
-LPS « FR
-DR."
-è 14
-TN
 , 4
-“ LA US
-LC
-; +22
-, “ 22
-s 1
-k Pr.
-D:
-"ol
-\ « SNS 1
-Re <
-4 n ve"
-Le
-EX,
-* 50
-‘ME
-‘#4
-He.
-+ LEE
-Des |
-ETR à |
-
-CHARLES PéGuy
-NOTRE PATRIE
 
 Ce fut une révélation, et je ne ferai pas pour cette fois
 le cahier que je me réservais, que je m'étais promis
@@ -267,11 +117,6 @@ faut s'attendre à son métier, et aux obligations de son
 métier, aux obligations périodiques. Nuls métiers n'impliquent des obligations périodiques, le mot le dit,
 comme la fabrication des périodiques. On doit s'y attendre. On s'y fait. On s'en tire par des assolements, et
 
-9 ne
-
-RAT FREE
-? : 4
-: Charles Péguy É
 l'on en vient très bien, comme les terres modernes, à M
 se passer de jachères. D
 A mon corps défendant, par le ministère de ces cahiers, je suis devenu tout de même un petit peu un M
@@ -288,7 +133,6 @@ k vais laisser tomber cette législature et se préparerles
 prochaines élections sans essayer de jeter en arrière un
 regard d'historien sur les événements de ces quatre
 dernières années; un assez grand nombre de ces évé-
-nements me paraissaient importants, sérieux; à mesure
 qu'ils se produisaient ils m'avaient semblé importants;
 je n'étais pas bien sûr qu'ils me le parussent autant M
 aujourd'hui; mais, dans notre misérable métier, nous +
@@ -303,7 +147,6 @@ deckisme; sincèrement peut-être, au moins pour Certains hommes, et pour certai
 
 10 4
 
-! F
 fi NOTRE PATRIE
 1e certaine partie, et pour certaines idées; mensongèreJi ment certes, pour presque toutes les per$onnes, en
 k4 presque toutes les circonstances, pour la plus grande -
@@ -329,9 +172,7 @@ cette ruine, une fois acquise, une fois obtenue, demeurerait définitive ; que l
 à ment et de combien cette forme de césarisme était plus
 - dangereuse que toutes les formes antérieures ; comment
 et de combien cette forme non encore éprouvée, justes ment, en partie, parce qu'elle n'avait pas été éprouvée
-II
 
-Charles Péguy ï
 encore, était profondément plus dangereuse que toutes À
 les formes jusqu'ici connues et classées; comment elle {
 se manifestait; comment elle était organisée ; comment i
@@ -345,7 +186,6 @@ qui avaient cette religion véritable de la République, à
 force d'avoir les regards fixés sur les anciennes réali- ;
 tés, sur les menaces récentes, sur les intentions pré- î
 sentes, sur les apparences nouvelles du césarisme mili- 1
-taire, à force d'en être effrayés, épouvantés, fascinés, ï
 devaient immanquablement tomber, et tout innocem-. 4
 ment, dans les réalités du césarisme civil; qui est le à
 plus dangereux, du césarisme militaire ou du césarisme i
@@ -366,7 +206,6 @@ civiles, surtout qu'il ne sache pas monter à cheval ; enfin, |
 qu'on puisse le nommer le petit père Untel; qu'au è
 12 4
 
-4 NOTRE PATRIE
 besoin s'il était populairement laid, cela n'en vaudrait
 | que mieux; de l'importance capitale de la désignation
 | de petit père dans notre histoire contemporaine ; et
@@ -395,7 +234,6 @@ conséquent son application fut une opéralion de dé-
 loyauté publique; non seulement que cette application
 fut un acte de déloyauté publique, mais qu'elle fut une
 
-Charles Péguy SP
 application nouvelle du principe de la raison d'État: 1
 que la raison d'État, qui avait triomphé dans la corrup
 tion du dreyfusisme, ne fut jamais aussi puissante que
@@ -434,7 +272,6 @@ un peu waldeckiste; quélle fut la politique du Gouver- ù
 
 10 4
 #
-NOTRE PATRIE
 il nement envers le Saint-Siège; et quelle avait été la polik tique du Saint-Siège envers le gouvernement français ;
 À comment les anticléricaux se conduisirent ; comment les
 F :  anticatholiques se conduisirent ; comment les cléricaux
@@ -460,8 +297,6 @@ véritable dreyfusisme ; que le socialisme, devenant gou-
 sources les plus profondes ; comment la tradition révo-
 | 15
 
-/
-Charles Péguy
 lutionnaire française était lésée dans ses plus anciennes
 ressources ; comment un jaurésisme universel pendant ?
 près de quatre ans sévit; car ce n'est pas assez de
@@ -493,11 +328,7 @@ faillit faire perdre à la République tout l'avantage
 qu'elle avait jadis contribué à lui faire obtenir ; et à la Ê
 libre-pensée tous les avantages qu'elle avait jadis con- à À
 tribué à faire obtenir à la pensée libre ; comment dès le |
-16 L
 
-ag Si V2 LATE
-\ NOTRE PATRIE
-l
 commencement de ce ministère la faveur, le privilège
 de faveur, la faveur politique, la faveur gouvernementale, qui avait toujours été dans la pratique des gouvernements et des partis, dans les mœurs politiques, fut
 scandaleusement érigée en théorie officielle, gouvernementale, politique, parlementaire, et censément républicaine ; comment une Ligue instituée pour la défense
@@ -522,7 +353,6 @@ subitement; au moins en apparence, Car, au demeurant, l'écroulement ne fut pas 
 non apparentes ; qu'il y eut à l'effondrement du combisme,
 outre un dégoût général croissant, outre une sorte
 
-Charles Péguy
 d'impossibilité de continuer presque officiellement con- À
 statée en dûlangage parlementaire, des causes politiques, 1
 peut-être singulières, et un peu mystérieuses; des 1
@@ -532,7 +362,6 @@ de mauvaises; qu'il y avait toujours eu pendant la 1
 domination combiste antagonisme entre la présidence 4
 du conseil et la présidence de la République; mais que 3
 cet antagonisme, commencé en lutte sourde, continué 54
-en campagne politique, enfin poursuivi en bataille É
 presque ouverte et sentimentale, n'explique pas tout; 4
 que ces sortes de campagnes extérieures n'expliquent f
 sans doute jamais tout dans un effondrement, dans un 4
@@ -556,7 +385,6 @@ tique, plus voulu qu'on ne l'a généralement pensé; qu'il +À
 ne l'a montré lui-même ; ou laissé voir; que le rusé petit 4
 18 4
 
-(Ai
 ik NOTRE PATRIE
 
 populaire sentait approcher les difficultés, venir les
@@ -579,7 +407,6 @@ résoudre les cas de conscience ailleurs que dans les
 \ cas admirablement réel; avec toutes les exigences du
 réel, toutes les incommodités, toutes les malversations,
 } ce refus perpétuel d'entrer dans nos cadres préalables;
-; comment, M. Combes tombé, M. Rouvier demeurait
 le seul président du conseil possible; si déjà M. Rouvier
 n'avait pas été le seul ministre des finances possible
 indiqué pour la constitution du cabinet précédent; si
@@ -590,9 +417,6 @@ finances n'avait pas eu vraiment une importance capi_ tale, primordiale; si dans
 n'avait pas eu beaucoup plus d'importance, et surtout
 beaucoup plus d'importance réelle, que l'attribution,
 
-\
-
-Charles Péguy
 demi spontanée, demi calculée, demi négligée, du porte- -
 feuille de l'intérieur et de la présidence du conseil à un F
 sénateur ancien ministre de l'instruction publique, À
@@ -615,7 +439,6 @@ cratie et finance, tout retombe en alourdissement sur le (
 dos du contribuable ; d'où je serais revenu sur les dis- ;
 sensions intérieures du cabinet si singulièrement con- À
 ‘ stitué par M. Combes, et si singulièrement commandé ; É
-_ sirebelle, si mal obéissant, si mal en mains, si désobéis- $
 sant, et, en même temps, si obéissant ; j'aurais examiné 4
 particulièrement l'opposition systématique de M. Rou- À
 vier au combisme; enfin passant au ministère de 4
@@ -625,9 +448,6 @@ le départ de M. Combes; je m'y serais reposé comme 4
 tout le monde, à tort, peut-être ; à tort sans doute, car !
 un orage montait, que nul de nous ne voyait venir ; et 1
 
-à (
-
-F .  NOTRE PATRIE
 pendant l'année qui nous restait avant la fin de la
 législature j'aurais comme tout le monde fait ma séparation des Églises et de l'État; j'aurais comme tout le
 monde constaté que cette séparation s'était faite, au
@@ -635,7 +455,6 @@ moins à la Chambre, à peu près honnêtement; c'est-à-
 dire qu'elle ne s'était nullement faite comme l'avait
 imaginée M. Combes, et comme il avait pris soin de \
 l'annoncer lui-même, qu'elle n'avait point été un exercice de persécution, un essai de persécution, de suppression de l'Église par l'État, un essai d'oppression, de
-domination anticatholique, prétendue anticléricale,
 mais qu'elle avait révélé un effort sincère de libération
 mutuelle, qu'on y avait vu ce que les parlementaires
 nous avaient presque désaccoutumés de voir: du tra-
@@ -659,9 +478,6 @@ les événements, j'aurais déclaré, de cette voix, que
 c'étaient les événements qui avaient tort; les dociles
 événements, présents, absents, tous également sérieux,
 
-HHAË RP TS 7 -/rs TRAME L'ITE TON SRT CHEN PEN PORN
-Charles Péguy ji
-/ "4
 tous également importants, tous également organisés, 4
 tous également expliqués, eussent fait une ou plusieurs J
 files indiennes que j'eusse déroulées, enroulées savam- ;
@@ -694,8 +510,6 @@ l'écrire, ce cahier; écrire n'est rien, tous nos jeunes ci
 gens le savent; il était fait d'avance ; il n'y avait quà
 22 1
 
-Li
-‘ NOTRE PATRIE
 rédiger ; un devoir de vacances, enfin ; naturellement,
 et comme tout bon Français, j'aurais tout ignoré de la
 politique extérieure; mais j'en aurais parlé un peu, par
@@ -725,9 +539,7 @@ sommeil ; temps de calembours et de rimes, qui sont des
 de prose honnête et sérieuse, de prose sériée ; non pas
 fin d'une année, fin achevée, fin finie, constatée, correcte,
 ) officielle, mais finissement, lent finissement secret d'une
-: 23
 
-Charles Péguy 1
 année qui encore n'était pas tout à fait finie et qui à
 pourtantse creusait de l'intérieur; d'une année qui encore
 pouvait nous apporter quelles surprises, encore, et 5
@@ -760,10 +572,7 @@ tous, la tête lourde de soucis, détraqué de tracas, il 4
 était amusant de prendre le bras d'un véritable ami, — 1
 nous nous en connaissons, — et d'aller un quart d'heure 4
 se mêler en badauds au vieux et bon peuple de Paris; 4
-P 4
 
-FA
-1 NOTRE PATRIE
 le quart d'heure devenait demi-heure, trois quarts
 d'heure; infailliblement on rencontrait quelque ami,
 qui sournois en faisait autant, et qui sans plus vous
@@ -785,13 +594,10 @@ voudra, pourvu qu'ils soient, et dans tous les jours
 ultérieurs tout ce qu'il faudra, parce qu'ils sont, monuments qui seront tous jours, jusqu'au jour de leur mort,
 et qui ne périront point, comme tant de monuments
 modernes précaires, longtemps avant le jour de leur
-naturelle mort; monuments éternellement monuments ;
 . toujours pleins d'un éternel sens intérieur, éternellement
 manifesté par la valeur de la pierre, éternellement dessiné par l'extérieure éternité de la ligne; monuments
 25 2
 
-Charles Péguy ‘14
-monarchiques, monuments royaux, monuments reli- 4
 gieux, monuments de l'ancien régime et de tout régime |
 nouveau, monument impérial, partout et toujours non
 pas seulement monuments populaires, mais monuments 4
@@ -824,11 +630,6 @@ Il est vrai que l'on regardait passer les militaires; 4
 depuis que l'État-Major dreyfusiste parlementaire politique a tout fait pour nous réconcilier avec l'État-Major ‘4
 militaire, nous avons refusé de nous réconcilier avec
 
-26 À
-th
-
-ASE NS 2 ANA AE MAS ENT ESS LA PR EUR AT CRAN
-k NOTRE PATRIE
 : VÉtat-Major militaire, mais le temps a passé, nous
 : sommes devenus lâches, et nous ne nous croyons plus
 È tenus de regarder les simples hommes de deuxième
@@ -859,11 +660,6 @@ consentement de sa bonne volonté; le seul qui soit à
 l'aise et qui sache se tenir et se présenter dans l'histoire, en ayant une longue habitude, ayant une habitude
 invétérée de cette forme et de ce niveau d'existence, et
 
-ù
-
-LT PAT ORNE
-
-Charles Péguy 1
 qui n'y soit point insolent, inconvenant, grossier, par- #
 venu; le seul peuple qui ne glisse point sur les parquets à
 cirés de la gloire; le seul peuple qui soit révolution- #
@@ -897,9 +693,6 @@ au fond c'était tout un; le peuple, le roi; le roi, le ;
 peuple; c'était tout un parce que c'était tout un même ni
 spectacle, et, ensemble, en un sens, tout un même spec- à
 
-28 |
-
-IE NOTRE PATRIE
 11 tateur; et même ce vieux peuple roi était plus royal,
 dl plus roi, plus fait à son métier que ce jeune héritier
 À d'une relativement jeune dynastie; l'année avait été
@@ -914,11 +707,8 @@ laissé abruti, à ce qu'il me semblaït, pour le restant de
 ; mes jours ; mais quelle fatigue résisterait à la fréquenfi tation de tout ce peuple amusé, vaillant, courageux de
 è ce courage qui consiste à recommencer perpétuellement
 (14 tous les matins. Les vieux {rois huit enfin réalisés.
-{)
-[
 } Le seul peuple qui apparaisse dignement comme un
 it roi dans les anciens monuments de ses grandes céré-
-!| monies.
 1 Nous aussi nous recommencerons perpétuellementtous
 M les matins; tous les matins de tous les rapides jours ;
 . et toutes les rentrées, qui sont les matins assombris
@@ -931,12 +721,10 @@ au contraire se lèvent sur les diminutions, sur les
 pluies, sur les obscurcissements des automnes.
 29 2,
 
-Charles Péguy 4
 Comment ne pas imiter ce peuple, dont nous sommes, 4
 que nous sommes; c'est-à-dire comment ne pas nous ‘1
 imiter nous-mêmes, comment ne pas être de notre “4
 propre race; comment ne pas nous préparer nous- ‘à
-mêmes à recommencer perpétuellement demain matin; :
 commençons donc par nous mêler aux amusements de Le
 notre peuple, puisque aussi bien ces amusements sont 1 à
 le secret de sa force, lui donnant les temps de halte et
@@ -965,8 +753,6 @@ faisait qu'il était déjà passé ; ce mouvement commun, $
 ce rythme premier commandait tout le spectacle ; tous 4
 ces gens qui défilaient pour nos amusements et qui for- à
 
-Ur
-We NOTRE PATRIE
 4 .  maïient un cortège ne laissaient dans la mémoire que le
 1 souvenir du rythme commun de tout ce cortège; dans
 ki la mémoire voitures, président, roi, qu'on n'avait pas
@@ -974,7 +760,6 @@ ki la mémoire voitures, président, roi, qu'on n'avait pas
 W, soldats n'étaient bientôt plus que des appareils, des
 [1 demi-fantômes roulant et marchant du même pas, de ce
 Vel trot singulier, coulant, enlevant, solennel et pressé.
-hi
 Hi Dois-je avouer qu'il y avait beaucoup de monde dans
 ji les rues ? Je le dois. Nos cœurs de démocrates en sai4 gneront, mais je le dois. Il y avait beaucoup de monde
 qui passait dans les rues, allait et venait, regardait, se
@@ -995,10 +780,7 @@ hi Quand on lui fait des belles petites Universités PopuW laires bien sages, bi
 "” cipite. Il n'y a point d'accidents parce que l'on s'écrase
  auxportes. Et au contraire, passe-t-il seulement trois che-
 … vaux dans la rue, que incontinent le voilà, déjà sorti,
-à 31
 
-Charles Péguy 1
-ÿ
 sur le pas de sa porte. Comme si trois misérables che- %
 vaux, qui passent, en-tapant du pied, les sots, formaient à
 un spectacle plus intéressant que celui que nous donnent À
@@ -1010,7 +792,6 @@ chettes, et leurs faux-cols. Un esprit un peu affiné, ri
 comme est le nôtre, se refuse à concevoir même la pen- pe
 sée d'établir, entre trois chevaux, qui passent, et tant N
 de docteurs doctes, qui enseignent, une aussi grossière €
-comparaison. $
 Peuple antithétique, déjà prêt pour Hugo. à]
 Rien n'est propice au travail comme ces amusements
 apparemment frivoles ; au moins de loin en loin; rien je
@@ -1020,7 +801,6 @@ ennuis, toutes ces peines, toutes ces misères dont sont |
 tissés les fils de nos ordinaires vies; vraiment le souvenir de ce rythme restait seul dans la mémoire ; l'huma- u
 nité connue était partagée en deux; et dans chacune "A
 des deux parties régnait une égalité parfaite; une « È
-humanité debout regardait passer, parfaitement égale ;
 entre elle-même, étant toute immobile conformément à
 la même verticale; une humanité passante se laissait 4
 regarder passer, parfaitement égale aussi, égale entre i
@@ -1029,7 +809,6 @@ conformément au même rythme horizontal, toute rou- à
 lante et passante d'un même rythme sacré; le roi ï
 n'était plus un roi, ni les soldats des soldats, mais ÿ
 
-Mt: É A PI
 | NOTRE PATRIE
 ensemble ils étaient des mobiles, comme le disent nos
 mécaniciens, des mobiles en mouvement, ensemble ils
@@ -1061,8 +840,6 @@ grande abdication de Waldeck-Rousseau, annonce et
 présage et imitation anticipée de sa grande mort, mort
 politique avant la mort naturelle, mort de la situation
 
-« 4° it ani : ‘+ 1 50 er AY NL ENEINATE EEE 11e EEE
-Charles Péguy "F0
 avant la mort du corps, mort de l'homme d'État avant 4 |
 la mort de l'homme, me faisait un excellent départ; 4 Ù
 auquel je voyais le moyen de me faire une aussi excel M}
@@ -1094,7 +871,6 @@ aujourd'hui, parce qu'il fut démocrate sur la fin de ses M
 ; jours ; mais, dans la démocratie même, sénateur et pro- É
 cessionnel ; manifestant de manifestations et manifestant de cérémonies; comme le peuple, avec le peuple,
 34 4
-ï
 
 À RG bte SET ES EEE Le ee LT NT MORE
 fr NOTRE PATRIE
@@ -1128,13 +904,6 @@ même de l'histoire de Paris, tout un tout autre Hugo;
 
 | qui ne demandait qu'à devenir le Dieu des cérémonies
 
-ï nouvelles, demi royaliste, demi impérialiste, demi légiti-
-
-. miste demi orléanisie, demi populaire demi chambellan,
-
-L 35
-
-Chartes Péguy
 tout à fait poète, un Hugo Louis-Philippe et alliance È
 anglaise, enfin le Hugo du retour des cendres; qu'est-ce
 que ça fait, pourvu qu'il y ait des alignements et qu'il à
@@ -1166,13 +935,6 @@ une ville; et quelle ville, Paris, ville de pierre, peuple À
 de monuments, peuple de mémoires, peuple d'anciennes 4
 actions, Paris, capitale du monde, ville capitale, tout M
 un âge que l'on croyait révolu.
-36 ‘
-ÿ
-}
-
-M our Re
-
-\ NOTRE PATRIE
 
 j A Paris, capitale des Peuples, comme le dit ce Hugo
 en sa dédicace de l'Année terrible.
@@ -1204,9 +966,7 @@ n, remontent à la surface de la mémoire; en de tels
 ÿ l'homme n'est plus lui-même, un homme, un citoyen, une
 … conscience, un cœur, mais lui-même, lui aussi un homme
 . public, en de tels moments que deviennent les poètes
-h 37 3
 
-Charles Péguy d
 plus grands, plus aimés, un Lamartine, un Vigny même,
 sigrand et peut-être unique au monde, même un Racine; *
 | le seul Corneille, peut-être, le plus grand de tous, le seul #
@@ -1218,7 +978,6 @@ Polyeucte dans le ventre, il était devenu bien incapable 1
 de faire même des musiques militaires. q
 Impérieux Hugo; non pas des vers qui chantent dans ;
 la mémoire, mais des vers qui impérieusement, impé-
-rialement sonnent, battent, retentissent, martelés, scan- |
 dés, d'un tel rythme et d'un tel tambour qu'ils com- À
 mandent le pas dont on marche, qu'ils entrent dans les À
 jarrets, et qu'une fois qu'ils sont entrés dans la mé-
@@ -1237,11 +996,7 @@ longtemps après que les réglementaires tambours
 auront cessé de battre au front des régiments.
 Vers qui chantent, si l'on veut, mais comme une …
 chanson de marche, brutale et rythmée, non comme
-ds ‘
-" £
 
-* HER
-F NOTRE PATRIE
 " une mélodie, vers qui gueulent, vers qui déclament,
 14 vers qui hurlent, commé une chanson de route, comme
 Ni une chanson de soldats; je dirai plus : comme une
@@ -1249,7 +1004,6 @@ a chanson à soldats, ce qui ‘est bon, pour un pacifiste en
 pied; comme une chanson d'artilleurs à pied, qui au
 | premier tiers de l'étape, font sonner le sol dur de la
 - route, scandant de leurs lourdes bottes un refrain
-_  malencontreux.
 ù  Singulier Hugo. Singulier comme ce peuple, dans ce
 à peuple, qu'il représente éminemment. Pair de France.
 ; Vieux malin. La gloire de Notre-Dame, dans son œuvre,
@@ -1273,8 +1027,6 @@ Ka dans ce roman de demi-jeunesse en prose que dans la
 n ceux-ci, dans des œuvres où elles n'étaient point indi-
 Ï\ quées, si elles n'avaient pas été présentes éternellement ;
 
-CU SU TEEN PT EMEA TE rt RAS CRC TARDE OPEN
-Charles Péguy F.
 les Châtiments, livre III, x, l'Empereur s'amuse, une
 chanson; le refrain de cette chanson :
 À Sonne aujourd'hui le glas, bourdon de Notre-Dame, N
@@ -1288,8 +1040,6 @@ Peuples, chantez l'épithalame ! 4
 La France épouse l'assassin. — |
 Sonne aujourd'hui le glas, bourdon de Notre-Dame, À
 Et demain le tocsin!
-À
-: Jersey, décembre 1853.— Quelle admirable invention
 de rythme; quel refrain de bourdon ; et encore cette 1
 apparition des clochers dans cette nuit-là, mêmes Châ
 timents, livre I, v; et ce sens et cette vision de Paris,
@@ -1306,7 +1056,6 @@ Réveillés, se montraient du doigt ces personnages ; 4
 La Marseillaise, archange aux chants aériens, , k
 Murmurait dans les cieux : Aux armes, citoyens! à
 
-LÉ NOTRE PATRIE
 dé Paris dormait, hélas ! et bientôt, sur les places,
 El Sur les quais, les soldats, dociles populaces,
 Sa Janissaires conduits par Reybell et Sauboul,
@@ -1320,7 +1069,6 @@ Qui rampent sur le ventre en allongeant leurs ongles ;
 < Et la nuit était morne, et Paris sommeillait
 vs Comme un aigle endormi pris sous un noir filet.
 d Les chefs attendaient l'aube en fumant leurs cigares.
-\i O cosaques! voleurs ! chauffeurs ! routiers ! bulgares!
 “ O généraux brigands ! bagne, je te les rends!
 _ Les juges d'autrefois pour des crimes moins grands
 Hi Ont brûlé la Voisin et roué vif Desrues !
@@ -1336,7 +1084,6 @@ $ Une fille, aux baisers du crime habituée,
 | Bruxelles, Janvier 1852.— Quand M. Fernand Gregh,
 Paris 1905, nous apportera des vers comme ceux qui
 nous remontaient à la mémoire en ce commencement de
-4x
 
 RP ee de
 Charles Péguy "TA
@@ -1350,7 +1097,6 @@ puissantes et singulières inventions de rythmes;
 maisons de résonances, bâtiments de musiques, monuments de sons, puissantes et singulières bâtisses,
 constructions qu'il aimait entre toutes; mêmes Châti- À
 ments ; livre Il, 1; au peuple : 4
-Partout pleurs, sanglots, cris funèbres. 4
 : Pourquoi dors-tu dans les ténèbres? Ë
 | Je ne veux pas que tu sois mort. À
 Pourquoi dors-tu dans les ténèbres ? k
@@ -1363,14 +1109,10 @@ Pourquoi t'es-tu laissé lier de bandelettes ? }
 Ils te mordent dans ton cercueil ! 1
 De tous les peuples on prépare 3
 Le convoi... — ne.
-; Lazare ! Lazare ! Lazare! ‘44
 Lève-toi ! à ;
 Quelle exacte reconstitution de cloches, du bourdon,
 par le rythme, par la rime, par les assonances et par « les consonances, par tout le mouvement, par toute la
 strophe et par tout le couplet ; par l'architecture, parle
-}
-
-1 NOTRE PATRIE
 
 à dessin de ces lignes mêmes que sont les vers. Lui-même
 
@@ -1385,8 +1127,6 @@ bu assuré que lui-même, lui le premier, il n'ignorait rien du |
 | tous également faits, tous également beaux. Finissons
 
 4 sur le dernier, dont les derniers mots enferment
-
-ï l'aveu : ù
 
 ‘s Mais il semble qu'on se réveille!
 
@@ -1409,11 +1149,7 @@ d S'endorment dans les symphonies,
 f 3 Et l'orgue leur chante : Hosanna !
 ii N Qui répond à cette fanfare ? '
 
-D. Le beffroi... —
-nl Lazare! Lazare! Lazare!
-
 Lu Lève-toi!
-WA
 
 | Jersey, mai 1853. — Ces derniers vers, ces mots
 
@@ -1428,17 +1164,12 @@ n qu'il faisait, une fanfare. Là ce qu'il édifiait, des tours
 
 KL et des sonneries de beffroi. Ce sont toujours les tours,
 
-j 43 LAN
-
-Charles Péguy ‘
-NA
 et, si l'on veut, le clocher de Notre-Dame. C'est bien
 cela qu'il nous représentait, qu'il nous donnait à
 entendre, qu'il nous forçait à écouter, que son rythme 1
 nous représentait. Nous n'avions pas besoïn de cetaveu
 explicite pour savoir ce que son rythme nous voulait, et M
 quelle était son image de derrière la tête. 4
-Ensemble, inséparablement, non analysées, parce
 qu'il était un grand poète, non dessoudées, image vi M
 suelle et image auditive. Ensemble images de beffrois
 d'Hôtels-de-Ville et de tours de cathédrale. de
@@ -1461,12 +1192,7 @@ strophe, en fin des mêmes strophes, un tout petit vers #
 expirant; et le redoublement de ce petit vers, le redou- L.
 blement de cette expiration; et la succession immé- M
 diate de ce petit vers à des vers majeurs, ou à un vers A
-majeur. \
-L
 
-+4 "4
-
-1e NOTRE PATRIE
 à Il avait raison de savoir son métier. Tant d'autres
 ) ne le savent pas, qui n'ont point son génie. Sonne
 À aujourd'hui le glas, bourdon de Notre-Dame,
@@ -1488,16 +1214,13 @@ pl faut donc s'en aller bras dessus bras dessous, récitant
 ho du Hugo, et quand l'un s'arrête, l'autre, qui sait plus
 ji outre, étant bibliothécaire et ainsi conservateur de
 é poèmes, l'autre continue. Et c'est le même poète en deux
-mémoires, en deux amitiés, en deux mémoires amies.
 …._ …  Sonne aujourd'hui le glas, bourdon de Notre-Dame,
 Et demain le tocsin,
 C'est ce même bourdon qui aujourd'hui sonne aux
 . oreilles de ce même peuple pour la venue de ce roi.
 Aujourd'hui bourdon de joie, d'amusement et de fête.
 Demain, bourdon de quoi? Bourdon qui rend le même
-Ni: 45 sy
 
-: Charles Péguy 5 VER
 son aux oreilles successives, pour quel glas sonnera-t-il 4 |
 jamais. Sonnerat-il; jamais plus, quelque tocsin. D |
 
@@ -1507,7 +1230,6 @@ Quel tocsin de guerre civile ou de guerre étrangère; À
 
 temps anciens; quel tocsin de guerre plus que civile; quel
 tocsin d'invasion; sonnera-t-il jamais le glas de tout ce 4
-peuple ? k
 
 Quel tocsin d'émeute et de soulèvement social; quel N
 tocsin de levée en masse et de soulèvement national? LR
@@ -1534,11 +1256,6 @@ popularité où il mourut, cette gloire indiscutée où il 4
 triompha, il prépare cette apothéose inouïe où il se 24
 survécut plusieurs semaines. Les militaires en firent k
 les frais. Ce sont des braves gens, tout de même, ces 4
-
-a À
-L]
-
-si
 
 ka ? NOTRE PATRIE
 
@@ -1600,7 +1317,6 @@ de l'autre part ils servaient à lui faire des défilés.
 
 | 47
 
-Charles Péguy a
 Et tous ces objets de malédiction lui avaient surtout ‘4
 servi à faire de beaux vers. Vieux malin, roué comme
 le peuple, dans le peuple, et double comme lui, comme
@@ -1631,10 +1347,7 @@ Que Lasalle à Wagram, Duroc à Reichenbach, A
 Expirèrent frappés au milieu de leur route, 4
 Que Caulaincourt tomba dans la grande redoute,
 Et que la vieille garde est morte à Waterloo! 4
-Es:
-ÿ Fa
 
-k NOTRE PATRIE
 | Ici encore nous n'avons qu'une première leçon; et À
 déjà l'on ne peut pas dire que ces vers soient précisé-
 ment des vers pacifiques; encore moins sont-ils des
@@ -1658,7 +1371,6 @@ Leur bouche, d'un seul cri, dit : vive l'empereur ! \
 \] Puis, à pas lents, musique en tête, sans fureur,
 \ Tranquille, souriant à la mitraille anglaise,
 Ù La garde impériale entra dans la fournaise.
-À
 \ Je le demande, ces inoubliables vers, ces vers mili-
 (l taires, culmination de la guerre et de la gloire, ces vers
 (1 qui sont réussis, est-ce là des vers pacifistes ?
@@ -1671,16 +1383,9 @@ Sous les sombres canons crachant des jets de soufre,
 
 k Fondre ces régiments de granit et d'acier,
 ÿ Comme fond une cire au soufle d'un brasier.
-\ 49
-\ 3
 
-PA LT AA ANNE EN ALES RTE RTE NEO S IS COURS
-0 NE STATE
-2 4 PA STRESS
-Charles Péguy 1008
 Ils allaient, l'arme au bras, front haut, graves, stoïques, 14
 Pas un ne recula. Dormez, morts héroïques ! k
-)-
 Le reste de l'armée hésitait sur leurs corps s
 Et regardait mourir la garde. — C'est alors. M
 O Waterloo ! je pleure et je m'arrête, hélas! *
@@ -1703,15 +1408,12 @@ Waterloo, ce plateau funèbre et solitaire, à
 Ce champ sinistre où Dieu mêla tant de néants, 53
 Tremble encor d'avoir vu la fuite des géants! à
 Napoléon les vit s'écouler comme un fleuve; 1
-q
 [Singuliers effets d'optique dans nos singulières mé-
 moires : quarante ans sont passés, moins de quaranteans, fi
 trente-sept ans et quelques mois, de Waterloo à ces
 - Châtiments, Jersey, 25-30 novembre 1852; et dans nos a
 mémoires, il nous semble qu'il y a un espace énorme,un
-50 is
 
-Fe NOTRE PATRIE . :
 | siècle, entre Waterloo et les Châtiments, et, au con-
 |  traire, que nous touchons aux Châtiments. Et pourtant
 _ ily a plus de cinquante ans, aujourd'hui presque cin-
@@ -1729,8 +1431,6 @@ fait ou fortement contribué à faire notre éducation répu-
 + blicaine primaire, et que nous avons une tendance à
 * considérer tout le passé récent sur le plan de la date de
 notre première enfance, où nous avons commencé à
-cl connaître.]
-n
 ‘4 Il n'y a pas un poème de paix réussi dans toute
 È l'œuvre de Victor Hugo; j'entends un poème de paix
 \ militaire, sociale, nationale ou internationale; de paix
@@ -1741,10 +1441,7 @@ il est un poème de paix biblique, patriarcale, nocturne,
 k puisque c'est Booz endormi. AN u
 ) Demander à la guerre, aux militaires, premièrement
 “ des cortèges comme ils peuvent seuls en donner, deurte 51
-£
 
-ni PAU TES TMNE à Ve AU PPS LINGE RARES AR ANA Le
-Charles Péguy “7
 xièmement des objets de malédiction comme ils peuvent
 seuls en fournir, troisièmement et surtout des sujets
 5 d'inspiration comme il n'en pouvait pas demander àla
@@ -1767,17 +1464,12 @@ parades comme ils peuvent seuls en fournir, des revues
 du 14 Juillet et tous autres apparats, toutes autres
 démonstrations ; il demande à la guerre et aux militaires
 un exercice de malédiction, de réprobation morale, sentimentale, publique, oratoire, officielle, philanthropique,
-scientifique, éloquenie, savante, socialiste, matérialiste
-historique, syndicaliste révolutionnaire ; troisièmement
 il demande à la guerre et aux militaires un sujet d'inspiration, un exercice d'imagination quand, remontant :
 dans le passé, quand, interprétant le présent, quand,
 anticipant l'avenir, il veut se faire croire qu'il n'a point …
 perdu le goût des aventures; quand, enfin, il est las M
 de s'embêter dans des images de paix, 1
 52 44
-
-À À
-NOTRE PATRIE
 
 Il y a là, envers la guerre et les soldats, une duplicité
 insupportable, presque universellement répandue. Elle
@@ -1790,7 +1482,6 @@ Il y a communément aujourd'hui, dans cette consommation du.monde moderne, une d
 envers la guerre et les militaires. Il faut être pour ou
 contre la guerre. Loyalement. Toute situation double
 est une situation fausse. Toute situation double est une
-situation déloyale.
 
 Il faut être pour ou contre la guerre, pour ou contre U
 les militaires. Notre collaborateur M. Charles Richet est
@@ -1812,7 +1503,6 @@ plus noble, étant plus contemporain, l'introduction ;
 sans abuser d'un mot qui a été galvaudé irrémédiablement depuis trente années, je tenais expressément à ce
 
 | Charles Péguy Fa
-A. t
 que la thèse du pacifisme intégral fût intégralement "3
 aussi la thèse qui apparaîtrait ici au commencement de 4
 cette nouvelle année de travail. J'ai donc été particu- ‘à
@@ -1838,14 +1528,9 @@ peuple, aussi impérieuse que la mondanité du monde, “4
 aussi indiscutée ; d'ailleurs faite à l'image et à la ressem- 4
 blance de la mondanité du monde; pour le moment et À
 pour longtemps, cette mondanité du peuple exige que %
-lon soit avancé. F.
 Pair du royaume. Pair de France. Vieux malin. Sénateur de la République. Sénateur du département de la À
 Seine. Sénateur de Paris. Le peuple aussi est sénateur 1
 de Paris, parce que tout le monde ne peut pas être :
-députés. 24
-54 fr,
-v4
-ê À
 
 | NOTRE PATRIE à
 En même temps le peuple veut rêver de guerres; il
@@ -1879,22 +1564,15 @@ quand on aimait la guerre, on la faisait soi-même.
 Il y a là une hypocrisie pacifiste parfaitement insup- |
 portable. On maudit la guerre ouvertement, formellement, officiellement, pour se donner du mérite et de la
 
-à
-1 de
-
-+,"
-Charles Péguy %
 vertu, pour acquérir. de la renommée pacifiste, condui- ‘4
 sant à de la gloire humanitaire. Et secrètement, sour- à
 noisement, disons le mot honteux, clandestinement, on fl
 demande à la guerre, aux militaires, premièrement les L
 apparats des pompes extérieures, deuxièmement les 4
 jouissances, les excitations des imaginations intérieures. À
-Triple bénéfice. Détournement occulte. !
 Toute cette hypocrisie pacifiste, si éminemment 1
 représentée en Hugo, pour des raisons cet pour î
 des causes dont nous n'avons pu qu''indiquer beau- À
-coup trop brièvement quelques-unes, devait culminer ÿ
 sur le nom de Napoléon, que l'on considère, sans se
 doute avec beaucoup de raison, comme le génie *
 même de la guerre moderne, peut-être même comme le ÿ
@@ -1916,9 +1594,6 @@ Admirations occultes, qui aisément devenaient des ]
 adorations. Et durant ces cinq longues semaines du j
 mois de juin dernier passé, aujourd'hui nous savons, k
 par des infiltrations ultérieures, qu'un certain nombre 1
-56 J
-
-Y,
 
 (te NOTRE PATRIE
 
@@ -1952,9 +1627,6 @@ le non pas même Hugo même. Admirable, unique fournis-
 ( Relisez avec un peu d'attention critique Les Châti-
 à ments ; c'est-à-dire, les lisant dans le livre ou dans votre
 l mémoire, sur le texte, luttez un peu, si vous le pouvez,
-\i
-
-li 97
 
 Charles Péguy L:
 contre l'entraînement formidable de l'image et du L
@@ -1992,11 +1664,9 @@ ment prétentieux : mais cela s'accorde fort bien ensemble. 3
 
 Non seulement dans les œuvres où c'était pour ainsi :
 dire son métier de s'en servir, dans les œuvres pu- à
-bliques, politiques, sociales, militaires, historiques, po- à
 
 58 4
 
-4 ; NOTRE PATRIE
 ‘0 lémiques, mais dans les œuvres privées, dans les
 D œuvres où on ne l'attendait pas, dans les œuvres où il
 4 n'était pas indiqué, — sous-entendu dans les Contem-
@@ -2014,19 +1684,14 @@ f pas les monuments figurés de la commémoration de ce
 1 descend de la colonne que pour défiler sous ledit Arc1 de-Triomphe. Ceci est dans les Chants du Crépuscule ;
 10 II, à la colonne. Plusieurs pétitionnaires avaient
 k demandé que la Chambre intervint pour faire transporter les cendres de Napoléon sous la colonne de la
-A place Vendôme. ;
 4 Après une courte délibération, la Chambre était
 4 passée à l'ordre du jour.
-À
 ‘1 (Chambre des députés, séance du 7 octobre 1830)
 ue Je passe les odes et rythmes lyriques des six pre1% mières parties de ce poème. Ici aussi, il faut en venir
 À ï aux Alexandrins (il est bien dommage que la concurN rence des anciens Alexandrins nous interdise d'écrire
 ‘4 les alexandrins de Victor Hugo des Alexandrins ; ceux
 L'Q des autres, on pourrait impunément continuer à les
-À a
 
-k, }
-Charles Péguy
 nommer des alexandrins ; mais pour ceux de Hugo, ce
 n'est pas assez grand: la révérence, l'honneur demanderait que l'on fût autorisé officiellement à les intituler
 des Alexandrins; VIT:
@@ -2052,10 +1717,6 @@ mots non soulignés, ce qui ne serait très spirituel que
 si c'était fait exprès, je n'ai pu m'empêcher de souligner ce vers que je ne lui ai pas fait dire : k
 Oh! va, nous te ferons de belles funérailles ! |
 Nous aurons bien aussi peut-être nos batailles ; |
-60 \
-: ï
-
-à | M NOTRE PATRIE
 
 ù. 9 octobre 1830. — Si l'on se voulait reporter aux
 poèmes de légende et d'histoire, aux poèmes de guerre
@@ -2068,7 +1729,6 @@ qd es Siècles; dans cette nuée d'anciens poèmes, privés,
 “plus ou moins intimes, ignorés aujourd'hui, oubliés,
 “perdus, quelques-uns à tort, il n'y a qu'à feuilleter son
 | œuvre; les Rayons et les Ombres ; IN ; regard jeté dans
-2 ne mansarde ; 1:11; I:
 4 L'angle de la cellule abrite un lit paisible.
 D Sur la table est ce livre où Dieu se fait visible,
 La légende des saints, seul et vrai panthéon.
@@ -2087,11 +1747,7 @@ ii Brille une croix d'honneur, signe humble et triomphant, |
 11 Croix d'un soldat tombé comme tout héros tombe,
 4 Et qui, père endormi, fait du fond de sa tombe ï
 HR Veiller un peu de gloire auprès de son enfant.
-CN 4
-fi
 
-; Charles Péguy : #
-}.
 Croix de Napoléon! joyau guerrier! pensée! Ê
 Couronne de laurier de rayons traversée! |
 Quand il menait ses preux aux combats acharnés, j
@@ -2104,20 +1760,15 @@ Muets, ils adoraient leur demi-dieu vainqueur. 4
 On eût dit qu'allumant leur âme avec son âme,
 Et touchant leur poitrine avec son doigt de flamme,
 Il leur faisait jaïllir cette étoile du cœur!
-Et encore : >]
-IX l
 Oh! la croix de ton père est là qui te regarde! - 04
 La croix du vieux soldat mort dans la vieille garde!
 Laisse-toi conseiller par elle, ange tenté,
 Laisse-toi conseiller. 4
 [ Il s'agit de la défendre de Voltaire; 1 1
 Voltaire, le serpent, le doute, l'ironie, El
-D À
 Voltaire est dans un coin de ta chambre bénie! à
 Avec son œil de flamme il t'espionne et rit. n |
 
-H hs te | SS : é
-‘4 NOTRE PATRIE
 4 Oh! tremble! ce sophiste a sondé bien des fanges!
 …. Oh! tremble! ce faux sage a perdu bien des anges!
 n. Ce démon, noir milan, fond sur les cœurs pieux,
@@ -2131,7 +1782,6 @@ FE Et, comme un loup rôdant, comme un tigre qui guette,
 … Par moments, de Satan, visible au seul poète,
 * La tête monstrueuse apparaît à ton seuil!
 # VIIL
-$k [1
 … Hélas !si ta main chaste ouvrait ce livre infâme,
 1 4 Tu sentirais soudain Dieu mourir dans ton âme.
 ; . Ce soir tu pencherais.
@@ -2145,9 +1795,7 @@ k qi y a eu le Victor Hugo du sacre.
 | Crest une des forces de Hugo, peut-être sa force prin-
 “cipale, on peut dire que ce fut la force de Hugo que :
 cel te impudence tranquille. Plus que cette impudence
-De. 63
 
-Charles Péguy Ci
 de sérénité, cette impudeur. Faire de mauvais vers lui « était parfaitement égal, pourvu que tous les matins il "
 fit, il eût son compte de vers. Il pensait qu'il valait “
 mieux faire des mauvais vers que de ne pas en faire du
@@ -2164,11 +1812,9 @@ que du rivage nous jugeons jaunâtres, saumâtres, sales, M
 lui-même, le père fleuve, il ne les aimait pas autant. D
 
 Et dans ces coulées de faiblesses, quels réveils imprévus. Quel beau vers, soudain, quelle annonce, quelle M
-promesse, quelle anticipation, 4
 
 Le bruit des lourds canons roulant vers Austerlitz, 4
 
-F.
 ou quel ressouvenir des beaux poèmes à venir; quelle M
 remontée, du futur; ouvrier avant tout, en ce sens, M
 ouvrier de l'écriture en vers, il a eu sa récompense
@@ -2183,12 +1829,6 @@ nous avons gardée de ces poèmes définitifs, et qui s'est” K
 imposée, qui s'impose à nous aujourd'hui, qui nous .
 
 4 64 1
-
-À
-
-h,
-
-4 NOTRE PATRIE ;
 
 : commande aujourd'hui, qui nous commandera toujours,
 
@@ -2221,10 +1861,6 @@ fs le poursuivit; et elle ne le quitta point pendant son
 
 be n'a que faire, est pour moi l'indice d'une incontestable
 
-‘A hantise.
-
-ke
-
 1 Juin 1839. — Il y avait déjà une ode à la colonne de
 
 Ni la place Vendôme, parva magnis. livre III, ode septième,
@@ -2248,18 +1884,14 @@ ai Nous froissons dans nos mains, hélas! inoccupées,
 ; tout cela est passé... mon enfance n'est plus; elle est
 
 | 65 4.
-d
 
-Charles Péguy D
 morte, pour ainsi dire, quoique je vive encore. SAINT
-AuGusTiN, Confessions. Livre V. Ode neuvième; 1; 1823: x.
 
 J'ai des rêves de guerre en mon âme inquiète; 4
 J'aurais été soldat, si je n'étais poète. .
 Ne vous étonnez point que j'aime les guerriers !
 Souvent, pleurant sur eux, dans ma douleur muette, !
 J'ai trouvé leur cyprès plus beau que nos lauriers. É-
-L'
 Enfant, sur un tambour ma crèche fut posée. LE
 Dans un casque pour moi l'eau sainte fut puisée. 1
 Un soldat, m''ombrageant d'un belliqueux faisceau, 1
@@ -2281,14 +1913,10 @@ Et le panache blanc des agiles lanciers, ;
 Et les dragons, mêlant sur leur casque gépide 40
 Le poil taché du tigre aux crins noirs des coursiers. }
 
-1 NOTRE PATRIE |
-gi
-‘#
 À Et j'accusais mon âge : — « Ah! dans une ombre obscure,
 * « Grandir, vivre! laisser refroidir sans murmure
 % « Tout ce sang jeune et pur, bouillant chez mes pareils,
 É « Qui dans un noir combat, sur l'acier d'une armure,
-U « Coulerait à flots si vermeils! »
 J À Et j'nvoquais la guerre, aux scènes effrayantes;
 4 Je voyais, en espoir, dans les plaines bruyantes,
 ‘à Avec mille rumeurs d'hommes et de chevaux,
@@ -2299,22 +1927,16 @@ if L'un sur l'autre à grands cris fondre deux camps rivaux.
 Et, de monceaux de morts semant leurs pas sanglants,
 à Je voyais se heurter, au loin, par intervalles,
 4 î Les escadrons étincelants!
-Il
 h Avec nos camps vainqueurs, dans l'Europe asservie
 4 J'errai, je parcourus la terre avant la vie;
 4 Et, tout enfant encor,.…
-Si
 D! Là, je voyais les feux des haltes militaires
 \ Noircir les murs croulants des villes solitaires;
 à La tente, de l'église envahissait le seuil;
 D Les rires des soldats, dans les saints monastères,
 ! Par l'écho répétés, semblaient des cris de deuil.
-À Quelle peine, hein; quels travaux ; quel travail; quels
 { grincements de lime; quelle recherche des mots, qui ne
-L 67
-k
 
-Charles Péguy E
 viennent pas, de tous les mots, des épithètes, qui man- 4
 quent, qui ratent immanquablement. Sacristie et méta- 1
 phore. Comme tout cela était moisi, pourri de littérature. 1823, il avait vingt-et-un ans. Il a gagné, depuis. À
@@ -2341,17 +1963,11 @@ Déjà Napoléon perçait sous Bonaparte, %
 Et du premier consul déjà, par maint endroit, À
 Le front de l'empereur brisait le masque étroit. À
 Alors dans Besancon... 4
-CF
 Juin 1830.Et Chants du Crépuscule, V, Napoléon II, x: n,
 
 Mil huit cent onze! —Otempsoù des peuplessansnombre
 68 1
-n
 
-Ne CU) AN PAR ENERGIE RAPAOS, PAPAERAEA D.
-
-7” NOTRE PATRIE
-ÿ I,
 . Ce que son œil cherchait dans le passé profond,
 ke Ce n'était pas Madrid, le Kremlin et le Phare,
 ÿ La diane au matin fredonnant sa fanfare,
@@ -2361,15 +1977,12 @@ D Le bivac sommeillant dans les feux étoilés,
 4 Et les rouges lanciers fourmillant dans les piques,
 il Comme des fleurs de pourpre en l'épaisseur des blés; »
 
-24 A x A . « Vase
 1 Août 1832. — Ce poème réussi, ce poëme sal dans
 #4 cette strophe, et sous un revêtement de tristesse, sontRe ce là des vers pacifiques. Et ce poème où lui-même il a
 à { ramassé, dès les Orientales, dès 1828, tout son ensemble
 4 de Napoléon; Lui.
 
-Ê En épigraphe :
 à J'étais géant alors, et haut de cent coudées.
-‘4 BUONAPARTE
 
 4 ,
 
@@ -2378,20 +1991,14 @@ il Comme des fleurs de pourpre en l'épaisseur des blés; »
 154 Il verse à mon esprit le souflle créateur.
 [he Je tremble, et dans ma bouche abondent les paroles
 
-M se » z
 11 uand son nom gigantesque, entouré d'auréoles,
 ta o D
 tr Se dresse dans mon vers de toute sa hauteur.
 À Là, je le vois, guidant l'obus aux bons rapides ;
 
-Hi
 LA Là, massacrant le peuple au nom des régicides ;
 |
 
-; +
-Charles Péguy FL?
-: f
-Là, soldat, aux tribuns arrachant leurs pouvoirs ;
 Là, consul jeune et fier, amaigri par des veilles
 Que des rêves d'empire emplissaient de merveilles,
 Pâle sous ses longs cheveux noirs. j
@@ -2420,11 +2027,8 @@ Il évoque à sa mort sa vieille armée en deuil, à
 Se plaint à ses guerriers d'expirer solitaire,
 Et, prenant pour linceul son manteau militaire, à
 Du lit de camp passe au cercueil ! °
-70 $
 
 Lie nt Cet RES ne
-210 NOTRE PATRIE
-Il ;
 
 4 A Rome, où du sénat hérite le conclave, :
 4 A l'Elbe, aux monts blanchis de neige ou noirs delave,
@@ -2434,7 +2038,6 @@ Il ;
 , Son astre impérial se lève à lorient.
 1 Vainqueur, enthousiaste, éclatant de prestiges,
 À Prodige, il étonna la terre des prodiges.
-N
 * Les vieux scheïiks vénéraient l'émir jeune et prudent;
 3 Le peuple redoutait ses armes inouïes ;
 \ Sublime, il apparut aux tribus éblouies
@@ -2455,12 +2058,8 @@ hi: Lè, son ombre, éveillant le sépulcre sonore,
 He: Comme pour la bataille y ressuscite encore
 À Les quarante siècles géants. :
 
-‘1
-
-Charles Péguy 4
 Il dit : « Debout ! » Soudain chaque siècle se lève, À
 Ceux-ci portant le sceptre et ceux-là ceints du glaïive, )
-Satrapes, pharaons, mages, peuple glacé.
 Immobiles, poudreux, muets, sa voix les compte; |
 Tous semblent, adorant son front qui les surmonte,
 Faire à ce roi des temps une cour du passé. î
@@ -2470,7 +2069,6 @@ Mais qu'importe qu'Assur de ses flots soit couvert, î
 Que l'Aquilon sans cesse y fatigue son aile ? Ë
 Soz pied colossal laisse une trace éternelle ;
 Sur le front mouvant du désert. ï
-ll ‘
 Histoire, poésie, il joint du pied vos cimes. ÿ
 Éperdu, je ne puis dans ces mondes sublimes ;
 Remuer rien de grand sans toucher à son nom; À
@@ -2486,7 +2084,6 @@ Sur le seuil du siècle est debout.
 Ainsi quand du Vésuve explorant le domaine, :
 De Naple à Portici l'étranger se promène, 1
 
-NOTRE PATRIE
 Lorsqu'il trouble, rêveur, de ses pas importuns,
 Ischia, de ses fleurs embaumant l'onde heureuse,
 Dont le bruit, comme un chant de sultane amoureuse,
@@ -2497,7 +2094,6 @@ Chantant la tarentelle au pied d'un mur toscan ;
 3 Qu'il éveille en passant cette cité momie,
 Pompéi, corps gisant d'une ville endormie,
 d Saisie un jour par le volcan;
-:
 Ë Qu'il erre au Pausilippe avec la barque agile
 è D'où le brun marinier chante Tasse à Virgile;
 Toujours, sous l'arbre vert, sur les lits de gazon,
@@ -2514,9 +2110,7 @@ Du haut des caps, du bord des presqu'îles fleuries,
 du mot Bonaparte, surtout si vous l'écrivez Buonaparte et si vous le prononcez Bouonaparté. Un Filolog
 + découvrirait certainement les lois de cette altération.
 “ Avant de nous rasseoir pour dépouiller le courrier de
-4 » 73 5
 
-Charles Péguy »
 ce jour, écoutons la prière à Bounaberdi; grand comme |
 le monde : \
 
@@ -2539,7 +2133,6 @@ Croit que c'est une armée, invisible et sans nombre, 3
 Qui fait ceite poussière et ce bruit pour son ombre, |
 Et sous l'horizon gris passe éternellement!
 
-PRIÈRE |
 Oh ! quand tu reviendras rêver sur la montagne, 4
 Bounaberdi! regarde un peu dans la campagne 4
 Ma tente qui blanchit dans les sables grondants ;
@@ -2554,7 +2147,6 @@ même à mes amis, et qui me vaudrait les compliments
 de mes camarades; un bon cahier de récapitulation;
 sans aucune idée maîtresse: des faits, rien que des
 faits; des événements bien égalisés, soigneusement
-passés au rouleau ; énumération ; échelonnement ; rien
 de plus ; l'idéalisme historique y recevrait une adoration discrète, parce que nous devons révérer les anciens
 dieux ; le matérialisme historique y recevrait un hommage plus marqué, parce que nous devons nous ménager les dieux nouveaux ; l'une et l'autre adoration pourtant seraient habilement combinées, dosées, parce que
 l'on ne sait jamais qui sera le dieu de demain; et ni
@@ -2575,9 +2167,7 @@ le voyage du roi d'Espagne avait lui aussi duré une se-
 …_ que cette semaine avait été la semaine du roi d'Es-
 … pagne, qu'elle était finie, qu'il ne s'agissait plus d'en
 | 75
-L.
 
-Charles Péguy 4
 parler, qu'on avait autre chose à faire ; cette semaine
 elle-même avait fini mal ; un attentat, le plus stupide et %
 le plus criminel des attentats, rompant la sécurité uni- :
@@ -2609,10 +2199,7 @@ au programme ; et tout le monde est officiellement forcé *
 de faire comme si elle ne s'y était pas inscrite; ces
 äeux premières bombes pouvaient en introduire d'autres ; on savait qu'il y en avait d'autres on ne savait où; 3h
 et pourtant il fallait continuer les fêtes, suivre le pro- :
-76 À
 
-2 bé AU ASE A 1515 A EPRMRE z 3 ". 1
-3 NOTRE PATRIE
 gramme exactement comme si de rien n'était; sous
 4 peine d'hésitation, de panique, d'affolement, d'officielle
 s lâcheté; ainsi les deux souverains devaient continuer
@@ -2646,7 +2233,6 @@ e _ grave, il avait rompu la trêve; il faut redire le mot, il
 4 enchantement, que c'était lui, l'attentat, qui était réel, et
 #3 37
 
-Charles Péguy À
 que c'étaient les fêtes qui étaient imaginaires, feintes, que É
 l'enchaînement de cette année pénible n'avait point été ;
 brisé, que la semaine qui allait recommencer ressemble- ;
@@ -2667,15 +2253,11 @@ point de notre domaine, car aussitôt, immédiatement, 3
 tout le monde avait senti que nous avions un domaine, k
 où nous étions responsables ; comme on attendait que
 ‘tout fût éloigné, le roi, la menace, le malheur, le perpé- 4
-tuel embêtement.
 Il fallut revenir à Paris afin de recommencer la semaine; une ancienne chanson française, que nul aujour- |
 d'hui ne sait plus, qui ferait le désespoir de nos modernes |
 antialcoolistes, elle-même commence par les enseignements suivants : à
 à Commençons la semaine - ee
 En buvant du bon vin;
-78 ;
-
-Ë NOTRE PATRIE
 
 à. Ces vieux enseignements sont à jamais perdus; nous
 
@@ -2712,7 +2294,6 @@ mentir ; ayant à parler d'un événement aussi capital,
 j'emprunterais le langage noble, le grand style, je
 m'exciterais; mais nous nous sommes précisément
 institués pour donner, autant que nous le pourrions, des
-notations exactes, scrupuleuses, patientes.
 
 Nous étions donc venus à Paris débarrassés tout de
 
@@ -2721,9 +2302,7 @@ bon état; c'était un gros souci de moins; il ne restait
 plus qu'un monde connu, le monde exploré des soucis
 
 #4 a
-Charles Péguy - F4
 quotidiens, le moride ennemi et parent des soucis fami- |
-liers. 2
 
 Comment en l'espace d'un matin tout le monde,
 j'entends tout le monde ainsi dénombré, sut que la 3
@@ -2743,7 +2322,6 @@ tous les honnêtes gens et les-simples citoyens, beaucoup $
 de soucis personnels; on ne peut pas penser toujours J
 aux révolutions de Babylone: il faut vivre honnêtement
 la vie de tous les jours; elle est grise et tissée de fils 1
-communs.
 
 La vie de celui qui ne veut pas dominer est générale- |
 ment de la toile bise. |
@@ -2751,7 +2329,6 @@ ment de la toile bise. |
 Tout le monde, ainsi compté, tout le monde en même
 temps connut que la menace d'une invasion allemande
 est présente, qu'elle était là, que l'imminence était ;
-réelle. ;
 
 Ce n'était pas une nouvelle qui se communiquât de 5
 bouche en bouche, que l'on se communiquât, latéralement, comme les nouvelles ordinaires; ce que les gens |
@@ -2759,10 +2336,7 @@ qui se rencontraient se communiquaient, ce n'était pas
 la nouvelle, ce n'était que la confirmation, pour chacun #4
 d'eux, d'une nouvelle venue de l'intérieur; la connais- È
 
-È
-
 |
-L NOTRE PATRIE
 : sance de cette réalité se répandait bien de proche en
 proche; mais elle se répandaït de l'un à l'autre comme
 une contagion de vie intérieure, de connaissance inté-
@@ -2771,7 +2345,6 @@ une contagion de vie intérieure, de connaissance inté-
 | communication verbale ordinaire; en réalité c'était en
 lui-même que chacun de nous trouvait, recevait, retrouvait la connaissance totale, immédiate, prête, sourde,
 immobile et toute faite de la menace qui était pré-
-; sente.
 L'élargissement, l'épanouissement de cette connaissance qui gagnait de proche en proche n'était point le
 disséminement poussiéreux discontinu des nouvelles
 | ordinaires par communications verbales; c'était plutôt
@@ -2783,40 +2356,14 @@ une commune reconnaissance intérieure, une connais-
 + nance profonde, cette voix qui n'était pas une voix du
 dehors, cette voix de mémoire engloutie là et comme
 É amoncelée on ne savait depuis quand ni pour quoi.
-L
-1 CHARLES PÉGUY
-y
-à
-=
 de.
 
 = ne Ci le NT 2 FU RER
 PTE NT Le DE OUT OT ET (Mel CR PO API
 
-RE 22 FL LAN A NC STAR GER PEN PE M ere FRE
-PVR nee LR ES FLO IN USSR
-7 Va < " 1 PE De
-ER / : LFP
-De: Po .
-
-“4 2 > VE 3 Pl L'aTRE :
-Le G LUI
-25 TR ARR
-FE = RAT -
-LE: LEE : ? FT T5
-ee, - “ > 2 2, RES
-DH EE CNE
-nr EUR :
 LE - : re LRU ST SNINRRS
-RE VAE
-ye =: $ DR AU
-A 6 4 17 + US Re
-x ES
 
 LATE Er ni) ms HA 14) ri TNA
-À TABLE DE CE CAHIER
-
-3 ; PAGES
 
 # Notre catalogue analytique sommaire, notre petit :
 ) index alphabétique provisoire du catalogue analy- :
@@ -2827,59 +2374,24 @@ LATE Er ni) ms HA 14) ri TNA
 
 à CxHarLes Péeuy. — Notre patrie.............. 7
 Wet Habiede ce Cahier. 22. Net er ee 83
-È IVG CHILERS SONEAILES NE ADN Re rose 85
 
 k Nous avons donné le bon à tirer après corrections
 
 sl pour deux mille exemplaires de ce troisième cahier le
 
-& mardi 17 octobre 1905.
-
 é: * Le gérant : CHARLES PÉGUY
 
 1 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-; Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 463
-
-*
-
-à 0]
-
-bs
-
-TER A EP CS De Ps CON CODE MECS ES
 SR CLR TE TS - NE RE ps PEN wi CE |
-REA LT DE RES Sa PONTS TPE ER EURE k |
-; “= ‘ A ne l
-+ L'FS
-
-è EE 21
-
-< É À SALE
-Fa BR ñ
-ee .- |
-RTS (|
-£ Re: !
-+ TT 2 |
-
-&
 
 7 720
-CRE. :
 
-* + Æ #4
-
-1 « SR
-LS 7 |
-‘2< ACCÈS :
-
-Fa :
 # ‘at , ;
 “à GAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 8 rez-de-chaussée, Paris, cinquième arrondissement.
 És. Nos Cahiers sont édités par des souscriptions menEE suelles régulières et par des souscriptions extraordii naires ; la souscription ne confère aucune autorité sur
 ; la rédaction ni sur l'administration ; ces fonctions
-‘% demeurent libres.
 à Nos Cahiers paraissent par séries; une série paraît
 2 dans le temps d'une année scolaire, d'une année
 Fi ouvrière, d'octobre-novembre à juin-juillet ; l'abonnen ment se prend pour une série.
@@ -2888,8 +2400,6 @@ ne On peut souscrire cet abonnement à tout moment de
 3 valable pour la série en cours, et pour toute cette série.
 4 Prix de l'abonnement, pour chaque série annuelle
 n pendant le cours de cette série :
-EL. / Paris, départements, Alsace-Lorraine,
-54 Abonnement ordi- \ Algérie, Tunisie.... vingt francs
 ‘4 HAE / Autres pays de l'Union postale uni-
 | ‘ verselle....... vingt-cinq francs
 4 Abonnement sur whatman... cent francs pour tous pays
@@ -2904,34 +2414,6 @@ L28 dans l'ordre de l'arrivée, les numéros les plus bas venant
 ti naturellement aux premières inscriptions; c'est ce nuDe. méro d'inscription qui deviendra automatiquement le
 : numéro du tirage réservé à chacun des souscripteurs ;
 mn: lédition sur whatman sera strictement limitée au
-pe nombre d'exemplaires souscrit à chaque instant.
-
-E TS NRA Pol ee * sen MAR PRE ré
-DES OP TC USE PES RÉ Ur Se D VOS MOTTE Ê
-= 1 ES TER VEURRRERSSSES
-
-: TRS
-Dr |
-
-Œ PA s S TH
-Fi FETE |
-k . 7 |
-À LEUR i
-F4 E |
-LR |
-"LT |
-À Er: |
-
-É 2 5
-2 |
-U D |
-
-1 ES
-
-vo +: 2JUIR
-: Lies |
-: UC |
-22% +2 < :
 
 4 Pour tout changement d'adresse envoyer soixante
 centimes, quatre timbres de quinse centimes.
@@ -2959,4 +2441,3 @@ De. A partir du premier janvier qui suit l'achèvement
 ‘à au total des prix marqués; ainsi à dater du premier
 …._ janvier 1906 la sixième série complète, s'il en reste
 4 encore à cette date, se vendra soixante-treize francs.
-%

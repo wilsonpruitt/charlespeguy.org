@@ -7,14 +7,12 @@ author: leon-tolstoi
 isAvertissement: false
 wordCount: 8386
 ---
-
 Vient de paraître à la Société Nouvelle delibrairieet
 _ d'édition, dans la Bibliothèque Socialiste, numéro 11,
 36 “ à en vente à la librairie des cahiers : TT
 $ a x Wiczram Morris. — Nouvelles de nullepart.(News F é v.
 _ from nowhere) — Extraits traduits par P. La Chesnais. £ Le.
 I. une brochure o france 50 RE
-É. a Franco à domicile 0 franc 6o 6
 7 La deuxième partie de ces extraits sera le numéro 12 PSS
 # de la Pibliothèque. 1e
 35 Édité par la Société Nouvelle de librairie et d'édition,
@@ -33,7 +31,6 @@ Na Le tome III est sous presse.
 di: Mêmes éditeurs, en vente à la librairie des cahiers : “1 fa
 ; Cu.-V. LaxGLois. — L'Inquisition, d'après des tra- FC
 vaux récents, un volume in-18 de 144 pages 1frane Ne:
-: # +0
 Le Vient de paraitre chez Alcan, dans la Bibliothèque ; ER
 a générale des Sciences sociales. en vente à la librairie à
 : des cahiers : 400
@@ -45,12 +42,10 @@ He de 276 pages, cartonné à l'anglaise 6 francs ”
 - Vient de paraître chez Schleicher, en vente àla
 librairie des cahiers : Ÿ j
 FERNAND PELLOUTIER. — Histoire des Bourses du
-Travail, origine — institutions — avenir, ouvrage y
 ; posthume. Fernand Pelloutier était secrétaire général
 de la Fédération des Bourses du Travail de France et
 des colonies. Préface par Georges Sorel. Notice biogra- e
 phique par Victor Dave. Un volume de 232 pages
-3 francs 50 ,
 Ceux de nos abonnés qui travaillent aux sciences ou
 à la philosophie liront utilement dans la Revue géné-
 ; rale des Sciences" pures et appliquées, numéro du
@@ -62,7 +57,6 @@ est, en partie, le résumé d'un travail plus étendu :
 1902. La Revue générale des Sciences vaut 1 franc
 le numéro. ‘
 Nous mettons ce cahier dans le commerce; nous le
-vendons deux francs.
 Pour la propagande nous en vendons
 six exemplaires pour neuf francs
 douze exemplaires pour seise francs
@@ -75,47 +69,17 @@ Pour savoir ce que sont les Cahiers de la Quinzaine, “+
 six cahiers de la deuxième et de la troisième série. 4 il
 | Nous avons donné le bon à tirer après corrections
 pour quatre mille exemplaires de ce huitième cahier le
-jeudi 13 février 1902. té
-De »,
 
-PET 4 D EE
 due CAHIER DE LA RE SÉRIE
-ToLsToi
-
-UNE LETTRE INÉDIT]
-
-CAHIERS DE LA QUINZAINE
 
 } paraissant vingt fois par an
 
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-, PE s 1 Hs
 | c A C7 LE Pr
-L'HSCRMRNCEPE.
 ne Le ? aa
-ee "2" NE
-“4 2 n, Er de Le sd
-+ ” 0] TR fé De,
-js + AR
-MR 4 ER
-af 7 È 3 4 n.
-d L ‘4 4 .
-1 : AE a RL
-BA 4 “es
-RE Te LA ANTTTOR
-er hr ki é is ER
 
-- L se .
-: h +. ne” Le
-+ . + és Re.
 à Les
-F8 Sr Due ï
-TT y PAPE
-AS 106
-
-Eu, Paris, samedi 22 février 1902 cs
 
 Ÿ Les dépêches, pour la seconde fois, nous rassurent
 
@@ -149,9 +113,7 @@ $ grands ennemis que le troupeau des snobs tolstoïsants.
 } Mais si ce grand chrétien était né parmi nous, il n'aurait À
 _ pas de plus grands ennemis, de détracteurs plus achar-
 
-Charles Péguy
 __ nés, d'envieux plus mangeurs que la foule de nos
-démagogues anticléricaux.
 Il est permis d'être antichrétien, et je crois bien qu'en
 : un sens nous sommes inchréliens. Mais c'est par un
 singulier malentendu, criminel s'il est volontaire, et
@@ -173,7 +135,6 @@ parmi les envies et la jalousie envieuse la présence
 encombrante, la présence réelle de sa paix réelle, de sa À
 paix morale, de sa paix avertie, de sa paix première, n
 : antérieure, savante et naïve, désabusée mais pleine et
-grosse d'espoir, si Tolstoi vivait à Paris, allait se pro- æ
 mener au Luxembourg, avait affaire à la Chambre et L:
 \ au Sénat, comme il aurait affaire à Antoine et à ‘4
 * Mounet-Sully, d'abord nous saurions ce qu'est un
@@ -181,8 +142,6 @@ chrétien véritable, et nous saurions que c'est beaucoup
 “plus fort que monseigneur l'archevêque de Paris, et
 nous saurions que ça ne se mange pas aussi facilement
 
-A vé É n ÿ mi Frs Nature RE vs à Cu en » te MCE ee. | se FR LU RUE
-Me AVERTISSEMENT
 PA dans les banquets gras des vendredis redevenus saints,
 _ mais i n'aurait pas d'ennemis plus ennemis que ceux
 1e de nos Français qui se réclament le plus de lui, pour
@@ -211,10 +170,8 @@ et des armes, contradictoires, M. Gohier, dans sa précipitation fiévreuse, a d
 situation intenable. C'est un maniaque, nous dit-il, un
 maniaque religieux. Il croit en Dieu, au Dieu chrétien.
 A part cela, ses arguments sont fort bons, et je m'en
-sers.
 | Mais on ne peut pas ainsi décortiquer un homme. On
 
-; Charles Péguy = Dia
 # . % À
 | n'a pas le droit de le désosser. Toute la morale et tout *
 le progrès des sciences naturelles va contre un tel jeu
@@ -241,71 +198,14 @@ le melleur, de la charité chrétienne où de la solidarité -
 À moderne, celle donc qui vaudra le mieux, sera celle N.
 « aussi qui vaudra le plus. h
 
-4 \ Charles Péguy À
-[E CES
-
-_ » dit JU Le Es à À : PAUL Cd US
-1 4 SR ; £ : TRS «
-AL ad EE PR.
-5 CNRS 4 * pad, + OPEN
-% Fee Se 5%
-2 ‘ 2,704
 #0 “A
-“ RS s . “ERRTES
-LORS + # "a
-LENS RTS , ‘
-Ye OPA ‘tre tr "à
-Re. FN TER k
-r LE 4 INTRODUCTION BASE
-LL STONES : De
 pa” VERS : EECE
-15100 LUXE — ès
 DT LES rl
-M Jen ‘ HE
-we, Ge: 3 pain F |
-FA En *
-ir - Dean be PE
-RU + “ à s Fe
-+ TON 2PEN i
-14 + Yes sx" L A ( E 1 * Fe 1e
-1 5 ONE ; ï #:
-MESSE LA ET
 
-TRES y, à Lee LCR r:
-RE > 13 NAT vies
-DA) j ET
-tal "2 MERS Rs Le
-SPP l £ CRE 'E
-LOC r CARTER
-: fi 7 3 LR
-me 0 L # é
-Fi à er NA
 | 21608 5: Se
-Le 14 TE
-4 s CAL CAN
-; L3 ei
-DT è ! 4 À
-1150-00 " | FR
-x RE) Y Su + L+72 “6
-LE è + PCR -
-er F nn Er ot
-A |; à Fu
-ra STAR J ' ; TE
-D 3 + "à
-AU - : + s
-ENT + ñ à ë Re #Y;
-. PRET RE " LAC CE À 1!
-: ve 4 “ té
-FL - À 5 l EN:
-Mg us + (RSR
 PRAN ' > 10 je cl KR: Ch f
-ÉTÉ 1 0 ONF
 |, RP EEME Ê ne 4 1e ny
 FRE pet L RAR
-* ARMES à ,
-RU: S LA $
-NS HET ; je CRE \ 2.
-‘18 100 ip) PO NET à 4 TT le
 
 = LORS RE past RES De à
 # (# 5h g - re
@@ -335,7 +235,6 @@ qu'avec aucune des grandes œuvres françaises. La :
 l'enfance, je me nourrissais d'art, surtout de musique ; £
 k je n'aurais pu m'en passer ; je puis dire que la musique Î
 . me semblait un aliment aussi indispensable à ma vie .
-Di. ‘LES
 
 Romain Rolland Se
 que le pain. — Aussi, combien fus-je troublé, en lisant
@@ -371,7 +270,6 @@ familière : il n'écrit point, il cause.
 d'hui, — bien plus encore qu'au moment où je reçus je
 | cetie lettre, — pleinement d'accord avec sa pensée. Si je
 regrette que Tolstoy se soit trompé souvent dans l'appréciation de tel ou tel grand homme, comme Beethoven
-onu INTRODUCTION
 
 Es ou Wagner, qu'il a eu le tort de juger sans les connai-
 
@@ -440,17 +338,12 @@ artistes de faire leur art par surcroît ; mais elle suffirait nn !
 | à enlever aux faux artistes tout désir de prendre su
 leurs heures de loisir pour se livrer à une occupation i
 intellectuelle. — Et combien l'art y gagnerait en
-santé ! $
 
 \ Goethe a dit quelque part: « À force d'écrire ou de lire des livres, on devient soi-même un livre. » — Le ®#
 caractère factice, morbide, étiolé de notre art d'aujourd'hui vient de ce qu'il n'a plus de racines dans la
 vie de la terre ; il n'est plus l'œuvre d'hommes vivants,
 mais de fantômes d'hommes, d'ombres d'êtres, de
 larves, nourries de mots, de couleurs de tableaux, de
-
-4% 10 î
-
-LAS INTRODUCTION
 
 F4 sons d'instruments de musique, d'extraits de sensa-
 | tions.— Combien de vrais artistes ont dû déjà, doivent
@@ -492,43 +385,10 @@ civilisations, entassés sur la vie? Qui nous en débar4 rassera ?
 vivre de manière à faire le moins de mal possible et Le
 ge plus de bien possible. Le premier art du monde est l'art
 de savoir éviter le mal et de produire le bien avec le
-moins d'efforts possible. »
 | Roma Rozranp ts EE ot RER 2 CAN EE ou he À PT
-j; ROM ere tr és + ASE: REA
 f Ai 4 ENTER OR ee DS rR tar vas On
-RO RES
-in en # RE LT e
-1 A x 1 ÿ TC & LES
-Hs ARE F4 us we
-LTSE % i he
-j fi Æ 1e SÉHTTVER
-ME © 2 RAR
-rfi '& - 4 Es 1 VITE
-LU : + JRUNITEES r
-4e TT J : Picrat
-t 4 LA É PATES.
-: NOR EUR ! RU ,
-Æ PS 3 > Se
-OMS: € 1 4 1 8 OL NES
-EYE fe ÿ ia
-PE : É FE ASE
-y L ES d Ki NS
-ne: x AT 4 " F. tx
-7e ECM À ARAUN CE À
-RE: A:
-Hal à Let
-EE ROBE VERRE
-Rec RO dat LEA
-ab 1h SN) DEL
-SANTE ; LH. Los
-20 À = L 4 ri: RCE
-cHNeS RES É CÉTTIVI
 et | nt
-RER { RE, .
-à A 4 HE
-: OF Ÿ PRESS | A
 M Le à PAR dal ti
-; * A dei
 
 Nous avons conservé scrupuleusement l'orthographe
 de la lettre, écrite en français par Tolstoy. J'espère
@@ -542,62 +402,12 @@ l'écrivit, aussi vive qu'au premier jour, ma reconnaissance de tout cœur pour 
 Romain Rolland fl
 
 Re se Ét PRE à 1$ ED MIE MEAleS Les à # Ÿ, Bet né NP
-NE FE à 4 ASS LS
-Ù : CREME KL: Ke
-A en 0) UN | x * var. TEA F
-710 tre ‘fi
-NS à A y
-he ; HE Vis: FES 207
-FRE A LA n $ 1} ATEN CE
-3 FUMER Ne | { LP
-HEAR ETAT RE i < L Ar
-T0 8 SU RON de
 LES HAN À rt
 PR US nl L"ds
-RUE CE > LEA LP
-LTÉE NON Ù | 4 x MA
-NT HU td 2 3 LC Ê 1 A
-M Lu. NN:
 
 HE /n UN hd vd
-PPT, nsc red y PE
-M > + ‘: tabl es
-1 F- à MI 6 a x“ (4
-DE (ER PE)
-AN DES 3, Ne "1
-458 | ) MTS EN (1 ut
 ‘F2 L t4 nl C'te pe Me L.
-1 hi . : dx Met M.
-Nol ' k £ LEE "e a Re.
-AE) Î D ss U'CER A4 L'
-L Ê . y, FO CNEN
-‘Fe x à ESA der.
-+ $ RAR.
-RE : d a SRE MORE
-D J 1% 2 " Le
-PT) LTre e SEA dre A4
-2" » * LAPANTE SEE .
-ét MORT PRE M
-NE N RON RATES
-L: g + : de nt à ES
-et : \ RES 14) 4 LA he El »
-a AREAS
-ki LS
-- "2 \ . ni me k M
-Di } d'} AR “Li NANTES
-RS ROUE TT ANNE
-j : F, : MS PORT 54 "
-nn: 1 VOETE, ANSE
-\# LUE ‘AE IN AR HEAR
-404 à i 2 À, ARMES Pl LE
-D'u we “07 sh. 0 à ‘
-Rx + à Ra 0? SA 1 A
 en L H | A at | ES EUR
-DRE 7 . +5. 10 \ \ gr
-
-NA "D *E RES #72 er Le - Ÿ met + 1 FES à
-
-4 octobre 1883
 
 A monsieur Romain Rolland
 Cher frère!
@@ -617,9 +427,6 @@ sciences et des arts qui vous paraissent incompatibles avec le travail manuel?
 
 A ces questions j'ai répondu comme je l'ai pu
 
-\ C À
-
-Tolstoy
 dans le livre intitulé Que faire ? qui, à ce qu'on
 m'a dit, a été traduit en français. Je n'ai jamais Ë
 envisagé le travail manuel comme un principe, !
@@ -648,11 +455,9 @@ commence par les soins de sa propre personne.
 Je ne croirai jamais à la sincérité des convictions
 chrétiennes, philosophiques ou humanitaires, d'une
 personne qui fait vider son pot de chambre par une
-servante.
 
 La formule morale la plus simple et courte, c'est
 de se faire servir par les autres aussi peu que pos
-UNE LETTRE
 | sible, et de servir les autres autant que possible.
 D''exiger des autres le moins possible et de leur
 donner le plus possible.
@@ -675,10 +480,7 @@ scientifiques et artistiques le travail manuel : l'ouvrage que j'écris, pour le
 des imprimeurs; la symphonie que je compose, « pour laquelle j'ai besoin des musiciens; les expériences que je fais, pour lesquel j'ai besoin du
 travail de ceux qui fontles instruments de nos labo-
 | @) Raturé : « Et voilà l'avantage qu'a sûrement un homme æ
-j moral... »
 
-us AT TAA FR RAR RAR a.
-Tolstoy
 ratoires:; le tableau que je peins, pour lequel j'ai t
 besoin de ceux qui font les couleurs et la toile : —
 tous ces travaux peuvent être des choses utiles aux
@@ -705,7 +507,6 @@ noble de l'homme. À
 La vocation d'un prophète est une vocation haute
 et noble. Mais nous savons ce que sont les prêtres
 
-UNE LETTRE £
 qui se croient prophètes, uniquement parce que i;
 c'est leur avantage, et qu'ils ont la possibilité de se
 faire passer pour tels.
@@ -720,7 +521,6 @@ l'élève d'un Conservatoire, un étudiant, dont le seul
 devoir est d'étudier ce qu'on leur enseigne, ne sont
 même pas en état de faire preuve de leur vocation
 ils profitent simplement d'une position qui leur
-paraît avantageuse.
 Le travail manuel est un devoir et un bonheur
 pour tous; l'activité intellectuelle est une activité
 exceptionnelle, qui ne devient un devoiret un bonheur que pour ceux qui ont cette vocation. La vocation ne peut être connue et prouvée que par le
@@ -730,17 +530,14 @@ homme qui continue à remplir son devoir : celui
 de soutenir sa vie par le travail de ses mains,
 | et, malgré cela, prends sur les heures de son ‘
 
-Tolstoy
 repos et de son sommeil pour penser et produire …
 dans la sphère intellectuelle, fait preuve de sa voca- î
 tion. Celui qui se libère du devoir moral de chaque
 homme, et, sous le prétexte de son goût pour les
 sciences et les arts, s'arrange (1) une vie de parasite,
 ne produira jamais que de la fausse science et du
-faux art.
 Les produits de la vraie science et du vrai art
 sont les produits du sacrifice, mais pas de certains
-avantages matériels. É:
 
 Mais que deviennent les sciences et les arts?—
 Que de fois j'ai entendu cette question, faite par
@@ -755,8 +552,6 @@ Mais comment se trouve-t-il qu'il y ait des gens
 assez fous, pour contester l'utilité des scienceset
 des arts ? (2) Il y a des ouvriers manuels, des ouvriers agriculteurs. Personne ne s'est jamais avisé
 de contester leur utilité, — et jamais ouvrier ne se
-
-() Tolstoy a d'abord écrit : « s'arroge ».
 
 (2) Raturé : « Et des gens encore plus drôles, qui croient de leur
 devoir de les défendre. »
@@ -789,22 +584,16 @@ Le faux rôle que jouent dans notre société les
 | sciences et les arts provient de ce que les gens soi-
 | (1) Raturé : « Et ils se donnent toutes les peines du monde. »
 
-- 3 A Pi RS
-
-Tolstoy RE
-
 disant civilisés, ayant à leur tête les savants etles
 artistes, sont une caste privilégiée comme les
 prêtres. Et cette caste a tous les défauts de toutes
 les castes. Elle a le défaut de dégrader et de
 rabaisser le principe en vertu duquel elle s'organise.
 Au lieu d'une vraie religion, une fausse. Au lieu
-. : bn.
 d'une vraie science, une fausse. De même pour
 l'art. — Elle a le défaut de peser sur les masses, et
 par dessus cela, de les priver de ce qu'on (1)prétend ©
 propager. Et le plus grand défaut — celui de la
-“ sie ,:
 à contradiction consolante du principe qu'ils professent avec leur manière d'agir. £
 En exceptant ceux qui soutiennent le principe
 inepte de la science pour la science et de l'art pour
@@ -819,10 +608,8 @@ bien et du beau est impossible. (4) « Le bien en
 (1) Raturé : « de ce que ces prêtres prétendent ».
 J (2) Raturé : « sont indispensables parce qu'ils produisent le plus
 grand bien ».
-(3) « reconnaître »,
 {#4 Raturé : « anti-scientifique et anti-artistique ».
 
-EE UNE LETTRE
 _ défini. » Mais ils mentent. De tout temps, l'humanité n'a pas fait autre chose dans son progrès que
 de définir le bien et le beau. Mais cette définition t
 ne leur convient pas; elle démasque la futilité, si ce
@@ -850,7 +637,6 @@ certaines nations au détrimentdes autres. Si le bien
 avait été en effet le critérium de la science et des
 | _ arts, jamais les recherches des sciences positives,
 
-Tolstoy *
 complètement futiles par rapport au véritable bien
 | de l'humanité, n'auraient acquis l'importance
 qu'elles ont ; (1) ni surtout les produits de nos arts,
@@ -877,9 +663,7 @@ Ce qu'on appelle dans notre monde les sciences
 (1) Raturé : « cette importance qui n'a aucune explication ». *
 (2) Raturé : « bons pour émoustiller les vieux dépravés, et .
 pour, etc. ».
-26 F:
 
-UNE LETTRE
 grande superstition dans laquelle nous tombons
 ordinairement dès que nous nous affranchissons de
 la vieille superstition de l'Église. Pour voir clair la
@@ -901,14 +685,11 @@ superstition dans laquelle il se trouve, quoiqu'elle
 | lui soit avantageuse. C'est une condition sine qua
 non. Il est inutile de discuter avec un homme qui
 tient à une certaine croyance, ne fût-ce que sur un
-seul point.
 | Si le champ du raisonnement n'est pas complète-
 | ment libre, il aura beau discuter, il aura beau
 raisonner, il n'approchera pas d'un pas de la vérité.
 
 à x. EE CR ARDTINS 2 + 4 pus NÉ À vi L #" ns Ness L
-2 1 (e
-< Tolstoy FA NS
 Son point fixe arrêtera tous les raisonnements et
 les faussera tous. Il y a la foi religieuse, il y a la foi -%
 de notre civilisation. Elles sont tout à fait analo- FE
@@ -935,7 +716,6 @@ seule vraie religion (1) — la sienne; et il lui paraît
 : la civilisation : nous sommes pleinement convain-
 () Raturé : « qu'une seule vérité ».
 
-j > : UNE LETTRE
 cus qu'il n'existe qu'une seule vraie civilisation, —
 la nôtre (1); et il nous est presque impossible de
 
@@ -950,7 +730,6 @@ Pour connaître la vérité de la vie qui est telle-
 . ment simple, il ne faut pas quelque chose de positif
 — une philosophie, une science profonde; — il ne
 faut qu'une qualité négative : — ne pas avoir de
-superstition. À
 Il faut se mettre dans l'état d'un enfant, ou d'un
 Descartes, se dire : — Je ne sais rien, je ne crois
 rien, et je veux pas autre chose que connaître la
@@ -1033,69 +812,29 @@ se de l'histoire et par l'expérience personelle. Mais
 F plus libre, le plus heureux, est celui de l'abnégation
 val et de l'amour. La raison découvre à l'homme la
 \ seule voie du bonheur possible, etle sentiment l'y
-+30 pousse.
 36 Si les idées que je tâche de vous communiquer È
 X ne vous paraissent pas claires, ne les jugez pas trop +:
 “ sévèrement. J'espère que vous les lirez un jour k
 exposées d'une manière plus claire et précise. J'ai
 : voulu vous donner seulement une idée de ma ma- Fi
 je * nière de voir, \a
-Al Léon Tolstoy
 
 #0 Le
-(A tête
 
 HA ASC + ses » Le Eve
-+5 dE Riu 44 < 5 ,: 4 FL
-ACL Nes AC
-DR TA He
 Mes CHAR ne. L LIVES
-FINS 43 an | STE
 TU te x r Core H Ê 2 FE, TOR
 
-‘e » ÈS
-4e Fini d'imprimer quatre mille exemplaires
-4 3 . ” . 1," MP
 1e le mardi 25 février 1902 eu L
-1 15 ; ge
-ris ", : A
-" { . 7 Les. + }
-DR" " BOT
-+xcs - Ed 4 n'PE
-w a La
 Dee à l'Imprimerie de Suresnes Re
-10 (E. PAyEx, administrateur) SL:
-4 9, rue du Pont ; .
-ce #1
 
-‘A : NULS
-ue: + À Éd » (a À
-‘1 : MIT
-f ei < , Ed
-Ro CR
-ÿ # L Bi "NS A
-DM WT
 #4 tt ; f LE ER
-A FPE TX TENTE
-
-- " rex VEER Fate El #4) À nr 1 AR) "Tr MAP:
 
 Fr r ve #j JR À L dE : à * pes, TEE
-D 4 d J FORMES « FRS
-NET DRE * 2: 4 AVES SA
 À ES AE L pe
-LETTRES f no PAIE
-\ Pet A 4 L CAT
-RU FE TROIENUE
 
-TIRER isas 14 TUE " + Lhy ER
-
-Ÿ 42 " 1 ? (4 214
-
-His PNR LT PAU PRSMEMIRNEE
 Nous mettons ce cahier dans le commerce; nous le
 
-Ré N ”
 TRS vendons un franc. : ei
 | }'Nous avons eu par les soins de Léon Deshairs une #
 13 photographie de Tolstoi et Gorki se promenant ensemble .
@@ -1103,7 +842,3 @@ f à lasnaia Poliana. Cette photographie a été prise par
 HN une des filles de Tolstoi. Elle a été communiquée à
 124 Deshairs par le docteur Schlepianoff. Nous l'avons fait
 gi reproduire à trois cents exemplaires. Nous la vendons
-à deux francs. Re .
-Lux #:
-Lt x:
-i 4 “à

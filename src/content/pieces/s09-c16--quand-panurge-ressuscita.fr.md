@@ -7,95 +7,26 @@ author: pierre-mille
 isAvertissement: false
 wordCount: 36042
 ---
-
-€ SEIZIEME CAHIER DE LA NEUVIÈEME SERIE
-PIERRE MILLE
 quand Panurge ressuscita
-$
-Ro
 on.
-k” “
-PA À
-CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-è 7: CES Fe
-FN +
-RNA 20-48 Ê
-L 22060 Pb
-Tia Pr:
-
 Vi MTS se DS RAT Alt LE EE OST CI ei ER, A Toro
-PR On C4 LATE Te 4 Ge ie DT + 2 . AG æ
-ST RER * x: z - '
-REC: £ ' £ " x % 454
-LE ATÉEOURES : 4 TE É É
-STQË TE SRER NE |
-ME ue 74. Fes
-D 2: % SEA
-y FR + st Ai - É *
-4 PR -
-L ARE Kt + ES 3
-:.. CNNNSRSSS PS
-A EU : SRE
-LA, CETTE < F- ( NS ENLrP
 : LE NRENR ie ARR Le CUP QT
-VHS & : “ PR, don REC tee
-D A UE ass
-M NN, D Nr
-ER CO ES A EP MEN AN 0 |
 MR ls Lu, AN Sa SAS
 
-EUR NES Dis PPSO RTC SN RER VOOR VOTE à ARS EP ER CINE RCE RE {
-k PA Pr RD ON OU € DELSA AR SP PES TAN NES SSL ISERE
-DRE I TOO MUST AONS MO UE AO ARE RÉPOSES
-RO eh DER ST FN PE UPS ENS
-Xe É à TER 5
-TRE RE:
-7 ASE APRES ?
-CE J RASE
-na 15 21 PP OS METRE
 EU et PU
-; FT RER TERQURE ET
-à , SÉLTENTERE Rue ARS
 RE Res = RARE RS ne:
-LL AS RES
-L % ÿ NAT EPS ENEIE
-+ à LT EE EN F7 RAP TNA "
-ä ë . PATETEE Nés Su PRET A y LA 4 “
-2 ÉTÉ CHENE ETC PEACPN PASS PORTES 4
-PERS ; GT AS ATEN OPA CENTER ÿ |
-6] 3 k AA PRET) DT TRES F5
-GTR + FRS SANTA TE ER SE
-PCT OT < ! Ge . RES ARCS
 Eine de LE D ie FIERESREN :
-: AE An ON I À AI CNE ES |
 
 DA EN De eV VAN KE et AR NE
-en ARR AA CRAN PR wi fa Us MN EPA TE NA)
-
-; SAT A DOTE AA A UN AN AMIS DANCE RARES CA
-LA: LAND à Ex AA PE ANNEE AS LS ER OUR € HT PATENT AA REY
-He € Jane QU PRE PACE ANNE A LAN EVA NOUS AS ER 4
-VE SÉRIE X jt LIRENSIS DA NAME nn RS TE ANS NIFAL Ji ORNE AUS CRIME 1,530
-LA RAR. AT PEN Y FE CAM En RE ASE METRE
-RAR A EEE: © | a 4 Fe & EL CIMENEMEMRU
 
 5 US LS Ê Es CALE AE NI trmee
-INA TOR SPAS ANA NA A ED ETES
-STAR es ù Rp AS N UE AMEN ES NS DU) PARA NACRE
-SAR, AE ER SR LEA RME ATEN PE SR AU FAR % LAN APE Te
-RASE TS NA ‘  AAEUU 1 LL LS Aa RO RER N ENT TRES
 
 Le ne NA Ü dora x! RUE Ê KT NS MENT EE PH RE AE si
-RS AR El DE SR A NA DR PEL REZ CAE
 " SE: LAON ARTE Pr RES OIS ASE RE AAATINE er a CN Et LABS D HE AR Lee
 RAD NE LES à ATAES MULP QN vice Pr RAM HE iv Ne LEE Fa
-Re Ur tan A HU UReNE
-Matin NPA A A HA MERS LAVE RTE
-MARS à SAR AE ER AE RC A LE + :
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
@@ -114,9 +45,6 @@ ment; on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries. ;
 Ce catalogue a été justement établi pour donner, #
 autant qu'il se pouvait, une image en bref, un racéereie Fa
-3: px RDA CRETE
-
-AT L : |
 
 b : | une idée, abrégée, mais complète, de nos éditions anté-
 
@@ -135,48 +63,20 @@ s'abonnait rétrospectivement à la sixième série le rece-
 - vait, par le fait méme de son abonnement, en tête de la
 série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
-\
-Je « TRE MERE LUE RAT ARNO AR AU ARENE AE Te EN
 SUR NS Tan RÉ ic
 
-LEAVE At PA NAN) RÉ RNAE ORNE
-
-A LAS ENS ANS TI PA RO PS
-
-PO UD TS PET AE SR RC NC tire 19 PARA MC MRCTTARSS 8, .
-
-OT TN LARMES Kg FCFA À RE 1 :
-RAR Lt ed € 14 p SX A FLE Er EN DEAN
-PTS DATA Roue SR EPS SAT
 AR ae EL 2 LE vi FU CEE a
-JM ; HA Û 47 y 3 HAINE RQAE RSA Ne
-Hp A
-À Lt vi #4 FORTS Ti ES PAU 2 ANR : »
-M pe £ PR M LL
-F0 + 25 4 S PRO 2e <
 5 SE ‘ 1e CNET sf Ro Sur 4 À À
-re A PPE AR | \ j LEFT ae À
-7e #. a y ET (hd e Pr SLR PE C
 
 f his GLLTE, sn MAÉ 6 k stade NOR LE #
 
-à MT CAPES | AA Pr se Ver r PA NN CLTPRE À CUITE ENS ALT AGE RSS
-4 MAR de à 4 VE PL IE RE TNT
-
-Me, "42
-A. £ »
-A
-1 DU MEME AUTEUR
 aux Cahiers de la Quinzaine +
 À Le présent petit index donne automatiquement pour tout volume et pour tout
-cahier indiqué :
 
 a) le numéro d'ordre de ce cahier dans
 le classement général de nos collections
 
 . complètes, le numéro d'ordre de la série
-
-AE 4 étant naturellement composé en grandes
 
 capitales de romain et le numéro d'ordre
 
@@ -187,7 +87,6 @@ déterminée, en chiffres arabes, de sorte
 que V-r7 par exemple doit évidemment se
 
 f , lire dix-septième cahier de la cinquième
-série ;
 
 b) la date du bon à tirer, ou, à son dé-
 faut, la date du fini d'imprimer, ou, à son
@@ -197,47 +96,19 @@ c) le prix actuel;
 
 d) quand il y a lieu, c'est-à-dire pour nos
 éditions antérieures et pour nos cinq premières séries, la page du catalogue analytique sommaire où ce cahier se trouve
-catalogué.
 
 Pierre Mille, — l'enfer du Congo léopoldien (VU-6, mardi
-21 novembre 1905.................. trois francs cinquante
 — — les deux Congos devant la Belgique et devant la
 F France; le Congo léopoldien devant la Chambre belge
-$ (WIL-16, mardi 17 avril 1906.:................ deux francs
 >
-Die F
 .
 
-LCL RARE de É: "10
 # FEES 34 ETES FA ER An CARRE AI r 4 4
 RES de tea ee ar D RARE
-More REVUES PARCS HARAS EU TE HE RAT FES PURE D'ARRRE EE
-RENE à RUES VE one AUNE LT TEE LU
-LINE Ru CRE NT AMC TE UT" TS SE GT eC r NPADETE
 iv “REA TA à ic +? RÉ 4020 an LIRE te
-Le RES À
 VAE KE NE ca DÉS FR SKY VERT
 
-£ ; $ NX tr AS PR NEUTRE LA
-CT FIN P EN OUT TERRE Se SA ME NT
-SFR y ; #4 ÿ A Ed Fe ATEN
-p ; $ DRARETA Pen Ü SRE
-18 UE VAT CRE A. 4 x VO es 021
-+ JETTA DA
-NPD: ; * HRSEN ÉRETIA VX CA
-
-HET nl : D PRU : : ? (RO) NEVe Ne Ve USAAR
-
-ER : VE VRAI PRE AUS:
-:12 038 5 4 s HE PAR
-
-LT MRAENTIPERS dut : ART SE SR :
-
-AS lot L'AIDE At lsA LPS € CEE" 1-È
 à A VALTE TL TON CUT Pr di AINOETIE
-ENT HE
-
-4 DU MÊME AUTEUR
 
 | en vente à la librairie des cahiers
 PærRE Mie. — De Thessalie en Crète, — impresSions de campagne Avril-Mai 1897; — avec 16 gra-
@@ -246,7 +117,6 @@ S 1808; En Thessalie; de Nisch à Pharsale; de Pharsale
 à Domokos; le soldat turc; En Grèce et en Crète;
 Athènes; l''Hétairie ethnique; en Crète; les événements ;
 les insurgés ; les insurgés et les puissances ............
-trois francs cinquante
 PIERRE Mie. — Au Congo belge, — avec des notes
 et des documents récents relatifs au Congo français ; —
 Armand Colin et Ci: éditeurs, 1899; caractéristiques du
@@ -254,140 +124,51 @@ Congo Belge; le bas fleuve; de Matadi au StanleyPool; le chemin de fer; le syst�
 et son souverain; le Congo français; les sociétés dans
 les deux Congos; les points faibles du Congo léopoldien........................... trois francs cinquante
 
-\
-
-DT. UV
-PNA UE. f LS
-& SOA TS RCA DAT LE Fa »r
-ETAT VER SRE TEN Pts COUDE DORCANNT ho T RE 1 DATE
-24 HE LAS A LATE Jath ATEN TOUS à EM ÿ MAITRE |
-VAN PEU à ? i Ké4 JA ES PTE DES
-: LES à EN Er SAN AR CAO VS DAETE à TAN
-HD \ {ii 4 Se NAME RL HAE
-? 4 1 # LC RC T) ha” un | 4 87,
 à É É " on SCANS RCA SE PRPI
-2e f ; PP AE ÉRATER RCA ET QUAD r4 HA
-Br) | j \ | pare CFA RUES M :
-A D DOME RUN EE EE ea à AY AS 07:71 40 } ;
-PE AE AN EAU TS TE ZX LR 4 ei ONF
-I SCT ER TRS LA Un DO EMRERT SA ENENE 4
-LCR COR TE A ete LACET PNR ARE
 
-à |
-DU MÈME AUTEUR
 en vente à la librairie des cahiers
 Prerre Mizce. — Sur La Vaste Terre; — CalmannLévy éditeurs, 4906; — Ramary et Kétaka; Barnavaux,
 général; Ruy Blas; Barnavaux, homme d'État; la pré-
 caution inutile; Kidi; le dieu ; la vengeance de madame
-‘ Murray; les Chinois; l'aveugle ................:.....
-trois francs cinquante
 PIERRE Mie. — Barnavaux et quelques femmes;
-— Calmann-Lévy éditeurs, 1908; — Marie-faite-en-fer ;
 l'Ile aux Lépreux; Barnavaux vainqueur; le Romancero; la Nef morte; l'Homme qui a vu les sirènes;
 l''Attaque; le Japonais; la Justice; l'Aventure de Sara;
 Au delà du bien et du mal; les Pigeons; la Victoire
-trois francs cinquante
-( Panurge. — 1.
 
-KE SRE VVe ANS NES PET SE A a PE Re NU EL s"
-DURS Re RER ES ANS DR UT PRES
 RAR et PEU RSA PARE
-CE 1 LORNPE SR | A RARES
-rs 84 Per QE PALAIS EE CAEN TIRE
-LS SSP ARS LEE Se RE ER CARTE NON PRE
-D RU NE VUE ANTON |
-NAS 3 À \ 15e FT PT NOR) VA
-Ke" \ à GS ST AN ET PTE REA
-D HAE © © 1 Age VAR AIS RL PEL R MAO 2 47
 L'OTRYE 1e Se PRÉ rt Vas! ARENA
-A, - k At RER TETE AAVAS FE st
-FOIRE NOR +
-M0 LV PSS A F4 57 4) NE ap y }
-LA CTP NN $ É to 4 MT Sn à 3
-CROIRE MEET Rs
-135 AAC OR ER
-
-guand Panurge ressuscita
 
 D RAA ni Dia r,
-ee nes TAN
 Li: EN: AR SNU Dee SES AE Mon EN FU EUBE
 HELENE ne COLA SANTE D Ce D dt ARE LAPS HOTTE
-‘LES RER Le
-Ra à W'#" S * (4 1 tr; TRES ANT rt Ah
 PERS NE s x : CENT NU SE UE ce DÉREDART
 JV RE FEMERE ROC Te QE ne M “ARMÉE
-4 L'HANYES *. LA
 Fee | ( A LARMES LA PER RNBETS SRE AN
 LPNE 4 NS CU ne LE PRE PRNAEULAON
 5 AL NE ro IP us ere
-mi: te FT 111 268 RMS A 5 ORALE
-Ne. HU OUTRE à
-SON { ; { 4 RAR Li f DS :
-CA nl, ? ÿ 4 s ULPCE $s #1" pe ù Vs
-SEL PER 44 Le iPLNETS ; #
-FRS ARE + Ç ÉLUUIAEN PRE 1
 ls 4 re a PAL Ve RTE AE PES (y: 4 NE “ y
-ART RIRE CA DNA TRE TRE UT ERENE à TA
 Re LA Sete den 0 CALE OEM GR HA TE DATA :
-: ATEN PE NPD ANS EC NEA VIE PE sise AE) ; |
 
-APE PPT ENT MT,
-- £ ER HART FAURE Ÿ MACAREN EI TE
-F MANS] es CRT tv # F 1! AT OP = "#
-SRE ÿ LEA ETES EU £ re Te NTSC A
 RE Le ESA AM re AE nt A
-No MAT Re MES Ar DSP NA QU FE WuE RON EE AO REDE pee REA
 MN ne ct RÉ be FUN ARR
-à ae L # HPRUES a é He AU LH AR SAT ENT D Vu CNE NAN
 sa È STAGES : re AAA ROUTE RTE
 * ITA HET à N£ t fr Rene 4 LATE à HART AS Sa
-lc hs VER M i i DATES UNS I Lt tel +2
-L CAES EC Re ta ; : NERE FRANS NT UE 2
 PEN ANT er Sa, 26 ei
-£ LE PET 5 AA NT ; à EE NPA: TD
-ÉTÉ PARA RUESE 1 di: PAP NT AUTEI à
-Br QAEIE SE N K à LRU Re à 8e À: 44:14
-3 RTE RES = \ ARTE A AUREZ FRA
-CA RAPNT RUE AU 7 L SAT N | OR ENT UE L
-IF RTS Re T + s LR LS Dr PU LAN re
-48 PE LÉGER < x à RNA S EAP NE “ RES
-Mr ae SE Ur NA. MATE 1 RÉ AA Sa TRUE FE à
 DES: 178) DOTE fr PANNE SO PM Sr) RADOSN f 135 58 fè *
-\ ECS LR SEAL FAO RTTE QUES APE Ag FEAR RTÉHI SR FE
-HÉROS CHA AUS LE OUR nie d'TR QUE AN OPERA ET NN
 F “49 x" te de ART ROUTE pe en ours LEADER 42
 +40 LE er IRAËE MEL RP er PART: PR LES RE ET Mo ER
-M Os He A AU A PUS RENE HE
-EE LT ME A) RO AE pe Is PA NE RE SNS EUR RUES Fe
-L'UAINE EST NE
-RE AE } RAR RNENE <
-
-LAS: AR RSS CCR EPS EU BA PAT OT PA AT AA DS een 9 RE en à
-APP E LPS RENE à EE ANR
-RAS MERS ER RIRee ga ARS EME ER
 
 List) RAM RNR QUE NE LV OS NS SRE ONE *
-PARA 6 TES RE UT CM 7 OURS À RE RL c4
 LE SD BR RNA Es Tee HET, SRE NES EL 48
-TE ER : ' F4 T3 DR PS ARE AREAS
-THON | À ASTM pers AUSE SRE
-RER É F : 5 GATE FEES MEN
-PU + F5 -% LT OLA RP ERE
 AN dir Le J'EN PER PNR He le API
 ue Ÿ : À SA UAH ON rt EE Nas el
 CT à \ , Le ‘ouate ere N ES RE ER
-ONE k e RE RE 0 {TE LANRERERES 5 ARR
-AAC & Ÿ , 5: TEEN SM2IA:
 
-Ve HAN AE: 7er, 4 ss
 OR A i UE y TR TRES ET de
 2 ex DES ñ >, PA LME (es ES IE
-£ 4e A SRI" # |: ALES FLN Û k « Lay ACC OMR EN, À NI 4 j'\O LA D RS ONE
 
 PP LEE Gal a à ur 6 ar EME IE il
 
-SIX CONTES
 le Miracle
 _ Tous les jours, excepté le samedi, le petit Jésus allait
 * à l'école. En été, il n'était vêtu que d'une longue tunique
@@ -406,7 +187,6 @@ lui avait donné à garder, eût l'air d'un petit rabbin.
 . Le petit Jésus allait à l'école. Il emportait son ardoise,
 * un morceau de craie, des tablettes de buis ou de terrecuite, car on en faisait des deux sortes, couvertes de
 
-MARS RS
 quand Panurge ressascit@
 cire fine, un petit bâton terminé en pointe aiguë d'un
 côté, en spatule de l'autre, pour écrire et pour effacer
@@ -440,9 +220,6 @@ infiniment studieux et sage, il psalodiait ses leçons
 tout le long de la route, ainsi que font encore les écoliers dans le même pays; et le ciel où était son père,
 au-dessus de sa tête, le bénissaïit.
 
-LA
-
-SIX CONTES
 Mais il y avait à l'école un enfant tout à fait noir de
 ; visage et d'âme, qui s'appelait Jérach; et il disait que
 son père était de la race de Cham. Mais en vérité
@@ -474,7 +251,6 @@ blessure qui coupait un des sourcils, et laissait voir les
 os du crâne. Tous crièrent :
 | — Joël qui va mourir, maintenant ! |
 _ Joël, qui s'était relevé, s'appuya au mur. Ses genoux
-17 ;
 
 quand Panurge ressuscü@
 s'entrechoquaient et ses yeux étaient obscurcis par le
@@ -489,7 +265,6 @@ délicieuse. Joël, qui dépassait Jésus de la tête et des
 épaules, tomba sur ses deux genoux; et le petit Jésus,
 lui prenant le front dans ses deux mains encore grasses
 et comme gonflées du lait de la première enfance, dit
-seulement, à voix basse :
 ; — O mon frère... Ô mon frère en mon père !
 
 Or, à peine eut-il prononcé ces paroles, qu'il n'y eut
@@ -542,8 +317,6 @@ _ mérité son sort, y eût échappé par une intervention \
 surnaturelle. Les plus petits pensèrent que Jésus aurait
 bien mieux fait de multiplier des gâteaux; les plus
 je gran' - qu'il aurait dû les faire encore plus grands,
-Fa à 19
-i >
 
 quand Panurge ressuscita 10
 très forts, très riches, très aimés : des rois ! Et la plèbe,
@@ -565,7 +338,6 @@ mourir; vous n'avez besoin d'aucun miracle, vous
 n'avez besoin de rien !
 
 — Si, répondit Ahira. Nous avons besoïn de ne pas
-travailler !
 
 Et tous crièrent, illuminés :
 
@@ -590,7 +362,6 @@ Jérach se dirigea vers Jésus qui priait, et lui dit: !
 — Oui, répondit-il tristement. Mais si pourtant jac- |
 cède à leur désir, ils n'apprendront rien. Ils deviendront
 
-SIX CONTES
 pareils aux brutes. Pareils aux sauvages qui sont là-
 _ bas, plus loin que l'Égypte, au Midi.
 
@@ -598,15 +369,12 @@ _ bas, plus loin que l'Égypte, au Midi.
 sera immoral. Mais si tu ne fais pas ce miracle, ils ne
 croiront pas en toi. Et ils m'appartiendront.
 
-— Hélas ! fit Jésus.
-
 Puis il songea qu'il pouvait faire le miracle une fois,
 quitte à ne pas recommencer; et que d'ailleurs, puisqu'il devait mourir, il n'était pas nuisible que quelques
 enfants eussent avant sa mort quelques instants de
 joie innocente, dans l'oisiveté,.
 
 Ce fut encore là une des tentations de Satan, que
-Dieu permit.
 
 ” — Quel est le devoir du jour ? demanda-t-il.
 
@@ -625,18 +393,14 @@ distinguait les chiffres sur un tableau :
 On entendit un long murmure d'admiration, et les
 plus petits se mirent à baiser sa tunique de chanvre:
 
-— Rabbi! à Rabbi!
-
 Mais Ahira cria d'une voix impatiente :
 
 — Ca n'est pas ça, le devoir! Le devoir, c'est la
 
 _ suite des opérations, pour l'écrire sur nos tablettes.
 _ C'est ce qu'exige le maitre. Quelle est la suite des
-opérations ?
 
 | 21
-/
 
 quand Panurge ressuscita HONTE
 
@@ -668,8 +432,6 @@ Voilà pourquoi aucun de ceux qui avaient été à
 l'école avec Jésus ne compta jamais plus tard parmi
 ses disciples. Tous s'écartèrent de lui, dès cette heure,
 un seul excepté.
-
-— Rabbi? fitil.
 
 Et Jésus fut étonné, malgré sa modestie, qu'on lui
 
@@ -704,10 +466,7 @@ des meubles, un fragment de façade aux pilastres cannelés et une espèce de pe
 à pente d'une colline, aboutissait à une demi-lune ornée !
 à: de balustres et de vases d'où sortaient des fleurs de
 " pierre. C'était derrière ces balustres qu'avait été jadis
-; 33 |
-L
 
-\ (A re FT 1300 #
 quand Panurge ressuscita js # it
 le palais du roi. Mais elle ne menait plus à rien, l'avenue, à rien qu'à des terrains vagues, découpés en lots
 qui ne se vendaient pas. Les deux derniers arbres,
@@ -717,7 +476,6 @@ c'était l'effet d'un charme, comme dans la Belle au bois
 dormant, que le château existait toujours, qu'une fée
 seulement brouillait les yeux des personnes, pour
 empêcher de le voir — mais qu'un jour le sortilège
-finirait.
 J'avais confusément l'idée que madame Clémence pourrait bien être cette fée toute puissante. Elle possédait le
 mystère du passé. Dans le pays, on prétendait qu'elle
 avait vu Louis XV, ce qui, d'ailleurs, n'était pas possible, puisqu'elle était née en 1782. Mais à force d'avoir
@@ -735,7 +493,6 @@ meilleur que j'aie connu est celui de Sa Majesté l'Empe-
 qu'il n'était qu'empereur et mauvaise copie de loriginal. Mais, comme la plupart des petits bourgeoïs élevés 4
 pendant la révolution, alors que les églises étaient fer- {
 
-SIX CONTES :
 _mées et que les communautés enseignantes demeuraient -
 « en sommeil » si j'ose emprunter à leur concurrence
 une expression caractéristique, elle n'avait aucune re- :
@@ -765,9 +522,7 @@ l'Évangile, — cela suffit pour que la messe compte, —
 et partait {près l'Jte missa est, sans attendre la lecture À
 de ER de saint Jean, dont elle disait qu'elle n'y 4
 | “hs ag rien du tout, ce qui prouve qu'elle n'avait
-4 | 25 Panurge. — 2
 
-4 505 ARENA TOR EX | LE
 quand Panurge ressuscita@ 0 |
 
 pas l'esprit métaphysique. Mais elle avait beaucoup
@@ -805,8 +560,6 @@ celaine, les plats, les carafes de cristal pleïies de vin, #
 , sur un signe du roi. Il y avait aussi des glaces, des 3
 sofas, des choses que je ne veux pas te dire mon petit. | ;
 
-Fa er à _SIX coNTES
-
 4 Parfois le roi allait chasser au bois du Vert, de l'autre
 
 _ côté de la Seine, et à cette époque il n'y avait pas de
@@ -832,14 +585,12 @@ touffus et des yeux verts dont la pupille agrandie avait
 des lueurs de pierre impénétrable et froide. Mais il se
 passa alors quelque chose d'inattendu et d'épouvantable :
 
-Madame Clémence Espérandieu-Tassart retourna à
 VPimpiété de ses premières années!
 
 Ayant dépassé les limites ordinaires de la vie humaine, immobile devant le changement des choses, les
 voyant sans cesse recommencer, se retrouvant en république, après avoir vu crouler les royaumes et les em-
 
 . pires, et toujours en vie, elle, avec les mêmes membres,
-à 27
 
 quand Panurge ressuscita
 le même corps, le même esprit droit, étroit, entêté,
@@ -872,13 +623,8 @@ C'est toujours comme ça. L
 Seulement, quand je suis dans un mode philosophique, je me demande tout de même à quel moment |
 madame Espérandieu fut en enfance. |
 
-L
-l 4
-
-ë À
 Ÿ quand ils soulevèrent la Russie. ;
 Ceci se passa quand les révolutionnaires s'insurgèrent
-à Moscou. j
 
 Le 23 décembre de l'année 1905, un événement presque sans précédent troubla l'ordre accoutumé dans la
 prison de Schlüsselbourg, la plus affreuse et la plus
@@ -894,7 +640,6 @@ Le dormeur se réveilla, et répondit d'une voix brouillée :
 — Eh bien, continua le fonctionnaire, voici votre
 ordre d'élargissement, vous êtes libre. Nous avons tant
 de nouveaux venus à caser, ici : il faut bien faire de la
-place!
 
 IL y avait vingt-quatre ans que le vieil homme était
 dans ce cachot. Le lendemain, à l'aube tardive, quand
@@ -903,7 +648,6 @@ et il fermait les paupières; car la lueur rose du soleil,
 reflétée sur la neige, lui entrait dans la cervelle comme
 
 un paquet de clous.
-29 Panurge. — 2.
 
 quand Panurge ressuscita D
 Aphanase Ivanovitch Sozonof avait été, vers l'année
@@ -930,13 +674,11 @@ Sakhaline. Alors, Aphanase Ivanovitch, par mesure de
 justes représailles, s'employait de toutes ses forces à
 faire sauter la tête aux plus cruels de ces policiers.
 Voilà pourquoi on l'avait enfermé dans le château de
-Schlüsselbourg.
 Des geôliers l'y avaient battu, parfois avec leurs « trousseaux de clefs, plus souvent avec des bouchons de :
 liège, parce que les coups portés de la sorte ne laissent
 pas de marques. En hiver, on l'avait laïssé sans feu, |
 lui enlevant ses couvertures. Il avait dû manger des 4
 choses immondes. Peine aussi dure, peut-être : on l'avait |
-30 À
 
 privé de livres. Et voilà que maintenant il était libre,
 
@@ -974,9 +716,6 @@ Les paysans lui répondirent :
 . — Ça ne fait rien, et au contraire, puisqu'elle n'est
 pas à nous! Elle est à une espèce d'imbécile qui nous
 forçait à planter des betteraves au lieu de blé. Les betteraves, ça ne se mange pas! Nous voulons manger,
-manger!
-
-; 3x
 
 | quand Panurge ressuscita SRE
 :. — Mais, dit Aphanase, c'est de la très mauvaise économie politique. Il vous payait ces betteraves, le propriétaire, il vous payait pour travailler dans sa fabrique ?
@@ -1010,20 +749,14 @@ comité socialiste vint les féliciter, les encourageant à
 s'emparer du bien des nobles : ils applaudirent. Maïs il
 omit de saluer les icones, et parla du tsar avec mépris.
 Alors ils lui ouvrirent le ventre, avec un fer de faux
-rougi au feu. k
 
 Aphanase Ivanovitch s'aperçut qu'ils tuaient sans
 
-32 à
-
-ï Lis SIX CONTES Ç
 - songer à vaincre, et qu'ils pillaient sans conquérir. Il
 fut pris d'une grande inquiétude.
 
 A la fin, les raïls d'acier furent rétablis sur leurs traverses, la locomotive s'ébranla. Aphanase put gagner
 Moscou. C'était le moment de la grande insurrection. Il
-
-vit mourir, en quarante-huit heures, deux mille désespérés.
 
 Lui aussi, d'abord, voulut mourir. Dans une maison
 blindée de matelas, aux côtés de quelques hommes
@@ -1034,7 +767,6 @@ pauvres femmes, vêtues de cotonnade au cœur de
 l'hiver, avec un mauvais châle sur leurs cheveux plats;
 et des enfants couverts de guenilles, avec une croixfétiche au cou. s
 
-A cent mètres, trente canons ouvraient leurs gueules.
 Un insurgé prit la main d'Aphanase, l'entraîna dans sa
 fuite. Aphanase lui montra tous ces innocents, condamnés. Maïs l'autre murmura qu'il était bon que leurs
 maris et leurs frères eussent des morts à venger. Tous
@@ -1048,7 +780,6 @@ grand cri poussé par les malheureux abandonnés, et
 ce fut tout. Aphanase Ivanovitch s'écria, plein d'horreur :
 
 1 — Je ne veux pas rester avec vous. C'est vous qui
-QE 33
 
 | quand Panurge ressuscita F4 VOATEER. A
 
@@ -1067,20 +798,11 @@ trouva une feuille de papier et une plume. Il écrivit :
 
 « Au général Dédouline, préfet de police. $
 
-« Excellence, !
-
 l « J'ai l'honneur de solliciter de votre haute bonté la
 faveur d'être réintégré, comme prisonnier d'État, dans
 la forteresse de Schlüsselbourg, que j'ai quittée il y a
 une semaine... »
 
-Fi
-
-“44
-
-UN
-
-ve À
 LE F nu
 la véridique histoire de Bellamano
 Je vais vous raconter l'histoire authentique de Bellamano, bandit corse.
@@ -1145,9 +867,6 @@ contre les ponts et chaussées. La famille de Bellamano,
 toujours dirigée par lui du fond du maquis, eut encore
 d'autres relations heureuses avec les tribunaux. C'est
 
-+:
-
-D > SIX CONTES
 ainsi qu'elle gagna plusieurs procès de mitoyenneté et
 fit, à la captation d'une source par un voisin dominant,
 une opposition couronnée de succès. Bellamano contri-
@@ -1178,8 +897,6 @@ biens lui étaient venus, et qui l'avait mis en rapport
 _ avec tant de fonctionnaires, tous si parfaits dans l'exer_cice de leurs devoirs, qui l''engagea un jour à quitter la
 Corse pour s'établir à Marseille. Il trouva, sur les allées
 
-- ! : 33 Panurge. +— 3
-
 quand Panurge ressuscit@
 de Meilhan, un logis modeste maïs confortable, etde
 tous points agréable à ses goûts. L'agitation de la ville
@@ -1188,9 +905,7 @@ de la Corse, et il sentait passer Sur sa tête, comme dans
 son pays, l'air de la mer, seulement un peu chargé des
 odeurs d'un grand port. Il vivait en patriarche: il mangeait, comme en son village, des châtaignes, des ragoüts
 de chevreau, des fruits et des légumes, qu'il aimait à la
-passion.
 Mais il arriva qu'un jour les fruits et les légumes
-manquèrent.
 — C'est à cause de la grève des dockers, lui dit-on.
 . Les primeurs viennent d'Algérie, et les dockers se refusent à décharger les navires. ‘
 — Eh bien, fit Bellamano étonné, pourquoi ne fait-on
@@ -1199,7 +914,6 @@ pas décharger ces navires par d'autres personnes ?
 mieux, lui dit-on, mais les dockers tapent dessus. à
 — Et pourquoi, fit encore Bellamano, le gouvernement ne protège-t-il pas ces personnes ?
 — Le gouvernement, dit son interlocuteur saisi, quel
-gouvernement ? à :
 — Mais, poursuivit Bellamano, le gouvernement ! £
 — Nous n'avons jamais entenduparler d'unetellechose
 en France, répliqua ce Français, après avoir médité. à:
@@ -1210,14 +924,11 @@ des poignards aux manches ciselés, dons d'hommes de :
 lettres enthousiastes, l'objet d'art que lui avait décerné M
 le fonctionnaire du second Empire, et l'épingle de era
 vate du souverain étranger. ‘4
-, At
 
-he | SIX CONTES
 # _ | — Je vais de ce pas déposer plainte, dit Bellamano.
 Ê — Pourquoi faire ? lui demanda-t-on.
 
 — Belle question ! répondit-il. Pour faire arrêter les
-voleurs.
 
 — Épargnez-vous ce dérangement, lui observa son
 conseiller. Il y a déjà douze mille autres plaintes en
@@ -1229,7 +940,6 @@ La santé de Bellamano commença de décliner. Il ne
 homme dont on avait toujours admiré le sang-froid |
 devint nerveux. Il en arriva même à ne plus pouvoir
 supporter le bruit des tramways qui passaient sous ses
-fenêtres.
 
 — Qu'ils passent, disait-il, j'y consens. Mais on.
 leur à mis sur la tête des chapeaux chinois qu'ils font
@@ -1254,7 +964,6 @@ prisonnier. Et ce citoyen était le maire : un magistrat
 _ retourner dans le maquis!
 Il y retourna. Mais sa santé était détruite par de si
 _ déplorables spectacles, et il mourut bientôt le cœur brisé.
-j
 
 , l'amant discret
 
@@ -1274,7 +983,6 @@ de Lédignan, ou de Savignargues, ou de Maillane,
 qu'Estelle et Némorin n'ont pas existé. Ils ne vous croi
 raient pas, et vous passeriez pour un mauvais esprit,
 capable de tout, même de voter pour la candidature
-réactionnaire. EE
 J'étais d'autant moins disposé à discuter que, dans 4
 l'eau jusqu'aux épaules, et nu comme la main, je me 4
 trouvais fort affairé à pousser des pieds et du ventre, à
@@ -1284,9 +992,6 @@ une rive, tirait nonchalamment l'extrémité droite. L'ex- ® |
 trémité gauche était tenue, sur l'autre rive, par un personnage dont le nom et l'aspect avaient fait sur moi 4
 l'impressiôn la plus profonde. Touloumès me l'avait M
 présenté comme « le Monarque ». Le Monarque portait
-fo û ÿ me
-
-0 +. | six conres $ |
 
 = des espadrilles sur ses pieds sans chaussettes, un vieux
 
@@ -1296,7 +1001,6 @@ fo û ÿ me
 
 | Mais il était rasé de frais, et si mince, vif et déhanché,
 dans son indolence, qu'il me fit penser à un lévrier au
-repos. €
 
 — Gardez-vous, fit-il en tournant vers moi sa bouche
 fine aux dents très blanches. Il y a un trou au milieu
@@ -1329,9 +1033,7 @@ qui continuent à filtrer dans les profondeurs quand le
 nus les galets noyés restaient chauds, demeurés en
 contact avec ceux de la berge, avec les rocs surchauftés
 des collines, avec toute la terre ivre de soleil. Parfois
-; da
 
-Si LT RESTES s A E
 quand Panurge A
 des racines de saule, souples et chevelues, s'enroulaient es
 autour de moi, exprès je l'aurais juré, et j'en frissonpais
@@ -1354,7 +1056,6 @@ que j'avais Cpataugé » pendant une heure.
 — Et les brochets? Et les perches ? fis-je avec indignation.
 ” — Tu ne les as pas vus filer? dit froidement Touloumès. Ah! les crapules! Un brochet d'au moins huit à
 livres! C'est ta faute : tu n'as pas su bien garder le 4
-fond. 3
 Je haussai les épaules sans répondre. k
 Get échec ne nous empêcha point d'aller nous mettre ;
 à l'ombre pour déjeuner, avec appétit, d'un saucisson »
@@ -1407,12 +1108,8 @@ Cette définition du régime monarchique avait le
 
 __ conception que les peuples s'en sont faite, depuis que
 
-F 43
-
-no +
 quand Panurge ressuscita x
 le roi Dagobert est mort. Je fis signe que je commen- Te,
-çais à comprendre. CPR ARR
 — Nous nous sommes mis à deux pour manger mes s
 terres, continua-t-il, le phylloxéra et moi; mais je fis
 tout ce que je pouvais pour aller plus vite que le AE
@@ -1441,9 +1138,6 @@ voulu que sa réputation fût compromise. Voilà pour- a
 quoi M. Beauvoisin étant rentré à l'improviste, je m'en
 fermai dans une grande armoire, dont sa femme mit la
 clef dans sa poche. re
-44 ÉS"OA
-
-HR SIX CONTES
 
 PE Tu vas voir, cria Touloumès, orgueilleusement.
 
@@ -1461,7 +1155,6 @@ voilà qui sont sur le palier, les voilà qui viennent... et
 moi je veux m'en aller ! » Des coups de pied, des coups
 de poing, des coups de reins, ah oui, j'en donnais
 à cette armoire du diable! Mais c'était un trop bon
-meuble.
 
 — Et vous n'avez pas appelé? demandaiï-je.
 
@@ -1508,14 +1201,8 @@ Saint-Cyr, je pensais diriger des expéditions comme |
 celles-ci, expulser des moines, bousculer de vieilles 1
 femmes furieuses, et conduire au violon des vicaires
 trop éloquents ? Ah! si je n'avais pas besoin de ma
-place ! {5 3
 L'inspecteur de l'enregistrement hocha la tête, sans 4
 rien dire. Mais le substitut fit observer que telles étaient
-46 te.
-4 Le ê #
-
-EN Er ÿ e ;
-SIX CONTES
 
 | les âpres nécessités de la discipline ; que si les officiers
 refusaient de prêter leur concours au gouvernement
@@ -1525,7 +1212,6 @@ pour exiger de leurs hommes un service presque fratricide en temps de grève; et
 douaniers, les gendarmes finiraient par refuser d'arrêter
 jamais personne, par crainte de mettre un jour la
 main sur un de leurs parents : ce qui peut toujours
-arriver.
 
 Enfin, le soleil parut, le bon soleil, père du jour et de
 la joie. Sur la cime de la Sainte-Baume les neiges
@@ -1562,10 +1248,8 @@ ouvraient leurs bons yeux. Le substitut dit enfin :
 — Nous sommes arrivés. Je crois que voilà Riboux.
 
 Et il ajouta d'un ton léger, pour faire excuser sa
-pédanterie : à )
 
 — Rabo, dans les textes latins du moyen âge. Antique
-petite cité. Armes : d'azur à trois rayes d'argent, posées
 deux et une.
 
 C'était là qu'on allait pour l'inventaire. On apercevait,
@@ -1573,8 +1257,6 @@ au delà d'un petit vallon, des maisons aux toits presque
 plats, un édifice aux murailles passées à la chaux,
 avec un fronton grec, qui devait être la mairie, et une
 petite église romane, au clocher carré, semblable à un
-
-.. donjon. |
 
 — Halte! cria le commandant. Fa
 
@@ -1597,14 +1279,9 @@ les herbes. Puis tout redevint tranquille. È
 — À vous maintenant, messieurs! dit le commandant. -
 
 | Mais l'inspecteur de l'enregistrement et le substitut
-48 ue
-
-" es s SIX CONTES :
 
 _ préférèrent n'avancer qu'à ses côtés, par prudence. Ils
 arrivèrent ainsi au village, et le commandant, regardant ses hommes, cria tout d'un coup :
-
-: — N... de D...! qu'est-ce qu'il y a?
 
 Les cavaliers restaient sur leurs chevaux, immobiles ;
 les fantassins attendaient, l'arme au pied. Mais toutes
@@ -1688,9 +1365,6 @@ Il ajouta cependant, après avoir réfléchi :
 — Eh bien? interrogea l'inspecteur de l'enregistrement.
 
 — En été, il y a quelqu'un!
-
-sl
-ms
 
 | SIX CONTES
 | Gette communication causa une sorte de soulagement
@@ -1781,9 +1455,6 @@ Il ajouta cependant, après avoir réfléchi :
 
 — En été, il y a quelqu'un!
 
-. 5o ‘
-
-He CS SIX CONTES
 _ Geïte communication causa une sorte de soulagement.
 Le facteur poursuivit :
 
@@ -1823,9 +1494,6 @@ La porte de l'église paraissait être en bois de châtaignier,
 facteur. Il s'était décidé à attendre la suite des événements, comme le commandant. Et toujours à cause de
 la grande curiosité qui est au cœur des hommes.
 
-) 51
-
-*a FRERE.
 quand Panurge ressuscita
 — Il me faudrait cependant un sapeur du génie et à
 une hache ! insista l'inspecteur. UE &
@@ -1850,22 +1518,18 @@ d'ombre pleine de reflets attira leur attention. C'était w
 une vieille toile, sans doute italienne, qui figurait saint w
 Antoine de Padoue, patron de l'église. Ke
 — Il n'a toujours pas retrouvé ses paroissiens, dit le 4
-substitut en riant. “à
 Mais il recula d'un bond. |
 — Dites donc, l'homme! fit-il, d'une voix menaçante
 et un peu terrifiée en même temps. 3)
 Au-dessus du cadre, et comme suspendus à l'ombre |
 de la voûte, luisaient deux yeux farouches, démoniaques, pleins de flammes vertes. F4
-52 S |
 
-“ete es SIX CONTES
 __ — Dites donc, vous, là-haut! répéta le commandant.
 Les yeux ne clignèrent même pas, mais une alouette,
 entrant par la porte ouverte, commença de siffler
 furieusement. Puis d'autres alouettes vinrent, et des
 verdiers, et des moïneaux, et des mésanges. Les oiselets, étendant leurs toutes petites ailes, fonçaient, le
 bec en avant, vers les deux lueurs vertes. L'inspecteur
-cria :
 — Mais c'est un hibou ! -
 Le substitut leva sa canne, et le hibou, prenant son
 vol gauchement, heurta les murs, franchit la porte
@@ -1878,7 +1542,6 @@ précipitaient, les ailes raides, les pattes crispées, le bec
 aigu planté au bout de leur tête presque sans crâne
 comme un fer sur une pique. Ils étaient cruels, lâches,
 fous, impuissants contre la grosse bête impuissante, et -
-piaillaient, piaillaient, piaillaient.
 — Tiens! dit le substitut, c'est le hibou, ce matin, qui
 joue le rôle d'inspecteur de l'enregistrement :
 Mais le véritable inspecteur remplit tout de même
@@ -1886,60 +1549,17 @@ son papier d'inventaire, parce que les formes sont
 saintes et inyariables.
 
 HP Pin MIT NE PET Po AN LE Re Me
-us a HE LE FD EE NN! Sr Ru RS SE EN MERE NE Ce à,
-D ER ER NS PT M DURS Ur UT EE
 MA eg ce ee |
-SECTE ts UPASE SONIA r RASDNS
-SSSR 8 REX à set [SE
-L PET CRE L'IFRE SNS RS
-FETES = à y SRE AT NES tte PRE
-EN ES : 22pi LS ; - PER D ‘ SA
-PRET CRE $ LÉO ALAN ï FAX
-TL #7 * Rs A ORNE r 2 3
 Rue He à SUR NC A
-LL Pace FTP PR er OR Tr
-TEE dE uk } LEP 2 44 ORAN * RUES
-RP ? f 2 : RTS PS C0 TON NAME ER OS
 > ù PSE ES
-LA à #4 . + 2,2 LS SL, ANA
-STE =: Ye ; é 12 0 TENNIS
-PRO LEE tx LTÉE ES. AE POS
 DAS on + , "4 Pee à RSR LE re Ne”
-1. ES RS $ : LAN IN Le LA PAS
-ANGERS RP LL. C
-“à AUS 5 LD 2 DL PMR 2% 1 CES AE
 ns Ce FLY. DR TE NAASE" th fees STRESS x
-RAA LASER RUSSE Ce RAT CL PA
-LR ST RE RIRE EP RS ES TR 7
 3 L don PT PA TES AV L RAD ATEN à
 
-QUAND PANURGE RESSUSCITA
-
-9, DR MER RER a een Per PICRAE RE A e
-. > SL Ce Lie LAINE Pt ETES QUES TS É ARS a 4
-TT SRE TEE Re x? é RITES #4
-+ LIT SH a NES NE É ; Ch LC ET RE SSL
-DC LP : # Æ Ÿ. 54 ART PUS PNR SCA
 RE EC CS HOMO] Ts le et er NII ges
-7 DR SEE SÉN merisier. PAPE re VAS
-RE PRE PER EG TUE RE DS, 0. RARES
-FT STI ÉNERIENE 2 KE RÉNOVÉE PROS S
-RARE re Se: 2 ES TTTRCATENC Te CSS ANG ER
-PTE RES VE REA LATE NE à "Ya.
-ELA PAL nr y r: KP Erre ms cer at F :
-LL PL hd RÉENTIOR s # es 1 AT OUESRE TEE
-LE nf PR ;: à TT Pa à LATINE :
 LUS TERRES è » DE rame de ce NF PERE
-AR CE PER LE : Lo SAIS SE ARE
-122 SEM ÿ ÿ DR MCE TE
 PEU PRET à ir MAS APE TS LE ET SNS
 1, og RON SES: pe
-: 2 6 APE 4 NV ogg HSE T PCM LOTS 2
-$ LR SRMENO ADNNETE EE AT TRS mr AS
-
-_ RAR RE Li ER RARES Er :
-1 à
-QUAND PANURGE RESSUSCITA
 
 où Panurge causa de la loi de séparation
 
@@ -1954,7 +1574,6 @@ pôle, s'éloignant de l'équinoxiale, aperçurent l'ile Sonnante. Mais fut d'av
 aborder, descendissent premièrement en un esquif sur
 
 - un petit roe où se reconnaissaient un ermitage et un
-jardinet.
 
 Et furent bien émerveillés de trouver sur ce petit roc
 une troupe de ministres et députés du pays lanternois,
@@ -1964,7 +1583,6 @@ queue, mie ni goutte, croûte ni point.
 
 — Vouère, dit le principal de ces Lanternois, c'est ici
 un grand miracle! Depuis plus de cent années, nous
-: 59
 
 quand Panurge ressuscita
 ; étions déclarés patrons et ministrateurs des de de À
@@ -1980,7 +1598,6 @@ Judegauts n'ont pas soufflé. Mais sommes tout près, au |
 contraire, avec ceux de l'île Sonnante, de nous piller !
 s et houspiller, car semblent bien en colère. Nous voudrions fort savoir ce qu'ils veulent, mais ils ne disent -
 mot qui vaille, sinon qu'ils ne veulent rien et refusent
-tout. ;
 
 Il y avait, près des ministres et députés lanternois,
 une personne éminentissime en l'île Sonnante et qu'on
@@ -2000,9 +1617,6 @@ crétales sont telles que devraient les gens de l'île Son- g:
 nante être patrons et ministrateurs de ceux du Lanter- ;
 nois, et qu'ainsi ne pouvons accepter que dérisoirement
 ils nous donnent la liberté, puisqu'ils nous devraient
-obéir. É
-
-; 58 ie À
 
 ME te QUAND PANURGE RESSUSCITA À
 __ — Vouère, demanda Panurge. Mais paravant étiez_ vous leurs maîtres ? Ô
@@ -2010,7 +1624,6 @@ __ — Vouère, demanda Panurge. Mais paravant étiez_ vous leurs maîtres ? Ô
 — Et manquiez-vous à leur obéir ?
 — Cela n'était point aisé.
 — Tandis que maintenant, ne les pourrez-veus point
-pelauder ?
 — Davantage, avoua Camar, davantage. Mais ce
 n'est pas le point : ils veulent nous spolier de nos eloches. De l'argent, n'en veulent guère donner; et pourtant gardent les cloches.
 — Elles n'étaient point à vous, dirent ici les Lanternoïs; et garderez l'usage de vos cloches, les grosses,
@@ -2020,7 +1633,6 @@ les moyennes, les petites, moyennant une livre parisis
 mortel que de sonner cloches en clocher, si elles ne ;
 sont point à nous. |
 — Mais hier, fit Panurge estomiré, étaient-elles
-vôtres ?
 — Pas plus qu'aujourd'hui, reconnut le bon Camar.
 Mais je vous dis ce qu'on n'a dit. Et je le dois tenir
 pour la vérité.
@@ -2028,7 +1640,6 @@ pour la vérité.
 gens ne s'entendent point.
 Et retournant vers les députés lanternois, leur demanda bien prudemment :
 — En quel langage leur avez-vous découvert cette
-affaire-ci ?
 — Belle demande! dirent les Lanternoïis : en lanter- -
 nois; et ainsi l'avions débattue entre Lanternois, dans
 
@@ -2039,9 +1650,6 @@ noise, qui n'est pas briève. MR EN
 — Je vois déjà, fit le sage Pantagruel, que cer
 de l'ile Sonnante n'y étaient point. Clerice, éclaire it
 dit-il à Camar. Quel langage parlez-vous, vous et 1
-vôtres ?
-
-— Langage sonnant d'île Sonnante. -
 
 — Ce n'est donc pas le même qu'en Lanternoïs ? inte
 rogea le sage Pantagruel. 2
@@ -2053,9 +1661,7 @@ tement, répondit Camar. Voici plus de deux siècle
 ‘ penser comme nous, parler comme nous, faire les
 mêmes choses que nous dans la vie et pour la mort.
 Et même les mots qui sont pareils n'ont plus le même
-sens.
 — Et avez-vous intelligence de la réponse qui vous fut
-excogitée ? demanda Pantagruel aux Lanternois.
 
 — C'est langage sonnant d'ile Sonnante, répondirentils. Nous ne savons pas s'ils veulent dire oui. Nousne
 savons pas s'ils veulent dirent non. Nous ne savons pas …
@@ -2063,18 +1669,14 @@ non plus s'ils nous ont compris, ou s'ils font exprès de
 ne pas comprendre. 4
 
 — Vous devriez, firent les Sonnants, demander un
-interprète ! 4
 
 — Ouais, dit Panurge, vois-je pas l'entrée de la 4
 nasse : vous voudriez d'abord qu'on vous renvoyät
 le truchement que les Lanternois nourrissaient chez « vous ? À
 
 — Seigneur, répondit Camar, c'est vous qui l'avez |
-dit. N.
 
-à
 où Panurge rencontra gens du Midi
-Marcelin Albert va marcher sw
 Paris avec 300.000 hommes, pour
 x forcer le gouvernement à mettre un
 terme à la mévente des vins.
@@ -2096,12 +1698,9 @@ père en fils et d'usurpateur en ami des lois, saluer
 galantement dans leurs naufs Pantagruel, Panurge,
 Ponocratès, frère Jean des Entommeures et tous les
 
-61 Panurge. — 4
-
 Se quand Panurge ressuscita
 autres. Mais paraissait ce pauvre Anarque tout emberrelucoqué, fort ébahi, et perplexe comme un écheveau 4
 de laine sur quoi vient de se coucher une portée de |
-. chats. :
 — Que ferai-je, se disait-il, que ferai-je? Mieux aimerais être crieur de sauce verte, houssepaillier, botteleur
 de foin, que d'anarquer ce pays. Car anarquer ici devant 4
 anarquant de toute anarchie. À peine était-ce fini de
@@ -2114,7 +1713,6 @@ rasque? Omis contre la coutume tant précieuse de leur 4
 guerdonner trois milliards d'écus à la rose pour leurs
 derniers trois moutons qui moururent de la clavelée? !
 Empêché méchamment leurs consuls de faire mourir #
-taureaux es cirques ? <
 — Non pas, fit le pauvre Anarque, non pas! Je n'au- « rais garde : mais veulent que buvions ieur vin. E:
 Ce qu'entendant, jeta Panurge un grand cri horri- *
 fique, par effet de stupeur non feinte, et tomba sur les #
@@ -2123,13 +1721,8 @@ tout foupi. - *
 — Sommes-nous ici, dit-il, avec gémissements, chez M
 ces pauvres extravagants dont est parlé au livre De fri- É: |
 gidis et maleficiatis, lesquels ne peuvent boîre de vin? 1
-Or ça, allons, trottons, galopons, nageons, volons! :
 Viens-t'en, frère Jean! Quittons ce pays! Je me sens
-62 #5
-PF Mode NÉS UD
 
-D
-PTE ESS PERS AS &
 HSE me  QUAND PANURGE RESSUSCITA
 k mourir de pépie, la gorge me sèche, j'ai la fressure
 _encollée. Ils ne boivent pas de vin! Ce sont fous, mon
@@ -2147,7 +1740,6 @@ point. Éloigne, frère Jean, éloigne un peu : je veux
 tout !
 — Mais, dit Anarque honnêtement, c'est que parfois
 _ce vin est poussé.
--_ — Poussé? demanda Pantagruel.
 _  — Un peu méchant au desgoût, avoua le bon Anarque. F
 On fait aujourd'hui vin avec du sucre, au lieu de vin
 vinant de grappes bien mûres : mettant sucre sur les
@@ -2159,20 +1751,16 @@ dit Anarque. Mais alors me brouillerai avec les Lifrelofres du Nord, qui font su
 — Mais encore si l'on met sucre, interjeta l'autre bien
 marri, je m'exposerai tout à trac à graves tourments |
 péjoratifs de tique-torche-lorgne-tape avec ces quatre
-6ù 63 è
 
 f RS on
 quand Panurge ressuscita or
-cents millions d'Albingois, leurs femmes, leurs petits,
 et leur grand chef Loupgarou. C'est un géant très épouvantable et farouche: il porte bonne barbe bougrisque,
 et monte es arbres. ù
 
 — Qu'on ne mette donc pas de sucre, dit Pantagruel,
-résigné.
 
 — Pas de sucre, pas de sucre ! s'écria Panurge.
 Suis-je né pour boire sucre, et non vin ? Qu'on me donne
-sucre en jouaces, en beurre d'amandes, en tartes, en
 beignets, en crêpes; mais qu'on ne me gâte mon piot.
 
 — Vouère, fit Anarque, vous avez raison. Mais ce …
@@ -2185,7 +1773,6 @@ Payerai-je pour boire de l'eau ? Vertus Dieu, que me
 chantez-vous, de l'eau ? Adieu paniers, vendanges sont #
 faites ! Qu'on me montre ceux qui la jettent : je leur
 escarbouille la cervelle, je leur démoule les reins ! A
-mort, à mort! É
 
 — Je pense comme vous, dit Anarque. Mais ces vilains
 à cruches d'eau sont taberniers. Taberniers me font FA
@@ -2201,14 +1788,9 @@ mes pensements, tout neuf, car j'ai l'imaginoire en
 mouvement. Dégrevez aiguillons de beuverie. Donnez
 primes et compenses à tous producteurs et fabricateurs
 
-64 ;
-\ | ,
-
 été | K QUAND PANURGE RESSUSCITA
 de jambons, langues fumées, porreaux, oignons, cibots,
 
-lard, rillons, andouilles, cervelas, saucisses, morues,
-merluches, carbonades, estouffades, moutarde en pots,
 poivre en barils. Qu'on mange sec, on boira d'autant.
 
 * — Ceci me plait mieux, dit Pantagruel. Mais sans
@@ -2230,7 +1812,6 @@ Lors Pantagruel, prenant entre le pouce et l'index,
 . les ailes du nez à cette fin de humer congrument le par-
 | faum du jus. Mais Panurge bien espanté se jeta tout à
 plat devant lui; et criait comme navré de blessure
-mortelle : -
 
 — Ne buvez pas, mon bon maître ! Ne buvez pas!
 
@@ -2242,7 +1823,6 @@ fol, mon pauvre, ou vas-tu mourir ?
 larmes, seigneur... On y met de l'eau, on y met du
 * sucre, on y met de tout : ce sont ces Albingois euxmêmes qui le disent. Est-ce ci du vin ?
 k . — C'est juste, dit Pantagruel en rêvant, c'est juste.
-65 Panurge. — 4.
 
 quand Panurge ressuscita FRS
 
@@ -2261,8 +1841,6 @@ Et ainsi manquèrent les Albingois à faire boïre leur
 vin, par cette male erreur d'avoir dit eux-mêmes qu'il
 était dépravé. $ |
 
-j
-
 or CR ne Que à
 Foù Panurge calomnia un élément
 
@@ -2272,7 +1850,6 @@ au royaume de la Quinte-Essence, où ne sont qu'hommies
 
 - bien savants, car méprisent ce qu'est nature, vivent » par raisonnement au principal, par bâilleries au parti-
 - culier, et pour rendre l'air es chambres bien pur et
-digne d'entrer en leurs cavités pulmoniques, jettent
 maisons par les fenêtres, afin de mieux tout nettoyer.
 | Ainsi font depuis l'année mil sept cent octante et neuf,
 et disent qu'agir autrement est superstition.
@@ -2290,7 +1867,6 @@ viandes blanches; d'autres, viandes rouges et pain tara-
 
 _ biscoté; d'autres, légumes divers, comme pommes :
 . d'amour, qui sont tomates, ou pois verts, haricots,
-; È
 
 quand Panurge ressuscita
 fèves, à condition que soient en purées; et vénèrent
@@ -2306,7 +1882,6 @@ points ? Et qu'est garnir la doublure des pourpoints ?
 C'est aiguiser ses mandibules. Et pourquoi aiguiser
 ses mandibules? Pour tuer le loup dans son trou. Et
 où est le loup, et où est le trou? Vous le savez bien: « c'est à mi-route entre les pieds et la tête, droit en descendant du gosier; et pour les gens simples, il a nom « 4
-« faim ». L
 ; Cette invitation acceptèrent les Quinte-Essents, tout
 embardocucullés de grands manteaux par crainte du « froid, et mangèrent sans trop rechigner la soupe aux
 porreaux, encore qu'ils prissent leur temps pour bien ‘
@@ -2317,7 +1892,6 @@ attendre, buvez un coup. |
 Ce que disant, leur versa un plein gobelet. Aussi bien |
 il en but deux. È
 
-FE PSE: QUAND PANURGE RESSUSCITA ;
 Pie Mais les Quinte-Essents, par grande horreur, repous__ sèrent les gobelets, faisant signe qu'ils étaient en peur
 . de mourir.
 
@@ -2328,13 +1902,11 @@ septembre, et puis soleil encore : le diable qui bat sa
 femme et marie ses enfants. Année d'or, année de
 perles, année d'entre les années. C'est vin de taffetas,
 de par Dieu, vin de velours, vin de soie. Buvez, buvez,
-wayez crainte.
 
 Et pour montrer que le piot n'était empoisonné,
 comme celui que- versèrent les Flamands aux reîtres et
 bacquebuttiers du seigneur Jean d'Autriche, but un troisième gobelet. Mais ces Quinte-Essents demeurèrent
 tout mélancoliques, et semblait que ce vin clair leur füt
-plomb fondu.
 
 . —Voici beaux soupeurs! cria Panurge. Tout le monde
 chevauchera, et ils mèneront l'âne par la bride ! Buvez,
@@ -2348,7 +1920,6 @@ Et pourquoi ?
 — C'est, répliquèrent-ils, que nos médecins nous le
 défendent. Ils disent que le vin est la source de toutes
 sortes de maux très horribles, et aussi de péchés bien
-noirs. Si buvions vin, deviendrions dyspeptiques, paralytiques, arthritiques, bêtifiques, commettrions grands
 crimes et serions sujets à toutes dampations en ce
 monde et dans l'autre. Et pour ce, buvons de l'eau.
 
@@ -2359,7 +1930,6 @@ RAS quand Panurge ressuscita
 et incolons. ; - DU 0 + RSS
 — Et ne savez-vous point, continua Panurge, que |
 Dieu est l'ennemi de l'eau, pour ce qu'il ne l'a point
-créée ? Meur
 — Nous ne le savons pas, répondirent-ils, et même
 - tenons cette proposition pour fausse et scandaleuse.
 — Je crois, ajouta Pantagruel, je crois, ami Panurge,
@@ -2369,7 +1939,6 @@ docteur en diablologie, nous disait que diables craignent
 naturellement eau, ce qui n'a rien d'étonnant : car étant
 diables, sont naturellement ords en diable, habitués à
 climats brûlants, et seraient par humidité rendus sujets &
-au mal rhumatique. x
 Ainsi parla Pantagruel, qui toujours gardait prudence 4
 en sa judiciaire, étant né, à ce qu'on dit, à Tours ou 4
 aux environs. l
@@ -2387,122 +1956,39 @@ premier de la Genèse : « Au commencement, l'esprit de
 Dieu flottait sur les eaux. » Et si le voulez en latin:
 Spiritus Dei afflabatur super aquas. Vous entendez : il !
 n'a donc point créé l'eau. Dès le commencement, il y
-70 ne
 
 | AR D ME A one EURE
-A OU AA RE à RC on 1 Ne Er
-LLLIT SSSR ee TENUE RE PO D OE se
 _ j'en conclus que l'eau est un élément démoniaque,
 | pernicieux, abominable, insoumis à l'auteur de tout Le
 _ bien, et que par conséquent sont damnés ces Quinte- is Fe
 | Essents. Et le soutiendrai jusques au feu, exclusive- st
 _ —Tues, dit Pantagruel après avoir médité, un bon
 D oo. Or ça, verse à boire, puisque c'est ton *
-AURA ETES GÉ LB Lai ie
-LOT VE RS
 #4 x _ Cette page de l'histoire de Panurge ne se trouvantque
 _ dans la Pantagruéline Prognostication doit avoir prédit
 ss une conversation de notre temps. : RMS nu
-A LES
-Re  .
-L'ETÉ RARES
-RES PAU ; SERRE TRS
-: + FPS EE pl û MONTE SRE
-74 + me FFE TRRS $ ï LEE EP È
-Ms DA La
-AE à es RTS RE NP ri GR
-: EPA RRTR RUETE ADR PT ICT ee SD e7 TS lie Di
-A NS ut en ane à ES RHAUIE AT
-ESS BR Re CR RTL 0
 
 LS RE nn A EE NAN CES FR LP RSS el
 
 PÉTER PP ONE RES ED Det LOS ARS CE |
 
-AT SSSR EME re FT 23 FRANA TETE
-
-F8 LRRE CEE LME LES PER ONE RUE + ACTES ER
 LA 5e DR LÉ ete Mr Etes # ELITE RERO ONE RTE
-RS ee re - < RUE Sr: it Pl
-Re MR. oo
-LEE SNS 3 A à SE A
-80 ES ; 2 MR ue A
 LE LR RSS CRT ss 0e
-SERRES D A
-SC PS PRE AS mr
-Le k Lg FLE FE ( Er ke
-ESF " SUCRES" GO
 
-LT CES < A: Fe
 “STE L = e se TRE se RTE > mt
-AREA # DÉCHETS k ETES
-Ps ATOS RS D CE RE CPR 2. SR
-AR 7 x 2 TE NOR €:74 A RE
 AIMONS “ Key ART Et ri
-:: SFR # LHC CA 1" ete
 
-+ TR Re , Le LH te AE - F EE
-Br. Re ee
-MRC. z F5 EURE Se
-
-2 7e VOA 4 Ë LESC =
-Re E : ., PAPE
-
-Ft ; STAR SAS Sr Me AS CUS {ÈS à
-
-MR MT  , - RÉ RS ee EN AE PRES 4
-
-GE A, ue 1 3 px "ANT ELISS ? AAA TERS LAS »
 A PRE LEE se Ton à ARE:
 
 Fr PILE TEA DNS PER ER CENT PL op jen SE PT TI SUR NES
-LR RE Ne SRE LE ST HOT LEE RE ED HERET
-LIGNE STE Re 202 M RC ER SR El PT SES TE SL ONE = Fat *
-Rd M tn
 ROUE NA D ET MES NON ST Rem CE st era M LUTTE CNT RSR ONE
-LD REP PARENTS SE TEL SG PP EPA Ter MERS PE, is HE PT PR E
-A SN ts PES JS PRO ENTIER ETES
-« 44 AA CRT Ge vs L | ri E ARE #1] È
-Re Un # : ÉX-GTRENER ESTSSEPS ER E
-LETTRE _S . e RSR EEE EEE *.
-20 RAY é S ART RL
-FEAR EN 7 LAN AANES
-Re £ < EE pr ps
-RES S : Se LES ONE RENE
-SRE ARTS À LSTASIS TA SRE
-CELL F2 = À) x FSI FIRE
-ape 7. SR MORSS
-SE SEE a LES SA FLE
-[SES A NC
-en, Ç 5 7 URI ERRESERRESSSRSE
-A, . FN RAT RSR ESS
-RE | a
-ee di, AR D nn
 Ft 0e AE Pass Free A Le SO TRES RER
 LR ORNE RP PSN NS EE OS CR RP ee Un 07
-LÉ 2: ARTE & Dre: DR UE à” a . MRR PE OA TRE
 
 RER ESS $ ne ie ER à à
-PPT TER RER à = er CESSE < > A
 CPR ra Nr En Et, dA, SL
-M RE
-ASE “+ a À.
-LES : in
-Se QUE ; PERTE Na CRETE
-RÉ E A
 STÉS HE ; ro s LL LE SHC EE
-ct 1e D
-LETTRES A re en
-FRET EEE À ver
-SAGE ge D MR Poor, :! < ES.
-SE ? ; ; 4 Le, des
-Es £ < RCE LE > PR Er
-LE rs ; LV LOSC £ à
-1. RP TS LAS FX ES PRE e
-Car 1 MR ET 7 SE Ne TM RS
-MD GRR nt rit nes
 
-PAYSAGES
 : l'automobile du touriste
 
 _  … Mon ami le chauffeur m'avait dit :
@@ -2582,10 +2068,6 @@ Puis nous arrivâmes sur un plateau sauvage.La machine
 marcha plus vite, comme d'elle-même. Puis nous parvinmes à l'autre pente, celle qui descendait, et nous
 nous laissâmes aller. Ce n'était pas notre faute : puisque
 
-*]
-
-ALES PAYSAGES ‘
-
 _ ça descendait! Nous eûmes l'impression d'être un torrent, d'être irrésistiblement forts, d'absorber cinq cent
 mille barriques d'oxygène par seconde, de nous joyeusement nourrir, comme des dieux immortels, d'une flamme
 impalpable et vivifiante. Vite, vite, vite! Nous ne distinguions plus rier de l'univers. D'abord parce que nous
@@ -2596,7 +2078,6 @@ enfin parce que nous ne regardions rien du tout. Je
 vous dis que nous étions des dieux! Donc nous nous
 suffisions à nous-mêmes, le monde extérieur n'existait
 plus pour nous. On ne peut rien concevoir de plus
-évident.
 
 Cela dura — je ne puis pas savoir combien ça dura,
 
@@ -2621,11 +2102,7 @@ la mort, ça n'existe pas. Il n'existe que le mouvement,
 
 | 77
 
-à] 5
-
-giant Pannrie
 le mouvement éternel et infini. Et je suis dans lemou.
-_ vement. FA SRE Here
 Je jure à la face du ciel que jamais ni la Pologne sous é
 Auguste de Saxe, ni l'Angleterre un jour de bankholiday ou même de jubilé, ni les nègres de Brazzaville +
 au Congo le quatorze juillet, n'ont été plus totalement
@@ -2645,7 +2122,6 @@ comètes, à moins qu'ils ne se cognent ? Moi qui croyais #
 riorité des créations humaïnes sur celles de la nature.
 Mon ami le chauffeur cria : 1
 — Nom de Dieu! il n'y a plus d'essence dans les
-d brüleurs ! 3
 J'aurais pensé qu'il y en avait trop, puisque ça
 brülait. Mais les automobiles sont des animaux renver- ;
 sants. Rien ne se passe chez eux comme ailleurs. É
@@ -2655,8 +2131,6 @@ bien. Après quoi, il me dit: .
 — Je me le demande, répondis-je très sérieusement,
 Encore sur la terre, je le suppose, et je trouve même
 que c'est inattendu. AU H 2028
-
-5 TR à ER PAYSAGES
 
 . : Mais nous vimes justement, à cet instant opportun, .
 A un homme qui descendait une côte à bicyclette, les
@@ -2670,11 +2144,9 @@ _  répétâmes en nous adressant à lui :
 — Où sommes-nous ?
 
 — À cinquante kilomètres du Puy, fit-il d'un air
-aimable.
 
 Je lus, sur la plaque de sa bicyclette : Oustachon,
 
-_ liquoriste. :
 __  — Tu vois, dit mon ami, comme nous avons été lentement ! Encore cinquante kilomètres à faire.
 S — Vous voulez dire pour revenir, répliqua froidement
 M. Oustachon. Vous lui tournez le dos, au Puy!
@@ -2700,9 +2172,7 @@ façon que je qualifierai de blessante,
 
 * château de Polignac qui est sur un rocher, à 820 mètres
 À _ d'altitude? Ni la cathédrale, qui est à 700, grande
-+ 79 -
 
-PRE: D RO
 quand Panurge ressuscit@
 © - comme deux fois Notre-Dame de Paris, et aussi haute ; ï
 ni la Vierge, qui est si laide, mais encore au-dessus de
@@ -2715,37 +2185,23 @@ ni la pharmacie Rigobert, ni M. Levadoux, un homme
 si grand, ni M. Girollet, un homme si gai?
 
 Il y a des cas où il est impossible de mentir. Je
-répondis :
-
-— Non!
 
 — Eh bien, conclut-il philosophiquement, consolez- 4
 vous. Vous les verrez, parce que... parce que votre
 chaudron est détraqué et que vous allez le faire remor- 4
-quer au Puy en charrette à bœufs. 4
-
-À
 
 C'est, en effet, ce que nous fîmes. Je m'aperçus alors É
 que la charrette à bœufs est aussi un instrument de i
-tourisme. 3
-
-+ *%
 
 Le voyage en charrette à bœufs acheva de me lier
 avec M. Oustachon. Il connaissait le pays comme un
 roulier et comme un archéologue. Cet homme merveil- 4
 leux possédait à la fois des lettres et des connaissances à
-exactes. k
 
 j — Nous allons descendre, expliqua-t-il, chez la mère 4
 Gaytte, à Saint-Paulien. Elle a toujours des perdreaux,
 du vin de côte, et l'eau y est fraîche. Or, de l'eau très
 fraîche est indispensable pour battre une bonne ab41180
-
-Rs in à
-
-1) PRES PAYSAGES
 
 _  sinthe. Tenez, nous suivons la via Bolena. Elle passait
 
@@ -2776,14 +2232,12 @@ centième vers le premier, le quatre-vingt-dix-neuvième
 ensuite, jusqu'à conticuere omnes, intentique ora tenebant. À ce moment, nous étions devenus fous furieux.
 Alors il s'en alla tâter le menton à la servante, et obtenir
 une réduction sur la note « à titre de membre du
-Touring-Club ».
 
 Le pire, c'est qu'il était impossible de ne pas l'écouter,
 non seulement parce qu'il parlait trop haut pour qu'on
 pût s'abstraire au for de soi-même, et riait trop fort
 
 : pour qu'on ne désirât point savoir de quoi il riait, mais
-: 81 Panurge. — 5.
 |
 
 | -_ quand Panurge de
@@ -2824,7 +2278,6 @@ monstration à un autre jour. Sachez seulement que, sur
 ses instances et parce qu'il n'y a pas, en eflet, en E
 | 82 FRE
 
-M à pavsacrs :
 France, de pays plus abondant en beauté que la région
 _ du Puy, je décidai de prolonger mon séjour.
 Et j'allai à la Chaise-Dieu, et j'allai à Polignac, et à la
@@ -2841,9 +2294,7 @@ __ chose que ce qu'il avait sous les yeux, anarchiste convaincu et foncièrement
 % — Loin, très loin, répondais-je, du côté de Pradelles,
 Pr je crois.
 Ë — Je vous accompagne ! répliquait-il avec empresse- Ë
-j ment. #
 À la fin, je finis par demander à quelqu'un dans la
-ville :
 — Ah çà, il n'a donc rien à faire, M. Oustachon ?
 — Mais si, me dit-on. Il tient un petit magasin pour :
 la vente des huiles et du vin. Seulement, voyez-vous, -
@@ -2854,8 +2305,6 @@ _ c'est un cafetier. :
 -  n'avoir jamais rien à faire. Il doit être d'une activité :
 -  prodigieuse. » On daïgna rire de mon erreur et m'expli-
 É: quer qu'un cafetier n'est pas un homme qui tient un
-ea
-_ ES
 
 | D
 _ quand Panurge ressuscit@ ee
@@ -2892,12 +2341,9 @@ C'était pour lui une partie fine, quelque chose d'extra- k
 
 |
 
-TER SR _ PAYSAGES
-
 _ ordinaire, ayant l'attrait de la nouveauté. Devant sa
 
 * propre porte il hésita un petit moment, et murmura par
-manière d'excuse :
 
 — Ce n'est pas la porte qui m'embarrasse, je la reconnais très bien. Maïs c'est la clef. Je ne me rappelle plus
 laquelle est la bonne.
@@ -2933,21 +2379,15 @@ dans votre genre.
 
 _ Je ne protestai pas contre cette assimilation, qui était
 
-È 85
-
-DENIS ARS STE ES M RAR LE VE ATP SE
 DR OT TT) quand Panurge Fesstscie ORPI
 _ affreuse. C'était vrai : il n'y avait entre lui et moi qu'une QE:
 Sue différence de degré. Res x. RT pie
 fe M. Oustachon passa ensuite une bonne e à me ».
 _ réciter ses œuvres. Il avait fait des vers « à la façonde
-os . PT . RENTREE | +
 Boileau ». Il continuait à en faire. A mesure qu'il vieil-
 | lissait, l'empreinte marquée sur lui dans son enfance
 apparaissait de plus en plus forte et de plus en plus
-S . . » nm ; 4]
 à gauchie. Cependant cette lecture l'avaït rasséréné.Ilme
-laissa partir en me disant : PÉRRATE 2
 2 — Au moins, vous, vous pouvez me comprendre!
 er Et quand j'ai quitté M. Oustachon, huit jours plus
 tard, je le comprenais, en effet, j'avais pour lui une
@@ -2957,9 +2397,7 @@ comme beaucoup d'autres, un Français gâché. Et
 comme il était très intelligent, il le savait. C'était très « = douloureux. #74
 > :
 | ; FAC ANR
-ee C'RURT ESS 20
 
-aux Eyzies
 | ; reliques d'ancêtres
 ,
 On m'avait dit : « Il faut aller aux Eyzies, sur les
@@ -2981,10 +2419,8 @@ nasses de jonc sèchent appuyées aux saules, sans doute
 . comme aux temps dont je vais parler. La vallée est
 _ toute plate et fertile, mais étroite : il ne faut pas une
 LE ie
-sd 87 |
 
 quand Panurge ressuscita :
-* « 3 c L
 demi-heure à pied pour la traverser. Des murailles de
 roches la ceignent et l'isolent, des murailles abruptes,
 plus qu'abruptes : elles ont des balcons, des consoles
@@ -3013,9 +2449,6 @@ de pénombre que tout le monde possède, plus ou moins
 où se développent mystérieusement les germes des
 idées. Et quand elles sont encore toutes petites, toutes
 frêles, élles ont la beauté, la joie, l'imprudence des
-jeunes enfants. île
-
-Be St PAYSAGES
 
 _ Des stalactites tombaient des voûtes. Restées toutes
 
@@ -3029,7 +2462,6 @@ protégé contre la chute des eaux du plafond par un +
 rebord de la caverne, le roc était resté sec, dur et nu,
 comme le jour même où la crevasse s'était ouverte.
 Arrivé à l'un de ces endroits, j'entendis Peyrony qui
-me disait :
 
 — Regardez : voilà les bisons !
 
@@ -3051,7 +2483,6 @@ la décision d'une concupiscence. Le regard a été fouillé,
 approfondi, travaillé longuement. C'est la caracté-
 - ristique de ces gravures : partout l'œil a été pris, visi-
 Ÿ blement, comme point de départ du dessin tout entier,
-és
 
 : quand Panurge ra Ee 2: $
 et l'artiste a su que c'était là, avant toutes choses, que
@@ -3085,9 +2516,6 @@ crocs. Des traits d'ocre rouge et jaune, de manganèse
 É noir, rehaussent ces contours. Des lignes géométriques,
 en plusieurs lieux, rappellent la silhouette d'une case
 ou d'une tente; et sur une paroi, isolé, tragique, avec
-di ES .
-
-M A PAYSAGES EE
 
 _ deux trous noirs à la place des yeux, apparaït quelque =
 
@@ -3173,10 +2601,7 @@ comme jadis Luther à la Diète de Worms: « Me voici, « * moi! Etje ne puis ê
 Je ne sais pas si l'on me pardonnera cet étonnement
 devant le mystère des Eyzies, niles pensées qu'il m'a |
 suggérées, et qu'on n'attendait pas sans doute. Je dois « SR à $ ;
-S'RBCÉTONS
-LR __ PAYSAGES ;
 _ pourtant ajouter encore quelques mots. On possède,
-Le .
 __ gravé sur un os de renne, le portrait de cet homme
 … primitif, qui eut l'honneur infini de donner à l'humanité
 ses premiers artistes. Figuré en pleine course, en plein
@@ -3193,13 +2618,9 @@ expression désespérée le grand rire triomphant du =
 chasseur. Ce fut là peut-être la plainte suprême et inconsciente d'un fils de ces artistes des cavernes. Mais
 en même temps, il avait prouvé de la sorte la survi_ vance de leur race.
 #
-Pl
-
-HS 5
 
 RAS es Re Le RE
 5 À À SAP HP Dean ce VA EPS
-Sainte-Hélène SRI -
 Je viens d'apprendre, comme tout le monde, que é
 } l'Angleterre, par raison d'économie, et parce que toute
 : occupation militaire y était devenue depuis bien des |
@@ -3212,7 +2633,6 @@ __ dépenses faites par les soldats; la plupart vont émigrer,
 | sera plus guère qu'un nom sur une carte. On saura seu-
 } lement que c'était un grand sépulcre, d'où le cadavre
 se même sortit avant les gardiens. LÉ, à
-“ss TEE
 En 1898, le hasard d'une croisière un peu vagabonde …
 me conduisit jusqu'à l'ile où mourut Napoléon. Je
 y publiai alors quelques notes dans un journal; maïs je
@@ -3223,17 +2643,12 @@ remontent du fond de ma mémoire. Il en est qui s'impoRTS sent impérieusement, 
 contours si nets qu'il me semble que je n'ai pas ou aussi
 bien quand je voyais dans la réalité du monde exté-
 é rieur, et que j'avais alors un voile sur les yeux; d'autres …
-AT A Sense 11220
-4 ‘+ 7 TOME
 
-RS a Fe
-pr esq ue effacées, presque insaisissables, flottantes
 com me des nues le matin sur un fleuve. Se souvenir
 - est quelquefois presque la même chose que rêver : on
 ._ s'aperçoit que c'est un tout petit fait qui vous a pris
 _ l'âme, et qu'il ressuscite seul, grandi, déformé peut-être,
 _ et jetant une telle ombre que tout le reste est perdu
-derrière.
 On ne peut entrer à Sainte-Hélène que par une brèche
 dans un mur. La brèche, c'est la vallée de Jamestown.
 - Le mur, c'est toute la côte, autour de l'ile entière. Il a
@@ -3271,7 +2686,6 @@ encore si on le laissait aller. Le jour, il regardait la 1
 plage : alors il lui semblait que la mer tout autour ;
 de lui était une froide chaîne roulée autour de son 4
 corps pour le faire mourir... Il n'est jamais sorti des
-chaînes... » À
 Olive Schreiner se trompe en un point : on ne voit …
 k pas la mer, de Longwood's old house, où on l'enferma;
 on ne voit rien! Mais on l'aperçoit sur presque tout le.
@@ -3290,16 +2704,12 @@ elle est en vérité, immense, infranchissable, sans,
 bornes, autour de l'île rapetissée. Parfois, d'une seule
 vague, cette mer qui ne connaît pas sa force brise des
 | 96
-” _
-
-FAN ù PAYSAGES
 
 baleines contre les rochers. Leur carcasse, dépecée par
 
 _ les habitants, pourrit; il n'en reste que de grands os
 blancs, à moitié broyés, pareils à de l'ivoire; et on les
 vend aux étrangers, pêle-mêle avec des images de
-Napoléon échoué.
 
 .… Une barrière de bois, des bosquets rabougris, un
 pré; et dans le fond, une maison, toute petite, sans
@@ -3324,7 +2734,6 @@ d'argent. Mais le grand souflle des alizés, la brise perpétuelle qui vient du 
 branches et leurs troncs vers le sol; ils sont là, figés
 
 _ dans une attitude immuablement désespérée, battus
-97 Panurge. — 6
 | SE
 
 es quand Panurge ressuseila
@@ -3377,44 +2786,15 @@ peut-être, quand j'y pense, la chose la plus singulière, à
 _le coup le plus mystérieux du destin : que l'aigle aux
 ailes cassées soit venu tomber un jour dans cette île où
 les moucherons mêmes ne gardent pas leurs ailes.
-i
 
-SR RS PTE NES QE ANR PE OT PE D) MECS TER
-FRE ATTEN s 88 & End Re Fa) net FAT ReRaL ra
-VIEN RL ANSE LT SE EU 2 Er D A LATE EN
 Édgé Le RTS PR RE RE VE 0 SES SUN PRES à
 
-ue $ CR COR EEE CRT PR SE
-RTS À à . z z $ LL UTL MEAREESe Er A A
-RTE $ cu Rs 0, © LS ER
-Ex at £ SIN XE SO ORNE RE PER
 ET DE S te Vis LEE ÉRRENSE EE AA
 Lui D 2 IPN 1 LI RNRERE
-PÉERA : A
-PF $ LT RSR
 ne $ x : NS tire
-
-22 fe À x 5%, à ARTS. à
-PCA AS 3° 2 TAF LERRT ES PAC CE D 3
-AU k $ RARES 7 ES RATE 0 EPP ES
-ik A ES € E = AN EST ER PA
-PAST ; +2 LP CHOCNEERESES SR
-PE Rs :
-
-RAS: , AC NY LR $
-
-+1 1e LANDES Le é 1 AN PAST MISES
 
 | FAR r 5, PR EE PINCE
 
-Le DC OR RE PRE TRE TERRS
-
-NRA LP RL RARES FO D MRC UE
-
-LE TRG ER PNR LS. TR LE AE PIE
-
-PES
-en Orient ®
 les rêves du Bosphore
 
 Le besoïn de repos et la passion toute contraire du
@@ -3440,9 +2820,6 @@ d'Asie, avec des collines plus hautes, descend en courbes molles vers la mer, el
 eaux qui ruissellent, une fertilité vaste ‘et régulière.
 L'Asie! Sans ce fossé si étroit qu'un vol de mouche
 
-101 Pañurge. — 6. ;
-
-D |
 OO quand Parure ressnsea
 __ n'en a pas peur, elle aurait débordé sur cette petite, ré
 _ faible et terne Europe! Mais si le fossé eût été plus EME
@@ -3459,7 +2836,6 @@ barbares. C'est ce qui fait dire à certains quilyaun
 dessein à l'univers. Malheureusement, si les choses ne É
 s'étaient point passées ainsi, elles se seraient passées à.
 autrement, et nous continueriqns à croire qu'il y a un à
-dessein. re
 .… Le vent, qui vient du septentrion, est bien plus
 fort, plus rude, plus frais que sur la Méditerranée. IL È
 mwa plus la même odeur, il sent la glèbe molle, l'eau. 7
@@ -3474,11 +2850,8 @@ marche de Chopin, et, à ces grands accords de harpe
 romantique, on se remet à vivre au temps où la nef  « d'Argo, montée par des héros presque de notre race, — w
 | ils étaient Grecs! — avançait vers le nord, tâtonnante, F:
 intrépide, hasardeuse et sublime. s 530
-102 < ee
 
 ne CS RS REP bts Fe PA
-ns
-ETES M 2 L'havelogs. 7
 | Le Bosphore. — Parler des beautés illustres de cette -
 | porte des eaux ? Tout est dit sans doute, et l'on vient È
 _ trop tard. Mais pour les goûter pleinement, pour les
@@ -3510,9 +2883,7 @@ sont si frêles et si claires qu'on dirait une cage, une
 Bosphore, de la Corne d'Or. Avant toutes choses, avant é
 les minarets des mosquées, les dômes innombrables,
 les maisons par dizaines de mille qui s'écroulent en
-à ; : 103
 
-fs RE NT ee
 quand Panurge ressuscit@
 cascades figées sur les pentes de Pera et de Galata,
 | c'est la beauté de cette eau marine qui frappe, enchante
@@ -3541,7 +2912,6 @@ ses eunuques s'en procura les plans, parvint à le reproduire avec une exactitud
 fit la surprise. Le sultan émerveillé donna à cet 3
 eunuque une fortune; puis il lui fit trancher la tête, …
 parce qu'un homme si intelligent devait être capable de.
-tout. 3
 
 Le jeune officier s'arrêta un instant, puis il reprit en
 hochant sa rude tête de guerrier mogol, dont les yeux 4
@@ -3550,17 +2920,12 @@ avaient pourtant une paradoxale douceur : 1
 — C'était cruel, mais sage. A sa place, j'en aurais
 fait autant. fs
 
-104 DRE
-
-RES | PAYSAGES
-
 _ Il voulait dire, je suppose, que c'est un des principes
 
 du gouvernement absolu de ne pas s'entourer de serviteurs trop intelligents. Mais ce principe n'est pas ignoré
 d'autres gouvernements, qui n'ont rien d'absolu. Un
 imbécile consciencieux est à sa place partout. Un
 homme de génie nulle part, excepté tous les cinq ou six
-cents ans.
 
 Le Sélamlik. — Tous les vendredis le padischah doit
 assister publiquement à un office religieux dans une
@@ -3579,7 +2944,6 @@ fois la largeur du boulevard des Italiens; pourtant trois
 
 _ mille hommes le gardent, sabre au poing ou baïonnette au canon. Il ne faut pas s'en plaindre : c'est |
 ce qui fait la beauté, la grandeur, le tragique de ce
-spectacle.
 
 Les étrangers y peuvent assister, du haut des fenêtres
 et des deux terrasses d'une petite maison appelée le
@@ -3590,10 +2954,6 @@ attention soutenue; et durant qu'ils sont là, on les surveille. Ces précaution
 elles sont à peine suffisantes. Il y a deux ans, au mois 3
 
 de juin, des conspirateurs chargèrent comme un canon
-
-ee 105
-
-Sr + = +
 
 Fe DURS BTE S EE UN 0 ve
 .
@@ -3628,14 +2988,12 @@ s'ouvrir, d'où va sortir la toute-puissance redoutable et
 triste. Tout à coup un grand cri rauque, sauvage, bref,
 mais répercuté par les murailles : tandis que tous les 4
 assistants restent muets, ce sont les soldats qui acclament leur souverain, offrent leur vie en présentant leurs
-106 e PR
 
 armes. Il vient en effet, précédé de quelques voitures,
 
 l'une vide, les autres contenant des princesses de la :
 cour, formes voilées de noir à peine entrevues. Il vient,
 sa victoria conduite par un jockey tout couvert d'or, un
-vieillard à barbe blânche, en longue tunique couleur
 paille claire, assis sur les coussins de devant qu'il ”
 occupe en entier, car il est puissant, pesant, rond de ë
 partout : c'est le ministre de la guerre. Le maître siège
@@ -3666,14 +3024,12 @@ berceau, on me mène chez un hodja, un saint homme
 qui a passé quarante ans dans la même chambre sans
 
 … en sortir une fois, méditant sur les attributs et la gloire
-Se. 107
 
 5 quand Panurge ressuscit@
 d'Allah. Une pièce de dix pieds carrés, sans autres
 = meubles qu'une écuelle, une natte, un tapis de prière,
 un foyer où je n'aperçois que des cendres froides, Et
 voilà quarante ans, je vous dis, qu'il est là! Je lui fais
-demander : 5
 
 — Est-ce que la beauté des choses n'est pas une
 prière? Ne méditeriez-vous pas mieux devant la Corne
@@ -3705,9 +3061,7 @@ dans ce pays de ruines, où si souvent la vie n'a l'air
 que d'un champignon malsain, qui naît en une nuit, et
 sèche avant la fin du jour.
 
-en Orient
 derviches tourneurs et derviches hurleurs
-26 septembre 1907
 Note pour les futurs Guides en Turquie d'Asie. — Il
 
 faut voir à Brousse une mosquée verte incomparable ;
@@ -3728,8 +3082,6 @@ tombeau de Mahomet II, le divin cimetière des poètes,
 et quand, assis dans le kiosque inauguré jadis, en
 présence des imams de la mosquée verte, par son ami
 
-‘ 109 Panurge. — 5
-
 D PRE de CR D
 | quand Panurge ressuscila
 _ Loti, on a partagé avec lui le pilaf et les aubergines ®
@@ -3746,7 +3098,6 @@ et de l'herbe. AS
 L'autre jour il me dit :
 -_  —]Ilya aujourd'hui une cérémonie chez les derviches
 tourneurs. Mais vous avez vu cela sans doute à Con- |
-stantinople ? À
 - Je n'avais pas vu les derviches tourneurs à Constan- |
 | tinople. Je l'avouai à M. Bay, et le sens qu'il a de :
 Vhospitalité le fit battre des mains. ;
@@ -3763,19 +3114,12 @@ visage de prieur une telle expression de gaieté caustique
 sur les placides faces turques : la bouche, les yeux, ”
 jusqu'aux rides, tout y pétillait de malice. On m'a juré 4
 qu'il était parfaitement pénétré de la valeur mystique
-110. ; A si à
-bc E OR EAN ES 72
-
-LL VOS SR
-
-Re _ PAYSAGES ÿ
 
 | des rites singuliers auxquels il préside. Je veux bien le
 
 croire; mais alors Allah, dont les desseins sont inson-
 
 | dables, a donné à son serviteur une physionomie
-regrettablement trompeuse.
 
 — Vous serez un peu étonné, dit-il en m'offrant une
 cigarette, par la plupart des détails de l'office religieux
@@ -3784,7 +3128,6 @@ moins difficiles qu'ils ne paraissent,
 
 Il admit pourtant que la congrégation, réduite à une
 vingtaine de membres, recrutait difficilement des |
-néophytes.
 
 — Ce n'est point cependant, ajouta-t-il, à cause de
 nos rites. On apprend, je vous assure, très facilement à
@@ -3814,10 +3157,6 @@ chanteurs avec leurs familles, et les spectateurs de
 
 _ choix. Autour de la piste, où un plancher fort bien ciré
 
-2 III
-
-A ee 1e 7 x e w à :
-
 quand Panurge ressuscit@ .
 remplace la sciure de bois, une balustrade, derrière
 laquelle se tient le public ordinaire. Dans ce publie,
@@ -3835,7 +3174,6 @@ aller s'asseoir en face, sur un tapis rouge. Les vingt
 derviches, pieds nus dans leurs babouches, étaient
 vêtus de caftans noirs et coiffés d'énormes bérets persans, de couleur bise, en forme de cône tronqué. Le ;
 cheik se prosterna. Les derviches saluèrent. Par trois .
-fois, leurs grands bonnets s'inclinèrent presque jusqu'au 1
 sol, vers le centre de la salle. Par trois fois, le cheik ,
 prononça d'une voix grave une invocation fervente.
 Puis trois fois encore, les derviches firent le tour de
@@ -3849,8 +3187,6 @@ taires. Dans leur mouvement orbiculaire, chaque fois
 que deux derviches arrivaient devant le prieur, ils s'arrêtaient, se faisant face, puis se saluaient profondé-
 ment; et ce tout jeune derviche, qui suivait immédiatement le plus vieux, accomplissait ce cérémonial avec
 une grâce délicieuse, une aisance de petit prince. En « 112 De |
-
-F 5 £ * PPAYSAGES
 
 û - même temps, au premier étage, un chanteur avait com-
 
@@ -3904,14 +3240,12 @@ s'arrétèrent enfin, aucun n'était essoufilé, leur front
 était sec; le petit danseur seulement, le beau petit ar- 4
 tiste souriait d'un air fier, naïf et victorieux. |
 
-Le %
 : La représentation — le mot m'échappe malgré moi |
 — était terminée. J'allai remercier le cheik, et quand
 je l'eus félicité du talent de son fils, ce qui lui arracha
 4 un sourire d'orgueil, josai demander :
 
 — Je viens d'assister à un spectacle singulier et passionnant, Mais oserai-je avouer que sa signification re- à
-ligieuse m'échappe ? : 4
 
 . Le cheïk me regarda d'un air étonné. 74
 
@@ -3946,14 +3280,11 @@ trop, la première lettre. Encore trop, la première aspiration. » Ce qui voula
 de croire.
 | Les hurleurs ont pris à la lettre ce fier paradoxe sur
 une lettre. Voilà pourquoi les théologiens les méprisent.
-es 115
 
-ù EN Er. ee! 1
 quand Panurge ressuscita SRE
 Cela n'empêche pas qu'ils offrent à l'Européen un
 spectacle plus divers que les évolutions des derviches
 tourneurs, plus énervant aussi, et qu'on ne quitte que
-brisé. ' É
 |
 Dans un faubourg de Brousse, tout proche du quartier français, c'est une grande salle carrée, très propre,
 très nue, mais éclairée par une lampe à pétrole et un L
@@ -3979,9 +3310,7 @@ Telle est la seule phrase prononcée par les chanteurs;
 et les fidèles, après s'être mis en rang, balancent lourdement leur tête en cadence. Bientôt ils forment, passant les bras sous les épaules les uns des autres, une
 sorte de double cercle, qui parfois s'élargit, parfois se
 resserre, À des intervalles très courts, la voix des chan- :
-116 * F
 
-25 NES PAYSAGES ; ;
 P teurs se presse et monte; et les fidèles, frappant le sol
 d'un pied sonore, répondent par une espèce de gémis-
 
@@ -4006,7 +3335,6 @@ rival du couvent de Bounar-Bachi. Tout à l'heure,
 
 _ lorsque gentiment il est venu nous souhaiter la bienvenue, quelqu'un l'a levé de terre d'un seul bras. Et il
 tourne, tourne, tourne; il tourne durant plus de vingt
-minutes.
 
 Enfin il s'arrête. Je souffre pour lui; et sans doute
 j'ai tort, car il sourit. Le cercle s'est rompu, et maintenant les fidèles se sont mis sur deux rangs. Les musiciens du chœur chantent autre chose. Quoi? Je ne
@@ -4025,9 +3353,6 @@ du temps, leurs traits sont tirés, leurs yeux hagards. Et
 
 _ tourner! Mon cerveau s'égare, et je suis obligé de fuir.
 
-117 Panurge. — 5.
-. DETRAEER à
-
 quand Panurge ressuscita
 Oui, ces gens sont convaincus; ce ne sont ni des
 acrobates, ni des histrions. Pourtant, le lendemain, je
@@ -4039,14 +3364,10 @@ mais d'autre part, il n'était pas fâché d'avoir été un :
 objet d'admiration, même pour un infidèle, et de .
 se faire dire qu'il était un grand artiste. Les mobiles |
 des hommes sont toujours plus compliqués qu'on ne |
-croit !
 |
-L è
-:
 
 |. LENS Sr manu re
 | en Orient
-Brousse
 La mosquée verte. — Faite de la même matière que
 la mosquée d'Omar à Jérusalem, elle est bien moins
 vaste, elle n'en offre pas les jeux de lumière miraculeux
@@ -4069,7 +3390,6 @@ _ d'intérieur, ce qu'on voit, je vais le dire bien simplement :
 - de ces corolles renversées, les soutenant, des murailles
 - comme faites en bijoux, ep vieux émaux d'éclat tendre
 # _ et calmé : ce sont les faïences illustres de la mosquée
-F6 119 :
 
 quand Panurge ressuscita
 verte. Elles vêtent le mihrab, l'endroit vide et sacré qui,
@@ -4091,7 +3411,6 @@ alors la couleur des cyprès, celle des chênes, des platanes, des müriers et d
 mers et des sources, celle des aïigues-marines, des
 pierres de la Mecque et des émeraudes. Voilà ce que
 produit l'enchantement des reflets, divin mensonge,
-adorable artifice. |
 Les langues orientales n'ont pas de secrets pour 2
 M. Bay, qui aime cette douce maison de prière d'un
 amour passionné. Il m'a traduit l'inscription tracée par
@@ -4102,9 +3421,7 @@ tout; et voyez maintenant ce que j'ai su faire. » Ah!
 qu'il avait raison, ce marchapd devenu potier, et comme
 on comprend son naïf orgueil ! ; j
 120 2
-. # À è Ux
 
-Î: 1 RS PAYSAGES
 __ Les ornements ? Quelques fleurs, des arabesques, et ;
 _ surtout peut-être l'élégance des caractères tracés par
 les calligraphes. L'écriture arabe permet de donner au
@@ -4120,7 +3437,6 @@ et terribles. Mais au-dessous, en caractères couchés,
 gémissants, humiliés, couleur de foin sec, se courbe la
 plainte du pécheur : « Seigneur, n'auras-tu pas pitié de
 nous ? » Tout cet art, sans doute à cause de linterdiction de représenter la figure humaine, est plein d'inten-
-- tions symboliques.
 Cet édifice fait comme un jardin fut construit au début
 du quinzième siècle, trente ans avant que les Turcs
 eussent conquis Constantinople, par le sultan Mohammed Tchelebi, le « seigneur gracieux », sur les plans de
@@ -4167,10 +3483,7 @@ leurs cultures, mariant sur le même terrain la nuance
 des vignobles à celle des olivettes et des poiriers, laissant croître çà et là un beau chêne, un noyer rond, un
 châtaignier dur et dramatique; car une extraordinaire 4
 fécondité réunit les essences exigeant les sols les plus 4
-À “Er
 
-FACE | pAYSAGES
-LS ENS HT
 _ divers, donne des démentis perpétuels aux agronomes.
 | Pays qui est l'orgueil du laboureur patient, pays qui
 _ réveille chez le voyageur le souvenir des paysages où
@@ -4200,7 +3513,6 @@ Du reste il y en eut, parmi ces chevaucheurs, qui
 _ n'oublièrent jamais leurs origines, le rude temps des
 … migrations armées, alors qu'on s'endormait avec le ciel ES
 
-ù 1 K ALES ETAT: &
 quand Panurge ressuscita
 pour toit; l'un de ces sultans a voulu ‘que sa tombe,
 comme celle de ses pères, fût arrosée par la pluie, et
@@ -4220,7 +3532,6 @@ durcie. C'est devant ce rocher qu'on se prosterne, non
 devant la beauté créée par les hommes. Que c'est donc
 beau, les imaginations d'une race jeune ! Que c'est naïf,
 que c'est fort, et que le cœur en est plus directement
-ému !
 
 Toutefois, dans ce pays charmant, les mœurs « n'avaient pas tardé à s'adoucir; même la foi musuk
 mane fut comme baignée de scepticisme. M. Bay a
@@ -4233,7 +3544,6 @@ a de mauvais anges. Un jour, trois héritiers allèrent
 — Notre père a laissé mille pièces d'or. Comme nous
 124 5
 
-ARR = PAYSAGES ”
 | mesavons pas compter, nous venons te demander de
 _ faire le partage.
 
@@ -4275,7 +3585,6 @@ montagne et rapportez-moi des violettes.
 Ils gravirent les pentes de l'Olympe et s'en revinrent,
 les pans de leurs robes tout gonflés de leur moisson.
 
-7 PR ou a
 : quand Panurge ressuscita
 L'air autour d'eux en était parfumé. Un seul parmi les LA
 derviches ne rapportait qu'une violette, et les autres se
@@ -4317,7 +3626,6 @@ sent d'une allégresse indéfinissable. 4
 
 Comment aurai-je le courage de m'arracher d'ici 2... j
 
-à en Orient
 le maître d'Yildiz à “e
 : — … O mes amis, dis-je, adieu, si vous avez le
 _ courage d'abandonner ces rives ! Pour moi, je reste en -
@@ -4340,7 +3648,6 @@ place : cette race a le génie de l'hospitalité.
 _ élémentaire que procure la liberté ? C'est celui de la
 promenade. Un homme qui ne pourrait aller où il veut,
 # peut-on dire que cet homme est libre? Dans la capitale
-€ LA 127
 
 _ quand Panurge ressuscita de D
 _ de la France, au moins six fois par an, quand j'ai voulu
@@ -4383,8 +3690,6 @@ M. Charles Diehl : un ouvrage bien intéressant ! 4
 
 #
 
-PA + ES PAYSAGES
-
 _ I ne répondit pas, mais il prit le livre et me conduisit
 dans un bureau où il y avait un employé. Cet employé
 avait une redingote, mais ce devait être un bien petit
@@ -4397,7 +3702,6 @@ Il ne me répondit pas, mais il prit le livre et me con- :
 duisit sur le quai, où il y avait deux employés. Ces
 deux employés avaient aussi des redingotes. Mais ce
 devaient être deux gros employés : ils ne faisaient
-rien.
 
 — Ce sont, dis-je, les Études by zantines de M. Charles
 Diehl : un ouvrage bien intéressant ! z
@@ -4422,18 +3726,11 @@ ouvrage bien intéressant! — et ne me le rendirent que
 lorsque je quittai la province. er.
 
 Un étranger en profita pour calomnier cet Orient que
-j'aimais.
 
 — Qu'est devenue, disait-il, cette liberté dont vous
-prétendiez jouir?
 
-; 129
-£ D)
-
-TR
 rue dde LA se se : Tr à
 — Il y a eu erreur, répondis-je. Je suis sûr quilya
-eu erreur! ML | TIR
 Quelques jours plus tard, comme je vagabondaisavec
 cet étranger dans les rues de Galata, j'aperçus à l'étalage d'un bouquiniste une édition classique du TZélé-
 maque de Fénelon, annotée par M. l'abbé Auger, « cha- :
@@ -4442,7 +3739,6 @@ correspondant de M. le ministre de l'instruction publi- :
 que ». Je l'achetai pour vingt centimes. Ce modeste
 volume s'ouvrit de lui-même à la page 31, qui semblait
 avoir été fréquemment lue et relue. Je lus à mon tour:
-: O Télémaque! al
 dit Narbal, : | :
 craignez de tomber dans les
 mains de Pygmalion, notre roi... Pygmalion, tourmenté par
@@ -4458,7 +3754,6 @@ les dieux, pour le confondre, l'accablent de trésors dont il …
 n'ose jouir. Ce qu'il cherche pour être heureux est précisé
 ment ce qui l'empêche de l'être. RS
 Qn ne le voit presque jamais; il est seul, triste, abaîtu, au
-F É « Fe
 fond de son palais : ses amis même n'osent l'aborder, de peur
 de lui devenir suspects. Une garde terrible tient toujours
 des épées nues et des piques levées autour de sa maison. 4
@@ -4487,78 +3782,16 @@ se hâtera de délivrer le monde de ce monstre.
 — Vous voyez bien, dis-je à l'étranger, qu'on ne m'a
 _ pris les Études byzantines que par erreur, puisqu'on $
 _ laisse vendre ici pour quatre sous des ouvrages aussi
-perfides. :
 | Tps
-nee "
 
-RP RES PE DTA MECS ARE AIN TES ASE
-
-FRE RS EMA PSS RE TRE e M RL AN ES
-
-be PS ART X + F d ERA À SEP à Lee MST *
-
-AN EE do ca sr ASS URS RTE
 PNA ART IT ÉGRN LE RE LT PNR ro NAS RCE pre
 
-RAR EE US ER To PANNE 20 PARA à RS RAA APPLE ER PIERRE PR Re
-
-DAS ETES + \ $ SA È CES € Ve ASF
-LA LE RER À É LILI PRET PR UN 20
-: 4 En 9 2e OPRITRES £ TALENTS $ ET 23
 | TÉRORERRREES a
-RP : æ el Fe 'ÉTSNMER ER RTS
-TROIS PRESS nu
-PRÉ RCE FAR EE 1 FA SAR CEA TES EN
-PURE Éd LIRE TT EEE FRONT LATE
-RS RER Fe el mure ARE AA
-ASSET : US © EN #
-: LE SAS A Ne
-ART - à LITRES ME. a *
-MARS AE À à L RULES T SERIES LT RSR ARE ESS
 DANS £a es RPM ie NE
-CARRE ET, = ", 46. NLLNT SANS AU ° :
-NEO \ F5 NE AÉNÉENSES
-TES PE s ë A Le Un :
 us LE Pt ARTE ; He ASPIRE re
 
-NA 22 PET Aie 5 RE Fe Der
-
-ka 3. LA 7 C4 < AVANT PES ARENA ER
-
-3. RS COL NT SR FA CEE OE
 RE Dee Sie RÉ NN A ERRURAUS on Lit
 
-PRESQUE DE LA CRITIQUE
-Panurge. — 8
-
-hs pe RP NU PR ME UE ENT ?
-
-PS TASSE MANS OS EC PER NE SE PRES
-
-ER MREN  MRRAS PRER ETM ER TEST
-
-TA © EN ASE DRE RE EP SRE SR ES DO TER
-
-RME NS Pan PS IR re EC ARE IRIS TEEN ER
-LES : Ra
-Dr in * D
-FÉÉLONPASES EURE mn JS TÉRERIEA RE
-ERP AR SENE ee D
-
-LE : sa I Es MSIE
-
-1 7 ETS ONE # ; LS TEA TRS
-
-RAP SLR | ; F= L RSR LA :
-
-re Ka CRIE ‘as RPC ÉOUrE var FT
-
-: 3 VE TROT RES PET PA ER age ELA NET
-
-PA 0 TRE PRET ECS Sr SET ET 0 0e %. Re EE
-
-ee
-PRESQUE DE LA CRITIQUE
 le ménage Chimène-Rodrigue
 Ce qui me fait paraître avantageusement différent
 des autres hommes, c'est que j'aperçois du premier
@@ -4600,9 +3833,6 @@ un moyen d'atténuer les effets qu'exerce, sur les
 jeunes imaginations, la lecture pernicieuse des bons auteurs. Les bureaux du ministère de l'Instruction publique « sont restés trop sincèrement spiritualistes pour reculer 4
 devant cette tâche. Résolu à les aider de tout mon
 pouvoir, j'ai porté d'abord mon attention sur le Cid de
-Corneille. à
-
-É.
 
 L'immoralité flagrante du Cid ne peut malheureuse- 4
 
@@ -4612,7 +3842,6 @@ des tirades entières à faire l'éloge du métier des armes,
 on y parle de se rendre sans égal dans la carrière de:
 Mars, de forcer des murailles, dompter les nations, et
 
-RTS PRESQUE DE LA CRITIQUE
 « sur de grands exploits bâtir sa renommée ». Le
 _ comte et don Diègue s'abandonnent aux discours les
 _ plus sanguinaires : et ces pauvres Maures sont excessivement maltraités. Si encore c'étaient des chrétiens! On
@@ -4676,9 +3905,6 @@ déchaîner dans la chambre conjugale, et jusque dans à
 les galeries du château de Bivar, résidence héréditaire 2
 du Campéador. LR a
 « Mais une autre circonstance est aflreuse, et elle suffit
-TF4
-
-2 PRESQUE DE LA CRITIQUE
 
 pour que l'existence du Cid soit devenue infernale. Il est
 
@@ -4701,11 +3927,7 @@ celui.qu'on vient de lire, de toutes les tragédies au
 point de vue des conséquences antisociales qu'en- $
 traîne leur dénouement, est indispensable si l'on veut
 conserver de bonnes mœurs à notre jeunesse républi- ;
-caine.
 
-& É
-
-4 LS LPO ERERRNERRe E
 un moraliste surfait
 Jean de La Fontaine, né en 1621, mort en 1695, fut un
 _ assez bon poète, et sut même manier le vers libre. Mais
@@ -4725,4 +3947,3 @@ morts. Mais vienne un coup de vent, il sera déraciné.
 * Tandis que le roseau, dont il avait raillé la fragile sou- è 4
 plesse, s'est empressé de plier et n'a pas rompu. Ce À
 _ chêne représente les grands de la terre, qui sont
-140 x es &

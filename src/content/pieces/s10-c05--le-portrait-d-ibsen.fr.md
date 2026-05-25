@@ -7,49 +7,24 @@ author: andre-suares
 isAvertissement: false
 wordCount: 44732
 ---
-
-[: INQUIÈME CAHIER DE LA DIXIÈME SÉRIE
 | 51 SUARÈS Là
 | Lee Pa: # ÿ #4
 | | 21 ke x
 « le portrai sen
-10 6 FEURRNE l à
 _  GAHIERS DE LA QUINZAINE ne.
 | __ paraissant seize fois par an Re
 | “10 PARIS LR
 | 3, rue de la Sorbonne, au rez-de-chaussée di,
 | D. “if
 
-ONE ere US VOTE PEN UE OP SAT ASE TE ARE DORE NN PSS ES
 DU CI ENS ET Te He Pare 1:
 er DANS NASA Re NS HA AN Eee EL ne :
-LAN LENS DER SE D EC EURE LNURE ON ME An Fo PAST OCR RER DE 0 $
 we Nc SE j FEU r AN OP, REA PC PEN ANR 5 Les 2.
-RE st: 2 LISE
 #4 F4 1 sr Ee FA
-2 * REA k à NA EE “+ n
-Lr PAZ * . & 1 GLS 1:40 PR
-RENE LOS PONERSE
 
-LES + TES
-AR 4 | TASSE |
-Ro j ie 14 Ke |
-DL PENEN Here
-ENS EN FN CRIER :
-PAL: ; k LES SA à
-FRA £ ESA VE
 SES # à as PA mt :
 TE Que É LATATÉSENSES
-x ès \ MR Er
-Wet res ES
-sh ES 4 RENTRER
-Ro Ÿ : LATTES
 
-à 4 AFTAL 3 ' L J F 4
-
-d * ST TU î
-
-R
 Nous avons publié dans nos éditions antérieures et À
 dans nos cinq premières séries, 1900-190/, un Si
 ë grand nombre de documents, de textes formant dos- 2 M
@@ -70,18 +45,13 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a éié justement établi pour donner, "4
 autant qu'il se pouvait, une imag'e en bref, un raccourci,
 
-0 ON ANSE SR ENS Sr OT ET ET TRES
 | ARS reS CAE APR TP APS ACIER
 | MR Ÿ TA ne HS
 | une idée, abrégée, mais complète, de nos éditions anté- “e je
 
-it RER . « . k ù RM:
-
 _ rieu "es et de nos cinq premières séries ; tout y'est classé Pan
 à dans l'ordre ; il suffit de le lire pour trouver, à leur. ee
 place, les références demandées. PSI E
-É'AE HE TA ES
-RU 4 : : à Ç HER
 
 He .Ge catalogue, in-18 grand jésus, forme un cahier Do
 
@@ -99,54 +69,17 @@ série; toute personne qui jusqu'au 31 décembre 1905 OO
 
 _vait, par le fait même de son abonnement, en tête de la 2
 
-D n F ; HAE
-
 - série; nous l'envoyons contre un mandai de cinq francs 14 ER
 
 … à ioute personne qui nous en fait la demande. TE
 
-At Rs.
-
-EU MONET)
 Den: à LE
 
-‘1084 “ER
-ei ë TE
-
-AE : Ge
-
-ER f FI NT E:
-
 RES RS ES AR et AS EP RU SRE
-à DR æ # AS
 
 MON Mint e codes ti 2e CN ONU
 Does ET ie # Z = < Hi = SRB ALEEN S. e |
-HS Ne 2 RES Te v
-LASER = s ra ee SELS
-ET s = ETES
-ES. 1, TETE
-Us - TE TSI
 
-Es Fe FALL |
-TS É LES |
-
-PET RE TS MR. |
-ee RSS |
-SEE >= x É s PQ A
-SET ER: |
-Re S RSR |
-LE TATS - ë 2 + Ne |
-gts 2 - me |
-LI A eu = ;” 3i Cl
-LS SENS LTÉE |
-a PRES Î
-Kar Ë = r # MT à |
-
-A Te ANT ss CHAN
-Ft : Re. GE LU $ '
-ALES n ge
-"2 DU MÊME AUTEUR a
 re aux Cahiers de la Quinzaine sr
 Pa Pr Le présent petil index donne automati- ce
 LR quement pour tout volume et pour tout {'
@@ -154,196 +87,75 @@ ET cahier indiqué :
 LE 5) a) le numéro d'ordre de ce cahier dans 4
 ro le classement général de nos collections 4
 P complètes, le numéro d'ordre de la série ju
-Re | étant naturellement composé en grandes Ts
 Re x capitales de romain et le numéro d'ordre :
 CRE du cahier lui-même, dans la série ainsi
 MS déterminée, en chiffres arabes, de sorte $ *
 | : TRS que V-17 par exemple doit évidemment se È
 "22 1e lire dix-septième cahier de la cinquième A:
-t série ; < :
 « re + b) la date du bon à tirer, ou, à son dé- $
 TAC faut, la date du fini d'imprimer, ou, à son :
 F1 : défaut, la date du cahier même; TR CES
-144 : HA
 D | è c) le prix actuel; : ;
 “& T4 { d) quand il y a lieu, c'est-à-dire pour nos
 TETE éditions antérieures et pour nos cinq preUS mières séries, la page du catalogue ana- à
 rh lytique sommuire où ce cahier se trouve je
-LÉ catalogué. FPE
 .  Suarès, — la tragédie d'Electre et Oreste, — trois actes 5
 | … (VI, mardi 21 février 1905....... lrois francs cinquante ;
-“APRES LS 5 4
-TS be. Fyel *
-l T2 De :
-
-RE PE RE DT ARR 7 LR Tee 0 ;
-es : De
-ae a RE QU
-É “ 37457 |
-k Re |
-FLE NE |
-. Ts |
-ÿ= SCERS !
-SE L End. €:
 
 RS ER EF L e Den Lo té
-
-TSI % ‘ ë VAT HEAR ER
 
 | DS + RO TSERS
 | DER R F> 22000
 
 | SR AUTRES ŒUVRES ÉE sa à
-: NA. : DE FLE
-HAE © < AC à
-
-40 r À Ÿ # pce
 
 D. On les trouve : à ; FR
 
-PE ‘4 "TUr
-
 __ aux Cahiers de la Quinsaine ; LAS £
-ee - x à r ER AN
 
 | "et à l'Occident, 17, rue Éblé. re
 
 | ER RE
-ÉEAET < RUE
-
-i PR x - ; à 4 BR.
-
-1 Le DES
 
 | ‘ ne Fe x L'RRD CE AA Fa
 
-‘F6 RU
-
-RL . F1 F: M Li DK
-
-MATE 7 RS F5 E ARE ASS RPC ES NUE €
-
-“ RS 4 PET TERRE D Re ie
-
-re RÉ RSS ra ete NS REP IET Be CS
-
 RER AN DE ele LPO A EC EE DNS
 
-ET dE Ar PEN DR UR MR MR PE 277 IP NC TARN D HE RRIE ES ete De
-
-RETEe RS FPT AS IEEE
-
-0 ES MA == += 4 RE DE 3
-
-RSS NE Ê Er 2 FRITES
-
-SÉRIE 37" SEE
-NES RS 7 —
-
-ke $ LES
-
-RCE? = NP URSS
-Es RS
-
-RS. s ELESN
 LE tie = STE
 
 Ses Ê ë PVO
-ER à =" 12 8550 |
-Let De 1
-
-SE me
-RS À Re |
-er — LI *
-
-Dr “ 5 57208
-lies es CLR ». CALE ES
 
 Li - brute dE OR. Puel à Lt Me
-DRE % - : 1 jé NES
-- CÉT SU RE RATS AIR
-FR ANSE : LS
-és au HS À F3 I MOT A Ge
 its kr à + dE NETTS
-ner 1€ ASC) NES
-; A FRA
-+ TA NE TS 7
 | Arr : J n DPF RENE
-:0E $ rirai FT SRES
-T° LCR NT UAE
-HR ; HS
-RER ES ; TVR
-L'ASE > HF
-RAS à Re
-Î % À 2h SE FEV
-MÉTRO TIbsen, == T0 LR
-TT : SU
 De EST 5 pee RUE
 
 Ca k SE Pb À IEEE Je Nù es ; CEA Re Sex See Le AS s :
-1 ETS PTS EPA RS SE "HE CHENET PES NES BRENT SSP Fe
-UNE RS RE UE SOS SENS DRE MEN RES
 
-SLT eut: £. DRE ben =
-
-7 REP ER 2 ï "TRS
-LIRE ee
-
-?: SA PE RE : . SR : We :
-LM ESS SAR LES
-See “PT Eee
-
-Are 42 * s : ae La
 à de S,-TPIETLONNEES
-TES Her 4 :. F0
-LEE NS ETES Ée ASS Root
-LC | : LC OR |
-ne à 7 FLE
-RE Far : : 3 :
 
 | RES 225 LENS
 
-3 PET LE Fee ES :
-
-Pt ÊS STE
-DER RES PE CH ours
 PRET es Le ER £ PETITE
-D” 4 Thil
-ca = ee
-ANS : HS
-+ TORRES “< | RAT
 
 ht Rene RENTE ja QU A LA TR ; PRES ru
-Ÿ À Ï 4 » L « #40 \
 | : ee
-ét FERDINAND BRUNETIÈRE
-‘4 ue ‘ Hat A
-Wu F a . , OS A ER
 … ZE ne vous Oterai point, dans la mort, la part de NS Lo à
 | 4 respect et d'affection que vous avez conquise sur. 150
 | … mon cœur rebelle: mais au contraire, je la ferai plus _.
 | Ent . RES 2
 | “grande, maintenant que vous en avez plus besoin, et tit
-12 CRE À a Fa
 | …_ qu'au regret de votre perte, mesurant le prix de votre
 | & présence, Je sens grandir le sentiment de ce que Je Wie
 M vous ai di. à SE RER
 | Je revois votre visage amaigri, où le pouce du mode-
-“LME Lé TA
 _ leur impütoyable cherchait la place du suprême coup Lo
 … d'ongle. Dans votre corps dévasté, je retrouve vos yeux 41
 Mn  quine mentaient pas, mais qui commandérent l'espoir |
 | et la volonté de tenir bon à l'angoisse, comme un double
-Ë “à LR: e - FES
 un jeu sur des ruines. LS EEE
 | | Vous aviez, à la fin, les traits d'un saint moine, ESS
 RE. Pad de
-OR": PART EE
-
-SR a th a HS
-“ AN Er ADN bg SC AR RER
-in 707 à Ferdmand Branetière
-A
 
 ss . rompu par les austérités. Or, vous étiez déchar: é' par
 “4 les jeûnes de la fièvre et les insomnies de l'éternel … |
@@ -356,11 +168,9 @@ SE Votre fièvre militaire faisait penser à un guerrier, “
 
 ; d'un vouloir que rien ne doit abattre. Et vous aviez
 pee aussi le voile résigné, la cendre du vieux prêtre, qui a *
-@ D.
 reçu le mot d'ordre pour la nuit et qui se soumet.
 ie Je vous offre ces pages que seul, d'abord, vous avez
 Fe comprises et que vous avez eu seul le courage de
-Ee $ 5 x « : Fr
 LD publier. Dans le temps où, parmi les puissants de la
 
 : _ Ville, il n'en était pas un qui ne me fit sentir l'immense « è différence qui me sépare d'eux, vous seul m'avez tendu « Ÿ ï la main. Vous étiez plus libre, plus vrai et plus sûr que A
@@ -373,13 +183,6 @@ Fe siècles passés, vous n'aviez aucune haine pour l'époque & ï
 
 5 É fature. Et vous pouviez avoir de l'audace, parce que
 
-a) EU
-WU 12 SC
-
-15 0 2 ES js EN
-
-A FERDINAND BRUNETIÈRE S
-
 om pus aviez de la vertu. La parole en vous était le témoin
 
 de l'action. Vous étiez solide et vous aviez le respect du
@@ -390,7 +193,6 @@ juste, qui est de ne pas mentir à dessein et de ne jamais Fe
 
 …Moilà ce que vous étiez; et je l'ai su quand vos Es
 
-:PLES " < £
 …mavez aidé. Vous avez ou en moi un homme qui 3
 
 … dédaigne infiniment la victoire, mais qui n'accepte a
@@ -403,71 +205,22 @@ vous et je prends votre cause. Vous qui füûtes loyal et
 
 Res brave, Vous ne serez pas vaincu, tant que je suis là. S
 
-"2 Décembre 1906. Le
-
-28 45 k
-
-SE: ; -
-
-PR a a
-RE dE LE DU ANT ARE bre PRES > SANS PTE Te =
-GE FURTÉRE RENE LITRES e PLU PRSTEAES ANR RES USE TROUS
-+ FFT ME - PARA TS.
-K FANS LS % HT? 220008
-KE d'A NES
-LÉVR ESP RERSREE 4 LA ER
-LASER +
-r: 5 SE TE . 4  L ve
-PTE : : 1
-MT OO EN > CAT
-x 43 CRT + av 7
-EE À
-
-nn Dr AR IRAN CAT IRIS ag
 on PL ee Ro # . 4 PSI SES
 
 Meter L'tPaR RES DE x EL 49 É PARA:
 
-+ Dre À $ . e é (LE
-
-É LEE » : fe
-ARE FLE
 | NE ue + “ ? He
 | : RES » e 10 Che
 | FA
-e RREREU
-1 NI » LR
-170 MEN
 | 1 ne
 
-RSS Le à
-RE rer RAUSNUE RTE +8 SR a RE Tr2 FRERES
-A T'AS
 > RER : > LR
-NP : 3 ; 1 1 »
-; ÿ & È RS sd Es e: SES » : RO |
 | LT MC
-40 KATA h
-da mr à SAC re
-< ds. DORE
-me. =) LEE
 ñ De Le nl
-ÉZRE , LE
-& FX
-x Ç ns) A EX
-,: + 4 { FLE de +
-: Ê ; RS :
-s : ETS
-- e E =
 
-A ME LAS DD 2 A arte!
 Ve É si La ro Wu À #5 fe 3 » “he ae
 | (LEONE | FT EEE
-: FUN 102 0
-15e ATOME
-ne. , CRE
 | /::i5n LE GENIE DU NORD LHOCUENRRAES
-; Fe 3h NES
 LE Norvège, navire de fer et de granit, gréé de SEA
 14 pluie, de forêts et de brumes, est mouillée dans le AA
 Nord entire la frégate de l'Angleterre, les quais de Dar e
@@ -484,9 +237,7 @@ mers, la tempête d'automne affourche les ancres du LS
 | bateau, et croise les câbles du vent et de la pluie. L'hi-
 | ver, il fait nuit à trois heures; dans le nord, le journe . Lo
 se lève même pas. On vit sous la lampe, dans une
-EE Re TRE
 | à SR à Des, k
-D S'ACRES
 
 le portrait d'Ibsen HORS ui: ?
 ombre silencieuse où les formes furtives ont le pas des
@@ -522,7 +273,6 @@ jamais jeter un regard derrière eux. Tout ce peuple n'a
 de passions que par accès. Il est exact, et plein descru- M
 . pules. Il n'a toute sa fantaisie que dans l'ivresse; elle 4
 
-MORALE DE L'ANARCME
 est lourde et triste ; la chair et l'âme sensuelle de l'amour p
 : ont moins de part qu'un appétit épais et court, qui a +
 honte de se satisfaire. Rien de léger dans l'esprit; une re
@@ -551,14 +301,10 @@ libre. (2) Le pays de la nuit polaire et du jour crépuscu- Le
 golfes endormis, où la mer pénètre au cœur des mon- ; 3
 “ agnes, s'y frayant un chemin de ruisseau : comme une Fe
 & la ngue de chimère, comme une flamme liquide et bleue, ER
-à (@) Borkmann. :
 (2) Dame de la mer ; Soutiens de La société. É
-- (3) Rosmersholm. |
 (Les Recenants. Ê
-É- F 19 >
 
 = le portrait d'Ibsen TE
-< s L. RENE
 le fjord dort entre les monts à pic, tel un Jong lac torPRE tueux; il est mystérieux et profond; au bas des morai
 _ nes énormes, ce filet de mer rêve dans le berceau dt Ë
 ravin, pareil à ce peu de ciel qu'on voit couler, entre les
@@ -578,7 +324,6 @@ sinon de la folie, dans l'âme. Au soleil, le coup de vent.
 ta prolonge le délire. Le risque de la mer et le paysage
 , marin agissent puissamment sur les nerfs de la nation;
 et par la langue, sur l'esprit. La Norvège parle une”
-langue brève, sèche, cassante; beaucoup moins sourdén
 que le suédois, moins lourde et moins dure que l'alle7 mand, il me semble; d'un ton moyen entre l'allemand <
 et l'anglais. Il est curieux que l'accent du breton, en.
 Basse-Brétagne, soit assez semblable à celui du norvé
@@ -591,7 +336,6 @@ et doute d'être soi; mais, dans l'orage et le bron
 20 4
 
 D on rem
-La MORALE DE L'ANARCHIE AE
 = le marin doit se résoudre, agir sur-le-champ, décider 7
 M. pour tout l'équipage et faire route. Même s'ils ne savent Fu
 | pas où ils vont, les marins calculent où ils sont avec une ce
@@ -624,8 +368,6 @@ fem mes y excellent. La suflisance de l'esprit, la plus ;
 biteuse de toutes, est la plus sans pitié. Il n'est pas ë
 royable ce que la femme qui sait lire s'estime au prix enr
 le l'homme qui ne sait qu'épeler. Voilà où se réduit, le de
-PER
-F + * 100 L A
 
 le portrait d'Ibsen Ru “Ai Es
 plus souvent, la supériorité intellectuelle. Elle est la
@@ -651,18 +393,14 @@ et la conduite. Corneille aussi a mis les débats de la polis
 tique sur le théâtre. Depuis, et même sur la scène fran- <
 çaise, on trouve partout plus d'avocats que de héros;
 mais dans Ibsen seulement les causes sont vivantes.
-Solitude
 Ibsen est né ardent, violent, sensuel et passionné.
 C'est la force des grands artistes, dans le Nord, que
 violence, ardeur, passion, ils ne peuvent s'y livrer. A
 tous les torrents de l'âme, les mœurs opposent une À
 
-io : 14 * MORALE DE L'ANARCHIE
-“Hal : - À k
 _ digue rigide. Le flot se creuse un lit; presque toujours
 A % Veau croupit; ce n'est plus qu'une mare. Mais, parfois, e
 …_ un large fleuve s'amasse ; il sait se donner cours, et la
-puissante inondation se prépare. Gp
 54 L'ardeur de l'homme dort et se concentre. Le silence
 est la matrice où la passion prend forme. L'avortement ; à
 F À est innombrable; mais, quand la gestation heureuse Ne
@@ -693,7 +431,6 @@ cher, par là, dès que je l'ai connu ! Ibsen a longtemps ;
 De danois. Sa langue passe pour la plus belle de la litté- ee
 
 le portrait d'Ib F AUES
-e porirat sen PR |
 rature scandinave ; elle est brève, forte, précise ; tendue
 
 à l'excès, et d'une trempe métallique; elle abonde en
@@ -737,8 +474,6 @@ C'est, d'abord, trois drames philosophiques, où Ibsen, de
 quarante à quarante-sept ans, rompt avec tout le passé de sa race
 j et toutes les idées de son temps. — Brand, 1866, où le monde
 
-KT ÉEROE
-LTESSSE MORALE DE L ANARCHIE s
 8 Rbhétorique du Nord
 Il y a quelquefois dans Ibsen un rhéteur, qu'on
 s'étonne d'y voir. :
@@ -750,7 +485,6 @@ autre. On est rhéteur d'idées comme on est rhéteur de
 phrases; comme on bâtit sur de grands mots vides, on
 
 fait sur de hautes pensées; mais la fabrique, ici et là,
-D . .
 
 … nest pas moins vaine.
 
@@ -761,7 +495,6 @@ ia nature se justifie; Empereur et Galiléen, 1869-1874, où le monde
 
 antique et le monde chrétien en présence, vaincus tous les deux,
 sont obscurément pressés de s'unir pour donner lieu à une
-…_ société future.
 4 Puis, douze drames modernes, où de cinquante à soixanteLei dix ans, Ibsen fait la guerre à toutes les formes de l'institution et
 de l'hypocrisie sociales. I1 s'engage dans la lutte plein de foi et
 d'enthousiasme, croyant de toutes ses forces à la vertu universelle
@@ -783,9 +516,6 @@ de Canard sauvage aux Revenants, Heddah Gabler à Maison de
 … Poupée, Solness le Constructeur à la Dame de la Mer, J.-G. Borkmann 3
 … à Solness même, et enfin Quand nous nous réveillerons d'entre les
 …rnorts, comme une négation décisive, à tout. El
-“#4 25 Ibsen. — 2
-
-L'AUES
 
 le portrait d'Ibsen 2
 
@@ -822,8 +552,6 @@ rie de l'autre partie, pour se prendre elle-même au sé- 4
 
 rieux. Chacun s'estime davantage de ce qu'il méses- i à
 
-time. T4
-
 L'abus de la conscience et du libre esprit n'est qu'une 4
 
 ' rhétorique. Toute éloquence qui se prend elle-même M
@@ -846,7 +574,6 @@ du Nord, s'ils le savaient, s'en feraient peut-être plus … 4
 modestes. de.
 26 4
 
-D 000 MORALE DE L'ANARCME | Eee.
 A Ni la conscience, ni l'action, ni le discours ne sont des 4
 | panacées à tous les maux humains : car là, comme V
 4 Alienrs, en le sens Pb presque toujours, qui seule 0e à
@@ -879,7 +606,6 @@ hs droit des femmes, le droit de la conscience. Et, au bout : me
 : _ du compte, c'est un homme qui a mal au foie, ou qui a ; Le
 _. été trompé dans son ménage ; une femme qui s'ennuie < ë
 L: à la maison, et qui veut voir du pays. de
-RARE Ÿ à
 
 de portrait d'Ibsen - ÈS
 Re Quelle rage de s'en prendre aux lois et aux idées
@@ -897,13 +623,9 @@ incoercibles des hommes! On bavarde à l'infini là"
 É dessus dans le Nord, — et bien trop gravement. On new
 Fe vous y tue pas un homme pour une pomme, — mais
 | pour un principe. FN
-+
-E :2560
 
 | Re | "7e
 | \ LE cs te à <
-Ÿ .: ‘ ;
-0 IMAGE D'IBSEN k
 28] FC) doit rendre à Ibsen l'hommage de sa solitude. ct
 5e Qu'il soit unique, puisqu'il est seul. |
 513 Il est bien vrai : rien ne nous importe que ce qu'il AS
@@ -918,7 +640,6 @@ _ enfoncée en soi-même. S'il est mystique, il leur fait Ps
 …— voir Maison de Poupée ou l'Ennemi du peuple, ces 5
 peintures cruelles de la vie. Il y a deux hommes en lui, Re
 U qui sont les deux termes du long débat entre le moi et st
-L' #4 V2 » CPE . 5
 le monde : un créateur et un critique. Tout ce qu'il /
 eu (1) « Ibsen seul s'y est logé et seul il y demeure : c'est comme un > 0
 É..  chardon qu'ils se seraient mis dans les cheveux et qu'ils ne pour- ; |
@@ -986,7 +707,6 @@ comme l'esprit même dont elle est la forme publique; *
 
 30 4
 
-M MORALE DE L'ANARCHIE AE
 une exquise finesse, une vue des caractères qu'on ne £ 4
 ni trompe pas, sagace et sans détours; une doctrine large s Fe.
 . Sans roideur, sociable comme la vie en commun est ss
@@ -1020,7 +740,6 @@ ra Ou bien, ce prodige de Shakspere. Combien Ibsen 3 à
 “…. de son dessin et de sa plume. Ë
 Manque d'être réalistes, Ibsen ni Rembrandt ne.
 
-F Re
 5 le portrait d'Ibsen LES
 . seraient point de si grands poètes, ni surtout si tragi-
 ë À ques. Mais, s'ils n'étaient pas les poètes qu'ils sont,
@@ -1035,7 +754,6 @@ La Vision est un palais, aux étages de clartés et de 4
 ‘à i dans les entrailles de la terre. Si l'on veut, le nom de à
 pi vérité convient aux caves et aux vastes salles de plain-
 : pied avec la ville humaine; et l'on donnera le nom de »
-% symbole aux autres étages, aux fenêtres ouvertes sun $ :
 é les nuées, et aux tours dont on ne voit pas le faîte. Ma is
 __: le poète est le maître unique de la maïson ; et, sans se
 Fe soucier du lieu où on le place, il va et vient dans ja
@@ -1118,8 +836,6 @@ de la comédie, En eux, et peut-être en lui-même, Ibsen 3
 dédaigne insolemment sa matière. Ilréserve sa puissance M
 (1) Cf. la Comédie de l'Amour, 1869; l'Union des Jeunes, 1869; Les 1
 Souliens de La Société, 1897. À
-(2) Cf. Brand, 1866; Empereur-et Galiléen, 1869-1853. 5
-&
 
 |. NET MORALE DE L'ANARCHIE T2
 . et sa poésie aux sentiments que les idées engendrent. u
@@ -1148,7 +864,6 @@ du peuple. Une défaite qui ne ménage rien, ni l'orgueil, LE
 — et une vieillesse, riche en gloire et en biens solides. De . t'es
 ‘& bonne heure, une habitude prise pour toujours de ne ke
 1 plus rien donner de soi au public, que les œuvres de 4
-_ l'esprit. à
 re . La famille d'Ibsen est d'origine danoise. Établis en LA
 “4 Norvège, les Ibsen se sont mariés dans le pays; plusieurs ë
 “. femmes de la maison étaient pourtant des Allemandes. :
@@ -1189,9 +904,6 @@ son orgueil a grandi dans l'humiliation. Il a bien fait
 plus que de prendre ses grades; il a dû conquérir le
 droit d'y prétendre. C'est sans doute pourquoi il 4
 
-D RE EL Dre mr
-ours
-20. © MORALE DE L'ANARCHIE A
 beaucoup à son titre de docteur. (1) Il a cru dompter 348
 son pays et son temps, dans l'allégresse de la première 3
 … victoire, quand le sentiment de sa force et l'ivresse de Fa
@@ -1224,8 +936,6 @@ oui est gradué de Christiania, en date du 3 septembre 1850 : il ? 5
 avait vingt-deux ans et demi. Son diplôme porte la mention : non 3
 _contemnendus. Il a de bonnes notes en latin, en français, en ;
 Mrcligion, en histoire, en géométrie. IL a mal pour le grec et
-Varil hmétique. es
-de #2 DT Ibsen. — 3
 
 À le portrait d'Ibsen RE
 FÉ son public: les unes n'eurent pas de succès; les autres
@@ -1249,7 +959,6 @@ de et sans joie dans toute sa richesse pensante que, trente
 Il a fait comme Dante et le prophète: il est sorti de la
 : ville ; il a pris la route de l'exil, secouant la poussière
 1e de ses sandales sur son peuple, et, d'abord, sur ses
-amis.
 Il a connu la faim, le mépris des plus forts et du
 public. Comme il a beaucoup aimé la victoire, et le
 rêve de la puissance, il a béaucoup souffert de la
@@ -1260,8 +969,6 @@ défaite, et il en a ressenti l'outrage. Il y a pris une
 - 1866; à Ischia en 186). Il vit quatre ans en Italie, et la plupart du …
 temps à Rome même. On l'y retrouve plusieurs fois de 1870 à 18805
 
-* RC A ER ARR ee pe RE Te REIN
-_ MORALE DE L'ANARCIIE Ÿ
 Jepu is près de trente ans, il n'avait pas cessé d'errer, se
 ivant en Italie et en Allemagne, tantôt à Ischia, tantôt S
 à Muni h, et le plus souvent à Rome. Il quitta Rome, RL
@@ -1279,7 +986,6 @@ l la Norvège. Il ÿ rentra donc, en 1891, pour ne plus la À
 | mou & quelque part. Et s'y prendre un peu à l'avance. Re
 Ainsi l'on prend ses quartiers d'angoisse. A
 + Secrets de la puissance à
-LTUÈR nc
 | . Ibsen paraît avoir passé cinquante ans de sa vie à F2
 nourrir la force de son grand âge. Il n'y a peut-être pas rs
 un autre poète qui n'ait vu tout son génie que dans la te 5
@@ -1292,7 +998,6 @@ aime à se faire d'Ibsen l'idée d'un vieil homme puis- LS
 mil 5est arrêté aussi à Naples et à Sorrente. De cinquante à RCE
 | soixante ans, il a surtout vécu à Drésde et à Munich. Il doit ses ASS
 | remières victoires aux théâtres allemands. è è ne
-(1) Lettre à M. G. Brandès. ES
 
 le portrait d'Ibsen ME
 sant. Du reste, quel homme vraiment grand n'est pas
@@ -1327,9 +1032,7 @@ hommes non communs agissent hors du commun ordre,
 et n'ont pas besoin de raisons. Trahir une grande force, “)
 c'est le plus grand crime. Il faut donc vouloir, il faut oser à
 être soi-même. Quiconque doute de soi n'est pas digne
-4o
 
-‘5e : « 020 MORALE DE L'ANARCHIE | ; :
 M a e se faire croire. Le doute est la faiblesse même. Croire £
 à sa propre vérité, pour que les autres y croient ; et de >
 … même à son droit, à son autorité, à sa force. Qui a une e
@@ -1380,13 +1083,11 @@ de mouvement. A la campagne, on ne s'abuse plus *
 guère: à cause de ce terrible silence. On y entend
 marcher le temps. On y écoute tomber ses pensées ; et
 c'est entre les mains de la mort que coule tout ce
-sable. Cinquante ans, cinquante minutes au sablier.
 Ibsen n'est pas aimé, on l'admire. Il ne sera jamais
 ‘ cher qu'aux puissants qui sont tristes; et à ceux qui
 voient le monde dans la lumière étrange du crépuscule,
 sans être sûrs de ne pas faire un songe à la fois trop
 frêle et trop solide, terrible et bouffon, odieux et k.
-pitoyable. :
 Avant d'en venir là, Ibsen a eu tant de confiance et
 d'orgueil qu'ils suffisaient à beaucoup de bonheur
 ÿ encore. L'homme de foi n'est jamais tout à fait mort …
@@ -1396,22 +1097,17 @@ optimiste en ce qu'il croit possible de faire succéder un
 idéal à un autre, en s'élevant même de ce qui est moins
 parfait à ce qui l'est le plus. Jusqu'en ses derniers
 
-LEE DR ES Loti Dre Re at Per ROUE :
 OS DR Cet TEL 1e ER
 
 . _ MORALE DE L'ANARCRIE HSE Et rer à
 temps, Ibsen n'a jamais été sans uñ idéal ou deux, où
-LE NAT : ÈS ,. té = 2 ER
 -même trois. (1) Cest plus tard qu'il a vu qu'onneles
 
 - trouve pas si aisément; et qu'ayant perdu cette lumière, É RS
 « . iny a plus qu'à s'en aller dans la nuit noire. PR AE:
 —_ Ilxy a point de pensée si amère, ni de vie si désen- De
-TN CR va ;A + FLOTTE
 . chantée qui ne fassent encore à l'homme des promesses  …
-yes DR mer . Re TE -
 …_admirables, s'il garde intacte La foi à sa propre vertu OP
-Re 8 prop ; ETS
 et lespoir d'y faire parvenir le monde par les voies de LEE
 “la pureté morale. La conscience d'être pur est à l'âme 20
 - ce qu'une source d'eau, ouverte au flanc d'un glacier,
@@ -1425,7 +1121,6 @@ porte le remède aux autres; s'il se plaint, c'est de ne PS ê
 est son espérance qu'il lui faut seulement être libre LEE
 “d'agir pour être sûr d'abonder en actions parfaites. Il RER
 se sent une vigueur irrésistible ; il se trouve le plus près 4 à
-Se # à te
 _ de son Dieu et de soi-même. La pureté morale sufitàa
 “tout. H n'est bonheur qu'elle ne supplée. Ibsen en exil, Le
 “tournant le dos à sa patrie, ne compte plus sur la
@@ -1433,7 +1128,6 @@ _ de son Dieu et de soi-même. La pureté morale sufitàa
 comme il est, et d'âme impérieuse, il sait bien qu'il faut < à
 dire adieu à la fortune : peu importe. Que son cœur se a
  pétrifie, au besoin ; désormais, ii est homme à se tirer 6 D.
-a * Fe
 (1) Ibsen aime même beaucoup ce mot si vague et si froid. Cest
 un trait de sa génération. Les hommes qui ont eu de vingi à Fe de
 trente-cinq ans en 1848 ont fait un terrible abus de « l'idéal ». Mais #
@@ -1443,7 +1137,6 @@ On n'a pas souvent mieux à se mettre sous la dent. Et les hommes : ES
 > SA =
 
 le portrait d'Ibsen DR:
-à É
 - . d'affaire; il a fini sa vie de plaine, il s'est établi surles 2
 hauteurs, « en liberté et devant Dieu ». (r) Il se croit |
 sorti des passions et de leur guerre cruelle. Comme on #|
@@ -1461,21 +1154,9 @@ _ souffre-t-il moins qu'en secret il ne s'en vante.
 L'âme d'Ibsen a presque toujours été d'une pureté
 glaciale. Il est unique par là entre tous les poètes; car
 il n'ignore pas les passions : tant s'en faut, qu'il va bien
-au fond. : :
 ( ») Cf. Sur les Hauteurs, poème d'Ibsen, traduit par G. Bigault
 de Casanova.
 
-\ API PUR LEEIRA 0 AURA 0 2e RP PS APR
-
-2, RH É é 2e Dir.
-
-2 RSS + mr
-
-CH # aire 4 d 1
-
-L x, + a
-nor - IBSEN OÙ LE MOI ù à =.
-Bu, UE
 “y £s idées sont tragiques. Les idées sont émouvantes. DATE
 
 1 Les idées sont pleines de passion. Les idées sont es
@@ -1491,7 +1172,6 @@ artiste y prodigue de sa vie propre, et donne vraiment LS “2
 - le jour aux idées pour qu'elles soient vivantes. de
 …. La vie est le don propre de l'artiste. Il peut y avoir LE
 … des poètes tant qu'on voudra, de belles idées, de nobles % ke
-EP ñ < FRE : ‘
 … formes : la vie seule est la marque de l'art. Où il yaun : k
 — homme vivant, il y a une œuvre d'art. Le don de la vie ù : L
 
@@ -1499,11 +1179,9 @@ EP ñ < FRE : ‘
 … l'homme ne va plus haut : c'est qu'il n'y est pour rien, dE
 « et proprement sa faculté divine. SAS
 La tristesse d'Ibsen est celle de l'idée vivante. Sa fe
-8 : SE
 
 sombre humeur vient de ce qu'il met sa vie dans ce te
 qu'il pense. C'est le plus pensant des poètes; mais il #
-‘5 45 Ibsen. — 3, F
 
 le portrait d'Ibsen TER
 a bien plus que de l'intelligence; il respire la déception ke :
@@ -1538,7 +1216,6 @@ mérite est de rester dans l'ordre, il me semble; car 4
 ils ne sont pas seuls, et leur vertu est de relation à
 _ l'ensemble.
 
-4 MORALE DE L'ANARGME
 | L C'est p arce qu'on se croit quelqu'un qu'on se rebelle k Fe à
 conti e toutes choses. Je vois la révolte en tous,etjene
 … vois de moi presque en personne. Elle vient des idées re
@@ -1571,10 +1248,7 @@ qu'il touche. Rien ne trouve grâce devant lui, que læ ee
 Kl es idées s'animent. L'empire de la douleurest livré aux ee.
 4 pe ssions. Seules, les passions fécondent l'intelligence 2 TS
 Se du poète ; et c'est aux passions seulement que les idées * La
-24 = : 3 Rs
-Ds LÉ:
 
-: (APN
 le portrait d''Ibsen ne)
 empruntent la vie. L'idée est à l'image de l'homme qui ; 5
 pense. Il ne s'agit point de science, certes; mais de ce à
@@ -1609,13 +1283,11 @@ poir, et d'une mort très profonde.
 A moins de la religion, il n'y a que l'art seul qui per48
 
 | D 5
-…._ …_ MORALE DE L ANARCHIE ee
 . mette de vivre. Je parle pour ceux qui ont un cœur CEE
 . vivant; non pas pour ces estomacs faciles, qui se nour- :
 *@ rissent de papier et s'engraissent de formules. Quel ?
 - artiste désormais ne se verra point enfermé dans ;
 À Ja souffrance, comme dans une cellule, au centre de ge
-pe ranivers ? ES
 …_ Je soufre, donc je suis : tel est le principe de l'ar- 4
 Ée tiste. La vie et la douleur sont les deux termes de
 « l'être. Toutes mes idées sont vivantes et passionnées ; se
@@ -1623,7 +1295,6 @@ ES en elles, c'est la douleur qui met le signe. Si elles ne
 (2 sont désespérées, et chaudes comme la vie même, que Fe
 ë me font les idées ? — L'homme qui vit avec force n'a |
 É que faire des idées mortes, ce gibier de savant. ;
-Façons d'être LS
 È Le Nord vaut peut-être mieux pour la morale. Maïs le
 . Midi vaut mieux pour la vie. à
 C'est dans le Nord que l'art est un œuf d'aigle couvé L'ETÉ
@@ -1636,11 +1307,9 @@ Le pesante, parce qu'elle est anonyme; mais enfin Léon X 5
 ë n'avait pas si tort quand il ne voyait dans la que- 5
 . relle de Luther avec les légats de Rome qu'une dis- HE
 4 pute de moines : le Nord tout entier, depuis, s'est fait 9,
-_ théologien.
 # La théologie des laïcs enferme les mœurs dans une ;
 Ë étroite prison de préjugés et de pratiques. La stricte
 morale qui condamne toujours, et toujours par principe, 2
-È 49 3
 
 era le portrait d'Ibsen ENS . |
 telle est la redoutable puissance qui, pendant trois |
@@ -1673,10 +1342,7 @@ Dans la moindre ville de France ou d'Italie, soumise =
 toujours eu plus de liberté véritable que dans ces pays
 du Nord, où est né, dit-on, le premier homme libre. LE!
 Comme si la liberté consistait, d'abord, à voter l'impôt
-5o E |
-Fe
 
-Re à __ MORALE DE L'ANARCHIE HE *
 _ à deux cents lieues loin de son âtre, ou à dire ses prières ASIE
 - dans le patois de son canton! La meilleure prière est E FA
 _ celle que l'esprit n'entend pas, mais que son Dieu entend. Ge me
@@ -1709,8 +1375,6 @@ lui répond par des injures, et on le traite de pirate. Puis, FR
 k vient un jour, peut-être plus morne que les autres, où RME
 4 tout le monde, barbotant dans le marais, sous les yeux #
 E d'Ibsen, se vante d'être pirate comme lui. =
-F 2004 À
-ee 51
 
 le portrait d'Ibsen RS,
 
@@ -1738,7 +1402,6 @@ continué d'y vivre. Les gens du Nord ne bavardent peut
 être tant de l'idéal que grâce à l'espérance, nourrie par-
 
 .. fois plus de vingt ou trente ans, d'enfin passer Fhiverau
-soleil.
 
 La lumière du Midi, elle aussi, n'est qu'un rêve.
 Là-bas, la vie est plus facile. Le malheur veut que
@@ -1748,8 +1411,6 @@ si belle. Je suis dans la brume du Nord : qu'on me
 donne le Midi, et la joie du soleil. Mais, si je les avais,
 je les fuirais. Dans la pleine lumière, c'est la pleine
 horreur du destin et de l'homme. On ne va là-bas que à
-
-52 à
 
 LE _ MORALE DE L'ANARCHIE sv
 | pour en revenir, il me semble. On le voit assez bien de
@@ -1763,7 +1424,6 @@ ns. d'être docteur allemand. Dans l'Ibsen, une des faces,
 une affreuse amertume : le miel de la politesse, il en :
 La est oint, et les mouches s'y laissent prendre. Un vieux ae
 is Viking, oui, et bien hardi, — mais qui a coulé son À
-É . canot. :
 sa Figure
 Le. Une grosse tête sur un petit corps; et, face d'un
 _ large crâne, une figure ronde qui fait centre à une SA
@@ -1780,11 +1440,8 @@ Ja la chair rose, et le poil blond des Scandinaves : (1) tout - :
 de l'air doctoral, de la tête carrée, et du maintien qui De
 % hésite entre le professeur de théologie et le médecin. res
 … A quarante ans encore, Ibsen n'avait point cet air de Ê
-RE —_—_—
 S È (x) « Mince, un homme au teint de schisie, avec une large barbe,
 …_ noire comme du charbon », c'est le portrait qu'en a fait Bjoern- L
-stjerne Bjoernson. ;
-Re,
 
 le portrait d'Ibsen ar |
 docteur, maître en toutes les sciences de l'amertume, w}
@@ -1819,10 +1476,6 @@ lui gagner le trouble; il est bien loin de respirer le
 même apaisement que Tolstoi.
 De la jeunesse à l'âge mür, er effet, la figure |
 d'Ibsen a subi une inversion singulière. Les deux lignes
-54 \ ;
-n)
-
-Mu : - MORALE DE L'ANARCHIE. FER
 
 | do rs antes de ce visage ont troqué, l'une contre l'autre, te
 . l'expression qui leur était propre : les yeux parlent
@@ -1889,13 +1542,11 @@ douceur lointaine dans ces yeux qui rêvent et qui sont
 distraits, même quand ils écoutent; mais une douceur |
 ? courte et sans emploi; peu de complaisance intérieure :
 il acquiesce à tout ce qu'on veut d'un mot, pour s'en
-56 |
 
 | É à à FLE MORALE DE L'ANARCHIE | é
 | _ défaire, — d'un mot. Mais il dit « non » de toute sa 45e
 # force, au fond du cœur, et, immuable dans le refus, ii:
 même quand il se dérobe, il refuse à jamais le consen- ;.
-_ tement.
 - _ Il a toujours été très sensible au suffrage des femmes. ASE
 F Comme plusieurs hommes du même ordre, il en aime É<
 la société ; ou plutôt il se plaît dans leur compagnie, à
@@ -1924,21 +1575,16 @@ Un homme d'un certain ordre ne pardonne guère aux ve
 — froide que la colère. Le même homme n'a point d'effort L ‘ eo
 ba faire pour sourire aux femmes. J'en sais, des plus LR
 …_ perspicaces, au regard le plus aigu et le plus sévère, 4
-el £
-En . #
 
-; |
 le portrait d'Ibsen en ||
 que toute femme plaisante aisément désarme : la sévé | à
 rité ne tient pas devant un joli visage, et l'œil le moins …
 dupe veut être dupé par le charme rieur de la tendre
-jeunesse. £ 2 S 4
 Comme Gœthe, Ibsen aurait aimé d'être peintre. h ë 4
 travaille toujours seul; il ne confie jamais à personne, M
 ce qu'il fait; nul ne connaît rien de ses drames que
 publiés; il ne dicte pas et n'a point de scribe. Il copie = À
 ses œuvres de sa main, qui est grande, ronde, serrée, | 4
-entièrement renversée à gauche, marchant à reculons M
 enfin. Il aime les tableaux; et toujours maître de soi, A
 sans boire trop, il boit très dur et sec. LR
 Ce petit homme, au dos solide, les épaules larges et
@@ -1962,7 +1608,6 @@ point cette tête de diable à cheveux blanes, soudain
 sortie de la boîte, — ici, le corps vêtu de noir, l'habit À |
 correct d'un digne gentilhomme. La douceur de sa jolie 4 |
 
-MORALE DE L'ANARCHIE Le
 | SNA URSS À à
 voix, le timbre presque féminin de son accent, l'agré- ‘
 ment menu de ses gesles, tous les soins qu'il donne aux me
@@ -1996,7 +1641,6 @@ he jamais sous la coiffe que les pères ont portée, et qu'à è
 Ë _ monde. La correction est une forme de la droiture, après ; Fe
 tout; dans le Nord, elle supplée à l'élégance. ER
 .  Tolstoi et Ibsen, différents presque entout, l'Orientet 7
-TASER Re:
 
 le portrait d'Ibsen A
 le Ponant de la révolte sociale, ne diffèrent en rien plus ni
@@ -2028,7 +1672,6 @@ paire. Il est debout dans la prairie, robuste et ferme … \
 encore des épaules, mais le poids du corps tombant sur RE
 (1) Ibsen est né à Skien, au Sud de la Norvège, le 20 mars 1828. 4
 Tolstoï est né à Iasnaïa Poliana, au cœur de la Russie, le
-= 10 septembre 1828 (28 août, vieux style). ; x
 
 TR fre : MORALE DE L'ANARCHIE sy
 les genoux fléchis. De larges, de grandes rides, un ee
@@ -2058,13 +1701,8 @@ Jusque sur le lit de douleur ; c'est un prophète d'une |
 espèce moins secourable que je reconnais dans Ibsen :
 + il sait, mais il n'aime pas; et la science, en effet, est la &
 . prophétie des lieux où le soleil de la vie se couche. FA
-ë ee
-Er »
 | Ibsen. — 4 t M
 
-à Ÿ $ Fe 7e
-QUE LE MOI F _ +
-NE PEUT TENIR LA GAGEURE IDÉALISTE |
 LÉ climat et la douceur de vivre font les sceptiques. Je M |
 1 n'en vois de vrais qu'au Midi. Le dur ennui pèse sur |
 -_ l'âme du Nord, quand elle doute ou qu'elle nie. Il n'est 4,
@@ -2084,10 +1722,6 @@ l'esprit est pareil à cet insecte stupide qui passe la. D |
 moitié de son existence à filer un cocon, et l'autre |
 moitié à le détruire. Rs |
 Dirai-je que le sérieux donne une force mortelle aux | |
-
-D EN Cr
-
-: 15 MORALE DE L'ANARCHIE A 4
 
 , _ poisons de l'esprit? Il les porte à ce titre où ils sont
 foudroÿants. Il vaudrait mieux que les esprits libres, et
@@ -2150,7 +1784,6 @@ mais ne l'est pas beaucoup plus, qui l'est seulement. 74
 Ibsen a créé des formes vivantes: elles n'ont de beauté
 que grâce aux idées dont elles sont pleines ; dans leur +4
 ardeur, elles sauvent la misère de ce théâtre, car il a 4 |
-grand besoin d'être sauvé. -.
 La France, la Grèce, Shakspere ont les rois, les Se
 héros et les dieux ; les passions y sont des princesses
 dans la pleine lumière ; cette illumination pare les”
@@ -2179,9 +1812,6 @@ Es d'une pureté sublime. Souvent, Ibsen accomplit ce que g'
 
 “_ ancien, bien mieux qu'Ibsen ; mais Ibsen en connaît Re
 | à … l'ordre et le ressort mieux que lui, et il est plus drama- SP
-_ tique. 4
-ë Art d'Ibsen Fe
-ë 5
 É La beauté de la forme est un effet de l'ordre: la “
 Fi recherche de l'ordre, un effort à sortir de l'anarchie : ES
 “ c'est en quoi l'artiste, quelque anarchie qu'il professe, E
@@ -2194,16 +1824,13 @@ Fe doit être détruit, soit. Maïs, pour avoir foi en soi-même ;
 : (x) Le cauchemar du soleil, dans les Revenants. La forêt dans un e |
 a grenier, du Canard sauvage. La tour de la maison, dans So/ness. À
 “ La mort sur la neige, de /ean-Gabriel Borkmann. ms
-4 É 65 Tbsen. — 4. à |
 
-RS es |
 le portrait d'Ibsen LORS Re |
 $ . personne, hors de France, n'a plus aimé l'ordre. Elle M |
 
 est brève, aiguisée et dense: elle a des arêtes conpai aies, |
 à l'antique. L'action du drame peut être lente, çà « th; à |
 elle n'en est pas moins précipitée sur la crise; et la crise 108 -|
-lourde d'idées, estunnœud d'énergie. Pourles grands fans
 de l'âme et les combats violents de l'esprit contre lesprit, Ibsen a l'imagination la plus vaste. Son théâtre est. 0
 le registre des révoltes morales. Le dialogue n'est pas #3 5
 _ tant vif que dru, aigu, tranchant: il est riche en mots ne
@@ -2229,8 +1856,6 @@ canique de l'âme a trouvé son maître. Ses héros sont 4
 des squelettes qui parlent d'une humanité puissante et N
 morne: ils portent les noms de très grandes passions, 4
 qu'ils ne servent pas. ibsen-ne veut pas admettre qu'il 4
-66 .…
-Lt
 
 ee _ MORALE DE L'ANARCHIE a
 è | pré fèrelésidées aux êtres vivants. Et il dit vrai;c'estlavie é
@@ -2253,7 +1878,6 @@ ee Le clair-obscur est propre à la vie de l'art mieux que Rs Ÿ
 2 que la clarté joyeuse ? — Un accident dans les ténèbres. =, Re
 Ë Que le soleil est donc près de nous, au cours des heures de
 Ë grises! un seul rayon suflit à un grand rêve. Er
-k. Profondeurs morales #
 2 … Ce barbare unique est épris de vérité comme le sable L <
 k d'eau. En vain, il se détourne de la cité commune; il ne ps
 4 croit plus à sa mission de bâtir ni de détruire; il ne LS
@@ -2264,8 +1888,6 @@ k d'eau. En vain, il se détourne de la cité commune; il ne ps
 « comme il ose à peine donner dans quelques artifices, be
 
 . il finit par ne plus rien imaginer qui ne soit direct à sa À
-
-É 67
 
 le portrait d'Ibsen ES
 méditation intérieure. Pour admirer les dernières
@@ -2300,7 +1922,6 @@ chacun d'eux s'est formé de l'unique et lent dépôt de Îl
 son âme sur soi. La neige, les monts, les vents et la
 nuit des pôles les ont réduits à la prison d'eux-mêmes.
 Il ne fallait rien moins pour abattre ces violents.
-68 :
 
 MU MORALE DE L'ANARCHIE | rs
 | | Quelle loi pouvait avoir raison de ces natures élémen- k %
@@ -2336,9 +1957,7 @@ mœurs. Aigle sombre, qui hante les glaciers, il en Fe
 porte l'air irrespiré, peut-être irrespirable, aux ruines ës
 
 qu'il vient visiter. Il fait planer au-dessus du mensonge tous]
-; er Fe :
 
-A RO |
 le portrait d'Tbsen
 une idée du bien qui résiste à toute chute. Parier lee 1
 volontés, ditil; donner la noblesse aux hommes, Un … .
@@ -2370,10 +1989,8 @@ plus libre de se flatter que sa liberté n'a point de danger h
 pour la multitude. Je pense, contrairement à l'opinion A4
 des philosophes, que la vérité morale est l'objet le moins - A
 évident du monde, et le moins également réparti. La {
-70 É -4
 
 BR Ce Up. co
-D
 rx EE “ MORALE DE L ANARCHIE
 À e onscience la plus pure, fondée sur le sens propre, peut p4
 … n'avoir aucune force pour convaincre les autres, et les 7
@@ -2407,7 +2024,6 @@ A savoir quoi, non seulement ils n'obéissent plus ; ils d
 à réellement promise. Ibsen fait très bien, après tout, de Rire » Croire selon lui; mais la Norvège fera très mal de croire :
 _ selon Ibsen. Et Ibsen lui-même Fa compris. :
 
-ER M Re a Ce NOT ON RES
 le portrait d'Ibsen FES
 Dans l'âme de Pascal, il y avait une-passion brül ante
 pour le bien. La haïine du mal, le goût de la vérité, le …
@@ -2417,7 +2033,6 @@ beau, pourtant, que, de Pascal ôté Dieu et nommément
 l'Évangile, on fit le compte de ce qui reste. J'entends
 au compte de la morale. Et, quittant Pascal, dans M |
 KE l'homme, dans la Cité, dans l'univers? DS |
-Rien. D |
 À Quoi! Rien? — Rien, que les griffes, la gueule, les
 - crocs et l'appétit terrible de la bête. C'est la guerre au
 couteau entre tous les êtres. Le nom de lutte pour la.
@@ -2442,8 +2057,6 @@ sur l'Acropole, qui rebâtira le Parthénon ? 4 |
 Rien de ce qui se fonde n'a la force de ce qu'on
 | : D |
 
-a BU me i
-: A MORALE DE L'ANARCHIE "a
 4 détruit. Surtout, quand on se sert de la parole, et qu'on à
 _  sape dans l'esprit. Les idées ont une violence qui laisse À
 loin derrière l'effet de la dynamite. Elles ont créé le fait, :
@@ -2463,7 +2076,6 @@ $ Le Moi est le grand anarchiste. Mais, quand il est ù
 tyrannie des atomes a je ne sais quoi de plus affreux
 que celle du plus affreux despote. Car, enfin, Nabis 4
 lui-même dort quelquefois, et le Sultan peut se dé- k
-_ mentir. |
 L'ordre nécessaire et sans nom est un cercle parfait
 — de désespoir ; là, l'intelligence est une machine montée
 - pour l'éternité, qui dévore la chair humaine. Car plus x
@@ -2476,11 +2088,6 @@ après tout, on peut gagner sa mise, et c'est la loi du |
 Effrayante solidité d'un monde, où tout est fatal et
 « mécanique : il n'y a plus place à la moindre espérance.
 è L'intelligence comprend la nécessité de l'univers.
-re 5e. Ibsen. —5
-Fa \
-FLE
-
-‘ Fe k (Ab À 4 ds LA 4 ds \ PE Le < :
 
 1e) le portrait d'Ibsen LE ERETEER
 atome machinal dans l'immense machine. Elle jouit
@@ -2526,12 +2133,7 @@ l''Anarchie du sens propre }
 Il faut regarder le Moi comme la sphère de tous les ‘4 |
 maux : cest le centre, à l'agonie, d'un univers qui. À }
 attend la mort. Et la mort, de tous les points dela "#}
-OR
 
-74 ne ||
-
-RE L
-MORALE DE L'ANARCHIE
 … courbe, revient à ce centre, qui rayonne partout la
 souffrance de son agonie.
 Le Moi est sans espoir. Le Moi est sans issue. Le
@@ -2564,7 +2166,6 @@ mûr. Puis, enfin, ils découvrent la vanité de cette vue.
 ; Et Ibsen en arrive à dire avec dédain : « Je ne sais pas
 … ce que c'est qu'une œuvre idéaliste. »
 
-dus
 i NA Le és
 le portrait d'Ibsen LR EEE
 Qu'on n'accuse pas Ibsen de contradictions. Il a eu ‘4
@@ -2599,7 +2200,6 @@ La terrible imposture de l'esprit, qui veut faire croire
 qu'il est la joie et le bonheur ! C'est dans Spinosa que 3
 je la vois surtout : elle n'a que chez lui cette profonde |
 sérénité, où l'on est presque tenté de se coucher, les
-76 à
 
 tra MORALE DE L'ANARCHIE il
 | yeux levés sur les étoiles. Et qu'importe qu'il y ait cru se
@@ -2660,33 +2260,12 @@ trompait. Il les tenait par le pouce, et, disait-il, par là. (a
 il faisait passer en eux l'esprit de vie. Quelle forte tête :
 c'était, ce paysan! Il a guéri plus d'un malade; à tout: "#
 le moins, il ne l'a pas empêché de guérir. REA # ; |
-x
-cs
-2) |
-ra 4 4 |
-
-SUR LES GLACIERS
-DE L'INTELLIGENCE
 
 NE Riot D Ve ed Ze LARIILN nt # RPVRÈR A
-SRURURE Qu F4 ME NE > EX A
-FN 2 TES
-PRET à PRG à © De i
-AUTRE TE MEN PPS \ if & 4 ol SPA %e 5
 NT er NL ARRETE % 1: Le A ENINES
 ARE MA ne. LIEU
-ANT * - k Tr "FREE
 | #0 | : | OR
-Eee D ANE e À = “ iT PNEERS
-DANDIEOR LE ë PISE NA
-AENNATRRROES , \ ! 6 SEE
-ANS (ETS EAG ; 4 DE 4, CIS RARREEN
-LANGER \ Nr SERRES RH
-% “ f ! (SERRES
-A
 
-L se |
-PUISSANCE ET MISÈRE DU MOI “1
 &ye ne sais qu'une révolution, qui n'ait pas été faite È
 ; J par un gâcheur; » dit Ibsen à son ami, l'orateur de
 la révolte : « c'est naturellement du déluge que je parle. Î j
@@ -2707,7 +2286,6 @@ détruit. Le moi est l'honnête anarchiste qui ne sépare ne
 | C'est pour faire le bonheur de la planète, qu'il met le feu #
 4 à la ville. Il prêche ingénument le retour à la nature, ME
 4 tant il a peu de malice. Mais qu'est-ce bien que la - i
-É t 81 Ibsen. —5. À
 
 {; _ le portrait d'Ibsen HAN Fa nn
 nature, sinon le bon plaisir tempéré par la pure vert u? RUE
@@ -2741,7 +2319,6 @@ l'espérance, et qui marque plus de force dans le génie 14
 n'ont pas besoin d'être claires ; l'homme voit le monde Hi
 à travers son désir ; il ne l'a point encore saisi de près, … 11
 y regardant les yeux dans les yeux ; et celui qui devait #4
-140 |
 
 ea ns LES GLACIERS DE L'INTELLIGENCE
 Mere le plus intelligent des poètes, pendant longtemps, is U
@@ -2779,9 +2356,6 @@ jamais la folie de douter de vous-même. Il faut croire \ »
 nest mal, que ce qui nous en éloigne. : Ni
 ÿ # à La volonté est l'organe de la puissance. Être soi, c'est À
 ‘4 dominer. On ne veut que pour pouvoir, Puissant en éner- FE
-Hat " ; #
-
-ie SR NN
 
 Re le portrait d'Ibsen DR
 | gie, je ne vis que pour être puissant en actes. Il faudra que (270 |
@@ -2814,9 +2388,7 @@ Le grand avantage d'Athènes sur Paris, pour la vie "|
 heureuse, c'est que je suis à Paris et qu'Athènes n'est : 4
 plus. Nous mettons l'âge d'or dans le passé, par pru- “4
 dence : il ne faudrait pas le défier d'être. L'enfance de 4
--_ [ré
 
-MAT SUR LES GLACIERS DE L'INTELLIGENCE “ji
 Etre âme est la fée, et d'or enfin tout ce qu'elle touche. à
 | Maïs tout ce qui nous touche est de terre, sitôt que "Al
 _ nous sommes touchés. Le plus sûr est de rêver. ) wi
@@ -2831,7 +2403,6 @@ sl qui est tout à fait sain est nul, sans doute. Les vivants VD j
 k\ homme est malade. Les anciens ne pensaient pas l'être; |
 ù “ils se croyaient bien portants, tant qu'ils ne souffraient is
 “4 pas de paralysie. Mais eux-mêmes, à la fin, ils se sont
-vus paralytiques. LEE
 F: L'antique est si peu le Moi, que le Bouddha le nie au T0
 
 - nom de la volupté même. AA
@@ -2857,14 +2428,8 @@ tragiques qu'une seule décision à prendre pour la con- ;
 
 _ Nous sommes tous chrétiens malgré nous : si nous j
 f sommes pensants. Et c'est en vertu de notre âme, qui FR
-(ft |
-
-D, 85
-
-ALAN k 7
 
 3 UE Al E FER # Là LÉ SRE que RARE h NE AS ce | |
-ie portrait d'Ibsen (7 . 1 3
 est à elle seule, et pour soi, l'état, le monde, et toute Ja” w
 = cité. Il est vrai que le propre chrétien est en PH
 La de son Dieu. Sans son Dieu, il est suspendu dans le 1
@@ -2895,11 +2460,6 @@ lent entre les deux épaules, il en hâte la chute. Il ne
 pleure pas sur eux; parfois, au contraire, il les bafoue.
 ! Sa tristesse est sans douceur; elle aime le sarcasme. à
 est dur; il a l'air cruel; il semble jouir de la catastrophe,
-4:52
-: FL 120
-‘EM |
-
-I
 
 ‘is SUR LES GLACIERS DE L'INTELLIGENCE
 do tant il se soucie peu de l'amortir. Ses traits tiennent de
@@ -2933,7 +2493,6 @@ Vintelligence. La froideur est le propre de la pensée; à
 “ la longue elle dédaigne même de prendre parti. Elle
 “paraît toujours méchante aux soufireteux de la vie, —
 “car ils réclament des soins. La force fait peur aux
-faibles.
 
 On ne peut avoir que froideur ou dédain pour les
 hommes, quand rien de suprême ne commande l'amour.
@@ -2978,8 +2537,6 @@ paraître le plus méchant. +
 
 L fi
 
-jé SUR LES GLACIERS DE L'INTELLIGENCE l :
-
 8 On délire plus aisément en morale qu'en persécution ÿ
 _ eten grandeur. La vertu facile est aussi une idée fixe. j
 
@@ -3023,9 +2580,6 @@ libre : pas plus que le cours des saisons.
 
 Ë cité est à feu et à sang. Où est le gain si pur que l'on
 
-% “
-
-A
 TRE le portrait d'Ibsen Pa AU à jt |
 devait faire ? L'armée a perdu tout ce qu'elle ei |
 bon; elle n'a rien acquis de cette excellence, qui devait, M |
@@ -3060,7 +2614,6 @@ amour. Le parti d'aimer est le plus sûr. Il le dit, cet |
 Tbsen autrefois si glacé, si rigide; et nul épicurien ne}
 fut jamais plus triste, que ce sceptique au désespoir, … |
 
-Ne SUR LES GLACIERS DE L'INTELLIGENCE
 F couronné de neige et d'asphodèles funéraires. L'aveu
 “ lui en vient aux lèvres, — une espèce de regret de
 … n'avoir pas lui-même suivi cette règle : (1) combien il
@@ -3094,7 +2647,6 @@ k (1) Cf. Quand nous nous réveillerons d'entre les morts.
 
 . le portrait d'Ibsen A |
 
-à 1
 Plus l'homme est heureux, plus il lui est facile de A]
 mourir. Heureux et confiant, cet homme est un enfant |
 qui joue : il ne croit pas à sa mort; il ne la pense pe
@@ -3119,15 +2671,6 @@ d'un enfant qu'elle purge. Voilà ce que j'en suppose.
 J'ai lu ce texte dans les yeux de quelques hommes. M
 Comment n'admirer pas la main qui l'a écrit? ‘4
 
-x D:
-
-Mal
-
-F
-
-Li 5h
-ë LA NUIT A LA FIN DU JOUR
-Wu ï
 3 our qui vient du Nord, l'Italie est la révélation d'un |
 Ë 2 monde où la joie est permise. Ce que le rêve a À
 “conçu dans le vide a donc son lieu quelque part sous le
@@ -3150,8 +2693,6 @@ nul palais ne se fonde qu'il n'y marque la place d'un de
 “4 noble oratoire de la méditation; le tumulte n'y avait ni
 … pas pénétré, ni cette foule qui prend pour une fumée de ‘d
 Ÿ … gloire la poussière qu'elle piétine, et qu'elle soulève du
-
-us
 
 su le portrait d'Ibsen ae Se nn |
 pavé. On m'a vanté cette vie sans événements et s ans |
@@ -3184,11 +2725,6 @@ pour le mensonge. L'audace est la vertu des rebelles. « un
 Que les femmes ne craignent donc point d'être cyniques, à
 elles qui n'ont pas craint jusqu'ici d'être faibles. Elles
 auront assez de pudeur, si elles ont la force de se
-rendre libres. FES
-
-sENIL AL NS
-
-2 SUR LES GLACIERS DE L'INTELLIGENCE
 
  Ily à eu un temps, de la sorte, où Ibsen voyait une
 
@@ -3235,11 +2771,6 @@ ques à y périr. C'est ici qu'Ibsen, cessant de prêcher et
 
 mains, et s'est jeté, tête à tête, contre tout ce qu'il
 
-ÿ 95
-
-fi
-
-; ' SATA ANTRPNN ONE UN
 le portrait d'Ibsen PR |
 nommait encore le mensonge : lui seul contre tout mn 4 |
 peuple, une race, tout un siècle, — un homme contre |
@@ -3258,13 +2789,11 @@ volonté intelligente. Dès sa première heure à Rome, M#|
 dans Ibsen, sûr du triomphe pour demain, je sens un.
 vainqueur dégoûté de la victoire, et dédaigneux de la #]
 cause qu'il fait vaincre. | 4 |
-È |
 Enfants et femmes
 Les vieillards cadues et les enfants sont absents de M
 son œuvre. Il ne représente guère que les hommes dans “4 |
 l'âge mûr, les femmes et les jeunes gens. Là seulement,
 en effet, la volonté et les passions ‘ont toute leur
-force. ‘4
 Les vieillards somnolent, et sont odieux s'ils agissent M
 avec violence. Les vieillards sublimes ne courent pas |
 les rues, dans la ville moderne; et les autres, trop sou- | ;
@@ -3272,10 +2801,7 @@ vent, se font écraser. Les hommes mûrs et les jeunes | +
 gens sont forts, parce qu'ils sont égoiïstes et ne croient
 pas l'être. Ils mettent leur amour de soi-même jusque
 dans la foi, les idées et le sacrifice. Le bel âge est è 2
-Ÿ | |
-96 i n |
 
-À V4 AS SUR LES GLACIERS DE L'INTELLIGENCE M
 ? plus de cinquante ans, et moins de soixante : (1) tout y , NE
 _ est tragique; la mort est derrière la toile pour faire le DA
 dénouement. Il faut avoir cet âge pour jeter d'une main pie Ë
@@ -3299,7 +2825,6 @@ temple, qui est le contraire d'agir. Les beaux vieillards À
 - scène humaine est aux fous. Les héros sont des fous #
 qu'on admire. Encore ne les admire-t-on pas toujours ; ) PAS
 LE et même le siècle veut qu'on les méprise. ? #
-: al
 Qu'Ibsen soit loué de n'avoir pas fait tourner toute ,
 - la vie des idées et des hommes autour des petits, %
 - petits enfants. Sans qu'on les y voie, le théâtre moderne :
@@ -3308,18 +2833,13 @@ Qu'Ibsen soit loué de n'avoir pas fait tourner toute ,
 Î tous'lieux, hormis à la campagne. Ils ne sont pas peu
 Ë. (1) Maître Solness, Borkmann, Rubeck, le docteur Stockmann, (
 DA madame Alving ont cet âge. É
-pa 24 97 Ibsen. — 6 € ve
 
 \ le portrait d'Ibsen Re A |
-UT
 responsables de la mollesse universelle. Ce sont les | |
-3 ji 'RS C TE ONE
 germes destructeurs de l'énergie ; près d'eux, elle s'use) LM
-\ . . SA CR |
 it et se prodigue en menuailles ; le grand amour tombe |
 À en poussière de soucis. FC ASS
 On s'imagine que la pratique d'une tendresse égoiste 0
-k A |
 corrobore la valeur personnelle de l'homme. Quelle M |
 erreur: l'égoïsme des mères et des pères, en général, x |
 énerve toutes les vertus au profit d'une seule. Ce qu'ils |
@@ -3345,11 +2865,6 @@ Qu'ils rient et qu'ils jouent à l'écart : Ibsen les y laisse, ""
 car Ibsen est viril. 14740
 Jamais on ne fit la part plus belle aux femmes que
 dans « Maison de Poupée ». C'est l'homme le plus sot M
-98 Vi
-É LT
-ni ! Li
-
-\ À SUR LES GLACIERS DE L'INTELLIGENCE
 
 ; qui lasse l'amour de la plus charmante entre toutes les
 femmes. Mais quelle folie est la sienne de prendre pour ‘
@@ -3388,7 +2903,6 @@ particulières, consacrées à peu d'objets. Elles n'aiment
 plus rien, s'il leur faut tout aimer. Qui a connu cette
 Û sorte de femmes, les préfère injustes à impartiales :
 k “elles se réservent alors tout ce qu'elles ont de cœur et
-:
 
 Le portrait d'Ibsen FA
 de partialité. Qui nous aimera sans beaucoup de par- # k.
@@ -3418,13 +2932,10 @@ vie oisive; sa jupe bruissait; les voix de la dentelle, de à
 la soie, du linge parfumé murmuraient autour d'elle, w
 / caressant ses membres, faisant à ce corps tant aimé | UN
 l'écrin où tout le travail de l'homme est asservi et se à
-consacre. FA
 Cette femme avait toute la cruauté des idoles, et la. 4
 vanité glaciale des marbres dans un musée. Elle s'of- :
 frait à l'adoration, s'adorant elle-même. Son sourire M
-100 : 4
 
-Re RQ NA ASIE
 |: HOT SUR Lee GLACIERS DE L'INTELLIGENCE HS
 froid était posé, comme un masque, sur l'exécrable AA
 
@@ -3459,8 +2970,6 @@ M. eur, s'indignait qu'on fit présent de poupées auxpetites | vi
 hu J'avais fui. Je laissai cette assemblée méchante de :
 (1) Beaucoup de ces femmes étaient des étrangères. La plupart tx
 D vapuent lexemple de l'Amérique et de la Scandinavie. x 11
-à Au 101 Ibsen. — 6. AA
-VTÉMENR FRS
 
 | ALI ES HUTCRENSSS
 le portrait d'Ibsen 000
@@ -3496,9 +3005,7 @@ Celle qui attendait, reprit sa station, sur le solu |
 détrempé, au milieu des flaques. Je lai regardée \ |
 longtemps ; et la paix, qui est une bénédiction, pour u |
 moment rentrait dans mon âme. C'était une jeu ne | |
-‘402 4 |
 
-RU d
 sb SUR LES GLACIERS DE L'INTELLIGENCE
 femme, une sœur de Saint Vincent de Paul. Elle n'avait
 pas plus de vingt-six ou vingt-sept ans. Elle était d'une
@@ -3529,9 +3036,7 @@ d'une exquise pâleur, animé d'un peu de fièvre; et sur
 éuses longues lèvres, sa bouche calme et virginale, un
 L reste de sourire semblait prolonger son long menton un
 peu carré et ses paupières au dessin effilé.
-: 103
 
-SP SE OO RS A RAR
 le portrait d'Ibsen EL: ‘4 |
 Ses doux yeux d'ardoise étaient exténués; les pau
 pières gonflées enchâssaient le regard d'une lumière ‘1
@@ -3565,7 +3070,6 @@ tuer; (1) au cas le plus heureux, c'est encore une crimi- ai
 nelle, qui a horreur de son crime, et qui ne se délivre 1 |
 (1) N'est-ce pas Heddah Gabler, et Hilde ? ‘4
 
-114 nu _ SUR LES GLACIERS DE L'INTELLIGENCE 4
 | du remords qu'avec la vie; ou bien une folle qui revient (
 _ à la raison, en rentrant dans la règle. (1) Dès lors, à # Ch
 quoi bon?
@@ -3596,7 +3100,6 @@ confuse : la vie ne souffre pas beaucoup de confusions.
 Qui ne veut pas suivre la loi, qu'il meure. Qui cherche
 à l'éluder, qu'il s'égare. La folie et le crime, toujours la
 | (:) La Dame de la mer, et Rébecca dans Rosmersholm. 5
-; 105
 
 le portrait d'Ibsen "4
 mort, voilà la peine qu'elle porte. Et comme elle est M
@@ -3605,7 +3108,6 @@ cette nature impassible ne se contente pas de tuer: elle M
 écrase les rebelles sous la mort ridicule. Ibsen la senti, |
 en homme qu'il est : si la mort ne tirait pas le rideau | |
 sur ses drames, ils seraient en effet, d'un ridicule | à |
-achevé. Ù à L|
 Restent les médecins à |
 Le médecin entre en scène, un composé de Tirésias |
 et de la Parque, l'oracle et la fatalité des temps nou- à
@@ -3629,9 +3131,6 @@ quand ils prétendent suffire à la vie, et qu'ils traitent
 les cœurs par la même méthode que les corps. Le bon
 | médecin, dit Ibsen, est celui qui trompe le malade.
 Mais lui-même s'est mis dans la peau du médecin, qui
-
-d 4 #
-SUR LES GLACIERS DE L'INTELLIGENCE
 
 ose dire la vérité aux hommes, et veut les nourrir de ce
 poison : non seulement il ne guérit personne; mais
@@ -3667,8 +3166,6 @@ mêle pas de faire l'apôtre, le poète, ni le chantre; mais
 qu'il achève sans pitié la bête à demi morte, — et qu'il
 cache aux autres la vue du charnier.
 
-: VII SPA
-TOLSTOI ET IBSEN |
 EPENDANT, à l'autre bout de l'Europe, tantôt dans W
 C sa maison natale, tantôt en Crimée, aux portes de
 l'Asie, depuis trois ans, Tolstoï se meurt. Deux coups
@@ -3693,7 +3190,6 @@ la destruction: il y voit un non-sens, une corruption PA
 
 13e Tolstoi ne sait pas encore que le cœur lui- Me ï
 même peut devenir l'artisan d'une suprême cata- #+ |
- strophe. AN EEE
 L'intelligence n'épargne rien. Elle porte la guerre re
 . dans toute la contrée; puis, restée seule, elle se met à de tu
 là question: et, dans la citadelle où elle s'enferme, elle tag
@@ -3723,7 +3219,6 @@ souffrances ; il en parle à la manière de Pascal, mais è nu
 sans passion et sans fièvre. Il a le foie et le cœur ë Cr
 atte nts, à cause de l'éternel souci qu'il s'est donné des *
 autres. Dans la dernière image qu'on a prise de lui, sie %
-Er: is 8 109 Ibsen. — 5 SAR,
 
 joie le portrait d'Ibsen KT AMOANS
 courbé, sur les genoux, maigre et défait, ravagé, | la ne
@@ -3758,9 +3253,7 @@ l'horizon de sa dernière étape; et selon son vouloir, MM
 est sûr d'être suivi. Au lieu qu'ibsen ne l'espère même
 pas. L'esprit ne connaît pas l'espérance. Ibsen appelle”
 l'amour, sans y croire : il n'aime pas. 0)
-RTE CR
 
-p. SUR LES GLACIERS DE L'INTELLIGENCE pou A
 a Celui qui réclame pour tous, reçoit pour soi. Et celui 1:01
 _ qui réclame pour soi, est frustré de tous. C'est la loi. ae » Quoi que je fasse, je ne puis conclure pour moi-même. Là
 ‘ Je m'épouvante à la fois d'être sincère : c'est toujours cu je
@@ -3790,10 +3283,6 @@ k Moi et démocratie
 Ù L'erreur des démocrates est de croire que leur vérité )
 (en soit une pour tout le monde, et force l'adhésion.
 Quand leur vérité serait la seule, il ne s'ensuivrait pas ;
-fi
-Fa III ue
-
-Ÿ EE \ ! JEUNE MINES Pa:
 
 j le portrait d'Ibsen Da
 qu'elle eût force de loi sur tous les hommes. Ni moi, 4 |
@@ -3816,7 +3305,6 @@ craies, sinon les religieux; mais il n'y en a point sans M |
 quelque religion secrète ; le plus souvent elle s'ignore. M |
 Un démocrate n'est pas prudent qui se fonde sur l'esprit. MI
 Tous, ils ont foi au grand nombre. Telle est leur ido- 4 |
-lâtrie. (x) k "4 |
 
 à Chaque homme, à son compte, peut croire qu'il est Mn
 fait pour tous les hommes. Vivant pour soi, qu'il vive |
@@ -3828,12 +3316,9 @@ sois forcé de faire contre mon sentiment ce qu'un |
 {1) La majorité a toujours tort, en effet, dit Ibsen, — la maudite 4 | |
 majorité compacte. Et à ceux qui bénissent le grand nombre, 1
 répond ainsi par une malédiction. ne |
-d 112 À Re
 
-4 à SUR LES GLACIERS DE L'INTELLIGENCE , UE
 |, EME Mi
 . autre décide bon que je fasse, parce qu'il lui plaît à &
-- faire ? RAS
 … Les démocrates sont gens de foi; et la preuve, — ot
 … qu'ils ont en moi un hérétique. Je ne vois aucune raison (YPJERE
 - que leur foi doive être la mienne; et précisément parce ; fa
@@ -3864,7 +3349,6 @@ tous théologiens, ne sont pas bien justes quand ils s'en se
 ë dans l'église la plus roide en discipline, il y a peut-être {
 … plus de place pour la foi des démocrates que dans le A
 moi le plus libre.
-Di: 113
 
 le portrait d''Ibsen RAA WE 14
 Si même j'ai pitié des hommes, et si je les aime dans |
@@ -3872,7 +3356,6 @@ leurs misères, il ne s'ensuit pas que je fasse passerles
 leurs avant les miennes, ni que je me préfère le genre À |
 humain. Car il peut arriver que je n'aime ni lui, 1
 ni moi. C'est en effet ce qui arrive. Ibsen m'en est M
-garant. ; ‘
 _ Dans l'océan des hommes, dans la tourmente de l'in- 14
 fini, je suis comme la barque à un seul rameur, pour 5 |
 tout faire, pour tenir la barre et veiller à la voile; jai
@@ -3898,9 +3381,7 @@ morts et qui n'ont ni chair ni sang. Ce qui fait lespé- : de |
 rance et la paix des esprits médiocres, fait le dé- À |
 sespoir des autres. Les idées sont presque toujours les
 mêmes en tous les hommes : ce sont les hommes qui |
-. diffèrent. 1
 
-…_ ‘SUR LES GLACIERS DE L'INTELLIGENCE
 l'auberge dans le désert
 
 La Norvège montre Ibsen, comme étonnée de l'avoir
@@ -3934,8 +3415,6 @@ marchant à petits pas, les yeux baissés et les bras
 immobiles, — si on le heurte, si on le salue et le force
 à sortir de soi; ou si, dans son fauteuil, presque caché
 derrière un journal, on le tire de sa lecture, — il montre
-
-l 115
 
 î le portrait d'Ibsen Y'a He ENS
 d'abord un visage hérissé et sévère, les yeux Kad à
@@ -3976,8 +3455,6 @@ les uns aux autres et à lui plus qu'à personne. Qu'ils
 
 soient de son pays ou non, il n'est pas du leur. : F0
 
-. 116 4 |
-
 9 Ne | sur LES GLACIERS DE L'INTELLIGENCE h si
 2 Quoi? Un si profond délaissement se démunit encore ?. k Le
 _ Oui, le profond ennui d'être étranger à sa propre vie gi
@@ -3999,28 +3476,15 @@ fr Étranger parmi des étrangers, dans une vie étran- fe
 . quand il s'assied dans l'auberge de la plus noire soli- AGDE
 tude, qui est le désert des hommes. its
 
-è #
-a F
-Fr * F
-Fi - Ibsen. — 7. |
-
-k ha‘ “ a
-
 ME AITE et NES AN CM GES RP Pas) CISETNENE PAPERS)
 Lau A SA NAN MR PEER
-% EACH :
-« D M Met
-Rs LA MORT FROIDE T2
 cote : de l'intelligence est le plus stérile de tous; M
 c'est aussi le plus tenace. Il est sans joie, et désolé M |
 en ce qu'il console d'être sans joie. Il reste à ceux qui cu |
 ; n'ont plus rien, et à qui il a fait tout perdre. Toute
 ‘ autre domination donne le contact de la vie; celle-ci.
-en écarte au contraire. 10
-: : fe ° +4
 . Les passions du cœur sont pareilles à la mer, dont la
 | jeunesse est éternelle, et le charme, et la folie : même
-? PR |
 ; les tempêtes, quand elles tuent, emportent la pensée
 dans un tourbillon magnifique. Mais l'intelligence est 4
 ; un glacier solitaire; et il faut finir la nuit, couché sur …
@@ -4033,8 +3497,6 @@ l'homme la supporte. La nuit est le métier et la soie; |
 la Parque, la fileuse et l'étoffe qu'elle tisse. Toutes les |
 | idées sont tissues sur le canevas de la nuit. Re ‘l |!
 
-D AA
-L: SUR LES GLACIERS DE L'INTELLIGENCE
 F: L'esprit sécrète dans le vide, comme l'abeiïlle fait la
 cire. Mais l'abeille ne sait pas ce qu'elle fait, car elle
 est esclave dans sa république. La joie de penser ne
@@ -4065,10 +3527,7 @@ que tout le reste s'y range, ou qu'il en souffre, s'il veut :
 quelque chose qu'on fasse, avec la vérité, on a toujours
 raison. C'est l'histoire de tous les fanatiques; et que
 —|a vérité de l'un soit l'erreur de l'autre, quelle meilleure
-‘
 
-ARC TE PEN ON RON RE A ARR ARE STE |
-1 a
 le portrait d'Ibsen |) NON
 
 conclusion? « Qu'est-ce que la vérité? » dit Poncé M
@@ -4097,7 +3556,6 @@ ner tort. Comment le voudrait-il, puisqu'il ne le peut 4 |
 pas? — Nos idées ne sont si fortes et ne nous sont d'un ‘4 |
 
 si grand prix, que parce qu'à la longue elles nous 4 |
-façonnent. er # 4 |
 Il importe peu que ce que nous pensons nous - 1
 
 désespère. Il nous faut penser comme nous sommes. 3 |
@@ -4114,7 +3572,6 @@ pour savoir que l'avalanche pèse au-dessus de sa tête, M
 et que la catastrophe est pour demain. Il sait donc ce À
 qui l'attend; maïs il ne peut faire autrement que de se 14 |
 coucher sur la place et de dire : « Voilà par où j'ai pris Rs.
-. 120 Se
 
 | BEN SUR LES GLACIERS DE L'INTELLIGENCE | et 1
 À pou vente en ce lieu ; or le chemin que j'ai suivi est n
@@ -4149,9 +3606,6 @@ k nom de l'amour lui vient aux lèvres ; le regret d'aimer f
 À Yobsède. Être soi-même, fait-il par force, mais aimer, de
 | rien ne vaut que d'aimer, qui est à dire : de n'être pas FRAERS » soi-même. Ibsen distingue en vain la loi des hommes de
 
-A ji y 121 ? 3 lus ;
-
-ARE RL PA AL BU A Re
 à le portrait d'Ibsen DRE |
 | | TARN
 et la loi des trolls, celle des êtres libres qui commande : %
@@ -4184,11 +3638,7 @@ l'Amertume
 C'est l'excès de ma joie qui fait l'excès de ma ntisère. M
 L'amour sans bornes de la vieest l'espace infini où je ns
 succombe. Je tremble à cause que j'aime. Je m'éveille M
-122 1 F
 
-IT ER AUTO TEA RENE CORP
-“ SUR LES GLACIERS DE L'INTELLIGENCE w ik
-{ NN ÉEEX 0 Aer 10
 id dans l'épouvante, à cause de la splendeur du réveoùje !
 _ m'endors. Et l'horreur du néant se mesure à la beauté HE
 _ enivrante de vivre. 443160
@@ -4218,7 +3668,6 @@ pourquoi me duper ainsi moi-même, et d'une telle ar- *
 | A quoi mesurer la grandeur du moi, sinon au déses-
 -. poir qu'il y trouve, et au défi passionné de rédemption Al
 . qu'il ynourrit? — De là naît l'amertume. Ibsen est bien #2)
-amer.
 Fe L'amertume est l'ironie naturelle aux âmes fortes. La PRÉC :
 
 * : Va SON FES nt po |
@@ -4254,7 +3703,6 @@ qu'on veut insérer à sa tige. Il se plairait plutôt à J
 Qu'il le veuille ou non, le moi est le profond ennemi de
 l'amour. Ë
 Pour ses premières armes, et sans même y faire effort,
-{2
 .124 4
 
 + er SUR LES GLACIERS DE L'INTELLIGENCE
@@ -4310,22 +3758,14 @@ sur un empire misérable : quelle dureté! Quel absurde
 
 t parti ! Et, sur le tard, si l'on regarde derrière soi la
 
-A 7 HAE pu DA QUES RU ie
-
-FAN A CR SE Ne |
-a FRE PNR ponÉnust d'Ibsen AN AORRE a |
 EME 4 Rtie LE me l Dry x LOF LPS RES Y PE
 Pan route méprisée, puisqu'on a fini de la parco urir, quel Au
-At regret! à : HA M ‘TORRES |
 EE Je vois dans Ibsen une douleur bien rare : il dapu. 1e |
 _ s'oublier. La merveille n'est pas de garder la mémoire, |
 cest d'en souffrir. Son désespoir lui rappelle que riche
-JE È 4 2 EE Ne ‘#
 du grand amour, il n'a pas su en être prodigue. Hfaut M |
 PR _ plaindre les pauvres de cœur; mais combien plus ceux |
-A & és = Fs. RU |
 _ quisont les plus riches, et nés pour donner : àlafin, 4
-VAE | f É D o SP 0 SENS
 _  ïls se déplorent eux-mêmes, et leur richesse qu'on le AËl
 | _ envie. Car ce n'est encore rien d'avoir tant à donner: |
 t considérez la misère de n'avoir pas trouvé à qui lon |
@@ -4333,15 +3773,10 @@ Re donne. On demeure en soi, malgré soi. On tue l'amour, |
 sans le vouloir, à force de le chercher. Et sans plaisir: M
 on n'a même pas eu la joie du meurtre, cette basse +
 | passion du moi, qui fait les âmes meurtrières. 10
-NUE ER RAS Ni
 
 #3} 1%. 1100e
 
-to + RARES |
-
 | 4
-IX
-LE MOI EST LE HÉROS QUI DÉSESPÈRE
 } la dure passion, celle d'être! Chaque heure du
 O jour la renouvelle. Tout est beau; tout est sans
 prix; et tout fuit. L'amour n'est-il pas beaucoup plus
@@ -4362,9 +3797,7 @@ tu en sais bien la fin : ici un souffle; et la lumière est
 … éteinte. Et que cette divine illumination brille sous le
 “ciel sans moi? — Quel abime de désespoir m'ouvrent
 . mes seules ténèbres!
-fe 127
 
-L CAS AN NT LR D
 - le portrait d'Ibsen ste ASIE
 Les sages sont sans doute les médiocres, selon | 4
 l'opinion des anciens. Et les médiocres sont les indiffé- sb pe |
@@ -4379,7 +3812,6 @@ qu'il a trop aimé le miel, et que mes lèvres en sont à
 barbouillées : elles l'ont été dès les siennes. Chaque n
 jour, cette onction délicieuse s'épuise; et plus je la À |
 dévore, plus j'en suis avide ; et ma gorge se fait très 7
-amère. 4
 Ibsen est le type de la grande amertume. C'est le : M
 goût propre de la vérité. Et son propre mouvement,  “#!
 c'est qu'elle dévaste. D
@@ -4399,10 +3831,7 @@ point qu'une orbite y satisfasse, sinon celle de la foi, et h
 < si l'on veut, de l'ignorancé. Je ris d'une sagesse qui à
 détruit le bonheur. Athènes n'a pas si mal fait de N |
 128 4
-+4
 
-I a NU es : a
-LINE ELA SUR LES GLACIERS DE L INTELLIGENCE au
 D. donner la ciguë au trop sage Socrate. Je ne vois point 44
 _ de bonheur qui ne justifie toute ignorance. Si pauvre A
 ; soit-il, et si épaisse qu'on la voudra. Ibsen en est plein ac
@@ -4435,9 +3864,7 @@ exemple; mais les lois y ont toujours suppléé, et fort UE
 durement. La manie de confondre la religion dans la . %
 morale n'est pas le fait d'un esprit bien libre. Que toutes Pr
 deux se soutiennent, il est vrai; mais inégalement. L'une 7184
-129 a
 
-AA ANNE DT A CEA TRI NS CAN SC
 its le portrait d'Ibsen NS |
 se passe fort bien de l'autre, — qui est la religion. La | |
 morale ne lui rendra pas la pareille : elle ne peut. Cest ‘4
@@ -4449,7 +3876,6 @@ appétits de chaque homme à ce qu'exige le puissant M
 instinct commun à tous. C'est pourquoi la morale varie; 3 |
 et la religion ne s'en soucie guère : elle ne s'inquiète pas “*0 |
 de ces variations; car le fond de l'homme demeure le ia
-même. ‘4 |
 6 Il n'est pas un de ceux qui invoquent les anciens, qui. % : |
 pût souffrir, un seul jour, la vie antique. Gœthe était ‘à 1
 plus prudent : il voulait que l'on accordäi l'ancien plaisir
@@ -4484,7 +3910,6 @@ _ | sons tout ce qui n'est pas le moi : c'est en vain. Bien- ne à
 _ tôt, en dépit de tous les efforts, le moi rétablit ce qu'il | ie.
 
 a voulu détruire. Mais la joie a payé les frais de la 72
-Wiiguerre. 1
 
 … Quiconque arrive à la connaissance de cette détestable FD ï
 contradiction, se désespère : il s'est découvert tne in a R
@@ -4546,7 +3971,6 @@ vivants fassent un corps aux abstractions, pour qu'elles à ;
 aient l'air de vivre, celle-ci leur emprunte une laideur
 par trop insolente, même dans une idole. ; 4
 
-SSSR SUR LES GLACIERS DE L'INTELLIGENCE rs
 \ Que reste-t-il en cette extrémité? — Une douleur pas- \ |
 sionnée d'avoir vécu, que le désespoir de mourir rend 4
 manifeste; et le regret sans fin de l'unique bonheur :
@@ -4575,12 +3999,8 @@ j vieillesse et de la mort, il se roïdit là contre, comme on
 ses maux, il lève la tête, et je crois l'entendre faire son
 Oraison du mauvais usage des maladies.
 Je m'irrite, parce que je suis seul: et qu'il ne me reste
-rien. :
 Je n'avais que la vie. Je la méprisais comme un néant.
 | Et pourtant, elle seule était solide; elle est encore tout
-l 133 Ibsen. — 8 !
-
-Me 0,
 
 j le portrait d'Ibsen st pue ‘71
 ce que je tiens, et qui déjà m'échappe. Ainsi, je suisen. |
@@ -4690,10 +4110,7 @@ infini du vide, où l'homme ne tombe peut-être au préci- J
 pice que poussé par la désolation, ou pour avoir glissé
 sur l'arête d'une route glacée, — je roule maintenant <
 sur la dernière pente. :
-136 È
 
-DA AREAS \ ; ÿ D
-ete _ SUR LES GLACIERS DE L'INTELLIGENCE EU
 _ Laissez donc. Je vous dis merci; je prends vos j'VTe
 .. offrandes; et votre applaudissement fait un bruit 1 ‘4
 agréable à mes oreilles. Mais ne comptez pas sur une M
@@ -4725,8 +4142,6 @@ silence. Je n'ai pas ouvert bureau public de conseils,
 d'oracles ni d'avis. Je me suis détourné de toute votre
 politique. Ma bouche est pleine d'ennui parce que je
 vous parle. L'atroce sentiment de ne point avoir en
-5 ii 137 Ibsen. — 8.
-tte
 |) 740
 
 AAA OU PAS ES CM MENT ee ER
@@ -4735,10 +4150,8 @@ vous de semblables, était sans doute en moi de tou 0
 nie temps ; mais combien vous l'avez fait grandir! Laf Die
 " vient de vous seuls, à hommes ; et de vous seuls, Ja, ‘a
 vie. Ainsi ma grande mort vous accuse. Car je suis
-€ . > ee . + LENS
 grand. Mais si j'ai la grandeur, depuis longtemps, je
 sais, moi, que j'ai la mort égale. Et c'est de quoi je me …
-4 F = : A e FAC
 désespère ; rien de plus ne n'est laissé. Le 3
 Qu'importe le dernier été, et les froides illuminations …
 de la gloire? Qu'importe toute victoire? Où il ny a
@@ -4751,52 +4164,16 @@ l'univers entier, il me manqueraïit l'espérance du seul
 bien désirable : je suis dépossédé de ce qui dure. J ANS
 ÿ triomphe et je désespère. Je me possède; je vous |
 possède ; et je n'ai rien. FAR
-: ù TIOX DRE
 ne FN
-+ tu?
-: 1 FOR
-Mn:
 
-M VON RENE A OS CNE MEN LS
-d'a K : y PTAPRUIN DAV AITE 1 V
-: :n 4 |" td HAS PINT VA ÿ RAA MAS eLE © TAN EAU
-3 Va #41 JE SRE 1 fi , 0 at ROME Al
-k iQ : 18e ‘ VGA MIE
-1,72 A P'ÉNNOINAEURESS AN . 1 12. LI ANNEE Hi
-Re a
-WTA 'ATTISRSTES À » 7 x UM US EU MO
-UT 0 ARE A) te) TE DC
-Fe AS 4 ah CRUEL . RS Re AP) 7''a ete NUE
 | RE Are Us. HP LRNNEREE EN “TA
 | 11 T'RMERIERES ! à #4 ! " NA M QUE ses
-Ë 1: LT SENS NE j - AT TPE Eve
-RS OUT ESRI ALES METTAN 11 A NTMRENNETS
 A ne EX | afele { NUS LIEN ARTE
-(TE CRE TASNERRS 6: Le +4 PUR FE RCI 14e URTAN
 Len SO L' ÉTTIRSS À 1 RARE 141 TONNERRE
 | n ; 1! KE NOIRE SANTA Lo OA MES
-A 0 Li MONNIER
-L11t4 FAN è ° a SA MER 42e OMR NOR
-Se LEE REA LA AN TR OROTAEES
 
-RS Lt OA Pa PR A VE OT MN AA LEEDS D mn EN OO NT De RAS T PA SAR REP TS RAPES SRSASME ITS D
-RAR GEL A a AU ANT RARE GRR fo SE SE
-MNCSEA AS HAUS A ONE MeV RAD Je RON LUE TU
 NOR SAN NE ON 4 SAR RAP FARINE Pate Pur t LM ASUS
-SALUT A AT ; AP 1 ANR EE ve LR NN EE NUE VANNES \
 
-NAN \ \ 2? TS ORNE
-LU é ; Ë UNE 1 LR TIRE
-di ù k 2121 MÉRAMRENNSSS
-
-AE , ; ; A EL 2 NEA 4 AC ue
-À } è LE TIME
-
-< F À 1) LE SONORE TETE RE
-LAN AU at w! DA k A dns LOUX
-
-R LE LT Rs EE $ vu
-DA re ra \ 4 PAR (4
 _ Il a été tiré de ce cahier vingt exemplaires sur AU
 
 whatman ainsi distribués : BE
@@ -4805,21 +4182,11 @@ premier exemplaire de souche, exemplaire du gérant; té
 
 deuxième exemplaire de souche, exemplaire de l'ad- pie
 
-ministrateur; HAE
-
 troisième exemplaire de souche, exemplaire de lim- 1
-
-primeur ; oi
 
 dix exemplaires d'abonnement, numérotés de 1 à 10 . De
 
-exemplaires d'abonnement ; VIN
-
-Ve
-
 et sept exemplaires d'auteur numérotés a, b, €, d,e, À
-
-f, g exemplaires d'auteur.
 
 Tous nos exemplaires sur whatman sont numérotés ;
 
@@ -4827,7 +4194,6 @@ Tous nos exemplaires sur whatman sont numérotés ;
 
 tirages d'exemplaires sur whatman sont rigoureuse-
 
-ment limités au nombre d'abonnements à chaque in-
 … siant souscrits; nous ne vendons point d'exemplaires
 - … sur whatman en dehors de l'abonnement; l'abonnement
 
@@ -4839,87 +4205,37 @@ Les Cahiers de la Quinzaine sont composés à la main, j
 en caractères fin dix-huitième siècle (Didot) de la fon-
  derie Mayeur (Allainguillaume et compagnie succes- 4 ;
 seurs), 21, rue du Montparnasse, à Paris, sixième
-arrondissement. ÿ AM
-à (]
-HR À
 
 Fo AU et
-TA D ETANUNX
 ja RATS AATE JE
-FACE LEO Le
 dns fi ; Ne a US
 ÿft LM AU LR tt MC y AAA Ve je EC CA
 RU de cons LA nie Aer ÿ
-CAE MARTIN VER Vys FAITS FAP: AA AA 14 6 au A AU nur
 | HMAES Wir K TAN NM 0 EN RO “fi MAT STAR Dyse. AE LEE
-Au LR HA EL Ho ar LR 7 VAT
-ae A HMEUNUE À ' Ÿ } * PRE (,(4 C1 FAIRE 4 Y
 NE ï N dE L ax FACE pat AS \f
-HN) AL EE S y ; RATS EX AA A ë
 cr (RES ne à ( } l RUE TM “HF CRT }, don: É
-RUE Fer 4 TRES A one À RAT FAN PEN CA an ï
-Ve IN 4} à Di ÿ 1% N'ES Au
-NA BER : 4 ! AULR rires Ve fi
 “A FA Fa Il L 3 A vi {ie se Qu \ AR À A
-UE À 2e d \\ ÿ . f Ni ANNALES HAE iv
-‘4 (LEE) HAT j À FRE ‘TRS (NE PE ;
-He LR 1 à $ h C ï k ANGES ML Te RON Has (
 AP PICTANS ENT AUDE Û ‘ L Mao er ART. AUS aus FA
 et Nu VA Ua EE de LATE ‘SAT LAVER NUrTE 1
 NES FA ONE Es AL un RS
-tre AN RL UT à Ÿ AU AU \ (HAE AE ! / A + 4) ik au A sir Fo mu
-A1 HR RE
-1h)
 
-Le
-TABLE DE CE CAHIER
-PAGES
 Notre catalogue analytique sommaire. ........... 2
 DU MÊME AUTEUR aux Cahiers de la Quinzaine... 5
-DAPRAPS ŒUVRES DE SUARES ..............,... 4 7
 | D nuiraitd'Ibsen..........!..1....1,. 040 9
-M erdinand'Brunetière....................110VWm
-D del lanarchie .......:....1..:...4)0"20%6
-D A CGérmedu. Nord.:...1.......L0%3% 17
-Re A nd ue MER 22
-ionique du Nord:}.,1..,2 500 25 !
-à D mare d/Ibsen......,....:.,..4.%0..12NMa)
-LODEL ICE AN lARRERORRIE EE CRE A PS AU 35
 À Secretside la puissance......:.....1..0 39
-== Dsen ou le Mot...:::......,..,.44 0000000
-Mrdesridéess "NIUE Pons 47
-Héronsid'étre..t52e2:411t.Lhee Re 49
-LT RONA APRES ARENA LEE 53
 IV. — que le Moi ne peut tenir la gageure idéaRÉ LE NUS nn ao ADR ANINRIO
-Rs dIDSEn 40e Pt 65
-Profondeurs morales, ....:.1,:.1.41-22"04967
-Myranme des atomes!..:..0.2120000e 70 \
 lAnarchie du sens propre .............. 54
 
-M »
-
-NOIRS VE NÉE R ELe ELIRS CORRE LV Lt PNR MEN Sr à
-4. LRNTANTUT AN ER TARN
 cinquième cahier de la dixième 7 dr 1
 sur les glaciers de l'intelligence ............. D. |
-M Et |”
 V.— Puissance et Misère du Moi.............. "Br |
-2 Ov
 lidoleïde la Volonté.:.:"022- VERRE Sa 4
 Antique et Moderne... :...........:... | S5« Que le moi est le parfait pessimiste... 86470
 NI. la nuit à la fin du jour : 1:22. RS
 le rêve de-la lumière... :.....-.1#SCNr à
 Enfants et femmes... ....:..... AOC
-le contraste: :.-:.......... 0 SENS
-Restent les médecins.."..:. 2172002728 E
-VIL == Tolstotet Ibsen :...,:,.7.2. 2141 CORRE
 Moi et démocratie: ............ Or
 Yauberge dans le désert..."
-NAIL, — la mort froide ........!.::.:...... 4 CNRS
-Être soimême.: "11 OVER 1
-PAmertume "6.20 L
-le désir d'amour :.:...1:.:20 21000 À
 IX. — le moi est le héros qui désespère......... +17 1
 Ilia étéitiré de ce cahier... 21.0
 Table de ce cahier... NO $
-n:

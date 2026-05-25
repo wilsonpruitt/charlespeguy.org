@@ -8,35 +8,13 @@ isAvertissement: false
 ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 wordCount: 41469
 ---
-
-                               NEUVIÈME SÉRIE
- QUATORZIÈME CAMIER    DE w
-                       —  LA
-
-
-
-
-            ROMAIN ROLLAND
-
-
-
-
 Jean-Christophe à Pari
 
- I. — LA FOIRE SUR LA PLAGE. — 2
-
-
-
-
-       CAHIERS DE LA QUINZAINE
            paraissant seize fois par
-                                       an
-                      PARIS
   8, rue de la Sorbonne,
                               au rez-de-chaussée
 
    bous avons publié dans nos éditions antérieures
-•dans                                              et
        nos cinq premières séries, 1900-1904, un si
 f^rand nombre de documents, de textes formant dos
 siers, de renseignements et de commentaires:- un
@@ -46,37 +24,24 @@ si grand nombre de cahiers d'histoire et de philo
 sophie; et ces documents, renseignements, textes,
  dossiers et commentaires, ces cahiers de lettres,
 d’histoire et de philosophie étaient si considérables
-                                                donner ici
 que nous ne pouvons pas songer à en
 l'énoncé même le plus succinct ; pour savoir ce qui a
        dans   les cinq premières séries des cahiers, il
-paru
        d'envoyer      mandat  de cinq  francs  à M. André
-suffit            un
              administrateur  des cahiers,  8, rue de la Sor
-Bourgeois,
          rez-de-chaussée,  Paris,   cinquième arrondisse
-bonne,
                          retour  le  catalogue analytique
-ment; on recevra en                      premières    séries.
-             1900-1904,    de  nos  cinq
-sommaire,
                                  établi pour  donner,
-                      justement
    Ce catalogue a été
                           image en bref, un raccourci,
 autant qu'il pouvait, une
-              se
 
                            complète,  de nos   édition» anté
-     idée. abrégée, main
 une
 rieures et de nos
-                   cinq  premières  séries ;    y
                                              tout   est classé
                                 lire         trouver, à leur
 dans   l'ordre; il suffit de le      pour
-                        demandées.
 place, les références
 
                          grand jésus, forme un        cahier
@@ -95,32 +60,15 @@ vait, par le fait même de son abonnement, en tête de la
 série: nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en   fait la demande.
 
-Jean-CI
-
-
-
-
-P
-
 2
 
 Jean-Christophe û Paris
 
     Du même autel
 
-    ROMAIN   ROLLAI
-
-    I. — La Foi)
-_
- treizième cahie
 cahier blanc de   1
 
-
-
-marqué
-
     Comme on le s
-zième cahier faist
 
 remarquera que
 
@@ -129,46 +77,23 @@ remarquera que
                          Jean-Christophe à Paris.
  Romain ROLLAND. —
          La Foire sur la Place ;
-    I. —
 —
                                     neuvième série, un
  treizième cahier de la présente
-                                  in-io grand    jésus.
 cahier blanc de XXXVI-I 32 pages,
-                                            trois francs
-marque
 
     <omme on le verra tout aussitôt le
-                                      présent quatar-
 dème cahier faisant suite à ce précédent
                                          treizième. on
 remarquera que nous avons aussi patiné à
                                                la suite.
 
-Premier livre
-                (
-
-
-
-
-    LA FOU
-
-PAeskn
-         LIVNE (SuiTE ET vIx)
-
-
-
-
-   LA FOIRE SUR                 LA PLACE
-
 où fermentait
                 l’ai
 sur cette société
-absurde, démesi
 la compagne de I
 devenir son égal
 mière loi  pour <
-prêtait. Quanti u
 «a foi. toutes ses
 dispensatrice de
 mais les femmes
@@ -176,19 +101,13 @@ mêlent pas de fa
 
 cas dans    la Fri
 serait plus just
-féminin a toujou
 sur les meilleurs
 pour les époque
 qu'un, un autre    I
 
-
-
-en bas. Celui-là
-
                            forte «imposait    à  Christophe, *
    Une impression plus
 mesure qu il voyait plus clair dans la cuve aux
-                                                         idées,
                                                   de U femme
     fermentait rart parisien : la suprématie
 ou
@@ -222,25 +141,16 @@ a   foi. toutes ses
  dans les salons,
                              curieusement les
                     où la presentatson
-                                                   , ST;
-                                                      • •
-
 
  son talentde virtuose                       Sylvain
-                                          accuein.ohnst
                           l’avaient fait
      plupart des étrangers,
                                 il généralisait à
- . lankaises                                        toutes Ts
-               scs remarques
  deux ou trois types              sans indulgence d’après
                         qu'a avait rencontrés
- femmes, pas très                                 : de jeunes
                        grandes, sans beaucoup
                                                        de frai-
  c eur, la taille souple, les
-                                  cheveux teints,
- chapeau sur leur aimable                           un grand
                                tête, un peu
                                                grosse pour le
  corps ; les traits nets, la chair
@@ -260,7 +170,6 @@ la ligure dénotant le caractère matériel de
 personnes, qui, si occupées qu’elles fussent d’intrigues
 amoureuses, ne perdaient jamais de vue le souci du
 monde, et de leur ménage. Jolies, mais point de
-                                                           race.
 Chez presque toutes ces mondaines, on sentait la bour-
 geoise pervertie, ou qui aurait voulu l’être, avec les tra
 ditions de sa classe : prudence, économie, froideur, sens
@@ -273,26 +182,17 @@ leurs cheveux et leurs peignes, du revers ou du creux de
 leurs mains, par petits coups délicats. Et toujours assises
 de façon à pouvoir se mirer-et surveiller les autres—
 dans une glace, voisine ou lointaine. sans compteraal
-                                                     cafetières
 dîner ou au thé, les cuillers, les couteaux, les
 
-                                      PLACE
-                LA FOIRE SUR LA
 jeni polis et reluisants, on elles        ne manquaient
-                                                            ja-
-                                                          quiles
                                le reflet de  leur visage,
-                 au passage
 intéressait plus       qui          fût  et que quoi  que ce fût.
-                  que       que  ce
        observaient   à table   une   hygiène sévère : buvant
 Elles
 de l’eau, et se privant
                           de tous les mets, qui eussent pu
         atteinte à  leur  idéal  de blancheur enfarinée.
-porter
       proportion   des   Juives   était   assez  forte dans   les
-   La
 milieux que fréquentait Christophe; et il était toujours
 attiré par elles, bien que, depuis sa rencontre avec
 Judith Mannheim, il ne se fît guère d’illusions sur leur
@@ -306,9 +206,7 @@ internationaux, des espèces de négriers algériens,
 les hommes d’affaires de la République. Ils étaient
 
 lucides et énergiques, indifférents
-                                       aux autres, souriants,
 expansifs, et fermés. Christophe avait parfois le
-                                                            sen
  timent qu’il y avait des crimes
                                        sous ces fronts durs,
 dans le passé et dans l’avenir de
@@ -322,46 +220,27 @@ le troupeau des femmes,
 était assez brûlant. Il
                            ne fallait pas les regarder de
 TTOP près     la plupart avaient
-            .                         un manque de finesse
 dansla couleur. Mais
                          de T’éclat, une apparence
-     "                                                        vie
 
-x/::tp -
          le assez forte, de belles épaules qui
-nonissaient
                                                            ..
-                                                            P
-              orgueilleusement
-                                             aeterftaneuF,
-                                     meme
 
 certaines d'entre                  " artiste eut retrouvé en
                     <u   ,, ancien type romain, le» femmes
                            1
 
                 Jean-Christophe
-                                      à Paris
 du temps de Néron
-                , pae . —
-                      à celni                2
                                                         1
                                    Hadrien.  On voyait aussi
-des figures  s                           •
       "SUres a la 1 aima, d expression
-                                           charnelle au
 menton, fortement attaché dans le            non sans
-                                       con
 bestiale. D antres avaient les
-                                  cheveux abondants
-ses, des yeux brûlants, hardis                          etH
                                    : on les devinait
-                                                     fines in
 oisives, prêtes à tout, plus viriles que les autres femmes
 et cependant plus femmes. Au milieu du                      se
-                                                 troupeau,
 détachait çà et là un profil plus spiritualisé.
-                                                    Scs traita
 purs, par delà Rome, remontaient jusqu’à "Orient, au
 pays de Laban : on y sentait une poésie de silence, de
 Désert. Mais quand Christophe s’approchait et écoutait
@@ -375,46 +254,30 @@ et le corps des gens avec ses yeux de Madone.
 se mêler à aucun. Les hommes
                                       parlaient de chasse
 avec férocité, d’amour avec brutalité, d’argent
-                                                 seulement
 
             sûre  justesse, froide  et  goguenarde. Ils se
 avec    une
 disaient nationalistes. Ils disposaient d’ailleurs de leurs
  capitaux pour commanditer les entreprises industrielles
-                                                  d’affaire
  allemandes ou anglaises. On prenait des notes
- au fumoir.
              Christophe   entendait  dire d’un bellâtre,   q
-                                                     rosette
   se promenait entre les fauteuils des dames, une
                       grasseyant de  lourdes  gracieusetés.
   à la boutonnière,
 
-
-=======
    -   Comment! Il est donc en liberté?
     Dans
            un coin du
-                        salon, deux  dames   sentretenaien
-
-
-
 
  dejouer. Des poétesses, essoufflées, misse
                                 136
 
                LA   foire sur la PLACE
-                                                      Sully
-proférât
 preGorme   «     ™  ton apocalyptique des vers
               et de Auguste
-                             Dorchain.   I n
                                                    de
-                                              illustre cabo-
 
             solennellement   déclamer  du    Jean Marcau,
-ü„ çenait                                  Musique et Vers
-       accompagnement    d'orgue céleste.
  avec
                        Christophe      était  malade-   Mais
  étaient si Mies que               en
@@ -422,8 +285,6 @@ preGorme   «     ™  ton apocalyptique des vers
 les
                      dents magnifiques. On jouait
                                                         aussi
-   montrant  leurs
-en
    rIbsen. Épilogue de la lutte d’un
                                      grand homme contre
 de
@@ -432,7 +293,6 @@ les Soutiens de la
  Ensuite, ils se croyaient toustenus, naturellement, à
                                                   Les
 deviser sur l'art. C’était une chose écœurante.
-femmes surtout se mettaient à
                                    parler d’Ibsen, de
 Wagner, de Tolstoy, par flirt. par politesse, par ennui,
 
@@ -443,7 +303,6 @@ courtiers et des    négriers sur l'art. Christophe avait
 beau éviter de répondre, détourner l’entretien : on
 s'acharnait à lui parler musique, art, haute poésie.
 Comme disait Berlioz, ces gens-là emploient
-                       «                       ces termes
 arec le plus grand sang-froid ; on dirait qu’ils partent
 vin. femmes, ou autres cochonneries
                                          ». Un médecin
@@ -458,23 +317,14 @@ un comique fameux. —Anonnait en vibrant de profondes
 Pensées sur Nietzsche et sur Carlyle; il contait a Chris.
 
             ne pouvait pas voir un tableau de Velasquez,
-ar“a"       Le.dieu
                              -
                          jour)   • sans que de grosses
           christophe, toujours,        que, si haut qui
-                                   _
                           137
 
-                Jeat-Chrixtophe
-                                       à Pari,
 plaçât l’art, il plaçait encore plus
 
-
-
-ondelee:     noe       " *•» u
 -lait pas sensiblement relevée. Christophe Falsall
-                                                          “
-                                                          k
 compte de ce qu’ils passaient pour dire, et de
  disaient en effet. Le plus souvent, ils ne disaient sien?
  | » s en tenaient à des brusqueries
@@ -508,31 +358,22 @@ que ce fût Gricg, ou Wagner, ou
                                                        les
 
  siciens s’étalent sur-le-champ détachés de lui,suivant.“
-                                                     art
 système de    bascule, qui est une des lois du
 tique en France. Pour savoir ce qu d pense, un Fransal
-
-                                   PLACE
-                   LA FOINE SUn LA
-
 
 .
                   , ce que
     besoin de savoir
-                                 .en“QPaYre C-4
                                  P        son   voisin, afin de
                                                            ainsi
 £    «osant Deethoven devenir        populaire, les           t
        rentre Les musiciens avaient commencé de"
     trouver assez distingué pour eux; ils Pré ‘ ndainn’
-J..
-Gevancer
          ropinion, et ne jamais la suivre; plutotque
 de se trouver
                    d’accord avec elle, »I* lui cussent tourne
 k* do*    II*   sétaient donc mis à traiter Beethoven de
      sourd, qui criait d’une voix apre; et certains affir
-vins
 maient qui! était peut-être un moraliste estimable, niai*
 
 un musicien
@@ -548,14 +389,11 @@ le lion du jour : il était fâcheux pour lui qu'il frit mort
  moins romanesques de sa vie, popularisée
                                                par des bio-
  graphies sentimentales et vertueuses. Son
-                                                masque vio-
 lent, au mufle de lion, était devenu
                                              une figure de
 romance. Les dames s’apitoyaient sur lui: elle* lais-
-saient entendre
                  que. si elles l’avaient connu, il n'eût pas
 été aussi malheureux et leur grand
-                        ;                cœur était d'autant
  plus disposé à s’offrir qu'il
                                n’y avait aucun risque
 Beethoven les prit
@@ -571,14 +409,11 @@ trésors de piété
                            ils recueillaient les hommages
 glli     étaient destinés. De
                                 somptueux festivals, à de»
-          'élevés, donnaient
                                 aux gens du monde rocea.
- sion 1
        e montrer leur générosité.
                                       -  et parfois «Mai de
 
                  Jean-Christophe
-                                       à Paris
 découvrir les symphonies
                              de Beethoven. D..
 comédiens, de mondains,         demi-mondai^X'
@@ -592,14 +427,11 @@ elever un monument à Beethoven:                   surlallee
 avec quelques braves gens, qui
                                     servaient de passeport
 aux autres, toute cette racaille, qui eût foulé aux
-                                                         pieds
-Beethoven vivant,
                      ou que Beethoven eût écrasée.
    Christophe regardait, écoutait. Il
                                            serrait les dents,
 pour ne pas dire une énormité. Toute la soirée, il restait
 tendu et crispé. Il ne pouvait ni parler, ni
-                                                      se taire.
 Parler, non par plaisir ou par nécessité, mais
                                                       par poli
 tesse, parce qu’il faut parler, lui semblait humiliant et
@@ -616,7 +448,6 @@ pas à sa place; et. comme il était assez
 avoir le sens de l’harmonie du milieu, où sa présence dé
 tonnait, il était aussi choqué de ses façons d’être que ses
                     Il  s’en  voulait,  et  il  leur en  voulait.
-hôtes  eux-mêmes.
   Quand il se retrouvait seul enfin dans la rue, au
              nuit, il  était  si écrasé  d’ennui qui n'avait
 milieu de la
@@ -624,37 +455,22 @@ milieu de la
 pas la force de rentrer
                                     rue, comme il avait été,
 
-X
 se coucher par terre,   en  pleine
 
-                                       ch^.^
                     point de le faire, lorsque,
-                ur >e
 
-Parfois,
-        U
-                     .. o
             «venait de jouer «n
-         n’ayant
             .  a plus que cing1 a six Irancs P—
-                          ci
 
 4
-      _         LA   FOIRE SUR LA
-                                  PLACE
 
-                          dépensait
                    il en afin
-         seeesjhument,
                                       deux    à une voilure.
                                    de fuir plus vite; et
 ^eRmporUiU gémissait dénervement Chez Im.
                                                               Il sy
-                                                            tandis
 
-rgémissait                                           de son son.-
                encore,dans son lit.au milieu
-mëi                 brusquement,      «   éclatait de rire, en se
           Et puis,
                                                              la re-
 raDDelant une parole burlesque. Il se surprenait a
@@ -662,7 +478,6 @@ raDDelant une parole burlesque. Il se surprenait a
 dire, en mimant            gestes.
                        arrivait               promenant   seul, de
 jours après, il lui              encore,   se
-                                          bête... Pourquoi   allait-
   gronder tout à coup, comme une
                    ?   Pourquoi    retournait-il  les voir ? Pour
 il  voir  ces gens
@@ -674,7 +489,6 @@ il  voir  ces gens
      l'intéressât pas   ? Il y a un an, il n’eût jamais pu sup
  ne
   porter cette société. Maintenant, elle l'amusait au
-                                                              fond,
   tout en l'irritant. Etait-ce un peu de l’indifférence pari
   sienne qui s’insinuait en lui ? Il se demandait parfois avec
   inquiétude s'il était donc devenu moins fort. Mais c'était
@@ -1020,8 +834,6 @@ Elle dit :
 
 Elle rit, et dit, en lui faisant les yeux les plus câlins et sa voix la plus douce :
 
-— Restez !
-
 Il était sur le point de céder encore. Mais Lucien Lévy-Cœur entra ; et les mêmes yeux câlins et la même voix douce servirent à le recevoir. Christophe regarda Colette quelque temps, en silence, faire ses petites comédies ; puis il s'en alla, décidé à rompre. Il avait le cœur chagrin. C'était si bête de s'attacher toujours, de se laisser prendre au piège !
 
                               168
@@ -1140,8 +952,6 @@ le camp opposé, où il avait réussi à se faire l'ami des personnalités les p
 
 — Comment pouvez-vous garder de tels hommes avec vous ?
 
-Achille Roussin répondit :
-
 — Il a tant de talent ! Et puis, il travaille pour nous, il détruit le vieux monde.
 
 — Je vois bien qu'il détruit, dit Christophe. Il détruit si bien que je ne sais pas avec quoi vous reconstruirez. Êtes-vous sûr qu'il vous restera assez de charpente pour votre maison nouvelle ? Et même, êtes-vous sûr que les vers ne se sont pas mis déjà dans votre chantier de construction ?
@@ -1189,7 +999,6 @@ comprendre, qui ne sait que dénigrer, dénigrer à vide, aigrement, sans aucune
 Mais Christophe n'éprouvait qu'un grand dégoût pour les uns et pour les autres : car il ne pensait point que la bassesse des persécutés fût une excuse pour celle des persécuteurs. Il n'avait que trop souvent rencontré chez les Stevens des types de cette bourgeoisie riche et maussade, que lui dépeignait Roussin,
 
        *… l'anime triste di coloro,*
-*Che visser senza infamia e senza lodo…*
 
 Il ne voyait que trop les raisons que Roussin et ses amis avaient d'être sûrs non seulement de leur force sur ces gens, mais de leur droit d'en abuser. Les outils de domination ne leur manquaient point. Des milliers de fonctionnaires sans volonté, ayant abdiqué toute personnalité, obéissant aveuglément, *perinde ac cadaver*, véritables automates, rouages exacts du mécanisme napoléonien. Des mœurs courtisanesques, une République sans républicains ; des journaux socialistes, des élus socialistes aplatis devant les rois en visite. Des âmes de domestiques, en arrêt devant les titres, les galons, les décorations : pour les tenir en laisse, il n'y avait qu'à leur jeter en pâture quelque os à ronger, ou la Légion d'Honneur. Si les rois avaient anobli tous
 
@@ -1233,7 +1042,6 @@ Sans qu'il l'eût cherché, Christophe avait acquis une petite notoriété dans 
 
                                 197
 
-
 Kohn.) — Christophe intéressait, et il ne gênait point ; il ne prenait la place de personne. Il n'était tout qu'à lui d'être un grand homme de cénacle. Il n'avait qu'à ne rien écrire, ou le moins possible, surtout à ne rien faire entendre de lui, et à alimenter d'idées les Goujart et leurs pareils, tout cette engeance, qui a pris pour devise un mot fameux, — en l'arrangeant un peu :
 
 « *Mon verre n'est pas grand ; mais je bois… dans celui des autres.* »
@@ -1244,8 +1052,6 @@ Un sot vaniteux, qui avait trouvé plaisir à cette cour de parasites. Mais Chri
 
                               198
 
-                LA FOIRE SUR LA PLACE
-
 pour un rôle passif. Tout chez lui avait l'action pour but. Il observait, pour comprendre ; et il voulait combattre, pour agir. Libre de contrainte d'école et de préjugés, il s'informait de tout, lisait tout, étudiait dans son art toutes les formes de pensée et les ressources d'expression des autres pays et des autres temps. Chacune de celles qui lui paraissaient efficaces et vraies, il en faisait sa proie. A la différence de ces artistes français qu'il étudiait, ingénieux inventeurs de formes nouvelles, qui s'épuisent à inventer sans cesse, et laissent leurs inventions en chemin, il cherchait beaucoup moins à innover dans la langue musicale qu'à la parler avec plus d'énergie ; il n'avait point le souci d'être rare, mais celui d'être fort. Cette force passionnée s'opposait au génie français de finesse et de mesure. Elle avait le dédain du style pour le style et de l'art pour l'art. Les meilleurs artistes français lui faisaient l'effet d'ouvriers de luxe. Un des plus parfaits poètes parisiens s'était amusé lui-même à dresser « la liste ouvrière de la poésie française contemporaine, chacun avec sa denrée, son produit ou ses soldes » ; et il énumérait « les lustres de cristal, les étoffes d'Orient, les médailles d'or et de bronze, les guipures pour douairières, les sculptures polychromes, les faïences à fleurs », qui sortaient de la fabrique de tel ou tel de ses confrères. Lui-même se représentait, « dans un coin du vaste atelier des lettres, reprisant de vieilles tapisseries, ou dérouillant des pertuisanes hors d'usage ». — Cette conception de l'artiste, comme d'un bon ouvrier, attentif uniquement à la perfection du métier, n'était pas sans grandeur. Mais elle ne satisfaisait pas Christophe ; et, tout en y reconnaissant une di-
 
                               199
@@ -1254,13 +1060,9 @@ pour un rôle passif. Tout chez lui avait l'action pour but. Il observait, pour 
 
 gnité professionnelle, il avait un peu de mépris pour la pauvreté de vie qu'elle recouvrait, à l'ordinaire. Il ne concevait pas qu'on écrivît pour écrire, qu'on parlât pour parler. Il ne disait pas des mots, il disait — ou voulait dire — des choses.
 
-*Ei dice cose, e voi dite parole…*
-
 Après une période de repos où il n'avait été occupé qu'à absorber un monde de pensées nouvelles, l'esprit de Christophe était pris brusquement d'un besoin de créer. L'antagonisme qu'il sentait entre Paris et lui, centuplait sa force, en accusant sa personnalité. C'était un débordement de passions, qui demandaient impérieusement à s'exprimer. Elles étaient distinctes les unes des autres, et souvent elles semblaient se contredire ; il était sollicité par la même ardeur de sujets les plus opposés. Il lui fallait tout dire, où se décharger de l'amour qui lui gonflait le cœur, et aussi de la volonté ; et de la haine, et du renoncement, et de tous ces démons qui s'entrechoquaient en lui, et qui avaient le droit égal à vivre. À peine s'était-il soulagé l'un, il n'avait même pas la patience d'aller jusqu'à la fin de l'œuvre ; une autre, d'une passion contraire. Mais la contradiction n'était qu'apparente : il s'agissait toujours, il restait toujours le même. Toutes les œuvres étaient des chemins différents qui menaient au même but ; il prenait toutes les routes, à la fois ; en prenait toutes les routes, à la fois ; à la montagne ; il en suivait tous les détours moelleux ; les unes s'attardaient à l'ombre, en bras détours moelleux ; les autres montaient âprement, arides, au soleil ; toutes conduisaient à Dieu, aboutissaient sur la cime. Amour,
 
                               200
-
-                LA FOIRE SUR LA PLACE
 
 haine, volonté, renoncement, toutes les forces humaines, portées au paroxysme, touchent à l'éternité, et déjà y participent. Chacun la porte en soi : le religieux et l'athée, celui qui voit la vie partout, et celui qui la nie partout, et celui qui doute de tout et de la vie et de la négation, — et Christophe, dont l'âme embrassait tous ces contraires à la fois. Tous les contraires se fondent en l'éternelle Force. L'important pour Christophe, c'était de réveiller cette Force en lui et dans les autres, de jeter des brassées de bois sur le brasier, de faire flamber l'Éternité. Une grande flamme s'était levée dans son cœur, au milieu de la nuit voluptueuse de Paris. Il se croyait libre de toute foi, et il n'était tout entier qu'une torche de foi.
 
@@ -1277,8 +1079,6 @@ Qui n'a connu des types de ces misérables hommes de trente à cinquante ans, qu
 vie uniquement littéraire, enfermés dans l'horizon des cafés, des cénacles, des coulisses, des bureaux de rédaction, et qui ont brûlé tout leur feu dans des discussions d'esthètes et les amours faciles ! Ils n'ont pas réussi ; leur ardeur de jeunesse est tombée ; nul idéal ne les soutient ; nulle raison de continuer à écrire, puisqu'il n'y a ni vocation impérieuse, ni espoir de succès. Nulle raison, sinon qu'il est trop tard, et qu'ils ne peuvent plus faire autre chose. Aigris par le plus souvent des chagrins domestiques : des liaisons qui ont fait le vide autour d'eux, et qui brusquement sont brisées, les laissant seuls au milieu du chemin de la vie, — soit abandon, soit mort. Point d'amis. Des compagnons de cénacles, les vieux, les maîtres autour desquels on se groupait, sont morts. Des jeunes, les uns aussi sont morts ; d'autres ont fait le plongeon dans le marais de la médiocrité ; les plus poignée a réussi : ceux-là, on les voit plus ; ils se sont élevés dans d'autres régions. Il ne reste plus ensemble que quelques découragés, dont l'intelligence critique a survécu à la ruine de leurs illusions, s'est mêmes alliée, ou pourrait dire envenimée, à la suite de cette ruine, et leur inspire le dégoût de ceux qui sont comme eux, et la haine secrète de ceux qui ne sont pas comme eux. Toutes ces ombres douloureuses et ironiques se peuvent souffrir les croyants et les vivants. Le seul d'héroïsme, d'idéalisme, de foi, les met mal à l'aise. Il faut se venger de ceux qui restent dignes de la foi génératrice de leurs vingt ans, et il faut qu'ils les tournent en dérision, ou mieux, qu'ils les prennent compassion, injurieusement. Combien d'Heddas Gabler parmi les hommes ! Quelle sourde lutte pour annihiler
 
                               202
-
-                LA FOIRE SUR LA PLACE
 
 les forces neuves et libres, quelle science pour les tuer par le silence, par l'ironie, par l'usure, par le découragement, — et par quelque séduction perfide, au bon moment !… Ils souffrent, ils souffrent tant !… — Sans doute. Mais ce n'est pourtant pas une raison pour faire souffrir les autres, — et les plus innocents de tous. C'est ce raisonnement hideux :
 
@@ -1300,8 +1100,6 @@ Entre toutes les maladresses commises, Christophe eut celle de partir à propos 
 
                               204
 
-                LA FOIRE SUR LA PLACE
-
 cette douceur, qui, lorsqu'elle se heurtait à une force, qu'elle ne parvenait pas à entamer, cherchait à la tuer, mais sans éclat, par l'étouffement en silence. Il n'était pas pressé, étant de ceux qui, comme Christophe, comptaient sur le temps ; mais c'était pour détruire, au lieu que Christophe, c'était pour édifier. Il n'eut pas de peine à détacher de Christophe Sylvain Kohn et Goujart, comme il l'avait peu à peu évincé du salon des Stevens. Il fit le vide autour de lui.
 
 Christophe s'en chargeait, de lui-même. Il ne contentait personne, n'étant d'aucun parti, ou mieux, étant contre tous les partis. Il n'aimait pas les Juifs ; mais il aimait encore moins les antisémites. Cette lâcheté des masses soulevées contre une minorité puissante, non parce qu'elle est mauvaise, mais parce qu'elle est puissante, cet appel aux bas instincts de jalousie et de haine, lui répugnait. Il se faisait regarder par les Juifs comme un antisémite, par les antisémites comme un Juif. Quant aux artistes, ils sentaient en lui l'ennemi. Depuis qu'il était à Paris, Christophe se faisait encore plus Allemand en art qu'il n'était. En opposition avec la voluptueuse ataraxie de certaine musique parisienne, il célébrait la volonté violente, un pessimisme viril et sain. Quand la joie paraissait, c'était un manque de goût, une fougue plébéienne, bien faits pour révolter jusqu'aux aristocratiques patrons de l'art populaire. Une forme savante et rude. Il n'était même pas loin d'affecter, par réaction, une négligence apparente dans le style et une insouciance de l'originalité extérieure, qui devaient être très sensibles aux musiciens français. Aussi, ceux d'entre eux, à qui il communiqua quelques-unes de ses œuvres, l'englobèrent-ils, sans y regarder de
@@ -1312,7 +1110,6 @@ Christophe s'en chargeait, de lui-même. Il ne contentait personne, n'étant d'a
 
 plus près, dans le mépris qu'ils avaient pour le wagnérisme attardé de l'école allemande contemporaine. Christophe ne s'en souciait guère ; il riait intérieurement, se répétant ces vers d'un charmant musicien de la Renaissance française, — adaptés à son usage :
 
-………………………………
 *Va, va, ne t'esbahy de ceux la qui diront :
 Ce Christophe n'a pas d'un tel le contrepoint,
 Il n'a pas de cestuy la pareille harmonie,
@@ -1323,8 +1120,6 @@ Mais quand il voulut essayer de faire jouer dans les concerts quelques-unes de s
 Christophe ne s'entêta point à faire des démarches. Il s'enferma chez lui, et se remit à écrire. Peu lui importait que les gens de Paris l'entendissent ou non. Il écrivait pour son plaisir, et non pour réussir. Le vrai artiste ne s'occupe pas de l'avenir de son œuvre. Il est comme ces peintres de la Renaissance, qui peignaient joyeusement des façades de maisons, sachant que dans dix ans il n'en resterait rien. Christophe travaillait donc en paix, résigné avec bonhomie à attendre des temps meilleurs, quand un secours lui vint d'un côté inattendu.
 
                               206
-
-                LA FOIRE SUR LA PLACE
 
 Christophe était alors attiré par la forme dramatique. Il n'osait pas encore s'abandonner librement au flot de son lyrisme intérieur. Il avait besoin de le canaliser dans des sujets précis, de fixer ses passions dans des personnages indépendants de lui. Et sans doute, est-il bon pour un jeune génie, qui n'est pas encore maître de soi, qui ne sait même pas encore qui il est exactement, de se créer des limites volontaires où enfermer son âme qui se dérobe à soi-même. Ce sont les écluses et les digues nécessaires qui permettent de diriger le cours de la pensée. — Malheureusement, il manquait à Christophe un poète ; il était obligé de se tailler lui-même ses sujets dans la légende ou dans l'histoire : car il lisait beaucoup, surtout depuis qu'il était à Paris ; et, dans l'état d'obsession créatrice où il vivait, tout ce qu'il lisait surexcitait ses rêves ; tout devenait pour lui le sujet d'une œuvre musicale ; il se retrouvait dans tel ou tel héros, sous l'une des faces diverses de son âme multiple.
 
@@ -1339,8 +1134,6 @@ Parmi les images qui flottaient en lui depuis quelques mois, étaient des images
 Une des figures du livre, pour qui il avait une tendresse spéciale, était celle de David adolescent. Il ne lui prêtait pas l'ironique sourire de gamin de Florence, ni la tension tragique, que Verrocchio et Michel-Ange avaient données à leurs œuvres sublimes : il ne le connaissait pas. Il voyait son David comme un petit pâtre poétique, au cœur vierge, où dormait l'héroïsme, un Siegfried du Midi, de race plus affinée, plus beau, plus harmonieux de corps et de pensée. Il avait beau se révolter contre l'esprit latin : à son insu, cet esprit avait commencé de s'infiltrer en lui. Ce n'est pas seulement par les sujets sur l'art, ce n'est pas seulement par la pensée, c'est tout ce qui vous entoure : les gens, les choses, les habitudes, les gestes, les paroles, les mouvements, les lignes, la lumière de chaque ville. Chaque ville a son atmosphère, à laquelle l'artiste est plus sensible que tout autre, et qui, chez le musicien, se transforme en musique. L'atmosphère de Paris est bien forte : elle modèle les âmes germaniques le plus capables de résister : elle se drape en vain dans son orgueil national, elle est, de toutes les âmes européennes, la plus prompte à se dénationaliser. Celle de Christophe avait déjà commencé, sans qu'il s'en doutât, de prendre
 
                               208
-
-                LA FOIRE SUR LA PLACE
 
 à l'art latin, une clarté, une sobriété, une intelligence des sentiments, et même, dans une certaine mesure, une beauté *plastique*, qu'elle n'aurait jamais eues sans cela. Son *David* en était la preuve.
 
@@ -1359,8 +1152,6 @@ Christophe, en écrivant cette scène, ne s'était occupé que de sa propre joie
 Un soir qu'il en parlait à Achille Roussin, et qu'il se demanda, il avait essayé de ne pas songer aux moyens idée, au piano, il fut bien étonné de voir Roussin prendre feu et flamme pour l'œuvre, et déclarer qu'il fallait à tout prix qu'elle fût jouée sans retard. Christophe, étonné, en faisait son affaire. Il fut bien plus étonné encore, quand il vit, après quelques jours après, que Roussin touchait la chose au sérieux ; et s'en étonnement touchât à la stupeur, lorsqu'il vit Sylvain Kohn, Goujart, et Lucien Lévy-Cœur lui-même, s'y intéressaient. Il lui fallait admettre que les rancunes personnelles de ces gens et leurs petits intérêts cédaient à l'amour de l'art : cela le surprenait bien. Le moins empressé à dire son avis, Sylvain Kohn était silencieux. Il aucunement faite pour le théâtre ; c'était un mauvais tour à lui donner, et presque une chose blessante. Mais Roussin fut si insistant, Sylvain Kohn si persuasif, et
 
                               210
-
-                LA FOIRE SUR LA PLACE
 
 Goujart si affirmatif, que Christophe se laissa tenter. Il fut lâche. Il avait si grande envie d'entendre sa musique !
 
@@ -1409,8 +1200,6 @@ L'impresario se frottait le nez avec embarras :
 Il reprit la répétition. Ce fut encore pis. Il dut renoncer à aller jusqu'au bout : il devenait nerveux ; ses observations à la chanteuse, d'abord froides mais polies, se faisaient sèches et coupantes, en dépit de la peine évidente qu'elle se donnait pour le satisfaire, et des œillades qu'elle lui décochait pour gagner ses bonnes grâces. L'impresario, prudemment, interrompit la répétition, au moment où elle allait s'apercevoir de ce qui se tramait. Pour pallier le mauvais effet des observations de Christophe, il s'empressait auprès de la chanteuse, lui
 
                               212
-
-                LA FOIRE SUR LA PLACE
 
 lui prodiguait de pesantes galanteries, lorsque Christophe, qui assistait à ce manège, avec une impatience non dissimulée, lui fit signe impérieusement de venir, et dit :
 
@@ -1462,8 +1251,6 @@ Christophe comprit. Ainsi, c'était pour elle, et il n'était pas pour lui que l
 
                               214
 
-                LA FOIRE SUR LA PLACE
-
 matique, et qui mettait en pleine valeur l'élégance de ses formes.
 
 Christophe écouta l'histoire jusqu'au bout ; puis il se dégagea du bras de Sylvain Kohn, et il éclata de rire. Il rit, il rit, longuement. Quand il eut fini de rire, il dit :
@@ -1494,13 +1281,9 @@ Il ne savait pas qu'une grande âme n'est jamais seule, et qu'à défaut d'amis 
 
                               216
 
-                LA FOIRE SUR LA PLACE
-
 Il y avait chez les Stevens une petite fille de treize à quatorze ans, à qui Christophe avait donné des leçons, en même temps qu'à Colette. Elle était cousine-germaine de Colette, et se nommait Grazia Buontempi. C'était une fillette au teint doré, roissant délicatement aux pommettes, les joues pleines, d'une santé campagnarde, un petit nez un peu relevé, la bouche grande, bien fendue, à demi entr'ouverte toujours, le menton rond, très blanc, les yeux tranquilles, doucement souriants, le front rond, encadré d'une profusion de cheveux longs et soyeux, qui descendaient, sans boucles, le long des joues, avec de légères et calmes ondulations ; la taille souple et droite. Une petite Vierge d'Andrea del Sarto, à la figure large, au beau regard silencieux.
 
 Elle était Italienne. Ses parents habitaient, presque toute l'année, à la campagne, dans une grande propriété du Nord de l'Italie : plaines, prairies, canaux, vignes et oliviers. De la terrasse sur le toit, on avait à ses pieds la mer d'oliviers argentés et de vignes d'or, d'où émergeaient de place en place les fuseaux noirs des cyprès. Les grappes de raisins mûrs s'enroulaient autour des olives vertes. Au delà, c'étaient les champs, les champs. Le silence. On entendait meugler les bœufs qui retournaient le sol, et les cris aigus des paysans à la charrue :
-
-— *Ihi !… Fat innanz' !…*
 
 Le soir, les cigales chantaient dans les arbres, et les grenouilles le long des petits canaux. Et, la nuit, c'était l'infini du silence, sous la lune aux flots d'argent. Au
 
@@ -1513,8 +1296,6 @@ loin, de temps en temps, les gardiens des olivettes, qui sommeillaient dans leur
 Autour de la petite Grazia, la vie semblait endormie. On ne s'occupait pas beaucoup d'elle. Elle poussait tranquillement dans le beau calme qui la baignait. Nulle fièvre, nulle hâte. Elle était paresseuse, elle aimait à flâner et dormir longuement. Elle restait étendue, des heures, dans le jardin. Elle se laissait glisser sur le silence, comme une mouche sur un ruisseau d'été. Et parfois, brusquement, elle se mettait à courir, sans raison. Elle courait, comme un petit animal, la tête et le buste légèrement penchés à la droite, souplement, sans raideur. Vrai vrai cabri, qui grimpait et glissait, parmi les pierres, pour la joie de bondir. Elle causait avec les chiens, avec les grenouilles, avec les herbes et les arbres, avec les paysans et les bêtes de la bassecour. Elle adorait tous les petits êtres qui l'entouraient, et aussi les grands : mais avec ceux-ci elle se livrait moins. Elle voyait très peu de monde. La maison était loin de la ville, isolée. Bien rarement passait sur la route poudreuse le pas traînant de quelque grave paysan, ou d'une belle campagnarde, aux yeux lumineux dans la figure hâlée, marchant d'un rythme balancé, la tête haute, la poitrine en avant. Grazia vivait, des journées seule, dans le parc silencieux ; elle ne voyait personne ; elle ne s'ennuyait jamais. Elle n'avait peur de rien.
 
                               218
-
-                LA FOIRE SUR LA PLACE
 
 Une fois, un vagabond entra, pour voler quelques fruits ou une poule dans la ferme déserte. Il s'arrêta, interdit, devant la petite fille, couchée dans l'herbe, qui mangeait une longue tartine, en chantonnant une chanson. Elle le regarda tranquillement, et lui demanda ce qu'il voulait. Il dit :
 
@@ -1544,8 +1325,6 @@ Il y avait aussi certains livres, certaines pages de poètes, lues en cachette, 
 
                               220
 
-                LA FOIRE SUR LA PLACE
-
 troubles délicieux. Et, plus encore, certaines musiques, bien qu'on lui dît qu'elle n'y pouvait rien comprendre ; et elle se persuadait qu'elle n'y comprenait rien ; — mais elle était toute pâle et moite d'émotion. Personne ne savait ce qui se passait en elle, à ces moments.
 
 En dehors de cela, elle était toujours une petite fille bien sage, docile, étourdie, paresseuse, assez gourmande, rougissant pour un rien, tantôt se taisant pendant des heures, tantôt parlant avec volubilité, riant et pleurant facilement, avec de brusques sanglots et un rire d'enfant. Elle aimait rire, et s'amusait de petits riens. Jamais elle ne cherchait à jouer la dame. Elle restait enfant. Surtout, elle était bonne, elle ne pouvait souffrir de faire de la peine, et elle avait de la peine du moindre mot un peu fâché contre elle. Très modeste, s'effaçant toujours, toute prête à aimer et à admirer tout ce qu'elle voyait ou croyait voir de beau et de bon, elle prêtait aux autres des qualités qu'ils n'avaient pas.
@@ -1568,8 +1347,6 @@ Il ne faisait aucune attention à elle ; il n'était occupé que de Colette. Gra
 
                               222
 
-                LA FOIRE SUR LA PLACE
-
 petit cœur s'en réjouissait pour Colette et pour Christophe. Elle trouvait Colette si supérieure à elle qu'il lui semblait naturel qu'elle absorbât tous les hommages. — Ce ne fut que lorsqu'il fallut choisir entre sa cousine et Christophe qu'elle sentit son cœur prendre parti contre celle-là. Avec son intuition de petite femme, elle vit bien que Christophe souffrait des coquetteries de Colette et de la cour assidue que lui faisaient ces petits jeunes gens, ce Lucien Lévy-Cœur, que déjà, d'instinct, elle n'aimait pas, et qu'elle détesta, dès le moment qu'elle sut que Christophe les détestait. Elle ne pouvait comprendre comment Colette s'amusait à les mettre en rivalité avec Christophe. Elle commença de la juger sévèrement, en secret ; elle surprit certains de ses petits mensonges, et elle changea brusquement de manières avec elle. Colette s'en aperçut, sans en deviner la cause ; elle affectait de l'attribuer à des caprices de petite fille. Mais le certain, c'était qu'elle avait perdu son pouvoir sur Grazia : un fait insignifiant le lui montra. Un soir que, se promenant toutes deux au jardin, Colette voulait, avec une tendresse coquette, abriter Grazia sous les plis de son manteau contre une petite ondée qui s'était mise à tomber, Grazia, pour qui c'eût été, quelques semaines avant, un bonheur ineffable de se blottir contre le sein de sa chère cousine, s'écarta froidement, et se tint à quelques pas, en silence. Et quand Colette disait qu'elle trouvait laid un morceau de musique, que jouait Grazia, cela n'empêchait pas Grazia de le jouer, et de l'aimer.
 
 Elle n'était plus attentive qu'à Christophe. Elle avait la divination de la tendresse, et percevait ce qu'il souffrait, sans qu'il eût besoin de le dire. Elle l'exagérait beaucoup, il est vrai, dans son attention inquiète et
@@ -1585,8 +1362,6 @@ La pauvre Grazia ravala toutes les larmes de son corps, mais encore du chagrin q
 Elle souffrit bien plus, quand Christophe cessa de venir chez les Stevens. Elle eut tout à coup envie de revenir au pays. Cette enfant, si saine jusque dans ses rêveries, et qui gardait en elle un fond de sérénité rustique, se sentait mal à l'aise dans cette ville, au milieu des Parisiennes neurasthéniques et agitées. Sans oser le dire, elle avait fini par juger assez exactement les gens qui l'entouraient. Mais elle était timide, faible, comme son père, par bonté
 
                               224
-
-                LA FOIRE SUR LA PLACE
 
 par modestie, par défiance de soi. Elle se laissait dominer par sa tante autoritaire et par sa cousine habituée à tout tyranniser. Elle n'osait pas écrire à son vieux papa, à qui elle envoyait régulièrement de longues lettres affectueuses :
 
@@ -1788,7 +1563,6 @@ veau emportée, roulée par l'écume. Et Christophe se débattait dans le délir
 
                               253
 
-
 Tandis qu'il se débattait contre les fantômes de la fièvre et contre l'étouffement qui gagnait sa poitrine, il eut vaguement conscience qu'on ouvrait la porte de sa chambre, et qu'une jeune femme entrait, une bougie à la main. Il crut que c'était encore une hallucination. Il voulut parler. Mais il ne put pas, et retomba. Quand, de loin en loin, une vague de conscience le ramenait du fond à la surface, il sentait qu'on avait soulevé son oreiller, qu'il lui avait mis une couverture sur les pieds, qu'il avait vu le dos quelque chose qui le brûlait; on il voyait, assise au pied de lui, cette femme, dont la figure ne lui était pas tout à fait inconnue. Puis il vint une autre figure, un médecin, qui l'ausculta. Christophe n'entendait pas ce qu'on lui disait; mais il devina qu'on parlait de le porter à l'hôpital. Il essaya de protester, de crier qu'il ne voulait pas, qu'il voulait mourir ici, tout seul; mais il ne sortait de sa bouche que des sons incompréhensibles. La femme le comprit pourtant : car elle prit sa défense, et elle le calma. Il s'épuisait à savoir qui elle était. Assitôt qu'il put formuler une phrase suivie, au prix d'efforts inouïs, il le lui demanda. Elle lui répondit qu'elle était la voisine de mansarde, qu'elle l'avait entendu gémir de l'autre côté du mur, et qu'elle s'était permis d'entrer, pensant qu'il avait besoin d'aide. Elle le pria respectueusement de ne pas se fatiguer à parler. Au reste, il était brisé par l'effort qu'il avait fait; il se tint donc immobile, et se tut; mais son cerveau continuait de travailler, pour rassembler péniblement ses souvenirs épars. Où donc l'avait-il vue ?... Il finit par se rappeler : oui, il l'avait rencontrée dans le couloir des mansardes; elle était domestique; elle se nommait Sidonie. Les yeux à demi clos, il la regardait, sans qu'elle le vit. Elle était petite, la figure
 
                                 254
@@ -1801,8 +1575,6 @@ Peu à peu cependant, lorsqu'il alla mieux et qu'il put causer avec elle, la bon
 
 — « Oui; mais elle pensait à la quitter. »
 
-— « Pourquoi ? »
-
 — « Oh! non. Ils étaient très bons pour elle. »
 
 — « Est-ce qu'elle ne gagnait pas assez ? »
@@ -1811,15 +1583,11 @@ Peu à peu cependant, lorsqu'il alla mieux et qu'il put causer avec elle, la bon
 
 *Jean-Christophe à Paris*
 
-— « Si... »
-
 Il ne comprenait pas bien, il essayait de comprendre, il l'encourageait à parler. Mais elle n'était pas habile à raconter ce sa vie monotone, la peine qu'on avait à gagner sa vie n'y insistait point : le travail ne l'effrayait pas, et lui était un besoin, presque un plaisir. Elle ne parlait pas de ce qui lui était le plus pesant : l'ennui. Il le devinait pourtant : elle, il lisait en elle, avec l'intuition d'une grande sympathie, que la maladie avait aiguisée, et que cette habitude le souvenir des épreuves supportées dans une vie analogue de la chère maman. Il lui semblait, comme à elle, que l'existence ordinaire, morne, malsaine, contre nature, de la société bourgeoise impose aux domestiques, que le service de ces méchants, mais indifférents, qui la laissaient parfois plusieurs jours, sans lui dire un mot, sans pour le service. Les heures, les heures, à l'étouffante cui-ine, dont la lucarne, encombrée par un garde-manger, donnait sur un mur blanc sale. Toutes ses pensées, quand on lui disait négligemment que la sauce était bonne, ou le rôti bien cuit. Une vie murée, sans avenir, sans une lueur de désir et d'espoir, sans intérêt à rien.
 
 — Le plus mauvais moment pour elle, c'était quand ses maîtres s'en allaient à la campagne, en voyage. Ils ne l'emmenaient pas avec eux, par économie; ils lui payaient son mois, mais ne lui payaient pas son voyage, pour retourner au pays; ils la laissaient libre d'aller à ses frais. Elle ne voulait pas, elle ne pouvait pas le faire. Alors, elle restait seule dans la maison, à peu près abandonnée. Elle n'avait pas envie de sortir : elle ne connaissait personne; elle ne cassait même pas avec les autres domestiques, qu'elle méprisait
 
                                 256
-
-LA FOIRE SUR LA PLACE
 
 pen, à cause de leur grossièreté et de leur immoralité. Elle n'allait pas s'amuser : elle était sérieuse de nature, économe, et elle avait la crainte des mauvaises rencontres. Elle restait assise, dans sa cuisine, ou dans sa chambre, d'où, par les chemenées, elle apercevait le sommet d'un arbre, dans un jardin d'hôpital. Elle ne lisait pas, elle essayait de tricoter, elle s'engourdissait, elle s'ennuyait, elle pleurait d'ennui; elle se trouvait un pouvoir singulier de pleurer, indéfiniment : c'était son plaisir. Mais quand elle s'ennuyait trop, elle ne pouvait même plus pleurer, elle était comme gelée, le cœur mort. Puis, elle se secouait; on la vie revenait d'elle-même. Elle pensait à sa sœur, elle écoutait un orgue de barbarie dans le lointain, elle rêvassait, elle comptait longuement combien il lui faudrait de jours pour avoir fini tel travail, pour avoir gagné telle somme; elle se trompait dans ses comptes; elle recommençait à compter; elle dormait. Les jours passaient.
 
@@ -1897,8 +1665,6 @@ Il cherchait à provoquer ses confidences; mais elle se livrait beaucoup moins q
 
                                 262
 
-LA FOIRE SUR LA PLACE
-
 sans que personne s'en souciât ! Et, en revanche, tous ces morts vivants, qui encombrent la terre, et prennent la place et le bonheur des autres, au soleil !...
 
 Christophe ne se méfiait pas. Il était très affectueux, trop affectueux pour elle; il ne faisait câliner, comme un grand enfant.
@@ -1916,8 +1682,6 @@ L'hiver s'éternisait. Un hiver humide, brumeux et boueux. Des semaines sans sol
 Malgré la solitude, la maladie, la misère, tant de motifs de souffrir, Christophe sont sort patiemment. Jamais il n'avait été si patient. Il en était étonné lui-même. La maladie est bienfaisante, souvent. En
 
                                 264
-
-LA FOIRE SUR LA PLACE
 
 brisant le corps, elle affranchit l'âme; elle la purifie : dans les nuits et les jours d'inaction forcée, se lèvent des pensées, qui ont peur de la lumière trop crue, et que brûle le soleil de la santé. Qui n'a jamais été malade ne s'est jamais connu tout entier.
 
@@ -1951,8 +1715,6 @@ Il s'attardait aussi sur les quais, à rêver. C'était sa promenade de prédile
 
                                 268
 
-LA FOIRE SUR LA PLACE
-
 violette, sur les statues et les vases gris, sur la pierre patinée des monuments royaux, qui avait de la lumière des siècles, — cette atmosphère subtile, faite de soleil fin et de vapeur laiteuse, où flotte, dans une poussière d'argent, l'esprit éternel de la race.
 
 Un soir, il était accoudé sur le pont Saint-Michel, et, tout en regardant l'eau, il feuilletait distraitement les livres d'un bouquiniste, étalés sur le parapet. Il ouvrit au hasard un volume dépareillé de Michelet. Il avait déjà lu quelques pages de cet historien, qui ne lui avait pas trop plu par sa hâblerie française, son pouvoir de se griser de mots, et son débit trépidant. Mais, ce soir-là, dès les premières lignes, il fut saisi : c'était la fin du procès de Jeanne d'Arc. Il connaissait par Schiller la *Pucelle d'Orléans*; mais jusqu'ici, elle n'était pour lui qu'une héroïne romanesque, à laquelle un grand poète avait prêté sa propre vie imaginaire. Brusquement, la réalité lui apparut, et elle l'étreignit. Il lisait, il lisait, le cœur broyé par l'horreur tragique du sublime récit; et soudain arriva au moment où Jeanne apprend soudain qu'elle va mourir le soir, et où elle défaille d'effroi, sans même la trembler, les larmes le prirent, et il dut s'interrompre. La maladie l'avait affaibli; il était devenu d'une sensibilité ridicule, qui l'exaspérait lui-même. — Quand il voulut achever sa lecture, il vit que le bouquiniste fermait ses caisses. Il résolut d'acheter le livre; il chercha dans ses poches : il lui restait six sous. Il n'était pas la première fois aussi démuni : il ne s'en inquiétait pas; il venait d'acheter son dîner, et il comptait, le lendemain, toucher un peu d'argent chez Hecht, pour une copie de musique. Mais attendre jusqu'au lendemain, c'était dur ! Pourquoi venait-il
@@ -1968,8 +1730,6 @@ Le lendemain matin, très tôt, il alla chez Hecht, pour chercher l'argent; mais
 Christophe relut chez lui, dans le silence de la nuit, l'Évangile de la Passion de Jeanne, et aucun respect humain ne l'obligea plus à contenir son émotion. Une tendresse, une pitié, une douleur infinie le remplissaient pour la pauvre petite bergeronnette, dans ses gros habits rouges de paysanne, grande, timide, la voix douce, doux des cloches, — (elle les aimait comme lui) — avec son bon sourire, plein de finesse et de bonté, et les larmes toujours prêtes à couler, — larmes d'amour, larmes de pitié, larmes de faiblesse :
 
                                 270
-
-LA FOIRE SUR LA PLACE
 
 car elle était à la fois si virile et si femme, la pure et vaillante fille, qui domptait les volontés sauvages d'une armée de bandits, et tranquillement, avec son bon sens intrépide, sa subtilité de femme, et son doux entêtement, déjouait pendant des mois, seule, et trahie par tous, les menaces et les ruses hypocrites d'une meute de gens d'église et de loi, — loups et renards, les yeux et les crocs sanglants, — faisant cercle autour d'elle.
 
@@ -2015,8 +1775,6 @@ Il en fut mal récompensé. À peine s'y retrouva-t-il dans ce milieu de politic
 
 Il parcourait des yeux tout ce cercle de figures et de corps antipathiques. Il rencontra, à l'autre extrémité du salon, des yeux qui le regardaient et se détournaient aussitôt. Il y avait en eux la grande candeur sur le frappa, parmi ces regards blasés. C'étaient des yeux timides, mais clairs, précis, des yeux à la française, qui, une fois qu'ils se fixaient sur vous, vous regardaient avec une vérité absolue, qui ne cachaient rien de soi, et à qui peut-être rien n'était caché de vous. Il connaissait ces yeux. Pourtant, il ne connaissait pas la figure qu'ils éclairaient. C'était celle d'un jeune homme de vingt à vingt-cinq ans, de petite taille, un peu penché, à l'air débile, le visage imberbe et souffreteux, avec des cheveux châtains, des traits irréguliers et fins, une certaine asymétrie, donnant à l'expression quelque chose, non de trouble, mais d'un peu troublé, qui n'était pas sans charme, et semblait contredire la tranquillité des yeux. Il était debout dans l'embrasure d'une porte; et personne ne faisait attention à lui. De nouveau, Christophe le regarda, et à chaque fois, il rencontrait les
 
-LA FOIRE SUR LA PLACE
-
 yeux, qui se détournaient timidement, avec une aimable maladresse; et à chaque fois, il les « reconnaissait » : il avait l'impression de les avoir vus déjà dans un autre visage.
 
 Incapable de cacher ce qu'il sentait, suivant son habitude, Christophe se dirigea vers le jeune homme; mais, tout en approchant, il se demandait ce qu'il pourrait lui dire; et il s'attardait, indécis, regardant à droite et à gauche, comme s'il allait au hasard. L'autre n'en était pas dupe, et comprenait que Christophe venait à lui; il était si intimidé, à la pensée de lui parler, qu'il songeait à passer dans la pièce voisine; mais il était cloué sur place par sa gaucherie même. Ils se trouvèrent l'un en face de l'autre. Il se passa quelques moments avant qu'ils réussissent à trouver une entrée en matière. À mesure que la situation se prolongeait, chacun d'eux se croyait ridicule aux yeux de l'autre. Enfin, Christophe regarda en face le jeune homme, et, sans autre préambule, lui dit en souriant, sur un ton bourru :
@@ -2047,8 +1805,6 @@ Il ne réussissait pas à parler. Christophe, bonhomme, continua :
 
 Il parut tout haut, avec cette étrange liberté, qui le faisait haïr. Le jeune homme, gêné, ne put s'empêcher de regarder autour d'eux, si on ne les entendait pas; et ce mouvement déplut à Christophe. Puis, au lieu de répondre, il demanda, avec un sourire gauche et gentil :
 
-— Et vous ?
-
 Christophe se mit à rire, de son rire un peu lourd :
 
 — Oui. Et moi ? fit-il, de bonne humeur.
@@ -2062,8 +1818,6 @@ Puis, il s'arrêta, faisant de nouveaux et inutiles efforts pour vaincre sa timi
 — Non, décidément, dit-il; je ne puis pas... je ne puis pas parler de cela... après ici...
 
                                 276
-
-LA FOIRE SUR LA PLACE
 
 Christophe lui prit la main, avec un rire muet de sa large bouche fermée. Il sentit les doigts maigres de l'inconnu trembler légèrement contre sa paume, et l'étreindre avec une tendresse involontaire; et le jeune homme sentit la robuste main de Christophe qui lui écrasait affectueusement la main. Le bruit du salon disparut autour d'eux. Ils étaient seuls ensemble, et ils comprirent qu'ils étaient amis.
 
@@ -2123,9 +1877,7 @@ Christophe rentrait chez lui. Il marchait dans les rues de Paris, au milieu de l
 
                                 279
 
-
                                 280
-
 
 Il a été tiré de ce cahier douze exemplaires sur *whatman* ainsi distribués :
 

@@ -7,30 +7,14 @@ author: karl-brunnemann
 isAvertissement: false
 wordCount: 55431
 ---
-
-à RATS ER CV RRS Vi AUS RE ON AD PT ER PALETTE dre Ut Sr D AEN
-
-ES A dt RU a En se |
-
-: Me CASE AN te EN CR |
-
 | ME CAHIER DE LA CINQUIÈME SÉRIE 1
 
 Les LS CORNE PR ARMÉE Se AUS x RSR TE |
-APE, y TRS SA : D ; à PNEU |
-D DRKARL BRUNNEMANN_  . À
 
-La TÉMOINS: IL “ EX PE SE
-
-;. ESS # sa Re
 3 re CAHIERS DE LA QUINZAINE m:|
 pe | 2 __ paraissant vingt fois par an : : 3
 
-L Re
-li Us PARIS | à
 6, rue de la Sorbonne, au rez-de-chaussée ‘a
-QUE
-RS Fi - F' < : : #4
 
 nu Pour savoir ce que sont les Cahiers de la Quinzaine, …
 s il suffit d'envoyer un mandat de trois francs cinquante
@@ -38,9 +22,7 @@ s il suffit d'envoyer un mandat de trois francs cinquante
 8,rue de la Sorbonne, rez-de-chaussée, Paris, cinquième - É
 arrondissement. On recevra en spécimens six cahiers
 de la deuxième, de la troisième et de la quatrième
-série. Mers :
 Nous mettons ce cahier dans le commerce ; nous le :
-vendons deux francs. ! |
 Au dernier moment, et après que le cahier précédent
 était tiré, nous avons dû faire tirer à dix mille exemplaires sur huit pages, et non pas seulement sur quatre
 pages, le vient de paraître de ce cahier, cahier de
@@ -53,42 +35,9 @@ quatre pages pour ce huitième cahier un vient de
 paraître constitué par un extrait de l'avertissement
 et par la table des matières. ,
 
-Ë É RAS TRS A ES re
 4 EN PERS UP RAEN TE RES AT "re, CPAS EL En de
-PDA LE Mt SNA E Le LT HÉRÉ INSEE
-2 2 É, h À FU t J 1 (À AA
-1 RSR ARMOR Res à +5
-‘à MAT. PE A RAT dr E à ñ : û k x
-TONER Or: t ; ; 4,
-s il OC PAIN PORT ; VITRE ] S'T OR
-1 ee à AE “ FN
 (2 TES DOME ee TA ER ARTE L
-à (USÉES * | x x ACL
-TACRES L f 4 LUN EeNe
-4 1. te ; “ &x [
-SENEET U 4 seit
-1 HE É - A3 *
-… RES + RS
-; 15 SERRE 41 X EEE
-cn ] T4 4
-LS ! F1 re
-A LL: Re
-Pa k ui Fo Es: 4}
-Le, LAURE
-ES : é {; UT
-RARE or LR Re
-à « A AU ; ne
-LE D X Î SA
-4 Sin M
-15 MORCREL :
-: FER Le
-He : | , Re
-ñ T'ES : NET
-DS ANSE + : F4 ein
-: FR OR n Û y FREE
 
-i es
-j
 Sur les vies publiées dans les éditions des cahiers
 antérieures à la fondation des cahiers et dans les trois
 premières séries des cahiers, se référer au
@@ -97,70 +46,22 @@ forme de catalogue, un cahier de 72 pages, un franc .
 Nous publierons dans un cahier de la cinquième série
 le relevé sommaire des vies, biographies, monographies
 et bibliographies publiées dans la quatrième série de nos
-cahiers.
 
 AT VE vel FRERES ERA ne Rene Hd HÉROR NE NUE
 
-RTE RE AU TAE ARA GR EE ŒLRBES
-
-RAI RE Cf VE SOUDE? Der RTE 'e PRRTE
-
-r, AA RO 4 * < PS 4 AT
-
-Bd ! ÉTIENNE
-
-Ro: AC AR er ent À 1 ? FERA
-
-: LS LA 168
-
-Re  . S AA RAT à
-
 Mt (ve LE à f so Re ER À
-
-DARReULe ! e ñ IVNCATE
-
-: FLE É FACE
-
-TRE Le Cr
-
-:2 RER RTE a
-
-1} TRÈS Û LES 1. MES
 
 >', LCR #2 DES
 
-RS 4 : 74 A
-
-a Or: |
-
-ER PER A K
-
-NT SRAPC PE ES
-
 # RE " i - EC" 45
-
-a : 2 Perl
-Là peint)
-
-PRET, | ) #4
-
-Nr, LS 3: ET
 
 En même temps que ce cahier paraît chez Schleicher :
 
-Dr.Karz BRUNNEMANN.— Maximilien Robespierre,
 traduction et notes de L. Lévi, premier volume, un
 volume in-16 à trois francs cinquante, en vente à la
 librairie des cahiers. à
 
 Le livre allemand, que j'ai en mains, porte le titre
-suivant :
-
-Maximilian Robespierre, ein Lebensbild, nach
-
-; zum Theiïil noch unbenutzten Quellen, von Dr. Kar£
-BRUNNEMANN, [zweite Auflage], Leipzig und Berlin,
-Verlag von Wilhelm Friedrich, K. Hofbuchhändler.
 
 Il fait un volume in-octavo de 220 pages.
 
@@ -192,7 +93,6 @@ ont ainsi demandé au traducteur un très long temps;
 : compétence dans l'histoire des vies et des événements les
 L plus considérables, les plus riches d'actes et de faits, les
 4 plus mélés, complexes, les plus difficiles et les plus mal
-È connus.
 _ La iraduction française fera deux volumes in-1 6; le
 ï. premier volume seul paraît aujourd'hui ; le traducteur
 ù et les éditeurs ont bien voulu mettre à la disposition des
@@ -208,7 +108,6 @@ moment où je fais cette annonce, nous ne pouvons dire
 ï et à l'âge qu'ils ne sont pas encore des grands hommes,
 Ê quand ils sont des hommes comme tout le monde, quand
 9 5
-"
 
 huitième cahier de la cinquième série
 ils exercent des métiers ordinaires, quand ils occupent
@@ -223,7 +122,6 @@ i plus abondantes à mesure que l'on avance dans l'ouvrage;
 elles sont plus abondantes encore dans la partie du premier volume que nous ne reproduisons pas que dans celle
 que nous reproduisons; elles seront sans doute plus
 importantes encore dans le deuxième volume.
-Charles Péguy
 Nous publions ci-après la préface de la première édition allemande : ;
 
 Si quelque chose peut fournir la preuve de la faiblesse
@@ -251,7 +149,6 @@ au premier rang, — ne trouvèrent plus de mots assez forts
 le sol natal, n'avons-nous pas vu les vaillants qui ont versé,
 jadis, tout le sang de leur cœur, dans le Palatinat et le
 
-Dr. Karl Brunnemann
 . Grand-Duché de Bade, pour la liberté et l'unité de l'Allemagne, ne récolter que dédains et sarcasmes, — quand une
 balle ne les avait pasfrappés auparavant ? — et celui (r) qui
 nourrissait encore en lui, à cette époque, la noble pensée
@@ -285,7 +182,6 @@ Plutarque, élucubration qui renferme autant d'inexactitudes et de mensonges qu'
 (2) Rudolf von Gottschall, qui donna en 1876 une biographie
 grossièrement erronée de Robespierre. — Note du traducteur.
 
-PRÉFACE AU ( MAXIMILIEN ROBESPIERRE }
 renfort de rhétorique dans 122 pages de format in-octavo.
 Il est malheureusement à craindre que, par ses rapports
 avec une librairie aussi importante que celle de Brockhaus,
@@ -295,101 +191,30 @@ Robespierre tel qu'il était à ce même public allemand, qui
 nous met la plume à la main. S'il nous était donné de faire
 aimer et respecter le nom de Robespierre, nous nous sentirions plus que dédommagé de notre peine; car c'est incontestablement une des plus belles tâches, que de rétablir
 dans ses droits le mérite méconnu ou insuffisamment
-apprécié.
-
-Dr. KaArz BRUNNEMANN
-Elbing, été 1879
-L.
 
 #7 Net POP MERE LE SN D ETS TAN. le PPATAUTALCU SRE CIRE
-HÉSITER PURE AE AR ee |
-PTS AS 2: COM AO LR TA EEE LUN NAT Te SN
 ne UNDER VEN ERNEST RE TRES EURE EX à)
 4 re SU EE PE re) TE ÈS LES
-“RUE Fe & RENLUE 1%: AU Le DAS ALES FRE LPO ; FE
-RE EU 0 Ai nt es (2 Sr 2 RU FRS NES
 ET. e IS ARE RTL Les sn Va MEL CES.
-Lions Et EE 3 4 À: FOOD AL Le 10 CALE SARA RME
 à FLE JE PE MARNE 2e L'RIN AN Peer SE à ef AMARPN NT é
-VAE 7 RE" + ï *. "x d * à cn: SA ue x û ee 4 :
-© FRS à PIE NL NT Et à 140 LENS. EN
-Pi Re MAPS j RO RARES NE RUte M AA
-PL: MM ' NS th: M?
-à Fa RO | “1 1: ANSE At.
-LT . ; 24 | [LT ARENA EE
-2 Ur: ; ; ; L'ESSAI CURE
-Dre nt : : N FRANS NS 8 TRES
 LES Des Ce
-REX à Va À ; FA & (A AE .
-d' ESC 2 £ ï 4 AU fe. Ch CNRS
-Re nt Has : | 4 RER purs à
-PARTNER Ë “EE # M
-“Rte RL Ste
 We t4 ASE CENT PACE {PU ta a CRUE
-D PI TES ï Er 1244 nie
-PATRON. < } 47 A PRO
 
-KR bon fe A MERS CANAPÉ A RE LR Re ui SENS a:
-A AS AT LT UN EN UE
-He ANNEES Ron TD u Fe X Mur NT PR js
 : nue PUS a El be ARE .œ DES # PRE 1
 RL: Rte C ÿ Nr on
 |, 1008 na 4 À ‘MER
-EME.” = } ei
-He. | = ps" È te qe
-Maximilien Robespierre
-x HAT
-Re - MARS;
-"#0 ‘ AFTER
 (À Es le h (Nas à Ro
-0 en ; NA
-ge 0 ÿ - LE: k * Ter
-+42 £ £i 1 XCRS
-'s A # 5 il LF NT.
-a FR
-" 1748 \ d 5 “
-: AN - cat
-{INR FR FR :
 
-x “1 Cyr, | ; £
-A ET € s FLE EL
 de nn
-RTE VA A TER TOTALE CIS SU APE ‘
-4 SANT RENE rs AT TRES NEC - à
 A le ÉTRIE MAT + FD C ie PS et, NIQUE l RU PA
 F AT AR NE res UD à PR M NE PAUL ONE:
-F3 21 V6 EN MARS RU ARS SES:
-ÿ LEA ERA: RO O0 SC: As. Nr « | j
-( HE pe * * j > DATE hi À RLENEN RE a A
 | NSP ï Ra NT PA EN ME HE RP SAND FOUT RAS:
-HAE four + ; ü 4 IDE 1 LL ET
-3 174 « ? EME Dee h 5 1188 COR POENNRRE
-VGREMRE ï ; LS ET SRE
-'HAS fi AE SANT I OS HT
-VE MAO AO è . VHC ER AAA à WU 4 4
 RSR Un ete (HS Ps ha 4) se
-% ! #7 ORNE \ qi A5 OSD 06
-% Lo as : ‘ | TANIA
 LE ire $ ÿ JSTURTEEREE dre PIS OU
-: 0e + RES À LATE UNE GPS
-Le y ' \ 2 G NAT e fe
-1 Ft HART" 72
-REA FL EN a INR EC RER
-IUT RE RS + à 1 ES EI TONNES
-LAPS DER ATEN 2 VAE MER 0
-de Ar. à ñ *% hi:
-204 NS ‘4 PR RE
-REG nee 71) RAT 40
-FREE EUR M LL 4
-ù ARS £ Ÿ À . Er
 % RATES tn à La RAT de a
 
 set da M AE ce h LAER
-+ Le à à e '
-I
-s
 Jusqu'à son entrée dans l'Assemblée nationale
-ë (1758-1789)
 Maximilien-Marie-Isidore Robespierre ou, plus exactement, Derobespierre, — car tel était le nom de la
 famille, sans que cette dernière ait appartenu cependant à la noblesse, — naquit à Arras, le 6 mai 1758. Son
 père, Maximilien-Barthélémy-François Derobespierre,
@@ -407,7 +232,6 @@ qu'il en soit, il y avait dans l'âme profonde et mélancolique de
 Maximilien quelque chose des races septentrionales, comme l'avait
 déjà remarqué Louis Blanc. — Note du traducteur.
 
-Maximilien Robespierre |
 et c'est là que naquit encore le père de Maximilien.
 Dans la lutte pour la couronne entre les Stuarts catholiques et la maison protestante de Hanovre, les Derobespierre, fidèles à la foi de leurs ancêtres, soutinrent
 les premiers; et c'est ainsi que nous voyons un oncle
@@ -421,7 +245,6 @@ Marguerite Carrault, elle était la fille d'un brasseur
 aisé du faubourg de Rouville. Outre Maximilien, qui
 fut leur premier enfant, le jeune ménage donna encore
 le jour à deux filles, Charlotte et Henriette, et à un fils,
-Augustin.
 
 En 1765, les enfants eurent le malheur de perdre leur
 mère, qui mourut d'une maladie de poitrine. Le père
@@ -439,10 +262,6 @@ reprendre l'exercice de sa profession; mais en proie à une mélancolie persista
 vivement sa compagne, femme d'une grâce et d'un esprit charmants {Biographie Michaud, nouvelle édition); et alla mourir à
 Munich. On a avancé, — mais sans preuves, — qu'il s'était suicidé.
 — Note du traducteur.
-
-14 En
-
-È JUSQU'A SON ENTRÉE DANS L'ASSEMBLÉE NATIONALE
 
 ; paternelle. Après la mort de ses parents, il devint très
 
@@ -491,8 +310,6 @@ et d'enthousiasme sacré de la liberté », fut choisi comme le meilleur élève
 d'allusions mordantes, était plus rempli de remontrances que de
 louangés, et signalait au monarque les abus nombreux de son
 
-Maximilien Robespierre
-
 A sa sortie de Louis-le-Grand, Robespierre, suivant
 en ceci l'exemple de son père et de son grand-père, se
 voua à l'étude du droit. En même temps, afin de se
@@ -530,14 +347,11 @@ avec l'abbé Proyart, comme avec tous ses anciens professeurs.
 L'abbé Proyart, fervent royaliste, émigra sous la Révolution. C'est
 un an après la mort de Robespierre qu'il écrivit contre ce dernier
 le livre très violent dont nous avons détaché une page. — Note du
-traducteur. ;
 
-; ÿ « JUSQU'A SON ENTRÉE DANS L''ASSEMBLÉE NATIONALE
 rain. Mais le droit ne lui fit point abandonner la culture littéraire. Son admiration allait particulièrement à
 Voltaire et plus encore à Jean-Jacques Rousseau, qu'il
 F visita une fois dans sa solitude d'Ermenonville. Nous
 ne savons malheureusement rien de précis sur cette
-entrevue. (1)
 | Ses études achevées, il quitta Paris en 1781, après |
 avoir été l'objet d'une distinction extrêmement flatteuse, comme en témoigne la pièce qui suit :
 | « Séance du 19 janvier 1781. Sur le compte rendu par
@@ -564,7 +378,6 @@ des peuples qui environne sa mémoire des honneurs que lui ont
 déniés ses contemporains. Comme toi,je voudrais acheter ces biens
 au prix d'une vie laborieuse, au prix même d'un trépas prématuré. » — Edition Laponneraye, tome II. — Note du traducteur.
 
-Maximilien Robespierre
 portant expédition de la présente délibération et la
 , quittance dudit sieur de Robespierre. » |
 
@@ -576,7 +389,6 @@ cadette était morte de la même maladie que sa mère,
 dès l'arrivée de Robespierre à Paris, en 1769, — une
 petite maison d'Arras qui était la seule épave de l'héritage paternel. Il se voua entièrement à sa profession;
 et sa clientèle devint en peu de temps très considé- ;
-rable.
 
 Levé régulièrement dès six heures, il avait l'habitude de travailler jusqu'à huit; puis il vaquait à sa
 toilette en se faisant raser et coiffer et se rendait au
@@ -598,11 +410,6 @@ dupe et la victime des méchants. » Il fréquentait aussi
 fort assidûment la société des Rosati, cercle de jeunes
 gens que la communauté de goût pour la poésie et les
 joies de l'amitié avait réunis, et parmi lesquels Robespierre se fit admettre en 1782. Il y fit la connaissance
-
-D
-2]
-
-JUSQU'A SON ENTRÉE DANS L'ASSEMBLÉE NATIONALE
 
 de son futur collègue du Comité de salut public, Carnot,
 
@@ -644,8 +451,6 @@ intéressants dans le livre si bien documenté de M. E. Hamel /Histoire de Robes
 plaidé par Robespierre en faveur de pauvres paysans contre leur
 puissant seigneur, l'évêque d'Arras. — Note du traducteur.
 
-Maximilien Robespierre
-
 Cet esprit humain et vraiment philanthropique qui
 lui faisait entreprendre des travaux pénibles sans à
 aucun espoir de récompense vénale, était secondé par
@@ -654,7 +459,6 @@ et arrivait, dans la plus pure langue, à convaincre
 chacun de la justesse de ses vues. Un de ses camarades de la société des Rosati écrivait, vers cette
 époque, la strophe suivante: »
 
-Ah ! redoublez d'attention !
 J'entends la voix de Robespierre ! 3
 Ce jeune émule d'Amphion
 Attendrirait une panthère !
@@ -665,7 +469,6 @@ ait fait sur les femmes une impression des plus profondes. Les témoignages des 
 société et en rapports épistolaires avec les femmes
 les plus distinguées de la ville. I1 nous reste encore un
 madrigal d'une pensée délicate écrit par lui vers cette
-époque :
 
 Crois-moi, jeune et belle Ophélie,
 Quoi qu'en dise le monde et malgré ton miroir,
@@ -680,8 +483,6 @@ Sa réputation, comme avocat, lui valut de la part de
 l'évêque d'Arras une place bien rétribuée de juge au
 tribunal patrimonial et épiscopal; mais il la sacrifia
 
-Rs 08 397 ERA de BAT SM RE SL PERS DIS AGE SRE LEGS LE PA ES
-JUSQU'A SON ENTRÉE DANS L'ASSEMBLÉE NATIONALE
 quelque temps après à ses convictions, le lendemain du
 jour où il avait été obligé de condamner à mort, d'après
 les lois existantes, un criminel dont le délit n'était pas
@@ -698,7 +499,6 @@ Metz, qui le couronna et lui attribua une médaille de
 400 livres. Un passage de ce discours caractérise trop
 bien la manière dont Robespierre concevait déjà la
 législation, pour que nous ne le reproduisions pas ici
-textuellement :
 
 « Toute loi injuste, toute institution cruelle qui
 offense le droit naturel, contrarie ouvertement leur but,
@@ -714,10 +514,7 @@ faveur des nobles ; et, s'inspirant de Montesquieu et de Rousseau,
 il soutient que la reversibilité des peines et leur infamie ne peuvent avoir lieu dans une république véritable, parce que le préjugé
 d'un faux honneur n'y règne pas et que chaque citoyen, membre
 de la souveraineté, n'est responsable que de ses actes. — Note du
-traducteur.
 
-ï l à \
-Maximilien Robespierre
 Oh! pourquoi ces belles paroles ne sont-elles pas
 gravées, en tout pays, au-dessus du fauteuil présidentiel, dans les assemblées des législateurs, afin que ces
 derniers les aient toujours sous les yeux.
@@ -740,15 +537,12 @@ les avantages de l'admissibilité des femmes dans les
 académies, discours prononcé au nom de l'Académie
 d'Arras en réponse à M. de Courcet et à mademoiselle
 de Kéralio, lors de leur réception. (2) Un troisième discours, sur la réforme du code criminel, est malheu- .
-reusement perdu.
 Une collaboration si active aux travaux de l'Académie fut récompensée. Elle nomma Robespierre prési-
 (1) Personne n'en fut jugé digne. — Note du traducteur.
 (2) Robespierre est nettement partisan de l'admissibilité des
 femmes dans toutes les sociétés savantes. — Note du traducteur.
 
 LC 02 dé r RESSS r HART MN TA, LL LS | mia: htls + LA" 26 | LP A
-x fi Jr à L & ;
-JUSQU'A SON ENTRÉE DANS L'ASSEMBLÉE NATIONALE
 dent pour l'année 1789. Saluant à ce titre le duc de
 Guines, le nouveau gouverneur de l'Artois, il exprima
 le souhaït de voir en lui un gouverneur citoyen.
@@ -784,8 +578,6 @@ trembler devant la justice et la raison triomphantes!.. » Il demande
 déjà pour le peuple l'éducation ét le pain, des encouragements au
 talent, etc. — Note du traducteur.
 
-Maximilien Robespierre
-
 artésien. Mais son élection ne fut plus douteuse, quand
 il parvint à tirer de prison un certain Dupond qu'on
 avait jeté dans les fers parce qu'il voulait faire valoir
@@ -802,7 +594,6 @@ Et ceux-ci eurent ensuite à nommer les députés aux
 sortit treizième de l'urne, dès le 3 avril, lors du choix
 des électeurs, mais encore il fut un des quarante-neuf
 commissaires et chargé par ceux-ci de la rédaction du
-cahier. (2) ;
 
 Le 20 avril, les électeurs se réunirent sous la présidence de l'évêque d'Arras pour procéder à l'élection
 
@@ -822,7 +613,6 @@ Robespierre obtint gain de cause. — Note du traducteur.
 reconnaissent dans ce cahier; mais on ne peut affirmer qu'il l'ait
 rédigé seul. — Note du traducteur.
 
-JUSQU'A SON ENTRÉE DANS L'ASSEMBLÉE NATIONALE
 assemblée commune des trois ordres, ainsi que l'avait
 réclamé Robespierre, 'et partirent aussitôt après pour
 Versailles. Le départ de Robespierre détruisit un plan
@@ -842,8 +632,6 @@ lui prodigue ses peines et ses sueurs, que l'opulence
 
 ._ regarde avec dédain, que l'orgueil appelle la lie du
 peuple, mais à qui la justice doit une protection d'autant plus spéciale qu'elle est son seul soutien et son
-
-. unique appui. » (1)
 
 (1) Robespierre avait fréquenté comme étudiant la maison du pré-
 sident Dupaty. E. Hamel, dans son Histoire de Robespierre (tome I),
@@ -866,19 +654,14 @@ trois malheureux fut reconnue. Les coupables étaient les dénonciateurs eux-mê
 
 | - Il
 
-Maximilien Robespierre
-
 Réunissons en quelques traits l'image de Robespierre telle qu'elle est restée devant nos yeux; il était
 doux et bon, plein de dévouement pour les siens,
 affable envers chacun, toujours prêt à aider les malheureux, partout aimé et occupé déjà à répandre, par
 la parole et par la plume, les vrais principes sociaux
 au triomphe desquels il attacha sa vie; inaccessible
 aux corruptions de tout ordre, il s'intéressait uniquement aux intérêts de la patrie et de la chose
-publique.
 
-IT
 Bus _ A l'Assemblée nationale
-(1789-1791)
 
 Arrivé à Versailles, Robespierre prit logement avec
 ses collègues dans la modeste hôtellerie du Renard, rue
@@ -898,9 +681,6 @@ la salle des Menus, en présence de 1177 assistants dont
 (1) I faut dire que l'évêque de Nancy, M. de la Fare, avait flétri
 les abus de l'ancien régime et principalement la mauvaise administration du pays. — Note du traducteur.
 
-7]
-
-Maximilien Robespierre
 595 membres du tiers état. Mais le nombre des repré-.
 sentants s'éleva plus tard à 1214, —les quarante députés
 de Paris, par exemple, n'ayant pu se joindre que le
@@ -932,9 +712,6 @@ Rabaut Saint-Etienne par laquelle des commissaires devaient aller
 conférer avec la noblesse ; il se joignit à Le Chapelier pour demander qu'on se bornât à une adresse invitant les deux autres ordres à
 la réunion. Une partie des nobles, écrit-il à Buissart, « les plus
 
-Eur t INA Mae AR a és :
-À L'ASSEMBLÉE NATIONALE
-
 ne lui inspirait pas une grande estime, vers cette
 époque : « Il est nul parce que son caractère lui a ôté
 toute confiance. » Il faut mentionner également la
@@ -945,7 +722,6 @@ faisant une peinture émouvante dela misère du peuple :
 ne retardent pas plus longtemps nos délibérations par
 des délais affectés. Renvoyez vos laquais orgueilleux,
 vendez vos équipages superbes, vos meubles somptueux, et de ce superflu, contraire aux traditions des
-premiers chrétiens, faites aux malheureux d'immenses
 aumônes. » Lorsqu'on procéda le 19 juin à l'organisation des bureaux, Robespierre fut désigné pour le quinzième. (1)
 
 Le serment du Jeu de Paume, — dans la rue SaintFrançois, — décida au 20 juin, de la victoire du Tiers ;
@@ -970,11 +746,7 @@ droits de leurs commettants afin d'acquérir de l'influence, des
 
 $ faveurs, et de se créer une position par l'entremise du roi et des :
 ministres. L'opinion peu favorable de Robespierre sur Mirabeau
-LU
-29 IT.
 
-LL
-Maximilien Robespierre
 desquels se trouvait le duc d'Orléans. La prise de la
 Bastille leur fournit la garantie que toute tentative de
 la cour tendant à opprimer l'Assemblée par les armes
@@ -1005,7 +777,6 @@ de leurs délibérations. — Note du traducteur.
 
 \ Éd du CHE radis: a ES tar
 
-A L'ASSEMBLÉE NATIONALE
 l'Assemblée nationale ; nous devons nous contenter de
 montrer quelle fut la part de Robespierre dans ces différents travaux, en faisant remarquer que, dès le début
 de la Révolution, il ne voyait déjà dans l'État qu'une
@@ -1013,7 +784,6 @@ institution destinée au bonheur de tous et de chacun ;
 mais il n'avait pas encore perdu l'espoir de trouver dans
 la monarchie constitutionnelle un gouvernement capable
 d'assurer un tel idéal; il ne voyait pas qu'elle le pouvait aussi peu que la monarchie absolue, que l'ancien
-régime.
 
 Le 20 juillet, un mois après le serment du Jeu de
 Paume et six jours après la prise de la Bastille, LallyTollendal proposa d'adresser une proclamation d'apaisement aux habitants de Paris, proclamation dans
@@ -1038,12 +808,9 @@ et doit-elle refuser des pièces dénoncées par l'opinion
 publique, envoyées par le maire de la Capitale comme
 des pièces essentiellement intéressantes et nécessaires
 
-f »
-Maximilien Robespierre
 aux éclaircissements de la plus fatale conspiration qui
 fût jamais tramée ? Je ne le crois pas. Les ménagements
 pour les conspirateurs sont une trahison envers le
-Peuple. » (1) ;
 
 Le 3r juillet, les amis de Besenval, qui avait été
 arrêté avec d'autres contre-révolutionnaires sur les
@@ -1076,8 +843,6 @@ s'élever avec une très grande vivacité contre la violation du secret
 de la correspondance et faire restituer à plusieurs de ses adversaires politiques, des lettres qui avaient été saisies à la poste. —
 Note du traducteur. L
 
-À L'ASSEMBLÉE NATIONALE
-
 fit au pouvoir législatif d'être assuré des faits officiellement ; au surplus, les lettres envoyées au comité des
 rapports sont suflisantes, puisqu'elles sont émanées de
 personnes en place, des corps de magistrature, etc.
@@ -1108,9 +873,7 @@ sûreté publique, la Nation seule a le droit d'établir
 
 () « Et il n'a pas de besoins », ajoutait Mirabeau. — Note du traducteur.
 
-Maximilien. Robespierre \
 l'impôt, d'en régler la nature, la quotité, l'emploi et la 1
-durée. » (1) \
 
 Le 23 août commencèrent les véritables débats sur la
 Constitution; mais auparavant Robespierre chercha, à
@@ -1120,7 +883,6 @@ tale de la majorité : « Je demande qu'avant de déli- À
 bérer on adopte un moyen qui satisfasse à la conscience; .
 je veux dire capable d'établir une délibération paisible;
 
-. . . EI
 que chacun puisse sans crainte de murmures, offrir à
 FAssemblée le tribut de ses opinions. » En cequitouche
 les débats eux-mêmes sur la Constitution, Robespierre à
@@ -1128,7 +890,6 @@ ne manqua pas de prendre la parole dans toutes les ,
 questions qui tenaient à la liberté et au principe de la
 souveraineté du peuple; il gardaït le silence dans les
 questions qui étaient à ses yeux d'une importance
-secondaire.
 
 Robespierre fut, — comme on pouvait s'y attendre, —
 partisan d'une seule Chambre (2) et de législatures très
@@ -1151,9 +912,6 @@ royalistes déclarer avec un si bel ensemble que cette constitution
 (2) Tous les membres de la gauche s'étaient ralliés à l'opinion .
 d'une Chambre unique par crainte d'un retour offensif des Ordres
 qu'on venait de détruire. Nous verrons plus tard Robespierre très
-
-44 À La PARCS Ë ARRETE ' rt
-A L'ASSEMBLÉE NATIONALE
 
 courtes : « Dans un grand État, le peuple ne peut exercer sa souveraineté qu'en nommant des représentants,
 c'est par conséquent une exigence de la justice qu'il
@@ -1183,7 +941,6 @@ préoccupé, à la Convention, du despotisme d'une Chambre unique,
 s'écrier que la tyrannie n'est pas moins insupportable, qu'elle ait
 une seule tête ou qu'elle en ait sept cents. — Note du traducteur.
 
-Maximilien Robespierre 1
 Une lettre pastorale de l'évêque de Rouen, par }
 laquelle il cherchait à agiter son diocèse contre l'As- 4
 semblée nationale et qui avait eu vraiment pour résul- k
@@ -1213,7 +970,6 @@ résoudre, sous prétexte de constitution, à des délais
 qui peuvent amener le bouleversement de l'ordre public ? »
 La reconnaissance du peuple allait tout naturellement à lui quand il s'efforçait, quoique le plus souvent
 
-A L'ASSEMBLÉE NATIONALE
 _ en vain, de lui conserver ses droits vis-à-vis des privilégiés; et on l'en récompensait par une popularité
 dont personne, ni avant lui ni après lui, n'a joui à un
 tel degré. Mais les privilégiés le haïssaient d'autant
@@ -1228,7 +984,6 @@ Ja tyrannie, son amour de l'égalité, furent dépeints
 nobles et les riches. Et l'on n'a malheureusement que
 trop prêté l'oreille, depuis lors, à ces calomnies ; et l'on
 a rendu possible, par là, ces caricatures de Robes-
-… pierre dont M. Rudolf von Gotschall a fourni, peut-être,
 l'exemplaire le mieux réussi.
 Une émeule causée par la famine étant survenue le
 21 octobre, et un boulanger, nommé François, y ayant
@@ -1244,8 +999,6 @@ martiale, la permission de tirer sur le peuple, qui cominençait depuis longtemp
 en vain contre le torrent : « Ce ne sont pas des me-
 Ÿ il
 
-F
-Maximilien Robespierre
 sures violentes qu'il faut prendre, mais des décrets
 sages pour découvrir la source de nos maux; pour
 déconcerter la conspiration qui, peut-être, dans le moment où je parle, ne nous laisse plus d'autres ressources qu'un dévouement illustre. IL faut nommer un
@@ -1272,10 +1025,6 @@ pays, parla en faveur du suffrage universel, il n'obtint gain de
 cause que sous la Convention, et ce droit, effacé après sa mort, —
 la Constitution de 1795 rétablit la distinction entre les citoyens « actifs etles citoyens passifs, — ne devait plus reparaître qu'en 1848,
 — Note du troducteur. À
-38 À
-
-d | k ef ; + { -
-A L'ASSEMBLÉE NATIONALE
 
 distinction, toute exception doivent disparaître. La |
 Constitution établit que la souveraineté réside dans le
@@ -1290,7 +1039,6 @@ citoyen. » L'Assemblée adopta néanmoins un cens qui
 les citoyens passifs. Pour être électeur, il fallait payer
 un impôt équivalant à trois journées de travail. (1) Le
 culte égoïste de l'or était substitué au culte féodal du
-fer.
 
 Dans les débats sur la réorganisation du royaume,
 Robespierre se montra partisan de la centralisation
@@ -1315,7 +1063,6 @@ uneasi vive irritation dans le peuple. — Note du traducteur.
 (2) Nous verrons plus tard quelle fut son attitude sur cette
 question. — Note du traducteur.
 
-Maximilien Robespierre |
 son point de vue dans la séance du 19 novembre. Les
 députés du Cambrésis avaient reçu un vote de blâme
 
@@ -1346,7 +1093,6 @@ rants qu'il faut instruire. Notre pitié et notre justice î
 n'exigent qu'une chose : que nous autorisions les, dé: ï
 putés des communes du Cambrésis, ses véritables 1
 
-A L'ASSEMBLÉE NATIONALE
 défenseurs, à écrire aux membres des États une lettre
 capable de dissiper leur ignorance, de les rappeler aux
 sentiments patriotiques et aux idées raisonnables
@@ -1374,17 +1120,12 @@ anciens acteurs tous les deux, s'élevèrent aux premiers rangs. On
 sait que Fabre d'Eglantine fut l'inventeur, avec Romme, du Calendrier républicain et que Collot d'Herbois fit partie du Comité de
 salut public. — Note du traducteur.
 
-A:
-
-se 1
-Maximilien Robespierre |
 juifs naissent de l'avilissement dans lequel vous les
 avez plongés; ils seront bons, quand ïils pourront
 trouver quelque avantage à l'être. Je pense qu'on ne
 peut priver aucun des individus de cette classe des
 droits sacrés que leur donne le titre d'hommes.
 Cette cause est la cause générale, il faut décréterle
-principe. » (1)
 . . . . .
 On ne doit pas oublier qu'il fallait un grand courage
 pour se poser alors comme le défenseur des comé-
@@ -1407,10 +1148,6 @@ l'oppression une multitude d'hommes qui vivent au milieu de À
 nous. Comment l'intérêt social pourrait-il être fondé sur la viola- ;
 tion des principes éternels de la justice et de la raison, qui sont les 4
 bases de toute société ? » — Note du traducteur.
-42 À
-
-, : LA
-A L'ASSEMBLÉE NATIONALE
 
 séance dans laquelle il n'élevât la voix, soit pour
 réparer une injustice, soit pour lutter contre le vieux
@@ -1444,8 +1181,6 @@ aussi, on trouve son nom répété fréquemment dans tous les journaux en vue. E
 du Club Breton, — plus tard Club des Jacobins, — lui donnait sur l'Assemblée constituante plus d'influence qu'on ne lui en a prêté,
 — Note du traducteur.
 
-* ;
-Maximilien Robespierre
 il vivait de la manière la plus simple et la plus frugale;
 de sorte qu'avec ses modiques ressources, il lui restait
 encore assez pour avoir toujours des vêtements propres
@@ -1473,7 +1208,6 @@ même quand il y eut danger à le faire. Robespierre se refusa au
 tutoiement obligatoire et nous le verrons dans une séance très
 célèbre de la Convention, qu'il présidait alors, s'élever contre la
 tenue et les manières indécentes de quelques députés. — Note du
-traducteur.
 
 2) M. le docteur Brunnemann ayant pris les citations de discours
 dans la Gazette universelle ou Moniteur,nous avons suivi cet exemple
@@ -1484,12 +1218,6 @@ la provenance. — Note du traducteur. t
 
 (3) Robespierre repoussa cette proposition parce qu'elle investissait les notables d'un pouvoir dangereux. Il fit remarquer avec
 justesse que les notables étaient une aristocratie et qu'ils empiéte-
-
-4%
-à
-
-Là 4
-A L'ASSEMBLÉE NATIONALE
 
 contre la motion de Collaud de la Salliette, tendant à
 employer pour le bien public les traitements ecclésiastiques excédant 3.000 livres (4.300 francs environ) et
@@ -1527,12 +1255,6 @@ marc d'argent. La « contradiction apparente aux principes démocratiques » ét
 faveur d'une province. Sur ce dernier point, Robespierre obtint en
 partie gain de cause. — Note du traducteur.
 
-45 HI.
-n
-
-Ca, 2 NW? CASA
-Maximilien Robespierre S
-
 enfin qu'il veut un traitement égal pour tous les cidevant moines, (1) soit qu'ils appartiennent aux ordres ù
 mendiants ou qu'ils fassent partie des ordres rentés.
 Mais deux discours surtout méritent d'être reproduits
@@ -1564,11 +1286,7 @@ les pouvoirs sont anéantis, où le peuple se trouve tout
 à coup soulagé d'une longue oppression; il ne vous est
 
 (1) La Constituante venait d'abolir les ordres religieux. — Note du
-traducteur. ,
 
-4 F É « À
-
-De A L'ASSEMBLÉE NATIONALE
 pas permis d'oublier que les maux locaux dont on vous
 rend compte sont tombés sur ces hommes qu'à tort où
 avec raison le Peuple accuse de son oppression et des
@@ -1601,7 +1319,6 @@ Qu'on me pardonne de n'avoir pu concevoir comment -
 les moyens du despotisme pouvaient assurer la liberté ;
 une révolution faite par le peuple être protégée par
 
-Maximilien Robespierre “1
 le déploiement ministériel de la force des armes. Il
 faudrait me démontrer que le royaume est à la veille …
 d'une subversion totale : cette démonstration a paru
@@ -1636,9 +1353,7 @@ avez donné une preuve touchante d'intérêt à ses
 avait eu un de ses châteaux brûlé, plaida néanmoins la cause du 3
 peuple en cette circonstance. — Note du traducteur.
 48 4
-À
 
-F A L'ASSEMBLÉE NATIONALE
 | malheurs : vous avez vu qu'ils ne tiennent pas à une
 cause générale, mais qu'ils prennent leur source dans
 les contraintes exercées sur la perception d'un impôt
@@ -1671,7 +1386,6 @@ avez vu un peuple immense, maître de sa destinée, rentrer dans l'ordre au mili
 _ (1) L'impôt de la gabelle. — Note du traducteur.
 
 # à : A
-Maximilien Robespierre À
 de ces pouvoirs qui l'ont opprimé pendant tant de À
 siècles; sa douceur, sa modération inaltérables ont 3
 seules déconcerté les manœuvres de ses ennemis, et on É
@@ -1704,9 +1418,7 @@ loi sage ne permet pas aux troupes d'approcher des 1
 : lieux où se font chaque année les élections; et dans 4
 les agitations incertaines d'une révolution, on nous À
 propose de dire au pouvoir exécutif : envoyez des À
-5o 4
 
-A L'ASSEMBLÉE NATIONALE
 troupes où vous voudrez, effrayez les peuples, gênez les s
 suffrages, faites pencher la balance dans les élections !
 .« Dans ce moment même, des villes ont reçu des garnisons extraordinaires qui ont, par la terreur, servi à
@@ -1733,12 +1445,9 @@ patriotiques, attaqués dans tant d'endroits divers ; ne
 les bons citoyens, sous le prétexte de les défendre; ne
 remettons pas le sort de la Révolution dans les mains
 
-Maximilien Robespierre ‘13
 de chefs militaires; faisons sortir des villes ces soldats
 armés qui effraient le patriotisme pour détruire la
-liberté. »
 
-Fe k
 Mais il prêchait à des sourds, et la loi néfaste fut
 votée par laquelle la bourgeoisie en armes devait mettre
 ; en scène la fusillade meurtrière du 17 juillet 1791 au
@@ -1771,11 +1480,6 @@ malheureux, victimes d'un pouvoir arbitraire. L'assemblée sera à
 sans doute étonnée de voir que, lorsqu'il est question de la cause
 de l'innocence, on lui parle sans cesse, non pas de ces infortunés, 4
 détenus, souvent pour leurs vertus, pour avoir laissé échapper
-52 : À
-
-LVL TIM Re" . 6 fil à ÿ-
-R * À
-A L'ASSEMBLÉE NATIONALE
 
 qui avait été faite de n'admettre aux assemblées électorales que les personnes qui justifieraient du payement
 de la contribution patriotique extraordinaire ; (1) enfin
@@ -1812,14 +1516,11 @@ sincèrement la paix, non pas à la vérité la paix des esclaves, si
 scrupuleusementexigée par les despotes, qui consiste à souffrir en
 silence la servitude et l'oppression, mais la paix d'une nation magnanime, qui fonde la liberté en veillant avec une défiance nécessaire
 sur tous les mouvements des ennemis déclarés ou secrets qui la
-menacent. »
 
 Dans le débat sur le paiement de la contribution patriotique,
 Robespierre insista particulièrement pour qu'on fit cesser les
 inquiétudes et qu'on ramenûât les esprits à la confiance. — Note du
-traducteur.
 
-Maximilien Robespierre |
 contre Robespierre, et ils dépassèrent, dans leurs journaux, toute mesure. C'est ainsi, par exemple, que
 Royou et Mallet du Pan, deux fanatiques de la monarchie absolue, écrivirent dans les Actes des Apôtres
 qu'on devrait agir à l'égard de Robespierre et. des
@@ -1846,13 +1547,7 @@ la liberté; mais, rompant avec les autres orateurs qui
 
 () Bismarck. — Note du traducteur.
 
-è 5
-
-3 ‘é A L'ASSEMBLÉE NATIONALE
-
 # avaïent soutenu-le jury, il voudrait qu'on l'étendiît aux
-
-: affaires civiles :
 
 |
 
@@ -1893,7 +1588,6 @@ d'accusation. L'accusé a le droit de se faire défendre
 (1) Robespierre obtint gain de cause sur ce point à la Convention
 qui vota une loi ad hoc. — Note du traducteur.
 
-* Maximilien Robespierre
 par la personne qu'il désire. Robespierre demanda
 ensuite qu'afin de veiller sur la loi et la Constitution, il
 fût formé une Cour de Cassation dans le sein du Corps
@@ -1913,7 +1607,6 @@ dans leurs formes éveiller cette erreur que les juges sont
 placés ou sanctionnés par le roi. Il délimite avec une
 grande sagacité les attributions réciproques des nouveaux juges de paix et dela gendarmerie, etsubordonne
 celle-ci à ceux-là parce qu'elle ne doit être que leur
-organe exécutif. |
 Si nous avons dû résumer très brièvement les idées
 
 exposées par Robespierre, à la Constituante, sur l'or- \
@@ -1925,8 +1618,6 @@ la peine de mort :
 
 , citoyens avaient été condamnés à mort dans la ville
 
-; Ê
-à A L'ASSEMBLÉE NATIONALE
 d'Argos, on courut dans les temples et on conjura les
 br Dieux de détourner des Athéniens des pensées si cruelles
 À et si funestes. Je viens prier non les Dieux, mais les
@@ -1958,7 +1649,6 @@ seènes de mort qu'elle ordonne avec tant d'appareil ne
 .Sont autre chose que de lâches assassinats, que des
 crimes solennels, commis, non par des individus, mais
 
-Maximilien Robespierre
 par des nations entières,avec des formeslégales. Quelque
 cruelles, quelque extravagantes que soient ces lois, .
 ne vous en étonnez plus. Elles sont l'ouvrage de quelques tyrans ; elles sont les chaînes dont ils accablent
@@ -2029,9 +1719,6 @@ est la plus propre à prévenir les grands crimes, il faut
 donc qu'ils aient été plus rares chez les peuples qui l'ont
 adoptée et prodiguée. Or, c'est précisément tout le contraire. Voyez le Japon : nulle part la peine de mort et
 
-‘ qe RTE Le 4 :
-Maximilien Robespierre 3 |
-
 les supplices ne sont autant prodigués; nulle part les |
 crimes ne sont ni si fréquents, ni si atroces. On dirait
 que les Japonais veulent disputer de férocité avec les
@@ -2062,10 +1749,6 @@ quelque plate à l'erreur ou à la prévention. Pourquoi vous interdire le moyen
 main secourable à l'innocence opprimée ? Qu'importent ces stériles regrets, ces réparations illusoires que |
 vous accordez à une ombre vaine, à une cendre insen-
 
-ART hs 4 Fe £
-
-4 A L'ASSEMBLÉE NATIONALE
-
 _  sible? Elles sont les tristes témoignages de la bar-
 
 | bare témérité de vos lois pénales. Ravir à l'homme la
@@ -2078,7 +1761,6 @@ le faire descendre, pour ainsi dire, dans le tombeau
 encore tout couvert de la tache récente de son crime,
 
 | est à mes yeux le plus horrible raffinement de la
-cruauté. :
 
 | « Le premier devoir du législateur est de former et
 
@@ -2126,14 +1808,10 @@ ui de sa vie. L'idée du meurtre inspire bien moins ,
 
 pr spectacle ; l'horreur du crime diminue dès qu'elle ne le
 
-à GI
-
-Maximilien Robespierre
 punit plus que par un autre crime. Gardez-vous bien de
 confondre l'efficacité des peines avec l'excès de la
 sévérité : l'un est absolument opposé à l'autre. Tout
 seconde les lois modérées ; tout conspire contreles lois
-cruelles.
 
 à « On a observé que dans les pays libres, les crimes
 étaient plus rares, et les lois pénales plus douces;
@@ -2146,7 +1824,6 @@ que celle du citoyen n'existe pas; c'est une preuve que
 le législateur n'est qu'un maître qui commande à des
 esclaves, et qui les châtie impitoyablement suivant sa
 fantaisie. Je conclus à ce que la peine de mort soit
-abrogée. » (1) |
 
 (1) Plus tard, quand Robespierre eut à se prononcer dans le ;
 procès du roi, il ne renia pas ses opinions antérieures, comme on \
@@ -2170,8 +1847,6 @@ Pâris, Bazire proposa à la Convention de voter la condamnation
 Robespierre fit écarter cette motion : « Ce n'est pas au moment,
 dit-il, où vous allez effacer la peine de mort du code de vos lois, |
 que vous devez adopter une proposition aussi cruelle. » Ainsi, au
-
-D A L'ASSEMBLÉE NATIONALE
 
 x Robespierre ne négligeait aucune occasion de sou-
 
@@ -2216,7 +1891,6 @@ comme exemple, M. de Beaumetz, irrité, l'apostropha dans les
 termes les plus grossiers en présence de plusieurs de ses collègues. « Vous trahissez les intérêts de votre pays », lui répondit
 simplement Robespierre en lui tournant le dos. Outré de ce dédain,
 
-Maximilien Robespierre
 chasse; et une indemnité aux tenanciers de biens
 ecclésiastiques, lors de labolition du fermage,
 comme le réclamaient la prudence et la justice ;
@@ -2258,9 +1932,6 @@ recueillir de cette conduite que haine, vengeance et calomnie ; F
 vous n'ignorez pas que ce n'est point là le chemin qui conduit aux ?
 honneurs et à la fortune. Vous savez combien la complaisance, la
 
-F: 5 a, ê
-
-à A L'ASSEMBLÉE NATIONALE
 auxquels on exposait la patrie en prenant des mesures
 violentes contre les masses agitées par les abus. Il
 déploya la même sagacité politique en voulant conserver aux assemblées parisiennes de district, jusqu'à
@@ -2303,10 +1974,6 @@ que l'on ait tentés pour me persuader qu'il n'en coûte rien pour se
 présenter, en se courbant, dans l'antichambre d'un grand, que particulier l'on n'aime pas, que citoyen on déteste... » Nous' avons
 tenu à raconter l'incident Beaumetz, d'abord parce qu'il est significatif pour Robespierre, ensuite parce qu'il a donné lieu à beaucoup de calomnies contre ce dernier, — Note du traducteur.
 
-65 IV.
-
-Maximilien Robespierre FA
-
 Le 15 mai,le ministre Montmorin-Saint-Herem fit à
 l'Assemblée une communication d'où on pouvait inférer k
 que le roi se préparait à des armements en cas de ;
@@ -2342,10 +2009,8 @@ délibérations, je ne trouve que des motifs de défiance. |
 Ceux pour qui la guerre est le premier des besoins i
 parce qu'ils y reconnaissent le meilleur moyen de pou-
 
-Le ‘A L'ASSEMBLÉE NATIONALE
 voir s'opposer à la Révolution, qui les désespère, ceux-là
 n'envisagent pas les choses de la même manière que
-moi. »
 Mais il eut gain de cause quand il défendit l'élection
 des prêtres par le peuple : « Toutes les fonctions publiques ont pour but l'ordre et le bonheur de la société;
 comme les ecclésiastiques sont des fonctionnaires
@@ -2376,21 +2041,13 @@ d'abus ; pour les pères de famille qui ne peuvent nourrir les nombreux citoyens
 siastiques pauvres qui ont vieilli dans les travaux d'un ministère
 actif et qui n'ont recueilli que des infirmités et la misère, dont les
 
-à
-
-GucA Se LR
-; FOSTER SENS
-Maximilien Robespierre "4
-nf » . . = . 4 4
 l'opinion publique. Ce jour-là, guidé par le seul amour É.
 de la justice, il défendit le représentant Lautrec, (1) 4
 son adversaire politique, arrêté à cause de ses manœu- :
-vres contre-révolutionnaires. Robespierre se prononça 4
 hautement pour l'inviolabilité des représentants de la
 nation : « Qu'est-ce que l'inviolabilité? Ce n'est point
 un privilège, et cependant c'est quelque chose de plus
 que le droit commun des autres citoyens. Il est de principe qu'aucune puissance ne doit s'élever au-dessus du
-corps représentatif dela Nation, qu'aucun corpsnepeut
 4 décider des destinées des représentants... Mais, dira- ]
 t-on, s'ils sont coupables, ils doivent être punis! Oui, }
 sans doute, il faut réduire la question à ce point. Peut- 1
@@ -2417,7 +2074,6 @@ sont pas du ressort de la société civile. — Note du traducteur. 4
 (1) M. de Toulouse-Lautrec. — Note du traducteur.
 68 4
 
-4 A L'ASSEMBLÉE NATIONALE
 l'inviolabilité, il faut qu'ils ne puissent être attaqués
 par aucun pouvoir particulier. Aucune décision ne peut
 
@@ -2457,7 +2113,6 @@ siècle dernier (Drei schweïizer Freiheits-Martyrer des vorigen Jahr-
 | 69
 
 4 La Leur.‘ LA nt QU APCE |
-Maximilien Robespierre ‘4
 feuille réactionnaire, l'Ami du Roi, le surnom honorable d' « avocat des galériens ». Un autre pamphlet
 croyait l'insulter en le donnant à ses lecteurs commeun
 parent de Damiens, — l'auteur de l'attentat essayé en
@@ -2486,8 +2141,6 @@ de France et de Brabant, en même temps que les éloges les plus 7
 enthousiastes de Robespierre, une image fidèle des idées politiques
 de celui-ci dont Camille fut, pendant toute la Révolution, le dis- ï:
 
-ee ni 5 |
-J - A L'ASSEMBLÉE NATIONALE
 fi ment à ce concert d'éloges, et il le fit en ces termes :
 …_ « Tous les partis s'accordent à rendre à M. Robespierre
 És la justice qu'il n'a jamais renié les principes de la
@@ -2516,10 +2169,7 @@ Robespierre se montra, au milieu d'occasions très
 ciple fervent et ému. Desmoulins a revêtu les théories de Robespierre de son admirable prose, aussi pure et aussi ferme que celle
 de Pascal et de Voltaire dont il rappelle à la fois l'indignation éloquente et la fine raillerie. — Note du traducteur.
 # D Bismarck. À la suite des événements de 1848. — Note du traduc- f
-I
 
-“ FU
-Maximilien Robespierre : 4
 diverses, l'ami le plus sincère du peuple, le défenseur …
 le plus ferme de ses droits sur lesquels il veillait avec « un soin jaloux. Le 21 juillet, il défend le droit desmuni- …
 cipalités à établir une taxe du pain en faveur dela
@@ -2538,23 +2188,14 @@ l'Assemblée et ajouta qu'il ne fallait pas augmenter le
 nombre des domaines royaux. Il demande l'augmenta- « tion du traitement des facteurs, qui n'est pas en rapport
 avec les énormes traitements des fonctionnaires supé-
 rieurs de la poste. Il veut fermer au clergé l'accès des
-' RE
 ï (D « .… Est-il le seul qui ait donné des preuves d'opposition ? Et,
 s'il fallait un exemple exclusif, je le demande à tous les hommes
 impartiaux, faudrait-il tomber sur un homme qui, attaché par toutes be
 les relations possibles aux abus de tous genres, n'a pas goûté nos $
 principes ? » Et il s'élevait contre la guerre faite à des opinions
 rétrogrades, sans doute, mais sincères et honorables. — Note du tra- |
-ducteur.
-À 1
-< 2 sé
-*
-hi |
-Æ
-<
 ne
 
-Li s A L'ASSEMBLÉE NATIONALE
 … fonctions judiciaires parce qu'ils sont déjà fonctionE naires et que plusieurs fonctions ne peuvent être plafs cées sans danger pour la Liberté dans une seule main.
 M. I1 combat le renouvellement du pacte de famille avec
 L_ l'Espagne. Il repousse un serment particulier, pour les
@@ -2581,11 +2222,7 @@ d'autre... » (1) Il ne veut accorder d'indemnité qu'aux
 remerciements. Dans sa réponse, Robespierre déplore, avec les
 magistrats avignonnais, que la réunion du Comtat-Venaissin à la
 France ait été différée : « … En défendant les Avignonnais, c'est la
-it GB;
-El v
 
-; se ve ARE ÿ
-7e . \ Re
 Maximilien Robespierre DE
 fonctionnaires qui ont réellement fait des avances au
 Trésor à la suite de « brevets de retenue », — lettres »
@@ -2626,7 +2263,6 @@ Robespierre, Collot d'Herbois, Choudieu intéressèrent à leur cause
 le club des Jacobins ; et, le 9 avril 1792, l'Assemblée législative
 ordonnait la mise en liberté de 40-survivants. Paris leur offrit une
 fête magnifique. Un des premiers soins de ces infortunés avait étés
-74 Ë
 
 hr A L'ASSEMBLÉE NATIONALE
 À combattre quelque mesure projetée ou exécutée contre
@@ -2671,9 +2307,6 @@ de Choudieu, Paris, 1897. — Note du traducteur.
 ‘d'eux une tabatière en souvenir. — Bulletin de la Société de l'Histoire /
 de la Révolution française ; XVI, 1889, page 469.
 
-* 75
-
-Maximilien Robespierre É.
 Nous voici arrivés à l'année 1791. Si Robespierre e
 avait, l'année précédente, veillé avec un soin jaloux .
 sur les intérêts populaires et défendu la liberté sans M
@@ -2704,7 +2337,6 @@ patrie. Je remplirai cette double tâche ». ( ») Etil ne se
 dans cette brochure de 49 pages. Lés derniers travaux historiques,
 et en particulier les documents publiés par M. Aulard sur le club
 des Jacobins, sont venus confirmer les appréciations de Robespierre
-76 ki
 
 > A L'ASSEMBLÉE NATIONALE t
 k . lassa point, en effet, de défendre la patrie dans ses
@@ -2740,10 +2372,6 @@ fournit pour cette brochure un caractère d'authenticité qui manque
 _ du traducteur.
 | 77
 
-L PES NOT OP Let AS RO LR EE TENTE 67 A RP NE
-ec FER À
-Maximilien Robespierre Fe
-V#
 envers le pouvoir public. (1) Il montre dans la grande « inégalité des fortunes un malheur pour la société :
 « Législateurs, vous n'avez rien fait pour la liberté, si
 vos lois ne tendent pas à diminuer par des moyens
@@ -2814,9 +2442,6 @@ s'exercera bientôt aussi contre les écrits patriotiques. Chaque
 ‘ (2) Le gouvernement s'obstinait à cacher les menées des émigrés
 à la frontière de l'Est. — Note du traducteur.
 
-pages.
-
-Maximilien Robespierre |
 mettre des incursions sur le domaine d'autres pou- /}
 voirs ou même pour confisquer à l'occasion toutes les M
 libertés publiques; conformément à ces principes, ilne
@@ -2830,7 +2455,6 @@ encore pour que la nomination des hauts fonctionnaires
 non au ministre. Enfin c'est Robespierre qui, le pre- 4
 mier, proposa le service obligatoire, l'armement du
 peuple et le renouvellement de tous les cadres d'offi- M
-ciers. (1) k k
 Le 21 juin au matin, on apprit à Paris le départ de la
 famille royale qui avait quitté les Tuileries dans la nuit k.
 pour prendre la fuite. La consternation fut naturelle
@@ -2850,10 +2474,7 @@ Jacobins. Son idéal, comme il le dit lui-même, était la Suisse, une
 nation toujours prête à s'armer contre l'ennemi, cependant n'ayant Li
 pas la charge d'une armée permanente. De cruels événements ont
 empêché la France d'entrer dans cette voie. — Note du traducteur. “à
-‘ 80 4
 
-\ F Mi D ER 7 Mb a: AU « ju NM CLOS:
-; | _-à st, |: LRRDEENESN ESS At EX à
 ta * A L'ASSEMBLÉE NATIONALE
 Lu des fugitifs à Varennes. Le directoire du département
 L. de Paris, sous la présidence du duc de la RochefouLa. a . . 2 2 =
@@ -2861,10 +2482,8 @@ L. de Paris, sous la présidence du duc de la RochefouLa. a . . 2 2 =
 …_ afin de prendre les mesures dictées par la situation.
 A Le 22 juin, à dix heures du soir, le chirurgien Magnin,
 …. de Varennes, qui avait parcouru en vingt heures une
-he . . « » .
 … distance de 298 kilomètres, apporta tous les détails sur
 … l'arrestation de la famille royale. (1)
-ni =
 Mn (1) M. le docteur Brunnemann donne alors le récit de Magnin -
 — d'après les procès-verbaux du Conseil général. Nous nous permet-
 …—. tons de supprimer deux pages environ et de montrer à la place
@@ -2899,8 +2518,6 @@ ne puis-je rendre cet accent de patriotisme et d'indignation avec
 lequel il l'a prononcé ! Il fut écouté avec cette attention religieuse
 | 81 Y.
 
-{ À pi A
-Maximilien Robespierre . 4
 Après le retour de la famille royale, le 25 juin, commencèrent dans l'Assemblée constituante les délibérations sur les suites qu'il convenait de donner à la grave
 conduite du roi. Robespierre prit une part considérable
 dans ces débats. Dès que la fuite du roi avait été connue, il s'était prononcé, surtout aux Jacobins, contre la
@@ -2924,8 +2541,6 @@ visage, et par l'inattendu de cette inspiration soudaine. » ÿ
 Madame Roland, présente à cette scène, dit aussi que ce fut un M
 spectacle grandiose et inattendu. — Note du traducteur. À
 
-4 A L'ASSEMBLÉE NATIONALE
-LA: '
 FE blée : (1) « La reine est une citoyenne comme toute
 x autre Française ; le roi, dans ce moment, est un
 G citoyen comptable à la nation, et en qualité de premier
@@ -2955,7 +2570,6 @@ ceux qui auront constamment défendu contre lui la
 cause publique ? Au contraire, les ressorts du gouver-
 (1) Robespierre voulait que le roi et la reine fussent interrogés
 rh F tribunal de l'arrondissement des Tuileries. — Note du traduc-
-‘ 83
 
 Maximilien Robespierre , ne.
 nement se relâchent-ils dans ses mains, alors les rênes Ë
@@ -2988,7 +2602,6 @@ quelques victimes subalternes; vous ne pensez pas M
 qu'il voie sans douleur ses représentants suivre encore k:
 la marche ordinaire des esclaves, qui cherchent toujours à sacrifier le faible au fort... Non, Messieurs, il
 faut ou prononcer sur tous les coupables, ou prononcer F
-84 L
 
 ÿ ‘let A L'ASSEMBLÉE NATIONALE ;
 “ l'absolution générale de tous les coupables... » (1) Il
@@ -3001,9 +2614,7 @@ _ pas épargner le frère du roi : « Prenez garde d'éparL gner des conspirateu
 homme d'un rang inférieur, — Robespierre a ici en vue le
 Hs marquis de Favras, pendu pour hautetrahison, —etqu'il
 {e a été immolé à ce même homme qui vient de fuir... Si
-£ 2 2 . #
 12 Assemblée cumtle dans son décret tant d'inconsé-
-LR. .
 ÿ (1) Le discours du 14 juillet 1791 est, parmi les discours de Robesee pierre, un des mieux composés. Il y règne une unité remarquable,
 sai une logique serrée ; les arguments s'enchainent dans une progression
 (à très heureuse, et le ton de l'ironie alterne avec celui de l'indignaE tion pour s'élever parfois à une très haute éloquence. Nous renfi voyons à ce discours, — trop long pour être offertici au lecteur, —tous
@@ -3028,12 +2639,7 @@ seule question est un crime, la réponse en serait un autre. » Le
 cour, qu'elle répandit le bruit d'une prétendue folie de Robespierre,
 h comme on le voit par une dépêche du baron de Staël à son gouver-
 \ nement. — Note du traducteur.
-à 85
-De
 
-' Mine, À: ra 318
-: Maximilien Robespierre FR
-/ 4
 quences, je me crois obligé, en faveur de l'impérieuse #
 loi qui me lie à la défense des intérêts de la nation, je
 me crois, dis-je, obligé de protester en son nom. » J
@@ -3058,9 +2664,7 @@ du 17, Maurice Duplay offrit-il à Robespierre un asile
 pour la nuit dans sa maison de la rue Saint-Honoré. Ë
 C'était à la sortie du club des Jacobins, vers onze heures FE
 du soir. Robespierre accepta cette offre après quelque
-hésitation polie. 1
 Madame Duplay le reçut comme un fils. Lorsqu'au
-Ÿ
 () Robespierre, comme il a été dit, avait combattu vainement, À
 aux Jacobins, la pétition, première cause de cet affreux massacre F
 qui le plongea dans un profond désespoir. Voir pour la conduite 4
@@ -3072,7 +2676,6 @@ plus haut. -- Nofe du traducteur. 5 4
 86 3
 
 | Fe à A L'ASSEMBLÉE NATIONALE
-ki
 1 matin il voulut prendre congé d'elle pour retourner
 à dans son petit logis de la rue de Saintonge, elle le
 ( supplia de passer au moins encore un jour chez eux.
@@ -3103,14 +2706,10 @@ n'avait qu'une fenêtre donnant sur la cour. (1) Les
 (à) « Elle n'avait d'autre perspective que l'intérieur d'un magasin
 de bois, et elle était placée au-dessus d'un atelier, « toujours retentissant du marteau et de la scie des ouvriers », dit madame Lebas,
 
-;
-
-\ , Maximilien Robespierre 4
 meubles de cette chambre consistaient en un lit de À
 noyer avec des rideaux de damas bleu à fleurs %
 blanches, quelques chaises de paille, un bureau très %
 simple et, au-dessus, fixées à la muraille, quelques È
-planches formant bibliothèque. Robespierre recevait 4
 les visites dans le salon de son hôte ; l'ameublement è
 était d'acajou recouvert de velours d''Utrecht cramoisi. 1
 On y plaça plus tard le portrait en pied de Robespierre }
@@ -3145,7 +2744,6 @@ pour empêcher Robespierre d'arriver à ce dernier poste, allant 4
 
 88 4
 
-0 CS ‘2 tt HUTR LE Hk 7% À Ÿ d 1
 | A L'ASSEMBLÉÉ NATIONALE
 
 di tout son naturel l'eût porté davantage vers une
@@ -3153,7 +2751,6 @@ di tout son naturel l'eût porté davantage vers une
 j suis appelé à une destinée orageuse, écrivait-il à son
 ami Buissart, il faut en suivre le cours jusqu'à ce que
 | j'aie fait le dernier sacrifice que je pourrai offrir à ma
-F patrie. » (1)
 ia Le 30 septembre, après que le président Thouret eût
 ie clôturé les travaux de l'Assemblée constituante, (2) à
 M jusqu'à menacer de sa démission au cas où Robespierre serait élu.
@@ -3189,7 +2786,6 @@ mentionner un des actes les plus considérables, dans la carrière
 j députés à l'Assemblée constituante de la prochaine Assemblée
 législative, Dès le 7 avril 1791, Robespierre avait obtenu qu'aucun
 
-Maximilien Robespierre "4
 la sortie Robespierre et Pétion furent salués par les
 assistants du cri mille fois répété de : « Vive la liberté!
 Vive la nation! » Robespierre, qui n'était guère l'ami %
@@ -3228,21 +2824,15 @@ suffit pas même qu'ils soient exempts de toute vue personnelle et $
 de toute ambition; il faut encore qu'ils ne puissent pas en être 4
 soupçonnés... » Il examine ensuite les objections qui avaient été À
 faites. On avait dit que les constituants ne trouveraient pas des
-remplaçants dignes d'eux : ‘4
 « En partageant le sentiment honorable pour l'Assemblée actuelle 1
 qui est la base de cette opinion, je crois exprimer le vôtre en disant 4
 que nous n'avons ni le droit, ni la présomption de penser qu'une
 nation de vingt-cinq millions d'hommes, libre et éclairée, est 4
-\ 90 |
-é
 
 "1 Fe Jai EE 4 LE PTE i : FUe sé A | AT ! Fe Ye LV un é
 # AE) à : ASE NES 7 L ; 1
-DL, : S 5
-4 à : A L'ASSEMBLÉE NATIONALE Ï
 À siastes : « Voilà les véritables amis du peuple, les
 | Fa : :
-k législateurs incorruptibles ! »
 : * C'est ainsi que finit l'époque la plus heureuse et la
 | moins connue de la vie de Robespierre. Qui pourrait
 ; trouver quelque chose à reprendre dans cette existence pleine de dévouement et d'abnégation ? Jusqu'à
@@ -3280,11 +2870,7 @@ passages expressifs, qui fut apprécié ainsi par le Journal de Paris :
 il honore son caractère, il établit une grande unité dans tous
 les principes qu'il a professés dans sa carrière politique; il en
 garantit la sincérité. Le vrai démocrate, le voilà !... » — Note du traducteur.
-Fe
-; 91
 
-i Di.
-Maximilien Robespierre *
 l'assentiment de nos lecteurs si nous l'avons essayé E
 avec quelque détail. .
 Ce que l'Assemblée a fait de bien est en grande $
@@ -3323,9 +2909,6 @@ nullement l'intention de ruiner les colonies, mais au contraire de 1
 leur assurer une prospérité nouvelle, comme on le voit par les
 autres passages du discours. — L'esclavage ne fut aboli qu'en 1848.
 — Note du traducteur. : |
-92 ]
-
-À A L'ASSEMBLÉE NATIONALE
 
 chaque jour de son éloge; même dans les théâtres, on
 le plaçaiït sur la scène (x) et on livrait sa personne aux F
@@ -3392,7 +2975,6 @@ avec sa vertu, son désintéressement, son passé provincial et labo-
 
 rieux ? » — Les Orateurs de la Législative et de la Convention, II, 231.
 
-Maximilien Robespierre 4
 toujours fidèle à ces principes immortels. Même plus L
 tard, au moment où il ne s'agissait plus, pour la Révo- É
 lution, que de vaincre ou de mourir, quand on fut
@@ -3400,7 +2982,6 @@ obligé de recourir à des mesures sévères pour sauver
 la patrie, déchirée à l'intérieur par les partis, menacée 4
 et attaquée sur toutes les frontières par les rois coali- 4
 sés, Robespierre resta cependant toujours l'idéal d'un
-. - . 2 L
 homme d'ordre qui sait que, sans l'ordre, la liberté n'est :
 : qu'une fiction, et qui s'efforce de se tenir à une même
 distance de ces deux écueils également dangereux : la À
@@ -3442,22 +3023,11 @@ terrain scabreux des voies et moyens. Il dit ce qu'on devait faire, E.
 très rarement comment on pouvait le faire. » — Aulard, — les Orateurs
 de la Constituante, page 521. — Note du traducteur. A.
 
-Per
-L
-
-4 Fe.
-
-S
-
 | Ill |
 
 .
 
 1 Pendant l'Assemblée législative
-
-: (1791-1792)
-
-à
 
 ÿ Le samedi, premier octobre 1791, l'Assemblée législative, qui comptait 7930 membres, se réunit dans le
 
@@ -3484,9 +3054,6 @@ droite dans la Législative, au nombre d'environ cent
 vingt membres. En face d'eux, et d'une force double à
 peu près, se tenaient les novateurs ou réformistes, com-
 
-+ gÿ
-
-Maximilien Robespierre À
 posés surtout des représentants de la Gironde et de la ‘4
 ville de Paris, qui devaient former plus tard dans la L
 Convention, les premiers, le noyau du parti de la 4
@@ -3496,7 +3063,6 @@ chaient encore ensemble et cherchaient en commun À
 leurs inspirations dans le club des Jacobins. Au milieu, \
 se trouvaient les timides ou le ventre qui, comme dans 4
 toutes les assemblées, formaient l'appoint de la majo- 1
-rité. 1
 Robespierre se montra satisfait de la composition de 4
 l'Assemblée, (1) qui était formée presque entièrement 4
 de patriotes, — c'est ainsi qu'on appelait les partisans de |
@@ -3520,12 +3086,8 @@ l'Assemblée précédente. — Note du traducteur. 4
 bourg Saint-Antoine vint encore aux Jacobins le remercier d'avoir 1
 si bien défendu les droits du peuple pendant toute la Constituante. ÿ
 ; — Note du traducteur. mn.
-96 Fr
-‘4
 
 ti Un RU, "+ he:
-3508 } :
-0 PENDANT L'ASSEMBLÉE LÉGISLATIVE
 : ‘ A partir de Bapaume, le voyage fut un véritable
 js triomphe. A sonentrée, Arras était illuminée. On voulut
 À dételer ses chevaux pourtraîner la voiture, mais Robes-
@@ -3557,9 +3119,6 @@ Duplay surtout le pressait de revenir. Mais Robespierre difrérait
 son départ de jour en jour. Les six semaines qu'il passa dans l'Artois furent les derniers jours calmes de son existence : rentré dans
 la lutte, il ne devait plus en sortir que par la mort. — Note du traducteur.
 
-à VI
-
-Maximilien Robespierre 4
 ou les soumettre par le glaive », ils avaient voté la
 mort pour tous ceux qui se trouveraient encore à la fin 4
 de l'année dans l'armée des émigrés ; (1) et une longue
@@ -3586,16 +3145,12 @@ Au retour de Robespierre, quand celui-ci reparut, le
 28 novembre, parmi les Jacobins, sa présence excita de 1
 j prodigieux transports d'enthousiasme et la présidence 4
 d'honneur de la séance lui fut immédiatement aban- b
-donnée. (3)
 () Décret du 9 novembre 1791. — Note du traducteur. |
 (2) Décret du 29 novembre 1791. — Note du traducteur. - |
 (3) Voici comment le Journal du Club rapporte cet incident : F
 « Séance du lundi 28 novembre 1791. Présidence de M. Coure Robespierre entre au milieu des plus vifs applaudissements. |
 M. Collot d'Herbois, qui occupait le fauteuit comme vice-président, |
-98 ï
 
-ÿ PL On TE AE ?
-É PENDANT L'ASSEMBLÉE LÉGISLATIVE
 Les débats sur la guerre venaient justement de com- ps
 mencer dans l'Assemblée législative. Tout le monde
 désirait cette guerre, mais pour des motifs bien diffé- -
@@ -3605,7 +3160,6 @@ surnommé l'incorruptible, préside la société. « Le règlement de
 « cette société, dit-il, est pour cette motion. Il faut que les bons \
 « généraux visitent les postes. » Cette motion, appuyée et mise aux :
 voix, est adoptée à l'unanimité et M. Collot d'Herbois engage
-M. Robespierre à monter au fauteuil.
 « M. Robespierre. — Messieurs, en m'appelant à la place que j'occupe en ce moment, vous m'avez mis à portée de prouver le profond
 respect que j'ai pour cette assemblée. Vous m'avez donné une tâche
 bien difficile à remplir, celle de vous témoigner ma gratitude. Car
@@ -3644,11 +3198,6 @@ fléau. Il y a plus. En général, la vertu suppose ou donne assez souvent le ta
 d'une âme élevée et pure est la principale source des saines idées
 politiques. Quand on aime profondément la justice et l'humanité,
 on sent vivement les droits des hommes et des citoyens ; on les
-
-É 99
-
-\ À Lé v + ss 3 ds * Gi 4 Riot te à 514
-Maximilien Robespierre y
 
 toujours. Le roi la voulait, mais venant des puissances F
 étrangères sans qu'il parût les appuyer; les constitu- 4
@@ -3696,17 +3245,6 @@ défenseur de la liberté. L.
 dominés par l'ascendant d'une âme fière, courageuse et sensible, a
 ont repoussé la fortune, bravé les tracasseries des petites cabales È
 £ ou les persécutions d'un gouvernement tyrannique, pour adorer la :
-100 “à
-
-4 ee VOL HAN OT 4 :
-
-Re
-
-ù , ,
-
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
-
-hi
 
 _ Rhin et les émigrés de Coblentz; les Girondins aspi-
 
@@ -3758,11 +3296,6 @@ haute raison de Robespierre :
 « M. le secrétaire fait lecture d'une lettre écrite à la société par ;
 M. Virchaux, en lui adressant une lame d'épée de Damas, qu'il la
 
-IOI VI.
-
-0 À j BORNE TEEN : À $ 008
-1 t L a, ' ga A L pi 4
-Maximilien Robespierre
 la liberté des peuples que toute guerre cache en son
 sein ; il pressentit que, tôt ou tard, cette guerre donnerait au pays, le présent fort peu enviable d'un Napoléon. (1) 4
 
@@ -3779,7 +3312,6 @@ effacés de la liste des hommes libres. n
 
 « M. Robespierre supplie l'Assemblée de supprimer tous ces mouvements d'éloquence matérielle qui peuvent entraîner l'opinion À
 dans un moment où elle doit être dirigée par la discussion la plus 4
-tranquille. » À
 
 Mais l'enthousiasme belliqueux des Girondins gagnait de plus en }
 plus le pays. Robespierre n'hésita pas à l'attaquer ouvertement sans d
@@ -3815,14 +3347,12 @@ Constitution ; ceux qui ont observé que c'est à la précipitation et à 6
 funestes qui aient compromis notre liberté, en favorisant les pro- ;
 
 #2 , » 2
-°$ PENDANT L ASSEMBLÉE LÉGISLATIVE
 “ déclarät la guerre à l'empereur, mais seulement après
 D que la garde nationale et la population, dans tout le
 ÿ pays, auraient été armées et organisées militairement.
 } Aux Jacobins, il parvint à provoquer un revirement
 4 d'opinion dans la question de la guerre. Et c'est là qu'il
 4 faut chercher l'origine de la haïne des Girondins contre
-l
 : jets et en augmentant la puissance de ses ennemis ; qui savent que
 1 le véritable rôle de ceux qui veulent servir leur patrie est de semer ;
 É dans un temps pour recueillir dans un autre, et d'attendre de l'exL périence le triomphe de la vérité.
@@ -3862,20 +3392,16 @@ extrême. Le peuple était là, dans tous les pays libres, lorsque,
 malgré ses droits et sa toute-puissance, des hommes habiles, après
 lavoir endormi un instant, l'ont enchaîné pour des siècles.
 
-ve À RES
-Maximilien Robespierre "4
 lui, et surtout de la haine de Louvet qui se trouva tout \
 particulièrement blessé, lui, le parlementaire exercé, À
 de se voir retirer la parole, aux Jacobins, sur la propo- ;
 sition de Robespierre, et à cause d'expressions incor- L
 rectes dont il s'était servi. Le comité de correspon- È
 dance, qui se composait presque entièrement de .
-TUE TIC 1
 Le peuple est là; mais vous, représentants, n'y êtes-vous pas 14
 aussi ? Et qu'y faites-vous si, au lieu de prévoir et de déconcerter 4
 les projets de ses oppresseurs, vous ne savez que l'abandonner au }
 droit terrible de l'insurrection et au résultat du bouleversement des ‘À
-empires ? » %
 Et, après avoir montré encore les dangers d'une guerre offensive, ÿ
 Robespierre terminait par des paroles graves et fermes : 3
 « Ne nous dites donc plus que la nation veut la guerre. La }
@@ -3908,10 +3434,7 @@ pierre ; — Brissot eut le tort, en outre, de s'abaisser à des person- 4
 nalités regrettables. DS L
 Robespierre répondit par son grand discours du 2 janvier 1792, *
 discours d'une logique nerveuse et pressante, d'une éloquence J
-104 à
-Q
 
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
 h Girondins, avait glissé indûment la phrase suivante
 L_ dans une circulaire adressée aux sociétés affiliées des
 . départements : « Le système de la guerre est celui qui
@@ -3954,7 +3477,6 @@ qui puisse naître dans la tête d'un politique, est de croire qu'il
 suffit à un peuple d'entrer à main armée chez un peuple étranger,
 
 LE 2" TL? SRE A RITES AU ED Un as AE Ca et PRCÉSRES de: à : MS :
-Maximilien Robespierre É:
 attira d'abord un rappel à l'ordre; et, finalement,
 comme Louvet refusait de s'incliner, qui lui fit retirer
 la parole. Néanmoins, les Girondins n'osaient pas
@@ -3998,11 +3520,8 @@ tère de tout homme, qui n'est point dégradé. L'amour de la jus- #4
 tice, de l'humanité, de la liberté est une passion comme une 38
 autre ; quand elle est dominante, on lui sacrifie tout; quand on a N
 ouvert son âme à des passions d'une autre espèce, comme à la È
-106 +4
-+10
 
 RTE echo Mu de UT Mer APE Le
-J PENDANT L'ASSEMBLÉE LÉGISLATIVE
 _ dit : « Robespierre avait le tempérament des grands
 _ hommes, et la postérité lui accordera ce titre. Il fut
 _ grand quand, tout seul, à l'Assemblée constituante, il
@@ -4033,7 +3552,6 @@ ses propres défauts , car le peuple même én a... »
 
 Et Robespierre termina par quelques sages conseils sur les périls
 du gouvernement représentatif et par l'apologie des œuvres de la
-paix.
 
 On a dit qu'il haïssaïit la guerre par timidité d'homme d'étude et
 par lâcheté naturelle de tempérament. D'autres estimeront peut-
@@ -4047,8 +3565,6 @@ journal du club. — Note du traducteur.
 
 107 -
 
-Maximilien Robespierre En
-ja . . ._ ei
 de la naissance ; en un mot, les Droits de l'Individu,
 tel était le credo politique des Girondins. La liberté,
 par contre, envisagée comme la possibilité pour le M
@@ -4084,7 +3600,6 @@ l'on veut bien considérer que le représentant moderne des principes de la rais
 rapproche des discours de Robespierre les Principes métaphysiques Re
 du Droit naturel, publiés en 1796, on est frappé de la ressemblance
 108 1
-N
 
 | PENDANT L'ASSEMBLÉE LÉGISLATIVE
 
@@ -4118,10 +3633,7 @@ Contrat social n'est-il pas le type, en sociologie, de cette méthode
 que Stuart-Mill appellera la « méthode mathématique », et qu'il
 co fort au nom de l'empirisme anglais ? — Note du traduc-
 
-VIH
-
 | |
-Maximilien Robespierre
 aux délibérations. Nous retrouverons en lui l'homme
 de la légalité et aussi le combattant infatigable pour
 les droits du peuple. Il se prononça nettement contre
@@ -4152,14 +3664,7 @@ préciserons plus loin son attitude sur ce point, mais il y avait dès À
 maintenant un trait à relever. — Note du traducteur. ; 1
 (2) L'Assemblée constituante avait, malgré un discours de Robes- F:
 pierre, interdit les assemblées permanentes de sections. Robespierre #
-‘
-I10 %
-4 :4
 
-SE PU 14 Qt d'pS as LR HA PE
-% ; 2 ,
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
-:
 - autorités; confédération civique fraternelle de toutes
 -— les gardes nationales de la France; répression des
 troubles à l'intérieur par le châtiment sévère des insti-
@@ -4193,9 +3698,7 @@ de (1) Sur ce dernier point, il y a erreur du docteur Brunnemann.
 = jours des ministres jacobins, » disait-il avec cynisme. Mirabeau et
 … Robespierre savaient que les renégats de la cause populaire en
 deviennent ensuite les ennemis les plus acharnés, — Note du traducoteur.
-k III
 
-Maximilien Robespierre |
 libérale d'instruction publique; victoire sur Coblentz
 par la victoire sur le despotisme et la contre-révolution
 en France. (1) Mais il se refusait à déchaîner sur les
@@ -4242,13 +3745,8 @@ haine de nos despotes nouveaux vous ont dispersés. Venez, du M
 moins, soldats de tous ces corps immortels qui ont déployé le plus
 
 fer id 5: HÉSRRSS M ni HS a Sc he Red LE:
-. 4 FÉES in * t
-es | À
-D, ÿ Li 1 b
-À PENDANT L'ASSEMBLÉE LÉGISLATIVE
 à Le 15 février 1792, eut lieu l'installation du tribunal
 - criminel, près duquel Robespierre avait été appelé par
-". . .
 . le vote de ses concitoyens au poste d'accusateur public.
 j Ce tribunal se composait du président et de trois juges
 qui, tous, sortaient de libres élections ; à côté d'eux se
@@ -4281,11 +3779,8 @@ on ignorait alors cette duplicité qui n'était guère soupçonnée que
 + tion, page 132. — Note du traducteur.
 1 (1) Il ne faut pas confondre, comme on le fait généralement, le
 mode d'élection des tribunaux criminels de ce temps avec celui du
-L
 | 113
-]
 
-Maximilien Robespierre ‘
 à A cette occasion, Robespierre exposa ses principes :
 sur la conduite et les devoirs des fonctionnaires ; ils
 valent certainement la peine d'être reproduits : « Le 1
@@ -4300,7 +3795,6 @@ la nation et comme les égaux de leurs concitoyens ; il 4
 faut qu'à leurs yeux, comme à ceux de la raison et de
 la nature, les charges publiques ne soient plus des
 honneurs, encore moins des propriétés, mais des.
-devoirs. :
 « Des hommes peu éclairés ontcru melouer en disant
 que je serais l'implacable ennemi des aristocrates. Ils
 se sont trompés. Comme citoyen, le mot d'aristocrate, 4
@@ -4321,7 +3815,6 @@ l'Empire cette admirable magistrature et ces jurisconsultes renom- à
 més qu'on peut considérer comme une des forces principales de
 Napoléon premier. — Note du traducteur. - À
 
-1 PENDANT L'ASSEMBLÉE LÉGISLATIVE
 : trouverais le plus acharné de mes ennemis, l'homme
 - même le plus opposé à la cause de l'humanité, —le seul
 . homme que je pourraïs regarder comme mon ennemi,
@@ -4352,16 +3845,13 @@ L 73 Girondins protestataires du 31 mai, que les paroles que nous
 J roi de Prusse. Cette pièce avait été rédigée par Mallet du Pan et
 | corrigée par Louis XVI qui avait ajouté de sa main l'article mena-
 | çant Paris d'une subversion totale. — Note du traducteur.
-k
 4 115
 
-Maximilien Robespierre à
 et il fit entendre ces paroles dans une autre occasion :
 « J'aime mieux voir une assemblée représentative populaire et des citoyens libres et respectés avec un roi,
 qu'un peuple esclave et avili sous la verge d'un sénat
 aristocratique. Je n'aime pas plus Cromwell que
 
-i
 Charles premier, et je ne puis pas plus supporter le joug |
 des décemvirs que celui de Tarquin. Est-ce dans les
 mots de république ou de monarchie que réside la
@@ -4389,11 +3879,6 @@ sur le sable. Et il préparait la république au lieu d'en parler seulement. Il 
 la faire pénétrer dans nos mœurs. Et quel autre que Robespierre
 à cette époque, — si ce n'est peut-être l'abbé Fauchet, — parlait du
 « grand problème social » ? Qui donc s'en souciait? — Note du traducteur. :
-116 |
-
-si ;
-
-F N PENDANT L'ASSEMBLÉE L£GISLATIVE
 
 4 refuser cette offrande comme offensante pour les victimes de Bouillé, Robespierre s'exprima ainsi: « Tout
 ceci ne regarde pas la Société; (1) elle n'est que la
@@ -4429,15 +3914,9 @@ signes extérieurs qui peuvent être adoptés par les aristocrates et les traît
 dans son discours ; il faut seulement qu'il soit bien défendu. C'est
 le dégrader que de eroire qu'il est sensible à des marques exté-
 
-117 VIL.
-
-Maximiüien Robespierre 14
-
 Dumouriez au club des Jacobins, lorsqu'un assistant
 couvrit d'un bonnet rouge la tête de Robespierre, celui- F
 ci jeta, indigné, sur le sol, l'emblème cher aux Giron-
-
-- dins. (1) À
 
 Du reste, il n'avait pas plus confiance dans le minis- 1
 tère girondin, auquel le roi avaitété obligé de recourir
@@ -4448,7 +3927,6 @@ de la nation et de la liberté ne dépendent pas de quelques hommes, elles repos
 sur la justice et la sagesse des lois, sur l'opinion
 publique, les lumières du peuple, sur les défiances
 
-‘4
 rieures. Elles ne pourraient que le détourner de Fattention qu'il |
 donne aux principes de la liberté et aux actes des mandataires
 
@@ -4478,11 +3956,7 @@ lequel s'évanouissent les hochets des puissances THIN ENS ÿ
 L que je rappelle la Société à ses principes! C'est pour la Société, #
 c'est pour le ministre même, que je demande que l'on n'annonce
 pas à son arrivée la décadence de l'esprit public... » — Note du
-traducteur. É
-118 +2
-PA
 
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
 ._ même des amis de la Constitution. » D'ailleurs, il voux lait voir d'abord les nouveaux ministres à l'œuvre
 5 avant de les louer. Les Girondins, par contre, qui se
 | savaient et se sentaient maintenant en possession du
@@ -4511,7 +3985,6 @@ Robespierre répondit avec plus de feu que d'habi-
 | tude : « La première objection porte sur ce que j'aurais
 commis la faute d'induire les citoyens dans la superstition, après avoir combattu le despotisme. La supersti-
 
-Maximilien Robespierre ‘A
 tion, il est vrai, est uh des appuis du despotisme, mais F
 ce n'est pas induire les citoyens dans la superstition
 que de prononcer le nom de la Divinité. J'abhorre, 3
@@ -4540,13 +4013,9 @@ l'idée d'entamer ici aucune discussion religieuse qui 4
 pourrait jeter de la désunion parmi ceux qui aiment #
 le bien public; mais je dois justifier tout ce qui est È
 attaché sous ce rapport à l'adresse présentée à la
-Société. È
 « Oui, invoquer le nom de la Providence et émettre À
 une idée de l'Étre éternel qui influe essentiellement sur 1
-120 F
-“4
 
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
 4 les destins des nations, qui me paraît à moi veiller
 . d'une manière toute particulière sur la Révolution fran-
 çaise, n'est point une idée trop hasardée, mais un
@@ -4578,9 +4047,6 @@ guerre sans but et sans préparatifs, me paraît être une critique
 amère de toutes les sociétés patriotiques qui ont été de l'avis de la
 guerre, et de celle-ci en particulier. » — Note du traducteur.
 
-. ù CAES RONA n
-: ‘4
-Maximilien Robespierre FOR
 du peuple auraient volontiers renoncé pour cet avantage à toute idée de la Divinité, mais est-ce faire injure ;
 au peuple et aux sociétés affiliées que de leur parler É
 de la protection de Dieu, qui, selon mon sentiment, ;
@@ -4602,7 +4068,6 @@ vœu : Celle-ci même n'a pas émis une opinion positive.
 Je n'ai point insulté le peuple. — J'ai demandé la ;
 guerre, s'il faut avoir la guerre; et la paix, si on peut ‘À
 l'avoir, et je crois qu'il est possible d'avoir la paix. Je FA
-n'ai insulté personne... » (1) Éé
 (1) L'attaque de Guadet témoignait encore plus de son hypocrisie 6 de
 que de son « rationalisme ». Dans un discours, en effet, qu'il avait “3
 prononcé un an auparavant, le 27 février 1791, à la société des Amis F.
@@ -4617,8 +4082,6 @@ M. E. Hamel, qui a découvert cette pièce et l'a publiée dans son 4
 Précis d'Histoire de la Révolution, page 219, n'a donc pas tort de voir ee
 122 4
 
-4 PENDANT L'ASSEMBLÉE LÉGISLATIVE
-
 F Lorsque le président, qui était l'archevêque de Paris,
 
 | voulut résumer les opinions des orateurs avant de faire
@@ -4629,7 +4092,6 @@ mettre les rieurs de son côté en interrompant le prési-
 
 ; président! » Et les Girondins ne rougirent pas de le
 récompenser de cet acte héroïque par une mission de
-commissaire civil à Saint-Domingue.
 
 Il détestait au même degré que l'aveuglement passionné des Girondins, l'exaltation avec laquelle certaines
 femmes cherchent à se faire jour ; non qu'il voulût
@@ -4658,7 +4120,6 @@ loin des exemples. — Note du traducteur.
 -
 
 à HORN r Merci de Dbe à re
-Maximilien Robespierre
 bins de ce que Théroigne de Méricourt, une exaltée
 originaire de la Belgique, cherchât à éloigner leurs
 épouses du foyer domestique pour les attirer dans un
@@ -4689,11 +4150,7 @@ aucune place, aucune ne me convient, si ce n'est celle
 où il me sera possible de combattre la perfidie, le
 machiavélisme conspirant contre les droits du peuple.
 
-k PENDANT L'ASSEMBLÉE LÉGISLATIVE
-
 ù Je serai toujours à ce poste ; de quelques baïonnettes
-
-1!
 
 + que les tyrans m'environnent, ils ne m'effrayeront pas.
 
@@ -4702,8 +4159,6 @@ S'ils veulent nr'assassiner, c'est là qu'il faut qu'ils
 ; viennent. » Et, dans le but de soutenir les droits du
 
 à peuple, il fonda un journal, Le Défenseur de la Consti-
-
-tution. (1)
 
 s (1) Les paroles citées appartiennent au discours que Robespierre
 prononça le 13 avril dans le club des Jacobins. Le jour même où il
@@ -4739,10 +4194,6 @@ nations que j'avais défendue, que les devoirs de chaque homme
 étaient écrits dans sonfcœur et dans son caractère, et que, s'il le
 fallait, je saurais sacrifier ma place à mes principes, et mon intérêt
 
-ÿ c A RON | 19 7
-À
-Maximilien Robespierre LINE
-t
 Les Girondins ne manquèrent naturellement pas de
 lui attribuer les motifs les moins purs. « Les faits que .
 poursuit le tribunal, écrivit Roucher dans le Journal de 4
@@ -4786,8 +4237,6 @@ temps. — Note du traducteur. }
 (@) Roucher était plutôt un feuillant, mais il faisait campagne en {
 cette occasion avec les Girondins. — Note du traducteur. 1
 
-20e |
-
 | | PENDANT L'ASSEMBLÉE LÉGISLATIVE
 
 R. les Girondins, en possession de la majorité dans
@@ -4803,7 +4252,6 @@ de. manquaient pas de « fonds reptiliens » (1) pour se
 * les Girondins cherchaient à ébranler la popularité
 à toujours croissante de Robespierre; ils allèrent même, —
 ; risum teneatis, — jusqu'à l'accuser d'être payé par la
-liste civile. (2)
 ; Mais Robespierre devait sortir vainqueur de cette
 | __ lutte parce que la véritable foi démocratique manquait
 | aux Girondins tandis que leur adversaire était la
@@ -4828,9 +4276,7 @@ L colas, — plus tard imprimeur du tribunal révolutionnaire, — qui,
 sans être d'abord connu personnellement de Robespierre et à l'insu
 
 |
-F
 
-Maximilien Robespierre ,
 Du côté de Robespierre ou plutôt « pour la cause du
 de celui-ci, le suivait à une certaine distance, armé d'un énorme
 bâton. — Pendant que ses amis le protégeaient contre les poignards,
@@ -4849,7 +4295,6 @@ peuvent seuls achever cette grande Révolution.
 donne la manière dont j'ai été personnellement attaqué; et si je
 parle avec énergie, je n'en contribuerai que plus puissamment à k
 la véritable paix et à la seule union qui convienne aux amis de la
-patrie. » à
 Robespierre montra alors nettement qu'il n'était pour rien dans
 les discussions scandaleuses renouvelées chaque jour aux Jacobins; puis il continua ainsi : « Je suis calomnié à l'envi par les
 journaux de tous les partis ligués contre moi; je ne m'en plains
@@ -4877,13 +4322,11 @@ cusa de défendre, avec trop de chaleur, la cause des faibles oppri- J
 més contre les oppresseurs puissants; on m'aceusa, avec juste rai- |
 
 ET dr à RÉ fier Ar Sd did
-ë PENDANT L'ASSEMBLÉE LÉGISLATIVE
 peuple, de l'égalité, de la Constitution qu'on attaque en
 -
 son, d'avoir violé le respect dû aux tribunaux tyranniques de
 l'ancien régime, pour les forcer à être justes, par pudeur; d'avoir
 immolé à l'innocence outragée l'orgueil de l'aristocratie bourgeoise,
-municipale, nobiliaire, ecclésiastique.
 
 « J'ai fait dès la première aurore de la révolution, au-delà de
 laquelle vous vous plaisez à remonter pour y chercher à vos amis
@@ -4922,9 +4365,6 @@ combien il eût été facile à des représentants vertueux d'élever tout
 à coup la nation française à toute la hauteur de la liberté, Si vous
 me demandez ee que j'ai fait à l'Assemblée nationale, je vous
 
-FPS RE ER D LV OS 1 MORE MODS 2 MNT
-bi!
-Maximilien Robespierre #15
 toi » (Camille Desmoulins), se rangèrent Desmoulins et À
 répondrai que je n'ai point fait tout le bien que je désirais, que je Ée
 n'ai pas même fait tout le bien que je pouvais. Dès ce moment, je à
@@ -4959,7 +4399,6 @@ la cour et ses faveurs ; que toujours il s'est révolté contre toutes À
 les factions avec lesquelles j'aurais pu partager la puissance et F
 les dépouilles de la nation; que souvent redoutable aux tyrans et , 00
 aux traîtres, il ne respecta jamais que la vérité, la faiblesse et l'in- 4
-fortune. » à
 Robespierre rappela qu'en demandant la non-réélection des #3
 membres de la Constituante, il avait lui-même introduit Brissot hs
 et Condorcet sur la scène politique. Brissot avait exhorté Robes- 4
@@ -4971,14 +4410,9 @@ mètres » avaient « combattu et ridiculisé les prêtres », ils n'en 4
 avaient pas moins « courtisé les grands et adoré les rois », en L
 tirant d'eux « un assez bon parti », et persécuté Jean-Jacques, dont ]
 Robespierre fit un éloge émouvant. Et rappelant aussi le décret à
-130 |
-Al
 
 de à Fur PER Su « bd EDR ET
 
-, ! \ +
-
-4 PENDANT L'ASSEMBLÉE LÉGISLATIVE
 Fréron, dans la Tribune du peuple, et Marat, dans son
 qu'il avait provoqué à la Constituante et qui écartait pendant
 quatre ans du ministère les membres des diverses assemblées
@@ -5026,10 +4460,6 @@ pour le bien de mon pays ; si, pour la conserver, il faut trahir par
 un coupable silence la cause de la vérité et du peuple, je vous
 l''abandonne ; je l'abandonne à tous les esprits faibles et versatiles que l'imposture peut égarer, à tous les méchants qui la
 
-‘
-i
-
-Maximilien Robespierre 1
 Ami du peuple, quoique ce dernier sût fort bien qu'il 1
 n'était pas sympathique à Robespierre (1) et qu'il le
 connût personnellement si peu que, dans sa feuille, il
@@ -5079,13 +4509,9 @@ ceux que Guadet et sa clique me prêtent. |
 « Le premier mot que Robespierre m'adressa fut le reproche
 d'avoir en partie détruit moi-même la prodigieuse influence
 
-132 |
-
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
 guerions le lecteur si nous voulions montrer tous les
 pièges au moyen desquels les Girondins pensaient
 abattre Robespierre et comme il détruisit toujours leurs
-machinations rien qu'en mettant leurs actes en pleine
 qu'avait ma feuille sur la Révolution, en trempant ma plume dans
 
 * le sang des ennemis de la liberté, en parlant de corde, de poignards, sans doute contre mon cœur, car il aimait à se persuader
@@ -5126,15 +4552,7 @@ rents discours et en particulier dans sa réponse à Louvet, sous la
 
 ; Convention ; « Ce fut au mois d'août 1791, que Marat vint me voir.
 
-x
-
-k
-
-he VIII
-
-\ ; |:
 L Maximilien Robespierre È
-A à #3
 lumière. (1) Nous nous bornerons à marquer la part ou \
 plutôt la non-participation de Robespierre aux trois ik
 événements qui sont en quelque sorte la signature de |
@@ -5178,8 +4596,6 @@ que cette déclaration, signée de son président et des secrétaires,
 serait imprimée à ses frais et envoyée à toutes les sociétés affiliées.
 — Note du traducteur. 4
 
-(E .
-È 4
 | PENDANT L'ASSEMBLÉE LÉGISLATIVE
 20.000 fédérés, c'est-à-dire 20.000 gardes-nationaux
 venus de la province. Mais Dumouriez décida le roi à
@@ -5213,9 +4629,6 @@ décrets. — Note du traducteur.
 (3) Ce fut une théorie constante de Robespierre et de Saint-Just que
 _ le peuple doit se lever tout entier, dans des circonstances graves ;
 
-D
-
-Maximilien Robespierre |
 traire, le roi se déclarait ouvertement contre la Révolution, le peuple entier devrait se lever »; mais il
 réclama la mise en accusation de Lafayette, qui avait
 été jusqu'alors en coquetteries réglées avec les Girondins et qui, — probablement encouragé par eux, — avait
@@ -5223,7 +4636,6 @@ eu l'insolence d'adresser une lettre à l'Assemblée législative et de chapitre
 
 Les Girondins, néanmoins, mirent en scène la
 fameuse émeute du 20 juin. Non seulement ils m'atteignirent pas leur but, la rentrée aux affaires d'un ministère girondin, mais cette insurrection partielle se
-montra bientôt, au contraire, extrêmement dangereuse
 et préjudiciable pour eux, ainsi que Robespierre le leur 1
 avait prédit; car le Directoire, qui s'enfonçait de jour |
 en jour davantage dans les voies réactionnaires, saisit f
@@ -5238,16 +4650,11 @@ voir l'Assemblée intimidée lui accorder les honneurs de *
 la séance, pendant qu'une pétition circulait à Pariset
 se couvrait de 20.000 signatures, pétition demandant
 aussi des poursuites judiciaires contre les auteurs du
-20 juin.
 mais qu'il faut réprouver les insurrections partielles faites au nom
 d'intérêts secondaires et suscitées par des personnalités ambitieuses.
 Robespierre et ses amis sacrifièrent leur vie à cette doctrine, le F
 9 thermidor. — Note du traducteur.
 
-136 |
-
-Fe VOA SR PAU
-F “
 | PENDANT L'ASSEMBLÉE LÉGISLATIVE
 Robespierre, seul, inébranlable comme un roc
 au milieu de la tempête, renouvela aux Jacobins
@@ -5298,7 +4705,6 @@ auraient fait égorger s'ils l'avaient osé, vont se présenter à vous
 avec un air caressant. L'aristocratie et l'incivisme veulent, dit-on,
 | 137 VIIL,
 
-Maximilien Robespierre :
 et ce que nous appelons politique de juste mi- d
 offrir la table de l'hospitalité et le baiser fraternel au patriotisme ï
 et à la liberté. Que l'honneur d'accueillir la vertu soit réservé à la
@@ -5349,13 +4755,10 @@ peuples à la vengeance; voyez l'humanité abattue sous le joug 2
 de quelques tyrans méprisables; et que ce spectacle vous inspire À
 de grandes pensées. Ne sortez point de cette enceinte sans
 avoir décidé dans vos cœurs le salut de la France et de l'espèce F
-humaine.
 
 ? « Citoyens, la patrie est en danger; la patrie est trahie; on
 combat pour la liberté du monde; les destinées de la génération ÿ
 
-A ere * $ | ÿ g . \
-à PENDANT L'ASSEMBLÉE LÉGISLATIVE
 | lieu. (r) Mais il s'attira de nouveau la haine des
 Girondins, qui s'était un peu calmée à la suite des
 derniers événements, quand il fit cette déclaration :
@@ -5370,7 +4773,6 @@ conditions de leur concours : ministère pris dans leurs
 plus haut, éloignement des armées étrangères et nomination d'un des leurs comme gouverneur du dauphin. Ce
 ne fut qu'après le rejet définitif par la cour de ces proprésente et des races futures sont entre vos mains: voilà la règle
 de vos devoirs, voilà la mesure de votre sagesse et de votre
-courage. » /
 
 Cette adresse valut à Robespierre d'être dénoncé à l'accusateur
 public par le ministre de la justice; mais la plainte resta sans
@@ -5391,7 +4793,6 @@ firent avec les Parisiens la révolution du 10 août. — Note du traducteur.
 jolie expression allemande pour qualifier la politique molle et
 lâche, le système de bascule et de capitulations. — Note du traducteur.
 
-Maximilien Robespierre ‘1
 - positions qu'ils prirent part à la révolution du 10 août. Ù
 Ils aidèrent alors à la prise des Tuileries, qui allait 1
 détruire la royauté. Et quoiqu'ils se soient donné plus
@@ -5409,7 +4810,6 @@ de rappeler leurs mandataires. Il réclamait aussi l'ex- #
 clusion de tous les membres de l'Assemblée consti- à
 tuante et de l'Assemblée législative. (2) Les événements
 avaient instruit Robespierre et détruit progressivement L
-ee — fl
 (1) Les Mémoires parus récemment de Fournier l'Américain et 4
 de P. Choudieu jettent une lueur très vive sur l'inaction des Giron- Ne
 dins, au 10 août. Les chefs s'abstinrent, Pétion s'opposa avec opi- 4
@@ -5428,12 +4828,6 @@ devenir fameux. Son désir ne fut point exaucé et il entra lui-même
 dans la Convention, mais on voit quel était son désintéressement.
 La Convention ne fut pas élue au suffrage direct, comme on le croit | |
 généralement, mais par un scrutin à deux degrés. — Note du traducteur. ÿ à.
-140 à
-ÿ b
-
-Hp * 4 ES Vs ere AE LE K à
-
-PENDANT L'ASSEMBLÉE LÉGISLATIVE
 
 | en lui l'idée qu'on pouvait accorder la monarchie avec
 
@@ -5478,14 +4872,10 @@ dépendent de la nature du gouvernement, et du résultat des institutions politi
 jours auparavant, le 20 juillet, il s'était écrié : « Si vous ne voulez
 pas sauver le peuple, déclarez-le donc, afin qu'il se sauve luimême », formule solennelle qu'on ne trouve dans la bouche de
 
-Ê À “4 r: PRE %
-Maximilien Robespierre ‘TRS
-tas
 pour çoncerter les mesures à prendre; il était composé
 des personnes suivantes : de Vaugeois, Debessé, du 4
 
 professeur Guillaume (de Caen), du journaliste Simond 4
-. . . . \
 (de Strasbourg), de Gallinot, Kienlin, Layray, Garin, et ‘à
 du maire de Metz, Anthoïne. Celui-ci habitait, comme :
 Robespierre, chezDuplay, dans la rue Saint-Honoré; (1) NS.
@@ -5525,7 +4915,6 @@ insurrectionnel. — Note du traducteur. ÿ
 Duplay. — Note du traducteur. < R.
 #
 
-1 ; PENDANT L'ASSEMBLÉE LÉGISLATIVE
 |
 Fe moins de différer encore pour le moment toute tentative
 j insurrectionnelle. Le 8 août, la proposition de mettre
@@ -5536,7 +4925,6 @@ j insurrectionnelle. Le 8 août, la proposition de mettre
 gouverneur du château, Champcenetz, lançait deux
 € mille invitations manuscrites à des ci-devant nobles,
 — cent vingt environ seulement accoururent à cet
-appel. — Robespierre n'a point pris part personnellement
 $ au 10 août ; mais il fut moralement l'auteur de cette
 | journée, comme en témoigne la lettre que lui adressa
 le secrétaire-greffier de la Commune, Coulombeau, en
@@ -5551,17 +4939,11 @@ le jour suivant, l'installation d'un conseil exécutif composé de cinq Girondin
 Monge et Lebrun, et de Danton ; des visites domiciliaires chez toutes les personnes suspectes ; enfin, de
 nouvelles élections qui eurent lieu encore à deux degrés,
 mais, cette fois, sans distinction de citoyens actifs et de
-citoyens passifs.
 
 Le même jour, Robespierre fut élu, « avec pleins
 pouvoirs pour sauver la patrie », par sa section de la
 place Vendôme, membre de la nouvelle municipalité,
 de la Commune révolutionnaire ; et il assista régulière-
-
-L 143
-
-ÿ
-Maximilien Rubespierre
 
 ment aux séances, du 12 au 26 août. (1) Il déclina, par
 contre, le poste auquel venait de l'appeler la confiance ‘
@@ -5607,7 +4989,6 @@ gardez-vous de lui laisser le temps de se relever. » — Note du traducteur. :
 
 hétise M TE LE D he ed
 LE Ce RER. SE RES dé
-à __ PENDANT L'ASSEMBLÉE LÉGISLATIVE
 _ commencé; et, sur l'ordre de Danton, environ trois
 _ mille personnes furent arrêtées comme suspectes ; mais
 _ on les remit presque toutes en liberté, le lendemain, sur
@@ -5644,13 +5025,9 @@ fait enfermer conformément à votre décret, et sous peu de jours
 auparavant, qui ordonnait le bannissement de tous les prêtres
 | insermentés qui n'auraient pas vidé sous quinze jours le territoire
 | français. Quoi qu'il en soit, l'adresse était de Tallien, non de
-; 145 ,
 | IX
 
-ï
-
 F PE RE Ce he nen Fr
-Maximilien Robespierre
 le reconnaît le royaliste Beaulieu dans la Biographie
 universelle, lorsqu'il dit, à l'article Robespierre : « Si sa :
 proposition eût été adoptée, les massacres n'eussent
@@ -5680,14 +5057,11 @@ Robespierre; celui-ci combattit même le lendemain une des
 principales dispositions de cette adresse. On voit par quels pro- F;
 cédés on est parvenu à charger la mémoire de Robespierre de
 paroles et de faits atroces auxquels il resta étranger. — Note du
-- traducteur.
 () L'inaction des Girondins avait indigné Saint-Just, qui la leur |
 reprocha amèrement dans son rapport du 8 juillet 1793: « Et nous 4
 aussi nous avons été sensibles aux agonies du 2 septembre. Et qui À
 de nous avait plus de droit de s'en porter les accusateurs inflexibles, F.
-146 ;
 
-- PENDANT L'ASSEMBLÉE LÉGISLATIVE
 1 celles de Vergniaud : « Il n'est plus temps de discourir,
 >-
 _ il faut piocher la fosse de nos ennemis, ou chaque pas
@@ -5699,7 +5073,6 @@ _ aux instruments de la justice populaire plutôt un en-
 à _ Le 2 septembre au matin, Manuel annonça oflicielle-
 - ment à la Commune la prise de Verdun. Aussitôt la
 À Commune lança un appel à tous les hommes en état de
-à.
 É porter les armes pour qu'ils se rendissent sur l'heure
 4 2
 5 ou de ceux qui, dans ce temps-là, jouissaient de l'autorité et répon-
@@ -5732,14 +5105,9 @@ congédia en leur disant de faire pour le mieux. » Choudieu rapporte aussi le t
 + connaissance, — Mémoires de Choudieu, page 205. — Paris, Plon et
 Nourrit, 1897. — Note du traducteur.
 
-X4
-
-- Un)
-Maximilien Robespierre
 au Champ de Mars, afin de pouvoir se mettre immédia- :
 tement en marche au nombre de 60.000 ; et, à cet effet, ,
 elle établit un comité militaire permanent de huit membres. Elle délégua aussi deux commissaires auprès 1
-. . e L
 de l'Assemblée législative, qui approuva les mesures 1
 prises et décréta la peine de mort pour ceux qui s'y à
 déroberaient. Pendant ce temps, Robespierre (1) pré-
@@ -5758,7 +5126,6 @@ démenti : « Avant l'époque où ces événements sont arrivés, — pe.
 les journées de septembre, — j'avais cessé de fréquenter le conseil
 général de la Commune... J'étais habituellement chez moi ou dans ÿ
 les lieux où mes fonctions publiques m''appelaient. » Le premier K
-septembre cependant, Robespierre vint lire à 14 Commune 4
 l'adresse aux 48 sections dont la rédaction lui avait été confiée, — ne Ê
 pas confondre avec l'adresse à l'Assemblée législative rédigée par
 Tallien, comme on peut s'en souvenir; dans cetie même séance RE
@@ -5775,12 +5142,9 @@ pour arrêter les massacres, comme on le verra. Les journées de
 septembre paraissent avoir été un mouvement spontané de la population parisienne, affolée par l'approche de l'ennemi. Soixante mille J
 hommes de garde nationale restèrent sourds à toutes les réqui- |
 sitions du commandant général Santerre. — Note du traducteur.
-148 : à
 
-à À PENDANT L'ASSEMBLÉE LÉGISLATIVE
 4 dans l'ancien bâtiment électoral, l'Évêché; — l'Assem4 blée se composait des électeurs de la ville de Paris
 £. et des cantons ruraux environnants, elle comptait
-;: 992 membres.
 1 A une heure trente minutes, le Conseil général de la
 ss Commune s'ajourna pour reprendre la séance à quatre
 à heures. A peine la séance avait-elle commencé sous la
@@ -5812,7 +5176,6 @@ du matin à une heure de l'après-midi, puis il s'était rendu aux
 — Note du traducteur.
 4 149
 
-Maximilien Robespierre À
 Varennes dénonçait une conjuration en faveur du duc
 de Brunswick. Robespierre appuya la dénonciation. Il À
 se peut qu'il ait songé à Carra et à Brissot; quoi qu'il
@@ -5834,12 +5197,10 @@ jour sur une motion de la section des Quinze-Vingts, —
 que le Temple aussi était menacé, il chargea Deliroy, E
 Robespierre et Manuel de s'y rendre et d'y assurer la
 tranquillité; sur leur demande, on leur adjoignit six DE
-LE
 commissaires de l'Assemblée législative. (2) A dix Fe
 (1) « .… Pour protéger les Suisses et défendre leurs jours par tous j ;
 les moyens possibles » portent les procès-verbaux de la Commune.
 — Manuscrit publié par M. Maurice Tourneux. Paris, 1894. — Note du
-traducteur. Û
 (2) Lacroix, Bazire, Choudieu, Thuriot, Dussaulx et Chabot. Ces |
 députés, quoique populaires, ne réussirent point à mettre fin aux |
 massacres. Choudieu, qui était un ardent républicain et un homme Ç
@@ -5848,15 +5209,9 @@ l'Abbaye. Introduit dans le préau de la prison, et mis sur sa
 demande en présence de celui qui commandait à ces sanglantes a
 exécutions, il ne put même placer un mot. Dufraise, qui était à la à
 tête des assassins, lui coupa brusquement la parole : « (Que viens-tu ]
-150 É
 
-:7 4 : s ,
-Ë PENDANT L'ASSEMBLÉE LÉGISLATIVE
-20 Pré
 24 heures, Robespierre reprit la présidence de l'Assemblée
 ‘4 électorale, qu'il présida, comme les travaux de cette
-É.. assemblée en font foi, jusqu'à deux heures trente
-É. minutes.
 :e Ainsi Robespierre n'a pas eu de part aux journées de
 ne septembre et, comme nous l'avons montré, il n'a pu y
 É collaborer en rien, à moins qu'on ne veuille lui accorder
@@ -5896,11 +5251,7 @@ i rapport cité plus haut. De cette époque date la brouille de Robes-
 } pierre et de Pétion. Charlotte Robespierre raconte ce qui suit dans
 ses Mémoires : « Quelques jours après les événements des 2 et3 septembre, Pétion vint voir mon frère. Maximilien avait désavoué le
 …. . massacre des prisons, et aurait voulu que chaque prisonnier fût
-1ÜI
-£
 
-Maximilien Robespierre a:
-Lt
 le don d'ubiquité. Et deux réactionnaires forcenés qui
 ont écrit après le 9 thermidor, dont ils sont les ardents
 apologistes, Méhée de la Touche, qui était au moment je
@@ -5911,7 +5262,6 @@ ce ne peut être tout au plus que celui de n'avoir pas, à
 la première nouvelle des événements, tenté de pénétrer :
 dans les prisons et d'arrêter, au péril de sa propre vie, 4
 les scènes de massacre. Qu'il y serait difficilementparvenu, c'est ce qu'accordera bien vite tout homme de LS.
-bon sens. (2) D
 renvoyé devant des juges élus par le peuple. Pétion et Robespierre 1
 s'entretinrent des derniers événements. J'étais présente à leur entre- ‘4
 vue, et j'entendis mon frère reprocher à Pétion de n'avoir pas LE.
@@ -5940,8 +5290,6 @@ supposait pas une âme. » — Note du traducteur.
 (2) Robespierre n'a jamais harangué directement le peuple, — le À K
 discours à la section Bonne-Nouvelle, dont nous parlerons plus .
 loin, était adressé aux élecieurs et non à la masse du peuple. — Il A
-122 , À
-/ LE !.
 
 ca PENDANT L'ASSEMBLÉE LÉGISLATIVE
 “: - Le 4 septembre, le nom de Robespierre sortit à Paris
@@ -5981,111 +5329,27 @@ collaboration de Tallien ; et le Conseil général dut nommer Tho4 mas, un autre
 Note du traducteur.
 1 1573
 
-= 2 LME 2 CENT aN æ 2 LU .
-- e x cs soie ‘4 152
-EE
-1 PEL
-< G, 1
 ne.
-RER
-+ DC
-ï Er
-- #70
-
-(] RE
 
 ,
-: 3 ÿ
-Re
-(l _45ù
-: Ée
-SFA
 
-ECS
-
-DL
-: » Sl
-: DT
-ÿ
-di |
-Re
-_ Ÿ EL: * H
-Ù FER
-TE
-Me RER: à
-“ares |
-La Y
-
-; ER Gt à
-
-DONNE A De NO UMR VS 40 Pa De Ua” OST TO
-0 ms Do Cho e » 4 Ÿ RCE ; .
-f 4 ï é
-‘à TABLE
-LATE
-
-(5 ä > Pages
-180) à -
 Me Lis RER PRNOT DINSR TRE E ne, ARCE A
 1 Préface de la première édition allemande. . . . . .. 7
-LES
-:2Èa Masimilen Robespierre. 1"... IT
-LES
 “8 I. — Jusqu'à son entrée dans l'Assemblée natio-
-: ; male (1759-1780) a mi le il Re SE
-4 nu Il. — A l'Assemblée nationale (1789-1991). . . . . . 27
-Ë ns. 14 ” . .
 E III. — Pendant l'Assemblée législative (1791-1792). . 95
-ee -
 5 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce huitième cahier
 | le mardi 19 janvier 1904.
-f A a — — 2 ——— ——————————
 Le Gérant : CHARLES PÉGUY
 | D Ce cahier à été composé et tiré au tarif des ouvriers syndiqués.
-(ee - A D Ro SP RE RE 0 RE
 | IMPRIMERIE DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 8118
-LES Er,
-{18e Ù 155
 
-AUS 4 LÉ Es pe Eee re +
-PE NB PE DU PSN 7 PES ES SES UE TP NE
-FA A
 | : Vase QE FAUSSES
-4 FT OCMEAES
-LE “ : are
-Lo
-RU
-r Me
-EE.
 #
-ete
-Re.
-LR A
-+3
-en
-; F Less
-DO. “
-rte
-TUE
-Se:
-2 u ES.
-« 0
-Zxsi
-Eu
-, Ps:
-P* . ER
-” LA D €
-Ë … LORS
-+ CV ve
-el sex
-2 DEN
 
 = 4 Nos Cahiers sont édités par des souscriptions men54 suelles régulières et par des souscriptions extraordi:
 F4 naires ; la souscription ne confère aucune autorité sur
 2. la rédaction ni sur l'administration : ces fonctions
-< demeurent libres.
-c
 ÿ Nous servons :
 o des abonnements de souscription à cent francs ;
 + des abonnements ordinaires à vingt francs ;
@@ -6112,35 +5376,11 @@ Le chaque série au plus tard le 3r décembre qui suit
 } j l'achèvement de cette série ; ainsi du premier juillet au
 F 31 décembre 1903 on pouvait avoir pour vingt francs
 4 les vingt-deux cahiers de la quatrième série complète.
-A 1 1
 
 ne a VS LÉ PE es TRIAL en ns 1N NE AA AÉ
-; ë *” KA pe FAN DDR, DERES FE UU RS
-CELL
-à Lé 13 1? »
-= 7 1
-RL.
-+
-* RES
-;
 . 4.8
-;
 
-NA.
-3 de
-R:
-
-n.
-*#
 >
-= |
-‘ 1
-=
-< FA
-È Æ
-: j 4 |
-S ENG. 5e :
-Rs
 
 L Le dixième cahier de cette série, Romain Rolland,
 4 Beethoven, était épuisé plusieurs mois avant la fin .
@@ -6153,7 +5393,6 @@ Fa bureau des cahiers.
 h3 d'une série, le prix de cette série est porté au moins
 : au total des prix marqués; ainsi depuis le premier
 FA janvier 1904 la quatrième série se vend trente-cinq
-8 francs.
 de: M. André Bourgeois, administrateur des cahiers,
 os reçoit pour l'administration et pour la librairie tous
 BRL : Les jours de la semaine, le dimanche excepté, — de huit

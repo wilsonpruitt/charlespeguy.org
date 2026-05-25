@@ -7,27 +7,12 @@ author: antonin-lavergne
 isAvertissement: false
 wordCount: 59542
 ---
-
 ## Jean Coste ou l'instituteur de village
 
-*Antonin Lavergne*
-
-C: RSC APE s, A HSE PAR DATES RE CARE RES) MT ET
-
-en MAR ER A Re VE AIN POIDS PRE AE TR AVE SRE
-
-ù RAR DEL ERA k } 6 EL SERRE CAN ESC ET ART SRE PNR
-:SHASRRENE “s NT ONERESS
-LS “HAUTES
-ÉÉEN L'EMCESMES
-
-Ua F ARE er:
 ra Mrs PAROLES D'AMOUR, un volume in-18 jésu e dans
 T'AS SES la collection des Poètes contemporains, chez Le nerre
-AE, LA OEES
 LITRES Je ve 2. (PET
 
-dE PRÉFACE DE L'ÉDITEUR È
 J'étais délégué aux éditions dans une société anonyme .
 Re: à capital et personnel variables quand me parvint la
 %re copie du roman que l'on va lire. Je ne connaissais pas
@@ -35,7 +20,6 @@ l'auteur. Un camarade commun lui avait donné le
 Lo nom de la librairie Georges Bellais. Maltraité par les
 éditeurs bourgeois, il s'adressait à nous de confiance. Il
 nous envoyait son livre et ne s'était pourvu d'aucune
-- 5 recommandation.
 J'emportai la copie chez moi. Je la lus attentivement.
 4: Je n'ai jamais été de ces grands abatteurs qui expédient
 cinq in-octavo dans leur matinée. Il me fallut ma jour_…  néeentière du dimanche pour lire les deux cent soixante
@@ -43,13 +27,11 @@ et quelques pages manuscrites. :
 Employé fidèle je rendis compte au conseil d'adminis-
 “AE tration que ce livre me paraissait bien. Le conseil délé-
 gua l'un de ses membres à prendre connaissance de la
-copie.
 AR _ L'administrateur délégué n'hésita pas : J'ai vu, dit-il,
 é ce roman, c'est bien long, c'est ennuyeux, et puis c'est » bien noir, il n'y a pas des gens aussi malheureux
  _ ‘ Je dus m'incliner devant cet arrét. La critique litté-
 Pr _ raire d'un employé ne vaut pas contre la critique litté-
 raire d'un patron.
-TAICAEES Fa
 
 Mais dès lors j'espérai qu'un éditeur pauvre accueil- Ê f (4e d
 
@@ -80,7 +62,6 @@ listes, fassent profession de représenter l'immense mul.
 titude pauvre. L'homme le plus talentueux du monde, HN
 
 s'il n'a pas manqué de pain, ignore des cercles quenous
-connaissons. 25 TH
 
 Et puis c'esttrop noir. — Si nos abonnés veulent bien
 lire d'un esprit non prévenu, ils verront que l'auteur a “AE
@@ -119,8 +100,6 @@ s maire. Mais déjà tous les honnétes gens sont assurés
 qu'un solide rétablissement des instituteurs ferait plus
 x pour les fins qui nous sont communément chères que le
 vain foisonnement des formules, des programmes et des ÿ
-phrases.
-ES Charles Péguy
 Comme gérant des cahiers, je prie qu'on nous par-
 donne si ce cahier paraît avec assez de retard, On m'excusera sur ce qu il est très considérable. Nous avons eu
 aussi un très gros travail d'administration ‘et de librai- à
@@ -155,7 +134,6 @@ marche, comprend quatre classes en enfilade, sans
 air, aux murs lépreux et écaillés par l'humidité : école
 bien misérable pour une petite ville de sept à huit mille
 habitants, en ces temps de belles constructions sco-
-Jaires.
 
 De chaque salle, après un commandement bref du
 maître, arrive d'abord un bruit de tables et de bancs f
@@ -236,7 +214,6 @@ par lui à la merci de certains politiciens de pacotille 2.
 Une vraie course au clocher que ces bons postes... Je
 sais bien que ce n'est pas toujours la faute de nos chefs
 et, tout franc, je ne voudrais pas être parfois à leur
-place.
 — Bah! ce qu'ils s'en fichent, au fond, nos chefs !.…
 Ils pensent à eux, avant tout, et cherchent à plaire... Je
 ne vous croyais pas ces illusions-là... Mais suffit. Mon
@@ -283,12 +260,10 @@ rs ë Déjà, M. Largue, son sécateur à la main, rejoignait
 nez recourbé et parcourut les suscriptions des lettres.
 Puis, avec un sourire faux et malicieux, il se dirigea
 vers la cour, tout en humant une prise avec un air de
-satisfaction.
 . — Tenez, monsieur Coste — dit-il, après avoir fourré
 la tabatière dans la poche de son gilet, — tenez, un pli
 de l'inspection académique pour vous.
 L'adjoint s'en saisit et arracha les bandes, un peu
-fiévreusement.
 — Ça y est, fit-il. On m'envoïe à Maleval... Ma foi,
 tant mieux.
 — Oh ! s'empressa d'ajouter M. Largue, — vous serez
@@ -297,7 +272,6 @@ d'ici et, en outre, il est à deux pas du chef-lieu du ‘
 département... à peine trois ou quatre lieues... surtout
 qu'on va construire un chemin de fer d'intérèêt local qui
 y passera et vous transportera à Montclapiers en une
-demi-heure.
 — Quelle population ? interrogea le deuxième adjoint.
 — Trois cents habitants environ, répondit le direc-
 - teur, — peut-être plus, peut-être moins... Je connais
@@ -312,7 +286,6 @@ froid ; il faut bien débuter !
 et complaisant qui jurait avec le regard faux de son
 œil pétillant de joie satisfaite.
 
-S PORC Le
 Il avait craint d'abord que l'adjoint ne se montrât
 mécontent de son déplacement etla tranquillité de Coste
 le rendait plein d'égards, contrairement à son habitude.
@@ -333,8 +306,6 @@ ce soit dès aujourd'hui ou demain, peu importe... Vous .
 pourrez donc dire à môssieu l'Inspecteur que le service
 est assuré et que je ne vois aucun inconvénient à ce
 que vous vous occupiez de votre départ sans avoir
-revenir en classe.
-- Coste remercia.
 — Est:il aimable aujourd'hui, le singe ! — dit-il à voix
 basse à ses collègues, en leur serrant la main, pendant
 que le directeur s'éloignait. — On voit bien que je fiche
@@ -346,7 +317,6 @@ Les adjoints sourirent.
 — Oui, à condition de faire son piquet, le soir, dit
 l'un. Merci, ce qu'on s'en fiche du bonhomme et deses k
 paroles melliflues et pédantes.… Il peut nous attendre.
-Coste se retira.
 Plusieurs de ses élèves l'arrêtèrent, l'un demanda:
 , — Est-ce vrai, m'sieu, que vous partez?
 — Oui, mes amis.
@@ -376,7 +346,6 @@ dont les moindres recoins lui étaient familiers.
 Déjà, il voyait Louise tout en larmes, à l'idée qu'ils
 allaient abandonner cette chîre ville où elle était née,
 
-ES 2 PET M PORORNNTE
 cette petite patrie à laquelle son âme de grisette, ses
 habitudes peuple, ses amitiés d'enfance l'attachaient
 par mille liens insensibles, mais fortement résistants.
@@ -453,7 +422,6 @@ très doux au cœur de Coste et l'attendrissaient encore.
 Souriant à ce cher passé, l'instituteur leva les yeux. Il
 était, en ce moment, devant le magasin de mercerie où ‘
 Louise travaillait autrefois. Et, de nouveau, les tremblantes images du passé se précisèrent devant ses ‘
-yeux.
 
 Il revécut alors les soirs d'hiver qui suivirent les
 blondes après-midi d'automne où Louise et lui arrivèrent, peu à peu, à tant s'aimer, sous les ombrages
@@ -545,12 +513,10 @@ ne recevraient jamais sa femme dans leur maisonet
 tinrent rigueur plus de deux ans. La naissance de Paul
 — âgé aujourd'hui de cinq ans — les ébranla : leur
 cœur de grands-parents s'attendrit à la longue et tout
-parut oublié.
 Cependant Jean et Louise étaient heureux et sans am-
 bition: lui gagnant près de 1.500 francs, — y compris les
 indemnités et suppléments payés par la ville, — elle
 continuant à aller à son magasin, ils possédaient une
-certaine aisance. Quelles fêtes, quandils se retrouvaient,
 le soir, la journée finie, dans le petit appartement qu'ils
 avaient loué à l'extrémité du faubourg et dont les fené-
 tres donnaient sur la campagne où ils s'étaient connus
@@ -581,7 +547,6 @@ vieux messieurs libidineux de Peyras. Or, malgré les
 fatigues de ses maternités et sa pâleur de chlorose,
 Louise était encore une des plus affriolantes et avait dû,
 maintes fois, subir des propositions honteuses quoique
-aussitôt vertement repoussées.
 
 Si frêle et si mignonnette, elle aurait, désormais, assez
 de soucis, rien qu'à s'occuper du ménage et des enfan-
@@ -610,7 +575,6 @@ de coquetterie, trouvait moyen d'être bien frisottée et
 requinquée, le dimanche, pour se promener, pimpante d
 et triomphante, au bras de son mari en redingote et
 haut de forme, devant ses anciennes compagnes, appariées, elles, à des artisans, et qui la jalousaient beaucoup.
-III É
 Tout en cheminant, Coste, de plus en plus attendri, 3
 se remémorait ainsi ouplutôt, grâce aux prestiges de i
 son imagination, voyait, par scènes incohérentes mais
@@ -637,21 +601,18 @@ rendez-vous qu'il y donnait jadis à Louise, par les soirs
 sans lune et si mystérieux d'automne. Il franchit le pont
 jeté sur le ruisseau presque à sec qui baigne Peyras et
 arriva enfin devant la maison dont il occupait le second
-étage, loué deux cents francs.
 
 Avant de grimper, deux à deux, les marches usées de
 l'escalier, il eut une minute d'hésitation. Il se promit
 d'annoncer sans brusquerie son changement à sa femme.
 Louise avait besoin de ménagements, car elle était de
 nouveau enceinte de sept mois et très fatiguée par une
-grossesse pénible.
 
 Au bruit de ce pas bien connu, Paul et sa petite sœur
 Rose, bébé de trois ans et demi, parurent sur le palier.
 
 Ils passèrent leurs têtes ébouriffées et mutines entre les
 barreaux de la rampe, et s'écrièrent joyeusement
-— V'là p'pa... Bonjour, bonjour, pérotte ! :
 Jean mit un gros baiser sur les joues offertes. Il
 trouva sa femme affalée sur une chaise basse, et se
 plaignant de mal au cœur. Il lembrassa et la regarda
@@ -665,12 +626,10 @@ Sous ce chaud regard d'amour qui l'enveloppait toute,
 la figure souffrante de Louise s'épanouït : elle sourit et
 
 ses gencives apparurent presque aussi blanches que ses
-dents.
 — Mais, — remarqua-t-elle, — il est donc déjà midi c
 que tu sois là... Je ne croyais pas qu'il füt si tard.
 — A peine onze heures, chérie... C'est une surprise. s
 je viens de chez l'inspecteur et, en passant, j'ai voulu
-t'embrasser.
 — Mon bon Jean, murmura-t-elle en souriant. k
 — Tu sais, fit-il, il y a du nouveau... Devine.
 — Quoi donc ?.. je ne sais pas.
@@ -678,7 +637,6 @@ t'embrasser.
 — Une augmentation de traitement ?
 — Non, malheureusement; je crois que j'attendrai
 encore.
-— Alors ?.… alors ?..
 Louise réfléchit, puis comme une enfant gâtée : Re
 — Est-ce que ça me fera plaisir ?
 — Euh! euh! je n'en sais trop rien... couci-couci....
@@ -687,9 +645,7 @@ Elle n'osa comprendre.
 — Mais parle donc, — s'écria-t-elle, impatiente.
 — Eh bien! eh bien ! ma chérie, c'est qu'il va falloir
 emballer tout ça et. partir pour Maleval où je suis
-nommé.
 Il sortit de sa poche sa nomination, la déplia et la lui
-tendit. s
 Louise la parcourut. Ses yeux se remplirent de larmes
 et un profond soupir s'exhala de sa poitrine oppresSec.
 — Ah! mon Dieu ! mon Dieu !.. quitter Peyras et mes
@@ -704,10 +660,8 @@ ne pouvais rester adjoint toute ma vie ?.. Le mieux est
 d'accepter ce poste de village ; d'ailleurs je ne puis faire
 autrement. impossible de refuser ; on ne m'écouterait
 pas... Puis, n'est-ce pas le sûr, le seul moyen de revenir plus tard... dans quelques années, comme directeur à Peyras ?
-Louise pleurait silencieusement.
 Paul et Rose lui grimpèrent sur les genoux, la caressant de leurs menottes en lui disant :
 — Pleure pas, p'tite mère, pleure pas, mérette ché-
-TER
 — Hou ! hou ! le vilain papa, — s'écria soudain Paul,
 tapant du pied et avec une grimace si drôle que Louise
 et Jean sourirent aussitôt.
@@ -724,7 +678,6 @@ rassé des ennuis que j'ai avec le père Largue, depuis
 notre refroidissement... Il devenait par trop embêtant,
 l'animal ; je l'avais constamment sur le dos. Si tu
 l'avais vu tout à l'heure, et comme il était aimable et
-LIN SU
 sucré, le bonhomme !.. Pas de regrets entre nous; aussi ns
 on va se quitter le cœur content et, pour une fois, s #e
 comme les meilleurs amis du monde.
@@ -734,14 +687,12 @@ mais, malgréelle, ses larmes crevèrent.
 Jean,un peuénervé, ne savait plus que faire ni que dire.
 Il devenait gauche ; il eut un signe d'agacement sur le
 visage et se dandina fébrilement sur sa chaise. -
-Louise s'en aperçut.
 — Oh! mon ami, je voudrais être contente: mais
 cela me brise le cœur de falloir quitter Peyras.
 J'étais si heureuse ici. Ah! — ajouta-t-elle avec ce
 dédain qu'ont, pour le village et ses habitants, les
 artisans des petites villes, — que ferai-je au milieu de
 ces paysans méfiants et inconnus avec lesquels nous
-allons vivre.
 — Nete tourmente pas... Au contraire, tu y seras
 plus considérée qu'ici. Toi qui es coquette, — fit-il
 en la taquinant, — tu seras, là-bas, madame gros
@@ -753,7 +704,6 @@ pourquoi ne viendrais-je pas le remplacer comme directeur ?
 Louise sembla un peu réconfortée par les assurances
 de son mari; elle fut sensible aux paroles de Jean, elle
 était femme et sa vanité, mise en jeu, y trouvait déjà
-à glaner. -
 — Mais, — demanda-t-elle, inquiète encore, — vas-tu -
 gagner là-bas comme ici ?... -#
 — A peu près. oui, Ça reviendra au même. J'aurai
@@ -770,7 +720,6 @@ Ensuite, tu sais, il y a le tour du bâton : les cadeaux
 affluent, avec ces gens-là, lorsqu'ils tuent leur cochon,
 entrent leurs récoltes, etc., etc. Va, Louison, nous y se
 serons aussi bien si ce n'est mieux qu'ici où tout est
-horriblement cher. .
 Louise parut rassérénée. Elle souriait maintenant
 aux paroles de son mari.
 — Mais, objecta-t-elle, ça va nous coûter beaucoup,
@@ -808,7 +757,6 @@ yeux de la tête d'expédier nos meubles à Montclapiers,
 puis de les faire charroyer de là à Maleval... Je vais
 donc louer une voiture de déménagement... Allons, les
 amours, au revoir et faites risette à père. Courage,
-chérie.
 Et il redescendit, en sifflotant; Louise souriait de la
 gaieté bon enfant de son « petit homme » et de la mobilité j
 de ses impressions.
@@ -819,7 +767,6 @@ aussi, la journée faite.
 — Mais rien : ils ont fort bien compris les choses.
 Ton père est content même; il se promet d'aller nous
 voir souvent, en se rendant au marché de Montcla- .
-piers.
 — Oh! mon père, fit Louise, je le connais. Voilà au
 moins dix ans qu'il parle de fréquenter le marché de
 Montclapiers. mais l'argent, s'il saït bien le gagner, ne
@@ -827,7 +774,6 @@ s'arrête pas longtemps dans sa poche et alors.
 Jean se mit à l'œuvre après le déjeuner. Quelques
 voisins et amis vinrent l'aider.
 Le surlendemain, ils débarquaient à la gare de Mont-
-clapiers.
 la descente du train, ils s'informèrent. On leur
 indiqua le bureau de la diligence qui va de Montclapiers
 à Lansac et qui, en passant, devait les déposer à Ÿ
@@ -850,7 +796,6 @@ Les enfants, aveuglés par la pluie, les mains gourdes,
 se plaignaient de leurs petites jambes ankylosées par
 une station de plusieurs heures dans la cage étroite
 d'un compartiment de troisième classe, bondé de
-voyageurs.
 Le regard mauvais, Louise bougonnaït sans cesse.
 — Mon Dieu! est-il possible! Va, tu aurais dû
 m'écouter et rester là-bas, chez nous, — sifflait-elle, les.
@@ -858,8 +803,6 @@ dents serrées. — Surtout dans le bel état où je suis.
 y a de quoi prendre le mal de la mort dans cette sale
 boue. Ah! nous étions trop heureux à Peyras.…
 Pauvres petits. ils sont éreintés…
-
-dei
 
 Mais, malgré ces paroles de pitié, elle ne put, tant
 étaient grands son énervement et son impatience, s'em- J
@@ -870,11 +813,8 @@ chaudes larmes et refusa d'avancer.
 petite sotte!.. Et dire que nous pourrions être encore
 là-bas, et si tranquilles. oui, si tranquilles, seigneur
 
-y Jésus!
-
 ces giries, Jean haussa les épaules, agacé à son
 tour; mais il mordit ses lèvres minces et ne répondit
-rien.
 .… Les voici enfin au bureau de la diligence. Mais ils
 ne parviennent pas à se caser dans la patache qui va
 partir. Le conducteur, grognon et ruisselant sous la
@@ -884,10 +824,8 @@ polie de Coste.
 — Arrangez-vous comme vous pourrez, je m'en
 moque. Est-ce que je savais que vous deviez prendre
 la voiture, moi? Au moins, on retient sa place dans la
-journée.
 Mais se ravisant tout à coup, de peur que ces
 voyageurs inconnus ne se rendissent chez le concurrent ?
-en face :
 — Où allez-vous donc, monsieur? dit-il plus aimable.
 
 — À Maleval... Je suis le nouvel instituteur. ‘À
@@ -912,7 +850,6 @@ jambes récalcitrantes; mais, tout au plus assis sur le
 bord de la banquette, ils sont obligés de prendre les
 enfants entre leurs genoux, tandis que les voyageurs
 qu'ils dérangent les regardent comme des intrus et ce
-marronnent.
 — Jésus! si c'est permis, — grommelle une grosse
 mère qui disparaissait derrière un échafaudage de
 paniers et de paquets entassés sur son large giron. —
@@ -981,7 +918,6 @@ Elle tendit l'index vers le trou noir de la rue, car la
 lune venait de se cacher. -
 — Attendez, reprit-elle, le petiot va vous y mener...
 Elle appela :
-— Pierrou, Pierrou !
 Un petit bonhomme de huit ans, les cheveux embroussaillés, apparut dans la lueur rouge des lanternes,
 suçant ses doigts à pleine bouche.
 Coste lui tapota la joue, amicalement. Quelques pas
@@ -996,15 +932,12 @@ Eniin, la lune reparut et la route s'éclaira.
 Le gamin secoua la tête et, de plus belle, continua
 se sucer les doigts. Après quelques pas, il s'arrêta
 devant la porte d'une remise; sur un écriteau, on lisait,
-en lettres boiteuses : d
-AUBERGE
 On loge à pied et à cheval
 Pour chambre, ils eurent une espèce de galetas sordide, avec deux lits. Exténués, le ventre vide, ils s'assirent. Jean essaya de plaisanter. Louise boudait. On
 dévora en silence les victuailles apportées dans un
 
 panier. Rose et Paul furent ensuite couchés et s'endor- Se
 mirent aussitôt d'un sommeil lourd. DEN a)
-peine au lit, Jean voulut embrasser Louise. Celle-ci
 le regarda d'un œil morne, plein de reproche, et ne lui
 rendit pas son baiser. La chandelle soufflée, elle lui
 tourna subitement le dos, le visage vers la ruelle. Bientôt, à son corps secoué, il comprit qu'elle pleurait. Il
@@ -1026,7 +959,6 @@ caution, afin de ne pas troubler le repos de Louise.
 Mais celle-ci avait le sommeil si léger qu'elle entr'ouvrit les yeux, dès qu'elle n'eut plus la sensation confuse que le corps de son mari était étendu près d'elle.
 Elle s'étira et souleva la tête. Ses beaux cheveux
 bruns ruisselèrent sur ses épaules et encadrèrent sa
-figure pâle. :
 Une bande de soleil, aux atomes dansants, égayait
 la chambre et la coupait de guingois.
 
@@ -1035,8 +967,6 @@ oublia les maussaderies de la veille. Il se sentit gai,
 réconforté et repris par son insouciance coutumière.
 
 — Quelle heure est-il? dit Louise en bäillant.
-
-— Bientôt sept heures.
 
 Il s'approcha du lit et donna à sa femme le baiser du
 réveil. Elle le lui rendit affectueusement et lui noua les
@@ -1050,10 +980,8 @@ sa bouderie.
 Il écarta les rideaux eflilochés et d'un blanc jaunâtre
 qui masquaient les vitres. En face de la fenêtre, un mur,
 fraîchement badigeonné au lait de chaux, éclatait de
-soleil.
 
 Louise sourit encore. Jean, de la clarté dans l'âme, se
-mit à fredonner.
 
 — Mais tais-toi, étourdi.. tu vas réveiller les enfants.
 
@@ -1063,7 +991,6 @@ Il s'arrêta de se débarbouiller pour contempler Rose
 et Paul qui dormaient presque enlacés.
 
 — Sont-ils mignons! murmura-t-il. On dirait deux
-anges.
 
 — Tu vas à l'école? dit Louise. Je me lève, attendsmoi.
 — Mais non, repose-toi.. tu es trop fatiguée. Je viendrai vous prendre tout à l'heure, toi et les petits.
@@ -1083,7 +1010,6 @@ l'air d'une brave fille. Tu as vu comme elle s'est offerte,
 hier, pour les déshabiller… é
 
 Elle enveloppa les enfants endormis d'un regard de
-tendresse, Æ
 
 — Ils sont si gentils, si beaux! — reprit-elle avec un
 
@@ -1107,7 +1033,6 @@ du jour triomphal.
 Coste. Tout est gai pour notre bienvenue.
 
 Et il ajouta d'un air grave et avec une émotion sou-
-daine :
 — Puissions-nous avoir des jours heureux, ici !
 Ils suivirent la grand route, le long de laquelle s'éche-
 lonnent les maisons grises et vieilles, quelques-unes
@@ -1132,7 +1057,6 @@ source fraiche, sous un dôme de robustes platanes.
 
 Un perron, orné d'une balustrade en fer, précède la
 mairie. Au coup de marteau, une vieille dame vint
-ouvrir.
 
 — Pardon, madame, — dit Coste en saluant. — Je
 suis le nouvel instituteur et je venais.
@@ -1142,7 +1066,6 @@ gracieusement la vieille dame. J'ai les clefs de votre
 logement et je vais vous les remettre.
 
 Petite, maigre et frétillante, elle s'effaça dans le vestibule. De chaque côté, un escalier tournant conduisait
-au premier étage.
 
 — Voilà votre escalier et voici le mien.
 Elle s'empara d'un trousseau de clefs, accroché au
@@ -1240,13 +1163,11 @@ Rose et de Paul et nous mangerons dans la cuisine.
 Louise s'appuya bientôt au mur, hors d'haleine mais
 toujours souriante. Jean la supplia de se reposer et,
 joyeusement, un fredon aux lèvres, continua seul la
-besogne.
 
 Quelques cris d'enfants qui s'amusaient sur la place,
 devant l'école, frappèrent les oreilles de Coste. Il ne
 s'en préoccupa guêre. Mais au second coup de huit
 heures, il entendit heurter à la porte d'entrée; il
-descendit.
 
 Sur les marches du perron se tenaient à la queue leu
 leu une dizaine d'enfants. Les parents, ayant appris, la ?
@@ -1256,7 +1177,6 @@ Le plus osé, un garçon de douze ans, demanda
 — Est-ce qu'on fait l'école aujourd'hui, n'sieu ?
 Coste hésita d'abord et ne sut que répondre. Du haut 2.
 de l'escalier, la voix de Louise aux écoutes lui cria
-aussitôt : s
 
 — Mais non, renvoie-les.
 
@@ -1276,7 +1196,6 @@ ce que je puis emménager toute seule, moi ? Je me sens
 si peu de courage... Je suis brisée déjà... Non, tuestrop
 
 bête de les garder, ces enfants ; s'ils vont marauder que
-timporte !
 Des pleurs inondèrent ses joues. Jean se fit très doux
 et, la câlinant, il murmura
 — Non, ma bonne Louise, je ne le puis... Cela produirait un mauvais effet et il fauttächer que la première
@@ -1303,12 +1222,8 @@ des coincoins apeurés des canards en émoi.
 L'agacement qu'il éprouvait, par suite des fatigues
 - de la matinée, tomba soudain. Les caresses reposantes
 des petits lui rendirent le calme et son cœur se dilata
-leurs interrogations naïves.
-
-FTP HET
 
 — Dis, papa, c'est des poules à gros bec, les canards,
-affirma Paul.
 — Bien bon, le canard, les poulettes, bégaya Rose,
 déjà gourmande et alléchée.
 
@@ -1319,7 +1234,6 @@ en désordre, et retenant une forte envie de pleurer.
 Ils déjeunèrent de leurs dernières provisions et firent
 leurs comptes. Tous frais payés, il leur restait douze
 francs et quelque menue monnaie. Or, on n'était qu'au
-octobre.
 
 Louise se désola. Comment feraient-ils jusqu'à la fin
 du mois ?
@@ -1370,7 +1284,6 @@ ques mois et nous avons besoin de tous les concours,
 du vôtre surtout.
 Coste protesta de son entier dévouement; mais, à
 part soi, il se promit de ne pas se fourrer dans ce
-guépier.
 
 Il allait se retirer, lorsque M. Rastel lui donna familièrement une tape sur l'épaule.
 
@@ -1428,7 +1341,6 @@ chand de bois même que, d'ordinaire, à la campagne,
 on paie argent sec. Porté à s'exagérer les choses, il
 souffrit en croyant remarquer la mine étonnée de ces
 petits commerçants, des regrattiers plutôt, qui, sans concurrents, allaient chaque jour de grand matin sur leur
-char-à-bancs, acheter eux-mêmes, à Montclapiers, au
 comptant et au fur et à mesure de leurs besoins, les denrées qu'ils détaillaient ensuite aux paysans de Maleval
 
 « Bien sûr, se disait Coste, ils ne s'attendaientpas
@@ -1490,7 +1402,6 @@ Des réflexions grises assaillirent Coste: ilse surprit
 à regretter son départ de Peyras et l'argent dépensé
 pour le déménagement. Il fut obsédé par la pensée des
 cinquante francs prêtés par son collègue et d'une note,
-montant à cent vingt-cinq francs, laissée en souffrance
 chez son tailleur à Peyras, et qu'avant de partirilavait
 promis d'acquitter par mensualités.
 Cependant cet accès de découragement se dissipa vite.
@@ -1504,10 +1415,8 @@ flot et l'on vivrait comme jadis à Peyras.
 — Tiens, — dit-il aussitôt à Louise, — j'oubliais. F L
 Avant de m'occuper d'autre chose, je vais faire ma
 demande d'indemnité... mais d'abord que je t'embrasse,
-chérie. s
 Louise, en train de ranger la batterie de cuisine,
 tendit ses lèvres. Jean s'aperçut alors qu'elle avait les
-yeux rougis.
 k — Tu as pleuré, vilaine ? Qu'as-tu donc petite femmette, — s'écria-t-il d'une voix caressante et en s'empressant auprès d'elle. — Quoi! voilà que tu pleures
 encore! Pourquoi donc, chérie ?.…
 
@@ -1523,7 +1432,6 @@ dans ce trou ou dans tout autre pareil, Dieu sait où, au
 milieu des figures inconnues... Ah! tu es heureux, toi,
 de te trouver bien partout et de te consoler si vite!
 À Elle eut un geste de souffrance, joignit ses mains et
-soupira fortement.
 — Toujours tes papillons noirs, folle adorée !.. Tu
 m'envies, dis-tu, mais c'est que je suis philosophe, moi...
 Le fonctionnaire, c'est l'oiseau sur la branche; ça va
@@ -1537,7 +1445,6 @@ tère. Mais si je suis étourdi, je t'aime bien, va... Pourquoi te désoler 2...
 beaux enfants, et ton mari ?... cela ne vaut-il pas mieux
 que ton pays ?.…..
 4 — Oh! si, si, mon Jean, mais je me sens si triste, si
-j triste.
 Ë — Bah ! on y reviendra plus tard, à Peyras, et comme
 directeur, je te le.
 Rose, suivie de Paul qui riait sournoisement, entra
@@ -1589,7 +1496,6 @@ milieu des figures inconnues... Ah! tu es heureux, toi, ”
 de te trouver bien partout et de te consoler si vite!
 
 Elle eut un geste de souffrance, joignit ses mains et
-soupira fortement.
 
 — Toujours tes papillons noirs, folle adorée !.. Tu
 m'envies, dis-tu, mais c'est que je suis philosophe, moi...
@@ -1604,7 +1510,6 @@ quoi te désoler ?.. n'as-tu pas avec toi tes enfants, nos
 beaux enfants, et ton mari ?.. cela ne vaut-il pas mieux
 que ton pays ?.….
 — Oh! si, si, mon Jean, mais je me sens si triste, si
-triste.
 — Bah! on y reviendra plus tard, à Peyras, et comme <
 directeur, je te le.
 Rose, suivie de Paul qui riait sournoisement, entra .
@@ -1756,7 +1661,6 @@ des sucreries à Rose et à Paul et les emmenait chez
 
 elle; ce qui ravissait surtout Rose, qui aimait tant le
 « moumou blanc et les zoïizeaux zaunes » de made-
-moiselle.
 
 Si Louise parlait de moins en moins de Peyras, elle
 donnait à Jean d'autres soucis. L'époque de sa délivrance approchant, sa fatigue augmentait. A cause de
@@ -1804,7 +1708,6 @@ soins pendant la nuit. Le matin, il se réveillait dispos, : 12 4
 plein de courage, et s'attelait aussitôt à sa rude besogne,
 sans se plaindre, gardant, pourvu que sa Louise lui Ed
 sourit et ses enfants aussi, sa gaieté inaltérable et sa
-précieuse insouciance. ‘ ES RE
 Pourtant, la situation ne s'améliorait guère. La
 vie était aussi chère à Maleval qu'à Peyras. Les cinq
 cents franes qu'il avait en moins lui eussent été Re
@@ -1815,23 +1718,19 @@ retard; mais, comme par le passé, il s'était trouvé sans
 - avance pour le mois à courir, car, fidèle à ses engage-
 ments, il avait envoyé vingt francs — presque tout ce -
 qui lui restait les fournisseurs payés — à son tailleur de
-Peyras. -3
 — Est-ce que tu recevras bientôt de l'argent? — Es.
-demandait Louise, inquiète.
 Et Jean répondait, plein d'assurance, ne füt-ce que
 pour la tranquilliser : "4
 — Oh! tu sais, ils ne se pressent guère d'habitude… 4
 . Ces bureaux, il leur faut des mois et des mois... mais
 ils se décideront à la fin; tiens, quelque chose me dit “4
 qu'avant quinze jours nous palperons quelques beaux “4
-louis jaunes.
 Rien ne vint pourtant. Si, un pli timbré de l'inspection
 académique, lequel fit battre le cœur de Coste. Pris de
 peur à l'idée d'un simple refus de secours, il se cacha
 dans sa classe, avant d'en déchirer les bandes. Un
 voile — peut-être une larme — passa devant ses yeux : “3
 le papier ne contenait que ces mots : DE.
-Aucun crédit m'étant depuis deux ans inscrit au
 budget départemental pour frais de déplacement, on ne % F
 
 pouvait ni accueillir ni méme s'expliquer la demande
@@ -1840,7 +1739,6 @@ de secours faite par M. l'instituteur de Maleoal.
 - — Que va dire Louise?
 Dans l'état où se trouvait sa femme, il décida de lui
 cacher sa déconvenue; il éluderait toute question ou
-répondrait évasivement.
 Néanmoins, il se refusait à croire l'avenir compromis;
 il se livra à des calculs, à des projets que son cœur
 excellent faisait naître et approuvait, mais qui n'étaient
@@ -1856,7 +1754,6 @@ tentatives chez les huissiers, avoués ou notaires du
 chef-lieu ou des environs.
 Coste ne pensait, en effet, qu'à une chose : c'est qu'il
 Jui faudrait plus d'argent maintenant; ses charges
-allaient augmenter; Louise serait incapable d'allaiter -
 l'enfant qui naïîtrait; alors, c'était son devoir à lui de
 se débrouiller, de travailler double; et il s'illusionnaiït,
 espérant encore qu'avec du courage et de la persévé-
@@ -1876,7 +1773,6 @@ s'étaient entassées chez lui. Pour ne pas rester entièrement sans le sou, il 
 pour les autres, forcément. Son bon cœur l'empêcha de
 récriminer contre le sort. Il se mit à aimer et à bercer
 les deux bessonnes, cherchant un moyen de sortir
-d'embarras.
 Il écrivit à des amis, sollicitant un emprunt. Tous
 alléguèrent divers prétextes pour refuser de lui venir
 en aide. Nouvelles désillusions! Mais son dévouement
@@ -1943,7 +1839,6 @@ leur ferait, quelque dépit qu'il en eût, bon accueil et
 d'ailleurs, sa gêne à son beau-père et à sa belle-mère.
 Ils lui en auraient voulu et lui auraient amèrement
 reproché sa misère, inexplicable pour eux, comme une
-tromperie odieuse.
 Et il sentait son cœur se serrer jusqu'à lui faire mal.
 Une lettre, timbrée de Peyras, lui parvint enfin. Jean
 poussa un soupir de soulagement après lavoir lue.
@@ -1967,7 +1862,6 @@ table cause et elle regretta fort de ne point pouvoir leur
 envoyer l'argent nécessaire. Mais elle n'insista pas
 ‘ Jean endormit son chagrin par la promesse de les en- RE
 voyer, elle et les pétits, passer quinze jours à Peyras,
-au printemps prochain.
 — Vois-tu, — lui ditil pour répondre à l'éternelle
 objection du manque d'argent, — ce sera un moyen
 d'économiser. Le voyage payé, vous n'aurez rien à dé-
@@ -1990,7 +1884,6 @@ l'instituteur, pour être un monsieur, &« ne faisait guère
 bien les choses » : ni fête, ni diner, une simple collation,
 et encore ! c'était maigre ! Et on se moqua, entre soi,
 de la gène de ce fonctionnaire en redingote, de cet
-étranger.
 Quinze jours plus tard, Coste reçut une seconde lettre :
 elle était de sa mère, veuve depuis deux ans et qui
 vivait seule dans son village. Par la main d'un voisin
@@ -2096,7 +1989,6 @@ la ruine. Jadis, durant les quelques jours de vacances
 qu'elle et son mari, après le raccommodement,passaient
 auprès d'eux, ils affectaient de la traiter cordialement € 4
 pour tromper Jean, mais, le cas échéant, une sourde Re.
-_rancune apparaissait, montait à leurs visages durs, 4
 presque haineux, et, peu sincères, ils ne lui ménageaient
 guère les allusions blessantes. Et Louise se les rappe-
 lait encore, avec amértume, ces heures écoulées auprès Te
@@ -2132,7 +2024,6 @@ on ne trouvait pas d'argent, on pourrait vendre la terre
 et se délivrer de cet arriéré si lourd à trainer et qui
 pesait sur l'existence de Jean.
 
-FER RL
 Louise poussait journellement son mari à faire appel
 à la bourse de Caussette. Mais Jean hésitait, peu ras- .
 suré, se demandant comment sa mère répondrait à sa
@@ -2215,7 +2106,6 @@ nera la force de faire un sacrifice. ‘à
 d'agir dès le lendemain.
 Plusieurs jours s'écoulèrent et Jean hésitait encore. 4)
 . — J'attends un moment propice, disait-il à sa femme.
-Va, j'agirai… ,
 Mais, en présence de l'aveugle, son indécision le
 paralysait et il se sentait faible comme un enfant.
 ” Un soir, pourtant, comme il rentrait d'une course où
@@ -2232,7 +2122,6 @@ le cœur serré, pâle, mais résolu. Fi
 — Ma mère, j'ai à vous parler, — dit-il à l'aveugle qui
 se disposait à gagner son lit.
 Caussette tressaillit à la voix brève de son fils et
- maugréa.
 
 Elle et Jean restèrent seuls en présence, dans la cuisine. Le feu du fourneau, alimenté au bois, s'éteignait.
 Une chandelle de suif jaune achevait de se consumer è Œ
@@ -2246,7 +2135,6 @@ les ténèbres.
 Jean ne savait par quoi commencer. L'esprit flottant .
 il se leva, tisonna le feu, y jeta une bûche et rapprocha
 sa chaise, le dos gelé, de cœur battant à grands
-coups.
 Un silence pénible plana, tandis que les clameurs des
 rafales hurlaient dans la vallée et dans les combes voisines, telle l'approche d'une foule de géants en marche. Fee
 Tout tremblait.
@@ -2286,8 +2174,6 @@ moi, j'ai dû m'endetter pour que mes enfants et ma
 femme malade ne souffrent pas, pour venir à Maleval...
 Caussette sursauta et ouvrit la bouche pour l'inter-
 
-s rompre.
-
 — Ne protestez pas, — s'écria Jean d'une voix ferme,
 en voyant combien peu ses paroles attendrissaient sa
 mère.— Je sais ce que vous allez me dire... Je devais
@@ -2307,7 +2193,6 @@ quelque argent et.
 C'est pas vrai que tu as des dettes... non, non! ; k
 
 Et, mauvaise, avec de la haïne sur son visage tout
-ridé
 — C'est encore ta femme qui te pousse, pour avoir de
 
 quoi se fignoler et se mettre de beaux afliquets sur ses:
@@ -2337,10 +2222,8 @@ vous informer auprès des fournisseurs et ils vous diront
 ce que je leur dois.
 
 — Oui, après t'être entendu avec eux pour me
-dépouiller, brigand.
 — Mère, je vous en prie, — supplia-t-il, avec des lar-
 mes dans la voix ; — je suis si malheureux et si vous y
-voyiez.…
 
 — Si j'y voyais! je ne t''embêterais pas longtemps,
 va ! Jen'enirais chez nous, gagner ma vie, ingrat.. Oh!
@@ -2411,7 +2294,6 @@ s'éteindre, — répond enfin Jean qui, heureusement,
 tourne le dos à sa mère et ne remarque pas le trouble
 ni l'épouvantable geste par lequel se trahit l'horrible
 pensée de l'aveugle.
-— Ah! — soupire Caussette, soulagée.
 Jean s'est rassis. Méfiante, l'aveugle pose sur lui ses
 regards blancs et fixes qui semblent voir. La dureté de
 ses traits, éclairés de nouveau, paraît s'accroître. Une
@@ -2446,7 +2328,6 @@ avec ta sans-le-sou, si tu veux... Ah! tes pauvres enfants!
 vous ne leur laisserez pas seulement une chemise pour
 se couvrir. oui, vous leur mangerez le vert et le sec,
 dépensiers, sans-soucis.. Je n'ai rien et je ne vendrai
-rien. Non, non, non!
 - Précipitamment, au risque de se cogner aux meubles,
 
 elle regagne sa chambre et, la porte fermée, on l'entend
@@ -2456,11 +2337,9 @@ petit feu... Vendre ma terre! oui, pour m'envoyer
 l'hôpital ensuite. Cette vilaine femme, comme elle me
 l'a changé, mon enfant ! Jean lui qui était si doux et si
 bon autrefois. Ah ! il l'a connue pour notre malheur
-tous !.… 3
 Jean était resté auprès du feu, tête basse, l'œil sec.
 Il se leva enfin.
 — Elle a refusé, n'est-ce pas? — dit Louise, en le
-voyant entrer.
 — Tu nous a entendus ? — demanda Jean anxieux et
 très pâle.
 — J'ai entendu crier, mais avec ce vent... Que t'a-t-elle
@@ -2470,7 +2349,6 @@ avec un grand découragement.
 — Pourtant, elle en a de l'argent; elle rôde assez
 - autour de moi, quand je rentre dans sa chambre... Si
 je puis y mettre la main dessus, elle criera, mais tant
-pis.
 — Non, Louise, tu ne feras pas cela... Ne parle pas
 - ainsi, j'en souffre trop... D'ailleurs, elle ne peut pas
 avoir une grosse somme... Seule, la vente de la terre
@@ -2478,7 +2356,6 @@ nous tirerait d'affaire et elle ne veut pas, elle ne voudra
 jamais.
 — Alors, que ferons-nous ? — sanglota Louise. Jean
 eut un geste vague de désespérance et souflla la
-lumière.
 Dans la chambre voisine, l'aveugle couchée continuait
 à se lamenter ; mais sa voix était couverte par les mille
 voix géantes du vent s'engouffrant aux cavités des rues
@@ -2487,9 +2364,7 @@ qui grondaient et sifflaient, ébranlant les toits qui
 râlaient, affolant les girouettes qui grinçaient, s'aigusant aux fentes des portes et des fenêtres qui pantelaient
 et craquaient, concert d'épouvante, bruits lugubres, È
 sonorités étranges, hurlements de bêtes invisibles et
-démuselées. -
 Du temps passa. Toujours mêmes ennuis, toujours
-mêmes soucis. -
 Chaque premier jeudi du mois, Coste, pour écono-.
 miser les trente sous que coûtait la diligence, se rendait
 maintenant à pied chez le percepteur du canton, faisant ‘}
@@ -2546,7 +2421,6 @@ volonté, en dépit de son travail acharné dans la maison,
 ses charges étaient trop nombreuses, trop lourdes, et
 ses dépenses, hélas! ne diminuaient point.
 
-PROS CESR
 cause de Louise éternellement souflrante, de sa Les
 mère aveugle et encombrante, des deux bessonnes sur- ‘4
 tout, il était forcé de recourir, au moins deux ou trois “4
@@ -2626,7 +2500,6 @@ rendaient de jour en jour plus méfiante. Elle redoutait
 d'être volée, surtout par sa bru « capable, pensait-elle, ‘à
 de toutes les coquineries ». Louise faisait-elle quelques
 pas dans la cuisine, Caussette se levait aussitôt, É
-oreille aux écoutes, tressaillant au moindre craque- He
 ment du parquet ou des meubles. Elle portait tou
 jours les clefs de sa malle dans une poche dissi- E
 mulée sous sa jupe, tâtant souvent d'un geste machinal
@@ -2666,7 +2539,6 @@ Parfois Jean, apparaissant tout d'un coup, lui disait s
 avec le ton humble de l'enfant coupable
 — Mère, il fait si bon au soleil; pourquoi ne descen-
 dez-vous pas? Vous seriez si bien, assise sur le
-perron.
 Caussette répondait d'une voix pateline à dessein et
 en grimaçant un sourire
 — Non, mon enfant; les jambes me font mal de mes
@@ -2695,7 +2567,6 @@ et, tristement, répondait :
 chagrins et du bobo, depuis qu'elle ne peut plus y voir.
 — Et qui lui a mis ce blanc dans les yeux ?— demandait Paul.
 — C'est parce qu'elle est vieille, bien vieille, et qu'elle
-a beaucoup travaillé.
 — Alors, toi et mérette, quand vous serez vieux, vous
 aurez du blanc aux yeux ? vous serez méchants?
 — Mais oui, Paulou... Chut, il ne faut pas dire cela...
@@ -2709,7 +2580,6 @@ Paul lui dire, d'autres fois
 — Dis, papa, pourquoi ne m'achètes-tu plus de belles
 bottines? Vois, mes souliers et ceux de sœurette sont
 laids et troués comme ceux des petits pauvres; les
-engelures me démangent.
 Jean, dévorant un sanglot, se détournait.
 — Le mois prochain, — répondait-il évasivement, — J
 bientôt, si vous êtes bien sages, mes chéris.
@@ -2770,7 +2640,6 @@ l : à se renvoyer d'une voix basse, mais intelligible, plus
 d'une réflexion désobligeante, prélude d'un éclat pro-
 chain. Jean prévoyait, redoutait entre sa mère et sa
 femme quelque scène pénible, de jour en jour inévitable, ,
-imminente.
 Aux premiers jours de mars, Jean, inquiet pour Louise,
 la conduisit chez un docteur de Montclapiers. Pour
 parer à la dépense, il avait prélevé trente francs sur son .
@@ -2782,31 +2651,24 @@ ments, un repos complet, une alimentation choisie, bref ,
 tout un traitement dispendieux.
 . Coste laissa dix francs pour la consultation et autant
 chez un pharmacien pour le prix des médicaments
-rdonnés.
 . Pendant que Louise l'attendait au bureau de la dilience, Jean s'en alla faire quelques petits achats en
 ille. Comme il revenait soucieux, supputant l'argent
 épensé ce jour-là et se livrant à ses éternels calculs,
 fut abordé par un jeune homme qui descendait le
-oulevard.
 — Pardon, je ne me trompe pas... monsieur Coste ?
 — Tiens, c'est vous, Darbel!
 Jean venait de reconnaître un de ses anciens élèves
 e Peyras. La mise soignée, presque élégante du jeune
 omme lui rappela aussitôt son pantalon élimé par le
 as, sa redingote luisante aux coudes et aux omolates. Ses pommettes se colorèrent d'une rougeur de
-onte.
 — Et madame Coste et les enfants ?.. ils vont bien ?.…
 — Les enfants, oui... mais non ma femme, Nous
 enons de chez le médecin.
-— Ah! Tant pis !.….
 Coste détourna la conversation.
 — Et vous, Darbel, que faites-vous ici? Je vous sh
 oyais encore à Peyras.
 — Non, j'ai eu de l'avancement ; je suis ici commis
-télégraphe, depuis quelques mois.
 — Mes félicitations. Et êtes-vous bien payé?
-— Couci-couci, quinze cents francs actuellement ;
-is, chaque trois ans, j'aurai trois cents francs d'augentation-jusqu'à deux mille sept cents.
 Quand ils se séparèrent, Coste songea mélancoliqueent à cet ancien élève, non certes des plusintelligents,
 qui, à l'âge de vingt-cinq ans, gagnerait dix-huit cents
 francs, pendant que lui, instituteur depuis dix ans, avait
@@ -2819,11 +2681,9 @@ printemps, se pavanaient dans leurs voitures et frô-
 laient sa misère, de ces riches, indifférents à la pau-« vreté de tant de milliers d'êtres, leurs semblables, de“
 ces favorisés, dont une seule prodigalité aurait sufli
 pour lui assurer la tranquillité, qu'il avait perdue.
-XI
 la suite de ce voyage à Montclapiers, Coste eut
 subir de plus belle les allusions de certains fournisseurs
 peu satisfaits de la petite somme qu'il leur avait envoyée par la femme de ménage, aux premiers jours du
-mois.
 Bien souvent, la pensée d'un emprunt quelconque
 de quoi faire taire ces gens-là — le hantait. Prompt
 s'illusionner, malgré ses déboires, il s'imaginait que;
@@ -2843,7 +2703,6 @@ plus rémunérateur ou une promotion.
 
 — Oui, ces maudites dettes causent seules tout l'ennui, —soupirait-il souvent; — que je trouve une avance
 pour quelques années et, une fois le passé liquidé, tout
-s'arrangera.
 
 De nouveau, il passa en revue la liste des amis et
 connaissances à qui il pourrait s'adresser. Il écrivit
@@ -2866,13 +2725,10 @@ Or, un jour, en jetant distraitement les yeux sur les
 
 nnonces d'un journal, il tressaillit, hypnotisé par ces
 
-ots en petites capitales
-PRÊTS SUR SIGNATURE
 puis cette explication
 iscrétion, intérét légal. A long terme : on accorde
 
 lusieurs années ou on accepte le remboursement par
-ensualités, au choix. Écrire : M. X***, numéro***,
 
 ue”””, à Paris. Timbre pour réponse. On traite de pré-
 érence avec MM. les officiers et fonctionnaires.
@@ -2916,7 +2772,6 @@ sèche et crispée serrait plus fortement les clefs
 enfouies dans sa poche, et derrière ses prunel es
 blanches, tournées vers son fils et opiniâtrement fixes
 on sentait comme la tension d'un regard aigu, inq niet
-æ Cie
 
 intérieur, qui voulait voir et en vain faisait eflort pour Fe
 percer le voile opaque s'étendant sur les yeux. Jean ne
@@ -2976,7 +2831,6 @@ accolade et de la joie extraordinaire de Jean. Quant
 à lui, descendu maintenant dans sa classe vide
 d'élèves à cette heure, il y chantait à tue-tête comme un
 cantique de délivrance. .
-Huit jours, quinze jours s'écoulèrent. Rien. Pourtant
 le ravissement et la belle confiance de Jean persistèrent. : M
 — Bah! disait-il, ça viendra. Une enquête discrète, à
 ça demande du temps.
@@ -3040,7 +2894,6 @@ veler, Louise ménagea ses médicaments qui coûtaient
 si cher et qui représentaient pour elle la santé. Jean sew
 k consumait de regret.
 — C'est ma faute, pensait-il. Je n'aurais pas dû être
-si bête.
 Oui, pas ça dans la maison et cependant il allait lui
 falloir de l'argent. N'était-il pas convoqué pour une
 conférence pédagogique qui devait réunir au cheflieu.
@@ -3095,14 +2948,12 @@ affreusement. Comme à travers un voile, il reconnaît le
 père Largue, son ancien directeur de Peyras. Horrible-
 ment gêné, il craint d'être deviné.
 — Mais, d'où venez-vous donc? Vous paraissez
-malade.
 
 Jean eut la force de mentir. -
 
 — Je me suis buté contre un caillou, dit-il, et le pied
 me fait très mal... oui, très mal. £ 4
 
-— Quelque cor douloureux, hé ! hé!
 M. Largue riota. Cette attitude, sembla-t-il à Jéan,
 était odieuse et méchante. Sûr que le directeur avait
 compris, Jean aurait voulu s'engloutir dans le sol.
@@ -3120,13 +2971,11 @@ que nous nous étions quittés bons amis !..
 Jean courait presque dans les rues, sans but, sans
 
 direction, pour fuir. Affolé, les tempes battantes, il ré-
-pétait douloureusement
 en regardant mon pantalon usé, mes souliers éculés. Il
 dira à tous, là-bas, à Peyras, qu'il m'a vu aller au mont- E
 de-piété.. Il le dira à l'inspecteur. tous mes chefs sau
 
 ront que je suis misérable... mon Dieu! mon Dieu!
-quelle honte !.… quelle honte !..
 
 Avéc ses idées étroites, son amour-propre de petit
 
@@ -3146,7 +2995,6 @@ mais ne devant rien à personne et ignorant l'âpreté de
 toutes les hontes bues.
 
 Mais au souvenir des siens, sa rage tomba. Un grand
-abattement succéda. Mélancolique, Jean erra plusieurs
 heures dans les ruelles solitaires d'un faubourg s'ouvrant sur la rase campagne, toute verdoyante au soleil,
 
 où il était parvenu sans savoir comment.
@@ -3167,7 +3015,6 @@ qu'il avait éprouvée lors de son dernier voyage, étrei-
 gnit tout d'un coup le cœur de Coste, encore plus âprement. Le triomphe insolent des parvenus qui défilaient
 ? sous ses yeux, jouissant de la vie et de la lumière,
 souffletait sa misère.
-KTIT AE 14
 Par discrétion et par goût, l'institutrice, mademoiselle
 Bonniol, continuait de vivre à l'écart et fréquentait peu
 chez les Coste. Ceux-ci, d'ailleurs, de crainte qu'elle ne
@@ -3219,7 +3066,6 @@ vieille demoiselle si discrète et si proprette ; elle, par
 pitié pour ce grand garçon très doux, chargé de famille,
 sans cesse besognant après sa classe aux soins du mé-
 nage et remplaçant sa femme malade, sans jamais se
-plaindre.
 Mademoiselle Bonniol ne se doutait pas de la misère
 profonde où se débattait Coste. Elle le croyait seulement
 gêné, ce qui, d'ailleurs, ne la surprenait guère, car si
@@ -3361,7 +3207,6 @@ désuets, des chaussures longtemps portées et, à les er
 un peu d'assurance. Il voudrait les savoir tous aussi ‘#
 dénués que lui. Au cours de ses investigations, ses
 yeux s'arrêtent sur les bottines éculées d'un stagiaire.
-Celui-ci paraît d'ailleurs n'en avoir cure. Petit, pâle, 1
 assez joli garçon, l'air et la voix d'un gavroche, il pérore
 dans les groupes. Il est instituteur-adjoint à l'école du
 canton et répond au nom de Bertrand. e
@@ -3443,7 +3288,6 @@ et vous verrez plus tard, les jeunes... De belles promesses, oui; puis, entre te
 lard rance, des couennes, une douzaine d'œufs parfois
 is, couvés, dont on se débarrasse, ou bien une panerée
 d'amandes ou de raisins... Et la circulaire ministé-
-rielle! —
 — Oh! les circulaires, — riposta Bertrand avec un
 geste de gavroche, — si jamais j'échoue dans un village,
 pourvu qu'on apporte, j'accepterai des deux mains, et
@@ -3473,7 +3317,6 @@ situation, j'ai devant moi cinq ou six ans comme sta-
 -  giaire à quarante-neuf sous par jour, oui, 2 francs
 pas plus! Ah! malheur! ils mériteraient que nous €
 fissions la classe en savates et en veston troué aux
-coudes !.…
 . Cette boutade souleva un long éclat de rire. Coste,
 lui, écoutait, intéressé, quoique n'osant rien dire, pour
 ne pas attirer sur soi l'attention de ses collègues ; mais,
@@ -3518,14 +3361,11 @@ ton d'un charlatan dégoisant son boniment, avec les
 
 grimaces d'un clown de foire paradant à l'entrée de sa
 baraque pour l'émerveillement des badauds, il pour-
-$ suivait
 — Si quelqu'un parmi vous connaît ce phénix, cet
 oiseau rare, qu'on me l'adresse. Je ne suis pas regardant. Que la future soit bancale, borgne, tordue,
 
 bossue, vieille à n'avoir plus de dents, même le
 chef branlant, peu m'en chaut. Le magot, c'est l'es-
-
-sentiel.
 
 Les rires redoublèrent. Bertrand triomphait, redres-
 sant sa jolie tête à l'évent. Cependant, les institutrices
@@ -3612,10 +3452,8 @@ une attitude quasi-officielle, dominatrice, pontifiant et
 très poseur même, de l'avis de ses subordonnés. Dis-
 traitement, sa main fine et ornée d'une bague promenait
 dans la moustache et dans la barbe un peigne en écaille
-blonde.
 Enfin il laissa, d'un air satisfait, tomber de sa bouche
 - très rouge, bien meublée de dents blanches, ces simples
-mots
 — Messieurs, je déclare la séance ouverte.
 - On élut, à mains levées, un vice-président et un secré-
 taire. Après les préliminaires habituels, l'inspecteur,
@@ -3683,13 +3521,11 @@ s'en faut qu'il ne s'enfuie, apeuré, trop malheureux.
 — Allons, monsieur Coste, veuillez commencer... Vous
 avez à faire une leçon de morale au cours moyen sur
 nos devoirs de justice et de charité... Nous vous écou- à
-tons.
 
 Dérision ! parler de justice et de charité, quand on
 est soi-même si misérable ! sa gorge se serre, sa bouche
 manque de salive. Comme dans un éclair, il pense aux
 siens et alors, dans un effort prodigieux, il essaie d'assembler les quelques idées qui tourbillonnent, insaisissables, dans son cerveau, telles des feuilles dans un
-vent d'ouragan.
 parle enfin, il bafouille plutôt, ce pendant que
 l'inspecteur, impatienté à la longue, et ignorant la vie »
 de cebrave garçon, se penche sur son carnet, et rapidement y crayonne quelque chose, une appréciation sévère
@@ -3717,7 +3553,6 @@ de ses souffrances passées et présentes, de quoi parler
 cœur douloureux dans cette simple leçon d'école pri-
 moire, à ce qu'il a lu dans les livres scolaires qu'il fait
 toujours appel, avec des lacunes et de brusques ar-
-rêts.
 le voir si malheureux, l'inspecteur a cependant des
 paroles de pitié, d'encouragement.
 — Voyons, mon ami, — dit-il avec bienveillance, —
@@ -3743,7 +3578,6 @@ femme malade... Je travaille comme un nègre après ma
 classe, sans une heure de loisir et de calme étude...
 
 Je meurs de honte! Que voulez-vous donc que je
-fasse!
 
 Il poursuit cependant, car le mieux est de dévorer sa
 souffrance. L'âme veule, il cherche à citer des exemples
@@ -3767,7 +3601,6 @@ loin, très loin, le besoin de pleurer, de pleurer sans
 cesse pour décharger son cœur appesanti de douleur,
 pour panser avec le baume des larmes la blessure saignante faite à son amour-propre.
 
-ÉURNER
 Non sans quelque compassion, l'inspecteur résuma
 l'opinion générale en disant : 5 TS
 — M. Coste a été trop ému de se trouver pour la
@@ -3775,7 +3608,6 @@ k première fois au milieu de nous. C'est pourquoi il a
 droit à toute notre indulgence. Cependant j'ai le devoir
 de vous dire que j'instituteur doit s'efforcer de surmonter ces faiblesses bien explicables et bien excusables Re
 parfois, mais qui peuvent, en se renouvelant, lui porter
-préjudice.
 Aucun instituteur n'eut le courage de faire la critique
 trop facile d'une pareille lecon. A voir Coste si humble, 2
 si effacé et si abattu, tous étaient encore émus et ils s
@@ -3798,13 +3630,11 @@ moire qui doit retenir quelques préceptes plus ou moins “à
 significatifs, mais c'est au cœur qu'il faut frapper et F4
 arriver. Vous n'aurez rien fait, si le cœur de l'enfant n'a É-
 pas tressailli, s'il ne s'est pas senti ému... +20
-Suivirent d'autres conseils, devenus banals à force
 d'être répétés par les pédagogues, et qui ne valent
 vraiment que s'ils sont mis en œuvre, sous les yeux de
 l'instituteur, non par de vaines paroles, mais par un
 éducateur de talent qui agit. Tâche difficile et délicate
 entre toutes, car elle demande au maître un peu de son k
-âme. ; É
 —La séance est levée, messieurs, dit l'inspecteur.
 Comme il est à peine onze heures, je vous prie d'être là
 à une heure précise. Vous pourrez ainsi partir plus tôt
@@ -3816,14 +3646,12 @@ retint et eut encore quelques bonnes paroles pour lui.
 l'émotion m'a coupé bras et jambes. Je ne savais plus
 ce que je disais.
 Son amour-propre l'empècha de donner d'autres
-excuses.
 — Vous täâcherez de faire mieux, une autre fois.
 Allons, du courage... Avant peu, j'irai vous voir dans
 votre classe, — conclut l'inspecteur. _
 - Cependant, Coste parti, il crut de son devoir de
 consigner ainsi sur son carnet l'impression produite
 Paraît être un instituteur des plus médiocres. A voir
-prochainement. Tenue négligée.
 Et comme le directeur de l'école du canton Faccom- si
 pagnait, il lui demanda des renseignements sur Coste.
 — C'est la première fois, — répondit le directeur, —
@@ -3866,14 +3694,12 @@ proie à cette éternelle misère dont pâtissaient les siens.
 Pauvre loque humaine, il ruminait ces décourageantes
 pensées et suivait machinalement ses collègues, sans j
 plus songer à son pantalon élimé ni à ses souliers
-avachis.
 La séance du soir fut très courte. Peu d'instituteurs
 avaient traité le sujet proposé, ce dont se fâcha presque
 l'inspecteur, qui les menaça de rendre obligatoire pour
 
 tous ce travail jusqu'alors facultatif. Après quoi, avant
 de lever la séance, il leur adressa cette dernière recom-
-mandation.
 — Vous savez, messieurs, qu'on se plaint partout du
 recrutement de plus en plus difficile des écoles normales. Chaque année, le nombre des candidats diminue.
 Aussi, M. l'inspecteur d'académie, qui déplore cet état
@@ -3896,7 +3722,6 @@ leurs sans enthousiasme, plutôt même très froidement.
 était tout au plus trois heures de relevée. Dans les
 ruës rayonnait un tiède soleil printanier. Le ciel était
 d'une sérénité exquise, aussi doux qu'un regard d'en-
-fant.
 - La plupart des institutrices se répandirent sur les pro-
 menades et aux environs de la petite ville. Les arbres
 parés de la soie tendre des jeunes feuillées commen- -
@@ -3922,7 +3747,6 @@ fichu le camp. On est à ia fin du mois, n'est-ce pas !
 ma vieille ? Aussi, on ne se paie plus qu'une consom
 mation d'air pur... C'est meilleur pour la santé. Bon-
 jour à tous, nous allons tricoter des guibolles, vers
-là-bas.
 Il s'éloigna, tandis qu'on riait. - Ve
 Aucafé, comme tout à l'heure pendant le déjeuner, les .
 mêmes causeries et plaintes recommencèrent, tant
@@ -3988,7 +3812,6 @@ vers trente ans seulement, alors qu'il en aura le double
 
 autre part? Ce serait par trop bête. Non, mieux vaudrait
 aller casser les cailloux sur les routes! Et que de
-servilités!.. Ah si j'avais su!
 
 — C'est vrai, mais le vin est tiré, il faut le boire.
 
@@ -3997,7 +3820,6 @@ bien ceci : moins on aura de candidats aux écoles
 normales, mieux Çça vaudra pour nous. Le jour où les
 écoles normales seront presque entièrement délaissées,
 on sera bien obligé de penser à nous, d'améliorer nos
-traitements. ?
 
 — En attendant, tant pis pour nous qui y sommes.
 
@@ -4007,7 +3829,6 @@ toutes ces prétendues améliorations.
 
 — Mais, — objecta l'un d'eux, — nous sommes du
 moins fonctionnaires de l'État maintenant et c'est
-quelque chose.
 
 — La belle jambe que ça nous fait! Comment vous
 coupez dans ces ponts-là, vous ? En êtes-vous moins
@@ -4062,7 +3883,6 @@ moins embêté qu'aujourd'hui, plus libre dans sa vie
 et dans sa classe, il vivait presque en paysan. Sonneur de cloches, chantre à l'église, fossoyeur même, .
 quêtant de porte en porte des cadeaux, sorte de dime
 
-DES RSS RE
 volontaire, quelle dignité pouvait-il avoir, nous objectet-on? Soit: mais du moins tout cela augmentait son
 mince traitement, faisait bouillir son pot et il était sans
 souci du lendemain, paysan, je le répète, vivant au
@@ -4102,7 +3922,6 @@ n'aurais-je pas de beaux enfants? Est-il juste qu'il
 souffre de ne pas avoir su calculer, d'avoir écouté son
 
 cœur, et méprisé l'argent qui prend plus tard sur lui sa
-terrible revanche ?
 
 Coste s'arrêta. Sa voix, en prononçant ces derniers
 mots, tremblait douloureusement comme félée par le
@@ -4146,7 +3965,6 @@ vacances pour se promener aux frais du gouvernement.
 
 — Bien heureux — conclut un collègue de Coste — ‘
 quand ïls ne nous traitent pas de fainéants aux 5 4
-mains blanches.
 Un découragement immense se lisait dans l'attitude Fe
 de Costé, assourdissait sa voix tout à l'heure vibrante
 et qui désormais arrivait lointaine. Ilse tut et un silence
@@ -4227,13 +4045,11 @@ chamaillées et il les avait laissées, calmes en apparence
 instances et pour avoir la paix, lui avait promis de descendre un moment sur le perron chauffé par les rayons
 clairs du soleil.
 Une demi-heure s'écoula après le départ de Jean et
-117 VIL
 
 des petits. Louise ravaudait des bas près de la fenêtre,
 au soleil. Caussette, immobile, était assise non loin du
 
 feu presque éteint, près de la porte de sa chambre, en
-sentinelle.
 
 Le silence régnait; on n'entendait que le tic-tac du
 réveil posé sur un coin de la cheminée et au dehors les
@@ -4256,7 +4072,6 @@ Paveugle. Celle-ci, toujours immobile, les paupières
 baïssées, paraît dormir. Mais à un mouvement de
 - Louise, ses prunelles blanches luisent au fond des orbites caves ; cependant ses traits sont détendus, moins « durs que d'habitude.
 — La belle journée! — murmura Lôuise comme pour
-entrer en conversation. e
 
 Caussette ne répond pas. Louise reprend d'une voix
 calme, conciliante, s'adressant à sa belle-mère :
@@ -4266,7 +4081,6 @@ sur le perron ? Il doit y faire si bon. k
 Mëmemutisme chez l'aveugle qui clôt ses paupières, E.
 _dédaigneuse à ces avances.
 Louise insiste. Brusquement, avec son air hargneux, x s.
-Caussette riposte : à e
 — Non, je n'ai pas envie de descendre. Ca ne me
 plaît pas. . -
 — Comme vous le voudrez; ça m'est fort égal, — s4
@@ -4277,7 +4091,6 @@ pourquoi sa belle-mère s'obstine à demeurer là ; elle
 s'impatiente et, l'air mauvais à son tour, elle grogne."
 De nouveau, un grand silence se fait.
 Une quinte de toux secoue soudain le corps de Caus- 147
-sette.
 — Voulez-vous de la tisane ? dit Louise derechef apai-
 — Non, merci, je n'en ai pas besoin.
 — Comme il vous plaira.
@@ -4285,7 +4098,6 @@ Caussette tousse encore, puis se plaint et frissonne
 — Ah ! geint-elle, quel malheur d'être vieille et de ne
 - plus y voir. Jésus, mon Dieu! Ma pauvre gorge!
 ajoute-t-elle d'une voix saccadée, et reprise par une toux : F4
-sèche.
 — Si c'est possible de pleurnicher ainsi pour un sim- à
 ple rhume, murmure Louise, agacée et s'agitant sur sa
 chaise qui craquite.
@@ -4324,7 +4136,6 @@ fils.
 vendrai pas ma terre... Ah! il te faut de l'argent pour
 j soigner ton joli museau... On travaille alors, feignante
 on ne fait pas la malade pour se payer de bonnes tranches de gigot. Tu nous as ruinés, tu nous mines, pares- -
-seuse, paresseuse ! propre à rien !… K
 — Oh! mon Dieu! — s'exclame Louise vibrante de
 colère. — Être traitée ainsi! ma mère! ma mère! je
 veux m'en aller, je veux m'en aller. ta
@@ -4354,7 +4165,6 @@ s'affale tout d'un coup sur une chaise, sanglotant éper- È
 dument, le cœur battant à se rompre, presque défaillante. Dans sa chambre, Caussette ne remue point;
 assise sur sa malle, les dents claquant de peur et de
 froid, elle redoute que sa belle-fille ne mette sa menace
-à exécution.
 — Seigneur Jésus ! soupire-t-elle ; elle en est capable,
 elle me volera, elle me volera!
 Elle écoute; elle entend pleurer Louise. Sa crainte
@@ -4371,7 +4181,6 @@ faite, joyeux de la gaieté des enfants et de retrouver le
 logis calme comme il l'avait laissé. k
 Mais en entrant dans la cuisine, il voit la chaise ren-
 versée, Louise seule toute en pleurs, les traits tirés et
-si pâle, si pâle.
 — Ah! mon Dieu! gémit-il. ‘4
 Son cœur se serre. Lui qui arrivait avec de la joie !
 Il s'approche de sa femme. Louise le repousse d'abord, #3
@@ -4386,9 +4195,7 @@ Dans leur berceau, où Jean les a déposées, les bessonnes gazouillent, agitant
 La chambre de Caussette demeure silencieuse.
 L'heure du diner approche.
 — Paul, dit Jean, va prier grand mère de venir
-table.
 La porte est fermée. Le garçonnet frappe de son
-petit poing. T4
 — Grand mère, viens diner, je te prie!
 — Jene veux pas diner... j'ai pas faim... va-ten!—
 s'écrie Caussette en entr'ouvrant sa porte.
@@ -4397,7 +4204,6 @@ la trouve assise de nouveau sur sa malle, dans une attitude hostile. En vain il 
 tant, par ces mots: É
 — Non, non, je n'ai pas faim. s
 - Et comme Jean insiste doucement, elle lui dit, les
-dents serrées : *; 10
 — Laisse-moitranquille à la fin des fins... jene veux
 
 pas... Ta femme, tu devrais la fouetter, car elle pe res-
@@ -4420,7 +4226,6 @@ quart d'heure en quart d'heure, sur les tuiles du toit et
 sur les carreaux de la fenêtre, avec un bruit de galets
 agités par la mer montante, il sent-une détresse affreuse
 lui submerger le cœur. Et il s'attarde là.
-XVIII
 Le lendemain, la vie reprit comme de coutume. Cependant, ce ne fut qu'à l'heure du déjeuner que Caussette
 quitta sa chambre. Elle paraissait très lasse, traînant
 plus qu'à l'ordinaire ses pieds chaussés de gros sabots.
@@ -4554,7 +4359,6 @@ délirer et sur la réponse négative de Jean, il ajouta
 Le soir, Jean était seul à veiller dans la cuisine. Dix
 heures venaient de sonner au clocher de l'église et les
 vibrations du métal s'éteignaient à peine au fond du
-grand silence nocturne.
 i Soudain, Coste entend le choc d'un bol sur le carreau
 avec précaution, pénètre dans la chambre. La porte
 peine poussée s'ouvre sans bruit.
@@ -4562,7 +4366,6 @@ la lueur de la chandelle qu'il tient dans sa main,
 il voit un spectacle terrible. L'aveugle a quitté son lit.
 de mettre fin à leurs soucis d'argent, s'insinuait soudain
 traîtreusement en lui. Il se hâtait de la repousser avec
-horreur, se croyant coupable d'avoir pu seulement
 l'accueillir, ne fùt-ce qu'une seconde. Et dans ce cruel
 désarroi de tous ses sentiments d'affectionet d'honnèêteté,
 il se retirait à l'écart pour cacher des larmes de honte.
@@ -4623,7 +4426,6 @@ délirer et sur la réponse négative de Jean, il ajouta
 Le soir, Jean était seul à veiller dans la cuisine. Dix
 heures venaient de sonner au clocher de Féglise et les
 vibrations du métal s'éteignaient à peine au fond du
-grand silence nocturne.
 
 - Soudain, Coste entend le choc d'un bol sur le carreau
 de la pièce voisine. Étonné, il se lève et doucement,
@@ -4638,7 +4440,6 @@ et de ses jambes maigres, elle est quasi allongée
 sur sa malle, les bras étendus comme pour la protéger. j
 Les dents claquent de froid et de fièvre, la figure est
 toute décomposée par la maladie et par une atroce
-épouvante.
 
 — Mais vous êtes folle, — s'écrie Jean à cette vue,
 
@@ -4648,7 +4449,6 @@ ta coquine de femme... Tu étais là, pour me prendre
 mon argent... je t'ai entendu venir doucement... Mange-
 tout, gueux, tu ne peux donc pas attendre que je sois
 morte. Mais tu me tueras plutôt que de l'avoir.
-soyez maudits, maudits, maudits…
 
 Rose et Paul, couchés dans la chambre voisine, É
 s'éveillent aux cris de la grand mère et, à leur tour, “4
@@ -4659,7 +4459,6 @@ cramponne plus étroitement au bois de la malle, de ses
 ongles qui crissent.— Elle aussi, la gueuse!... Tous les
 deux ils étaient là... Ils veulent me voler mes derniers
 sous. Sortez, sortez !.… Allez-vous-en!.…..allez-vous-en!.…
-mauvais, mauvais, mauvais.
 ! Caussette écume ; heureusement sa voix s'affaiblit, À
 s'étrangle et ne peut s'entendre du logement de l'insti- ns
 tutrice. À bout de souflle, la vieille femme se tait enfin Ÿ
@@ -4709,11 +4508,8 @@ Louise obéit; mais avant de se retirer elle embrassa
 nerveusement son mari; puis, après une hésitation, lui
 dit d'une voix blanche : : è
 — Dis, pourquoi ne regarderais-tu pas dans la malle
-maintenant ?...
 Jean sursauta et se dressa d'un bond. Il devint tout
-blême :
 — Non, non, pas encore, dit-il... Attends qu'on lait
-emportée... Demain, demain...
 
 Il frissonna comme s'il semblait craindre que la
 morte ne se levât, au premier pas fait vers la malle
@@ -4772,7 +4568,6 @@ non sans émotion, dans la chambre où se trouvait tout
 Louise y était déjà. Malgré sa fatigue, elle avait
 
 fureté partout et son visage semblait soucieux d'impa- FT"
-üience. (
 
 — Jean, — dit-elle en voyant entrer son mari, — la
 malle est fermée... j'ai beau chercher partout et je ne
@@ -4783,7 +4578,6 @@ femme. Il tourna et retourna tous les objets, regarda
 tous les meubles, les déplaça même, sondant les murs
 
 etle pavé. A la longue, une impatience lui vint, ainsi
-qu'à Louise :
 — Où diable les at-elle donc fichues? — fit-il d'un
 ton brusque en fouillant de nouveau les poches de la
 <lernière robe portée par la morte. : à
@@ -4808,7 +4602,6 @@ M — Que tu es bête! je vais le faire moi-même alors.
 Va me chercher un marteau au lieu de rester là, les bras y
 pendants et l'air idiot.
 
-— Non, Louise, jé t'en prie ; sois patiente. J'en aurais
 trop de peine. Nous avons bien le temps... Fouillons
 encore...
 
@@ -4847,7 +4640,6 @@ ce qui produisit un très léger cliquetis de fer. Le paquet
 
 maigres et aussi crochus que des pinces pour les dé-
 faire. Dans son empressement, Jean se cassa un F H)
-ongle.
 — Sapristi! — s'écria-t-il en suçant son doigt dou-
 loureux, — en voilà des précautions!
 Enfin, Louise plus adroite y réussit et défit le dernier
@@ -4888,7 +4680,6 @@ et de petits sous — les économies des paysans — ruis-
 selèrent, roulèrent, rayonnèrent dans la chambre.
 Rose et Paul s'étaient accroupis autour du tas de
 monnaie et criaient en tapant dans leurs menottes, les
-yeux écarquillés…
 — Que de sous, pérotte !.. que de sous, mérotte !
 . Tous y plongeaient les mains avec ravissement,
 croyant avoir une fortune devant eux. Après avoir éparpillé le tas sur le mouchoir et s'être assez délecté les
@@ -4897,7 +4688,6 @@ yeux, Jean se mit à compter le tout, par piles. ?
 de déconvenue, — j'aurais cru qu'il y avait davantage.
 Rien que deux cent cinquante-deux francs et quelques
 misérables sous.
-— Voyons... -
 Non, c'était bien le compte exact. Ils eurent une moue
 de désappointement.
 Mais aussitôt Jean eut honte de sa cupidité. Il pensa
@@ -4913,7 +4703,6 @@ morceau de pain bis et quelques figues ou amandes
 sèches. Pauvre mère, combien peu de joie elle a eu
 dans sa vie misérable... Et elle est morte, en croyant
 que nous voulions la dépouiller, et que nous lui men- Es.
-tions !.… Re CREER
 Deux grosses larmes roulèrent de ses yeux. Sa pro- Le
 fonde émotion gagna Louise. Ils s'embrassèrent en pleurant. “3
 Ils remirent l'argent dans le sac.
@@ -4970,15 +4759,12 @@ c'était le tout si l'on en tirait de trois cent cinquante
 quatre cents francs, à le vendre tout de suite et inculte
 depuis un an comme il était.
 
-137 VUL.
-
 — À moins que vous vouliez attendre? En ce cas,on
 pourrait, en patientant, le raisonner davantage.
 — Non, je préfère m'en débarrasser au plus tôt,
 ‘ repartit Coste impatient de ne rien devoir à personne
 et d'avoir un peu d'argent à lui.
 ‘ Le notaire promit que, avant quinze jours, il aurait
-trouvé acheteur.
 De retour à Maleval, Jean s'en fut chez le curé afin de
 l'avertir qu'il ne pourrait acquitter le prix des funé- s
 railles de sa mère avant quelques semaines.
@@ -5003,7 +4789,6 @@ bytère et de l'école. Non que Coste se tint systématiquement à l'écart et o
 font, de nos jours, de l'instituteur et du curé, représen-
 
 tant des idées hostiles, deux adversaires quise boudent
-ARETSS ‘à
 
 sinon deux ennemis irréconciliables,— bien que la partie
 ne soit pas égale du côté de l'instituteur plus faible. .
@@ -5030,13 +4815,11 @@ l'abord, très cordiale. Dès en entrant, Coste exposa le
 but de sa visite.
 La main tendue et avec un bon sourire qui atté-
 nuait la franchise brusque de ses paroles, l'abbé
-répondit :
 — Oh! ça ne presse guère, mon ami... Prenez, je vous
 prie, un siège. Vous me payerez quand il vous plaira,
 je sais attendre... Les instituteurs de même que les
 prêtres de campagne doivent se contenter de peu et ne
 disposent guère de grosses sommes... Allez, je ne suis
-Aer
 pas bien riche moi-même et c'est pour cela que je comprends les embarras de mes ouailles et que je compatis
 mieux à leurs souffrances. Entre pauvres, on s'entend.
 Je n'ignore pas que vous avez de lourdes charges de
@@ -5064,10 +4847,8 @@ rappelait son intérieur et auprès de ce brave homme.
 Le curé se fit apporter une bouteille de bière par sa
 sœur qui était sa servante. Celle-ci, après avoir échangé
 quelques paroles de bon accueil avec Coste, se retira
-discrètement. ‘
 — Elle est très liée avec votre collègue, mademoiselle
 Bonniol, — dit l'abbé Clozel quand sa sœur se fut
-éloignée.
 — En effet, c'est ce que m'a souvent dit mademoiselle
 
 Le Bonniol,.. une excellente personne et une bonne
@@ -5077,20 +4858,17 @@ manies et aime à vivre seule avec ses bêtes... mais,
 vous l'avez dit, elle a un cœur excellent. Souvent elle
 nous a parlé de vous... et de votre mérite. Aussi, nous
 partagions l'estime qu'elle a pour vous et pour madame
-Coste.
 Jean rougit et détourna la conversation. Ils causèrent
 alors de leur situation, de leurs maigres ressources, de
 leur vie humble et diflicile, ainsi que de Maleval et de
 ses habitants. Peu à peu, ils devenaient plus confiants,
 plus amis et jouissaient de lintimité qu'avait pris leur
-entretien. -
 Coste resta plus d'une heure. Quand il sortit, curé et
 instituteur, sans avoir touché un mot des questions
 capables de les diviser momentanément, unirent leur
 misère et leur humilité communes dans une cordiale
 poignée de main.
 En le reconduisant, l'abbé Clozel lui dit avec un mali-
-cieux sourire
 — Quoique très proches voisins, je ne vous demande
 - pas de venir souvent me voir au presbytère... Ce qui ne
 tire pas à conséquence pour mademoiselle Bonniol, une
@@ -5140,14 +4918,12 @@ déménagement à son collègue de Peyras. Il advint que
 celui-ci le rappela dans une lettre quasi insolente où
 entre autres aménités il lui disait ceci : « qu'il aurait
 eru trouver dans un collègue plus de respect de la
-parole donnée, etc., etc. »
 Le matin où pareille lettre lui fut remise, Jean en
 parut très vexé. Son front s'assombrit; il eut envie, en
 envoyant l'argent, de répondre très sèchement ; mais il
 n'en fitrien, craintif que son collègue, piqué au vif, ne
 parlât de sa dette, à Peyras. Par amour-propre, il se
 contenta d'envoyer un mandat-poste avec même un mot
-d'excuse.
 Louise n'en revenait pas de voir filer si vite cet argent
 qu'elle avait cru inépuisable. Comme Jean, plein d'assurance et d'insouciance, prétendait qu'il fallait garder
 le peu qui restait comme une avance, elle lui demanda
@@ -5163,7 +4939,6 @@ tous les fonctionnaires n'agissent-ils pas ainsi? et
 puis, maintenant que nous n'avons plus d'arriéré, mais
 bien des avances dans l'armoire, les factures seront
 payées recta tous les mois.
-Louise paraissait convaincue. Jean insista pourtant
 — Après tout, — ajouta-t-il fièrement, — les fournis-
 seurs savent désormais que nous sommes solvables.
 Ils nous croient même riches et s'imaginent que j'ai
@@ -5176,8 +4951,6 @@ de ménag s mon traitement suffira, sois sans
 
 a : Louis d'ailleurs s'était peu
 débe vous de cette timidité qui
-
-a judiciz Allons, bon courage
 
 de Cos D'ailleurs, il s'était informé
 
@@ -5194,7 +4967,6 @@ ménage et de passer à la fin du mois pourrégler. Nous
 garderons donc cette réserve. Toi, tu vas te soigner,
 tu guériras et nous pourrons ainsi congédier la femme
 de ménage. Alors mon traitement suflira, sois sans
-crainte. “es
 à Que répondre à cela? Louise d'ailleurs s'étaitpeuà
 peu désintéressée du ménage : elle laissait, par suite
 de sa santé chancelante, Jean s'occuper de tout et
@@ -5210,7 +4982,6 @@ timide en présence de mes collègues. Outre que j'étais
 fort ému, j'avais ma pauvre mère et ma femme malades
 et j'étais trop occupé et trop soucieux pour songer la
 veille à préparer ma lecon. Aussi, fus-je pris tout à fait
-au dépourvu. “À
 — Je comprends, je comprends, — fit l'inspecteur en ..
 souriant; — mais débarrassez-vous de cette timidité qui
 aurait pu vous être préjudiciable. Allons, bon courage
@@ -5226,7 +4997,6 @@ diligence, rentra chez lui en sifilotant. Il se frotta les
 mains de contentement, et dit à Louise
 — En voilà un qui s'en va satisfait. Allons, ma Fi
 Louise, tout s'arrangera, tout s'arrangera au gré de nos
-désirs.
 Et dans l'exubérance de sa joie, il prit les deux jumelles qui gazouillaient dans leur berceau, les baisota tour
 à tour, puis, une sur chaque genou, il s'amusa à les k
 faire sauier en leur disant d'une voix puérile
@@ -5251,7 +5021,6 @@ plaisait à mystifier, s'approcha de Jean et dans un langage zézayant elle dema
 de candeur vers son père
 — Paulou qui me dit que si ze mangeais de l'her-
 
-2: + 47 OCR
 bette, alors z'aurais du bon téton comme la cèvre?
 Est-ce vrai, dis, pérotte?
 Coste etsa femme sourirent de la naïveté adorable de
@@ -5260,7 +5029,6 @@ Décidément, avec un inspecteur satisfait, quelques
 sous dans l'armoire, plus de dettes, un intérieur où
 babillent de beaux enfants, avec la tranquillité du corps
 et de l'esprit, la vie devenait belle et bonne.
-‘ XXL
 Par une blanche après-midi de l'avril finissant, Coste, 4
 qui, du seuil de la porte, surveillait la sortie de ses
 élèves, fut surpris de voir le maire apparaître au tour- ” ‘4
@@ -5271,7 +5039,6 @@ x la journée dans son maset et ne « descendait » plus
 Maleval, car l'instituteur avait soin de lui envoyer par
 un élève les rares pièces exigeant une signature.
 — Tiens! quel bor vent vous amène ici, monsieur le »
-maire ? “a
 M. Rastel, tout en soufllant comme un phoque, s'informa de la santé de sa filleule, bonhomme comme
 l''accoutumée, mais pourtant avec une autre préoccu
 pation sur sa large face d'où ruisselait la sueur.
@@ -5298,7 +5065,6 @@ moins que votre communard de prédécesseur, vous ne
 valez pas plus que lui... certains d'entre eux assurent
 même que vous avez peur.
 — Peur! et de quoi? — s'exclama l'instituteur n'y
-comprenant rien.
 — D''eux !.… et parce que vous faites la cour au curé.
 Coste ouvrait déjà la bouche pour protester. M. Rastel reprit aussitôt : <a
 . — Oh! je n'attache aucune importance à cela, moi...
@@ -5313,9 +5079,6 @@ blessante pour son amour-propre.
 — Eh bien! s'ils sont élus contre nous, les réacs ont
 décidé de vous enlever le secrétariat de la mairie.
 
-YARIS
-
-Coste pâlit. ; à
 — Pas possible ! s'écria-t-il. Mais à qui donc le dom
 
 — Té! à Gustou, le cousin germain de Piochou…
@@ -5346,7 +5109,6 @@ voix de majorité.
 aidé, que diable ! je l'avoue... suflit !.. Alors, vous
 savez, il est temps de veiller au grain, de se secouer, É
 
-bref!.…..
 Coste connaissait mal cette cuisine toujours un peu
 sale d'élections. Il respira. Tout n'était donc pas désespéré. Du moment qu'il s'agissait de défendre le pain
 des siens, il ne marchanderait pas son dévouement.
@@ -5357,14 +5119,10 @@ Le _ active propagande auprès de ceux qui, parmi les pa-
 
 LE. £ rents de ses élèves, passaient pour tièdes .ou indifié-
 
-rents.
-
 fe M. Rastel lui donna quelques indications ; les têtes
 commençaient à s'échauffer, depuis quelques jours; les
 
 conservateurs étaient prêts à tout, car ils prétendaient
-
-avoir été « volés » jusqu'ici.
 
 Coste ne s'arrêta pas à ce mot souligné pourtant par
 le maire et dans lequel il ne vit qu'une de ces exagérations dictées par l'esprit hostile des partis.
@@ -5422,7 +5180,6 @@ pénètre ensuite après avoir contourné un monticule
 entre les hauts talus duquel elle s'encaisse un temps.
 Bientôt des claquements de fouet retentissaient auxquels se mêlaient le tintement clair des grelots et l'aigre
 et discordante fanfare de la trompette ou du clairon
-dont sonnait éperdument, à pleins poumons, chacun
 des postillons, pour annoncer leur triomphale arrivée.
 
 Puis, au tournant de la route, une diligence peinte de
@@ -5458,8 +5215,6 @@ diligence et inversement. On parlait haut, on gesticulait beaucoup et avec impat
 demandaient à boire. Le cafetier et sa femme se multipliaient, très complaisants, car ce passage des voitures
 - qui, quatre fois par jour, faisaientla navette entreMontclapiers et les riches cantons de la plaine, donnait
 ces limonadiers d'un si petit village le plus clair de
-
-leurs bénéfices.
 
 Enfin, les chevaux attelés, on se tassait de nouveau
 dans les diligences qui dérapaient et, faisant sur leur
@@ -5506,7 +5261,6 @@ considération et l'estime de bien des gens.
 avait faites.
 — Vous comprenez, monsieur le curé, que j'ai tout
 intérêt à ce que M. Rastel continue à être maire de a
-Maleval.
 — Oui, oui, je comprends. et je vous plains. Mais
 croyez-en mon expérience, soyez moins ardent, plus
 rassis, En somme, il n'y a pas de question de principe
@@ -5549,8 +5303,6 @@ vous vénèrent.
 — Pas de flatierie, mon ami... Jene suis qu'un pauvre
 homme comme vous. Allons, soyez prudent et au
 
--_ revoir.
-
 Ils se quittèrent, le curé avec son bon sourire et la
 douceur inaltérable de ses yeux bleus, Coste saluant
 avec une respectueuse sympathie cet homme de bien,
@@ -5572,7 +5324,6 @@ fâché, à son tour, d'être enfin le maître et de se dédommager de son infé
 autorité presque sans contrôle, mais qu'à cause de sa
 bonté réelle, il ne savait pas rendre lourde aux autres, :
 heureux des quelques satisfactions de vanité qu'il en
-retirait.
 M. Rastel avait déserté son mas. A tous moments, il
 accourait à la mairie et prodiguait conseils et encoura
 gements à Coste. Bientôt il y eut entre le maire, l'instis tuteur, et les gros bonnets du parti, des conciliabules
@@ -5642,15 +5393,12 @@ voix comme l'avaient démontré un pointage impartial
 et les élections législatives qui avaient suivi.
 .. D'un ton sans réplique, le maire dit à Coste : ÿ
 — Vous voyez donc comment s'y prennent nos adver- ë
-saires.
 — Ils ont tort, — répondit l'instituteur directement
-interpellé. :
 — Mais, vous savez, c'est de bonne guerre, cela. On
 serait bien bête de ménager les culs-blancs… D'ailleurs, #3
 rappelez-vous l'empire et le seize mai; est-ce qu'ils se
 gênaient eux, alors ? Puisque vous apprenez l'histoire
 nos mioches, vous ne direz pas que c'est de la légende, Fe
-hein ?
 — D'accord, mais la république est assez forte pour
 
 ne point se modeler sur l'empire et le seize-mai.. Pour
@@ -5675,19 +5423,15 @@ hésitations d'un certain nombre, qui ne sont ni chair ni
 poisson, on a eu de la peine à les déloger d'ici... Oui,
 monsieur le maître, nous les avons pris la main dans le
 sac, il y a six ans, et c'est grâce à cela que nous
-sommes ici...
 
 — Et s'ils y reviennent, — appuya M. Rastel, — ils
 ne s'en iront pas facilement. Par conséquent, on ne leur
 
 rendra que la monnaie de leur pièce. Qu'en dites-vous,
-voyons ?
 
 — Je dis, je dis, — répondit Coste, hésitant, — que
 vous avez sûrement raison; mais la république doit
 être un gouvernement d'honnêteté, de liberté et de
-
-- franchise.
 
 — Des phrases! — répliqua le maire mécontent de la
 résistance de l'instituteur et haussant les épaules. —
@@ -5846,14 +5590,12 @@ où l'on compte les bulletins. Parmi eux, un conservateur — le seul — gestic
 maigre et long comme un jour sans pain, celui qui
 
 aspire à remplacer Coste comme secrétaire de la
-mairie. :
 Les autres se massent, au fond, sur le palier, où l'on
 vient de les refouler non sans peine et non sans protes-
 ] tations indignées. Les vantaux de la porte sont restés
 grands ouverts ; de chaque côté un gendarme, le sabre
 au poing. On entend les dents grincer de colère. La chaleur est suffocante ; par intervalles, un roulement sourd
 de tonnerre se mêle au brouheha du dehors, où l'on
-paraît se chamaiïller ferme.
 Dans la salle, on discute âprement chaque bulletin
 taché, mal rayé ou douteux.
 La voix de Gustou clame tout à coup:
@@ -5889,8 +5631,6 @@ clique et tu es aussi voleur qu'eux !
 Fouetté par ces mots, il ouvre la bouche pour répondre vertement à l'insulteur. Mais un bruit s'élève dans
 la salle, derrière lui, En même temps, les hommes
 dégringolent l'escalier, les uns furieux, les autres -
-criant
-— Bravo, Gustou, bravo!
 
 Coste s'est retourné ; il a tout au plus le temps de
 voir Gustou se jeter sur l'urne ouverte et contenant
@@ -5909,10 +5649,8 @@ main, tombe et rebondit sur le sol, mise en pièces
 coups de talon. Les bulletins s'éparpillent çà et là, pié-
 tinés, déchirés en un rien de temps. Les femmes sont les
 plus enragées. On se bouscule, on échange des coups de
-poing.
 
 Dans la salle de la mairie, M. Rastel, les bras en l'air,
-i se lamente
 — Oh! les brigands ! les canaïlles ! une élection qui
 s'annonçait si bien.
 
@@ -5923,7 +5661,6 @@ s'avance sur le balcon et crie à la foule qui hurleetse Eee j
 — Misérables, votre affaire est claire. c'est de la
 prison pour vous... oui, de la prison, sacripants ! “+
 — Descends un peu, gros enflé et nous t'en ferons Fe
-autant, — vocifèrent quelques conservateurs furieux.
 Partagés en deux camps exaspérés et à peu près
 d'égale force, hommes, femmes, enfants même se pro- L
 voquent sur la place, semblent à tout moment près de .
@@ -5964,8 +5701,6 @@ et prolongés d'insectes, tandis que, là-bas, à l'ouverture
 noire d'une combe, dans une ruine, deux miaulements
 de chouette se répondent.
 
-XXIII
-
 La nuit souflia sur toutes ces colères d'électeurs,
 colères fugaces comme les flammes du marais. Lorsque
 le jour radieux fit étinceler la vallée lavée par la pluie, .
@@ -5976,7 +5711,6 @@ de la veille.
 
 Ceux qui se croyaient tant soit peu compromis n'en
 menaient pas large ; quelques-uns se cachèrent même, .
-durant plusieurs jours.
 
 Gustou, que les gendarmes avaient relâché après lui
 avoir dressé procès-verbal, Gustou faisait de tristes
@@ -5989,11 +5723,9 @@ un chenapan.
 L'enquête et les poursuites suivirent leur cours habituel ; toutefois Gustou s'en tira à bon compte. On le
 condamna à une forte amende et à quelques jours de
 
-SORA MAUR 0,
 prison. Coste figura comme témoin dans le procès; le x
 pauvre homme avait si peur de l'avenir qu'il était plus
 pâle et plus malheureux, en déposant, que les accusés
-eux-mêmes.
 -__ Entre temps, de nouvelles élections eurent lieu sous
 la présidence d'un conseiller de préfecture délégué afin “
 d'éviter de nouveaux troubles. s
@@ -6010,7 +5742,6 @@ pourquoi il vint voter dès l'ouverture du scrutin et s'empressa de se retirer e
 croyant la partie perdue .et se promettant de goûter
 désormais les charmes de la retraite et la fraîcheur des
 cois ombrages. Cela n'était-il pas, après tout, d'un prix l
-inestimable ?
 Cette désertion imprévue enchanta les conservateurs; J
 ils exultaient. Pour eux, il n'y eut plus aucun doute que,
 
@@ -6031,7 +5762,6 @@ au nombre des dix conseillers municipaux élus, au
 dernier rang, il est vrai, et allaieñt représenter l'opposition dans le nouveau conseil.
 Aussi lorsqu'on vint lui apprendre le résultat de l'é-
 lection, le maire en éprouva-t-il un regret immense et
-quelque peu tragique.
 — Oui, c'est ma faute, c'est ma très grande faute!
 — s'écria-t-il, répondant aux reproches amers de ses
 amis. — Je leur ai laissé la partie trop belle... J'ai
@@ -6052,7 +5782,6 @@ tambour et en criant : « Quelle veste ! oh ! quelle veste! »
 Puis on le brûla devant la mairie avec des chants et
 des danses, tandis qu'un énergumène, pérorant sur le
 perron, allait, dans l'excès de sa joie, jusqu'à déclarer
-cyniquement
 — Et maintenant que nous y sommes, qu'ils viennent,
 les rouges! Je vous fiche mon billet qu'ils ne nous
 balaieront pas facilement. Ohé! les républicains, les
@@ -6072,7 +5801,6 @@ pas son ahurissement. Dans la salle où il se trouvait,
 déjà menaces et allusions brutales pleuvaient dru su
 lui. Sans pitié, les vainqueurs riaient de sa mine déconfite. Un quidam vint se placer sous son nez, le dévi- Ë
 sagea d'un air narquois et lui dit, grossièrement et
-brûle-pourpoint : e
 
 — Toi, tu peux prendre ton sac et tes quilles. Tes
 deux cent cinquante francs du secrétariat ont fait le .
@@ -6175,7 +5903,6 @@ Paul s'obstinaient à qui mieux mieux. Autantde courses
 folles, pleines d'imprévu et d'éclats de rire, autant de
 pourchas capricieux qui donnaient aux deux enfants
 saine fatigue, bon appétit et grand sommeil, chaque
-vesprée.
 Le soleil couché, lorsque le bleu soyeux du ciel rougeoyait à l'occident, Jean se levait et jetait un appel qui
 mettait fin aux ébats de la chèvre et des enfants. A ce
 cri, Mémé accourait aussitôt vers lui et d'une langue
@@ -6184,7 +5911,6 @@ grains de sel qu'il ne manquait jamais d'apporter. On
 revenait tranquillement à Maleval, en respirant la
 fraicheur balsamique qui imprégnait l'air du soir. Tous
 mangeaient ensuite avec un appétit qui faisait dire
-_ à Jean volontiers
 — Mieux vaut payer le boulanger que le médecin et ÿ
 le pharmacien.
 Avant la fin du repas, Rose et Paul, rassasiés, luttaient
@@ -6233,7 +5959,6 @@ son humilité et s'évertuait en vain à faire preuve de
 soumission et presque de servilité. Et eux, triomphants, à sfr
 de-ricaner sans pitié et de se dire: Ée
 — Il crève de peur; mais il a beau faire, trop tard...
-(NES
 
 Ah! mon bonhomme, tes deux cent cinquante francs
 vont boire un coup.
@@ -6308,10 +6033,8 @@ digne de pitié. Il faudrait avoir un cœur de roc pour
 ne pas être attendri...
 
 Et comme Coste, abîimé dans sa douleur ét son humilité, faisait un nouveau geste de prière, l'abbé Clozel
-ajouta
 — Dès demain, j'irai trouver M. Pioch... Ce serait
 une iniquité !.. On m'écoutera... Allons, courage, mon
-ami !.…
 
 L'instituteur s'en alla un peu réconforté. Le curé tint
 parole. Mais sa démarche fut vaine. On lui répondit que
@@ -6330,7 +6053,6 @@ pitié et ce parti-pris de haine
 — Mais c'est la misère, s'écria-t-il, pour ce pauvre
 diable... songez donc qu'il a quatre enfants en bas âge
 et une femme malade... Non, vous ne serez pas si mé-
-chants !
 
 Le paysan fut piqué par ces derniers mots qui n'é-
 
@@ -6341,7 +6063,6 @@ tenait à être secrétaire et ce dédommagement lui était
 bien dû. C'est pourquoi, redressant sa petite taille et
 
 fronçant les sourcils, le maire déclara nettement, d'une Le
-voix aigrelette :
 — Je le regrette, mais c'est impossible. N'insistez Fu
 pas. Re
 ù Puis, voulant donner une leçon à ce curé auquel on iQ
@@ -6358,7 +6079,6 @@ différence entre républicains et conservateurs, entre les
 bon, on est souvent dupe... Beaucoup de prêtres ne font
 pas comme vous et...
 L'abbé Clozel interrompit le paysan finaud et simple-
-ment repartit :
 .. — Monsieur Pioch, j'agis d'après ma conscience et
 mon devoir. Je suis, moi, un homme de paix... Les que- J
 relles qui vous divisent m''importent peu et je les comprends mal... Les uns et les autres, vous êtes mes chères
@@ -6374,7 +6094,6 @@ plus... Ayez pitié...
 
 regret, je ne puis rien; ce qui est décidé est décidé.
 Tant pis pour M. Coste, il l'a bien voulu.
-s Quelques jours après, M. Auguste Pioch, autrement .
 dit Gustou, ou encore Piochounet, très fier et ayant au ÿ
 front l'auréole de confesseur et martyr de la foi conser-
 vatrice, était installé par son cousin M. Roch Pioch ou
@@ -6382,7 +6101,6 @@ Piochou, maire de Maleval, comme secrétaire de la
 mairie avec, s'il vous plaît, trois cents francs d'appoin-
 tements. Dame ! bien souvent, une belle vigne n'en rap-
 porte pas plus! ‘
-XXIV “e
 Dans l'humble logis de instituteur, la lutte, impuis- f
 sante hélas ! contre la misère recommenca dès lors plus
 terrible même qu'autrefois. Grâce à des prodiges d'éco-
@@ -6398,13 +6116,11 @@ travaux de copie autour de lui, dans les villages voisins !
 et jusqu'à Montclapiers. Ce n'était guère pratique, tant
 à cause du peu d'importance de Maleval que de son
 éloignement de tout centre. D'ailleurs, sur les lieux
-mêmes, notaires, huissiers, commerçants, etc. trou-
 vaient assez de meurt-de-faim à qui s'adresser sans
 avoir besoin de recourir àune personne étrangère
 leur localité.
 Coste, éconduit de partout, se creusa la tête. Il fallait
 aviser à un moyen. Il crut enfin avoir trouvé. Voici
-comment :
 Par jour, il faisait les six heures de classe réglementaires, le matin de huit heures à onze heures, l'après-midi
 de une à quatre. A l'exemple d'un grand nombre de ses
 collègues, il résolut d'établir des études surveillées,  « l'une de onze heures à midi, l'autre de quatre àsixet
@@ -6506,7 +6222,6 @@ dans ses frais de voyage et d'économiser même. Forcé-
 renvoyer la femme de ménage, ce qui était autant de «
 gagné. Jean, libre du matin au soir, la remplaça et !
 s'occupa à tenir la maison propre et à soigner les
-bébés.
 Avec la faiblesse de Louise, faiblesse que compliquait le chagrin de la vie précaire où ils étaient retombés, ses palpitations de cœur si douloureuses étaient
 revenues la tourmenter fréquemment. La moindre ?
 marche la fatiguait, la laissait essoufilée et sans çcou-
@@ -6523,7 +6238,6 @@ des tempes battaient fiévreusement à coups sourds, et
 le bruit très perceptible de ces battements violents et
 irréguliers impressionnait péniblement la malade qui
 s'écriait, éperdue, la voix suffoquée d'angoisse et de
-sanglots
 — Jean... de l'air. j'étouffe... mon Dieu je vais.
 mourir. de l'air... Jean. de l'air.
 Puis soudain elle ne sentait plus son cœur qui s'arré-
@@ -6536,7 +6250,6 @@ presque à la mort, tant la poitrine respirait faiblement.
 Louise sortait de ces crises comme idiote, sans force.
 Certes, brève était la durée de ces accès toujours suivis de pâmoison, mais ils se renouvelèrent avec une
 telle fréquence que Jean dut encore avoir recours aûù
-médecin.
 fr — Tout cela, dit celui-ci, n'est qu'une conséquence de
 l'anémie. Madame Coste n'a au cœur aucune lésion organique. Il faut donc combaïtre ses crises nerveuses
 par des antispasmodiques. Mais pour les faire cesser
@@ -6549,7 +6262,6 @@ ses parents et ses amis de Peyras, l'accablait Ge tristesse et son état morbide
 milieu de ses souffrances, le regret tenace du pays la
 reprenait et, la figure douloureuse, elle languissait son
 cher Peyras quitté depuis un an et où elle avait été
-jadis si heureuse.
 Ses plaintes et ses pleurs incessants, où il yavait parfois tant de muets reproches, meurtrirent le cœur de
 Jean. A la longue, il perdit son calme, de voir Louise
 sans courage, injuste à son égard, et qui repoussait par- le,
@@ -6606,7 +6318,6 @@ vaincue et lasse, fondait en larmes, et, dans sa fai-
 
 blesse aggravée, portait la main à son cœur prêt à se
 
-SA RNEEN a
 briser. À ce geste d'indicible souffrance, Jean avait
 honte de sa dureté. Toute sa pitié, toute son affection
 affluait dans son âme, emportait ses rancunes. Il se
@@ -6633,7 +6344,6 @@ traitaient comme leur victime, sans pitié, en ennemi.
 Son amour-propre saignait du peu de considération
 qu'on lui montrait, des allusions qui souflettent, des
 mots qui se chuchotent, des sourires qui insultent. Les
-fournisseurs mal payés redevinrent durs, arrogants, ee
 féroces, depuis qu'ils ne croyaient plus à l'héritage des
 trois mille francs. De dépit, ils laissaient de côté toute i
 prévenance de marchand, mettaient à découvert leur
@@ -6700,9 +6410,7 @@ Le premier jour de la rentrée, le père d'un de ses
 eue Re l
 intention est d'entrer à l'école normale de Montclapiers,
 s'il réussit au concours. Je suis venu vous voir pour l
-l'eela.. k
 — Ma foi, répondit Coste, voulez-vous un bon con- Ÿ
-seil ? :
 — Ce n'est pas de refus.
 — Eh bien ! ne donnez pas suite à votre idée.
 — Pourquoi donc? s'écria le paysan abasourdi. ÿ
@@ -6711,7 +6419,6 @@ sort d'un instituteur à ses débuts. qe
 — Oui, conclut-il, je vous le dis franchement. Faites
 de votre fils tout ce que vous voudrez, un ouvrier plutôt,
 mais pas un instituteur, si vous désirez qu'il soit heu-
-reux.
 Il eut beau dire ; le paysan était fermement décidé ; il
 ne vit que de mauvaises raisons et des exagérations
 dans les paroles de Coste. Son fils serait institu-
@@ -6724,14 +6431,12 @@ rerai votre fils aux examens de l'école normale.
 é Puis comme il connaissait le peu de ressources du
 paysan, un simple journalier, possesseur d'un ou deux
 lopins de terre, il murmura lorsque l'homme se fut
-éloigné
 — Oh! la sotte et aveugle vanité des parents! Hélas !
 mon père fit ainsi jadis. Mon père et ma mère aussi un
 jour sont allés trouver un instituteur pour moi.
 Et, consciencieusement, par devoir, le jour même, il
 consacra des soins particuliers à la préparation du candidat, dont le succès, pensa:t-il, pourrait lui faire hon_ neur dans le village et auprès de ses chefs.
 
-VAR OVIETE HENTA
 Des semaines passèrent et ce fut l'hiver, très dur
 cette année-là. La gêne s'accrut. La femme de ménage,
 dont les gages n'étaient pas toujours ponctuellement
@@ -6766,7 +6471,6 @@ avec eux, l'orgueil de sa misère. Quoique très touché
 des gâteries et des petits cadeaux qu'envoyaient aux be
 enfants mademoiselle Bonniol et l'abbé Clozel, il refusa
 toute avance d'argent. Du moment qu'il savait ne pouvoir le rendre, un prêt lui paraissait une véritable
-aumône.
 Les fournisseurs se montraient pourtant plus presSants, plus hostiles. A chaque fin de mois, malgré son
 bon vouloir, Coste n'arrivait point à les contenter tous.
 Les soixante-dix-neuf francs coulaient entre ses doigts, Ÿ
@@ -6806,7 +6510,6 @@ menaçant de tout briser et, par représailles, de souflletee
 lui-même le maître brutal. Quant à monsieur le maire
 Piochou, il profita de l'aubaiïne ; il alla trouver Coste et +.
 lui déclara que s'il récidivait on le traduirait en police
-correctionnelle.
 Et là-haut, dans son logis, Jean retrouvait, à midi et.
 le soir, la figure éternellement pâle et amaigrie de sa
 femme. j
@@ -6853,14 +6556,12 @@ déposé leurs petites chaussures dans la cheminée de
 leur chambre. Le lendemain, il se leva aussi oublieux
 et se mit à vaquer aux soins du ménage, machinalement.
 Tout à coup, il s'entendit appeler par la voix de
-Louise.
 
 — Jean, disait-elle, vois donc ce qu'ont les enfants;
 je les entends pleurer.
 Il pénétra dans la chambre. Rose et Paul, en chemise,
 
 leurs pieds et leurs menottes rouges de froid, étaient
-accroupis devant leurs chaussures vides, déposées
 dans les cendres du foyer, et de grosses larmes ruisselaient sur leurs joues bleuies.
 Dès leur éveil, ils avaient risqué un regard vers la
 cheminée, étonnés de ne pas voir un paquet blanc ou
@@ -6872,7 +6573,6 @@ en pleurs, étaient restés là, assis à croupetons, ne déta-
 chant pas leurs regards de leurs souliers vides. +4
 Ce tableau pitoyable fendit le cœur de Jean.
 — Ah! mes pauvres chéris, sanglota-t-il en les em-
-brassant.
 Vite, il les recoucha. Le silence, le regard interrogateur des enfants lui firent mal. Il s''empressa de dire, 15
 feignant l'étonnement
 — Pas possible que petit Noël ait oublié des bébés si
@@ -6922,7 +6622,6 @@ fournisseurs. Ceux-ci se fâchèrent. Le boucher montra
 les dents et menaça d'une saisie-arrêt. La femme de
 ménage, à qui cette menace fut faite, sempressa d'en “
 prévenir Coste, puis d'aller colporter la nouvelle dans le
-village.
 L'instituteur se rendit aussitôt chez le boucher pour
 le prier de patienter. Il fut éloquent, parla du tort
 immense que lui ferait pareille mesure. Bref, le boucher,
@@ -6962,7 +6661,6 @@ soleil d'un beau jour d'hiver, il songeait quasi hébété
 la destinée amère. Soixante-trois francs ! c'est avec ça
 qu'il faudrait vivre pendant trente longs jours, payer
 une femme de ménage, entretenir les bébés, soigner sa
-pauvre Louise!
 Il se leva enfin. Tout le long de la route, il marcha
 tantôt éperdu, comme fou de douleur, tantôt la tête
 
@@ -6974,7 +6672,6 @@ de son accablement que pour se laisser aller à des
 chemin, un porte-monnaie, un portefeuille bourré de
 billets de banque, eh bien! il le garderait, il ne serait
 pas si bête que de le rendre. Puis il murmurait avec
-âpreté : .
 — Ah ! si ces arbres, si cette terre m'appartenait!
 Et il évaluait le prix de toutes les choses qu'il rencontrait. Peu à peu il sentait l'envie croître en Jui
 comme de l'ivraie, étouffer ses anciens bons sentiments Si
@@ -6989,7 +6686,6 @@ et resplendissaient au soleil, tous ces biens enfin qui
 appartenaient aux heureux de ce monde.
 
 Et les jours sombres, les jours sans espoir et sans
-bonheur se succédaient.
 
 Jusque-là, Coste ne s'était point tout à fait privé de
 tabac. Certes, il ménageait parcimonieusement le
@@ -7040,13 +6736,11 @@ pect de l'autorité, pétri de ce respect même, il en arri- ‘4
 vait à espérer comme tant d'autres en ces temps nou-
 veaux où se lèverait sur les humbles et les déshérités le
 “#. soleil de l'universelle justice.
-XXXII
 Et autour de lui, il sentait toujours aussi peu de pitiés ; rien que des regards dédaigneux ou hostiles. Les
 fournisseurs, le traitant de haut, lui refusaient parfois,
 pleins de mépris, leurs marchandises : Payeznous, disaient-ils arrogants, nous vous avons trop longtemps
 fait crédit. — Il subissait ces avanies, s'en retournait
 tête basse, loque humaine que n'agitaient plus que de
-courtes révoltes.
 On ne lui pardonnaïit rien.
 i Par ces rudes jours de l'hiver, afin d'économiser sur
 le bois et le charbon, Coste, après la sortie des élèves,
@@ -7069,7 +6763,6 @@ se font rares autour de vous. Et puis, à quoi bon? “TR ÉQ
 Jean eut un dernier espoir. ) !
 Après la mort de sa mère, il s'était abonné à un jour- C4
 nal pédagogique qu'il recevait chaque semaine. Un ré-
-dacteur indépendant y bataillait régulièrementen faveur
 des instituteurs, signalait les abus de tous genres, se ; E:
 faisait l'écho des plaintes, des misères, sur lesquelles il
 appelait l'attention de l'administration supérieure.
@@ -7090,7 +6783,6 @@ et son adresse, beaucoup de ses collègues, moins mal.
 heureux que lui, lui eussent sûrement envoyé l'obole,
 le denier du pauvre. Et Jean se murmura encore: à quoi
 bon? Non, non, jene veux pas manger du pain de
-” l'aumône.
 RE _ Un autre jour, il se proposa de se rendre à Montcla-
 “4  piers, de se jeter aux pieds de ses chefs et de leur
 à demander, comme une grâce, un poste rémunérateur.
@@ -7115,9 +6807,7 @@ terreur. Sa situation si mauvaise à Maleval, la saisiearrêt sur son traitement
 chefs contre lui. Au lieu d'un poste plus avantageux,
 ne lui écherrait-il pas un de ces matins quelque disgrâce ? Ce serait effrayant, mon Dieu, soupirait-il. Alors
 que faire ?
-XXXIV
 We Que faire alors? se répétait-il souvent à bout de
-forces désormais. ‘
 TA Et comme, cette année-là, les suicides des pauvres
 gens se multipliaient à Paris, causés par le froid et la
 
@@ -7136,68 +6826,31 @@ donnent l'exemple pour tôt ou tard. 1 à we
 Mais tout de suite, avec le sentiment intense de sa : à
 responsabilité, le suprême amour-propre du fonctionnaire reculant devant tout bruit, tout scandale, il se
 raidit, incapable d'une franche et dernière révolte. Il :#e
-ajouta
 — Aï-je le droit de disposer ainsi de la vie des miens?
 Et de moi-même? Que feraient-ils sans moi? ‘Na
 Il chassa l'affreuse pensée. Ne reviendrait-elle pas?
-Et alors 2...
-Octobre 1894—dJuin 1895 ÿ
-Évreux ; +7
 
 par Louis Ango, .
-Anselme Barbereau,
-Claude Briand, Ÿ
 
-Léon Bruel,
-Désiré Charret,
-
-Alexandre Gollet,
-Émile Daviot,
-Jules Desportes, à
-
--_ Marius Drouard. “4
-
-Gustave Lucas, Sn
-Auguste Mahlmann,
-Alexandre Mancel,
-
-Georges Moine, É
-
-Charles Moge,
-
-César Petit,
-? Ernest Payen, F
-Élie Peyla,
-Auguste Princhette, s
-Jacques Rétif, 4
-
-? Charles Robert,
-Eugène Testard,  !
-FA Louis Trioreau.
 ! # Dans leur première série les Cahiers de la Quinzaine
 ont publié
 ÿ un dossier de l'affaire Liebknecht — attitude et inter-
  vention de Liebknecht dans l'affaire Dreyfus épuisé
 un dossier de la préparation du premier congrès:
-socialiste national, tenu à Paris en décembre 1899
-épuisé
 discussion à la Chambre de la proposition de loi,-
 adoptée par le Sénat, portant modification de la loi du
 novembre 1892 sur le travail des enfants, des filles 4 f
 mineures et des femmes dans les établissements industriels, compte-rendu sténographique épuisé
 plusieurs articles, allocutions et discours d'Anatole
-France épuisé
 consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand
 dans les cahiers 5 , 6, 8, ensemble 3 francs
 à et dans le cahier 11 épuisé
 le socialisme et les intellectuels, — conférence faite
 par M. Paul Lafargue à l'Hôtel des Sociétés Sayantes le
-vendredi 23 mars 1900, compte rendu sténographique
 non revu non mis dans le commerce
 socialisme et collectivisme, — conférence faite par
 M. Émile Vandervelde à l'Hôtel des Sociétés Savantes
 Le mardi 6 mars 1900, compte rendu sténographique
-revu I franc
 l Dans leur deuxième série les Cahiers de la Quinzaine
 ont publié
 Le programme de l'École des Hautes Études Sociales
@@ -7207,29 +6860,21 @@ d TT RON EPA NE PPT SE va
 le discours lu par M. Boutroux et l'allocution pro
 noncée par M. Duclaux le lundi 12 novembre 1900)
 pour l'inauguration de l'École des Hautes Études So- Li
-ciales épuisé 4}
 René Salomé, — vers l'action , 2 francs
 le théâtre social, — conférence faite par Jaurès le dimanche 22 juillet 1900 au théâtre de la République,
 avant la représentation de « Mais quelqu'un troubla
 la fête » , épuisé
 Hubert Lagardelle, — les Intellectuels devant le
-Socialisme 1 franc
 Lionel Landry, courriers de Chine épuisé
 Romain Rolland, Danton 3 francs ne
-Lionel Landry, Bacchus 3 francs
 les intellectuels devant le socialisme, réponses de
 MM. Paul Mantoux et Charles Guieysse au cahier de
-Lagardelle 1 fran
-André Bourgeois, — quatre jours à Montceau ss
-fraRE
 cahier d'annonces : les journaux pour tous
 la société des visiteurs
 le Mouvement Socialiste Éo
 la Revue d'Art Dramatique
 société nouvelle de librairie et
-d'édition
 .progrimme de l'école socialiste
 pour l'année scolaire 1900
-? I9OI r'franc M4
 quelques éléments d'un dossier du récent mouvement
 pour la liberté en Russie 1 franc

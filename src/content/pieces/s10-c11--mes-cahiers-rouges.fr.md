@@ -7,8 +7,6 @@ author: maxime-vuillaume
 isAvertissement: false
 wordCount: 6316
 ---
-
-‘ca A NOS AMIS, A NOS ABONNÉS ; !
 Q Nous sommes vaincus; et nous sommes vaincus de la
 défaite la plus ingrate. Premièrement, au premier degré,
 
@@ -55,10 +53,8 @@ défaite, pourvu qu'elle soit vaillamment, glorieusement
 supportée, vaillamment, glorieusement acquise pour
 
 ainsi dire; soutenue; et qu'il n'y a, qu'il ne peut y avoir
-51 :
 
 je D oes Dee CO
-: Charles Péguy FH EU AS à 1
 de véritable, de totale pureté que dans V'infortune ; ét
 que c'est donc à bon droit que les grands honneurs 4
 secrets de la gloire, les suprêmes honneurs, ont donc à
@@ -89,12 +85,10 @@ société moderne. Il y avait sans doute alors beaucoup |
 plus de crimes et encore un peu plus de vice(s). Mais 4
 il y avait aussi infiniment plus de ressources. Cette pour :
 
-NS
 _ A Nos AMIS, A NOS ABONNÉS
 + _rituré était pleine de germes. Ils n'avaient pas cette
 | sorte de promesses de stérilités que nous avons aujour-
 .  d'hui, si l'on peut dire, si ces deux mots peuvent aller
-ensemble. t
 Nous sommes des vaincus. Je crois, je suis assuré
 que jamais l'histoire n'a enregistré, n'a eu à enregistrer
 des vaincus comme nous, des vaincus autant que nous.
@@ -119,7 +113,6 @@ er revenir. Il faut s'y rendre. Il faut avoir le courage
 _ de le dire. Tout ce que nous faisons, tout ce que nous
 _ avons voulu faire depuis quinze ans est commandé
 
-Charles Péguy A Cu à NO
 par le souvenir, par un souvenir implacable, par la
 trace de ce désastre antécédent, par ce désastre anté-
 cédent même. Par la situation qu'il nous a faite dans
@@ -147,10 +140,6 @@ réalités d(e l'esprit, des réalités intellectuelles et mentales; morales mê
 L'expérience nous a montré, une fois de plus, l'événe- |
 ment nous a rappelé, durement, âprement, une fois de
 plus, que le vaincu ne peut pas parler comme le vainqueur, ou au moins comme celui qui n'est, qui n'a été
-F
-ge 54 NU
-
-4 L _ A NOS AMIS, À NOS ABONNÉS
 
 ni vaincu ni vainqueur; qu'il ne peut pas parler le même
 
@@ -181,14 +170,12 @@ qui ravale sa défaite, celui qui est vaincu, sa salive
 _ qu'il ravale n'a pas le même goût que celui qui est
 vainqueur ou que celui qui n'est ni l'un ni l'autre. C'est
 un goût irrévocable, jusqu'à ce que la défaite elle-même
-ait été révoquée.
 
 Non seulement le vaincu ne peut irrévocablement .
 plus parler au monde le même langage que le vain- ;
 queur ou même que celui qui n'est ni l'un ni l'autre;
 mais en lui-même et dans son propre pays, dans son
 
-ts Gharles  Pégur 0700
 propre sang, dans son propre peuple, le vaincu, le f:
 peuple vaincu ne peut pas se parler à lui-même le
 même langage que le peuple vainqueur. Car le reste du
@@ -264,7 +251,6 @@ seulement ce que le monde dira, comme on a su ce
 
 _ qu'il a dit. Savoir ce que feront les autres. Comment
 
-Charles Péguy n AM:
 l'Europe réagira. Et comme les autres ne sont pas
 nous, et n'ont jamais été nous, et qu'ils n'ont aucune
 envie ni aucune possibilité de le devenir, malgré
@@ -297,9 +283,6 @@ plus merveilleuse épopée militaire que le monde aït.
 jamais eu à enregistrer. Aujourd'hui nous sommes
 reconduits à la même situation, à une situation très analogue. Dieu veuille qu'elle ait au moins la même grandeur, à défaut de la réussite, qui temporelle n'estjamais
 
-58 “a
-
-FAT | A NOS AMIS, À NOS ABONNÉS
 15 donnée définitive. La même situation se reproduira : la
 _ France d'un côté, le monde, représenté par une grande
 partie du monde, de l'autre. En fait il n‘y a plus rien
@@ -328,7 +311,6 @@ pas naturellement d'idée, d'esprit politique ou social,
 — j'oserai dire, religieux, — d'esprit historique enfin
 _ qui se soit réalisé, qui ait même pu apparaître sans un
 certain corpus, sans un corps de peuple, sans un appui,
-1% 59 .
 
 | M 0
 |. sans un soutien, Sans un mécanisme, sans un support
@@ -358,14 +340,6 @@ avons été vaincus nous-mêmes. Et en personne, si je
 puis dire. Vaincus dans notre peuple et comme peuple,
 
 une première fois, au premier degré, nous l'avons été
-
-6o tr
-
-Rd » RAT D
-
-Sie
-
-4 Me |A NOS AMIS, A NOS ABONNÉS
 
 une deuxième fois, au deuxième degré, dans un réduit,
 
@@ -411,12 +385,7 @@ _ coin de la cheminée. A ce coin de cette vieille cheminée
 | secrète. Nous avons été vaincus personnellement.
 D'autres, tout le monde, tous nos maîtres, se sont con_solés de cet échec; plus que de cet échec, infiniment
 plus; infiniment plus que d'une défaite : de cet avorte_ ment frauduleux de l'affaire Dreyfus. A force de s'en
-consoler, quelques-uns, hélas, bientôt s'en réjouissent;
-à 4 ; GI amis. — 4
-“LEP Ê
 
-PAG RE FA do,
-Chartes' Pégur 01e"
 secrètement. Presque publiquement. Mais je ne m'en. 4
 consolerai jamais. Parce que je tiens à être ridicule, et
 seul, et déplorable. Et parce que je tiens à être ridicule |
@@ -437,7 +406,6 @@ atteintes, une atteinte charnelle, une inscription physique de tous les anciens 
 et ensemble, et d'ensemble, de déchéance en déchéance,
 de démagogie en démagogie il a commandé, il a fait
 cette déchéance où nous sommes; il nous a mis où nous KR
-sommes.
 Je ne m'en tairai jamais. J'en resterai, j'en demeure- |
 rai, je m'en laisserai toujours inconsolable. Je n'ai
 jamais tant senti, aussi nettement, ce que c'est qu'un 1
@@ -446,7 +414,6 @@ un monument historique, je ne l'ai jamais autant 4
 éprouvé; qu'une fois; c'était un gamin de dix-huit ans, ;
 qui était venu; et à qui j'en vins, je ne sais comment, à ‘
 parler de l'affaire Dreyfus. Un gamin. Je me rappelle
-62 LANCE
 
 ss |A NOS AMIS, A NOS ABONNÉS
 _ fort bien qu'il »'y a que quelques années qu'un homme
@@ -457,7 +424,6 @@ ma classe. I] me répondait fort honnêtement. Je continuais, j'allais, j'allais
 … viens d'écrire ici, et de ce que j'espère bien que je finirai
 d'écrire un jour ou l'autre. J'allais toujours mon grand
 bonhomme de chemin. Quand une fois il me répondit si
-poliment, si honnêtement, si petitement, si soumis; si
 plein, si porté de respect, si porté de bonne volonté :
 Oui monsieur ; que tout d'un coup, tout d'un ressaisisse_ ment je vis; je mesurai que ça n'y était pas du tout et
 que ça n'y serait jamais; qu'il n'y était pas du tout et
@@ -477,10 +443,7 @@ même possible.
 Comme je parlais il m''écoutait tout, il m'entendait
 … tout, il buvait toutes mes paroles; et comme je parlais
 - il ne m'entendait pas. Pas un mot; il ne m'entendait
-LR 63
 
-D
-; ; Charles Péguy Dose ke
 aucunement. Je disais, je prononçais, j'énonçais, je “
 transmettais une certaine affaire Dreyfus, l'affaire ï
 Dreyfus réelle, où je trempais, où je n'avais pas cessé
@@ -498,7 +461,6 @@ on peut toujours remplacer la rosace abolie, dans le
 besoïn, par quelques carreaux de plâtre. Cela tient la 1
 même place; et même, pour qui veut s'en contenter, par L
 la substitution même cela a sensiblement la même
-forme. AS
 Seulement cela ne fait pas le même office.
 La réalité, l'événement de la réalité, l'événement réel 4
 est cette rosace réelle aux fleurs de rose infiniment
@@ -511,7 +473,6 @@ merce. Après la rosace abolie et seulement alors et à …
 défaut de la rosace abolie quand nous sommes corrects. 4
 Avant même et au besoin en la démolissant, nous
 64 4
-CES
 
 sf et |A NOS AMIS, A Nos ABONNÉS
 _ mêmes, quand nous sommes pressés, quand nous
@@ -524,7 +485,6 @@ carreaux de plâtre que dans le besoin, dans l'universel ;
 besoin, dans la pauvreté nous mettons sensiblement au
 __ même lieu. :
 Je lui donnaïis du réel, il recevait de l'histoire. Dans RUES
-x quel mystérieux abîme intercalaire se faisait, s'opérait,
 _ - s'obtenait la déperdition; la disparition; la défection;s
 dans quel abime de la mémoire même; dans quel abîme
 | sombrait le vaisseau précieux entre tous, le vaisseau
@@ -535,17 +495,13 @@ mystérieux abîme où l'on y met quelque chose, du réel:
 et sans rupture apparente, sous des apparences de contiou il en sort tout autre chose; une imitation; une
 .  conire-façon; presque toujours une parodie; une substitution; un substitut; un remplaçant; une chose tout
 ; à fait étrangère : une opération intellectuelle : une
-_ histoire.
 U Je lui donnais du réel, comme à moi, comme avec
 moi, comme devant un cœur ami du même âge, comme
 . devant quelqu'un qui en eût été, comme devant quelqu'un du dedans, (et c'est exactement le sens de la
 communion, de toute communion), comme avec et à un :
 contemporain. Incontinent et comme ;immédiatement,
 3 comme instantanément dans la même forme, dans les
-sl 65 amis. — 4.
 
-ras Lo
-Charles' Pépur 000 el
 mêmes paroles, dans le même moule il entendait ceci qu 4
 de l'histoire. Dans le même temps il m'entendait déjà h
 comme un homme d'un autre temps. (Dans le même L
@@ -567,7 +523,6 @@ même mieux, et on le joue dans le langage de l'histoire.
 Ce que je nommais l'affaire Dreyfus, avec une certaine
 intonation, lui aussi le nommait l'affaire Dreyfus, non ;
 d'un autre mot, vous pensez bien, avec la mêmeintonation, mais transportée seulement dans le registre du
-respect. }
 De sorte que ce qu'il y a de merveilleux, c'est que la ;
 conversation peut continuer tout le temps, sans qu'on à
 s'entende jamais, et qu'en fait toutes les conversations R
@@ -577,10 +532,7 @@ réel, il n'y a bientôt plus que l'histoire qui parle; mais :
 elle parle toute seule entièrement substituée; élément
 pour élément; pièce pour pièce; seulement c'est pièce A
 inorganique pour piècé organique, élément mort ét
-BAT 6
-mr A
 
-RUE A NOS AMIS, A NOS ABONNÉS
 Le calcaire pour élément vivant animal ou végétal. C'est
 une pétrification. Mais nous avons trop d'intérêt à ne X
 pas nous apercevoir de la substitution.
@@ -596,7 +548,6 @@ qu'il y a la réalité, l'événement de la réalité, et qu'il y
 a l'histoire. °
 Ils sont décalés l'un de l'autre, décalés de l'un sur
 l'autre. Entre l'événement réel de la réalité et l'événement feint, imaginé, imité de l'histoire un abîme se
-creuse instantanément partout, à chaque instant, à
 mesure, automatiquement, une fissure, intercalaire, une
 intercalation court partout. Un frémissement, un fris-
 - sonnement, un frisson de rupture secrète court partout.
@@ -608,9 +559,7 @@ se meut. Le passé, où qu'il atteigne, déjà, où qu'il
 s'avance, où qu'il monte, où qu'il ait gagné, quand qu'il
 commence à chaque instant, où l'on ne se meut pas ; et
 _ où l'on a de bonnes raisons pour ne pas se mouvoir.
-É 67
 
-- d i REA RATE NE IN RIRES LR De.
 Pour chaque homme et pour chaque événement, pour
 tout événement élémentaire, pour tout élément, pour
 toute molécule d'événement il vient une minute, ue .
@@ -646,11 +595,6 @@ cahiers. Aussitôt après les suivants ne nous comprennent 4
 plus et ne nous comprendroni jamais. Tout le reste est ‘4
 hautement honorable, ce qui suit, et utile, et souvent 4
 
-68 +12
-
-SMS
-
-‘HAN _ A NOS AMIS, A NOS ABONNÉS
 | beau; et il y aura même les élèves, hélas, et il faut qu'il
 . y en ait. Tout cela n'est point l'amitié. L'amitié est une
 ‘1 opération charnelle qui se fait une fois dans la vie. Et
@@ -683,9 +627,6 @@ comme toute opération humaine) on ne la recommence
 pas davantage; ça compte pour joué; on n'a tout de
 _ même que cette fois-là. ‘
 
-lee nn
-
-; Charles Péguy AS vo Re
 Il est donné plusieurs fois à l'homme de faire son
 salut parce que ce n'est ni essentiellement, ni. surtout FE
 efficiemment, ni même originairement sans doute du 4
@@ -717,18 +658,10 @@ Il n'est donné à l'homme de se faire une amitié, de lier à
 l'amitié que dans une seule génération, dans une seule
 promotion, dans une seule zone. Le reste est autre. Il ‘
 n'est pas donné à l'homme de se faire un autre berceau,
-70 | | 4
 
-ê QrteS
-
-AE 4e 2 IN
-
-FR TM
-Re + À‘ @ÂA NOS AMIS, A NOS ABONNÉS
 à _ ni de se refaire le même, enfin de s'en faire un deuxième
 . de quelque sorte, ni de prolonger outre mesure, au delà
 . du temps marqué, l'usage de cet osier.
-4 CHARLES PÉGUY
 à Je profitai aussi de la grande clarté qu'il y avait pour
 
 voir aussi et par cela même que comme j'ai eu l'hon-
@@ -761,7 +694,4 @@ _ Et c'est vraiment ici qu'une nuit de Paris ne répare rien
 
 _ du tout.
 
-, - pui :
-
 |
-!

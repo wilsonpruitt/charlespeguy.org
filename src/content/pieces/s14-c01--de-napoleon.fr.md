@@ -7,147 +7,63 @@ author: andre-suares
 isAvertissement: false
 wordCount: 9226
 ---
-
-CR CAHIER DE LA QUATORZIÈME SÉRIE
-SUARÈS
 de Napoléon
-(39979 _
-A.10.1€
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 ? Re fire RO PE une URLS ours F4 her
 x DRE RO NT ASE OR SO TE ere FASO Ne e
 . OS Ne rs me | Pt PAR ER ES D ANS TE Sue
-TL RE EIRE Fa RARE TPE ENT) PLAQUE
-KA INSEE NX ‘ ENST VE ANT NRRES è
-YPO ee F 5 LR £ AERS Meet NES TE
-CRE VI : : “a É VAR RCI NE
 PAL PONTS ? ; ‘ L F3 D'UN ART EE er OI Riot
-FPE de à ; 2 TT CNRS ALU AL DE
 APP Ep fl N = NE URL EE TER NT EEE
-Po l'E ; 5 RER À ANTON LC EAN AR ta
-AE à { + AA RS Cut GUERRE ht
 2e (PRES ET Een AR
-ri * \ É te). AE F1 VER AATUAES hi
-RE | ù LENS PAM ORNE SERA A Cl i
 F S Y RPE : : d (924 17 x Ha Cha are PR Eur) 0 » L'EME ÿ des LR TN RNA RER Le Re
 Por Mt : Dur Ÿ MER { REC de Rs HA # :
-pr F4 { ” LAN 3 A ER W RD AN re Ms dora À 77) AA
 LV dl Havr ALORS : PIN NP 0 FN MANN TAN ER PONTS
 +. Ce, en, | t ANA Sn OS LAS ETES ae que ARTE
-
-SORT NE 2 AR GE LT REA et LE ANT EE VENTE CU AT AT ERA
-
-D UP EM ON RAR ET à NU PENSE
-Ai} 4254 ARRET SET nt LES FES Se CU TE NL NS b HANECIRE POP
 
 Pre Al At à à DE UN RP 1 TAN DANN RARE pi PAT LE
 
 | MN ES Se a RAR
-M CU PUMA
-À VE VIRE ART MO AA ES ] (ER A” TÉ TU LAN CH LR OT ER
-ee CTP 231 ER NOT PAIE
-} M NIEEO Es y PP } d 3 AR CRE HP
 moine } PAT LR . L'ETAT
 LEUR à Din} te L EU LRU NAS re + 2
-M ‘ A » A PIE: RS FRUTORSE er TT
-‘55 284 D d j ner É FAT (X400 WATre
-APTE) F 2Pa CRAN HE 14 CONTE 1
-“RÉ | RE THE ds M 15 dv
 
-1 ei A # 3 14 À p) JUN 4 éy NOT 4 40
-RTE F : 2,2 14; ITS
-
-À ATP AN ARE Pod J | 2 0NT RER RES
-ÉASE Fa à ; d APPEL rl TUE MAUR AE a CP Det e ÿi
-a A NAN 6 A OS NEA
 # NO SANS a DONTAN ETS Se, D poléon. — 1  ! f
-nn na RE che 2 oO ROMEN SPRICE
 
 (jt 007 EE it je D NTRR Re 44 D Ut TN € a SEM A
-
-+" RL SH à UD PEU Tee CRUE 167 HAT. POSER
 
 PANNE RS He RARE on AA te
 
 1 DURE TRES ANS 2 LE Elie Li we PR RSR RP CN OUEN CRE RAR EME EN TES { b
 SR PIMEN EL DANS NPD ne NUE MER Sy Re LI POTTER fe
-1 CHIENS RO UN TER ANUS ENS
-ge » SPÉRTQRS PPT LAS RE AE RAS EE ASSET) VA I CSSS
-LE NM AN RER CONTES
-LT ER ERP 26 PRG EL AIRE Aa LE
-AA RARE FRMEAAX LU RATE : |1' AMENER
-NAYLRTE FACE OMEN ASS: ANUS R TS AA LT à.
-Fra A sil 14 fi ST EU { M LIT RES 2 . = EC EME y ;
-SEE 4) A IEEE CARTES, VAR: V@7 SR PAU QAR ‘+4 PÉMRANUTE
-2 nt CM LUS TAN OS INEENSNSSSES
-Lo) fl x FF nS LAS SA ER NN "SR AA (ES MU k
-NRA ‘Le NA RAS MAL LR REA ORNE € UNE TS DATE HN av)
 A A ‘EE LA GARE \Y PRIE VRP Fa ER IF ane Li ns k NEC
 SAN 4 46 141 MONTRE ADN DE SON | MALTA ue 1e à pa TRES
-+... 2 CERN L'or m1 L (OPEN AE OR SE POP AATRAUEUEERS TT ES
 1 D OC NUS ee À A CR Ver 494 ON EEE HEC ter AA ie A 4
-1; 0e ê DA AR RAD RE ANA VPN ONEE NtE ras FA d RL ARS
-2 NN NANIMNSSEREES AREA FU NE Le + À INR RARE
 
-SN PE Ca RE TE SN A REG 11 6 ve Er A ET EE
-2 4 MPEG L'AUTRE S dt SAME: ‘PHARE
-Jr LOI LES Me Pr NE ; Le #4 L TA J Ole Me PRE" PCR USE ETES
-15 3 NE LE Aer ANT ACER ARE EVE EN SE HIER CT CES
 NE? Lux a 142, ET RTE ATOME AE Are PAT Me CENT RTE le AN
-ES ER THE FE 1 FA Re 64.3 HU ÉMIS RE à Mir
-: 4 A RM RES TE NEA PE VOA DUO AR STE FOR ES l'AS ER N DEN HE.
 4 Et RP du TS MANN PR die LE MOTO AEUNES Va LA RE res W
 . ÉTAT RE GRR TN RENE UE RARE 0 Dans tp re CRE | AN LT 720 V3. VOTES
-TR ET CRE ER A ER I CRT ES 2 AT ES NNEER
-A RP LA PA NE ATTAE ALES TR" LAOAEMRE
-Fe. MR # RARE
-PARLE Ci : 4 u " 14 3 tag 6 NPC >" HE AS
-en, 0 + “HE RTS ES APN TON PEN LA RUE SRE
-42 V0) CNE ÉR: | AR Le
 Gers : FAI OUTERS PNA ÀARL SUUUE Uri L APE + Re gr Y LG UTENTS “et RER
 La ur 2 Lite Ant À KES 1: Lie EN es
-A A ME OS ESS, Re AISÉE
-NS : y 14 ñ 22 À Len LT NE HALLE RE RARE NE L Nr W' (9
-4% 2" si 2: DE 4 Pt WT Up TI IN AL" n! +? at La F2 US #
-1 IR RENE HE pe A AAA PE ns D NL
-TL QE tee D Se UE AT A Co EN ES
-Le AAA SRE A Au CR Cr EN PES
-TA € PAF DNA A 7 _ ss Le: DER EE
 
-FA NV AR Un Cm ua ME RTE (5/1 n}
-in da RER € SU (TEE Ml dre f ,
 NA A Vaud VISE ch RE ut NE PRET On s hein ARE A
 NE RATES VA SE te AU FR Ant APN OU) LANGE Rs
-7 AE STE UT A ER GT RÉSEAU EP CHE e AA US AE NL, (Le “AE 45
-TR PAT 1 { A! | Yates o
 AA en 2 à LEE ! à ROME EVA \IPATA PS ES HAUT Near NL FAT Le RSA
 | VAN DR x A PNA A CR | (ER k
 4 £ (o LAC AGTU (ee de na HIGURETAE Le IR Re |
 A Mc 4 : AE Ne \Aa" "0 gi RONA ES DUT ' La ec)
-te HR RE n AE UM MAL KMS eNE à 2 7OR LEE NCA
 ds ‘UE Mn V' Fe M # ñ Re À ; LA « sine RE “ AU \ AE
 RS NES à se 2 ÿ ou > $ PAASEAN EU.
-14 AAA PS À £ FE el pra ï “+ Ù AN RE Li fc Hi 4
 A4 KE pie RS AR AA pre ne MEL LUE
 AA ‘oil 4 D) 4: \ 3 re Un WY W ie Sy tx ré A F hate LEON M
-SO UPRISES RU EE NL Fi à Tps UE à nR {
-WI A TIR VaU an . 1,0 “Ve
 
 | QUELQUES ŒUVRES
 de
-SUARES
 
 aux CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne :
 Sur la mort de mon frère, 1 volume petit in-8, 1904.
 La tragédie d'Electre, 1 volume grand in-18, 1905.
 Le portrait d''Ibsen, 1 volume grand in-18, 1908.
-Visite à Pascal, 1 volume grand in-18, 1909.
-Tolstoi vivant, 1 volume grand in-18, 1911.
-Dostoïevski, 1 volume grand in-18, 1911.
 
 à l'OCCIDENT, 17, rue Éblé :
 Voici l'homme, 1 volume grand in-8, de 450 pages, 1905.
@@ -166,108 +82,45 @@ Voyage du Condottière, tome I, 1 volume grand in-16, 1910.
 chez ÉMILE-PAUL, éditeur, 100, faubourg Saint-Honoré :
 Sur la vie; Essais, tome II, 1 volume in-18, 1912.
 
-ÿ
-
-{ SERRE AL CAEN er VAS CA AE AE À SA à RENE LEE EAAQYES
-FANS in po At dpi LOT “UE a
-UD AE VAE SRE o1 (Lies ANA IUr D 00 en ARC A0 À ÉANEL LAS UE
 JTE Le HA HÈNE RAR AU MON h ARCS FH NE qi ja ie ve
 RE FRS ELA k TN Nr ae EN Le LATE
-1e A RNA DE Ne AU) Faure 17 ANR x À
-1 TA Ua TE 1 ANTON AT RS Nu A |A x
-Î : Vu UC RAA EEN LENS \ k M | 19] Ÿ MIE (I N LL NME
-M RU s RAR \ LOUE, MANU (NANTES
-A ae ! ut. ‘tv ALES AM) Ed ) DEA:
-KL PUR F \ ñ ù CR at QE ELre
-ASUS (ot :) L'ART TANIRES AU EC Î ANA TRES NITAAENT e 4 'VATR MEUIAES
-PEN ï CHEN: A OR AR ROTN (AGE 417 SAR Co | INGE RARE à ART
 eUY 14 LUS von NE PA CS UN LEAGUE. pr TIMES AP
-nn DR NA EN AS CRAN
 
-FAN (5% ANUS Pas NA Ÿ AU HAUTE EN 5
-HS M9 id LES LMP VER APT TO ANA RTS a ACER CARE
 MT 0 MER PTE Ne AA on DA MAN A LE RE AT
-SP HT Re LEE RARE Re À DE MN TES RAR Up
 Re ins it La AP AAE Lo. HSMREUR al PUR |} 6
 ie “00e PAU DE sh ete CN LIL LA fon APE A HENNTIE ut ENG AUTRES
-Tee : ; NÉ 20 EMA
-Mix NS u (1) ARE 3104 AU
-"KE i + L'HEURE
 "ATEN ‘É TE HAT à MA qi ÉCRAN
 Pas Le REP NU TS" | LRÉCREE MER
-HS Ta NS D Dr Tu PAT TL
-144 € À eu WA AFNOR 4 FA
-D è ; Dr OA BR) Va y
-TOR ] ” , 4 À * FAT h PATATE EXACT SR
-DRAC ONT © RAR MARQUE LS ESS FA AN RE CHE AVAL ur
-DRE SE | 4] HAUSSE NS DUR A RSS UE NN RUE
-e! AO SRE RE AE RS RE A
 OR 4 es 47\ VON LA RUE | et AUS DELA |; NN OER
-DR 14. HA Le p, ; MEN NS EETE 1, COR 4
 ONE RAA de: EP it AU k RAA PAR NN en 7),
-
-Li 1
 
 ‘te AMAR € de ANOROMERN NES NAME Pt Re) PRES
 
-WU sf RE SN LENS HORAIRE DATE Ki ji AA ‘ nt he STE
-
-DAC OO DNA ALT RO NT RUE PU ENT A CEE ENTREE
-
 mA gun DURS 4 M Re GA A DES A ETER RAA AA ANS que Aa l'E RAC
-
-HA US LOS CU BP. L'AIR VE ADP ONAUIAT ter PAT PSS
-0 00e AU EL SENS
 
 1 NE MENT AN CU MP 2 NE VQU e xs PAT A Le ANS RSC ETS re
 
 | RUN FI * à L NE , [ ARC IN 76 y à x UMR
-HAN TEA É UN 'ST ENT tx CPOANE CARS AUS 4 EL ENT ANNE PERERRN e
 
-“Au N'a NOR NE CAR ANTON ( EE TRS HATANAOS Te FR
 NE di NC NE 4 APE NS ETC A PAIE 1 DAADAEA | ou!
 
 OU ue ERA ES 45 0 TIME TINTIN
 per LAN SL CT RETIENS nie ul * ; UE UC ‘i DU D 1
-NET, Ÿ \ Hu : AAA ANS Aie DUT 4 , WE
 
 4) SATA AT LAN AA { \ PAST l ( & Fall jh MA NA À Ai
 
-wi UUx l 020) wi (t 44 } Lee Ÿe LR
-
 |: 22) 1 ONE EN Ho x AO A PE PAT CNIL + EN SE
-
-(PAPA ue A TA RAC UE PEAR A A AUDE € NE CRE
 
 pur DE: ANTON art AA PA ED RE ANRT CARE AE RAR y
 
-A où 1 So) QI le: CAR PAIE #21) \
-tn) ANNE MRC ONE LR NES ;
 ‘ PE ARE ETe de Soi DRE D A y Sr $
 Has \ 42 de AS RTS SES ADR DE EAN G ‘HN FT FAR RAT re due dr
-4 DRE Ed RES PORN ANSE 5 NC) EE EE PEN en AE
-AE EN RO ND ee NAT an FA GINÉOENENEES
-0 RE ON A t A RC NE PT Tu À ARE 2
-D ame EN SU Ni 10, dON IRON ES SRE
 iv 1% $ PET Ne AAA Ste (Le RARE RE LUE à He PL NT NM ae Rx ST TOR
 KA TERRE LE LES D'ACA PAPAS ER ECERE AE et AUX EP S Unes
-, x tl M NT 3 (1, 2èe Li v
-A ; | 48 À | 1 TPS
-NET AR l'O k tu À t 22 TVR
-BA " Re } d ï '3 _ sa
-TERRES : t£ ? ; } { LÉSTÉRONR
-0 OU
-A A ON à 4 + ] } " à 9 4) NOTES
-(L'AUECS | DAS CAE) SAN PER ONE RTS ANUS Mi ALT # ; DS MT |
-1 1 VAE ANSE SEM ré : x F4 } :! RÉRSURES
 Na (a nn 4 SOEUR à ÿ S n ARE Ole M Ta Pro). 1
-(1 ei N * À NT:
 On 0 re + de Fe MAR R ENE EU EON J
 APE € - AA PE SAN ANS Ron Ge APTE Se NE NICHT Port {
-eŸ AE A TOUT FRET PRG MT EU RPC NME Me ” a
 
-SUARÈS |
-I
 Le monde est plein de son nom, et
 pour longtemps encore, il semble
 plein de son œuvre. Il a épuisé la gloire
@@ -276,9 +129,7 @@ Napoléon est le souverain spectacle de
 l'action. Gomme elle, odieux et admirable.
 Mais la grandeur emporte tout. Et ceux
 qui ont l'âme puissante, pardonnent tout
-Le:
 
-Suarès |
 à la puissance. Toute sorte de contradiclions en lui, mais toutes accordées. De là
 qu'on le hait et qu'on l'admire. La France
 n'a pas cessé d'en être vaine, comme une
@@ -286,8 +137,6 @@ femme qui a eu pour époux le maître de
 tous les hommes. Elle ne peut penser à
 lui sans frémir; et dans son frémissement, autant qu'elle le regrette, elle a
 peur de lui, elle a peur du regret qu'elle
-
-garde.
 
 . Il est tout ce qu'on veut, bourgeois et
 Jacobin, peuple et soldat, empereur des
@@ -306,14 +155,12 @@ la paix, il a donné les formes de l'armée
 et de la guerre. Il a la passion de l'unité :
 tel est le génie de l'homme seul, sans liens
 profonds qu'à soit même.
-Il
 Il est l'homme de la Révolution : il est
 donc l'homme du destin. Il accomplit
 l'œuvre énorme que la Révolution lui pré-
 pare. Il est pareil, avec sa grosse tête
 d'enfant boudeur, au marmot qui ras13
 
-Suarès
 semble les morceaux du jeu. La Révolution lui a jeté en tas les pierres, les poutres
 _ neuves, et les débris; il s'empare du chanlier, et il bâtit la maison aux deux ailes
 de bourse et de caserne. Et des arcs de
@@ -326,11 +173,7 @@ D'ailleurs, se servant de la raison sans
 scrupules, il y asservit tout ce qui le
 gêne. Il pense : la raison, c'est moi. Et
 voilà les crimes de l'ordre et la raison
-d'État. :
 
-DE NAPOLÉON
-
-III
 Ils disaient de lui : l'Usurpateur. Mais
 rien de plus fort ne peut être dit du conquérant, quand on refuse puérilement de
 lui donner son nom. Le pouvoir légitime
@@ -345,13 +188,11 @@ sa puissance, celui-là du: moins a plus
 
 que le pouvoir : il a l'autorité,
 
-Suarès
 C'est pourquoi, lui qui est la force, il
 est l'ordre aussi; et l'ordre bien plus
 même que la force; car l'ordre est le
 second âge de la force, et tout le blé de
 l'épi.
-IV
 On le croit Italien, parce qu'il ne peut
 pas prononcer les « u ». On le dit Toscan,
 | parce qu'il y a eu des Buonaparte à San
@@ -360,8 +201,6 @@ vise et à Udine. Mais, certes, Napoléon
 est le moins vénitien des fils de la Méditerranée. Que lui importe la volupté, et
 la chair? et les femmes? |
 
-DE NAPOLÉON
-à
 - Il vit de haricots et de pin rouge. Un
 peu de café. Il ne fume pas. Il prise,
 pour occuper ses doigts, regardant sa
@@ -375,9 +214,6 @@ vaincues, une femme et un souper. Il
 expédie le souper en un demi-quart
 d'heure; la femme, en six minutes.
 
-Suarès
-
-NL
 Une fois, il a aimé de passion : il avait
 vingt-sept ans, et venait d'avoir la gale.
 Avoir la gale est une bonne entrée de jeu :
@@ -394,8 +230,6 @@ sans tête, sans mœurs, sans esprit, a tout
 le charme de l'idole charnelle. Elle a le
 goût des parfums et de la toilette. Elle
 
-DE NAPOLÉON
-
 se couvre de dentelles et de soie. Elle
 
 | est gourmande. Elle jacasse à bout de
@@ -411,12 +245,10 @@ tout ce qui tente les autres et tout ce qu'il
 dédaigne : il s'empare du luxe et de la
 chair; il croit jouir en elle de toutes les
 folies : peut-être même jouit-il d'être
-dupe.
 
 Plus tard, il a un autre amour de
 raison pour Marie-Louise. L'homme de
 
-Suarès
 quarante-cinq ans, l'aigle gras, au gros
 Jabot, le ventre plein sur les petites
 cuisses, veut sentir, dans une victime
@@ -439,8 +271,6 @@ esprit! L'amour de tête est l'exercice
 Javori des trrans.
 
 | FNÉRENE
-DE NAPOLÉON
-VII
 
 Sans doute, parler du Corse, c'est
 nommer Napoléon : il faut encore le
@@ -458,7 +288,6 @@ elle a l'odeur profonde de l'Orient. En
 mer, par la nuit d'été, le parfum de la
 Corse enivreles narines,comme la tunique
 
-Suarès |
 de la Sulamite déployée. C'est une sen- |
 teur de cédrat et de myrrhe, d'encens, de
 thym et de cyprès : plus douce que la
@@ -477,7 +306,6 @@ son aile à la fois et de son doux gémissement.
 
 La Corse est une Phénicie villageoise,
 
-t DE NAPOLÉON
 au génie punique. Le clan est l'âme de
 la Corse. Ils vivent par clans, comme il
 y a trente siècles. Ils ont la morale du
@@ -489,15 +317,12 @@ l'excuse de la perfidie, au besoin, et
 l'usage légitime de la violence. Ainsi, la
 vengeance n'est pas un droit, mais un
 devoir; et jamais le clan n°Y manque.
-23 |
 
 | Suarès
 
-VII
 Le Corse est le cousin du Génois, mais
 non de l'espèce latine qu'on prétend. Les
 Ligures, grands hommes d'action en tout
-_ ordre, depuis Jules IT jusqu'à Mazsini,
 marins de naissance, pleins d'astuce et
 de ressource, volontaires et rusés, fourbes
 parfois et souvent prophètes, animés de
@@ -509,11 +334,9 @@ slinct ni d'origine.
 Ligure, Corse, Napoléon a le génie
 punique dans toute sa puissance. C'est
 
-DE NAPOLÉON
 le Carthaginois consul de Rome. C'est le
 nouvel Annibal, l'épée dans une main, et
 le code dans l'autre.
-IX
 Napoléon est l'homme du clan; mais
 son clan est le noyau du monde. Égoïste
 comme la conquête, comme la possession
@@ -524,10 +347,7 @@ des hommes, la matière où travaille sa
 * volonté. Il traite la Révolution, la France,
 et l'Europe comme un village allié, ou
 un village ennemi qu'il a conquis pour
-20 Napoléon. —
 
-À L'PRÈE)
-Suarès ai ;
 sa famille. Quand l'Europe lui échappe, !
 | il lui reste la France; quand la France, |
 k les débris de la grande armée; quand |
@@ -539,24 +359,19 @@ soi jusqu'à la simplicité. Cette simplicité
 | nourrit la force. Maître du monde, le
 dieu du clan fait figure de grand bourgeois, tant il administre avec une parfaite
 économie son empire et son Olympe de
-gloire.
-X
 Simplicité qui déconcerte l'analyse: :
 le moi plus fort et plus plein, plus continu
 
 |
 
 | DE NAPOLÉON Ë.
-: 1
 |
 que tous les éléments qui le composent.
 Tout lui est objet, à prendre, à manger, }
 à garder ou à briser : c'est l'idée d'un $
-*
 enfant qui joue avec la vie universelle, 4
 ne doutant jamais de soi, et par là don- (
 nant crédit à toutes choses ; car les choses L
-É
 ne sont rien que par rapport à l'usage
 qu'il en fait. Magnifique simplicité, toute # +00
 contraire à celle de l'artiste! Comme il ÿ
@@ -569,16 +384,9 @@ ciel uniquement pour lui dispenser le ‘4
 soleil et la pluie. Jamais homme ne fut Ni
 si peu de l'Occident. Il n'était pas vulné- 1
 rable à la tête ou au cœur, ni même au 4
-27 À
 
-"1
-
-Suarès
-DNS Eee. RUE ROSE NONT ES PATENTS
-L]
 talon, comme tous ceux que le rêve a
 | trempés, dès la naissance, dans la vague
-atlantique.
 
 Soit. Et, du moins, qu'on regarde en
 Jace les moyens de la conquête! Ah,
@@ -590,9 +398,6 @@ Où donc est l'unité de cet homme, en
 qui l'unité est si forte? On est maître
 dans l'action, à la mesure où l'on est un.
 Nul n'en a l'instinct plus que lui, le grand
-Punique.
-
-l DE NAPOLÉON
 
 Napoléon est L'HOMME DE LA VALEUR,
 en tout ordre, en tout lieu, en tout temps.
@@ -605,7 +410,6 @@ penser. Il place tout sur ses balances, et
 il n'a que faire de ce qui ne s'y laisse
 pas placer. Il n'est pas mathématicien :
 il est l'arithmétique incarnée. Au soir de
-Friedland, vingt mille morts, soixante
 mille blessés, c'est lui qui dit : « Une
 nuit de Paris réparera tout cela. » Il
 n'est pas aveugle, il n'est pas insensible :
@@ -613,9 +417,6 @@ il a vue sur ce charnier énorme; il en a
 la puanteur au nez. On était en Juin.
 Mais ni l'horreur, ni la tristesse, ni la
 
-29 Napoléon. — 2.
-
-Suarès
 putréfaction, ni les cris des mourants ne
 l'occupent. Son affaire est ailleurs : ayant
 considéré l'immense carnage, il l'a pesé;
@@ -631,8 +432,6 @@ des corps.
 Celui qui commande à la guerre,
 commande à tous les marchés. Il règne
 sur les valeurs de la matière; il donne
-
-DE NAPOLÉON
 
 l'étalon légal à toutes. C'est pourquoi le
 
@@ -650,7 +449,6 @@ il y va, pour un peuple, de la vie et de la
 
 mort. La guerre est l'opération qui les
 _ enferme toutes : elle est le mètre temporel
-, ‘
 
 entre les intérêts et les nations.
 
@@ -658,8 +456,6 @@ Ce grand juge de la valeur, en conqué-
 rant qui a besoin de la vie des autres
 hommes, devait faire de la valeur mili-
 
-d RE
-Û _ Suarès pus
 taire la valeur par excellence. EL le cou
 rage, en effet, est la plus haute valeur à
 Le ses yeux. Le chef de guerre n'est rien
@@ -677,11 +473,8 @@ ces forts parvenus, à quarante-cinq ans
 el à cinquante, ne voulussent plus risquer
 leur vie et tous les biens de la vie sur un
 
-DE NAPOLÉON
 coup de dé, comme ils avaient fait à
 trente ans, pour acquérir la gloire et la
-fortune.
-XIV ;
 
 Le chef de guerre spécule sur les
 hommes : ils sont la matière première de
@@ -691,10 +484,7 @@ il arrive que les hommes se refusent. Les
 mêmes se font toujours tuer, jusqu'au
 Jour où ils sont morts en effet : le jour
 aussi où tls se relirent de la partie et
-veulent vivre.
 
-Suarès
-XV
 A force de manier les valeurs, Napoléon a oublié que la valeur humaine est
 sujette à varier, et qu'elle n'est pas uniquement passive. De là, que si profond et
 | si maître de lui dans le succès, quand il
@@ -707,13 +497,6 @@ calcul ne sont plus les mêmes. Il fait les
 mêmes opérations avec des grandeurs qui
 ne sont plus du même ordre ; et il s'étonne
 de ne plus trouver au problème une solu-
-
-lion juste. !
-
-4 |
-DE NAPOLÉON
-€
-XVI
 
 Sa politique était celle de la victoire.
 Dans le désastre, il n'était pas pris de:
@@ -751,8 +534,6 @@ Car, il est vrai, c'est la valeur la plus
 variable. Elle n'est pas assez sûre, pour
 l'Empereur de la valeur : il s'étonne de
 
-4 AA h) j x + i
-DE NAPOLÉON
 | ces cours forcenés. Tant qu'il est là, il
 ne veut pas croire que cette valeur puisse
 réduire à rien toutes les autres. Maitre
@@ -770,27 +551,20 @@ sommeillait pas que d'un œil. Avec les
 tristes Habsbourg, qui peuvent bien avoir
 tout perdu dans le naufrage, mais à qui
 reste toujours la grosse lippe; et elle se
-97 Napoléon. — 3
 
-Suarès
 gonfle de rage, quand il leur faut mettre
 leur blonde fille dans le lit du capitaine
 ligure, qui sent l'ail et l'eau de cologne.
-L
 L'empereur pèse les provinces et les
 royaumes ; mais il n'a pas d'assez fines
 balances, pour peser les sentiments. Il
-, ° » REA
 n'y a pas d'états tenus à jour pour les
 passions, comme pour les régiments.
-au
-XVIII
 Le triomphe de l'idée punique est sans
 doute le triomphe de la raison : à tout le
 moins, celui de la pensée antique.
 On peut toujours ramener les espèces
 
-DE NAPOLÉON
 de la raison à des valeurs en quantité.
 Plus que jamais, ici, Napoléon est le
 fléau de la Révolution, battant le blé du
@@ -802,18 +576,14 @@ maitresse absolue, elle est une table des
 valeurs toujours au courant. Elle n'omet,
 précisément, que la vie, les sentiments et
 les passions.
-XIX |
 
 Dans la paix, Napoléon s'exerce à la
 guerre par l'implacable exercice de la
 raison. Il est admirable, comme un État
 
-Suarès :
 fondé sur la raison, se gouverne par les
 maximes de la force. Sa loi est sans
-pitié. 1
 
-XX
 La connaissance de l'or et du pouvoir
 véritable dépend de la raison. Par la
 haine qu'on lui voit des voleurs domestiques, des parasites, de la concussion,
@@ -825,15 +595,12 @@ n'aime pas l'or comme un avare. L'avare
 est l'esclave du signe. Napoléon, sous le
 signe, adhère au fait comme la pie-mère
 
-DE NAPOLÉON
-: ,
 au cerveau. Il vénère l'or en conquérant.
 Le conquérant a sa façon de vénérer, qui
 est la possession jalouse. S'il avait pu,
 Napoléon eût été l'unique banquier de
 l'univers : il révait de détenir tout l'or et
 tout le crédit de la planète.
-XXI
 
 Napoléon, le premier depuis les grands
 politiques de Rome, a su que l'or est le
@@ -842,11 +609,6 @@ conquérir et de les manier. Le fer est le
 manche et le levier de l'or; mais l'or est
 la pointe du fer, qui perce tout. Le fer
 disperse l'or, et l'or dissout le fer.
-
-4x
-
-Suarès
-]
 
 © Aussi, Napoléon ne peut souffrir qu'on
 prévarique. Le moindre vol fait à "État,
@@ -867,12 +629,7 @@ de l'opinion, aujourd'hui, n'aient pas le
 front de comparer à Austerlitz et à Iéna
 un coup sur le suif et les cochons. Quand
 
-. 4 F DA
-DE NAPOLÉON
-
 Napoléon règne, Ouvrard est forcé de
-
-seroir.
 
 Le destin, dit Napoléon, c'est la politique.
 
@@ -886,12 +643,9 @@ qui affirme. C'est l'homme en volonté.
 Il s'agit bien de commerce et de faire
 fortune ! il est question de forcer la
 
-k Ve r 4 4 cn
-Suarès À
 fortune, et de museler la fatalité. Qu'elle
 suive son maître à la chasse, la chienne !
 Qu'elle arrête pour lui!
-XXII
 
 Pour achever l'homme de la valeur, en
 Napoléon, il y avait l'esprit latin, le
@@ -904,8 +658,6 @@ Une seule valeur, une seule monnaie,
 une seule signature : un étalon immuable
 pour toutes les formes de la richesse et
 de l'action. Voire, de la pensée. Sublime
-
-DE NAPOLÉON
 
 ridicule des idées de Napoléon sur l'art
 
@@ -924,9 +676,6 @@ sacrifier, et en partie lui-même. Il ne
 pouvait pas admettre qu'on cherchât des
 variables ou des obliques aux perpendi-
 
-45 Napoléon. — 3,
-
-_ Suarès à
 culaires politiques et morales, qu'il avait
 abaissées du point fixe : l'intérét de
 l'État, tel qu'il l'avait conçu et confondu
@@ -945,9 +694,6 @@ minel, ils poussent celte ignorance jusqu'à |
 l'atrocité, jusqu'à la sottise. Napoléon
 eût volontiers promené le même rouleau
 
-dé A
-DE NAPOLÉON :
-
 sur les églises et sur les religions. Au
 Caire, il fait le mahométan, et le vieil
 orthodoxe à Moscou. Il enrage de n'avoir
@@ -964,12 +710,9 @@ le lion du désert. D'où tire-t-il ce sens-là ?
 Mais comme le nom lui va! le désert
 étant de Carthage et le lion de Rome, H
 
-Gares
 aime le désert; il en est profondément |
 touché. Et la vie est sa proie : tout lui
 est proie. Il ne respire que pour le règne.
-
-XXVI
 
 L'homme du destin sera toujours
 l'homme du jeu. La politique est le
@@ -995,15 +738,11 @@ fortune, qui est le hasard complice. La
 fortune d'un conquérant est toujours soumise à quelques coups de dés extraordinaires. Lui-même, c'est son génie de les
 tenter. Le grand César n'a pas craint
 d'en faire l'aveu, parce qu'il avait tous les
-courages.
-XXVII
 Napoléon parle de son étoile, comme
 
 un fidèle parle de son patron. Il la loue,
 
 il la vante, il l'accuse. Je suis sûr qu'il
-
-Suarès
 
 la prie. Quel joueur n'est pas superstitieux ? Napoléon a ses fétiches el ses
 secrets pour conjurer le mauvais sort.
@@ -1019,8 +758,6 @@ tas sur ce beau front, qu'elles diminuent
 et qu'elles alourdissent, mais qu'elles ne
 sauraient pas grandir.
 
-Ar DE NAPOLÉON
-XX VIII
 Il joue sur les faits, le fort aventurier.
 Il a souvent caché la table de jeu sous
 les oripeaux, sacrés à tous les hommes,
@@ -1035,9 +772,7 @@ son petit dans les langes. Joueuse elle |
 aussi, Letizia, la vieille Parque, mettait
 des millions à l'abri, dans les temps
 . solaires d'Austerlilz et d'Iéna, en prévi-
-(2:
 
-Suarès |
 sion de la saison noire. Et elle osait dire
 de ses fils, tous ensemble en peloton, le
 grand avec les petits, comme ils sont
@@ -1050,14 +785,10 @@ la dernière qui fût jamais venue à l'un
 de nos rois : le hasard, maître du prince,
 et rot des rois! On ne peut pas gagner
 toujours, et il faut admettre que l'on
-perde.
-XXIX
 
 Si... Le mot de la chance! c'est l'éten-
 
 dard du jeu. Le mot qui flotte, le mot qui
-
-DE NAPOLÉON
 
 palpite, le mot qui tombe. Si... La con .
 Jonction de la volonté et du pouvoir, le
@@ -1068,15 +799,12 @@ J'aurais pacifié tous les partis. J'aurais
 réconcilié les hommes et les siècles.
 J'aurais fait le bonheur de la France.
 J'aurais changé la face du monde. Si.
-‘a APE EUR
 
 Ce grand réaliste rêve par Moi et par
 Si, à l'infini. El sans cesse, en tout, pour
 Jaire l'ordre, il lui faut changer la face
 du monde.
 
-Suarès
-XXX
 Quel autre moyen que la force? Le
 grand artiste ne vit que pour posséder le
 monde, et le refaire à sa guise. Napoléon
@@ -1085,17 +813,14 @@ son art magnifique. Il pétrit la glaise
 humaine; il modèle dans le vif de la
 masse chaude, dans la chair et la pourpre
 du sang.
-XXXI
 Il était fort causant, mais jamais sans
 dessein. Il fait parler les autres, pour
 apprendre ce qu'il veut savoir. Dès qu'il
 le sait, l'entretien n'est plus pour lui,
 
-DE NAPOLÉON
 ayant une opinion, qu'une escarmouche
 où til l'impose, et parfois un combat. Telle
 est la causerie à Ninive : un plaisir sans
-contradiction.
 
 Puissance de l'imagination : il la connaîl; mais non pas assez en lui. À tout
 instant, il croit ce qu'il veut; il se voit
@@ -1107,7 +832,6 @@ Il y a de quoi rire et de quoi admirer,
 quand il parle de son amour pour l&
 paix, de tout ce qu'il y voulait faire.
 
-Suarès
 C'est pour faire la paix qu'il va jusqu'à
 Moscou, mettant l'Europe à feu et à sang:
 et s'il avait pu, il eût été faire la paix
@@ -1125,8 +849,6 @@ Il est sans pitié pour tout ce qui trouble
 La valeur, pour tout ce qui altère l'étalon -
 d'or, tel qu'il le fixe en tous les ordres.
 
-DE NAPOLÉON
-
 Il chasse l'homme qui ne veut pas
 servir l'État: et s'il n'y est pas apte, tl
 le proscrit : à quoi est-il bon? La lâcheté
@@ -1142,17 +864,11 @@ est la femme qu'il préfère, il répond :
 « Celle qui fait le plus d'enfants. » Mot
 brutal, qui n'est pas à la française, mais |
 à l'antique, el moins de Scipion que
-d''Annibal. |
 
-;
-
-Suarès
 Faire l'homme, en effet, c'est le plus
 sûr moyen, pour la femme, de ne plus
 faire d'enfants. Les femmes à plumes
 n'ont pas encore trouvé la recette de muer
-
-leurs ridicules époux en nourrices.
 
 A sa Joséphine, quand il l'aime encore
 en amant trop épris, Ü ne donne pas de
@@ -1168,17 +884,13 @@ une effusion brève : « Tu es une bonne
 une bonne femme,une bonne mère. Jamais
 homme ne fut moins amant de l'amour.
 
-WE TAVDE Qi: e LEE k AUS
 | DE NAPOLÉON
 Il y met peut-être moins de vulgarité
-5 re 2 a Cp a. RÉ l
 bourgeoise, que l'accent du peseur juré,
 ou de l'essayeur d'or : une bonne femme,
 une bonne fille, une bonne monnote; elle |
 vaut ce qu'elle vaut; elle ne ment pas sur
 sa frappe ni sur son titre.
-DRE
-XXXIN
 
 Il tient à toutes les valeurs, jusqu'à
 s'en rendre dupe. Homme de l'antiquité
@@ -1189,7 +901,6 @@ branches. Il respecte dans l'ainé la seule
 qualité qu'il n'a pas. Il croit à ses frères,
 même quand il les juge. Il leur montre
 
-Suarès
 une indulgence infinie. Il pourrait les
 écraser, méme tl le devrait, et il les
 ménage : souvent, je crois voir un lion
@@ -1199,20 +910,12 @@ les anéantir sur sa litière. Etonnant d'ironie, il s'amuse de cette vermine; i
 laisse manger. Il est dupe, le veut être et
 le sait.
 
-7 7 T £
-
-XXXV
-
 Il a eu du cœur pour ceux de son clan.
 Il n'en a pas eu pour la France.
 
 Il n'y a absolument rien du chrétien,
 en lui. C'est pourquoi le sentiment n'est
 une valeur, à ses yeux, que dans les
-
-Go
-
-DE NAPOLÉON
 
 autres. Il se sert de l'immense amour
 
@@ -1239,14 +942,8 @@ pour le destin; il y soumet inexorablement les autres. Les crimes du destin
 sont à peine des accidents. Certain matin
 pluvieux, dans l'ombre d'une nuit très
 
-Gr Napoléon. — 4
-
-Suarès
 notre et très mauvaise, le duc d''Enghien
 est mort d'accident, dans le fossé de
-Vincennes.
-4 Ÿ4 YA ŸL
-XXXVI
 
 Napoléon est impassible. Certes, il aime
 la France. Et comment non? Où jamais
@@ -1260,7 +957,6 @@ de la France nouvelle, et qu'elle lui avait
 donné, sans qu'il le sût, en lui donnant
 son cœur. Il n'était pas capable de s'ou-
 
-DE NAPOLÉON
 blier pour elle. Comme l'État, pour Napoléon, la France c'est lui; c'est son fils,
 c'est son sang. Quand la France se sépare
 de Napoléon et de son petit, Napoléon n'a
@@ -1271,11 +967,9 @@ Russie et Leipsick, il a pu refuser la frontière du Rhin : par amour-propre! Il
 voulait pas laisser la France plus petite
 qu'il ne l'avait reçue. Sire, Ü ne fallait
 pas vous croire plus grand qu'elle.
-XXXVII
 Napoléon « a le plus profond mépris
 des Bourbons : un mépris sans violence,
 
-Suarès
 comme on l'a dès malades ‘fanfarons, des
 mineurs, des imbéciles. Mépris légitime,
 si j'ose dire en riant. Et, à la vérité, les
@@ -1283,19 +977,13 @@ Bourbons ne se sont jamais lavés de ce
 mépris-là. Obscurément, le peuple les en
 accable. Le dernier terme du mépris
 qu'un peuple fait de ses rois : ü les
-ignore, totalement.
 
 Napoléon a tué les rois.
-FAN Va VA Vi
-XXX VIII
 L'homme de la valeur et du change
 le plus strict ne déteste rien tant que
 l'homme d''ironie : car l'ironie brouille
 
-DE  NAPOLÉON
-
 toutes les valeurs et bouleverse les
-changes.
 
 | L'ironie est la fausse monnote ellemême dans les jugements. Encore, la
 fausse monnote est-elle connue par comparaison à la bonne. L'ironie est un
@@ -1310,8 +998,6 @@ du monde; elle l'use, elle le défigure.
 Elle corrompt la signature. Le seing, qui
 valait de l'or en barres, ne vaut plus que
 du cuivre. L'ironie, enfin, démonétise les
-
-65 Napoléon. — 4,
 
 LA ï Suarès MA LA
 statères de Syracuse, pour en transférer
@@ -1330,17 +1016,13 @@ passer de lui. Talleyrand était sa faiblesse, son vice, son bas de soie, son go
 | Talleyrand l'irritait et le tentait dès son
 nom, qu'il n'arrivait pas à prononcer
 comme il est écrit : Taillerand, disaitul,
-“A
-66 ;
 
-A DR Re A AR tenu Lena à
 te | DE NAPOLÉON Ë
 Que n'eût pas donné Napoléon pour
 
 _ écraser ce prince de la corruption, ou
 pour lui inspirer un peu de sa saine.
 | conscience? Maïs l ‘intelligence glacée du :
-maudit boiteux échappait aux reproches :
 cet esprit reste incorruptible dans toutes ue
 les putréfactions de l'action et des mœurs.
 Il se dérobe même au mépris, par le
@@ -1353,8 +1035,6 @@ distance cruelle de l'ironie, et l'éloignement infini d'une politesse qui ne fu
 | Jamais prise en défaut, et qui ne livre :
 > rien de soi, À
 
-Suarès
-
 A toute heure, Napoléon déconcerté
 perdait pied devant T alleyrand; et grondant contre lui, il était séduit, effrayé
 peut-être par ce démon de l'ironie secrète.
@@ -1362,16 +1042,11 @@ A toute heure, il s'étonnait avec rage d'en
 souffrir la présence, et de ne l'avoir pas
 encore anéanti.
 
-XXXIX
-
 Il faut un paysan français, et surtout
 un paysan du Midi, pour comprendre
 tout ce que Napoléon a été, tout ce qu'il
 a recu de la France, tout ce qu'il lui à
 donné, et tout ce qu'il lui a permis de
-rendre en échange.
-
-Fe DE NAPOLÉON
 
 Napoléon est, comme Jeanne d'Arc,
 une occasion suprême de la race. Mais
@@ -1387,7 +1062,6 @@ sublime. Il n'est qu'un homme, après
 tout; et elle, même après lui, elle dure.
 Rien ne dure que par l'amour.
 
-Suarès
 Quand l'armée du Midi a élu Napoléon
 pour son maître et son idole, il y avait
 Nan conquérant en chacun de ces paysans
@@ -1407,7 +1081,6 @@ le genre humain : la même France, les
 mêmes étendards qui proclamaient, sous
 Jeanne d'Arc, Jésus et le Roi.
 
-DE NAPOLÉON
 Napoléon n'a point d'égal, tant qu'il
 s'égale au génie de la France. S'il parle
 pour soi-même, pour S4 MAÏSON, pDOUT SON
@@ -1424,9 +1097,7 @@ perdu le sens de la valeur. Qu'il meure
 d'ulcère ou du ventre ou du foie : nul ne
 Jut plus sain que celui-là : il meurt de ne
 plus étre. à
-71 |
 
-Suarès
 La valeur et la santé, ce que peut
 l'homme et ce qu'il vaut pour vivre, c'est
 tout un. ET peut-être, dans ce qu'il vaut,
@@ -1439,4 +1110,3 @@ NS anciens à l'échelle de la fatalité moderne.
 Il est l'homme qui à épuisé la puissance,
 ayant sommé de soi toutes les valeurs de
 l'action.
-Août 1910.

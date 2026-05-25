@@ -7,10 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 20213
 ---
-
 ## Mémoires et dossiers pour les libertés du personnel enseignant en France
-
-*Charles Péguy*
 
 es SOCIÉTÉ DES UNIVERSITÉS POPULAIRES
 
@@ -26,9 +23,7 @@ gestion pour l'année expirée.
 
 ARTICLE 20. — Le rapport du Trésorier sera vérifié par
 une commission de trois membres nommée en assemblée
-générale.
 
-TITRE V
 Assemblées généräles
 ARTICLE 21, — L'Assemblée générale des membres
 de PAssociation se réunit une fois par an et chaque fois
@@ -45,12 +40,10 @@ réunir plus de cinq voix, y compris la sienne.
 
 ARTICLE 23. — Le Comité peut convoquer, par lettres
 adressées quinze jours à l'avance aux sociétaires, une
-Assemblée générale extraordinaire.
 
 Sur demande motivée signée de cinquante sociétaires
 au moins, le Comité est tenu de convoquer, dans le
 délai maximum d'un mois, une Assemblée générale
-extraordinaire.
 
 ARTICLE 24. — Toute revision des présents statuts ne
 peut être faite que par une Assemblée générale extra-
@@ -72,12 +65,9 @@ Arricze 27. — Les Assemblées générales ordinaires
 sont valables, quel que soit le nombre des membres pré-
 sents, mais les Assemblées extraordinaires doivent
 comprendre au moins un nombre égal au quart des
-associés.
-TITRE VI “4
 Démission et Radiation. — Dissolution
 ARTICLE 28. — La démission de membre de l'Association M à
 doit être adressée au Secrétaire général qui la transmet au
-Comité. ‘3
 ARTICLE 29. — La radiation est prononcée pour motifs
 graves par le Comité d'administration, le membre intéressé
 ayant été préalablement appelé à fournir des explications,
@@ -88,8 +78,6 @@ ayant été rayé pour quelque cause que ce soit, demandera
 sa réintégration, sera soumis aux mêmes formalités que le
 candidat qui se présente pour la première fois.
 s ARriGLe 31. — La dissolution est prononcée par une
-SOCIÉTÉ DES UNIVERSITÉS POPULAIRES
-Assemblée générale extraordinaire, convoquée expressé-
 ment à cet effet, et qui doit comprendre la moitié plus un
 des membres inscrits. Si cette proportion n'est pas atteinte,
 l'Assemblée est convoquée de nouveau à quinze jours au
@@ -109,11 +97,8 @@ nouveaux courriers. Nous en attendons un troisième.
 
 Vient de paraître chez Fasquelle, éditeur, en un a
 volume de la Bibliothèque Charpentier
-MAURICE MAETERLINCK É-
 Pris dans nos bureaux ou franco
-domicile à Paris 3 francs
 Seul ou dans une commande inférieure
-à onze francs 3 francs
 Dans une commande égale ou supérieure
 à onze francs 3 francs Le
 
@@ -122,10 +107,6 @@ Le Trésor des Humbles
 - Sagesse et Destinée
 pour paraître prochainement : $ 2.
 le Mystère de la Justice
-Lioxez Laxpry
-COURRIER DE CHINE
-Tien-Tsin, 25 février 1901
-Cher ami
 
 Le correspondant spécial des cahiers s'est montré
 bien au-dessous de sa tâche. S'il avait été un peu
@@ -138,12 +119,9 @@ de la façon suivante : quatre ou cinq articles,
 chacun traitant un point déterminé. Je vous en
 avais promis un sur le transport des troupes ; je ne
 l'ai pas envoyé, parce que le sujet n'en valait pas la
-peine.
 mon retour de Pékin, je sortais d'un cauchemar
 de destruction, de pillage et de massacre, et je vous
 en ai transmis l'impression — déjà raisonnée et
-
-e critiquée d'ailleurs.
 
 Les faits de massacre et de destruction reprochés
 au corps expéditionnaire de Chine appartiennent
@@ -181,7 +159,6 @@ je n'aurais pensé, ont la conscience et le raisonnement de leurs idées (analog
 rentes), l'intelligence des idées des autres. Et je n'ai
 pas été étonné de trouver ces derniers parmi ceux =.
 
-COURRIER DE CHINE
 qui ont le plus vu et le plus agi. En fait, il y avait
 distinction bien tranchée entre la masse et l'élite,
 hétérogénéité dans l'ensemble.
@@ -212,8 +189,6 @@ vie intellectuelle. De même que chez nous, les plus
 intéressants et les mieux raisonnant sont ceux qui
 ont fait campagne.
 
-dé FREE FRE ae
-Lionel Landry
 Ë Je ne parlerai pas de nos amis les Russes, qui
 à inspirent ici un dégoût général par leur ivrognerie
 et leur brutalité. Ce sont les pillards les plus enragés
@@ -222,7 +197,6 @@ tête leur programme de pillage lorsqu'ils arrivent à 3 ss
 un village ; les uns doivent aller aux chevaux, les
 autres aux fourrures, etc. Je crois que leur puissance se
 militaire est un grand bluff: la guerre de 1877 le e.
-laisserait croire.
 Les individualités les plus intéressantes se rencon-
 treraient, je crois, parmi les Américains. C'est aussi
 chez eux que j'ai trouvé le plus d'idée, le plus de
@@ -242,13 +216,11 @@ Mais le fond reste. Je me souviens du capitaine S...,
 ancien élève de Polytechnique et de Fontainebleau, A: “5
 me montrant le maniement de son sabre à deux
 
-ë COURRIER DE CHINE
 mains, destiné à couper d'un grand coup de revers
 la tête de l'ennemi, et m'expliquant que le « chic »
 était de laisser la tête adhérente au corps par un
 petit morceau de peau, et que dans son pays, on
 s'exerçait sur des fruits.
-Tien-Tsin, 13 avril 1901
 Voici longtemps que je ne vous ai envoyé de notes.
 On m'écrit que les premières que je vous ai envoyées
 ont paru sèches, peu poétiques. Les lecteurs ont été
@@ -267,7 +239,6 @@ L'opinion des missionnaires sur la guerre et la
 situation actuelle est curieuse à connaître.
 Les missionnaires qui disent, font dire ou laissent
 
-Lionel Landry
 dire en France qu'ils sont à l'étranger de constants
 _etactifs propagateurs de l'influence française, pré-
 tendent ici n'avoir aucun rapport avec les puis- pe
@@ -293,8 +264,6 @@ Chinois, portent la natte, le costume, parlent la “4
 langue, apprennent à leurs élèves un latin de cui- Ne
 sine invraisemblable, mais point le français : done
 leur but n'est pas de développer en Chine l'influence
-occidentale.
-COURRIER DE CHINE
 
 Ce but, certains le proclament, disant qu'ils ontété
 parfois près d'y atteindre. C'est la conversion de la
@@ -312,7 +281,6 @@ les Chinois : mais quand les troupes partiront ils
 seront armés. Je me demande s'ils n'ont pas l'inten-
 
 tion de réaliser la conversion de la Chine par une
-action militaire.
 
 L L'exemple du Paraguay est toujours intéressant
 à étudier. Les Jésuites ont formé, d'un peuple qui
@@ -326,11 +294,9 @@ campagne de Chine nous les trouverions sans doute
 contre nous, à la tête des Chinois. Il ne protestait
 pas, mais déclarait que l'intervention des Européens
 
-Lionel Landry ee
 leur était très nuisible et qu'ils ne la souhaitaient
 pas. ee
 J'ajoute que je crois la question des missions dif- k:.
-férente à Madagascar, au Soudan, en Chine, en
 Syrie, etc. Je crois que pour apporter une réponse
 motivée aux questions que vous m'avez posées au Re
 départ, il faut l'impartialité, que j'ai täché de conserver, et le long séjour, que je n'ai pu faire. J'ai
@@ -341,9 +307,7 @@ foi, préoccupés de la même question, sont arrivés
 des conclusions analogues. s
 Comme toujours, je vous écrirai au hasard des
 circonstances et sur le point qui me paraîtra le plus
-intéressant.
 Salut et fraternité.
-Lionel Landry
 Depuis que ces lettres nous sont parvenues, nous avons Ke
 lu dans les journaux que les corps expéditionnaires
 étaient rassemblés et rembarqués. Aussitôt que notre “4
@@ -354,13 +318,10 @@ Le Gérant : CmArLes Péeuy ‘4
 Ge cahier a été composé par des ouvriers syndiqués
 
 Nous tenons gratuitement à la disposition de nos
-abonnés
 Marcel et Pierre Baudouin : Jeanne d'Arc, drame en
-trois actes;
 
 Jérôme et Jean Tharaud : la lumière
 Pierre Baudouin : Marcel, premier dialogue de la
-cité harmonieuse.
 
 Envoyer un franc pour les frais d'envoi. ”
 
@@ -397,7 +358,6 @@ série par des mémoires et dossiers pour la défense de
 “# ces libertés.
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce quatorzième cahier
- Emouvant débat socialist
 Monsieur Gaston Stiegler, du
 MATIN, fait le tour du monde
 l'endroit.
@@ -405,8 +365,6 @@ Monsieur Henri Turot, du
 JOURNAL, fait le tour du monde
 à l'envers.
 Qui des deux arrivera le plus
-vite ?
-NOTES POUR LES IGNORANTS
 Monsieur Gaston Stiegler est bien celui qui
 a fourni régulièrement des chroniques théä-
 trales à la Revue Socialiste.
@@ -430,17 +388,8 @@ Depuis Philéas Fogg l'endroit pour un tour
 du monde consiste à marcher de l'ouest
 a l'est, et l'envers de l'est à l'ouest.
 
-CAHIER DE LA DEUXIÈME SÉRIE
-MÉMOIRES ET DOSSIERS
-POUR LES LIBERTÉS
-PERSONNEL ENSEIGNANT
-
-EN FRANCE f
-CAHIERS DE LA QUINZAINE
-PARIS
 rue de la Sorbonne, au second
 
-PRÉFACE DU GÉRANT
 Je me réserve de dire dans le mémoire indépendant
 que je ferai quand j'aurai du temps de reste pour quelle j
 raison profondément triste et profondément grave ce
@@ -451,7 +400,6 @@ faire un cahier — mémoires et dossiers — pour les -
 libertés du personnel enseignant en France.
 Des atteintes plus graves de jour en jour et plus j
 générales sont portées aux libertés privées, — publiques, — civiques, — politiques, — du personnel
-enseignant en France.
 Préparées par des circulaires, ces atteintes ont porté
 sur des personnes. A la rentrée nous publierons un
 dossier de ces circulaires. Mais nous n'avons pas voulu .
@@ -490,8 +438,6 @@ De _ ministre. La réponse de M. Leygues intéressera ceux
 Fi qui savent ce que veut dire parler ministériel et ce que
 vaut une enquête officielle. j
 
-DOSSIER
-INTERPELLATION LAVERTUJON
 M. LAVERTUION. — J'en arrive, messieurs, à l'affaire dite
 du Cénacle, qui motive principalement cette interpéllation.
 Il y a depuis quelques années, à Limoges, des cours, des
@@ -502,7 +448,6 @@ institutrices n'était nullement là, bien que, cependant, e
 tous les cours ne fussent pas des cours religieux et que
 tous les conférenciers ne fussent pas des ecclésiastiques.
 Parmi ces derniers, je relève les noms de MM. René Bazin,
-René Doumic, etc. s ,
 Mais enfin nos institutrices, un peu curieuses, comme le - L
 sont généralement les femmes /Exclamations et rires}, se
 rendirent à ces conférences.
@@ -565,9 +510,7 @@ M. Monteil, un peu inquiet, sentit — car il n'est point sot, 4
 loin de là — que la punition qu'il avait infligée à ces insti- è
 tutrices était un peu disproportionnée avec la faute qu'elles
 
-FLE INTERPELLATION LAVERTUJON î
 avaient commise etqu'elles pouvaient si bien croire oubliée
-depuis longtemps. ÿ
 
 Il chercha à corser son acte d'accusation, et c'est alors
 qu'il commit un acte particulièrement grave pour un préfet.
@@ -583,14 +526,12 @@ des appréciations infiniment flatteuses des prédécesseurs de
 M. Monteil et de tous les inspecteurs d'académie quis'étaient
 succédé à Limoges et qui étaient unanimes à faire son
 éloge tant au point de vue politique qu'au point de vue
-professionnel.
 
 « De plus, lui dit M. le préfet Edgar Monteil, vous avez
 une femme qui va beaucoup trop à la messe. »=— « C'est ja
 vrai, monsieur le préfet, ma femme va à la messe, mais cela re
 
 ne m'empêche pas de remplir sérieusement mon devoir
-d'inspecteur primaire. »
 « Et en outre, vous avez un frère qui est curé. » /Excla- “a
 mations à droile) — « C'est encore vrai, mais le jour où
 mon frère a pris cette profession, il ne m'a pas consulté. »
@@ -599,13 +540,10 @@ paroles sévères, le préfet ajouta : « Monsieur, ma police
 (car il a une police dont il se sert, je vous assure!)
 ma police m'apprend que mademoiselle Marsat, une des
 
-« deux institutrices frappées, possède deux livres mystiques
 la Confession et la Vie spirituelle ; il faut me rapporter ces
-deux livres. »
 
 « Monsieur le préfet, comment ferai-je ? »
 « Vous ferez comme vous voudrez, mais il me faut ces
-livres. »
 Devant l'insistance du préfet, M. Gourdon, inspecteur
 primaire, eut le tort, le grand tort, d'obéir. Il alla chez
 mademoiselle Marsat, il lui expliqua ce qu'on attendait
@@ -635,18 +573,14 @@ le droit d'avoir chez vous tous les livres que vous voulez. » ee.
 a-t-on fait chez moi, hier, cette perquisition ? » — « Cette k.
 perquisition, c'est moi qui l'ai ordonnée, c'est moi quien
 ai donné l'ordre à l'inspecteur primaire », a répondu M. le ‘3
-préfet.
 Dans cette affaire dite du Cénacle, approuvez-vous le
-préfet d'avoir si durement frappé deux directrices d'école, 38
 alors que d'autres, ni plus ni moins coupables, n'ont pas Ne
-été inquiétées ? Re
 Approuvez-vous la perquisition ordonnée par le préfet “3
 chez une institutrice pour y rechercher des livres religieux ?
 Approuvez-vous M. Edgar Monteil d'avoir rabaissé un
 honorable inspecteur primaire à ce misérable rôle de policier, d'inquisiteur ? Le
 s M. ze Ministre. — Messieurs, je passe aux incidents qui É: E
 ont été la cause véritable de l'interpellation que M. Lavertujon vient de développer devant vous.
-INTERPELLATION LAVERTUJON
 
 la date du 13 mars dernier, paraissait un mouvement 5:
 dans le personnel de l'enseignement primaire de la HauteVienne. Aussitôt des protestations s'élevaient dans certains
@@ -668,7 +602,6 @@ que le mouvement portait sur onze noms et que parmi les
 onze déplacements, neuf avaient été prononcés avec avan- ,
 cement ou pour des raisons de convenances personnelles
 ? invoquées par les intéressés.
-Deux institutrices, directrices d'école à Limoges, made- É
 moiselle Marsat et mademoiselle Carlus seules avaient été +2
 déplacées par mesure disciplinaire.
 Cependant, la situation du département de la Haute-
@@ -694,7 +627,6 @@ pour Limoges. Il interrogea, il observa et, Le 3 avril, il me
 remit un rapport qui établit clairement ce qui suit
 Vers 1894, les. pères jésuites de la Haute-Vienne fondèrent une congrégation qui s'établit dans un vaste
 s immeuble et ouvrit des cours secondaires pour les jeunes
-filles.
 Ces cours avaient un double but : grouper les femmes
 dans des réunions d'un caractère à la fois scientifique et
 mondain; dépeupler, si possible, les cours secondaires de
@@ -719,16 +651,12 @@ On poursuivait évidemment au Cénacle un but politique
 il fallait être bien peu avisé pour ne pas s'en apercevoir. ‘4
 Des tentatives nombreuses furent faites auprès des “2
 institutrices et des instituteurs pour les entraîner au
-Cénacle. j
 Elles ne réussirent pas : presque partout elles furent
-à repoussées.
 J'ai le regret de constater cependant que quelques x
 maîtresses, les unes peut-être par curiosité, comme le
 disait l'honorable M. Lavertujon, les autres par un autre
 s sentiment, répondirent aux invitations qui leur étaient “4
 adressées : elles allèrent au Cénacle. .
-
-INTERPELLATION LAVERTUJON
 
 Je le dis nettement, leur place n'était pas là. En assistant
 ces réunions, ces maîtresses ont manqué gravement à leur
@@ -738,7 +666,6 @@ questions d'éducation, de pédagogie, de philosophie ou'
 d'histoire, ce n'est pas aux adversaires de nos institutions
 
 et de notre enseignement qu'elles devaient aller les deman- j
-der. /Applaudissements à gauche) .
 
 Elles n'avaient qu'à regarder autour d'elles dans la
 famille universitaire à laquelle elles appartiennent pour
@@ -780,7 +707,6 @@ organisateurs du Cénacle. Elles s'étaient montrées dans
 des réunions dont le caractère clérical n'était pas douteux;
 c'était trop. Cela ne pouvait être toléré.
 
-nes
 quinzième cahier - de la deuxième série
 x M. LAvVERTUION. — Elles avaient fréquenté le Cénacle ily
 a longtemps, avant l'arrivée de M. Monteil, mais depuis
@@ -814,12 +740,9 @@ M. Lavertujon vous a parlé. M. Gourdon, après avoir pré-
 senté ses objections, se rendit chez mademoiselle Marsat.
 Il l'appela dans la salle de la bibliothèque scolaire et
 examina les ouvrages qui s'y trouvaient.
-M. Gourdon demanda à mademoiselle Marsat lautorisa-
 ë tion de voir sa bibliothèque personnelle. Mademoiselle
 Marsat affirma ne pas avoir les deux volumes désignés par
 le préfet et proposa à l'inspecteur de le conduire dans ses. À se
-
-Fev INTERPELLATION LAVERTUJON
 
 F _ appartements particuliers. /Rumeurs au centre) L'inspecteur
 
@@ -896,15 +819,12 @@ teurs de Jaurès à la Petite République lisent la défense se.
 cer les petits fonctionnaires, les petites gens quise sont *È
 mis dans la même situation que lui. 3 4
 
-Jan Jaurès
-‘“VÉRITÉ”
 Sous ce titre, j'ai dit, il y a trois ans, aux lecteurs de
 la Petite République, qui j'étais, ce qu'étaient les miens.
 Je leur ai, si je puis dire, ouvert ma vie de famille, Et
 quelque pudeur qu'on éprouve à livrer ainsi l'intimité de
 son foyer, j'ai cru que les prolétaires avaient le droit
 de connaître à fond l'homme qui luttait pour leur
-cause.
 J'ai dit que ma femme était chrétienne et pratiquante,
 et que pour l'éducation des enfants, une transaction
 nécessaire était intervenue entre la mère, pratiquante
@@ -914,7 +834,6 @@ pe enfants de participer au culte sous la direction de leur
 mère. Mais j'ai pensé aussi que mon devoir était, en les
 s, faisant élever dans des établissements laïques, d'assurer
 la liberté de leur esprit. A ce devoir je n'ai jamais
-manqué.
 C'est au lycée Molière que ma fille est élevée. Elle n'a
 pas eu, elle n'aura jamais d'autres maîtres que des
 maîtres laïques. Et j'espère bien que je saurai l'aider
@@ -924,8 +843,6 @@ Quant à ceux qui essayent d'abuser contre moi de
 l'inévitable et douloureux conflit de devoirs que la dis-_
 cordance présente du monde moral introduit jusque
 dans la vie intime et familiale, je les plains plus encore
-
-é Jean Jaurès ie
 
 que je ne les méprise. L'Église, et c'est son droit,
 triomphe de ces contradictions ; mais peut-être commetelle en cela quelque imprudence, car elle souligne ellemême la gravité des conflits de conscience que suscite
@@ -942,7 +859,6 @@ toutes mes forces et toutes mes faiblesses. Et sûr de ma
 
 loyauté entière, je ne renierai jamais rien de ma vie. Je
 ne désavouerai jamais rien de moi-même.
-- JEAN JAURÈS
 
 La liberté professionnelle confine à la liberté privée.
 Ainsi un maître de conférences à l'École normale peut .
@@ -955,8 +871,6 @@ cet universitaire avait librement émis son opinion dans « - son Manuel de l'Hi
 . J'avais demandé à notre ami Daniel Delafarge de
 vouloir bien nous éclairer sur ce débat. Nous publions
 
-Dane DErArARGE
-M. BRUNETIÈRE HISTORIEN
 Mon cher Péguy, À ?
 Je ne me trompais pas quand je te disais que l'Universitaire de la Petite République avait écrit sur
 M. Brunetière des articles inexacts. Je viens de relire
@@ -965,7 +879,6 @@ etmon impression première est devenue certitude. C'est
 bien là une certaine propagande échafaudée sur des
 inexactitudes accumulées. Si la déformation dela vérité
 est indispensable à cette espèce de propagande, il vaut
-mieux travailler ailleurs.
 Je n'examinerai pas ici toutes les citations du journa- À
 liste, bien que je me sois imposé cette règle pour mon
 compte personnel. Ma lettre en serait démesurément
@@ -980,9 +893,7 @@ ment, jésuite (voir la première colonne de l'article).
 L''Universitaire étudie quelques jugements de M. Brunetière : mais il veut obtenir une condamnation. C'est
 donc un vrai réquisitoire qu'il compose, et les procédés
 qu'il emploie ne sont pas sans ressemblance avec ceux
-ESS
 
-Daniel Delafarge ji vhs
 que, chaque jour, emploient les procureurs de la République ou les Commissaires du Gouvernement.
 
 Je lis, dans la première colonne
@@ -991,7 +902,6 @@ se trouve être la négation de tout ce que l'Église enseignait
 depuis plus de mille ans.
 Voilà une citation insinuante. Elle laisse entendre
 plus qu'elle ne dit. Mais est-elle rigoureusement exacte?
-M. Brunetière écrit textuellement: Manuel, pages 55-56
 Il préche la morale facile de l'abbaye de Thélème et
 « en sa règle n'est que cette clause : Fais ce que voudras. » Seulement, cette morale, quand on l'examine,
 va plus loin qu'on ne croirait d'abord; elle a plus de
@@ -1005,23 +915,17 @@ nous en prévenir; le texte qu'il cite n'est plus de M. Brunetière, mais du jou
 que la phrase vraie. ÿ
 Un peu plus bas, je rencontre une inexactitude nou-
 velle. sa
-PETITE RÉPUBLIQUE MANUEL
-première colonne page 48, petit texte. n.
 Et M. Brunetière ajoute : De l'obscurité de RabeC'est peut-être une question  lais; — et que là où il est re
 de savoir s'il s'est toujours obscur, c'est peut-être une
 Res lunpnre question de savoir s'il s'est
 - toujourscompris lui-même.
-M. BRÜNETIÈRE HISTORIEN
 Différence de sens : dans un cas, on critique certaines
 pages de Rabelais; dans l'autre on critiquerait son
-œuvre entière.
 Ce qui suit est moins inexact : du moins le journaliste reproduit-il exactement les textes qu'il cite; mais
 nous savons que des coupures donnent, par leur assemblement, une idée au moins légèrement fausse du pas-
 sage où elles ont été pratiquées.
 Nous voici à Descartes. Et ici je relève une suppression qui est tout à fait de nature à nous égarer sur la
 pensée véritable de l'auteur cité
-PETITE RÉPUBLIQUE MANUEL
-première colonne page
 Non, en vérité, le Discours Non! en vérité, le Disde la Méthode n'a point fait cours de la Méthode na
 époque dans l'histoire de point fait époque dans
 nee pare! Here re l'histoire de notre litiéra-
@@ -1039,7 +943,6 @@ première et la plus imporLe tante a été le réveil de
 l'idée chrétienne sous la
 À Jorme de l'idée janséniste.
 
-Daniel Delafarge
 Négligeons toutes les différences de texte : la disparition des derniers mots de la phrase est assez inquié-
 tante. Comment l'expliquer ? Serait-ce qu'il faut à tout
 prix que M. Brunetière passe pour un jésuite ?
@@ -1064,7 +967,6 @@ Voici les exemples les plus probants de cette inexactitude qui est comme perpét
 
 cette fois-ci : À
 
-PETITE RÉPUBLIQUE MANUEL
 Cette première idée le con- Cette première idée le
 dait à une autre qui est de Conduit à une autre quiest
 poursuivre à outrance tout de poursuivre à outrance
@@ -1077,15 +979,11 @@ $ . nable dans l'organisation « 8 de la société.
 } (1) Je les ai toutes retrouvées, sauf deux. Voici, par ordre, les
 pages d'où elles sont tirées, 225, 221, 229, 235, 255 (première “hong
 
-M. BRUNETIÈRE HISTORIEN
-deuxième colonne, dix-septième ligne page 349 petit texte
 De là ses attaques à la De là ses attaques contre
 religion qu'il considère à la Ja religion qu'il considère
 Jois comme inhumaine et à la fois comme inhumaine,
 De uhonnelle. irrationnelle et « bonne
 pour la canaille ».
-PETITE RÉPUBLIQUE MANUEL
-deuxième colonne, ligne 20 page 350 petit texte
 Qu'au surplus dans sa po- © Qu'au surplus, dans sa
 lémique injurieuse et gros- polémique injurieuse et
 sière contre le christianisme grossière contre le chris-
@@ -1107,7 +1005,6 @@ aussi, quoique à un moindre degré, en faisant les deux
 suppressions que j'ai signalées. Au surplus, ce qui rend
 | les phrases citées suggestives, c'est qu'on est toujours
 
-à Daniel Delafarge
 tenté de prêter à un homme que l'on n'aime pas des
 intentions sournoises. En elles-mêmes, elles n'ont rien
 
@@ -1144,7 +1041,6 @@ Je lis, pages 404-405, petit texte : à
 Violence insultante de J. de Maistre dans la polé-
 mique; — et sa tendance au paradoxe. — L'apologie
 
-Re M. BRUNETIÈRE HISTORIEN
 S'il n'eût pas rendu plus de services à sa propre cause
 en y mettant plus de modération ? ;
 Le commencement de l'affaire des Jésuites a précédé
@@ -1160,17 +1056,12 @@ le supplice du chevalier de la Barre mettent l'opinion
 du côté des philosophes.
 Voici enfin, mais on pourrait citer bien d'autres pas- .
 sages, comment il apprécie la révocation de l'Édit de
-Nantes.
-Pages 213-214
 Ë Si la France en masse est malheureusement complice
 de la révocation de l'Édit de Nantes, ce n'est pas seulement le commerce et l'industrie qu'on tarit dans leurs
 sources, en expulsant les protestants, mais c'est la moralité publique qui en est comme atteinte jusque dans ses
-fondements.
 Il est difficile, j'imagine, d'être plus net dans le blâme,
 
-“= Daniel Delafarges eee
 et pourtant, c'est bien M. Brunetière qui a écrit ces €
-lignes sévères. -
 Plaisanterie, sans doute, que cette méthode de cita-
 tion : mais ne pourrait-on pas dire aussi que les arti- D.
 cles de l Universitaire sont une plaisanterie prolongée.
@@ -1191,7 +1082,6 @@ dont ils ont souvent reproché à nos adversaires de se
 servir. Il y a des habiletés qu'on doit rejeter loin de soi,
 quand même elles pourraient contribuer à ce quon
 nomme la victoire. La vérité suffit.
-ù Daniel Delafarge “20
 Sur les aitentats commis à Sens et à Auxerre par
 l'autorité gouvernementale contre les libertés privées et
 Le civiques du personnel enseignant, nous avons demandé
@@ -1200,7 +1090,6 @@ informé. On verra au ton du mémoire que l'auteur
 éprouvait une joie saine à le rédiger. Mieux vaut, quand
 on peut, l'action joyeuse que l'action maussade. ce
 
-ATTENTATS DANS L'YONNE
 Qu'il ne faut jamais se brouiller avec son curé
 En avril 1900, la Fédération socialiste de l'Yonne fit
 paraître à Sens un organe hebdomadaire : le Travailleur
@@ -1253,10 +1142,8 @@ autres propos qui donnaient l'impression fort nette qu'il
 avait dû jadis, au temps d'une certaine affaire Dreyfus,
 être vendu au syndicat des Juifs et qu'il était vendu
 maintenant au roi d'Angleterre ou à l'empereur
-d'Allemagne.
 ” Or, il y avait à Sens un professeur qui, en dehors de
 ses classes, tenait des propos non moins abomix
-22H ATTENTATS DANS L'YONNE
 mables ; il se disait socialiste, internationaliste, révolu- -
 tionnaire; il avait assez peu de respect humain et assez
 peu de respect de lui-même pour faire sa société habi_tuelle d'ouvriers manuels, dont plusieurs étaient mal
@@ -1288,25 +1175,19 @@ Patrie en vint-il à affronter cette lumière de l'Église ?
 Dieu aveugle ceux qu'il veut perdre!
 En novembre 1900, au départ de la classe, M. l'abbé
 
-x LEVEL ONE AS
 quinzième cahier de la deuxième série
 f Olivier convoqua les conscrits sénonais à une messe
 solennelle où il devait prononcer un sermon patriotique.
 ne Or la veille même de cette imposante manifestation,
 voici ce qu'écrivit le Sans-Patrie dans Le Travailleur
-L'ARCHIPRÊTRE ET LES CONSCRITS
 ? Plusieurs de nos amis, conscrits de cette année, ont
 reçu la lettre suivante, qu'ils se sont empressés de me
-communiquer
-Sens, 9 novembre 1900
-Monsieur,
 Fidèle à ses traditions, la conférence de Saint-Vincentde-Paul se fait un plaisir et un devoir de vous informer
 qu'une messe solennelle du départ sera célébrée, à la
 s cathédrale, le dimanche 11 novembre, à neuf heures pré-
 cises du matin, pour attirer la protection du Ciel sur tous
 les jeunes conscrits sénonais qui vont joindre leur corps.
 Monsieur l'Archiprêtre y prononcera une allocution de
-circonstance.
 Vous êtes particulièrement invité, Monsieur, ainsi que
 votre Famille, à assister à cette religieuse et patriotique
 cérémonie, où une place spéciale vous sera réservée.
@@ -1325,7 +1206,6 @@ ae ATTENTATS DANS L'YONNE
 révéler quelle est la pure doctrine évangélique à l'égard de
 toutes les violences, et de cette violence qui est la pire de
 toutes : la guerre, qui est la fin et le but du service mili- o
-taire.
 La doctrine de Jésus à cet égard est claire et ne souffre cs
 pas de réplique : dans son immortel sermon sur la montagne, que nous a transmis saint Mathieu, notre divin
 maître s'exprime en ces termes
@@ -1336,17 +1216,13 @@ l'autre.
 « Et si quelqu'un veui plaider contre toi et t'ôter ta robe, DE
 laisse-lui encore le manteau.
 « Et si quelqu'un veut te contraindre d'aller avec lui une :
-lieue, vas-en deux.
 « Vous avez appris qu'il a été dit
 « Tu aimeras ton prochain et tu haïras ton ennemi.
 - « Maïs moi je vous dis : aimez vos ennemis et bénissez
 ceux qui vous maudissent ; faites du bien à ceux qui vous
 haïssent et priez pour ceux qui vous frappent-et vous per- are ss
-sécutent. » ; ei:
 Voilà, mes très chers frères, l'essence de la doctrine chré-
-tienne. r
 Or, que vous demande-t-on, quand on exige de vous le
-service militaire ? :
 On vous demande de devenir une machine à tuer par
 ordre; on vous demande de devenir la brute qui tue, au
 premier commandement d'un chef; si des grévistes affamés
@@ -1359,7 +1235,6 @@ il faut, si on vous l'ordonne, que vous alliez, à coups de
 fusil, mettre à la raison ces pauvres gens, vos frères; pour
 ane lubie d'un chef d'État, il faudra, sans répliquer, vous
 
-à Fee DNS RU
 gainzième cahier _ de la deuxième série
 ruer sur de pauvres gens nés en Allemagne, en Italie ou
 
@@ -1368,10 +1243,8 @@ ruer sur de pauvres gens nés en Allemagne, en Italie ou
 vous et qui eux aussi sont vos frères.
 En vérité je vous le dis : le métier de soldat, le métier de
 tueur d'hommes est incompatible avec la qualité de chré-
-tien.
 
 vous faut renier l'Évangile et votre dieu, ou refuser le
-service militaire.
 
 Les puissants, sans doute, vous traîneront dans leurs
 bagnes, dans les horreurs de Biribi. Eh! ne vaut-il pas
@@ -1401,12 +1274,9 @@ actuel ; ce pauvre clergé catholique, si étroit et si jouis-
 seur, se réveillera-t-il de sa torpeur intellectuelle et
 morale quand l'archiprêtre viendra pour la première
 fois faire vibrer à ses oreilles la parole subversive du
-révolutionnaire Jésus ?
-Ux Saxs-PATRIE
 - si ATTENTATS DANS L'YONNE
 La polémique s'engagea sur cette présomption. Voici
 ss la série des articles publiés par le Travailleur
-L'ARCHIPRÊTRE ET LES CONSCRITS
 l'archiprêtre Olivier a pris au sérieux la plaisante allocution que notre camarade Sans-Patrie lui
 prêtait gratuitement dans notre dernier numéro ; aucun
 de nos lecteurs, nous l'espérons, ne s'y est trompé.
@@ -1422,7 +1292,6 @@ que le catholicisme actuel n'a plus rien de commun avec
 la doctrine évangélique pour que nous ayons besoin
 des menaces de M. Olivier pour insérer sa rectification.
 La voici donc, dans tout son esprit de charité et de
-mansuétude
 Mes chers amis,
 En répondant avec empressement à mon appel, vous
 témoignez que vous avez compris le sentiment profond,
@@ -1445,7 +1314,6 @@ La première victoire qu'il faut demander pour eux, c'est
 celle de la santé, car la vie c'est déjà une milice, militia
 est vita, c'est la lutte de tous les jours contre cette ennemie
 qui menace les plus robustes et qui s'appelle la mort. Beaucoup, hélas ! succombent avant l'âge, en plein épanouissement de la jeunesse, terrassés par la maladie, ou moissonnés par les balles : témoins ces chers enfants du pays
-sénonais tombés au champ d'honneur en 1871, auxquels
 notre cité élèvera bientôt le monument du souvenir,
 témoins ces jeunes volontaires atteints par la fièvre dans
 cette Chine deux fois meurtrière, où ils sont allés protéger
@@ -1488,7 +1356,6 @@ tard pour que nous ayons pu la communiquer à notre
 - camarade Sans-Patrie ; l'abbé Olivier n'y perdra rien
 pour attendre : notre ami commentera dans notre prochain numéro la parole du saint homme.
 
-L'ARCHIPRÊTRE ET LES CONSCRITS
 E. Nous avons reçu de M. l'archiprêtre Olivier une nouvelle missive de laquelle il réclame l'insertion ainsi que
 de celle contenant les commentaires qui encadraient
 son sermon aux conscrits. Cette publication ne peut en
@@ -1507,7 +1374,6 @@ comme nous tenons à être agréable jusqu'au bout
 novembre le texte du sermon publié dans notre dernier numéro. Nous voulons espérer que M. l'archiprêtre
 j acceptera cette manière de procéder.
 at Voici ces deux lettres
-Sens, 17 novembre 1900
 Monsieur l'Administrateur-Gérant
 du Travailleur socialiste
 Merci pour votre nouveau et gracieux envoi. Il me fait
@@ -1528,13 +1394,9 @@ entre gens bien élevés qui connaissent et observent toujours les égards mutue
 sùrement raison; aussi veuillez agréer l'assurance que de ‘
 mon côté, à moins d'y'être contraint, je ne me départirai
 
-H'ORRRSSSS
-ATTENTATS DANS L'YONNE
 pas de l'esprit de charité et de mansuétude évangélique qui
 exclut toute provocation, — et vous savez si elle est venue
 de moi — mais ne défend jamais d'y répondre : j'y suis
-prêt, résigné plutôt, jusqu'au bout.
-Éurce OutviEr
 Archiprêtre de la cathédrale de Sens
 Sens, Le 14 novembre 1900
 Monsieur l'Administrateur-Gérant
@@ -1578,13 +1440,11 @@ cru devoir donner à une falsification anonyme, ce premier
 article d'un nouveau correspondant qui signe et reste, tant
 que vous le voudrez, gratuitement à votre disposition
 {Ici l'allocution aux conscrits publiée dans notre dernier
-numéro)
 Voilà, sinon complet, du moins fidèle dans son résumé,
 le texte d'une allocution qui n'a rien de commun, vous le
 voyez, avec celle que me prêtait votre correspondant. Son
 amitié, puisque amitié il y a, me pardonnera ce démenti
 qui était nécessaire : Amicus Plato, magis amica Veritas.
-Énuze Orivier
 à Archiprêtre de la cathédrale de Sens
 l'abbé Olivier ne se plaindra pas, cette fois, que
 nous ne lui ayons pas fait bonne mesure. Nous lui en
@@ -1592,13 +1452,11 @@ donnons plus qu'il n'avait le droit d'en exiger. Notre
 camarade Sans-Patrie nous a d'ailleurs demandé avec
 instance d'imprimer toute cette prose, nous lui laissons
 maintenant la parole :
-“AMEN CHRISTIANISME ET CATHOLICISME
 à Qui je suis ?
 Sans doute un salarié, salarié de l'État, d'une Com1e pagnie ou d'un particulier, à qui son patron défend, E
 j sous peine de mise à pied, d'écrire sous sa signature
 ce qu'il pense de l'état social actuel et des puissants du
 jour. Ah! si je voulais, moi aussi, prêcher aux pauvres
-LEE , ATTENTATS DANS L'YONNE
 æ la résignation et le respect de toutes les autorités et de
 toutes les puissances établies, si je voulais chanter les
 Ë louanges du régime capitaliste et de ses suppôts,
@@ -1689,8 +1547,6 @@ une Bible protestante qui aura déformé le texte authentique? Ce songe creux de
 peut-être rien non plus aux choses de l'Écriture sainte!
 l'archiprêtre n'est pas loin de le croire et de le dire. De
 - Il trouve que ma traduction « trop libre et très fantaisiste
-- dutexte évangélique » n'a « à première vue, aucun aîr
-véridique ».
 Vraiment! j'ai beau être depuis longtemps convaincu ne
 que le catholicisme et le christianisme n'ont plus rien
 de commun, je ne m'attendais pas à ce qu'un prêtre se
@@ -1716,7 +1572,6 @@ se conformer à ses décisions, un pape, Sixte-Quint, fit
 préparer cette édition qui parut sous un de ses successeurs, le pape Clément VIIL. Eh bien ! c'est cette édition
 catholique que j'ai sous les yeux, l'édition de 1859,
 approuvée par + D. Auguste, archevêque de Paris.
-ë (Biblia Sacra, Vulgatae editionis, Sixti V, Pontificis
 maximi, jussu recognila et Clementis VIII auctoritate
 edita) C'est le texte de cette édition que j'ai traduit
 littéralement, scrupuleusement. Que M. larchiprêtre
@@ -1736,9 +1591,7 @@ littérale, je consens à mettre vingt sous dans le tronc ke
 de saint Pierre ou de saint Antoine de Padoue et à en ge
 a donner autant pour l'œuvre des messes en faveur des
 ‘ âmes du Purgatoire.
-R (A suivre) Ux Saxs-PATRIE
 
-LAS ATTENTATS DANS L'YONNE FE
 20% L'ARCHIPRÊTRE ET LES CONSCRITS ns.
 Nous recevons de M. l'abbé Olivier la lettre suivante: A
 Monsieur l'Administrateur-Gérant
@@ -1754,7 +1607,6 @@ respect. Votre tirage d'ailleurs n'a rien à y perdre, je crois
 le savoir : il gagnera même au point de vue du coup d'œil €
 et de l'égalité des procédés, si vous accordez à ma prose les Le
 mêmes caractères d'imprimerie qu'à celle de mon hono-
-rable interlocuteur. ; “
 s A la faveur de votre aimable complicité, je veux dire Le
 aussi à tous ceux qui nous lisent que je me trouve comblé, ge
 archi-comblé par votre correspondant. Je ne lui fais qu'un : s
@@ -1772,7 +1624,6 @@ trésors de sa vaste et inépuisable érudition. Oh! je ne fais
 pas difficulté, — c'est justice, — d'admirer sans réserve ce
 vase de science, cette encyclopédie vivante et écrivante. Bien
 plus, je me demande, étonné, par quelles recherches pak
-FEAR NI ,
 quinzième cahier de la deuxième série
 
 te tientes, de bénédictin laïque, il a pu apprendre ce qu'on
@@ -1791,7 +1642,6 @@ Me progrès du protestantisme, en a décidé la publication, qu'un
 pape s'est appelé Sixte-Quint et un autre Clément VII. »
 
 Un savant de cette taille ne devrait-il pas occuper la
-chaire d'histoire en Sorbonne?
 
 : Je me demande, stupéfié, comment, à quel prix, par com-
 
@@ -1829,15 +1679,9 @@ chrétien »; priez-le donc de traduire pour la galerie, avec la
 clarté qui le distingue, un texte qu'iltrouvera apparemment
 
 Ë dans le même volume, s'il est complet, en saint Mathieu,
-chapitre xxn1, verset 21 — en saint Marc, chapitre x,
 
-verset 17 — en saint Luc, chapitre xx, verset 25, Reddite
-
-ATTENTATS DANS L'YONNE
 du quae sunt Caesaris, Caesari; et un autre, qu'il trouvera
-en saint Paul, épître aux Romains, chapitre xIn, ver- ee
 sets 2 et 4 : qui resistit potestati, Dei ordinationi resistit…
-non enim sine causa gladium portat. Dei autem minister Se
 est, vindex in iram ei qui malum agit. Priez-le de relire Se.
 en saint Mathieu, chapitre vi, l'histoire du centurion
 qui se flatte, si je comprends le latin, d'avoir des soldats , ñ
@@ -1855,8 +1699,6 @@ solennelle de la loge maçonnique. Belle et unique occasion; )
 dont il voudra profiter, en faveur des frères et amis, pour
 faire pleuvoir sur le temple une manne inattendue et pour g=
 prélever sur un profane, en faveur des chers afliliés, un
-tribut extraordinaire.
-EMILE OLIVIER ES à
 Archiprètre de Sens s
 Nous constatous d'abord que M. l'archiprètre ne con- cs
 teste plus l'authenticité des textes évangéliques, cités
@@ -1867,7 +1709,6 @@ retranchements : il oppose à notre ami de nouveaux
 textes. Sans-Patrie, à qui nous communiquons la nouvelle lettre de M. l'archiprètre, nous dit qu'il a prévu
 l'objection et qu'il y répond plus bas. Que M. Olivier
 veuille donc attendre la fin de la démonstration de notre
-camarade.
 
 >. quinzième cahier de la deuxième série
 l'archiprêtre « qui est plus généreux » que notre
@@ -1885,8 +1726,6 @@ caisse du Travailleur socialiste. Sans-Patrie, qui est un
 garçon très intéressé, prêche pour son saint. Nous trans-
 mettons respectueusement sa requête à M. l'aréhiprètre.
 Poe La parole est maintenant à notre camarade : À
-CHRISTIANISME ET CATHOLICISME
-(SUITE)
 Dans une nouvelle lettre, dont je ne m'amuserai pas
 souligner et à relever les insinuations (l'insinuation est
 décidément un genre où les ecclésiastiques réussissent -
@@ -1899,8 +1738,6 @@ tieuse de M. l'abbé Olivier, lui aura semblé, comme je
 l'affirmais, exacte, fidèle et littérale. M. l'abbé n'en
 s souffle plus mot. J'aurais voulu que franchement, carré
 ment, il avouât que sur le premier point c'est moi qui
-ai raison.
-a ATTENTATS DANS L'YONNE
 É ; Peu importe, d'ailleurs, puisque M. l'abbé Olivier bat
 en retraite. Il bat en retraite, maïs il revient à la charge
 avec de nouveaux textes dont je ne songe pas à nier
@@ -1930,13 +1767,10 @@ le texte évangélique.
 Mais dans les Évangiles eux-mêmes, M. l'abbé Olivier
 croit trouver quatre textes qui détruisent ou atténuent
 les rudes et formelles paroles du sermon sur la mon-
-tagne.
 à J'ai le regret de déclarer à M. l'abbé Olivier que ces
-SAS 43
 
 quinzième cahier de la deuxième série
 quatre textes prouvent encore moins que les textes de
-Paul.
 Celui où il est question du centurion (Matthieu, vm) -
 ne prouve absolument rien; que nos lecteurs en jugent.
 je 11 s'agit d'un officier qui vient supplier Jésus de guérir
@@ -1962,16 +1796,13 @@ des doctrines nouvelles de Jésus, essayèrent dele perdre
 en_lui arrachant par surprise une parole imprudente,
 quelque propos subversif contre l'autorité. Ils vinrent
 « Maître, nous savons que tu es véritable, que tu en-
-à ATTENTATS DANS L'YONNE
 seignes la voie de Dieu en vérité et que tu ne te soucies
 de personne : car tu ne regardes point à l'apparence des
-hommes. .
 « Dis-nous donc ce qu'il te semble de ceci : Est-ilpermis de payer le tribut à César ou non? Et Jésus, con-
 naissant leur malice, leur répondit : Hypocrites, pour-
 quoi me tentez-vous ? Montrez-moi la monnaie du tribut; ,
 et ils lui présentèrent un denier.
 « Et ïl leur dit: De qui sont cette image et cette
-inscription ?
 « Ils lui répondirent : De César.
 « Alors, il leur dit : Rendez donc à César les choses
 qui sont à César et à Dieu celles qui sont à Dieu.
@@ -2021,14 +1852,9 @@ aux yeux des athées épris d'idéal, est une des pages les
 marque une étape capitale dans son évolution vers la
 fraternité universelle, et dites-moi ce qui reste de 4 4
 grand dans le christianisme ?
-UN SANSs-PATRIE
-(A suivre) : 730
 
-ES ATTENTATS DANS L'YONNE
-L'ARCHIPRÊTRE ET LES CONSCRITS
 La quatrième et dernière de M. l'Archiprètre
 Nous recevons de M. l'abbé Olivier la lettre suivante :
-Sens, 3 décembre 1900
 Monsieur l'Administrateur-Gérant
 Confiant de nouveau mon droit à votre loyauté, sûr
 d'avance de n'avoir pas besoin de recourir à d'autres
@@ -2094,7 +1920,6 @@ vous prochain dans l'enceinte de la justice, où nous assis- a we
 teront l'un et l'autre nos amis respectifs, assis sur des
 bancs divers, les miens à celui des calomniés, les vôtres à … 54
 celui des calomniateurs. ÿ : Fe
-Enize OLrvIER : ES
 Archiprêtre de Sens
 ref ee ATTENTATS DANS L'YONNE
 Cette fois, ce n'est plus une retraite, c'est une
@@ -2104,7 +1929,6 @@ nez, aujourd'hui se sauve à toutes jambes, en lançant
 la tête de notre ami des épithètes malsonnantes que
 l'abbé Olivier prend peut-être pour des arguments,
 mais que notre ami, avec sa bonhomie et son indulgence coutumières, prendra tout simplement pour de
-grosses malices.
 à Mais admirez le jésuitisme du saint homme! Durant
 toute sa polémique avec notre camarade, vous avez vu
 ses lourdes insinuations et ses pénibles efforts pour
@@ -2115,10 +1939,8 @@ polémique avec Sans-Patrie une discussion sur un en- F
 trefilet auquel celui-ci est entièrement étranger et qui, ect
 d'ailleurs, n'a absolument rien à voir avec le débat
 institué sur le christianisme primitif et le catholicisme
-actuel.
 L'administrateur-gérant du Travailleur Socialiste est
 seul responsable des entrefilets sans signature qu'il
-publie.
 Il ne fait, d'ailleurs, aucune difficulté de reconnaître
 qu'une erreur de fait s'est glissée dans l'entrefilet qui
 met si fort en colère M. l'abbé Olivier.
@@ -2146,7 +1968,6 @@ corruptions pour tant d'ensoutanés restés fidèles au
 froc. Voilà ce que nous dirons au tribunal et bien
 d'autres choses encore plus précises et plus crous
 tillantes, si le procès dont on nous menace vient au
-jour. : -#
 Hélas! nous tremblons que les intéressés, les calom- Ee
 niés, ne soient comme M. Olivier que des matamores
 qui menacent tout d'abord d'aller jusqu'au bout et qui, s
@@ -2154,12 +1975,10 @@ au bon moment, se dérobent prudemment. Allons, ne.
 messieurs les Vicaires, allons, monsieur le Curé de V...-
 traînez-nous devant les tribunaux, sans peur des écla- #4
 boussures et surtout sans crainte de faire de la:
-réclame au Travailleur Socialiste.
 l'Archiprètre — envers qui nous voulons être juste Fe
 — n'a pas craint de nous en faire un peu en écrivant.
 dans nos colonnes : sitôt que le public sénonais a
 appris qu'il pouvait lire dans notre journal un sermon
-Se ATTENTATS DANS L'YONNE
 authentique de M. l'Archiprètre, il s'est précipité sur ce ‘
 morceau de haute éloquence et aussitôt notre tirage a
 augmenté dans des proportions inespérées. Aussi est-ce Fi
@@ -2168,7 +1987,6 @@ désormais d'une- collaboration si précieuse. M. l'abbé
 Olivier n'a pas obligé des ingrats : en le perdant, qu'il
 nous permette de lui donner ici même l'assurance de
 notre longue reconnaissance.
-LETTRE OUVERTE DE SANS-PATRIE À M. L'ARCHIPRÊTRE
 Monsieur l'Archiprêtre
 Indélicatesse n'est pas assez dire; c'est un véritable faux
 que j'ai commis en vous attribuant ironiquement un
@@ -2184,7 +2002,6 @@ lorsque je verrai, dans une petite brochure facile à faire
 circuler parmi vos ouailles, mes subtilités chinoises, mes
 discussions byzantines et mes pauvres démonstrations aux
 prises avec votre puissante logique et votre solide docu-
-mentatiom.
 Je suis convaincu que votre inépuisable esprit de charité,
 que je sens déborder de toutes vos lettres, ne me refusera
 pas, votre modestie non plus, je l'espère, d'user du seul
@@ -2201,15 +2018,12 @@ que vous avez omise au bas de la vôtre et dont la cour-
 bien élevés ; permettez-moi, dis-je, de vous saluer avec tout
 
 le respect que je vous dois.
-Ux SANS-PATRIE j
 É Ai-je besoin de vous dire, Monsieur, ainsi qu'à nos
 lecteurs, que je ne suis pas l'auteur de l'entrefilet sans
 signature qui est à la suite de mon dernier article ?
 Tout ce que j'écris est signé — d'un lâche et honteux
 pseudonyme, c'est vrai, — mais enfin c'est signé
 Ux Sans-PATRIE
-CHRISTIANISME ET CATHOLICISME
-(SUITE) “4
 Dans sa lettre d'aujourd'hui — sa dernière lettre,
 hélas! — M. l'abbé Olivier, au lieu d'essayer de réfute
 les objections graves que je faisais, il y a huit jours, E.
@@ -2259,7 +2073,6 @@ je le mets au défi d'en trouver un troisième soutenable
 et plausible.
 Il y a d'abord l'interprétation étroite, littérale, rigoureuse : « Le Christ a formellement interdit derépondre
 
-tai nd *, S 7 DOCS LUE Ki SAN QUOTE KR
 quinzième cahier de la deuxième série
 à à la violence par la violence et a ordonné d'aimerses
 me ennemis ; donc un chrétien ne peut se prêter à aucun
@@ -2292,9 +2105,7 @@ ss s'est trouvé en Allemagne une secte, celle des Mén0Le nites, assez idéalis
 a”: sans violence, passivement, de contribuer à la défense
 ” armée du pays; au dix-septième siècle, les Quakers,
 ÿ : autre secte protestante encore nombreuse en Amérique,
-. £ + ALRE
 
-à ATTENTATS DANS L'YONNE
 s'est obstinément refusée et se refuse encore au service
 militaire; enfin, en notre siècle, en Russie, des villages l
 entiers ont refusé au nom de l'Évangile de servir dans
@@ -2310,7 +2121,6 @@ enfants, ces doux pacifiques; rien n'y a fait; ne pouvant
 exterminer tout ce monde, dont l'attitude héroïque
 trouvait des admirateurs dans toutes les classes de la
 société russe, le gouvernement du tsar a dû les laisser
-en paix.
 L'an dernier, pourtant, pris de remords ou craignant
 la contagion de l'exemple, il a donné l'ordre qu'on les
 expulsât de son empire, et 8.000 d'entre 'eux, errants et
@@ -2319,17 +2129,12 @@ pour aller chercher au loin une terre où n'existe point
 le service militaire obligatoire, où l'on ne soit pas
 obligé de tuer et en tuant de violer la loi du Christ.
 Aujourd'hui, après des souffrances horribles, ils sont
-fixés au Canada.
 Quels sont les vrais chrétiens? Les Doukhobors ou
 les archiprètres qui réunissent des enfants crédules et
  _ ignares au pied des autels pour leur chanter la gloire
 du sabre?
-UN SANxS-PATRIE
-(A suivre)
 
 quinzième cahier de la deuxième série
-CHRISTIANISME ET CATHOLICISME
-(SUITE ET FIN) 4
 Reste l'autre commentaire permis, l'interprétation Ne
 moins logique, mais plus facilement acceptable, plus
 humaine. Elle consiste à dire ceci: « Dans le sermon
@@ -2376,7 +2181,6 @@ force brutale et l'idolâtrie du sabre, elle eût étoufté se
 dans leur germe les conflits internationaux et elle eût
 réparé, dans une certaine mesure, par ce grand service
 rendu à l'humanité, toutes ses violences et tous ses
-crimes passés. :
 - Cette interprétation opportuniste, terre à terre, s'est
 encore trouvée trop élevée pour l'esprit et le cœur du
 curé-archiprêtre de Sens. Même à ce devoir restreint -
@@ -2405,7 +2209,6 @@ que je veux dire), servez votre Dieu, c'est tout un, sans ‘4
 faiblesse, sans lâcheté, à la facon des Bayard, des Duguesclin, des de Lamoricière, des Mac-Mahon, des de me:
 Sonis, des Courbet. Soyez, comme eux, partout ettou
 jours, des Français sans peur et des chrétiens sans
-reproche. » Se
 Eh bien ! je prétends que quand un prêtre catholique
 est capable de tenir un pareil langage, dans une telle .
 circonstance, il n'a plus le droit de se dire un disciple
@@ -2413,7 +2216,6 @@ du Christ, ou tout au moins, s'il a le droit de s'affubler ?
 de n'importe quel nom, il donne à tous ceux chez qui le
 sens critique n'a pas été atrophié par les pratiques ma:
 chinales et l'enseignement de mots du séminaire, la
-preuve manifeste qu'ilest resté complètement fermé a
 l'esprit du christianisme primitif.
 Si je n'étais pas, selon l'heureuse trouvaille de
 l'abbé Olivier, « totalement étranger aux leçons de.
@@ -2424,9 +2226,7 @@ Mon distingué contradicteur ne semble-til pas croire,
 en effet, que les héros qu'il propose à l'admiration des
 à conscrits n'ont jamais combattu que pour la défense de
 la patrie, des foyers et des autels ? Ne croit-il pas bon-
-LEE
 
-RARE Te ATTENTATS DANS L'YONNE
 nement que les armées n'ont servi et ne servent qu'à ce :
 rôle défensif? Voyons ? est-ce qu'ils défendaient leurs
 foyers et leurs autels les soudards napoléoniens qui
@@ -2485,7 +2285,6 @@ contre les mécréants. Cette fois, pour qu'il n'y ait pas
 d'erreur possible au sujet de ton sentiment sur toutes
 les violences, quand tu renouvelleras ton beau gesté« contre les pharisiens et les marchands du temple, je
 Le mettrai à ta disposition un solide balai. <43t
-Ux SANS-PATRE
 ._ Au service d'une thèse vraiment insoutenable, le)
 s Sans-Patrie avait déployé de telles ressources de
 sophiste qu'il avait donné, aux ouailles mêmes de,

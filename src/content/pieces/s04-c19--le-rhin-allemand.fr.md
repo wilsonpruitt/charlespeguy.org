@@ -7,128 +7,36 @@ author: gaston-raphael
 isAvertissement: false
 wordCount: 24148
 ---
-
-POUR LE PREMIER MAI DE LA QUATRIÈME SÉRIE
-GASTON RAPHAËL
-LE
-ALLEMAND
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an }
-PARIS
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-k
-
-M Re D M
 2 MORE PES RRED OS 2e D ae Eu 4 1 TETE de Le ACL EN A
-HARAS RE : FAR, JU A (A EU LUCE ANSE Ë
 | ANPSS A OPEN PARS ALU T sis re 1
-; TRES 1 IF NES 24
-tel 3 pere 41 VAR an FREE
-Le h ÿ | + AI CNP
 Fa : Lou js NE Frein!
-Ke ù LEA RE en
-; ; ts NÉE
-6 12 OL SEEN
-£., A EL taie
-(2e . | HS AR AUS
-ke | &:1 LH PANNE
-14 Er FT NE
-4 (NS PÉRESENER
-{ À ne 11 0 EIRE
-RE F NAS Ab
-EN L à 1x2 UN ER
-* HAS N PNEUS
-NES à AUS CA
 PS et UT A TRON
-EPL MARNE ES
-“ RS : Dev
-Be : à æ : “+
-4 ; à RARES
-4 ù NE LP TMS
-‘3 4 LH TER CE
-sh « 4 : ANA
-+4 ON sr ER PA
-A} P. ÿ A Vi KE Le" NE rs
-Rey nt 1) A at Ÿ
-Bi n L {NE AUS
-$ à ) Fe JESUS
-Ps è * A + fi NN NE
 
 | PAT ARE AE D AN ME AT, Ge PARA ATENQ D AS
-‘ À RE ARDENNE Sara TU PAR & HAS VAGUE MAUISE RENDENT
-RE D ER 0 “hi
-NO ET LT ANS PER TA TE EL AN PR ne EN AUTO St à ‘
 (pi Re MAN E Se NA SA PET PNR LE is TRE LEE AU
 ” LE HET Sd” NES 10 ns PART Lee Le ? C0 NL NOIRE WATTS $ 14
-2 APE SVM OR A De ELU Jr SRE CENT MES Le ATEN A
 | DORE MISE Lt RAM NS Ar Dit Ke EEE An
-LME : 4 ÿ A LAS EAS SENS
-RAA : 2 SNS
-FAR ME er - MT NN IN (FH LR
-AE LV SEE ; A Ç HÉRAPAARES CAu.
-SSSR } ) {RSR PEUR ER
-Ve ND Rs: î " 4 VINS DRE.
-LUZ PL ET A TN 4 à
-HOUSE 1 À VAN te
-LAS SENS à {HE RAUE n:
-‘SFR L 2,516 NPA
-+ AVES PRE 2 RES K TBE ATEN
-LINE) RU M4 Le # A NE ta AA EN
 
 Le cahier que l'on va lire, demandé depuis longtemps
 pour le premier mai de la quatrième série, était prêt
 pour tomber le dimanche 26 avril. Nous avons pensé,
 l'auteur et moi, que nous pouvions, et que nous devions
 l'ajourner un mois devant les nécessités d'une action
-présente.
 
-Charles Péguy ;
 | |:
-È
 
-fl , e MAT À K Wire À \
 ÿ RE PEORE CRÉDIT QUE 1) NES PH UNS me A ES SMART MAROSE vs
-M AS NOT RS D M Ne: MURAT YEAR 4 DR NC RES RAS ANA
-À AL PS uk: EN CM AURRE D AE eu RUE He à pe 19 +
-+ EN OST ; ÿ ; 1 F1 UNE Re
 2 2: PASS l ALT AU (hi Pr Pfeil
-i' : RARE Ne à RL TN
-HE, 23 PES PAM 14 Ha
-LRSE LT ANE } À , Pis +4 ENS RU NS
-NN =, L ! WASDL ETES VA AC TIR
-1 ÉTTRE TMENETES 3 . ' Ÿ ; | AMEN AS
-LANDE A UE 4 : A 4 FN RE MELES ARTE
-“CRULAOST IAAER : ? FE CN “HA SAMU: {|
-RE 7. SAS 31 } : \ ARCS TAN
-LR ST RSRE Ü Hoi AL
-D : 00
 | :\ FRERES A à ? ge APS VA LA, YO ONE
-PTE ot b: h , 0 è 1 SELS RES
-EVA ‘He Ï | 4 RER 7:
-Do L'ÉMPNPSS
-; TA Of AM \ jui
-ae - À | 3 AH
-2 ANS NE ‘Le ES AE x L'NO
-ÿ Pr :!, JUNERAUAPRNENSS ; : ! REC ANQREE
-FFT LS PEN LM ROSE Wpxt
-44 ET Dante ERA < | QUE ë à À 4 L ; LAN LA "À AAEUNE: 182 à
-PL HA CANLAT Vas VAN NORME fi
 Qu 1 CARD TRS AT AMEN AA js (L ‘ Mae Mr ere | d peer
-G 4] doré. TEE
 
 F PNEUS ; Wir: PURET IV à ja 4 MAR PAU à AO TON IEEE
 
-123 Gasrox RAPHAËL | Me at
-
-Ait: \
-
-É LE RHIN ALLEMAND
-
 |
-
-w 4
 
 pr En 1840, l'Europe et l'Orient étaient troublés par le
 
@@ -157,8 +65,6 @@ turque à Nézib le 24 juin 1839. De nouveau l'Europe
 
 il s'interposa. Pour sauver la Turquie, les cinq grandes
 
-F4 Puissances, — Angleterre, Autriche, France, Prusse,
-
 ; d Russie, — se mettent d'accord. Le 27 juillet, le prince
 
 À -de Metternich remet en leur nom une note à la Sublime-
@@ -175,7 +81,6 @@ Me Turquie ouvrirent des négociations à Londres. Personne
 
 15 ne montrait de disposition à les presser. IL apparut
 
-LE RHIN ALLEMAND À
 bientôt qu'elles n'aboutiraient pas et cela par la faute ;
 de la France. L'influence française était alors prépon- ;
 dérante dans l'Orient et Méhémet-Ali était le favori 1
@@ -187,7 +92,6 @@ directement, sans l'aide européenne, un accord.
 
 Établie à Ancône, possédant l'Algérie, influente en
 Grèce, la France eût fait de la Méditerranée un lac |
-français.
 Mais Thiers s'abusait. IL était impossible que l'Angleterre tolérât la formation d'un empire égyptien ami
 de la France, qui lui eût coupé la route des Indes.
 Plutôt briser l'alliance du moment avec la France,
@@ -196,7 +100,6 @@ négocia avec les trois autres Puissances à l'insu de la |
 France. Le 15 juillet 1840 il signa avec elles la convention de Londres. L'intégrité de l'empire ottoman devait
 être maintenue et Méhémet-Ali devait rappeler ses :
 … troupes. La France était exclue du concert européen. ,
-ê
 Vers la fin de juillet le traité fut connu en France. Il
 causa une émotion violente. :
 à Ce que l'on ressentit d'abord ce fut l'affront fait à la
@@ -217,11 +120,8 @@ te. Ë avec une énergie cornélienne :
 fi Aux Français qu'on outrage il n'est rien d'impossible. (3)
 ut Dès l'abord la question devenait donc européenne.
 D La querelle devait être vidée entre la France et les
-à quatre grandes Puissances.
 
 mer Et par là même furent réveillés le souvenir doulouF0 reux de 1815 et le désir de la revanche. Les quatre
-
-SE . . 2 # »
 
 LKR Puissances signataires du traité de Londres n'étaientA4 elles pas les alliées de 1813 et 1815? N'était-ce pas la
 ca Coalition qui se reformait au moment où la France
@@ -233,18 +133,14 @@ fo souffrait encore, la Sainte-Alliance au moment où les
 + mont », disait le maréchal Soult. Edgar Quinet
 Se publia une brochure : r815-1840, dont le succès fut
 7 grand. Il démontrait que le malaise où languissait la
-Et (1) 29 juillet 1840.
 ve (2) Numéro du premier août, dans un article sur la politique exté-
 F rieure non signé et attribué à Thiers.
 TA (3) Aux cendres de Napoléon, poésie. — Moniteur du 10 dé-
-À cembre 1840.
 
 s (4) Retour décidé le 12 mai 1840. Translation aux Invalides effec-
 æ tuée le 15 décembre 1840. 6 août 1840, tentative du prince Louis4 Napoléon sur Boulogne. ! |
 
 ER LE D MAL RP ACER CP LOUE eo CRU ON CRUE AE Liber.
-E LE RHIN ALLEMAND .
-À |
 France, les difficultés de la politique intérieure avaient :
 pour origine les traités de 1815, « qui pèsent sur nous :
 comme une fatalité ». Le devoir à remplir était impé-
@@ -273,19 +169,10 @@ sonne de ce côté du Rhin qui désire plus sincèrement = }
 votre amitié; mais si pour l'obtenir il s'agit de laisser é
 éternellement à vos princes, à vos rois absolus le pied î
 sur notre gorge, et de leur abandonner pour jamais À
-(1) Edgar Quinet. — Œuvres complètes en 30 volumes (Hachette)
-tome XIV, page 205. 6
 (2) Datée du 15 novembre 1840.
-
-k
-S 2
 
 Cru 2 PARU CEE ENCRES SEC EE SO ne D
 
-te 4 si
-
-MU ?
-an Gaston Raphaël
 à. dans Landau, dans Luxembourg, dans Mayence les
 nee à clefs de Paris, je suis d'avis, d'une part, que ce n'est
 x pas là l'intérêt de votre peuple; de l'autre, que notre
@@ -317,9 +204,7 @@ d : Le Journal des Débats écrivait : « La France, s'il le
 L: () Edgar Quinet. — Œuvres, tome XIV, page 201.
 6 (2) En 1830, le ministère de Polignac avait secrètement prié la
 Ÿ Russie de l'aider à rentrer en possession des provinces rhénanes.
-Û (3) 28 juillet 1840.
 
-t Los  d Re :
 | . LE RHIN ALLEMAND À!
 faut, défendra seule l'indépendance de l'Europe; pour
 cette cause qui est celle de la civilisation contre la bar- #
@@ -341,19 +226,14 @@ je mette le bonnet rouge? » Et plus tard : « Vous
 - voulez la guerre, vous l'aurez. S'il le faut je dému-
 - sellerai le tigre. » Le duc d'Orléans déclarait « qu'il
 . préférait mourir sur le Rhin que dans une rigole de la
-_ rue Saint-Denis ». |
 Thiers favorisait l'agitation. Soutenu dans la Chambre
 des députés par une coalition de minorités plutôt que à
 par une majorité, ilse trouvait bien de détourner, de
 distraire l'attention publique. II méconnut ses talents.
 _ À fréquenter Bonaparte il se crut prèt pour l'imiter. F"
 Jugeant la guerre inévitable il prépara des plans de
-. GA) 31 juillet 1840.
 p @) Debidour. — Histoire diplomatique de l'Europe, tome I, page 381.
-F 9 I. “
-<
 
-0 ; Gaston Raphaël ‘ fade
 Ÿ a campagne. On le trouvait couché à plat ventre sur des
 ES Ë cartes, où, à l'aide d'épingles à têtes vertes et rouges,
 il pointait la marche des armées françaises. Il fit des
@@ -369,7 +249,6 @@ WE crée 12 nouveaux régiments d'infanterie et 5 de cava-
 ta autre crédit supérieur à 100 millions pour commencer
 "à immédiatement à construire les fortifications autour de
 Pi Paris. La Chambre légitima plus tard cette dépense par
-4 237 voix contre 182.
 < Dans le public personne ne douta que la guerre ne fût
 V3 proche. A la Bourse, « le Temple de la peur », comme l'apte pelle Henri Heiïne, le 3 pour 100 tomba de 86.50 (18 juilHi let) à 78.75 (6 août) et à 70.10 (10 août). Les actions de
 la Banque de France baissèrent de 3.770 à 3.000 francs.
@@ -381,8 +260,6 @@ a mille ouvriers sans travailn'attendaient qu'une occasion
 ta la Marseillaise, ignorée et proscrite depuis des années.
 # Le 28 juillet 1840 fut inaugurée sur la place de la
 on Bastille la colonne de juillet. On ÿ porta solennelle-
-È £ FA (1) Lutèce, page 99.
-Ÿ TO GE
 
 | Û LE RHIN ALLEMAND {
 ment les restes de ceux qui étaient morts pour la à
@@ -415,11 +292,8 @@ mands furent stupéfaits. Leur pays n'était que fort &ÿ ;
 () Lettre de M. de Lavergne à Guizot, ambassadeur à Londres. sl
 Guizot, Mémoires, tome V, page 250. de:
 (2) Thureau-Dangin. — Histoire de la monarchie de Juillet, tomeIV, LE
-page 282. 3
 G) Henri Heine. — Lutèce, page 127. LA
-Il 1
 
-me: Gaston Raphaël sn É
 indirectement intéressé au conflit oriental. Ils ignoraient les négociations de Londres. Ils n'avaient pas
 0 l'intention d'humilier la France. Et voici que la France
 & prétendait venger sur eux un affront fait par l'Angleterre ? Et l'on venait leur enlever le Rhin parce que le
@@ -447,10 +321,8 @@ la France : la France représente, dit-il, le principe de
 l'immoralité. Il faut qu'elle soit anéantie; sans cela il n'y
 4 aurait plus de Dieu au ciel. » (1) On demanda de nou-
 (1) Cité par E. Denis dans : l'Allemagne de 1810 à 1852, page 220.
-Es 12
 
 Ra ET. ue Ride St EN aa TPE a NE A Eee
-LE RHIN ALLEMAND i ‘
 veau l'annexion de l'Alsace et de la Lorraine à l'Allemagne. En 1815 les gouvernants avaient laissé échapper
 le renard, disait-on. Il s'agissait de ne plus le lâcher à
 si bon compte. Le major Helmuth von Moltke publia
@@ -476,18 +348,12 @@ plus lourdement sur eux. Cela les inquiétait. Les jour-
 que la paix triompherait. D'ailleurs le parti libéral É
 demeurait assez sympathique à la France. Sympathie |
 beaucoup moins efficace que ne l'imaginaient les révo- LS
-lutionnaires français, maïs réelle. En novembre 1840
 on alla dans certaines villes allemandes comme Karls- ge
 
 (® Cité par Treitschke dans : Geschichte Deutschlands im XIX. $
-Jahrhundert, tome V, page 86.
 2) Protocole secret du 14 août 1840. Treitschke, tome V, page 79,
 
-k
-
-ù Gaston Raphaël HN TS
 de. rube, Mannheim, Heidelberg jusqu'à ouvrir des souscriptions en faveur des victimes des inondations du
-r Rhône à Lyon.
 AR: : Mais les concessions s'arrêtaient là. Les Allemands
 #4 désiraient la paix sans doute. Mais malheur à la
 à France si elle-même venait la troubler. Et puisque
@@ -502,7 +368,6 @@ ne chantaient ses légendes, les peintres de l'école de
 # ÿ Düsseldorf représentaient ses paysages. Quelques
 > Allemands seuls songeaient à prendre de nouvelles
 4 D provinces. Mais tous se préparaient avec enthouY siasme à empêcher qu'on leur prit la rive gauche du
-fi Rhin.
 me L'enthousiasme fut d'autant plus vif que la France
 SA ranimait un désir ancien déjà et vivace : le désir de
 ( l'unité allemande, de l'union de tous les Allemands.
@@ -515,13 +380,8 @@ A Sous l'oppression napoléonienne ils avaient pris claire4 ment conscience de c
 js La question s'élevait pour eux. Il y allait plus que de
 1. la possession d'une province enviée. Il y allait de
 4 l'unité future de l'Allemagne. Les menaces françaises
-e à 14
 
-LE RHIN ALLEMAND : à
 unirent presque tous les Allemands dans un enthousiasme national. , 1 T0
-
-*
-* *
 
 En ce sens l'émotion allemande était générale et sin- ! !
 cère. Aussi fut-il donné à un Allemand inconnu de
@@ -554,8 +414,6 @@ inoffensif, modeste, que tous ceux qui le connaissaient 1
 de près estimaient et aimaient. » à
 « Vers la fin du mois d'août 1840 Becker se rendit À
 
-_ NS PR ER TR EEE TT A TR IA STE M TRE PM NOT EEE Er
-x Gaston Raphaël !
 nn selon sa coutume de Hünshoven à Geilenkirchen, pour
 ie boire un verre de bière à l'auberge de Conrad Hinz en
 ‘4 compagnie d'amis. Il y trouva les journaux dernièrement arrivés, qui fournirent à la réunion l'occasion de
@@ -580,58 +438,20 @@ he le journal de la localité. » (2)
 L Le Rheinlied parut le 18 septembre 1840 dans la
 pt Gazette de Trèves, sans titre :
 
-4 Sie sollen ihn nicht haben,
-
-Los Den freien deutschen Rhein,
-
-d Ob sie wie gierge Raben
 À L Sich heiser darnach schreï'n,
 | ; à (1) Il semble que Becker envoya également sa poésie à ses amis
 4 les poètes Matzerath et Freiligrath qui la publièrent dans le deuxième
 Ë volume de leur revue : Das Rheinische Jahrbuch en lui donnant
 & son titre : der deutsche Rhein.
 à (2) Louis Waeles. — N. Becker, der Dichter des Rheinlieds. Bonn,
-MANS 1896, page 53.
-F 16 1
-A! 4 k
 
-Re Pre 7
-LE RHIN'ALLEMAND
-So lang er ruhig wallend
-Sein grünes Kleïd noch trägt,
-So lang ein Ruder schallend
-In seine Woge schlägt! ,
-Sie sollen ihn nicht haben, à
-Den freien deutschen Rheiïn, 4
-So lang sich Herzen laben é
-An seinem Feuerwein;
-So lang in seinem Strome
-Noch fest die Felsen stehn,
-So lang sich hohe Dome
-In seinem Spiegel sehn!
-Sie sollen ihn nicht haben,
-Den freien deutschen Rhein,
-So lang dort kühne Knaben ÿ
-Um schlanke Dirnen freïn;
-So lang die Flossen hebet
-j Ein Fisch auf seinem Grund,
 So lang ein Lied noch lebet L
-In seiner Sänger Mund! Lo
-Sie sollen ihn nicht haben, |
-Den freien deutschen Rhein, mn:
-Bis seine Flut begraben 5
 Des letzten Manns Gebein! (1)
-ET TR |
 () Texte du recueil des poésies de Becker. — Gedichte von
 Nicolaus Becker. Kôln, 1841. Ce texte ne diffère guère du texte primitif. Cependant strophe 2, vers 4: in seine Woge (dans ses flots)
 au lieu de an seine Woge (le long de ses flots). Strophe 4, vers 1 : in
 
-Le \
-
-RU Gaston Raphaël $ RSA
-
 D On peut le traduire ainsi :
-RS
 
 D Ils ne l'auront pas, —
 mo: Le libre Rhin allemand, —
@@ -639,8 +459,6 @@ mo: Le libre Rhin allemand, —
 Wu Quoique semblables à des corbeaux avides —
 
 4 Ils s'enrouent à le réclamer, —
-
-&
 
 à Aussi longtemps que roulant paisiblement — |
 ne I1 portera sa robe verte, —
@@ -673,21 +491,12 @@ La Sur les lèvres de ses chanteurs ! — (1)
 lai de son cours). Strophe 6, vers 1 : die Flossen (les nageoires) au lieu
 FA de die Flosse (la nageoïire). |
 1 (1) Cette strophe a été omise ,dans presque toutes les traductions
-bé françaises.
-Fe 18
-RON Te
 
-À dise
-
-LE RHIN ALLEMAND #
-:
 Ils ne l'auront pas, — : <
 Le libre Rhin allemand, — h
 Jusqu'à ce que ses flots aient enseveli — 4 3
 Les ossements du dernier homme. — Ë
-f
 ‘ La poésie était signée N. B. a. G. Sur les questions k
-j
 du président de province von Schaper, le journal publia r
 la signature entière : Nicolaus Becker aus Geïlenkirchen. à
 Le nom de Becker devint célèbre. Ses compatriotes 4 ;
@@ -706,11 +515,9 @@ Et maintenant qu'ils viennent! » (1) Pour la fête de Noël :#
 4 le roi de Prusse Frédéric-Guillaume IV lui fit choisir
 ‘ soit un présent d'honneur de mille thalers, soit une pen- ;
 sion de trois cents thalers pendant cinq ans afin qu'il ñ À
-Re ps)
 (1) Cité par Louis Waeles, page 20. 11 semble que Becker, quoique 4
 nécessairement solennel dans cette fête, ait été sincère dans sa mo- — hi
 destie chrétienne. Il écrivait le‘23 octobre 1840 à sa nièce : A
-« Chère Babette! es
 « Tu ne m'en voudras pas, si faute de temps je ne réponds que 4
 brièvement à ta lettre. Que ma chanson dût avoir un tel succès, à
 jamais je ne l'aurais imaginé même dans mes rêves les plus hardis. ;
@@ -718,9 +525,7 @@ C'est Edmond qui est l'auteur de tout cela et je l'en remercie de ! 412
 tout cœur: Et si finalement il pouvait me procurer une place, ce ;
 serait la meilleure chose ; car nous en avons vraiment besoin... » 4
 19 ,
-* 0
 
-is TANT NUE Le DAV PT NP A EN RE RTE TS NT NN ENT RTE
 Bus Ne Gaston Raphaël
 j Ke terminât ses études de droit. Le roi lui promettait une
 mu belle carrière dans la magistrature. Becker préféra le
@@ -739,7 +544,6 @@ K sculpteur Schwanthaler l'avait ornée. Le 18 avril Arndt,
 né lui adressa une poésie. En septembre 1841 les villes
 :à de Mayence et Karlsruhe lui envoyèrent une seconde
 à coupe. Et ce ne fut pas le dernier cadeau qu'on lu
-x remit.
 É Sur les instances de ses amis, Becker réunit ses
 sh poésies. Elles parurent en un petit volume en mars
 # 1841. Peu poétiques, elles déçurent. Les envieux en
@@ -755,7 +559,6 @@ Pour le moins et pour le mieux on l'oublia. À sa mort la
 ï (1) Se trouve maintenant au musée de Bonn (Louis Waeles).
 | 20 Fi
 
-£ LE RHIN ALLEMAND USE ‘
 alors en Allemagne. (1) Le 25 août 1845 ce journal À
 publiait : « Naturellement l'heureux poète aura pensé ?
 que cette coupe était faite pour être remplie, remplie il
@@ -784,13 +587,8 @@ proposé pour reprendre à la tête d'un corps d'armée la rive gauche
 du Rhin. à
 (2) Conradin Kreutzer (1780-1849) depuis le premier octobre 1840
 directeur de l'Opéra de Cologne. Sa composition fut l'une des premières et des plus chantées.
-G) Külnische Zeitung, 15 octobre 1840. <
 | 21 e
-AOL Se
 
-JS ee
-Dee : _ Gaston Raphaël LME
-« Ta # #
 "0 bornées considèrent comme une simple poésie, mais
 42 que les gens raisonnables tiennent pour une manifestaEn: . tion patriotique, est déjà devenu véritablement chant
 Re national. Les soldats le chantent comme chanson de
@@ -806,28 +604,8 @@ el Les compositions du Rheinlied affluèrent. Leur
 Me 4 nombre dépassa deux cents. (3) Le seul Methfessel en
 D écrivit trois. Cette abondance fut nuisible. Car aucune
 FR de ces compositions ne réussit à effacer les autres.
-ï 1. (1) Kôlnische Zeitung, 25 novembre 1840.
-FES (2) Prutz. — Zehn Jahre Geschichte der neuesten Zeit (1840-1850) Leipx zig 1850, tome I, page 304.
 ns À G) Voici quelques noms parmi les compositeurs :
-à F Adams. Kreutzer (Conradin). Reissiger.
-4 » Aller (F.) Krug. Schumann (P.)
-ë Arnold. Kufferath (C.) Schumann (Rob.)
-*à Betshold (J. W.) Kunze. Schwarz (Conrad).
-à Bleibtreu (Gust.) Leibl (C.) Seyifert (F. C.)
-4 Breuer (Bernh.) Lenz (Joseph). Schneider (Fr.)
-4 Buhulst. Liebe (Louis). Stolzenberg (X.)
-ae Derckhum (Franz).  Mangold (C. A.) Syben (And.)
-550 Eichkoff (J. D.) Matthieux (J.) Wabhlert (G. H.)
-1 Engels (Hubert). Marschner. Waïldon (Herrm.)
-ER Erckhofr. Meckert. Walter (Ferd.) K
-n'E Fischer (J.) Methfessel. Weinbrenner (Aug.)
-œR. Gerlach (Jun. Theo.) Meyer (P. H.) Werner.
-se 3 Harrer (Herm.) Môhring (Ferdinand). Willmann.
-RE, Horst. Neukomm (S. von). Wittmann.
-PAM Huth (Louis). Overweg (Carl). Zerti.
-Res Klein (Joseph). Rain.
 
-; LE RHIN ALLEMAND
 Chaque ville chantaït le Rheinlied sur un air différent. +
 Un inconnu se plaignait dans un distique : « A peine le :
 poète a-t-il vaincu l'avidité française par l'union, que
@@ -836,12 +614,10 @@ désaccord. » (1) Faute d'une mélodie, le Rheinlied, ne |
 se maïntint pas comme chant national. |
 
 Le Rheinlied fut traduit en diverses langues. Les pre , 5
-mières traductions françaises parurent en Belgique. 4
 L'une, en prose, fut publiée par le Journal de Belgique 14
 dès novembre 1840. Une autre fut faite en vers : à
 
 Ils ne boiront pas de tes flots, 1
-. . . %
 Libre Rhin de la Germanie, Se
 Dussent-ils, avides corbeaux, Dre:
 S'épuiser de cris et d'envie! <
@@ -862,12 +638,8 @@ Insensés! ils ne l'auront pas, *
 Tant que nos fils, au franc langage Ni
 A nos filles riches d'appas, FA
 Adresseront leur noble hommage; an
-d (1) Kôülnische Zeitung, 3 décembre 1840. n
-fe:
-23 LS
 ,
 
-RAR LTD M AE NS RU qe Re En à NRC) L'MOTMRECEES
 | SERRE Gaston Raphaël ER Se
 START US Tant que l'on verra le poisson . AGE ‘5
 ie ÉTAPE LITE re] Jouer dans ses eaux fugitives,
@@ -884,71 +656,25 @@ De précède les réponses de Lamartine et de Musset dans
 18 je strophes. (2) Î
 Mens The Morning Chronicle publia dès novembre une
 © traduction en vers signée par Charles White : AS
-NAN 2
-:. SS The German Rhine
-3 HAE They shall not, shall not have it,
 5 Le KR Our free-born German Rhine,
-Re : -_ Though, hoarse as famished ravens,
-4 » They round it croak and whine.
 M. :. ; So long its winding current Ni
-Rs, Shall wear its dark green vest,
-Ki x So long as plashing boat-oar
 | Shall cleave its rippling breast.
-4 : They shall not, shall not have it,
 Ne : Our free-born German Rhine,
-en À So long as heart are gladden'd by SV
-13 Its spirit-stirring wine;
-+ ; @) Texte emprunté à Z. Funck : Klänge aus der Zeit hervorgerufen durch die neuesten Ereignisse und Zunächst durch das Be-
 ‘4 ckerische Rheinlied.(Erlangen 1841). C'est un recueil d'un certain nom1e bre de poésies suscitées par le Rheinlied. L'auteur les a réunies
 i “8 È sans indiquer ni la provenance ni la date.
 J'TE (2) Voir dans ce cahier page 45. À
-b24 VISRE F a
 
 LE RHIN ALLEMAND ii
-£ WA
-So long, beneath its eddies, ; À
-As rocks shall firmly stand; 1
-So long as lofty battlements u “
-Shine mirror' d'neath its strand. !
-They shall not, shall not have it, Ë Ë
-i Our free-born German Rhine; AC HES N
-Till amorous youths and maidens k \ Re:
 Forsake the marriage shrine. ni
-So long its depths can shelter X
-A fish amidst their sands; FRE
-So long as songs shall echo d
-From minstrels' lips and hands. ; te
-They shall not, shall not have it, !
-Nef Our free-born German Rhine,
-Till, buried 'neath its surges !
-Our last man's bones recline. 43
 Il parut une traduction flamande de Theodor van
 Ryswyck. L'ami de Becker Wamich fit du Rheinlied
 une ode à la manière d'Horace, intitulée « Rhenodia  .
 Beckeriana ». Il parut une traduction en distiques
-latins : |
 Ne Rhenus liber Germanus cedat ad Istos,
-Rauco corvorum gutture quotquot avenL. Hi
-Dur
-Dum fluit unda silens viridi vestita colore, ï
-Dum strepitans remi palma flagellat eam. x:
-r à é:
 Ne Rhenus liber Germanus cedat ad Istos, à
-Dumdum corda meri recreat igne sui. :
-Ejus dum firmae fundantur flumine rupes, F4
-Ejus dum speculis Arcis imago redit, $
 Ne Rhenus liber Germanus cedat ad Istos, ;
-Dum Juvenes animat celsa puella placens. ER : |
 | "
-Il
-(UNE, « P. {
 
-RO GA ME PAU RME ANNE AE PO Sr EE
-: DAT ° D A RARE TEE NE 1 PRTId EE
- , ss Gaston Raphaël
-: LEA CS ; ÉMUNS 0
-i ia No FAC Dum pinnas agitant ejus sub gurgite pisces,
-RARE Ejus dum carmen Vatibus ore viget. ‘e
 : LITE Ne Rhenus liber Germanus cedat ad Istos,
 De : Ultima dum condet fluctibus ossa viri. (1)
 . 5 Le Rheinlied fut imité. Les imitateurs furent aussi
@@ -979,20 +705,13 @@ ho. De Strassbourg et de Metz et de la Lorraine : —
 1 57 #4 ; Que le mot d'ordre retentisse : au Rhin ! au delà du Rhin!—
 DE ps: Toute l'Allemagne en France !... —
 ee Re (1) Cité par Louis Waeles, page 62.
-E+ ©
-ah , ,
 
 PRET Are + GNU A EE TO Ce RAS Ur OR 01 EN LAND CH AEPRE QTe, #2 à ARE nu.
-LE RHIN ALLEMAND ‘A
-c À ‘ei
 Sur la table du prince de Prusse, le futur empereur A.
 Guillaume premier, on trouva une poésie manuscrite.
 Elle lui fut attribuée. I1 semble que ce ne soit pas avec SE
 fondement. Le prince s'est sans doute contenté de copier Fe
-Ë ANT Be ë É jee
 de sa main des vers où il retrouvait ses propres senti- re
-ments : 1
-$
 Ils le possèdent là-bas — se
 Le vieux Rhin allemand, — AP 1
 C'est pourquoi toujours tirée — 1
@@ -1017,13 +736,8 @@ Si tu résistais, — 1
 Si tu ne sens pas ta servitude, — ‘4 » Nous te ferons rentrer — ê
 Dans tes devoirs d'enfant ; — "+
 (1) Jeu de mots en allemand : O Strassburg, Burg der Strassen. ñ
-27 * 4
-À
 
-mn
-RSS AS "Gaston Raphaël "1" VPN
 LLC À qu'un jour tes enfants, — } tes
-ENT: f Puissent être Allemands —
 {53 Et fêter les vainqueurs — PA
 RS De leurs pères! — ñ
 Ia Ainsi nous voulons l'avoir —
@@ -1046,21 +760,16 @@ mie Ce qui avait pénétré l'âme de quelques-uns seulement, —
 A Ce qui était le but des sarcasmes de la foule, —
 “4 Tient maintenant tous les Allemands étroitement unis —
 Dé Depuis la hutte infime jusqu'au trône! —
-s
 & Georges Herwegh reprit avec plus de chaleur et de
 ES : __ pittoresque les deux motifs essentiels de la poésie de
 ‘5 Becker : les charmes du Rhin et les mœurs chastes et
 Re: énergiques des Allemands :
-Ë à] ,
 4 Le vin du Rhin
 :4ne De ce lieu où croît un tel feu, —
 %e \$ Où un tel vin jette encore des flammes, —
 FR Jamais de toute éternité, — :
 Re Jamais nous ne nous laisserons chasser. —
 
-Le K x *
-\ L
-LE RHIN ALLEMAND ÿ
 Trinquons ! Trinquons! Le Rhin, — . LA
 Quand ce ne serait que pour son vin, — f fe
 Le Rhin doit rester allemand... — à
@@ -1081,81 +790,25 @@ analogues. Sa poésie resta longtemps ignorée. Mais elle
 eut la fortune d'être misé en musique d'une façon définitive par Karl Wilhelm. Elle remplaça le Rheinlied
 comme chant national. Les troupes allemandes la chan- .
 tèrent pendant l'hiver de 1870. (1) |
-Die Wacht am Rhein
-Es braust ein Ruf wie Donnerhall, à
-Wie Schwertgeklirr und Wogenprall : 4
-« Zum Rhein! zum Rhein! zum deutschen Rhein! » à
 Wer will des Stromes Hüter sein ? |
 (1) La poésie de Hoffmann von Fallersleben : das Lied aller j
 Deutschen (Deutschland, Deutschland über alles), qui est devenue un 3
 autre chant national allemand, fut écrite en 1841. Aucune des nom- À
 breuses poésies suscitées par la guerre franco-allemande ne le A
 devint. Les chants nationaux allemands datent de 1840-41 et non \ 1
-de 1870-71. à
-29 IL. k
 
-‘st AP RE DA PAP AUEN 9 EN DT 7 VOA ACIER ae
-2150 PER Gaston Raphaël FÉRRNNTEES
-5368 .  Lieb Vaterland, magst ruhig sein : HR SPAM
-FN Fest steht und treu die Wacht am Rhein!
-re Durch Hunderttausend zuckt es schnell,
-
-A Und aller Augen blitzen hell :
-
-j 4 Der deutsche Jüngling fromm und stark
-
-Fe Beschirmt die heïl'ge Landesmark.
-
-1:00 Lieb Vaterland, magst ruhig sein :
-
-Pi Fest steht und treu die Wacht am Rhein!
-
-pu Auf blickt er, wo der Himmel blaut,
-
-Ke Wo Vater Hermann niederschaut,
-
-ue: Und schwôrt mit stolzer Kampfeslust : 6
 ; | ! « Du, Rhein, bleibst deutsch wie meine Brust ! » |
-FL Lieb Vaterland, magst ruhig sein : :
-LS Fest steht und treu die Wacht am Rhein!
-
-4 N « Und ob mein Herz im Tode bricht,
 
 Fu Wirst du doch drum ein Welscher nicht,
 
-f : Reich, wie an Wasser deine Flut,
-
-14 Ist Deutschland ja an Heldenblut. »
-
-F. Lieb Vaterland, magst ruhig sein :
-
-me. Fest steht und treu die Wacht am Rhein !
-
 ne « So lang ein Trôpfchen Blut noch glüht,
 
-ii 34 Noch eine Faust den Degen zieht
-
-JR Und noch ein Arm die Büchse spannt,
-
-‘4 Betritt kein Welscher deinen Strand. »
-
-5e Lieb Vaterland, magst ruhig sein : .
-
 | sé Fest steht und treu die Wacht am Rhein !
-
-_ Der Schwur erschallt, die Woge rinnt, ë 4
-Die Fahnen flattern in dem Wind. PANEEE: :
-Zum Rhein, zum Rheïin, zum deutschen Rheïn, - #1
-Wir alle wollen Hüter sein! FR r
-Lieb Vaterland, magst ruhig sein : 14 ‘1
-Fest steht und treu die Wacht am Rhein! | #
 
 La Garde au Rhin #
 
 Il retentit un appel comme le fracas du tonnerre, — D:
 Comme le cliquetis des épées et le choc des flots: — ES
-
-« Au Rhin! au Rhin ! au Rhin allemand! » — s P
 
 Qui veut être le gardien du fleuve? — NE
 
@@ -1189,10 +842,6 @@ Tes flots ne sont pas plus riches en eaux, — AE FER
 “ Chère patrie, tu peux être tranquille : — de
 Ferme et fidèle veille la garde au Rhin. — - 6
 
-< KA
-
-a Ur Gaston Raphaël | À
-
 nan } ._ « Aussi longtemps qu'une gouttelette de sang coulera encore
 
 fe MA Qu'un poing brandira l'épée, — [ardente, —
@@ -1209,15 +858,11 @@ Fe k Le serment retentit, la vague s'écoule, —
 
 Ne ( ? Les étendards claquent au vent. —
 
-jee f Au Rhin, au Rhin, au Rhin allemand, —
-
 ue Nous tous voulons être ses gardiens ! —
 
 FL + Chère patrie, tu peux être tranquille : —
 
 HEUes Ferme et fidèle veille la garde au Rhin.—
-
-UN D)
 
 Fi je A côté de ces poésies inspirées ou imitées du
 
@@ -1247,8 +892,6 @@ ai à de nombreuses plaisanteries. On chansonna Becker.
 
 No) Il fait dire au Dieu du Rhin :
 
-sh
-
 à $ A Biberich j'ai avalé des pierres (1) —
 
 : PNR Vraiment ce n'étaient pas des friandises ! —
@@ -1256,8 +899,6 @@ sh
 À È (1) Les deux ports de Mayence et de Biberich étaient en concur-
 
 “it rence. Par un habile aménagement du fleuve ce dernier semblait
-
-Tr
 
 PR PE 0 CNT où) APTE EP A TOM TE te D PC PR SPORTS Te re Te LP OU NAT DENT CO
 LE RHIN ALLEMAND tés
@@ -1275,7 +916,6 @@ Me noyer dans moi-même. — "4
 Que je ne suis pas une vierge —
 Les Français le savent bien, —
 À mes eaux ils ont assez souvent — « Mélé leurs eaux victorieuses. —
-D'autres poésies s'élèvent directement contre Becker A
 et contre l'agitation guerrière. Elles sont les œuvres de
 libéraux irréductibles. Sans doute il importait de fonder a
 et de sauver l'Allemagne. Mais l'enthousiasme national ;
@@ -1287,7 +927,6 @@ _ hommes dignes et capables de conserver le Rhin. Tel 4
 _ est le sentiment que Robert Prutz exprime dans une fl
 _ poésie, Le Rhin, qui parut en édition spéciale et très “2
 répandue en 1841. Rougissez, dit-il aux Allemands, #
-_ Pa
 devoir l'emporter. Une nuit de mars 1841 des habitants de Biberich Lt
 virent avec étonnement passer soixante chalands, chargés de grosses 4
 … pierres. Ils interrogèrent les bateliers. Ceux-ci répondirent que les 0
@@ -1296,8 +935,6 @@ Mais peu après ils ouvrirent les chalands préparés d'avance et 4
 * immergèrent toutes les pierres dans le Rhin. L'entrée du port de ee
 | Biberich fut obstruée. Telles étaient l'anarchie et la jalousie dans « ,
 les affaires intérieures de l'Allemagne même en 1841. k
-L $
-33 | <
 | )
 |
 
@@ -1318,9 +955,6 @@ ras s# Alors il vaudra la peine de combattre jusqu'à la mort, —
 | RTE Car allemand et libre, alors il restera notre (2) Rhin. —
 AR. Er Quelques poésies plus hardies furent même nette-
 | LIVES ment internationalistes. Rudolph Gottschall dédiait ces
-5 * EU -
-CR strophes :
-RS: : ; Au Rhin
 WE Et toi, fils libre des montagnes libres, —
 LÉ 210 Qu'enveleppent l'haleine et les parfums de la poésie, —
 PRCÉRES Tu n'es pas un garde-frontière, pas un sergent, —
@@ -1370,9 +1004,6 @@ ment à M. de Saint-Aulaire, son ambassadeur à Vienne :
 (1) Cette poésie, postérieure à la crise, parut en 1842 dans les #
 Lieder der Gegenwart (chansons actuelles). Elle fut sans doute ‘ 41
 _ inspirée par la réponse de Lamartine. *.
-x
-
-nes $ _ Gaston Raphaël el ah
 
 : « Pour votre gouverne particulière il faut que vous
 
@@ -1419,8 +1050,6 @@ faire pour que la Syrie soit aux mains du pacha etnon
 
 (1) Cité par Debidour dans l'Histoire diplomatique de l'Europe,
 
-' tome I, page 382.
-
 À (2) Edgar Quinet dans une lettre à sa mère du 14 octobre 1840 pré-
 tend savoir : « que tout le plan de campagne consistait à s'enfermer dans les ports de la Provence ct à tenter de conserver nos
 communications avec Alger ».
@@ -1434,7 +1063,6 @@ de Guizot, tome V, page 370.
 
 | | LE RHIN ALLEMAND ee
 cause les équipées révolutionnaires ou les désastres de be
-VEmpire. | -
 Bourgeois et royalistes se souciaient surtout fort peu Re
 de réveiller l'esprit révolutionräire. Il apparaissait de ‘
 plus en plus que la guerre projetée devait être révolu- ‘4
@@ -1462,12 +1090,8 @@ négociations au sujet de ces questions délicates abou- 4 de.
 tirent le 13 juillet 1841 à la Convention des Détroits, 4
 que la France signa avec les quatre Puissances. Mais ke
 dès le mois d'octobre 1840 la crise était virtuellement 40
-résolue. 54
-ke
 G) Lettre de M. de Rémusat à un ami, 17 octobre 1840. > "
-; #2 re
 
-; Gaston Raphaël NA ES
 Aussi les polémiques prirent-elles un caractère nouveau. À la Chambre, on parlait encore de l'honneur
 L national, de la sécurité nationale. Mais le débat rele-
 Ù vait, dans le fond, de la politique intérieure. On était
@@ -1477,7 +1101,6 @@ Hors la Chambre les polémiques devinrent « littéraires ».
 L'enthousiasme allemand était calmé. L'excitation
 française avait pris fin. On ne se disputait plus de
 peuple à peuple, mais de journaliste à journaliste, de :
-poète à poète.
 Aussi ne fut-on pas beaucoup ému en France par le
 Rheinlied. On l'accueillit avec moins de colère que
 d'ironie. Le National imprimait à la date du 2 avril 1841 : —
@@ -1498,12 +1121,10 @@ prêta à ces terrassiers un chant des braves où ils chantaient : « Non, ils n
 destinait à devenir la Marseillaise de la monarchie de Juillet.
 (2 Chronique de la Revue des Deux Mondes du 15 juin 1841.
 
-D 0 © 1x RHIN ALLEMAND qu 4 eSS
 vin! vin! vin! Les fortifications nous appellent, ma F Re
 truelle frémit d'impatience ; en route et répétons tou- F2
 jours : Heug ! Heug! Heug! le cri des braves! » (x) Il 42
 semblait bien que tout se terminerait par des « chan- j “4
-SORS ». à La
 
 Mais pour quelques jours, la réponse que Lamartine $5 180
 fit à la poésie de Becker, ranima les colères passées. é 24
@@ -1528,7 +1149,6 @@ entre les peuples ». (3) Il reconnaissait pour la France 1
 la nécessité de s'étendre jusqu'au Rhin. Mais il refuse .
 de faire la guerre. Il ne veut pas qu'on lance la Révolu- 2
 tion de Juillet hors de son lit pour mettre en question 4
-(1) Le Charivari du 2% avril 1841. ‘4
 (2) Lettre de Lamartine à madame de Girardin du 17 mai 1841. ' 54
 Correspondance de Lamartine, publiée par madame Valentine de Le
 
@@ -1536,9 +1156,6 @@ Lamartine, tome V, page 534. be » (3) Discours sur La question d'Orient du 11 j
 
 La France parlementaire (discours et écrits politiques de Lamar- PRET.
 
- tine) tome II, page 302. D:
-
-Gaston Raphaël |
 toute l'Europe. (1) IL vote contre le projet de fortifica-
 à tions pour Paris. Il prévoit le danger de l'apothéose de
 : Napoléon. « Je ne suis pas de cette religion napoléonienne, de ce culte de la force que l'on veut depuis
@@ -1560,7 +1177,6 @@ et s'il y avait opposition entre l'intérêt étroit du M
 DS poésie, qu'on lui reproghe mais qu'il ne désavoue pas, a été écrite %
 « dans un temps où une mesquine politique voulait nous agacer LA
 contre l'Allemagne et nous exciter contre l'Angleterre ». Cours fanilier de littérature, VII, 9. ‘4
-(2) Discours du 26 mai 1840. Ulbach, IT, 350. ŒL.
 (3) Discours du premier décembre 1840. Ulbach, III, 21. Déjà dans
 | les Recueillements poétiques, Lamartine avait en plusieurs passages
 exprimé son horreur de la guerre. Il dit dans,la Lettre-Préface : « IL
@@ -1568,10 +1184,7 @@ s'agit de savoir... si on effacera peu à peu du code des nations ce M
 meurtre en masse qu'on appelle la guerre ; si les hommes se gouverneront enfin comme des familles, au lieu de se parquer comme M
 des troupeaux. » (Premier décembre 1838). Cf. certaines poésies : M
 Utopie (août 1837) et surtout une poésie qui fut une déclaration politique : Toast porté dans un banquet national des Gallois et des Bre- M
-tons à Albergavenny en Écosse (25 septembre 1838).
-40 : È
 
-LE RHIN ALLEMAND à
 nationalisme et l'immense intérêt du genre humain, #
 je dirais, comme Barnave : « Périsse ma nation pourvu ; 4
 que l'humanité triomphe! » (1) Au-dessus des intérêts 4
@@ -1606,12 +1219,7 @@ Journal de Saône-et-Loire, 29 août 1840. Ulbach, II, 382. F#
 | (2) Discours prononcé le 10 février 1840 au banquet donné par la À
 Société française d''émancipation de l'esclavage aux délégués des va
 sociétés anglaise et américaine. Ulbach, II, 312-313. |
-fa 4
 
-: n
-LT
-
-"1 | Gaston Raphaël Ro
 + était peut-être le seul à connaître la Turquie et l'Orient.
 je En 1832 et 1833 il avait parcouru ces contrées. A
 
@@ -1656,7 +1264,6 @@ l'Orient ? Ne vous battez pas. Mais au lieu de redouter
 
 à le partage de l'Orient, négociez en paix et avec fran- ë
 
-Ÿ
 ; (1) Notamment le 8 janvier 1834, le 12 janvier 1836, le premier {
 juillet 1839, le 11 janvier 1840, le premier décembre 1840. li faut ajouter &
 pendant la crise quatre articles sur la question d'Orient, la guerre et le
@@ -1664,10 +1271,6 @@ ministère, dans le Journal de Saône-et-Loire (28 août 1840 et jours {
 suivants) qui parurent en brochure avec une préface datée du 24septembre 1840. : À
 (2) Discours du 8 janvier 1844. Ulbach, I, 19. {
 
-Era
-
-Ê UN :
-LE RHIN ALLEMAND "
 chise la répartition des domaines turcs. « Vous parta- 4
 gerez en enfants prédestinés de la Providence le vaste fi
 et magnifique héritage que la mort naturelle de l'em- *
@@ -1682,8 +1285,6 @@ votre mémoire les bénédictions de deux continents. » (1) Hs
 C'est en partisan de la paix, et en partisan du par- GAS
 tage de l'Orient que Lamartine répondit à Becker. (2) fi
 Dans son numéro du premier juin 1841 la Revue des l
-Deux Mondes publiait : mar
-en:
 red) Discours du 4 janvier 1834. Ulbach, I, 7. Dans la suite, Lamar- ;
 tine apprécie cette politique ainsi : « On agitait la question exté- 1
 rieure, Je venais de parcourir pendant deux ans le monde orien- à
@@ -1701,9 +1302,7 @@ par lui-même. À. Lemerre, Paris, 1892, pages 340-341. S
 (2) Ce n'est pas le recueil mais seulement le Rheinlied que Becker ‘UE
 avait dédié à Lamartine. - 18
 
-\
 La Marseillaise de la Paix
-A »
 | À [A monsieur Dargaud] (x)
 Le poète allemand Becker vient de publier et de dédier
 À à Lamartine un recueil de poésies (2) où il a inséré le chant
@@ -1750,20 +1349,10 @@ argent qu'il eût jamais touché d'un journal ou d'une revue ». Lettre M
 
 à madame de Girardin du 5 juin 1841. Correspondance, tome V, à
 
-page 539.
-
-W
-
-22 LUE AY NME TRE RON PAPETANPA ie LE PNSS CT PR SL
-SEE F NES ETS et ATEN ET REETE ANR TR M ONE
-MO pr me HN
-1 DTA AE RAR RS LAN ed
 ve + v Vas et LEE
 à Le Rhin allemand RENE
-‘ Dre 4 3
 « Is ne l'auront pas, le libre Rhin allemand, quoiqu'ilsle
 _ demandent dans leurs cris comme des corbeaux avides! »
-D SAS + 54
 « Aussi longtemps qu'il roulera paisible, portant sa robe
 verte, aussi longtemps qu'une rame frappera ses flots. » ete
 L « Ils ne l'auront pas, le libre Rhin allemand, aussi long- PET
@@ -1771,46 +1360,21 @@ _ temps que les cœurs s'abreuveront de son vin de feu. » . Ÿ Li 4
 . « Aussi longtemps que les rocs s'élèveront au milieu de “ 4 É.
 son courant, aussi longtemps que les hautes cathédrales se Da.
 _ refléteront dans son miroir. » LI
-' D
 | « Ils ne l'auront pas, le libre Rhin allemand, aussi long- . 7 $
 _ temps que de hardis jeunes gens feront la cour aux jeunes SAUTER
-; filles élancées. » ie
 _ « ls ne l'auront pas, le libre Rhin allemand, jusqu'à ce PR
 _ que les ossements du dernier homme soient ensevelis dans ‘La
 # ses vagues. » re
-2x . + AUS
-d21à " ÿ
-” nr | Faure
-à LR " AULE
-D D. | mu 204
 
-LR PR EEE LA AREA NUE APRES
-LOVE ATEN PRE RÉROATNAN Li raie RENE Dr UE HP PNEX Fe ' {
 “oT se DE LE ONE A PA CT CEA € : 0 E CEE eur
-AUS NET VAN MSNM MERE FL “re VERT METIER
 ARE A ER PAR EN à en ae) Re nl
-ere RURAES LRO S'HSTEN NE A EN UE / LA LIN CSC SES
-LIANT ETS AE TEES “EN RADAR UESS RAR AE sr A
-12 040 AULPTE MRR RSS L'#T, PE y NDS b AR TR 0 0
 SIL N TR ET RO CEA D La ee AE ne ire à
 L'TARCIU) MR EE » 4 CE (dut DURS de
-1 NES EIRE TORReS A SR
-RARE à ‘MC , Ÿ fe AAA Fr 0 FL
-RO AE PU ee Hi RE NRI ; OA En EAN +
-2 a CARS ARR RSS ESS à SAS DEEE
-Fate 1003 rt MOMIE } ; LP ER NIUE
-LOTS SEE : 4 CAC NE ENTEEENS
-LR TRS TO PURES ARE TRE { à 1 Si NA IAE)
-: 5% oo 1 5e 2 TR MSN RON DT AALNEAIT ES 7 A Re PRE
 
 la Marseillaise de la Paix
-K
 
-RÉPONSE A M. BECKER
 |
-s: |
 
-DU
 Roule, libre et superbe entre tes larges rives, L k.
 Rhin ! Nil de l'Occident ! coupe des nations ! ‘1
 Et des peuples assis qui boivent tes eaux vives ; “
@@ -1828,8 +1392,6 @@ Roule libre et limpide en répétant l'image 4
 De tes vieux forts, verdis sous leurs lierres épais, { Ke
 Qui froncent tes rochers, comme un dernier nuage A.
 Fronce encor les sourcils sur un visage en paix. 44
-; 4
-; 49 M
 
 : _ Alphonse de Lamartine : L
 Ces navires vivans dont la vapeur est l'âme
@@ -1858,10 +1420,7 @@ ne Roule libre et splendide à travers nos ruines,
 D) | Fleuve d'Arminius, du Gaulois, du Germain !
 | Charlemagne et César, campés sur tes collines, |
 T'ont bu sans t'épuiser dans le creux de leur main !
-;
-} #Æ
 
-PU D MP PEN ONE T PO AR RE MR LP RES APRES EI
 LA MARSEILLAISE DE LA PAIX ne
 Et pourquoi nous haïr et mettre entre les races ‘5
 Ces bornes ou ces eaux qu'abhorre l'œil de Dieu? &
@@ -1872,12 +1431,10 @@ L'amour s'arrête-t-il où s'arrêtent vos pas ? ne 4
 Déchirez ces drapeaux; une autre voix vous crie : j 4
 L'égoïsme et la haïne ont seuls une patrie, % à
 La fraternité n'en a pas! Ki
-F0
 Roule libre et royal entre nous tous, Ô fleuve! É 4
 Et ne t'informe pas, dans ton cours fécondant, , à
 Si ceux que ton flot porte, ou que ton urne abreuve, ‘4 |
 Regardent sur tes bords l'aurore ou l'occident! 4 ;
-n
 Ce ne sont plus des mers, des degrés, des rivières, 4 1
 Qui bornent l'héritage entre l'humanité; ; h |
 Les bornes des esprits sont leurs seules frontières, 2 :
@@ -1887,13 +1444,10 @@ Où sa langue répand ses décrets obéis ! 4
 Chacun est du climat de son intelligence, ‘4
 . Je suis concitoyen de toute âme qui pense : fi
 La vérité, c'est mon pays! (*) de
-‘4 à
 Roule libre et paisible entre ces fortes races ‘1
 Dont ton flot frémissant trempa l'âme et l'acier, Ke
 Et que leur vieux courroux, dans le lit que tu traces, 4
 Fonde au soleil du siècle, avec l'eau du glacier ! 44
-EL.
-51 é | #1]
 
 Alphonse de Lamartine
 / Vivent les nobles fils de la grave Allemagne ! ee
@@ -1906,7 +1460,6 @@ Leur langue a les grands plis du manteau d'une reine,
 Où tout ce que l'on jette, amour, bienfait ou haine,
 ; Ne remonte jamais du fond. 4
 Roule libre et fidèle entre tes nobles arches, æ
-ÿ O fleuve féodal calme, maïs indompté !
 Verdis le sceptre aimé de tes rois patriarches;
 14 Le joug que l'on choisit est encor liberté !
 : Et vivent ces essaims de la ruche de France,
@@ -1923,9 +1476,6 @@ Pour lancer l'idée ou la mort !
 | L'aigle et le fier taureau boivent l'onde à ta source; : |
 Que l'homme approche l'homme, et qu'il boive aux deux bords
 
-ï e
-
-LA MARSEILLAISE DE LA PAIX EN à
 Amis, voyez là-bas ! — La terre est grande et plane ! ' Re
 L'Orient délaissé s'y déroule au soleil ! He:
 L'espace y lasse en vain la lente caravane, d À b:
@@ -1941,7 +1491,6 @@ Des artères du globe enlace le réseau, 4
 Rends l'herbe et la toison à cette glèbe ingrate, à
 Que l'homme soit un peuple et Les fleuves une eau ! 2
 
-ip
 Débordement armé des nations trop pleines, ; d
 Au soufile de l'aurore envolés les premiers, : | |
 Jetons les blonds essaims des familles humaines 160)
@@ -1949,7 +1498,6 @@ Autour des nœuds du cèdre et du tronc des palmiers ! 4
 Allons, comme Joseph, comme ses onze frères, ‘4
 Vers les limons du Nil que labourait Apis, F
 Trouvant de leurs sillons les moissons trop légères, À
-S'en allèrent jadis aux terres étrangères 4
 
 Et revinrent courbés d'épis ! 2%
 Roule libre, et descends des Alpes étoilées +; 0
@@ -1967,15 +1515,12 @@ Er Sans vendre à l'oppresseur un peuple gémissant,
 Rapportons-en le blé, l'or, la laine et la soie, |
 Avec la liberté, fruit qui germe en tout lieu! {
 ; Et tissons de repos, d'alliance et de joie À
-f ” . Es # . ;
 : L'étendard sympathique où le monde déploie 4
 à L'unité, ce blason de Dieu!
 Roule libre et grossis tes ondes printanières TS
 f Pour écumer d'ivresse autour de tes roseaux,
 “2 Et que les sept couleurs qui teignent nos bannières,
 ; Arc-en-ciel de la paix, serpentent dans tes eaux !
-j Saint-Point, 28 mai 1841.
-a ÿ &
 () L'esprit des temps rejoint ce que la mer sépare, 4
 ' Le titre de famille est écrit en tout lieu. d
 Li L'homme n'est plus français, anglais, romain, barbare, ne
@@ -1984,8 +1529,6 @@ Il est concitoyen de l'empire de Dieu! A.
 &' Les langues de Babel retrouvent l'unité, 4
 g, L'Évangile refait avec toutes ses pierres 4
 4 Le temple de l'humanité! à ÿ
-pr (Toast. 1838) ÿ
-24 i
 4 (*) Cf. madame de Staël. — De l'Allemagne, I, 2 : « cette éminente 3
 À faculté de penser, qui s'élève et se perd dans le vague, pénètre et À
 de disparaît dans la profondeur ». ;
@@ -1994,45 +1537,9 @@ Paix figure parmi les Épiîtres et Poésies diverses. |
 
 *° Fe ne. "TE > Ai È EE A h PEN S MAY Fan PAU UT ne MC: ; e Ts BE
 RSR ER PR ae RES PE 4 SA joe Ne RU de NS CUS
-à CARS MAR LEE ETES Frs HA HE 6 METRE Lt RTS NL ME Pa AT EF PES Nierr
-DRE AU RPM EU RE ? * t RS AU LE Yn RU
-haut ESS SRE | PART ie NÉ PRET NOTE .h ? A MATE NT ARE ORNE
-RER Re ESPN MAT AIS ST Re è #t + A URL: RSS NN DE TITRES
-TÉRCÈNE SOA AUS: PE PORN SET ENCRES ARE DEC ST Den
-414 1e at ; x 44) EE
-+ 3 À [416 + < s, CS
-Fer Pt 427 STORE
-ner A 4 LAS “ES
-HELENE |: 1204 AE
-dr PATES Fa eh
-a è ARE SE
-Es ; 4 LAVER OR
-? A4 TAGS
-" 4 RUE Far
-' EN! nt
-Re Le
-& ru RS
-À) #4 RO \ #3
-è L ME
-RRLUN : L'HENTE
-41h Nu Rtx
-à PS se y
-à AE SU 4
-. j } {1 14 MR
-: 4 :-< PAPSOE
-; AS or ALT
-! AN ONSSAGREE
-24 2 'AONER
-708 1}. VE
-VS EE
-‘ V7". PRESS
 tre FER % Le, de RER ENEN
- P'RÉATET sv 441 D'MPÉANES TORACTE
 
-Ke « . MSC ORNE a
 |
-Un
-3 ;
 5 Cette Marseillaise de la Paix fut mal reçue. Assurément il se trouva des esprits assez ouverts ou assez à
 F simples pour l'admirer. Des ouvriers la publièrent dans
 à une brochure distribuée gratuitement. (1) En Alle- à
@@ -2043,7 +1550,6 @@ Fa Mais dans les deux pays les railleries ou les insultes à
 ë dit que les journaux allemands ont abominablement,
 indignement traité la Marseillaise de la Paix? » (3) La
 (1) Paix et travail. Progrès et conservation. MM. Alphonse de É
-LR Lamartine, Victor Hugo, Michel Chevalier, Paris. Se distribue :
 ; gratis chez M. Vimard, directeur de la Ruche Populaire, passage 4
 Saucède, 28. In-8, 27 pages. — On lisait dans la préface : « Des À
 ouvriers parisiens qui appellent de leurs vœux et de leurs efforts : M
@@ -2057,17 +1563,12 @@ ou seur d'économie politique au collège de France] le lendemain de Ja #4
 ; Révolution de juillet, alors que bourgeois et prolétaires, au signal &
 | du prince lui-même, entonnaient à l'unisson le chant français d'un À
 autre âge, la Marseillaise avec son refrain d'anathème contre le k
-ste sang impur. » ;
 (2) Gazette de Cologne, du 22 juin 1841. Se trouve dans Ferdinand À
-Freiligrath''s gesammelte Dichtungen 6. Auflage 1898 (Gôschen, Leipzig)
-tome II, pages 203 à 209, 3
 (3) Septembre 1841. Edgar Quinet, Lettres à sa mère, tome II,
-page 360. 3
 
 LE RHIN ALLEMAND PNA QE ni
 Gazette de Cologne en disait : « A côté de la petite : ha
 poésie de Becker, elle a l'apparence d'une dame de la ) 4
-cour, fardée, poudrée, en robe à panier, gonflée, à ‘a
 côté d'une petite paysanne simple et saine. » (1) En Fe
 France on fut plus violent. Le comte Le Noble Aubert Ve ;
 du Bayet, capitaine de l'Empire et poète en temps de ‘104
@@ -2098,12 +1599,7 @@ Pendant plusieurs jours le Charivari s'acharna sur A
 (2) Le Rhin français (réponse au chant de Becker) par le comte Le 18
 Noble Aubert du Bayet, chez Delaunay, Paris. En vers, 0 france 30. De,
 Juin 1841. Préface. Nous donnons cette pièce, page 67. Ÿ “1
-(3) National du 14 juin 1841. De:
-57 va
 
-LE
-
-à Gaston Raphaël + RNLAN 1
 Lamartine, qu'il surnommait M. de Latartine. Il impri
 mait le 4 juin : « Il y a par l'Allemagne un certain É
 à M. Becker qui a éprouvé le besoin de déclarer que
@@ -2182,13 +1678,10 @@ graissent pas exclusivement de harengs. : Re
 
 | ki
 
-Ü 20 F VIA re 1e AN
 ne | Gaston Raphaël ON NT
 4 Soit vers les bords français, ou le sol helvétique ; 44
-A À ? # ! . La.
 Que ton flot s'émerveille au murmure exotique £
 CARO De mille jargons différents ! :
-LRU F1
 “4 Roule, sans te gêner, à travers les décombres, Ë
 cé Toi, dont Jules César autrefois a bu l'eau ; à
 Qui sur Napoléon vis s'amasser les ombres, Fe
@@ -2215,19 +1708,14 @@ d Parmi ces hommes froids, à l'œil fixe et vitreux,
 “ Jamais un foutriquet, moutard que rien ne dompte,
 à. N'ose de leurs conseils, sans scrupule et sans honte,
 j Trahir les secrets ténébreux. |
-5 e {4
 À Poursuis, poursuis, vieux Rhin, ta course vagabonde; a
-à . . De?
 wi Laisse libre les deux côtés de ton courant ; 1
 F L'ours et Le fier cheval boivent bien à ton onde, “
 Laisses-y boire aussi le Germain et le Franc.
 La place, par hasard, au soleil manque-t-elle ? :
 Je ne crois pas. Amis, là-bas est l'Orient, ‘4
-' 1
-: F#
 #4
 
-% + = LE RHIN: ALLEMAND +4 F0 r0
 Ce vieux géant tenu par des nains en tutelle, # F2
 Ce jardin de la terre, à l'aspect si friand. 4
 L'Orient est pour moi le rêve de Tantale ; LES
@@ -2235,7 +1723,6 @@ Je veux au coq gaulois en donner une part, 4
 Puis jeter le surplus, par portion égale, Rex |
 Au vautour de Russie, à l'aigle bicéphale, ; ss 4
 ‘ Ainsi qu'au rusé léopard. ? , Du:
-Continue à couler, large fleuve aux eaux vives, Fo
 Mais sans jamais rouler de morts ni de débris, ‘ 4
 Fais en sorte, au plus tôt, d'arborer sur tes rives FA 74
 Le superbe drapeau de la paix à tout prix. Fe
@@ -2249,8 +1736,6 @@ La Revue des Deux Mondes avait été directement à A
 attaquée. Elle prit peur. Elle crut opportun de faire - FRE
 pardonner son audace malheureuse. Dès le numéro du MR:
 15 juin 1841 elle publiait une réponse à Lamartine 4 J È ;
-d'Edgar Quinet : Fa
-5 Le Rhin ÿ
 * A M. de Lamartine "
 Au premier coup de bec du vautour germanique, + “# É
 Qui vient te disputer ta part d'onde et de ciel, Dee
@@ -2261,15 +1746,12 @@ Gardant pour ta couvée à peine un grain de mil, 44
 Des roseaux paternels tu cèdes l'héritage ; k à
 à Et sur l'aile de l'hymne agrandi dans l'orage, 1 RS
 Du Rhin tu fuis jusques au Nil! î À
-IV ? À
 
-4 _ Gaston Raphaël ANNENA
 1 8 Ah! qu'ils vont triompher de ta blanche élégie! D.
 à) Que l'écho de Leipsig rira de notre peur! ‘À
 748 1 Déjà l'or de ton chant transformé par l'orgie, #
 4 Dans l'air m'est renvoyé comme une balle au cœur. ê
 # J'écoutais l'avenir dans ta voix souveraine, ‘à
-: Au joug harmonieux me soumettant d'abord ; \
 4 Mais la douleur m'éveille au sein de la syrène; F
 Ma lèvre, en pâlissant, repousse encore pleine k
 Fe La coupe où tu verses la mort. ,
@@ -2300,9 +1782,6 @@ Quand vit-on reculer le sanglant Sagittaire, “
 Ou fuir les deux Gémeaux, s'inclinant jusqu'à terre, j En
 Dans la cité du Scorpion? 114 4
 
-Re nn
-LE RHIN ALLEMAND D TE
-1 j DZ
 L'humanité n'est pas la feuille vagabonde, Ne:
 Sans pays, sans racine, enfant de l'aquilon. 1 54
 C'est le fleuve enfermé dans le lit qu'il féconde, Al
@@ -2340,7 +1819,6 @@ Albion, sur sa nef, détruit-il son rempart? 150
 Parmi les flots d'airain que l'Orient soulève, 5
 Orphée a-t-il enfin marié sur la grève pe
 # L'aigle blanc et le léopard? +4
-d'in
 | 63 FU
 
 Gaston Raphaël ( ne
@@ -2353,7 +1831,6 @@ Du Nil de l'Occident nous ne voulons qu'un bord,
 Pour que les cieux de France et les cieux d'Allemagne |
 Sous les eaux partageant l'astre de Charlemagne, x
 Roulent ensemble au même port.
-}
 ei Aux troupeaux divisons la source de nos pères. $
 à Quand ils ont sur la rive assis la liberté, 1
 ; Craignaient-ils d'éveiller les gothiques vipères ?
@@ -2381,17 +1858,12 @@ Loin d'Apis entraîné par le serpent d'airain, Æ
 Fais-nous rentrer, joyeux, dans l'ancien héritage; 2
 à Et le glaive épousant les lyres au rivage, #4
 Allons revoir notre Jourdain. A
-64 : “œ
-Du 1
 
 . Ne LE RHIN ALLEMAND he LOTS di:
-rie t j P
 On ne se contenta point de répondre à Lamartine. 59
 On fit de vives ripostes au Rheinlied. On atteignait ra
 d'un coup Becker et Lamartine. 7
 Le Charivari publia la sienne le 11 juin : SE
-LA
-Sy
 — Nous en rirons longtemps de tes vers, de tes vers alle- 3 ss
 mands, quoiqu'ils nous assourdissent les oreilles comme ds
 les cris de mille corbeaux. : a
@@ -2399,7 +1871,6 @@ les cris de mille corbeaux. : a
 viale parodie d'un chant qui fit trembler, jusque dans leurs l'AS
 fondements, les vieilles cathédrales occupées à se mirer Ru
 dans ton Rhin, à Becker! ‘0
-CS
 — Nous en rirons tant que la mémoire de nos enfants Du
 gardera le souvenir de La Marseillaise, tant que les lèvres : ms ‘
 de nos vieillards conserveront assez de force pour raconter nn |
@@ -2409,7 +1880,6 @@ feront l'exercice avec leur fusil élancé. #4
 tradition du bon goût uni à l'énergie, tant que l'on aimera . M
 les beaux vers, tant que durera la coupe d'or que t'a octroyée # 4h
 le roi de Bavière. ë
-À Hi
 * — Remercie la France au lieu de l'insulter, à Becker, 4
 naguères la réputation ne dépassait pas les limites de la ‘4
 principauté qui t'a donné le jour, et maintenant elle est |
@@ -2423,10 +1893,7 @@ valu une pièce de vers de Lamartine, la Marseillaise de D ï
 l''Ennui, parce que de tous côtés les poètes taillent leur RE.
 plume, parce que nous allons avoir une foule de Marseil- © 154
 laises en réponse à ta ballade de professeur. à De
-65 IV. vi 4
-ST
 
-4 Gaston Raphaël ê ji
 _— Car tu dois être professeur dans quelque gymnase, Ô 4
 5 À Becker, ou docteur en théologie. Pour récompenser ton
 MUR patriotisme de rhétorique, le roi de Bavière te nommera
@@ -2461,18 +1928,12 @@ prendra pas cette peine, car il sait que la meilleure réponse M
 ie Le jour où nous l'entonnerons, ce jour-là nous aurons, ‘4
 votre Rhin, votre Rhin allemand! 14
 : Le comte Le Noble Aubert du Bayet, capitaine de Es
-66 ‘ “30
-k L x 18
 
-se pK D'ART SSEN EE EL Se fes ee Sc AN STAR Ie HER
 et à
 LE RHIN ALLEMAND | es Fi
 l'Empire, fit paraître en une plaquette sa réponse à 150
-Becker. (1) ? 150
 
 Le Rhin français LU
-Audire magnos jam videor duces ps
-Non indecoro pulvere-sordidos Ur
 Et cuncta terrarum subacta. HA
 Horace, Odes Il, 1. V4
 Sur ce Rhin orgueilleux dont vous vantez la gloire, de nr 5
@@ -2504,11 +1965,7 @@ Que n'ai-je, hélas ! le talent merveilleux du poëte dont je déplore : A4
 la désertion au drapeau, ou que ne puis-je l'animer de cet amour i Le
 de la patrie qui fait ma force et soutient mon courage ! » i 13
 #2 VW?
-aa
-*
 
-É, : PE ne
-38 Gaston Raphaël 4
 7 A votre vin de feu demandez le courage; À 1
 The Mais qu'un cri de combat vole de rang en rang, “te
 NE Et nous abreuverons des flots de votre sang
@@ -2530,7 +1987,6 @@ Hs Iront joindre les rocs qui hérissent son cours;
 a Oui nous l'aurons, ce Rhin, malgré vos cris sauvages; 4
 y Alors vous tremblerez comme ses flots émus... $
 te Car la France enfin libre, il ne le sera plus!!! 2
-}r. Es.
 À : Les hardis jeunes gens couchés dans la poussière,
 
 NE Ou courbés sous le poids d'un pardon généreux,
@@ -2555,11 +2011,7 @@ pareil acte de lui, qui s'intéressait peu à la vie pu
 
 réponse. Elle s'adressait elle aussi à Lamartine et à “
 Becker. Dans la chronique parisienne de la Presse du sh
-l'Q
 
-“4 4
-
-\ LE RHIN ALLEMAND Le
 > juin, le vicomte de Launay (1) raconte ainsi l'origine < ni
 de la poésie de Musset : « L'autre soir nous étions plu- L Re
 sieurs ouvriers en poésie réunis chez madame de G.[irar- 54
@@ -2582,7 +2034,6 @@ Là, d'empires poudreux les sillons sont couverts, ne |!
 Là, comme un stylet d'or, l'ombre des Pyramides 1 4
 Mesure l'heure morte à des sables livides — 4
 Sur le cadran nu des déserts! s 2
-‘0
 Chacun s'écria : c'est superbe! J'aime bien aussi les 4
 derniers vers, dit madame de G. et prenant la Revue des
 Deux Mondes elle lut cette fin : 7
@@ -2592,12 +2043,8 @@ Des artères du globe enlace le réseau, « * É
 Rends l'herbe et la toison à cette glèbe ingrate, b De.
 Que l'homme soit un peuple et les fleuves une eau ! QE:
 (1) Pseudonyme de madame Émile de Girardin. > TR
-%
-x.
-NE A
 
 ei ' { PA à AU HET # NEER TS Par j
-av Gaston ‘Raphaël!!! \}1\ MONNIER
 dr : ._.  Débordement armé des nations trop pleines, Lu.
 130 ERA Au souflle de l'aurore envolés les premiers, 0
 7e FA Jetons les blonds essaims des familles humaines # pie
@@ -2614,10 +2061,7 @@ bi Roule libre, et descends des Alpes étoilé
 ‘à L'arbre pyramidal pour nous tailler nos mâts, ch
 3e Et le chanvre et le lin de tes grasses vallées ; #
 Ée Tes sapins sont les ponts qui joignent les climats! D)
-che 2
-‘a ? : L
 La - Allons-y, mais sans perdre un frère dans la marche,
-SPA LS ri » . 13
 F Le Sans vendre à l'oppresseur un peuple gémissant, 04
 
 *' HS Sans montrer au retour au Dieu du patriarche, À
@@ -2644,9 +2088,7 @@ A Et que les sept couleurs qui teignent nos bannières, 1
 ‘54 vindicatives, passionnées, jalouses ; c'est là notre seul
 4 mérite, nous ne saurions y renoncer. Pour ma part, je A.
 PA professe un égoïsme national féroce, j'en conviens: 4
-4 à
 # 70 se A1
-. er
 
 2. RAA Aie. Cas) À a Lu: 27 dt PRO LES à 6 27 0 SM Ets
 j'ai le préjugé de la patrie et j'aurais aimé ré- " ne
@@ -2677,28 +2119,21 @@ Que faisaient vos vertus germaines 1
 Quand notre César tout-puissant (Ya
 De son ombre couvrait vos plaines ? È
 Où tomba-t-il alors ce dernier ossement ? 0
-te
 Nous l'avons eu, votre Rhin allemand. HAS
 Si vous oubliez votre histoire, 1108
-ML
 
-SC ‘Gaston Raphaël 7000
 MEN L'RNAES Vos jeunes filles sûrement, ii
-{ Ü . À Pa : r; 20h YU
 “HOUITEEE Ont mieux gardé notre mémoire : Le
 FAP $ Elles nous ont versé votre petit vin blanc. Re:
 4 S'il est à vous, votre Rhin allemand, ne:
 nn Lavez-y donc votre livrée; + ‘4
-KP * . . « 44
 ALES Mais parlez-en moins fièrement. Us
 + Combien, au jour de la curée, ù
 CEE Étiez-vous de corbeaux contre l'aigle expirant 8
 | Qu'il coule en paix, votre Rhin allemand. 1
 NE Que vos cathédrales gothiques F4
-+0 1 S'y reflètent modestement. “4
 F & Mais craignez que vos airs bachiques pe
 AN Ne réveillent les morts de leur repos sanglant. (1)
-TA C « % &
 : - (1) Cette chronique est reproduite, datée du 6 juin 1841, dans les à
 se A Lettres parisiennes (Œuvres complètes de madame Emile de
 “A à Girardin, tome V, pages 170 à 174). Madame de Girardin, dans une
@@ -2724,8 +2159,6 @@ ie Musset fut-elle composée dans le jardin de madame de Girardin,
 k. durant deux cigares, ou ailleurs ? Il semble au moins acquis qu'elle
 fa fut composée très peu après la lecture de la Marseillaise de la Paiæ
 1 et pour ainsi dire en opposition avec celle-ci. 4
-PE \ 1200
-1 ÿ 2: 0
 
 Dans son numéro du 15 juin 1841, la Revue de Paris 03
 reproduisit la poésie de Musset. (1) Elle lui donna un F4
@@ -2773,10 +2206,6 @@ et du génie de la France. s 28
 
 « Les ailes de l'aigle ne seyaient pas à ce rossignol. Je combattais 53 4
 
-: “À
-
-Gaston Raphaël ‘5 NN
-Fr DER
 ; Et de fait la poésie de Musset fut en deçà du Rhin
 è autrement bien accueillie que la Marseillaise de la
 ; Paix. Elle ne pouvait plus égaler l'action du Rheinlied
@@ -2805,18 +2234,13 @@ se seillaise ne se releva qu'après la chute de la coalition parlemen-
 à taire. On voulait un refrain de caserne, on bafoua la note de la Le
 24 paix. » Cours familier de littérature, XIX, 16. ï;
 | (1) Revue de Paris du premier juillet 1841. Chronique, tome XXX,
-x page 144. ne.
 4 (2) Voici les noms de quelques compositeurs : Mademoiselle
 Loïsa Puget, MM. Meccati, un anonyme pour la guitare, de Borce,
-Collin, Delioux, Ederx, Faure, Guéroult, Rekel, Reyer, Vaucorbeïls
 k (3) Georges Renard. — Les opinions politiques d'Alfred de Musset."
 Revue politique et parlementaire du 10 novembre 1902, page 339. LÉ
 (4) Revue de Paris du 15 juillet 1841. Chronique, tome XXX, page 219,"
 
 OR ma) NP nn rat idee 4 pue ir en te uma ù
-PS4, Poe F * PES es Re Pr a EPA er É COST RE An FES se PES
-LRO AR 1e Fe ERA RS OE Re D Re 7
-RICA SEPT LUE ee ENG PEUR ë Sr ao: mpée TN INTERNES
 reçut d'Allemagne des provocations émanant d'officiers
 
 et il répondit qu'il se battrait volontiers, mais seule- : BEEN
@@ -2825,7 +2249,6 @@ répondit en français Dre Te u ne.
 
 é _ A Monsieur À. de Musset Fe nu: je
 Réponse à sa chanson : « Nous l'avons eu votre Rhin 8 js
-Lae Een allemand. » +0
 LEE Imitation de Gellert. (2) FRE
 Nous l'avons eu — mot de misère LTÉE
 _ Nous l'aurions — grand mot des sots ! ES
@@ -2835,10 +2258,6 @@ X Nous l'avons — c'est le mot des mots ! . ER NCR |
 
 : Gardez, ou elle s'en va, La joie de « l'avoir eu ». (3) Pa
 
-Kessezs à Cologne Te
-À
-
-d # . 2 . . . . ex se
 _ C'était la fin des polémiques et de la crise. L'irrita- Me
 tion causée en France par le traité de Londres avait été Fa É
 brusque et violente. Elle avait été sincère en un sens. -
@@ -2848,20 +2267,15 @@ le désir de la paix l'emportait. Le ministère et ses par- Me se
 tisäns furent incertains. Ils ne se décidèrent pas à
 repousser la guerre, ni à la déclarer. La France ne fit ‘ FREE
 
-3 ÿ K 4 APE €. no LIKE PTS
 qu'une rentrée à demi honorable dans les délibérations À TES
 _ (1) Georges Renard, même passage. DLFP
-(2) Poëte fabuliste allemand, 1715-1769. 17
 _ (3) Gazette de Cologne du 20 juin 1841, Cité par Louis Waeles, 6
-page 75. LES
 
-1 OUR SN RARE ONE Ne Le TR ee PR ET PLU CON NT RTS EE
 #0 À Gaston Raphaël LIRE 4
 es européennes. Son prestige en Orient déclina. Lime
 3 tation s'apaisa. Mais elle laissait le malaise plus
 4 : pénible qu'auparavant. Elle le compliquait de la question 3
 “1 ; militaire. L'expression « la paix armée » date de cette 2
-28 époque. 5
 # > En Allemagne le désir de la paix l'emportait aussi. “4
 ee Mais l'animosité agressive des uns, l'enthousiasme “
 2 défensif et belliqueux du plus grand nombre furent M
@@ -2875,7 +2289,6 @@ re Et le prince de Metternich écrivait dans ses Mémoires : M
 7 parfaite et la palme appartient même à M. Thiers. Il
 Fe lui a suffi d'un court espace de temps pour conduire CG.
 de - pays là où dix années d'oppression l'avait conduit sous
-PA l'Empereur. » (2) Fe.
 
 ; De là le sens et la portée des poèmes de Becker, e.
 
@@ -2889,19 +2302,12 @@ is ne s'agissait que de défendre la patrie allemande, mais
 À de la défendre avec enthousiasme jusqu'à la mort du
 3 dernier homme, exprimaient bien les sentiments alle-
 
-() Hillebrand. — Geschichte Frankreichs, tome I, page 437. 4 4
-
 (2) Metternich. Mémoires, tome VI, page 503. DS ce
 
-À ; RL OO TOT PE SP EN AR RO NTI POSE Hé: NRA SE MES
-dd ct
-: LE RHIN ALLEMAND À BR
 mands. Le Rheinlied devint leur symbole. Il les soutint : “5
 et les excita. Il fut un événement politique. « Il eut, dit sl
-Mc
 un jour Bismarck, le même effet que si nous avions eu De
 quelques corps d'armée de plus sur le Rhin que nous (tes
-n'en avions. » (1) S 2 PTE
 . Les réponses de Lamartine et de Musset furent faites ne
 huit mois après. La paix était presque signée, l'apaise- :. 4
 ment à peu près complet. Elles ne pouvaient plus pré- “20
@@ -2914,47 +2320,27 @@ le plus de partisans. (2) D |
 _ Seul Lamartine s'éleva au-dessus du litige et dela 2 |
 crise momentanée. Il ne discuta pas les droits ni la 2 |
 valeur des adversaires. Il leur opposa les droits dela a
-. Far Late
 paix et de la vérité. ‘ Pi
-GASTON RAPHAËL 4R
 
-= 1 ‘0 G
 () Discours fait le 18 août 1893 aux membres de ia chorale 7
 Orphéon de Barmen. Paroles prises par Louis Waeles pour &”
-épigraphe. vR
 (2) Chronique de la Revue de Paris du premier juillet 1841. LE
 
-SOMMAIRE BIBLIOGRAPHIQUE . 4
-Ouvrages généraux Re
 î Degrnour. — Histoire diplomatique de l'Europe. Paris, 4
-1891. 2 volumes. 24
 CnARLes SgrenoBos. — Histoire politique de l'Europe con-” Ë
-temporaine. Paris, 1897. =
 Épouarp Drrauzr. — La question d'Orient depuis ses %
 origines jusqu'à nos jours. Paris, 1900. à s
 ï TaurEAu-DANGIN. — Histoire de la Monarchie de Juillet. 4
-7 volumes. Paris, 1887-92. a
-K. HizzesrAND. — Geschichte Frankreichs von der
-Thronbesteigung Louis-Philipp's bis sum Fall Napoléon 111.
-4 volumes. Gotha, 1870. A
 G. Werzz. — La France sous la Monarchie constitution- 4
-; nelle. Paris, 1902. 4
-Trerrscake. — Geschichte Deutschlands im 19. Jahrhundert. 1879-90. *#
-R. PruTz. — Zehn Jahre Geschichte der neuesten Zeit e
-{1840-50}. Leipzig, 1850. Re.
 E. Denis. — L'Allemagne de 1810 à 1852. Paris, sans « À date. ÿ
 Zmæcxzer. — Die Hauptstrômungen des 19. Jahrhunderts.
-£ Berlin, 1900. É
 
 < Documents, articles et mémoires à
 : Epcar Quiner. — Allemagne et lialie. — 1815-1840. —
 Avertissement au pays. — Correspondance. 351
-Gurzor. — Mémoires. 5 volumes. Paris, 1858-67. Re
 
 Henri Hgine. — Lutèce (articles parus de 1840 à 1843). #4
-78 : Ë D.
 
-€ SOMMAIRE BIBLIOGRAPHIQUE à a
 Séances de la Chambre des Députés et de la Chambre des SE
 Pairs, dans le Moniteur. È F
 Brochures sur la question d'Orient et la guerre.
@@ -2965,57 +2351,26 @@ Constitutionnel, la Quotidienne, le National, la Presse, le ee.
 Siècle, le Charivari). 20
 Becker et le Rheinlied 4
 Louis Wazres. — N. Becker, der Dichter des Rheinlieds. N
-Bonn, 1896. L
-E. ScauserrT. — Das Rheinlied und sein Dichter. Daheim. _ A
-31. Mai 1890. |
-LiPPERHEIDE. — Lieder zu Schutz und Trutz. Berlin, 1871 E
-(Anhang). Li
-Z. Fuxcex. — Kläng'e aus der Zeit, hervorgerufen durch die
 neuesten Ereignisse und sunächst durch das Becker'sche il
-Rheinlied. Erlangen, 1841. S e..
-E. V. Buecow. — Kriegslieder für das deutsche Volk. M:
-Leipzig, 1841. : ; {|
 K. Gogpexe. — Deutschlands Dichter von 1813 bis 1843. ni
-Eine Auswahl. Hannover, 18/44. "
 Nombreuses brochures sur la question rhénane. 5e
 _ Journaux. L
-… Max JAEuws. — Der Vaterlandsgedanke und die deutsche À
-Dichtung. Berlin, 1896. Æ
-CBrisTIAN Perzer. — Die Blüteseit der deutschen poli- ES.
-tischen Lyrik von 1840-1850. München, 1903. PE
 Lamartine et Musset 2
-Énize DESCHANEL. — Lamartine, 2 volumes. Paris, 1893. D.
 L. Ursacx. — La France parlementaire, œuvres oratoires “4
 et écrits politiques, par Alphonse de Lamartine. 4 volumes. 3
-Paris, 1864-65. s
 79 4
 
-SA ANT E EE ET VAR Ne D RP ae CR AT Re ANNE MES
 28 Here RSR NE RE VON ANT Ne de Mrrire
-LS Re SES A SSD R SOON EE AN SERES
 MS ne Sn ARR UNS ENCRES alle nan RE RE
-NE EC PAR Cr Ne à is 1°
 ee a “e _ Correspondance de Lamartine publiée par m adame Va_ lentine de Lamartine. 5 volumes. Paris, 1873. ROM
 # Pat | Lettres à Lamartine, publiées par madame V. de Lam are "à
-HAN" -jtine. RUE è PER UNISS
-: F6 TT . DES - : < ñ L FRNESUES
 Pr 1e. Lamartine par lui-même. Paris, 1892. ÿ RER
-RARE » . pe FR
-NÉE LAMARTINE. — Mémoires politiques. è URSS
-: RTE K. MenwerrT. — Ueber Lamartines politische Gedichte.
-__  Erlangen, 1903. :#
-FRA De Le :
 * SL Madame DE GIRARDIN. — Lettres parisiennes. Œuvres |
-RLLOZN Ne & < ‘S
 Le a _ complètes. Tomes IV et V. Paris, 1860. nee
 LEE GEORGES RENARD. — Les opinions politiques d'Alfred …
 < K LATE de Musset. Revue politique et parlementaire du 10 no-.
-LORS vembre 1902. ; Ne:
-PU C eV ze sp à : ac
 : NAN __-E. TrozrreT. — Les poésies politiques de Lamartine.
 - Revue Bleue du 20 mai 1899. Fe.
-FC :s : . A : 6
 j “5 _  Frépéric Passy.— Lamartine et la Paix. Conférence faite
 É Fra Me ent _ Je 15 juillet 1900 à la mairie de Passy pour l'assemblée w
 INSEE annuelle du Salon Lamartine. Revue Bleue du 28 juillet 1900. …
-‘4 .

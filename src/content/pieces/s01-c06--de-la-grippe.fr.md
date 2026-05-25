@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 13062
 ---
-
-*Charles Péguy*
-
 Le lendemain dans l'après-midi—et il y a de cela déjà
 
 plus d'un mois passé — le citoyen docteur socialiste ré-
@@ -22,8 +19,6 @@ m'inquiétaient. Ces essoufilements pouvaient présager
 la rechute légère que j'eus depuis.
 
 — Citoyen malade, nous avons hier oublié le prin-
-
-js cipal.
 
 — Cela n'est pas étonnant, citoyen docteur : presque
 toujours on oublie ainsi le principal.
@@ -67,7 +62,6 @@ dialogues. Aujourd'hui nous causerons à l'abandon,
 comme il convient à un convalescent. Pour quelles raisons vouliez-vous échapper à la mort?
 — Autant que je me rappelle et que je puis déméler,
 
-DE LA GRIPPE
 je savais que ma mort causerait une épouvantable souffrance à quelques-uns, une grande souffrance à plusieurs, (34
 une souflrance à beaucoup. '
 — Bien. Nous sommes ainsi reconduits de la consi- 1Ë
@@ -75,7 +69,6 @@ du mal.
 — J'aurais eu de la peine réciproquement si je m'étais
 représenté que la mort consistait sans doute à quitter l
 les survivants. Mais je n'arrivais pas à me donner cette
-représentation.
 
 — C'est un défaut de l'imagination.
 
@@ -90,7 +83,6 @@ intéressez à ce que vous faites.
 
 — Cela prouve surtout que je le travaille. Je ne vous
 le dirais pas aussi brutalement si on ne me l'avait sévè-
-rement reproché.
 
 — Vous auriez tort : on doit toujours dire brutalement.
 
@@ -117,14 +109,11 @@ Laissons ces plaisanteries. Je ne prétends pas que le
 travail puisse rien tirer du néant, du moins le travail
 humain, et c'est le seul que je connaisse. Maïs je n'ai
 jamais rien vu de sérieux que l'auteur n'eût pas travaillé. Les romantiques encore nous ont abrutis là-
-dessus.
 
 — Quels romantiques ? Vous avez eu un mot violent.
 
 — Ne croyez pas, docteur, que je cherche des mots
 non grossiers pour qualifier une influence grossière.
-
-— Quels romantiques ?
 
 — Les prosateurs et les poèles romantiques français,
 les seuls que j'ai lus. J'en ai fait mes ennemis personnels. Un jour je vous dirai pourquoi. Pour aujourd'hui
@@ -213,7 +202,6 @@ ne dis plus rien. Le souci que j'avais de l'immortalité
 individuelle, et qui selon les événements de ma vie a
 beaucoup varié, me reste. Mais l'attention que je donnais à ce souci a beaucoup diminué depuis que le
 souci de la mortalité, de la survivance et de l'immortalité sociale a grandi en moi. Pour l'immortalité aussi je
-suis devenu collectiviste.
 
 — On ne peut se convertir sérieusement au socialisme sans que la philosophie et la vie et les sentiments
 les plus profonds soient rafraîchis, renouvelés, et, pour
@@ -258,8 +246,6 @@ tissu la formule entièrement fausse et plusieurs fois
 nous y subissons la certitude entièrement vraie. Mais la
 
 certitude même y laisse place à la défiance. Écoutez. Je
-lis presque au hasard
-EUTHYPHRON
 
 .… Le nombre des corps célestes où la vie peut se dé-
 velopper à un moment donné est, sans doute, dans une
@@ -283,7 +269,6 @@ de Théman, « avant d'avoir atteint la sagesse ».
 Mais Renan.
 
 — Il ne s'agit pas de Renan, mon ami. Voyez sa pré-
-face
 .… Je me résigne d'avance à ce que l'on m'attribue
 
 directement toutes les opinions professées par mes
@@ -297,7 +282,6 @@ divers de la certitude, de la probabilité, du rêve, les
 côtés successifs d'une pensée libre; aucun d'eux n'est
 un pseudonyme que j'aurais choisi, selon une pratique
 familière aux auteurs de dialogues, pour exposer mon
-propre sentiment.
 
 — J'entends, docteur; et je n'adresserai ma réponse
 qu'à ce philosophe Euthyphron, cet homme au sens
@@ -357,7 +341,6 @@ suffit pas de sous-intituler un dialogue Probabilités ou
 
 .  Réves: il convient que l'incertitude réside au cœur des
 probabilités, et que l'improbabilité réside au cœur des
-rêves.
 — N'oublions pas l'Avenir de la Science. Renan l'annonce lui-même en note: « Je publierai plus tard un
 essai, intitulé l'Avenir de la Science, que je composai
 en 1848 et 1849, bien plus consolant que celui-ci, et qui
@@ -365,7 +348,6 @@ plaira davantage aux personnes attachées à la religion
 démocratique. La réaction de 1850-51 et le coup d'État
 
 m'inspirèrent un pessimisme dont je ne suis pas encore
-guéri. »
 
 — Je ne crains pas beaucoup que M. Jules Roche ait -
 fait campagne au Figaro contre le socialisme. Je crains
@@ -386,13 +368,11 @@ et ses idées de magister de village. »
 
 — Il me paraît certain que ce Théophraste ingé-
 nieux n'avait pas imaginé l'affaire Dreyfus, ni connu
-M. Duclaux.
 
 — Considérons seulement comme une probabilité
 qu'il n'avait pas imaginé cette malheureuse affaire. Je
 ne lui en fais pas un reproche, mais je lui ferais
 volontiers un reproche, ayant oublié d'imaginer cette
-imminente affaire, d'avoir assurément généralisé, pré-
 somptueusement prophétisé, d'avoir annoncé les temps
 éternels, d'avoir escompté l'espace infini. C'est un peu
 de l'astrologie qui avait oublié un puits très terrestre.
@@ -488,12 +468,9 @@ de votre chute, et vous me faites une rechute. On m''a-
 vait bien dit que vous allez toujours trop vite. Vous
 n'attendez jamais les enregistrements ni les expli-
 
-cations.
-
 — Pardonnez-moi, docteur, et supposons que je ne
 suis pas retombé. Ainsi nous continuerons Ce que nous
 avons commencé, comme si de rien n'était. La Petite
-République d'hier matin, datée d'aujourd'hui mardi
 mars, nous a donné l'allocution attendue. Devons-
 
 nous la relire ici-même ou devons-nous la garder pour
@@ -506,7 +483,6 @@ vous le voulez bien, celles qui sont nées glorieuses pour
 étudier attentivement celles qui sont restées ordinaires.
 
 — Lisons donc. Et entendons
-PROLÉTARIAT ET SCIENCE } .
 
 Hier, dans l'après-midi, a eu lieu, sous la présidence d'Anatole
 France, la fête inaugurale de l'Université populaire du premier et
@@ -516,7 +492,6 @@ Le préau de l'école de la rue Etienne-Marcel était trop étroit pour
 contenir tous les assistants, qui débordaient dans la cour. Les
 citoyens Allemane et Jaurès ont prononcé des discours très applaudis. Nous sommes heureux de donner le texte complet de l'allocution
 d'Anatole France, dont les principaux passages ont été acclamés
-Citoyens,
 
 En poursuivant sa marche lente, à travers les obstacles, vers la conquête des pouvoirs publics et des forces
 sociales, le prolétariat a compris la nécessité de mettre
@@ -554,8 +529,6 @@ sont pénibles et parfois malfaisantes et cruelles, à ce
 point qu'on voit, sous l'empire de l'ignorance, Les plus
 honnêtes gens devenir criminels par devoir. L'histoire
 des religions nous en fournit d'innombrables exemples
-sacrifices humains, guerres religieuses, persécutions,
-bûchers, vœux monastiques, exécrables pratiques issues
 moins de la méchanceté des hommes que de leur insanité. Si l'on réfléchit sur les misères qui, depuis l'âge des
 cavernes jusqu'à nos jours encore barbares, ont accablé la malheureuse humanité, on en trouve presque
 toujours la cause dans une fausse interprétation des
@@ -610,7 +583,6 @@ entendrez la grande voix de Jaurès.
 
 — Nous n'avons pas entendu la grande voix de Jaurès, mais nous avons eu de lui, le même jour, un article
 bref et significatif
-UNIVERSITÉS POPULAIRES
 Elles se multiplient à Paris, et les prolétaires assistent
 
 - nombreux, fidèles, aux leçons et séries de leçons que
@@ -622,7 +594,6 @@ et de lumière; et si limités que soient ses loisirs, si
 accablé que soit son esprit de toutes les lassitudes du
 corps, il ne veut pas attendre l'entière transformation
 sociale pour commencer à penser. Il sait que ce commencement de savoir l'aidera dans son grand effort d'é-
-mancipation révolutionnaire.
 
 Ce n'est pas seulement dans l'interprétation de l'univers naturel, c'est dans l'interprétation de l'univers
 social que le prolétariat, selon le conseil excellent
@@ -697,7 +668,6 @@ presque avec les manies scolastiques. Ils réconcilient
 à avec tous les échafaudages de Kant. Ils font aimer plus
 que jamais les bonnes habitudes scolaires des honnêtes professeurs de philosophie. Et même ils feraient
 aimer les gens qui ont eu souci de bGralipton. Et ils
-feraient pardonner aux jésuites leurs distinguo.
 — Vous parlez de Kant, mon ami : quelle ignorance
 — voulue — ou quelle méconnaissance des frontières
 kantiennes, frontières non revisées pourtant, et frontières sans doute inrevisables. Tout comme l'auteur,
@@ -839,7 +809,6 @@ présent la révolution de la santé pour l'humanité pré-
 sente. Cela est beaucoup plus sûr, Travaillons. En vé-
 rité, je vous le dis, ce Théophraste et ce Théoctiste sont
 parmi nos plus grands et nos plus redoutables ennemis. Tous les deux ils sont de grands détendeurs de
-courages.
 
 — On peut et on doit relâcher les courages qui
 seraient tendus contre la justice et contre la vérité.
@@ -876,7 +845,6 @@ de sérénité comme un vieillard qui a parfait son
 âge. Aucun de ses camarades, aucun de ses amis,
 quels que fussent déjà nos sentiments divergents, n'omettait de l'admirer, de l'aimer. Il avait évidemment
 pour la vie et la mort des sentiments tout à fait étrangers aux sentiments que j'ai, que j'avais ces jours-ci .
-étant malade.
 à — Et que vous ne m'avez pas dit.
 — J'y viendrai. Aucun de nous qui n'admirât cette
 singulière et laïque santé des sentiments au déclin de
@@ -885,10 +853,8 @@ sa vie ordinaire et patiente.
 aussi rare parmi nous si l'invasion des sentiments
 chrétiens ne lui avait rapidement substitué la soumission fidèle. Comparez la Prière pour demander à Dieu
 le bon usage des maladies avec la résonance de cer-
-taines résignations stoïciennes.
 — Je ne sais pas d'histoire, docteur. Je ne connais
 pas l'histoire de l'invasion chrétienne au cœur du monde
-” ancien.
 — Au cœur de la Ville et du Monde. Comparez seulement ces textes authentiques, la Prière au Manuel.
 Avez-vous pu analyser les sentiments, étrangers
 vous, que votre ami avait sur la vie et la mort. Je suis
@@ -927,7 +893,6 @@ en proie aux bons Pères, comme on les nommait, qui
 avaient une petite chapelle dans le faubourg.
 
 — Était-ce déjà les révérends pères Augustins de l'As-
-somption ?
 
 — Non, citoyen, c'étaient les pères Lazaristes. J'ai
 connu beaucoup de gens qui croyaient qu'il y a un Pa29
@@ -1068,7 +1033,6 @@ généralités. Mais nous distinguerons.
 
 Plus loin
 « Voilà comme il a passé cinq ans de sa vie, depuis
-trente ans jusqu'à trente-cinq, — ici M. Ernest Havet
 rectifie que : il fallait dire seulement quatre ans de sa
 vie, depuis trente et un ans jusqu'à trente-cinq — travaillant sans cesse pour Dieu, pour le prochaïn, et
 pour lui-même, en tâchant de se perfectionner de plus
@@ -1147,7 +1111,6 @@ prenait une médecine volontairement, après qu'on avait
 été averti qu'elle était mauvaise, et qu'il n'y avait que
 la violence ou la surprise qui dussent produire cet effet.
 C'est en cette manière qu'il travaillait sans cesse à la
-mortification. »
 — Je passe pour aujourd'hui le témoignage que madame Perier nous a donné de la pauvreté, de la pureté,
 de la charité, le service du roi, la simplicité.
 Je continue
@@ -1305,7 +1268,6 @@ grand désir de mourir en la compagnie des pauvres. Je
 lui dis que les médecins ne trouvaient pas à propos de
 le transporter en l'état où il était, ce qui le fâcha beau-
 
-he nets RON En MOREL A
 coup'; il me fit promettre que, s'il avait un peu de relâche, je lui donnerais cette satisfaction. | » Cependant cette douleur de tête augmentant, il la
 souffrait toujours comme tous les autres maux, c'est-à-
 dire sans se plaindre; et une fois, dans le plus fort de
@@ -1348,7 +1310,6 @@ après ses convulsions le reprirent, qui ne le quittèrent
 plus, et qui ne lui laissèrent pas un instant de liberté
 d'esprit : elles durèrent jusqu'à sa mort, qui fut vingtquatre heures après, le dix-neuvième d'août mil six cent
 soixante-deux, à une heure du matin, âgé de trente-neuf
-ans deux mois. »
 
 Quand le docteur eut fini de me lire tout ce qu'il avait
 librement choisi dans l'histoire de la vie et de la mort
@@ -1356,24 +1317,17 @@ de Blaise Pascal, je ne pensai pas à lui demander pourquoi il m'avait fait une 
 
 demeurâmes longtemps sous l'impression de ce témoignage.
 
-LA CONSULTATION INTERNATIONALE
 La Petite République du dimanche 22 octobre publiait
 ces deux réponses :
-TOM MANN
 Un des socialistes anglais les plus populaires dans les milieux
-ouvriers d'Outre-Manche. Ouvrier mécanicien, Tom Mann se
 signala par l'organisation de la grande grève des Docks en 1889,
 qu'il fit triompher de concert avec John Burns.
 C'est à la suite de cette grande victoire prolétarienne que
 s'ébauche le nouvel unionisme qui tente d'amener au socialisme les
-grandes organisations syndicales anglaises.
 Vers la même époque se constitue l'Independent Eabour Party
 (Parti ouvrier indépendant), qui groupe, dans le nord de l'Angleterre spécialement, des milliers de travailleurs. Tom Mann en est, avec
 Keir Hardie, le fondateur. Les militants qui ont assisté au Congrès
 de Londres ont pu apprécier le remarquable talent oratoire de
-Tom Mann.
-Londres, septembre 1899,
-Chers camarades,
 En réponse à vos questions je tiens tout d'abord à
 déclarer que les circonstances politiques particulières de
 chaque pays doivent dicter au parti socialiste de ce pays ‘
@@ -1387,7 +1341,6 @@ dans les premiers temps de la propagande socialiste, il est
 absolument nécessaire, selon moi, de se tenir tout à fait
 l'écart de tout parti qui soutient le régime capitaliste et de
 
-ù A EEE MARS PATES PU AN SET
 se contenter lorsqu'il s'agit de questions d'humanité de
 donner nettement son opinion, en revanche je pense que
 lorsque le parti socialiste est devenu un facteur important
@@ -1396,7 +1349,6 @@ partisans de l'action politique) il est admissible et même il
 est souvent nécessaire que les socialistes consentent à lutter
 côte à côte avec les partis bourgeois, d'accord avec eux
 pour la réalisation de telle ou telle partie de leur pro-
-gramme.
 
 Quant à la deuxième question, je dois dire que l'entrée
 d'un socialiste dans un gouvernement constitué sur les
@@ -1422,9 +1374,6 @@ ainsi que Baudin, y rendre de grands services.
 
 Bien cordialement à vous.
 
-Tom Man
-KEIR HARDIE
-
 Il est avec Tom Mann l'âme de l'Independent Labour Party qu'ila
 
 fondé, avec lui, en 1891. Il a depuis cette époque sans cesse été
@@ -1433,18 +1382,13 @@ son conseil central.
 
 Député de la circonscription de West-Ham à la Chambre des com-
 
-CONSULTATION INTERNATIONALE Keïr HARDIE T5
 munes, Keir Hardie fut battu aux élections de 1895 par une coalition
 scandaleuse des conservateurs et des radicaux. e : F
 Keir Hardie, qui est comme Tom Mann un ancien ouvrier manuel, J
 vit à Glasgow, en Écosse, où il dirige l'organe central de son parti,
-The Labour Leader. “
-Glasgow (Écosse), septembre 1899, 2 fl
-Camarades,
 Je viens de recevoir votre lettre et je regrette d'être obligé
 de vous envoyer ma réponse en anglais, mais le citoyen qui
 est chargé des traductions par notre parti est actuellement
-en vacances. x
 Je veux avant tout vous dire que je crois qu'il est impossible à quelqu'un vivant en Angleterre de condamner ou
 d'approuver complètement l'action d'un camarade du parti
 en France, car dans chacun des deux cas que vous me soumettez, l'on doit juger d'après les circonstances. Ces réserves
@@ -1455,7 +1399,6 @@ cela que l'Independent Labour Party (Parti Ouvrier Indé- x
 pendant) d'Angleterre se tient strictement à l'écart des partis politiques vulgaires. Pour la même raison, le programme e
 du Parti ne contient aucune réforme purement politique, ;
 mais s'occupe exclusivement de réformes économiques et
-sociales. ;
 Mais aussi nous ne pouvons pas oublier ce fait qu'un so- k
 cialiste est un homme et un citoyen et que des occasions
 peuvent se présenter à propos desquelles il est obligé de
@@ -1475,12 +1418,10 @@ politique, même si en agissant ainsi il semble se ranger avec
 un parti bourgeois contre un autre.
 Au sujet de la deuxième question je vous envoie plusieurs
 exemplaires du Labour Leader contenant mon opinion là-
-dessus.
 Autant que je puis juger de la situation politique en
 France et en Belgique il me semble que le mouvement socialiste, ayant en fait submergé dans ces pays un des
 grands partis bourgeois, occupe une position maîtresse et
 doit inévitablement, et cela avant peu, devenir le parti
-dominant.
 Les enseignements du passé nous montrent de la façon la
 plus évidente que les changements obtenus par des moyens
 purement révolutionnaires arrivent très rarement à se
@@ -1491,7 +1432,6 @@ et en Belgique, il n'est pas seulement admissible, mais
 absolument nécessaire pour les socialistes de commencer
 - prendre leur part de responsabilité dans le gouvernement.
 Nous ne pouvons pas raisonnablement espérer un passage soudain du gouvernement bourgeois au régime socialiste, pas plus au point de vue politique qu'au point de
-vue économique.
 Ici encore nous devons soigneusement distinguer suivant
 les cas. Là où le parti socialiste est faible et lutte diffcilement, son salut est dans une attitude de séparation absolue
 de tous les partis et ce serait de la part d'un socialiste un

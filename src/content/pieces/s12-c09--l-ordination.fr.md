@@ -8,11 +8,6 @@ isAvertissement: false
 ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 wordCount: 17411
 ---
-
-L'ORDINATION
-
-I
-
 Le petit Pierre monta se coucher. Ils restèrent seuls, comme déjà plusieurs soirs, au fond du jardin. Ils dirent quelques mots de l'excursion de l'après-midi, de la beauté de la nuit. Ils se turent.
 
 Ils se taisaient depuis longtemps... Ils sentaient la gravité de leur consentement au silence & qu'elle s'accumulait de moment en moment... Les lumières de l'hôtel s'éteignirent. Chacun remarqua que l'autre les avait vues s'éteindre & ne parlait pas de rentrer. Ils se sentaient sombrer dans la complicité... Leurs mains se rencontrèrent & leurs regards s'unirent dans une sévérité faite d'amour & de reproche, comme si chaque aimé reprochait à l'aimé l'éternité passée à ne pas se reconnaître.
@@ -24,8 +19,6 @@ Le lendemain, ils allaient l'un près de l'autre, dans la montagne, imprégnés 
 Ils descendaient la pente qui ramène au jardin. Ils s'assirent à mi-côte. Elle demeura longtemps songeuse. Puis elle dit :
 
 — J'ai peur, Félix... J'ai peur de ne pas vous plaire... Vous êtes d'un monde brillant... Votre mère, vos sœurs, sont des femmes élégantes... Celles qui vous ont aimé étaient des femmes comme elles... Je suis, moi, une très petite bourgeoise...
-
-Il dit :
 
 — Je hais ce monde, & mon cœur n'en est pas. Je n'y ai vu que mensonge, mensonge
 sur le talent, mensonge sur la beauté, mensonge sur l'amour... Je ne sais de vérité que depuis un mois, Madeleine, depuis que je vous connais. J'aime l'habillement modeste qui me signifie cette vérité...
@@ -59,8 +52,6 @@ Souvent ils s'entretenaient de leur premier baiser, de leur première union. Ils
 Ainsi ils s'efforçaient d'abolir l'idée d'acte, de perdre connaissance dans l'indéterminé.
 
 Le petit Pierre fut souffrant. Elle fut deux jours sans sortir. Il s'informait d'heure en heure... Ils se penchèrent les mains jointes sur le sommeil du petit malade... Il goûtait d'ignorer l'égoïsme des mâles, de s'associer aux peines de celle qu'il possédait. Il prenait le goût de cette élégance pour de l'amour.
-
-**
 
 Ils rentrèrent à Paris.
 
@@ -102,8 +93,6 @@ Et il réussissait à lui passer sa foi. Et il aimait sentir que cette foi qu'il
 
 Ainsi il s'abîmait dans la fidélité, dans la dépendance, dans l'indissoluble.
 
-**
-
 L'été vint. Elle alla s'installer avec son petit garçon dans un village de la forêt de ***. Lui, à deux kilomètres, dépistant tous les siens... Le soir, au couvre-feu, il sortait sans bruit, traversait la forêt, venait s'asseoir sous bois; à un signal convenu, elle ouvrait sa fenêtre... Il retournait chez lui à la pointe du jour, dormait jusqu'au midi, dans un engourdissement qui était encore elle.
 
 Ah! la première fois qu'il s'en vint la rejoindre! Comme il était joyeux — marchant par les grands chemins, sauvé des casinos & des hôtels-palaces — de sentir que par elle il découvrait l'espace, le grand air, le grand ciel, sa force, sa jeunesse, sa volonté d'élan!
@@ -118,8 +107,6 @@ Comme il savait sentir, & vouloir sentir, cet attachement spécial qui conjoint 
 Un jour — c'était peu de temps après leur arrivée — elle put s'échapper. Elle vint le rejoindre au bois... Ils s'assirent l'un près de l'autre sur un grand arbre mort, couché le long d'une route. Elle passa son bras au cou de son ami :
 
 — Chéri, dit-elle très douce, cette vie ne t'ennuie pas? Tout seul toute la journée!... Et cette petite chambre que tu as prise, là-bas, tu ne t'y déplais pas trop? Tout ça te change tellement... Tu passais tes étés dans des endroits mondains...
-
-Il dit :
 
 — Je suis heureux... Le jour je ne suis pas seul. Je vis dans le souvenir & dans l'attente... J'aime ma petite chambre & ma vie simple... Et puis l'amour n'est fort que dans l'austérité.
 
@@ -142,11 +129,7 @@ Il se serrait près d'elle contre l'avenir, contre lui-même... Quelque chose lu
 
 Il fallut qu'il partît. Lente, elle ouvrit la fenêtre. Il sortit. S'éloigna. Il se retournait souvent, envoyant des baisers... Puis il marcha longtemps sans se retourner... Au moment de changer de route il se retourna encore. Elle était encore là, derrière le volet. Alors éperdument il s'encourut vers elle, l'embrassa follement, & partit en courant, étouffant ses sanglots, sans se retourner.
 
-**
-
 Ils rentrèrent à la ville. Il reprit son régime de l'hiver précédent : éloignement du monde, séjour seul ou à deux dans leur appartement, visites chez elle... Il sentait la monotonie de sa vie. Il l'aimait. Elle lui semblait un trait des grandes œuvres d'art. Et il était heureux du bonheur de Madeleine. Et il était fier de l'amour qu'il avait. Fier de sa gravité. De sa fidélité. Fier d'être nécessaire...
-
-II
 
 Un matin, vers six heures, Félix s'éveilla. C'était Juin. Il songea au rendez-vous qu'il avait avec Madeleine dans la journée... Il songea que dans quelques jours elle allait partir pour la campagne, qu'il irait s'installer non loin d'elle, que le régime de l'été passé allait recommencer : la vie avec elle seule, plusieurs mois, loin du monde... Or, voilà que ces pensers ne lui apportaient point la joie qu'il en attendait. Mais un sentiment étrange. Un vague malaise. Qu'il ne comprenait pas. Qui persistait. Qui l'inquiétait... Tout à coup, foudroyante, l'idée de sa liaison l'étrangla d'une véritable angoisse, comme l'idée d'un emprisonnement total & éternel. Il se dressa sur son lit, épouvanté. Aimait-il moins Madeleine? Cette vie lui pesait-elle?... Comme dans un éclair, il entrevit l'immensité d'un tel malheur & il en repoussa l'idée, non sans percevoir que sa principale raison de la repousser c'est qu'elle était trop horrible...
 
@@ -195,8 +178,6 @@ Et il réussissait à lui passer sa foi. Et il aimait sentir que cette foi qu'il
 
 Ainsi il s'abîmait dans la fidélité, dans la dépendance, dans l'indissoluble.
 
-**
-
 L'été vint. Elle alla s'installer avec son petit garçon dans un village de la forêt de ***. Lui, à deux kilomètres, dépistant tous les siens... Le soir, au couvre-feu, il sortait sans bruit, traversait la forêt, venait s'asseoir sous bois; à un signal convenu, elle ouvrait sa fenêtre... Il retournait chez lui à la pointe du jour, dormait jusqu'au midi, dans un engourdissement qui était encore elle.
 
 Ah! la première fois qu'il s'en vint la rejoindre! Comme il était joyeux — marchant par les grands chemins, sauvé des casinos & des hôtels-palaces — de sentir que par elle il découvrait l'espace, le grand air, le grand ciel, sa force, sa jeunesse, sa volonté d'élan!
@@ -211,8 +192,6 @@ Comme il savait sentir, & vouloir sentir, cet attachement spécial qui conjoint 
 Un jour — c'était peu de temps après leur arrivée — elle put s'échapper. Elle vint le rejoindre au bois... Ils s'assirent l'un près de l'autre sur un grand arbre mort, couché le long d'une route. Elle passa son bras au cou de son ami :
 
 — Chéri, dit-elle très douce, cette vie ne t'ennuie pas? Tout seul toute la journée!... Et cette petite chambre que tu as prise, là-bas, tu ne t'y déplais pas trop? Tout ça te change tellement... Tu passais tes étés dans des endroits mondains...
-
-Il dit :
 
 — Je suis heureux... Le jour je ne suis pas seul. Je vis dans le souvenir & dans l'attente... J'aime ma petite chambre & ma vie simple... Et puis l'amour n'est fort que dans l'austérité.
 
@@ -235,11 +214,7 @@ Il se serrait près d'elle contre l'avenir, contre lui-même... Quelque chose lu
 
 Il fallut qu'il partît. Lente, elle ouvrit la fenêtre. Il sortit. S'éloigna. Il se retournait souvent, envoyant des baisers... Puis il marcha longtemps sans se retourner... Au moment de changer de route il se retourna encore. Elle était encore là, derrière le volet. Alors éperdument il s'encourut vers elle, l'embrassa follement, & partit en courant, étouffant ses sanglots, sans se retourner.
 
-**
-
 Ils rentrèrent à la ville. Il reprit son régime de l'hiver précédent : éloignement du monde, séjour seul ou à deux dans leur appartement, visites chez elle... Il sentait la monotonie de sa vie. Il l'aimait. Elle lui semblait un trait des grandes œuvres d'art. Et il était heureux du bonheur de Madeleine. Et il était fier de l'amour qu'il avait. Fier de sa gravité. De sa fidélité. Fier d'être nécessaire...
-
-II
 
 Un matin, vers six heures, Félix s'éveilla. C'était Juin. Il songea au rendez-vous qu'il avait avec Madeleine dans la journée... Il songea que dans quelques jours elle allait partir pour la campagne, qu'il irait s'installer non loin d'elle, que le régime de l'été passé allait recommencer : la vie avec elle seule, plusieurs mois, loin du monde... Or, voilà que ces pensers ne lui apportaient point la joie qu'il en attendait. Mais un sentiment étrange. Un vague malaise. Qu'il ne comprenait pas. Qui persistait. Qui l'inquiétait... Tout à coup, foudroyante, l'idée de sa liaison
 l'étrangla d'une véritable angoisse, comme l'idée d'un emprisonnement total & éternel. Il se dressa sur son lit, épouvanté. Aimait-il moins Madeleine? Cette vie lui pesait-elle?... Comme dans un éclair, il entrevit l'immensité d'un tel malheur & il en repoussa l'idée, non sans percevoir que sa principale raison de la repousser c'est qu'elle était trop horrible... C'était fou! Est-ce qu'on cesse d'aimer comme ça? Brusquement? Sans raison? Allons! Il était toujours le même. Il était heureux... Maintenant il était calme... Tout à fait calme... Il allait sourire à l'image de son amie. Qui dormait encore. Qui allait s'éveiller. Qui allait, en s'éveillant, penser à leur rendez-vous... Et tout de suite il fut repris de son angoisse. Il venait de sentir une atroce dissonance entre l'élan de Madeleine vers ce rendez-vous & la répugnance qu'il en avait.
@@ -267,8 +242,6 @@ Deux heures. Effondré sur son divan, las comme s'il veillait depuis dix jours, 
 Jamais il ne l'avait prise aussi passionnément. Cependant, elle le regardait gravement, &, pour la première fois depuis qu'elle le connaissait, elle lui dit :
 
 — Tu m'aimes, n'est-ce pas?
-
-**
 
 À partir de ce jour, révoltée ou traitable, poignante ou navrante, l'idée de prison ne le quitta plus.
 
@@ -302,8 +275,6 @@ Et c'étaient chaque jour d'autres malaises... C'était les petites gens qu'elle
 
 Maintenant c'était la modicité de la vie de Madeleine qui l'incommodait, la modicité de son habitation, de son ameublement, de son service, de son habillement... Pourtant il en voyait bien d'autres, des existences modiques — & il s'y plaisait — chez des artistes, chez des travailleurs... C'est que chez ceux-là c'était gaîté, insouciance, liberté... Tandis qu'ici c'était tristesse, préoccupation, servitude... besoin de s'attacher à plus heureux que soi... Mais pour l'instant il n'analysait pas. Il voyait seulement qu'il s'éloignait de cette femme à cause de sa vie humble &, se débattant avec cette vérité qui montait, qui montait atroce dans son simplisme, il s'écriait fou de douleur et de honte : « Je ne vais pourtant pas la quitter parce qu'elle n'est pas riche! »
 
-**
-
 Cependant il se reprenait. Un sourd travail se faisait de destruction de ses liens. Il revenait au monde, au théâtre, à ses amis, à ses lectures...
 
 Il avouait le théâtre, disait avoir été emmené. Elle s'efforçait de juger cela peu grave. Elle le trouvait changé, sans pouvoir dire en quoi. Elle pensait qu'elle donnait trop d'importance à des « impressions ».
@@ -334,8 +305,6 @@ Ils ne dirent plus rien. Elle pensait que l'an passé il n'y était pas allé. E
 
 Ils rentrèrent, lents & muets, affreusement unis, comme s'ils portaient entre eux le cercueil de leur enfant.
 
-**
-
 Il n'en doutait plus : elle savait.
 
 Alors commença pour lui la pire des tortures. Son cœur, merveilleusement préparé par deux années de tendresse à toutes les effusions, à toutes les confusions, devint la proie de la pitié la plus aiguë, la plus entière, la plus passionnée. Il allait par les rues, des jours entiers maintenant, muré dans l'idée fixe de Madeleine en détresse & étreignant la misère de cette femme dans la démission de soi-même la plus effrénée.
@@ -347,8 +316,6 @@ Des femmes passaient, des ouvrières, qui remontaient lentement vers des quartie
 Il la voyait rivée à sa table de famille, obligée à se tenir, à dire des choses quelconques, à refouler ses larmes... Et il avait bien lu dans des auteurs « profonds » que l'abstention forcée des gestes de la douleur empêche la douleur. Et la morale courante lui disait bien aussi qu'« elles sont faites pour souffrir », qu'« elles en ont l'habitude », que « tout est bien ainsi »... Comme il se révoltait contre ces bas moyens de se dispenser de plaindre. Comme il détestait ceux qui les lui portaient. Comme il les souffletait de la parole du maître : « La vérité, c'est qu'on ne saurait jamais assez plaindre une femme. » (1)
 
 Et il voyait l'amaigrissement de Madeleine, sa pâleur grandissante, sa pauvre face creusée, diminuée, exténuée. Et ces images, qui eussent détaché un cœur fort, jaloux de rester fort, attachaient celui-là par l'horrible besoin qu'il avait de s'affaiblir. Il venait s'y dissoudre aux larmes les plus chères. Et la seule image de
-
-(1) Nietzsche.
 
 Madeleine, — hors même de son chagrin, — de son regard d'enfant, de sa douce figure, de sa douce faillure, le faisait défaillir : ce pauvre cœur béant ne pouvait même plus supporter sans s'épandre l'idée de la douceur & de l'ingénuité.
 
@@ -380,8 +347,6 @@ Et, cramponné à son désir d'aimer, fort de ses pleurs, il se clamait encore, 
 
 Le malheureux s'épuisait à vouloir prendre un apitoiement éperdu pour de l'amour.
 
-**
-
 Cependant, en même temps que cet apitoiement, en raison même de lui, son sentiment de chose attachée & sa soif de liberté ne faisaient que grandir. Il avait d'effroyables poussées d'indépendance. Madeleine les subissait, toute meurtrie. Il en avait pour elle un surcroît de pitié. Dont il la détestait... C'était un cahotement affreusement douloureux entre le pire égoïsme & la plus folle tendresse.
 
 Confiante & maladroite, plus que jamais elle lui disait tout. Elle disait les lourdeurs de son ménage; elle disait ses ennuis avec son mari, avec sa belle-famille; ses déceptions par le petit Pierre... Il se révoltait dans son cœur. Est-ce qu'elle ne pouvait pas garder tout ça pour elle? En vérité, elle prenait plaisir à l'apitoyer... Il n'avait pas été mis au monde pour ça... Tout ça parce qu'elle l'« aimait »! Encore une invention des femmes cette conception de l'amour, cette confusion de l'amour avec le soulagement qu'on a à dire ses embêtements... Il répondait sèchement. Le soir elle en pleurait. Il le savait... Il pleurait de ses pleurs...
@@ -401,8 +366,6 @@ En sortant de chez eux, s'il faisait déjà nuit, il la reconduisait. Ils arrêt
 Maintenant elle se débattait.
 
 À mesure qu'elle sentait lui échapper l'amour de son amant, elle s'acharnait à en
-
-(1) Dante, Inf. XX, 30.
 
 faire état comme d'une chose établie, soit qu'elle espérât y croire en le posant, soit qu'elle voulût enchaîner l'homme par la foi qu'elle montrait en lui... « Tu me rudoies, écrivait-elle, & cependant tu m'aimes. » « Pourquoi me fais-tu tant de mal, puisque tu m'aimes. » « Tu m'aimes plus que tu ne dis, plus que tu ne crois peut-être, » &c... Il se révoltait dans son cœur. Quoi! Tout ça parce qu'il avait de vagues gentillesses, de vagues caresses, parce qu'il répondait « oui » quand elle disait « tu m'aimes? » Comme si on avait le choix! Comme si le ton n'était pas tout!... Mais non! Elle ne voudrait jamais comprendre... Elle le condamnerait à dire « je ne t'aime plus ». Et elle le savait très bien qu'il ne l'aimait plus!... Mais elle se disait : « Tant qu'il n'a pas parlé, j'ignore; & je le garde... » Alors il éclatait d'une telle redevance des ruses de cette femme, de tel manque d'honnêteté... Puis, tout à coup, il ne voyait qu'une chose, fixément, uniquement : l'immensité de détresse qu'il fallait pour en venir à tant d'humiliation, à l'acceptation de tant d'humiliation... Et c'était une rechute dans la folle sympathie.
 
@@ -472,8 +435,6 @@ Il acheta un roman du jour, dont il coupa les pages... Il sonna chez Madeleine..
 
 Il était tout agité d'être là, à cette heure, symbole de son désordre... Elle entra, pâle & droite, dans un long vêtement noir; meurtrie & ordonnée. Il la prit dans ses bras d'une étreinte qu'il croyait faite d'amour & de pitié, qui était faite de la vénération du lâche pour l'être courageux, qui avait su rester rassemblé dans le malheur... Elle se laissait faire, elle l'embrassait doucement; lointaine; elle le consolait de la nuit passée... Elle savait qu'il reviendrait, qu'il n'était pas méchant... Elle promit de venir dans l'après-midi... Il sortit, soulagé : il croyait que c'était de leur retour à l'amour; c'était de savoir que leur liaison maintenant était bien condamnée, qu'il avait fait l'aveu, qu'elle l'avait entendu.
 
-**
-
 Elle l'avait entendu... Elle ne croyait plus leur amour éternel. C'était maintenant une chose humaine, quelque chose qui « durerait ce que ça durerait », longtemps, peut-être toujours, mais par hasard, point par essence... Elle voyait son amant sous l'aspect de l'humain : égoïste; lassable. Elle l'aimait toujours; elle ne l'admirait plus... — Et elle devenait pratique : elle cessait de gémir sur ce qui n'était plus, elle tâchait à garder ce qui était encore.
 
 Elle s'appliquait à lui laisser beaucoup de liberté... Elle s'occupait beaucoup plus du petit Pierre, de son ménage... Elle suivait des cours! Visitait des musées! Pauvre être de tendresse appliqué à « comprendre »!... Parfois elle refusait de venir le rejoindre à cause d'un cours « intéressant » ou d'un thé « amusant ». Elle voulait lui faire croire que c'était à cause d'elle qu'ils se voyaient moins... Il sentait son effort & ce qu'elle en souffrait... Il le supportait mieux... Il voyait poindre le jour où il cesserait de la plaindre, où il trouverait qu'il s'était acquitté.
@@ -515,8 +476,6 @@ Et il songeait encore à ceux qui disent : « Qu'est-ce que je pouvais y faire s
 Un soir, il passa son bras sous celui de Madeleine. « Tu vois, tout est bien maintenant. Tu n'es plus inquiète. Tu es sûre de moi... Laisse-moi m'en aller une quinzaine. Moins peut-être. Pas loin. J'ai besoin d'être un peu seul, de penser à tout ce qui nous a secoués depuis trois mois... » Elle comprenait... Il partirait le surlendemain. Elle vint à la gare... Le train s'ébranla... Il resta longtemps à la portière du wagon. Elle lui souriait...
 
 [leaf 0440] [p. 83]
-
-III
 
 Il s'installa au Grand-Hôtel de F***, vide à ce moment de l'année... Il renaissait. Il se plaisait à voir, à respirer, à être... Tout lui était liberté... Certes il avait encore des liens. Mais bien supportables. Et qui se dénoueraient peu à peu, doucement.
 
@@ -594,8 +553,6 @@ Alors... il serait dur... Ces drames, ces détresses, ces êtres murés vifs à 
 
 [leaf 0449] [p. 92]
 
-                              Julien Benda
-
 qu'il est dur ! quelle vilaine nature !... — Il laisse-
 rait dire & croire. Il passerait sans un mot, il
 passerait sans un regard... Et il irait vers les
@@ -618,15 +575,10 @@ comme par respect pour ceux qu'il ne secour-
 rait pas. Et de son calvaire il criait aux
 apôtres de la dureté heureuse : « Honte,
 mille fois honte à ceux qui sont durs joyeuse-
-ment. »
-
 
    Il resta là longtemps, dans une muette
 
-
 [leaf 0450] [p. 93]
-
-                              L'ORDINATION
 
 prière au pied de ce dieu dur ; qui avait fait
 les forts ; les maîtres ; les vrais maîtres ; qui
@@ -647,59 +599,34 @@ retombèrent... Et ce fut la dernière convul-
 sion d'un amour expirant... Il quitta son
 banc. Il descendit.
 
-
-
                                           1910
-
 
 [leaf 0451] [p. 94]
 
-[blank page]
-
-
 [leaf 0452] [p. 95]
-
-[colophon]
 
    *Nous avons donné le bon à tirer après corrections*
 *pour deux mille exemplaires de ce neuvième cahier*
 *et pour quatorze exemplaires sur whatman le mardi*
-*25 avril 1911.*
 
                               Le gérant : CHARLES PÉGUY
 
    Ce cahier a été composé et tiré par des ouvriers syndiqués
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 5688
 
-
 [leaf 0453] [p. 96]
-
-[blank page]
-
 
 [leaf 0454]
 
-[blank/binding leaf]
-
-
 [leaf 0455]
-
-[binding shot — no text]
-
 
 [leaf 0456]
 
-[binding shot — no text]
-
-
 [leaf 0457]
-
-[back-matter advertisement — list of cahiers of the seventh series]
 
    Dans les dix-neuf cahiers de leur septième série,
 année scolaire 1905-1906, nos cahiers ont publié :
 
-VII-1. — CHARLES PÉGUY, — petit index alphabé-
    tique du catalogue analytique sommaire et table
    analytique très sommaire de la sixième série
 VII-2. — CHARLES PÉGUY, — de la grippe et la guerre
@@ -709,7 +636,6 @@ VII-5. — RAOUL ALLIER, — courrier de Russie
 VII-6. — CHARLES PÉGUY, — louis de Gonzague
    ÉTIENNE AVENARD, — 22 [?] juillet, un nouveau style. 4 »
 VII-7. — E.-D. MOREL et PIERRE MILLE, — Le Congo
-   léopoldien                                          3 50
 VII-8. — CHARLES PÉGUY, — les suppliants.
    FRANÇOIS PORCHÉ, — louis de Gonzague
 VII-9. — ANDRÉ SUARÈS, — vous riez...
@@ -717,18 +643,13 @@ VII-10. — CHARLES PÉGUY, — de la situation faite à
    l'enseignement supérieur en France.                  3 »
 VII-11. — JÉRÔME et JEAN THARAUD, — les frères
    ennemis. CHARLES PÉGUY, — de la situation
-   Quinzaine.
 VII-12. — FERDINAND LOT, — courrier de Russie
 VII-13. — FERDINAND LOT, — de la situation faite
    à l'enseignement supérieur en France.                2 »
 VII-14. — FÉLICIEN CHALLAYE, — Le Congo français
 VII-15. — GEORGES PICQUART, — courrier de Russie
    CHARLES PÉGUY, — de la situation faite à la défense mili-
-   taire de la France                                   3 »
-VII-16. — GABRIEL TRARIEUX, — *Les Veinées*           3 50
 VII-17. — les cahiers d'Arnold Scherer
-VII-18. — PIERRE MILLE, FÉLICIEN CHALLAYE, — les
-   deux Congo                                           2 »
 VII-19. — JEAN SCHLUMBERGER, — Heureux qui
    comme Ulysse...
 VII-20. — ROMAIN ROLLAND, — *vies des hommes*
@@ -742,7 +663,5 @@ VII-21. — EMILE MOSELLY, — les retours, — les
    Nous mettons le présent cahier dans le commerce ;
 neuvième cahier de la douzième série ; in cahier de
 96 pages ; in-18 grand jésus ; nous le vendons
-deux francs.
-
 
 [NOTE: leaves 0458–0461 belong to the NEXT cahier (s12-c10, *Les Milliet* / Adrien de Tucé, *cinq ans au Mexique*, 1862-1867), beginning with the wrapper "DIXIÈME CAHIER DE LA DOUZIÈME SÉRIE — UNE FAMILLE DE RÉPUBLICAINS FOURIÉRISTES — LES MILLIET — VII. — Adrien de Tucé — *cinq ans au Mexique* — 1862-1867 — CAHIERS DE LA QUINZAINE — périodique paraissant tous les deux dimanches — PARIS — 8, rue de la Sorbonne, au rez-de-chaussée" on leaf 0458, followed by blank leaf 0459, half-title "UNE FAMILLE DE RÉPUBLICAINS FOURIÉRISTES" with running foot "Mexique. — 1" on leaf 0460, and blank verso leaf 0461. Per instructions, STOP — these are s12-c10 front matter; though they ended up in the s12-c09 image directory, they precede the proper s12-c10 leaf 0462.]

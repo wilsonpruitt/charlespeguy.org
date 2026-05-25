@@ -7,11 +7,9 @@ author: paul-dupuy
 isAvertissement: false
 wordCount: 28868
 ---
-
 Nos Cahiers sont édités par des souscriptions men-
 ‘ suelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-demeurent libres.
 Nous servons :
 des abonnements de souscription à cent francs ;
 des abonnements ordinaires à vingt francs ;
@@ -51,7 +49,6 @@ A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi à partir du premier
 janvier 1904 la quatrième série sera vendue au
-moins trente-cinq francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
@@ -65,13 +62,9 @@ Nous avons donné le bon à tirer après corrections
 pour deux mille quatre cents exemplaires de ce premier
 cahier le mardi 13 octobre 1903.
 
-'
-
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
 IMPRIMERIE DE SURESNES (E, PAYEN, D RIDER) 9, rue du Pont. — 8002
-IL
-È +
 
 _  Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, Paris, toute la correspon-
@@ -84,101 +77,37 @@ _  Adresser à M. Charles Péguy, gérant des cahiers,
 __  &, rue de la Sorbonne, Paris, la correspondance de
 ÈS rédaction et d'institution. Toute correspondance d'admiD niatration adressée à M. Péguy peut entraîner pour la
 _ réponse un retard considérable.
-Fu
-" à
 "084 Nous avons fait tirer à cinq mille exemplaires pour
 _ ce cahier un vient de paraître constitué par l'intro-
 - duction et par la table détaillée des matières. ;
 
-ESP RS AS De En LU
 PSS Les cahiers publiaient régulièrement les œuvres et
 les travaux de Bernard-Lasare. Ils avaient publié parME ticulièrement : 57
 He BERNARD-LAZARE. — L'Oppression des Juifs dans …
 l'Europe orientale. — Les Juifs en Roumanie, —
 È huitième cahier de la troisième série, un cahier de
-116 pages, deux francs à
-ù te Sy
-Ù y 2, + LÛR ETES PER SRE
-ÿ eY #3 M2 SEE
-RUES pe TERRES Haas:
 
-a x
-DEUXIÈME CAHIER DE LA CINQUIÈME SÉRIE
-PAUL DUPUY
-LA
 LA vd Li Li
 la vie d'Évariste Galois
-2 CAHIERS DE LA QUINZAINE
 4 paraissant vingt fois par an
-F4 PARIS
 L 8, rue de la Sorbonne, au rez-de-chaussée
 
-gi: HR Res él AA S
-
-CPE HE # A k ” } ER 3 ï a HE ES "ee 4 PL
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 _. il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 | arrondissement. On recevra en spécimens six cahiers
 de la deuxième, de la troisième et de la quatrième
-Fe série. ; M
-RU F4
-SP : 7 FRS
-Da TS
-Re ; : AGDE
 La Nous mettons ce cahier dans le commerce; nous le
-à vendons deux francs. er |
-à + LUS RE
-Er = * #3 > CE
 pi 23 L sd RS
-FR : >. KA
-Fes F3 j Ô ë A VA ;
-Det +6
 
-ST ST LE PES EAN \ 6 RP RAT MALE SERRES
-
-RTE CRD RIPA CR CU EN SV OURS CERN
-LS F— 4e MT # , z je + +
-é V5 S RC # < £ Dr
-EAN: 2° E | ; >
-Fr + A RE
-E THERE , $ :
-CE DCR 5
-À OPA = ME
-4 PERS à r æ
-: 2 #00
-RS &
-ra RES Liz] 5 = n s F
-RAR © 3
-. ES
-j LEE
-À Lee | Hat? +
-" L'46 È ?
-MERE 3
-_ OR | - ‘ Û
-1 LR : e
-F0 *
-ET . x
-HE L ; |
-DL. : n EN 5 es
 TPE Hi ; Gran S de
-Hs AR Ve ». ET Ha se . . 7 F.
-rap A RE PERS) vi > DA LL
 1430 UE RER (rl Eee on) CERTAIN k xs 28
-pes ent RE RL LT J
 LETTRES RES ET en 2 Ac PE ‘
-2 CR ET RNCS RER LA
 # PE Ce 1 LU ne, Pr te
-D KIA TS RES FE RTC A CNRS 9 1, Pt
 ch FOR VRÉ vie 2 CAT A Eng se Fo D EU?
-d 17 LM RS SEEN TE NE ETERNREESS ' LS JA ©
 y VE VE TONER er ARE n.- pe UT et DES
 M Te ui LES
-LH TD HN S S Misr'2t + ART . LS
-DR 2 Me Mn, ON UE ASTON
-: + RATES ETC PSE LE Es
-à CRETE à ATOOEN Fa FA A CRE 2 ARS î
 
 M CE SL PEN PEN NT DÉDE Wrele =
 Sur les vies publiées dans les éditions des cahiers "
@@ -186,73 +115,19 @@ antérieures à la fondation des cahiers et dans les trois ei
 ‘ premières séries des cahiers, se référer aw ne
 3 Sixième cahier de la quatrième série, cahier de courrier, courrier de Paris, inventaire des cahiers, en
 | forme de catalogue, un cahier de 52 pages, un franc #8
-L 4. 2,
-: S ne
 . Nous publierons dans un cahier de la cinquième série
 le relevé sommaire des vies, biographies et bibliographies publiées dans les cahiers de la quatrième série.
-& 11, CN
-HE Var
 es L BE
 | LV 5
-Ê LATOLE
 # LES
 
-PR NT PET PU A
-1 OUR 7
-F. > ET LR #
-1.52 ‘ 2 "à
-
-; EE
-
 | MA Fe
-MS #2 s r k
-LE Ù
-« ASE 3 ” t G l = Es S
-Ne ois =
-__ Évariste Ga =
-NES ÿ .: Ee ‘e
-PEER L AS
-=! FC : ÊS
 
-5 ÉTÉ “à we ke
-4 #1 HE ;- + ce |
-
-Lr PE uit VE TE <
-
-d RS AA LE \ = + 00
-
-Mn | \ | Fa
-sf het à: Tr. 7 VER, Au a mt
-
-Sa PAL EEE + EE UNE a
-MS Ur mue PCR ES PERTE GE
-APE SA ER ET Ra ARR PES NA
 > + ds , Le Tr TS LS es PRES à at HS &
-PIRE ; F si SR Pret SAURE ÉOUE, :
-“4e ex RE HARRESSS SL
-FA f QU IIEE Z VE + OSSI NOTES
-Tr Ex Ê 2 p M2
 D. Le +2 en à Cor,
-LS ; FÉES
-LE = PETER
-XO 21 s FREIN
-FES L “ < MP:
-TI 5 : L'ASIE
-FE SNRRE
-Lies RES
-OS : DT SES US 5
-RER = TRS CES
 Fa [LE x HER Date S
-FE ; LA TTACSSESS
 | 5 È Rae.
-L, 2. PEEESS ë Es ne RC
-"+ À : SHRSPENSS
-D JET AE TRAME
-CN te a = Se ? = 2 2 Fr on
-ALARME ae 4 3 AVES
-e RE L FÉES
 Pndete > CRT RS ee RE A LT ENS Ne ADR E U COUPE: ES
-PT GMT Ce QUE ce PU Re DATE PRE PEN RES ARLON
 
 Les œuvres mathématiques de Galois forment un
 volume de soixante et une pages ; (1) l'auteur est mort
@@ -283,9 +158,6 @@ dans son Journal de mathématiques pures et appliquées. La Société
 mathématique de France en a donné une édition définitive,
 précédée d'une Introduction par M. Émile Picard.
 
-E 5
-
-Jules Tannery 7
 savants, seuls capables d'en comprendre le sens ou d'en
 saisir la portée.
 
@@ -294,7 +166,6 @@ plus abstraites de l'Algèbre et de l'Analyse; mais la
 pensée y est si profonde qu'elle dépasse le plussouvent
 son objet, et les doctrines de Galois ont pénétré dans =
 presque toutes les parties des mathématiques, qu'elles 5
-dominent aujourd'hui.
 
 Les travaux comme ceux de Galois sont regardés
 comme inutiles par les philosophes à vue courte, qui ne
@@ -313,90 +184,21 @@ unique ? Combien de semaines de sa vie brève et agitée
 cet enfant de vingt ans at-il données à la science, qui
 lui doit tant ?
 
-Juzes TANNERY
-
-LA VIE D'ÉVARISTE GALOIS
-
-ARR IS PT NN SE
-
 ie M ne
 
-x] ; Ras n SE.
-PS F LA PRE "Cl
-
-: A =“ 0 5 0 257 0e Lee! }
 FREE La vie que l'on va lire a été publiée pour lp
 __ mière fois dans les Annales de l'École normale supé-
 # 2 Le Se CIS
 __ rieure, troisième série, tome XIII, 1896; ce tome est
-ss EL ne + « ce, : Pa.
-aujourd'hui épuisé en librairie. : Fe
-5 É F4, LUC PESS REC
-« 4 « NE
-"F3, 0008
-4 ro.
 ns. | ou EN
-RES PURES
 
 Re M ha RAT LR Ti PR Le es SE
 25 AR Mau RSS PRÉ PEE PE NE
-AN RES Ph LT : SE V2.
-AA TS 7 Re ut Au UE
-APE SE PRE RAA, SR RERPR ES Tes POP LAC AA DIE |
-FES AUS CAL EPP ET AD {0 7 HS ETATS
-SSL LAIT Rat AE RER RAP
-FERA, RARE F4 : VAT Poe se
-4 FhÉ & 17 4 “ é
-3 10% #2 > À ECANT CRE à. ES |
-PAG, + > TA MA de.) rs 4 ET À : \ |
-1%, AE 1 2.0) ) + CR LS LENS EN DL TU LS | À
-PÉLIX DES A ÉRRRS 7 (0 RUE =
 Dir 2 3% DETe" au LES LR pi SRE ? LA À 4
-CE ile PR: 1e GE 5 RERO 71 NA AA
-BA ee TR TS PT RES DR" a! FAR BETA
-‘
 
-CEA MSN RE Én E N —" 2i
-HR BARON ME LRRRET Ep ETER ALAN A PPT PRES
-PAS EARRES FENETRE HT LOS £a D A y nr RES + 1
-RS Te re PRES RC
-RENE FRS NME En Pa D ROUES ALP
-SE 20 1 LEE LE (Rte PE ME
 #20) * CAR 1: # RER
-2 FRS * LORS LEA
-FALL 2 LT 2210
-F4 CT TI PRESS |
-SONATA - > ' FPS
 ET Tes "al ; 4x1 RO
-RARE Ce © : CITÉS
-A OCRS 5 3 d L'EST
-* MAT EAST: e | 4 1 « ES
-Re: 4 LE ERRIONNERTRES
-E o( TS : + Pa:
-PAS 4 “ NF SYRIE
-LES à HF
-SET » 4 2227 MES
-RER “EE s1F SON è
-4 4 * F0 1e 0
-riNS AURA LE TENTE
-F 44 SN AIE . ë LR ER
-Le IEC > RU
-S'an Ke A ë > ALT RUES
-ÉNRS 2 He: Les 0 EN PES
-ts 13800 SFR É “HART
-LUI DSL LIN RS }
-517. AO - 17 SONT
-F1 0 MORE Ten L ,2 NSP RIRES
-NRA TERRES TAN TRES
-MISES 288 11: è * { S'HRS nur
-Me Jet DE, CT Rs 0 #4 s SUN ET tAHL PS CURE Rp: x
-LUE DL ANSE RESTES Are ÿ is, 7 SNS
 DURS NET pe , A verte Ras RAS nn sh Le ES # AA 1
-- EAU A ER NAT EL RER D AS TOR POS x He + Cr:
-US SENTE LIEU DEAR 57 re Hot Ve Rare Ba EN
-
-Pauz Duruy
-LA VIE D'ÉVARISTE GALOIS
 
 Les premiers éléments de cette étude ont été réunis
 au cours de recherches relatives à l'histoire de l'École
@@ -419,9 +221,6 @@ incomplètes aussi, publiées sur Galois dans différents
 recueils, et qui ont fourni jusqu'à présent les éléments
 des articles parus dans les dictionnaires biographiques
 
-9 I.
-
-Paul Dupuy "0
 à ou encyclopédiques. La plus ancienne et la principale
 ‘est celle que son camarade d'école et ami, Auguste
 Chevalier, inséra en novembre 1832 dans la Revue
@@ -453,8 +252,6 @@ pendant les derniers mois de 1830 à l'École normale, dont il fut
 mis à la porte comme lui.
 10 -
 
-ï LA VIE D'ÉVARISTE GALOIS
-
 celles du Bourg-la-Reine, de la Préfecture de la
 Seine, de ïhôpital Cochin, des prisons de la Conciergerie et de Sainte-Pélagie. Malheureusement celles de
 la Préfecture de police, de la cour et du tribunal de
@@ -483,9 +280,6 @@ trouvé la mort, des renseignements nouveaux, propres
 1 à en éclaircir le mystère. Il m'a été impossible de le
 
 faire. à
-II
-
-Paul Dupuy ;
 
 Je me suis enfin adressé à la famille de Galois qu'une
 heureuse chance m'a fait retrouver très rapidement.
@@ -519,15 +313,12 @@ aventures. Je l'ai toujours vu au milieu des choses, des
 gens, des événements, des institutions de son époque ;
 un intérêt d'histoire s'ajoutait ainsi pour moi à un S
 
-LA VIE D'ÉVARISTE GALOIS
 intérêt de biographie. Mon -souhaït essentiel est de
 substituer un portrait exact de cet illustre mathématicien aux vagues croquis que l'on en possédait ; mais
 j'avoue que ce serait aussi pour moi une vive satisfaction, si l'on jugeait qu'en racontant la vie de Galoïs j'ai
 pu éclairer d'un jour curieux quelques coins de la
 Révolution de 1830, et des années troublées et si
 vivantes entre lesquelles elle s'insère.
-
-I
 
 Évariste Galois est né le 25 octobre 1811, au Bourg-
 
@@ -548,7 +339,6 @@ avec lesquels la famille Galois s'était ralliée d'abord
 à la Révolution, puis à l'ordre de choses qui en était
 issu, Pendant que son fils aîné, oflicier dans la garde
 
-Paul Dupuy | o -
 impériale, se battait un peu partout en Europe, : è
 M. Galois avait cédé sa pension à son cadet, Nicolas- è
 Gabriel, et celui-ci, lorsque naquit Evariste, était à
@@ -577,8 +367,6 @@ Il avait épousé sous l'empire une jeune fille, Adélaïde- ;
 Marie Demante, dont la famille, bien connue à la
 Faculté de droit de Paris, habitait le Bourg-la-Reine,
 (1) Archives de la Seine. : $
-
-= E
 
 | LA VIE D'ÉVARISTE GALOIS
 presque en face de la maison Galois. Là aussi, dans
@@ -609,11 +397,7 @@ sentiment de l'honneur ou le pardon des injures,
 ù quelque chose de passionné. (1)
 L (1) La plupart de ces renseignements sur le père et la mère de
 3 Galois m'ont été fournis par sa famille, notamment par M. Gabriel
-4 Demante.
-? 15
-3:
 
-Paul Dupuy Ÿ
 Telle était la mère d'Évariste Galois. Il faut la con. !
 
 naître pour le bien comprendre lui-même, et il faut
@@ -645,8 +429,6 @@ vieille dame. Je ne suis même pas bien sûr que
 quelques refrains de la façon de Galois ne rôdent
 encore dans la mémoire de madame Bénard; je n'ai
 
-LA VIE D'ÉVARISTE GALOIS
-
 pas osé insister pour obtenir de sa complaisance ces
 vers, qui n'ont sans doute aucun autre intérêt que
 celui de souvenirs intimes. Mais ce que madame Bé-
@@ -654,7 +436,6 @@ nard m'a dit très volontiers, c'est, en contraste avec
 la gaîté juvénile des années passées au Bourg-laReine, le vide laissé par le départ de Galois, lorsqu'il entra à Louis-le-Grand, et, bientôt après, le
 changement de caractère qui coïncida avec la première éclosion de son génie mathématique et préluda
 aux dernières années de sa vie, si pleines, si agitées,
-si étranges.
 
 C'est en 1823 que Galois quitta sa famille pour le
 collège. Deux ans auparavant, une demi-bourse lui
@@ -677,8 +458,6 @@ parce que sa présence seule était une cause de mutinerié ; le second, M. Mall
 
 (1) Archives du Ministère de l'Instruction publique.
 
-:
-Paul Dupuy F
 pour obtenir la paix, il avait laissé carte blanche au ;
 libéralisme. Au moment où Galois entra à Louis-le- 4
 Grand, un nouveau proviseur, M. Berthot, venait d'en $
@@ -704,9 +483,6 @@ pour attester que l'enfant avait fait honneur aux leçons
 de sa mère et n'avait pas perdu les habitudes de travail régulier qu'elle lui avait données. Cependant,
 lorsqu'on sait la suite, il faut bien penser que ce qu'il
 (1) Quicherat, Histoire de Sainte-Barbe.
-18 ;
-
-LA VIE D'ÉVARISTE GALOIS
 
 vit à Louis-le-Grand, pendant cette première année
 d'internat, eut une influence décisive sur son caractère ;
@@ -741,7 +517,6 @@ lettre qu'il écrivit au père de Galois, il pensait surtout
 
 3 19
 
-Paul Dupuy
 que l'enfant n'avait pas encore le jugement assez mûr, À
 et n'estimait pas à leur juste valeur les prix et le Concours général: une nouvelle Seconde lui ouvrirait les
 yeux sur ses véritables intérêts. (1) Je me permets de
@@ -761,7 +536,6 @@ pas qu'une sourde transformation s'opérait dans l'intelligence de Galoïs, que 
 scolaires où l'on prétendait enfermer l'activité de son
 esprit, et, au moment même où cette lassitude se manifestait à des signes certains, il prétendait lui faire pié-
 tiner une seconde fois la route où s'était endormi son
-ennui.
 
 Le père résista tout d'abord, et, à la rentrée de 1826,
 Évariste entra en Rhétorique. Son travail y fut jugé
@@ -769,9 +543,6 @@ médiocre, sa conduite dissipée, son esprit trop jeune
 pour profiter de la classe ; il fallut, en janvier, céder
 
 (1) Archives du Lycée Louis-le-Grand. — Voir Pièces justificatives,
-page 83.
-
-LA VIE D'ÉVARISTE GALOIS
 
 aux instances du proviseur: Évariste retourna en
 Seconde, dans la division de M. Saint-Marc-Girardin,
@@ -812,7 +583,6 @@ eut fini, toute la longue série de théorèmes demeura
 fixée dans son esprit, aussi complète et aussi claire
 qu'au bout de deux années d'étude appliquée pour
 
-Paul Dupuy Ë
 n'importe quel autre élève. Dans cet ordre de spécula- À
 tions, son intelligence ignora toujours l'effort : d'un $
 coup d'aile, du premier, elle quitta les plaines pour :
@@ -845,9 +615,6 @@ Au collège ses manières devinrent de plus en plus
 étranges ; au commencement de l'année son maitre
 @) D'après M. Ludovic Lalanne. Le frère de M. Ludovic Lalanne,
 Léon Lalanne, avait été en Mathématiques spéciales avec Galois.
-SR
-
-LA VIE D'ÉVARISTE GALOIS
 
 d'étude le trouvait encore « très doux, rempli d'innocence et de bonnes qualités », mais ne pouvait s'empêcher de noter en lui quelque chose de singulier ; à la
 fin du second trimestre, il le juge original et bizarre,
@@ -879,9 +646,6 @@ il baisse tous les jours. » Il est clair que la lassitude est
 devenue du dégoût, et que désormais les mathématiques
 l'absorbent tout entier. Les notes du maître d'étude sont
 à cet égard plus expressives encore que celles des
-23 ë
-
-Paul Dupuy
 
 professeurs de Rhétorique: ce maître a la plus haute
 opinion des facultés de Galois, qui lui paraissent hors
@@ -895,7 +659,6 @@ mathématiques le domine. Je pense qu'il vaudrait mieux
 pour lui que ses parents consentent à ce qu'il ne
 s'occupe que de cette étude: il perd son temps ici et n'y
 fait que tourmenter ses maîtres et se faire accabler de
-punitions. »
 
 C'est à cette année que se rapporte l'un des renseignements les plus intéressants donnés, en 1832, par
 Auguste Chevalier, dans la Revue encyclopédique. « A
@@ -916,10 +679,6 @@ n'aurait dû aborder qu'après une année d'élémentaires
 et une de spéciales, et il osa s'y présenter : il échoua.
 Get échec lui fut amer et lui parut le premier des dénis
 de justice qui, réels ou imaginaires, finirent par empoi-
-
-“
-
-LA VIE D'ÉVARISTE GALOIS
 
 sonner sa vie. (1) Une des formes de sa fureur pour les
 mathématiques était, en effet, l'ardente volonté d'entrer
@@ -952,13 +711,6 @@ M. O. Terquem publia sur lui, en 1849, dans les Nouvelles Annales de Mathématiq
 
 . des progrès de la science, auditeur assidu de M. Chasles
 
-(1) Magasin pittoresque.
-
-Il
-L+
-
-Paul Dupuy ;
-
 à la Faculté, les questions qu'il posait tendaient à
 élargir l'esprit, non à le rétrécir : il devina dans Galois
 un génie destiné à sonder toutes les profondeurs et à
@@ -986,9 +738,6 @@ importance sur la théorie des équations. Cauchy se
 chargea de présenter à l'Académie des Sciences un
 extrait de la théorie conçue par le jeune collégien; il
 
-(1) Revue encyclopédique.
-
-LA VIE D'ÉVARISTE GALOIS
 loublia ; l'extrait fut perdu pour son auteur qui le
 réclama inutilement au secrétariat de l'Académie; il
 avait été égaré. Le peu d'attention donné par l'Institut
@@ -1013,19 +762,11 @@ son esprit frondeur, où la discipline retombait de tout
 son poids sur ses épaules prêtes à la révolte. Deux
 désastres achevèrent de tout gâter et de lui briser les
 
-- nerfs.
-
 Sa seconde candidature à l'École polytechnique ne
 fat pas plus heureuse que la première. Il fut refusé à la
 suite d'un examen demeuré légendaire. Vingt ans
 après, on retrouve un écho de la colère que cet échec
 excita chez tous ceux qui connaissaient Galois, dans
-à 27
-
-: L
-
-x PR Le: Po à
-Paul Dupuy
 
 une Note des Nouvelles Annales Mathématiques : « Un
 candidat d'une intelligence supérieure est perdu chez
@@ -1041,7 +782,6 @@ désespoir : Galois voyait la vie qu'il avait rêvée lui
 portait en lui l'avait mortellement frappé. Sur ces
 entrefaites, il perdit son père dans des circonstances
 
-tragiques.
 | La lutte entre les libéraux et le clergé avait pris partout une intensité extrême à la suite des élections de
 1827; partout l'hostilité du roi contre le ministère Martignac, en excitant audace du parti réactionnaire,
 faussait les ressorts de la vie publique. Un jeune
@@ -1057,7 +797,6 @@ M. Galois ne put résister à cette attaque : il fut pris du
 délire de la persécution, et, le 2 juillet 1829, profitant
 d'une absence de sa femme, il s'asphyxia dans l'appar-
 
-LA VIE D'ÉVARISTE GALOIS 7
 tement qu'il avait à Paris, rue Jean-de-Beauvais, à
 deux pas du collège de Louis-le-Grand. Évariste conduisit le deuil de son père. De Saint-Étienne-du-Mont
 où les prêtres avaient consenti à recevoir le corps du
@@ -1069,7 +808,6 @@ demi-lieue ; devant l'église où le clergé attendait le
 cortège, il y eut une petite émeute : le curé fut insulté
 et blessé d'une pierre au front. M. Galois fut descendu
 dans sa fosse devant son fils, au milieu du tumulte des
-passions politiques déchaînées. (1)
 
 Dans l'âme d'Évariste une pareille catastrophe, suivie d'un pareil spectacle, devait laisser une impression
 profonde. Il haïssait l'injustice d'autant plus énergiquement qu'il s'en croyait déjà la victime; la mort et
@@ -1092,7 +830,6 @@ de la famille.
 
 29 11.
 
-Paul Dupuy : pes
 rappeler que celle-ci n'existait que depuis trois ans: |
 humble et pâle copie de l'ancienne École normale sup- |
 primée en 1822, elle n'avait pas même d'existence :
@@ -1125,7 +862,6 @@ malaisément que cet élégant révolutionnaire se soit
 borné à distraire les élèves, en leur chantant sur la guitare des airs pyrénéens; sans doute il n'y a pas lieu de
 penser qu'une Vente de la Charbonnerie ait été fondée
 
-ÿ | LA VIE D'ÉVARISTE GALOIS
 à l'École préparatoire comme à l'École polytechnique ;
 mais enfin il serait bien surprenant que, quatre ans
 avant 1830, le futur rédacteur en chef de la fougueuse
@@ -1151,15 +887,11 @@ collège était un régime d'hypocrisie, racheté de temps
 à autre par des révoltes. Ce régime se prolongeait à
 bien des égards dans l'École préparatoire, et Galois, en
 y entrant, ne quittait pas le milieu qu'il avait pris en
-horreur.
 
 Il le quittait d'autant moins qu'il n'était pas encore
 bachelier, et que, jusqu'à ce qu'il le fût, le règlement
 de l'École l'obligeait à suivre le cours de Philosophie du
 
-' 31
-
-Paul Dupuy É
 collège ; il ne pouvait d'ailleurs être admis définiti- ;
 vement qu'après avoir pris les grades de bachelier es 2
 lettres et es sciences. Le premier lui donna quelque
@@ -1187,9 +919,6 @@ rien. » Jusqu'ici rien d'étonnant, puisque Galois n'avait
 rien fait dans la classe de M. Thillaye; mais, où l'on
 
 () Archives de la Faculté des Lettres et de la Faculté des
-Sciences.
-
-LA VIE D'ÉVARISTE GALOIS
 
 ne peut s'empêcher de sourire, c'est quand on voit
 M. Péclet ajouter : « On m'a dit que cet élève avait de
@@ -1219,7 +948,6 @@ ne serais pas autrement surpris qu'il eût tendu à
 M. Péclet un piège, où d'ailleurs il risquait de trébucher lui-même. Cette fois il s'en tira, fut définitivement
 4) Archives de l'École normale. :
 
-Paul Dupuy
 admis et signa, le 20 février 1830, l'engagement décen- |
 nal qui le liait à l'Université. (1) à
 
@@ -1253,7 +981,6 @@ d'après la note du Magasin pittoresque, avant même
 
 (2) Archives de la Faculté des Sciences.
 
-LA VIE D'ÉVARISTE GALOIS
 d'entrer dans la classe de M. Richard. Le manuscrit fut
 remis au secrétaire perpétuel, M. Fourrier, qui l''emporta
 chez lui et mourut avant de l'avoir examiné; on ne le
@@ -1283,12 +1010,10 @@ sur la conduite qu'il convenait de tenir dans ces circonstances critiques. Bien 
 leur pensée aux souvenirs de la grande Révolution ; hormis lui, et peut-être deux ou trois autres, il n'y avait pas
 de républicains à l'École préparatoire; l'opposition
 
-Paul Dupuy
 doctrinaire était presque l'unique maîtresse de ces
 jeunes esprits, et elle n'avait pas prévu la violence.
 Depuis les élections le Globe s'évertuait à deviner les
 péripéties probables de la bataïlle parlementaire, sans
-avoir risqué aucune hypothèse extra-constitutionnelle;
 une fois les Ordonnances rendues, ceux que pouvaient
 arrêter des scrupules de légalité devaient reconnaître
 qu'au moins la dissolution de la Chambre des députés
@@ -1314,8 +1039,6 @@ beaucoup songeaient à se faire pardonner dans le particulier la turbulence des 
 en tout cas, de l'aveu même de M. Guigniault, le directeur des études, quelques-uns des élèves étaient les
 (1) Gazette des Écoles.
 #00
-
-LA VIE D'ÉVARISTE GALOIS
 
 confidents de ses plus secrètes pensées. Rien de pareil
 à l'École polytechnique ; les élèves ne s'y occupaient ni
@@ -1351,9 +1074,6 @@ mois de décembre pour justifier M. Guigniault contre les attaques
 de Galois. Cette lettre a été insérée par M. Guigniault dans son
 rapport au ministre sur le renvoi de Galois, — Voir Pièces justificalives, page M4,
 
-III
-
-Paul Dupuy :
 conséquences sans trembler pour lui-même; mais il
 était d'un tempérament trop pacifique pour se douter
 un seul instant que la crise pût se dénouer en trois
@@ -1380,7 +1100,6 @@ sottise ; il était trop décidé lui-même pour que lapitoiement sur les soldat
 mur qui séparait la cour du Plessis de la rue du Cime-
 (1) Détail fourni par M. Bénard.
 
-LA VIE D'ÉVARISTE GALOIS
 tière Saint-Benoît. (1) Le 29, le passage qui faisait
 communiquer le Plessis avec Louis-le-Grand resta obstinément fermé, bien que ce fût jeudi; (2) le soir seulement on apprit à l'École préparatoire la retraite des
 troupes royales sur Saint-Cloud et la formation du
@@ -1406,13 +1125,10 @@ l'on ajoute à tout cela que l'avènement de LouisPhilippe lui parut un coup de 
 (1) Détail fourni par M. Bénard,
 (2) La porte particulière du Plessis sur la rue Saint-Jacques était
 alors condamnée.
-39 s
 
-Paul Dupuy
 une trahison, on se fera une idée de la violence de
 ses sentiments au moment où se termina sa première
 année d'École, et où commencèrent les vacances
-de 1830.
 
 Que fit Galois pendant ses vacances de 1830? Je n'ai
 pu obtenir aucun renseignement précis sur ce moment
@@ -1441,16 +1157,12 @@ aspirations généreuses. Je n'en ai pas la preuve, mais
 
 (1) Voir la lettre de Galois à Chevalier, page 73.
 
-4o
-
-LA VIE D'ÉVARISTE GALOIS
 j'ai la conviction qu'avant la fin des vacances de 1830,
 il était déjà enrôlé dans la Société des Amis du peuple,
 et qu'il y entra au moment où, supprimée par arrêté,
 elle se reforma secrètement. Je pense que cette affiliation fut pour beaucoup dans l'attitude qu'il prit après
 la rentrée vis-à-vis de M. Guigniault et qui motiva
 son renvoi de l'École.
-Il
 Pour bien comprendre les incidents qui, au mois de
 décembre 1830, amenèrent l'expulsion de Galois de
 l'École normale (l'École préparatoire avait repris ce
@@ -1468,9 +1180,7 @@ qu'il y avait d'absurde dans une quasi-légitimité
 comme ce qu'il y avait de généreux dans les combinaisons tentées pour sauver la tête de M. de Polignac,
 tout ce qui se faisait ou se préparait dans le gouvernement de Louis-Philippe irritait profondément les classes
 populaires et, avec elles, plus qu'elles-mêmes, quiconque
-4x
 
-Paul Dupuy |
 cherchait les antécédents de Juillet, non pas dans la
 révolution anglaise de 1688, mais dans la révolution
 française de 1789. Galois jugeait la situation générale
@@ -1500,9 +1210,6 @@ dix-neuf ans, cœur ardent et esprit rigoureux comme
 Galois, assistait à cette conquête de l'Université, il faut
 moins tenir compte des invectives d'un Barbier ou d'un
 Méry que du jugement d'hommes parfaitement modérés,
-
-AN À7:
-LA VIE D'ÉVARISTE GALOIS
 
 et qui se déclaraient eux-mêmes démoralisés par un
 pareil spectacle. Ainsi Eugène Burnouf, alors maître
@@ -1534,7 +1241,6 @@ en vérité, tout à fait amusant! » Qui est-ce, Sphynx ?
 L'éditeur des lettres de Burnouf s'est bien gardé de
 nous le dire. Mais, d'après l'allusion aux études reli-
 
-Paul Dupuy
 gieuses, il semble bien que ce soit M. Guigniault lui- |
 même. Il avait en effet fort à faire avec les folliculaires, représentés par un petit journal universitaire .
 très hardi et très méchant, la Gazette des Écoles, dont
@@ -1559,9 +1265,7 @@ toujours comme à l'École polytechnique; M. Guigniault
 refusa encore. Il trouva même la demande ridicule et |
 le dit; il parla à cette occasion de l'esprit pitoyable qui
 animait les collèges, et menaçait de ruiner l'Université et £
-É
 
-LA VIE D'ÉVARISTE GALOIS
 même l'École polytechnique. (1) C'était là aux yeux de
 Galois un blasphème impardonnable. Cependant un
 nouveau règlement d'études concerté entre MM. Cousin
@@ -1593,23 +1297,15 @@ jeune homme, conscient de son génie, et pénétré jus-
 (1) Voir la lettre de Galois, à la Gazette des Écoles, page 47.
 
 (2) Lettre de L., camarade de Galois. — Voir Pièces justificatives,
-page 9%. À
 
 (3) G. Pinet, Histoire de l'École polytechnique.
 
-4ÿ IT.
-
-Paul Dupuy |
-+
 } qu'aux moelles de ce même esprit qui faisait la popu
 larité et la liberté des polytechniciens. Sa haine contre ë
 l'École normale et contre M. Guigniault éclata. Inter- 6
 venant dans une polémique que son directeur soutenait
 alors contre la Gazette des Écoles, et où celle-ci n'avait
 pas le beau rôle, il adressa à ce journal la lettre que
-voici :
-3 décembre 1830
-Monsieur,
 
 La lettre que M. Guigniault a insérée hier dans le Lycée,
 
@@ -1648,7 +1344,6 @@ demande fut adressée par les collèges au ministre, deux
 
 membres seulement du Conseil royal votèrent pour, et ce
 
-; LA VIE D'ÉVARISTE GALOIS
 furent précisément ceux du Conseil qui ne sont pas libé-
 raux. Et le ministre a accordé : c'est qu'il a craint l'esprit
 turbulent des élèves, esprit pitoyable qui parait menacer
@@ -1683,7 +1378,6 @@ faux dans sa lettre, (3) elle n'en était pas moins inadmissible. Sa publication
 parmi les élèves, qu'elle mettait directement en cause
 
 (1) C'était là le sujet de la polémique entre MM. Guigniault et
-Guillard.
 
 (2) Galois avait signé de son nom ; ce fut le directeur du journal
 qui mit la signature anonyme.— Voir Pièces justificatives, page 90.
@@ -1691,8 +1385,6 @@ qui mit la signature anonyme.— Voir Pièces justificatives, page 90.
 (3) Cela résulte de la comparaison de sa lettre avec celle de Bach,
 qui fut écrite en réponse. — Voir Pièces justificatives, page M.
 
-+ Cie eh RE ee
-Paul Dupuy |
 en invoquant leur témoignage. Qu'il en fût l'auteur, :
 personne n'en doutait : lui-même, avant d'écrire, avait
 annoncé son intention à plusieurs de ses camarades.
@@ -1726,10 +1418,6 @@ les élèves des Sciences eux-mêmes; ils en ont pour
 
 ver à une classe de Rhétorique ou de Philosophie..; ils
 
-‘4
-
-LA VIE D'ÉVARISTE GALOIS
-
 en ont pour leur directeur lui-même, dont tout le mérite,
 ‘disent-ils, se réduit à savoir le grec et à avoir fait des
 notes. » Quelques jours après, une lettre, venue évidemment de l'École, priait la Gazette des Écoles d'ajouter à
@@ -1739,7 +1427,6 @@ la révolution et beaucoup moins dociles que leurs
 camarades. L'entente ne pouvait se faire aisément dans
 ce petit monde ainsi divisé. Un texte de lettre à la
 Gazette des Écoles fut proposé, mais ne réunit pas l'unanimité ; beaucoup sans doute refusaient d'agir avant
-M. Guigniault; quatre élèves seulement persistèrent à
 envoyer cette protestation au directeur du journal, qui
 refusa de l'insérer. « Il faut, disait-il, de deux choses
 l'une, ou que la lettre porte toutes les signatures, ou
@@ -1755,7 +1442,6 @@ et ceux de deuxième année Sciences. Les premiers
 avaient signé ce qui suit :
 
 Paris, le 10 décembre 1830
-Monsieur,
 
 Ce n'est pas à nous, élèves résidant encore à l'École
 normale, qu'il appartient de repousser les attaques parties
@@ -1764,7 +1450,6 @@ pas engager ici une longue polémique avec la Gazette des
 Ecoles, ni chercher à réfuter ses injures. Mais nous avons
 été vivement indignés que l'un de nous prétendit se constituer le représentant de toute l'École et aflirmer en notre
 
-Paul Dupuy
 nom des faits que nous attestons être faux ou dénaturés É
 par la manière odieuse dont ils sont présentés. Nous désavouons entièrement l'esprit aussi bien que la forme de la
 lettre écrite dans le numéro de la Gazette des Écoles du ]
@@ -1801,10 +1486,8 @@ tifiques, ses camarades immédiats, sous le prétexte
 inadmissible qu'ils n'avaient pas été témoins des faits,
 se bornaient, sans un mot pour M. Guigniault, à relever
 
-LA VIE D'ÉVARISTE GALOIS
 l'incorrection qu'avait commise Galois en invoquant
 publiquement leur témoignage sans y avoir été autorisé. Le désaccord entre les deux sections est donc
-flagrant.
 
 M. Guigniault voulut absolument faire croire que le
 coupable lui avait été dénoncé par ses camarades. Il le
@@ -1833,7 +1516,6 @@ commune. Le 18, M. Guigniault insiste encore sur l'initiative des élèves dans 
 
 (1) Archives nationales, carton F17, 70355. — Voir Pièces justificatives, page 92.
 
-Paul Dupuy
 s'en étaient chargés et qu'ils avaient pris l'initiative
 pour l'honneur de l'École. Or le rôle de M. Guigniault
 avait été beaucoup plus actif qu'il ne voulait bien le
@@ -1851,7 +1533,6 @@ rapide de la lettre, ilest facile de deviner toute une
 série de négociations qui auraient été inutiles si, dès le
 premier moment, tous les élèves de l'École s'étaient
 unanimement accordés pour désavouer Galois et dé-
-fendre M. Guigniault. Ë
 Il y a enfin, et nous ne pouvons la négliger, la version
 de Galois lui-même sur les conditions dans lesquelles
 il fut exclu de l'École. Elle ne s'accorde pas du tout 3
@@ -1863,12 +1544,8 @@ avait rassemblé tous les élèves, puis, s'adressant à É
 chacun d'eux en particulier, leur avait dit : « Êtes-vous ;
 l'auteur de la lettre écrite dans la Gazette des Écoles? » | 2
 Les quatre premiers avaient répondu négativement; le F
-—— © — Le
 () Cette lettre m'a été communiquée par le fils de cet élève, ;
 normalien lui-même. F
-52 |
-
-LA VIE D'ÉVARISTE GALOIS
 
 cinquième, interrogé de la même manière, dit : « Mon-
 
@@ -1910,8 +1587,6 @@ Il n'appartient ni à vous ni à moi de prononcer définitivement sur le droit q
 que vous ne devez pas souffrir, c'est qu'il vous charge de
 toute la responsabilité de mon exclusion; c'est qu'après les
 
-î
-Paul Dupuy :
 témoignages de confraternité que j'ai reçus de vous à mon :
 départ, il ose déclarer que vous avez pris l'initiative pour 1
 amener mon expulsion.
@@ -1926,9 +1601,6 @@ tions. Faites plus; mes camarades ; je ne vous demande rien
 pour moi! mais parlez pour votre honneur et suivant votre
 conscience. Vous avez décliné la responsabilité que semblait vous imposer l'auteur de la lettre. Démentez maintenant une assertion d'autant plus fâcheuse que votre silence
 soutiendrait la raison du plus fort. Je suis jusqu'à la décision du ministre votre condisciple et, pour la vie, votre dé-
-voué camarade,
-
-E. GaLoirs
 
 Bien entendu cette letire resta sans réponse; mais
 elle est extrêmement précise et écrite sur un ton de vé-
@@ -1939,13 +1611,11 @@ de Galois et n'y faisait pas la plus petite allusion : il le
 présentait à son correspondant comme un mauvais sujet
 s'il en fut, du caractère le plus profondément pervers
 et sournois; il l''accusait de perfidie, d'invectives atroces, |
-d'imputations bassement mensongères ; M. Guigniault
 lui paraissait au contraire l'homme le plus franchement
 libéral qu'il eût jamais connu; mais, ajoutait-il, « que
 j'ai été afiligé, quand ce pauvre insensé, sortant ignominieusement de l'École, est venu nous dire adieu! »
 Galois n'a donc pas quitté l'École comme il eût été
 
-LA VIE D'ÉVARISTE GALOIS
 obligé de le faire, si l'unanimité de ses camarades se
 fût dès le premier moment prononcée contre lui et pour
 son exclusion.
@@ -1976,10 +1646,6 @@ ordinaires risquent aisément de tomber dans l'injustice.
 La vérité, c'est que l'erreur de conduite qui priva
 l'École normale de Galois doit être attribuée avant tout
 
-L
-
-Paul Dupuy E
-
 à des sentiments de droiture intransigeante, exaltés 6
 chez lui par la conscience d'un génie supérieur, auquel +
 avait été refusée la seule récompense qu'il ambitionrât É
@@ -2008,11 +1674,7 @@ nonçait pas du tout à l'enseignement, puisque, dès le
 jeudi 13 janvier, il ouvrit chez Caillot, libraire, rue de
 Sorbonne numéro 5, un cours public d'algèbre supé- à
 
-(1) Revue encyclopédique.
-
 (2) Archives du Ministère de l'Instruction publique.
-
-LA VIE D'ÉVARISTE GALOIS
 
 rieure. « Ce cours, annonçait la Gazette des Écoles, aura
 lieu tous les jeudis à une heure et quart; il est destiné
@@ -2042,8 +1704,6 @@ droit de le porter, s'il n'avait pas été enrôlé régulièrement entre le 9 e
 ne contesta pas du reste qu'il eût appartenu à la garde
 nationale. Or, sur les quatre bataillons de l'artillerie,
 il y en avait deux qui étaient presque entièrement composés d'Amis du peuple, dont les ofliciers étaient tous
-
-Paul Dupuy
 
 les principaux chefs de cette Société républicaine, (1)
 
@@ -2085,11 +1745,9 @@ peuple, disait-il, je donneraisle mien. » (4) Tel était son ;
 (2) Procès du 15 juin. (Gazette des Tribunaux)
 
 (3) Revue encyclopédique. C'est le mémoire publié en 1846 par
-Liouville.
 
 (4) Communiqué par sa famille.
 
-LA VIE D'ÉVARISTE GALOIS
 état d'esprit, lorsque, le 9 mai 1831, il assista au fameux
 banquet des Vendanges de Bourgogne et s'attira par
 un toast régicide sa première poursuite politique.
@@ -2114,14 +1772,11 @@ contre une pareille horreur, (1) qu'Alexandre Dumas et
 quelques autres passaient par la fenêtre dans le jardin
 (1) Gazette des Écoles.
 
-Paul Dupuy
-
 pour ne pas se compromettre, (1) la plupart des assistants acclamèrent Galoïs : on l'imita, en levant les bras
 avec des gestes de menace et en répétant : « À LouisPhilippe! à Louis-Philippe! » Après quoi les plus
 jeunes, s'étant formés en bande, descendirent sur le
 boulevard, le parcoururent en poussant des cris et
 finirent leur soirée en allant danser autour de la co- -
-lonne Vendôme. (2)
 
 C'était la première fois que paraissait publiquement
 la pensée d'un attentat contre le roi. Galois fut arrêté
@@ -2142,17 +1797,9 @@ même sens. Mais ce mensonge pesait à Galois et, le
 15 juin, à l'audience de la cour d'assises, il finit par se
 rétracter publiquement, malgré le témoignage de ses
 
-(1) Alexandre Dumas, Mémoires.
-
 (2) C'est le lendemain que le maréchal Lobau fit jouer les pompes
 au même endroit, sans beaucoup de succès d'ailleurs, l'eau ayant
-manqué.
 
-(3) Revue encyclopédique.
-
-6o ,
-
-LA VIE D'ÉVARISTE GALOIS
 amis et ses propres déclarations dans l'interrogatoire.
 La prévention adoptée contre lui était le délit de provocation, par des discours proférés dans un lieu et
 dans une réunion publics, à un attentat contre la vie et
@@ -2182,10 +1829,7 @@ serment et ne s'était fait infliger une amende. Il fut
 _ bien établi que Galois n'était pas, comme il l'avait
 écrit à Chevalier, privé de raison par les fumées du
 > Gr
-1 e
-4%
 
-Paul Dupuy
 vin; il n'y avait eu qu'une seule bouteille de vin devant
 chaque convive, et la plupart n'avaient pas été vidées;
 de liqueur Galois n'en avait pas bu, par la bonne raison
@@ -2217,8 +1861,6 @@ surtout depuis que les juges qui, sous Charles X, nous
 poursuivaient pour avoir dit qu'un roi pouvait faillir, |
 ont prêté serment à un autre roi placé sur le trône par
 suite de la sottise du roi déchu. » Il se mit alors, dit la
-
-LA VIE D'ÉVARISTE GALOIS
 
 Gazette des Tribunaux, à lire un discours extraordinairement exalté : il dit qu'il était de ceux qui, depuis
 plusieurs mois, avaient parcouru plusieurs fois les rues
@@ -2252,9 +1894,6 @@ ferma, le mit dans sa poche, et sortit sans mot dire. (1)
 le parti républicain avait préparé une manifestation :
 plusieurs arbres de la liberté devaient être plantés, un
 
-(1) Alexandre Dumas, Mémoires.
-
-Paul Dupuy |
 entre autres sur la place de Grève. On comptait que le
 gouvernement n'oserait pas interdire cette commémoration; mais le préfet de police déclara la veille qu'il
 la considérerait comme séditieuse et s'y opposerait. |
@@ -2287,7 +1926,6 @@ allonger démesurément la détention. Tous deux avaient
 été conduits d'abord du poste de la place Dauphine au
 dépôt de la préfecture de police, et là, Duchâtelet avait
 
-LA VIE D'ÉVARISTE GALOIS
 eu la fâcheuse idée de crayonner sur les murs de sa
 chambre la tête du roi à côté d'une guillotine et, audessous, cette inscription : Philippe portera sa tête sur
 ton autel, 6 Liberté! On en profita pour le poursuivre
@@ -2313,13 +1951,9 @@ qu'ayant appartenu avant le premier janvier à l'ancienne artillerie de la garde
 le droit d'en porter encore l'uniforme, comme l'avaient
 fait d'ailleurs beaucoup de leurs amis sans être in-
 
-65 zv:
-
-Paul Dupuy
 quiétés. On leur fit voir qu'ils s'étaient trompés, mais
 inégalement, paraît-il, puisque Duchâtelet en fut quitte
 pour trois mois de prison, tandis que Galois en eut le
-double. (1)
 
 Si l'on en croit un passage du journal de sa sœur,
 madame Chantelot, (2) cette condamnation surprit profondément Galois. Il ne pouvait se figurer que sa longue
@@ -2347,9 +1981,6 @@ s'il avait cinquante ans. »
 (1) Gazette des Tribunaux.
 
 (2) Communiqué par madame Guinard, sa fille.
-
-Pc NS
-LA VIE D'ÉVARISTE GALOIS
 
 Sauf huit jours de transfert à la Force, (1) dont j'ignore le motif, Galois fit toute sa prévention et toute sa
 peine à Sainte-Pélagie jusqu'au 19 mars 1832, jour où il
@@ -2380,7 +2011,6 @@ bottes. Ils voulurent que Galois bût avec eux. Raspail
 
 (2) La plupart des détails donnés sur le séjour de Galois à SainteEee sont tirés des Lettres sur les prisons de Paris de F.-V. Ras-
 
-Paul Dupuy |
 s'en indignait. « Cette cantine-là, écrit-il dans ses
 Lettres sur les prisons de Paris, fait mon désespoir:
 nos soiffeurs finissent par y entraîner tout ce que nous |
@@ -2415,7 +2045,6 @@ Zanetto-Galois travaillait en arpentant la cour, pensif
 etrèveur, sobre comme un homme qui ne tient à la
 terre que par le corps, et qui ne vit que par la pensée.
 
-LA VIE D'ÉVARISTE GALOIS
 Les bravaches d'estaminet lui crièrent de la fenêtre :
 « Eh! notre vieillard de vingt ans, vous n'avez pas
 seulement la force de boire, vous avez peur de la boisson. » Il monta pour marcher droit vers le danger, vida
@@ -2442,8 +2071,6 @@ fut l'ivresse violente. Il fallut remonter Galois dans la
 chambrée et l'étendre sur un lit ; des mouvements tétaniques le secouaient : il se relevait, retombait sans connaissance, se relevait encore avec une nouvelle exaltation et « prophétisait des choses sublimes, qu'une
 réticence rendait souvent ridicules ». Il se serait tué, si
 l'on ne s'était pas jeté sur lui. Enfin il s'endormit.
-
-Paul Dupuy
 
 Rien n'est plus navrant que ce récit de Raspail, bien :
 qu'il semble avoir été arrangé après coup, en vue de la
@@ -2479,13 +2106,11 @@ les chambrées : chacun avait emporté dans son cœur
 une émotion qui l'élevait au-dessus de lui-même, et
 effaçait ou faisait oublier jusqu'au lendemain les
 
-LA VIE D'ÉVARISTE GALOIS
 misères et les hontes de la prison. Ce devait être pour
 Galois un énergique stimulant moral, en harmonie avec
 l'enthousiasme naturel de son âme, avec ce penchant
 au sacrifice de soi-même, qui n'est jamais plus fort que
 vers la vingtième année, et qui l'était chez lui à un si
-haut degré.
 Un soir, la scène grandiose eut une fin terrible pour
 . lui. Il était à peine arrivé depuis une semaine à SaintePélagie, lorsqu'on y célébra par une messe solennelle
 l'anniversaire des journées de Juillet. Les prisonniers,
@@ -2511,11 +2136,9 @@ les prisonniers l'apprirent le lendemain matin, ils se
 révoltèrent et, avec l'aide des mômes, se rendirent
 maîtres de la prison jusqu'au soir : il fallut bloquer
 
-- Paul Dupuy 7
 Sainte-Pélagie avec de la troupe et, pour ramener l'ordre
 sans effusion de sang, promettre que Galois serait
 retiré de son cachot. La seule punition fut le départ des
-enfants.
 
 Au moment où se passa cette scène, Galois n'était pas
 encore connu du personnel de la prison: c'était avant
@@ -2544,7 +2167,6 @@ le service du cirage des bottes. (1) Chevalier essayait
 
 () Journal de Paris.
 
-LA VIE D'ÉVARISTE GALOIS
 sans doute d'attirer Galois dans la retraite où lui-même
 goûtait la paix du cœur ; il en recevait des réponses
 comme cette lettre navrante datée du 25 mai:
@@ -2574,7 +2196,6 @@ A part cela, je serais des vôtres.
 
 Mais laissons cela; il y a des êtres destinés peut-être à
 faire le bien, mais à l'éprouver, jamais. Je crois être du
-nombre.
 
 Tu me dis que ceux qui m'aiment doivent m'aider à
 
@@ -2583,7 +2204,6 @@ m'aiment sont, comme tu le sais, bien rares. Cela veut
 dire, de ta part, que tu te crois, quant à toi, obligé à faire de
 ton mieux pour me convertir. Mais il est de mon devoir de
 te prévenir, comme je l'ai fait cent fois, de la vanité de tes
-efforts.
 
 J'aime à douter de ta cruelle prophétie quand tu me dis
 que je ne travaillerai plus. Maïs j'avoue qu'elle n'est pas
@@ -2593,9 +2213,6 @@ tête; je n'ajoute pas comme toi : « C'est bien dommage. »
 
 Pardon, pauvre Auguste, si j'ai blessé ta susceptibilité
 
-y
-
-Paul Dupuy
 filiale en te parlant lestement de l'homme à qui tu t'es
 dévoué. (1) Mes traits contre lui ne sont pas bien acérés,
 et mon rire n'a rien d'amer. C'est beaucoup de ma part,
@@ -2606,8 +2223,6 @@ verrons souvent pendant la première quinzaine de juin. Je
 partirai vers le 15 pour le Dauphiné.
 
 Tout à toi.
-
-E. GaLois
 
 En relisant ta lettre, je remarque une phrase où tu
 m'accuses d'être enivré par la fange putréfiée d'un monde
@@ -2631,13 +2246,9 @@ du tout conciliable avec celle que Raspail indique par
 quelques mots rapides: « Je n'aime pas les femmes, et
 il me semble que je ne pourrais aimer qu'une Tarpéia
 ou une Gracque, et, vous l'entendrez dire, je mourrai
-ET |
 
 () Sans doute le père Enfantin. |
 
-(2) Revue encyclopédique.
-
-LA VIE D'ÉVARISTE GALOIS
 en duel, à l'occasion de quelque coquette de bas étage;
 pourquoi pas? puisqu'elle m'invitera à venger son
 honneur qu'un autre aura compromis. » Raspail devait,
@@ -2669,7 +2280,6 @@ les dupes d'une infâme coquette : ils étaient de bonne
 foi. Alexandre Dumas, dans ses Mémoires, dit expres-
 (1) Né le 17 décembre 1814. (Archives du Bourg-la-Reine)
 
-Paul Dupuy :
 sément que l'un d'eux était Pécheux d'Herbinville, Pun
 des acquittés du procès des Dix-neuf, et que c'est lui
 qui blessa Galois. Or Pécheux n'était certainement pas
@@ -2689,7 +2299,6 @@ mère de Galois. Peut-être les témoins étaient-ils partis
 . à la recherche d'une voiture ou d'un médecin, lorsque
 Galoïs fut trouvé par un paysan, qui passait avec sa
 charrette auprès de l'étang de la Glacière, sur leterritoire de Gentilly, et amené par cet homme à l'hôpital
-Cochin.
 
 C'est d'ailleurs au témoignage de Galois lui-même
 
@@ -2702,15 +2311,12 @@ sement par écrit les résultats de ses recherches auxquels %
 il tenait le plus, griffonnant sans cesse en marge : « Je à
 n'ai pas le temps, je n'ai pas le temps », et, aprèsavoir
 ainsi rédigé son testament scientifique, écrivit aux
-76 À
 
 le
 
-LA VIE D'ÉVARISTE GALOIS
 patriotes républicains et à deux de ses amis les belles
 lettres (1) que voici :
 Lettre à tous les républicains
-29 mai 1832 2
 
 Je prie les patriotes mes amis de ne pas me reprocher
 de mourir autrement que pour le pays.
@@ -2723,7 +2329,6 @@ quelque chose d'aussi méprisable !
 
 Je prends le ciel à témoin que c'est contraint et forcé que
 j'ai cédé à une provocation que j'ai conjurée par tous les
-moyens. ;
 
 Je me repens d'avoir dit une vérité funeste à des hommes
 si peu en état de l'entendre de sang-froid. Mais enfin j'ai
@@ -2734,9 +2339,6 @@ Adieu ! j'avais bien de la vie pour le bien public.
 
 Pardon pour ceux qui m'ont tué, ils sont de bonne foi.
 
-E. GaLois
-Lettre à N. L... et à V. D... (2)
-Paris, 29 mai 1832
 Mes bons amis,
 
 J'ai été provoqué par deux patriotes... il m'a été impossible de refuser.
@@ -2751,22 +2353,15 @@ Votre tâche est bien simple : prouver que je me suis
 
 (1) Publiées par Chevalier, dans la Revue encyclopédique.
 
-(2) Peut-être Duchâtelet.
-
-Paul Dupuy
 battu malgré moi, c'est-à-dire après avoir épuisé toutmoyen
 d'accommodement, et dire si je suis capable de mentir, de
 mentir même pour un si petit objet que celui dont il
-s'agissait. |
 
 Gardez mon souvenir, puisque le sort ne m'a pas donné
 assez de vie pour que la patrie sache mon nom. |
 Je meurs votre ami,
-E. GaLois
 Et au bas de cette dernière lettré, résumant sa propre |
 destinée, telle qu'il la voyait alors clairement, ces mots :
-Nitens lux, horrenda procella, tenebris aeternis invo- |
-luta. (1)
 Le duel eut lieu le 30 au matin, de très bonne heure,
 près de l'étang de la Glacière, sur le territoire de Gentilly. La balle qui atteignit Galois avait, d'après l'au- :
 topsie, été tirée à vingt-cinq pas ; elle entra dans le
@@ -2784,11 +2379,7 @@ dit-il, j'ai besoin de tout mon courage pour mourirà M
 (2) La Tribune. Registre d'entrées de l'hôpital Cochin. — La note
 de Flaugergues, dans le Magasin pittoresque, dit qu'il fut relevé par "
 un ancien officier. La version que je reproduis est celle que m'a É
-communiquée M. Gabriel Demante. Ÿ
-78 ÿ
 
-DRAUET TZ - Pré 0 ù
-LA VIE D'ÉVARISTE GALOIS
 vingt ans. » (1) En pleine connaissance, il refusa l'assistance d'un prêtre. (2) Vers le soir la péritonite inévitable se déclara et l''emporta en douze heures : il rendit
 le dernier soupir le 31 mai à dix heures du matin. (3)
 La Tribune annonça son enterrement en ces termes :
@@ -2818,7 +2409,6 @@ le corbillard fut arrivé à la barrière; comme autrefois
 . (2) Communiqué par M. l'abbé Demante.
 (3) Registre de décès de l'hôpital Cochin.
 
-Paul Dupuy 4
 le corps de son père sur la route de Bagneux au Bourg- …
 la-Reïine, celui d'Évariste fut porté par les bras de ses …
 amis jusqu'au bord de la fosse. Plusieurs discours
@@ -2843,15 +2433,11 @@ bien lui-même, lui qui écrivait au milieu de ses calculs:
 L'éternel cyprès m'environne: À
 Plus pâle que la pâle automne, Ex
 Je m'incline vers le tombeau. (3) 4
-eee à
-L
 () National et Tribune du 3 juin. La mort et les obsèques du
 général Lamarque, en absorbant l'attention de toute la presse, ont
 empêché les journaux de donner aucun renseignement détaillé sur
 la mort et les obsèques de Galois.
 (2) Registre d'inhumations du Cimetière du sud.
-(3) Revue encyclopédique. à
-80 |
 
 | LA VIE D'ÉVARISTE GALOIS
 Du moins le tombeau ne l'a-t-il pas pris tout entier;
@@ -2879,28 +2465,8 @@ rable, et de dresser enfin, à côté de ce nom qui ne
 représentait que des idées, la figure vivante d'un
 homme.
 
-À Pauz Duruy
 () Communiqué par M. Gabriel Demante.
-. V.
 
-l'LÉiP EVE Ci Le SUR EL PAS Re ES PR PE DE ET ë
-ï MEL à à Mer: :
-Jui ; F 1) SITE
-SEE f LSEE RAPIE +3 LR
-é ‘ LAN: re
-4 CURRENT, -
-Rot : , È 1 TE LA Sol "
-; 14 LT F
-"L 1 SCT OR EN RENE
-9 de " LYON
-MARTEL LEE © |
-ÉUMPRT 4 PRESSE k:.à
-“SSEER | * 11 Ÿ 9 CC ENUSENE
-RS 4 "us 4 (pate Li ! HOTTES :
-
-PIÈCES JUSTIFICATIVES
-I
-ACTE DE NAISSANCE D'ÉVARISTE GALOIS
 (Archives du Bourg-la-Reine)
 
 L'an mil huit cent onze, le vingt-six octobre, une heure
@@ -2917,15 +2483,8 @@ M. Thomas-François Demante, président du Tribunal civil
 séant à Louviers, département de l'Eure, âgé de cinquanteneuf ans, grand-père maternel de l'enfant, et de M. PierreAmbroise Gandu, maître d'écriture, âgé de cinquante-trois
 ans, demeurant en cette commune, et ont les père et
 témoins signé avec nous, maire, le présent acte de naissance
-après lecture faite.
 
-Ganpu, G. GALOIS, DEMANTE, LAVISÉ
-jui
-Lerrre DE M. LABORIE, PROVISEUR DU COLLÈGE LOUIS-LEGRAND, AU PÈRE DE GALOIS
 Archives du lycée Louis-le-Grand, registre de
-correspondance, 1, numéro 856
-; 21 août 1826
-Monsieur,
 
 L'intelligence, l'esprit peuvent suppléer au travail, mais
 
@@ -2948,45 +2507,22 @@ ne doute pas que son travail ne doive être soutenu, s'il veut
 se maintenir au premier rang. J'espère que, privé de
 nominations au Concours général et au lycée, il ouvrira \
 les yeux sur ses véritables intérêts. \
-- LABORIE 4
-II
-NOTES TRIMESTRIELLES DE GALOIS, AU COLLÈGE È
-; Louis-LE-GRAND, DE 1826 A 1829 û
 
 (Archives du lycée Louis-le-Grand) f
-Q
-186-1827. RHÉTORIQUE, puis SECONDE ET MATHÉMA- M
-« TIQUES PREPARATOIRES - 4
-PREMIER TRIMESTRE D.
 Notes d'étude. — Devoirs religieux. . Bien. M
-Conduite . . .... Bonne. 4
-Dispositions. . , . . Heureuses. à
-Travail, : . -. WSoutent: 14e
-Progrès, . . .. . . Sensibles. ‘#4
-Caractère. , . . . . Bon,maissingulier. à
 Cet élève, quoiqu'un peu bizarre dans ses manières, est
 très doux, et paraît rempli d'innocence et de bonnes
 84 - 110
-F:
-nee
 
-PIÈCES JUSTIFICATIVES
 qualités. J'ai eu l'occasion de m'apercevoir que l'ambition
 d'obtenir de bonnes places le guidait beaucoup plus que le
 désir de faire un bon devoir pour plaire à ses maîtres.
-Rhétorique
 Notes de M. Camus. — Conduite. . Dissipée.
-Travail. . . Médiocre.
 Notes de M. Desforges. — Conduite. . Bien.
 Travail. .. A du zèle.
 C'est un esprit bien jeune pour profiter beaucoup en
-Rhétorique.
-DEUXIÈME TRIMESTRE
 Notes d'étude. — Devoirs religieux. . Bien.
 Conduite . . . . . . Assez bien.
-Travail. . . . . . . Satisfaisant.
-Dispositions . . . . Heureuses.
-Progrès. . . . . . . Assez sensibles.
 Caractère. . . . . . Original et bizarre.
 Cet élève, qui travaille bien la généralité de ses devoirs,
 et quelques-uns avec ardeur et goût, se rebute facilement
@@ -2996,22 +2532,12 @@ tout ou il la sait bien. Quant à ses qualités personnelles,
 elles sont bien difliciles à définir. Il n'est pas méchant,
 mais frondeur, singulier, bavard, aime à contrarier et à
 taquiner ses camarades.
-Seconde
 Note de M. Saint-Marc-Girardin. — Son travail n'est pas
 assez régulier ; sa conduite est passable.
-Re Mathématiques préparatoires
 Note de M. Vernier. — Zèle et succès.
 
-2 SR:
 la vie d''Épariste Galois is
-TROISIÈME TRIMESTRE s L:
-à
 Notes d'étude. — Devoirs religieux. . . Bien. À:
-Conduite . . . . . . . Passable. à
-Travail... . . . . . Inconstant. 1%
-Dispositions. . . , . . Heureuses. 4
-Progrès. . . . . . . . Peu satisfaisants.
-Caractère, . . . . . . Cachéet original. À
 Cet élève, sauf depuis quinze jours à peu près qu'il tra- 4
 vaille un peu, n'a cultivé les facultés de sa classe que par 3
 la crainte de pensum, et par suite'à coups de punitions; à
@@ -3020,13 +2546,7 @@ nière partie de ses devoirs, et tantôt il les brochaït, et pour |
 quelques narrations latines, il ne faisait que transcrire
 la matière. Son ambition, son originalité souvent affectée, |
 et la bizarrerie de son caractère le séparent de ses cama- g
-rades.
 Pour le troisième trimestre, les autres notes man- 1
-quent. $
-1827-1858. RHÉTORIQUE ET MATHÉMATIQUES
-PRÉPARATOIRES 14
-PREMIER TRIMESTRE 4
-Note d'étude. — Conduite assez bonne. Quelques étour- 4
 deries. Caractère dont je ne me flatte pas de saisir tous les F +
 traits; mais j'y vois dominer un grand amour-propre. Je É à
 ne lui crois pas d'inclination vicieuse. Ses moyens me pa- ‘4
@@ -3040,9 +2560,6 @@ dessus une distribution de temps. Nous verrons s'il se tient #
 à lui-même sa propre parole. Il ne paraît pas manquer de *
 sentiments religieux. La santé est bonne, mais délicate. ft
 
-4 PIÈCES JUSTIFICATIVES
-Rhétorique
-
 Note de M. Pierrot. — Travaille peu pour moi, il cause
 souvent. Sa facilité à laquelle il faut croire, quoique je n'en
 aie encore eu aucune preuve, ne le conduira à rien : il
@@ -3051,11 +2568,8 @@ n'y a trace, dans ses devoirs, que de bizarrerie et de négligence.
 Note de M. Desforges. — Toujours occupé de ce qu'il ne
 faut pas faire. Baisse chaque jour.
 
-Mathématiques préparatoires
 Note de M. Vernier. — Zèle et progrès très marqués.
-DEUXIÈME TRIMESTRE
 
-Note d'étude. — Conduite fort mauvaise, caractère peu
 ouvert. Il vise à l'originalité. Ses moyens sont distingués,
 mais il ne veut pas les employer à la Rhétorique. Il ne fait
 absolument rien pour la classe. C'est la fureur des mathé-
@@ -3074,13 +2588,10 @@ Note de M. Desforges. — Dissipé, causeur. A, je crois,
 pris à tâche de me fatiguer, et serait d'un fort mauvais
 exemple s'il avait quelque influence sur ses camarades.
 
-Mathématiques préparatoires
 * Note de M. Vernier. — Intelligence, progrès marqués. Pas
 assez de méthode.
 
 la vie d'Épariste Galois Mt
-TROISIÈME TRIMESTRE . 1
-Note d'étude. — Conduite mauvaise, caractère difficile à Ÿ
 définir. Il vise à l'originalité. Ses moyens sont très distin- f.
 gués; il aurait pu très bien faire en Rhétorique s'il avait ie
 voulu travailler, mais, dominé par sa passion des mathé- 3
@@ -3088,39 +2599,24 @@ matiques, il a totalement négligé tout lereste. Aussi n'a-t-il 4
 fait aucun progrès. Je ne crois pas qu'il soit dépourvu de 4
 sentiments religieux. Sa tenue à la chapelle n'est pas tou- f
 jours exempte de reproches. Sa santé est bonne. b
-Rhétorique
 Note de M. Pierrot. — S'est assez bien conduit, mais a
-peu travaillé : va mieux depuis quelques jours. 3
 Note de M. Desforges. — Paraît affecter de faire autre \
 chose que ce qu'il faudrait faire. C'est dans cette intention L
 sans doute qu'il bavarde si souvent. Il proteste contre le 4
-silence. |
-Mathématiques préparatoires |
 Note de M. Vernier. — Des dispositions. Succès qui serait À |
 plus grand si cet élève travaillait avec plus de méthode. à
-1828-1829. MATHÉMATIQUES SPÉCIALES #4
 1 PREMIER TRIMESTRE de :
-+
 : Note d'étude. — Conduite inégale et méritant souvent des ‘1
 reproches; il a travaillé avec ardeur, ses moyens sont sur- F
 prenants, ses progrès rapides. Son caractère est très iné- 24
 gal : tantôt doux el raisonnable, il est quelquefois fort hi
 désagréable. Il se tient passablement pendant les exercices :)
 religieux. Depuis quelque temps il a mal aux oreilles. : D:
-À La
-Mathématiques É fi
-Yo
 Note de M. Richard. — Cet élève a une supériorité mar- be
 quée sur tous ses condisciples. È #7
-88 ;
-À
 
-PIÈCES JUSTIFICATIVES
-Chimie
 Note de M. Thillaye. — Distrait, travail faible.
-Physique ;
 Note de M. Thillaye. — Distraction; travail : néant.
-DEUXIÈME TRIMESTRE ;
 Note d'étude. — Se conduit généralement bien; cependant parfois sa conduite est répréhensible; il travaille
 beaucoup et est doué de grands moyens et d'une facilité
 étonnante. Ses progrès répondent à son travail et à sa
@@ -3128,46 +2624,26 @@ facilité. I1 a de la bizarrerie dans le caractère, il est quel- ‘
 quefois très léger et souvent aussi paraît raisonnable. Il se f 1
 tient assez bien pendant les exercices religieux. Sa santé
 est bonne.
-Mathématiques
 Note de M. Richard. — Cet élève ne travaille qu'aux
 parties supérieures des mathématiques.
-:
-Physique
 Note de M. Thillaye. — Conduite passable, travail nul.
-Chimie
 Note de M. Thillaye. — Conduite passable, travail nul.
-TROISIÈME TRIMESTRE
 Note d'étude. — Se conduit assez bien par intervalles, et
 de temps à autre se conduit aussi fort mal.Ses dispositions ,
 pour les sciences sont connues. Lorsqu'il est à son travail, 1/4
 s il s'en occupe exclusivement, et il perd rarement son temps.
 Ses progrès sont proportionnés à l'étendue de ses moyens
 
-+ & (Sir. UE:
-y Le 4: (Oo
-AT ‘4 r@
 la vie d'Évariste Galois LE
 et à son goût pour les sciences. Son caractère est bizarre, * A
 et il affecte plus de bizarrerie qu'il n'en a réellement. Sa ‘1
 tenue dans les exercices religieux n'est pas toujours aussi ;
 bonne qu'on pourrait le désirer. Sa santé est bonne. : ‘%
-L
-Mathématiques 1
 Note de M. Richard. — Conduite bonne, travail satisfai- 1
-sant. :
-Physique R
 Note de M. Thillaye. — Fort distrait, travail nul. L
-Chimie |
 Note de M. Thillaye. — Fort distrait, travail nul. 1
-IV À
-(4
-w (
-ARTICLE DE LA ( GAZETTE DES ÉCOLES » DU 5 DÉCEMBRE 1830, 1
-DANS LEQUEL SE TROUVE INSÉRÉE LA LETTRE DE GALOIS QUI 4
-MOTIVA SON RENVOI DE L'ÉCOLE NORMALE. Ÿ
 
 Réplique à M. Guigniault et au Lycée 204
-HARAS 29e el RENE ‘4
 Maintenant expliquons-nous nettement sur la mauvaise 100
 humeur de M. Guigniault à notre égard. ‘4
 Décidément, M. Guigniault est piqué que nous l'ayons 24
@@ -3179,11 +2655,8 @@ permettrons plus à son égard cet accompagnement de per- 4
 sonnalités grossières dont la pudeur publique a déjà fait +4
 maintes fois justice; nous comprenons parfaitement que 4
 les personnalités paraîtront toujours très grossières aux à
-90 É:
-‘4
 
 1. LIT LI je nt APRES EEE à CN 4° di * A 1, Le
-PIÈCES JUSTIFICATIVES
 
 gens qui veulent faire tranquillement leur chemin et sans
 qu'on les observe; à l'avenir, si nous voyons quelques
@@ -3223,17 +2696,11 @@ de l'École normale en avait mis tous les élèves à la disposition du gouverne
 (1) Voir le texte de la lettre de Galois, page 46.
 
 la vie d'Épariste Galois :
-V à
-LETTRES DE M. GUIGNIAULT AU MINISTRE SUR L'EXPULSION h
-DE GALOIS 4
-(Archives nationales, carton F17, 50355)
-— I — 4
 Monsieur le Ministre, 1 Ë
 
 C'est avec une profonde douleur que je me vois forcé de
 vous rendre compte à l'instant d'un acte qu'il m'a fallu 1
 prendre sur ma responsabilité et dont j'invoque la ratifica- 4
-tion immédiate.
 
 Je viens de renvoyer de l'École normale et de faire con- |
 duire chez madame sa mère l'élève Galois, pour le fait è
@@ -3261,16 +2728,11 @@ désigné par tous les indices comme l'auteur de la lettre, à
 j'ai pensé qu'il ne convenait pas de laisser plus longtemps 5
 l'École entière sous le poids de la faute d'un seul et que, le ‘4
 
-+
-92 à
-
-PIÈCES JUSTIFICATIVES
 coupable reconnu, lui et moi ne pouvions, dès cet instant,
 demeurer ensemble dans la maison. Je l'ai donc expulsé à
 mes risques et périls, et j'ai fait tardivement, en cela, ce
 que vingt fois j'avais été tenté de faire, dans le cours de
 l'année dernière, et même depuis le commencement de
-celle-ci.
 
 Galois, en effet, est le seul élève contre lequel j'aie eu,
 depuis son entrée à l'École, des sujets de plainte presque
@@ -3326,7 +2788,6 @@ de nos meilleurs élèves placés cette année.., jeune homme
 aussi distingué par le caractère que par le talent, et qui
 mérita d'être quelquefois le dépositaire de mes plus secrètes
 pensées, durant les temps difficiles que nous avons parcourus ensemble ».
-LETTRE DE BACH à
 . Tous mes anciens camarades savent comme moi que à
 l'inébranlable fermeté de M. Guigniault a seule soutenu
 l'École dans des temps bien difficiles; ils savent tous que ;
@@ -3342,7 +2803,6 @@ parmi les anciens, tantôt parmi les nouveaux; il nous dit :
 qu'une lutte longue et terrible allait s'engager entre le pays
 et le gouvernement; que, quel que fùt le sort de l'École,
 
-PIÈCES JUSTIFICATIVES
 notre place dans cette lutte était marquée, que nous devions
 nous dévouer au triomphe des opinions libérales, ete. Ilne
 pouvait point prévoir alors que dans trois jours le peuple
@@ -3383,19 +2843,13 @@ dans les Journées. J'étais du nombre de ces élèves. Nous
 nous rendîmes chez le Directeur, qui devait assister avec
 nous au convoi; nous avions tous pris les couleurs nationales; seul, il n'avait point de cocarde : « Messieurs, nous
 
-9ù
-
 ne
 la vie d''Épariste Galois RATER
 dit-il, vous m'avez devancé, mais il y a longtemps que nous
 la portions dans notre cœur; on peut la porter là aussi. » ;
 Nous savions tous qu'il disait vrai...
-VI
-EXTRAIT D''UNE LETTRE D'UN GAMARADE DE GALOIS RELATIVE ;
-A SON EXPULSION
 (Communiquée par le fils de cet élève, M. L., normalien
 lui-même)
-École normale, 11 décembre 1830
 Mon cher Prosper,
 Des événements d'un caractère très grave se sont passés }
 à l'École depuis que je ne t'ai vu; et je vais Ven parler, |
@@ -3421,7 +2875,6 @@ se réunit et l'on convint de le démentir publiquement par D
 la voie du même journal qui avait eu l'impudeur d'ac- î
 cueillir ses pitoyables calomnies. Nous envoyämes donc à à
 
-PIÈCES JUSTIFICATIVES
 M. Guyard une lettre justificative signée de tous les élèves
 alors présents à l'École. Le sieur Guyard ne voulut pas
 insérer la lettre sous prétexte que certains élèves avaient
@@ -3442,13 +2895,6 @@ dans l'affaire. J'ai été indigné de voir un perfide vouloir ÿ
 faire prendre pour un jésuite l'homme le plus franchement libéral que je connaisse; mais aussi, que j'ai été
 affligé quand ce pauvre insensé, sortant ignominieusement
 de l'École, est venu nous dire adieu...
-VI
-
-ARRÊTÉ D'EXPULSION DE GALOIS, RELEVÉ SUR LES REGISTRES
-
-DU CONSEIL ROYAL DE L'INSTRUCTION PUBLIQUE, 4 JAN-
-
-VIER 1831.
 
 (Archives du Ministère de l'Instruction publique) ”
 
@@ -3457,16 +2903,10 @@ Sur le rapport de M, le conseiller Cousin,
 Vu le rapport de M. Guigniault, directeur de l'École normale, relatif au renvoi provisoire de Galois et les motifs à
 l'appui,
 
-Arrêté :
 Galois quittera immédiatement l'École normale.
 Il sera statué ultérieurement sur sa destination.
 
-, VI
-
 la vie d'Évariste Galois
-VII
-DERNIER ÉCROU DE GALOIS A SAINTE-PÉLAGIE
-Numéro 15438 Gallois {sic} Évariste
 Écroué le 17 décembre 1831.
 Condamné le 3 décembre 1831
 par la Cour royale,
@@ -3477,15 +2917,6 @@ Profession de répétiteur.
 Né au Bourg-la-Reine, département de Seine-et-Oise /sic); |
 demeurant lors de son arrestation à Paris, rue des Bernardins numéro 16. |
 Amené de la Conciergerie.
-Signalement : |
-j Taille dé 2 172 ONCE GTICERMERERES 1
-Chévens 12250000 0 S'EMORENRMEnE
-SORECIIS.. US COTE id.
-BroDt.. &:. 22 JUNE RARES cent 3
-MERE Le EME ID ETC
-INEBE Li, - NÉE ERP NNEENE
-Bonche LORIE EN EE Re |
-Mention: : . .-. 1e Nero
 DAnbe ie. > ONE NPA NE
 L'an mil huit cent trente-deux, le 22 janvier, le dénommé 1
 en l'écrou ci-contre a été transféré à la Force, par ordre
@@ -3493,10 +2924,6 @@ de M. le Préfet de police.
 Réintégré le 31 janvier 1832. É 1
 Transféré à la maison de santé du sieur Faultrier, rue de 4
 l'Oursine numéro 86, le 16 mars 1832.
-Signé : AFFROY F
-98 j
-
-PIÈCES JUSTIFICATIVES
 
 Sur l'appel interjeté par le nommé Gallois Évariste, âgé
 de 20 ans, né à Bourg-la-Reine, répétiteur, demeurant rue
@@ -3511,12 +2938,8 @@ Pour extrait conforme délivré à M. le Procureur général
 ce requérant.
 
 Le greffier en chef,
-: Lor
-IX
-ACTE DE DÉCÈS DE GALOIS
 (Archives de la Préfecture de la Seine. — Reconstitution
 des actes de l'Etat-civil)
-RECONSTITUTION DES ACTES DE L'ÉTAT-CIVIL DE PARIS
 
 Expédition délivrée sur papier libre, en exécution de la loi du 12 fé-
 
@@ -3534,21 +2957,14 @@ mairie du premier juin 1832, à midi. Acte de décès d'Évariste Galois, décé
 Bourg-la-Reine (Seine), célibataire, fils de feu NicolasGabriel Galois et d'Adélaïde-Marie Demante. Sur la déclaration de Paul Sylvestre, âgé de 38 ans, et de Charles
 Chapais, âgé de 26 ans, employés audit hôpital, y demeurant, lesquels ont signé par devant nous, maire du
 
-Eds Vis d LITRES PUITS LEROUX NEO FN Mars BA à 160
 la vie d'Évariste Galois RE le
 douzième arrondissement de Paris, lecture faite dudit acte. :
 — Signé : Sylvestre, Chapais et Auguste Salleron, maire. +11
 Pour copie conforme, Paris, le 29 mars 1848.
 Le Maire du douzième arrondissement, |
-Signé : GORISET |
 
 Expédié et collationné :
-BOURNET DE VERRON |
-b.€ 4
-PROCÈS-VERBAL DE L'AUTOPSIE DE GALOIS
 (Gazette des Hôpitaux du 7 juin 1832)
-
-Hôpital Cochin
 
 Le jeune Galois Évariste, âgé de 21 ans, bon mathématicien, connu surtout par son imagination ardente, vient
 de succomber en 12 heures à une péritonite suraigué,
@@ -3573,10 +2989,6 @@ Enlevée circulairement, la voûte du crâne présente en |
 avant les parois opposées des sinus frontaux très rappro- %
 chées ; l'espace laissé libre n'a pas deux lignes d'épaisseur ; J
 
-$
-100 ‘4
-
-PIÈCES JUSTIFICATIVES
 au milieu de la voûte, deux enfoncements correspondent ‘
 aux bases décrites plus haut. A la base du crâne, les fosses
 antérieures avancent beaucoup aux dépens de l'atrophie
@@ -3590,10 +3002,8 @@ des éminences correspondent aux cavités du crâne ; une en
 avant de chaque lobe antérieur, deux au sommet de la face
 supérieure ; la substance cérébrale est molle généralement ; ;
 les cavités ventriculaires sont petites, vides de sérosité ; la
-glande pinéale volumineuse contient quelques granulations
 grises ; le cervelet est petit; le poids du cerveau et du
 cervelet réunis est de trois livres, deux onces, moins un
-gros.
 
 Galois, placé de profil, a reçu la balle à un pouce en
 dedans de l'épine antérieure et supérieure de l'os des îles
@@ -3615,27 +3025,6 @@ Six onces de sang étaient épanchées dans le petit bassin,
 des adhérences unissaient déjà les intestins au péritoine
 qui était pointillé de rouge.
 
-VI.
-
-RS. qi S + p” P: A
-re RES DÉS SRE TENNL ES Rae Mrs ::
-Los : He x : VS ENS ae? $
-1 se LITTLE ER
-< sh ‘À 1 és ÈS 5e
-Rte « À WF Pise
-ve : ” Le SE
 > ER ds
-ire b RE to nr
-L # x Da on.
-F ñ ES A1 SE
-Vs 22. el FS SUEES DOCS
-PR ee T
 
-à EURE
-ed S Aer RES
-
-58 ° FT AMP
-, de MR #
 de s EEE
-* à . TEE
-RTE

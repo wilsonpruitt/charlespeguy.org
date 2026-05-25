@@ -7,97 +7,44 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 15121
 ---
-
-JÉROME ET JEAN THARAUD
-Dingley
-L'ILLUSTRE ÉCRIVAIN
-CAHIERS DE LA QUINZAINE
 ; paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Les Cahiers publieront des mêmes auteurs
-L'ANAON
 
-NRA A CUT ns 0 LG CESSER
-
-8 L r È °
-0 ee 111 TE ARCS
 A AR EN 8 0 ce ns FAC
-es NEA : Hem PEAR à PRO
 M en 4. ALORS ES RENE
 
-PAM à A AE A A
 tt Ni EN PATIO) SAR Re
 
-N'RCTE à (a RME SE:
-NAN d Sels CANNES Ro ANRT
-RS “ s 3 FRE #2 Vaste A + ee
-SUITE Ê SES A Et PRE
 Riu Des mêmes auteurs jf
 Ales Are en vente à la librairie des cahiers
 ON AE € oltineur débile D RARES APT A
-hs ; ofrancs
 VAE La Lumière 7 FT SERRES ess . SA
-ue RS
-EE - 4 D ua
-HE : 4e Date 03 AFS
-ere $ 7 a BANANE NRC
-
-V1 CRE A 11410 ROUSSEL Er
 
 A la mémoire de Mr. Cecil Rhodes,
 mort avant la consommation de son injustice.
 
 HAN SOUS : Rire RAM A EN
 ee de De À SORA ER PRTE
-Ann ee : # A Me Soc
-ASS ds onto.
-AP DU 14 5 POLE Re FAUER
 MA VEAL 27 eee k h VAS bar n VENTE ON NAS 0 8 lee
 des vis RAR < à CEST RRE MT EN a ne
-Pi | Re ni,
-rs D nr
 | RAS) ; LR PN EN ES RE
-(PREAS FAT LUN TASER SO OMENS
-DA mr LR NME TD
-100 NE ea es ne en? (2) A re A ue
-A or RO Men, AL RER FEES
-AR RU HER, ee
 ne en OT Fr A RO EU
 Le SA au FUEESS DE DE a
 no Rata ALES NAT RER ne: ES
 ANS lie PE à LES Ie Has % dure _
-Fee LL RU res
 ne À Rae A à
-Ho F ; DR à AE RE
 Re 3 MENT ee NICE Le
 US AT ne ENT RE Rae
-. a o ÿ Hi ftare. (Dora es Los FAT ASS LUE D
 ne mo - Fe SÉRIE ST rte ee
-a Ë LORIE) LS VENT DR ï
-Fees LULÉRÉESSSS a
-M Ur das à
 
-JÉROME ET JEAN THARAUD
-Dingley
-, L'ILLUSTRE ÉCRIVAIN
 | CES Ÿ
-ÉDITIONS DES CAHIERS
-; PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-PORN NE | LES HE
-
-x Det EtreR 27 x: RENTE RE ds E 3 Fee F RE
 ns à Ce HR MERE Es A ee ares
-NORME £ MEANCAL ACTE TE LATE MA APRES
-te PEER ae RS ANS MERS
 
 D ee ne DR 0 SR
-ENAPEANEUR FR SUR SAT
-
-NU TER À DEN TL RER SRE
 
 M ni A BRU
 
@@ -191,7 +138,6 @@ votre pipe et à cracher dans l'eau! À
 
 Les curieux se dispersèrent quand le sergent eut
 fini de discourir. Il ne resta autour de lui que ‘
-Dingley ettrois pauvres diables faméliques marqués
 de misère et de vice.
 
 \ Le sergent en prit deux familièrement sous le
@@ -211,7 +157,6 @@ admirables les unes que les autres. IL s'était battu
 contre les Afridis, dans l'Inde, contre le Mahdi, en
 Égypte, contre les Birmans..… Le nombre de ses
 conquêtes grandissait avec la pile de soucoupes
-empilées.
 
 La porte s'ouvrit : un homme entra ; à peine un
 homme, un grand enfant à l'air vieillot: le troisième héros. Ses yeux passèrent, sans se fixer, sur
@@ -227,8 +172,6 @@ sa mémoire les allures hésitantes du gueux. Enfin
 il le vit frôler le sergent comme une fille qui aguiche
 un homme. Le recruteur passa son long bras autour
 de sa taille:
-
-— Du gin?
 
 — Ce que vous voudrez, répondit le jeune homme
 d'une voix rauque, j'ai soif.
@@ -251,7 +194,6 @@ reconnut la qualité de sa joie. Tout de suite, sans
 enlever son manteau, le corps légèrement penché
 en avant, les mains appuyées au pommeau de sa
 canne, il lui raconta quelle inspiration lui était
-venue
 — Comprenez-vous, Jeanne, un jeune homme
 pareil à celui que je viens de voir — des
 yeux faux — des cheveux rares — chlorotique —
@@ -316,7 +258,6 @@ du pillage comme celles qui furent conquises jadis
 par nos aïeux danois. Les formes du pillage seules -
 sont différentes aujourd'hui de ce qu'elles étaient il
 y a dix siècles. L'échange pacifique est un rêve de
-fous.
 
 à — J'aime comme vous la guerre, répondit Jeanne
 appuyée elle aussi le front à la vitre, mais je suis triste de penser que des hommes de votre pays
@@ -326,12 +267,10 @@ Oh! c'est triste de penser que de jeunes hommes
 vont mourir pour d'autres hommes déjà riches,
 laids et vieux.
 
-Dingley se mit à sourire
 — Voici bien une idée de femme! Vous excuseriez cette guerre si nos capitalistes étaient moins
 riches, moins laids et moins vieux ?
 
 La femme de Dingley avait hérité de ses aïeux
-français émigrés au dix-septième siècle en Louisiane
 un sentiment juste des caractères. Sa très grande
 admiration pour son mari ne l'avait pas aveuglée
 sur les limites de son génie : il était né pour
@@ -379,8 +318,6 @@ du Times signé. Je vous félicite, mon ami.
 que vous êtes partisan de la guerre... dit-elle avec
 un peu d'amertume.
 
-— Parbleu! répondit orgucilleusement Dingley.
-
 Les désastres, au début de la guerre, déconcertèrent l'imagination du romancier. Pourrait-il vanter
 l'intelligence d'officiers battus par des paysans ?
 l'héroïsme de soldats qui levaient les bras dès
@@ -404,7 +341,6 @@ homme grand, sec, rouge, habillé d'écarlate, avec
 une petite baguette à la main et une calotte ronde
 sur la tête. les mêmes voyous auxquels la misère et le vice donnait un air de famille. Et c'était toujours le même bar avec ses tasses ébréchées, Le gin
 et le papier que les gueux finissaient toujours par
-signer.
 
 Dans la salle du War-Office où étaient affichés
 chaque jour, sur plusieurs colonnes, les noms des
@@ -429,7 +365,6 @@ abolie; Dingley vit des gentlemen aux cylindresles plus reluisants causer avec d
 des femmes de la plus fine aristocratie en confidences avec des femmes vêtues de haillons. Ces
 instants d'égalité parfaite duraient jusqu'à l'apparition des listes. Alors c'était une poussée ; à
 qui verrait! Ceux qui n'avaient lu au tableau
-aucun nom ami s'en allaient, furtifs. Dingley
 les revoyait le lendemain, à la même place,
 _ avec la même physionomie d'angoisse que la
 veille. Après la grande poussée, quand la foule
@@ -508,7 +443,6 @@ détaillait l'agonie de Cronje et de son armée.
 
 Le cinquième jour, pendant le diner, le téléphone
 sonna impérieusement. Dingley avait posé le récepteur sur sa table, près de son assiette. Il écouta
-— Ça y est.
 
 — On l'a pris ? demanda Jeanne.
 
@@ -544,8 +478,6 @@ consciencieux et aimait le document pris sur le
 Il décida de partir avec sa femme et son enfant
 pour le Sud de l'Afrique.
 
-25 IL. L
-
 Son départ fut un triomphe : une foule immense
 sur le quai acclamait le romancier, debout à l'arrière du paquebot entre Jeanne et Archie qu'il
 tenait par la main. Quand le navire s'ébroua, on
@@ -576,7 +508,6 @@ sa femme, il eût éprouvé la puissance évocatrice
 de la musique, la vie de bord avait été le meilleur
 stimulant de son génie. Il avait espéré, pendant
 cette traversée, recréer en lui l'état divin d'une
-inspiration soutenue.
 Dingley se mit au travail : sa femme, dans une
 chambre voisine, jouait — assez mal — une suite
 de banalités musicales : des valses, des chansons de
@@ -617,7 +548,6 @@ terres, sur toutes les mers, n'avait pas affaibli chez
 les convives les différences de race. Mais une
 grande courtoisie dissimulait les haïnes sous un vernis de politesse. Quand Dingley entra dans la
 salle, Cox disait à Thibert, qu'il avait conru en
-Égypte
 — Le métier de reporter est gâté par les coquins
 et les imbéciles!
 
@@ -637,7 +567,6 @@ News, ne me contredira pas. Celui-là, Mrs. Dingley,
 était, comme vous dites, un vrai héros de la Nouvelle et de l'Image! La dernière photographie qu'il
 a prise est celle où l'on voit un canonnier blessé à
 mort à l'instant où il tire la ficelle de la pièce : la chute du soldat fait partir le coup. Il vous souvient,
-Thibert?
 
 — Parfaitement. Quand Kurrachee prit ce cliché,
 il était assis à dix mètres du canonnier sur la roue
@@ -646,8 +575,6 @@ l'autre monde.
 
 — Ainsi, s'écria Dingley éclatant de rire, votre
 mulâtre fut tué par le dernier obus qu'il photographia?
-
-— Précisément.
 
 — Impossible de pousser plus loin le dévouement à l'Image!
 
@@ -662,13 +589,10 @@ pas pour les autres, maïs j'y crois pour moi...
 Ainsi, je suis absolument sûr de mourir en France,
 en Beauce, dans mon lit.
 — Et moi en Angleterre, dans le comté
-d''Essex.… interrompit Ted Cox.
 — .… Et voyez, disait à l'autre bout de la table
 un jeune lieutenant, sir George Harvey, blessé à Û
 Colenso, et qui revenait prendre du service en
 Afrique, ces Boers sont si simples qu'ils sont incapables de se servir de la hausse de leurs mauser!
-
-. pue
 
 — J'ai entendu dire, répliqua Thibert, qu'ils
 remplacent avantageusement la hausse avec le
@@ -676,7 +600,6 @@ pouce de leur main gauche levé perpendiculairement au canon du fusil ?
 
 — C'est vrai, répondit Harvey. Mais, en somme,
 ce sont des brutes, qui ignorent même l'usage d'une
-brosse à dents.
 
 Thibert aimait cet aimable garçon de lieutenant.
 
@@ -706,15 +629,11 @@ que de force. Ceux qui pensaient autrement étaient
 — Pourvu que nous n'arrivions pas trop tard!
 quand le bal sera fini! dit Ted Cox.
 
-— Diable ! répartit Thibert. Cinquante douzaines
 de plaques Lumière sans emploi.
 — Et une occasion perdue, ajouta Cox, de voir
 autre chose que des mitraillades de nègres, des
 jaunes ou des cuivrés : enfin on va voir des Blancs
 contre des Blancs !
-
-Dingley pensa
-— Si Barr allait arriver trop tard!
 
 Elle ne marchait pas son histoire de Barr.
 
@@ -759,10 +678,8 @@ Ils descendirent.
 Dans la cale, quarante mulets étaient au fond.
 Leurs litières n'étaient séparées que par une
 barrière de bois des paillasses où couchaïent les
-hommes.
 
 — Ce sontles plus malheureux qui habitent ici,
-remarqua Dingley.
 
 — Au contraire, répondit le capitaine, ils demandent tous à descendre là-dedans. Ça pue le mulet,
 mais ça tient chaud. « Les gens du peuple sont frileux. »
@@ -776,7 +693,6 @@ regarde, n'est-ce pas ?
 
 Dingley revint dans le salon des officiers peiné
 que cette foule de soldats fût aussi avachie que toute
-autre foule humaine si inconfortablement traitée.
 I croyait les Anglais d'un meilleur acier que les
 autres peuples du monde.
 
@@ -824,7 +740,6 @@ son fils.
 
 — Voulez-vous ne pas jouer, et vous dépécher,
 dit gaiement Jeanne, qui passa dans la porte entrebâillée le bout du nez et son bras nu. Elle s'habillait. Dingley la surprit dans sa chambre en jupon
-court.
 
 — Vous sentez l'âne, mon ami.
 
@@ -834,7 +749,6 @@ de bord. Quand j'ai quitté le bateau, ils se sont
 réveillés pour entonner l'hymne que j'ai composé.
 Vous n'avez rien entendu.
 
-Jeanne répondit :
 — Non, nous n'avons rien entendu. Dingley fut
 contrarié que cette rumeur de gloire n'eût pas dépassé deux cents yards.
 
@@ -865,7 +779,6 @@ que s'il se fût adressé à une princesse. Elle
 était pour lui une Scheherazade hindoue, une
 légende vivante... Dans l'esprit simple, rempli de
 contes de nourrice, soumis à la fatalité, Dingley aimait l'esprit le plus pareil au sien qu'il eût jamais
-rencontré.
 
 Pour la vêtir, nulle étoffe assez précieuse, assez
 rare. Dingley cherchaït pour elle les tissus les plus
@@ -912,7 +825,6 @@ enfants trépassèrent. Alors fut résolue la construction du canal que tu as vu
 montagnes dans le pays de Chamba.
 
 — Ce canal, interrogea Dingley, ombragé de ces
-grands arbres ?
 
 — Précisément. En deux années le fossé fut
 achevé. Mais l'eau des lacs qui devaient l'emplir,
@@ -951,11 +863,8 @@ n'en finissait plus.
 
 — Eh bien! Seigneur, les Dragons veulent que
 ta fille, la belle, la noble Harribakti, remonte le
-canal jusqu'aux lacs.
 
 Djehangir fronça le sourcil.
-
-— .…. toute nue...
 
 Le roi se leva violemment de son trône.
 
@@ -966,10 +875,8 @@ Le roi se leva violemment de son trône.
 — Ce n'est pas tout, continua le Brahmane.
 
 — Qu'exigent-ils donc encore d'Elle ? interrogea
-anxieusement Djehangir.
 — Sa vie. Ils veulent qu'au terme de sa route
 elle plonge au fond du lac où l'attend le prince des w
-Eaux.
 * Les jours suivants le roi épia désespérément le
 Ciel, vers l'Ouest, pour voir si quelque nuage n'arrivait pas. Maïs le ciel restait d'un bleu impassible
 et la famine ravageait la ville. Le peuple contraignit Djehangir comme il avait contraint les Brahmanes. Il dut expliquer à sa fille ce que les Dragons voulaient d'elle. La belle Harribakti était
@@ -981,7 +888,6 @@ yeux de la multitude : elle devint plus blanche que
 le marbre de son trône quand elle sut qu'elle devait
 rejoindre, au fond du lac, le Génie des eaux. Après
 un long silence, elle répondit
-_ — J'irai.
 
 — Arrête ici ta légende, interrompit Dingley. Tu
 me raconteras la suite plus tard, plus tard. Le reste
@@ -995,9 +901,6 @@ je vous prie. Je l'illustrerais volontiers...
 
 Il tendit la main pour recevoir les feuillets couverts de l'écriture menue de Dingley. Mais celui-ci
 les jeta dédaigneusement par dessus bord. Les
-pages s'envolèrent.
-
-C : Cd
 
 — Gh! dit Thibert stupéfait de ce geste, c'est de
 la belle joie que vous jetez au vent!
@@ -1052,7 +955,6 @@ Le soir même Dingley racontait à Thibert sa visite
 au camp des prisonniers.
 
 — Tout à fait la même race, remarqua le dessinateur, que les gueux de Hollande ou les Huguenots
-français.
 
 Ce soir-là une douce clarté était sur la mer, au
 ciel, dans l'air de la nuit. Tous les éléments semblaïent favorables à l'homme. Dingley vintappuyer
@@ -1064,7 +966,6 @@ femme ne pensait à rien, enveloppée dans la caresse
 de cette nuit, si douce qu'elle faisait oublier l'heure.
 Le bateau s'avançait, sans roulis, sans tangage,
 presque sans bruit : les étoiles pâlirent jusqu'à la
-mort...
 
 Encore étonné de la première humiliation qu'on
 eût osé infliger au nom anglais, devant lui, Dingley
@@ -1092,8 +993,6 @@ l'Illustration, aussi dramatiques que scientifiquement intéressantes : obus tom
 formation en ordre dispersé — obus éclatant sur
 une voiture de munitions — cheval sans cavalier
 
-45 mr.
-
 éventré par la mitraille. Jamais on n'avait encore
 vu reproduits d'une manière aussi saisissante des
 hommes et des bêtes immobilisées par l'effroi ou
@@ -1103,7 +1002,6 @@ Thibert était désolé de ne photographier que des
 Anglais. Les Boers ne se laissaient pas approcher.
 Et il regrettait de ne pas avoir encore assisté à une
 de ces déroutes si riches pour les amateurs de ces
-mouvements tragiques, imprévus, inimaginables,
 auxquels se livre une humanité affolée.
 
 Cox, lui, employait toute l'ingéniosité de son
@@ -1111,11 +1009,6 @@ esprit à déguiser par des phrases habiles les échecs.
 Quand un régiment était repoussé, ül se retirait sur
 une position inexpugnable; quand une colonne
 battait en retraite, elle opérait un mouvement de
-concentration en arrière.
-
-Dingley regardait.
-
-cs UV
 
 Archie était heureux dans la grande villa : il
 s'était ennuyé à Londres et sur le paquebot. Il
@@ -1165,10 +1058,8 @@ venaient derrière. Tout près de moi, Thibert profita
 de ce répit pour prendre une vue panoramique de
 la bataille : des petits bonshommes épars sur les
 collines, dans la plaine ; de ci, de là, des nuages de
-poussière...
 Quand les Irlandais eurent rejoint, l'assaut fut
 relancé. J'arrivai sur la crête avec les premiers
-gordons. À
 
 Il n'y avait plus personne. Les Boers avaient disparu. Seul, une sorte de géant se tenait debout, à
 côté d'une mitrailleuse démolie, la figure coupée en
@@ -1194,7 +1085,6 @@ balle ne l'atteint. Il revient vers nous, toujours courant, un paquet sous le br
 
 Et ce diable d'homme me répond
 — Je n'en sais rien. Mais j'ai ses clichés. Les
-voici. ?
 
 Les fifres et les cornemuses se mettent à jouer l'air: Écosse, verte Écosse, nous nous soufenons
 de toi.
@@ -1213,21 +1103,17 @@ appareil sur ses genoux, accroupi comme une bonne
 femme qui vend des pommes au marché. On l'a
 poussé : il est tombé sur le nez.
 
-— Mort?
 — Vous pouvez le voir : il est la-bas dans la
-grange. «
 Notre ami était couché sur la terre battue : sa fine
 figure caprine toute barbouillée de boue, les yeux
 grands ouverts... Cette mort m'a beaucoup ému ;
 mais à la guerre comme à la guerre! Sait-on qui À
-vivra demain ? Ÿ
 
 La femme de Dingley sentit qu'elle pleuraït : elle À
 
 4 aimait la gaieté gamine du dessinateur. Elle sou
 
 — Pauvre Thibert, il-ne sera pas enterré en
-Beauce !
 Lord Kitchener avait imaginé de brûler les fermes
 du Veldt et de réunir dans de vastes camps les
 enfants et les femmes des combattants boers. Il
@@ -1244,7 +1130,6 @@ Dingley des lettres où elle le pressait de revenir.
 Mais lui, passionné par sa nouvelle vie, les
 poches bourrées de notes, la mémoire pleine d'attitudes, de mots, de récits, de spectacles de guerre ne
 songeait pas au retour. Il envoyait à la côte des
-lettres délicieusement gaies
 .… Barr va bien. Il lutte de hardiesse et de ruse
 avec les Boers. Il dynamite les fermes : c'est une
 mesure nécessaire. Il est paternel pour les enfants
@@ -1269,7 +1154,6 @@ sang versé retombe sur ceux qui s'obstinent à con- l
 tinuer la guerre avec un entêtement féroce et
 stupide... Dites à Archie que je lui rapporterai un
 grand fouet boer long de neuf pieds et des boîtes
-à mitraille éclatées.
 Quand la femme de Dingley reçut cette lettre,
 Archie était déjà très malade; il ne descendait plus
 au jardin; le docteur redoutait la dysenterie.
@@ -1281,8 +1165,6 @@ ses insomnies, des histoires.
 
 Le soir tombait : Dingley, au milieu d'un cercle
 : d'officiers à qui un soldat faisait le récit d'un engagement auquel il venait d'assister, fut abordé par
-
-Ted Cox:
 
 — Une dépêche pour vous, Dingley, ditle journaliste en lui tendant un bout de papier qu'un exprès
 lui avait apporté.
@@ -1296,11 +1178,8 @@ Les officiers s'inclinèrent et lui serrèrent la
 main, sans mot dire.
 Le journaliste le suivit:
 
-— Mauvaises nouvelles? interrogea-til.
-
 — Archie, très mal. Il faut revenir. Pourvu que
 je n'arrive pas trop tard, répondit Dingley d'une
-voix mal assurée.
 
 Le reporter ouvrit les bras, sans plus témoigner
 d'émotion. Il en avait tant vu mourir d'enfants
@@ -1310,7 +1189,6 @@ d'un ami, ne le touchait guère.
 É — Vous prendrez mon cheval, dit obligeam_ ment le journaliste. Il est plus frais que le vôtre.
 . C'est une bête boer échappée qu'un cavalier vient
 de me vendre.
-— Merci, j'accepte.
 Les deux hommes allèrent aux piquets où les
 chevaux étaient attachés. Cox reconnut le sien, un
 alezan éborgné par une balle et sans queue.
@@ -1402,7 +1280,6 @@ chef, qui emmena Dingley dans un coin de la
 maison en ruines, où pendait un débris de toit.
 Quelques brins de paille humide ne réussissaient
 pas à cacher la terre battue. Le Boer invita Dingley à
-à s'étendre là.
 
 — Je vous prends votre lit?
 __ Vous êtes mon hôte. Désolé de ne pasen avoir
@@ -1413,7 +1290,6 @@ fait sauter ce matin après un petit combat.
 _ A cinq ou six milles. Vous avez dû passer
 ttpar la
 __ On a tué beaucoup de monde? J'ai traversé un
-véritable charnier.
 _ N...on : Un petit engagement, une dizaine de
 morts, tout au plus. Dingley fut surpris. Sous l'empire de l'effroi et de la nuit, il avait cru patauger
 dans une bouillie de chair et de sang, quand ilmarchaït dans une terre détrempée.
@@ -1488,7 +1364,6 @@ arbre grêle qui ressemblait à un peuplier.
 Dingley remercia son guide : il allait repartir au
 galop. Mais l'enfant saisit son cheval par la bride
 — Excusez, sir ; c'est un de nos chevaux que vous
-montez.
 
 Dingley le regarda Stupéfait : il montait le cheval
 que Ted Cox lui avait prêté. Et c'était bien en effet
@@ -1497,12 +1372,9 @@ un cheval boer.
 — Vous serez à la station dans une heure, si vous
 
 . marchez bon train, dit l'enfant avec un malicieux
-sourire.
 
 — Après tout, il a raison, pensa Dingley, cette
 bête n'est pas à moi.
-
-{: 61 IV.
 
 I1 descendit de cheval, très dépité.
 
@@ -1548,7 +1420,6 @@ auprès du major. La figure de sir John Carey avait la couleur de la lie d'un vi
 
 — Une minute. je n'ai qu'une minute à vous
 donner, dit-il en invitant Dingley à s'asseoir. Nous
-sommes débordés, littéralement débordés.
 
 Il levait ses bras gros et courts, emmanchés
 dans une tunique rouge, comme pour surnager au
@@ -1567,7 +1438,6 @@ Le plancher brûlait les pieds de Dingley. Tout ce
 que lui disait sir John irritait son impatience.
 
 Enfin il reçut son laissez-passer et il prit aussitôt
-congé.
 Le major le rattrapa dans le couloir
 __ Vous di... di... dînez au mess, ayec nous, ce
 soir? Le train ne part qu'à onze heures. Vous avez
@@ -1607,8 +1477,6 @@ qui allaient et venaient autour de lui, s'interposait
 une chambre d'enfant malade... Il sortit de Bloemfontein : des soldats étaient occupés à tendre des
 grillages pour rendre plus efficace la besogne des
 
-_ sentinelles.
-
 De dix yards en dix yards une sonnette tintait à
 toute tentative d'escalade. Dingley montra son
 laissez-passer. Il se promena dans la plaine défoncée
@@ -1642,7 +1510,6 @@ malades en ce moment, dans ce pays! Imaginezvous, ils meurent comme des mouches.
 Dingley connaissait les dernières statistiques : la
 mortalité infantile était terrifiante. Maïs tant que À
 Archie avait été bien portant, il n'en avait pas eu
-souci.
 Le Major avait bégayé à tous les officiers qu'il
 avait vus que Dingley dinait, ce soir-là, au mess. L'
 Aussi la salle était pleine quand le romancier entra. M
@@ -1658,7 +1525,6 @@ aller à lui, lui parler. De quoi, il ne savait pas au
 juste, mais lui parler de maladies, d'enfants, de
 ceux qu'il soignait à l'hôpital. Une pitié subite
 l'attendrissait sur le sort des petites victimes de la
-guerre. FER
 
 — La guerre est finie, affirmait le major.
 
@@ -1696,7 +1562,6 @@ qui... qui a eu le courage de laisser sa famille à la À
 Côte pour suivre les opérations de la guerre.
 — L'imbécile! murmura Harvey. On n'est pas L
 plus maladroit!
-Dingley répondit presque à voix basse : À
 — Monsieur, à la santé de la Reine et de sa vaillante armée! ‘À
 Harvey monta près de Dingley dans le cabriolet
 qui attendait à la porte. Ils franchirent sans mot L
@@ -1707,14 +1572,11 @@ tenant sentait que tout ce bruit de fête avait irrité
 
 — Vous me télégraphierez, n'est-ce pas? dit Harvey en descendant de la voiture.
 
-— À Bloemfontein ?
-
 — Non. A Pretoria. Je viens de recevoir l'ordre
 de rejoindre French. J'aime mieux ça que de rester
 ici dans la crotte.
 
 — Sans doute, sans doute, répondit distraitement
-Dingley.
 
 Le major avait fait réserver pour Dingley un coin
 d'un wagon à bœufs, où étaient entassées des munitions destinées aux postes échelonnés le long de la
@@ -1726,7 +1588,6 @@ de cabine.
 Le train siffla. *
 
 — Vous me télégraphierez, n'est-ce pas? répéta
-Harvey.
 
 Dingley, appuyé contre la porte du fourgon, salua
 de la main le jeune homme debout sur le quai,
@@ -1736,7 +1597,6 @@ que l'écrivain devait garder de son ami. Harvey fut
 tué la semaine suivante, dans un engagement de
 French avec les troupes de Botha.
 
-NET EN
 Le train n'avançait qu'avec une désespérante
 lenteur. Une pluie fine et inlassable ajoutait sa
 tristesse à la monotonie du paysage. De la tête à la
@@ -1758,7 +1618,6 @@ tôt que là? Impossible de le deviner. Nulle trace de
 village, de maison. Ou bien on approchait d'un à
 pont. La locomotive sifflait et ralentissait sa À
 marche. Les passerelles jetées en hâte pourremplacer les ponts que les Boers en retraite avaient
-À PRO
 
 | fait sauter étaient si légères qu'un train à l'allure
 brutale de trente milles les aurait écrasées.
@@ -1767,7 +1626,6 @@ Enfin on approcha de De Aar. A partir de là, la
 voie serait plus sûre. On avancerait plus vite... Il
 espérait trouver là-bas une dépêche de Jeanne : il
 fut déçu. Aucune dépêche ne l'attendait. Son
-inquiétude grandit.
 
 1 Une nuit — il somnolait, étendu sur la chaise
 longue — il fut éveillé par des jurons et des cris, et
@@ -1780,12 +1638,9 @@ des voix.
 — Les hommes étouffent. — On n'aurait pas fini s'il
 fallait ramasser tous Les blessés.
 
-— Alors...
-
 — Alors! Faut-il qu'il crève comme un chien,
 contre la voie, s'écrièrent des hommes furieux.
 Nous ne pouvons l'emporter : il ne peut se teniren
-selle.
 
 Dingley mit la tête à la portière. Devant lui une
 immense étendue déserte : un peloton de soldats
@@ -1804,7 +1659,6 @@ n'avait été touché qu'un cheval et le pauvre diable
 étendu là. Le blessé regardait de tous ses yeux,
 écoutait de toutes ses oreilles.
 Ses regards étaient épouvantés. Dingley lui
-demanda :
 — Où es-tu blessé ?
 Il ouvrit la bouche. Aucun son n'en put sortir. l
 — Sir, répondit un cavalier, il comprend tout
@@ -1835,7 +1689,6 @@ blessé ni sa voix.
 
 Le train sifila quelque temps, les camarades galopèrent sur leurs petits chevaux hongrois à la hauteur du wagon; quand ils se virent dépassés par le
 train, ils crièrent
-— Aurevoir, Humphry, au revoir !
 
 Dingley les suivit une minute des yeux. Ils se perdirent dans la nuit.
 
@@ -1848,7 +1701,6 @@ aurait mieux valu pour lui rester dans un faubourg
 de Londres et y crever de misère.
 
 Il lui versa entre les dents quelques gouttes de
-champagne.
 
 Il devait être un bon compagnon, puisque ses
 camarades l'avaient si vaillamment défendu contre
@@ -1903,8 +1755,6 @@ d'attente qui servait d'infirmerie, Dingley demanda
 Le médecin répondit
 — Hélas ! non. Il est fort possible qu'il vive!
 
-AA PAL UE VE
-
 Le jour suivant il arrivait au Cap. Une légère
 voiture conduite par un cocher noir et attelée de
 chevaux poussifs — toutes bêtes vigoureuses avaient
@@ -1917,7 +1767,6 @@ noir : elle semblait déserte.
 Dingley escalada le perron. Sa femme avait
 entendu grincer la voiture sur le sable de l'allée.
 Elle demanda penchée sur la rampe de l'escalier
-obscur
 — Qui est là?
 Il répondit :
 — (est moi!
@@ -1930,7 +1779,6 @@ d'une chambre. |
 — Mort? cria Dingley d'une voix rauque.
 
 Elle tomba dans ses bras : étroitement enlacés ils
-pleurèrent.
 L'Hindoue sortit de la chambre éclairée, au fond Ë
 
 de laquelle luisait la tête pâle de Archie entre les
@@ -1973,7 +1821,6 @@ ou le Dieu...
 Jeanne descendit le perron- Dingley accroupi sur
 les marches, la tête dans ses mains, ne la vit pas.
 L'Hindoue la regarda passer sans interrompre Sa
-légende.
 Jeanne n'entendit pas la fin du conte : elle erra
 dans le parc une demi-heure. Quand elle revint,
 
@@ -2003,41 +1850,25 @@ le patois de Calcutta
 — Des contes, dis, raconte-moi des contes.
 
 | } Hate A NES
-io (re RO RE) à) Me 1 MNT RE:
-Us AU AU Ris A
-ANA ï AUS AUS ie dre A RTE nes Fe
 HR JUNE pi ni jh nor Et
-RER ANTON THIS te
-à FA EU
 
-Fini d'écrire à Paris en mars 1902
 Jérôme et Jean Tharaud
 
-UR de : : (NT ENORME
 ou M nt or
-* 42 PA E TE
 : RSS D de ie
-Xe: . LC DR NN IT eq) |
 
-Fini d'imprimer trois mille exemplaires
 le mardi 15 avril 1902
 à l'Imprimerie de Suresnes
-. (. PAYEN, administrateur)
 9, rue du Pont
 
 CT A ads Me L MA CEE, af
 11 A ta GS RS qi A ot
 ne. î : ts tr AN A] LPO: RE tk 1h Us Fa
-Don RO “
-FN FA MR dE Ne LM Va
 
-Lo dun ONE D D
 " 4 AAA Te Vs EN A RAA gl NE nl Ai tue le Er
-FE M On RSR R
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-demeurent libres.
 
 Nous servons
 des abonnements de souscription à cent francs;
@@ -2057,7 +1888,6 @@ Nous ne consentons des abonnements de propagande
 que pour la France et pour la Belgique.
 
 Nos cahiers étant très pauvres, nous ne servons plus
-d'abonnements gratuits.
 
 Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 
@@ -2071,6 +1901,5 @@ M. André Bourgeois, administrateur des cahiers, à
 reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept
-heures.
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction le jeudi soir de deux heures à cinq heures.

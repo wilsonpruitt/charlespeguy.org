@@ -7,63 +7,19 @@ author: charles-richet
 isAvertissement: false
 wordCount: 19878
 ---
-
-< PM ex PE : Re TTE FT
-NN OU hu : NA LE = 6
-
-© DEUXIÈME CAHIER DE LA SEPTIÈME SÉRIE Ar VE
-“TRE NE Re
-L'URSS CHARLES RICHET “4
-: T 400 : AT
 la paix et la guerre
-__  GAHIERS DE LA QUINZAINE #3
 ASCRTARE paraissant vingt fois par an 7 5e)
-re _ PARIS #
 8, rue de la Sorbonne, au rez-de-chaussée F
 
 SAP CÉREATE SUR ABLE PARA ii ÉTAPE |
-PR RO RTE Ie D COUT IR CES RATS Es |
-OT RACE TEERRE : PRO AUS RE à) Dep He |
-EN ie k ST + PACA CT EN RES :
-TX HACONCARE , : PE Se a TT TRE ACTOR
-21 ET RES PE ÉÉRDEE 2 "0 |
-ER RRMOETES Ê : LARGES
 Fee LPS l
-: LÉ ERP É > Me.
 MR SE Et de
-1 “LPS
-Au © 2 +" . , et PES
-re LT. ENNESS
-CEA j LA ER
 mes « RUE “ei
 + ÉCPRE KE Des
-ER; j: LR 2 SRE |
-Eu + SLR 3
-Etre À à a + OCR
-LRU < CAL: LAS A
-LES ORS ÉLUS
-Mr. LS +8 520 |
-7 03 F: TN AS |
-:0E4 : : HIER
-LINE = - PR  -
-; nr
-Eree « s _ 5 LARATASSES
-BA . * 1 L EVA EEEES
-RE , ., | LR SRE SES
-rot res ha: LAN" HORS US
-+ FLN x SE F” L LR
 
 à ln tee SA A
-M UN) A EE AU PAC SE AA TN TAPER
-iii mnt A A ASE A A A A
-LP (| d DA AT AG NOR EVE jan) î PEN Ÿ yes! À Ki 1
-j 1 NP CSN PATES } 110
-1, NEA HAE À ' 1 ñ À € AGE:
-\ 2 MANN | | {AN NTES
 Ya pa N CFA OM ETE À GAL AO TA YA
-110 000 ENTSRN SRE EN \ AE 7 P Y LION ET MR RMSE
 
-ê
 % Nous avons publié dans nos éditions antérieures et |
 3 dans nos cinq premières séries, 1900-1904, un Si à
 grand nombre de documents, de textes formant dos- +4
@@ -80,7 +36,6 @@ premières séries des cahiers, il suffit d'envoyer un mante dat de cinq francs 
 É teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, É
 | Paris, cinquième arrondissement ; on recevra en retour 4
 é le catalogue analytique sommaire, 1900-1904, de nos à
-Fe cinq premières séries.
 Ce catalogue a été justement établi pour donner, {
 l autant qu'il se pouvait, une image en bref, un raccourci, :
 une idée, abrégée, mais complète, de nos éditions anté- ;
@@ -90,10 +45,7 @@ place, les références demandées. 0
 Ce catalogue, in-18 grand jésus, forme un cahier $
 très épais de XII+408 pages très denses, marqué cinq k
 > Es
-Il F
-12 ]
 
-ee ki 1 ”
 francs ; ce cahier comptait comme premier cahier de la j
 sixième série et nos abonnés l'ont reçu à sa date, le
 2 octobre 1904, comme premier cahier de la sixième k
@@ -122,19 +74,15 @@ peut consulter, — provisoirement, — la petite table
 analytique très sommaire que nous avons publiée en fin
 de ce cahier index.
 
-r r Le EURE, ON USE NT IN PERS
 L'étude que l'on va lire a été publiée pour la première {
 à fois dans la Revue philosophique, trentième année, fl 1
-, numéro 2, février 1905 ; 4
 | Revue philosophique de la France et de l'étranger,
 paraissant tous les mois, dirigée par M. Th. Ribot;
-chaque numéro contient : 4
 1° Plusieurs articles de fond: Æ
 2° Des analyses et comptes rendus des nouveaux de
 ouvrages philosophiques français et étrangers : D
 3° Un compte rendu aussi complet que possible des
 publications périodiques de l'étranger pour tout ce qui
-. =
 concerne la philosophie ; 4
 Des notes, documents, observations pouvant servir de #7
 matériaux ou donner lieu à des vues nouvelles ; E
@@ -142,35 +90,11 @@ Prix de l'abonnement : un an: 30 francs; départe- M
 ments et étranger, 33 francs ; la livraison : 3 francs. ‘à
 S'adresser pour la rédaction et l'administration: au
 bureau de la Revue, 108, boulevard Saint-Germain, » \
-Paris sixième ; 1)
 
 On peut s'abonner à la librairie des cahiers. ;
-j
-* k
 
-run D AR ER
-ATTÉNUER « X RARE
-ro Nr A Lua à va
-pe! SA rt ‘ 1 1800
-ATATES 7 à . M
-:k# PATES: RE
-49 AIR
-_ | 4000 Ne
 | HN Me:
 La paix et la guerre ; 50
-‘ATRRNEE = He 5
-ÿ FR $ M :
-er 4 VER k À % Fe
-1540 Vas
-“PEUR SE ;
-the Ag r: s À aus EN
-nr | : 0
-RE Ci = y MONTE 0
-(T° N/ER u | PARFNES
-SR x » Nes : PR nr
-ANSE ‘ : RAS à
-LU PM 2
-52 j $ j 19 "LITE
 
 Nous devons remercier M. Th. Ribot, directeur de la
 Revue philosophique ; je tiens à remercier personnelle- …
@@ -189,11 +113,6 @@ a bien voulu relire cet article sur nos épreuves, de
 manière à faire de ce cahier une édition définitive.
 
 Le gérant, Charles Péguy À
-A 4,
-À #1
-
-LA PAIX ET LA GUERRE
-I
 
 Les faits progressent si vite dans le domaine social
 que souvent ils devancent les préoccupations des philosophes. Ainsi le mouvement pacifique, qui depuis
@@ -216,12 +135,9 @@ Mais aujourd'hui que la question de la paix et de la
 guerre, dans les sociétés humaines, se pose avec tant
 de force qu'il apparaît comme le plus grave des pro-
 
-&)
-
 Charles Richet De ||
 blèmes sociaux, il convient d'examiner quelles sont les 4 |
 bases scientifiques sur lesquelles se peut établir une
-opinion. ‘3
 
 \ On ne s'attendra pas ici à ce que nous traitions la 1
 question sans partialité. Depuis longtemps notre con- Le,
@@ -238,7 +154,6 @@ tienne pas compte du bonheur du plus grand nombre. £
 Une morale d'après laquelle les hommes seraient, en 4
 majorité, malheureux, constitue une absurdité si évidente À
 que toute démonstration de la proposition inverse ER:
-semble vraiment inutile. 1
 Quant au progrès, plus ou moins parallèle à la mo- É:
 rale, on peut le définir : l'amélioration des conditions 4
 matérielles parmi les hommes; autrement dit, moins de N. l
@@ -248,10 +163,7 @@ les vices, le jeu, la débauche, l'ivresse, le vol, le men-
 | songe, la paresse, — entraînent misères, maladies et Fo
 larmes, il s'ensuit que l'amélioration des conditions 6
 matérielles est corrélative du progrès moral individuel. À à
-‘à
-à
 
-LA PAIX ET LA GUERRE 3
 Donc une société est en progrès, quand le sort de
 chacun de ses membres est moins cruel aujourd'hui
 qu'hier et qu'il sera moins cruel encore demain.
@@ -262,8 +174,6 @@ progressives de la science, ce bonheur et ce bien-être
 sont destinés à s'accroître à chaque génération : nous
 aurons ainsi déterminé une société qui est en
 
-. progrès. :
-
 Supposons le contraire : une société où les hommes
 sont de jour en jour plus misérables, souffrant davantage de la faim et du froid, décimés par les maladies,
 incapables de pénétrer dans une connaissance plus
@@ -273,22 +183,15 @@ La conciusion nécessaire, c'est qu'il faut tendre à la
 formation de cette société heureuse. Tel doit être le
 programme de tout citoyen, l'espérance de tout gouvernement.
 
-III
-
 Jusqu'ici il n'y a pas de désaccord, et il ne peut y en
 avoir, puisque ces vérités sont par elles-mêmes évidentes. Il n'est pas de théoricien qui prétende à cet
 étrange idéal du malheur du plus grand nombre. Où
 l'incertitude commence, c'est quand il s'agit de pré-
 ciser ce qui est heureux ou malheureux pour les
-hommes.
 
 À première vue on comprend tout de suite que l'état
 de guerre est peu propre à développer le bonheur
-.terrestre.
 
-5 Da
-
-: Charles Richet
 Massacres du champ de bataille, avec des milliers
 
 d'existences humaines fauchées dans leur fleur, douleurs
@@ -301,7 +204,6 @@ les mitraïlles et les bombardements. Villes prises #
 d''ässaut, ou subissant de longs sièges, prisonniers 4
 traînés sur les routes, ou languissant dans des case- ;
 
-mates infectes; villages incendiés, moissons ravagées, ;
 ponts détruits ; gaspillage en quelques heures de forces \
 à grands frais accumulées, pillage, maraude, vols et sl
 viols; souffrances indicibles par la faim, le froid, la Es
@@ -327,10 +229,8 @@ toutes les douleurs de la guerre, enlevant à la charrue,
 condamner à deux ou trois ans de servitude; toutes les
 forces intellectuelles et matérielles d'un grand peuple
 
-LA PAIX ET LA GUERRE
 détournées de la conquête de la vérité. Voilà le bilan
 de la guerre pendant la paix. Il n'est pas moins
-odieux. |
 Mais on peut prétendre que c'est là un jugement 1
 superficiel, de sorte que, pour n'être pas injuste, il faudrait mettre en face de tous ces maux de la guerre, que
 personne ne songe à nier, les biens qui peuvent en
@@ -347,7 +247,6 @@ et que les grades, les décorations, les honneurs qui ont
 plu sur l'armée victorieuse, ne sauraient être mis en
 balance avec l'immense malheur de l'armée écrasée.
 Mème dans l'armée triomphante, il y a eu des blessés, des morts. Même chez les vainqueurs que de
-larmes!
 Combien faut-il de croix de la Légion d'honneur pour
 compenser la mort d'un enfant? Supposons un père de |
 famille ayant dix enfants dans l'armée. En sacrifiera:t-il
@@ -359,8 +258,6 @@ envoie d'autres à une mort certaine.
 Que sera-ce donc si, au lieu d'une bataille, comme
 Austerlitz, où la victoire, éclatante, fut presque facile,
 
-Re HP 1 NCA ARARISR NES TIENEEEES
-Charles Richet “EE
 ; nous prenions d'autres batailles, incertaines, où les
 pertes furent égales de part et d'autre, comme Eylauet
 Leipzig; et d'autres encore, où, malgré la certitude de 4
@@ -374,7 +271,6 @@ dt guerres, comme la guerre de Crimée, où la maladie a 4
 [ * Alors décidément la joie des vainqueurs et des survi- 4
 vants apparaîtra comme un très misérable profit, au 1
 s point de vue du bonheur général, en face de l'immense Er
-désespoir. #4
 { Et quant aux compensations matérielles que la victoire :
 apporte, elles sont bienfaits de faible prix, à côté des ?
 souffrances que subissent les vaincus. La France a dû
@@ -386,18 +282,12 @@ générations, — afin de payer cette dette de guerre ? I1ne 1
 | serait pas difficile de prouver que la charge des contribuables allemands n'a pas été diminuée d'un demi- M
 pfennig à la suite de cette trompeuse pluie d'or. Et nous è
 savons combien ce sacrifice a pesé et pèse encore sur la k
-! France. 4
 4 Donc, — point de doute à cet égard, — au point devue
 | du bonheur individuel, la guerre apporte plus de maux # ‘À
 k que de biens, et la disproportion est effrayante. 4
 1 On peut comparer la guerre à une épidémie. Que la M
 peste sévisse dans une ville, et fasse d'innombrables 4
-4 8 +4
-! €
-; Ne
-pi Ve -4
 
-À LA PAIX ET LA GUERRE À
 victimes, il se trouvera peut-être des gens d'esprit pour l
 soutenir que, somme toute, ç'a été favorable. Il y a eu 1
 des héritages importants; des places sont devenues À
@@ -414,10 +304,6 @@ passe-temps d'humoriste.
 Laissons cela. Il est des objections moins ridicules, 2
 auxquelles il convient de répondre.
 
-R IV
-
-t: \
-
 La guerre, dit-on parfois, comporte assurément un
 mal immédiat; mais ce mal immédiat, si grand qu'il
 
@@ -432,15 +318,10 @@ plus nobles vertus.
 | 2° Elle entretient l'émulation entre les nations, cette
 émulation vivifiante, sans laquelle il n'y a pas de progrès. La certitude absolue de la paix engendrerait la \
 corruption et l'avilissement de tous les citoyens d'une
-nation.
 
-Charles Richet 4
-
-14 $ “4
 j Qu'il existe des vertus militaires, personne ne songe À
 À à le nier. Le sacrifice de sa vie pour le salut de tous est D.
 le plus noble peut-être des sentiments humains ; et une :1
-] éducation vraiment militaire tend à développer quelque D:
 chose d'analogue; au moins le courage, le mépris du :
 danger et des fatigues. Oui, cela est évident. ‘à
 Remarquons pourtant que l'héroïsme militaire s'exerce eS
@@ -465,10 +346,7 @@ telligence et de la moralité humaines. À
 S'il prend au sérieux son rôle d'éducateur, s'il s'efforce “4
 de faire de son régiment une vraie et saine famille, de É
 | tempérer la sévérité des règlements par des conseils ‘4
-10 e
-‘à
 
-; LA PAIX ET LA GUERRE |
 paternels, d'exercer sur la conduite morale de ses
 hommes une surveillance incessante, de leur enseigner
 l'amour de la patrie, de la justice et de la vérité, par
@@ -513,9 +391,6 @@ sobriété, de vérité et de désintéressement. J'en appelle
 
 |
 
-k
-
-Charles Richet ;
 risme, en alléguant la nécessité d'une grande école de
 moralité et de discipline ; car dans la pratique le régi- f
 ment est tout autre chose : et en fait, qu'il s'agisse de À
@@ -533,9 +408,6 @@ tenir le principe d'une armée exclusivement pacifique ? à
 Une armée est une machine organisée pour la guerre.
 Autrement, c'est un non-sens, et personne ne songe à ;
 défendre la cause d'une armée qui n'aurait jamais à se jh
-battre. hi
-Le
-VI 4
 #l
 Reste alors la période de guerre. Est-il vrai que la É ;
 guerre exalte les plus hautes vertus de l'homme? #
@@ -547,10 +419,6 @@ avec furie au-devant de la mort, donnant des exemples D.
 d'un courage indomptable. Rarement le mépris de la ;
 mort a été poussé aussi loin. Mais, quel que soit mon
 respect pour ces pauvres diables, je ne peux m'imaginer que cette furie et cette ténacité soient l'apogée :
-rl
-i
-
-LA PAIX ET LA GUERRE
 
 des vertus humaines. Tout l'idéal des hommes doit-il
 tendre à cela : se précipiter sans peur sur d'autres
@@ -584,7 +452,6 @@ instant; mais ce courage, qui est réel, ne me sufit pas
 pour que je les déclare des héros. L'héroïsme suppose 4
 un courage employé à une noble cause. Quand Xerxès
 
-Charles Richet ‘4
 ou Alexandre, ou César, ou Napoléon, mènent à la mort À
 des milliers d'hommes, ces braves gens, qui font au )
 maître le sacrifice de leur existence, m'inspirent plus de
@@ -614,11 +481,8 @@ sa vie sans compter, le jeune héros ne compte guère |
 avec la vie de son ennemi. Si l'on voulait faire le 4
 récit de toutes les cruautés militaires que l'histoire i
 a recueillies depuis les temps anciens jusqu'à aujour14
-à
 
-É : LA PAIX ET LA GUERRE
 d'hui, on amasserait une monotone série d'horreurs sans
-nom.
 
 Au début de la guerre contre la Chine, tout récemment, l'empereur d'Allemagne n'a-t-il pas dit à ses soldats : Pas de quartier! Cet ordre barbare n'a-t-il pas
 été exécuté? Combien a-t-on fait de prisonniers chinoïs ?
@@ -655,10 +519,6 @@ Qu'il s'agisse des armées de César ou de Napoléon, de
 . Gustave-Adolphe ou de Cortez, les exemples de sauvagerie cruelle sont si abondants qu'on nous dispensera
 d'en citer. L'homme armé devient une vraie bête féroce.
 
-É < 15
-
-Charles Richet “
-
 Malheur aux vaincus! disait déjà le vieux Brennus, $
 
 | notre ancêtre, aux sénateurs romains terrifiés. Malheur s
@@ -669,7 +529,6 @@ Il y a des exceptions. On en pourrait citer qui sont '
 sublimes. Mais ces exceptions confirment, au lieu de É
 contredire, ce fait évident, que le soldat en campagne %
 est devenu insensible à la douleur et au malheur des %
-hommes. À!
 À On cite souvent aussi l'esprit de solidarité qui réunit jf
 les combattants; et je n'ignore pas qu'on pourrait citer É
 des anecdotes touchantes, maints beaux et nobles exem- à
@@ -684,8 +543,6 @@ bent. Tout compte fait, la somme de l'égoïsme impla- k
 | cable l'emporte terriblement sur l'abnégation et le dé- 4
 vouement. On en sera bien vite persuadé quand on aura d 4
 vu comment vivent et pensent les hommes en temps de Li
-
-grandes manœuvres, en pleine paix cependant. Chacun El
 
 pour soi : voilà la première règle; et si, çà et là, quel- L
 
@@ -703,11 +560,8 @@ armés, victorieux ou vaincus, que la discipline ne con- p
 tient plus qu'à peine : tous les instincts sanguinaires de 4
 
 l'animalité se déchaïnent; tout le vieil héritage de 4
-16 ; 5
 
-LA PAIX ET LA GUERRE
 barbarie légué par nos ancêtres reparaît en toute sa
-force.
 
 Vis-à-vis des faibles surtout. Une troupe de soldats, |
 munis d'un excellent armement, ne se comportera pas, |
@@ -736,13 +590,10 @@ côtés de l'esprit guerrier, prétendent que ces sentiments
 guerriers sont, à tout prendre, moins misérables que
 ceux de l'esprit pacifique.
 
-VII
-
 Pourtant être pacifique ne veut pas dire manquer
 de courage. Voilà une vérité qu'il suflit d'énoncer,
 sans qu'il soit nécessaire d'en faire la preuve. Une
 
-Charles Richet k
 nation agressive et belliqueuse, toute armée pour la 3
 guerre, n'est pas plus brave qu'une nation pacifique. è
 Le paisible peuple boer, fait de rudes et incultes Û
@@ -772,10 +623,7 @@ sourire. Mais qu'on y réfléchisse : elle est absolument 4
 la même que celle des amis de la guerré quand ils Ë
 donnent pour défendre la guerre ce motif étonnant, que k
 c'est une école de courage. : ÿ
-18 l
 
-É LA PAIX ET LA GUERRE
-VIII
 * On s'est adressé aussi à l'histoire, et on a cru
 trouver ainsi la condamnation des peuples pacifiques. ?
 
@@ -801,8 +649,6 @@ pour le génie romain. Ensuite d'autres vertus que les
 < vertus militaires, (administration, justice), ont contribué
 à la suprématie romaine. Il semble qu'il y ait un anachronisme moral à vouloir nous faire revenir aux temps
 
-Charles Richet ï
-U
 d''Horatius Coclès, ou même du vieux Caton. Depuis 4
 cette époque les sociétés humaines ont évolué, et nous |
 avons mieux à faire qu'à ressusciter le sanguinaire, dur |
@@ -816,7 +662,6 @@ sang, ils ont fini au bout de quatre siècles par le réaliser,
 par établir la domination romaine.
 
 La paix romaine, soit; mais une paix établie sur des
-ruines : ubi solitudinem faciunt, pacem appellant.
 
 Que les exemples de la fermeté romaine soient
 donnés aux enfants comme modèles de composition
@@ -832,17 +677,14 @@ sait jusqu'à quel point ces exercices de déclamation F
 n'ont pas été funestes aux hommes de la Révolution
 française et de l'Empire, en leur faisant entrevoir
 l'espérance d'une sorte d'empire universel : Regere î
-imperio populos. >
 
 Si l'on voulait chercher une comparaison entre des &
 peuples pacifiques et des peuples guerriers, il faudrait 4
 mettre en parallèle des nations de civilisation compa- ï
 rable. Voici la Suisse, par exemple, dont les habitants 4
 
-20 ï
 |
 
-LA PAIX ET LA GUERRE
 mont l'esprit ni guerrier, ni agressif. Ils n'ont pas, ou
 presque pas, d'armée permanente; et la menace perpé-
 | tuelle d'une guerre épouvantable ne pèse pas sur leur
@@ -876,7 +718,6 @@ _ dure nécessité de gagner leur pain à la sueur de leur
 front. Or, entre les peuples guerriers et les peuples
 21 2
 
-Charles Richet fr
 pacifiques, il y a cette différence, qu'un peuple guerrier, À
 
 au lieu de travailler, se bat pour piller le travail des 2
@@ -924,13 +765,6 @@ et lui représenter qu'il serait plus noble de courir, armé 4
 
 « d'une brillante cuirasse et d'un grand sabre, à la suite Vi
 
-? 22 24
-
-$
-
-L
-1 LA PAIX ET LA GUERRE
-\
 d'un fougueux général. Mais pour moi je n'oserais lui
 1 donner cet enseignement, et morale pour morale,
 ; courage pour courage, je préfère le travail acharné et |
@@ -965,8 +799,6 @@ démesuré boursouflement du moi, qu'ils préconisent, a
 
 , comme conséquence forcée le mépris des droits d'autrui ;
 
-Charles Richet #25
-s
 mépris contre lequel les tribunaux ont mission de pro- \
 téger autrui. Il est facile de voir que ces énergiques À
 sont tout simplement des anarchistes; car reconnaître Ÿ
@@ -997,13 +829,10 @@ veut chercher des exemples de haute force morale et
 d'énergie dans les enseignements d'un empereur, c'est s
 Marc-Aurèle et non Napoléon qu'il faut choisir. Ils ne |
 sont efféminés ni l'un ni l'autre; tous deux sont également apôtres d'énergie, mais chez l'un l'énergie tend
-24 | |
 
-À
 # LA PAIX ET LA GUERRE
 | à la satisfaction de l'égoïsme et de la vanité, chez
 l'autre elle se propose pour fin le bonheur des autres
-à hommes.
 \ A entretenir dans une nation cette vieille idée, que le
 métier militaire est seul honorable, et que les autres
 À professions sont plus ou moins dégradantes, on revient
@@ -1030,10 +859,7 @@ une phase transitoire; et, en tout cas, cette civilisation, » qui est toute bus
 et de feu, où l'institution de grandes armées permanentes
 - échauffe les esprits vers le vol et le crime, évoquant les
 idées de pillage, de haïne, de sang, qui vivent chez tout
-être humain.
-25 a
 
-Charles Richet rx
 Cet esprit de pillage, de haïne et de sang, développé :
 par notre organisation militaire, ne s'applique point aux J
 pauvres gars qu'on envoie au régiment. La mentalité de 3
@@ -1057,20 +883,14 @@ fini leur service ou qui ont trouvé moyen de ne pas le S
 faire, sont entretenus dans leurs passions belliqueuses À
 par la contemplation, qui est pour eux sans aucun x
 danger, de cette armée même, dont l'âme est si peu 4
-belliqueuse. si
 Assurément les plus entêtés soutiens du régime mili- Ée
 taire' n'osent pas ouvertement prôner l'esprit de conquête; à
 ils prétendent que toute notre organisation guerrière ne &
 doit avoir qu'un seul but; la défense du territoire. ï
 Mais il y a là, je m'imagine, une singulière faute de \
-logique. À
 En effet, de toute nécessité, quand il y a une guerre, à
 il y a un agresseur. Si chacun était toujours réduit à la ti
-26 à
 
-E:
-Î
-ï LA PAIX ET LA GUERRE
 défensive, il n'y aurait jamais de bataille. La guerre de
 défense n'existe que s'il y a eu auparavant invasion,
 attaque, violence. Donc supprimer les agressions et les
@@ -1090,21 +910,16 @@ li organisation toute pacifique, résisterait fièrement à un
 boers ont pu, pendant plus de deux ans, tenir en échec
 toute la puissance anglaise. La très pacifique Hollande
 ÿ a triomphé successivement de Philippe II et de
-HI Louis XIV. f
 Plus un peuple est attaché à la paix, plus il montre
 : d'énergie à défendre ses libertés. Il regarde la guerre
 comme un mal; mais il n'en est que plus résolu à combattre, quand il est attaqué. On n'a donc pas droit de
 \ dire qu'en supprimant l'esprit de conquête, on énerve
 les courages, car l'histoire prouve absolument le :
-contraire.
 . Donc un peuple pacifique, et résolument pacifique,
 non seulement n'est pas par cela même corrompu, mais
 encore il peut, s'il est injustement violenté, donner
 l'exemple des plus hautes vertus guerrières.
-! 27
 
-Charles Richet !
-IX 4
 Nous croyons donc avoir prouvé d'abord que la :
 guerre est un instrument de malheur, un fléau humain; |
 ensuite que ni dans la paix, ni pendant la bataille, |
@@ -1133,9 +948,7 @@ mieux supposer, comme cela est vraisemblable, que À
 l'opinion publique n'est pas livrée aveuglément à la À
 fatalité d'événements qui se succèdent, qu'elle peut être 1
 dirigée, modifiée, éclairée, que l'éducation d'une nation 1
-28 : À
 
-\ LA PAIX ET LA GUERRE
 par les discours, les livres, l'école, n'est pas impossible,
 partant que les nations peuvent, dans une certaine
 mesure, disposer de leur sort, et que chaque citoyen
@@ -1162,7 +975,6 @@ aux luttes guerrières entre nations civilisées.
 
 Tout d'abord parce qu'il y a de petites nations qui
 | seraient forcément anéanties si la guerre décidait du
-; progrès.
 
 Certes l'Allemagne est un bien plus grand peuple que
 le Danemark. Que l'Allemagne soit en lutte armée avec
@@ -1179,9 +991,7 @@ cela est bien différent.
 
 Dans un duel, le plus fort n'est pas celui qui a raison ;
 
-, 2 STE ESPN
 #
-Charles Richet 4
 ce n'est même pas le plus habile, ou le plus courageux, 1
 qui est assuré de vaincre. Le hasard a un grand rôle. IL
 a un plus grand rôle encore, effrayant, dans les batailles. 4
@@ -1203,7 +1013,6 @@ tourné toute son énergie vers le commerce, l'industrie,
 
 la science et les arts de la paix : en quoi la victoire des
 armées françaises aflirmerait-elle l'infériorité morale des « |
-Allemands ? À
 Conclure de la supériorité militaire, sur un ou plu- ï
 sieurs champs de bataille, à la supériorité d'une nation +4
 sur une autre, ce serait tout aussi absurde que de \
@@ -1219,7 +1028,6 @@ sont aujourd'hui à peu près les mêmes : Angleterre, 4 *
 
 30 1
 
-\: | LA PAIX ET LA GUERRE
 _ France, Allemagne, Autriche-Hongrie, Italie, ÉtatsUnis, ces six grandes nations sont, à quelques nuances
 | près, égales. (Je ne parle pas de la Russie, puissance » presque asiatique, dont la civilisation, dans la grande
 masse de la population, est encore rudimentaire.) Si
@@ -1249,12 +1057,10 @@ entre la Russie et le Japon est là pour le prouver. Les
 Japonais ont mis moins d'un demi-siècle à prendre tous
 
 | |
-Charles Richet
 les dehors de nos civilisations européennes. Ils ont
 adopté nos armes, et alors ils sont devenus une puissance militaire formidable. Pourtant on ne me fera
 pas avouer que ces triomphes des Japonais constituent
 une preuve de la supériorité de la race jaune sur la race ;
-blanche. ;
 Ainsi au point de vue de la lutte entre deux nations
 le principe de Hegel ne signifie rien qu'un truisme vide
 de sens. La guerre consacre le triomphe du plus fort ;
@@ -1262,10 +1068,8 @@ ce qui est évident par soi; mais le plus fort à la
 guerre, ce n'est pas le meilleur; c'est le plus nombreux, ;
 le mieux armé, le mieux préparé, le mieux favorisé par À
 le hasard. F
-X
 A un autre point de vue la discussion de la théorie dé
 de Darwin, la survivance du plus apte, est intéres- \
-sante. %
 Dans la nature, quand deux animaux luttent entre =
 eux, c'est le plus vaillant qui survit. La maladie frappe
 les faibles ; ce sont les plus courageux, les plus vigou- £
@@ -1273,14 +1077,11 @@ reux qui persistent pour perpétuer la race des courageux et des vigoureux. Mais
 hommes, au lieu de faire survivre les braves, fait sur- È
 vivre les poltrons ; il produit donc de la sélection
 à rebours, et il conduit à l'appauvrissement de la
-race. ! É “4
 D'abord les malades et les débiles sont exemptés de |
 service. Ceux qui ont une infirmité, les sourds-muets, M
 les borgnes, les aveugles, les manchots, les culs-de- « jatte, les becs-de-lièvres, les rachitiques, les scrofuleux,
 32 1
-A
 
-; LA PAIX ET LA GUERRE
 . les déments, les aliénés, les idiots; tout ce peuple
 maladif et impotent est bien protégé par les lois militaires ; et nul de ces infortunés ne risque de périr sur
 le champ de bataille. Ceux qu'on a choisis pour disparaître, ce sont les plus dispos, les mieux portants.
@@ -1316,16 +1117,12 @@ C'est là un des plus graves maux de la guerre parmi
 les maux innombrables qu'elle entraîne. ‘
 33 3
 
-Charles Richet K ë
-œil
 10e Dirai-je enfin qu'en temps de paix, dans cette sinistre a
 ‘a paix qui est la préparation à la guerre, la syphilis, 4
 | l'alcoolisme et la tuberculose, conséquences inévitables 4
 Dre de toute agglomération humaine et de toute institution (4
 militaire, n'ont pas de précieux avantages au point de k
 vue des générations à venir. AU
-L
-XI s
 Examinons maintenant si toutes les grandes choses pe
 | de l'histoire se sont faites par la guerre, et si la guerre 1
 a été nécessaire au progrès de l'humanité. É
@@ -1333,7 +1130,6 @@ Jusqu'à présent les guerres ont été incessantes, &
 civiles ou autres, de sorte qu'on est réduit à des conjec- <l
 tures, pour savoir comment eût évolué une humanité Ha
 non belliqueuse. Car l'humanité a toujours été belli- ‘4
-queuse. PA
 Pourtant il paraît absolument évident que, si l'huma- 4 ï
 nité a progressé, ee n'est pas par la guerre, mais malgré 10
 la guerre. k: ]
@@ -1349,7 +1145,6 @@ Pasteur ont fécondé le monde par des œuvres de paix 4
 et non par des œuvres de guerre. ‘4
 34 4
 
-We LA PAIX ET LA GUERRE
 ‘4 Les conquêtes sociales mêmes ne sont pas des faits
 11 de guerre. La guerre a eu comme conséquences directes
 # le partage de la Pologne, l'asservissement de la Fin4 lande et de l'Alsace-Lorraine, et d'autres infamies. PenUN dant cent ans les Anglais ont ravagé le sol de France : Û
@@ -1378,10 +1173,7 @@ A grand progrès intellectuel l'influence de la guerre,
 “comme les grands bienfaiteurs de l'homme l'ont été par
 | des œuvres essentiellement pacifiques, comme les
 6e guerres emploient l'activité humaine à la destruction et
-il! 35
-WI
 
-Charles Richet è
 non à la création, il paraît bien évident que la marche 2
 en avant du monde a été retardée par les guerres. è
 
@@ -1389,7 +1181,6 @@ On ne veut pas dire par là qu'une victoire ne puisse %
 être heureuse par ses conséquences. Mais cette victoire 2
 est la condamnation même de la guerre, puisqu'il a |
 fallu verser le sang pour défendre une cause sainte, in- |
-justement menacée. 4
 
 Les destinées de l'humanité eussent été bien diffé- U
 rentes si les hordes de Xerxès n'avaient été arrêtées à
@@ -1415,14 +1206,10 @@ la dévastation, et en se faisant adorer comme un dieu. À
 Il meurt, et toute cette grande machine se disloque, et
 ses lieutenants, devenus rois, finissent dans les pires \
 abjections, sans que rien ne subsiste de toute cette folle $
-équipée. k
 
 César soumet les Espagnes et les Gaules. Dans quels 4
 flots de sang, ses froids Commentaires nous le disent.
 
-“4%
-
-LA PAIX ET LA GUERRE
 Il a civilisé la Gaule, comme les conquêtes des Espa- Ù
 gnols ont civilisé l'Amérique, par des trahisons et des
 + massacres. La civilisation romaine a pénétré dans toute
@@ -1453,7 +1240,6 @@ crois bien que c'est une apparence; mais la discussion
 nous conduirait trop loin s'il fallait étudier à fond cette
 grave question de savoir si le fait d'appartenir à une
 
-Charles Richet (el
 civilisation supérieure crée des droits à l'iniquité. Sous L
 À prétexte qu'une nation n'a ni le téléphone, ni la géomé- ,
 trie analytique, ni la vaccination obligatoire, est-il légi- #
@@ -1485,10 +1271,7 @@ favorite, l'acquisition de quelques kilomètres carrés de 1
 territoire, surtout cette abstraction pleine de néant que kr
 les diplomates appellent l'équilibre européen, voilà L:
 quelles furent les causes des grandes guerres. Combien .
-38 !
-à
 
-k ÿ LA PAIX ET LA GUERRE
 ‘4 de pauvres diables ont pourri sur les champs de car- k
 di nage, pour que la suprématie soit à un Plantagenet ou à
 À un Capet, à un Habsbourg ou à un Bourbon? pour per-
@@ -1500,7 +1283,6 @@ j la guerre. Le progrès a évolué sans elle, et c'est miracle
 4 l'aient pas davantage entravé.
 { Au point de vue économique, le bilan de la guerre
 hi n'est pas long à établir. Elle coûte annuellement 10 mil1" liards. Pour seul avantage économique elle entretient
-11 certaines industries : manufactures d'armes, fabriques
 Ne d'explosifs, constructions de cuirassés, confection d'équiFA pements et d'uniformes. Tout cela vit de la guerre,
 11 comme vivent de l'armée et de la guerre les petites
 4 villes qui ont l'unique avantage de posséder une impor-
@@ -1512,10 +1294,7 @@ Ne d'explosifs, constructions de cuirassés, confection d'équiFA pements et d'u
 Fi fossoyeurs font de belles recettes. Ne serait-il pas
 \ mieux que ces professions fussent réduites à la menun  dicité? !
 ne En réalité, dans tout pays où sévit une armée permad nente, l'armée (avec la marine) absorbe plus de la
-Le 5 À
-+,
 
-Charles Richet #
 moitié des ressources financières du pays. On peut
 schématiser notre budget actuel en le chiffrant à 3 mil- ;
 liards, dont la dette représente 1.200 millions; l'entretien de l'armée et de la marine 1.200 millions; d
@@ -1535,12 +1314,10 @@ Admettons que les citoyens européens payent en impôt |
 chiffres ronds 5 milliards pour le paiement de la dette;
 
 10 milliards pour les dépenses militaires; et 5 milliards, c'est-à-dire un quart seulement, pour les dépenses
-civiles. À
 Mais cette dépense nécessitée par la guerre est trop
 faiblement évaluée; car il ne faut pas oublier que,
 dans l'Europe, il y a 1.500.000 hommes sous les armes.
 Leur travail, qui représente annuellement bien près de Ù
-cinq milliards, se trouve annihilé.
 Voilà donc à quels résultats notre civilisation actuelle ù
 a abouti : dépenser tous les ans 15 milliards pour empê- E
 cher 1.500.000 jeunes gens de travailler, et leur faire 21
@@ -1548,14 +1325,10 @@ perdre le goût du travail. Î
 Les défenseurs de ce stupéfiant état de choses nous
 disent, pour nous consoler, que, si nous payons de tels 1
 impôts pour la guerre, c'est comme si nous payions |
-4o
 
-À LA PAIX ET LA GUERRE
 à une assurance contre un désastre militaire. Ils préten-
 ÿ dent que, si l'on arme, c'est pour se préserver de la
-à guerre.
 k Peut-être cette opinion serait-elle défendable si une
-* grande nation, entourée d'autres grandes nations mili-
 | taires et hostiles, était seule à ne pas vouloir du régime
 “ militaire. La chose vaudrait alors la peine d'être dis-
 } cutée. Mais qu'on prenne toutes les nations européennes
@@ -1575,24 +1348,17 @@ Nous verrons tout à l'heure si ce régime de bonne
 venait à être établi, cette dépense de 15 milliards pourrait être supprimée. On pourrait renvoyer au champ et
 à l'atelier toute cette jeunesse heureuse de gagner
 “ librement sa vie au lieu de s'abêtir sous le harnais
-_ militaire. .
 Les progrès matériels que l'Europe unie pourrait réa-
 … liser par l'emploi de ces 15 milliards, il est inutile d'en
 faire ici l''énumération ; la fantaisie de chacun pourra
 se donner libre carrière. Pour les progrès de la science
 seulement, de la science qui est le grand instrument de
-A a:
 
-" « WT SAT REA mn
-15: NE
-Charles Richet A:
-. #
 lémancipation humaine, que ne ferait-on pas avec « 15 milliards ? 74
 Et ce trésor est consacré à une œuvre essentiellement KA
 stérile, puisque les nations, en effaçant de leur pro- €
 gramme toute pensée de conquête ou d'entreprise belliqueuse, pourraient supprimer le régime militaire qui les |
 conduit les unes et les autres à la ruine et à la banque- di
-route. 1
 Pour nous rendre compte de la colossale erreur dans |
 laquelle continuent à vivre les sociétés humaines, |
 oublions un moment tous les mots de haïnes, de ven- |
@@ -1617,17 +1383,12 @@ mais le philosophe a le droit de juger cette tradition. 4
 C'est la suite des barbaries d'autrefois. Les anthropo- ÿ
 phages, les sauvages ont vécu ainsi, et nous n'avons A
 pas su nous dégager de ce sinistre passé, tant nous 4
-42 J
-
-RME. EE LASER 1 L
-l LA PAIX ET LA GUERRE
 
 ‘4 sommes enveloppés dans l'illusion. De même les malF} heureux dont un énorme et sanglant ulcère dévore le
 j visage, vont dans les rues, promenant cette fétidité et
 k cette hideur, sans avoir conscience de leur misère;
 (2 l'habitude de la douleur les à vaincus; et ils finissent
 4 par oublier qu'ils sont ravagés par une affreuse plaie.
-ï xXUI
 
 À Il me semble qu'on doit être maintenant bien perD suadé que la guerre est un mal. Elle est un instrument
 ‘4 de malheur. Elle abaisse la moralité nationale, comme
@@ -1651,16 +1412,12 @@ k leur argumentation. Mais c'est déjà beaucoup que à
 À d'avoir établi que c'est un mal, au même titre que la
 L tuberculose, l'alcoolisme, la prostitution, la syphilis, le
 à choléra. La tâche se trouve ainsi simplifiée. En prou-
-à 43
 
-Charles Richet À
 vant qu'il vaudrait mieux rayer la guerre et le militarisme de l'avenir humain, on reconnaît que tous: nos
 efforts doivent converger vers ce noble but. Or est-il 3
 possible à l'humanité de réaliser la suppression de la
-guerre ? }
 La seule raison qu'on puisse donner pour soutenir la À
 négative, c'est que jusqu'ici il y a toujours eu des |
-guerres. {
 Raisonnement très ingénu, qui est à la portée des |
 plus simples esprits. On a toujours fait la guerre; %
 donc on la fera toujours.
@@ -1683,9 +1440,7 @@ l'état de nature. ,
 Dans les forêts, les mers et les plaines, les infirmes
 sont écrasés et anéantis par les forts. La société #]
 s'efforce de les protéger. !
-4 |
 
-à LA PAIX ET LA GUERRE
 Ë Pour les animaux, l'inceste est la règle. La société
 à proscrit l'inceste.
 A Quand un crime est commis par un animal contre
@@ -1710,14 +1465,12 @@ La minute de la journée. Si ce problème de faire vivre sans
 résolu, en dépit de la loi de nature qui veut que l'homme
 soit un loup pour l'homme, combien ne sera-t-il pas
 plus facile de concilier entre elles trois ou quatre grandes
-: nations ?
 È Si la loi de nature devait être la règle, il n'y aurait
 ; pas de société. L'espèce humaine serait livrée à la pure
 anarchie. Chaque individu n'obéirait qu'à son caprice ;
 écrasant les autres, s'il est le plus fort; écrasé par les
 autres, s'il est le plus faible. Or cet état d'anarchie,
 
-Charles Richet 46 EE
 que la civilisation a fait disparaître entre les individus 14
 par l'institution d'une police et de tribunaux, persiste 1
 encore entre les nations. 0
@@ -1726,7 +1479,6 @@ fait est d'une si éclatante évidence qu'on s'étonne de le %
 voir contesté. Autant nous avons fait de progrès quant ;
 aux relations individuelles entre citoyens d'un même
 pays, autant nous sommes restés des barbares pour les :
-relations internationales.
 Et si l'on objecte que la lutte entre les nations n'est
 que le développement de létat naturel, comment
 peut-on expliquer toutes ces transformations de l'état
@@ -1750,10 +1502,8 @@ part ces luttes collectives qu'on s'amuse à nous présen- "
 ter comme conformes au véritable état de nature. La 4
 Bruyère, dans un passage célèbre, parle des milliers ki
 de chats qui se réunissent en une grande plaine pour 4
-£
 46 4
 
-K: * :
 bi LA PAIX ET LA GUERRE
 VA se déchirer à coups de griffe et à coups de dent.
 fe Mais c'est une fiction (admirable d'ailleurs, et dont
@@ -1768,7 +1518,6 @@ ue Proudhon, dans un ouvrage sur la guerre, digne d'un
 LA Proudhon, est une marque de supériorité intellectuelle,
 j') de même que, pour Joseph de Maistre, la prodigieuse
 11 absurdité de la guerre était une preuve de sa divine
-Bi origine. |
 là En réalité l'opinion que la nature humaine rend iné-
 KW luctable la guerre entre les hommes n'a rien de scienti-
 él fique; car la guerre entre nations est une invention
@@ -1788,12 +1537,10 @@ _  d'hommes, comme la France, l'Angleterre, l'Allemagne,
 l'Italie, n'a aucun rapport avec ce qui est l'état naturel.
 \ Aussi, pour les relations de ces groupements entre eux,
 
-Charles Richet
 ne peut-on parler d'état de nature, puisque rien n'est
 plus contraire à la nature de l'homme que l'organisation
 de ces immenses machines policées, qui n'ont rien
 d'analogue dans les sociétés animales. 1
-XIV
 
 Je ne réfuterai pas par le détail cette étonnante aflir- .
 mation que, puisque toujours il y a eu des guerres, il y
@@ -1819,9 +1566,6 @@ alcoolisme. Il faut le combattre. Nous avons en effet È
 le légitime espoir que nous allons pouvoir diminuer ou !
 arrêter ses ravages. Eh bien! nous devons penser de 5
 
-48 ;
-
-Fe LA PAIX ET LA GUERRE
 f même pour la guerre, fléau que l'homme crée, fléau qui
 1 est absolument volontaire, fléau qui n'est pas dû à la
 Û fatalité des éléments, comme un orage, un raz de
@@ -1829,7 +1573,6 @@ f même pour la guerre, fléau que l'homme crée, fléau qui
 K mal que nous inventons de toutes pièces, qui relève
 ; entièrement d'une organisation sociale défectueuse, et
 L que nous avons par conséquent devoir et pouvoir de
-N changer.
 ë Malheureusement, à toute époque, la grande majorité
 1 des humains a été incapable de comprendre que toute
 ï vie sociale est une évolution. Les hommes vivent tellel ment empêtrés dans le présent qu'ils considèrent tout
@@ -1854,8 +1597,6 @@ unie ; la France est unie ; et cependant l'Allemagne, la
 France et l'Italie étaient jadis formées de nations bien
 distinctes, qui se déchiraient et se perdaient par la
 
-: Œ Es € S
-Charles Richet pe. ‘
 guerre. Il est certain que ce mouvement de concentra
 tion va continuer, et que des nations actuellement dis-- Lo
 jointes se réuniront pour former une fédération pacifique. De même que, depuis trois cents ans, les pro-
@@ -1884,8 +1625,6 @@ une cinquantaine d'années, et peut-être même plus tôt, %
 il n'y aura plus, pesant sur tous les citoyens d'un pays, L
 | $ 4
 
-HART AU AN NS jf: ds
-ï LA PAIX ET LA GUERRE
 14 la menace d'une grande guerre internationale, abpe surde. (1)
 We La raison qui me fait croire au rapide avènement
 ; d'une ère de paix, c'est qu'en dix ans l'idée pacifique a
@@ -1917,9 +1656,6 @@ X (1) Aux amis des grandes armées qui nous disent : l'armée nous
 permet de vivre en sécurité, je répondrais, avec Novikoff, que
 | cest la sécurité de Damoclès.
 
-AY
-L.
-Charles Richet î
 | tribunal arbitral ne comportent pas de sanction. La
 sanction fait aussi défaut pour les cas où une nation se
 refuserait à recourir aux décisions du tribunal; et de
@@ -1951,11 +1687,8 @@ reconnaître qu'on est dans son tort. L'opinion, aussi ;
 bien celle des peuples que celle des gouvernements, est, f
 par ce refus d'adhésion à la justice, directement offen- à
 sée. On ne peut plus prétendre qu'on soutient une cause À
-52 *
 |
-Fe
 
-1 LA PAIX ET LA GUERRE
 juste, et il faut être sûr de sa force pour affronter ainsi ‘
 pi les hasards de la guerre en violant ouvertement tous les
 ( principes de droit public, sans excuses possibles. Aussi
@@ -1988,13 +1721,10 @@ leurs possessions actuelles (Beati possidentes, comme
 
 |
 
-Charles Richet ‘4
-
 disaït Bismark), même quand ces possessions consacrent à
 de flagrantes violations du droit ? ou bien faudrait-il “24
 remanier la carte de l'Europe en se conformant aux a
 vœux, bien légitimes d'ailleurs, des populations injuste- ;
-ment annexées ? 14
 Assurément c'est là un problème de difficile solution, ÿ
 et je comprends qu'on hésite entre l'une et l'autre alter- | ñ
 native. Mais pourquoi ne pas s'en rapporter au tribunal ÿ
@@ -2013,7 +1743,6 @@ cessoires. Fata viam invenient. L'essentiel est que ce ."
 4 procédé barbare, sanguinaire, ruineux, absurde, qui est 4
 la guerre, soit décidément aboli et condamné; car il est À
 la honte de notre civilisation. à
-c XVI “&
 Je n'ai fait ici qu'indiquer à grands traits les principes à
 
 fondamentaux, n'ayant pas voulu me laisser entraîner 4
@@ -2021,17 +1750,12 @@ plus loin que la brève étude philosophique du grand à
 problème historique et social de la guerre. Maïs je crois 4
 
 avoir pu établir que la paix est bonne, qu'elle est méces- À
-5 i
 
-ER
-
-(4 LA PAIX ET LA GUERRE
 ‘4 saire, que son institution est possible, et relativement
 M facile, que par conséquent le devoir de tout bon citoyen \
 N est d'en hâter l'avènement. Û
 À Par quelles voies agir? À mon sens, il n'en est qu'une
 “ seule qui soit vraiment efficace, c'est l'éducation paci-
-+ fique.
 ] Admettons que tous les citoyens des divers pays
 soient profondément convaincus que, parmi les maux
 ” pesant sur l'humanité, nul n'est plus cruel que la guerre,
@@ -2058,7 +1782,6 @@ n'est qu'un vain mot. Lamentable erreur! qui se com-
 | Aussi, dans ces livres soi-disant patriotiques, est-il à e
 peine fait mention des misères de la guerre et du mili- |
 
-Charles Richet fs
 tarisme. On célèbre les hauts faits des rois guerriers,
 des empereurs conquérants, et on ne montre pas tout le
 mal qu'ils ont fait, les ruines, les massacres, les 1
@@ -2093,9 +1816,7 @@ les uns contre les autres, on leur dit, de l'un et de :
 l'autre côté du Rhin, tantôt : « Souvenez-vous que vous à
 
 | j |
-‘ LA PAIX ET LA GUERRE |
 êtes Allemands! » tantôt : « Souvenez-vous que vous |
-\ êtes Français ! » ;
 De fait les races européennes sont tellement mélan- |
 | gées et confondues qu'il est impossible d'établir une
 prééminence entre elles; et l'humanité civilisée forme
@@ -2130,12 +1851,6 @@ des paysans allemands, aussi bien que des paysans
 
 français, des mineurs anglais et des matelots italiens.
 
-57 4 à
-
-t PE Ed PAT NAN HONTE
-
-à TUE LME
-Charles Richet à
 Tous les travailleurs ont intérêt à la paix, et, de vrai,
 tous aspirent à la paix. C'est le premier besoin des uns
 et des autres; car toute guerre est désastreuse, même
@@ -2151,7 +1866,6 @@ votre ennemi héréditaire. » Sur l'autre rive du Rhin, 0
 on raconte les exactions et les crimes que les.armées F
 allemandes ont commis ; on parle du bombardement 4
 de Paris, de Sedan, de Metz, pour entretenir l'esprit de 4
-revanche. * 1
 
 Tout semble converger dans notre éducation et nos
 mœurs à ce sinistre résultat : la haine internationale. IL
@@ -2170,9 +1884,7 @@ maux qu'ils ont déchaïînés et s'indigner seulement de
 ceux qu'ils ont subis. En réalité, l'histoire militaire des
 nations, — la seule qui soit cultivée dans les livres pri
 . maires, — n'est qu'un tissu de fourberies, de”cruautés,
-58 : p
 
-1 LA PAIX ET LA GUERRE
 nu de caprices : et, quand on néglige celles dont on est
 À coupable, pour s'appesantir sur celles dont on est vic-
 ‘| time, on a toujours, en Allemagne, en France, en Angle- |
@@ -2201,12 +1913,9 @@ ve Les hommes d'aujourd'hui sont, bien plus encore que
 ul nest pas seulement au point de vue d'une haute mora-
 “ lité, mais encore dans notre intérêt bien entendu, qu'il
 \4 faut désirer, non la misère, mais la prospérité de nos
-HS ) voisins.
 LA On comprendrait peut-être que le spectacle de la ruine
 L… d'autrui fût réjouissant, si les biens à partager étaient
 
-ARE ‘23
-Charles Richet 5
 limités. S'il n'y avait, par exemple, que cent rations À
 alimentaires pour cent individus, alors que cinquante à
 hommes jouiraient d'une ration surabondante, ce serait F
@@ -2229,7 +1938,6 @@ riches, ils feront commerce avec moi, et augmenteront ù
 ma richesse. De même pour les nations. Plus l'Angleterre
 sera riche, plus elle sera tentée d'acheter sur le conti- [
 nent, et par conséquent d'enrichir les peuples du con- J
-tinent. fe
 C'est là un raisonnement tellement simple qu'on
 s'étonne de le voir constamment méconnu. Au fond, '
 c'est l'envie, mauvaise conseillère, qui excite le dépit des ?
@@ -2239,8 +1947,6 @@ il n'existera plus de conflit d'intérêts entre les groupe- ë
 ments humains, entre les classes sociales, et peut-être
 les races humaines. Hélas non! les luttes sociales et
 ethniques ne seront pas bénignes et inoffensives. Mais Î
-is
-ÿ:
 
 he LA PAIX ET LA GUERRE
 
@@ -2298,10 +2004,8 @@ il ne peut être combattu que par une éducation résolument et franchement paci
 la fraternité et la solidarité humaines ; montrer que le
 travail est source de richesse et de moralité, ce n'est pas
 
-61 A
 ,
 
-Charles Richet 14
 là une doctrine difficile à défendre. Et nous avons le 2
 droit d'espérer que dans l'enseignement primaire, #
 comme dans l'enseignement secondaire, il se trouvera
@@ -2313,11 +2017,7 @@ mais que ce soit d'une patrie pacifique, comme d'une A « famille pacifique. De 
 de plus en plus étroite. Mais toujours qu'on enseigne le R;
 respect de la justice et du droit, sans faire intervenir la 1h
 force et la violence pour le règlement des conflits. (1) ;
-LU
-p..
-XVII FL
 En définitive, la guerre et l'organisation militaire de : 8
-. +}
 nos sociétés représentent une ancienne et peu respec- 1
 table tradition. Elles font partie de ces résidus de bar- #
 (à) Le grand Tolstoi, dans divers écrits, prétend que le N
@@ -2338,10 +2038,7 @@ d'ailleurs qu'elle n'a, au moins actuellement, qu'un intérêt théo- ? 4
 rique ; car en fait le nombre de ces jeunes gens, réfractaires au 4
 service par scrupule de conscience, est assez faible. :
 Peut-être quelque jour aurons-nous l'occasion de traiter ce redoutable problème de morale sociale. ‘* 1402
-' +5
-2 %
 
-4 SAME D] d KE # |
 is LA PAIX ET LA GUERRE
 +  barie que nous portons tous en nous; car une courte
 … distance de temps nous sépare des âges où l'homme
@@ -2349,9 +2046,7 @@ is LA PAIX ET LA GUERRE
 …. guerre pour base, est donc encore très franchement
 “ barbare; et les efforts de tous les hommes qui pensent
 doivent tendre à la modifier.
-à:
 ù Certes le résultat final sera toujours le même; car il
-4 ;
 d…_ n'est pas douteux un seul instant que la guerre ne va
 pas continuer, pendant des siècles et des siècles, à en-
 “_ traver le progrès et le bonheur des hommes. Il est cer-
@@ -2363,99 +2058,29 @@ pas continuer, pendant des siècles et des siècles, à en-
 . server de la guerre une ou deux générations d'hommes.
 Re C'est là une très noble tâche, et il me semble que le
 __ moraliste et le philosophe ne puissent guère s'en propoDh ser de plus belle.
-4 CHARLES RICHET
-va
-1e
-Du”
 
-Ke {a
-h, LE 4
-
-, L 2.3 44 Re FASO EURE
-pue : y ; SE EC IEN
-Pur Ë 5 AE 0e) N:
-£ RE ESS
-) LISTE TÉL ORER L
-é LS
-k ART MS: het
-T7 À TR rie NY?
-F \ 1: RE Sa (+ PE
-: DARPEINE  Us =
-Ë L 3,2 1 CORRE
-é LEE
-É ; X Your 1 0 NN ENSES Ç
-LA 4 £ DES JR ane É
-à | LEA RE.
-
-‘1
-Ni
-
-13 Û
-É
-M 3
-1h TABLE DE CE CAHIER
-
-4 PAGES
 4 Notre catalogue analytique sommaire, notre pelil
 DE. index alphabétique provisoire du catalogue anaby1 tique sommaire; notre petite table analytique provi-
 | : soire três sommaire de notre sixième série......... il
-Vi:
 1 CnarLes Ricuer. — La paix et la guerre....... I
-LA
 Hi L'étude que l'on va lire; la Revue philosophique. ...... IV
-Ya
 WU Nous degons remercier... 4220600. 2
-14 HApiederce/cahier) 5711 SSSR NMRPan Er AS STAR GS)
-à:
 Ne on OZhers sontiédités). MR EE ee 69
-LA
-ee
-PA
-
-1)
 
 (A Nous avons donné le bon à tirer après corrections
 \'A pour trois mille exemplaires de ce deuxième cahier le
-FT mardi 3 octobre 1905.
-tn
 
-to ÈEÆ 2 2=
-ji NT SU
 | Le gérant : CHARLES PÉGUY
 
-}
-
 ji Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-(1 Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 417
-bo
 
-D CR TT OL er org \ LL 400 À 2 UT ARTIQUETN Fr
-RÉ ONPAEAEN AIRE Dern PEAR Ft O ET PC S i HER
-À qui 4 2 2 +: TA s
 de ESS
-ie DES" : : LENS
-RUN "SURSE + Lu
-
-Yes DE } à à #1" TZ CE SE
 
 h Ar nd Le
 
 #x8 r: JP FRNSCAEENESS
 
-fon à É M "À
-4 nn.
-=. 1 TC AUTEERSESS F
 | "TE ae
-fe DNS DCR 2
-ni 4 H EX ONE
-; n 7 {2 QE ee æ
-He k LT MES
-Ê ! KR : "TORRES
-= F Va À fa RUE
-
-1 ‘a ', ) Î
-
-A -
 
 ‘f CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 ‘ rez-de-chaussée, Paris, cinquième arrondissement. k
@@ -2463,13 +2088,10 @@ A -
 ÿ suelles régulières et par des souscriptions extraordi-
 Ô naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-W demeurent libres.
 
 4 Nos Cahiers paraissent par séries; une série paraît
 hi dans le temps d'une année scolaire, d'une année
 À ouvrière, d''octobre-novembre à juin-juillet ; l'abonnene ment se prend pour une série.
-
-\
 
 \! On peut souscrire cet abonnement à tout moment de
 ‘à l'année, mais l'abonnement ainsi souscrit est, de droit,
@@ -2477,10 +2099,7 @@ hi dans le temps d'une année scolaire, d'une année
 4 ù Prix de l'abonnement, pour chaque série annuelle
 ji: pendant le cours de cette série :
 
-û Paris, départements, Alsace-Lorraine,
-4 Abonnement ordi- \ Algérie, Tunisie.... vingt francs
 ‘À PEN ON SARSMENER | Autres pays de l'Union postale uni-.
-Re. |  verselle....... vingt-cinq francs
 v Abonnement sur whatman... cent francs pour tous pays
 7 Les exemplaires sur whatman, tirage non réimposé,
 ‘4 sont numérotés à la presse et imprimés au nom du
@@ -2493,7 +2112,6 @@ h dès à présent et reçoivent un numéro d'ordre déterminé
 "  méro d'inscription qui deviendra automatiquement le
 | numéro du tirage réservé à chacun des souscripteurs ;
 W: _ l'édition sur whatman sera strictement limitée au
-À . nombre d'exemplaires souscrit à chaque instant.
 
 Pour tout changement d'adresse envoyer soixante
 centimes, quatre timbres de quinze centimes.

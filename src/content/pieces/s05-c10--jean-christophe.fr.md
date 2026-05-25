@@ -7,134 +7,37 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 44365
 ---
-
 ## £ L NEATE
-+ ET : 4 ë le eN TER
-1 NF
 #? < à ls là APE
 an 0 À : ce ! NES ke
-‘ UE
-+ ; ce. r " 4 ei
 
-LE VOS AIS ARE LS MOT ELN | 2
-0 LS 0 FRS FRANS ANNE
-A L'ART 153 RU il ©
-à: Re pal 1 € AA) SE
 AR Du méme auteur : Qt "1 CRIE
 MAN Jean-Christophe. — I. — L'aube, — neuvième
 si É cahier de la cinquième série, un cahier de 180 pages,
-x QUE (l ' ' Ph 24 AA 4
-do “SNS
-LTÈTSS 1 LUN
-4 KEe LA } j J RNA Le
-de. (A 51
-Er + { à 28 w
-\ ee 4 j 1 RS
-LT Ù % : INR
-HSE É . F À y &
-"HE 4
-LE f ;, ps: ” ii À L
-. 1: SANTE “a LME
-Ahe, 1 F L'ART
-RU: É ÉU4SS
-Te + £ a « 6 HRRS Au
 
-1 ME rt
 1: FAUNOLS EREerel F0 à ni FE PL JEU VAN Et rai 5
 BRUN Pa Ca, M MBA D, AŸ7 eg È DRE * AA et
 PER: i : M e LELTT UE PE A ES on j “ ÿ sy Lite Tr V
-ie : Len PER : FPE
-RAR PENSE TD À X , Ké Bt,
 | LANTA LME ‘Ni
 # Ke RAP. A 1 LUS
-? Yi J 3 T0 jé Ds ! | LOF RTE
-« 1 rs À 10
-Le 5 MD : a cts
-‘0 FROUUR Qi LT A
-Là SOEUR 3 4h
-Py RUE Le , ve i Hé AT
-PAR. 40
-de 4 ATARI S : ; SET
-ART VTT
-UT ES è Ne El:
-02 } $ | F TAN
-2 ri \ à K q RE
-cpl , LE Le, # NA
-MATE ? - MA
-SAN x ir M AS PL ; | “ê 1, ”
-PA PTS AT MES | Late agé à 8 11% ? & f' 1, PERS
 
-PANDA EUR ee AN AN RES "4 4 ÉTAE RES ES NA +
-à AN RE à Rae à
-à D Cat ERA BAT ET RE ; ÿ QT STE SN EEE ASS
-3"803 JU UN h ES, # (Le ne À X SRE
-CHR MA FES MY È L j LR MEL: k
-RATE, vies Ph 0 A RATE
 | HAN \ ' AE pe à LATE
-TELE RENAN NA N'AERS fau EN
-TNA A1 FRANS
-HN 1 1} Le OT HER LASN EE AN à
-LR ( 4 Nitrt M SRE CO ER ee
-Fi En Fe 77 4 LANCE A RE RTE on
-NCIS Le M FAO FEV L EH ONNAER TMES
 M: cri + a 31 Ÿ CE agi A fx RE
-LIT ; F4 OT PRLTIREAN
-“HAE Ÿ LAURE RUE Mr Aa
 1: TS AY ÉE) PA = 5 AUNNN tre) ST NE ee
-DO : % À ie PATRONS RENE
-LT TOME Pr LAS EL #0
-AS ONE
 | ER NPADES à i SECHE LT D
 LM ta r NAT IER SM [Va
 
-CHINE NT A re À
 ph TEE RS AS pal CALAGE 2 TRE PMDAN aE ce
 ne + a ST RE ANS à , s Dre
 ba Le 4 RCE à ” a nr:
-ANR ii) | 15 k : FREE
-AUS ALT : 4 AT L' , 600
-PF) NERO Era AU me RAA. .
-ÿ RE le | & LA c Le |
-A ARLES A ATE CISCEESS
-À ANRT | HÉÉUNT AT 2e SEE
-1 NON ESSE : é
-Ur Nr TER 2? : EURE
-RETIRE SEE J ' 4 LEA ee
-« 1208 | D
-ES $ SE TER (ES
-Fe  THABNS à k ve, LÉ
-NRC THLPREE À HAARCES
-er ARE ea 2 RP
-e RES 13 CRUE ie ? TL REC
-+ RSA De ARE CA "2 AL Et XT, ra + M6 SRR
 maine ut ELA an L Es ù 1 + + à y n CTP "
 
-à set » NeE AAA 4 mi RAA à
-HAS LAS BAD QE PAU ‘4-2 dé
 1,2 EU A TT: nage Ps 1 DRE ne
 leg 5 PAYS ARTE | OR EN a. SRE ROMANE
 ais È Pres PNICE EU DE" & 4e 3% a: ER Fe IN SAS
-_ HAAMOAIRESS RL
 CÉSAR El MA { À Len FA @oRt
-Mrs” * LE "4 r f 224 DE "1 + SAN LIRE
-: TN ; Nu DNA AR He
-+4 0 i k "4 Jo Rita 4 1 ne
 CE) ot 4 « ete \ SES Pan AE L4 DA
 64 Vs L MERE Benne UE £ ie
-RDA ES Prey NF dOAUUR TE
-LAB ‘ : | SAC re BR
-MEURT 7 "1 % RE 1 A Ver D AUAN ES
-EE < 1 mo " FRONT TRUE
-M à ds a * * Ka Fu al PRISES eX
-Le 5 \ Su De vin RAGE
-La 1 SE M ; , ue” (we) MU
-UE È \. LUS
-MATE Rte “LV TACRCERE
-au * 0 TS SE FR
-32% j x DEC Eee PA a
-19 à ; bei nu è,
-4 + RAM
-PRE
 
 jé Mt EE G Le un *
 
@@ -162,8 +65,6 @@ est même d'une jolie force déjà sur le violon; et son
 père a imaginé de lui faire donner un pupitre à l'orchestre. Il y tient si bien sa partie, qu'après quelques
 mois de stage, il a été nommé officiellement second
 violon du of Musik Verein. Ainsi, il commence à
-
-II
 
 Jean-Christophe
 gagner sa vie; et ce n'est pas trop tôt; car les affaires
@@ -200,7 +101,6 @@ Le grand-duc n'oubliait pas son pianiste ordinaire :
 non que la modique pension qu'il lui attribuaïit pour ce
 titre lui fût exactement payée, — il fallait toujours la
 
-_ LE MATIN
 réclamer ; — mais, de temps en temps, Christophe
 recevait l'ordre de se rendre au château, quand il y
 “avait des invités de marque, ou bien, tout simplement,
@@ -214,7 +114,6 @@ dévisageaient avec une curiosité blessante. Il devait
 traverser la pièce trop cirée, pour aller baiser ia main
 de Leurs Altesses ; et plus il grandissait, plus il deve-
 à nait gauche; car il se trouvait ridicule, et son orgueil
-souffrait.
 
 Ensuite, il se mettait au piano, et il devait jouer pour
 ces imbéciles : — illes jugeait tels. — Il y avait des
@@ -248,7 +147,6 @@ rentrant chez lui, l'argent qu'il avait reçu lui pesait
 si fort, qu'il le jeta en passant par le soupirail d'une
 cave. Et puis, immédiatement après, il eût fait des
 bassesses pour le ravoir; car, à la maison, on devait
-plusieurs mois au boucher.
 
 Ses parents ne se doutaient guère de ces souffrances
 d'orgueil. Ils étaientravis de sa faveur auprès du prince.
@@ -268,7 +166,6 @@ s'arrangeait toujours pour rester chez Louisa, sous un \
 prétexte ou sous un autre. Il attendaït le retour de son
 petit-fils avec une impatience d'enfant; et, quand Chris14
 
-LE MATIN
 -tophe rentrait, il commençait par lui adresser, d'un air
 détaché, quelques questions indifférentes, comme :
 
@@ -280,8 +177,6 @@ détaché, quelques questions indifférentes, comme :
 quelque chose de nouveau.
 
 Ou bien quelque compliment ingénieux, afin de l'ama-
-
-s douer :
 
 — Salut à notre jeune gentilhomme !
 
@@ -337,8 +232,6 @@ Grand-père avait aussi ses amis: l'organiste, le ta- 5
 pissier, l'horloger, la contrebasse, de vieilles gens
 bavardes, qui ressassaient toujours les mêmes plai16
 
-Re DA  APAMRE L M TTU / N TOO
-LE MATIN
 santeries, et se lançaient dans d'interminables discussions sur l'art, sur la politique, ou sur les généalogies
 des familles du pays, — bien moins intéressés par les
 sujets dont ils parlaient, qu'heureux de parler et de
@@ -394,12 +287,10 @@ cacher son parfait mépris pôur l'art et les artistes ; il
 l'affichait plutôt, pour le plaisir d'humilier ses parents
 musiciens ; et il se livrait, sur le compte des uns et des
 autres, à de mauvaises plaisanteries, dont on riait
-lâchement. ;
 
 C'était surtout Christophe, qui était pris pour cible
 des railleries de son oncle; et il n'était pas patient.
 
-LE MATIN
 Il se taisait, et serrait les dents, l'air mauvais. L'autre
 s'amusait de sa rage muette. Mais, un jour qu'à table
 Théodore le tourmentait plus que de raison, Christophe, hors de lui, lui cracha au visage. Ce fut une
@@ -457,10 +348,6 @@ Gottfried, quand celui-ci était au pays. Il se rapprochait
 de lui de plus en plus, et il sympathisait avec son À
 humeur indépendante. IL comprenait si bien, maintenant, le plaisir que Gottfried trouvait à courir sur les ;
 chemins, sans être lié nulle part! Souvent, ils allaient ÿ
-20 L L
-ed
-
-LE MATIN
 
 ensemble, le soir, dans la campagne, sans but, droit
 devant eux; et comme Gottfried oubliait toujours
@@ -495,8 +382,6 @@ collines. Les ténèbres du ciel et de l'eau se fondaient.
 Le fleuve était sans un pli. Tous les bruits s'éteignaient.
 La barque semblait glisser dans la nuit elle-même.
 Glissait-elle ? Flottait-elle ? Restait-elle immobile ?.…
-
-l
 
 L + }l + < De, ANS RSR Cha ee da se
 Jean-Christophe
@@ -552,7 +437,6 @@ qui lui taisait ses peines, mais d'un de ses petits-fils, —
 
 il entrait dans des colères terribles; et il y avait entre
 
-AS
 Jean-Christophe
 
 les deux hommes des scènes à faire trembler. Ils étaient
@@ -584,8 +468,6 @@ rendre justice à tout ce que le Seigneur a créé d'excellent. Il n'était pas 
 que cette mesure était copieuse, et que dans son verre
 une raison plus débile se fût infaïliblement noyée. IL
 
-°
-LE MATIN
 avait bon pied, bon @&il, et une activité infatigable. A
 six heures, il était levé, et faisait méticuleusement sa
 toilette; car il avait le souci du décorum, et le respect
@@ -605,15 +487,12 @@ trouvait, s'invitant au besoin chez les gens. Il ne rentrait qu'au soir, la nuit
 lit, avant de fermer l'œil, une page de sa vieille Bible;
 et, la nuit, — car il ne dormait pas plus d'une ou deux
 heures de suite, — il se levait pour prendre un de ses
-vieux bouquins, achetés d'occasion : histoire, théologie,
 littérature, ou sciences; il lisait au hasard quelques
 pages qui l'intéressaient et qui l'ennuyaient, qu'il ne
 comprenait pas bien, mais dont il ne passait pas un
 mot, — jusqu'à ce que le sommeil le reprit. Le dimanche,
 il allait à l'oflice, se promenait avec les enfants, et
 jouait aux boules. — Jamais il n'avait été malade, que
-
-ul
 
 Jean-Christophe
 d'un peu de goutte aux doigts de pied, qui le faisait
@@ -641,9 +520,7 @@ main; mais il ne lisait guère : il rêvassait, en écoutant
 la crécelle endormante des cigales : et, machinalement,
 il suivait les mouvements de grand-père. Le vieux lui
 tournait le dos; il était courbé, et arrachait les mauvaises herbes. Soudain, Christophe le vit se relever,
-: 26
 
-LE MATIN ÿ
 battre l'air de ses bras et tomber comme une masse, la
 face contre terre. Une seconde, il eut envie de rire.
 Puis il vit que le vieux ne bougeaït pas. Il l'appela, il
@@ -672,7 +549,6 @@ sa mère, comme s'il était poursuivi. Il fit irruption
 dans la cuisine, avec des cris affreux. Louisa épluchait
 des légumes. Il se jeta sur elle et l'étreignit avec déses-
 
-SN
 Jean-Christophe
 S poir, pour qu'elle vint à son secours. La figure convulsée par ses sanglots, il pouvait à peine parler. Mais dès
 le premier mot, elle comprit. Elle devint toute blanche,
@@ -706,8 +582,6 @@ penché sur le lit, empêchait de voir celui qui y était
 couché. Le cœur de Christophe battait à se rompre.
 Louisa fit agenouiller les enfants au pied du lit. Chris: ,
 
-A PR ES A a TN Re EE Ten" FAR AN TPE A TE
-LE MATIN
 tophe se risqua à regarder. Il s'attendait à quelque
 chose de si terrifiant, après le spectacle de cet aprèsmidi, qu'au premier coup d'œil il fut presque soulagé.
 Grand-père était immobile, et semblait dormir. L'enfant
@@ -731,7 +605,6 @@ il ouvrit la bouche; un effroi indicible se peignit sur
 ses traits. i
 
 — Mais alors... — il bégayait, — mais alors, je vais
-mourir !
 
 L'accent terrible de. cette voix perça le cœur de
 Christophe; jamais elle ne devait plus sortir de sa
@@ -740,13 +613,9 @@ un petit enfant. Puis l'engourdissement le reprit ; mais
 sa respiration devenait encore plus pénible; il se plai-
 
 . gnait, il remuait les mains, il semblait lutter contre le
-29 It.
 
 Jean-Christophe :
 sommeil mortel. Dans sa demi-conscience, une fois, il
-\ appela:
-
-— Maman ! ;
 
 O l'impression poignante que ce balbutiement d'angoisse du vieux homme, appelant sa mère, comme
 Christophe eût fait lui-même, — sa mère dont jamais
@@ -773,7 +642,6 @@ côté de l'oreiller. Et tout se tut.
 Ce ne fut que quelques minutes après, au milieu des
 sanglots, des prières, de la confusion causée par la
 
-LE MATIN ù
 mort, que Louisa aperçut l'enfant, blème, les yeux dilatés, la bouche crispée, qui serrait convulsivement la
 poignée de la porte. Elle courut à lui. Il fut pris d'une
 crise dans ses bras. Elle l'emporta. Il perdit connaissance. Il se retrouva dans son lit, hurla d'effroi, parce
@@ -797,8 +665,6 @@ mit à pleurer. Gottfried se leva, et l'embrassa.
 — Ah! oncle, oncle ! gémissait l'enfant, en se serrant
 contre lui.
 
-— Pleure, disait Gottfried, pleure !
-
 Il pleurait aussi.
 
 Quand il fut un peu soulagé, Christophe essuya ses
@@ -815,13 +681,9 @@ L'enfant insistait.
 
 — Seulement une chose, une seule !.. ù
 
-— Quoi?
-
 Christophe hésita : AU
 
 , — Ah! oncle, demanda-til, où est-il maintenant?
-
-Gottfried répondit :
 
 — Il est avec le Seigneur, mon enfant.
 
@@ -839,9 +701,7 @@ Il continua d'une voix itremblante : ;
 
 Christophe fut soulagé. Puis, à la pensée qu'il ne
 reverrait plus le cher grand-père, il pleura de nouveau,
-amèrement.
 
-— Pauvre petit chat ! répétait Gottfried, en regardant
 l'enfant avec commisération.
 
 Christophe attendait que Gottfried le consolât ; mais
@@ -865,9 +725,7 @@ Christophe secoua la tête avec révolte.
 
 — Il faut se soumettre, mon enfant, répéta Gott-
 
-LE MATIN
 fried. 11 l'a voulu là-haut. Il faut aimer ce qu'Il
-veut. :
 
 — Je le déteste! cria Christophe haineusement, en
 montrant le poing au ciel.
@@ -890,7 +748,6 @@ lui le nom du défunt, sa figure s'allonge et prend un air
 lugubre; mais, l'instant d'après, il recommence à
 parler et à gesticuler avec animation. Il est sincèrement
 afligé ; mais il lui est impossible de rester sous une
-impression triste.
 
 Louisa, passive, résignée, a accepté ce malheur,
 comme elle accepte tout. Elle a ajouté une prière à ses
@@ -908,8 +765,6 @@ Louisa emmène quelquefois Christophe avec elle,
 dans ses visites au cimetière. Christophe a un dégoût
 affreux pour cette terre grasse, revêtue d'une sinistre
 
-Re.
-LE MATIN
 parure de fleurs et d'arbres, et pour l'odeur lourde qui
 flotte au soleil, mêlée à l'haleine des cyprès sonores.
 Mais il n'ose avouer sa répugnance, parce qu'il se la
@@ -952,18 +807,11 @@ sible; et il avait beau se briser le front, et reconnaître qu'il n'était pas l
 fut une lutte de tous les instants contre la férocité d'un
 Destin, qu'il ne pouvait pas admettre. 4
 
-ï
-
-e 1
-
-/ K
-
 A l'obsession de ces pensées, la dureté même de la
 vie vint faire diversion. La ruine de la famille, que
 Jean-Michel retardait seul, se précipita, dès qu'il ne
 fut plus là. Avec lui les Krafft avaient perdu leurs
 meilleures ressources ; et la misère entra dans la
-maison.
 
 Melchior y ajouta encore. Loin de travailler davantage, il s'abandonna tout à fait à son vice, quand il
 fut délivré du seul contrôle qui le retint. Presque
@@ -985,8 +833,6 @@ de dire et de faire des sottises! Ne s'avisa-t-il pas,
 un soir, de vouloir exécuter son grand concerto de violon, au milieu d'un acte de la Walküre! On eut
 toutes les peines du monde à l'en empêcher. Il arrivait
 aussi qu'il éclatât de rire, en jouant, pendant la repré-
-
-Let
 
 Jean-Christophe
 
@@ -1017,13 +863,8 @@ ses efforts, il était rare qu'il réussit à conduire Mel- 1
 chior jusqu'au bout. Arrivé au tournant de la rue, k:
 Melchior déclarait qu'il avait un rendez-vous urgent É
 
-38 #
-l
-
 | ride
-? \
 
-LE MATIN |
 avec quelques amis, et aucun argument ne pouvait lui
 persuader de manquer à cet engagement. Il était même
 prudent de ne pas trop insister, si on ne voulait s'exposer à une scène d'imprécations paternelles, qui attirait les voisins aux fenêtres.
@@ -1087,10 +928,7 @@ tume. Ii dédaigna donc d'approfondir la chose, et il
 se mit à causer avec son père, qui, assis au coin du
 feu, l'interrogeait sur sa journée avec une affecta- t
 
-4o
-
 OR M et
-LE MATIN
 
 tion d'intérêt, auquel il n'était point fait. Tandis qu'il
 
@@ -1118,8 +956,6 @@ pas le temps de se garer. L'enfant l'avait saisi à la
 
 _ gorge, et lui criait :
 
-— Voleur!
-
 Ce ne fut qu'un éclair. Melchior se secoua, et envoya ;
 rouler contre le carreau Christophe, qui se cramponnait avec fureur. La tête de l'enfant heurta contre les
 chenets. Christophe se releva sur les genoux, le front
@@ -1133,8 +969,6 @@ tremblait de rage. Melchior se mit à trembler aussi. Il
 s'assit et se cacha la figure dans ses mains. Les deux
 petits s'étaient sauvés, en poussant des cris aigus. Au
 vacarme succéda le silence. Melchior gémissait des
-
-4x
 
 Jean-Christophe
 paroles vagues. Christophe, collé au mur, ne cessait
@@ -1154,8 +988,6 @@ pas le regarder.
 
 Christophe fit un pas, et dit :
 
-— L'argent !
-
 Melchior, annihilé, tira l'argent de sa poche, et le
 remit à son fils. Christophe se dirigea vers la porte. |
 Melchior l'appela :
@@ -1163,17 +995,14 @@ Melchior l'appela :
 — Christophe !
 
 Christophe s'arrêta. Melchior reprit, d'une voix
-tremblante :
 
 — Mon petit Christophe! Ne me méprise pas!
 
 Christophe se jeta à son cou, et sanglota :
 
 — Papa, mon cher papa! Je ne te méprise pas! Je
-suis si malheureux !
 
 Ils pleuraient bruyamment ensemble. Melchior se
-lamentait :
 
 — Ce n'est pas ma faute! Je ne suis pourtant pas
 méchant. N'est-ce pas, Christophe? Voyons, je ne suis
@@ -1186,13 +1015,7 @@ les mains. Christophe réfléchit, et dit :
 
 — Sais-tu, papa, il faudrait.
 
-LE MATIN
-
-II s'arrêta.
-
 — Quoi donc ?
-
-— J'ai honte... |
 
 — Pour qui? demanda naïvement Melchior.
 
@@ -1232,8 +1055,6 @@ plus, Melchior battre Christophe, et le dépouiller de
 son argent, elle n'y tint plus ; et, seule avec l'enfant qui
 pleurait, elle alla prendre la lettre, la lui donna, et dit :
 
-— Va!
-
 Christophe hésitait encore; mais il comprit qu'il n'y
 avait plus d'autre moyen, si on voulait sauver de la
 ruine totale le peu qui leur restait. Il alla au palais. Il
@@ -1258,7 +1079,6 @@ la main sur le bouton de la porte, jusqu'à ce que l'arrivée de quelqu'un le fo
 
 Tout le monde le connaissait aux bureaux.Il demanda
 
-LE MATIN
 à parler à Son Excellence l'intendant des théâtres,
 baron de Hammer Langbach. Un employé, jeune, gras,
 chauve, le teint fleuri, avec un gilet blanc et une cravate rose, lui serra familièrement la main, et se mit à
@@ -1288,7 +1108,6 @@ pense. Toi-même, tu le penses.
 — Non! cria rageusement Christophe.
 
 — Quoi! Tu ne le penses pas ? Tu ne penses pas qu'il
-boit ?
 
 — Ce n'est pas vrai! dit Christophe.
 
@@ -1301,8 +1120,6 @@ L'employé haussa les épaules : ÿ
 — Parce que... dit Christophe, — il ne sut plus que
 dire, — parce que, comme je viens toucher mon traitement, chaque mois, il est tout simple que je prenne en
 
-45 III.
-
 Jean-Christophe |
 même temps celui de mon père. Il est inutile que nous |
 nous dérangions tous deux... Mon père est très occupé! D
@@ -1313,7 +1130,6 @@ Christophe, froissant le papier dans sa main, fit mine 1
 de sortir. L'autre se leva, et lui prit le bras.
 
 — Attends un moment, dit-il, je vais arranger les 1
-choses. , 4
 
 Il passa dans le cabinet du directeur. Christophe *-
 attendit, sous les regards des autres employés. Son 4
@@ -1324,7 +1140,6 @@ sauver, avant qu'on lui rapportât la réponse; et il s'y 1
 disposait, quand la porte se rouvrit :
 
 — Son Excellence veut bien te recevoir, lui dit le |
-trop serviable employé. ;
 
 Christophe dut entrer.
 
@@ -1335,7 +1150,6 @@ lunettes d'or, sans s'interrompre d'écrire, ni répondre
 par un signe de tête à ses saluts embarrassés.
 
 — Ainsi, dit-il après un moment, vous demandez, l
-monsieur Krafft ?..… È
 
 — Votre Excellence, dit précipitamment Christophe, ;
 je vous prie de me pardonner. J'ai réfléchi. Je ne À
@@ -1347,10 +1161,6 @@ Christophe, toussota, et dit : } ;
 
 — Voudriez-vous me donner, monsieur Krafft, la |
 lettre que vous tenez à la main? À
-
-46 |
-
-LE MATIN
 
 Christophe s'aperçut que le regard de l'intendant }
 était fixé sur le papier qu'il continuait, sans y penser,
@@ -1369,7 +1179,6 @@ puis l'interrompit, et dit, avec un éclair malicieux dans
 les yeux :
 
 — C'est bien, monsieur Krafft. La demande est
-accordée. À
 De la main, il lui donna congé, et se replongea dans
 
 ses écritures.
@@ -1415,7 +1224,6 @@ très étonné et très soulagé de voir son père accepter
 sa situation du jour au lendemain, et se vanter même
 d'avoir eu l'initiative de ce sacrifice.
 
-Cela n'empêcha point Melchior d'aller larmoyer au
 dehors qu'il était dépouillé par sa femme et par ses
 enfants, qu'il s'était exténué pour eux, toute sa vie, et
 que maintenant on le laissait manquer de toui. Il
@@ -1427,9 +1235,6 @@ Melchior n'insistait pas. Il se sentait étrangement inti- 1
 midé devant les yeux sévères de cet enfant de quatorze
 
 |
-
-Al
-LE MATIN
 
 ans, qui le jugeait. Il se vengeait en cachette par
 quelque mauvais tour. Il allait au cabaret, buvait et
@@ -1446,7 +1251,6 @@ resta donc seul chargé de soutenir son père, ses frères,
 et toute la maison.
 
 Ainsi, Christophe devint chef de famille, à quatorze
-ans.
 
 Il accepta résolument cette tâche écrasante. Son
 orgueil lui défendait de recourir à la charité des autres.
@@ -1474,11 +1278,6 @@ matins, depuis neuf heures, il enseignait le piano à des
 fillettes, souvent plus âgées que lui, qui l'intimidaient |
 horriblement par leurs coquetteries, et qui l'exaspé- 1
 
-50 |
-}
-
-LE MATIN
-
 raient par la niaiserie de leur jeu. Elles étaient en
 musique d'une stupidité parfaite ; en revanche, elles possédaient toutes, plus ou moins, un sens aigu du ridicule ; et leur regard moqueur ne faisait grâce à Christophe d'aucune de ses maladresses. C'était une torture
 pour lui. Assis à côté d'elles, sur le bord de sa chaise,
@@ -1504,8 +1303,6 @@ il emportait dans sa poche un morceau de pain et de
 charcuterie qu'il mangeait pendant l'entr'acte. Il suppléait parfois Tobias Pfeiffer, le Musik Direktor, qui
 s'intéressait à lui, et l'exerçait à diriger de temps en
 temps à sa place les répétitions d'orchestre. Il lui
-
-I
 
 Jean-Christophe |
 fallait aussi continuer lui-même son éducation musicale. D'autres leçons de piano remplissaient sa journée,
@@ -1539,9 +1336,6 @@ enlevait la conscience de ses peines. {
 Mais, dès l'aube en été, bien avant en hiver, il fallait
 qu'il se levât. IL voulait travailler pour lui: c'était le M
 
-i
-LE MATIN
-
 seul moment de liberté qu'il eût, entre cinq et huit
 heures. Encore en devait-il perdre une partie à des
 travaux de commande; car son titre de Hof Musicus, et sa faveur auprès du grand-duc, l'obligeaient à des compositions officielles pour les fêtes de
@@ -1565,7 +1359,6 @@ non seulement de pensée, mais de style ; elle apprend
 la sobriété à l'esprit, comme au corps. Quand le temps
 est compté, et les paroles mesurées, on ne dit rien de
 trop, et on prend l'habitude de ne penser que l'essentiel. Ainsi on vit double, ayant moins de temps pour
-vivre.
 
 C'est ce qui advint pour Christophe. Il prenait sous
 le joug pleine conscience de la valeur de la liberté ; et ï
@@ -1602,9 +1395,6 @@ qu'il écrivait, il s'apercevait que ce qu'il avait écrit ne
 valait rien; il le déchirait, il brûlait tout ce qu'il faisait. Et, pour achever sa honte, il fallait qu'il vitcon- 4
 servées, sans pouvoir les anéantir, ses œuvres oflicielles, les plus médiocres de toutes, — le concerto :
 
-54 ;
-
-LE MATIN
 l'Aigle royal, pour l'anniversaire du prince, — et la
 tantate : l'Hymen de Pallas, écrite à l'occasion du |
 mariage de la princesse Adélaïde, — publiées à grands
@@ -1635,8 +1425,6 @@ Christophe, et n'admettait pas son autorité sur la maison, bien qu'il trouvât 
 avait épousé les rancunes de Théodore et de Melchior &
 contre lui, et il répétait leurs racontars ridicules. Aucun
 des deux frères n'aimait la musique ; et Rodoiphe afïectait de la mépriser, comme son oncle, par esprit d'imitation. Gênés par la surveillance et les semonces de
-
-55 j
 
 Jean-Christophe A
 
@@ -1671,7 +1459,6 @@ faiblesse d'en devenir jaloux. Il cherchait à les rabaisser. C'était bête à 
 les épaules de mépris; il n'y avait même pas à se 3
 fâcher ; car il était inconscient du mal qu'il faisait, et
 
-: LE MATIN
 aigri par sa déchéance. Christophe se taisait ; il eùt
 craint, s'il parlait, de dire des choses trop dures ; mais
 il avait le cœur ulcéré.
@@ -1735,7 +1522,6 @@ tomber brusquement raide mort. — Toujours cettehorrible peur d'être arrêté 
 
 58 1
 
-LE MATIN Nr
 l'âge, l'obsédait, l'accablait, le talonnait à la fois. Ah!
 s'il fallait mourir, au moins, pas maintenant, pas « avant d'être vainqueur !.…
 
@@ -1803,74 +1589,23 @@ Hélas ! S'il devient un jour l'égal de ceux qu'il aime,
 s'il atteint à ce bonheur lumineux qu'il envie, il verra
 son illusion.
 
-IV
-
-H}
 |
 
-L,
-
-\
-(
-
-i ÿ à
-
-: 0 ;
-:
-
-- . £
-: oi
-
-à 1 PAAUNS NE RPM CES UP CEA {
 LA EEMeR 1e AUS ci A OL OMR RE EN ME à
 Aiqot AD US NRA PAR ART UT en 46 be: ne De à
-ARC NÉMRLS RE FRA TEN AU ONE D MER retenir
 del ANS L'ART Cut û « TETE TE (Br
 Fi + OR PAS Hit 5 D À À re } il L FRS AW nr
-MIRE. 3 FRA \ 4 ; +108 A
 f d Lure CA hs eu À L'a ï v Pi LEA É
-0 ou. 1
-4 MTL Li Ni Eofe 4 * A } La à
 Na (F1 PER ot ! 41 RCE ê RATER 4 Are Le
-x LR S she + AN TES (LAB VES L'AES
 AD ve HR LA u ; è SM Are PE « L' CHR TEN TOR EE d me rl art UE
-tr EMEA Er SIN à p S'ATIE
 ne moe ce EN L : M7 ; An sn?
-HAT date 1 ÿ , Ve
 # RARES UE. + 2 } TE
-FU ‘> « 2 LÉ Ta : À } de .
-r li a © À
 #1 1 Leg TE . , 40° L "Far RATES
 LIT “ ttes de a SERA 2 AQU |
-s + 19e à
 
 el ne FACE Te SEEN r
-“u “ Ne GR + EU Per j; RÉ 4° EUR INÉS A ATV:
-de: ! # à “À
-= bs7 1 à
-à | il
-
-r 4
-À
-Fe e 3 ; “#
-
-$
-à L
-L
-« 4 |
-4 (
-4 }
-£ ê L
-ie ; C
-, 2 « - ve Rs
-: à % ti
-à
-- Re.
 
 | AM RERS
-nt
-;
-(à
 
 Un dimanche que Christophe avait été invité par
 son Musik Direktor à venir diner dans la petite maison
@@ -1900,7 +1635,6 @@ jusqu'aux oreilles, tira un journal de sa poche, et
 | ni minutes après, il se précipita pour ramasser le chapeau
 lé de Christophe, qui était tombé. Christophe, surpris
 5e par tant de politesse, regarda de nouveau le jeune
-"4
 | 4 65 iv.
 
 Jean-Christophe
@@ -1920,14 +1654,12 @@ gothiques et de cheminées d'usines aux fumées noires,
 vignes blondes, et rochers légendaires. Et comme il
 
 - s'extasiait tout haut, son voisin timidement, d'une
-voix étranglée, hasarda quelques détails historiques
 sur les ruines qu'on voyait, savamment restaurées
 
 ‘et revêtues de lierre : il avait l'air de se faire un
 cours à lui-même. Christophe, intéressé, le questionna.
 L'autre se hâtait de répondre, heureux de montrer
 sa science; et, à chaque phrase, il s'adressait directement à Christophe, en l'appelant : « Monsieur le Hof
-Violinist ».
 
 — Vous me connaissez donc ? demanda Christophe.
 
@@ -1940,7 +1672,6 @@ sentait, et il en était agréablement surpris. Il n'avait
 pas l'habitude qu'on lui parlât sur ce ton de respect
 ému. Il continua d'interroger son voisin sur l'histoire |
 
-LE MATIN
 des pays qu'on traversait ; l'autre faisait étalage de ses
 connaissances toutes fraîches ; et Christophe admirait
 sa science. Mais ce n'était là que le prétexte de leur
@@ -1981,10 +1712,7 @@ bouger, glissa de nouveau, timidement : :
 
 Christophe, étendu tout de son long, les mains derrière la tête, fit tranquillement :
 
-— Zut!
-
 Puis il regarda Otto, vit sa mine effarée, et se mit à
-MOVE
 
 — Il fait trop bon ici, expliqua-t:il. Je n'irai pas.
 Qu'ils m'attendent !
@@ -2001,7 +1729,6 @@ fût : il était méthodique et avait besoin de s'y préparer
 à l'avance. Mais la question de Christophe était posée
 d'un ton, qui n'admettait guère la possibilité d'un
 refus. Il se laissa donc entraîner, et ils se remirent à
-causer.
 
 A l'auberge, leur feu tomba. Ils étaient préoccupés
 tous deux de la grave question de savoir qui offrait le
@@ -2015,9 +1742,6 @@ Christophe comprenait son intention; et il renchérissait
 
 sur lui en commandant d'autres plats recherchés; il
 
-n]
-
-LE MATIN
 voulait lui montrer qu'il était à son aise autant que
 qui que ce fût. Et Diener ayant fait une nouvelle
 tentative, en tâchant de s'attribuer le choix des vins,
@@ -2062,8 +1786,6 @@ gance d'Otto, à la distinction de ses manières, — tout
 est relatif en ce monde, — et à son grand savoir,
 ce savoir qui lui manquait totalement et dont il avait
 
-soif. :
-
 Engourdis par le repas, et les coudes sur la table, ils
 parlaient, et s'écoutaient parler l'un l'autre, avec des
 yeux attendris. L'après-midi s'avançait. Il fallait partir.
@@ -2081,8 +1803,6 @@ les cimes flottaient encore dans la lumière rosée ; elles
 ondulaient gravement, avec un bruit de houle : le tapis
 d'aiguilles violettes amortissait le son des pas. Ils se
 
-LE MATIN
-
 taisaient tous deux. Christophe sentait son cœur péné-
 
 tré d'un trouble étrange et doux, il était ému et heureux:
@@ -2096,16 +1816,10 @@ Des mouches bourdonnaient, très haut, dans un rayon
 de soleil. Une branche sèche tomba. Christophe saisit
 
 la main d'Otto, et demanda, d'une voix qui trem- »
-blaït :
 
 — Est-ce que vous voulez être mon ami ?
 
-Otto murmura :
-
-— Oui. ÿ
-
 Ils se serrèrentla main ; leur cœur palpitait. Ils osaient
-à peine se regarder.
 
 Après un moment, ils se remirent en marche. Ils
 étaient à quelques pas l'un de l'autre, et ils ne se dirent
@@ -2132,15 +1846,12 @@ furent soulagés de se quitter, tant ils étaient las de La
 Jean-Christophe
 tension où ils vivaient depuis quelques heures, et de la
 peine que leur coûtait le moindre mot qui rompait le
-silence. 1
 Christophe revint seul dans la nuit. Son cœur chantait : QJ'ai un ami, j'ai un ami! » Il ne voyait rien. Il
 ! n'entendait rien. Il ne pensait à rien autre.
 bd Il tombait de sommeil, et s'endormit, à peine rentré.
 Mais il fut réveillé deux ou trois fois dans la nuit,
 comme par une idée fixe. Il se répétait : « J'ai un ami »,
 et se rendormait aussitôt.
-
-L]
 
 Le matin venu, il lui sembla qu'il avait rêvé tout,
 cela. Pour s'en prouver la réalité, il entreprit de se rappeler les moindres détails de la journée précédente. Il
@@ -2155,7 +1866,6 @@ lire. Elle était écrite sur du papier bleu pâle, d'une
 très corrects :
 
 « Cher monsieur Christophe, — oserai-je dire : très
-honoré ami?
 
 « Je pense beaucoup à notre partie d'hier, et je vous
 remercie immensément de vos bontés pour moi. Je
@@ -2166,8 +1876,6 @@ fâché seulement que vous ayez dépensé tant d'argent
 pour ce diner. Quelle superbe journée ! N'est-ce pas
 qu'il y a quelque chose de providentiel dans cette étonnante rencontre ? IL me semble que c'est le Destin lui-
 
-l'A
-
 . Jean-Christophe
 même qui'a voulu nous réunir. Comme je me réjouis de
 vous revoir dimanche ! J'espère que vous n'aurez pas
@@ -2176,8 +1884,6 @@ de monsieur le Hof Musik Director. Je serais si fâché
 que vous eussiez des contrariétés à cause de moi!
 
 « Je suis pour toujours, très cher monsieur Christophe, votre très dévoué serviteur et ami
-
-« Otto Diener »
 
 « P. S.— Ne venez pas, s'il vous plaît, dimanche, me
 prendre à la maison. Il vaut mieux, si vous le permettez, que nous nous rencontrions au Schlossgarten. »
@@ -2199,9 +1905,6 @@ j'étais triste et seul avant de te connaître? Ton amitié
 m'est le plus grand des biens. Hier, j'ai été heureux,
 heureux ! C'est la première fois de ma vie. Je pleure
 
-74 ;
-
-LE MATIN
 de joie en lisant ta lettre. Oui, n'en doute pas, mon
 aimé, c'est le Destin qui nous rapproche; il veut que
 nous soyons amis, pour accomplir de grandes choses.
@@ -2264,8 +1967,6 @@ baguette; et il se disait que s'il manquait trois fois son
 coup, Otto ne viendrait pas, mais que s'il touchait
 juste, Otto paraîtrait aussitôt. Et, malgré son atten- …
 
-; LE MATIN
-
 tion et la facilité de l'épreuve, il venait de manquer son but trois fois, lorsqu'il aperçut Otto qui arrivait de son pas tranquille et posé : car Otto restait
 toujours correct, même quand il était le plus ému.
 Christophe courut à lui, et, la gorge sèche, lui dit bonjour. Otto répondit : bonjour; et ils ne trouvèrent plus
@@ -2295,8 +1996,6 @@ Mais ils ne pouvaient se résoudre à en convenir.
 
 Ils errèrent tout le jour dans la campagne, sans réus-
 
-:
-\
 Jean-Christophe 4
 sir à secouer la contrainte maussade qui pesait sur
 eux. C'était jour de fête : les auberges et les bois étaient |
@@ -2325,9 +2024,6 @@ Christophe et Otto, couchés sur les feuilles mortes,
 dans l'ornière d'un sentier, attendaient, ne respirant
 plus. Les aboiements se turent ; le chien avait perdu
 la piste; on l'entendit japper encore une fois, au loin;
-; 78
-
-LE MATIN
 
 puis, le silence descendit sur les bois. Nul bruit, que le
 grouillement mystérieux des millions de petits êtres,
@@ -2369,9 +2065,7 @@ initiales enlacées. Mais leur bonne humeur avait raison
 de leur sentimentalité; et dans le train de retour, ils,
 éclataient de rire, chaque fois qu'ils se regardaient. Ils
 se quittèrent, en se persuadant qu'ils avaient passé une
-journée « colossalement ravissante » (kolossal ent-:
 zückend) : et cette conviction s'affirma dès qu'ils se
-retrouvèrent seuls.
 
 Ads SES ir à d
 
@@ -2403,11 +2097,7 @@ vieux révolutionnaire, les conventions sociales et les
 lois de l'État. Otto écoutait, scandalisé et ravi; il
 s'essayait timidement à se mettre à l'unisson ; mais il
 avait soin de regarder autour de lui, si personne ne
-pouvait entendre.
 
-81 Ye
-
-*
 Jean-Christophe L
 Christophe ne manquait jamais, dans leurs courses
 ensemble, de sauter les barrières d'un champ, aussitôt qu'il voyait un écriteau qui le défendait, ou bien
@@ -2436,9 +2126,6 @@ préférences personnelles. Il lui eût sacrifié bien davantage. Il était dév
 souhaitait passionnément qu'une occasion se présentât
 de mettre son amitié à l'épreuve. Il espérait, dans ses
 promenades, rencontrer quelque danger, et se jeter au
-
-si
-LE MATIN
 
 devant. Il fût mort avec délices pour Otto. En attendant, il veillait sur lui avec une sollicitude inquiète, il
 lui donnait la main dans les mauvais pas, comme à une
@@ -2474,7 +2161,6 @@ moi-même ». Ils faisaient une consommation effroyable
 Jean-Christophe
 du mot: « âme ». Ils peignaient avec des couleurs tragiques la tristesse de leur sort, et s'afiligeaient de
 jeter dans l'existence de leur ami le trouble de leur
-destinée. ;
 
 — Je t'en veux, mon amour, écrivait Christophe, de
 la peine que je te cause. Je ne puis supporter que tu
@@ -2513,8 +2199,6 @@ doux et frais comme un rêve. Pourvu qu'il ne passe
 
 — Comme tu es stupide, mon aimé, répondait Christophe. Pardonne, mais ta crainte pusillanime m'in-
 
-Q LE MATIN
-
 digne. Comment peux-tu me demander si je puis cesser
 de t'aimer! Vivre, pour moi, c'est t'aimer. La mort ne
 peut rien contre mon amour. Toi-même, tu ne pourrais
@@ -2541,7 +2225,6 @@ tels, que, me briserais-tu l'âme, un éclat vivrait toujours pour t'aimer !
 — Puissance céleste ! s'écriait Christophe. J'ai fait
 pleurer mon ami! Injurie-moi! Bats-moi! Foule-moi
 aux pieds! Je suis un misérable ! Je ne mérite pas ton
-amour !
 
 Ils avaient des façons spéciales d'écrire leur adresse
 sur la lettre, de poser le timbre-poste, renversé, obliquement, dans un coin de l'enveloppe en bas, et à
@@ -2571,7 +2254,6 @@ Christophe continua :
 — Non, dit Otto, j'étais avec quelqu'un.
 
 Christophe avala sa salive, et demanda d'un ton qui
-voulait être indifférent :
 
 — Qui était-ce ?
 
@@ -2593,8 +2275,6 @@ voulait être indifférent :
 
 — Des fois.
 
-à LE MATIN
-
 — Ah ! répéta Christophe.
 
 Otto, qui n'était pas fâché de détourner la conversation, fit remarquer un oiseau, qui donnait des coups de …
@@ -2609,13 +2289,10 @@ minutes après, Christophe reprit brusquement :
 
 — Avec ton cousin ?
 
-— Oui. Pourquoi?
-
 — Pour rien.
 
 Otto n'aimait pas beaucoup son cousin, qui le harcelait de mauvaises plaisanteries. Mais un instinct de
 malignité bizarre le poussa à ajouter, après quelques
-instants :
 
 — Il est très aimable.
 
@@ -2623,14 +2300,11 @@ instants :
 
 (Il savait très bien qui.)
 
-— Franz.
-
 Otto attenditune réflexion de Christophe; mais celuici semblait n'avoir pas entendu; il taillait une baguctte
 dans un noisetier. Otto reprit :
 
 — Il est amusant. Il sait toujours des histoires.
 
-; Christophé sifila négligemment.
 | Otto surenchérit :
 
 — Et il est siintelligent,.… et distingué!
@@ -2639,14 +2313,10 @@ Christophe haussa les épaules, avec l'air de dire :
 
 — Quel intérêt cet individu peut-il bien avoir pour
 
-: moi ?
 | Et comme Otto, piqué, se disposait à continuer, il
 lui coupa brutalement la parole, et lui assigna un but
 pour y courir.
-* 87
-;
 
-\
 Jean-Christophe
 Ils ne touchèrent plus à ce sujet de tout l'après-midi ;
 mais ils se battaient froid, tout en affectant une politesse exagérée, inaccoutumée entre eux, surtout de la
@@ -2654,7 +2324,6 @@ part de Christophe. Les mots lui restaient dans la
 gorge. Enfin il n'y tint plus, et, au milieu du chemin,
 se retournant vers Otto qui suivait à cinq pas, il lui
 saisit les mains avec impétuosité, et se débonda d'un
-coup : |
 
 — Écoute, Otto! Je ne veux pas, je ne veux pas que
 tu sois si intime avec Franz, parce que... parce que tu
@@ -2663,7 +2332,6 @@ mieux que moi! Je ne veux pas! Vois-tu, tu es tout
 pour moi. Tu ne peux pas, tu ne dois pas... Si je ne
 l'avais plus, je n'aurais plus qu'à mourir. Je ne sais
 pas ce que je ferais. Je me tuerais. Je te tuerais.
-Non. Pardon !…
 
 Les larmes lui jaillissaient des yeux.
 
@@ -2704,7 +2372,6 @@ changeât de ton aussi, pris de peur, et promiît de ne
 plus recommencer. Il recommençait le lendemain.
 
 | Christophe lui écrivait des lettres furibondes, où il
-appelait :
 
 — Gredin ! Que je n'entende plus parler de toi! Je ne
 
@@ -2759,7 +2426,6 @@ A la rigueur, il eût pardonné à Otto de lui préférer
 d'autres amis; mais ce qu'il ne pouvait lui passer,
 c'était le mensonge. Otto n'était pas faux, ni hypo-
 
-LE MATIN
 crite : il avait une difficulté naturelle à dire la vérité,
 comme un bègue à articuler les mots; ce qu'il disait
 n'était jamais, ni tout à fait vrai, ni tout à fait faux;
@@ -2787,8 +2453,6 @@ souci du savoir-vivre. Il se mettait à l'aise, enlevait sa
 : veste, ouvrait son gilet, entrebâillait son col, relevait
 $ ses poignets de chemise, plantait son chapeau sur le
 3 bout de son bâton, et se dilatait à l'air. IL remuait les
-À 91
-{,
 
 Jean-Christophe
 
@@ -2802,8 +2466,6 @@ san, qui retourne de la foire. L'aristocratique Otto
 il apercevait une voiture sur la route, il s'arrangeait de
 
 façon à rester à dix pas en arrière, et il feignait de se
-
-promener seul.
 
 Christophe n'était pas moins embarrassant, lorsqu'à .
 l'auberge, ou dans le wagon, au retour, il se mettait à
@@ -2831,7 +2493,6 @@ peur de tous les instants, et ses observations ne servaient de rien : Christophe
 
 Un jour que Christophe, avec Otto sur les talons, se
 
-LE MATIN
 promenait comme chez lui au travers d'un bois particulier, en dépit, ou à cause des murs crénelés de tessons de bouteilles, qu'il leur avait fallu franchir, ils se
 trouvèrent nez à nez avec un garde, qui les accabla
 d'injures, et après les avoir tenus quelque temps sous
@@ -2871,8 +2532,6 @@ retomba, plus sinistre qu'avant. Otto, d'une voix tremblante, se décida à parl
 
 Christophe dit : :
 
-— Rentrons. +
-
 Mais il était trop tard. Une lumière aveuglante et bru-.
 
 ( tale jaillit, le ciel mugit, la voûte des nuages gronda.
@@ -2892,8 +2551,6 @@ il était venu. Mais ils étaient tous deux en un piteux
 état. A la vérité, Christophe était si débraillé, à
 l'ordinaire, qu'un peu plus de désordre ne le changeait guère. Mais Otto, si soigné, si soigneux de sa
 
-LE MATIN
-
 mise, faisait triste figure; il semblait sortir tout
 habillé du bain; et quand Christophe se retourna
 vers lui, il ne put, en le voyant, réprimer un bruyant
@@ -2906,7 +2563,6 @@ l'aventure plaisante, il essaya d'en rire. Mais elle
 n'était pas du goût d'Otto, qui garda un morne silence,
 le reste de la promenade. Ils revinrent en boudant,
 et ne se tendirent pas la main, au moment de se
-quitter.
 
 A la suite de cette équipée, ils ñe se virent plus
 
@@ -2927,7 +2583,6 @@ k pas de s'aimer sincèrement. Ils avaient un tel besoin
 1 oreiller, en se racontant des histoires de dévouement
 L - romanesque, dont il était le héros; il inventait des
 : aventures pathétiques, où il était fort, vaillant, intré-
-à - 3
 
 |
 
@@ -2950,8 +2605,6 @@ de l'autre, ils avaient le cœur inondé de tendresse.
 Elle débordait de toutes parts comme une source. Ils
 s'imaginaient chacun que son ami en était la cause.
 Ils ne savaient pas que c'était l'éveil de leur adolescence.
-
-\
 
 Christophe, qui ne se défiait de personne, laissait
 traîner ses papiers. Cependant une pudeur instinctive :
@@ -2980,8 +2633,6 @@ Peu après, il prit Ernst en flagrant délit de vol : le
 + petit drôle fouillait dans le tiroir de la commode où
 - Louisa renfermait l'argent. Christophe le secoua rude-
 … ment et il profita de l'occasion pour lui dire tout ce
-; 97
-VI
 
 Jean-Christophe
 
@@ -3014,9 +2665,6 @@ tuerait. Ernst se refusait aussi à parler.
 
 Christophe ne put ni manger, ni dormir. Il tremblait
 de fièvre et pleurait dans son lit. Ce n'était pas seulement pour lui, ce n'était pas seulement pour Otto qu'il
-
-HN :
-LE MATIN
 
 souffrait. IL se faisait en lui une révolution. Ernst
 ne se doutait guère du mal qu'il avait pu causer
@@ -3054,12 +2702,9 @@ fraternel, et qu'ils n'imaginaient pas de plus grand
 
 - malhonnêtes. Ils en arrivaient à voir le mal dans les
 
-L 99
-
 Jean-Christophe
 actes les plus innocents : un regard, un serrement de
 main; ils rougissaient, ils avaient de mauvaises
-pensées. Leurs rapports devenaient intolérables.
 
 Sans se donner le mot, ils se virent moins. Ils
 essayèrent de s'écrire; mais ils surveillaient toutes
@@ -3075,118 +2720,32 @@ qu'un timide avant-coureur, s'emparait à ce moment du
 cœur de Christophe, et y faisait pâlir toute autre lumière.
 
 TARA 2 ne AR AE LA ARE
-jf Se TIC # LT e OR ETRT REU FAT LA: LS FUEATES À
-2 à RAD MR AE ANUS ï 1 fe AIN PTT PU 7 ORAN, 6 CAR AE
-! ARE ee RE AA CRC MORTE 5 LC RARE
-21 OMAN mn :
 É mr sie | ad AU PEAU M LE 0 : : Ne: #
 e DHL RCE ET at Nota] MST #4 FRA , NEA
-1 1R UP ET NANTERRE ni l PAU AE ROLE 144 LT
-LR PRE oi mas 1 os TL: } ANR ARMES 411 NT
-LUNA mA ET s ft s 30% RE
 ARE pie un i \ÉLLTELS LATE
-Pr ASS POIDS Diet $ à F Le 1 MONO Ne CIRE
-SFR EEE EX AA Ar F4 0 117 RE
-4 Ra | À CAVE , * ARS in
-1 ER ENE À Pa 4 | ' CIE ARE
-} 4 1 À JA LPS
-* "AVC S D MD SUN tr \ DRE
-6 tea Y NOTA | A op | hé Ÿ is I ‘chti à VASTES
 | MODES PRE U Le 80 EU IR LE Ë [MAO
-: SF UT à 4 OANTÉ \ Ë Ares, |
-JARENEENREE Aa AUS NEA € d, ! { } #. le k
-ARR MINE Ta UMR VAN PRE LTÉE DEA 5 LE
-< à $: S'EURRUTRE "
 
-LH ARRNSE NE DDR AR EE EAU AU SENS SRE
 | EE A PE A
-ROLE NX 2) tnt AN RON PO EE
-MAR RASSEE k à MRC RAT EURE, ER ON
-sx # t Ê TR U EU ME v
 
 PARU Eten k ; ÿ 4 fre A NENI LR RSR RE CE MAT
-ia Five CD 2 He Fà 4 (2 HA À Er FA
 
 Ge PA GR F ta s Me LT MED TPS qu
-SAP Ya: ÿ : 222: VUE at eur 'AMPT EC
-RRQ f CAGE i Hi ÉTEYA VURARTENEUe
-
-LADEES 0 CSS RSS
-
-PRE HT | L'TEAT OMSTNTNRNEMRSESE
 
 ne a
 
-TR % | + MAN A D CRUE en ja
-
-NE $ ë M à 2? PME TE
 (Rex HER NL ET RAR
 
-: AS IN MR LAS ETUI ENSRSSS
-
-RAT 4 E PAIE KA ; : NON
-
-RECU GET 14 R ! CURE Lx N PC mn
-
-HN CRRSE” : a 2 VIA SRE
 SP ENES A vi CET
-VLC } A Re FES LATTES
 
-4 rie SH e th GTA FAUNE Ai AN FE Al my NETU:
-OS ENURNEENES ON A MEET ENREE On AU AT AR NON PM
-A SN Te Ver PAU ii LUN ra AZ D SU e 5 4 AMEL A
 one Ÿ tee ne GA ANUES ? ALFA En PDA
 SE et ARE Dr 3 A Lf EME
-EU MNT NS ; : FER)
-a: CANCER TON RAD Le k FLO NSSE
-ANNEES Fe : ROLE: |
-1 JET ESS (SPA RE © au Genet is é RAR"
-a DÉS EN TN Fa ; HATIRES
 : RER ex Ua fs TA 102 È
-Pre AT
 MA EAN S 3 nn M Prele
 é ‘# parte HU x d r RO Se || de e
-\RAMPE EN MRC d , (HR
-La MERS MANS: € : « x{-44
-SES AO EN Ca PAIE "ALRE LT
 LES AA BSD E TTRE rt KO Prar
-ART Ne NRA RES FAST
-NS re nets
-MAL à | {PA TENTE
-LEE Pre 2 " ART
-: MORE p'a d At
-(2100 Fr Aie à : ‘2
-er 9) ir À vi ue 1: VA PRÈENS
-AT À FEUX
-1 À ; % T0
-A Li 3 s 1:
-Ge ae Pre ï « 4): Li Pa
-\Qe AM ANT MOTORS à Ha b|
 EL L ‘al « "AUX \ ji nu FLE
 
 LI TR SPORE ANSE BAL SEA UT kajte ra AUTO PAR ÿ
-D Peel DT ATEN RC IN pre ARR FAUA
-D TP EL FA SE EN A DAS CO NT D RON por
-SA aER p'E ire PAG 4 HR AU à TANT DUC. *" A4
-ne fi 12 ni &
-LAS FAR ELU PP ERNEESS RU)
-IMAU LA MA 1 # x L 1 Pan € : 4
-RAP 1 LME RE #3
-HA : k s C HORS LE Ÿ 2 Dre
-TA RL NTUEE | : GENE
-LH ENME ! 3062) FIRE { CA
-VE + AU MUR ENS RE
-247 ARLES D RC EME Rive
-LTÉE : JS RER +
-A0" SNMP AN AE ER
-: | À CT x 1
-LES , ARCS LU AA
-16, 1 “ x Sr NT
-k L nn " 4, WTA he “ At
-MT Ne ÿ : re
-OT : « VAT 1:'1) PO
-ACER 1 7,
-FOCUS , fi : WA
 
 Quatre ou cinq mois avant ces événements, madame
 Josepha von Kerich, veuve depuis peu du conseiller
@@ -3217,8 +2776,6 @@ niveau de la crête du mur, à mesure qu'il grandissait ;
 maintenant, il pouvait passer les bras par-dessus, en se
 haussant sur la pointe des pieds ; et, malgré l'incom-
 
-10ù
-
 Jean-Christophe
 modité de cette position, il restait ainsi, le menton
 appuyé sur le mur, regardant, écoutant, tandis que le
@@ -3247,7 +2804,6 @@ les yeux vers la maison : les fenêtres étaient ouvertes ;
 le soleil se ruait à l'intérieur ; et, bien qu'on ne vit
 personne, la vieille demeure semblait réveillée de son
 sommeil de quinze ans, et riante du réveil. Christophe
-revint, troublé.
 
 A table, son père parla de ce qui faisait le sujet des
 entretiens du quartier: l'arrivée de madame de Kerich
@@ -3255,8 +2811,6 @@ et de sa fille, avec une quantité incroyable de bagages.
 
 ; La place aux marronniers était remplie de badauds qui
 venaient assister au déballage des voitures. Christophe,
-
-LE MATIN
 
 très intrigué par cette nouvelle, qui, dans l'horizon
 borné de sa vie, était un événement important, retourna
@@ -3279,19 +2833,14 @@ magique. Son esprit s'en allait à la dérive dans ces
 espaces harmonieux, et des musiques chantaient en
 lui ; il s'endormait en elles, oubliant le temps, les choses,
 attentif seulement à ne rien perdre du murmure de son
-cœur.
 
 Il rêvait ainsi, les yeux, la bouche ouverte, et il
 n'aurait pu dire depuis quand il rêvait; car il ne voyait
 rien... Soudain, il eut un saisissement. Devant lui, au
 détour d'une allée, debout, le regardaient deux figures
 féminines. L'une, — une jeune dame en noir, aux
-traits fins, incorrects, aux cheveux blond cendré,
 grande, élégante, avec un laisser-allér nonchalant dans
 la pose de la tête, l'observait avec des yeux bienveillants et railleurs. L'autre, — une fillette de quinze ans,
-
-t
-à
 
 Jean-Christophe ;
 également en grand deuil, faisait la mine d'une enfant
@@ -3324,8 +2873,6 @@ la crainte baroque qu'on ne fût embusqué pour le voir.
 Quand il était forcé de s'aventurer près de la maison,
 il rasait les murs, baissait la tête, et courait presque,
 sans se retourner. En même temps, il ne cessait de
-
-LE MATIN
 
 penser aux deux figures qu'il avait vues; il montait
 au grenier, enlevant ses chaussures pour qu'on ne l'entendiît pas; et il s'ingéniait à regarder par la lucarne
@@ -3360,8 +2907,6 @@ savait que si c'était à recommencer, il recommencerait.
 il apercevait au loin une forme qui lui ressemblait, il
 prenait un autre chemin.
 
-VII
-
 | EN
 
 Ce fut elle qui vint à lui. Elle alla le chercher jusque
@@ -3387,7 +2932,6 @@ se mêler de ce qui ne la regardait pas.
 
 — Le domestique attendait la réponse. J'ai dit que tu
 étais justement libre aujourd'hui. Tu n'as rien à cette
-heure.
 
 Christophe eut beau s'irriter, jurer qu'il n'irait pas
 il ne pouvait plus se dérober maintenant. Quand vint
@@ -3398,7 +2942,6 @@ Madame de Kerich n'avait pas eu de peine à reconnaître dans le pianiste du con
 la tête ébouriffée lui était apparue, le jour de son
 arrivée, au-dessus du mur de son jardin. Elle avait |
 
-LE MATIN
 pris des informations sur lui dans le voisinage; et ce
 qu'elle avait appris de la famille de Christophe, et de la
 ‘vie difficile et courageuse de l'enfant, lui avait inspiré
@@ -3419,7 +2962,6 @@ on entrevoyait les silhouettes mouillées des arbres dans
 la brume, les deux femmes étaient assises, tenant sur
 leurs genoux, madame de Kerich un ouvrage, et sa
 fille un livre, dont elle faisait la lecture, lorsque Christophe entra. Elles échangèrent, en le voyant, un coup
-d'œil malicieux.
 
 — Elles me reconnaissent, pensa Christophe, tout
 penaud. L
@@ -3427,7 +2969,6 @@ penaud. L
 Il s'épuisait à faire de gauches révérences.
 
 Madame de Kerich sourit gaiement, et lui tendit la
-main :
 
 — Bonjour, mon cher voisin, dit-elle. Je suis contente ;
 
@@ -3439,9 +2980,6 @@ venir, j'espère que vous me pardonnerez de l'avoir employé.
 
 Il y avait dans ces paroles aimables et banales tant
 
-III
-
-La
 Jean-Christophe
 de cordialité, malgré une pointe cachée d'ironie, que
 Christophe se sentit rassuré. d
@@ -3451,7 +2989,6 @@ Madame de Kerich désigna sa fille, qui avait fermé
 son livre, et observait curieusement Christophe :
 
 — Ma fille Minna, ditelle, qui désirait beaucoup vous
-voir. N :
 
 — Mais, maman, dit Minna, ce n'est pas la première
 fois que nous nous voyons.
@@ -3486,7 +3023,6 @@ il ne savait comment tenir sa tasse, qui menaçait
 de chavirer; il se croyait obligé, à chaque fois
 qu'on lui offrait de l'eau, du lait, du sucre, ou des
 
-LE MATIN
 gâteaux, de se lever précipitamment et de remercier
 avec des révérences, raide, serré dans sa redingote,
 son col et sa cravate, comme dans une carapace,
@@ -3550,12 +3086,9 @@ pas, gare à vous!
 
 Elle agitait le doigt d'un petit air menaçant. ‘
 
-© LE MATIN
-
 Minna n'avait nullement un désir impérieux que Christophe lui fit visite, ni même qu'il s'astreignît envers
 elle aux règles de la politesse; mais il lui plaisait de
 produire un petit effet, que son instinct lui faisait juger
-charmant.
 
 Christophe rougit de plaisir. Madame de Kerich
 acheva de le gagner par le tact avec lequel elle lui
@@ -3584,9 +3117,6 @@ mère. Il ne s'en apercevait pas, parce qu'il était grisé
 de son bonheur, et qu'il pensait que les autres étaient
 comme lui, — parce que Minna, en le regardant, conti-
 
-; 115
-
-\
 Jean-Christophe
 
 nuait de jouer des prunelles, par habitude, — et enfin,
@@ -3615,7 +3145,6 @@ Il revint deux jours après, comme ils en étaient con- ç
 venus, pour donner une leçon de piano à Minna. A
 partir de ce moment, il venait régulièrement sous ce
 prétexte, deux fois par semaine, le matin; et bien souvent, il retournait le soir, pour faire de la musique et
-causer.
 
 Madame de Kerich le voyait volontiers. C'était une
 femme intelligente et bonne. Elle avait trente-cinq ans,
@@ -3638,8 +3167,6 @@ aimée. Elle aimait beaucoup Minna, mais la jugeait
 avec clarté, et ne se dissimulait aucune de ses imperfections, pas plus qu'elle ne cherchait à se faire illusion
 sur elle-même. Spirituelle, sensée, elle avait un regard
 infaillible pour découvrir du premier coup d'œil le
-
-117 VU.
 
 Jean-Christophe
 faible et le ridicule de chacun; elle y trouvait un
@@ -3670,9 +3197,6 @@ moqueurs. Elle s'amusait de sa gaucherie, de sa laideur, de ses petits ridicules
 à fait au sérieux, — elle ne prenait pas grand chose
 au sérieux. — Les saillies bouffonnes, les violences,
 
-118 F.
-
-LE MATIN
 lhumeur fantasque de Christophe, lui faisaient croire
 d'ailleurs qu'il n'était pas très bien équilibré; elle
 voyait en lui un de ces Krafft, qui étaient de braves
@@ -3740,7 +3264,6 @@ qui ne laissaient point de lui faire plaisir.
 
 Avec Minna les rapports étaient tout autres. Quand
 
-LE MATIN
 Christophe l'avait revue pour sa première leçon, tout
 enivré encore des souvenirs de la veille et des regards
 . caressants de la fillette, il avait été fort surpris de
@@ -3800,7 +3323,6 @@ qu'elle en eût, très tranquille et très froide. En dépit ‘|
 de son nom aristocratique et de la fierté que lui FA
 donnait sa particule nobiliaire, elle avait une âme de î|
 petite ménagère allemande, à l'âge exquis de l'ado- #
-lescence. TE |
 |
 |
 
@@ -3862,7 +3384,6 @@ dépité, il jetait le livre sur la table ; et ses deux amies
 riaient aux éclats. Combien il les aimait! Il emportait partout leur image avec lui, et cette image se
 mêlait à celles des figures de Shakespeare et de Goëthe.
 
-; LE MATIN
 Il ne les distinguait presque plus les unes des autres.
 Telle suave parole du poète, qui éveiïllait jusqu'au fond
 de son être des frémissements passionnés, ne se sé-
@@ -3892,11 +3413,7 @@ passage d'un livre qu'il ne comprenait pas: elle appuyait sa main sur l'épaule 
 tiédeur de ses doigts, son haleine sur sa joue, et le
 doux parfum de son corps; il écoutait dans l'extase,
 
-SC TR OMR LM RE PORTE LRO TR ON UT ENST ARMES QUE PEUR
-
 Jean-Christophe 12088
-
-À ‘A
 
 3 ne pensait plus au livre, et ne comprenait rien. Elle #
 
@@ -3914,16 +3431,6 @@ petit âne, fort stupide, elle consentait à le garder, — et
 peut-être même à l'aimer, — quoiqu'il ne fût bon à
 rien, si au moins il était bon tout court. Alors ils +1
 riaient tous deux, et il nageaït dans la joie. Ne!
-7) \ À
-D
-a |
-< L |
-À |
-
-à
-
-ze ee
-LL F x ; y |
 
 Depuis qu'il avait découvert qu'il aimait madame de
 Kerich, Christophe se détachaïit de Minna. Il commen-
@@ -3944,7 +3451,6 @@ semaine, le matin, de neuf heures à dix heures, il surveillait les gammes et le
 chambre où ils se tenaient était le studio de Minna.
 Curieuse salle de travail, qui reflétait avec une fidélité
 amusante le fouillis baroque de ce petit cerveau
-féminin.
 
 Sur la table, de minuscules statuettes de chats :
 musiciens, tout un orchestre, l'un jouant du violon,
@@ -3985,8 +3491,6 @@ niait quelquefois à jouer le plus mal qu'elle pouvait.
 Elle était assez musicienne, mais n'aimait pas la musique, — comme beaucoup d'Allemandes. Mais, comme
 elles, elle croyait devoir l'aimer; et elle prenait ses
 
-LE MATIN
-
 leçons assez consciencieusement à l'ordinaire, à part
 quelques moments de malice diabolique, pour faire en-
 ‘rager son maître. Elle le faisait enrager bien davantage par l'indifférence glaciale avec laquelle elle
@@ -4023,7 +3527,6 @@ Jean-Christophe (
 pour forcer Christophe à le ramasser: ce qu'il fit de la
 plus mauvaise grâce du monde. Elle l'en récompensa
 d'un « Merci! » de grande dame, qui faillit le faire
-éclater.
 Elle jugea ce jeu trop bon pour ne pas le redoubler.
 Le lendemain, elle recommença. Christophe ne broncha
 pas : il bouillait de colère. Elle attendit un moment,
@@ -4052,10 +3555,6 @@ minutes de plus qu'à l'ordinaire ; et elle alla s'asseoir (l
 devant le piano, droite, raide, sans tourner la tête, ni ; |
 |
 
-/
-
-LE MATIN
-
 prononcer un mot, comme si Christophe n'existait pas
 pour elle. Elle n'en prit pas moins sa leçon, et toutes
 les leçons suivantes, parce qu'elle savait fort bien que
@@ -4065,11 +3564,7 @@ apprendre à jouer proprement du piano, si elle voulait
 née, d'une éducation accomplie.
 
 Mais comme elle s'ennuyait! qu'ils s'ennuyaient tous
-deux !
 
-}
-
-À
 Un matin de mars brumeux, que de petits flocons de
 neige voltigeaient, comme des plumes, dans l'air gris,
 ils étaient dans le studio. Il faisait à peine jour. Minna
@@ -4098,7 +3593,6 @@ pensait qu'il était définitivement perdu dans lopinion |
 de Minna. Il était confondu de son action; il la jugeait Gi
 stupide et grossière. L'heure de la leçon écoulée, il 1
 
-© LE MATIN
 quitta Minna sans la regarder, et il oublia même de la
 saluer? Elle ne lui en voulut pas. Elle ne pensait plus à !
 trouver Christophe mal élevé; et si elle avait fait tant
@@ -4132,9 +3626,6 @@ elle se déshabilla lentement ; elle s'arrêtait à tout instant, assise sur son
 de Christophe : c'était un Christophe de fantaisie qui
 lui apparaissait ; et maintenant, il ne lui semblait plus
 
-VII
-
-À
 Jean-Christophe
 si mal. Elle se coucha, et éteignit la lumière. Dix
 minutes après, la scène du matin lui revint brusquement
@@ -4142,9 +3633,7 @@ minutes après, la scène du matin lui revint brusquement
 elle lisait dans son lit. Elle trouva Minna tranquille-
 Ë ment couchée, les yeux grands ouverts dans la demilueur de la veilleuse.
 — Qu'y a-t-il donc, demanda-t-elle, qui te met en
-gaieté ? 1
 — Rien du tout, répondit gravement Minna. Je j
-pense.
 — Tues bien heureuse de t'amuser ainsi dans ta
 . compagnie. Mais maintenant, il faut dormir. \ é
 — Oui, maman, répondit la docile Minna. }
@@ -4157,7 +3646,6 @@ sursauta de joie : | # .
 — Il m'aime... Quel bonheur! Qu'il est gentil de
 n'aimer !... Comme je l'aime ! à |
 Elle embrassa son oreiller, et s'endormit tout à ? *|
-fait. |
 |
 
 La première fois que les deux enfants se retrouvèrent
@@ -4188,9 +3676,6 @@ l'étonnait et l'inquiétait.
 Elle l'observait toujours. Elle attendait... Quoi? Le
 savait-elle bien elle-même? Elle attendait qu'il recom-
 
-% ; 135
-
-TER
 Jean-Christophe
 
 mençât. — Il s'en fût bien gardé, convaincu qu'il avait
@@ -4240,8 +3725,6 @@ Bien que Minna eût donné à Christophe de bonnes
 raisons de croire qu'il ne lui était pas indifférent, il ne
 manquait pas de se tourmenter, et pensait qu'elle le
 dédaignait. Ils n'avaient jamais eu une idée bien nette
-
-137 VII.
 
 Jean-Christophe
 
@@ -4338,7 +3821,6 @@ l'odeur de la terre mouillée et le parfum des fleurs se
 mêlaient en une chaude haleine ; et autour d'eux bruissait le vol doré des abeilles. Ils étaient côte à côte, et
 ne se regardaient pas; ils ne pouvaient se décider à
 
-LE MATIN
 rompre le silence. Une abeille vint gauchement s'accrocher à une grappe de glycine, lourde de pluie, et fit basculer sur elle une cataracte d'eau. Ils rirent en même
 temps ; et aussitôt ils sentirent qu'ils ne se boudaient
 plus, qu'ils étaient bons amis. Pourtant ils continuaient
@@ -4356,7 +3838,6 @@ secouaient sur eux leurs branches. Près d'arriver au
 faîte, elle s'arrêta, pour respirer.
 
 — Attendez... attendez... dit-elle tout bas, tâchant de
-reprendre haleine.
 
 Il la regarda. Elle regardait d'un autre côté : elle
 souriait, haletante, la bouche entr'ouverte; sa main
@@ -4379,9 +3860,6 @@ Ils s'assirent sur un banc de bois mouillé. Ils étaient
 
 pénétrés d'amour, un amour doux, profond, absurde.
 
-k *
-
-LA Gn
 : Jean-Christophe
 
 Tout le reste avait disparu. Plus d'égoïsme, plus de
@@ -4416,10 +3894,6 @@ petites lumières de la ville tremblaient dans la plaine,
 et les étoiles dans le ciel sombre. Il s'assit sur un mur
 du chemin, et fut pris brusquement d'une crise de
 larmes. Il ne savait pourquoi. Il était trop heureux ; et
-
-142 '
-
-LE MATIN
 
 l'excès de sa joie était fait de tristesse et de joie; il
 s'y mêlait de la reconnaissance pour son bonheur,
@@ -4459,7 +3933,6 @@ devinaient dans la demi-obscurité, le frisson des mains
 qui se touchaient, le tremblement de la voix, tous ces
 petits riens, dont leur souvenir se repaissait, la nuit,
 
-LE MATIN
 quand ils dormaient d'un sommeil si léger, que le son
 de chaque heure les réveillait, et quand leur cœur
 chantait : « Il m'aime », comme le murmure d'un ruisseau.
@@ -4481,7 +3954,6 @@ Schumann. Elle se sentait pleine de pitié et de bonté
 pour tous; et il l'était, comme elle. Ils donnaient de
 furtives aumônes aux pauvres qu'ils rencontraient, et
 ils échangeaïient des regards compatissants : ils étaient
-heureux d'être si bons.
 
 A vrai dire, ils ne l'étaient que par intermittences.
 Minna découvrait tout à coup combien était triste ;
@@ -4489,9 +3961,6 @@ l'humble vie de dévouement de la vieille Frida, qui servait dans la maison, dep
 elle courait sur le champ se jeter à son cou, au grand
 étonnement de la bonne vieille, occupée à repriser du
 linge dans la cuisine. Mais cela ne l'empêchait pas, deux
-
-ÿ 145
-IX
 
 Jean-Christophe
 
@@ -4528,12 +3997,9 @@ farine ; et il fallait la prendre, l'un après l'autre, avec |
 les dents, sans se blanchir le nez. Ou bien elle passait l
 au travers d'un biscuit une ficelle, dont chacun mettait à |
 
-LE MATIN
-
 un des bouts dans sa bouche ; et il s'agissait d'arriver
 le plus vite possible, en mangeant la ficelle, à mordre
 le biscuit. Alors leurs yeux se fixaient, leurs visages se
-rapprochaient, leurs souffles se mêlaient, leurs lèvres
 se touchaïient, ils riaient d'un rire factice, et leurs
 mains étaient glacées. Christophe se sentait envie de
 mordre, de faire du mal; il se rejetait brusquement en
@@ -4569,9 +4035,6 @@ rien de commun entre la vie et leur rêve. Rien, sinon
 qu'à cette heure magique, eux-mêmes ne sont qu'un
 rêve : leur être s'est fondu au souffle de l'amour.
 
-Î
-t
-
 Madame de Kerich ne fut pas longue à s'apercevoir
 de leur petit manège, qui se croyait très fin, et qui était
 très gauche. Minna en avait quelque soupçon, depuis
@@ -4601,8 +4064,6 @@ de ce qui pouvait atteindre l'amour-propre de Minna :
 c'était une simple remarque, décochée en passant;
 jamais cela ne prenait la forme d'un réquisitoire ; et
 
-\ 149
-
 Jean-Christophe
 quand Minna, irritée, se dressait sur ses ergots pour
 répliquer, madame de Kerich, innocemment, était déjà
@@ -4610,7 +4071,6 @@ occupée d'un tout autre sujet. Mais le trait restait, et
 Minna était touchée.
 
 Elle commença à voir Christophe d'un œil moins indulgent. Il le sentait vaguement et lui demandait,
-inquiet :
 
 | — Pourquoi me regardez-vous ainsi ? |
 
@@ -4629,7 +4089,6 @@ persuadait que ces façons qui l'irritaient étaient la
 preuve de l'intérêt que lui portait Minna ; et elle se le
 persuadait elle-même. Il tâchait humblement d'en faire
 son profit. Elle lui en savait peu de gré; car il n'y
-réussissait guère.
 
 Mais il n'eut pas le temps, — ni Minna, — de s'apercevoir du changement qui s'opérait en elle. Pâques
 était venu, et Minna devait faire, avec sa mère, un
@@ -4638,8 +4097,6 @@ petit voyage chez des parents, du côté de Weïmar.
 La dernière semaine avant la séparation, ils retrouvèrent leur intimité des premiers jours. Sauf quelques
 impatiences, Minna fut plus affectueuse que jamais.
 La veille du départ, ils se promenèrent longuement
-
-LE MATIN
 
 dans le parc; elle attira mystérieusement Christophe
 au fond de la charmille, et lui passa au cou un sachet
@@ -4673,12 +4130,9 @@ Elle ferma la porte. Ils étaient seuls. Elle courut à
 lui, lui saisit la main, et l'entraîna dans le petit salon
 voisin, dont les volets étaient clos. Alors elle approcha
 
-IÔI
-
 Jean-Christophe
 brusquement sa figure de celle de Christophe, et elle
 l''embrassa de toutes ses forces. Elle demandait, en
-pleurant :
 
 — Tu promets, tu promets, tu m'aimeras toujours ?
 
@@ -4688,7 +4142,6 @@ yeux, reprit avec les domestiques son petit air important; mais sa voix tremblai
 
 - Il réussit à lui voler son mouchoir, qu'elle avait laissé
 tomber, son petit mouchoir sale, fripé, humide de ses
-larmes.
 
 Il accompagna ses amies dans leur voiture jusqu'à la |
 gare. Assis en face l'un de l'autre, les deux enfants
@@ -4696,7 +4149,6 @@ osaient à peine se regarder, de peur de fondre en
 larmes. Leurs mains se cherchaient furtivement et se
 serraient, à se faire mal. Madame de Kerich les
 observait avec une bonhomie narquoise, et semblait ne
-rien remarquer.
 
 Enfin l'heure sonna. Debout près de la portière,
 quand le train s'ébranla, Christophe se mit à courir à
@@ -4707,7 +4159,6 @@ courir, jusqu'à ce qu'il ne vit plus rien. Alors il s'arrêta,
 hors d'haleine; et il se retrouva sur le quai de la gare,
 au milieu d'indifférents. Il rentra à sa maison, d'où par
 bonheur les siens étaient sortis; et, tout le matin, il
-pleura. à
 
 Il connut pour la première fois l'affreux chagrin de
 l'absence. Tourment intolérable pour tous Les cœurs
@@ -4736,8 +4187,6 @@ que trop ; son image flottait sur toutes les pelouses ; il
 s'attendait à la voir paraître à tous les détours des
 allées : il savait bien qu'elle ne paraîtrait pas ; mais il
 
-153 IX.
-
 Jean-Christophe
 se torturait à se persuader le contraire, à rechercher les
 traces de ses souvenirs amoureux, le chemin du labyrinthe, la terrasse tapissée de glycine, le banc dans la
@@ -4753,7 +4202,6 @@ de la voir, de la respirer, de se nourrir de son être ! Et
 il ne l'avait pas apprécié ! Il avait laissé fuir le temps,
 sans avoir savouré chacun des plus petits moments!
 Et maintenant! Maintenant, il était trop tard... Irré-
-parable ! Irréparable i
 
 Il revint chez lui. Les siens lui furent odieux. Il ne
 put supporter leurs visages, leurs gestes, leurs entretiens insipides, les mêmes que la veille, les mêmes que
@@ -4761,7 +4209,6 @@ les jours d'avant, les mêmes que lorsqu'elle était là. Ils
 continuaient de mener leur vie accoutumée, comme
 si un tel malheur ne venait pas de s'accomplir auprès
 d'eux. La ville non plus ne se doutait de rien. Les gens
-allaient à leurs occupations, riants, bruyants, affairés ;
 les grillons chantaient, le ciel rayonnait. Il les haïssaïit
 tous, il se sentait écrasé par l'égoïsme universel. Mais
 il était plus égoïste, à lui seul, que l'univers entier. Rien
@@ -4771,8 +4218,6 @@ n'aimait plus personne.
 Il passa de lamentables journées. Ses occupations le
 reprirent d'une façon automatique ; mais il n'avait plus
 de courage pour vivre.
-
-LE MATIN
 
 Un soir qu'il était à table avec les siens, muet et
 accablé, le facteur heurta à la porte, et lui remit une
@@ -4821,7 +4266,6 @@ lettre à tout instant. Il la mit sous son oreiller, et sa
 main s'assurait sans cesse qu'elle était là. Un bien-être
 
 : ineffable se répandaiït en lui. Il dormit d'un trait
-jusqu'au lendemain.
 
 Sa vie devint plus supportable. La pensée fidèle de
 Minna flottait autour de lui. Il entreprit de lui répondre ;
@@ -4840,12 +4284,8 @@ où il allait, un volume de Lessing, parce que le nom de |
 Minna s'y trouvait; et, chaque jour, il faisait un long |
 détour, au sortir du théâtre, pour passer devant une È
 boutique de mercière, dont l'enseigne portait les cinq
-lettres adorées.
 
 Il se reprocha de se distraire, quand elle Lui avait
-
-LE MATIN
-R
 
 recommandé avec insistance de travailler, pour la
 rendre illustre. La naïve vanité de cette demande le
@@ -4858,7 +4298,6 @@ masse d'eau, qui se serait accumulée dans un réservoir depuis des mois, et qui
 coup, brisant ses digues. Il ne sortit plus de sa
 chambre, pendant huit jours. Louisa déposait son
 diner à la porte ; car il ne la laissait même pas
-entrer.
 
 Il écrivit un quintette pour clarinette et instruments
 à cordes. La première partie était un poème d'espoir et
@@ -4875,8 +4314,6 @@ l'excès de l'amour, que l'absence amassaït en lui; et
 en même temps, le souci de l'œuvre d'art, l'effort nécessaire pour dominer et concentrer la passion dans une
 forme belle et claire, lui donnait une santé d'esprit, un
 équilibre de toutes ses facultés, robustes, lucides,
-
-157 k
 
 Jean-Christophe
 obéissantes aux ordres de la volonté, qui lui causait :
@@ -4913,9 +4350,6 @@ invitations. Il n'ajoutait pas qu'il était même en froid
 avec le grand-duc, parce que, dans l'excès de son zèle,
 il s'était dispensé de se rendre à une soirée du château,
 
-r
-J : E nl
-LE MATIN
 où il était convié. Toute la lettre était d'un joyeux
 abandon, et pleine de ces sous-entendus, de ces petits
 secrets, chers aux amoureux : il s'imaginait que Minna
@@ -4973,7 +4407,6 @@ Minna était justement irritée des lettres imprudentes et
 absurdes, qu'il avait écrites. Il se traita d'imbécile, il
 se frappa la tête avec ses poings. Mais il avait beau
 
-LE MATIN
 faire : il était bien forcé de sentir que Minna ne l'aimait pas, autant qu'il l'aimait.
 
 Les jours qui suivirent furent si mornes, qu'ils ne
@@ -4983,7 +4416,6 @@ du seul bien qui le rattachât à l'existence : ses lettres
 machinale; et le seul acte de sa vie auquel il s'intéressât, était lorsque, le soir, au moment de se coucher, il
 rayait, comme un écolier, sur son calendrier, une des
 interminables journées qui le séparaient du retour de
-Minna.
 
 La date du retour était passée. Depuis une semaine
 
@@ -5002,13 +4434,11 @@ sa chambre, après avoir en vain guetté le passage du
 facteur, quand un mot le fit tressaillir. Fischer disait
 que, le lendemain matin, de bonne heure, il devait aller
 chez les de Kerich, pour poser des rideaux. Christophe,
-saisi, demanda :
 
 — Elles sont donc revenues ?
 
 — Farceur! tu le sais aussi bien que moi, dit le vieux
 Fischer, goguenard. Il y a beau temps! Elles sont
-rentrées avant-hier.
 
 Christophe n'entendit rien de plus; il quitta la chambre, et se prépara à sortir. Sa mère qui depuis quelque
 temps le surveillaït à la dérobée, sans qu'il s'en aper-
@@ -5016,8 +4446,6 @@ temps le surveillaït à la dérobée, sans qu'il s'en aper-
 
 Il courutchez mesdames de Kerich. Il étaitneuf heures
 du soir. Elles étaient au salon toutes deux, et ne
-
-LE MATIN
 
 parurent pas surprises de le voir. Elles lui dirent bonsoir avec tranquillité. Minna, occupée à écrire, lui tendit
 la main par dessus la table, et continua sa lettre, en
@@ -5078,11 +4506,8 @@ croire. Il en repoussait l'idée avec épouvante, et tâchait
 de se persuader qu'il avait mal su voir, que Minna
 était toujours la même. Il décida de retourner chez
 elle, dès le lendemain matin, de lui parler à tout
-prix.
 
 Il ne dormit pas. Il compta, l'une après l'autre, dans
-
-LE MATIN
 
 la nuit, toutes les sonneries de l'horloge. Dès la première heure, il alla rôder autour de la maison des
 Kerich; il entra aussitôt qu'il put. Ce ne fut pas Minna
@@ -5099,7 +4524,6 @@ voyant la mine déconfite de Christophe, qui sentait
 lapproche du malheur. :
 
 — Allons au jardin, reprit-elle, nous serons plus
-tranquilles.
 
 Dans le jardin, tout rempli de son amour, il suivit
 madame de Kerich. Elle ne se pressait pas de parler,
@@ -5123,7 +4547,6 @@ Kerich n'attachait pas au fond la moindre importance
 
 |
 |
-; ,
 Jean-Christophe
 __ pas; et ces reproches, qu'il prit au tragique, comme il
 prenait toute chose, lui allèrent au cœur:
@@ -5161,11 +4584,8 @@ s'obstinaït toujours. ,
 — Non, Christophe, dit-elle d'un ton décidé, non, ce
 n'est pas la peine de discuter, c'est impossible. Il ne
 s'agit pas seulement d'argent. Tant de choses! La
-situation.
 
 Elle n'eut pas besoin d'achever. Ce fut une aiguille
-
-LE MATIN
 
 qui le perçait jusqu'aux moelles. Ses yeux s'ouvrirent. Il vit l'ironie du sourire amical, il vit la froideur du regard bienveillant, il comprit brusquement
 tout ce qui le séparait de cette femme, qu'il aimait
@@ -5189,9 +4609,6 @@ et de rage. Il lui fallait répondre, agir sur le champ.
 Il mourrait, s'il ne se vengeait.
 
 Il se releva, et écrivit une lettre d'une violence
-imbécile :
-
-« Madame,
 
 « Je ne sais pas si, comme vous le dites, vous vous
 êtes trompée sur moi. Mais ce que je sais, c'est que
@@ -5235,11 +4652,9 @@ Kerich, qui connaissait ses emportements, ne prendrait
 pas celui-ci au sérieux, qu'elle se contenterait d'une
 
 #
-LE MATIN
 sévère remontrance, et, — qui sait? — qu'elle serait
 peut-être touchée par la sincérité de sa passion. Il n'attendait qu'un mot pour se jeter à ses pieds. Il l'attendit,
 cinq jours. Puis vint une lettre. Elle disait :
-« Cher Monsieur,
 
 « Puisqu'à votre avis, il y a eu un malentendu, de part
 et d'autre, entre nous, le plus sage esi sans doute de
@@ -5249,8 +4664,6 @@ la suite, d'autres amis, qui sauront vous apprécier,
 comme vous désirez l'être. Je ne doute point de votre
 avenir, et suivrai de loin, avec sympathie, vos progrès
 dans la carrière musicale. Salutations.
-
-« Josepha von Kerich »
 
 Les plus amers reproches eussent été moins cruels.
 Christophe se vit perdu. On peut répondre à qui vous
@@ -5263,8 +4676,6 @@ dignité, il devint lâche, il écrivit de nouvelles lettres,
 où il suppliait qu'on lui pardonnät. Elles n'étaient pas
 moins stupides que celle où il s'emportait. On ne lui
 répondit rien. — Et tout fut dit.
-
-x
 
 Il faillit mourir. Il pensa à se tuer. Il pensa à tuer. Il |
 se figura au moins qu'il le pensait. Il eut des désirs .
@@ -5294,8 +4705,6 @@ peines, afin de le consoler. Mais la pauvre femme avait
 perdu l'habitude de causer intimement avec Christophe; depuis bien des années, il renfermait ses pensées en lui; et elle était trop absorbée par les soucis
 matériels de la vie, pour avoir le temps de chercher à
 le deviner. Maintenant qu'elle eût tant voulu lui venir
-
-- LE MATIN
 
 en aide, elle ne savait que faire. Elle rôdait autour de
 lui, comme une âme en peine; elle eût souhaité de
@@ -5329,8 +4738,6 @@ qu'on le ramenaït encore ivre, comme l'autre semaine,
 où on l'avait trouvé couché en travers de la rue. Car
 Melchior n'observait plus aucune retenue; et il se
 
-191 ô
-
 Jean-Christophe
 livrait de plus en plus à son vice, sans que d'ailleurs
 sa santé athlétique parût le moins du monde souffrir
@@ -5355,7 +4762,6 @@ voix basse, dans le corridor obscur, éclairé par la
 lueur tremblante d'une lanterne, sur une civière était
 couché, comme autrefois grand-père, un corps ruisselant d'eau, immobile. Louisa sanglotait à son cou.
 On venait de trouver Melchior noyé dans le ru du
-moulin.
 
 Christophe poussa un cri. Tout le reste du monde
 disparut, toutes ses autres peines furent balayées. Il
@@ -5390,8 +4796,6 @@ pouvait supporter qu'on fût triste; et il faisait volontiers largesse de ce qui
 qui ne lui appartenait pas, — aux pauvres diables qu'il
 rencontrait sur son chemin. Toutes ses qualités appa-
 
-173 x,
-
 Jean-Christophe ‘ Ë
 raissaient maintenant à Christophe : — il les inventait
 en partie, ou les exagérait. — Il lui semblait qu'il avait
@@ -5412,7 +4816,6 @@ tait, comme autrefois:
 Pardonne-moi!
 
 Mais la plainte ne s'apaisait pas, et reprenait avec
-angoisse :
 
 — Ne me méprisez pas! ne me méprisez pas!
 
@@ -5432,8 +4835,6 @@ se mépriser dans la mort!
 
 Il vit que la vie était une bataille sans trêve et sans
 merci, où qui veut être un homme digne du nom
-
-ii ;
 
 | LE MATIN
 
@@ -5455,26 +4856,6 @@ terme n'est-il point là?
 heureux. On vit pour accomplir ma Loi. Souffre.
 Meurs. Mais sois ce que tu dois être : — un Homme.
 
-À EC |
-
-Ai Re ( SA A 4 N FAN |
-at É ER VA ! E RS yes \ 442 #+ Ven. Ua M
-
-“ip pt { £ # # . ' ; CRT 4 NES \ ne l KE. re
-Es AE & UOTE Aie Ds RIT d EN ‘+ es
-tt Meet é : H ii 15e ES PE
-
-ee CAL { NAS VAE AE so y
-ta 558
-ER + : : Ÿ à se ne d: |
-
-U \ 7 MES 5 Fo 02 Î
-{
-
-Pages
-M urlide Jean-Michel itemns rever 9
-LIT 2 5 RER NET AR ER EUR En DE Sr 63
-a M NS ES M NS F0
 Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce dixième cahier
 le mardi 16 février 190%.
@@ -5482,84 +4863,28 @@ Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 IMPRIMERIE DE SURESNES (E. PAYEN administrateur), 9, rue du Pont. — 8543
 
-£ DROITE re ERA 1 | PANTIN
-RES PONT RE Me OR EMA RES AA à EN OPA ge dr hé  e à
 HAE de TES LANCER
-1e F4 | AUS A À
-LL ARTE 2 Jo NULS
-IE ' sr RER ARS FINE
-RC ; DRE VER: RNS
-AGO F: RE ARE 7 ce ES
-TAN +} PTE RER
-DE à 7 MEL Te pe
-FAURE Nine 5 gt
-Mers 1) ie LV ER
-LUS AT TIRER
 k D à } UT “fi QUE ie |
-À 400 | ps + ÉRNT :
-HITS U ER
 #e Es x t'y YVES
-Mine = 14008 2 FE
-he LAB, 7 L
-Re ! ; "TRS #
 
-+ LA Qi A) f HU RRSCE DANCE PNR LL ET CT ANS SE TA
 Ati, ME 4 CN b an fre ANR 1 TR à Eu A à de vi St pie
-DA ALES PARA x ME Fe A RE 14 FIRE
-AU sé . . . 5 \ OR
 Fini d'imprimer trois mille exemplaires de ce … ‘es
 _ dixième cahier le jeudi 18 février 1904 “0
-L #” 114 Te
-, 1e
-1@ À
-‘À LAN
 i _ à l'Imprimerie de Suresnes SUR
-! (E. PAYEN, administrateur) : :
 9, rue du Pont HS
-Nil ; 4 4 1
-dE
 | OA V Cr
 #3 j ! E iv
 ne RUE
-4 n FU
-SN AR \ \ 1 12H
 
 ' Di JE EURE FALL "à * NN AN ee 4 ir. rs
-ns & our a AE a Sy MAS, à
-un 1e. i , "A « # ae. : Par Fées ÿ |
-RO +: , M | a ÉEUSS |
-SAME L'NrS Re SE 1 !
-! à 15% N 44 hi MER |
-Ps Wr nn |
-TES u M CPR ae 1
-“HAS & Bon NEA A RM
-4 SNA A | + A es d'a |
-+, VMS “ ES ee AR
 Ur Ci r F k le TT RES
 #: 4 © . L LAS ns Lt #4
-LA LU D'ECRAN
-PA ia T MÉRIEMENENTE
-LE , - ANCIENS
-AUS 24) EC FU PME Î
-De +. er LHAOEUER ) ‘3 L !
-- d PRIOR
-NERO ju” 2h AT
 nn na le RSR Ac À
-\ LISE } Es 17
-HETTENEN S \, | Tor
 
-: Christofori faciem die quacumque tueris,
-Illa nempe die non morte mala morieris.
-L1
-c XI
-s
 > »
-
-ER
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration; ces fonctions
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -5607,7 +4932,6 @@ d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi depuis le premier
 
 __. janvier 1904 la quatrième série se vend trente-cinq
-francs. x
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous

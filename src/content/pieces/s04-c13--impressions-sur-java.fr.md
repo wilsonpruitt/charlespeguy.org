@@ -7,20 +7,11 @@ author: felicien-challaye
 isAvertissement: false
 wordCount: 19687
 ---
-
-… TREIZIÈME CAHIER DE LA QUATRIÈME SÉRIE
 | CAHIER DE COURRIERS
-FÉLICIEN CHALLAYE
 _ impressions sur Java
-FRANÇOIS DAGEN
-courrier d'Algérie
-BERNARD-LAZARE
 * juiits de Roumanie
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 SE 8, rue de la Sorbonne, au rez-de-chaussée
-ANTON TER
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 
@@ -37,13 +28,8 @@ six cahiers de la deuxième et de la troisième série. ci
 | vendons un franc 7
 
 2 3 2
-Ve, gl , * 4
-
-; ; “2
-NC ER
 
 impressions sur Java
-Le
 
 « Sur les courriers des cahiers, courriers de Chine,
 courriers d''Indo-Chine, courriers du Japon, courriers
@@ -55,21 +41,13 @@ les courriers de Félicien Challaye, se référer au
 Sixième cahier de la quatrième série, cahier de courrier, inventaire des cahiers, en forme de catalogue, un
 cahier de 72 pages, un franc
 
-=
-
 Le courrier que l'on va lire a été publié pour la
 première fois dans Jean-Pierre, journal pour enfants,
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement; Challaye l'a remis en forme,
 et en âge, pour les cahiers. C'est aussi dans le JeanPierre qu'avait paru, de René Salomé, ce monsieur
 Matou dont nous avons fait un si beau cahier du
-premier janvier.
 
-FM à
-FÉLIcIEN CHALLAYE
-IMPRESSIONS SUR JAVA
 Fragments de journal
-Batavia
-Mercredi 28 novembr 1900
 
 Premières impressions sur la ville, les habitants,
 l'hôtel, le club.
@@ -89,7 +67,6 @@ Quelques quartiers aperçus ce matin ont laissé en
 ma mémoire une image plus distincte : le vieux Batavia, aux canaux bordés d'entrepôts plus ou moins
 abandonnés; le quartier des banques et des maisons de
 
-Félicien Challaye
 commerce, le seul où les habitations européennes se
 touchent toutes; une plaine immense, Koenigsplein,
 vaste prairie sans arbres entourée de jolis hôtels.
@@ -99,7 +76,6 @@ au corps bien fait, aux traits du visage trop accentués.
 Les femmes, serrées dans leur sarong, sont parfois
 d'une beauté vraiment sculpturale. Toute la journée,
 dans les eaux jaunâtres des canaux, se baigne toute la
-population : enfants, jeunes gens, jeunes filles, hommes
 et femmes de tout âge. D'autres femmes y lavent du
 linge. Le vêtement mouillé, collé au corps, révèle l'harmonie des belles formes : ces groupes de baïgneuses et
 de laveuses sont pittoresques et séduisants.
@@ -115,13 +91,11 @@ Chinois un beau vêtement blanc tout neuf; quelques
 minutes après j'y découvre une énorme tache d'encre
 ancienne : le Chinois l'avait soigneusement dissimulée
 en l'enduisant de craie, pour vendre comme neuve sa
-marchandise !
 
 Vers la fin de l'après-midi et dans la soirée, Hollandais et Hollandaiïses sortent de chez eux; tous se promènent tête nue; beaucoup de jeunes femmes ont les
 bras nus, la robe à demi décolletée. Quelques \personnes, devant leur maison, sont en pijamas, en sarongs indigènes, en camisoles, les pieds nus dans des
 pantoufles. Les métis sont aisément reconnaissables au
 
-dr à AA
 | IMPRESSIONS SUR JAVA
 mélange singulier de traits européens et de traits javanais qui les caractérise. — Une pension de jeunes filles
 passe : les cheveux blond cendré des Hollandaises, les
@@ -141,7 +115,6 @@ pour dormir, ayant un traversin sous la tête et un
 autre entre les jambes, qui les empêche d'être en contact et d'avoir trop chaud. — Dans la salle de baïns il
 y a une énorme jarre, où l'on puise, avec un récipient
 carré en bois, l'eau très fraîche qu'on se verse sur le
-corps.
 
 Pour la nourriture, un seul repas vraiment original :
 le rijstafel (table de riz); c'est une sorte de carry
@@ -152,9 +125,6 @@ buflle, de la volaille, du poisson, des œufs, un morceau
 d'omelette, une sorte de pâté de foie, des légumes de
 toute espèce, de la poudre de noix de coco... C'est un
 
-o
-
-Félicien Challaye
 plat vraiment agréable à manger, au milieu de la
 journée chaude, quand l'appétit fait défaut.
 
@@ -174,7 +144,6 @@ très bien installé, en de vastes salles fraîches, aux
 dalles de marbre. La salle de lecture est une des
 meilleures, des plus cosmopolites que j'aie jamais
 rencontrées. Elle prouve la culture internationale des
-Hollandais, dont beaucoup parlent français, allemand
 et anglais : on trouve ici les meilleurs journaux,
 journaux illustrés, revues, livres, non seulement de
 
@@ -189,24 +158,19 @@ pleines d'esprit français : me replaçant, par cette lecture, en mon milieu nat
 l'exotisme des choses parmi lesquelles je me trouve ici
 momentanément. Je m'étonne d'entendre, autour de
 
-IMPRESSIONS SUR JAVA
 moi, les Hollandais du club appeler en malais leurs
 serviteurs javanais : Spada ! spada! Je m'étonne, en
 rentrant à mon hôtel, de croiser, le long du canal, des
 hommes à peau brune, sous des arbres immenses, en
 un paysage nocturne qu'illumine l'étincelante lune des
 L tropiques.
-Buitenzorg
-Lundi, 3 décembre
 
 Une heure de chemin de fer entre Batavia et Buitenzorg (Sans-Souci), résidence du gouverneur-général des
 Indes Néerlandaises, célèbre surtout par son Jardin
 botanique. — Toute la matinée je me promène avec
 délices en l'admirable Jardin, qui mérite vraiment son
-universelle réputation.
 
 Ce doit être, d'abord, un trésor pour la science. Il y a
-là dix mille espèces distinctes, représentées chacune
 par deux échantillons. Les arbres et les plantes, en
 pleine terre, sont classées aussi bien que dans la serre
 la mieux tenue. Chaque famille est groupée en un même
@@ -221,7 +185,6 @@ organisation. Un double travail se poursuit ici : on y
 étend la science humaine, la connaissance désintéressée
 du réel; on tire de la science une série de conclusions
 
-Félicien Challaye
 pratiques indispensables à l'agriculture, pour le plus
 grand profit de la richesse nationale.
 
@@ -231,7 +194,6 @@ deux montagnes grandioses limitent le paysage. Une
 rivière traverse le Jardin; des ruisselets l''animent, le
 coupent en tous les sens. Surtout la végétation, favorisée par la chaleur et les pluies fréquentes, est prodigieuse. Le groupe des lianes et celui des palmiers n'ont
 surtout charmé. Les lianes, couvertes elles-mêmes de
-parasites, s'enroulent autour d'énormes Canari trees,
 formant une merveilleuse cathédrale de verdure. Les
 palmiers sont en très grand nombre, très variés : une
 allée tournante, ombragée de palmiers du Brésil aux
@@ -255,8 +217,6 @@ Avant le rijstafel, causé avec les propriétaires de
 l'hôtel, qui s'appelle d'un nom français : Hôtel du
 Chemin de fer. Ce sont deux jeunes Français, mariés
 
-IMPRESSIONS SUR JAVA
-
 tous deux à des Françaises. Il paraît que la plupart
 - des Français et Françaises établis à Java y réussissent
 fort bien. Je suis venu à Batavia sur le même bateau
@@ -275,7 +235,6 @@ cacher dans le prolongement du Jardin; je visite le village
 des travailleurs indigènes du Jardin ; petites maisons en
 bois, sur pilotis, recouvertes de chaume; je traverse
 le Xompong chinois, aussi mal odorant que n'importe
-quel quartier chinois en n'importe quelle ville asiatique.
 Puis, à la fin de l'après-midi, je retourne au Jardin
 Botanique : un vent d'orage secoue les grands arbres,
 leur arrache des cris, des hurlements. Les palmiers
@@ -289,9 +248,6 @@ harmonieux groupement de nuances allant du rose
 tendre au rouge ardent, s'étendent, au hasard, des
 taches jaunes et des taches noires, formées sans doute
 
-J 9 L
-
-Félicien Challaye
 par les nuages; on dirait qu'après avoir tenté d'ordonner avec soin des couleurs sur la toile, le peintre
 mécontent y a ensuite essuyé çà et là ses pinceaux...
 Jamais sans doute je ne reverrai un ciel semblable; je
@@ -303,7 +259,6 @@ l'homme envers les choses, c'est de s'intéresser à elles,
 d'apprécier leur charme original, de goûter toutes les
 nuances fugitives de leur beauté.
 Garoet et le Papandayan
-Mardi, 4 décembre
 
 Garoet, d'où se fait l'ascension du volcan le Papandayan, est à sept heures de Buitenzorg en chemin de
 fer. On quitte Buitenzorg le matin vers huit heures. Au
@@ -316,17 +271,13 @@ derrière le fleuve une mer de palmiers, que le vent
 secoue ; dans le fond, un volcan austère, le Salak,
 qu'un mince nuage de fumée couronne. Le tableau paraît
 composé avec un soin extrême : il est d'une beauté
-harmonieuse vraiment classique.
 
 Tout le long de la route, on assiste au déroulement
 des paysages javanais. Des rizières entourées de petits
 murs de terre, superposées au-dessus les unes des
 
-IMPRESSIONS SUR JAVA
-
 autres; beaucoup sont inondées; dans la boue travaillent
 les paysans javanais : corps brun, chapeau conique en
-paille, petite veste, culotte retroussée jusqu'aux genoux.
 D'énormes buflles gris les aident, tirent patiemment la
 charrue. Souvent le train traverse de merveilleuses
 forêts, comme on n'en peut voir sans doute qu'ici ou à
@@ -354,9 +305,6 @@ paysans javanais, au déroulement très lent de ces vies
 toujours au spectacle d'existences très différentes des
 nôtres, vécues en un tout autre milieu, parmi une tout
 
-IL
-
-Félicien Challaye
 autre nature, avec de tout autres mœurs, — infiniment
 moins agitées, plus normales, plus sages.
 
@@ -366,7 +314,6 @@ pays d'Orient, les lucioles. Étrange fantasmagorie. On
 croit rêver : les étoiles, qui commencent à briller, semblent n'être que d'immenses lucioles piquées à la voûte
 du ciel.
 
-Mercredi, 5 décembre
 ‘ A cette époque de l'année, il faut partir en excursion
 de très bonne heure; car c'est la saison des pluies : les
 matinées sont belles, mais généralement les nuages
@@ -386,7 +333,6 @@ d'un grand châle mon vêtement de toile blanche. .
 
 Quand le jour commence à paraître, ma voiture file à
 
-IMPRESSIONS SUR JAVA
 toute vitesse sur une route bordée de longs arbres
 maigres portant çà et là des paquets de verdure. Cette
 allée me remet en mémoire un paysage d'Hobbéma, vu
@@ -415,8 +361,6 @@ détournent la tête et abaissent leur ombrelle, leur
 bizarre ombrelle plane, de couleur claire. Des petites
 filles, des vieillards s'agenouillent; une femme s'accroupit dans l'ornière, enveloppant son enfant de ses
 bras comme pour le protéger contre le méchant Euro-
-
-Félicien Challaye
 
 péen... On s'étonne, quand on est ici depuis peu de
 temps, de l'attitude si humble des indigènes: j'ai été
@@ -448,8 +392,6 @@ foncé aux feuilles luisantes alternent avec les bouquets
 vert clair de bambous très hauts. Puis c'est une allée
 charmante, bordée et comme recouverte de plantes portant de longues clochettes blanches. Ensuite commence
 
-IMPRESSIONS SUR JAVA
-
 la forêt. Véritable forêt vierge, où l'on s'étonne que
 l'homme ait pu percer une route. C'est à gauche et à
 droite un fouillis de plantes et d'arbres. De magnifiques
@@ -471,7 +413,6 @@ disparaître; quelques petites fougères seulement, et
 quelques rhododendrons. La route devient blanche
 de cendres, couverte de scories et de pierre ponce.
 Nous arrivons, montant toujours, au centre même du
-volcan.
 
 D'ordinaire, il faut descendre les parois du cratère,
 pour atteindre la partie la plus ardente : ici, c'est au
@@ -481,8 +422,6 @@ gris. On m'explique qu'au dix-huitième siècle une éruption du Papaadayan a em
 rocheuses constituant le cratère, si bien qu'une brèche
 s'est faite, par laquelle la route conduit directement à
 la région brûlante.
-
-Félicien Challaye
 
 L'ardeur du volcan s'est bien atténuée depuis l'éruption. Nous attachons nos chevaux, et nous nous promenons à pied parmi les étranges phénomènes volcaniques,
 précédés par le guide qui connaît les sentiers où la
@@ -512,10 +451,8 @@ est fatigante. J'arrive à Garoet pour le ristafel. Lassé
 par l'excursion, je jouis beaucoup de la sieste de
 laprès-midi, pendant qu'au dehors l'orage éclate, et
 que de véritables torrents tombent du ciel noir de
-nuages.
 
 | IMPRESSIONS SUR JAVA
-Jeudi, 6 décembre
 Ce matin, avant de quitter Garoet, je fais en voiture
 une délicieuse excursion, par des chemins ombragés,
 jusqu'à Sitoe Bagendit. C'est un minuscule village de
@@ -531,9 +468,7 @@ merveilleux silence. Nous abordons à une petite île ; je
 monte au sommet de la colline. D'en haut, la vue est
 étendue. D'énormes volcans sévères se dressent de tous
 côtés, enveloppant la grâce timide du charmant lac de
-nénuphars.…
 Les ruines du Boro Boedoer
-Dimanche, 9 décembre
 Le Boro Boedoer: c'est le temple des mille Bouddhas,
 dont les ruines déroulent plusieurs kilomètres de sculptures., Depuis mon départ de France, je me sens attiré
 par ce nom étrange. Je crois que même si je n'avais pas
@@ -543,8 +478,6 @@ pour visiter le Boro Boedoer.
 Vers cinq heures du matin, je quitte Djokjakarta,
 + Ja ville royale, chef-lieu d'une principauté indigène.
 
-Va
-Félicien Challaye
 Ma somptueuse voiture, commandée à l'Hôtel (pour
 14 florins, 28 francs), est traînée par quatre chevaux
 attelés à la Daumont ; un cocher sur le siège, un groom
@@ -580,7 +513,6 @@ il est actuellement en réparations, et tellement couvert
 d'échafaudages qu'on le voit fort mal; à peine peut-on
 pénétrer en une cellule sombre où on distingue difficilement les statues en marbre blanc d'un très beau
 
-IMPRESSIONS SUR JAVA
 Bouddha, et de deux princes, grandeur naturelle, placés
 sous sa bénédiction.
 
@@ -614,7 +546,6 @@ possibles du mot, beau d'une beauté classique et d'une
 beauté orientale, beau d'immensité, de légèreté, de
 blancheur, de poésie. — Le temple de Madura, dans le
 
-. Félicien Challaye
 sud de l'Inde, est beau aussi à sa manière, expression
 puissante et complexe de la plus mystérieuse des races,
 de la plus étrange des religions. — Je ne puis trouver
@@ -630,7 +561,6 @@ statues de Bouddha; autour de chaque terrasse tourne
 une galerie, entre deux murs portant une succession
 ininterrompue de bas-reliefs sculptés dans la pierre. Audessus des cinq terrasses carrées, trois terrasses circulaires, plus petites, avec des coupoles en ruines contenant
 des statues du Dieu; tout au sommet, une grande coupole
-(dagoba).
 
 Les détails du monument valent certainement mieux
 que l'ensemble : à les examiner de près, je me sens de
@@ -649,9 +579,6 @@ incomparablement plus forte : le temple si bien conservé d'Angkor
 Wat aussi bien que les prodigieux monuments d'Angkor Thom tout
 envahis par la forêt.
 
-El PRETÉ ES } )
-S IMPRESSIONS SUR JAVA
-
 certaines scènes de prédication : le Bouddha, la tête
 ceinte d'une auréole, prononce des paroles de douceur,
 de résignation ; ses auditeurs l'écoutent, le visage transfiguré ; ils jouissent des paroles du Maître, en une pieuse
@@ -662,7 +589,6 @@ belles émotions dont le Bouddhisme a enrichi les
 consciences de ses fidèles. J'en ai eu déjà le sentiment,
 au Musée de Calcutta, en présence d'admirables basreliefs bouddhiques, provenant, entre autres, de la topée
 de Sarnath près Bénarès : je me rappelle surtout un
-émouvant petitbas-relief montrant Çakya Mouni laissant
 venir à lui les petits enfants...
 
 Comme la plupart des artistes bouddhistes, les
@@ -684,8 +610,6 @@ la jambe, la paume tournée en dedans, les doigts
 tombants : symbole exprimant admirablement un profond sentiment bouddhique, un profond sentiment
 
 humain, la lassitude devant la vie, le désir du repos
-
-Félicien Challaye
 
 définitif, l'espoir de l''anéantissement conçu comme la
 récompense suprême... — Quant au Bouddha que renferme la grande coupole du sommet, il est presque
@@ -709,13 +633,10 @@ monde, qui m'a tant impressionné quand je l'ai vu pour
 la première fois à Ceylan, ici m'émeut encore davantage; je crois comprendre mieux l'humanité, la profondeur de la morale bouddhique. — Les pèlerins qui jadis
 visitaient le temple, devaient le quitter avec une foi
 accrue en la valeur unique du Bouddhisme, plus résignés aux souffrances inévitables, plus doux à tous les
-vivants.
 
 Cependant, à bien des détails, on peut s'apercevoir
 que ce temple, sincère à sa manière, est l'œuvre de disciples lointains du Maître; que beaucoup de temps s'est
 écoulé entre son apparition terrestre et l'œuvre destinée
-
-IMPRESSIONS SUR JAVA
 
 à la célébrer. Avec le temps la religion s'est cléricalisée : le Boro Boedoer est encore une œuvre religieuse,
 c'est déjà une œuvre cléricale. Les bas-reliefs rappelant
@@ -749,7 +670,6 @@ moi une sympathie étrange pour ces ruines pleines de
 souvenirs. J'éprouve un très vif plaisir à me promener,
 * tout seul, entre les bas-reliefs des galeries, à monter
 
-Félicien Challaye
 jusqu'au sommet de la plus haute coupole. D'ici on distingue mieux la lamentable décrépitude du pauvre
 temple abandonné. L'impression est mélancolique,
 presque douloureuse. Les Javanais, devenus mahomé-
@@ -761,7 +681,6 @@ mourir. Notre Christianisme mourra,
 Assis au sommet du Boro Boedoer, je me demande
 quelle religion remplacera le Christianisme en Europe.
 Une religion supérieure sans doute, supérieure en
-vérité, en large intelligence, en justice, en humanité ;
 une religion qui ne consistera pas toute en affirmations
 métaphysiques inacceptables, qui ne reposera pas entiè-
 rement sur un fait historique douteux ; une religion qui
@@ -779,8 +698,6 @@ des hommes par l'affirmation abominable d'un enfer aux
 peines éternelles. La religion qui remplacera le Christianisme existe déjà en beaucoup de consciences, obscurément sentie plutôt que clairement formulée; elle est
 l'âme cachée des amitiés intellectuelles qui rapprochent
 
-Herr ; }
-: IMPRESSIONS SUR JAVA
 les meilleurs d'entre nous. Elle constate l'immensité de
 l'Univers ; elle découvre en l'homme le besoin d'étendre
 infiniment sa personnalité finie par la connaissance et
@@ -793,7 +710,6 @@ l'action généreuse et joyeuse par laquelle l'individu
 exprime son amour et son intelligence de l'Univers en
 travaillant à réaliser la justice parmi les hommes.
 Tosari et le Bromo
-Mardi, 11 décembre
 
 On m'a vivement conseillé de ne pas quitter Java sans
 visiter les régions volcaniques de l'extrême-est, sans
@@ -805,15 +721,9 @@ A la gare de Pasoeroean, beaucoup de voyageurs
 appartenant à toutes les races qui se mêlent à Java: des
 fonctionnaires hollandais ; de grasses Hollandaises
 blondes; des Javanais et des Javanaises; un chef de
-gare métis ; quelques jolies métisses au teint mat, aux
 beaux cheveux noirs, aux larges yeux passionnés; des
 Arabes ; des Chinois ; une petite mariée chinoise, bien
 drôle en sa robe bleu clair et rose saumon, couverte de
-fantastiques broderies.
-
-[nt
-
-Félicien Challaye
 
 A Pasoeroean je prends une voiture pour Poespo. La
 petite voiture file très vite en plaine, sur une large
@@ -846,18 +756,15 @@ le riz. Les prêtres craignaient que, fixée au sol par la
 culture du riz, la peuplade hindouiste ne fût obligée
 d'accepter la religion des vainqueurs. Maintenant les
 
-IMPRESSIONS SUR JAVA
 Tengérèses vivent tranquilles dans leurs montagnes, le
 commandement antique a perdu son sens : tous cependant continuent à lui obéir, à remplacer la culture
 habituelle du riz par la culture des légumes, extraor-
- dinaire à Java.
 
 Une petite fille vend des bananes au bord du chemin;
 je m'approche d'elle ; elle s'effraye d'abord et fuit;
 puis, rassurée, elle se rapproche. Pour quelques centimes, elle me donne une trentaine de bananes, que je
 partage avec mon cocher. La vie indigène est ici,
 comparée à la vie européenne, d'un extrême bon
-marché.
 
 Ma voiture s'arrête à Poespo. C'est l'heure du rijstaJfel. Un gros aubergiste européen s'avance vers moi :
 en anglais, je lui demande de me servir à déjeuner; il
@@ -878,8 +785,6 @@ avec leurs femmes! Ils viennent, paraît-il, de voyager
 en Europe, ont été reçus par la reine de Hollande... »—
 Les princes, les princesses et moi, nous nous faisons,
 en arrivant à table, de cérémonieuses révérences. Ils
-
-Félicien Challaye
 
 ont le visage brun, l'air assez intelligent; ils sont vêtus
 d'étoffes blanches, drapées d'une façon originale, qui
@@ -905,7 +810,6 @@ posés sur le dos des vaches, s'envolent à l'approche de
 mon cheval... — Les nuages s'accumulent au ciel, la
 pluie commence à tomber. De puissants coups de tonnerre résonnent dans la montagne. De temps à autre
 des nuages mouvants m'enveloppent. J'arrive vers
-quatre heures à Tosari.
 
 Tosari est une station de montagne à 1.777 mètres,
 où les Hollandais, épuisés par la chaleur de l'île, viennent se soigner et se reposer. À côté du village, composé de maisons indigènes serrées les unes contre les
@@ -914,7 +818,6 @@ meilleur des Indes néerlandaises. — La température
 est très fraîche. On quitte le costume de toile blanche
 pour des vêtements plus chauds. IL y a des vitres aux
 
-IMPRESSIONS SUR JAVA
 fenêtres; le lit a deux draps, des couvertures, un seul
 traversin, comme en Europe.
 
@@ -935,9 +838,6 @@ la sympathie pour la France des Hollandais de Java :
 çaise », fait annoncer une modiste.. Et le salon de
 l'hôtel où je lis ces journaux locaux est orné de gravures françaises, reproductions de tableaux de nos
 peintres militaires représentant de tristes scènes de la
-guerre franco-allemande.
-
-Mercredi, 12 décembre
 
 Ce matin, à six heures, on a, du jardin situé devant
 l'hôtel, une vue vraiment magnifique: au premier plan
@@ -948,10 +848,7 @@ majestueux, derrière un voile de brouillard grisâtre.
 Pendant la saison des pluies, on n'a que de bon matin
 une vue aussi étendue.
 
-29 lu,
-
 .
-Félicien Challaye
 
 Les chevaux de l'hôtel étant tous loués, je n'irai que
 demain au Bromo. Je profite de la journée libre pour me
@@ -983,11 +880,8 @@ Tosari; deux paysannes portant des légumes s'y rendent aussi. Me montrant un va
 passe, elles me parlent en malais; je leur réponds en
 français. Nous échangeons ainsi quelques phrases sans.
 
-IMPRESSIONS SUR JAVA
 nous comprendre. Puis, sentant tout d'un coup le
 comique de la situation et nous amusant à nous découvrir si éloignés les uns des autres, nous nous mettons à
-rire ensemble.
-Jeudi, 13 décembre j
 
 Parti à cinq heures du matin, pour le Bromo, sur un
 excellent petit poney. Mon guide est un charmant jeune
@@ -1017,7 +911,6 @@ Sable. D'en bas le spectacle est encore fort imposant ;
 imposant d'une autre manière: on perçoit l'énormité
 des volcans que tout à l'heure on imaginait seulement,
 
-Félicien Challaye
 Remonté à cheval, je passe entre le Batok, aux flancs
 tout boursouflés, et la paroi rocheuse, presque à pic,
 étrangement verdâtre, qui domine et entoure la Mer de
@@ -1031,14 +924,12 @@ lui.
 
 Je monte à pied les pentes escarpées du Bromo; un
 sentier assez raide, puis des espèces de marches,
-mènent au sommet.
 
 Du sommet du mur rocheux, on découvre à ses pieds
 le cratère singulièrement vaste. Sur les parois crevassées, des coulées de laves ; de larges plaques de soufre
 jaune clair ou vert foncé. Des jets de fumée montant
 très haut s'échappent de nombreuses ouvertures. Tout
 au fond s'agitent des eaux bouillonnantes, prenant
-tour à tour diverses couleurs, grises, blanches, noires
 ou verdâtres ; une vapeur s'en élève, tantôt légère
 comme un brouillard, tantôt épaisse comme un nuage.
 On entend constamment un bruit puissant, semblable
@@ -1052,12 +943,9 @@ Je me mets à penser que si j'avais en moil'âme pieuse
 et craintive et l'imagination mystique d'un homme du
 moyen-âge, je serais terrifié sans doute à la vue de ce
 
-IMPRESSIONS SUR JAVA
-
 cratère: je croirais découvrir à mes pieds une. des
 ouvertures de cet enfer, où, par la volonté du Dieu
 d'amour, brûle éternellement l'innombrable foule des
-damnés.
 
 Mais, comme je suis né au dix-neuvième siècle, la
 Science moderne a déposé en moi le germe de sentiments plus calmes et de plus hautes pensées. Ces phé-
@@ -1085,17 +973,13 @@ fait penser que l'homme est, après tout, supérieur à
 l'immense Nature, plus intelligent, plus aimable qu'elle,
 quand il s'efforce de comprendre tout le réel par la
 
-Félicien Challaye
 science, quand il travaille à diminuer la souffrance ow
 à accroître la joie de quelques-uns des êtres qui participent à La vie de l'Univers. $
 Quelques remarques sur la colonisation
-hollandaise
-Batavia, mercredi 19 décembre
 
 Avant de quitter Java, je tiens à préciser les idées que
 mon voyage me laisse sur la colonisation hollandaise,
 à la suite de la traversée rapide de toute l'île, de quelques conversations intéressantes, de lectures faites sur
-place.
 
 Je crois, pour ma part, nécessaire et même urgente:
 l'étude désintéressée de la question coloniale. — Sous
@@ -1115,9 +999,6 @@ militairement et économiquement faible est destiné à
 être le sujet d'un peuple européen militairement et
 économiquement fort. Si le fait de la colonisation est
 
-34 :
-
-So IMPRESSIONS SUR JAVA
 provisoirement inévitable, c'est par des réformes pré-
 cises réalisables progressivement, non par l'espérance
 vague d'une lointaine révolution totale, qu'on peut travailler à libérer les indigènes, comme le réclame la
@@ -1144,13 +1025,10 @@ monopole d'un certain commerce, — et antidémocratique, puisqu'elle repose sur
 curieux cependant d'observer que la population, sous
 ce régime qui devait, semble-t-il, la ruiner et l'affai-
 
-Félicien Challaye
-
 blir, s'est, au contraire, prodigieusement accrue, et
 même enrichie : tant sont grands les avantages économiques d'une organisation méthodique du travail social.
 Si ce régime étatiste eût été en même temps démocratique, si les sommes énormes confisquées par la Hollande avaient été employées au bénéfice des travailleurs
 indigènes, la situation des Javanais en eût été très vite
-prodigieusement améliorée.
 
 Se donnant cette tâche précise, l'exploitation méthodique des richesses du sol, les Hollandais surent habilement faire concourir à cette fin tous les détails de
 leur administration. Même quand on se fait un tout
@@ -1179,16 +1057,11 @@ comment se juxtaposent en un tel système l'intervention
 
 de l'État, défenseur des droits de la collectivité et des
 
-'
-
-; . IMPRESSIONS SUR JAVA
-
 | droits des indigènes, et la libre activité individuelle des
 colons; nous aurons intérêt à étudier ces formes de
 propriétés relatives, limitées, temporaires, pour les
 introduire peu à peu chez nous, à mesure que se révélera
 plus injuste, plus inacceptable, notre régime actuel de
-propriétés absolues, illimitées, héréditaires. Au point
 de vue administratif, les Hollandais ont eu la sagesse
 de s'en tenir au système du protectorat, de résister à la
 
@@ -1215,11 +1088,6 @@ conditions de leur développement, l'influence des terrains
 et des engrais, les maladies et les remèdes. L'État et
 les particuliers se sont associés pour cette œuvre : les
 
-LEL
-à
-A
-
-Félicien Challaye
 planteurs paient un tiers des dépenses du Jardin de
 Buitenzorg ; l'État fournit aux planteurs des semences,
 des boutures, leur avance même parfois des capitaux.
@@ -1252,8 +1120,6 @@ des nouveaux traités : qui sait, se demandaient certains
 Hollandais, si l'ambitieux Japon n'acceptera pas un
 jour une telle prière, et ne trouvera pas, dans la protection de ces nouveaux nationaux, un prétexte pour
 
-IMPRESSIONS SUR JAVA
-
 s'emparer avec sa flotte excellente de l'île mal dé-
 fendue ?.. — Ainsi l'admirable colonie d'autrefois
 décline, mais à la suite d'événements de politique et
@@ -1282,8 +1148,6 @@ comme à Java; qu'ils soient protégés dans leurs propriétés individuelles ou
 (1) « A l'époque actuelle, une colonie ne saurait être qu'un marché
 privilégié de vente et d'achat. » Capitaine Fernand Bernard. L'IndoChine (page 208).
 
-Félicien Challaye
-
 qu'ils soient gouvernés par des administrateurs de leur
 race, dirigés eux-mêmes par des Européens connaissant
 leur langue et leurs usages, comme à Java ; qu'ils soient
@@ -1303,11 +1167,7 @@ liberté. Le régime colonial, issu de la guerre, travaillera
 pour la paix dès qu'un esprit meilleur l'animera : il
 contribuera à avancer l'heure où toutes les nations
 également libres s'uniront fraternellement en l'humanité
-pacifiée.
 
-D
-
-FÉLICIEN CHALLAYE
 (1) En Indo-Chine française, par exemple.
 
 Le courrier que l'on va lire était composé à l'impri-
@@ -1316,8 +1176,6 @@ Jaire passer dans un cahier qui fût tout de courriers; je
 suis particulièrement heureux de le joindre au courrier
 de Challaye et de publier les deux ensemble.
 
-FRANÇoIs DAGEN
-COURRIER D'ALGÉRIE
 Considérations sur les causes de la grandeur et de
 la décadence de l'antisémitisme en Algérie
 
@@ -1337,8 +1195,6 @@ Quant aux quatre autres candidats républicains, ils
 essayé de prendre la succession de M. Thomson; à
 Oran, M. Firmin Faure l'emportait sur M. SaintGermain, député sortant; à Alger (deuxième circonscerip-
 
-François Dagen
-
 tion), M. Marchal triomphait de M. Mauguin, ancien
 sénateur, qui se présentait à la place de M. Bourlier,
 député sortant; et dans la première circonscription
@@ -1347,7 +1203,6 @@ candidat officiel de M. Lépine, par plus de 7.000 voix
 de majorité. Ainsi en 1898 l'antisémitisme souffle en
 tempête ; on eût dit un ouragan, une manière de
 cyclone, renversant, emportant, balayant tout, idées,
-sentiments, principes, traditions.
 
 Et voici qu'en 1902 le calme apparaît de nouveau, les
 haines s'apaisent, et l'idée républicaine se fait jour,
@@ -1361,7 +1216,6 @@ délaissée pour Saint-Denis (Seine) par M. Firmin Faure;
 à Blida, M. Begey l'emporte facilement au second tour
 sur M. Marchal, et enfin M. Maurice Colin parvient à
 tomber dans Alger même, la forteresse de l'antisémitisme, celui que l'on a parfois appelé le « pape » des
-antijuifs, M. Édouard Drumont.
 
 Une question intéressante se pose : comment les
 antisémites ont-ils pu être chassés de l'Algérie? Pour
@@ -1371,10 +1225,7 @@ montrer, — dans une deuxième partie, — comment les
 premières se sont disloquées, dispersées, émiettées,
 tandis que les secondes grossissaient sans cesse des
 
-COURRIER D'ALGÉRIE
-défections ennemies, se groupaient, se rassemblaient,
 se disciplinaient, prêtes enfin pour l'assaut.
-I
 
 Les ANTIUIFS peuvent se ranger en deux catégories :
 les Français et les naturalisés.
@@ -1382,7 +1233,6 @@ les Français et les naturalisés.
 Les FRANÇAIS. — Des causes nombreuses et diverses
 ont précipité les Français dans l'antisémitisme; il en
 est deux espèces pourtant qui paraissent particulièrement importantes; les unes sont d'ordre politique, les
-autres d'ordre économique.
 
 Raisons politiques. — D'abord les royalistes et les
 bonapartistes, et d'un mot plus général, les cléricaux,
@@ -1401,9 +1251,6 @@ mites, devait être élu au second tour. Mais M. Giraud,
 candidat antisémite dont personne n'ignore l'esprit
 républicain, refusa de se désister en faveur de M.Gieure
 
-4 LITE
-
-François Dagen
 qui passait, à juste titre sans doute, pour clérical. Et
 de la sorte M. César Trouin, candidat républicain,
 passa assez facilement. — Peut-être même ne suffit-il
@@ -1435,8 +1282,6 @@ leçons du pasteur. Faut-il d'autres faits ? Les candidats
 antijuifs sont parfois eux-mêmes des libres penseurs, et
 leurs actes s'accordent avec leurs principes. Exemple :
 
-COURRIER D'ALGÉRIE
-*
 M. Morinaud, ancien député de Constantine, s'est marié
 civilement, et ses enfants n'ont pas reçu le baptème.
 En somme, une expérience même superficielle permet
@@ -1465,8 +1310,6 @@ tous les Français, du moins est-ce un acheminement
 vers la pensée républicaine ou, si l'on veut, comme un
 premier balbutiement de l'idéal démocratique.
 
-François Dagen
-
 Il faut donc admettre ce qu'en France on a nié passionnément, c'est que la très grosse majorité des antijuifs était républicaine. Le noyau antijuif n'était pas
 formé de cléricaux, auxquels les républicains se seraient
 adjoints; au contraire il était formé de républicains
@@ -1493,8 +1336,6 @@ secret, mais avec fermeté, en faveur des radicaux, qui
 changeant de rubrique, devenaient des antisémites. Le
 succès dépassa les espérances, la France effrayée
 nomma M. Lépine gouverneur, avec mission de réagir.
-
-COURRIER D'ALGÉRIE
 
 Mais le courant antijuif était déjà si fort qu'il semblait
 
@@ -1526,7 +1367,6 @@ leur assure une caisse toujours alimentée, et ils ne
 manquent pas de cet argent, qui est le nerf de la lutte
 __ électorale. Les républicains judaïsants ne l'ignorent pas,
 
-François Dagen ;
 et aujourd'hui ils demandent eux-mêmes, tout comme
 les antijuifs, que les droits des Gonsistoires soient
 réduits à ceux des conseils de fabrique chez les catholiques. C'est ce que M. Colin, élu député d'Alger contre
@@ -1555,9 +1395,6 @@ ses efforts à cette tâche. Il organisa des réunions et
 Saint-Eugéne et d'Alger l'agglomération urbaine cornue en France
 sous le nom d'Alger, Saint-Eugène étant au nord, Mustapha au sud.
 Saint-Eugène a près de 1.000 électeurs, Mustapha environ 6.000,
-Alger 11.000.
-
-COURRIER D'ALGÉRIE
 
 fonda des journaux pour soutenir que les Juifs étaient,
 en Algérie comme en France, les principaux détenteurs
@@ -1565,7 +1402,6 @@ de la richesse, et que la lutte contre eux était la latte
 des petits contre les grands, des prolétaires contre le
 patronat. Il proclamait que l'antisémitisme était au fond
 l'anticapitalisme, et par conséquent l'essence même du
-socialisme. +
 
 Avec les socialistes le caractère de l'antisémitisme
 s'est modifié; la question a été portée sur le terrain
@@ -1592,9 +1428,6 @@ court vous le chercher chez son collègue du coin. Il
 ressemble à ces Orientaux, à ces Hindous, que l'on
 voit passer par les rues d'Alger, un ballot sur l'épaule.
 
-5x
-
-François Dagen
 Ils vous accostent, et, même si vous n'avez nulle envie
 d'acheter, ils déplient leur paquet et font miroiter à vos
 yeux l'éclat des soieries, les ciselures des vases de
@@ -1624,8 +1457,6 @@ exalté; car l'antijuif se sert chez le Juif. Et dès lors, estce merveille si l
 antijuifs? Le commerçant est antijuif, parce que le Juif .
 est un concurrent; il serait antiitalien, antiespagnol,
 
-LE te ù /
-\ COURRIER D'ALGÉRIE
 antimaltais, si la concurrence lui venait de l'Italien, de
 l'Espagnol, du Maltais. La rivalité de métier le rend
 antisémite, comme elle le rend antimoutchou. Mais
@@ -1658,7 +1489,6 @@ Si de la ville vous passez au village et à la ferme, de
 chez le marchand chez le colon, vous trouvez toujours
 le mème sentiment de haine pour l'Israélite. Sur les
 
-François Dagen
 coteaux du Sahel, dans les plaines grasses dela Mitidja
 et du Chéliff, sur la Hammada des Hauts Plateaux, partout en un mot l'antisémitisme pousse aussi dru que le
 blé, la vigne ou l'alfa. Et ici encore ce sont des raisons
@@ -1686,7 +1516,6 @@ devoir rapporter davantage : hier celle de la vigne,
 demain celle du géranium. Qu'il y ait mévente, il ne
 peut se rattraper sur l'orge ou sur le blé, puisqu'il n'en
 
-COURRIER D'ALGÉRIE
 a pas semé. Quant au colon des Hauts Plateaux, qui
 s'occupe surtout de l'élevage des moutons, il redoute
 sans cesse, avec les maladies et le froid qui tuent les
@@ -1704,11 +1533,9 @@ il souscrit de nouveaux billets, jusqu'au jour où il sera
 dépossédé par le créancier, par le Juif. Et aussitôt notre
 homme de se répandre en récriminations contre les
 Juifs, qu'il accusera de tous ses malheurs : cela le dispensera de s'accuser lui-même. Et l'antisémitisme
-pousse... grandit...
 
 Telles sont les origines diverses de l'antisémitisme
 français ; celles de l'antisémitisme étranger sont plus
-simples.
 
 LES NATURALISÉS. — La presque totalité des naturalisés comprend des gens de race latine: des Italiens, des
 Maltais, des Espagnols. Très sobres, ils sont aussi très
@@ -1717,7 +1544,6 @@ plus divers : ouvriers dans les manufactures, ouvriers
 
 ; agricoles, pêcheurs, charretiers, garçons de café,
 
-François Dagen
 employés de commerce, petits et gros patrons, ils font
 aux Français d'origine une concurrence de tous les instants. Les Italiens, dont les colonies couvrent les côtes
 algérienne et tunisienne, se consacrent plus volontiers
@@ -1747,7 +1573,6 @@ l'intérêt personnel l'exalte.
 
 Personne n'ignore le profond attachement des Espagnols et des Italiens au catholicisme. Chez eux le sentiment religieux s'exaspère jusqu'au délire, et la superstition ne connaît pas de limites. Les prêtres français en
 
-COURRIER D'ALGÉRIE
 sourient, à leurs heures ; et je n'ai pas oublié la confidence attristée de l'un d'eux. Nous étions sur la colline
 d'Hippone ; derrière nous se dressait la nouvelle église
 dédiée à saint Augustin ; à gauche, dans le lointain,
@@ -1778,9 +1603,6 @@ tout cas ils sont aussi religieux. Un fait ofliciel le mettra pleinement en lumi
 très connu à Malte, M. Enrico Zamith, un article de
 protestation contre la formule du serment qu'avait
 
-( ‘
-François Dagen
-
 prêté Édouard VII. Et savez-vous pourquoi ? Parce que
 cette formule, vieille de plusieurs siècles, contient quelques mots de bläme à l'adresse du catholicisme. —
 Ainsi Espagnols, Italiens, Maltais, sont profondément
@@ -1810,7 +1632,6 @@ Périllier l'a rappelé à ceux qui auraient été tentés de
 l'oublier, et l'on sait la panique qu'il jeta parmi les
 immigrés, jusqu'au seuil du désert. Ainsi s'explique
 
-COURRIER D'ALGÉRIE
 aisément lanecdote que conta la Dépéche algré-
 rienne. Au lendemain des dernières élections législatives, un fonctionnaire surprit sa bonne, une Espagnole,
 qui pleurait et gémissait. Il lui en demanda la raison,
@@ -1842,7 +1663,6 @@ en agissant sur lopinion. Un parti ne devient fort, en
 "effet, que s'il donne l'illusion de la force, s'il paraît
 répondre aux sentiments et aux vœux de la nation.
 
-François Dagen
 Aussi s'efforce-t-on de provoquer des manifestations
 publiques, dont le retentissement sera considérable.
 Bien des gens qui seraient restés indifférents, sont ainsi
@@ -1857,8 +1677,6 @@ une foule immense et bariolée, où l'on distinguait
 surtout les sombreros des Espagnols et les bérets des
 Italiens, et la Marseillaise antijuive, que striaient les
 cris de : « En bas les Juifs! » s'élevait, hurlée à pleine
-voix :
-A Paris, en France,
 On n'est plus chez soi :
 . Quelle est donc l'engeance
 Qui nous fait la loi?
@@ -1869,16 +1687,12 @@ Tue le citoyen. !
 Y a trop longtemps qu'on est dans la misère,
 Chassons l'étranger, ça fera travailler ;
 Ce qu'il nous faut, c'est l'Algérie française,
-Drumont député
 Et Max Régis en liberté.
 
 « Chassons l'étranger! » et c'étaient des Maltais, des
 Italiens, des Espagnols, dont quelques-uns venaient à
 peine de débarquer, qui rugissaient ainsi leur haine du
 Juif. C'étaient eux qui défonçaient et dévalisaient les
-
-É
-COURRIER D'ALGÉRIE
 
 magasins des « sales youpins »; c'étaient eux, qui, en
 plein jour, sur la place du Gouvernement, insultaient
@@ -1907,21 +1721,14 @@ LES JUDAISANTS. — A l'armée formidable des antijuifs,
 les judaïsants n'avaient à opposer que des troupes
 clairsemées : les Juifs, un petit nombre de Français, et
 dans certaines villes, par suite de circonstances spé-
-ciales, quelques naturalisés.
 
 Jusqu'alors les Juifs avaient été divisés. Ils se partageaient en deux « cçofs », dont l'un votait avec les
 opportunistes, l'autre avec les radicaux. Mais, à l'approche du danger, ils écoutèrent les conseils des Consis-
-
-6x
-LA
-
-François Dagern
 
 toires, qui prêchaient l'apaisement, et ils s'unirent
 contre le danger commun. Sans doute il y eut quelques
 trahisons, et l'on vit par exemple à Alger un Moïse Chaloum signer des articles à l'Antijuif. Mais ces désertions restèrent isolées, et les suffrages israélites allèrent
 aux candidats judaïsants : le « bloc » juif ne fut pas
-entamé.
 
 Il y eut aussi des Français qui, malgré leur nombre
 infime, eurent la hardiesse de résister, sans aucune
@@ -1941,19 +1748,16 @@ partout où ils ont subi l'ascendant d'une personnalité
 judaïsante. A Blida, les Espagnols ont longtemps voté
 pour M. Mauguin; et à Bône, les Italiens ont toujours
 soutenu M. Dominique Bertagna et ses amis. La politique générale des naturalisés fut antijuive; mais leur
-politique locale a parfois été judaïsante.
 
 Le dénombrement des forces en présence est suffisamment suggestif, La victoire était assurée aux antijuifs.
 En 1898, aux élections législatives, ils remportent un
 succès sans précédent; et les élections municipales de
 
-COURRIER D'ALGÉRIE
 1900 achèvent leur triomphe. — Arrive 1902, et c'est,
 d'un coup, l'écrasement : la France en fut interloquée,
 
 en Algérie on le prévoyait, Pourquoi?
 
-II
 La défaite subite des antijuifs paraît due à trois ordres
 de causes : les dissensions du parti, qui s'émiette; la
 lutte habile et acharnée des républicains judaïsants :
@@ -1975,8 +1779,6 @@ M. Max Régis l'attaqua à plusieurs reprises dans son
 journal, l'Antijuif. M. Morinaud, à son tour, ne tardait
 pas à suivre l'exemple de M. Marchal : l'ancien chef du
 
-François Dagen
-
 parti radical de Constantine comprit qu'il risquait de
 perdre son prestige à marcher dans le sillage de
 M. Drumont, de M. Firmin Faure, des réactionnaires,
@@ -1990,11 +1792,9 @@ Oran, l'échec du parti antisémite fut dû, comme on l'a
 dit, à M. Giraud qui, républicain antijuif, refusa de
 donner ses voix à M. Gieure, antijuif clérical. Partout
 la coalition antisémite se démembrait : les réactionnaires restaient à droite, les républicains passaient à
-gauche.
 
 Les dissentimenis politiques ne furent pas seuls à
 causer la brouille; il s'y ajouta des raisons d'intérêt. A
-Constantine, lorsque M. Mercier se retira, M. Morinaud
 obtint le fauteuil demaire, qui avait été naguère promis
 à M. Vars. Celui-ci, froissé, démissionna. Mais les divisions ne prirent réellement de l'importance qu'à Alger.
 Là, M. Max Régis, toujours épris de notoriété, avait
@@ -2007,10 +1807,6 @@ juives de la rue de la Lyre. Quelques jours après,
 apprenant que cette fois on va l'arrêter, il s'enfuit à
 bord d'une balancelle et gagna l'Espagne. Surviennent
 les élections municipales de 1900; la liste antijuive est
-élue : M. Voinot, maire sortant, arrive en tête, Max
-
-NAT .
-COURRIER D'ALGÉRIE
 
 Régis en queue. La mairie revenait naturellement à
 M. Voinot; mais « lexilé d'Alicante » commençait à
@@ -2039,11 +1835,6 @@ Il trouva mauvais que M. Régis n'eût pas songé à lui ;
 et, se séparant bruyamment, il fonda L'Étendard antiJuif, où, sans recourir à l'injure, il attaqua vivement
 
 (1) En Algérie, les maires reçoivent des honoraires, celui d'Alger
-touche environ 10.000 francs.
-
-6 tv.
-
-François Dagen
 
 l'ancien maire. Il lui rappela son échec contre Allemane, à une époque où le nationalisme était triomphant; sa couardise et sa fuite devant Laberdesque,
 qui fut réduit à le suivre à Paris pour l'obliger à croiser
@@ -2075,9 +1866,6 @@ antisémites essayèrent-ils de le retenir ; diffamés eux
 aussi, ils ripostèrent. Un antijuif de la première heure,
 M. Mallebay, directeur du Turco, et ami personnel de
 
-[A j
-
-COURRIER D'ALGÉRIE
 Max Régis, fut vilipendé par le directeur de l'Antijuif
 et répliqua vertement. Louis Régis lui-même, écœuré de
 la campagne que menait son frère contre M. Voinot,
@@ -2103,8 +1891,6 @@ commence à sentir les bienfaits de l'ordre : la rue est
 libre. Et les républicains, les Algériens, les Français de
 cœur se ressaisissent : contre l'antisémitisme ils défendent la République, l'Algérie, la France.
 
-François Dagen
-
 Les républicains sont debout : opportunistes et radicaux, ils se savent trahis ; car ils ont vu leurs députés à
 l'œuvre. M. Firmin Faure et M. Édouard Drumont luttent
 sans merci contre le gouvernement; quant à MM. Marchal et Morinaud, ils s'exercent à un jeu de bascule :
@@ -2129,7 +1915,6 @@ du Peuple » à Alger, la « Chambrée républicaine » à
 Mustapha, rassemblent les forces ouvrières, si bien
 qu'en 1902 l'élément socialiste sera représenté à l'assemblée municipale par quelques conseillers et un
 
-COURRIER D'ALGÉRIE
 adjoint. — Autour de l'idée républicaine tous les républicains se sont groupés; elle va triompher.
 
 Mais la République n'était pas seule en cause; le
@@ -2158,7 +1943,6 @@ indigènes, profitent de cette manne bienfaisante, partout, dans les villes de l
 l'intérieur, sous les palmeraies des oasis. Et voilà que
 soudain les troubles de 1898 chassèrent les touristes.
 
-François Dagen
 En quelques jours les hôtels de Mustapha et d'Alger se
 trouvèrent vidés ; les hiverneurs fuyaient des villes où
 la sécurité était si incertaine qu'il fallait en occuper les
@@ -2188,9 +1972,6 @@ des questions algériennes ; et je me souviens qu'un
 délégué financier, élu sur le programme antijuif, me
 disait quelques jours avant les élections législatives de
 1902 : « Je ne voterai pas pour M. Drumont; il me con70
-L
-
-COURRIER D'ALGÉRIE
 
 naît rien aux affaires du pays. » Le délégué avait
 raison; mais il pouvait ajouter que MM. Marchal et
@@ -2221,10 +2002,7 @@ court, n'atteint pas la cheville: et ils marchent, chaussés de ces « alpargate
 -cou-de-pied et les orteils. Quelques-uns ont un châle
 sur les épaules. Ce sont des « pataouètes » où Espagnols
 
-1e L
-
 |
-François Dagen |
 nouvellement débarqués : sous peu, ils deviendront des |
 citoyens français. A Philippeville, à Bône, ce sont plutôt |
 ) des Italiens qui viennent s'établir, mêlés de Maltais. Et
@@ -2256,11 +2034,7 @@ rait les conscrits algériens dans les régiments de la |
 métropole. De la sorte l'élite et la masse de la jeunesse
 se familiariseraient avec les mœurs et les institutions de
 la France : l'âme algérienne resterait l'âme française.
-72 |
 
-tré :
-
-RS COURRIER D'ALGÉRIE
 Mais ces projets n'ont pas prévalu : ils lésaient, l'un les
 intérêts des particuliers, l'autre les intérêts de l'État.
 On s'est rejeté alors sur l'Enseignement primaire, on
@@ -2283,8 +2057,6 @@ temps d'élections de tirer du magasin d'accessoires. Et
 l'on comprend que les Français d'Algérie aient concentré leurs efforts contre l'antisémitisme, assurés d'enrayer
 ainsi, au moins pour un temps, le mouvement sépara-
 
-DAIUISTE.
-
 Le parti judaïsant devenait donc de plus en plus formidable, par sa propre organisation et par la désorganisation parallèle du parti adverse. Un certain nombre
 de circonstances d'ordre social, économique, politique,
 militaire même, accéléra encore son progrès.
@@ -2294,8 +2066,6 @@ A Alger, dès 1901, les ouvriers français se ressentirent vivement de la concur
 - indigènes. Les entrepreneurs embauchaient de préfé-
 | 5
 #
-
-François Dagen
 
 rence des Espagnols et des Italiens, des Arabes et des
 Kabyles, gens sobres et accoutumés à une vie de
@@ -2354,7 +2124,6 @@ audience. Cependant les élections approchaient, le
 projet de loi fut ajourné. Mais la menace n'avait pas
 disparu ; et les naturalisés se convainquirent aisément
 
-François Dagen. |
 que, s'ils ne votaient pas pour les candidats républicains, le rapport serait repris à la session de la législature suivante. Aussi la crainte les détourna-t-elle de
 l'antisémitisme ; antijuifs de cœur, ils se firent judaisants par intérêt.
 
@@ -2392,16 +2161,13 @@ ces formules simplistes : « A la porte les Juifs! » —
 « A la porte les étrangers! » Mais qui ne voit ce qu'une
 
 telle amputation, en admettant qu'elle soit possible, |
-76 E
 
-COURRIER D'ALGÉRIE
 aurait de conséquences fâcheuses ? Aussi bien faut-il se
 garder de méconnaître que, pour être une cause de
 péril, les Juifs et les étrangers sont cependant utiles,
 indispensables même à l'Algérie. Les premiers y ont
 créé le commerce et constitué un capital; les seconds y
 ont apporté les bienfaits d'une main-d'œuvre habile aux
-terrassements, aux lourds travaux, aux défrichements..
 Chasser les uns et les autres, ce serait refaire, pour
 l'agriculture et le commerce algériens, ce que fit la
 Révocation de l'Édit de Nantes pour l'industrie et le
@@ -2409,9 +2175,7 @@ commerce français. Ce serait arrêter et compromettre
 l'essor de l'Algérie que de la priver de ces négociants
 avisés, de ces travailleurs actifs et résistants. Ce serait
 tarir un courant de force vitale, une source d'énergie
-motrice.
 Alors, la solution ?.…
 Les plus habiles l'ignorent; mais ce que je sais, c'est
 qu'on ne saigne pas un enfant nouveau-né, et qu'on ne
 dépeuple pas un pays neuf.
-: FRANÇOIS DAGEN

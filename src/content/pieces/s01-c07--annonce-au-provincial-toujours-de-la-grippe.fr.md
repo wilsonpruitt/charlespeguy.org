@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 14267
 ---
-
-*Charles Péguy*
-
 Mon ami,
 Nous commençons à donner aujourd'hui le second
 roman de nos amis Jérôme et Jean Tharaud. Ce roman
@@ -47,10 +44,7 @@ fidèle, non seulement je laissais dire devant moi des
 sévérités où je ne consentais pas intérieurement, de
 ce Coltineur et de plusieurs œuvres et de plusieurs
 hommes et de plusieurs sujets, mais je crois que
-plusieurs fois j'y acquiesçai verbalement.
 Faiblesse dont je fais réparation ici.
-
-TOUJOURS DE LA GRIPPE
 
 Le docteur le premier se rappela que son métier n'était
 pas de rester sous l'impression des témoignages les plus
@@ -58,7 +52,6 @@ beaux, mais de les analyser du mieux qu'il pouvait, et
 de les critiquer.
 
 — Nous n'aurons pas la présomption, mon ami, d'interpréter cette histoire. Vous l'avez parfaitement entendue. Elle vous donne incomplètement raison. Elle me
-donne raison complémentairement.
 — Avant de nous partager, docteur, les morceaux
 incomplets ou complémentaires de cette histoire, si vous
 osez le faire encore, permettez-moi. « — Je vous permets.
@@ -119,8 +112,6 @@ toire de la pauvre dame innocente et vieillie en dévo-
 
 tion, que je me suis permis de vous conter, c'est à bien
 
-A EE CS PNR À TER Cr a ARRET RS PART LEE rat os
-DE LA GRIPPE
 peu près la même histoire. Admettez que pour un in-
 stant je réserve les éléments de cette histoire que je
 crois afférents à vos interrogations. Admettez que je
@@ -166,7 +157,6 @@ ma quelquefois dénommé obscurantiste, ou ignoranliste.
 que le socialisme soit aussi malin qu'on nous le fait
 souvent. Laissons pour aujourd'hui ces débats. Vous
 avez pu distinguer dans la narration dont je vous ai
-vraiment donné connaissance deux tendances chré-
 tiennes, et deux méthodes qui se composent. Première
 méthode : le malade soigne son corps, travaille à la
 guérison de son corps de son mieux, pour des raisons
@@ -191,7 +181,6 @@ de son corps. Dieu l'a créé. Dieu l'a mis au monde. Dieu
 le tient au monde. Dieu le rappellera du monde. Quand
 il a voulu. Comme il veut. Quand il voudra. La vie humaine est en un sens un dépôt. Elle est en un sens une
 épreuve. Elle est en un sens un exil, une résidence de
-captivité
 Sur la terre d'exil pourquoi resté-je encore ?
 Il n'est rien de commun entre la terre et moi.
 La terre est un lieu de punition. Le chrétien est un dépositaire. Il est un éprouvé. Il est un exilé, un puni, un
@@ -326,8 +315,6 @@ et du citoyen, des bourgeois révolutionnaires de
 et par le pape Léon XIII, dans sa fameuse encyclique sur le sort des ouvriers. Mais vous ne voulez
 pas m'écouter. Serait-il vrai que vous fussiez un ignorantiste ?
 
-PE LD depre e etE7 ie ARE ù
-
 — Le citoyen Lafargue n'est pas un ignorantiste. Il
 n'est pas un ignorant. Et dans tout ce que vous m'avez
 cité, docteur, il n'y a presque pas de fautes d'ortho-
@@ -360,7 +347,6 @@ Mais de quel droit retourner dans la cité céleste avant
 que le Maître de la cité vous eût rendu vos droits de
 citoyen, ou vous eût conféré les droits du citoyen.
 Sinon, quelle intrusion. Suflira-t-il que le misérable
-L
 
 intrus embrasse les autels des dieux ou qu'il invoque
 Zeus hospitalier. En vérité, je vous le répète : Si votre
@@ -388,7 +374,6 @@ moins clair alors dans l'ordonnance de sa piété qu'il ne
 voyait clair, malgré les assurances des médecins, dans
 
 la marche et dans l'aggravation de son extraordinaire
-maladie.
 
 — Quels étranges médecins que ces médecins de
 Pascal. Quelle quiétude! et quelle méconnaissance.
@@ -440,7 +425,6 @@ fades leur servent à deux fins : naturellement les soins
 préparent ou font la ‘guérison; moralement, ou plutôt
 religieusement, puisque les drogues sont désagréables,
 pénibles, douloureuses, elles fournissent un exercice de
-pénitence.
 
 — Dont la valeur est diminuée d'autant pour les
 fidèles qui auraient naturellement peur, comme vous,
@@ -572,7 +556,6 @@ pour les gens qui sont dans les recherches de l'esprit.
 La grandeur des gens d'esprit est invisible aux rois,
 aux riches, aux capitaines, à tous ces grands de chair.
 
-DE LA GRIPPE PA
 La grandeur de la Sagesse, qui n'est nulle part sinon
 en Dieu, est invisible aux charnels et aux gens d'esprit.
 Ce sont trois ordres différant en genre. ÿ » Les grands génies ont leur empire, leur éclat, leur
@@ -634,11 +617,8 @@ donne à ce mot de charité, que tant de chrétiens ont
 détourné à des sens vulgaires. Nous aussi, mon ami,
 rien ne nous empêche de restituer au mot de solidarité,
 que tant de socialistes ont monnayé vulgairement, un
-sens non moins parfaitement efficace, non moins précis,
 non moins valable. Ainsi entendue, ainsi aimée, ainsi
 
-Ai LES F
-DE LA GRIPPE Re
 voulue, ainsi connue, ainsi exercée, ainsi profonde et
 libre, la solidarité socialiste jaillit fréquemment au cœur
 des humbles et des pauvres, au cœur des ignorants.
@@ -653,7 +633,6 @@ Moyen-Age. Les deux se composent
 par sentiment du cœur sont bien heureux et bien légitimement persuadés. Mais ceux qui ne l'ont pas, nous +4
 ne pouvons la donner que par raisonnement, en attendant que Dieu la leur donne par sentiment de cœur,
 sans quoi la foi n'est qu'humaine, et inutile pour le
-salut. »
 — Je vous entends comme il convient. ,
 — Je continue :
 « Il eût été inutile à Archimède de faire le prince dans
@@ -666,8 +645,6 @@ même ordre duquel est la grandeur qu'il venait faire
 paraître. Qu'on considère cette grandeur-là dans sa vie,
 dans sa passion, dans son obscurité, dans sa mort, dans
 l'élection des siens, dans leur abandon, dans sa secrète
-
-ira 19 ONE Fès LT , PMP ÉTRr: € A OO ie 2 CU AU BAC PE TPE
 
 résurrection, et dans le reste; on la verra si grande,
 qu'on n'aura pas sujet de se scandaliser d'une bassesse
@@ -767,7 +744,6 @@ propre. Ainsi la science, l'histoire des hommes et des ‘
 sociétés peut conduire et conduit souvent au sentiment
 de la solidarité, mais elle n'est pas le sentiment de la
 solidarité même et ne peut remplacer le sentiment de la ji
-solidarité. (à
 — Nous en causerons, mon ami, quand nous cause- je
 rons de l'enseignement : car la fréquente et heureuse
 introduction de la science à la solidarité, mais parfois
@@ -832,8 +808,6 @@ que nous n'aurions pas l'idée à présent de nous
 traiter l'estomac comme on traite, ou plutôt comme
 
 on n'oserait pas traiter une chaudière de machine
-vapeur.
-5 — Concluons, docteur.
 
 — Non, mon ami, ne concluons pas. Que serait-ce,
 conclure, sinon se flatter d'enfermer et de faire tenir en
@@ -991,8 +965,6 @@ aussi, admettaient surtout qu'il y eût une souffrance
 coéternelle à tout leur bonheur, à leur vie éternelle,
 à leur béatitude et à leur santé.
 
-DE LA GRIPPE À
-
 — Cela, mon ami, est un article de leur foi. ‘4
 
 — Je m'attaquerai donc à la foi chrétienne. Ce qui
@@ -1043,19 +1015,16 @@ ss socialisme. Jamais nous ne dirons oui à la supposition,
 à la proposition de cette mort vivante. Une éternité
 de mort vivante est une imagination perverse, inverse.
 Nous avons bien assez de la vie humaine et de la mort
-‘| humaine.
 « 4 “your — Pour la mort vivante les anciens avaient commencé,
 ) non seulement ceux que vous n'aimez pas, les barbares,
 mais ceux que vous leur préférez. Pour que la cité de
 Thèbes résistât aux ravages de l'anarchie — déjà — le
 nn roi Créon avait jugé indispensable que la fraternelle et
 coupable Antigone füt enfermée vivante dans un cachot
-naturel,
 Avec des aliments en juste quantité
 Pour que sa mort ne puisse entacher la cité.
 Avez-vous un Sophocle, mon ami ?
 
-RSR DE LA GRIPPE LA FPAES
 — Sans doute, que j'en ai un, docteur. A!
 Nous cherchâämes longtemps le Sophocle que je 4 Fe
 croyais avoir. Il n'y en avait pas. ‘134
@@ -1068,11 +1037,8 @@ si nette que je croyais avoir le texte même sur quelque
 planche de ma bibliothèque. 5°
 — Vos souvenirs si présents ne vous permettraient ‘RES
 seulement pas de me faire de mémoire une citation
-correcte.
-—Ilest vrai. ‘| [Eh
 — Un bon souvenir ne vaut pas un bon texte. Quand 0 à
 vous irez à Paris vous achèterez pour quelques sous une 110 nt,
-petite édition classique nouvelle. )
 — Je n'y manquerai pas. Ne confondons pas, docteur: ‘20
 avoir une représentation fidèle d'une statue ou d'un WU ”
 texte, avec : pouvoir les reproduire. Ce sont là deux
@@ -1087,7 +1053,6 @@ représentation que j'ai dans ma mémoire, l'image où ; .
 tous mes souvenirs ont travaillé, à la nouvelle pré- ! x 1800
 sentation que j'aurais. Mais si vous préférez les textes, 1794
 j'achèterai un petit Sophocle. La première fois que j'irai fé # ÿ
-D EE TRAD D LRUS APTE N AL TEEN A te SN NES
 à Paris, j'irai en acheter un à la Société nouvelle de
 librairie et d'édition, 17, rue Cujas.
 
@@ -1107,12 +1072,9 @@ avons encore la musique de Saint-Saëns, partition chant
 
 et piano. Je crains que les vers ne vous paraissent bien
 
-mauvais.
-
 — Je m'en contenterai d'autant plus volontiers pour
 aujourd'hui que cette adaptation assez fidèle nous fut
 heureusement représentée aux Français. Écoutons ce
-Créon
 Je sais dans un lieu morne et loin de tout sentier
 
 Un antre souterrain qu'entoure l'épouvante.
@@ -1121,7 +1083,6 @@ J'y vais faire enfermer Antigone vivante.
 
 Mouvement d'effroi du Chœur.
 
-Créon continue
 Par son cher dieu Pluton peut-être obtiendra-t-elle
 
 Que sa prison sans air ne lui soit pas mortelle.
@@ -1130,7 +1091,6 @@ Sinon, elle apprendra qu'ils ne nous servent pas
 
 Les stériles honneurs rendus aux Dieux d'en bas!
 
-Antigone se lamente
 Dans un rocher murée! oh! quelle mort cruelle!
 La morne Niobé
 Périt ainsi soudée à la pierre.
@@ -1152,7 +1112,6 @@ Puis, qu'elle y meure! ou bien qu'elle y vive enterrée !
 Nous r'aurons pas sur nous son sang. Mais que ses yeux
 N'aient plus désormais rien à voir avec les cieux !
 Antigone se lamente, et l'expression de sa lamentation même est à la fois païenne avec des indications
-chrétiennes
 Tombeau! mon lit de noce! O couche souterraine
 Où la mort pour la nuit éternelle mentraîine !
 Et le chœur lui rappelle fort opportunément que ce
@@ -1161,10 +1120,7 @@ considérer comme une esquisse de l'enfer, avait souvent été infligé à de gr
 Tu n'es pas la première
 Qui perdit la lumière
 
-MR PUS) DELA GRIPPE (ESRI RER
 Nouvelle réflexion salutaire et nouvel et derniere
-exemple :
-oi SEC i
 Sur la rive traîtresse
 à En proie à tous les vents Fe
 ‘à La marâtre effrénée
@@ -1172,7 +1128,6 @@ Des deux fils de Phinée Hu:
 ae Les enterra vivants.
 6 £ Et leur mère, 6 ma fille, : EVER
 F D'Érechthée! et ses jeux, FR
-És à 1" FOIRE
 Borée étant son père, hoc
 fix Affrontaient le tonnerre ‘ke
 A Sur les monts orageux! ‘40
@@ -1182,7 +1137,6 @@ ji Qu'un cheval furieux 1780
 é Elle allait sans rien craindre. va
 #e La Parque sut atteindre
 Cette fille des Dieux ! nu:
-i Antigone sort.
 Eat Mon ami ces vers lyriques de messieurs Paul Meurice “4 dé
 et Auguste Vacquerie ne valent pas les stances de Pierre
 Corneille. Vous connaissez les causes de cette impa- (2
@@ -1220,7 +1174,6 @@ et la guerre des pauvres et des riches, les tyrannies, les
 oligarchies et les démagogies, et, déjà, la triste résignation dure d'Hésiode. Non, mon ami, je ne suis pas
 
 fasciné par la mémoire de mes versions grecques au
-point d'avoir oublié cela.
 
 — Moi non plus, docteur, et je ne voulais pas instituer
 une cité antique harmonieuse et factice. Mais vous
@@ -1247,8 +1200,6 @@ encore épouvanté les chrétiens les meilleurs.
 
 — Vous me l'avez déjà dit.
 — Je vous demande pardon. Mais cette épouvante me
-
-tient au cœur.
 
 — Elle vous empêche de réserver que nous ne croyons
 pas aux propositions de la foi catholique parce que ce
@@ -1292,8 +1243,6 @@ qu'ainsi quand j'étais petit lui au contraire il était grand.
 Et nous avons continué à nous intituler ainsi d'autant
 plus commodément qu'il est grand et fort, haut en ?
 épaules, tandis que je suis petit et bas. Il est de son
-métier ouvrier fumiste.
-— Ouvrier fumiste ?
 — Ouvrier fumiste. Comme le nom l'indique, il travaille à tous les appareils qui produisent de la fumée,
 aux cheminées, poêles, fourneaux et calorifères. II ne us
 vient nullement à Paris, comme un lecteur astucieux l
@@ -1344,8 +1293,6 @@ compagnons, un ou deux goujats — il fait un peu de
 tous les métiers : maçon, carreleur, plâtrier, marbrier,
 serrurier, tôlier, et non pas seulement pur fumiste. Au-
 
-DE LA GRIPPE C
-
 dacieux, et téméraire même : ainsi le veut le métier.
 Les fumistes sont encore plus téméraires que les couvreurs, puisque les cheminées sont plus hautes que les
 toits. D'ailleurs ce qui nous semble témérité chez eux
@@ -1389,13 +1336,11 @@ prétend que je fus moralement son délégué au Congrès.
 — Moi non plus. Mais mon cousin est entêté. Il nous
 dira ce qu'il veut dire.
 — Et de combien était cette minorité fidèle ?
-— Quoique absent, j'obtins quatre voix.
 — Avouez que c'est bien peu. La majorité infidèle
 était sans doute au moins égale à cinq voix?
 — Égale à cinq voix, docteur, elle eût été valable.
 Mais elle était beaucoup plus considérable : elle montait
 jusqu'à six voix — sur dix votants. Il n'y eut aucune
-abstention. — Au revoir.
 Le docteur en allé revint sur ses pas
 — J'allais vous laisser le livre que j'avais apporté. Je
 n'y pensais plus. Il faut que je le rende avant les vacances de Pâques à la bibliothèque où je l'ai emprunté. .
@@ -1442,8 +1387,6 @@ la censure une lettre où il se plaignait avec beaucoup
 
 de force du renversement de tous les privilèges de la
 
-Faculté. »
-
 Allons, au revoir, au revoir. Ce que je vous ai lu n'est
 
 pas du Pascal. C'est un exposé que Racine a fait dans
@@ -1459,9 +1402,6 @@ nas ques sur la première provinciale. Quand le gouverne-
 v Ë ment et le pape étaient d'accord, on ne tenait pas
 
 compte de la règle faite contre les moines.
-cidre) Sie SNS Léo ee NS GS
-LA DERNIÈRE PRÉPARATION 13108
-DERNIÈRE PRÉPARATION 2 VER
 La Petite République du dimanche 15 octobre publiait s a!
 du Comité d'entente la circulaire préparatoire au "0 ï
 Congrès général des Organisations Socialistes Fran- ; Re
@@ -1469,8 +1409,6 @@ Congrès général des Organisations Socialistes Fran- ; Re
 la page v du Compte rendu sténographique officiel.
 La Petite République du dimanche 22 octobre publiait
 la note suivante : (TER
-COMITÉ D'ENTENTE SOCIALISTE 74
-Congrès général socialiste à, 3
 Demande a été faite par les délégués du P. O. S. R. de ÿ3 73
 l'inscription au procès-verbal presse du vote contraire à
 l'article 4 du titre B de la circulaire d'invitation au Congrès, ris
@@ -1478,10 +1416,8 @@ l'article 4 du titre B de la circulaire d'invitation au Congrès, ris
 Néanmoins les délégués du P. O. S. R. ont avec l'unanimité
 des délégués des autres organisations voté l'ensemble de la À LIRE
 circulaire afin de ne pas porter entrave à la réunion du
-Congrès. ° #4
 La Petite République du vendredi 17; novembre publiait
 la note et la communication suivantes : Ah
-AVANT LE CONGRÈS à
 Nous recevons de l'Agglomération bordelaise du Parti
 ouvrier français le document suivant que nous nous em- # e.
 
@@ -1494,8 +1430,6 @@ un excellent exemple en étudiant avec soin, dès aujourd'hui,
 les questions qui seront débattues au Congrès. Si les grouj pements socialistes délibèrent partout avec le même zèle
 sur les problèmes à résoudre, le Congrès exprimera la pen-
 sée vraie et profonde de tout le prolétariat organisé.
-JEAN JAURÈS
-PARTI OUVRIER FRANÇAIS (Agglomération Bordelaise)
 Le Congrès général des Organisations Socialistes Françaises
 
 Dans sa séance du dimanche 12 novembre, le Comité central, réuni
@@ -1503,7 +1437,6 @@ en assemblée plénière au siège social, cours du Jardin-Public, 4, a
 pris les décisions suivantes relativement au mandat à donner à ses
 délégués au Congrès général du 3 décembre.
 
-ORDRE DU JOUR DU CONGRÈS
 1— La lutte des classes et la conquête des pouvoirs publics.
 a) Dans quelle mesure, et conformément au principe de la
 latte de classe, base même de l'organisation du Parti, celuici peut-il participer au pouvoir dans la commune, le dépar-
@@ -1511,16 +1444,13 @@ tement et l'État ?
 
 b) Voies et moyens pour la conquête du pouvoir. Action
 politique {électorale ou révolutionnaire). Action économique
-(grèves, grève générale, boycottage, etc.)
 
 RésoLUTION. — a) La lutte des classes, étant le facteur
 essentiel de toute l'évolution historique de l'humanité, est
 nécessairement la base indiscutable de l'organisation du
-Parti socialiste.
 
 Si l'adhésion formelle à ce principe fondamental déter-
 
-PRÉPARATION DU CONGRÈS
 mine positivement l'objectif que les socialistes ont le devoir
 primordial de ne jamais perdre ni laisser perdre de vue en
 aucun cas, il ne s'ensuit pas nécessairement que la lutte
@@ -1540,7 +1470,6 @@ et du mouvement socialiste, soit en atténuant la résistance
 qu'ils opposent à l'extension de ce mouvement, soit en réa- à
 lisant toutes réformes susceptibles de mieux armer et
 encourager le prolétariat dans sa lutte contre la société
-capitaliste. j
 Ce qui importe dans tous les cas, c'est que cette introduction des socialistes dans les pouvoirs publics soit entourée
 de conditions telles qu'elle ne puisse dépendre de la seule
 volonté des hommes en dehors de leur parti, et que tout
@@ -1551,7 +1480,6 @@ b}) Il doit être entendu par tous, une fois pour toutes, que
 la conquête des pouvoirs publics n'est pas le but de l'action k
 socialiste, mais seulement un moyen de mettre le parti en 3 10
 puissance de réaliser la transformation sociale qui est sa
-raison d'être. ,
 Dans le milieu actuel, il est généralement admis que la
 possession du pouvoir est l'unique moyen pratique et infaillible permettant de réaliser cette transformation. Pour la
 conquête de ce moyen, le prolétariat et le parti socialiste
@@ -1592,7 +1520,6 @@ particuliers entre des fractions bourgeoises ne soient pas
 indifférentes au prolétariat etau parti socialiste au point de
 vue de l'existence et du maintien de certaines conditions
 
-PRÉPARATION DU CONGRÈS
 politiques ou sociales utiles à leur développement, telles que
 à la forme républicaine du gouvernement, la laïcité de l'enseignement et des fonctions publiques, la subordination du
 pouvoir militaire au pouvoir civil, l'égalité légale descitoyens
@@ -1602,7 +1529,6 @@ la liberté de la presse, etc.
 Dans ces circonstances, l'intérêt même du prolétariat fait
 un devoir au parti socialiste d'intervenir dans les luttes
 bourgeoises en se portant du côté où est le danger le plus
-pressant.
 
 L'affaire Dreyfus avait déterminé une de ces circonstances
 tragiques où le soulèvement de toutes les forces de réaction Ÿ
@@ -1620,7 +1546,6 @@ partout et dont le socialisme ne peut faire autrement que de !
 tirer profit pour son extension.
 
 3 — De l'unité socialiste. Ses conditions théoriques et
-pratiques.
 Direction et contrôle par le Parti des divers éléments
 d'action, de propagande et d'organisation.
 
@@ -1629,7 +1554,6 @@ socialistes en un seul Parti socialiste compact el discipliné,
 dont l'unité d'organisation et d'action rendrait la puissance
 invincible, est dans les vœux de tous les socialistes sans
 distinction d'école. Et tout doit être franchement fait pour y
-aboutir.
 
 Mais, précisément parce qu'on le désire, on doit tenir fn
 
@@ -1639,14 +1563,12 @@ et méthode à constituer le prolétariat français en un parti
 de classe conscient de sa mission historique. Il faut éviter
 de les précipiter dans une unité insuflisamment préparée,
 incertaine et artificielle, qui se briserait à la faveur des
-moindres incidents.
 
 Ce qu'on a le devoir de faire, c'est de réaliser toute la
 somme d'unité possible à chaque moment, jusqu'à ce que,
 
 d'étape en étape, on soit arrivé à l'unité définitive et parfaite
 par l'élimination successive et normale des causes qui s'y
-opposaient.
 
 Actuellement, en laissant subsister et fonctionner telles
 quelles les organisations existantes, il s'agit de les relier,
@@ -1660,11 +1582,9 @@ prendre en toute autorité de rapides décisions dans les circonstances urgentes
 
 Ë Nul, groupement ou individu, ne pourrait être admis dans
 le parti socialiste et considéré comme tel qu'après avoir
-catégoriquement adhéré au minimum théorique ayant servi
 
 d de base au Congrès général des organisations socialistes
 
-- françaises, à savoir
 Entente internationale des travailleurs organisés en
 parti de classe pour la conquête du pouvoir et la socialisation des moyens de production et d'échange, c'est-
 à-dire la transformation de la société capitaliste en une
@@ -1673,15 +1593,12 @@ société collectiviste ou communiste.
 
 Nul journal ne devrait pouvoir être considéré comme organe du parti socialiste qu'à la condition de demeurer sous
 
-TENUE DU CONGRÈS
 le contrôle du Comité Directeur, quant à la marche théorique et politique.
 Le Comité Directeur devrait avoir pour fonction principale et permanente de préparer méthodiquement la propagande et l'organisation socialiste dans toutes les circonscriptions de France sans aucune exception, avec le concours
 de tous les conférenciers et élus socialistes mis à sa dispo- )
 sition dans leur ensemble.
 Pour copie conforme
 Le Président de séance, Le Secrétaire,
-ANTIGNAC BouILLON
-TENUE
 Les documents et les renseignements afférents à la
 tenue du Congrès sont au Compte rendu sténographique
 officiel. Ce compte rendu donne : la circulaire de convocation; la tenue des douze séances en six journées;
@@ -1698,7 +1615,6 @@ si l'on veut bien saisir la continuation du débat, inter-
 — Un fort volume in-18 de 502 pages, broché, 4 francs.
 
 caler quelques documents, qui ne pouvaient figurer au
-Compte rendu officiel
 La Petite République datée du jeudi 7 décembre,
 paraissant la veille mercredi 6, publiait les notes suivantes, rédigées sans doute au dernier moment
 Après l'article de Jaurès : ee
@@ -1713,8 +1629,6 @@ que la commission spéciale se fût même réunie. (1)
 La manœuvre a échoué : elle ne fera pas de bien
 ses auteurs dans le pays socialiste.
 
-UNE PROTESTATION
-
 Il s'est produit à la fin de la séance du Congrès une singulière tentative. On a essayé d'enlever après minuit un
 vote sur la première question avant même que la commission ait pu se réunir pour examiner les diverses formules
 de résolution. La tentative a échoué, heureusement pour
@@ -1723,7 +1637,6 @@ la dignité du Congrès et pour la loyauté du vote.
 
 Elle a d'ailleurs soulevé les protestations non seulement
 des Socialistes indépendants, de la Fédération des travailleurs socialistes et du Parti ouvrier socialiste révolutionnaire, mais aussi celle de très nombreux délégués du parti
-ouvrier.
 
 Le citoyen Delory, maire de Lille, le citoyen Delesalle,
 
@@ -1733,36 +1646,28 @@ adjoint de Lille, et le citoyen Constans, maire de Montluçon,
 
 une expédition à l'assaut de la tribune.
 
-TENUE DU CONGRÈS
 ont demandé que la commission soit saisie de tous les projets : et les nombreux élus du Parti ouvrier dont les noms
 suivent se sont associés à cette demande par la protesta- à
-tion ci-après.
 Comme on le voit, ceux qui veulent ôter au Congrès le
 sang-froid nécessaire et le précipiter dans les pires aventures jouent un jeu aussi dangereux pour eux-mêmes que
 pour le socialisme. k
 Le puissant esprit d'unité socialiste et de loyauté qui
 anime l'immense majorité des délégués saura déjouer ces
 manœuvres : elles se retourneront avec une force terrible
-contre leurs inspirateurs.
 Voici le texte de la protestation dont il est question ci-dessus
 Dix députés du Parti ouvrier français ont chargé le
 citoyen Pastre d'appuyer la proposition du citoyen
 Delesalle, tendant à ce que les divers projets soient ren-
 voyés à la commission, que le rapport soit déposé demain, et qu'il n'y ait pas de vote d'escamotage.
-PAsrRE, KRAUSS, CADENAT, FERRERO, JOURDE,
-Boyer, BÉNÉZECH, PALIxX, FERROUL.
-Se joignent à eux
 Gabriel BERTRAND, délégué de la Fédération de
 Vaucluse; CAMELLE, conseiller général, adjoint au maire de Bordeaux; PARISoT, conseiller général de Courbevoie.
 
-LE NAVIRE
 Madame Saint Adjutory était inconsolable d'avoir .
 un fils aveugle. Son ménage était très pauvre, ses
 enfants très nombreux; son mari s'épuisait dans
 une lutte stérile contre la vie.
 Assise près de la fenêtre, elle embrassait entre
 ses mains la tête de l'enfant, épiant si, par aventure, quelque lueur ne s'allumait pas au fond de ses
-claires prunelles.
 Clément levait sur elle des yeux sans éclat, où ne
 transparaissait ni sentiment ni pensée. Longtemps
 elle avait espéré que la force du jour vaincrait ses

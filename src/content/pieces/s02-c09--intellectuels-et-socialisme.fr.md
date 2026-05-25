@@ -7,9 +7,6 @@ author: paul-mantoux-charles-guieysse
 isAvertissement: false
 wordCount: 6921
 ---
-
-*Paul Mantoux, Charles Guieysse*
-
 Le cahier de Lagardelle a déterminé chez nos abonnés un sérieux mouvement. Nous insérons aujourd'hui
 les communications que nous ont envoyées à ce sujet
 M. Paul Mantoux, professeur agrégé d'histoire, et
@@ -46,7 +43,6 @@ droit d'admettre comme scientifique, uniquement scientifique, et valable au mêm
 une proposition ainsi conçue : L'évolution des sociétés
 modernes organisées selon le régime de la grande industrie les conduit naturellement à la propriété collec-
 tive des moyens de production, de distribution et
-d'échange ? That is the question.
 Je ne veux pas qu'il y ait de doute sur mon opinion
 Je me rallie à la proposition ci-dessus. Je la crois vrai- À
 semblable et même probable. Mais je nie qu'elle ait la
@@ -66,11 +62,8 @@ pour la science. Le collectivisme repose sur une étude
 du temps présent, de la réalité économique. Sa vue de
 l'avenir est une hypothèse raisonnable, appuyée sur des
 
-d P'ÉRTMTEN
-Paul Mantoux
 éléments scientifiques. Mais c'est tout, c'est tout. De'
 grâce, ne ressuscitons point l'économie politique ortho-
-doxe.
 Il y a des gens en habit noir et en cravate blanche —
 on les appelle MM. Anatole Leroy-Beaulieu, Paul LeroyBeaulieu, Paul Beauregard — gros comme le bras —
 qui répètent du haut de chaires plus ou moïns officielles
@@ -97,7 +90,6 @@ pour cela que nous serons socialistes, que nous devrons
 non pas scientifique, si on le veut bien, mais humblement
 psychologique. Il n'y a pas d'action sans mobile d'action.
 
-FA LES INTELLECTUELS DEVANT LE SOCIALISME
 Et tout mobile d'action est essentiellement affectif. Je
 m'explique. On me dit — avec certitude, selon notre
 hypothèse — : le régime socialiste sera. Fort bien. C'est
@@ -128,7 +120,6 @@ auquel il a adressé sa conférence. Mais ce sont les
 -_ ennemis du socialisme qui donnent ce sens étroit et faux
 à l'idée de la lutte de classe. Ce sont eux qui nous
 
-Paul Mantoux
 représentent le parti comme un syndicat de convoitises
 et de haïnes, qui grouperait les ouvriers des villes dans
 leur unique intérêt, envers et contre tous. Lagardelle
@@ -159,7 +150,6 @@ l'état de machines fournissant au loisir et aux jouissances d'un maître. Parce
 à l'âpreté animale de la concurrence naturelle, l'émulation fraternelle du travail social commun. Du jour où
 j'ai vu clairement tout cela, j'ai été socialiste. Je ne le
 
-LES INTELLECTUELS DEVANT LE SOCIALISME
 serais pas, si je ne croyais pas que c'est mon devoir de
 l'être. Allons-nous reculer devant ce mot-là, le devoir?
 Le laisserons-nous en apanage aux religions et aux
@@ -191,7 +181,6 @@ clame par avance la légitimité.
 croyons appelé à renouveler en quelque sorte l'humanité,
 si l'idée du juste et de l'injuste en était retirée ? J'avoue
 
-Paul Mantoux no
 que je n'oserais même plus croire à son succès : car.
 l'évolution est. le produit d'un déterminisme, et non k
 d'une fatalité, et l'absence d'une cause aussi puissante
@@ -220,7 +209,6 @@ leur danger. Pour moi, j'aime mieux me réclamer d'un
 devoir certain que d'une science hypothétique et incomplète. Et je ne saurais être soupçonné de médire mé- Ë
 chamment de cette science prétendue : ce serait le fait
 d'un cordonnier décriant l'usage des chaussures, A toi
-cordialement.
 Paul Mantoux l
 
 M. Charles Guieysse nous écrit :
@@ -247,10 +235,8 @@ prolétaires : « Fiez-vous à nous pour changer votre
 condition », et presque rien n'a été changé. Puis de
 nouveaux intellectuels ont dit : « Chassez les politiciens bourgeois, proclamez la lutte des classes » et
 
-Charles Guieysse
 ils se sont mis à la tête de la classe prolétarienne
 pour mener la lutte de classes. Et presque rien ez- . s:
-core n'a été changé.
 
 J'ai peur que pendant longtemps rien ne soit toujours changé, si ce sont des intellectuels, socialistes
 ou non, qui veulent gérer les intérêts de la classe
@@ -265,15 +251,12 @@ qu'en résolvant séparément les deux problèmes suivants :
 l'aider à s'émanciper ?
 
 Et ensuite, nous pourrons nous demander comment le mouvement ouvrier et le mouvement intellectuel se coordonneront, se composeront, se fondront, dans ce que très volontiers j'appellerai la cité
-socialiste.
 
 Remarquez bien qu'ainsi je dis que le mouvement
 socialiste n'est pas un mouvement nouveau, qu'il est
 simplement une forme nouvelle du mouvement ré-
 publicain, et que c'est l'histoire, l'étude des événements politiques qui légitiment cette forme nouvelle.
 C'estl'abandon de la conception autoritaire des idéalistes jacobins qui — par la force de la loi ou par la
-
-Eu LES INTELLECTUELS DEVANT LE SOCIALISME
 
 force brutale, peu importe ici — veulent brusquement passer de la société mauvaise à la société parfaite, et qui jusqu'à présent se sont usés, se sont brisés contre les forces conservatrices. Aujourd'hui,
 nous, socialistes non-prolétaires ou idéalistes libé-
@@ -294,7 +277,6 @@ rétablies, cette recherche constante d'une discipline
 sans autorité, seront particulièrement éducatives
 quand la classe ouvrière aura su s'organiser, s'unifier, alors elle sera à la veille de remporter la vic-
 
-Charles Guieysse #n
 toire, et cette victoire ne coûtera pas une seule vie
 humaine, n'amènera aucune misère, rendra toute
 réaction impossible; c'est la société nouvelle, fondée
@@ -323,7 +305,6 @@ Les droits et les devoirs des employés et ouvriers ?
 è Comment seront désignés les chefs techniques, les
 directeurs capables ? quelles sanctions, morales ou
 légales, existeront pour réaliser les droits et les
-devoirs? ”
 Il ÿ a là un ensemble de problèmes qui doit préoc-
 cuper les socialistes autant que la socialisation des
 moyens de production; il faut arriver à une transformation des lois morales du travail, et elle est
@@ -339,8 +320,6 @@ de se délivrer, de créer leur liberté et leur discipline.
 Actuellement, les éléments de l'organisation ou- mé
  vrière sont les suivants : 1° les groupes politiques
 etles groupes d'études sociales ; 2° les syndicats prob fessionnels et les coopératives de production ; 3° les
-
-Charles Guieysse
 
 coopératives de consommation; 4° les universités
 populaires. Et l'on conçoit que ces éléments se fédè-
@@ -371,7 +350,6 @@ du mouvement socialiste.
 Il serait même habile et prudent de placer l'élément
 politique (au sens étroit du mot) au-dessous des
 
-w LES INTELLECTUELS DEVANT LE SOCIALISME
 autres éléments de la force ouvrière. Devant les
 difficultés que rencontre le prolétariat pour s'orgaF niser et s'émanciper, constamment il sera tenté de
 se griser de belles paroles et de faire appel aux lois
@@ -397,7 +375,6 @@ révolutionnaire, et même brutale aujourd'hui,
 - puisqu'un parti triomphe quand il a une voix
 Que
 
-Charles Guieysse qe
 de majorité, — et l'action politique parlementaire — essentiellement révolutionnaire aussi parce
 qu'une loi détruit en un jour quelque chose qui
 est, et fait naître en un jour quelque chose de
@@ -421,7 +398,6 @@ Or, les intellectuels, quels qu'ils soient, ne connaissent pas la pie ouvrière,
 pas de la vie ouvrière ; ils ne sauraient donc trouver
 normalement leur place dans les organisations ouvrières, ou tout au moins ils ne peuvent normale-
 
-un | LES INTELLECTUELS DEVANT LE SOCIALISME
 ment prétendre à diriger effectivement le mouvement ouvrier.
 
 Comme le dit fortbien Lagardelle, les intellectuels
@@ -444,8 +420,6 @@ Toute tentative du prolétariat pour prendre la
 direction effective du mouvement intellectuel, serait
 aussi déplorable que les tentatives des intellectuels
 ont été déplorables pour prendre la direction du
-- mouvement ouvrier.
-Charles Guieysse
 
 Et c'est pourquoi on peut fort bien ne pas adhérer
 au Parti socialiste, tout en adhérant au principe de
@@ -455,11 +429,9 @@ de tendances aujourd'hui à prendre la direction
 la fois du mouvement intellectuel et du mouvement
 ouvrier, et ainsi faisant il nuit, selon moi, à la
 fois au mouvement intellectuel et au mouvement
-ouvrier.
 
 Le socialisme veut, avec raison, substituer l'administration des choses au gouvernement des hommes, assurer l'indépendance économique pour assurer la liberté de penser. Le Parti socialiste français,
 tel qu'il est aujourd'hui, me paraît s'éloigner de cet
-idéal; toujoursil veut gouverner etnonadministrer, :
 il s'occupe des questions de personnes plus que des
 problèmes économiques, ou bien il discute des idées
 abstraites et n'organise point des réalités. Quandles
@@ -471,9 +443,6 @@ contre les petits commerçants parisiens, lesquels
 sont nationalistes.
 
 J'ai reçu il y a quelques jours un petit papier
-portant en tête: Comité d'action socialiste contre
-
-Bol: LES INTELLECTUELS DEVANT LE SOCIALISME
 
 - la guerre de Chine. Que diable le socialisme a-t-il
 à faire directement et exclusivement là-dedans ?
@@ -483,13 +452,10 @@ Est-ce au nom de la lutte des classes qu'on proteste
 contre le militarisme? Pour faire partie de ce
 comité, faut-il montrer un brevet de bachelier
 
-ès sciences collectivistes ?
-
 Lagardelle fait remarquer que les socialistes
 prennent actuellement la tête dans les protestations
 généreuses ; certes, c'est vrai; mais est-ce en tant
 que socialistes, ou en tant qu'hommes épris d'un
-noble idéal personnel ?
 
 J'ai peur du Comité général et des Comités
 locaux; au lieu de mener la lutte économique qui
@@ -505,8 +471,6 @@ suivant le mouvement ouvrier, et il nuira au mouvement intellectuel.
 
 Je ne veux point dire cependant que le mouvement ouvrier et le mouvement intellectuel doivent
 
-TRS
-Charles Guieysse
 être isolés l'un de l'autre, que l'ensemble des intel- -
 lectuels doit se tenir à l'écart de la classe ouvrière.
 Ce serait absurde, profondément absurde. Le mouvement ouvrier, force réelle, peut seul aujourd'hui
@@ -520,15 +484,12 @@ la Propriété, pour leur faire connaître les phénomènes économiques, pour l
 de tout le travail humain des générations mortes,
 pour ajouter à leur expérience l'expérience des
 siècles vécus, et aussi pour rédiger ce que Lagardelle appelle des « systèmes juridiques et moraux
-nouveaux ».
 L'alliance amicale, affectueuse entre Intellectuels
 et Ouvriers, est indispensable; mais alliance ne
 veut pas dire soumission des uns aux autres, des
 alliés sont des égaux volontaires ; alliance ne veut
 pas dire unification.
 Il faut qu''intellectuels et prolétaires se mêlent,
-
-pe LES INTELLECTUELS DEVANT LE SOCIALISME
 
 se coudoient, discutent ensemble et sur les idées et
 
@@ -560,7 +521,6 @@ sera véritablement organisé, seraunifié pour l'étude
 des lois morales et économiques du Travail. C'est
 pourquoi je critique un peu l'expression d'employés
 
-Charles Guieysse
 de Lagardelle, et que je préfère dire que lesintel- ï
 lectuels ont le devoir de se mettre au service de
 la classe ouvrière ; il me semble qu'ainsi je dis que ,
@@ -568,7 +528,6 @@ non seulement ils ne sont plus des aristocrates,
 mais encore que c'est librement, par conscience de
 leur vraie dignité, qu'ils rendent des services aux
 ouvriers, qu'ils les instruisent, qu'ils les aident
-s''éduquer.
 Et c'est parce que cette pénétration sera libre,
 c'est parce que les liens d'amitié s'établiront librement et pourront se rompre sans haïines, c'est parce
 que, dans le domaine intellectuel, les hommes iné-
@@ -600,7 +559,6 @@ Comité, quel qu'il soit, me dire quelles sont les
 vérités que je dois croire, et prendre la direction
 de ma pensée. Aucun parti ne détiendra jamais la
 science, l'art et la morale, pas plus qu'aucune
-Église.
 
 Je n'aime point les formules, les idées ne peuvent
 exactement tenir en quelques mots ; mais s'il fallait absolument en donner une pour concentrer ce
@@ -608,9 +566,6 @@ exactement tenir en quelques mots ; mais s'il fallait absolument en donner une p
 que je pense, je dirais que le mouvement socialiste
 
 devrait se définir ainsi : méthodique organisation
-économique, absolue liberté intellectuelle.
-
-Ë CHARLES GuiEysse
 
 LIBRAIRIE DES CAHIERS ra
 Etant donné qu'à partir du septième cahier inclus
@@ -618,11 +573,6 @@ nous avons cessé d'envoyer nos cahiers à tous ceux de
 nos anciens abonnés qui n'avaient pas accepilé nos
 reçus de réabonnement, André Bourgeois a fait depuis
 les envois suivants
-Septième Huitième
-cahier cahier (1}
-PATIS LLC OT EU OUR 430 G30
-Bee Lie ele PE ere 70 70
-Seme-ttOISE CRE CE 35 35
 Belgique et autres pays. 672 67
 Nous avons en effet envoyé le septième et le huitième
 cahiers sous la même chemise. pr.
@@ -635,8 +585,6 @@ donc à nos abonnés de nous le dire. Toutes les fois qu'il
 y aura doute nous serons forcés d'interrompre l'envoi.
 Dans les nombres que nous donnons ci-dessus comptent plusieurs abonnés éventuels. Nous recensons en
 effet dans l'Aurore les citoyens qui ont naguère encouragé Vaughan et nous leur envoyons éventuellementnos
-(1) Bacchus.
-LIBRAIRIE DES CAHIERS
 cahiers. Sans doute iis souhaitent que la véritable propagande ne meure pas d'inanition. Nous prions ces der_ niers abonnés éventuels de vouloir bien nous manifester
 sans retard leurs intentions.
 
@@ -645,7 +593,6 @@ pas accepté nos reçus de réabonnement, ne nous ont pas
 au moins écrit pour nous manifester leurs intentions.
 
 Beaucoup de Parisiens n'ont pas renouvelé leur abonnement. Mais beaucoup plus de provinciaux s'abonnent.
-Heureuse mutation.
 
 Les quelques snobs, frivoles, complaisants, autoritaires et sectaires qui nous étaient venus par mégarde
 sont repartis. Le boycottage a presque épuisé ses effets.
@@ -672,7 +619,6 @@ inquiétude quand, par exception, cet ami est juif. Si
 donc j'en croyais cet ancien ami, nos cahiers ne diraïent
 pas la vérité, mais ils diraient ce qui, selon le choix .
 des journaux réactionnaires, serait favorable au parti
-socialiste nationalement constitué.
 
 Nous ne voulons pas qu'il y ait malentendu : nous ne
 demandons pas des conseils d'immoralité politique
@@ -711,7 +657,6 @@ boire. Mais les journaux, brochures, les revues et les
 livres sont négligés. Il faudra pourtant bien que l'on
 finisse par s'apercevoir que ce qui tient au livre est
 d'une action plus efficace profondément que ce qui tient
-au parloir.
 
 Nos aïnés ne nous ont pas gâtés. Sans doute GéraultRichard a'eu la bonne idée d'annoncer le Danton. Mais
 si Clemenceau avait produit dans le Bloc une contribution aux Preuves aussi sérieuse que celle que Pierre
@@ -719,7 +664,6 @@ Félix a publiée dans nos cahiers, il est évident que
 Jaurès eût au moins discuté cette contribution.
 
 Comptons donc sur nous-mêmes, en attendant que les
-mœurs publiques soient restituées. Pauvres, comptons k
 sur nous pauvres. Que nos amis pauvres nous envoient
 régulièrement un ou deux francs par mois. Plusieurs ont
 déjà commencé. Que nos amis plus pauvres se mettent
@@ -775,13 +719,10 @@ moins ponctuellement l'administration de la librairie.
 Nous faisons dans nos bureaux les plus fortes réductions usuelles, c'est-à-dire que nous y vendonsles livres
 exactement aux prix de lOdéon.
 
-LIBRAIRIE DES CAHIERS
 Nous envoyons franco à domicile à Paris aux mêmes
-conditions.
 
 Nous envoyons franco à domicile en province et
 l'étranger aux prix marqués pour toute commande
-inférieure à onze francs.
 } Nous envoyons franco à domicile en province et
 l'étranger avec les plus fortes réductions usuelles, c'est-
 à-dire exactement aux prix de l'Odéon, pour toute commande égale ou supérieure à onze francs.
@@ -805,11 +746,9 @@ de fortes commandes pourront déposer à M. André
 Bourgeois des sommes qui seront ainsi en compte
 courant. Ils n'auront plus qu'à nous envoyer leurs
 commandes sur carte postale. Nos factures porteront le
-décompte à chaque envoi.
 
 Pour nous faciliter le travail, nous demandons à nos
 abonnés de nous envoyer des feuilles ou des fiches de
-commandes exactement énoncées.
 
 Pour leur faciliter certain choix, nous annoncerons
 les nouveautés. Nous ne pouvons pas penser à faire
@@ -821,7 +760,6 @@ honnête société doit avoir dans sa bibliothèque. Nous
 annoncerons ces honnêtes livres,non pas en les jugeant
 et en les absolvant, mais en disant en bref, du mieux
 que nous pourrons, toutes les fois que nous le pourrons, ce qu'il y a dedans. C'est dire que nous procéderons le plus souvent par voie de citations, tables et
-résumés.
 
 Nous attirons l'attention de nos abonnés sur ce qu'il y
 aurait de parasitaire à commander ailleurs que chez
@@ -836,7 +774,6 @@ Nous avons d'avance dans nos bureaux tous les livres
 
 à que nous annonçons. Nous avons en deux heures les
 livres français. Nous avons dans la semaine les livres
-étrangers.
 
 Ceux de nos abonnés qui demeurent à Paris nous
 feront plaisir en venant acheter leurs livres dans nos
@@ -888,7 +825,6 @@ Il est indispensable qu'un de nos amis, qui parle et
 
 libre jusqu'à cinq heures du soir, trouve un emploi litté-
 raire ou commercial pour sa journée, — Écrire
-M. André Bourgeois.
 
 - Nous sommes heureux de reproduire les notes que
 
@@ -896,10 +832,6 @@ M. André Bourgeois, envoyé à Montceau par l'adminis- j
 
 tration de Pages libres, a rapportées de son voyage.
 
-M. Bourgeois prit en outre vingt-quatre photographies,
-
 dont quatre ont passé dans Pages libres.
-
-ANDRÉ BOURGEOIS
 
 ---

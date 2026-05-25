@@ -7,43 +7,19 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 20302
 ---
-
-TROISIÈME CAHIER DE LA QUATRIÈME SÉRIE
-
-mn
-
-É:
-
 |__ Cahiers
 
-ent re $
-4 à
-
-4e PARAISSANT VINGT FOIS PAR AN
-
-FE PARIS
-
 _ 8, rue de la Sorbonne, au rez-de-chaussée
-
-[PTS
 
 AD at CUT EX CORRE LA à a AT LM OPEL ERA ENT it ET F: +
 RATS on ee de Pa La ve re Éd a
 tt LUE Pr Ra À un x PIS 275 RS TEA RES re AE À
-Dao D A AR RÉ EGN  n
 SES mA CULE Fons RE
 IT ANR Pour savoir ce que sont les Cahiers de la Quinzaine,
 Re il suffit d'envoyer un mandat de trois francs cinquante ss
 à M. André Bourgeois, administrateur des ca iers,
-AC À n S EE, LS “Es
 _ 8, rue de la Sorbonne, Paris. On recevra en spécü nens :
 # : six cahiers de la deuxième et de la troisième série. EN :
-“4 F4 % » — Dose LES CRIE +
-Re tr ss APRES
-s: Sr ES 3 SE Dr +
-: 5 . 13 CRE ven Are “
-
-DE JEAN COSTE
 
 Ce qui fait que je n'avais pas de la joie de ce que les
 gendarmes embarquaient les sœurs en troisième, c'est
@@ -51,11 +27,8 @@ que j'avais reçu un peu avant le commencement des
 vacances la lettre suivante :
 
 Montée de Charente
-22 juillet 1902 :
-Monsieur Charles Péguy,
 gérant des Cahiers de la Quinzaine
 8, rue de la Sorbonne, Paris
-Monsieur
 
 Mon mari fait depuis quelque temps partie de la Ligue
 française pour la défense des droits de l'homme et du
@@ -76,12 +49,6 @@ mariés depuis trente-trois mois et j'aurai dans un mois et
 demi mon troisième bébé.
 
 Tant de besoins et de si maigres ressources vous laissent
-
-I Fr X \
-4 |
-FE
-\ \
-Fr : K |
 
 troisième cahier de la quatrième série
 deviner que nous vivons étroitement. L'arrivée d'un nouvel
@@ -105,27 +72,21 @@ mes vacances le 2 août; j'aurai un mois et demide loisirs et
 que je vais vous causer, l'expression de mes remerciements
 et de mes sentiments les plus distingués.
 
-Marguerite Meunier,
-institutrice primaire publique
 à la Montée de Charente
-Charente
 
 Bien entendu, j'ai modifié les noms propres, le nom
 de la commune, la signature. Une institutrice qui
 cherche du travail pour nourrir ses enfants serait mal
 notée des grands chefs; de telles démarches feraient
 croire que les familles des instituteurs ne sont pas
-complètement heureuses.
 
 Mais si quelqu'un de nos abonnés veut entrer en
 relation avec cette famille et peut lui procurer du travail,
 nous serons heureux d'établir la communication. Écrire
-à M. André Bourgeois.
 
 Cette lettre nous parvint quelques jours avant le
 commencement des vacances. Nous recevons un assez
 
-ver nr n ; À
 pe Le DE JEAN COSTE
 4 grand nombre de lettres écrites par des instituteurs ;
 ; j'aime cette écriture soigneuse, régulière, grammaticale, presque toujours modeste, calme, et déjà conforme à la typographie; ce papier écolier; cette encre
@@ -149,7 +110,6 @@ je suis Le gérant important, que je suis en relation avec
 À selle, et dont vivent les politiciens, entre l'esprit démoF _ cratique et l'âme populaire; cette confusion non moins
 À universelle entre la fraternité, la solidarité socialiste et
 ; la charité bourgeoise, le travail demandé comme un
-service.
 
 Enfin et surtout cette illusion suprème des pauvres
 gens : que l'on peut trouver facilement du travail
@@ -161,13 +121,8 @@ j vaillant; que nous pouvons sauver de la misère les gens
 ï de la faim; que nous sommes assurés nous-mêmes
 $ contre le déficit, contre la misère, contre le dépérissek ment et contre la mort.
 
-te 3
-
 | 4
 
-LÀ
-
-n RSS à PC
 troisième cahier de la quatrième série
 
 Singulière illusion des pauvres gens, mais dont une
@@ -202,10 +157,6 @@ qui travaillent pour plusieurs institutions vraiment
 socialistes si je disais que l'on ne trouve personne et
 que l'on ne trouve rien; mais tous ceux qui ont essayé
 de préparer ou d'organiser du véritable travail savent,
-
-a à
-
-SUCRES tr
 
 | DE JEAN COSTE
 à considérer l'ensemble du marché, de combien le rendement qui intéresse le travail est inférieur aux flots qui
@@ -276,7 +227,6 @@ de rares et d'honorables exceptions les travailleurs
 |
 |
 
-DE JEAN COSTE
 émancipés pensent à gouverner plutôt qu'ils ne pensent
 à travailler; les romantiques et les classiques vivent
 partout ensemble, de bonne amitié, parce que les classiques sont bonne pâte, parce que les romantiques sont
@@ -307,8 +257,6 @@ riode où nous entrons.
 { de pain ne peuvent imaginer comme il est difficile d'en
 demander. Demander une circonscription à la tourbe :
 
-‘ 7
-
 + troisième cahier de la quatrième série
 "électorale n'est rien : il suffit, sauf de rares et d'honorables exceptions, d'être plat; demander un gouvernement à la tourbe parlementaire n'est rien : il suffit,
 sauf de rares et d'honorables exceptions, d'être plat;
@@ -338,21 +286,17 @@ Jean Coste à l'origine avec toute la justice, avec toute
 la force que cette œuvre méritait. Je persiste à croire
 que Jean Coste, sous son nom, valait un article de tête,
 en première page de la Petite République. La Petite
-ù
 
-DE JEAN COSTE
 République se sert beaucoup des instituteurs. Elle
 pouvait lancer le Jean Coste.
 
 On a dit : Je ne puis m'intéresser à Jean Coste; il est
-prétentieux, poseur, mièvre.
 
 Nous savons de reste comme il est. Il n'est pas
 parfait. Il n'est pas un saint. Il est un homme. Il est un
 instituteur de village. Il est comme il est. Aux vertus
 que l'on exige des pauvres, combien de critiques et
 combien d'éditeurs seraient dignes d'être des maîtres
-d'école?
 
 On veut qu'il soit parfait. On ne voit pas que c'est la
 marque même de la misère, et son effet le plus redoutable, que cette altération ingrate, mentale et morale;
@@ -373,8 +317,6 @@ de la misère qu'elle rend les misérables irrémédiable-
 + ment faibles et qu'ainsi elle empêche invinciblement les
 « misérables de s'évader de leurs misères mêmes. Dans
 9 1.
-4 ;
-À
 
 troisième cahier de la quatrième série
 la réalité la misère avarie les vertus, qui sont filles de
@@ -393,7 +335,6 @@ d'un affranchissement économique.
 
 C'est pour cela qu'avant tout nous devons libérer
 Jean Coste, ainsi que tous les miséreux, des servitudes
-économiques.
 
 On confond presque toujours la misère avec la pauvreté; cette confusion vient de ce que la misère et la
 pauvreté sont voisines; elles sont voisines sans doute,
@@ -407,15 +348,12 @@ en decà de cette limite le misérable ou bien a la certitude que sa vie économ
 n'a aucune certitude qu'elle soit ou ne soit pas assurée,
 court le risque ; le risque cesse à cette limite; au delà
 
-DE JEAN COSTE
-
 de cette limite le pauvre ou le riche a la certitude que
 sa vie économique est assurée; la certitude règne au
 delà de cette limite; le doute et la contre-certitude se
 partagent les vies qui demeurent en decà; tout est
 misère en deçà, misère du doute ou misère de la certitude misérable; la première zone au delà est celle de la
 pauvreté; puis s'étagent les zones successives des
-richesses.
 
 Beaucoup de problèmes économiques, moraux ou
 
@@ -443,11 +381,6 @@ sociale est déterminée parce qu'elle est située au delà
 de cette limite, juste au delà, sans la déborder beaucoup
 vers l'aisance, mais sans aucun risque de bavure en
 
-II
-
-PAST + dd!
-
-É:
 troisième cahier de la quatrième série #
 deçà; ainsi on étudierait cette crise morale et sociale ; F
 de première importance, qui survient à vingt-sept ans, $
@@ -464,7 +397,6 @@ besoin entre comme un élément respectable dans
 beaucoup de vocations religieuses; on éprouverait enfin
 que tant qu'un homme, jeune ou adulte, n'a pas dépassé
 l'âge de cette crise, on ne peut ni le juger, ni le pré-
-sumer.
 
 La misère est tout le domaine en deçà de cette limite: 4
 * la pauvreté commence au-delà et finit tôt; ainsi la ;
@@ -480,8 +412,6 @@ n'a pas reconnu cette intervention ; ainsi on attribue à la misère les vertus 
 contraire on impute à la pauvreté les déchéances de la
 misère; comme ailleurs on attribue à l'humilité les
 
--: 1410 4? Rd ré
-DE JEAN COSTE
 vertus de la modestie, ou au contraire on impute à la
 modestie les abaissements de l'humilité.
 
@@ -489,7 +419,6 @@ Ainsi à l'égard de la consommation la différence du
 pauvre et du miséreux est une différence de qualité, de
 mode, comme à l'égard de la production la différence
 du travailleur et du théâtreux était une différence de
-nature. 1
 
 En droit, en devoir, en morale usuelle on reconnaitrait que le premier devoir social, ou pour parler
 exactement, le devoir social préalable, préliminaire,
@@ -501,7 +430,6 @@ ce devoir il n'y a pas même de cité, on reconnaïîtrait
 que l'antépremier devoir social est d'arracher les misé-
 reux à la misère, d'arracher les miséreux au domaine
 de misère, de faire passer à tous les miséreux la limite
-économique fatale.
 
 Comme il y a entre les situations où gisent les misé-
 reux et la situation où les pauvres vivent une différence
@@ -517,8 +445,6 @@ de la misère les miséreux, sans aucune exception,
 duquel on ne peut pas même examiner quel est le premier devoir social.
 
 Au contraire, étant donné que tous les miséreux,
-
-Ë 13 :
 
 Qui.
 
@@ -554,9 +480,6 @@ Qu'on me permette une comparaison théologique :
 l'enfer est essentiellement qualifié comme l'effet d'une
 excommunication divine ; le damné est un excommunié
 de par Dieu; il est mis par Dieu hors de la communion
-14 |
-
-DE JEAN COSTE
 
 chrétienne ; il est privé de la présence de Dieu ; il subit
 l'absence de Dieu; les différentes et innombrables et
@@ -569,7 +492,6 @@ qui serait le temps et qui exclut le temps; à cet égard
 l'enfer se connaît à ce qu'il n'admet aucune espérance;
 l'horizon du damné est barré d'une barre infinie; l'enfer
 est cerclé; aucun espoir absolument ne filtre, aucune
-lueur.
 
 Au contraire le paradis est essentiellement qualifié
 comme le maintien de la communication divine; l'élu
@@ -581,7 +503,6 @@ de Présence, qui est la béatitude capitale, incomparable; d'ailleurs le paradi
 comme éternel; donc il ne supporte aucun risque ;
 lhorizon de l'élu est ouvert d'une ouverture infinie;
 aucun désespoir absolument, aucune hésitation ne
-filtre.
 
 Cela étant, le purgatoire a beau ressembler à l'enfer
 en ce qu'il est un lieu de peine et d'expiation, en ce
@@ -604,7 +525,6 @@ que le purgatoire et l'enfer ne soient pas du mème ordre;
 l'enfer est hors de la communion; le purgatoire est
 dans la communion ; l'Église souffrante, après l'Église
 militante, avant l'Église triomphante, est de la communion ; le purgatoire est de la vie; l'enfer est de la
-mort.
 
 L'enfer est de la mort éternelle. Or quand nous parlons de l'enfer social ou de l'enfer économique les
 hommes de littérature, les hommes de gouvernement,
@@ -622,7 +542,6 @@ plein, utilisée d'une utilisation fade et vide; ici encore
 le langage exact, le sens profond appartient au peuple
 
 | ë
-DE JEAN COSTE
 et aux écrivains, par dessus la tête creuse de la plupart des parlementaires de langue et des parlementaires de plume; quand un candidat parle de l'enfer
 social, économique, il veut dire une situation où que
 l'on ne se trouve pas bien; quand le peuple dit que la vie
@@ -682,7 +601,6 @@ grand que ne subirait une éternité, puisque cette
 représentée. On nous dit : Les misérables qui croyaient
 à l'enfer croyaient à une éternité de souffrance; ils en
 
-DE JEAN COSTE
 avaient donc une souffrance infinie, totale, barrant
 toute la vie, où aucune lueur ne passait; au contraire
 le plus misérable des non-croyants a parmi nous au
@@ -713,7 +631,6 @@ une aération; il en résulte une respiration, une impression d'aise et de bonhe
 renom des dieux, ni les foudres, ni les menaces du
 fracas céleste n'ont bloqué. » Mais cette impression
 
-7 ox
 troisième cahier de la quatrième série
 ne dure pas; la place laissée vide est occupée bientôt;
 les sentiments humains que les sentiments religieux
@@ -747,16 +664,13 @@ sont, littéralement, des rétroactionnaires, c'est-à-dire,
 en un sens, déjà des réactionnaires; ils ont, quand ils
 tapent sur le curé, une joie naïve, sincère ou feinte,
 
-DE JEAN COSTE s
 qu'un homme averti de notre génération, soucieux
 des immenses problèmes renaissants, ne peut plus
-avoir.
 
 [Aujourd'hui même je lis dans {a revue blanche du
 premier novembre ce paragraphe de M. Michel Arnauld,
 critiquant le livre de M. Barrès : Scènes et Doctrines du
 Nationalisme. C'est le paragraphe de conclusion du
-critique :
 
 « Ce n'est pas sur cette impression que je veux finir,
 mais en citant un beau passage d'une lettre que le très
@@ -816,7 +730,6 @@ du deuxième serait d'une grande utilité pour M. Fran-
 çois Simiand, et pour un assez grand nombre de sociologues: ily a dans ce bref paragraphe, indiquées seule-
 
 Que : SOA
-DE JEAN COSTE
 
 ment, les distinctions les plus utiles, et aussi les plus 9
 fondées, entre la science et l'art social. Quand un
@@ -857,10 +770,6 @@ rôle, et sans préjudice du reste; la misère est toute sa
 vie; c'est une servitude sans exception; ce n'est pas
 seulement le cortège connu des privations, des mala-
 
-d 23
-
-FMC EE
-
 troisième cahier de la quatrième série à
 dies, des laïdeurs, des désespoirs, des ingratitudes et |
 des morts; c'est une mort vivante; c'est le perpétuel |
@@ -896,10 +805,7 @@ soit infinie; une cause, un objet qui n'est pas infini
 pour la science extérieure, pour la physique, peut déterminer dans une âme un sentiment infini si ce sentiment |
 
 |
-24 ; |
 
-RARES
-DE JEAN COSTE
 . emplit toute l'âme; non pas en ce sens qu'il exterminerait de l'âme tout autre sentiment, conscient, subconscient, inconscient, mais en ce sens qu'il affecte sans
 exception, qu'il nuance et qualifie toute la vie sentimentale, intellectuelle, toute la vie de l'âme et de
 l'esprit; peu importe quels événements se produisent à
@@ -927,8 +833,6 @@ ment, assurément, vers une ère de bonheur définitif ;
 cette préoccupation apparaît souvent dans les derniers livres de Zola; l'honorable M. Buisson me disait :
 Ce qui manque à Jean Coste, ce qui pourrait peut-être
 le soutenir un peu, éclairer sa misère, et même lui
-
-? II
 
 troisième cahier de la quatrième série “à
 prêter un point d'appui pour son relèvement, c'est l'idée
@@ -983,8 +887,6 @@ de la charité; or il n'est pas loyal de le lui demander
 
 |
 
-DE JEAN COSTE
-
 pendant que l'on persécute le catholicisme ; secondement on lui demande une feinte ; on lui demande, étant
 misérable, de faire comme s'il ne l'était pas; et troisiè-
 mement on lui demande une impossibilité; le misérable
@@ -1012,7 +914,6 @@ ne pas voir le monde comme un Jean Coste; quand on
 veut que Jean Coste voie le monde en beau, comme on
 dit grossièrement, on veut qu'il ne soit plus Jean Coste,
 
-;
 troisième cahier de la quatrième série |
 mais un spectateur bénévole, bon garçon, regardant Î
 commodément le monde et Jean Coste à sa petite place t
@@ -1043,8 +944,6 @@ les bonheurs des autres hommes lui laissent un arrièregoût d'amertume et d'ing
 
 |
 
-HAE
-DE JEAN COSTE
 lent en lui la connaissance de légoïsme universel. Vu
 par lui, l'univers est misérable. Notre troisième et dernière conclusion de fait sera que la simple misère
 humaine a une importance universelle, La damnation
@@ -1052,7 +951,6 @@ a une importance universelle pour les catholiques. La
 misère sociale a une importance universelle pour nous.
 Un fait particulier peut causer une souffrance totale.
 Une absence particulière peut causer une privation ;
-totale :
 Un seul être vous manque, et tout est dépeuplé.
 Nous ne pouvons pas, ce serait commode, mais
 nous ne pouvons pas croire qu'il n'y a pas de misère
@@ -1062,7 +960,6 @@ les sentiments de la solidarité pour demander à la
 misère de nous laisser la paix; nous sommes forcés
 d'aller jusqu'aux sentiments de la charité; mais il
 suflit de la solidarité pour que la misère puisse nous
-requérir. j
 Les catholiques sérieux ont toujours été préoccupés
 
 de l'enfer ; quelque importante que fat la gradation des
@@ -1076,9 +973,6 @@ Vavouer, pour ne pas offenser la munificence divine et
 pour n'en pas mépriser les dons, paraît avoir eu comme
 une importance ajournée ; quelque importante que fût la
 
-29 IE,
-
-‘ ÿ s D
 troisième cahier de la quatrième série |
 gradation des peines, il semble que la constante préoc- ÿ
 cupation des catholiques sérieux ait été de savoir si i
@@ -1095,7 +989,6 @@ due à l'éternité des peines a été pour la plupart des
 catholiques sérieux la cause la plus grave de révocation ; beaucoup de catholiques sérieux ont éprouvé le |
 besoin, l'insurmontable besoin de supprimer l'enfer;
 ils ont commencé par le supprimer dans leur âme;
-plusieurs vieillards seraient retournés au catholicisme,
 qui en furent empêchés par cet article seul: est descendu aux enfers, et l'interprétation que l'Église lui
 donne ; un très grand nombre de jeunes gens, sérieux,
 ont renoncé la foi catholique premièrement, uniquement, ou surtout, parce qu'ils n'admettaient pas l'existence ou le maintien de l'enfer.
@@ -1109,7 +1002,6 @@ diminution, depuis l'élimination de la foi catholique.
 
 | 3 gli Vi An . ii.
 ; di ui où UHR
-DE JEAN COSTE
 La valeur de la souffrance n'a pas diminué. La valeur '
 de l'effort à faire n'a pas diminué; comme les catholiques sérieux sont préoccupés surtout du salut, nous
 devons nous préoccuper surtout d'arracher ies misé-
@@ -1176,11 +1068,8 @@ contraire il suflit qu'un seul homme soit tenu sciemment,
 ou, ce qui revient au même, sciemment laissé dans la
 misère pour que le pacte civique tout entier soit nul;
 
-“Ar sir
-DE JEAN COSTE
 aussi longtemps qu'il y a un homme dehors, la porte qui
 lui est fermée au nez ferme une cité d'injustice et de
-haine.
 Le problème de la misère n'est pas sur le même plan,
 n'est pas du même ordre que le problème de Finégalité.
 Ici encore les anciennes préoccupations, les préoccupations traditionnelles, instinctives de l'humanité se
@@ -1205,9 +1094,6 @@ sans doute s'épanouira dans la civilisation moderne;
 c'est un des meilleurs parmi les bons sentiments; c'est
 un sentiment à la fois profondément conservateur et
 profondément révolutionnaire; c'est un sentiment simple: c'est un des principaux parmi les sentiments qui
-
-$
-£
 
 ne
 troisième cahier de la quatrième série
@@ -1244,9 +1130,6 @@ une Angleterre si nationaliste, impérialiste; il a opéré
 cette révolution américaine, qui instaura une république si impérialiste, et capitaliste; il n'a pas institué
 l'humanité; il n'a pas préparé la cité; il n'a instauré :
 
-cts , À
-DE JEAN COSTE
-
 que des gouvernements démocratiques. C'est un sentiment composé, mêlé, souvent impur, où la vanité,
 l'envie, la cupidité contribuent. La fraternité inquiète,
 émeut, passionne les âmes profondes, sérieuses, laborieuses, modestes. L'égalité n'atteint souvent que les
@@ -1273,9 +1156,7 @@ doux, conservateurs, ils aiment cette résidence de
 quiétude ; ils ne demandent pas une égalisation des
 richesses, parce qu'ils sentent ou parce qu'ils savent
 
-cvs
 troisième cahier de la quatrième série
-à
 que cette égalisation n'irait pas sans de nouvelles |
 avemures, qu'elle rouvrirait l'ère des incertitudes, \
 qu'elle donnerait ou laisserait place au recommence- 4
@@ -1305,7 +1186,6 @@ jamais; ainsi apparaissent des ambitieux singuliers,
 singulièrement formidables, ambitieux de gouvernement
 chez qui la passion du gouvernement n'est pas la pre36
 
-DE JEAN COSTE
 mière, ambitieux de banque, de commerce, d'industrie
 chez qui la passion du gouvernement financier, commercial, industriel, chez qui la passion du travail, chez
 qui la passion d'amasser n'est pas la première; ambitieux dont les temps de grandes inventions mécaniques,
@@ -1331,8 +1211,6 @@ sont pas révolutionnaires ; ils ne sont pas égalitaires ;
 ils demeurent au-dessous de l'égalité; les autres, quelques-uns, ne sont révolutionnaires que pour soi; ils ne
 sont pas égalitaires non plus; ils s'enfuient au-dessus
 de l'égalité. Ce sont là deux démarches contraires, mais
-
-lil
 
 troisième cahier de la quatrième série
 elles ont la même cause : les uns fuient la mémoire du |
@@ -1361,8 +1239,6 @@ sans aucune exception; ils sont profondément socialistes, c'est-à-dire qu'ils 
 des misères morales ou mentales tant que l'on ne sauve
 pas de la misère économique; ils ne sont pas égali-
 
-CNE pis |
-; DE JEAN COSTE .
 taires ; ils ne sont pas belliqueux ; ils ne sont pas militaires ; ils ne sont pas autoritaires ; ils ne subissent
 pas l'autorité ; ils ne sont pas enthousiastes ; ils ont
 l'admiration rare ; ils évitent les cérémonies, officielles,
@@ -1399,7 +1275,6 @@ font l'effet d'enfants bavards; les misérables et les
 anciens misérables conscients ne sont pas aimés de
 leurs ennemis, ni de leurs camarades, mais ils sont
 aimés de leurs amis. Les misérables conscients ont
-beaucoup d'ennemis, surtout parmi leurs camarades.
 Mais ils ont plusieurs amis.
 
 C'est qu'ils sont des trouble-fête. Hantés par la connaissance qu'ils ont de la misère, anxieux de savoir
@@ -1421,10 +1296,6 @@ certitude n'est pas complète les éléments de certitude
 ne qualifient pas les éléments d'incertitude; aussi longtemps que la certitude n'est pas complète, elle n'est
 pas la certitude; une vie assurée de tous les côtés
 moins un n'est pas une vie assurée; un véritable malbeur, une véritable misère empoisonne toute une vie; |
-
-4o
-
-DE JEAN COSTE
 
 un véritable bonheur ne peut pas même se produire
 dans la misère ; il y devient aussitôt misère lui-même
@@ -1456,9 +1327,7 @@ individuel, une véritable misère individuelle empoisonne toute une cité; une 
 qu'elle admet une misère individuelle, quand même
 l'individu intéressé y consentirait; un telconsentement,
 un tel renoncement, recommandé dans la morale de la
-4x
 
-EUR DANTOES
 troisième cahier de la quatrième série L
 charité, est incompatible avec la morale de la solidarité:
 à il ne s'agit donc pas d'établir un bilan de la vie sociale |
@@ -1474,7 +1343,6 @@ pas du même ordre; on ne peut les comparer. Pour la É
 vie sociale, à l'égard de la misère, tant qu'on n'a pas
 fait tout, on n'a rien fait.
 En intensité, aucun bonheur n'est plus intense que la
-misère.
 Les misérables et les anciens misérables conscients
 savent cela; et ceux qui ne le veulent pas oublier ne 1
 manifestent pas perpétuellement une joie publique
@@ -1491,11 +1359,6 @@ chrétiens ou que des socialistes pensent aux misères
 de la société bourgeoise: les camarades socialistes
 révolutionnaires n'admettent pas qu'on ne communie ]
 
-/ F
-
-} 23 LAS TRES
-DE JEAN COSTE
-
 pas infatigablement avec eux dans les apothéoses des
 punchs. Le parti de la souffrance est tout à la joie. Ilest
 donc tout à la dureté. Rien ne rend féroce comme une joie
@@ -1505,7 +1368,6 @@ les représentés le soient aussi. Puisque la puissance des
 représentants représente censément la puissance des
 représentés, il faut que tout des représentants repré-
 sente les représentés; le contentement des représentants ne peut représenter que le contentement des
-représentés.
 
 Quand un misérable ou un ancien misérable conscient
 fait un livre, il peut faire un Jean Coste.
@@ -1527,7 +1389,6 @@ de s'imaginer qu'il faut et qu'il suffit de fourrer du noir
 
 | pour obtenir un effet de misère ou un effet de tristesse;
 | il pourrait arriver à Jean Coste un assez grand nombre
-\
 
 troisième cahier de la quatrième série .
 d'événements beaucoup plus graves qu'il ne lui en 1
@@ -1559,10 +1420,6 @@ forte que l'on se demande si l'auteur pourra jamais j
 recommencer; je ne dis pas cela pour diminuer Lavergne, |
 au contraire, ni pour limiter le champ de son travail k
 éventuel; j'attends beaucoup de ce qu'il fera; mais à
-
-a
-
-DE JEAN COSTE
 
 peu d'hommes il a été donné de produire ainsi un premier livre, un livre seul, debout comme un pilier, et
 qui fasse naître @ette espèce de préoccupation; c'est
@@ -1596,7 +1453,6 @@ l'impression n'est pas la même; les misères de Zola
 sont des misères de description, des misères vues par
 un touriste laborieux, souvent consciencieux, par un
 inspecteur des misères, par un excursionniste; les
-45 IT.
 
 troisième cahier de la quatrième série É
 misères de Jean Coste sont vues de l'intérieur, vécues F
@@ -1621,7 +1477,6 @@ un misérable familier; il vit parmi nous; et nous souf- k
 frons de ne pas pouvoir lui donner de notre pain : telle A
 est la différence d'un livre classique, réaliste, à une ÿ
 construction romantique, nommée naturaliste ou réa- 1
-liste. “
 On m'objectera que Lavergne n'en a pas cherché si 4
 long pour faire son Jean Coste; je l'espère bien; mais l
 c'est le propre de la probité, de la sincérité classique ; É
@@ -1631,9 +1486,7 @@ inlassablement la science, la critique, l'analyse; pour j
 la même raison que l'on marche avant de savoir l'ana- d
 tomie et la physiologie du mouvement musculaire, pour |
 la même raison Jean Coste instituteur, vivant une vie É
-04 ]
 
-DE JEAN COSTE
 réelle, fournit l'inépuisable matière d'une étude qu'il
 peut n'être pas capable de faire; et pour la même
 raison Lavergne, opérant une œuvre réelle, fournit,
@@ -1674,7 +1527,6 @@ fabriquer par ces fonctions une réalité faite exprès pour ê
 elles; ainsi les romantiques ne font le tour du monde pa
 que parce qu'ils ont commencé par se fabriquer un petit a
 monde circumnavigable. 3
-KO
 On a reproché à Jean Coste une certaine grandilo- {
 quence ; on a eu raison de la constater; on a eu tort de 8
 la lui reprocher : il parle comme il peut; on a eu tort 4
@@ -1687,7 +1539,6 @@ ture, de phrase, à l'envahissement du jargon politique ; à
 il y en a une cause beaucoup plus belle, beaucoup plus ‘
 noble et beaucoup plus profonde, beaucoup plus ù
 humaine : la misère est une grandeur; si grande que les î
-autres grandeurs humaines en comparaison paraissent Î
 petites ; quand on connaît bien de vrais miséreux, ce #
 qui frappe le plus en eux, dans l'abaissement même, ra
 c'est un certain ton de hauteur; leur humilité n'est sou- ‘|
@@ -1697,10 +1548,7 @@ vous qui ne connaissez pas la vie, parce que vous ne i
 connaissez pas la misère; c'est justement cette gran- Ÿ
 deur, dont ils ont conscience, qu'ils ne peuvent pas tou- ÿ
 jours porter, et qui leur monte à la tête; ils ne tombent à
-%
-F1
 
-DE JEAN COSTE
 dans la grandiloquence que parce qu'ils ont un besoin
 de monter jusqu'à la grande éloquence, et qu'ils ne
 savent pas toujours ; c'est le propre de cette grandeur
@@ -1732,14 +1580,11 @@ l'école normale primaire, à l'école normale d'instituteurs du département. S
 particulièrement choisi, les élèves -maîtres venaient
 chaque semaine, chacun son tour, nous faire la classe.
 
-MERE +:
-
 troisième cahier de la quatrième série
 Ils m'ont enseigné le sifflet de Franklin, et la ligne
 droite si l'on coupait la France de Liège à Bayonne.
 
 La plupart des gens qui flattent aujourd'hui les instituteurs pour s'en faire une clientèle sont des bourgeois
-d'origine secondaire. |
 
 J'aimais beaucoup mes maïtres primaires. J'ai conservé des relations personnelles, respectueuses, affec- |
 tueuses, avec la plupart d'entre eux. Venu au lycée,
@@ -1747,7 +1592,6 @@ nous eûmes avec les normaliens primaires d'excellentes
 relations. Nous fimes, sans phrases, la fameuse fusion
 des deux enseignements. C'était le temps où l'on restituait les exercices physiques. Il y avait des équipes du
 lycée, des équipes de l'école normale. Nous concourions. Nous composions des rallies, des parties, des
-fêtes.
 
 Je retrouvai au régiment beaucoup d'instituteurs et
 dans cette camaraderie sans appareil j'eus avec plusieurs d'entre eux des relations de véritable amitié. Ces
@@ -1779,7 +1623,6 @@ de la complication. Sauf des exceptions, heureusement
 nombreuses, quand les instituteurs écrivent, ils sont
 tentés d'écrire un peu comme Jean Coste parle, un peu
 raide, un peu mièvre, un peu prétentieux, un peu pré-
-cieux.
 
 Entendons-nous : il y a partout des hommes, qui
 
@@ -1798,15 +1641,9 @@ philosophie. Maïs les instituteurs qui ont subi sans résistance l'impression p
 
 É de parler peuple et n'ont pas encore appris à parler
 
-à français.
-
 î : Parler peuple et parler français, c'est parler le même
 
 H langage, un langage de nature et d'art, sur deux plans
-
-s | 5I
-
-È
 
 troisième cahier de la quatrième série
 différents parallèles de culture. La nature et l'art travaillent sur deux plans différents; mais ces plans sont ;
@@ -1845,7 +1682,6 @@ discours. On vous répondra : Sans doute, mais il y met
 un peu du sien. Nous connaissons beaucoup d'institu- À
 
 + l'atieet p LI
-DE JEAN COSTE
 teurs qui sont très heureux. — L'auteur n'a jamais dit le
 contraire. Lui-même il a dit combien il y en a d'heureux,
 de pauvres, de malheureux, de misérables pour une
@@ -1863,7 +1699,6 @@ pourquoi a-t-il tant d'enfants ? — Quatre. — C'est vouloir être malheureux.
 discours officiels tout l'idéal de vie que la troisième
 République propose à un assez grand nombre de ses
 loyaux serviteurs est le mariage d'affaires ou le célibat
-perpétuel.
 
 | Je ne reviendrai pas aujourd'hui sur l'histoire du Jean
 Coste avant sa publication; les campagnes les plus
@@ -1879,11 +1714,8 @@ Ce livre réussit ; il n'avait pas été fait pour plaire,
 | mais il réussit; par ce livre simple un très grand
 nombre de lecteurs furent simplement émus; un très
 
-F
-
 troisième cahier de la quatrième série #
 grand nombre de critiques libres firent à ce livre une î
-importante publicité.
 
 Les hommes engagés dans les partis politiques anticléricaux négligèrent d'en faire autant. J'avais bêtement
 pensé que ce livre serait bienvenu dans les partis
@@ -1909,8 +1741,6 @@ récompensées; aujourd'hui je me demande, anxieusement, si je ne fus pas joué,
 
 Ce Coste insubmersible aujourd'hui reparaît. La
 librairie Ollendorff le publie en un volume à trois
-
-DE JEAN COSTE
 
 francs cinquante, 314 pages, couverture toile reliée illustrée rouge et noir de H. Goussé. Quand on me dit qu'il
 y aurait une image peinte, je me méfiai; je ne redoute
@@ -1946,8 +1776,6 @@ vie, des droits d'auteur; un contrat normal est intervenu ; or il est juste que 
 | nous qui, instituteurs ou professeurs, quittent leur
 métier et viennent exercer sur nous parmi nous leur
 
-À
-
 troisième cahier de la quatrième série
 
 petite fraction de gouvernement socialiste et révolutionnaire; nous ne devons pas avoir moins d'amitié pour
@@ -1955,7 +1783,6 @@ petite fraction de gouvernement socialiste et révolutionnaire; nous ne devons p
 les instituteurs et pour les professeurs qui dans la
 
 peine et dans le travail continuent d'exercer leur métier
-modeste.
 
 Lavergne a fait plus; sur ma demande, et très cordialement, il a bien voulu partager avec les cahiers ses
 droits d'auteur; pour tout exemplaire acheté de la nouvelle édition, la moitié des droits d'auteur vient à
@@ -1964,7 +1791,6 @@ cahiers; je sais que cette révélation suflira pour que
 plusieurs étendent au nouveau Jean Coste le boycottage
 dont nos cahiers bénéficient; mais les boycotteurs sont
 moins nombreux qu'ils ne veulent bien le croire, et
-moins puissants.
 
 Enfin la convention commerciale passée entre les
 éditeurs, l'auteur et les cahiers est telle que les exem- |
@@ -1982,8 +1808,6 @@ eux-mêmes d'où elles viennent, ce qu'elles signifient.
 Ce livre peut fournir un très bon roman feuilleton
 pour les journaux de province et même pour les journaux
 de Paris; nous ne devons pas négliger le roman feuil-
-
-DE JEAN COSTE
 
 leton: mauvais, il est un des agents les plus pernicieux
 de démoralisation; bon, il peut devenir un des moyens
@@ -2015,10 +1839,8 @@ nn curé comme il faut qu'ils soient tous pour que l'anti-
 
 | cléricalisme radical soit fondé; ayant à faire une élection, au lieu de mettre en présence un parti réactionnaire tout à fait immonde et un parti radical tout à fait
 sublime, il avait mis en présence deux partis politiques
-assez également faux, assez également lâches.
 
 troisième cahier de la quatrième série 4
-à
 D'autres, très nombreux, surtout depuis que le livre A
 a réussi, ont au contraire, — mais cela revient au À
 même, — été pris pour Jean Coste d'un amour inattendu. S
@@ -2050,11 +1872,6 @@ s'agit pas de faire de lui le jouet des partis politiques.
 Il y perdrait toute autorité, morale, sociale, professionnelle, toute dignité, toute valeur de vie et toute valeur
 d'homme.
 On veut déléguer à Jean Coste une parcelle de l'auto58
-
-A OR MEANS CA TS HE
-ra 4. WT sc , " ;
-
-, DE JEAN COSTE
 
 rité gouvernementale, un morceau d'État. On en veut
 faire un de plus qui pèsera sur nous. Il procédera du
@@ -2090,7 +1907,6 @@ part d'autorité injuste qu'il exercera. Il y a même un
 marché de ces trocs, il y a un cours des valeurs : tant 4
 d'autorité pour tant de liberté perdue. C'est le fondement même du suffrage universel. Ce n'en était pas le
 fondement théorique. C'en est devenu le fondement
-pratique.
 
 Le malheur est que la plupart des citoyens se |
 plaisent à ces trocs usuels immoraux; c'est un marché
@@ -2117,9 +1933,6 @@ la tentation à laquelle tant de socialistes révolutionnaires n'ont pas résist
 
 On veut qu'ils soient les magistrats de la raison.
 
-6o
-
-DE JEAN COSTE
 D'où sort cette nouvelle magistrature? Nous n'avons
 que trop de Magistratures d'État, civiles et militaires.
 IL n'est pas indispensable que toutes nos écoles soient
@@ -2149,8 +1962,6 @@ prédilection que France peut avoir pour un livre de
 Tharaud, je préciserai, je lui demanderai ce qu'il faisait
 exactement, lui, dans le cabinet de M. Lemaïître à la
 
-IV
-
 troisième cahier de la quatrième série |
 date où M. Clemenceau avait à défendre la Cour de
 Cassation contre les calomnies nationalistes.
@@ -2177,9 +1988,6 @@ du parapragmatisme déjà noté ; assimiler aux magistrats judiciaires les membr
 pas garantir leur liberté, mais c'est leur conférer une
 autorité; je n'insiste pas; nous reviendrons sur cette
 
-6, 01 ASS Test: 1h SU S iES t Lu
-DE JEAN COSTE
-assimilation dangereuse. Deuxièmement Téry oublie
 qu'il appartient officiellement à un parti où l'amovibilité des magistrats judiciaires est partie essentielle du
 programme ; quand Téry non seulement vante l'inamovibilité mais la veut étendre des magistrats judiciaires
 aux maîtres de l'enseignement, il oublie qu'il fait partie
@@ -2211,7 +2019,6 @@ première discussion l'idée fausse reparaît, florissante; la
 | deux ans, quand on pensa faussement que l'affaire était
 | :
 
-se
 troisième cahier de la quatrième série
 consommée, toutes les fois que la conversation des
 dreyfusards et des républicains revenait sur les instituteurs, il n'y avait qu'un cri et qu'une indignation : La
@@ -2242,7 +2049,6 @@ du territoire, qui soumettait au ministère de l'intérieur
 tous les ministères de la République; loin de libérer les |
 instituteurs, c'est l'ancien asservissement des institu64
 
-DE JEAN COSTE
 teurs que l'on a étendu à tous les fonctionnaires. Ce
 n'est pas vers l'indépendance et l'inamovibilité du
 magistrat que l'on tend, mais vers l'asservissement et
@@ -2256,7 +2062,6 @@ bonnes élections, avec une majorité aussi assise, on
 n'avait pas besoin de quelqu'un- de très fort pour
 gouverner. Je ne me rappelle pas si même il ne nous
 expliqua pas que quelqu'un de pas très fort valait
-mieux.
 
 On exagérait. M. Combes n'avait pas été nul comme
 ministre de l'instruction publique. Des personnes renseignées assurent qu'il est intelligent. Gauche et maladroit, la main lourde au commencement de son ministère, il est rapidement devenu spirituel, aisé; il s'est
@@ -2273,11 +2078,7 @@ une tâche écrasante. Combattre l'Église est.cette année
 en France plus facile que de ne rien faire. Un gouvernement qui ne fait rien et qui ne combat pas l'Église
 tombe. Un gouvernement qui ne fait rien et qui combat
 l'Église tient.
-65 IV. |
 
-: TETE PET
-ay PR à:
-RE
 troisième cahier de la quatrième série
 
 La tâche écrasante que M. Combes a courageusement
@@ -2297,7 +2098,6 @@ en reste quelque valeur aux hommes de ce temps-là.
 Non je ne confonds pas les radicaux de quarante, cinquante ou soixante ans avec cette multitude pressée de
 jeunes radicaux, — jeunes gens de vingt à trente ans,
 — qui de partout se poussent à l'occupation des
-places.
 
 Tout ce que nous avons déclaré, mais je maintiens
 cette déclaration, c'est que nous refusions de nous
@@ -2310,7 +2110,6 @@ Qu'elle soit vaine, c'est ce que l'on commence à reconnaître un peu partout. C
 entraîner dans la compagnie de cette majorité commencent à se demander ce qui se prépare. Jaurès et
 Pressensé dans leurs journaux commencent à s'apercevoir que les partis radicaux ne sont pas solides. Jaurès |
 
-DE JEAN COSTE
 parle de défaillance et pense de trahison. Cette majorité
 qui devait tout bouffer, — style approprié, — se rompt
 devant les bouilleurs de cru et vient de porter M. Doumer
@@ -2343,8 +2142,6 @@ et à travers; il faut savoir ce que l'on enseigne, c'est-
 à-dire qu'il faut avoir commencé par s'enseigner soimême ; les hommes les plus éminents ne cessent pas de
 se cultiver, ou plutôt les hommes les plus éminents sont
 
-F4
-
 troisième cahier de la quatrième série
 ceux qui n'ont pas cessé, qui ne cessent pas de se culti- je
 ver, de travailler; on n'a rien sans peine, et la vie est
@@ -2361,8 +2158,6 @@ Vigny ou Lamartine, c'est en lisant qu'un homme se
 forme, et non pas en récitant des manuels. Et c'est,
 aussi, en travaillant, modestement.
 
-CuarLes PÉGuY
-
 RNCS FH QU hi PNR MA ASE ee RAA RAT
 
 ne JA ea AUS TRE EAU RO M CE NI STE Fe
@@ -2371,65 +2166,26 @@ ne JA ea AUS TRE EAU RO M CE NI STE Fe
 
 ra et PAT RES, F3) RL Re CEA TE AU IAOUN AE 7
 
-RAA à ne 4 : "rt " AR dt L RL €
-
-; SENTE É à f Lt EL TCEV ; . PESTE
-
 ÉVMIS ENRES Het RATER NE
-
-SCA "FAST 2 A à - #-.
 
 > es AC) NN cit RE WA EURS
 
-: ;:* ENROR de # #4
-+ LS 4 VON ; : NES
-
-) LAS SLAM EE É. i : » 40
-AR: À » ER xt AE
-
-a | 210
-
-- ‘Heu 9) ES & Me
-A AR : 1 it
-
-EAN AE 148 k F ! QU
-
 # L'VELASENSSN * VE
-ef 0e. LEE ee CU 4 è + >#f
-Ts 1: FES : ; + HAE
-Là Un Ve 2 e Û dc
-c SET PES # A ‘ 7 N
-
-4 2 UC MER INR à + ST LT RE
-
-FE, CSN c \ : à Ke tai RTE +
 
 re 1e VOTRE PESTE) & < à À HP ie
 
 | M DURE ARR
-2 ONE LA PTS VSASESSE
-
-HARAS % k N SN LE È Pr ET
 
 LEA Qi Le pates 10 w \ EX F ne h ET
-
-Tr Un WI. Le "> INR
-
-Aix FANS
-
-È
-FLÉTRI $
 
 L'an mil neuf cent deux, le vingt-huit octobre, à la
 requête de monsieur Colomb, président du Comité de
 « lŒuvre des Journaux pour Tous », dont le siège est à
-Paris, 17, rue Cujas, Ë
 
 Élisant domicile en ma demeure, ï
 
 J'ai Louis Maillard, huissier près le Tribunal Civil de ÿ
 la Seine, séant à Paris, y demeurant, 9, boulevard À
-Saint-Michel, soussigné, |
 
 Signifié dit et déclaré à monsieur Charles Péguy,
 pris en qualité de Directeur-Gérant du journal Les j
@@ -2450,7 +2206,6 @@ d'adresses d''expéditeurs et de destinataires. Ÿ
 
 Que mon dit requérant entend user de son droit de
 
-5 RS
 réponse que lui confère l'article 13 de la loi du 29 juillet
 1881 sur la presse.
 
@@ -2465,7 +2220,6 @@ Le Comité des « Journaux pour Tous », réuni le
 10 octobre 1902, au siège de l'œuvre, 17, rue Cujas,
 après avoir pris connaissance de l'article de M. Charles
 Péguy (Cahier de la Quinsaine, numéro 21, troisième
-série) ;
 
 Approuve toutes les mesures qui ont été prises pour
 conserver à l'Œuvre l'indépendance sans laquelle elle
@@ -2487,7 +2241,6 @@ ne sera pas donné à l'affaire les suites judiciaires
 qu'elle compærte.
 
 De plus, ne pouvant compter sur l'impartialité du
-2  V *
 
 |
 
@@ -2501,11 +2254,6 @@ sent extrait du procès-verbal de ses séances; F
 
 Et passe à l'ordre du jour. |
 Ont signé :
-
-MM. Georges Colomb, président ; Alfred Alexandre,
-trésorier-comptable ; François Simiand ; Eugène
-Rehns ; Jean Mascart; Louis Feine; Eugène Després:
-Émile Chauvelon; Michel Dalsace; Héïigon, membres ; 1
 
 Lui déclarant que faute de satisfaire à la présente
 sommation le requérant se pourvoira ainsi que de |
@@ -2521,10 +2269,6 @@ indication d'un côté, que les nom et demeure de la
 partie et de l'autre, le cachet de mon étude apposé sur
 la fermeture du pli, le tout conformément à la loi.
 
-Coût sept francs soixante-cinq centimes.
-
 Copie : une feuille de papier spécial à 1 france 0. i
-
-Rayé cinq mots nuls.
 
 L. Maillard

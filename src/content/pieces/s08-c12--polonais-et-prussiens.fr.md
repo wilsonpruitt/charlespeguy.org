@@ -7,54 +7,21 @@ author: edmond-bernus
 isAvertissement: false
 wordCount: 19891
 ---
-
 | DOUZIÈME CAHIER DE LA HUITIÈME SÉRIE
 | EDMOND BERNUS |
 |
 Pol is et Prussiens
- MOIOnNAaIS € russiens
-DE LA RÉSISTANCE DU PEUPLE POLONAIS à
-. AUX EXACTIONS
-DE LA GERMANISATION.PRUSSIENNE. — II ù
 | CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-; PARIS 4
 | 8, rue de la Sorbonne, au rez-de-chaussée à
 
-« ÿ AN CR NN AU AA AS i
 d Murs MATOS. MO AN CAT nan NUE TANT
-JS UNOTSN CROP EEE à KA EE, LATE # CONNAITRE EU NE NSTETE Et QE “
-_ HANNeRAEEte RENE ARE ‘hi AVES
-ROCCO ee k . Me
-+ ARTE
-1 L; L ; À 17 Ë;
-RCE j 1008
-Fu 14 se ñ
 | "AE it TR
-208 S : 000
-16 % À Sr |
-; jf , . 1 'e
-ÿ Deux, 2 \ 4 A x
-st À x , } # Va hu
-BUT 4 à * 4
-y AN C0
 MRC Que
-(Wal 1 SOIR
-1e SO } « À " 16e
 # CARTE AUD
-ner + , Su.
-M à FI 24 1e
-% ra f al 4
 M pe LE \ gs No
-‘TT À . ! LA VAT
 AE: Ÿ “Polonais, — 5 ta ‘HS
-LAURE TN ï : 6 AURA
-bu AO HET nf 4 ANA
-(NES RME FINIR NAN RANIEEE
 
-IN
-A 1.4
-2 f 15
 | Nous avons publié dans nos éditions antérieures et ! à
 4 dans nos cinq premières séries, 1900-1904, un si
 LL À grand nombre de documents, de textes formant dos- |
@@ -73,7 +40,6 @@ jf l'énoncé même le plus succinct; pour savoir ce qui a is #4
 00 \ bonne, rez-de-chaussée, Paris, cinquième arrondisse- | #
 58 ment; on recevra en retour le catalogue analytique 54
 (40 sommaire, 1900-190f, de nos cinq premières séries. 4
-‘4 ; É 1. 1
 14 ; Ce catalogue a été justement établi pour donner, Ai
 Rue autant qu'il se pouvait, une image en bref, un raccourci, M
 no: une idée, abrégée, mais complète, de nos éditions anté-
@@ -82,9 +48,6 @@ no: une idée, abrégée, mais complète, de nos éditions anté-
 ci place, les références demandées. Li
 4 A Ce catalogue, in-18 grand jésus, forme un cahier
 4 ‘à très épais de XII4-408 pages très denses, marqué cas
-CR | II0 ‘ 7 ü Ë
-“41 1 À Gil F fl
-A Ds QE M2 AN C4 Etc V4 fn ES HR SRE
 
 ) francs; ce cahier comptait comme premier cahier de la +
 | sixième série et nos abonnés l'ont reçu à sa date, le 1
@@ -101,7 +64,6 @@ L en attendant que paraisse le catalogue analytique som- À
 | peut consulter, — provisoirement, — la petite table sh
 ! analytique très sommaire que nous en avons établie et " ie
 | que nous avons publiée en fin du premier cahier de la 1
-. huitième série. xl
 j Pour amorcer tout travail que l'on aurait à commencer 4
 ‘4 dans notre premier catalogue analytique sommaire, con- j:
 . sulter le petit index alphabétique provisoire que nous ;
@@ -112,84 +74,34 @@ rieures et de nos sept premières séries, même premier nt (
 1 cahier de la huitième série. À
 
 4 OMR LS ARCS M a À SE D te re M À de
-LEONA Le M RL Ne PAU PE ane JEU, LP AL ENT NS A EP ET
 | AC { ÉD AE :
-; sr” UT
-Dh \:V0R
-‘OS 2 \ ii
-1 ï HANESS fa
-NT , . AU
 #4 * 1 : PUR
-‘#4 | LS ha 4
 #4 ÿ TER
-3720 , » YAt0 RE
-LAETER Lef TOR
-LS À # il Fa SA
-1111 À 3h te
-% # “ % 42 |. Pégl.
-‘1 } LFP
-AUR EN + UT
-1} ur : 4 nu Éd M
-NA | : gr Au 4
-40 1:72} OCR
-UM * UMR:
-F Ÿ #ié ‘AA J
-“Cr tte ge {LP TER
-PRE \ Û ï æ DRAM ?
-SCT 54 “HR L 24 à. \ "a ae Ÿ. ‘ AIT ie
 RACE un) seit Moi DES ay s LR E HENES
 LR) Pere jh di “he MAPS | a $ Fe ne dal LP Lu te: pal
 
-LME EAU LR PAST AE A ET A UE EG EE AA RP NE AN NA EE CEE SAAREN UE", TRUE
 |: ER D D PAS LE RE CRE edis * CAS PR NUE NE 4 Ne.
 | Hen FA HAE É OT MED ES NC APINPUE DIN ne
-te N : \ 0 QE
 
-à + ae
 | ‘Te RE MARUcEE
 | la Re a
 
-4%: sl
 | M 5 Re
-Il 4. W:
 
 ne M
-{à ! JA
-14 Pol tp ; j
 1 OlONQIS et Prussiens 3
-[210 Ke
 | pk #3
-; AN.
-iX ; ' De:
-nr } ti k
-d: A ( au. À
-« 0 sa 1e]
-W « lITARI
-* TU
-1 Y fl it fe
-1118 > 3"
-Di ë PAU.
-NP \t ( “ de AC } t
-‘ANSE À Vire
-FUN NT CARRE à | ï nt MORAL
-LOTO ARE OF ORAEANCRE EN #1 Au NAME D Ten
 
 45 Any 4 4 PAU à #_TTQU il; Lena.
-1: 180 | : NE ANUS
-DU, jh CNET 4 464 LA
-7144 , F Ÿ né 0
 
-- 1 DU MEME AUTEUR A
 150 aux Cahiers de la Quinzainè j 710
 Le À : Le présent petit index donne automati- EAU
 
 “à quement pour tout volume et pour tout F ARS
-1 cahier indiqué : à PEN | va
 
 He)! a) le numéro d'ordre de ce cahier dans 0 pl
 FOR le classement général de nos collections 24: TOR
 | 108 complètes, le numéro d'ordre de la série } CAE
-17 étant naturellement composé en grandes qe PRET
 M capitales de romain et le numéro d'ordre RAC.
 1700 . du cahier lui-même, dans la série ainsi Va NEC
 
@@ -198,13 +110,11 @@ F2 déterminée, en chiffres arabes, de sorte F AE du:
 Na que V-r17 par exemple doit évidemment se À TIRE
 
 Ÿ lire dix-septième cahier de la cinquième UE.
-Dar : 4 LATE
 #4 RUt b) la date du bon à tirer, ou, à son dé- RE
 
 NE faut, la date du fini d'imprimer, ou, à son « | FR
 4 défaut, la date du cahier même; AUDE
 LR c) le prix actuel; Me
-x f : PR
 
 # da | d) quand il y a lieu, c'est-à-dire pour nos it Ni 44.
 
@@ -212,58 +122,27 @@ x f : PR
 
 ‘RU mières séries, la page du catalogue ana- “1 6
 (7 lytique sommaire où ce cahier se trouve ke ei La /
-RU ; .  catalogué. LT
-40 1% ANVSTSS
 MR Edmond Bernus, — La Russie vue de la Vistule, — histo ire
-TA . se 1 4
-4 de 1805 (U-r7, mardi 3 juin 1902............. un franc 148
-NE ' (1
 NE tn Polonais et Prussiens, — de la résistance du. |
 LATE peuple polonais aux exactions de la germanisation prus- ,
 | 28 £ 4 ë ; F sé. MS. 1 UsT; KOCRERRES
-FU sienne, — premier cahier (VIlI-10, mardi 15 janvier 1907, Ye
-(13 \ k deux francs
-Mc, d: Là / JV TR
 COOP ET TA NPD ES EE PC OP EPA TEE à en
 
-RU RUE ke Do
-NU: ‘4 à fs j ResreT a , |
-ta : 0
-"NON 4 F r.. 17 SR
-_ DE LA RÉSISTANCE DU PEUPLE POLONAIS ‘08
 | AUX EXACTIONS "1
-0 DE LA GERMANISATION PRUSSIENNE .
-1 Li | No PA
-Li j RAT À
-mo, Las
-\ ee ‘ “ OI NE
-eu: y es
-NE + i À à 10 N
-: LANNONS DANS LE a TE
 
-*PEE 4 LL à 1 TES
-A" , L £ RON
 :7 4 cahier pour l'inauguration 4
 115 de ce. nouveau Reichstag %
-F0 . . . « N
 4h Il a été tiré du présent cahier treize exemplaires sur
 4 whatman ainsi distribués : À
 1 premier exemplaire de souche, exemplaire du gérant; ï
-LS p4 4 | (9 2
 0 deuxième exemplaire de souche, exemplaire de ladel ministrateur; 14
 ES. troisième exemplaire de souche, exemplaire de lim
-70 primeur; 24
 4 1 . . 4
 18 dix exemplaires d'abonnement, numérotés de 1 à 10 5
-32 exemplaires d'abonnement. 4
-7 . Le ‘ !
 :100 Tous nos exemplaires sur whatman sont numérotés
 _ à la presse et imprimés au nom du souscripteur; nos
-LA + . D . b
 C0 tirages d'exemplaires sur whatman sont rigoureuse20 EME s 2 : DA
-& ik * ment limités au nombre d'abonnements à chaque in
 41 stant souscrits; nous ne vendons point d'exemplaires
-AL SAR
 ne. sur whatman en dehors de l'abonnement: l'abonnement
 LR sur whatman à cette huilième série est de cent francs
 4 pour tous pays. } :1
@@ -274,26 +153,13 @@ ne. Les Cahiers de la Quinzaine sont composés à la main,
 7h arrondissement. na Ne
 RD CE, Lai Huphs ee ANA Dé Le des SR SENTE ESS
 
-AL TA Pa ON A A A
-L'an * ) f ! ant Ft
 di il NE V
-Ho FL HOME CENNnS
-a % | ? ; ALT R HN
 en hommage d'amitié à la mémoire de G : 110
 aa é à. oire de Gustave Canton
 :108 Bernus et Péguy "ia
 | ‘4 { ' nt
-HA 4 JE
-RAA LA
-4 en ñ FR ke
-til OCT À S pois ü f Lo 44)
 SAR | jh Ne (4e ar
 
-MONT 1 \ Polonais. — 1
-RER LL ANAL + Eat AAC Ge Go IRAN \ MERE GPA « A ANNE EE RARE Or 8 4 A A En
-
-(ee j;  d É til i ELA: AN
-eh ! 18 AU CENTRE
 ÿ Note du gérant. — De ce petit index il résulte que le
 a présent travail de Bernus paraît en plusieurs cahiers. la
 D Comme on peut le voir ci-après, ces cahiers seront 4
@@ -301,7 +167,6 @@ ne paginés à la suite. Un des principaux avantages de cette Li
 Et méthode est de simplifier les citations. Une personne Hé
 4 dès lors qui veut citer du Bernus n'a plus qu'à indiquer k
 '# le nom de l'auteur, le titre et la page. Elle n'a point #
-4e . . . . n ! ” %
 24 à indiquer le cahier, qui résulte automatiquement du
 ‘70 numéro de la page.
 à Exemple, je cite moi-même : pages 64 et 73 (cette. |
@@ -314,18 +179,14 @@ ie F soin que vous mettez à corriger vos épreuves pour ne 2]
 “ Va-t-il déjà fait ? — que dans le dernier cahier : À: 2
 a page 64, ligne 3, il faut lire : von Pfuel À L
 ‘e page 73, ligne 6, lire : von Wilamowitz-Moellendorf. il
-4 SELLER SPAS Mo “À
 5 Hélas oui, je lis de mon mieux les épreuves. Mais il 4
 4 est bien difficile de travailler quand l'auteur est à
 Mit Annecy et le metteur en pages à Paris-Suresnes. Et ”
 par une coïncidence vraiment tragique la crise de la Sa
 "498 maladie et la mort de Canton est venue pendant la
-: VE À 3 F7
 & semaine même où Bernus avait ses épreuves à corriger.
-D: :0108
 
 | A
-CHAPITRE V 4
 
 Ù La cause polonaise a contre elle un gouvernement
 
@@ -355,7 +216,6 @@ f De bonne heure, ils ont compris la force que l'on ne
 R dans cette voie, ils ont été en progressant, créant sans
 
 SAUNA À & À 4 Lt CLAIRE AL hi de: NP Û
-* $ au à F4 AU ul f Ar PE 1
 de la résistance du peuple polonais ae
 
 | cesse des sociétés nouvelles, les fédérant entre elles, |
@@ -374,7 +234,6 @@ et incessante en faveur des groupements nationaux. En \.:
 ; les Xrieg'ervereine (sociétés d'anciens soldats), conjurant
 | les Polonais de ne pas entrer dans ces associations
 ù allemandes, où l'on cultive surtout le nationalisme
-prussien. (2)
 À Chaque jour, les sociétés polonaises se font plus nombreuses et plus fortes. Le clergé a été pour beaucoup
 dans ce mouvement. Les nombreuses sociétés polo-
 
@@ -404,21 +263,14 @@ LE (2) Voyez entre autres : Gazeta Torunska, 1898, numéro 87;
 
 g Wiarus Polski, du 98 décembre 1900. Voyez aussi Bogulawsk:
 
-k 85 Jahre preussischer Regierungspolitik in Posen und Westpreussen.
-
 W Berlin, 1901, pages 53 et suivantes.
 
 4 (3) Sur ces associations, voyez l'ouvrage déjà cité : Die Polen im
 
 De Û Rheinisch-westfälischen Steinkohlen-Bezirke, et la collection du Wia-
 
-‘à rus Polski.
-
-ÉL. 120
-* |
 TOR FA il
 
-RE AUX EXACTIONS ii
 En 1901, il y avait déjà 125 associations analogues
 dans les districts de l'Ouest. La plupart de ces organi-
 ' sations portent le nom d'un saint, qui est le patron du
@@ -452,7 +304,6 @@ A faisant partie de ces associations à plus de dix mille.
 | h () Les sociétés qui comptent plus de membres sont rares. L'as- |
 | 1 sociation de Sainte-Barbe, à Bottrop, avait 410 membres en 1go1.
 |: 121
-T1
 | ‘100 pri à
 
 F de la résistance du peuple polonais
@@ -468,7 +319,6 @@ _ !  fortifier le sentiment national : des vies de Sobieski, de *
 À ' Poniatowski, de Kosciusko, etc. Chaque association est
 k en outre abonnée à des journaux polonais de l'Est, qui
 Ke contribuent à entretenir la communication avec la pro4 pagande nationale en Posnanie, en Silésie et en Prusse |
-à Occidentale. ; . |
 . "Il existe aussi des sociétés qui ont un but plus spé-
 Ke cial. A Bochum et à Oberhausen, il y a des Sokols
 | (sociétés de gymnastique). A Gerresheim, il y a même ‘4
@@ -488,10 +338,8 @@ h (luth), « Fiolek » (violette), « Dzwon » (cloche). Très 4
 ‘4 des pèlerinages à Kewlar. Dans les occasions solen- - ‘®
 ) nelles, les groupements s'invitent entre eux. Ainsi la -
 
-4 La % “à AUX EXACTIONS Li)
 ; Société de Saint-Adalbert, fêtant la commémoration de d
 | ! la consécration de son drapeau, réunit dix-sept sociétés
-16 sœurs. (I) |
 | Les Polonais ont toujours aimé les pompes brillantes, ÿ
 | À les couleurs vives, les emblèmes éclatants. Toute asso-
 | ciation a sa bannière; elle ne craindra pas de dépenser
@@ -544,7 +392,6 @@ les Polonais, ce fut l'interdiction de faire une conférence
 Le 24 août 1894, se créa à Bochum une association À
 plus générale sous le nom de « Zwiazek Polakow
 niemiezeck », c'est-à-dire « Fédération de tous les Polo- ÿ
-nais d'Allemagne ». É
 
 D Cette fédération ne s'étend qu'aux provinces non
 
@@ -578,11 +425,7 @@ Eur. Un autre s'occupe plus spécialement des assemblées
 
 ; () Voyez Wiarus Polski du 22 novembre 1898. |
 
-É À 4 iÿh i
-
-A AR NOTE A EURE
 | js | AUX EXACTIONS y
-14 À ,
 fédération des différentes associations a donné plus de
 | cohésion à tout le mouvement. Des congrès réunissent
 de temps à autre les délégués de toutes les branches
@@ -604,7 +447,6 @@ d'années les Sokols se multiplièrent. Actuellement on
 de Occidentale, mais en Haute-Silésie, en Westphalie,
 fi dans la Prusse Rhénane, à Berlin, à Breslau.
 | En 1892, ces sociétés se fédérèrent en une vaste orgaL nisation, qui tint son premier congrès en 1896. Cette '
-M fédération comptait en 1898, 37 sociétés; en 1899, 39; 1
 | en 1900, 40. (2)
 Tous les membres portent le même uniforme : chemise
 ! rouge, pantalons bouffants gris, casquette avec cocarde (
@@ -613,9 +455,6 @@ Tous les membres portent le même uniforme : chemise
 LA polonais se réunit à Posen. È
 | (2) En 1900, la Fédération comptait 2.119 membres. RS
 h (3) On trouvera une bonne photographie dans Tetzner : Die if
-}. Slawen in Deutschland, page 482. à î
-LA 125 |
-D A
 
 4 "aid de la résistance du peuple polonais 7 f
 1 j ' D'après leurs statuts, les Sokols ne s'occupent que de. k 3 l
@@ -624,7 +463,6 @@ OT gymnastique. Mais, sans aller jusqu'à dire comme cer- |
 ‘5 servir de premier groupement militaire en cas d'insur- a
 É rection, il est indéniable que ces sociétés poursuivent ;
 4 un but nettement patriotique. Et l'on ne peut que les ñ
-HU) en louer. 14
 : 1 Plus une oppression est brutale, plus la résistance cd
 ‘4 sait revêtir des formes ingénieuses. Lors de la domina- 2:
 14 tion napoléonienne, les Allemands eux-mêmes se sont
@@ -649,11 +487,8 @@ _ de Sokols, semblable au faucon, bien au-dessus de la vie ‘1
 44 tiens le poids de l'immense travail qui t'attend : la résur- 4
 14 rection de la patrie. Le zèle seul ne suflit plus aujourd'hui; 4
 4 la pensée doit devenir parole, et la parole action. “a ‘te |
-1158 D ————_———
 ‘1 (1) Cité par Wagner : Der Polenring, page 8. Ha 4
-“4 ù LA #
 
-mi” ; AUX EXACTIONS :
 + Devant ces manifestations, le gouvernement a pris
 peur. La police se montre chaque jour plus tracassière,
 les tribunaux plus sévères. En 1896, la police et, sur É
@@ -679,16 +514,12 @@ D. été dissoutes ! N'ont-elles pas toujours trouvé le moyen é
 li. ‘préparer l'indépendance de la Pologne ; c'est la « Ligue ‘
 nationale ». Jusqu'ici elle s'est surtout occupée de la
 | Pologne russe ; (3) mais il n'y a aucun doute qu'elle a
-10 (1) Voyez Ostmark, II, 1, page 4. À
 | ‘1 (2) Id., V, 4, page 40. À 4 ; #3
 | 6) Cest de cette Ligue qu'est issu le parti de la « démocratie A
 |] nationale », dont l'organe principal est le Prseglond Wszechpolski, A
 | à Léopol. Ce parti, que les éléments plus avancés accusent de clé- ÿ
 | ricalisme (voyez article de Wierny dans le Courrier Européen du ‘s
-Il "1 SR NT Ru
 
-f î , ; MERE RES
-… 4 LE WA Ÿ
 de la résistance du peuple polonais
 des ramifications dans la Pologne allemande. Ses chefs *
 
@@ -709,7 +540,6 @@ ra il se montait, en 1905, à. 302.015 francs. Ce n'est rien {
 évidemment en comparaisôn des sommes énormes que
 | recueillent les Irlandais aux Etats-Unis. Ce n'est qu'un ‘
 | commencement, mais dont pourrait sortir un jour une
-r à : . . . .
 
 à solide organisation de combat. Car dans l'intention du
 | comité de gestion, il s'agit bien de préparer la résurrection de la Pologne. (3) Les statuts qui régissent le
@@ -720,7 +550,6 @@ trésor national l'indiquent en toutes lettres.
 “4 d'un libraire polonais d'Ostrowo, Witold Leitgeber, qui
 #5 fut condamné, en 1900, par le Tribunal d'Empire à une
 5 année d'emprisonnement pour crime de haute trahison.(4)
-là
 Va 9 décembre 1904), a contribué à l'organisation de la grève scolaire
 f' de Varsovie. Les faits précis font défaut, tant nous sommes mal”
 “ renseignés sur les choses polonaises.
@@ -734,20 +563,8 @@ if aussi la revue Dla Ojczyzny, qui paraît à Paris depuis 1906. |
 47 (3) Voyez Gazeta Handlowo-Geografic:na, du 30 janvier 1go1; cité }
 1 dans Polenstimmen, page 97.
 ë (4) Voyez Massow : Polennot, pages 115 et suivantes; Ostmark,
-% ‘ V, 3, pages 28-29. * :
-ji) 128 |
-
-D “
-ie "4
-é! j
-L r
-
-F1 ÿ At
-
-L: \ y 0 0
 
 ie dial A A a hs A NS Le
-à AUX EXACTIONS À
 | La dernière création polonaise est la « Straz » (garde), À
 | vaste ligue de défense, fondée en 1905 (1) par ce même. hi
 \ M. de Koscielsky, en qui l'empereur avait naguère cru
@@ -760,7 +577,6 @@ ie dial A A a hs A NS Le
 \ trielles, une autre des luttes électorales.
 Parmi les groupes locaux, celui de Berlin paraît déjà
 assez puissant. (2) L'organisation générale est ingé-
-Î niense.
 Le pays polonais est divisé en starosties. (3) A la tête
 de chacune de ces circonscriptions est un militant, qui
 est responsable devant le comité général. Au-dessous
@@ -769,13 +585,11 @@ des starostes sont des commissaires, (4) qui sont sans
 | € Straz ». Ils doivent entre autres créer des tribunaux
 il d'arbitrage, de manière à ce que les litiges entre Polo-
 ! nais ne soient jamais portés devant la justice alle- |
-Ë mande.
 fi Il n'est pas encore possible de savoir quel succès aura |
 \ cette organisation combinée sur une si vaste échelle. |
 ' Mais la tentative est en tout cas intéressante. Ti
 Ces efforts persévérants, cette organisation pratique,
 | 4 (1) La première réunion générale eut lieu à Posen, le 18 juin 1905. |
-1 (2) Voyez Ostmark, X, 11, page 90.
 | 1 (3) La Posnanie est divisée en 40 starosties, plus une starostie 14
 | pour chacune des villes de Bromberg, Inowrazlaw, Gnesen et : |
 | Ostrowo, et quatre pour la ville de Posen. | L i
@@ -806,7 +620,6 @@ k portés à exagérer ce nombre. Müller prétend que, de ;
 Hi: le camp polonais. (1) Fircks se contentait du chiffre de |
 
 45.000; il est vrai qu'il écrivait à une époque anté- |
-x] rieure.
 de Il semble probable que le chiffre de 50.000 n'est pas
 
 É exagéré. (2) Comme preuve de cette assimilation, il y a ï
@@ -815,7 +628,6 @@ de Il semble probable que le chiffre de 50.000 n'est pas
 À € 79 enfants à noms allemands recevaient l'enseignement À
 “À religieux en polonais, parce que leurs familles ne par- l
 4 laient que cette langue. Très souvent les Allemands ont . 1
-fi à Ka: ( ») Müller : Wüll Deutschland die Ostmarken behallen oder nicht? 4
 A fi LATE s'agit, bien entendu, que du dix-neuvième siècle. Des |
 M. familles nobles allemandes ont été polonisées bien avant et ont {
 :: #1 parfois transformé leur nom. Ainsi les « von Stein » sont devenus ;
@@ -824,10 +636,7 @@ M. familles nobles allemandes ont été polonisées bien avant et ont {
 17 Wedel » des « Blonski ». ÿ x
 Ni: (3) En voici quelques exemples : Baierlein, Leitgeber, Hedinger, \
 4 ; Hermann, Klein, ne 14 Neumann. (4
-594 Qi.
 
-ME AUX EXACTIONS 4
-polonisé leurs noms, (1) soit en en slavisant lortho- qe
 , 1
 . graphe, (2) soit en les traduisant. (3) Ces transforma- 4e
 tions ont été dans beaucoup de cas l'œuvre des curés, dà
@@ -838,12 +647,10 @@ nt La
 k nalité. Le gouvernement prussien est devenu très 3
 }. sévère en cette matière et cherche à regermaniser, ou É
 | même simplement à germaniser les noms polonais. (4) È
-1 7 7 “ %
 L'exemple le plus typique de la polonisation volon- Ci
 : . taire d'Allemands est l'histoire des colons appelés PRE.
 « Bamberger ». Ce cas a été étudié de près, si bien que ”
 à l'on peut suivre les étapes de cette curieuse transfor- - Ce
-mation. (5) ' "à
 f Après la guerre avec la Suède et la peste de 1709, la %
 Posnanie était fort appauvrie et avait perdu beaucoup
 à d'habitants. Les autorités de la ville de Posen déci- 4
@@ -854,7 +661,6 @@ Posnanie était fort appauvrie et avait perdu beaucoup
 Li (1) Voyez une longue liste de noms polonisés dans l'article du 4 à
 ( docteur Koerner : Polinisierte Familiennamen : Ostmark, X, 12. de
 LA Voyez aussi Ostmark, IV, 10 : Namensveränderungen, et Massow : 1
-Ouvrage cité, pages 92-93. " 1%
 | (2) Schulz devient « Szulc », Schumann « Szuman », Schônebeck V F,
 1 « Szembeck », etc. ET
 |A (3) « Schmidt » (forgeron) devient « Kowalski » ou « Kowa-._
@@ -865,9 +671,6 @@ Ouvrage cité, pages 92-93. " 1%
 | à l'ouvrage de Bär : Die Bamberger bei Posen, sugleich ein Beitrag A
 | zur Geschichte der Polonisierungsbestrebung'en in der Provinz Posen, D
 | 4 Posen, 1882. 1 40
-à ; 131 20
-l D 1
-1 HN)
 
 J de la résistance du peuple polonais
 venaient des environs de Bamberg, et le nom de « Bamberger » fut appliqué aussi aux quelques familles venues
@@ -897,10 +700,8 @@ Fe Wladislaw, des Kaz'mierz, des Stanislaw, etc. Dans
 à . les autres villages, le changement s'est effectué déjà un
 re peu plus tôt. En 1858, à propos d'une inspection scolaire
 à à Ratai, l'inspecteur signale dans son rapport que les
-à enfants répondent beaucoup mieux en polonais qu'en
 "k allemand. Un rapport de 1867 constate que les enfants
 
-. ‘AUX EXACTIONS ! \
 lisent mal l'allemand et sans le compréndre. En 1882, ;
 les pères, qui portent presque tous des noms germa-
 | niques, protestent, parce que l'on veut apprendre à è
@@ -910,7 +711,6 @@ les pères, qui portent presque tous des noms germa-
 ‘costume pittoresque des femmes. Lors du recensement
 de 1880, tous se sont fait inscrire comme Polonais. Ils
 votent en bloc contre les candidats allemands, et la politique de germanisation n'a pas d'adversaires plus
-décidés.
 Ces faits sont très caractéristiques. Ils prouvent la
 force d'expansion des Polonais. Ils montrent surtout
 . que ceux-ci savent se faire aimer. Le gouvernement À
@@ -926,16 +726,8 @@ père, converti au catholicisme, est Allemand, que la :
 mère est Allemande et protestante, et que les deux |
 il: parents savent mal le polonais. L
 
-1! (1) Séance du 27 février 1896. {
 | Polonais. — 2 ù
 | \
-
-+4
-
-: NW f $
-
-4 . CHAPITRE VI
-PR
 
 40 Mais les Allemands à leur tour,se sont organisés. Et
 ne devant leur offensive redoutable, les Polonais doivent,
@@ -964,7 +756,6 @@ k À placé, en 1900, par celui plus court de « Deutscher Ost- ca
 É 4 l'Est). A la tête de cette organisation se trouvaient trois sul
 4 (1) « Verein zur Fôrderung des Deutschtums in den Ostmarken ». 1
 
-He AUX EXACTIONS (2
 grands propriétaires allemands de la province de Posen : de
 
 MM. Ferdinand von Hansemann, Kennemann, et le site
@@ -975,31 +766,20 @@ société « H. K. T. », et dès lors entrèrent dans le voca- 4
 bulaire politique les mots nouveaux de « hakatisme » ‘
 et « hakatiste », pour désigner les tendances les plus ‘
 
-+ LR
-
 violéntes du parti germanisateur. He
 
 L' « Ostmarkenverein » attira dès l'origine pas mal de L
 
 grands propriétaires terriens. Parmi les premiers adhé- M nt
 
-he.
-
 rents on trouve le baron d'Unruh, les comtes von der 1
-Goltz, von Alvensleben-Schoenborn, von Eulenburg-Pras- !
-
-sen, von Limburg-Stirum, Henckel von Donnersmarck. Vi
 
 Si bien qu'on accusa d'abord les organisateurs d'avoir ‘4
 avant tout en vue des intérêts conservateurs. (1) Mais il à
 
-+ CM
-
 n'en était rien, et très rapidement, la bourgeoisie, 50
 grande et petite, vint accroître le nombre des germani- 1
-à . 2 ra 2 2 } Ll
 ; sateurs organisés. La société a recruté beaucoup d'adhé- 4
-1 Le . ME 2 Ps
 i rents dans le monde universitaire. Professeurs et étu- 4
 diants sont parmi ses plus fougueux partisans. Des di
 associations d'étudiants tiennent à donner leur cotisa- : 1
@@ -1008,7 +788,6 @@ une « section locale académique » de l'Ostmarkenverein. # ‘%
 Les instituteurs et les petits fonctionnaires viennent 4
 aussi en foule. (3) XS
 
-‘à (1) Voyez Fr. Wagner : Der Polenring. Berlin, 1899. Pages 41-42. Rae
 (2) Ainsi, à Breslau, font partie de lOstmarkenverein : les ni
 É « Burschenschaften », la société universitaire de gymnastique, le LA
 | « Verein deutscher Studenten », l « Akademischer landwirtschaft- je.
@@ -1018,7 +797,6 @@ aussi en foule. (3) XS
 | députés, séance du 21 janvier 1896). CE
 | 135 1e
 
-JE a a A LH NAS, are RCA Le RU |
 | de la résistance du peuple polonais
 A la fin de la première année, la société comptait
 déjà environ 3.500 membres rien qu'en Posnanie et |
@@ -1027,8 +805,6 @@ elle fit des progrès étonnants. En juin 1903, elle avait
 30.197 membres; (1) un an après elle en avait environ
 35.000. Toutes les grandes villes de l'Allemagne ont leur }
 | section; il y en a à Berlin, Künigsberg, Stettin, Halle, |
-Magdeburg, Dresde, Hambourg, Kiel, Francfort, Heïdel- i
-berg, Mannheim, Stuttgart, Munich, Strasbourg, etc. .
 ( Les femmes font preuve de la même ardeur que les |
 hommes. Dans beaucoup d'endroits, elles brodent les |
 | drapeaux des sections. (2) Ne pouvant faire partie de
@@ -1047,14 +823,9 @@ Fe Après lecture du procès-verbal, on s'occupe des questions
 | administratives et l'on reçoit les membres nouveaux.
 14 Ensuite un membre fait une conférence sur un sujet
 #
-(1) A savoir : 5.302 en Posnanie, 6.023 en Prusse Occidentale, û
 Nu. 5.110 en Silésie, 1.750 en Prusse Orientale, et 11.992 dans le reste
 Re de l'Empire. Ù
-(2) Voyez Ostmark, I, 4. |
-Ce (3) Id. id. |
-k j
 
-4 AUX EXACTIONS a
 touchant la question polonaise. La partie officielle se
 termine par les classiques « hoch ! » en l'honneur de le
 ' l'empereur. D''ordinaire les membres restent encore x
@@ -1067,7 +838,6 @@ troupe, avec fifres et tambours. j
 | Parfois ces fêtes ont un caractère plus général. Ainsi,
 en juin 1900, M. de Tiedemann organisa chez lui, dans \
 son domaine de Seeheim, un « deutscher Tag » (mot à
-mot, journée allemande), auquel participèrent environ
 . 1.500 invités. Les sections de la Posnanie, de la Prusse
 Occidentale, même de la Silésie, de la Poméranie et \
 } de Berlin y envoyèrent des délégués. Des musiques
@@ -1081,11 +851,9 @@ l'A augmente le nombre des adhérents. (2) La société se }
 | des brochures à des milliers d'exemplaires. (3) Les tl
 | titres en sont bien suggestifs : Le capital allemand et le ‘à
 Polonisme, Le petit livre de Sedan, L' Allemagne veut- ll
-es
 |} (1) Voyez Ostmark, VII, 7. k
 I (2) Id., II, 10, pages 113 et suivantes. fl
 | ù (3) Id. I, 1, page 4. :
-4 137 Polonais. — 2. L
 
 20 de la résistance du peuple po onais di M]
 AR elle conserver les Marches de l'Est où non? En 1992 +
@@ -1116,10 +884,6 @@ Ne (1) La Posener Zeitung, principal organe libéral de la Posnanie, \
 BA. conciliation, par M. Goldbeck, #dont les sentiments hakatistes F
 De. étaient connus. Voyez Massow : Ouvrage cité, page 253, puis 302
 Der: et suivantes. j
-‘740 €) Voyez Ostmark, IV, 2, page 14. j
-À] < (3) Id., IL, 10, pages 73-74, et V, 1, page 3. QUE
-dt. \ Hd
-: THIN . | . L Ai a
 
 HE | AUX EXACTIONS ù ne
 naise et publie des extraits soigneusement choisis des #
@@ -1146,14 +910,8 @@ V4 fonds spécial pour permettre à de jeunes ouvriers ou |
 14 noise. (5) Il recommande les maisons de commerce alle- QU.
 mandes, ce qui est une manière de boycotter le com- K
 merce polonais. Par des subventions à des acheteurs j15
-(1) Polenstimmen : Eine Sammlung von Aeusserungen der pol- A
-4 nischen Presse. Berlin, 1902. DR
-€) Voyez Ostmark, I, 1, page 6. Re
 | (3) Id., VI, 4 : Deutsche Lehrlinge für den Osten. Ur
 | (4) Id., I, 5, page 18. “1
-j : (5) Id., L, 1, page 7, et I, 2, page 9. ON
-[ | x
-À + ë
 
 de la résistance du peuple polonais ,
 germaniques, il enrpêche même pariois qu'un magasin #
@@ -1182,19 +940,13 @@ L'Ositmarkenverein est soutenu par deux autres asso-
 ; ciations nationalistes, l« Allgemeiner deutscher Schul- |
 verein », qui s'occupe de la propagation de la langue
 j allemande, (4) et l' « Alldeutscher Verband ». Cette der-
-À (1) Voyez Ostmark, I, 1, page 6. k
-(2) Id., IX, 12, Aufruf. \
-ù (3) Id., VI, 1, page 6. SLA à
 js (4) Voyez son organe périodique : Das Handbuch des Deutschtums 4
-à im Auslande.
 
-4 AUX EXACTIONS ji
 | nière ligue, la plus agressivement chauvine que nous 3
 A connaissions, a des prétentions autrement grandes que |
 notre pauvre « Ligue des patriotes ». C'est l'association
 h impérialiste par excellence. (r) Dans la déclaration de #
 44 principes qui se trouve en tête de toutes les brochures
-We ., LA .
 dE publiées par son comité, on peut lire ces mots : « Le. . 14
 ji « peuple alleman& est un peuple de maîtres (ein HerrenLil « volk) ; comme tel il doit être considéré et respecté par
 « tous les autres peuples, partout, sur toute la terre. »
@@ -1208,7 +960,6 @@ fi maisons d'orphelins en Posnanie. Il ne s'agit pas, bien
 1} entendu, d'orphelins polonais, mais d'orphelins alle-
 | 1 mands de l'Ouest à transplanter dans la province de
 | 1 Posen. (4) Cette alliance de la germanisation et de la è
-1 |
 | {
 | IN (1) On aurait tout intérêt, en France, à mieux connaître cette :
 | 1h association aux prétentions insatiables, qui a joué un rôle assez
@@ -1223,14 +974,10 @@ j considérable dans le conflit marocain. Elle s'occupe activement de
 | Docteur Reissmann-Grone : Die slatwische Gefahr in der Ostmark, |
 | | 1899. Rappelons que cest une section de cette société qui a publié I
 : [à louvrage déjà cité sur les Polonais du bassin rhéno-westphalien. |
-I : (3) Voyez Petzet : Ouvrage cité, pages 66-67. ' ;
 | (à (4) Voyez Petzet : Ouvrage cité, pages 67-68, et Ostmark, X, 12 de
-À page 101. it
-on 1)
 
 0 ia de la résistance du peuple polonais il
 hi charité chrétienne ne peut qu'être agréable au Dieu des
-E % armées. k Ù
 ‘1 Il est inutile de dire que l''Ostmarkenvereiïn est bien
 à 4 en haut lieu. Les ministres le comblent d'éloges du haut
 0 | de la tribune et l'empereur lui fait adresser des télé-
@@ -1241,7 +988,6 @@ L 4! elle déclare n'avoir aucun fanatisme, ne vouloir nulle
 : ment l'écrasement de la nationalité polonaise. « Seu-
 ‘4 lement, ajoute un de ses défenseurs, nous sommes
 1 forcés de repousser l'élément polonais du sol et du ter1 rain en danger. » (2) Point n'est besoin de pareils naïfs
-V4 aveux.
 ni - Pour tout homme impartial, l'Association des Mar12 ches de l'Est, de par son but même, ne peut être
 : ‘M qu'intolérante et oppressive; elle y est condamnée.
 ni Fondée pour la guerre, elle a contribué dans une large
@@ -1256,11 +1002,7 @@ Le f majorité du Reichstag, dans la presse comme dans la litté-
 M rature et l'histoire, retentit, du Rhin à la Wartha, sous le
 4 { signe H. K. T., le cri unanime : Crucifiez, détruisez, anni-
 (70 hilez la nation polonaise récalcitrante... On a créé un véri1 (n) Voyez Temps du 19 novembre 1904. 3 à
-1 , : (2) Massow : Ouvrage cité, page 248. ' 4 Re
-: 08 nx]
 NN 4 AL dE an me
-
-l ren 14 NY PUS Ne
 
 Lu table enfer dantesque pour deux ou trois millions de : 11 1
 sujets, et à l'entrée on a mis l'inscription : Poloni! Lasciate 1208 ne
@@ -1269,8 +1011,6 @@ Polonais, il lui serre la gorge, lui arrache la langue et ré- 4
 clame encore de l'affection. fi > ‘1
 L'association hakatiste se trouva blessée par ces 14
 paroles, et pour bien prouver qu'elles étaient menson- ©
-
-. Et 4 . “i on
 
 gères, elle intenta un procès à l'auteur, qui fut con- : 40 ;
 damné à 300 marks d'amende! (1) à ni
@@ -1291,7 +1031,6 @@ Gdanska qu'il n'appartient nullement à la Société, qu'il D:
 n'a fait que boire un verre de bière dans son local, que À a
 
 F du reste les tendances des hakatistes lui sont anti- 0
-_ pathiques. (5) ù 10)
 Si auparavant les rapports entre Polonais et Alle- 0
 
 mands étaient déjà tendus, la création de l'Ostmarken- ik À
@@ -1303,8 +1042,6 @@ mands étaient déjà tendus, la création de l'Ostmarken- ik À
 | (G) Voyez par exemple Gazeta Gdanska, 1897, numéro 99. PE: h {
 (4) Voyez les extraits de la Gazeta Grudzionska cités par Wagner: à ‘4
 g. Der Polenring, pages 65 et 66. Voyez aussi Ostmark, Il, 10, page 80, f \o xl
-q 65) Voyez Ostmark, I, 5, page 38. ‘& "
-Ti : 0
 
 ñ de la résistance du peuple' polonais
 
@@ -1352,17 +1089,9 @@ l'Empereur, prêche sans même nommer Guillaume. Il
 
 } d'Ostrowo, dont la majorité est polonaise, refuse de
 
-} . .
-
 fe voter une subvention pour un monument de Guillaume
 
 #
-
-1 ' () Voyez Kietz : Ceterum censeo, page 69.
-
-4 (2) Voyez Lech, 1898, numéro 192.
-
-\ 4 (3) Goniec Wielkopolski, 1898, numéro 144.
 
 11e ° (4) Voyez l'article de l'Orendownik cité par Wagner : Polenring,
 
@@ -1376,16 +1105,8 @@ DA du 15 janvier 1901; Dziennik Kujawski du 18 janvier 1901. |
 
 dt (7) Numéro du 31 janvier 1go01.
 
-Bi (8) Voyez Peizet : Ouvrage cité, page 36. ;
-
-M 144
-
-T7 L … e re
-
-a Le A do Es a A
 | 5 ee a AR GE AL OEM CRM A EEE A PQ A À EUR
 | (Qi Dpt 4h AH pas Ho CAEN ANR f LATTAUX AU }
-4 REA AUX EXACTIONS
 Premier. (1) On ose ce qu'on n'avait jamais osé. Un
 comte polonais hisse sur son château un drapeau avec
 ‘ l'inscription : « Mort aux Allemands ». (2) Les conûlits
@@ -1404,16 +1125,12 @@ polémique d'un peuple opprimé ne peut pas toujours
 garder le ton de dignité qu'on aimerait à lui voir
 conserver. (8) Les airs pudibonds que prennent les
 Allemands en citant ces articles sont un peu ridi- ;
-cules. | Ù
 Du côté allemand, ce n'est pas seulement le ton de la
-Î
 |
 | ERA" :
 | (1) Voyez Ostmark, IV, 11, page 91.
 | (2) Voyez Petzet : Ouvrage cité, page 22.
 | G) Voyez Schlesische Zeitung, 27 juin 1897. PARU
-(4) Voyez Petzet : Ouvrage cité, page 22.
-(5) Voyez Posener Tageblatt, 6 septembre 1900. j
 | (6) Voyez Gazeta Grudzionska, premier mars 1899; Gazeta
 | Gdanska, 18 octobre et 27 novembre 1900; Dziennik Berlinski,
 | 23 avril 1901; Wiarus Polski, 6 août 1go1, etc.
@@ -1424,11 +1141,7 @@ avec leurs poules et leurs cochons. Voyez aussi la description bur- j
 | lesque d'un hakatiste dans le Xatolik du 27 janvier 1900, ainsi que
 Particle violent des Dziennik Polski du 25 mai 1897. $
 | d
-145 Polonais. — 3 Ë
-4 4 À
-mhei À » na) +
 
-LEA ARE SCA LENNERE #50 SRI PS AO OU TN ES
 F4 de la résistance du peuple polonais Faut TE
 M à Ye presse qui est haïneux, (1) ce sont les actes des auto- ‘|
 1° rités qui deviennent de plus en plus... russes. 7
@@ -1446,13 +1159,11 @@ Ne. réjouissances de commande, de ces fêtes imposées, de …
 4 termes trop vifs de la Commission de colonisation.
 el Malheur à qui proteste trop fort contre l'Ostmarken- L
 + Me verein. Ce délit coûte, en 1901, 35 marks d'amende àla
-3 Katolische Volksseitung, organe catholique allemand. ;
 :410 Quand il s'agit d'un journal polonais, les amendes
 14 sont beaucoup plus fortes; ce détail ne manque pas de Î
 L saveur. Un article contre l'Association des Marches de
 140 l'Est coûte au Xuryer Poznanski 500 marks. Pour le
 4 même crime, le rédacteur du Goniec Wielkopolski,
-* À
 PR (à) La Kreuzseitung (15 janvier 1896) part en guerre parce que 1
 Due les programmes imprimés de concerts donnés à Posen comportent
 #4 ES une traduction polonaise. ER
@@ -1461,16 +1172,10 @@ Es polonais », la Rheinisch-westfälische Zeitung écrit: « En Allemagne,
 RS il n'y a pas de peuple polonais. Le peuple polonais a cessé d'exisRe ter avec l'année 1795, car là où il n'y a pas d'Etat, il nyapasnon
 w i plus de peuple. » Es
 ‘a (2) Voyez Ostmark, IL, 2, page 13. LUS
-pa (3) Id., I, 6, pages 41-42. SAN
-SARA te Ÿ %
 E tt LA + ti
-É 14 e +y x
-ANA IR EREN s4n- Vrl Tr putes
 
 LEE nos D LUE don SE GLS
-3h AUX EXACTIONS : \
 | Agé de vingt et un ans, est condamné, en mai 1902, à ÿ
-à 1.500 marks d'amende. (1)
 Tout membre de l''Ostmarkenverein a le droit d'in- 4
 \ tenter un procès, pour injure personnelle, à un Polonais f
 qui a mal parlé de la puissante société. C'est ce qui l
@@ -1488,7 +1193,6 @@ Pr s'agissait d'une lettre privée, qu'il ne connaissait pas <
 De M. de V..., qu'il ne l'avait pas nommé, il fut condamné
 | le 21 septembre 1897, par le tribunal de Preussisch- à
 M Stargart à deux mois de prison, et son appel fut
-M rejeté. (2) À
 | Un fait singulièrement grave, c'est que beaucoup de $
 * juges font partie de l'Ostmarkenverein. Comment, dans
 ‘ un procès entre un membre de cette société et un Polo- 1
@@ -1497,9 +1201,7 @@ h nais, le juge pourra-t-il être impartial? N'est-ce pas la ;
 JU puisse à la fois être juge et partie? C'est ce que déve- ‘11
 | loppa le député Mizerski à la Chambre des députés *
 | prussienne, dans la séance du 17 février 1902. Le : 14
-1 () Voyez Ostmark, VII, 5-6, page 38. 1%
 2 (2) Voyez Breslauer Zeitung, 5 janvier 1898, et Ostmark, II, 1, |
-1 page 8. pe ; :ô
 
 4 de la résistance du peuple polonais
 
@@ -1525,8 +1227,6 @@ F Quelques jugements feront encore mieux voir quelle
 
 D ; avait blâmé la prière allemande imposée aux en-
 
-a fants. (1)
-
 Fe Par contre, le rédacteur Nowicki, à Ostrowo, est
 
 4 condamné à 100 marks d'amende pour avoir écrit dans.
@@ -1536,8 +1236,6 @@ Fe Par contre, le rédacteur Nowicki, à Ostrowo, est
 É allemand avait la « fureur de germanisation ». (2)
 
 ï à Toute manifestation polonaise expose à de sévères
-
-\ punitions. 4
 
 6 Le président de la société industrielle catholique de
 
@@ -1555,20 +1253,8 @@ Fe Par contre, le rédacteur Nowicki, à Ostrowo, est
 
 # La même amende est infligée à un ouvrier du nomde .
 
-4 © (1) Voyez Ostmark, II, 1, pages 4-5. CR
-
-*à À (2) Id., II, 3, page 23. V
-
-L: G) Id., II, 6, page 43. Me, è pa :
-
 1e (4) Id., IV, 12, page 104. Les considérants du jugement sont sin- |
 
-143 gulièrement suggestifs. |
-
-2, ” 6) Id. I, 8, page 67. : i nt
-(M ; soil Ru
-
-1 77 AUX EXACTIONS FA
 Stiller, qui a osé orthographier son nom à la polonaise | À
 
 | et écrire « Sztyller ». (1) : a
@@ -1589,8 +1275,6 @@ Le verdict dont nous venons de parler est très d
 
 ” prussien. En voici un qui a une couleur locale plutôt A
 
-russe. . |
-
 Le 15 novembre 1905, le tribunal d'Empire rejette le ‘ie
 
 4 pourvoi de treize jeunes gens de Gleiwitz (Haute- °
@@ -1605,14 +1289,6 @@ l'A dans une réunion secrète, c'est-à-dire dans un lieu privé, We
 LA entre gens de même opinion. Ces chants sont donc à
 | interdits non quant à leur effet, mais pour eux-mêmes; 4
 leurs paroles ou leur mélodie sont punissables « en soi ». FT 4
-
-À (1) Voyez Ostmark, IL, 2, page 15. ‘ “à
-
-(4 (2) Id., IL, 2, page 15. Ji:
-
-À (3) Id., IX, 11, page 102. HA
-
-L (®) Id., X, 12, page 97, et Temps, 18 novembre 1905. 410
 
 1e de la résistance du peuple polonais " a. dé si
 Enr Cette opinion philosophique ou juridique est si caracté- F0
@@ -1636,16 +1312,7 @@ De après, dans un discours électoral, il rappela l'incident A
 “t 200 marks d'amende. (1) On pourrait faire de ceci une :
 Re jolie fable à morale politique : « Le député polonais et Î
 1 D, les chanteurs reconnaissants. » 4
-LI 4
-14 | cu
-{ À (es) Voyez Ostmark, V, 15, +30
-to 19, ht 41 44
 
-(y: À h 1 1
-h f KR
-h Us.
-y
-{ . CHAPITRE VII A j
 | | Tous ces jugements de tribunaux sont importants 1
 | comme symptômes d'un état d'esprit; ils sont graves en À 11
 LL tant que manifestations d'un état moral particulier. A ne
@@ -1654,7 +1321,6 @@ Mais pratiquement, ils sont presque négligeables. Ce *
 : n'est pas dans les prétoires que se livre la vraie bataille, ï ‘f
 + celle qui décidera de l'avenir prochain de la nation P
 “ polonaise. L'issue du combat dépend avant tout des 10
-4: FAC » . . . "à
 M conditions économiques des provinces orientales. Les (a
 u Allemands l'ont compris sur le tard. Aussi se sont-ils 1
 _ mis fiévreusement au travail, compulsant les stalis- %
@@ -1667,20 +1333,11 @@ M tendent au même but : augmenter le nombre des Alle- 2488
 W  nais formeront une majorité compacte, il n'y aura pas 11
 moyen de les germaniser. ne
 
-\ de
 ‘4 Il s'agit donc en premier lieu de faire venir un N
 " nombre considérable d'immigrants allemands dans l'Est. "0
 | _ Ce n'est pas chose facile, car rien n'attire l'Allemand de MR
 | ke . « . ÿN
 IW l'Ouest dans les provinces orientales. Celles-ci, excep- A
-ne 4e
-D 151 : 14
-. 10 L |:
-40 D NOTE
-
-Î NUS A | Chi
-
-SON AL LL Lu
 
 de la résistance du peuple polonais du.
 
@@ -1739,13 +1396,9 @@ D provinces occidentales. La population est habituée à se k
 1 (1) Das Forstwesen von Westpreussen. Voyez Vallentin : Ouvrage L
 
 71008 cité, pages 34 et suivantes. |
-“4 (2) Lengerke : Die Provinz Preussen in landwirtschaftlicher
-
-14 Beziehung. ,
 
 ne
 
-ds su AUX EXACTIONS fi
 4 passer de tout confort. Dans beaucoup de grands
 domaines, il n'y a ni lits ni même de couvertures pour
 
@@ -1774,14 +1427,10 @@ l système de canaux. (3) Il faut, en outre, pour que les
 L Allemands se sentent chez eux dans les villes poloVA naises, créer des moyens de distraction et d'instruction
 \ _ nécessaires. A ce point de vue, on a déjà beaucoup fait !
 Ni dans le cours des dernières années.
-LAN RERRNRESSEr
 ; (1) Voyez Vallentin : Ouvrage cité, page fo. de
-1e ÿ (2) Voyez Massow : Polennot, chapitre x1v.
-‘4 G) Voyez Arthur Dix : Die Eisenbahn-Verkehrscerhältnisse in den }
 hi) { Ostprovinzen. Dansig, 1901. — Voyez aussi Ostmark, I, 11: Der
 (4 Grosschiffahrtsweg Berlin-Stettin und die wirtschaftliche Hebung des
 ‘1 Ostens ; et id., III, 12 : Das Verkehrsbedürfniss der Ostmarken. #
-iù 153 Polonais. — 3.
 
 2118 de la résistance du peuple polonais 7 7
 44 Il y avait déjà un théâtre allemand à Posen; on en a dE
@@ -1796,28 +1445,22 @@ SU fondé des bibliothèques populaires. À Posen, on a créé '
 4 déjà très riche. Grâce à la réclame faite par l''Ostmark ) kenverein, (2) les dons affluent sans cesse de toutes
 1 les parties de l'Allemagne. Le grand-duc de Saxex _ Weimar envoie un grand stock de livres; la biblio-
 # thèque de Breslau fait don de tous ses doublets.
-b En 1898, une somme de 400.000 marks, élevée en 1902
 1 au chiffre d'un million, est mise à la disposition du
 h président de la province de Posen, pour fonder des bi- |
 % bliothèques, créer des locaux de réunion, en un mot |
 L: : pour soutenir par des créations analogues la cause |
 ‘à allemande, sans qu'il ait à rendre compte de ses dé- |
-‘à penses au Landtag. | É
 + On crée de nouveaux établissements d'instruction.
 K En 1898 s'ouvre à Posen une école pour jeunes filles. (3)
 À En 1903, on inaugure dans cette même ville une « Aca- .
-“4 démie impériale », sorte d'école d'études supérieures, d
 L | qui ne prépare cependant pas aux examens. (4) Car les
-@) Ostmark, IL, 5. 4
 È k (2) Voyez son appel dans Ostmark, II, 1. "
 Er G) « Gewerbe-und Haushaltungsschule. » En 1898, elle compte 1
 : déjà 220 élèves. Voyez professeur H. Albrecht : Handbuch der
-À soctalen Wohlfahrtspflege in Deutschland. Berlin, 1902. |
 Dr. (4) Voyez une critique assez acerbe de cette création dans le À
 # Reichsbote, 1903, numéro 268.
 12 4
 
-PU | AUX EXACTIONS A { à
 Allemands ne veulent pas entendre parler d'une Uni
 r' versité régulière à Posen, qui deviendrait très vite le à
 lieu de rassemblement des étudiants polonais. (1) Par ‘à
@@ -1835,7 +1478,6 @@ l'Allemagne a autrefois ouvert à la civilisation, la nou- 1
 | | velle école technique sera comme une tour solide d'où U
 | la science allemande et l'esprit allemand se répandront ti k
 dans le pays, pour le stimuler, le faire progresser et le Fe
-féconder ». (3) * ! K
 … Des sociétés spéciales s'associent aux efforts de l'Ost- x
 a markenverein pour venir en aide aux ouvriers agricoles 1
 1 allemands. (4) Il existe en outre à Posen une « Asso- |
@@ -1844,7 +1486,6 @@ a markenverein pour venir en aide aux ouvriers agricoles 1
 4 Évidemment l'introduction de l'industrie dans les el
 ï provinces polonaises serait très favorable à une vaste 1
 1 immigration allemande. Mais, comme nous l'avons déjà 4
-1 (1) Voyez Massow : Ouvrage cité, pages 329-330. Petzet : Ouvrage 3
 lu cité, page 43. Ostmark, VII, 10, page 63. L Pi
 | L (2) Voyez Ostmark, IL, 6. if
 14 (3) Traduction du Temps, 8 octobre 1904. to
@@ -1852,14 +1493,12 @@ lu cité, page 43. Ostmark, VII, 10, page 63. L Pi
 |A Lande », dont l'organe est Das Land, publié par Sohnrey, un spé- NT
 le cialiste pour les questions de colonisation intérieure. ie
 | k 65) Voyez Temps, 17 janvier 1905, rubrique La germanisation de la ri
-À Pologne. À a
 
 1 de la résistance du peuple polonais |
 ; dit, la Posnanie et la Prusse Occidentale sont des pays h
 agricoles, qui ne se prêtent pas à l'industrie. L' « indus- {
 trialisation de l'Est », que prêchent certains écono- ;
 h mistes allemands, (1) ne semble pas avoir de grandes k
-, chances. ë
 l En attendant, les chefs du mouvement hakatiste ré- L
 d clament une augmentation des garnisons en Posna- à
 ; nie. (2) Il s'agit naturellement de garnisons allemandes,
@@ -1881,22 +1520,12 @@ e. La conquête du sol est un des points principaux du |
 Ê pour y établir des Allemands, tel avait déjà été le but À
 - de Flottwell. Seulement le gouvernement prussien a 1
 : longtemps commis l'erreur de-chercher à maintenir en
-4 (1) Voyez Dix : Die Vôlkerwanderung von 1900, pages 78-85. — )
-k Bleicken : Der Handel auf altruistischer Grundlage, Leipzig. = ;
-dent Franz Oppenheimer : Die Siedlungsgenossenschaft. Leip- ;
-o $ (2) Voves Massow : Ouvrage cité, pages 275-282. Muller : Ouvrage |
-y cité, page 93. |
-é
 
-Ki AUX EXACTIONS À
-LV NA
 Ki Posnanie le régime de la grande propriété terrienne, (1)
 qui s'est développée au détriment de la petite pro- |
-priété. (2)
 Or, la grande propriété, telle qu'elle existe dans l'Est, 4)
 14 est un obstacle à la germanisation, bien que la plupart
 A des grands domaines soient entre les mains d'Alle- s
-x mands. /
 | D'après la statistique du Dr. Kirstein pour 1899, 32 0/0 |
 seulement appartenaient à des Slaves. Mais l'influence
 des grands propriétaires allemands est minime, parce à
@@ -1908,7 +1537,6 @@ qui réclament un moindre salaire que les Allemands.
 | On sait qu'ils sont même forcés de s'adresser pour la
 Ë moisson à des travailleurs de la Pologne russe et de la
 (4 Galicie, auxquels la frontière, fermée par Bismarck en
-fi! 2 |
 l 1885, a dû être de nouveau ouverte en 1890 par le |
 | 1 chancelier de Caprivi. il
 | Partout les ouvriers agricoles allemands diminuent, |
@@ -1918,24 +1546,15 @@ l ensuite viennent la Silésie, la Prusse Occidentale et la Prusse |
 14 Orientale. Voyez Vallentin : Ouvrage cité, pages 18 et suivantes.
 À (2) De 1816 à 1880, le nombre des habitations paysannes est à
 1 tombé de 48.151 à 39.383, alors que la population ne cessait de s'ac- ‘
-14 croître. Voyez Petzet : Ouvrage cité, page 52. )
 16 (3) Les propriétaires polonais, au contraire, gèrent en général et
 | eux-mêmes leurs propriétés. En 1889, sur 74 propriétaires alle- ko
 14 mands de la Posnanie, 47 seulement (possédant en tout 158.996 hec- Dr
 1 tares) demeuraient dans la province, tandis que les 27 autres )
 LA (représentant 161.631 hectares) vivaient autre part. Des 75 grands “a
-h. propriétaires polonais, 68 (représentant 262.454 hectares) adminis- 1
-“ traient eux-mêmes leurs terres. Voyez Petzet : Ouvrage cité; ‘à
-14 page 52. v
-ah. x:
-1 157 \4
-W. #
 
 140 de la résistance du peuple polonais FOIE
-La) ' PCA EAN
 ‘ dans les cRittergüter » aussi bien que dans les domaines à à.
 \ de la couronne. Ainsi, dans le domaine de Krotoschin Ri
-1 _ il y avait en 1871, 316 Allemands; en 1895, on n'en
 1 compte plus que 181.
 1 Le même phénomène se produit dans les grands do4 maines affermés : dans ceux du prince de Reuss, dans
 Di ceux du duc de Saxe-Cobourg-Gotha, à Samter; dans
@@ -1957,15 +1576,9 @@ _ mains de seulement 2.498 personnes. (2) Que de terrain 4
 _ Les grands domaines sont aussi proportionnellement |
 4 moins productifs que les petites propriétés. Il y a une
 _  déperdition énorme, qui fait tort à la cause alle__  mande. (3) Beaucoup de grands domaines sont grevés |
-Ë E d'hypothèques. : pi
 214 Les possesseurs de biens équestres (Rittergüter) ont, 4
-24e (r) Voyez Dix : Ouvrage cité, page 58. 1Q
-1 (2) Id., page 56. di
-(3) I., page 68. % é 4
 1100 124
-‘ ni + L jé Hi 44
 
-I RO ET RATE EX ACTIONS TV ACER AU LIRE ENIES
 À il est vrai, des privilèges politiques, grâce auxquels les” k
 Allemands conservent la majorité au Landtag provin- ÿ
 cial et dans plusieurs assemblées de cercle (Kreistage) à
@@ -1974,7 +1587,6 @@ k comparaison du détriment occasionné par le régime ‘
 (1 terrien au progrès du germanisme. Aussi le gouverneK : ment prussien a-til changé de tactique. Il s'efforce Ft
 l maintenant d'acheter des grandes propriétés, pour les
 | morceler et y établir le plus grand nombre possible Fa
-d'agriculteurs allemands.
 Il n'était guère possible de suivre complètement À
 l'exemple de la Russie, qui, par des lois d'exception, a j
 cherché à développer dans l'Ouest la propriété russe au
@@ -1987,24 +1599,16 @@ VA lions de marks, pour acheter des terres en Posnanie {
 14 et en Prusse Occidentale et y établir des colons alle- ns f
 1 mands. (2) En 1898, la Chambre des députés accorda ;
 À (1) Voyez Kowalewsky : {nstitutions politiques de la Russie, cha- '
-M
-\l .  pitre x. * À
 L (2) Le texte de la loi est reproduit dans l'ouvrage de Sohnrey, Ut
 | pages 1-4. He
 À A consulter, sur cette importante question de la colonisation : À
-À Massow : Ouvrage cité, chapitre xvi : Die Ansiedlungspolitik. — 3
-LL ‘ Lucke : Die deutschen Ansiedelungen in Westpreussen und Posen.
 u. Berlin, 1891. — Sering : Die innere Kolonisation im ôstlichen L
 | Deutschland. Leipzig, 1803. — Denkschriften über die Ausführung CA
 4 des Gesetzes vom 26 April 1886, betreffend die Befürderung deutscher À à
-1 Ansiedelungen in den Provinsen Westpreussen und Posen für die a
 L } Jahre 1886-1898, dem preussischen Landtage in den Jahren 1887- 1
 1 1899 zur Kenntnissnahme vorgelegt. (Ce sont les rapports officiels.) 5
-4 — Sohnrey : Zine Wanderfahrt durch die deutschen Ansiedlungs- h
 | L gebiete in Posen und Westpreussen. Berlin, 1897 (avec deux cartes #
 | MR 1 WP
-
-AE OIL PO TOR ROME
 
 400 de la résistance du peuple polonais L'ART
 
@@ -2048,24 +1652,11 @@ k a à choisir et à acheter les terrains, à les administrer
 
 a construire les bâtiments nécessaires, à choisir les colons
 
-r': L . à . :
-
 F2 et à les établir, enfin à surveiller les nouveaux habi-
 
-Ë $ . .
 es : qui donnent les résultats jusqu'en 1896). — Docteur Gehre : Die ‘ 1
 
-fie neue deutsche Kolonisation in Posen und Westpreussen. Grossenhain,
-
-FF 1899. — Docteur E. Stumpfe : Polenfrage und Ansiedlungs-Kommis-
-
 a sion. Berlin, 1902 (avec une bonne carte). — Langhans : Xarte der
-
-k Tâtigkeit der Ansiedlungskommission für die Provinzen West-
-
-ï preussen und Posen 1886-1903.— E. Herr : Neue Bahnen der Polen-
-
-54 politik. Berlin, 1903. j
 
 te * ( ») Les propriétés étant vendues et non données, Etat ne perd
 
@@ -2080,11 +1671,7 @@ Ne (2) Au début, le président était le gouverneur de la Posnanie, "
 12 comte de Zedlitz. Mais on profita de sa nomination au ministère
 
 ‘4 de l'instruction publique pour donner à la commission un présine dent particulier,
-th .
 
-mt
-
-à | AUX EXACTIONS 4
 | tants, qu'elle ne perd jamais de vue, même lorsqu'ils k
 ont acquitté leurs dettes envers elle. fi
 
@@ -2106,7 +1693,6 @@ force la population allemande là où elle semble faiblir. ie
 
 On tend aussi à séparer les Polonais prussiens de leurs ge
 frères de la Pologne russe par une solide barrière ger- Re
-‘4 manique. :
 Al Naïurellement, il y a un plus grand avantage à acqué- +1
 1 rir des propriétés polonaises. Mais la commission est \ù
 4 souvent obligée d'acheter à des Allemands, soit pour 6
@@ -2116,8 +1702,6 @@ Les acquisitions faites par le gouvernement sont déjà ñ
 considérables. À la fin de l'année 1808, il avait acheté : (2) Fe 4
 V ; dans le district de Bromberg .......... 3,48 oo R
 | — — Pose 2e a 900) à NS
-k re — Dani 0,69 0/0 14
-.— — Marienwerder ...... 1,60 o/o JU
 
 û de la surface totale. 4
 À Lu Vos Stumpfe : Ouvrage cité, pages 227-234; voir aussi les è k
@@ -2128,7 +1712,6 @@ k (2) Sur le détail des acquisitions à cette date, voyez Gehre: :
 « if de la résistance du peuple polonais LP
 U : Jusqu'en 1900, la commission avait acheté 64.400 hec- ch
 : fi tares (soit 43,7 0/0) à des Allemands et 83.035 hectares |
-D. (soit 56.3 o/o) à des Polonais. (1) !
 4 Avant la terrible loi de 1904, elle avait à lutter contre |
 "à de grandes difficultés. Grâce à la concurrence que lui Î
 : faisaient les sociétés polonaises, le prix des terrains k
@@ -2158,13 +1741,7 @@ Ee. sont convertis en prés. Les routes sont empierrées; des
 1 s'agit de construire les bâtiments nécessaires, fermes,
 
 à (&) De 1886 à fin septembre 1903, la commission a acquis ri
-; nc 210.497 hectares, dont 150.061 en Posnanie et 60.436 en Prusse Occi- # 4
 
-_ 1 dentale. Re
-
-14 TA 140
-
-_ His AUX EXACTIONS : 5
 (| granges, étables, laiteries, etc., ou tout au moins de À
 réparer ceux qui existent. Ici aussi on a tâtonné avant ki
 
@@ -2212,7 +1789,6 @@ Le) Le domaine équestre de Tarnowo (cercle de Posen- |
 \ 2,07 hectares furent pris pour les places, chemins, etc.; l
 89,41 hectares furent réservés en cas de besoin. Ÿ
 S Le reste fut partagé en lots pour les colons, à Î
-ÿ savoir :
 4 6 propriétés de 30 à 25 hectares, 40 de 25 à 13 hec218 tares, 15 de 13 à 4 hectares, 3 au-dessous de 4 hectares.
 3 Les lots préparés et cadastrés, il s'agit de faire \
 6 venir les colons. Pour les attirer, la commission fait de ÿ
@@ -2232,14 +1808,10 @@ $ dit que, pour aller dans l'Est, il fallait s'armer de fusils
 À Holstein. Elle se sert aussi de la presse et fait éditer .
 $ des brochures de propagande. (2) Au bout de peu de
 4 ÿ temps déjà, elle reçut plus d'offres qu'elle ne pouvait
-6 (1) Voyez Stumpfe : Ouvrage cité, page 195. ; ÿ
-4 (2) Wo ist Land für deutsche Bauern. Berlin, 1905. 1
-à V 164 :
 
 | | 0
 
 al RM MES AA di
-: AUX EXACTIONS Ni
 ti en accepter. (1) En 1898, il y eut 3.191 demandes j
 d'achat; la commission ne put établir que 605 familles. ‘.
 On peut donc faire un choix parmi les paysans qui 4
@@ -2255,7 +1827,6 @@ Brandebourgeois reste sec, assez égoïste et très individualiste. Le Westphali
 patience et de son esprit d'économie. Les colons origi- \
 fl paires de la Prusse Occidentale font au contraire de
 L médiocres agriculteurs; ils sont malingres, peu solides 1
-“ L
 | et s'adonnent facilement à l'eau-de-vie. Les Wurtem- R
 4 bergeois sont particulièrement recherchés à cause de
 Il leurs habitudes d'ordre et de travail. Seulement ils ont À
@@ -2275,20 +1846,14 @@ Dr: temberg, 24'de la Bavière, 14 de Bade, 551 de Posnanie, 677 de la 1
 4 Allemands de Russie ou d'Autriche. S
 | 1 G) Voyez la caractéristique très suggestive des colons dans a
 ee Sohnrey : Ouvrage cité, pages 113 et suivantes. DL
-Fa |
 
 \‘he de la résistance du peuple polonais
-
-11e r ‘4 ent 44 |
 
 # À En général, on fait venir de préférence des Protes
 
 _ tants, parce qu'on craint pour les Catholiques l'influenee
 
-“ER polonaise. (1)
 110 En 1898, il n'y avait que 165 familles catholiques
-
-M contre 2.782 protestantes. h
 
 4 Il va sans dire qu'on élimine les éléments dont la
 
@@ -2314,7 +1879,6 @@ RE suffit pas, le président de la commission a le droit É.
 à d'octroyer au colon un prêt supplémentaire, qui peut ï
 Ki. aller jusqu'au quart du capital apporté. Ce prêt doit à
 _ être remboursé en vingt années. L'intérêt est de 4
-D. 3 1/2 0/0.
 
 ù 74 Les lots ne sont pas donnés contre un capital, mais ;
 L'AIR contre une rente fixe que le colon a à payer au fisc.
@@ -2322,14 +1886,11 @@ L'AIR contre une rente fixe que le colon a à payer au fisc.
 _ payer. (3) Le contrat qu'il signe l'oblige à assurer ses
 le de (1) Il y eut une élection où les catholiques allemands d'une Là
 T2 colonie, près de Gnesen, votèrent pour le candidat polonais. É $
-ME (2) Voyez Sohnrey : Ouvrage cité, pages 128-130. 14
 hé. (3) Pour empêcher la spéculation, il est stipulé (paragraphe 4 des 4e
 30 « Conditions générales ») qu'en cas d'aliénation du lot dans le #
 n° courant des cinq premières années, le colon doit au fisc la rente 4
 ; 0 de la première année. - 1 ; L
 
-2 A AA ASE AN EPA A ASS
-: JAMES , AUX EXACTIONS si
 ï bâtiments et son mobilier contre l'incendie ainsi que ses L a
 h récoltes contre la grêle. IL n'a pas la faculté de morceler son lot. En cas de vente, la commission garde le f
 À droit de préemption; en cas de location, elle peut à
@@ -2338,7 +1899,6 @@ h récoltes contre la grêle. IL n'a pas la faculté de morceler son lot. En cas
 fi des terrains ou d'en profiter. Tous les lots ne sontpas
 !. vendus; beaucoup sont affermés, en général pour une À
 | période de douze ans. Maïs on encourage le fermier à à
-devenir propriétaire. "1
 | Les colons vivent surtout de l'élevage du bétail, car
 la culture du blé rapporte trop peu. Si un paysan arrive :
 sans bétail, la commission, qui s'occupe de tout, est là À
@@ -2347,7 +1907,6 @@ pour lui en vendre; elle a‘des spécialistes pour choisir et
 M acheter veaux, vaches et chevaux. Les colons font de
 ll bonnes affaires par le commerce des porcs et de la vo- 4h
 |" laille. Ils cultivent aussi des légumes et envoient des À
-1 fruits jusqu'à Berlin. ;
 14 Toute agglomération créée a naturellement besoin de |
 | bâtiments d'utilité publique : bureau de poste, école, (el
 | église, cimetière, lavoir, etc. Tout cela incombe encore $
@@ -2369,8 +1928,6 @@ DA (2) La commission a créé un séminaire évangélique à Dembowa- ta
 1% des représentants de différentes sectes. (1) La chapelle L
 
 ù neuve d'une colonie resta absolument vide, tous les j
-
-colons étant baptistes.
 
 ; Dans chaque centre, il y a aussi une auberge, ou un
 
@@ -2406,8 +1963,6 @@ If terrain nécessaire pour le cimetière, l'abreuvoir, etc. ; |
 
 mais il faut toujours qu'il reste un pré communal
 
-à 1 (Allmende). ‘1
-
 \ A aucun moment les colons ne sont abandonnés abso- |
 
 À . lument à eux-mêmes. Par les conditions mêmes du traité |
@@ -2425,8 +1980,6 @@ ni montrer plus bienveillante que tracassière, et en cas de |
 Ÿ (1) A Libau il y a des « frères rhénans » et des baptistes. "A
 
 ) $ (2) En 1900, 120 nouvelles communes avaient été fondées.
-
-1 ot:
 
 | ee AUX EXACTIONS |
 L'administration a fait preuve d'initiative intelligente
@@ -2456,10 +2009,8 @@ vriers ou de petits métayers. Outre que les propriétés
 (1) Voyez Stumpfe : Ouvrage cité, pages 172 et suivantes. WP
 (2) Sur Pactivité de cette banque, voyez Geschäftsberichte der Ki
 Landbank für die Jahre 1896 und 1897, et la conférence du directeur de la banque, dans Ostmark, IX, 1 : Die Landbank in der
-inneren Kolonisation und im Ostmarkenkampfe. |
 (3) La banque fait de bonnes affaires. En 1896 et en 1897, les Re
 h actionnaires ont reçu un dividende de 7 o/o. f
-à 169 Polonais. — 4 ,
 
 4 de la résistance du peuple polonais
 k plus grandes demandent un capital élevé, souvent dif-
@@ -2500,13 +2051,6 @@ A achète la terre du Polonais, qui avec la somme reçue
 
 4 acquiert la propriété de son voisin allemand. j'ut
 # ( ») Voyez Stumpfe : Ouvrage cité, page 53.
-
-k (2) Id., page 54. ;
-
-x 6) Volume 76, page 558. |
-; k (4) Die Polenfrage, page 9. .
-
-ra | AUX EXACTIONS " nt
 
 Malgré tout, l'œuvre de colonisation est, croyons- À :
 
@@ -2566,7 +2110,3 @@ nouveau à la défensive. jf ‘à
 Avec beaucoup d'habileté, ils ont su se servir d'une A
 
 ï institution prussienne, la « Commission générale de il
-
-à + () Neue Bahnen der Polenpolitik, page 57. | LU
-L 171 Al
-79 £ y

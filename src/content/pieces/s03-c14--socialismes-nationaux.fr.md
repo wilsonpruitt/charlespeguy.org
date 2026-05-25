@@ -7,17 +7,13 @@ author: georges-sorel
 isAvertissement: false
 wordCount: 18931
 ---
-
-P_ Cahiers
 de la Quinzaine
 
-4 PARIS
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
 Le jour même où nos abonnés recevaient le douzième
 
 14 Juillet étaient suspendues au Théâtre de la Renaissance. Les recettes avaient baissé au commencement de la semaine. Gémier fit afficher aussitôt des
-représentations populaires à prix excessivement .:.
 réduits. C'était vouloir créer la panique. Pourtant elle
 ne se produisit pas. Jusqu'à la soirée du dimanche
 inclus les représentations furent chaleureuses. La pièce
@@ -35,7 +31,6 @@ Nous ne devons pas oublier qu'il reçut en un quart
 d'heure et qu'il monta en trois semaines. Et le jeu du
 peuple, au premier acte surtout, demeure presque un
 modèle du genre. Mais Gémier manqua de constance.
-11 démonta en dix minutes.
 
 La situation de Gémier au Théâtre de la Renaïssance
 n'est pas sans analogie avec la situation que nous
@@ -51,8 +46,6 @@ représentation populaire est une représentation où l'on
 s'est arrangé pour qu'il y eût du peuple. Une représentation populaire se prépare de longue maïn. Il y faut de
 la patience. I1 y faut la collaboration des quelques
 institutions populaires que nous avons déjà, coopératives, syndicats, universilés populaires. £a
-
-A à Y .
 
 Nous devons nous préparer aux élections. Nous prions
 . nos abonnés de vouloir bien nous envoyer les proÿ grammes, affiches, circulaires intéressantes qui leur
@@ -79,14 +72,12 @@ Toutes spéculations théoriques sur le suffrage universel étant réservées, e
 devenu, sauf de rares et d'honorables exceptions, un
 jeu de mensonge, un abus de force, un enseignement de
 vice, une maladie sociale, un enseignement d'injus- .
-tice. 410
 
 Nous étudierons cette maladie aussitôt que nous le
 pourrons ; et quand nous l'étudierons nous nous apercevrons sans doute qu'elle présente une singulière analogie avec la prostitution. Car s'il est vrai que la prostitution est l'avilissement, la vulgarisation du corps et
 de l'âme, l'élection au suffrage universel, en particulier À
 
 l'élection législative est devenue l'avilissement, la vul- «
-NAN ARE
 
 b. garisation de l'esprit et de l'âme, et du corps même, au
 k sens où le regard, la voix, le sourire, la poignée de
@@ -117,7 +108,6 @@ de Parlement, de régime constitutionnel, nous mesurons
 d'un regard l'immense effort accompli par nos pères,
 nous mesurons ce que vaut deux siècles d'un grand
 peuple, et nous mesurons d'autant l'ignominie où nous …
-sommes tombés.
 
 Nous mesurons ce que c'est que deux siècles de la vie
 d'un grand peuple dans l'histoire de l'humanité; du
@@ -150,9 +140,6 @@ chambre. Ur homme qui a assez de bien pour vivre, s'il
 . w'achètera une charge à l'armée si cher, que parce
 Rire trouverait insupportable de ne bouger de la ville
 
-L'ART
-
-pi NAME
 et on ne recherche les conversations et les divertissements des jeux que parce qu'on ne peut demeurer chez
 soi avec plaisir.
 
@@ -185,7 +172,6 @@ _ onnen voudrait pas s'il était offert. Ce n'est pas cet
 % _ de la guerre, ni la peine des emplois, mais c'est le tracas
 | quinous détourne d'y penser et nous divertit.
 | Raisons Pourquoi on aime mieux la chasse que la
-4 prise.
 } De là vient que les hommes aiment tant le bruit et le
 _ remuement, de là vient que la prison est un supplice si
 . horrible ; de là vient que le plaisir de la solitude est une
@@ -225,7 +211,6 @@ pas entendre la nature.
 | condition n'évitent rien tant que le repos, il n'y arien
 qu'ils ne fassent pour chercher le trouble. Ce nest pas
 qu'ils n'aient un instinct qui leur fait connaître La vraie
-béatitude…
 
 { Ainsi on se prend mal pour les blämer ; leur faute
 _ n'est pas en ce qu'ils cherchent le tumulte, s'ils ne le
@@ -239,7 +224,6 @@ nature de l'homme.]
 | répondaient, comme ils devraient le Jaire s'ils y pen-
 … saient bien, qu'ils ne recherchent en cela qu'une occu-
 . pation violente et impétueuse qui les détourne de penser û à soi, et que c'est pour cela qu'ils se proposent un objet
-À 9 1.
 
 attirant qui les charme et les attire avec ardeur, ils
 laisseraient leurs adversaires sans repartie. Mais ils ne
@@ -263,7 +247,6 @@ notre première nature, qui leur fait connaître que le
 bonheur n'est en effet que dans le repos et non pas dans
 le tumulte; et de ces deux instincts contraires, il se
 forme en eux un projet confus, qui se cache à leur vue i
-be br OR SAT ENS
 
 | dans le fond de leur âme, qui les porte à tendre au repos
 par l'agitation, et à se figurer toujours que la satisfaction qu'ils n'ont point ieur arrivera, si, en surmontant
@@ -359,11 +342,9 @@ La dignité royale n'est-elle pas assez grande d'elleméme pour celui qui la pos
 par la seule vue de ce qu'il est? Faudra-t-il le divertir
 
 | de cette pensée, comme les gens du commun ? Je vois
-Le . “ .
 bien que c'est rendre un homme heureux, de le divertir
 de la vue de ses misères domestiques pour remplir toutes
 ses pensées du soin de bien danser. Mais en sera-t-il de
-: LUN
 
 même d'un roi, et sera-t-il plus heureux en s'attachant
 à ces vains amusements qu'à la vue de sa grandeur? Et quel objet plus satisfaisant pourrait-on donner à son
@@ -384,7 +365,6 @@ qu'il n'y ait point de vide; c'est-à-dire qu'ils sont environnés de personnes 
 prendre garde que le roi ne soit seul et en état de penser
 à soi, sachant bien qu'il sera misérable, tout roi qu'il
 est, s'il y pense.
-de TRIO h k t "
 Qu'on remplace roi par peuple; si le roi aime la
 chasse, la foule aime les courses.
 Je ne parle point en tout cela des rois chrétiens comme
@@ -419,7 +399,6 @@ dans la pensée de l'avenir? Mais, ôtez leur divertissement, vous les verrez se
 leur néant sans le connaître : car c'est bien ëtre
 malheureux que d'étre dans une tristesse insupportable,
 aussitôt qu'on est réduit à se considérer, et à n'en étre
-point diverti.
 
 In omnibus requiem quæsivi. Si notre condition était
 véritablement heureuse, il ne nous faudrait pas divertir
@@ -445,8 +424,6 @@ d'ailleurs et de dehors; et ainsi il est dépendant. et
 fe partant, sujet à être troublé par mille accidents, qui
 font les afflictions inévitables.
 
-AINPI
-
 La seule chose qui nous console de nos misères est le divertissement, et cependant c'est la plus grande de nos
 misères. Car c'est cela qui nous empéche principalement
 de songer à nous, et qui nous fait perdre insensiblement.
@@ -461,16 +438,11 @@ qu'ils joignent à l'état où nous sommes les plaisirs de
 l'état où nous ne sommes pas: et, quand nous arriverions
 à ces plaisirs, nous ne serions pas heureux pour ‘cela, î
 parce que nous aurions d'autres désirs conformes à ce
-nouvel état.
 
-PNR à à LS À Di pe ENS
 Sr LA a Hurt A RATE RP.
 
-j dia
-UNE CITATION
 Je lis dans le Mouvement Socialiste, numéro 79, du
 samedi 15 février 1902, sous la signature de M. W.-H.
-Vliegen, Amsterdam, premier février 1902, Etranger,
 Hollande. le Ministère et le militarisme
 La Hollande est un pays qui s'oppose terriblement au
 moloch du militarisme, parce que, comme la France, elle
@@ -487,7 +459,6 @@ Socialiste a dit qu'il n'était pas vrai que l'Europe soit d
 « l'Europe a eu, sous la cuirasse, des années de prospé- va
 rité merveilleuse », et que « les Etats modernes pourront, à
 sans péril, porter d'énormes budgets de défense natio- ï
-nale ». (1) à
 L'Action Socialiste n'est pas un livre de Jaurès.
 Quand j'eus fondé la librairie Georges Bellais, je h deémandai à Jaurès la permission de réunir en un volume de:
 de propagande le plus que je pourrais de ses articles S
@@ -495,7 +466,6 @@ antérieurs. Avec sa très grande libéralité, non seule- ù
 ment il nous permit de faire ce que nous voulions;
 mais pour le faire il nous laissa toute latitude. Il nous
 laissa faire le choix, l'agencement, la composition, les
-:AENRRRE j
 (1) L'Aciion Socialiste, page 334. i
 
 "au UNE CITATION
@@ -512,15 +482,12 @@ que Jaurès avait publiés sur l'action politique, sur la
 politique intérieure, sur le jeu des partis, sur les grèves
 et l'action syndicale, sur le socialisme en théorie et en à
 idée, sur l'action coopérative, méritaient qu'on les é
-réunit en plusieurs volumes.
 
 Je ne pus réunir que la première série. Ce premier *
 
 volume contient les articles sur le Socialisme et l'Enseignement, sur le Socialisme et les Peuples. Je Yai
 remis en vente à la Librairie des cahiers, pour trois
 francs cinquante. C'est dans la seconde partie que
-
-. M. Vliegenest allé chercher quelques citations tronquées.
 
 Si c'est le docteur Talma qui a interprété les citations de l'Action Socialiste en ce sens que Jaurès aurait
 fait l'apologie du militarisme, le docteur Talma lui premier a commis un faux. Si M. Vliegen a endossé l'interprétation de M. Talma,; comme il semble résulter
@@ -531,7 +498,6 @@ lu dans le Mouvement des notes de la rédaction qui
 étaient moins indiquées.
 
 Qui donc a mis dans le Mouvement la référence à la è page du volume; est-ce M. Talma, M. Vliegen, ou Le
-Mouvement ?
 Je me reporte à l'Action Socialiste, page 333, Paix et
 revanche. L'article reproduit vient de {a Dépéche,
 de Toulouse, numéro du samedi 31 décembre 1887. Sans
@@ -589,7 +555,6 @@ est-il certain qu'une guerre nouvelle nous permettrait de désarmer ? Serions-no
 nous n'ayons plus de précautions à prendre ? Done
 nous devons nous tenir avec fermeté, avec suite,
 sans aucune crise de nervosité, à la politique de
-paix.
 Tout l'article est à lire, Évidemment il n'est pas de
 février 1902, puisqu'il est daté du samedi 31 décembre 1887. Il ne représente pas exactement l'idée que nous
 avons aujourd'hui de ces difficultés, puisqu'il exprimait
@@ -603,7 +568,6 @@ et de bonne volonté, un exemple de la droite route qui
 du républicanisme ordinaire conduit au socialisme, et
 puisque l'on veut les opposer, au lieu de les distinguer
 simplement, un exemple de la droite route continue qui !
-UNE CITATION
 
 de la sincère démocratie républicaine conduit à un
 socialisme sincère. Il est facile à ceux qui trouvent
@@ -668,7 +632,6 @@ De jeunes amis m'ont demandé la permission de
 réunir, en un ou plusieurs volumes, un choix de
 mes articles et discours. Un moment, j'ai hésité. Je l
 craignais qu'on ne vît là une sorte de préoccupation
-UNE CITATION
 Littéraire peu convenable à un militant. Et puis,
 nous avons devant nous tant de travail, nous avons
 si peu fait, qu'il me paraissait dangereux de se
@@ -687,7 +650,6 @@ dans ce volume. Mais ce que je sais bien, c'est que,
 quelle qu'en soit la date, on y retrouvera la même
 inspiration socialiste. Dès que j'ai commencé à
 écrire dans les journaux et à parler à la Chambre,
-dès 1886,
 
 Il y a seize ans. Quand je considère comme est rapide
 la dévolution usuelle, je me demande inquiet où en
@@ -701,7 +663,6 @@ _ combattre la légende qui fait de moi un centre-
 _ la vérité.
 
 1 Mais il est vrai aussi que j'ai adhéré à l'idée
-fi, 29 ur.
 
 socialiste et collectiviste avant d'adhérer au parti
 socialiste. Je m'imaginais que tous les républicains,
@@ -733,11 +694,9 @@ Socialiste. Jaurès lançait la collection après avoir lancé
 la revue. Et comme j'étais déjà un petit boutiquier, je
 vendais la brochure pour un sou.
 
-UNE CITATION
 Le Jaurès à qui on demandait tant de travail gratuit,
 dont on monnayait la gloire, — pour le bien du Mouvement, je le sais, mais dont on monnayait la gloire, —
 était pourtant le Jaurès de la Dépéche et le Jaurès de
-Yarticle aujourd'hui inculpé.
 Comme cet âge est mort, et comme les amis de
 Lagardelle, que je ne confonds pas avec son entourage,
 ont raison d'être inquiets. Du premier Mouvement
@@ -753,7 +712,6 @@ changer son cheval borgne pour un aveugle? Quand
 nous fûmes affranchis de la politique ministérielle, ‘
 nous évitâmes soigneusement de tomber dans une autre
 politique, dans un autre mensonge et dans une autre {\
-servitude. Lagardelle au contraire essaya d'instituer
 une politique bissectrice, diagonale, toute livresque,
 artificielle, dogmatique, irréelle, intenable, savante. La
 difficulté, l'impossibilité où ilse heurtait devait l'avertir
@@ -790,9 +748,6 @@ M. Sorel au livre de M. G. Gatti, le Socialisme et
 l'Agriculture, publié récemment chez Giard et Brière
 dans la Bibliothèque Socialiste Internationale.
 
-GEORGES SOREL
-SOCIALISMES NATIONAUX
-
 | I y a dans le monde beaucoup de thèses qui se main-
 
 _ tiennent par la force de la routine et qui ne sont plus
@@ -821,7 +776,6 @@ autant de socialismes que de races, et M. G.Le Bon (1)
 
 + (1) G. Le Bon. — Psychologie du socialisme.
 
-Georges Sorel
 est fondée sur les qualifications de la psychologie
 classique; et nous savons que celle-ci a été conçue pour
 décrire la vie des classes supérieures; les explications
@@ -854,9 +808,7 @@ contre-révolution le chapitre VII sur les Slaves. — M. G. Ferrero
 a cherché à définir les qualités des races pour le travail, d'après
 leurs tendances érotiques /L'Europa giovane, pages 190-208); mais il
 ne peut entrer ainsi dans le détail et est obligé d'identifier tous les
-travaux.
 
-LAS SOCIALISMES NATIONAUX
 car ils ont, généralement, fort négligé la différenciation
 technologique dans l'économie (1) et beaucoup trop
 _ raisonné suivant la tradition démocratique, qui nivelle
@@ -879,7 +831,6 @@ les professions où ils sont nombreux, (2) l'organisation
 | crois, à leur tendance aux solutions théoriques, (3)
 qu'aux idées féodales transmises par une longue tra- » dition.
 L Ce qu'on appelle, assez mal à propos, le socialisme
-ki site, re . 72 .
 . municipal en Angleterre est basé sur des idées ancienCITÉE
 1 (1) Cela est surtout remarquable dans ce qu'écrivent encore tant
 de socialistes sur la concentration capitaliste, sans tenir compte
@@ -887,11 +838,7 @@ des différences qui existent entre les industries,
 . (2) Cf. l'organisation si singulière des ouvriers de chemins de fer » Musée social, avril 1899).
 1e (3) Pierre Leroy-Beaulieu.— Les nouvelles sociétés anglo-saxonnes,
 page 137. — Le servage des houillères et des salines a disparu en
-à vs Écosse en 1799 seulement.
-\, Ron. Li
-0 VATU £ Ÿ
 
-Georges Sorel
 nes (1) relatives au rôle des municipalités. Si ce genre
 d'administration fonctionne passablement, de l'autre
 côté de la Manche, cela tient à ce qu'il a été possible,
@@ -920,10 +867,8 @@ recettes municipales, l'afferme de la boulangerie, de la boucherie,
 du cabaret, de la fourniture de la glace (Brutails. — Notes sur l'économie rurale du Roussillon, pages 174-175).
 (2) D'après Lavoinne et Pontzen. — Les Chemins de fer en Amérique, tome II, page 492.
 
-j : SOCIALISMES NATIONAUX
 _ États ont cependant interdit la perception de taxes
 _ déraisonnables : et cette législation a été reconnue
-constitutionnelle. (1)
 
 Ce qui caractérise surtout l'Angleterre, c'est le vieux
 _ trade-unionisme classique, qui n'a pu se développer
@@ -954,7 +899,6 @@ RG) Dubois. |) Les. Chemins! de fer aux États-Unis, pages 163,
 
 ou In
 
-Georges Sorel ge AS
 qu'une caricature de la régulation sociale (Æapitalistische Karikatur der gesellschaftlichen Regulirung
 des Arbeitsprocesses) telle que l'exigent la coopération
 en grand et l'emploi des moyens de travail communs ».
@@ -983,13 +927,8 @@ blerait naturel de dire qu'il diminue le prix de l'heure ;
 (1) Marx se demande (page 113, colonne 1) si le fabricant d'acier, ù
 Sanderson, croit posséder, en vertu de son outillage, un droit de à
 vingt-quatre heures sur ses ouvriers {Anweisung auf die Arbeit- t
-A Capital, page 103, colonne 1 ; comparer page 114, colonne 2, —
 page 116, colonne 1 et colonne 2. ÿ.
 
-208 NCA NAN ER RE
-
-SE SOCIALISMES NATIONAUX
-are MR NE ” j ë : à
 à Marx, (1) à limitation des ouvriers anglais, dit que le
 _ patron profite du travail non payé (unbezahlte Arbeit,
 ‘1 unpaid labour). Les ruses que les entrepreneurs em-
@@ -997,14 +936,12 @@ _ patron profite du travail non payé (unbezahlte Arbeit,
 4 A e « » constamment (2) à des usurpations et à des vols. La
 1 grande charte du travailleur moderne est la loi qui
 À sépare (3) « le temps propre de l'ouvrier et celui de son
-. maître » (fhe worker's own time und his master”s).
 K Les idées que les ouvriers anglais se font de leurs
 4 droits sont, en grande partie, basées sur la pratique du
 À long apprentissage qui a habitué les ouvriers qualifiés
 € à se considérer comme séparés du reste des travail_ leurs:les hommes qui ne sont pas en règle — comme ils s
 … disent — n'ont pas qualité pour leur faire concurrence
 . louvrier qui ne paie pas ses cotisations régulièrement
-paie p
 . à son Union, est un irrégulier contre lequel la persécu_ tion est permise ; le blackleg, celui qui vient prendre la TM
 place d'un gréviste, est un véritable malfaiteur.
 
@@ -1020,15 +957,7 @@ L (1) Capital, page 108, colonne 1. — J'ai fait observer déjà {Revue de
 Sociologie, avril 1900, pages 268-269) que toute la théorie de la valeur
 de Marx est dominée par les idées anglaises qui font de l'homme
 > « un temps de travail personnifié » {Capital, page 104, colonne 2).
-ÿ €) Capital, page 104, colonne 2; — page 108, colonne 2 ; — page 114,
-Wcolonne 1; — page 184, colonne 2.
-6) Capital, page 130, colonne 2.
-vi ol
 
-AT qu
-ARR '
-
-Georges Sorel
 très important; les grandes industries sont généralement concentrées sur une faible étendue de pays; ilest
 facile de voir combien chez les cotonniers et les constructeurs de navires cette concentration a développé
 l'esprit de corps.
@@ -1052,17 +981,12 @@ développé un esprit de corps que l'on ne retrouve que
 très exceptionnellement ailleurs. Sans cette notion juridique je ne crois pas qu'il y ait de trade-unionisme
 possible; et c'est à la faiblesse qu'elle a chez nous, Ù
 qu'il faut surtout attribuer l'instabilité du mouvement
-syndical. (1) K
 
 (1) J'ai signalé dans la Science sociale (novembre 1900, page 435) que
 dans les grèves se manifeste un sentiment qui correspond à cette
 notion juridique ; maïs il reste presque instinctif et ne s'intellectualise guère chez nous. — Une partie des analogies signalées ici entre fi
 les expositions de Marx et les idées des ouvriers anglais a déjà été a
 indiquée dans l'Idea giuridica nel maræismo (Rivista di storia e di
-filosofia del diritto, août 1899).
-
-AAC Eten M
-SOCIALISMES NATIONAUX
 
 Dans le monde moderne les progrès incessants que la
 science apporte, constituent une source énorme de
@@ -1086,7 +1010,6 @@ complet de toutes les formes que peut revêtir l'organisation ouvrière et de re
 
 () Dans le Lancashire il est de règle que 40 0/0 de l'avantage
 soit attribué aux tisseurs (De Rousiers. — Le trade-unionisme en
-Angleterre, page 320).
 
 (2) C'est une considération fondamentale au point de vue marxiste,
 
@@ -1095,9 +1018,7 @@ ls l'heure actuelle, les marxistes ne prennent pas toujours assez garde
 * au danger qu'il y a de faire campagne avec les philanthropes.
 VI On a tort de donner le nom de lois de protection ouvrière aux lois
 sur le travail ; on se place, en parlant ainsi, au point de vue de la
- philanthropie bourgeoise.
 
-Georges Sorel
 juridiques qui en dérivent ; il est manifeste que dans la
 réalité les types que la science peut établir, ne se réalisent jamais d'une manière pure et qu'il y à des mélanges, comme cela se produit dans toute formation
 sociale. L'expérience montre que l'on peut cependant
@@ -1131,7 +1052,6 @@ transportèrent leurs machines de France en Amérique et furent tout
 surpris de voir les Américains produire plus qu'on ne produisait
 dans des pays où cette industrie était traditionnelle.
 
-LOVE SOCIALISMES NATIONAUX
 _ mais encore les progrès sont plus faciles à réaliser en
 Amérique qu'en Angleterre : l'esprit de routine domine
 dans le plus grand nombre des ateliers de ce dernier
@@ -1154,7 +1074,6 @@ commerciales. M. Barnes se trompe donc gravement
 historique où se trouve l'Amérique à l'heure actuelle
 il ne comprend pas les liens qui rattachent les idées
 anglaises actuelles à un passé lointain, qui ne peut
-guère revenir.
 | Toute notion de hiérarchie, ayant ses racines dans la
 b féodalité, est inintelligible pour l'Américain ; il ne
 semble pas bien se rendre compte de ce qu'on nomme
@@ -1163,9 +1082,7 @@ semble pas bien se rendre compte de ce qu'on nomme
 dn (1) D'après un article de M. Biard sur l'Industrie américaine et
 l'industrie anglaise (Bulletin de la Société d'encouragement, avril 1900,
 | page 639).
-Ko (2) Loco citato, page 641.
 
-Georges Sorel
 n'est point, à ses yeux, un état particulier propre à une
 section du peuple, maïs plutôt une préparation, une
 école, un moyen de sélection pour tout le monde : l'idée
@@ -1196,7 +1113,6 @@ de fortune, n'hésitent pas à gagner leur vie par le travail manuel
 {La vie américaine. L'éducation et la société, page 21).
 (2) Cf. Vigouroux. — La concentration des forces ouvrières, pages 322-328; — pages 243-251; — pages 334347.
 
-SOCIALISMES NATIONAUX
 parti des réductions de la journée ; mais en Amérique
 il n'en est pas de même ; il y a tant de gens qui sont
 obligés de passer par la vie ouvrière, (1) que Le pays a
@@ -1228,11 +1144,6 @@ _ particulier que généralement les hommes arrivés s'effor- cent de forcer à 
 
 … sont domestiques, allumeurs de réverbères ; M. Moissan a été fort
 
-… surpris d'en rencontrer à Chicago.
-
-À 45 I.
-
-Georges Sorel
 Le système américain a grandement favorisé le progrès
 de la production, il a donc fait ses preuves.
 
@@ -1267,7 +1178,6 @@ Pour étudier ce qui est particulièrement français dans l
 l'organisation ouvrière nous prendrons comme type les
 groupes dont le fonctionnement a motivé depuis long-
 
-DAMES SOCIALISMES NATIONAUX
 à temps la politique de nos gouvernements. Si les syndi-
 | çats étaient de simples agences des affaires d'un
 | métier, on ne comprendrait pas qu'ils aient été traités
@@ -1295,11 +1205,7 @@ _ sans raison que de pareils phénomènes sont rapprochés
 à peu nombreux unis autour de comités. D'après la docps trine officielle, Le syndicat est une coalition permanente,
 à (1) Office du travail. — Les associations professionnèlles ; tome I,
 | page 282.
-. (2) Loco citato, page 277.
 
-1ÿ ‘7€ VAR
-
-Georges Sorel
 ce qui veut dire qu'il est une agence d'agitation, suscitant des difficultés incessantes au patron et épiant le
 moment favorable pour provoquer un conflit (quand le
 fabricant a de fortes commandes et ne peut pas reculer).
@@ -1328,7 +1234,6 @@ de la Loire, en 1901, constate qu'à la suite de la réduction de la
 journée de travail la production a augmenté de 3,6 0/0, tandis que
 le nombre des ouvriers augmentait de 7,2 0/0; ainsi la productivité
 avait en moyenne diminué par homme. À
-SOCIALISMES NATIONAUX
 
 politiques et sont à la merci de réunions publiques
 ainsi à Saint-Étienne, en 1899, le syndicat demandait
@@ -1361,7 +1266,6 @@ rappellent beaucoup les anciens amis de l'empereur ; ils
 
 \ ont, comme eux, un mépris superbe pour le droit; la
 ile (1) Cf. Musée social, février 1900, page 42. Le type accompli du genre tumultuaire se trouve dans la grève des dockers de Marseille
-(Musée social, juillet 1901).
 
 { (2) J'ai été à même d'observer de près cette politique dans les
 
@@ -1369,9 +1273,6 @@ ile (1) Cf. Musée social, février 1900, page 42. Le type accompli du genre tum
 
 \ n'en faisaient pas mystère.
 
-th * "
-
-Georges Sorel
 violence leur plaît infiniment et les programmes Mes
 plus radicaux ne leur font pas peur; comme leurs prédécesseurs, ils croient qu'il faut s'occuper d'affaires et
 ne pas trop se préoccuper de l'avenir. La démagogie
@@ -1393,22 +1294,16 @@ ce contrat collectif n'est pas un contrat; il n'est qu'une
 promesse dont l'exécution n'est assurée par aucun Y
 moyen de droit; et la force du syndicat est souvent si l
 faible que c'est même à peine une promesse dans cer- î
-tains cas.
 @) « L'intermédiaire du syndicat auquel appartient l'une des par- À
 ties peut être utilement employé si toutes deux y consentent;/il ne
 peut être imposé. » (Office du travail. — Statistique des grèves et des l
 recours à la conciliation et l'arbitrage survenus pendant l'année 1899, à
-page 509) N
 (2) Le Mouvement socialiste, 15 mars 1900, page 350. S
 
-OPA RES PEN A €
-L NP #1 ,
-' . SOCIALISMES NATIONAUX
 Le caractère démagogique de la loi de 1884 (x) apparaît surtout dans l'abolition de l'article 416 du Code
 pénal qui punissait « tous ouvriers, patrons ou
 entrepreneurs, qui, à laide d'amendes, défenses,
 proscriptions, interdictions, prononcées par suite d'un
-plan concerté, auront porté atteinte au libre exercice j
 | de l'industrie et du travail ». Cette rédaction adoptée
 en 1864 avait aggravé très notablement l'ancien Code
 et l'interprétation que le tribunal de Marseille avait
@@ -1425,7 +1320,6 @@ intérieur du syndicat, ceux qui ont pour objet de
 essentiel de faire passer dans la loi pénale; mais on
 | voulait, en 1884, faire de la popularité; on se souciait
 | fort peu de travailler à l'éducation juridique des
-da masses. (2)
 \ÿ] (1) Il ne faut jamais oublier qu'à cette époque les conservateurs
 1 n'avaient pas désarmé; les élections de 1885 montrèrent qu'un rej tour offensif contre la République était encore à craindre. La loi de
 0 1884 fut donc une loi de défense républicaine plutôt qu'une vraie
@@ -1436,9 +1330,6 @@ A cessent maintenant de demander des peines contre les patrons qui
 : een ‘persécutent leurs organisateurs /le Mouvement socialiste, 15 mars 1900,
 13 pages 344-345); ils prétendent que les dommages-intérêts ne suf-
 
-NOR à
-
-Georges Sorel
 Le gouvernement a fait de grands efforts pour prendre
 contact avec les syndicats; le bureau créé, au ministère
 de l'Intérieur, par M. Barberet, n'ayant pas eu beaucoup de succès, on institua l'Office du travail au ministère du Commerce dans l'espoir que les ouvriers s'en
@@ -1467,7 +1358,6 @@ la Seine /{e Mouvement socialiste, 15 mars 1900, page 342) ; et l'auteur,
 auquel j'emprunte cette information, paraît trouver cela très
 légitime. — Certaines affiches qu'on peut lire sur les murs de Paris
 au moment des élections pour les Conseils de prud'hommes, montrent que beaucoup de candidats à ces fonctions comprennent le
-SOCIALISMES NATIONAUX
 faudrait que les hommes qui parlent au nom du
 socialisme eussent toujours présentes à l'esprit ces
 fortes paroles de Proudhon
@@ -1503,8 +1393,6 @@ que disent « les avocats parlant des lois, surtout des lois ouvrières ».
 
 1 (@) Proudhon. — De la capacité politique des classes ouvrières,
 
-… | page 3%.
-
 Georges Sorel JE
 créer des difficultés au ministère; — on a de bonnes
 raisons de supposer que les tullistes de Calais ont refusé
@@ -1531,15 +1419,12 @@ d'esprit est tout naturel dans les sociétés encore mal
 préparées à la vie publique; on avait cru qu'il disparaîtrait avec la pratique de l'organisation syndicale ; il N
 n'en a rien été; les tendances politiques semblant
 même devenir tout à fait dominantes, l'avenir du l
-socialisme en France donne beaucoup à réfléchir:
 Devons-nous penser que le monde des travailleurs se
 mettra désormais à la remorque de démagogues qui lui À
 promeéttront de faire passer une partie de la richesse M
 des gras aux maigres? Le socialisme est-il destiné à À
 
-RE SOCIALISMES NATIONAUX
 devenir (suivant une expression du vieil Engels) un
-antisémitisme à grandes phrases ?
 
 Il faut espérer que les accidents actuels n'auront pas
 une influence définitive sur l'avenir du mouvement
@@ -1558,14 +1443,12 @@ si, appuyée sur la philanthropie et la sottise bourgeoises, la démagogie l'emp
 . un fort courant vraiment socialiste pourrait seul, à
 l'heure actuelle, sauver la France de cette marche vers
 la ruine.
-AT ER
 L'Italie est, encore plus que la France, un grand pays
 agricole; eton oublie trop souvent que l'agriculture
 | est de quelque poids dans l'économie des nations; il
 me semble vraisemblable que l'évolution du socialisme
 devra subir très fortement l'influence d'institutions
 rurales qui étaient à peu près inconnues il y a
-+ trente ans.
 ‘4 Les associations agricoles ont pris chez nous un
 | énorme développement: on a eu la sagesse de les
 À laisser fonctionner à leur guise et de se contenter des
@@ -1580,7 +1463,6 @@ de l'erreur commise en 1884; l'expérience a montré une
 fois de plus, contre les socialistes de la chaire et les
 professeurs de l'École de droit, que la meilleure manière
 de protéger les associations c'est de les laisser
-tranquilles.
 
 Les socialistes ne semblent pas être encore bien fixés
 sur l'avenir et sur la portée de ces sociétés ; il y a quel- -
@@ -1594,15 +1476,10 @@ coopératives (3) : « Il n'est pas douteux que lirrésistible action du dévelo
 de l'agriculture ne déterminera, dans un avenir pro-
 (1) Les théoriciens de la coopération et du syndicalisme énumèrent les variétés en s'arrêtant aux caractères les plus superficiels;
 j'ai essayé de donner un tableau fondé sur les vraies causes de différenciation. /Les divers types de sociétés coopératives. Science sociale, ‘
-septembre 1899.)
 (2) Destrée et Vandervelde. — Le socialisme en Belgique, page 429.
-(3) Loco citato, page 329.
-
-SOCIALISMES NATIONAUX
 
 chain, des transformations intellectuelles et morales
 éminemment favorables au développement de l'idée
-socialiste. » Aujourd'hui M. Vandervelde paraît être
 beaucoup moins optimiste; (1) ce changement d'attitude s'explique facilement quand on voit à quels maigres résultats sont parvenus les socialistes belges ; les
 succès des coopératives rurales catholiques les inquiètent avec raison. (2)
 
@@ -1626,9 +1503,7 @@ rurale serait ainsi une annexe d'un magasin urbain;
 (1) Le Mouvement socialiste, 15 avril 1901, page 473.
 @) Le Mouvement socialiste, premier avril 1901, page 388 et page 393.
 G@) Cf. les conclusions du mémoire consacré par M. Varlez à la
-Fédération ouvrière gantoise /Musée social, janvier 1899).
 
-AUS FU DA AAC EN RCE RAI
 Georges Sorel. ÿ Le
 impossible d'en méconnaître davantage le vrai caractère !
 L'association agricole est l'association par excellence,
@@ -1644,7 +1519,6 @@ premiers jours d'enthousiasme) que par routine, indifférence, soumission, ou pa
 , les intérêts ne sont combinés d'une manière aussi
 forte, aussi stable et aussi claire que dans les sociétés
 qui ont pour objet l'amélioration des exploitations
-rurales.
 Dans l'agriculture on trouve tout ce qui peut donner
 de la force à l'association : les associés ont des intérêts
 communs d'une nature autrement plus concrète que ne
@@ -1683,10 +1557,6 @@ coopératif du travail y devient une nécessité technique
 dictée par La nature même de son moyen. » Mais dans
 la fabrique tout dépend d'une volonté extérieure, en
 sorte qu'il n'y a pas d'association; tandis que dans un
-î () Capital, page 167, colonne 2.
-
-j rit \ ÿ "
-"1 ‘|
 
 Georges Sorel syndicat d'arrosage il n'y a pas de volonté extérieure
 et toutes les volontés particulières sont directement
@@ -1716,9 +1586,6 @@ dans le sens du socialisme. Elles ont d'autant plus de
 valeur pour nous qu'il est souvent difficile de savoir si
 certaines pratiques assurent le progrès économique
 
-(1) Capital, page 157, colonne 1. \
-
-4 SOCIALISMES NATIONAUX
 dans l'industrie, tandis qu'ici il ne peut y avoir de doute
 * dans les appréciations.
 
@@ -1746,7 +1613,6 @@ l'avvenire sociale. IL existe une trés importante littérature populaire
 destinée à vulgariser la méthode Solari; le clergé catholique s'est
 fait l'ardent propagateur de la nouvelle agriculture.
 
-Georges Sorel dt
 Dans quelle mesure les associations rurales italiennes
 se pénètrent-elles de socialisme, c'est ce que je ne saurais déterminer ; mais M. Gatti semble plein d'espoir et
 il est mieux placé que nous pour juger ses compatriotes.
@@ -1777,12 +1643,9 @@ possible; ils dépassent donc ce. que nous pouvons dire
 de scientifique sur les questions sociales. » Au dernier
 Congrès international, le professeur E. Ferri exprimait
 
-VESTE
-ï SOCIALISMES NATIONAUX
 des idées presque identiques (x) : « Je dis qu'on ne peut
 pas faire de distinction entre les principes et la tactique. Nous disons que la théorie n'est que la pratique
 généralisée et la pratique n'est que la théorie en
-action. »
 
 Ramener l'accord entre la doctrine et la conduite,
 voilà ce que devrait réaliser le socialisme pour vaincre
@@ -1793,16 +1656,9 @@ plusieurs fois l'éducatrice de l'Europe; elle pourrait
 l'être encore une fois de plus : car elle semble être arrivée à une situation qui lui permettrait d'élaborer des
 doctrines qui revivifieraient le socialisme.
 
-GEORGES SOREL
-Novembre 1901
-
 (1) Compte rendu sténographique dans le seizième Cahier de la quinzaine, deuxième série, pages 118-119.
 fl Nous publions ci-après le journal de voyage que
 ‘4 Félicien Challaye nous a rapporté de Vladivostock.
-
-LA RUSSIE VUE DE VLADIVOSTOCK
-JOURNAL D'UN EXPULSÉ
-Vendredi 21 juin 1901
 
 J'arrive devant Vladivostock, venant du Japon, et voulant traverser la Sibérie et la Russie pour rentrer en
 France. Envoyé en mission d'études par l'Université de
@@ -1833,7 +1689,6 @@ qu'ils acceptent. Ce jeune Chinois m'a dit hier qu'il va
 s'établir à Vladivostock pour y faire du commerce : il
 # 104
 
-1 LA RUSSIE VUE DE VLADIVOSTOCK
 cherche évidemment à se concilier les bonnes grâces de
 ceux qui représentent la force. Ces Chinois sont d'excellents commerçants!
 
@@ -1864,7 +1719,6 @@ entrepôts d'une grande maison de commerce allemande.
 Puis, parmi la brousse verte des collines environnantes,
 apparaissent un grand nombre de forts; sur la hauteur
 la plus rapprochée, on voit nettement se profiler de gros
-canons.
 
 A dix heures, le capitaine du port revient. De nouveau,
 il me parle à voix basse et sans témoins, — en allemand,
@@ -1879,10 +1733,8 @@ Université de Paris, je montre les lettres données par
 
 | (ii 65 IV.
 
-L' f;
 |: TS
 
-Félicien Challaye
 , l'ambassadeur de Russie au Japon, pour le gouverneur de
 Vladivostock et d'autres gouverneurs, qui signalent cette
 qualité. Le capitaine du port me demande de lui remettre
@@ -1894,7 +1746,6 @@ prévenir qu'il y aurait danger à tenter de quitter le navire,
 même pour une courte excursion. On a placé sur notre
 bateau un policier russe chargé de me surveiller; on a
 même, pour lui, loué une cabine. Je suis prisonnier à
-bord. è
 Toute l'après-midi, en me promenant sur le pont, je
 + cherche à m'expliquer mon aventure. Je n'ai jamais eu .
 l'occasion de dire publiquement ni d'écrire ce que je pense
@@ -1920,22 +1771,18 @@ généreuse nature : il a dû être arrêté, condamné peut-être; w
 on a dù saisir chez lui ma lettre, et, dans cette lettre purement amicale, sans contenu politique, découvrir des sous-\
 entendus mystérieux et compromettants: Cest la seule,
 
-HR LA RUSSIE VUE DE VLADIVOSTOCK
 explication que je puisse conceyoir de la mesure prise
 contre moi.
 Vers dix heures du soir, je quitte un moment ma cabine
 pour regarder briller dans la nuit les lumières de Vladixostock. Accoudé sur le bastingage, tout près de ma porte,
 mon policier surveilie toujours...
-Samedi 22 juin
 Il fait très froid ; une fine pluie glaciale, que le vent jette
 par paqueis, rend le pont intenable. Les grands Coréens,
 qui déchargént des sacs de farine, grelottent dans leurs
-vêtements blancs sales.
 Chassé du pont par le mauvais temps, je passe la journée
 dans ma cabine. Pas gai, cet emprisonnement. Pas gaie non
 plus l'idée qu'il va falloir revenir en arrière, renoncer à un Ë
 |: voyage préparé longtemps à l'avance, à des études
-projetées…
 Dans ma valise, j'ai quelques livres : d'anciens Zolas,
 que je veux relire : Pot-Bouille, l'Assommoir; puis le
 dernier ouvrage d'Anatole France, acheté il y a quelques
@@ -1958,10 +1805,6 @@ fi tel ou tel côté, révolutionnaires : comparées à eux, les
 « œuvres allemandes et même anglaises du même temps
 ae apparaissent bien anodines, beaucoup moins redoutables
 
-F0 67
-TR (4 À
-
-Félicien Challaye
 au despotisme.— Jamais je n'ai senti aussi fortement qu'en
 ce moment, — en lisant Monsieur Bergeret à Paris, sur le
 Tsintau, devant Vladivostock, — l'originalité de la France.
@@ -1997,10 +1840,6 @@ infâme, et de plus généreux, dans la nation. Ces braves
 marins allemands parlent simplement, calmement, de ces
 choses atroces. Moi, je ne suis pas encore blasé, l''indignation me serre la gorge. î
 
-F LUE
-
-LA RUSSIE VUE DE VLADIVOSTOCK
-Dimanche 23 juin
 Toute la matinée, attente, singulièrement énervante,
 d'une décision définitive. À trois heures, le premier capitaine du port vientme rendre visite, en uniforme, l'épée au
 côté, les décorations sur la poitrine. C'est un homme
@@ -2034,11 +1873,8 @@ Done à la Banque, et à cette occasion me fera visiter la
 “ toujours et partout, me serre la main à plusieurs reprises.
 | Désormais, tous les policiers, mon policier même, me
 “Saluent avec respect. Vraiment, on ne saurait être plus
-1 courtoisement expulsé.
 
-EME | Tor
 Félicien Challaye QUE
-Lundi 24 juin
 
 Ce matin, un agent de police vient me chercher et me
 conduit à terre. La chaloupe traverse le port, d'une rare
@@ -2093,7 +1929,6 @@ _ l'échelle, on me rend mon passeport. Mélancoliquement je
 le relis: « Au nom du peuple français, nous, consul de
 France à Yokohama, prions les officiers civils et militaires
 des pays amis ou alliés de la République française de laisser
-passer librement M... »
 Enfin le bateau s'ébranle. Dans quelques jours nous
 serons à Simonosaki. Ce Japon, que j'avais quitté à regret,
 je vais le retrouver avec délices. Quelle joie de revoir ces
@@ -2109,9 +1944,6 @@ On cause de mon expulsion dans la salle à manger du
 Mercure, en buvant du thé au citron, autour d'un vaste
 n Samoyar, pendant que suivant les mouvements du navire
 
-à: AUS
-
-Félicien Challayre
 oscille la petite lampe qui brûle devant l'icône sainte. Les Î
 officiers du bord s'amusent de mon aventure sans s'en
 étonner. Un Américain célèbre la libre Amérique.—Le soir,
@@ -2140,7 +1972,6 @@ Monsieur le Ministre, dis-je avec un grand salut d'adieu,
 je vous assure qu'à mon arrivée à Vladivostock je n'avais
 de bombes ni dans ma poche ni dans ma valise. —"Oh!
 j'en suis persuadé », répondit Monsieur le Ministre, cherchant à corriger sa gafïe.
-Félicien Challaye
 () Suivant ce conseil, en rentrant en France vers le milieu
 d'août, je déposai une plainte au Ministère des Affaires étrangères.
 On me fit dire qu'on en prenait « bonne note », On vient de
@@ -2178,4 +2009,3 @@ Cette ruée de tout un peuple dans le mensonge et dans
 l'outrance nous fait plus de tort que je ne m'y attendais. Puis viendra la gueule de bois nationale, triste
 lendemain de la soûlerie que nous voyons. Il faudra
 quelque temps pour que ce peuple redonne au travail
-sérieux quelque attention.

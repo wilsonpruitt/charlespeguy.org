@@ -7,17 +7,11 @@ author: daniel-halevy
 isAvertissement: false
 wordCount: 12397
 ---
-
-DANIEL HALÉVY
-épisod
-CGAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 |
 
-d,
 Nous avons publié dans nos éditions antérieures et Î
 dans nos cinq premières séries, 1900-1904, un Si 1
 grand nombre de documents, de textes formant dos- À
@@ -40,8 +34,6 @@ autant qu'il se pouvait, une image en bref, un raccourci,
 2 4
 
 : Nue ie “à ik dl FA / " Le LU RSR 4 + Fe) : FLAN
-PARA ALT. | Re TENTE
-Ge RE CIE MEN A ANR re LL
 | une idée, abrégée, mais complète, de nos éditions anté- M.
 hi rieures et de nos cinq premières séries ; tout y'est classé f Pa
 dans l'ordre ; il suffit de le lire Pour trouver, à leur °1 « 2
@@ -54,59 +46,17 @@ _ sixième série et nos abonnés l'ont reçu à sa date, le M.
 | série; toute Personne qui jusqu'au 31 décembre 1905 744
 | S'abonnait rétrospectivement à la sixième série le rece- A %
 | | pait, par le fait même de son abonnement, en tête de la d é
-PEER : LU
 L. me > ROUS l'envoyons contre un mandat de cinq francs 0
 à toute personne qui nous en fait la demande. EN
-11708 ‘#1
-Re: es
-11 + Va
-en ; Ï r-#
-GE A:
-a FR 4 d fs
-EUX à ‘F0
-La f ‘ 4
-(EE ! TR
-+ TP ù S nr
-E 40 ds. e LES
-ML A
 dei: HR 1 La. gi! DENESS
 
-af PNG ES Qi NRA nee A A ar dal AAA Lou eo) £
-LURT ER EE D AMAR SNA a DEAN LE CEE DNA PANNE
-(LE À } D MD ES EL ANR ART à
 Fr AR il
-LU ; ! ‘]
 HR | où nu
-He f { A
-Fu té 14
-td 4]
-14 ù à Il
-FA, ï Re l
-A À | |
-a! AT { K \ W de
-Prose ; nue mn
-st ), ” * 1 us
-Fe LE RACE RAtO PORE
-ê $ L { ) ï f: ! 1
-pa ‘ à RM EN
 ner g à AL EE NT Le AE
-{#00 ! | FN ES EN
-OR à < FR tf MR NAE PARA LE 11e
-; POUR ANT PEU PE EN MER
-1 NS AD VE + 1, 1 G UMANRNMENNNNONS
 
-:, A RM RENE " PUR EN REA NE
-n x LE MBA RL ? » 194 NE)
-É Us  etnb PAR \ 4:
-Le spMho +
-ve * : Rs
-à À +R
-y ? + k Fa 4
-“ut DU MÊME AUTEUR ‘400
 k aux Cahiers de la Quinzaine +
 . Le présent petit index donne automati- “ Fe
 | quement pour tout volume et pour tout N
-cahier indiqué : pres 4
 | L a) le numéro d'ordre de ce cahier dans + à
 : le classement général de nos collections LS
 complètes, le numéro d'ordre de la série GE
@@ -116,7 +66,6 @@ complètes, le numéro d'ordre de la série GE
 . déteMninée, en chiffres arabes, de sorte "
 que V-r7 par exemple doit évidemment se ee
 lire dix-septième cahier de la cinquième ue!
-série ; ; REA
 fl b) la date du bon à tirer, ou, à son dé- LS:
 | faut, la date du fini d'imprimer, ou, à son f
 défaut, la date du cahier même; ER
@@ -125,191 +74,69 @@ défaut, la date du cahier même; ER
 î éditions antérieures et pour nos cinq pre- 14
 À , mières séries, la page du catalogue ana- rh
 Li: lytique sommaire où ce cahier se trouve “4
-&x catalogué. +
 1 0
 #1 sir
 | “15
-Li . à . . _ r
 _ Daniel Halévy, — Michelet et Quinet; — et dans le même LE.
 Cahier présentation des quelques textes (IV-21, mardi 4
-21 juillet 1903...................... deux francs 950 et 253 per:
-_ — — Histoire de quatre ans, 1997-2001 (V-6, mardi 24
-22 décembre 1903 ........................ deux francs 300 GENE.
-Er Le
-ON (y
 _ — — Louis Ménard, une étude préliminaire à la réim- Lee
 pression de Louis Ménard, Prologue d'une Révolution #75
-45 8, mardi 28 juin 1904............... quatre francs 384 ÿ
-pente, te
-JP . 7
-hs phà LE, « à jan 108 x 4
 
 RARE W ju ou ta un AA NA 1 QU AS FEU He
 TON ? EAN NET Gp an
-y s4 # 4 1
-VAE s 5 ñ F
-LATE F Ke "
-note ft OR ë 1%
-LE 0 | À ) EE ANS 4 Mo
-'RR APS 2) EN Co
-{44e AURA AT ARTE
-; ‘AY PR RATE ME:
 # , RARE EPA EE QE ENT, si
 à VERS fi ï RER MACRO ENT (AR
-NEA À 4 (an M (An CUVE AREA
-KO À LP Te U UE NS HU:
-Na A ; fi AA à PA RON, pal À
-D y ARRET A
 
-7} RTL À IF ON Rtée TS SE
-na ECG " , f À
 #2 0 DE A AR
-14 PEUT à Me
-4 si LU ae à “
-AE IN
 " DU MÊME AUTEUR mn:
-L: ; 4° : Li
 Le: en vente à la librairie des cahiers ‘#à
 __ Danrez HaLévy. — Essai sur le mouvement ou- 1 24
  vrier en France. — Société Nouvelle de Librairie et ‘5705
-?  d'Édition. 1901................. trois francs cinquante 4
-: A 0 À { À
-L'ANISIRE 157
 _ Danrec Harévy er RoBerr DREYFUS. — une traduc- #4
 tion française (1893) de Frénéric Nrerzscne. — le Cas 4
 _ Wagner, un problème musical........... deux francs { FA » Au P Là A
-4 à‘ Là “
-Dame Hazévy. — Émile Duclaux (1840-1904) 1478
-22 “Jp + « . .
 aprés un travail inédit de madame Duclaux. Librairie à
 _ de Pages Libres. 1907............. cinquante centimes nt.
-US Mis
-+ . \ 2
-54 k s il
 #4 ù APR t ".
-1] ÿ ñ
 ne Au
 Tr je v ° ET ', ‘LL en
 
-{ ÿ ie NET THEN AA MANGA 4h
-"ae A ARLES D AN PR PA ARS AAALEE LU N É
-RE AN RTE AN vas fe AD AC NAN AA He TE (AU
-\ Min ! LATE TENTE UE WHur Haut Life RASE
-VEINES Fe è J LS DCE NN
-‘AU LA CN AE ET
-TVR NA u, À L
-CHAR NAN EAAS) À " }
-om 1] #, ve x M.
-NN L À # à CALE
 FE PA) LE Led pee M NT) À
 MALTA 1 4 Ne CEA APN ARE ENS tai
-ENS \ A AN A LR MANN
-HE VAE DRE AU ARE
-‘4h (n { RON Rte AE RUN #1
-: 180 AAA AL A AA
 Le na LAINE MAMA VAR A Mie
-Di. 4 RO RE
-dre. ARR AT TE malt MAN ii
-ANG 1 L 9 VA NT ANA TE HA) EUR, LATIN
 RU) a ni A A AT 1 Li ‘4 joe UNS
-a 4 AL ÉD PIOEE 4) di
 
 LP er de #6 nt GS
-7 PA 4; AE NA 4, 3 . LA % à
-PME A AUX MEMBRES DEL,
-LAPS DE L'ENSEIGNEMENT MUTUEL “3
 13 pu XVIII: ARRONDISSEMENT Ne.
 RE _ Mes chers amis, 3
-\ A . 1 ie
-+ 310%
 Laissez-moi vous dédier ce conte où vous recon- ‘00
 _ naîtrez les traces d'expériences qui nous furent À
 _ communes et le souvenir d'un travail qu'assuré-
 _ ment nous ne renonçons pas. ‘2
 T0 Votre ns
 il or,
-‘4 Daniel Halévy #
-À EX
-348 __ Novembre 1907. 44
-n tr
- : 1%
-CR ( EL:
-F Du 4 ‘1
 
-1144 \ A4 LA V ht L 5 AA NET TNeS 1 L'ART HOUR f ‘ v I 4 EN
 UNIES Ÿ jt a FD LPSE ton 1 D AN D Va 1 pot 4
 ‘ MERS l MUR M AAE ge 40 si à
-EM ï : | DNA UN
-PONT \ d ù RAA AN EE A
-+R | REP es UN AE TEL (UNE
-ii NN PANIER CN NT AE DUR NN
 # Al { Det EAU DANANe MS SE AN ANS #1]
-TERRE 4 ï ‘ M ; EN ES MAN MEN
 | (OURS fi) î MAL ent PM ts LAON
-1000 ; UE Jeu AU AE
 KV à v { ne à D fa) VAN EX K LAN | tu) 19.
 (7 1e RAR de et nn (VA UNE nage di FAN ; 4
-EAN AA AE AS A 4. ia Con M ÿ
-À 2 2 NO TEE AN
 
-; nl PHeU Ç ; HER LE
-CH NODR EAP Er, 0% e [ Ed | 5H ES
 au RETR a an De, ÿe PEL 1 \ ( \'u Ter Su
-RAC ARE eo" ; { :
-OURS AO RP 14
 | A " LE }
-AN) »
-pat ti À . 14
-% à { ï in -
-à dr. 1100
-“RP R : HE
-ÿ 4 él ae
 ‘Se isode il
-bn à Ét:
-AE * tel
-11$e , ;
-AT L rs . ; 24
 | (1) oui
-DC ‘Le s Re:
-Dar 14
-A 4:
-4 :f ® 4h
-els Lt k + pe:
-« Tr up { { ) 7,108)
-10 D: € 2
-MAL + tu
-“LAVE QE:
 L'aHTe ri * Piste LS
-het: it 2: \ on
-LEONE |
-QUI ER
-EEE “il 10
-L'INÉNENNS 4
-HONTE "l
-DU 2e i
-RUE À
-Mt /!| 1-2 AR A!
 
 NET ce fs GLEN tu A Eee ACT EC HAN En 4
 (han Un TC PEN CO DA nt Le NL nn
-© “Hi Ÿ LAS MECS? 12 NA
 | VANNES 4 Vos JS
-SLA Et # L {
 Mes fl A | AMEL ( AE
-A 4 ÿ \ EU PA AA ARE LA
 | LAS ST AE DEEE ANA TERRE EE AT ES
-( (TRÈS. ; RUE A De FO ji
-y C (A TALTÉRNE LEN AUTEUR
-!LYAEONE NA] MEME AN CT AS
 mb l'A AS NRA FAST A GE AR
-fe Vi ENST AUS A LM We:
 NI A LA PA rt M LED
-WE ae | + 12 {MATIN Ta {
-DA! LU TAN ANT NE
-1 RAS MODE A EN RE EAP NB Re EE GA PE
 
-mn its At AIN ARNVLANE AT ER ME.
-153 UN ÉPISODE "1
 | TXT
 hu J' pars, c'est donc vrai... pensait Julien Guinou. ‘42
 Il entrait sur un quai de la gare du Nord,
@@ -329,11 +156,8 @@ b. d'une blancheur faubourienne. Il portait au cou des #1
 cicatrices de scrofules, et son visage n'avait de}
 "4 _ beauté que par l'expression volontaire, l'éclat dur | L:
 kc des yeux clairs. : n |
-‘M Fe Ê $ A
-à at er
 
 Daniel Haléoy ne LU
-à \
 Son père et son amie le regardaient d'en bas :
 Julien détournait les yeux. Il n'aimait pas son père
 et le méprisait. Il aimait Adeline et l'estimait assez,
@@ -349,7 +173,6 @@ Le père Guinou, connaissant bien son fils, bourra
 paisiblement sa pipe en attendant que le train partit. ;
 L'heure était proche : un employé survint qui ferma
 la portière, et Adeline, voyant Julien séparé d'elle,
-s'émut.
 — Tu m'écriras ? fit-elle. |
 — Mais oui, murmura-t-il avec ennui.
 Adeline eut froid au cœur et parlant d'une voix
@@ -369,9 +192,6 @@ fait. Mais ce mouvement de pitié fut rapide, Il re- ‘4
 
 _ garda la gare décroissante et respira profondément, ; dé
 dilaté par sa fuite et sa délivrance. À
-
-fs.
-Lr # ;
 
 . Adeline et le père Guinou sortirent ensemble de d :
 
@@ -396,9 +216,7 @@ D Quartier lointain, Ménilmontant. Elle avait oette ‘4
 % courses quotidiennes, le matin vers la ville, le soir È }
 
 | j À STAR REINE He TR Là FE
-Daniel Haléry ï 1
 vers le faubourg. Elle marchait vite, mais son |
-visage jeune restait soucieux. ! 1
 Julien Guinou avait toujours été son camarade.
 Ils avaient habité la même rue, étudié dans des à
 écoles voisines. Julien était un enfant songeur et F
@@ -462,9 +280,6 @@ apaiser cet état de neurasthénie. Un jeune bourgeois, |
 son université populaire, prit la peine d'intriguer ‘a
 & et sut lui procurer un lit au sanatorium d'Angi- ne
 4 court : il partait à l'instant même et s'y rendait. î
-Ann. “4
-
-Daniel Haléey
 
 Adeline se remémorait en marchant le pénible
 passé et tâchait, mais tâchaïit en vain, d'espérer un
@@ -494,12 +309,6 @@ où elle avait tous ses amis :
 ” — C'est aujourd'hui dimanche, se dit-elle. Sans
 doute ils sont venus au comité, Rudoul et le vieux
 Marot, ou monsieur Dorsel ou mademoiselle Gail- }
-lon... J'y passerai.
-mn al
-
-à UN ÉPISODE
-
-\
 
 La jeune fille, dans la tristesse même, restait si |
 accessible aux impressions heureuses que ce rapide é
@@ -512,7 +321,6 @@ d'une part et d'autre part des maisons basses, dont
 l'une est décorée d'une inscription rouge : Le Foyer, 14
 
 * . Université populaire et Coopérative du XX° arron- s.
-dissement. ;
 Adeline entra dans cette maison. Elle traversa . :
 
 _ vite la boutique mal ordonnée, sans prendre garde k
@@ -536,8 +344,6 @@ et s'assit. Ses yeux étaient rouges et elle froissait \
 Une table, sur laquelle des paperasses traînaient ; s
 \ une bibliothèque, où quelques centaines de livres É
 
-Daniel Haléey
-
 étaient rangés; une trentaine de chaises, dont plus
 
 d'une cassée, encombraient ce local. Trois estampes,
@@ -552,14 +358,12 @@ davantage la désolation.
 
 Ils étaient réunis au nombre de sept, derniers
 fidèles, derniers soutiens de cette société qui dépé-
-rissait malgré leurs efforts : Rudoul, employé-
 comptable, au vaste corps un peu courbé, au front
 plissé, homme d'espoir invincible qui depuis vingt
 années suscitait et faisait durer des groupes d'ac- |
 tion ouvrière. Ses cheveux grisonnaient, il sentait |
 la fatigue de l'âge et la mélancolie du médiocre
 succès : mais un instinct de lutte le maiïntenait tou- |
-jours. — Marot, vieillard ténu, à figure fine, longue
 et barbue, bourgeois de mise râpée. IL avait été 1]
 « pion » dans un collège, et répétiteur de mathéma- 4
 tiques ; puis, retiré, vivait d'une rente infime mais 3%
@@ -570,11 +374,7 @@ aimait la musique, et un de ses parents lui envoyait J :
 \ parfois quelque billet : il n'en fallait pas davantage e:
 pour lui assurer du bonheur. —Groslay, le serrurier, M
 de mine campagnarde, âme ouverte, encline aux so- |
-ciétés aimables, aux espoirs généreux, inaccessible
 
-20 ?
-
-ù UN ÉPISODE ‘
 à la vilenie parisienne. — Mégy, l'électricien, ado- (
 lescent au front ample, aux yeux bleus, le plus de
 jeune du groupe et le plus grave. — Dorsel, différent d'allures et de tenue, bourgeois, seul de sa
@@ -600,10 +400,7 @@ peine ou malades qu'elle allait visiter. A '
 En d'autres temps ils se retrouvaient plus nom- N
 breux dans cette petite salle : quinze, vingt, zélés, ,
 | fé. L Ê
-L.. TETE A k
 
-; Re ATEN AN M ni
-Ha Daniel Haléey \
 heureux et riches d'intentions. Aux soirs de confé- |
 ; rences on ouvrait la porte de la boutique et les
 auditeurs s'y pressaient. Parfois il fallut s'établir
@@ -631,18 +428,14 @@ nullement; il n'est pas tuberculeux; c'est de repos À
 qu'il a besoin ; c'est un temps de repos que nous lui £
 avons procuré. |
 22 4
-; * Le
 y PANNES ses
 
-PPT MED UN ÉPISODE
 Adeline hocha la tête comme pour décliner cette
 pensée de réconfort.
 — J'aimerais mieux qu'il soit malade, et très
 malade, dit-elle, et qu'on me dise le nom de sa
 maladie. J'aimerais mieux qu'il soit tuberculeux.
 Je le soignerais alors, je le guérirais peut-
-être...
-Groslay murmura : St
 — C'est le cerveau qui est touché.
 ; La jeune fille semblait absorbée par son émotion.
 Et tout à coup avec un long sanglot qui lui rompit
@@ -656,28 +449,22 @@ sollicitude et gêne. Mademoiselle Gaillon lui toucha
 doucement l'épaule.
 — Adeline, dit-elle, venez avec moi, sortons...
 Les deux femmes partirent ensemble, et Rudoul,
-Dorsel, Mégy, Marot, Groslay se trouvèrent debout
 autour de la chaise restée vide.
 — Notre pauvre Foyer! dit Groslay.
 — Il finit mal, murmura le vieux Marot, et nul
 de ses compagnons ne contredit cette prédiction de
 fin qu'il avait prononcée. Le départ de Guinou, les
-! 33
 
-h Daniel Haléoy A
 larmes d'Adeline avaient fait entrer en eux le senti-
 ' ment de la défaite.
 Ils n'eurent point de plaisir à s'attarder dans cette
 petite salle où ils avaient en vain si fidèlement
 | peiné. La matinée étant fort avancée, ils sortirent.
-Mégy, Groslay, Rudoul allèrent ensemble; Dorsel
 et Marot les devancèrent un peu : une sorte d'instinct les groupait ainsi, les ouvriers marchant avec
 les ouvriers et le jeune bourgeois avec le bourgeois
-déclassé.
 — Monsieur Marot, s'informa Dorsel, aviez-vous
 vu Guinou, ces temps-ci ? ï 4
 — Un peu. Quelquefois il montait dans ma
-chambre. ]
 — De quoi vous parlait-il ? 4
 — De ses lectures, de sa santé, de ses colères, 1
 surtout de ses lectures, je crois. |
@@ -686,12 +473,8 @@ Et le vieil homme ajouta : Û
 victime de nos livres. À
 De mes livres, traduisit aussitôt Dorsel, non sans LÉ
 quelque ennui : car il avait ouvert sa bibliothèque à LL:
-Guinou. Î
-Û * FA
 Cependant Guinou descendait de son train et, \
 laissant ses paquets à la station, dédaignant 1
-2% 4
-1, Hu NAS
 
 A cal ut UN ÉPISODE
 l'omnibus où s'entassaient quelques malades, il
@@ -720,12 +503,7 @@ aux contraintes soudain supprimées, à ce grand
 luxe de solitude, de lecture et de silence qu'un |
 hasard merveilleux apportait dans sa vie. à
 aù un épisode. — a
-‘os | ;
-L. ji À
-MAL) ri
 
-)
-‘ Daniel Haléey MEL,
 Guinou dut subir une visite médicale qui lui
 fit perdre un temps dont il maudit la fuite.
 Libre, il prit en hâte quelques livres et s'installa
@@ -744,7 +522,6 @@ un acte solennel, il ouvrit son sac, en tira Les !
 Fleurs du mal et mania sans hâte ce livre qu'il ne
 connaissait pas.
 
-I1 feuilleta quelques pages, hésitant à choisir,
 craignant de manquer l'instant délicieux, la pre- 4
 mière entrée dans cet univers inconnu qu'un tel jour È
 lui ouvrait. Il leva les yeux, s'atiarda, fit durer son 1
@@ -753,14 +530,10 @@ plaisir et son trouble. \ |
 — Vivre ainsi, pensa-t-il doucement; dans un Ÿ |
 fauteuil, avec des livres et son temps à soi, tout de
 son temps bien à soi... vivre ainsi, comme M. Dor- Le
-sel. à
 
 : Il considéra les titres en haut des pages : Spleen
 et idéal; Tableaux parisiens; Le Vin: Révolte: I
-26 é
-k 5 M LA
 
-: Là UN ÉPISODE
 | La Mort; il hésitait, feuilletait toujours; enfin,
 | parvenant à la dernière page, il lut :
 O Mort, vieux capitaine, il est temps! levons l'ancre!
@@ -783,13 +556,10 @@ _ l'horizon des bois. Guinou rêva, réfléchit, médita :
 jusqu'à la fin du jour; et ses lèvres murmuraient
 _ l'alexandrin de Baudelaire :
 \ Nos cœurs que tu connais sont remplis de rayons.
-“a
 Il réussit à sauvegarder sa solitude. Les poètes
 _ qu'il aimait, le souvenir innombrable des images,
-MAL ms
 
 | 7 D
-k Daniel Haléey
 des rythmes que retenait sa mémoire jeune et
 ferme, maintinrent son esprit dans un état bizarre
 de constante et douce obsession. Il continuait à lire
@@ -818,11 +588,8 @@ Il lui parut que de mauvais amis lui déniaient son
 ; droit au repos, à la solitude et ramenaïent sur lui |
 d'une façon cruelle les ombres qu'il avait chassées.
 Il prit les enveloppes closes, les déchira sans même
-28 ! : 4
 
-A te tin
 Lin ui ASSENNEE AA LFAAE (OP ANS Et PR TAEX PAUSE
-PART NE TU UN ÉPISODE
 _ Les ouvrir, les jeta d'un mouvement irrité : il retrouva soudain son calme et sa douceur de vie. |
 Étendu sur sa chaise longue, il lisait. Quand il .
 se promenait, un livre à la main, il lisait encore. Il y
@@ -837,9 +604,6 @@ Julien réussissait ainsi à ne rien voir des choses !
 . crité des repas pris en commun, ni par la mélancolie AIRE
 de l'édifice blanc aux deux ailes arquées qui semblait tourner obstinément vers le soleil ses hôtes |
 souffreteux et gisants. R
-4 + « , X * &
-< +
-ia ; -
 _ Les camarades du Foyer avaient perdu courage b
 _ et, comme honteux d'être vaincus, évitaient de DE
 . se rencontrer. Victimes de leurs goûts singuliers, u
@@ -847,13 +611,8 @@ _ ces hommes sans familles vécurent solitaires dans '
 _ leur vaste faubourg plein d'enfants, de rires et de É
 _ cris, de rixes et d'appels, de sensualité, de colère ;
 _ et d'amour.
-au + 1
-de , 29 un épisode. — 2. d
-he, ci 2:
-FUMER AT: +,
 
 A RAA EE ne cu
-Daniel Haléoy RENE
 
 Adeline était fâchée d'avoir montré ses larmes, sa
 faiblesse, et triste de l'abandon où Julien la laissait :
@@ -886,13 +645,7 @@ Ce n'était pas un mensonge. Mais son langage 1
 eût été plus véridique s'il eût avoué qu'il restait 4
 mal impressionné depuis le départ de Guinou, et
 
-, … LU HAN SRE é ; + L
-
-dé. TO CO P uee értsüne NL
-
 très en doute sur la qualité des services qu'il pou- s
-
-vait rendre. j
 
 La semaine suivante, on espéra la venue d'un
 
@@ -940,13 +693,9 @@ __ arrêter au nom du peuple le commissaire de police 1
 
 _ délégué pour surveiller son langage. ' {
 
-11 z à
-ER
-
 | Daniel Haléoy M | k
 
 Groslay, tout heureux de ces histoires françaises,
-riait.
 
 Marot connaissait bien l'histoire du siège de Paris.
 
@@ -978,7 +727,6 @@ sang et couru sur des cadavres.
 
 ne riait plus, où avez-vous été ?
 
-— À Londres. :
 Groslay désira des histoires sur Londres. Marot
 
 y avait vécu fort mal, bien heureux encore d'y pou- 4
@@ -987,12 +735,6 @@ voir vivre, car les Français avaient eu la vie amère i
 
 et difficile dans l'énorme ville pressée, la ville ;
 
-32 |
-M RSUNON
-
-RE AT RE RO US
-M Es UN ÉPISODE ,
-“,
 humide et noire. Beaucoup étaient morts : l'un,
 bon et gai camarade, de faim sur un grabat; et à
 Marot en avait connu trois qui s'étaient suicidés.
@@ -1000,7 +742,6 @@ Après sept années il était revenu à Paris où |
 il avait trouvé des groupes nouveaux, conduits |
 par des meneurs nouveaux, et qui pensaient, agis- 2
 saient, s'illusionnaient aussi d'une manière nou- K 10
-velle.
 Marot se tut presque étonné de trouver tant :
 .  d'amertume au fond de soi.
 6 — Père Marot, fit Groslay, votre causerie n'est |
@@ -1021,9 +762,7 @@ ils font des bêtises comme nous autres. |
 — Non, maintint Groslay, frappant du poing ‘1
 contre la-table, je dis bien, c'est l'ignorance È
 
-“ à Daniel Halévy.
 qu'il faut combattre... Ah, si on savait, si on
-savait...
 Marot et Groslay sortirent ensemble. Rudoul ne
 les suivit pas, ayant dessein de travailler ce soir-là
 et de vérifier les comptes de la coopérative. Il s'assit
@@ -1056,7 +795,6 @@ quoi les arbres grandissaient ainsi, par, dessus à
 les maisons mêmes, et pourquoi les étoiles scintil- "al
 laïient si nombreuses au ciel, les unes si écla- À
 tantes, les autres si pâles, un jour il saurait tout 1
-cela ! Æ
 
 Dès lors il travailla ; il apprit seul à lire, fut le N
 . premier à l'école; puis constamment poussé par cet J
@@ -1081,7 +819,6 @@ brouillerait dans ce désordre, qui est le mal, et ce mal |
 cesserait. Si on voulait bien attendre, avec un peu de
 patience, avant d'agir, et travailler comme n'importe è
 
-Daniel Haléey
 quel ouvrier qui va doucement quand le travail
 est difficile, alors on pourrait voir clair, on pourrait trouver l'ordre, et les hommes sauraient leur
 place, leur place dans la vie: car cela surtout ils
@@ -1089,8 +826,6 @@ L ne le savent pas.
 IL était minuit passé. Rudoul réfléchissait, la tête
 inclinée sous un poids invisible. Rien, dans le faubourg désert, ne distrayait le cours de ses pensées
 et il méditait obstinément sur la vertu négligée du
-savoir. :
-2 +
 Mars touchait à sa fin et chaque jour augmentait |
 le bonheur de Guinou. Son imagination était libre |
 d'entraves, de gênes irritantes. IL oubliait le passé, |
@@ -1106,7 +841,6 @@ Il était quatre heures. Pendant deux heures
 encore, il resta étendu, tâchant à jouir des rapides
 instants, de l'air, de son livre, de la clarté. Il répéta 4
 36 1
-‘ Li f a |
 
 RME on ÉesoDE 4 l'E
 _ souvent la strophe de Baudelaire qu'un hasard lui a
@@ -1115,37 +849,22 @@ _ avait révélée au premier jour de sa retraite : EL
 Ce pays nous ennuie, 6 Mort! Appareillons ! » EX
 4 Si le ciel et la mer sont noirs comme de l'encre, Fi WI
 = Nos cœurs que tu connais sont remplis de rayons! CU
-” ; TiVeE
-' A 4 111 FO
 1 déposait, il reprenait son livre et réussissait à +
 . sauver parfois quelque lambeau de son bonheur 0
 : menacé : puis il était ressaisi par les transes. à
-£ ?
 Il s'endormit avec peine, s'éveilla dans la nuit et 51
 fut pris de panique : il entendit battre son cœur, ; M
 _ baïtre sa montre, il sentit le passage du temps qui “a “#
 _ précipitait sur lui les souvenirs de son passé sordide ‘410
-0 $ « È tn
 Ni et les pressentiments de l'avenir épouvantable. 11
 __ Redressé sur son lit, il attendit longtemps. Enfin le 4
-its . . , MR
 calme vint et le sommeil. « 3
 Le surlendemain il partit. Re;
-1 “1
-! à * . Mid 4 1
-‘40 : 1
-En !
 .  Guinou s'arrêta au sortir de la gare du Nord. Le al
 jour était humide et sans clarté. Les gens allaient \N
 A0 ans la boue en regardant leurs pieds. Il se 4
 demanda : où irais-je? Il se sentait la victime d'une h:
 DU de Det.
-Do vo ! LA
-x “% ll 4 ' 37 un épisode. — 3 jj [L
-TAN SR A
-Fi | -
-
-Daniel Haléey
 
 Il marcha pendant quelques minutes, puis s'assit
 
@@ -1178,28 +897,21 @@ assailli par tous les souvenirs de cette vie où son
 destin le rejetait : cris, rudesses, bêtise épaisse, À
 désordre et négligence, clartés douteuses, odeurs
 
-38 F
-
 pi PAPA, De ti TEUN ÉPISODE Ü 14
 __infâmes. Quelques rythmes de Baudelaire lui arri- 14
  vèrent tout à coup, traversant, blessant son esprit ee:
-1A x Le à
 _ de leurs moqueuses et lyriques cadences : ; 1
-(A +4
 ! Des meubles luisants, STE
 <a Polis par les ans, :. 38
 (à Décoreraient notre chambre; j 4}
 4 : Les plus rares fleurs Ta
-6 Mélant leurs odeurs CL
 1 Aux vagues senteurs de l'ambre, 4
 1 } Les riches plafonds,  :
 6. À Les miroirs profonds, 15
-Ne, à 4
 ‘1 La splendeur orientale, ‘4
 N Tout y parlerait + A
 1 _ A l'âme en secret Re
 D Sa douce langue natale. 13
-Ke u. ñ + fi
 "4 « Ma vie, toute ma vie, s interrogea Guinou; est- de
 ce bien elle qui est ainsi, à jamais sordide, à jamais He.
 … perdue ? » Il répéta ces mots, ma vie, serrant les a
@@ -1210,17 +922,10 @@ on l'eût dérobé. Le rythme léger l'assaillit encore : 8
 _ Sa douce langue natale. Ne
 At | Là, tout n'est qu'ordre et beauté, LE
 ( NA: _ . Luxe, calme et volupté. Ne
-fe AS à . : à à,
 _  Ampuissant et furieux comme un animal pris au | 1
 piège, Julien laissa tomber la nuit. 10
-\FNTRRE La
-Ne AU Fr 39 ji A L
-"EME Re
-AS 118 \ 10
-A: Le : À 1
 
 | A di
-; Daniel Haléey
 Le lendemain, tardivement éveillé, il reconnut de
 ses yeux las la laide chambre et se rappela une à
 une les tristesses de son état. Un bruit de pas montait de la rue. Ils vont au travail », pensa dédaigneusement Julien, € moi je n'irai plus... » Il réflé-
@@ -1274,9 +979,6 @@ Adeline allait un peu vite, préoccupée à cause de ; £
 _ Guinou et de son étonnant silence. La date de son ‘2
 _ retour devait être bien' proche : que devenait-il? ‘5
 _ Elle entendit: , Dee
-_ — Adeline! ‘#4
-
-: Daniel Haléey
 
 C'était Guinou qui l'appelait. Tournant un peu la
 tête, elle l'aperçut, l'air pâle et singulier, et lui
@@ -1285,13 +987,9 @@ saisit les mains en riant de plaisir.
 — Julien, comment vas-tu ? D'où sors-tu ? Nous
 nous demandions tous.
 
-— J'ai quelque chose à te demander, Adeline,
 prononça-t-il avec un accent bref et dominateur.
-Écoute.
 
 — Qu'est-ce que c'est ?
-
-— J'ai besoin d'argent.
 
 Adeline l'écoutait stupéfaite. 1
 
@@ -1317,13 +1015,11 @@ devina cet instant de faiblesse.
 quand tu es de retour à Paris, pourquoi tu ne travailles pas, où tu demeures. Je ne sais rien de toi,
 
 depuis deux longs mois rien. Je t'ai écrit, tu ne
-F 4
 
 js UN ÉPISODE
 m'as pas répondu ; Mégy a vu ton père, qui ne pouvait rien dire. Julien, sois comme autrefois, parle.
 
 Julien Guinou fit un geste agacé, puis, à sa grand
-honte, se tut. À
 
 — Où loges-tu ? réitéra Adeline.
 
@@ -1348,19 +1044,16 @@ parut bizarre : mais Julien était toujours bizarre.
 D'ailleurs il l'avait touchée et rendue moins soup-
 çonneuse. Mais elle ne voulait pas accepter le secret
 de son adresse. Elle en était inquiète, froissée, et le
-dit :
 
 — Julien, je te donnerai ce que tu désires, j'en |
 serai contente. Mais tu me diras ton adresse. Je
 n'accepte pas que tu te caches de moi et que tu
 m'arrêtes dans la rue parce que tu as besoin d'argent.
 
-5: Daniel Haléoy nn PANNE
 Julien Guinou, comprenant qu'il ne pouvait éluder
 la demande, indiqua l'hôtel où il logeait. Adeline
 l'embrassa.
 — Attends-moi ce soir, dit-elle, je te porterai une
-petite somme. !
 Julien Guinou, mécontent de soi-même, ne retint
 pas son amie. Elle disparut, légère et gaie.
 Ce même soir elle le revit et le quitta très avant
@@ -1385,7 +1078,6 @@ pas Julien, Julien ne l'aime pas, de tous tempsils
 venir, ou, mieux encore, monsieur Dorsel; il conde % M 1
 
 de à ue hi DNS ÉPISODE NL PR KT
-OMR NAT d > , Ms
 Ris Julien, il sait lui parler; monsieur Dorsel aurait 54
 compris; j'aurais dû lui écrire; je peux le faire en- 4%
 _ core; il est bon, il ne refusera pas... j'irai; et il 5
@@ -1397,7 +1089,6 @@ et si désespéré. Elle ne déjeuna pas et se hâta vers 4 ù
 _ homme installé derrière son bureau, paisible et PR:
 classant des livres. 14
 k Elle lui dit tout, elle avoua son grand désir qu'il 1
-intervint. k 54
 _ Dorsel écoutait en silence. Adeline fixa sur lui D.
 ï des yeux suppliants. Le
 — Vous me trouvez indiscrète? fit-elle. B:
@@ -1410,10 +1101,7 @@ Adeline hésita un instant puis osa demander : 110
 pi  — Je déjeune et je pars, dit-il. 208 » La visite d'Adeline avait bouleversé Julien. Elle 4
 D aa la seule figure dans son passé qu'il n'eût É
 _ jamais détestée. Il avait eu l'imprudence de la cherAL 4 + 'FOl
-hÉ Le. 4 un épisode. — 3, : { *
-es. CT
 
-h ) Daniel Haléey
 cher : l'ayant revue, et repris dans ses bras la faible
 habitude de vivre, il se trouvait sans force. Si ellemême fût revenue ce matin-là, Julien lui eût sans
 doute confié le secret qu'il avait retenu la veille à
@@ -1421,7 +1109,6 @@ grand peine. Il eût en pleurant tout avoué, tout promis comme un lâche enfant
 
 Il entendit un bruit de pas sur l'escalier, et ces
 pas s'arrêtèrent devant sa porte. Ce n'était point |
-ceux d'Adeline, si légers : Julien Guinou perçut en
 eux une pesanteur, un rythme familiers.
 — C'est là? fit une voix lourde; et il reconnut la
 voix de son père qui en même temps voulut ouvrir
@@ -1436,19 +1123,14 @@ dehors le père, penché sur la rampe de l'escalier,
 conversait avec le garçon d'hôtel. On ne répond
 pas, disait-il, la chambre est vide. Elle est occupée,
 affirmait le garçon. Le père ébranla violemment la
-porte. |
 — Julien, cria-t-il d'une voix impérative, réponds ,
-situes là! |
 — Comme il crie, la brute! pensait Julien. Moi je ‘
-46 À
 
 de ipidate | UN ÉPISODE
 ne veux plus le voir. Il a gâté ma vie, qu'il me
-laisse mourir.
 Le vieil homme se lassa. Julien l'entendit qui
 disait au garçon : « Je reviendrai ce soir », et le |
 bruit des pas trop connus s'éloigna.
-Julien respira. Soudain curieux, presque avide, |
 il courut à la fenêtre, tira les persiennes et se mit
 aux aguets. Il vit son père qui sortait de l'hôtel, ,
 puis s'éloignait, se dandinant à la manière des vieux |
@@ -1495,10 +1177,8 @@ prêcheur était un peu déconcerté. !
 — Guinou, dit Dorsel, je suis venu pour vous |
 servir, si je le puis. Le puis-je ? 7.
 Guinou regardait ailleurs et paraissait ne rien F
-entendre. 4
 — Qu'avez-vous ? interrogea Dorsel. ' À
 Et Guinou se taisant toujours, Dorsel insista
-+ longtemps. À
 — Qu'est-ce que vous nous cachez? — Vous sen-  ,
 48 1
 
@@ -1508,7 +1188,6 @@ Que je m'en aille ? Je ne m'en irai pas, Guinou. Je ‘4
 sais que tout à l'heure vous avez renvoyé votre 4
 père. Vous inquiétez Adeline, vous m'inquiétez
 _ aussi, tous vos amis sont inquiets, Guinou, répon- ro
-_ dezmoi! (e ‘i
 Julien Guinou maintenait son regard détourné et “ ‘
 son air impassible : ce n'était qu'apparence. Cette 0
 voix de Dorsel humilié lui rappelait les réunions du ii
@@ -1523,21 +1202,16 @@ f quoi, dites pourquoi vous ne répondez pas ? | 4
 à Dorsel, s'étant levé, s''approcha du lit. Guinou se 1
 _ retourna, présentant son dos. 5
 Y — Guinou ! fit Dorsel d'une voix triste et repro- 3
-{à chante. “ 4 Ï
 À Sa main toucha l'épaule de Guinou qui la chassa ‘4
 Gi :d'un mouvement léger. Il resta quelques minutes, “à .
 _ hésitant auprès de ce lit; il aperçut les livres sur la 1 À
 table et lut les noms de Baudelaire et d'Huysmans. ‘à
 Il était gèné par l'angoisse. 4
 | " ‘4
-de: Dr: 1
 
-Daniel Haléoy ji |
 — Puisque vous ne voulez pas m'entendre, Guinou, dit-il, adieu !
 Il regardait encore cette nuque et ce dos immobile sous les draps. Il partit et ne sut pas que Guinou
 pleurait dans la ruélle du lit.
-%
-x *%
 Guinou, bientôt levé, quitta l'hôtel, emportant
 son léger bagage de linge et de livres. Il se hâtait
 craignant un retour de son père, Mégy, Adeline ou quelque autre. Il se dirigea vers la Villette et
@@ -1556,9 +1230,7 @@ jamais tu as faim, rappelle-toi ceci : arme-toi, tue un |!
 bourgeois, la guillotine te guérira de la misère, » À
 Guinou pensa, les dents serrées : « Ouï, je devrais l
 tuer. qui? Dorsel? » Il n'imaginait pas sans (l
-50 |
 
-EUROPE UN ÉPISODE 1
 plaisir son geste brusque et le corps du jeune
 homme si bien vêtu soudain tombant à terre dans le
 sang. Mais il s'objectait à soi-même : « Non, je ne dois
@@ -1598,11 +1270,6 @@ ces pauvres devant qui tremblaient les riches ; leurs :
 
 mains serraient ses mains enfantines; il leur parlait, |
 
-fi 4
-
-À
-
-Daniel Haléoy
 on l'écoutait; il les suivait aux réunions, aux fêtes
 et, avec Mégy qu'il avait connu là, colportait placards, brochures et chansons.
 
@@ -1635,9 +1302,6 @@ colère, une conviction et un but. ;
 À Il rentra, se coucha, fut longuement agité parmi :
 des pensées et des rêves, trouva enfin deux outrois : ê
 
-. f
-Jia t DRE
-
 bi | PATATE UN ÉPISODE a di
 _ heures d'un sommeil lourd. Un rayon de soleil û
 matinal, s'insinuant sur son visage, l'éveilla : il se
@@ -1665,14 +1329,8 @@ enquête à la Préfecture de police : mais ce pouvait
 Quand tomba la nuit— sa dernière nuit — Guinou a
 
 _ reconnut que nulle part mieux qu'à l'hôtel on ne 4
-ù | 53 47
-fe Eu
-" L : *:
-
-lee M
 
 4 RD PAR APR EN PNEU MEENIRRE hd
-Daniel Haléey
 mettrait la main sur lui : il sortit de nouveau, erra
 dans les rues sombres, dormit sur un bane de bois
 dans la gare d'Orsay, s'éveilla transi par la fraîcheur,
@@ -1698,16 +1356,12 @@ Il s'appuya au parapet du quai, contemplant avec |
 un effort d'indolence l'eau mouvante du fleuve : 4
 « Est-il possible, songeait-il, que cette eau, demain |
 comme aujourd'hui, s'écoule, et que moi... » Nison
-5 |
-: j
 
-PT UN ÉPISODE
 instinct ni sa raison ne comprenaient qu'un abîme
 infini pût s'ouvrir pour lui seul. Il se réfugia dans
 l'église : un rayon étiré, bleui par un vitrail, semblait posé sur le vaisseau désert. Guinou fut soulagé
 par l'immobilité des choses, l'enveloppement des
 sons, par une impression de vie déjà suspendue,
-bientôt transfigurée.
 
 Dès que l'heure eut sonné il quitta l'église et ;
 pénétra dans la galerie des tombeaux et des sphinx.
@@ -1732,10 +1386,7 @@ d'artistes et quelquefois des noms de villes que }
 M. Dorsel avait vues et décrites. Il s'en souvint et x
 il fut triste. ; i
 ,
-QUE 58)
 
-é AN A PEUR US
-Daniel Haléey | a
 Une heure avait sonné : Guinou sentit un peu la
 faim, sortit et déjeuna de trois gâteaux, debout.
 dans une pâtisserie. Puis il reprit le chemin du musée. Il se dirigea vers le salon carré et voulut y
@@ -1759,6 +1410,3 @@ faubourg où il voulait mourir. La course fut longue !
 et diminua son courage. Il considérait avec trouble,
 avec mépris pourtant, cette multitude minable F
 attachée à la vie, parmi laquelle il cheminait. 3
-
-1 {
-Ÿ Ti

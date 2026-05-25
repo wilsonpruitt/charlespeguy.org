@@ -7,58 +7,22 @@ author: julien-benda
 isAvertissement: false
 wordCount: 44447
 ---
-
-te AUCUN: HU à EM ARR PE RCTRAAES
-; 4 QE FA NA AA AA k C0 ture POSER EN À:
-(RES E SSRE AN EN à TT Re dt JS ii VE VRAIES PEL NAN Re
-1: 1 PRET CN RELE AR PLPARERT ALPORNE GS SATA 2 RÉEL MITA RE & ARINNESEES ,
-NAGER VOA RURAL HER PRE ARUISE PAS SEnE ht i
-e Ro di me, La e (3 VE LA AE jets 3 £ F. £ 62.5) À ARS ue & Lot" wi ER HS
 he AR LEVAN PE QUE APS QUE PUR VA RE Al AH de LEA
-MR A
 ous » ne HN ti EN PAL NE « PTE ou Maux: “ na KA
-LUE 1 ARRETE CHAR AS Aa SN YEY + Lio RU La UT
-LUS FO + ae 1 APRES EE HAE) HAS
-l 72, 4e $ y & FAO CS XL PRET SCAN FN
-FRAC LASER MN PCA RSA À CURE NO ke
-MER. JE 4 ë À LRU À ANS RUN
 SELON s Ÿ vi FE RE EN EAN AT DEN Le ia M TRE
-CP Dis, ‘ £ + " / IR (SRE tt
 PR Pl CE NE F M x fe ; AASOPARS de ER
 RAS RE aie SET ie EUR # : a L M à, Fi AUS
-HAE CA LR ARS PERS BAS A 4: lb
-ONE: PUR, VoURT ELA ‘ Ÿ A1 ed RoHS DATES
-+ TUE Fe RES VE ' HT VENTRE TA ( Heu THAT OU: PARA CRL L
-IE COR A à ls MeA (RE SA) NY PAPA CEE à OUR:
-nu MAUR Se MDES DAMON HET « 2 SAS AE ACC (dE
-JUS SERS D. Aa VAN E PRE NES ER dr ‘1 PHARE Mere
 LV TER Nan EUETE enr HE: DAË DTA de tee RAM TE, 4 ls LA MAT À 3
-NS C0 EEE MESRINE | NP RO RE Ets | Mt: Ÿ PT LT RE
 
-TENTE JS MAMAN de AR LUE NA ANUS PRADA ALL À 19208
-HAE Es # Fe je A AETD El : Ke EME DUTE r, SD ON BOAT ATS ER ATEN ES
 INT ju RES VAI TES Ni KES be MN He RE:
 L'Enr NL MN RS FT CAMES HAL ee OAV SET A RE AU 70 4
-SN et A AUNRANE RE MENT ONU FU TOR SHELL VE VAE TM SA Le ARE DEEE
-Herr ORAN LE NC RE En HA Pt LU: _ FKRT/ATANTEE MNT MARATT ONE
-HA AAA L& Let AD r THE AAENNE SRÉMRCTE ARE REP De RS NS
-ENS Qt DAT (CS ANNE VAE UPANAT NAME RE Et PRES SENTE Le NN
 CA NUE ù Jrt SAT PONT es LA" RTS ES ET EUR Ce AE HT AU DELLE
-{ia TRS ii 570 k ROAD 4 DENUFLNESS fi2se INC 4 RO Pret RUE d
-: A EE SAN IENS War #1 j : \ PAU U LEE À SEA 17) TRE LPS RENE
-14 NE Er À un x FOOD PAIE LT PARUS LA” LAN TO AE
 AR 4 1e LT EE nt A PURE À fe AN OR LAN: EAN BUS Le
-) RER Ir } ( LS Pr" NANTES e w
-11 EN AR RS UE Eten RAT
-+ SPC TE VAN NAME: HAS LR Ÿ PROMO
 CI 1 ARE EUR AN tt Le VAS APN In LEE ARR ANR CN REA re
-AMEN AN +54 M € Te »Ÿ l N PAR At NE VINS ANUS | 48e x ES SC
 LR PEARL CINQ TL TT NAN EN ERIS RANONORRRMEE MREEN ET A API NA ARS A ve 1h Der: AU
 te UM À SENS Pen À CA { EPA ARE Be PANNE ne LLPANe MORE 0:
-METRE AN ñ 4 55 j à LENS ER NP FI LAN +4! 00 tes È
 ve A CEE RARE NT i AMEN VU AAA AIS LATANS ES 1 NUE dt
 ie le re ET ds RAA TM VERS A MER qu R FES os 4 A (EL FA PT
-LAURE LEE CURE DRE NN ME La à LT AT TMS PANR AUe à Le $
 
 DU RNA Ines RAR 0
 
@@ -132,8 +96,6 @@ avait été déplorable; ce pessimisme moral ne convenait
 ni à elle, ni à l'enfant. Au fond, elle ne voulait avoir sur
 son fils d'autre autorité que celle de son affection. Et
 
-LA NOUVELLE JOURNÉE
-
 elle n'avait pas tort : car entre ces deux êtres, si
 ressemblants qu'ils fussent, il n'était d'autres liens que
 du cœur. Georges Jeannin subissaït le charme physique
@@ -158,7 +120,6 @@ amertume, à son fils :
 
 Elle achevait ainsi de lui faire sentir tout ce qui les
 séparait; et il en éprouvait un secret orgueil, mêlé de
-fièvre inquiète.
 
 Les générations qui se suivent ont toujours un sentiment plus vif de ce qui les désunit que de ce qui les
 unit ; elles ont besoin de s'affirmer leur importance de
@@ -204,10 +165,7 @@ lui la menace des dangers qui s'y tenaient embusqués.
 Ils avaient écrasé son père. Plutôt que de renouveler
 l'expérience et de rentrer dans la forêt tragique, il y eût
 mis le feu. Il n'avait fait qu'entr'ouvrir ces livres de
-162 :
-hæET
 
-4 LA NOUVELLE JOURNÉE
 À sagesse ou de folie sacrée, dont Olivier s'était grisé : la
 ; pitié nihiliste de Tolstoy, le sombre orgueil destructeur
 d'Ibsen, la frénésie de Nietzsche, le pessimisme héroïque
@@ -240,9 +198,7 @@ marchands ne s'était donné la peine de trouver des
 recettes nouvelles. Ils avaient été chercher au fond de
 leurs armoires des flacons éventés. La panacée de l'un
 était l'Église catholique; de l'autre, la monarchie légitime; d'un troisième, la tradition classique. Il y avait
-‘ 163
 
-L
 la fin du voyage
 
 de bons plaisants qui montraïent le remède à tous les
@@ -276,7 +232,6 @@ voyages, les jouissances de l'art, la musique surtout
 dont ïl s'était gorgé, lui avaient été d'abord une
 diversion intermittente et passionnée. Joli garçon,
 
-LA NOUVELLE JOURNÉE
 ardent, précoce, livré aux tentations, il découvrit de ‘
 bonne heure le monde de l'amour aux dehors enchantés,
 et il s'y jeta, avec un emportement de joie poétique
@@ -307,12 +262,9 @@ prudence, qu'au reste il était sûr que Georges ne
 suivrait point : (car il ne les eût pas suivis, à sa place).
 Il ne se croyait pas permis — même s'il l'avait pu —
 d'entraver le jeu sain et normal de jeunes forces qui,
-165 Rolland. — 1.
 
 la fin du voyage É
-nt
 contraintes à l'inaction, se fussent tournées vers leur 4
-propre destruction. | 1
 Jacqueline ne parvenait pas à prendre son parti de
 | voir son fils lui échapper. En vain, elle avait cru sincè-
 rement renoncer à l'amour, elle ne pouvait se passer
@@ -343,12 +295,9 @@ aimer. Elle tomba au pouvoir d'une étrange passion,
 qui visite fréquemment les âmes féminines, et surtout,
 dirait-on, les plus nobles, les plus inaccessibles, quand
 vient la maturité et que le beau fruit de la vie n'a pas ‘
-166 T1
 
-LA NOUVELLE JOURNÉE
 été cueilli. Elle fit la connaissance d'une femme qui,
 dès leur première rencontre, la soumit à son pouvoir
-mystérieux d'attraction.
 
 C'était une religieuse, à peu près de son âge. Elle
 s'occupait d'œuvres de charité. Une femme grande,
@@ -378,8 +327,6 @@ reprendre avec elle son intimité passée; il vit qu'un
 rideau s'était tendu entre eux; il en accusa l'influence
 occulte, et il conçut contre celle qu'il nommaïit une
 intrigante, non moins que contre sa mère, une irritation
-
-4 ' à X
 
 la fin du voyage “
 qu'il ne déguisa point; il n'admettait pas qu'une étran- |
@@ -531,7 +478,6 @@ le reconnaissait), passant par des erreurs analogues aux
 siennes. Impossible de ne pas rire de soi et de sa
 piteuse figure. Christophe n'ajoutait pas de commen-
 
-LA NOUVELLE JOURNÉE
 taire. Ce qui faisait plus d'effet encore que l'histoire,
 c'était la puissante bonhomie du narrateur. Il parlait de
 lui, comme des autres, avec le même détachement, le
@@ -555,7 +501,6 @@ s'accommoder de sa solitude d'âme, se priver de toute
 attache à un parti artistique, politique, religieux,
 à tout groupement humain. Il le lui demandait :
 « N'éprouvait-il jamais le besoin de s'enfermer dans un
-camp? »
 
 — S'enfermer! disait Christophe, en riant. N'est-on
 pas bien, dehors ? Et c'est toi qui parles de te claquemurer, toi, un homme de grand air ?
@@ -566,7 +511,6 @@ certitude; il a besoin de penser avec les autres, d'adhé-
 rer à des principes admis par tous les hommes d'un
 même temps. J'envie les gens d'autrefois, ceux des âges
 
-? AA À LOT MC AONNA TES
 la fin du voyage à
 _ classiques. Mes amis ont raison, qui veulent restaurer
 le bel ordre du passé.
@@ -593,13 +537,10 @@ comprenait pas le plaisir qu'on y pouvait trouver : à se
 Il s'amusait à entr'ouvrir la trappe, sur sa vision réaliste et tragique de la vie. Georges reculait. Christophe
 refermait le vantail, en riant :
 — Comment pouvez-vous vivre ainsi? demandait
-Georges.
 — Je vis, et je suis heureux, disait Christophe.
 — Je mourrais, si j'étais forcé de voir cela toujours.
 Christophe lui tapait sur l'épaule :
 — Voilà nos fameux athlètes !.. Eh bien, ne regarde
-
-HAT LA NOUVELLE JOURNÉE
 
 donc pas, si tu ne te sens pas la tête assez solide. Rien
 ne t'y force, après tout. Va de l'avant, mon petit. Mais
@@ -616,19 +557,14 @@ Emparez-vous de l'air, soumettez les éléments, enfoncez
 les derniers retranchements de la nature, faites reculer
 l'espace, faites reculer la mort...
 
-« Expertus vacuum Daedalus aera..…… »
-
 .… Champion du latin, connais-tu cela, dis-moi? Es-tu
 seulement capable de m'expliquer ce que cela veut
 dire?
-
-« Perrupit Acheronta……. »
 
 .… Voilà votre lot à vous. Heureux conquistadores !
 
 Il montrait si clairement le' devoir d'action héroïque,
 échu à la génération nouvelle, que Georges, étonné,
-disait :
 
 — Mais si vous sentez cela, pourquoi ne venez-vous
 pas avec nos ?
@@ -708,7 +644,6 @@ Le directeur s'exclama, se mit à rire, refusa, couvrit
 de flatteries Christophe, son caractère, ses œuvres, son
 génie, traita l'œuvre de l'autre avec le dernier mépris,
 assura qu'elle ne valait rien et qu'elle ne ferait pas un
-sou.
 — Alors, pourquoi l'avez-vous reçue ?
 | — On ne fait pas tout ce qu'on veut. Il faut bien
 donner, de loin en loin, un semblant de satisfaction à
@@ -716,10 +651,7 @@ l'opinion. Autrefois, ces jeunes gens pouvaient crier ;
 personne ne les entendait. A présent, ils trouvent
 moyen d'ameuter contre vous une presse nationaliste,
 qui braiïlle à la trahison et vous appelle mauvais Fran-
-; 178 :
 
-UC nue 0  DRPS Age ACT TT OREENAAE LUS/EREA EE En Es ha A SR, k
-LA NOUVELLE JOURNÉE
 çais, quand vous avez le malheur de ne pas vous
 extasier devant leur jeune école. La jeune écolel À
 Parlons-en!.. Voulez-vous que je vous dise? J'en ai plein
@@ -731,7 +663,6 @@ Si j'étais assez sot pour monter les pièces qu'on
 { m'oblige à recevoir, je ruinerais mon théâtre. Je les
 reçois : c'est tout ce qu'on peut me demander. —
 Parlons de choses sérieuses. Vous, vous faites des
-salles pleines.
 Les compliments reprirent.
 Christophe l'interrompit net, et dit avec colère :
 — Je ne suis pas dupe. Maintenant que je suis vieux
@@ -773,7 +704,6 @@ un jeune et grand artiste français ; ils disaient que son
 œuvre avait été mutilée, pour complaire au maître
 allemand, qu'ils représentaient comme bassement jaloux
 de toutes les gloires naissantes. Christophe haussa les
-épaules, pensant :
 
 — Il va répondre.
 
@@ -795,7 +725,6 @@ Christophe rit, et pensa :
 Tor LA NOUVELLE JOURNÉE
 
 Et il jeta son souvenir dans ce qu'il nommait ses
-« oubliettes ».
 
 Mais le hasard voulut que Georges, qui lisait rarement les journaux et qui les lisait mal, à part les
 articles de sport, tombât cette fois sur les attaques les
@@ -824,13 +753,10 @@ je ne te l'aurais pardonné, de ta vie! ‘
 Georges, qui riait comme un fou, à cette dernière
 
 ; menace, tomba dans un tel accès d'hilarité qu'il en
-pleurait :
 
 — Ah! vieil ami, que tu es drôle! Ah, tu es impayable!
 Voilà que tu m'injuries pour t'avoir défendu! Une autre
 fois, je t'attaquerai. Peut-être que tu m'embrasseras.
-
-181 Rolland. — a
 
 la fin du voyage ES
 | Christophe s'interrompit; il étreignit Georges, l'embrassa sur les deux joues, et puis, une seconde fois
@@ -844,7 +770,6 @@ f recommenceras plus jamais.
 qui me plaît. J
 — Je te le défends, entends-tu. Si tu recommences, je
 | ne veux plus te voir, je te désavoue dans les journaux,
-jeter -
 — Tu me déshérites, c'est entendu.
 — Voyons, Georges, je 'en prie... A quoi cela sert-il?
 — Mon bon vieux, tu vaux mille fois mieux que moi,
@@ -868,8 +793,6 @@ qui ne les lisait jamais, tout prêt, au cas où il y eût
 trouvé un article injurieux, à faire n'importe quoi (une
 bassesse, au besoin), pour empêcher que ces lignes ne
 
-LA NOUVELLE JOURNÉE
-
 tombassent sous les yeux de Georges. Après une 3
 semaine, il se rassura. Le petit avait raison. Son geste
 avait donné à réfléchir, pour le moment, aux aboyeurs. |
@@ -881,9 +804,6 @@ si longtemps, où lui-même s'était battu, à cause d'Oli-'
 vier. Et il croyait entendre Olivier, qui disait :
 
 — Laisse, Christophe, je te rends ce que tu m'as
-prêté !
-
-L
 
 Si Christophe prenait aisément son parti des attaques
 contre lui, un autre était fort loin de ce désintéressement ironique. C'était Emmanuel.
@@ -913,8 +833,6 @@ vainqueur. Elle était orgueilleuse de ses muscles, de sa
 poitrine élargie, de ses sens vigoureux et affamés de
 jouir, de ses aïles d'oiseau de proie qui plane sur les
 
-DR A US MER RU Sd AU MES ;
-LA NOUVELLE JOURNÉE
 plaines ; il lui tardait de s'abattre et d'essayer ses
 serres. Les prouesses de la race, les vols fous par- ;
 dessus les Alpes et les mers, les chevauchées épiques à
@@ -941,7 +859,6 @@ gens. Il en souffrait cruellement, et il s'en indignait.
 De savoir que Christophe était victime, comme lui,
 — plus que lui, — de cette injustice, le lui rendit
 sympathique. Par sa mauvaise grâce, il l'avait découragé de venir le voir. Il était trop orgueilleux pour
-185 Rolland. — à.
 
 la fin da voyage
 
@@ -985,7 +902,6 @@ certains jugements le blessait, jusqu'au sang.
 
 — Ah! disait-il, si les critiques savaient le mal qu'ils
 
-x : LA NOUVELLE JOURNÉE
 font aux artistes, par un de ces mots injustes jetés au
 hasard, ils auraient honte de leur métier.
 
@@ -1022,7 +938,6 @@ tourmente pas les arbres stériles. Ceux-là seuls sont
 battus de pierres, dont le front est couronné de fruits à
 d'or. » … Plaignons les artistes qu'on épargne. Ils
 
-{ k
 la fin du voyage |
 dt resteront à mi-chemin, paresseusement assis. Quand
 ils voudront se relever, leurs jambes courbaturées se
@@ -1031,7 +946,6 @@ Ils m'ont fait plus de bien, dans ma vie, que mes
 ennemis, les amis!
 
 Emmanuel ne pouvait s'empêcher de sourire. Puis il
-disait :
 
 — Tout de même, ne trouves-tu pas dur, quand on
 est un vétéran comme toi, de se voir faire la leçon par
@@ -1062,8 +976,6 @@ souffrances de toute une génération. Sic vos non vobis…
 nous avons travaillé, en créant une race d'hommes qui
 nous dépassent. Nous avons amassé leur épargne, nous
 
-LA NOUVELLE JOURNÉE
-
 l'avons défendue dans une bicoque mal fermée, où
 tous les vents sifflaient ; il nous fallait nous arc-bouter
 aux portes pour empêcher la mort d'entrer. Par nos
@@ -1082,7 +994,6 @@ et l'ingratitude.
 — Non. Il y a une ivresse à sentir la grandeur tragique d'une puissante époque sacrifiée, comme la nôtre,
 à celle qu'elle a enfantée. Les hommes d'aujourd'hui ne
 seraient plus capables de goûter la joie superbe du
-renoncement.
 
 — Nous avons été les plus heureux. Nous avons
 gravi la montagne de Nébo, au pied de laquelle s'étendent les contrées où nous n'entrerons pas. Maïs nous
@@ -1090,7 +1001,6 @@ en jouissons plus que ceux qui entreront. Quand on
 descend dans la plaine, on perd de vue l'immensité de
 la plaine et l'horizon lointain.
 
-\
 |
 L'action apaisante que Christophe exerçait sur Georges
 et sur Emmanuel, il en puisait l'énergie dans l'amour de
@@ -1116,19 +1026,12 @@ auquel il accordait son âme. Il suffisait que Christophe
 crût entendre, par avance, cette voix répéter sa pensée,
 
 |
-fi
 |
 |
 
-{A
 |
 |
-"p
 |
-En
-PT (l
-à |
-LA NOUVELLE JOURNÉE | | à
 À pour qu'il ne pensât rien qui ne fût juste, pur, et digne |
 d'être répété. Le son d'un bel instrument est, pour le Ni 11
 musicien, pareil à un beau corps où son rêve aussitôt HE)
@@ -1140,7 +1043,6 @@ l'aimait, L'éloignement la rendait plus libre de parler; 1
 res et aussi, la certitude qu'elle ne serait jamais à lui. Cet ù
 we amour, dont la religieuse ferveur s'était communiquée n]
 à Christophe, lui était une fontaine de force et de hr
-paix. ALU
 : De cette force et de cette paix, Grazia donnait aux AU
 à autres bien plus qu'elle n'avait. Sa santé était brisée, LE
 i son équilibre moral gravement compromis. L'état de h
@@ -1161,18 +1063,10 @@ qi M de compassion à des mensonges. Elle traita Lionello 191
 | de comédien, au moment où il disait vrai. Et après que | .
 JE la vérité se fut révélée, le reste de sa vie fut empoi- Wu
 “ sonné de remords. ] l
-191 | il
 | A
 il
 |
-Il À
-ll
-in
-Li
 
-RDS SR: PNA A Pa 0 FANS De AE LU CRE Et PE SEM NE
-Ê ë,
-“ <
 L'action apaisante que Christophe exerçait sur Georges ÿ
 et sur Emmanuel, il en puisait l'énergie dans l'amour de 4
 Grazia. A cet amour il devait de se sentir rattaché à \
@@ -1197,7 +1091,6 @@ ses limites. Mais sa voix juste et pure était le diapason
 auquel il accordait son âme. Il suffisait que Christophe
 crût entendre, par avance, cette voix répéter sa pensée,
 
-M a A ES VA
 oi LA NOUVELLE JOURNÉE
 | pour qu'il ne pensäât rien qui ne fût juste, pur, et digne
 d'être répété. Le son d'un bel instrument est, pour le
@@ -1210,7 +1103,6 @@ Paimaiït. L'éloignement la rendait plus libre de parler;
 et aussi, la certitude qu'elle ne serait jamais à lui. Cet
 amour, dont la religieuse ferveur s'était communiquée
 à Christophe, lui était une fontaine de force et de
-paix.
 De cette force et de cette paix, Grazia donnait aux
 autres bien plus qu'elle n'avait. Sa santé était brisée,
 son équilibre moral gravement compromis. L'état de
@@ -1230,8 +1122,6 @@ de compassion à des mensonges. Elle traita Lionello
 de comédien, au moment où il disait vrai. Et après que
 la vérité se fut révélée, le reste de sa vie fut empoisonné de remords.
 | 191
-Qt? /
-WE
 
 la fin du voyage
 La méchanceté de Lionello n'avait pas désarmé. Sans +
@@ -1267,7 +1157,6 @@ un cri, elle ne fit pas une plainte; elle étonna les siens
 par son silence; il ne lui restait plus assez de force
 
 .
-LA NOUVELLE JOURNÉE
 pour souffrir; elle n'avait qu'un désir : s'endormir, à
 son tour. Cependant, elle continua d'accomplir tous les
 actes de sa vie, avec le même calme, en apparence.
@@ -1298,36 +1187,12 @@ dans ses lettres l'amour qu'elle avait pour lui. Sans
 doute, parce que cet amour était plus grand. Mais
 aussi, parce qu'elle sentait peser sur lui le veto du petit
 mort, qui lui faisait un crime de cette affection. Alors,
-193 Rolland. — 3
 
-j
 |
 
 armé. Sans
-{ |
-:
-1 ;
-& u
-E À
-} i
-il ‘
-f:
-Î
-el : A
 1 4
 | €
-ul
-: ‘
-Î . é
-ji pa
-
-h (1
-
-Le
-
-Hi
-
-+4
 
 fixes, oubliant les prres 1:
 
@@ -1339,10 +1204,6 @@ vie était usée, € _ D
 
 dans ses lettres =. 0 LE
 
-: ne” \
-a
-
-/
 la fin du voyage
 elle se taisait, elle s'obligeait à ne plus écrire, de
 quelque temps.
@@ -1357,7 +1218,6 @@ savait que, presque infailliblement, ces accents seraïent
 rachetés, dans la lettre suivante, par une froideur
 voulue. Puis, de nouveau, le calme... Meeresstille…
 
-+ AR een PA PE RE
 Georges et Emmanuel se trouvaient réunis chez
 Christophe. C'était une après-midi. L'un et l'autre
 étaient pleins de leurs soucis personnels : Emmanuel, :
@@ -1379,7 +1239,6 @@ leur disant des choses qui leur faisaient du bien. Le !
 ton de sa voix les émouvait, sans qu'ils sussent pourquoi.
 Us le quittèrent. Au sortir de chez lui, Georges alla
 
-: ; |
 la fin du voyage
 chez Colette. Il la trouva en larmes. Aussitôt qu'elle le
 vit, elle accourut à lui, demandant :
@@ -1407,12 +1266,9 @@ pas l'inquiéter. Grazia fit, dans sa lettre, allusion à un |
 simple rhume. Puis, elle trouva que c'était encore trop. |
 Elle déchira la lettre, et elle n'eut pas la force d'en |
 recommencer une autre. Elle se dit qu'elle écrirait, le
-196 |
 
-LA NOUVELLE JOURNÉE
 soir. Le soir, il était trop tard. Trop tard pour le faire
 appeler. Trop tard même pour écrire... Comme les
-choses vont vite! Quelques heures suffisent à détruire
 ce qu'il a fallu des siècles pour former... Grazia eut à
 peine le temps de donner à sa fille un anneau qu'elle
 avait au doigt, et elle la pria de le remettre à son ami.
@@ -1423,10 +1279,8 @@ la main qui transmettrait son étreinte; et elle pensait, ©
 avec joie :
 — Je ne m'en vais pas tout à fait.
 
-SPAS ES CARE MN PRET UNE DRAC pet UNS Qu NE LUQR
 « Quid? hic, inquam, quis est qui
 complet aures meas tantus et tam
-dalcis sonus ?.…. »
 (Songe de Scipion)
 
 Un élan de sympathie ramena Georges chez Christophe, après avoir quitté Colette. Depuis longtemps il
@@ -1448,17 +1302,8 @@ ne sut plus que dire. Christophe demanda doucement :
 
 — C'est toi, mon petit. Tu as oublié quelque chose ?
 
-Georges, troublé, balbutia :
-
-— Oui. 1
-
-— Entre. î
-
 Christophe alla se rasseoir dans le fauteuil où il était
 
-\
-
-, LA NOUVELLE JOURNÉE ù
 avant l'arrivée de Georges; près de la fenêtre, la tête
 appuyée contre le dossier, il regardait les toits en face
 et le ciel du soir qui rougeoyait. Il ne s'occupait pas de
@@ -1498,8 +1343,6 @@ image précise. Il était comme un homme fatigué, qui
 À écoute une grande musique indistincte, sans chercher
 à la comprendre. La nuit était avancée, quand il se
 
-T4
-
 la fin du voyage
 leva, courbaturé. IL se jeta sur son lit, et s'endormit,
 d'un sommeil lourd. La symphonie continuait de bruire…
@@ -1515,9 +1358,6 @@ Alors, son cœur se fondit. Une paix indicible remplissait les espaces étoilés
 Quand il se réveilla (le jour était revenu), l'étrange
 bonheur persistait, avec la lueur lointaine des paroles
 entendues. Il sortit de son lit. Un enthousiasme silencieux et sacré le soulevait.
-
-.…. Or vedi, figlio,
-tra Beatrice e te à questo muro..
 
 Entre Béatrice et lui, le mur était franchi.
 
@@ -1537,8 +1377,6 @@ fermée sur le monde de la douleur.
 Il vécut une période d'exaltation secrète. Il ne sentait
 plus le poids d'aucune chaîne. Il n'attendait plus rien
 des choses. Il ne dépendait plus de rien. Il était libéré.
-
-LA NOUVELLE JOURNÉE
 
 La lutte était finie. Sorti de la zone des combats et du
 cercle où régnait le Dieu des mélées héroïques, Dominus
@@ -1574,8 +1412,6 @@ Quand, après plusieurs semaines, il recommença à
 sortir et à voir les autres hommes, sans que personne
 de ses intimes, sauf Georges, eût un soupçon de ce qui
 
-201 Rolland, — 3.
-
 | la fin du voyage CA
 s'était passé, le démon de l'improvisation persista :
 quelque temps encore. Il visitait Christophe, aux heures
@@ -1599,12 +1435,8 @@ que Georges reconnut : ”
 Jesum stantem : et non sciebat quia Jesus est.
 — une série de lieder tragiques sur les vers de cantares
 populaires d'Espagne, entre autres une sombre chanson, amoureuse et funèbre, comme une flamme noire :
-Quisiera ser el sepulcro
 Donde à ti te han de enterrar,
-Para tenerte en mis brazos
 Por toda la eternidad.
-
-LA NOUVELLE JOURNÉE
 
 (« Je voudrais étre le sépulcre, où l'on doit Fensevelir, afin de te tenir dans mes bras, pour toute l'éternité. »)
 et deux symphonies, intitulées l'Ile des Calmes, et le
@@ -1624,73 +1456,21 @@ sur les nuées, qui s'effaçaient. Le regard du ciel, plus
 pur, comme lavé par les larmes, souriait au travers.
 C'était le soir tranquille sur les monts.
 
-AUS PME AN A sat qhil DD AU At LL | MAN APREES
 pe 37e Hu d "2 Tr Hits JE SANS & Fe U Fe) Re au A AS “
-HER RS INRESAMNIE REVUE ART CARE LAS RTE TUE
-is EN RE PONS HEURE Ra Ar STE. WUNTA QUE NTI
 4e RER à 0H TR RNA Ent CARRE OATE On
-MMM De Te PS US ? À SEA FA IE Re #0
-ANSE UIRNRESS LEON AR 7 LAINE EAN fa DAS CUITE
-AUTO 4 ER ë, pa VE \ j Eté D
-RE A Ps TU Ve UNIT OR ESNEESES
-'AUNERR SN CAT PE Ve | D Le ES De: h
 EAU FINE FA Le 4 de TS ot FRNES
 LPHENR : AFS TOITS Pie Ne) LAN ÉRIC
 A Ton è ET EU A 0 Peur NEA L'UOYRNGEES
-M i Y ' HAL Ve. 4 EN En
-: tre SET FER N he ; AURAS IRAT LATE - NOEL
-: | 1 CANNES Dee VAE SR ANSE EE ENERE Re NÉS AMAR
-PQ Ue  “: x À » . ü P. 17 or KA C4 ”. \ À 7 6 0ut MIE
-: SARA DET HO Lo UFR FAIRE x PAERES
-DU |, LOU AUS
 
-: , 46e FE TE. FA PARLE AT RER AS ES DEAR ALT Pan A LA Re à
 eo ee LU a EUR CIE ENT BRUNES TES LE MAP EME
 “HN 7 RAR LE PARAISSENT a Lie SOEUR Nine 1h
 1.01. TR Es AN TEL a A UN FU 4 fs EE NNENEENS ns name Nc
-"UE PRET Lorie € OU (79 24e 114 PNIPETSSTPANRRS
-WE V 2 É L £ ë 1, LEA RARES sh A
-AND à K EM CO CNT NN CNRS
-ERA AR PATENTS LT REA 4 À AAURE RAR ET Et
-AAA AR OR
-ES OT ee TN AR Lx EN ERA RE AA ‘ l'a) UNE ERA PAN
-UD UP EE # NLTAE TM A FIX A XP 0 NPPAREPAMIAIERE
-00 DT A TUE Me DR Lana AMIE { FAST ERS ls ARE EL UT
-A CU ANR) EL AN A NT SN TN OA STARS 1 RO
-TRANS ENITIAA TO PR PS AUS ON SAN ORNE { » | CNT ! [L FNTA ET ‘Lt frs AU RIRE US À! LEA ANT k
-2 UP PNR PO CE Te ARR 7
-EUR: ARR RS “y LI NE DAV NARNIA EE Me RAA LEARN
 D ET OPEN TERRES EE tes pe NES N 4
-LEA FU TVA PA PUS NPA: k 1 it 1 ANNEES
-t so | (AA CNET ICS HN ER 4 5 NAT ErLire
-XNA SRE PPS à RARE RARES FA 4, MYYALORR 4 i
 
-LAS TENTE TRS ITS PATES Erint à * 3
-PAUL A TTRR TENNIS biere NU NTTE) EUN PE ER TEL SRE Salt ras
-fe ME HA A LOCAL *. PNR ERA IT NA pat nt LENS eV:
-2"? {PA * ee 1e ms “ tr | NET A à re / L
 +R ON tr RON PAC TN CR NF NRES VON AS
-« 1, CIRE ge RE, MIE: FE LT T CiTEUTI a DRASS: na,
 5 el OCR tr La HAS re + AY: RARE RER E.
-A 1 rh EN AR AU AOL LME . AL : PAPA
-BR 5000
-Ÿ an +4 Me” F- el su “ h AS ' 4
-Te : LEUR : + ÿ : s h — | 16. [V0
-HN LD E QT * CHI + / | à el + RAA #4
-Et Le DRE 3 A
-MR EE 0 3 r + 4600
-NPA if 6 * A 5 CACUE
-Le. « g N = tn
-« € CNE ? : F + A
-. fi: SEP « AP
-1 Fr0t POSE % + , 2 EEE
-: L'IRTACONEERE # LULU
-* LRO . | ; NXUNESSES
 Hate Val $ LA ÿ LE { Feu ORNE Le
-LE ‘ * "1 ‘x: L'IRCAONRE
-1! DECO $ L U ‘ 3 PEUT ES D 'p
 # n.!: LA £ + L# A , .i "
-AAC TEN LATP APE Tr MES LS +? LAON RSS
 
 L'incendie qui couvait dans la forêt d'Europe commençait à flamber. On avait beau l'éteindre, ici; plus
 loin, il se rallumait; avec des tourbillons de fumée et
@@ -1714,8 +1494,6 @@ boucheries que les précipitaient les courants d'action et
 . de foi passionnées! Seul, un génie napoléonien eût pu
 | fixer à cette course aveugle un but prévu et choisi.
 . Mais de génie d'action, il n'y en avait nulle part, en
-; 207 4
-L n
 
 la fin du voyage |
 Europe. On eût dit que le monde eût, pour le gouverner,
@@ -1754,8 +1532,6 @@ s'éloignait ; il prenait pour prétexte le désir qu'il avait
 de revoir la fille de Grazia; il allait, pour quelque
 temps, à Rome. Mais il n'y trouvait pas un milieu plus |
 
-LA NOUVELLE JOURNÉE
-
 serein. La grande peste d'orgueil nationaliste s'était
 répandue là. Elle avait transformé le caractère italien. |
 Ces gens, que Christophe avait connus indifférents et
@@ -1784,7 +1560,6 @@ triomphe de la paix.
 
 Christophe, souriant avec un peu d'ironie, regardait,
 de la terrasse du Janicule, la ville disparate et harmonieuse, symbole de l'univers qu'elle domina : ruines
-calcinées, façades « baroques », bâtisses modernes,
 cyprès et roses enlacés, — tous les siècles, tous les styles,
 fondus en une forte et cohérente unité sous la lumière
 
@@ -1872,7 +1647,6 @@ sienne. Un vigoureux esprit, quand il se porte bien,
 absorbe toutes les forces, même celles qui lui sont |
 ennemies; et il en fait sa chair. Il vient même un
 moment où l'on est plus attiré par ce qui vous ressemble le moins : car l'on y trouve une plus abondante |
-pâture.
 
 De fait, Christophe avait plus de plaisir aux œuvres
 de certains artistes qu'on lui opposait comme rivaux,
@@ -1885,7 +1659,6 @@ plus séduit par le talent de musiciens, qui lui étaient
 personnellement antipathiques et qui représentaient en
 art des tendances ennemies des siennes... Eh! qu'im-
 
-LA NOUVELLE JOURNÉE ÿ
 porte? Ceux-ci, du moins, vivaient! La vie, est, par ellemême, une telle vertu que qui en est dépourvu, fût-il
 doué de toutes les autres vertus, ne sera jamais un
 honnête homme tout à fait, car il n'est pas tout à fait un
@@ -1896,9 +1669,6 @@ en le flagornant, il lui demandait :
 
 — Ainsi, ma musique vous satisfait? C'est de cette
 manière que vous exprimeriez votre amour, ou votre
-haine?
-
-— Oui, maître.
 
 — Eh bien, taisez-vous. Vous n'avez donc rien à dire.
 
@@ -1952,9 +1722,7 @@ qui sait voir, d'une goutte de lumière, d'une seconde de
 vie ! Que compte, auprès de ces délices souveraines de
 l'esprit, le vain tumulte des disputes et des guerres?.….
 Mais ces disputes mêmes et ces guerres font partie du |
-214 |
 
-ÿ 3 LA NOUVELLE JOURNÉE
 merveilleux spectacle. Il faut tout embrasser, et vaillamment, joyeusement, jeter dans la fonte ardente de
 notre cœur et les forces qui nient et celles qui affrment, ennemies et amies, tout le métal de vie. La fin
 de tout, c'est la statue qui s'élabore en nous, le fruit
@@ -1964,7 +1732,6 @@ Qu'importe celui qui crée? Il n'y a de réel que ce qu'on
 crée. Vous ne nous atteignez pas, ennemis qui voulez
 nous nuire. Nous sommes hors de vos coups... Vous
 mordez le manteau vide. Il y a beau temps que je suis
-ailleurs.
 
 Sa création musicale avait pris des formes plus
 sereines. Ce n'étaient plus les orages du printemps, qui
@@ -1998,8 +1765,6 @@ enchaînés à l'enceinte de leur système solaire.
 Les grandes lignes du tableau sont désormais arré-
 tées. A présent son visage surgit de l'aube incertaine.
 
-a LA NOUVELLE JOURNÉE
-
 Tout se précise : l'harmonie des couleurs et le trait des
 figures. Pour mener l'œuvre à son achèvement, toutes
 les ressources de l'être sont mises à réquisition. La
@@ -2025,9 +1790,6 @@ Le rêve est accompli. Te Deum.……….
 
 Les blancs nuages de l'été, grands oiseaux de lumière,
 planent avec lenteur; et le ciel est couvert de leurs
-ailes éployées.
-
-Rolland. — 4
 
 Il s'en fallait pourtant que sa vie fût réduite tout
 entière à son art. Un homme de sa sorte ne peut se |
@@ -2054,10 +1816,6 @@ mains brunes, de beaux bras ronds et robustes et la L
 gorge bien faite, elle avait un aïr gai, matériel et fier. |
 k Nullement intellectuelle, très peu sentimentale, elle
 avait hérité de sa mère sa nonchalante paresse. Elle
-218 À
-
-D PA RAT Re A MENU ee ae el) à ER
-LA NOUVELLE JOURNÉE
 
 dormait à poings fermés, onze heures, tout d'un trait. SU
 Le reste du temps, elle flânait, en riant, à demi éveillée.
@@ -2129,12 +1887,9 @@ guère. L'un était vif-argent, et l'autre eau qui dort.
 Mais il ne se passa pas beaucoup de temps avant que
 le vif-argent s'ingéniât à paraître plus calme et que
 
-LA NOUVELLE JOURNÉE
-
 l'eau dormante se réveillât. Georges critiquait la toi- 1
 lette d'Aurora, son goût italien, — un léger manque de
 nuances, une certaine préférence pour les couleurs
-tranchées. Aurora aimait à railler, imitait plaisamment
 la façon de parler de Georges, hâtive et un peu pré-
 cieuse. Et tout en s'en moquant, tous deux prenaient
 plaisir... était-ce à s'en moquer, ou à s'en entretenir?
@@ -2161,9 +1916,6 @@ dimanche, dans l'après-midi. Le dimanche matin,
 Christophe attendit vainement Aurora. A l'heure indiquée par Georges, elle parut, s'excusant d'avoir été -
 empêchée de venir, le matin; elle broda là-dessus toute
 
-221 Rolland. — 4.
-
-{ u som *4 AN" PACE MERS OUT" TARN TUE. “y
 la fin du voyage Mie,
 une petite histoire. Christophe, qui s'amusait de son F:
 innocente rouerie, lui dit : | FA
@@ -2177,9 +1929,7 @@ On sonna. C'était Georges, Aurora fut saisie. Christophe |
 la regardait, en riant. Elle comprit qu'il s'était moqué *
 d'elle; elle rit et rougit. Il la menaçait du doigt, avec
 malice. Brusquement, avec effusion, elle courut l'embrasser. Il lui souflait à l'oreille : Oh
-— Biricchina, ladroncella, farbetta…
 Et elle lui mettait sa main sur la bouche, pour
-lobliger à se taire. 1
 Georges ne comprenait rien à ces rires et à ces
 embrassades. Son air étonné, et même un peu vexé,
 À ajoutait à la joie des deux autres. 14 |
@@ -2196,10 +1946,6 @@ Mais un jour qu'il passait près d'une charmille, où
 les deux jeunes gens étaient assis, — (c'était très peu
 de temps après leurs fiançailles) — il entendit, avec un
 
-n
-
-EE RS DAC MEME D IST NY. À
-LA NOUVELLE JOURNÉE
 serrement de cœur, Aurora, qui questionnait en plaisantant Georges sur une de ses aventures passées, et
 Georges qui racontait, sans se faire prier. D'autres
 bribes d'entretiens, dont ils ne se cachaïent point, lui
@@ -2231,7 +1977,6 @@ courant catholique, qui était en train de conquérir
 une partie des gens du monde et des intellectuels,
 Rien n'était plus curieux que la façon dont Georges,
 frondeur de nature, impie comme on respire, sans même
-223 \
 
 la fin du voyage
 
@@ -2266,7 +2011,6 @@ souffles théosophiques, mystiques, ésotériques, occultistes, visitaient le ce
 William James, titubaient. Jusqu'à la science,' où se
 manifestaient les signes de fatigue de la raison. Un
 
-LA NOUVELLE JOURNÉE
 moment à passer. Laissons-les respirer. Demain, l'esprit
 se réveillera, plus alerte et plus libre... Le sommeil
 est bon, quand on a bien travaillé. Christophe, qui
@@ -2322,7 +2066,6 @@ tout de suite que je suis une vieille bête.
 tout son cœur. Vous êtes le meilleur; mais il y a des
 choses que vous ne savez pas.
 — Et que tu sais, petite fille? Voyez la grande
-sagesse !
 — Ne vous moquez pas. Moi, je ne sais pas grand
 chose. Mais lui, Georges, il sait.
 Christophe sourit :
@@ -2337,8 +2080,6 @@ près, aussi habiles à chanter. Aurora ne se faisait pas
 d'illusion sur son talent. Il n'en était pas de même pour
 celui de son fiancé; elle ne voyait aucune différence
 entre le jeu de Georges et celui de Christophe. Peut-être
-
-LA NOUVELLE JOURNÉE
 
 préférait-elle la façon de Georges. Et celui-ci, malgré
 sa finesse ironique, n'était pas loin de se laisser convaincre par la foi de son amoureuse. Christophe n'y
@@ -2376,13 +2117,10 @@ certains progrès de l'esprit dans les sciences et dans
 l'art. Ils vivaient dans leur pensée, méditant sur leur |
 art, ou distinguant, sous le chaos des faits, la petite 1
 lueur inaperçue qui marque dans l'histoire de l'esprit
-humain. !
 Le plus souvent, c'était Christophe qui venait chez
 Emmanuel. Bien que, depuis une récente maladie, il ne À
 fat pas beaucoup mieux portant que son ami, ils avaient .
 pris l'habitude de trouver naturel que la santé d'Emma- |
-
-LA NOUVELLE JOURNÉE
 
 nuel eût droit à plus de ménagements. Christophe ne
 montait plus sans peine les six étages d'Emmanuel;
@@ -2415,12 +2153,7 @@ d'être couché sur la table, près de lui, ne se laissant
 distraire de sa méditation que pour contempler pendant des heures, avec extase, la cage où voletaient
 les oiseaux inaccessibles, ronronnant poliment à la
 
-229 Rolland. — 5
-
 bi Le 2e M AUREZ OUR PAR AP ART ,: M: de
-FE RE
-Ÿ $ IN Ses
-‘1
 la fin du voyage
 moindre marque d'aitention, se prêtant avec patience
 aux caresses capricieuses d'Emmanuel, un peu rudes
@@ -2455,10 +2188,6 @@ qu'aux premiers temps de sa connaissance avec
 Christophe. Une tragédie domestique l'avait profondément ébranlé. Sa compagne, à qui il avait fait sentir
 trop clairement, dans une heure d'exaspération, la
 . lassitude que lui causait le poids de son affection,
-é 230
-!
-
-LA NOUVELLE JOURNÉE
 
 avait brusquement disparu. Il l'avait cherchée, toute ÿ
 une nuit, bouleversé d'inquiétudes. Il avait fini par la
@@ -2500,10 +2229,6 @@ l auxquels il se sacrifie. L'autel était déserté maintenant;
 
 à les saintes idées qu'on a eu tant de peine à faire
 
-ti 231
-
-F3 ù
-
 la fin du voyage
 vaincre, pour lesquelles les meïlleurs, depuis un siècle,
 ont souffert tant de tourments, foulées aux pieds par
@@ -2539,7 +2264,6 @@ vous ne voyez pas la mer! La vague d'aujourd'hui,
 c'est la vague d'hier, c'est la vague de nos âmes, qui
 lui a ouvert la route. La vague d'aujourd'hui creusera
 
-LA NOUVELLE JOURNÉE
 le sillon de la vague de demain, qui la fera oublier,
 comme est oubliée la nôtre. Je n'admire ni ne crains
 le nationalisme de l'heure présente. Il s'écoule, avec
@@ -2548,7 +2272,6 @@ Monte au faîte ! Il est le sergent-fourrier de l'armée qui va
 venir. Écoute déjà sonner ses fifres et ses tambours!
 
 (Christophe battait du tambour sur la table, où le
-chat, réveillé, sursauta.)
 
 .…. Chaque peuple, aujourd'hui, sent l'impérieux besoin
 de rassembler ses forces et d'en dresser le bilan. C'est
@@ -2574,11 +2297,6 @@ l'autre eut parlé ; puis, il dit :
 — Je vois dans la nuit, dit Christophe. J'y ai assez
 vécu. Je suis un vieux hibou.
 
-RAA VAN 0 AU A MORE
-7 )
-
-A:
-
 Vers cette époque, ses amis remarquèrent un change-
 
 j ment dans ses manières. Il était souvent distrait, comme Fi
@@ -2589,7 +2307,6 @@ ses distractions, il s'excusait affectueusement. Il parlait |
 de lui parfois, à la troisième personne : 1
 
 — Krafft vous fera cela. 4
-ou : |
 — Christophe rira bien. È
 Ceux qui ne le connaissaient pas, disaient :
 L — Quelle infatuation de soi!
@@ -2610,15 +2327,9 @@ rapide, le fatiguaient. Il était tout de suite hors d'haleine; le cœur lui fai
 à son vieil ami Schulz. Il ne parlait pas aux autres de
 ce qu'il éprouvait. A quoi bon, n'est-ce pas ? On ne peut
 
-234 Li
-:
-
-ps
-LA NOUVELLE JOURNÉE
 que les inquiéter, et on ne se guérit pas. D'ailleurs, il ne
 prenait pas au sérieux ces malaises. Beaucoup plus que
 d'être malade, il craignaït qu'on ne l'obligeñt à se
-soigner.
 
 Par un secret pressentiment, il fut pris d'un désir de
 revoir encore le pays. C'était un projet qu'il remettait,
@@ -2660,10 +2371,6 @@ allaient, flottant, pensait aux grands brouillards qui
 allaient aussi envelopper sa vie, aux êtres aimés,
 disparus de la terre, réfugiés dans son cœur, que la
 
-235 |
-
-ï , OR
-
 la fin du voyage Q
 nuit qui tombait recouvrirait, comme lui... Soit! Soit!
 Je ne te crains pas, Ô nuit, couveuse de soleils! Pour un
@@ -2701,10 +2408,6 @@ Une femme vint, en effet; et il ne la reconnut pas. ?
 Elle était semblable à d'autres : corpulente, la figure {
 pleine, au menton gras, l'expression indifférente et dure. \
 
-À
-
-LA NOUVELLE JOURNÉE
-
 Vêtue de noir. Elle s'assit à son banc, et resta immobile. Elle ne semblait ni prier, ni entendre; elle regardait devant elle. Rien, en cette femme, ne rappelait
 celle que Christophe attendait. Une ou deux fois seulement, un geste un peu maniaque, comme pour effacer
 les plis de sa robe sur les genoux. Jadis, elle avait ce
@@ -2726,17 +2429,12 @@ cendre. Où est le feu ?
 
 Et son Dieu lui répondit :
 
-— En moi.
-
 Alors, il releva les yeux, et, pour la dernière fois, il
 l'aperçut, — au milieu de la foule, — qui sortait par la
-porte, au soleil.
 
 Ce fut peu après son retour à Paris qu'il fit la paix
 avec son vieil ennemi Lévy-Cœur. Celui-ci l'avait longtemps attaqué, avec autant de malicieux talent que de
 mauvaise foi. Puis, arrivé au faîte du succès, repu
-
-237 Rolland. — 5,
 
 OS OUEN la fin dn vorage 41 0" ANR
 à d'honneurs, rassasié, apaisé, il avait eu l'esprit de fe "2
@@ -2766,13 +2464,9 @@ tialité donnait tout l'avantage à Aurora, avait fini par
 S créer dans son esprit une sorte d'amitié imaginaire Ô
 entre les deux jeunes filles, qui s'ignoraient, et même, i
 sans qu'il s'en aperçût, par le rapprocher de Lévy- ;
-Cœur. ;
 - En revenant d'Allemagne, il apprit que « le petit |
 mouton » était mort. Son égoïsme paternel pensa
-aussitôt : ;
 \ — Si c'était la mienne qui avait été frappée! :
-
-LA NOUVELLE JOURNÉE
 
 Et il fut pris d'une immense pitié pour Lévy-Cœur.
 Sur le premier moment, il voulut lui écrire ; il commença deux lettres ; il ne fut pas satisfait, il eut une
@@ -2797,16 +2491,12 @@ hommes, qui ne valent pas beaucoup mieux l'un que |
 l'autre, et qui ont bien le droit, après avoir joué leur
 rôle de leur mieux, de se donner la main.
 
-\
-'
-
 Ë Le mariage de Georges et d'Aurora avait été fixé, d
 aux premiers jours du printemps. La santé de Christophe déclinait rapidement. Il avait remarqué que ses À
 enfants l'observaient, d'un air inquiet. Une fois, il les |
 entendit, qui causaient à mi-voix. Georges disait : {
 
 — Comme il a mauvaise mine! Il est capable de
-tomber malade, à présent.
 
 Et Aurora répondait : |
 
@@ -2831,7 +2521,6 @@ mais il eut de la peine à tenir jusqu'au bout. Toutefois,
 le bonheur des deux enfants le rendait si heureux qu'il
 réussit à soutenir, sans faiblesse, la longue épreuve de
 
-LA NOUVELLE JOURNÉE
 la cérémonie religieuse. A peine rentré à la maison,
 chez Colette, ses forces le trahirent; il eut juste le
 temps de s'enfermer dans une chambre, et il s''évanouit.
@@ -2865,7 +2554,6 @@ aller prendre le pot de lait, déposé à sa porte, et pour
 voir si la concierge n'avait pas glissé sous le seuil la
 lettre promise des amoureux. La lettre n'arrivait pas;
 
-. L2 NS
 la fin du voyage | k.
 ils loubliaient, dans leur bonheur. Il ne leur en voulait 4
 pas ; il se disait qu'à leur place, il en eût fait autant. Il ft
@@ -2902,7 +2590,6 @@ qui les irritait.
 
 « On croit, avouait Bismarck, comme à regret, que
 
-"4 LA NOUVELLE JOURNÉE
 _ rien n'est plus involontaire que l'amour. L'estime l'est
 bien davantage... » :
 
@@ -2942,7 +2629,6 @@ lassitude extrême, Il était tout heureux de se retrouver L
 la fin du voyage :
 k ensuite : car il s'était perdu; impossible d'entendre les
 voix intérieures, au milieu des bavardages humains.
-Divin silence!
 
 Il permit seulement que la concierge, ou l'un de ses
 enfants, vint, deux ou trois fois par jour, voir ce dont
@@ -2962,13 +2648,8 @@ leur art, de l'avenir de leurs idées.
 
 Jusqu'au jour où, de sa main qui défaillait, Christophe
 écrivit le mot du roi de Suède, mourant, dans la
-bataille :
-
-« Ich habe genug, Bruder ; rette dich! » (1)
 
 (1) « Jai mon compte, frère; sauve-toil »
-
-L2
 
 Comme une succession d'étages, il embrassait l'ensemble de sa vie : l'immense effort de sa jeunesse pour
 prendre possession de soi, les luttes acharnées pour
@@ -3013,7 +2694,6 @@ Il était trop pressé, il se croyait déjà arrivé. Et l'étau :
 qui serrait sa poitrine haletante, et Le délire tumultueux
 des images qui heurtaient les parois de sa tête brûlante,
 lui rappelaient qu'il restait la dernière étape, la plus
-dure à fournir... En avant!
 
 Il était cloué dans son lit, immobile. A l'étage audessus, une sotte petite femme pianotait, pendant des
 heures. Elle ne savait qu'un morceau; elle répétait
@@ -3030,27 +2710,23 @@ pensé. Il s'éloignait de son corps. Ce corps malade et
 | 246
 
 LG he PS ARE VOS A Pc APE So AR (
-LA NOUVELLE JOURNÉE
 | grossier. Quelle indignité d'y avoir été enfermé, tant
 d'années! Il le regardait s'user, et il pensait :
 
 — Il n'en a plus pour longtemps.
 
 Il se demanda, pour tâter le pouls à son égoïsme
-humain :
 
 — « Que préférerais-tu ? ou que le souvenir de Christophe, de sa personne et de son nom, s'éternisât et que
 son œuvre disparût? ou que son œuvre durât et qu'il
 
 \ ne restât aucune trace de ta personne et de ton
-‘nom? »
 
 Sans hésiter, il répondit :
 
 — « Que je disparaisse, et que mon œuvre dure!
 J'y gagne doublement : car il ne restera de moi que
 le plus vrai, ‘le seul vrai de moi-même. Périsse
-Christophe !.…. »
 
 Mais, peu de temps après, il sentit qu'il devenait
 aussi étranger à son œuvre qu'à lui-même. L'enfantine
@@ -3067,12 +2743,9 @@ l'oubli. — Et Christophe s'étonnait de contempler ces
 ruines, et de n'en avoir aucun trouble.
 
 — Est-ce que j'aime moins la vie? se demandait-il,
-étonné.
 
 Mais il comprit aussitôt qu'il l'aimait beaucoup
 plus... Pleurer sur les ruines de l'art? Elles n'en valent
-
-é 247
 
 la fin du voyage
 pas la peine. L'art est l'ombre de l'homme, jetée sur la
@@ -3106,33 +2779,20 @@ Mais quelques minutes après ces beaux discours, il
 chercha, en tâtonnant, une des feuilles de papier,
 éparses sur les draps, et il essaya encore d'y écrire
 
-LA NOUVELLE JOURNÉE
-
 quelques notes. Lorsqu'il s'aperçut de sa contradiction,
 il sourit, et il dit :
 
 — O ma vieille compagne, ma musique, tu es meilleure que moi. Je suis un ingrat, je te congédie. Mais :
 
-qu gral, ] £
 toi, tu ne me quittes point; tu ne te laisses pas rebuter
 par mes caprices. Pardon; tu le sais bien, ce sont là
 des boutades. Je ne t'ai jamais trahie, tu ne m'as
-]
 jamais trahi, nous sommes sûrs l'un de l'autre. Nous
 partirons ensemble, mon amie. Reste avec moi, jusqu'à
 la fin.
-Bleib bei uns...
-Lt.
-50 RCE à BE SO RER Bi MON A Lame |
-Oboi GE EH
-NE RE os 76 RC ET
 de hd ln
 Vus le EEE pee
-L'ETSE 64 6 2 DE
 4 6
-, sh
-
-} VA TREUE UE APPARUE ETES
 
 Ïl venait de se réveiller d'une longue torpeur, lourde
 de fièvre et de rêves. D'étranges rêves, dont il était
@@ -3159,7 +2819,6 @@ m'avez, un instant, donné la main, esprits mystérieux
 m'entourez de votre chaude étreinte, vous me veillez,
 j'entends la musique de vos voix. Béni soit le destin,
 
-LA NOUVELLE JOURNÉE
 qui m'a fait don de vous! Je suis riche, je suis riche...
 Mon cœur est rempli !.…
 
@@ -3184,17 +2843,13 @@ suffoquant, d'une voix qui n'obéissait plus à sa pensée,
 mais il ne s'en apercevait pas) — il entonna un cantique à la vie.
 
 Un orchestre invisible lui répondit. Christophe se
-disait :
 
 — Comment font-ils, pour savoir ? Nous n'avons pas
 répété. Pourvu qu'ils aillent jusqu'au bout, sans se
-tromper !
 
 Il tâcha de se remettre sur son séant, afin qu'on le
 vit bien de tout l'orchestre, marquant la mesure, avec
 ses grands bras. Mais l'orchestre ne se trompait pas;
-
-HU AaDT |
 
 la fin du voyage
 ils étaient sûrs d'eux-mêmes. Quelle merveilleuse
@@ -3202,10 +2857,8 @@ musique! Voici qu'ils improvisaient maintenant les
 réponses! Christophe s'amusait :
 
 — Attends un peu, mon gaillard! Je vais bien
-attraper.
 
 Et, donnant un coup de barre, il lançait capricieusement la barque, à droite, à gauche, dans des passes
-dangereuses.
 
 — Comment te tireras-tu de celle-ci ?.… Et de celle-là ?
 Attrape !.. Et encore de cette autre 2...
@@ -3225,7 +2878,6 @@ Mais l'orchestre déployait une fantaisie d'une telle
 abondance, d'une telle nouveauté qu'il n'y avait plus
 moyen de faire autre chose que de rester, à l'entendre,
 bouche bée. On en avait le souffle coupé... Christophe
-se prenait en pitié :
 
 — Animal! se disait-il, tu es vidé. Tais-toi! L'instrument a donné tout ce qu'il pouvait donner. Assez de ce
 corps! Il m'en faut un autre.
@@ -3239,7 +2891,6 @@ Il se prenait à la gorge, il se frappait la poitrine à
 coups de poing, comme un ennemi qu'il fallait vaincre.
 Il se revit, au milieu d'une mêlée. Une foule hurlait.
 
-7 LA NOUVELLE JOURNÉE
 Un homme l'étreignait, à bras-le-corps. Ils roulaient
 ensemble. L'autre pesait sur lui. Il étouffait.
 
@@ -3251,11 +2902,9 @@ lâchait point... l
 
 — Mais qui est-ce, à présent ? Avec qui est-ce que je
 lutte, enlacé ? Quel est ce corps que je tiens, qui me :
-brûle ?..
 
 Mélées hallucinées. Un chaos de passions. Fureur,
 luxure, soif du meurtre, morsure des étreintes charelles, toute la bourbe de l'étang soulevée, une dernière
-fois.
 
 — Ah! est-ce que cela ne sera pas bientôt la fin?
 Est-ce que je ne vous arracherai pas, sangsues collées
@@ -3278,8 +2927,6 @@ qu'on ne continuât pas sans lui... Enfin ! sorti du tunnel! Le silence revenait
 
 — Est-ce beau! Est-ce beau! Encore! Hardi, mes
 gars! Mais de qui cela peut-il être ?.. Vous dites ?
-
-253 Rolland. — 6
 
 “1 la fin du voyage 4
 Vous dites que cette musique est de Jean-Christophe
@@ -3304,14 +2951,12 @@ sans qu'il s'en aperçüût, pieusement les essuya. Il ne
 sentait plus rien de ce qui se passait ici-bas. L'orchestre
 s'était tu, le laissant sur une harmonie vertigineuse,
 dont l'énigme n'était pas résolue. Le. cerveau, obstiné,
-répétait :
 
 | — Mais quel est cet accord ? Comment sortir de là ?
 Je voudrais pourtant bien trouver l'issue, avant la fin...
 
 Des voix s'élevaient maintenant. Une voix passionnée. Les yeux tragiques d'Anna... Mais dans le même
 instant, ce n'était plus Anna. Ces yeux pleins de
-bonté.
 
 — Grazia, est-ce toi? Qui de vous ? Qui de vous ?
 Je ne vous vois plus bien. Pourquoi donc le soleil
@@ -3319,7 +2964,6 @@ est-il si long à venir?
 
 Trois cloches tranquilles sonnèrent, Les moineaux, à
 
-* LA NOUVELLE JOURNÉE
 la fenêtre, pépiaient pour lui rappeler lheure où il leur |
 donnait les miettes du déjeuner... Christophe revit en
 rêve sa petite chambre d'enfant.. Les cloches, voici
@@ -3328,11 +2972,9 @@ léger. Elles viennent de très loin, des villages là-bas.
 Le grondement du fleuve monte derrière la maison...
 Christophe se retrouva accoudé, à la fenêtre de l'escalier. Toute sa vie coulait sous ses yeux, comme le Rhin.
 Toute sa vie, toutes ses vies, Louisa, Gottfried, Olivier,
-Sabine.
 — Mère, amantes, amis... Comment est-ce qu'ils se
 nomment ?.. Amour... Où êtes-vous? Où êtes-vous,
 mes âmes ? Je sais que vous êtes là, et je ne puis vous |
-saisir.
 — Nous sommes avec toi. Paix, à notre bien-aimé !
 — Je ne veux plus vous perdre. Je vous ai tant cherchés!
 — Ne te tourmente pas. Nous ne te quitterons plus.
@@ -3341,7 +2983,6 @@ saisir.
 — Où allons-nous ? à ;
 L — Au lieu où nous serons réunis.
 — Sera-ce bientôt ?
-— Regarde.
 
 Et Christophe, faisant un suprême effort pour soulever :
 la tête, — (Dieu! qu'elle était pesante !) — vit le fleuve
@@ -3352,8 +2993,6 @@ flots d'argent, qui tremblaient, au soleil. Le bruit de
 l'Océan. Et son cœur, défaillant, demanda :
 
 — Est-ce Lui ?
-
-:
 
 la fin du voyage
 
@@ -3366,7 +3005,6 @@ Tandis que le cerveau, qui mourait, se disait :
 — La porte s'ouvre... Voilà l'accord que je cherchais!.. Mais ce n'est pas la fin? Quels espaces nouveaux !.. — Nous continuerons demain.
 
 O joie, joie de se voir disparaître dans la paix souveraine du Dieu, qu'on s'est efforcé de servir, toute sa
-vie !.::
 
 — Seigneur, n'es-tu pas trop mécontent de ton serviteur ? J'ai fait si peu! Je ne pouvais faire davantage.
 J'ai lutté, j'ai souffert, j'ai erré, j'ai créé. Laisse-moi
@@ -3382,29 +3020,10 @@ couple auguste de l'amour et de la haïne ! Je chanteraiï
 le Dieu aux deux puissantes ailes. Hosanna à la vie!
 Hosanna à la mort!
 
-LA
-LA
-Christofor: faciem die quacumque tueris,
-Illa nempe die non morte mala morieris.
-s Rolland. — 6.
-
-NUS RASE) HAN) A Ve DER NET LE CA ALT r4 EUR KeT
-À 0 ANR fs PA x OA 17 A LAS DMPAUREE AE à LEP ARE PA NYSE Fr ir
-20 ff \ Se > En (PE) ANA y }19 7 MTS L 7 # 7 af 280% v, th 1
 ra HAE ER AUTRE a Leo ; A YVES AA TOUTE LT RUE
-RUE ERA A6 NAS LUS RE 2e
 F7 PROS as EUR INENERES pe LU L + DTA RTE {7146
-NU Ch Ke) SANS 6 À ! NE AA AMEN ENS FN
 LATE CURE PB IAE Her N et Mr SUMIERR ‘07 DRM #
-71 LA NEENE A 0e CG $ ES DT CUS {RUN 1e
-4 1L FSS va y 7 FER » ! ( a + Î L
-A7 Vas LS EE MINE RE A OENT LS 4 TNT
-p TTAME RETANSS SIREN OA A1 y NL e PNR WYRMALRE
 LR HE " LAND EE GER DE Po AR : es | nt 4
-: INISS LLC GERS 1; "ROSES
-À TA 412 À 10 HAT AE l ARS EIS LCR TANT ANT LE 2" PP nt
-
-'
 
 Saint Christophe a traversé le fleuve. Toute la nuit, il a
 marché contre le courant. Comme un rocher, son corps
@@ -3433,24 +3052,7 @@ Et l'Enfant dit : :
 
 — Je suis le jour qui va naître,
 
-) |
-
-Len ABS PARC em RES ONTE PER POP CRUE EC PRES
-RS LE AE AE EE AN AT RRON LATE ES EN POSER A TRS ICT
 # MST INF RD RES SU NT AR LA 3% LA RS ER RAT Er RAGE
-Ji LAUYR DR PERS ER Pros LR RP A TE TETE ONU LORS NES
-INR
-; Ai ATEN LUS ULB MAR PQ UT RENTAL RES
-AURA MR NA EE ñ k Lu à %° LU NAN
-12 NOISERNPSSSSRRTERES û î PARA EE ; : APR ME: |
-RAR ST 2 du 3 à " pe \ ; 1 EE
-CAC): 09 ON PATTES OMAN ET ER DO Po EAP 2 -
-Re An Tr #0 AT PT ER A AE FXAREE + 63 ANNRONE
-NN A ANT At LU Re LAE LRO OEN ENT NATH is
-PRE < din: x \ UNS PATTES Tu TRÈS AU:
-AENIAE LINE FETE URS RE ALES LOL NE ER dé, LT CAT CEE A ET A! H Al
-4e 4 1 40 RETRO air y EU ALT AT 1 D14 PNR 0 AR TRES $
-NL 1 RE TI on AURAS £a RARES ME 20
 
 [L'hymne à la vérité, introduit,
 pages 41-42: « Respectez la vérité... »
@@ -3459,38 +3061,18 @@ répands sur ceux qui te possèdent
 le souffle magique de ta puissante
 santé! » est le résumé d'un
 article de Giuseppe Prezzolini.
-(La Voce, 13 avril 1911).]
-
-LL
-‘
-
-Li È 1 Le ‘: j »
-A PAU EE je LH A ANUS à A AAA FU PA LM (PLU AT ET NIEURE
-
-A AU D AEURE RAT SALE HS VA UE ON RUE CN MIRE RTE
 
 RC PCM 4 je ROMA DAC nya APR SEEN FEPRE 1/1 GUN
-JARen LORS ART AE 3 RASE NAME MES (MEN D HO ENT SN * HN 0 j
-M LE M SN DE #5 FA AT TAN * NAN TOUR CRE MA LES NET RÈ tt h ÈS
 AO e M Rte LA NC LEUR tt ARR RE ARS SAR *
-APATNTOAT LARMES Ÿ +
-Tr OX SATA VE AE k 15 À LAS PR ! 1 ARC RTS
-RUN BAS da HAN RTAUSS (| { Hat (® NRA ATAAT EN PRET Ur RE ee à
-PELL LOU ANA PAIE AMOMURES. AINEUE MR TCNES ORPI L' 4 IRAN M!
 Es (PR CARE (n AR RONA MG MA A \ul POMUL CIN He iA Jet
-A 4 SAMU RSS ji f RUN PUS SI MUR NTM AU MUSÉE
-L'ART AA MAR. } MATOS LAVAL RE DES A ec HAL Ut J'€
 
 D Et te Un ee On
 Nous avons donné le bon à tirer après corrections |
 pour deux mille deux cents exemplaires de ce troisième
 cahier et pour quatorze exemplaires sur whatman le
-mardi 15 octobre 1912.
 Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes, — 7320
-ae
-D ,
 
 A nd Et DRE à a LA VOS
 
@@ -3499,68 +3081,21 @@ ON OISE ANT M He au iptre 1 'eNNES
 |: LRO jé LR ee ANR AT 2 PURE RATE EE LS CUITE ER
 PAT at t LA ET LA ASE DANS Wei is nu RS En à © LR
 
-LH SRE AONNDTALITRERNNEERES MAR AE ON ETS LE
 : ARC NAME SRE) CANONS TRAIN TES ES ur DAS RE "HART SE ve :
-1 NOR LE MOSS EE A PT RDANSENR LETTRE
-a
-Hat AE At HAE LUEVY NE à AA QU LE Cr A EN
 10e es RATES ras ta DORA à AE 27 CNP
-}' SAT ENNN UE DAMES NET) AN TENTE A CES HN NES RAT
-À ANNE OL TERRE “ AE CRE, LEA XI Â es LINE
 (ELA OR ES A FL an LUE ARR LUS An ni 4 ‘
-
-RE NET ARE 1e Us SEA HOPPER \ (0 a
-Fri ER NS GRR RERO TR DATA Re AS CRD FN PAS
-LA ARR RAD Nul PEU TES C MALTE" FPT CLIC NAT LME
-na: it LIEU PAPA SAN DATA TO al" A1 nue
 
 ve 2 LA TA 5 it î ï S th nu EX PeLU à
 
-LV V UN TERRRENSERSRERSS RL ARE CRE PAUL QUE Et PARID TES CET) 20 RER
-4 > We j TÉACRE ARR TAEUA A Neue Al FAN TE OURS JOUE Stone à ARTE
 100 AN ju FA LE LE | la
 de AN K/ ARENA MATIN CSA MN LAVE sa RTE à ,
-4 SN Nr A NME EEE ME PACE
 
 | dé (4 Li di ne 4 W à:
 RAM TT Ue "NE DIR EN al tait AE
 | ANAL DEEE NT (UN Jp is EN CPR UAS
-NTRER “h sant ROLE FA 0e DENT rs IRues HERVE AA LS TRNT
-(ANA NANTAs AN MMRENEA Li ep Ro TNA Ke LIU
 The MY DE NA FN PANNE ABS AA (UT ARE Ter:
-BAR TANX NV IRALEN PAT YL4 Rp RME, A FAT ER AE VX QU
-4: 24 HIN EN ‘ £ AIT ri fi HOUR (HAE tt) 1
-NERO EAU ÉD TR TR ARENA TE RAA CU
-Fe à CODES it HA LOT NRA HU ES
-1} i tr N° ATHR
-DA hi (14 1 A ES
-LEE d \ L i | à ME int y “
-LL A AA (AA TN i MSLAI “J
-u (1 W : ‘ $ 1 7h VAUT AIT no
-à MA | Éd AA al
-1 4 } * : Ca, ITS 14 Al
-1 PAU À 1 TROT É (0
-“I nl à { He Pt {
-1 AAC d Ar FR A ANT
-NL AA UE RATE
-ALAN IE Pal Pl, LAIE A ACER
-DRE Ù } VOA RUE \
-EU 14 \? RAI! LA PA
-FR: y { H 1 AUIAR HA 54e
-3 A ARE | TELUS RES » ANURT N: ÿ SA RRr Le au HE
-NATIVE LL 1 PARU FA eu
-VU 1 AAC HZ j } A AE UNS £ NA
-H NA ! nn f : An É | USA À ti
 i TA (ur Una MIE AR \ TE a LÉ EE U NAN AT
-GÉANT. AA TE “ L'u LOT PATENTS DANFHUT
-AO pal HAR LASER ON \ DT RU) 4 Au
-Y Th Hi PHARE NOr D Le UUANTE CELL LS APR TA
-NU Nra (ren LAURE 1er Him } { 4! HER AN Nan
-MAL ON 20 HA 76 Part V4 LD LT LS [WPEU e, TS À
 WA AUEPTAI ner, ete URTES 114 hit RU Le (EN RE
-NA AT ES A! 1} A TRANS (AN NT CAL AU à Ne RANRE
-MAR DUO UX NE LAN LAON AT I A
-DR EAST ENTER LI LL , f NY ASE . VAR
 
 Les cahiers ne veulent se recommander que de la
 simple énumération des œuvres et des travaux qu'ils
@@ -3589,7 +3124,6 @@ Domremy; les batailles; Rouen............. 10 » a
 PiERRE DELoOIRE. — de la cité socialiste....... » 10
 PIERRE Baupoun. — Marcel, — premier dialogue de
 
-laïcité harmonieuse; CRE AN ERNEST PA EN
 JÉRÔME ETJEAN THARAUD.—le Coltineur débile. 2 »
 JÉRÔME ET JEAN THARAUD. — la Lumière ..... 1 »
 RoMaIN ROLLAND. — Aërt, — trois actes...... ÉPUISÉ
@@ -3605,293 +3139,111 @@ et l'Enseignement; le Socialisme et les Peuples ÉPUISÉ
 troisième cahier de la quatorzième série; un cahier
 blanc de 108 pages; in-18 grand jésus; nous le vendons deux francs.
 
-4 Nr: 1 fe ‘ \
-QUATRIÈME CAHIER DE LA QUATORZIÈME SÉRIE
-JULIEN BENDA
-9 4 e °
 l''ordination.— II
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-ÿ DNA Ne AU ANTES
-MUR Re RCA
-NET Fe, NES : !} 2'HRAN RARE L
-EF ARE tL DUR #4 ae Wa 1% À
 ft iSe de NAN AU NO CHLPEO 4 FAX te MOTTE ARE EAN À
-DY 1 BEN a AIS 4 a AE fUE VE UE SARA à
-LR, 60 ACL d RTL e (el PTS AE AMEN EE ANT À
-(is ie AU PAASS ANUS en UE Noirs AR ERA vs A
 re nr Re EAN FREE Re RU « VE) HOTNAU CE DÉFLN Un ni iute di La Rest AT AS Te "Sr4 RE à + x
 AA ok. DAS) NL 4 LKR Le OR CM Te +. fa Ne HE Ds et Eu Joue: ? 00
-à dou Re HUGA Mo DC Te
-ua: a ARR NT RP
 RE OA PU M ENS A EU à Le HAN RAT AN de AC 4 Àt CAS dos +) Rae Een FA
 AE M Eve EN Ar Are AUS RER EAU Vie 1 MON NA Le QU (a in \ 20e AAC Ê
 NS (SAN Ki Hu AE RES Here Ne
-RAS OL FES Jin AE 5 Ua vite a SE a:
 ne no HU + Ua eu. he
-y PA PES PES LI 4-14 FA MCE MATE use NEC UE Me Dre "UT A rare
-eo DATA au NET SR PAM TNS à CARE Rent dis ;
 de FH ANNE ar A ES Ge se re JR nue
 Se pe RS For ar or Le TON 9e AE a Frs MO RUE
-pe. : RARE RAS MP S HAE ST Mr HS
 | k NP PA AUTO D En LES ‘3 re MB t4 "RN A
 SA es pre ARR RAR AE UT CAEN AO ES He 748 2 A Re Ne de Dit bé,
 #1 75 sun 0 UE LA 4 HENRY ÉMnTl PR Al “AP INCTS ui er CISRPENE 4
 | ARTS so “ Re pe 1) tre RCE SM A SE F
-S ANNEES HET HAUTE HER ; ALES ATEN A s'AE Fe
 Es ANT A NE dé CH TRQT ER ( SRE DS PE PE ee MEL À re ‘
 Fe AN fl Nr DA 0 de Re 2 FA Fra Res DE de A 4 KE A ARS te
-s ANT a) Sp ARE NRA PL LINE NS ARE} LA En FRE tes AU 3 M a PAT 4 I NES
 ‘A0 ne ART k Aux à CA ÿ PA LES ss 16
-qi, AE re of My s da A Pt à" ME PrE IR sr LPS NRC 04 AC tv,
 NN AU PAS ne Ut HEATE ex FA AUS ï APE AE | JANET ATEN SCIE HAS
-Me À PP 2 MORE EU A AN LS RAUETE KE AA MERS PACS A RL SIONS
-ui FA RAS ÉUN. ARE GP HEAR RAI k 42
 HS RO TOUT ES ja: + A SAUT AN MES HER ex
 FAT ot AVENANT LT PARTIR RAR 1 de ENS BARRE - A
 HT fes + NA PA Cara vx Lreix Ë Va {4 di AREA Fe Le MAS IE LATE PN CE Cf
 on é SA LA AT ANS a ARE ROLL x gr HARE
 ke <'P ON re (Me ee PS ne on AUS ANSE gun
-‘4 Me De RAA PRE 9t FRS
-Uk ARE x #8) TRE Hate LUXE, D sk VX c'e (PA À
-LA SA 1% A Pa Nr AT Ur ( + 4 ra A
-PRIE | 1 RS
-tuer Nine a Se PA
 
-rie. À ARTE « APRES More A : BC TR NT pe
-D Sr OS 2 RSS NN CT a Vel
-DR Levi PTS MR EN à PONS Er DA ae 0 PU PATES
-142 450 PRESS TEE TES RS Le ARTE ve Le LA TROUS TN {
 ‘F2: DNS EME A7 RPC ne ANTON IE RME PRET
 Men ge ET EX An En A) er LENCO TNeS RAS NE ET EE 4
-CLS Sara CA es Es Ke PULL AU à PRIERE CRACA YA IE
-AR : NÉS ST 5 1 ARTE RU 7 DIR CANONS
-te TRE SI ASS AE PRIE ST OR RT ÉOYe "2
-c , ; ; t » $ :. » COEUR sa PTT à à
-M), ii CORTE
 |” ERRRSEE ; FÉIT RS MESURE RAR:
-LAETTRRARPIE - . , : SÉRCLERR ENS 07: ;
 RS ” GLS À DE ce LATE
-ANR à É L PH PM 7
-EURE UE." - til Pynr 4 EL
-; RAR | . ; DANCE ANA he <> OURS
-Le ED « 5 F "LE ' A LIL TEE Fa 74)
 (RCE TEE or _ SET FA OS une tar AE LR ,
-Y: Se & ER 14, 2 ER k HÉVAES PR dE. Sn re
 r Et Clés ‘ PEN RE DEC A cha LE MSN ESS
 AE vs Ne LL TE Je PAR PRES A NL ee 1700 60 M,
-D
 d 1 LÉ RTE PTS PL er PE DE, LUTTE
 GS Le LR RU EE (he TN NET
-ES HAT Er RoS LUN Al PSS PUR Se ORAN 4 F2 EE
 Ten RES et ee het ET ie ESSOR
 nas # DORE LE D en 72 0 RUE UR 4 POMPES LE
-M 4 ua
 À th ÈAL à 15 À LARG OT REP CE a cie À __cn . LOL RE
 " OUTRE PER HHRSARUE DANS ei" + AR: M el, dé FE 0 1e 8 CRE A RE
-LE : CAT + NOR “. nt
 
-RS PAU TRCIR RE INR ANNEE, LENS RO EN, 2e TR Se TU
 ET NN NE et Ce Fe ke NA CR ES FER pee Rosie. FAR x
 RS ro cu ne. SR Nan À rx net RCE fe eo F5
 
-HR Me TT ET A EEE DE Ne CNE GES NOV a ETES PRES UT AT DENT CEE “Mel
-PUR SNS GT TASSE VO PRESL RSES Mes PER RES RO T On VAE ESA Er
 RS Re En RE PCR De CNE RE Pme 0
-LETTONIE AE * , DS SRE RESSE AUE CE PET: AE ÉRDRE Re
 un ox LEE NRRSS EOCRS SE TRS CRE
-LAS NET AE « Ne OL à L'ARNE ES L2 ÉTAT
-RE RP RL Te MT SMTERTET (rs MS TES ES TLSTÉRRREES
-LR ARNERRENT HA Noir E PME ESS HE IITECNENENENSS
-rene D Lo
 ARR Ne PARA OR A Te Ne EN tre Mir ne DV SIC CANEESS
 te 2 Le DONNE ET RTE RE Ie PRE PANNES
 LR En D PE SENS st EE ou PE ERA EN RRQ SES Le EE te
 RE hote CAS ee ee ho ee dE RS TN de ALES RES 6 ES
 
 fe) PHARES + RUE EE TL 0 de DE ONE AB GAUNS DS RAT, ERA MAPS SA US A RERO DRE 2 à
-RS ea No Te SE EE SMTP Le M 4 2 HN RES RES
 
-LEE CO NES RS SE FPS ER SNS RUN MAR 0
 rave SON RES AO che ROSE SA AT CEE 0 SU ENT +. 1
 
 neue ren Diner INDES LR PRANIE AT UML OVER LE
-LEE th r ÉLAE Re") RE is PEER RON rt S TRES A
-Ex RE PRÉRRERNRISES D PERS va PAEEe TRS VA ME ES
-LL TISS PRE Le PESTE Pr ME Ie RECU
 uer. SE EE TE KE LATE Than nt Rs RES 2) SERA FLO #
-: 2 FM BR A Se, APR ES PAS EE LUN MDN SP REE)
 FES LENS UE, SOU A CS RME RTS ne PARA ES
-A  : & Tr EN PEER DA RAM ee UT RES
-LL TRE RE RARES; Ce SR LENS CTI 3 EN F8 CRE C
-LE CCE RS 5 "+ Ve N ” + 1 A 5240 y Ft ya DCR dr 22242 pe
-EG PES EPÉRORES NN LIEN SSSR
-: 1 S RE ge) DRE ste 2 M re Re
-PET EE 1: à € + <; Me Gi et. © %
-DA DÉS AREE ; pe. #8 54 Fe-# Se PRIE RER Ir
-LETTRE ; SET 0
-Re ; 3 ; PTS RE re AIT AR LT ONE RAS a
 ns RS mi PE FE LA 5 GR a) de De EC CT He 2 TMS
-TE RTS « NA; 3 DE LA ET SERRES
 A Re ie 2 PTS Ne CRT SY-ODR ee MARNE PT A Pre à MES
 Li us Sn Pr TA EUN PHERRT EAN RE re, AA IE
-Ce GARE Le PAPE TRS EL SSI
 
-RARE re RÉPÉTÉ DER Ten PDORS
 RE US UN MG ei Re Sr TE ER
-RU (eur PTT RER
-EEE een nee
-D en SPA 0 2 ESS
-Sr Ra Ce LACET
-LEP CR TEE
-ns Etes ADR ES CO
-RE LEE SEA À $ ARTE + vs ; AE LPS RES
-RP Re = = LIT
-SO = Be re à. Es] re
 | PR
-RS TRES
-+ SIrSS RER
-TRES MR En 5). ki: EE PAR Ê Ex 2 Ï77 17 287 CSA
-2 LES EE MN PRISES S, 20 LR LE ET 1 TRE
-SP RER s Fra SN LEMPENSSS
 LI ER ADS hi Et ET op" SR RNA EE TR ne or e
-UT GE AS Be.
-‘2300 SN ONR EN CE ! M Re nat Re ROSES
-+80 RES RC Me
 TRS RIRE TN RE ET Jar € PRES TES PLATE
-D Nr, RE ETES
 
-DU MÈME AUTEUR
 aux Cahiers de la Quinzaine
-Ordination: — LS." Hu. Lea
 
 ? CR Ta GS TRS ” DER TES SES DES de RTE NRC A ee Lt D ir
-JAN ORNE TES PR SO ANT PR GR SR APS OS RUE MORT NRS
-À CN RTE JR Te RTE FT ESS ARTE ER OUT PR PURE LE CORSA
 SAVE RERO LA 6 ONE TRE SE TT ne Pr ire ACTE IT D ae n° DATES
-à OPEN EEE PRIS A TS SR A ER RER NE STE LE 229 Pig PTE
-A NN ES MS > © RS Fe
-SR ET 5, + SRE * Has" YIC CURE ACL
-dd 2 LÉ NES se ENS CROSS
-OT
-en bc en! ÉLIRE ES PET POSE
 PTS LI, 4 LRO ERR ER tant me à 4 1 à Len ne - *Æ
-2 TRS EME x 27 Rs
-M Ra ER RE
-ICE LEA A LR EN CA r$s RS “a EE) == 10 5e SA
 ee ES APR VS Dur que dE 2 Fe CES sh HAE L LETTRES
 PARA Le LMP x HSE ELA GR TL ae SOS PRESS
 L'ANPE EE Fe % LE ÉCLNT ASS … ner PR
 © L'ANPE PEN Ha er ax NM LAS EE PRES Ar
-RL TC Le Tu LRU A Ag Pt us, À ON PRET ARS 28 OPREN |
 
-ARR AR ES CA te SO
-PAGES EE PE NOR SN PAS RNA ET RE A
 SNS. SSSR mes
 je LÉ MRES EEr nes ÉCRIRE : es À TC. g LEA CASA
-: LS CHER cs ÿ PEL à RENAN ve ETES FAITES È
-NOR I A D ai LA v: Le 7 | NT CNT ER
-El # £ z à gi 5 PNR ME nn :
 ss £ E or : > 4 LIÉE LE AAA NT ARS
-D e- LR RU SC = Due & AANTES POENT EEE
-4 CA ST RE ant REA * . 2£ RSS, RTS SR TER
-MENT Le FA L " 1 Ê Es LTÉE re AE Le
-ra à < DAT) RM ÉD ERREUR
-LEE ANR
 8 LE cr 2 et, ‘ 4 LP 4 | k Je FA Cart POELE
-Re. ER ARE TE RE PSE saîe AN:
-TION ER MR RME LT Te AT $ 2 F T4: STITF ONE 24
-Le) 73 VIN AA LEE MARAIS L'AMCR PU 1 SOA
-, Ar SLR PP AMOR d' ON e AE OM ON EE ELU RASE ML ARTE
-A fn PRET RE EU LAND RENTE a CRÉCP AS :
-à a LP ANT ARE EN RES k a A ON OEMS “ tre MER LAS 11 X a NRA
 LA A DA M 1 el Re D ere 2 1 Re NN
-Te LETTRES ne NP AC Er Re 7 RU LH 325, 26 IRON
-x PRE 2 ERA OO ASP ERA RAR MER ANR
 tee CT CE UE PR A EP NN ARE RENTE HAS ET
-M 0
-STE NC RE NET M A 2 metlue RROORRENER
-PRÈCAE e Ph AP a 7 Fe ee, ANT fe j
 
-PARC ET AS EE ML EE ATEN es PE (2 AT CEST GR
 A Ce NAT Ne PR LS pa ÈS TRE 27 si
-: SP LERNITEESS SP AO NET JE EE ET PP EE NS AC ENTREE
-D nn ee SE MRT SE RES RES ACER EE LT ESP
-LR ESSONNE NE EE %. VOST NT RE d'EPS VAR CPAS ER
-GR PRE RS
-A SCO LL
 D AN DT Le HSE re EE FLAT PRIT ge hi U ie LUN
 ne NRC RON EE DR,
-LE EL. SN ERREEE CLR DEN RTE EE L 74 =
-a A EN Te
-RTS M2 . SARTETAN Me, TE " - DRE 1e PAC ONE is
-se EAN M ; Mrs “£ ‘22508 Re
-RER HAE LATE A . me LT mir … CHANCES
-A e$ s its TERRES
-LEE AE FOR AE RON rt [RE REC ANT nl
-4e LAN El PR Ur er, Le ÿ À : L1 EN ARS SERRES
 Re ne Rare VS LÉPÉTÈURSS
-AE - \'AUENSS RE CP ES CR 1 rd Den? A,
-1 RER MONS PET NUS PE Y À à LR SN +
 : 17 RER L'AONNNONSEEES $ Rorets À RE ye : M
-Eee Bed FAR # Na + MR: à È À CARE. ah TT, à ES ÉSPTER es
-pin oe RE RE pe: à »; RE
-LL PARE TONER ? DE à l'a PRE 0
-es RAT $ 1 FLE lee = OL Mn
-1 SATA PES) aff DEFUUER 40e RON RSS
-RE : 16e PRET EN EES SI
-ee , RE 12 a + x LARTAETES LTLL CR :
-M LL CR IR De Re UE
-D un, \ OS RIT ESC ART: RS
 TS < Je sr FU ROUE PAPAS Rene
 É M COLE ©: Une PE e: vs EX pire spl CNE EL Rs
-En Lis EE ra Tor Lcd & Hi te RE.
-0 1 se SERRE INR SNS
-A se PR RE Er UE FN À
 
-L'ORDINATION
-chute. — 1,
-
-Rd HS A ANSE AS = AT MSIE
 * DR. HT, | LME e È L FL ds r et 5 à
 
-è TC à TASER Lee X 52 Ÿ TU TOR
-RAR Pre Æ 1503 » L EL
-Fe MECS EE * = s : PACE Fe
-À LASER ÉPMERS + È ù k LR
-1 ER SO EE È = - 22 +. ARR
 PNR EP EN AM TT: A Te, Es Free ne, LRU NS
-0  . ARR
-A  , (3 IE ST RSR LISE
-Nr ‘pee Ce Ce de A4 = : #2 5 Ta PE #4 Pa LATE
-MR RTE CPE RM
-à A 4 SP SEA DT EU
 
-= k v% 1, ANSE LIRE TS
 ESS T Lee REA ES # SAR Face ATEN LEP AE SES MCE CPR > Peu +
-re fair Rs RTS HET ee RES pe AREAS AS '
 ESA HAE ci Re CRISE SGPES TS ER Le ESS sc SR di: OR RET “
-se APE ARÉRURE FRE, 4 KM ER SUR SR Lz RE ET "HER
-GITE SCANS RE CASSER DR Re D D TE FÉAE SE HR
 S PANE re = 8 | tri Las ra se È Een ça HT e ÈS 2 ET EU Ad .
-D a ES NPRE Re HENEe NS "RE DE er Ro EE L
-PETER Gr À PRE Ni NToe ee CT RES Le FF TN 2
 ae ‘Sr Fe Pr "LES D LT RUE AR ART tr È
-Re A PA Te PRE SR RAT FC
 DAT PA L SRE FE + NÉE Pr Re Ft en RS te 2732
-1 d*! DER 544 ns, 4% À : 1 r “ . L À LIU Le ET es
 SANS 2 CHAT q HRte ve rie L ES : Re : SNA To
 RARE + SM et NN Es 5 AUS re  - ESC Ag
-: TRES EE 5 ÈS
-F HÉRES ASS : er eds & SPAS REre
-D te à | TRES
-Ÿ DA AUS PAC APR AQU # ) . ; Pr 7 =
 Re © rl Fe NS SA ee : MT ES re
 ME Dent OO MC RbÈetat £ FA TA FANS CR Fe
-TA MN à CAT PME , s GE 4 L Ÿ ! Hautes (RS
 PAR See Se SR Pat : : RC HN NE CEA a pire Es De.
 FRA CPR RPC QU Le & EN AR: Fr en > Des
 D RUE vo, RAP | ARTE MT Le” Aer) Er
@@ -3899,98 +3251,42 @@ FEAR Le FEI A rc È APE PM ue HSE
 RP e, ñ Star ee # HAE UN PES Ni Tu FR CE Een j
 VEINE LE AS Eee EE ARS Lise sl ANRT me
 É FRS RE Mr "EMEA dose DRM RUYESS (ui SEEN De
-Ds DRE +. Pre Ro 2 j}: HER
-14 Fu ?; CA LEE TAMIRE has Le "ES
 nn DE oe Ce HR en TIEe A.
-1 F1 OS PRAR SANT “ LEE FOCRUE ES JR UE AE
-ER + ANSE
 
 Tant que tu ne mourras pas
 
 à tout amour créé, tu ne me
 connaîtras pas.
 
-(Imitation, II, xzn)
-
-D 'SÈD TR ST Fe NT SRS RES LE RTS AE NET SÉPARER
 rer RE T Dao ENe FESSES OR ENTREE RS RER =: Tes TRE à
-Re DE RL EE Ph EE RUE AXES, RTE RES FRE ONE, FN CNE
 MER Ne Too RE En: RH MIETIS PURES Caves
-Ce ENS OS PRÉ Ke FAURE ENT à ERA CA DT LEVÉE
-Le 524 PROS MR NL ETS AND de HA LPENES À FE PEER RU ARE CRE
-Re © DA . in ee DATE PURE FAT 2°
-LORS EE TT) & De 2 LA a 2 LS L ECS <=
 k L'ETRSES Æ re HT VS Re ANT + CE 5 net ‘SEE
-LORS RES <LSRSATE 4 ? x on d + à Se 2 EPORTE E
-CALE Re : & a *: … LANCER PS -
 AU Fu FN CTP UNE, 2e . ; ee ir FR LU 'HÉONIR R
-ER PRICE 116 1 TVR AE EN ERSE RCE M
-< 15. 'ORT ESS 7. Gus ©” SET RTE RES MMA |
-+ Ci CARTE" CR. REY, 1140 Ses
 
-Lt) s N L = , à
 VE re AIMENT dont SEC De LS SRN PSN ETS OL LEP EAN dan EE ue
-RS RIRE. VASE ARS a Le PRE LT ORNE PTS CAE MO
-ENST RTS PERL EN AT 7 PR EN RUN et EEE SRE
-7 ro RE Lu Nes D AR ALLER ©
-L'FFR à RDS de à, De ES BE NES PRE TE ACT PET :
 > Re Tr EN PEER Ce. NIET RENE AT HE RATE CEA
 > # nt As: Si cae E
-n* " Pre & ÿ > TOP tee LAPS
-$> ; ) * ; 2 SON
 | DÉLICSSTE CE Re I CR NE Re
-RE ER FR 2 - Li ER A TER À.
-LE & < : : 3 Ve 2 É 7e € Ne à OUAIS
-AE à * ATEN EN REPRR
- RETE MER ; à - : F5 RTE = PPT RE
-+27 ou a L SE L 4 ACTES LAS.
-D. e D) AS x *& TT PART, }
-P 1 : “; z LEA TES DOSNSE eR
-rte FAC | À 40
-TRS ALT S Ro e Lu 2 PONT ETIENNE 1
 L'AT PT SERRE PEPE ee AAA NE, Le LÉ: é A
-St HS 5 SAIT 7 AIS LE TRS
-Pau ANS 1 CA ML QI ENS, OUR MOSS
 
-+ du . Li Ka * * Le A os »
 LT SD RENE ET SE 'ut Ha ” : jh
-NACRE AGREE CORNE MERS COLIN ee Rs RE EE |
-À ST ANR EE PRE DÉS ON REED SOUS SES)
 LENS Ps MUR PES EE 2 TE AR dent de Nr 45 a i
-M RE Lo ER PANNE Ur LE LT
 ( CI SE # nu RATS ES ne) te Cite (2 get La Lve EVE AU pe
 Cat OR FE SR AT J DER A à ee ct. Les
 | d L LANTA” x CA , da. = ù ‘ + ne " <he 13 an Le , É
-M Re ci , c NP RME EU) Peu -FSre
-È FORTE AE ÉTENRE pe d F XL à & F LÉ NT EEE È
 > PENSE De - as. 14 PARA
-+ 75} MR : à TRES 4 _ La SNS
-Rae 7 Per. | RSR i ; € + NÉE EE ESS
-RE $ 4] DT $ 4 # = Fa
-SRE 0 ET ES AVE ART # 154 CRR . BEL
-2 DRE PR
-QE" AT À ES RES EU Ê NUE RS : ls re % 1.
-Er en CEE F: Ÿ Res AE À 0 Ro r 7 Lies DER 4
 . A SE FE ds Leu + GATE ste r} L
 AA or CS LE > Se k ur + - FE |} saÂTeS LUE
-+ EX Ve } } , SR ES Ste FSU DES: 4
-4 ë PT EL CES nr \z À 1 A TETE QE - :
-E : RC rt a LL” A os —_ Ju PAL, SEVeS
 < +1 SALON Fo ë ty  d ae L 2154 UT EI +2 « : FACTURES UT FN TUE 1, LUS
-1 FR LI NOR TRE "rAN LE GR AESS
-
-I
 
 — Monsieur ne regarde même pas comme
 Suzanne a fait un beau tunnel, dit la nurse
-indignée.
 
 — Oh! très beau, dit Félix en se retournant... Mais nous allons en faire un autre
 encore plus beau.
 
 Il rapprocha deux fauteuils dos à dos, puis
 sur l'espace qui les séparait posa un grand
-atlas. *
 
 L'enfant battit des mains :
 
@@ -4001,10 +3297,7 @@ Elle courut prendre son élan au fond du
 couloir. Puis s'élançant, faisant avec ses bras
 des mouvements de manivelle, sifflant, soufflant, courant plus fort, elle passa sous le
 
-: 17
-
 l''ordination "RE 8 o
-EN OR EE DNS RE USE HSE RE 55
 tunnel improvisé & tomba dans les bras de
 ses parents.
 ‘ ; — Maintenant, dit-elle, je vais chercher
@@ -4029,12 +3322,9 @@ pencha, elle tomba dormante sur l'épaule
 de son père... Lui craignait de l'éveiller en
 la passant aux femmes, cependant qu'elles, :
 debout, souriaient de sa gaucherie... Doucement elles la lui prirent; Clémence, un peu
-18 :
 
-PE pr TR TS A ed RE
 fatiguée, tendit la joue à son mari & les deux
 femmes sortirent lentement avec l'enfant entre |
-leurs bras. |
 Félix resta dans son fauteuil, devant le feu,
 Il était trop tôt pour qu'il se mit au travail...
 Dans la rue, tout se taisait.. Autour de lui
@@ -4057,9 +3347,7 @@ cela lui signifiait-il assez sa nature de vieil
 Et il avait fondé une famille !.. Et cela marchait très bien... Il était très heureux... Il ne
 
 l'ordination
-DORE N A EL TRE PR QRE PALESTINE TE Ne
 pourrait plus se passer d'elles. Était-ce
-drôle !.…
 Il songeait comme cela s'était fait. Il allait
 y avoir dix ans bientôt... C'était au sortir
 d'une violente crise sentimentale (était-ce loin,
@@ -4080,8 +3368,6 @@ de telle autre ou bien si c'est le contraire;
 sa loi, son ordre, sa vraie adhésion à lui-même,
 sa pleine réalisation, que toutes ses autres contentions étaient mensonge, imitation, ennui...
 Mais en même temps il découvrait que pour
-
-LA CHUTE |
 
 l'avoir pleinement, cette vie intellectuelle, il
 fallait régler la question de l'amour; il fallait
@@ -4105,7 +3391,6 @@ le néant ni l'inhumanité, si cette femme existait, il n'avait aucune raison de
 la trouverait.
 
 s l'ordination
-- RDS SL de
 Et voilà qu'il l'avait trouvée... Dans un L
 voyage avec des amis, au fond d'un vieux
 à domaine breton, entre son père & son jeune
@@ -4117,7 +3402,6 @@ de l'homme, & cela, non pas en raison d'un
 Clémence énoncer un « principe »), moins +
 encore d'un commandement religieux (elle
 était à peine croyante), mais par une sorte
-d'indifférence native à descendre au secret
 des êtres, de modération native & patricienne
 se dans le désir de goûter l'âme humaine... Il se
 rappelait quelle étrange impression de tendresse rationnelle lui avait faite dès qu'il l'avait
@@ -4131,10 +3415,7 @@ lexpression de l'âme, mais de l'expression
 mesurée, jouant Mozart plus que Schumann...
 Partout la mesure dans la prise, la raison |
 dans le sentir : elle lui semblait, égarée aux :
-22 ;
 
-LA CHUTÉ |
-ARTE ED EME 2 EN ONE EE À
 âges plébéiens, une de ces formes grecques
 qui savent, l'amour au cœur, tranquilles tisser
 la toile avec une navette d'or.
@@ -4163,7 +3444,6 @@ point changé son âme : elle avait été l'épouse
 qu'il avait pensé qu'elle serait : aimante, point
 incursive, rassemblée dans l'amour... Et alors,
 
-+ x “
 l'ordination
 délivré de l'aventure, au calme de la chair, il
 avait accédé à la haute vie de l'esprit; & il
@@ -4193,19 +3473,14 @@ son œuvre. Doucement fondu à eux quelques
 Ainsi il avait réalisé ce rêve inoui : l'intégrité
 de sa personnalité entre une femme & un
 enfant, la haute vie de l'esprit dans l'état de
-mariage.
 
 Parfois pourtant des craintes lui venaient.
 
-. LA CHUTE
-
-RARE ER Le EE ST EE ER EE 7
 Il lui semblait qu'il y avait un escamotage
 dans sa vie. Ça devait se payer d'avoir fait
 une famille... Un jour, ils se rappelleraient à
 lui, ces deux êtres qui dormaient là-bas, pendant qu'il travaillait... Bah! des histoires de
 mathématicien, qui veut que la vie soit une
-équation juste !..…
 
 Et maintenant, debout devant sa cheminée,
 parcourant du regard ces livres, ces papiers, È
@@ -4226,11 +3501,7 @@ au fond pour lui aucun sens vraiment clair, —
 en même temps l'analyse des idées les plus
 « simples », les plus fondamentales, du penser
 
-25 chute, — à
-
-D nd id es
 | Ee . ue Re à MER ù
-= T'omRhallon - "TRENE RM
 philosophique... Œuvre de sa chair et de son
 ; sang : des nuits & des nuits de fièvre pour
 , rendre telle pensée claire, pour obtenir telle
@@ -4300,90 +3571,24 @@ travail... Et ils ne l'inquiétaient guère, ceux ; 3
 qui dormaient là-bas.
 
 REA SEE TUE ET 7-4 ER RL tt ue | at Qu ST Ur © Re.
-Es. # ERREUR RAM ER SEE CSN PE Tin TRE: ESS PR PRET EU dE
-PE RCE MAÉ ENT) FAN Eu Ur RAUNE TRE) ARE La
-
-y 2 Arr N'a E ; AA PEL ne = A4 Re ere < #RS/ !
 
 MT ARTS SES ROHAN rt A nee
 
-: Le NÉE PERRORESE RL. Æ rs F AIR LE FT. SONT ARR DE
-
-LIEU SEA | 4 FT D SUR EN LE AVE AE ONE $- his + NRA NE
-
-A ER MR ES TR ST De: AETS a E
-
-x » PARU ss A conne ETES ÊTES EI EL Tea 2
 ro VETRE ; + pe TR Ps Dam é È rente Do SA VERSA ER VERTE
-
-LT 'TATICETNTE + RÉ Es DEN NÉE APRES re ART LEE SET nr à
 
 CCE Lars t + A ras s, Le EE Le
 
-: RS aie Lee Me 3; « k PP ; ee
-
-1101 RRANES RAR ORST EE LITE TS FR Gr re 4 Tu A ONRNSENEES
-
-TS FRS LT SPA EEE ES FE 1 fab SV EE CRE mél : LEE
-SR EE
-RE  —  : ; RES NES
- . Rs
-a M BRENT ee RES RE < [LÉ
-CPS ET FN Um 151% Er: F EN UNETERSE
-
-È Te 44 LE HET HE 4 l: , 141 # DEA = RAS #4
-EE nt | $ +) 44 | LEA LE AT ECTS
-RM SL Le À gs À 7” PUS SSP
-SEE ARR Rare a F: Lit dr É, WE 174 Fee
-MEL En Ps A PARTS Par RE à LAN Pi EC PT SR RER EE
-a PR USER RARE RE ES
 REP ie à | SMS Le & NE x RP eu
-ES A  . es RE FR ESS
-Lo PS € CRE PPS se a: V7 CE 2 PES RER
-A St: PRE TS A M RE LÀ 7 ER. js FE GS
 
-: fl 5 0 - Re RE ON PR PTE Re 4 RTNES
-
-M SE A EL SERRE HT TE MERE TUE STE PIE
-Ets ! CR A ET A A *
-ee FCO ER. LR TEEN SERRES
-1 à PR Ad be Ke, 2, 2 DRE PES DUREE £
-Le s A
-se 7 Un,
-È x ; PAS: RS $ à . LP Lien
-IR LEE ? en ee.
-TE ; £ NE 5 LS
-à : KO ESS RULES, 1
-s : 4 SE M PES
-En NU LP RUNIERSS
-LATE Mn vol D
-CU M AT PENSE" os EL 4724 A Nha FEU LL HPT EE
 AUDE. A ER EC PCR Li, ee Et Ÿ LAS RNRESE
-SELF NES LÉPASAT DRAM à 0 Si +4 RS LAC L'ARICUES
 
-. TANT EST RER TRE CRORES Res SAC Ve ES PO APR EE Fe
 ; HE AT Ge DAS RTE are Le SE Es
 24 SDL CORRE Aer Een re PNR ET 4
-FLE TES DE RE LUS Er RE LE RES LES
-RE in | HE : » "570
-ur, AS de, <= Se L = RD
-se - EU CES + DE £ x « = LS : :
-ES POSTERS SEL US à . $ LEE
 ERET ve Tu RCE TNT. ME à KR » £ - x 4 vie
 LT) SR L : 4 = tue Pas DR
-A Re PET TSIREESS
-Re En 24 À è es 2% x ei
-A ÈRESS Po Ti ES ENS REERSER ts.
-PRE Pe À s LATE
-LR ER : RFERO de AU" É AE EN 75 : F2 LES $
-ANT LIRE RON ; n c £ Re
 HROUE NES We < + Art CE Re
 PNTUAIRCSNEES k x ( de : “PLACES
-NT TR, “ Re 5 4 LR x 2. = QE Ad
-£ | LAC ONNONERECE 4 = re ESS x 4
-41 APORRRE VENT LRU LES KES ARE
 
-II
 3 ‘ds un dimanche matin, en revenant du
 Bois, que Suzanne se plaignit pour la première fois d'un peu de mal à la hanche : ça lui
 faisait un peu mal quand elle courait trop fort,
@@ -4398,7 +3603,6 @@ l'ordination
 âge-là, conseilla qu'elle s'abstint toutefois de
 trop courir pour l'instant, qu'elle restât étendue
 quelques heures par jour, pendant quelques
-jours...
 Elle s'étendait deux heures après le déjeuk ner. Puis vers la fin du jour. Très sage, très
 
 raisonnable, elle quittait ses jeux... On lui
@@ -4408,9 +3612,6 @@ images... Des petites amies venaient la voir...
 Félix venait vers cinq heures, prendre le
 thé avec elles. Puis il rentrait dans son cabinet, non sans goûter qu'on fit moins de bruit à
 dans les couloirs.
-
-LA CHUTE
-ru :
 
 … Félix avait enfin rendu nettement
 distinctes ces deux idées de mouvement
@@ -4422,7 +3623,6 @@ prises chez les principaux penseurs.
 Cette nuit-là, il venait d'achever un mémoire
 de Descartes et d'écrire plusieurs pages
 pour préciser quelle forme cette confusion
-prenait ici.
 
 Maintenant, au fond d'un fauteuil, dans un
 coin obscur de son cabinet, il se laissait aller
@@ -4463,10 +3663,7 @@ toutes les autres : Suzanne était atteinte : ces
 douleurs de la hanche, ces faiblesses du genou,
 c'était la coxalgie.. Ces « fatigues de croissance », des histoires de médecins qui ménagent des parents!
 ÿ Il surgit, courut à un dictionnaire, compulsa
-34 ‘
-xk 2
 
-LA CHUTE A
 fiévreusement des pages. Il lisait haletant,
 dévorait les phrases... Tout confirmait sa
 crainte. Chaque phrase nouvelle l'enfonçait
@@ -4515,8 +3712,6 @@ de comprendre, comme s'il croyait soudain
 que le vouloir fait le savoir, il attachait ses
 yeux sur cette forme dormante.. Il restait là,
 
-: penché.
-
 Alors peu à peu & pour la première fois le
 sentiment l'envahit que cette chair qui palpitait là, c'était sa puissance d'être devenue chair
 & conscience, c'était sa tension d'être, c'était
@@ -4524,7 +3719,6 @@ sa volonté. : c'était lui sous ses propres yeux...
 Alors l'amour opéra son miracle : lentement,
 doucement, sûrement, cette petite chose dor-
 
-LA CHUTE RE
 mante qu'il sentait être lui le ravit à lui-même... a ï
 Lentement, délicieusement, il sentait s''abolir %
 en lui toute claire distinction d'avec elle... |
@@ -4549,10 +3743,8 @@ bénissait qu'elle dormit pour s'y fondre à son s
 aise, sans raison, sans mesure... Il restait là,
 penché, buvant l'indistinction..….
 Il se redressa; troublé comme un homme
-37 chute. — 3
 
 l'ordination
-Lt
 s ivre. Qu'est-ce qui se passait en lui?.., Quoi!
 il était venu pour une chose bien précise...
 Qu'est-ce que c'était que cette espèce d'ivresse
@@ -4580,8 +3772,6 @@ bonheur... Il ne voulait pas les aimer. Il ne
 voulait pas. Il ne voulait pas... Alors, dans un |
 mouvement de défense éperdue & qui déjà lui
 
-LA CHUTE
-SR AN STE ÿ
 faisait horreur, il courut vers son cabinet, vers %
 ses écrits, vers sa pensée. C'est là qu'était sa
 vie, sa passion, son vouloir. Ils sauraient bien à
@@ -4610,11 +3800,9 @@ fond, il voulait rester. Il voulait souffrir avec
 eux : rester, blessé par eux, près d'eux |
 blessés par lui. Et, s'effondrant dans son à
 fauteuil, il murmurait avec le Maître : Ç« Je
-39 ;
 
 l'ordination
 suis crucifié au monde, comme le monde m'est
-crucifié ».…
 
 Et il restait là, attendant le jour, essayant
 de penser que c'était un mauvais rêve, que -
@@ -4638,12 +3826,7 @@ Et il restait là, la tête baissée, tremblant
 dans l'impuissance à comprendre qui il était.
 Il comprenait ceux qui dans de telles nuits
 tombent à genoux aux pieds de Celui qui
-sait.
 
-4o
-
-Ee 4 | LA CHUTE A
-* * ; ;
 Le jour parut. Il courut chez les médecins...
 La coxalgie ! Il était fou de croire ça... C'est
 d'un diagnostic très simple... On le lui aurait SET 4
@@ -4652,8 +3835,6 @@ fatigue d'enfant qui grandit vite. à : €
 Il rentra. Elles étaient à table. Ilexpliquait ;
 comme il pouvait son retard, pourquoi il était à \
 sorti de si bonne heure, s'asseyait entre elles |
-deux.
-.… Quel sentiment profondément nouveau ”
 le prenait de ces deux êtres! Cette petite
 chose qui mangeait là près de lui, qui buvait,
 qui parlait, qui pensait, qui voulait, comme il
@@ -4666,8 +3847,6 @@ paraissait qu'aucun père ne le sentait comme À
 lui. C'est pour les autres pères que cela
 n'est qu'une idée... Et cette femme, là, en
 face de lui! Quel sentiment profond le tenait
-
-- è |
 
 l'ordination |
 ce matin — qu'il n'avait jamais eu (une fois
@@ -4698,7 +3877,6 @@ cherchait vraiment... Comme avant... Il trouvait; & il étreignait son idée... 
 bien que sa vraie puissance d'étreinte n'était
 plus où était sa pensée, mais, dans la pièce à
 
-LA CHUTE |
 côté, sur cette chaise longue où était la chair |
 de sa chair. Et il marchait fiévreusement de |
 long en large : & il sentait bien que sa fièvre |
@@ -4712,7 +3890,6 @@ jugement, l'accrochait à cette œuvre. Ah!
 l'atroce chose, pleurait-il en son cœur, l'atroce 2
 
 chose d'être là, tout vivant, dépossédé de sa
-foi.
 
 .… I] lisait le poème d'un ancien : comment,
 selon cette école, le monde s'était formé, la
@@ -4725,7 +3902,6 @@ venait de surgir sa vraie force d'intérêt... |
 jouer & tout le monde courait. Puis ç'avait k
 été l'heure pour Suzanne de s'étendre. On -
 
-RÉ UN D PE AR OU AS RE
 l'ordination se RD LS cf
 > _ l'avait arrêtée au plus joyeux de sa course ; À
 & ils continuaient de courir, les autres, les
@@ -4733,7 +3909,6 @@ petits cruels. Et elle les regardait, triste &
 sage... Oh! quel amour le pénétrait, quelle
 ‘ furie de communion, quel immense accroissement d'arrachement à lui-même, d'impuissance
 de l'esprit !.… Ar
-EE
 Le mal s'accrut. Les médecins s'assemblèrent.. Des hommes vinrent avec des
 bandes, des cordes & du plâtre, qui emprisonnèrent les membres de l'enfant dans une
 | affreuse enveloppe, cependant que, déchirés,
@@ -4742,13 +3917,10 @@ la trompaient — « ce n'est que pour quelques
 | jours, dimanche Suzanne courra » — & qu'elle
 élevait vers eux de grands yeux étonnés &
 - confiants.. Et les hommes partirent. Et elle
-restait là, crucifiée, résignée, affreusement
-humaine.
 _ Alors, furieusement arraché à sa pensée, le
 malheureux se sentit précipiter dans l'amour
 
 + LA CHUTE se
-FER RDA De EE à LS SAP Re CEE EE
 le plus éperdu, dans la dévotion la plus riche, À
 dans la débauche du cœur la plus totale qu'il $
 eût jamais connue. Qu'était-ce que la confusion 5
@@ -4773,7 +3945,6 @@ tout sombrait : toute action de l'esprit, toute
 puissance de prendre, de comprendre. Et il se
 débattait : il essayait de se soulever au-dessus
 de cet océan d'amour, d'étreindre encore sa
-45 chute. — 3. |
 
 l'ordination ; x
 chère pensée : vingt fois le jour il rentrait chez
@@ -4785,7 +3956,6 @@ entre des doigts crispés. Et, de toute la vio-
 
 ù * lence de sa résistance, dans le désespoir
 de l'impuissance, il retombait au plein
-amour.
 
 Et il détestait son amour. Il y retrouvait ce
 qu'il détestait le plus : l'amour de la « souffrance humaine », l'amour de la « sensibilité »,
@@ -4804,8 +3974,6 @@ souffrante... C'est en tant qu'elle est cela,
 qu'elle a conquis le monde, qu'elle est universelle. Et certes il y en a qui ont proclamé
 
 | LA CHUTE .
-
-CARNET SIRET CONS PE Re D à RSI,
 
 Christ le plus grand des « penseurs » (1), &
 
@@ -4840,12 +4008,9 @@ Et vous qui « compatissez », qui « ccommuniez »
 Pourquoi jamais à son sourire, alors qu'il est
 à Magdala, heureux & simple entre les deux
 
-(G) « Christum ait fuisse summum philosophum. »
 (Tschirnhaus, sur Spinoza.)
 
-RER RP QUE Pt (Rd © UT
 Ÿ FE l'ordination MERE enter
-; FR me ES SM 2 22 LUS
 | jeunes filles ? Pourquoi, par quel sadisme, —
 de & je ne dis pas seulement vous autres, affreux
 ‘ bistrions modernes, exploiteurs du pantelant, ;
@@ -4882,11 +4047,8 @@ parce qu'elle était son œuvre, parce qu'elle
 
 était la preuve de son pouvoir à créer de la
 
-4 (1) Bossuet.
-
 | 18
 
-A . LA GHUTE F4
 souffrance... L'affreux amour de l'homme nr. à
 pour son pouvoir de cruauté... Et soudain RCE.
 lui apparut le sens du Christianisme : l'amour re
@@ -4894,7 +4056,6 @@ des hommes pour Celui qui a souffert non pe
 pour eux mais par eux, qui n'aurait point p .
 souffert s'ils n'avaient point péché... D,
 
-= "5
 Et l'amour l'étreignait de toutes parts : CA
 tantôt, sous des états de son âme qu'il croyait Le
 « raisonnables », tout à coup il le reconnais- À
@@ -4912,12 +4073,8 @@ elle si elle s'était mal faite... Et tout de suite
 donnait ce petit être — il sentait qu'il la 3
 regrettait, cette part de création d'elle-même È
 qu'il venait de lui céder, qu'il lui plaignait es.
-49 ‘
-i |
-\ 4
 
 l'ordination
-DÉS PAU PR POI SEE ee NT
 la moindre indépendance, qu'il voulait qu'elle :
 fût lui tout seul, toute entière lui. Et, épouvanté, il voyait que sa « responsabilité » ne
 venait pas de sa « raison » ou de sa « moralité »,
@@ -4939,18 +4096,14 @@ loin que soi-même; que les grands responsables sont les grands orgueilleux, les
 existent faiblement, les femmes, les enfants,
 ne se veulent pas responsables. |
 D'autres fois, redevenu « raisonnable », il 1
-bo
 |
 
-LA CHUTE |
-PRISE D ER TE PR ae à
 accusait Clémence. La nature de la mère, elle 4:
 aussi, façonnait l'enfant ! (Et qui sait si parmi Ÿ
 les siens à elle, quoi qu'ils disent, il n'y avait 4
 point de tare).. Et c'est elle qui avait fait cet K
 enfant : il se rappelait : c'était sa passion de
 femme, c'était elle... Mais non, c'était lui, “4
-CALE RE NO PR EN EE RNA Le. 4
 Et tout à coup, regardant l'enfant : ce n'était :
 ni elle ni lui, c'était leur couple indivisible, , 5
 unité mystérieuse où sombraient leurs indivi- | 7
@@ -4970,7 +4123,6 @@ possible s'ils se mettaient à les sentir... ‘
 D'autres fois il s'abimait pleinement, réso- 4
 
 l'ordination
-PPS rs “+
 lument, au sentiment du mal qu'il avait fait,
 comme pour en épuiser l'amertume. Il s'enfon-
 çait comme un stylet cette vérité : « J'ai voulu
@@ -4982,7 +4134,6 @@ qu'est ce petit être était une chose souffrante…
 J'étais, je suis souffrant en lui... » Ainsi, par
 : un détour, revenait la communion ; la responsabilité encore une fois se tournait en amour...
 Et il regrettait son premier sentiment, qui lui
-faisait croire au moins à quelque liberté.
 Il regardait cet être qui lui révélait sa souf-
 | france. Il lui semblait que le Père adorait le
 Fils qui lui avait révélé sa propre humanité.
@@ -4992,10 +4143,8 @@ pendance des êtres : que cet être qui est vous,
 vous ne pouvez rien pour lui; qu'il doit se
 ; sauver lui-même !.. Quel mal lui faisaient ces
 médecins avec ce simple mot : « Elle s'en
-tirera. » |
 Et d'autres fois c'est son « bon sens » qui
 
-: ES LA CHUTE 3
 s'insurgeait : c'était de la littérature, des à
 métaphores, cette histoire d'une conscience A
 qui se confond à une autre : « J'ai mal à votre - ke
@@ -5014,10 +4163,8 @@ l'idée, — ; qu'il détestait; où ils se vautrent
 tous, avec leur pathétisme, avec leur épandement, avec leur « musicalité »; qui était là,
 installée en lui ; & qu'il éprouvait, lui, pendant
 qu'ils en déclament eux autres, professeurs
-d'extase pascalienne, horribles gratte-papiers,
 
 ° attachés à leur table, tendus à leur seule :
-gloire, parfaitement identiques à eux-mêmes, $.
 qui n'ont jamais aimé personne. Etil songeait Fa |
 à | « Effet qui n'est qu'une forme de la d
 Cause », & il songeait au Père « consubstantiel » au Fils, aux trois Personnes qui n'en : |
@@ -5036,8 +4183,6 @@ Et, grossie de son passé & de la religion qu'il
 
 en prenait, la contradiction l'inondait tout
 
-entier.
-
 Et alors, dans cette contradiction totale,
 dans cette perfection d'inajustement à luimême, sa puissance de penser lui échappait
 totalement... Oui, des notes, des lectures, des
@@ -5055,7 +4200,6 @@ tenir son idée, à la garder contre les cent
 
 > à ]
 
-LA CHUTE
 idées qui se pressent autour d'elle & veulent
 lui donner le change, toutes ces puissances
 chéries sombraient à tout jamais dans l'action |
@@ -5090,16 +4234,13 @@ paroles de la Science au condamné qui pleure :
 « Tu devais dès la première flèche élever tes
 yeux vers moi, & non pas, abaïissant tes aïles,
 chercher les coups de cette fillette ou de
-quelque autre inanité. » (x)
 
 Et devant cet Eden qu'il perdait par son
 cœur, il soupirait : « Qui nous rachètera de la
-charité! »
 
 … Il songeait à celle qu'il avait fait souffrir
 dans sa jeunesse, qui l'avait tant aimé... Il osa
 lui écrire. Plusieurs soirs il erra autour de sa
-maison... :
 
 — Madeleine... Pardon! J'ai voulu vous
 revoir. Un seul instant... Je suis très
@@ -5112,15 +4253,10 @@ se rappelait l'effondrement du rêve qu'elle
 avait fait près de lui, & dans l'amertume de
 son cœur il n'y avait pas de place pour
 
-(r) Dante, Purgatorio, xxx1, 55.
-
-, 56 L
-
 LA CHUTE - re
 plaindre les autres. Elle dit quelques paroles &s à
 banales, & rompant l'entretien, marcha vers ; 1
 sa maison, qui elle au moins ne l'avait point |
-trahie… Ë à
 Ils allèrent à Berck. Il vit la détresse de
 l'enfant quand elle connut qu'il existait un À |
 monde de petits êtres cloués comme elle dans :
@@ -5136,13 +4272,10 @@ affaires... ; l'affreuse conscience qu'elle prit
 le regard plus intérieur qu'elle élevait vers
 eux... Et devant ce redoublement de crucifixion ce fut un fol redoublement d'amour, à
 d'extradition de lui-même, une orgie de com- 4
-munion.… Ë
 |
 Et dans cette perfection d'union, par cette SEE
 
-D RER RM AE ST CESR ER PT
 l'ordination
-3 TOR PRE CE CRE PORN EE IE A
 perfection même, il essayait de se libérer. Il
 avait le droit de mépriser ce qu'il sentait être
 lui-même, sa chair, sa meurtrissure! Il avait
@@ -5157,7 +4290,6 @@ nous sommes deux...
 Et une fois de plus le malheureux, qui ne :
 woulait que l'idée claire, sombrait au plein
 contradictoire, dont il avait l'idée la plus
-affreusement claire.
 
 Et que d'autres blessures pour lui ! L'aisance
 de ces gens dans ces choses qu'il détestait, où
@@ -5175,7 +4307,6 @@ aisance dans la dégradation... Que dis-je,
 cette aisance? Cet orgueil... Ce sentiment
 
 qu'ils-ont d'être une corporation, qu'ils sont
-58 Û
 
 | LA CHUTE
 l'humanité, l'humanité « morale », la seule qui g à
@@ -5206,9 +4337,6 @@ de l'âme abandonnées aux femmes. Et glors
 le cœur, le cœur, partout le cœur. L'art qui
 devient « sentiment ». La justice qui devient
 
-;
-
-RE AR SR PE SNS er
 : $ Le l'ordination É
 | PE RER RE TE RD dede AE TS Rene
 « amour ». La morale qui devient « bonté »...
@@ -5235,11 +4363,7 @@ cette joie de sentir qu'on voit clair, qu'on voit
 que tout s'ordonne, que l'on tire, comme un
 dieu, la lumière de la nuit, & l'ordre du |
 chaos; & qu'on voit clair en soi, quon
-" 6o
-1 à
-\.
 
-LA CHUTE CFA
 découvre son ordre, qu'on découvre sa loi; & ne
 que ces mouvements du cœur, qu'eux se : ZE A
 contentent d'éprouver, on les comprend —
@@ -5264,7 +4388,6 @@ l'exacte mesure où il cesse d'être amour, où
 -il se teinte d'idée. L'amour par quoi je vis
 sans comprendre ma vie... Qui cesse d'être
 l'amour s'il se connaît & s'il se juge... Qui Fe
-GI chute. — 4 à
 
 l'ordination
 
@@ -5286,14 +4409,12 @@ ligence s'écroule en votre fange… : :
 zk Et il courait vers sa maison, ivre d'amour, à
 
 e de haine, de déchéance.
-Lx
 Et des surcroîts d'amour l'attendaient qu'il
 n'avait pas prévus, qui ne devaient que
 grandir : l'enfant de jour en jour devenait
 plus humaine, plus proprement une âme,
 
 ET Te dif de Fe
-LA CHUTE s
 
 s''évadant du simple sentir, s'élevant à la ï.
 souffrance morale ; & plus cette petite chose Ë 4
@@ -5321,13 +4442,10 @@ grands yeux fixés dans l'espace ignoraient F
 l'amusement des formes, allaient droit & pro- de;
 fond s'unir à l'âme des choses. Et lui, près 4
 d'elle, dans l'ombre, avec quelle puissance
-63. É
 
 l'ordination
-RER OR TA. ARTE He Up
 d'âme il épousait cette âme, si gravement
 une âme, dans quelle oblation plénière, dans
-quelle pureté votive…
 
 Ce soir-là, Clémence s'était mise au piano. .
 On avait rapproché la civière & l'enfant
@@ -5350,9 +4468,6 @@ d'élévation ; elle jouait par cœur, en pleine ;
 n'entendait pas ces dissonances, affreusement
 intérieure, comme épandue dans l'âme qui
 
-64 |
-: 5
-
 | LA CHUTE PVR |
 PSE VE DE BRIE LEE ne TT EL PAUSE Se ï
 avait trouvé ces sons, qui avait dit la douleur UE
@@ -5366,8 +4481,6 @@ la vie intérieure... Alors, penché sur elle,
 il se fondait à cette âme, si tragiquement É
 humaine, dans une soif de se nier qu'il n'avait E:
 point connue encore... 6
-* 2 4
-* %
 Il y avait près d'un an que l'enfant gisait
 dans cette entrave... Ce jour-là les médecins
 devaient venir, voir s'ils pouvaient la déli- |
@@ -5378,15 +4491,12 @@ yeux des médecins. Les serviteurs ne se reti- è
 raient pas... Les médecins examinaient, très ?
 sérieux, & tout le monde tremblait de ce
 qu'ils n'eussent pas déjà dit oui... Ils échan- |
-gèrent quelques mots à voix basse... Félix
 comprit : la cause était perdue... « Encore
-J 65 chate. — 4.
 
 l'ordination
 un peu de patience »..… D'affreux encouragements.. On replaça l'enfant. Tout le
 monde se taisait……
 On dina... On s'efforçait d'être comme les
-autres soirs...
 IL laissa Clémence aller se coucher, passa
 _ dans son cabinet... Quelque temps il se contint : il lisait, écrivait. Il marchait dans la
 pièce, s'accrochant à des semblants d'espoir.
@@ -5395,7 +4505,6 @@ son fauteuil, appuyant ses deux mains sur sa
 table & y cachant sa tête, il donna cours à son
 - immense chagrin... Il pleurait, éperdu d'amour,
 & dans ses pleurs il balbutiait : « Pauvre
-petite Suzanne, pauvre petite Suzanne... »
 Et sa douleur doublait du cours qu'il lui
 donnait... Il pleurait... Il pleurait...
 Tout à coup il tressaillit : une main se posait
@@ -5407,7 +4516,6 @@ profond, lourd de reproche & d'amour, de
 | volonté consolatrice….
 è — Félix, dit-elle doucement, contenant son
 
-EE + Re inc LL me. HET : k:
 LA CHUTE ce
 émotion, pourquoi ne me dis-tu pas ta 5
 peine ?.. Ton chagrin me déchire... Je sens ;
@@ -5435,14 +4543,12 @@ voulait l''épanouir aux bras de sa complice; <
 £ pleurer sur son enfant aux bras mêmes où %
 _ il l'avait faite; parfaire, aux bras de la Mère,
 l'aliénation de son être en ceux qui étaient à
-67 |
 
 l''ordination ;
 son être. Elle avait bien fait de venir. Il
 l'attendait.. Et, éperdu, il sentait à la fois
 que c'était le dernier rempart de son identité
 qui s'effondrait par cette venue & qu'il s'en
-réjouissait…
 
 Il balbutia, dans un premier mouvement de
 retrait, essuyant ses pleurs :
@@ -5471,10 +4577,8 @@ juste que toi..., que je vois les choses comme
 elles sont... Je suis sûre que tu vois plus de ;
 mal encore qu'il n'y en a... Quoi! tu as cru
 
-LA CHUTE
 qu'elle allait se lever aujourd'hui... Eh bien,
 oui, c'est très triste d'attendre encore six
-mois... <
 — Six mois! — toute sa douleur lui revenait
 maintenant, il ne la retenait plus, & l'épan- ;
 chant où elle devait aller il l'épanchait en
@@ -5525,9 +4629,6 @@ ne dira rien pour ne pas nous faire de peine,
 — Tais-toi, pleurait Clémence en le serrant
 contre elle, tais-toi, tu me déchires.…
 
-}
-
-“ LA CHUTE FRE À
 Mais il poursuivait, implacable, la torturant, 3
 la faisant sienne, comme s'il l''ensemençait de ;
 sa douleur de père : À
@@ -5557,18 +4658,13 @@ enfants des autres... 4
 — Et encore nous serons là, nous deux, |
 71 4
 
-serons pl S 1 s ite s 1 n dun
 eu, : quelq eille bonne, sans sans
 sienne mainte erdu bris elle n
 son époux au soir de sa jeunesse gémis-
 
-:
-{ :
 | Al
 |
 
-: LA CHUTE !!
-——————————— A
 sait au fond de son cœur : « Dieu nous a F
 années »… Ils restèrent là longtemps, embras- {
 brasser si fort dans leur enfant meurtrie.….... Al
@@ -5582,7 +4678,6 @@ peu... Très peu… Elle aura des humiliations !: *
 Les autres ont les leurs..., J qu'elles sont (4
 sont peut-être pires. E ura une figure #
 délicieuse. elle sera une enfant charmant à
-à
 Regarde mme on Faim les étrangers...
 
 l'ordination
@@ -5616,7 +4711,6 @@ travers ses sanglots, elle songeait aux jours
 perdus, et comme une autre épouse qui retrouve
 son époux au soir de sa jeunesse, elle gémis-
 
-LA CHUTE | 4 |
 sait au fond de son cœur : « Dieu nous a F
 refusé de jouir ensemble de nos jeunes ÿ
 années ».… Ils restèrent là longtemps, embras- L l
@@ -5627,7 +4721,6 @@ cou de son mari, glissant doucement entre . Ë 4 |
 ses mains, elle s'assit sur le bras du fauteuil. ne |
 Elle prit le mouchoir qu'il avait sur sa table | ‘4 À
 &, le portant à ses yeux, elle disait dans ses hi É
-dernières larmes : d )
 — Comme tu es cruel... Et comme tu exa- ï (a
 gères.… On dirait que tu prends plaisir à nous 04 ï
 faire mal... Qu'est-ce qui t'assure qu'elle boï- \i
@@ -5643,8 +4736,6 @@ les serviteurs.…, tout le monde... Où as-tu vu 1
 boiterait un peu, ne peut pas être aimée ?.. 1
 Tu es toujours dans les théories. ‘4 k
 Il l'écoutait, fondu à elle. Ce qu'elle disait, | D à
-É 73 chute. — 5 À |
-K |
 
 l'ordination
 c'était la ruine de tout ce qu'il respectait :
@@ -5656,7 +4747,6 @@ séchant ses dernières larmes :
 — Et puis... je ne te comprends pas... Tu
 es là, tu regardes la vie de cette enfant, & tu
 lui donnes des noms..., & des noms qui te
-déchirent : humiliation, néant...! Pourquoi
 veux-tu toujours nommer ? Pourquoi veux-tu
 toujours juger ?.…
 
@@ -5678,9 +4768,7 @@ qui lui ferait plaisir... J'ai été dans Paris
 & je l'ai acheté... Viens, nous allons le
 mettre sur son lit, pour qu'elle sourie en
 
-LA CHUTE :
 s'éveillant... Demain, nous trouverons autre
-chose.
 
 Elle l'entraïna vers sa chambre. Il la suivait
 comme un homme ivre, sentant confusément
@@ -5697,7 +4785,6 @@ yeux, aperçut le jouet, & eux devant elle,
 serrés l'un contre l'autre, qui la regardaient,
 suppliants, implorants.. Elle leur souriaït,
 leur pardonnaït..….
-ru $
 
 A partir de ce jour, il cessa de lutter. Il
 devint tout amour, délaissa tout penser, toute
@@ -5707,7 +4794,6 @@ Il ne flétrissait ce délaissement ni ne l'hono-
 
 rait, tombé en ce degré qu'il eût juré jadis ne
 devoir jamais connaître : vivre sa vie sans la
-juger.
 
 l'ordination
 Parfois, dans un journal, dans la conver- .
@@ -5729,9 +4815,6 @@ se prenait à penser qu'elle chérissait tout bas
 le malheur de l'enfant, qui avait rapproché
 l'époux, lui avait pris son esprit... Il ne lui
 en voulait pas.
-; 6
-
-LA CHUTE
 
 Ils retournèrent à Berck... Il supportait ces
 gens. Il se surprenait à comprendre.que le
@@ -5747,6 +4830,5 @@ la nature de la matière.
 
 — Tout cela, monsieur, dit un père à Félix,
 ça ne vaut pas la caresse d'un de ces petits
-êtres-là !.….
 
 — Sans doute, dit-il, sans doute...

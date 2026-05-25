@@ -7,52 +7,33 @@ author: gabriel-trarieux
 isAvertissement: false
 wordCount: 20074
 ---
-
-A
-l PREMI ANSONNEI
-: su Us
 Le bon rm" bert
 Devint ainsi ] ntair
 Le grar t KI
 Lui dit ji
 Votre À
-Daign
 Î — Je sui t le roi
 1 Il pleut sur n on d'f
-D
 |
 |
-:
 |
-:
 (1 Le bon r »bert
 Devint alors
-Le gra t 1
 Lui dit roi
 Votre À
-' Veuillez der |
 — Aveugle le roi
 Je fais, défais s la loi
 Imitant un aveugle
-Ayez pitié d'ur vre aveugl |
 Imitant un camelot, pui er :
 Demandez le repass le rapetassi
 « sa la chanson du roi Dagobert
-LIRE AN
-75 Re
 Le bon roi Dagobert AS
 A tout venant disait mon cher; GORE
 Le grand saint Éloi 5500
 Lui dit ô mon roi, es
-15: lu
 Vous serrez les mains vi
-Tr RU
 De tous ces vilains? 208
 $ — Ils votent, dit le roi, A |
-Neuf mille trois cent vingt-sept voix. x pi.
-- *: 4.108)
-* 4180
-76 FA :> C0
 Le bon roi Dagobert 2
 À tout venant dit : Bonjour, cher: Fo
 ë Le grand saint Eloi #8
@@ -61,124 +42,61 @@ Lui dit ô mon roi, 10
 $ Que semble fourmis; 20
 — Ami suis, dif le roi, 562
 6 Non de leur cœur, mais de leurs voix. Ru.
-F. QU SRE
 
-CARRE ACT PR 1 LA RÉ A PO T6 dr Se A PE Er
-Ge dre tn
-Done. | PREMIÈRE CHANSONNÉE A
 200 Le bon roi Dagobert
 LS Devint ainsi parlementaire;
 ques Le grand saint Eloi ,
 15 Lui dit Ô mon roi, .
 4 Votre Majesté,
-É. Daignez m'écouter;
 “5 — Je suis sourd, dit le roi;
 : 220 Il pleut sur ma profession d'foi.
-L 78 |
 WA Le bon roi Dagobert
 + Devint alors autoritaire ;
 4 F: Le grand saint Éloi
 4 Lui dit à mon roi,
 RE: Votre Majesté,
-10 Veuillez regarder ;
 É: — Aveugle, dit le roi,
 4 Je fais, défais, refais la loi.
-7 pe. é
 ù Imitant un aveugle :
 ‘0 Ayez pitié d'un pauvre aveugle!
 5% Imitant un camelot, puis un ouvrier :
-LS
 « 8 Demandez le repasseur, le rapetasseur, le rafis-
 #2 Gr
-DE: v ° F
-L RE És< î x PORT"
 
-?. . z Î CR PESTE Le 4
 % la chanson du roi Dagobert VE
-——————————_—————————————————————_————————_—__—_— ——î— — ©" 2
 toleur, le rapetisseur, le rapapilloteur, le raccom- CR
 modeur, le rétameur de lois ; avez-vous des ciseaux,
 | des couteaux à repasser ? voilà le repasseur, voilà
 le rémouleur. SAS
-Lire 1
-4e
-79 | FA
 | Le bon roi Dagobert « TE
-Descendait place Walhubert ; À “
 Le grand saint Eloi SA
 Lui dit à mon roi, mo:
-à
 Vous pouvez rouler 4
-Jusqu'au quai d'Orsay ; À Fi À
 | — J'ai peur, lui dit le roi, =
 D'étouffer dessous tous ces quais. SD
-80 ;
 * Pour un temps Dagobert Fe .
-Lt
 Ici brisa la rime en ert; A
-EAU
-g Â ; D
 Le grand saint Eloi ne:
 Lui dit Ô mon roi, 14
 | Tant avons chanté +108
 Que faut déchanter : à n:
-n
 — Ne pouvons, dit le roi, “0
-LL)
 Battre tant longtemps que beffroi. 3
 | D.
-À : ce 0
-DE k JS,
 
-: Res AE NAS, FRE NT RD PCT UNE WE CAE NM 30
-
-vf DMANEE NE RTE Ne TOR PP n BEM PE LINE VIENT ER
 HS À IRON NE ce den SL 15 HNNT DES NI SE FRANS
-3 - due Ù Va ee 0 AA Uri Pare AR es ÉALR EEE É #4 IT 4
-LICE PA à
-d D” « : eut, ! ; JR
 
-. Pat Ye j £ « 3
-Er 1 Re
-
-FEAT Fa * ep Pet TIRSÉÉ à
-
-LION CPE ,
-
-NEO s 1 Fe
-: 1 AR < 4 1 À
-ar. VAR Ve 2 à : i *
-ee ÉPUTEUS ; x VE 1 te
-
-ME à 124 À
-PT 2 RTLS ‘ 1,0 0 Re ONE
 ad À : NS FREE RU ou
 ce {VERS i { À TL ups dre6i HOT RE à
-D , Dei Ft » “4 n LA TU »,. "4 là
-D: j sal à 14 4 01: SAN SRE
 Lt PA SEE CR be en OT ut CE pRARET 1 ROLE
-Es Ar en 0 } Le NE QUE ANT TU EURE Ê TE ,
 + & Tu à Lure n 6 père ORNE IE ter RTS wi: NUE:
-371 Fe ER j PACE Sn LUE deb 4 198 1 ASH JC MCE RO TIR ETESRRESS
-"NY STONE 4 (re PA PRE MS PERRET à 46 1uos
-VI. FRAURES EM PART NOR ATOME à EN DAT RECRUE 2
 
-2 " s # , é à É
-ÉDITIONS D'ART
-ÉpouarD PELLETAN, 125, boulevard Saint-Germain, Paris
 | Vient de paraitre
-ANATOLE FRANCE
 De l'Académie Française
-C4 =
-FUNÉRAILLES D'ÉMILE ZOLA
-DISCOURS PRONONCÉ AU
-CIMETIÈRE MONTMARTRE
-LE CINQ OCTOBRE 1902
 Avec 7 compositions dont un portrait d'Émile Zola
 par STEINLEN
 Gravées par FROMENT et PERRICHON
 Une plaquette petit in quarto, tirage en noir et rouge,
-limité à 100 exemplaires
 100 exemplaires sur vélin à la forme des papeteries du
 Marais, au prix net de 30 francs |
 Il a été tiré en outre:
@@ -190,25 +108,15 @@ Plus 25 épreuves d'artiste signées du portrait d'Émile Zola : #
 5 sur japon ancien, au prix net de 10 francs 3
 20 sur chine, au prix net de 6 francs J
 
-HE RERNSRES Ê
-“d ÉDITIONS D'ART
-; EÉpouArD PELLETAN, 125, boulevard Saint-Germain, Paris
-£ —————————————————…——…—.——… ————
-
 Vient de paraitre
 
-ANATOLE FRANCE
 De j'Académie Française
 
-LE PROCURATEUR DE JUDÉE
-14 compositions d'EUGÈNE GRASSET
 | Gravées par ERNEST FLORIAN
 
 Grand et petit in quarto, imprimé en quatre couleurs par
 
 l'Imprimerie Nationale, tirage limité à 400 exemplaires
-numérotés.
-GRAND IN QUARTO, TEXTE RÉIMPOSÉ
 Un exemplaire — numéro 1 — sur whatman, contenant
 #4 tous les dessins originaux, plus une double collection
 d'épreuves d'artiste, sur japon mince et sur chine;
@@ -220,7 +128,6 @@ mince et sur chine;
 sur grand vélin, contenant une collection d'épreuves
 d'artiste sur chine, au prix net de 350 francs
 
-PETIT IN QUARTO
 10 exemplaires — numéros 23 à 32 — sur chine, au prix
 4 net de 175 francs
 ; 368 exemplaires — numéros 33 à 400 — sur vélin à la forme
@@ -229,25 +136,10 @@ PETIT IN QUARTO
 IL a été tiré en outre :
 20 collections d'épreuves monochromes et polychromes, sur » Chine, de toutes les gravures, au prix net de 100 francs
 >
-É IV.
-Ÿ
-nu rer
 
 4 Die et VO CINE er
-; SAT 1e PL
-; SRE
-ÉDITIONS D'ART er
-ÉpouArD PELLETAN, 125, boulevard Saint-Germain, Paris ‘+
-En préparation ;
-ANATOLE FRANCE
 De l'Académie Française
-DISCOURS PRONONCÉ >
-AU PÈRE LA CHAISE
-LE ONZE JANVIER 1903 2
-Compositions en couleurs d'EUGÈNE GRASSET
 Une plaquette petit in quarto |
-tirage en couleurs limité à 50 exemplaires à
-J |
 5o exemplaires sur vélin à la forme des papeteries du L
 Marais, au prix net de 30 francs É
 Il a été tiré en outre : |
@@ -258,94 +150,27 @@ au prix net de 20 francs
 Plus 12 épreuves d'artiste signées du portrait de Pierre
 Laflitte, sur chine, au prix net de ; 6 francs à
 
-F EN
-; ÉDITIONS D'ART
-5 ÉpouaARD PELLETAN, 125, boulevard Saint-Germain, Paris
-En préparation
-ANATOLE FRANCE
 De l'Académie Française
-LA ROTISSERIE DE LA REINE PÉDAUQUE
-En préparation
-ANATOLE FRANCE
 De l'Académie Française
-A LA LUMIÈRE
-ODE
 
-er dos RARES EENR Ft A HEES RER EL
-LORS RAR EN RS APR FDA ARS LEE
-TS RENE MGR ES PERTE ECTS HP RRNPENE MERE NPe PP ENS Et
 LFSICES MA TE MAX TER Rat (4 NT A RFO
 Lie rAPRRC L HAN E A LS e 5 ART ce NZ LÉ SO
-Rue A AR AS LR SEEN
-es l - LA SAT RES É
-4 RES RENE
-FT ZE LEA AT UNION Us :
-à : / 3; Û EVA FRS JO 5
-ER À ; L43t "MIFIN TRS
-‘h * 4 x SRE RE ESS es $
-PRE Et LETTRE e PE
-; L Fe & 2 RAT EE |
-< = ‘tie se ECO
-* 14 'ÉRARACRENEES
-77 ; = SIREN HART £
-_ Cod : 2 7 -4 MOSS
-
-0. 2 PR Ie CNP ARE PR BA ia À SE me
-
-ge LR VNCAE NAN NEVER
 
 A PU Un sa Re Sr Re à M
 ni d'imprimer deux mille exemplaires de ce PER
-me. AT ". ae ' . . à WALES Heu ZE AS
 Re qu zième cahier le jeudi 26 mars 1903 ERA
-H MER: Lot | MAS
 
-3 CO Ce
-LE « « NUL
-À 2 ER > eh
 à l'Imprimerie de Suresnes ne
-VERS AIT
-_  .  (E: PAYEN, administrateur) Ne
-VÉRUIE - Fe
-: SCD # AC
 À eee 9, rue du Pont L]; FOSSES
-FUN OPEL 4 ee:
-GTA IER ie
-+ ET je
-r ya ÉVUSS nee
-YU . Fr h
-54, RE 14 TER
-PAIE A RS DA
-A(eN : \ 1000 re
-Rs Lire | SE
-1.010 > AM
-Ut F4 * ;
-(cri 1 È PAPER - / à
 
-2 ere NP ER ES Re taRCrS ! EP RTE PEU OI DIE
-F8 ee SE Re Ée SEPT PRET FL LENS
-ES MANIP VONT ETS N M EE TENTE LENS Er $
-z 1 ; ë à es LL TR REVERS
-“2 À KES RES ARG EN à ;
 ni : DREMARNENEN. 1
 LES R 5 À Ÿ EC TULEER ae
-ds À < - "SÉCATREE VI
-1 ee : À, Sa KL SPAS
-AT À AE
 : RS . 2 Mes à: de FX re
-BUNE ÿ : k é SEE fe
-el . PERS LUE
 # D
 AE. ne ne
-RSR dé Ne OA +, EAN ;
-17 3 NES È æ « À FFE LCL 75 NE
-PATES Se PEN * ÿ Le LATTES
-Dés 2 A nt à Te LÉ T ANNE FAR
-Te ART AE RU: NA Or Ci |A c EE LA LAS SISCERENS He
 
 ; MEN AUS ETS À ET AH sü7 rà LA: FES $ 4 Ve Là NA Te
 
-À a 6 ‘
 __ L'affaire Crainquebille, d'Anatole France, a été
 1 publiée pour la première fois en entier dans les éditions
 _ |! d'art de M. Édouard Pelletan: elle a été publiée pour
@@ -361,7 +186,6 @@ _ série des cahiers. — S'adresser à M. André Bourgeois,
 : administrateur des cahiers, 8, rue de la Sorbonne, rez-
 
 de-chaussée, Paris, cinquième arrondissement.
-k :
 : Nous avons donné le bon à tirer après corrections
 
 pour deux mille exemplaires de ce quinzième cahier
@@ -369,123 +193,45 @@ le mardi 24 mars 1903.
 
 Le Gérant : CuarLes PéÉeuy
 À © DePnMntE DE Suueswes (E. Paxex, administrateur), 9, rue du Pont. — 7312
-A
-2 Le 01
 
-"# h. LL ES ES ET MOUSE ARS ENS
 fs Pas Et spores ENS AU Nate DA MAP ENS SUOMI
-CHER UE PAIE PTE ARR I: NOT SEUIL ERIME ARE ( ur ik
 PAT É 127 LR CU MP bi PERRET LEE RS des Ë
-s S ARS DER RURALE ONE SEE
-</ ADS ‘ ‘ ; dE RE VS YA Et 4: :
-É Co: P 13.3 fé t143 SÉTISESION AR #
-ë Si £ 6 Pise PER QUE AE SEEN j
-Fu =. Re LEARN ER {
-pe ‘ 9 à EU: ie
-4 ; SE VLC OR
-F2 Ç 1 MARTEL
-Le D
 ir MES CY qe CAP CRE È F ESS IPS
-BUT + ; A
-CT À 4 ET € LT NET PA Fer FR
 Mo e DE 7 CA FEU LARMES ETS TA ln er Re RATE
-he LES NÉE BMOTO TITRE TIRANT VAR Ne MORE AUTRES Eu ?
-
-CAHIER DE PAQUES DE LA QUATRIÈME SÉRIE
-GABRIEL TRARIEUX
-
-LES VAINCUS
 
 | ; ; à
-Joseph d'Arimathée
-
-PROS ACTES 20
-
-‘ CAHIERS DE LA QUINZAINE
 
 4 paraissant vingt fois par an
 
-PARIS
-
 d 8, rue de la Sorbonne, au rez-de-chaussée
 
-DU OS OUR TE
-RAT)! | GANTS V'AANEE
-{# LE PE
-ii | DR :
-L« y N F F4 fx : »
 # OS
-t À 1 [tt ra VC TERRES
-Hd vi | TS he ,
-; L tETAS f
-ER V: 41286600 \
-À : En TR
-1 | TETE
-À 41341108
-LIKE" +. SNON EL ?
-HE RATE TEE
 | ue LAS TIRR
-ñ \ ÿ É cl 40 st
-RAA : ,: VERRE
-PARLE > FAT Fi CCR EEE | PER:
 
-CNT LCI EN ÿ ss PA: xl 4, Pa SET AE
-NIMAN CNRS PU VAUT N RUES CE TNNE HU ST ARS SE
-f > k MASSE HS A/S A Fa 90 N17S
-RANCE NE TE ORPI PE DO AT LE TE DUO ET EE DRE
-
-Ë NOR CS NL PSI re OR CA NS PANNES UT
 TAC PAR LINE PT ee 2e (ue ne AEQ ETS ET DELA EE
-RER TES HONNEURS NES RARE MOVE Le
 "+ À + ORNE ne Eve (7e EE Na TN ec 1. NAT SI
-Rd 0 Jo os
-RC ASC CE ea) ‘4 … FE 24 ER ENST ENREEES
-: 5 ÉNER $ Par ROUTE ER
-% Ds Mt NT 2 "| RE. ©
 ; ti LE vo El : ; { HENRI
-d ER R FE x 371 : dE e ET:
-MT : 0
-NÉ À RP $ i RL R # PET" Le
 | LEO + “1 À AA CREER Lo Fa
-42 : RNA DEAR PEU OST TENTE Fo MN EE EC: NET US
 M et fi ER EE, PRE
 AL: EG APN MORE TANT A RL tue PME +
 LR TUE Net RAS na en ei, et AO A QE “ti
-LES MEURE EMA PAR RO 21 0 18e QE RES
 à RER fra nn. “he Qt , Pa un out ane 1 At ELU à
 
 Que. CRE CES ie EN ut dans L " 4
-ENS PATES Y LT ON PAR UNE
-rie" ‘: : } 25 RIT 'PMMERRTE
 FRE Du même auteur, en vente à la librairie des ca hiers :
-D: JTNS ÿ
-me - ë } 2 RSS
 1e . Les Vaincus. trilogie : 1 NIRRENE
-FOUR fi ex FE
 ; 5 Joseph d'Arimathée, _ un volume
 tbe Hypatie SUR mer dure
 Ne Savonarole ; nu PES
-* À : : le: REINE
 Sur la foi des Étoiles, drame, : un volume
-RON © !.
 FORMES La Chanson du Prodigue, poèmes, un volume
 2 La Coupe de Thulé, poèmes, un volume
-7% ART \
 a Pygmalion et Daphné, un acte, une plaquette
 La Lanterne de Diog'ène, essais, un volun e
-Le 1:24 PSE
 x 4 Pour paraître : ë MA:
 val La Guerre au Village, trois actes. 45 TION
 se Les Petites Provinciales, essais. PE 0 ni
-* Ÿ PERS by”
-BA: AE RU
-QU x Mn
-Ke Fa { k 4 ; joe YA DUR kr.
-"A: i | Re à
 
-F ÿ is
-- A monsieur Édouard Schuré
-é Monsieur,
 Je vous prie d'accueillir ce drame, dont l'idée, en ce
 soir d'hiver où je vous l'avais exposée, vous avait plu, je
 me le rappelle, car j'en ai été fortifié. Incertain de ce
@@ -503,9 +249,7 @@ R Mais surtout je vous le dédie, parce que la pensée qui
 _ l'anime sera reconnue sans surprise par l'auteur des
 _ Grands Initiés. J'espère n'avoir mis dans ces lignes rien
 _ qui puisse heurter et blesser, méme si elles n'expriment L à
-v 4 y |!
 
-AN nn
 pas leur croyance, les âmes vraiment religieuses. Et $
 cependant je crains pour elles je ne sais quel malentendu. Je crains que la poussière amassée par l'adoration
 des siècles sur une Figure divine ne fasse juger
@@ -524,20 +268,10 @@ au méme titre, et qui sé sentent le cœur assez large |
 pour embrasser dans sa plénitude le patrimoine de
 l'humanité. à
 
-Gabriel Trarieux
-{4
-k
-é (#
-ï
-
 O vraiment tu es un Dieu caché,
 Dieu d'Israël qui sauves !
-Cantique hébreu
-n :
-Joseph d'Arimathée
 |
 
-PERSONNAGES NES
 JOSEPH D'ARIMATHÉE, Pharisien ami de Jésus. é ‘s à 4
 NICODÈME, Pharisien ami de Jésus. FE
 CÉPHAS, jeune Pharisien. (Le jeune homme riche) SUR
@@ -552,8 +286,6 @@ JEAN, disciple de Jésus, apôtre. RS
 
 JUDAS DE KERIOTH, disciple de Jésus, apôtre. VEN
 
-MARIE DE MAGDALA. ; 1 ÈNR
-
 LA MÈRE DES ZÉBÉDÉES. | pur 10
 
 MARIE, mère de Jacques. ( Se ; ‘#8
@@ -563,77 +295,36 @@ JEANNE, femme de Chuza. \ rot « cl
 Discrces DE Jésus. & %
 
 de Les PÈLERINS D'EMMAUS. : ve
-SOLDATS ROMAINS. È 20
-
-UX SERVITEUR DE PONCE PILATE. Fa
 
 Ux ESssÉNIEx. : LUE Des
 
-UN ESCLAVE. ; ‘14
-
 % Le drame se passe à Jérusalem, les 14, 15 et 16 de Nisan, ne
 il y a dix-huit siècles. 240)
-“ 4 4
 
 ES) RE FF à NE É ; Li Rae . ; nr a
 PR A a UT on er ER AE RES OT UE PEU A RTE
-1 RUES AN PS D NS AE PRE Me EE DEEE
-5 LP RE A ee DORE TRES # EEE
-CE 14 N À à 174 . ÿ p ELT Mr M
 La pièce que l'on va lire a été lue à la Bodinière, par D
 _ M. Coquelin aïné, les 15 et 20 avril 1897 et jouée au
 #7: PP PEN PF : | LHUE
 _ théâtre Antoine le 8 avril 1898. | LR
-doser D'ARIMATHÉE MM. Antoine \ CPAS
-IE a a 1;
-_ Nconème Daltour FUTER
-LR f he
 __ Céras : : De Max e à ss
 EE = LES 0 Desfontaines pu
-k ÿ _ Poxce PILATE | Gémier : 14
-Pur RRE Arquillière Fe #
-fai JEax 4, x Grandjean 1% NES
 _ Jupas De KeRIOTH Gémier HER
 Mr Re DE MAGDALA M" Mellot “RUE
-- ; Fe : EE
 Tr La Mère pes Zépénées Dorsy ‘nes
-“ ALTER ÿ * K. em: : "3
 Marx, MÈRE DE JACQUES Dornay 7e LE
 JEANNE, FEMME DE Cnuza Reynold "NE
 it Un PHARISIEN MM. Carpentier TT
 UN ESséNEx D'Avançon : SR
-CE AE PRÉ
 D Ux ESCLAVE Verse La Er.
-nee 5 à 4
 : LFENS re Ma, on
-2 LE 4 RES
-LT APTE A | © (NRC Re” baota LOLST ORS RSE
 
-LS RAR ES TRES IPN ES CSM TER SEE EE A PRE
-RAM MT MOTS “a FRS SC REY A
 # re PARU FU FOR ÉNARHE HF
-M OU eme, A RER AT Mr.
-Ce RUES
-: | :: REA
-54 5 | Fo 4 ARS
-2 Æ :
-+ 2 :
 | | FRERE x:
-201 + PA
-: VITE
-UE A FE WES - F
-: eur ARE fe
 | 47X prb"
 | | té Et 4 22
-GTS HSE
-à RARES
-‘LS AURES mé,
-ri TDR « LR jen, “1h s
-: L NÉ LER # Pt
-SU ‘ : VÉRINS
 | 4 AT CTI > ET
 PORT RARE 5 EE LA ru Mg TT TS 2 NES
-ART FORGE 12 LATE LM
 
 Une vaste salle dans le palais du Procurateur, ouverte
 au fond par une triple baie à colonnes, d'où l'on aperçoit
@@ -649,124 +340,73 @@ _ droite, Joseph d'Arimathée, isolé, songe. C'est un homme
 près de la yieillesse, légèrement contrefait de la jambe
 : droite. — On entend par moments, venant du prétoire, les ;
 voix d'une foule,
-f UN PHARISIEN
 
 Le soleil éclaire la ville... Le Procurateur est lent
 
-à venir !
-UN SADDUCÉEN
-
 Lorsque c'est nous qui attendons, il ne s'émeut
 
-guère.
-DEUXIÈME PHARISIEN
 Le peuple murmure. écoutez les voix !
-9 É
 
-Pre LLTISSIEEOEERRSES
-À a Fe Me
-PREMIER PHARISIEN 1
 Oui, oui, les rues sont encore désertes, mais le
 prétoire est déjà plein. Si l'on ne se hâte point d'en “2
 . . 5 140
 finir, craignons les troubles. 3
-h: QE
 LE SADDUCÉEN | Fit
 Rien craindre de ce côté. Ils sont tous de Jéru
 salem, ils n'aiment pas le Nazaréen. Les pèlerins
 de Galilée couchent épars dans la campagne, à
 Béthesda ou Bethphagé, faute de place dans les
 murs... Quand ils monteront vers le temple, il sera
-trop tard! 4)
-PREMIER PHARISIEN <14
-: NES 14
 Amen ! — Pour une nuit, la besogne est belle. 4
 LE SADDUCÉEN, regardant du côté de Hanan 4
-Celui-là s'entend aux affaires. Te
-, 'É ù
-DEUXIÈME PHARISIEN à
 Certes ! Il a su trouver cet apôtre infidèle, ce mé-
 content aux mains avides, qui trouvait les proA : 1
 messes trop lentes ets'est vengé de sesmécomptes.….
 Etait-il desséché par la haine ! Commentse nommet-il ? 4
-LE SADDUCÉEN 18
-Judas. ns
-DEUXIÈME PHARISIEN à
 Nous n'aurions pu agir de sitôt, sans lui. $
-HAS
 10 21
-: ; 18) ‘V4
 
-Ar 0 7 FRA LÉ LUE
 | LE SADDUCÉEN
 Maintenant, à nous la victoire.
 
-PREMIER PHARISIEN
 Nous ne verrons plus de l'aube au soir, dans la
 cour du Temple, le prophète avec ses douze rustres,
 traînant à ses talons cette assemblée de gueux!
-ous aurons enfin passage libre !
-N fi s libre !
-DEUXIÈME PHARISIEN
 Il est temps. il était grand temps !
 LE SADDUCÉEN, indiquant Joseph d'Arimaihée
 Regardez cet autre qui songe, debout, je crois,
 sur une seule jambe, comme un corbeau méditatif, :
 k et ne semble même pas nous entendre... Ne dit-on
 . point qu'il est à Jésus? Il porte, pourtant, votre
-robe.
-PREMIER PHARISIEN
 Il desserre rarement ses lèvres, nul ne sait ce
-L
 qu'il aime ou déteste. Je crois bien qu'il n'est à
-personne.
-DEUXIÈME PHARISIEN
 Il n'est pas à redouter, quel qu'il soit. De sa vie
 il n'a fait un seul geste! C'est un sage, qui vit
-retiré.
-Il
 
-LE SADDUCÉEN
 Sage qui boite! face de jeûne! .
 Ils passent vers le fond à gauche et se joignent à d'autres.
 Nicodème entre par la porte de droite, regarde, un
 instant, les groupes, et va rapidement, descendant les
-marches, à Joseph d'Arimathée. - 4
-NICODÈME à Ë
-Ne È :
 Joseph d'Arimathée!... Je te découvre, enfin ! 4
 Toi seul, tu peux me dire ce que mes yeux ne
 veulent pas croire... Lui, là, comme un brigand, L
 vêtu d'un haiïllon dérisoire, et ceint d'épines !...
 C'est un insensé coup de force, et tout ne peut être
-fini ! Jete prie, ami, parle vite.
-JOSEPH D'ARIMATHÉE
 D'où viens-tu ? il est tard déjà... Que veux-tu
-savoir ?
-NICODÈME .
 J'arrive de Béthanie, où je passe les nuits dans ;
 ma ferme pour veiller aux moissons prochaines. ;
 A l'aube, cet apôtre des douze, le fils de Jona, est
 venu tout en larmes. Il m'a dit l'embüûche d'hier
 soir, à Gethsémani, l'Iscariote menant les torches,
 la fuite des autres. J'ignore le reste. 1
-JOSEPH D'ARIMATHÉE
 L'Iscariote ?.. c'était donc bien lui. j
-12 |
 
-a LT NAT DEN
-; ‘
-NICODÈME
 Oui, lui, Judas ! Comment croire aux hommes ?
 Celui-là était un apôtre... Misérable ! il semblait
 l'aimer.
-JOSEPH D'ARIMATHÉE
 La haïne est quelquefois de l'amour qui souffre.
 C'était un ardent taciturne.…. et qui sait la force du
-mal?
-NICODÈME
 Chez Caïphe, que s'est-il passé ?
-JOSEPH D'ARIMATHÉE
 C'est chez Hanan qu'ils l'ont conduit, au sortir du
 : val de Cédron. Je n'y étais point, prévenu parmi les
 derniers, et non par hasard, je suppose, mais ils
@@ -774,88 +414,54 @@ s'y trouvaient réunis vingt-trois ensemble, et tu
 | sais que cela suflit.… Ils l'ont condamné pour blasphème... Ce matin, dans la salle de pierre, à la À
 douzième heure, plus des trois quarts du Sanhédrin
 ont ratifié.
-NICODÈME
 O honte, honte à nous! Mais ils ne l'aurontpas
 cette fois encore ! — N'y a-t-il pas une semaine qu'il
 entrait par la porte orientale, et le peuple jetait à
 ses pieds vêtements et rameaux ? Et depuis, chaque
 jour, dans le temple, une victoire nouvelle.
 
-À
-DS
-
-” : AA * 12 eV £ es DE
-; : : us net se nu |
-JOSEPH D'ARIMATHÉE T9
 C'était là le danger. Trop de gens l'ont trouvé
 sur leur route. Hérodiens et prêtres, et les nôtres
 même, depuis ces mouvements du peuple, sont L.
 unis en secret. Caïphe et son beau-père ont fait le
 reste ; Judas est leur coup de fortune. LeSanhédrin
 connaissait la sentence avant cette nuit, je le sais.
-NICODÈME #
 En temps de fête, et la veille du sabbat, c'estoser
-beaucoup... trop, peut-être. 24
-Li L2 e ‘4
-JOSEPH D'ARIMATHÉE “4
 Nous le saurons avant la cinquième heure. A
-F Le
-NICODÈME ‘4
 Qu''a-t-il dit devant le grand prêtre ? D
-JOSEPH D'ARIMATHÉE à
 Ils ont parlé seuls, il s'est tu. 4
-NICODÈME Pa:
 Mais pourquoi maintenant cette feinte, cette bassesse gratuite ? Pourquoi les Romains entre nous ? À
 
-JOSEPH D'ARIMATHÉE b.
 Pour se justifier près du peuple, en cas de rancunes tardives. Tout est bien prévu. Re
 14 1
-E se
-MEN
 
 D ou Si
-ÿ IUPE 7 ct |
 | NICODÈME
 Depuis que ces renards sont grands prêtres, le
 Sanhédrin n'est plus qu'un valet !
 Céphas entre par la porte de droite et se dirige vers eux.
-‘ CÉPHAS, à Joseph d'Arimathée
 Je te salue, Rabbi. Quelle aube sinistre d'un jour
 de fête !
-JOSEPH D'ARIMATHÉE
 Toi ici, Céphas?
-CÉPHAS
 Oui, je suis venu malgré moi... Le croirais-tu ?
 Sitôt cette nouvelle, j'ai pensé à toi tout d'abord...
-JOSEPH D'ARIMATHÉE
 Ce n'est pas à moi, ce matin, qu'il faut penser.
 | CÉPHAS
 J'entends... Va, je ne l'oublie point... Je l'ai vu
 en passant, tout à l'heure... Il a toujours ce même
 regard, que je ne peux pas soutenir. De quel crime
 est-il accusé ?
-NICODÈME
 Demande-le aux accusateurs.
-CÉPHAS
 Pardonne-moi, si je L'ai blessé.
 ; 11 passe aux groupes du fond.
 
-NICODÈME |
 Un Hellène, comme tant d'autres! he
-JOSEPH D'ARIMATHÉE
 Pas comme tous les autres, non. “41
-NICODÈME sf
 Qu'attendre du chacal romain ?.. Toute proie lui 4
-- : AR È J
 est bienvenue... A moins que le dégoût d'être obsédé, peut-être, ou la haine contre le vieil Hanan ?.… |
 que penses-tu ? î
-JOSEPH D'ARIMATHÉE
 J'attends peu de chose d'un lâche.
-“ É
-NICODÈME
 Je ne sais quel espoir me possède encore... |
-JOSEPH D'ARIMATHÉE |
-Écoute.
 Caïphe et quelques membres du Sanhédrin se détachent des
 autres groupes et viennent sur le devant de la scène. a
 CAÏPHE ta
@@ -863,137 +469,82 @@ Le Procurateur dira oui à ce que le Sanhédrin d
 prononce. Ce n'est pas un jugement nouveau qu'on j
 lui demande, mais d'exécuter une sentence. Il n'a
 qu'à condamner, selon notre loi. .
-UN PHARISIEN :U
 Il a le droit de revoir la cause. 1
-e
 
-f LE
-
-er AR 0
-UN SADDUCÉEN
 Que iui importe ?
-DEUXIÈME PHARISIEN
 Il haït le Sanhédrin. En faut-il davantage pour
 qu'il se dérobe ?
-CAÏPHE
 Nous avons des moyens de nous faire entendre. Il
 sait que Vitellius nous protège contre lui. Il n'aime
 pas non plus qu'on se plaigne à Rome... Il réfléchira,
 croyez-le.
-PREMIER PHARISIEN
 Il évite les affaires religieuses. S'il renvoyait
-: Jésus au Sanhédrin ?
-DEUXIÈME PHARISIEN
 Nous jugerions sans lui!
-UN SADDUCÉEN
 Non certes! Oubliez-vous le Baptiste? Le Té-
 trarque meurt de sa mort!
-CAÏÎPHE
 Il ne s'agit pas seulement d'une affaire religieuse.
 au moins pour le Procurateur. — Des raisons politiques, en effet, le toucheront davantage... Nous
 font-elles défaut? S'il ne veut frapper pour blasphème, il frappera pour séduction... séduction du
 
-5 ! ( ” ë Er 208 É DER" MAT SR AS % HRTV S OT RS
 peuple, entendez-vous ? Ce fils de charpentier, soi-
 = disant prophète, ne s'est-il pas dit roi des Juifs ? 0
-LE SADDUCÉEN RE:
 Sans doute ! x
 
-; DIVERS LS
-ë 4 ai
-II a raison ! RTE
-DE.
-hs La A.
-DEUXIÈME SADDUCÉEN "à
 C'est la vraie tactique! 1.0
-T4
-NICODÈME 71408
 Jésus n'a jamais dit qu'il fût roi des Juifs! F4 » < \r
-CAÏPHE nr.
 ; Qui parle ainsi ? Le:
 NICODÈME, avançant d'un pas +74
 C'est moi. (°F
-CAÏPHE 74
 Tu défends le Galiléen ? OUR
-PREMIER SADDUCÉEN 1
 Nicodème a perdu l'esprit ! l a
-‘#4
-3 NICODÈME ‘10
 Je dis la vérité, que voussavez tous. Jésusn'apas
 dit qu'il fût roi, il ne veut pas l'être! Le
 it L'ALUE ass Fr?
 
 nn ER ARS ee 20 L UP
 | Sa PER 2 27 QuR ré
-ts ANS 1
-à PREMIER PHARISIEN
 Qu'en savons-nous ?
-/
-NICODÈME
 Songez au denier de César... Vous êtes revenus
 la bouche close.
-4 PREMIER SADDUCÉEN
 Que nous importe qu'il l'ait dit ou non ? Il est
 blasphémateur, il peut bien être aussi mésith !
-DIVERS
 * Oui! Oui! il est mésith ! il faut qu'il meure !
-: NICODÈME
 Jésus n'est blasphémateur ni mésith !
-PLUSIEURS VOIX
 Il nous outrage ! Qu'il se taise !.. Assez !.….
 CAÏPHE, imposant le silence du geste
 Du blasphème, nous avons des témoins.
-NICODÈME
 Quels témoins ? J'en amènerai d'autres que vous
 n'avez pas entendus ! Le scribe de la défense a-t-il ;
 pu parler? Avez-vous jeûné vingt-quatre heures
 avant de prononcer la peine, selon la loi? Il ne
 suffit pas d'une parole surprise aux flambeaux,
 
-. ï ‘4
 entre deux portes, pour frapper de mort celui qui 1
 enseigne au soleil depuis trois ans ! — Nos pères
 prenaient le deuil pour condamner le coupable; *4n
 vous, s'il faut charger l'innocent, vous en oubliez
 jusqu'aux rites, et le sacrifice du matin !
-CAÏPHE S
-La
-î
 Tu dépenses beaucoup de discours. Nous avons
 entendu le blasphème, nous sommes donc témoins.
-PLUSIEURS VOIX
 Nous sommes tous témoins !
-NICODÈME
 Je suis témoin aussi, et dix mille du peuple!
 Qui prononcera entre nous ?
-CAÎÏPHE
 Tête roide! doutes-tu du grand prêtre? Qu''ai-je
 à faire du peuple et de toi? Il a blasphémé sous
 mes yeux.
-NICODÈME
 La confession seule n'est pas une preuve.
 L'homme sincère peut tomber au piège d'une question rusée…
 |
-LES DEUX SADDUCÉENS
-Prends garde !
-20 h
-4 LX
-
-DEN EI A Le L ., C " ee
-MR VAu Fr NET
-CAÏPHE
 
 Va donc demander à Judas, l'apôtre, ce qu'il
 
 pense de son maître et du tien !
-NICODÈME
 J'en croirai moins Judas que moi-même!
 CAÏPHE, haussant les épaules
 
 Le Sanhédrin a prononcé. Il fallait parler avant
 
 l'heure. Homme de zèle, tu arrives trop tard.
-NICODÈME
 
 Je sais... Vos messagers, ce soir, ont été prompts
 ou lents à frapper aux portes, selon ceux qu'il
@@ -1009,24 +560,17 @@ et vous avez creusé une fosse secrète, pour que le
 lion y tombàt!.. Vous n'avez pas même osé agir
 seuls ; il vous a fallu la nuit, et un traître. Il vous
 faut maintenant les Romains, pour vous mieux
-cacher jusqu'au bout!
-
-VOIX NOMBREUSES
 
 Les démons le possèdent! — Qu'il ait sa part Ë
 
 avec son maître ! — Arrêtons-le ! ;
 ; Gestes de menace vers Nicodème.
 
-CAÎPHE k
-
 Laissez dire, laissez-le tout dire... C'est un Pha- |
 
 risien qui parle ainsi ! |
 
 .
-
-NICODÈME R
 
 Pharisien, je le suis, certes! et de race aussi *
 vieille, aussi pure, que quiconque ici ! Mes pères
@@ -1052,8 +596,6 @@ elles dureront après nous encore ! Toi, qui es satis-
 
 fait de ce monde, tu veux, coûte que coûte, con- 1
 
-22 :
-
 server avec lui ta paix fructueuse... Quant à moi,
 je n'y prétends pas... Je m'étonne seulement qu'un
 si grand personnage se dérange avant l'aube pour
@@ -1071,14 +613,12 @@ PLUSIEURS PHARISIENS, s'interpellant avec vivacité
 | Il a raison ! — C'est faux ! — Ce n'est pas un prophète! — Il nous a maudits le premier ! — Tu n'es
 pas des siens en public !
 
-NICODÈME
 En public je suis des vôtres, comme je veux l'être
 en effet! Celui qui nous entend ici m'est témoin
 que je suis sincère. Pharisiens, tous tant que nous
 sommes, que voulons-nous ? Nous voulons délivrer
 23 4
 | »
-?
 
 du joug la Judée, nous voulons la victoire promise, |
 et le règne de Dieu dans nos villes et dans nos
@@ -1101,7 +641,6 @@ Ghassez de vous la haine et l'esprit violent ! Que
 nous restera-t-il pour la lutte, aux jours de combat
 qui s'approchent, si nous nous tuons entre nous ?..
 Mourir sous nos murs, oui, mourir !…
-CÉPHAS
 Tu dis vrai, Nicodème ! Je suis avec toi!
 11 quitte le groupe des prêtres, et s'avance vers Nicodème
 et Joseph d'Arimathée toujours immobile.
@@ -1137,10 +676,6 @@ Il a prédit la ruine du temple! Notre allié pour la
 cause divine ? Il nous a traités d'hypocrites, il a
 osé crier : malheur à vous !... En vérité, il ne faudrait plus sur la terre d'autres docteurs que ses
 
-Il
-Le
-
-to à AE
 jeunes gens, ou plutôt chacun est docteur et juge!
 Plus de règles, plus d'autorité, plus d'alliance ! Ne
 dit-il pas : « Il suffit d'aimer... » ? Voilà le crime et
@@ -1149,21 +684,15 @@ C'est lui, le Blasphème vivant! — Je dis donc:
 Périsse l'imposteur, avant l'étranger ! Fauchons-les
 jusqu'au dernier traître ! Dieu ne donnera sa victoire qu'à un peuple pur !... J'ai voté la mort de
 Jésus. Il a mérité de mourir !
-TOUS LES PHARISIENS
 A mort Jésus de Nazareth!
-NICODÈME
 S'il a mérité de mourir. si l'on peut le prouver
 dans un débat libre, après les témoins entendus.
 qu'il meure donc selon la loi : lapidé par nous, hors
 des murs !— Pas de Romains dans une cause juive !
 Ne livrons pas notre vengeance et n''abaissons pas
 le Sanhédrin ! Agissons debout !
-PLUSIEURS VOIX
 Il dit vrai en cela! — C'est possible... On aurait
 dû le lapider ! — Sortons, lapidons-le !.…
-Mouvements divers. s
-UN SADDUCÉEN
-Silence ! Hanan veut parler !
 Les groupes s'ouvrent et se taisent. Hanan courbé se lève,
 et s'avance péniblement. 3
 26 5
@@ -1194,8 +723,6 @@ bien pu avant nous abréger son temps... — Même
 Capharnaüm et Tibériade ne pouvaient lui suffire ?.… Il a mieux aimé venir au temple... être un
 personnage, un prophète... Tout doit se payer, un
 
-‘1
-
 jour ou l'autre. Et voici, son jour est venu... Si la à
 mort d'un seul pour la paix publique consterne ton |
 âme à ce point, va donc faire retentir ailleurs tes |
@@ -1205,126 +732,80 @@ n'aient point d'échos. Tu t'en repentirais toi-même,
 aussi bien que tout autre... Souviens-toi que Hanan |
 te le dit !
 Un silence.
-NICODÈME
 Hanan, tu as pour toi la force, et tu parles haut.
 C'est bien, nos lâchetés t'ont fait maître... Si vieux
 que tu sois, comme tu le dis — bien près de la mort
 pour un meurtre ! — tu vivras assez, je l'espère,
 pour voir crouler avec toi-même...
-VOIX DU PEUPLE DANS LE PRÉTOIRE
-A mort ! À mort !
-CAÏPHE
 Entendez, entendez le peuple, qui acclame son
-prophète ! |
-NICODÈME
 Ce sont des apostés à toi... Oh! malheur sur
 vous par Moïse, par Élie et par Jean !.…
-CAÏPHE |
 Pourquoi pas par David encore ? Dis-nous donc ;
 qu'il est le Messie !
-:
-
-à 28
 
 L'ETÉ SNS Dre Ge
-+ : FE 4
-NICODÈME |
 Si Jésus n'est pas le Messie, le Messie ne doit pas
-venir !…. %
 TOUS, détournant la tête et avançant la main droite
-Blasphème ! Blasphème !
 La porte de gauche s'ouvre. Deux soldats romains armés
 de la lance entrent et se rangent des deux côtés, en disant à
-à voix haute. :
-LES DEUX SOLDATS ROMAINS
 1 Place au Procurateur de Judée !
 Ponce Pilate paraît sur le seuil et s'arrête.
-PONCE PILATE
 J'ai cru que les gens de la plèbe s'étaient déchainés
 jusqu'ici et déchiraient quelque victime. Ce ne sont
 que des docteurs, paraît-il.
-; CAÏPHE
 Justice, au nom de notre loi !
-PONCE PILATE
 Justice? Oui, je m'en doutais. J'arrive hier de
 Césarée, c'est la veille de votre fête, et dès l'aube
 vous venez m'assiéger de clameurs... Vous pouviez
 choisir votre jour pour crier : Justice !
-CAÏPHE
 La cause, Ponce Pilate, est grave. Il s'agit d'un
 blasphème sans exemple encore.
-29 IL. à
-
-: PONCE PILATE 4
 
 Les blasphèmes vous regardent, jugez-en vous- É
 mêmes. Je n'ai pas qualité pour savoir ce qui peut
 offenser votre Dieu. ;
-CAÏPHE l
 Nous avons une sentence de mort, mais un rescrit
 de Rome nous défend de l'appliquer, tu le sais. il
 | faut que le Procurateur condamne.
-PONCE PILATE |
 Vous n'êtes pas, d'ordinaire, si déférents. Je te
 le répète, grand prêtre, je suis las de vos luttes reli- |
 ._ gieuses. Ne pouvez-vous les vider ensemble ? S
-CAÏPHE 0
 Tu ne nous repousseras pas, je m'assure, quand |
 tu sauras tout. César est intéressé dans la cause, ily
 a crime de lèse-majesté… 1
 |
-PONCE PILATE 1
 Depuis quand prenez-vous si à cœur l'intérêt È
 de César ? Et quel crime ? }
-CAÏPHE 3
 Un fou, qui se dit roi, veut séduire le peuple. IL |
 
 annonce des prodiges inconnus. ;
 
-PONCE PILATE
-Encore ! 4
-30 à
-à \
-
 RP TT RTE CE NT en D ER hu NME VE said. OU #P STE
 LA ve # Los LEA CS à NL ; ss 4 CA : = * é Fpui ès DH TS
-S 5 1404x. es ce
-er + - Vas
 > CAÏPHE è
 Ce temple, qui a coûté quarante-huit ans sans 4
 qu'on l'achève, il en prédit la ruine et veut le #
 _  rebâtir en trois jours. Il n'est pas de promesse à
-insensée… ;
 PONCE PILATE de
 | C'est bien, nous verrons tout à l'heure... nous e:
 allons voir. (Apart) Ce peuple a le cerveau malade.
-Allons ! '
 Il se dirige vers le prétoire, précédé de ses deux licteurs, s
 monte les degrés et sort. Suivent Hanan, Caïphe et les
 membres du Sanhédrin.
 CAÏPHE, debout sur les marches, à Nicodème
 Veux-tu voir juger le Messie ? à
-NICODÈME ‘
 Soyez seuls à porter votre crime! Javeh, qui nous
 voit, te juge aussi!
-CAÏPHE ;
 Je l'accepte! ce
 I1 sort, suivi des autres, moins Nicodème et Joseph d'Ari- ”
 mathée. Céphas, qui le dernier a gravi les marches,
 s'arrête avant d'entrer dans le Prétoire et redescend brusquement. ,
-NICODÈME Ù
 Et toi, tu ne suis pas toute la meute? Va, jeune |
 homme, la fortune est de ce côté !
-3x
 
-. 7 ANA RQU SIPETERSES
-CÉPHAS
 Souffrez que je demeure ici. Il est vrai, je ne suis 1
 pas des vôtres, mais je ne souhaite pas de mal à
-Jésus... sois-m'en témoin, Rabbi!
-JOSEPH D'ARIMATHÉE 24
 Je le suis.
-NICODÈME |
 C'est cela, oui... Combien sont-ils, qui n'ont jamais souhaité sa mort, et ne feront rien pour la pré- |
 venir! S'ils savaient, cependant! peut-être
 qu'ils sortiraient en hâte de leurs demeures et
@@ -1335,58 +816,37 @@ et le Berger peut-être est loin... (11 s'approche de la baïe
 etregarde.) Voici que Jérusalem s'éveille…. les hommes
 s'en vont à leurs besognes, et les pierres ne crieront
 pas qu'un prophète ici va mourir!
-CÉPHAS
 Jésus est-il perdu sans ressources ? Ne gardezvous aucun espoir ?
-J JOSEPH D'ARIMATHÉE
 Il n'y en a plus de la part des hommes. |
-NICODÈME 4
 À Ah! si j'étais un fils du peuple et qu'il m'eût
 choisi pour apôtre, tous les Galiléens seraient sur
-32 |
 
 cette place. Nous pourrions répondre au grand
 prêtre. du moins il y aurait combat !... Mais, sous
 ce manteau qui nous pèse, il faut que nous restions
 immobiles, et les apôtres n'ont su que gémir…
-CÉPHAS
 
 Où sont les apôtres ? Je n'en ai vu aucun dans le
-
-prétoire.
-NICODÈME
 
 Enfuis ! dispersés par l'orage ! sur les routes de la
 
 Galilée déjà !
-JOSEPH D'ARIMATHÉE
 
 Tu compterais à tort sur le peuple ; il n'aime pas
 
 le héros en détresse. Parmi ceux qui s'écrient : à
-qu
-mort! j'ai reconnu trois hommes malades, deux
 lépreux et un démoniaque, que Jésus naguère a
-guéris.
-NICODÈME
 
 Ils cèdent au souffle qui passe. la voix d'un
 enfant les apaise.. Ils l'aimaient, pourtant! Nous
 verrons encore... J'aurai quelque espoir jusqu'au
-bout !
-
-CÉPHAS
 
 Mais Jésus, qu'espère-t-il lui-même ? La grande
 force n'est-elle pas en lui? S'il en a secouru tant
 d'autres, se peut-il qu'il s'abandonne ?
 
-‘ $ 0 4 D, +a 5 FAR je
-JOSEPH D'ARIMATHÉE \
-
 Je ne crois pas que Jésus veuille vivre. À
-NICODÈME
 Pourquoi dis-tu cela, Joseph ? |
-JOSEPH D'ARIMATHÉE |
 
 ‘ Hier soir, il a dîné chez moi avec les douze. En
 rompant le pain, il a dit : Prenez-le, ceci est mon |
@@ -1395,7 +855,6 @@ corps. En offrant le vin, il a dit : Buvez-le, ceci est |
 mon sang. Il avait l'air triste, et très calme. II a dit
 encore à Judas : Fais ton œuvre. C'est alors que :
 Judas est sorti. 4
-NICODÈME
 
 A quoi bon, si c'était pour mourir, ces batailles |
 des dernières journées, depuis son retour à Jérusa- |
@@ -1405,21 +864,14 @@ coups de fouet aux vendeurs ? ces éclairs dans ses
 yeux, comme ceux de Moïse descendant du Sina ? |
 Il semblait avoir pris un vol d'aigle, et ses mainsse
 tendaient vers le peuple, et nous espérions tous, L
-pourquoi ?.…
-JOSEPH D'ARIMATHÉE |
 Le désert peut-être le sait, où il est resté qua- À
 
 rante jours, et les nuits où il a prié. Il n'a dit son
 
-cœur à personne. À
 54 4
-* à AFTER
 
-CÉPHAS |
 Avant son retour à Jérusalem. il fuyait, dit-on ?
-JOSEPH D''ARIMATHÉE
 Il a fui jusqu'à Césarée.
-NICODÈME
 Oui, après la mort du Baptiste. Celui-là aussi fut
 un homme ; il est mort au piège. Une petite fille qui
 dansait a soulevé la tête pesante... S'il était resté
@@ -1428,52 +880,34 @@ parmi nous, nous aurions vu de grandes choses. IL
 Jean !.. Que voulait Jésus? (Un silence.) Et pourtant
 je n'ai pas connu de visage dont toute mon âme ait
 tremblé, comme du sien.
-CÉPHAS
 C'est vrai! Moi non plus, et pourtant.
-JOSEPH D'ARIMATHÉE
 Il faut patienter pour comprendre... Peut-être estil plus grand que nous le savons.
-NICODÈME
 Oui, oui... mais il sera trop tard! Que nous restera-t-il, demain ?
-CÉPHAS
 Pourquoi nous a-t-il repoussés, nous, les riches ?
 
 |
-NICODÈME
 C'est nous qui n'avons pas voulu de lui!
-CÉPHAS
 Un jour, — j'étais plus las de vivre, il passait sur
 ma route, — je lui ai demandé sa parole... Il m'a
 dit pour toute réponse : « Vends tes biens, et
 suis-moi... »
-NICODÈME
-{
 C'est étrange. Quelque chose en lui emporte et
-déconcerte ensemble. |
-CÉPHAS |
 S'il était vraiment un prophète, il ne pourrait
 mourir ainsi !
 |
-JOSEPH D'ARIMATHÉE
 Bien d'autres prophètes sont morts. Regarde le
 mont des Olives.
-CÉPHAS
 Et s'il était plus qu'un prophète? s'il était... ce
 que tu as dit? Dieu ne le laisserait pas infâme !
-NICODÈME
 Que sais-je 2... Nous n'en sommes pas dignes! Il
 n'y a pas de Messie pour ceux-là !
-CÉPHAS |
 Non ! Non! Je ne peux pas comprendre... |
 |
-36 |
 
 |
-JOSEPH D'ARIMATHÉE
 | Tu veux marquer à Dieu ses voies.
 |
-] VOIX DU PEUPLE DANS LE PRÉTOIRE
 ; Crucifie-le !.…
-NICODÈME
 l Misérables que nous sommes, de pouvoir parler!
 Oh! sortir d'ici!... (l hésite et va verslaporte) J'aurai
 | vu!
@@ -1486,7 +920,6 @@ Oh! sortir d'ici!... (l hésite et va verslaporte) J'aurai
 PONCE PILATE, relevant la tête |
 | Je ne trouve en lui aucun crime. Ce silence n'est
 | pas d'un coupable. |
-d CAÏPHE Ë
 Ce silence est une ruse du malin! sa langue |
 , n'est ailleurs que trop prompte, mais il sait se taire
 à propos. Il n'a pu répondre à qui l'accusait.. La !
@@ -1498,77 +931,53 @@ seule parole qu'il ait dite, quand tu l'as questionné
 | 39
 | qu
 |
-À $
 
-LE STAGE Te EAN POI ENSEREETES
-NICODÈME
 C'est nous qui n'avons pas voulu de lui!
-ï \
-‘ CÉPHAS
 Un jour, — j'étais plus las de vivre, il passait sur
 ma route, — je lui ai demandé sa parole... Il m'a.
 dit pour toute réponse : « Vends tes biens, et
 suis-moi... »
-NICODÈME
 C'est étrange... Quelque chose en lui emporte et
-déconcerte ensemble.
-CÉPHAS
 S'il était vraiment un prophète, il ne pourrait
 mourir ainsi !
-JOSEPH D'ARIMATHÉE
 Bien d'autres prophètes sont morts. Regarde le
 mont des Olives..
-CÉPHAS
 ; Et s'il était plus qu'un prophète? s'il était... ce
 *  quetuas dit?... Dieu ne le laisserait pas infâme !
-: NICODÈME
 Que sais-je 2... Nous n'en sommes pas dignes! IL |
 n'y a pas de Messie pour ceux-là !
-CÉPITAS .
 Non ! Non! Je ne peux pas comprendre... 4
 
 AE ù 41 2 ET REMOTE + r/7 | d Les pins! L 4 FT EME
-554: ES #51
-À >, 7. À We
-f JOSEPH D'ARIMATHÉE À
 Tu veux marquer à Dieu ses voies. |
-VOIX DU PEUPLE DANS LE PRÉTOIRE
 Crucifie-le !.… :
-NICODÈME
 Misérables que nous sommes, de pouvoir parler!.…
 Oh! sortir d'ici!... (I hésite et va verslaporte) J'aurai
 La porte du prétoire s'ouvre. Entrent Ponce Pilate puis
 Hanan, Caïphe et quelques membres du Sanhédrin.
 Ponce Pilate va et vient en silence, d'un air absorbé.
 Tous l'observent.
-CAÏPHE
 Que décidera le Procurateur ?.…
 PONCE PILATE, relevant la tête
 Je ne trouve en lui aucun crime. Ce silence n'est
 pas d'un coupable.
-é \ CAÏPHE
 Ce silence est une ruse du malin! sa langue
 n'est ailleurs que trop prompte, mais il sait se taire
 à propos. Il n'a pu répondre à qui l'accusait... La
 seule parole qu'il ait dite, quand tu l'as questionné
 en face, est un blasphème.
-PONCE PILATE
 Orgueil ou ruse, ne te plains pas. Il n'avait qu'à
 vouloir se défendre, à nier vos dires, par les dieux
 
-IL
 |
-Le
 
 |
-CAÏPHE
 | IL est rebelle à notre loi, il ne peut rester impuni.…
 |
 | ou cinquante autres vont surgir, qu'on ne saura
 | plus châtier.. Le nom de Messie est puissant.
 | PONCE PILATE
 Que veut dire: Messie ?
-CAÏPHI
 | Fils de Dieu.
 | PONCE PILATE, à part
 J'ai entendu cela à Rome, dans les mystères de
@@ -1578,11 +987,8 @@ Il faut la folie de ce peuple. Et pourquoi s'en
 troubler davantage‘? (A Caiphe) N'est-ce point par
 crainte de ce Messie que le vieil Hérode, autrefois,
 fit massacrer tous les enfants mâles ?
-CAÏPHE
 Oui. Celui-ci échappa, dit-on, par une fuite
 hâtive. IL est mort beaucoup d'innocents, et la
-vipère a pu grandir.
-PONCE PILATE
 | Si je le livrais au Tétrarque ? Il n'aime guère non
 plus les prophètes, lui qui sert leur tête au dessert
 
@@ -1594,37 +1000,24 @@ n'y peux voir de danger grave. Qu'est-ce qu'un
 homme qui meurt pour la vérité? Ce n'est là
 qu'un rêveur fanatique, peut-être un fou... un
 méchant, non pas.
-CAÏPHE
 Si ce n'était pas un méchant, nous ne te l''aurions
 pas livré!
-PONCE PILATE
 Que sais-je de vos haïnes de castes, et pourquoi
 me mêler à cela ? Il fallait le juger vous-mêmes, je
 vous l'ai dit.
-CAÎPHE ë
 Nous ne le pouvons plus maintenant; tous attendent là ta sentence. Et songe quels troubles possibles…
-PONCE PILATE
 Lui, soulever une révolte! Tu veux rire de moi.
 Qui voudrait d'un roi mis aux fers ?
-CAÏPHE |
 Le peuple connaît l'imposture, il demande sa
 mort, tu le vois. |
-:_ PONCE PILATE
 Le peuple ne veut pas tout entier quil meure.
-Quelques-uns pleuraient. }
-;
 38 4
 
-es fi ANR LAS LEE
-CAÏPHE |
 ILest rebelle à notre loi, il ne peut rester impuni…
 ou cinquante autres vont surgir, qu'on ne saura
 plus châtier.. Le nom de Messie est puissant.
-PONCE PILATE
 Que veut dire: Messie ?
-CAÏPHE
 Fils de Dieu.
-PONCE PILATE, à part
 J'ai entendu cela à Rome, dans les mystères de
 Mithra.… Oui, et les poètes aussi parlent de l'enfant
 qui doit naître... Mais qui prête foi à des songes ?
@@ -1632,40 +1025,25 @@ Il faut la folie de ce peuple. Et pourquoi s'en
 troubler davantage ?.… (A Caïphe) N'est-ce point par
 crainte de ce Messie que le vieil Hérode, autrefois,
 - fit massacrer tous les enfants mâles ? L
-CAÏPHE
 Oui. Celui-ci échappa, dit-on, par une fuite
 hâtive. Il est mort beaucoup d'innocents, et la
-vipère a pu grandir.
-PONCE PILATE
 Si je le livrais au Tétrarque ? Il n'aime guère non
 plus les prophètes, lui qui sert leur tête au dessert ‘
 
-4 À D ne. Ta
-: ; ee TES
-7 is
 sur un plat d'argent... Vous vous entendriez ensemble.
-CAÏPHE
-£X 1) #
 
 Non ! le Tétrarque n'est pas en cause. C'est César
 qu'il a offensé en se disant roi... Nous n'avons
 d'autre roi que César ! |
 
-NICODÈME, à part
-
 Oh! lächeté!
 
-PONCE PILATE f
-
 Toujours cette parole aux lèvres ! Et si je le renvoie libre, enfin ?..
-
-HANAN
 
 On dira que le Procurateur de Judée prend peu
 de soin des intérêts de Rome... Le gouverneur de
 Syrie, Vitellius, peut-être en sera plus touché. R
 
-PONCE PILATE |
 |
 
 Et César aussi, n'est-ce pas? Vous ferez des |
@@ -1676,15 +1054,9 @@ n'yapas dans tout l'empire de province comme « cette Judée ! (Un silence. Un s
 gauche et s'approche de lui.) Que me veux-tu ? (ls se parlent
 un peu à l'écart.) .
 
-LE SERVITEUR
-
 Procule, ta femme, m'envoie te dire que tu me
 
-À
-Go ;
-
 fasses aucun tort à ce juste que tu dois juger ce matin ; en songe, elle a souffert pour lui.
-PONCE PILATE |
 En songe ? Elle ne le connaît point... Aurait-il ce
 pouvoir ?.… Quelennui!... (Un silence.) Va chercher une
 coupe d'eau lustrale; apporte-la moi. (Sort le serviteur.)
@@ -1695,56 +1067,33 @@ sait 2... J'oubliais leur fête... Oui, oui, c'est cela !.…
 relâcher pour vos fêtes un prisonnier : voulez-vous
 Jésus ?... (Un silence. Les Juifs s'entretiennent à voix basse.)
 Hâtez-vous.
-HANAN
 Non, nous en aimons mieux un autre... Barrabas,
 par exemple.
-CAÏPHE
-Oui, plutôt Barrabas !
 Un silence. Le serviteur revient, portant une large coupe.
 Les Sadducéens s'entretiennent encore. L'un d'eux, pen- :
 dant la suite, se détache du groupe et sort.
-PONCE PILATE
 Ce n'est pas à moi, mais à vous, que votre Dieu a
 dit : « Tu ne tueras point. » Voici ce que je décide. ù
 Je vais demander à ce peuple qui je dois relâcher
 tout à l'heure : Barrabas ou Jésus. Il sera seul juge.
 S'il dit Barrabas, ce Jésus ira donc en croix. Mais
-x 4x
 |
 #
 
-LT 4 FENTE
 |
 s'il dit Jésus, sachez-le, vous crierez en vain! — Et
 maintenant je lave mes deux mains dans cette coupe É
 du sang que vous me demandez. Je n'ai plus de part |
 à cette œuvre. 4
 I1 trempe ses mains dans la coupe. |
-TOUS
 Que son sang retombe sur nous !
-PONCE PILATE
 C'est bien.
 Il se dirige vers le prétoire. Ils sortent.
-CÉPHAS
 Voici la main de Dieu! oh! victoire!...lepeuple
-aimera mieux Jésus !.. ;
 |
-NICODÈME !
-Peut-être !.…
-JOSEPH D'ARIMATHÉE
-Silence. |
 Un long silence. Ils écoutent, la tête penchée. |
-VOIX DU PEUPLE AU DEHORS à
-Barrabas ! Barrabas! |
 ; NICODÈME, avec un geste de colère. 4
-Malédiction ! !
-: CÉPHAS ;
-Jésus !.… À
-: ER.
 
-: “ » , +:
-2%
-;
 .
 Une salle close chez Joseph d'Arimathée, toute sévère e e:
 nue, la nuit, Au fond à gauche une porte, fermée par une
@@ -1756,132 +1105,85 @@ la porte, dans un boisseau, une faible lumière vacille. à
 — Au début de l'acte la porte est ouverte. Joseph
 d'Arimathée est debout devant la voûte cintrée, sous
 laquelle sont entrés déjà Nicodème et l''Essénien.
-JOSEPH D'ARIMATHÉE
 Nous sommes arrivés. C'est ici.
 S Nicodème et l''Essénien, qui portaient un fardeau, le déposent doucement sur le sol.
-NICODÈME
 La porte.
-JOSEPH D'ARIMATHÉE |
 Je vais la fermer. Häâtons-nous. (li referme la porte
 et, demeurant là, écoute au dehors en parlant.) Pesez sur l'an
 neau de la muraille, la pierre cédera d'elle-même...
 Est-ce fait ?
 43 ,
 
-nes : 0.
-NICODÈME
 ; C'est fait.
-JOSEPH D'ARIMATHÉE
 Vous devez trouver une niche profonde... assez
 F grande pour tenir le corps... Vous n'avez qu'à l'y
 mettre, elle est préparée.
 Nicodéme et l'Essénien soulèvent de terre leur fardeau
 qu'ils placent dans le creux du mur.
-NICODÈME
 Il est bien ainsi.
-JOSEPH D'ARIMATHÉE
 Tout est bien. La chose est faite.
 I1 remonte vers eux en boïtant légèrement.
-NICODÈME
 Un succès hasardeux, par ce clair de lune, même K
 en cheminant, comme nous l'avons fait, dans l'ombre
 étroite des masures ! Qu'une seule porte se fût ouy verte, nous étions convaincus de sacrilège…
-L'ESSÉNIEN
 Tout le monde est sur les terrasses, par une telle
 nuit.
 NICODÈME, après un silence, regardant devant lui, vers le mur
 Jésus... Jésus de Bethléem ! Voyez, c'est lui »
 encore. Son visage a repris sa grâce, depuis l'ago-
-£ À
-44 \
 
-RS M TN sed 2 LÉPE er MANU IET (TS à PRET
-Uri er "+ FT
-_ HAE  Érreaits : ‘ (ts
 _ nie. Il est beau de sa première beauté... On dirait L
 _ qu'il répand de la lumière dans l'ombre...
-3%
-‘108 L'ESSÉNIEN
 Sa face en est toute baignée !
 | NICODÈME
 # C'est ainsi qu'il m'est apparu, messager d'une naïssance nouvelle, par une nuit de mon destin !... Son
 front resplendissait de même... Mais où sont le re__ . gardet la voix?
-L'ESSÉNIEN
 Une courte agonie que la sienne ! A peine a-t-il
 touché l'hysope des lèvres, et, quand la lance lui a
 percé le flanc, sitôt la nuit, il était mort.
-NICODÈME
 Oui, mort dans un profond silence, comme il a
 } vécu... Seulement, à la fin du jour, ce grand cri de
 détresse que je n'ai pu comprendre... et plus rien.
 — Ilest mort comme une flamme pure par un soir
 d'orage, d'un coup !.. les autres vies sont des lampes
 fumeuses qui luttent, dans l'ombre etle vent.
-L'ESSÉNIEN
 Son corps et son cœur étaient nobles, il n'a
 | jamais connu le vice... la douleur flétrit moins que
 \ le mal.
 
-É 0] nt.
-Mn
-k
-%
-
-JOSEPH D'ARIMATHÉE
 Regardez-le du fond de votre âme... Il faudra
 fermer le sépulcre, et nul homme ne doit plus le
-revoir.
-NICODÈME
 C'est vrai... (Unsilence.) IL est donc là comme tous
 les êtres, le plus grand des vainqueurs de la nuit!
 Pourquoi ai-je vécu cette seconde ?.. (Unsilence.) Fermons…..
-JOSEPH D'ARIMATHÉE
 Remettez la pierre à sa place, qu'elle soit bien
 scellée dans le mur... C'est cela.
 Nicodème et l'Essénien reviennent dans la salle.
-NICODÈME
 En vérité, un merveilleux tombeau !... Maintenant
 R qui le soupçonnerait ?
-JOSEPH D'ARIMATHÉE
 Il n'est pas le seul dans la ville ; nos pères en
 creusaient de la sorte pour les cas de siège, où l'on
 ne peut franchir les murs; mais ils sont presque
 tous inconnus.
-L'ESSÉNIEN
 L'heure est tardive. Il faut que je parte.
-JOSEPH D'ARIMATHÉE
 Merci, ami de quelques heures, à toi qui t'es offert |
 à nous pour le péril... :
-46 |
-di
 
-L'ESSÉNIEN
 Il faut rendre honneur aux prophètes. Celui-ci
 fut des nôtres, naguère... tout Essénien en ferait
-autant.
-NICODÈME
 Souviens-toi de garder le silence, il y va de notre
-salut
-L'ESSÉNIEN
 Tu peux demander à Machérous si l'on sait où
 repose le Baptiste. sois sans crainte.
-JOSEPH D'ARIMATHÉE
 Où vas-tu, frère ?
-L'ESSÉNIEN
 A En-Guédi. Nous venons ici pour la Päque,
 mais nous n'y demeurons pas plus d'un jour. J'ai
 hâte de secouer de mes pieds la poussière de la
-ville. Adieu!
-JOSEPH D'ARIMATHÉE
-Adieu !
-NICODÈME, à part
 Adieu, non. À bientôt... (Sort l'Essénien.) Maintenant,
 frère, explique-toi. Je t'ai obéi sans comprendre, et
 sans rien marchander aussi; mais quelle est cette
 énigme ?.…. Hier, tu obtiens du Procurateur le droit
 d'ensevelir Jésus. tu risquais assez pour toi-même
 
-; D,
 par cette seule démarche déjà... Nous le mettons au
 tombeau dès le crépuscule, avec l'aide de quelques
 fidèles, dans ce jardin perdu près du Golgotha... Ce
@@ -1891,7 +1193,6 @@ dans cette ombre, mieux qu'un avare ne fait un
 trésor. Tu risquais deux fois de te perdre, ne le
 sais-tu pas ?.. Dans quel dessein ?
 
-JOSEPH D'ARIMATHÉE
 Un dessein très humble et très simple, mais j'ai
 cru qu'il valait le danger. Nous n'avons rien pu
 pour sa vie; il fallait que la mort lui fût calme.
@@ -1902,72 +1203,44 @@ suprême, s'ils avaient pu la dérober. Les vautours
 devaient seuls achever leur œuvre... Aïnsi, ce que
 nous venons de faire, la haïne, à défaut de l'amour,
 l'aurait fait.
-NICODÈME
 J'aurais dû songer à cela... Oui, sans doute...
 Mais pourquoi les premières funérailles 2... cette
 ostentation visible des femmes en larmes et de
-l'adieu ? N
-A
-48 à
 
-Te] de : SE % < *} “
-JOSEPH D'ARIMATHÉE
 Pour n'être accusés de personne. Ma démarche
 auprès de Pilate devait être connue... Que répondre,
 alors, aux questions? Ils vont être peu satisfaits.
 Nous devions l'ensevelir d'abord au grand jour,
 comme nous le fimes..… et risquer, en secret, le
 : reste. Nous serons, à présent, les derniers qu'on
-soupçonnera.
-NICODÈME
 Tu ne laisses pas de prise au hasard, et ton
 \ silence a plus fait que nos pleurs... J'admire ton
 courage, à cette heure où le deuil semblait seul nous
-rester.
-JOSEPH D'ARIMATHÉE
 J'ai fait ce qu'il convenait de faire; il fallait y
 penser, rien de plus.
-NICODÈME
 Merci d'avoir pensé à moi !
-JOSEPIH D'ARIMATHÉE
 L'œuvre te revenait d'elle-même... Je n'étais pour
 Jésus qu'un ami immobile... Je n'attendais rien au
-delà.
-NICODÈME
 Veux-tu dire... que tu ne croyais pas en lui?
 (Un silence.) Pourquoi t'être, alors, dévoué ?.…
-? 49
-Au :
 
-: 1 É
-
-JOSEPH D'ARIMATHÉE
 Disons que c'est inconséquence... et laissons
-cela.
-NICODÈME
 Excuse ma liberté trop grande... (Un silence) —Ces
 pauvres gens, qui le croient encore où ils l'ont
 quitté, que diront-ils ?
-JOSEPH D'ARIMATHÉE
 Ils accuseront les bourreaux, sans doute, ne se
 trompant qu'à demi, tu le vois; — et, peu à peu, ce ;
 sera l'oubli.
-NICODÈME
 £ Bienheureux s'ils oublient un jour, et reprennent
 leur route !.. Pour moi c'en est fait, je m'arrête…
 Je vais aussi demain à En-Guédi, Joseph.
-JOSEPH D'ARIMATHÉE
 Que veux-tu dire?
-NICODÈME
 Je vais demander, à mon tour, aux Esséniens
 solitaires, la ceinture, la hache et la robe de lin. Je
 n'ai plus ici rien à faire.
-JOSEPH D'ARIMATHÉE
 Il reste-toujours quelque tâche.
-5o |
 |
 
-NICODÈME À
 Mais non le désir de s'y mettre... Les miens sont
 morts, je vis seul déjà... le fils où je pensais revivre
 m'a précédé, que me reste-t-il ?.. La patrie ? Désormais, avec qui combattre? Les prêtres, les Pharisiens, le peuple, tous trahissent.… et je suis si las!
@@ -1976,24 +1249,16 @@ les prières, en se tournant vers Jérusalem, savent
 bien peu ce que cetemple cache derrière son voile
 épais. La lumière des sept candélabres, qui brûle
 toujours dans le sanctuaire, est morte en moi... Je
-fais place à d'autres.
-JOSEPH D'ARIMATHÉE
 Tu espérais beaucoup en lui...
-NICODÈME
 J'ai tout espéré, tout ! Que sais-je ? La fuite des
 loups étrangers. l'Église de Sion comme une vierge
 neuve au matin nuptial... les promesses!... Mais le
 temps des héros n'est plus !
-JOSEPH D'ARIMATHÉE
 Il n'est pas besoin de partir.
-NICODÈME
 Je ne pourrais pas, comme toi, retiré dans ma
 seule pensée, dominer tous les hommes du haut de
 l'esprit. Il me faut le combat ou l'exil. — Je ne
-52:
-L.
 
-Lu Ù H VAE PASS LEA Tag ti ns
 É: veux plus voir les rues de cette ville, le temple, les ch
 , lances romaines sur la tour Antonia, les murailles, |
 tout ce que j'aime et tout ce que je hais! Là-bas,
@@ -2006,12 +1271,9 @@ monde, et vit pour Dieu seul... Les travaux journaliers, le silence, les saisons
 prépareront mieux au grand calme. Je m'initierai
 aux mystères que gardent les Vieillards sacrés. A
 moins que le cri de guerre n'éclate.. Alors, je reviendrai mourir. (Unsilence) Joseph d'Arimathée,
-adieu!
-JOSEPH D'ARIMATHÉE ; e
 Nicodème, adieu. (ls s'embrassent) Tu seras moins |
 amer, quelque soir... les hommes sont peu de chose,
 ils s'en vont, et l'Esprit demeure.
-NICODÈME
 J'aurai vu dans ma vie un homme... Mes frères
 l'ont crucifié, mais il repose là, sous ta garde... Je
 me souviendrai. — Mais on vient, des ombres s'ap- |
@@ -2020,47 +1282,31 @@ vont pâlir bientôt, je me hâte. d
 I1 sort. Joseph d'Arimathée le regarde s'éloigner en silence.
 Les Saintes Femmes, au nombre de quatre, toutes voilées
 et portant une urne, s'arrêtent en passant près du seuil.
-52 <
 
 15 1e CARTES véte A 27 dé Le RE) à DS . hi AURA:
-De LEA À ne à £ #
-
-Fe LÉ LUS — Eau 4 « MP ie 4 :
-JOSEPH D'ARIMATHÉE
 
 Femmes, où allez-vous ?
-
-UNE DES FEMMES
 
 Nous allons à Jésus, bon maître. Nous apportons
 
 les aromates. Il n'est pas encore embaumé.…
-JOSEPH D'ARIMATHÉE
 
 Il est bien tard, ou trop matin, et la route est
 
 longue. Ne voyez-vous pas que tous dorment ?
-LA FEMME
 Nous n'oserions pas, au grand jour.
-SECONDE FEMME |
 
 Pouvons-nous dormir, quandilveille? Nul encore
 
 n'a fermé ses yeux... Il est seul, peut-être il a
-, froid !.…
-JOSEPH D''ARIMATHÉE
 
 Les morts n'ont besoin que de paix, Marie. A quoi
 
 bon ces parfums ? Laisse en paix Jésus!
-LA FEMME
 Il n'a pas défendu qu'on l'embaumât! Quand il
 était vivant, un jour, j'ai brisé sur ses pieds un vase
 de myrrhe, mes cheveux les ont essuyés, il m'a
 laissé faire. Pourquoi nous reprends-tu, Rabbi ?
-
-FES
-JOSEPH D'ARIMATHÉE
 
 Je ne te reprends pas. Va, selon ton cœur. (Les
 Saintes Femmes s'éloignent. Il fait quelques pas dans la salle.) € Ils
@@ -2080,20 +1326,13 @@ point. (Un silence) Pauvres femmes ! mais elles ?...
 Est-ce moi qui songe à les plaindre ?... Sans doute,
 la Volonté aussi les guide... C'est bien. (1 marche de
 nouveau dans la salle. Entre Céphas.) Qui vient ici?
-CÉPHAS
 
 Céphas… Il est la neuvième heure, mais j'ai rencontré Nicodème qui m'a dit t'avoir vu... A qui
 viendrions-nous qu'à toi, homme sage, à toi qui
 seul l'as secouru ?
 
-JOSEPH D'ARIMATHÉE
-
 Toi aussi, comme tous les autres, tu veux voir
 
-Jésus au tombeau ?
-
-4 : - Ve CA
-mur CÉPHAS
 Non! Non!... J'ai assez vu! Partout où je
 vais, je vois encore... cette croix sombre, au jour
 qui baisse, et le corps pâle sur la croix... Ah! j'ai
@@ -2103,10 +1342,7 @@ soir. Au retour, comme à chaque printemps, les
 colombes volaient dans les cèdres.. les figuiers
 ouvraient leurs jeunes feuilles. les lys éclataient
 dans les champs... Aucun deuil... et ce Golgotha!..
-JOSEPH D'ARIMATHÉE
 Le monde n'a point de part aux douleurs des
-hommes.
-CÉPHAS
 Et moi, pourquoi donc suis-je en deuil, comme un
 frère ou comme un ami? Je ne connaissais pas
 Jésus! Je n'ai pas fait saigner ses mains sous
@@ -2118,24 +1354,17 @@ de ses disciples... Pourquoi ai-je épié, un à un, ses |
 derniers soupirs ? n'ai-je pas voulu m''arracher ?.…
 Je crois que j'ai envié ce larron de l'entendre, et cet
 autre de porter sa croix...
-5 M
 |
 
-ë JOSEPH D''ARIMATHÉE G é
 C'est la mort qui grandit le prophète. il en est
 d'ordinaire ainsi.
-CÉPHAS
 Maudit soit le jour de lassitude où j'ai voulum'ap
 procher de lui!
-JOSEPH D'ARIMATHÉE
 Quel jour ?
-CÉPHAS
 Oh ! je puis te le dire... Te rappelles-tu Rébecca,
 la femme de Naboth?
-JOSEPH D'ARIMATHÉE
 L'adultère? Oui, je me la rappelle. Elle était
 d'une grande beauté.
-CÉPHAS |
 Je l'aimais.. C'est moi qui l'aimais.. A l'aube, —
 elle sortait de chez moi, — Naboth la surprit à mon |
 insu. Ce même jour, entrant au temple, j'entendis, ;
@@ -2144,17 +1373,11 @@ femme, que la foule trainait vers Jésus. Tous criaient
 en chœur: Lapidons!... Je me frayai vers elle un
 passage, prêt à la sauver, ou mourir... Lui, assis,
 entouré de ses douze, et nous regardant sans surprise : « Que celui d'entre vous qui est sans péché
-56 *
-À F
 
 mr: EL ee l MORE NUST NE
-+ é
 jette la première pierre, » dit-il. Et, s'étant penché
 vers le sol, il écrivait avec son doigt... La foule se ë
-retira en silence...
-JOSEPH D'ARIMATHÉE
 Je reconnais là ses paroles.
-CÉPHAS
 Quand tous se furent écartés, je ne sais quel désir
 . . 4 . 4
 m'emporta. J'allai soudain à lui, comme en Songe,
@@ -2165,9 +1388,7 @@ face, et ses yeux, faits d'une autre lumière, me dé-
 fiaient, me brûlaient la poitrine... Il parla : « Si tu
 veux devenir un autre homme, vends tes biens, et
 suis-moi. » Et, comme je demeurais là, triste, secouant la tête il s'éloigna.…
-- JOSEPH D'ARIMATHÉE
 Pourquoi ne l'as-tu pas suivi ?
-CÉPHAS
 Parce que... parce que je suis jeune et ne veux
 pas renoncer à la vie, et qu'il me faisait peur malgré y
 moi, dans sa pureté solitaire... Pourquoi m'a-t-il
@@ -2182,9 +1403,7 @@ bien valu, je suppose, un pêcheur ou un péager…
 Et que m'eût-il donné en échange? Quel trésor, quel .
 verbe inconnu ? Il a clos pour jamais ses lèvres, et
 ne l'a pas dit... et je suis resté dans le doute! d
-JOSEPH D'ARIMATHÉE
 Cette femme, Rébecca.…. elle est morte ?
-CÉPHAS ;
 
 Oui, morte... Naboth l'a tuée. Et, füt-elle encore
 vivante, qu'elle serait morte pour moi... Car, depuis
@@ -2200,8 +1419,6 @@ connu le désespoir... J'ai voulu aimer d'autres femmes, de celles dont l'amour 
 Rébecca.. Là encore, j'ai trouvé sur ma route le |
 manteau blanc de ce Jésus! Une courtisane, Marie,
 tu sais bien, la Magdaléenne, qui a fait la joie de
-
-id
 
 _ tant d'hommes, elle m'a refusé ses caresses, oui, l'or
 même que je lui offrais, parce qu'il l'avait con- ;
@@ -2222,13 +1439,9 @@ Mais non ! Il m'a laissé la tâche, sans dire ce qu'il
 voulait de moi... J'ai été troublé, non séduit, dé-
 pouillé de la joie ancienne tarie comme l'eau dans
 la main, sans connaître la béatitude dont il enchantait ses Élus. N'est-ce pas un sort dérisoire ?
-JOSEPH D'ARIMATHÉE
 
 Tu as trop discuté en toi-même. Il fallait se
 donner sans comprendre... Ce n'est pas à moi de te
-blämer.
-
-CÉPHAS
 
 Et maintenant il n'est plus... nous voilà seuls.
 Et nous gardons en nous l'image, plus grande dans
@@ -2241,30 +1454,21 @@ n'a plus de lumière, et l'avenir n'en a pas encore... :
 Puisqu'il n'était pas le Messie, y aura-t-il jamais un
 Messie? Et lesquels de nous le verront? O Père,
 toi qui as la sagesse, ne peux-tu me donner quelque
-espoir ?
-JOSEPH D'ARIMATHÉE
 
 La sagesse ne peut pas se donner, et son goût
 parfois est amer... Ce n'est pas elle, maïs la joie que
 tu cherches. Je ne sais pas quelle est ta roûte.
 
-CÉPHAS
 ‘ C'est bien. Je la trouverai seul. J'irai, j'essaierai
 d'autres cieux, au hasard des voiles... J'irai vers la
 Grèce idolâtre, d'où vient un souffle de beauté!
 
-JOSEPH D'ARIMATHÉE
-
 Tu ne trouveras pas hors de toi le bonheur qui
 
 n'est pas en toi.
-CÉPHAS
 Ce qui est en moi, je l'ignore.….
-JOSEPH D'ARIMATHÉE .
 Tu ne dis pas toute ta pensée. |
 
-ddr VE PRES Ci U ( f
-: CÉPHAS :
 Peut-être la sais-tu mieux que moi? Il me semble
 . qu'au fond de mon cœur habite quelque dieu invisible et qui ne voudrait pas parler... (Un silence. Un ;
 lointain son de trompe retentit sur Jérusalem. Il s'approche de la
@@ -2273,69 +1477,40 @@ est à Hébron. Les trente-neuf travaux vont reprendre, qu'avait suspendus le Sa
 la vie recommence... Mais le jour n'éveille pas les
 morts... (Pierre et Jean se présentent sur le seuil.) Qui …
 sont-ils ? |
-JOSEPH D'ARIMATHÉE
 Deux de ses disciples.
 PIERRE ET JEAN, entrant dans la salle
-Salut, Rabbi.
-JOSEPH D'ARIMATHÉE
 Que demandez-vous ?
-JEAN
 Tu as enseveli notre maître... Qu'il te plaise nous
 dire en quel lieu, afin que nous allions y prier,
 celui-ci, Simon Pierre, et moi, Jean.
-JOSEPH D'ARIMATHÉE
 Je l'ai enseveli au jardin d'Ephron, près du Golgotha. Est-ce maintenant qu'il faut vous l'ap- |
 
-i IV
-
-À L 1 No NE
 prendre ? Les femmes sont plus promptesquevous.…
 Depuis deux jours, quel est votre abri ? #
 
-JEAN
 ; Nous étions chez Marie et Marthe, sœurs de Lazare, à Béthanie. ;
-JOSEPH D'ARIMATHÉE :
 Vous pleuriez ensemble... Alors, vous laissiez
-seul Jésus.
-JEAN .
 Nous avons essayé de Le suivre.
-JOSEPH D'ARIMATHÉE
 Jusqu'où ?
-JEAN
 Jusque chez Hanan, avant-hier, la nuit... Nous
 étions près des feux, dans la première salle... On
 nous a menacés... é |
-JOSEPH D'ARIMATHÉE
 Je ne vous ai pas vus chez Caïphe.— Et les autres,
 
-« . À
 les neuf, où sont-ils ? |
-;
-JEAN :
 Du côté de Tibériade…
-JOSEPH D'ARIMATHÉE à j
 Ils ont fui ?... (Un silence) Pauvre troupe en dé
 route !... — Eux, les onze, tous ses élus!
-62 ‘3
-;
 
-3, tas NR ESS Re TE MER
 PIERRE, qui s'est tenu jusqu'alors à l'écart, dans un accablement |
-farouche, tressaillant brusquement
 Nous étions tombés dans un piège... J'ai tiré.
 l'épée, à Cédron, j'ai blessé Malchus!. Mais le
 Maître, alors, m'a repris.
-CÉPHAS
 Qu'at-Il dit en voyant les hommes d'armes ?
-PIERRE
 Il s'est offert à eux.
-JEAN
 Ïl a dit : « J'étais tous les jours dans le temple, et
 vous venez me saisir la nuit !... »
-CÉPHAS
 Mais avant, mais dans cette soirée, que vous a-til dit? Pas un mot? Que faisiez-vous à Gethsé-
-mani ?
-PIERRE
 Nous étions accablés de sommeil, nous dormions,
 serrés tous ensemble... Il s'était un peu écarté.
 deux fois il est venu nous parler... mais ma tête
@@ -2344,150 +1519,81 @@ seconde fois, pourtant, je me rappelle encore... je
 l'ai vu... il marchait à grands pas... quelquefois il
 penchait le visage, en pliant ses bras contre lui. il |
 
-' ; 4 free
 parlait avec force, comme pour une grande foule, k
 mais à lui seul... Et il est tombé à genoux... k
 
-CÉPHAS 3
-
 Qu'a-t-il dit, alors ?.. qu'a-t-il dit? 4
-PIERRE F4
-
-ë
 
 Il priait sans ouvrir les lèvres... je crois qu'il a .
 pleuré. Je ne sais pas. ;
 Un silence. À
 
-CÉPHAS, à mi-voix |
-
 à Aurait-il douté de lui-même ?...— Mais naguère.
-;
 
 souviens-toi encore... que vous annonçait-il de 4
-
-PIERRE |
 
 .
 
 Sur la route de Césarée, il nous a dit : « Je suis
 le Christ! » ;
-CÉPHAS ‘2
-
-L
 
 Enfin! — Il s'était donc trompé... |
 
-JEAN
-
-L
-
-d
-
 Jésus ne s'est jamais trompé. Il nous avait prédit 4
 
-j
-
 lui-même que le Fils de l'Homme devait mourir. :
-CÉPHAS ;
 
 Mourir, sans avoir fait son œuvre! Et le 4
 
 royaume que vous attendiez? 420
-64 : ‘à
 
-D NN DA RARE 140 NI
 ee A PA M ED EAP TA
 4 7eme n'est pas ce quon pense... nous Re ; #48
 comprenions pas encore. A 2e Lee
 LE SON Minis à
 L Et maintenant, que comprenez-vous?... Qu''allez-
-“vou s attendre ?.… | AS
-ONCE | PIERRE FN
-nf 124 n regne …. SFUE
-TE À KP
-LME *JÉAN 40
 _ Le Fils de l'Homme reviendra! les nuées seront LL
 déchirées! Il viendra comme le soleil ! de per,
-Re CÉPHAS THEN
 Quand doit-il revenir, d'après vous ? 708
-se : Ir ER
-rr # F : +. d'ere
-1 UE VERRE
 Les temps sont proches, et le blé mûr... 40
-its Na
-GA CÉPHAS en
-+ Et ont i ? $ NENGNE
 - Et quels sont vos signes RAR.
-Fa FU ,. . . . LX à à
 Ta n'y a de signes que pour ceux qui croient. RH
-à 54 PATES . » NEA
-"AIS JOSEPH D'ARIMATHÉE MU:
-LC NS , r CNE
 ù Tu dis vrai. LT
 
-Rd
-Ê
-CÉPHAS
-O Galiléens au col roide!... (A Joseph d'Arimathée.)
 Est-ce vraiment là tout leur songe ?.. A quoi bon
 disputer davantage? Qu'allez-vous faire en attendant?
-JEAN
 Nous reviendrons à Génézareth, nos barques de
 pêche y sont encore. Nous reprendrons l'ancien
-métier.
-JOSEPH D'ARIMATHÉE
 Vous ferez sagement de quitter la ville. Il faut que
 vous laissiez venir l'oubli.
-JEAN
-£
 Nous ne voulons plus que voir son tombeau, et …
-: |
 nous partirons.
 Un silence. |
-CÉPHAS
 Ces hommes sont peut-être heureux...
 Trois des Saintes Femmes entrent dans la salle, sans voile
 et vivement émues. Elles portent encore avec elles les
-.. urnes remplies d'aromates. ;
-LES SAINTES FEMMES
-Hélas ! Hélas!
 PIERRE, les regardant une à une :
 Jeanne, Marie et Salomé. D'où viennent-elles?..
-66 k 3
 #
 
-RC nr Ur," dB" s # Ce,
-JOSEPH D'ARIMATHÉE
 Qu''avez-vous, femmes?
 JEAN, s'approchant de l'une d'elles
 Mère, qu'y a-t-il ?
-LA MÈRE DES ZÉBÉDÉES
 Le sépulcre est vide !
-SECONDE FEMME
 On nous a dérobé Jésus !
-TROISIÈME FEMME
-Hélas ! Hélas !
-CÉPHAS
 Que disent-elles ?... (A la mére des Zébédées.) Parle,
 toi... Dis ce que tu as vu...
-LA MÈRE DES ZÉBÉDÉES
 Nous allions au sépulcre, Rabbi... Nous lui portions ces aromates... La pierre était déjà levée !.…
 Les linges sont pliés encore, ceux de la tête et ceux
 des pieds. Nous l'avons cherché dans la grotte. il
 n'était nulle part !... O Jésus !.…
-SECONDE FEMME
 J'ai vu, debout près de la grotte, un homme blanc
 qui nous regardait.
 
-PIERRE . SET
 Malheur à qui l'a dérobé!.… £ NE
-CÉPHAS ;
 Leur tête est troublée... Qu''ont-elles vu? 20
-JEAN 1
 Et Marie? Marie Madeleine? N'était-elle pas 3
 avec vous? 1
-LA MÈRE DES ZÉBÉDÉES
 Nous l'avons laissée au sépulcre, à genoux et é.
 comme en extase... Nous sommes parties sans 4
 l'attendre…. É
@@ -2495,37 +1601,28 @@ l'attendre…. É
 Marie de Magdala?.… la voici. 4
 Entre Marie de Magdala, à pas très lents et les yeux fixes. d
 Elle parle d'une voix presque basse et sans geste. |
-MARIE DE MAGDALA 4
 Je lai vu... je l'ai entendu... il était sorti du ‘
-. pets 14
 sépulcre.. Comme sa tunique était blanche! Il à
 touchait à peine la terre... il n'avait plus de sang ni ‘4
 de plaies. Il était plus beau qu'autrefois… "2
 | CÉPHAS 1
 « Elle parle comme en un songe... 4
 68 20
-£ 4
 
 | LR TRES ASS Que
-{
-PIERRE N
 Que dis-tu, Marie? Parle-nous.. C'est moi, è
 Pierre. Qui as-tu vu? Ù
-: MARIE DE MAGDALA
 C'est toi, Pierre. (Elle regarde autour d'elle.) Vous êtes
 tous là... Pourquoi gardez-vous ces visages?
 elle est passée, la longue nuit... Ne savez-vous pas
 qu'il faut rire? qu'il faut marcher dans la cam- 5
 pagne, et cueillir des rameaux... des rameaux ?... Ne |
 vous ai-je pas dit qu'ils'avance, lui, l'époux céleste. ÿ
-Jésus?
 Un silence. Tous, anxieux, se regardent.
 LES SAINTES FEMMES, entre elles, à voix basse
 Est-ce la douleur qui l'égare?.. — Non, regardez
 comme ses yeux brillent.… -
-CÉPHAS
 _ Oh! parle, parle encore. dis-nous.
-MARIE DE MAGDALA F
 J'étais à genoux, je pleurais... voici que je me
 suis levée. Il était debout devant moi... Il était
 debout près de la porte, dans une robe neuve
@@ -2541,30 +1638,19 @@ voulu toucher sa robe... mais Il m'a dit:« Neme
 touche point, car je dois revenir à mon Père... Va
 dire tout ce que tu as vu... » ‘Ki: <0
 Un silence. Les femmes se sont rapprochées de Marie.
-CÉPHAS
 Elle a l'air d'être plus qu'une femme... Elle
 rayonne avec le matin! |
-PIERRE, se réveillant brusquement 4
-Au sépulcre, Jean! Au sépulcre!.. dehors! viens,
-sortons!.… ÿ
-JEAN
-Au sépulcre!
 Tous les deux sortent en courant. _
 MARIE DE MAGDALA, de même :
 Je l'ai vu... je l'ai entendu... Il est ressuscité des
-morts!
 Elle sort du même pas tranquille, suivie des trois femmes. 3
 Un silence.
 | CÉPHAS 4
 Joseph, que venons-nous d'entendre?
-JOSEPH D'ARIMATHÉE
 
 Des folies. Un rêve de femme !.. 1
-ge à
-ï 16
 
 | 5 —
-CÉPHAS
 Non! Non ! Ce n'était pas un rêve! Je sais que
 ses yeux avaient vu... Oh! Joseph! les nuées se
 déchirent! le soleil monte! c'est une aube, une aube
@@ -2578,33 +1664,15 @@ regarde s'éloigner. Le paysage est baigné de lumière. Seul,
 il va jusqu'au réduit sombre où Nicodème et l'Essénien
 ont enseveli le corps de Jésus. Il se tient là une seconde en
 silence, puis, avec un geste de doute et de résignation, il |
-s'en va.
 
-CAL SRE ES Mn Serres ARCS PTE MENT D FENTE
-LU RTS HNERE TE URE pe ANT ED da. AT AI dr 2)
-RAA D 7 CENT er. MOT EUR PEN EP RATE AN, 7
-Re RANCE DRE AS PGA SES ENCRES
-RÉ 4 x PIE £ TSX AE T2 HR: ff dE
-Dr - 154 US + nr 07 pi LUN MESSE 2:
-7 APE | 4. L BE or AE LE Fi À
 va TAFRUR Tu Ppr
-ER M
-2: *: TAULÈC EE ETS
-DU. $ aie A
-RE 7e : ; » DCE) Le LES SR
-Ti STHRSIER 2 ÿ Es M AR
-RU LM & < ÿ Pi, NT) Van "1
-RTL : RUN : HIVER } NOEL MT:
-RENE ER ER RP A se PAC TRES
 ORNE AS EN TIR PR DE ent
-n re PA ES Vo alex A ONE TERRE EE ESS
 
 Même décor qu'à l'acte IL. Au début de la première scène
 Joseph d'Arimathée est seul avec un esclave. On voit au
 dehors, par la porte ouverte, la fin d'un crépuscule noc- è
 
 . turne : une brume bleuâtre et chaude où s'étouffent les
-luéurs dernières.
 JOSEPH D'ARIMATHÉE, à l'esclave
 Apporte la lumière dans le boisseau, les Galiléens arriveront tout à l'heure. Laisse la porte
 _ ouverte ; tu la refermeras sur le dernier venu, je te
@@ -2619,8 +1687,6 @@ moi-même, peut-être ?.… Il suflit. — Ensuite qu'ils
 partent !.… ils partiront... c'est Pierre qui va les
 conduire... Demain ils seront loin, dispersés...
 
-Y
-
 leur voix se perdra dans les bourgades... leur zèle
 s'éteindra de lui-même... à moins que ?... (Unsilence.) |
 Que pouvais-je de plus pour guérir ces cœurs passionnés de leur songe ?... Rien... ( regarde vers le
@@ -2632,7 +1698,6 @@ autres courent! Oui, j'ai connu cela aussi... (Un J
 silence) Maintenant des folies à entendre ?.. Mes
 oreilles sont patientes, et la vie se passe à ce jeu.
 Il reste Céphas... oui, sans doute... Cette ardeur
-émue m'intéresse. peut-être commeun souvenir?
 Celui-là ne peut pas vivre aveugle... — Qui parle
 beaucoup n'agit guère... Il est captif sous des
 chaînes d'or... Ce qui sera, sera... Nous verrons
@@ -2646,10 +1711,7 @@ l'orage se serait déchaîné encore... Rien ne peut
 empêcher et l'amour et la haine de se battre sur ce
 sépulcre comme ïls se battaient sur ses pas.… j
 Moi-même, écoutant cette femme, n'étais-je pas
-74 j
-} Ps
 
-: ; 3 Ë
 séduit 7. Oui, je le crois en vérité... On
 dirait quelquefois que les fous sont les sages.
 Étranges détours de l'Esprit !.… (Un silence.) Et lui, qui
@@ -2659,7 +1721,6 @@ meilleur, peut-être !.. (Un silence) Nos pères ont eu
 raison de dire: O Dieu d'Israël, Dieu qui sauves, tu
 es vraiment un Dieu caché! (n demeure un momentimmobile. Céphas entre sans bruit et s'arrête, absorbé dans une réverie
 profonde. Joseph d'Arimathée va vers lui et lui touche l'épaule.)
-Quelles nouvelles ?.…
 CÉPHAS, tressaillant à sa voix, mais sans le regarder
 Depuis hier, j'ai marché sans trêve... le tombeau
 était vide... la pierre, l'énorme bloc, levée, comme
@@ -2667,7 +1728,6 @@ elles l'ont dit... et, par terre, les linges pliés, ceux
 des pieds et ceux de la tête, comme elles l'ont dit...
 . Maïs il ne m'est pas apparu. — Je l'ai cherché dans
 Jérusalem comme un chien qui suit une piste... au
-temple... à Béthesda... à Siloé..…. à Gethsémani...
 au Golgotha... partout où l'on retrouverait encore
 les traces fraîches de ses pieds... D'autres avaient
 passé déjà... les vendeurs sont revenus dans le
@@ -2677,50 +1737,32 @@ fidèles. J'ai vu Lazare... oui... celui qu'il a réveillé
 du sommeil... d'aucuns disent de la mort même... Je
 pensais: Celui-là, peut-être, en sait plus que les
 
-ré . QUE
 autres hommes ?.. Mais Lazare, depuis l'aventure, 1
 n'est plus que l'ombre d'un vivant... Il m'a regardé
 de ses yeux vagues, où roulent encore desténèbres, |
 sans même frémir au nom de Jésus. |
-;
-, 2 4 ;
-JOSEPH D'ARIMATHÉE 4
 .
 Et les autres ?.…
-CÉPHAS |
-Re te . . L
 Les autres l'ont vu, paraît-il... au moins Pierreet
 Jean. Moi seul vainement j'ai prié! Mais je suis
-J
 indigne... Peut-être ne veut-il se montrer qu'aux
-siens ?
-À
-JOSEPH D'ARIMATHÉE |
 Ou les siens, comme des voyageurs altérés àla fin
 du jour, paient leur foi d'un mirage... Ils sont ivres
 de trop de soif.
-CÉPHAS
 Je ne peux plus les railler... Je les sens trop
 haut... Je ne l'ai vu nulle part, Joseph, et je n'ai pu
 douter de cette femme! Il faut qu'elle ait dit
 vrai! il le faut! 1
 Un silence.
- JOSEPH D'ARIMATHÉE
 Tous vont venir ici ce soir, une dernière fois. 4
-76 ;
 
-ee
-CÉPHAS |
 Je le sais ; je suis venu les entendre. J'ai besoin
 de me sentir près d'eux... Il me semble que ma.
 destinée va lever sa torche, ce soir. (Judasentre, laface
 hagarde, et reste un instant devant eux sans mot dire.) Qui est ce
 mendiant au poil fauve ?.. il a l'air d'une bête
-égarée.
-JOSEPH D'ARIMATHÉE
 C'est l'homme de Kerioth... Judas.
 Un silence.
-JUDAS
 Oui, c'est moi... Tu me reconnais, toi, Rabbi...
 J'ai mangé ici l'agneau de Pâques, le treize de
 Nisan au soir... Pourquoi me regardez-vous
@@ -2729,29 +1771,17 @@ ou me tendre le poing, comme font les autres ?..
 J'ai demandé à boire à une vieille femme, qui a
 laissé tomber sa cruche... elle croyait voir le
 démon... Ha ! Ha !... J'ai soif. Me chasseras-tu,
-Rabbi ?..
-JOSEPH D'ARIMATHÉE
 Je ne te crains ni ne te chasse; nous n'avons rien
 à faire ensemble. Parle vite et passe ta route. les
-disciples viennent.
-JUDAS
 Eux !.. c'est eux qui seraient en fuite !..… Au
 Cédron ils pouvaient se défendre... mais quelques
 
-Fe We 4 Fe . 1
-
-COR : NS
-
 . bâtons ont suffi... Ha ! Ha !..… et j'ai baisé ses
 lèvres. et il m'a rendu le baiser! KP
-JOSEPH D'ARIMATHÉE l
 Chien ! dis-nous ce qui t'amène, ou sors d'ici! À
-JUDAS “4
 C'est toi. n'est-il pas vrai, Rabbi? C'est toi.
 qui l'as mis au sépulcre?.…
-JOSEPH D'ARIMATHÉE l
 Oui, c'est moi. :
-JUDAS ;
 
 Et tu l'as fermé avec une pierre... un gros bloc
 
@@ -2759,10 +1789,8 @@ de pierre ?.. Ha! Ha !... il était bien mort, le.
 cadavre... les pieds étaient froids, et la tête... la \
 ‘ tête pendait, morte... Ha! Ha !.. Les morts ne
 lèvent pas les pierres. 5.
-CÉPHAS
 
 Et lui aussi !.… C'est donc cela ?.…
-JUDAS 4
 
 Madeleine, la démoniaque, dit qu'elle l'a vu.
 elle voudrait bien! Elle voudrait bien verser la
@@ -2772,189 +1800,114 @@ Et Pierre, et Jean, et tous les autres voudraient
 bien le voir !.. Mais il est mort! mort!... mort en
 
 croix !. des clous aux pieds ! des clous aux
-78 À
 
-PE RUE à EN
 mains! et son Dieu l'a laissé se tordre. et sai- 14
 gner, et crier. Ha! Ha! 7
 
-CÉPHAS |
 Il vit! Marie-Madeleine l'a vu ! Et Pierre et X
 Jean aussi l'ont vu! : |
-JUDAS
 Qui es-tu, toi ?.… ÿ
-CÉPHAS
 Un Pharisien…
-JUDAS
 Les tiens ont payé pour qu'il mourût... Ils sont
 contents... ils ont payé... et moi j'ai rapporté la
 somme. ils ne voulaient pas la reprendre... mais
 je leur ai jeté. l'argent !..
-; : CÉPHAS $
 Tu as rendu les deniers ? Pourquoi?
-JUDAS
 Je n'ai pas besoin de vos deniers !... Judas ne
 s'est pas vendu... Ha! Ha!... Je voulais voir mourir
 le traître... lui, Jésus... pour le voir mourir... Il
 nous avait promis le règne, et nous avait trahis…
 C'est bon !
-CÉPHAS
 Misérable !.. et si tu le rencontres ?.…
 
-, * ess re Fa
 JUDAS + ce
-- +
 Tu... le crois donc aussi ?.…
-CÉPHAS
 Moi? oui! ;
-JUDAS 4
 Tous... Tous... et c'est contre moi seul... c'est
 pour me rendre fou... Ha! Ha! Maisje ne croirai
 pas l'imposture !.. il est mort, et quelqu'un le s
 cache !.. On ne l'a pas jeté dans la Géhenne...
-puisque j'ai cherché, corps après corps... — Etsije
 le rencontrais ?... Ha! Ha! je lui crierais #4
 encore en face qu'il n'est pas le Messie! Ha!
 Ha !.. et que je le hais, mort et vivant! que je 1
 le hais! que je le hais !... comme je vous hais
 tous! tous! tous! Ha! Ha! Ha! Ha! Ha!
-Ha! Ha! Hal Hal. 4
 Il sort marchant à reculons, la tête baissée, et s'enfuit. Un :
-silence.
-CÉPHAS ;
 On ne peut haïr ainsi qu'un dieu... ;
-JOSEPH D'ARIMATHÉE É
 Les voici qui arrivent... viens. à
 Entre un groupe de disciples qui s'inclinent devant eux. À
 Tous les deux passent à droite et observent ce qui suit. 4
-PREMIER DISCIPLE 4
 Il faut croire le témoignage de Pierre... Pierreest
 un homme droit.
 80 3
 
 > : %
-Er |
-SECOND DISCIPLE Û
 Et Jean aussi. ils étaient ensemble.
-TROISIÈME DISCIPLE
 C'est Marie de Magdala qui l'a vu la première.
 elle a vu la colombe descendre, et les deux hommes
-blancs.
-SECOND DISCIPLE
 Qui était-ce ?.. Moïse et Élie ?.…
-TROISIÈME DISCIPLE
 Sans doute... ou Jean Baptiste... C'étaient des
 khéroubs vêtus de feu.
-QUATRIÈME DISCIPLE
 C'est étrange qu'une Syrienne voie des khé-
 roubs... et celle-ci! Ce n'était pas une sainte,
 autrefois, la Madeleine... Elle dansait dans les
 tavernes pour les matelots !
-TROISIÈME DISCIPLE
 Il avait chassé de son corps sept démons... et, |
 depuis, ce n'était plus la même femme.
-DEUXIÈME DISCIPLE
 Depuis hier matin elle n'est plus la même...
-QUATRIÈME DISCIPLE
 Mais Jésus ?.. En sont-ils bien sûrs 2... Ont-ils vu
 les pieds et les mains ?
-81 V.
 
-« # L] y É
 DE né
-: \ TROISIÈME DISCIPLE FE
 Il était debout dans une grande lumière... comme
 de glaives, disent-ils… 44
-QUATRIÈME DISCIPLE À
-‘4
 Ils auraient dû voir les stigmates.… 728)
-PREMIER DISCIPLE | &
 Patience, nous allons les entendre... Voici les 4
-femmes... 4
 Entrent Marie de Magdala et les Saintes Femmes, qui pas- 2
 sent à gauche. Elles relèvent leur voile. ‘
 TROISIÈME DISCIPLE, indiquant Marie de Magdala 2
 Regardez-la qui marche sans voir... Ne dirait-on É
 pas une vierge? k.
-£ D
-DEUXIÈME DISCIPLE
 Elle sourit, au fond de son cœur... s
-PREMIER DISCIPLE N
 Voici Pierre, et Jean, et Jacques son frère. ;
-Ne.
-DEUXIÈME DISCIPLE E
 Le front haut, comme des messagers !.… 4
 | TROISIÈME DISCIPLE \
-« /AÏ
 Pierre est soucieux plus que les autres. 4
 Les trois apôtres saluent de loin Joseph d'Arimathée et 4
 Céphas, et s'approchent des Saintes Femmes avec qui ils À
-conversent à voix basse. D'autres disciples entrent peu à 1
-peu, etse mêlent au premier groupe. TI
 82 24
 
-de 2208 ” Na ? DA ; RAILS PAPA LE TE LOL PACE AREA
 ps :;js UN DISCIPLE entrant brusquement RER
 Judas de Kérioth est mort! Lea * ie
 4 Un silence. Les disciples se regardent. Rumeurs diverses. fre % : Fe À
-MA NC PAU
-Tan PIERRE 24
 Où l'as-tu vu? JS RS
 ge LE DISCIPLE 4
 Je passais par le champ d'Hénoch, le potier. HS
-*L ; # : : € HS
 _ Voici que sous un arbre je vois un homme... La 8
 _ tête touchait presque les branches, et les pieds ER:
 _ avaient l'air de pendre. il ne fait plus clair... Je es
 _ l'appelle... il est comme une souche... je m'appro- É:
 _ che... eh ! oui, bien pendu ! la corde au cou... c'était 5%
-Ai NA.
-_ Judas! BE
-AE PIERRE LT 80
-ie EN , : CRC A DT.
 1e C'est lui-même qui s'est tué? 12 #
-Hs LE DISCIPLE 1:15
-La ; ; LC
 Sans doute... On l'a vu passer comme un démo- RS
-PREMIER DISCIPLE 2:40)
-__ Javeh soit loué! } 1408
-RS DEUXIÈME DISCIPLE 1208
-Ne J 4 » LEA +
 __ La justice se lève ! 1.170
-748 TROISIÈME DISCIPLE RES
 2 , 113 22
-ï = d' o Pa dy
 Ils périront tous par la corde! 4 3 ES
 
-PIERRE “à
 Paix, frères. Il ne nous revient pas de juger. ‘ 4
-JOSEPH D'ARIMATHÉE, à mi-voix 1
 Les apôtres s'amendent… 23
 Entrent les deux Pélerins d'Emmaüs, un bâton à la main. 1
-LE PREMIER PÈLERIN
 Où est Simon, fils de Jona? £
-PIERRE |
-Me voici... |
-LE PREMIER PÈLERIN
 Tu nous croiras, Simon ?.. Nous l'avons vu, il 4
 nous a parlé... il était avec nous en chemin... Il
 vient de nous quitter tout à l'heure.… É
-LE SECOND PÈLERIN |
-*
 Il nous a parlé comme autrefois. 4
-QUELQUES VOIX 4
-Où 2... Comment? 4
-à
-PIERRE ;
 Soyez témoins, vous tous!.. ils ont vu le Seigneur!.. Ceux-ci ne sont pas des apôtres, ni des …
 femmes. prêtez l'oreille... Et toi parle, selon ton
 Tous les disciples se serrent en un groupe pour écouter le |
 Pélerin. Il parle appuyé sur son bâton de route. Sur un
 signe de Joseph d'Arimathée, l'esclave ferme la porte sans
-bruit. 2
-Nr
 
-LE PREMIER PÈLERIN :
 Si je me trompe, que Cléopas me reprenne... |
 Nous allions à Emmaüs ensemble, avant la tombée
 de la nuit, mais quand les ombres sont déjà lon-
@@ -2976,16 +1929,11 @@ cet étranger de nous répondre : « N'avez-vous
 point lu l'Écriture?.. Il faut que les prophètes
 meurent pour que le peuple entende leur voix... »
 | N'est-ce point ce qu'il a dit, Cléopas?.…
-LE SECOND PÈLERIN
 Oui... et il a cité le chant d'Isaïe : « laveh a voulu
 
-Ë LE Le LS NES Fe ER ;
-À LE
 __ lebriser par la souffrance... mais, du prix de ses
 fatigues, beaucoup seront rassasiés. » ne
-CÉPHAS, à Joseph d'Arimathée 2
 Quel est l'homme qui parlait ainsi ?.… 3
-LE PREMIER PÈLERIN À
 C'est cela. et il a ajouté beaucoup d'autres ]
 paroles merveilleuses, le long du chemin... car il |
 faisait route avec nous... et sa voix était comme un 4
@@ -2999,16 +1947,10 @@ avec nous. » Lui voulait poursuivre sa route, mais
 nous ne l'avons pas laissé partir. Or, pendant que
 à nous étions à table, rompant le pain et offrant le 4
 vin, il nous enseignait ainsi qu'un Maitre.
-UN DISCIPLE 4
 C'est ainsi qu'Il faisait, chaque soir. Il disait 4
 alors les paraboles… :
-LE SECOND PÈLERIN “à
 Il parlait de plus loin qu'autrefois… (4
 
-D AR TE 2" : PATENT. 2e Pr ne AE
-Lx n +
-« 4
-LE PREMIER PÈLERIN ù
 Et nos yeux étaient retenus. nous ne l'avons pas 5
 yu disparaître! Il s'en est allé comme le jour... et
 nous restions seuls... — Alors nous avons dit :
@@ -3022,9 +1964,7 @@ que ce soir durât toujours ?.… Il avait de la lumière
 car nous savions que c'était Jésus... Nous sommes
 revenus en hâte pour que vous croyiez avec nous...
 Un silence. |
-PIERRE
 ” O gloire soit à Toi, Seigneur.
-PLUSIEURS VOIX |
 Parle-nous, Simon... Parle-nous!...
 Les deux Pélerins se joignent au groupe. Plusieurs des
 disciples s'asseoient sur le sol pour écouter. Les femmes
@@ -3032,7 +1972,6 @@ sont à gauche, debout. Pendant toute cette scène Joseph
 * d'Arimathée demeure impassible et comme étranger à ce É
 qui l'entoure. Céphas écoute avidement, tout son corps L
 penché vers l'apôtre.
-PIERRE
 Qui suis-je pour que je vous parle? Vous ne
 savez pas quelle est ma honte... Je suis le dernier
 d'entre vous! Je souffre, dans cette allégresse, de
@@ -3058,21 +1997,10 @@ sorti... Le coq chantait... Alors j'ai pleuré... j'ai M
 pleuré de vivre... et de ne pas savoir mourir...
 Pour payer une telle minute, la vie et la mort …
 seront-elles assez? 1
-QUELQUES VOIX :
 Comme il l'aimait!. — Ses yeux brüûlent encore « de honte! — Ne parlet-il point comme un
-prophète ?.… 1
-CÉPHAS à Joseph d'Arimathée À
 Vois... une flamme qui vient d'ailleurs est en
-88 “4
-6 - : ‘4
-
-UN DISCIPLE ; F
 
 Nous croyons tous en toi, Simon! k
-à
-PLUSIEURS VOIX LR
-Oui! Oui!
-PIERRE
 Ne dites pas que vous croyez en moi... C'est de lui
 que vient toute force... Et cependant, merci!
 merci! — Je me sens absous du blasphème, et je
@@ -3095,8 +2023,6 @@ l'agneau. Il nous a lavés par le sang... Et nous |
 sommes rachetés!... rachetés!... — Mais comment
 oser croire ces choses ?.. Qui l'eût dit, le soir du
 
-+ L
-
 Golgotha?.… Et maintenant vous savez le reste...
 Nous étions nus, nous sommes vêtus. Nos bouches ‘4
 . étaient closes, elles peuvent s'ouvrir, et chanter ne.
@@ -3113,18 +2039,10 @@ que moi-même à Césarée, mieux que le peuple au 34
 jour des Rameaux, nous pouvons redire ce queles
 scribes se répétaient en ricanant... ce que Ponce 4
 Pilate a fait clouer sur le bois de la croix : Jésus, n
-Christ! Frères, saluons Christ-Jésus!.…. 4
-TOUS LES DISCIPLES 4
-Gloire à Christ-Jésus! à
-CÉPHAS, à mi-voix S
-Jésus. Christ! È
-“+
-PIERRE 34
 Hommes Frères, pour marcher à travers les 4
 jours, désormais nous avons mieux qu'une loi : “à
 nous avons une vie... toute sa vie, pleine, riche et x k F
 pure, pour guide et colonne de feu !.. être pareils à …
-90 ‘4
 .
 
 _ Christ, voici notre loi! Nous n'attendrons plus le 5
@@ -3160,12 +2078,9 @@ Les jeunes hommes et les vierges sages riront aussi
 et l'enfant aux mains pleines d'épis... Notre message
 
 n'est pas de tristesse, mais de fête et de grande
-g1
 
 joie. Nous venons pour que tous s'étonnent etse
-; e LR
 souviennent d'être des enfants... Nous sommes la
-e , 2 . 4 “,
 lumière du monde qui s'est levée avec la croix!
 — Que si la Judée ne veut pas de nous, nous irons
 à la Samarie! Que si la Samarie nous repousse,
@@ -3179,41 +2094,21 @@ seront comme nous serrés ensemble et joyeux sous
 le même soleil! Ce sera le jour du Fils de M
 l'Homme... il apparaîtra à la droite du Père.
 Alors il connaîtra les siens! ke:
-VA
 
 | JEAN #4
-bi
 
 Et les morts se lèveront du sépulcre!.… :34
-UN DISCIPLE « 0
 
 Des langues de feu l'environnent… ‘#4
 
-LÀ
-
-CÉPHAS É:
-
-‘4
-
 O mon cœur, ô mon cœur, d'où le savaistu?.…
-
-PIERRE .
 
 Tout à l'heure, au jour qui va naître, nous quitte-
 
-‘4
-
 rons par la porte orientale cette Jérusalem stérile
-
-ÿ #0
 
 qui a vu venir son Sauveur et qui ne l'a pas
 
-92 ‘10
-s
-, [100
-
-” ‘4
 entendu. Nous laisserons au Grand-Prêtre et aux :
 Scribes leur temple qu'ils veulent garder... Que la
 main de Iaveh soit sur eux! Pour nous, frères, en be 5
@@ -3227,14 +2122,8 @@ Jésus qui vous parle... il est là où nous sommes |
 ensemble. il veille avec nous, il nous suit... C'est
 Lui qui vous crie par ma bouche : en marche, au
 pays de Gälil!..
-LES DISCIPLES
-En Galilée! En Galilée !…
-UNE DES SAINTES FEMMES
-Regardez Marie-Madeleine.
 , Un silence. Tous regardent Marie de Magdala, dont les
 yeux, grands ouverts et fixes, sont tournés vers la porte
-close.
-MARIE DE MAGDALA
 
 Silence... entendez tous... là... 1à... (Elle montre du
 geste la porte. Un silence.) IL est là!... je sais qu'il est
@@ -3242,45 +2131,24 @@ proche... mais il ne veut pas se montrer... (Un silence.
 On entend au dehors comme un bruit d'orage. Un éclair luit.) Je
 l'ai vu !... là... près de la porte !... C'est lui... entendez et croyez...
 
-, de + A hd":
-PR Et We.
-rat #3
-UN DISCIPLE LCR
 Un souffle a passé. AU
-SECOND DISCIPLE :: PÈRES
 Est-ce l'orage? Il vente au dehors. V0
-ee
-TROISIÈME DISCIPLE 7 0
 J'ai vu briller une lumière. : LA
 RH de
-QUATRIÈME DISCIPLE ‘4
-D
 J'ai entendu dans l'air : « Schalom.…. » à
 > É:.
-PREMIER DISCIPLE ES
 C'était sa voix! 4
-PLUSIEURS DISCIPLES +18
 C'est Lui! C'est Lui !.… Re
 Un silence. Ils attendent encore, sans oser un mouvement. É
-PIERRE #
 ; Prions.…. (Tous se lèvent, la tête découverte. Un silence.) Sei- À
 gneur, nous avons senti ton souffle, et nos yeux
-. 2 7 : De.
 devant ta lumière sont restés éblouis... Nous te
 k prions que tu demeures encore, afin d'apaiser nos
 poitrines et de raffermir nos genoux! Seigneur,
 tu nous vois... nous sommes faibles... nos têtes sont
 MS encore troublées par le vin trop fort de l'esprit...
-FH LIRE
 Comme les oiseaux de l'air à la fin de l'automne,
-? RE
 W nous sommes rassemblés ici... demain, ce sera le …
-; 1
-DA Û | RES
-
-12 ÿ : Er
-
-1 %
 
 |. voyage. demain, nous serons tous dispersés. Il
 
@@ -3289,10 +2157,6 @@ faut que ton souffle nous guide... Si nous te sentons
 à nos côtés, qu'aurons-nous à craindre du monde”?
 
 O Seigneur, conduis-nous ! |
-
-TOUS
-Amen ! |
-PIERRE
 
 Nous croyons que tu es le Messie... tu sais que
 nous voulons accomplir ta loi... Qui sommes-nous.
@@ -3314,13 +2178,9 @@ les Justes. la terre et la mer seront un sourire.
 toutes les larmes seront essuyées. O Seigneur, par
 le pain et le vin, soutiens-nous dans les crépus-
 
-cules !.…..
-
 ,
 
 TOUS Fois D
-Amen ! | VE à
-PIERRE 6 4
 Et maintenant l'heure est venue... Peut-être nous “3
 ne te verrons plus ?... Peut-être tu ne foules plus
 pour longtemps cette terre de sang et de larmes? IL 4
@@ -3340,37 +2200,22 @@ futures. Nous irons debout par le monde, jusqu'à ‘à
 ce que la mort nous accueille, et nous rirons à l'in- 2
 connue qui nous ramènera verstoi!... Soutiens-nous
 pour la mort et la vie, à Seigneur-Christ! Amen!
-TOUS 2
-Amen! . 1
 PIERRE, après un silence + ‘4
 A l'œuvre! — Merci d'abord à l'hôte qui ce soir 24
 4 80
-É : “30
 
-css LE ;, F ee” Pù :J 10e
 _ nous a recueillis. Qu'il ait sa part avec les Justes! i
 (A Joseph d'Arimathée.) Nous te saluons, Rabbi. Adieu.
-JOSEPH D'ARIMATHÉE :
-Adieu!
-PIERRE
 Et maintenant, en Galilée !.…
-TOUS LES DISCIPLES
-En Galilée !.…
 Pierre, Jacques et Jean sortent les premiers, suivis des
 Saintes Femmes, puis de tous les disciples, qui répètent
 encore à mi-voix : « En Galilée! » et disparaissent tous au
 dehors dans une nuit impénétrable. Joseph d'Arimathée
 et Céphas restent seuls.
-CÉPHAS
 Père, étends ta main sur ma face... Bénis-moi, et
 séparons-nous.
 Il s'incline devant Joseph d'Arimathée.
-JOSEPH D'ARIMATHÉE
 Où vas-tu ?
-CÉPHAS
 Là-bas... où le soleil est jeune, et d'où nous est
 venu un dieu! |
-JOSEPH D'ARIMATHÉE
 Es-tu sûr de toi?
-
-VI

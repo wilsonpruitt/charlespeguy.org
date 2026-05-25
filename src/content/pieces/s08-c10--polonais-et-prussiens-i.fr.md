@@ -7,90 +7,22 @@ author: edmond-bernus
 isAvertissement: false
 wordCount: 75228
 ---
-
-£ à
 25 ee une M ARRET Ta AN LP Sr Nip MGR Cl. es,
-MP LS ERA) CA + 5 : D 1;
-CMS De
-3 CRE ; e 4
-;n BC. | ta Fe { 45
-1: ON . 4
-UE ÉER L4 à !
-LS ER LATE
-( A qu r' 4
-‘4 “4 NIUE C0
-FC SCRE Ê 17e)
-CU 4 “re ù Ê LS
-Fi AIDER 4 Fe Te
-. 7 LENSESPRNS ! . : 1 "US
 Pan L 1 rte He :
-FA LR Ti ë CEE C>
-SIA ARR ; “FR
-:, IG 0 re ? ; PAR
-ET AS EAX | Es #, TA RME
-: ME pe FAN ACCES AA INTER
 dr 1 TERRES L au DROITE ee CE L d S-:5: 54808
 en Se PRO A M Le EN RE
 
-HN KO CA ELA AT UE \ ! j (
 PE ARTS Les A PANNE SR EU ANNE res FAT LE ;
 nn ki er, i RAA PEU ne ie Ne SUR EE MENT] QE
-à ref s, À À SLR REEE
-À 1 ALSRR f , « NUM ONE
-SAN é f LOT fe AC
-NOR A À Ve ne RON £ |
 | S À; AURIESRS
-FN \ d AR HUE Le AX VER
 Va) A 4 AT Que Duc AA
-DL k h nn JR SIOTE ? %
-é De OR ñ 3,1. £ VS En
-d Ryat: 'R A 2,
-15" “ ù VACNEEN ne
-2390 j 51} SON
-Î À M J'EN ES 5 {
-: HV ; Et SLR NUE \&
-LIRE" 2 MCE LE LT EU LME #4 NS +? 6: APUE à "
 
-! TEA | ; A :
-DRnT, De 1 « 1 CUT NES
-PPT F3
 | TARN Lu ! 1 0
 NC la délivrance 15
-Fra MeV LUE
-REV 0 + à 118 ;
 | 180 1
-ATEN De
-FENICRERCES à è iris
-Ses = L A:
-Ha LR L i 225
-10 Ex ÉNoNu SU} ENTIER î e NAT SNS
-(17 SAS RASE 2}, à 1} LA
-F0) SEAT ee PA CT CR DORE Pt)
 AN EN CE If ee ne AT NAN Loc RER AN AS PE AS
 
 RP NN AE À pere \ÉATER) KT" FAN Re KR (NRA NX" ne TA
-î PRE LAINE A MANN LED EAN NE A RNA RUE Dar
-“\ CRIER 1 } à : ATEN Ce
-A x * 1:04 4
-RU | SENS
-1e \ GNT IA Ka
-à en SI AUTRE » ORNE
-PARA 3 Pe k 1
-‘TANT \ FUN
-Ee } : ; x LINTNES
-“EN INOE À Ô ) ECRIENS
-KONEAUES ' DATE
-d'OS k PT ARR Sum
-MEL $ Gi
-MEGA 1x ott DATE
-HUE as AUD NUE ANNE
-110 DCE dt à, AU:
-: 01 & 0)
-‘M k
-
-À L $
-
-LÉ : 1e
 
 | Il n'avait plus personne. Tous ses amis avaient dis- fi
 | paru. Le cher Gottfried, qui lui était venu en aïde, à +6
@@ -116,15 +48,11 @@ BV au milieu de sa nuit, l'image de Hassler, le grand musik TA
 k la gloire maintenant rayonnait sur tout le pays allemand. Le
 Il se souvint des promesses que Hassler lui avait faites %
 3 autrefois. Et il se raccrocha aussitôt à cette épave avec 4
-b 275. : FREE 51
-. NUE 124
 
 NS NE : 11 Jean-Ghristophe "PONS
-1 cl î M CEE STONE
 EN ; : TER R De be UE : ven TUNER
 1} ne vigueur désespérée. assler pouvait le sauver!
 Der Hassler devait le sauver ! Que lui demandait-il ? Ni Du }
-LR . SUUIRE PRE RAI
 les. | secours, ni argent, ni aide matérielle d'aucune sorte.
 LANCIA eur” É À 21 Ne xt 4
 is Rien autre, sinon qu'il le comprit. Hassler avait été per- :
@@ -135,26 +63,11 @@ _  poursuivait de ses rancunes et tâchait d'écraser. Ils M)
 ‘VE Aussitôt qu'il ent cette idée, il l'exécuta. Il prévintsa
 pi mère qu'il serait absent, huit jours; et il prit, le soir no
 | ler même, le train pour la grande vilie du nord de l'Alle- Lo:
-MX dl à F . .: Ho.
 HU . magne, où Hassler était Xapellmeister. Il ne pouvait Vue,
 (a lus attendre. C'était le dernier effort pour respirer. 1
-A | P
-Ma ‘4
-HU A
-A 1 k |
-cie ‘4
-x | 1 4
-pue f à à fi:
-10 à
-tt : }
-M
 
-à ;
-M tt
-\%4 [En
 4 1
 | ! ;
-mA EL “ LEURS
 
 Hassler était célèbre. Ses ennemis n'avaient pas Kt
 __ désarmé; mais ses amis criaient qu'il était le plus grand Hi y
@@ -216,7 +129,6 @@ HE Ÿ ce mépris amer et goguenard s'étendait à lui et à toute y »
 ironique, qu'il avait cru autrefois à une quantité de
 Fe choses généreuses et naïves. N'ayant pas eu la force de {
 
-à $ 4, 1
 les défendre contre la lente destruction des jours, ni ;
 Et lhypocrisie de se persuader qu'il croyait à ce qu'ilne
 5 croyait plus, il s'acharnait à en persifler le souvenir. Il SE
@@ -245,13 +157,6 @@ soucis de santé, — indifférent à tout ce qui avait excité Nr:
 # autrefois son enthousiasme ou sa haine. 12
 
 | : % k
-rai
-
-21 TN D AN A ONE AS EN DL AN
-
-{OT ‘ LUN MANIERE
-
-0 L
 
 Ne Tel était l'homme, auprès duquel Christophe venait
 
@@ -263,13 +168,9 @@ vivait celui qui symbolisait à ses yeux, dans son art,
 
 Rare l'esprit d'indépendance! Il attendait de lui la parole
 
-AVES 2 . . . . .
-
 11) d'amitié et de vaillance, dont il avait besoin pour conti-
 
 ‘ nuer l'ingrate et nécessaire bataïlle, que tout véritable
-
-ji l'A . . . . « .
 
 4 artiste doit livrer au monde, jusqu'à son dernier soufile,
 
@@ -286,8 +187,6 @@ L Christophe était si impatient qu'il prit à peine le
 ‘a près de la gare, avant de courir au théâtre, pour s'in-
 
 pe former de l'adresse de Hassler. Hassler habitait assez
-
-ne (A . . .
 
 Jo loin du centre, dans un faubourg de la ville. Christophe %
 
@@ -309,17 +208,6 @@ A droites et sans caractère, s'élevaient brusquement des
 
 | hypogées d'Égypte, des fermes carolingienhes, des cha- 4
 
-Ca
-
-\l 280 LA
-
-À Nr
-
-k 2 ÿ
-Fe)
-
-NE ARS LA DÉLIVKANCE 1
-4 é
 lets norvégiens, des cloîtres, des bastions, des pavillons j à
 d'Exposition universelle, des maisons ventrues, culs-de- Er:
 jatte, enfoncées dans la terre, avec une face inerte, un
@@ -340,19 +228,13 @@ balcon étayé sur des cariatides nibelungesques, et d'où
 dépassaient, perçant la rampe de pierre, deux têtes
 pointues de vieillards barbus et chevelus, des hommespoissons de Bæœcklin. Sur le fronton d'une de ces prisons, — une maison pharaonesque, à un étage bas, |
 avec deux colosses nus à l'entrée, — l'architecte avait
-écrit :
 « Que l'artiste montre son univers.
 Qui jamais ne fut et jamais ne sera. »
-(« Seine Welt zeige der Künstler
-Die niemals war noch jemals sein wird. »)
 Christophe, uniquement absorbé par idée de Hassler,
 ; regardait avec des veux ahuris, et n'essayait point de
 : comprendre. IL arriva à la maison qu'il cherchait, une
 | 281 la délivrance. — 2 ;
-‘# ÿ
 
-0 FU UT VeanOhrsiophe VON
-NeSIAPE à AT VNSEN 1 me 4 J
 0 des plus simples, — en style romano-byzantin. A l'inté- 2
 "4 rieur, un luxe cossu et banal; dans l'escalier, une de
 “1e atmosphère lourde de calorifère surchauffé; un ascen-
@@ -386,7 +268,6 @@ JA même mélange de styles se montrait dans l'ameuble- . :
 L de fauteuils & art nouveau », et d'un divan oriental, 3
 ‘ avec une montagne de coussins multicolores. Les portes
 k: étaient ornées de glaces; et une bibeloterie japonaise ;
-à \ 282 F
 
 EP" La Dérivaanæ ‘0
 | couvrait les étagères et le dessus de la cheminée, où 28
@@ -421,7 +302,6 @@ __ empâté, le teint jaune, l'air endormi, la lèvre inférieure ‘4
 un peu pendante, la bouche ennuyée et boudeuse. Il 14
 à voûtait les épaules, enfonçait ses deux mains dans les ; À
 à poches de son veston débraillé, et traînait &@es savates j
-À 283 Le
 
 1 Jean-Christophe ‘ A
 aux pieds; sa chemise formait un bourrelet au-dessus
@@ -454,9 +334,7 @@ cette nuit...
 et bâilla de nouveau. , ÿ
 Christophe espérait que Hassler ferait une allusion à |
 | 284 :
-\ ALTER
 
-LA DÉLIVRANCE ; ;
 : ce qu'il venait de lui raconter; mais Hassler, que toute è
 cette histoire n'avait aucunement intéressé, n'en parla >
 plus; et il n'adressa nulle question à Christophe sur
@@ -506,7 +384,6 @@ l'isolement où on était. Il s'efforçait de l'intéresser à sa |
 
 L 285 la délivrance. — 2. À
 
-Lu Jean-Ghristophe V4 PTE F7 2
 LA détresse morale. Mais Hassler, affalé dans le divan, la 1
 14 tête renversée en arrière sur un coussin, et les yeux à à *
 + demi fermés, le laissait parler, semblant ne pas #4
@@ -515,11 +392,9 @@ et lançait quelques mots d'une ironie froide, une hi
 ‘ve saillie bouffonne sur les gens de province, qui cou- 4
 ‘1 _ pait net les tentatives de Christophe pour parler plus ph
 15 intimement. — Kitty était revenue avec le plateau du À \
-à déjeuner : café, beurre, jambon, etc. Ellègle déposa, ‘4
 1 boudeuse, sur le bureau, au milieu des papiers en 4
 114 désordre. Christophe attendit qu'elle fût ressortie, pour ‘4
 FA reprendre son douloureux récit, qu'il avait tant de "
-d peine à suivre.
 4 4 Hassler avait attiré à lui le plateau; il se versa le 4
 ee café, y trempa les lèvres; puis, familier et bonhomme, k
 : un peu méprisant, il interrompit Christophe au milieu 4
@@ -533,15 +408,11 @@ f Hassler, qui, son assiette sous le menton, se bourrait, ‘5
 But de jambon, qu'il tenait avec ses doigts. Il réussit pour- ÿ
 “. tant à raconter qu'il composait, qu'il avait fait jouer |
 ie une ouverture pour la Judith de Hebbel. Hassler écou- [E
-x tait distraitement :
 à — Was? (Quoi?) demanda-t-il. À
 “ à Christophe répéta le titre. À
-À —Ack! so, so! (Ah! bon, bon!), fit Hassler, en trem- à
 ‘ pant sa tartine et ses doigts dans sa tasse. À
 # Ce fut tout. &
 
-Re ë LA DÉLIVRANCE Bu
-x 5100
 { Christophe, découragé, était sur le point de se lever À de
 et de partir; mais il pensa à tout ce long voyage fait en A
 vain; et, ramassant son courage, il proposa à Hassler, va
@@ -567,7 +438,6 @@ pleurer : cela l'amuüsa; et, haussant les épaules avec me
 lassitude, il lui montra le piano du doigt, et dit, d'un 5 4
 
 air de résignation comique : 4
-— Alors! Allons-y!.…. : “24
 
 -  Là-dessus, il s'enfonça dans son divan, comme un de
 homme qui va faire un, somme, bourra les coussins à 74
@@ -591,7 +461,6 @@ ni en éprouvait un bien-être inexprimable. Hassler ne son- ‘A
 4 geait plus à calculer le nombre de pages qui étaient k À
 be jouées, et celles qui restaient à jouer. Quand Christophe À
 ‘ avait fini un morceau, il disait : Ù 4
-— Après! Après! nu
 
 ne 11 commençait à faire usage du langage humain. À
 — Bon, cela! Bon! (s'exclamait-il.) Fameux!.…. 4
@@ -620,8 +489,6 @@ trouvé cela?.…. Colossal!.. Et cela! Ah! le gueux! }
 Repoussant Christophe de l'épaule, il joua lui-même 3
 certains passages. Il avait au piano de charmants J
 
-x LA DÉLIVRANCE
-‘ |
 doigts, très doux, caressants et légers. Christophe MA
 remarqua ses mains fines, longues, bien soignées, d'un
 aristocratisme un peu maladif, qui ne répondait pas au
@@ -657,8 +524,6 @@ souriait amèrement, en pensant à ses propres débuts, à
 ses espoirs, aux espoirs de Christophe, et aux déboires
 qui l'attendaient.
 
-g
-
 ‘13 Christophe parlait, les yeux baiïssés, dans la crainte ge:
 
 de ne plus savoir ce qu'il avait à dire. Le silence de Hé
@@ -689,14 +554,12 @@ j .sonnes au monde, qui aiment la musique ? Est-ce qu'il ‘ii
 4 y en a une seule? Ne.
 ii | — Il y a moi! dit Christophe, avec emportement. E
 & *  Hassier le regarda, haussa les épaules, et dit, d'une %
-i voix lassée : ; 4
 ‘4 — Vous serez comme les autres. Vous ferez comme
 REA les autres. Vous penserez à arriver, à vous amuser, 4
 Ya comme les autres. Et vous aurez raison... ni
 ph Christophe essaya de protester; mais Hassler lui 4
 1:11 coupa la parole, et, reprenant son cahier, se mit à cri- 2
 W tiquer aigrement les œuvres qu'il louait tout à l'heure. (7
-£, 08
 
 FF LS di ji La LA DÉLIVRANCE sl ‘T4
 de Non seulement il relevait avec une dureté blessante les À à
@@ -712,7 +575,6 @@ rimait. Il ne critiquait même plus, il niait : on eût ni
 dit qu'il s'efforçait d'effacer haineusement l'impres- 14
 
 sion que ces œuvres lui avaient faite, en dépit de lui- $,
-: même. € ï.
 Christophe, consterné, n'essayait pas de répondre. # 4
 Comment répondre à des absurdités, qu'on rougit d'en- Be
 tendre dans la bouche de quelqu'un qu'on estimait et 4
@@ -728,7 +590,6 @@ pas un qui soit capable de vous comprendre ! F ‘#
 Christophe se sentit transpercé d'émotion; il se #4
 j retourna brusquement, posa sa main sur la main de à
 Hassler, et, le cœur plein d'amour, il répéta : ‘à
-— Il y a moi! Ke 3
 
 : Mais la main de Hassler ne bougea point; et si quelque fe
 chose dans son cœur tressaillit, une seconde, à ce cri À
@@ -770,16 +631,12 @@ Christophe vit qu'il n'avait plus rien à faire ici. Au ah
 milieu d'une phrase, il s'arrêta. Il roula son cahier, et se | ;
 
 leva. Hassler se leva aussi. Christophe, honteux et à
-intimidé, s'excusait en balbutiant. Hassler, s'inclinant 1
 légèrement, avec une certaine distinction hautaine et à
 ennuyée, lui tendit la main, froidement, poliment, et À
 l''accompagna jusqu'à la porte d'entrée, sans un mot ;
 
 pour le retenir, ou pour l'inviter à revenir. le
 
-à PA
-
-%
 Christophe se retrouva dans la rue, anéanti. Il allait
 au hasard, il ne savait où aller. Après avoir suivi 5
 machinalement deux ou trois rues, il se retrouva à la
@@ -803,11 +660,9 @@ comme s'il avait passé la nuit, et dit qu'il voulait |
 | partir. En vain, lui expliquait-on qu'il n'avait pas à se
 À presser, que le train qu'il voulait reprendre ne partait
 pas avant plusieurs heures, qu'il ferait mieux d'attendre
-+
 É 293 la délivrance. — 3
 
 1 Jean-Christophe ‘ M
-ANT ‘ Ê PA.
 11 à l'hôtel. Il voulut aller tout de suite à la gare: il était de:
 De comme un enfant, il voulait prendre le premier train, 41
 21 n'importe lequel, ne plus rester une heure dans ce pays. À
@@ -816,7 +671,6 @@ F4 Fa Après ce long voyage et toutes les dépenses qu'il avait Ne.
 je seulement de voir Hassler, mais de voir des musées,
 "4 ‘ d'entendre des concerts, de faire certaines connaïis- à
 10 sances, — il n'avait plus qu'une idée en tête : #4
-4 partir. , ;
 14 Il revint à la gare. Ainsi qu'on le lui avait dit, son |
 ‘4 train ne partait pas avant trois heures. Encore ce train,
 ni qui n'était pas express, — (car Christophe était forcé à
@@ -841,9 +695,6 @@ Ni sombre. Christophe, plus oppressé d'heure en heure, L.
 4 temps, un nom de pays le frappa : il se dit quille
 a connaissait; ce ne fut qu'après un moment qu'il se
 | 294 à
-
-NL? LA DÉLIVRANCE Di
-ET
 
 rappela que c'était le pays du vieux Universitätsmusik- ÿ Le
 direktor Schulz, qui lui avait écrit de si bonnes et de.
@@ -884,45 +735,22 @@ _ songé avec amertume, et aussi, avec sympathie pour s)
 É { le pauvre garçon qui était venu à lui avec une telle à
 
 _ ardeur “d'affection, et qu'il avait reçu d'une facon #
-5100 295 ÿ
-
-PU ANTON " n'} (a AN TR TLTANNES W RE br EL FN
 
 + k Jean-Christophe VW
 +  glaciale. Il se reprochaït son accueil. A vrai dire, ce +
 LH n'avait été de sa part qu'un de ces accès de bouderie
 ___  quinteuse, dont il était coutumier. Il pensa le ar ces
-man : d A SF
 ‘14 enmenvoyant à Christophe, avec un billet pour lOpéra, . À
 af nt un mot qui lui donnait rendez-vous, à l'issue de lare |
 1 présentation. — Christophe n'en sut jamais rien. Enne
 ‘#10 le voyant pas venir, Hassler pensa : ) ÿ ‘
-A2 PU d . ‘3
 ii É — Ilest fâché. Tant pis pour lui! * mal.
 Mu Il haussa les épaules, et n'en chercha pas plus long.
-ET RER . . . « . é 1
 10 Le lendemain, il ne pensait plus à lui. "
 4 } Le lendemain, Christophe était loin de lui, —siloin
 ‘139 que toute l'éternité n'eût pas suffi à les rapprocher lun
-mnt SR bUs e à x
 1° À de l'autre. Et tous deux étaient seuls pour jamais. ‘à
-: TN F
-A i 1)
-“1 , 48
-1 « 9
-fa à
 1 4
-
-« : i
-} CAR
-A ' * ALTER
-
-' n
-f
-: É 1
-& 4
-
-LE
 
 Peter Schulz avait soixante-quinze ans. Il avait toü- a
 jours eu une santé délicate, et l'âge ne l'avait pas "3
@@ -953,11 +781,6 @@ d'un gris-clair limpide et transparent; ils regardaient no
 L rien de l'âme : on eût pu lire au fond. EN
 . Sa vie avait été pauvre en événements. Il était seul 5“
 À depuis des années. Sa femme était morte. Elle n'était #
-
-t
-
-L 297 4
-CSN " cg
 
 ‘0 aile Jean-Christophe TE du À
 04 pas très bonne, pas très intelligente, pas du tout belle. &
@@ -991,7 +814,6 @@ ments qu'il avait pour eux. ; 4
 ‘0 Mais ses livres étaient pour lui le meilleur des re- a
 16 fuges : ils n'étaient point oublieux, ni trompeurs. Les “4
 
-AA 0" 0 LA périveanc "1
 âmes, qu'il chérissait en eux, étaient maintenant sorties ‘à
 
 du flot du temps : elles étaient immuables, fixées pour :
@@ -1026,11 +848,8 @@ Goethe; mais il aimait aussi ceux des autres pays. 5
 Il était instruit et lisait plusieurs langues. Il était, d'es- ù
 prit, un contemporain de Herder et des grands Welt- à
 L bürger, — des « citoyens du monde », de la fin du dix- 7
-L | De he
 
 pe Jean-Christophe FI TANIA A
-
-M *
 
 Fa huitième siècle. Il avait vécu les années d'âpres luttes, |
 
@@ -1093,17 +912,6 @@ d'un seul coup, — tout un monde à aimer. Sa vie en :
 
 avait été illuminée. L !
 
-ÿ
-
-À
-
-NA 7
-
-te 1e APR rar : RE
-pL
-
-D
-
 , 2
 
 Depuis un an, il avait dû résigner ses fonctions à M
@@ -1161,13 +969,9 @@ hi septième siècle, en renouvelant leur expression : le à
 ï Christliches Wanderlied (chant du voyageur chrétien) 4
 jh de Paul Gerhardt. 21
 F. Hoff, o du arme Seele, : A
-eu Hoff und sei unverzagt! È
-k Erwarte nur der Zeit, ë 4
 ki Û So wirst du schon erblicken 14
-ik Die Sonn der schünsten Freud. he
 k « Espère, à toi, pauvre âme, ‘a À
 # . espère, et sois intrépide! an
-dl Attends seulement, attends : +
 ie et voici que tu vas voir À
 f le soleil de la belle Joie. »
 “: Le vieux Schulz connaissait bien ces candides paroles; 1
@@ -1175,19 +979,12 @@ f le soleil de la belle Joie. »
 ne. n'était plus la tranquille piété, qui calme et endort À
 ï lâme par sa monotonie. C'était une âme comme la Re
 i sienne, c'était son âme même, mais plus jeune et plus #
-302 à
 
-DANONE ‘à LA pénivRanc 4 DA 3%
 forte, qui souffrait, qui voulait espérer, qui voulait voir ne.
 ÿ la Joie, qui la voyait. Ses mains tremblaient, de grosses À
 
 larmes coulaient le long de ses joues. Il continua : 4 ty
 Auf, auf! gieb deinem Schmerze 4 Le
-Und Sorgen gute Nacht! “0
-
-Lass fahren, was das Herze ; “A ‘2
-
-f Betrübt und traurig macht! à 4
 
 « Debout, debout! donne à ta douleur : 14
 
@@ -1196,19 +993,11 @@ j Laisse partir ce qui trouble ‘13
 le cœur et le rend triste! » : 19
 « Christophe communiquait à ces pensées une jeune | 4
 
-{82
-
 ardeur intrépide, dont le rire héroïque s'épanouissait +
 dans ces derniers vers confiants et naïfs : 1
 
-*
-
 Bist du doch nicht Regente, ‘4
 
-Der alles führen soll, : à Re
-
-Gott sitzt im Regimente, f pe É
-Und führet alles wohl. j i 5 #
 « Ce n'est pas toi, voyons! qui règnes à fs
 
 et qui dois tout conduire. I P. 4
@@ -1221,22 +1010,12 @@ Et lorsque venait cette strophe de superbe défi, qu'il 12
 avait, avec son insolence de jeune barbare, arrachée 5
 tranquillement de sa place primitive dans l'ensemble du 191
 poème, pour en faire la conclusion de son Lied : ‘1028
-RAS Und ob gleich alle Teufel ‘ra
 | F : Hier wollten widerstehn, 0
-: So wird doch ohne Zweifel ÿ
 8 Gott nicht zurücke gehn : ne.
-JS 303 D.
-Mr : .
-
-A 1 de: 0
 
 1 ‘ Jean-Christophe , d'ÉCANTN
-1 Was er ihm vorgenommen, Yi
-+ Und was er haben will, à
 qui Das muss doch endlich kommen 1
-A Zu seinem Zweck und Ziel. \
 1 ! « Et quand bien même tous les diables à
-1}: voudraient s'y opposer, ‘%
 fs sois tranquille, ne doute pas! U
 j 4 Dieu ne reculera point. : |
 12 Ce qu'il s'est proposé, h
@@ -1262,11 +1041,8 @@ et, dans ses courts moments de répit, entre deux
 accès de toux, il riait d'un petit rire aigu et doux. |
 Salomé pensa qu'il devenait fou. Quand elle finit par
 comprendre la cause de cette agitation, elle le gronda
-rudement : :
 — S'il est possible de se mettre dans un état pareil
-Pr.
 
-44 LA DÉLIVRANCE ‘4
 | pour une sottise!… Donnez-moi cela! Je l'emporte. ‘4
 Vous ne le verrez plus. - }
 Mais le vieux tenait bon, toujours toussant ; et il criait à
@@ -1283,7 +1059,6 @@ les yeux lui sortaient de la tête, et que s'ils étaient des |
 pistolets, ils l'auraient tuée. Elle en eût eu pour long- è
 temps à continuer cette chanson, s'il ne s'était soulevé, à
 furieux, sur ses oreillers, et ne lui avait crié : <
-— Sortez!
 d'un ton si péremptoire, qu'elle était partie en faisant de
 battre la porte, et déclarant qu'il pourrait bien l'appe- De
 ler maintenant, qu'elle ne se dérangerait pas, qu'elle le ; 5
@@ -1295,11 +1070,7 @@ grotesques. Un peu honteux de sa colère, le vieux f i)
 Schulz, immobile, étendu sur le dos, attendait, haletant, ;
 ‘ que le tumulte de son cœur s'apaisât; il serrait sur sa VA
 poitrine les précieux Lieder, et il riait comme un enfant. ‘1
-er
-4 D
-ATP æ K<
 
-riTRR J
 “0 Il passa les journées solitaires qui suivirent dans une d
 2 _ sorte d'extase. Il ne pensait plus à son mal, à l'hiver, à
 Fi à la triste lumière, à sa solitude. Tout était lumineux et 11
@@ -1323,11 +1094,7 @@ Il n'en était pas tout à fait dupe; et souvent, dans +1
 fl disaient son idéalisme. Il savait bien que la vieille {
 je Salomé se moquait de lui, derrière son dos, avec
 h les commères du quartier, et qu'elle le volait régu- 4
-À . 4
-k 306 ‘0
-\, # Ld QE
 
-M LA DÉLIVRANCE ” 1
 | lièrement dans ses comptes de chaque semaine. 1
 Il savait bien que ses élèves étaient obséquieux ‘14
 
@@ -1374,7 +1141,6 @@ pts suffisait à nourrir son besoin de les aimer et de leur à
 ik f qu'il n'eût jamais osé espérer : car il était maintenant p
 “a trop vieux pour faire le voyage des bords du Rhin; et,
 1] quant à solliciter sa visite, la pensée ne lui en venaït
-1 même pas. : |
 à La dépêche de Christophe lui arriva, le soir, au 4
 % moment où il se mettait à table. Il ne comprit pas (
 1 d'abord : la signature lui semblait inconnue, il pensa 4
@@ -1398,10 +1164,8 @@ Les trois vieux camarades avaient souvent parlé de ù
 Christophe, ensemble; et ils avaient joué toute la mu- di
 .Sique de lui qu'ils avaient pu trouver. Pottpetschmidt pe
 | chantait, Schulz accompagnait, et Kunz écoutait. Et ils 1
-308. f
 LA 1 we je
 
-1 x PRE ES A PER IR
 ta | LA DÉLIVRANCE 1
 s'extasiaient ensuite pendant des heures. Combien de :
 fois avaient-ils dit, quand ils faisaient de la musique : 4
@@ -1427,16 +1191,11 @@ Une fenêtre s'ouvrit, et Kunz, effaré, parut. Il essayait à
 de voir dans l'obscurité, et demanda : 14
 — Qui est là? Qu'est-ce qu'on me veut? ë
 - Schulz, essoufllé et joyeux, criait: :E0
-— Krafft.. Krafft vient demain. #
 . Kunz n'y comprenait rien; mais il reconnut la voix : |
 — Schulz!.… Comment! A cette heure ? Qu'y at-il? Fe
-Schulz répétait : ï
 — Il vient demain, demain matin !.…. s È
 — Quoi ? demandait toujours Kunz, ahuri. ÿ}
-— Krafft! cria Schulz. ;
 Kunz resta un moment à méditer le sens de cette É
-
-*
 
 à Jean-Christophe Me da
 1 parole; puis une exclamation retentissante témoigna É.
@@ -1453,7 +1212,6 @@ ie sa pipe de porcelaine. Cet homme débonnaire et un peu 1
 . moins capablesde le faire sortir de son calme; et il Î
 n. agitait ses bras courts et sa lampe, en demandant : Ë
 LS — Quoi? c'est vrai? Il vient? ]
-U -,— Demain matin! répéta Schulz, triomphant, en
 ‘0 agitant la dépêche.
 k Les deux vieux amis allèrent s'asseoir sur un bane, F
 “4 sous la tonnelle. Schulz prit la lampe. Kunz déplia 4
@@ -1464,15 +1222,12 @@ il le télégramme, l'heure où il avait été envoyé, l'heure où (
 il était arrivé, le nombre des mots. Puis, il rendit le pré- 4
 ÿ cieux papier à Schulz, qui riait d'aise, le regarda en s
 ; hochant la tête, et répétant : 1
-— Ah! bien!.…. ah! bien! ‘
 ï * Après avoir réfléchi un instant, aspiré et expiré une L
 V grosse bouffée de tabac, il posa sa main sur le genou de |
 2 Schulz, et dit : {
 ÿ — Il faut avertir Pottpetschmidt. 0
 ! — J'y allais, dit Schulz. 4
 | — Je viens avec toi, dit Kunz. 2
-310 f
-” .: , 44 04
 
 | Il rentra pour déposer la lampe, et revint aussitôt. :%
 Les deux vieux s'en allèrent, bras dessus bras dessous. 0
@@ -1494,8 +1249,6 @@ de la route, ne sachant que décider. ” 4
 
 — Comment faire ? Comment faire? demandait 5
 
-Kunz. a
-
 — Il faut absolument que Krafft entende Pottpet- à
 
 *  schmidt, disait Schulz. de
@@ -1509,8 +1262,6 @@ une dépêche longue et émue, à laquelle il était difficile É}
 
 de rien comprendre. Puis, ils revinrent. Schulz calcu- Î #
 
-lait :
-
 — Il pourra être encore ici demain matin, en prenant ve
 
 L le premier train. '
@@ -1520,33 +1271,17 @@ main. Schulz hocha la tête; et ils se répétaient : - 1
 | — Quel malheur ! é Lit Le
 Ils se séparèrent à la porte de Kunz; car, quelle que ‘4
 | fût l'amitié de celui-ci pour Schulz, elle r'allait pas k
-L. ;
 
-0 En e EX) Late) Ÿ Ar ke A (er) 11e à spa NA im AT ANRANE % U
-DOUTE  Jean-Ghrisiophe
-NAS & 2, b, Ë 4{1 Gah PMANEENEEES
 ia À : jusqu'à lui faire commettre l'imprudence d'accompagner
  Schulz hors du village, ne fût-ce qu'un bout de chemin,” où 1
 1 qu'il lui eût fallu refaire seul, dans la nuit. Il futconvenu
 1100 que Kunz viendrait dîner, le lendemain, chez Schulz.
 4 ne Schulz regardait le ciel, avec anxiété : à à
-: 41e : ï Re.
 nu — Pourvu qu'il fasse beau, demain! SR
 1 Et il eut un poids de moins sur le cœur, quand Kunz, …
 °11 qui passait pour se connaître admirablement en météoAu rologie, dit, après avoir gravement examiné le ciel
 set (car il n'avait pas moins que Schulz le souci que Christi tophe vit leur petit pays dans toute sa beauté) : 4
 PS — Il fera beau, demain. 1
-fs 4
-EU - ‘4
-ue, (à
-per j 71
-
-; | 1]
-té
-
-ÿ
-
-“.
 
 Schulz reprit le chemin de la ville, où il parvint ï
 non sans avoir trébuché plus d'une fois dans les 4
@@ -1607,7 +1342,6 @@ frapper à sa maison. Pour comble de malheur, Salomé }
 à venait d'en sortir, pour se rendre au marché : Christophe L .
 ÿ trouva porte close. La voisine, que Salomé avait simple- à
 
-C4 SAN LA DÉLIVRANCE à
 ment chargée de dire, au cas où quelqu'un sonneraïit, ‘4
 
 .. qu'elle serait bientôt de retour, fit la commission, sans Ke
@@ -1665,7 +1399,6 @@ ue tophe : il ne pouvait savoir si c'était lui. D'ailleurs, L
 — C'est lui... Non, ce n'est pas lui... À
 é T1 n'osait pas l'appeler. Une idée lui vint : il se mit |.
 | à chanter la première phrase du Lied de Christophe : M
-1e « Auf! Auf! » (Debout! Debout!) à
 | Christophe ressauta, comme un poisson hors de l'eau, À
 pi et il cria la suite à tue-tête. Il se retourna tout joyeux. ‘4
 Il avait la figure rouge et des herbes dans les cheveux. M
@@ -1680,7 +1413,6 @@ se serrèrent la main avec effusion, et revinrent ensemble \
 j était bien décidé à continuer sa route sans faire une h:
 ? nouvelle tentative pour voir Schulz, sentit immédia- d
 tement la candide bonté de cette âme, et se prit à F.
-316 : 50
 
 ci Lt b * LA DÉLIVRANCE ï
 l'aimer. Avant d'être arrivés, ils s'étaient déjà confié Fi
@@ -1724,7 +1456,6 @@ mains au hasard sur les touches. Comme Schulz s'y , à
 À ot La délivrance. — 4
 
 14 Jean-Christophe di du
-(ARE 1 TANT
 \ 10 attendait, à peine Christophe eut-il fait quelques “a
 D | arpèges, que le son s'empara de lui; il continua d'en
 “0 chaïîner des accords, en causant; puis, ce furent des \
@@ -1739,27 +1470,21 @@ ne Christophe, sans s'interrompre, dit, en tournant à 4
 pa. — Hé! Il n'est pas très bon, votre piano ! (
 N'a Le vieux fut très contrit. IL s'excusa : 1
 11 : — Il est vieux, dit-il humblement, il est comme
-1 moi, 4
 ' é Christophe se retourna tout à fait, regarda le .
 REA vieillard qui semblait demander pardon de sa vieillesse,
 ‘4 et lui prit les deux mains, en riant. Il contemplait ses \
-‘4 yeux candides :
 à — Oh! vous, dit-il, vous êtes plus jeune que moi. 4
 Schulz riait d'un bon rire, et parlait de son vieux |
 4 corps, de ses infirmités. 1
 À — Ta ta ta! dit Christophe, il ne s'agit pas de
 à | vel je sais ce que je dis. Est-ce que ce n'est pas À
-‘1 vrai, Kunz? 4
 ‘1 (I avait déjà supprimé le : « Monsieur ».) k U
 4 Kunz approuvait de toutes ses forces. N
 pi Schulz essayait d'associer à sa cause celle de son 4
-Li vieux piano. : F
 ‘4 — Il a encore de très jolies notes, dit-il timidement. 4
 11 Et il les toucha : — quatre ou cinq notes assez M
 ‘ fraîches, une demi-octave, dans le registre moyen de À
 
-. ed RNA MUR UT
-‘
 | l'instrument. Christophe comprit que c'était un vieil 1
 
 ami pour lui, et il dit gentiment, — pensant aux yeux "4
@@ -1783,7 +1508,6 @@ un enthousiasme naïf, dont ils ne pensaient pas àrire:
 vous en dites ?.. Et celui-là! Celui-là est le plus beau à
 de tous. — Maintenant, je vais vous jouer quelque 4
 , chose, qui va vous faire dresser les cheveux sur la 4
-tête... !
 Comme il terminait un morceau rêveur, le coucou de 4
 : la pendule se mit à sonner. Christophe bondit, et cria F
 de colère. Kunz, réveillé en sursaut, roulait de gros x.
@@ -1797,13 +1521,8 @@ il voulut grimper dessus, pour décrocher le trouble- #0
 ï fête. Mais il faillit tomber, et Kunz l'empêcha de re- 2
 ï monter; il appela Salomé. Elle arriva sans se presser, 4
 à suivant son habitude, et fut stupéfaite de se voir ÿ
-; 319 ; 4
-
-OR OR
 
 1 Jean-Christophe | EN
-
-He!
 
 u : mettre sur les bras l'horloge, que Christophe impatient |
 
@@ -1816,8 +1535,6 @@ DL: dait-elle.
 à — Ce que tu voudras. Emporte! Qu'on ne le revoie
 
 \ ; ‘plus ici! disait Schulz, non moins impatient que Chris- ù
-
-À 1j tophe.
 
 le. (EH se demandait comment il avait pu supporter si
 
@@ -1867,9 +1584,6 @@ Ils se mirent à table. C'était un repas énorme et suc- Eee
 
 culent. Schulz avait stimulé l'amour-propre de Salomé, |
 
-320 F
-
-1 LA DÉLIVRANCE
 | qui ne demandait qu'un prétexte pour étaler son art.
 D'ailleurs, elle ne manquait pas d'occasions de le produire. Les vieux amis étaient prodigieusement gourmands. Kunz était un autre homme à table; il s'épanouissait comme un soleil : il eût pu servir d'enseigne |
 pour un restaurateur. Schulz n'était pas moins sensible
@@ -1900,7 +1614,6 @@ Ur Jean-Christophe ANT AINES jp
 entré. Schulz lui en avait tellement parlé, à l'avance,
 M. qu'elle se l'était figuré sous les traits d'une Excellence,
 ._ chargée de titres et d'honneurs. En le voyant, elle s'était
-‘5 exclamée :
 - AE — Comment! Ça n'est que cela?
 HR Mais, à table, Christophe conquit ses bonnes grâces :
 mL elle n'avait vu personne qui rendit justice à ses talents,
@@ -1926,18 +1639,12 @@ d Schulz fut désolé. Il avait compté que Christophe
 de passerait la nuit, peut-être plusieurs nuits, dans sa
 1 maison. Il balbutiait : }
 1 — Non, non, ce n'est pas possible!
-j Kunz répétait :
-1 — Et Pottpetschmidt !.…
 
 (ik LA DÉLIVRANCE À
-
-dé
 
 Christophe les regarda tous deux : la déception, qui #
 
 se peignait sur leurs bonnes faces amies, le toucha; il in
-
-dit : k
 
 — Comme vous êtes gentils! Je partirai demain de
 
@@ -1995,14 +1702,6 @@ riposter, il entama une chanson connue, que les deux (
 
 | quaient constamment.
 
-;
-
-"4 ‘ % VE
-
-di ;
-7 , à,
-;
-/1 CR
 ' Il était trois heures et demie, quand ils se levèrent de
 à table. Ils étaient un peu lourds. Kunz s'affala dans un
 ‘1 fauteuil; il eût volontiers fait un somme. Schulz avait
@@ -2028,7 +1727,6 @@ Qi: voulu. Kunz suivait, en s'épongeant. Ils péroraient
 ville, ils prirent à travers prés. Kunz se plaignait de la }
 Fe: chaleur. Christophe, sans pitié, trouvait que l'air était
 à exquis. Par bonheur pour les deux vieilles gens, on
-d: L e PAU
 
 | LA DÉLIVRANCE ;
 s'arrêtait à tout instant pour discuter, et la conversation
@@ -2066,8 +1764,6 @@ U. Jean-Christophe PANIER
 110 douche sur leur joie. Schulz, trop timide pour discuter,
 LP trop honnête pour mentir, balbutiaiït, tâchait de s'expli- |
 11 quer. Mais Christophe l'arrêta par un :
-
-1 à — Assez !
 
 ï tranchant, qui n'admettait pas de réplique. Il y eutun |
 D silence glacial. Ils continuèrent de marcher. Les deux
@@ -2116,9 +1812,6 @@ U Le cœur du vieux se fondit. C'était comme si le soleil
 
 ja ‘était revenu après une éclipse. Il fut, un moment encore,
 
-; F
-
-:, she LA DÉLIVRANCE “£ k
 _ + avant de pouvoir articuler un mot. Christophe lui avait si
 repris le bras, et causait plus amicalement que jamais; 0
 dans son entrain, il avait doublé le pas, sans faire 4
@@ -2164,9 +1857,6 @@ culant ses cempagnons de route. Christophe, ahuri, sui- pt
 
 | vait en courant, et il demandait : ;
 — Quoi donc ? a
-327 s 6
-
-UD 0e AE ( Er N QE LUS TUE IAE UE SAN AQU PET RE ?
 
 4 Jean-Christophe Te At
 
@@ -2229,15 +1919,11 @@ la gare. Enfin, on était reparti. Il tremblait d'arriver
 
 trop tard... Mais, Dieu soit loué! Dieu soit loué! #
 
-)
-
 je etes Ml Hat NAS PR RER Er
-: LA DÉLIVRANCE ï
 Il avait repris les mains de Christophe, et les pétris- ‘4
 sait dans ses vastes pattes aux doigts poilus. Il était 3
 fabuleusement gros, et grand en proportion : la tête è
 carrée, les cheveux roux, taillés ras, la figure rasée,
-grêlée, gros yeux, gros nez, grosses lèvres, double #2
 menton, le cou court, le dos d'une largeur monstrueuse, j
 le ventre comme un tonneau, les bras écartés du corps, . JA
 . les pieds et les mains énormes, un gigantesque amas A
@@ -2294,14 +1980,12 @@ de n'avait que son propre plaisir, et Schulz avait celui de
 \ à exactes; mais c'en était l'élan, la passion, qu'il n'avait
 js jamais réussi à souffler complètement à des chanteurs
 à . de profession. Il regardait Pottpetschmidt, et il se
-4 demandait :
 1e — Est-ce qu'il sent cela, vraiment ?
 
 Mais il ne voyait dans ses yeux d'autre flamme que |
 
 | celle de la vanité satisfaite. Une force inconsciente
 
-Es è LA DÉLIVRANCE ù 15
 __ remuait cette lourde masse, Cette force aveugle et pas- i 4
 sive était comme une armée, qui se bat, sans savoir Ve
 contre qui, ni pourquoi. L'esprit des Lieder s'emparait ds
@@ -2338,7 +2022,6 @@ de Christophe; c'est-à-dire, qu'il substituait la sienne à ÿ
 celle de Christophe. Celui-ci, naturellement, ne trouvait 30
 pas que sa musique gagnât au change; et il s'assom- x
 _  brissait. Schulz s'en aperçut. Son manque de critique et
-à , Re
 
 4) Jean-Christophe baiis
 de l'admiration qu'il avait pour ses amis ne lui eussent pas
@@ -2374,8 +2057,6 @@ grandies.. Mais il n'en est rien, le plus souvent : et 1
 chacun reste seul et meurt seul, craignant d'autant ;
 plus de dire ce qu'il sent, qu'il sent davantage ;
 
-; 4 ÿ (Lee « ‘1
-' LA DÉLIVRANCE :
 et qu'il aurait plus besoin de le dire. Les complimen-
 | teurs vulgaires n'ont point de peine à parler. Ceux qui
 aiment le mieux doivent se faire violence pour desserrer |
@@ -2412,8 +2093,6 @@ seul, il répétait, malgré lui : t
 Une heure passa : Christophe jouait toujours; ils
 n'avaient pas échangé une parole. Quand Christophe
 eut fini, ils ne dirent mot, ni l'un ni l'autre. Tout était
-
-333 à
 
 | # PURE . QU 4 er. HET TA
 x Jean-Christophe de
@@ -2469,8 +2148,6 @@ in le vieillard se réfugiait dans l'âme du jeune homme.
 
 D ee LA DÉLIVRANCE FEES
 
-ME , - v
-
 ; lever de bonne heure pour reprendre le mêmie train qui SA
 
 __ Javait amené. Aussi ne flâna-t-il point en sé déshabil: &
@@ -2495,7 +2172,6 @@ il n'eût pensé avec amour. Mais ce fut peine perdue : À
 
 ” Christophe n'en vit rien. Il se jeta sur son lit, et dormit }
 
-aussitôt, à poings fermés: F
 Schulz ne dormit pas. Il ruminait à la fois toute la
 
 joie qu'il avait eue, et tout le chagrin qu'il avait déjà A
@@ -2534,10 +2210,6 @@ date et l'heure. Puis, il se recoucha, ayant le frisson, ‘
 
 et ne put se réchauffer, de tout le reste de la nuit. d
 
-&
-
-" | 4,
-
 a Jean-Christophe Mu pi) Fi
 
 4 L'aube vint. Schulz songeait, avec regret, à l'aube de k
@@ -2566,8 +2238,6 @@ chose en riant. Mais le vieux était trop scrupuleux pour vi
 
 \n disposer ainsi d'un ami, sans son consentement. Il avait
 
-à beau se répéter :
-
 \ — Ce ne sera point ma faute. Je n'y serai pour rien.
 Il suffit de ne rien dire. Et s'il ne se réveille pas à
 
@@ -2585,8 +2255,6 @@ Gi insister. Cela faisait gros cœur au vieux, qui pensait :
 
 — Ah! comme il dormait bien! Il serait resté là jus- |
 
-qu'à midi!
-
 Enfin, la voix joyeuse de Christophe répondit, de F
 
 j l'autre côté de la cloison. Quand il sut l'heure, il s'ex-
@@ -2601,8 +2269,6 @@ reposé, la figure heureuse; il ne pensait pas du tout à
 
 | À 4 5
 
-À PERS chi Te F K ji +, F js F4
-” LA DEÉLIVRANCE
 la peine qu'il faisait. En réalité, rien ne le pressait de ;
 partir; il ne lui en eût rien coûté de rester quelques
 jours de plus; et cela eût fait tant de plaisir à Schulz!
@@ -2649,18 +2315,10 @@ ne ‘ — Quel bonheur! Quel bonheur que ç'ait at110 tendu !.… 4
 40 seule, sa poitrine haletait, comme un soufflet de forge.
 pu Sa tête était lourde et fiévreuse. Il passa la journée \
 Re entière à revivre, minute par minute, toute la journée +}
-Dr à Ü P , J |
 No de la veille : il se torturait ainsi, et il se reprochait 1
 \:8 ensuite de se plaindre, après un tel bonheur. Les é
 Eu à mains jointes, le cœur gonflé d'amour, il remerciait
-00 Dieu. : |
-é ?
-1 |
 | }
-fl
-Ch #: e ‘ 3
-a * MU
-‘# Ù L Dr TURRE
 
 Rasséréné par cette journée, rendu plus confiant en ; fi
 soi par l'affection qu'il laissait derrière lui, Christophe ? ô
@@ -2719,10 +2377,8 @@ les cheveux et à s'enfoncer dans le cou de ces épis
 0 aveugle. Elle n'était point belle. C'était une forte fille, .
 i les joues rouges, les dents blanches, les bras solides;
 mais les traits manquaient de régularité : elle avait l'air
-08 #40 i
 
 RU ai dde de sat ST AP AE SSSR
-; LA DÉLIVRANCE à
 souriant et un peu inexpressif de beaucoup d'aveugles, É
 et aussi, leur manie de parler des choses et des gens, à
 comme si elle les voyait. Au premier moment, Chris- | g
@@ -2742,7 +2398,6 @@ autres ; et, regardant le ciel qui s'éclaircissait, il atten- |
 dait le moment de repartir. L'aveugle chantonnaïit un
 air, tout en faisant marcher les aiguilles de son tricot.
 Cet air rappelait à Christophe toutes sortes de choses
-anciennes.
 — Comment! vous connaissez cela, aussi? dit-il. j
 (Gottfried le lui avait autrefois appris.)
 ë Il fredonna la suite. La jeune fille se mit à rire. Elle
@@ -2752,7 +2407,6 @@ chantait la première moitié des phrases, et il s'amusait X
 chambre, en furetant machinalement du regard dans
 | ' 341
 
-D à RAR
 à à + Jean-Christophe 12 NP
 tous les coins, füand il äperçut, dans ün añgle, re
 | près dû dréssoir, ün objet qui le fit tressatter. C'était ;
@@ -2764,11 +2418,9 @@ tous les coins, füand il äperçut, dans ün añgle, re
 10 = D'où avez-vous... D'où avez-vous cela ? à
 0 L''hoïñnme regarda, et dit : He
 40 C'est ün ami qui l'a laissé; un ancien aïni, qüi k
-510 est mort. 4
 D Christophe cria : |
 #4 æ Gottfried ? !
 pi Tous se retournèrent, en demandant : è
-241 = Comment savez-votis.:. ? ;
 M: ! Et quand Christophe eut dit que Gottfriéd était son 4
 1 oncle, ce fut ün émoi général. L'aveugle s'était levées |
 (ui son peloton de laine avait roulé à travers la chambre;
@@ -2803,7 +2455,6 @@ comme cela serait bon, quand il ne souffrirait plus... 2
 — Et c'est un tort, Monsieur, d'être toujours content, à
 ajoutait la bonne femme; car quand on ne se plaint pas, %
 les autres ne vous plaignent pas. Moi, je me plains à
-toujours. e ; 4
 
 Donc, on n'avait pas fait attention à lui. On l'avait Fe
 même plaisanté sur sa bonne mine, et Modesta — k
@@ -2829,9 +2480,6 @@ respirait avec peine; et elle l'entendit faire des efforts 4
 
 l'heure... S'il est possible de se fatiguer, comme cela! %
 
-. ; :
-
-io PA nr *AOTAONRENMERUS
 Lt Jean-Christophe Made
 {0 Alors, il ne parla plus, ni n'essaya de parler. Elle
 “4 reprit son récit, croyant qu'il écoutait. Il soupira, et se ;
@@ -2867,7 +2515,6 @@ marier avec le fils du plus riche paysan de la contrée,
 | 34%
 #1
 
-LA DÉLIVRANCE # "10
 perdit la vue, à la suite d'un accident. Un jour qu'elle
 était montée dans le grand poirier derrière la maison,
 pour cueillir les fruits, l'échelle avait glissé : en tombant, une branche cassée la heurta rudement, près de
@@ -2905,7 +2552,6 @@ dites, ou faites. Quand il apprit son malheur, il fut bouleversé, comme une per
 
 |
 
-no si ik + Jean-Ghristophe  0M
 mi ! ne lui en montra rién, la première fois qu'il la vit. Il )
 Di: alla s'asseoir auprès d'elle, ne fit aucune allusion à son
 ‘4 accident, et se mit à causer tranquillement, comme il
@@ -2936,12 +2582,8 @@ r. tenant à se reconnaître partout, et à tout distinguer,
 J comme si elle voyait, Elle remarque même des choses,
 auxquelles nous ne faisons pas attention; et elle s'inté- 4
 j L resse à tout, elle qui ne s''intéressait,; avant, à pas . À
-ri
-1 346 À
-h'
 
 Loc ir RES CESR | : 1VX0NE %
-+ RASE | LA DÉLIVRANCE 1 4
 grand chose en dehors d'elle. Gette fois là, Gottfried À
 s'attarda plus longtemps que d'habitude chez nous. “#4
 Nous n'osions pas lui demander de remettre son 1
@@ -2988,14 +2630,8 @@ en jour. Pourtant, j'aurais grand peur que le bon Dieu :%
 
 me prît au mot; et, pour moi, à vrai dire, j'aime e.
 
-: ‘ EH
-
 345 4
 
-k LA
-bi 4
-
-vi ii b k fi:\ ù V ii cut SM x dt FN
 4 Jean-Christophe AIR
 00 encore mieux continuer à voir le monde, tout vilain !
 \ nl qu'il est. j
@@ -3027,7 +2663,6 @@ réporté sur ce fantôme tout le besoin d'amour qui était |
 Avec l'intrépide sûreté des aveugles, qui inventent tran- |
 quillement ce qu'ils ne savent pas, elle dit à Christophe: \4
 — Vous lui ressemblez.
-348 !
 
 c LA DÉLIVRANCE ra
 . Il comprit que, depuis des années, elle avait pris %
@@ -3067,7 +2702,6 @@ leur cours, de l'accepter et de l'aimer. Aïnsi, il s'assimi- K,
 
 js ai AM ils AS
 15 Jean-Christophe TP EEE
-Aie 154
 ‘4 lait leur essence mystérieuse, sans même y penser; et à :
 À L: s'il avait fait tant de bien à l'aveugle, à Christophe, à  !
 de 1 tant d'autres sans doute qu'on ignorerait toujours, c'est ;
@@ -3100,21 +2734,15 @@ au chercha en vain, on ne la trouva nulle part. Christophe :
 l ; en route, après avoir chargé la bonne femme de ses
 } - saluts pour les autres. 4 3
 ï Il sortait du village, quand, au détour du chemin, sur à
-11 re F
-je a , | Te
 
-PRO ER CAE OU
 ET ch HAN fs . a Si dit # aidée Fee di 4 di 1 pa,
-MAR LA DÉLIVRANCE : 24
 un talus, au pied d'une haie d'aubépine, il vit l'aveugle 4
 assise. Elle se leva au bruit de ses pas, vint à lui, en 1410
 souriant, lui prit la main, et dit: ‘2
-— Venez! 10
 Ils montèrent à travers prés, jusqu'à un petit champ È pi
 ombragé et fleuri, tout parsemé de croix, qui dominait DE:
 le village. Elle l'emmena près d'une tombe, et elle net
 lui dit : NE
-— C'est là. "20
 Ils s'agenouillèrent tous deux. Christophe se souve- Be
 nait d'une autre tombe, sur laquelle il s'était agenouillé 4
 avec Gottfried; et il pensait : 14
@@ -3138,9 +2766,6 @@ toucher la terre humide et tiède. Il ne lächa point sa s
 main; leurs doigts entrelacés s'enfonçaient dans la } 4
 terre. Il embrassa Modesta. Elle l''embrassa aussi. ù
 Hs se relevèrent tous deux. Elle lui tendit quelques : ‘a
-351 . 14)
-4 . ee
-k. Bt
 
 L Jean-Christophe 5
 ‘4 violettes fraîches qu'elle avaït cueillies, et garda les
@@ -3192,14 +2817,9 @@ Mais il vit la divine lumière qui souriait autour d'eux,
 
 — Ainsi, demanda-t-il, c'est ‘Gottfried qui vous a
 
-; appris ?
-
 Elle dit que oui, qu'elle en jouissait maintenant davantage qu'avant... — (Elle ne dit pas & avant quoi »; elle
 évitait de prononcer le mot d' « yeux », ou d' « aveugle ».)
 
-F 352
-
-L
 on
 
 | rés
@@ -3208,7 +2828,6 @@ tai LA DÉLIVRANCE it
 avec commisération. Elle se sentait regardée. Il eût
 voulu lui dire combien il la plaignait, il eût voulu qu'elle
 se plaigniît, qu'elle se confiât à lui. Il demanda affec- 1
-tueusement :
 — Vous avez été bien malheureuse?
 Elle resta muette et raidie. Elle arrachaït des brins
 d'herbe, et les mâchait en silence. Après quelques
@@ -3235,7 +2854,6 @@ j le persuader; elle parlait des enfants, de la maison, de
 tout ce qu'elle avait à faire.
 . — Oh! oui, dit-elle, je suis très heureuse !
 353 la délierance. — 6
-be | à
 
 | 10 À Jean-Christophe : VOOR a
 “4e Christophe ne répondit rien. Elle se leva pour partir: NT
@@ -3270,8 +2888,6 @@ FU vivre deux jours avec elle. — Tout en continuant sa route,
 
 D lesquels avaient passé tant de chagrins, et qui ne vouAY laient pas les voir, qui ne voyaient pas la réalité bles-
 
-à ; sante. |
-
 3 — Comment me voit-il moi-même? se demandait-il.
 31 Je suis si différent de l'idée qu'il a de moi! Je suis pour
 
@@ -3287,13 +2903,8 @@ b s'il la voyait telle qu'elle est. :
 " qui était n'était pas, et que ce qui n'était pas était.
 L - Alors il vit la grandeur de l'idéalisme allemand, .
 pe qu'il avait tant de fois haï, parcé qu'il est chez les âmes
-: 354 |
-
-j'iteaiié RO REEN 4e nr g iBAt ie a AL A à 37 174 + PUNPUE DA Hbiers
 
 _ 1588 di fete fa S "ni Ÿ En HR E û 1 7 er Ps À Re STE CU
-HOUR LA DÉLIVRANCE 4 :
-a ' # . Ve,
 # médiocres une source d'hypocrisie et de niaiserie. Il vit ‘à
 _ la beauté de cette foi qui se crée un monde au milieu # s
 . du monde, et différent du monde, comme un îlot dans Fr:
@@ -3307,7 +2918,6 @@ P, empereur allemand prétendait faire une loi à tout son n
 _ pour vivre; et Christophe eût regardé comme un crime 3
 d'arracher à ces malheureux l'illusion qui les soutenait. 1%
 
-. . A . . Es k
 Mais pour lui-même, il n'eût pu recourir à de tels sub- : 1
 ? terfuges : il aimait mieux mourir que vivre d'illusions. 4
 | .— L'art n'était-il donc pas une illusion aussi? — Non, il 1
@@ -3317,26 +2927,15 @@ grands ouverts, aspirer par tous les pores le soufile 4
 ; tout-puissant de la vie, voir les choses comme elles AU
 sont, son infortune en face, — et rire! 4
 > KT:
-t . 4
 
-F à;
-À 1188
-
-PA A EU LE #} PER PEU TR PA RES DA AREAS PATENT)
-nn 1 ï
-ANA
-‘5
 ma.
 hi, Plusieurs mois se passèrent. Christophe avait perdu
 1 tout espoir de sortir de sa ville. Le seul qui eût pu le
 | . . » : st
 ne } sauver, Hassler, lui avait refusé son aide. Et l'amitié du
-LA) . . . 242 2 e A
 QU vieux Schulz ne lui avait été donnée que pour lui être
-h aussitôt retirée. ,
 Fe Il lui avait écrit, une fois, à son retour; et il en avait
 qi reçu deux lettres affectueuses; mais par un sentiment
-AS a ne . » .
 ju de lassitude, et surtout à cause de la difficulté qu'il
 M avait à s'exprimer par lettre, il tarda à le remercier de
 ii ses chères paroles; il remettait de jour en jour sa
@@ -3425,9 +3024,6 @@ SR tétue d'une dé ces racés au crâne étroit et dur, qui se
 4 moindre pression, et ne garde aucune empreinte?
 1 Toutes les pensées, toutes les énergies, tout disparaisEt sait dans la fondrière : à peine si, quand une pierre
 14 tombait, quelques rides tressaillaient à la surfacé du
-
-À;
-À dk | l |
 
 F EE RE LA DÉLIVRANGE + di
 | gouffre; la mâchoire s'ouvrait, se refermait : et de ce k
@@ -3529,10 +3125,6 @@ ie « cher Monsieur » Gessler, les yeux baissés, afin de
 
 ‘V4 — jusqu'au vieux et respectable professeur Weisse, âgé
 
-360 |
-
-À * LA DÉLIVRANCE %
-L 1}
 de soixante-dix ans, un des savants les plus honorés de 5
 | la ville, qui, lorsqu'il voyait venir un Yerr Lieutenant, ;
 se hâtait de lui céder le haut du trottoir, et de descendre À
@@ -3564,7 +3156,6 @@ autres, et, du haut en bas de la hiérarchie, abuser de {
 | leur autorité contre leurs inférieurs. L'idée qu'il serait |
 un jour forcé de leur obéir serrait Christophe à la gorge.
 
-NME CNE PA MA TU TRE
 M. ï Jean-Christophe ca
 44 Il ne pourrait pas, non, il ne pourrait jamais le suppordns. ter, se déshonorer à ses yeux, en subissant leurs humi-
 #40 liations et leurs injustices Il ne savait pas quelle
@@ -3576,7 +3167,6 @@ Le gâchés, — le non-sens d'une carrière, qui, si elle est
 64 simplement une carrière, si elle n'a point le sacrifice
 nu pour but, n'est plus qu'une agitation morne, une inepte
 in parade, un rituel qu'on récite, sans croire à ce qu'on
-‘4 dit.
 
 At La patrie ne suffisait plus à Christophe. Il sentait en
 1 4 lui cette force inconnue, qui s'éveille, soudaine et irré-
@@ -3588,7 +3178,6 @@ de légués, il y retrouvait des âmes comme la sienne, —
 D non « des fils de la terre », servilement attachés à
 2 la glèbe, mais « des esprits, fils du soleil », qui se
 À tournent invinciblement vers la lumière, d'où qu'eile
-ii Ù vienne.
 
 h, Où irait-il? Il ne savait. Mais ses yeux, d'instinct,
 ii regardaient vers le Midi latin. Et d'abord, vers la
@@ -3605,29 +3194,15 @@ ie et les plus rétrogrades y avaient trouvé tour à tour, et
 À ciens allemands dans la détresse, se tournait, lui aussi, 28
 
 Ô vers Paris. Que connaissait-il des Français? — Deux ‘4
-, . ER.
 # visages féminins, et quelques lectures au hasard. Cela « 2
 4 lui suffisait pour imaginer un pays de lumière, de gaieté, N
 ; de bravoure, voire d'un peu de jactance gauloise, qui A:
 û ne messied pas à la jeunesse audacieuse du cœur. y
 À croyait, parce qu'il avait besoin d'y croire, parce que, f hs
 # de toute son âme, il eût voulu que ce fût ainsi. 5
-; Lo
 | ÿ Er,
-‘1:20
-é | 1
-h ue
-“ An.
-“ “3 a
-; #3 ; 1%
 | is
-pu ÿ: DEL :
-An: 03
-FA + v Lin ‘y Wu à til
 
-We #7" ;
-MT, :
-100 }
 11 Il se résolut à partir. — Mais il ne pouvait partir, à
 
 104 cause de sa mère.
@@ -3662,8 +3237,6 @@ A rêves n'allaient pas plus loin pour lui, qu'à lui voir épou4 ser la fille d
 4 avait toujours douze ans; elle eût voulu qu'il n'eût .
 ci ( jamais davantage. Elle torturait innocemment le malheu- À
 À reux homme, qui suffoquait dans cet étroit horizon. ".
-rR ee
-0 Là
 
 de LA DÉLIVRANCE |
 M pourtant, il y avait beaucoup de vrai, — une grandeur morale — dans cette philosophie inconsciente de $
@@ -3694,7 +3267,6 @@ le cœur un secret qui lui pesait, Et la pauvre femme,
 qui avait l'intuition de ce que pouvait être ce secret,
 s'efforçait peureusement d'en retarder l'aveu. À des
 instants de silence, le soir, quand ils étaient l'un près
-365 La déliorance — 7
 
 sl Jean-Christophe MAL de
 ne
@@ -3728,9 +3300,7 @@ sang s'arrêta, et elle restait muette et glacée, à le Al
 regarder avec des yeux épouvantés. Une telle douleur M
 . montait dans ces yeux, à mesure qu'il parlait, que la 11
 j parole lui manqua, à lui aussi; et ils demeurèrent tous $
-St
 
-AT 7 LA DÉLIVRANCÉ Rs.
 ; deux sans voix. Quand elle put enfin retrouver le "4
 souflle, elle dit — (ses lèvres tremblaient) — : a.
 — Ce n'est pas possible... Ce n'est pas possible... N
@@ -3751,7 +3321,6 @@ troubler. Il fixa même le jour de son départ, pour à.
 n'avoir plus à soutenir une seconde discussion : — (il
 | ne savait pas s'il retrouverait, une seconde fois, le £
 triste courage qu'il avait aujourd'hui.) — Louisa 4
-criait. 4
 — Non, non, tais-toi!…. k
 Il se raïdissait, et continuait avec une résolution à
 k implacable. Quand il eut fini, — (elle sanglotait), — il Hi
@@ -3765,7 +3334,6 @@ _ il la laissa, pensant que la nuit changerait le cours de ï
 … ses idées. Mais lorsqu'ils se retrouvèrent, le lendemain, #
 
 Ra Jean-Christophe AE
-ï } |
 4 à table, il recommenca sans pitié à reparler de son .:
 A projet. Elle laissa retomber la bouchée de pain, qu'elle
 rl portait à ses lèvres, et dit, d'un ton de reproche doulou4 TeUX :
@@ -3774,12 +3342,10 @@ ve Il fut ému, mais il dit :
 fé — Chère maman, il le faut.
 f — Mais non, mais non! répétait-elle, il ne le faut
 pas... C'est pour me faire de la peine... C'est une .
-folie…
 Ils voulurent se convaincre l'un l'autre; mais ils ne
 s'écoutaient pas. Il comprit qu'il était inutile de dis. .
 cuter : cela ne servait qu'à se faire souffrir davantage;
 ? et il commença, ostensiblement, ses préparatifs de
-départ. ;
 Quand elle vit qu'aucune de ses prières ne l'arrêtait, |
 Louisa tomba dans un état de tristesse morne. Elle
 passait ses journées, enfermée dans sa chambre, sans
@@ -3796,13 +3362,9 @@ souffrir ceux qu'il aimait? j
 traint par cette force cruelle d'être ce que je dois être, M
 ou sinon, de mourir dans la honte et le dégoût de moimême, comme je vous rendrais heureux, vous que #
 j'aime! Laissez-moi vivre d'abord, agir, lutter, souffrir; w |
-368 Pl
 #
 |
-+
 
-À }
-( LA DÉLIVRANCE
 _ et puis, je vous reviendrai, plus aimant. Que je voudrais ne faire qu'aimer, aimer, aimer! |
 , Jamais il n'eût pu résister au reproche perpétuel de
 cette âme désolée, si ce reproche avait eu la force de
@@ -3832,7 +3394,6 @@ de rage. Il flanqua Rodolphe à la porte, à coups de
 pied au cul, en le traitant de polisson et de chien
 d'hypocrite. Rodolphe se vengea, en montant la tête à
 - 369
-&
 
 Jean-Christophe NU 1
 h sa mère. Louisa, excitée par lui, commença à se per14 ‘suader que Christophe agissait en mauvais fils. Elle {
@@ -3864,11 +3425,7 @@ de sa gorge : mais Louisa ne répondait pas; et quand, ;
 Cet état de choses était intolérable pour tous deux; et
 | plus il se prolongeait, plus il devenait difficile d'en
 $ sortir. Allaient-ils donc se séparer ainsi? Louisa se ren41 dait compte maintenant qu'elle avait été injuste et maladroite; mais elle souffrait trop; pour savoir comment
-: 370 ‘4
-" dà, LAS
 
-+ ig A À Et:
-1 LA DÉLIVRANCE £
 | regagner le cœur de son fils, qu'elle pensait avoir |
 . perdu, et empêcher à tout prix ce départ, dont elle se |
 : refusait à envisager l'idée. Christophe regardait à la »  dérobée.le visage blème et gonflé de sa mère, et il était
@@ -3899,9 +3456,6 @@ i si tu pars. Je ne veux pas mourir loin de toi. Je ne veux
 Î Ses paroles lui déchiraient le cœur. Il ne savait que à
 dire pour l'apaiser. Quelles raisons pouvaient tenir
 contre ce déchaînement d'amour et de douleur ! Il la k
-4 371 ‘
-ne J . 4
-D. :
 
 | ñ Jean-Christophe NEO
 à prit sur ses genoux, et tâcha de la calmer, avec des î |
@@ -3953,10 +3507,6 @@ faisait, et ses mailles allaient de travers. Dehors, il M
 
 d'elle. Elle ne fit pas un mouvement; mais son cœur
 
-372 m1
-
-TN D A PR A
-À LA DÉLIVRANCE
 ï battait. Christophe la regardait, immobile; puis, brus- ,
 quement, il se jeta à genoux, cacha sa figure dans la
 robe de sa mère; et, sans dire un mot, il pleura. Alors, *
@@ -3969,14 +3519,12 @@ Ils mélèrent en silence leurs larmes et leur peine. Enfin,
 il releva la tête; et Louisa, lui prenant la figure dans
 ses mains, le regardait, les yeux dans les yeux. Elle eût
 voulu lui dire :
-— Pars!
 Et elle ne le pouvait pas. ‘
 Il eût voulu lui dire :
 — Je suis heureux de rester.
 F Et il ne le pouvait pas.
 La situation était inextricable; ni l'un ni l'autre n'y
 pouvait rien changer. Elle soupira, dans son douloureux
-amour :
 — Ah! si l'on pouvait être nés tous ensemble, pour
 mourir tous ensemble ! j
 Ce vœu naïf le pénétra de tendresse; il essuya ses
@@ -3986,13 +3534,9 @@ Elle insistait : 4
 — Bien sûr? Tu ne pars pas?
 Il se releva :
 — C'est dit. N'en parlons plus. Il n'y a plus à y
-revenir.
 Christophe tint parole : il ne parla plus de départ;
-ri 373 la Ft — 7.
-LS ;
 
 | Li a Jean-Christophe :
-}: tl UR
 
 "10 mais il ne dépendait pas de lui qu'il n'y pensât plus. Il
 st resta; mais il fit chèrement payer son sacrifice à sa
@@ -4035,11 +3579,9 @@ de étaler les langes salis, les médiocres pensées, toute
 10 cette époque néfaste, où une âme naissante se débat
 
 : contre l'oppression de la vile matière et du milieu
-: f étouffant !\ 1
 ji } Et au milieu de tout cela, elle avait des élans deten-
 ; j dresse touchante, — comme avec un petit enfant, — qui
 
-Ro LA DÉLIVRANCE | 0
 4 lui prenaient le cœur, et auxquels il s'abandonnait, — à
 |. comme un petit enfant. “14
 ; Le pire était de vivre, du matin au soir, comme ils oi
@@ -4049,17 +3591,12 @@ reste des gens. Lorsqu'on souffre, étant deux, et 1
 il est fatal qu'on l'exaspère : chacun finit par rendre F4
 l'autre responsable de ce qu'il souffre; et chacun finit 4
 par le croire. Mieux vaudrait être seul : on est seul à À
-souffrir. ‘
 C'était une torture de chaque jour pour tous deux. Ils ; di
 n'en seraient jamais sortis, si le hasard n'était venu, à
 _ comme il arrive souvent, trancher, d'une façon malheu- l
 reuse en apparence, — heureuse au fond, — l'indécision hi
 cruelle, où ils se débattaient. : )
-Bts, r 4
 
-re
-l
-fi
 | C'était un dimanche d'octobre. Quatre heures de
 ) | l'après-midi. Le temps était radieux. Christophe était
 1 resté, tout le jour, dans sa chambre, replié sur lui-
@@ -4076,7 +3613,6 @@ chose dans sa chambre. La porte de la chambre de sa
 | mère était entre-baïllée. Il passa sa tête par l'ouverture.
 k Il vit sa mère, quelques secondes... (Quelle place ces
 quelques secondes devaient tenir dans le reste de sa
-vie !).…
 Louisa venait de rentrer des vêpres. Elle était assise
 à sa place favorite, dans l'angle de la fenêtre. Le mur
 de la maison d'en face, d'un blanc sale et crevassé, :
@@ -4084,11 +3620,8 @@ masquait la vue; mais, de l'encoignure où elle était, on
 pouvait voir à droite, par delà les deux cours des maisons voisines, un petit coin de pelouse grand comme
 4 un mouchoir de poche. Sur le rebord de la fenêtre, un
 pot de volubilis grimpait le long de ficelles, et tendait
-376 |
 
 | din
-de et et ÿ , ; |
-LA DÉLIVRANCE
 sur l'échelle aérienne son fin réseau, qu'un rayon de
 soleil caressait. Louisa, assise sur une chaise basse, le
 dos rond, sa grosse Bible ouverte sur ses genoux, ne
@@ -4109,7 +3642,6 @@ tour du côté de Buir; je rentrerai un peu tard.
 
 Louisa, qui somnolait, tressaillit légèrement. Puis,
 elle tourna la tête vers lui, et le regarda de ses bons
-yeux paisibles. f
 
 — Va, mon petit, lui dit-elle : tu as raison, profite du
 beau temps.
@@ -4124,9 +3656,6 @@ lumineux, comme le rayon de soleil sur les feuilles
 pâles du volubilis.
 
 Ainsi, il la laissa — pour toute sa vie.
-
-RENE : \ pa. 0 ja
-É H L |
 
 54 j Soir d'octobre. Un soleil tiède et pâle. La campagne |
 % _  Janguissante s'assoupit. De petites cloches de villages |
@@ -4158,9 +3687,7 @@ _ il était toujours meublé de quelque belle image, qui en
 ÿ 4 fit jamais nuit dans son cœur. dl
 14 { L'objet de la flamme nouvelle était la fille d'un ; 3
 ; n. paysan, qu'il avait rencontrée, comme Éliézer rencontra à
-4 378 {140
 
-} LA DÉLIVRANCE -%
 \ Rébecca, auprès d'une fontaine; mais elle ne lui avait hs:
 pas offert à boire : elle lui avait jeté de l'eau à la figure. + ty
 ; Agenouillée au bord d'un ruisseau, dans un creux de la D
@@ -4228,7 +3755,6 @@ joyeusement, tout fiers de leur importance. Au milieu de la cohue, Christophe ap
 son vrai nom, elle s'appelait Lorchen. Sur son blond
 chignon, elle avait mis une belle feuille de chou,
 
-. LA DÉLIVRANCE ;
 blanche et verte, qui lui faisait un casque dentelé et 74
 ciselé. Assise sur un panier, devant des tas d'ognons 1
 dorés, de petites raves roses, de haricots verts, et de <
@@ -4266,7 +3792,6 @@ si fi Jean-Christophe Mt 24
 lesprit pour prendre la clef des champs. Il était souvent
 tout étourdi par le bourdonnement des idées musicales,
 ‘1 quand il se trouvait en face d'elle; et il continuait À
-LATE F4 . . .
 de rêvasser, en la regardant. Il m'eût pu dire qu'il
 _  Paimût, il n'y songeait même pas; il avait plaisir à la
 voir: rien de plus. Il ne se rendait pas compte du désir
@@ -4276,18 +3801,6 @@ _ qui le ramenaït toujours vers elle.
 ‘0 On le laissait tranquille d'ailleurs; car il était bien
 _  inoffensif. Pour tout dire, il avait l'air assez sot : mais |
 _ il ne s'en inquiétait pas.
-Met | ! à
-\1UYER 4 F 14
-HA }
-110 ÿ {
-YA ;
-D ! ; Were ;
-\ 1 : 4
-174108 {l
-
-no: ds:
-
-‘0
 
 C'était la fête au village. Des gamins écrasaient des 14
 
@@ -4308,8 +3821,6 @@ dans la paille et le fumier d'or : le vent s'engoufirait D
 dans leurs plumes, comme dans les jupes d'une vieille î
 
 dame. Un cochon rose dormait voluptueusement sur le à
-
-flanc, au soleil. Û 7
 
 Christophe se dirigea vers le toit rouge de l'auberge d,
 
@@ -4336,8 +3847,6 @@ sa belle amie serait là. Et en effet, ce fut la première : ‘44
 seurs. Mais, quelque soin qu'il eût pris pour ne pas être à
 
 remarqué, Lorchen sut bien le découvrir dans son coin. 4
-
-L. ? N ‘ASE
 
 000 Jean-Christophe y
 ne Tout en tournant d'interminables valses, elle lui lançait
@@ -4369,9 +3878,6 @@ un rire silencieux. À un moment, il toussota; et, un
 éclair de malice brillant dans ses petits yeux gris, il
 vint s'asseoir de côté à la table de Christophe. Christophe, mécontent, tourna vers lui un visage renfrogné : |
 } il rencontra le regard narquois du vieux qui, sans |
-384 !
-
-jf
 
 débat jà LA DÉLIVRANCE “0
 extraire sa pipe de sa bouche, lui adressa familièrement :
@@ -4461,16 +3967,12 @@ st È et il se faisait fort de lui en fournir de tout chauds sor-
 
 È tis du cul de la poule. Cette idée que le vieux le prenait
 4 pour un chanteur fit éclater de rire Christophe. Le =
-L 386
-: 4
 
 jai Hi dd JA LA DÉLIVRANCE De
-Fi
 
 paysan en profita pour faire venir une autre bouteille. #
 Après quoi, ayant tiré de Christophe tout ce qu'il pou- 2
 vait en tirer pour l'instant, il s'en alla, sans autre x
-cérémonie. ‘a
 La nuit était venue. Les danses étaient de plus en s158
 plus animées. Lorchen ne faisait plus aucune attention : ÿ
 à Christophe : elle avait trop à faire de tourner la tête ê
@@ -4520,8 +4022,6 @@ Ke troublé une fête dans un village voisin, et assommé à
 ces choses, partageait l'état d'esprit des paysans; et,
 se rasseyant à sa place, il attendit ce qui allait se
 
-passer.
-
 Les soldats, sans s'inquiéter de la malveillance, qui
 accueillait leur entrée, allèrent bruyamment s'asseoir
 aux tables pleines, d'où ils bousculèrent les gens,
@@ -4543,7 +4043,6 @@ de les imiter. Ils furent intimidés par l'air hautain de
 Christophe ; et, quand il leur dit, d'un ton sec :
 — La place est prise.
 
-44 à d Le PIN k
 se LA DÉLIVRANCE È
 ils s'excusèrent précipitamment, et se reculèrent au
 
@@ -4586,10 +4085,6 @@ Mais son orgueil s'y refusait : il ne voulait pas avoir
 
 { nois et brutal se posa sur lui. Christophe, raïdi, le fixa
 avec colère. Le sous-officier le considéra, un instant: la
-
-- 389 La délivrance. — 8
-
-FAN i pe } PA TONNES RSR
 
 | Jean-Christophe Me
 
@@ -4656,12 +4151,8 @@ lui. L'autre la poursuivit. Il bourraït de coups de poing
 
 # les gens derrière lesquels elle cherchait à s'abriter.
 
-. | #1
-
 A: de de pd ae AAA cé RÉ ELA th FOR
-dé " miss ju * ; #4
 si LA DÉLIVRANCE ‘4
-1 " 4
 k Enfin, elle se réfugia derrière une table; et là, protégée F
 j de lui pendant un moment, elle reprit du souffle pour :
 : l'injurier ; elle voyait que toute sa résistance ne servirait
@@ -4694,9 +4185,6 @@ rancunes à assouvir. Les gens roulaient par terre, et se '
 mordaient avec fureur. Le danseur évincé de Lorchen,
 un solide valet de ferme, avait empoigné la tête d'un
 
-F
-
-Éd
 il Jean-Christophe |
 10 soldat qui l'avait insulté tout à l'heure, et la martelaït
 
@@ -4742,8 +4230,6 @@ vantait ses prouesses. Ils fraternisèrent avec Chris- 4
 tophe, tout joyeux de se sentir rapproché d'eux. …
 Lorchen vint lui prendre la main, et resta un instant à
 
-P pie
-- LA DÉLIVRANCE : {
 la tenir dans sa menotte rude, en lui ricanant au nez. :
 Elle ne le trouvait plus ridicule, à cette heure.
 On s'occupa des blessés. Parmi les gens du village,
@@ -4760,7 +4246,6 @@ cercle des paysans penchés autour de lui. A peine eutil repris conscience de ce
 leur ferait leur affaire à tous; il étranglait de rage; on |
 sentait que s'il pouvait, il les exterminerait. Ils
 essayèrent de rire; mais leur rire était forcé. Un jeune
-paysan cria au blessé :
 — Ferme ta gueule, ou je te tue!
 Le sous-officier essaya de se redresser, et, fixant celui è
 qui venait de parler, avec ses yeux injectés de sang :
@@ -4775,7 +4260,6 @@ dans une autre chambre. Les vociférations du sous-
 393 la délivrance. — 8. fs Ù
 
 nt ji Jean-Christophe
-can Co * a
 ‘1 ! même place, faisant le cercle, comme si les trois corps
 
 Lu. étaient toujours étendus à leurs pieds; ils n'osaient
@@ -4804,15 +4288,12 @@ ji point d'en venir eux-mêmes aux mains. Le père de
 
 NA se tournant vers Christophe, il le désigna, du men-
 
-1 ton : 1
-
 a — Et celui-là, dit-il, qu'est-ce qu'il est venu faire
 
 de ici ?
 
 ; Toute la colère de la foule se retourna contre Chris-
 
-À tophe : î
 EU — Cest vrai! C'est vrai! criait-on, c'est lui qui a
 commencé! Sans lui, rien ne serait arrivé!
 0 Christophe, abasourdi, essaya de répondre :
@@ -4830,14 +4311,9 @@ Qui vous a demandé votre avis? Et d'abord, qui vous ;
 ds a prié de venir? Vous ne pouviez pas rester chez  « vous ? ;
 
 id ROSE it” ; € ne
-4 KL
-
-; LA DÉLIVRANCE à
 
 ; s Christophe haussa les épaules, et se dirigea vers la . 4
 porte. Mais le père de Lorchen lui barra le chemin, en (
-
-glapissant. ‘4
 
 — C'est ça! c'est ça! criait-il, il voudrait filer main- à
 
@@ -4869,8 +4345,6 @@ Sa jolie figure était toute rouge et froncée de colère. à
 
 Elle repoussa rudement ceux qui entouraient Chris- #
 
-tophe : 4
-
 — Tas de lâches! Bêtes brutes! cria-t-elle. Vous 1
 
 __ n'êtes pas honteux? Vous voudriez faire croire que c'est À
@@ -4885,20 +4359,12 @@ bras croisés, pendant que les autres se battaient, je lui ; À
 
 cracherais à la figure, et je l'appellérais : Lâche! À
 
-Lâche!.… :
-
 Les paysans, surpris par cette sortie inattendue, ‘à
 restèrent, un instant, silencieux; puis, ils se remirent ;
 
-à crier : ù
-
 — Cest lui qui a commencé! Sans lui, il n'y aurait ‘1
 
-rien eu. é
-
-NA 4
 HA) | Jean-Christophe ; l
-ME
 RE * Le père de Lorchen faisait en vain des signes à sa Î
 Ca file. Elle reprit :
 ï ; — Bien sûr que c'est lui qui a commencé! Il n'y a
@@ -4918,7 +4384,6 @@ bien, cela ne sera pas, c'est moi qui vous le dis! Il s'est
 Le père de Lorchen la tirait par le bras; il était hors |
 de lui, et criait : |
 — Tais-toi ! tais-toi !… Te tairas-tu, bougre de
-chienne ! É
 Mais elle le repoussa, et continua, de plus belle. Les
 paysans vociféraient. Elle criait plus fort qu'eux, d'une
 voix aiguë, qui crevait le tympan :
@@ -4930,7 +4395,6 @@ Il y a encore du sang dessus. Tu crois que je ne tai
 pas vu, avec ton couteau? Je dirai tout ce que j'ai vu, 4
 tout, si vous faites la moindre chose contre lui. Je vous 4
 ferai tous condamner.
-396 À
 
 LA DÉLIVRANCE $ ne
 Les paysans, exaspérés, approchaient leur figure Ê.
@@ -4940,7 +4404,6 @@ de Lorchen le saisit au collet, et ils se secouèrent tous 14
 deux, prêts à se rouer de coups. Un vieux dit à Lorchen : |
 — Si nous sommes condamnés, tu le seras aussi.
 — Je le serai aussi, fit-elle. Je suis moins lâche que |
-vous. *
 Et elle reprit sa musique. :
 Ils ne savaient plus que faire. Ils s'adressaient au
 père :
@@ -4966,8 +4429,6 @@ avoir mâchonné sa pipe, dit : ‘a
 s'il reste, son affaire est claire. Le maréchal des logis _\#
 
 nu Jean-Christophe A D
-
-is - k 4
 
 2) la reconnu : il ne lui fera pas grâce. Il n'y a qu'un 1
 (US parti pour lui, c'est qu'il file tout de suite, de l'autre 14
@@ -5006,15 +4467,10 @@ prévenu là-bas; on l'arrêterait chez lui. — Il s'obsti- 5
 nait. Lorchen l'avait compris : ñ
 3 — C'est votre maman que vous voulez voir ?... J'irai
 F, à votre place. à
-Le — Quand? |
-: %8 l
 
-GE . LA DÉLIVRANCE 14
 — Cette nuit. 140
 
 — C'est vrai? Vous feriez cela ? 1
-
-— J'y vais. À
 
 ; Elle prit son fichu, et s'en enveloppa. d *
 — Écrivez quelque chose, je le lui porterai. Venez ‘
@@ -5056,17 +4512,13 @@ chen lui avait pris les mains; debout, près de lui, F.
 elle le regardait; leur figure se touchait presque; 7
 
 elle lui jeta les bras autour du cou, et lui baïisa la 3%
-bouche : Fe
 
 — Vite! Vite! dit-elle tout bas, en lui montrant la à
-
-table. "08
 
 Il ne chercha plus à réfléchir. Il s'assit. Elle arracha
 
 #
 
-NP ES AANEAU à LL AN AN RU A A AN Let
 1 sô Jean-Christophe DE lue,
 4 à un livre de comptes une feuille de papier quadrillé,
 7 avec des barres rouges.
@@ -5088,7 +4540,6 @@ l'aime et je t'embrasse... »
 — Dépêchons-nous, monsieur; sans quoi il seraït trop
 tard, dit le bon ami de Lorchen, en entr'ouvrant la porte.
 ) Christophe signa hâtivement, et donna la lettre à
-! Lorchen :
 — Vous la remettrez vous-même ?
 | — J'y vais, dit-elle.
 ; Elle était déjà prête à partir.
@@ -5101,8 +4552,6 @@ dessus son épaule, tandis qu'il écrivait.)
 supporté ce coup, et tout ce qu'elle aura dit ? Vous ne }
 : me cacherez rien ? disait Christophe, suppliant. |
 4 400
-[Es
-) ME
 
 | LA DÉLIVRANCE "0
 — Je vous dirai tout. ‘#
@@ -5110,7 +4559,6 @@ Ils n'étaient plus aussi libres de se parler : sur le seuil j
 de la porte, l'homme les regardait. ÿ
 — Et puis, monsieur Christophe, dit Lorchen, j'irai la
 voir quelquefois, je vous enverrai de ses nouvelles :
-n'ayez point d'inquiétude. <
 Elle lui donna une poignée de main vigoureuse, À
 comme un homme.
 — Allons! fit le paysan. ;
@@ -5137,10 +4585,7 @@ tout le pays. Au revers d'une colline boisée, ils aper-
 çurent dans le lointain les feux rouges de la ligne du a
 ; chemin de fer. S'orientant d'après ces phares, ils déci-
 | 4oï la délivrance. — 9 ;
-: 00
-A fa
 
-NÉS LS
 2 4 Jean-Christophe ;
 Lu dèrent de se diriger vers la première station. Ce ne
 NE ‘ fut pas aisé. A mesure qu'ils descendaient dans la
@@ -5170,8 +4615,6 @@ une heure, il serait libre. Mais d'ici là, il suffisait d'un
 son être se révoltait. Être étoufté par la force odieuse!…
 Il n'en respirait plus. Sa mère, son pays qu'il quittait,
 avaient disparu de sa pensée. Dans l'égoïisme de sa :
-; 402 |
-Ne
 
 ds LA DÉLIVRANCE 53
 liberté menacée, il ne pensait qu'à cette liberté, à sa vie E:
@@ -5224,8 +4667,6 @@ le billet d'un voyageur qui venait de monter. Le train A
 Ÿ se remit en marche. Christophe comprimait les batte- as
 ments de son cœur. Il ne bougeaït pas. Il osait à peine ‘il
 
-403 à
-
 DA dE ce Re ANNE pt EN RVE) Ai nn su du j
 1 ja Jean-Christophe |
 di se dire qu'il était sauvé. Il ne voulait pas se le dire,
@@ -5250,10 +4691,8 @@ k le bras, Christophe s'éveilla, confus, croyant avoir
 à la douane; et, définitivement accepté sur le territoire étranger, n'ayant plus à se défendre, il se coucha
 tout de son long sur un banc de la salle d'attente, et se
 ; laissa tomber dans le sommeil, comme une masse.
-? i À
 
 A D M Ie der ant fe Et Rent
-ï
 Il se réveilla vers midi. Lorchen ne pouvait guère 1
 ; venir avant deux ou trois heures. En attendant l'arrivée
 des trains, il faisait les cent pas sur le quai de la petite
@@ -5278,7 +4717,6 @@ plaine de la vie. Une trouée dans le Temps. On ne sait MS
 plus où on est, qui on est, dans quel siècle l'on vit, Me
 depuis combien de siècles on est ainsi. Christophe avait ji
 le sentiment que cela avait déjà été, que ce qui était, d
-405 À
 
 Vie Jean-Christophe à Mis
 1e at maintenant, n'était pas, maintenant, mais dans un autre S
@@ -5288,8 +4726,6 @@ ve temps. Il n'était plus lui-même. Il se voyait du dehors,
 
 Fi vd debout, ici, à cette place. Il entendait en lui une ruche
 164 de souvenirs et d'êtres inconnus; ses artères bruis-
-
-me saient :
 
 Le * Ainsi. Ainsi... Ainsi.
 
@@ -5338,10 +4774,8 @@ hi _ dormi sur elle, on en est imprégné; elle garde dans son
 
 1 poussière sacrée de ceux que nous avons aimés. ChrisLe | tophe revoyait la suite de ses jours, et les chères
 A images qu'il laissait sur cette terre, ou dessous. Ses |
-4 406 À
 
 ÿ LA DÉLIVRANCE au”
-re
 
 souffrances ne lui étaient pas moins chères que ses #0
 | joies. Minna, Sabine, Ada, le grand-père, l'oncle +
@@ -5393,21 +4827,17 @@ de côté, comme un moïineau; et quand elle vit qu'il la ae
 regardait, elle fit quelques pas vers lui; mais elle resta va
 plantée en face de Christophe, et le dévisagea de ses 4
 
-: 407 ‘à
-
 man Jean-Christophe "5
 ‘ “4 petits yeux de souris, sans dire un mot. Christophe la 4
 ‘as reconnut : c'était une petite vachère de la ferme de
 We Lorchen. Montrant la valise, il dit : ‘4
 ï: — C'est à moi, n'est-ce pas ? 4
 We La petite ne bougea pas, et répondit d'un air À
-fl nigaud :
 — Savoir. D'où que vous venez, d'abord ? }
 | — De Buir. E
 : — Et qui qui vous l'envoie? k
 # — Lorchen. Allons, donne.
 ! La gamine tendit la valise :
-' — La vlà! |
 | Et elle ajouta :
 — Oh! je vous ai bien reconnu tout de suite! .
 — Alors, qu'est-ce que tu attendais ? |
@@ -5417,7 +4847,6 @@ La petite ne répondait pas. Christophe comprit qu'elle
 ne voulait rien dire, au milieu de cette foule. Ils durent
 1 passer d'abord à la visite des bagages. Quand ce
 fut fini, Christophe entraîna la fillette à l'extrémité du |
-quai :
 — La police est venue, raconta la gamine, à présent
 | très loquace. Ils sont arrivés presque tout de suite après
 À votre départ. Ils sont entrés dans les maisons, ils ont
@@ -5428,16 +4857,12 @@ fait; et elles pleuraient; et Gertrude a grifté les gen- |
 darmes. On avait beau leur dire que c'était vous qui
 | aviez tout fait.
 
-LEE cé Libre hat Gus Ar re Ô y " ru
-LA DÉLIVRANCE }
 — Comment, moi? s'exclama Christophe. 6
 — Bien oui, fit la petite tranquillement, ça ne faisait |
 rien, n'est-ce pas, puisque vous étiez parti? Alors, ils à
 vous ont cherché partout, et on a envoyé après vous, É
 de tous les côtés.
-— Et Lorchen ?
 — Lorchen n'était pas là. Elle est revenue plus tard,
-après avoir été en ville.
 — Est-ce qu'elle a vu ma mère?
 — Oui. Voilà la lettre. Et elle voulait venir ellemême; mais on l'a arrêtée aussi.
 — Alors, comment as-tu pu?
@@ -5470,7 +4895,6 @@ ne — Attends done, dit Christophe. Et l'argent pour
 Dis — Prends tout de même, dit Christophe, lui mettant 4
 4) quelques pièces dans la main. 3 20
 AAA Il retint par le bras la petite qui voulait se sauver.
-Nu  —Etpuis.…fitil }
 ! ! M Il se pencha, et l'embrassa sur les deux joues. La fil Ô
 hi lette faisait mine de protester. LE
 ï à — Ne te défends donc pas, dit Christophe, en plaisan- ‘4
@@ -5494,51 +4918,25 @@ by mais sa main tremblait. Qu'allait-il lire ? Quelle souf-
 : 4 france allait-il y trouver ? — Non, il ne supporterait pas
 ï le reproche douloureux, qu'il croyait déjà entendre : il 4
 ‘1 reviendrait sur ses pas. 20
-à | go Éd
-{: 4108 < AAAE
 
 bee ‘LE LA DÉLIVRANCE F3
 Il déplia enfin la lettre, et lut : 2 à
 ._  . « Mon pauvre enfant, ne te tourmente pas de moi. Je 16
-E . . . . sl #4 #,
 ; serai sage. Le bon Dieu m'a punie. Je ne devaispas
-“+ ee. . "0
 _ être égoïste et te garder ici. Va à Paris. Peut-être que À
-[ F 1
 À ce sera mieux pour toi. Ne t'occupe pas de moi. Je sais  : À
 me tirer d'affaire. L'essentiel, c'est que tu sois heureux.
 ; Je t'embrasse. KR
-« Maman. x 14
  « Écris-moi, quand tu pourras. » 4
 | Christophe s'assit sur sa valise et pleura. “ST 3:
-$ 1
-ÿ #
-$ ; DAS +
-j ‘RE
-* * ‘1e
-- ARE
-L = D
-‘1
-. :
-.° MR
-: } ‘8 Fr
-2 . "| 24 :
-* ? F: 4 21
-É ; Ki
-d :
-LITE 13° 008
 
-QD EN dd " NE A ND AC AG NÉ A f
-Rs 2 TR
 A Le portier de la gare appelait les voyageurs pour É
 fu Paris. Le train pesant arrivait avec fracas. Christophe À
-LUE . \!
 fs essuya ses larmes, se leva, et se dit : k
 “SA — Il le faut. ,
 4 Il regarda je ciel, du côté où devait se trouver Paris.
 a Le ciel, sombre partout, était plus sombre là. C'était É
 dl comme un gouffre d'ombre. Christophe eut le cœur !
-]. # . . 24 La LA
 PA MSserré; mais ilse répéta : hu
 e — Il le faut. ‘4
 Il monta dars le train, et, penché à la fenêtre, ïl 1
@@ -5551,70 +4949,25 @@ ii . ciel, bleu pâle, large comme deux yeux, — comme les
 nu, yeux de Sabine, — sourit tristement au milieu des À
 ! de voiles lourds des nuées, et s'éteignit. Le train partit. à
 il La pluie tomba. La nuit tomba. ‘110
-Ven fi
-Puy ÿ 4
-ty ML
-AS * (1e
 
 Der BANOE PPT ROT NI MAT PORTE? LIRE tx
 187 CARE AP ANT UNES NT IN OU REA Lies Nr ui dd |
-:, 1 LAGRRON 4 LARRTURE SOS RTE ANT Hd: TELE ME SLR EURE
-Lt ROPENTRRES w 2 Ht dis LIRE ht
-Vo à 4 Fa AC et H } “h: TRUE »s
-Pt r: #44
-RE 4 ; CR f 14
-EE : RETA A
-; "# 1
-AL à Nes
-RARE À ” LA
 ne se pm + r x sy Fi
-RE Û À 20
-LITE # Pa Fe *
 HN ju Le
-Du: À 82
-‘5088 f Fe
-Mu La SE
-ÿ es à ML} :
-FAT Ü AIS
-TRES FAT ST
 Mint. n L'IFFFUERS
-13 CRETE 4 ‘he
-11 RTE Den: TF Lys
 RAR LEE à LE ee
-LP UNITÉ NES £ : fe EE
-à “ E ? pr Pl
 
-À jte PA EN AN ER ER Ca ASS EE RENE EG rot LR
 5 AU He À F \ } k on pui ARE
-UD 1 (3 MIE " dpt AE A
-‘NE L (1? a? TNA f LANCE 4
-A À NA < | f j FE ! 11 VAN
 | MANS 4 74 4 ï ND NREREERSE
-(000 « Û À 4 N “EAN MITA EN”
-Je HAE ; ( * HO A à | LINEAR WTANE
-(NOR) \ ii : RNA 11 Me nst
 | APE à ; À À STAR YO ae d
-RAA
-(5700 1e AS ICPAUTE En ER 2
-ÿ À DA MONET
-JA We He ! 1 ARRETE (D HRPRENt
 | LAON EEE ñ Host LR EUR NEA TEE
-LT : ÿ + ON TAN ANNEES
-LAON A Was 4! à LD AN TE ARE NUE HUE
-TE Had \ 1 { / #4 Nr Ji TP I RME EEE PS
-(ei 1 QE ASE ALI A OA EE st d DUREE Lo We) Ut
 YEN AE 4 CR EE D n REA UUTES di) Ne LAS
 2 OMAN MP ANS NET SERA A ne nes RAM On
 
-4 TRE . FA
 : Il a été tiré de ce cahier treize exemplaires sur “Ee
 * whatman ainsi distribués : 8
-L. . ";
 é premier exemplaire de souche, exemplaire du gérant; 1
 4 deuxième exemplaire de souche, exemplaire de lad- Je
-‘ FE . - À ;
-; ministrateur ; &
-; '
 à troisième exemplaire de souche, exemplaire de l'im- É,
 î primeur ; sa
 l dix exemplaires d'abonnement, numérotés de I à 10 4
@@ -5623,45 +4976,26 @@ l dix exemplaires d'abonnement, numérotés de I à 10 4
 Tous nos exemplaires sur whatman sont numérotés 4
 ; à la presse et imprimés au nom du souscripteur ; nos x 4
 tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in- à
-9 L
 : stant souscrits; nous ne vendons point d'exemplaires 41
 ï sur whatman en dehors de l'abonnement; l'abonnement ‘#4
 sur whatman à cette huitième série est de cent francs F6
 pour tous: pays. |
-HU
 
-à ©
-M di 0 À
-GER
 7 Les Cahiers de la Quinzaine sont composés à la main, Rs
 | en caractères fin dix-huitième siècle (Didot) de la fon- “es
 $ derie Mayeur (Allainguillaume et compagnie succes- 4
 Ç seurs) 21, rue du Montparnasse, à Paris, sixième 44
 | arrondissement. .
-415 ke
-ue nl (ARS 12
-(PACS 4 f PRE
 
-QU AT ? A MATE TPS Let A DUOMAAAENUS REP 4 " NAN fé
-AU È } » 1 VAN OUEN
-{CR ï ‘ FINIRA TRANS PA MU
-1300 h ji dE TER HE EU
 il de ñ 1 AE 1? UE on 4 NA FOX
-! TRANS ENTREE LL 1 EPA
-lé FE à PAUE a, ! 2 1 EMEA Lu T0
-NAN SE 141 { L RARE Nr + EL
 USA Du d Het; NOUS
-0e ! A AU MEN 4 j AN L RIMA SENTE
 141 TI NC ORNER NON PERS nl IE Cia A OA , 7h GP ST RTS » SUGRGIONENS LARGE | ts LAN Op 14 PNEU NE 1121
-LAN APP LA AL OVER ALT Apte A FO Et (ANNE AN 1
-hi (A AMAR EO NAT EE CO RENAN OU GT IN ANT EE QE
 RAA LE DCR A AA NIAUNS Or ct
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement. }
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions :
-demeurent libres.
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
 ouvrière, d'octobre-novembre à juin-juillet ; l'abonnement se prend pour une série.
@@ -5670,8 +5004,6 @@ l'année, mais l'abonnement ainsi souscrit est, de droit,
 valable pour la série en cours.
 Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série :
-! Paris, départements, Alsace-Lorraine,
-Abonnement ordi- | Algérie, Tunisie... vingt francs
 naire ........... } Autres pays de l'Union postale universelle....... vingt-cinq francs
 " Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
@@ -5684,30 +5016,12 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 - naturellement aux premières inscriptions; c'est ce numéro d'inscription qui devient automatiquement le
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est strictement limitée au
-nombre d'exemplaires à chaque instant souscrit.
-Au :
-C
 
 11286 AT NENEAtEN k ANR D VA PRES TA A I NE AT Or ee es RES k
-A 0 | ser te if ÿ TAN RENE {
-a f | | ; RUE 1e TANT ENS
-; Qu ee LAURE Dix
 ÿr ni: FA J ee V ta PRE
 | LENS - ï ut ‘TAN
-40 : | VANNES FA } 1 RON
 |: 0e ? # A/R 0 PES
-Ru ot NÉE
-HS NET
-) NU : 20
-HT 1 V41 4 ART OCRNES
-1 ge { 24} MITA
-: ITS " PATENT
 ON yes (NET
-10 RTE AA 30 |
-1 à { NU FU nn )
-AT Ne { x À Rat OS
-1e Q Ho 1 di it \
-LR { 441 UP NTERAREES ta
 
 + Pour tout changement d'adresse envoyer soixante $
 4 centimes, six timbres de dix centimes. 4
@@ -5743,43 +5057,15 @@ F appartiennent aux cahiers, du seul fait de cette publi4 cation, en toute propr
 , et sans autre signification ni contrat; les manuscrits |
 L non insérés ne sont pas rendus. j
 |
-k. aug à
 
 4 10 PAUL ASC du A AN Re te SAP UE ARMES À FES NA TS TARN TER
 à cities fe ME 2 Lau HN Au W Lo Ud jé OU # Ye Has M RACINES
 D GAP EN eV SR EE CC LA A ne LA à
 
-0 MERS DER PS D D A EP US se JE #
-
 2 SRE Me AU IE AE (A Ne CAEN AUTRES jo
-
-_ LASER : # : À ; É \ Fr Dee
-D ME AT ESS
-
-Ve 2 FA ANA Ê {: ' FÉES ti KL ELITE
-ta 4 , 4 TASER ,
-‘CEE ! "1 RÉ | END VER ta
-1er j ic, MT NNOESS
-nai f à l ) : Ye: HODDS
-AS: n FA CORAN
-
-2140 C2 " œ is NEA
-10 que 1* FFE UT }
-
-NICE , \ ! Î js V A4 NY F6E, RPT
 
 : 2 KL ARENA War A RAGE TRE LA FLE A
 
-LINE ñ } LR MATE ARAS D ace
-
-+17" (100 00 } POUARR AE à è d RAA OREETAMAR LEA à e
-
-DA PE RS AOLRE VOLANT De FANS PET FOR e 7270) AE PAS TE LIRE *"
-
-RO ve re FE
-M
-TABLE DE CE CAHIER
-% PAGES :
 Notre catalogue analytique sommaire; notre
 | petit index alphabétique provisoire du catalogue
 _ analytique sommaire et généralement de nos sept
@@ -5788,121 +5074,39 @@ _ analytique sommaire et généralement de nos sept
 | : DU MÊME AUTEUR aux Cahiers de la Quinzaine... v
 ! Charles Péguy. — Note du gérant................ IX
 Roma Rorczanp. — Jean-Christophe........ xt
-Le. 0
 f QUATRIÈME LIVRE. — la révolte................. XV
-L
-4 Troisième partie. — La délivrance................ 273
-An
 IParélédiré de ce cahier... SMS 1
-PA
-PR idiersisontiédiést D SE LR eg
 ; Mobie déce cahier 2:30 06e Ce RAT
 : _ Nous avons donné le bon à tirer après corrections
 ñ pour deux mille exemplaires de ce neuvième cahier et ;
 pour treize exemplaires sur whatman le mercredi
-2 janvier 1907. J
 Le gérant : CHARLES PÉGUY
 É Ce cahier a été composé et tiré par des ouvriers syndiqués j
-Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 1396 ÿ
 
-h LAURENT NDS ni 7 RL MIEL ANT AR MORE Tr ARE RATER
-AMP ATOME Ÿ DA ADS AUEEANEE TN ht (\
 Pet Ex À SA ER
-x AeNE ù PR: Du
-RAA TE z T4 is
-“AUS IE a ‘h AL CR
-170 \ENS UT ie (2 NE
-AUTRE 2 ANR
-HPAEAS À APP
-+0 le es ‘ ! : RAP ANE
-PAIE en
-1 ANNEE : 4 LINEAR
-(HAN . at #
-115 0e CE ÉSRTRRRE
-Li ot 4 Ha #: à ANTON
-à L'TVNTARIER " ; 1 is KUIER
-Dane 5 LC nue
-+ t W fi
-LhGE AN IORR
-ï HA | À (e “AFS EU
 
-, BORIS Genet Pier $ bi LR VNERTES
-Qt. F Sue PORT 4 MS) AUS x APE Rue)
-.: 418 ARTE = r PURE
-F!. FIGE) L cb
-LCA à x : LE:
 # 314 0 Ris MAR :
-Te 0 0 W se
-1778 CLR 'E “ +4
-M / ‘+ PRE
-LASE TER D Fées Re
-F ETES ne: FE ; £ % RC 44
-UE ee Ë #4 ni ;
-10e “RTS = 4 ARR
-% Fr MT re ? 24 240 -
 |: LIINSRSEAEES NACRE
-te ARS EF AMEN ALERTE ; CRAN
-LS AE #4 FSU, in CN PONTOISE) | {KES
 
 qe At ne ul 4 F AE À PR AU VANNES :
 ent es NAN CIE ON OT NN
-RE 7 y AE EN A hot à Let ME ESS
-SE ph ESS $ : x . >) Farra ORAN Lt
-15, NAN } { ; ARE K' AU RME
 1) NES CNE ‘ por BAIN RENE N CE TOURS th)
-LR ATEN ANRSEES Fe À À APE Te 4 VAUT }
 #0 EN NENEUER
-WIN ! \ 4 LR UPS ANS
-NES DATE - Î 102 J €, COHEN
-FLAN mn ' Al SIL CEAPE
-Ne H 1: PERTE
-VA RAM (AR : 11) INRA
-Dar D ANS (ARE - 4 ! + HU) a, \
-Nr ATEN x AT (4 1 0 A LPRGERANIEE
 F he x) UNE LU h ” RUE : ROMANE per AO AU
-(ANTONIN } NERANIA NAT PAPA 4 HUE TOR RENAl LApA f
 1 MAUR. AN ANTTONES lt ‘ \ à 1e) ( NAN AIRONE 4 Mn \ DR j de
-(ER 7120 à {Ne Ê Nr! CANTON. VE) à AU} 1 AN EN 2
-D'OR \ RE RE ANS NM AUX MAN PIN ATEN ete ME RATE ANR EE AANRS ‘ it
 
 LE Fe PNA PAR LANTA DNA ES VU AT EE ui} 100 8 (He tt ENRERES
 
-CNP NET RP nn Een NADINE (iQ NCA AU
-RL IT DER AO 0 Re RS
-
-LA US PAS TA INRIT EPA PES 3. Lt...) * LÉ
 PR TEEN rs UN VAE LE x TN COR EN RT RS T
 DS PAPA CORRE a FRA: 34 152% LOI si 4 rés sa
-RASE à FAR SR à SE RTL re @e TV Miro à SECTE
 DOC er De de LS NE ti PE ns de
-LOVE PR RS LEA ET Ve NU NRA En “
-DRE SCTR PRESS A LE ET À LR: LEREUS
 DR ON LT 4e Pre US TA LEVÉE PR RNA RE
 ARR RAT de M AO.
 4: ve og RS RO RC NE NN TS He A CARE a 0 LS CURE
-LT ECS à } PSS NS “LR HE
-ae 1 à 4 " 3 ALTER >
-PU Dr pe ATOME TE
-LL ONE NUE M £ ” LÉREEE AREA LE
-Re + rte Fi On
-DA PO SE S re ER RER © Er }
-ER Ver é , sr5 PS SÉRIE
-Ds Re n TN MES
-Re D 21 Fu SE MAS © 4
-Ph a AS 18 FAT PÉTER
-NU EE d < , Le = LE EE
-PRE INFO
-+ "e PE IF Verte = À a 32%" MAT Mie]
 te ie à « s Tu CRT S
-È LT PEER Ft Ki FE L : 2758, {tee
-. SA LE MRERN CSS = #£ = :1 +144 Éd TE
 à Rip En A AC a SELS CL UN SEC BRU ee Gé
-* ANT EN TER LE RG NRA = PAS TE OI EURE Ra Sa er
-51 EPS OR RER D I Rae i
 vx À RSA PL BA RARE ALL AS Vos ds ;
-RAP PE ed | F.
 
-27 SANDER
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
@@ -5922,69 +5126,32 @@ est la série en cours, envoyer en un mandat à M. André :
 Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinzaine en quinzaine,
 à leur date, les cahiers à paraître de cette huitième à
-série.
 Voir à l'intérieur en fin de ce cahier les conditions
 ‘et le prix de l'abonnement. #
 Nous mettons le présent cahier dans le commerce;
 neuvième cahier de la huitième série: un cahier blanc
 de XVI + 152 pages; in-18 grand jésus; nous le
-vendons trois francs.
 
-__ DIXIÈME CAHIER DE LA HUITIÈME SÉRIE ï
-D EDMOND BERNUS J
 _ Polonais et Prussiens
-DE LA RÉSISTANCE DU PEUPLE POLONAIS
-É AUX EXACTIONS 3
-DE LA GERMANISATION PRUSSIENNE. —I
-CAHIERS DE LA QUINZAINE ;
 le paraissant seize fois par an LS
-ie PARIS si
 L 8, rue de la Sorbonne, au rez-de-chaussée x
 
 MA Nr pee ni FE Re PAS RRANE EN TE RENE ee
 Ne ee OR ad
-F PRIT A AT ERA VER NT Us EEE TT ER He
 
-Me Le a AGÈLE RARES MR SLA MRPRSE RS RADAR e à
 Ie Ne SNA Le ae On SA
 
-; D VEN CHEN OT SRE ee Se Rene 2 RTE SUÉRS ERA SUERS
-PRES HEAR
-
-RES RENAN : È LLC SRESNIES
-LE Leg VERS Û ï : BYE <5 T5 RENNES
 FC EST ENNEE Hate - Er ÉRIE
-ET A U % Ne St 9
-3) AC RORRTE S ñ ; LT ENS SSORRE
 TRE À + Da} Er épi Gas Ce Z MEET ns
 Re c? sa 2 LMRNE ETES ÉS
-CARE) ' PERS) D PE RTS :
-CRE EXT à k { SESLN RERSSEES
 
 So AN F : À stU se ee CET VNE
 
-417 re : : PILE SSP SENS D Fe SRE
-
 vo ha F JE dr t'iide Se NE PTS dis ri+
-MR DE RUE NE D fi M SATA “ DRE:
-Rav NOR Pa à RATE PR KR AS 1! NA£3 DR HAN LEVUE
-4 CRTARMEZ TEEN HE M D % YHAUTS AT ARN .
-PCR EL 2 *. LL + EE
-Ar TR 17 F $ {700
-; ee à (HA : £ 1 à} + ne
-MARNE + 4 i (13 WAR
 TR FE ja D kg LAN | L 0
-13 NATURES À ; " “+ AT ICE
-A RURES FAP f , RS
-si 410 5 VOS + :5 0
-[LE OYTAR ANNEE } Ne? #54, LES
-23 THAPÈTE FA 12" \ $. . d MEN 45:
 # 4 MT 027) OR d * Al ét
-nl Are NES Hi GERS TETE i e oi: ? ‘14 CEA
 ADN LES £ { (NPLDCRE MSN ul ce sr 107 RÉ ER
 VASTE DIRECT DM RUE Er ne a
-MORE er NUE: 1 57 CUP SR RTS TE A Ge Ed E AT RTRUES
-Ne Rs
 
 “ ii Nous avons publié dans nos éditions antérieures et
 ah dans nos cinq premières ‘séries, 1900-1904, un Si ï
@@ -6009,15 +5176,11 @@ A Bourgeois, administrateur des cahiers, 8, rue de la Sor-
 4) Ce catalogue a été justement établi pour donner, 8
 Li autant qu'il se pouvait, une image en bref, un raccourci, à
 4 une idée, abrégée, mais complète, de nos éditions anté- à
-Nip 414 # " ais >< 4
 4 rieures et de nos cinq premières séries ; tout y est classé \
 1 dans l'ordre ; il suffit de le lire pour trouver, à leur 1
 { place, les références demandées. ;
 \ Ce. catalogue, in-18 grand jésus, forme un cahier si
 à très épais de XI14-{08 pages très denses, marqué cinq À
-AM Ne.
-
-j Gubes (AIN « SRI AMEN NO
 
 | francs ; ce cahier comptait comme premier cahier de la "10
 Fr . sixième série et nos abonnés l'ont reçu à sa date, le A
@@ -6035,7 +5198,6 @@ maire de nos deuxièmes cinq séries, 1904-1909, On à
 ; peut consulter, — provisoirement, — la petite table ê
 analytique très sommaire que nous en avons établie et FA
 que nous avons publiée en fin du premier cahier de la ÿ
-huitième série. £
 | Pour amorcer tout travail que l'on aurait à commencer fi
 dans notre premier catalogue analytique sommaire, con- au
 sulter le petit index alphabétique provisoire que nous ‘4
@@ -6043,188 +5205,73 @@ avons établi automatiquement de ce catalogue analy- 2
 tique sommaire dans l'index total de nos éditions anté- # ee
 rieures et de nos sept premières séries, même premier ii
 | cahier de la huitième série. À
-. il
 
 an il je pate (RNA RUN ANA ONE ARE LEA Ace
-ARR oi FY ïk R LUN HG NV ASE AN TTEPAl HAN au à
-LENOIR Ed 1 INR ER
-En { | VA AREA SEE en Ve FE
 MA NT x ce À (AH AMEN
-:: LAURE f 0 RTE
-NE AA 40: OUT
-EL Um ï NAN R SO
 | MNPIAERS = alt RS
 | TOME TM NRAENE
-0 Aie : : 16 AURA NES
-LENS NT Hi)
-A LE A) FR PETER
-À (Ar N $ PORN à:
-A ATOM 1e} DS PARS
 | NT Ke À SIN URE en Al
-‘He nd À j PARA E AA © 77 1
-: FSU à L à 2€ HA EX DANONE:
-0 A AT y 7
-Dr, he 3 1e vu 2 RE
-HN : PT
 Ù ni ÿ LATE
-fi LA EL | M1 k PA 7
-(00 À # K (il
-Ÿ 110404 L il à wi AA NON
-MCE y sh d f li er à
-“MUR ; Fe À LM : AE
-AT 1) ï ni RE CN) LINE
-à 1 TR UC NON
-* OV dy ete qu Ÿ
 
-Le," Sao | ti #4
-Er y : NN. %
-SU Ne
 # ; ‘ $
-es Lee "
-E WE : É ni
-‘ 2 L 1 +50
 
-h ! * “Rte
-2 è 0
-no L: 0 z. R D
-pe k ee * h
-F Polonai | À
 3 olonais et Prussiens … #à
 
-r * FR
-
-il À « é ' sé 4
-
-“HART 1:
-CN L'ETAT
 FAIRE V2} Reis)
 
-ÿ 1! 4 :
 (JE CVS RER LS DS EE TR Ge Sa ne
-REA 7 RE D NS LES TOME ÉTUDE 0 MREMIRRR RN ]
-AU LL RES
-a DU MÈME AUTEUR 1100
 He * aux Cahiers de la Quinzaine ee
-va t
-12e 4 te FRE
-4 AE » L: 1
 : 470 Le présent petit index donne automati- : US
 ( 14 Ÿ quement pour tout volume et pour tout $ 145 20
 | \ 748 cahier indiqué : : 14
 | T1 a) le numéro d'ordre de ce cahier dans ù à a
 4 PA le classement général de nos collections # 1 108
 SRE complètes, le numéro d'ordre de la série De à
-: SPP étant naturellement composé en grandes F4
 FER capitales de romain et le numéro d'ordre
 Fe Ms du cahier lui-même, dans la série ainsi ‘10
 NT déterminée, en chiffres arabes, de sorte HUE
 É pa dr: à que V-17 par exemple doit évidemment se 4" 7
 CT lire dix-septième cahier de la cinquième < * A
-1200 série ; ù "4 V1r04
 AA. b) la date du bon à tirer, ou, à son dé- à RACE
 L10ES faut, la date du fini d'imprimer, ou, à son 12
 M0 défaut, la date du cahier même; . MS.
-1e | * SE
 5 en c) le prix actuel; VENUS
-k #i
 A ; d) quand il y a lieu, c'est-à-dire pour nos (at + k
 mil, éditions antérieures et pour nos cinq pre- T4
 + TER mières séries, la page du catalogue ana- 21!
 1 lytique sommaire où ce cahier se trouve f Vie
-Hi Ne catalogué. ‘#53
 | ‘0 + W
 Us [ER Edmond Bernus, — La Russie vue de la Vistule, — histoire
 # ‘a de 1895 (I-17, mardi 3 juin 1902............. un franc 148 20
-Ja
-* Fe ' #6
-i mi: DR 10
-É PR
-Reel! PMPEUL Li
-+: 600 } CAL 2 2
 
 MARS RS CE Faniee 0 ‘ / re 44
-“' Je À ‘3
-Fe k D:
-À DE LA RÉSISTANCE DU PEUPLE POLONAIS ‘4
-a : y
-"3 TF3
 | mou
 = AUX EXACTIONS de D.
-DE LA GERMANISATION PRUSSIENNE
-
-Lg. 3 De:
-4 ; + ee
-
-/ L EN
 
 DA LIN mes!
 
-AA NP ONE MAT ER & LOUE A A NA SA EANNINM, Etude;
-PE 4 MR ia
-RUE l \ se Hh?
 : 11 cahier pour la fabricat ï UN
-1 SNA LL ÉSINEENrES
 
 6 4 de ce nouveau Reichstag
 
-er j HS f US Tee
 [EAN NAN AE SANS ha (ue ù
 
-"NE me \. 11 1 JNTRMORTS
-NTI f HAE RE tra Ey
-\ We “ A f L ne ”' nur Lu
-Ne k MIE F2
-AJ y À 27 ONE
-‘ei ! ; 4: Se
-
-+ PP Dre , 11 ta
 te HAE ÿ ro Ga DU
-19200) A NON
 qui 4 je NU AE
-y MS UT OT NNR
-
-1 NOTE
 
 i PAU RAT Eee PARU RE AS 1 De EU
-RARES CRT TENUE PRE Le MINIER
-MAS: 44 }, + a Ç ‘ F' j “ ‘4 }
-Ês LOTS ASE AT , (ETS
-LP TERRES $ nt:
-ar 1
-< Au
-er . EURE:
 i à la mémoire de notre ami Gustave Canton ‘708
-nn.
 # Edmond Bernus et Charles Péguy 110
-k F L Hi 1
-1 J 114008
-T1} À
-HU { 2 *i
-ARE : {5
-M: ; 573)
-$ Frs Ê f 3
-PPS * , PO
 
-UT ART ON ER CAT AN RARE AMAR S AL MORE
-ne j AURA ( NU AA 1 | ERA HA ï AA NT "3 a };
 EAN NA ANUS Pie AUD Al 1 3 CARE IN BAUAUE AA PAL 4 | il
-"ANT ÿ A 1.41} HONTE TS UENES
 Une rt Î 2 ANR NET
-Ro k ( ( SAMU NAN
-REA: à x \ TL (ATEN TES
 | EIRE ‘ UN RENPORAUNES
-AN: f Û Pa LA AO AMEN
-EN j F.| À 4,10 AS GNRTANENE
-AO +3 De TN :1 CAE
-Fe \ 1 } ù DA 0 el MENT 1!
 
-; ‘3
 Dans cette étude, j'essaie de donner une idée d'en- ci
 : semble de la question polonaise en Prusse et de montrer 44
 les principales péripéties d'une lutte qui, pour n'être pas 3
 sanglante, n'en est pas moins vraiment dramatique. Le ‘
 sujet est peu connu en France. Or, il doit attirer notre #
-attention.
 | D'abord, parce que toute question de justice mérite & |
 d'être étudiée; le moins-que l'on puisse faire pour une
 causejuste, c'est de ne pas l'ignorer. Ensuite, la politique 120
@@ -6242,7 +5289,6 @@ Ce travail est naturellement très incomplet. Des sta- “4
 1 tistiques essentielles font défaut, parce qu'elles nemont : y
 pas été abordables. Il aurait été nécessaire de dépouiller À 5
 
-44 __ Edmond Bernus Ko
 Me bien plus de journaux provinciaux et locaux que je n'ai
 pr pu le faire. Il aurait fallu, en particulier, lire les prink cipaux périodiques galicièens, où l'on trouve tant de |
 dr choses que les journaux de Posnanie ne peuvent dire.
@@ -6257,7 +5303,6 @@ Cette étude n'est pas autre chose que de la simple
 consciencieuse. Pour qu'elle puisse étre utile à ceux qui
 voudraient entrer plus avant dans le sujet, il a été néces-
 | saire d'accumuler les notes bibliographiques et les
-renvois.
 | Elle a entre autres le but de remettre en honneur un vieux principe français un peu négligé : le
 principe des nationalités. Les socialistes ont une
 ) Jâcheuse tendance à oublier l'importance capitale du
@@ -6266,9 +5311,7 @@ f dédain, parce que tant que les questions nationales ne ;
 | seront pas réglées selon l'équité, elles encombreront }
 | le terrain et retarderont d'autant les progrès d'ordre
 social ou économique.
-k
 
-A ee
 pe POLONAIS ET PRUSSIENS 4
 Je prie le lecteur de remarquer le caractère de l'op- à
 pression allemande, qui diffère essentiellement des op- ne
@@ -6276,7 +5319,6 @@ pressions russe, turque ou anglaise. Ce n'est pas tant 4
 la brutalité qui en fait l'originalité; c'est son esprit |
 pédantesque, mais en même temps méthodique, je dirais
 presque scientifique. Et c'est ce qui la rend particulière- |
-ment dangereuse.
 La mentalité allemande actuelle mérite la plus grande
 attention. Nous croyons que dans aucun autre pays le j
 nationalisme n'est devenu aussi étroit, aussi égoïste, à
@@ -6294,25 +5336,17 @@ général. À la fin d'une des brochures les plus violentes \
 contre les Polonais, (2) dans laquelle l'auteur regrette F
 que la Prusse n'ait pas imité l'exemple de la Russie 18
 après 1863,on trouve une réclame en faveur d'un livre : ï
-( Sohnrey : Eine Wanderfahrt durch die deutschen Ansiedlungs- 3 '
-/ gebiete in Posen und Westpreussen, page 208. 1
 
-(2) Kietz : Ceterum censeo, Zur Einführung in die Polenfrage. Ê:
-Leipzig. 1902. à
-
-D 0 0 00" Edmond Bernue) |: 0000
 ‘1e sur la guerre sud-africaine. Or, le premier chapitre de 4
 
 :R ce livre anti-anglais est intitulé « Le droit du plus à
 
-100 fort »! ; É
 1 Cette contradiction flagrante dans l'appréciation de À
 
 ANT faits de méme nature doit nous faire faire un petit
 72 retour sur nous-mêmes. Ce ne serait pas être sincère
 
 “4 que de ne pas rappeler une circulaire de notre ministre
-FANS © ji F $
 “1 di Combes relative à la langue bretonne. Si nous éprou-
 
 ne vons une juste indignation pour la manière dont le
@@ -6320,23 +5354,14 @@ me gouvernement prussien cherche à extirper la langue È
 11 polonaise, que devons-nous penser d'une nouvelle comme
 ‘Li celle-ci, que je prends parmi plusieurs analogues ? 4
 he « L'abbé Richard, desservant de Ploudaniel, est privé 4
-‘à Ar « DT $
 
 pi A _ de son traitement par le ministre des cultes pour l'emk 1 À ploi abusif de la langue bretonne dans l'exercice de son
-L Las D > = 3
-150 ministère. » \ ;
-LATIN * » SCOR
 Ur Je ne songe pas à comparer nos Bretons aux Polonais. F
 | 14 Mais l'écrasement d'un idiome est partout une mesure à
 R: jé odieuse. Si les fautes des Allemands peuvent nous
 STE inculquer un peu plus de tolérance et de libéralisme, ce 4
 LUE sera tant mieux. ; 1
-. ho ) \
-Fais Edmond Bernus 4
-f44 hi, * ? pas
 
-CHAPITRE PREMIER k 4
-: : Ÿ 4
 | Le temps est loin où les Slaves occupaient toute A -
 l'Allemagne orientale jusqu'à l'Elbe et au delà. Dans la . dé |
 longue lutte entre la race slave et la racé germanique, Ja
@@ -6367,10 +5392,7 @@ est chassé, c'en est fait : un peuple de plus est mort. Ne:
 I y a une grande mélancolie dans la mort d'une 44
 nationalité, quelque petite qu'elle soit. 10
 
-15 ‘4 à
-
 We ÿ Polonais et Prussiens | |
-PAT UT
 y) Les Polabes, (1) qui furentles derniers Slaves de 1
 ) l'Elbe, sont morts. Encore dans les premières années
 An du dix-neuvième siècle, Hennings (2) a entendu quelques
@@ -6397,16 +5419,11 @@ débris d'une race que les Allemands ont affaire ici.
 . C'est à une nation. Et à une nation qui eut une histoire
 s glorieuse, qui possède une langue littéraire illustrée par
 (1) Sur les Polabes, voyez Tetzner : Die Slaven in Deutschland.
-Braunschweig, 1902, pages 346-387.
-(2) Hennings : Das hannoversche Wendland, 1862.
 6) Sur les Wendes, voyez Tetzner : Ouvrage cité, pages 282-349,
 avec bonne bibliographie.
 (4) En Silésie, il y avait encore, en 1891, 4.260 élèves des écoles
 primaires qui ne parlaient que wende. Voir Statistisches Hand- œ.
-buch für den preussischen Staat. Volume II, 1895,
-F
 
-4 DE LA RÉSISTANCE DU PEUPLE POLONAIS 5
 . de grands écrivains, qui, bien que déchirée en trois
 lambeaux, est consciente de son unité morale. En
 Prusse, les Polonais n'ont pas voulu mourir; ils ont su ;
@@ -6429,15 +5446,12 @@ combien il était à la fois illogique, injuste et néfaste de  -
 refuser des droits nationaux aux Ruthènes, tout en É
 se réclamant du droit des nationalités pour la Pologne.
 Tant qu'il en sera ainsi, la Pologne autrichienne fournira des arguments aux Allemands, qui essaient de
-légitimer leurs propres brutalités. (1)
 © Il suffit de jeter un coup d'œil sur une carte de 1
 la Prusse, pour se rendre compte combien redoutable
 est l'adversaire que le colosse germanique avait
 longtemps méprisé. Adossés à la Pologne russe,
 (1) Voyez dans l'Ostmark les nombreux articles intitulés Choses ;
 de Galicie.
-17. :
-À
 
 La Polonais et Prussiens RER PEINE
 nu appuyés sur la Galicie, les Polonais prussiens occupent !
@@ -6447,8 +5461,6 @@ ne à Cette partie de la Grande Pologne forme un bloc com- |
 4 * pact, où mille souvenirs rappellent les temps glorieux J
 ii de l'histoire nationale. La ville de Posen est restée La
 capitale intellectuelle et morale des Polonais de la
-1 Prusse. 1
-HAE! . . . à
 1h À A l'ouest de la province, il est vrai, les vagues ger- |
 th maniques viennent battre le pays polonais et forment
 : une bordure de défense vers le Brandebourg. De même, |
@@ -6457,124 +5469,82 @@ th maniques viennent battre le pays polonais et forment
 (4 Frédéric IL, l'élément allemand ronge le nord dela pro
 ni. vince, mais sans avoir pu réussir à intercepter les
 0 communications avec les Polonais de la Prusse Occi- |
-dentale. (2)
 ui (1) On trouvera des cartes linguistiques dans l'ouvrage de
 ji Tetzner déjà cité. On peut consulter en outre la carte de Petzet
 (HAE (Die preussischen Ostmarken), un peu trop favorable aux AlleAV mands. La meilleure carte pour la Posnanie et la Prusse Occi- k
 A ts dentale est celle de Langhaus : Xarte der Tätigkeit der Ansiedlungs-
-+0 kommission. Gotha. Perthes. 1905. <
 ta: Voyez aussi la huitième édition de la carte publiée dans le
 Fe cinquième numéro de Deutsche Erde, qui donne les résultats du
-ATTE dernier recensement. (Gotha. Perthes)
 eu (2) Les cercles suivants ont une forte majorité polonaise : à
-Fi Inowrazlaw, Wongrowitz, Znin, Schubin, Mogilno, Strelno, y
 WE Gnesen, Witkowo, Samter, Obornik, Graz, Posen-Ville, Posen-Est, 4
-hi a Posen-Ouest, Schroda, Kasten, Schmiegel, Schrimm, Rawitsch,
-Dsl Gostyn, Krotoschin, Koschmin, Adelnau, Ostrowa, Schildberg,
 an Kempen, Wreschen, Pleschen, larotschin. l
 IR Les cercles suivants ont une majorité allemande, mais avec une
-17 forte minorité polonaise : Czarnikau, Filehhe, Colmar, Wirsitz, à
-Det Bromberg-Ville, Bromberg-Campagne, Birnbaum, Meseritz, Bomst, Ÿ
-Aie Neutomischel, Fraustadt, Lissa. À ÿ
 AU! Seul, le cercle de Schwerin est presque complètement allemand. d
 il Pour la statistique de 1890, voyez Gehre : Die neue deutsche
 à ASE Kolonisation in Posen und Westpreussen, pages 7-16. de
-h 18 ;
-UE = fl
-EL . x Ke
 
 Min ES, à Ga NAN Pr ei ha des F
 éd: AUS 1 hit RÉ Si ne Den ME  - CAO EE ATTAIE NE HRAIGE '
-‘4 pe > ATP DE LA RÉSISTANCE DU PEUPLE POLONAIS ‘178
 n:, Le recensement linguistique du premier décembre ‘tt
 ? 1890 indiquait pour la province de Posen 692.172 Alle- e
 ; mands contre 1.047.409 Polonais, auxquels il faut ajouter 4
 ï 636 Cassubes et au moins la moitié des 10.185 habitants où
-va
-; ayant déclaré être bilingues. (1) #
 ; Moins nombreux en Prusse Occidentale, (2) les Polo- Fe
 û ( ») Pour la statistique, consulter les ouvrages suivants : TUE
 | Freiherr von Fircks : Die preussische Bevülkerung nach ihrer LUE
 Muttersprache und Abstammung, dans Zeitschrift des Küniglichen "he
 preussischen statistischen Bureau, trente-troisième année (Berlin +0 » 1893), pages 189-296. “4
-Preussische Statistik : Cahier 121, première partie : Die end- "hi
-à güältigen Ergebnisse der Volkszählung vom preussischen Staate 1x
-vom à nf 1890 (Berlin 1893). * ds
 Die deutsche Städtestatistik im Beginne des Jahres 1903, dargestellt Ms
 L nach den Verôffentlichungen der statistischen Aemter deutscher 4%
 Städte. (Supplément au volume VI de l'Allgemeines statistisches er
-Archio. 1903) 1 1°
 Docteur Zahn : Die Bevôlkerung des deutschen Reiches im + H
 neunzehnten Jahrhundert auf Grund der deutschen'und internationalen Et
-Bevôlkerungstatistik. 1905. 44
 é Pour le dernier recensement : Die Volkszählung am ersten Tan
 Desember 1900 im Deutschen Reich. (Statistik des Deutschen #74
 Reichs, volumes CL et CLI). Berlin. Puttkammer und Mühlbrecht. ‘44
-L 1903. ‘4
 . Un extrait de cette statistique se trouve dans les Annales de 4
 1 Géographie, numéro 74, quatorzième année, pages 118 et suivantes. 18
 Pour les statistiques antérieures, on peut aussi consulter : LA:
-Bôckh : Der Deutschen Volkszahl und Sprachgebiet. Berlin, 1869. 108
 (2) A consulter sur la Prusse Occidentale : * dr
-Schmitt (F. W. EF.) : Die Provinz Westpreussen. Thorn, 1879. +4
 Wegner : Kulturgeschichte des Schwetzer Kreises. Posen, 1872. 00
-Docteur Vallentin : Wes'preussen seit den ersten Jahrzehnten 4
 dieses Jahrhunderts. Tübingen, 1873 (qui forme le quatrième volume f 22
 des Beiträge zur Geschichte der Bevôlkerung in Deutschland.) À
 Voyez aussi Neumann : Germanisierung und Polonisierung dans Me.
-Conrads Jahrbücher. Neue Folge, VII. ; ‘sie
 Pour la Prusse Occidentale et Orientale, il existe une excellente
 bibliographie de tous les articles parus sur ces deux provinces #50
 dans les revues allemandes jusqu'en 1896 : Docteur Otto Rauten- 400
-*berg: Ost-und-Westpreussen. Ein Wegweiser durch die Zeitschriften- .
-Literatur. Leipzig, 1897. 3 \ î ùe
 . Pour la statistique ancienne, il est bon de se rappeler que, de BAS
 1824 à 1877, la Prusse Occidentale et la Prusse Orientale étaient "44
 | réunies en une seule province. 4
 19 4
 L fr he . ,' LM CORRE
 
-RAM EN NP EN NN
-FioAl k \ DO IRORARONTE
 , 114
 Polonais et Prussiens ;
-ï
 nais y occupent cependant de solides positions. Dantzig 7
 ‘ et ses environs, Marienwerder et tout le coin du sud- de
 ouest (Deutsch-Krone, Schlochau) leur échappent. Mais, le
 par Tuchel et Karthaus, ils rejoignent la mer (vers }
 Neustadt et Putzig), tandis qu'au sud-est, par Strasburg ù
 et Lôübau, ils tendent la main aux Masoures de la Prusse ‘
-Orientale. (1)
 Si l'on considère que la Prusse Occidentale échut à la |
 Prusse dès 1772 (moins Dantzig et Thorn, acquis en à
 1793) et que Frédéric II eut le temps d'y pratiquer la
 colonisation allemande sur une vaste échelle, on est
 étonné que la population polonaise n'ait pas diminué
-davantage.
 Au premier décembre 1890, la statistique officielle À
 accuse 483.933 Polonais (y compris les Cassubes) contre
-929.980 Allemands.
 ! Une statistique scolaire de 1886 donne des chiffres
 intéressants sur la langue maternelle des enfants des
 écoles primaires : sur 239.761 élèves, 143.190 (environ
-60 0/0) ne parlaient qu'allemand, 82.800 (environ 34 0/0)
 polonais et 13.771 (environ 6 o/o) savaient les deux |
-langues. |
 Il est à remarquer que beaucoup d'habitants de la ï
 * Prusse Occidentale parlent le cassube. Les Allemands À
-À
 (1) Les cercles suivants sont presque totalement ou en grande ï
-majorité allemands : Elbing-Ville, Elbing-Campagne, Danzig-Ville, ;
-Danzig-Niederung, Deutsch-Krone, Marienburg, Rosenberg, 1
-Schlochau. |
 Les Polonais sont en majorité dans les cercles de : Neustadt,! '
-Putzig, Karthaus, Berent, Preussisch-Stargart, Dirschau, Schwetz, |
-Konitz, Tuchel, Lôbäu, Strasburg, Briesen, Kulm. 1
 Ils représentent une minorité importante dans les cercles de : |
 Stuhm, Marienwerder, Graudeuz, Thorn et Flatow.
 
-ne" , DE LA RÉSISTANCE DU PEUPLE POLONAIS |
 n'ont pas manqué de faire une distinction entre les Cas- j
 subes et les Polonais. Au Reiïichstag, dans la séance du |
 ÿ 14 janvier 1901, le député Czarlinski protesta contre les
@@ -6584,7 +5554,6 @@ rence, disait-il, entre ces langues et le polonais
 qu'entre les différents dialectes allemands. » Le cassube est-il un dialecte nettement polonais? (1) Peu
 importe, car politiquement tous les Cassubes sont
 Polonais, et la cause nationale n'a pas de plus chauds
-partisans.
 A l'Ouest, les Polonais dépassent un peu la frontière
 provinciale et pénètrent en Poméranie. (2) Lors des élections pour le Reïichstag, en 1898 et en 1903, ils n'ont pas ,
 craint de se compter dans les circonscriptions de StolpLauenburg et de Butow-Rummelsburg; leur candidat
@@ -6603,8 +5572,6 @@ M. Berka a publié un dictionnaire cassube (Varsovie, 1891).
 la Poméranie qu'en 1815.
 (3) Voyez Ostmark, IL, 4. Der polnische Anschlag auf Pommern.
 A luniversité de Greifswald, les étudiants polonais se sont
-constitués en société. Voyez Ostmark, VI, 3, page 35. ;
-21 F
 
 1 (ii ki RAT ROMANE pe ARE h TU AE FER We : ie TRS W que TR
 x ‘No Polonais et Prussiens NUL HN
@@ -6628,7 +5595,6 @@ TN terrain. (° fallu des ci iculiè
 JE errain. (3) Il a fallu des circonstances particulièrement
 PA favorables, pour qu'aux élections de 1893, le candidat
 Hi olonaïs fût nommé au Reichstag. Depuis lors, le Centre
-in P 8: Dep ; ‘4
 “2 _a reconquis cette circonscription, qu'il est habitué à
 su (1) Voyez Tetzner : Ouvrage cité, pagés 388-440, avec bonne à
 D / bibliographie et carte. À
@@ -6636,23 +5602,12 @@ D / bibliographie et carte. À
 je pa éditée en 1898. +
 1:10 (2) Voyez Tetzner : Ouvrage cité, pages 441-468, avec bibliographie |
 ON) et carte. À
-4 ': Conférez Lecgowski : Kaszuby i Kociewie. Posen, 1892. +1
 4000 (3) Dans le cercle de Rôssel, on comptait, en 1861, 8.548 Polonais Li
-Ni contre 35.591 Allemands; en 1890, 7.588 Polonais et 41.733 Alle- ;
-au mañds. | gr.
 10 1 Dans le cercle d'Allenstein, il y avait, en 186x1, 35.391 Polonais et. ‘1
-MAL 12.510 Allemands ; en 1890, 41.404 Polonais et 36.172 Allemands. 3 '
-: } MARAIS 22 F3
-‘is AR
-M no ! « A
-4 b 1 AURA « ah: dt ut ie Hs AR HS ARR AUS à Hé w' h
-er DE LA RÉSISTANCE DU PEUPLE POLONAIS 714
 considérer comme un de ses fiefs. (1) Les Polonais n'ont 11
 du reste pas abandonné la lutte. Un journal parais-
 
-LA
 sant à Allenstein, la Gazseta Olsztynska y défend leur 1
-cause. ÿ.
 Si la Warmie n'est pour ainsi dire qu'un fort détaché, De
 la Masourie (2) pourrait au contraire devenir pour les 4
 Polonais un solide bastion de défense, auquel sa position donne une importance relativement considérable, #
@@ -6668,18 +5623,12 @@ dau, et à mesure qu'on se rapproche de la frontière ë
 | langue . écrite est le polonais littéraire, qui seul est à
 émployé pour les prédications. Il faut noter aussi A}
 ( ») Aux élections pour le Reïchstag, le candidat polonais obtint, 2)
-en 1895, 5.067 voix contre 9.322 en faveur du Centre. En 1903, il D
 men obtenait plus que 3.862 contre 10.376 pour le Centre. AY
 (2) Sur la Masourie, voyez : 4
 + Tetzner : Ouvrage cité, pages 181-211, avec carte. 13
 Zweck : Masuren. Stuttgart 1900 (avec bibliographie complète). o
-Ostpreussen : Land und Volk. Stuttgart, 1905. 148
 Statistik des Deutschen Reiches. Neue Folge. Band 39. Tome I (Ber- 55
-lin, 1891). Pa
-; Gemeindelexikon für die Provinz Ostpreussen. Kônigsberg, 1898. *
-Ambrassat : Die Provinz Ostpreussen. Kônigsberg, 189%. EN
 j Pour ce qui concerne les écoles primaires, voyez : ÿ
-Sensfuss : Schulchronik von Gross Rosonsko. 1883. ‘ LU
 Kwiatkowski : Geschichtliche Entwickelung des Volkschulwesens dE
 L in Ost-und- Westpreussen. Kôünigsberg, 1880. * d
 
@@ -6712,12 +5661,7 @@ portent encore aujourd'hui des noms de localités masoviennes. Lors de l'introdu
 cercles d'Ortelsburg (82 0/0), de Johannisburg (8r 0/0), de Neidenburg (37 0/0), de Lyck (69 o/o), et de Sensburg (63 0/0). Ils repré-
 sentent une minorité importante dans les cercles d'Osterode
 
-(49 0/0), de Marggrabowa (36 0/0) et de Lôtzen (32 0/0).
 : (2) A Weissuhnen (année scolaire 1897-98), sur 199 élèves primaires, 173 ne savaient pas l'allemand; les 24 autres parlaient les
-
-deux langues,
-
-DE LA RÉSISTANCE DU PEUPLE POLONAIS
 
 était complètement polonais. Marggrabowa fut fondée,
 en 1560, comme ville purement slave. Ce n'est qu'en
@@ -6740,7 +5684,6 @@ Kleszowen, Goldap, Szabienen, Dombrowka et Nordenburg. Après la mort de Rättig
 un ralentissement, mais reprit de plus belle à partir de
 1866. Au commencement du dix-neuvième siècle, la proportion des communiants polonais, dans la paroisse
 d'Angerburg, atteignait presque 73 0/0; en 1885, elle
-était tombée à 2 1/3 0/0.
 
 En 1895, d'après Zweck, les Masoures ne forment
 plus que les 53 0/0 de la population de la Masourie. Il y
@@ -6750,8 +5693,6 @@ Si la germanisation de la Masourie est encore loin
 
 (1) Dans les comptes d'église d'Angerburg, on voit des noms
 polonais se substituer peu à peu aux noms allemands des localités.
-
-25 Bernus. — 2
 
 a, . Polonais et Prussiens DANT\TER
 1 À d'être complète, cela tient avant tout à la nature sau1 ne vage de ce pays, dont l'accès a été longtemps peu aisé.
@@ -6780,13 +5721,8 @@ Prinowen, l'instituteur était un garçon de treize ans; à
 Wilkowen, un gamin de quatorze ans était censé faire .
 la classe, Lors d'une inspection scolaire, en 1740, il se
 | trouva que, des cinq maîtres de la paroisse de Gurnen,
-‘(1) Voyez Pisanski : Nachricht von dem im Jahre 1656 geschehenen
-Eïinfaile der Tartaren in Preussen. Kônigsberg, 1764.
-(2) Voyez Tetzner : Ouvrage cité, page 204.
-ÿ 26
 #9)
 
-4 DE LA RÉSISTANCE DU PEUPLE POLONAIS 28
 aucun, excepté le recteur, ne savait écrire. Encore en i +
 
 1821, le gouvernement se plaint de l'ignorance des in- ii
@@ -6820,15 +5756,12 @@ chemins de fer. Un nouveau canal doit mettre le sy- “4
 stème des canaux masoures en communication avec le Ki:
 Pregel. Dès 1879, la ligne ferrée Insterburg-Goldap- ;
 1 ; 10) Skovronnek a peint, dans ses Nouvelles, le milieu masoure. à
-4 Voyez : Polska Maria, 1888; Masurenblut, 1899, etc. a:
 È (2) Voyez la photographie d'une chalupa dans Zweck, page 931. ;
 (3) La Masourie est certainement la contrée la plus pauvre de la fi
 
 Prusse orientale. En 1805, le district de Gumbinnen accusait, a.
 
 après celui de Posen, le moins d'habitants possédant un revenu Fe
-
-1 de plus de 3.000 marks (1,74 0/0). 3
 
 Fe Polonais et Prussiens .
 
@@ -6863,16 +5796,11 @@ entre eux et à se laisser facilement germaniser. (2)
 
 1 (1) Il n'y a guère plus de 20.000 catholiques en Masourie. Le catholicisme y fait des progrès très lents par Pimmigration de Polonais
 russes. Dans le cercle d'Ortelsburg, les catholiques représentaient,
-en 1845, 6,84 o/o de la population; en 1871, 7,9 0/0; en 1895, 9,47 0/0.
 
 (2) Voir Die Polen im rheinisch-westfälischen Steinkohlenbezirke
-(Munich, 1901), pages 88-90.
-
-Fou]
 
 i-1é ENS COPA AO En a RM Tee CHERE de ls
 D es Étinb et, FU HUN A NN
-DE LA RÉSISTANCE DU PEUPLE POLONAIS a
 ste Pourtant, ces dernières années, les Polonais ont fait à
 quelques efforts pour gagner les Masoures à leur cause, %
 mais sans méthode et sans continuité. Un journal antiallemand, la Gazeta ludora, qu'ils essayèrent de lancer
@@ -6896,19 +5824,13 @@ les Masoures au sud. (4) D'après le recensement du pre- ke.
 mier décembre 1890, il y avait 114.915 Lithuaniens dans KE:
 (2) Depuis le premier juillet 1905, un journal polonais, le Goniec à
 Mazurski, paraît à Osterode. Voyez aussi Ostmark, IL, 6, page 42,
-et IX, 1. L
 (2) Nous ne citons que pour mémoire les quelques centaines de
 Raskolniks russes établis en Masourie; ils s'abstiennent de toute :"
 politique. Voyez Zweck : Masuren, pages 180-189, et Tetzner :
-Ouvrage cité, pages 212-248. a
 (3) Sur la population lithuanienne de la Prusse, voyez Tetzner :
-Ouvrage cité, pages 24-112; — Zweck : Litauen (Stuttgart, 1898); —
 Girenas : Die litauische Frage (Tilsit, 1888), et Ueber einige Miss- “4
-griffe (Tilsit, 1894). j
 * (4) A Dubeningken, on prêche plusieurs fois par an en lithua- |
 nien et en polonais. È
-4 29 Bernus.— 2, “
-LA 4
 
 nu Polonais et Prussiens LLRT ENT h.
 Au la province. Ils sont encore une centaine de mille, (x)
@@ -6916,7 +5838,6 @@ formant un groupe assez compact dans les cercles de
 Fa Memel, Heydekrug, Tilsit et Ragnit, mais représentés ;
 w aussi dans ceux de Pillkallen, Labiau, Insterburg,
 is Stallupünen et Goldap. La grande majorité est protes14 tante, ce qui les sépare de leurs frères de la Lithuanie
-it f
 fi russe. Cependant les points de contact sont nombreux.
 44 Depuis qu'après la terrible répression de 1863 par le
 4 Pendeur Mourawief, il fut interdit d'imprimer en Russie j
@@ -6935,18 +5856,14 @@ droit de parler leur idiome non seulement à l'église,
 Ps de Memel-Heydekrug envoya au Reïichstag un député
 ÿ lithuanien. (4) Si la Lithuanie russe obtenaïit son auto-
 (1) D'après le recensement de 1900, ils ont un peu diminué. En k
-1890, il y avait 3,93 Lithuaniens sur 1.000 Prussiens ; en 1900, 3,08.
 (2) Malgré les tentatives du gouvernement russe d'opposer
 Lithuaniens et Polonais. Voyez Temps, 2 décembre 1905: Les reven-
-+ dications lithuaniennes. :
 (3) 11 ne faut cependant pas oublier que les Lithuaniens allemands étaient dès 1422 sujets de l'Ordre Teutonique, et que leur
 histoire ne se sépare pas de celle de la Prusse.
 (4) Aux élections de 1903, il échoua avec 4.084 voix. Le parti
 lithuanien se compta aussi dans les circonscriptions de Tilsit- |
 Niederung (1.537 voix), et Ragnit-Pillkallen (391 voix).
-À
 
-ou DE LA RÉSISTANCE DU PEUPLE POLONAIS $ n
 | nomie, le mouvement reprendrait sans doute en Prusse ï.
 avec une vigueur nouvelle. En tout cas, il ne saurait
 être indifférent pour les Polonais d'avoir des alliés de R
@@ -6958,7 +5875,6 @@ Silésie, c'est-à-dire presque tout le district d'Oppeln, (1), 16
 appartient aux Polonais, qui sont même représentés LE
 par d'importantes minorités dans trois cercles du di- 4
 strict de Breslau. (2) Et ce n'est pas un apport négli- 4
-Le
 geable que celui des Polonais silésiens. Ils sont à l'heure ë
 actuelle plus d'un million. Par eux, la Posnanie se M
 trouve reliée à la Galicie, de sorte qu'il y a une popula- LE
@@ -6967,13 +5883,10 @@ jusqu'à la mer Baltique. Si les rêves les plus hardis des 5
 Polonais se réalisaient, la Prusse Orientale, avec #
 Kônigsberg, se trouverait isolée, détachée du corps de la e
 (x) Les Polonais ont la majorité dans les cercles de Kreuzburg, FX:
-Rosenberg, Lublinitz, Gross-Strelitz, Oppeln, Kosel, Tost-Gleiwitz, ÿ
-Beuthen-Campagne, Tarnowitz, Zahrze, Kattowitz, Pless, Rybnik 408)
 et Ratibor. 4
 Ils forment une minorité importante dans les cercles de Falken- 74
 berg, Neustadt, Beuthen-Ville et Leobschütz. Seuls, les deux 4
 cercles de Grottkau et de Neisse sont presque exclusivement alle- 4
-mands. 45
 ! (2) Cercles de Gross-Wartenberg, Namslau et Brieg. Fi
 Il y a en outre de petites colonies polonaises dans plusieurs 1e
 villes de la Basse-Silésie. En 1890, il y avait à Liegnitz 5.500 Polo- ei
@@ -6984,10 +5897,7 @@ k La Deutsche Zeitung (1898, numéro 83) pousse un cri d'alarme, 1
 parce que les Polonais augmentent à Gôrlitz. Ce journal exprime
 la crainte assez chimérique qu'ils ne se servent de ce poste Re
 avancé pour fomenter un mouvement particulariste chez les ‘pi
-:  Wendes. 6 fe
-. pe 31 2
 
-N 3 : LOMME +0
 Polonais et Prussiens
 Prusse et en grand danger de tomber complètement
 sous l'influence slave.
@@ -7020,7 +5930,6 @@ Matter : La Prusse et la Révolution de 1848, page 73.
 32 ,
 
 7% ÿ 1 O8 au PRE ai dr fi 7 Fa A de ADS NES ET LEP EUL  MPETR
-DE LA RÉSISTANCE DU PEUPLE POLONAIS 'k
 le Katolik, le premier journal polonais en Silésie. à.
 Bismarck, cherchant à terrasser son terrible adver- N
 
@@ -7031,8 +5940,6 @@ dans leur langue, : c'est-à-dire dans ce qu'une nationalité a de plus précieu
 
 la lutte nationale en même temps que la lutte reli-
 
-gieuse. (1)
-
 Ce qui suivit est dû au travail lent et patient du parti
 polonais, dont le centre est à Posen. Pourtant une difi- |
 culté particulière se présentait en Silésie. Les habitants
@@ -7041,19 +5948,15 @@ que les Allemands appellent le Wasserpolnisch (mot à
 mot : le « polonais aquatique »). Mais à l'heure actuelle, #
 le polonais pur a fait d'immenses progrès, si bien que ÿ
 le dialecte silésien n'est plus une entrave à l'action :
-nationale. (2) ÿ
 
 La société Marcinkowski envoya systématiquement
 des boursiers dans les villes de Silésie. La presse fut |
 organisée. A côté du Xatolik, ouvrier de la première 4
 heure, qui paraît à Beuthen, vinrent se ranger la Gaseta *:
 
-UE #
-
 (1) Bismarck l'avoue lui-même, tout en rejetant la faute sur le ;
 Centre. Voyez son discours à la Chambre des Seigneurs, le ;
 24 avril 1874 (Hahn : Geschichte des Kulturkampfes in Preussen. In r
-Aktenstücken dargestellt. Page 124) {
 
 Les Polonais protestants des cercles de Kreuzburg, Rosenberg 1
 et Rybnik montrent moins d'ardeur pour la cause nationale que \
@@ -7067,8 +5970,6 @@ importance beaucoup plus grande qu'on ne le croit généralement. |
 Qu'on songe à ce qui est arrivé aux Slovaques. (Voyez Denis :
 
 La Bohême depuis la Montagne-Blanche. Volume II, pages 221-224.) ;
-33 g
-AT 4
 
 nr Polonais et Prussiens OR SRETUR
 he. Opolska d'Oppeln, le Nowiny Raciborskie (à Ratibor) et 1
@@ -7110,15 +6011,9 @@ j: celle de la Grande Pologne, comme disent les Alle-.
 
 \ polonais, jadis à Berlin, paraît à Kattowitz depuis le premier
 
-U ) juillet 1907. F
-
-H (2) Voyez Massow : Polennot, page 105.
-
 (3) Voyez le Katolik du 28 février 1901. 1 ÿ
 
 t (4) A Gleiwitz existe une Spolka Ziemska. Voyez Stumpf : Polen-
-
-ti Jfrage und Ansiedlungskommission, page 21.
 
 À (5) Voyez le plan d'action sous le titre : « Qu'est-ce que le peuple 3108
 À de Silésie doit faire », de la Gazeta Opolska du 5 août 1898.
@@ -7136,10 +6031,8 @@ Silésien parlant polonais est de nationalité polonaise ; pe
 ce n'est que provisoirement qu'il est citoyen de l'État 4
 prussien. » (3) Aussi, dès 1896, le ministre Bosse 4
 jette un cri d'alarme et parle du péril national en SE
-Silésie. (4) | 5
 C'est en même temps un élément nouveau que la 0
 Pologne a gagné par cette annexion morale de la Haute- 3
-Silésie. « t#
 En effet, la population, en grande partie industrielle, 4
 a un caractère beaucoup plus démocratique que celle 40
 des autres provinces. La noblesse n'y existe pas. Et $
@@ -7153,18 +6046,12 @@ mouvement démocratique, qui pousse de plus en plus # Fe
 les Polonais à secouer la tutelle du Centre alle- Fe:
 (1) Voyez Dziennik Berlinski du 13 juin 1900. “2
 (2) Voyez Wagner et Vossberg : Polenstinmen (Berlin, 1902), 2
-page 101. ‘4
-(3) Voyez Polenstimmen, page 134. F
 (4) Chambre des députés prussienne, séance du 15 mars 1806, \ 5
 
-TE D A SO
 | Polonais et Prussiens
 ; mand, s'est manifesté avec le plus d'éclat justement en
-ji Silésie. (1)
 : Jusqu'ici les Tchèques de la Silésie n'ont guère fait
 ; parler d'eux. Il semble qu'une alliance entre eux et les
-Polonais, leurs proches voisins, pourrait fortifier leurs
-positions respectives. (2)
 | Peut-être les Allemands ont-ils été moins impressionnés par les progrès stupéfiants du parti polonais en
 Silésie que par la constitution d'une forte agglomération
 slave en plein Ouest allemand, dans les districts industriels de la Prusse Rhénane et de la Westphalie. (3)
@@ -7192,13 +6079,10 @@ collection du Wiarus Polski.
 NA d PRET gs HF AC Vie PR NE rt AUTONOME PR AE FAN ACHATS
 DE LA RÉSISTANCE DU PEUPLE POLONAIS Yon
 
-tA
-
 chercher du travail si loin de leur patrie sont fort A
 ne
 simples et se rattachent au grand mouvement écono- : R
 mique connu sous le nom allemand de Sachsengän- æ
-CET 1%
 gerei. Les ouvriers de l'Est sont attirés avant tout HE.
 par des salaires plus hauts que ceux qu'ils peuvent Û
 gagner chez eux. L'essor extraordinaire de l'industrie 4
@@ -7216,46 +6100,31 @@ partielles, établies soit par la direction des mines, soit h4
 par l'Alldeutscher Verband. (2) Elles peuvent nous fl
 
 (1) Le recensement du premier décembre 1890 donne les chiffres L
-suivants : ù k 14
 District de Munster : 5.490 Polonais. at:
 
-© District d'Arnsberg : 20.130 Polonais. A
 District de Dusseldorf : 4.650 Polonais. : M4
 A noter que ne sont comptés que les Polonais ne sachant pas Fu
-Pallemand. ‘4
 (2) Voyez pour 1893 : Die Belegschaft der Bergwerke und Salinen f
-im Oberbergamtsbezirke Dortmund nach der Zählung vom 16 Dezember 1893. (
 Pour 1897 : Nachweisung der Ausländer, der polnisch sprechenden 1
-Inländer und der aus russiseh-Polen eingewanderten Bergarbeiter in tea
 der Belegschaft des Oberbergamisbezirkes Dortmund nach der PA:
-ÆErhebung vom 16 Dezember 1897. H,
 Pour 1898 : Zusammenstellung der auf den Vereinszechen am ersten te
-Juli 1898 beschäftigten fremden Bergleute. fl
 Pour 1899 : Aufstellung der auf den Bergwerken des Oberamts- t
 bezirkes Dortmund am 31 Dezember 1899 beschäftigten Preussen Le
-polnischer Abkunft. y
-4 37 Bernus. — 3 1
 
-A A0 % f . . , be f° 22 “
 AU Polonais et Prussiens k
 FA donner d'utiles indications sur la rapidité avec laquelle à
 (1 ÿ s'accroît l'élément polonais.
-ul . . . ci .
 1) { En 1893, dans le district d'inspection minière de
 6 Dortmund, il y avait 17.919 mineurs polonais; en 1897,
 tt il y en avait 34.361, soit en quatre ans une augmentation
-WA L . .
 et de 91,7 0/0. Sur le total des ouvriers des mines, 18,62 0/0
 EN étaient polonais. D'après les calculs de l'Alldeutscher |
 {] Verband, on arrive, en décembre 1899, au chiffre
 10 : formidable d'environ 200.000 Polonais des deux
 \l sexes, établis dans les régions industrielles du bassin
-di. rhénan. À
 À Les Polonais tendent non seulement à s'agglomérer
 no dans les mêmes centres, (1) mais à se réuñir dans les
 l mêmes mines, (2) ce qui rend leur germanisation plus
-Li . .
-difficile.
 | Les Allemands reprochent âprement aux ouvriers
 (7 - polonais d'abaisser le niveau social de toute la région. (3)
 à Il est vrai que ces travailleurs slaves n'ont pas trop bon
@@ -7263,23 +6132,16 @@ difficile.
 ni de grosse toile. à
 ï \ Les localités industrielles, où ces ouvriers sont
 Ni (1) Le premier janvier 1900, on comptait dans Iles cercles
-: miniers :
 ni de Recklinghausen. 10.060 ouvriers polonais, soit : 48.29 o/o
-\ de Gelsenkirchen.. 8.909 _ —_ — 59.43 0/0 “
-de Hérne........... 17.452 æ— — —  br.34 0/0
 | de Wattenscheid... 5.696  — — 10
-, de Essen-Est....... 5.408 — _—  soit( 42.9 ojo
 ! du total.
 ui (2) Dix-neuf mines ont plus de 50 ojo d'ouvriers polonais. Dans la
 mine Ewald (cercle de Recklinghausen), les Polonais représentent |
 le 85 o/o du total des ouvriers.
 (3) D'après une statistique de 1895, il y avait déjà 3.851 ouvriers ñ
 ne sachant ni lire ni écrire. 1 À
-EAN
-è à Ps 2,
 
 | DE LA RÉSISTÂNCE DU PEUPLE POLONAIS 11
-+.
 entaséés, font un effet déplorable de laideur et de 4
 saleté, avec leurs maisons en briques, noïircies par la 100
 
@@ -7314,14 +6176,9 @@ réclames dans le Wiarus Polski. Les employés parlant : 24
 le polonais sont recherchés par les maisons de com- ÿ Me
 merce. Dans les écoles primaires, les élèves ne sachant É:
 
-LA:
-
 () Voyez des exemples _d'enseignes et inscriptions polonaises ‘4
 
 dans Die Polen im rheinisch-westfälischen Steinkohlen-Bezirke, er.
-\page 49. 00
-
-39 fie
 
 LA Polonais et Prussiens ; 1
 
@@ -7334,8 +6191,6 @@ LA Polonais et Prussiens ; 1
 À mandes, et pourtant tout cela est absolument naturel.
 
 | N'oublions pas que dans les cercles de GelsenkirchenCampagne et de Recklinghausen, il y a un Polonais sur
-
-‘ cinq habitants.
 
 Ces Polonais ont jusqu'ici résisté énergiquement à la
 | germanisation. Ne fréquentant guère qu'entre eux, |
@@ -7364,9 +6219,6 @@ et que cela sera. (3) 4 |
 
 (2) Supplément du Wiarus Polski, 8 juillet 1899. |
 
-(3) Wiarus Polski, 9 janvier 1899. (
-
-DE LA RÉSISTANCE DU PEUPLE POLONAIS É
 Comme on le voit par ces deux citations, l'idée reli- pe
 gieuse exerce encore son influence profonde sur cette rs
 grande colonie ouvrière. Le socialisme ne l'a pas encore .
@@ -7399,20 +6251,14 @@ politique. Cette colonie slave peut, aux élections,
 influer sur les rapports avec le Centre et forcer ce parti à
 à des concessions; c'est tout.
 
-, Gx |
-FE, 4
-
 4 Polonais et Prussiens Net 4
 (4 Plus grande est son influence économique, dont nous
 18 aurons à parler plus loin. à à
 1 Il en est de même des colonies polonaises qui sont
 ‘4e établies dans d'autres régions de l'Allemagne et qui
-\eu contribuent aux différentes œuvres nationales. (1)
 Ms. L'agglomération n'est véritablement importante qu'à
 à Berlin et dans sa banlieue. En 1890, il y avait environ
-F À x s 4
 l 12.200 Polonais dans le district de Berlin et 9.300 dans
-\ } . d . » s
 ae celui de Potsdam. (2) Ils ont organisé de nombreuses |
 d sociétés, très actives et prospères. Un bureau d'infor4 . » . . .
 1 mations, fondé en 1904, vient en aide à ceux qui
@@ -7422,7 +6268,6 @@ JA désirent s'établir dans la capitale ou dans la banlieue. :
 ks D'après ce court résumé, on peut se rendre compte
 \ que la position des Polonais est assez solide. Concentrés
 ts dans l'Est, ils se massent en un bloc cohérent d'environ
-2 3.200.000 âmes. Fortement constitués en Posnanie, en
 4 Silésie et en Prusse Occidentale, ils forment le trait
 qu. d'union entre leurs frères de Galicie et les populations
 à ) , soumises à la Russie. En Warmie et dans un coin de la
@@ -7431,47 +6276,28 @@ A colonie du bassin rhéno-westphalien ainsi que les îlots |
 ji (1) A Dresde par exemple, la Société des industriels polonais À
 ‘ entretient une petite école, où l'on enseigne gratuitement le polo- |)
 
-nais (voyez Ostmark, I, 11, page 44). %
 F) Les Polonais de Brême envoient de l'argent à l'œuvre des biblio4 thèques populaires (voyez Wiarus Polski, 22 décembre 1900).
 
 (2) Voyez Das polnische Berlin dans Ostmark, VI, 8; et Polnische \
 
-{ Unternehmungen in Berlin und Umgegend. Ostmark, VI, 10/11. \
 j Voyez aussi le Wielkopolanin des 4 et 5 septembre 1901. \
 HAN Conférez dans l'Européen du 22 octobre 1904, l'article de M. L. |
 Polier. Berlin contre l'État. É
 
-DE LA RÉSISTANCE DU PEUPLE POLONAIS
 établis dans quelques villes allemandes augmentent
 | leur puissance économique. ‘4
 Enfin, des alliés éventuels les attendent en Masourie 04
 et dans la Lithuanie prussienne. Réunis dans une \1
 | volonté de résistance commune, ils constituent une ‘
-puissance redoutable. * | : 0
 Et ce n'est vraiment pas une vaine déclamation par- 4 Ê
 lementaire que ce mot du comte de Bülow : « A mes 104
 yeux, la question des marches de l'Est est non seu- ee
 lement une des plus importantes de notre politique D
 intérieure; c'est celle du développement de laquelle Ni
 dépend l'avenir immédiat de notre patrie. » (1) ‘
-be
-‘ D:
-: , #1
-D:
-- ‘14
 
-+
-RS:
 (1) Discours prononcé, le 13 janvier 1902, à la Chambre des
-députés prussienne. * F hi
-1 \ 173
 
-1 M A TOOIRE 2 CAE TEE M FARMER qui PERTE UN 14
-
-ÿ L
-(
-ES CHAPITRE II
-(he ;
 4 Les Polonais augmentent-ils au détriment des Alle- ù
 LM mands? Telle est la question qu'il est nécessaire dese
 1 poser. S'il y a pour la Prusse un danger polonais, il
@@ -7479,29 +6305,21 @@ LM mands? Telle est la question qu'il est nécessaire dese
 
 ‘ seules sont capables de nous donner à peu près le ÿ
 1 bilan des gains et des pertes dans les deux camps d
-} rivaux. (1) : |
-4 U . gr » W .
 y Il est indéniable que, dans le courant des cinquante '
 i \ dernières années, l'élément polonais de la province de
 \ Posen a augmenté sensiblement, et que cette augmentajé tion s'est faite au détriment de l'élément germanique.
-FE .
 Malheureusement, les statistiques antérieures au
 recensement de 1890 ne peuvent être utilisées qu'avec
 :)4 une extrême prudence. (2)
 
 } (1) A consulter, outre les ouvrages déjà cités, le livre important f
 ! de Leo Wegener : Der wirtschaftlliche Kampf mit den Polen um die À
-Provinz Posen. Posen, 1903. NCA d'
 fl Voyez aussi les chiffres indiqués par Dix : Die Vôlkerwanderung fl
-{ °On 1900. û ;
 } (2) Ainsi une statistique linguistique des enfants des écoles pri- \
 f maires indique pour la ville de Wreschen, en 1886, 55,9 0/o d'élèves 3
 wi dont la langue maternelle serait l'allemand. Cinq ans après, il n'y
 112 en a plus que 24,7 0/0. Cela paraît impossible. à 1
-ik
-TE LUN E
 
-DE LA RÉSISTANCE DU PEUPLE POLONAIS À
 ÿ Pour établir les proportions ethniques des deux “
 groupes nationaux avant 1890, on est obligé d'avoir LÉ
 recours à différents indices, dont le plus important + #
@@ -7519,7 +6337,6 @@ Juifs) non seulement n'ont pas augmenté, mais ont Fa
 diminué de 0,87 0/0. Ce fait est d'autant plus remar- i
 quable que, de 1825 à 1840, les Protestants enregis- É
 traient une augmentation bien plus grande que les 8
-Catholiques. EL
 Pourtant, à part la province de Posen, il semble bien ‘à
 que les Allemands aient exagéré le danger polonais, 1
 parfois intentionnellement, pour obtenir des mesures ; à
@@ -7532,98 +6349,53 @@ les nombreux domestiques polonais en service dans les familles #
 allemandes. La statistique de 1890 étant plus exacte, il se trouve 6!
 que la comparaison des deux recensements exagère l'augmenta- 1
 tion des Polonais. Hi,
-45 Bernus. — 3, F
 
 ‘F1 Polonais et, Prussiens 0000000
-LEA Ë u À : i ; 14 1
 AS sur laquelle il y a des réserves à faire, donne les résulk43 tats suivants : À. +
 ce Augmentation Augmentation ©
 0% des des 1
-À :44 Districts Allemands Polonais Ÿ
-‘ A Kônigsberg..:..:....,...:#%1a2,8 + 12,5 |, 1
-je: ÿ Gumbinnen.............. + 97° — 2,6 ° Se.
 pi | Dan Zip NN PR ER QE EN LT Re + 24,4 °L 4
-NA Marienwerder........... + 16,6 °, + 24,4 °l À
-n Bromberp 2002126012 SR + 30 °/, {
 VW Posbn. its Es nn T ErUP + 32 °L À
-11 ) Rredlau AAA EN RANTEEMaQ TI EL) CÉVÉEE
 qe ODpEL ie PRE EP Ma TS Ue + 40,4 °[
 | ñ Les résultats, certainement plus exacts, du rapproche- j
 EMA + ment entre le recensement de 1890 et celui de 1900, .
 il prouveraient que le polonisme est en perte depuis dix
 : ÿ ans, ainsi que l'indiquent les chiffres suivants : ;
-‘à ; Pourcentage k
-ie | dés Polonais 4
-n PR. 0 ER. 2
-he Prusse Orientales: 1 M0 ete O NET, 0 7,8 + ‘
-É: Prusse Occidentale............. 30,1 28,0 1
-4 Poënanieiuin: dde ile 1UE FARINE 3
-de 3
-f à », . . « à
 61 Dans la province de Posen seule les Polonais auraient fi
 la donc gagné du terrain. ,
 ni Dans le royaume de Prusse, l'élément polonais, si 4
 A) _ nous en croyons les chiffres actuels, a baissé comme
 k importance comparative. De 9,23 o/o en 1890, il est À
-‘ __ tombé à 8,88 o/o en 1900. / ÿ
 #4 Et cependant, lorsque le comte de Bülow comparait
-14 CES » 2 . ÿ
 ù assez grossièrement la prolificité polonaise avec celle M
 il: des lapins, il n'avait pas tout à fait tort, en ce sensque M
-! . . }
 mi les familles polonaises comptent plus d'enfants que les.
-dy é B:
 | 46 4
-A7 4 ; LD
 
-SNA és: PARLE ; We! LÉ Y ‘ s v *
-1 4 A DE LA RÉSISTANCE DU PEUPLE POLONAIS : “1300
-F n CE
-- ” AU - +08
 ménages allemands. (1) La statistique comparative, que ‘+8
 f nous empruntons aux Annales de Géographie, (2) le # 6
-prouve : 1
-+
 Naissances (y compris les mortstnés) pour 1.000 habitants ne
-\ (2893-1902) ‘4
 Le FES CARS ROSES VDS EM EE ER (PET hi:
-Prusse Occidentale. ................... 43,4 \ ro
 TUE ET GA CR ET AT RE Range EL YA LE 144
-myestrhalel. Hu SN NET Ya
-PrusseOrmentale nr 220 is 1
-ProvincalRhénanet:,.:1.21,1,.1.:.689810 4
 Mais si les provinces polonaises enregistrent le plus ;.
-: See A A x &
 ; de naissances, la mortalité infantile, malgré des progrès ."#
 sérieux, y est aussi plus grande. (3) 0
 : En somme, les gains polonais en Posnanie ne contre- RE
 ; balancent pas les pertes dans les autres provinces. Ce T4
 n'est donc pas par l'accroissement du nombre que ne
 les Polonais paraissent si redoutables au gouvernement * ÿ' 4
-prussien. 14
 Leurs conquêtes sont avant tout morales. Elles 1
 consistent non dans la multiplication des habitants de 3
 langue slave, mais dans l'augmentation des Polonais : £10
 imbus de l'idée nationale, décidés à défendre leur langue MER |
 et leur caractère ethnique. C'est cette victoire qui ge
-Lur
-2 HE BERENENTE D
 (1) Voyez les chiffres comparatifs des naissances pour 1895 dans 5 o.
-Dix : Die Vôülkerwanderung von 1900, page 35. ! AS,
 (2) Annales de Géographie, du 15 mars 1905; page 119. Cette “ 33
 revue emprunte ses chiffres au premier fascicule du Viertel- 1
 jahrsheft zur Statistik des Deutschen Reiches, 1904; pages 54-168. TER
 (8) De plus, l'émigration est assez forte dans les provinces de”
 orientales. En 1893, lessémigrants de la Posnanie et de la Prusse ‘a
 Occidentale forment 1/6 du nombre total des émigrants alle- 3 Fa
-mands ; en 1894, 1/9; en 1896, de nouveau 1/6. Voyez Dix : Ouvrage #4 ‘a
-cité, page 49. 1 a
-47 “4
-r #80
-‘w L De
-Lx s° » n 14: PME
-
-at ' VE
 
 \ Polonais et Prussiens
 
@@ -7640,7 +6412,6 @@ pas fait des progrès rapides, si l'on songe aux moyens
 
 | dont dispose le gouvernement : lois de circonstance,
 sévérité draconienne des tribunaux, armée de fonctionnaires chauvins, colonisation allemande à outrance,
-écoles, service militaire. ;
 
 C'est que les Polonais ont encore pour eux un allié
 
@@ -7648,7 +6419,6 @@ singulièrement puissant. Les conditions économiques
 des provinces de l'Est, comme nous allons essayer de
 
 À le montrer très brièvement, sont favorables à leur
-nationalité. (1)
 * Ce qui suit se rapporte avant tout à la Posnanie, où
 la position des Polonais s'est consolidée. En réalité, |
 quelque bizarre que cela paraisse, c'est surtout la
@@ -7662,12 +6432,9 @@ aucune richesse minière. L'industrie n'a pu s'y déve-
 
 fermé par des tarifs protectionnistes. (2) La terre est
 (:) A consulter surtout le beau travail déjà cité de Leo Wegener:
-Der wirtschaftliche Kampf mit den Polen umdie Provinz Posen. 3
 (2) L'industrie peu importante de la contrée dépend presque
 entièrement des produits agricoles (alcool, sucre, bière) et ne
-répond qu'aux besoins locaux.
 
-À uit ii v# | È
 | DE LA RÉSISTANCE DU PEUPLE POLONAIS
 plutôt maigre et peu propre à la grande culture. Pour
 l'année 1897 à 1898, l'impôt sur les revenus rapportait,
@@ -7690,58 +6457,35 @@ une forte tendance à vendre leurs terres et à chercher
 dans les parties germaniques de l'Allemagne une posi- |
 tion plus agréable. Ce sont ces ventes nombreuses qui
 font passer la petite propriété en mains polonaises. (2)
-En 1897, 1.133 petites propriétés (environ 6.693 hectares)
 ont passé des Allemands aux Polonais, alors que seule- d
 ( ») Il en est à peu près de même pour la Prusse Occidentale
 (1,76 mark) et la Prusse Orientale (1,59 mark).
 (2) Nous traitons plus loin, avec plus de détails, la question de |
 Vacquisition du sol.
 
-4 K DR LEAR ARE ARTE RATS SA REA SAULT RTE PAR ŒANTe
-MP 0: Cr PolOng el PFUSSIERS TN al
 Da ment 483 propriétés (environ 2.972 hectares) étaient ven. nv
 2 dues par des Polonais à des Allemands. 5 VC. EE
 34 Les propriétés allemandes sont très souvent morcelées |
-où / " F “ . . 1
 ox par la vente, et ce sont surtout les Polonais qui en prosig fitent, parce que, n'ayant que des besoins restreints, ils 1
 4) peuvent vivre plusieurs, là où un seul Allemand trou- 4
 _  veraïit à gagner sa vie. D''ordinaire le paysan slave ne 4
 _. désire qu'un petit champ de pommes de terre, que sa
 __! femme ou ses vieux parents peuvent cultiver, pendant
 A0 que lui-même va chercher ses ressources principales = …
-EUNs M É
 :11 dans l'Ouest allemand. 4
 Nous verrons comment les Polonais ont su se servir 4
 L F de ces conditions économiques spéciales. +R
-14e
-QUPrS
-HR
-\6 À k
-vil
-ARC, 3 4
 #4 ) À
-(LES ; Ji
-{74008 7 e à
-
-! k
-
-re
 
 | ‘A1
-Ni
-
-PSE. CHAPITRE JII à
 
 Un rapide coup d'œil jeté sur le passé aidera à mieux e
-J 4
 comprendre le développement de la lutte entre les deux 5
 races, jusqu'à l'hostilité déclarée de ces dernières ‘4
-années. ‘'2110
 Ce serait une grave erreur de croire que l'influence 4
 allemande dans les provinces orientales ne date que h jt
 des annexions de Frédéric II. Dès le moyen âge, les
 rois de Pologne, comme ceux de Bohême, appelèrent 121
-+40
 des Allemands, qui faisaient d'excellents colons et de
 paisibles sujets. Pour les attirer, on leur conférait des à 1
 privilèges. Les villes ainsi peuplées jouissaient de fran- ‘2
@@ -7749,14 +6493,12 @@ chises copiées sur celles de Magdebourg (jus Teutoni- 11
 cum seu Magdeburgense). Au treizième siècle déjà,
 l'influence allemande n'était pas négligeable, même en 408
 Posnanie. (1) Au cours du quinzième siècle, cette in
-fluence s'affaiblit considérablement en Grande Pologne ; sn
 les éléments étrangers sont absorbés par la nation. 1
 Dans les actes municipaux, l'allemand disparaît; les 4
 noms de famille sont traduits en polonais. 14
 ; (1) La liste des magistrats de la ville de Posen (de 1253-1504) “a
 contient beaucoup de noms allemands. Voyez Warschauer : {20
 Stadtbuch von Posen. ne
-. V2
 
 51 1
 
@@ -7790,10 +6532,6 @@ Hauländer, on a tenté de l'expliquer par Hauland; terre à défri- |
 | cher. Cette étymologie est aujourd'hui abandonnée. ù
 on di Guradze : Der Bauer in Posen. Halle, 1898 (thèse de docG) Voyez Plehn : Ouvrage cité, pages 216 et suivantes. y
 
-ÿ
-
-4: DE LA RÉSISTANCE DU PEUPLE POLONAIS à
-
 au catholicisme. Mais ces colonies n'étaient que des Ha
 îlots au milieu de la population slave. Même dans le Re
 pays de Kulm, la noblesse allemande s'était rapidement
@@ -7802,7 +6540,6 @@ entièrement disparu, transformés soit par traduction, “
 soit par une prise de titres polonais. Les villes résistèrent mieux; certaines restèrent presque absolument
 allemandes, Dantzig et Thorn en particulier. A Stras- 4
 burg, les deux langues vivaient côte à côte, mais le
-polonais avançait lentement. ” |
 
 Toutefois, et ceci est caractéristique, il n'y avait
 encore aucune opposition nationale. (1) Seule, la difté-
@@ -7817,32 +6554,18 @@ effort sur le district de la Netze, par lequel le Brandebourg et la Posnanie se 
 
 colons, venus en grande partie de l'Allemagne du Sud,
 
-L y
-
 particulièrement de la Souabe, étaient attirés par des k
 
 privilèges importants. Ils étaient libérés du service k.
 
-(1) Voyez Plehn : Ouvrage cité, pages 219-298. d
-
 (2) Sur l'importante question de la colonisation frédéricienne, à
 
 ; voyez Schmoller : Die preussische Kolonisation des 17 und 18 Jahr- |
-hunderts.
-
-Beheim-Schwarzbach : Friedrich der Grosse als Gründer deutscher )
-Kolonien in den 1772 neu erworbenen Landen. Berlin, 1864.
-
-Id. Hohenzollersche Kolonisationen. Leipzig, 1874.
 
 Id. Der Netzedistrikt zur Zeit der ersten Teilung Polens (dans 1
-Zeitschrift der historischen Gesellschaft für die Provinz Posen, vo- |
 lumes VII et VII. k
 
 Voyez aussi Rappolt : Von den Colonien, wodurch Preussen ist <
-angebaut « worden. 3
-
-53 |
 
 "., MAT ‘Polonais et Prussiens |.
 ; militaire et, pour les premières années du moins, | 1
@@ -7858,7 +6581,6 @@ je _ juste, du reste, de constater que la sollicitude du roi 1
 À nal qui relie la Brahe et la Vistule avec la Netze et
 
 ï la Wartha. La prospérité de Bromberg date de cette
-4 | époque. |
 : Le deuxième et le troisième partage de la Pologne
 
 3 (1793 et 1795) ne furent pas seulement des crimes (ce |
@@ -7870,7 +6592,6 @@ Lo nale et la Nouvelle Silésie, étaient immenses. Le mor-
 n l'assimilation des Polonais devenait une tâche impos- |
 4 * _sible. La paix de Tilsit et la création du grand-duché de |
 4 Varsovie arrétèrent du reste les progrès de la germani- |
-" sation. |
 
 W L'attitude de la population fut en même temps une
 ta leçon pour le gouvernement prussien. En effet, après 1
@@ -7884,21 +6605,16 @@ be avances caractéristiques. Ainsi, le grand-duché reçut
 
 “4 comme blason l'aigle blanc et les couleurs polonaises, ;
 5 rouge et blanc. Le choix du prince Radziwill, époux de
-ù 4
-; 4 , i
 
-HAL DE LA RÉSISTANCE DU PEUPLE POLONAIS Me
 la princesse Louise de Prusse, comme gouverneur de F4
 Posen était un pas de plus vers la conciliation. Le res- # 14
 + crit royal de 1817, sur la langue, était animé du même
-esprit libéral. ;:
 La Prusse Occidentale fut moins heureuse. Les pro- 4
 __  priétaires polonais du cercle de Kulm et de la Michelau É
 pétitionnèrent pour que leur territoire fût réuni à la 1
 Posnanie, mais les Allemands exprimèrent un vœu Hs,
 opposé et obtinrent gain de cause. (:) C'était le pre- “
 mier signe d'un antagonisme qui ne pouvait que }
-+ grandir. { à
 : En réalité, le gouvernement prussien n'avait pas de à
 . | politique bien arrêtée sur la question polonaise. Il “4
 souhaitait la germanisation, mais hésitait à recourir +
@@ -7921,7 +6637,6 @@ j nest hostile, du moins très froide envers l'État prus- dk
 | (1) Voyez Plehn : Ouvrage cité, page 305. ÿ
 k ne
 
-RS
 ; Polonais et Prussiens T'AS
 Û sien. Elle se tint à l'écart de l'armée et de l'administra- À
 5 tion. Si cette abstention systématique, dont on fut fort 1
@@ -7930,7 +6645,6 @@ piqué à Berlin, émut le roi, celui-ci fut plus impres-
 de Posen défendit aux futurs prêtres de son diocèse de 4
 suivre les cours des Universités prussiennes. Seules, les
 Universités de Prague, Vienne et Munich leur étaient
-permises.
 Le roi se décida alors à une politique plus énergique,
 4 et Flottwell (1) fut nommé gouverneur (Oberpräsident)
 de la province de Posen. Administrateur habile, caractère ferme et vigoureux, fonctionnaire scrupuleux, mais
@@ -7948,16 +6662,8 @@ la question scolaire, créa des écoles maternelles, développa l'enseignement d
 struire des routes et chercha à unir plus étroitement sa
 province au reste du royaume. Son attention se porta
 en même temps sur la propriété terrienne, et 4l fut le
-() Voyez Allgemeine Deutsche Biographie, VIII, pages 280-283.
-(2) Denkschrift über die Verwaltung der Provinz Posen vom
-Dezember 1830 bis 1841.
 .
-56 >
-ë \à
 
-M H AL do donA fe gi Ff ci ipas EE 7 , A
-& * L E 4 ME
-DE LA RÉSISTANCE DU PEUPLE POLONAIS É
 premier à acheter des terres polonaises pour les £
 (l ni re
 revendre à des Allemands. Il trouva du reste dans le :
@@ -7966,7 +6672,6 @@ province de Prusse (Prusse Occidentale et Orientale
 réunies), le gouverneur Schôn (2) suivait à peu près le
 même système, bien qu'avec moins de doigté. Sous
 son administration, plus de 400 écoles primaires furent
-créées. ÿ
 Le comte d'Arnim-Boitzenburg (3) succéda à Flottwell.
 Sa nomination coïncide avec une nouvelle ère de
 concessions aux Polonais. L'opinion libérale avait
@@ -7986,10 +6691,8 @@ auxquels les Polonais de la Prusse furent un instant NÉ:
 () Voyez la notice que lui consacre l'Ostmark, ILL, 5; et l'article à
 de PAllgemeine Deutsche Biographie, IX, pages 713-714. c
 (2) Voyez l'article de Maurenbrecher dans l'Allgemeine Deutsche LR
-Biographie, XXXII, pages 581-792. | j
 (3) Cest le même qui joua un rôle si important comme ministre
 de l'intérieur. Sur lui, voyez Allgemeine Deutsche Biographie, 1, L
-pages 558-566. '
 (4) Pour l'historique de la question scolaire, voyez le discours :
 du ministre von Gossler, prononcé le 20 mars 1889, à la Chambre
 des députés prussienne. ;
@@ -8002,11 +6705,9 @@ LE ment généreux nous semble singulièrement loin, tant |
 te l'Allemagne a changé. Pourtant elle a existé, cette
 ‘1 époque où des milliers d'Aliemands pleurèrent la chute |
 DA de Varsovie, où des centaines de pamphlets stigmati- ; |
-a 2 . « 2 2 ÿ
 ha sèrent le régime russe, où un engouement général :
 pi faisait voir dans tout Polonais un champion de la '
 f liberté. L'indépendance de la Pologne et lunité alle- 1
-4 i
 vs mande formaient deux articles du même programme. À
 À C'était l'époque des rêves généreux. Les proscrits
 14 étaient presque des héros. Il faisait bon vivre. L'enthou-
@@ -8019,24 +6720,17 @@ fi Allemagne, Julius Mosen pleurait sur les dix derniers r
 A survivants du fameux quatrième bataillon polonais.
 1 Platen lui-même se laissait inspirer par les révolution1 naires varsoviens. (1)
 pn Le soulèvement polonais de 1848 fut l'aboutissant
-Yi
 fi (1) Les Polenlieder de Platen sont peu connus, parce qu'ils ne se
 N trouvent pas dans le recueil de ses poésies. Ces pièces furent |
 fl publiées séparément à Strasbourg, en 1839. Une seconde édition ÿ
 
 * parut en 1841, également à Strasbourg; une troisième en 1849, à
-1 Francfort.
-Voyez Heine : passim. — Laube : Polnische Briefe (18%). — Ida
 
-Hahn-Hahn : Die polnischen Auswanderer ; Wiegenlied der polnischen \
 | Mutter. — Freiligrath : Xinderlied. — Hebbel : Die Polen sollen 1
-(h leben. Noch ist Polen nicht verloren. — Ernst Ortlepp : Polenlieder, etc.
 
 f A consulter les différents ouvrages sur la Jeune Allemagne.
-ny A ot
 
 em uns NE ON NA PES LS jh NUE
-F DE LA RÉSISTANCE DU PEUPLE POLONAIS “il
 \ local du grand mouvement libéral. (1) Un essai de 4
 révolte, en 1846, échoua. Les chefs, entre autres Mieros- 1‘
 lawski, (2) furent faits prisonniers. b
@@ -8057,14 +6751,8 @@ Allemands, Vincke et Hansemann, et combattue par #
 Bodelschwingh. Finalement elle fut écartée comme. Le
 étant hors de la compétence de l'Assemblée. Frédéric- à
 (1) Sur les mouvements révolutionnaires dans la Pologne À ‘à
-prussienne, voyez E. Knorr : Die polnischen Aufstände seit 1830. ie
-4 Berlin, 1880. 53
 k Kunz : Die kriegerischen Ereignisse im Grossherzogtum Posen LA
-\ im April und Mai 1848. Berlin, 1899. M .
 Fischer : Der Polenaufstand von 1848. Graudenz, 1899. De
-Docteur Christian Meyer : Die Deutschen der Provinz Posen à
-gegenüber dem polnischen Aufstand im Jahre 1848, Lissa und -
-l .  Posen, 1905. 3
 l; Treitschke : Deutsche Geschichte. Volume IV. fr
 | Paul Matter : La Prusse et la révolution de 1848. Alcan, 1903. 4
 | (2) Mieroslawski est un des représentants les plus curieux de la #
@@ -8078,7 +6766,6 @@ met à la tête des révolutionnaires badois. Il vécut ensuite à Paris et £
 fut en relations avec Garibaldi et Kossuth. Il participa encore à la Ra
 révolution polonaise de 1863, et mourut en 1878. 4
 
-A A
 Polonais et Prussiens L
 Guillaume IV confirma cet échec, maïs en manifestant |
 « ses intentions bienveillantes envers tous ses sujets de
@@ -8108,19 +6795,14 @@ frontières. Des peuples libres ne peuvent que s'accorder À
 paisiblement. Entre des peuples libres il n'y a pas de fron- ;
 tières, pas de murailles. |
 Nous embrassons fraternellement nos frères allemands et |
-juifs! : 4
 
-DE LA RÉSISTANCE DU PEUPLE POLONAIS
 Vive l'Allemagne libre ! 12
 Vive la Pologne libre !
 Vive l'humanité libre, fraternellement unie! (1)
-Optimisme naïf, enthousiasme sentimental, oui
-certes.
 Cependant la seule solution réelle, complète, selon la
 justice, est là.
 L'unique moment où Polonais et Allemands semblèrent se comprendre ne dura pas longtemps. Les
 raisons en sont simples. C'est toujours la vieille et
-lamentable histoire.
 Pour s'assurer les fruits d'un crime, on commet £
 d'autres injustices, qui rendent la réparation beaucoup
 plus difficile, parfois impossible. Après l'annexion scandaleuse d'une partie de la Pologne, la Prusse avait
@@ -8134,12 +6816,8 @@ présidée par l'Oberpräsident von Beurmann, avait une
 majorité polonaise. Le 5 avril, le général von Willisen |
 arriva à Posen en qualité de commissaire royal. (2) Il "44
 s'aboucha avec le comité polonais et promit des concessions importantes : nomination de Polonais aux postes
-(1) Voyez Plehn : Ouvrage cité, page 31e.
 €) Très attaqué par les Allemands pour sa conduite polonophile,
 il chercha à se défendre dans un mémoire : Akten und Bemer- à
-kungen über meine Sendung nach dem Grossherzogthum Posen im
-Frühjahr 1848. Berlin, 1849.
-61 Bernus. — 4
 
 | é PE Polonais et Prussiens FI ne 1
 
@@ -8187,8 +6865,6 @@ Le les cercles polonais, leur patrie. Maïs donnez à
 
 : ‘ei langue et la volonté, ce qui se déclare pour l'Alle
 
-a magne. » à
-
 14 Cest la question du partage de la province qui se À
 
 l pose et qui devient rapidement le point principal du :
@@ -8207,12 +6883,8 @@ WA part et demanda que la partie allemande de la province ;
 
 | fat admise dans la Confédération. Elle alla même plus
 
-: 62 à
-&tTAiS
-
 Le mu
 
-1 DE LA RÉSISTANCE DU PEUPLE POLONAIS a,
 ; loin et nomma cinq délégués au Parlement fédéral de à E
 £ Francfort. Le gouvernement se rallia à cette opinion. 4
 Remettant à plus tard.la fixation de la frontière, il ÿ
@@ -8257,10 +6929,6 @@ Gnesen. Le 4, Buk est occupé par les insurgés. Mais les .
 
 - bandes de paysans armés de faux ne pouvaient 1
 
-: 4 63/1 à
-4 F* ” AE
-
-RE PS RE
 | Polonais et Prussiens 1
 \ évidemment pas tenir longtemps contre les troupes À |
 Fr prussiennes bien organisées. K
@@ -8289,13 +6957,10 @@ furent admis à siéger au Parlement. Le député polonais :
 | de Buk et de Samter fit une résistance acharnée à l'acte
 , (1) Sur la question du partage, voyez la brochure de Gersdorff, . |
 député du cercle de Deutsch-Krone : Auf welche Weise dürfte die
-Posener Frage am zweckmässigsten und gerechtesten zu lôsen sein. f
 2) Trois Polonais, le docteur de Kraszewski, les comtes Potwo- 1
 rowski et Mielzynski, refusèrent Pun après Vautre le poste de \
 président supérieur du territoire réservé aux Polonais. , |
 
-À * DE LA RÉSISTANCE DU PEUPLE POLONAIS
-LE
 F d'admission; son parti était soutenu énergiquement par .
 quelques députés allemands, en particulier par Venedey. (1) Malgré tout, le 27 juillet, les députés étaient
 
@@ -8311,7 +6976,6 @@ Pratiquement, toute cette lutte passionnée, toutes ces
 4 longues discussions furent stériles. On sait comment :
 finit le Parlement de Francfort. L'échec du libé-
 | ralisme enlevait à la population polonaise tout espoir
-immédiat.
 ” La nouvelle constitution prussienne du 5 décembre
 1849 s'appliquait au royaume entier, y compris la Posnanie. Les projets de partage et d'autonomie furent
 abandonnés. En réalité, la cause polonaise aurait peut-
@@ -8324,18 +6988,15 @@ En 1851, le gouvernement accéda de lui-même à l'idée
 | d'exclure la province de Posen de la Confédération ,
 germanique. Une « Ligue polonaise », qui s'était rapidement étendue, fut dissoute. Pour le reste, pendant la fin
 du règne de Frédéric-Guillaume IV ainsi que pendant 4
-PAROI '
 () Venedey, libéral impénitent, défendit encore la cause polo- re
 naise au congrès de la paix, en 1869. Voyez Bulletin officiel du À
 Congrès de La Paix et de la Liberté. Lausanne, 1869, page 108.
 (2) Voyez en particulier sur ces débats les lettres de Kerst, dé-
 puté allemand de Meseritz, publiées dans l'ouvrage de Meyer. É
-65 Bernus. — 4. ;
 
 ca | Polonais et Prussiens LE “EE
 Ve les premières années de celui de Guillaume Premier, les j
 “e choses restèrent en l'état. On ne tenta pas de mesures
-9 nouvelles. 1
 ol En 1863, alors que la Pologne russe et la Lithuanie li- à
 (1 vraient le dernier grand combat, Bismarck fit occuper la ‘4
 fl frontière, montrant une fois de plus, par tous les services 5
@@ -8365,9 +7026,7 @@ il y avait encore autre chose. Il n'est pas niable que |
 ‘a Bismarck éprouvait pour les Polonais une violente anti-
 ; pathie, une sorte d'agacement perpétuel, dont sa nervo- |
 ‘4 sité était blessée. Jamais il ne put les comprendre; il ne À
-de 11 PRO
 
-‘Hd DE LA RÉSISTANCE DU PEUPLE POLONAIS UE
 { l'essaya du reste à aucun moment. (1) De là, les graves À
 
 4 erreurs d'appréciation qui étonnent dans un homme Re
@@ -8412,8 +7071,6 @@ l'Est. Le 7 février 1872, il écrit au comte d'Eulenburg F4
 
 s qu'il sent, dans ces provinces, le sol miné, prêt à 4
 
-s'écrouler. Û Vi
-
 { Mais dans cette question il avait la vue courte. pe)
 
 L * Il redoutait avant tout une alliance catholico-polo- : L.
@@ -8427,10 +7084,6 @@ des ennemis que dans la noblesse et le clergé polonais, +
 burger Zeitung son aversion pour les Polonais et son indignation 14
 
 contre les Allemands qui sympathisaient avec eux. Voyez Veras x
-
-Germanicus : Caveant consules, pages 7-8. 4
-
-; 1
 
 do Polonais et Prussiens 1
 Wé ne se doutant nullement du danger autrement grand L
@@ -8464,9 +7117,7 @@ l'allemand, déclare que les élèves assez avancés des à
 classes moyennes et supérieures pourront recevoir
 l'enseignement religieux en allemand. Les enfants |
 68 1
-; &
 
-F L DE LA RÉSISTANCE DU PEUPLE POLONAIS
 de langue polonaise ont droit encore à quelques heures |
 ; de polonais, mais le gouvernement se réserve le droit de
 les supprimer, s'il y a lieu. Et en 1887, cet enseigne- |
@@ -8478,7 +7129,6 @@ crédits importants sont votés pour augmenter le
 nombre des écoles. En 1889, un décret ordonne de ne |
 plus donner l'enseignement religieux qu'en allemand.
 Enfin en 1890, l'enseignement de la littérature polonaise est supprimé au gymnase catholique de Sainte-
-.: Marie, à Posen.
 Cette politique scolaire souleva de violentes protestations, tant à la Chambre des députés (1) que dans de Ê
 nombreuses réunions populaires. Le décret sur l'en- |
 seignement religieux surtout, qui du reste ne put être %
@@ -8530,11 +7180,7 @@ pareille loi d'exception, le landtag prussien s'engageait
 disent les Allemands, il y a contradiction entre cette …
 4 loi et la constitution prussienne, qui proclame l'égalité F
 ; des citoyens. En fait, depuis 1886, il y a légalement ‘à
-; 70 J
-k e 43
 
-it NT
-n DE LA RÉSISTANCE DU PEUPLE POLONAIS | ‘4
 { deux sortes de citoyens : ceux qui sont aptes à devenir
 4 colons de l'Etat, et ce sont les Allemands seuls, et les 4
 
@@ -8567,7 +7213,6 @@ ps tion. Ce fut un de ces marchés qui sont monnaie cou- à
 deux côtés, on était dupé, car il ne correspondait nulle-
 | ment aux réalités. Ce nouveau parti polonais, appelé Ê
 f parti de la cour (Hofpartei), parla de loyalisme mo- "
-. |
 
 ne Polonais et Prussiens 4
 narchique, tandis que le gouvernement consentait à 1
@@ -8602,10 +7247,6 @@ autographe suivante :.€ À M. de Koscielski, pour son
 attitude énergique en faveur de ma marine. Son Empe- :
 reur et Roi reconnaissant. » La politique de concilia-
 
-A
-
-+ 7 k |
-6 DE LA RÉSISTANCE DU PEUPLE POLONAIS ,
 tion s'affirma aussi par des actes plus importants que à
 ces marques de faveur impériale. Lorsque le comte de
 Zedlitz, président supérieur de la Posnanie, fut nommé
@@ -8625,16 +7266,13 @@ de la surprise. Le Gouvernement est résolu à agir de
 | nouveau amicalement à l'égard des Polonais, mais il
 | veut rester prudent. »
 à En automne 1892, les recrues polonaises furent autorisées, par ordre de l'Empereur, à prêter le serment de
-fidélité au drapeau en langue polonaise.
 Le plus grand avantage que la politique d'entente ,
 k valut aux Polonais fut la nomination d'un des leurs,
 i Stablewski, aù siège archiépiscopal de Posen (1891). ;
 Pour qui connaît l'influence immense qu'exerce l'archevêque de Posen-Gnesen et le prestige dont il jouit, la
 (@) Après la chute de Caprivi, toutes ces concessions furent retirees. 4
-73 Bernus. —5
 
 PA Polonais et Prussiens ul: 1 LE :
-Ÿ \ s : Lai
 fi _ nomination d'un Polonais était un réel succès. Les
 18 archevêques de Gnesen étaient autrefois non seulement
 ‘4 primats de Pologne, mais ils étaient encore à la tête de … ;
@@ -8668,7 +7306,6 @@ contre un des candidats éventuels au siège de Posen, M. Miecz- }
 4 kowski, parce qu'il était de petite taille et d'aspect maladif. }
 (2) Voyez Posener Tageblatt du 14 juin 1893. \
 
-1140 DE LA RÉSISTANCE DU PEUPLE POLONAIS 100
 F Le soir, il y eut dîner de gala; la noblesse polonaise
 4 y était brillamment représentée par le prince Ferdinand BE
 i Radziwill, le comte Kwilecki, le comte Cieszkowski et js
@@ -8694,16 +7331,12 @@ L passer leurs candidats dans dix-neuf circonscriptions É
 : et arrachèrent au Centre la Warmie, effaroucha le F.
 l parti catholique, qui ne cessa de conseiller aux
 3 députés polonais de ne pas voter les nouveaux crédits hi
-; demandés. (1) 4
 À Du reste, dans les couches populaires polonaises, un j:
-3 _ grand mécontentement commençait à se manifester 4
 à () Voyez entre autres la Germania du 27 juin 1893. 1
-; 75 %
 
 “A Polonais et Prussiens MMM + QE,
 V contre le parti de la Cour, qu'on accusait de lächeté, ou qu:
 tout au moins de compromission fächeuse. Le Goniec 4
-4h . . A 3 NA
 d Wielkopolski demandait que les députés n'accordassent 1
 é les crédits que contre la liberté d'enseigner en polonais.
 Dans une réunion des Polonais de Berlin, on blâma 4
@@ -8712,13 +7345,11 @@ sévèrement l'attitude de Koscielski. (1) On l'appela L
 Ÿ _ déjà donné le sobriquet d'Admiralski. Ses succès à la 1
 Cour étaient ioin de le rendre populaire. (2) D'autant F
 plus que les résultats espérés étaient très probléma- |
-. Fr. ._ . À
 tiques. Il est vraisemblable que les ministres prussiens F.
 n'étaient pas tous d'accord avec la politique de .
 " Caprivi. (3) Dans une réunion de la fraction polonaise ‘0
 au Reiïchstag, Koscielski subit un grave échec; la majo- 4
 rité décida de s'abstenir dans la question des crédits À
-4 h
 | militaires. (4) Koscielski donna alors sa démission et L
 | en appela à ses électeurs; (5) là encore il fut battu. 1
 Les Allemands de leur côté voyaient d'un mauvais À
@@ -8736,16 +7367,10 @@ du parti national. 1
 (3) Ce point intéressant est encore mal élucidé. Il faudra encore (
 bien des années avant que l'on rende justice au comte de Caprivi }
 et qu'on connaisse toutes les difficultés avec lesquelles il eut à |
-lutter. A
 Voyez Massow : Polennot, pages 75 et suivantes. À
 (4) D'après une coutume établie, la fraction polonaise vote tou- 4
 jours-en bloc. La majorité décide de son attitude. k ù
 65) Il représentait la circonscription Inowrazlaw-Mogilno-Strelno. 004
-76 É
-Di
-
-MA ARS A4 EEE ÿ ; : PAU.
-DE LA RÉSISTANCE DU PEUPLE POLONAIS Î
 
 œil les avances faites aux Polonais. Les élections les |
 avaient déjà aigris; les manifestations qui se produisirent lors de la tournée triomphale de l'archevêque
@@ -8756,7 +7381,6 @@ six chevaux. Il était escorté par une troupe de cinquante
 lances ornées de banderoles aux couleurs polonaises.
 Dans les plus petits villages des arcs de triomphe étaient
 dressés; partout'on acclamait dans l'archevêque l'idée
-nationale.
 
 C'est alors que les Allemands de Posnanie, suivis à
 quelques jours de distance par ceux de la Prusse Occi- à
@@ -8768,7 +7392,6 @@ pouvoir à la fois manifester sa haine contre les Polonais et attaquer la politi
 Peu de temps après se fonda, sous ses auspices,
 lOstmarkenverein (Société pour la défense des Marches orientales), véritable machine de guerre créée
 contre la Pologne prussienne. Cet appel à la haïne fut
-entendu.
 
 De nombreux Polonais des provinces allemandes se
 
@@ -8786,34 +7409,25 @@ Occidentale. On vit dans les paroles de l'ancien chan-
 prince Sapieha, président de l'exposition, fit une sortie
 
 LU Polonais et Prussiens + UNSS
-nn | “Nu
 “ar énergique contre les prétentions germaniques. Kos-
 ‘3 cielski, qui avait à se faire pardonner sa politique de
 Le , cour, fit une déclaration patriotique, dans laquelle
 nent il affirmait partager l'espoir de tous les Polonais. ()
 V4 Cette fois il brisait nettement avec la cour. Stablewski
-38 chercha en vain, en se faisant interviewer, à atténuer è
-4 , 3, À
 N les choses. Ce fut la ruine définitive du parti de la
 j conciliation. Du reste, la chute de Caprivi changea 4
 118 complètement la politique du gouvernement envers les 1
-ti A G . k
-Fri Polonais. 41 4
 AU Les débris du parti de la cour cherchèrent un refuge .
 ni dans le « parti national », parti d'opposition franche, F
 ÿ mais de tendances plus conservatrices que le « parti 4
 (Li populaire ». Koscielski devint un des chefs de ce
-4 parti. (2) À
 SA Le 22 septembre 1894, l'empereur avait prononcé son j
 ni Quos ego : « J'ai appris, disait-il, que malheureu-
 ‘ { sement nos concitoyens polonais ne se comportent pas M
 4 comme on doit l'attendre et le désirer. Qu'ils le sachent h. s
 he bien : ils ne pourront compter sur ma faveur et ma ‘4
 A sympathie royale au même degré que les Allemands,
-P . . . ce + 3)
 } qu'autant qu'ils se sentiront absolument sujets: alle
-DT 'mands. »
-FA d . . . 2h le
 \ - Les couleurs de la Posnanie, qui avaient été jus- 4
 ù (:) Il est probable que Koscielski a réellement prononcé les À
 f: paroles que lui attribuaient les journaux. Il envoya des rectifica M
@@ -8823,31 +7437,22 @@ de tortueuse. ; à
 Depuis lors, il s'est montré défenseur courageux de la cause 4
 
 \ polonaise, Cest lui qui a été, en 1905, l'habile organisateur de là
-qu Straz. 1°
 l h (2) En 1896, il entra dans le conseil d'administration des Dsiennikt Le:
 
 } Pozsnanski, organe principal du parti national. 4
-, A
 
-NÙ DE LA RÉSISTANCE DU PEUPLE POLONAIS |
 | qu'alors celles de la Pologne, rouge et blanc, furent #
 7e changées en noir et blanc, couleurs de la Prusse. +
 x: Delbrück fut à peu près le seul à défendre la politique
 _ de conciliation. Dans une série d'articles des Preus- 4
 à sische Jahrbücher, puis dans une brochure qui les - à
 4 reproduisait en partie, (1) il critiqua la persécution de à |
-rt . . . . > GE
 % la langue polonaise et l'œuvre de colonisation entreprise :40
 _ aux frais des contribuables. Ce champion attardé du 18
 libéralisme fit peu d'adeptes et s'attira des haïnes "4
 | | violentes. (2) Ms:
-À ! 8]
 | ; $ LE:
-ph ï nr:
-= sis 4
-ÿ ‘12110
 4 40
-( : } 14
 # (1) Delbrück : Die Polenfrage. Berlin, 1894. 14
 (2) Voyez en particulier les attaqués dirigées contre lui dans le 008
 _  Deutsches Wochenblatt du % avril et du 5 juillet 1394. Voyez aussi 71
@@ -8855,8 +7460,6 @@ _  Deutsches Wochenblatt du % avril et du 5 juillet 1394. Voyez aussi 71
 Un procès entre l''Ostmarkenverein et Delbrück ne fut évité que DA:
 L grâce à un accord (octobre 1904). 22008
 
-De 1%
-“a CHAPITRE IV 4
 Dès lors commence Ja lutte ardente, où tous les il
 efforts tendent d'un côté à tuer une nationalité, de À
 | l'autre à ne pas mourir. Ces choses-là ne se disent | 4
@@ -8865,12 +7468,10 @@ k part et d'autre on est conscient du but. Le combat
 s'exaspère; la haine devient profonde et s'enracine. Le  « k gouvernement prussien prépare des lois d'exception, À
 d promulgue des décrets, pousse en avant une armée de
 : colons envahisseurs, fait fustiger des enfants par ses À
-Lier: : M » . 4
 { maîtres d'école et condamner des femmes par ses tribuCHERE . sat k
 | naux. Il n'est pas seul; l'initiative privée s'en mêle; M
 ji elle organise des sociétés de combat, entraîne jusqu'aux À
 Allemands du Sud dans l'arène, répand des pamphlets,
-VX » "il
 14 entonne des chants de guerre, réclame de nouvelles M
 à restrictions à la liberté. Les ministres qui se succèdent
 ÿ' se lèguent l'un à l'autre la tâche de trouver des armes
@@ -8878,18 +7479,11 @@ ol nouvelles contre le polonisme, qui, pour résister, a
 | appris à se servir des lois prussiennes. "1
 1 De temps à autre, l'empereur daigne inaugurer quelque
 ti monument et donner, en paroles sonores, son auguste
-\ d
 (Ai) encouragement aux champions du germanisme. Mais
-h 5 s à
 | dans le camp opposé, on resserre les rangs. On a appris
-& & a
 des formes nouvelles de combat; on ne craint aucun
 sacrifice. On sait que la meilleure défensive, c'est lof
-6 (à
-: 80 Aa
-1 An.
 
-DE LA RÉSISTANCE DU PEUPLE POLONAIS À
 | fensive, et l'idée de la Grande Pologne va réveiller les j
 énergies endormies, jusque vers les bords du Rhin,
 jusque dans la capitale même de l'empire. On dirait le |
@@ -8918,18 +7512,13 @@ C'est d'abord le Congrès de Vienne. A une note de Ps
 Castlereagh en faveur des Polonais (12 janvier 1815),
 (1) Le programme polonais se trouve clairement exposé dans la
 Gazeta Grudzionska, un des principaux organes du parti populaire. On en trouvera une traduction complète dans Hans Paalzow :
-Zur Polenfrage. Berlin, 1902. Pages 4-5.
-s 81 Bernus. — 5. à
 
 : HS * Polonais et Prussiens 117 TS
-EAN k ARTE
 4 _ Hardenberg avait répondu que la Prusse était prête
 ‘ à donner à la Posnanie une administration en harn monie avec l'esprit de la population. Il ajoutait que son Li 5
 16 gouvernement ne demandait qu'à prouver que l'existence
 Al nationale d'un peuple pouvait être respectée sous tout
-qi gouvernement. +a
 49 _ C'est à peu près dans cet esprit que fut conclu 13
-na l'accord du 3 mai 1815. (1) L h:
 N A cela les Allemands répondent que le Traité de |
 A2 Vienne ne lie que les parties contractantes entre elles et 1
 W non envers les Polonais, qui n'avaient pas de représen- 4
@@ -8950,15 +7539,11 @@ ne ment à cette patrie, Vous êtes incorporés à ma mOnar4 j chie, sans avoir 
 Lo le point de vue allemand dans Noak : Die staatsrechtliche Stellung
 Ni L der Polen in Preussen. Berlin, 186r. Et Petzet : Die preussischen nn M
 > Ostmarken, pages 16 et suivantes. ‘4
-ÿ (2) Voyez Massow : Polennot, page 124. 11
 is (G) Cest sur cette proclamation qu'au Landtag uni de 184,
 N Niegolewski basa ses réclamations en faveur des Polonais. RAR
 1, Voyez Matter : La Prusse et la Révolution de 1848, pages 93-34: ME
 
-* Û ü 4 F4 f Ÿ 21
-& ; a * i à bé n” 1444 bn Lee le 4 Lo * dE À un dà ? ci di 2e
 #4 DE LA RÉSISTANCE DU PEUPLE POLONAIS
-41e “ER
 \ Ce dernier texte embarrasse bien un peu les Alle- ÿ 1
 : mands. Quelques-uns, jonglant avec les mots, cherchent qe.
 | à en falsifier le sens. Ils prétendent que cette patrie, K:
@@ -8970,14 +7555,11 @@ L- Prusse, qui ne peut tolérer des lois spéciales pour une “à
 F partie de la monarchie, (2) ou bien déclarent que les EF
 ._ droits des Polonais ont été annulés par leur soulèvement %
 #
-è en 1848. (3) d'
 Comme les Tchèques, comme les Finlandais, comme 4
-4 x re
 L* presque tous les peuples annexés contre leur volonté,  …
 ? les Polonais se réclament de stipulations de traités; ils 3
 | se cramponnent au droit écrit et vont rechercher de à
 Ë , vieilles chartes historiques. Cela est légitime et cela est 4
-Ç . . CR EI + 4 #
 naturel. Maïs les arguments juridiques sont une arme 4
 | %
 Ÿ  fourbue, sans grande valeur. D'abord, parce que les 14
@@ -8987,18 +7569,14 @@ k- dangereux d'en appeler à des conventions. Puis, parce “4
 L traités et d'oublier les promesses les plus formelles, et 4
 ‘RE qu'il est singulièrement naïf de croire le contraire. En ÿ 54
 d outre, c'est déplacer la question en même temps que la $ H
-‘Ha
 (1) Cette étrange interprétation, contredite par le contexte, se a! +
 | trouve dans Massow : Polennot, page 127. Conférez Petzet : Ou- 14
-F vrage cité, page 18. 1700
 À (2) Réponse du comte Schwerin à la motion de Niegolewski, à De:
 | la Chambre des députés, 21 avril 1861. M:
 A noter que les lois spéciales existent bel et bien, seulement 5
 elles sont contre les Polonais. Er
 (3) Discours de Bismarck à la Chambre des députés, 28 jan- "20
-. vier 1856. ; 118
 5 48
-mia EL : NUE
 
 . ; NA Polonais et Prussiens ETS
 :4à rapetisser; c'est l'enfermer dans le cadre étriqué d'une su fl
@@ -9009,7 +7587,6 @@ $ un engagement ou parce que des diplomates ont ajouté D:
 so un article à tant d'articles de tant d'autres traités, à
 | ce n'est pas pour cela que les Polonais ont raison %
 de protester et que les Prussiens perpétuent une 4
-injustice. à
 Le seul argument qui porte, parce qu'il est le seul $
 . vrai, est d'ordre moral : Tout peuple, toute nationalité #
 a droit à la liberté, c'est-à-dire à la complète expansion 4
@@ -9030,14 +7607,7 @@ prudence politique et par crainte de procès de haute ‘À
 1 trahison. Et pourtant, malgré les réticences, les équi- a
 voques, voire les dénégations, les preuves abondent. (1) À
 il Il suffit de parcourir les journaux polonais pour s'en (oh
-assurer. si
-(1) Voyez Wagner : Der Polenring, pages 16-19. d 3
-Ne
-! #4 ..10
-M T4
-{ y 43
 
-DE LA RÉSISTANCE DU PEUPLE POLONAIS
 La Gazeta Grudzionska (1), se plaignant de ce que la
 Germania, appelle les Polonais des « Prussiens de
 langue polonaise », ajoute : « Nous sommes tout au
@@ -9064,13 +7634,8 @@ nous persuader à nous-mêmes et aux autres que nous ne
 cherchons pas à réaliser notre idéal polonais, mais que
 c4 nous ne voulons que défendre notre langue maternelle, se
 | retourne contre nous. (7)
-(1) 1897, numéro 119.
-N (2) Dziennik Berlinski, 21 février 1901.
 (3) Numéro du 12 mars 1go1. dé '
-(4) Gornoslonzak, 15 décembre 1901. 4
 (5) Allusion au céièbre poème de Mickiewicz.
-(6) Dziennik Berlinski, 5 juillet 1900. Ê
-(7) Id., 10 juillet 1900.
 
 ES Polonais ‘et Prussiens'* "SON
 "| nr TS s Mec ne
@@ -9090,21 +7655,14 @@ je Posnaniens et Silésiens vont manifester à Léopol ou à k
 * Cracovie, montrant par là que si l'unité territoriale de 4
 M la Pologne est détruite, son unité morale subsiste. (5)
 Ni En juin 1903, un grand congrès national, auquel assis- 1
-3 . 942 7 . . L
 À taient des délégués des provinces russes et prussiennes, 4
-4 RUN EUE : L É ne:
 “a se tint à Léopol. On y vota la résolution suivante : < pe
-10 ' 4
 “h Le Congrès national polonais, confiant dans l'unité indesdi tructible de la nation polonaise, exprime aux Polonais de
 1 Prusse et de Russie son respect et sa reconnaissance pour 7. à
 A leur fidélité inébranlable à l'idée nationale, au milieu dela M
-* : . # DL.
 11 lourde oppression et des souffrances qu'ils doivent endurer. er.
 “4 Les représentants du Congrès se déclarent prêts à sou- NE
 Re tenir en toute circonstance leurs co-nationaux des deux ‘4
-; À () Dziennik Berlinski, 3 septembre 1900. 1 ; 1
-14 (2) Id., 4 juillet 1901. : FAURE
-ie (3) Goniec Wielkopolski, 8 août 1901. JR
 ‘ie (4) Praca, premier avril 1900. LA
 fl () La fraction polonaise du Landtag prussien envoya une
 14 adresse à Sinkiewicz, à l'occasion de son jubilé. Voyez le texte dans : La
@@ -9112,7 +7670,6 @@ fl () La fraction polonaise du Landtag prussien envoya une
 nn cier, dans le même journal, 23 février 1901. HR 0
 | 86 ai
 
-Gi DE LA RÉSISTANCE DU PEUPLE POLONAIS À; ES
 4 pays voisins et les assurent, qu'en travaillant en Galicie à “s
 H. : la régénétation nationale, ils auront toujours en vue l'en- :#
 semble de la nation polonaise! (1) *
@@ -9147,9 +7704,7 @@ tique les incompatibilités d'humeur ont quelque impor- à
 
 () Voyez Temps du 3 juin 1903. ip":
 
-16 à {? A y n « 4 YA 1 Fe # 4 4
 \i4 Polonais et Prussiens 1
-4 4%
 va tance. Or, Polonais et Allemands ne se sont jamais Î
 L bien compris. Il leur est très difficile de se rendre
 ; justice les uns aux autres, parce qu'ils diffèrent par 4
@@ -9179,20 +7734,9 @@ i qui fait des efforts réels pour atteindre à une certaine 4
 impartialité, s'écrie pieusement en parlant de la lutte *]
 contre les Polonais : « Puisse Dieu, qui n'abandonne A
 (à) Voyez une caractéristique des Polonais par un Allemand, 2 ne.
-Massow : Polennot, chapitre VII (Der polnische Volkscharakter). 4
 \ (2) Wagner : Der Polenring, pages 44 et suivantes. \, 40
-88 di
-” a
-
-D \ ? r * x:
-
-F: DE LA RÉSISTANCE DU PEUPLE POLONAIS S
-
-à
 
 J pas les Allemands, mener aussi ce combat-là à bonne
-
-LL fin, » (1)
 
 " . Cette lutte de dénationalisation paraît donc à un 4
 
@@ -9230,28 +7774,20 @@ en harmonie avec ses limites politiques, à donner et à Ë
 l'ignorance, de la révolution et du matérialisme, en ;
 portant haut la lumière de la liberté intellectuelle et
 
-morale ». (2)
-
 Avec de pareilles théories, on va loin dans la voie de F
 
 la persécution. 4
-
-=. LT FAC OS 2 }
-
-(1) Wagner : Der Polenring, page 46. ÿ
 
 (2) Conférence prononcée à Berlin par le colonel de Bernhardi, |
 
 chef de la section historique du grand état-major ; cité par Lair : 24
 
 f L'impérialisme allemand, page 108. +4
-89 D ë
 
 : 101 UN lPolonais et Prussiens| NN ‘4 k
 n. Parmi les arguments employés du côté allemand, ily M
 4 à en a de bien usés. Les provinces orientales, dit un ° { 1
 ha polémiste, sont un sol qui a jadis appartenu aux Ger-.
-Ni mains. (1) 1 |
 ÿ D'autres, rappelant comment la Pologne a sombré, "3
 qi dénient aux Polonais la possibilité et la capacité dese
 # gouverner. (2) Enfin, on ne cesse de rappeler aux Polo- es
@@ -9274,16 +7810,9 @@ na d'être réfutés. Aussi bien, les Allemands intelligents ‘4
 __ * expliquent plus franchement, plus logiquement et aussi
 è j plus cyniquement la situation : « Dans le combat des
 ï À races et des peuples, il n'y a qu'une loi immuable, celle 110
-M .. du droit du plus fort. » (3) | 5
-(op ( ») Müller : Wüill Deutschland die Ostmarken behaupten oder nicht. ÿ, #4
-nu Berlin, 1900. Page 4. ! (1450
-rs (2) Voyez Kietz : Ouvrage cité. Massow (Die Polennot im deutschen
 ‘US Osten, page 7) combat avec raison cet argument spécieux. 04 fe
 | 6) E. Herr : Neue Bahnen der Polenpolitik. Berlin, 1908. Page 3. \ SA 4
-JU 90° RE.
 
-40) DE LA RÉSISTANCE DU PEUPLE POLONAIS | FAR
-DER » 4 À
 10 Un des chefs hakatistes, M. de Tiedemann, prononçait
 ne de même, dans un discours à Breslau (26 février 1901), ‘14
 ces paroles textuelles : « Dans ce monde, il nyapas
@@ -9296,13 +7825,11 @@ coccygie, et malheureusement nous ne vivons pas non 4
 _ plus dans le Paradis; mais nous vivons sur cette dure 20
 $ terre, où il faut être marteau ou enclume. » (2) 4
 4 Voilà qui est franc. Cette conception fataliste et pessi- Re:
-miste peut parfaitement se soutenir. Seulement ilne Fa
 | faut plus alors chercher des justifications dans le do- , :#
 ne maine idéal des lois morales: on n'a plus le droit .
 #4 d'employer le mot de « justice », qui ne correspond ÿ #
 # plus à rien. Cherchons tous à être des marteaux, mais (2
 # ne nous fâchons pas si les autres ne veulent pas être
-À enclumes. “5
 6 Ii faut toujours un peu d'héroïsme pour être parfaite- 4
 +4 ment logique, et les Allemands ne vont pas jusque-là. 2
 fs: L'écrivain bien connu, Félix Dahn, a composé quelques ë Me
@@ -9363,11 +7890,7 @@ tistes les plus enragés. Agrariens, ils tiennent surtout à 1
 ce que leurs intérêts pécuniaires ne soient pas lésés ; ils J 4
 préfèrent presque tous avoir recours à des ouvriers
 polonais, qui ne demandent qu'un petit salaire, plutôt ; ‘4
-92 Ne
-GA
 
-OT D à Po
-} DE LA RÉSISTANCE DU PEUPLE POLONAIS ; ï
 à qu'aux ouvriers allemands, ainsi que l'intérêt du ger-
 ; manisme le demanderait.
 | Quant aux antisémites, ils sont partisans de la
@@ -9391,11 +7914,9 @@ prochain cahier l'activité.
 Les deux groupes libéraux sont par principe hostiles
 aux lois d'exception; les deux ont voté contre la loi de
 colonisation de 1904. (2) Mais il ne faut pas se cacher
-(1) Voyez Massow : Ouvrage cité, page 305.
 (2) Sur l'attitude du parti libéral dans la question polonaise,
 voyez Wagner : Der Polenring, pages 34 et suivantes.
 | En Posnanie et en Prusse Occidentale, les libéraux préfèrent
-95 |
 
 Me 0 MO Bolonats et: Prassiens | KP MIRE
 _ que, pour les Polonais, il n'y a aucune aide effectiveà
@@ -9403,11 +7924,9 @@ attendre de ce parti, très restreint du reste. Les temps
 vi de 1848 sont finis. CUS
 ‘1 Il en est malheureusement de même du parti socialiste : À
 10 allemand. Ses chefs n'ont jamais eu assez de largeur de gs
-ER . AS LR
 1 vue pour se prononcer en faveur de l'autonomie polo s
 ‘ai naïse. Le problème du droit des nationalités ne semble
 40 pas exister pour eux. C'est une question qui ne se laisse #
-PR HOTTE 4 (4 04
 N . pourtant pas escamoter. L'étroitesse de la citoyenne
 EN Rosa Luxemburg, celle de Bebel et d'autres a eu pour
 ‘à résultat de forcer les socialistes polonais à former un
@@ -9420,18 +7939,12 @@ on proclamés, ou le plus souvent au nom d'intérêts électo-
 
 Me. raux plus ou moins égoiïstes. FI is
 
-NN SYGE
-
-Ki F 3 @ ie
-Es HR,
-
 Qt parfois assurer la victoire du candidat polonais, en sabstenant D
 po de voter, plutôt que de donner leurs voix à un conservateur. »
 
 h C'est ce qui est arrivé en 1897, dans la circonscription de Dirschau …
 
 D Pour Stargard, lors d'une élection pour la Chambre des den
-Di voyez Ostmark, II, 8, page 57. ;
 
 tn () Ce mépris de la question nationale polonaise éclate dans la.
 
@@ -9444,130 +7957,42 @@ a naise. Le poète polonais André Niemojewski répondit à Bebel par M
 | une lettre ouverte. Voyez Européen, 3 juin 1905, page 15. 28e Pa
 
 11 Eee 15 on db a AT ÂS in BCE el AE Ge FNTAR
-é 14 ere MR TRTN TE TARN ENT MEHR:
 | LA OR RAT ie AN FAR TPE
-LPC: NE Le 71 ANS TT ANT MANRNRRES
-A D
 4 Ten ni
-+ ME: LS
-MN Ÿ
-MAT: he
-LES 5
-HÉAA ANS à FE
-L 01 8 : : : \ 1R0RISS
-DRE dl * ; à ‘4
-NT EER # De
 EL CNRS on:
-p pui" 1.118 : 1080
-ws - QUER Fr: \ 1 ÿ 21
-APR <. 1. %£ ; 0 A Le 23 4
-À. 140 i LR
-AR ; ; LTÉE
-ge RL æ JON: re CURE 8 res C2 3
-PAR Lu: 1: ASE CR RUES = : e + 1:44 UE TER - 1
-1.23, SRE Fi nn UE TS j TRE Er +138 Co
-5 SISRRE : HONA ee EN Ft LLNE 422000
-'RICAYE RAA UNE T4 PAR RON CT APRES OREE *HRASONTUNS F7 TI ANS
 
 +4 a ANAL NE PA MERE RE EN ANR ES EEE re
 
-RARE Fu ve . 1 f SITE RO * D HAE
-De SLT SNA
-PA CEA
-HA à 0
-jeu Pie
 < TES des
-Eu ES:
-ri
-; 4]
-À ‘4
-Pi
-' 4
-ïl 7h
 
-% « ll *
 |
-
-\ \W
-‘ ‘8
-da |
 
 | Û ;
 | %
 
-AS .. {
 | . 4
 
-n re
-
 Fa ait Ets ea A Le Le js RUE, Ft 4106 Je NV
-&. LAS STREQ 5 LE "U +, /a7 1 TORRES
-Z AT À É LA
-* RÈGNE t Qi:
 Res Il a été tiré de ce cahier treize exemplaires sur
-Mg « . « « FC
 … . whatman ainsi distribués : à
 D premier exemplaire de souche, exemplaire du gérant; g
 A deuxième exemplaire de souche, exemplaire de l'ad- %
-Re: #1 ministrateur ; #
-RL hs : : s À
 (SP troisième exemplaire de souche, exemplaire de Pimde “54 primeur ; 7
-PR ï « : s 4 Eli
 : RE dix exemplaires d'abonnement, numérotés de Tr à 10
-‘4 à exemplaires d'abonnement. à 4
-TS j 500
 Ro Tous nos exemplaires sur whatman sont numérotés
-74 = s … 4 . » . 6
 ne -\, à la presse et imprimés au nom du souscripteur; nos
-: CESR . D . Le
 “n tirages d'exemplaires sur whatman sont rigoureuse
-0 ment limités au nombre d'abonnements à chaque in- Li
 __  stant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement
 —. sur whatman à cette huitième série est de cent francs
-\ {CE 14 70
 |. pour tous pays. 70
-+R “+
-NE de |:
-4 164 ai. ,
 2 Les Cahiers de la Quinzaine sont composés à la main,
 : 41 en caractères fin dix-huitième siècle (Didot) de la fon
 à _  derie Mayeur (Allainguillaume et compagnie succes-
 à or seurs) 21, rue du Montparnasse, à Paris, sixième se #
-“ arrondissement. {2 17480
-_ Y# NE Bernus. —6 BU
 
 A MERE nn RUE AE DE QE FSI AIR Me
-MG ASE DEAR
-AOL" . DD à
-CAR AR { RAIN At
-UE: WEP :
-NT LUE
-ÉLUS | 2
-FT K Na ANNE
-}:D MERE ul £ TAN
-(ESS ; É À # NE
-M: HN il
-LAON PSE ES
-;'iMIEON ÿ: I TE
-(+ 4 Ne 1 808 Ko
-(EN h p > RE sr
-5h #7 DER
-JANTES 4 (FRERE
-MATRA: ? 4} NrÈOTE
-A à in ANA 4
-A0, \ De?
-ALT SE \ L'RNEE
-TNRIMIES « ) (MTVRE
-RATER À LIL HER
-di PA l ï } M Ni \
-IT { FI vel
-LEON PAUL IE: FR
-1 à * HAN pus:
-! VOTRE 4 dat LR GX AUTRE F1
-4 TAININAIEAl
 
-OSSI: 7 j - ADS EP: " L:
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, |
 rez-de-chaussée, Paris, cinquième arrondissement. À k
 Le Nos Cahiers sont édités par des souscriptions menEU suelles régulières et par des souscriptions extraordiad naires ; la souscription ne confère aucune autorité sur fi
@@ -9577,14 +8002,10 @@ Le Nos Cahiers sont édités par des souscriptions menEU suelles régulières et
 228 dans le temps d'une année scolaire, d'une année
 4 ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- 4
 pe a, ment se prend pour une série. : É
-‘PE
 “M ra . On peut souscrire cet abonnement à tout moment de
 : Le l'année, mais l'abonnement ainsi souscrit est, de droit,
 E valable pour la série en cours. F.
-MU Dr. Pr à
 Do Prix de l'abonnement, pour chaque série annuelle » pendant le cours de cette série : É %
-D. Cr: : { Paris, départements, Alsace-Lorraine, 3
-k: Fe Abonnement ordi- \ Algérie, Tunisie.... vingt francs 12
 5 ÉRAe 0.00 } Autres pays de l'Union postale uni100 \  verselle....... vingt-cinq francs
 Ÿ 04 Abonnement sur whatman... cent francs pour tous pays M
 ki ‘4 Les exemplaires sur whatman, tirage non réimposé,
@@ -9599,22 +8020,6 @@ j EX. souscripteur ; le tirage à part sur whatman a commencé
 |  méro d'inscription qui devient automatiquement le
 4 E: numéro du tirage réservé à chacun des souscripteurs; Te
 …  lédition sur whatman est strictement limitée au LE
-_ nombre d'exemplaires à chaque instant souscrit. 7208
-
-LE NE SL A A Ar AL A CL A a QU URI D LS
-PA } ‘ É : 24 RENNES
-HA) . LT U | ENS
-LUS 4 \ AUTANT CHAN
-‘INA sut AUOT ‘EAP
-aus , \ + TES
-VO] | LT NAN
-NT 1 4 LA ne)
-nié 1 RAS AE 2 BANDES
-SIA} } 4 1 « AE Ve LE | MO MIRE
-: 0 , AVE { fl AAA NES 1 qe nl
-ÉTAT 1 20 DD AN PRES
-EN AVE j \ à ir DATE i LAC UNE 14 \
-ORRAIDETA : br { Ve SIN EPA MERS
 
 ip LE End EE Wie #10 OUT A TR
 
@@ -9647,4 +8052,3 @@ d neuf cahiers de la septième série complète. |
 | d'une série, le prix de cette série est porté au moins
 4 au total des prix marqués; ainsi depuis le premier
 ‘4 ' janvier 1907 la septième série complète se vend quarantetrois francs. L
-ÿ 4

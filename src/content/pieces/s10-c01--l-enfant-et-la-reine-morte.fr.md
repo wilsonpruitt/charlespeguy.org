@@ -7,122 +7,36 @@ author: pierre-mille
 isAvertissement: false
 wordCount: 55955
 ---
-
-L'AIR É à L VOA On RATER HIER Û
 | PE NAATAE d Leu AU PE are LE 1
-LM (4 tre ( AA NIEP EU NA AMTAS NEA. À vi 4
 |: AA | NEnt iris AL Vi
 j14 | ul { f Mal UM LAIT TETES \é fl La, 1 Fa
-ut } (EAU UMTS AN ANSES
-1110 | À TAN ET RUES
 ot 6 L UE RON dm ?
 | 8 1H TATIRATENR Ke Fi un
 |: AIS MA
-‘a l ï 1 160 As :
 Ji (Ones l ue L
-\ La ÿ MU Hi 14 HAN
 De 1 ee HHLUN
-Hi | NO TAUTE Ps. a DAT
-NA) LR : JU TERNE
-H eu }\ 111, | ATEN
-MIRE 5 DUNAES ï |} TELE
-D À | } FUN Al ls A
-\ LENS
-: 4 ) | ON
-be ( VAR
-De | WU 1
-ie UT 1 SUME
-NME À f 14 RP ff h
-TE TUURE A | HET MATE ; ji 108 ANNE
 
-KA PREMIER CAHIER DE LA DIXIÈME SÉRIE
-PIERRE MILLE
-] R |
 l'enfant et la réimne morte
-bo
-où” L
-EN
-We DAC
-745 RU
-CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-AP
-
 2,0
-C1$
-eér. 1O
-no |
 
-WAP AA NT an DEF Lit bi EE € À CT Ent AT PUR
-AR à 8 LR PSS M ELA A LR nt
-AN RASE (EU RAA A AUARONE IAN LA SES CE RS AR PR PE ET AUS Fo :
-DETERMINEE % RM << |
-FER FN VU a 4 ; A
-; ADR MA
-NS Ha < We
-1-16 ER ; :. (RCE
-al Fa A : SORT L 42500
-K x "#10 x (n°2 L(NREIES
-1 LG EAN Lx ANR
-*, METTRE à ea }
-++ Ai LAN 4 NAN LUE .: KG RES
-Î PAU: A : Ar LIRE LS fo
-: TE } LE MAT UNE RNINPE
-ji ANDRE à PL NUS ee SAVE
-4 TANT Ex EE 5 \ LYS RARE ï |
 LUS el ii) MÈte NS Eu Le 4
 
-" jus MURS NE 0
-HN AO T Re At AUS MATE
-Hal) FO RAX CURE RG Er Pol ARR 4 EAN br
-+ HAE 14 HD SR mo \ ds) GLEN NA LOANEE MN QT ANR oi unit
 Are | FAN JR UNE EEE D à
-RUE: j l Ê |
-4" nt:
-à 4 5%
 
 | | +0 tata On |
-} ÉLOENE HS ci
 | | ne. tre LAS ls:
-11 RE s 4
-? PE DA Ce L
-PL S AT 4
-UE Wir ÿ
-Fan Hi À
-ES 4
-À pe : 8 "4
 ORAN vie
-Jet" A UN MEN # MT f Éd
 
 ne ne ARS AE ex LEURS Mr a
-, DR PEN RE TEN À PRES ART NS ALTO CANON HN Re ee”
-LE NSP DES CAP PRE RES A PE) GAS NN ENT NU ENS ER
-I NA Re TS A REA PRE A AE De UNS LENS LAS NE RTS
-1) AO RE PAU FRA CAVE À PES PARIS PUS ns DMC ESS SP RES
 ne in SNA RC MER CM ANT RENE
-TP" Al D à + ; S Re RES SCT DUT | MENT
-1470) 4 de TEE 4 . : s ; AQU
-NAN NES ( L : VÉLO EE
-1 FAT ME À NT à di À à Tr" j Fa %
-x Men. ent \ , ST PORN AS
-“+ RS x * « À ES RE TNT à :
-2 HIER 1 LUN RSR
-RU } pe AT A | RARE à Rd LE EP D ARR à 1
 Lee CCR RONNRNETE AET ERS à LS PANTIN CR ARE SAR Ce Nos
-PA AN ME TE Ge AR A D AT EL EN AE AAT ENTER
-PINS ARR SAT CE PR AA RSR à
 
-PS SIENS
-d LS UE 1
-h 1) LIN EEE
-nn | FA mel
 Nous avons publié dans nos éditions antérieures et \\
 dans nos cinq premières séries, 1900-1904, un Si NM
 grand nombre de documents, de textes formant dos- LS
-Ë ! : “51 ANCANNIEESS
 siers, de renseignements et de commentaires j— um
 si grand nombre de cahiers de lettres, — nouvelles, « 4
 romans, drames, dialogues, poèmes et contes: — un VAN)
@@ -131,93 +45,42 @@ sophie; et ces documents, renseignements, textes, M
 dossiers et commentaires, ces cahiers de lettres,
 d'histoire et de philosophie étaient si considérables  « que nous ne pouvons pas songer &@ en donner ici 1
 l'énoncé même le plus succinct; pour savoir ce qui a
-. CES FHNEY . . DE x
 paru dans les cinq premières séries des cahiers, in
 suffit d'envoyer un mandat de cinq francs à M. André "Ni
 Bourgeois, administrateur des cahiers, 8, rue de la Sor- 1x É'Ne
-TURN
 bonne, rez-de-chaussée, Paris, cinquième arrondisseet ANR
 ment; on recevra en retour, le catalogue se e f
 KA sommaire, 1900-1904, de nos cinq premières séries. k |
-AUTRE
 | Ce catalogue a été justement établi pour donner, M
 autant qu'il se pouvait, une image en bref, un raccourci, … à
-VA At 4
-DAS M0 |) PUMA
 
-M EE EN AE
-D re Au
 215 11 ACER DO AR RTE éditions anté- NE
 RE Lt SARA 7 Le LL Ah Le, de nos FAQ LE AE ANA
 po” os cing premières série trouver, à leur ji
 (+, rieures es uÿit de le lire pour trouver, AS TE |
 ton _ dans l'ordre air demandées. RUE re
-Ro 20 D). Ù ésus, fo Ÿ RER 4
-Re grand j RAA ER ANS
 || | Ge catalogue, 8 pages très denses, TA AS
-HAE SLA EAU 08 p 2 ahier ù INRA
 11 TNA de XII+4 1 emier cahie 5 Fa si
 
 4 PU Me es: ce ca és l'ont rec a k à ds DAiN
 FAR at TRES t nos abonn hier de la sixièm ET 4)
-PANNE l ; F À " \PA
 D ne série e LE on 1008 A
 AE su bre 1904, comme p ‘au 31 décembre 1905 À to
-HAN ct ol LT G jusqu : Tece= : AU
 Re ne qui jusqt ixième série le rece- AE
-Ÿ | série; ut. erson ième S \ ie AS
 ARE rie; toute p ï t à la six F la Ve Tan
 
 | Sér1e; t pe ctivemen n tête de A
-HAT it rétrospe. ement, e | DS
-f VD @ nait ré abonn ; 8 # ME
 LAVE ae POP éme de son cinq franc: PA)
 FPE AE) EL QUAIR ait m mandat de HAE
 nu ie; nous x envoyons ah en fait la demande. : MUR
-RAGE série; EME | « “ ANA
 Dh aie personne qui nous i AE
 du M + Mure k ner
 
-HE Non TT U Ni ” 4
-
-HAN arr Re Wu Ha Nano à NA » re |
-MAS 1 è ÿ ANA *! NPA
-
-JUPES A Ua Ua h Mr | N | Y Het AMIE Lu % CIE
-
-(g A7) Vi RNA re 1 1 l À PNLAR DUREE
-
-: LAN NON AURA RS A TR PA
-FA ic Ÿ AS EN ANNEES AMP PAT |
-
-fl |
-
-FÉ
-
-LL
-
-ie
-
-pi
-
 | 7
-: | 2
-
-\
-4 ue k
-f
-
-"
-z [
-Ë À |
-
-GTA
 
 dans l'ordr 1 r RE
 
 place, les référ 1
-
-(]
 
 Ce catalogr hier Fi À
 
@@ -225,54 +88,18 @@ très épais de XII q 1 ‘
 
 francs ; ce h 1 hier HA
 
-sixième série « à ii
-
-RIRE
-
 > octobre 1904 r le la sixième (SE
 
 série; toute person ? 1006 ÉEE
 
-RS
-
-s'abonnait rétros} 1 ri rece- ns
-
-Hi]
-
 à toute personne q 7 1 Fi ; |
-
-dl
 
 5 8
 
-tt)
-
 sai MES
-, jh
-
-e 1e séri fi à
-
-+, à Î
-
-PEU 7 dr. hote # f FAI VAN ARR
 
 nn A PS OA RSA PA ELA EN ON ANNE 3
-MED 4 ÿ ni û $ ET A} UHR
 
-FE AE | ! SU PT SRE DEA LU »L “ ? . Lé AR CUT V
-
-Un \ TOR
-
-; k [ Lay (HE LE }
-4 v': "1 PAR EL RAS
-
-lors h ( \ huh A NUE 11 ct \
-
-PEN t { Ho] \ h DA) UMA cl AE N
-
-4 au te Leg AE
-CuarLes PéGuy
-V4
 Dix ans déjà passés. — Depuis plusieurs années je
 commettais régulièrement cet abus de pouvoir que
 J'avais réussi à me réserver, pour le premier dimanche
@@ -290,27 +117,8 @@ Je ne commettrai point d'un an ou deux cet abus de
 années qui viennent, pendant toute cette dixième série,
 qui commence, pendant toute la suivante onzième série
 
-DA NP M RME CIN ST ET AOL FRS VAE VAT ICONS
-
-SR A NN re AO DATE PANE A0 Dune: 1
-MANS ; a à VAN TT 26 RRSEN
-
-ARE : ip i -
-
-re cie TM Man PAU PAL
-Main À ANS + ARE
 Ant d Le LAURENT)
-he CSI
 
-ÿ È : LENS ELA RAS
-
-9 # de} #4 1 ADP hu
-
-An Qt RE nt 4:
-x pu" LUE PAUSE
-A PARA N
-
-DUREE DIX ANS DÉJA PASSÉS
 __ nous nous consacrerons tout entiers à l'exécution, au
 À _ parfait achèvement je ne dis pas seulement de la plus
 | grande entreprise que nous ayons jamais faile, je dis
@@ -332,32 +140,10 @@ Je sais par des précédents nombreux que je puis compter f
 sur la bienveillance et la bonne camaraderie de la plupart de nos confrères.
 Pour la première fois de notre vie nous faisons une
 opération qui s'adresse non plus seulement au public
-fi 7
 
-RAR AE NOTE AURA tn AE eV DA EE UP € Cg (A Fa
-US Dr MEET AE MAN) Ent! FRA Wu VS AN A ME TN vit D Ve
-JR RE Mn.
-HU { ( 2 NO TAN
-: Ë Ne Le
-2] \ nn VRENNE
-EXT it PA? 4 5389 a
-À f | LANTERNE
 ei [ \ À RER ces
 Ÿ frs | 1 Les (AE
-\ 4: TITRE
-y LE LT D RENE
-: 2 TT SON
-{4 À $ % NH NE À 1
-; i ! 11e NORONNENS
-‘4 là NOUNOU
-LR HN RES
-: ‘ \é NE \
-Ah 6462 VX METIER
-/ : ï ( HA A 1 <HNONR 4 L
-TOURS (4 F 4 : ni 24e NAS) NET ES W
-" 1h 5 \ y k ni AE à Fee au Ve? !
 
-NAS DIX ANS DÉJA LASSÉS
 ordinaire de nos cahiers mais à tout le public; il faut
 | que nous en sortions à notre honneur ; il faut que cette
 opération soit hautement honorable pour nous; qu'elle
@@ -378,60 +164,22 @@ improprement le grand public; il faut qu'elle déborde
 | de toutes parts le public ordinaire de nos cahiers.
 
 $ le fondateur et le gérant
-CHARLES PÉGUY
-L
-reine morte. — 1.
 
-D: I NOTE AN LE PT DA à: ANATTAN ART AAA PA SEEN RONDE A
 mes HÉEAE SA Los Nr)
 EEE et te VU QE KES ' HNE ES TPE RE EE
 di À ad Le SU HX k PAS SR RES
 3 } PANDE VX “Tr 1 Hi De NPRE MA Ca re ras FAURE
 TS do fl \ LA Me L
-y Hi OP EN RS
-(Free l PA 71404 Re
-Seite Ÿ j MNT \ Re: es
-(a 10 0 0 * 1) ST RNEN
-el e V2 T
 # ñ 20 00 AR
-HAN D Ÿ 1°1 1, MICRNENES
-RS UR 4 fit LT NES
-CAR AA M ! ré i4 $ “ VE RENEeS
-SANTE ; | AL",
-HV / PU Lit “
-Us s 7 MU MES
-1 VE h UT ME
-1h \ 4" NDS
 
 décennale des cahiers
-}\
 
-RAP De A VC OALIONE SRE, à, QU à ETES ELU Dr 0
-MAMA VOTE A EN AUS AL RENAUD PAT EST He La à
-AN QONRL DS ERP A MER RES Et at PACE EE ONS DSP SES AU |
-DT Ne ET AA ÿ ñ EPNINIINERS  ‘
-ARRETE : [! F NAT AE ee
-SOA IND Ü NE A D |
 FR NPA ES NE : F Sara DE
-RNA ‘NS
-ÿ AU] \ ; ñ + AIO GANT
-11 ; | é re CAEN UT
-RUE ae À
-f NEA TAE ' j7 LYON
-UN } Û L A NARBONNE
-11e Me | ! fr: 1% À qi 00 art ON ANNEES
-Re Lit ñ On 4 A LESMPAT A OP LPC G ANT E NeR FAT EE
 
-LAS AULE") ONF PAS
-A HAS. ae r
 Lara Ai Cahiers de la Quinzaine, 8, rue de la Sorbonne
 rez-de-chaussée, Paris, cinquiène arrondissement
 |
-1 ;
-;
 | CENNALE
-DES j
-CAHIERS DE LA QUINZAINE
 P:: célébrer le dixième anniversaire de
 leur fondation, (premier/5 janvier r900—
 u premier janvier 1910), les CAHIERS DE LA
@@ -439,8 +187,6 @@ QuINZAINE publieront par souscription une
 édition commémorative de POLYEUCTE.
 Cette édition portera le nom de : Édition
 de la Décennale des Cahiers de 1a Quinzaine; ou, plus brièvement : édition de la
-décennale.
-LE :
 \ La véritable beauté d'un livre doit s'en- \
 tendre de la beauté de l'œuvre écrite; de
 | l'absence de l'illustration; de la beauté de ?
@@ -448,32 +194,8 @@ la typographie; de la beauté du tirage; de
 l'absence de polychromie; de la beauté du
 ( papier; du nombre limité des exemplaires.
 | 13
-b
-je |
 
-ENT ON FAN 2 à HART QE 7 ANNEE AE C2 ON AA LUE HN EC LR ANR EE
-MERE ELEC OA RE FA (20 EE AOT NE TONNES NDS CURE fN POES AA 1
-“ADN \ »6) 720, 7e RE
-4) w der à ? Ab
-EU ; [VERS
-is RO #)
-AS TNA ÿ \ À 74 PRES AP. RU k Ÿ
-à 1 RU
-F7 \ APR he SE AU
-D (d \ à NAME 1 SÉNESS
-/ ' , IL CNET
-7 RP PAQUL Ce
-(El AE LYC TRE
-se ‘ + ITEMS
-l'a RAP | ni
-PAP ; L ; le RAS 194 VE « UC FAR
 n PL JA ra PAU Ne
-4 $ i Y SAR "CAE
-re) (LUN EE ME |
-sh / | sat SUN MEN
-4, , d : VE NUL l'INSEE
-FEUTA ; | Î * RADAR: Ua
-mt ' # Mig Ed (TA AN EAN Fu 109 4
 
 | DÉCENNALE DES CAHIERS
 f RARE RP CIN NAS SR Lee EN Le
@@ -482,7 +204,6 @@ texte de Polyeucte, un texte qui lui-même
 apporte autant et d'une telle beauté, une si
 parfaite, si totale et si infinie beauté.
 Le titre du livre sera : POLYEUCTE, i
-MARTYR, tragédie (chrétienne), 1640.
 À Le livre comprendra naturellement :
 pour les italiques de tête et peut-être
 de queue :
@@ -501,32 +222,17 @@ pas de nous que-nous soyons assez barbares
 j pour aller alourdir, altérer un texte, — sur-
 | tout et infiniment moins un tel texte, — le
 « déshonorer de nos misérables commentaires.
-É 15 ,
 |
 
-RARE ADECCO NUE “PANNES AP (AUS
 HS MU nu de DA D nant EE
 D AE Ein CRIER 1 UNE
-si AREAS AAA AP A AE RO NE STADE LRO P MILAENRES JE LA
-NE ES DC RAA RUE A EN PDA NET Vu PA TRE ADIDAS VRUREAE HET qe
-A A RE RAA AA EE | AURA EME 4 D. to EPA
-SOA TN hs Fra 04 ; (ie LOS A7 FE
-2 ANA tx Pr | NA D FEU SAR
-ARE À 4 ) Let 1 if, DATES LRU ANT
-RCE TR \ & ur VIS ONE ER
-Fi PR ES Ÿ 1 EU NES
 1) À "AL ner £ NEA we L ( HA V0 HAE ain
-RUE n À A | VA PAL 1
 
 x te . / À 51 YA PETER Anne (AR « Se LE 40e À \ fx. | we # 4 { Re NE NT DEV ARE Ft ANT
-Te SO PT UR PF.
 
-\
-DÉCENNALE DES CAHIERS À
 SV EP Pen EU AGE RE ERREUR POUR AS
 
 Pareillement, — et parallèlement, — je
-dirai presque symboliquement, — ü ny ;
 aura naturellement pas un seul signe dans fe
 tout le livre qui ne soit de la typographie
 pure; on nattend pas de nous en effet non
@@ -537,11 +243,9 @@ de misérables illustrations modernes.
 
 IL est évident d'auire part que nous ne
 voulons pas faire une édition archaïque et
-factice, faussement archaïque, faussement,
 facticement ancienne, mais une édition originaire, qui soit entièrement de nous et
 entièrement à nous; il ne s'agit, il ne peut
 s'agir aucunement de faire une édition d'imitation, une édition de pièces et de morceaux empruntés, imilés des éditions du
-dix-septième siècle.
 
 Le texte sera établi par M. Péguy, ancien
 élève de lancienne École Normale Supé-
@@ -556,32 +260,11 @@ composé à la main, en caractères fin
 dix-huitième siècle (Didot) de la fonderie
 Mayeur (Allainguillaume et compagnie
 successeurs), 21, rue du Montparnasse, à
-Paris, sixième arrondissement.
 
-17 À
-
-CHRMTUE METRE QUE IR SRE E AR En Parts t MOUTON A4 TRE ANNEES
-er rs EX CN PEN
-AL 20 A OR RON VRUAEN CEE CCR er AUX EE € af SU UM AE SN + {
-PL A ARRETE te Hu RAR AA EU A at Ut PEUT
-NU A APR DEA LATE EU TR AL A ON ALMA) OUEN L'ARV RAS Len
-PE RC D AN AA EI MANN PORTER A SA NA DA D
-MAT AE ART ELU PE QE PAPA #1 Cry PU RD EL TS REA EU AT Ir, DORE ADN IA
-NA NON AE \ ASUS ORNE
-HABPANURA UE 3 tf \ LRU AN ATNNS
-ARE A0 6 À { à À LA Hi) ALORS ) ;
-a 6 ” { * \ NE }\ NÉ PU NE
-AE (EN “A F4 Y A DE ME “
-re) 4 D", AE "0 PAU ù nr NPA RUN A AN à ER 4
-
-GER FUN ETAT LS bu ?
-DÉCENNALE DES CAHIERS
-DRE RSR RER
 La composition typographique, la lecture !
 et la correction des épreuves typogra_ phiques, la mise en pages, l'imposition, le
 tirage seront confiés à n0S imprimeurs
 ordinaires, imprimerie ERNEST PAYEN, 13 et
-15, rue Pierre-Dupont, Suresnes, Seine ; en |
 un mot tout ce qui concerne la fabrication
 et limpression typographiques. Cette |
 ; maison mettra au service de cette édition
@@ -599,42 +282,17 @@ en outre des imprimeurs, par M. Péguy ; par
 M. André Bourgeois, administrateur des ï 1
 cahiers; par M. Jacques Maritain, professeur agrégé de philosophie.
 Les volumes seront brochés par la maison
-Gaston Cantrel, 26, rue Boissonade, Paris, ;
 quatorzième arrondissement, 811.74. Ils
 seront livrés aux souscripteurs brochés couverts sous une deuxième couverture dans un
 cartonnage lui-même enveloppé dans un
 | emballage protecteur.
 
-COL EE RE OL LA ONE AO LUN EE M2 ONE NCA PE EAU AAC SR NO EG CN
-PA NS A RENE pe AU OA ENT AU RARE APRES sie 7 NON
-nn Rene RE CPAS ARE NON CT ARRR EE
 RU PR ANT Ses SAREN DU ga pt 0 Pie ee E SEE ré Va AS h LA
-SO AO FREE PE OU PP 0 à CE PS ONR EN RCE EAN EMA rer LAN
 SCA RRQ EE SON ON ENTRE ES À LANTA UN THE nr 6 Lea AT HAT
-HS SN RE Ra M DT NES CAN SES
-FAR ANNE RU AE AE pol a FU FES ENT ANNEE RENE AS fi 2
-RS RATER | AL #11 FETE
-CARRALE T Ra 24 4 \ tt” AÂT EC TER TENTE
-51 RS \ \ ATAVASENENS ;
-ASS k } Z £ J ' HAL NE LU
-Le LE UE ME nf “ 1,52 740 AN
-AS TN ÿ L LRFRRN
-4 Ds + ‘Era ROVER
-RE UTE CE À d ï . ELA F
-(Ps r 12 ASE 4 ENS
-: 4 LS RE {
 M a ne 2 (NE TEENESS
-(ENLRSR : | 51 Tes
-, $ k YU UT SAR TN
-54 Whirn) . y ? TR ASE + AA RUE
-, ET CAN % k ge EUR Ce
-a ». HE! # 4 é PA, ü NL at à "# #
-
-; DÉCENNALE DES CAHIERS
 
 Toutefois les souscripteurs qui voudront
 
-© recevoir leurs exemplaires non brochés
 n'auront qu'à nous en donner l'ordr? en
 nous envoyant leur inscription. Ces exemplaires seront livrés en feuilles collationnées, à plat, non pliées non couverts, les
 deux couvertures à part, dans un grand
@@ -644,13 +302,11 @@ sente, on le sai® wmé avantage considérable
 ‘ que la situation resw ainsi entière pour le
 relieur. Et il ne faut jamais empêcher quelqu'un de faire monter, s'il en a le bon goût,
 les beaux papiers en onglet comme un
-atlas. AY
 
 Ainsi la typographie sera parfaitement
 pure et parfaitement appropriée; le tirage
 {en deux couleurs, le rouge et le noir) aussi
 parfaitement beau qu'on peut l'obtenir à la
-presse à bras.
 
 La rareté de cette édition, — j'entends sa
 rareté bibliographique, — sera immédiatement maxima ; elle sera dès le principe, dès
@@ -663,44 +319,23 @@ aucun exemplaire ne sera mis dans le commerce.
 Littéralement il ne sera ni donné, ni vendu
 un seul exemplaire. .
 
-. 21 \
-
-RS ENS TE À) 47
-ARE RAT CRAN Hs HU
 ne PS NE PA er AQU AUS LE See
 
-RH EUN AAA AN Et PR e Gr PA EEE A
-Ft à Foret pois pa a OS
 : Ua 4 MN EN pi TE VE) NAT Et RATE ner ïE: PAR RUES :
-ROME AS NEA NES NA EPA À ERP) ROUTE M A PRIE DAGNNÉ TAN 4
-PACA NE RS EE à ANR PA ON ANNEES NE ARONRUET NIET ET An LS PE RÉUNION TT FES tue 3
 # NOR if pe HRTAGR LR eu TE AUTIRa t (PTE À Abe ete US Fa à her 1
 Ra a par f OL NENMENE TE #1 NA A
-NT OT MH ED : k < ÿ ! L { AT RL ns h
-DCR + Le È r À WA? Us #4
 
-PRO AS 1 k A 1) UE
-NY) FA F 4 AA 112 0 A NT MANN
-
-AM T 1à 40 AA Se
 LE USER ae BA lin (AE NTE A NE ER
-AUS ; ! te Fee CR ARE 4 Nr ue
 AAA | ne ? gui  N'OE ATEN ARE
 | do UN TA | AU. DAT NOTA ASE A CN ET
-TE COMME CAEN SA SR PC ES MARTEL TE
-
-DÉCENNALE DES CAHIERS ;
-TT DID Da AL TO UNE {
 
 La rareté d'une édition peut s'entendre en )
-deux sens : |
 Premièrement et en ce premier sens que Î
 l'édition dont il s'agit est rare elle-même À
 parmi les éditions, qu'il y a très peu d'édi- 1
 tions de la même sorte, de la même famille, |
 sorties de la même maison, fabriquées par À
 les mêmes imprimeurs pour le même 4
-éditeur. ;
 Deuxièmement et en ce deuxième sens
 que intérieurement dans l'édition les exem- :
 plaires de cette édition sont eux-mêmes KL
@@ -714,42 +349,19 @@ sera pas seulement rare; elle sera UNIQUE.
 C Ÿ Elle est l'édition de la décennale des cahiers.
 Nous avons attendu dix ans pour la faire.
 Et une décennale ne revient malheureusement pas.
-:
 Elle aura donc un caractère de sorte, de »
 famille, et de date rigoureusement unique.
-L
 
 Outre que le texte lui-même apporte un |
 caractère unique indiscutable et qu'on trou- |
-4 23 \
 
 : à SUR AU Mon Ace tal Noa, PNA Er
-a EAU
-a an 16 Pa or Aa
 fe BAR dl EE (AE ERA Ur. a AUTRES Li ANT DEN De PA te ROUE.
-SEE OM ANSE d ÿ we FRA TT 4 ARE AR AE ALAN AE A 4 TOUS
-NA ARTE Wet à CAE HG TNA AE AN A UN ANR 6/2 INC
-(Re CHR CURE h ! A SNS | ES Va EUR
-YEN AA) eee Ë À { > BETTER EUR NT
-AE EUR se | à ! nt PL A “A Me “
 | AAC re j L'HTRMENCE 0 APN Fil EMA “
-SIENS Ana ; vus A LTRE £ USA PRE À HS
 (La ne nt (AT VAUT Lai CE FN @ EU KO ex REA
 RAR PE Û $ ! A AMEN ! té Vin ALAN Ne
-te WITIE f Ÿ AE AA ROME
-DES £ UN AL PHASE PE
-Rat (HAN | "AUTRE FAR LENS NOTE
 SU ! set tbe) MES:
-, j ; RATE ;
-HAL NATE Hire PE : RE NT ! AR ED UMR CUNN RARE k
-SERA 1 700 KL CREER) L) SARA TON AD. MRC
-NP 1e mA AL LIRE AT RAP ÿ NIET AN Re
-AA MUR MATE) ARTE AA RS ON (PAAIRS FA UT }
 
-LC SN LEE MAN LA NENT ERe A EN À |
-rt
-£ "y
-DÉCENNALE DES CAHIERS | |
 |
 verait malaisément un deuxième texle |
 comme Polyeucte. |
@@ -779,18 +391,10 @@ commencement de la fabrication. É
 . rareté se fera avec le sérieux ordinaire de :
 notre maison. Cette rareté sera contrôlée |
 automatiquement par deux moyens qui se
-recouperont perpendiculairement : ‘
 Premièrement el sans aucune exception
 : les exemplaires seront NuMÉRoTÉés à la |
 
-ù reine morte. —2
-[ ,
-
-ART AT AMAR NS TS
-
 AT CR NI AR MEN M RARE NC TR HN Sin ge. HAN
-
-1 IN ME ca (Ve RO EE PARENT AE NE RAD ALES DAS ET NRA TR LA
 
 À as 4 À A A ET VAT NV ns UT PR IUT |
 
@@ -804,35 +408,7 @@ ES Patte MAC TARN UE RAC CPE 1) 1 LANTA TAN HAT CES Meuse 1
 
 PNR LEE PE \ La POSE Er tt AIR
 
-VA PNA. | { | 114): SRE EDR
-
-REC à # L115 24 NTM A TTILS
-MDN | + Ÿ i x 1 DATE MUR!
-AN È î gi : ! JOIN Nes NC
-
-VERRA Lo " à. “ ENT LATE
-AU NOT NE RES > \ LxE MAUR
-
-ON 2" At 4117"
-
-RSI Lt l : DTA S À e LAS RTE Hits 4
-NT CO 4 À F | CSNNNIENSS
-NA RARE ; ñ À RAA
-
-BTS FAN RE) £ Fe F7 4 INSEE PEU WA ;
-ve à MUC AC AS . À j {y SANTA (ASTAURIENENE J
-
-AU INR IE" RE LIN ERA SANT 70 Ve MINES TMS :
-
-TNA LE EH) VA PAPAANS A4 PALAU re SA GER AO L'NSNANA
-
-A ECC OT ATARI CEE TE \ à A CERN NL LAN Een
-
-Lune) nr ANA ATEN ANSE
-
-j DÉCENNALE DES CAHIERS 1.
 : presse el IMPRIMÉS Chacun AU NOM DU |
-SOUSCRIPTEUR. 1}
 
 Deuxièmement et d'ensemble le lendemain {|
 ‘ du jour où l'inscription aura été close il sera à l
@@ -845,56 +421,30 @@ Ainsi ces deux moyens se contrôleront et 1
 se confirmeront eux-mêmes entre eux.
 Ce bordereau fera lui-même automati- ( ‘|
 quement le livre d'or de la décennale des ë
-cahiers.
 Le format adopté est le in-folio grand- {
 jésus. C'est le plus grand des formats typographiques. C'est le seul aussi où les
 grands papiers puissent développer leur
-pleine beauté.
 Les papiers seront gradués, et proportionnellement les prix seront eux-mêmes
 éghelonnés sur dix degrés : À
 Premier papier. — Exemplaires sur vergé
 ‘ anglais; l'exemplaire.......... 85 franos |
 
-14 A
-f 22 SET DIE PRO OT ER RT SEAL YO,
-Ro PNA ARE NE A AE ER OA A NME
-
 PR A RU aa VUS 2 12 HÉSUEUS PORTE CHANT AGE fe C4 PM NES RE UTP TON SANTA EN
-10 TE AR Ag nas APE 2 A NES
 NAME TRE DÉS de PME Et PRO NTNIEE eee AMENER PE AE REA AL
 MATE ie D RON PAS eut LES Ws AO NERES EURE SRE
 mi di UN de ere D D'UN
-710 A # at Ga US 1 AU AR Aer LAN
 | BRENT CANNOT RUN SPAIN PU CON NUPAUNE
 ‘HN ET An EME) dRPUL AT AATIE PTE a LR AU NA pau re En: A NARI En fr
-“RENE 1 MU ANR ANS Re ERP Eat Mhanee PAPER LYS ue it
-APN Lx « tre 1e b Er NOT GR ANNEE
-per CAEN A A i f * À 4 VIDE TERRES
 
-LEA | ENS Â î À ÿ NAS PE Te
-
-ERP AMEN Es n » 'APTNIN ARTE
-LAS TNEU ONE AE VS ! ÿ (2 TR
-RES ARTE à + LE Ur U j LVL RENE }
 ARRET 6 A NL at En ce ñ
-TA IE e 0 4 Le CS PE
-SARL UN ANT 13470 RTE
-‘14 AE PAT } LCR ne 0 VV PAPE I À
-1 LASER à F (in #7 (NS TUEUR #
-Au UE GSSNNE DE LES NERTEUN NS PLAN NON SAONE
-4 dt) TUE AN Vi TN Jv Yi Lg { 1 FR IEN ANS NU LS he
 
 | DÉCENNALE DES CAHIERS
 Deuxième papier.— Exemplaires sur alfa;
-lexemplae!:\...:%.04%," "70 francs |
-À
 Troisième papier. — où commence la ‘ ‘
 famille des pélins. — Exemplaires sur vélin
 blanc à la cuve; exemplaire. 120 francs
-Î
 Quatrième papier. — Exemplaires sur vélin À
 blanc à la forme; l'exemplaire. 200 francs ÿ
-A
 Cinquième papier. — où commence la 1
 famille des Hollande. — Exemplaires sur
 Hollande à la forme, vélin teinté; texte 4
@@ -914,38 +464,13 @@ réimposé; l'exemplaire ..... 3.000 francs !
 Dixième et dernier papier. — Exemplaires f
 sur Vieux Japon à la forme; texte réim- ;
 posé; l'exemplaire.......... 5.000 francs tort i
-29 :
-reine morte. —2.
 
-PR rt Ha RAA A MAS ji AU MX
-jen Re 0 RE Abe Var 01 RE
-PÉENE A RMS TS CHE SQL \ AA | Nr eee LH 4} ON ET AU Pr D'ERULTAON PARLE 3
-HU LCA DRE PS ARR AR) NS ARNO LALN UNE FA
-Ua RU MT, Sat ANTON TMAMAN RAC MAIL MCE A LISA II ACUN
-NEA PAT EL à UE EP RE MA fa EU PE 4} Vs) T TEE NUS À
 MANU Moute {il c k } À (0e VAN (RO 2 Ta CNE
-PONS Sa NT ANT: , ! ai [ PAT MN
-1e DST k ; + FLE FAT
-Ne HACTAUN ANA) k h LA: LA ON EU LAS
-SE AUTANT SO j ME
-NEA ARR nn 0 (RUE TT t ï ARRETE Ve ;
-SAND ME Me | A NET à RARE DU
-AU PAL LTE ART AN ( : ; ARE PRE 11 Pa An
-à ED A APS \ ! \ ! { à IE WE
-À COMME M SU A AIRE Ua QUE DANONE
-Pr ia} ASC AN Sas \ \ # 14 RASE 1 el 5
-MA LUN A PAEIEN à IE SU NME PAT RAI RS IN NO) ni NULS LR FLE
-FO PR TS } RAIN FRERE {à MAIRE NN ù
-IABA A EU TMEU ECEEE AE y RAP NS 1:
 
-FEU. 3 LT |
-LIANT ANR _ DÉCENNALE DES CAHIERS |
-: |
 ES EEE RE te LE
 Ces soins et ces conditions feront de cette {
 . édition un monument unique. 1
 |
-à “|
 et
 Cette édition sera une édition classique; ré
 dans toute la force du terme; essentielle- |
@@ -953,10 +478,8 @@ ment et très purement classique; très pure; 1}
 l'édition (la plus) classique d'une œwre 1
 classique; sans romantisme, sans (aucune) 4
 barbarie, et aussi sans (aucun) byzanti- |
-nisme. |
 
 |
-\
 La fabrication aussi soignée d'un ouvrage À À
 j aussi considérable devant nous demander un \
 très long temps et beaucoup de travail, nous
@@ -966,53 +489,32 @@ scrire pour un {ou plusieurs) exemplaire{s)
 le plus bref délai à M. André Bourgeois, ;
 administrateur des cahiers, 8, rue de la
 : \ . Sorbonne, rez-de-chaussée, Paris, cinquième
-arrondissement.
 Nous leur demanderons de vouloir bien à
 ù libeller non pas seulement très exactement,
 ÿ mais très lisiblement leurs nom et adresse. |
 L'adresse pour qu'un colis aussi précieux 9
 parvienne bien à sa destination. (Car si f
 l'édition est rare elle-même, que sera-ce d'un {
-exemplaire individuel, identifié, numéroté, ï
 | 31 |
-k
 
-* }
 | b
 
 REA EAS De EN A NE AVES UN EL EN th Ne
 H PARC NN NES jt EL SA RE HS HUE OR
-do N : oo TS AGE FN AE FMI
 L th it 1 Re A NE ge AREA PAARAER LNL RCE ;
-RATES ARTE ENS HUE NAolers LPS CNE EE FTP RTE %
 on HAS era fi D TNA A LEE
-. a
-où ANUS NUE RAT LAN EE PEL AO A RUE 1 RU MANOIR RUE AREA RUE
-D ue ONE RAM UML 1 CNT NAS NT
-ie (NV RAA ENS EUN (f ACTE E Î AN NAS ANNEES
 va Ste AAA RER dE 1 POP PNR |
 . on RU (GORE ARS CA AE 1 Sue AN
 VAS ee | En NEA LS ARR ON) FU EESS
-REA AENNTNEE SAT ra À pat PANNES CO ROSES SEE PE ASTON M 4
 | VE seu EE ANA VA PACA } $ CEE SRE “di H EN ANS ÿ
 je PA AN
-7. PAR AT EE RAT M NTTNREN GREAT
 
-! }  DÉCENNALE DES CAHIERS
 Na imprimé au nom du souscripleur; un tel l
 exemplaire, perdu, ne peut plus se refaire).
 Le nom complet, c'est-a-dire non pas seule- |
 CAE ment le nom de famille, mais le prénom
 . usuel, puisque l'attribution imprimée au nom
 du souscripteur se fait dans la forme sui- |
-vante :
-EXEMPLAIRE NUMÉRO 97
-SUR WHATMAN d
-IMPRIMÉ POUR M. GEORGES BELLAIS |
-ÿ
-LE
-« 4
-\ h
 _ Enfin les personnes qui voudraient se faire ae |
 imprimer pour leur exemplaire ou pour À À
 d'autres exemplaires qu'elles souscriraient
@@ -1023,71 +525,42 @@ s thèque, un musée, une institution; pour un NL
 “sont priées de nous en adresser, en même 11
 temps que l'inscription correspondante, le ”
 libellé très complet, très exact, et très lisi- |
-blement écrit. û
-{
 
-ACER AE AT RAA ÉTRE
-F4 ANS LR EEE ESA AUX LE A #2 7 D AE \ PCR
 AT RATE ti Reda AQU HU ou an à it SELS We
 NE ANRT RNA Rd. aù CRT)
-TETE PR AATRES AE AR nie NUE pe"
 “ RUE AUS (imse) NE Er LU NE re PEN GENE %
-en HA FACE HE EME { 40) Ag ARTS *
-AREA HA A ! L'ART NUE
-st RAI NUE ; 4 F } 1% 4 GE
-EME Di EA 4 +* 1 ÿ Nes 100
 Ÿ RUE A PSM hi À NAME FAIRE 1 PS (EAN
-3 Vi , MEN 1 je ji i à 1 PAYS + 1 5 | T'ON
 | Ve Un
 L'an DS We A AURA EAN LAIT
 
-RME AUS Vi 4
-NA RARE HN PARAMEToNe 3 +
 VA De MAT re VEGAS EE a DIS NA en SPACE) 3 ss EU Ÿ SAN ES
 Css DS 1) Ds on Re PAGE) on EURE :
 | 11 AL ER HNAUE ne) LÉ ter ne
-y 74 PA AE 4 VA ETES NA EUD A AT LR AS AA Ra” Le REC au |
-ÿ se ir A (RUE ME ri, DONS (EPL US ES à te at
 M, MAS WC AUS PAT RAR ne Ron PRE MoN }
-HEC ES Ve RE UE na ALES ve | (+ AUS 148
 VU vi SR Ne SUP TE / Je ve il LATIN vis HAN ES
 Moi GES DA HANACLEN AS Ni ME ATISTRRE PEAR Ws we
 Wire po A MIS re MAT Ja si RAA) Ta AU TE NUL AU
-HE gs ‘pe TR LT ACEP 1} A 4
 re & til if N f e k 4 EU) Ar de NS ao HN
 A, MEL MEN EE, RAT Fe Ne NN HN a te 4% Î EAN (4 AA ne |
-HE: | LS nu (es AE ae |
 M ARE Au Je ya or AA EL A. LA ONE " Rte MALUS
 LA (0 Cry At eu Yo EUR MS (Al AO AU 1 ii HN 4 FAN LE AUDE PR
 SA Ne NUL } HAN LEA tta SA PONTS \ DRAM x on GAAEUR à
 (PAR Nan: É ARIANE FES IA je re ACL GA
-FU Ya 27 $e LH RUN ARE AT Nate tte 1,0 WA
 
 L — cop Rues ANA TOR ne ji De Uae gate re
 
 PR AR AL RL tee A HS ODA Le ANT PO AE
 
 de RO LAN EEE EE A RO Rive SAN EN RUE ts 4) EN
-At Lee AN LUNA M ARE ja CPE
 
-là À NOTA) DONNE SF AUA ET SEM MRES ON FREE BEA RIT AL EU DEAR RUE LU TN MENNUEr
 de ant Nan: Ce) Re) FAR A CU #1 SHAATE ATARI HÉEUEN LAN OU OR AA VUE
-
-DR Es ANA TE Q NE VIDE TEL AR PRAGUE ve LS a EU TR A DUAAUE MPa
 
 w à SAR DONNE AN di M AS LEP AR ONE dE AS pi A A re Det MAR
 
-RAS Ne AMAR et LOUE 1 CERN) Le EU A PER SEE
 MERE RAR Een PAU j N 4 ll OU v' 4) SEP METRE
-TEL SE SE EEE H { + ; 4 SN ae MR F
-CM A LEE (AUS ALI PARMCES ENS RK] à ANT nl Re)
-PAR AU AREA M'OUIE AUAEN ES [Aa PA LE MAP E NN ENAREES
-NOM ARIQNES TE SANS CES Li en t AM A LE Là FN
-à y PEN CNE FaipAs AUALN FL ( L'ANEVIE \ ERULTRESE MCE ù
 | A AN FRE ee | ARE | ; Al TL ARMES
 
 RAA Are MOULAGE RAM PANIQUE NEO LE \
-1 MERE Er MERE PRES ARR AURA D fe Er RAP SENS
 
 l'enfant et la reine morte
 
@@ -1095,37 +568,12 @@ ORAN (és. VONT VELCRO EN AU) A cu UE CRAVATE RCE ROME TES
 A PA MU OU M RARE EE LE Eat AN A te A ON
 AR NAS TA RUE (AREA d'OS A {rt sed LL
 
-Re NON ANNEE RU Len AAA NAT NPA LU A
-
-it RARES ST A At Ve
-
-Me SAS RUE Pt FAR DATENT ED RE RSA RDA ARE
-SE TANT ; x ‘ LATE : MR 4
 AAC TAN r | ni RRHE LS À
-MARRANT PUS 7 AAA ee: As À
-RONR PURES / > j 4 UNIES DA LEON
-RE NE ; ÿ + LARMES à
-1 AE RÉ } % je 1 CRE ENET ASE EP
-UNE ; | # LE 0 CORNE RPRERTS
-ARS r ; { è AE ARE
-ATEN UE Cu no A AA) ER M
-ROME ONE NS ANR Ci it
-Ie UT IROERS \ k re 00 OUULe
-ART COUR « $ RAIN Se PAPE AAAIN
-MOTS NAMUR al ï (QU NERO a à
 
-Un Nr < LE
-Le NN RONA DEAN ATRSRE l ;
 ki Le in AA MAT RU +R t |
-1 AA PIN RAUREE d ] $ ; ‘a
-Mn U MÊME AUTEUR | | |
-h
-{5
-\ PIERRE MILLE ;
 aux Cahiers de la Quinzaine |
 Le présent petit index donne automati- AS
 ; quement pour tout volume et pour tout { k
-cahier indiqué : 4
 a) le numéro d'ordre de ce cahier dans Û #
 le classement général de nos collections | 11
 complètes, lé numéro d'ordre de Ja série A |
@@ -1135,73 +583,34 @@ du ‘cahier lui-même, dans la série ainsi 4]
 “déterminée, en chiffres arabes, de sorte x
 que V-17 per exemple doit évidemment se à, 1h
 lire dix-septième cahier de la cinquième Ê {
-série; "} A
 ) b) la date du bon à tirer, ou, à son dé- À Ar (el
 Ji faut, la date du fini d'imprimer, ou, à son Ps à
 è défaut, la date du cahier même; DE |
-Ÿh
 c) le prix actuel; K ä
-L
 d) quand il y a lieu, c'est-à-dire pour nos LAN Le
 éditions antérieures et pour nos cinq pre- LA à
 ) mières séries, la page du catalogue ana- “
 lytique sommaire où ce cahier se trouve É
-catalogué. Ë |
 Pierre Mille, — l'enfer du Congo léopoldien (VII-6, mardi 4 v
-21 novembre 1905................... trois francs cinquante PMR AUNES
 — — les deux Congos devant la Belgique et devant la À
 France; le Congo léopoldien devant la Chambre belge
-(VIE16, mardi 17 avril 1906................... deux francs J
 — — quand Panurge ressuscila (IX-16, mardi 30 juin e
 TOP AA SNL... .L 0: trois francs cinquante |
-Ÿ *
-4 d L “ à
-NN. CT UN À Ÿ on!
 
-HN TES DE,
 nie k que Re Ar
 PTE Ne NE AA late 100 VAUNTENSRNE
-LECNE Poe AE 824 PAS EL AU RER PAL Er NE ARE AA FT
-ue dd AR + PACE
 NUE RES LE Q) NAS 34 FN LH beS han M et Rose EE or Lncse D"
 nt Hit 1} SEAT TUE FE PU RAURSe PCT FT CAE Q hit NL LA RE LE
-ALAN EAN RÉ ENNE MULVIAE: Pen ie Re Ÿ PA CN HO
-É LRU EAN CHR { = ' SAT A Len CA TA 1972 ALAN
 Net ae PEUR EE us AE Re La ARPANST KR LME
-4 te EVER A Are ' 4 AU C4 THE AAA RACE te
-FANS LIEN TA { VMS Ce ASSET NE CARRE
-DRRMEL DUT < Ps El Fr 14 BAM NAT
-QRUE ES VAUT 7e LAN PAT U
-2H NE Lo A'y a 8, VA
-OST VAN } . DANSE Ke ne.
-et PME AXE PTS (AR 1042 An
 
 tn at dr UE Le ne: he re AC EE e
 GPA QE ri Les DEA " 407 ANR f
 è Len a PANNE! ? UE sn Ne $
 4 PAALITES er % k ENT HE ETR ne QE à
-DATE CS a 05 > LR A Ke A 6
-Eee an FAR " TRAME Ÿ n £ ER  #ER AT
 M Un AS REA (vi f ; | PEN À vs.
-D HE “k Ÿ RENTE à L LOIR Das Mt 3
-APN AT 7) \ À + ASTM NT
 
-+ BA" tot 14 K A \ » em nS 4 V5 ñ *
-Er) el are CEE AE
-Ce, RAA À ae ÿ } ERA AN RE
-UÉRATS 40 \ ; Ep PRE NS
-ARC ARE : x #, } : 1520 5 EME ax
-1 PRREIE Î L \ ' Ê PE HOGP Ha ;
-, EAU MP U A 1 Ï- Lu SET RE ESA ) t
-: PRÈS AC VA TA : du RE
-El (tre #48 vi : V (UE ANAL AE .
-\ TAN ) FNAC F2 ' jh r 4 “3H NON, ar
-x A d } Fe D ECTS lai NES
-Po ti MALE 14 AIRE di nur f
 KA ce Eh Ex IH IR & û ae RU EME KA }
-ya CUT RUR MORT x) CAE SOA (IRAN A,
 
-DU MÊME AUTEUR |
 en vente à la librairie des cahiers É |
 |
 Prerre Mie. — De Thessalie en Crète, — impres- |
@@ -1211,7 +620,6 @@ vures hors texte, — Berger-Levrault et Cie éditeurs, {
 à Domokos; le soldat turc; En Grèce et en Crète: à
 Athènes; l'Hétairie ethnique; en Crète; les événements ;
 les insurgés; les insurgés et les puissances ............ fl
-trois francs cinquante 4
 Prerre Mizce. — Au Congo belge, — avec des notes à
 et des documents récents relatifs au Congo français; — ;
 Armand Colin et Ci° éditeurs, 1899; caractéristiques du Ÿ
@@ -1219,98 +627,38 @@ Congo Belge; le bas fleuve; de Matadi au Stanley- 4
 Pool; le chemin de fer; le système d'exploitation; l'État Ë
 et son souverain; le Congo français; les sociétés dans f
 les deux Congos; les points faibles du Congo léopol- 14
-DOM AP EEE TT | trois francs cinquante
-L LA
-l 1%
 
 RARE 7 D ARES EVER RAR ARE Lee AE du nt
-A A a Re ADO
-RULES RENAN CO LUE LE 2 PUR RE { \ ET CV EP RE
 PAPAS LE 4 4} year pa Y st NERO } WA PADME OL v
-AE RSR TETE Œ Al GE tr È / AGE CAC 17
-Rs PERTE NUM RTE AE (er mue
 HSE ONU NS RANMEAT À NM AURA tt vt ORAN ET LUE
-RE Are EVRU AE RON 2 REA CEA Lie RETENIR RENE OT caf à
 re D DETTE NE APE MIRE NT ES ES AR M8 :
-NANTES A7 AT |
-14 SE RAR ARR 1} ue RE Ÿ He
-nn | LR
-"à PT v 4 Æ jte PA Lu
-MAAAUEN +: FA HU n SES 449:
-VRAI “ : | : ARC‘
-UPATER 5 0 AMENNRIENTRS
 UT TOR RC RES - à EPA Res un ;
-US Re: | | A SU A
-RORPPR Te 0 DU ITe H'LERTE
-TE TAN A EL
 st 1 ON PE VER 5 ( 00 NAS LUE ee H
 F à PARA TU: ve A PARLEMENT RU AUX CODE
-RUN: VEN FU ON TERRES
-
-RARE TE UE \ ù ; i ;
-DU MÊME AUTEUR |
 
 en vente à la librairie des cahiers |
 
-' Hi
-{
-
-f
 Prerre Mie. — Sur La Vaste Terre; — Calmann- 1
 Lévy éditeurs, 1906; — Ramary et Kétaka; Barnavaux, 2]
 général: Ruy Blas; Barnavaux, homme d'État; la pré- L'n
 caution inutile; Kidi; le dieu; la vengeance de madame É |
 Murray; les\Chinois: l'aveugle !! 552 CES 4
-trois francs cinquante 1}
 
 … Perre Mise. — Barnavaux et quelques femmes;
 
-: — Calmann-Lévy éditeurs, 1908; — Marie-faite-en-fer ; 1}
 l'Ile aux Lépreux; Barnavaux vainqueur: le Roman- |
 cero; la Nef morte; l'Homme qui a vu les sirènes: a
 l'Attaque; le Japonais; la Justice; l'Aventure de Sara; L.
 Au delà du bien et du mal; les Pigeons; la Victoire 4
-trois francs cinquante NON
 
-}
-
-À
-
-)
-
-OA f A AR MS EUR ECTS PO AIRES PA AL A
 PARA D bo Et cu ROMAN CRT DU PALIN MR AMAR
-Mer DRAM AE AE EAN ENS
-Re Ur D LAS A AM ATEN HU SUPRNS D VÉTSSON MRMNR E e PAMRAPRITAUE, oi. ÿ
-SEAL DRE PE a ATEN Eu) PRE 4 (Re SANNSRNEE
-Ant (I), 2 ES EEE $ è LP SURENNPAENEEE Fe
-PTE AU A ee DAS É 3 LOT TN TEE
-Re | | LAC
-ARNO { \ SR Lee |
-T2 07 SCAN ANNEE à UC D
-L'URSS AE ; F4 RER
-D'ART Res 1 } k * PRE (GT à
-Re AL CUT ti) ESS
-: LR NA ER 4 } 4 LH PRATASERANEIES
-MEME LOT \ AN } l DRE
-FPE ; F1, 12 PUCES
 MNT OR ne £ É HE 4 Yry ENS 4
 2 HRRAN EMAIESR M D En AE de !
-ABS f ù We) K * RAR ne ©
 et L'LNNCUNAGEEES
 |A AURA l 11, US ANNEES
 
 # 0 ANPAR LL) } À Ye Fe 4 RTE EU
-(A 44 RON ENE M A NEaEE 4 fi n y He FLAG {rs AU AU
-ee | NES NOMADES NARNIA LT I VE
 
-vr#. FA LM TS Par m1" EYE] ) 4 ALES 24 |
-
-AT 2 4 + 4
-k4 RER :
-: < . è
-DU MEME AUTEUR |
-î
 aux Cahiers de la Quinzaine !
 
 Prerre Mure. — quand Panurge ressuscita : i |
@@ -1320,83 +668,33 @@ l'amant discret; l'inventaire;
 quand Panurge ressuscita : où Panurge causa de la D:
 loi de séparation entre l'Église et l'État; où Panurge 1}
 rencontra gens du Midi; où Panurge calomnia un élé- \4
-ment; à {|
 paysages : Vautomobile du touriste; aux Eyzies, reli- À
 ques d'ancétres; Sainte-Hélène; en Orient : les rives du ï
 Bosphore; derviches tourneurs et derviches hurleurs; a
 Brousse ; le maître d'Yildiz; |
-. “ b
 presque de la critique : le ménage Chimène-Rodrigue ; t}
 un moraliste surfait; Cagayous; pour servir, sous toutes à
 réserves, à l'histoire de Galilée; jeux de page; littéra- ; F
 ture policière; romans à lire et romans à proscrire; %.
 seisième cahier de la neuvième série; un cahier blanc
 de 216 pages; in-18 grand jésus.. trois francs cinquante ,
-) ; f
-reine morte. — 3. À:
-À |
-RAS 14:
-C 21
 
-PA RD EE) RON AE AAC UP ANT: Lot ALES £ à ( \H PANNE Le CRE AE
-DA LEA AC NE HN PT A CES d RAA RE DRASS A AU LAN AU At
-A Le NE A EU An ARE À UN
-RATE MEL RAT UN (RARES SAN EME AURAI
-LANRTTENZ, SPA DE RAA US AN L'AR AA NME ER (4) AS et At NES VAN
-114 g Le at VEN RONA PARENT RAS APE AT LE VE | AU CARE NA
-20) TRE CA A AN LA A PATTES AA
-LC TE CR NE ATEN Ne AU RETU RE, é RARE D 4 2 ANSE
 DE FRET EATRANES h i $ 4 DU ne À be CHA TARN
-a Uno ete HN
-MEME Ut " . À iNOUZ TUNER
-Mug TARN EN ' ELA k l NA 1 NRA
-DE RAR A EEE Ai) j £ K y L 14 AIN ENRERe
 | AT NON Are NES AU NAN NOR
 au AUTRE à l it de à agen ALERT
 V2) AMAR je NAT BAR VEN IV MNERER (PA }
-I NAN SERRE D RAT A AC AMON AT ea RE
 UN ÉpUE AREA CE | RE NE NES NE. RE ds,
-mA ù \ | } 7704
-LINE 426 STATE TE SES ! * 177: CRAN L
-Jo 2 VIE AA MANN AO LT PLANS RATE
-2 ON ANNEES : ACC ANR MONA
-2) NAN ORNE HN EU ATOS L MAMAN LES 7 TAC: A)
-EYES RACE 4 ns RAM FA AAC re dan 2 EEE :
-FENTE ‘EM RU Abe ESA AP AQU Le VE a LOTS LE NCA AMAR (OA IN) n
-ENTREE | 7 AVR NN | ‘ORRTONT EREA MAN NRT AM PSN
-POV AU My BAD PACA LAN AE DATA L'HNTP HA AR CO
-NE) 230 AU RPM AUDE DU AT EN EN ie RATE
 
-L'ENFANT ET LA REINE MORTE
-
-OMR AS) pt TERRA NEIL M 2 ei 4 AMOR SAT YO DR ST à
 ON LU PANENLA Ne 4 RENE nee TES re AE TAN NA ARTE ETES
 Es, ANG De RUES A AE fs NA RAS Pine
 ni nt os Si fe BEA
 F6 RASE ANT AUE EE EX End L'ANANT MS AN D 40 Héraie NES A VUS
 DES A? re HS INR dhrer RTE EC HU CHR Run 4 A
 | US AMEN RAA LENEE PEACE MED NUE A. ARTS DEAN
-LES ! PSP # : ane DS NÉTTANS
-FAT FM METE 1 | à ?,. , VE NA A0 4 {!
-Re LE a" f à 4 + PA pie ÿ 124 ER y
-À LR HA tr = TA SN
-PT 0 “HAN ‘ ; a 7 NAAUESSS
-PAS AAA EUR ; : 1 NOTAIRES
-SEAT ot à D
-MEUE FDA HS ÿ JURA Mr e
-LAN TSEES LR à , è 2 4 De HS À
 ne CHR DITES ; 4 É LL Et ce
 Vu “æ, EN Fe si \ MERE Ne ce AU RR 4
-AU SRI Ç , } 3 à SNS ; 4
-PAU FT HER J } EAU + AA pee
-2 ee Ce ARE 4 (: MANS
-! HMS | : FERA
-ous nt M fl 15 RS VAT ER 4 “
-2 TER ‘PTE
 ca ja PO ST UT EN 9] } ‘ SEA Ne RU
 te 800 # HET TN ARS 0 ! Lre4 L'on AS NME
-
-ei QU ORAN Pt fe en NP A HN) Fe TE AUS SART À
 
 l'enfant et la reine morte
 La reine Isabelle d'Espagne est \
@@ -1421,21 +719,16 @@ sans m'imaginer qu'il va s'envoler, qu'il s'envole déjà,
 pour que ça fasse de jolis plis, droits sur le haut du
 corps, courbes et tendrement ondulés plus bas que ses
 petits pieds, sous un vent très doux, au milieu d'un ciel |
-plein d'étoiles. ”s Ÿ
 Il m''embrassa. Il met, à embrasser, une condescen- ÿ
 dance délicieuse. Il sent qu'il fait plaïsir, et il en est
 heureux de tout son cœur magnifique. Il embrasse 6
-s070 49
-L Î
 
-à Pierre Mille RUN in A
 ÿ comme Ça les chiens, les chats, les chevaux — des Li
 bêtes si grosses, plus belles que les hommes! — et pen
 , aussi les caïlloux du jardin, quand ïl approuve leur :
 physionomie : pour leur faire plaisir, je vous assure!
 Et, après tout cela, si c'est vous tout de même qu'il |
 RG embrasse, vous êtes séduit, conquis, honoré. C'est
-inexplicable.
 
 Quand il eut senti que, le cou dans ses bras ronds,
 la tête sous ses cheveux clairs, j'étais devenu sa pro- |
@@ -1465,10 +758,7 @@ des histoires de chien. Une autre fois il a fallu, sans ‘
 répit, courir avec lui au château de Versailles, « où il y 4
 a eu le Grand Roi », ainsi que l'affirme une édition des \
 contes de Perrault qu'on lui a donnée. À
-5o î
 
-no di
-LE a At L'ENFANT ET LA REINE MORTE Î |
 | Etil a été très ému, monsieur Pierre, une fois là-bas, À
 _ à cause des rapports qu'il a établis, je ne sais comment, REA Ne
 entre Peau-d'Ane et ce monarque. Cest Peau-d'Ane, * 1
@@ -1532,12 +822,7 @@ mots solitaires et magiques, comme lion, navire, ca- À
 verne, serpent, hache, couronne, et nous nous commu- |
 niquons ce que fait naître en nous leur féconde lumière :
 des choses dont vous n'avez pas idée, vous autres,
-52 {
 
-À
-{
-
-\ HS L'ENFANT ET LA REINE MORTE
 Ah tristes gens sérieux, mais qui sont secrètes, très secrètes, |
 et resteront éternellement notre commun trésor. Je j
 savais déjà qu'il s'était plaint d'avoir très mal vu le roi {
@@ -1547,7 +832,6 @@ reine. Sa mère, qui avait été, comme tout Paris, visiter s
 la chapelle érdente, avait dit, fort imprudemment, « que
 ce n'était pas effrayant ». Il avait donc décidé qu'il
 irait, imposé sa volonté.
-f
 Et le lendemain, nous partimes pour l'hôtel de Cas- , L:
 tille, avenue Kléber. M. Pierre était tout ému. Non l
 point qu'il éprouvât quelque anxiété de voir, pour la j 4
@@ -1564,22 +848,17 @@ M. Pierre eut un frisson de respect, avant de lever 4
 les yeux. Mais il les leva. Et alors il me regarda, de |
 ses yeux purs, dont j'entends si bien le langage; de bé |
 ses yeux qui disaient : « Tu ne voudrais pas me trom- 4
-per! » |
 — Ce n'est qu'un hôtel, dit-il enfin, pour résumer une
 foule immense de réflexions et de doutes muets. Un |
 hôtel comme tous les hôtels. Ÿ Î
 11 pensait : « Comme le mien, » mais il ne le dit pas, 4
 ayant déjà la modestie orgueilleuse d'un grand seigneur. |
 #1
-53 |
 
-7 | RAD ue AAA EE EU UNE
-Pierre Mille (ANS
 | Devant la loge du concierge, il voulut signer sur le:
 | registre. On ne résiste pas à un seul de ses désirs sil
 est toujours si grave, si ferme, si royal! On lui apporta
 donc une grande chaise et il signa : Pierre Mouvenot,
-en longues lettres penchées.
 Lo Des gens du peuple endimanchés, des boutiquiers, ‘
 de belles curieuses endeuillées montaientetdescendaient
 un grand escalier aux dalles de marbre; et, tout le
@@ -1643,10 +922,6 @@ ridicule de devenir vieux : on voit des choses toutes |
 noires. Mon ombre blonde est plus heureuse ! À
 | \ Ua
 
-Ée : A | as HET ee
-FU are
-{ Vi? |
-4 Ÿ
 é mémoires posthumes de Paul Jones 3
 Paul Jones, le célèbre corsaire
 des guerres de l'Indépendance
@@ -1657,7 +932,6 @@ sur lequel on avait bâti. Par les
 ; soins du gouvernement français,
 son cercueil vient d'être exhumé
 et rendu à l'ambassadeur des
-États-Unis.
 les journaux, juillet 1906
 .… Dans le début, je me rappelle que nous habitions
 au-dessous d'un grand jardin, et c'était assez humide. |
@@ -1677,10 +951,7 @@ nous les discussions religieuses étaient assez fréquentes.
 Maïs elles se maintenaient sur le ton de la bonne com- À
 pagnie ; elles étaient, si j'ose m'exprimer ainsi, notre ‘
 santé. Les Suisses se prétendaient généralement réac4
-56 À
-j )” l
 
-“PATES L'ENFANT ET LA REINE MORTE
 tionnaires, sous prétexte qu'ils avaient eu des malheurs É
 le 10 août ; par bonheur, ainsi que la plupart des anciens q
 soldats, ils n'étaient pas très combatifs. Le plus difficile
@@ -1706,17 +977,12 @@ comme il est bien conservé ! » Il y avait cent treize ans
 « Tels sont, pensai-je, les avantages de l'hygiène et de 5
 la sobriété. » Peu de temps après, on me présenta au $
 préfet de la Seine. Ce haut magistrat s'écria fort
-vivement :
 — Il faut le faire partir tout de suite, avant qu'il soit |
 réclamé par mon collègue lè préfet de police ! #
 J'avais bien quelques petites peccadilles à me repro- ë
 cher, mais elles dataient du temps où j'étais corsaire, j
 et j'ose affirmer que depuis très longtemps, ma con- 1
-57 |
 
-AU l'AULRENINT ORNE
-\ Pierre Mille' Pa 10
-' CEA AN Ur GET
 duite est restée au-dessus de toute critique. Je crus : #
 donc devoir protester. 1 cu FAT OR
 — On craint sans doute, dis-je, que je ne cause du. k
@@ -1745,8 +1011,6 @@ j me changer pour lui faire plaisir. Après quoi il tira un
 Ne mètre de sa poche, me mesura comme un stère de bois, M
 } — Il à 1 mètre 71, et il ne devrait avoir que 1 mètre 70.
 “ee C'est peut-être un usurpateur !
-58 à
-\ t
 
 |__| À L'ENFANT ET LA REINE MORTE 4 |
 Je n'ai jamais été patient. Si j'avais pu ramasser un h.
@@ -1757,7 +1021,6 @@ me contins, et parvins à faire comprendre à ce savant ‘à
 qu'au bout de cent treize années de retraite et de posi- ‘à
 tion horizontale, il n'y avait rien d'extraordinaire à ce 1h
 que j'eusse grandi d'un centimètre. Il finit par se laisser ‘1
-convaincre. 1h
 Je dois avouer que cette petite altercation m'avait F à
 mis d'assez méchante humeur. Nous traversâmes Paris 11
 dans une nouvelle sorte de voiture, dont on me dit 1
@@ -1778,14 +1041,9 @@ recrutement, qu'on m'avait dérangé, je demandais (41
 à m'en retourner d'où je venais; que d'ailleurs je ne 1
 me sentais plus aucune disposition pour le service ;
 actif; et qu'il ne me fallait plus rien que la paix et la 1
-tranquillité.
 Je dois reconnaître que M. Mac Cormick fit preuve |
 de beaucoup de tact. II me répondit que malgré tout À |
-À
-4 |
 
-} * AL ST à us fi
-‘ Pierre Mille A %
 | mon mérite, qu'il fallait porter aux nues, le gouverne- :
 ment de Washington n'avait pas l'intention de m'imposer un commandement, d'autant plus qu'une récente
 F expérience, faite par la Russie dans la mer Noire, avait
@@ -1798,7 +1056,6 @@ crédits pour la marine; et qu'à parler franchement, |
 | c'était pour cela qu'il avait pris la liberté de troubler
 mon repos. |
 Il voulut bien préciser aussi, à mon grand soulagement, qu'on ne me demanderait pas de discours : ma
-présence suflirait.
 
 2 Tous ces points ayant été réglés à notre commune j
 satisfaction, je ne m'occupai plus que de passer agréablement le temps qui me séparait de mon départ pour ;
@@ -1808,7 +1065,6 @@ L Par accoutumance professionnelle, j'aurais voulu voir 1
 
 ; un enterrement. Comme il ny en avait pas pour le 4
 moment, on me conduisit à la garden-party de l'ambas- À
-sade d'Autriche. En moins distingué, cela m'a rappelé
 l'ancien Palais-Royal, mais — je ne sais pas si ma nou- l
 velle situation y est pour quelque chose — les femmes
 du vingtième siècle me laissent assez froid. Je regrette
@@ -1817,20 +1073,14 @@ souvenir : les Parisiennes de la troisième République, k
 
 de quoique plus vêtues, me paraissent moins bien que 1
 cette personne difficile à gouverner, mais char- |
-mante. f
 . J'ai bien peur aussi d'avoir fait une gaffe. On m'a 4
 
-6o
-
-ME EN 1 k : %
-V0 0 L'ENFANT ET LA REINE MORTE | : l
 ; présenté à M. Clémentel, ministre des colonies. Je suis ‘
 
 allé droit à lui, la main tendue, et je lui ai dit : $
 
 — Delighted, sir ! Les colonies m'intéressent infini- À
 ment et nous devons avoir des relations communes : f
-jai été négrier. }
 Mon ami l'ambassadeur a paru très scandalisé. I1m'a A
 expliqué que les ministres des colonies ne s'occupent |
 
@@ -1876,10 +1126,7 @@ n'aurez pas votre nouveau home. » Mais je ne suis plus 1
 habitué à être logé si grandement. Je me trouve tout ; 11
  désorienté. Aussi M. Mac Cormick, ainsi que le général |
 | (0: reine morte. — 4 |
-EAU \ 4
 
-AU
-Pierre Mille 2
 ; Horace Porter, se sont-ils mis aimablement à ma dispo-
 { sition pour choisir avec moi mon installation définitive.
 Je penchais pour le modern style, mais le général
@@ -1888,41 +1135,31 @@ Je penchais pour le modern style, mais le général
 — Ne commettez pas cette faute de goût. Cet art
 nouveau est déjà vieux. La véritable mode, c'est le
 style Empire, qui sera d'ailleurs aussi nouveau pour
-vous. |
 
 Alors, pourquoi pas quelque chose de Louis XVI? |
 J'ai connu jadis un lit en bois de rose... Mais je ne
 m'appartiens pas!
 
-A
 | |
 |
-\
-fs
 
-1 NO MNNANNR PNR re Ÿ
-Om TE) Re se
 ï journal d'un condamné à mort ; 4
 Ne On vient encore une fois de ‘ à:
 DR prendre un saule pleureur aux pé- L |
-s pinières d'Auteuil pourle replanter U PAUL
 sur la tombe d'Alfred de Musset. UNE, 1
 e + Le sol du Père-Lachaise ne con- a t MSA
 vient pas à ce végétal, qui dépérit AAA?
 | rapidement et ne tarde pas à expi- Abe Li
 | rer sur la sépulture du poète. RCE:
 les journaux, 1906 MSA il î
-” REC di
 Notre famille est très nombreuse. La branche à al
 . laquelle j'appartiens est établie, depuis très longtemps, 1 cs A
 _ du côté d'Auteuil, non loin de la Seine, dans un site 4:
 agréable. On y jouit de la vue d'un bel étang artificiel; ti à 3
 des canaux d'irrigation, des parterres de tulipes donnent a ‘2 ÿ
 un air presque hollandais à ce paysage, et parfois des : TE
-k Ï y
 . poissons rouges, montant jusqu'à la surface de l'eau QUES :
 … brune, ouvrent une bouche toute ronde et nous regardent (MRÉUU
-_ ävéc leurs yeux bêtes. A OTE
 Étant simples de mœurs, la décence de ces entours et LUE
 la petite vie de ces petites choses suflisent à nous LA
 garder dans un état de félicité toujours égale. Ce que Ds.
@@ -1930,10 +1167,7 @@ je viens de dire prouve que le pays est assez humide; ENS
 mais notre santé est loin d'en souffrir. Car nos plus À
 | . . A . . " Li
 lointains ancêtres habitaient au bord des fleuves : ; SV
-4 LT 74 # FX
 | lEuphrate a reflété la douleur un peu affectée de nos ANNE L
-; 5 TR)
-PAU CE Na ATER k TC LU A
 
 Pierre Mille Rae: CE
 attitudes. Nous avons eu, dès les époques les plus ‘1
@@ -1968,11 +1202,7 @@ petits vieux, quel que soit notre âge, — ce qui tient M
 # sans doute à l'antiquité de notre origine, — et de ne ‘3
 l pouvoir vivre sans eau, habitude que nous avons puisée, M
 il y a très longtemps, au bord des quais de Babylone. M ‘4
-à
-?
-j 4
 
-L'ENFANT ET LA REINE MORTE
 Mais intimement, nous sommes assez gais. Nous aimons f ;
 les reflets du ciel dans les mares poissonneuses, les :
 grands roseaux dont les hampes de graines paraissent \ À
@@ -2008,11 +1238,6 @@ une femme qui possède six mamelles, trois de chaque }
 côté. Il est très rare de rencontrer, dans la nature et |
 dans la vérité, des femmes qui possèdent six mamelles, |
 
-65 reine morte. — 4. |
-
-Re H
-
-Pierre Mille x CADRE
 } mais pour nous autres saules pleureurs, ce n'est là M
 ë qu'un détail sans importance : celui d'Ermenonville a
 la tête au soleil et les pieds dans l'eau, il jouit d'une 1
@@ -2044,43 +1269,29 @@ k la lecture de nos biographies. C'est bien le moins ! hi
 qu'Alfred de Musset exigea qu'on nous fit subir ce dou- M
 à loureux traitement : est-ce que cest une raison? Et Si UM
 l'amiral Bruix, qui est aussi au Père-Lachaise, avait |
-66 Ni
 
 RAR PE ARE au ni CAC ANR SN ERA RERERE AAA A NN
-be A CR MU OT en Rate RENNES
 Up A NT ET LA REINE MORTE re Kiyns
 demandé à être enterré sous des goémons verts, com- ‘ee dl
-Sv LR ARA RUE PS. Ve 4 OT d ji En TON NN ORNE
 | ment est- ce qu'on aurait fait ? Et Dumont d'Urvile s
 De s un axbre à pain ? Hi! SEGA PAS
 _ S'il existe encore des hommes justes sur la terre, ils RO
 | penseront que nous avons droit à une réparation. Il à po 44]
 . atrop longtemps que nous prêtons, jusqu'à en mourir, À!
 4 notre ombre à l'effigie d'Alfred de Musset, sans receæ rs
-ÿ A a 4 # . an La 2 ÿ : £ PLTOE a He Eu a
 voir un mot d'éloge ou même de pitié. C'est notre tour: id
-MERS à . ' LAS MON UTP
 _ qu'on mette maintenant un buste d'Alfred de Musset ñ 4
 _ auprès de tous les saules pleureurs qui sont déjà morts. LR ‘en
 _ Et subsidiairement, qu'on me laisse tranquille ! “À À FU
-ONE { 1 TU PA CE
 À rt PP De MAR RTS
-AE lab PAPA UT DERX ©
-ETC N ; ï PARUS UE
-CRAN Na in
 ui PARA il
-AA Lie 55 FLY
-PNA ON PEN j $ | te 0 M SN
 
 |: î- LE TERRES
 1 A entr À ET (AU CRERRREE
-: ; PRET dE ENS
-} CSA 4 KHAN BU
 à EC Jièe Ne
 | 4 ” alt k ;
 le langage de la Nature #7
 
-LR
 « Je voudrais posséder un beau jardin, et vivre à
 ; l'orée d'un bois. » Ainsi jadis s'exprimait le sage Sy
 vestre Bonnard, dont les chers et doux mémoires eurent
@@ -2088,7 +1299,6 @@ la fortune méritée d'avoir pour éditeur M. Anatole ï
 France. Et moi qui n'eus jamais, dans toute ma vie, M
 d'autre ambition que de vivre comme ce bon érudit
 savait vivre, entre mes livres aimés, mon chat qui dort, M
-= +]
 ma servante qui bavarde afin de me rappeler, juste ce "
 | qu'il faut, que les vivants sont des importuns, il me
 : manquait encore la petite maison, le bois et le jardin. KR
@@ -2097,22 +1307,17 @@ Mais en fermant les yeux, je les voyais. La maison était |
 était planté de bouleaux et de frênes, qui font un joli
 bruit, parce que leurs feuilles ne s'endorment jamais, » et chuchotent toutes ensemble. Dans le jardin, rien que hi
 des fleurs dont je sais les noms, des phlox, des tourne-
-. . FA
 : } sols, des roses et des saponaires : elles sont mes vieilles
 : amies, et reviennent me dire bonjour, suivant les mois 4
 et les saisons. Elles me disent : « Tu vieillis, tu vieïllis! ti
 Regarde grandir les ombres que font maintenant tes Li
 souvenirs sur ton âme. Mais vieillis sans mal faire, et en
 | travaillant. » Le bois ne commence pas avant une prai- « N
-® 1 : WRI
-4 AURAS
 
-te Na
 L'ENFANT ET LA REINE MORTE qi
 _ rie, plantée de pommiers. Il y paît un vieux cheval gris Gr
 souris, qui ronfle en broutant. Oui, je voyais tout cela! }
 Alors, ces vacances, je suis parti pour chercher mon 4
-domaine. j #
 * J'allai dans une gare, je ne sais laquelle, et je pris un \l
 train pour aller n'importe où. À peine s'était-il ébranlé 1
 que je mis ma tête à la portière. C'est peut-être là! :
@@ -2144,9 +1349,7 @@ ce qui m'arriverait. Cependant quelqu'un me cria — {
 
 # 69 *
 
-ait Pierre Mille : F0
 c'était quelque part, du côté des Andelys — d'une voix
-À fort impérieuse : ; Ha jai À
 y — Voici les ruines de Château-Gaillard. Admirez les M
 grandes ruines, les ruines sublimes de Château-Gaillard! M
 ; J'évoquais la majesté de mes souvenirs, l'histoire de  « la forteresse, faite pour des géants, que Richard Cœurde-Lion, il y a sept siècles, bâtit en quelques mois sur
@@ -2175,11 +1378,6 @@ je levai les yeux, candide, enfin rassuré. Une montagne! 4
 à pic bornaït le paysage. Elle montait si haut dans le à
 1 ciel que les aigles n'atteignaient pas jusque-là; mais
 
-“ "
-
-D TE Re
-FE À L'ENFANT ET LA REINE MORTE M
-AAA EN RCA Eu ve
 comme sa paroi était blanche, raclée, nettoyée! Depuis ER
 le haut jusqu'en bas, en lettres de' pourpre et d'or, ‘ÿ
 larges. comme un boulevard, hautes comme les pyra- U i
@@ -2212,17 +1410,13 @@ est vide, lé ciel est vide! C'est le congrès de la libre |
 pensée qui l'a dit. Il ne faut pas que le ciel soit vide! 4
 Nous le peuplerons avec du chocolat, des pilules améri- à
 caines, des apéritifs hygiéniques, du champagne et des : |
-\ A À
 
-; | Pierre; Mile" 0e PAENE
-: Ln 10
 pneumatiques antidérapants. Mais j'ai encore une place î
 à louer : c'est entre Véga de la Lyre, les Trois Mages,
 et le Chasseur Orion : la voulez-vous, pour réclamer un #
 PIN bon roman pornographique, ou bien le Nu à travers w
 Paris, photographies d'après nature? Bon titre, mon- M
 sieur, bon titre! DE
-1 ajouta :
 | — Je suis directeur du trust mondial de la publicité w
 par affiches. Il n'y a plus un pouce Sur la terre quine w
 soit à nous. Et dans huit jours, vous verrez le ciel! Ou
@@ -2248,9 +1442,6 @@ AE mettrons qu'une condition : le droit pour nous d'inscrire
 sur ces chars, ces couronnes, le chapeau de ces ordonnaleurs, cette simple notice : &« Ge mort est mort parce
 qu'il ne prenait pas la Tisane thibétaine des bluffers! »
 
-AS AN ORNE EN à
-
-L'ENFANT &T LA REINE MORTE
 Où bien : « Il avait cent trois ans, et pas un cheveu +
 gris. Voilà le résultat du Comagène! » L
 Il dit encore : À
@@ -2268,41 +1459,11 @@ der un beau jardin et vivre à l'orée d'un bois... #
 jardin, il y a des fleurs. Avec des fleurs on peut tracer S hi
 des caractères. Les caractères, cela ne peut servir qu'à l
 la publicité. Si vous voulez... (E
-KR:
-Î
 
 #
 
-(l
-
-! reine morle. — 5 j
-! « ll MOULE
-
-ji
-if
-HE
-pie
-pa
-Fi
-Hi
-LE
-qi
-ra
-He:
 il
 #1
-É
-É
-parce
-fers! »
-/
-. $ »
-Po
-e »- _
-
-f
-
-LENFANT ET Hi
 
 Ou bien : « Il avait cent Hit
 
@@ -2323,35 +1484,19 @@ plesse démocratique de 1 RER
 | jardin, il y a des fleurs. A kL 4
 la publicité. Si vous voule fi Î
 
-PE
-
-RL
-
 |
 
-SE |
-
-… à
-
 LCR AN CE SE DEAN AT LE AA AN mt à Las Ps LATE
-PA pose: AN OR A AR AIRE QU
 FRONT ES \+ A DE nt LA vx ELA M PM OT MAPS NES
-D EN PEN ER AE LR SRE M EE
-US P ; MA 200
-1 cu n. . i ÿ A td Ha
 F les jardins de la Veuve |
-Fi M. Lepine a, paraîtil, laPlacede
 { ) - la Roquette étant démolie, décou5 vert dans Paris une autre place
 Pt publique, sur laquelle désormais
-4 auront lieu lesexécutions capitales,
 } les journaux, 1900 à
-À
 ù ÿ .… 1 est certain qu'on ne peut pas guillotiner les
 k ie condamnés à mort rue de la Santé, où ils logent pour ‘1
 | le moment. Un tel contraste entre le mot et la chose ”
 a marquerait une déloyauté que je qualifierais d'incompa:
 tible avec l'état éminent de notre civilisation.
-À . . . ()
 7e D'autre part, il est impossible de leur couper la tête.
 place de la Roquette, puisque la place de la Roquette
 f. n'existe plus. C'est clair. PAS
@@ -2360,15 +1505,11 @@ k condamnés à mort ne mourraient pas, et je n'y voyais
 + l pour ma part aücun inconvénient. Mais M. Lépine,
 préfet de police, a-revendiqué le droit imprescriptible
 < qu'a la société de guillotiner ses enfants. Il a trouvé un
-nt … .
 ps bon endroit, et s'il ne dit pas lequel, c'est qu'il tient à
 : garder un secret si précieux. Je suis obligé de citer
 si ici quelques mots d'une interview remarquablement
-1 CS Mu UP A RIERAQ
 
-L'ENFANT ET LA REINE MORTE
 brillante, qu'il a bien voulu accorder à lun de mes
-confrères.
 | — Permettez, a dit notre distingué préfet de police, que je |
 garde pour moi seul un renseignement: de cette importance.
 Où, j'ai trouvé un endroit aussi discret que la rue Mes- 4 |
@@ -2379,7 +1520,6 @@ de Deibler : et si vous vous donniez la peine d'étudier le |
 plan de la ville, vous le trouveriez comme moi. Vous ne
 … devinez pas? Non? Alors tant mieux. Vous m'éviterez les
 inévitables réclamations du quartier. |
-“A
 Ainsi parla M. Lépine à ce reporter, qui ne devina
 pas. Que dis-je? il ne paraît même'pas avoir cherché à
 deviner. Un journaliste! Ah! plutôt que d'entendre
@@ -2399,7 +1539,6 @@ mobiles, vingt mille lieues sous les mers — car nul À
 pauvres louis au mortel qui découvrirait « la place, rue
 À on carrefour », le lieu désert enfin, que M. Lépine
 connaît à Paris! Voulez-vous que je vous dise : ils ont |
-75 |
 
 dat DEN ANSE : ET ANNEE
 | Pierre Mille 0
@@ -2413,7 +1552,6 @@ envie de marcher, à la mi-carême, en tête du bœuf gras.
 Ne croyez pas que mon succès ait été facile, immédiat, .
 ; foudroyant. Le génie n'est qu'une longue patience! Je
 mets une vaniteuse modestie à reconnaître que j'ai dû
-au contraire tâtonner, m'y reprendre à plusieurs fois,
 démolir de mes mains rigoureuses les constructions que
 je croyais achevées. N'avais-je pas d'abord supposé
 | qu'il était question de la salle des pas-perdus de lancienne gare d'Orléans, du Panthéon, ou du Petit Palais
@@ -2466,12 +1604,10 @@ pas une statue : le monument de la Télégraphie sans |
 fil, par exemple, ou un Triomphe de la République, ce
 qui serait bien pénibie, monsieur ! Car vous remarquerez
 que nous avons déjà la Minerve-au-Robinet. Cela
-devrait sufire.
 
 — Mais enfin, continuai-je, vous n'avez pas été ofliciellement prévenus ?
 
 di Qoe MN OM ne
-deu) Pierre Mille 1 PTE
 | — Officieusement, me répondit M. Pingard avec dis- |
 $ crétion, officieusement peut-être avons-nous été pres-! à
 sentis. Maïs nous ne sorymes pas les seuls. Ignorez-vous
@@ -2497,15 +1633,11 @@ ma vie, j'étais aussi blanc que quiconque. Par malheur :
 les Américains, qui sont des gens riches, ont tenu à
 lo . donner à la République française ma statue en plâtre |
 AUTER métallisé, et la métallisation n'a pas tenu, à cause des
-78 |
 
-A 6 SITE ON RME MARS Ps CRAN EN 4 ( Ÿ NYSE
-M0 L'ENFANTET LA REINE MORTE :
 FA intempéries. Je déteins, mon cher monsieur! Mais que
 de cela ne vous empêche pas de me dire ce qui vous ;
 | amène. |
 Je lui exposai en peu de mots la mission que j'avais |
-assumée. À
 — Ce serait, me dit-il, une excellente idée que de me |
 faire assister quelquefois encore aux spectacles dont je ;
 fus si souvent témoin, à l'époque la plus intéressante \
@@ -2522,14 +1654,8 @@ _— Le Palais-Royal ! m'écriai-je illuminé. : h,
 ?  — Oui, le Palais-Royal, répéta M. de La Fayette. Et ï.
 __ puisqu'on a démoli les galeries de bois, n'est-il pas je
 juste qu'on les remplace par les bois de justice ? 4
-:
 
-© \ RU Le
-AA eo à
-X 7 x
-h
 les vaches et l'Académie
-/ ;
 | M. Jules Claretie a publié quelque part une anecdote
 . dont la lecture fit sur moi une impression profonde. Il
 s'agit du dictionnaire de l'Académie.
@@ -2542,13 +1668,11 @@ lorsque l'aimable Camille Doucet, secrétaire perpétuel, lut ñ
 fe une des définitions du mot vache :
 
 Vache se dit d'une femme qui a vieilli. « Elle est bien
-vache. »
 
 { Octave Feuillet bondit. Le romancier délicat, féminin et
 féministe, s'insurgea contre une définition et un exemple
 qui portaient atteinte à la femme :
 | — En vérité, messieurs, allons-nous contresigner une
-telle grossièreté ?
 — La citation n'avait point paru grossière à Charles
 | Nodier.. 1
 
@@ -2560,10 +1684,6 @@ Voilà, n'écriai-je, une Académie française pleine de
 ; délicatesse et de sens commun. Il n'y a rien de plus ri- !
 dicule et äe plus stupide que de donner des noms de ù
 
-1 #4
-
-Ë HS L'ENFANT ET LA REINE MORTÉ
-ie
 | bêtes aux personnes, Comment s'arrêter sur cette pente,
 _ sice n'est pour la remonter par l'escalier de la folie :
 on donnerait des noms de personnes aux bêtes, des
@@ -2580,7 +1700,6 @@ _ perd la foi. J'ouvris, hélas, le dictionnaire de VAcadémie, et quelle ne fut
 mot oie. L'édition de 1878, la dernière, indique que l'oïe
 est un oïseau. Mais elle indique aussi que ce mot sert
 également à désigner « les personnes fort sottes et fort \
-niaises ». CU:
 — Il y a là, songeai-je, une exception probablement :
 unique, mais en vérité bien déraisonnable !
 Afin de m'en assurer, je rouvris le volume à l'article
@@ -2596,8 +1715,6 @@ ainsi qu'à un mammifère très fréquent à la campagne,
 et auquel, d'accord avec l'Académie, les paysans disent
 | F 81 reine morte, — 5. y
 
-ju HA t , FAR A ES “1 V4
-HU Pierre Mille 102100
 généralement, quand il se roule dans le purin, qu'il est $ 6
 bien nommé. dx
 Je n'y étais plus du tout. Du moment qu'on peut appeler un homme ou une femme de tous ces noms d'ani-:
@@ -2625,19 +1742,12 @@ du froufrou », dans le sens de faire des embarras, n'enregistre-t-elle pas « f
 À extérieurs, où je présume qu'il a pris naissance, jusque
 dans les enceintes de l'Université. Au collège Rollin,
 où je fis mes études, et même, affirme-t-on, jusque d
-82 ‘4
-1h î
 
-LE, 441 EE UE
-L'ENFANT ET LA REINE MORTE EURE 40
 chez les jésuites de la rue des Postes, il n'est pas A
-inconnu. ! 4
 ._  — Vous me permettrez de croire, protesta M. Gréard !
 avec dignité, que vous calomniez les établissements de L
 
-" FÉtat! f!
 Et i se leva, pour me montrer que l'audience était W
-terminée. 1
 J'obtins ensuite, et toujours par des procédés télépa- ;
  thiques, une entrevue de M. Henri Lavedan. Je me b.
 .  reprochais d'avoir manqué de méthode avec M. Gréard. ‘4
@@ -2654,29 +1764,20 @@ pâturages de l'erreur! Le contraire, je ferai. A l'Aca- è
 démie, veillerai avec soin sur la pureté de la langue. qu
 Ferai rayer du dictionnaire tous les mots d'argot. Feraï sh
 rayer bûche, pelle, tourte, fourneau, la peau, concombre, ê
-galette, ponte, rosse.….. RE:
 — Marcheur aussi, suggérai-je, illuminé. 4l
 
 — Marcheur aussi, comme vous dites, et même ‘4
 Vadjectif « vieux », par-dessus le marché. Et alors, com- Met:
 ment voulez-vous qu'on puisse continuer à parler argot, Fa
 puisque les mots qui servent à parler argot seront sup- ‘1
-primés ? \ à
 Je félicitai vivement M. Henri Lavedan de cette idée Ël
 géniale et me dirigeai vers la demeure de M. Anatole 1#
-ï \ L
-
-{ £ “ A Vier ee.
-
-ê Pierre Miles) qe 00
 
 France. Mais je réfléchis en route qu'il valait bien mieux de:
 
 aller trouver M. Bergeret, son ami et son meilleur lui
 
 même. Et le chien de M. Bergeret vint vers moi en À
-
-aboyant. }
 
 — Ne vous offusquez point, me dit l'ancien profes- |
 
@@ -2708,7 +1809,6 @@ lostracisme de M. Octave Feuillet. Vous connaissez
 | toute l'horreur que j'ai pour les façons de parler violentes et grossières. J'évite de les employer, parce
 qu'elles affaiblissent la pensée. Mais, malgré mes répugnances personnelles, j'aurais été, je crois, obligé de
 
-L'ENFANT ET A REINE MORTE
 | faire observer à l'Académie que l'énumération des diffé-
 rents sens du mot vache me paraissait indispensable au Fe
 salut de la société. a
@@ -2732,7 +1832,6 @@ Consultez l'Académie; elle est muette. » Et vous LE
 avouerez, monsieur, qu'il serait naturel que le diction-
 | naiïire rédigé par l'Académie, corps officiellement
 reconnu, fit seul autorité devant les délégués officiels du
-gouvernement. Sinon, à quel glossaire recourir ? A celui 1
 de Littré ? A celui de Larousse ? Ces deux philologues 1
 et polygraphes ont eu des opinions politiques et reli- *
 gieuses bien dangereusement avancées !
@@ -2740,9 +1839,7 @@ J'avoue que le raisonnement de M. Bergeret m'avait
 paru fort. Cependant, au lieu de m'en tenir là, je décidai
 d'aller consulter la vache elle-même. On le sait, depuis
 que le jeune hindou Mowgli a fait ses confidences à
-85 |
 
-u Pierre Mille Ÿ Y RUES à
 ! Rudyard Kipling, il n'est plus permis d'ignorer lelangage | ( :
 des bêtes. La vache me reçut fort bien. Du plus loin "
 qu'elle m'aperçut elle s'écria :
@@ -2767,16 +1864,7 @@ trop d'embonpoint. £lle devient vache, elle prend trop d'emHE bonpoint.
 Par conséquent le sens dont ne voulait pas M. Octave
 Feuillet a été maintenu. Mais l'histoire contée par
 M. Claretie est jolie tout de même.
-< Le
-{ 4
 
-‘4e Ÿ VAE nt 14) He f | (NCAA ENER i YA. 4 RS
-ù vi SE ue NOR VOA | #4 : : j
-RU. | 4
-NN 04
-Et 4
-- H ?@
-SAM
 une grande calomniée ni:
 s M. Baudry d'Asson est arrivé < F {4
 aujourd'hui à la séance de la. 13 2
@@ -2788,11 +1876,9 @@ dans toutes les mémoires, la pré- ( 54
 sence de cet objet pouvait passer #, KE
 pour une injure à la majorité. Mais à #8
 cette casserole a disparu mysté- dE
-rieusement. PES
 les journaux, 1905 +E]
 ' Je ne pensais à rien, je suivais mon nez, comme fe
 d'habitude, sans regarder par terre. Voilà comment je 1
-5 É
 mis le pied, par mégarde, sur une extraordinaire entité, Lt
 qui se releva, furieuse comme une casserole à qui on a LYS
 marché sur la queue. Et justement c'en était une ! Après $
@@ -2806,7 +1892,6 @@ Jai toujours de la chance : c'était à moi qu'il apparte- +1
 _  naït de la retrouver! Tout arrive, et il ne faut jamais oi
 _ s'étonner de rien; m'efforçant de conserver l'air le plus: k
 
-3 Pierre Mille |
 } paturellement affable, je me contentai de demander à À
 cette casserole par quel heureux concours de circon- |
 stances j'avais le plaisir de la rencontrer sur le boule-
@@ -2823,7 +1908,6 @@ n'est plus sûr de rien... Mais pourquoi cette horreur
 des Parlements, casserole mon amie. Auriez-vous lu
 récemment les œuvres politiques de M. Déroulède ? |
 — Non, fit-elle avec énergie. Mais j'ai assisté à une |
-séance !
 Et ce souvenir l'enflammant d'une fureur renouvelée,
 “elle s'écria :
 
@@ -2834,18 +1918,13 @@ monde, j'allais au feu toutes les fois qu'il le fallait, avec
 
 le plus grand courage. Jamais, jamais, je n'ai mérité
 qu'on dise du mal de moi; et voilà que cet homme politique, par un incompréhensible caprice, m'emmène à la.
-Chambre !
 
 « Tout d'abord, j'ai cru que ses intentions n'avaient
 rien que de flatteur. Il va, pensai-je, me donner à |
 M. Doumer, pour remplacer sa sonnette, qui ne fait pas ;
 \ assez de bruit. À ma vue, et aux sons retentissants 7
 issus de mes côtes de métal, les députés se rappelleront |
-88 É
-J '
-17 » FR
 
-L'ENFANT ET LA REINE MORTE
 _ que leurs paroles ne font pas bouillir la marmite. Et si
 quelque jour je succombe au champ d'honneur, si je me É
 fêle, on me déposera glorieusement dans un musée, . |
@@ -2872,14 +1951,12 @@ de petits morceaux de papier, nommés fiches, les ac- NE:
 | tions des autres hommes, en attribuant à celles-ci les Ki
 motifs les plus bas ou les plus cocasses : comme par “210
 exemple, d'aller à la messe pour y conspirer contre le
-gouvernement. ‘ {
 — Quel rapport, s'écria-t-elle indignée, y a-t-il entre à
 de tels hommes et d'honnêtes casseroles? Est-ce qu'on
 les a rétamés? Et pourquoi, par conséquent, les appeler }
 spécialement casseroles, de tous les noms qui existent
 dans la langue française? Pourquoi pas « commode »,
 
-Pierre Mille LEE
 à pourquoi pas « tiroir »? Pourquoi pas cafetière, bouil- ï
 4 lotte, compotier, arrosoir ou pot-à-tabac ? Et, le plus È
 fort, c'est que cela vous amuse follement. Avouez-le :
@@ -2906,10 +1983,7 @@ vérité est que vous êtes aveuglés par l'orgueil le plus
 stupide et le plus inexcusable. Quand vous rencontrez
 | un de vos pareils qui vous paraît être dépourvu des
 qualités sublimes qui définissent pour vous l'être que M
-90 +
 
-} A tte ar Su MEN « Te He “3
-te eu run |
 Fod qi _ L'ENFANT ET LA REINE MORTE fn
 ï yous appelez un homme, au lieu de dire : « C'estun “À
 . Homme », vous nous l'envoyez. Merci bien! A la fin, si 4
@@ -2924,23 +1998,17 @@ locutrice, et ne point priver ma patrie du concours Ne
 qu'elle lui avait prêté généreusement jusque-là. Je ris- Pa.
 quai un argument: AUOT NES
 — Écoutez, dis-je, vous devriez retourner au Palais- 4 sil #
-Bourbon. NUE ee
 Cette proposition la révolta. Je m'y attendais. Mais il
 je continuai, insidieux : pt
 | — Ils auront besoin de vous pour une œuvre à la- ASE
 quelle vous ne pouvez nier que vous êtes destinée. HOUR :4
 — Laquelle? interrogea-t-elle, à la fois curieuse et 4
-. flattée. Rir
 — On a prétendu, murmurai-je, qu'ils allaient faire 14
 . encore beaucoup de. bouillie pour les chats. 20 !
 — Casserole! me cria cette casserole. \ A ï je
-KA
 
-ve f L 0% PME j 09 10
-À
 | 4 ; k n 1
 | ji À
-courte conversation
 entre quatre grands personnages
 ; Quatre événements en une seae: maine : Un homme politique a
 essayé d'escroquer la Grande Ghar-
@@ -2962,8 +2030,6 @@ je suis accroupi : donc semblable au Sphinx. Enfin, je
 a suis terrible. Quand j'arrive sur une table, il n'est plus
 { d'espoir pour les convives. Car je suis le canardf 92
 
-D ul |
-Ft L'ENFANT ET LA REINE MORTE |
 DA dilemme, une bête que Jean de Pathmos, homme cepen- {
 _ dant plein d'imagination, n'avait pas songé à inventer. “à
 Si les convives ne me mangent pas, ils meurent de Î
@@ -2996,11 +2062,7 @@ balustrade du pont et ils ont crié : ÿ
 __ devoir paternel et leur métier, ce sont eux qui m'ont
 | faite. Et après m'avoir faite, ils m'ont obligée à traîner }
 _ des choses immorales : des wagons-bars, par exemple,
-: |
-he AE
 
-à \ 4 s FLOUE
-Pierre Mille CT ATEN
 ou des wagons-suicides, avec plateformes pour décapi- M
 tation dans les tunnels; et des gens très lourds ettrès
 exigeants, qui ne daignent même pas payer leurs
@@ -3043,10 +2105,8 @@ là est plus impertinente qu'un Japonais. » |
 
 |
 
-L'ENFANT ET LA REINE MORTE 414
 __ Quant au Concordat, il continuait à gémir que sa 4
 . situation n'était pas tenable, et qu'il voulait s'en aller. ‘14
-Héisaibr "2 \ 4
 — Je n'y comprends rien. Il n'y a pas de sphinx qui ie
 ait jamais posé des énigmes plus ridicules que celles “1
 que j'ai à résoudre. Il n'y a pas de Chimère plus folle 1h
@@ -3063,7 +2123,6 @@ encore des malheurs à prévoir. ; VA
 L'X des Chartreux n'avait pas encore ouvert la N
 bouche. Il contemplait toujours, avec mépris, le Sphinx (
 et la Chimère de M. Gustave Moreau. A la fin, il pro- Ur.
-nonça : ; / +16
  — Ce.qu'il y a d'étonnant, c'est que les générations FOR &
 précédentes aient accordé quelque attention à ces ani- us ‘4
 maux méprisables. Je n'ai jamais vu de Chimère si | 14 #
@@ -3077,7 +2136,6 @@ ayant fait revenir M. Lagrave d'Amérique, je l'ai Ps %
 dévoré. Je suis à la fois sphinx et chimère, et bien 5
 où à
 
-US Pierre Mille SEINE
 % d'autres choses. Je suis le néant, la folie, la férocité,
 la bêtise, le retentissement des mots dans le vide. On
 à ne m'a jamais vu. Et pourtant je mange des hommes.
@@ -3092,8 +2150,6 @@ française, dans laquelle, aujourd'hui, il n'y à jamais
 aucune bonne raison pour qu'il n'arrive pas n'importe
 quoi plutôt qu'autre chose, et qui s'en console, pourvu
 S que ce qui arrive soit absurde, et prête à la converdu sation.
-(4
-)
 
 la sagesse du Taureau
 A Saint-Sébastien, on a tenté de
@@ -3102,9 +2158,7 @@ A Saint-Sébastien, on a tenté de
 la garde militaire a tiré dessus, et, 1
 le manquant par suite de son
 s émotion bien naturelle, a tué plu ‘4
-sieurs spectateurs. « “4
 les journaux, juillet 1904 } 4
-F
 .… Le taureau de Saint-Sébastien, celui qui s'est !
 battu contre un tigre, commença par me faire les cornes. M:
 | Puis il prononça : Fa
@@ -3121,9 +2175,6 @@ que lui donnaient d'autres animaux féroces, récem- à.
 | _ ment découverts, et nommés cinématographistes. Le
 taureau, à force de travailler les côtes de ce pauvre à
 | tigre, a fini par défoncer les barreaux de la cage, ce qui
-) 97 reine morte. — 6 d !
-\Ù
- CTCRALDE TPE M {
 
 Pierre Mille de
 7 a eu pour résultat de mettre en liberté le tigre, qui alors +
@@ -3144,10 +2195,8 @@ tombant dessus, à la vivacité habituelle de mon caractère; et je le regrette.
 Le tigres ne sont pas méchants! Ils sont très méchants, ils
 mangent des hommes, et même des buffles. J'en suis
 Ney sûr : j'ai vu des images où des tigres mangeaient des
-bufiles !
 — Pendant le jour ? fit le taureau, plein d'une impertinente ironie.
 Je ne comprenais pas le sens de cette question. Le
-taureau daïgna s'expliquer.
 — Sites congénères, continua:t-il, et ce sont leshommes
 que je veux dire, avaient la plus petite notion des lois
 é de l'histoire naturelle, ils sauraient que les tigres ne
@@ -3177,7 +2226,6 @@ attaque le plus faible, et quand deux animaux sont 7:
 Ce taureau avait l'air sûr de son affaire et, de plus, de
 son tempérament me parut irritable. J'évitai prudem- \ F
 ment de le contredire. Il put donc continuer à monolo- |
-guer. ; ,
 — Tu ne te figures pas, dit-il, et moi-même je ne 4
 . m'imagiuais point avec quelle rapidité tes congénères h
 passent de la cruauté la plus inutile aux terreurs les 4.
@@ -3195,9 +2243,6 @@ Je la défohçai ainsi d'un seul effort, comme j'aurais pu |
 faire de ta maigre et laide poitrine, La grille céda. Et : 4
 le tigre fut en liberté. :
 
-\ 99
-
-ss PURE
 | Pierre Mile). "102
 | « … Et le tigre fut en liberté! Tu m'entends? cet animal qu'on insultait, qu'on rouait de coups, qu'on grillait
 i vivant avec des fusées, insolemment, parce qu'on
@@ -3235,12 +2280,6 @@ Je me mis à mugir triomphalement sur ie sable foulé.
 
 l'étrange événement qui suivit. On a prétendu que des
 
-À L |
-
-D a DaNp ri ue Rat
-EU AE La ELA NL UNIES LAN A te AE MON RS CR EE ANS
-2 NOM ANINNMEANn Rte eee en
-AE à ENFANT ET LA REINE MORTE ANA
 fi mil La res voulant tuer le tigre, ont atteint par mé- 1 RTE ‘
 Le garde une douzaine de ces assistants aflolés. Je suis LH OR
 is persuadé que c'est le contraire, et que ces soldats dont
@@ -3250,26 +2289,16 @@ et par conséquent les moins intéressants, ont tué le ANT
 _ tigre par inadvertance. J'espère que, la prochaine fois, AN
 _ le spectacle sera mieux réglé, et que les animaux, aux- EU
 _ quels il est évidemment. dédié, recevront des places LAN
-sn Sue ë Be RUN
 ë d'honneur, d'où ils pourront contempler, sans risques AA,
-k e. L . 2 . CE . 1 AA
 | inutiles, une petite représentation, meurtrière et bien HQE jou
 | organisée, dont vous ferez seuls les frais, ainsi que VAN TAN
 _ l'exige une saine morale. » AE
-‘8 HA Ar
-ANA
-(44 N AE AEUN nf
 mel “ FAIT ÿ
-« F ' ei 17h
 y AA reine morte, — G. TES
 | AMC YaTURE * AN
 | JP NON { ? ; YU 1
-HE NAAUIENNE e , NL: 2170
-ANNE AS \ Lx FAO PTONE ES
 
-Ÿ
 un discours de madame Séverine |
-j |
 Une trop courte note, égarée dans les journaux, a |
 informé le public que madame Séverine avaït prononcé, |
 \ à la distribution des prix de l'école communale de
@@ -3289,8 +2318,6 @@ que M. Viollet-Leduc, on le sait, a si habilement trans- w
 lecteurs quelques-uns des passages les plus marquants
 de la chaude et vibrante allocution improvisée par
 l'oratrice.
-102 LEE
-AUS
 
 di sx de | : L'ENFANT ET LA REINE MORTE
 « Est-ce bien moi, mes enfants, moi qui vous parle, A.
@@ -3327,7 +2354,6 @@ qui font du mal aux animaux : moi, je nourrissais des |
 mille-pattes, je faisais l''aumône aux cancrelats, je \
 | 103
 
-Pierre Mille SE NN
 favorisais les amours des hannetons, je disais du bien |
 des imbéciles pour les défendre d'autres imbéciles. On
 
@@ -3374,9 +2400,6 @@ vous n'aurez pas de chance ! J'aurai à dire que le gouvernement ne vous paie pa
 la médiocrité de pensée dont ils ne sont pas responsables. Les malheurs de votre vie privée, vos amours, :
 vos divorces m'appartiendront également. Enfin, vous
 
-104 NS
-Kf
-
 |A nt ! L'ENFANT ET LA REINE MORTE .
 | pouvez songer avec allégresse, mes enfants, que lorsque 1
 | vous passerez en cour d'assises, je serai là, et que ceux he:
@@ -3409,49 +2432,22 @@ les modistes, les journalistes, les chiens, toute la terre, %
 et la lune, qui a l'air si triste. » :'1
 Madame Séverine termina ce discours dans un san- fi
 glot. Tout le monde pleurait. Par un de ces phénomènes Hi
-é 105 $
 
-MEL
-it
-
-1h
-al
-fl +
-fi 4
-il |
-[A
-di "
-fl
-F
-pr
 |
 |
-! » » ,
-mi
-MS ‘
 
-HE |
-Hi
-Concours admi “A
 un usage, consacré } Fée
 qui ne pensent pa RE
 r à ces candide F4
 4 douanes on h |
-ame doit pass jt
 ec les morts sl
 avec lui-mên Fi
 ée ne signif
-m point d à
-n veut
-ut dès "
-uaniers, étudie .
-a conservé 1 |
 iter leur exer né éélihes
 s de l'antiq »n, et c'est
 l'examinat iggérer €
 
 AA A Et RANCE 7 RAA CP NA PR ne
-À Pierre Mille er te
 bien connus de ceux qui ont étudié le délire des foules,
 î l'émotion gagna même les gens du dehors et les oisifs
 du Casino, qui n'avaient rien entendu : car tous avaient
@@ -3476,9 +2472,7 @@ Chérissons surtout ses larmes;
 Ses alarmes
 : ï Ont des charmes,
 Y a pas mieux dans les journaux!
-x \
 
-Concours administratifs |
 C'est un usage, consacré par le temps, et surtout la
 * nécessité d'évincer des places les plus modestes les can- j
 didats qui ne pensent pas comme le gouvernement, À
@@ -3489,7 +2483,6 @@ rariat des douanes ont eu à développer le sujet suivant : £
 existence avec les morts ; la seconde avec les vivants; ù 14
 la troisième avec lui-même. » L'auteur s'est efforcé de
 reconstituer une de ces compositions. La voici :
-À
 « Cette pensée ne signifie absolument rien si on la AA:
 « prend dans le sens littéral. Il convient donc de la
 « considérer à un point de vue symbolique, mais doua- k l
@@ -3501,22 +2494,14 @@ reconstituer une de ces compositions. La voici :
 | « leurs vertus, imiter leur exemple. Le plus célèbre de
 « tous les douaniers de l'antiquité fut Caron, et c'est
 « sans doute ce qué l'examinateur a voulu suggérer en
-VS 107
-Ar % = W À À
 
 .
-Î |
 À « du blé, de la farine, des pièces d'étoffe ou des instru
 1 « ments ridicules en fer où en acier sont de mauvais
 | « en donnerons les preuves que nous avons découvertes
 | « obéissant serviteu par conséquent, nous nous gar- Î
 Une autre preuve de l'utilité des oiseaux est qu'ils
-109 3 !
-4 Hi
-l
-tv
 
-Pierre Mille ANNE
 « disant que tout bon douanier doit commencer par
 « vivre avec les morts. Caron était douanier aux fron-
 « tières d'un État bien connu et très peuplé qu'on à
@@ -3540,15 +2525,12 @@ Le rameur qui m'a pris l'obole du passage
 | « n'y a là qu'une simple similitude de son dont il ne !
 « faudrait pas abuser : Presque toujours les douaniers w
 « sont en contact avec les vivants et non avec les W
-« morts. 11)
 « Ajoutons, que les vivants les plus agréables aux
 « douaniers sont ceux qui portent des cigares, des
 « liquides et des solides susceptibles d'être consommés
 « immédiatement à la cantine, et des allumettes bou-
 « gies. Ceux qui tentent de franchir la frontière avec,
-108 |:
 
-BP 7  :L'ENFANT ET LA REINE MORTE É
 à « du blé, de la farine, des pièces d'étoffe ou des instru- à
 . « ments ridicules en fer ou en acier sont de mauvais ?
 « plaisants, qui méritent d'être traités en conséquence, \
@@ -3579,9 +2561,7 @@ _ « obéïssant serviteur : par conséquent, nous nous gar- “3
 « derons de commencer par la contredire. £
 _ « Une autre preuve de l'utilité des oiseaux est qu'ils |
 « sont comestibles, pesants, incapables de se mouvoir, û
-‘ 109 reine morte, — 7 |
 
-; Pierre Mille FRA
 É « et par cette raison exigent pour se transporter d'un
 « « point à un autre le concours des forts de la Halle.
 ; « Au point de vue de l'histoire naturelle, les oiseaux
@@ -3613,9 +2593,7 @@ _ « Une autre preuve de l'utilité des oiseaux est qu'ils |
 « avant de risquer cette remarque, dont l'importance M
 « scientifique n'échappera sans doute à personne. Ce
 ex qui confirme d'ailleurs l'opinion que les oiseaux morts .
-110 |
 
-Ed L'ENFANT ET LA REINE MORTE
 « sont d'origine végétale, c'est que ceux qui proviennent
 _ « des régions septentrionales, comme les tétras, mettant
 |! « évidemment beaucoup plus de temps à mürir, n'ar-
@@ -3648,8 +2626,6 @@ _ « la caisse. Les bons œufs, d'après les expériences et
 « bien que nous n'en ayons jamais vu. Tous ces oi-
 « seaux paraissent d'ailleurs aimer passionnément la
 « société de leurs semblables. Il est bien rare, en effet,
-III
-; »
 
 Pierre Mille >, "ON
 « qu'on les aperçoive autrement que dans de vastes
@@ -3687,7 +2663,6 @@ Pierre Mille >, "ON
 « naïf tend à disparaître depuis l'invention du phono-
 
 « graphe et du gramophone, instruments infiniment) 1
-112 F
 
 5 D venranr ET LA REINE MORTE æ
 FA D techomnés. Cependant il était plus portatif. É
@@ -3695,7 +2670,6 @@ FA D techomnés. Cependant il était plus portatif. É
 
 É « jaune ou en vert et on lui met un sifflet dans le ventre 5
 __ « pour amuser les demoiselles qui travaillent à leur fe- 1
-_ « nêtre. : 2
 « Enfin on donne également le nom d'oiseaux, par $ è
 
 _ « une extension du terme qui prouve la pauvreté de la ss
@@ -3714,16 +2688,10 @@ _  « même pas besoin d'être démontré. D'abord ils ne sont à
 
 « mais les oiseaux qui méritent ce nom. » Sr
 
-À
-S'OMRAEERRP NRR } 4
-
-i
-Inaugurations ;
 On a inauguré hier le chemin de
 fer métropolitain de Paris qui est
 exploité depuis cinq ans, et a déjà
 transporté cinq cent millions de F
-voyageurs. : ,
 : les journaux, 1905 *
 Ce matin, quand je suis descendu dans ma cour, jy
 ai trouvé un omnibus de Batignolles-Clichy-Odéon, et à
@@ -3740,14 +2708,8 @@ soin de le faire remarquer : s'ils n'en avaient point, ils
 ne marcheraient pas; mais il y a si longtemps qu'ils « ont accoutumé de ne s'en servir que pour aller sur l'eau! M
 à Par-dessus le marché, mes deux visiteurs encombraient.
 Le concierge n'avait pas l'air content. Ce fut donc avec! à
-114 les"
-7 : Ra ns
 
 Î fee nee, La w Fe ANSE à Fe : 3
-
-M 4 1
-
-à, … NÉE L'ENFANT ET LA REINE MORTE é À
 
 # plus de froideur, je le crains, que de courtoisie, que
 
@@ -3755,7 +2717,6 @@ M 4 1
 
 | — Nous venons protester! me répondirent-ils. Vous ss
 êtes journaliste : c'est votre métier d'enregistrer les pro- 1
-testations.
 
 C'était vrai. Mais ils auraient bien pu écrire, ils :
 n'avaient pas besoin de se déranger. Ceci, vous me :
@@ -3766,7 +2727,6 @@ est l'hypocrisie des conventions sociales. Ils répliquèrent: SE
 
 — La chose était assez grave pour mériter une visite 5
 personnelle. Nous voulons qu'on nous inaugure, mon- « À
-sieur ! 4
 
 Je demeurai interdit. Mais le bateau-mouche continua Fe
 d'une voix puissante : #
@@ -3790,9 +2750,7 @@ seulement les choses qui n'avaient pas encore commencé À
 
 _ ne serviraient jamais à rien, comme par exemple les
 statues, ou le Petit-Palais. Mais du moment qu'on pro-
-à 115
 
-; Pierre Mille MR
 cède à cette solennité pour le Métropolitain, qui a.
 à déjà transporté cinq cent millions de voyageurs, nous
 sommes, croyons-nous, en posture d'exiger qu'on en
@@ -3823,8 +2781,6 @@ plaindre, il y en aurait d'autres ? à
 — Veux-tu les voir? dit le bateau-mouche, “du
 même ton insidieux qu'Hilarion dans la Tentation de
 
-Flaubert. ;
-
 Et comme l'anachorète Antoine, affaibli dans ma M
 
 volonté, tenté lâchement dans mon cœur : (Oui », fis-je M
@@ -3834,10 +2790,7 @@ Et je vis arriver une masse énorme. Elle tenait
 tout le boulevard, débordait sur les demeures, levait
 jusqu'au ciel sa tête pourtant humiliée. C'était Notre
 
-; 116 si
-
 ne ie
-Jess PA di
 | Lee |. L'ENFANT ET LA REINE MORTE $ à
 ë Dame : on ne l'a pas inaugurée depuis le treizième
 ca siècle ! Quelque chose mugit affreusement dans les |
@@ -3850,12 +2803,10 @@ pourtant, toutes ces choses sont sous terre, ou étaient pt
 sous terre, comme le Métropolitain : pourquoi cette Ë
 inégalité de traitement? Un gémissement plaintif et :
 indigné me parvint même des cimetières. Et tous
-disaient : : Ç
 — Nous voulons des ministres, ou tout au moins des ; #
 sous-secrétaires d'État. Nous voulons des discours, ; À
 des drapeaux, du champagne, la lueur douce et à
 violette des palmes académiques. Justice, à France, |
-“justice! "
 .… Lentement, appuyée sur deux ais de bois comme 4
 sur des béquilles, arriva enfin une chose vieille, sinistre, 4 |
 revêche et méchante comme la dernière fée du conte de 4
@@ -3863,21 +2814,15 @@ la Belle au bois dormant. d k.
 — On n'a pas célébré, dit-elle, mon centenaire, et #3
 cependant j'attends encore mon inauguration. Pourtant (GATE
 - un grand homme a dit que j'étais le soutien de la ÿ
-_ société. 4
 — Vraiment ? fis-je inquiet et respectueux. Qui donc F
 êtes-vous ? D.
 — Ne me reconnaissez-vous point ? dit-elle ; je suis la
-guillotine. AUS
-14 $ reine morte, — 7, :
 
-D F4 ; > _
-D
 : le Fantôme et les Élections E
 On ne peut se figurer que difficilement combien il me
 fut désagréable, lorsqu'à quatre heures du matin, cos- à E
 tumé en garde national, je revins du bal Gavarni, de 3
 trouver un fantôme assis dans l'unique fauteuil de ma
-chambre à coucher.
 : Je vis d'un coup d'œil que c'était un fantôme, et non 1
 une autre espèce d'imbécile : car sur le mur, derrière À
 sa tête, et non dedans, j'aperçus une araignée. Par con- #
@@ -3885,15 +2830,12 @@ séquent, il était transparent; par conséquent, il était
 fantôme. J'ai toujours été très fort sur la logique, même :
 à quatre heures du matin. ï
 Je dis tout de suite à cet intrus, avec une légitime
-rudesse :
 — Vous, vous allez vous en aller!
 Il me répondit par un regard douloureux et suppliant.
 — Vous n'aviez pas le droit d'envahir mon domicile
 en mon absence, continuai-je; vous n'avez une fois, È
 déux fois, trois fois pas le droit de venir m'ennuyer! ;
 Une fois, parce que je ne suis pas costumé en lord k
-118 ; |
-k y
 
 Det L'ENFANT ET LA REINE MORTE.
 Byron, mais en garde national : que lord Byron reçoive S
@@ -3908,7 +2850,6 @@ doivent s'adresser rue Serpente, à la Société de Psycho- ;
 logie : c'est dans leurs statuts. ; *
 — Monsieur, gémit-il en levant les bras au ciel,fe sais 4
 tout cela, mais j'ai à vous dire les choses les plus im- F
-portantes ! #
 — Vous savez où il y a un trésor ? suggérai-je, frappé 4
 d'une idée subite : parlez! se
 — Non, monsieur. Mais c'est au journaliste que je 5 ni .
@@ -3916,21 +2857,16 @@ m'adresse. C'est pour une réclamation. Le devoir pro- De
 fessionnel vous oblige à m'entendre, monsieur, puisque ne:
 cela vous fera de la copie. à ÿ
 — C'est vrai, fis-je, rappelé à moi-même. Je vous ce
-écoute. es
 Alors, le fantôme se dressa, grave, majestueux et n:.
 courtois, comme un fantôme qui a le sentiment de son A F
-importance. 7 a
 — Monsieur, dit-il, je suis le délégué, auprès de HR
 vous, des cent mille Morts qui voteront aux Élections L :
-générales ! F:
 — Dans ce cas, dis-je en réfléchissant, il faut vous |
 adresser au ministère de l'intérieur. \
 — Nous y avons déjà envoyé quelqu'un, mais on h
 nous à répondu que ça ne regardait pas le gouverne- {li
 ment. Il paraît que les morts votent presque toujours :
 
-Pierre Mille. 57" PSS OP ETEE
-£ STE RES à
 $ contre le gouvernement, malgré ce qu'on croit à tort là
 à dans le public, et que le ministère n'a aucun motif,
 en raison de notre attitude, de nous être agréable.
@@ -3943,14 +2879,12 @@ remplir ses devoirs de citoyen! à
 manière que tout le monde. ne
 Nous demandons à pouvoir voter pour l'un de nous.
 . Nous demardons à pouvoir tenir des réunions élec-
-; torales. : fe.
 Nous demandons à avoir nos journaux. Il s'est moqué 4
 ï de nous, ce M. de Vogüé, avec ses Morts qui parlent !
 Nous ne pouvons jamais nous faire entendre. .
 — Il est vrai, dus-je admettre, qu'il y a là, pour vous, +
 un état de déplorable infériorité. Mais vous avez, pré
 cisément, le bulletin de vote pour soutenir vos reven- #
-dications. %
 — C'est là qu'est le plus grand abus ! Nous ne pouvons ;
 à voter que par procuration; on s'empare de nos cartes, 3
 et on va aux urnes pour nous. C'est défendu par les
@@ -3963,7 +2897,6 @@ prétendus mandataires n'ont cure des opinions que
 nous avons le plus énergiquement exprimées de notre 3
 vivant. Par exemple, voilà Allan Kardec, le fondateur
 du spiritisme. Il n'a plus qu'un désir dans l'autre monde, 4
-120 a
 | )
 
 ere L'ENFANT ET LA REINE MORTE s:
@@ -3996,13 +2929,11 @@ règles du droit français. Au delà du douzième degré, le À j E:
 gouvernement hériterait, après qu'aurait été nommé un < À
 curateur à la voix vacante, selon les formes requises 44
 par les articles 811 et 812 de notre immortel Code 4
-Napoléon. k k
 — Rien n'est plus simple, m'écriai-je, enthousiasmé, }
 rien n'est plus simple et plus juste. Vous pouvez être fi
 assuré que je donnerai la plus grande publicité à cette À
 car À
 
-Pierre Mille à
 : proposition. Elle sera, n'en doutez pas, discutée pendant
 la prochaine législature.
 
@@ -4011,32 +2942,20 @@ vous ne voyez pas encore, dans votre hâte, toutes les
 conséquences de cette réforme utile et nécessaire. Vous
 n'avez même pas l'idée de la plus importante de ces
 
-z conséquences.
-
-— Et c'est 2... à
-
 — C'est que nous serons non seulement électeurs, #
 mais éligibles ! ke
 
 Sur ces derniers mots, qui me laissèrent anéanti, il *
-disparut. &
 
-LE
-
-Fo el PA UE
-_ Gallia, gentium pacificatrix
-7 k : À
 Un accident assez grave vient À
 d'avoir lieu authéâtre des Variétés. 144
 Lassouche et mademoiselle Émi- À CM
 lienne d'Alençon ont été blessés.
 : — On croit que l'affaire Dreyfus de
-va recommencer... ALT
 — Le Venezuela a déclaré la S
 à guerre à la Golombie... À
 Nouvelles toutes publiées lemême É
 soir par les journaux, 1901. je
-7 AE
 _ Hier ou avant-hier, comme Juan-Henriquez Alvaro, É
 général colombien, accompagné d'un nombreux état- june
 major et précédé d'une belle troupe de sept à huit cents ie
@@ -4051,20 +2970,14 @@ feuillues comme des tiges de maïs, offre un abri com- k
 mode aux personnes malveillantes qui n'aiment pas à
 _ perdre leur poudre en tirant de trop loin. On devrait
 toujours faire fouiller ces plantations par des éclaireurs.
-123 :
 
-TR EPA MRCANTEe RCI RMC re 4
-RS
-è _ Pierre Mille SNA :
 ie C'est à quoi pensa, un peu tard, le général J -Henriquez
 ù Alvaro : il avait déjà une douzaine d'hommes par
-terre. cc ;
 Presque dans le même temps, une voix le somma de
 se rendre. Le général, homme expérimenté et plein de
 ressources, réfléchit un instant aux opportunités de la
 ee situation. Une inspiration subite Lui vint. : be
 — Êtes-vous Colombiens? demanda-t-il à ses adversaires invisibles.
-— Non, Vénézuéliens. à
 — Alors, répondit le général, pourquoi diable nous 4
 ; tirez-vous dessus, puisque vous n'êtes pas du pays? :
 Nous ne sommes qu'en guerre civile : il y a erreur!"
@@ -4073,7 +2986,6 @@ colonel don Francisco Carvajal Ceron, les deux frères L:
 Martinez, fray Maldonaldo, curé de Tezcupetelpec, tous
 bien armés, et John Cockroach, war-correspondant du
 Daily Brag'gard, London, porteur d'un appareil photo-. Fe
-graphique. John Cockroach prit deux clichés. 1
 Le colonel affirma que, d'après les rumeurs qui lui #
 étaient parvenues, la guerre avait éclaté entre la
 . Colombie et le Venezuela. *:
@@ -4086,9 +2998,7 @@ pour renverser le gouvernement légal de ma patrie, É: $
 composé de vils conservateurs. A:
 Cette observation ayant paru juste au colonel Carvajal Ceron, celui-ci présenta galamment ses excuses
 pour la douzaine d'alliés possibles qu'il venait de faire À
-124 M
 
-fa US A MR CEE A RAT PA
 À :æ Le ; en ET LA REINE MORTE as 4
 F passer de vie à trépas. Elles furent acceptées avec n
 . grâce, et l'on résolut d'attendre le courrier qui devait 4
@@ -4104,30 +3014,24 @@ prise, et d'ailleurs, il espérait bien débaucher quelques h
 d'un espace nu, ou plutôt planté seulement de jeunes Are
 poivriers. Alors les deux troupes s'arrêtèrent, mais en ER À
 gardant leurs distances, tandis que les deux états- ia a
-majors se mélaient fraternellement. 4
 Ce fut ainsi que les trouva le courrier de Colon, un dr.
-nommé Ostrapolski, révolutionnaire polonais au service 5 +
 de toutes les nobles causes, lequel arriva au galop d'un Je
 grand cheval, borgne mais très vite, et fit lui-même 1
 fonction de vaguemestre, d'une façon bien simple : ou- RAS
 vrant le sac aux dépèches, il en jeta le contenu sur le É 1
 sol, et chacun prit ce qui lui appartenait, ou ce qu'il FR
-voulut. RE Re %
 Le colonel Carvajal Ceron rompit la bande du Tiempo GUN
 et parcourut rapidement le journal. Non, les relations : 04
 n'étaient pas rompues entre le Venezuela et la Colom- / d:
 bie; du moins, rien ne semblait le faire supposer. ds
 _— S'il en est ainsi, proposa le général Alvaro avec 4
 un certain empressement, nous n'avons plus qu'à nous fi
-quitter. ñ
 Mais don Francisco Carvajal dit tout à coup : ft
 — Il y a toute une colonne de nouvelles de France! ' 5
 
-; Pierre Mille Sen
 .. Un accident aux Variétés : sept acteurs blessés,
 dont Lassouche et six actrices. SAR AT
 — Lisez, au nom du ciel, lisez! s'écria le général %
-Alvaro. Da
 Le colonel commença : * L:
 — … QI y avait sur la scène un praticable haut de F
 ; Û trois mètres cinquante, représentant le grand escalier 4
@@ -4142,7 +3046,6 @@ un air d'Offenbach. sit
 Les fariniers sont tous blancs, É:
 Les charbonniers sont tous noirs, “
 quaud tout à coup le praticable, qui avait été mal éta- É
-bli, s'écroula. 4
 — Il est extraordinaire, interrompit l'un des frères
 Martinez, qui avait des dispositions pour la philosophie, « qu'il arrive des choses si extraordinaires juste au mo-
 * ment où l'on chante des choses si ordinaires! ;
@@ -4152,26 +3055,20 @@ jambe gauche et le genou un peu abiîmé.… Mademoiselle Aimée Ziska est une j
 de La Tour, qui pose pour la tête et le buste chez les
 artistes. Dans quelques jours, elle sera sur pied. F
 Les deux armées respirèrent. Mais elles poussèrent 4
-À 126 a.
 
-É L'ENFANT ET LA REINE MORTE
 un grand gémissement en apprenant que mademoiselle
 _ Angèle Delys avait deux os d'une jambe cassés.
 L'alferez Ruiz Tavilla, le soldat l'Arbolanche et le ! f
 péon Najera-le-Bossu prirent la parole ensemble pour |
 demander qu'on Iût aussi les adresses de ces CDR
-dames. “4
-—  « Mademoiselle Émilienne d'Alençon souffre
 atrocement des nerfs et son péroné gauche est fracturé. À
 La nouvelle courut comme le vent sur la cime des
 forêts. Toutes les têtes se courbèrent. IL sembla qu'un 14
 cri mystérieux sortit du sein même des rocs, comme le à
 jour où les nochers, dans les mers de Sicile, entendirent ‘4
 une voix clamer : « Pan, le grand Pan est mort ! » et les à
-lamentations d'innombrables nymphes. 118
 — .… « Émilienne d'Alençon criait : « Oh! que je fe
 souffre! Vite des secours! Je vais être défigurée! Je is
-veux petit ami! » ‘4
 — Je la connaissais, dit le correspondant du Daily hi
 Braggard. C'était une french girl qui élevait des 4
 lapins. Mais ce n'était pas moi qu'elle appelait. Et je NL és
@@ -4185,19 +3082,15 @@ pas moi qu'elle appelait. 13
 — Je la connaissais, dit le colonel Carvajal Ceron, | 4
 car j'ai pris douze inscriptions à la Faculté de droit, à
 place du Panthéon. Mais ce n'est pas moi qu'elle appe- 118
-lait. Ke
 
-Pierre Mille)" Yvan Pat
 ss — Je la connaissais, pleura Ostrapolski. Je la vis
 deux jours avant l'arrêté d'expulsion que prit contre
 Ë moi le ministère de l'intérieur, après ma première »
 bombe. Je n'avais que seize ans, et ce n'est pas moi M
 qu'elle a appelé. :.
 Fray Maldonaldo songea qu'il pouvait citer saint x
-È Augustin, puisque, étant Polonais, Ostrapolski devait "1
 savoir le latin : x5S
 — Nondum amabas, sed amare amabas, et amans
-amare, quod amares quærebas. R:
 — Oui, dit le révolutionnaire. Et maintenant, lugeté
 veneres. Si je me suicidais en son honneur? Il me paraît
 nécessaire qu'il se passe, en Colombie, quelque chose
@@ -4210,12 +3103,10 @@ les yeux avec tristesse. Subitement, il sauta sur ses « deux pieds, et les yeux
 émotion était telle qu'il fut quelques minutes sans pouvoir parler. à
 — Il y a encore, dit-il enfin, il y a encore une $
 nouvelle française. Elle est grande! Cest une grande
-nouvelle ! #3
 ‘ Et'il lut : À
 ; — M. Labori a lâché M. Joseph Reinach, ou M. Joseph
 Reinach a lâché M. Labori : on ne sait pas encore lequel
 des deux a lâché l'autre. Mais on croit que l'affaire
-Dreyfus va recommencer. |
 Longlemps, ceux qui l'avaient écouté restèrent muets, à
 
 Le de me F4 APE MS Rne RAT AE ete
@@ -4224,9 +3115,7 @@ let tout pâles. Tout à coup, le géñéral Alvaro courut à
 { ES eclde be A Ur nn es CAR SE RE à A
 | — Jetez vos armes! er | RÉRERE EE
 | Is le regardèrent avec stupeur, ne comprenant pas RO
-FETES nr F PL MN EN E A ERE
 | — Jetez vos armes, criat-il, jetez vos cartouches,
-AIT ù 2. ? 7H AT DIE 1, -
  dessellez vos chevaux! La guerre civile est finie, il ne Re
 peut plus y avoir de guerre civile. L'affaire Dreyfus va. Re ete
 recommencer : nous n'avons plus le temps de nous
@@ -4235,16 +3124,10 @@ occuper des nôtres! C'est la paix de la Colombie, la
 _ mondé, car le monde n'aura plus une minute à lui : il ee A
 _ faudra qu'il lise les nouvelles de France. ER R CT EN
 æ PR NS ce
-Rte. FPS
-RUE PR CAEN
-Lee PSN RSR
 LE Lits) AT RRESS
 
 NN), a CNT ER, 1 ee TU RE ON MORE ERREES
-* j + Li 4
-S 4 LÉ: SAV RRROEE
 ; le chien qui parle |
-É
 Pour savoir si vraiment M.Syve- « ton a pu se suicider en se mettant
 la tête sur un fourneau à gaz, les
 médecins experts se sont transportés au domicile du défunt, à
@@ -4268,10 +3151,6 @@ du pain et des os à la porte des casernes, du sucre à la É
 terrasse des brasseries, et même des dragées aux bap-
 | 130 F
 
-"a * mn" 1
-
-Ne a
-4 L'ENFANT ET LA REINE MORTE
 _têmes, à la porte des églises, Fouillot, dit Albert, dédai_gnait de faire un seul mouvement. Replié sur lui-même,
 il préparait ses crocs : plus instruit de son sort que ses É
 compagnons, il ne désirait plus rien, que mordre un bon 1
@@ -4301,10 +3180,7 @@ partit grand train. Steck, qui n'avait jamais vu plus
 loin que le bout de son museau, dit à Fouillot : î
 — Pourquoi les as-tu mordus? Ils sont venus pour
 nous tirer de la fourrière. :
-131 |
 
-_ Pierre Mille Er
-Lizzie ajouta : :
 — Moi j'aime déjà celui-là ! Ru |
 Elle désignait celui qui avait l'air d'être le chef des F
 autres. Les chiens, qui sont de race obéissante, savent M
@@ -4319,7 +3195,6 @@ mauvais signe. Je vous dis qu'on va nous tuer! e-
 — Ils parlent de Syveton, reprit Fouillot, et je connais +
 cette affaire : on ne parle que d'elle, dans les cafés. Ils D
 veulent nous faire mourir pour savoir comment il est
-mort. #
 — Hélas, dit Lizzie, à quoi cela servira-t-il? Est-ce !
 qu'ils veulent le ressusciter ? %
 + — C'est impossible, et, autant que j'en puis juger, à
@@ -4360,7 +3235,6 @@ dans une maison que tout le quartier contemplait, Ë
 depuis quinze jours, avec un petit frémissement de
 terreur et de curiosité, la foule changea d'opinion. ee
 Elle prononça : « C'est la police. » C'était même le ;
-Parquet. à > 2]
 On gravit un escalier. On portait Fouillot. Steck se
 faisait remorquer. Lizzie suivait de bon cœur, toujours
 confiante. La rudesse calleuse du chimiste en fut attendrie. « Au moins, lui dit-il, ma belle, tu ne souffriras ÿ 4
@@ -4368,10 +3242,6 @@ pas ! » Et tirant d'un étui un petit objet brillant, il lui |
 fit, tout en la caressant, une injection de morphine. |
 
 | 133 reine morte. -= 8 |
-ki: 4e Ù
-FAT 4 " 4
-
-ARE Pierre Mille SR "4
 
 RE - Une femme entra, en grand deuil. Elle se sentait |
 
@@ -4415,10 +3285,8 @@ au concierge Jondeau des lettres
 fort enflammées. Depuis que ce >
 fait est public M. Jondeau est à
 l'objet de toutes les curiosités É #
-féminines. :
 les journaux, 1904
 M. Paulin Costepierre, de l'Académie des inscriptions Nes
-. #2
 et belles-lettres, professeur au Collège de France, était 11
 un homme simple et bon. Le matin du 1° janvier, pas- a
 sant devant la loge de son concierge, il en ouvrit dis- es
@@ -4430,15 +3298,11 @@ _ ques vœux courtois. Mais il les exprima en bredouillant ARTE
 . et les yeux baissés : timide et sincère, il ne savait pas Ne
 dire avec cordialité les choses qu'il ne pensait point. SAS
 Autant dire qu'il manquait d'usage. Le concierge lui :
-répondit :
 — Je retourne tous ses souhaits à monsieur. J'espère
 que les siens me porteront bonheur. J'en ai bien besoin, à
 car je quitte cette maison-ici; et demain monsieur ne
 me verra plus.
 _ * M. Paulin Costepierre, de l'Académie des inscriptions 4
-F4 ùf F4 Al É
-
-Pierre Mille MAC te né .
 
 ; et belles-lettres, professeur au Collège de France, Ai F.
 G un homme simple et bon. Cependant il fit la grimace. E:
@@ -4447,7 +3311,6 @@ G un homme simple et bon. Cependant il fit la grimace. E:
 étrennes au nouveau concierge, si je veux qu'il me.
 
 ‘ monte mes lettres! C'est une bien mauvaise plaisan- à
-É terie. » Fe
 Cette petite mésaventure faillit lui donner de l'hu-
 
 meur, Il était sorti pour déposer queiques cartes. Il hâta 4
@@ -4490,10 +3353,8 @@ elle supprimera la plus grande partie de l'histoire, et
 
 les programmes en seront heureusement allégés. » 3
 PRE Or, une opération d'esprit assez semblable le portait F
-136 è Etape
 |
 
-D L'ENFANT ET LA REINE MORTE ‘4
 ea soupçonner que les hommes capables de se précipiter k
 . d'eux-mêmes dans les orages de la passion sont infini- 4
 _ ment rares. « Le mariage, songeait-il, a été institué par A ; 4
@@ -4516,22 +3377,15 @@ de la crainte du scandale et du ridicule, — car on peut ; x
 être repoussé par la personne qu'on sollicite, — est 4
 chose tout exceptionnelle, et que les fictions littéraires de
 qui prennent cette passion pour sujet sont dignes de me
-mépris. » an
 Ces pensées accompagnèrent M. Costepierre durant ï
 ses visites et le ramenèrent au logis. Il y trouva le con- ï
-cierge bouleversé. À
 — Monsieur, cria-t-il, un feu de cheminée vient d'écla- LE
 ter chez let locataires du second. Plus qu'un feu de À
 cheminée : le tapis du salon s'est enflammé, il est tout 1
 rouge ! Courez à l'avertisseur, l'avertisseur des pom- n
-piers ! à
 
-137 reine morle, —= 8, ï
-
-A A
 | Pierre Mille" RSR
 Y: — Je ne sais pas où il est, l'avertisseur! dit M. Coste F
-fe pierre effaré. TEE
 c — Eh bien, j'y vais moi-même. Gardez la loge! 73
 S Il partit en courant. M. Paulin Costepierre, de l'Aca=
 démie des inscriptions et belles-lettres, professeur au
@@ -4558,7 +3412,6 @@ première dit en riant : ‘4
 à L'autre ne lui dit rien du tout, mais le regarda fort
 | étrangement. De sa vie M. Costepierre n'avait été
 
-L'ENFANT ET LA REINE MORTE
 | regardé de la sorte. Il en ressentit un grand trouble, 3 :
 dont il n'aurait pu dire la cause. $
 La grande brune prit sa main, pour faire amitié sans :
@@ -4580,9 +3433,7 @@ donc la lettre, presque involontairement. Elle commen- :
 - çait ainsi : A
 « Les petites filles s'ennuient tant, à Paris! Ne sont- 4
 - elles pas excusables de faire un peu la cour à leur k
-concierge ? » +
 M. Paulin Costepierre continua, étonné. Puis il devint mx
-rouge jusqu'aux oreilles. 4
 Il n'a jamais voulu avouer complètement ce qui se
 passa ensuite. On affirme qu'il reçut d'autres visites;
 on affirme que, depuis, il est enclin à trouver beaucoup a.
@@ -4591,9 +3442,7 @@ celui d'Hippolyte. Parfois, ces souvenirs l'emplissent de L
 confusion. Parfois, il ne peut se défendre de les évoquer. 4
 L'unité de sa vie est rompue : c'est un grand malheur 1
 pour un homme de cinquante-trois ans. L
-139 ï
 
-1 PR EN EE ns _ Pierre Mille
 Mo _. Cette situation, pleine d'angoi es et de délices, prit
 12088 0 in per l'arrivée des pompiers. Le v et er
 db les accompagnait. M. Paulin Costepierre FRE tro
@@ -4604,23 +3453,11 @@ OSEO — Est-ce que c'est tout le temps comme ça, chez
  — Tout le temps, depuis trois semaines, répondit le
 Je concierge en soupirant. La publicité qu'on a donnée à
 certaines aventures a produit l'effet le plus imprévu :
-AT Et HE 3 a s . ES re
 Ÿ He nous avons remplacé les tziganes. Je n'y tiens plus. Et
 TER Cest pourquoi, à mon grand regret, j'ai dû envoye F MA
-FRE ; = qe Sr ts ARTS
-ALES PU démission au propriétaire. Br:
-LUS RM ES “ "2
-: 5
 SES ON Mes 5
-1 TRES rm ln 44% RER
-TAMITE LT 2 . 4 “ae
-. FA Eee, AU AR A ADR OR PA AS
 Dera CAUSES : LAS me L
 
-RE 2180 LAN OA EE SAONE ES A ON REP PR RE LCA
-Fe M mi, er ES É è — Eu
-LIRE a ee
-DNA 7e NS 5 SAN A # # Fes À
 j la vérité sur l'Agrach et l'Agrachien el
 à La police a arrêté, aux environs ; de £ &
 du Mont-Valérien, un étrange va- +
@@ -4638,20 +3475,16 @@ qu'une langue faussement dénommée agrach par les Ë
 . journalistes, les gendarmes et les autres ignorants. FA
 Grâce à notre service d'informations, nous sommes en je |
 mesure d'établir aujourd'hui, avec certitude, les points FRET CSS
-Suivants : ; SE
 Les vocables de cette langue n'étaient nullement ceux h sv
 qui ont été fixés; QE AN
 La personne soumise au patient examen d'un juge 7
 d'instruction, incontestablement plus homme du monde %
 que philologue, ne s'appelait pas le moins du monde je
-Rinaldo Agostini; )
 Enfin, sous ce faux état civil, inventé de toutes
 pièces par une police et une magistrature dénuées de 4
 scrupules, se déguise une illustre personnalité, dont on
 a voulu cacher le nom au public aveuglé. ; À
 
-À F0 &=
-Pierre Mille 5.208000 a F
 “ Nous intéresserions passionnément nos lecteurs si
 nous leur faisions savoir à quelles difficultés matérielles,
 à quels obstacles politiques nous nous sommes heurtés.
@@ -4681,9 +3514,7 @@ répondit que s'il pouvait prouver qu'il avait des dettes
 % qu'il avait perdu à la Bourse une quarantaine de mil
 RC lions qui n'étaient pas à lui, il fallait le relâcher immé-"
 sr diatement; mais que s'il se contentait de n'avoir pas le 4
-o 142 ;
 
-D
 lu L'ENFANT ET LA REINE MORTE $
 k sou, cet individu devait être considéré comme très A
 suspect et l'arrestation maintenue, F
@@ -4695,7 +3526,6 @@ demanda correctement à qui il avait l'honneur de s'a- ë à
 dresser. Ce fut à cet instant qu'on s'aperçut que le pri- #1
 sonnier parlait un langage étrange. k
 — Laurèsjimuche Lanjebi! s'écria-til. Livevo la « as
-Losialem! EE 4
 Ces paroles causèrent une certaine surprise au juge We
 d'instruction; mais il sut la dissimuler adroïtement sous =
 l'appareïl de la gravité judiciaire! ae
@@ -4705,24 +3535,17 @@ poli. Vous disiez ? AE
 vioque loualanteguche de la mouscaille lumainuche,
 continua l'inconnu avec une grande énergie. x NUS
 Et il ajouta :
-_ — Loufoc! (1) ER,
 — I a dit « loup phoque », réfléchit Le juge. Ce doit #
 être un Esquimau. 5
 Et se tournant vers son greffier, il lui dit : s
 _ — Nous trouverions peut-être un interprète, si par À
 bonheur nous avions une colonie dans le pays de ces A
-gens-là. S
 (x) Nous nous empressons d'avertir nos lecteurs que ce langage
 singulier n'est autre qu'un argot fantaisiste imité de celui des
 loucherbem, dont le regretté Marcel Schwob fit, il y a quelques ÿ
 années, une savante étude. Mais il est ici mélé de quelques mots
 empruntés à l'ancien argot de la Cour des Miracles. À ù
-à 143 }
 
-RS Re PARA Mel
-Re
-Rev: Pierre Mille FUN
-Er - FA 4 47:35, SERRES $
 L ‘ Le prisonnier fit un geste d'horreur et protests PR
 — Les laventurmuches colonialduco alteqbi et Iyni « 5 quemençudi rouvertuches, lournironfez une liversiondem
 
@@ -4730,7 +3553,6 @@ L ‘ Le prisonnier fit un geste d'horreur et protests PR
 L Jabomaicheux lationalèsmuche. Loufoc! (1) 2)
 pie — Décidément, fit le juge, je crois que c'ést de
 ne l'esquimau. Qui diable peut parler cette langue en
-Europe ? 1
 
 ; — Nansen, probablement, répondit le greffier. Mais
 il est impossible de le faire venir à Paris en ce mo-"
@@ -4745,7 +3567,6 @@ a « général » et de « patrie ». L'agitation de ses traits
 
 : $ prouva, de la façon la plus évidente, qu'il les comprenait fort bien. Ouvrant les bras d'un geste large, il
 
-; prononça : 2
 — Le poireau marianeux qui a lisputédudi aux
 
 lenémez de la léactionruche lamuche de la lulottecem
@@ -4775,7 +3596,6 @@ ts _ ENFANT ET LA REINE MORTE 4
 fureur qu'il s'écria : Eux
 — Le Boitard listilleduche lonsem soirne leninvdure di
 lontrecuche la lendeurdusple de la lévolutionrem locia- Fi 1
-lodusem. (1) = 4
 Telles furent les seules explications qu'on put obtenir A:
 de lui. La justice, après mûr examen, apprécia qu'elles ; L:
 n'étaient pas suffisantes. C'est alors, on s'en souvient, FEAR
@@ -4795,14 +3615,10 @@ affirment qu'elle est issue des nombreux enfants qu'au “à %
 rait eus le comte de Gobineau, à l'époque où il traversa ‘ ci
 ce massif montagneux pour se rendre en Perse. Mais 4
 d'autres Ini attribuent une origine beaucoup plus F.)
-ancienne. : à
 À la fin, le greffier dit timidement : De
 — Monsieur le juge d'instruction... si c'était du grec? F
 Personne ne le sait plus. d
 () « Le Temps distille son noir venin contre la splendeur de la L'
-révolution sociale. » : En
-; 145 reine morte. — 9 ; le
-) NN PT k. 4!
 
 RE Pia RARE PT PEN ER EE NUE A Er Le
 IN PS LS tot fous m'épouvantez ! He ige. Qui en eflet sait
@@ -4810,26 +3626,14 @@ ee _ legrecl SU LUS VON ANS de
 LA oi | — Le concierge de l'École normale, pe at-être, suggé r
 Mr le greffier. : | TN à
 ‘es On manda ce fonctionnaire. Il accourut. A la: ue di
-1 ASE AMEOTES $ . . . . . rb É We L
 Het 14 prisonnier, il fit un geste de surprise; mais se contenant
 DERÈE RE par un effort de volonté, il se pencha vers le juge d'inMP struction et lui dit à voix basse : - LEE
 Les ÿ _ — Pourquoi avez-vous arrêté M. Jaurès ? RL.
-RTS ‘ Menenaease proie se nese sense esesetee ee
 le a Il ne nous reste plus qu'à expliquer la cause de ce
 singulier événement : M. Jaurès avait imaginé de parler
-(RE RTE 7 AS
 Ru | une langue que personne ne comprend, pour pouvoir
-ATEN u 5 $ . + 5 0e AE
 RAR A s'expliquer enfin sur la question du patriotisme. |
-OUI = x Lie RARE
-k5es HE, AE PMR.
 
-FAUNE" PAT
-LAPS SSI Er à RE
-
-nl En 0 A % ? É ÿ ;
-+
-\ Apolog'ue
 | £
 Les choses que je vais dire se passent quelques ï
 années en avant. J'entends qu'elles ne sont pas encore ‘ ï
@@ -4855,10 +3659,7 @@ bond hardi les conceptions surannées du collectivisme 4
 occidental, les exilés d'hier, devenus à cette heure les
 conseillers écoutés du peuple, entreprirent la réalisation
 
-L'URSS |
-
 È ne PS ÉMRAREREL TES je
-: Pierre Mille HT RE NRC
 d'un large programme de communisme libertaire. Dans
 la mémoire des Slaves, cette étonnante et brusque flo-
 - raison de nouveautés prit un nom. Elle fut appelée « le
@@ -4872,7 +3673,6 @@ cats, miroirs démocratiques et démesurés des trusts de.
 pour administrer la religion et l'instruction publique.
 Enfin, l'armée et la marine elles-mêmes se reconsti-…
 tuèrent sous la forme d'une redoutable et curieuse”
-association autonome, intitulée « Syndicat industriel.
 des entreprises de destruction », qui se chargeaït, à
 prix débattu ou par abonnement, de toutes les guerres
 pouvant intéresser les autres syndicats. Quelques pacifiques tolstoïens s'en attristèrent, mais il leur fut marqué
@@ -4889,15 +3689,12 @@ destruction avait prévu qu'on aurait besoin de ses _
 de terre, subirait des assauts. :
 Il ne se trompait pas. On apprit bientôt qu'une
 puissance, demeurée monarchique, s'inquiétait déjà, et.
-148 S
 
 LE is Ge | L'ENFANT ET LA REINE MORTE .
 | peut-être à juste titre, de la formidable force d'expan- Cl
 | sion — et d'explosion — qu'allait posséder ce peuple de ‘
-cent trente millions d'habitants, organisé maintenant 15
 comme certaines sociétés d'insectes, avec ses travail- :
 leurs spécialisés et heureux, producteurs de nourriture,
-constructeurs d'engins, soldats peut-être intellectuelle- RS
 ment aveugles, comme ils le sont physiquement chez les à
 termites, mais intrépides; tous animés enfin de l'esprit
 de la ruche ou de la termitière ! On les entendait bour- fl
@@ -4907,7 +3704,6 @@ _ sont des Russes, comme leur nom l'indique, et qu'il Û Sd:
 fallait par conséquent aller joindre, pour faire entrer pa
 leurs œufs dans le nid commun et terminer l'œuvre Æ
 géante. Il était sage de tout prévoir : l'Allemagne mobi- e
-lisa deux corps d'armée. k,
 È En France — et voilà ce qui d'abord est l'essentiel : ee
 - chez nous — la lecture des journaux devint très intéres- ; 1
 sante, Après quoi il y eut, suivant l'usage, une grande à
@@ -4923,10 +3719,7 @@ crier : « À bas l'alliance ! A bas la Russie! » Elles se ;
 plaignaient que les chefs du mouvement en Russie Et
 eussent, non pas emprisonné — ils avaient supprimé la à
 prison — mais « mis hors d'état de nuire dans une en- L
-338 149 L:
 
-} f - : #7 +de 1 À
-Pierre Mille ge
 ceinte fortifiée », un assez bon homme, bien que d'idées
 un peu arrêtées, M. Pobiedonostzef, ancien président du
 Saint-Synode. Par des listes couvertes de signatures,
@@ -4944,7 +3737,6 @@ aidé, mais soulevé par le flamboiement des yeux fixés
 sur lui. Enfin, son sujet était dramatique. Il permettait
 les gestes, il engendrait les images. Celles-ci, à l'appel
 du rythme pour ainsi dire préétabli de ses périodes,
-venaient s'assembler en troupes ordonnées, en théories
 graves, en processions religieuses. IL fut antiquerment
 beau. On croyait entendre, derrière lui, vibrer l'accent
 des flûtes et des lyres, comme aux tribunes rostrales de
@@ -4958,18 +3750,13 @@ tive du monde assurée par une dernière attitude, par
 un dernier effort peut-être, de la France de Kléber et de
 Hoche contre les successeurs actuels des meurtriers de
 Marceau. Et ce peuple, ce peuple qu'un vieil adversaire …
-150 {
 |
-i
-1 {
 
-Li L'ENFANT ET LA REINE MORTE
 _ de la France héroïque se préparait à écraser, le lien }
 . sacré d'un serment solennel l'unissait à nous! Il somma
 
 le ministre des affaires étrangères de dire comment g
 il comptait exercer la « pratique active » de l'alliance :
-russe. É
 Une indicible émotion secouait la Chambre. L'extrême
 gauche applaudissait à la fois son leader et ses frères ,
 d'Orient. Les nationalistes chantaient un hymne écla- EN
@@ -4984,7 +3771,6 @@ vingt-sept ans et neuf jours pour les congréganistes, ‘à
 n'ayant pas, à ce jour, été votée par le Sénat, nous 4
 | avions encore une armée. Ÿ
 ; D'ailleurs — hâtons-nous d'anticiper sur les événements — cette simple manifestation suffit. Aucune ; 1
-guerre n'éclata. 4
 M. Jaurès, de retour à son banc, avait été l'objet 4
 d'une ovation. Cependant quelqu'un lui fit remarquer ‘ Fi
 doucement que si, en janvier 1905, il était parvenu "
@@ -4994,16 +3780,12 @@ jourd'hui l'occasion d'un si beau et si heureux succès. fi
 . alors que de donner des difficultés à un ministère que
 nous n'approuvions point!
 
-3 ON RES MANS PUR RE CORNE ER EE 2 FÉES *
 Vpn PNR CR RC VS DMC Ve PNR A RU LES RUE Ph ECS FER Pué LA EEE TETE
 MR rA re her a De) Le! LE
-TRE | DÉS nA
 2-0
 Lequel des deux ?.. cu
-- M. Paul Déroulède a été rappelé:
 d'exil et l'arrêté d'expulsion pris
 HEAR contre le prince Kropotkine a été
-: rapporté. Der + 4
 5 à les journaux, novembre 1905 |
 5 C'est samedi dernier, et non pas dimanche, on s'en.
 5 souvient, que selon les premiers arrangements pris
@@ -5022,12 +3804,8 @@ VER, Il rêvait au grand homme que pour la première fois il
 Re allait voir. SR
 HER — Sans doute, songeait-il, M. Déroulède va me serrer
 FA la main, et ce doit être un grand honneur pour moi:
-TP 74 Lee . . # s s e < SR +
 NP Puis il me donnera une médaille à son effigie, comme il ;
-RÉARTUES Ce:
-: 7 £ Loch
 ce € g FARARTES
-5 ALT EIEE NE à À
 
 Lee L'ENFANT ET LA REINE MORTE SE
 se a déjà fait pour ses admirateurs de Belfort, en disant : « #
@@ -5060,20 +3838,11 @@ contraire quelque désillusion en voyant qu'un très petit | Re
 groupe de personnes seulement attendaient l'illustre 1h
 voyageur. « C'est encore un coup de la police, se dit-il. je
 On a voulu réduire à moins que rien la majesté de cette de
-démonstration. » UE :
 Le train s'arrêta, La direction des regards, chez les ni
 agents et la petite délégation qui attendait sur le quai, hi
-HA
-
-à 193 reine morte. — 9. F4
-
-Pierre Mille 5 FLNFE
-
-:
 
 lui désignèrent le personnage qu'il était venu saluer :
 sans pompe il descendait d'un wagon de troisième M
-classe. n
 C'était un homme pas bien grand, chauve, avec une F4
 longue barbe qui avait dû être blonde, et des yeux
 clairs, d'une sincérité tranquille. “+.
@@ -5108,8 +3877,6 @@ que l'Angleterre. Et on ne prendrait pas un fusil, et *
 on ne se ferait pas tuer pour ce pays-là, on n'essayerait |
 pas de réagir contre un autre : celui qui depuis trente |
 
-154 î \
-
 Lis L'ENFANT ET LA REINE MORTE
 ans nous a valu, et à valu à l'Europe d'être où nous en |
 _ sommes et où elle en est! (1) : |
@@ -5143,30 +3910,21 @@ chouans et de vos chauffeurs. Et quand le peuple a
 (à) Ces paroles sont empruntées à une lettre que M. Kropotkine
 _ écrivit au Temps. (
 
-RS Re
-RM A AN EEE RS a Mer Ar SR SR See RE 1
 _ triomphé, on les retrouve, essayant de fuir, déguis ésen |
 ue _ femmes, et cachant sur leur peau sale les bijoux qu'ils À]
 us Ce dernier fait, protesta M. Léger, malgré son.
-WE 2 VERS KA AU 7-7" 13, NU TMENRNRRES
 ï ÉVAArEL respect mêlé à cette heure d'un peu d'épouvante, me
 parait inventé. Je mai jamais entendu dire qu'un tel
 & TAN scandale ait eu lieu, ni à Brest, ni à Toulon. 10%
-nd PR : $ E
 Ve — Qui vous parle de Brest ou de Toulon, fit le voyaete geur d'un air impatient. Cela s'est passé il y a deux,
 jours, dans une de nos villes de Russie, j'en suis sûr.
 nie — En Russie ! cria stupéfait M. Léger. Mais vous.
 eee n'êtes donc pas M. Paul Déroulède ? à : #4
 FORME — Moi? dit-il. Je ne connais pas la personne dont”
-Ps Er Fe . u ER
 vous parlez, même de nom. Je n'appelle Pierre Kropot-
 “ HER kine. Et je suis un homme très doux. 5100
 Poe s H La
-"Ne #
-M UE De NES
 
-EE
-A
 l'École du Plein-Air 4
 .… « Avant de se séparer, le Parlement a voté, sur la FRE, 5 .
 proposition de M. Dujardin-Beaumetz, sous-secrétaire Six
@@ -5191,11 +3949,6 @@ pour aménager le domaine de nos connaissances, et Bi
 même élargir le terrain de la discussion. Toutes dé- SE
 penses dont le besoin se faisait sentir. » !
 | Quoi qu'il en soit, nous pouvons dès maintenant aflir- :
-M : 157 :
-LES me G .!
-Mr. - | Û
-
-à Pierre Mille PRE à
 
 : mer que toutes les mesures ont été prises pour que
 l'École du Plein-Air soit véritablement digne de son
@@ -5232,8 +3985,6 @@ Hätons-nous pourtant de l'ajouter : un vaste terrain
 sera contigu à ce monument. Ce sera un terrain vague,
 aux aspects artificiellement incultes, sauf pour un hectare qui sera soigneusement et régulièrement labouré,
 de façon que deux figurants y puissent en toute saison
-
-L'ENFANT ET LA REINE MORTE
 
 représenter au naturel l''Angelus de Millet, lequel devra
 
@@ -5275,9 +4026,6 @@ Notons également — comment pourrions-nous l'oublier !
 — une réduction élégante et précise du lac de Nemi à
 qu'illustrèrent déjà les brosses de l'immortel Corot.
 
-À 159 É
-
-Pierre Mille E a
 3 Des négociations viennent d'être engagées à ce sujet :
 par notre diplomatie avec le gouvernement italien. à
 Tout porte à espérer qu'elles réussiront, nos rapports "
@@ -5309,10 +4057,8 @@ fera pleuvoir, un endroit où il fera beau, un endroit où
 ça sera le matin, un endroit ou ça sera le soir, divers 4
 ° : nuages, brumes, brouillards et bruines, une tempête, il
 deux petites brises, un coup de vent. L'école du Plein- #}
-160 nl
 |!
 
-U_ L'ENFANT ET LA REINE MORTE | : ‘is
 Air ayant été déclarée personne civile et d'utilité publi- 5 #1
 . que, on peut espérer que les dons et legs de personnes ‘8
 généreuses lui permettront d'acquérir ce qui lui manque 44
@@ -5343,17 +4089,9 @@ pêtres seront chargés de les arrêter et de les conduire SN ANS
 au violon s'ils sont jamais rencontrés, dans un champ #1
 ou au coin d'un bois, se livrant à leur coupable industrie. de. “
 
-l
-
-fl
-
-‘ : .
-
-. * 7410
 le nouveau livre de la Jungle -0
 M. l'abbé Delarue, desservant de 3
 la petite paroisse de Chatenay,
-, près d'Étampes, a disparu depuis
 quinze jours. On pense qu'il à été
 assassiné, mais le cadavre reste à
 introuvable. Le Matin a lancé 2
@@ -5362,8 +4100,6 @@ tenay et Étampes, un dompteur S.
 qui tient une hyène en laisse. On
 compte sur le flair de cet animal « pour retrouver le cadavre. 7
 les journaux, 1906 &.
-à "4
-ire . A D |
 Durant celte période de vacances, les services étant
 complètement désorganisés dans les journaux, il n'est
 resté que moi pour diriger le bureau des informations M
@@ -5384,7 +4120,6 @@ ni nuit, et de tenir un registre exact et complet de ses j #
 
 exploits. Je vais maintenant publier heure par heure les > Li
 dépêches de cet envoyé spécial : PCR
-20 août, 9 h. 10 du soir. ‘48
 « L'hyène ne travaille que la nuit. Elle vient de |
 partir, entourée d'un immense concours de peuple. En %
 laisse elle conduit un dompteur. » ‘4
@@ -5397,7 +4132,6 @@ dompteur est resté en bas, donnant pour raison qu'il &
 est dompteur et non pas acrobate. L'hyène refusant 5 !
 de descendre, on a télégraphié à Étampes et à Brétigny .
 pour que les pompiers viennent la chercher. » #
-10 h. 12. “#
 « Pendant que j'attendais, en gare d'Étampes, les à « l
 pompiers qui doivent prendre un train spécial, j'ai vu } {
 débarquer quarante chacals, envoyés en hâte par le - 3
@@ -5407,38 +4141,18 @@ affirme, avec quelque vraisemblance, que ces animaux, À
 habitués à fouiller perpétuellement les sables du désert,
 ont beaucoup plus de chance de réussir qu'une hyène
 tachetée, mais unique. Les quarante chacals ont été Re
-163 RE
-AT
 | 004; HIS
 
-{
-Fi
 fi > rnaux, il n'est
 Ét les informations
 Fi sauriez douter un F
 F déjà donné tant de
-Î r
 L guliers
-, sd
 
 #4
 
-. ?”
-A 4 » »-
-Pr {
-" :
-
-{ fr
-5 À
-: æ
-s ÿ 4
-L
-Î
-Î
 il
-L'ENFANT F
 cher aux pas de l'h A
-d'engager comm H
 ni nuit, et de tenir v |
 exploits. Je vais main
 dépêches de cet envc Î
@@ -5455,31 +4169,21 @@ dedescendre, on a télég Brétigny É
 pourqueles pompiers vie |
 ds C4 | * mue j'attendais, en :ai l'Étampes, les à
 PPT. Mirain spécial, j'ai vu
-bâte pari
-= ver
-22 Notre
-eu stantine
-22 uervces animaux,
 r € du désert,
 ir qu'une hyène
 fr te chacals ont été
-aa 4
-es
 
 +. Pierre Mille REA ON TAES
 immédiatement làchés dans la campagne et paraissent ra
 pleins d'ardeur. Ils ont déjà failli mettre en pièces le x.
 professeur Dêvah, qui était en train de manger de la
 terre, suivant son habitude invétérée, dans les environs
-d'Angerville. “4 |
 L « On annonce aussi l'arrivée de trois condors, Cxpé-
 ; diés sur les lieux par notre confrère le Moniteur dem
 Tezcupetelpec (Colombie). Ces animaux, planant à
 . plusieurs milliers de mètres au-dessus de la surface du
 sol, ne manqueront pas de se laisser tomber à terre
 comme une masse de plomb, s'ils aperçoivent quelque
-4 chose d'anormal. » 4
-21 août, 2 h. 57 du matin. # :
 « J'étais allé me coucher, accablé de fatigue. On vient"
 de me réveiller pour m'annoncer une grande nouvelle.
 I est certain, me dit-on, que l'hyène a trouvé une piste.
@@ -5487,8 +4191,6 @@ Elle manifeste une grande ardeur, fait des détours …
 singuliers et significatifs, et refuse de prendre toute
 autre route que celle sur laquelle l'attire son instinct.
 Malgré cette heure de la nuit, l'émotion populaire est
-énorme. » ;
-3h. 025: 0
 : « Cette émotion vient encore d'être accrue par l'arrivée. à |
 d'un étrange et majestueux personnage. Cest un nègre |
 de haute taille dont la figure disparaît entièrement sous
@@ -5499,15 +4201,11 @@ antilope bleue. C'est l'ancien sorcier, le gang'a préféré. À
 de Behanzin, que nous envoie gracieusement ce roi en |
 exil. Il est guidé dans ses recherches par le grand
 
-al
-1 PRE
-
 Lens L'ENFANT ET LA REINE MORTE £ 4
 _ serpent sacré d'Abomey, magnifique boa qu'il tient par
 . la queue. Tous les quarts d'heure il s'arrête pour danser RER
 la danse du vaudou. Nous prenons tous des notes, et on ES
 le photographie au magnésium. » ; “à
-4 h. 10. , “4
 « Nous avons tous cru un instant à la solution du %
 mystère. L'hyène, dans sa course rapide, prenait des ie.
 allures de plus en plus décidées. Il devenait évident >. M
@@ -5523,7 +4221,6 @@ une de ses bottes à l'animal, celui-ci s'en est emparé, et : ces
 sans insister davantage, est rentré dans la cour de o
 l'hôtel du Grand-Monarque, où il s'est mis à se repaître |
 tranquillement de son butin. » à
-s 10 h. 30. nu
 « Seconde alerte : un des condors, après avoir tracé ; 1e
 de larges cercles dans les hautes régions de l'atmo- ee
 sphère, a foncé subitement vers un objet que nous ne : sr)
@@ -5534,16 +4231,12 @@ Nous ne pûmes alors que constater une méprise regret- DOME :
 table ; le condor venait d'enlever le chien du sous-préfet.
 « On annonce l'arrivée de madame de Thèbes, de
  vingt-sept fakirs hindous, de quarante-troïis hodjas :
-£ 165 7
-‘ATP IEEE r
 
-Pierre Mille: "V@ USER
 | turcs, de la confrérie des Aïssaouas, au grand complet, e.
 d'un mage esquimau, et de Papus. ; 2 ne.
 « Le boa du sorcier dahoméen a déjà découvert une
 foule de choses : dix-neuf poules, plusieurs dindons,
 oies et canards, quelques lapins. Il gonfle à vue d'œil. »
-pe
 | LR SP 3
 « Horrible malheur : le professeur Pickmann a été
 entièrement dévoré par l'hyène. » 3
@@ -5569,10 +4262,7 @@ rapport reçu par le ministre de l'intérieur et dont voici
 : les termes : 723
 « L'accumulation des mages noirs et de toutes les *
 |
-s |
 
-D NC ee ge pan
-L L'ENFANT ET LA REINE MORTE Fe l
 couleurs, ainsi que de tous les sexes, et d'animaux à
 féroces lâchés en liberté sur une superficie assez large À
 * du territoire français, constitue un danger publie. Ces : "4
@@ -5581,22 +4271,12 @@ mages se livrent, dans les bourgs et dans les campagnes, à À
 batailles rangées. Enfin, il nous paraît presque inutile, RAS
 monsieur le ministre, de porter à votre considération SE
 qu'on ne saurait, sans inconvénient pour la dignité de RS:
-:
 la magistrature, et en particulier pour celle des juges s
 d'instruction, charger du soin des enquêtes judiciaires “
-i
 des animaux plus ou moins sauvages, non assermentés, É a
 et qui n'ont aucune teinture appréciable de droit cri- 2e #3 ‘
-minel. » De |
-à hA
-L'EAU À
 
-» : 5 STESÉ CRURT OS SCANS RTE ‘
-F FANS AMPLI RSS INR
-ES tee
-e t RC rx
 l'Empereur FES
-- > 1
 M. Jacques Lebaudy vient de se
 ‘ proclamer empereur du Sahara.
 les journaux, août 1905 - 4
@@ -5621,9 +4301,7 @@ informer du cérémonial que doivent observer à l'avenir
 les garçons de bureau qui viendront lui demander sa m
 copie, et ceux de ses confrères qui voudront lui sou- -
 mettre humblement une observation. de
-168 |
 
-RÉ L'ENFANT ET LA REINE MORTE
 | Dès ce matin, à la première heure, nous nous sommes : 1 il
 | rendu chez lui. Hâtons-nous de le dire, il nous a reçu Ta
 avec la dignité la plus affable. Il y avait de la race FAR à
@@ -5656,11 +4334,7 @@ pas de lui? Tandis que cette population n'a jamais rien à
 fait contre moi. On me reproche d'avoir constitué mon ‘à
 empire avant que celui-ci ait été reconnu par les grandes l
 puissances. Ce n'est pas sérieux! Voyez le prince de : 4
-RNA
-169 reine morte, — 10 f
-à |
 
-Pierre Mille
 | Bulgarie. Il a régné je ne sais combien d'années, avant :
 d'être reconnu par les puissances. Est-ce que ça lui a
 
@@ -5697,11 +4371,7 @@ ARTICLE 2. — Peuples, respectez la propriété individuelle! Que la propriét�
 
 à comme elle l'est à votre Empereur. Votre Empereur se
 réserve seulement le droit exclusif de fabriquer le
-170 Re
 
-4!
-
-_ L'ENFANT ET LA REINE MORTE LEE
 tabac, les allumettes, et par analogie directe, tout |
 ce qui brûle, c'est-à-dire le pétrole, l'alcool, les bou- |
 _gies, le charbon de bois et le charbon de terre, qu'il 4
@@ -5724,7 +4394,6 @@ Les officiers sont supprimés. RER
 L'uniforme est supprimé. 5
 En temps de guerre, à l'arrivée de l'ennemi, les troupes 4
 exécuteront la consigne en cas d'alerte, qui est de s'es- | À
-quiver rapidement. |
 ARTICLE 4. — La liberté de la presse est absolue. k 63
 Mais le gouvernement se réserve le droit de subven- 0 {
 tionner, sur ses fonds secrets, une presse d'opposition, Re
@@ -5733,31 +4402,14 @@ tellement idiots qu'il pourra perpétrer ensuite toutes les.
 Msottises qu'il voudra, sans que personne s'en aperçoive
 dou du moins s'en indigne.
 ARTICLE 5. — Il sera procédé, au suffrage universel, !
-171 EE
 
-=
-Î
-op |
-AE:
 |
 |
 |
-Î
-Î
-I Û |
-per 1 Ê Hi: j
 | est ile 1 Î
-autre LH |
-nl s s. I !
-s'ap RE
-s B
-Pad f ; 1 4
 ses il à d A d'être HE
-nor purs, } 1 t
 |
-LV
 
-PCM 2" & Pau » £ Pen 4
 Pe à l'élection d'une Chambre des. d épu tés et d in Sénat.
 RANTEE MAT EN) ; sp Se, NT TERRE e A DT EUR LIN O US de TRE :
 se L'objet principal du régime parlementaire étant de faire
@@ -5769,28 +4421,16 @@ ie _ AnTicce 6.— Tous les citoyens du Touât devront êlre
 fonctionnaires, afin que le gouvernement puisse être
 VA DETTES A 2 Vs g le L DT ER
 RE : assuré de leur fidélité au régime. SF
-Ar : 100
 FRE MAS ARTICLE 7. — La capitale de notre Empire portera le
 PRET nom sacré de Néphélococcygie. Les séances d'été de la
 | ne ei Cour de La Haye auront lieu dans ses murs.
 so ARTICLE 8. — La guerre est déclarée par nous, empeTASER AE 25 DRE
 _  reur du Touût, à Jacques Lebaudy, empereur du Sahara. L
 . Sept hommes seront mobilisés. F2
-RS Re AN *, TÉR
-Ce “a , TES
 Fait en notre Palais-Palace-Konak-Sérai de Néphélo- |
-PASS coccygie. 154 = SC
 PT A Le 20 Dante 119 du calendrier positiviste. Late
 |
-MARNE: . STE
-NL RTS à ps FAR
-MR TT Sp 2:
-RES DO . |!
-$ LES LATE :
-Ame | |
-1 RE 0 LA ne De
 
-hote A)
 | HR
 } Nous allons les rendre fous ROME
 x : Le roi Sisowath, successeur de RÈRE |
@@ -5815,10 +4455,6 @@ _ sur les genoux et les coudes, les mains jointes à hauteur …
 | du front, et frappant de ce front la terre, trois fois au 24
 début de l'audience, et trois fois à la fin. Mais c'étaitun 5 |
 très pauvre homme. ARE TRES
-Fo >. RS
-Ar 173 reine morte. — 10. È à in :
-
-Pierre Mille
 
 Les mantri, qui sont les ministres, les amrat, qui sont
 
@@ -5834,8 +4470,6 @@ te feront boire un mélange d'opium et de vinaigre, à la
 mode chinoise, el tu mourras dans les coliques. Avec |
 les Français, il y a un peu plus d'espoir; car ils ne
 savent jamais ce qu'ils font, feront, et même ont .
-
-fait. »
 
 Voilà comment le Cambodge fut placé sous le protectorat de la République française. De son royaume, le
 roi Norodôm conserva un éléphant blanc, un palais,
@@ -5855,9 +4489,6 @@ son voyage.
 
 La traversée dura près d'un mois. Le navire passa |
 
-\
-
-+ © L'ENFANT ET LA REINE MORTE | PROPEUS
 non loin de trois rochers, qui sont le Taureau, la Vache
 et le Veau, et indiquent aux navigateurs la route qu'il * #2
 faut suivre aux abords de la Corse. Peu après, on vit fi
@@ -5865,7 +4496,6 @@ Marseille. Le cœur de Sisowath devint douloureux !
 dans sa poitrine. 4
 On lui avait donné, pour l'accompagner, un blanc :.
 qui savait. Il alla trouver le blanc-qui-savait, et lui
-dit :
 _ — Je soupçonne qu'il y a, en France, un peu plus de :
 Français qu'au Cambodge, et déjà au Cambodge, ma F
 Situation était diflicile. Mes sujets, vous ne l'ignorez Ë |
@@ -5878,7 +4508,6 @@ ter de ne l'avoir pas vu. Mais quand je serai en France, Ë # !
 où je suppose qu'il y a beaucoup plus de ferblantiers, $ 5
 pourrai-je continuer à les ignorer ? 4
 — Sire, répondit le blanc-qui-savait, cela s'arran- E:
-jgera. 54
 | — D'ailleurs, je vous avoue, continua le roi Sisowath, Ton
 {que c'est là le moindre de mes soucis. Tout va bien, ï,
 | ourvu que je vive. Mais j'ai justement là-dessus quel- 6}
@@ -5890,27 +4519,16 @@ Jaquelle on m'attachera sera-t-elle bien lourde? ‘ :
 Portée de cette question. En quoi il altérait la vérité. ‘
 | — Quand mon prédécesseur le roi Norodôm, continua î
 a Majesté, avait ses nerfs, un résident supérieur du |
-175 : 4
-*e
-Fa-
 
-PA RE ANT E ASS A ME RO T po NRC PRET
-
-a 4 VE PRO LE PEN ENT ENS ANT PET CAES TS NAT D
-
-2 TER RO DR
-Pierre Mille es FOIS Ë
 Cambodge, il »y a pas bien longtemps; avait coutume
 pour le calmer de Jui faire mettre aux pieds, aux mains à
 et jusqu'au milieu du Corps; des fers très pesants que
 des anneaux d'acier unissaient étroitement à lune
 des colonnes du sacré. palais. Promettez-moi qu'on
 me décrochera au moins pendant la nuit : j'aime de
-dormir.
 
 Le blanc-qui-savail lui jura quon n€ 'attacherai ]
 qu'avec des chaînes de fleurs. Sisowath demeura scep=.
-tique. :
 
 __ Pouvez-vous Me dire, interrogea-t-il, par qui je
 serai reçu à mon débarquement ? |
@@ -5918,14 +4536,10 @@ serai reçu à mon débarquement ? |
 par un délégué du. ministre des colonies, je sup-|
 pose; mais principalement par le préfet. )
 — Et qu'est-ce qu'un préfet ? demanda le pauvre
-roi. À
 — Par leurs fonctions administratives, les appointe:
 ments qu'ils reçoivent, la retraite qui les attend, les
 préfets peuvent étre assimilés à des résidents supé-
-rieurs.
 _- En verrai-je beaucoup ? demanda Sisowath ave!
-inquiétude.
-_— Plusieurs. :
 
 é __ En ce cas, il s'en trouvera certainement un pou
 me charger de fers. Sur quatre résidents supérieurs;
@@ -5936,18 +4550,14 @@ Le navire franchit Pomègue et Ratonneau, et bient
 | fut dans le port. Le roi Sisowath, assez inquiet, dé
 cendit les premières marches de échelle qui le dev
 + conduire du pont Sur le quai. Ce quai était noir
-176 #.
 
-ESS L'ENFANT ET LA REINE MORTE + 1
 | monde. Dix mille personnes, le chapeau à la main, | }
 _  saluaïent, saluaient, saluaient. Et l'envoyé du ministre h
 ! saluait. Et le préfet saluait. Et les pavillons saluaient. RS
 _ C'était la salutation universelle, So FEV il
 — À qui donc adresse-t-on ces hommages ? demanda * 2
-Sisowath. en: |
 
 — À vous, sire! répondit un conseiller municipal > 3 14
-socialiste. fi
 Tout le peuple clamait : « Vive le roil » Salt We" mt
 
 -_ Majesté Sisowath ne parle que le français des colonies. si f
@@ -5977,10 +4587,6 @@ principale fonction, là-bas, en vertu du principe de la : Ent
 
 _ responsabilité collective, est de faire les mois de prison PA fi
 
-n ! ERA 1 A
-
-Pierre Mille mr
-
 + encourus par leurs administrés; mais ils ont pour se
 consoler une ceinture rouge, à glands d'or. Et l'un d'eux,
 se tournant vers un Français des colonies, lui dit avec
@@ -5998,9 +4604,7 @@ très-i-gno-rants ! ;
 Mais le roi Sisowath prenait goût aux honneurs.
 
 < Et il ne comprit pas la sagesse du disciple de
-Confucius. |
 î Quelques mois plus tard, le résident supérieur du
-Cambodge écrivait au gouverneur général d'IndoChine : |
 | « Monsieur le gouverneur général,
 
 « J'ai l'honneur de porter à votre connaissance que |
@@ -6015,66 +4619,31 @@ d'égal à égal, — il est certain que je méconnais mes {
 ordres; car je persiste à l'empêcher de percevoir luimême, et de garder pour ses besoins personnels, le
 montant des impôts; de vendre celles de ses femmes
 qui ont cessé de lui plaire, et de rendre la justice à sa
-façon.
 
 « Je dois de plus vous signaler, monsieur le gouver- |
 neur général, que les indigènes revenus de l'Exposition
 ; de Marseille sont ici une cause de trouble et de démo- |
 |
 
-L'ENFANT ET LA REINE MORTE ‘HS
 ralisation. Ils racontent sur les dames européennes, À
-LE re = : ES
 a dont ils n'ont pas vu des échantillons avantageux, des .
-rs EE : . a ii
 histoires qui sont de nature à compromettre le bon NA
 _ renom de la race supérieure, et affirment de plus NÉE
 qu'aucun Français n'obéissant jamais à aucun chef, FRS
-. . Ë SPL
 les Cambodgiens auraient bien tort de ne pas les ARS
-imiter. FU
 « Je ne saurais donc trop insister, monsieur le gou- LECS
 _verneur général, sur les inconvénients qu'il y aurait à
 _ laisser à l'avenir les sujets de notre protectorat venir en FES
 _ France : c'est la mort du prestige. » Le
-Ë 4 AT AA7T
 af Ta
-250 3 HAE VE
-ALES a DEL
 
 UTC ANT LPS PT ON ANT PE) Ce rte,
 
-RP AA EX A EAREES POSTS RAS At) er
-
-gi A A arme LENS Sue AN RE AR EE Ar) 7258
-
-SRE NAS ARTE PE. LS DANCE RSS, HR LT MS EG PR ns à
-
-FRE CR nee PMR FR RO NN EAN TE eee sh VS
-
 ENT Etre Re LE te KAREY PAT T Re ne RAS
-
-DNA EN Eee RS nee à We RER rt CS PE PART ER RE ;
-
-NS NS ER SE ge ACL PSN er PÉENAIR si
-
-À 1 Rae PA LUE Se TEE RUE SE He A PA LP NES 7e Een
 
 ; A ET MES ee HP Re FPT SOA SNESERRE
 
-RS da RAR Dr MAN nr PSN RER FPE
-
-fl TA LEE NE “ : NAT. ET QE PER Et
-
-SNS AU ONU : LINE SRE
-
-RO PA TEE NS ES es , \ = FEU 25 PTS PET
-
-NS PET 220 k , x < A LASER Y RARE
-
 rune RENE 4 VEN Eee / CEE", 27 VIE
-
-PME CN HUE : A % CRE RAT. Re
 
 Fri PDA TER =AA re PE AS Ed TRES LES DS SE SRNSS
 
@@ -6084,87 +4653,46 @@ USA Paz EN EMA LR DANS FA DES CEE eee
 
 PAUTE LAN RU FA tr re At EAN SON EQUS ER
 
-APR ER STORE CPR ONE SRE
-
-REA: AI 2e A PAPE PAT
-
 Ha Ne ere ne SAS PL PA US NÉE
 ESPN ENer Et ei HAN Fa SEE Lo nr Ar LE RCI EEE ES
 PNR PE PAS IE Sr AS EE OR SR ee MES 2 RUE Les Fi RAY FR
-DUR TRE FORT 5 ARS MARNE A AUE M TMIR SRE #+ RM ES Se
 Pare ee ou 0 ET Le Aline à Re
-a en pu
 nr PR A ce LTD ESINRES CS
 Fsae RSR A ERA ARE à Hate dt Ne
-LAIPOREENTEEN Vars * = EE AT MAIL LOVE TENRE EE PAT PER AE
-n'MÉCRPUDE ETS ae { vd x A PET É FE Has: AE
-FAR ENS RE NUE TRE AR #1 ISERE eee Pi
 LLC ÉPEU ROCE AN LC f Hs Mere 6 SANS NE: 1: STD es
 PSN ss , s L {ie SNES à Fes 72 Su Nb RE
-REED EE 5 dir Es = SEE Te : D AE FRA HAE ME
 ne MTS | arr MO TRS Ù RAP ares De Leo Xe RNENAAEES At
-à FREE ANS OS ET DRPROUES NET ON ANIEE es ES RAI RS
 ct ne TUEUR NE RENE RAR A AP ARETE qu RDS 7 NES
-SAONE M DEN R de MENT PONT) PR PRAERE RAR HAUTS
-Piéct ATOT HR T TANT RACLETTE RAI) UE | 3 LRU ANENEENR
-PAR ae 4 141 PA EU ANS * ee a $
 NIET MARS RON PEU rs RL PIPEA TE) E'eNY Ma res) Na
-Me A, SA TNT CARS RUN Hu NEUTRE (AN ASE
 LR REUTERS ÿ she HrNbe AN UE he: ti AR VU TARN
-ÉLABORE EN FAR Ce RCA RE MARRANT s
-TN 7 ne
 
 Ce ee ee FRET
 
 LES BANANE Ra rt PE CU PME PROD NS Pre TL RAR LA
 
-AL D Ar AE TA AR ERA ENTER
-
-Pie PL To AUN MU ANS DT HA APE ANS SE CCM A Are PL
-
-AOOE, PE REP) Re pes ; : \ 2 DRE Re HT
-
 ln SR REY Et INET Mae 4 + AE 4 PETER 52 2 MA a
-
-JA CR \ 4 de PR
-
-D STE pi pa ‘ TRUE = 9 SRE UE
-AE nie) MAN e PS Lu S'ORES Es
-
-PAC ANS S RE PL 1 te : { re RE
 
 2) DE PRE AUX s a uhe MATE PREURE DER
 NUE ATP ESIY Re ce NX Ê ; CRUE. ere r
 Re CA CR ET A en
-LE HO RAS BEL NESEeS 0e : PR SN NS LES
-Se CR TUE RER TETE À DAT. ras one A à Jo 25: Fr Au « i
-Me 2 RÉCTAN PES X HORS ho k nf RER Aie I PS TRS 72 SRE
-
-a A ER SÉAMENE SU En TRIER
 
 | FAR Fe PAS NAME RM PA
-21 ASS MS RAR ; EF DRE LT SONO ASE ST.
 ARS | AO RENNES AE É MOT TOME L er
-D it | 5 M ARE
 
 _ On nous demande souvent de quoi se compose
 officiellement une collection complète des
-cahiers. . <
 
 À 2 date du premier octobre 1908, une
 Collection complète des cahiers se compose
 officiellement de :
 
 A. — une collection complète de nos éditions -
-antérieures ;
 
 B. — une collection complète de nos neuf
-premières séries ;
 
 C. — un abonnement à 1a dixième série ;
 
 D. — une inscription pour un exemplaire du k
-Polyeucte.
 
 Ces quatre éléments sont également indisbensables et nulle collection ne peut, dans le
 Sommerce de la librairie, être tenue pour !
@@ -6172,10 +4700,8 @@ zomplète si elle manque, en tout ou en partie,
 le l'un quelconque de ces quatre éléments.
 
 À. — nos éditions antérieures sont énumérées
-‘i-après ;
 
 B. — nos neuf premières séries sont énumérées
-'i-aprés ;
 
 C. — les conditions de l'abonnement à la
 ixième série, qui commence avec le présent
@@ -6189,38 +4715,18 @@ Vte de ce cahier.
 AL, MA INRA DD A ER EAN à eg
 | SAT NENR ARS PLAN pr h fast So Fra CRAN ST DNS Te. S g
 | ST PM NN Ge ae AR AUTO Le AU ME Ne TN PAR ERS |
-Rats ie 5 SAS: Pense FRA FRE ais PAPA ER
 Hire NCA LRU PR SA EU a
 dre ds US + D M Are TT NL NN El EST ER ARS
 AT Fes LENS Pare DA LA PS LE PRUEE RE LE Mt: <:
-ARGIN FA RSC HPCMIEE $ PEU en va HTEPOASE 3
-PE 15e FR ENSR U Ua D CR TRC AEHOESRENEES
-NES TENTE te : i Lust : TETE NER
-
-Ha LCR LyE 3 DEXIMRE k TETE
-APE APR TRES LE : te Te PR |
-LL 10 PHONE ; s i 15 DEN
-
-nus 55e É A à, $ ? m5 PRO TER PA
 
 ND re ne TA ES À : : PR 0 Sa Fe
 neue SAN EUR REN ; AVR ET ERP ele LINE PV 4
-RAA Li = Me RTS AC Re HT TIROIRS
-DRE à. ak $ VAL NEVER |
 de. PU re Te ; DES £ ge: 1 TBE ES PAS ,
 | AD RAT ONE PR AN Sen Fe: > F ns : ï Re 28
-SAUT AIRE RE f E Ÿ 2e à RUE RSR F RER MR
 HA, Tes VASTE "1 Ye re \ x RAA ST LS 1e)
-D: AR VE RATER Re er A à 7
 Ne RU Te 2 ee) PR SH ré
-70 à LT. CRAN ù Le re Re Re:
-A SE RES 12 IPS ANR ARE REA Er LIT LITRES
-AURA ETS RSR ii D
 
 Fe PE A Ne UN An De Ent) CUP ne LÉ
-
-Dh 0 ea RENTEQR Sp SVT UE ESSOR |
-CR LE OUAIS TER A RAC Ta $ |
 
 - Sous Le nom d'éditions antérieures, ou, plus complète-
 
@@ -6244,8 +4750,6 @@ des cahiers antérieurs.
 Dans les neuf volumes et brochure de nos cahiers ‘
 antérieurs, nos cahiers ont publié :
 
-MarcEz Er PIERRE BAUDOUIN. — Jeanne d'Arc. —
-
 Domremy; les batailles; Rouen............. 10 »
 
 Pierre DELOIRE. — de la cité socialiste....... » 10
@@ -6254,7 +4758,6 @@ D ce armonieuse... 1.0.0. ST Ra
 _ JÉRÔME ETJEAN THarAuD.—le Coltineur débile, 2 »
 JÉRÔME er JEAN TuHarAUD. — la Lumière ..... 1 ». s
 _ Romain ROLLAND. — Aërt, — trois actes......
-prix actuel 7 »
 RomaIN RozLanp. — le Triomphe de la Raison, —
 ROM ACTES ne an dau duslenete ne tee als NS UÉBUISÉ
 * Romain RozLanND. — les Loups, — trois actes ÉPUISÉ
@@ -6262,44 +4765,25 @@ JEAN JauRËS. — Action Socialiste. — le Socialisme
 et l'Enseignement; le Socialisme et les Peuples. 3 50
 Pour tous renseignements les plus complets sur ces
 (cahiers antérieurs, consulter notre catalogue ana- Ù
- lytique sommaire.
 
-PRET ES CR eee LPO
 nes RUE 2 af 74 FX, Le re
 ae SR SN NAS: PS RARE NE TR CM PE D ere FD
-A PONS PS es AE SOLS AN PSN EE
 SAMU ER APE DANSE PS D NE ÉTAT és? LES if trier TER PEER
-€ A A TL SE ET LE PU NE À RAR Mer CETTE 16
-; 157) EU TON LEE PART LIRE GE DEA \% LS he
 | LOTS PR ROUTES Roi Sn” ANR = ES
 Pro x Frs me SA el ! Pa 5% A CU D PA 4 Ne SA" É 1 LEX Ours
-à à FM s RER EU ES RAR ANME RICE TEE LEE ONU TUE EE CET
-LS RER DEA re LCA) el re CS ae PE
 ET RER Rent NE 0 HONOR TEST Na.
-NA FRET CIRE PRaN œ = HAS 4 DS ARS Re A
-M in or FR ECC VERRE
 NRA de EEE ere QU y > FE SE TER aa :
-ER TRE 2 HAT " : 0 * We UE ES AG TPEPX
 HE LE OCT É an À TT VAE ET me (4 ST AO EE à
 Lars PE GRR L " 3 A Rx LISTES TÉL
 LL PE UC CNEEN Ÿ + ne Arr 2: LASER « 1 à i
-Re UE Re 2 Û Ex Le RTE NES
 1 RE NTM ARTE A EE , À 7 : ee Pas LR Le
-1 DR en AE Te > CARS 3 sg + SAN ER PC ES à
 D RRT SN Tex SN LENS y j on LE 0 RARES
 RÉMNTER Red Des YI5te h E M ARRAL AOL 7 AY
-ALT TERRE AIRES RER tn
-RAD + 2 4e : Le 2 ÉCHOS
-HG FRA 2 > 12% X1$ PUS
 Rue D MR SE NOUS
-LANCE PAST NT RS # TS AN OT LR RIT ROERS
-RON GT À s è RRQ EM EU TT SEE
 RIVER ed RE eds LA VE AN REA RME) ARC ELA + DHL ee RCE
 ALP PMEORRES Peer (I RE OL SPRL Te We Pos DU NS SRE
-RTL EPA REED) fe PCI TS RC ESS $
 
 ROMA M TR MT D Late BI BY DT: 2 rl > "Ge ED F PC: LOUP NE - NA
-TRE
 _ Dans les douze cahiers de leur première série, année
 scolaire 1900, nos cahiers ont publié :
 I-1. — Charles Péguy. — Lettre du Provincial; Ré-
@@ -6309,32 +4793,23 @@ ponse au Provincial; le « Triomphe de la Répulique ». — L'affaire Liebknech
 Travail des enfants. — Quinzaine....... prix actuel 12 »
 1-3. — Pour et contre le socialisme. — La pe
 tion du congrès socialiste national. — Travail des
-au cer cuceDriXeQCiUElS PROD
 E4. — Charles Péguy. — De la grippe. — La ne
 ration du congrès socialiste national. — Travail des
 eee co DIT QCLUCL ES
 1-5. — La Consultation internationale ouverte à La
 Petite République sur l'affaire Dreyfus et le cas MilTan ess eue coco DriX ACLUCL TUE
 1-6. — Charles Péguy. — De la grippe. — La même
-Consultation internationale.............. prix actuel 8 »
-1-5. — Charles Péguy. — Annonce au Provincial;
 Toujours de la grippe. — La dernière pose
 et la tenue du congrèés socialiste national. — Jérôme
 ET JEAN THARAUD. — la lumière......... prix actuel 9 »
-F8. — Première annonce; Deuxième annonce. —
 La même Consultation internationale. — JÉRÔME ET
 Jean TarRAUD. — la lumière............ prix actuel 8 »
 1-9. — Charles Péguy. — Entre deux trains. — Rectifications. — Paul Lafargue. — Le Sociaiisme et les
 intellectuels. — JÉRÔME ET JEAN THARAUD. — la
-uno rene: EBURSE
 1-10. — Communications. — Les Petits Teigneux. —
 Annonce. — Emile Vandervelde. — Socialisme et colso at see. PUIS
-I-11. — Charles EFBUr. — Réponse brève à Jaurès.
 — le Socialisme et les Intellectuels. — Comparaison.
 — La même Consultation internationale............. ÉPUISÉ
-12. — Charles Péguy. — Deuxième série au Pro- )
-pincial; Administration; Nouvelles communications ;
-Demi-réponse à M. Cyprien Lantier .... prix actuel 8 »
 | D pronne qui étaient abonnées à la première
 série de nos cahiers ont recu pris l'année scolaire
 1900, pour le prix de leur abonnement ordinaire, à
@@ -6343,32 +4818,14 @@ en quinzaine, les douze cahiers de cette première série
 énoncés ci-dessus. Pour tous renseignements les plus
 complets sur cette première série, consulter notre catalogue analytique sommaire.
 
-D D du RER 4
 ‘ue ne A Re CNT ES MAS rAU
-*: REANEAAe PS NN ET AI er PO EST A M LEE EL HMS
-RAR MEANE LS PA LA (RETEL PONS RO TL ALES RAT NE EEE
-HAT “AS CNE AR RUE ELA ES A AR A A SEE LE OL ARRET
-nn MN ee 10 RQ AUS HER AMMANRS FEES
 None AMENER L'EAU CE A PAU END EN RE den à)
-ARE AE ONE RE ON LE NAN EEE RE AN RP et LVIOACSERE
-A F2. PL PEESS J'LE RENE RES
-Ru AE SEMI RAD D 1 | TETE
-OS NN ê } La : Loge PA RL EI ;
-A Us FA D AR AU RE +) LS
 ne Gi PAGE NET CALE ER ASE z AMP AGNES ete +3 PE TRpes
 ft NÉ RS re DR EIRE PER RE ET FR PRE ae
 HSE SES UE RAR PRE NE Er ta FANS SNS RARE ee
-NS. RON SSEN NAN D Fo (RAT DE Ac PA A EAtS VENAIS
 Te, DPI CET ME ; LR Lin Re NON ERRS Ê
-EL PA PAIE RS ARTE FAT METE DB EN RATE NEA À)
 nie GS OUAIS : HRSMNE ÉD EE RER ee UE OA SA LES NEA |
-A FSU ESSRNE)
 
-AQU BEN PET LA EN NESSe  ERS SAR
-
-A |
-
-Re
 __ Dans les seize cahiers de leur deuxième série, année
 _ scolaire 1900-1901, nos cahiers ont publié: » Il. — Charles Péguy. — Ajournement; Nouvelles
 . communications ; nos annonces, nos comptes rendus.
@@ -6377,31 +4834,19 @@ _ scolaire 1900-1901, nos cahiers ont publié: » Il. — Charles Péguy. — Aj
 II-2. — RENÉ SaLoMé. — Vers l'action ............ ÉPUISÉ
 
 IE3. — Charles Péguy. — Pour ma maison; Administration; Rectifications. — Jean Jaurès, — Le théâtre
-A en pe area tea vus d dec. DIU CUP SOA
 
 1-4. — HuBERT LAGARDELLE. — les Intellectuels
 devant le socialisme. — l'amnistie et les socialistes ; |
 
-prix actuel 8 »
-
 I-5. — Charles Péguy. — Administration; pour :
 moi. — Contribution aux Preuves. — Lionel Landry.
-
-— courrier de Chine..................... prix actuel 8 »
 
 I1-6. — Roman RoLLAnD. — Danton, — {rois actes ÉPUISÉ
 
 I-7. — Charles Péguy. — Administration; Cassecou; librairie des caMérs. — Pour et contre Diderot. ÉPUISÉ
 
-1-8. — Lronez Lanpry. — Baochus, — trois actes
-
-; prix actuel 8 »
-
 Il-9. — Charles Péguy. — Procès-verbaux; commen- : £
-taires. — Paul Mantoux, Charles Guieysse, — Intel- ;
 lectuels et socialisme. — André Bourgeois. — quatre FRE
-HO Monicean eee: DIX ACLHOL EEE 7
-_ I-10. — Cahier d'annonces............. prix actuel 12 » :
 
 I-11. — Charles Péguy. — Compte rendu de man- e
 dat, trois exemplaires sans couverture, prix actuel.. 12 » $ L
@@ -6422,11 +4867,6 @@ Populaires. — Lionel Landry. — courrier de Chine. 1 »
 personnel enseignant en France : Préface du gérant; :
 
 — JInterpellation Lavertujon; — le cas Jaurès; —
-Daniel alafarce. — M. Brunetière historien; —
-frmate dans PYonne........,.4.::...:1,,.:1 NERO
-
-11-16. — Congrès socialiste international Paris à
-RE een maee ane a min oo noieies à se 00 OT TN NOT $
 
 Les ion qui élaient abonnées à la deuxième |
 série de nos cahiers ont reçu pendant toute l'année scolaire 1900-1901, pour le prix de leur abonnement
@@ -6435,75 +4875,33 @@ de quinzaine en quinzaine, les seize cahiers de cette
 deuxième série énoncés ci-dessus. Pour tous renseigne-
 
 - ments les plus complets sur cette deuxième série, consulter notre catalogue analytique sommaire.
-\4 \ reine morte, — 11.
-
-AMEN RAT Re RER NE LE AA LR à
-
-Vi: ER PR AN REV EE VE 2 NE PRE NS TE VAR ETATS
-
-BE UN Te PT A PT A AU QUE, Et PR AS DOTE ET SE A CURE
-
-FONCIERS APN AIS S/ AN PSG Aie RER UN LEER AUTEUR
-
-\) ESS Le NEC CORNE PA OS A EENNS à HR ET Re Der UN
-
-D D nt RCE ee Re:
 
 | HPAN ATEN RÉ ST ACTA EEE M OR AE MIRE Mr 0 4
 
 LL ÉROK ENTER EES LORS À TVR Val EE TANT vo ;
-LCR DONNE PE VUS : RAY 4 LE RER
 LEE LE A pe CCE CSS AE S ë ET NT SPORE
-FRA HUE at { É é | 2 UE DREUX FE Fr
-EEE DZ 06 pat ECS PHUNÈA ASS
-PNR Se Es AE
 
-1 LED ERA PAORENSS LE : = è ATEN APTE r 10
-FACE RENE 5 Fo NE : : FN PE NME
-
-2 RDA UN SORTE : SAUT MAS A
-NRA “ CAE MAR Er en 0 7, 5 LU RME Ne US à
-
-ô Der LORS ; FEES NP ES LE CRT N HUE DRE PRIOR x
-EM CSS ER ARR SOS CRÉAS MECS SR
-LE On ; LES SU ER MESSE
-
-re Dee SAS NN ERRES ; er td NIET PÉRETEER :
 A RU Le Vase RRADE
-MR PR eel è "Sa À Le 7 REA MS TOR
-
-3h CARO SR ORRENREr Mme be PANNE A CT ANSE ANS
 
 34 Dans les ving't-et-un cahiers de leur troisième série,
 … année scolaire 1901-1902, nos cahiers ont publié :
 | I-1. — Charles Péguy. — compte rendu de congrès. 1 »
 ÎIL-2. — CHrarLes GuiEysse. — Les Universités Populaires et le mouvement ouvrier................. 1 » 2
 ILI-3. — Grorces Sore. — De l'Église et de l'État,
-A Den uno attac to ee ENS D
-ILL-4. — JEAN JAuRÈs. — Etudes Socialistes....... 3 50
-ILI-5. — GEORGES DELAHAGHE. — Juifs.............. I »
 II-6. — JEAN HuGues. — la Grève. — trois actes... 1 »
-II-7. — Charles Péguy. — M. Gustave Téry......... 1 »
 ILI-8. — BErNARD-LAZARE.— les Juifs en Roumanie. 2 »
-Il-9. — Tozsrtor. — une lettre inédite............... 1 »
 Il-10. — les Universités Populaires 1900-1901 Paris
 TIRE nee ma one r de sie se tele Na teee Ciel)
 Ill-11. — Romain RozLAnD.—le 14 Juillet, — action
-populaire, /frois actes. 1.0..." 00 |
-I-12. — Monographies. — Personnalités.......... I » ;
 Hl-13. — Jérôme ET JEAN TuARAUD. — Dingiley,
 TO RIM AUD ru en nue eee no dlecosole dia ds ea 0 0 ON
-IlI-14. — Georges Sorel. — Socialismes nationaux... 1 »
 IU-15. — ANATOLE FRANCE. — Cahiers de la QuinH-16. — Charles Péguy. — les élections............. 1 »
 ILl-17. — cahier de courriers. —Félicien Challaye. —
 impressions sur la vie japonaise. — Edmond Bernus.—
 la Russie vue de la Vistule. — Jean Deck. — courrier
-nn eee Lulu suce Neon Cr RO)
-I-18. — Personnalités. — Monographies.......... I »
 Hl-x9. — PIERRE Quiccarp. — Pour l'Arménie... 3 »
 UI-20. — Les Universités Populaires 1900-1901
 A Re die un da mae dou te CE IS
-I-21. — JEAN DEcx, — Pour la Finlande.......... 3 50
 Les personnes qui étaient abonnées à la troisième série
 de nos cahiers ont reçu pendant toute l'année scolaire
 1901-1902, pour le prix de leur abonnement ordinaire, à leur date, généralement et régulièrement de
@@ -6513,56 +4911,36 @@ de nos cahiers ont reçu pendant toute l'année scolaire
 
 br A Dre TRE RE <a DAT IL ARE GONE TAN NE
 
-NOR NS ANR A RG ME Fe PORTE ANNE CINE Le RS TEL ES
-
 4) id LES Nes SEX LA ae pr TA D” “ Ter ent ES PL 4e
 
 AMP te) LP CRU CONTRE PE LT ns TN je AIRES CE RS NOR  ÉQ . # 24 D LE %
 
-A NES ET DATENT AIR Cr VAL D SALSA ETES 7 D LR TE CIRITEN NES
 NAS NE ET RTE SAONE D UT Va Te RE VUE as
 UT OS Fat CNE tou AE AD ACT LOU SX FIRST ETES SA
 LÉ RES Da A RRSRIR EE Nes LE EU SCANNER
 ANR LS DES Eu te en ol À AT ô DR PRE RE à
 
-DE CPP ANSE QUE Ge Ce LAPS SEE APCE TA a LP TERRE
 Te FA NS AL Rte Le de 5 Nul à A = CE HiÈTes Tel
-HARAS ETERe, ES E4 RATE ve TEA
 FEAR ICE ESTIEENT . qi 2h de È " + es RER :
 DO re rh. PAR É V5 2) TISTS ENS
 
-+ ETATS ReR  AE ENTIE 4 4 4 TSI IR ETRES
-
-IPS MOUSE AE Ne J 5 Re An SORMARNERP AS
 D'ELLES de è 5 de RE |
 D Re Le RAR MM de
-Se. MS CNRS ? A EE ONE ATARI TR M A
-DAT RCA PT RARE EE ES PET 2 5e LÉ à
 MN NE de LENS STONES
 TE AT MES ER PE ia] RÉ PRG NRC EN OEE S
-ARC NE EI AURONT ES æ K HR TUE LEA SA A RES CNE
 LR ras fre NES RCE PENe OA Ne CNE EC ARS
 
 Dr OST PAR PM nn de $
 
-oO To 2 =
 Dans les vingt-deux cahiers de leur quatrième série,
 année scolaire 1902-1903, nos cahiers ont publié : :
 IV-1. — ANATOLE FRANCE. — l'affaire Crainque- : |
-bille, — édition complète........................... ÉPUISÉ
- IV-2. — Mosezzy. — l'aube fraternelle............ 1 »
-IV-3. — Charles Péguy. — de Jean Coste........... 1 » 3
 IV-4. — ANTONIN LAVERGNE. — la médaille. — la |
-lettre de convocation.................................. 1 > 3
 IV-5. — Textes et commentaires. — Emile Zola... 2 » 4
-IV-6. — inventaire des cahiers................... I » 3
-IV-5. — Villon, Tolstoi, Tharaud, Gillet. — cahier CAS ;
-NOR Em 2.4 Mines Pete US a
 IV-8. — René Salomé. — Monsieur Matou et les À
 BirConslances de s4:fle: 2e des sun auarues Dern SACS 2 IDR n
 IV-9. — almanach des cahiers pour l'an 1903... 1 » Fe
 IV-10. — Romain RozLaAnp. — Vies des hommes pue
-iustres;— Beethoven 0 RS Ë s
 IV-11. — ÉpouarDp BERTu.— la politique anticléri- ;
 one el le socialisme... 00 ete r k
 IV-12. — Vient de paraître. Henri Bergson. — In- :
@@ -6571,19 +4949,12 @@ IV-13. — cahier de courriers. — Félicien Challaye. ‘La
 — poor sur Java. — François Dagen. — cour- \
 MA A TPE PIB Een dei c'ouse gale ns ne At lee Ur OR ÿ
 IV-14. — Roman RoLzLanD. — Le temps viendra. à
-MT DENAIN LG ten oo à à oiovie re da nates No ua es STAND ;
 IV-15. -- PIERRE BAUDOUIN. — la chanson du roi 5
 Dagobert. — première chansonnée................... X » De
 IV-16. — GABRIEL TRARIEUX. — les Vaincus. — 58
-Joseph d'Arimathée. — {rois actes.................. 3 » SE
-IV-17. — Affaire Dore — Débats parlemen- fe
-uven. — Intervention Jaurés...:....1........%.1.2108100 ;
 IV-18. — Affaire Dreyfus. — Cahiers de la Quin- 4
-zaine.— Débats parlementaires...........,........:. 10 »
 IV-19. — GASTON RAPHAËL. — le Rhin allemand... 1 »
 1V-20. — Affaire Dreyfus. — Cahiers de la Quin- <
-zaine. — reprise politique parlementaire.............. 2 » |
-Nr Edgar Quinet..:.......,.......1%4 121040
 1V-22. — Maurice KAuN.— courriers de Macédoine 2 » |
 Les personnes qui étaient abonnées à la quatrième
 série de nos cahiers ont reçu pendant toute l'année |
@@ -6592,34 +4963,20 @@ ordinaire, à leur date “alement et régulièrement
 de quinzaine en a” es vingt-deux cahiers de
 cette quatrième nonces ci-dessus. Paur tous renseignements l° lets sur cette quatrième série,
 | consulter nt:2 0e 1aio0e analytique sommaire.
-”
 
 AIT ne HAT NT DE ETS
 te RE OT ES RP RE hs RE RS ES LE SPP ER AS ARC A UE
-Robert AS EE ANRT ru PILES A ETAT) ë, Me DCE ;
 
 RS ne
 
-« BP RIRE GRR Ta CS DE er TE TIC LES EAN ARTE BA
-ci 5 Ro FRE ANt Rte re YEN DA fee CRETE 7
 GT: LT HEAR PTIT e pre LE ANS 107 ee Se Te hé a Vi PÉST AL EAU
-Es PAS RM A, FRE rs Er L'ÉMESANESPT ANT CURE AIS LS" SES
 RE = RO PL ha UE PSE A IN D PRE Le RIVES nan
 LPDN Le ax L_ 46 AL 7 À fra f Len: : FSU CEA
 | ARTE LORS TRS ROTEEER CAL x Aer LEA ère EAST
-Mare ei 4 re f % 3 ee ‘; ENNRER
-De.
-NS EE UA is APTE -2 Cia À: CT ENTE
 RU GS OrRR LAS R à Er ce
-Em CE TRE ES dl" £ " EVENE , LR NS
 AR UE Er RE re 2 Pas SEX CHA ri SANT
-7 Re LES
-à Due Ve PURE 7 A LE EDR PA. PU
-FE SEA . L . k t ë Fi FE N ES : FN nn: L
-PA PAL e PRE Ve Ca >) F REX NE? (ra y
 et bn VE CRUE en! Ù “et a D: \
 
-SE TRES OR SAR < £
 * Dans les ving't cahiers de leur cinquième série, année
 scolaire 1903-1904, nos cahiers ont publié :
 
@@ -6627,20 +4984,15 @@ V-1. — Henri DAGAN. — les massacres de Kichinef. 2 »
 
 V-2. — Pauz Duruy.— la vie d'Évariste Galois .. 2 »
 
-N-3:—="e monument de Renan.....:............,, 2) »
-
 V-4. — RoMaIN RozLaAnD. — Le Théâtre du Peuple. 3 50
 
 V-5. — GEORGES CLEMENCEAU. — Discours pour la
-LIT DNS MAP ER Re AR ER SALE
 
 V-6. — Daniez Hazévy. — Histoire de quatre ans,
 
 V-7. — Henri Michel.— Notes sur la Hollande et sur ;
 l'intimité. — Henri Lebeau, Jérôme et Jean Tharaud. —
 MDP EN ATRDS. LE Te ra ne ba QU NN ON
-
-V-8. — Dr. Karz BRUNNEMANN. — Maximilien RoRETRO MUR DUT - eV ahto NS I
 
 V-9. — Roman RoLLaND. — Jean-Christophe. —
 la seule édition complète. — I. —l'aube.. prix actuel 5 »
@@ -6650,14 +5002,7 @@ la seule édition complète. — II. — le matin......... 3 50
 
 V-11. — M.M.MANGASARIAN. — Le monde sans Dieu » »
 
-V=12: — petites garnisons .......................7 21%
-
-V-13. — GABRIEL TRARIEUX. — Hypatie............. 3 »
-
-V-14. — Josepx Bépier. — Gaston Paris........... 92 »
-
 V-19. — Emize MoseLzy. — Jean des Brebis ou le
-PRPAUEATU IMISErE. 240. eee er Dri® ACtUEL 0
 
 V-16. — le congrès de Dresde, — édilion GASTON
 nuls ee ouraee nue nait deco ne D
@@ -6668,59 +5013,33 @@ V-18. — Lours MÉNARD. — Prologue d'une Révo-
 
 V-19. — JÉRÔME ET JEAN THARAUD.— les hobereaux 1 »
 
-V-20. — congrès des U. P. mai 1904.............. 2 »
-
 Les personnes qui étaient abonnées à la cinquième
 série de nos cahiers ont reçu pendant toute l'année scolaire 1903-1904, pour le prix de leur abonnement
 ordinaire, à leur date, généralement et régulièrement
 de quinzaine en quinzaine, les vingt cahiers de cette
 cinquième série énoncés ci-dessus. Pour tous renseignements les plus complets sur cette cinquième série, consulter notre catalogue analytique sommaire.
 
-re RES ARS D PT RE D DE GIE EN I NA NET A TE CR
 pt ENTER Lise LS Se FRONT OU RE PR EN ET f
 A SAME SE ee À En A 5" at et AE AVE £
 que NUE HS Nes LEE VEN CE SRE A AR ES ras Me,
-MU AA AN SRER EE DUR RME ER EIRE
-ET CC LP AN PR LAINE A A ARS PE MT ECO
-
-AT LT TER he LL PARENT RU Een A Te AC ESS TT PRE EE PANNES
 
 in LS SNS ETES DA 5 Si LA RASE $
 
-SE D RTE ù À ? VAE CCR
-LT EPA SSP ; *: +1 ST E :
 PORTE vers ADO ; É : Û Ne “LIEN SERRE ss
-RS A ENT b : $ FRET Fe
-ge A CPR RER 5 se MORE 1214 PEN AP ST ENS
-
-RARES UER Here Cr AUS TER AE Fra SE + -
-LS SN PIN ONER : LAEE LE. NSUEST AIRES {
-DA RLE IA CRE PONIRETr ETAT. FOR AR RENE RE RAT DEVISE NSRREN
-
-PO CN ATOS PAYENT NN" SES RON NAS
-
-UT RTE. ORAN PRES AA LE Nr EP Ps
 
 : Dans les dix-sept cahiers de leur sixième série, année
 … scolaire 1904-1905, nos cahiers ont publié :
 VI-r. — CnaRLes PéGuyx. — Texte sans commentaires. — Catalogue analytique sommaire, — 19001904, — de nos cinq premières séries................ 5 » MR
 Vi-2. — ALexis BERTRAND. — L'égalité devant l'instruction, — crise de l'enseignement ................. 2 »
-VI-3. — ISRAËL ZANGwILL. — Chad Gadya !........ 2 »
 VI-4. — Raou ALLIER. — L'enseignement pri- É
 maire des indigènes à Madagasoar............... 3 50
-VI-5. — Le testament politique de WaldeckRousseau ...............,.......................2 9000
-VI-6. — Écrire ÉBeruN ; GEORGES DELAHACHE. — juifs 2
-MARS D num here ad enes sUnUeob ee 0 ER
 à VI-7. — PorcHé; GILLET; THARAUD. — les primitifs
-français; contes de la Vierge .....................: 20 »
 VIS. — Roma RozcanD. — Jean-Christophe. — ;
 la seule édition complète. — III. — L'adolescent... 3 50
 Vi-9. — Textes formant dossier. — La délation aux :
-PAU 0e HOMME)... 0472000 A
 VI-10. — BRENN. — Yves Madec professeur de colRe sans nee ne aigle ee ain o das ete 2 do RON
 VI-11. — Suarès. — La tragédie d''Elektre et
 Us ne Las doc mods se ae 200 UT
-VI-12. — URBAIN GotER. — Spartacus............. 3 50
 Vi-13. — Tozsror. — l'Église et l'État; les événemPents aotuels en Russie .:..:.:.......%..1:....100100D
 VI-14. — Une campagne du Siècle; — RAOUL ALLIER.
 — la séparation des Eglises et de l'Etat......... 6 »
@@ -6736,32 +5055,17 @@ vi qui les dix-sept cahiers de cette sixième série
 non l-ssus. e
 #4 }
 
-RASE SE TAN SENS TERME Pa SO T7 Po A RTE TE ARE PNR
-RAS PEINE LACS (TL SAN 2 NS LE SAR ASS APRES EN
 MP Tue Le LU RME SERRES
 ANR RER RARES etes tee LE CEE OP PTT NEA RPERTAIEEE
 CA: EM. OMNRELENSS PAL GE F PEN EL TULIT LP VU Fi Te ns 26 ra
-ee ‘Fe FR UE he 4 4 + DAT Ho
-RTE PE met 1 , u D + ALLER
-RES EU % ‘ < et
-EP LON SEUT à AE TA 3 j , STATE
-REINE ORNE SENTE a ! 2 LR CRE
 En TRES AL A ne ve vr x 21 ASE Mary
 LORIE pe ER ES = PA LE LUI ERRRSRTES
-SEVEN ON EEE ; ee 4 : YEN
-RENE PAT) EX SAS PAR CU
 REA Sr : Le À à ce Fer 2NX Là 8e n
-PAR Er NE RE AN AS è Re Le
-Se AU VS Re Ve Eure A , Fe 2 RAR:
 RL TES 1 ag a Are re 4 TÉL
-APCE AE Ur Ÿ 5 Let SR NOTONS
-SON NE NERO N PANTIN PARENT: ‘ANS EEE ru e ER RP AT NE RARES ROUTE 2 =
 ART LE RE RAS NN Er SEA ns XHaS
-SL ARE EE LG er M ae 1 21 RE AE A pu RE RE es ADF CEE
 
 Dans les dix-neuf cahiers de leur septième série,
 _ année scolaire 1905-1906, nos cahiers ont publié :
-VII-r. — CnarLes PÉauy. — petit index alphabé- À
 tique du catalogue analytique sommaire et table
 analytique très sommaire de la sixième série....... 1 »
 VIi-2. — Cnarres Ricaer. — La paix et la guerre 1 »
@@ -6771,7 +5075,6 @@ VIL-5. — ÉTIENNE AvVENARD. — le 22 janvier nouMAMA byIe tea na oi ce 00 uen
 VII-6. — E.-D. Morez et PIERRE Mize. — le Congo
 RAP MON lite tee
 VII-7. — CHaRLes PÉGUY. — les suppliants parallèles. — FRANÇoIs PorcHé. — les suppliants......... 2 » .
-VII-8. — AnDRÉ SPIRE. — et vous riez............. 2 »
 VIl-9. — FerniNanp Lor. — De la situation faite à
 l'enseignement supérieur en France. —1......... 2 » :
 VIL-10. — JÉRÔME ET JEAN TrarauD. — les frères
@@ -6779,15 +5082,11 @@ DE es me Ne doute au NT
 VIl-11. — FERNAND Lor. — De la situation faite
 à l'enseignement supérieur en France. —Il...... 3 »
 VIl-12. — FéciceN CHALLAYE. — Le Congo français 2 »
-VII-13. — GrorGces PicouarRT, lieutenant-Colonel en
 réforme. — de la situation faite à la défense miliRAS UE PANCe 2.420 ae oc co no ecte  O
 VI-14. — GABRIEL TRARIEUX. — Les Vaincus. — ke
-AAA Ie 1. 0.4. 0.0 0e NONOD)
 VII-15. — les cahiers d'Arnold Scherer ......... 2 »
 VII-16. — Prgrre Mizce, FÉLICIEN CHALLAYE. — les
-D uns nc inga deioic 00 cer Re A
 VII-17. — JEAN SCHLUMBERGER. — Heureux qui
-Jr TA DIE ARRET A RO ER RRRRE LA
 VII-18. — RomaIN RoLLAND. — Vies des hommes
 illustres. — la vie de Michel-Ange. — I.— la lutte.. Épuist
 Vil-19. — Emize Mosezzy. — les retours. — Les
@@ -6796,8 +5095,6 @@ CAD AE BR OIA GLS el ne mins dates ee à 1 8 0e D NS ENT RE
 | de nos cahiers ont reçu pendant toute l'année scolaire
 1905-1906, pour le prix de leur abonnement ordinaire, à leur date, généralement et régulièrement de
 quinzaine en quinzaine, les dix-neuf cahiers de cette
-septième série énoncés ci-dessus.
-, 1 a à
 
 RU PS AE Ae Te Ca LCR de see CA PER AN EAN STAR EU
 
@@ -6805,33 +5102,15 @@ ar. SNS CARS NN NL DA (EDEN DE MNT ge QE 2 Ne LU AE PRE TP ;
 
 PA ANR AD ET ENT SAM RS A AÉUD de Fe Pe ter Le BA
 
-OR RE AQU SE SE pe AS PRE RES SN A PE A RM RO
-
-RE, 2 SA AN EN RP nn RAR EE A LPO EG dE ROLE
-
-ÿ CAE AE MAS NUE AA RE NERO Fa RAC OR
-
-RE AMEL | AUS A CN SET Do RU EE RARE PS #4 Lan Mrs
-
-QE athée dE LEE dE AR ONEE a PE OR PR RO QE NU Ne
-
-N'a TE AR LUN 2e ONE TR RAC TRE AN 1h (PE
-
 A on 2 dun, SN eg ent ie te er EE
 
 Ho ne PUMA DER ES SR EN ET
 
 je PET PRES USA EN Tee Et À 8) LL LUN ce #7;
 
-+32 FRE LE RAGE 275 OR As k LA, +] 1 HA LT ANCRLESSS Len Le 2
-
 un li ht TA ETES
 
-En TEE er AN PROS f PR nt LRU T POST al Ra tn EN
-
 CARE TNA NN CRETE met Re CAS: cit SARL: 4 ï STE LI APT ON NE) “
-
-DENT ON PRIT RETRE RE ER INR RE Re
 
 AA M ne nr de Fe Pts SLA SR CRUE
 
@@ -6841,42 +5120,28 @@ M Ne LU ae de au QI) ER à ete De ARC
 
 RER On enr AE ;
 
-DATE PU mA CENT CU Ee Li PAR OR UV RS EU AE SUN SE
-
-NE 5 Lee REA PNR EAN LICE AGIR CUS AS CORRE ES CHUTES
-
 LS fé; CPAM MEANS Sur. ee FE EU RER SRE LA EEE ENS
-
-ARLES : TA EN MPa RME PE DR AN EH ee ASS ES
-
-RENE) NEA NES CA RE GR PR RE NE 7 1
-y S CALE LR) CHE nu Ven ner 21! 72. TNT AREAS
 
 De ce a AE DÉS Si Ne PER PE AR LEE |
 
 ._. Dans les seise cahiers de leur huitième série, année
 _ scolaire 1906-1907, nos cahiers ont publié : :
-;
 _  Vlll-r. — petit index alphabétique de nos éditions
 … antérieures et de nos sept premières séries (1900-1906),
 —table ne M très sommaire de notre septième :
-DD 1000-1000) 47 Minis dent nosdete co A D ME
 ..  VIll-2. — Romain RoLLAND, — Vies des hommes s ;
 illustres. — la vie de Michel-Ange.—II.— l'abdication 3 »
 i VILL-3. — CrarLes PÉGuy. — de la situation faite à
 . l'histoireetàlasociologie danslestemps modernes 2 »
 VIII-4. — Romain RoLLAND.— Jean-Christophe, — » la seule édition complète. — IV. — la révolte. — 1. ;
-D ubles mouvants :.....:..../;3.44- neue Nate OO
 + VIIL-5. — CuarLes PÉauy. — de la situation faite
 au parti intellectuel dans le monde moderne... 2 » :
 VULI-6. — Romain RoLLanD. — Jean-Christophe. —
 la seule édition complète. — IV. — la révolte. — 2.
-ÉPORRSemEnt- nine nest eve cas ST OR
 VIIL-3. — CHARLES-MARIE GARNIER. — les sonnets de
 Shakespeare, — essai d'une interprétation en vers
 L'OCÉAN NAT RER RTE eg à D 2
 VILI-8. — JEAN BONNEROT. — le livre des livres, — |
-LT ONE SR RE CE A EE Ut 1.
 VIll-9. — RomaIN RozzaAnD. — Jean-Christophe, —
 la seule édition complète. — IV. — la révolte. — 3.
 dE PAneE NE ue sono Un EL a des NERO
@@ -6886,7 +5151,6 @@ exactions de la germanisation prussienne. — I...... 2 »
 VIlLi-11. — JÉRÔME ET JEAN THARAUD. — Bar-CocheMN HOT NONNEUT 15.4 crc ess ee RER
 Vili-12. — Epmonp BERNUS. — Polonais et Prussiens, — de la résistance du peuple polonais aux
 . exactions de la germanisation prussienne. — IL.... 2 »
-VILL-13. — HENRIETTE CORDELET. — Swift.......... 2 »
 VIIL-14. — EnMonp BERNUS. — Polonais et Prussiens, — de la résistance du peuple polonais aux
 exactions de la germanisation prussienne. — IIL.... 2 » Ê
 VIIT-15.— CnARLES-MARIE GARNIER.— les sonnets de
@@ -6898,203 +5162,91 @@ Les personnes qui étaient abonnées à la huitième série
 de nos cahiers ont reçu pendant toute l'année scolaire
 1906-1907, pour le prix de leur abonnement ordinaire, à leur date, généralement et régulièrement de
 quinzaine en quinzaine, les seize cahiers de cette huitième série énoncés ci-dessus.
-) |
 
-: LL _ 2 ‘ " Ù f é
-Ÿ SE ( a ‘ ( *
-Te. , 1: r \ 1
-[ 1 ï
-+ re « { {| r l
-4 ( t
-: à (2 t { ï
-Le. _ F : *
- … ET. EU dé d _
-DO :
-ç » À ,
 | Dans les seize cahier huitième série, année | }
 E scolaire 1906-1907, n hrs ont publié : 1]
-{
 VIlI-r. — petit index alphabé [ue de nos éditions 4
 antérieures et de nos sept pre 1 séries /1900-1906), L ' +
 —table analytique très somme > de notre septième |
-série (1905-1906) ..... ae PRÉ (il
 Vilt-2. — Roman RoLLa Vies des hommes ji
 illustres. —la vie de Michel-Ang —Il.— labdication 3 » :
 VILL-3. — Cirances Péauy. — de à situation faite à 14
 Y'histoire et à la sociologie stemps modernes 2 » |
-VIL-4. — RomarN ROLLANI n-Christophe. — Û
 la seule édition complète. Ÿ - la révolte. — 1.
-— Sables mouvants … Fe 3 » h
 VIN-5, — Cuances PéGuy. — € la situation faite \
 au parti intellectuel dan onde moderne 2 » il
-VII-6. — Romarx ROLLAN an-Ghristophe. — 1 |
 la seule édition complète. — - la révolte. — 2. ! É
 — l'enlisement.… dei EE MOTOS 1
 VIlL-7. — CnanLes-Marre GARNN.— les sonnets de
 Shakespeare, — essai d'un rprétation en vers | {
-français. —1.............. RRQ Ci. j à
 VILL-S. — Jxan Boneror.— léivre des livres, — i
-fragments. ......... : ALTER | : Ex
 Vill-9. — Rowaix RoLLAND.=wan-Christophe, — | + LT by
 la seule édition complète. — IV.— la révolte. — 3. À É 5 nf RES
 — la délivrance . 200 Sa RU For ST à
 _VIll-10. — EnmonD —"olonais et Prus- | PE
 siens, — de la ré aple polonaissaux î a! fau
 exactions de la imussienne.—A"#.. 2 » j … £
-VILI-17. — JéRÔ) ù ra up. — Bar-Coche- 7 0 1]
 bas, — notre À 3 RARE 4 ù | | ET à
 Vil-u2. — El L+ olcasis et. K "de
 ns, — di m'yaple pol ‘ £ LE LEUR
 Proece — Sa si  % ”
-: Rus. —e }
-ice du « 4 |
-'isatiof HET ;
 CRIE QU êts de | à
 bi a en vers à nas
-« SQ vcoupations | :
 Sd ' Mes, — avant- £
 :s à la huitième série. ;
 # toute l'année scolaire =. À
-ur abonnement ordi- ”
 ré > cahiers de cette his s : {
-F F
-J
-F
-La à
-F
-p-
 
 RAR TA TEE AE A SE EN eu ST is
-AR NE ER ANE RE" A ADS LA NE ME CF star FA 0 1 4
-F= À, L'ART Et PRUT UC EL dr à
 ne Re NE (ee DR OR EOAR PTE SPEED
 AS MURS VER Rs de TU 5 FRAC INT ee
 “ne aa SAN PARU PAS ESS “
-LES RER SRE,
-LORS HR PARAMETERS : : © 4 *:
-RUE MRTNE à
-Re | : EEE
-di 5 É LTÉE
-A ? M:
-PRE Le | 4
-TT ES HER >
-! 2x L DFE v.
 he Ÿ MON
-a Ç LATTES {
-“ h x 1 57 4
 > ; PTS NE) Fac
-Ÿ LT PEN
 # FT 5 FENRR
-ï £ En
-{ 1 6ÈSS
-ds : AVES Font
-È Ji POSER
 RD TE ne
-DEL « ù AE #1]
-BAUME ITS TE A
-APE SLI SAT = Let à EE os OCEAN ESS
 
 mn Este HAE RP RES A LIL) Re DO DANS IE EN
-N RS DA AN MP TPE RS LU T SR LS NAS UE M UE ENT
-DRE EN ARE TE Ne cn Po CAPE AR LP CEE APE EN LR AUS ARENER
 HR EM Ve RS AA Et RUB OM Nerihe ES SON
 Re SE ARE PA NEO HET Den L UE TE NP
 D AS TE Ne np ECS) ARR ARE SR RES MTS
-A RU ru ue ee nr are A SR
 :1 "ARR ee ct RE RAM 2ICUE TM NTEARSSE CD LE
-RSS Ê RE SP EN LAUASONA AS
 Sue Ra à N re pr PPT, Per Ne
-KL AMI CRESRERESSS 3. 2 LT PRE RE
 JENERA RTE 2 L LL NT FY se UNS DEPCEY,
 : IT ARENA CS , l'Ufte d'A SERRES
-EP Fe F2) CEA 3 F $ 4 CHER. 1 YEAR ÊrR
 TPE ANT GREEN ne Cr der HSE 0 HAE 4 SARA
 > 5 TOME PE MP L j 4 ds SAS F'RAEQUE
-ÿ RSR cr tr hr. SNS SE PER PR CAT
-k 217 FO NPINE s % x 7134 TT NEA sa
-RL 0" = 4 \ £ 1! en 4 ‘ENS Ter A To
-RS. s- } 0 | Nul DA ES
-En 0 AE : AT ALES LR MARS
-FA Te PHONE 7 Dar: v 2 : LASER ERR # CASE
 PJ "Ai NE UN RSS ETS < re NUE 11480) DIS fre & tp
 1e: Ms ÿa fa À ue ADS RARES ‘he Es LE RÈCOLÈES é
-ART Fin SRE 2 AE 2 to TRS ANRT 1€ PONS RENREN
 TON TNA ERRS et mur TRE dE LR ES ES” HN Da Erin a
-RTS ES SLI ER
-ER TS mines O7 AUDE UE AN es SD *
-AS FPE TEE ca x CR y PAOMESS CRT bic PA RUE.
 
-AR PRET AR MONT SET TOR EST ARTE EE HER TRE EN RUE 4 TT rl 4
-GTS ARTS d Ve = : Er} Pr SN, > as We MALUS RR > É
-/ é ! Pa He
-air LUN
-2 + V2
-PAL A « LLAÈMEES
-ë j VAS
-; k à CFE
-PTE RENE
-MR
-DRE : !: + PET ATEN
-5 D. fui SISTER
-a © RS |
-a FALSE
-FL 124
-SEM SERRES
-Ê > RON - HE
-“ f & PETER
-Der ie : € a LUN NET 1 es Rae J
 Er PURE. PONRE LE PE LR RL EST A RE LS RME LA ni nn M
 
-LARMES SU ONE à $
 4 Il a été tiré de ce cahier treize exemplaires sur
 _  whatman ainsi distribués :
 L- premier exemplaire de souche, exemplaire du gérant; :
 18 deuxième exemplaire de souche, exemplaire de l'ad- c
-;. ministrateur ;
 A troisième exemplaire de souche, exemplaire de limF primeur ;
 5 dix exemplaires d'abonnement; numérotés de I à 10 Pine
-exemplaires d'abonnement.
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whaltman sont rigoureusement limités au nombre d'abonnements à chaque in_ stant souscrüs; nous ne vendons point d'exemplaires
 … © sur whatman en dehors de l'abonnement ; l'abonnement
 … sur whatman à cette dixième série est de deux cents
 francs pour tous pays.
-D A RE PL EN
 Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie successeurs), 217, rue du Montparnasse, à Paris, sixième
-arrondissement.
-è , reine morte. — 12
 
-D ne PR RU LM TVR AN ANR ELA MANN A INR CAES PA STE AA CS SR RS ESS
-
-MO RS OUR PE NET RER PTT EN CR ENS RO ART RES
-
-te ANT EL D ere M + te SL EE LR NOT EE COTE ROUE NET RER TEEN
-
-: NAURSS Trot e dé" 4 (5 } CNT TOYS ACER Re RTE :
-RIRES 2 Ne Re VIP APTE OP AN A PÈRE È CAR À dire D HER
 EURE A NUE DES PU NURRDE PU EDEN SE UE RUE NS hge ‘?.,.#$ui, re LOTO REA
-
-HR eu JL PT PR PAPA MEN LO RS ET SET CURE SRE HS SEEN NAUR
 
 Vus Fu DT NAPPES HP) LEE US LORS PS0 UNIER TOR ge MA
 SAR EN ne Le É er Duo AU Er APE ON SENTE RAR Be
 
 Re On (ERA el SEE + Pen s : î t { LR Le
 
-5 Fa SP CRT ET (27 e \ |. VTC
-LS) M AO SEE TES \ ÿ A 1.1 14 CTP ER ONNRSS
-FOREST Es SR : LAS RARES
 ANR OUT ne S L'AUDIT
-RNISCRE CHA A RES PR 4 t 4 + ESS LE NOM TRNNNNFIENSE
-Ce, S'ARDAN 448 RL £ Ne t à € j- r : L'I CROSS JR MÈES
-NX AREAS ED € bs + à LP DR PR
 À NE RE I MSN ELITE FROM El DNS AU el ni 5 0e SE
 
-LEE RES PRE CARE AT ET Tr NS PR re EN AA TR BC LG RL 2
-
-:
 Ne. Pour savoir ce que sont les Cahiers de la Quinzaine,
 —. il sufiit d'envoyer un mandat de trois francs cinquante
 —…._ à M. André Bourgeois, administrateur des cahiers,
@@ -7102,7 +5254,6 @@ Ne. Pour savoir ce que sont les Cahiers de la Quinzaine,
 un arrondissement. On recevra en spécimens six cahiers
 . de la deuxième, de la troisième, de la quatrième, de la
 “— cinquième, de la sixième, de la septième ou de la
-ie huitième série. ;
 Pour savoir ce qui a paru dans les cinq premières
 _ séries des cahiers, 1900-1904, envoyer un mandat de
 _ cinq francs à M. André Bourgeois, même adresse; on
@@ -7118,39 +5269,18 @@ Pour s'abonner à la dixième série des cahiers, qui
 commence avec le présent cahier, envoyer en un mandat
 à M. André Bourgeois, même adresse, le prix de l'abonnement; on recevra le présent cahier, et de quinzaine en.
 _ quinzaine, à leur date, les cahiers à paraître de cette
-dixième série. É
-à 74
-
-SEA WIN FR ABUS SR AIDER: à NAT RATS RUE NASA EN
-
-ar A te LÉRULA NRR HORS T RE AIRE MARNE RES NES
 
 an 3 LE GA RENE ANR AT DT APE Pen LCR ee RENTE
 
 TS EN TRE SAS ET A RIRE EV ASS RUES LT ne CE DE ATP: 197 Del Ar 2 né CES ARE
 
-as SH NES*, 0 ‘ 7 a y FU EASA mt Let
-
-CE U = (PA FR ré
-
-£ ; 1,7 2 MS RETIRE
-
-RAI EPST EE RE RQ Ar : è 2 OR ROME
-
-RÉ GA LEE x £ à LEONE
-
-QE TETE RTE MR CRT AR RES
-RES QU Er M EE er ND MAROC PE 73 RHAPARENAS MCE Toner
-
 ONCE ET RCE EUR TES SAN ATOS MONT dr LUN RS LR nu
 
-D RES
 | CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 D re-de-chaussée, Paris, cinquième arrondissement.
 4 Nos Cahiers sont édités par des souscriptions men-
  suelles régulières et par des souscriptions extraordiFa naires; la souscription ne confère aucune autorité sur
 M la rédaction ni sur l'administration: ces fonctions
-… demeurent libres.
 “_ Nos Cahiers paraissent par séries; une série paraît .
 :4 dans le temps d'une année scolaire, d'une année
 …._ ouvrière, d'octobre-novembre à juin-juiliet; l'abonne- CRSPE
@@ -7160,10 +5290,7 @@ l'année, mais l'abonnement ainsi souscrit est, de droit,
 … valable pour la série en cours. À
 Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série : :
-ë { Paris, départements, Alsace-Lorraine,
-Abonnement or- \ Algérie, Turisie.::+. vingt francs +
 dinaire ....... ) Autres pays de l'Union postale uni-
-+ | verselle........ vingt-cinq francs
 Abonnement sur whatman........... deux cents francs
 Lee, pour tous pays
 % Les exemplaires sur whatman, tirage non réimposé, È
@@ -7177,6 +5304,4 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 naturellement aux premières inscriptions; c'est ce numéro d'inscriplion qui devient automatiquement le
 … numéro du tirage réservé à chacun des souscripteurs ; Ré
 _ l'édition sur whatman est strictement limitée au
-nombre d'exemplaires à chaque instant souscrit.
 Le _à reine morte. — 19.
-NE ;

@@ -7,13 +7,9 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3395
 ---
-
-*Charles Péguy*
-
 La Petite République du mardi premier janvier
 
 publiait cet article
-ÉVANOUISSEMENT
 
 quoi pense donc M.le commandant Cuignet? Sur la
 liste assez copieuse des témoins qu'il a cités, ne figure pas
@@ -28,7 +24,6 @@ annoté de la main même de l'empereur, et retourné à Paris
 avec une lettre de recommandation pour Dreyfus ; que c'est
 ce bordereau qui a été saisi, et qu'ensuite on l'a décalqué
 sur papier pelure en négligeant les notes inscrites par
-Guillaume IT. »
 
 Nos lecteurs se souviennent assurément qu'il y a quelques
 jours nous avons cité in extenso le passage de l'article de
@@ -39,11 +34,8 @@ peine annonçait-il le terrible coup de théâtre qu'il préparait, que nous avo
 nous lisent : « Attention! et ne manquez pas ce spectacle. »
 Nous-même nous attendions avec une hâte fiévreuse que le
 sublime impresario esterhazien levät le rideau sur ce grand
-drame social.
 
 Guillaume II démasqué par Rochefort, Dreyfus accablé, la
-
-Jean Jaurès
 
 conscience humaine qui a la faiblesse de croire maintenant
 à l'innocence de Dreyfus retournée, Henry réhabilité,
@@ -88,15 +80,12 @@ la guerre.
 
 il se décide à le cacher, rien ne nous assure qu'un samedi
 
-CONTINUATION DES PREUVES
-
 l'idée ne le reprendra point de déchaïîner l'ouragan. Un
 vieil Éole capricieux, dont le toupet blanchi remue à tous
 les vents, a dans ses mains l'outre des tempêtes. Comment
 la France pourrait-elle dormir? Ah! par pitié! que M. Rochefort ouvre toute grande l'outre des secrets tumultueux !
 Mieux vaut la tourmente, mieux vaut la guerre que l'état
 d'incertitude mortelle et d'insomnie obsédée où la France
-va être réduite!
 
 J'imagine que lorsque M. Rochefort a annoncé la production du bordereau impérial, il y a eu un grand émoi
 dans le monde nationaliste. Une consigne universelle de
@@ -128,7 +117,6 @@ réduits à des conjectures sur la date où les bandits ont
 fabriqué cette pièce extraordinaire, sur le rôle précis qu'ils
 lui destinaient, sur l'usage qu'ils en ont fait. C'est probablement la visite faite par M. de Munster à M. Casimir- ,
 
-Jean Jaurès
 Perier qui a suggéré à Henry et à ses acolytes l'idée d'élaborer ce document. Du moment que l'ambassadeur d'Alle- S
 magne, averti que le bordereau avait été saisi à son a.
 ambassade, était venu se plaindre au Président de la Répu- à
@@ -142,7 +130,6 @@ avait dù désarmer M. de Munster par la substitution au
 bordereau authentique d'un décalque où les mots écrits
 par l'empereur ne paraissaient plus. Les scélérats ont compté
 sur le mystère diplomatique pour risquer cette légende
-inepte.
 Bien entendu, ils ne destinaient pas la pièce à la publi- x
 cité, pas plus d'ailleurs qu'ils n'y destinaient le faux Henry
 lui-même. Elle devait être montrée sous le manteau, épou- ÿ
@@ -162,8 +149,6 @@ Ayant besoin de substituer au bordereau sur lequel éclatait l'écriture d''Este
 pourexpliquer qu'on n'eùt pu montrer à personne, même aux
 juges, ce bordereau occulte, créer une circonstance extraordinaire. De là vint naturellement aux faussaires l'idée de
 mêler Guillaume IT en personne au bordereau. Qui pourrait s'étonner, dès lors, qu'on eût remplacé par une pièce
-
-CONTINUATION DES PREUVES
 
 qui püt être vue la pièce primitive, où l'empereur allemand
 était personnellement compromis? Le bordereau HenryRochefort a donc été probablement fabriqué dans le premier moment de désarroi qui suivit, à l'État-Major, les
@@ -198,7 +183,6 @@ laissé percer sans le vouloir ce que je viens de conjecturer.
 
 C'est bien, en effet, parce qu'ils avaient renoncé à se servir de la lettre de Guillaume fabriquée par eux, que les
 
-Jean Jaurès
 faussaires avaient fabriqué une autre pièce, moins difficile
 à manier, moins explosive, le faux Henry, quin'engageait
 plus directement un empereur, mais seulement des attachés
@@ -237,12 +221,8 @@ Et c'est pourquoi, ni au procès Cuignet ni ailleurs, Roche- L
 fort ne montrera le bout de son nez qu'il relevait l'autre
 jour d'un air de défi.
 
-JEAN Jaurès 1h
-
 Le capitaine Alfred Dreyfus avait écrit le mercredi 26 décembre au président du conseil une re-
 quête que nous lisons dans /a Petite République du
-samedi
-Mercredi 26 décembre 1900
 Monsieur le président du conseil,
 
 Je suis accusé, par certaine presse, d'avoir
@@ -250,36 +230,29 @@ adressé, en 1894, à l'empereur d'Allemagne, une
 lettre infâme qui, annotée par ce souverain, aurait
 été dérobée dans une ambassade et qui serait une
 preuve formelle du crime pour lequel j'ai été, par
-deux fois, injustement condamné.
 
 Le bordereau qui a été produit aux procès de
-1894, 1898 et 1899 n'en serait qu'une copie.
 
 Ce nouveau mensonge ne saurait, en raison de
 son origine, être traité par le mépris.
 
 Le journaliste qui le propage, qui le reprend
 nouveau, malgré dix démentis officiels, ne l'a pas
-inventé.
 
 Il n'est, d'après ce journaliste, que l'écho des
 confidences qui lui ont été portées, avec des faux
 impudents, par un émissaire de M. le général de
-Boisdeffre.
 
 Les photographies des fausses lettres de l'empereur d'Allemagne et du bordereau annoté ont été
 montrées à plusieurs reprises ; cette autre version
-mensongère a été racontée maintes fois ; demain,
 pour beaucoup d'esprits abusés, l'inepte légende
 serait la vérité.
 
-Alfred Dreyfus
 Mon innocence est absolue ; cette innocence, j'en
 poursuivrai jusqu'à mon dernier souffle la reconnaissance juridique par la revision.
 Je ne suis pas plus l'auteur du bordereau annoté
 par l'empereur d'Allemagne, qui n'est qu'un faux, 4
 que du bordereau original, authentique, qui est
-d'Esterhazy. -
 Sauf Henry, tous les principaux auteurs de mon
 inique condamnation sont encore en vie. Je ne suis
 pas dépouillé de tous mes droits; je conserve le
@@ -288,21 +261,17 @@ Le droit me reste donc, monsieur le président,
 de vous demander une enquête, et j'ai l'honneur de
 la solliciter.
 Veuillez agréer, monsieur le président, les assurances de mon profond respect.
-ALFRED DREYFUS
 Un de nos anciens abonnés nous a envoyé cette contribution aux Preuves
-Paris, 10 janvier 1901
 Mon cher Péguy,
 Puisque vous êtes de ceux qui tiennent qu'il y a toujours une affaire Dreyfus, vous devez penser qu'il est
 utile de continuer à l'étudier pour en éclaircir les obscurités. Je vous soumets donc une hypothèse qui vous l
 paraîtra sans doute, comme à bien d'autres, lever de
-nombreuses difficultés.
 Il s'agit du faux Guillaume, c'est-à-dire d'un bordereau sur papier fort, avec une annotation autographe
 de l'empereur d'Allemagne, où cette canaille de Dreyfus ÿ
 est nommée. Rochefort l'a vu et a failli le montrer par
 patriotisme. C'est encore un fait constant que le géné-
 ral Mercier en possède l'original ou un fac-similé, qu'il
 en fait état auprès de ses amis et qu'il y ajoute la plus
-grande importance.
 
 Or Jaurès, l'autre matin, dans son dernier article de
 spéculation sur l'affaire, a émis cette hypothèse que le
@@ -312,7 +281,6 @@ faux Henry et pour convaincre le général Billot, Rochefortet la princesse Math
 inadmissible. Les faussaires ne pouvaient avoir l'idée
 de ce faux et de ce roman rétrospectifs qui devaient
 infailliblement dévoiler leur crime. Le général Billot
-allait certainement en parler aux ministres survivants
 de 94, à M. Hanotaux par exemple, et ceux-ci lui révé-
 ler la supercherie. — Il est également impossible que
 le général Mercier fasse usage d'une pièce qu'il sait
@@ -327,9 +295,7 @@ même de l'affaire dont il est la clé. Voyez, en effet,
 comment s'expliquent facilement dans cette hypothèse
 les faits et les hommes
 Cette pièce est introduite en 94, nous rechercherons
-bientôt comment. MM. Dupuy, Hanotaux, Mercier, en
 
-Pierre Félix
 sont dupes. — De là leur émoi bien connu. De là leur
 terreur de l'ambassade d'Allemagne et la fameuse nuit k
 historique, jusqu'ici mal expliquée. Ils craignaient, ont-
@@ -356,7 +322,6 @@ dénonciation de M. Mathieu Dreyfus. On a prétendu
 qu'il avait apporté la pièce ce canaille de D. Mais
 Jaurès lui-même n'a pu expliquer comment cette pièce,
 jusqu'ici enfermée dansles tiroirs du ministère, pouvait
-être libératrice.
 
 Ce faux apporté par Esterhazy intimide le général
 
@@ -388,7 +353,6 @@ avec celle du décalque. Il me semble que, dans le temps,
 M. Millevoye a conté quelque chose d'approchant; du
 reste Esterhazy a prétendu et prétend qu'il a décalqué
 le bordereau pour le service du quatrième bureau, et
-Pierre Félix
 que, de la sorte, le bordereau sur papier pelure est bien
 de sa main.
 
@@ -397,7 +361,6 @@ de l'affaire et peut-être qu'en appuyant fortement dessus
 on ferait plus facilement jaillir la vérité. D'autant,
 remarquez-le, qu'il tend à prouver une certaine bonne
 foi, de la part de gens que nous avons crus seulement .
-criminels.
 
 Il n'est pas possible que ce faux ait produit tant de
 ravages, sans laisser de nombreuses traces même dans
@@ -414,7 +377,5 @@ génération bourgeoise d'aussi funestes effets que la loi
 Falloux elle-même.
 
 Bien à vous.
-
-Pierre Félix
 
 ---

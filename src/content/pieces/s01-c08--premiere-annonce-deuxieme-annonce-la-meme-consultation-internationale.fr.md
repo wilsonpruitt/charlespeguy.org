@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 11855
 ---
-
-*Charles Péguy*
-
 Mon ami, RC:
 Si tu étais encore à Paris, tu te serais fait un devoir À a
 et un plaisir d'assister à la conférence que le citoyen
@@ -17,7 +14,6 @@ Paul Lafargue a donnée à l'Hôtel des Sociétés Savantes, ‘ta
 rue Danton, le vendredi 23 mars, à huit heures du
 soir, sous la présidence du citoyen Édouard Vaillant
 et, comme on dit, sous les auspices du Groupe d'étu- Ÿ È à
-diants collectivistes, adhérents au Parti ouvrier français. ‘11
 Tu connais, pour en avoir fait partie, le Groupe des
 Étudiants Collectivistes de Paris. Je ne t'en ferai pas
 l'histoire, parce que je ne la sais pas, parce que tu la a:
@@ -66,11 +62,8 @@ de cette année scolaire, distribué parmi les étudiants
 
 des Facultés le programme du Groupe.
 Ce programme était ainsi disposé au recto
-GROUPE DES ÉTUDIANTS COLLECTIVISTES DE PARIS
-Fondé en 1893
 Siège social : 23, rue de Pontoise {près le square Monge)
 Aux Étudiants de l'Université de Paris
-Camarades,
 Au lendemain de la redoutable crise que nous venons de
 traverser, alors que les conquêtes les plus essentielles de la
 - civilisation moderne ont été menacées par un retour offensif
@@ -103,7 +96,6 @@ la doctrine et l'histoire du mouvement socialiste. Vous y
 rencontrerez, au milieu du scepticisme universel, les dé-
 vouements les plus purs, et ceux d'entre vous qu'un pessimisme superficiel aurait atteints en tireront cette conclusion
 que la vie vaut tout de même la peine d'être vécue.
-Camarades,
 
 Le Groupe des Étudiants Collectivistes de Paris fétait
 l'année dernière son sixième anniversaire. Depuis sa fon- Ç
@@ -124,46 +116,35 @@ tous les vendredis soirs à son siège social, 23, rue de Pontoise (près le
 square Monge), pour discussions, conférences, causeries, élaboration
 d'articles et de brochures. Il est en relation permanente avec les
 groupes d'étudiants socialistes de Lille, Lyon, Montpellier, Toulouse,
-Rennes, Bruxelles, Liège, Genève, Zurich, Berlin, Vienne, Prague, etc.
 et s'associe à toutes les manifestations de l'action socialiste nationale
 et internationale. Te:
 Il portait au verso le tableau de l'emploi du temps
-ANNÉE SCOLAIRE 1899-1900
 Conférences publiques à l'Hôtel des Sociétés Savantes
 Û DÉCEMBRE 1899 FRANCIS de PRESSENSÉ Le conflit transvaalien et l'impérialisme
-anglo-saxon
 JANVIER 1900 ÉMILE VANDERVELDE Le collectivisme et
 la concentration capitaliste
 . JEAN JAURÈS Bernstein et l'évolution de la doctrine socialiste
 : FévRIER GASTON MOCH L'organisation des
 milices et la suppression des armées per-
-manentes
 ENRICO FERRI Le socialisme et
 l'évolution
 de BROUCKÈRE  L'oplimisme économique au dix-huitiè-
-me siècle
 Mars GUSTAVE ROUANET L'antisémitisme
 AVRIL HECTOR DENIS Les premiers socia-
-listes français
 
-PREMIÈRE ANNONCE ï
 Causeries à l'intérieur du groupe, à son siège social, 23, rue de
 Pontoise, près le square Monge
 N. B, — Chaque Causerie est suivie d'une discussion générale sur
 la question traitée par le Conférencier.
-I. — DOCTRINE (
 s LOUIS RÉVELIN La théorie de la population dans
 professeur au Collège des Malthus et dans Marx
-Sciences Sociales
 JOSEPH SARRAUTE Le socialisme et la démocratie
 membre du Groupe ; L
 G. SOREL Les nouvelles conceptions sociaprofesseur à l'École de listes.
-Morale ‘
 LOUIS DE BROUCKÈRE La foule au point de vue socialiste
 professeur à l'Université (essai d'une pédagogie socialiste)
 nouvelle de Bruxelles
 HUBERT LAGARDELLE L'évolution du socialisme
-directeur
 du Mouvement Socialiste,
 membre du Groupe
 BERNARD LAZARE L'antisémitisme u
@@ -174,7 +155,6 @@ MARCEL LANDRIEU L'erreur biologique en sociologie
 membre du Groupe
 ÉMILE BURÉ Communisme et anarchisme
 membre du Groupe
-II. — LÉGISLATION OUVRIÈRE
 Docteur FAUQUET L'inspection du travail en France ‘à
 membre du Groupe
 HUBERT LAGARDELLE Le truck-system
@@ -189,8 +169,6 @@ ANATOLE DE MONZIE La nouvelle loi sur les syndicats
 membre du Groupe ouvriers
 HENRI THIROUX La protection légale des femmes
 membre du Groupe en couches dans la classe ouvrière
-III. — ORGANISATION OUVRIÈRE
-&) ORGANISATION ÉCONOMIQUE
 BRIAT Les institutions de la Bourse du
 membre de la Commission Travail de Paris
 consultative de la Bourse
@@ -201,7 +179,6 @@ ex-secrétaire-général du transport
 Syndicat des Chemins de fer
 k MARTINET L'organisation corporative des
 secrétaire du Syndicat des employés
-ÿ employés
 MARCEL MAUSS Les trade-unions anglaises
 agrégé de philosophie, 1
 membre du Groupe
@@ -212,13 +189,10 @@ agrégé de philosophie magne
 OLIVIER La coopération en France
 membre du Groupe
 PREMIÈRE ANNONCE je
-b) ORGANISATION POLITIQUE
 LOUIS RÉVELIN L'unité socialiste en France j
 LOUIS DUBREUILH L'unité socialiste et les grandes
-rédacteur organisations ;
 à la Petite République
 ALBERT RICHARD Organisation politique et organidu Parti ouvrier socialiste sation syndicale
-révolutionnaire ; F
 PAUL FAUCONNET Le parti démocrate socialiste alleagrégé de philosophie mand
 SZMÉRÉ Le parti socialiste autrichien
 membre du Groupe y
@@ -269,22 +243,13 @@ en mieux réussies, ont lieu selon un cérémonial traditionnel de mieux en mieu
 et qui est annoncé presque invariablement sur l'affiche,
 
 () Et non pas le 10, comme l'indique le Mouvement par une erreur
-typographique,
 
 dans les bulletins et dans les journaux. Voici le schème
 de cette annonce
-GROUPE DES ÉTUDIANTS COLLECTIVISTES DE PARIS
 Lundi premier janvier 1900, à huit heures et demie du soir
-HOTEL DES SOCIÉTÉS SAVANTES
-rue Serpente !
-CONEF RER EMNCE
 par le citoyen
-CONFÉRENCIER
 Professeur au Collège des Sciences sociales, député socialiste
-au Parlement français j
 sous la présidence du citoyen
-PRÉSIDENT
-SOCIALISME ET BOURGEOISIE
 
 Entrée : cinquante centimes; places réservées : un franc.
 
@@ -314,14 +279,12 @@ et d'étude, et non pas ce que l'on est malheureusement
 forcé de nommer des réunions publiques. À plus forte
 raison n'ont-elles rien, mais rigoureusement rien de
 commun avec les réunions électorales. Toujours la discussion y est sérieuse et courtoise. Il n'y a jamais là
-aucun incident désagréable.
 
 Ou plutôt il n'y avait jamais eu là aucun incident vraiment désagréable, quand le Groupe des Étudiants collectivistes résolut de sacrifier, lui aussi, à ce besoin de concorde qui travaille évidemment le monde socialiste. Ou
 bien voulut-il faire à Jaurès le plaisir d'inaugurer avec
 lui aux Sociétés Savantes la méthode évangélique ré-
 cemment instituée par le citoyen tribun. Toujours est-il
 que pour la conférence de Jaurès la présidence fut d'un
-commun accord attribuée au citoyen Marcel Sembat.
 
 Tu as lu dans /a Petite République du dimanche 18 fé-
 vrier le compte rendu de Gaston Cagniard : « Un punch
@@ -336,7 +299,6 @@ paroles que je ne puis m'empêcher de citer
 () Rectification peu importante : le punch a lieu ordinairement
 dans la même salle. Des citoyens garçons, s'il est permis de parler
 ainsi, passent après la conférence et distribuent des consommations
-aux citoyens consommateurs,
 
 c'est qu'à travers cette mêlée, ce tumulte des élé-
 ments il agisse toujours avec sa conscience de classe,
@@ -396,7 +358,6 @@ tents de le maintenir, que ce manifeste était bien
 
 fait. Telles furent à peu près les paroles du prince pré-
 sident. Elles jetèrent un froid, comme on dit. Jaurès dut
-répliquer quelques mots. Plusieurs citoyens laissèrent
 échapper plusieurs appréciations sévères : Il nous fait
 dire ce que nous n'avons jamais dit. C'est odieux. C'est
 infâme. Ainsi plusieurs jeunes citoyens sincères laissaient échapper des paroles dreyfusistes.
@@ -438,7 +399,6 @@ vaguement aperçu le Socidiste, Organe central du
 Parti Ouvrier Français, paraissant le dimanche (1); ils
 - pouvaient donc se nommer étudiants. Ils se nommèrent
 Étudiants. Is se nommèrent Collectivistes. Ils se nommèrent de Paris. L'assemblage fortuit de ces intitulés
-incontestablement légitimes pouvait presque donner
 Groupe des Étudiants Collectivistes de Paris. Mais par
 une heureuse intervention de la modestie habituelle aux
 citoyens guesdistes, l'assemblage ne donna que ces
@@ -505,14 +465,11 @@ averti pouvait n'en pas voir et n'en pas faire la difé-
 rence. Le Groupe des redouta sans doute, cette fois
 encore, la confusion, car je lis dans l'Aurore du jeudi
 mars, au Bulletin social, cet avertissement : l
-ÉTUDIANTS COLLECTIVISTES
 Le groupe des étudiants collectivistes de Paris nous in-
 forme que la conférence de vendredi soir, à l'hôtel des
 Sociétés savantes, n'est point organisée par lui.
 
-Wir Aie Wir) 0 Rs tre T2. di! ” ANT
 Elle l'est, en effet, par le groupe des étudiants collecti-
-vistes adhérent au Parti ouvrier français.
 Je résolus de t'envoyer une image fidèle de la confé-
 rence elle-même. Je ne pouvais y assister, car la situa- à
 tion géographique de ma maison et les interdictions
@@ -537,7 +494,6 @@ sténographes aux doigts diligents. Je te prie de n'oublier j
 pas que la plupart des discours livrés par la sténographie à la mémoire des hommes sont avant l'impression revus, relus, amendés, corrigés, au moins éche- #4
 nillés par les orateurs. Il n'en est pas de même ici, et
 tu dois en tenir compte à l'avantage des intéressés. Je
-me suis permis d'ajouter quelques notes à peine, ayant
 à souligner, ou à éclaircir quelques passages. Mais ces
 notes ne passent pas l'expression des réflexions inté-
 
@@ -566,77 +522,50 @@ le Socialiste a donné la conférence toute seule, sans
 l'introduction du citoyen Vaillant, sans les interruptions et, sans doute, sans la discussion suivante. Nous
 avons, nous, à présenter une image de tout cela.
 
-DEUXIÈME ANNONCE ‘
 Mon ami, 4
 Si tu étais à Paris, tu serais allé à la grande fête organisée pour le vendredi 13 avril, avant-veille de Pâques,
 par la Petite République.
 Dès le numéro daté du samedi 7, le journal avait annoncé cette fête. Les lundi 9, mardi 10, mercredi 11,
 jeudi 12, vendredi 13, une grande annonce occupait tout
 le nord-est, presque jusqu'au milieu en hauteur, de la
-première page.
 L'annonce du jeudi 12 portait en outre l'avis suivant:
 Les citoyens dont les noms suivent sont invités à retirer,
 aujourd'hui ou demain, de 6 heures 1/2 du soir à 8 heures, à
 LA PETITE RÉPUBLIQUE, leurs cartes de commissaires
 pour la soirée de vendredi, à la Porte-Saint-Martin
-Beauvais, F. Bigot, Boivin, Borjon, Briaux, Émile Buré,
-Eugène Cast..., F. Château, Cherchilliez, F. Dumas, Dunan, û
 Dutheil, E. Givort, Gourdeau, L. Jousseaume, Lecoint,
 Edgard Longuet, Jean Longuet, Massieu, Mauclair, L.
-Modé, Ollivier, Paul-Martin, J. Rausch, Rougerie, Roulon,
-A. Surier, Docteur Thiroux, Ph. Walter.
 L'annonce habituelle était à peu près disposée ainsi:
-THÉATRE CIVIQUE
 Représentation du vendredi 13 avril 1900
-AU THÉATRE DE LA PORTE-SAINT-MARTIN
-CONFÉRENCE De JEAN JAURÈS
-DUT TEASER ET
-PRÉSIDENCE D'ANATOLE FRANCE
-Programme
-M. COQUELIN
 Poèmes de Victor Hugo
 Mademoiselle LOUISE GRANDJEAN (de l'Opéra)
 Air de Fidelio (Beethoven)
 M. RENAUD (de l'Opéra)
 La Romance de l'Étoile (Richard Wagner), accompagnée par M. LÉON MOREAU;
 Les seuls Pleurs (Camille Erlanger), accompagnés par l'auteur,
-Madame SEGOND-WEBER
 Poèmes d'Alfred de Vigny
 Mesdemoiselles RIOTTON et MARIÉ DE L'ILE (de l'Opéra-Comique)
 M. ISNARDON (de l''Opéra-Comique)
-Mademoiselle YAHNE
 Poèmes d'Alfred de Musset
-“= M. DE MAX
-Jeunes soldats (Lamennais)
-Mademoiselle BLANCHE DUFRÊNE
 Poèmes de Pottier
 
-M. GÉMIER
 Un apologue d'Anatole France
-LA RONDE DES COMPAGNONS
 (avec chœurs)
 De GUSTAVE CHARPENTIER, dirigée par l'auteur
 On loue, dès maintenant, des places dans les bureaux de la Petite République,
-rue Réaumur.
 Pour les avant-scènes, baignoires, loges de première, on traite de gré à gré.
 S'adresser à la direction du journal.
 Fauteuils d'orchestre, fauteuils de balcon, 5 francs: deuxième balcon, 3 francs;
-troisième balcon, 2 francs; stalles d'amphithéâtre, 1 fr. 50; amphithéâtre, 1 franc,
-(ON PEUT RETENIR SES PLACES PAR CORRESPONDANCE)
 
-DEUXIÈME ANNONCE
 Le dernier jour, samedi 14, la récapitulation des ar-
-tistes présente quelques modifications.
 Tu connais beaucoup moins ces fêtes que tu ne connais les conférences données à l'Hôtel des Sociétés savantes par le Groupe des Étudiants Collectivistes. Elles
 sont beaucoup plus récentes. La première, à ma connaissance, remonte à peu près au temps où le socia-
 lisme avoisinait avec le dreyfusisme et où le dreyfu-
-sisme rendait beaucoup. J'aurais été heureux d'aller
 celle-ci à ton intention. Mais je ne le pouvais, pour la
 raison dessus dite. Heureusement que le camarade
 Émile Boivin, toujours ami des grandeurs, s'était fait
 nommer commissaire. J'ai eu ainsi quelques renseignements. Nul n'ignore que les commissaires sont des
 citoyens qui organisent le service d'ordre et seréservent
-plusieurs fauteuils d'orchestre.
 Il y aurait beaucoup à dire et sans doute assez à criti-
 quer sur et dans ces nouvelles cérémonies. Nous le ferons
 dès que j'y aurai pu assister. En attendant je veux et je
@@ -648,7 +577,6 @@ des citoyens, au milieu toutes les gradations indispensables. Disposition non pa
 distribution automatique selon les gradations des prix
 des places. Contribution précieuse à la théorie ou,
 comme on dit, à la conception matérialiste, en attendant la théorie mathématique, de l'histoire des repré-
-sentations théâtrales.
 . Au moment où le public, avant toutes les représenta21 x
 
 tions, commence à s'impatienter, au moment où les spectateurs des galeries sublimes scandent rigoureusement
@@ -658,9 +586,7 @@ expression technique : au rideau, au rideau, à ce
 moment les citoyens d'en haut entonnèrent en chœur
 l'Internationale.
 
-Onse fût d'abord imaginé quelque congrès national
 ou international. Mais bien loin que l'hymne socialiste
-révolutionnaire fût chantée en chœur, au moins au
 refrain, par toute la salle enthousiasmée, loin de là
 — couplets moins denses et refrain dense et large
 
@@ -681,22 +607,16 @@ malsain, et soulignant désagréablement l'incohérence
 morale de la fête, amusement douteux que de verser
 d'en haut sur les crânes inférieurs le refrain que l'his22
 
-DEUXIÈME ANNONCE
 toire nous interdit malheureusement de ne pas prendre
 ‘au sérieux : Le
-Ah! ça ira, ça ira, ça ira
 Tous les bourgeois à la lanterne!
-Ah! ça ira, ça ira, ça ira k
 Tous les bourgeois on les pendra!
 Le rideau levé Anatole France lut une allocution que
 je relis dans la Petite République du dimanche 15, inti- ÿ
-tulée
 l'Unité de l'Art
 et présentée ainsi : É
 Voici le texte de l'allocution prononcée par Anatole France à la
 représentation du Théâtre-Civique, qui a eu lieu hier soir à la Porte- -
-Saint-Martin
-Citoyennes, citoyens, i
 Si je prends la parole, c'est pour la donner à Jaurès.
 Je ne suis pas moins impatient que vous de l'entendre.
 Il va nous entretenir des destinées de l'art dans les pro-
@@ -745,7 +665,6 @@ qui n'est pas artiste.
 Effaçons, citoyens, ces distinctions inintelligentes,
 renversons celle méchante barrière, et considérons l'indivisible unité de l'art dans ses manifestations infinies.
 
-DEUXIÈME ANNONCE
 Non! Il n'y a pas deux sortes d'arts, les industriels et
 les beaux; il n'y a qu'un art qui est tout ensemble industrie et beauté, et qui s'emploie à charmer la vie en
 multipliant autour de nous de belles formes, exprimant
@@ -753,7 +672,6 @@ de belles pensées. L'artiste et l'artisan travaillent à la
 même œuvre magnifique; ils concourent à nous rendre
 agréable et chère l'habitation humaine, à communiquér
 un air de grâce et de noblesse à la maison, à la ville, au
-jardin. k
 
 Ils sont semblables l'un à l'autre par la fonction. Ils
 sont collaborateurs. L'œuvre de l'orfèvre, du potier de h
@@ -772,8 +690,6 @@ statue ou choisi les tons d'un tableau.
 Venez donc, vous par qui les objets usuels sont revé-
 tus de beauté, venez en foule harmonieuse, venez graveurs et lithographes, mouleurs du métal, de l'argile et
 du plâtre, fondeurs de caractères et typographes, imprimeurs sur étoffe et sur papier, peintres de décors, bijou-
-tiers, orfèvres, potiers, verriers, tabletiers, brodeurs,
-tapissiers, gainiers, relieurs, artisans, artistes, consola- è
 teurs, qui nous donnez la joie des formes heureuses et
 des couleurs charmantes, bienfaiteurs des hommes,
 
@@ -801,12 +717,10 @@ pour toi, puisque la Petite République du lundi
 annonçait que « nos camarades du Mouvement Socialiste ont fait sténographier le superbe discours de
 Jaurès sur l'Artet le Socialisme. Us le publieront dans
 le numéro qui paraîtra le premier mai. Adresser les
-demandes au Mouvement Socialiste, 17, rue Cujas. »
 Quand Jaurès eut parlé, des messieurs d'en bas admiraient disant : Les théories sont fausses; mais comme
 c'est beau!
 Les éminents artistes furent vivement goûtés.
 
-LA CONSULTATION INTERNATIONALE Gi)
 Le camarade Charles Rappoport nous a fait judicieu- hi
 sement observer que la consultation internationale que
 nous avons reproduite n'aurait pas un caractère scientifi-
@@ -820,7 +734,6 @@ Le Socialiste ainsi daté : Dimanche 20-27 Août 1899, ; è
 publiant le compte rendu officiel du dix-septième Con- EUX
 grès national du Parti ouvrier français, tenu à Épernay
 les 13, 14, 15 et 16 août, publiait en effet cette réponse
-LETTRE DE LIEBKNECHT
 Mes chers amis, .
 Vous savez que je me suis fait une règle de ne pas me
 mêler des affaires des socialistes des autres pays. Mais
@@ -831,7 +744,6 @@ socialistes qui ont des vues différentes des vôtres se sont
 aussi adressés à moi, je n'ai nulle raison de vous cacher ce
 que je pense. Et après tout, est-ce une affaire étrangère
 pour nous socialistes Allemands, ce qui vous occupe en
-France ?
 
 4: Vraiment, le socialisme est international, et chaque jour
 il le devient davantage. Nous sommes une nation pour nous,
@@ -871,14 +783,12 @@ simplement impossible. Et le malheureux socialiste qui par
 hasard entre dans un tel gouvernement, s'il ne veut pas
 x trahir sa classe, est condamné à l'impuissance. La bourgeoisie anglaise a compris cela depuis un siècle, et c'est
 
-CONSULTATION INTERNATIONALE LiEeBkNECHT és, ÿ
 une pratique systématique de tous ses gouvernements V5 1
 que le membre le plus radical de l'opposition, qui est te Re
 assez naïf pour se prêter à ce jeu, est pris dans le gou- \4 84
 vernement. Il sert comme couverture et désarme ses amis, a
 qui ne peuvent pas tirer sur lui; comme, dans une ba- LOS
 taille, on ne peut pas tirer sur les otages mis en avant par >: 2
-- l'ennemi.
 Voilà ma réponse à la question relative à l'entrée d'un
 socialiste dans un gouvernement bourgeois. - AVE
 Je passe maintenant à l'autre question, à celle de l'unité. 1274
@@ -909,7 +819,6 @@ Nous ne pouvons pas transiger, nous ne pouvons pas én
 conclure un pacte avec ce système; il faut rompre, et certes pu
 ce n'est pas la classe dominante et exploitante qui lui don- / FRONE
 nera le coup de grâce. C'est pourquoi l'Internationale a } 42
-ACER Fes 14 Nail
 
 prêché au prolétariat que l'émancipation des travailleurs ne
 peut être que l'œuvre des travailleurs eux-mêmes.
@@ -918,19 +827,15 @@ humanité, se mettent du côté des socialistes, mais ce sont
 des exceptions; — la masse de la bourgeoisie a la conscience
 de classe — et de classe dominante et exploitante. Elle est
 plus consciente de ses intérêts que la masse du prolé-
-tariat.
 
 Je conclus : vous m'avez demandé mon opinion; je vous
 l'ai donnée. A vous de faire ce que les principes et les inté-
 rêts de notre parti vous ordonnent de faire.
 
-Salut fraternel au Congrès d'Épernay.
 Vive la France ouvrière et socialiste!
 Vive le Socialisme international.
-WiLHELM LIEBKNECHT
 La Petite République a bien voulu nous communiquer
 ï les quelques réponses qu'elle n'a pas publiées
-DOCTEUR CHARLES SCHIDLOWSKI
 
 Le docteur Charles Schidlowski (1) est un socialiste révolutionnaire
 russe. Un jeune militant doublé d'un philosophe. Dans la littérature
@@ -943,12 +848,9 @@ dialectique de Hegel et de Marx. Ecrivain de talent, il est un des
 s'inspire à la fois du socialisme moderne et de la vieille tactique du
 Parti de la Volonté du Peuple{Narodnaja Vola), et dont il dirige, avec
 ses amis, l'organe l'Ouvrier Russe {Rousski Rabotschi), paraissant
-Genève.
 
 Il nous prie d'ajouter qu'il n'engage pas son organisation par son
 opinion sur la participation d'un militant socialiste au pouvoir ministériel, cette opinion lui étant personnelle.
-
-Chers camarades,
 
 La juste solution des questions posées par vous n'est
 possible, selon moi, qu'à la condition que l'on conçoive la
@@ -957,7 +859,6 @@ lutte de classe d'une manière également juste.
 (1) Au cinquième cahier, page 9, reproduisant les questions mêmes
 adressées par la Petite République aux militants socialistes intérna-
 
-CONSULTATION INTERNATIONALE SCHIDLO WSKI ne
 Il y avait un temps où l'on croyait — et bien des socia- D,
 listes le croient encore — que la révolution sociale résulterait d'une lutte désespérée du prolétariat, misérable et ne
 profitant d'aucune manière des biens que met à notre dis- RU
@@ -985,7 +886,6 @@ pouvoir dans la société actuelle. En effet, il n'y a pas
 d'action commune possible entre les socialistes, qui
 cherchent à détruire l'ordre existant, et les représentants
 de la bourgeoisie, qui ne songent qu'à conserver ce que les
-socialistes attaquent. : ‘&
 tionaux, nous avons écrit son nom :, Schiflonski. Nous prions nos *°4
 lecteurs de vouloir bien faire la rectification. Nous faisons tout ce en.
 que nous pouvons pour éviter de semblables erreurs. Nous savons « 4
@@ -1031,7 +931,6 @@ les socialistes forcent les classes bourgeoises à faire des
 concessions aux classes travailleuses. Mais pour y arriver
 il est nécessaire de cesser de considérer toutes les classes
 
-CONSULTATION INTERNATIONALE SCHILDLO WSKI h
 bourgeoises comme formant un bloc réactionnaire. Il est
 nécessaire de classer les groupes selon leur caractère plus k
 ou moins réactionnaire, selon leur disposition plus ou
@@ -1111,17 +1010,9 @@ En agissant de la sorte, nous hâterons plus sûrement le
 jour de la délivrance définitive hors de l'ordre bourgeois
 déjà compromis.
 
-Salut fraternel.
-
-Docteur CHARLES SCHIDLOWSKI
-
-CONSULTATION INTERNATIONALE
-DOCTEUR BORIS KRITCHEWSKI
-
 Membre de la Rédaction de la revue Rabotcheïe Délo {la Cause Ft
 Ouvrière), organe de l'Union des Socialistes-Démocrates-Russes
 l'étranger, et collaborateur des revues et journaux socialistes allemands.
-pris part au mouvement révolutionnaire russe, en 1883-1884.
 
 Arrêté en décembre 1884, il a subi près de deux années de prison !
 « préventive », et fut ensuite, par ordre administratif, mis, pour
@@ -1135,8 +1026,6 @@ Avant d'être élu membre de la rédaction du Rabotcheïe Délo, a ns
 publié, entre autres, des brochures de propagande socialiste pour j
 les ouvriers russes.
 
-Chers citoyens, ÿ
-
 Les réponses déjà publiées ont fait ressortir, au sujet de
 votre première question, une rare unanimité du socialisme
 international. La question est jugée et bien jugée. Si je
@@ -1147,7 +1036,6 @@ observé les événements de près, je réussirai peut-être
 L'affaire Dreyfus n'est pas la première crise que la Répu-
 blique ait eu à traverser. C'en est, après le boulangisme, k
 après le Panama, la troisième. Cela fait trois crises en dix
-ans.
 
 Karl Marx a appelé la France la terre classique des luttes
 de classe. On peut dire aussi que la troisième République
@@ -1209,7 +1097,6 @@ Dreyfus, les intérêts de la démocratie sont en jeu.
 ÿ En prenant parti dans l'affaire Dreyfus, le prolétariat a
 lutté contre ses propres ennemis. Et son action était d'autant plus nécessaire que les éléments plus ou moins démo-
 
-CONSULTATION INTERNATIONALE Krrrcnewski
 cratiques de la bourgeoisie, abstraction faite des intellectuels ,
 agissant en dehors des partis bourgeois, ont trop longtemps
 déserté leur devoir, ont trop longtemps pensé aux circonscriptions, au lieu de penser aux intérêts véritables de
@@ -1286,7 +1173,6 @@ le pouvoir ministériel représente l'ensemble de l'ordre capitaliste dont il a 
 parti prolétarien ne saurait, sans renier le principe de la
 lutte de classe, assumer cette charge et cette responsabinus lité-là.
 D'une façon générale, ceux des socialistes qui croient
-CONSULTATION INTERNATIONALE KRITCHEWSKI #4
 une réalisation pacifique et pour ainsi dire subreptice du
 socialisme peuvent seuls admettre la prise de possession (8
 partielle du pouvoir gouvernemental quelle que soit la si- à
@@ -1307,7 +1193,6 @@ tation et de la propriété individuelle des moyens de pro- 5"
 duction, l'ordre socialiste supprime toute exploitation et
 toute propriété individuelle des moyens de production.
 Aussi le seigneur féodal pouvait-il s'adapter à la société es
-bourgeoise en se transformant en propriétaire capitaliste, É;
 en s'embourgeoisant ; le capitaliste, au contraire, devra tout
 simplement disparaître en régime socialiste, la socialisation
 des moyens de production ayant supprimé sa raison d'être
@@ -1370,7 +1255,6 @@ que le pouvoir bourgeois capitule devant la force socialiste,
 le parti socialiste peut et même, selon les cas, doit prendre
 acte de cette capitulation et faire entrer les siens dans le
 
-CONSULTATION INTERNATIONALE KRITCHEWSK1
 gouvernement avec un programme bien défini et adapté
 la situation exceptionnelle.
 
@@ -1384,7 +1268,6 @@ de la défense de la démocratie contre un péril réactionnaire, contre un coup
 hypothèse, la participation des socialistes au gouvernement
 bourgeois ne peut devenir nécessaire et, par conséquent,
 admissible, au point de vue du principe de la lutte de
-classe.
 
 Certes, le parti socialiste ne doit pas marchander son
 concours à un gouvernement de défense démocratique, il
@@ -1394,14 +1277,12 @@ périlleux, sous peine d'encourir des reproches mérités et de
 voir son prestige diminuer. Et d'ailleurs, la participation
 des mandataires du parti socialiste au pouvoir ne constitue- ÿ
 t-elle pas la meilleure garantie d'une défense démocratique
-efficace ?
 
 Les socialistes de tous les pays n'hésitent pas à marcher
 la main dans la main avec les partis d'opposition démocratique pendant les élections, bien que, dans la plupart des
 cas, aucun des intérêts majeurs de la démocratie n'y soit en
 jeu. Raison de plus pour le parti socialiste de participer au
 pouvoir gouvernemental lorsqu'il y est appelé par des gouvernants bourgeois à bout d'expédients pour défendre la
-démocratie en péril.
 
 Il va sans dire, je l'ai déjà indiqué, que c'est toujours au
 parti socialiste organisé qu'incombera le droit et le devoir
@@ -1432,10 +1313,7 @@ la tête haute, aux portefeuilles ministériels après avoir
 achevé une œuvre de salut démocratique. Dans l'un et
 l'autre cas, le parti socialiste sortira de l'épreuve ministé-
 rielle grandi et fortifié.
-Salutations socialistes.
-Boris KRITCHEWSKI
 
-LE MAGICIEN
 Reims fit asseoir Zachée pendant qu'on emplissait
 sa besace.
 Le vieux s'informa de Clément
@@ -1453,7 +1331,6 @@ d'une Promesse.
 — Et quelle Promesse !
 — Il a voulu jouir tout de suite. Il s'est laissé
 tenter par des sons, par des contacts — par des
-parfums.
 — Depuis dix-neuf siècles, ses ancêtres vivent
 
 dans la foi — lui, s'est révolté contrela volonté du
@@ -1464,9 +1341,5 @@ que tous les êtres n'eussent pas dans leur mémoire
 la même vision que lui : Jésus sur une ânesse dans
 les rues de Jérusalem.
 Reims entendit au loin sa clarinette.
-i ; rie
-d Jeu
-TES
-r = +, FONENE
 
 ---

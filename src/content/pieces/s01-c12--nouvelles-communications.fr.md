@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 16840
 ---
-
-*Charles Péguy*
-
 Nous publions ces communications comme elles nous
 sont parvenues avant les vacances.
 
@@ -26,8 +23,6 @@ ici qui soit de taille. Ceux de nos camarades qui ont
 ” quelque instruction et quelque facilité de parole sont
 muselés par leur fonction. Il faut que nous dénichions
 à Paris un solide contradicteur. Pourriez-vous demander à quelqu'un du comité général.
-GusTAvE LEBLOND,
-Professeur d'histoire au Lycée d'ici.
 Nous recevons des communications de plus en plus nombreuses.
 ÿ Nous insérons toutes celles que nous pouvons. Nous n'attendons
 pas que nous puissions donner réponse. Il y aurait encombrement.
@@ -37,7 +32,6 @@ Lantier. Nous prions nos correspondants de vouloir bien avoir
 quelque patience. Nous aimons mieux leur envoyer des réponses
 délibérées que des bavardages hâtifs.
 
-FR ED Le RE Me CET ARNO D TITI S UT NÉE S TOR ESS LU NUE sv"
 douzième et dernier cahier de la première série ‘| à
 ‘ Citoyen Péguy, puisque vos cahiers sont une insti-
 tution, je me permettrai, comme socialiste, d'attirer a
@@ -70,7 +64,6 @@ passé vingt-sept mois de prison. Je lis dans les Temps
 Pozicr. — À Chalon-sur-Saône, les gendarmes chargeant e
 brutalement la foule, un d'eux reçut une pierre. Immédias
 
-à 5 NOUVELLES COMMUNICATIONS
 tement ils sortirent leurs revolvers et tirèrent vingt-trois
 UE: . balles (c'est le chiffre qu'ils donnent eux-mêmes) dans le tas
 SUR _ des fuyards : trois morts et de nombreux blessés.
@@ -84,34 +77,26 @@ depuis 1896 pour vagabondage.
 és Le procureur requiert une peine sévère.
 Le _  Marinier est condamné à un mois de prison, maximum
 É . de la peine, pour outrages, et à seize francs d'amende pour
-154 Jort d'armes prohibées.
 -_ Lassacq, inculpé de violences et d'outrages, deux mois
 et avec bénéfice de la loi de sursis. s
 2 .  Bonnardot, coups de pierres aux agents et outrages, trois
 mois et seize francs d'amende. x
 Genty, mêmes inculpations, quatre mois de prison et
-Se _ seize francs d'amende.
 Denis Gros, mêmes inculpations, et port d'armes prohi-
 - bées, six mois de prison, seize francs d'amende, cinq francs
 - pour contravention à un arrêté municipal.
 de RU Marius Gros, mêmes inculpations, mêmes condamnätions.
 ÿ En à Caiïllet, violences et contravention, trois mois de prison, k
 seize francs d'amende et cinq francs pour contravention.
-Bague, mêmes inculpations, deux mois, seize francs
 …_. d'amende, et cinq francs pour contravention.
-Merle, mêmes inculpations, condamné seulement à cinq
-francs d'amende.
 Fu _ Matron, inculpé d'injures à la gendarmerie, dix jours de Na
 prison et cinq francs d'amende.
 EDR L'exagération de ces peines produit ici un effet déplo-
-- SR P dep
-Lu  rable(r).
 “as 537 Ayant oublié ainsi les condamnations, elle s'est
 abstenue de faire campagne en faveur de la grâce. es
 (1) La Petite République a oublié d'enregistrer ces condamnations. DR se
 RES Note des Temps Nouveaux. ‘Re
 
-SARA RS: DRAP PRET CN RER RARE POI EEE 720 RCE
 douzième et dernier cahier de la première série
 ! Et combien de faits semblables trouverait-on. Ne
 sont-ce pas là de véritables procédés nationalistes, avec em
@@ -125,24 +110,15 @@ abandonner à eux-mêmes ceux dont vous vous êtes. re Fi
 fé constitués les défenseurs, c'est, ce me semble, payerun
 peu cher l'entrée d'un socialiste au ministère. 2 2) APRES RER
 Salutations socialistes et de plus en plus révolution
-ET $ RENE
-LOUZON, ENS ERESCUrSS
-boulevard Émile Augier, Paris re
 Un jour que votre ami Pierre Baudouin sera moins
 assommant que la dernière fois, récompensez-le en Lui ….
 ménageant un facile triomphe : demandez-lui qui ns
 différence il peut y avoir entre une affiche électorale et se
 cette affiche éditoriale : pure Her OR À
-ETAPE NON
-VIENT DE PARAITRE LH
-d SR REED EN ELA a VS APE « x QUO VADIS F4 PAS
 Roman des temps néroniens, par HENRYK HE NEA
-SIENKIE WICZ [TT ARE Se
 } ÿ (Un volume grand in-18 de 650 pages, à 3 francs 50) Pen
 f Quo Vadis ((Où vas-tu? »), qui, sous une forme oma- IAA
 nesque, met en conflit le christianisme en Les période aus
-Are Re
-ES |. NOUVELLES COMMUNICATIONS Abe.
 pe 1, héroique et le paganisme à son apogée, apparaît comme le
 chef-d'œuvre de Sienkiewicz et de la littérature polonaise
 Kt _ et comme une des œuvres capitales de la littérature univer- >
@@ -179,7 +155,6 @@ d'épisodes, qui fait de ce livre de 650 pages un livre trop FNHES
 Au courant de la plume j'ai corrigé une faute d'ortho- #4 FR
 - graphe et plusieurs fautes de typographie. Je n'ai pas ie
 corrigé les fautes de français, parce que dans les classes Que
-DORA : VA PLU te
 douzième et dernier cahier de la première série De
 de lettres je n'enseigne rien que les mathématiques. Je
 me suis demandé longtemps ce qui avait pu se passer 4]
@@ -198,7 +173,6 @@ qu'il fait, il s'est laissé aller par ennui et décourage- ‘4
 ment, par dégoût de la servitude et maladresse fade
 laisser passer toutes ces incorrections commerciales. rt
 Que s'il a voulu de lui-même corser son style, je le- te. »
-plains. 1 QE
 Remarquez bien que je n'en veux pas pour cela au
 livre ou à l'auteur du livre. Il se peut que ce Quo Vadis, “24
 annoncé aussi commercialement, men soit pas moins,
@@ -215,12 +189,6 @@ rait plutôt envie de ne pas aller voir ce qu'ily a dans 2"
 
 le livre. AE é
 
-Jusrin Latour  * À
-
-Tr CRT USE
-
-22 : ARR tas
-EP NOUVELLES COMMUNICATIONS
 Mon cher Péguy je continue et je continuerai aussi
 longtemps que je le pourrai.
 cs Je lis dans /a Petite République du samedi 2 juin
@@ -233,9 +201,7 @@ réalité, c'est également une œuvre d'un haut intérêt artis_ tique et le pu
 a Jè lis dans {a Petite République du vendredi 8 juin
 F4 PA Le panorama Marchand
 Le … La société de cette attraction nous communique la note
-suivante :
 x Le très retentissant et très légitime succès du Panorama
-Ve Marchand, au Trocadéro, devait inévitablement amener, en
 - … dehors de l'enceinte de l'Exposition, des imitations de la
 R » | Saisissante reproduction des étapes de la mission Congo-Nil.
 Le « Panorama Marchand » est le seul qui ait été officiellement admis par le commissariat général à l'Exposition
@@ -263,9 +229,7 @@ Les sous-officiers non rengagés, les caporaux, brigadiers n
 et soldats, qui demanderont à se rendre à Paris isolément
 et entièrement à leurs frais, pour visiter l'Exposition, pour-
 ront également obtenir les permissions nécessaires dans les Ex.
-conditions réglementaires.
 Je lis dans la Petite République du dimanche 10 juin : É
-À Madagascar k
 Tous les jours, de neuf heures à onze heures du soir, sauf
 dimanche et jours fériés, les sous-officiers, caporaux et soldats des armées de terre et de mer, en uniforme, seront nn
 admis au Panorama de Madagascar, place du Trocadéro. F0
@@ -286,7 +250,6 @@ caractère artistique que celui du Panorama Marchand, où ; E.
 le peintre Castellani a représenté de si saisissante façon les
 principaux épisodes de la mission Congo-Nil. < LAS
 
-k NOUVELLES COMMUNICATIONS
 Je lis dans la Petite République du lundi 18 juin
 Le panorama Marchand
 C'est un spectacle vraiment impressionnant et d'un réel
@@ -298,7 +261,6 @@ d'inévitables variations ; znais au Panorama Marchand le
 nombre des visiteurs augmente régulièrement.
 
 Demain vendredi, jour select, le prix d'entrée est porté
-francs.
 Serions-nous devenus select ?
 Je lis dans la Petite République du vendredi 22 juin
 NS Le panorama Marchand
@@ -307,7 +269,6 @@ d'inévitables variations, mais au Panorama Marchand, la
 grande attraction du Trocadéro, le nombre des visiteurs
 suit toujours une marche croissante. Il ne saurait en être
 autrement d'ailleurs étant donné le puissant intérêt du
-spectacle.
 Devant le succès toujours grandissant et à la demande
 d'un grand nombre de visiteurs, le Panorama Marchand
 adopte également à partir de demain un jour select, le ven-
@@ -320,17 +281,13 @@ cs . Voulez-vous passer une heure charmante et éprouver une
 
 sen sensation d'art fort agréable ? Visitez le Panorama de Ma-
 
-LR RAT US PNR" er
 douzième ‘et dernier cahier de la première série
-RAS Fi, 04 TÉROSE S
 dagascar, place du Trocadéro, où sont reproduites avee une
 
 vérité frappante des scènes de vie africaine réellement sa
 
-k : ASS RS
 Je lis dans La Petite République du mercredi 4 juillet:
 Dicrama de la mission Marchand dit
-Fachoda Re
 Bien qu'un public considérable ne cesse de défiler, Di Al
 avenue de Suffren (gare du Champ-de-Mars), devant les dix. ee
 toiles très intéressantes, l'administration désireuse de per
@@ -360,10 +317,7 @@ diorama de la mission Marchand, qui se trouve tout à côté, A.
 e au numéro 16 de l'avenue de Suffren. : LS ont
 a -_ C'est un spectacle fort instructif que tous les amate s de PA A
 toiles artistiques et de scènes de la vie sauvage ne pe n se
-manquer d'aller visiter. ‘ LS RRTIPANENERS
 
-A NRA LUE D 60e ANT SURALAE VEN NUEELEe
-F2 NOUVELLES COMMUNICATIONS
 Je lis dans la Petite République du lendemain vende dredi
 Le panorama Marchand
 Comme il fallait s'y attendre, le très retentissant et très
@@ -376,7 +330,6 @@ par le commissariat général. Chaque jour d'ailleurs, un
 public de plus en plus nombreux se presse devant les toiles
 de M. Castellani, le peintre de la mission Marchand.
 Je relis dans La Petite République du dimanche
-juillet
 Un curieux panorama
 La Compagnie des grands vins de Champagne est la plus
 importante de toute la région champenoise; située au
@@ -390,18 +343,15 @@ cette curiosité naturelle ; au Champ de Mars, au Pavillon
 4 - champagne admirer le magnifique « Panorama des caves
 x de la maison Mercier, à Epernay ».
 je Je lis dans la Petite République du lendemain lundi
-Fe 9 juillet
 Ne. Un diorama
 Le diorama de la Mission Marchand dit Fachoda ne se
 pt trouve pas dans l'intérieur de l'Exposition, mais au 16 de
 l'avenue de Suffren, tout à côté de la gare du Champ de. ‘
-Mars.
 Res Ce qui explique l'immense succès qu'il remporte, c'est l'exac2 27 ë
 
 douzième et dernier cahier de la première série
 titude absolue avec laquelle sont reproduites les scènes
 sauvages et les paysages des rives de l'Oubanghi et du “à
-Haut-Nil. ‘2
 ‘Je lis dans la Petite République du lendemain mardi - “4
 
 A Madagascar Ses
@@ -417,7 +367,6 @@ admirer le Diorama de la Mission Marchand dont le superbe +: 00
 pavillon s'élève au numéro 16 de l'avenue de Suffren, tout
 à côté de la gare du Champ de Mars.
 J'attends une semaine et je lis dans l'Aurore du samedi
-LE JOURNAL D'UNE FEMME DE CHAMBRE Fe
 Octave Mirbeau vient de triompher de la difficulté de
 rendre attrayante la lecture d'un roman social en laissant
 se dégager, de l'action même, les idées et les théories. Dans
@@ -430,8 +379,6 @@ de grandeur, dans les milieux les plus divers de la société
 Celle-ci est un peu violente, comme on dit familière
 ment. Je sais bien, ou je pense que cette note est payée
 
-RE CS REED CRT RER PA HR So PAU à DER PA DOS NE RÉ
-"À @.@ NOUVELLES COMMUNICATIONS Rene.
 w Se 7 D qu'elle est rédigée par un commis de l'édi- #!
 Ru _ teur, et que ce pauvre Scaramouche en est tout à faitin-
 SPOR _ nocent. Mais enfin cette note apposée en première page
@@ -443,16 +390,13 @@ et: que c'est un roman social. Pourquoi pas de la sociolo- FD
 gie? Toutes les tartufferies me dégoûtent. Au moins
 -  . Vacher ne disait pas qu'il avait fait de la gynécologie.
 Je finis. Je lis dans la Petite République du jeudi
-ë 26 juillet :
 FAN Au flot toujours montant des visiteurs au Diorama de
 NEER _Fachoda, 16, avenue de Suffren, on peut mesurer l'intérêt de Ÿ
 cette attraction. Les dix immenses toiles qui racontent les Qt
 “EE rincipaux épisodes de la mission sont harmonisées avec
 ea QE: des premiers plans nature qui imposent la parfaite illusion + S
 de la chose vécue. Re
-ASTON AE
 ne” Den ai oublié. Je ne suis pas infatigable.
-ee ee JEAN TERRIER (2
 d; Mon cher ami, tu sais ma profonde et déjà vieille ad- he
 1 _miration pour Jaurès, dont les beaux articles m'ont ou- ni
 “RES vert autrefois à la vie socialiste, à la vie. Plus que perPA | sonne j'ai applaudi à sa belle campagne dans l'affaire.
@@ -484,34 +428,25 @@ Pour cela il est bon de ne compter pas trop sur l'action
 gouvernementale ou plutôt il faut toujours s'en défier. nn
 Marchons parallèlement, et non à la remorque du minis
 tère. Soyons une force organisée, avec laquelle tous les
-ministères auront à compter. PIE tre ps
 Je déteste l'étroitesse d'esprit des guesdistes, Mais
 je suis bien forcé de reconnaître que leur sectarisme AT È
 du bon ; il préserve jusqu'à un certain point le parti des ÂGE.
 fée compromissions bourgeoises, il maintient l'esprit LÉVO SE Ë
-, TJS Rond Te
-lutionnaire. HS Fe pes
 Mais nous causerons de tout cela jeudi prochain, rue 7 Cyt
 des Fossés-Saint-Jacques. ‘ * VER me
 Bien affectueusement. TASER ax
-ALBERT MATHIEU à
-mer, 30 à “US AVES
-PASTEUR A
 Fe FAR MAR À Line: Le PATES
 
-4€ k = NOUVELLES COMMUNICATIONS
 D Un républicain bourgeois d'Orléans, intelligent et
 à très conscient, ancien notaire, M. André Thouvet, nous
 écrit une longue lettre. Nous la reproduisons parce que
 sans doute elle nous servira de base quand nous répon-
-drons aux principaux arguments bourgeois
 Monsieur et cher concitoyen,
 J'ai lu vos cahiers avec intérêt, sans croire en aucune
 façon à leur action sur le public.
 Le milieu où nous vivons est ainsi bâti que je ne
 vois pas du tout le ou les moyens de relever — selon
 les vues arrêtées et raisonnées d'un programme satisfaisant — les destinées +t le sort des prolétaires, à bref
-Dr délai. “
 Certes il est équitable qu'on y arrive, mais j'estime
 er que les obstacles viennent bien plus des intéressés que
 ne de la classe dite bourgeoise, — classe qui n'existe pas
@@ -520,7 +455,6 @@ ne Il n'y a pas de lutte de classes, mais d'appétits.
 Et je trouve cette lutte d'appétits, si prosaïque qu'en
 soit l'image, absolument naturelle, légitime et nécesPa saire, en principe. De telle façon que je ne comprends
 pas pourquoi on parle plutôt de lutte de classes que de
-luttes d'appétits.
 Le Il n'y a point de classes, il n'y a que des appétits, —
 a les uns satisfaits, les autres non.
 : Il n'y a point de classes, car je défie bien que l'on
@@ -573,13 +507,10 @@ et morales, ne permettront jamais à l'humanité d'entre
 
 dans un cadre parfait que la logique peut tracer, déter- 3 #4
 
-sen es __ NOUVELLES COMMUNICATIONS MÈQUE
-épars her eu CCR Y ; k
  — et préciser rigoureusement, mais que les faits
 Pi feront éclater du premier coup.
 etla liberté — et je maintiens que la liberté est néces- are
 saire à l'humanité.
-TER F
 AE _ Je ne veux pas dire qu'il n'y ait rien à faire, loin
 RE Fe _ En 1869 nous fondions à Orléans une société coopé- NY
 rative n'a péri que devant l'indifférence absolue des
@@ -593,7 +524,6 @@ Elles ont progressé surtout hors de France, mais soutre à vent aussi elles ont
 Quoi qu'il en soit ces idées sont à mon sens les seules
 ui puissent améliorer le sort des Prolétaires, les con-
 du ‘e non pas à la destruction, mais à la conquête du
-a ous
 capital, chose indispensable pour eux.
 Je dis du capital, c'est-à-dire de tout ce qui produit de
 2 — soit naturellement, soit industriellement, soit par
@@ -607,26 +537,21 @@ cæ Le vrai progrès, c'est le progrès scientifique, c'est le
 seul qui reste, mais il ne s'acquiert que par de lentes
 études sanctionnées par l'expérimentation.
 Par leur organisation en sociétés de production, 18
-RU, LIST AE
 
-Aer
 douzième et dernier cahier de la première série ]
 de consommation, de secours et de retraites, les
 prolétaires accompliront le progrès en montant len- HA
 tement mais sûrement à la possession du capital réel, #2
 le seul qui compte, et en se formant à leur nouveau É]
-rôle.
 Hors de là, il n'y a que trouble, division, confusion.
 Il vous est loisible de croire que le fonctionnement des aa
 institutions collectives dont je parle mènera l'humanité
-au socialisme collectiviste.
 En vérité je n'y trouverais pas à redire, je n'y crois ‘à
 pas, voilà tout; et c'est pourquoi j'ai la conviction que
 tous les moyens violents et rapides aboutiront à un
 échec en réaction, de façon à reculer les améliorations ne.
 que l'on peut déjà opérer — si l'ouvrier le veut.
 Une préparation est nécessaire, quelle que soit la fin
-dernière. .
 Le mécanisme des sociétés de toute sorte sera aux 5 ï
 - mains du prolétariat la meilleure des préparations. “Æ
 
@@ -646,12 +571,7 @@ Si l'argent mal dépensé était consacré à des conquêtes »
 solides et durables, nous serions déjà loin depuis trente FA À
 Et qu'avons-nous fait? moins que rien. Nous nous Fc:
 
-466 OH ARR
-
-RS ES ONE
-re ee NOUVELLES COMMUNICATIONS
 somme affaiblis et divisés, nous avons groupé nos
-adversaires. k
 “ Le socialisme est un grand mal présent.
 souhaite, mais un parti socialiste, non.
 ee En 1848 le socialisme jeta les libéraux dans la réacA tion. Nous en sommes là encore aujourd'hui et ce qui
@@ -679,7 +599,6 @@ peut-être mieux que nous.
 cratie. Je hais le bruit. Je voudrais seulement, dans
 “4 'intérèt même de vos idées et pour votre satisfaction,
 
-À PET ARNO
 dousième et dernier cahier de la première série
 vous voir entrer dans une voie plus pratique et plus
 fructueuse, plus sûre et plus féconde.
@@ -692,10 +611,6 @@ L'humanité sera toujours perfectible, elle ne sera
 jamais parfaite.
 
 Votre tout dévoué concitoyen,
-
-THOUVET, 4
-
-ancien notaire Su
 
 Bourgues-les-Eaux, dimanche 19 août 1900 k
 Mon cher Péguy, À
@@ -718,18 +633,11 @@ désespérés pour couvrir un inspecteur des enfants assis- a
 tés libre-penseur qui a mangé la grenouille — et qu'on a. Ve Fe
 envoyé dans un autre département pour y renouveler Mur
 ses exploits. Et j'en conclus que l'idée a fait peu de
-LITRES
 
-be nt LR ARE U ge CRT D Nr tal: té AP CRE CERN EIRE ARTE Dar
-
-Uhr it
 ne ue. NOUVELLES COMMUNICATIONS LATE
 chemin, car elle s'est heurtée dès ses premiers pas à un
 terrible obstacle : c'est l'horrible amoncellement de ran- EE
 Fe ‘cunes, de haines, d'amours-propres, d'intérêts person_ nels, de petitesses et de bêtises qu'on nomme la politi- Î
-quelocale.
-pes: ee Pauz Er LEBEL
-he 37, Albert street, Regents Park, Londres, 24 juillet 1900 S
 0% si Mon cher ami, ps
 ch 'Tn trouveras ci-inclus un mandat de cinq francs, qui,
 ai peur, ne pourra l'être payé qu'à la Poste centrale.
@@ -776,7 +684,6 @@ mécanique. Je ne suis pas internationaliste, comme +4
 { vous. Mais j'aime tes cahiers, parce que je suis encore
 plus provincial que les provinciaux.
 Très cordialement à toi, ‘%
-CAMILLE GONDAILLAN
 Perrusquier, par Vesoul (Haute-Saône) ÿ
 Mon cher Péguy, À ‘4
 ! Nous nous demandons ici à quoi peuvent bien servir -
@@ -790,18 +697,13 @@ six mois que Mirbeau a commencé dans La reoue — à
 blanche à publier son immonde Journal d'une Femme <e
 de chambre, et tu was pas encore publié que C'était
 immonde. Jamais tu ne me feras croire que c'est parce 'ÉURR
-AR CENT.
 que tu n'as pas eu le temps. Seulement tu fais comme
 tout le monde. Les bons camarades avant tout. Tu tes
-PAT AUREUES
-É HEC FN ua RAR TU CA RUE HAUTES DRE 0 A SOMEMN TE ñ
 DE NE SET ANNE Me At 7 0 NUE en LA ge eee ere ANT M
 
-De NOUVELLES COMMUNICATIONS
 “" aittardé à Lafargue. C'était moins comprometitant.
 Lafargue n'a pourtant pas eu tort de s'élever violemk ment contre les intellectuels qui se font des rentes en
 vendant des cochonneries aux bourgeois. Si j'avais été
-là, aux Sociétés savantes, j'aurais vivement applaudi
 Lafargue à ce passage. Quand je suis devenu dreyfusard, après de longs entretiens avec toi et de très
 longues hésitations intérieures, je croyais vraiment que
 tu étais sérieux. Je m'imaginais que nous renoncions
@@ -834,8 +736,6 @@ mépriser tous ces journaleux qui ont réussi à être encore
 un peu plus dégoûtants que lui, par camaraderie et ‘4
 platitude professionnelle. On ne sait pas si vous êtes
 plus lâches que tartuffes ou plus tartuffes que lâches.
-Continuez. Serviteur. “1
-Jacoues Roupi£r
 Thermes les Bourgues, samedi 5 mai 1900
 Je te dirai pour mémoire que je suis fort occupé. Je
 fais deux cours populaires, le soir, à un auditoire ‘4
@@ -846,7 +746,6 @@ Populaire. Il n'est pas facile d'ébranler cette lourde ‘%
 masse d'indifférence générale. Je m'y emploie de mon . n.
 mieux. Je te tiendrai au courant des résultats. Sois on.
 assuré de mon plus cordial dévouement. di “
-Pauz ELEBAIL ‘34 É
 Thermes les Bourgues, vendredi 25 mai 1900 “|
 Je retrouve cette lettre, que je croyais partie. L'ordre
 n'a jamais été mon fort. — J'aurais beaucoup à y . kC:
@@ -857,7 +756,6 @@ semaines ce sera chose faite. J'ai vu une centaine de.
 bourgeois pour obtenir leur appui et leur argent. Par-. Aa »
 tout on n'a fait bon accueil. — Nous cherchons en ce à ‘à
 moment un local. Nos statuts sont ceux de la circulaire #
-NOUVELLES COMMUNICATIONS
 générale des U. P., que tu connais sans aucun doute.
 F Quant aux travailleurs nous les aurons en masse.
 L'idée socialiste gagne ici tous les jours. Avant-hier
@@ -865,7 +763,6 @@ une conférence organisée par les cléricaux — et où
 Marpaux a pris la parole — a été pour eux un effondrement. Cinq cents auditeurs sur cinq cent cinquante
 ont fait une ovation à Marpaux. Ce fut extraordinaire.
 Au revoir — bien à toi
-Pauz ELEBAIL
 Thermes les Bourgues, jeudi 28 juin 1900 (r)
 Mon cher Péguy
 J'ai le plaisir de t''annoncer la fondation d'une U. P.
@@ -873,7 +770,6 @@ Bourgues sous le nom de Cercle Edgar Quinet —
 Quinet était Bourguessan. Tu enverras les cahiers au
 Cercle Edgar Quinet, 14, rue de la République, Bourgues.
 Très cordialement à toi
-Pauz EreBaIr
 Saint Pierre la Tourbe
 Lundi de Pâques 16 avril 1900
 ‘Mon pauvre ami
@@ -885,8 +781,6 @@ manche les hommes, les femmes et les enfants qui
 veulent bien venir. Nous faisons des lectures en com-
 (1) Ce billet portait en haut à gauche un admirable cachet bleu
 ovale : Cercle Edgar Quinet. — Université populaire de Bourgues. —
-Secrétariat.
-Hiù Gt
 
 douzième et dernier cahier de la première série
 mun. J'ai même appris à lire tout haut pour un public. x
@@ -899,7 +793,6 @@ suis chargé de l'histoire et des sciences naturelles. Mon x!
 collègue d'allemand fait la géographie et la morale. Mon
 collègue M. Thomas, le dévoué professeur de gymnastique, enseigne avec moi les excursions botaniques. IL Î
 enseigne l'excursion, moi la botanique, le reste à Pave- ë
-nant. \ $
 Nous nous sommes abonnés à toutes les revues avan- a
 cées. Hier jour de Pâques il y avait bibliothèque le y
 matin et grande excursion l'après-midi. Quand il y a »
@@ -908,7 +801,6 @@ bibliothèque il y a permanence. Mon collègue d'anglais ià
 mas était là aussi. Nous avions quinze lecteurs, ce qui
 est considérable. Il devait y avoir douze excursionnistes
 le tantôt, douze baladeurs, comme dit familièrement 4 Û
-M. Thomas.
 Trois de nos lecteurs, deux gamins et une gamine, TU î
 âgés de quinze, dix-huit et seize ans, lisaient en un. me
 coin de la table un peu longue. Ils continuaient leur lee
@@ -921,7 +813,6 @@ Il faut te dire que depuis trois mois que la revue
 blanche publie les saletés de Mirbeau, je suis de quin- s
 zaine en quinzaine envahi d'une rage intérieure qui AS )
 
-SINNENRES NOUVELLES COMMUNICATIONS AE
 Fu » croissait et me mangeait. Je suis né rageur. Je suis
 MC _ devenu rageur. Je suis rageur. Si j'avais un mètre 1h
 ét D D sta et les muscles que j'ai toujours !
@@ -962,7 +853,6 @@ ue s'étant pas imaginé qu'un professeur se mît en colère.
 Il y eut un froid. Les ouvriers ne comprenaient pas très EX ci
 
 Ne _ bien. Mon collèguc d'anglais et M. Thomas vinrent,
-DARNNN à \ RES
 
 ue LE e BAGCE
 
@@ -998,11 +888,9 @@ collègue d'anglais qui cherchait le rapprochement. Bien l
 sûr: si ces gamins-là nous avaient apporté une bouteille
 d'absinthe qu'ils auraient bue en lisant, vous-même, me
 monsieur Boisdenier, qui êtes un homme patient, vousmême vous auriez foutu la bouteille dans la cheminée.
-RIRE « NOUVELLES COMMUNICATIONS
 ” M. Boisdenier ne répondait pas. — Tout de même,
 continua M. Thomas, vous n'allez pas vous faire malheureux pour toutes ces saletés. Allez déjeuner et venez
 tous les deux avec nous. Vous traiterez la question en
-marchant.
 CH Le tantôt M. Thomas ne nous laissa pas un instant de
 à . répit. Marche et contre-marche. Botanique et marche.
 - En rentrant le soir il nous dit d'un air innocent : Eh
@@ -1027,7 +915,6 @@ sur le Saint-Office et la congrégation de l'Index. Avons-
 - *ù nous assez spirituellement raillé les Russes, qui étendent
 f ne È sur les passages interdits une épaisse et noire tar-
 "4 . tine. Avons-nous assez raillé Monsieur le Censeur exav} Po  minant les livres de messieurs les potaches. Et voilà
-QE LES
 
 douzième et dernier cahier de la première série
 qu'à la première occasion sérieuse mon premier ge
@@ -1060,14 +947,8 @@ monde répète partout. Je n'ai aucun goût pour les scènes
 et c'est en définitive une opération désagréable que de
 libérer sa conscience, comme on disait naguère. Enfin me
 je ne t'en veux pas trop. C'est le métier qui déteint.
-sur toi. ' ; :
-ï JOsÉPHIN SOUVESTRE PRIE
 L'abondance de ces communications nous force à en pres et.
 remettre la suite à un prochain cahier, Lau 4 41e : (1
-
-D Pen ANA da Pen NME NOR
-
-DEMI-RÉPONSE A M. CYPRIEN LANTIER
 
 ù Nous publions cette réponse comme elle était préte
 partir au commencement des vacances.
@@ -1131,7 +1012,6 @@ cations avec ces cahiers. Il voulut bien présenter au
 Comité vénérable, dont il fait partie, cette requête : \ 4 3
 
 L'AIR Pne—
-TRES DEMI-RÉPONSE À M. CYPRIEN LANTIER É
 
 Que devons-nous faire des Juifs quand les antisémites
 
@@ -1177,8 +1057,6 @@ titude ils réussiraient à sauver les vieux principes sans
 
 Les broussistes non plus n'étaient pas des broussistes.
 
-ERr
-
 34 - Les indépendants ministériels ne se souciaient pas de Lt
 
 laisser voir qu'ils étaient ministériels. Mais les simples
@@ -1188,10 +1066,6 @@ indépendanis avaient beaucoup de tristesse et n'avaient
 aucune arrière-pensée. Le seul Jaurès pensait ardem-
 ke _  (i) Ii suffit que le lecteur se reporte à cette date : il reconnaîtra
 qu'il s'agit ici de l'ancien Comité général,
-LYAAEEN : #05
-
-TER QE { ARS Ÿ
-SE VANNES * SJ ALAN TEE
 
 douzième et dernier cahier de la première série
 ment aux moyens de consolider encore cette unité socia- ; F
@@ -1227,7 +1101,6 @@ pétée ailleurs dans le même cahier. Je prie le lecteur de vouloir
 bien s'habituer tout de suite à ce que nous disions souvent Ja
 même chose, parce qué c'est toujours la même chose, (Re 0: *e
 
-FN RO DEMI-RÉPONSE À M. CYPRIEN LANTIER LU TA RSR
 Ft On me dit que depuis ces commencements ceux des 4 PS
 Fa | souverains qui étaient de bonne foi sont devenus
 Pour, cause de difficultés le Comité général a été is
@@ -1238,7 +1111,6 @@ citoyen Grados présidait. A neuf heures on lutle procès- LEURS
 Rte  mations, suivies de quelques rectifications, parce que Re
 la rédaction du citoyen Dubreuilh était un peu trop in- Ke
 ji … telligente. La requête figurait au seuil de l'ordre du a
-age PERS Re
 "jour: Bien qu'on l'y eût placée d'un commun accord à Ve
 è ‘4 - Ja fin de la séance précédente, il fallut encore procéder :''HPONE
 4 4 _à deux scrutins : le premier pour savoir si vraiment la taie
@@ -1258,13 +1130,11 @@ nistés étaient heureux d'affirmer tout ce que leur dreypis _ fusisme avait eu 
 leur dreyfusisme avait eu de fructueusement républicain.
 H'Le tiers des indépendants, radicaux assez peu socialis DRE K
 tes, avant tout ne voulaient pas déplaire aux guesdistes, FE G
-it. dot
 
 douzième et dernier cahier de la première série
 puisqu'ils étaient leurs ennemis. Les indépendants révo- iE
 lutionnaires sympathisaient aux allemanistes. Sur tout
 on avait un commun désir d'en venir aux mains une
-bonne fois.
 Jaurès parla longtemps. Jamais il ne fut plus beau. I ÿ
 se donnait tout entier, comme s'il eût parlé devant les
 quinze mille hommes d'une immense assemblée révolutionnaire. Évidemment il ignorait l'assistance. Il parla \u70
@@ -1292,7 +1162,6 @@ Ebers. Nivet souriait de ce sourire doux que nous lui
 ù avons connu. Le citoyen Lucien Roland était heureux. à “si
 Le citoyen Jaurès était déjà moins malheureux de
 penser que le citoyen Ebers avait rendu heureux plu- ; à
-L: AT DEMI-RÉPONSE À M. CYPRIEN LANTIER ë
 
 4 - sieurs citoyens. D'une voix plus grave encore, et, en un
 
@@ -1313,7 +1182,6 @@ Nr — Il continua ainsi, mais négligea de donner sa pre-
 
 Er mière péroraison. Il sentait, et on sentait que cela était
 
-_ devenu impossible.
 pe Après le citoyen Jaurès le citoyen François Desmarais ,
 
 à demanda la parole. Ce jeune citoyen, né en Beauce et e
@@ -1381,17 +1249,12 @@ au Parti Ouvrier Français, que de traiter Jaurès comme ÿ Er
 un petit garçon qui revient de l'école. RARE #3) À
 Allemane écœuré ne disait rien. Albert Richard son
 geait romantiquement aux moyens de réaliser l'union
-socialiste. APR AOCAT: AC
 Après le citoyen François Desmarais, plusieurs délés 4: si
 gués parlèrent sur /a lutte de classe. Minuit était passé, _ M
 la fatigue allait commencer quand le citoyer Édouard si 5"
-PRE 54 FX URSS
 
-AU ARNO Lt sn RE SE LAS AE à PUR PORT
-à) is -  DEMI-RÉPONSE A M. CYPRIEN LANTIER } LANÉT EE
 Mes Vaillant demanda la parole. On se tut, car il était, lui, VE
 r le maître d'école, et tout le monderespectait sa sérieuse a
-HAT ; P
 austérité d'instituteur patient impatienté. IL commença Ÿ
 “64 en plein, traita presque le sujet, et pendant plus d'une Atye
 heure comme un robinet d'eau tiède inépuisable il
@@ -1400,7 +1263,6 @@ parka balbutiant un peu et hâtif. Il affirma rapidement
 ‘en classe ouvrière contre la classe capitaliste et répéta
 soixante-sept fois cette expression au cours de son ie
 Vers une heure et demie du matin, heure où les hon- Je,
-JTE Ù
 nêtes gens de nos provinces dorment déjà depuis cinq ‘ La
 ne à longues heures, on sentit comme un assoupissement ; fe
 général compliqué d'énervement, d'impatience et de
@@ -1459,8 +1321,6 @@ de jour en jour parce qu'il était successivement mis en
 minorité sur toutes les questions. Et il éprouvait le
 besoin de rester moins diminué, pensant qu'il y aurait + A5
 
-è p DEMI-RÉPONSE À M. CYPRIEN LANTIER
-
 encore des jours où la Révolution Sociale aurait encore
 paie besoin de lui. La deuxième raison principale pour
 laquelle décidément il ne présenterait pas sa motion
@@ -1471,7 +1331,6 @@ la même heure des séances, les deux inévitables moitiés
 ‘4 démocratique, ne s'étaient-elles pas affroniées comme
 deux blocs. Pénibles précédents. Évidemment la meilleure manière de fomenter l'unité attendue était d'éviter
 la régularité de ces votes fâcheux. Mieux valait donc
-1 _se rallier à quelque motion ennemie éventuellement
 capable de rallier l'unanimité des suffrages. On verrait
 plus tard à mieux guider le parti unifié. Mais il fallait
 ne réaliser d'abord l'unité du Parti.
@@ -1534,9 +1393,7 @@ pis Ouvrier Français. Il choisit innocemment le nom de
 Roger Dumanoir. Il vaut toujours mieux avoir un nom Fe
 x Sr - bien français. Et même il est toujours bon d'avoirum
 ms. nom qui commence par un dx ou par un des. Sachons Fan
-MG UN ANS
 
-4e DEMI-RÉPONSE À M. CYPRIEN LANTIER
 ‘à prévoir les malheurs de si loin. Par le malheur des
 ü temps il peut toujours advenir que l'on soit forcé
 de couper sa signature en deux et de s'intituler Roger
@@ -1584,10 +1441,7 @@ pour ne pas revenir sur l'affaire Dreyfus. Comme quel- RE E
 
 qu'un qui veut en finir, le vieux Longuet demanda la pu
 
-parole : : Me.
-
 — Je dépose la motion suivante, vous savez bien
-pourquoi : 3 0
 
 avait oublié de rédiger sa motion sur un morceau À cu
 
@@ -1597,7 +1451,6 @@ fut-elle plus violente et plus incohérente qu'ilnevoulait:
 
 Considérant que tous les citoyens qui ne marchent
 pas délibérément contre l'antisémitisme font le jeu de la r
-réaction; !
 le Comité Général décide que nous devons marcher
 résolument contre l'antisémitisme. RÉUMEST ie
 À () Je laisse dans cette réponse la phrase comme elle était faite RS É
@@ -1636,7 +1489,6 @@ mites, — ou à telle commission qu'il vous plaira la
 à 4 motion de l'honorable citoyen Longuet. Ou plutôt il
 FA , …. nous est permis de présumer que nous pouvons consi74 dérer la motion de l'honorable citoyen Longuet comme
 se D étant moins distinctive, moins éloignée du texte qui
-PATATAEN * FAT 4 LÉNEUTS
 
 douzième et dernier cahier de la première série -
 nous serait apporté par la commission, si elle était con- AS
@@ -1647,7 +1499,6 @@ La motion Dumanoir ne se fit pas attendre, car on : K
 
 l'avait rédigée à plusieurs pendant que Viviani com-
 
-mençait à parler.
 — Je demande la parole, dit ce jeune citoyen au milieu
 
 d'un brouhaha favorable. “g
@@ -1655,8 +1506,6 @@ d'un brouhaha favorable. “g
 
 cette motion pour laquelle je demande la priorité. : ie
 — Vous l'avez de droit, dit un peu inconsidérément È Yi
-
-Viviani. ‘4
 
 Dès lors l'exécution fut rapide. \ 1
 
@@ -1688,7 +1537,6 @@ doivent passer avant les devoirs de luxe, — et d'orgueil; ÿ ".
 - Ce dernier mot fut placé avec un art scénique irréprochable. Pots
 
 k des ne fo Put a Lee 7 AE TEN Ale ENNS NAME"
-DEMI-RÉPONSE A M. CYPRIEN LANTIER
 ‘TE Fri Considérant enfin que le Comité g'énéral est institué
 non pour séduire le Prolétariat mais pour l'éclairer sur
 pat _ ses véritables intérêts
@@ -1710,12 +1558,10 @@ E 4 ï $ Le citoyen Dumanoir avait déjà rédigé la phrase. Il
 à à _  Décide qw'il sera donné aide et protection à tout Juif
 _.  quisera du Parti;
 2:80 Une rumeur favorable courut.
-D CERERR
 A. Mais que le Parti sera forcé de négliger les Juifs qui
 vf . ne sont pas du Parti. ‘
 Tee Une seconde rumeur favorable courut. La phrase fut
 votée. On se hâtait.
-a 2% SAR
 douzième et dernier cahier de la première série
 — N'oublions pas, dit le citoyen Desmarais, que nous
 devons bien expliquer qui est du Parti, pour qu'il n'y
@@ -1734,7 +1580,6 @@ Entente et action internationales des travailleurs: organisation politique et é
 la conquête du pouvoir et la socialisation des moyens de
 production et d'échange, c'est-à-dire la transformation
 de la société capitaliste en une société collectiviste où
-communiste. ‘4
 — Je propose, dit le citoyen Nivet, que le Comité gé-
 néral remplace les mots fera une adhésion explicite par
 les mots aura fait une adhésion explicite. Il ne s'agit
@@ -1742,18 +1587,14 @@ pas que les Juifs ne donnent leur adhésion qu'au moment
 même où ils seront en danger. w
 — I1me semble que cette observation est fort judi- ‘4
 cieuse, dit le citoyen Dumanoir.
-— Adopté. Se
 
-MORE. DEMI-RÉPONSE A M. CYPRIEN LANTIER
 SO _ — Mais comment saurons-nous, dit le citoyen IsamEn … bert, comment saurons-nous que tel ou tel Juif aura
 fait ou n'aura pas fait l'adhésion explicite ? Et comput . ment distinguerons-nous l'explicite et l'implicite ?
  —Ilme paraît indispensable que chaque Juif signe
 une attestation ainsi conçue
 Se Je, soussigné,.… Jules Simon Weill,….. né à Paris le
-… gjanvier 1867... demeurant audit Paris, 191, rue
 à . du Temple, déclare que je fais une adhésion explicite
 e +. au programme commun à toutes les fractions du Parti
-Socialiste français
 480 _ Entente et action internationales des travailleurs;
 “el - ici le citoyen Dumanoir eut l'élégance, la suprême
 élégance de réciter à haute et intelligible voix sans
@@ -1764,13 +1605,10 @@ n_  etéconomique du prolétariat pour la conquéte du
 d'échange, c'est-à-dire la transformation de la société
 ne É _ capitaliste en une société collectiviste ou communiste.
 si Re . En foi de quoi j'ai signé le présent procès-verbal.
-‘AIN Jules Simon Weill
 D — Je demande, répéta le citoyen Nivet, je demande
 -_  quel'on mette la date sur ces attestations et qu'il soit
 bien entendu qu'elles ne seront valables que six mois ,
 ie après que le bénéficiaire les aura signées. Il y aurait
-trop d'attestations soudaines.
-Ur EST Ë À
 
 dousième et dernier cahier . de la première série “
 — Parfaitement, répondit le citoyen Dumanoir. Fait
@@ -1780,12 +1618,10 @@ accommodant de plusieurs citoyens. ÿ.
 — Ilne me semble pas, recommencça le citoyen Desma- Ÿ
 rais, que ceite attestation puisse avoir quelque valeur
 si elle d'esi pas contresignée par quelqu'un qui nous
-présente quelque garantie.
 — Parfaitement, répondit le citoyen Dumanoir. Nous
 aurons ou plutôt nous exigerons que deux signatures,
 que les signatures de deux socialistes notoires et
 notables nous garantissent la signature du bénéfi- j
-ciaire.
 — Il ne me semble pas, recommença le citoyen
 Desmarais, que cette attestation puisse avoir la valeur
 que nous lui accordons si elle n'est pas officielle, 4
@@ -1796,7 +1632,6 @@ la signature d'un membre du Comité général. s'
 ture d'un membre du Comité général, nous avons le ie
 droit et le devoir d'exiger qu'elle soit plus explicite et =.
 que l'autorité de ce Comité général y soit formellement
-reconnue. > ‘+
 — Parfaitement. Après les mots : collectiviste ou (4
 communiste, nous ajoutons cette phrase : Autorité sou-
 veraine incontestée du Comité général institué par les
@@ -1804,12 +1639,8 @@ Congrès, avec pouvoir d'appel au prochain Congrès
 tous les ans pendant plusieurs jours. Ki
 — ll me semble, dit Desmarais, que nous pouvons
 supprimer cet appel. Jamais les congrès nationaux n'au- é Ne
-aire ‘34
-AAA : ch
-._  DEMI-RÉPONSE À M. CYPRIEN LANTIER
 LACS A JA ñ . o GR ; , « vont le temps d'examiner les cas individuels. C'est
 a &e peine s'ils peuvent effleurer les questions générales.
-IN _  Isambert intervint
 .  —Nous sommes l''émanation du Congrès. Nousn'avons
 pas à diminuer son autorité souveraine. S'il n'a pas le 1H)
 e temps de juger les cas individuels, ce sera de sa faute.
@@ -1822,8 +1653,6 @@ RU — Le Congrès règne trois jours et nous régnons
 _. — Alors, dit Desmarais, je demande que l'appel soit
 “ suspensif, c'est-à-dire que pendant tout le temps de
 Ru ÿ Vinstance le Juif bénéficiaire n'ait pas le bout de
-— Parfaitement, répondit Dumanoir.
-Isambert intervint : ‘
 k 5 A — Il serait préférable que cette attestation fût scellée
 si dun sceau officiel. Mais nous n'avons aucun sceau off-
  … — C'est vrai, dirent les assistants, effarés à la pensée
@@ -1863,19 +1692,14 @@ f Il faut que je te dise que le citoyen Jacob Isaac avait ji Qu
 conçu l'ingénieux dessein d'emmener, comme on dit, lei: ï 6 :M
 citoyen Dumanoir. Et le citoyen Dumanoir, ner ; Du
 réussite, écoutant sa propre parole, hâté de la hâte en- BA 4 Ki
-vironnante, marchait infatigable. HU LS
 Pol — Les citoyens parrains, bien. Le citoyen membre du
 Fe te — Quand il y aura une citoyenne, recommençafroi- 4 FAX
 dement le citoyen Jacob Isaac, nous aurons le citoyen
-RAT PS Min xd #1 LL HAE 4 ASE 1 FAR (té
 
-DEMI-RÉPONSE À M. CYPRIEN LANTIER
 à — La citoyenne marraine. Entendu. Le citoyen mem-
 bre du Comité général...
-Isambert intervint
 — Il vaut mieux que ce soit toujours le même membre
 du Comité général qui soit préposé à la signature des ,
-attestations.
 — Bien entendu. Comment nommerons-nous le ci-
 toyen membre du Comité général qui sera préposé
 là signature des attestations.
@@ -1896,10 +1720,8 @@ Nous avons besoin d'un seul mot qui remplace profession de foi.
 St — Confession, dit posément le citoyen Jacob Isaac.
 Nous nommons l'acte un billet de confession.
 « 1 Dumanoir soudain pâlit de colère. Il venait de s'aperA cevoir que tous les mots adoptés à l'instigation de
-15 , Jacob Isaac, bénéficiaires, témoins, parrain, marraine,
 Ne g'arde des sceaux étaient des mots éminement bour-
 
-V2 NT ENCRES
 douzième et dernier cahier de la première série fé
 geois et cléricaux. Profondément humilié d'avoir mar- re
 ché, il dit vivement, balbutiant un peu : ke
@@ -1938,7 +1760,6 @@ régler la question des duplicata. Vous penserez avec. t\)
 moi que nous ne pouvons accorder la double expédi- à
 j tion. Ce serait encourager les fraudes. Surtout que Ron ; h
 
-“ . DEMI-RÉPONSE A M. CYPRIEN LANTIER È
 ne . les Juifs ont le même nom. Tant pis pour ceux qui
 auront perdu le billet : vous demeurez, par exemple, à
 nu. Castelréactionnaire. Un Juif se présente à vous et vous
@@ -1956,13 +1777,11 @@ qu'un honorable militant, précieux au Parti, et dont la
 (Se 7h perte serait irréparable, risque de se faire casser les
 reins pour subvenir à ce Juif. Ainsi vous penserez avec
 à , - moi que dans la motion que nous avons votée, après la
-eva phrase
 Yi Autorité souveraine incontesiée du Comité général
 institué par les Congrès, avec pouvoir d'appel au proFA chain Congrès tous les ans pendant plusieurs jours;
 ré nous devons ajouter
 14 |) sous réserve que l'intervention exercée en faveur du
 bénéficiaire sera conforme aux intérêts du Parti
-socialiste,
 DE — Je vous laisse, messieurs, je vous laisse. Mais vous
 Di | avez négligé de considérer que la fabrication de ces
 ñ … billets nous reviendrait un bon prix et que nous avons
@@ -1980,7 +1799,6 @@ Juifs ce qui nous aura coûté à fabriquer.
 Il faut que je te dise ici que ce M. Loyal, connu
 comme antisémite, avait reçu et recevait quelque
 } argent des grands Juifs, ce qui l'encourageait à leuren .
-demander davantage.
 — Nous ne pouvons pas donner à ces Juifs ce qui
 nous aura coûté à fabriquer. Nous sommes des commer-
 çants comme eux. Ils doivent nous payer au moins le
@@ -2000,8 +1818,6 @@ en nous envoyant des documents et renseignements.
 Nous prions ceux de nos abonnés qui nous envoient des noms et adresses de vouloir bien prévenir
 L_ eux-mêmes les personnes à qui, sur leur indication,
 nous envoyons les cahiers. Rien ne vaut la propagande
-x (étila présentation personnelle.
-F'ÉRUES
 Nous prions ceux de nos abonnés qui nous en-
 k voient des documents et des renseignements de vouloir
 bien écrire très lisiblement et d'un seul côté de la page.
@@ -2014,11 +1830,9 @@ La rédaction et l'administration des cahiers sont trans_ Jérés 1 6, rue de la
 M: André Bourgeois. administrateur des cahiers,
 e | recevra pour l'administration tous les jours de la
 mar le dimanche excepté, — le matin de dix
-onze heures.
 Fa M. Charles Péguy, gérant des cahiers, recevra pour ÿ
 la rédaction
 ( Eine le jeudi soir de deux heures à sept heures et de
-huit heures à dix heures,
 Le vendredi matin de huit heures à onze heures.
 Adres: er à M. André Bourgeois, administrateur des Lee
 ë cal iers, 16, rue de la Sorbonne, Paris, la corr'espon-
@@ -2058,7 +1872,6 @@ aura installé nos nouveaux envois.
 Nous prions nos souscripteurs et nos abonnés de pouss
 loir bien nous envoyer des mandats de poste plutôt que j
 des bons : le mandat est une pièce d'administration plus"
-complète. se
 
 Nous avons donné le bon à tirer après correctionderce
 douzième cahier le vendredi 16 novembre. 4 à
@@ -2066,7 +1879,3 @@ douzième cahier le vendredi 16 novembre. 4 à
 AP Cahiers de la quinzaine
 
 sér.1l
-nole
-PLEASE DO NOT REMOVE
-CARDS OR SLIPS FROM THIS POCKET
-UNIVERSITY OF TORONTO LIBRARY

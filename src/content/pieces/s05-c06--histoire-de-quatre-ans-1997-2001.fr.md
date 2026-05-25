@@ -7,34 +7,15 @@ author: daniel-halevy
 isAvertissement: false
 wordCount: 29136
 ---
-
-a U DES CAHIERS POUR LA CINQUIÈME S
-DANIEL HALÉVY
 histoire de quatre à
 1997 — 2001
-[33870
 44.10.16
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussé
 
-EU Me Du Ne EN MAN ELEMENT NES RON, 2 ERP RES
-in AB EEE f RONA FE EP PM EE ET RUE VEN TT EE CIM RU TOR ETENRRRS TE
 Wie c'# 112 Th AT UPINT ne du V2 ee HER SPEARS
-fi APN N R
-4 Ë J'Y MBA PAU IE
 o L Que Le F4 ex
-( RES Rs:
-es ) A Re,
-eérK 100
-HA:
 | Ne
-y Ÿ « ES ! F
-A
-LR
-
-6 Lag MF nn Ft f Na
 
 Ê RTE as Ne SUR) à
 PARVE REUR DA FOR A EE le à RTE ANA
@@ -43,192 +24,44 @@ PARVE REUR DA FOR A EE le à RTE ANA
 
 ‘ ATP MPa ee {17 #9 De" hour 8 A SMPENEN ES
 
-41" dei DURS * *RA Lu V4 ke j HE vf.
-
-c 1: RME PR =, 4 ; WT EN
-Rs BALE: ; N Re
-
-OR, +
-A CR PR L 4080)
-De | 0 Nat
-AE. 2 A Li} DL:
-To : L'ARSSONEE | : te MUR
 r er Le VA k . et
-
-ee. F: À, |. TR re ' b art
-
-Y 1012 2 ait $ 2 & FRS
- . - ah: * L DES
-à SORTE EVER L - = - .#
-ÈS Le : + F0
-x RTE HN TR : } Û F s Fe » ms. SCPI é Fo
-nee." N we À
-EN SReSE k ve LS
-
-TR Fr TE Ê po ; : ah
-” Er cd J h-#
-RUE NS - A : eu Ve FAR
-
-AT Ua nr n° L LA b ? Au 4 LAC ARE
 
 Sur les œuvres, poèmes, drames et romans publiés ï
 dans les éditions des cahiers antérieures à la fondation
 des cahiers et dans les trois premières séries des cahiers,
-se référer au
 Sixième cahier de la quatrième série, cahier de courrier, courrier de Paris, inventaire des cahiers, en forme
 de catalogue, un cahier de 72 pages, un franc à
 Nous publierons dans un cahier de la cinquième série
 le relevé sommaire des œuvres, poèmes, drames et
 romans publiés dans la quatrième série de nos cahiers.
-L
-'
 
-nus VER À È j LUS DUT: Dr HS AL
-
-‘2124 RCE # £ CAS , - ie NE
-LT k Û “4
 histoire de quatre ans 1
-nn : 1997 — 2001 11
 
-DCR
-
-Ci ' GS 0 A ts
-me “ En
-D = UN
-move
-
-PEAR OA ARR ONE La ur 62 D TR PPS TRE MR NL TETE PAGE
-1 TRE THRMRNE ERT SAt NS TELE RAR REP A LORS
-TRI er » “U : LAPS Nr Eux 46
-Er SNS RSS 27 fl [ si er D: RS
-À PAT RT i Ge ,
-de 7 SE 2
-De e ten +4 & À
 Fa A de us
-CS ‘ Th FEES
-26% “ EE Nr:
-Me | “LU TENS
-AE L ne ;
-TER à AE
-+ . >'RÉCSORESS
-NE: HE TRUST
-x] se 2 17 PORTER
-HSE MERS
-sx? É n | FLAT di ACTE
-‘ ñ M, S
-+ r è ai re VS AN TR
-È É Ru
-Fa MAR
-
-VE ss PCI ASE if | Li Eire CEE +0 j
 
 D Te he LE OO SMS
 
-“y BÊTA. al A Rs k | 1%
-= ès 4480
 ve " L pe
 
-4 1 . . . Ps ie En
-… Alles regt sich, als wollte die Welt, die gestaltete, rückwärts
-LS RENNES é k RES
-_ Lüsen in Chaos und Nacht sich auf, und neu sich gestalten. ef
-
 Rae. Hermann et Dorothée, IX. Es
-a 1 sg
 
-SN er À
-
-*
-
-1471 FOR à à dy LOLTERS
-; 1 HR De
-… 130 | ”.
-z De. : ‘ Xe à
 # JR à é , 5h
-a? F. Des k L i Ê F+ :
 
-PUS ATNEU LOS ET RC 7 RENE 4 LL
-Craie ES EE M AS YEFaVAr EE SE ES PR D
-RS CO PR A Lee ÿ
-: AE QT IN N
-URI ONE : KT
 LE RES s Sie ex
-115, Lo LRU +{:200 F
 Let CAT Ta
-Des > ‘ L'ART
 se Le ii
-je L-8 AS "Tu
-À ”, i RAR
-A1 D #e
-4 ÉPICES
-“€ ; 48 FAT
 es RS ARS, à Le ER
-+ 2) \ : Le à REPARER
-d Fe + + n°1, EE RIRES
-or LAN SEE
-ER £ Ne 2 cel
-SE se YA
-rte VERT LM
-NES SAS EN
-à a. ER R AA + Lip
-7 = u RTC LÀ a
 
-AE PARRGET Me LN AEVRUEUES AS 8 « CONTE M
-Ji À 4 vn
-n , ta,
-1% a L' %
 un) ANR re,
-“TER
-“ER 5 , \ 14
-ne. , FM
-17% 4 rl
-dE J
-9 8) }
-: FPS Va
-* 2188 d |
-ne : A
-CRI : ral
-LORS
 
-+ REX QE
 LE ia RU AE
-RAS b 2 “ « 27
 
-re : te
-De ce « . k :
-
-PONS PROD ES Qt
-A à SECYRT é FRS PE) RS LITRES ERP, à ee OPA
 RENE EE EE NN FOR" ce
-AL 5 Cu EEE SRE KE 4 eu ' si |
 Der ie L\ÉREPES Lx VE ra Ÿ J
-à (PSE ŒU" IAE ARE” RP be
-LR ÉTAT ÉRNNRES J Cuire $ à Re
-NET TL à ; D:
 
-EE FOIE i D Ÿ
-\ LE EESS 2 “ . 160
-_- 1 SRE LT EEE |
-L NES : .. >” NS ETS n
-a FN " HI As
-
-I ‘ ; j * : ! Det - Mt *
-
-x: ‘ SEE 4
 #1 y L RU UT
-560 M
-
-AE 15 a
-ms a Ÿ ra: “. AT ES ;
-d * æ Re. TRE
-£ À EE LE JE: er 2
-
-j : # _= +, SCENE ME
-
-Î ÿ 12 leg 1 1e
 
 #
-PREMIÈRE PARTIE
 — Adieu, les camarades, adieu ! nous partons !
 
 Ainsi criaient Jean Schrader et Claude Touron,
@@ -248,25 +81,18 @@ que vous partez !
 Il regardait avec envie Jean et Claude dont les
 deux jeunes et honnêtes visages exprimaient une
 joie plaisante à voir ; et il répétait en se frottant les
-yeux :
-
-— Veinards ! Veinards!
 
 — Oui, nous sommes des veinards ! et puis, disnous adieu : c'est l'heure. En route pour Paris!
 
 Ils s'embrassèrent gaiement avant de se quitter,
 
-9 L.
-
 histoire de quatre ans
 
 puis les deux voyageurs descendirent l'escalier.
-Jean proposa : : |
 
 — Si nous passions au laboratoire ? le vieux y est |
 sans doute, lui, toujours le premier levé. :
 
-— Allons vite, répondit Claude.
 : Les deux jeunes gens allaient passer quelques |
 mois dans un établissement de hautes études scien- |
 tifiques, à Bellevue, près de Paris, et c'était la |
@@ -290,8 +116,6 @@ qui scintillaient dans la lumière humide.
 
 Ils frappèrent à une porte au-dessus de laquelle
 était écrit : LABORATOIRE.
-
-= PREMIÈRE PARTIE :
 
 — Entrez ! répondit une voix grave.
 
@@ -325,15 +149,11 @@ en-a pas deux comme lui pour ouvrir les yeux
 d'un commençant. Plus d'une fois, quand je
 suis là, penché sur mes jattes et mes éprouvettes, je pense à lui, grâce à qui je vois tant de
 choses. Vous allez à Paris, directement, ou par
-Besançon ? ;
 
 — Par Besançon. Nous avons rendez-vous avec
 
-II
-
 histoire de quatre ans
 trois camarades qui feront avec nous un stage à
-Bellevue.
 
 — Besançon ce matin ! dit le chimiste avec une
 voix soudain attristée. Ce sera un hideux spectacle.
@@ -354,7 +174,6 @@ mieux pour vous. Et vous devez être pressés.
 Adieu, enfants, et mes souvenirs à Tillier.
 
 — Nous n'y manquerons pas, répondirent les
-deux amis.
 
 Ils serrèrent la main du vieil homme et descendirent d'un pas rapide et gai vers la vallée. A
 droite, à gauche, les maisonnettes qu'habitaient les -
@@ -363,8 +182,6 @@ comme de vagues dolmens dans la brume.
 
 — Ils dorment tous, remarqua Jean. Nous avons
 eu raison de leur dire adieu dès hier.
-
-PREMIÈRE PARTIE
 
 Ils marchèrent une demi-heure. Puis une barrière
 blanche traversa leur chemin, à la croisée d'une
@@ -377,7 +194,6 @@ vastes travaux, des merveilleuses recherches qu'ils
 allaient entreprendre. Ils dissertaient avec cette
 vivacité, cette naïveté intellectuelle qui donne une
 grâce à la jeunesse virile. Ils parlaient inlassablement et n'accordaient pas un coup d'œil au
-paysage.
 
 Qu'elle était grandiose et triste, pourtant, cette
 campagne qu'ils parcouraient, et qu'elle eût surpris
@@ -387,9 +203,6 @@ immense. Parfois on distinguait, au milieu des
 arbres, les arêtes d'un clocher ruiné dominant les
 hauts murs d'une église. Des vestiges d'habitations
 s'élevaient alentour: c'était l'emplacement d'un
-ancien village.
-
-Fe
 
 Comment avait pu s'accomplir une telle trans-
 
@@ -406,14 +219,12 @@ des deux mondes, animés par l'espoir d'une invention extraordinaire et prodigie
 s'appliquèrent au problème, et, très vite, ils trou- :
 vèrent non pas une, mais trois ou quatre solutions |
 pratiques. En 1929, le kilo d'albumine fut vendu
-1 franc ; en 1951, o franc 75 ; en 1952, o franc 45.
 
 C'avait d'abord été une clameur enthousiaste.
 L'humanité avait donc vaincu les servitudes de la
 terre et de l'usine, elle avait réussi son émancipation. Un ouvrier pourrait gagner sa vie en travaillant quatre, trois ou deux heures au lieu de huit,
 
 dix ou onze. Mais ce fut bientôt un cri de désarroi: la plus soudaine des révolutions ruinaït la
-société. .
 
 Le pain, les pommes de terre devinrent en trois
 années des aliments de luxe, des amusements de
@@ -423,13 +234,11 @@ paysans, seize millions d'êtres sur trente-cinq qui
 peuplaient alors la France. La concurrence avilit
 les salaires et les fit descendre si bas qu'en 1933,
 
-: PREMIÈRE PARTIE
 dans les grandes villes d'Europe, ce fut être bien |
 payé qu'obtenir deux francs pour dix heures de
 travail. Des miséreux, par centaines de milliers,
 émigrèrent, sans réfléchir qu'aux États-Unis eten
 Australie la crise était la même. Ces nations interdirent leur entrée et les paquebots ramenèrent les
-premiers partis.
 
 Ïl y eut des émeutes dans toutes les grandes
 villes. On incendia des usines, on massacra des
@@ -437,7 +246,6 @@ ingénieurs. Incendies et massacres ne rendaient
 pas au paysan l'antique travail-de la terre. Les
 sociétés humaines étaient troublées dans leur vie
 traditionnelle par la propagation foudroyante d'une
-invention chimique. |
 
 Les démagogues, ravis dé l'aubaine, emplissaient
 le monde de leurs voix. Soutenus par la formidable
@@ -449,7 +257,6 @@ directeur et propriétaire à peu près unique du
 trust des albumines, réalisait dans le désarroi universel une prodigieuse fortune ; ils réclamaient que
 ses usines fussent confisquées, que la fabrication
 des albumines fût interdite. Mais les urbaïns s'y
-opposaient.
 
 Alors les démagogues trouvèrent autre chose : ils
 
@@ -482,13 +289,8 @@ cinq-six ou les quatre-six. (1) La situation écono-
 
 (1) Telles étaient les abréviations courantes. Le premier chiffre
 désignait le nombre des heures occupées, le deuxième le taux du
-salaire.
 
-16 $
-
-PREMIÈRE PARTIE
 mique retrouva un peu de stabilité, et la vie devint
-tolérable.
 
 On se félicita du changement survenu. La vie était
 facile, plus facile qu'elle n'avait jamais été. Grâce à
@@ -516,8 +318,6 @@ fois ordurière et raflinée, et partout répandue.
 Puis on écouta les médecins qui signalaient l'augmentation du nombre des aliénés : de 55.378 en
 
 histoire de quatre ans
-1855, il était monté en 1900 à 87.428 ; en 1920 à
-164.971; en 1930 à 256.001; en 1936 à 378.126 ;
 et en même temps ils indiquaient les causes :
 d'abord, et à l'origine de toutes les autres, la
 vacance de l'esprit déterminée par les trop
@@ -540,11 +340,8 @@ posait tous au contraire en constituant pour la première fois une réelle human
 autrefois besogneuses, qu'allaient-elles faire de
 leurs âmes et de leurs corps oisifs? L'utilisation
 des loisirs devint la plus pressante des questions
-sociales.
 
 Une élite recrutée parmi les universitaires, les
-
-PREMIÈRE PARTIE
 
 médecins, les ouvriers d'art, ou mécaniciens, ou
 chimistes, donnaït en vain l'exemple. Elle employait
@@ -597,13 +394,9 @@ par le trust Rodrigue-Kohnson et Lefort. Kohnson
 était, par ailleurs, maître absolu des cafés-concerts,
 des théâtres et des huit principaux journaux.
 
-PREMIÈRE PARTIE
-
 Dirigée par quelques familles juives, tempérantes
 et de bonnes mœurs, cette administration formidable était l'instrument de la dégénérescence européenne. Ce lui fut un jeu d'amortir l'agitation des
-hygiénistes. Blagués au café-concert, blämés au
 parlement, insultés par la presse, ils furent vite
-discrédités.
 
 La campagne n'avait pas été totalement vaine.
 Elle avait rallié quelques centaines d'individus,
@@ -653,11 +446,8 @@ de la dissolution sur l'organisation. Nous affirmons |
 que la vie n'a de sens que par la jouissance, c'est- |
 |
 
-PREMIÈRE PARTIE
 à-dire l'épanouissement, — annonciateur de la
-mort.
 
-Quelques individus, névropathes, épileptiques,
 tuberculeux guéris, doués par leur dégénérescence
 même d'une sensibilité suraiguë et parfois exquise, |
 dénaturèrent la poésie, la musique, la peinture, et
@@ -667,7 +457,6 @@ un poison mortel et saturé d'amertumes. Il y avait
 au fond de leur sadisme un irrémédiable désarroi,
 une interruption de l'instinct vital. Les mieux
 doués d'entre eux, un Bouhours, une Marolle exprimaient cette mélancolie avec une intensité poignante. Ils allaient vers la mort à travers la jouissance et logiquement ils étaient menés aux pratiques euthanasiques : ils y entraînaient leurs
-lecteurs. ;
 
 Les asiles, quoique vastes et multipliés, ne suflisaient pas à recueillir les idiots et les fous qu'on
 rencontrait, divaguant par les rues, comme au dixneuvième siècle les ivrognes. Ils circulaient sans
@@ -676,7 +465,6 @@ assommèrent leurs gardiens, envahirent la ville au
 nombre de douze cents, pillèrent les débits d'alcool et de morphine, désarmèrent un poste, battirent la police, coururent à l'Institut de Régéné-
 ration Obligatoire (c'est ainsi qu'on appelait les
 
-Se
 histoire de quatre ans
 prisons), et mirent en liberté deux mille voleurs. Il
 fallut envoyer dü canon pour réduire l'effroyable
@@ -685,7 +473,6 @@ insurrection de tous les dégénérés.
 L'opinion s'étant fort émue, les socialistes libertaires et les savants positivistes crurent opportun
 de publier ensemble un manifeste où ils rappelaient
 leurs déclarations de 1945. Ils répétaient leurs
-avertissements, leurs sommations.
 
 Le premier accueil fut favorable; on écouta les
 idées énoncées. Mais ce fut un mouvement d'opinion et de causerie, rien de plus. Cette humanité
@@ -703,10 +490,7 @@ demeurait introuvable et les amateurs se désolaient
 à l'idée de manquer un si beau procès. Mais un
 journaliste réussit où la police échouaïit. Il découvrit l'homme, le cacha dans un lieu secret, et pour
 
-PREMIÈRE PARTIE
-
 prix de la liberté lui fit écrire ses mémoires. Les
-livraisons, simultanément publiées en russe, en
 allemand, en anglais, en français, étaient répandues à plus d'un million d'exemplaires. Luther,
 caché dans la Wartbourg, avait moins agité le
 monde avec ses manifestes que ce héros du crime
@@ -728,8 +512,6 @@ incapables et superstitieux, ne purent affaiblir les
 coopérateurs socialistes. Ils continuèrent de fournir
 la quasi totalité du personnel savant dont la société ;
 avait besoin. Leurs femmes administrèrent toujours les hôpitaux, les écoles. Leurs établissements
-
-IT
 
 histoire de quatre ans
 
@@ -758,11 +540,6 @@ par la théorie, mais rapprochés par la pratique, ils
 
 entretinrent avec eux des rapports d'estime.
 
-26 ù
-
-\
-PREMIÈRE PARTIE
-
 Isolés par la nécessité des choses, parce qu'ils “LE
 étaient différents et supérieurs, cette solitude imposée fut pour ces quelques milliers d'individus un
 bienfait qui les rendit plus différents, plus supé-
@@ -777,7 +554,6 @@ une humanité qui semblait ne plus apprécier que
 le divertissement. Fidèles à leur passé, maîtres de
 leurs passions, braves devant l'avenir, ils réalisaient une vraie existence humaine. Ils pratiquaient
 la vertu, merveille d'art et de réalité depuis si
-longtemps méconnue.
 
 Cette renaissance du sentiment héroïque avait
 déterminé la restitution d'un type oublié, — le sage
@@ -789,8 +565,6 @@ temps, à leurs amis, à leurs quelques élèves, ces
 grandes forces à peine ou mal utilisées, un Théo-
 ‘phile Dufour, un Vacherot, un Bersot, un Bixio, un
 Lagneau, un Pécaut. Ils savaient méditer, et il est
-
-\
 
 histoire de quatre ans
 nécessaire en société que quelques-uns méditent
@@ -809,7 +583,6 @@ muet par un cancer, crayonnait ce qu'il voulait dire
 à ses amis. Surlle socle de son buste on avait gravé
 la dernière de ces lignes : « A l'heure de La mort
 nous ne possédons plus que ce que nous avons
-donné. »
 La gloire de ces individus était considérable parce
 que le besoin qu'on avait d'eux était senti par tous.
 La foi naïve du dix-neuvième siècle en une sorte de
@@ -817,9 +590,7 @@ Providence matérialiste qui eût porté les hommes
 au mieux ayant été ruinée par les faits, tous, ou
 presque tous, estimaient que le bienest une création
 de l'homme, qui doit, non pas contrarier la nature,
-28 ;
 
-PREMIÈRE PARTIE
 mais s'ajouter à elle, comme le génie du sculpteur
 au bloc de marbre. Ainsi, le sage avait retrouvé la
 place élevée qui normalement lui revient, comme
@@ -844,8 +615,6 @@ l'intelligence et de la volonté, saisiraient-ils le pouvoir par une imposition 
 régner sur un asile de dégénérés était leur meilleur
 æspoir. Mais ils craignaïent, et à bon droit, les
 
-29 xr.
-
 histoire de quatre ans
 
 caprices de ces multitudes méchantes qui détestaient
@@ -854,32 +623,23 @@ universel, ils voyaient revenir une majorité plus
 haineuse, plus passionnée contre eux, et à chaque
 fois ils s'interrogeaient : Allons-nous être accablés
 par les impôts et les lois d'exception ? Sommes-nous
-condamnés ?
 
 Au jour où ce récit commence, ils attendaient
 avec une nuance d'anxiété. Le soir même ils sauraient le résultat de ces élections générales qui donneraient peut-être une force écrasante aux agitateurs « libéraux populistes ». On connaissait leurs
 desseins : ils voulaient interdire l'accès de toutes les
 fonctions publiques, et premièrement des fonctions
-enseignantes, aux membres d'associations fermées.
 Une telle mesure eût rudement atteint le peu de
 civilisation véritable qui avait pu être sauvé.
 
-PA
-
 — Voici Besançon : nous sommes arrivés, fit
 Touron, interrompant une démonstration de son
-ami.
 
 Le tramway s'engagea dans une rue dont les maisons, au tiers ruinées, offraient un aspect lamen-
 
 table. Les rares passants avaient un air débile,
 comme certains habitants des régions paludéennes
-30 :
 
-PREMIÈRE PARTIE À
-À
 où la fièvre sévit. Claude et Jean observaient en $
-silence. f.
 Le tramway s'arrêta et ils descendirent, cherchant des yeux la Maison du peuple, qu'ils savaient
 proche. Ils l'aperçurent bientôt : sa façade avenante
 détonnait agréablement parmi les autres. Pourtant
@@ -898,7 +658,6 @@ Et si nous n'avions pas été ici, quinze camarades
 avec nos revolvers, je crois bien qu'on démolissait
 la boutique.
 — Vous allez bien, à Besancon! dit Claude
-Touron.
 — Ils criaient je ne sais quoi, des vraies paroles
 de fou. Il paraît qu'il est mort hier pas mal de
 monde à l'hôpital. Tous les jours, d'ailleurs, il en
@@ -914,7 +673,6 @@ gens. Des folies, je vous dis; mais les folies, ça
 prend avec les fous, et vous voyez le résultat.
 
 — Empoisonner les gens! c'est une histoire du
-Moyen-Age.
 
 — Cette racaille-là, c'est pire qu'au grand jamais.
 Et pourtant, leur idée de poison, je la trouve assez
@@ -927,7 +685,6 @@ avez déjeuné ce matin, jeunes gens? Entrez, qu'on
 vous réconforte.
 
 Il les fit asseoir et leur versa deux pleins bols de
-lait.
 
 — Vous avez le temps. Vous prenez le train de
 dix heures quarante, le rapide de Paris. Vos compagnons de route, qui vont avec vous travailler la
@@ -936,15 +693,11 @@ chimie, sont arrivés hier soir. Ils ont couché ici,
 
 Ils parurent en effet : Trois jeunes gens, une jeune
 
-32 k
-
-PREMIÈRE PARTIE |
 fille, et le gérant fit les présentations. Il y eut pen- Ne
 dant quelques minutes un rapide échange de paroles.
 On nomma les colonies de chacun, on se découvrit F
 des amis communs, puis, connaissance faite, on |
 mangea silencieusement. Le gérant lisait un jour- À
-nal.
 
 — Mais, mais! fitil tout à coup, elle paraît
 sérieuse, cette maladie, à l'hôpital. :
@@ -996,9 +749,7 @@ pire que la précédente, dit Jean.
 Le gérant eut un joyeux rire.
 — La Chambre ! vous êtes jeune. Croyez-vous
 que ça existe, la Chambre? Que les bonnes gens
-34 j
 
-PREMIÈRE PARTIE b
 aillent voter, et nomment qui leur plaît! Moi, 4
 j'irai me promener aux champs, avec ma compagne À
 et mes deux filles; c'est plus sérieux. “#
@@ -1014,9 +765,6 @@ dont les yeux candides étaient encastrés dans les
 magnifiques arcades d'un front vaste et dressé |
 comme un mur; ce qu'il faudrait, ce serait que
 les comités scientifiques obligent les Chambres à
-décider certaines choses.
-
-Claude Touron répondit :
 
 — Mais alors, nous donnerions de la force aux
 savants, et il ne le faut pas. |
@@ -1025,7 +773,6 @@ Claire Vuillemot (c'était le nom de la jeune fille) |
 appuya d'une voix indignée :
 
 — Non, il ne le faut pas; ce seraient de nouveaux
-maîtres.
 
 ; histoire de quatre ans
 Et Claude reprit :
@@ -1052,9 +799,7 @@ presque séculaire avait montré la possibilité.
 — Oui, répondit l'enfant aux yeux candides,
 Benjamin Raband, je ne le défends pas; mais tous
 
-PREMIÈRE PARTIE sl
 les savants ne sont pas comme lui; Tillier, par , |
-exemple... f
 
 En effet, Tillier, directeur du Collège des hautes :
 studes scientifiques où se rendaient nos étudiants, \ |
@@ -1064,12 +809,10 @@ bon accord, non pas (cela va de soi) avec la démocratie dégradée du suffrage 
 démocratie organisée des associations ouvrières.
 lillier était d'ailleurs relativement isolé dans le
 monde savant, où ses opinions ne prévalaient
-point.
 
 La conversation dévia. Les jeunes gens s'entreinrent de leurs occupations, des habitudes spéciales
 tux colonies où ils avaient vécu ; chacune, en effet,
 ivait ses institutions, ses innovations dont elle était :
-ère. Claude Touron interrogea Claire Vuillemot.
 
 — Camarade, lui dit-il, n'êtes-vous pas de l'assolation apicultrice de Poligny ?
 
@@ -1081,9 +824,6 @@ qu'elle avait produits depuis quarante années.
 nouvement d'orgueil qui anima son regard et
 olora ses joues.
 
-pie
-
-: EH QE.
 histoire de quatre ans
 — Récemment, un conférencier de passage chez
 , nous a parlé de vos écoles; il nous a fortintéressés.
@@ -1106,19 +846,12 @@ l'entraînement à la discipline, pour lequel il faut
 réunir les enfants, et la culture du don, pour
 laquelle il faut les laisser se grouper eux-mêmes.
 Voilà, conclut-elle un peu intimidée par un si
-long discours.
 
 — Mais vous allez être gênées par la circulaire
 du mois dernier, qui interdit les écoles privées ?
 
 — Ah! fittristement Claire Vuillemot, c'est mon |
 inquiétude. Espérons que les élections ne seront pas
-
-trop mauvaises. :
-38 |
-
-Ai oi 41:14 28 RAS L N à. ho het : ba
-PREMIÈRE PARTIE 1
 
 Il y eut un silence. Jean Schrader et Pierre
 
@@ -1147,7 +880,6 @@ disséminé la population de la ville et de la
 
 banlieue sur un énorme espace de campagnes
 
-souillées.
 Le wagon croisait des voies spacieuses, solitaires
 
 ettristes malgré que ce fût un dimanche. Les fêtes
@@ -1202,9 +934,6 @@ gardé tout son charme animal.
 Les six jeunes puritains avançaient dans une
 foule étrange qui les bousculait et parfois les sépa- |
 
-CS ;
-
-PREMIÈRE PARTIE À
 rait : ils se rejoignaient aussitôt avec une hâte 1 L
 inquiète. Ils ouvraient grands leurs yeux troublés \
 et regardaient sans comprendre. Ils ne savaient pas =
@@ -1234,7 +963,6 @@ euillages des arbres centenaires ; des fusées mon41
 
 histoire de quatre ans È
 taient et s'inclinaient dans l'air en bruissant; des
-pluies d'or tombaïent silencieusement. Quelque
 chose de la grandeur des ancêtres avait passé dans à
 la corruption des fils. e
 
@@ -1259,16 +987,10 @@ contre Pierre Vimeu, qu'elle heurta légèrement. Il
 la regardait, et elle, lui trouvant l'air province et
 gentil, rit à son nez en l'appelant :
 
-— Bêta!
-
 Les jeunes gens avancèrent encore de quelques
 pas. Puis, soucieux de ne pas gêner la jeune fille |
 
-É
-: |
-RE PREMIÈRE PARTIE 4
 qu'ils accompagnaient, silencieusement ils firent |
-demi-tour.
 Ils retournèrent aux boulevards qu'encombrait |
 une foule nerveuse et méchante. Les résultats des
 élections commencçaient à être connus, et les nouvelles qui parvenaient s'écrivaient à mesure, en
@@ -1276,12 +998,10 @@ lettres de feu, sur le balcon du Palais des journaux.
 Plus de vingt députés sortants, positivistes ou
 socialistes libertaires, étaient vaincus. Les libéraux |
 populistes revenaient partout avec des majorités
-accrues.
 A chaque victoire proclamée, la foule répondait
 par des aboïements plus furieux. Elle s'enivrait
 de son triomphe comme une brute se grise en
 frappant. Elle répétait les noms des vainqueurs et
-hurlait : È
 — À bas les socios!
 Les jeunes gens écoutaient. Ils étaient nés, ils
 avaient grandi dans les communautés rurales, et,
@@ -1299,7 +1019,6 @@ _ Elle fera quelque chose; écoutez comme elle
 
 crie! — Voilà cent ans! — Elle fermera nos écoles, +
 vous verrez; elle exclura nos maîtres. — Qu'elle
-essaie! À
 
 Pendant une heure, les jeunes gens écoutèrent ces -
 propos et les cris. La scène leur semblait horrible .
@@ -1311,7 +1030,6 @@ chose immonde. Pourtant ils restaient là. Touron
 dit enfin : 1
 
 — Il faut partir, ou nous arriverons trop tard à
-Bellevue.
 
 Claire Vuillemot, qui semblait plus frappée que |
 les autres, considéra longuement cette foule.
@@ -1329,10 +1047,6 @@ semble-t-il, ne lut ou n'attacha la moindre importance à une courte dépêche, 
 
 « Hôpital de Villejuif ; neuf heures. — Quatre-
 
-PREMIÈRE PARTIE ç
-4: Ê
-
-vingt-trois hospitalisés viennent d'être frappés ÿ
 d'un mal étrange et foudroyant. Dix ont suc- C4
 combé et l'état de la plupart des autres est déses- |
 péré. Le bruit court que des cas ont éclaté dans
@@ -1352,7 +1066,6 @@ péré de les voir. Ils dirent quelle curiosité les
 avait retenus à Paris : Les élections! Le télé-
 phone renseignait à Bellevue, et les nouvelles
 n'entravaient pas les danses. Qu'importait un
-Parlement? |
 
 L'entretien ne se prolongea pas. Dès que les voya- |
 seurs eurent absorbé quelques tasses de camomille,
@@ -1361,13 +1074,10 @@ poudreux et semblaient las.
 
 Le lendemain, à la première heure, chacun d'eux
 
-45 Il.
-
 histoire de quatre ans |
 
 reçut un petit mot : Vincent Tillier les invitait à .
 déjeuner avec lui. À
-5 FE à
 
 Tillier était un homme de cinquante ans. Il avait É
 au cours de sa vie beaucoup joui par son travail, ;
@@ -1393,9 +1103,7 @@ santes de la vie : celle-là, plaintive et lamentable, ;
 qui prolonge les destructions; celle-ci, glorieuse et .
 rajeunissante, qui fait écho à toutes les créations À
 et rassérène les cœurs brisés. Il demanda, il obtint .
-46 |
 
-PREMIÈRE PARTIE 4
 la direction du laboratoire de chimie végétale je
 fondé à Bellevue, vers 1880, par Marcellin Berthe- |
 lot. Il entreprit aussitôt de le transformer d'une
@@ -1422,7 +1130,6 @@ aux travaux pratiques; à la fin de chaque journée,
 les étudiants, réunis sous la direction du chef,
 exposaient et discutaient quelques-uns des résultats
 
-É
 histoire de quatre ans À
 obtenus. Les indications les plus intéressantes
 étaient consignées dans les Annales semestrielles du
@@ -1441,7 +1148,6 @@ découragé : ce sentiment lui était tout à fait inconnu. ‘|
 « C'est comme une lacune qu'il y aurait en moi,
 pensait-il en souriant à travers sa tristesse,
 — une heureuse lacune. »
-++ J
 Le lendemain, à l'heure convenue, les jeunesgens
 se dirigèrent vers la maison de Tillier. Très simple, |
 et restée telle qu'au dix-neuvième siècle Berthelot \
@@ -1450,17 +1156,12 @@ colline, dominant un verger en pente qui laissait 4
 entrevoir, à travers ses verdures, l'étendue im- l
 mense de Paris, hérissée de flèches et de dômes : |
 vue de loin et de haut la vieille cité avait grand air. 1
-48 n |
-L k
-
-PREMIÈRE PARTIE
 
 Tillier apparut sur le perron de la modeste entrée,
 et voyant les nouveaux venus, tout de suite il alla
 vers eux. Des yeux profonds et doux, un sourire
 affable humanisaient son étrange visage qu'on eût
 dit taillé à coups de bêche dans quelque motte de
-terre dure.
 
 — Nous vous attendions hier soir pour dîner,
 leur dit-il; mais notre capitale vous a retenus,
@@ -1491,8 +1192,6 @@ vos montagnes. Comme il est bon, votre miel! et À
 votre pain d'épices! Il faut le manger au sortir du 4
 four, tout chaud! quel régal! ; n ||
 — N'êtes-vous pas de Poligny, mademoiselle ? ne ||
-interrogea Vittoria Vivanti. 1
-— En effet. +
 — Je connais votre colonie, et nous la connaissons tous en Italie par les livres qu'elle a produits, 1
 de bien beaux livres sur l'apiculture, bien beaux! À
 — Remarquablement exacts, dit Bergougnan. |
@@ -1513,7 +1212,6 @@ goût, en toutes choses, d'une forte et gracieuse 1
 rectitude. Il demanda : j
 — J'ai su qu'on avait essayé de nouvelles |
 
-PREMIÈRE PARTIE <
 méthodes pédagogiques à Poligny ; pourriez-vous
 me les exposer, mademoiselle ?
 
@@ -1524,7 +1222,6 @@ de fer, et quand elle eut achevé :
 nous nous attardons en France au système d'un
 maître pour trente enfants !
 
-Vittoria Vivanti, Bergougnan demandèrent quelques renseignements supplémentaires. Claire fit
 réponse à tous. On parla des particularités du laboratoire, et du vieux poète Jussieu, qui né dans la
 colonie, y achevait heureusement sa vie pour le |
 plus grand charme de tous.
@@ -1537,14 +1234,10 @@ jouir passivement.. quelle idolâtrie! La vie, cela
 n'existe pas. On veut la saisir : maïs c'est un fantôme, et on tombe. La vie, il faut la ressusciter,
 la créer à chaque instant, — travailler, en un mot.
 On ne jouit en réalité que de la peine qu'on s'est
-donnée.
-
-Herdey intervint :
 
 — L'erreur, dit-il, je la comprends. C'est une
 
 histoire de quatre ans È
-}
 sorte d'illusion optique. La situation des hommes 1
 aujourd'hui est tout à fait étrange, pitoyable. Non |
 seulement ils sont privés d'instinct, et tous les .
@@ -1563,7 +1256,6 @@ multiplié les plaisirs. Résultat : nos instincts 4
 portent à faux, ils nous font trébucher en aveugles È
 dans une nature pour laquelle ils n'ont pas été faits. +
 Herdey se tut ; puis, nul ne répondant, il pour- |
-suivit : 1 :
 — Tenez, dit-il ; il y a un effort dont la nature É
 nous avait donné l'habitude et presque l'instinct, à
 c'était l'effort guerrier. Pour la guerre, l'humanité 1
@@ -1572,11 +1264,8 @@ s'est pas battu. Notre seul instinct héroïque est ;
 devenu inutile. Pour moi, je plains les hommes: 4
 ce sont de pauvres êtres désorientés dans le monde ÿ
 nouveau de la science. ,
-5a ;
 
-PREMIÈRE PARTIE
 Un des nouveaux venus, qui jusqu'alors avait
-timidement écouté, se hasarda :
 — Mais alors, dit-il, ils auraient donc raison, ces
 naturiens qui renoncent aux machines et qui.
 labourent la terre ?
@@ -1601,7 +1290,6 @@ au hasard dans cet abîme de faiblesses, la con- |
 science, ou plutôt l'inconscience des hommes ! c'est
 là-dedans qu'il faut travailler aujourd'hui!
 Bergougnan leva son visage grave et carré.
-53 |
 
 histoire de quatre ans 1
 
@@ -1610,7 +1298,6 @@ histoire de quatre ans 1
 — L'humanité est mal équilibrée; trop d'intelli- à
 gence, trop peu de caractère. Le désaccord ira tou- d
 jours augmentant et il y aura une catastrophe au 1
-bout. À
 — Que vos prédictions sont rapides ! répondit À
 Tillier. L'humanité, pensez quelle multitude d'êtres 1
 elle enferme, combien de races, de possibilités; et 4
@@ -1632,10 +1319,6 @@ de faim, c'est désagréable, mais ce n'est pas mauvais pour la santé.
 Bezoukoff, le Slave aux traits de Kalmouk, leva |
 un visage irrité où clignotaient deux petits yeux. |
 
-54 ;
-
-n
-PREMIÈRE PARTIE
 — Vous ne comprenez pas, s'écria-t-il, vous ne
 comprendrez donc jamais! Il y a des forces nouvelles, pour la conscience comme pour la nature.
 Qui connaissait, il y a cent cinquante ans, les ondes
@@ -1648,12 +1331,10 @@ vous haussez les épaules. |
 — Nous croyons, expliqua doucement Tillier, que
 vous méprenez pour une force une combustion de
 réserves nerveuses ; votre méthode...
-Bezoukoff interrompit :
 — Des mots ! qu'est-ce, une combustion ? qu'estce, une réserve ? qu'est-ce que cela signifie, nerveux ?
 Il pâlit, ses mains tremblèrent. Le spectacle de
 cette colère affecta les convives et il y eut un silence
 pénible. Tillier se leva de table, car le repas était
-terminé.
 À cette minute, un coup de gong résonna, et,
 comme tous passaient dans la pièce voisine, l'étudiant de service apparut. Il avait entre les mains
 une carte de visite qu'il remit à Tillier. :
@@ -1672,15 +1353,12 @@ circulaires. C'était un petit homme décharné. Il res- }
 semblait à ces insectes qui ont pour tout visage Ë L.
 deux yeux ronds comme des boules dominant de
 larges mandibules ; il était fort laïd. Tillier alla vers
-lui : I \
 — Vous venez m'interroger sur cette maladie,
 paraît-il? Mais il faudra, monsieur, que vous me L
 renseigniez d'abord, car je ne suis pas au courant. #
 — N'avez-vous pas lu les journaux, ce matin ? E
-— Non. A
 — Maïs c'est affreux, monsieur ! Il est mort cette |
 nuit plus de cinq cents personnes. La terreur est 3
-partout.
 Le malheureux semblait , effectivement très
 effrayé. Il serrait un journal dans ses mains fié- à
 vreuses. Tillier le prit et l'ouvrit. C'était une sorte 1
@@ -1688,9 +1366,7 @@ d'immense liasse, un imbroglio de douze pages acco- !
 lées les unes aux autres. Il n'y avait pas d'article à k
 proprement parler, mais une multitude de petites À
 dépêches, précédées chacune d'un gros titre et d'une
-56 À
 
-PREMIÈRE PARTIE ;
 image qui épargnaient presque au lecteur la peine è
 de lire. Tillier, perdu dans ce fatras, demanda : j
 — Où sont vos nouvelles ? ;
@@ -1715,12 +1391,7 @@ voici quinze jours, et intitulé : Observations sur 1
 quelques cas récents de pathologie anormale. Tout ;
 ce que vous y lirez concorde étrangement, et dans 4
 une certaine mesure annonce vos nouvelles d'au- +
-jourd'hui. à
 — Mais n'avez-vous pas une appréciation géné- É À
-rale ? à
-57 |
-F
-;
 
 histoire de quatre ans dé
 
@@ -1753,21 +1424,16 @@ comme un marteau puissant, pour briser les races
 mourantes, les rejeter hors du chemin et ouvrir les
 voies à un nouvel ordre de vie en satisfaisant les
 
-58 ; [|
-
-PREMIÈRE PARTIE /
 dégénérés dans leur désir de mort. Cette idée,
 je vous la livre, monsieur, et vous l'applique. $
 Répétez-la donc à vos lecteurs. Ils ont méprisé
 nos conseils, répudié notre discipline. L'épidémie
 qui s'annonce pourra satisfaire leur désir de
-mort.
 
 — Votre commission sera faite, monsieur, n'en
 doutez pas, dit le journaliste tout blême.
 
 Il se retira ; et, dans le court silence qui suivit son départ, Bezoukoff se leva et de même
-sortit.
 
 — Bezoukoff ne paraît guère content, remarqua l
 un des camarades.
@@ -1777,7 +1443,6 @@ Schrader, lui dit en manière d'explication :
 
 — Bezoukoff est un spirite, un morphinomane,
 croyons-nous, comme presque tous ces Russes qui
-viennent étudier ici.
 
 En effet: après le grand effort d'émancipation
 qu'elle avait fourni au début du vingtième siècle, la
@@ -1785,12 +1450,10 @@ Russie occidentale, écrasée sous un flot de milices
 barbares, kurdes, circassiennes, afghanes et mongoles, s'était abandonnée. Le mysticisme avait consolé les révolutionnaires vaincus, et une multitude .
 de sectes, silencieusement répandues, s'étaient taillé
 chacune leur domaine dans la prison orientale irré-
-médiablement close.
 
 histoire de quatre ans "à
 
 Raoul Herdey confirma la parole qui venait d'être
-dite : ?
 
 — Bezoukoff est un extatique, un fanatique. Vous 4
 êtes trop bon de l'inviter ici, monsieur Tillier. Il
@@ -1807,49 +1470,15 @@ un instant dans mon bureau ? Il faut que nous cau- .
 sions travail. Messieurs, je vous verrai ensuite. 1
 
 de LV a Et MIA EMA ART NTI
-LEUR Au FT 4 ‘ | CE
-EL 4 VE LE 4 À È v'R
-à (? Re RE ML Pr 5 AL pe 1 “ren
-D ÉUUÈME pañre 14 1 RSR
-“HARAS AN # ta R à 1 Éc MOTO
-AVR R . a UE à
-“PA NES TaËrs dratiav duoxer. ‘SAR
 ACER L'ordre poursuit le désordre. FFRUSES
 Je Pre (4e 1 1 Lai a
 ni 49) NS y ge EX
 MU de ar dt w rs fo
-RES ; , EU 1 PENSE à
-SR an QU k x à . 12,
-Fe ù 15 EE
-ÿ ah PILES x OA Ca FH
-AR PRE « +; 4" #00
-RARE Pie | HS 1): SRE
-{ “a. El our - w LE
-Lu NT k ï 46 ARE
-ERNST Me
-L FETES vof AU { RE RO LEUR AT s RONA We,
-+ | VAT RENTE AMEN 4 dr Pal
-3 CAN TT de
 
 | EN tte LYPARE ARR RE OR
 231. ROMAIN NL es ER te (ral RP A CANCER ra M de STE
 5 NE NE DR Re INA PE ONE Vers fa
-Rene AA ER TE 4 FRS MEN) É EU ATEN
 PE AT ATEN ANR lle pe SANS EE (TPM ER
-ANGL. SE UNE ES MELORS age US à & Le ES RUES MAT
-RSR RE EE FAT EI my ; à à 1, 2 We TE SAR SN
-Ki RUES 4 % 23 CSS TENTE
-Re y FLN RL ANS AREA MA
-7 ss à : UNSS PRET RNES
-VAT e \ ‘#4 PA LOTO RS MARERE
-1,1 FRE) S * REA ALP MUR
-0 ; 2 RAR
-TAUTE" ; F ASANCRA 1 HENIRS
-LACS se Etur pes LT ATEN
-NA 4 LAN RENE AI FES l
-“on 7 Pr \ — 42 ETC M AAONSES |
-
-DEUXIÈME PARTIE
 
 Les journaux du soir publièrent d''effrayantes ë
 dépêches. Expédiées de tous les coins de France
@@ -1858,10 +1487,8 @@ apparu ; tant d'atteints, autant de morts. Presque
 toujours l'épidémie avait éclaté dans les asiles de
 fous et d'épuisés. En plus d'un cas elle y avait
 exercé de foudroyants ravages: à Nuremberg,
-Harlem, Innspruck, Côme, Reggio, Senlis, au
 Mans, la quasi unanimité des hospitalisés avait été
 frappée en quelques heures d'une décomposition
-immonde.
 
 Les gens achetaient les journaux avec fièvre et
 s'attroupaient dans la rue pour les lire. Les questions, les réponses, s'entre-croisaient, mais brèves et
@@ -1878,7 +1505,6 @@ désir de mort... » Alors s'élevaient des rumeurs :
 Nous, les inadaptés, comme ils prononcent!
 
 Et si quelque modéré protestait, les voix, jusqu'alors isolées, se pressaient et prenaient des
-inflexions mauvaises :
 
 — Ah, vous en êtes, des buveurs d'eau, des
 buveurs de lait! Ne restez donc pas avec nous, |
@@ -1898,13 +1524,8 @@ ciation d'idées unit la défaite électorale des positi- ;
 vistes et l'explosion de l'épidémie : celle-ci était une ;
 vengeance, et le commencement du grand attentat 4
 de la caste orgueilleuse contre la multitude des M
-hommes.
 
 Des bandes se formèrent, grondant des menaces
-
-ARS
-
-. DEUXIÈME PARTIE
 
 rythmées. Dans les cirques bondés le public était
 inattentif. Il écoutait les rumeurs de l''émeute et
@@ -1914,7 +1535,6 @@ Mort. A peine si les vainqueurs furent applaudis.
 À la Maison du Rêve, où quinze cents individus
 pressés recevaient, les yeux fixes et la mine extatique, les effluves magnétiques jetés vers eux par
 de puissants radiateurs, une femme s'écria tout à
-COUP :
 
 — Je suis prise... je suis morte ! Elle tremblait
 de tous ses membres. Une rumeur effroyable s'éleva
@@ -1934,14 +1554,11 @@ Mais ceux mêmes qui l'accompagnaient s'écartèrent d'elle. Les spectateurs, hu
 houlèrent aux portes, et coururent accroître en s'y
 
 - mélant les remous de la foule.
-“2h
 
 Tillier était assis avec quelques amis sur la ter-
 
 rasse de Meudon. Tous savaient les nouvelles
-65 IV.
 
-F %
 histoire de quatre ans à
 récentes, et considéraient avec un sentiment d'an- |
 goisse la ville immense étendue à leurs pieds. Un
@@ -1963,7 +1580,6 @@ On entendit un bruit de pas qui approchaient.
 
 — Ah! fit Tillier, ce sont nos jurassiens d'hier;
 ils reviennent de Paris. Avez-vous les journaux,
-jeunes gens ?
 
 — C'est affreux, dit Jean avec animation, on
 vous insulte.
@@ -1975,10 +1591,7 @@ inouie, où un fléau d'un autre âge plane sur les
 cœurs et les étreint, on appréciera le message de
 M. Tillier. On n'oubliera pas la façon cavalière
 
-GE Ne
-
 |
-DEUXIÈME PARTIE. j
 dont il envoie ses semblables à la mort. On prendra
 note. On tirera des conséquences. Où sont-ils donc,
 les temps où les savants voulaient être les serviteurs de l'humanité, où ils étaient Français? »
@@ -1987,7 +1600,6 @@ dures, elles avaient un accent brutal. Mais avec
 toute la douceur et toute la bonté du monde, qu'y
 pouvons-nous”? Nous sommes à une heure de destruction.
 — N'entendez-vous rien? fit quelqu'un.
-— Si fait.
 — Des voix... des rumeurs...
 — J'ai entendu mon nom, dit Tillier, on crie :
 Mort à Tillier! on vient ici.
@@ -1997,8 +1609,6 @@ dehors vers la route obscure, et ils écoutaient, silencieux et le cœur serré 
 la haine. Soudain, quelque objet, vigoureusement
 lancé d'en bas, passa juste entre deux têtes. Au
 même instant, un cri s'éleva, un cri furieux et
-rauque :
-— Mort aux assassins!
 — Qu'est-ce donc?
 — Une pierre.
 — Nos silhouettes se détachent sur le ciel clair. ©
@@ -2014,7 +1624,6 @@ suivit une nouvelle et drue volée de projectiles. ]
 Raoul Herdey. A Varsovie, on a cerné et brûlé le ;
 quartier des Juifs. Il y a plus detrois cents vic
 times. On les accusait d'avoir empoisonné les 4
-aqueducs. 4
 
 — Ces épidémies affolent.
 
@@ -2025,7 +1634,6 @@ fort, ou le choléra n'était qu'un jeu d'enfant com- à
 
 paré au fléau qui nous frappe. Alors, la maladie 1
 était relativement connue, et l'humanité à peu près L
-saine. Aujourd'hui. É
 — Qui donc vient en courant vers nous? dit *
 
 Tillier. Ah! c'est le citoyen Jouandanne, le secrétaire j
@@ -2044,7 +1652,6 @@ vos cornues. Mais ne craignez rien. Il y a cin- .
 quante militants là-haut, qui font bonne garde. t
 — Quoi, fit Tillier en pressant le pas, les choses 4
 
-DEUXIÈME PARTIE
 en sont là? Merci beaucoup, à vous et à vos amis.
 d'autant qu'hier nous étions en querelle, vous libertaires et moi positiviste….
 
@@ -2070,7 +1677,6 @@ Ce n'est pas très prudent, peut-être. On vous connaît.
 
 — Laissez donc, répondit le médecin. Je sais m'y
 prendre avec les fous depuis trente ans que je les
-soigne.
 
 Il tourna du côté des bois, se dirigeant vers son
 
@@ -2079,7 +1685,6 @@ asile de Velizy. Et Jouandanne et les cinquante
 militants descendirent à gauche, vers Meudon. Audessus de l'ombre où ils disparurent, le ciel, éclairé
 par le reflet des splendeurs parisiennes, était
 livide et sans étoiles, pareil à une chair malsaine.
-“Ps
 Un jour, deux jours passèrent. La maladie et la
 folie se propageaient sur toute l'Europe. Elles avan-
 çaient plus lentement ou plus vite; mais jamais
@@ -2087,7 +1692,6 @@ elles ne reculaient.
 Les foules en appelaient aux gouvernants. Que
 pouvaient-ils? En France, les ministres libérauxpopulistes, éperdus, demandèrent conseil à ces |
 mêmes hommes qu'insultait leur parti, aux
-savants.
 Leur Fédération répondit par un hautain refus
 que tous les journaux imprimèrent :
 « Monsieur le Ministre,
@@ -2096,13 +1700,9 @@ ration des sociétés savantes déclarait : E
 « Nous avons le droit et, vis-à-vis de l'humanité, |
 « nous avons le devoir de gouverner la consom-
 « mation des richesses que nous avons créées. }
-« Ceux-là se trompent gravement, ét s'en repen-
-: 70
 
-DEUXIÈME PARTIE
 « tiront un jour, qui s'imaginent pouvoir bénéfi-
 « cier de nos découvertes et répudier notre disci-
-« pline. »
 
 « Ces paroles étaient prophétiques. Elles ne
 furent pas écoutées. Les pouvoirs publics, les individus ont persisté dans les errements par nous
@@ -2149,7 +1749,6 @@ dèrent des lois contre les positivistes, un régime de
 terreur. Ne fallait-il pas les traiter en chiens, puisqu'ils traitaient en chiens le commun des hommes ?
 C'était un long cri de haïne et de folie par où
 s'exprimait l'horrible peur de tous : mort aux
-savanis !
 
 Voyez où leur progrès nous mène! clamaïent les
 démagogues. Et ils opposaient la vie des vieux
@@ -2165,9 +1764,7 @@ rants, étaient à peine touchés par le fléau : ce fait
 étrange envenima l'irritation publique. Des mal-
 
 heureux crurent avec une foi brutale que les savants
-72 F
 
-DEUXIÈME PARTIE |
 voulaient et combinaient leur perte. En plus de |
 trente villes, médecins, pharmaciens furent massacrés, et, dans les hôpitaux, des malades en délire
 trouvèrent assez de force pour se lever, frapper
@@ -2187,7 +1784,6 @@ désorganisés et débordés, des volontaires, presque
 tous socialistes et tempérants, firent le travail de
 l'administration. Ils allèrent de maison en maison
 enlever les cadavres dont la puanteur décelait la
-présence.
 
 L'épidémie avait d'abord déterminé un brusque
 mouvement vers la tempérance. La consommation
@@ -2195,14 +1791,9 @@ de la morphine et de l'éther avait baissé. Mais, soit
 que la privation fût trop dure, soit que le bénéfice
 n'en eût pas assez vite paru, les chiffres de la
 consommation se relevèrent avec rapidité, et bientôt égalèrent les maxima antérieurs. Les pratiques
-euthanasiques devinrent ordinaires. Chaque se-
-
-&
 
 histoire de quatre ans |
 maine, à Paris seulement, cinq ou six cents personnes se donnèrent une mort choisie. |
-
-Pourtant quelques-uns cherchaïient à se ressaisir,
 
 à rompre leurs habitudes de narcotiques et de
 
@@ -2226,7 +1817,6 @@ une colonie socialiste-libertaire. On leur montra
 les chambres à coucher, élégantes et simples, les
 vastes ateliers, la salle pour les concerts, le stade,
 pour les jeux athlétiques, — et l'infirmerie, qui était
-vide.
 
 Les visiteurs furent émerveillés de ce qu'ils
 avaient vu. Ils voulurent s'imposer des tâches, des |
@@ -2238,10 +1828,6 @@ amis et des habitudes.
 
 D'autres s'obstinèrent. La peur, peut-être un
 
-74 |
-+}
-
-DEUXIÈME PARTIE à
 sentiment plus noble, l'horreur de la déchéance, |
 les avait rendus persistants. Ils avaient bravement |
 pratiqué la vie rustique et ne voulaient pas laisser
@@ -2280,9 +1866,7 @@ absolue d'un médecin assisté par cinq aides.
 Les autres colonies suivirent l'exemple donné
 par Vic-sur-Cère, et des milliers de stagiaires furent
 bientôt recueillis dans des locaux vacants ou des
-villages abandonnés.
 
-Bientôt Tillier se trouva presque seul à Bellevue.
 La plupart des élèves avaient rejoint leurs colonies.
 Bezoukoff était mystérieusement parti, laissant à
 deviner qu'il avait découvert dans les forces
@@ -2299,9 +1883,6 @@ constamment avec Tillier, et celui-ci, qui d'abord
 avait redouté cette rupture d'habitudes, s'aperçut
 bientôt qu'il gagnaït au change. IL fut charmé par
 
-os
-
-DEUXIÈME PARTIE
 la finesse toute féminine que la jeune fille mettait
 au service d'un savoir déjà vaste, et peut-être fut-il
 inconsciemment séduit par la promptitude toute
@@ -2331,8 +1912,6 @@ Les sujets d'entretien étaient peu variés. Ils
 et pareils à eux-mêmes. L'extermination des foules
 
 histoire de quatre ans L
-È
-continuait. En trois mois quatre cent mille Pari- |
 siens eurent péri, et dans les colonies même, le
 nombre des atteints croissait un peu.
 
@@ -2344,7 +1923,6 @@ plus ou moins rudement, elle frappe tous les autres.
 — Et nos recherches, dit Vittoria Vivanti, ont
 confirmé les vôtres. Beaucoup de colonies nous ont |
 écrit : elles suivent vos indications pour le recrutement de leurs stations hygiéniques, et s'en trouvent
-bien. |
 
 — C'est drôle, n'est-ce pas? fit Vermorel avec une
 expression de gaieté sur son visage d'ordinaire w
@@ -2361,10 +1939,7 @@ croisent depuis un siècle, N'y avait-il pas, en 1398, « un Vuillemot qui lutta
 
 — C'est exact, dit la jeune fille.
 
-LAS
-
 .
-DEUXIÈME PARTIE
 
 — Il y avait aussi un Schrader, ajouta Jean. Et
 nous sommes cousins depuis lors.
@@ -2382,7 +1957,6 @@ contre argent, les exorcismes rituels.
 
 Bientôt la multitude s'était tournée vers eux. Ils
 demandaient si peu, ils promettaient tant, et flattaient si bien les instincts mystiques que développait l'angoisse ! Il y eut partout des cercles de thé-
-rapeutes psychiques. Quelques soi-disant « moines »,
 sortis on ne sait d'où, eurent l'idée géniale d'en
 organiser dans les églises même, et elles s'étaient
 soudain remplies. Le vieux culte, réduit pour
@@ -2394,7 +1968,6 @@ A Notre-Dame même, quelques milliers de spirites avaient tenu une séance de m�
 c'était cela qui avait si fort affecté Vermorel. La
 messe, donnée avec cette grandiose mise en scène
 
-. à
 histoire de quatre ans
 
 dont l'habitude était perdue depuis un demisiècle, avait impressionné profondément. Pendant
@@ -2426,9 +1999,6 @@ et jouait son rôle de maître, mais c'était un véritable rôle, parfois un pe
 Lorsque le temps était propice, la petite société
 de Bellevue reconduisait Vermorel, au soir tombant, vers Velizy. Le plus souvent, on traversait la
 
-Soin
-
-DEUXIÈME PARTIE
 plaine de Villebon et on s'arrêtait à mi-route, dans
 la forêt.
 
@@ -2458,15 +2028,12 @@ accepté la mort sur un globe refroidi. Mais.
 Vittoria le reprit avec vivacité.
 
 — Voilà donc où vous en vouliez venir! Vous
-devenez trop pessimiste ; depuis quelques semaines,
 vous tendez à désespérer. Il ne faut pas!
 
 — Désespérer est un gros mot. Mais j'espère peu.
 
 — Pourquoi, pourquoi? Tenez, je voudrais que
 vous connaissiez la Bible. Moi qui suis un peu pro-
-
-St Y.
 
 histoire de quatre ans "A
 testante par ma mère, je l'ai lue enfant, et je n'ai
@@ -2500,9 +2067,6 @@ Tillier, qui avait soigneusement écouté, retint ces
 dernières paroles : bonheur, bravoure; il se souvint avoir compris de telles pensées, et il tächa de
 les ressaisir, de les réintégrer en lui. Mais vaine- |
 
-82: -
-
-DEUXIÈME PARTIE
 ment : les sonorités fugitives des deux mots s'évanouirent, et Tillier détourna les yeux. Vittoria, qui
 attendait une réponse, demeura tout interdite, et,
 sa jeune sérénité n'osant pas affronter la tristesse
@@ -2525,7 +2089,6 @@ quelques semaines, à venir habiter avec lui. Ce
 qu'il fit le lendemain même. Elle accepta, et bientôt
 
 _ Marie Tillier s'ajouta au cercle de Bellevue.
-c> Hg
 
 Les froids survinrent en décembre très vifs, et la |
 santé publique s'améliora. A la fin dé janvier, le
@@ -2566,10 +2129,6 @@ vint frapper à la porte de Marie.
 
 — Les enfants meurent. ,
 
-84 :
-
-DEUXIÈME PARTIE
-
 Trois étaient morts, cinq se mouraient.
 
 Soudain comme une bourrasque, le fléau s'abattit
@@ -2589,7 +2148,6 @@ toujours longues et déprimantes, elles ressaisissaient leur homme.
 
 Ainsi le fléau enveloppa toute l'humanité. Les
 trains ne circulèrent plus qu'à très longs intervalles. Les correspondances ne furent plus distribuées. Plus que les bras peut-être, l'énergie fit
-défaut.
 
 Les tempérants valides travaillèrent pour sauver
 
@@ -2621,13 +2179,10 @@ bien, une source intarissable, pourvu que tu fouilles 1
 toujours. » Au dedans de lui-même il ne découvrait %
 que le frémissement de ses hérédités malsaines, sa F:
 tête encombrée, ses fonctions difficiles, son haleine |
-86 ê
 
-DEUXIÈME PARTIE
 fétide. Tillier, renonçant à toute résistance, se laissa
 prendre par le mal. Pendant quelques semaines, sa
 sœur Marie le soigna. Puis elle fut elle-même
-atteinte.
 de
 
 Alors le plus inattendu des événements survint. +
@@ -2661,12 +2216,10 @@ les légionnaires de Scipion, les Gaulois de César, À
 les Francs de Théodose, les Côtes-de-Fer de 4
 Cromwell, les Suédois de Gustave-Adolphe, les Ÿ
 grognards de Napoléon : l'Occident avait perdu ses R.
-hommes. ÿ
 Les uns rompus d'un coup, les autres lentement Ù 1 |
 minés, n'était-ce pas la fin de l'humanité ? La mala- à
 die développait un triste et féroce égoïsme. Chacun 4 :
 se sentant mourir, on était seul. f
-PR À
 C'était le troisième retour des saisons depuis ||
 l'origine du fléau. Les jours suivaient les jours, À
 brûlés de soleil, mouillés de pluie, balayés par le 1
@@ -2678,9 +2231,7 @@ pas retenti. Il pensa : « J'ai rêvé... » Mais derechef 5
 la sonnette carillonna. k
 — Marie! fit-il. k
 Marie, toute somnolente, ouvrit les yeux. À
-ss 4
 
-DEUXIÈME PARTIE
 — Qu'est-ce ?
 l — On a sonné... regarde par la fenêtre.
 
@@ -2718,7 +2269,6 @@ dû en fusiller une centaine. Nous n'étions pas
 histoire de quatre ans bs
 assez nombreux pour les surveiller et ils entra- L
 vaient le travail. C'a été affreux. J'entends leurs 4
-clameurs. N
 — Horrible chose ! Combien êtes-vous là-bas ? 1
 vous rendez-vous compte du nombre des morts, 4
 des vivants ? 1
@@ -2743,9 +2293,7 @@ que dit-on ? Que dites-vous ? Tout est perdu, n'est- 4
 ce pas ?
 — Non ! Moi, j'espère... ce mal de langueur qui 4
 nous abat est guérissable : j'ai été malade comme |
-go 1
 
-DEUXIÈME PARTIE
 | vous l'êtes, je suis guérie. Je vous assure, je vais
 bien. Et un jour vous irez bien...
 
@@ -2756,8 +2304,6 @@ n'ai vu mourir. Un jour, vous irez mieux; un mois
 après, vous irez bien. Pourquoi? Comment ? Mystère. Des milliers, des millions seront morts. Mais
 la race n'est pas perdue. Songez, une race, c'est
 immense ! La crise est dure : nous en sortirons.
-
-Tillier répondit :
 
 — Nous en sortirons empalés par les Turcs.
 
@@ -2780,12 +2326,9 @@ pour la visiteuse, causa, refusant toujours d'espérer.
 — Non, disait-il, c'est la fin... Vous souvenezvous. du travail de Defnet sur l'Extinction des
 espèces ? Defnet montre parfaitement que les plus
 
-OI
-
 histoire de quatre ans 4
 grands serpents, les plus grands fauves, disparais- |
 sént au moment où ils ont éliminé tous leurs
-ennemis, en pleine victoire. Pourquoi? Defnet
 croit le problème insoluble. Mais je me demande
 si la nature n'est pas en train de Le résoudre devant
 nous. Les espèces disparaissent quand elles ont
@@ -2799,7 +2342,6 @@ héroïque, et l'héroïsme.… k
 
 Sa voix, qui s'était ranimée, s'éteignit.
 
-— Non, fit doucement Vittoria, non, cher maître,
 ce n'est pas l'extinction, c'est l'épreuve et la purification. Puisque votre imagination divague, je
 laisserai divaguer la mienne. Ce que je vois répété
 devant nous, c'est la vieille histoire de la catastrophe glaciaire. Vous savez : les glaciers qui sont
@@ -2810,12 +2352,9 @@ les Germains, les Gaulois. Oui, c'est cela que je
 vois répété : les faibles avaient pullulé, le froid
 passe, et demain.
 
-DEUXIÈME PARTIE
-
 — Demain! interrompit Tillier avec une amertume obstinée. Ce sera la fin du monde, car, on
 peut le dire, n'est-ce pas? ce ne sera plus notre
 monde, un globe habité par des chinois et des
-nègres.
 
 — Et des juifs.
 
@@ -2843,13 +2382,9 @@ dell” Arte Italiana, par Venturi. Puis il interrogea :
 
 — Où irez-vous d'abord ?
 
-:
-
 . histoire de quatre ans | f
 
 — À Messine. Depuis neuf mois j'ignore tout des
-
-miens.
 
 — C'est vrai, vous êtes sicilienne ! J'ai visité
 votre île quand j'avais vingt-cinq ans. ;
@@ -2879,13 +2414,9 @@ Sa tête s'était inclinée tandis qu'il murmurait
 
 ainsi. Quand il la releva, il y avait des larmes dans
 ses yeux, et quelques-unes roulaient sur ses joues.
-94 |
 
-DEUXIÈME PARTIE ï
 Vittoria s'en aperçut : elle resta silencieuse, remuée 4
 dans son cœur de femme par cette vue d'un homme i
-en pleurs. Ê
-s' 75
 Vers le printemps, Tillier fut mieux. Un jour il |
 s'éveilla moins épuisé, et puis, de réveil en réveil,
 il se trouva plus dispos. Marie aussi était moins Ë
@@ -2894,15 +2425,12 @@ ils sortirent, et, appuyés au bras l'un de l'autre,
 firent quelques pas sur la terrasse d'où l'on découvrait Paris. Les mauvaises herbes avaient envahi
 le gravier. Des genèts, des chardons hérissaient la
 prairie. Les branches nues des poiriers étaient en
-fleurs.
 — Je suis fatiguée, dit Marie; rentrons.
 Le bruit d'une automobile qui s'arrêtait à leur |
 porte les retint un instant.
 — C'est la voiture de Port-Royal, dit Marie; elle
 nous apporte des fromages et du lait.
 Jean Schrader parut, tenant à la main les provisions hebdomadaires. Claire le suivait.
-— Schrader! Claire Vuillemot! s'écria Tillier.
-Quelle bonne surprise! |
 — Nous avons demandé à faire la tournée aujour_dhui, parce que nous avions une nouvelle à vous k
 dire.
 
@@ -2920,7 +2448,6 @@ même expression satisfaite et un peu niaise qu'il se
 souvenait avoir trouvée à tous les fiancés de sa connaissance.
 
 — Allons! fit-il, vous êtes jeunes, vous êtes .
-braves.
 
 Il donna l'accolade à Jean, puis à Claire, que
 Marie embrassa, naïvement heureuse, comme presque toutes les femmes de presque tous les mariages.
@@ -2936,17 +2463,11 @@ vous quittions pour terminer notre tournée.
 heureux, nous avons besoin de gens heureux pour
 nous sauver.
 
-— Au revoir, ajouta gracieusement Marie, revenez.
-
 Ils partirent. Le frère et la sœur rentrèrent au
 logis, silencieux tous deux. Pour nous sauver,
 avait dit Vincent Tillier. Depuis longtemps, l'idée
 
-PR + ° d
-DEUXIÈME PARTIE M
 ne lui était venue qu'il restait une possibilité de 1
-salut. 4
-z
 Après diner, la soirée étant douce, il eut la ten- :
 tation de faire quelques pas, et sortit. La vue était À
 immense et sombre: depuis deux ans les lumières |
@@ -2970,9 +2491,6 @@ minutieux parfois jusqu'au ridicule. Tel jour il
 avait ouvert tel livre pour trouver tel renseignement, et avait cherché en vain, — et tels autres 2
 jours, tels autres petits faits. C'était comme un flot
 qui venait du plus loin de sa vie laborieuse, un
-
-VI
-*
 
 histoire de quatre ans
 flot bienfaisant et fort qui montait, et qui l'enveloppait, et qui le soulevait. Il dégagea son front, rouvrit
@@ -2998,7 +2516,6 @@ l'Éternel dit: « J'exterminerai de dessus la Terre
 « l'homme que j'ai créé; depuis l'homme jusqu'au
 « bétail, jusqu'au reptile, et jusqu'à l'oiseau des
 
-DEUXIÈME PARTIE |
 « cieux, car je me repens de les avoir faits. » Pourtant toute la vie ne disparaîtra pas, car « Noé
 trouva grâce aux yeux de l'Éternel ». « Et les eaux R
 crûrent, et les eaux grossirent prodigieusement sur
@@ -3026,8 +2543,6 @@ il lâcha de nouveau la colombe hors de l'arche. Et
 la colombe revint à lui vers le soir, et voici, une
 feuille d'olivier fraîche était à son bec ; et Noé com-
 
-Lè
-
 histoire de quatre ans
 
 prit que les eaux avaient fort diminué sur la terre.
@@ -3038,8 +2553,6 @@ Vers onze heures, Tillier, ressentant un peu de
 fatigue, ferma le livre et rentra chez lui. Comme
 il traversait la terrasse, il pensait à l'avenir. Il
 s''interrogeait : Que pourrait-on faire ?
-
-Ê Her
 
 Le lendemain, le surlendemain, il continua d'aller
 mieux. La santé agissait en lui, mystérieuse comme
@@ -3053,10 +2566,7 @@ vivre des centaines de malades. Il demandait :
 
 — À peine si nous avons vécu.
 
-— Quelles nouvelles ?
-
 — Aucune; deux ou trois lieues, voilà notre
-horizon.
 
 — N'y at-il pas un mieux en ce moment chez
 vous ?
@@ -3064,10 +2574,6 @@ vous ?
 — Oui, mais si léger!
 
 — Je l'observe partout, répondait Tillier.
-
-100 à
-
-F DEUXIÈME PARTIE
 
 4 Il donnait aux uns des nouvelles des autres, et on
 - l'écoutait avec avidité.
@@ -3094,14 +2600,10 @@ la Maison du peuple, dont Marie savait le chemin.
 | ou la tristesse. Tillier demanda l'adresse d'un ami.
 + — Il est mort, lui dit-on; mais vous-même, qui
 êtes-vous? Depuis si longtemps nous n'avons vu
-. personne!
-
-à — Vincent Tillier.
 
 — Tillier, le savant! s''exclamèrent les hommes ;
 _ eton fit descendre le frère et la sœur, et ce furent
 _ des récits, des interrogations infinies. Les militants
-4 101 vE
 
 histoire de quatre ans
 racontèrent Les péripéties de leurs luttes contre la
@@ -3138,8 +2640,6 @@ en fleurs, et ils eurent pour se nourrir les meilleurs
 laitages de France. On approuva l'idée de Tillier.
 On décida qu'il fallait briser l'isolement sauvage où
 
-102 à
-
 | DEUXIÈME PARTIE
 végétaient les hommes, et un délégué, chargé de
 lettres, reprit le chemin de Paris.
@@ -3168,7 +2668,6 @@ sociales les plus enracinées. Elle avait créé des
 instincts. Par exemple, il n'arrivait pas, et les
 militants eussent réprouvé, qu'un des leurs épousât
 
-! = ù ,
 histoire de quatre ans
 
 quelqu'un des stagiaires. Ceux-ci, retenus par un
@@ -3193,7 +2692,6 @@ Pays-Bas, où la réorganisation sociale était plus
 avancée qu'en France, les associations ouvrières et
 savantes, maîtresses du pays, s'étaient formellement subordonné le suffrage universel, auquel
 n'avait été maintenu qu'un droit de contrôle extré-
-mement limité.
 
 Tillier fit imprimer cette lettre avec un certain
 nombre de notes qu'il avait recueillies, et composa
@@ -3208,19 +2706,15 @@ jour.
 
 104 -
 
-DEUXIÈME PARTIE
-
 On demanda des exemplaires nouveaux; on
 demanda l'auteur lui-même, Tillier. Dix régions
 l'appelèrent, et malgré la fatigue et Les reproches
 de sa sœur, séduit par la magie d'un tel réveil, il
-partit.
 
 Tillier ressentit cette joie de l'homme d'action dont
 l'initiative détermine les élans. Dans ses pérégrinations incessantes, il prenait garde à communiquer
 toujours avec ses amis qui maintenant lui écrivaient,
 de tous pays : Van Busch, de Hollande; Edmundo
-Kunz, d'Allemagne; William Bruce, d'Angleterre; \
 Vittoria, d'Italie. Il apparaissait ainsi comme l'ambassadeur d'une renaissance européenne. Il parcourait une région où dix groupes s'ignoraient et s'aigrissaient dans la solitude. Il faisait dix visites,
 parlait une heure, et quittait cette même région,
 où dix groupes unis travaillaient avec une force
@@ -3251,7 +2745,6 @@ ce Riccardo Deolafatto, dont elle a souvent parlé :
 dans ses lettres.
 
 — Tant mieux, dit Marie, elle semblait l'estimer
-beaucoup.
 
 — Assurément, tant mieux.
 _ Tillier s'attardait à considérer la nette écriture
@@ -3272,18 +2765,12 @@ coopérative locale. Tillier fit asseoir l'intrus.
 
 L'homme parla. Ses phrases étaient gauches, et
 
-106 ë
-
-DEUXIÈME PARTIE
 Tillier dut s'appliquer pour les bien saisir. Volontiers, d'ailleurs, il se laissa reprendre par ce mouvement des choses, grossier sans doute, mais entraî-
-nant.
 
 Tillier revint à Bellevue. Les documents lui arrivaient de toutes parts, si nombreux, que, seul,
 il n'aurait pu les mettre en œuvre. Herdey, Claire
 et Jean, revenus auprès de lui, l'aidèrent à publier
 chaque semaine une série de Documents pour l'action.
-
-re
 
 La mortalité décroissait toujours, et les divers
 phénomènes pathologiques s'atténuaient. Comme
@@ -3292,7 +2779,6 @@ des troupes victorieuses, les associations ouvrières,
 les cités hygiéniques, les ligues, se retrouvèrent,
 étonnées d'être intactes, ardentes vers l'avenir. Le
 pays était dévasté, et elles étaient là. numériquement à peine atteintes, et moralement grandies à
-miracle.
 
 Les Fédérations régionales, légalisant ce qui
 depuis deux ans existait en fait, déclarèrent services publics la production et la distribution des
@@ -3333,10 +2819,6 @@ l'ordre des êtres et des choses.
 
 Au plaisir profond que faisait à Tillier cette
 
-108 ;
-
-ire nt HONTE j
-DEUXIÈME PARTIE
 résurrection, des inquiétudes se mêélèrent partois.
 Un jour qu'il dictait à Claire une curieuse monographie, il s'arrêta soudain, et dit :
 
@@ -3345,7 +2827,6 @@ pas choquée par instant? C'est la nécessité qui nous
 presse, — ce n'est pas nous, c'est la nature qui travaille : et l'œuvre n'est pas humaine, elle est dure.
 
 — Hélas! fit la jeune femme, nous n'avons pas le
-choix.
 
 — Non, nous ne l'avons pas. Travaillons.
 
@@ -3366,8 +2847,6 @@ Pendant les mois d'août et de septembre, deux
 cents délégués anglais, italiens, allemands, scandinaves, latins, collaborèrent dans une vieille demeure
 de la haute ville. Deux tendances furent immédia-
 
-VII
-
 histoire de quatre ans '
 tement marquées. Comme au vingtième siècle, les
 associations savantes, centralisatrices et autoritaires, s'opposèrent aux associations ouvrières,
@@ -3381,7 +2860,6 @@ international, à garantir la paix, peut-être à pro-
 2 mouvoir les États-Unis d'Europe. On décida de
 laisser à un congrès spécial, qui se réunirait à Paris
 en février 2001, la tâche d'achever cette œuvre
-grandiose.
 
 Avant les séances et après les repas, on se retrouvait, pour causer, sous les galeries enchevêtrées du
 cloître dont les arcades dominent le passage du
@@ -3397,11 +2875,6 @@ semblait-il, pour que tout fût légitimé. Darwin,
 moins insensible, ému par sa propre découverte,
 avait cherché des motifs de consolation : « Dans
 le monde animal », avait-il écrit, « la lutte n'est
-
-110 L°
-k
-
-DEUXIÈME PARTIE
 
 pas constante, la crainte est ignorée, la mort est
 généralement prompte... » Mais depuis trois
@@ -3424,12 +2897,9 @@ introduits, terrorisaient la classe ouvrière. Ce fut
 un bruit, ni confirmé, ni infirmé. Les dépêches, les
 lettres même furent interceptées. Aucune indiscré-
 tion ne troubla ce redoutable silence qui succède
-aux cruautés russes.
 
 Quand Tillier revint à Bellevue avec Marie, après
 avoir parcouru la France et séjourné huit jours à
-
-III
 
 histoire de quatre ans
 Bâle, l'automne avait rougi les bois. Tous deux
@@ -3441,7 +2911,6 @@ militaire offusqua la sereine journée. Marie interrogea :
 — Qu'est-ce donc ?
 
 — Un appel, sans doute, au casernement des
-astreints, répliqua Tiliier.
 
 Il se tut et sembla triste. |
 
@@ -3453,11 +2922,8 @@ Rentrons, veux-tu ?
 Ils se levèrent ensemble, et, appuyés au bras l'un
 de l'autre, passèrent le seuil de la maison vide.
 
-TROISIÈME PARTIE
-
 — Qui est celui qui vient d''Edom, ayant les
 vêtements teints en rouge; cet homme magnifiquement vêtu, et qui marche avec tant de
-force ?
 
 — C'est moi qui parle avec justice, et qui ai
 
@@ -3472,35 +2938,9 @@ avec moi; et j'ai marché sur eux dans ma
 colère, et je les ai foulés dans mon indignation ; leur sang a rejailli sur mes vêtements,
 
 : et j'ai souillé tous mes habits.
-Isaïr, LXIII, versets 1, 2, 3.
 
-san RPOUEE n. ac We f ‘ ji :
 ta pet 6 ' AUS PME
-Li REMOTE : F ee - ec FAN ERA
 Mar. LES SH TRUE et
-LENS LAN ER DESS
-LE , ù MINS à or: 7 ER
-Fr Je ÉARLS PTE RU
-88 - “+ Res Frs TORRES #4
-< TN Ë È {CMS RE ARE
-DA 7 - : w/4 ne LE s + 1401 Ÿ
-} HSE 4 . n TS
-RE: 1 : d . « y Y
-+ LA ï l Pi KM + VAE
-De, : | MS ROUES
-‘ant à 72,20 CR EPA
-158 - 175 SNA SESENSE
-‘a s as 2 TM
-RE : : : LS à GP TE 2H ES
-Re? 122 Dr ; ARS ON
-WF: V4 SEROUC SE A
- ” PVR EASC ESC SE RER *
-0 a A RE ARR :
-De 0 AVR pe
-CEA : RAGE is
-f- Feni {hi f. Dr Uy Te
-
-TROISIÈME PARTIE
 
 Claire et Jean demandèrent un congé à Tillier.
 
@@ -3554,17 +2994,12 @@ Claire, que j'aimerai un enfant de toi...
 Et ils échangèrent un long regard confiant. Puis
 Jean se détourna pour suivre une pensée. Un éclair
 d'imagination lui représenta la société nouvelle,
-disciplinée en bas, en haut libertaire, semblable à
 un grand arbre dont les racines plongent au
 sol qui les fixe, tandis que les hautes branches,
 souples et vierges de souillures, oscillent dans
 l'azur et vers le soleil.
 
 — Qu'elle est belle, dit-il, notre société! Je la ‘|
-
-116 é
-
-TROISIÈME PARTIE
 
 vois toute en hauteur, toute en activité. L'ancienne
 nivelait : et c'était sa justice. La nôtre connaît les
@@ -3592,8 +3027,6 @@ de libertaires, elle gardait un préjugé contre les
 disciplines imposées et n'avait pas d'enthousiasme
 pour les idées hiérarchiques. Elle se taisait pourtant, car elle craignait d'avoir tort.
 
-117 VII.
-
 histoire de quatre ans
 
 Claire et Jean furent arrêtés au croisement d'un
@@ -3608,13 +3041,11 @@ disparurent au détour d'un talus et on continua
 d'entendre leur marche lourdement rythmée.
 
 — Jean, fit Claire, ne voulions-nous pas autre
-chose ?
 
 Il y avait un accent de reproche dans sa voix.
 
 — Touron m'a affirmé qu'en un demi-siècle leur
 sang serait éliminé, ou relevé par des croisements
-eugéniques.
 
 Elle se tut, et Jean, silencieux parce qu'il la
 sentait résistante, poursuivit intérieurement son
@@ -3627,10 +3058,6 @@ de puériculture. Il fit voir à Claire et à Jean son
 système de fiches individuelles où toutes les phases
 du développement de chaque sujet étaient notées
 de mois en mois.
-
-Hans
-
-TROISIÈME PARTIE
 
 — Grâce à mes fiches, expliquaitil, je les suis
 tous. Notre vieux docteur Marcou me renseighe sur
@@ -3658,7 +3085,6 @@ parti, eurent un accès de franche gaieté.
 Dans tout notre programme, il y a un article, un
 seul, que nous avons réalisé : c'est la dictature du
 prolétariat... mais d'une manière si drôle ! Dis,
-Touron, quelle comédie !
 
 Certain jour, un vieillard entra dans le bureau
 où les trois jeunes gens causaient. De petits yeux,
@@ -3669,7 +3095,6 @@ parcheminé, couronné de cheveux blancs. Touron
 le fit asseoir, et la conversation reprit. Jean parlait
 avec horreur des foules disparues, et, tout à coup,
 il vit avec surprise que le vieillard faisait des gestes
-désapprobatifs. ;
 — Quoi, monsieur, n'êtes-vous pas d'avis ?.…
 
 — Nullement, fit l'autre, et cela m'agace de voir
@@ -3684,7 +3109,6 @@ Vous n'avez jamais soupçonné combien il y avait
 en elles de finesse, de bonté, de grâce. Elles ont
 péri, voilà leur tort. Et nous, nous avons survécu ;
 c'est-à-dire : un microbe nous a respectés. Belle
-supériorité !
 
 — Iln'y en a pas de plus sûre, prononça Jean.
 C'est une sélection.
@@ -3697,11 +3121,6 @@ assez pour vous rendre fiers comme des paons.
 Peu vous contente.
 
 Le vieillard vit qu'on l'écoutait avec ennui : il
-continua.
-
-120 î
-
-TROISIÈME PARTIE
 
 — Vous n'avez pas connu la vieille humanité,
 vous dis-je, et moi j'ai vécu avec elle. J'ai vu les
@@ -3759,8 +3178,6 @@ nous sommes, ils croient l'occasion venue de nous
 exterminer ; ils essaieront. Le monde est de plus en
 plus un mauvais lieu. Unissons-nous !
 
-t * k *
-
 Pendant les mois qui suivirent, Claire et Jean
 travaillèrent auprès de Tillier à la préparation du
 Congrès. Tâche difficile et qui requérait beaucoup
@@ -3768,10 +3185,6 @@ de tact diplomatique.
 
 Touron l'avait dit avec exactitude : toutes les
 forces étaient déplacées, tous les équilibres étaient
-
-122 “
-
-TROISIÈME PARTIE
 
 rompus, nationaux et internationaux. Durant les
 premières semaines de la convalescence publique
@@ -3830,7 +3243,6 @@ querelles, n'entendaient pas.
 En janvier les desseins de la Russie devinrent
 évidents. La chancellerie de Saint-Pétersbourg
 
-TROISIÈME PARTIE
 publia une note menaçante : elle accusait les organisations socialistes allemandes d'encourager par
 leur exemple les sociétés ouvrières de Pologne ;
 elle donnait un avertissement sévère.
@@ -3844,7 +3256,6 @@ de
 Dès lors il y eut affluence à Bellevue : anciens
 élèves français ou étrangers, délégués de tous pays
 recommandés par des amis, et qui fréquentaient la
-maison hospitalière.
 
 Un soir Tillier dit à Claire et à Jean:
 
@@ -3853,8 +3264,6 @@ l'épidémie éclata ? Eh bien, nous nous retrouverons
 les mêmes : Touron, Herdey, Van Busch, Vittoria
 Vivanti et son mari. Trois manqueront à l'appel : Bezoukof, devenu on ne sait quoi; et Bergougnan et Coudroit, ces deux braves garçons, qui
 sont morts. Vous viendrez, n'est-ce pas ?
-
-— Assurément.
 
 Et quand, le lendemain matin, ils se rencontrèrent
 dans le cabinet de Tillier, jeunes gens devenus
@@ -3874,8 +3283,6 @@ ont bien milité. Comme ils seraient heureux!
 premier jour? Il n'était pas des nôtres, celui-là !
 Où est-il passé ?
 
-Touron donna quelques renseignements :
-
 — En mai 1998, il était docteur spirite et se conduisait bravement, m'a-t-on dit. Je crois qu'ensuite
 il est tombé malade. Sans doute ïl est mort. d
 C'était un détraqué, mais un honnête homme.
@@ -3891,10 +3298,7 @@ nous, que füt-il advenu?
 
 L'impétueux Jean exprima le sentiment de tous.
 
-TROISIÈME PARTIE
-
 — Nous avons bien travaillé, s'écria-til, nous
-pouvons être fiers !
 
 — Oui, nous avons bien travaillé, firent toutes
 les voix comme un écho joyeux.
@@ -3904,10 +3308,8 @@ se pencha légèrement vers lui, et, de sa voix sérieuse
 et caressante :
 
 — C'est à vous, dit-elle, que nous devons notre
-orgueil.
 
 — Et pourquoi dites-vous cela, Vittoria? Je
-n'ai...
 
 Elle l'interrompit :
 
@@ -3925,14 +3327,11 @@ vrai. J'ai toujours pensé que l'amitié était une
 force dans l'histoire, et si nous avons pu, nous qui
 sommes ici, en fournir une preuve nouvelle, Vittoria, ma vie est comblée.
 
-/
-
 histoire de quatre ans É
 
 Jusqu'à la fin du repas on parla des deux morts,
 
 Bergougnan et Coudroit.
-ca
 
 Les congressistes tenaient séance au Grand Palais
 des Champs-Élysées. Ils fournissaient un travail
@@ -3955,8 +3354,6 @@ baron Gourvitch donna une grande fête en l'honneur
 des congressistes et la baronne eut une gracieuseté
 
 D RE DR ON One ce ETTT ob È ; +
-\
-TROISIÈME PARTIE
 pour chacun. Elle causa une demi-heure avec les Ë
 deux célèbres anthropologues, Ernest Damm, de
 Heidelberg, et Guglielmo Corradini, de Turin. Les
@@ -3991,7 +3388,6 @@ la neige sur les steppes, et ilsembla qu'on entendait
 au loin le galop des cavaliers kurdes.
 
 Le 9 avril 2007 un incident survint à la frontière
-russe. Trois révolutionnaires polonais passèrent en
 Allemagne, juste à temps pour échapper aux policiers qui les pourchassaient. Était-il vrai, comme
 l'affirmaient ces policiers, que cinquante socialistes
 prussiens eussent secouru et délivré les Polonais
@@ -4014,9 +3410,6 @@ l'Europe en un jour. Une résolution fière anima
 tous les cœurs. « Nous sommes peu nombreux,
 disait-on, mais qu'importe? Contre ces barbares
 
-. 130 R
-
-TROISIÈME PARTIE
 armés de canons et de fusils, nous avons la science,
 l'invention ; contre ces esclaves nous avons le
 civisme. » Toutes les Fédérations télégraphièrent à
@@ -4033,7 +3426,6 @@ Le 16 avril, terme de l'ultimatum, dès neuf heures
 du matin, tous les délégués étaient réunis dans la
 salle des séances. Les divers conseils nationaux de
 l'Europe avaient prévenu qu'ils siégeraient en permanence, prêts à ratifier en peu d'heures la constitution et la guerre européennes. On décida de tout
-achever.
 
 Les membres des bureaux avaient passé la nuit
 au travail, préparant des rédactions transactionnelles. Il y eut unanimité sur les sept articles qui
@@ -4076,9 +3468,6 @@ double question, pour l'unité et pour la guerre. Et
 sur trois lieues carrées deux cent mille êtres furent
 heureux. Nul ne retourna déjeuner. Tous demeu-
 
-s 132
-
-TROISIÈME PARTIE
 rèrent là, guettant les hampes nues qui hérissaient
 d'une manière bizarre les toitures du Palais.
 
@@ -4112,8 +3501,6 @@ des Belges, qui aussitôt couraient vers les Champs-
 
 Claire et Vittoria, sorties pour un instant de la
 
-nue
-
 histoire de quatre ans ;
 salle du Congrès, marchèrent sur l'avenue. Elles
 allaient, bras dessus bras dessous, avec une allure
@@ -4145,10 +3532,6 @@ les adhésions étaient simultanément venues.
 
 Elles touchaient au seuil du Palais quand Vittoria, tout à coup, s'arrêta, et, touchant Claire au
 bras, lui dit avec une voix singulière :
-
-— Regardez... ;
-
-TROISIÈME PARTIE
 
 Elle montrait un homme d'assez pauvre mine,
 inquiétant et décharné, qui, immobile au premier
@@ -4210,7 +3593,6 @@ Ce cri inusuel rencontra peu d'écho, et la foule
 prolongea son intense murmure.
 Alors glissa vers l'extrémité de la hampe cen136
 
-TROISIÈME PARTIE
 trale, — la plus haute, — le drapeau traditionnel
 des Fédérations internationales, le drapeau rouge.
 Un coup de brise le prit tandis qu'il montait, et
@@ -4231,12 +3613,9 @@ cette foule qui exultait, et ne pouvait s'exprimer.
 Alors, le hasard fit qu'un groupe de Parisiens
 chanta la mélodie finale de la symphonie avec
 chœurs, popularisée en France au début du vingtième siècle par les simples et fortes paroles d'un
-poète demeuré inconnu :
-Innombrables frères, hommes,
 Après avoir tant lutté,
 Sachons enfin que nous sommes
 Une même humanité.
-137 VIT.
 
 histoire de quatre ans
 
@@ -4244,7 +3623,6 @@ Les Germains, enthousiasmés, soutinrent le chant
 avec toute leur vigueur, entraînant avec eux quelques Italiens, quelques Anglais. L'hymne se répandit à travers les Champs-Élysées ét, comme une
 vague immense, couvrit la place de la Concorde.
 Les fanfares soutenaient de leurs cuivres le rythme
-formidable :
 
 Plus de haïne, plus de guerres, -
 Plus de bagne et de prison:
@@ -4264,7 +3642,6 @@ La foule se tut après avoir longtemps chanté.
 L'interruption fut triste. Quelques voix recommencèrent la mélodie. En vain : l'instant avait passé.
 Les coups espacés de la canonnade retentissaient
 
-TROISIÈME PARTIE
 dans le silence, donnant une réalité au temps mena-
 çant qui fuyait.
 
@@ -4274,16 +3651,12 @@ ministre de l'instruction publique. On l'acclama ; il
 salua, puis, déclanchant les pistons, partit à bonne
 allure au long des quais.
 
-Li
-
 Il rentrait à Bellevue avec Herdey, Jean et Claire.
 Las ou préoccupé, il parlait peu. Tout à coup il tira
 de sa poche un numéro du Temps et dit à Herdey :
 
 — Je n'ai pas eu même une minute pour l'ouvrir.
 Voyez aux dernières nouvelles, et lisez-les.
-
-Herdey parcouru :
 
 — En Pologne, massacre des Juifs ; à Moscou,
 grèves et soulèvements ouvriers. De Bombay : le
@@ -4293,7 +3666,6 @@ Chiraz, Mesched et Ispahan. $
 
 — Ah! fit Tillier, que les Persans se lèvent contre
 les Russes, ç'a toujours été mon espoir. Il y a des
-révolutionnaires, là-bas.
 
 Puis, après une pause :
 
@@ -4327,8 +3699,6 @@ répète, Herdey, c'est ma conviction : la victoire de
 temps. mais il lui en faut beaucoup, une multitude
 de siècles imprévisible.
 
-TROISIÈME PARTIE
-
 — Ce temps, dit Herdey, l'aurons-nous? Le crédit
 de nos années est limité.
 
@@ -4348,7 +3718,6 @@ Tillier après un court silence, c'est la monotonie.
 Puis il se tut. Jean et Claire, assis côte à côte, restaient silencieux aussi. Ils se tenaient par la main,
 et ils étaient émus comme si toutes les émotions de
 cette grande journée étaient venues accroître leur
-tendresse.
 
 La clarté devenait crépusculaire, et l'automobile
 roulait sur l'allée montante de Bellevue.
@@ -4367,8 +3736,6 @@ c'est Bezoukoff. Vous entendez, Herdey ? Bezoukoff!
 histoire de quatre ans Ù
 moi, dit Claire; il regardait les drapeaux. Il nous
 a reconnues, et saluées.
-
-Herdey reprit :
 
 — Je vais le voir; je lui dirai que vous n'avez
 pas le temps...
@@ -4394,7 +3761,6 @@ intérieure. Il en tira vite un poignard qu'il plongea
 
 Celui-ci poussa, non pas un cri, mais une plainte,
 battit l'air des deux bras et tomba comme une
-masse.
 
 Jean se précipita d'un bond sur Bezoukoff qui
 clamait avec un emportement nerveux :
@@ -4404,8 +3770,6 @@ Tous vos collègues vont être exécutés! Nous vengeons nos morts et notre libe
 
 Herdey et Claire, penchés sur le blessé, l'entou-
 
-ee
-TROISIÈME PARTIE
 raient de coussins et découvraient la plaie. La
 . maison était pleine de voix.
 
@@ -4435,92 +3799,26 @@ dernière parole. Mais nul n'entendit aucun son. Les
 yeux d'une sœur, croisant les siens, clorent le cycle
 
 _ étroit de sa vie.
-LL 4
 
-* 1 ch É
 A PAT A LS LT PAS Gui Es ame Ga ART CIANT SR de 4e ETATS
-AA RER NIMES s PREATUTRS LR RAR NRA 11
-TE SDS ANRT 4 LCA AE ANA AT Ph Se Se CONINRES
-RRHLEA 1 "RA : ve + ÉHMOR TON : | L'AIR
-JS EE EN + $ MORE UE : V4
-AIN e L'UY PARCS V  - n
-: 'VIRAEA EN ESS } a! nn EE av Ret
-AE 2 9 4 nes à RU
-ATP 4TES À 11} PE SARL NES + 20e
-FE NET ; pLRRE À 1 RON
-RACE VARIE MSIE Hein!
-AN li Es 7 se “ D AA Ex 1e
-PA / ; V7} ASUS ONE
-LATE. "AY TN TER Perl à
-EAU UE é MENT NAN
-11 ARE : 1 LT SCA END ER
-LUN E F EN ES
-FAR k SSH VE
-ENTRE. k L . ; AN Far EN
-LA { " MAL EN TES EX
-4 14 We 54 y FCTATE) AU
-Le CES + | RU MR: à
-1 AVE LE NA AE:
-{ NIET 4 £ CRUEL LA PEU
-ACTE ire ; ÉNAE te
-cr NM ; Ê \ : ; ARE FAT RES
-Lait JUNE f RE PUS k OS
-ONG CNRS 4 d NT À Jr Eat
-MERE ENT F = 5 AGEN OS
-+ RS AUME 4 (si
-
-..: 2 SIREN 3 F1 AIRES
 
 Fini d'imprimer trois mille exemplaires de ce
 _ sixième cahier le jeudi 24 décembre 1903 nn
-Fier 58
 # % re
 h: à l'Imprimerie de Suresnes ol
-5 __(E. PAyex, administrateur) Ja .
 #1 9, rue du Pont ; D.
-ü +
-EL gi ER
-10 Fe
-£ {1 = 58
-Ne: Sn
 
-ne A |
-PER AL AS ae nr à ponte
-*° SCOR NEIL ÈS 7: ; PU Hi "(a Re 0 7
 te NT en Er A ne ah I CRE TES » Vo RS HR rer NA TS 227
-LÉ ÉRRRR À He MU CR SE TR LENS
-te . 54 INbe s - EL PR L'AAERNS
-LR CR RÉ EN" RSS
-, LR ee LMP LATE HO:
-HAE 3 LEE SR RIRE TRES
-DR Û u Tr. HN PRL TR ENS
-HS? “ 5 Lise EN
 Det LE SERRE RER
-ER . x Aie eu
 ne =. « È fs nur 11 PEDCR
-8fe RS £ RC EU Le 0
 ARS - Frs FORD Ne ER PS DER
 LR ER 9 ce Les ut LE Le "1 CT
-en | 3 FÉES NT NN TES RS
-DRE ; 3 La RS NIDRERS
-711; TS 1 ERES LÉ RR
- . 5 mr co
-TERRE RES < Re D Re y
-RAC. S : RON RER
 s IT RSS Ma: LES ue a LA TSS
-LENS AE > En : SURESSS
-LISE RS = PE. ES : - A a Le.
-+: dE Fe fe # « pi RAR,
-ARE 1 Le à % 1 5 Fos é
-5 EN es 2 5 3 È EM EC.
 
-fs Li ES a " 4 £
-+ ass 4 »
 Nos Cahiers sont édités par des souscriptions men-
 + suelles régulières et par des souscriptions extraordi.
 . naires; la souscription ne confère aucune autorité sur
 Ja rédaction ni sur l'administration : ces fonctions
-_ demeurent libres. ; :
 _ Nous servons :
 des abonnements de souscription à cent francs ;
 des abonnements ordinaires à vingt francs ;
@@ -4546,23 +3844,11 @@ chaque série au plus tard le 3r décembre qui suit
 l'achèvement de cette série ; ainsi du premier juillet au
 .… 31 décembre 1903 on peut encore avoir pour vingt francs
 les vingt-deux cahiers de la quatrième série complète.
-1u7
 
-MR SRE ARE CRAN PAURE AT RADAR ER RUE MERS
 FRE ire ie SR FR Re DANS CON SAP PEER 20 -
 FT AC DRASS me STE * : Le ae RER
-CCE sé RE
-HVDISECN De L'EAU PAS
-DR SEP A; Le É k 7 KES Hot
-RAI a È FE TS
-4 X7 5 RL fe à FÉERRAN
 AR de 1 FHRRSUE CAS Les
-LEE ; : Fou Sn
-NAT . LA RE A ES ETOEESE
-Er E x. & Si = FENG NT AA
-ee. 1 « 1 RER
 = TRE ARENA un:
-REA “ze Es +45
 RATER ss Le RP
 
 ‘ Le dixième cahier de cette série, Romain Rolland,
@@ -4577,7 +3863,6 @@ A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi à partir du premier
 janvier 1904 la quatrième série sera vendue au
-moins trente-cinq francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous

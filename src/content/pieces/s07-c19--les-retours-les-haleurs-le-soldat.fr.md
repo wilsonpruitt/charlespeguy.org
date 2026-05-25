@@ -7,40 +7,15 @@ author: emile-moselly
 isAvertissement: false
 wordCount: 17470
 ---
-
 es Poe Je CN
-EUVIÈME CAHIER DE LA SEPTIÈME SÉRIE
-LR ÈS ÉMILE MOSELLY
-; re ER
-AFS , x
 - les retours
-PODES HALEURS — LE SOLDAT
-ÈS |
-Ne
-. GAHIERS DE LA QUINZAINE
 5 FES paraissant vingt fois par an
-S 7 4 PARIS
 , rue -de ia Sorbonne, au rez-de-chaussée
 
 | TERRE re. 72 Re En
-703 1 4 Le RSA 0 HN
-Se 5 L2 TRES 2
-: - È SN ET TER
-= ee Rs d
-FT ATOS
-Hat : 2 : Re
-à 5 PR
 # LUS
-_ ER | 1145
-“s ME E. = EE
 le se | à CROSS
-5% 3 DEN os Eu LENS :
-M F. + À LT re RITES en
-A « + ART POSE
-D: : d 2# Le AT Eee OS MES
-0 . 1 LAS TMS
 
-dt EAU
 rat TA “AA ÿ ÿ ar TE * RACE ft
 dut NS age 1) AL LUN SA ARE ne "TNA
 RS AAA PE NL ea Une At RIRES GPU
@@ -48,22 +23,8 @@ Un x (rl UML wi à k te? A RP ANA val M4
 
 fe: La A ROUES Va “ î AU “ sa: Rue M 2
 | ; : 4 Hi QU CRAN
-D. A
-
-4 IC ec » ; CA ri
-Ÿ EN PA 1 4 Ji
-DRE: su
-nu SRE per
-
-7 VAN RE ï
-LT RES YA | \ AR.
-
-1° SEE : Ko "0
-
-AE PE |A :. 20e
 
 SE TR  6 M hi À Le ARR A FA CE MES ei x
-; 110
 Nous avons publié dans nos éditions antérieures et
 k dans nos cinq premières séries, 1900-1904, un si
 grand nombre de documents, de textes formant dos-. 1
@@ -90,151 +51,58 @@ dans l'ordre ; il suffit de le lire pour trouver, à leur eu |
 S place, les références demandées. %
 Ce catalogue, in-18 grand jésus, forme un cahier 14 |
 très épais de XII+408 pages très denses, marqué cing |
-à \ 14 M
 
 2 ‘ii bag à La LA
-£ , /' 14 1ère DFA IR MEURT NE PE STE NN PTE TON PE
-A4 1 A AGAIN NL RAM EI A A
 
 fra mes ; ce cahier comptait comme premier cahier de la 45
 sixième série et nos abonnés l'ont reçu à sa date, le vrai
 
 2 oct obre 1904, comme premier cahier de la sixième 4
-VE ; des W
 Série; toute personne qui jusqu'au 31 décembre 1905 Ê
-F5 q x
 sa onnait rétrospectivement à la sixième série le rece- à
-SIREN 5) R 5
 pait, par le fait même de son abonnement, en tête de la Hi
 série; nous l'envoyons contre un mandat de cinq francs pat
 … âtoute personne qui nous en fait la demande. KE
 Pour amorcer tout travail que l'on aurait à commencer À
 _ dans notre premier catalogue analytique sommaire, con- Hs
-At FTANES : Due SUV fa
 -sulier le petit index alphabétique provisoire que nous à
 
 _ avor s établi de ce catalogue analytique sommaire. 4
 
-+0 : A LE . , , PR ik
-és Ge petit index alphabétique provisoire, in-18 grand 2148
 5 jé us, forme un cahier très maniable de XII + 60 pages 4
 rs claires, marqué un franc; ce cahier comptait +8
 + omnme premier cahier de la septième série et nos ml
-A STE x « CURE
 _ abonnés l'ont reçu à sa date, le premier octobre 1905, t.
 1e né mme premier cahier de la septième série; toute ù
 À ÿ ersonne qui s'abonne à la septième série, qui est la va
  sérieen cours, le reçoit, par le fait même de son abonne- F |
-AVIS SA , Fr
 _ ment, en tête de la série; nous l'envoyons contre un “ dl
 % ht dat de un franc à toute personne qui nous en fait rl
 _ la demande. fr
 - Pour lasixième série, année ouvrière 1904-1905, et ps
-US : É rie:
 … en attendant que paraisse le catalogue analytique som- He
 ._ maire de nos deuxièmes cinq séries, 1904-1909, on 35
 É peut consulter, — provisoirement, — la petite table s de
 RE analytique très sommaire que nous avons publiée en fin de
 __ de ce cahier index. FAC
-4 ve Pa
-
-DCE AN EN RON CU PONS ER CHNMONRRES
 
 AA Spa et eng à og NAME ES es PET Lo
-22 APT CE 4 AU f Mn de
 
-à À 7 LR er CNRS
-
-164 Re
-
-js DURS
-ir FN D
-
-Î L'ENRRETE
-106 L'ANPE
-y ‘1 LÉ ANA !
-\H EN | DEAN |
-En {4 NHCAENNPER
-K; 1 s su" : VOTRE
-LAN K t4 Pi « © PAT:
-KR LF AUS KE FOR
-Je ER i OP MINES
-+ 4480 LÉ RON È
-ul Xe ec 14 LUE TRES
-re } f RD ES “ aise ;
-LP LI fl CULA OR À
-74 4 “ d  $è, CNE
 ete ce PAU TT NNOARENESS
-‘140 \ cr ter PTE
 
 144 2e x di ; (ie Mo ta HOLT Lal AE air À AVE
 
-Mi PAS VEN AE) 0 CORTE RP ENSE ES APE Li AI TU
-
-Lena té à / ER f ti YA
-
 # LRQ TA } AAA 4 1 FRERE
 
-!,. Je , + PVR
-
-\ 100 Ge h
-de Le 4 12
 \ À Arutc à la gloire du vieil Homère, \1720
 Molrse ère de tous ces retours. 1
-FL ANR 4
-TRANS M. 44
-LUE : , f "TS
-Le LEE TER
-RC "| à # 408
-TRIER h ue
-PUCES ae
-: HU: HAN LR : 4eR
 < ri RENAN f Le
 
-: 17, SERIES 1 IR
-
-QU. à (55
-
-AE MTS ar Re
-
-Fè AVENIR F : LT
-
-DRERAUT TA
-Ut OV En EN CERN ARE ER NUIT +
 AMEN is RENE LE ST ESRI COLE
-NENE \ EN UNE
-seu : DR DM Dan À
-Es 4! 1 , ke RE : dr & 140
-js 4 RAR HA
-‘08 ; LL RENE
-0 ; CNRS ee
-ai j FRONT
-Dr ! ; QUE ee t >
-au LC + SIREN
-110 : £ à Lt et NES Pi
-APSSSES 5 - DES
-Ur: APTE 1 TR
-: LE « ‘ E | L 4 4 FO
-RES : ê DT CE L
-1 ERNES ll } \ { MMATAUe :
 
-Gé À RTL dau à
-
-N
-
-‘4
-à DU MÊME AUTEUR
-
-‘108
 ‘4 aux Cahiers de la Quinzaine
 
-VE
-
-‘4 . Pages
 # r du
-4 Catalogue
-è analytique
-1% sommaire
 ke Émile Moselly, — l'aube fraternelle, l'arrivée, au camp,
 
 À au fort, — un cahier épuisé, n'est plus mis en vente
@@ -246,169 +114,42 @@ F4 —  — Jean des Brebis ou le livre de la misère,
 
 °@ Jean des Brebis, à la belle étoile, le revenant, la mort
 
-"4 du Bouif, le Trompion, Cri-Cri.......................
-
-DZ. trois francs cinquante 357
-
 # .
 
-Fa Es À |
-2 FAN C4 R g
-
-DA AN AE ETAT
 D et FAN ES PRET
-(fe EU PARA NRA RATE HR NH
 HOT PAR MURS ETAT MEN je MAS ALES pa AA Gas
-h) F k PU SU UT ER M At,
-FRQUt “4 5 RE: |
-RAR a LA SEA
-48 LUS TER
-14 2 TTC
-ur { UNI “a RER:
-{4 5 | à L LHNESYER (LES :
-NUE k ë 4 4 5 22e TTNE NL /
-PAP 4 \ LAB; D FT N: ER Fos L
-Érl SEL EU RER
-Lo 23} A ‘ DA Ne nee
-HUE L ; ‘ f ! RATS J
-DEUVe : AR RERS HUE
-We LÉ
-SU 4 æ von (4
 ne EN Hi { Ke 0 ff AR (ARE 4
-AVR à ' x A CURE N PAL
-NS L ANNTICT A PTE EEE. :
-‘Ton RERO 44 ï 7 r LAINE IENOER AS
-1 IN f | AA AMIS ENTER
-AR à tn Pos ea: ati AT AA ARTErA Au ie (HAS }
-DE ME: ‘ % FA TA at NS 1 Fc AE
-2 1h FAN (4 L UNE PAL
 
 fe Teen “ : CORRE DE EE dl LE j
 
 | VAS 4 XI CRUE
-fl “ASS : 1, 2 LAC ER
 
-: & ED NS Re j Val
-si [460 k » : VPN
-il “FER L 3 1
-nl AL
-00 S retours ;
-
-4, 48 aps ht " d x
-OL k F4
-
-1,11 4 1 ARSMRONSS 5
-CPE VANNES DE:
-ae $ (0 ue ‘ | Re .
-AAA De À": ÿ RL: :
-
-LL Fe # \ € fh
-
-DRE EN 0 RUE } RE.
-
-FAT ASE “HORS
-
-200 ne 14 SRE ; Pi
 RSS PE Les retours. — 1. 1
-
-rh: NAN 1 1e ( £ DA
 
 | ON SET Ars 4
 
-" .L'NNERS
-
-ACT A PAST PR) RON ME 74 EURE PE 4 liren RS AN *
-FNAC ASE RAA LEARN RAP pre SORA RE AA E à Ve.
 LL ARIANE EE er RAR NS TR il AN CNE SIRET
-ENT NOR CAUIERE ATOME NAN Co,
-YA ‘ BARRE
-DLL N 1à 2e: NE L ;
-ERA | É Rés FÉUR FEAR
 |A ; À ñ : RAT ue on
-(180 : « LPO
-LR ENER A x: MATOS
-BAAE Co } RQ
-‘OURS à LR A  |
-“US 1 . 1 1: S'OOCNENREE
-RON . |: VYES RASE
-MANN) h He É LE APRES
-7408 #26, ; Fe $ RAM HD 4
-MN + 6 4 MR MR: à
-OV Pat A1 k Re i LALAEAU RATE Ve NES
 
 RE sois AMEL de) AREAS Wie
 
-AREAS NPA AE HR A MP hi LATE ER
-
-CIRE LE RERO NE N'OSE AN RE MERE EE UT MA ke LL
-HAL EE A AA 1 RL ANT ES PARA KR Ai D
-3 A TT LE js Ko" 1 AS > LL TNT RE À
-
-à P4t DFE a 4e PARU,
-NO ITRS LA } ME
-ke jee f 4
-HE PS AIREENE 14
-8 ER ANNEE f À
-: NES 5
-D | LES HALEURS 44)
-AL KRPRENSS di . = #1 FU
-
-DA D 4 Fr
 Te Pau Pe ; , ta
-+ LUN MANN : FIRE
-He AE AT ANTON Û MELLE
-Va RURALE. SAUT ‘ SN
-KT CMP {21100
-s NA AUS Nr ANR k | 1
-POSTE CS RAIN [SNS
-"NES NN : Re
-A NE. k l'US
 
-14 y: RTE CEE à DENT NOTES PAQUET SN a Me at Put Ÿ FEU à
-LUE PM -
-4 & à t ECS TOURS
-236087 1 à #4 Ps x" se
-pins : FUTTSESS Era
-IRAN +: RAA fi h
-K£ 1 FEAR 2167
-Ur: & < FH
-2 VE F2 Ç
-+R ù [en Ce
-+ : : D'SCNEENSSS
-D: , TT I
-: FRS r. à VOTE 4
-To L 1 D FAT ÉERrSS
-40 Des BV.
-Re ï : DL NT "SRE
-LEE s' © ÉPIPPRTERS
-“LCR à : Se Te els PAR 4.
-CCR É (Er d RER
 AE et { De De ESP 2. L'air
-La 2 : + (Or NN
 
 à 1 co RSS " " ; FT OO PANNES Ki FSS [Ne Rive C4
-1:11 LORS te Û à NA
-! LOC 140
-te Ve 5 d Or
-1170 Rx . V180
 jee be! T L +
-E LES HALEURS à
-(#2: 4 it
 1 à .… L'équipe travaille depuis l'aube dans la chaleur suffo- 149
 ante. Déchargeant un bateau de charbon, les hommes FE
 _.se suivent sur la passerelle pliante, la nuque écrasée 108
-Ÿ . CES . . Lu
 … sous le poids des sacs. Une poussière noire souille la QU
 | berge, les ormes du chemin de halage, les chalands ee.
 * trapus et bas sur l'eau. Et les silhouettes des travail- 15
-CR ; : ù
 . leurs se meuvent confusément dans. une buée chaude, ;)) 1
 | traversée des rayons obliques du couchant. 14
 | Une grue géante allonge le cou, comme une bête DE
 _ sournoise, ayant l'air de surveiller le travail des misé- 100
-_ rables. , ‘Ve
 ei Et les hommes marchent du même pas, sur la passe- Re:
-prelle: É Ft
 Une morne désolation se lève des terrains vagues, 1
 .  rongés par une lèpre, où sont amoncelés des détritus. VS
 … Le couchant verse une clarté plombée sur les eaux "1 ÿ
@@ -418,13 +159,8 @@ des journaux, des bois morts, toujours à la même place. de È
 … ment. Et le soleil qui décline n'apporte à la terre aucune AS
 _ fraîcheur, aucun apaisement. Des soufles ardents mon- 1
 … tent du sol, comme si les choses hostiles voulaient : AA
-Er : sas Gi
-‘1 + WARS x Al
 
-re
-Émile Moselly nr 1
 mettre un large embrasement autour de la souffrance à
-humaine... % à
 Et les hommes se suivent, du même pas rythmique et
 balancé, qui fait plier la passerelle. Ils vont, sans se
 hâter, remontés comme des machines. L'eau ruisselle
@@ -446,11 +182,8 @@ Du même pas, qui traînait, il vint se planter devant
 le chef de chantier. Assis sur un tas de gravier, les
 jambes chaussées de bottes fortes, celui-ci surveillait le
 travail, éventant sa face suante avec un chapeau de
-jonc.
 — Salut! dit l'homme. Des fois, y auraït-y de l'embauche ?
 \ Le chef de chantier ne répondit pas.
-
-Ÿ ; FT
 
 | tbe ri Les RALEURS jé 4
 _ Il toïisait l'homme, qui, la main dans la poche, silo he"
@@ -472,21 +205,16 @@ _ L'homme parla: 115
 1 \## _ —J'vasvous dire! J'suispasexigeant.Unebricole, quoi! Ra
 | D: Un coup de main, si l'ouvrage presse. De quoi gagner 208
 LL une pauv' pièce de vingt sous. J'vas vous dire, j'ai pas ne ù
-.  croûté depuis hier soir. mu
 À 4 . Soupçonneux, le chef de chantier fronça les sourcils. ER
 | NE D'où venez-vous ? N 54
 - L'homme, d'un large geste enveloppa l'horizon, bai el
 is n ES gné de clartés fauves, où des monts lointains s'accrou- y ne
-É : pissaient: : 1
-— De là-bas. 170
-Mhalketait: 1
 ‘à — J'en ai ty vu des patelins, depuis que je marche! Des
 - Des bons pays, où y avait de tout, du vin, du lard, des 12
 k. FR pommes de terre! Et d'aut', des pays de chiens, où les Lo
 ne poules crevaient de faim, autant dire, au temps de la ‘
 …_ moisson. J'ai marché partout, dans le plat pays et dans ML
 
-Émile Moselly 4
 les côtes. Des fois on me recevait bien, je travaillais }
 dans les fermes, à la moisson. Des fois, on lâchait des
 chiens après moi. J'couchais dans les haies, et je volais !
@@ -506,7 +234,6 @@ mauvais, cette poussière-là. Y a rien comme ça, pour
 vous ronger la poitrine.
 Le surveillant eut un mouvement d'épaules impatienté :
 — C'est bon, dit-il. Attendez là, on verra si on vous
-trouve quelque chose.
 Puis il porta à sa bouche une trompe de corne, et
 il en tira un son rauque, qui courut au loin, sur les eaux
 lourdes de soleil.
@@ -518,9 +245,7 @@ et lents, avec un remuement tranquille des mâchoires.
 Ils cassaient les morceaux de pain savoureux, dont la
 mie blanche tachaït vaguement leurs mains noires. Le :
 lard savonneux s'écrasait sous leurs pouces gras, et ils
-; 16 }
 
-GES LES HALEURS ! 71
 D en coupaient des tranches avec précaution, la lame 4
 5 de leurs couteaux jetant une lueur aiguë entre leurs fs
 | doigts. Un d'eux cria : « Hohé, le mousse. » Et un TA
@@ -529,8 +254,6 @@ gamin d'une douzaine d'années, frêle et blond, se dressa 4
 De: dont la panse arrondie étincelait. Les travailleurs pre- L ne |
  naïent la cruche, et les bras tendus, buvaient à la à:
 | régalade : le filet d'eau tombait dans leur bouche, s.
-_  coulait surleurs barbes, arrosait leurs poitrails embrous- Fa
-1° saillés. 7
 + Le miséreux dévorait des yeux cette nourriture. Et.
 Des rires s'éveillaient derrière lui: CT
 …  — Marquis de Bat-la-Dèche. “4
@@ -554,23 +277,17 @@ RE besoin de réconfort, un vague instinct de sympathie le ‘1 :
 tirant d'un bissac en peau de vache des poignées de 14
 D _mirabelles, des fruits dorés, à la pulpe juteuse. Luisant 71
 
-En 7 Le”,
-
-Émile Moselly \7 HUF PAP ENERE
-a
 de convoitise, les yeux du miséreux suivaient ce ne.
 mouvement, malgré lui. L'enfant s'en aperçut : il s'apitoya. #4
 — Si le cœur t'en dit... *
 Et il poussa le sac; les rondeurs tentantes des fruits Ë
 brillaient dans l'entre-bâillement; l'affamé tendit la Ë
-main : 204
 ‘ — C'est pas de refus. ñ
 — Prends-en; quand y en a pu, y en a encore!
 Et le mousse rompit son pain, un morceau de pain de :
 ménage à la croûte saupoudrée de son, et le partagea ;
 avec l'homme. )
 Il y avait entre eux comme une lointaine ressem- :
-blance. |
 L'homme mangea goulûment. Il se mit à respirer fortement, allongeant ses jambes sur le talus gazonné. :
 Avec la nourriture absorbée, une chaleur douce coulait %
 dans ses membres, tandis que se calmaient les tiraillements de son estomac tordu par la faim. Ses pom- ‘
@@ -587,18 +304,14 @@ dit le mousse jovial. :: 20
 — Y at'y longtemps qu'on a fait cette route?
 Il montrait par delà les eaux lumineuses, le flanc ù
 du val tailladé, le banc de roches blanches, qui pre M
-18 :
 
 Lime margune 0 HAT SON
-Me LA SH JUAN RS
 Mn une coloration chaude, dans la poussière du "40
-ire, soleil. ; ; ‘#ù
 ni Y a deux ans. Ça a coûté de l'argent, un travail "#
 RAS pareil. Y a fallu faire sauter la mine. Puis le mousse se. Ne
 __ — T'as jamais passé par ici? ‘4e
 ‘à 54 4 — Si, dans le temps, mais je m'rappelle autant dire ‘110
 1 te Le mousse le contempla, secouant la tête de compas- (118
-_ sion: 4
 L_ — J'ai mon frère aussi, qu'est dans la chemine! ‘147
 n — Pas possible! 1
 “es — Si fait! Il est parti du pays, rapport à un mauvais 008
@@ -607,7 +320,6 @@ n — Pas possible! 1
 - trouvé en train de farfouiller dans son armoire, qu'il 10
 “0 avait défoncée. Tu comprends. Il avait profité du 2
 10 moment qu'elle était à la messe. Ça en a fait du scan- 1 El
-_ dale! 03
 ._ Aux premiers mots, l'homme avait tressailli. Une 00 À
 Qi ‘a . montée de terreur fit vaciller son regard dans ses pru- +4
 en elles vitreuses.' Puis il baissa la tête, et dit d'une 1100
@@ -621,11 +333,7 @@ hi — Jules Lexandre, Mon père est le Titisse, le pé- 13
 _ donnent de l'importance, et sont enchantés d'avoir à »
 À 7 dire quelque chose. ù 11
 L _— On l'a emmené en prison. Des mois passent, on Re
-1 - 19 Fa
-+ FAP Va, NNSe
 
-È 48
-Emile Moselly “4
 n'y pensait plus. Tout d'un coup, le v'là qui revient sans #
 crier gare. Je vois encore la chose : le vieux était assis |
 d'vant le feu, arrangeant les braises avec le soufilet. La +
@@ -659,8 +367,6 @@ rien, et nous les p'tits, on n'osait pas piper dans not 4
 | coin, rapport aux colères du vieux qu'étaient terribles. L
 — En route, dit le père. Mon frère prend sa boule. Moi E
 
-+ Èm LES HALEURS À LR
-Fa ù 1 1
 _  j'courais derrière. Le père l'a conduit jusqu'à la croix 4
 4 des Vaulx, en haut de la côte. Y s'a arrêté. Y faisait 1.
 ; : noir comme dans un four. On ne voyait que la route d'
@@ -689,14 +395,6 @@ de fonte, peinte de minium, se relevait à l'avant, A
 | comme une pointe de sabot. Le bordage plat rasait l'eau. ; fr
 4 Debout à la barre du gouvernail, le pilote se démenait. PE
 À Ses gros souliers sonnaient sur le pont de tôle, et sa k
-à é ; 21 \
-4 AAA TI ‘EDEN
-
-nt 3 !, LANTA
-
-l * LÉTRNREESS
-
-Emile Moselly s 740
 
 ï stature se détachaït, toute noire, sur l'eau brillante, où “1
 des remous tournoyaient. t ‘à
@@ -719,7 +417,6 @@ vail des misérables se rapetissait, devenait un grêle |
 ; cheminement d'insectes, s'acharnant à rouler un graïn, “À
 le long d'une pente. “
 ‘à Un d'eux chanta le chant des haleurs. ‘4
-Ohé, ho, — ohé, ho, — ohé, hisse….
 
 | Il monta, ce large chant, vers le ciel, où s'ailumaient :
 d'impassibles étoiles. C'était d'abord une mélodie guttu- à
@@ -727,16 +424,13 @@ d'impassibles étoiles. C'était d'abord une mélodie guttu- à
 | l'air, comme des aboïements. Il roulait sur les berges, 3
 : frôlait les têtes soyeuses des roseaux, répandant sur les ,
 eaux plombées sa pesante mélancolie. Les syllabes à
-traînaient, s'allongeaient interminablement : aucun écho is
 ne les répétait. Et la monotonie du chant disait bien le pi
 labeur des forçats, leur dur effort répété au long des À
 jours, l'anéantissement de la pensée qui somnole, tour- ‘4
 
 22 1
 
-A LES HALEURS ; ATTURS
 Et ant dans un cercle étroit, comme un cheval de ma- #
-D À Ohé, — ho, — ohé, — ho, — ohé, — hisse. : fl
 RU sn monta dans la nuit, ce chant désespéré, cherchant Ne
 _… à étendre ses ailes dans l'air pesant, embrasé, où les S%
 
@@ -749,7 +443,6 @@ A | neux, les nappes d'air froid, où palpitent les étoiles. On 5e
 _ alors il se résignait, se fondait dans une plainte élargie DU
 _ dont la tranquille désespérance semblait plus émou- de
 | vante encore. 1 d
-* 5“ MORE, ho, — ohé, — ho, — ohé, — hisse. 4
 # à I monta dans la nuit, ce chant! — qui dira sa tristesse, 0
 Th à l'heure où la rivière roule un flot de cuivre, entre ses V4 ‘4
 14 berges démesurément agrandies, à l'heure où les eaux ‘a Ya
@@ -765,11 +458,8 @@ ne: L'homme, réconforté, tirait plus fort que les autres. cl
 …_ autre il lui adressait une parole. NI
 _ Ils avançaient lentement. La grappe humaine hale- me j
 Ke. tait. Les lourds souliers ferrés de pioches s'agrip- K: à
-318) fx
 44 23 04
 
-For FCO
-Émile Moselly ;
 paient aux larges dalles du chemin, les éraflant. Alors j
 une fusée d'étincelles semblait jaillir de la pierre.
 
@@ -806,7 +496,6 @@ de forge.
 La nuit était venue.
 
 Ils marchaïent, tandis qu'une pesanteur somnolente
-enténébrait leurs cerveaux, endormait leurs pensées, au |
 
 - rythme de ces battements de pieds retombant sur les |
 dalles. Ils ne chantaient plus. Parfois ils traversaiïent
@@ -814,7 +503,6 @@ des ponceaux qu'ils ne voyaient pas, qu'ils devinaiïent
 seulement au roulement sonore de leur pas ébranlant
 
 beta LES HALEURS ‘4
-as 4 &
 n les madriers. Le val s'ouvrit. Des eaux mortes devaient 5
 _  s'étaler dans la profondeur des prairies, où des saules hs
 ds étêtés levaient la noirceur de leurs têtes difformes. Un
@@ -846,11 +534,8 @@ J sans que les équipages aient songé à échanger les A
 appels vibrants, qui bondissent sur l'eau, par les ma- pi.
 ge tins trempés de lumière. Ex
 1 Les haleurs marchaient. Tout à coup le vagabond ie
-tomba. k
-% 25 les retours. — 2 : ;
 
 | Émile Moselly MAL
-11 s'affala malencontreusement, manquant d'entraîner m4 ï
 | les camarades dans sa chute. 7:
 À Une voix dit : ZX 1
 | — Ça ne tient pas debout, et ça veut travailler! s
@@ -881,9 +566,7 @@ clarté phosphorescente. Un homme prit la tête et la i
 ù souleva ; les yeux vitreux, étaient fixes, enfermant dans
 leurs prunelles une monstrueuse épouvante.
 Alors l'homme se baissa. On l'entendit qui froissait ke
-FA
 
-de a LES HALEURS 4h %,
 S les vêtements, déboutonnait la chemise. Sa main palpait os
 LS la poitrine. 1 Le
 “ 2 — Son cœur ne bat plus. Faut croire qu'il est mort. A
@@ -917,9 +600,6 @@ nr les bras. Comme il était très lourd, ils s'arrêtaient pour + n.
 " Is arrivèrent à l'usine. Qi.
 | “ Sous le grésillement des lampes électriques, dont les 0
 
-È Rd |
-Émile Moselly
-
 globes laïteux disparaissaient dans un tourbillon de
 papillons nocturnes, l'immense hall s'animait de la tré-
 pidation silencieuse des machines. Les pompes élévatoires, dans leurs bâtis de fonte rivés au sol, semblaient
@@ -942,7 +622,6 @@ du vagabond en pleine clarté, et quand on lui eut raconté
 l'histoire, il s'en alla, indifférent.
 
 Effrayé par leur fixité, le mousse ferma les yeux du
-mort.
 
 Dès lors un immense apaisement parut flotter sur ses
 traits. Le trou à la tempe ne saignait plus. Une mèche
@@ -954,10 +633,7 @@ sa rigidité semblait enfermer un secret, laissait par
 moment rayonner quelque chose du calme surhumain,
 qui l'environnait là-bas. Il paraissait très grand, étendu
 
-ï
-
 0 RATES PN-Feret oi Li ft, à di L; int 4
-LL INNAR NAN LES HALEURS ; T0
 4 sur les dalles, sous le givre étincelant des lampes élec- 2
 _  triques. Et les haleurs se taisaient, surpris à la fois par ‘44
 1 le brutalité de cette mort, un peu effarés aussi par ‘à
@@ -978,7 +654,6 @@ L Les chaïrs gonflées rendaient l'opération difficile. 1
 -. d'une bête étique. Des cicatrices balafraient cette poi- 7
 _  trine de rayures blanches. | L
 ne Le mousse poussa un cri étouffé : le doigt tendu, il $ #È
-_ indiquait quelque chose : ja:
 4 — Là! là, voyez donc. L 24
 Es Au-dessus du cœur, se dessinait un tatouage gros- 4
 -  sièrement figuré. Cela représentait une pensée, un cœur M
@@ -989,15 +664,10 @@ Es Au-dessus du cœur, se dessinait un tatouage gros- 4
 1 — Pas possible! D
 ‘a — Mais si, on lui avait fait ça au régiment. Même “M
 4 qu'il avait aussi sur le bras gauche le nom de sa bonne 14
-_ amie : Zélia. & 4
 L: 29 les retours. — a. (Sn
 4 4
-; ‘a 2e x: 4 ‘
-
-TE EE LA PSE So
 
 Un des ouvriers releva la manche, le nom apparaissait
-en grosses lettres bleues. à
 
 Le mousse s'affala près du cadavre :
 
@@ -1036,15 +706,11 @@ f card qui se trouvait là, dans un coin de l'usine et se
 mirent en route. Leurs pas sonnèrent sur le chemin de
 se halage. Le mousse sanglotait. Le groupe entra dans la
 | nuit.
-*
 #_% ‘
 | On arrivait au village. 4
 & Le cortège s'engagea dans les ruelles, à travers les 1
 jardins. L'orage avait dû glisser le long des côtes. Des k
-à
 
-AUS Gi ÈS
-Ur Li | LES HALEURS ‘NE
 FH D ET ie De
 Ne _ draps que des femmes avaient mis sécher, sur des cor- 4
  deaux, s'agitaient vaguement, comme des blancheurs de.
@@ -1070,7 +736,6 @@ hi logis les mieux clos, il semblait avoir arrêté les batte- 12
 F3 “A pareilles à àe grands animaux accroupis. Et les hommes, de 0
 * sans s'en rendre compte, subissaient cette conta- 5 33 ù
 Fe _ gion de la peur, terrifiante, lorsqu'elle émane des er
-choses. (#0
 ._  — Nous arrivons, dit le mousse, qui les précédait. 358)
 4 Fu . Une grande forme noire se dressait dans la nuit : le 12
 clocher!Ils passèrent si près, etle silence était si profond, M
@@ -1078,14 +743,11 @@ qu'ils entendirent distinctement le tic-tac de l'horloge, b À
 « lentet régulier, éparpillant ses battements dans la nuit. de ï
 Tout à coup il y eut un grincement de poulies et de res- 14
 
-Émile Moselly
 sorts, et l'heure sonna, avec cette vibration grave, que
 le bronze répand dans les espaces silencieux de la
 nuit.
 
 Un d'eux compta :
-
-— Dix, onze, douze. Minuit. ;
 
 Le mot les fit tressaillir.
 
@@ -1110,7 +772,6 @@ de l'invisible. i
 
 Puis le calme revint; on n'entendit plus que le
 mâchonnement des vaches, ruminant devant leurs
-crèches.
 
 S — Oh! mon Dieu, dit le mousse.
 
@@ -1123,12 +784,9 @@ plus loin le fer d'un soc. i
 
 — Quoi qu'y a? dit une voix.
 
-32 |
-
 | Ja à LES HALEURS ue
 | F _  — Vois donc. Nos gens ne sont pas couchés! N
 M Les hommes s'approchèrent, et ce qu'ils virent, les d:
-Non cfara. 7
 Derrière les vitres poussiéreuses, verdies par l'humi- ;
 "4 dité, obstruées de toiles d'araignée, la salle basse X
 4 apparaissait, avec des chapelets d'oignons pendus aux ,
@@ -1158,9 +816,7 @@ LE: doigts noueux. Sa pauvre tête, coiffée d'un bonnet ce
 À % noir dans sa face. Le vieux, écroulé sur sa chaise, dor- 4
 Mn mait anéanti, ses bras tombant inertes le long de son “à
 4 _ corps. Ils étaient rudes et émouvants. Autour d'eux 4
-4 h. F1
 
-Émile Moselly Hd 1
 s'amoncelaient des cordeaux, des paniers de jonc, des 6
 NU passes d'osier vert. Et pendant qu'ils dormaient, les
 choses habituellement inertes, les meubles, les solives
@@ -1188,15 +844,12 @@ de vieux, à petits coups, ce sommeil léger que le moindre
 | bruit dérange. Ils étaient tranquilles. Pourtant la douleur se tenait à côté d'eux, vigilante, immobile.
 Les haleurs n'osaient pas entrer. Ils parlèrent : î
 — Drôle de nouvelle, tout d'même, à annoncer à des
-parents.
 — Ils n'ont pas l'air de se douter de quelque chose. À
 Y ne remuent pas. Comme c'est drôle. |
 . — Y n'savent pas c'qu'y a derrière la porte. Î pe
 #4. £:
 
-MN © : 1x6 nareure CHRUA ES
 _ — YŸ en a autant pour tout le monde. A
-D | 7
 : Tes C'est vrai qu'y n'ont pas de chance. Y z'ont trimé 4
 _ dur pour élever leurs enfants! Tous ces petiots, ça ‘T4
 4 ve oûte gros à habiller et à nourrir. Le vieux, qui était 4
@@ -1224,8 +877,6 @@ _  Jis se frottaient les yeux. L'enfant prononça quelques no.
 paroles. Il faisait un geste dans la direction de la ne
 rue. Les vieux le faisaient répéter, ne comprenant M y
 Le as. : Tout à coup, une stupeur s'abattit sur eux, et les is 4
-
-Emile Moselly à AMOR
 
 Tournant sur lui-même, les bras levés, le vieux
 
@@ -1256,7 +907,6 @@ sur la grand route.
 Là-bas au fond de l'alcôve, le rideau se soulevait, et
 
 des têtes d'enfants ébouriffées regardaient la scène,
-À curieusement.
 
 Un des haleurs parla :
 
@@ -1271,9 +921,6 @@ La mère s'empressait, les mains tremblantes. Elle tira
 des draps blancs de l'armoire, donna une chemise de
 grosse toile. Et quand le mort fat couché, elle plaça au
 
-CT
-
-LES HALEURS
 chevet un verre où un brin de buis trempait dans l'eau
 bénite. Puis elle aspergea le corps, fit un signe de croix
 et tombant à genoux, se mit en prières.
@@ -1290,102 +937,30 @@ couchée, la nuit noire. Il dit encore :
 — Le vlà tranquille, maintenant! Tout d'même. Y
 n'nous à jamais fait que du mal!
 
-Émize MoseLzy
 ‘ Les retours. — 3
 
-j
-
-LAON A NS PAST ANOAUS ge TEA RNIREIRAS
-(EN jé I v (US QE AREA PEINRENT LS AU
-jf AE RAA ANNEE ol AO TE LI te ADS AUX RAR
 ANS al il k û ANA AL AN Re RALNEU MT NE APR
-CI VÉNUS C “ , A FA ME VUE SU
-
-AE 1 ! ‘ NIMES ‘EUR }
 
 je ( \ ts c' (Qu AUTS AL F
 
 FE ji | A È es La NN |
 | (A SEA 1 \ : VAE LP NES AN
-AI APE { à * HS {COUT NAES qe 5 ARTS
 
-1e ENS A ». PES NES LAON
-EU Ÿ J M D NC ENS
-AT Ho pu } 4 A “ NAN MIRE HAE
 À JE QUE , À gai A ait PONT IER) vu
-HAN # AO nes Le VAE NL AU: TAN RAM : (Hi
-AAC pe EURE “es ( Se UTIU ant GEUrET LENS MAN
-
-4 (His HN \ Te ren y AU 5 ANNE R
-ATIEARE Sir APN QU “ ÿ, LH EU EN DA “NOT
-Re QU À W RUE A MINES ji
 
 Ua KE te NAN À LA AUE } AA ANNE “be RE HAN OUR OT
 
 AU : LES (HAL E LA WA AMAR AE RÉ Anr es jé qu
-FA LApus k 4 Ps ! TP 'NAIQUE Lt
-1{.! | Menus #7 LAURE
 
-HET ds AT ï | k ; ‘o "
-1 04e } Ru
-EN NA ts AS + \ US.
-À 100 CNE À LAVE
 0 404
-.. "ATNNRE a sf 11e
-M ! QU
-K ‘à en PERS É Eh
-:: 9) NE A
-A Rex:
-"1 DR 00 non US È (te ñ
 OMIS et
-‘ VA LT TER [RE A Lan
-È | LAS . FR ER
-DE OUT: 4 ï +7)
-x CNY ! ‘TR
 
-1 PATTERN 1
-
-V MAN à LRU
-
-“APE QE HAN Rn.
-AMEN l : De.
-
-Er. ki HE) , \ $ ve $ } b 24 À
-
-AR SL Neue ARIAR A 0 y EX Din Penn,
-AC VE RSA Ve PNA RER RE te
 1 ANUISS qe 2 AE hp A <1F Ne TA k
 nl De hs de RE RE fes :
-QE 20 k 2 LAPS PS
-TE) $ Î 1 AA Dr h
-ait pe À EAN
-RAS 5 ECM (ee AU
-QUES k à PRADA LS Mis F
-AU CIS Ÿ £ ) MERE “en s RS
-7 À Pt (7 (07 EURE
-HE É px Ru RE
-Wa : er Re
-02 L } | 4 1 30 ONER ;
-: Le ; x 7 LS TEEN ES ::
-Love À * # VS 51,800
-ii Le p “ Lt 10 ‘46 ul
-LEE l : ; ra 3 WAR
-Paye ; Nec 7408 TENUE À
-“x HRNTRE s ” 4 1 ÉRCAES “ME
 it Az fl u y U RENNES Nb Le dite
-mu % L 21497 200 +
-(Re ; } - sk 0 NES Mn!
 que \ Mare ETES
-Dour i ; 7 Amir
 | 50e ce | TPS
-LRU & 2 à LRO en x ÉAPAU
-‘NN LE AM ERA L'an (111400
-43} F AA j "4 ERA (er? TA |
-[CAN 4 un Tu {
 
-: LE SAVRQES | L
-48 HP F F EN:
-D: LE SOLDAT 1
 ; i] _ Etallez donc! E
 D Jean Gérard d'un brusque mouvement d'épaule, 4
 … envoya l'as de carreau rouler dans le fossé. Ÿ
@@ -1462,25 +1037,13 @@ chaïit presque le sol. Une femme en sortit, et elle se mit 4
 à appeler ses poules. leur jetant des poignées d'avoine 1
 qu'elle prenait dans son tablier : « Petits, cocottes, 4
 
-42 4 ; pe
-
-N LAN
-
-INRA AM CT OR ALAN L'ADAEUC'ANTE 4
-
-RC LE SOLDAT : TA TRCHSS
-
 _ petits, cocottes ». Les volailles picorant se pressaient à (M
 de ke ses pieds dans un tournoiement d'ailes battantes. Alors 44
-RARE A
 
 Jean Gérard chancela, il crut entendre sa mère qui
-74 q à
 ERA … avait, elle aussi, ce long chantonnement de la voix, pour :
 
 …_ rassembler ses poulets. Et son cœur se gonfla de choses LI
-
-+ _ inexprimables. #1
 
 LES À _ Il dut s'asseoir, les jambes coupées par l'émotion. QE:
 
@@ -1488,10 +1051,7 @@ __ Comme un affamé regarde un pain, il regardait les ‘Si
 
 ‘1 _ champs, goulûment, s'emplissant les yeux. Les blés de j4
 
-ER . sex 2 . e NU
-
 Ë # mai déjà grands, étaient parcourus d'un frissonnement 5e
-418 . . EN
 de chose vivante sous le vent. Les luzernes tressail- 1
 Ni . … laïent sur le ventre nu de la terre. Des détails, insigni- ÿ
 Sel fiants pour d'autres yeux, un buisson de prunelles au RE
@@ -1504,21 +1064,17 @@ dante. Le ciel même ne ressemblait pas au ciel des re :
 
 + autres pays. Posé sur les terres comme un cristal a
 …. vibrant, effleuré de grands souffles, il rayonnait d'un 1FS
-0 8 > 3 ve
 
 - éclat humide à travers les branches des ormes, embuées LP
 
 # _ d'une brume de bourgeons. MU
-pa VE #. : * Mr
 
 … Dans la compagnie, on devait s'apercevoir de quelque An +
 
 __ chose. Des farceurs dévisageaient Jean Gérard, un a
 | . Bourguignon trapu et noueux comme un cep l'inter- xt
-pella: ;
 PV — Hé, pays, on va téter une fameuse goutte. 0
 AT Un autre clignait des yeux, et finaud, humait dans le 4
-CR SN 4 NA 2:
 
 _ vent une odeur imaginaire : se
 D. . _ — Dis donc, v'là ta mère qui met la soupe au cra- ve
@@ -1526,7 +1082,6 @@ D. . _ — Dis donc, v'là ta mère qui met la soupe au cra- ve
 HS [a Toute la compagnie s'esclaffa, secouée d'un gros rire. À
 |: Fe VA f 1
 
-4 É jt) PAPAS A & A NPA CNE TE ÿ Fe 1 LRO à
 Jean Gérard ne répondait pas, restait tout rêveur, le 1
 . regard perdu dans le lointain. : : 4
 pe Dans une prairie en contre-bas, un ruisseau coulait, L
@@ -1557,11 +1112,7 @@ pâte attachés à leur peau. Des fumées bleues rôdaient, 4
 ; s'accrochant aux branches frileuses @es pruniers. Une {
 L odeur de galette au lard et de pain chaud flottait, .
 É exquise, sortait des bougeries et des hangars, pénétrait #4
-64 | 4
-PR |
 
-4 PTS LE SOLDAT à
-;
 ._ le village entier. Puis venait la fête : après la grand Ki
 121 messe, les familles s'attablaient dans les cassines om- 4
 54 breuses, pour lamper le vin gris, manger les quiches $
@@ -1585,19 +1136,13 @@ D — Faites excuse, mon lieutenant. Ce serait t'y un effet ?
 30 C'est la fête chez nous et on n'est guère qu'à une pr
 & trentaine de kilomètres. Ca me ferait gros cœur de
 3% manquer ça! Je m'arrangerai bien pour rattraper la
-si colonne demain matin.
 3 L'officier sourit et dit avec bonté: ;
 ÿ = : — C'est trop juste mon garçon; vous nous retrouverez is
-‘4 demain à Pont-à-Mousson. 4
 ‘ rs Jean Gérard alla poser son sac, son fusil, son équipe- ù
 F ment dans la voiture du muletier qui suivait la compa- $
-4 gnie.
 4 Il marchait, prenant à travers champs des raccourcis.
 4 Il marchait d'un bon pas de lignard, les basques de sa L
-DE. 4 les retours. — 3. ‘
 
-RE a
-: Émile Moselly 7 NAN
 capote envolées derrière lui, le képi posé sur sa nuque D
 : que le soleil mordait. Colombey, Crépey, Ochey, défilè- |: 500
 rent comme dans un rêve. À mesure qu'il approchaït, CU
@@ -1612,7 +1157,6 @@ la chaussée, tintement qui parfois s'assoupissait, et $ 4
 reprenait plus vif, quand un cahot survenait. Jean 4
 Gérard s'installa de son mieux sur la bâche de toile Le
 verte et la route s'acheva, de cette façon, sans trop 4
-} d'encombre. ; #
 D Dix heures sonnaient comme il débouchait en haut de +4
 la côte de Saint-Pierre-sous-Treiche. - #0
 Il s'arrêta, l'âme traversée d'un flot de sentiments 4
@@ -1629,7 +1173,6 @@ même place, heureuses, tranquilles, immuables, n'ayant 4
 \ des Kayserlicks. Il s'étonnait : au bord des prés, la Fi
 
 US A A tu
-A4 VANNES à fe (is OURS
 sat Matte bouillonnante lavait les planches vermoulues du ‘is
 LS _ lavoir, où les battoirs sonnaient dans la semaine. Une ‘1
 | | rangée de grands peupliers frissonnants dans la lumière [4
@@ -1713,9 +1256,6 @@ vous êtes changé ! 1 |
 4 planté, aux joues rondes, qui avait quitté le pays ? Un ; |
 vieux brisquard revenait, au nez en lame de couteau, à A |
 
-à
-
-“110 NA LE SOLDAT 1
 _ la moustache rude, aux yeux luisants comme ceux d'un M
 | épervier. 14
 24 Il balbutiait, le cœur tordu d'angoisse, ayant peur À
@@ -1747,21 +1287,16 @@ __  mant de bourrades enthousiastes. Jean Gérard percevait 7
 pe _ vaguement le glissement mat de la boule, sur les plan- se
 . ches du jeu, le fracassement des quilles, cerclées de te
 …_ fer, projetées sur le talus. Ces bruits familiers à son *à
-0 49 “
 | ‘070 &
 
-k Émile Moselly TER 2 0
 j enfance, le jetaient dans une rêverie prolongée, créant 1
 autour de lui une sorte d'illusion à la fois émouvante et
-
-fugace. 1e
 
 Soudain, son attention fut attirée par le requilleur, à
 
 \ un jeune garçon qui relevait les quilles, et qu'un autre ‘4
 avait remplacé au bout du jeu. ‘à
 | Il y avait dans son visage une expression étrange qui ‘à
-attirait Jean Gérard. 4
 
 L'enfant était effroyablement ivre, les grands ayant d
 trouvé drôle de le faire boire dans leurs verres, par fe
@@ -1787,23 +1322,17 @@ aigu qui le fouillait : (4
 
 — Victor Gérard, dit l'enfant. Maman, c'est la Céles- :1
 
-tine. 4
 — Eh bien, mon vieux, je suis ton frère. Tu sais bien ‘
 
 ï le Jean Gérard qu'est parti soldat. 4
 Du coup, l'émotion dessoûla l'enfant. il répétait à
-machinalement : À
 
 ; — T'es mon frère, t'es mon frère ! ue
 Ses dents s'entre-choquaient. Ses mains tremblantes À
 
 allaient et venaient sur la table. Soudain, il comprit et 4
 
-se mit à pleurer. à
-
 De grosses larmes, lentes, coulaient sur ses joues. Il \
-
-5o N
 
 ve ss _ LE SOLDAT | À Ur:
 D ouchait, reniflait, le corps tout secoué de sanglots. “1
@@ -1834,7 +1363,6 @@ a la tranchée. Alors on t'a commandé un beau service, 14
 _ maison. Les gens revenaient de la messe; des femmes 4
 à és passaient, tenant à la main des morceaux de pain di
 14 El Ils tournèrent le mur de la sacristie, par un sentier où 1
-Diiles vieux sureaux, constellés d'ombelles blanches, ver- } }.
 
 … Saient une ombre légère, criblée de soleil. ji
 _ — Jean Gérard aperçut sa mère. ‘0
@@ -1845,7 +1373,6 @@ ke | La Célestine allait et venait dans le petit jardin, que die
 
 … échorbant l'herbe d'une plate-bande, sarclant un plant ‘ \
 
-ant MN EE C0 CURE ARS CSN NMCU EE ME ES “NE
 | Émile Moselly FRS
 d'asperges, en bonne ménagère qui ne perd pas une 5%
 minute. Jean Gérard la regardait, cloué sur place, tout
@@ -1856,10 +1383,8 @@ un ruban. Il avait peur de faire un mouvement, peur de 4
 prononcer une parole, comprenant que la secousse É
 serait trop forte pour cette pauvre chose usée, trem- : 1
 
-ù blante, ratatinée. À
 L'enfant cria joyeusement: ‘ ‘4
 
-— M'man Célestine! 4
 La vieille se dressa, les mains au front, éblouie dans À
 l'accablement du soleil. 14
 
@@ -1869,7 +1394,6 @@ Elle devint blanche « comme un linge »: Lentement, |
 
 doucement, elle s'affala de son long au milieu du sen M
 
-tier. ‘4
 Jean Gérard d'un bond traversa la haïe. L'enfant pous- 4 |
 
 sait des cris, des voisines accoururent; une d'elles frap- ki.
@@ -1888,23 +1412,12 @@ bouche. Et tout le monde s'étreignit étroitement, la
 toutes ses forces contre sa poitrine, tandis qu'un long |
 frémissement parcourait ses épaules pointues, son échine M
 
-lasse. 4 |
-
 L''émotion calmée, on parla. pi:
 
 La mère se reculait d'un pas, pour mieux voir SOn M
 garçon, pour mieux le tenir sous son regard. E |
 
-‘"
-ne ||
-
-à
-
 | 4
-
-h:
-
-\ LE SOLDAT
 
 — C'est donc toi, not Jean. — T'es donc pas mort.
 
@@ -1918,11 +1431,9 @@ h:
 
 Le petit s'était mis à pleurer, gagné par l'attendrissement général. La mère souriait, tenant encore à la main
 la petite raclotte qui lui servait à sarcler les mauvaises
-herbes.
 
 — C'tandouille, fit Jean, il pleure comme ça depuis
 que j lai retrouvé. En v'là une façon d'accueillir son
-monde. 4
 
 Puis il ajonta :
 
@@ -1935,12 +1446,10 @@ pensait plus. Enfin on l'aime bien tout d'même.
 Jean Gérard dit sentencieux :
 
 À — Y a jamais trop de monde pour taper dans la
-terre.
 
 Le temps passait : on restait là, au milieu du
 jardin; des voisins étaient venus. Jean Gérard retrouva
 le ton joyeux de son enfance, sa bonne humeur natu- :
-relle :
 
 — À table, la mère, j'ai faim.
 
@@ -1986,21 +1495,14 @@ le moment des gros ouvrages. 4
 ñ Le vieux rentrait. La mère fit un clignement d'yeux
 ke entendu et détourna la conversation. } Et
 
-F LE SOLDAT ;
-
-!
-
 ‘0 — Ah çà, dit le père, tu ne nous quittes plus.
 
 | — Pas plus tard que d'main. Faut que j'rejoigne à
-Pont-à-Mousson.
 
 | On poussa les hauts cris. Les hommes n'étaient pas
 
 . des chiens pour se laisser mener aussi durement, On
 n'avait pas le temps de soufller. Tout de suite en
-
-ï route !.…
 
 4 Jean Gérard consolait les vieux. La compagnie rentrait au dépôt et le moment de la libération approchait.
 
@@ -2042,8 +1544,6 @@ k tesseau, gerbes d'avoines et de blés qu'on n'avait pas
 
 | du toit, sous la tuile, bourrant le grenier,
 
-; 55
-
 Émile Moselly fu ne
 A l'écurie, il retrouva la Minouche, une vieille pouliche | À
 grise, la mère des autres chevaux, et il eut plaisir à
@@ -2062,13 +1562,10 @@ debout près de la borne pour mieux donner idée de M
 l'étendue de la pièce, tandis que le garçon se baïssaït, 1
 ramassait une poignée de terre brune et la faisait couler
 dans ses doigts. C'était une bonne terre meuble, grasse, M
-facile à travailler. ! ji 4
 Alors, ils s'épanouirent, le ventre chauffé d'une âpre
 satisfaction, souriant aux épis barbus, au soleil qui
 tombait d'aplomb sur les mottes, fécondant le sein de la au
-terre. he -
 — Y aura du plaisir à taper là-dedans, prononça le |
-fils. 1188
 — Ça nous a coûté gros, — dit le vieux, — mais on a
 achevé de payer à la Saint-Martin. 4
 On alla faire un tour dans le village. La fête battait M
@@ -2076,9 +1573,6 @@ son plein. Les détonations des tirs forains se succé- “1
 daient sèches, cassantes. Des enfants passaient, soufflant à
 à tue-tête dans des trompettes, et les chevaux de bois 4
 tournaient dans un éblouissement d'or, de glaces, de
-verroteries miroitantes. 4
-
-RAR à LE SOLDAT
 
 _ La curiosité se levait sur le passage de Jean Gérard. ta
 _ Desgensl'accostaient. Il racontait ses campagnes, tandis $
@@ -2086,8 +1580,6 @@ _ Desgensl'accostaient. Il racontait ses campagnes, tandis $
 
 “2 _ Une femme s'avançait dans la rue, trainant une ï
 # … ribambelle d'enfants accrochés à ses jupes. C'était la |
-
-Virginie Millet.
 
 Me _  Elles'arrêta devant Jean Gérard, décontenancée, toute
 
@@ -2103,7 +1595,6 @@ ne ans qui lui ressemblait étrangement. Un petit homme,
 
 ‘4 sec et brusque, marchait à ses côtés. Ce devait être le
 
-Ne mari. ;
 hr: Jean Gérard la regardait; la femme haletait; simple- ;
 
 | _ ment il lui tendit la main. ;
@@ -2125,14 +1616,9 @@ _ qu'il avait aimé tout cela. k
 à — Sans rancune, mon vieux. — Qui va à la chasse, u
 É perd sa place. $
 
-.. LL
-
-à Émile Moselly CRE
 Puis il insista : à 211600
 1 — Puisqu'on se retrouvait, on ne se ferait pas la
 . figure. On boiraïit un coup ensemble et on se quitterait 1
-; bons amis. |
-À Jean Gérard accepta. Dr
 N.': Ils habitaient tout à l'extrémité du village, une maison D.
 d'apparence cossue. La façade luisait au soleil, revêtue
 d'un crépi de chaux, tout neuf. Il y avait devant m0
@@ -2154,14 +1640,11 @@ Elle lui montrait sa poupée, un pauvre jouet de carton to g
 à qui manquait un bras et la moitié d'une joue. Jean
 FF Gérard caressait les cheveux de la petite fille, ses che
 % À veux fins et souples comme ceux de la mère. Fa F
-+ Il l''embrassa : è à É.
 *é — Dis done, tu seras bien sage, et quand tu seras 3
 A grande, nous nous marierons… 53
 ‘A Il ajouta doucement : | \ 4
 mA — Tu m'attendras au moins, toi. ; A
 | LR
-
-: LR LE SOLDAT RP.
 
 fo femme ne dit rien, et s'étant penchée à la fenêtre, 41
 
@@ -2191,160 +1674,56 @@ au La mère le serra dans ses bras. ï
 fl . Le vieux lui fit un bout de conduite, le long des jar- ‘en
 | st ] L'aub e se levait, nacrée, derrière les cerisiers feuillus. Fa
 M. Des odeurs de terre mouillée, d'herbe molle de rosée 1
-KMS ESS : 59 *
 
 Meur done? D AP RER Ce /A D NEEN EEE RE AN TEE
-ANT 54 NS FUN PET cn NP RS LA NERO PS |
-Do. É Émile Moselly Tee É
 ü __ sortaient des clos. Une clameur de vie se levait d
-à En È campagnes. | 7310
 "is Le vieux parlait à tort et à travers, ayant peur de.
 AIRE paraître ému. Il mâchonnait maladroitement un cigare
-A D 2 : 3 A PA
 A % que Jean Gérard lui avait rapporté du café. Il dit : !
 De: — Va faire chaud sur le coup de midi. FPS
 Ar” — Du bon temps, répondit Jean Gérard. D:
 CA ) Au bas de la côte ils s''embrassèrent. MTS ni: }
 3h — Bon voyage, dit le vieux. ti SNA
-? ? . PR . F CFE
 né Puis, comme le fils était à quelques pas, il Le rappela
 DE — Faut pas tarder à revenir. Nous autres, on re a
-4 L. Û DT. .
 ie plus pour si longtemps. EN
-qe TOR
-11/21) AU
-Se ; É ME
-Xp Emize MosELLY É ‘4
-"ATSE EE
-LE FF €} FRE
-HEAR à j 0
-08 : Dr
-% ME ; SA ne
-el 20
-‘1 140
 
-ai dd C 1 RO f
 HN RUN QUAD Sur) _! ADR
 \ Me tie fil Eu MA ANA per A ba ITR A TARERS
-À ‘al 2 7. 4 \ ñ ls ir? Déut AE
-HS, DAA LE 2 \ Ê F { \ PEUR
-; fr 2 Re NW? GUN : VéeB "
-; “AU ik W tA 4 u InEEX, ‘A ÿ
-1 WARE TS } ra . D:
-: LETTONIE 1510
-UT PV RON EN 7 : 4
-LR Net ù JV F0
-mL 1h A LU !'1400
-.,: Pen 9 « 26
-LUE A i{ | : )\ 3H
-no. : 1710
-vi M RTE : fl \'OURUR
-A Var HAT AU > A DA
-\ AUTOHITR TC! F M
 SRE Vu ri Havas } } FUI
-F Al Me Rue 2 Ye Ne
-A VON 1 0 3 u È AT:
-Û RO ue Ai LETTRES
-PK ES SATA { HSE
-CAE 7 FAR (NON ou
 110 OT | HuIles retours Et FAR A
-: LPPALEONES
 
-RL HO ir ' ' MAR EEA UE VE + SEE
 qe ‘LRO ne APE TRES
-AU 1 ÿ Nu Fe
-Rap Yi LR
-ED 4 v L'IRREN
-YU : SATHUES
-MU ï | OST
-NA | {LATTES
-Let À Ja PR" k
-NT SE \ … PS INR
-LINE à Mur es:
-“i AE LÉ, FN AE
 ‘Haine na Mon Lt
-SUR y + gant, SU
-ARE HN TARA
-5 S : LENS
-1h ME »
-4 TEEN É Fe" " Je die: 20
-in Rene 4 $ LC HS {
-ANNE Sa F 4 ED l8 d
-ENNRNNANE k F 13 LAIT :
-de MS : MRPAE AE 4
 ve QUE 4 " + Sage x
-FER 1 k Ù SULATENSR
-122 SRE x Es Pa
-'AYCANIES “ = É 5 21Y NICE
 
 Li Il a été tiré de ce cahier treize exemplaires sur \2 00
 _ whatman ainsi distribués : x
 | Dpremier exemplaire de souche, exemplaire du gérant; 108
 La Total LL.
-2° TRS TNA D ‘ Ê*
 _ deuxième exemplaire de souche, exemplaire de l'ad- 10
 troisième exemplaire de souche, exemplaire de l'im- “44
 _ dix exemplaires d'abonnement, numérotés de 1 à 10 Fe,
-Jeu : HP;
-ICE emplaires d'abonnement. - #4
 nn Tous nos exemplaires sur whatman sont numérotés
-Lau a : RENE xl ik.
 | _ âla presse et imprimés au nom du souscripteur; nos
 Hti ages d'exemplaires sur whatman sont rigoureuse- Fe)
-me t limités au nombre d'abonnements à chaque in- Re
  stant souscrits; nous ne vendons point d'exemplaires 4
 | sui whatman en dehors de l'abonnement: l'abonnement +
 … sur whatman à cette septième série est de cent francs <%4
 
 _ pour tous pays. : 113
-ERP . SEM
-Dette « 0
-à (l'E en FRS
-A oh co Na 4 dr à AS
 
 ti DA PA PAR AE UE LE à EEE RM Un
 #4 % Re AT ER De Re ne
-FU } AR er
-VPN Û £ » 2 VENTES
-W ‘ "1e Ÿ C4
-2 TU ; APPAUIRS
-LA] je "4 k
-GE. PA &
-JE * PACS « :
-}'RAR LT SN He à
-ONE 13 FA TRE
-Ai ? LES
-PL" 1-20
-CAT A LT SRE
 #4 À 2", 10 PÈRES
-0 ; er} ARR, |
-LE : HS
-JE : 510
-re | La
 due ( SANS
-ES (2008000 ne. RES
-APR s ! 11 MENT
-Ne MAL « | ï
-(LETARR ; ‘FAUNE
-DONC + CET TER MAT
-Ron ; # È KT IEn 1
-ARS 13 ù A
-a ee F À ‘ 1 AS £
-*\( HE 1 JTE
-US UMR RG
-GORE : + pe : 8 N SRE
-LR FLNTRANE
-IR » # LANCNES
 
-D CN OO RUE
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, nee
 12) Lire: -de-chaussée, Paris, cinquième arrondissement. ji
-! ÈS
 4e Nos Cahiers sont édités par des souscriptions men- 4
 _  suelles régulières et par des souscriptions extraordi- 4
 148 | naires; la souscription ne confère aucune autorité sur 3
 la rédaction ni sur l'administration ; ces fonctions 58
-Fa demeurent libres. |
 He, 5e Nos Cahiers paraissent par séries; une série paraîl is
 dans le temps d'une année scolaire, d'une année d
 … ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- 'E
@@ -2354,11 +1733,7 @@ l'année, mais l'abonnement ainsi souscril est, de droit, Ya
 l'iÿ4 # valable pour la série en cours, et pour toute cette série. ,
 “ Prix de l'abonnement, pour chaque série annuelle : 1
 PR: sl pendant le cours de cette série : ke
-Dirt, s
-‘4 +4 ! Paris, départements, Alsace-Lorraine, ‘ 4
-Û Abonnement ordi- \ Algérie, Tunisie.... vingt francs # EU
 1 à |. maire........... 0 Autres pays de l'Union postale uni- 4
-: ARRÈESE __ verselle....... vingt-cinq francs ii
 ie _ Abonnement sur whatman... cent francs pour tous pays (
 Les exemplaires sur whatman, tirage non réimposé, pe
 Le és 4 _ sont numérotés à la presse et imprimés au nom du 4)
@@ -2374,35 +1749,11 @@ SZ _ naturellement aux inscriptions les plus anciennes; c'est 11
 bé _ l'édition sur whatman est strictement limitée au
 | | nombre d'exemplaires souscrit à chaque instant. me
 è n # ES Les retours. — 4. Fa HUE
-LF-KMES 45
 
 su pis : # RE 4x PRES Le AURAS
-HER ; THEN
 | (A TR ù - “ne pe 11
-AVATER 141 E NON
-ARTE FRANS
-1 | 10
-AL Er OR Cu
 | neue CREER ae
-1 A EU nn
-ANNEE | IS CPTERRE
-US ÿ LA DONNE ï
-MALE re SLR NES
-A AQU? Æ À CE AS
-si ; & è LT NAN +
-ARR Et i PAUSE
-nr AN k +4 EE MERS
-RU +412 7 À } ‘ASIE
-AT (Ve AC ON ONE : RER CE TE MIT
-(RA?. RANCE \ —— 1102 AE Cyn
 TANIA 5 È “ARS Ne tbe
-ÉTAGE ; à N ÿ L L ; y! SAN 1}
-it TAN À t (4 CORNE Mec
-EVA F ÿ | S'CRRAE d, Eu LM
-AR RAEXE 1 { d U4 % à \ ER A AE CAE
-He À NA V Ÿ % LARMES Lt HA ;
-
-:.
 
 Pour tout changement d'adresse envoyer soixante
 
@@ -2447,7 +1798,3 @@ L5 plète.
 de au total des prix marqués; ainsi à dater du pre-
 
 —mier janvier 1906 la sixième série complète se vend
-
-+) soïixante-treize francs.
-
-a

@@ -7,144 +7,68 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 40022
 ---
-
-DEUXIÈME CAHIER DE LA QUATORZIÈME SÉRIE
-ROMAIN ROLLAND
-JEAN-CHRISTOPHE. — III. — LA FIN DU VOYAG
-III. — /a nouvelle journée. —
-
 |
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
-PARIS
 8, rue de la Sorbonne, au rez-de-cheussée
 
-JON GATE RNPMNRS Ar MUR Ra Tr PR ANNE ES PR TUE TE
 ‘ne Hi 4 ru Dan oo Font “AU dl ER
-aq HAS ATE HEUA Re JIUS LUI Ta DTA NU LMPRRA (TL Ds (AIR PA
 à \ ie Het de UN He
 D pi ML LE ALT PAST AT FEU nl
 AU Je il AL ! RARE ARLCX HU FE A aUtE
-REX AE ANS ; k (te DE! RIAE 1
 DA A: AT ANR À | ( ra LHC L if Du) HE
-A is AUS k d LV ER ER RAI \ VUE RL à
 Ag 1 LME TIRE L ÿ M VA JE LAS ue AURA eu
-AUS UNE x : 4 | “ ARE « AA at
 : joué j'aie A ON NET
 
-JEAN-CHRISTOPHE
 Jean-Christophe, PREMIÈRE PARTIE.
-I. — L'Aube (V-9, mardi 2 février 1904).
-II. — Le Matin (V-10, mardi 16 février 1904).
 II. — L'Adolescent (VI-8, mardi 10 janvier 1905).
-IV. — La Révolte.
-__1. SABLES MOUVANTS (VIIL-4, mardi 13 novembre
-1906);
 2. L'ENLISEMENT (VIII-6, mardi 11 décembre
-1906);
 3. LA DéLrvrANCE (VIll-o, mercredi 2 janvier
-' 1907). à
 Jean-Christophe à Paris, DEUXIÈME PARTIE.
 I. — La Foire sur la Place (IX-13, mardi 17 mars
-1908 ; IX-14, mardi 24 mars 1908].
 II. — Antoinette (IX-15, mardi 31 mars 1908).
 , II. — Dans la Maison (X-9, mardi 16 février 1909;
 | X-10, mardi 23 février 1909).
 . La Fin du Voyage, TROISIÈME PARTE.
 LE. — Les Amies (XI-7, mardi 25 janvier 1910; XI-8,
-mardi 8 février 1910).
 | IL. — Le Buisson Ardent (XII-5, mardi 31 octobre 1911;
-XIII-6, mardi 7 novembre 1911}.
 UT. — La Nouvelle Journée.
 | L'ensemble de Jean-Christophe sera complet en ces dix
 4 volumes dans l'édition de librairie. Ces dix volumes auront
 4 Jormé, comme on le voit, dix-sept cahiers.
-‘ journée. — 1
 
-te À ÿ ‘5 a : ui A 5
 fa NAN edincr ELU M AS MES RS D À ET
-PF ILES A Ve? ; PEMPNE TI NETTEX . RES EX fi ÿ. à RTE - à
-s #4 TE FE Led Aie Qu Ç NN 1
-CITE AR 4 # , : LE Un nc
 Fa CHAN 6. È À nu VÉ i ii « une
-D ©. Ma
-454 ESERNT “HSM |
 | LME ! + PNR
-L4' F1 Ë L Es (ar)
-À QUE RENE ñ ; à FEAR # A
-DONNER UT; c N : à) Ce 1p NN
-Nour" 54 4 3 à ra! D AE
-â LOI (4 L 7 . tn {
-4 de 0 4 LL Ÿ;
-Fre ‘ à +
-NE g ÿ 5
-Pre RE ‘s 4
-LT NE \ Mae
-RM 4, i 2 x
-; AS UR . 6 ‘ | 12 YNS
-ER AL RES
-“1 LA : RATER, e ANS à
-
-LA FIN DU VOYAGE
-e
-‘ 4
 
 ne DA PEER QE 22 LAVAL AT ve NE EEE DU AS AA EE 7e À SAN SU 0
-
-EURE TT TOR RENE PR SE ONE PGA D MAL 70 NEA PEU ROULE + pe: \
 
 g hs tee Rues SUR La CE LAN SATA AE f ET NCIS
 
 MOUSE QUE TE Eee OT ER e CM ET RTE
 
 | RER LEONA IT EE SANTO MIRE 4 ARIANE RU ENS
-WHAT NE DOM PRE IARE TRY, HUIT NS SRE ANS
-AUS AESRNS A pi MAO ONU EU ERETR à DM DRE RACE TEEN FOUR ER Le
-ARCS, Re MARNE 2 10 OSEO SPANINN ON ARNRES
-08 NO LS PAL Ÿ We 207 5 RTE ENST L'OMONT TRE LATINE RER AES
 
-117 3 RON R ONE n « OS AAA Out a AT UNE RS ENS
-
-LAN COR SONORE 5 i VF 4 ; Ÿ #1
-.: LOSRETEMNEESS U à NH FX
-+ ! LI MANE D NNSER ru d y : { d . : à SRE
 AU FUR TE d k re ET
-LA SNA s NE ? + L'ART
-TS RS Ne dr: ‘ £ ÿ 5 t 11 * MN ENIES
-4 HAS RU Fe 11 14 Cox À, A X-SF UN
 ns “. JL \ x: DE v QUE L (RATE 3: RO A à * QU it
-AP A À 1e PUTTR K: JAN AN d'AMD NS RATE ii SPAM à nt
 
 En terminant cette œuvre,
 je la dédie :
 Aux âmes libres, — de toutes les nations, —
 qui souffrent, qui luttent,
 el qui vaincront.
-R. R.
-'
 
 Het PIN La non au FU AVES UE Ne HSE ns
-RL PR rene HAT Lie CRAN AT EMA DAS if RSS OI tre
 ENS 1 RE La CEA HAS F osé D: pi Le
 
-10  : SEM EEENE K28 ! ART LEE EURE AE
 | {te AUSSI 24 f ‘1 VOS
 ARE MA ASE HU ANA nant
-a 700 AN PU à 1h = k PTE ENT p
-Re DRE
 (y nf oeTO US Fe AE NE } Êt gs ( 1, 'ÉTMUE FAC
-LAINE ARTE TELE ATEN À | ARTE : Te KA
 Creelr 2" # PARA; f Cut à ms + DE KART
-À LR | 4, NE MARS HAS CAN EE SA he.
 | VRP D F0 NE SEC FN ENE TS tin: LOUIS dr
-HAN j; (MAMAN : 5e
 | NUS DR OUI SES
 WAR AU ee LU ; l \ (ete ! CORNE FA Ca UE BRANEE"
 
-7 ON TRAEN AE v ! FRET LS TUE PRIS
-
 mi ARE KW, À ARE une VANNES M7 Var rs But. AQU
-UBAUr te CA CRTATETR ANNE LL APRES
 
 [Le véritable titre de ce volume
 devait être l'Aube nouvelle, qui
@@ -156,14 +80,8 @@ assure-t-on,n'eût pas manqué de se
 entre ce titre et celui du premier
 volume de Jean-Christophe, nous
 avons adopté provisoirement : la
-Nouvelle Journée, — quitte à
 reprendre plus tard le titre primitif]
-R. R.
 
-}
-PRÉFACE AU DERNIER VOLUME
-DE
-JEAN-CHRISTOPHE ;
 J'ai écrit la tragédie d'une génération qui va dispa-
 | raître. Je n'ai cherché à rien dissimuler de ses vices
 et de ses vertus, de sa pesante tristesse, de son orgueil
@@ -172,7 +90,6 @@ _ chaotique, de ses efforts héroïques et de ses acca_  blements sous l'écrasa
 …_ esthétique, une foi, une humanité nouvelle à refaire. —
 Voilà ce que nous fûmes.
 1 Hommes d'aujourd'hui, jeunes hommes, foulez-nous
-à 9 journée. — 1.
 
 la fin du voyage
 
@@ -184,8 +101,6 @@ rejette derrière moi, comme une enveloppe vide. La
 vie est une suite de morts et de résurrections. Mourons,
 Christophe, pour renaître.
 
-RomaIN ROLLAND
-Octobre 1912
 |
 
 « ee * btedec Kosff ie us sl par Ex |
@@ -210,7 +125,6 @@ d'ici-bas! L'âme qui a vécu et qui s'est détournée de
 labreuvoir commun, où les hommes pour boire remuent
 Ja vase avec leurs pieds, se presse sur ton sein et suce
 
-LNPEA
 la fin du voyage
 à tes mamelles le frais ruisseau du rêve. Musique,
 vierge mère, qui portes toutes les passions dans tes
@@ -229,63 +143,29 @@ nous taisons, nos yeux sont clos, et je vois la lumière -
 ineffable de tes yeux, et je bois le sourire de ta bouche
 muette ; et blotti sur ton cœur, j'écoute le battement de
 la vie éternelle.
-}
 
 ART A AR PR PRE SR GnRAnrT es VAE ION AE: 8 LE FAIM CIE La ue I A ABLE
-DT Me 27 EAN GEL TA A NU SEEN EE AN se MORT ANR
-AA PT TLRES RÉ D AN RAT QT 4 ER Eu UE AAA ot 4 ONE
-je) ÉTAIT 0 LAPRE AE AE M NE ME AE a. HN ETES
 Que 7 4 c RASE TE Ole] HAE v Un à
-LE ! : 4: +, (PRET Ne 2: RE A Pa + TT IN MERE |
-PAF RER ATH T TE Et ; RAT IP TRU: LS HORS
-“ANS : +} 438 "+ AE PNA TI LÉ raie 4 FR Se: À
-12 l'ENS À ; j ; 10 PRE ORE ARR
-RER 1 MESA A. UMe NORRIS
-Me RAI ; ESP (9 COTTON
-NE STE MAS " 1 14 01 | PE TANT
-A " N ( OR ES. Se SAN
 LA “ j « LA vid », Gi et KA
-0 AUS
-(7: ; | A | AOUT ASNEANNCPES
-Ne. À : 1 12 1É NUE RSR ES,
-Ks \ EN} : M
-À a À n (Ten fl Ê 11, 770) RIT ARE ÿ
-+ AR HUABE De 2e ATOM { ii LS ENT) C1 RTAAVA EE
-Pre FTP ONE" : 4x NA 0
-Le GS AT Pl FN EU NME Le LUN ST NAN :
 LE AT M Rae AREAS" MN
-À TN ENERNR MA Ca ete, à ARE AA 4; AYTANEN
-LACS EMO EVANS ET ait LL ARE HET T 2 TOR LA PRET TES
 
 | \ AE ME E PR ALU PME EE EN AT ds ONE de TA
-11 Ra WTA PEN à EUR T Ve LUSRC UNS VE TMS ES EU Line ARMOR, GENE EE ES AREAS en An
-D AG DT NC (AI Ie AE Net PLAMIMANE, EDR SE
-f FRA pa qe APRES * PNR EUR à 2 EN ANSE PA LS UREN tee UE
-ONE ES © 4 ANR EEE MON NE À LME ECC Ce) VEINES AUS ER RE :
 NEA CANtE ACT ET à | dE ni L PS M NAN DIU MALE Det y CAL RUSSE LAN 8
-DORE TAUA LE FU. Pa PT JE + pi 2 TE 'APONANIETELERNEES
-BE SIA 2 TON ARE A RTE Me:
 qu F4 NE LU NS ESA OT tes LÉ PA MN PNA LS Ar TEU
 HAT ee LC! ! ur l MARS TRUE  EXT: De
-À VAE À CS LA PAN 4! et dE MC AT.
 1 PROCESS Nr ONE EU un Û TER Ent Eu
 4: SPIR hrs VAR PM ET RURERS ae DATA ATARI ES M: LATE
 | PATES Pr RAR RD TX 4° RE HAS ERA r ASE 3 “J
-f TOMATE) { ER RE A RO QE ‘14 M ETTR mur
 ‘mi DU a De EL DCS T VUE ON TN GR es 49 1 D TON CAMES RES
 TER uen ASE AUTOMNE AN MA PRRTE T0,
-1 DONNE TECANRIRERS VEUT DEN DETTE MENT ALT I FR
 KE pl A AR UT 2 PPT NAS PRENTANE CAR the 421 RE SN, HÉRENSSNESSSS
 ; ñ fi OÙ Fi NCA ES (NA GPU? PALM AIRRNOE ANT PS dub
-l M AE LS ! NCAA) HIS LU RE RATE PAS RO DONNE
-7: VER AS A ARNENC EE DZ CRUE EN Le D Fe
 
 Christophe ne compte plus les années qui s'enfuient.
 Goutte à goutte, la vie s'en va. Mais sa vie est ailleurs. $
 Elle n'a plus d'histoire. Son histoire, c'est l'œuvre qu'il
 crée. Le chant incessant de la musique qui sourd |
 remplit l'âme et la rend insensible au tumulte du
-dehors. (
 
 Christophe a vaincu. Son nom s'est imposé. L'âge pe
 vient. Ses cheveux ont blanchi. Il ne s'en soucie point; S
@@ -309,7 +189,6 @@ aux yeux larges et calmes qui écoutent le ciel; et, à
 comme l'apôtre Paul, — dans le tableau de Raphaël, —
 15 4
 
-À « # 75 K M
 la fin du voyage |
 qui se tait et qui songe, appuyé sur l'épée, il ne s'irrite
 plus, il ne pense plus à combattre; il rêve et il forge
@@ -350,8 +229,6 @@ Aie OT RIRE L k us y à
 
 | LA NOUVELLE JOURNÉE
 
-À
-
 \ bien qu'il y revint de temps en temps, pour diriger des
 
 \ exécutions de ses œuvres, il ne s'y était point fixé. Trop
@@ -374,7 +251,6 @@ la nuit, sous la peur. Le soleil était caché sous le
 casque du vainqueur. Si des vaincus trop faibles pour
 soulever l'éteignoir n'ont droit qu'à une pitié, mêlée
 d'un peu de mépris, quel sentiment mérite l'homme au
-casque ?
 
 Depuis peu, le jour commençait à renaître; des
 trouées de lumière passaient par les fissures. Pour être
@@ -420,7 +296,6 @@ beaux traits de cette robuste terre, ces villes d'étrangers, monstrueux entrep�
 ; peuple gras du monde entier, ces repas de tables d'hôte,
 ces gâchages de viandes jetées dans la fosse aux bêtes,
 
-LA NOUVELLE JOURNÉE
 ces musiques de casinos dont le bruit s'associe à celui
 des petits chevaux, ces ignobles pitres italiens dont les
 braïllements dégoûtants font pâmer d'aise les riches
@@ -431,7 +306,6 @@ honnètes libraires aux brochures scandaleuses, — toute
 la bassesse morale de ces milieux où s'engouffrent,
 chaque année, sans plaisir, les millions de ces oisifs,
 . incapables de trouver des amusements, ni plus relevés que ceux de la canaïlle, ni simplement aussi
-vifs.
 
 Et ils ne connaissent rien de la vie de ce peuple, qui
 est leur hôte. Ils ne se doutent pas des réserves de
@@ -450,7 +324,6 @@ jeune, qui tantôt râpe la langue, comme les fruits pierreux des poiriers sauva
 des myrtils noirs et bleus, mais du moins sent la terre,
 est l'œuvre d'autodidactes qu'une culture archaïque ne
 
-* :
 la fin du voyage F
 sépare point de leur peuple et qui lisent, avec lui, dans
 le même livre de vie. ;
@@ -474,9 +347,6 @@ dans un pays où il était facile de vivre à l'écart, |
 rare qu'il séjournât longtemps au même endroit; il
 changeaïit souvent de gîte : vieil oiseau nomade, qui a |
 besoin d'espace, et pour qui la patrie est dans l'air. |
-« Mein Reich ist in der Luft. »
-
-ne |
 
 Un soir d'été.
 
@@ -499,9 +369,6 @@ quelques pas, ils se reconnurent. Leur émotion se trahit
 dans leurs yeux; mais aucune parole forte, un geste
 imperceptible. Lui, très troublé; elle, .…. ses lèvres
 tremblaient un peu. Ils s'arrêétèrent. Presque à voix
-basse :
-
-— Grazia! :
 
 — Vous ici!
 
@@ -546,22 +413,16 @@ bien; qui fait attention à nous? a
 — Cela est mieux, ainsi. ë
 Il ne comprit pas pourquoi. Plus tard, quand il repassa |
 dans sa mémoire cet entretien, il pensa qu'elle n'avait D
-22 |
 
 |
-n |
 
 |
-D
-{à
-LA NOUVELLE JOURNÉE 4
 il
 pas confiance en lui. Mais c'était qu'elle avait une peur 1
 instinctive des scènes d'émotion; sans qu'elle s'en rendit ‘4
 compte, elle cherchait un abri contre les surprises de ‘fl
 leurs cœurs; même, elle aimait la gêne de cette intimité &
 dans un salon d'hôtel, qui protégeait la pudeur de son A À
-trouble secret. f|
 Ils se dirent, à mi-voix, avec de fréquents silences, : mi
 les grandes lignes de leur vie. Le comte Berény avait mn :
 été tué dans un duel, quelques mois auparavant; et ‘à |
@@ -589,8 +450,6 @@ politesse, avec laquelle Grazia recevait cette étrangère; À
 elle ne semblait pas faire de différence entre ses deux ES |
 visiteurs, Il en fat afiligé ; il ne lui en voulut pas. Elle |
 | fl
-5:
-che.
 
 la fin du voyagé
 rejointe. Elle les lui présenta. Il éprouvait pour eux un |
@@ -641,16 +500,12 @@ Il ne comprit pas pourquoi. Plus tard, quand il repassa
 
 , dans sa mémoire cet entretien, il pensa qu'elle n'avait
 
-:
-LA NOUVELLE JOURNÉE
-
 pas confiance en lui. Mais c'était qu'elle avait une peur
 
 _ instinctive des scènes d'émotion ; sans qu'elle s'en rendit
 compte, elle cherchait un abri contre les surprises de
 leurs cœurs; même, elle aimait la gêne de cette intimité
 dans un salon d'hôtel, qui protégeait la pudeur de son
-trouble secret.
 
 Ils se dirent, à mi-voix, avec de fréquents silences,
 les grandes lignes de leur vie. Le comte Berény avait
@@ -718,9 +573,7 @@ pour son cœur affamé de tendresse. La tendresse!
 Il croyait y avoir renoncé : il lui avait bien fallu
 apprendre à s'en passer! Il sentait aujourd'hui combien
 
-LA NOUVELLE JOURNÉE
 elle lui manquait, et tout ce qu'il avait accumulé ;
-d'amour.
 
 . Douce et sainte soirée qu'ils passèrent ensemble.
 Il ne put lui parler que de sujets indifférents, malgré
@@ -730,7 +583,6 @@ regard à lui parler! Elle était frappée de voir l'humilité
 de cœur de cet homme, qu'elle avait connu orgueilleux
 et violent. Quand il partit, l'étreinte silencieuse de leurs
 mains dit qu'ils s'étaient retrouvés, qu'ils ne se perdraient plus. — Il pleuvait, sans un soufile de vent. Son
-cœur chantait.
 
 Elle ne devait plus rester que quelques jours dans le
 pays; et elle ne retarda pas d'une heure son départ,
@@ -756,10 +608,6 @@ du temps. — Et il demanda, à voix basse et tremblante,
 comme une faveur précieuse, qu'elle lui donnât….
 un de ses cheveux blancs.
 
-journée, — 2
-
-, Ç + , oh
-
 Elle partit. Il ne pouvait comprendre pourquoi elle
 n'était pas disposée à ce qu'il l'accompagnât. Il ne
 doutait point de son amitié ; mais sa réserve le déconcertait. Il ne put rester deux jours dans le pays; il
@@ -783,8 +631,6 @@ fiévreuse des gens d'aujourd'hui. Il avait peur d'un
 changement d'habitudes, dangereux pour le travail
 régulier de l'esprit. D'ailleurs, l'Italie ne l'attirait point.
 Il ne la connaissait que par l'infime musique des
-
-- LA NOUVELLE JOURNÉE
 
 - véristes et par les airs de ténor que la terre de Virgile |
 inspire périodiquement aux littérateurs en voyage. Il
@@ -816,7 +662,6 @@ Grazia appartenait. Pour la retrouver, jusqu'où et par
 quels chemins Christophe ne füt-il pas allé? Il en serait
 
 quitte pour se fermer les yeux, jusqu'à ce qu'il l''eût
-rejointe.
 
 Se fermer les yeux, il y était habitué. Depuis tant
 
@@ -850,7 +695,6 @@ chaleur du poële et la chambre fermée. On ne s'en
 doute pas, lorsqu'on vit, dedans; on aime cette tiédeur
 lourde, on aime ce demi-jour et les songes de l'âme
 dans la tête pesante. On aime ce qu'on a. Il faut bien
-s'en satisfaire!
 
 Lorsqu'au sortir de la barrière alpestre, Christophe,
 assoupi dans un coin de son wagon, aperçut le ciel
@@ -874,15 +718,12 @@ maigres et souples, d'un dessin contourné, avec des
 touffes de duvet roux. Montagnes de Vinci, Alpes neigeuses à l'éclat adouci, dont la ligne orageuse encercle
 l'horizon, frangée de rouge, d'orange, d'or vert et d'azur
 
-LA NOUVELLE JOURNÉE
-
 pâle. Soir qui tombe sur l'Apennin. Descente sinueuse
 le long des petits monts abrupts, aux courbes serpentines, dont le rythme se répète et s'enchaîne, ainsi
 qu'une farandole. — Et soudain, au bas de la pente,
 comme un baiser, l'haleine de la mer et l'odeur des
 orangers. La mer, la mer latine et sa lumière d'opale,
 où dorment, suspendues, des volées de petites barques,
-aux ailes repliées.……
 
 Sur le bord de la mer, à un village de pêcheurs, le
 train restait arrêté. On expliquait aux voyageurs qu'à |
@@ -904,8 +745,6 @@ fleuve de vie, et par nos yeux, nos lèvres, nos narines,
 tous les pores de notre peau, t'infiltres jusqu'au fond
 de notre chair, lumière plus nécessaire à la vie que le
 pain, — qui te voit dépouillée de tes voiles du Nord,
-
-4 29 journée. — 2.
 
 la fin du voyage
 pure, brûlante et nue, se demande comment il a jamais
@@ -942,7 +781,6 @@ caresses de l'air, bain tiède de lumière où se détend
 lâme vieillie et lassée. Christophe ne pensait à rien.
 Jl était dans une béatitude voluptueuse, Il n'en sortait
 
-LA NOUVELLE JOURNÉE
 que pour faire part de sa joie à ceux qu'il rencontrait :
 son batelier, un vieux pêcheur, aux yeux vifs et plissés,
 coiffé d'une toque rouge de sénateur vénitien; — son
@@ -959,7 +797,6 @@ fond de leurs chariots, et poussant, par accès intermittents, les mille et un c
 paresseux et gueulard. Il se surprenait à fredonner
 Cavalleria Rusticana. Le but de son voyage était tota- É
 lement oublié. Oubliée, sa hâte d'arriver au but, de
-rejoindre Grazia..….
 
 Jusqu'au jour où l'image aimée se réveilla. Fut-ce un
 regard, rencontré sur la route, fut-ce une inflexion de
@@ -981,12 +818,10 @@ venirs italiens, des villes d'art du passé. De Rome il ne
 vit rien, il ne chercha à rien voir; et ce qu'il en aperçut,
 . au passage, d'abord, des quartiers neufs sans style,
 ! des bâtisses carrées, ne lui inspira pas le désir d'en
-connaître davantage.
 
 Aussitôt arrivé, il alla chez Grazia. Elle lui demanda :
 
 — Par quel chemin êtes-vous venu? Vous êtes-vous
-arrêté à Milan, à Florence?
 
 — Non, dit-il. Pourquoi faire ?
 
@@ -1021,17 +856,12 @@ ouverts. Je ne sais pas ce que j'ai vu, je ne sais pas ce
 que j'ai rêvé. Je crois que j'ai rêvé de vous. Je sais que
 \ c'était très beau. Mais le plus beau, c'est que j'ai tout
 
-\ oublié.
-
 — Merci, dit-elle.
 
 (I n'écouta pas.)
 
 — .. Tout, reprit-il, tout ce qui était alors, tout ce qui
 
-L 32
-
-LA NOUVELLE JOURNÉE
 était avant. Je suis comme un homme nouveau, qui
 | recommence à vivre.
 
@@ -1066,10 +896,6 @@ on lisait bien des choses nouvelles dans son lumineux
 sourire : une indulgence mélancolique, un peu de lassitude, beaucoup d'intelligence des âmes, une pointe
 d'ironie, un paisible bon sens. L'âge l'avait voilée d'une
 
-33 À
-he
-
-: PAS RS UE, à
 la fin du voyage
 
 certaine froideur, qui l'abritait contre les illusions du
@@ -1089,7 +915,6 @@ raillait elle-même, mais qu'elle ne combattait point.
 Nulle révolte contre les choses, ni contre soi : un fata-
 
 lisme très doux, dans une nature toute bonne et un peu
-fatiguée.
 
 Elle recevait beaucoup, et sans beaucoup choisir, —
 du moins en apparence; — mais comme ses intimes
@@ -1118,7 +943,6 @@ ressort est toujours le romain.
 Christophe, sans pouvoir analyser son impression,
 admirait le parfum de culture séculaire, de vieille
 
-Î }
 < la fin du voyage
 civilisation, que respiraient ces âmes, souvent assez
 médiocres, et, quelques-unes même, au-dessous du
@@ -1132,7 +956,6 @@ n'avait pas à craindre de rencontrer ici un de ces psychologues de salons paris
 Des hommes, tout simplement, et des hommes très
 humains, tels que l'étaient déjà les amis de Térence
 et de Scipion l'Émilien.…
-Homo sum...
 Belle façade. La vie était plus apparente que réelle.
 Par dessous, l'incurable frivolité, commune à la société
 mondaine de tous les pays. Mais ce qui donnait à
@@ -1150,7 +973,6 @@ dilettantisme. On voyait là des natures charmantes, de
 ces belles figures italiennes de patriciens aux traits
 fins, aux yeux intelligents et doux, aux manières tran36
 
-LA NOUVELLE JOURNÉE
 quilles, qui aimaient d'un goût exquis et d'un cœur
 affectueux la nature, les vieux peintres, les fleurs, les
 femmes, les livres, la bonne chère, la patrie, la
@@ -1179,9 +1001,6 @@ moyens pour ses fins, prêt à sacrifier toutes ses amitiés
 à son ambition, était capable de sacrifier son ambition
 à une seule chose : son quieto vivere. Ils avaient besoin
 
-37 journée. — 3
-
-s Lu" Ni:
 la fin du voyage
 
 de longues périodes d'anéantissement. Quand ils sortaient de là, ainsi qu'après un bon sommeil, ils étaient
@@ -1209,9 +1028,6 @@ entourée de gens du monde, aux belles manières courtoises, spirituels et vides
 voulait. Il la bouda, de même qu'il boudait Rome. II
 espaça ses visites, il se promit de repartir.
 
-VUE OS CRM ES 4 4 "
-+ s ,
-
 Il ne repartit pas. IL commençait déjà de sentir, à
 son insu, l'attrait de ce monde italien, qui lirritait.
 
@@ -1236,7 +1052,6 @@ roulaient dans le ciel bleu. Des paysans à cheval
 poussaient, à coups de gaule, à travers le désert, des
 troupeaux de grands bœufs gris perle à longues cornes;
 
-SANT RIN LT
 la fin du voyage ‘ ,
 et sur la voie antique, droite, poussiéreuse et nue, des
 pâtres chèvre-pieds, les cuisses recouvertes de peaux
@@ -1256,7 +1071,6 @@ souriant, somnolent et baigné par l'oubli, buvaït la
 \ force calme et violente de Rome. — Jusqu'à la nuit
 tombante. — Alors, le cœur étreint d'une angoisse
 subite, il fuyait la solitude funèbre où la lumière
-tragique s'engloutissait. O terre, terre ardente, terre
 passionnée et muette! Sous ta paix fiévreuse, j'entends
 | sonner encore les trompettes des légions. Quelles
 fureurs de vie grondent dans ta poitrine! Quel désir
@@ -1270,9 +1084,6 @@ Bien peu voulaient le voir. Il troublait la quiétude de
 ceux qui dormaient. C'était une lumière claire et
 brutale. Ceux qui la portaient, — de jeunes hommes
 
-4o
-
-LA NOUVELLE JOURNÉE
 (le plus âgé n'avait pas trente-cinq ans), une élite venue
 de tous les points de l'horizon, libres intellectuels qui
 différaient, entre eux, de tempérament, d'éducation,
@@ -1300,15 +1111,11 @@ pourtant leur autel le plus haut et leurs plus pures
 ardeurs à la vérité. Ils l'aimaient, d'un cœur fougueux
 et pieux. Insulté par ses adversaires, diffamé, menacé,
 un des chefs de ces jeunes hommes répondait, avec une
-calme grandeur :
 
 « Respectez la vérité. Je vous parle, à cœur ouvert,
 libre de toute rancune. J'oublie le mal que j'ai reçu de
 vous et celui que je puis vous avoir fait. Soyez vrais. Il
 
-4x
-
-» À + ve
 la fin du voyage
 n'est pas de conscience, il n'est pas de hauteur de vie,
 il n'est pas de capacité de sacrifice, il n'est pas de
@@ -1339,7 +1146,6 @@ elles lui semblèrent l'écho de sa propre voix; et il sentit
 que ces hommes et lui étaient frères. Les hasards de
 la lutte des peuples et des idées pouvaient les jeter, un
 
-3 LA NOUVELLE JOURNÉE
 jour, les uns contre les autres, dans la mêlée; mais
 amis ou ennemis, ils étaient, ils seraient toujours de la
 même famille humaine. Ils le savaient, comme lui. Ils
@@ -1401,9 +1207,7 @@ déplaisants à cette nature éprise de mesure et de paix.
 Il fallait bien reconnaître avec elle qu'ils avaient une
 façon de soutenir les meilleures causes, qui donnait
 envie parfois de s'en déclarer l'ennemi. Ils étaient
-44 +
 
-LA NOUVELLE JOURNÉE à
 ironiques et agressifs, d'une dureté de critique qui
 . touchaït à l'insulte, même avec des gens qu'ils ne
 
@@ -1439,9 +1243,6 @@ les oublier. Sans doute, ils lui ressemblaient. Ils lui
 ressemblaient trop. Ils étaient aujourd'hui ce qu'il
 avait été, à vingt ans. Et le cours de la vie ne se
 
-45 journée, — 3,
-+
-
 la fin du voyage
 
 remonte pas. Au fond, Christophe savait bien qu'il avait
@@ -1452,8 +1253,6 @@ elle? Ah! c'est qu'il eût voulu, par un égoïsme
 d'amour, être seul à en jouir. Il ne pouvait souffrir que
 Grazia en dispensât les bienfaits, sans compter, à tout
 venant, qu'elle fût prodigue envers tous de son charmant accueil.
-
-“ , f c S
 
 Elle lisaït en lui; et avec son aimable franchise, elle
 lui dit, un jour :
@@ -1520,15 +1319,12 @@ a de plus pur finit par s'avilir..….
 — Il ne faut plus qu'il y ait rien de caché entre nous.
 Voyez-vous, je ne crois plus beaucoup au mariage. Le
 
-UE LA NOUVELLE JOURNÉE
-
 mien, je le sais, n'est pas un exemple suffisant. Mais
 j'ai réfléchi et regardé autour de moi. Ils sont rares, les
 mariages heureux. C'est un peu contre nature. On ne
 peut enchaîner ensemble les volontés de deux êtres
 qu'en mutilant l'une d'elles, sinon toutes les deux; et ce
 ne sont même point là, peut-être, des souffrances où
-lâme ait profit à être trempée.
 
 — Ah! dit-il, j'y vois une si belle chose, au contraire,
 l'union de deux sacrifices, deux âmes mélées en une!
@@ -1562,7 +1358,6 @@ pour penser à me marier avec une autre?
 
 — Mais c'est au contraire parce que je vous aime,
 que je serais heureuse de faire ce qui pourrait vous
-rendre heureux.
 
 — Alors, si c'est vrai.
 
@@ -1593,7 +1388,6 @@ Lui, tristement :
 
 — Oui, vous dites cela, pour m'adoucir la pilule. Je
 vous déplais. Il y a des choses, en moi, qui vous sont
-odieuses. ,
 
 — Mais non, je vous assure. N'ayez pas l'air si
 penaud. Vous êtes un bon et cher homme.
@@ -1609,10 +1403,6 @@ caractère trop accusé, tous deux, trop personnel.
 nous trouverions en conflit.
 
 — Mais non,
-
-5o
-
-LA NOUVELLE JOURNÉE
 
 — Mais si. Ou bien, comme je sais que vous valez
 plus que moi, je me reprocherais de vous gêner, avec
@@ -1639,7 +1429,6 @@ chose de meilleur que notre amitié?
 I1 hoche la tête, en souriant avec un peu d'amertume. Û
 
 — Oui, tout cela, c'est qu'au fond vous n'aimez pas
-assez.
 
 Elle sourit aussi, gentiment, un peu mélancolique.
 Elle dit, avec un soupir : k
@@ -1651,12 +1440,9 @@ moments, quand je vous regarde, vous avez l'air d'un
 gamin de dix-huit ans.
 
 — Hélas! avec cette vieille tête, ces rides, ce teint
-flétri!
 
 — Je sais bien que vous avez souffert, autant que
 moi, peut-être plus, Je le vois. Mais vous me regardez
-
-5x
 
 la fin du voyage
 quelquefois, avec des yeux d'adolescent; et je sens
@@ -1689,8 +1475,6 @@ lui fasse du mal. Je ne dirai donc plus rien.
 
 — Mais si! Dites-moi... Dites quelque chose.
 
-— Quoi?
-
 — Quelque chose de bon.
 Elle rit.
 ; — Ne riez pas.
@@ -1700,8 +1484,6 @@ Elle rit.
 
 — Vous n'en avez pas de raison, je vous assure.
 
-— Pourquoi?
-
 — Parce que vous avez une amie qui vous aime bien.
 
 — C'est vrai?
@@ -1710,27 +1492,18 @@ Elle rit.
 — Dites-le encore!
 — Vous ne serez plus triste, alors? Vous ne serez
 
-LA NOUVELLE JOURNÉE
 plus insatiable? Vous saurez vous contenter de notre
-chère amitié?
 — Il faut bien!
 — Ingrat, ingrat! Et vous dites que vous aimez? Au
 fond, je crois que je vous aime plus que vous ne
-m'aimez. }
-— Ah! si cela se pouvait! <
 Il dit cela, d'un tel élan d'égoïsme amoureux qu'elle
 rit. Lui aussi. Il insistait : s
-— Dites!
 Un instant, elle se tut, le regarda, puis soudain
 approcha la tête de celle de Christophe, et l'embrassa. |
 Cela fut si inattendu! Il en eut un coup au cœur. Il
 voulut la serrer dans ses bras. Déjà, elle s'était
 dégagée. A la porte du petit salon, elle le regarda, un
 doigt sur ses lèvres, faisant : « Chut! » — et disparut.
-$
-k
-
-?
 
 A partir de ce moment, il ne lui reparla plus de son
 amour, et il fut moins gêné dans ses relations avec elle.
@@ -1799,9 +1572,6 @@ ruinés, fleurissaient des amandiers blancs. Dans la
 Campagne réveillée ondulaient les flots d'herbe et les
 flammes des pavots triomphants. Sur les pelouses des ;
 
-: 55
-
-LA PET) UM pc): ‘ IR
 la fin du voyage s à |
 villas coulaient des ruisseaux d'anémones mauves et |
 des nappes de violettes. Les glycines grimpaient autour $
@@ -1835,7 +1605,6 @@ simple, tout était comme cela devait être. A son tour,
 elle racontait. Il entendait à peine ce qu'elle disait;
 mais nulle de ses pensées n'était perdue pour lui. Il
 
-; | LA NOUVELLE JOURNÉE
 épousait son âme. Il voyait avec ses yeux. Il voyait
 partout ses yeux, ses yeux tranquilles où brûlait un
 feu profond ; il les voyait dans les beaux visages mutilés
@@ -1903,7 +1672,6 @@ Et Christophe se demandait :
 — « Est-il donc impossible d'unir, comme ils ont fait,
 la force et la paix romaines? Aujourd'hui, les meilleurs
 
-LA NOUVELLE JOURNÉE
 n'aspirent à l'une des deux qu'au détriment de l'autre.
 De tous, les Italiens semblent avoir le plus perdu le
 sens de cette harmonie, que Poussin, que Lorrain, que
@@ -1935,7 +1703,6 @@ enlacés, comme des amants qui, dans le sommeil,
 s'étreignent. L'énigme fiévreuse de la Campagne ne
 lui était plus hostile et inquiétante; il s'était rendu
 maître de sa beauté tragique; ïil tenait dans ses
-bras Déméter endormie.
 
 Au cours du mois d'avril, il reçut de Paris la proposition de venir diriger une série de concerts. Sans
 l''examiner davantage, il allait refuser; mais il crut
@@ -1961,10 +1728,6 @@ italienne, et qui, tel l'insidieux poison de son tiède scirocco, se glisse dans
 de fois elle en avait senti le charme maléfique, sans
 avoir l'énergie de résister ! Toute sa société était plus ou
 
-6o
-
-. rex
-LA NOUVELLE JOURNÉE
 moins atteinte de cette malaria de l'âme. De plus forts
 qu'eux, jadis, en avaient été victimes : elle avait rongé
 l''airain de la louve romaine. Rome respire la mort :
@@ -1995,8 +1758,6 @@ ou ne voulait entrer dans la fabrique, était condamné à
 l'exil ou à vivre étouffé. Le génie n'était nullement tari.
 Mais on le laissait stagner sans profit et se perdre. Christophe avait rencontré plus d'un jeune musicien, chez qui
 
-6x journée, — 4
-
 la fin du voyage
 revivait l'âme des maîtres mélodieux de leur race et cet
 instinct de beauté, qui pénétrait l'art savant et simple
@@ -2016,7 +1777,6 @@ prodiguant à Christophe les marques d'amitié, ils ne
 ladmettaient pas dans leur famille. — Que lui restait-il?
 Il ne pouvait pourtant pas rivaliser avec eux et leur
 disputer la maigre place au soleil, dont ils n'étaient pas
-sûrs!
 
 Et puis, le génie ne peut se passer d'aliment. Le musicien a besoin de musique, — de musique à entendre, de
 musique à faire entendre. Une retraite temporaire a
@@ -2030,7 +1790,6 @@ et recevoir, et donner, et donner, et recevoir encore.
 
 É grand marché de l'art qu'elle fut autrefois, qu'elle redeviendra peut-être. Les foires de la pensée, où s'échan62 |
 
-LA NOUVELLE JOURNÉE
 gent les âmes de toutes les nations, sont au Nord,
 aujourd'hui. Qui veut vivre doit y vivre.
 Christophe, livré à lui-même, eût répugné à rentrer
@@ -2053,77 +1812,25 @@ Il partit. IL s'éloigna d'elle. IL ne la quitta point. ï
 Comme dit un vieux trouvère, « l'ami ne quitte son
 amie que quand son âme y consent ».
 
-È Do Se DORE AC UD ic SENS
-PR MM 27 à SANS a. USB APR TT AS FOTO SE VIRE
-20e ANG ONERRERRS i RO MO MENT Fe A RU ile con.
-DE ENS
-2e TAN RE Tee HU 14 RER : Ÿ. AE ‘à 12 "CITES
-0 F6 AIR ANDRE : TASER
-AR D DE AT CNE AREA A1 à
-rA 708 HN MURS ALU) LENS Es FER ENT ASE MNTT ANSE it Là DA TLC
-£ à pre DA LAON A UT EN dc PSE Da y à: 2" YARUS, SINESS D
-
 DRE TRE PAR a P'aR M AU CA DRE qe &
-ENS ADS TE Li FACE ‘ COTE Te qi) AA CHRAEA 7. f FA \ Ne KA
 HUE NT es ML Het Late Ne k LS ANT ail Ê + NT He OPA 4
-LENS AIDANT RAA SN ARS ER ARE AUTRE CHEN dd OR mel
-es ! , FAR NCAA RE RT TS SAS LR TOME
-i j 6 } À res Te USN AUS ch WAR A \
-EX à 4 11.) f ; : : ITA 4 TUE NC 28
-! | ; BRUNE È PGA FAR To A (res MAUR AA
 | : ue * NAME AE] eV Er e (
 ; x À 4 D LATTES Merad WTA MON N
 j . ne NY L# LR x + è DE AS le nr CA AD LAEUUE KE
 an ë ' Lire L RUN RTtE OI ATEN S
-4 < + } Rat "w a 1 AP HS TR Ad" 2
-1] Ù ; 4 , A “ pire te MAS UFR Nano PE ;
-£ der % k 21 Ke EN SANS 1e
-L. + PET CIRAATS Ag mu Ps 27: CPe a = EreS Y \
-TS PAR 2 à PS en QUES 1 JR PR 1, RATES
 | f POS RAC : Cut à PET We eue 4 AS Ft: AURA ke Al
-FAN PUPRQTES LÉ EREC Note FF EE ER DEA +: He LA SUIS
 Ex PORTE SE 1 RAC HE à HAS RU ta EU SU rs + RE) À » LR MA
 LA 6 DT DA tr LT" HO AE ir 15, 0 SON LE À
 MEN AW \ÿe Et Fu " RO | À CAVE pue /
 AL une) PACS "êc 140
-Ÿ
 
-Red Ô
-RAR PRET ITS CARRE PO {
-! FERA 1 “a ns PRRVENU
-(ER AS A 2 MAO dE MAR DL à
-US TR 424 DEP ro > Fi “5 RAR ê | <
 k SUN SR AT Der > Ù AA ROOR OU PT GA LI LORS "T3 F Les PS
 NAT AE à Re TU Tan. ae à: MERDE lg
-*'1R ER PUS LE ANA SENS)
-PRET : o 4 + Er ren
-F Fes Ÿ , F 4 L'IU 1 0 d
-di JON
 Lee Ne 4 N * LA né
-d AS : k k 4 à DS
-REP TT. 1378
 #1 % d: 4 bi ; ‘ £ 16
-‘ 4 Ter y 4 ÿ À tà 4e
-AOL A "10 t ù Al, F
-: n ‘à y ve 1
-‘ (LH PER \ 1 BAR
-F) x ee } û } À 4 É LA 2 x
 Re: ; ne je
-2e St UNS - 0
-TER . \r TR ns
 et Fe F \ à MA ue
-NY ; AU
-FH | 1 SNS
-‘à HA : th À vus A Se:
-Ad hfit0R À À 4 (UNE SE 4400 x
-Éd 1 ; PAIE. RP OTES
 
-LE “ N , + Le
-= $
-J
-L
-
-D:
 Le cœur lui faisait mal, quand il arriva à Paris. 4
 C'était la première fois qu'il y rentrait, depuis la mort 3
 d'Olivier. Jamais il n'avait voulu revoir cette ville. Dans à
@@ -2147,7 +1854,6 @@ quelque temps à se fermer les yeux, à ne pas vouloir *
 voir ce qu'il voyait, à ne voir obstinément que ce qu'il P
 avait vu jadis, Il se répétait d'avance : |
 « Je connais cela, je connais cela... » 4
-67 ÿ,
 
 la fin du voyage
 
@@ -2161,9 +1867,6 @@ présent plus conservateurs que les vieux qu'ils combattaient naguère ; et leur
 n'était différent.
 
 Et tout avait changé...
-
-%
-+ *
 
 « Mon amie, pardonnez-moi. Vous êtes bonne de ne
 pas m'en avoir voulu de mon silence. Votre lettre m'a
@@ -2180,8 +1883,6 @@ a pris sa retraite ; il est retourné avec sa femme dans
 leur province, une petite ville du côté d'Angers. Des
 illustres de mon temps beaucoup sont morts ou se sont
 effondrés ; seuls sont restés les mêmes vieux mannequins,
-
-LA NOUVELLE JOURNÉE
 
 qui jouaient il y a vingt ans les jeunes premiers de
 l'art et de la politique, et qui les jouent encore, avec
@@ -2221,7 +1922,6 @@ fatigues, au soleil brûlant. — C'est fait. Je n'ai plus
 
 la fin du voyage
 le vertige. J'ai rejoint le courant. Je regarde et je
-vois.
 « Mon amie, quel peuple étrange que ces Français! IL
 y a vingt ans, je les croyais finis. Ils recommencent.
 Mon cher compagnon Jeannin me l'avait bien prédit.
@@ -2232,8 +1932,6 @@ ont tout détruit. Quelle race de rongeurs! » — Une race
 de castors. Dans l'instant qu'on les croit acharnés sur
 des ruines, avec ces ruines mêmes ils posent les fondations d'une ville nouvelle. Je le vois à présent que les
 échafaudages s'élèvent de tous côtés.
-« Wenn ein Ding geschehen,
-Selbst die Narren es verstehen.…. (1) :
 « A la vérité, c'est toujours le même désordre fran-
 çais. IL faut y être habitué pour reconnaître, dans la
 cohue qui se heurte en tous sens, les équipes d'ouvriers
@@ -2249,9 +1947,6 @@ parlant, ils agissent; et chacun des chantiers bâtissant
 sa maison, il se trouve qu'à la fin la ville est rebâtie.
 (1) Quand une chose est arrivée, même les sots la comprennent.
 
-a AL EE AUS ORNE 0 EE
-LA NOUVELLE JOURNÉE
-
 | Le plus fort, c'est que l'ensemble des constructions
 n'est pas trop discordant. Ils ont beau soutenir des
 thèses opposées, ils ont tous la tête faite de même. De
@@ -2259,7 +1954,6 @@ sorte que sous leur anarchie, il y a des instincts
 communs, il y à une logique de race qui leur tient lieu
 de discipline, et que cette discipline est peut-être, au
 bout du compte, plus solide que celle d'un régiment
-prussien.
 
 « C'est partout le même élan, la même fièvre de
 bâtisse : en politique, où socialistes et nationalistes
@@ -2287,7 +1981,6 @@ plus corrompus. Et puis, chez leurs artistes, quel sens
 de la beauté! Je le remarquais moins autrefois. Vous
 
 | 7
-;
 
 la fin du voyage
 m'avez appris à voir. Mes yeux se sont ouverts, à la
@@ -2318,9 +2011,7 @@ au prix de combien de désastres ! édifie, qu'ils le veuillent ou non, la paix 
 les révolutionnaires qui les combattent, et bien plus
 sûrement que les niais pacifistes.
 « Vous le voyez. Je vieillis. Je ne mords plus. Mes
-72 |
 
-LA NOUVELLE JOURNÉE
 dents sont usées. Quand je vais au théâtre, je ne suis
 plus de ces spectateurs naïfs qui apostrophent les
 acteurs et invectivent le traître.
@@ -2349,21 +2040,14 @@ reflet sur votre beau visage, j'écoute au fond de moi de
 tout autres paroles, que je ne vous dis pas. Celles-là,
 Grâce tranquille, tout au rebours des autres, vous les
 entendez bien ; mais vous faites semblant de ne pas les
-entendre.
 
 « Adieu. Je crois que vous me reverrez, sous peu. Je
 ne languirai pas ici. Qu'y ferais-je, à présent que mes
-
-73 journée. — 5
 
 la fin du voyage
 concerts sont donnés ? — J'embrasse vos enfants, sur
 leurs bonnes petites joues. L'étoffe en est la vôtre. IL
 faut bien se contenter !.…
-€ CHRISTOPHE »
-%
-À #°%
-« Grâce tranquille » répondit :
 « Mon ami, j'ai reçu votre lettre dans le petit coin du
 salon, que vous vous rappelez si bien; et je vous ai lu,
 _ comme je sais lire, en laissant de temps en temps votre
@@ -2386,8 +2070,6 @@ Christophe. »
 ne me surprend pas. Vous vous souvenez que je vous
 ai souvent reproché d'être injuste envers eux. On peut
 ne pas les aimer. Mais quel peuple intelligent! Il y a
-
-LA NOUVELLE JOURNÉE
 
 des peuples médiocres, que sauve leur bon cœur ou leur
 vigueur physique. Les Français sont sauvés par leur
@@ -2422,9 +2104,6 @@ cher. Pauvre Christophe, une femme n'arrive pas à mon
 âge, sans savoir qu'un brave homme est bien faible
 souvent. Si on ne savait sa faiblesse, on ne l'aimerait pas
 
-; 75
-
-; : ‘ x, " ‘ Lyn ke A Fe. k Pa
 la fin du voyage
 
 autant. Ne pensez plus à ce que vous avez fait. Pensez
@@ -2462,21 +2141,13 @@ jure plus que par vous. Il paraît que les Parisiennes
 sont folles de votre musique. (Elles l'étaient peut-être,
 avant.) Il ne tient qu'à mon ours de Berne d'être un lion
 
-AL PA se EF D ITSS “ te ' ï 3
-7e
-LA NOUVELLE JOURNÉE -
-
 de Paris. Avez-vous reçu des lettres? Vous a-t-on fait
 
 des déclarations? Vous ne me parlez d'aucune femme.
 
 Seriez-vous amoureux ? Racontez-moi. Je ne suis pas
 
-jalouse.
-
 « Votre amie G. » ;
-ES
-* *
 — © Si vous croyez que je vous sais gré de votre ;
 
 dernière phrase! Plût à Dieu, Grâce moqueuse, que
@@ -2506,8 +2177,6 @@ font, depuis trente ans, pour s'évader de la demi- Fe
 domesticité dégradante et malsaine, où notre stupide 4
 égoïsme d'hommes les Parquait, pour leur malheur et (A
 pour le nôtre, me semble un des beaux faits de notre s
-
-L 27 e
 
 la fin du voyage
 époque. Dans une ville comme celle-ci, on apprend à
@@ -2542,9 +2211,7 @@ présent, dont beaucoup ne se marieront jamais, seront
 plus fécondes pour l'avenir que les générations de
 matrones qui enfantèrent avant elles : car d'elles sor78
 
-LA NOUVELLE JOURNÉE
 tira, au prix de leurs sacrifices, la race féminine d'un
-nouvel âge classique.
 
 « Ce n'est pas' dans le salon de votre cousine Colette
 qu'on a chance de trouver ces laborieuses abeilles. :
@@ -2578,10 +2245,6 @@ yeux d'homme; elles rient, d'un rire un peu gros. Le
 | ton est devenu plus brutal et plus cru. Votre cousine
 | 79
 
-L
-
-é
-
 la fin du voyage
 
 dit parfois, tranquillement, des choses énormes. Elle
@@ -2599,7 +2262,6 @@ suisses, danses américaines, on danse tout à Paris : les
 symphonies de Beethoven, les tragédies d'Eschyle, le
 Clavecin bien tempéré, les antiques du Vatican, Orphée,
 Tristan, la Passion, et la gymnastique. Ces gens ont le
-vertigo.
 
 « Le curieux est de voir comment votre cousine concilie tout ensemble : son esthétisme, ses sports et son
 esprit pratique (car elle a hérité de sa mère son sens des
@@ -2614,8 +2276,6 @@ invités, ses gens, elle mène tout, tambour battant.
 Elle s'occupe aussi de politique; elle est pour « Monseigneur » : non que je la croie royaliste; mais ce lui
 est un prétexte de plus à se remuer. Et quoiqu'elle
 soit incapable de lire plus de dix pages d'un livre, elle
-
-LA NOUVELLE JOURNÉE
 
 fait des élections Académiques. — Elle a prétendu me |
 prendre sous sa protection. Vous pensez que cela n'a
@@ -2649,7 +2309,6 @@ l'indifférence de demain au dénigrement d'après-demain, .
 
 Sans l'avoir jamais connue. C'est l'histoire de tous les }
 artistes. Je ne me fais pas d'illusion sur mon succès, je
-81 journée, — 5,
 
 la fin du voyage :
 
@@ -2689,7 +2348,6 @@ avec cinq ou six instruments, complétés d'un piano, on
 
 joue toutes les symphonies, les messes, les oratorios,
 
-; LA NOUVELLE JOURNÉE
 De même, on vend à Rome, chez certains marbriers,
 la chapelle Médicis, comme garniture de cheminée. Il
 paraît que cela est utile à l'art. Pour qu'il puisse
@@ -2726,7 +2384,6 @@ On pensait ; « C'est un vieux fou, Qui sait? Il a peuts
 
 la fin du voyage
 être du génie. » — Ce fut de lui sans doute que la
-manie musicale se transmit au petit-neveu. Quelle
 musique pouvait-il bien entendre, dans sa ville! Mais
 une mauvaise musique peut inspirer un amour aussi
 pur qu'une bonne.
@@ -2756,7 +2413,6 @@ leurrent de ce qu'ils feront plus tard, de ce qu'ils pourraient faire. Pour le m
 avec sa brutalité de jeune paysan, à ses deux passions :
 les femmes et la musique; affolé par les concerts, non
 
-LA NOUVELLE JOURNÉE
 moins que par le plaisir. Il y perdit des années, sans
 même profiter des moyens qu'il aurait eus, pour compléter son instruction musicale. Son orgueil ombrageux,
 un mauvais caractère indépendant et susceptible, l'empêchèrent de suivre aucune leçon, de demander conseil
@@ -2822,8 +2478,6 @@ fut la misère sans fond, sans espoir d'en sortir, avivée
 
 par le sentiment d'un idéal que l'on se sait incapable
 
-d'attendre.
-
 « Et je pensais, mon amie, en voyant ce pauvre diable
 
 de raté, dont la vie n'a été qu'une suite de déboires :
@@ -2852,9 +2506,7 @@ Ces pensées rendent humble. On se sent fraternel à
 
 tous ceux qui aiment l'art et qui souffrent pour lui,
 
-LA NOUVELLE JOURNÉE
 Du plus bas au plus haut, la distance n'est pas
-grande...
 _ « Là-dessus, j'ai songé à ce que vous m'écriviez. Vous
 avez raison : un artiste n'a pas le droit de se tenir à
 l'écart, tant qu'il peut venir en aide à d'autres. Je resterai donc, je m'obligerai à passer quelques mois par
@@ -2867,10 +2519,6 @@ me sera peut-être utile à moi-même. Et je me consolerai en pensant que vous l
 plaisir. Adieu, tyran. Vous triomphez. J'en arrive, non \
 seulement à faire ce que vous voulez que je fasse, mais
 à l'aimer.
-« CHRISTOPHE »
-%
-
-He À
 
 Ainsi, il resta, en partie pour lui plaire, mais aussi
 parce que sa curiosité d'artiste, réveillée, se laissait
@@ -2899,7 +2547,6 @@ intime que des paroles indifférentes avaient causée.
 par une ruse d'amour, il s'efforçait à son tour de
 contenir ses élans, d'écrire des lettres plus mesurées,
 afin que les réponses de Grazia s'appliquassent moins
-à l'être. L
 
 A mesure qu'il prolongeait son séjour à Paris, il s'intéressait davantage à l'activité nouvelle qui remuait la'
 gigantesque fourmilière. Il s'y intéressait d'autant plus
@@ -2918,9 +2565,6 @@ monstre, un anachronisme vivant. Il l'avait toujours été. 1
 Ses dix ans de solitude avaient accentué le contraste.
 
 .
-
-Fr à L #
-LA NOUVELLE JOURNÉE :
 
 Durant son absence, s'était accompli en Europe, et
 surtout à Paris, comme il l'avait bien vu, un travail
@@ -3002,8 +2646,6 @@ __ la raison souveraine, dont la lance étincelante ter-
 
 _  rasse les barbares aux cris tumultueux, — Christophe
 
-l 91
-
 la fin du voyage |
 apercevait un regard, un sourire qu'il connaissait, et
 qu'il avait aimés. Mais au moment de la saisir, la
@@ -3039,7 +2681,6 @@ rideaux, une douzaine d'oiseaux piaillaient dans une
 volière. Dans la pièce voisine, sur un divan râpé, un
 homme était étendu. Il se souleva pour recevoir Christophe. Ce visage émacié, illuminé par l'âme, ces beaux
 
-e LA NOUVELLE JOURNÉE
 yeux de velours où brülait une flamme de fièvre, ces
 longues mains intelligentes, ce corps mal fait, cette
 voix aiguë qui s'enrouait.. Christophe reconnut sur-le-
@@ -3056,8 +2697,6 @@ hostile. — Mais lorsqu'il vit l'émotion de Christophe,
 lorsqu'il lut sur ses lèvres le nom qu'ils pensaient tous
 deux : « Olivier! » ce fut plus fort que lui : il se jeta
 dans les bras qui lui étaient tendus.
-
-Emmanuel demanda :
 
 — Je savais que vous étiez à Paris. Mais vous, comment m'avez-vous pu trouver ?
 
@@ -3112,14 +2751,9 @@ dix ans d'éducation universitaire sont impuissants à
 donner à la jeune bourgeoisie. Il en attribuait le bienfait à Olivier. D'autres l'avaient pourtant plus efficacement aidé. Mais d'Olivier venait l'étincelle qui avait |
 allumé, dans la nuit de cette âme, la veilleuse éternelle.
 Les autres n'avaient fait que verser de l'huile dans la
-ampe.
-
-Il dit :
 
 — Je n'ai commencé de le comprendre qu'à partir du
 
-: NA! Le L { À
-LA NOUVELLE JOURNÉE
 moment où il s'en est allé. Mais tout ce qu'il m'avait )
 dit était entré en moi. Sa lumière ne m'a jamais quitté. \
 Il parlait de son œuvre, de la tâche qui lui avait été,
@@ -3128,7 +2762,6 @@ françaises, de cette flambée d'idéalisme héroïque, dont
 Olivier était l'annonciateur ; il voulait s'en faire la voix
 retentissante qui plane au-dessus de la mélée et qui
 sonne la victoire prochaine ; il chantait l'épopée de sa
-race ressuscitée.
 Ses poèmes étaient bien le produit de cette étrange
 race qui, à travers les siècles, a conservé si fort son
 vieil arome celtique, tout en mettant un orgueil bizarre
@@ -3184,7 +2817,6 @@ démarche accusait son infirmité ; il le savait ; il mettait
 son orgueil à y sembler indifférent; mais il pensait que
 Christophe l'observait, et sa rancune s'en aggravait.
 
-LA NOUVELLE JOURNÉE
 Au moment où il serrait froidement la main à son é
 hôte, pour le congédier, une jeune dame élégante sonnait à la porte. Elle était escortée d'un gandin prétentieux, que Christophe reconnut pour l'avoir remarqué
 à des premières théâtrales, souriant, caquetant, saluant
@@ -3210,9 +2842,7 @@ jusqu'aux racines ; alors, il s''abandonnaït à un accès de
 confiance enthousiaste ; et son idéalisme jetait sur son
 âme cachée de splendides lueurs d'une poésie fulgurante. Puis, brusquement, ilretombait ; il se crispait dans
 un silence hargneux ; et Christophe retrouvait l'ennemi.
-97 journée. — 6
 
-ARR AS AT RER TON SET D NAN"
 la fin du voyagé , W
 
 Trop de choses les séparaient. La moindre n'était pas -
@@ -3234,7 +2864,6 @@ génie poétique et par la rude écorce, qui le défendait
 contre tous les dégoûts, il était loin d'atteindre à la
 sérénité du frère d'Antoinette; son caractère était
 vaniteux, inquiet; et le trouble d'autres êtres venait
-s'ajouter au sien.
 
 11 vivait dans une union orageuse avec une jeune
 femme qu'il avait pour voisine : celle qui avait reçu ?
@@ -3246,10 +2875,7 @@ dictée. Elle n'était pas belle et portait le fardeau d'une
 dans un atelier de cartonnage, puis employée des
 postes, elle avait passé une enfance étouffée dans le ;
 
-D EU RATER HR EE |
-LA NOUVELLE JOURNÉE
 cadre ordinaire des ouvriers pauvres de Paris : âmes et
-corps entassés, travail harassant, promiscuité perpé-
 tuelle, pas d'air, pas de silence, jamais de solitude,
 impossibilité de se recueillir, de défendrelaretraite sacrée
 de son cœur. Esprit fier, qui couvait une ferveur religieuse pour un idéal confus de vérité, elle s'était usé les
@@ -3311,7 +2937,6 @@ rations d'un sentiment sacré. Au reste, l'humañité même
 trouve son profit à la croyance vaniteuse des peuples
 dans leur mission. De toutes les raisons qu'il avait de
 
-LA NOUVELLE JOURNÉE
 se sentir éloigné d'Emmanuel, une seule lui était
 pénible : la voix d''Emmanuel, qui s'élevait parfois à des
 intonations suraiguës. L'oreille de Christophe en souffrait cruellement. Il ne pouvait s'empêcher de faire des
@@ -3339,9 +2964,6 @@ l'humanité, Et peut-être la nation y réalise-t-elle le plus
 demander aux héros de ces temps ce qu'ils en ont
 pensé! Votre Nicolas Poussin s'en est allé vivre et
 mourir à Rome; il étouffait chez vous. Votre Pascal,
-101 journée, — 6,
-
-FRE # DEN Lee En DL RE Qt EEE PAR PR PR ENTER TA
 
 : la fin du voyage |
 votre Raciné ont dit adieu au monde. Et parmi les plus |
@@ -3362,7 +2984,6 @@ pensait. Bien plus, il avait obscurément conscience que
 Christophe voyait plus loin que lui. Et il n'en était que |
 plus irrité. Les jeunes gens ne pardonnent pas à leurs
 aînés, qui les contraignent à voir ce qu'ils seront dans :
-vingt ans.
 
 Christophe lisait dans son cœur et se disait :
 
@@ -3383,8 +3004,6 @@ Il devint de plus en plus farouche. Il ferma sa porte. IL
 ne répondit pas aux lettres. — Christophe dut renoncer
 
 à le voir,
-
-ie ROLE NS HEAR À
 
 On était arrivé aux premiers jours de juillet. Christophe faisait le compte de ce que ces quelques mois à
 Paris lui avaient apporté : beaucoup d'idées nouvelles,
@@ -3409,7 +3028,6 @@ revenir s'installer au pays. Il n'y connaissait plus personne, il y trouverait s
 parenté d'esprit que dans cette ville étrangère ; maïs ce
 n'en est pas moins le pays : vous ne demandez pas à
 
-L ' - : <
 | la fin du voyage de EE
 ceux de votre sang de penser comme vous; il y a entre
 | eux et vous mille secrets liens ; les sens ont appris à
@@ -3440,10 +3058,6 @@ considéraient avec curiosité. Christophe sourit, en
 regardant le charmant visage; et le jeune garçon
 sourit aussi.
 — Eh bien, lui dit Christophe, qu'est-ce que vous
-voulez ?
-
-F
-LA NOUVELLE JOURNÉE ÿ
 
 — Je suis venu, dit l'enfant.…
 
@@ -3456,8 +3070,6 @@ est-ce que vous avez peur de moi ?
 Le jeune garçon retrouva son sourire, secoua la tête
 et dit :
 
-— Non.
-
 — Bravo! Alors, dites-moi d'abord qui vous êtes.
 
 — Je suis, dit l'enfant…
@@ -3466,8 +3078,6 @@ Il s'arrêta encore. Ses yeux, qui faisaient curieusement tout le tour de la cha
 sur la cheminée de Christophe, une photographie
 d'Olivier. Christophe suivit machinalement la direction
 de son regard.
-
-— Allons! fitil. Courage !
 
 L'enfant dit :
 
@@ -3490,7 +3100,6 @@ se dégagea de ses bras. Christophe le laissa aller.
 Il se cacha le visage dans ses mains, il appuya son
 front contre le mur, et il resta ainsi pendant quelques instants. Le petit avait reculé au fond de la
 
-/ \ LC LOT A FAT
 la fin du voyage EA
 chambre. Christophe releva la tête. Sa figure était
 apaisée; il regarda l'enfant, avec un sourire affectueux :
@@ -3499,12 +3108,8 @@ je l'aimais bien.
 Le petit se taisait, encore effarouché. 4
 — Comme tu lui ressembles! dit Christophe... Et
 pourtant, je ne t'aurais pas reconnu. Qu'y at-il de
-: changé ?.…
-Il demanda : “
 — Comment t'appelles-tu ?
-— Georges.
 — C'est vrai. Je me souviens. Christophe-OlivierGeorges. Tu as quel âge? Vie
-— Quatorze ans.
 — Quatorze ans! Il y a si longtemps déjà ?... Cela
 me paraît hier, — ou dans la nuit des temps... Comme
 tu lui ressembles ! Ce sont les mêmes traits. Le même,
@@ -3514,15 +3119,11 @@ et pas le même son de voix. Tu es plus fort, tu te tiens
 plus droit. Tu as la figure plus pleine, mais tu rougis
 comme lui. Viens, assieds-toi, causons. Qui t'a envoyé
 chez moi ? j
-— Personne.
 — C'est de toi-même que tu es venu ? Comment me
 connais-tu ?
 — On m'a parlé de vous.
-— Qui?
-— Ma mère.
 — Ab! dit Christophe. Est-ce qu'elle sait que tu es
 venu chez moi ?
-— Non.
 
 sil LA NOUVELLE JOURNÉE
 
@@ -3548,11 +3149,7 @@ donné l'idée de venir me voir?
 
 — C'est elle qui te l'a dit?
 
-(I se reprit).
-
 — C'est ta mère qui te l'a dit?
-
-— Oui.
 
 Christophe sourit, pensif. Il songeait : « Elle aussi!
 Comme ils l'aimaient, tous! Pourquoi donc ne le lui ontils pas montré? »
@@ -3564,8 +3161,6 @@ IL continua :
 — Je voulais venir plus tôt. Mais je croyais que vous
 ne vouliez pas me voir.
 
-— Moi!
-
 — Il y a plusieurs semaines, aux concerts Chevillard,
 je vous ai aperçu; j'étais avec ma mère, à quelques
 fauteuils de vous; je vous ai salué; vous m'avez
@@ -3576,14 +3171,9 @@ m'avez pas répondu.
 penser ?.. Je ne l'ai pas vu. J'ai les yeux fatigués. Voilà
 pourquoi je fronce le sourcil.. Tu me crois donc bien
 
-méchant?
-
-es M
-
 la fin du voyage ;
 
 — Je crois que vous pouvez l'être aussi, quand vous
-voulez.
 
 — Vraiment? dit Christophe. En ce cas, si tu pensais y
 que je ne voulais pas te voir, comment as-tu osé venir?
@@ -3628,7 +3218,6 @@ ce jeune surgeon de la vie d'Olivier.
 Ils causèrent. Georges ne connaissait rien de la
 musique de Christophe, avant ces derniers mois; mais,
 
-LA NOUVELLE JOURNÉE s
 depuis que Christophe était à Paris, il ne manquait pas
 un concert où l'on jouait de ses œuvres. Il en parlait, le
 visage animé, les yeux brillants, riants, et les larmes
@@ -3678,8 +3267,6 @@ intéressant... Et puis, nous voyageons. Le mois dernier,
 j'ai été en Angleterre, pour voir le match entre Oxford
 et Cambridge.
 
-109 journée. — 7
-
 42 ee AM 28" MANETTES D TRE Le ONE REA EI Tu Tnt
 | Han ae à
 la fin du voyage ÿ
@@ -3687,7 +3274,6 @@ la fin du voyage ÿ
 — Cela doit bien avancer tes études!
 
 — Bah! on apprend plus, ainsi, qu'en restant au
-lycée.
 
 — Et ta mère, que dit-elle de cela?
 
@@ -3702,8 +3288,6 @@ m'avoir pour père.
 Impossible de résister à son air enjôleur.
 
 — Et dis-moi, grand voyageur, fit Christophe, connaistu mon pays?
-
-— Oui.
 
 — Je suis sûr que tu ne sais pas un mot d'allemand.
 
@@ -3724,9 +3308,6 @@ figure s'animait, en parlant de spectacles ou d'œuvres
 qui l'avaient ému. Ses connaissances étaient sans aucun
 ordre. On ne savait pas comment il avait lu un livre de
 dixième rang, et ignorait tout des œuvres les plus
-célèbres.
-
-LA NOUVELLE JOURNÉE
 
 — Tout cela est très gentil, dit Christophe. Mais tu
 n'arriveras à rien, si tu ne travailles pas.
@@ -3754,8 +3335,6 @@ _ quand peut-on le faire, alors ?
 
 Christophe se mit à rire.
 
-— Petit Français raisonneur !
-
 — Je voudrais être musicien, dit Georges.
 
 — Eh bien, il n'est pas trop tôt pour t'y mettre, Veuxtu que je t'apprenne ?
@@ -3766,7 +3345,6 @@ Christophe se mit à rire.
 vaux rien, je te défends de mettre jamais les mains sur
 un piano. Si tu as des dispositions, nous essaierons de
 faire de toi quelque chose... Mais je t'avertis : je te ferai
-travailler.
 
 — Je travaillerai, dit Georges, ravi.
 
@@ -3775,8 +3353,6 @@ de sortir, Georges se rappela que, le lendemain, il avait
 d'autres rendez-vous, et aussi le surlendemain. Oui, il
 n'était pas libre avant la fin de la semaine. On convint
 du jour et de l'heure. *
-
-III
 
 la fin du voyage
 
@@ -3807,9 +3383,7 @@ pour retrouver les Jeannin. Mais, chaque jour, il attendait celui qui ne venait 
 Suisse. Il resta, tout l'été, à Paris. Il se jugeait absurde;
 mais il n'avait plus de goût à voyager. En septembre
 seulement, il se décida à passer quelques jours à
-Fontainebleau.
 
-LA NOUVELLE JOURNÉE
 Vers la fin d'octobre, Georges Jeannin revint frapper
 à la porte. Il s'excusa tranquillement, sans la moindre
 confusion de son manque de parole.
@@ -3833,8 +3407,6 @@ qui tempêche ?.. Elle n'aime pas que tu me voies?
 
 ; — Mais non! tout au contraire. C'est elle qui m'a dit
 aujourd'hui de venir. :
-
-— Comment cela?
 
 — La dernière fois que je vous ai vu, avant les
 vacances, je lui ai tout raconté, en rentrant. Elle m'a
@@ -3884,7 +3456,6 @@ si vous voulez encore de moi...
 Je suis découragé.
 
 — Je te prendrai au sérieux, quand je l'aurai vu au
-travail.
 
 — Tout de suite, alors!
 
@@ -3904,7 +3475,6 @@ Georges ne savait pas grand chose; maïs son instinct
 musical suppléait à beaucoup d'ignorance; sans connaître leurs noms, il trouvait les accords que Christophe
 attendait; et ses erreurs mêmes témoignaient, dans leur
 
-° À LA NOUVELLE JOURNÉE :
 gaucherie, d'une curiosité de goût et d'une sensibilité
 singulièrement aiguisée. Il n'acceptait pas sans discussion les remarques de Christophe; et les intelligentes
 questions qu'il posait, à son tour, montraient un esprit
@@ -3935,7 +3505,6 @@ Et puis, l'enthousiasme faiblit, les visites s'espacèrent.
 Il vint moins souvent. Et puis, il ne vint plus. Il disparut de nouveau, pour des semaines.
 IL était léger, oublieux, naïvement égoïste et sincère119 )
 
-à à f
 la fin du voyage
 ment affectueux; il avait un bon cœur et une vive +48
 intelligence, qu'il dépensait en menue monnaie, au j
@@ -3952,8 +3521,6 @@ Christophe ne se crut point permis de venir, sans
 qu'elle l'y invitât. — Ainsi, ils restèrent séparés, l'un de
 l'autre, s'apercevant de loin parfois à un concert, et
 reliés seulement par les rares visites du jeune garçon.
-
-PRE ET NT Er à
 
 L'hiver passa. Grazia n'écrivait plus que rarement.
 Elle gardait à Christophe sa fidèle amitié. Mais, en
@@ -3977,8 +3544,6 @@ fièvre. Christophe, reposé par des années de saine
 solitude, apportait une somme énorme de forces à
 dépenser. Enrichi des conquêtes nouvelles que ne cessait de faire, dans le champ de la technique musicale,
 l'intrépide curiosité de l'esprit français, il se lançait à
-
-117 journée. — 7.
 
 la fin du voyage
 
@@ -4012,7 +3577,6 @@ de claires symphonies, de vastes architectures ensoleillées, comme les basiliqu
 
 Ces jeux et ces combats de l'esprit l'occupèrent, tout
 
-LA NOUVELLE JOURNÉE
 l'hiver. Et l'hiver passa vite, bien que parfois, le soir, !
 Christophe, terminant sa journée et regardant derrière
 soi la somme de ses jours, n'aurait pas su se dire si
@@ -4036,7 +3600,6 @@ désir de s'éloigner de Rome. Les menaces d'une épidé-
 
 ‘mie lui furent un prétexte pour hâter le départ des
 enfants. Elle suivit de peu de jours sa lettre à Chris- |
-tophe. 1
 
 A peine la sut-il arrivée chez Colette, Christophe ©
 accourut la voir. Il la trouva encore absorbée et lointaine. Il en eut de la peine, mais il ne la lui montra
@@ -4046,7 +3609,6 @@ du cœur. Ï comprit qu'elle avait un chagrin qu'elle
 voulait cacher; et il s'interdit de chercher à le connaître. Il s'efforça seulement de la distraire, en lui
 contant gaiement ses mésaventures, en lui faisant part
 
-;
 la fin du voyage
 
 de ses travaux, de ses projets, en l'enveloppant discrè-
@@ -4066,8 +3628,6 @@ plus proche. Si bien qu'un jour, en lui parlant, il s'interrompit brusquement et
 
 Elle sourit, et tout bas elle répondit :
 
-— Oui.
-
 Il n'était pas très facile de causer tranquillement. Ils
 étaient rarement seuls. Colette les gratifiait de sa pré- 3
 sence, plus qu'ils n'auraient voulu. Elle était excellente,
@@ -4086,31 +3646,22 @@ glacé et parlassent d'autre chose. Colette cherchaït à
 leur réserve toutes les raisons possibles, hors une seule,
 la vraie. Heureusement pour les amis, elle ne pouvait
 
-4 6 ) l
-
-LA NOUVELLE JOURNÉE
-
 tenir en place. Elle allait et venait, entrait, sortait,
 surveillait tout dans la maison, menant dix affaires
 à la fois. Dans l'intervalle de ses apparitions, Christophe et Grazia, seuls avec les enfants, reprenaient le
 fil de leurs innocents entretiens. Ils ne parlaient jamais
 des sentiments qui les unissaient. Ils se confiaient sans
-contrainte leurs petites aventures journalières. Grazia
 s'informait, avec un intérêt féminin, des affaires domestiques de Christophe. Tout allait mal chez lui; il avait
 des démêlés sans fin avec ses femmes de ménage ; il
 était constamment dupé, volé par ceux qui le servaient.
 Elle en riait, de bon cœur, avec une compassion maternelle pour le peu de sens pratique de ce grand enfant.
 Un jour que Colette venait de les quitter, après les
 avoir persécutés plus longtemps qu'à l'ordinaire, Grazia
-soupira :
 
 — Pauvre Colette! Je l'aime bien. Comme elle
-m'ennuie !.…
 
 — Je l'aime aussi, dit Christophe, si vous entendez
 par là qu'elle nous ennuie.
-
-Grazia rit :
 
 — Écoutez : Me permettez-vous.. (il n'y a décidément
 pas moyen de causer en paix, ici). me permettez-vous
@@ -4127,7 +3678,6 @@ Il eut un saisissement.
 — Eh bien, voulez-vous mardi ?
 
 — Mardi, mercredi, jeudi, tous les jours que vous
-voudrez.
 
 — Mardi, quatre heures, alors. C'est convenu ?
 
@@ -4139,7 +3689,6 @@ la fin du voyage f.
 
 — Une condition? A quoi bon? Tout ce que vous
 voulez. Vous savez bien que je le ferai, avec ou sans
-conditions.
 
 — J'aime mieux une condition.
 
@@ -4148,7 +3697,6 @@ conditions.
 — Vous ne savez pas quoi.
 
 — Cela m'est égal, c'est promis. Tout ce que vous
-voudrez.
 
 — Mais écoutez d'abord, entêté !
 
@@ -4177,20 +3725,14 @@ pas.
 
 — Rien du tout. Je ne permettrai rien.
 
-— Au moins...
-
 — Non, non, non, non. Je ne veux rien entendre. Ou
 je ne viendrai pas, si vous le préférez...
 
 — Vous savez bien que je consentirais à tout, pourvu
 que vous veniez,
 
-LA NOUVELLE JOURNÉE
 — Alors, c'est promis ?
-— Oui.
 — J'ai votre parole? |
-— Oui, tyran.
-— Bon tyran?
 — Il n'y a pas de bon tyran; il y a des tyrans qu'on
 aime et des tyrans qu'on déteste. :
 — Et je suis des deux, n'est-ce pas ?
@@ -4256,7 +3798,6 @@ en sa poitrine, ce cœur aimant et souffrant.
 
 Quand les harmonies se furent tues, il resta, un
 
-LA NOUVELLE JOURNÉE u
 moment encore, immobile devant le piano; puis il se
 retourna, en entendant la respiration de son amie qui
 pleurait. Elle vint à lui :
@@ -4283,9 +3824,6 @@ jamais introduit de maîtresse dans sa maison, elle lui
 dit, moqueuse :
 
 — Je m'en doute bien; il eût fallu qu'elle eût un grand
-courage.
-
-— Pourquoi ?
 
 — Pour dormir dans votre lit.)
 
@@ -4320,7 +3858,6 @@ Il se tut. Elle resta sans répondre, amoureusement 2
 troublée. Quand elle fut revenue dans le cabinet de $
 travail et qu'il lui eut montré, devant la fenêtre, le petit ë
 arbre son ami, où bavardaient les moineaux, elle lui du
-dit : Es
 
 — Maintenant, savez-vous ce que nous allons faire ? A
 Nous allons goûter. J'ai apporté le thé etles gâteaux,
@@ -4329,8 +3866,6 @@ cela. Et j'ai encore apporté autre chose. Donnez-moi
 votre pardessus.
 
 — Mon pardessus?
-
-— Oui, oui, donnez.
 
 Elle tira de son sac des aiguilles et du fil.
 
@@ -4342,10 +3877,6 @@ m'inquiétait. Où en sont-ils, aujourd'hui ?
 — C'est vrai, je n'ai pas encore pensé à les recoudre,
 C'est si ennuyeux !
 
-— Pauvre garçon ! Donnez
-
-— J'ai honte.
-
 — Allez préparer le thé.
 
 Il apporta dans la chambre la bouillotte et la lampe
@@ -4353,10 +3884,7 @@ Il apporta dans la chambre la bouillotte et la lampe
 
 |
 
-ï |
-ll
 |
-LA NOUVELLE JOURNÉE |
 k Elle, tout en cousant, regardait du coin de l'œil mali- | ||
 EX cieusement ses gaucheries. Ils prirent le thé dans 1} |
 jan des tasses ébréchées, qu'elle trouva affreuses, vec li |
@@ -4372,21 +3900,9 @@ ei — Je ferai l'ordre. | |
 é Quand elle fut sur le seuil, et près d'ouvrir la porte, Hu
 il s'agenouilla devant elle, il lui baisa les pieds.
 ti — Que faites-vous ? dit-elle. Fou, cher fou ! Adieu. HE:
-H |
-ren
 | il
-EUR
-‘F4
 
-j LA
-FI
-LUE
 il
-Al
-\ 1!
-F2)
-.#
-rides
 
 la fin du voyage
 
@@ -4406,7 +3922,6 @@ naissance, et je vous aime jusque äprès que...
 troublée. Quand elle fut revenue dans le cabinet de
 travail et qu'il lui eut montré, devant la fenêtre, le petit
 arbre son ami, où bavardaient les moineaux, elle lui
-dit :
 
 — Maintenant, savez-vous ce que nous allons faire ?
 Nous allons goûter. J'ai apporté le thé et les gâteaux,
@@ -4415,8 +3930,6 @@ cela. Et j'ai encore apporté autre chose. Donnez-moi
 votre pardessus.
 
 — Mon pardessus? ,
-
-— Oui, oui, donnez. F
 
 Elle tira de son sac des aiguilles et du fil.
 
@@ -4429,17 +3942,10 @@ m'inquiétait. Où en sont-ils, aujourd'hui?
 
 À C'est si ennuyeux !
 
-— Pauvre garçon ! Donnez.
-
-— J'ai honte.
-
 — Allez préparer le thé.
 
 IL apporta dans la chambre la bouillotte et la lampe
 à alcool, pour ne pas perdre un instant de son amie.
-
-Le /
-LA NOUVELLE JOURNÉE à
 
 Elle, tout en cousant, regardait du coin de l'œil malicieusement ses gaucheries. Ils prirent le thé dans
 des tasses ébréchées, qu'elle trouva affreuses, ävec
@@ -4477,7 +3983,6 @@ son amie.
 Pour la fête de Christophe, elle habilla sa petite fille,
 comme elle-même elle était, quand ils s'étaient rencontrés jadis, pour la première fois ; et elle fit jouer à
 l'enfant le morceau que Christophe, jadis, lui faisait
-répéter.
 
 Toute cette grâce, cette tendresse, cette bonne amitié,
 se mélangeaient d'ailleurs à des sentiments contradictoires. Elle était frivole, elle aimait la société, elle
@@ -4491,7 +3996,6 @@ femmes. Mais dans la plus honnête et la meilleure, il y
 a, par moments, une fille. Elle tenait à ménager le
 monde, à se conformer aux conventions. Bien douée
 
-LA NOUVELLE JOURNÉE
 pour la musique, elle comprenait les œuvres de Christophe ; mais elle ne s'y intéressait pas beaucoup — (et
 il le savait bien). — Pour une vraie femme latine, l'art
 n'a de prix qu'autant qu'il se ramène à la vie, et la vie
@@ -4499,7 +4003,6 @@ n'a de prix qu'autant qu'il se ramène à la vie, et la vie
 voluptueux, engourdi... Qu'a-t-elle à faire des méditations tragiques, des symphonies tourmentées, des
 passions intellectuelles du Nord ? 11 lui faut une musique où ses désirs cachés s'épanouissent, avec un minimum d'efforts, un opéra qui soit la vie passionnée, sans
 la fatigue des passions, un art sentimental, sensuel et
-paresseux.
 
 Elle était faible et changeante; elle ne pouvait
 s'appliquer à une étude sérieuse que par intermittences;
@@ -4551,8 +4054,6 @@ seul, voyageant, parlant peu, mais regardant beaucoup, il avait acquis, presque 
 du visage humain, cette langue riche et complexe que
 des siècles ont formée. Mille fois plus riche et plus
 
-EAN SAR PT RS RE Sat
-- LA NOUVELLE JOURNÉE
 complexe que le langage parlé. La race s'exprime en ;
 elle... Contrastes perpétuels entre les lignes d'une
 figure et les mots qu'elle dit. Tel profil de jeune femme,
@@ -4612,10 +4113,8 @@ en elle toute sa race passée. Chacun de ses sourires, de
 ses pleurs, des plis de son cher visage, n'était-il pas un
 être, le ressouvenir d'une vie, avant que se fussent
 
-LA NOUVELLE JOURNÉE
 ouverts ses yeux à la lumière, l'annonciateur d'un être
 qui plus tard devait venir, quand ses beaux yeux
-seraient fermés ?
 
 Le petit garçon, Lionello, avait neuf ans. Beaucoup
 plus joli que sa sœur, et d'une race plus fine, trop fine,
@@ -4633,7 +4132,6 @@ qu'elles ont refoulée). Et il s'y mêle encore un souvenir
 du mari qui les a fait souffrir, et qu'elles ont méprisé
 peut-être, mais aimé. Toute cette flore étrange de l'âme,
 qui pousse dans la serre obscure et tiède de la
-conscience.
 
 Malgré l'attention de Grazia à partager entre ses
 deux enfants également sa tendresse, Aurora sentait
@@ -4644,8 +4142,6 @@ sous une exagération de gentillesses zézayantes, — que
 Christophe repoussait, comme un sentiment honteux. Il
 se faisait violence ; il s'efforçait de chérir cet enfant
 d'un autre, comme si c'était celui qu'il lui eût été ineffablement doux d'avoir de l'aimée, Il ne voulait pas
-
-133 journée. — 8
 
 la fin du voyage
 reconnaître la mauvaise nature de Lionello, tout ce qui
@@ -4660,7 +4156,6 @@ chez l'enfant, éclata. La phtisie se déclara. Grazia prit
 la résolution d'aller s'enfermer avec Lionello dans un
 sanatorium des Alpes. Christophe demanda à l'accompagner. Pour ménager l'opinion, elle l'en dissuada. IL
 fut peiné de l'importance excessive qu'elle attachaiït
-aux conventions.
 
 Elle partit. Elle avait laissé sa fille chez Colette. Elle
 ne tarda pas à se sentir terriblement isolée, parmi ces
@@ -4683,7 +4178,6 @@ maintenant : « Je suis trop faible, j'ai besoin de vous... »
 Un soir qu'elle se tenait sur la galerie du chalet, à
 cette heure du crépuscule si cruelle pour les cœurs
 
-LA NOUVELLE JOURNÉE
 angoissés, elle vit... elle crut voir venir sur le sentier
 qui montait de la station du funiculaire.. Un homme
 marchait, d'un pas précipité; il s'arrêtait, hésitant, le
@@ -4697,8 +4191,6 @@ derrière ses rideaux. Il s'était arrêté, adossé à la barrière d'un champ,
 pas entrer. Et elle, plus troublée que lui, souriait, et
 disait tout bas :
 
-— Viens.
-
 Enfin, il se décida, et sonna. Déjà, elle était à la
 porte. Elle ouvrit. Il avait les yeux d'un bon chien, qui
 craint d'être battu. IL dit :
@@ -4706,8 +4198,6 @@ craint d'être battu. IL dit :
 — Je suis venu... Pardon...
 
 Elle lui dit :
-
-— Merci.
 
 Alors, elle lui avoua combien elle l'attendait.
 
@@ -4732,10 +4222,6 @@ FAI dit :
 — Mon cher, cher ami! :
 les yeux illuminés du bonheur de l'enfant sauvé.
 Ce fut tout. Mais ils sentirent que leur lien était
-devenu sacré.
-
-y /
-)
 
 De retour à Paris après la longue convalescence,
 installée dans un petit hôtel qu'elle avait loué à Passy,
@@ -4762,7 +4248,6 @@ sa santé, robuste jusque là. L'âme s'en était ressentie.
 Malgré quelques retours des caprices d'antan, elle avait
 
 un je ne sais quoi de plus sérieux, de plus recueilli, un
-137 journée. — 8,
 
 la fin du voyage
 plus constant désir d'être bonne, de s'instruire et de :
@@ -4800,9 +4285,6 @@ le train, sans s'annoncer.
 Il les trouva dans leur jardin, assoupis sous le dais
 rond d'un frêne, par une chaude après-midi d'été. Ils
 étaient comme les deux vieux époux de Bæcklin, qui
-
-ENT of nu
-LA NOUVELLE JOURNÉE
 
 s'endorment sous la tonnelle, la maïn dans la main. Le
 soleil, le sommeil, la vieillesse les accablent; ils tombent,
@@ -4862,19 +4344,14 @@ aime? Quoi! Est-ce que je l'aime ?.. »
 
 Elle se tut, écoutant, tout émue, son cœur qui répondait :
 
-— « Je l'aime. »
-
 A ce moment, une toux sèche, rauque, précipitée,
 éclata dans la chambre voisine, où dormaient les
 enfants. Grazia dressa l'oreille; depuis la maladie du
 petit, elle était toujours inquiète. Elle l'interrogea. Il ne
 répondit pas et continua de tousser. Elle sauta du lit,
 
-LA NOUVELLE JOURNÉE
-
 elle vint auprès de lui. Il était irrité, il geignait, il
 disait qu'il n'était pas bien, et il s'interrompait pour
-tousser. j
 
 — Où as-tu mal?
 
@@ -4943,9 +4420,7 @@ de se coucher tout nu sur le carreau, afin de prendre
 d'apporter une œuvre musicale qu'il avait composée
 pour la fête de Grazia, le petit s''empara du manuscrit
 et le fit disparaître. On en retrouva les lambeaux
-' 142 se
 
-LA NOUVELLE JOURNÉE
 déchirés, dans un coffre à bois. Grazia perdit patience;
 elle gronda sévèrement l'enfant. Alors, il pleura, cria,
 tapa du pied, se‘roula par terre; et il eut une crise de
@@ -4988,7 +4463,6 @@ elle-même avoua ce regret. Christophe lui saisit la main.
 — Oui, pourquoi? demanda-t-il.
 
 — Vous le savez bien, mon ami, dit-elle, avec un
-sourire navré.
 
 Christophe le savait. Il savait qu'elle sacrifiait leur
 bonheur à son fils ; il savait qu'elle n'était pas la dupe
@@ -5001,7 +4475,6 @@ leur sang, de façon qu'il ne leur reste plus rien à donner
 aiment le mieux. mais qui ne sont pas de leur sang. Et
 bien qu'il s'en irritât, bien qu'il eût envie, par moments,
 de tuer le petit monstre qui détruisait leur vie, il s'inclinait en silence et comprenait que Grazia ne pouvait
-agir autrement.
 
 Alors, il renoncèrent tous deux, sans récriminations
 inutiles. Mais si l'on pouvait leur voler le bonheur qui
@@ -5014,7 +4487,6 @@ de son ami : ainsi, le chagrin même devenait joie.
 Christophe appelait Grazia « son confesseur ». Il ne lui
 cachait pas les faiblesses, dont son amour-propre avait
 
-* LA NOUVELLE JOURNÉE
 à souffrir; il s'en accusait avec une contrition excessive;
 et elle apaisait en souriant les scrupules de son vieil
 enfant. Il allait jusqu'à lui avouer sa gêne matérielle.
@@ -5032,14 +4504,11 @@ comme il lui arrivait souvent, des heures sans dormir,
 elle songeaïit :
 « — Mon ami pense à moi. »
 Et un grand calme les entourait.
-! journée. —
 
 |
-)
 #
 |
 |
-Ill
 la fin du poyage
 Alors, vite, vite, ils en profitaient. Chaque heure
 qu'ils dérobaient ainsi leur était d'autant plus précieuse °
@@ -5049,7 +4518,6 @@ pouvaient-ils rester toujours ainsi? Un jour, Grazia
 elle-même avoua ce regret. Christophe Ini saisit la main.
 — Oui, pourquoi ? demanda-t-il. |
 — Vous le savez bien, mon ami, dit-elle, avec un |
-sourire navré. | |
 Christophe le savait. IL savait qu'elle sacrifiait leur |
 bonheur à son fils; il savait qu'elle n'était pas la dupe |
 des mensonges de Lionello, et pourtant qu'elle l'adorait; |
@@ -5061,7 +4529,6 @@ leur sang, de façon qu'il ne leur reste plus rien à donner
 aiment le mieux. mais qui ne sont pas de leur sang. Et |
 bien qu'il s'en irritât, bien qu'il eût envie, par moments,
 de tuer le petit monstre qui détruisait leur vie, il s'inclinait en silence et comprenait que Grazia ne pouvait
-agir autrement.
 Alors, il renoncèrent tous deux, sans récriminations
 inutiles. Mais si l'on pouvait leur voler le bonheur qui
 leur était dû, rien ne pouvait empêcher leurs cœurs de
@@ -5072,21 +4539,9 @@ s'en déchargeait sur lui, et prenait en échange les peines |
 de son ami : ainsi, le chagrin même devenait joie.
 Christophe appelait Grazia « son confesseur ». Il ne lui
 cachait pas les faiblesses, dont son amour-propre avait
-144 |
-{l
 |L
-Ti
 |
 
-Al
-
-IBl
-"AL
-E 1!
-Îl
-bi 1
-LA NOUVELLE JOURNÉE |
-are \ Î
 lense à souffrir; il s'en accusait avec une contrition excessive; |
 à et elle apaisait en souriant les scrupules de son vieil ni
 L | enfant. Il allait jusqu'à lui avouer sa gêne matérielle. un dl
@@ -5098,7 +4553,6 @@ qu'il lui était interdit de mettre dans la vie de son ami, jl :ÿl
 PR elle s'ingéniait à y répandre ce qui avait mille fois plus 1
 de prix pour lui : sa tendresse. Il en sentait le souflle { | |
 | autour de lui, à toute heure du jour; le matin, il n'ou- L T4
-{ |]
 vrait pas les yeux, il ne les fermait pas, le soir, sans | | 4]
 une muette prière d'adoration amoureuse. Et elle, Non
 < quand elle s'éveillait, ou que, la nuit, elle restait, 43
@@ -5106,21 +4560,8 @@ une muette prière d'adoration amoureuse. Et elle, Non
 UE elle songeait : |!
 ; | « — Mon ami pense à moi. » Hd
 8 Et un grand calme les entourait. ni?
-ME
-RU
-Gi 2]
-EN
-$ Ü N
-‘4 ul
-ss ë
 | |
 |jf)
-où :
-ii
-1e
-ul
-qe
-nl:
 
 Cependant, sa santé s'était altérée. Grazia était
 constamment alitée, ou devait passer des jours étendue |
@@ -5146,8 +4587,6 @@ substance et celle de son amie :
 
 À — Nos enfants.
 
-: LA NOUVELLE JOURNÉE }
-
 Communion de tous les instants, où ils étaient
 
 | ensemble et où ils étaient séparés; douceur des soirs
@@ -5168,8 +4607,6 @@ visage »). Et il lui écrivait, certains soirs, au sortir de
 chez elle, quand il avait le cœur gonflé d'amour et
 qu'il ne pouvait attendre au lendemain pour le lui
 dire :
-
-« Liebe liebe liebe liebe liebe Grazia.… »
 
 Cette tranquillité dura plusieurs mois. Ils pensaient
 qu'elle durerait toujours. L'enfant semblait les avoir
@@ -5221,12 +4658,8 @@ Grazia mouillait d'une buée sa voilette. Il pressait la
 
 148 5
 
-77 LÉ }
-LA NOUVELLE JOURNÉE
-
 petite main, tiède sous le gant glacé. Leurs visages se
 joignirent. À travers la voilette humide, il baisa la
-chère bouche.
 
 Ils étaient arrivés au tournant du chemin. Il descendit.
 La voiture s'enfonça dans le brouillard. Elle disparut.
@@ -5238,47 +4671,23 @@ Rien n'est plus. Tout est passé.
 Il aspira largement le brouillard. Il reprit son chemin. 4
 Rien ne passe, pour qui ne passe point.
 
-147) journée, — 9.
-
-; FU AMI es TU MEUTI AE AR " AREA | |
 Ne ne MA LRU UE AM an CHA à f AE Fa Ft
 Rare) (HU HALLE HAL TAN ANEUT FRNNE PUR sr SR TEE SF D TA ANT
-27: 1 An Fe RO NES ‘ ACTES mr ter #
 V4 AA AUS TH, ALU CAT tn + | UNE HE TRE Et A4 ACT itier UT
 ae : °F UTNENR MURALE NE ES MARIA
-1 TON AS LSE LM MATE: PATHERETE \ UE A te MNT El F2: AE a:
-WC: MAT OUR CL CEA AMV) Nour LENS Li rt 3748
-1 A MAN ANNE IA PU LtALIE var EN FA VAN UEMATre AA 2% 206 20
 Au ARE i QUES e VER HOT A tite es ES rl CE
-UT  LCAÏ Ar ñ Ü Ari M + PAET LA HART ER QU { * AA AA
 Ar # SANS 1e AUS AE € FAR GA ANR Fees dr en ÉAE AR Æ
 QE 0. (ar AE ROME ARS L'AENTA tr PT AS UE LC
 AUS A (Be Nb: VAE Ni die LEA NUE TEL EE Le \ FRAC AE Par: à
-ARR BE NUIT STAR ANS D RATER LAPS
-DRE à ( # Le4 Î 1 CET LE (1 Li L'ETÉ NN De
-Ne NL (À i TE \ 44 (C4 ñ Fe: #1 NE É Fat enS Fi 41 10)
-TEE Tr Cr ' ACTA k ÉOROEE HS AUES 1540 reel
-‘PIE 1e Mir j gr 11 YA NP FE" Fra EN (KreS a
 2 AU \£ Eu Apr MT en TA 1 fé ER:
-" VAURS 14 LA 44 TN ‘ : LI N LATE * lag
-4 ES Sd RCA re RE HUE DUT 2
 (2: ve 13 EN sit 2 ; TAN Ne W Fes ' \ PAR RON SA LE
-154 ES 1e TUE Vent 2 1 MICre # PES OMS RATE 1 OR
-MSN L'UVR AT LS FE \ NY LE TUNER
-16 SA ALU 2 SA. k Lane M EN ON À À È k AE NRA
 d NE UE à Ÿ Ur Hal PRE (ps k & PA RUE | #4) EE LS
 + il kr Unis LAN ANSE Ar, vie? 11419 Sat TN
-FR NT ARE ALU Fr PARTÉEN  d € UE { Dr: 1 ÉS
 Re qi rs 14 x MINES (Et Je 04 LUN HN +! Ye Phiohe à RENTE +8 1 A
 té pi ON AN A (HAE AS MAD 2 VA nn : 5110 ä
 ES ï ae Ÿ MATE rh UT AE L'LLS JEUN dr Dee PIE ER Rey: LEUR KE
 LS $ rue } 1 ; NAAUE { L'YUM (ai àS ‘tb À UT Date He te on ax
-‘LUS MN DE CR nie We HER. CEA : KE à Au %" ONE * Dr À
-IS A DPAL EE LUNA IE AO BP PE RS RENN ae NE ;
 ‘44 LEE AR RE et WE CRE et MÉRIAT OT AIR pee BRN QAR
 A COHEEAn H L COR NU | RATES bn NH Te | (ii DURS un
 p. ROSE 17 SAT: 4 à DU TNT bé 74 RUN 2 HR ra
 tn dre SEE TURN pt jus PUR Ses vi ÿ UMR Ïo
-PROAAU :, FRET # F'ANÈD 253 AU + AL Th un CURE AUTE
-UE Lis NORETE CU abs Mason) DAS ST A PER US > }} -HTSES
-QT": (EL DA UT AG LP AG PH art * | ÉrRES Ur

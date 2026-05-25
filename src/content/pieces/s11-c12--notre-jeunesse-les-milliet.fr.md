@@ -7,122 +7,65 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 67110
 ---
-
-EP. Fe 1 Re g A À
-AP RER CARS PRES : À *
-D RSR ER ave cs : #3 pe
-a MES ME 25 SR SES AS A " LT £
-A A TE F4 £
-ee A Het € Ex 3 & ;
-E: NUE LE FRANS F: . »
-. Fe 54 2 SANTO AU - 5
-A. à LE Pr < 4
-1 LÉ NMRSEENERCE ES
 ne. ASE Dr. ÆR She £
-a FT
 LE LEE FRE EN F FE à pa
-RS à 13e
 SPEARS Se > ne
-PRE HS A RE MARS PRE 27 € $
-D. sors #4
-Li PRE NES CR EI IT ES =.
 
 Dans les seize cahiers de leur huitième série, année
 scolaire 1906-1907, nos cahiers ont publié : |
 VIll-1. — petit index alphabétique de nos éditions
 antérieures et de nos sept premières séries (1900-1906),
 — table Sr très sommaire de notre septième
-série (1905-1900) : 2.1 rrretatee O OOR
 VIlI-2. — RoMaAIN ROLLAND. — Vies des hommes
 illustres.— la vie de Michel-Ange.—Il.— l'abdication 3 » 4
 VILI-2, — CHaARLes PÉGuy. — de la situation faite à $
 l'histoire et à la sociologie danslestemps modernes 2 »
 VIILL-4. — RomaIN RozLanpr.— Jean-Christophe, — à
-IV. — la révolte. — 1. — Sables mouvants.......... 3 »
 VIL-5. — CnanLes PÉGuy. — de la situation faite
 r au parti intellectuel dans le monde moderne ... 2 »
 VIL-6. — Romain ROLLAND. — Jean-Christophe. — F
-IV. — la révolte. — 2. — l'enlisement.................3 » c
 VIII-7.— CHARLES-MARIE GARNIER. — les sonnets de
 Shakespeare, — essai d'une interprétation en vers
-Jrançais ;— Li... Teresa TR
 VIII-8. — JEAN Bonneror.— le livre des livres, —
-fragments. .......,..e.sessu.sscsssttescesmeseesne) À D
 VIll-9. — Romain RoLLanD.— Jean-Christophe. — 4
-IV. — ‘la révolte. — 3. — La délivrance.............. 3 » |
 VIl-10. — Enmonp BERNUS. — Polonais et Prus- 4
 siens, — de la résistance du peuple polonais aux 4
 exactions de la germanisation prussienne. —1...... 2 » }
 VIlI-11. — JÉRÔME ET JEAN THarAUD. — Bar-Coche- à
 bas, — notre honneur.— CnarLes PÉGUY. — Cahiers 4
-de la Quinsaine..........:..........e#ter-eer 20P |
 Vill-12. — Enmonp BERNUS. — Polonais et Prus- i
 siens, — de la résistance du peuple polonais aux &|
 _ exactions de la germanisation prussienne. — IL... 2 » 1
-VIII-13. — HENRIETTE CORDELET. — Swift.......... 2 » 4
 Vll-14. — Enmonp BERNUS. — Polonais et Prus- i
 siens, — de la résistance du peuple polonais aux ;
 exactions de la germanisation prussienne. — I.... 2 » ITS
 VIIL-15.— CHARLEs-MaRIE GARNIER.— les sonnets de 4
 Shakespeare, — essai d'une interprétation en vers
-français. — Il.................:.....:....4...4...v.00 2 D à
 VIll-16. — GEORGES SoREL. — les RE Ru do 5
 LES A fe red des physiciens modernes, — avant- “
-propos de Julien Benda............................... 2 » à
 Voir à l'intérieur en fin des autres cahiers les condi- $
 tions et le prix de l'abonnement. |
-LR REP NN à RE CRAN EN SUR
 Nous mettons le présent cahier dans le commerce; 5 j
 onzième cahier de la onzième série; un cahier vert AE |
 de 72 pages; in-18 grand jésus; nous le vendons La
-deux francs. “+
 
-AL « US 77 7 CE ENS AR £ *
-
-_ DOUZIÈME CAHIER DE LA ONZIÈME SÉRIE |
-
-3 RU ASE FRERE h,
 ‘ AACRSE ue f î à ce d a F4
-RES RAEANSSE F
-out SUP ; j
-LÉ EU \ {
 
 3 re a CAHIERS DE LA QUINZAINE 4
 +48 EC PETR odique paraissant tous les deux dimanches 4
-rÉñag VU " = ce + 4
-
-2 CVS PARIS /
 
 8 ue de la Sorbonne, au rez-de-chaussée
 
-Re ee à +
-
 KT AO pe FA è NARUNTRE LA EN CS ar ER nt
-ON AE An HS à QUES LEE NN ALAN AREA À SI A
 EPS SA TRE » RSR as
-MATE & À ( AAVESE LT NTSC FAT IT PAR
-FE Ne AE 4 æ ES > LLb) RS ro E AL IT 00
-EUR ANA AAA Lans * NAT LUEUR { a GEL ARR PA
-HAE je ; \ e 4 ÿ Le Re AAA A 32 A
-: DÉS RER Fi Ar HN OA
 ne RAA AR DAT LE DTA à AE Etre RAT Pr CRE
-HUE CLEA nan) x ; PARLE A4 CEA 4 Li
 RRSAER ne 4} ire ROC ANS MEL ee ht
-mo à : FES SAC ER NES
-tone tb, RSS REA ACC
 Rae EE 1 TRS UN PROS RAEURAT NT
-: NS ds FTSC TESAE SR EE po
 ne FA Ke è ; (SEAT RENNES TR 2 pe PAT #
 
 KA sa Gh Ü % A "HUE HN LOS Pre: Era
-Lt SA HEURES j i LAGRE F) ER MATE d
 
-NY RHANINESS EPA CI RON
-
-LEA TANT CR ia Ag. e ' # RTE RERAES CRUE f
 NME 1 ee RAA bre ed L v ” MAS ap EMEA, 2 [#3
-
-TRE QUFRNEN A AR j EU Ange THAT OA
 
 ne " a DS ‘+ LAN k ft die = és .
 sr RE A À RP TE et ES en Va PE te.
@@ -131,161 +74,45 @@ MR RE TT ne à LA SRE CLR D NET RSR
 | { RUE Or EU x CAE Se à PET Me a PERRET
 : RE Ps ri M de CRE LUS
 
-Re à 2 GARE! LS the UT
-
-ÉTÉ ARENA) : < É PRÈCUE NP: _ RE
-TASER û HAT:
 Le Less LD . ” * Sir
-F3 = Co >
-FES IE E sé
 TA ; es D hs
 > Ne à i . 3
-ES <BPEE ‘ +42”
-ER 2
-TA TRIER "2 UN ee
 SZ Tes
-+ LEVÉE 5 £
-SET ' :
-: 2° SEE = + e
 
-LE 1 CRE “
-D u 6: J
-“| LÉFLEREER LS
-L'SSSENNS È RE 1
 LS LE RE RMEPEE Hs . j ke ER
-EE Vs RS } - jeunesse. — 1 FT
 
-se È CRE:
-n°: se - D
 1s + ie" mr de Te Eee
 
 RAR OR UT RAIN LE. es Te IIS 2 dot U +2 SUPRIRRS ;
 ET ni en de os MOI CCE RSA
 D RAR on + ei CU ON RE
 RS en os NU Du
-EPS RSR RSS RTS 0 NN CU SRE Rire
-ie | : oo.
-F3 É 00 pe
-eee FRITES NOT
-FISTES 5 ï LEE RCI HET METTRE ENS
-PSE : $ LIRE SRE RE SE
-DT £ à . e i 4 = AT NE" RER PE NE re US CEE
-LÉ RAR RER Viot ECESNR
-Dr Le : ARE FR ET ER RER AE
-SEM Fe Re Me RU
-rc, RE Et à PRE PES ARNO ES RE PAP SR EAST
-ee 2
 ÈS EE Te ne ne Se RE
-À. ARCS NN mi
-SRE e x PR TE M gel
-VIP | ; D à DITES SR te, ESS ee
-RS BR ERE + DR UT 5
-E PIE 714 £ DR £ #4:
 4 ee ET AN TERE ee Ka À F2 55 2. LC TORRES ; ; PL à
-RE LR LNE 1 PE CET REC É
-LR PER P ART ts TE D 2 LAIT
 
-à L'ART AS RAR MERE RES CRE Ces Eu Dj PAL PE EE
-D Rd 0 un
-RSS RS Nr
-0 trousse
-FRS x D ARS DEP Le + Mo AE ET
 ENS SNE EME ere * : ET ÉPALRION ee
 3 tre De PAT Er Se 2 . é me Fe
 TRS ES ï NS TES HS as
-PRÉT Ee TS < ë : RSR RS AT
-RUES £ U = HR NAT ES
-TARA AT PNA > , A ST Ga
-EEE < “2 rte an
-RE © 5 FRS EN
-RC 2 + DARE MSA SES
-+ AC TEE * À DE LES
-AC: à is SERRE TOESS
-2 FRERES = ÿ VE TUNESSS
-Dr à 5 ARE
-4,1 Less F- x À > A de 2
-D a
-LES FRS RER
-LATTES CUT RER
-ot Pr + e- Re.
-RES: 4 > SNS
-12NÈ ER : TA:
-TS ESS SES
-D ; LS ERRR
-TNA È RDS DAC
-5e <e FRE F CE SES
-LESC MENTION S MN NNE ,
-TA VEN RES PTE GS
 
-D
 FRVÉMEN 357 NS AE ENST FOR ET RER RO RUN Fes 7” re,
-SRB AD LE PTT RTE IT ANS ARRETE 3 Da
-HR E A « MARS LAS E 1 CEER RE SE ER F2 FL
-À En UN D
-FA : A M nt
-RE 15 LT Ru) a VOD ERENREREET
-Kr FÉ SO 2  S
-HARRE Ê k STE LL TR RCE SERRE AE ES RE
 De É FES TNT RON CORRE TATPE he
 rer RE Re pe ni Te à
-SRG Lo LUS EPP RCE "TEE RSR Re ER 1
 LAS DRE > à = F 147 Theft JE ECS 7 cs
 D a ie" PPS EME di LE
-a Re
 
-, LS A4 F2 c: UE P ; 14 D Pa FT avt E "
 L'ART ES ERA ON PEN PR re
-GR ee BRON FAN SR AS RTS
-LR RE RS CRE NS : RER Pr CRT
 en D Je ae et À À x DE k SN PET
-LU NOR RE | ÿ Lit e HS NE
-LE à 5 EEE: ES
-DUREE + * CRE
-RS > . 5 mor ITA T RAS
-an D A ce 1 ,
-D re jeunesse A |
-Eee HAS
 
-& xs - Le £
-DE : DIRE :
 |: DÉCARSR = à & ue Le
-2 5 Se
 
-FLE) < ÿ 3:54
-
-1e ae à FE TS ë 1e
-
-& UE RES > & A b LS
-
-ÉTÉ RENE 154
-
-RC : BR
-
-2 PENSE ; 5 REA SE €
-
-“ Met € RAP
-
-ee at © PR ee D.
-NU RU L A) HAE PRET ÉRROESE RAT TS
-Cu < ri RARE
-= LA 4 TRE ESS F7 RER <à
-Se PR D US eue
-PRE ME on L'ASIE 3 RS.
-ERP ER ; ee 2 TS DRE EN
-SRE : 0 net OR NS RE PES
-Dre EM ENS Ares
-el RE > POS Ste ANS
 LOIR PEER RE CE PL RE ni 26 LEE
 
-4 # x
 | NOTRE JEUNESSE
-SA
 s Une famille de républicains fouriéristes. — les
 3 Milliet. — Après tant d'heureuses rencontres, après les
 se. cahiers de Vuillaume c'est une véritable bonne fortune :
 pour nos cahiers que de pouvoir commencer aujour-
 …_  d'huila publication de ces archives d'une famille répu_  blicaine. Quand M. Paul Milliet m'en apporta les
-vw 2e
 —_ premières propositions, avec cette inguérissable mo_  destie des gens qui apportent vraiment quelque chose
 … il ne manqua point de commencer par s'excuser, disant :
 … Vous verrez. Il y a là dedans des lettres de Victor Hugo,
@@ -301,13 +128,8 @@ B . _ s'excuser par là, alléguer qu'il y avait, dans ces papiers,
 2 des documents historiques, sur les grands événements <
 à _ de l'histoire, provenant, venant directement des grands
 7 événements, et naturellement des documents authen-
-“Le : £
-De:
-Dr < =
-: à 2 É PA Le
 
 tiques, et naturellement des documents inédits.) Je lui 4 ie
-répondis non. ; RARE 4 M.
 Je lui dis non vous comprenez. Ne vous excusez pas.
 Glorifiez-vous au contraire. Des lettres de Béranger, des 4
 lettres de Victor Hugo, il y en a plein la chambre. Nous É:
@@ -320,7 +142,6 @@ nous en avons. On nous en publie encore tous les jours. É
 ÿ Parce que, dans le besoin, nous en ferons. Que dis-je, e.
 nous en faisons, on en fait. Et la famille nous aidera à 24
 en faire. Parce que ça fera toujours des droits d'auteur à
-à toucher. 5; ; 4
 Mais ce que nous voulons avoir, ce que nous ne pou- à
 vons pas faire, c'est précisément les lettres de gens qui :
 ne sont pas Victor Hugo. Quinet, Raspail, Blanqui, — 4
@@ -337,10 +158,7 @@ bien, c'est son métier, et à défaut de l'histoire les histo- NN
 riens, et à défaut des historiens les professeurs (d'his- T4
 : toire). Ce que nous voulons savoir et ce que nous ne
 pouvons pas inventer, ce que nous voulons connaître, 4
-à : es ve
 
-RAR NÉE
-RS e NOTRE JEUNESSE ‘ 4
 ; 1 ee que nous voulons apprendre, ce n'est point les pre- :
 Dre. miers rôles, les grands masques, le grand jeu, les |
 eE grandes marques, le théâtre et la représentation; ce
@@ -374,7 +192,6 @@ _ peuple était grand, quand les républicains étaient
 héroïques et que la République avait les mains pures.
 #4 je 9 jeunesse. — 1.
 
-.. Charles Pégur 4
 Pour tout dire quand les républicains étaient républi- 4
 cains et que la république était la république. Ce 1
 que nous voulons voir et avoir ce n'est point une
@@ -407,10 +224,7 @@ Comment travaillait ce peuple, qui aimait le travail, %
 universus universum, qui tout entier aimait le travail Ne
 tout entier, qui était laborieux et encore plus travailleur, 4
 é qui se délectait à travailler, qui travaillait tout entier
-e À
-10 À
 
-55 NOTRE: JEUNESSE
 re ensemble, bourgeoisie et peuple, dans la joie et dans
 ee LED FA santé; qui avait un véritable culte du travail; un
 de culte, une religion du travail bien fait. Du travail fini.
@@ -478,10 +292,8 @@ ce que Halévy nommeraïit très justement la conser 3
 vation républicaine. Mais où je ne croirais peut-être 4
 | pas avec lui, c'est que je crois que nous en sommes ‘e S
 
-2 © NOTRE JEUNESSE
 littéralement les derniers représentants, et à moins
 ñÉ DE que nos enfants ne s'y mettent, presque les survivants, |
-_ posthumes. |
 : 7 En tout cas les derniers témoins. |
 Je veux dire très exactement ceci : nous ne savons à
 ke. pas encore si nos enfants renoueront le fil de la tra- -
@@ -511,10 +323,7 @@ ee _ nous-mêmes nous allons être des archives, des archives à
 sommes une arrière-garde mal liée, non liée au gros de à
 D troupe, aux générations antiques. Nous sommes la ; g.
 Rire des générations qui ont la mystique républi- 3
-TES à
 
-te « US #8 10 4
-Charles Pégur à |
 caine. Et notre affaire Dreyfus aura été la dernière des
 opérations de la mystique républicaine. |
 Nous sommes les derniers. Presque les après-derniers.
@@ -547,9 +356,7 @@ caine, et qu'il ne veut plus mener la vie chrétienne, 3%
 plus croire aux idoles et qu'il ne veut plus croire au 4
 vrai Dieu. La même incrédulité, une seule incrédulité : 72
 atteint les idoles et Dieu, atteint ensemble les faux É
-14 à
 
-a NOTRE JEUNESSE
 | dieux et le vrai Dieu, les dieux antiques, le Dieu nou18 veau, les dieux anciens et le Dieu des chrétiens. Une
 À _ même stérilité dessèche la cité et la chrétienté. La cité
 _ politique et la cité chrétienne. La cité des hommes et
@@ -571,7 +378,6 @@ k. moderne ne s'oppose pas seulement à l'ancien régime
 4 _ tout ce qui est culture, à tout ce qui est cité. C'est en Ë
 …._ effet la première fois dans l'histoire du monde que tout ë
 Ée un monde vit et prospère, paraît prospérer contre toute
-culture. ; F
 —_ Que l'on m'entende bien. Je ne dis pas que c'est pour #%
 É.. _ toujours. Cette race en a vu bien d'autres. Mais enfin ;
 Le: cest pour le temps présent. É +
@@ -580,12 +386,10 @@ D; Nous avons même des raisons très profondes d'espérer J
 …. que ce ne sera pas pour longtemps. à
 - Nous sommes extrêmement mal situés. Nous sommes
 … en effet historiquement situés à un point critique, à un 2
-LINE - È
 > à 3
 
 NET di RS M er 5 0 Ne PSE
 
-Charles Pégay 72200008 a
 ; point de discernement, à ce point de discrimination. à
 Nous sommes situés juste entre les générations qui ont à
 la mystique républicaine et celles qui ne l'ont pas, entre j
@@ -635,7 +439,6 @@ et qui bientôt sera la génération de nos enfants,va être
 
 enfin une génération mystique. Cette race a trop de
 
-2 “ES Se SR  NOTRÉ JEUNESSE : ,
 ue à: sang dans les veines pour demeurer l'espace de plus à
 “ __ d'une génération dans les cendres et dans les moisissures 4
 es < de la critique. Elle est trop vivante pour ne pas se É
@@ -666,10 +469,7 @@ nu de part et d'autre. C'est le sort commun de quiconque 5
 ER Nous sommes chargés, comme par hasard, de faire 4
 $ communiquer par nous entre eux des gens qui précisé- +
 ment ne veulent pas communiquer. Nous sommes %
-+ F 17 ;
-ec ei \ À
 
-Charles Péguy |
 chargés de renseigner des gens qui précisément ne *
 veulent pas être renseignés.
 Telle est notre ingrate situation.
@@ -701,7 +501,6 @@ qui est l'évidence même, ce qu'il sufit de vouloir bien D.
 regarder : combien nos jeunes gens sont devenus 3
 15 4
 
-LÉ _ NOTRE JEUNESSE
 3 _ étrangers à tout ce qui fut la pensée même et la mys_ tique républicaine. Cela se voit surtout, et naturel3 lement, comme cela se voit toujours, à ce que des
 pensées qui étaient pour nous des pensées sont devenues
 pour eux des idées, à ce que ce qui était pour nous,
@@ -730,11 +529,7 @@ cela n'a pas d'importance; prouvée, réfutée. Ce qui ;
 —_ que ce soit appuyé ou soutenu, plus ou moins indiffé- S
 É: remment, c'est que ce soit une thèse.
 …. C'est-à-dire, précisément, qu'il faille l'appuyer ou la à
-_ soutenir. |
-à 19 |
-Re
 
-Charles. Pégrap. SERRE"
 Quand un régime est une thèse, parmi d'autres, 4
 (parmi tant d'autres), il est par terre. Un régime qui est 4
 debout, qui tient, qui est vivant, n'est pas une thèse. 4
@@ -765,9 +560,7 @@ gouvernement, Le gouvernement fait les députés. Les
 - nement fait la Chambre. La Chambre fait le gouverne
 ment. Ce n'est point un cercle vicieux, comme vous 4
 . pourriez le croire. Il n'est point du tout vicieux. C'est Lee
-; 20 LR
 
-RO nome muNESSE | .
 un cercle, tout court, un circuit parfait, un cercle fermé. :
 | Tous les cercles sont fermés. Autrement ça ne serait
 pas des cercles. Ce n'est pas tout à fait ce que nos fon-
@@ -792,15 +585,11 @@ $ | rante ans, c'est parce que tout marche depuis quarante < L
 parce que tout est solide partout. Il y a dans l'histoire à
 - moderne, et non pas dans toute histoire, il y a pour les <
 -_ peuples modernes de grandes vagues de crises, généra- ‘à
-_ lement parties de France, (1789-1815, 1830, 1848) qui #
 font tout trembler d'un bout du monde à l'autre bout. 3
 … Et il y à des paliers, plus ou moins longs, des calmes, Ÿ
 % des bonaces qui apaisent tout pour un temps plus ou #
 … moins long. Il y a les époques et il y a les périodes. à
 | Nous sommes dans une période. Si la République est 5
-LS 21 : F:
-
-Charles Péguy MR à
 
 assise, ce n'est point parce qu'elle est la République, à
 (cette République), ce n'est point par sa vertu propre, 1
@@ -816,7 +605,6 @@ comme ça, dans une période, de durée. Elles sont con- e
 temporaines, elles trempent dans le même temps, dans À
 le même bain de durée. Elles baïignent dans la même “À
 période. Elles sont du même âge. Voilà tout ce que ça 4
-prouve. :4
 
 Quand donc les républicains arguënt de ce que la ;
 
@@ -847,11 +635,6 @@ son âge. En elle ce qui dure c'est tout ce qui dure. C'est 3
 
 la tranquillité d'une certaine période de humanité, F
 
-: 22 : À
-
-à SE
-
-F - NOTRE JEUNESSE
 ns d'une certaine période de l'histoire, d'une certaine
 - période, d'un certain palier historique.
 à Quand donc les républicains attribuent à la force
@@ -871,7 +654,6 @@ L contraire, la même, une anticipation, une usurpation,
 6 un détournement, un débordement, un dépassement de
 < crédit symétrique, antithétique, homothétique : la même
 3 anticipation, la même usurpation, le même détournement, le même débordement, le même dépassement de
-crédit.
 Quand les républicains attribuent à la République,
 (aux républicains), (au peuple, aux citoyens) à l'assiette,
 4 à la tranquillité, à la solidité, à la durée de la Répu-
@@ -880,9 +662,7 @@ Quand les républicains attribuent à la République,
 à elle se meut. Quand les monarchistes attribuent aux
 E; monarchies voisines, (aux monarques) (aux monarmA chistes, aux peuples, aux sujets), à leur assiette, à leur
 ne tranquillité, à leur solidité, à leur durée leur durée ils
-Mn
 
-Charles Pégury A
 attribuent à ces monarchies ce qui n'est pas d'elles
 mais du temps où elles se meuvent. Du même temps.
 Qui est le temps de tout le monde. Et cet escalier à.
@@ -916,7 +696,6 @@ la force et la faiblesse des régimes; et beaucoup moins D,
 - les régimes, des peuples. LT Si
 | 2% à
 
-RETIRE NOTRE JEUNESSE
 pos - Nous croyons que les uns et les autres ensemble ils
 ne voient pas, ils ne veulent pas voir ces forces, ces Ë
 _ réalités infiniment plus profondes. ;
@@ -938,7 +717,6 @@ des régimes. ;
 he. Les républicains et les monarchistes ensemble, pre- ;
 …  mièrement font des raisonnements, deuxièmement font e “+
 ; _ _ des raisonnements conjugués, appariés, couplés, -
-géminés. +2
 he. Nous tournant donc vers les jeunes gens, nous tour- :
 …. nant d'autre part, nous tournant de l'autre côté nous ne
 * _ pouvons que dire et faire, nous ne pouvons que leur
@@ -947,10 +725,7 @@ ES C'est bien. Mais prenez garde. Quand vous parlez à la
 légère, quand vous traitez légèrement, si légèrement
 la République, vous ne risquez pas seulement d'être :
  injustes, (ce qui n'est peut-être rien, au moins vous le :
-: te : 25 jeunesse. — à
 
-a TS à D Ls ERNEr M. Lu
-Charles Péguy Frs
 dites, dans votre système, mais ce qui, dans notre
 système, est grave, dans nos idées, considérable), vous
 risquez plus, dans votre système, même dans vos idées,
@@ -980,8 +755,6 @@ bulletin dans l'urne, cette expression vous paraît aujourd'hui du dernier grote
 un siècle d'héroïsme. Non pas d'héroïsme à la manque,
 d'un héroïsme à la littéraire. Par un siècle du plus ;
 
-Re
-me : __ NOTRE JEUNESSE |
 _ incontestable, du plus authentique héroïsme. Et je dirai ÿ
 É du plus français. Ces élections sont dérisoires. Mais il
 | y a eu une élection. C'est le grand partage du monde, :
@@ -1013,7 +786,6 @@ _ mence en mystique et finit en politique. Tout commence
 be sant que, mais l'intérêt, la question n'est pas que telle
 
 >
-Chartes Pire CO |
 politique l'emporte sur telle ou telle autre et desavoir
 qui l'emportera de toutes les politiques. L'intérêt, la 3
 question, l'essentiel est que dans chaque ordre, dans a
@@ -1041,13 +813,10 @@ sincèrement ils croient le faire le plus, l'être le plus. |
 Vous nous parlez toujours de la dégradation républi- À |
 caine. N'y a-t-il point eu, par le même mouvement, ny 4 |
 a-t-il point une dégradation monarchiste, une dégrada- |
-tion royaliste parallèle, complémentaire, symétrique, Ë |
 | plus qu'analogue. C'est-à-dire, proprement parlant, une
 2 dégradation de la mystique monarchiste, royaliste en
 une certaine politique, issue d'elle, correspondante, en
 
-Re EN tr
-DA : NOTRE JEUNESSE ‘ : ?
 une, en la politique monarchiste, en la politique roya- $
 
 #4 liste. N'avons-nous pas vu pendant des siècles, ne
@@ -1076,7 +845,6 @@ De. tion française, sous des formes rationalistes qui n'ont |
 jamais trompé qu'eux-mêmes, et la politique étant au 4
 _ Gaulois, comme d'habitude sous des formes mondaines.
 . Que serait-ce s'ils étaient au pouvoir. (Comme nous, ÉLaS
-_ hélas). ÿ à
 É- On nous parle toujours de la dégradation républi- :
 +3 _ caine. Quand on voit ce que la politique cléricale a fait : k
 =. de la mystique chrétienne, comment s'étonner de ce à
@@ -1089,9 +857,7 @@ _  caine. Quand on voit ce que les clercs ont fait généra- à
 les réactionnaires ont fait de la sainteté, comment
 | s'étonner de ce que les révolutionnaires ont fait de 3
 | l'héroïsme. 4
-142 cl 29 jeunesse, — 2. 2
 
-Charles Pégur Érseus |
 Et alors il faut être juste, tout de même. Quand on 3
 veut comparer un ordre à un autre ordre, un système à d
 un autre système, il faut les comparer par des plans et ;
@@ -1105,7 +871,6 @@ politique à une mystique. Dans toutes les écoles pri-
 tique républicaine. Dans l'Action française tout revient 4
 à ce qu'on compare presque inlassablement la politique é
 républicaine à la mystique royaliste. Cela peut durer ;
-longtemps. %
 On ne s'entendra jamais. Mais c'est peut-être ce que d
 demandent les partis.
 C'est peut-être le jeu des partis.
@@ -1115,7 +880,6 @@ l'ancien régime, ils nous avaient masqué dix siècles de :
 l'ancienne France. Nos adversaires d'aujourd'hui nous
 veulent masquer cette mystique d'ancien régime, cette 4
 - mystique de l'ancienne France que fut la mystique pl:
-républicaine. 1 |
 Et nommément la mystique révolutionnaire. |
 Car le débat n'est pas, comme on le dit, entre l'Ancien )
 régime et la Révolution. L'Ancien Régime était un |
@@ -1125,7 +889,6 @@ discriminante n'est pas le premier janvier 1789, entre 4
 minuit et minuit une. La date discriminante est située 3%
 aux environs de 1881. à
 
-3 < NOTRE JEUNESSE
 #4 Ici encore les républicains et les royalistes, les gou2 vernements, les gouvernants républicains et les théo4 riciens royalistes font le même raisonnement, un raisonse nement en deux, complémentaires, deux raisonnements }
 EE conjugués, complémentaires, conjugués. Couplés; gémis: nés. Nos bons maîtres de l'école primaire nous disaient
 à sensiblement : jusqu'au premier janvier 1789 (heure de
@@ -1153,11 +916,8 @@ _  çaine, — et d'autre part, et en face, et au contraire une
 qui parasite la République, qui est le plus dangereux
 2 _ ennemi de la République, qui est proprement la domibe nation du parti intellectuel.
 -_ Le débat est entre toute cette culture, toute la culture,
-E 31
 
-- Charles Péguy SRE" à
 et toute cette barbarie, qui est proprement la bare “24
--_ barie. SR. 4
 Le débat n'est pas entre les héros et les saints; le N
 combat est contre les intellectuels, contre ceux qui ke
 méprisent également les héros et les saints. à
@@ -1180,12 +940,9 @@ tissu même du parti républicain était héroïque, et ce 4
 qui est presque plus important combien il était cultivé; “4
 : combien il était classique; en un mot, pour qui sait voir, E
 ; pour qui sait lire, combien il était ancienne France,et,
-: au fond, ancien régime. ECS
 
-IA  NOTRE JEUNESSE
 F _ On y verra ce que c'était que la pâte même dont le
 |. pain était fait.
-<& à
 à Notre collaborateur M. Daniel Halévy a fort bien
 É indiqué, dans ces cahiers mêmes, dans son dernier
 À cahier, il a marqué seulement mais il a fort bien marqué
@@ -1214,10 +971,7 @@ Dans la première théorie, dans la première hypothèse, 4
 E mouvement, le même mouvement en deux fois. Le à
 Êe _ deuxième coup d'État est le recommencement, le double, ë
 É la réduplication du premier. La reprise du premier. É Ë.
-be 33 É
-és. à -
 
-Charles Péguy CRE
 Décembre est comme une deuxième édition deBrumaire. É
 Brumaire était la première édition.de Décembre. C'est
 ce qu'enseignent par un double enseignement, conjugué,
@@ -1248,8 +1002,6 @@ si nous nommons, comme on le doit, restaurations les j
 restaurations d'ordre, quel qu'il soit, d'un certain ordre, |
 de l'un ou de l'autre ordre, et si nous nommons perturbations les introductions de désordre(s), le 18 Bru- $
 maire fut certainement une restauration (ensemble, Le
-34 & 4
-2 RS
 
 ie NOTRE JEUNESSE
 
@@ -1296,7 +1048,6 @@ seulement à la tête, mais dans le corps même, dans
 
 S la nation, dans le tissu du corps politique et social un
 
-È personnel nouveau, nullement mystique, purement
 politique et démagogique; il fut proprement l'introduc- F
 tion d'une démagogie; le 4 septembre fut une restaura-
 
@@ -1335,13 +1086,9 @@ ancienne France, nullement ancien régime. Ou encore #
 on peut dire que le Deuxième Empire est le plus
 gros boulangisme que nous ayons eu, et aussi le seul à
 qui ait réussi. ;
-É:
 
-€
 La Révolution au contraire, la grande, avait été une 3:
-ÿ 36 Te 14
 
-M.
 | d +de pr x
 | NOTRE JEUNESSE
 Ke instauration. Une instauration plus ou moins heureuse, é
@@ -1377,15 +1124,9 @@ République ne continue pas le commencement de la }
 troisième République. Sans qu'il y ait eu en 188r Ê.
 
 aucun grand événement, je veux dire aucun événement 5
-37 jeunesse, — 3 1
-] Ve
 
-À
-
-Charles Péguy :
 inscriptible, à cette date la République a commencé de |
 se discontinuer. De républicaine elle est notamment l
-devenue césarienne.
 Il ne faut pas dire seulement : Tout s'explique, je
 dirai : Tout s'éclaire par là. Les difficultés incroyables ë
 : de l'action publique et privée s'éclairent soudainement,
@@ -1410,11 +1151,6 @@ suit son train. L'action suit son train. On regarde par
 la portière. Il y a un mécanicien qui conduit. Pourquoi )
 s'occuper de la conduite. La vie continue. L'action con- }
 tinue. Le fil s'enfile. Le fil de l'action, la ligne de l'action
-- Fur
-
-& ue 1 nr ste EE
-
-50 NOTRE JEUNESSE
 
 & da continue. Et continuant, les mêmes personnes, le même
 
@@ -1464,8 +1200,6 @@ Fe de discernement ne devient pas seulement autre, elle
 
 … traire. Et c'est ainsi qu'on devient innocemment
 
-_ criminel.
-
 … La même action, qui était propre, devient sale, devient L
 
 … une autre action, sale.
@@ -1503,7 +1237,6 @@ au sens ancien de ce mot, c'est celui qui vend sa foi, 3
 qui vend son âme, qui livre son être même, qui perd &
 son âme, qui trahit ses principes, son idéal, son être 4
 même, qui trahit sa mystique pour entrer dans la poli- 4
-Go EEE
 
 - pe ne NOTRE JEUNESSE
 
@@ -1512,7 +1245,6 @@ FU tique correspondante, dans la politique issue, passant
 ne Je ne suis pas le seul. Les abonnés de ces cahiers,
 
 * même aujourd'hui, après douze ans de morts, et de ñ :
-< renouvellements annuels, se composent aujourd'hui ! |
 î encore pour les deux tiers, sont encore pour les deux
 ; tiers des anciens dreyfusards, des nouveaux dreyfusards, des dreyfusards perpétuels, des dreyfusards
 | impénitents, des dreyfusards mystiques, des hommes
@@ -1544,7 +1276,6 @@ pour cela que nous exigerons toujours de nos amis un
 
 4 _ Les politiciens veulent que nous endossions leurs po-
 
-Charles Péguy : RER |
 litiques, que nous marchions dans leurs politiques,
 dans leurs combinaisons, que nous entrions dans leurs
 vues, politiques, que nous trahissions nos mystiques
@@ -1560,7 +1291,6 @@ Mais ils n'en sont peut-être pas maîtres.
 
 Ils ne sont pas nos maîtres. Tout le monde n'est pas
 sous leurs ordres. Ils ne sont pas même leurs propres
-maîtres.
 
 Parlons plus simplement de ces grands hommes. Et 3
 moins durement. Leur politique est devenue un manège Ë
@@ -1580,10 +1310,6 @@ parlementaires professionnels ont bien autre chose à
 faire que de s'occuper de nous, et surtout que de nous 1
 ennuyer ou de nous être désagréables : les concurrents, ;
 
-42 :
-= 473
-
-à “% : NOTRE JEUNESSE
 les compétiteurs, les électeurs, la réélection, les compé-
 É titions, les affaires, la vie. Ils aiment mieux nous
 £ laisser tranquilles. Et puis nous sommes si petits (en
@@ -1607,13 +1333,11 @@ F cette justice que quand il le faut, quand on le peut,
 9 quand loccasion s'en présente, nous sommes encore
 i compétents, nous sommes encore capables de nous
 3 intéresser aux grands intérêts spirituels, de les dé-
-4 fendre.
 Ils ont raison. Et il faut que nous leur fassions cette
 justice. C'est une espèce de coquetterie qu'ils ont, fort
 L louable, une dilection, (un remords), une sorte de gaE rantie intérieure qu'ils prennent, un regret qui leur
 a vient, comme une réponse qu'ils font à un avertisse-
 
-Charles Péguy AU CO
 ment secret. Ceux qui sont intraïtables, ceux qui sont
 bien fermés, ce ne sont que les anciens intellectuels
 devenus députés, notamment les anciens professeurs,
@@ -1666,8 +1390,6 @@ ne rarchie, contre les hommes politiques, contre leur
 me _ avenir, contre leur carrière, contre leur (propre) avan-
 “+ cement; littéralement contre leur pain. Contre leurs
 É _ chefs, contre leurs maîtres, contre l'administration, la
-KL: grande Administration, contre leurs supérieurs hiérar- .
-_ chiques, contre leurs défenseurs naturels, contre ceux ;
 * _ qui devraient naturellement les défendre. Et qui les
 Re abandonnent au contraire. Quand ils ne les trahissent :
 x: pas. Contre tous leurs propres intérêts. Contre tout le
@@ -1676,10 +1398,7 @@ x: pas. Contre tous leurs propres intérêts. Contre tout le
 Fe est toute moderne. Pourquoi. Par une indestructible
 -…._  probité. Par une indestructible piété. Par un invincible,
 #4 Re un insurmontable attachement de race et de liberté à
-FF s ‘ 45 jeunesse. — 3,
-L, SFE dd a.
 
-Charles Péguy 100
 leur métier, à leur office, à leur ministère, à leur vieille 4
 vertu, à leur fonction sociale, à un vieux civisme classique et français. Par un inébranlable attachement à ;
 ‘la vieille .culture, qui en effet était la vieille vertu, $
@@ -1708,9 +1427,7 @@ peu, dans ce vieux pays, un peu de bon goût, un peu ï
 de tenue, un peu d'ancien goût, un peu des anciennes |
 mœurs de l'esprit, un peu de ce vieil esprit de la liberté ;
 de l'esprit. ;
-RICA
 
-& 2 20 NOTRE JEUNESSE
 $ 5 Les instituteurs ne font point tant partie du parti
 __ intellectuel. Ni tant qu'ils le croient. Ni tant qu'ils le
 ra voudraient bien. Ils ont tant d'autres attaches encore
@@ -1744,8 +1461,6 @@ $ ce sont ces jeunes gens qui passent directement de
 4 joli et joufflu. Comme c'est son devoir d'enfant de chœur.
 75 47
 
-s FA FEES De.
-: Charles Péguy A RE 4
 Notre première règle de conduite, ou, si l'on préfère, “4
 la première règle de notre conduite sera done, étant 3
 dans l'action, de ne jamais tomber dans la politique, É
@@ -1774,10 +1489,8 @@ dessus le point de discernement un jugement, un con- Ee
 naissement sur une action commencée en mystique et
 qui finit en politique. Il faut avant tout et sur tout se 3
 défier, se méfier de soi, de son propre jugement, de £ 4
-« 43 + à É
 
 |
-Ne __ NOTRE JEUNESSE
 _ son propre connaissement. Il faut sur tout se donner
 -<e _ garde de continuer. Continuer, persévérer, en ce sens-
 | là, c'est tout ce qu'il y a de plus dangereux pour la
@@ -1808,10 +1521,7 @@ ei de la mystique, et l'autre répond de la politique corres- Le
 
 “ Ce n'est pas seulement la justice, dans l'ordre du jugeF4 ment moral, qui demande que l'on compare toujours
 deux actions aux mêmes étages et non point en deux
-ie ts
-3 à. 1 49
 
-Charles Péguy ee
 étages différents, la mystique à la mystique et la 1
 politique à la politique, et non point la mystique à la F
 politique ni la politique à la mystique, c'est aussi la
@@ -1822,8 +1532,6 @@ mystique républicaine à la politique royaliste et quand
 tous les matins nos royalistes comparent la mystique à
 royaliste à la politique républicaine, ils font, ils s
 commettent le même manquement, deux manquements F
-mutuellement complémentaires, deux manquements ;
-mutuellement contraires, mutuellement inverses, mutuellement réciproques, deux manquements contraires *
 le même, un manquement conjugué; ensemble ils
 manquent à la justice et à la justesse ensemble.
 < Une première conséquence de cette distinction, une i 4
@@ -1844,8 +1552,6 @@ mortelles. Et quand elles sont ennemies, elles le $
 sont tout autrement, à une profondeur infiniment plus È
 essentielle, avec une noblesse infiniment plus profonde. 4
 
-a + NOTRE JEUNESSE
-
 $ Ë Par exemple jamais la mystique civique, la mystique
 “4 de antique, la mystique de la cité et de la supplication
 5 antique ne s'est opposée, n'a pu s'opposer à la mystique
@@ -1861,7 +1567,6 @@ a ensemble bon chrétien et bon citoyen, tant qu'on ne
 : Les politiciens, au moment qu'ils changent la mys-
 À: tique en politique, une mystique en une politique, si ;
 À on ne les suit pas, alors c'est eux qui vous accusent de
-: 2 changer.
 x Nous en avons eu un exemple éminent dans l'affaire
 4 Dreyfus continuée en affaire dreyfusisme. On peut dire .
 ee que les politiciens introduisent et dans l'action et dans
@@ -1878,14 +1583,10 @@ E ralement par incompréhension naturelle, par insuff-
 
 _  déchirures temporelles gratuites, des déchirures poli-
 
-DR -
-
 | Charles Pégur SE À
 tiques artificielles. Comme si ce n'était pas assez déjà $ À
 des grands déchirements mystiques. Ils créent ainsi des :
-enchevêtrements. : 4
 Nous en avons eu un exemple éminent dans cette ;
-immortelle affaire Dreyfus continuée en affaire Dreyfu- $
 sisme. S'il y en eut une qui sauta par dessus son point ê
 de discernement, ce fut celle-là. Elle offre, avec une #
 perfection peut-être unique, comme une réussite peut- Re
@@ -1895,7 +1596,6 @@ c'est que la dégradation, l'abaissement d'une action 8
 humaine, mais non pas seulement cela : particulière- ‘4
 à ment, proprement un raccourci unique, (comme) une À
 culmination de ce que c'est que la dégradation d'une 4
-action mystique en action politique passant (aveuglé- k
 : ment?) par dessus son point de rupture, par dessus son 4
 point de discernement, par dessus son point de rebrous- Ê
 sement, par dessus son point de continuité discontinue. ‘4
@@ -1915,9 +1615,6 @@ un des plus grands mystères qu'il y ait dans l'histoire 4
 et dans la réalité, et naturellement aussi, naturellement 3 ;
 | 52 -
 
-st ; Je
-à 4 Fure
-: 454 5; NOTRE JEUNESSE
 ; ES … done lun donc de ceux sur qui l'on passe le plus aveu3) _  glément, le plus aisément, le plus inattentivement, le
 “+ ; _ plus sans sauter, que cette espèce de différence absolue,
 1 (irrévocable, irréversible, comme infinie), qu'il y a dans
@@ -1950,7 +1647,6 @@ _ et des dieux, mais des peuples mêmes: qu'il y ait des
 Fe. _ l'histoire temporelle, et (par suite) peut-être sans doute
 Ro pour l'autre, et que des peuples tout entiers, tant
 
-Charles Péguy p 4
 d'autres peuples, l'immense majorité des peuples, la
 presque totalité soient marqués au contraire pour le
 silence et l'ombre, pour la nuit et le silence, pour tom-
@@ -1969,7 +1665,6 @@ point, nous n'éviterons point de le considérer, de le $
 méditer longuement dans les études que nous avons Fa
 commencées de la situation faite à l'histoire et à la
 £ sociologie dans la philosophie générale du monde
-moderne. ” 4
 Il faut donc le dire, et le dire avec solennité : l'affaire
 Dreyfus fut une affaire élue. Elle fut une crise éminente {
 dans trois histoires elles-mêmes éminentes. Elle fut une +
@@ -1980,9 +1675,7 @@ dans l'histoire de la chrétienté. Et peut-être de plusieurs 4
 autres, Ainsi par un recoupement, par une élection ;
 peut-être unique elle fut triplement critique. EHe fut 4
 triplement éminente. Elle fut proprement une affaire ;
-54 ;
 
-Re À
 Faye NOTRE JEUNESSE
 
 …_  culminante. Pour moi, si je puis continuer ces études
@@ -2016,8 +1709,6 @@ A qui se tient, tout article de revue ou de journal; tout
 3 livre, tout cahier qui s'écrit de l'affaire Dreyfus a en lui,
 ‘à porte en lui on ne sait quel virus, quel point de virus
 
-— PE VRP ENPRRRET E
-Charles Péguy. 12 REC 0e
 ‘qui nous travaille infatigable. On n'en peut point tou- 4
 cher un mot qui ne soit nocif et sacré. Nous n'en souf- À
 
@@ -2059,15 +1750,9 @@ porel, et fort exposé dans l'intemporel), je consens 1
 
 d'avoir été trompé, je consens d'avoir été berné. Jene , 1
 
-56 Fe
-
-€ y Le Se 0 APT ET LE
-
-ESS LS NOTRE JEUNESSE
 s | consens point d'avoir été mouillé. Je ne me sens point
 < ce poil de chien mouillé. Je ne me reconnais point dans
 E- ce portrait. Nous étions autrement fiers, autrement
-4 droits, autrement orgueilleux, infiniment fiers, portant
 haut la tête, infiniment pleins, infiniment gonflés des
 | vertus militaires. Nous avions, nous tenions un tout
 
@@ -2102,7 +1787,6 @@ EE” je changeraïis, excepté quatre ou cinq mots que je ;
 
 # Yon ne voit pas assez dans la phrase qu'ils sont au style
 
-: Charles Péguy
 indirect. Non seulement nous n'avons rien à désavouer, :
 mais nous n'avons rien dont nous n'ayons à nous glorifier. Car dans nos plus ardentes polémiques, dans nos
 invectives, dans nos pampbhlets nous n'avons jamais
@@ -2129,9 +1813,7 @@ n'ayons à nous glorifier.
 C'est bien l'idée de Halévy, qu'en effet je ne m'y 1
 reconnaisse pas. Plusieurs fois il nous le dit expressé- É
 ment. Mais je ne sais pas si son lecteur voit bien toujours que c'est son idée. Ç
-sf
 
-D NOTRE JEUNESSE
 ; _ Notre collaborateur a bien marqué, dans tout son
  - cahier, qu'en effet il ne s'agit point de nous. Ce qu'il a
 voulu faire, ce qu'il a si parfaitement réussi à nous
@@ -2166,7 +1848,6 @@ S. Il a bien pensé lui-même, il a fait une réserve, il a fait
 4 une distinction utile en marquant bien qu'il fallait mettre
 
 ..
-Charles Péguy Dee 3
 à part ceux des dreyfusistes qui n'étaient point entrés
 dans les démagogies politiques, notamment dans la 2
 démagogie combiste. Mais où je conteste à notre collaborateur, c'est quand il paraît admettre que nous ne
@@ -2194,13 +1875,7 @@ France le courage et la drciture vont très bien de soi.
 Sans doute les apparences donneraient raison à î
 Halévy, les apparents seraient pour lui. Je veux dire 1
 que si l'on (ne) considère (que) les dreyfusistes appa- j
-60 |
-- _ 4
-La
-: An TP gp
 
-LEE NOTRE JEUNESSE
-Ro > à
 Fe se rents, les hommes en vue, journalistes, publicistes, conre férenciers, Universités Populaires, parlementaires, can-
 $ didats, hommes politiques, tout ce qui parle et tout ce
 En qui cause, tout ce qui écrit et tout ce qui publie, l'imb mense majorité des hommes en vue, la presque totalité
@@ -2227,15 +1902,10 @@ $ Et non seulement je prétends que les dreyfusistes
 ‘à mystiques sont demeurés dreyfusistes et qu'ils sont
 F demeurés mystiques. Mais j'atteste en plus, en surcroît,
 54 qu'ils étaient le nombre et qu'ils sont demeurés le
-4 RER 61 jeunesse. — 4
-ee * ».
-PARENT e
 
-Charles Péguy : : q
 nombre. Même au grossier point de vue, non plus de
 la qualité, de la vertu, mais de la quotité même et de
 la quantité, c'est eux qui comptaient, c'est eux qui
-comptent.
 La politique se moque de la mystique, mais, c'est
 encore la mystique qui nourrit la politique même.
 Car les politiques se rattrapent, croient se rattraper
@@ -2259,19 +1929,14 @@ C'est pour cela qu'il ne s'agit point qu'ils nous
 regardent comme des inspecteurs (comme eux-mêmes
 étant des inspecteurs). Il ne s'agit point qu'ils nous
 examinent et nous jugent, qu'ils nous passent en revue
-62 F
 
-FR LR dp ve 2
-LÉ : : NOTRE JEUNESSE
 Re et en inspection. Qu'ils nous demandent des comptes,
 “£a eux à nous, vraiment ce serait risible. Tout le droit
 qu'ils ont, avec nous, c'est de se taire. Et de tâcher de
 à se faire oublier. Espérons qu'ils en useront largement.
-à
 4 Ce que je prétends, c'est que tout le corps mystique
 3 du dreyfusisme est demeuré intact. Qu'importe que les
 À politiciens aient trahi cette mystique. C'est leur office
-“4 même.
 “3 Après vous me direz que ni les États-Majors ni les
 4 comités ni les ligues n'étaient donc de cette mystique.
 EE Naturellement qu'ils n'en étaient pas. Vous n'auriez
@@ -2288,14 +1953,9 @@ e ils sont encore et toujours nos débiteurs. Toute mystique
 4 Vous ajouterez que la victime elle-même n'était done
 ee point de sa mystique. De sa propre mystique. Cela est
 : 4 devenu évident. Nous fussions morts pour Dreyfus.
-+
-ne 63
 
-ÿ . 5 LS oi. 0) RE
-Charles Péguy 2 N° 4
 Dreyfus n'est point mort pour Dreyfus. Il est de bonne nu à
 règle que la victime ne soit point”de la mystique de sa È
-propre affaire.
 C'est le triomphe de la faiblesse humaine, le couron- 4
 nement de notre vanité, la plus grande preuve; le plus 4
 grand effort, le chef-d'œuvre, la démonstration la plus
@@ -2304,7 +1964,6 @@ Il fallait que ce fût ainsi pour que le chef-d'œuvre de
 ; notre misère fût achevé, pour que toute l'amertume fût 1
 bue, pour que l'ingratitude fût vraiment couronnée.
 Pour que ce fût complet. Pour que le désabusement |
-fat achevé. +
 ; L'affaire Dreyfus, le dreyfusisme, la mystique, le î
 mysticisme dreyfusiste fut une culmination, un recou- i
 pement en culmination de trois mysticismes au moins : 4
@@ -2323,8 +1982,6 @@ dans le dreyfusisme s'est réfugié, s'est recueilli aux ë
 cahiers, dès le principe et toujours, guidés par un ‘1
 64 1
 > FA oeS
-
-2... NÔTRE JEUNESSE
 
 x So instinct sûr, par le plus profond des instincts, comme :
 dans la seule maison qui eût gardé le sens et la
@@ -2374,11 +2031,6 @@ he: trouvé le même homme qu'il y a dix ans. Douze ans.
 Voilà quel était le cœur et la force du dreyfusisme. :
 Ms. Ce cœur, ce centre, cette force est demeurée intacte.
 
-Fe ; 65 jeunesse. — 4.
-LA
-
-AVES" POLE UE
-Charles Péguy RS
 Il s'était même créé un honneur dreyfusiste, ce qui ;
 est la marque même et la consécration d'une mystique, 3
 de la création d'une mystique. Quand une mystique en |
@@ -2399,17 +2051,12 @@ plique elle-même que comme une amitié, une fidélité de
 d'une fidélité toute mystique à notre mystique.
 Il n'est pas mort, pour lui; mais plusieurs sont morts
 : pour lui. Cela fait, cela consacre, cela sanctionne une ,
-mystique. 1
 D'autres sont morts pour lui. 1
 Il ne s'est pas ruiné pour lui-même. Il ne se ruinera
 pour nul autre. Mais beaucoup se sont ruinés pour lui. |
 Beaucoup ont sacrifié pour lui leur carrière, leur pain, ;
 leur vie même,-le pain de leurs femmes et de leurs 4
 enfants. Beaucoup se sont jetés pour lui dans une É:
-É 66
-
-a
-LS _ NOTRE JEUNESSE :
 
 _ misère inexpiable. Cela fait, cela consacre, cela sanc54 tionne une mystique.
 -1 La misère, le seul incurable des maux.
@@ -2440,10 +2087,6 @@ n tant d'épreuves, forgés par nos misères mêmes. Aux
 Ke. pleine, le cœur plein, les mains pleines et pures.
 
 2 67
-
-; : de d a ; Po ee
-
-Es Charles Péguy Er A
 
 Moi-même si depuis bientôt quinze ans (en comptant HUE à
 
@@ -2480,8 +2123,6 @@ ne peuvent pas soupçonner de quoi ils nous font con- À
 fiance, quelle est la matière, le terrain de la confiance 4
 qu'ils nous font. É:
 
-D
-
 L'affaire Dreyfus fut un recoupement, une culmination 4
 
 s de trois mystiques au moins. Premièrement elle fut sur de
@@ -2489,7 +2130,6 @@ le chemin de la mystique hébraïque. Pourquoi le nier. _
 
 Ce serait le contraire au contraire qui serait suspect. 4
 
-M … NOTRE JEUNESSE
 _ Il y a une politique juive. Pourquoi le nier. Ce serait
 le contraire au contraire qui serait suspect. Elle est
 | sotte, comme toutes les politiques. Elle est prétentieuse,
@@ -2522,8 +2162,6 @@ craint l'inquiétude. Elle craint, elle redoute plus que
 mieux le silence, une tranquillité basse. Si on pouvait
 “2 _ s'arranger moyennant un silence entendu, acheter la
 
-DA CSS
-Charles Péguy re
 paix en livrant le bouc, payer de quelque livraison, de
 : quelque trahison, de quelque bassesse une tranquillité j
 précaire. Livrer le sang innocent, elle sait ce que
@@ -2552,12 +2190,8 @@ historiquement, organiquement pour ainsi dire elle sait n.
 ce que ça coûte. Sa mémoire, son instinct, son orga- À
 nisme même, son corps temporel, son histoire, toute sa :
 mémoire le lui disent. Toute sa mémoire en est pleine. 4
-70 À
-k $
 
-D ©
 x Etes NOTRE JEUNESSE
-F Eee
 _ Vingt, quarante, cinquante siècles d'épreuves le lui -
 “4 disent. Des guerres sans nombre, des meurtres, des
 déserts, des prises de villes, des exils, des guerres
@@ -2590,7 +2224,6 @@ tant de fois payé pour tout le monde, pour nous. Si
 É. coups pendant. Les plus merveilleux soldats peut-être |
 | Eee
 
-Charles Péguy ee à 1
 du grand Napoléon, ceux de la fin, ne provenaient-ils 3
 pas généralement de bandes de déserteurs et d'insoumis
 que les gendarmes impériaux avaient poussés, menottes É
@@ -2602,7 +2235,6 @@ le prix de ne pas fuir. Campés, entrés dans les peuples |
 = modernes, ils voudraient tant s'y trouver bien. Toute
 la politique d'Israël est de ne pas faire de bruit, dans ]
 le monde (on en a assez fait), d'acheter la paix par un :
-silence prudent. Sauf quelques écervelés prétentieux, É
 que tout le monde nomme, de se faire oublier. Tant de +
 meurtrissures lui saignent encore. Mais toute la î
 mystique d'Israël est qu'Israël poursuive dans le monde 4
@@ -2621,12 +2253,7 @@ bleu, une ancienne contusion, une douleur sourde, la #4
 : mémoire d'une douleur sourde, une cicatrice, une bles-.
 sure, une meurtrissure d'Orient ou d'Occident. Ils ont 4
 les leurs, et toutes celles des autres. Par exemple on a 4
-; 72 3
-LL del
-CEE, id
 
-a : :
-DU -NOTRE JEUNESSE ‘ £
 se | meurtri comme Français tous ceux de l'Alsace et de la 2
 | Lorraine annexée.
 Te C'est bien mal connaître la politique juive, au moment
@@ -2656,11 +2283,8 @@ F toute, et sous des victoires apparentes, sous des aspects
 É fois nous fâmes vaincus par les antidreyfusistes dreyfu-
 É.  sistes; qu'aujourd'hui enfin nous sommes en train
 LE. d'être vaincus par les deux ensemble.
-“#44
-A 73 jeunesse. — 5
 xt Le
 
-È Charles Péguy $ 4
 ils se méfiaient. Prévoyaient-ils ce tumulte énorme,
 cet énorme ébranlement. On ne prévoit jamais tout. En à
 tout cas ils n'aiment pas soulever des tumultes.
@@ -2691,9 +2315,7 @@ Ils reconnaissent l'épreuve avec un instinct admirable, 1
 avec un instinct de cinquante siècles. Îls reconnaissent,
 ils saluent le coup. C'est encore un coup de Dieu. La -
 ville encore sera prise, le Temple détruit, les femmes F
-74 ÿ
 
-Re . NOTRE JEUNESSE
 _  emmenées. Une captivité vient, après tant de captivités.
 2 De longs convois traîneront dans le désert. Leurs
 14 cadavres jalonneront les routes d'Asie. Très bien, ils
@@ -2710,7 +2332,6 @@ maître intérieur. son
 4 moi, si la vie m'en laisse l'espace, je considérerai comme
 & une des plus grandes récompenses de ma vieillesse de
 & pouvoir enfin fixer, restituer le portrait de cet homme +
-2 à extraordinaire.
 a - J'avais commencé d'écrire un portrait de Bernard-
 : _ Lazare. Mais pour ces hommes de cinquante siècles il
 4 faut bien peut-être un recul de cinquante ans. D'énormes
@@ -2723,11 +2344,7 @@ _ disait encore alors, dans le théâtre, dans les contes,
 —.. dans les nouvelles, dans le livre, dans la nouvelle, dans
 F2 k … le recueil, dans le conte, dans le fatras, dans le journal,
 € 3 Dons la politique, dans toute la misère temporelle, venu
-LL 95
 
-TEE
-
-Charles Péguy 2 F4 “A UE, É
 au quartier, comme tous les jeunes gens de ces pays-là, 4
 un jeune juif du Midi, d'Avignon et de Vaucluse, ou des _
 Bouches du Rhône, ou plutôt du Gard et de l'Hérault. 1
@@ -2760,9 +2377,7 @@ donné. Comme un homme qui gagnait sa vie, qui 4
 gagnait ce qu'il pouvait, qui gagnait ce qu'il gagnait. D
 Par conséquent comme un homme que l'on méprise. 3
 Comme un homme à la suite. Peut-être comme un É
-Poe Fe. .
 
-354 _ NÔTRE JEUNESSE |
 Se agent d'exécution. Israël passe à côté du Juste, et le
 ï ER méprise. Israël passe à côté du Prophète, le suit, et ne
 | le voit pas.
@@ -2790,8 +2405,6 @@ _  mune), fut la situation faite à Bernard-Lazare aussitôt
 2 après le déclanchement et le triomphe apparent, le ‘
 _ faux triomphe de l'affaire Dreyfus. La méconnaissance à
 520 totale, l'ignorance même, la solitude, l'oubli, le mépris
-
-Charles Péguyr +.
 
 où on le laissa tomber, où on le fit tomber, où on le fit
 périr. Où on le fit mourir. î
@@ -2827,7 +2440,6 @@ vécut et mourut pour eux comme un martyr. Il fut un .
 prophète. IL était donc juste qu'on l'ensevelît prématu- À
 rément dans le silence et dans l'oubli. Dans un silence \
 fait. Dans un oubli concerté. 3
-;
 
 A0 nr NOTRE JEUNESSE
 # 11 ne faut pas lui alléguer sa mort. Car sa mort même
@@ -2842,7 +2454,6 @@ coûté un peu plus. C'était un homme qui avait la main
 | ouverte.
 Seulement il faudrait peut-être considérer qu'il était .
 3; sans prix.
-ee
 à Car il était mort avant d'être mort. Israël une fois de
 L plus, Israël poursuivait ses destinées temporellement
 4 éternelles. Il est extrêmement remarquable que le seul
@@ -2859,9 +2470,7 @@ D: Parole, et que le seul homme qui l'ait dit fut M. Édouard
 4 mort, n'ait jamais figuré que dans un journal ennemi.
 de Je ne parle pas des cahiers, dont il demeure l'ami
 4 x intérieur, l'inspirateur secret, je dirai très volontiers, et
-D. ï 79
 
-Charles I PÉLUNMENEE A: #4
 très exactement, le patron. En dehors de nous, je dis £ :
 très limitativement, comme on dit dans le droit, en É
 dehors de nous des cahiers, il n'y a que M. Édouard 4
@@ -2870,7 +2479,6 @@ Drumont qui ait su parler de Bernard-Lazare, qui ait 9
 Les autres, les nôtres se taisaient dès avant sa mort, à
 se sont tus depuis avec un soin, honteux, avec une s
 perfection, avec une patience, avec une réussite extra- ï
-ordinaire. à
 Eu il était mort avant d'être mort. 4
 Ils avaient comme honte de lui. Mais en réalité :
 c'étaient eux qui avaient honte d'eux devant lui. 1
@@ -2890,14 +2498,8 @@ Change plus vite, hélas! que le cœur d'un mortel); ‘3
 #
 On demeurait alors dans ce haut de Paris où personne
 : aujourd'hui ne demeure plus. On bâtit tant de maisons 5
-partout, boulevard Raspail. M. Salomon Reïinach devait ;
 demeurer encore 36 ou 38 rue de Lisbonne. Ou un autre FA #
 numéro. Mais enfin Bernard-Lazare y passait, y pouvait Ci
-: 54
-80 “à 4
-4 Saui LENT aer in PTE
-
-RS NOTRE JEUNESSE
 
 _ passer comme en voisin, en passant. Le quartier Saint-
 
@@ -2943,8 +2545,6 @@ LE dE . loureux pour lui et pour moi, ensemble, également, car à
 
 Li ne 81 jeunesse, — 5,
 
-ARE € D
-
 Charles Péguy ne À
 
 nous sentions ensemble, également, que tout était Ë
@@ -2975,14 +2575,11 @@ inépuisable bonté il le leur laissait croire aussi, et il le +
 laissait croire au monde. Mais il m'en parlait tout Ë
 autrement, parce que j'étais son seul confident, parce
 qu'il me confiait tous les secrets, tout le secret de sa £.
-pensée. ë 4
 Il avait de l'amitié non pas une idée mystique seu- e
 lement, mais un sentiment mystique, mais une expé- °4
 82 4
 US ii LE
 
-& Se t FA o
-LR" NOTRE JEUNESSE
 66 rience d'une incroyable profondeur, une épreuve, une
 expérience, une connaissance mystique. Il avait cet
 attachement mystique à la fidélité qui est au cœur de
@@ -2991,7 +2588,6 @@ attachement mystique à la fidélité qui est au cœur de
 : qui est au cœur de l'amitié. Ainsi naquit entre lui et
 4 nous cette amitié, cette fidélité éternelle, cette amitié
 # que nulle mort ne devait rompre, cette amitié parfai-
-: tement échangée, parfaitement mutuelle, parfaitement
 £. parfaite, nourrie de la désillusion de toutes les autres,
 k du désabusement de toutes les infidélités.
 ? Cette amitié que nulle mort ne rompra.
@@ -3008,7 +2604,6 @@ D soi-même. Beaucoup de politiques peuvent trahir,
 + tiques. C'est beaucoup que les mystiques ne se tra2 hissent point elles-mêmes.
 D : Beaucoup de maréchaux ont pu trahir Napoléon. Mais
 
-arles Péguy Vo. 1
 au moins Napoléon ne s'est pas trahi lui-même. Le. 5 +2
 maréchal Napoléon n'a pas trahi Napoléon empereur. 5 Se
 
@@ -3019,8 +2614,6 @@ pour parler plus exactement, le jeudi aux cahiers. Il &.
 
 aimait beaucoup deviser avec M. Sorel. Je dois dire CARS.
 que leurs propos étaient généralement empreïints d'un = 4
-
-grand désabusement. EE:
 
 Il avait un goût secret, très marqué, très profond, et “4
 
@@ -3047,10 +2640,6 @@ enfants terribles. Deux grands enfants complices qui .
 : eussent très bien connu les hommes. : a
 
 . L'amitié qu'il avait pour ces cahiers naissants, pour | 4
-
-( RE
-
-LRÉRCTRSRES US NOTRE JEUNESSE
 
 __ moi, avait quelque chose de désarmant. C'était toute la
 ne SA sollicitude, toute la tendresse, tout le renseignement,
@@ -3094,7 +2683,6 @@ Le Il revenait vers nous comme par sa pente naturelle.
 
 K _ plus entendre parler de lui. Tout le monde le taisait,
 
-Charles Péguy 3
 Ceux qu'il avait sauvés le taisaient plus obstinément,
 plus silencieusement que tous, l'enfonçaient dans un 7
 silence plus sourd, plus obstiné. Quelques-uns, dans la
@@ -3151,7 +2739,6 @@ E Je dirai, dans ces confessions, combien il se tut. :
 
 "3 ligent et ensemble si bon, d'une si invincible, si intelli-
 
-24 : gente, si éclairée, si éclairante, si lumineuse douceur,
 : d'une si inlassable, si renseignée, si éclairée, si désa-
 É busée, si incurable bonté. Parce qu'un homme porte un
 =  binocle bien planté sur un nez gras barrant, vitrant :
@@ -3165,12 +2752,8 @@ A fallait écouter, il fallait voir cet homme qui naturel4 lement se croyait un 
 . métaphysique dominante seulement, c'était la métaphy-
 % __ sique ambiante, celle que l'on respirait, une sorte de
 
-a :
-
-.. Charles Péguy ide È
 métaphysique climatérique, atmosphérique; qui allait L
 de soi, comme d'être bien élevé: et en outre il était 3
-entendu, positivement, scientifiquement, victorieuse- F:
 | ment, que ce n'était pas, qu'elle n'était pas une méta- ;
 physique; il était positiviste, scientificiste, intellectuel, Ë
 moderne, enfin tout ce qu'il faut; surtout il ne voulait É
@@ -3201,10 +2784,7 @@ un cœur qui saignait en Roumanie et en Turquie, en 4
 Russie et en Algérie, en Amérique et en Hongrie, ?
 partout où le Juif est persécuté, c'est-à-dire, en un 4
 88 31
-s re
 
-RE 7 à
-£ 5: € NOTRE JEUNESSE
 is certain sens, partout; un cœur qui saignait en Orient et
 en Occident, dans l'Islam et en Chrétienté; un cœur qui
 _  saïgnait en Judée même, et un homme en mêmetemps
@@ -3229,7 +2809,6 @@ Le. _ Une arrière-tension, une sous-tension inexpiable. Pas
 Ci dévoré de feu, du feu de sa race, consumé du feu de
 De son peuple; le feu au cœur, une tête ardente, et le
 _ charbon ardent sur la lèvre prophète.
-Fe
 #2 _ Quand je viens en relation avec quelqu'un de nos
 Lt anciens adversaires (c'est un phénomène de plus en
 
@@ -3255,14 +2834,11 @@ masqués par les politiciens nos cahiers ne parvenaient À
 point alors auprès du grand public et qu'aujourd'hui, :
 dans le désarroi des politiciens, et sans doute pour une 4
 autre cause, et au moins même pour deux, ils y par- :
-viennent.
 La seule différence qu'il y a, c'est qu'on ne nous lisait :
 point ; et que l'on commence à nous lire. j
-:
 
 Et d'autre part il est certain que nous sommes les
 seuls, qu'il n'y a que nous qui depuis quinze ans ayons :
-tenu rigoureusement, impeccablement, infailliblement e
 cette mystique. Là était notre force. Et aujourd'hui, Ê
 obscure avec nous, ignorée avec nous, conservée avec F
 90 4
@@ -3272,10 +2848,8 @@ Et nt NOTRE JEUNESSE
 __ nous cette mystique naturellement apparaît.
 À Elle était notre force, à nous autres faibles, à nous
 - autres pauvres. La mystique est la force invincible des
-É faibles.
 ] Mais toute la différence qu'il y a, c'est qu'elle était ï
 è inconnue ; et qu'aujourd'hui, avec nous, en nous elle est
-$ connue. :
 1 C'est pour cela que je veux bien qu'il y aït une
 4 $ apologie pour notre passé, et que je La trouve très bien
 1 ë faite, pourvu qu'il soit bien entendu seulement qu'il ne
@@ -3296,10 +2870,7 @@ LE de cette politique. C'est nous qui comptons. C'est nous
 F: regrets et des soucis, qu'ils fassent des repentirs et
 É. des pénitences, laïques, qu'ils demandent et qu'ils
 L: obtiennent des absolutions, laïques, civiques, civiles et
-S à 91 À
 
-D
-Charles Péguy TRS. À
 obligatoires. Nous leur en donnerons même les for- à È
 rules. Mais nous demandons qu'ils ne les demandent
 pas et ne les obtiennent pas pour nous; qu'ils ne les Ê
@@ -3313,7 +2884,6 @@ pour les cahiers ni pour le passé des cahiers. Je ne veux E
 Je ne suis accusé de rien. F0 2
 Je ne redoute rien tant que ceci : qu'on me défende. :
 Voilà tout le désaveu que j'ai le courage de m'in- - |
-fliger.
 Je ne suis pas accusé. Nous ne sommes pas accusés. # |
 Notre affaire Dreyfus n'est pas accusée. Sous ce nom À
 commun d'affaire Dreyfus, comme il arrive si souvent 4
@@ -3331,10 +2901,7 @@ des pénitences pour la deuxième. Ou si l'on préfère, É l
 que la deuxième en fasse et en donne pour la première. 3
 Avec la première. Ensemble. Nous n'avons rien à nous ‘4
 faire pardonner. Nous ne souffrirons pas que ceux qui À
-92 : ‘4
-+ 4
 
-RE  Norke ImUNESSE :
 ee ont à demander pardon, ou qui ont le goût de demander ?
 % __ pardon, demandent pardon aussi ensemble pour nous.
 
@@ -3364,7 +2931,6 @@ L restés, c'est nous qui sommes l'âme. L'axe passe par
 # _ dessus, la politique, qui se manifestait, et que vous ne
 ‘50 _ nous ayez pas vu, que vous n'ayez pas vu le dessous,
 
-Charles Péguy RE “t
 les profondeurs, qui nourrissaient. Vous avez vu les 3
 manifestations et pendant que nous suivions les règles 4
 de notre honneur vous n'avez pas vu les forces. C'est la
@@ -3397,12 +2963,7 @@ grégations. Vingt-cinq pages. Les dernières vraiment Ë |
 qu'il ait données. Un an après il était mort ou mourait. É:
 Il faut leur faire cette justice qu'ils sortent de cette -
 94 -
-: Are S Fr 4
-Sy NII CRE
 
-A Le SE
-PARTS
-à NOTRE JEUNESSE
 4 lecture généralement stupéfaits. Ils ne soupçonnaient
 4 point qui nous étions. Et surtout ils ne soupçonnaient
 Fe point que nous l'étions dès le principe. Que nous
@@ -3451,7 +3012,6 @@ Dreyfus, élaborant la matière de la même histoire. Celle
 GS. il y avait très notamment deux affaires Dreyfus, celle :
 1e qui était sortie de Bernard-Lazare, et celle qui était
 
-Charles Péguÿ NAN |
 sortie du colonel Picquart- Celle qui était sortie du
 colonel Picquart était très bien. Celle qui était sortie
 de Bernard-Lazare était infinie. e
@@ -3483,8 +3043,6 @@ la conscience propre. On ne peut même en avoir aucune 4
 idée. Nous autres nous ne pouvons en avoir aucune :
 idée. Quand nous nous révoltons contre une autorité,
 quand nous marchons contre les autorités, au moins d
-
-Re LAS NOTRE JEUNESSE
 
 52 _ nous les soulevons. Enfin nous en sentons le poids. Au ;
 
@@ -3547,11 +3105,6 @@ E. nom de gouvernement Combes, manquait à tous les ;
 
 - séquent du gouvernement, faussait enfin la parole de
 
-É rs 97 jeunesse. — 6
-
-; a es. -
-
-Charles Péguy : 1
 l'État, s'il est permis de mettre ces deux mots ensemble, x
 Bernard-Lazare avait jugé naturellement qu'il fallait |
 acquitter la parole de la République. Il avait jugé qu'il F
@@ -3584,9 +3137,7 @@ cement, très délicatement comme à un petit imbécile 4
 d'élève. Qui n'aurait pas compris. Pensez que c'était le É.
 temps où tout dreyfusard politicien cousinait avec la 2
 Cour de Cassation, disait {a Cour de Cassation en gon- à
-98 |
 
-M : NOTRE JEUNESSE L
 # 0
 ES flant les joues, crevait d'orgueil d'avoir été historique-
 % ment, juridiquement authentiqué, justifié par la Cour
@@ -3619,7 +3170,6 @@ $ autrement. Que lui-même il ne pouvait les voir qu'en
 4 vieux singes tout nus. Nullement, comme on pourrait le
 …_ croire, d'abord, comme un premier examen, superficiel,
 
-Charles Péguy FN
 hâtif, pourrait d'abord le laisser supposer, en vieux :
 singes revêtus de la simarre et de l'hermine. On sentait 4
 si bien qu'il savait que lui Bernard-Lazare il avait fait
@@ -3652,8 +3202,6 @@ point sous un autre, sous un deuxième nom. Il voulait au È |
 moins que l'Etat fût, au moins quelques années, constant +
 É avec lui-même. L'autre voulait dire évidemment qu'il 3
 était d'un très grand prix, d'un prix suprême, d'un prix Ë
-100 &,
-SE <5
 
 M ee __ NOTRE JEUNESSE è
 | decour suprême que la Cour de Cassation eût innocenté 4
@@ -3698,9 +3246,6 @@ __ faiture, comme un abus, comme un coup de force judi- :
 É _ciaire, comme uneillégalité. En outre, avec son clair bon
 sens, bien français, ce juif, bien parisien, avec son clair
 
-20 ë 4 101 jeunesse. — 6.
-
-Charles Péguy Rd A
 regard juridique il prévoyait les difficultés inextricables
 où elle nous jetterait, qu'elle rouvrirait éternellement ;
 Vaffaire ou plutôt qu'elle empécheraït éternellement 1
@@ -3731,10 +3276,7 @@ p'aimait pas, dans la politique et dans le judiciaire. IL EL
 se rattrapait pour ainsi dire ainsi d'y aller malgré lui $
 en y étant droit malgré eux. Je n'ai jamais vu quelqu'un
 savoir aussi bien garder ses distances, être aussi distant, 4
-102 À
-AR OR UT 2 oil
 
-Li NOTRE JEUNESSE
 ne - aussi doucement, aussi savamment, aussi horizontale-
 à ment pour ainsi dire. Je n'ai jamais vu une puissance
 L. spirituelle, quelqu'un qui se sent, qui se sait une puis-
@@ -3766,9 +3308,7 @@ faciles, avoir des succès faciles, des succès diminués,
 4 dégradés, des succès qui ne fussent point du même |
 É ordre de grandeur que les combats qu'il voulait soutenir.
 # É 103 |
-LA £
 
-Charles Péguy : es É
 Deuxièmement il avait certainement une sympathie + à
 secrète, une entente intérieure avec les autres puis- :
 sances spirituelles. Sa haïne de l'État, du temporel se $
@@ -3800,8 +3340,6 @@ profanation grossière, mais plus encore, un exercice de L
 mauvais goût, un abus, l'exercice, l'abus d'une singulière 4
 incompétence. Il se sentait au contraire une secrète, ;
 
-; +
-
 Enr as REC NOTRE JEUNESSE
 
 ©  üne singulière complicité de compétence spirituelle au
@@ -3832,9 +3370,7 @@ Le quelques Juifs riches, très rares, quelques chrétiens 4
 - espèce de compagnie réduite qui traversait Paris. De >
 Be. misérables juifs étrangers, je veux dire étrangers à la
 nationalité française, car il n'était pas un Juif roumain, 4
-yet 8 ° à
 
-Charles Péguy | 6
 je veux dire un Juif de Roumanie, qui ne le sût pro- ;
 phète, qui ne le tint pour un véritable prophète. Il était
 pour tous ces misérables, pour tous ces persécutés, un
@@ -3867,14 +3403,11 @@ encore dans son lit. Cet athée, ce professionnellement
 athée, cet officiellement athée en qui retentissait, avec e
 une force, avec une douceur incroyable, la parole éter- 3
 nelle; avec une force éternelle; avec une douceur éter- É
-106 à
 
-4 ë : NOTRE JEUNESSE È
 __ nelle; que je n'ai jamais retrouvée égale nulle part
 4 ailleurs. J'ai encore sur moi, dans mes yeux, l'éternelle
 ; bonté de ce regard infiniment doux, cette bonté non
 4 pas lancée, mais posée, renseignée. Infiniment désa-
-- busée; infiniment renseignée; infiniment insurmontable
 1 elle-même. Je le vois encore dans son lit, cet athée
 4 ruisselant de la parole de Dieu. Dans la mort même
 tout le poids de son peuple lui pesait aux épaules. Il ne
@@ -3902,8 +3435,6 @@ plus laquelle des deux se nomme laquelle, jusqu'à ce
 ke que je ferais un grand journal et qu'on travaillerait ici.
 # 107
 
-. à 4
-Charles Pégdÿ + © 0 000
 J'avais des plans. Il en était loin, de faire un grand 4
 journal. Les journaux des autres se faisaient, des autres |
 mêmes, à condition qu'il n'y fût pas. Je revois encore
@@ -3937,8 +3468,6 @@ maladie approchait de sa consommation. Une profonde, 5 4
 affection fraternelle pensait déjà à lui faire, à lui pré- à
 parer une mort qui ne fût point la consommation de à
 108 4
-
-4 ae 27 : NOTRE JEUNESSE
 
 | cette cruauté, qui fût plus douce, un peu adoucie, qui
 É _ n'eût point toute la cruauté, toute la barbarie de cette
@@ -3988,7 +3517,6 @@ L nait sur les dernières listes. J'étais assis au long de son
 
 # 109 jeunesse. — 7
 
--‘ Charles Péguy ; DR.
 lit à gauche au pied. A sa droite par conséquent. Ji
 parlait de tout comme s'il dût vivre cent ans. Il me
 demända comment je venais. Il me dit, avec beaucoup
@@ -3996,7 +3524,6 @@ d'orgueil, enfantin, que le métro Amsterdam était
 ouvert. Ou quelque autre. Il se passionnaït ingénument
 pour tout ce qui était voies et moyens de communica-
 . tions. Tout ce qui était allées et venues, géographiques,
-topographiques, télégraphiques, téléphoniques, aller
 et retour, circulations, déplacements, replacements, É
 voyages, exodes et deutéronomes lui causaïit un amoncellement de joie enfantine inépuisable. Le métro parti- 4
 culièrement lui était une victoire personnelle. Tout ce
@@ -4060,10 +3587,6 @@ D. mois auparavant, quand on avait essayé de l'envoyer,
 ee était allé d'hôtel en hôtel. Il était heureux comme un
 + enfant. Jusqu'à ce qu'il trouva une espèce de petite
 
-:4
-5 III
-
-Charles Pégaÿ SERRE
 maison de paysan; qu'il me présenta dans une lettre .:
 comme le paradis réalisé. Et d'où natureliement il 4
 revint rapidement, il rentra à Paris. Il me l'avait dit F
@@ -4071,7 +3594,6 @@ alors, dans un de ces mots qui éclairent un homme, un À
 peuple, une race. Voyez-vous, Péguy, me disait-il, je ne ;
 commence à me sentir chez moi que quand j'arrive dans pe
 un hôtel. Il le disait en riant, mais c'était vrai tout de : ï
-niéme. ‘
 |
 ) En somme, dans l'action, dans la politique, puisqu'il :
 À en faut une, puisqu'il fallait y descendre, il était parti- : 4
@@ -4092,7 +3614,6 @@ Et je l'écoutais. J'étais assis au pied de son lit à gauche 4
 comme un disciple fidèle. Tant de douceur, tant de n
 mansuétude dans une si cruelle situation me désar- 4
 112 4
-4 E<
 
 tes _ -NOTRE JEUNESSE
 Re _ maït, me dépassait. Tant de douceur pour ainsi dire
@@ -4125,8 +3646,6 @@ Le l'âme hellénique ont été deux grands morceaux de
 “_ avancées de la mort. Et c'est déjà beaucoup. Et je
 voyais brüsquement les avancées des au delà de la 4
 
-S # è
-Charles Pégur se
 mort. Pour mesurer la profondeur, la nouveauté d'un tel
 mot, l'âme éternelle, et même l'âme juive, et l'âme
 hellénique, il faut savoir à quel point, avec quel scrupule religieux ces hommes, les hommes de cette géné-
@@ -4157,9 +3676,6 @@ reprise. Nous ne prévoyions pas, hélas, que cette 2
 reprise n'en serait que la plus basse dégradation, un ?
 détournement total, un détournement grossier de la à
 mystique en politique. Nous en parlions. Lui, dans son L.
-c 114 L :
-
-RE - NOTRE JEUNESSE
 
 rx lit, m'en parlait doucement. Je vis rapidement qu'il
 
@@ -4195,12 +3711,6 @@ Fe voudrait étudier, considérer, connaître un mouvement ;
 
 A vement religieux était d'essence chrétienne, d'origine
 
-“4 i 115
-
-Der:
-LRU T D
-
-Charles :PÉgU 2 REP ER É
 chrétienne, qu'il poussait de souche chrétienne, qu'il 4
 
 coulait de l'antique source. Nous pouvons aujourd'hui ï
@@ -4248,7 +3758,6 @@ pas anticiper sur ce qui est le propre des confes- 754
 sions. Mais il est incontestable que dans tout notre À
 socialisme même il y avait infiniment plus de chris- 4
 
-D An: NOTRE JEUNESSE
 pe tianisme que dans toute la Madeleine ensemble avec
 
 _ Saint-Pierre de Chaillot, et Saint-Philippe du Roule,
@@ -4299,12 +3808,6 @@ b On pourrait même dire que l'affaire Dreyfus fut un
 
 pe beau cas de religion, de mouvement religieux, de com-
 
-De. 117 jeunesse. — 7.
-
-= Lux,
-
-Là 206 CCR ESS NS + 27
-Charles Péguy 4
 mencement, d'origine de religion, un Cas rare, peut- Ë |
 être un cas unique. qe |
 _ La mystique dreyfusiste enfin fut pour nous essen- ;
@@ -4333,9 +3836,6 @@ héros. Et plus précisément des héros à la française. E
 (La preuve, c'est que nous ne nous en sommes pas 2
 relevés, que nous ne nous en sommes pas retirés). à
 ; (Toute notre vie peut-être nous serons des demi-soldes). 3
-à 118 $ 4
-
-LRU ES NOTRE JEUNESSE
 
 À Il faut bien voir en effet comment la question se posait.
 
@@ -4407,10 +3907,7 @@ mouvions aisément, naturellement à la montée, en pleine 74
 bataille, combien nous y bataiïllions aisément, naturelle- 53
 ment, comme chez nous, et combien nous nous y sommes ‘4%
 même attardés. Et combien au retour, à la descente. =
-: 120 4
-LT re N SSI TETE
 
-Su +8 Ne NOTRE JEUNESSE
 nous l'avons retrouvé aisément, combien rapidement
 à | nous nous y sommes retrouvés chez nous. Mais ce qui
 j À _ est incontestable c'est que cette courbe, dans ces sou- |
@@ -4443,7 +3940,6 @@ ne _ des politiciens. Comment on perd une bataille qui :
 4 É ration, inévitable, qui vient du temps, des générations
 suivantes, qu'on nomme proprement l'histoire, la posi-
 
-3 Charles Péguy :
 tion, l'acquisition de l'histoire. Quand nos ennemis, |
 quand nos adversaires nous reprochaïent d'être le parti
 äe l'étranger, ils avaient totalement tort, absolument
@@ -4474,11 +3970,7 @@ pas nous déshonorer. Ils pouvaient nous faire perdre pe
 nos biens, ils pouvaient nous faire perdre la liberté, ils 3
 pouvaient nous faire perdre la vie, ils pouvaient nous :
 faire perdre la terre même de la patrie. Ils ne pouvaient ee:
-5 122 ;
 
-ER
-
-Re . NOTRE JEUNESSE
 __ pas nous faire perdre l'honneur. Au contraire quand
 _ Jaurès, par une suspecte, par une lâche complaisance à
 4 tout le hervéisme, et à Hervé lui-même, à Hervé per-
@@ -4509,9 +4001,7 @@ s Jaurès, que c'est Jaurès qui par sa détestable force po-
 4 été, sous le nom de M. Combes, le véritable maître de
 à la République. « Quand Jaurès, disait déjà Bernard4 Lazare dans cet admirable dossier, dans cet admirable
 E mémoire, dans cette admirable consultation, datée de
-BEA - à
 
-Charles Péguy PASS À
 Paris, 6 août 1902, quand on voulait que la loi ;
 Waideck eût un effet global, et qu'elle eût un effet 4
 rétroactif, Quand Jaurès se présente devant nous pour
@@ -4538,15 +4028,12 @@ furent les derniers des criminels, qu'ils furent des cfimi- #
 nels au deuxième degré. S'ils n'avaient fait que leur poli- à
 tique, pour ainsi dire professionnellement, s'ils n'avaient Æ
 fait qu'exercer leur métier de politiciens, ils pouvaient A
-n'être coupables qu'au premier degré, criminels qu'au Ÿ
 premier degré. Mais ils voulaient en même temps con- 3
 server tous les avantages de la mystique. Et c'est cela -
 -_ très précisément qui constitue le deuxième degré. Ils à
 voulaient bien en même temps trahir la mystique et en “4
 même temps non pas seulement s'en réclamer, non pas . Er
-ù 124 #
 
-e À NOTRE JEUNESSE
 s £ seulement s'en revêtir et s'en servir et apparaître avec,
 __ mais continuer à l'exciter. Ils voulaient, ils entendaient :
 s: jouer le double jeu, ils voulaient jouer ensemble les
@@ -4576,10 +4063,7 @@ E notre titre, il intercalait le dreyfusisme et l'affaire |
 3 Dreyfus d'une part dans l'antipatriotisme, politique,
 J É dans l'antipatriotisme hervéiste, dans la politique anti-
 # _ patriotique, hervéiste, dans l'agitation, dans la démane 125
-Rae :
 
-re
-Charles Péguy >
 gogie antipatriotique, hervéiste, quand il l'intercalait À
 d'autre part dans cette autre démagogie politique, dans }
 ja démagogie antichrétienne, il atteignait, il touchait, 3
@@ -4612,10 +4096,7 @@ tiellement figure d'un impolitique, d'un homme qui #
 était comme chargé de nous représenter, de nous E.
 transmettre dans la politique. Au contraire c'était un s.
 politicien qui avait fait semblant d'être un professeur, à
-; 126 ;
 
-rs: ;
-À NOTRE JEUNESSE
 | qui avait fait semblant d'être un intellectuel, qui avait
 ù fait semblant de travailler et de savoir travailler,
 | d'avoir un métier, qui avait fait semblant d'être des
@@ -4641,7 +4122,6 @@ dans les mains. Il ne rirait peut-être pas toujours.
 adjuration de Bernard-Lazare condamné, de Bernard-
 à Lazare destiné, quoi de plus redoutable que ce témoi4 gnage, redoutable par sa mesure même. Quand Jaurès,
 
-Charles Péguy | ONE
 écrivait Bernard-Lazare, se présente devant nous pour 4
 soutenir une œuvre qu'il approuve, à laquelle il veut à
 collaborer, il doit, parce qu'il est Jaurès, parce qu'il 1
@@ -4675,7 +4155,6 @@ ce point la certitude, avoir conscience à ce point qu'une -
 conscience d'homme était un absolu, un invincible, un 4
 éternel, un libre, qu'elle s'opposait victorieuse, éternel
 128 0
-+ 2
 
 me É : NOTRE JEUNESSE
 lement triomphante, à toutes les grandeurs de la terre.
@@ -4708,11 +4187,7 @@ _ accepter les dogmes formulés par l'État ensei- |
 gnant, que les dogmes formulés par l'Église. |
 Nous n'avons pas plus confiance en l'Université ;
 _ qu'en la Congrégation. » Mais il faut que je m'arrête
-à “ape à 129 |
-D j {
 
-l Ë » à SRE
-Charles Pégur 3
 de citer. Je ne peux pourtant pas citer toute cette E
 admirable consultation, citer tout un cahier dans un $
 cahier, refaire les cahiers dans les cahiers, mettre tout 1
@@ -4739,14 +4214,8 @@ façon, elle-même ou contrefaite. %
 Comment ne pas noter aussi son exact, son parfait, ;
 son réel internationalisme, Israël excepté, l'exactitude, FE
 l'aisance, l'allant de soi de son internationalisme, qui était 3
-beaucoup trop simple, beaucoup trop naturel, nullement É-
-appris, nullement forcé, nullement livresque, beaucoup 4
 trop aisé, beaucoup trop allant de soi pour jamais 3
-É
-a 130
-3 >
 
-Ne NOTRE JEUNESSE
 être un antinationalisme. Quand il parlait des Polonais
 pour les Bretons, ce n'était point un amusement, un
 rapprochement piquant. Ce n'était point un jeu d'esprit
@@ -4773,18 +4242,14 @@ posé, mesuré, clair, noble, français. Il ne faut pas
 recevoir des justifications semblables. Une certaine proposition, un certain propos. Une certaine délibération.
 Un certain ton, une certainerésonance cartésienne même.
 Apolog'ie pour Bernard-Lazare. — Nourris, abreuvés
-4 + 131
 
-Charles Péguy ae |
 de notre mystique, la déformant, la dégradant aussitôt,
 la détournant instantanément en politique nos politiciens, Jaurès en tête, Jaurès le premier, créèrent cette
 double illusion, politique, premièrement que le dreyfusisme était antichrétien, deuxièmement qu'il était |
 
 - antifrançais. Il faut s'arrêter quelques instants à la |
-deuxième.
 Notre socialisme même, notre socialisme antécédent, |
 à peine ai-je besoin de le dire, n'était nullement anti- |
-français, nullement antipatriote, nullement antinational. |
 Il était essentiellement et rigoureusement, exactement |
 international. Théoriquement il n'était nullement anti- |
 | nationaliste. Il était exactement internationaliste. Loin
@@ -4805,8 +4270,6 @@ encore, sans aucun doute, par l'invention, par linter- ,
 vention, par l'intercalation du sabotage, qui est une |
 invention politique, au même titre que le vote, plus 4
 132 3
-+
-à
 
 Re is É # NOTRE JEUNESSE
 encore que le vote, pire, je veux dire plus politique, plus
@@ -4839,9 +4302,7 @@ E s'agissait point, comme nos politiciens syndicalistes Ë
 E- socialisme était essentiellement et en outre offcielle4 ment une théorie, générale, une doctrine, une méthode
 x _ générale, une philosophie de l'organisation et de la
 réorganisation du travail, de la restauration du travail.
-e. 133 jeunesse. — 8 y
 
-Charles Péguy = É
 Notre socialisme était essentiellement et en outre offciellement une restauration, et même une restauration
 générale, une restauration universelle. Nul alors ne le
 contestait. Mais depuis quinze ans les politiciens ont
@@ -4875,7 +4336,6 @@ travail, par la restauration du travail et de la dignité É
 134 4
 
 BRENT ER EU NL PE Je à . ne
-Se NOTRE JEUNESSE
 _ du travail, par un assainissement, par une réfection
 & organique, moléculaire du monde du travail, et par lui
 de tout le monde économique, industriel. C'est ce que
@@ -4904,9 +4364,7 @@ F, sortira point, qu'il ne s'en tirera point à moins d'une-
 À , Et que toutes les difficultés de l'Église viennent de là,
 s. 2 toutes ses difficultés réelles, profondes, populaires : de
 4 _ ce que, malgré quélques prétendues œuvres ouvrières,
-E. 135
 
-* Charles Péguy PSS +
 sous le masque de quelques prétendues œuvres ou- E
 ._ vrières et de quelques prétendus ouvriers catholiques, É:
 de ce que latelier lui est fermé, et de ce qu'elle est £
@@ -4970,9 +4428,7 @@ E monde moderne, que dans le monde moderne la chré-
 20 plus aucunement; qu'ainsi elle n'est plus socialement un
 FE. _ peuple, un immense peuple, une race, immense; que le
 a _ christianisme n'est plus socialement la religion des pro-
-+ +, 137 jeunesse. — 8,
 
-Charles Pégur Be Ê
 fondeurs, une religion peuple, la religion de tout un ;
 peuple, temporel, éternel, une religion enracinée aux
 plus grandes profondeurs temporelles mêmes, la reli- 3
@@ -5004,7 +4460,6 @@ charité qui a fait la défaillance, la déchéance, dans 1
 l'Église, dans le christianisme, dans la chrétienté même À
 qui a fait la dégradation de la mystique en politique. à
 -On mène aujourd'hui grand bruit, je vois qu'on fait :
-138 ;
 
 ‘ges NOTRE JEUNESSE
 
@@ -5041,8 +4496,6 @@ peuple à moins que de faire, elle aussi, elle comme tout
 révolution industrielle, pour dire le mot d'une révolu-
 É tion temporelle pour le salut éternel. Tel est, éternelle-
 
-Charles Péguy Ro es .
-ment, temporellement, (éternellement temporellement
 et temporellement éternellement), le mystérieux assu- ;
 jettissement de l'éternel même au temporel. Telle est e
 proprement l'inscription de léternel même dans le
@@ -5075,9 +4528,6 @@ au'aux moelles, bourgeois et fils de bourgeois, rentiers É:
 et fils de rentiers, pensionnés du gouvernement, pen- |
 siornés de l'État, fonctionnaires, pensionnés des autres, #
 
-140 |
-: 4
-
 |
 Mines A ‘  NOTRE JEUNESSE
 20 des autres citoyens, des autres électeurs, des autres
@@ -5089,7 +4539,6 @@ Le outragée. Dans un besoin ils renieraient Joinville, |
 4 comme trop grossier, comme trop peuple. Le sire de
 ; Joinville. Ils renieraient peut-être bien saint Louis.
 | Comme trop roi de France.
-=. 5 "
 1 Il faut faire les frais temporels. C'est-à-dire que nul,
 | _ … füt-ce l'Église, fût-ce n'importe quelle puissance spiriRe tuelle, ne s'en tirera à moins d'une révolution tempo-
 % relle, d'une révolution économique, d'une révolution
@@ -5108,7 +4557,6 @@ risible si ce n'était aussi profondément triste. Ce con4 cert, cette collusion
 ; ï intellectuel, le solennel, le glorieux appareil. Ainsi tout
 r le monde y gagne, car ça ne coûte plus rien, ça ne
 
-Charles Péguy 4
 coûte plus aucune révolution économique, industrielle, _%
 sociale, temporelle, et nos bourgeois de l'un et l'autre 4
 côté, nos capitalistes de l'un et l'autre bord, de l'une et #
@@ -5145,10 +4593,6 @@ tution, un transfert, un transport, une transposition +
 merveilleuse. Un déplacement perfectionné. Les intel- #
 à lectuels sont enchantés. Voyez, s'écrient-ils, comme À
 
-£
-
-Et ë 7e Se :
-
 Hiver? $ NOTRE JEUNESSE
 
 _ nous sommes puissants. Nous en avons une tête. Nous
@@ -5179,13 +4623,8 @@ Le monde clérical bourgeois affecte de croire que ce
 1 sont les raisonnements, que c'est le modernisme céré-
 4 bral qui est important uniquement pour n'avoir point à
 k dépenser une révolution industrielle, une révolution
-4 économique.
 A. Tel étant notre socialisme, et cela ne faisait alors
 
-E 143
-
-a
-Charles Péguy M
 aucun secret, comme cela ne faisait aucun doute, il est j |
 évident que non seulement il ne portait aucune atteinte
 : et ne pouvait porter aucune atteinte aux droits légitimes |
@@ -5217,9 +4656,6 @@ bourgeois et capitaliste qui a commencé, mais il est
 devenu rapidement presque total. Et il est si je puis dire +
 : entré dans le monde bourgeois comme une seconde race. 4
 - Il est fort loin au contraire d'avoir pénétré aussi pro144 “4
-* 2
-
-LRU NOTRE JEUNESSE :
 
 | fondément dans le monde ouvrier, à cette profondeur,
 aussi totalement. Et surtout il n'y est pas du tout le même.
@@ -5249,9 +4685,6 @@ d'une profondeur incroyable, à cet amour séculaire du
 
 bourgeois et capitaliste est presque tout entier, pour
 
-k 145 jeunesse. — 9
-
-Charles Pégüy DO:
 ainsi dire tout entiér consacré au plaisir. On trouverait !
 ‘encore un très grand nombre d'ouvriers, et non pas à
 “ seulement des vieux, qui aiment le travail. s
@@ -5277,8 +4710,6 @@ suivre. Et faire suivre. Nous voulions qu'un assaïnisse- |
 ment du monde ouvrier, remontant de proche en à
 proche, assainît le monde bourgeois et ainsi toutela
 _ société, toute la cité même. Et il s'est produitaucontraire, en fait il s'est produit qu'une démoralisation du  …
-; 146 | ..
-É #4
 
 nn.  NOTRE JEUNESSE
 monde bourgeois, en matière économique, en matière
@@ -5309,8 +4740,6 @@ sens aussi artificielle qu'a pu l'être par exemple cette
 
 Es _ autre invention des Universités Populaires.
 
-M
-
 # Ce serait une erreur de croire qu'il n'y a que le bien,
 l'effort au bien, la morale qui soit artificielle. Le mal,
 
@@ -5318,7 +4747,6 @@ l'effort au bien, la morale qui soit artificielle. Le mal,
 
 l'effort d'avilissement, de contamination peut aussi bien
 
-3 être artificiel. Appris. F
 3 Autant que personne je sais combien ces efforts d'in-
 
 __  struction et de moralisation, ces Universités Populaires
@@ -5329,10 +4757,6 @@ __  struction et de moralisation, ces Universités Populaires
 
 Rs: ss d'en haut sur le monde ouvrier, étaient factices,
 
-FE
-
-25 £
-Charles Péguy : Û Ë
 vides, vains; creux; combien ils ne rendaient pasetne
 pouvaient pas rendre. Combien ils étaient artificiels, 3
 * superficiels. Mais ce que je veux dire, c'est que au contraire, par contre les enseignements du sabotage étaient
@@ -5361,10 +4785,7 @@ sacrifier sa foi et ses mœurs au maintien de sa paix à
 économique et sociale. 4
 C'est là proprement ce modernisme du cœur, ce mo- n
 dernisme de la charité, ce modernisme des mœurs. -5+
-148 ;
-à 2
 
-5 NOTRE JEUNESSE
 À Il y a deux sortes de riches : les riches athées, qui
 : _ riches n'entendent rien à la religion. Ils se sont donc
 mis à l'histoire des religions, et ils y excellent, (et
@@ -5391,10 +4812,7 @@ française, l'office français même. L'assainissement de ce
 ; l'ordination de ce qui est désordre, l'organisation de ce
 3 ; qui est brut. Faut-il noter combien ce socialisme à base
 : de générosité, combien cette générosité claire, combien
-Fi 149 à
 
-de LE RE |
-..:! Charles PES ER
 cette générosité pleine et pure était dans la tradition | 4
 ._ française; plus que dans la tradition française même,
 ! plus profondément, dans le génie français. Dans
@@ -5423,10 +4841,6 @@ de l'hervéisme, de la démagogie hervéiste. C'est sans -4 1
 aucun doute M. Jaurès, nul autre, ce sont les louches D.
 - conversations, les intrigues, les compromissions, les 3
 négociations de groupes et de congrès, de parti et = 2
-À 150 ; Be 3
-
-CEE LS AUS F SE RS Enr Rs RTE Dent PUTe NN DNA SIT
-DU  : NOTRE JEUNESSE |
 
 | d'unification, ce sont les troubles ententes, les avances,
 
@@ -5465,12 +4879,10 @@ F: homme, par cette invention qu'il avait faite du com- :
 ER È devint autorisé, il devint authentique, il devint (comme) £
 = _ un membre, et secrètement à beaucoup près le plus
 
-. : Charles Péguy LABS
 redouté, du' gouvernement de la République. Par j
 Jaurès, par le jauressisme, par le combisme, c'était le 3
 gouvernement même pour ainsi dire qui recevait, qui :
 
-. endossait Hervé. à :
 Cela étant, il faut serrer de plus près, d'un peu plus
 près, il faut serrer au plus près cette affaire Hervé. Il +
 faut bien voir ce que cela veut dire, ce qu'il y avait #
@@ -5497,7 +4909,6 @@ n'était pas un traître. Autant que je me rappelle
 ou enfin qui prétendaient qu'il était un traître. Ce
 152 3
 
-Ke .  NOTRE JEUNESSE
 ee: n'était pas nous. Autant que je me rappelle. Nous nous
 prétendions qu'il n'était pas un traître. Les uns et les -
 | autres, autant qu'il me souvienne, nous avions un
@@ -5531,9 +4942,7 @@ qui prouve que les uns et les autres nous étions
 3 d'abord, d'autant plus qu'on nous le contestait. Nous
 2 l'étions ensuite frénétiquement, peut-être avec une
 # æ ne 153 jeunesse, — 9.
-Dé he
 
-É .. Charles Péguy Æ FE T4 DER
 : sorte de rage, parce qu'on nous le niait publiquement,
 et surtout peut-être parce que notre situation géogra- ;
 : phique dans la carte mentale et sentimentale, parce ; « que les circonstances, les événements historiques nous 2
@@ -5551,7 +4960,6 @@ plus la même. Elle en était une tout autre, infiniment È.
 autre, parce que le langage même était autre, infini- S E
 ment autre, parce que le plan même du débat n'était 4
 plus le même. Hervé est un homme qui dit : Il faut À
-è trahir. “4
 | Nommément il faut trahir militairement. “34
 Les antidreyfusistes professionnels disaient : Il ne À
 faut pas être un traître et Dreyfus est un traître. Nous 3
@@ -5564,7 +4972,6 @@ Jaurès même : 1! faut étre un traître. 7
 Nommément il faut être un traître militaire. 4
 - Par cet entraînement de proche en proche, par cette .
 sorte de dérapage de proche en proche, par cette déri- 4
-154 Re”
 
 Pre  NOTRE JEUNESSE A
 __  vation, par ce détournement, par ce déglinguement
@@ -5599,7 +5006,6 @@ F. pourquoi le défendre. Par une sorte de gageure, de Ë
 L_  défendrait d'avoir fait ce que précisément il fallait :
 É: faire : c'est bien de l'honneur, c'est bien de la poli44 tesse. C'est trop poli pour être honnête. S'il faut être
 
--° Charles Pégur PES
 ua traître militaire, Dreyfus a eu les plus grands torts $
 :_ de ne le point être. Et on le défendrait précisément F:
 d'avoir fait ce qu'il faut faire. On dirait : Il n'a pas 1
@@ -5632,9 +5038,7 @@ forment avec elle le premier ban; puis les cinq cent : E.
 soixante-seize mille hommes de l'armée territoriale; : - 1
 puis les sept cent cinquante et un mille hommes de %
 la réserve de l'armée territoriale, qui forment avec +
-156 ee
 
-‘a NOTRE JEUNESSE
 ë elle le deuxième ban; sans compter le premier et le
 £ deuxième ban des volontaires; et si on ne l'arrête il
 fusillera aussi les troupes noires, de récente formation,
@@ -5666,8 +5070,6 @@ Voilà ce que Hervé dirait, s'il était logique et s'il
 la conséquence, quelle est sur notre situation histo- à
 rique la répercussion de ce changement de situation
 # géographique. Quand je dis nous, naturellement je
-Ë 157
-: >
 
 42 Charles Péguy ee re de.
 veux dire notre parti, nos politiciens. Car il ne s'agit “2
@@ -5763,7 +5165,6 @@ quand je reçois un bon coup de pied dans le derrière,
 
 5 pour mon derrière, qui me vaut cet honneur. Un bon
 
-Charles Péguy
 coup de pied dans le Xinterland, dans mon Hinterland. 4
 .Et quand je pense qu'il y a des gens qui disent que je n'ai 4
 * pas de fond. Je hais mes amis. J'aime mes ennemis. On 3
@@ -5791,15 +5192,11 @@ tionne, il n'y a pas un exemple que j'aie trahi mes 1
 ennemis. C'est vous dire que j''excelle dans tous les +
 sentiments politiques. On ferait un beau roman de À
 l'histoire des soumissions que j'ai faites à notre cama- À
-rade, au citoyen Hervé.
 Ce vice, secret, ce goût secret que j'ai pour l'avanie. a
 J'encaisse, j'encaisse. Ce goût infâme que j'ai pour ‘4
 l'avanie. Pour le déshonneur, de l'avanie. Je suis E
 Jhomme du monde qui reçoit, qui encaisse le plus
-160 ;
 
-di, $
-ER DE NOTRE JEUNESSE
 ; 3 d'avanies. A mon banc. Dans mon journal même. A
 
 ; mon banc Guesde n'en rate pas une. Il ne manque
@@ -5834,11 +5231,6 @@ temps de cet exercice, (et je ne parle pas seulement,
 
 Ë j'agis en outre, j'agis en dessous), (j'excelle dans le traF- 161
 
-$ à
-
-Ce
-
-_ Gharles Péguy Re Ë
 s< vail des commissions, dans les (petits) complots, oi Es 1
 . les combinaisons, dans le jeu des ordres du jour, dans F2
 - les petites manigances, dans les commissions et compro- 4
@@ -5869,9 +5261,7 @@ l'ai fait et je le fais au syndicalisme. C'est encore le À
 radicalisme que j'ai trahi le moins. Il n'y a que le à É |
 combisme que je n'ai jamais pas trahi du tout. E :
 Je crois Jaurès très capable de trahir tout le monde, 2540 |
-162 Fe : 4
 
-D  * , - - NOTRE JEUNESSE
 _  etles traîtres mêmes. Mais ici encore il souffrira que
 1 56 _ nous ne l'accompagnions pas. Pour deux raisons, nous
 ‘ti > _ aussi. La première est assez basse et je m'en excuse
@@ -5902,9 +5292,6 @@ E. du tout toujours à quoi elle aboutit, ce qu'elle rend.
 P. - Ce qu'elle est.
 Le. Quand une fois on a lâché, une fois qu'on a rendu la
 _ main, on ne sait plus jusqu'où elle se rend. | !
-DA : » +
-
-Charles Péguy 4
 
 Deuxièmement, et celle-ci est une raison de bonne
 
@@ -5916,7 +5303,6 @@ mêmes. On n'a jamais le droit de trahir, personne. Les :
 
 ; traîtres, il faut les combattre, et non pas les trahir. £.
 1 3
-x
 Hervé même, qui fait tant le fendant depuis que ça D
 lui rapporte, fût-ce des mois de prison, et des années, Ÿ
 È quatre années aujourd'hui, mais c'est toujours un rap- 4
@@ -5951,8 +5337,6 @@ dans le sentier. .
 164 4
 
 3 4
-
-PR NOTRE JEUNESSE
 
 % Le hervéisme a ainsi dénaturé en retour, déformé en
 
@@ -6002,14 +5386,8 @@ tage, il créa en arrière cette illusion que le dreyfusisme
 
 de la désorganisation industrielle, de la désorganisation
 
-nationale.
-
 S. Nous fâmes des héros. Il faut le dire très simplement,
 
-k 165
-GATE
-
-Ÿ “t Fr 4 7 TE ete SENS CN ES
 car je crois bien qu'on ne le dira pas pour a na 22
 - très exactement en quoi et pourquoi nous fûmes des ‘4
 . héros. Dans tout le monde où nous circulions, dans tout E
@@ -6042,7 +5420,6 @@ commencées depuis toujours. Toute la vie sociale. Toute _
 la vie du cœur, enfin tout. Deuxièmement le deuxième 2 4
 courage, plus difficile, le courage intérieur, le courage
 
-D ©
 Dee Ets NOTRE JEUNESSE
 Fort _ secret, s'avouer à soi-même en soi-même qu'il était :
 “5 innocent. Renoncer pour cet homme à la paix du
@@ -6073,15 +5450,8 @@ $ vertus militaires. En nous et non point, nullement dans
 % l'État-Major de l'armée. Nous étions, une fois de plus
 Re nous fûmes cette poignée de Français qui sous un feu
 # Be ; 167
-FE “< :
-
-Charles Péguy
 
 écrasant enfoncent des masses, conduisent un assaut,
-
-- . enlèvent uñe position.
-
-!
 
 Comment nos ennemis, comment nos adversaires le
 
@@ -6095,10 +5465,8 @@ Comment nos ennemis, comment nos adversaires le
 jureraient leurs grands dieux, si je puis dire, qu'ils n'ont |
 jamais été aussi indisciplinés. Les gens sont tous et si
 profondément intellectualistes qu'ils aiment mieux
-trahir, se trahir eux-mêmes, trahir, abandonner, renier
 leur histoire et leur propre réalité, renier leur propre
 grandeur et tout ce qui fait leur prix, tout plutôt que de
-renoncer à leurs formules, à leurs tics, à leurs manies |
 intellectuelles, à l'idée intellectuelle qu'ils veulent avoir |
 d'eux et qu'ils veulent que l'on ait d'eux.
 
@@ -6116,10 +5484,7 @@ avec les hommes de ce parti, on (dé)montrerait peut-
 être aisément, on en viendrait, je crois, rapidement à
 
 - poser qu'ils sont et surtout qu'ils se croient les grands
-168 ; #
 
-Fe : NOTRE JEUNESSE
-E
 Ë ennemis du parti intellectuel et du monde moderne,
 j mais qu'en réalité ils sont eux-mêmes une certaine sorte
 _ de parti intellectuel et de parti moderne. Très notamment un parti de logiciens, un parti logique. C'est ce
@@ -6148,8 +5513,6 @@ je crois, moi, que c'est une opération purement intellectuelle, un phénomène 
 
 | 169 jeunesse. — 10
 
-Bees .
-
 ne Charles Pégur RE: à
 domination intellectuelle, une sorte de report de l'intel-
 = lectuel sur la mémoire même, une introduction de
@@ -6158,7 +5521,6 @@ ombre portée, sur la mémoire, de l'idéation intellec- ;
 Pa tuelle) il croit se rappeler que l'affaire Dreyfus a été 3
 < Ë préparée de toutes pièces, qu'elle a été comme montée è
 4 dès l'origine, dès le principe, par le parti intellectuel. £
-& 2 ;
 ë Il obéit aïnsi, il obéit ici à la plus grande illusion :
 intellectuelle peut-être, je veux dire et à celle qui est la
 À plus grande en nombre, en quotité, la plus nombreuse,
@@ -6180,10 +5542,7 @@ regard de profondeur; essai de substitution totale du ÿ
 regard de perspective, à deux dimensions, à la connaissance réelle à trois dimensions d'un réél, d'une réalité k
 - à trois dimensions; illusion d'optique, illusion de |
 regard, illusion de recherche et de connaissance que
-170 J x
-PORT Nr
 
-MERS PRE :
 | j'essaie d'approfondir lui-même, entre toutes les illu- CR
 sions, (car elle est capitale, et d'une importance capitale), dans ma thèse de la situation faite à l'histoire
 se dans la philosophie générale du monde moderne;
@@ -6213,9 +5572,7 @@ Pc. montages de détail, il faut qu'ils soient bien immédiats, #4
 … presque instantanés, qu'ils précèdent de bien peu è
 _ lefet. Autrement la déconvenue s'intercale. Napoléon Ne
 æ sans doute a bien monté Austerlitz. Mais il ne le mon- É ;
-Que . À
 
-Charles Pégu |
 tait pas le jour du 18 Brumaire. Et pourtant il était un
 _ autre préparateur, un autre monteur que le parti intel-
 - lectuel]. C'est la plus fréquente, la plus générale erreur
@@ -6234,7 +5591,6 @@ erreur historique, la commune erreur intellectuelle en
 matière d'histoire, que de reporter, en toute affaire historique, sur les vertus des fondateurs l'ombre portée des |
 abusements des profiteurs. 3
 Les fondateurs viennent d'abord. Les profiteurs vien- Ë
-, nent ensuite. è $
 On peut préparer toute une carrière, toute une vie, |
 on ne peut pas la monter. On peut préparer une guétre, à
 une révolution, (et encore), (il faut être beaucoup, et
@@ -6245,8 +5601,6 @@ bataille de rues, et encore. Mais au milieu de la ligne, ;
 - de la série, comme toujours, on ne peut pas monter à
 distance dans le détail une affaire. On peut monter une ;
 
-4 x
-4 NOTRE JEUNESSE
 journée, un coup d'État, une émeute, un coup de force.
 : D'une préparation, d'un montage immédiat. On ne peut
 pas monter à quelque distance, au milieu, de loin, d'ensemble une aussi grosse affaire. Ou si on la montait
@@ -6274,11 +5628,7 @@ Fr de singulièrement gros hommes, d'action, d'un rude
 grands réalistes, des maîtres. Enfin tout ce que préci-
 ; sément nous leur nions. Ils seraient des Richelieu et des
 k Napoléons. Ils seraient peut-être, sans doute des tyrans
-FE:
-c- 173 jeunesse. — 10.
-2È
 
-RÉ EATe. _ Charles Pégur Fe SE 7 5 ïe É
 . encore. Mais'ils seraient des grands tyrans, des tyrans à
 . considérables, des maîtres, des réalistes. Tout ce que 4
 précisément nous leur nions. Ils seraient des tyrans
@@ -6303,11 +5653,8 @@ les fondateurs, et c'est Hervé qui en un sens a été un n.
 profiteur. Il n'eût point atteint en quelques jours, en. :
 - “quarante-huit heures, cette sorte non pas seulement de 1
 réputation, de célébrité, mais de gloire propre qu'il a #
-174 RE
 
 el en Da PO te ce a en re 24
-DR 7 . NOTRE, JEUNESSE
-Lie INSEE re
 __ s'ilne s'était pas fondé sur nos propres, sur nos lentes
 __ fondations, s'il n'avait pas profité, abusé de nos :
 EE | grandes préparations. Nos adversaires feraient bien, rs
@@ -6341,12 +5688,8 @@ D. le même signe. Alors que, passant au contraire, elle
 une opération _intérieure, purement arbitraire, elle
 7 ba change de signe. On la fasse arbitrairement changer de
 
-= Charles Péguy 4
 . signe. Le grief que l'on devrait faire à Hervé, c'est 1
 précisément celui-là que l'on nous fait à nous son 4
-contraire.
-;
-: É
 Ils commettent une erreur non pas seulement du même x
 ordre, mais de la même tribu, de la même gens, une »
 erreur voisine, alliée, une erreur apparentée, une erreur
@@ -6370,9 +5713,7 @@ cette affaire Dreyfus fut commencée, fut engagée par À
 quelques forcenés contre la résistance, contre la répro- +
 bation du parti, contre les résistances sourdes ou
 = avouées, contre le silence et la peur et l'activité politique du parti. Le parti (politique) intellectuel ne s'y :
-176 . à
 
-NOTRE JEUNESSE
 É engagea lui-même que quand il crut que l'heure des
 dépouilles était venue.
 Il ést certain qu'il y a eu une trahison au moins dans
@@ -6403,10 +5744,7 @@ ce qu'ils ne peuvent pas compter, ce qu'ils ne connais-
 , sent pas, ce qu'ils ne peuvent pas se représenter, ce
 qu'ils ne soupçonnent pas, ce qu'ils ne peuvent pas
 1 même supposer, c'est combien de Juifs ont été irrévo-
-‘4
 
-_: + Charles Péguy dr a.
-3 es PR ANT : r 72
 . cablement enveloppés dans le désastre de l'affaire: Hi
 : Dreyfus, combien de Juifs ont été les victimes, les
 . réelles victimes, et sont demeurées les victimes de ee
@@ -6441,8 +5779,6 @@ ST un abime de non communication. Le dernier des serfs 4
 était de la même chrétienté que le roi. Aujourd'hui il 54
 178 0
 
-MARS -  NOTRE JEUNRSSE :
-
 ; How a plus aucune cité. Le monde riche et le monde
 
 _ pauvre vivent ou enfin font semblant comme deux
@@ -6476,14 +5812,9 @@ L- maltraités autant que nous, plus que nous. Car ils s'en
 | Comme nous ils sont des demi-soldes, ils sont et
 4 ils seront toute leur vie dans cette situation ingrate
 à de demi-soldes qui n'auraient point fait de grandes
-D. campagnes historiques. ;
-pe
 55 Ce qu'il faut dire, c'est qu'un État-Major de juifs et de
 > chrétiens a trahi des troupes excellentes de juifsetde
 
-17 Free 4
-
-Charles Péguy +
 chrétiens. Et ce qu'il faut dire aussi, c'est que c'est toujours comme ça.
 
 ES Voici exactement ce que je veux diré de Bernard-
@@ -6499,19 +5830,13 @@ z dans cette dépêche, ce n'en est point seulement la
 sécheresse et la brièveté. C'est à quel point de telles
 1 dépêches passent aujourd'hui inaperçues. Ce que je
 veux dire, c'est que sous Bernard-Lazare elles ne pas-
-Ë saient point inaperçues.
 ; Le même Temps, — du mercredi 15 juin 1910 : Les
 ; travaux de la Douma. — On a déposé sur le bureau de
 . l'Assemblée un projet de loi tendant à abolir la séquestration des juifs dans des quartiers spéciaux. Ce projet
 ! a l'appui de 166 députés de l'opposition et de quelques
-octobristes.
 - Dans le Matin du dimanche 12 juin 1910,carilyena
-L 180
 
-:
-RU No: NOTRE JEUNRSSE : Ps
 | presque tous les jours : Les droits électoraux de la 3
-Los Pologne russe. — Saint-Pétersbourg, 11 juin. — ke
 % _ Dépêche particulière du « Matin ». — La Douma a voté e à
 3 aujourd'hui une loi créant des zemstvos électifs dans #
 six provinces du sud-ouest et assurant aux paysans un A ES
@@ -6528,7 +5853,6 @@ exclus, sauf comme employés. ; 5
 _ Polonais de la majeure partie de ces droits: mais g.
 ê l'opposition, soutenue par les octobristes, a imposé ces 3
 | | amendements. 4
-: É
 3 Dans le Matin du lundi 13 juin 1910 : Six mille k
 k. israélites sont expulsés de Kieff. — Saint-Pétersbourg, ; É
 < _ 12 juin. — D'après la Rietch, près de six mille israé- 1
@@ -6542,9 +5866,7 @@ circulaire qui accordait à tous les israélites alors à RAR
 he rester. Tous les israélites pouvant prouver qu'en 1906 3
 ils résidaient légalement à Kieff sont laissés tranquilles; S- à
 : | mais ceux au contraire qui s'y trouvaient alors illéga- k $
-ne ; 181 jeunesse. — 11 ss :
 
-Charles Péguy
 lement tombent sous le coup d'arrétés d'expulsion.
 ” Chaque jour, de nouveaux groupes de victimes sont
 - chassés de la ville. (Times.)
@@ -6556,7 +5878,6 @@ un boycottage turc des marchandises grecques. C'est
 ç Constantinople, 12 juin. — Les bateliers de Salonique,
 qui pour la plupart sont des israélites, (c'est encore
 moi qui souligne), ont décrété le boycottage des
-steamers grecs.
 : Ici cependant, l'agitation antigrecque semble devenir
 moins violente et on espère que le gouvernement
 prendra les mesures nécessaires pour empécher toute
@@ -6565,7 +5886,6 @@ peuple, qui a toutes ses querelles, propres, et qui |
 | - épouse les querelles des autres, qui a toutes ses infor-
 ; tunes propres et qui épouse les fortunes et les infortunes |
 des autres. ;
-l |
 Par un mouvement parallèle, comparable, analogue, |
 assimilable à plusieurs mouvements que nous avons déjà
 $ trouvés, dans cette matière même, sur ce point même |
@@ -6574,8 +5894,6 @@ _ beaucoup plus modernes que nous. Ils sont beaucoup
 plus modernes qu'ils ne le veulent. Ils sont beaucoup
 182 -
 
-2, < 06e Es éd * : 4
-FE à NOTRE JEUNESSE
 # plus modernes qu'ils ne le croient. Ils sont beaucoup
 plus enfoncés dans le monde moderne qu'ils ne le
 veulent et qu'ils ne le croient et que nous ne le sommes,
@@ -6589,7 +5907,6 @@ le monde moderne est inventé, a été inventé, monté, de
 toutes pièces, par les juifs sur nous et contre nous.
 C'est un régime qu'ils ont fait de leurs mains, qu'ils
 nous imposent, où ils nous dominent, où ils nous gouvernent, où ils nous tyrannisent; où ils sont parfaitement heureux, où nous sommes, où ils nous rendent
-parfaitement malheureux.
 
 C'est bien mal connaître le monde moderne, que de
 
@@ -6610,15 +5927,10 @@ ladie naturelle. Deuxièmement cette maladie naturelle
 
 } coup plus universelle.
 
-è
 s Nul n'en profite et tout le monde en souffre. Tout
 4 183
 un
 
-ÉCART
-
-_:, + Charles Pégur SARPÈRES î
-f RTE 1
 le monde en est atteint. Les modernes mêmes en
 ‘souffrent. Ceux qui s'en vantent, qui s'en glorifient, qui
 ‘s'en réjouissent, en souffrent. Ceux qui l'aiment le
@@ -6641,11 +5953,9 @@ sa mortelle inquiétude, son inquiétude incurable à la
 / mortelle, à l'inquiétude incurable de la race, à l'inquié-
 -  tude propre, à l'antique, à l'éternelle inquiétude.
 Il a ajouté l'inquiétude universelle à l'inquiétude
-propre.
 é Ainsi ils cumulent. Ils sont à l'intersection. Ils se
 184 4
 
-DU 7. NOTRE JEUNESSE
 “à | recoupent sur eux-mêmes. Ils recoupent l'inquiétude
 _ juive, qui est leur, par l'inquiétude moderne, qui est
 __ nôtre et leur. Ils subissent, ils reçoivent ensemble, à
@@ -6672,9 +5982,7 @@ E _ rieurs; et pour prendre tout de suite un exemple écla- :
 - qu'ils se prêtent est amplement compensé, plus que comE- pensé par cette effrayante, par cette croissante poussée
 224 de l'antisémitisme qu'ils reçoivent tous ensemble. Qu'ils
 KE: * à: ont constamment à repousser, à réfuter, à rétorquer tous È
-= TES 185
 
-Charles Péguwy
 . ensemble. Combien n'ai-je point connu de carrières de
 . juifs, de pauvres gens, fonctionnaires, professeurs, qui
 - ont été brisées, qui sont encore brisées, pour toujours,
@@ -6689,13 +5997,9 @@ mécanisme, qu'ils partagent avec nous, fraternellement,
 une misère double, une double infortune inexpiable.
 Dans cette course du monde moderne ils sont comme
 nous, plus que nous ils scnt lourdement, doublement
-chargés.
-{
-É:
 Les antisémites parlent des Juifs. Je préviens que je d
 vais dire une énormité : Les antisémites ne con-
 $ naissent point les Juifs. Ils en parlent, mais ils ne les
-connaissent point. Ilsen souffrent, évidemment beaucoup,
 : mais ils ne les connaissent point. Les antisémites riches
 Dee connaissent peut-être les Juifs riches. Les antisémites
 capitalistes connaissent peut-être les Juifs capitalistes.
@@ -6703,12 +6007,8 @@ Les antisémites d'affaires connaissent peut-être les Juifs
 d'affaires. Pour la même raison je ne connais guère que
 des Juifs pauvres et des Juifs misérables. Il y en a. Il
 £ y en a tant que l'on n'en sait pas le nombre. J'en vois
-partout.
-186 à
 #
-j
 
-D NOTRE JEUNESSE
 F Il ne sera pas dit qu'un chrétien n'aura pas porté
 3 témoignage pour eux. Il ne sera pas dit que je n'aurai ë
 f pas témoigné pour eux. Comme il ne sera pas dit qu'un
@@ -6733,11 +6033,8 @@ absolue si je puis dire que la séparation verticale de
 
 2 Dans le monde moderne les connaissances ne se font,
 1 ne se propagent que horizontalement, parmi les riches
-L . 187
 
-Charles Pégur CHAR. |
 entre eux, ou parmi les pauvres entre eux. Par couches
--. ‘horizontales. 5 S
 ; Pauvre je porterai témoignage pour les Juifs pauvres.
 Dans la commune pauvreté, dans la misère commune
 . pendant vingt ans je les ai trouvés d'une sûreté, d'une
@@ -6758,7 +6055,6 @@ nous. Dans les maladies, dans les fatigues, dans la :
 neurasthénie, dans tous les surmenages, dans cet enfer
 ÿ temporel j'en connais des centaines, j'en vois des ;
 2 milliers qui aussi difficilement, plus difficilement, plus ÿ
-18 :
 
 SEC os TR _ NOTRE JEUNESSE
 _  misérablement que nous gagnent péniblement leur
@@ -6783,8 +6079,6 @@ seulement comme un usurier, mais ce qui est un peu ;
 
 Er. : naurait-on pas dit s'il avait été Juif.
 
-&
-
 E - Jusqu'à quel point leurs riches les aident-ils. Je soup-
 
 à çonne qu'ils les aident un peu plus que les nôtres ne nous
@@ -6807,7 +6101,6 @@ Es sont durs vous dites : C'est pas étonnant, ils sont
 - _ Juifs. Quand leurs riches les soutiennent, vous dites :
 | = : 189 jeunesse. — 11.
 
-Charles Péguy
 . . C'est pas étonnant, ils sont Juifs. Ils se soutien-
 : nent entre eux. — Mais, mon ami, les riches chrétiens
 n'ont qu'à en faire autant. Nous n'empéchons pas-les
@@ -6833,7 +6126,6 @@ n'existent pas. Mais cela, c'est une autre question.
 Que n'aurait-on pas dit s'il avait été Juif. Is sont
 190 3
 
-LS NOTRE JEUNESSE
 ne victimes d'une illusion d'optique très fréquente, très
 connue dans les autres ordres, dans l'ordre de l'optique
 même. De l'optique propre. Comme on pensé toujours
@@ -6865,11 +6157,8 @@ juif. C'est une pure illusion d'optique historique, d'optique pour ainsi dire g�
 4 toute l'amplitude, tout l'angle de cette illusion, pour
 ‘4 corriger cet angle d'erreur, pour faire la correction, .
 É. les corrections nécessaires, pour nous redonner, pour
-E. 197
 
-à RSR nine RES
 ? ; Charles Péguy NE |
-3 ni + PTT r
 retrouver la ligne, la direction, pour nous redonner,
 - pour retrouver la justice et la justesse, il est un
 exercice salubre, excellent pour la justice, pour la :
@@ -6891,7 +6180,6 @@ F nous demander une fois : Qu'est-ce qu'on dirait s'il !
 L  rectifie. Combien il rend. On voit vite alors, on compte
 Æ aisément que les plus grands scandales et les plus
 : ; nombreux ne sont point des scandales juifs. Et il s'en
-faut. À
 ER Sans nous livrer délibérément ici à cet exercice,
 - n'est-il pas frappant déjà, au premier abord, que nos
 grandes hontes, nos hontes nationales, Jaurès, Hervé,
@@ -6899,10 +6187,8 @@ Thalamas, ne sont point juives, ne sont point des :
 à Juifs. Il est même très remarquable au contraire, une |
 Ë fois que l'on compte ainsi, combien peu de nos hontes
 sont juives, il est remarquable que parmi les prota- ël
-; : ë SH à 6
 
 LL La ee CHE ass 2100 nd LL de à Ne een
-€ Re à
 de NOTRE JEUNESSE : ;
 
 gonistes de nos hontes nationales il n'y a aucun Juif. ;
@@ -6925,11 +6211,7 @@ ee tième de ce que Jaurès l'a été, si un Juif avait dit À
 
 ne dirait si Thalamas était juif. j 4
 
-2e 4
-
 = Pour prendre un exemple d'épisode, tout petit, mais . :
-
-: d'autant mieux dessiné peut-être, d'autant mieux carac- Z
 
 k térisé, d'autant mieux (dé)limité, d'autant plus aisé, À
 
@@ -6956,12 +6238,7 @@ Es sans y entrer, dans l'État-Major même du dreyfusisme k
 __ Major de l'affaire Dreyfus et du parti dreyfusiste il É
 
 ë rs représentait en un certain sens, et même pour ainsi dire N
-EE PRE H
 
-18072 ne
-
-7 PEN CIRE TANT METIERS,
-- Charles Péguy 3
 £ ofBciellement, ce que l'on a nommé le parti juif. Dans Ë
 le parti politique dreyfusiste il représentait pour ainsi
 : dire le parti politique juif. Seul en outre il était d'un
@@ -6992,10 +6269,7 @@ bien le plus grand éloge que je connaisse d'un homme,
 on est surpris que cet homme politique, riche et puis-
 É sant, ait eu plusieurs fois les vertus politiques d'un
 pauvre. De quel non-Juif pourrait-on en dire autant.
-" 194 F
 
-RNA S 7
-Fa À NOTRE JEUNESSE
 4 $ De Dreyfus même, pour aller au cœur du débat, à
 | l'objet, à la personne mème, de Dreyfus il est évident
 que je n'ai rien voulu dire, que je n'ai rien dit ni rien
@@ -7025,10 +6299,8 @@ $ même qu'il a pour Dreyfus. Nous en étions presque un
 peu gênés, comine d'une découverte, toujours nouvelle,
 et comme si on nous ouvrait des horizons nouveaux,
 comme si on nous avait fait entrer dans une famille
-Ë |
 # dé ï
 
-‘ Charles Pégur ENENRRR
 sans bien nous demander notre avis, un peu inconsidé- ; 4
 - rément, un peu indiscrètement, tant nous avons pris 2
 l'habitude de ne vouloir connaître en Dreyfus que *
@@ -7037,7 +6309,6 @@ SEE public, durement comme un homme public. Laïssant de F
 côté, non seulement devant une réalité, mais devant
 une aussi saisissante, aussi tragique, aussi poignante
 réalité laissant de côté tout l'appareïl des méthodes
-prétendues scientifiques, censément historiques, laissant
 de côté tout l'appareil des métaphysiques métahistoriques notre vieux maître, assis, disait, avec des larmes
 intérieures : On dirait qu'il y a une fatalité. On dirait
 que c'est un homme qui est marqué d'une fatalité. Il ne
@@ -7060,11 +6331,8 @@ petite boutique, de cette révélation soudaine. Quand F
 nous pourrions un peu commencer d'être heureux, É
 > n'était-ce point le mot même, le cri d'Israël, plus qu'un É
 symbole, la destination même d'Israël. Et en outre nous
-+ 2
 
-+5 RU CCS De Re ENS
 |
-A RE AE | NOTRE JEUNESSE
 E. x voyions passer, venant d'un historien, passant par :
 Dre: dessus un historien, par dessus les épaules d'un histo3 … rien, rompant toutes les méthodes, rompant toutes les |
 _  métaphysiques positivistes, rompant toutes les disci-
@@ -7096,9 +6364,6 @@ E problème nous soulevait, qui souleva les peuples RTE
 =. parole, sans même s'en apercevoir, tant c'était naturel, ;
 “Fe tant on voyait que c'était l'habitude, son habitude, *
 Le associant l'homme et l'œuvre, le héros et l'histoire, sa
-mn. 197 |
-
-: Charles Péguy
 
 l'objet et l'entreprise, partant déjà il nous disait s'en
 
@@ -7131,11 +6396,7 @@ Victime malgré lui, héros malgré lui, martyr malgré
 lui. Glorieux malgré lui il a trahi sa gloire. Là est la
 3 fatalité. Invitus invitam adeptus gloriam. Parce qu'il
 était devenu capitaine, parce qu'il était entré dans les |
-198 4 |
-È
 
-D Cat, d
-“M NOTRE JEUNESSE :
 ; capitaines, parce qu'il était entré dans les bureaux de
 4 VÉtat-Major cet homme fut contraint de revêtir une
 charge, une gloire inattendue, une charge, une gloire
@@ -7169,15 +6430,9 @@ niveau des vies héroïques, c'est le niveau des vies de
 
 ñ: lui il fut indigne de cette triple investiture. Historique-
 
-4 ment, réellement indigne. Insufisant ; au-dessous; inca-
-
 È pable. Impéritie et incurie. Incapacité profonde. Indigne °
 1 de ce triple sacre, de cette triple magistrature. Et ce
 
-% 199
-
-ai » : FL Ne EN PES
-3 Charles Péguy. "0008" ee 3
 quil y a de pire, ce qu'il y a de fatal, ce quilyade
 “plus tragique, c'est qu'à moins d'entrer dans son crime :
 et sous peine de participer de son indignité, de cette 1
@@ -7201,7 +6456,6 @@ Et il a perdu cette immense bataille. Et nous ne pouvons F.
 lui parler que de cela. Nous n'avons le droit que de lui e
 3 parler de cela. Nous n'avons le droit d'engager, d'ac- a 4
 cepter de lui, avec lui nulle autre conversation, aucun Ù
-. autre entretien. Nul autre propos.
 : Nous devons taire, nous devons faire taire tous nos %
 autres sentiments. Il a été constitué un homme public. Il ë
 a été constitué un homme de gloire, d'un retentissement 1
@@ -7209,11 +6463,6 @@ universel. Nous ne pouvons que lui demander compte É
 de son action publique, de ses sentiments publics, de ce
 = désastre public. Celui qui perd une bataille, en est ;
 responsable. Et il a perdu cette immense bataille. Nous É
-200 :
-: . 4
-- APT ETRES
-
-24 e RE 07 = > .: NOTRE JEUNESSE
 
 er pouvons que lui demander compte de tout ce qui
 
@@ -7240,7 +6489,6 @@ malgré lui homme de gloire. Tant d'autres ont voulu la
 : tout malgré lui. Il a eu tout ce qu'il ne voulait pas. Mais 4
 ; il faut que celui qui est investi marche. i |
 à Tant d'hommes, des milliers et des milliers d'hommes, À
-: soldats, poètes, écrivains, artistes, hommes d'action,
 
 | (victimes), héros, martyrs, tant d'hommes, des milliers
 
@@ -7268,7 +6516,6 @@ _ rien faire, malgré lui en quelques semaines il est devenu
 
 depuis la mort de notre maître Napoléon. Ce que cent |
 
-= Charles Péguy
 batailles avaient donné à l'autre, il l'a eu malgré lui. Et ;
 “il n'en était pas plus fier. C'est bien pour cela que nous *
 ne pouvons écrire et parler de lui que comme nous
@@ -7296,9 +6543,7 @@ léger. On travaille. Mais après. Il ne faudrait jamais
 manger. Dreyfus venait de revenir. Dreyfus était rentré |
 - et presque instantanément, aux premières démarches,
 aux premiers pourparlers, au premier contact tout le
-202 ri
 
-É Ù NOTRE JEUNESSE
 monde avait eu brusquement l'impression qu'il y avait
 
 | une paille, que ce n'était pas cela, qu'il était comme il
@@ -7323,11 +6568,8 @@ toute une génération. Il en est de ces grands mouvements, de ces grandes épre
 n'y a pour les peuples qu'une sorte de grandes épreuves
 temporelles, qui sont, les guerres, et ces grandes
 
-i 203
-
 #4
 
-: Charles Péguy RE F-78
 4 _ épreuves-ci sont elles-mêmes des guerres: Dans toutes
 ces grandes épreuves, dans toutes ces grandes histoires |
 c'est beaucoup plutôt la force intérieure, la violence
@@ -7360,9 +6602,7 @@ même notre affaire Dreyfus ne peut s'expliquer que
 par un besoin, le même, par un besoin d'héroïsme qui
 saisit toute une génération, la nôtre, par un besoïn de
 guerre, de guerre militaire, et de gloire militaire, par me
-204 L À
 
-Pr re # __ NOTRE JEUNESSE |
 Ris un besoin de sacrifice et jusque de martyre, peut-être,
 (sans doute), par un besoin de sainteté. Ce que nos :
 _ _ adversaires n'ont pu voir que en face, de l'autre côté,
@@ -7390,17 +6630,12 @@ gagnent leur vie en un tour de main, qu'ils n'aient point ;
 + ne le dit, et quelquefois ils se combattent, et se
 4 ë trahissent, en revanche ils se heurtent à un antisémitisme
 - aujourd'hui revenu, aujourd'hui croissant. Ce que je
-+ Eee # 205 jeunesse. — 12
-
-‘Charles Pégur 3
 
 : 4 vois, c'est que juifs et chrétiens ensemble, juifs pauvres L
 
 à et chrétiens pauvres, nous gagnons notre vie comme .
 |. nous pouvons, généralement mal, dans cette chienne
 5 de vie, dans cette chienne, dans cette gueuse de société
-
-4e moderne.
 
 Mais dans cette misère même, et à cause de cette mi-
 
@@ -7437,9 +6672,6 @@ que nous savons que nous fûmes très grands. Nous pou-
 
 2 2
 
-Are
-Er NOTRE JEUNESSE
-
 4 vons ne pas le dire aux autres, nous savons que les
 
 d autres, s'ils veulent, n'ont pas à s'occuper de nous, nous
@@ -7454,8 +6686,6 @@ nous le savons. Et surtout nous n'avons pas à dire le
 contraire et aux autres et à l'histoire.
 
 Nous voulons bien avoir été bernés, mais nous vou-
-
-lons avoir été grands.
 
 : Voilà, cher Halévy, à quel point nous en sommes;
 
@@ -7489,10 +6719,6 @@ Fe nous avons dit de l'égoïsme des riches dans le monde
 
 a moderne, de la classe riche, de l'égoïisme bourgeois.
 
-É:: : 207
-
-:
-: Charles Péguy , 3 CRE 4
 < Get égoïsme porte sur leur entendement même. Sur leur #
 vue. Même sur leur vue politique du monde politique. |
 ' li y avait un ordre sous Méline. C'était un ordre pourri,
@@ -7517,11 +6743,7 @@ vie et le salut d'un peuple, l'énorme salut de tout un É
 ; peuple. On sous-entendait : le salut temporel. Et préci-
 ; sément notre mystique chrétienne culminait si parfaite-
 ; ment, si exactement avec notre mystique française,
-5 208 : i
-Gi 2 4
-Ra 4
 
-; HAS NOTRE JEUNESSE $
 ee avec notre mystique patriotique dans notre mystique
 J | dreyfusiste que ce qu'il faut bien voir, et ce que je dirai,
 _ ce que je mettrai dans mes confessions, c'est que nous
@@ -7553,10 +6775,8 @@ passé, tout le futur, toute la promesse d'un peuple et
 4 prix infini, parce que ça ne se fait qu'une fois, parce
 - que ça ne s'obtient qu'une fois, parce que ça ne 8e
 $ : recommencera jamais; parce que c'est une réussite,
-‘4 ve 209 jeunesse. — 12.
 | LISTER
 
-: arles Pégur 2
 unique; un peuple, et notamment, nommément ce
 peuple-ci, qui est d'un prix unique; ce vieux peuple; 3
 : un peuple n'a pas le droit, et le premier devoir, le
@@ -7584,7 +6804,6 @@ l'honneur de tout notre peuple, dans le présent, c'est
 l'honneur historique de notre peuple, tout l'honneur 3
 historique de toute notre racé, l'honneur de nos aïeux, 6
 : l'honneur de nos enfants. Et plus nous avons de passé, $
-210 :
 
 à tes NOTRE JEUNESSE
 à à _ plus nous avons de mémoire, (plus ainsi, comme vous
@@ -7613,9 +6832,7 @@ continuation temporelle du peuple et de la race, du
 k pas à moins, Et nous par un mouvement chrétien
 È profond, par une poussée très profonde révolutionnaire
 F4 È et ensemble traditionnelle de christianisme, suivant en
-L 211
 
-* Charles *PÉgUP PEER ee: 10
 ceci une tradition chrétienne des plus profondes, des Et.
 ‘ plus vivaces, des plus dans la ligne, dans l'axe et "
 
@@ -7670,9 +6887,7 @@ fortuitement passait par Paris. Un ami qui était chrétien. |
 
 fond de ma province. J'ai assez de mal à gagner ma
 vie. Je ne connais rien de cette affaire. Je ne soupçon- 4
-; 212 à
 
-LA : + à NOTRE JEUNESSE
 4  nais pas l'état où je trouve Paris. Mais enfin on ne peut
 à. RE pas sacrifier tout un peuple pour un homme. Je n'eus :
 2 rien à lui répondre que de prendre un livre dans mon ee
@@ -7691,7 +6906,6 @@ d estre mesiaus. Et quant li frere s'en furent parti,
 E « mezelerie n'est comme d'estre en pechié mortel, pour
 a « ce que l'ame qui est en pechié mortel est semblable
 4 « au dyable : par quoy nulle si laide meselerie ne puet
-L 4 « estre.
 Ë 28. — « Et bien est voirs que quant li hom meurt, il
 f- « est gueris de la meselerie dou cors; mais quant li
 Là « hom qui a fait le pechié mortel meurt, il ne sait pas
@@ -7705,9 +6919,6 @@ F2 « que Diex li ait pardonnei : par quoy grant poour doit
 Ë ; . « maladie, que ce que li pechiés mortex venist à l'ame
 2 « de vous. » On voit que si pour une présentation, dans
 L " une présentation récente je me référais à ce grand chro- |
-he. LS
-
-; ‘Charles Pégu)- is
 
 ; niqueur; à ce grand chroniqueur d'un autre grand saint:
 
@@ -7736,8 +6947,6 @@ de nos actes et de nos œuvres, de nos opérations et
 
 de nos conduites, de nos âmes et de nos vies ils
 
-; effectuent incessamment, automatiquement, presque
-
 5 innocemment une traduction en langage politique,
 parlementaire, une réduction, un rabattement, une |
 
@@ -7753,9 +6962,6 @@ nations de ceux qui les suivent. Tout ce que nous
 $ disons, tout ce que nous faisons, ils le traduisent, ils le +
 214 4
 
-Æ. LYS RCE
-
-Mt:
 4 mé A NOTRE JEUNESSE
 : trahissent. 7Traducunt. Tradunt. On ne sait jamais s'ils
 à vous font plus de tort, s'ils vous dénaturent plus quand
@@ -7786,10 +6992,7 @@ dessus précisément qu'ils se fondent, c'est là-dessus
 ; qu'ils arguënt pour nous lier à leurs politiques, à ces
 politiques, pour nous interdire les autres mystiques,
 ÿ transférant ainsi, transférant arbitrairement dans le
-£ ; à 215
-vi
 
-Charles Péguy Eh
 : monde des mystiques dés oppositions, des contrariétés ;
 à qui n'existent, qui ne se produisent, qui ne jouent que
 : : sur le plan politique. ;
@@ -7816,9 +7019,7 @@ d'être républicains. Et parce que nous avons mis non |
 pas comme ces ouvriers des semaines et des mois mais
 ù quinze années de misère au service de la République,
 pour nous récompenser les politiques, les politiciens .
-! 216 : 4
 
-£ Ve HE Re co JEUNESSE ;
 | républicains nous interdiraient volontiers d'être chré- |
 Er $ tiens. Ainsi la République serait le régime de la liberté dre
 LEE de conscience pour tout le monde, excepté précisément :
@@ -7844,10 +7045,7 @@ Ls + _de nous passer de leur permission. Nos cahiers sont :
 : devenus, non point par le hasard, mais ils se sont
 . ne constitués par une lente élaboration, par de puissantes, ;
 - par de secrètes affinités, par une sorte de longue évaLS _ poration de la politique, comme une compagnie parfai- 2
-3 ss à h 217 jeunesse. — 13 ; ;
 
-‘ Dre : - ; AU ES 2 S à
-Charles Péguy ÉD. LS
 -___ tement libre d'hommes qui tous croient à quelque chose,
 : à commencer par la typographie, qui est un des plus
 : beaux art et métier. Malgré les partis, malgré les
@@ -7871,9 +7069,6 @@ Les papiers de M. Milliet que nous publierons donneront immédiatement l'impress
 peut naturellement tout donner. A partir du moment où ;
 M. Milliet m'apporta les premiers paquets de sa copie, À
 
-: 218 û E
-
-MM TL | NOTRE JEUNESSE
 un grand débat s'éleva entre nous. Il voulait toujours,
 2 par discrétion, en supprimer. Mais j'ai toujours tout
 F _ gardé, parce que c'était le meilleur. On en avait assez
@@ -7895,11 +7090,9 @@ u Pas surpris qu'un imbécile, et qui manquerait du sens s
 historique trouvât ce ton un peu ridicule. Il est passé. $
 Ces hommes, qui avaient ce ton, ont fait de grandes “
 choses. Et nous ? È
-LS
 ù Le civisme aussi paraît aujourd'hui ridicule. Civique
 F4 est un adjectif aujourd'hui qui se porte très mal. Il à
 ; __  Sonne en ique. Civique a l'air de rimer avec bourrique à
-Fa .
 CORRE « . et avec atavique. Et même avec ataxique. Que des AR
 ê . vieillards, que des malades, que des mourants se fissent 4
 (trans)porter aux urnes, évidemment ce n'est pas les” *
@@ -7930,7 +7123,6 @@ ke __: restaure, on ne restitue rien sur la dérision. Des calem- =
 À bours ne font pas une restitution de culture. J'avoue 3
 ; : que je n'arrive point à comprendre tout ce que l'on met, : # 4
 
-Fe CAO NOTRE JEUNESSE r
 e tout ce qu'il y a évidemment d'esprit dans cette graphie
 ; de Respubliquains que l'on nous répète à satiété. Cela
 | _ me paraîtun peu du même ordre que les sots de l'autre
@@ -7959,10 +7151,7 @@ pas: On pense bien ce que je veux dire. Ça ne prend
 pas comme un mordant prend ou ne prend pas sur un
 : vernis. Ça n'entre pas. Des explications, toute notre
 éducation, toute notre formation intellectuelle, universitaire, scolaire nous a tellement appris à en donner, :
-; 221 jeunesse. — 13. |
-&
 
-‘Charles Péguy RÉEL S al
 . à en faire, des explications et des explications, que nous 7
 en sommes saturés. Au besoin nous ferions les siennes.
 : Nous allons au devant des siennes, et c'est précisément
@@ -7983,7 +7172,6 @@ discuté bien abondamment, quand on eut commis bien
 abondamment ce péché de l'explication, quand tout à
 coup Michel Arnauld, un peu comme exaspéré, un peu
 comme à bout, de cette voix grave et sereine, douce et
-6 profonde, blonde, légèrement voilée, sérieuse, soucieuse -
 comme tout le monde, à peine railleuse et prête au
 combat que nous lui connaissons, que nous aimons en
 lui depuis dix-huit ans, interrompit, conclut presque
@@ -7993,67 +7181,17 @@ où ils deviendraient une menace réelle ils verraient ce ;
 que nous sommes encore capables de faire pour la :
 République, tout le monde comprit qu'enfin on venait 4
 de dire quelque chose. ;
-CHARLES PÉGUY ”
-J
 
-BR RS Te A ie DO Ale te Fe
-: RTE à AN EUX rs PA PART R SET NPC PE ENTRE ER Ne FOUR
-AE TERRES TE re nt ARE AS x SP EUROPEAN CORTE
-LEA TT SRPÉEENERRS RS CAES LR EME ï : PRET PACE
-NY SEE % AN Ur : EME £ £ 4 NAME Nes ROUE
-A  . LPS
-LT RTE : à 5
-RC QT en LT LU È 7 ARTE + 4
-sn (NUL = ; < 2 NA CS
-TE SO ANNEE RES LG MAT 7
 en ga ni 1e : RÉ TANT Er.
-TER FESSES PET EN ARE CAPOT # LE À LÉ
 Eee *LLTAPMESURAS Fe RTS FORTE - = led Ft ce TOM ET RLEE
-nr. | JA SPP TRES ME -
-EME EE NE EPS TR TORRES SE RES $ « 28
-SU Eu ue 0 SE RPRSSESE
-STÉRR FES (ER eLEr) ; AH FE ET ENEEARNOUE
 
-Re ele RE
-NE A FRAC RENE
-FRS SENS ARE TR Fe TARN A
 TA UNS PE ANT RMS Ne FREE pee.
 PAT re RS RS EN ASE A NEA Ce Re ete + TE *
-%e FE RS A re ETUDE M RES E PA ERNET EE ARE NA
 LORS ECRe RMNPRPE APR Me à SR CRE Re Les
-RU PR RES Sn Re EN ON Ur ELA NOT SPAS rh ENTER
-LINE NTI NER ARS AUIDEE A DRE PRE Ne ce SHARE
-SFPEUTEIECE C4 + w SA NET RO RES NRC RE US SENS IS
-ER 2 . SR GET SEE Le ES scie +" OO
-Meme = Fu SU SEE EEE PNR ER
-mn re ; Pos ; RMS REA TS MR Bee
 | LOTERIE VENTRE A ATEN ASE
-RS è A RC e e À CRIE
-Dos ve no
-LÉ 4e LRO SROENEMRNERRE ES
-ES SEPES S ; ; t LA ES DUREE ES SEX Ps.
-MAD TE
-De.
-TS SES CRE FA FRRÈSES EE AE TE UTAS UE
-È PARA ES : LL PSE PAIN OCTO SAS
-RS te NES
-
-D A en
 
 ee Fees Re En RO RS AU EN SES
-
-Lors PASSER : SERRE NE PE RSR TT ESS NS TR
-
-Rs PERMET LR RES He FRONT ASE TA)
-
-Le 2e s x RTS Fri R Te "
-Le " É Le VEN ' de « 10
-
-VSUSE VS LES INR
-LE ST SN RS SAR UERe
-LLC RO ; HER
 
 LE re Be CR
 
 LEE " us S ER Se NE VOS CR
-Fe

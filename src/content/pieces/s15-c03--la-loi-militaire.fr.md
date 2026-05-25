@@ -8,22 +8,13 @@ isAvertissement: false
 ocrSource: Archive.org vision OCR 2026-05-24 (see PROGRESS.md)
 wordCount: 75895
 ---
-
-FIXITÉ DES EFFECTIFS
-
-[p. 13]
-
 L'une des raisons pour lesquelles Renan s'inquiétait de l'avènement de la démocratie, c'est qu'il la tenait pour incompatible avec l'existence d'une armée qui ne serait pas une simple garde nationale, et incapable, en tout cas, d'un effort militaire persistant. Les faits ont répondu. Depuis plus de quarante années que la France est en République, aucun sacrifice n'a été marchandé à la défense nationale : hommes et argent lui ont été donnés sans compter, parfois sans compter assez. L'armée a été la constante pensée des fondateurs de la République. De nos institutions militaires, imbues de plus d'esprit scientifique, est sorti un corps d'officiers de beaucoup supérieur à ceux des régimes qui se sont succédé depuis les grandes guerres de la Révolution et de l'Empire. Quand il est apparu que, pays à faible natalité, nous ne pouvions garantir notre sécurité contre les accroissements formidables de l'armée allemande que par la prolongation de la durée du service militaire, la démocratie n'a pas hésité à rétablir le fardeau qu'elle avait allégé quelques années auparavant. L'Allemagne, d'autres encore, ne s'attendaient de notre part qu'à un geste. Nous n'ignorons aucune des imperfections de la loi du 7 août 1913. Mais, telle qu'elle est,
-
-[p. 14]
 
 cette loi n'en est pas moins un acte, un très grand acte; elle a été une victoire morale; son premier effet a été de consolider la paix; tous ceux d'entre nous qui ont apporté leur pierre à l'œuvre commune en gardent une légitime fierté.
 
 On trouvera dans cet ouvrage, avec les discours que j'ai prononcés au cours de la discussion de la loi, un commentaire et des notes qui pourront aider à fixer certains points d'histoire. Des amis, à la vérité indulgents, ont pensé qu'il y aurait quelque utilité à rédiger, à la veille des élections générales, une démonstration qui avait paru assez complète. J'aperçois un intérêt d'avenir à montrer que la défense nationale aurait pu être assurée par une loi qui eût été plus forte et moins dure.
 
 Le principe de la permanence ou de la fixité des effectifs que nous avons, M. de Montebello et moi, fait inscrire en tête de la loi, n'implique point par lui-même, comme on l'a dit à tort, la division du contingent en deux portions dont l'une reste sous les drapeaux un peu moins de temps que l'autre. L'objet de cette règle tutélaire, c'est d'empêcher les effectifs de descendre à des chiffres insuffisants. Pauvreté d'effectifs, c'est insuffisance d'instruction et de cohésion, donc valeur moindre de l'armée. Mais la règle s'accommode sans difficulté de l'égalité absolue du service. Si la société civile ou, pour parler plus exactement, si les partis politiques ne voient pas d'inconvénient à gaspiller les hommes et l'argent, l'armée ne se plaindra pas d'avoir des effectifs supérieurs à ses besoins largement calculés par ses chefs. Ce qui est sûr, c'est que, seule, une loi dominée par le principe de la permanence des effectifs permet de créer une seconde portion du contingent sans que la
-
-[p. 15]
 
 solidité de l'armure soit diminuée et, ainsi, d'alléger les charges militaires pour les familles nombreuses et pour les familles pauvres sur qui elles pèsent le plus lourdement.
 
@@ -33,8 +24,6 @@ Au contraire, notre contre-projet posait d'abord le principe de la permanence de
 
 Notre contre-projet était très simple. Les effectifs indispensables à toutes les unités ayant été déterminés par le Conseil supérieur de la Guerre dont le Gouvernement, à notre demande, avait provoqué l'avis, nous les majorions, pour parer aux déchets des deux premières années de service, et nous ne retenions de la
 
-[p. 16]
-
 troisième classe que le nombre d'hommes qui permettait de maintenir le niveau au-dessous duquel il serait interdit de descendre.
 
 Le surnombre, libérable après deux ans ou trente mois de service, aurait été d'autant plus important que des dispositions spéciales auraient déterminé un plus grand courant d'engagements volontaires et de rengagements. Nous cherchions notamment à les provoquer par l'appât des fonctions publiques. La monnaie électorale des emplois aurait été un peu diminuée ; eût-ce été un malheur ? Ces soldats à long terme auraient donné un encadrement d'une remarquable solidité.
@@ -43,15 +32,11 @@ Nous avions proposé cette rédaction qui marquait et, même, qui exagérait un 
 
 On nous accusa, assez plaisamment, de vouloir revenir aux armées de « mercenaires » et de « prétoriens ». Le fait — pourquoi n'en pas convenir ? — c'est que la faveur incontestable avec laquelle l'opinion accueillit notre contre-projet fut due beaucoup moins au principe résistant de la permanence des effectifs, qui était surtout apprécié par les militaires, qu'à l'organisation d'une seconde portion du contingent. Nous ne faisions pas désigner par le sort, arbitre évidemment impartial, mais aveugle, les soldats qui seraient mis en congé au cours de la troisième année. Mais nous les prenions parmi les jeunes gens des familles nombreuses, en commençant par les plus nombreuses, les soutiens de famille devant être libérés les
 
-[p. 17]
-
 premiers dans chaque catégorie, les uns et les autres devant être libérés, ce qui excluait toute faveur, en commençant par les plus âgés. Cela parut moral, équitable, démocratique, de grandes conséquences sociales. Le ministre de la Guerre, dont le texte fléchissait, accueillit notre contre-projet et le fit sien. La Commission de l'Armée l'adopta avec des modifications qui ne furent pas toutes heureuses. (1) Ainsi elle bouscula notre mécanisme des engagements volontaires de trois ans, volant-régulateur qui permettait de maintenir d'une façon presque constante aux mêmes chiffres la seconde portion du contingent. Elle remit au sort la désignation de la majeure partie des hommes libérables au cours de la troisième année de service. Cependant on paraissait surtout d'accord sur l'utilité d'une seconde portion du contingent. À la Commission de l'Armée, jusqu'au dépôt du rapport de M. Paté, elle ne fut contestée à aucun moment. La grande querelle de M. Jaurès et du général Legrand portait sur l'importance du surnombre ; le général l'évaluait un peu trop bas, M. Jaurès un peu trop haut.
 
 Quand la question de l'incorporation à 20 ans surgit, lorsqu'elle se poussa au premier plan et fut faussée par la préoccupation de libérer avant la fin de l'année la classe de 1910 qui le maintien sous les drapeaux avait été demandé par le Gouvernement et approuvé par les deux Chambres, il parut à un grand nombre de députés, appartenant à presque tous les groupes, et, pendant
 
 (1) Notre contre-projet a été exposé et appuyé devant le Sénat dans la séance du 6 août 1913, par M. le comte de Trévenuc dont le discours est pointé des « Très bien ! » de M. Clemenceau (Voir Officiel du 7 août).
-
-[p. 18]
 
 quelque temps, au ministère de la Guerre lui-même que l'application du mécanisme du « surnombre » à ce nouveau problème apporterait une solution à la fois honorable et pratique.
 
@@ -61,26 +46,13 @@ Cette loi plus forte et moins dure, nous pensions la tenir. Pourquoi nous a-t-el
 
 Il n'y a d'inédit dans cet ouvrage que les pages où je résume ce chapitre d'histoire parlementaire. Je tiens d'ailleurs pour assuré que la question de la deuxième portion du contingent reviendra sous peu devant les Chambres. Peut-être même se posera-t-elle devant la prochaine législature dans des conditions plus favorables qu'au cours des débats de 1913 où notre premier devoir était de faire entrer dans la loi le principe de la fixité des effectifs. La loi du 7 août appelle, au surplus, d'autres corrections qui n'ont pas échappé au Sénat,
 
-[p. 19]
-
 mais qu'il a ajournées, avec beaucoup de patriotisme et de clairvoyance. Il fallait, en effet, que le Sénat ratifiât, enregistrât simplement le texte tel qu'il lui était venu de la Chambre pour qu'aux masses allemandes qui seraient incorporées à l'automne nous fussions en état d'opposer des forces, sinon égales, au moins équivalentes. « Bien ou mal, écrivait récemment M. Clemenceau, les Chambres nous ont donné le service de trois ans. » Dans l'état actuel de l'Europe, c'est l'instrument indispensable. L'instrument est solide et il est perfectible.
 
-I
-
-LE PROJET DU MARÉCHAL NIEL
-
-[p. 21]
-
 Des collègues (1) ont bien voulu me demander mon sentiment sur les diverses solutions du problème militaire, du problème, tout différent de celui d'hier, tel qu'il se pose aujourd'hui, en présence de la formidable augmentation de l'armée allemande. Ma réponse est simple : Je voterai « le projet du maréchal Niel ».
-
-* *
-*
 
 En 1867, un an après Sadowa, trois ans avant Sedan, le maréchal Niel, ministre de la Guerre, saisit les Chambres d'un projet de loi militaire. Ce projet prenait, chaque année, la totalité de la classe, retirait au Corps législatif le vote annuel du contingent, fixait le contingent à un chiffre immuable, supprimait le remplacement, donnait un effectif de combat d'à peu près
 
 (1) Cet article a paru dans le Figaro du 1er mars 1913 ; il a été reproduit, ainsi que mon discours à Ville-d'Avray, dans mon volume l'Armée toujours prête. (Paris et Nancy, chez Berger-Levrault)
-
-[p. 22]
 
 500.000 hommes. Armée active, réserve et garde mobile fourniraient un total de 1.200.000 hommes.
 
@@ -96,8 +68,6 @@ Si le maréchal Niel avait donné sa démission de ministre de la Guerre, comme 
 
 Selon M. Émile Ollivier, l'Empereur pensa un instant à recommencer la lutte du roi Guillaume et de M. de Bismarck contre les Chambres prussiennes, — la résis-
 
-[p. 23]
-
 tance fameuse qui conduisit la Prusse à Düppel, à Sadowa, à Sedan. Rouher l'en dissuada. Sa terrible maladie de la volonté avait fait déjà, chez l'Empereur, de grands progrès. Il n'y vit clair, par accès.
 
 C'était une majorité de députés ministériels qui avait imposé à la loi tant d'affaiblissements. Si énervée qu'elle fût, la loi, en séance, fut combattue encore par la gauche. Jules Simon se déclara pour « une armée sans esprit militaire » et recommanda — déjà — le système suisse. M. Émile Ollivier dit de son propre discours qu'il comprenait des erreurs.
@@ -108,12 +78,7 @@ Au dehors, presque tous les journaux, sans distinction d'opinion, combattirent l
 
 Trois ans après, les familles furent autrement désolées, les campagnes autrement ravagées et dépeuplées.
 
-* *
-*
-
 Ce que j'appelle aujourd'hui « le projet du maréchal Niel », c'est celui sur lequel le Gouvernement engagera sa responsabilité, l'ayant fait préparer par le Conseil supérieur de la Guerre, discuter par le Conseil supérieur de la Défense nationale, que préside le Président de la République.
-
-[p. 24]
 
 À l'heure de la mobilisation générale, heure qui, selon toute probabilité, si elle doit sonner, sonnera tout à coup, aurons-nous à nos frontières, frontière de l'Est, frontière du Nord-Est, assez de soldats, de soldats instruits, pour faire respecter le territoire, défendre notre honneur et nos droits contre une agression brusque et formidable ?
 
@@ -123,17 +88,9 @@ Voilà toute la question. Il n'y a pas d'autre question. Elle est, manifestement
 
 Et ce problème, il le faut examiner en soi, rien qu'en soi, abstraction faite de toute préférence théorique pour ou contre le service à court terme, abstraction faite de toute préoccupation politique. Je ne vois pas, sans crainte, la politique commencer à obscurcir ce redoutable, mais clair problème. On peut être un très bon patriote et tenir pour le service de deux ans, un très bon républicain et tenir pour le service de trois ans. Je n'exagérerai que très peu ma pensée en écrivant
 
-[p. 25]
-
 que la question qui se pose est une question stratégique.
 
 Ce qui nous sera donc demandé — et il importe que ce soit le plus tôt possible — par les hommes qui ont la responsabilité de la défense nationale, par le Gouvernement ayant recueilli et pesé l'avis des chefs qui commanderont demain à la frontière ; ce qu'ils jugeront être le nécessaire, rien que le nécessaire, mais tout le nécessaire, je le voterai, je l'appuierai de toutes mes forces. Quel qu'il soit, le projet comportera de lourdes, de très lourdes charges. Il les comportera pour tous. Si lourdes que puissent être ces charges, elles le seront moins que celles qui pèsent, depuis quarante-trois ans, sur ce pays, parce que son Gouvernement et ses représentants ont manqué, il y a quarante-six ans, à leur devoir. On essaye de nous menacer des électeurs. C'est leur faire injure. Dirait-on vrai que le devoir n'en deviendrait que plus impérieux. Je ne serai pas un député de 1867.
-
-II
-
-À LA COMMISSION DE L'ARMÉE
-
-[p. 27]
 
 Le message du Président de la République (20 février 1913) posait en ces termes le problème militaire :
 
@@ -144,8 +101,6 @@ Le message du Président de la République (20 février 1913) posait en ces term
 Agadir avait réveillé l'esprit militaire. S'est-on exagéré, en 1913, la menace allemande ? Certainement on l'aurait enhardie à la laisser sans réponse.
 
 Une grande partie de la presse s'était prononcée, à la première nouvelle des projets allemands, pour le retour
-
-[p. 28]
 
 pur et simple au service de trois ans ; les armements nouveaux de l'Allemagne ne comportaient pas d'autre réplique (articles de M. Tardieu, dans le Temps, de M. de Mun, dans l'Écho de Paris, etc.)
 
@@ -159,8 +114,6 @@ Les membres du ministère Briand étaient pareillement divisés. Les ministres d
 
 Le lourd, le très lourd fardeau que sera le retour à la
 
-[p. 29]
-
 loi de trois ans, le peut-on imposer au pays sans une nécessité absolue, inéluctable ?
 
 Quelle responsabilité pour le Gouvernement de ne pas réclamer le service de trois ans s'il est indispensable d'y revenir ! S'il le demande et s'il ne l'obtient pas, ce sera pour la France, au dehors, une défaite morale.
@@ -173,15 +126,11 @@ Cependant l'avis du Conseil supérieur de la Guerre, si considérable qu'il fût
 
 Le projet de loi « ayant pour objet de modifier la loi
 
-[p. 30]
-
 du 21 mars 1905, notamment en ce qui concerne la durée du service dans l'armée active » fut déposé à la Chambre, par le ministre de la Guerre, dans la séance du 6 mars 1913. Il était précédé d'un exposé des motifs très complet, et de belle allure. M. Étienne en donna lecture à la tribune, sans s'arrêter aux interruptions, violentes ou grossières, des socialistes. Nos applaudissements le soutinrent contre le tumulte systématiquement organisé. Des ambassadeurs et des attachés militaires étrangers assistaient, de la tribune diplomatique, à cette scène.
 
 La Commission de l'Armée s'étant réunie avant la fin de la journée, j'exprimai l'avis qu'elle ouvrît, dès le lendemain, la discussion générale ; je la voulais complète, il ne pouvait y avoir qu'une opinion à cet égard ; mais il y avait intérêt à ne pas retarder les mesures nécessaires et à ne pas laisser le pays dans l'incertitude de nos décisions. On objecta le règlement. Le projet était déposé ; il n'était encore ni imprimé ni distribué. Aussi bien convenait-il de ne pas faire preuve de trop de hâte. La Commission, bien que déjà favorable ou parce qu'elle était déjà favorable en majorité au service de trois ans, s'ajourna au 11 mars, mais décida de siéger sans interruption à partir de cette date.
 
 Elle décida également, à la demande de M. Jaurès et de M. Augagneur, d'examiner en première ligne le projet de loi autorisant le ministre de la Guerre à engager des dépenses pour une somme totale de 500 millions de francs, en vue d'accélérer les travaux intéressant la défense nationale. La Commission du Budget ayant longuement retenu ce projet, le vote qui avait donné satisfaction à M. Jaurès, n'eut pas de lendemain.
-
-[p. 31]
 
 Le projet du Gouvernement comportait une refonte complète de la loi de 1905 ; il ne comptait pas moins de vingt-neuf articles. Quelques bons esprits avaient souhaité que le principe du service de trois ans fût présenté sous la forme d'une simple modification à l'article 33 de la loi de 1905, loi qui permettait déjà le maintien éventuel sous les drapeaux de la classe libérable, car il ne faisait doute pour personne, dans les premiers temps, que la classe de 1910 ne serait pas renvoyée. Ce projet sommaire aurait pu être voté par les deux Chambres en quelques semaines ; on aurait ajourné à une deuxième loi les modalités du nouveau régime ; le ministre de la Guerre aurait pu prendre immédiatement les mesures que nécessiterait, au mois d'octobre, la présence de trois classes sous les drapeaux.
 
@@ -189,15 +138,11 @@ C'eût été, en effet, la sagesse, mais il eût fallu obtenir des partis d'oppo
 
 La Commission de l'Armée siégea, trois ou quatre fois par semaine, jusqu'aux vacances de Pâques. Son président, M. Le Hérissé, était délégué de la Côte d'Ivoire au Conseil supérieur des Colonies ; il venait de partir pour l'Afrique. En son absence, les séances furent présidées, à tour de rôle, par les quatre vice-présidents, M. de Montebello, M. Gallois, M. Treignier et moi. M. Bénazet, député de l'Indre, et M. Paté, député de la Seine, furent candidats au rapport ; ils étaient tous deux partisans de la loi de trois ans. M. Paté fut élu au second tour de scrutin.
 
-[p. 32]
-
 La publication des procès-verbaux de la Commission, si sommaires qu'ils puissent être, lui ferait honneur. On s'est plaint de la lenteur de ses travaux. C'est lui reprocher d'avoir apporté beaucoup de conscience à l'étude du problème redoutable dont elle était saisie. La discussion, à certains égards, a été très supérieure aux débats en séance publique. On y a serré davantage les questions. M. Jaurès ne saurait s'empêcher d'être éloquent. En Commission, il arrive à son éloquence de se ignorer. Sur les sujets les plus techniques, sa puissance d'assimilation étonna parfois le général Legrand, sous-chef d'État-Major, qui suivait nos séances. Dirai-je qu'il ne peut pas s'empêcher d'être sophiste qu'orateur ? Notre principal adversaire, et toujours sur la brèche, il nous obligea à tremper plus fortement nos arguments. La Commission tira grand profit des connaissances spéciales de plusieurs de ses membres qui avaient passé par l'armée et qui opposèrent souvent à des idées ingénieuses, mais aventureuses, leur expérience et leur bon sens. Ce qui fit le plus défaut à la Commission, ce fut une direction ; des vice-présidents, alternant à chaque séance, ne pouvaient la lui donner. Quand le président, à son retour d'Afrique, reprit sa place, il trouva la Commission engagée sur notre contre-projet qui ne répondait pas à ses idées personnelles.
 
 La Commission employa sa première séance à entendre les explications du ministre de la Guerre. M. Jaurès occupa, à lui seul, toute la séance suivante.
 
 Dans la séance du 13 mars, M. Bénazet n'eut pas de peine à montrer la vanité du projet des socialistes tendant à substituer à « l'armée de caserne », comme se plaisait à dire M. Jaurès, des milices constituées sur le
-
-[p. 33]
 
 modèle suisse. La faiblesse de notre couverture avait vivement ému l'opinion ; même l'argument avait trop porté ; il ne pouvait suffire de renforcer la couverture en anémiant les compagnies de l'intérieur. Tous les moyens proposés, en dehors du projet du Gouvernement, n'étaient que des expédients.
 
@@ -211,8 +156,6 @@ L'objet principal des lois militaires allemandes a été marqué, dans une étud
 
 La même situation politique nous impose le même devoir à l'Est et au Nord-Est.
 
-[p. 34]
-
 2° Organiser et constituer nos armes montées de telle sorte qu'à toute époque de l'année, leurs effectifs en hommes instruits les mettent à hauteur de leur mission.
 
 3° Constituer les forces de campagne mobilisées de nos armées de telle façon qu'à conditions au moins égales en valeur et en armement, elles puissent se présenter sur les champs des opérations décisives des effectifs équivalents à ceux des Allemands.
@@ -222,8 +165,6 @@ Or, il est évident que, pour réaliser le premier et le second objet, la questi
 Et il n'est pas moins évident qu'à moins de renoncer au principe de l'égalité, principe qui n'est, sans doute, appliqué aux différentes armes qu'en France, le troisième objet ne peut, lui aussi, être atteint que par le service de trois ans.
 
 Depuis un an, j'avais, à trois reprises, appelé l'attention de la Chambre sur la faiblesse de notre couverture, notamment pendant la période d'hiver, après le départ de la classe, et sur les conséquences désastreuses du service de deux ans pour les armes à cheval. Le service de deux ans devait être maintenu pour l'infanterie ; mais il fallait instituer pour la cavalerie et l'artillerie à cheval le service de trois ans ou de trente mois. (Chambre des Députés, séances des 18 juin, 29 novembre et 30 décembre 1912.) Maintenant que j'appuyais le service de trois ans pour toutes les armes, la presse socialiste, M. Jaurès et M. Augagneur à la Commission, me rappelaient ces déclarations, pensant m'embarrasser. Par la suite, au cours de la discussion devant la Chambre, elles m'ont bien
-
-[p. 35]
 
 été objectées une vingtaine de fois. Je répondais régulièrement que les armements allemands constituaient un fait nouveau assez considérable pour légitimer bien d'autres changements d'opinion. Mais ma réponse ne paraissait topique, comme il arrive toujours, qu'à ceux qui partageaient mon opinion. — Je conclus en ces termes :
 
@@ -251,8 +192,6 @@ La France le comprendra-t-elle à temps ?
 
 L'opinion publique n'est pas, nous dit-on, suffisamment
 
-[p. 36]
-
 préparée à cette idée d'un retour à la loi de trois ans, elle n'en discerne pas encore la nécessité !
 
 Quand la discernera-t-elle ?
@@ -267,8 +206,6 @@ M. Augagneur, M. Jaurès réussissent à nous persuader, à nous convaincre ; et
 
 Et puis, demain, après demain — je me place sur le terrain même de l'article officieux de la Gazette de l'Allemagne du Nord — bien que l'Allemagne veuille la paix, bien que la France, la Russie veuillent la paix, tout de même, à la suite d'un incident marocain ou balkanique, la guerre éclate ; — et la fortune qui a trahi Napoléon, qui a trahi les plus justes causes, la fortune nous trahit une fois de plus, pour cette cause, cette seule cause que, sur les champs de bataille de l'Est et du Nord-Est, toute la valeur de nos troupes, toute la science militaire de leurs chefs ont été impuissantes contre la supériorité numérique de l'armée allemande, d'une infanterie plus nombreuse, d'une cavalerie plus nombreuse et plus entraînée, d'une artillerie plus abondante.
 
-[p. 37]
-
 Eh bien, je ne dis pas que la lutte serait terminée ce jour-là : la guerre, en 1870, n'a été terminée ni par les premières défaites ni par Sedan ; mais je dis que, ce jour-là, si j'avais eu la conscience d'avoir écarté les conclusions formelles, unanimes, du Conseil supérieur de la Guerre, où siègent des hommes comme le général Galliéni, le général Pau, le général Joffre, le général Marion, pour suivre dans leurs conceptions politiques ou dans leurs conceptions stratégiques M. Augagneur et M. Jaurès, je ne me le pardonnerais jamais.
 
 Il est possible que le Conseil supérieur de la Guerre se trompe dans ses conclusions. C'est pourtant l'évidence qu'à suivre le Conseil supérieur de la Guerre dans ses conclusions, je risque moins de me tromper qu'à suivre M. Jaurès ou M. Augagneur. Pour moi, il n'y a pas un doute sur le devoir.
@@ -276,8 +213,6 @@ Il est possible que le Conseil supérieur de la Guerre se trompe dans ses conclu
 J'ai dit à la Chambre, à plusieurs reprises, ma conception particulière de la réforme militaire. Pour parer à la diminution de nos effectifs d'infanterie, j'ai pensé, avec la Commission de l'Armée et avec le Gouvernement, qu'un plus solide encadrement des réserves qui joueraient désormais, dès la mobilisation, de la deuxième à la première ligne, serait un remède efficace. J'ai dit que je n'envisageais la prolongation du service actif que dans les armes à cheval et en donnant aux appelés de la cavalerie désignés par le tirage au sort ou incorporés sur leur demande et à raison de leurs aptitudes dans cette arme des avantages analogues à ceux qu'on consent aux engagés volontaires, en leur donnant en outre des primes de libération, en les inscrivant enfin en première ligne pour les emplois civils.
 
 J'ai indiqué comment, à mon sens, on pourrait
-
-[p. 38]
 
 résoudre le problème de la couverture sans avoir recours à la loi de trois ans.
 
@@ -287,15 +222,11 @@ Ce mouvement admirable d'opinion qui s'est produit depuis quelques semaines, don
 
 La discussion générale continua dans la séance du 18 mars que je présidais. Au début de la séance, le ministre de la Guerre, accompagné du général Joffre et du général Legrand, apporta les réponses aux questions qui lui avaient été posées par la Commission.
 
-[p. 39]
-
 Il insista pour le vote rapide de la loi ; son rejet serait un désastre. M. Treignier développa ensuite des observations sur les changements qu'il suffirait d'apporter à la loi de 1905 pour satisfaire aux exigences de la défense nationale.
 
 Le Sénat poursuivait depuis huit jours la discussion du projet de loi sur la réforme électorale. Pendant que la Commission de l'Armée entendait le ministre de la Guerre, M. Briand s'efforçait de démontrer au Sénat l'origine républicaine et la nécessité de la représentation des minorités, trois fois votée par la Chambre. Une politique d'apaisement s'imposait d'autant plus que le pays était « menacé dans sa sécurité par les armements des puissances voisines et inquiété par l'orientation des nouvelles forces balkaniques ». Une véhémente riposte de M. Clemenceau emporta le vote du Sénat. M. Briand avait posé la question de confiance ; battu sur le principe de la représentation des minorités, le ministère était démissionnaire.
 
 Dès que les partisans du service de trois ans furent informés du vote du Sénat, il leur parut indispensable d'obtenir, sans retard, de la Commission un vote qui marquât nettement, au moment où s'ouvrait la crise ministérielle, son opinion sur la loi militaire. La clôture de la discussion générale aurait cette signification. Il restait encore plusieurs orateurs inscrits, M. Lachaud, M. Leygues, le général Pédoya ; mais ils présenteraient aussi bien leurs observations dans la discussion des contre-projets. M. de Montebello demanda donc la clôture de la discussion générale. M. Jaurès et ses amis protestèrent vivement, déclarant que, si la clôture était prononcée, ils se retireraient de la Commission. La
-
-[p. 40]
 
 demande de clôture n'en fut que plus énergiquement maintenue par les partisans de la loi. Je la mis aux voix et elle fut adoptée par dix-sept voix contre seize.
 
@@ -309,32 +240,17 @@ Le siège de la Commission était fait ; elle repoussa les divers contre-projets
 
 Elle avait entendu, dans cette dernière séance, le nouveau président du Conseil, M. Barthou. Il avait demandé instamment à la Commission de se prononcer sur la question de principe avant de se séparer pour les vacances de Pâques. Averti des objections que soulevait le projet du ministre de la Guerre, il ne pré-
 
-[p. 41]
-
 tendait pas imposer un texte intangible, souhaitait, au contraire, une discussion approfondie, ouvrant ainsi la voie au contre-projet que nous venions, M. de Montebello et moi, de déposer. Il annonçait enfin la résolution qu'avait prise le Gouvernement de maintenir sous les drapeaux la classe de 1910. Il n'avait pas cru devoir user encore de la faculté que lui donnait l'article 33 de la loi de 1905 ; mais l'éventualité en était prévue dans le projet de loi. Le Gouvernement notifierait ses intentions à la Chambre, dès la rentrée de mai, afin que l'administration de la Guerre ait le temps nécessaire pour préparer les nouveaux casernements.
 
 La Commission s'ajourna au 24 avril.
-
-III
-
-DISCOURS
-PRONONCÉ LE 13 AVRIL 1913 AU BANQUET
-DU PARTI RÉPUBLICAIN DÉMOCRATIQUE
-À VILLE D'AVRAY
-
-[p. 43]
 
 Je ne saurais vous exprimer ma reconnaissance pour m'avoir offert de prendre la parole après cet émouvant pèlerinage des Jardies. (1) Les amis personnels de Gambetta, hélas ! disparaissent tous les jours ; mais ceux qui survivent, toujours dominés, entraînés par la voix qu'ils ont entendue, éprouvent une joie profonde à revenir chaque année dans la petite maison, entourés d'admirateurs nouveaux du grand républicain. Permettez-moi de penser que vous vous êtes souvenus de la confiance que m'a témoignée Gambetta. Ah ! celui-ci aimait la jeunesse ! Presque au sortir du collège, il
 
 (1) M. Étienne, ministre de la Guerre, et M. Pichon, ministre des Affaires Étrangères, avaient prononcé aux Jardies deux discours où ils avaient rappelé l'exemple de Gambetta et exhorté les républicains à se conformer plus étroitement que jamais à ses enseignements.
 
-[p. 44]
-
 m'admettait à collaborer à son journal, à diriger la publication de ses discours. De toutes manières il interrogeait et préparait l'avenir. Laissez-moi également imaginer que vous n'avez pas oublié qu'au travers des tourmentes de la politique je me suis efforcé de rester fidèle à ses engagements.
 
 « Tout pour la France, par la République. » Sur quel airain plus durable a-t-on imprimé la plus forte formule qui commande notre vie nationale ? À quelle heure plus qu'aujourd'hui avons-nous eu le devoir d'agir dans l'esprit et dans la lettre de cette consigne laissée par Gambetta ? (Vifs applaudissements)
-
-LES ARMEMENTS DE L'ALLEMAGNE
 
 Vous n'êtes pas de ceux qui ont pour coutume d'exagérer les dangers, qu'ils viennent du dedans ou du dehors. Mais vous avez des yeux pour voir ; vous ne fermez pas l'oreille au plus formidable fracas d'armes qui ait jamais retenti l'Europe ; avec toute l'Europe, vous vous êtes demandé quel est l'objet de cette « immense mobilisation en pleine paix » qu'est la nouvelle loi militaire allemande.
 
@@ -342,23 +258,15 @@ Le chancelier de l'Empire a donné lui-même cette explication : « L'Allemagne 
 
 Je crois, messieurs, à la parfaite sincérité de ces paroles. Peut-être ne disent-elles pas tout. Quoi qu'il en soit, dans cette Europe sur laquelle pèse depuis plus de quarante ans la paix armée la plus lourde qui fût jamais et qui va s'alourdir encore, de la Russie à la
 
-[p. 45]
-
 Belgique, il n'y a pas un pays qui ne doive les prendre à son compte. Je ne recherche pas si nous n'avons pas davantage que l'Allemagne le droit de tenir ce langage ; je dis simplement qu'ayant au moins un droit égal au sien à le tenir, nous avons le même devoir de contracter les mêmes assurances. (Applaudissements)
 
 Il n'y a pas de question qui soit à la fois plus grave et plus simple. Du fait de la nouvelle loi allemande, l'équilibre militaire, facteur essentiel de l'équilibre politique, est rompu, l'équilibre entre les effectifs des deux armées actives, cette balance des forces que les auteurs de la loi de 1905, si convaincus qu'ils fussent de leur réforme, mais sérieusement instruits des choses de l'armée, déclaraient indispensable. Dans la mesure du possible, coûte que coûte, il faut faire face au danger visible, immédiat, de ce déplacement des forces. Quel que soit le poids des charges nouvelles imposées au pays par le souci de sa sécurité et de son indépendance, il faudra qu'elles soient acceptées sans plainte comme sans forfanterie, dans le calme d'une résolution motivée. Voilà le devoir. Cependant il n'est le même pour tous qu'en apparence, il est plus pressant, plus impérieux pour le parti républicain que pour tous les autres partis, parce que c'est la République qui a assumé au lendemain du désastre, qui a conservé depuis lors et qui a mérité de conserver la charge des destinées de la patrie. (Vifs applaudissements)
 
-LE DEVOIR RÉPUBLICAIN
-
 Si nous revoyons l'histoire de la République, nous rencontrons assurément des erreurs et des fautes. Quel
-
-[p. 46]
 
 est le régime qui ait su toujours conformer ses actes à la noblesse de ses principes, qui ne les ait tantôt exagérés, tantôt méconnus ? Quel est le gouvernement qui ne se soit trompé, qui ne se soit laissé emporter à des actes de violence ou déchoir dans la faiblesse ? Seulement, messieurs, ces erreurs et ces fautes, que nous n'avons aucun sujet de ne pas avouer et que rachètent, et au delà, tant de généreuses intentions, tant d'œuvres en honorables ou glorieuses, elles ne se sont produites que dans la politique intérieure de la République ; le pays n'en a pâti qu'au dedans ; mais jamais la France, sous la République, n'a été atteinte au dehors, par la faute de la République, comme elle l'a été en d'autres temps, sous les gouvernements personnels, dans sa force et dans son prestige. (Nouveaux applaudissements)
 
 J'en appelle à ses adversaires, aux plus obstinés de ses détracteurs. L'idée de patrie n'a été consacrée dans son éclat et dans sa rigueur définitive que par la première République. Réalisant les grands desseins de la monarchie capétienne, la première République a atteint les Alpes et le Rhin. La seconde a résisté aux entraînements, à l'esprit de croisade, à la propagande, et alors que l'Europe s'attendait à ce qu'elle lui déclarât la guerre, elle lui a déclaré la paix. La troisième enfin, la nôtre, si le sort ne lui a pas permis de préserver, en 1870, l'intégrité du territoire, au moins a-t-elle sauvé tout l'honneur par la constante sagesse, par la loyauté et la fermeté de sa politique extérieure, elle a rendu à la France toute sa place dans le concert des peuples ; reprenant enfin la pensée de Colbert, comme la première République avait repris celle de Henri IV et de
-
-[p. 47]
 
 Richelieu, elle a conquis en Asie et en Afrique l'un des plus beaux empires du monde.
 
@@ -366,43 +274,25 @@ Messieurs, voilà les antécédents. Vous êtes les héritiers des hommes de Qua
 
 Je dis, messieurs, qu'il n'y a pas une conscience républicaine qui ne repousse jusqu'à l'hypothèse d'une pareille angoisse et qu'ainsi, notre devoir, à nous les républicains, est donc plus obsédant dans les circonstances présentes que celui des hommes des autres partis. Il est plus grand parce que notre responsabilité — je dis : notre responsabilité historique — est plus grande. Il est plus grand parce que Jemmapes et Valmy ont été à la fois des victoires de la Révolution et des victoires de la France et que c'est la magnifique fatalité de la France qu'elle représente pour le monde un incomparable avenir de justice et de liberté. Il est plus grand parce que c'est notre honneur de trouver confondus les intérêts de la République et ceux de la France. Mais dès lors il ne suffit pas que le gouvernement de la République ait pris résolument la responsabilité de la loi de trois ans, que le ministère d'aujourd'hui après
 
-[p. 48]
-
 celui d'hier, se soit déclaré irréductible sur la durée du service militaire. C'est le parti républicain tout entier qui doit prendre la même responsabilité, la revendiquer comme son titre le plus certain à la confiance de la nation, montrer ainsi, une fois de plus, par ses actes, qu'il n'est pas près de démériter de son passé. (Applaudissements)
 
 Mes chers collègues, si votre Commission exécutive m'a demandé de prendre aujourd'hui la parole, c'est apparemment pour que j'expose mon sentiment en toute franchise. Je m'adresse à vous avec toute la force profonde d'une conviction très réfléchie. Je n'ai jamais été plus certain qu'aujourd'hui d'être au cœur de la vérité républicaine.
-
-L'AVIS DES CHEFS DE L'ARMÉE
 
 Lorsque, en face de l'accroissement de l'armée allemande, les chefs de notre armée ont été unanimes à se déclarer pour le service de trois ans, lorsque le Gouvernement, après avoir, comme il le devait, fait valoir toutes les objections et discuté toutes les autres solutions, s'est rangé à l'avis de ces soldats, je m'interdis comme une faute de l'imprévoyance et de la légèreté de passer outre à une pareille consultation.
 
 Est-ce, d'ailleurs, un acte de foi qui m'a été dicté ? Assurément, acte de foi pour acte de foi, je n'hésiterais pas entre celui qui me serait demandé par l'expérience pratique des chefs de l'armée et celui qui peut réclamer une science théorique et purement subjective, avec toutes les séductions de l'éloquence. Mais en sommes-nous encore à démontrer les moyens d'assurer, à tout
 
-[p. 49]
-
 moment, la sécurité de nos frontières par une couverture de fer, et, à l'abri de cette couverture, la sécurité de notre mobilisation ? (Applaudissements)
-
-GAMBETTA ET LE SERVICE DE TROIS ANS
 
 On a rappelé que Gambetta s'était prononcé, en 1882, pour le service de trois ans, qu'il avait déposé au lendemain de la chute de son ministère, un projet de loi qui l'organisait, qu'il a écrit dans l'exposé des motifs de son projet : « La durée de trois ans est généralement considérée comme le minimum du temps nécessaire à l'instruction de l'ensemble des classes et à la constitution des cadres inférieurs. » Si vraies que soient restées, notamment pour les armes à cheval, certaines des raisons de Gambetta, ce ne sont pas elles pourtant qui font notre conviction présente. Notre conviction, ou pour parler plus exactement, notre certitude procède de deux faits que rien ne peut supprimer. L'Allemagne, depuis longtemps, escompte patiemment le premier : la défaillance de notre natalité. Il y a vingt ans, presque jour pour jour, que le successeur immédiat de M. de Bismarck, le général de Caprivi, disait à la Commission du budget du Reichstag : « Le danger venant de la France s'atténue chaque année, à raison de la diminution de sa population, occasionnée par le petit nombre de ses naissances. » Le second a pris l'Allemagne elle-même à l'improviste : la loi déjà virtuellement votée, la loi qui porte à peu près à 900.000 hommes les effectifs immédiatement mobilisables de l'armée qui, sans attendre ses réserves, pourra, du soir au matin, au premier appel du télégraphe, entrer en campagne.
 
-[p. 50]
-
-LA QUESTION DES EFFECTIFS
-
 Dès lors, messieurs, quelle autre solution efficace, quelle autre réplique à la loi allemande que le retour au service de trois ans ? Mesurer la distance que la loi allemande va mettre entre les effectifs de paix allemands et les nôtres ; par la loi de trois ans, complétée et allégée à la fois par le retour des employés au corps et la substitution de la main-d'œuvre civile à la main-d'œuvre militaire, vous réduisez l'écart de plus de moitié, vous ajoutez un peu plus de 200.000 hommes à notre armée active. Des avantages plus nombreux et plus marqués doivent élever encore le chiffre des rengagements. Évaluez le surcroît de sécurité et le surcroît de force que représentera la constitution de quatre ou cinq corps d'armée de couverture, dont l'effectif combattant ne sera plus, comme aujourd'hui, réduit de près de moitié à chaque départ de la classe, qui n'auront plus à compter avec angoisse les mois d'hiver où se pousse hâtivement l'instruction des recrues, mais qui, d'un bout à l'autre de l'année, pourront opposer à l'attaque brusquée de l'Allemagne, si elle vient à se produire, avec ses troupes de choc toujours prêtes, des effectifs qui ne fléchiront jamais d'un homme, et qui, eux aussi, seront toujours prêts. Considérez le surcroît de force qui viendra de la loi de trois ans à nos unités de l'intérieur comme à nos troupes de couverture ; ce n'est pas seulement le nombre des hommes sous les drapeaux qui s'en trouvera accru, mais leur qualité, leur valeur combative, quand l'instruction sera donnée, non plus à des compagnies, à des escadrons décharnés, mais à des compagnies, à des escadrons, à des batteries ration-
-
-[p. 51]
 
 nellement étoffés, dont l'effectif légal sera fixe et ne pourra être abaissé à aucun moment. Pesez enfin aux mêmes balances le surcroît de valeur qui viendra, et qui ne sera pas moins important, aux réservistes des quatre premières classes, eux aussi plus exercés, plus solidement encadrés qu'aujourd'hui dans des unités où les soldats de l'active seront en plus grand nombre, et aux sept autres classes de la réserve, elles aussi encadrées plus vigoureusement, à cette nation armée à qui l'on voudrait faire accroire que nous doutons d'elle alors que notre projet est d'utiliser au maximum, sans hasard, ses admirables qualités de volonté et d'endurance ! (Applaudissements)
 
 Tels sont les arguments qui nous décident et qui vous décideront. Ceux-là les connaissent et n'y répondent pas qui nous reprochent d'obéir à je ne sais quelles idées préconçues, à une simple vue de l'esprit, à une inexplicable poussée de réaction. Nos contradicteurs sont-ils seuls à se préoccuper de l'étendue du sacrifice qui sera réclamé de tous, sans dispense aucune, sans distinction de classe, des ouvriers et des paysans, des jeunes hommes des professions libérales et de ceux des professions manuelles, des riches comme des pauvres ? Quelle injustice, quelle mauvaise polémique ! Pourtant, nous aussi, nous avons à justifier nos actes devant les électeurs. (Mouvement prolongé)
 
-L'OPINION DU PAYS
-
 Je pourrais vous rappeler qu'il m'est déjà arrivé de préférer à mon mandat la satisfaction de ma conscience. Je ne le ferai pas, car je suis sans inquiétude devant le
-
-[p. 52]
 
 lendemain et au sujet de l'approbation du pays. Nous nous apercevrons, à mesure que les uns et les autres nous accomplirons tranquillement notre devoir, que ce devoir était aussi facile qu'honorable, et qu'il était par avance accepté par l'admirable intelligence patriotique de l'opinion. (Applaudissements)
 
@@ -410,33 +300,15 @@ La situation continuellement troublée de l'Europe ne lui a pas échappé. Quel 
 
 Il y a des lieux où toute pensée s'épure et s'élève.
 
-[p. 53]
-
 Dans l'humble maison que nous avons visitée ce matin, la grande voix de celui qui s'y est endormi ne s'est pas entièrement éteinte. Qui de vous ne l'a entendue ? S'il était là, qui peut douter du conseil qu'il donnerait ? « Et moi aussi, disait un soir le vieil empereur Guillaume, assistant à une représentation de la Jeanne d'Arc de Schiller, j'ai connu un homme qui a frappé du pied le sol et qui en a fait sortir des armées. » Armées héroïques, infortunées de d'Aurelles, de Chanzy, de Bourbaki, de Faidherbe ! Si elles avaient été de soldats exercés, ce ne seraient point les images des deux femmes en deuil qui garderaient le monument où repose le cœur de Gambetta ! (Salve d'applaudissements et cris répétés : Vive l'armée ! Vive la République !)
-
-IV
-
-CONTRE-PROJET
-PRÉSENTÉ LE 27 MARS 1913 PAR MM. JOSEPH
-REINACH ET LANNES DE MONTEBELLO
-
-[p. 55]
-
-ARTICLE PREMIER
 
 L'intitulé du projet de loi ayant pour objet de modifier la loi du 21 mars 1905 est libellé comme suit :
 
 « Projet de loi modifiant les lois des cadres de l'infanterie, de la cavalerie et de l'artillerie, en ce qui concerne l'effectif des unités, et fixant les conditions du recrutement de l'armée active et la durée du service actif et la durée du service dans l'armée active et ses réserves. »
 
-CHAPITRE PREMIER
-
 Des effectifs
 
-ARTICLE 2
-
 Les lois relatives à la constitution des cadres et des effectifs de l'infanterie, de la cavalerie et de l'artillerie sont
-
-[p. 56]
 
 modifiées comme suit en ce qui concerne l'effectif des unités : (1)
 
@@ -445,65 +317,41 @@ modifiées comme suit en ce qui concerne l'effectif des unités : (1)
 | Unités à effectif normal.. | 140 | 160 | 540 | 110 | 140 |
 | Unités à effectif renforcé. | 200 | 200 | 810 | 130 | 160 |
 
-ARTICLE 3
-
 Les effectifs fixés par les lois des cadres et des effectifs représentent les nombres au-dessous desquels le total des hommes du service armé présents dans les différentes unités ne peut être abaissé. Ces effectifs ne peuvent être modifiés que par des lois spéciales indépendantes des lois de finances.
-
-ARTICLE 4
 
 L'armée active se recrute :
 1° Par engagements volontaires et rengagements ;
 2° Par appels annuels du contingent.
 
-CHAPITRE II
-
 Des engagements et rengagements
-
-ARTICLE 5
 
 Les jeunes gens réunissant les conditions prévues par la loi de recrutement de l'armée peuvent, en temps de paix et sans limitation du nombre, contracter pour les troupes
 
 (1) Ces chiffres sont donnés seulement à titre indicatif.
 
-[p. 57]
-
 métropolitaines des engagements de quatre et cinq ans, et pour les troupes coloniales, ainsi que pour certains corps métropolitains d'Afrique désignés par le Ministre de la Guerre, des engagements de trois, quatre et cinq ans.
 
 Ils peuvent en outre, s'ils remplissent les conditions d'âge qui seront fixées annuellement par le Ministre de la Guerre, contracter des engagements de trois ans pour les troupes métropolitaines.
-
-ARTICLE 6
 
 Tous les ans, mais dans une proportion qui ne pourra pas dépasser dix pour cent de l'effectif de la dernière classe incorporée, les jeunes gens d'au moins dix-huit ans, remplissant les conditions d'aptitude physique et pourvus du certificat d'aptitude militaire institué par la loi du 8 avril 1906, seront admis, par ordre de mérite, à contracter, au moment de l'incorporation de la classe, un engagement spécial de trois ans, dit de devancement d'appel.
 
 Ces jeunes gens seront tenus d'effectuer, tous les trois ans, pendant toute la durée de leurs obligations militaires, des périodes de quatre semaines dans la réserve et de deux semaines dans la territoriale.
 
-ARTICLE 7
-
 Les jeunes gens âgés d'au moins dix-huit ans qui sont désireux d'aller se fixer, à l'expiration de leur service militaire, soit dans une colonie française, soit à l'étranger hors d'Europe et des pays limitrophes de la Méditerranée, sont admis, s'ils remplissent les conditions prévues à l'article 50 de la loi du 21 mars 1905, à contracter, au moment de l'incorporation de la classe, un engagement spécial de quatre ans — dit de devancement d'appel — pour résidence dans une colonie française ou à l'étranger hors d'Europe. Ils auront la faculté d'être mis en congé à l'expiration de leur troisième année de service, s'ils ont obtenu un certificat de bonne conduite. Dans les six mois qui suivent leur libération, ces jeunes gens devront se rendre dans une colonie française ou à l'étranger hors d'Europe et des pays limitrophes de la Méditerranée et faire certifier chaque année pendant
-
-[p. 58]
 
 cinq années consécutives leur présence dans ces pays par le Gouverneur de la colonie ou l'agent diplomatique français, suivant le cas.
 
 Les jeunes gens visés par l'alinéa précédent qui, dans les six mois qui suivront leur libération, n'auront pas justifié de leur établissement effectif dans ces pays, ceux qui, au cours de leur délai quinquennal, séjourneront plus de deux mois en France dans le courant de la même année, et ceux qui rentreront en France définitivement avant l'expiration dudit délai quinquennal seront tenus d'accomplir une quatrième année de service.
 
-ARTICLE 8
-
 Les jeunes gens qui contractent un engagement volontaire ont le droit de choisir leur arme et leur corps, sous réserve des conditions d'aptitude physique exigées pour cette arme. Toutefois, le Ministre de la Guerre aura la latitude, pour les engagements de trois ans, de désigner limitativement les corps dans lesquels les jeunes gens domiciliés dans les diverses subdivisions de région pourront contracter leur engagement.
 
 Les engagements de quatre et cinq ans sont admis à toute époque de l'année. Les engagements de trois ans ne sont reçus que du 1er au 10 octobre, du 1er au 10 janvier, du 1er au 10 avril et du 1er au 10 juillet de chaque année.
 
-ARTICLE 9
-
 Les militaires de toutes armes et de tous grades peuvent contracter, sans limitation de nombre, des rengagements de un an, dix-huit mois, deux ans, trois ans, quatre ans et cinq ans, jusqu'à concurrence d'une durée totale de quinze années de service.
-
-ARTICLE 10
 
 Peuvent être maintenus sous les drapeaux comme rengagés après quinze ans de service :
 
 1° Les militaires de toutes armes et de tous grades de l'armée métropolitaine pourvus dans les divers corps et
-
-[p. 59]
 
 services de certains emplois déterminés par le Ministre de la Guerre ;
 
@@ -512,8 +360,6 @@ services de certains emplois déterminés par le Ministre de la Guerre ;
 3° Les militaires de la gendarmerie, de la justice militaire, du régiment des sapeurs-pompiers de la ville de Paris, les cavaliers de remonte et le personnel employé dans les écoles militaires.
 
 La durée maxima des rengagements successifs que peuvent contracter les militaires ayant plus de quinze ans de service est fixée à deux années. L'âge maximum auquel ils sont rayés des cadres est de cinquante ans, à l'exception des chefs ouvriers des ateliers régimentaires et des sergents-concierges des établissements militaires qui peuvent être maintenus jusqu'à soixante ans.
-
-ARTICLE 11
 
 Tout militaire lié au service par un engagement ou un rengagement a droit à une prime proportionnelle au temps qu'il s'engage à passer sous les drapeaux en sus des trois premières années.
 
@@ -525,15 +371,11 @@ Le quart de la prime est acquis à l'engagé volontaire le jour de la signature 
 
 Le reliquat des sommes dues aux engagés ou aux rengagés sur le montant de leur prime leur sera payé, à leur choix, soit par annuités égales, soit en un seul versement, lorsque l'engagé ou le rengagé quittera le service. La partie
 
-[p. 60]
-
 de la prime constituant le dernier versement est augmentée de l'intérêt simple à 5 francs 50 pour cent.
 
 La haute paye journalière est payée au choix des intéressés soit par jour, soit par année, soit en totalité à l'expiration de l'engagement ou du rengagement.
 
 Le bénéfice des allocations prévues à l'article 22 de la loi du 21 mars 1905 pour les familles des militaires appelés est étendu, dans la même proportion, à celles des engagés volontaires pendant les trois premières années de leur présence sous les drapeaux.
-
-ARTICLE 12
 
 Les sous-officiers restant sous les drapeaux au delà de cinq années de service ont droit, à partir du commencement de la sixième année, à une solde spéciale dont les tarifs sont réglés par décret, et qui est perçue dans les mêmes conditions que celle des officiers.
 
@@ -541,19 +383,11 @@ Cette solde exclut toute autre indemnité ou allocation en nature, sauf les inde
 
 Les sous-officiers ayant accompli plus de trois ans de service et qui sont autorisés à loger en ville ont droit à une indemnité de logement dont les tarifs sont fixés par le Ministre de la Guerre suivant les localités.
 
-ARTICLE 13
-
 Les militaires liés au service par un engagement volontaire ou un rengagement peuvent, en dehors des dimanches et des jours fériés, obtenir des permissions jusqu'à concurrence de quatre-vingt-dix jours pour les trois premières années de service.
 
 Au cours de chacune des années de service à partir de la quatrième, ils peuvent obtenir une permission de trente jours en conservant leur droit à la solde de présence et à la haute paye journalière.
 
-[p. 61]
-
-ARTICLE 14
-
 Les militaires ayant accompli au moins quatre années de service ou une période de séjour aux colonies sont dispensés de la première période d'exercices de la réserve et de celle de l'armée territoriale. Ceux ayant accompli au moins cinq ans de service sont dispensés des deux périodes d'exercices de la réserve et de celle de l'armée territoriale.
-
-ARTICLE 15
 
 Les militaires de toutes armes et de tous grades qui quittent l'armée après quatre ans de services effectifs ont droit à une pension proportionnelle à la durée de leur service ; après vingt-cinq ans de service ils ont droit à une pension de retraite.
 
@@ -561,27 +395,17 @@ La pension s'ajoute toujours au traitement afférent à l'emploi civil dont le p
 
 La pension civile ou le secours auxquels pourront avoir droit la veuve ou les orphelins d'un fonctionnaire ou employé civil d'une administration publique décédé titulaire d'une pension proportionnelle au titre militaire seront décomptés sur la totalité des services tant militaires que civils du mari ou du père. Chaque année de service militaire sera décomptée à raison de un vingt-cinquième de la pension ou du secours à laquelle cette veuve ou ces orphelins auraient en droit si le mari ou le père avait accompli vingt-cinq années de services militaires.
 
-ARTICLE 16
-
 Les emplois des administrations de l'État, des départements et des communes désignés aux tableaux annexés à la loi du 21 mars 1905 sont réservés, dans les proportions indiquées par ces tableaux, aux militaires ayant accompli au moins quatre ans de service.
 
 Leur sont également réservés les emplois des Compagnies concessionnaires d'un monopole ou recevant une subven-
-
-[p. 62]
 
 tion de l'État, dans les proportions qui seront déterminées par les conventions passées entre l'État et ces Compagnies.
 
 À partir de la deuxième année qui suivra la promulgation de la présente loi, aucun de ces emplois ne pourra être donné à des candidats de moins de vingt-cinq ans, s'ils n'ont accompli au moins quatre ans de service.
 
-ARTICLE 17
-
 Une loi, qui devra être promulguée dans un délai maximum de six mois après la promulgation de la présente loi, déterminera le nombre des médailles militaires à mettre à la disposition du Ministre de la Guerre pour tenir compte de l'augmentation du nombre des militaires de tous grades remplissant ou devant remplir ultérieurement les conditions voulues pour l'obtention de la médaille militaire.
 
-CHAPITRE III
-
 Des appels annuels du contingent
-
-ARTICLE 18
 
 Tout Français reconnu propre au service militaire fait partie successivement :
 
@@ -595,11 +419,7 @@ De la réserve de l'armée territoriale pendant sept ans.
 
 Le service militaire est réglé par classe.
 
-ARTICLE 19
-
 Lorsque, à la date du 15 novembre de chaque année, les effectifs prévus pour les diverses unités à l'article 2 ci-dessus, majorés dans la mesure suffisante pour parer aux déchets définitifs (décès, réformes, etc.) et aux indisponibilités momentanées (séjours à l'hôpital, congés de convalescence, etc.) se trouveront dépassés, et jusqu'à concurrence du nombre en excédent de cet effectif ainsi majoré, le Ministre de la Guerre est autorisé à renvoyer dans leurs
-
-[p. 63]
 
 foyers, en attendant leur passage dans la réserve, les militaires appelés qui ont accompli deux ans de service, qui ont obtenu le certificat de bonne conduite et qui appartiennent aux catégories suivantes :
 
@@ -621,43 +441,23 @@ De même, lorsque, à la date du 15 avril de chaque année, l'effectif prévu à
 
 Les militaires du service auxiliaire sont renvoyés par
 
-[p. 64]
-
 anticipation, aux mêmes dates, dans les mêmes conditions et proportions que les militaires du service armé.
-
-ARTICLE 20
 
 Les militaires appelés à bénéficier de l'envoi en congé et qui renonceront à ce bénéfice jouissent, au cours de leur troisième année de service, à dater du jour où ils auraient été envoyés en congé, des avantages de toute nature octroyés, au cours de leur quatrième année de service, aux engagés volontaires de quatre ans.
 
-ARTICLE 21
-
 Les militaires envoyés en congé, en vertu des dispositions qui précèdent, peuvent à tout moment être rappelés au corps par décision du Ministre de la Guerre. Ils sont rappelés obligatoirement, avant leur passage dans la réserve, pour une période de vingt-trois jours consacrée à des exercices ou manœuvres.
-
-ARTICLE 22
 
 Dans le cas où les circonstances paraîtraient l'exiger, le Ministre de la Guerre et le Ministre de la Marine sont autorisés à conserver temporairement, en totalité ou en partie, sous les drapeaux la classe qui a terminé sa troisième année de service. Notification de cette décision sera faite aux Chambres dans le plus bref délai possible.
 
 Dans les mêmes circonstances et pendant la première année de leur service dans la réserve, les hommes peuvent être rappelés sous les drapeaux par ordres individuels avec l'assentiment du Conseil des Ministres.
 
-ARTICLE 23
-
 Les militaires appelés sous les drapeaux au titre des contingents annuels pourront, en dehors des dimanches et jours fériés, obtenir des permissions : jusqu'à concurrence d'un total de trente jours pour ceux envoyés en congé après
-
-[p. 65]
 
 deux ans de service ; de soixante jours pour ceux envoyés en congé après deux ans et demi de service ; de quatre-vingt-dix jours pour ceux accomplissant trois ans de service.
 
 Ces permissions seront réparties de façon qu'en dehors des périodes des fêtes légales, le nombre total d'hommes simultanément en permission ne puisse excéder dans chaque unité le dixième de l'effectif fixé par les lois des cadres et effectifs.
 
-CHAPITRE IV
-
-Dispositions diverses
-
-ARTICLE 24
-
 La présente loi entrera immédiatement en vigueur et sera appliquée à tous les hommes appartenant aux classes qui se trouvent sous les drapeaux au moment de sa promulgation.
-
-ARTICLE 25
 
 Une loi ultérieure fixera les modifications à apporter à la loi du 21 mars 1905 sur le recrutement de l'armée et, notamment, en ce qui concerne :
 
@@ -673,24 +473,16 @@ Les tableaux annexés à la loi du 21 mars 1905.
 
 On a vu (page 56, note 1), que M. de Montebello et moi, nous avions donné seulement à titre indicatif, dans notre article 2, les chiffres des effectifs pour les différentes unités. Bien que ces chiffres eussent reçu
 
-[p. 66]
-
 l'approbation de juges compétents, (1) c'était l'évidence que l'effectif normal des unités ne pouvait être déterminé avec une autorité qui s'imposât que par le Conseil supérieur de la Guerre ; nous demandions au Gouvernement de bien vouloir convoquer le Conseil et l'inviter à fixer les chiffres qui seraient inscrits dans la loi.
 
 La Commission de l'Armée reprit ses travaux le 24 avril, sous la présidence de M. Le Hérissé. Le Conseil supérieur s'était réuni la veille. Il avait arrêté les chiffres suivants pour les effectifs de l'intérieur et pour ceux de la couverture, effectifs minima et effectifs à l'incorporation :
-
-INFANTERIE
 
 | | Effectifs minima | Effectifs à l'incorporation |
 |---|---|---|
 | Compagnie d'infanterie de couverture... | 200 | 220 |
 | Compagnie d'infanterie de l'intérieur... | 140 | 154 |
 
-CAVALERIE
-
 | Régiment de cavalerie en France et chasseurs d'Afrique (couverture et intérieur). | 740 | 810 |
-
-ARTILLERIE
 
 | Batterie montée de couverture... | 140 | 154 |
 | Batterie montée de l'intérieur... | 110 | 121 |
@@ -701,15 +493,9 @@ ARTILLERIE
 
 (1) « D'une manière générale, ils semblent avoir été parfaitement étudiés : ils sont ceux que réclamerait toute sage réforme, soucieuse à la fois d'échapper à tout reproche de mégalomanie, d'assurer à l'armée de bonnes conditions d'instruction et de ramener à des proportions raisonnables le nombre des réservistes dans les unités mobilisées. » (Les armements allemands et la réponse française, par un officier, dans le Parlement et l'Opinion du 15 avril ; — de même, le commandant Thomasson dans Journal des Débats, etc.)
 
-[p. 67]
-
-GÉNIE
-
 | Compagnie du génie de couverture (sapeurs-mineurs, sapeurs de chemins de fer)... | 200 | 230 |
 | Compagnie du génie de l'intérieur (sapeurs-mineurs, télégraphistes)... | 140 | 154 |
 | Section de projecteurs... | 50 | 55 |
-
-AÉRONAUTIQUE
 
 | Section d'aviation... | 60 | 66 |
 | Compagnie d'aérostation... | 150 | 165 |
@@ -724,8 +510,6 @@ M. Étienne, s'étant rendu à l'appel de la Commission, fit une déclaration tr
 
 Prenant la parole après le ministre, le général Legrand déclara que l'effectif réalisé en 1913 était de
 
-[p. 68]
-
 562.000 hommes. Aux termes du contre-projet, l'effectif minimum serait de 600.000 hommes et l'effectif à l'incorporation de 658.000.
 
 La Commission prit donc notre contre-projet pour base de ses délibérations. Elle adopta, dès la séance suivante, notre article 3 (fixité des effectifs), par 16 voix contre 7, et les chiffres du Conseil supérieur de la Guerre qui furent inscrits à l'article 2.
@@ -736,23 +520,11 @@ La Chambre commença, le 2 juin, la discussion du projet de loi. M. Le Hérissé
 
 Le général Pau siégeait, avec le général Joffre et le général Legrand, au banc des commissaires du Gou-
 
-[p. 69]
-
 vernement. Ce grand soldat, mutilé d'un bras à Reichshoffen, pénétrait pour la première fois dans l'Assemblée. Il n'était pas accoutumé à l'atmosphère parlementaire. Quand M. Chautemps, rendant l'État-Major responsable de l'insuffisance dont le service de deux ans avait fait preuve dans la pratique et l'accusant d'inertie et d'incurie, lui reprocha d'avoir été hostile aux camps d'instruction, le général Pau, qui en avait été l'un des promoteurs et des plus persistants avocats, n'y put tenir, se leva à deux reprises pour quitter la salle des séances. Ses collègues, les membres du Gouvernement eurent grand peine à le retenir. On pouvait reprocher au général d'être moins impassible sous les paroles que sous les balles ; on ne l'en estimait que plus.
 
 M. Jaurès voulut obtenir du Gouvernement un désaveu du général Pau. M. Barthou expliqua la psychologie du vieux soldat, mais sans descendre à plaider les circonstances atténuantes ; le général resterait au banc des commissaires ; le Gouvernement ne s'associerait pas à une « lâcheté ».
 
 Je pris la parole dans la séance du lendemain.
-
-V
-
-DISCOURS
-PRONONCÉ LE 3 JUIN 1913 À LA CHAMBRE DES DÉPUTÉS
-DANS LA DISCUSSION GÉNÉRALE DU PROJET DE LOI
-AYANT POUR OBJET DE MODIFIER LA DURÉE DU
-SERVICE DANS L'ARMÉE ACTIVE.
-
-[p. 71]
 
 M. le président. — La parole est à M. Joseph Reinach.
 
@@ -761,8 +533,6 @@ M. Joseph Reinach. — Messieurs, n'ayant pas fait partie de l'avant-dernière l
 M. le président. — Messieurs, il serait inadmissible qu'un de vos adversaires ne pût se faire entendre sans être interrompu dès le début de son discours. (Très bien ! Très bien !) Je vous prie de laisser à ce débat sa dignité et sa noblesse. (Applaudissements)
 
 M. Joseph Reinach. — Je veux dire d'abord, et je veux dire sans restriction d'aucune sorte, que je
-
-[p. 72]
 
 l'aurais votée si mon mandat m'avait été rendu plus tôt.
 
@@ -773,8 +543,6 @@ Comme je n'ai pas attendu le dépôt du projet de loi qui vous est soumis pour a
 Mais, messieurs, et j'entre ainsi tout de suite au cœur du débat, pourquoi, si j'avais voté la loi de 1905, n'éprouverais-je aujourd'hui aucune hésitation à me prononcer pour celle qui est actuellement soumise à vos délibérations ? Et pourquoi, ne l'ayant pas votée, ai-je tenu, dans l'instant même où je vais vous demander de la modifier dans quelques-unes de ses dispositions principales, à me déclarer rétroactivement solidaire de ceux qui l'ont votée ?
 
 C'est pour deux raisons également simples et fortes qui nous commandent, qui nous font le plus impérieux des devoirs, de procéder aujourd'hui et sans retard à un accroissement de nos effectifs, accroissement qui, dans un pays de natalité affaiblie, ne se peut réaliser que
-
-[p. 73]
 
 par la prolongation de la durée du service militaire. (Très bien ! très bien ! sur divers bancs au centre et à gauche)
 
@@ -796,8 +564,6 @@ Et vous savez ce qu'est cette loi.
 
 Elle ne réalise pas seulement le plus immense effectif de paix qui ait jamais été appelé sous les drapeaux : près de 900.000 hommes. Mais cet effectif est si puis-
 
-[p. 74]
-
 samment homogène, il est si rapidement mobilisable, avec ses 57.000 officiers, avec ses 113.000 sous-officiers rengagés, avec la possibilité de n'appeler qu'un réserviste pour deux soldats du contingent, que l'armée allemande tout entière, avec ses vingt-cinq corps d'armée, dont onze à effectifs renforcés, que son avant-garde tout au moins, de six corps d'armée à effectifs renforcés camps en Lorraine, en Alsace, dans la plaine rhénane, est devenu le plus puissant instrument d'agression qui ait jamais existé.
 
 La loi allemande de 1913, ce n'est pas moi qui le dis, ce sont deux membres du Reichstag, appartenant aux partis avancés, la loi nouvelle allemande est, selon une formule, la mobilisation en pleine paix et, selon une autre formule, la guerre en pleine paix. (Très bien ! très bien ! au centre et sur divers bancs à gauche)
@@ -805,8 +571,6 @@ La loi allemande de 1913, ce n'est pas moi qui le dis, ce sont deux membres du R
 M. le comte Albert de Mun. — Très bien !
 
 M. Joseph Reinach. — Dès lors, messieurs, quelles que soient nos préférences théoriques et quel que soit notre souci de ménager les grands intérêts sociaux, économiques, agricoles, industriels, intellectuels du pays, comment, puisque nous pensons tous que l'intérêt de la défense nationale doit primer tous les autres, comment ne pas reconnaître que l'armée du service de deux ans qui pouvait suffire à assurer notre sécurité, quand l'armée allemande n'était encore que de 540.000 hommes et ne pouvait mobiliser qu'avec le même nombre, ou à peu près, de réservistes que nous, comment ne pas reconnaître que cette armée du service de deux ans ne suffirait plus aux besoins de la guerre en présence d'une armée allemande forte qu'elle de 500.000 hommes,
-
-[p. 75]
 
 c'est-à-dire exactement du double et mobilisable avec un tiers à peine de réservistes ?
 
@@ -826,8 +590,6 @@ Nous ne sommes pas une République de Salente isolée dans le temps et dans l'es
 
 Nous ne sommes pas plus la France de 1902 ou de 1903 que nous ne sommes l'Angleterre.
 
-[p. 76]
-
 Gambetta a dit un jour ces paroles d'une grande noblesse et d'une profonde vérité :
 
 « On ne fait pas la politique de la même manière dans un pays qui a conservé et dans un pays qui n'a plus toutes ses frontières. » (Applaudissements au centre et sur divers bancs à gauche)
@@ -842,8 +604,6 @@ Si nous sommes aujourd'hui 39 millions de Français contre 66 millions d'Alleman
 
 Assurément, après avoir été sourds pendant trop longtemps aux avertissements qui, entendus, auraient enrayé le progrès du mal, nous en reconnaissons enfin toute l'étendue, et la volonté de réagir apparaît. Mais
 
-[p. 77]
-
 à quel moment ? L'Europe vient d'être plus profondément remuée qu'elle ne l'avait été depuis 1870, et tous les progrès additionnels que l'Allemagne a faits depuis 1870 dans son organisation militaire sont à peine égaux à l'effort sans précédent qu'elle aura réalisé avant la fin de l'année.
 
 Je vous rappelais tout à l'heure d'un mot dans quelles conditions de sécurité extérieure la loi sur le service de deux ans a été présentée en 1902 ; comparez pendant un instant, la situation d'alors à la situation présente.
@@ -852,8 +612,6 @@ Sans doute, il serait hasardé de prétendre que, depuis près de dix-huit anné
 
 Il était donc naturel et légitime qu'à cette époque et dans ces circonstances, après notre rapprochement avec l'Italie, qui écartait un danger, après notre entente avec l'Angleterre qui nous apportait une force nouvelle, vos prédécesseurs aient, non point assurément songé à désarmer, mais aient cherché, sans porter atteinte aux œuvres vives de la défense nationale, à diminuer les charges militaires qui pesaient sur le pays et qui, au
 
-[p. 78]
-
 surplus, pesaient fort inégalement sur lui, si vous voulez bien vous rappeler ce que les dispenses et les abus avaient fait de la loi du 18 mars 1889 ; l'inégalité avait mis en elle, selon le mot de M. de Freycinet, un germe destructeur. (Applaudissements au centre et sur divers bancs à gauche)
 
 Je ne dis pas, je me garderai bien de dire, parce que ce serait grossièrement contraire à la vérité, que les auteurs de la loi de 1905 aient subordonné à des intérêts politiques l'intérêt, qui doit toujours primer tous les autres, de la défense nationale. Mais je dis, et je suis en droit de dire, et c'est à leur honneur, que cette loi de 1905 était la preuve manifeste, éclatante, de leur confiance, de la confiance générale et des Chambres et du pays dans une longue paix. (Vifs applaudissements à gauche et à l'extrême gauche)
@@ -861,8 +619,6 @@ Je ne dis pas, je me garderai bien de dire, parce que ce serait grossièrement c
 Cette confiance était si profonde, elle semblait si bien justifiée par les faits, les idées pacifistes avaient pris, en conséquence, un tel développement que les gouvernements et les Chambres ne se contentèrent pas de diminuer la durée du service militaire, mais qu'ils diminuèrent en même temps l'ensemble des dépenses du ministère de la Guerre. Alors que les prévisions du programme de 1900 s'élevaient à environ 972 millions, il ne fut fait, de 1901 à 1905, qu'une dépense de 206 millions pour les crédits militaires.
 
 Seulement, messieurs, la volonté pacifique des peuples et des Gouvernements, si forte soit-elle, n'a pas encore suffi à régler inflexiblement le cours de l'histoire. La marche de l'histoire est déterminée aussi par d'autres facteurs, par d'autres influences, qui se manifestent quelquefois d'une manière inattendue, alors même
-
-[p. 79]
 
 qu'elles dépendent de causes anciennes et dont la sagesse commande de toujours prévoir l'intervention. (Très bien ! très bien ! au centre et sur divers bancs à gauche)
 
@@ -878,15 +634,11 @@ Nous pouvons différer d'opinion sur les causes, accidentelles ou profondes, qui
 
 Autour de ce bassin de la Méditerranée, d'où sont nés tant d'empires et qui a vu la grandeur et la décadence
 
-[p. 80]
-
 de tant d'empires, se sont succédé sans interruption les entreprises de toutes sortes, les guerres de conquête et les guerres d'indépendance, les révolutions et les contre-révolutions. Ces événements ne se sont pas seulement succédé ; ils se sont enchaînés ; il y a entre eux un lien, qui, avec le recul des années, apparaîtra dans une clarté toujours plus vive. Et la répercussion de ces événements sur le reste de l'Europe a été telle qu'elle ne se peut comparer qu'à ces canonades formidables qui ébranlent l'air et le sol lui-même jusqu'à vingt lieues du champ de bataille. (Applaudissements au centre et sur quelques bancs à gauche)
 
 Comment les longs espoirs de sécurité auraient-ils résisté à toutes ces crises, Casablanca après Tanger, après la révolution jeune-turque l'annexion de la Bosnie et de l'Herzégovine, puis Agadir, puis la guerre de Libye précipitée par les affaires de Tripoli ? Partagée comme elle l'est entre deux grands systèmes d'alliance, l'Europe a vécu depuis huit années dans l'inquiétude presque chronique de voir surgir une guerre générale de l'un ou de l'autre des conflits qui opposaient les intérêts de deux ou de plusieurs puissances appartenant les unes à la Triple Alliance, les autres à la Triple Entente. Dirai-je que plus d'une fois, la guerre a été en vue ? Je reprendrai seulement la formule que j'employais tout à l'heure, je dirai seulement, mais cela suffit, que, depuis huit années, le sentiment qui domine les peuples, les paralyse ou les irrite, c'est celui de la précarité de la paix.
 
 Et, sans doute, la seule menace d'une guerre générale est chose si horrible que ces deux grands groupements des grandes puissances européennes, si contrai-
-
-[p. 81]
 
 dictoires que soient leurs ambitions avérées ou secrètes, à quelque immense changement et de conséquences incalculables qu'ait conduit la victoire des peuples balkaniques sur la Turquie, se sont efforcés constamment, à chaque incendie qui a éclaté, de le circonscrire. C'est sous la pression de ces événements redoutables et sous la crainte d'événements plus redoutables encore que l'Europe, selon la forte expression de M. Léon Bourgeois, a pris conscience qu'elle est une personne mortelle. Pourtant, qui oserait répondre de l'avenir ? (Applaudissements sur divers bancs à gauche et au centre)
 
@@ -895,8 +647,6 @@ Dès lors, de l'immense Russie à la petite Belgique, il n'y a plus aujourd'hui 
 Messieurs, tous ces Gouvernements, tous ces peuples sont-ils animés également de la même volonté de paix ? On oppose volontiers, dans certaines amplifications trop faciles, les peuples toujours pacifiques aux Gouvernements belliqueux, et cependant nous avons eu, il y a hier encore, l'exemple des populations balkaniques qui ont entraîné leurs Gouvernements à la guerre. (Très bien ! très bien ! sur divers bancs)
 
 La guerre finira demain, elle finit dans les Balkans.
-
-[p. 82]
 
 Mais il y a des accalmies trompeuses. Lorsqu'on étudie l'histoire, on s'aperçoit que, par une espèce de jeu de la destinée, ces accalmies précèdent le plus souvent les grands orages. (Applaudissements au centre et à gauche)
 
@@ -909,8 +659,6 @@ M. Paul Aubriot. — La compétence des diplomates n'a pas changé depuis. (Rire
 M. Joseph Reinach. — Je voudrais me tromper en disant que, demain, sitôt que la paix règnera à nouveau dans les Balkans, nous entendrons affirmer de toute part que la paix, fût-elle « plâtrée », sera « perpétuelle » et que, par conséquent, rien ne s'oppose à ce que soit renvoyée au magasin des accessoires la « rallonge » qui aura été « temporairement » ajoutée au service militaire.
 
 Je vous demande d'avance et instamment de vous souvenir ce jour-là de la conversation de M. Hammond avec lord Granville — de vous souvenir aussi que, dix jours après la promulgation de la loi de 1905, l'empe-
-
-[p. 83]
 
 reur Guillaume débarquait à Tanger. (Applaudissements au centre et sur divers bancs à gauche)
 
@@ -928,8 +676,6 @@ M. Joseph Reinach. — Messieurs, je suis parfaitement décidé à ne m'arrêter
 
 M. Jaurès. — Vous n'avez pas entendu, monsieur
 
-[p. 84]
-
 Reinach. Un de nos amis a dit à ceux de nos collègues de la droite qui vous applaudissaient : « L'applaudir vaut mieux que l'appeler métèque. » (Applaudissements à l'extrême gauche)
 
 M. le président. — Je prie la Chambre d'écouter en silence un des Vice-Présidents de la Commission de l'Armée, et l'un des plus assidus à ses travaux. (Applaudissements)
@@ -939,8 +685,6 @@ M. Joseph Reinach. — L'armée allemande du pied de paix, qui est aujourd'hui d
 Défalcation faite de 63.000 hommes qui sont engagés au Maroc, notre armée active, sous le régime de la loi de 1905, est d'environ 580.000 hommes. Différence : 400.000 hommes. Notre armée du pied de paix est à l'armée allemande du pied de paix ce que 1 est à 2.
 
 Voilà le fait simple, le fait brutal qui a frappé d'abord l'opinion, lorsque l'annonce de cet extraordinaire effort militaire de l'Allemagne a été connu au mois de mars dernier. Et il a paru tout de suite que, du seul fait d'un tel accroissement numérique, entraînant une telle disproportion entre notre armée active et l'armée allemande, notre sécurité était gravement menacée et que notre indépendance pouvait l'être ; il était, par conséquent, urgent de prendre des mesures pour parer à un pareil péril. Cette énorme augmentation numérique de l'armée allemande n'est cependant, pour ainsi dire, que la moitié du danger dont nous sommes menacés. (Très bien ! très bien !)
-
-[p. 85]
 
 Je me permets de demander ici l'attention particulière de la Chambre.
 
@@ -952,13 +696,7 @@ En 1872, l'Allemagne comptait 40 millions, la France 37 millions d'habitants. La
 
 Comment avons-nous perdu ensuite cet avantage ? Vous le savez, messieurs, je vous l'ai déjà dit, et il
 
-[p. 86]
-
 me suffira ici de le rappeler d'un mot. C'est parce que le coefficient de la natalité, s'il a diminué en Allemagne comme chez nous, n'y a diminué que dans des proportions beaucoup plus faibles et qu'il est resté constamment supérieur, et de beaucoup, au nôtre.
-
-Chez nous : 22 0/00, 21 0/00, 20 0/00, 19 0/00 en 1890, en 1902, en 1905, en 1910.
-
-En Allemagne, aux mêmes dates, 38, 37, 35 et 31 0/00.
 
 Le nombre des naissances ayant été ainsi près du double en Allemagne, le nombre des contingents a varié dans les mêmes proportions.
 
@@ -970,8 +708,6 @@ Ainsi, depuis vingt-cinq ans, le développement de la population allemande coïn
 
 Cependant l'Allemagne n'en faisait rien, et, parce qu'elle était tenue, d'une part, de ménager ses ressources budgétaires, parce que, d'autre part, la situation politique de l'Europe ne lui inspirait encore aucune crainte sérieuse, elle continuait à laisser dans l'Ersatz-Reserv et à ajourner une partie importante de chaque
 
-[p. 87]
-
 classe qui ne faisait que quelques mois de service ou qui n'en faisait aucun.
 
 Ai-je besoin de rappeler à la Chambre que le gouvernement allemand n'a réduit de trois à deux ans le service militaire dans l'infanterie qu'en raison du trop grand nombre de recrues qu'elle ne pouvait ni incorporer ni instruire en raison de ses préoccupations budgétaires ?
@@ -982,8 +718,6 @@ Jusqu'en ces derniers temps, l'Allemagne se contentait donc de maintenir dans le
 
 L'Allemagne a-t-elle avancé elle-même ce jour pour avoir oublié que l'Europe n'avait supporté ni de Charles-Quint, ni de Louis XIV, ni de Napoléon la prétention à l'hégémonie ? Dans quelle mesure sa prétention, apparente ou réelle, à l'hégémonie a-t-elle contribué à la conclusion de l'alliance franco-russe et de l'entente franco-anglaise ? Je ne le rechercherai pas. Je dis seulement, pour ne pas sortir de l'objet précis de ma discussion que, le jour où l'Allemagne a cru nécessaire d'augmenter plus considérablement encore que par le passé la force combative de son armée, elle a pu le faire par le procédé le plus simple. Elle n'a eu qu'à
 
-[p. 88]
-
 diminuer la seconde portion de son contingent du nombre d'hommes dont elle avait décidé d'accroître les effectifs de son armée de paix. (Très bien ! très bien !)
 
 C'est ainsi qu'elle a pu augmenter de 70.000 hommes les effectifs de l'infanterie, afin d'étoffer les compagnies et les mettre dans de meilleures conditions d'instruction.
@@ -991,8 +725,6 @@ C'est ainsi qu'elle a pu augmenter de 70.000 hommes les effectifs de l'infanteri
 Si considérables que fussent ces accroissements, l'Allemagne n'en restait pas moins fidèle encore au principe fondamental de l'organisation militaire qui lui avait été imposée en 1806 par ses défaites et qui n'avait pas peu contribué à ses victoires de 1813.
 
 Cependant, messieurs, au fur et à mesure que, sous la pression des événements extérieurs, l'Allemagne accroissait aussi ses effectifs en temps de paix — et en raison même de la facilité avec laquelle elle réalisait ces accroissements, puisqu'elle n'avait qu'à puiser dans la seconde portion de son contingent, toujours amplement pourvue en conséquence du chiffre élevé de la natalité masculine, et puisque sa richesse croissante lui permettait d'entretenir sous les drapeaux, d'instruire, d'exercer, une portion toujours plus grande de son contingent — l'idée lui vint, et ne pouvait pas ne pas lui venir, et l'idée devait gagner tous les jours en force, que le système centenaire de Scharnhorst, celui de l'armée active qui est une école et qui ne se mobilise qu'après avoir reçu les trois ou quatre premières classes de ses réserves, que ce système pouvait convenir à un peuple assuré de la paix, ou à un peuple auquel son vainqueur a interdit d'entretenir une armée supérieure à un certain effectif ; mais qu'une grande
-
-[p. 89]
 
 nation nombreuse et riche, ambitieuse, remuante et menacée, pouvait et devait se constituer, non pas assurément avec des mercenaires, mais sur la base du service obligatoire et personnel, rendu véritablement universel, une armée homogène, toujours prête à entrer en guerre, à prendre rapidement l'offensive au premier coup de télégraphe, sans avoir besoin de demander à ses réserves autre chose qu'un appoint et, le cas échéant, sans les attendre. (Très bien ! très bien !)
 
@@ -1006,8 +738,6 @@ C'est le général Bronsart de Schellendorf qui dit : « Il faut rendre plus for
 
 C'est le général de Leczinski, ami personnel de l'empereur, qui écrit : « Il est indispensable de disposer
 
-[p. 90]
-
 en permanence dans les régions frontières d'unités actives, d'effectifs suffisants pour permettre leur entrée instantanée en campagne. »
 
 C'est le ministre actuel de la guerre, le général de Heeringen, qui disait, au cours de la discussion de la loi militaire de 1912 :
@@ -1020,8 +750,6 @@ Surviennent alors les événements des Balkans. La Turquie d'Europe s'effondre. 
 
 Nous savons, messieurs, le discours du chancelier de l'Empire nous l'a dit, par qui et dans quelles conditions a été préparée la nouvelle loi militaire qui a été soumise au Reichstag. On n'a peut-être pas lu avec assez
 
-[p. 91]
-
 d'attention l'exposé des motifs qui la précède. Permettez-moi de vous en lire le passage qui me semble devoir dominer tout ce débat.
 
 Le ministre de la Guerre a rappelé que l'équilibre des forces de l'Europe a été modifié par les événements des Balkans ; que l'Allemagne, « dans une guerre qui peut lui être imposée », aurait « à la défendre, peut-être contre plusieurs adversaires, des frontières étendues et en grande partie dépourvues de défenses naturelles » ; qu'« en raison de cette situation nouvelle, c'est le premier devoir des Allemands de constituer cette défense aussi fortement que le permettent les ressources nationales ». Quelle doit être cette nouvelle organisation militaire ?
@@ -1030,15 +758,11 @@ Le général de Heeringen s'exprime alors en ces termes :
 
 « Les forces de notre armée n'ont pas augmenté dans la même proportion que notre population ; une partie de notre contingent utilisable ne fait, jusqu'à ce jour, aucun service militaire. Le service militaire pour tous est cependant la base nécessaire de la force de l'Allemagne. Il faut qu'il soit une réalité pour que nous puissions considérer l'avenir avec le sentiment du devoir accompli et d'une forte confiance. Notre armée restera jeune... » — c'est-à-dire qu'elle réalisera son maximum de force — « ... si cette condition est remplie. En cas de guerre dans l'avenir, nous ne serons pas obligés de conduire à l'ennemi en première ligne des hommes ayant femme et enfants, tandis que des hommes jeunes et aptes au service militaire resteraient disponibles et devraient recevoir leur première instruction militaire au début des hostilités. »
 
-[p. 92]
-
 Donc sont abrogées les fixations budgétaires de 1911 et de 1912 qui, avec des effectifs-troupes de 515.000 et de 540.000 hommes, laissent encore une place trop grande aux réservistes. Le ministre de la Guerre fait sienne la formule du général Litzmann que « le temps des demi-mesures est passé ». Il demande en plus 13.000 hommes de vingt ans, « non pas pour créer de nouvelles unités, mais pour renforcer l'effectif de certaines troupes ». Il ne désigne pas autrement ces troupes, mais tout le monde a compris. Il demande 34.000 chevaux en plus. Et, comme c'est un principe classique, une vérité élémentaire que le nombre et la force de leur encadrement double la force des meilleurs soldats, le projet allemand demande 5.500 officiers et 22.500 sous-officiers en plus.
 
 Je vous disais tout à l'heure, messieurs, que cet extraordinaire effectif de 871.000 hommes, qui sera demain celui de l'armée allemande, n'était que la moitié du danger. Vous en apercevez maintenant la seconde moitié. C'est une armée dont les corps de l'intérieur peuvent mobiliser avec un tiers de réservistes. Ce sont des corps d'armée de premier choc qui peuvent mobiliser effectivement sans attendre leurs réserves, donc, en quelques heures, passer la frontière au premier signal.
 
 Cela dit, est-il nécessaire d'ajouter que, tout de même, en cas de guerre, l'Allemagne fera encore largement appel, tant pour grossir encore ses effectifs que pour combler les vides qu'auront creusés les batailles, aux 1.250.000 hommes de ses cinq premières classes de réserve, hommes de vingt-deux à vingt-huit ans, aux 990.000 hommes des cinq premières classes de la
-
-[p. 93]
 
 landwehr, hommes de vingt-huit à trente-deux ans, aux deux ou trois premières classes de 1.100.000 hommes des six classes suivantes de la landwehr, hommes de trente-trois à trente-six ans, tous instruits, tous ayant passé deux ou trois ans dans l'armée active, sans parler des hommes qui, après ces immenses prélèvements, restent encore à l'Ersatz-Reserv, soit à plus de 3 millions de réservistes que son nombre, auquel il faut toujours revenir, lui permet d'opposer, dans la proportion de 3 contre 2, aux 760.000 hommes de nos quatre premières classes de la réserve et aux 1.200.000 hommes des sept classes suivantes, hommes qui sont à peu près du même âge et qui sont également exercés ? (Très bien ! très bien !)
 
@@ -1047,8 +771,6 @@ Ni l'état-major de Berlin, dans ses plans, ni le ministre allemand de la Guerre
 Je ne dis donc pas — parce que cela ne serait pas plus vrai de l'Allemagne que cela n'est vrai de nous — je ne dis pas que l'Allemagne ne croit plus à ses réserves.
 
 Mais ce que je dis, parce que c'est le ministre allemand qui le dit et qui l'écrit, c'est que les réserves allemandes ne sont plus destinées à jouer dans les guerres futures le même rôle que dans les guerres de 1813, de 1866 et de 1870. (Très bien ! très bien ! au centre et sur divers bancs à gauche)
-
-[p. 94]
 
 Les quatre escadrons actifs de tous les régiments de cavalerie se mobiliseront sans avoir à attendre ni un réserviste ni un cheval de réquisition ; ils recevront sur place, du cinquième escadron, leur complément d'hommes et de chevaux.
 
@@ -1062,8 +784,6 @@ Mais elle a profité de toutes les expériences, de la sienne propre, de celle d
 
 Ses écrivains militaires, qui ont étudié l'histoire de ses victoires de 1870 avec le désir passionné d'y relever toutes les erreurs et toutes les causes de faiblesse qui
 
-[p. 95]
-
 les ont faites moins complètes qu'elles n'auraient pu l'être et qui, parfois même, auraient pu les tourner en défaites, ses écrivains militaires ont reconnu depuis longtemps que le réserviste, si instruit qu'il ait été, si vigoureux qu'il soit resté, ne retrouve toute sa valeur qu'après une période d'entraînement et, même alors, qu'à la condition d'être encadré fortement dans l'élément actif.
 
 Le général de Heeringen revient sans cesse sur la différence entre les hommes qui ont « femme et enfants » et ceux sur qui ne pèse pas la pensée du foyer et du berceau.
@@ -1074,8 +794,6 @@ L'Allemagne ne fait donc aux réservistes, dans sa nouvelle armée, qu'une place
 
 Comme le dit expressément l'exposé des motifs du projet allemand, comme l'ont voulu formellement les chefs de l'état-major allemand, cette nouvelle armée allemande, l'armée de demain, sera donc une armée très jeune, surtout une armée très homogène ; elle sera presque une armée de métier, avec ses 115.000 sous-
 
-[p. 96]
-
 officiers rengagés, ses 661.000 appelés, ses réservistes des deux premières classes, dans la proportion de un réserviste pour deux soldats du contingent.
 
 C'est le nombre qui permettra de donner cette homogénéité à l'armée allemande. Mais l'armée allemande de demain devra au nombre deux autres résultats d'une importance encore plus considérable.
@@ -1085,8 +803,6 @@ D'une part, grâce au chiffre élevé des effectifs et à l'instruction collecti
 D'autre part, si considérable que soit le progrès de qualité que l'Allemagne attend de sa loi, il semble pourtant que l'objet principal qu'elle poursuive, c'est une mobilisation plus rapide encore que par le passé.
 
 Plus on étudie et le mécanisme et les commentaires et les antécédents de la loi allemande, plus il apparaît, en effet, que le nombre si démesurément accru des effectifs, l'instruction intensive qui en résultera pour ces 800.000 hommes dans toute la fleur et la vigueur de l'âge, l'élimination systématique des malingres, des faibles, directement incorporés dans le landsturm ; l'accroissement du corps des sous-officiers, tous rengagés, qui passe de 95.000 à 115.000 ; la participation réduite des réserves aux premières opérations de la guerre, plus il apparaît que toutes ces mesures, dont chacune, prise en elle-même, constitue un progrès, une augmentation de la force combative, sont, en outre, — comme le sont la multiplication des voies de
-
-[p. 97]
 
 communication, des chemins de fer, des quais d'embarquement, des dépôts de munitions dans la région rhénane, — que ces mesures sont surtout des moyens de réaliser une mobilisation qui ne sera plus seulement rapide, qui sera foudroyante. (Très bien ! très bien !)
 
@@ -1102,8 +818,6 @@ Seulement, depuis la loi allemande de 1912, surtout depuis le projet actuel, que
 
 L'éventualité d'une attaque brusquée, d'une immense agression suivant à quelques heures la déclaration de guerre ou en tenant lieu, comme ce fut le cas, au dix-septième et au dix-huitième siècle, dans la plupart de nos guerres avec l'Allemagne, cette éventualité ne saurait plus être aujourd'hui une hypothèse de stratégie
 
-[p. 98]
-
 en chambre. Pour quiconque n'a pas écouté d'une oreille distraite ou dans un esprit préconçu les déclarations répétées des plus hautes autorités militaires allemandes ; pour quiconque cherche une explication rationnelle aux nouvelles dispositions de la loi allemande ; pour quiconque sait lire une carte de chemin de fer, ce n'est plus une hypothèse, c'est une certitude. (Très bien ! très bien !)
 
 On pouvait objecter, il y a encore quelques années, que la couverture allemande était un peu faible pour s'aventurer dans un raid qui aurait assez vite exposé l'agresseur à une punition sévère. L'objection tombe aujourd'hui devant une couverture qui n'est plus de deux ou trois corps d'armée, mais qui est de sept corps d'armée à effectifs renforcés : Sarrebrück entre Strasbourg et Metz, Mulhouse au Sud, Landau, Trèves et Coblence au Nord-Est.
@@ -1117,8 +831,6 @@ Ces 160.000 hommes dont elle augmente son effectif iront, pour près de moitié,
 C'est dans la plaine rhénane qu'est concentrée la grosse masse de la cavalerie allemande, aux escadrons de 150 hommes, affranchis de réservistes.
 
 Les régiments d'artillerie, pareillement affranchis de réservistes, pourvus d'un appoint considérable de chevaux, mobiliseront désormais en quelques heures leurs six batteries de six pièces.
-
-[p. 99]
 
 Même en hiver, pendant la période d'instruction des recrues, les compagnies d'infanterie seront désormais assez fortes pour passer instantanément sur le pied de guerre, après avoir ramassé quelques réservistes locaux de la première classe.
 
@@ -1134,8 +846,6 @@ N'est-ce pas l'évidence que, demain, avant la fin de l'année, l'avant-garde de
 
 Si rapide que soit le mouvement qui fait jaillir l'épée du fourreau, il prend encore trop de temps. L'épée a été tirée d'avance du fourreau ; elle est là, devant nous, nue et aiguisée. (Applaudissements au centre et sur divers bancs à gauche)
 
-[p. 100]
-
 Messieurs, de ce que l'instrument d'agression existe, faut-il conclure à l'intention d'une politique d'agression ? Je suis, pour ma part, profondément convaincu que le chancelier de l'Empire, M. de Bethmann-Holweg, a attesté, avec une égale véracité, la volonté pacifique de l'Allemagne et sa volonté de vaincre, en cas de guerre.
 
 Mais c'est précisément parce que, nous aussi, nous pouvons affirmer les mêmes volontés, de garder la paix et de vaincre en cas de guerre ; c'est parce que nous sommes également résolus à ne renouveler ni les fautes politiques qui ont conduit à la guerre de 1870, ni les fautes militaires qui ont conduit aux défaites de 1870, que nous avons pour premier devoir de nous rendre un compte exact des choses et de ne pas nous payer d'illusions et de mots. Il faut que nous regardions en face le danger, tout le danger qui pourrait, quel que soit notre amour de la paix, surgir inopinément devant nous. (Très bien ! très bien !)
@@ -1145,8 +855,6 @@ Ainsi, ce serait, notamment, nous payer d'une périlleuse illusion que d'imagine
 Le relèvement de la Russie après ses défaites de Mandchourie, la reconstitution méthodique de son armée, les victoires des peuples balkaniques qui écartent d'elle la menace autrichienne ou qui, tout au moins, l'atténuent, son entente avec l'Angleterre, sa fidélité à notre alliance ont pesé d'un grand poids sur les délibérations d'où est sortie la nouvelle loi allemande.
 
 Il n'y a pas un officier du grand état-major de Berlin
-
-[p. 101]
 
 qui ignore les résultats de l'œuvre poursuivie inlassablement depuis plusieurs années, par le général Soukhomlinoff, l'accélération de la mobilisation russe, la construction de nombreuses voies stratégiques, la ceinture de fer dont est doublée aujourd'hui la frontière russe du côté de l'Allemagne, Grodno, Kowno et Brest devenues des forteresses presque imprenables, Varsovie transformée en un immense camp retranché avec une garnison d'environ 150.000 hommes.
 
@@ -1158,8 +866,6 @@ Si importantes toutefois par le nombre et si vigoureusement entraînées que soi
 
 La première, c'est que la concentration et la mobili-
 
-[p. 102]
-
 sation de l'armée russe, quels qu'aient été les progrès déjà réalisés, restent lentes.
 
 La seconde, qui domine de beaucoup toutes les autres considérations, c'est que l'Allemagne est restée fidèle à la doctrine napoléonienne, qu'elle a faite sienne depuis 1866 : chercher à accabler le principal adversaire pour ne se retourner qu'ensuite contre l'autre, déjà affaibli par le fait même de la défaite de son allié.
@@ -1169,8 +875,6 @@ Vous connaissez, messieurs, le fameux mémoire que le général de Moltke, au le
 Remplacez l'Autriche par la Russie, et vous aurez tout le plan allemand : chercher à accabler la France à la fois par le nombre et par la surprise, quitte à perdre, à l'est de l'Empire, tout le territoire qu'il faudra. (Très bien ! Très bien !)
 
 « Cette théorie, écrivait le commandant de Thomasson, était expliquée tout au long dans le thème des manœuvres impériales qui se sont déroulées en Saxe à l'automne de l'année dernière. Il y était dit en toutes lettres que même la perte de la capitale était insigni-
-
-[p. 103]
 
 fiante si on parvenait, au prix de cette perte, à dominer en temps voulu l'ennemi principal. »
 
@@ -1186,8 +890,6 @@ Notre couverture crevée, dans quelles conditions s'opérera la mobilisation ? (
 
 Messieurs, j'en ai assez dit. J'ai essayé de vous montrer, le plus exactement qu'il m'a été possible de le
 
-[p. 104]
-
 faire, la nouvelle loi allemande, la nouvelle organisation de l'armée allemande, le plan résolument offensif de l'état-major allemand. Je ne crois pas avoir exagéré sur aucun point. Les faits, les chiffres que j'ai produits devant vous, je les ai dix fois contrôlés. Quelque modération que j'aie apportée dans le choix de mes arguments, il n'en reste pas moins, avec la clarté de l'évidence, que la loi allemande de 1913 pose, pour nous, une question vitale. Quelle sera la réponse française ?
 
 Voilà ce qu'il me reste à examiner et ce que j'examinerai, si vous le voulez bien, ou me tenant aux idées générales et en réservant pour la discussion des articles l'examen des questions d'application qui, si importantes soient-elles, ne sont pas moins secondaires. (Très bien ! Très bien !)
@@ -1198,15 +900,9 @@ Il me suffira de vous rappeler rapidement quelques chiffres.
 
 D'un côté, une armée aux effectifs de paix de 871.500 hommes se décomposant ainsi :
 
-661.000 hommes appelés ;
-
 115.000 sous-officiers rengagés ;
 
 58.000 engagés, incorporés et employés ;
-
-37.000 officiers.
-
-[p. 105]
 
 De l'autre, du nôtre :
 
@@ -1214,11 +910,7 @@ De l'autre, du nôtre :
 
 25.030 hommes de troupes coloniales ;
 
-Ensemble 544.563 hommes.
-
 Desquels il faut déduire 63.804 hommes de troupes blanches engagées au Maroc, soit 480.759 hommes.
-
-Différence : 390.741 hommes.
 
 Du côté allemand, vingt-cinq corps d'armée, dont onze corps d'armée à effectif renforcé, contre quatre en 1904 ; trois corps d'armée sur la frontière russe ; huit corps d'armée destinés à opérer contre nous, dont quatre corps d'armée en Alsace-Lorraine, deux dans le Palatinat.
 
@@ -1231,8 +923,6 @@ De notre côté, des compagnies de 115 hommes à l'intérieur, de 160 à la couv
 Du côté allemand, des régiments de cavalerie à l'effectif constant de 757 hommes, faisant trois ans de service plein, et de 735 chevaux.
 
 De notre côté, des régiments de cavalerie à l'effectif
-
-[p. 106]
 
 normal de 683 hommes, faisant deux ans de service, et de 670 chevaux.
 
@@ -1252,8 +942,6 @@ De notre côté, ces organes indispensables à l'état embryonnaire.
 
 Messieurs, du jour où il a été avéré que la nouvelle
 
-[p. 107]
-
 loi allemande nous mettait dans un état aussi grave, aussi périlleux, d'infériorité — infériorité numérique de nos effectifs de paix, infériorité numérique des unités, infériorité d'instruction pour la cavalerie et l'artillerie, infériorité de vitesse dans la mobilisation — serai-je démenti quand je dirai que, si diverses que fussent les solutions qui ont été dès lors envisagées, l'opinion a été unanime à sentir, à penser, à affirmer que la loi allemande appelait immédiatement une réponse française ? (Applaudissements)
 
 Je dirai tout à l'heure, avec une extrême netteté, pourquoi la réflexion, l'étude attentive que j'ai faite du problème, le goût des solutions franches, m'ont amené à repousser soit le service de trente mois, soit le service nominal de trois ans, avec six mois de congé. Je crois toutefois, ne serait-ce que pour le bon ordre de la discussion, devoir m'expliquer auparavant sur un certain nombre de questions qui ont été soulevées devant la Commission de l'Armée, qui ont été portées hier par M. Chautemps devant la Chambre, mais dont je puis dire par avance qu'elles seront résolues dans le même sens par tous ceux d'entre nous qui vont voter le projet du Gouvernement et par ceux de nos collègues qui se sont plus particulièrement attachés à montrer, ce que, d'ailleurs, nous aussi, nous avions indiqué dans de précédentes discussions, que la loi de 1905 a été insuffisamment appliquée.
@@ -1261,8 +949,6 @@ Je dirai tout à l'heure, avec une extrême netteté, pourquoi la réflexion, l'
 Nous pensons, nous aussi, et il faut le dire, que ni le ministère de la Guerre ni les autres départements ministériels ne se sont employés comme il eût fallu à accroître le nombre des engagés et celui des rengagés.
 
 Nous affirmons, nous aussi, que débusquer les
-
-[p. 108]
 
 embusqués, et cela quel qu'en soit le nombre, qu'on l'ait ou non exagéré, est un devoir qu'imposent à la fois le souci de la défense nationale, affaiblie par un abus aussi criant, et le respect du principe d'égalité violé en faveur des privilégiés qui, au lieu de faire leur temps de service dans les casernes et dans les camps, le font dans les bureaux. (Applaudissements)
 
@@ -1273,8 +959,6 @@ Il est inadmissible, ainsi que l'a fait observer maintes fois M. Messimy, que le
 Il me sera peut-être permis de dire que ce n'est pas de ma faute si la Chambre, malgré mon intervention et, de ma part, qui fut sans doute trop véhémente pour être efficace, a ajourné aux calendes, dans sa séance du 23 décembre 1908, la suppression des musiques d'artillerie qui aurait grossi de 2 à 3.000 hommes nos effectifs combattants, quatre bataillons de chasseurs.
 
 Et nous sommes d'avis, nous aussi, que la création des « coopératives » a été une erreur ; qu'un trop grand nombre d'hommes sont distraits de la préparation à la guerre qui devrait être leur seule occupation pour d'inutiles et coûteuses gardes d'honneur, et encore, que certains régiments de cavalerie pourraient être utilement déplacés vers l'Est. (Très bien ! très bien !)
-
-[p. 109]
 
 Mais, cela dit, messieurs, ces abus une bonne fois balayés, ces fonds de tiroir une fois grattés, ces quelques milliers d'hommes rendus à l'effectif combattant, est-ce que le problème n'en subsiste pas moins tout entier ? (Très bien ! très bien !)
 
@@ -1290,8 +974,6 @@ Même en tenant le plus large compte des rengagés, l'effectif mobilisable n'est
 
 Les renverra-t-on à l'arrière ? Ou bien faudra-t-il s'en embarrasser ? Seuls les réservistes locaux, ceux que nous appelons les réservistes d'Arracourt, auraient peut-être le temps de rejoindre. Avec des troupes ainsi
 
-[p. 110]
-
 réduites, quelle contre-offensive stratégique osera-t-on tenter ? Sur quelle défensive inquiète sera-t-on réduit à se tenir ? Comment s'opérera, derrière cette couverture défoncée, la mobilisation du reste de l'armée ?
 
 Et, alors même qu'une offensive brusquée ne se produirait pas pendant cette période critique ; alors même, contrairement à toute vraisemblance, que toute agression serait retardée jusqu'à l'offensive générale de dix-huit à vingt corps d'armée qui se produirait le neuvième ou le dixième jour, combien grande resterait notre double infériorité, infériorité numérique et infériorité de valeur combative contre une masse homogène où les réservistes n'entreraient pas pour un tiers.
@@ -1301,8 +983,6 @@ Ainsi, quoi qu'on fasse et quelque perfectionnement technique qu'on puisse réal
 Nous ne déplorerons jamais assez la chute de nos contingents, conséquence directe, mathématique, de la baisse constante de notre natalité. Nous ne réagirons ni assez tôt ni assez vigoureusement contre toutes les erreurs sociales, économiques, morales, contre les fautes graves, qui, dans l'espace de quarante années, ont arrêté la croissance de la population pendant que celle de l'Allemagne augmentait d'un tiers. Mais, remontons-nous la pente aussi vite que nous l'avons descendue et, en même temps, l'Allemagne la descendrait-elle de l'autre côté, en attendant il faut vivre. (Très bien ! très bien !)
 
 La loi de 1905 est donc condamnée ; ce n'est pas le Gouvernement qui est sur ce banc ni celui qui l'a précédé, ce n'est pas le Conseil supérieur de la Guerre, ce n'est pas l'État-Major, ce n'est pas votre Commission
-
-[p. 111]
 
 de l'Armée qui l'a condamnée. C'est ce qu'il y a de plus invincible au monde, c'est le fait, c'est la force même des choses. (Applaudissements au centre et sur divers bancs à gauche)
 
@@ -1320,8 +1000,6 @@ Vous connaissez celle que nous proposent certains de nos collègues.
 
 M. Jaurès. — Ce n'est pas une prolongation, c'est une « rallonge ».
 
-[p. 112]
-
 M. Joseph Reinach. — C'est une « rallonge », nous dit M. Jaurès.
 
 C'est, en effet, la théorie de M. Messimy, celle de M. Paul-Boncour.
@@ -1338,8 +1016,6 @@ S'inspirant des enseignements de la campagne russo-japonaise et de la guerre des
 
 « Notre armée, mobilisant aujourd'hui, aurait-elle une
 
-[p. 113]
-
 valeur et une qualité supérieure à celle des troupes allemandes, telles que veulent les faire les lois de 1912 et de 1913 ? »
 
 La Chambre se souvient, sans doute, de ce que je lui ai dit précédemment de l'évolution constante, méthodique, formellement voulue, des lois allemandes vers une organisation qui se caractérise par la mobilisation avec un emploi, scientifiquement dosé, des réserves.
@@ -1352,8 +1028,6 @@ J'ai précédemment démontré à la Chambre ou, du moins, je m'y suis efforcé,
 
 Dans une guerre de cette envergure et de cette violence, quelle ne serait pas la différence de qualité, de valeur combative, entre une infanterie allemande, même si nous la supposons, avec M. Messimy, du type non renforcé, où 958 anciens soldats et 215 sous-officiers encadrent 1.800 réservistes, et une infanterie française où 958 anciens soldats et 95 sous-officiers seraient noyés dans 2.250 réservistes ; entre un régiment de cavalerie allemand mobilisant immédiatement avec ses seules
 
-[p. 114]
-
 ressources et un régiment de cavalerie française qui aura besoin de 310 réservistes ?
 
 Contestons-nous, M. Messimy et moi, le courage, le dévouement patriotique, l'endurance des réservistes ? Nous disons avec l'évidence, avec le bon sens, que, sortant de la vie civile, de la vie familiale, les réservistes ont besoin d'un certain temps, d'un certain stage, pour s'entraîner, reprendre et rapprendre le métier. (Très bien ! très bien !)
@@ -1365,8 +1039,6 @@ On ne rappelle pas les hommes de la vie civile à la vie militaire comme on extr
 Et nous disons surtout, parce que toute unité, compagnie, bataillon, régiment, corps d'armée, est une sorte d'être vivant avec des membres, avec des organes, avec de la chair et des os, avec une âme aussi, et qui ne peut être affaibli dans l'une de ses parties sans que tout le corps s'en ressente — nous disons que la valeur combative, la valeur offensive du régiment allemand de demain avec sa compagnie de soldats de l'active, 75 réservistes et 15 sous-officiers rengagés, est manifestement supérieure à celle d'un régiment français du service de deux ans avec sa compagnie de 105 soldats de l'active, 137 réservistes et 8 sous-officiers dont 6 rengagés.
 
 Que sommes-nous donc, M. Messimy et moi, d'accord pour vous demander ?
-
-[p. 115]
 
 C'est de vous refuser à exposer nos réservistes au sort lamentable des rédifs turcs.
 
@@ -1382,8 +1054,6 @@ Mais je m'approprié entièrement, en ce qui concerne les régiments de réserve
 
 « La réalité brutale, écrit M. Messimy, c'est que, huit
 
-[p. 116]
-
 ou dix jours après la déclaration de guerre, les armées de première ligne seront aux prises en Lorraine. Vouloir dans cette fournaise, où le cœur, la cohésion, l'entraînement des régiments seront les facteurs prépondérants et décisifs, jeter, dès le début, des régiments de réserve, masses amorphes encore sans âme et sans consistance, ce serait un crime contre la patrie. » (Applaudissements au centre)
 
 Et, pareillement, en ce qui concerne les réservistes des premières classes, nous sommes, M. Messimy et moi, entièrement d'accord qu'il ne les faut employer que dans la proportion où ils apporteront au régiment actif, non pas une faiblesse, mais un surcroît de force.
@@ -1393,8 +1063,6 @@ Dans quelle proportion ? C'est ici, la question, la très vieille question de l'
 Il est certain — et c'est là encore une très juste observation de M. Messimy dans sa brochure sur le problème militaire — que les règles qui président à l'amalgame sont forcément empiriques.
 
 Mais il n'est pas moins certain et, de fait, il est mathématiquement certain, que pour réaliser un amalgame analogue à celui qui a été prescrit par la loi allemande, il nous faut maintenir sous les drapeaux, après l'arrivée de la nouvelle classe, la classe la plus ancienne, celle qui a fait déjà deux ans de service, et qu'ainsi, pendant tout le temps où nous la maintiendrons sous les drapeaux, nous serons en mesure, si la guerre venait à éclater, de n'incorporer qu'un réser-
-
-[p. 117]
 
 viste pour un homme de l'active, c'est-à-dire que nous aurons une proportion d'anciens qui, assurément, sera encore moins forte que la proportion allemande, trois soldats de l'active pour deux réservistes, dans les compagnies à type non renforcé, mais qui n'en sera pas moins suffisante du fait qu'à chaque incorporation nous aurons sous les drapeaux deux classes parfaitement exercées alors que les Allemands n'en auront qu'une seule.
 
@@ -1408,8 +1076,6 @@ Cet accroissement d'effectifs qui nous permettra, à la mobilisation, d'appeler 
 
 Je tiens, au contraire, avec le Gouvernement, avec le Conseil supérieur de la Guerre, avec la Commission de l'Armée, que ce même amalgame doit pouvoir être réalisé d'un bout à l'autre de l'année et qu'à aucun moment, pas plus en été qu'en hiver, nos compagnies ne doivent descendre au-dessous de l'effectif qui per-
 
-[p. 118]
-
 mettra, à la mobilisation, de réaliser la proportion d'un homme de l'active pour un réserviste.
 
 On a déjà fait de nombreuses objections aux divers projets de rallonge ; les auteurs des différents contre-projets, qui sont très loin de s'entendre, se sont fait entre eux de très nombreuses objections.
@@ -1421,8 +1087,6 @@ Mais je ne ferai, pour ma part, à ces divers projets, qu'ils prolongent le serv
 C'est que tous les ans, à l'époque fixée par nos collègues, février, mars ou avril, pour le départ de la classe la plus ancienne ayant accompli ses vingt-sept, ou ses vingt-huit, ou ses trente mois de service, l'effectif de toute l'armée, l'effectif de chaque unité, est réduit d'environ un tiers — et que ce tiers partant ne sera remplacé qu'au bout de six, sept ou huit mois par une nouvelle classe dont l'instruction demandera trois, quatre, cinq ou six mois.
 
 Je dis que cette période, plus ou moins longue selon les projets, allant du printemps à l'automne, où les effectifs seront dans toutes les armes, dans la cavalerie et dans l'artillerie comme dans l'infanterie, réduits d'un tiers — et elle sera évidemment moins périlleuse que ne l'est actuellement la période critique d'hiver, principale préoccupation de nos collègues, auteurs des projets de rallonge — ne sera pas moins très dangereuse et qu'il est vraisemblable que, d'année en année, elle le deviendrait davantage. (Applaudissements au centre)
-
-[p. 119]
 
 Vous me dites : Nous aurons toujours deux classes exercées comme les Allemands. Nous aurons même sur les Allemands cet avantage que pendant la période d'hiver nous aurons deux classes exercées, plus une classe de recrues, alors que les Allemands n'auront qu'une classe exercée, plus une classe de recrues.
 
@@ -1439,8 +1103,6 @@ Nos corps de couverture — que nous les portions à cinq ou à six — seront r
 La compagnie d'infanterie allemande sera toujours de 160 ou 180 hommes, toujours en état de ne mobiliser qu'avec un tiers de réservistes pour réaliser l'effectif de guerre de 260 hommes.
 
 Notre compagnie d'infanterie ne sera plus de 140 hommes, à l'intérieur, de 200 à la couverture. À la couverture comme à l'intérieur, elle baissera d'un tiers. Elle redeviendra ce qu'elle est aujourd'hui. Pour mobiliser, pour passer du pied de paix au pied de guerre, il lui faudra rappeler, avec les 125 réservistes qui lui per-
-
-[p. 120]
 
 mettaient d'avoir exactement un homme de l'active pour un homme de la réserve à la mobilisation, la classe qu'elle a renvoyée, classe à la disponibilité, selon la formule de M. Messimy, mais, de fait, ces hommes seront redevenus, eux aussi, des réservistes, analogues de tous points aux réservistes de la première classe. (Très bien ! très bien ! au centre et sur divers bancs à gauche)
 
@@ -1462,8 +1124,6 @@ Quand la classe sera partie, que ferez-vous des chevaux qui lui étaient affect�
 
 Les renverrez-vous, eux aussi, en disponibilité ? (Très bien ! très bien ! au centre et sur divers bancs à gauche)
 
-[p. 121]
-
 Or, l'Allemagne, elle, n'a jamais réduit la durée du service pour la cavalerie et l'artillerie à cheval.
 
 Pendant que nos escadrons fondront d'un tiers à la couverture comme à l'intérieur, les siens compteront toujours 150 hommes et 145 chevaux, prêts à passer sur le pied de guerre, sans appel de réservistes et sans réquisition, par le simple versement du 5e escadron dans les quatre autres.
@@ -1480,8 +1140,6 @@ Et votre couverture, encore une fois, dans quelles proportions l'affaiblissez-vo
 
 Une agression subite, pendant la période d'hiver, était une menace grave ; cependant, même pour des hommes habitués aux intempéries des saisons et très exercés, à
 
-[p. 122]
-
 travers la neige et sous le froid, l'opération était difficile.
 
 Combien elle deviendra plus aisée pendant la période qui ira de février ou de mars à septembre ou à octobre ?
@@ -1495,8 +1153,6 @@ M. Paul-Boncour. — Quand renverrez-vous la classe ?
 M. Joseph Reinach. — Je demande comment, par quel extraordinaire défaut de logique on substitue au danger de l'hiver le danger plus probable du printemps ou de l'été. On ne nous propose pas une solution qui répond à l'effort allemand, il n'y a dans le remède qu'on nous offre qu'une apparence. (Applaudissements sur les mêmes bancs)
 
 Voilà, messieurs, la question qui nous sépare et dont je n'ai pas besoin de dire toute l'importance, non sans avoir toutefois marqué, une fois de plus, toute la portée de l'adhésion que donnent aujourd'hui au principe de la prolongation du service tant de nos collègues qui avaient pensé d'abord qu'il suffirait pour parer à la menace allemande de mieux appliquer la loi de 1905 et d'avoir recours à ces petits moyens que nous avons fait nôtres, parce qu'ils répondent à des idées justes, mais qui se trouvent dépassés de beaucoup trop par les circonstances.
-
-[p. 123]
 
 Qu'elle soit de six mois ou qu'elle soit d'un an, la prolongation de la durée du service militaire constitue pour le pays tout entier, pour les paysans comme pour les ouvriers, pour les hommes des professions libérales comme pour ceux des professions manuelles, un dur, un très dur sacrifice. Peut-être même me sera-t-il permis de dire que ceux d'entre nous qui parlent le moins de la dureté de ce sacrifice patriotique, ce ne sont peut-être pas ceux qui le ressentent le moins. (Très bien ! très bien ! au centre et à gauche)
 
@@ -1514,8 +1170,6 @@ M. Franklin-Bouillon. — Dites cela au ministre des Finances.
 
 M. Bedouce, ironiquement. — L'ordre du jour pur et simple !
 
-[p. 124]
-
 M. Reboul. — Nous sommes tous de votre avis, monsieur Reinach, à condition que les propriétaires n'augmentent pas les loyers ensuite.
 
 M. Joseph Reinach. — Selon la formule d'un homme qui fut un des nôtres, de M. Casimir-Perier, c'est à la richesse acquise que nous demanderons de prendre à sa charge les dépenses qui seront la conséquence de la loi que nous allons voter, des mesures que nous avons déjà approuvées. (Applaudissements au centre et à gauche)
@@ -1527,8 +1181,6 @@ M. Joseph Reinach. — Si nous ne nous en faisons aucun mérite, il nous sera pe
 C'est, en effet, dès les premiers jours de mars que, rendant visite au Président de la République, son président a prononcé ces paroles que je veux citer textuellement :
 
 « Si le prélèvement de l'impôt doit être encore élevé, disait le président de la Confédération, et s'il faut donner au service militaire plus de temps encore de la jeunesse de nos fils, nous acceptons d'avance ces nouveaux sacrifices pour que, sous votre direction et sous l'égide de la République, la France immortelle conserve sa place glorieuse au milieu des nations. »
-
-[p. 125]
 
 M. le lieutenant-colonel du Halgouët. — Nos paysans ne vont pas le dire à l'Élysée, mais ils acceptent courageusement toutes les charges militaires.
 
@@ -1547,8 +1199,6 @@ M. le président. — Dans tous les cas, il n'y a pas lieu d'interrompre l'orate
 M. Joseph Reinach. — M. Caillaux, dans son discours sur la situation financière, a parlé de deux sortes d'impôts. Il y en a trois :
 
 Il y a l'impôt d'argent, qui doit peser en toute justice plus lourdement sur ceux qui possèdent (Très bien ! très bien !) ; il y a l'impôt que j'appelle, moi, l'impôt du temps : c'est la durée du service militaire, et cet impôt est, en effet, plus lourd aux épaules des pauvres, il est
-
-[p. 126]
 
 plus lourd pour leurs familles (Très bien ! très bien ! au centre) ; mais cet impôt du temps, ne l'appelez pas l'impôt du sang, parce que l'impôt du sang est le même pour tous. (Interruptions à l'extrême gauche. — Vifs applaudissements au centre et à droite et sur divers bancs à gauche)
 
@@ -1570,8 +1220,6 @@ Au centre. — Ce passage vise la loi de 1889 et non pas le projet actuel.
 
 M. Henry Paté, rapporteur. — Voulez-vous me permettre une observation, monsieur Reinach ?
 
-[p. 127]
-
 M. Joseph Reinach. — Volontiers, monsieur le rapporteur.
 
 M. le rapporteur. — J'ai le regret de dire à notre collègue M. Colly que son allusion ne vise que la loi de 1889, qui, elle, n'avait pas établi l'égalité du service pour tous.
@@ -1590,8 +1238,6 @@ M. le président. — Messieurs, je vous prie d'écouter l'orateur.
 
 M. Joseph Reinach. — Je m'excuse, messieurs, de cette digression, si toutefois c'en est une, et je reviens maintenant à la question que j'avais abordée tout à l'heure, celle de la différence qui sépare du projet du
 
-[p. 128]
-
 Gouvernement et de la Commission les contre-projets de nos collègues.
 
 Si la Chambre veut bien convenir que je n'ai pas pour habitude de m'effrayer des mots et même des choses, elle m'accordera que je ne cède à aucune préoccupation d'ordre politique ou personnel quand je lui dirai tout d'abord que je me refuse à laisser poser devant elle la question, comme on essaye de le faire, entre le service de trois ans, d'une part, le service de trente mois ou de vingt-huit mois ou de vingt-trois mois.
@@ -1604,8 +1250,6 @@ L'erreur, selon moi, et c'est toute la raison du contre-projet que j'ai déposé
 
 L'erreur, ce fut de faire de la loi des cadres et des effectifs la fonction de la loi de recrutement, alors que
 
-[p. 129]
-
 c'est la loi de recrutement qui doit être fonction des lois d'organisation, cadres et effectifs. (Applaudissements sur les mêmes bancs)
 
 En d'autres termes, au lieu de fixer d'abord le nombre et les effectifs des unités de toutes armes afin de disposer en tout temps d'une armée déterminée et de recruter, d'incorporer ensuite les hommes jusqu'à concurrence des besoins, la loi de 1905, comme, d'ailleurs, la loi de 1889, a fixé d'abord la durée du service militaire, d'où cette conséquence que le nombre des hommes sous les drapeaux est essentiellement variable, qu'il varie selon les contingents qui varient eux-mêmes selon le nombre des naissances masculines au cours de la vingtième année qui a précédé le recrutement.
@@ -1616,23 +1260,17 @@ Vous savez, mais il n'est peut-être pas inutile de le rappeler, que le nombre d
 
 Le nombre des unités étant ainsi fixe, les effectifs des diverses unités n'arrêteront donc pas de décroître et ils descendront d'année en année, de classe en classe, jusqu'à ces escadrons étiolés, ces compagnies et ces batteries squelettes dont la faiblesse et, parfois, la misère ont été si souvent signalées à la Chambre ;
 
-[p. 130]
-
 unités où les effectifs budgétaires de 115 hommes pour la compagnie d'infanterie tomberont pratiquement à 105, pour descendre souvent à 95, à 90, à 80, à 70, plus bas encore ; unités de cavalerie où s'usent avant l'âge des chevaux mal dressés et surmenés ; unités de toutes les armes où l'instruction collective se heurtera, dans l'infanterie comme dans la cavalerie et dans l'artillerie, à des difficultés presque insurmontables ; unités où les soldats de l'active seront noyés à la mobilisation dans un flot de réservistes des trois premières classes ; unités enfin dont la mobilisation sera aussi lente que la mobilisation des unités d'une autre armée sera rapide et dont la valeur combative sera dangereusement inférieure à la valeur combative des fortes unités qui leur seront opposées.
 
 Ne dites pas, messieurs, que j'exagère pour les besoins de ma thèse. Tous ces faits, les uns plus inquiétants que les autres, ne vous ont pas été une fois, mais vingt fois signalés. Je les emprunte, textuellement, aux rapports de vos Commissions de l'Armée, de vos Commissions du Budget. Je les ai moi-même, plus d'une fois, portés, preuves en mains, à cette tribune. Et tous ces faits sont des conséquences, quelques-unes des conséquences les plus manifestes de l'innovation désastreuse qui, en méconnaissance de la nature certaine des choses, a fait de la loi des effectifs la fonction de la loi de recrutement.
 
 Le principe rationnel, que c'est la loi de recrutement qui doit être en fonction de la loi des effectifs, que le recrutement n'a pas d'autre objet que fournir aux unités nécessaires les effectifs qui leur sont indispensables, c'est, depuis près d'un siècle, le principe de la
 
-[p. 131]
-
 législation militaire de la Prusse, mais ce principe de la permanence des effectifs n'est pas un principe allemand. C'est un vieux principe français, j'allais dire : un principe cartésien, que l'Allemagne nous a emprunté, comme elle nous a emprunté le principe de la nation armée, comme elle nous a emprunté celui de l'amalgame, et auquel elle est restée fidèle alors que nous l'avons abandonné, il faut le dire, pour des raisons qui n'étaient que politiques ou budgétaires. (Applaudissements au centre et sur divers bancs à gauche)
 
 Nous l'avons abandonné, une première fois, sous le second Empire, et cet abandon a été l'une des causes de nos désastres. Après l'avoir rétabli dans la loi de 1872, la grande loi de M. Thiers et de l'Assemblée nationale, nous l'avons abandonné une seconde fois, en 1889, alors que la baisse déjà considérable de la natalité aurait dû nous faire un devoir impérieux de nous y cramponner, et vous savez où ce nouvel abandon nous a conduits.
 
 On nous a fait, à mon ami M. de Montebello et à moi, tantôt un mérite, tantôt un grief d'avoir « inventé » le principe de la permanence des effectifs. Nous n'avons rien inventé du tout. Nous avons simplement repris, formulé, le vieux principe dont les militaires les plus expérimentés, les civils les plus instruits des choses militaires, n'avaient jamais cessé de préconiser le maintien, que M. de Montebello, avec M. Camille Krantz et avec M. de Montfort, avaient cherché en vain à reprendre en 1905, et qui, dans la crise actuelle, devait nécessairement nous apparaître comme le moyen, non seulement de réaliser dans son plein, sans défaillance comme sans exagération, le renforcement d'effectifs qui rétablira,
-
-[p. 132]
 
 dans la mesure du possible, l'équilibre militaire entre l'Allemagne et nous, mais encore, cette organisation militaire une fois constituée, de la protéger contre toute atteinte. (Très bien ! très bien !)
 
@@ -1646,8 +1284,6 @@ Je ne crois pas me tromper en disant que certains députés, peut-être même ce
 
 L'Empereur, clairvoyant par intervalles (Interruptions à l'extrême gauche), l'Empereur clairvoyant par intervalles, quand il ne dormait pas de son sommeil de
 
-[p. 133]
-
 fataliste, le maréchal Le Bœuf risquent quelques objections, puis cèdent. D'un côté, l'intérêt militaire, de l'autre, l'intérêt politique, l'intérêt électoral. C'est celui-ci qui l'emporte.
 
 Cependant l'Empereur, à peine a-t-il donné son acquiescement, le regrette. Il lui suffirait de convoquer un nouveau Conseil, de mettre M. Émile Ollivier en présence de sa responsabilité, d'imposer, au besoin, sa volonté. Mais il ne peut plus, il ne sait plus vouloir et, comme il est resté fidèle à ses vieilles habitudes de conspirateur, voici ce qu'il imagine : le maréchal Le Bœuf ira de sa part trouver M. Thiers, il lui exposera, pièces et situations en mains, la gravité de la faute qui a été décidée en Conseil des Ministres et il le suppliera, au nom de l'armée, de combattre devant le Corps législatif le projet qu'il y a déposé lui-même et que la Commission a déjà accepté.
@@ -1656,8 +1292,6 @@ Quand on fait appel au patriotisme de M. Thiers, quand on lui parle au nom des i
 
 Le 20 juin, comme il arrive au Corps législatif, M. Thiers y trouve le débat déjà engagé sur la réduction du contingent. Un député du centre, M. de Latour, a combattu le projet comme imprudent. M. Garnier-Pagès l'a combattu comme insuffisant : il préconise le système des réserves. M. Ernest Picard a appuyé M. Garnier-Pagès, insistant, avec sa verve coutumière, sur la charge encore trop lourde qui va continuer à peser sur le pays. Et tout ce que le malheureux maréchal a trouvé à répondre, en l'absence de M. Thiers, c'est que la réduction de 10.000 hommes sur le contin-
 
-[p. 134]
-
 gent, telle que l'a proposée le Gouvernement, constitue déjà une suffisante invitation aux puissances étrangères — à la Prusse de M. de Bismarck et de M. de Moltke — de désarmer !
 
 Si je pouvais me permettre, messieurs, de donner à chacun de vous un conseil, ce serait de relire au Journal officiel, avant de déposer votre vote sur le projet qui vous est soumis, le discours que prononça alors M. Thiers et qui lui valut à la fois les attaques de ses amis de gauche et de ses ordinaires adversaires de l'extrême droite. Entre tant d'admirables et prophétiques discours de M. Thiers, vous ne relirez pas avec une moindre émotion son discours du 30 juin contre l'abaissement des effectifs de paix que son discours du 18 juillet contre la déclaration de guerre.
@@ -1665,8 +1299,6 @@ Si je pouvais me permettre, messieurs, de donner à chacun de vous un conseil, c
 M. Thiers juge, avec raison, que les effectifs des années précédentes sont eux-mêmes insuffisants. La réduction que le Gouvernement veut leur faire subir est une lourde faute. « Je vous adjure, s'écrie-t-il, au nom du pays de ne pas vous tromper sur une question de cette importance. » C'est « la plus grande des illusions » que de croire qu'en désarmant, en réduisant les effectifs de paix, on forcera d'autres puissances à désarmer. La paix ne sera maintenue que si la France est manifestement « dans l'état où elle doit être pour être respectée ». Pourquoi l'Autriche, « avec une armée admirable », a-t-elle éprouvé, en 1866, de si grands malheurs ? C'est parce que des réductions imprudentes avaient mis le Gouvernement autrichien dans l'impossibilité de faire face à tous les besoins de la guerre. »
 
 Messieurs, si vous ne votez pas le principe de la fixité, de la permanence des effectifs — si vous ne tirez
-
-[p. 135]
 
 pas le verrou, si vous ne fermez pas la porte au cadenas — si vous ne vous défendez pas, si vous ne vous protégez pas contre vous-mêmes — vous et vos successeurs qui, peut-être, n'auront point passé par les épreuves que nous avons connues — ce sera demain, après-demain, à notre détriment, pour notre plus grand malheur, que seront consenties des réductions d'effectifs qui, éventuellement, nous mettront, nous aussi, dans l'impossibilité de faire face à tous les besoins de la guerre.
 
@@ -1684,8 +1316,6 @@ J'ose, messieurs, m'approprier les paroles de M. Thiers. Dans cette Chambre auss
 
 Et M. Thiers insiste : « Soyons très pacifiques, mais
 
-[p. 136]
-
 à la condition de ne pas cesser d'être très forts. » « Je crois même, dit-il, que nous serons d'autant plus pacifiques que nous serons plus forts. Les vrais politiques ne veulent pas réduire leur pays à dépendre de la sagesse d'autrui. Soyons forts et sages. »
 
 M. Bedouce. — Nous sommes d'accord, mais qui se trompe ?
@@ -1701,8 +1331,6 @@ M. Thiers aborde la question des réserves. Déjà, pour Jules Favre, pour Garni
 500.000 hommes en 1870, messieurs, à quelques milliers d'hommes près, notre effectif d'aujourd'hui, en présence des 800.000 hommes de l'Allemagne !
 
 M. le général Pédoya. — Nous ne pouvons pas laisser dire cela. (Applaudissements à l'extrême gauche et sur divers bancs à gauche)
-
-[p. 137]
 
 M. Joseph Reinach. — Attendez un instant, je vous prie.
 
@@ -1722,11 +1350,7 @@ M. le président. — Veuillez écouter l'orateur.
 
 À l'extrême gauche. — Écoutez M. Thiers.
 
-M. Joseph Reinach. — Écoutez M. Thiers, en effet :
-
 « L'armée de la paix, c'est l'école de la guerre. L'armée de la paix est destinée à former une société qui a certainement quelque chose d'artificiel, car, enfin, il faut dans cette société qu'on appelle l'armée, faire vivre les hommes toujours avec la pensée de la mort ; il faut les arracher à leurs intérêts individuels pour y substituer le seul sentiment de l'honneur du drapeau, sentiment qui les enchaîne à ce drapeau et les décide à mourir plutôt que de l'abandonner. »
-
-[p. 138]
 
 Puis, avec ce bon sens souverain qui faisait de lui le Voltaire de la politique : « Ce n'est pas de suite qu'on fait naître ces sentiments-là dans le cœur de cette société qui s'appelle l'armée. Il faut une longue éducation. Il faut que les hommes aient vécu longtemps... »
 
@@ -1746,8 +1370,6 @@ M. le président. — Messieurs, l'orateur préfère terminer son discours. Ayez
 
 M. Joseph Reinach. — Et M. Thiers conclut : « Lorsqu'un régiment de 1.500 hommes doit passer à 4.000 hommes pour entrer en campagne », lorsque pour se compléter il doit faire appel à 2.500 réservistes, « ces troupes, dit M. Thiers, n'ont aucune cohésion, aucune force et ne peuvent pas rendre les services
 
-[p. 139]
-
 qu'on attend d'elles. Il faut donc, pour que l'armée soit ce qu'elle doit être, une véritable école de guerre, et puisse passer rapidement du pied de paix au pied de guerre, il faut que l'effectif ne descende pas au-dessous d'un certain chiffre. »
 
 C'est là, messieurs, toute notre loi. C'est l'article 3 de notre loi. Et cet article 3, avec le tableau annexe, c'est toute notre loi. (Applaudissements au centre et sur divers bancs à gauche)
@@ -1761,8 +1383,6 @@ M. Paul Aubriot. — Alors ceux qui sont contre les trois ans le sont uniquement
 M. Joseph Reinach. — Mon cher collègue, je ne dis rien de tel parce que je ne pense rien de tel ; j'apporte à la Chambre un récit historique dont il vous sera facile de vérifier l'exactitude ; je parle du Corps législatif.
 
 Mais je n'ai pas terminé mon récit. Écoutez encore ceci, et dans deux minutes, M. Augagneur pourra prendre la parole, et vous aussi, monsieur Aubriot.
-
-[p. 140]
 
 Voici quel était au début de la campagne, avant l'arrivée des réservistes, l'effectif des compagnies : en moyenne 85 hommes.
 
@@ -1780,8 +1400,6 @@ Continuez à rire, messieurs ! (Applaudissements au centre et sur divers bancs �
 
 « Les Allemands... » — continue l'historien — « ... n'auraient pas, malgré leur audace, osé pousser aussi hardi-
 
-[p. 141]
-
 ment qu'ils l'ont fait leurs pointes offensives et les forces de Mac-Mahon et de Bazaine auraient pu sans doute, en se repliant, se concentrer. Il n'y eut pas seulement défaite, il y eut écroulement et débâcle. »
 
 M. Le Hérissé, président de la Commission de l'Armée. — ... et trahison !
@@ -1790,19 +1408,13 @@ M. Joseph Reinach. — « La première armée vaincue tombait dans le vide ! »
 
 Messieurs, l'historien, l'auteur de ce jugement sans appel, c'est notre collègue M. Jaurès. (Vifs applaudissements et rires au centre et sur divers bancs à gauche)
 
-M. Jaurès. — Parfaitement. (Mouvements divers)
-
 M. Jaurès. — Mais, messieurs, c'est extraordinaire, car c'est toute ma thèse : ma thèse est qu'il faut lutter contre l'adversaire avec le maximum des forces nationales. Et voilà pourquoi, au lieu de compter seulement, comme vous, sur l'effectif, même grossi, de caserne, je veux mettre debout toute la nation organisée... (Applaudissements à l'extrême gauche. — Interruptions au centre)
-
-M. Lucien Dior. — Quinze jours trop tard.
 
 M. Jaurès. — Ce que je vous reproche précisément, c'est de recommencer les fautes de l'Empire. Nous vous empêcherons d'aller jusqu'au bout. (Applaudissements à l'extrême gauche. — Bruit au centre)
 
 M. Victor Augagneur. — Je demande la permission de présenter également une courte observation.
 
 M. le président. — La parole est à M. Augagneur, avec l'assentiment de M. Reinach.
-
-[p. 142]
 
 M. Victor Augagneur. — J'ai écouté et entendu avec beaucoup d'intérêt la citation du discours de M. Thiers. J'en retiens tout ce qu'elle contient sur le patriotisme, et j'en retiens autre chose : M. Thiers était un civil ; il discutait des choses de l'armée d'une façon qui vous plaît. (Interruptions au centre) Il est donc permis à des civils de discuter des choses de l'armée, même s'ils ne sont pas partisans de la loi de trois ans. (Très bien ! très bien ! à l'extrême gauche)
 
@@ -1815,8 +1427,6 @@ M. André Lefèvre. — Elle a montré une chose à l'Allemagne... (Exclamations
 M. Victor Augagneur. — Laissez-moi continuer, je vous en prie. L'armée qui a été vaincue en 1870 était le type des armées de métier et c'est parce que nous n'avions qu'une armée de métier, qui n'était pas suivie de réserves, que nous avons été vaincus. (Applaudissements à l'extrême gauche et sur plusieurs bancs à gauche) Personne parmi vous ne contestera que si, en 1870, l'honneur de la France a été sauvé, c'est parce que des réserves improvisées ont remplacé l'armée active défaillante. (Vifs applaudissements sur les mêmes bancs)
 
 M. Adigard. — L'armée du Rhin était admirable.
-
-[p. 143]
 
 Elle n'avait qu'un défaut, elle n'était pas assez nombreuse. Lisez les historiens allemands.
 
@@ -1836,8 +1446,6 @@ M. le général Pédoya. — Nous avons été battus parce que nos magasins avai
 
 M. Jules-Armand Razimbaud. — Comme aujourd'hui par le Maroc.
 
-[p. 144]
-
 M. le général Pédoya. — Nous avons été battus parce que nos généraux n'ont pas été à la hauteur de leur tâche. (Applaudissements sur les mêmes bancs) Nous avons été battus encore parce que nous n'avions alors qu'une armée de parade. Heureusement nous avons aujourd'hui une armée préparée à la guerre. (Applaudissements sur les mêmes bancs)
 
 M. Bedouce. — Et il était défendu alors de parler d'incurie !
@@ -1849,8 +1457,6 @@ M. Joseph Reinach. — Je répondrai à M. le général Pédoya qui rappelle, et
 Ne commettez pas la même faute. Ceux qui l'ont commise en 1867 ont été coupables d'imprévoyance ; ceux qui la commettraient aujourd'hui, après les enseignements, les douloureux enseignements qu'ils ont reçus de l'histoire, (Exclamations à l'extrême gauche) ne pourraient pas alléguer les mêmes excuses ; une faute de même ordre serait impardonnable. (Applaudissements au centre et sur divers bancs à gauche)
 
 M. Bedouce. — Vous l'avez commise en allant au Maroc.
-
-[p. 145]
 
 M. Joseph Reinach. — Je me tourne vers mes amis de la gauche, je leur dis : les républicains ont la charge des destinées de la France. Qu'ils ne retombent pas dans les erreurs, qu'ils ne renouvellent pas les fautes commises, il y a quarante-six ans ! (Applaudissements au centre et sur divers bancs à gauche)
 
@@ -1864,8 +1470,6 @@ Nous pensons que la loi de 1905 ne saurait être conservée sans risquer de fair
 
 Et vous, monsieur Augagneur, vous qui avez cru
 
-[p. 146]
-
 nécessaire de rappeler ce qu'a été, après le désastre de 1870, l'effort magnifique de la défense nationale, permettez-moi de vous répondre que je crois connaître aussi bien que vous cette grande page de notre histoire ; je m'en suis entretenu souvent avec l'homme qui a été l'âme de la défense nationale et j'ai gardé le souvenir de ses entretiens. Si Gambetta, avec des armées improvisées, a pu sauver l'honneur, avec des armées exercées, avec des armées instruites, que n'aurait-il pas fait. (Vifs applaudissements)
 
 Et n'est-ce pas Gambetta qui, dans l'exposé des motifs du projet de loi sur le service militaire qu'il a déposé ici, après la chute de son ministère, écrivait que trois ans était le minimum de la durée nécessaire pour former un soldat ? (Applaudissements au centre. — Interruptions à l'extrême gauche)
@@ -1875,8 +1479,6 @@ M. Dejeante. — En 1869, dans son programme de Belleville, il a demandé la sup
 M. Joseph Reinach. — La permanence des effectifs, voilà donc, messieurs, et je crois bien pouvoir le dire à présent ; voilà pour des raisons de salut public auxquelles il serait inutile d'ajouter d'autres arguments, voilà donc la base, la pensée dominante de notre projet.
 
 Fixer la durée du service militaire à deux ans, ou à trente mois, ou à trente-six mois, c'est, en effet, obéir d'une part à une simple vue a priori, à une conception de l'esprit, parce que l'on s'est persuadé qu'il suffit de deux ans ou qu'il faut trente mois ou trois ans pour faire un fantassin, un artilleur ou un cavalier ; c'est, d'autre part, considérer, ce qui n'est pas une moindre
-
-[p. 147]
 
 erreur, le régiment comme une école d'où l'on renvoie les élèves sitôt qu'ils ont été reçus à leur examen de brevet ou de baccalauréat. (Très bien ! très bien !)
 
@@ -1888,8 +1490,6 @@ Savez-vous ce qu'est la durée du service militaire ? Ce n'est pas un principe ;
 
 Ainsi c'est à cause de l'abondance extrême de son contingent que l'Allemagne a réduit de trois ans à deux ans le service militaire dans l'infanterie, et c'est à cause
 
-[p. 148]
-
 de la pénurie de notre contingent que nous allons porter de deux à trois ans, ou à trente mois, selon les contre-projets de nos collègues, le service militaire dans toute l'armée.
 
 Qu'avons-nous donc fait à la Commission de l'Armée, lorsqu'une étude attentive du projet primitif du Gouvernement nous a démontré que les jeunes gens des familles nombreuses qu'il proposait de renvoyer au bout de deux ans et de trente-six mois, n'étaient pas quelques milliers, comme on l'avait supposé, mais, d'après les statistiques officielles publiées par le ministère du Travail, environ 38.000 jeunes gens de familles ayant 6 et plus d'enfants, 22.000 jeunes gens de familles ayant 5 enfants, 32.000 jeunes gens de familles ayant 4 enfants, soit 60.000 à 80.000 hommes sur un effectif de 200.000 hommes, ce qui ne faisait plus de la loi de trois ans qu'une étiquette, mais, je dois le dire, ce qui n'a pas peu contribué à faire apparaître la nécessité de donner à la nouvelle loi la base et la garantie d'un principe qui s'imposât avec la double force de la vérité et de l'expérience ?
@@ -1897,8 +1497,6 @@ Qu'avons-nous donc fait à la Commission de l'Armée, lorsqu'une étude attentiv
 Or ce principe, d'où dépendrait la durée du service militaire, ce ne pouvait être que celui de la permanence des effectifs parce que, seul, le retour à ce principe pouvait nous donner l'armée qui rétablirait et qui, une fois rétabli, maintiendrait entre l'Allemagne et nous l'équilibre militaire qui a été rompu par l'accroissement continu de l'armée allemande depuis huit ans, surtout depuis 1912.
 
 Le principe de la permanence des effectifs une fois posé, admis après examen par le Gouvernement, nous avons en conséquence demandé au ministre de la
-
-[p. 149]
 
 Guerre qui, lui-même, a demandé à la seule autorité compétente dans l'espèce, au Conseil supérieur de la Guerre, quels devaient être, pour chaque unité, des troupes de couverture et des troupes de l'intérieur, les effectifs légaux, les effectifs minima au-dessous desquels il serait désormais interdit de descendre.
 
@@ -1910,8 +1508,6 @@ De même pour la cavalerie, les différentes artilleries, le génie.
 
 Faites le compte des effectifs demandés ainsi pour les différentes armes, majorez le total de 8 0/0 en raison des déchets à prévoir, défalquez du total ainsi obtenu les 14.000 hommes des troupes d'administration métropolitaines et coloniales, et vous avez, comme
 
-[p. 150]
-
 nécessaire à l'incorporation, un effectif total de 727.065 hommes, supérieur de 182.352 hommes à l'effectif légal actuel, inférieur seulement de 196.933 hommes à l'effectif allemand de demain : 871.000 hommes.
 
 Défalcation faite d'une part des 60.000 hommes qui sont engagés au Maroc et qui ne pourront pas tous venir à la mobilisation ; — défalcation faite d'autre part des 200.000 hommes que l'Allemagne sera obligée de maintenir sur la frontière russe, — nous voici donc à peu près à égalité.
@@ -1921,8 +1517,6 @@ Avec des effectifs nécessairement supérieurs pour nos unités de couverture, �
 Ainsi, nous ne disons pas a priori : il faut que le service soit de trois ans ; mais nous disons : il nous faut des effectifs qui puissent satisfaire à tous les besoins. Il nous faut, en conséquence, une armée de 727.000 hommes. Voilà dans ses grandes lignes, dans son architecture générale, la loi d'organisation ; voici maintenant la loi de recrutement qui s'en déduit.
 
 Ces 727.000 hommes qui sont nécessaires, indispensables pour doter chaque unité de l'effectif qui lui est nécessaire, nous les demandons, comme précédemment, au contingent et aux engagements volontaires et rengagements.
-
-[p. 151]
 
 Nous sommes à la fois un pays de natalité faible, un pays très riche et un pays de fonctionnaires.
 
@@ -1940,8 +1534,6 @@ M. Roblin. — On désertera les campagnes.
 
 M. Joseph Reinach. — La prolongation nécessaire, indispensable de service pour le contingent des appelés, nous ne la fixons pas invariablement à une année de plus : nous disons seulement qu'elle pourra aller jusqu'à
 
-[p. 152]
-
 une année de plus ; que légalement, les appelés pourront être maintenus trois ans sous les drapeaux ; que, cependant, une partie de ces appelés sera libérée, les uns après deux ans, les autres après trente mois de service, chaque fois qu'à ces deux époques l'effectif nécessaire, l'effectif légal, majoré de 8 0/0 au 15 novembre et de 6 0/0 au 15 avril, se trouvera dépassé, du fait soit des engagements volontaires, soit des rengagements.
 
 Nous avons besoin de 727.000 hommes et aucun effort, aucun sacrifice ne nous coûtera pour avoir ces 727.000 hommes.
@@ -1953,8 +1545,6 @@ Et, dès lors, en vertu du principe fondamental que nous avons inscrit en tête 
 De quel droit, en effet, dans quel intérêt le garderions-nous ?
 
 Les militaires qui seront ainsi renvoyés dans leurs foyers, et qui seront, comme de juste, pris sur l'ensemble de l'armée et sans distinction d'armes ni de corps, seront-ils désignés, du moins en majorité, par le sort, comme vous le propose la Commission de l'Armée ? ou les prendrons-nous, comme je vous le demanderai par un amendement, parmi les jeunes gens des familles nombreuses, les soutiens de famille devant être les premiers libérés dans chaque catégorie, les uns et les
-
-[p. 153]
 
 autres devant être libérés en commençant par les plus âgés ?
 
@@ -1974,8 +1564,6 @@ M. Jules Coutant. — Vous vous trompez. J'ai huit garçons et cinq filles ; cin
 
 M. Adigard. — Mes enfants sont soldats tous les deux.
 
-[p. 154]
-
 M. Jules Coutant. — Vous ne laisseriez peut-être pas partir un des vôtres comme le mien, car il est soldat au Maroc, payeur aux armées.
 
 M. Adigard. — Je n'ai qu'un mot à dire : mon fils aîné est engagé volontaire et a fait la campagne au Maroc.
@@ -1988,8 +1576,6 @@ Aussi bien, messieurs, suis-je arrivé au terme de la tâche que je m'étais pro
 
 Je crois être certain que, de tous les projets dont vous êtes saisis, celui de votre Commission de l'Armée est celui qui apportera à la défense nationale la plus grande force, parce qu'il assure constamment à l'armée les effectifs qui lui sont nécessaires ; parce qu'il doit accroître manifestement la valeur de l'armée active et de ses réserves en raison de l'instruction collective qui sera donnée aux unités ; parce qu'il double ou triple la
 
-[p. 155]
-
 solidité de notre couverture et parce qu'il accélère considérablement la rapidité de notre mobilisation. (Très bien ! très bien !)
 
 Et je crois aussi être certain que, par le système des libérations anticipées d'un surnombre qui s'élèvera d'année en année avec le nombre des engagements et des rengagements, chaque engagé volontaire et chaque rengagé de plus libérant un homme de la classe, il est de tous les projets celui qui, à l'usage, apparaîtra comme le moins lourd. (Très bien ! très bien !)
@@ -1998,23 +1584,13 @@ Mais si, contre toute attente, je me trompais sur ce point, — et ce sera mon d
 
 Je suis profondément convaincu et tous ceux d'entre vous qui ont réfléchi aux enseignements de l'histoire savent comme moi que, de toutes les garanties de la paix, il n'y en a pas de plus solide que la force au service du droit. (Applaudissements au centre et sur divers bancs à gauche) Mais comme il n'existe pas de balance où se puisse peser la force qui, partout, toujours, quoi qu'il arrive, assurera la victoire du droit ;
 
-[p. 156]
-
 s'il faut choisir et puisque, nécessairement, il faut choisir entre une force qui risque seulement d'être supérieure à la menace et une force qui ne lui serait pas égale ; comme il n'y a pas une circonstance, une seule, où l'on puisse avoir à regretter d'avoir fait plus que son devoir, (Applaudissements sur les mêmes bancs) et comme il pourrait, hélas ! s'en produire où l'on aurait à pleurer toute sa vie de n'avoir pas fait tout son devoir ; (Applaudissements sur les mêmes bancs) comme il y a, je l'ai dit déjà, mais permettez que je le répète, comme il y a entre les députés de l'Empire, opposition et majorité, et nous, patriotes de tous les partis et républicains qui avons assumé la responsabilité des destinées de la France, cette différence redoutable qu'ils ont péché par imprévoyance et que nous avons, nous, l'expérience cruelle de leur faute ; (Applaudissements sur les mêmes bancs) comme ceux-là, enfin, ont été unanimes dans leur avis qui auraient, à l'heure des suprêmes périls, la charge de conduire nos armées au feu et le devoir de vaincre : mon choix est fait. (Double salve d'applaudissements au centre et à gauche. — L'orateur, en retournant à son banc, reçoit les félicitations de ses amis)
-
-VI
-
-À PROPOS DE CITATIONS
-
-[p. 159]
 
 La lecture que j'avais faite à la Chambre d'une page de son Histoire de la Guerre de 1870 avait fort mécontenté M. Jaurès. Cette citation, dans le fait, était à son honneur. Il y avait fortement résumé, à sa manière, l'opinion de tous les écrivains militaires de la guerre de 1870. Mais ses amis de l'extrême gauche socialiste n'avaient pas reconnu, avant que je le nommasse, l'auteur de ce vigoureux jugement ; ils avaient ri ; j'avais constaté leurs rires ; puis la Chambre s'était égayée de ce petit coup de théâtre. Je ne l'avais point machiné, évidemment, pour être agréable à M. Jaurès, mais l'éternelle vérité du genus irritabile vatum m'était un peu sortie de la mémoire.
 
 On vit M. Jaurès courir à la bibliothèque, en revenir avec un volume, son Histoire de la Guerre. Il demanda la parole pour un fait personnel. Je n'éprouve aucun embarras à reproduire in extenso son plaidoyer :
 
 M. Jaurès. — Je demande à la loyauté de la Chambre et à sa courtoisie cinq minutes d'attention pour rétablir dans sa vérité, par une courte lecture, un texte de moi que
-
-[p. 160]
 
 M. Joseph Reinach a apporté tout à l'heure à cette tribune et qu'il a bien inconsciemment, j'en suis sûr, détourné bien involontairement de son sens.
 
@@ -2032,8 +1608,6 @@ Il est puéril de prétendre, comme le font volontiers les apologistes de l'Empi
 
 D'ailleurs le parti républicain ne désarmait pas la nation. Il demandait la liberté politique, le contrôle effectif du pays sur
 
-[p. 161]
-
 les affaires extérieures comme sur les affaires intérieures. Il disait que, jusque là, donner des soldats à l'Empire, c'était les donner à la tyrannie et à l'esprit d'aventure. Assurer la paix par la liberté, et constituer la défense de la nation par une organisation vraiment populaire, par une vaste organisation de milices nationales qui aurait mis tous les citoyens en état de manier le fusil, c'était le programme des républicains ; ils ne pouvaient pas en avoir d'autre. En ceci d'ailleurs qu'il les juge.
 
 Mais puisque l'Empire n'adoptait pas cette politique générale de l'opposition républicaine, c'était à lui d'opposer et sa majorité ses plans, ses systèmes d'organisation. Celui de Niel était bien lointain encore et bien incomplet ; il aurait pu, mieux adopté intégralement, accroître que de peu et à long terme la force de l'armée. L'Empire n'osa pas le soutenir à fond. Les dépenses de détails, tout en renonçant aux libertés réelles et au contrôle effectif qui auraient pu sauver la paix, ne partageait pas que de paix, l'Empire, qui les investissait, qui leur donnait jeux mandait tout préparé dans les cabinets préfectoraux, n'a sut pas leur demander un acte de courage. Min-même ne disposait pas de toute la force de terreur et de tout le prestige violent qui avait servi le coup d'État, et ne pouvait pas chercher l'aumône une force nouvelle fondée dans la démocratie et la liberté ; il savait par assez d'instinct de mots pour demander à la nation un sacrifice. Aucun brutalité ce qu'il y a de plus haut dans les consciences, il était obligé de ménager ce qu'il y a de plus médiocre dans les habitudes. (Très bien ! très bien ! à l'extrême gauche) il avait que des velléités, point de volontés ; et si ses pas le génie trempait, lui et la France, sur une barque lui-même savait distinguer et tarer. Depuis des années, l'Empire n'était plus un gouvernement, c'était une aventure en liquidation. (Vifs applaudissements à l'extrême gauche et sur divers bancs à gauche)
@@ -2041,8 +1615,6 @@ Mais puisque l'Empire n'adoptait pas cette politique générale de l'opposition 
 Pour les républicains d'aujourd'hui, comme pour les républicains d'hier, je dis que démocratie et défense nationale sont inséparables. (Nouveaux applaudissements sur les mêmes bancs)
 
 Avais-je fait une citation inexacte ? Pourquoi M. Jaurès ne relisait-il pas lui-même le passage dont j'avais donné lecture à la Chambre et qui reliait à merveille ces deux morceaux : « Mais si le vice politique... » et « Il est puéril de prétendre ? » En quoi ces deux morceaux atténuaient-ils, modifiaient-ils la partie « du jugement sans appel » que j'avais lue à la Chambre ?
-
-[p. 162]
 
 M. Jaurès avait déposé un contre-projet dont voici le texte :
 
@@ -2062,8 +1634,6 @@ La discussion générale ayant été close (1) avant que M. Jaurès ait pu prend
 
 (1) Le passage à la discussion des articles fut voté par 381 voix contre 189 ; la déclaration d'urgence par 355 voix contre 190.
 
-[p. 163]
-
 M. Jaurès me prit constamment à parti. Il avait dans son dossier mon livre l'Armée toujours prête. Liseur admirable, il embelllit par son art les citations qu'il fit de mon rapport sur l'artillerie et de mes discours sur la loi des cadres. Ces citations avaient pour objet de me mettre en contradiction avec moi-même. Très ancienne tactique qui réussit assez souvent. (Voir la Logique parlementaire de Hamilton). Le fait nouveau des armements allemands était pour M. Jaurès comme s'il n'existait pas. Pour nous, c'était l'ultima ratio.
 
 Je reproduis, d'après le compte rendu sténographique, le dialogue suivant :
@@ -2073,8 +1643,6 @@ M. Jaurès. — Me permettrez-vous, messieurs, d'invoquer mon modeste témoignag
 Lorsque nous discutons ici la loi sur les cadres, j'ai apporté à cette tribune la preuve que vous alliez, au bout de quelques mois, vous trouver en face, non plus de 700.000, de 800.000, ou 600.000 hommes, mais, par une adjonction probable de réserves, de 1.200.000 hommes au moins. C'était donc un fait prévisible, c'était un fait probable, c'était, dans tous les cas, un fait possible ; et vous auriez été les plus imprévoyants et les plus coupables des hommes si, toutes les fois que vous êtes venus à cette tribune, pour les cadres de l'artillerie, pour les cadres de la cavalerie, pour les cadres de l'infanterie, apporter vos vues d'avenir, des projets d'organisation qui n'étaient pas seulement pour le lendemain mais pour la suite de l'effort national, vous auriez été les plus coupables et les plus imprévoyants des hommes si vous n'aviez pas fait entrer dans vos calculs la possibilité d'un relèvement des effectifs de l'Allemagne. (Applaudissements à l'extrême gauche et sur divers bancs à gauche)
 
 Eh bien, vous l'avez fait, vous l'avez prévu ; vous n'avez qu'à lire le rapport de M. Joseph Reinach sur l'organisation nouvelle de l'artillerie ; vous y verrez l'annonce, l'hypothèse
-
-[p. 164]
 
 de l'effort complémentaire que l'Allemagne pourrait réaliser, grâce à son excédent de population et à l'inutilisation d'une partie de son contingent.
 
@@ -2088,11 +1656,7 @@ Nous avons admiré, dans les batteries actives, l'homogénéité des unités ins
 
 Et vous allez voir, messieurs, que, dans cette période, où, comme je l'ai montré, on prévoyait l'accroissement des forces allemandes, de toutes parts, c'est sur les réserves, sur toutes les réserves de seconde ligne et de première ligne, et sur leur organisation, qu'on fondait indéfiniment pour l'avenir les garanties de sécurité de la France.
 
-M. Joseph Reinach continuait :
-
 Nous savons que les chefs de l'artillerie ont pleine confiance dans la solidité, l'endurance et le sang-froid des réservistes qui seraient appelés aux premières rencontres, prête décisive, à collaborer à leur place et à leur rang avec leurs camarades de l'armée active ; notre conviction, fondée sur l'observation et l'expérience, étrangère à tout optimisme de commande, ne diffère point de la leur.
-
-[p. 165]
 
 À quelque arme qu'ils appartiennent, nos réservistes sont, dans toute la force du mot, des soldats. S'ils ne quittent pas sans regret leurs familles et leurs travaux, ils retrouvent, à peine ont-ils revêtu l'uniforme, les soldats qu'ils étaient pendant leurs années de service actif. (Applaudissements à l'extrême gauche et sur divers bancs à gauche)
 
@@ -2114,8 +1678,6 @@ M. Joseph Reinach. — Je remercie vivement M. Jaurès d'avoir porté cette page
 
 M. Jaurès. — M. Reinach me dit qu'il n'a rien à en retirer ;
 
-[p. 166]
-
 mais moi, j'ai à y ajouter. J'espère que quand mes citations seront terminées, vous ne pourrez pas dire que, même volontairement, j'ai mutilé ou dénaturé le texte et la pensée. (Très bien ! très bien ! à l'extrême gauche)
 
 Nous avons entendu de nombreux officiers de tous grades s'expliquer avec une belle netteté de pensée sur cette évolution de nos institutions militaires. Notre propre pensée en est devenue plus claire à nos yeux. Aussi patriotes et aussi militaires que leurs prédécesseurs, plus et mieux instruits, l'esprit plus élargi et plus libre, les chefs et les officiers de notre armée se sont adaptés presque immédiatement au nouvel ordre qui commandait. Ils ne voient pas dans les réserves, comme d'autres en un temps qui n'est pas encore très lointains, une garde nationale encombrant. (Applaudissements à l'extrême gauche et sur divers bancs à gauche) Les réserves c'est la part la plus considérable de l'armée combattante, de l'armée du temps de guerre.
@@ -2130,8 +1692,6 @@ Voilà le rôle des réserves, et moi, avant de passer à la suite de mes citati
 
 M. Joseph Reinach. — Je remercie encore une fois M. Jaurès...
 
-[p. 167]
-
 M. Jaurès. — Vous me remercierez souvent. (Sourires)
 
 M. Joseph Reinach. — ... de la citation qu'il vient de faire. Je n'ai pas un mot à en retirer.
@@ -2144,23 +1704,17 @@ Ces réservistes qui, demain comme hier, seront appelés à la mobilisation — 
 
 M. Jaurès. — Puisque nous en sommes à la période charmante des remerciements réciproques, c'est moi qui vais remercier M. Reinach d'avoir souligné pour la Chambre le contraste entre ses paroles d'hier et ses paroles d'aujour-
 
-[p. 168]
-
 d'hui. (Mouvements divers) Car enfin, monsieur Reinach, ou bien vous étiez prodigieusement inattentif...
 
 M. Joseph Reinach. — Vous venez de dire le contraire.
 
 M. Jaurès. — ... aux choses militaires de l'Allemagne, ou nous ne pouviez pas ignorer et vous n'ignoriez pas, puisque vous en parlez au début de votre rapport, au moment où vous avez écrit ces lignes, que l'Allemagne pouvait à une date rapprochée accroître son effectif de caserne ; et vous n'avez pas écrit : Ce que j'ai dit des réserves, ce que j'ai dit de notre armée n'a qu'une valeur provisoire jusqu'à l'heure où l'Allemagne aura accru son effectif de caserne. Mais si cela n'avait pas une valeur provisoire...
 
-M. Joseph Reinach. — Non !
-
 M. Jaurès. — ... si la valeur reconnue par vous à ces réserves c'était une valeur définitive, si la nécessité de mettre en œuvre la loi de deux ans et l'éducation militaire sous les règles de la loi de deux ans avaient porté à un niveau supérieur les officiers et les soldats, en quoi, je vous prie, la réalisation de l'hypothèse, des lors prévue, de l'accroissement d'armements de l'Allemagne vient-elle affaiblir cette force d'excellence que vous reconnaissiez aux réserves, à notre armée ?
 
 Dernier incident de la séance du 18 juin, que je reproduis d'autant plus volontiers d'après le compte rendu sténographique que l'Humanité résume le plus souvent, en trois phrases dédaigneuses et, en outre, inexactes, des discours de ses adversaires :
 
 M. Jaurès. — J'ai été accusé de vouloir livrer sans défense la Champagne, la Bourgogne, les départements du Nord, et l'on a dit que mon rêve, ma conception géniale, c'était de concentrer tous nos efforts dans le grand triangle national Moret, Montereau, Fontainebleau ou même dans le Morvan. Ainsi, je livrais, en effet, le Nord et l'Est de la
-
-[p. 169]
 
 France, les provinces les plus riches ! Et M. André Lefèvre, qui a un génie de calculateur, a fait le bilan de tous les milliards, de tous les hommes, de toutes les cités, de tous les villages que je livrais ainsi à l'ennemi, sans défense. (Applaudissements à l'extrême gauche et sur divers bancs à gauche) Et bien, je cherche quelle c'est l'origine de cette légende. Elle est dans un discours de M. Joseph Reinach. (Rires à l'extrême gauche)
 
@@ -2171,8 +1725,6 @@ Or, dans mon livre sur l'Armée Nouvelle, dans l'exposé des motifs de ma propos
 Le texte, messieurs, de qui est-il ? le ce texte de l'abandon d'une aussi large partie du territoire national a été commis, par qui l'a-t-il été ? Pas par moi ; par le capitaine Gilbert ! C'est-à-dire par un homme qui a été considéré, quand ses études ont paru en 1888, 1890, 1891, dans la Revue nationale du madame Adam, comme l'éducateur des nouvelles générations militaires.
 
 Il précise avec force. — Écoutez, messieurs, c'est Gilbert, ce n'est pas moi, ce n'est pas moi pauvre laïe calomnié
-
-[p. 170]
 
 (Rires et applaudissements à l'extrême gauche), c'est Gilbert. Il précise avec force :
 
@@ -2191,8 +1743,6 @@ C'est dans cette hypothèse qu'il a écrit la phrase dont je porte encore tout l
 En cas de revers, des régions cultivées telles que le Morvan ou le triangle stratégique Montereau-Moret-Fontainebleau peuvent être aussi préparées pour recueillir les armées battues et remplacer cette seconde ligne de défense que nous avons renoncé à constituer de façon permanente.
 
 Voilà le paradoxe, l'erreur de citation au double degré : on m'impute à moi une opinion de Gilbert et on impute à Gilbert une opinion absolument contraire à celle qu'il exprime. (Applaudissements à l'extrême gauche et sur divers bancs à gauche)
-
-[p. 171]
 
 Je ne me fais aucune illusion. Je sais quelle est la ténacité des légendes calomnieuses. Je sais que le Temps, que l'Écho de Paris, tous les journaux qui, tous les jours, colportent contre moi cette légende, je sais, je suis sûr qu'ils n'y renonceront pas, et c'est précisément parce que les hommes sérieux, comme M. Joseph Reinach, doivent savoir par expérience que, lorsqu'une légende calomnieuse de cette sorte est lancée dans la presse, il est impossible de la révoquer, impossible de la rappeler...
 
@@ -2218,15 +1768,11 @@ M. Jaurès. — J'ai dit, monsieur Lefèvre, que j'avais cru surprendre dans vos
 
 M. le président. — Je dois dire à la Chambre que M. Joseph Reinach, s'étant trouvé souffrant à l'issue de la
 
-[p. 172]
-
 séance d'hier, m'a prévenu qu'il ne lui serait pas possible de se rendre à la Chambre ce matin.
 
 M. Jaurès. — Je ne dis rien à l'égard de M. Reinach qui ne puisse être dit soit en sa présence, soit en son absence. (Applaudissements à l'extrême gauche) Il a, comme moi, le droit d'être souffrant à ses heures. S'il n'avait que ce défaut !... (Rires à l'extrême gauche)
 
 Dès que je pris connaissance du discours de M. Jaurès, j'adressai au directeur du Temps la lettre suivante :
-
-Paris, 19 juin 1913.
 
 Mon cher directeur,
 
@@ -2237,8 +1783,6 @@ Je reconnais, comme j'en suis déjà convenu dans une conversation avec M. Jaur�
 C'est dans la séance du 29 novembre 1912, au cours de la discussion du projet de loi relatif à la constitution des cadres de l'infanterie, que je me suis exprimé ainsi :
 
 « Sa politique de paix, la Révolution la défend par une stratégie offensive. Et que M. Jaurès me permette de le lui dire, si quelqu'un à cette époque était venu proposer sa stratégie défensive, la retraite sur le triangle de concentration nationale, le repliement sur la ligne
-
-[p. 173]
 
 Montereau-Moret-Fontainebleau, une telle proposition, la Convention l'aurait tenue, dans le vocabulaire du temps, comme une idée contre-révolutionnaire, et vous savez, monsieur Jaurès, où conduisaient sous la Révolution les idées contre-révolutionnaires. » (Rires et applaudissements au centre et sur divers bancs)
 
@@ -2256,8 +1800,6 @@ Je n'ai pas besoin de dire que M. Jaurès, dans son discours d'hier, n'a pas don
 
 Aussi bien, quiconque voudra se reporter à l'exposé des motifs de M. Jaurès y reconnaîtra que tout le chapitre intitulé « Offensive et défensive » est dominé par
 
-[p. 174]
-
 l'idée d'un rassemblement général de nos forces très loin de la frontière.
 
 Cette théorie de l'offensive brusquée, dont on paraît plaisanter toujours à l'extrême gauche, n'a jamais été établie avec plus de force que par M. Jaurès.
@@ -2266,29 +1808,17 @@ Cette théorie de l'offensive brusquée, dont on paraît plaisanter toujours à 
 
 » Il est inutile de spéculer ici sur la répartition probable des armées allemandes. Ce qui est certain, c'est que c'est par les forces déjà accumulées en Alsace-Lorraine et rapidement grossies qu'ils brusqueraient l'offensive. Par la forme même de la frontière, qui est en équerre, ils se sont ménagé des combinaisons multiples. Toul, Nancy, Épinal, sont pris dans l'angle de l'équerre, dans ce que le commandant Rossel appelle, comme nous le verrons, « les mâchoires de l'étau ». C'est pour se ménager ce jeu multiple que de Moltke avait insisté pour avoir Metz. La disposition de la nouvelle frontière est telle que les Allemands peuvent aisément masser leurs forces pour un effet écrasant et qu'ils peuvent déboucher à la fois sur la frontière et sur les flancs de l'adversaire. C'est semble-t-il l'idéal de l'offensive. »
 
-[p. 175]
-
 Et voici maintenant la riposte de M. Jaurès à l'attaque brusquée :
 
 « Ce Gouvernement de conquête et de violence (qu'est l'Allemagne) ne peut étouffer chez son propre peuple les inquiétudes de la conscience et de la pensée que par la soudaineté et la violence des coups portés à son adversaire. Il faut qu'il verse d'emblée à son peuple qui s'émeut, une ivresse de violence triomphante, un alcool de victoire. S'il y a ajournement, attente, délai ; si l'armée de première ligne, excitée comme un taureau, a foncé dans le vide ; si l'ennemi, tout en résistant, s'est dérobé ; si là-bas, dans une zone de concentration plus reculée, toute une nation s'amasse, comme s'amasseraient au creux de l'horizon des nuages noirs de tempête ; et si pour faire équilibre à cette force accumulée d'un grand peuple qui ne veut pas périr, il faut faire appel aux réserves laissées au second plan, quel émoi grandissant dans la nation du Gouvernement envahisseur. »
 
 Si ce n'est pas le triangle Montereau-Moret-Fontainebleau, où M. Jaurès place-t-il donc la zone de concentration plus reculée où s'amassera la nation en armes pour résister au taureau allemand « qui jusqu'alors a foncé dans le vide » ?
 
-Joseph Reinach
-
-VII
-
-L'INCORPORATION À VINGT ANS
-
-[p. 177]
-
 La question de l'incorporation à vingt ans fut posée devant la Chambre par un amendement de M. Escudier (25 mars) et, dans la presse, par M. Touron, sénateur de l'Aisne, qui s'appuyait sur les délibérations des Chambres de Commerce. Les services sanitaires du ministère de la Guerre avaient été de tout temps hostiles à l'incorporation à vingt ans ; on n'ignorait pas qu'ils persistaient dans leur opposition.
 
 La discussion de l'amendement de M. Escudier, devant la Commission de l'Armée, fut sommaire ; elle se borna à un échange d'observations entre M. Augagneur et moi (séance du 8 mai).
 
 Le compte rendu résume en ces termes mon intervention : « L'article 2 qui fixe l'âge de l'incorporation fera nécessairement l'objet d'un très important débat devant les Chambres. M. Escudier propose d'abaisser l'âge d'incorporation à vingt ans. Il y a de très bonnes raisons à faire valoir pour justifier cet abaissement. Le fait que les jeunes gens pourront rentrer dans la vie
-
-[p. 178]
 
 civile après trois ans de service au même âge où ils y entrent aujourd'hui ne saurait laisser le Parlement indifférent. L'objection du Service de Santé serait sans doute moins forte si on lui garantissait la faculté d'ajourner pendant deux années consécutives les conscrits dont les médecins militaires jugeraient le développement physique insuffisamment avancé. »
 
@@ -2298,8 +1828,6 @@ L'argument de M. Augagneur, qui invoquait son expérience de médecin, décida l
 
 Les promoteurs de l'incorporation à vingt ans ne s'arrêtèrent pas devant ce vote ; ils redoublèrent d'activité dans leur propagande. Aux industriels et aux commerçants qui avaient pris la tête du mouvement se joignirent des hommes de science appartenant à toutes les branches de l'enseignement. Les dispositions restrictives du projet du Gouvernement sur les devancements d'appel (article 15) avaient causé un vif émoi dans les milieux universitaires ; notre contre-projet (article 6) les avait corrigées ; mais l'incorporation à vingt ans constituerait pour les professions libérales, comme pour les ouvriers de l'industrie, un avantage de beaucoup plus considérable. Pour les ouvriers agricoles,
 
-[p. 179]
-
 elle était sans inconvénient. On fit observer que « l'homme de la campagne est aussi vigoureux à vingt ans qu'à vingt et un ans, que l'ouvrier des villes n'a pas encore été touché dans ses œuvres vives par la vie pénible de l'atelier, les tentations de l'alcoolisme, parfois aussi par les mauvaises conditions de l'existence. » (1) « Aux deux points de vue de l'hygiène et de l'alimentation, la situation serait meilleure pour un très grand nombre de jeunes gens incorporés. » Aussi bien l'inscription maritime recrute-t-elle à vingt ans et l'incorporation se fait-elle à vingt ans en Allemagne et en Italie.
 
 Si fortes que fussent ces considérations, l'opposition persistante d'un grand nombre de médecins, civils et militaires, et de beaucoup d'officiers était troublante. Dans leurs objections, tout n'était pas préjugé et routine. Certainement, il y avait dans leurs craintes une part de vérité. La jeunesse est une qualité ; il convient que l'armée soit jeune ; mais une armée trop jeune résisterait-elle aux fatigues de la guerre ? Depuis quelques années, les exercices physiques revenaient en honneur ; mais la race n'avait-elle pas été affaiblie par l'alcool, par la tuberculose, par l'abandon des campagnes ?
@@ -2308,31 +1836,21 @@ Il n'y avait donc pas de question qu'il fallût examiner plus objectivement. On 
 
 (1) Sénat, séance du 6 août 1913, discours de M. Léon Labbé, membre de l'Académie des Sciences et de l'Académie de Médecine.
 
-[p. 180]
-
 fallait pas se déterminer par des considérations politiques. Or des considérations politiques ne tardèrent pas à peser sur le problème qui venait d'être porté devant l'opinion ; et il ne pouvait pas en être autrement, puisque de l'adoption ou du rejet de la mesure, telle qu'elle était proposée par l'amendement de M. Escudier, allait dépendre le maintien définitif ou le renvoi de la classe 1910. En effet, si la loi abaissait à vingt ans l'âge de l'incorporation, on aurait forcément deux classes, l'une de vingt et un ans, l'autre de vingt ans, à incorporer à l'automne de 1913 ; il serait matériellement impossible de garder quatre classes sous les drapeaux ; il faudrait donc renvoyer dans ses foyers la classe 1910 dont le Gouvernement et les Chambres venaient de décider le maintien.
 
 Dès qu'apparut cette conséquence logique, automatique de l'incorporation à vingt ans, elle fut, pour beaucoup de partisans de la loi de trois ans, un argument en plus en faveur de la mesure projetée. Ils avaient approuvé de leur vote la forte déclaration par laquelle M. Barthou avait annoncé le maintien de la classe 1910 ; (1) ils auraient sanctionné, sans plus d'hésitation,
 
 (1) Séance du 15 mai : « Nous persistons dans une décision qui se confond pour nous avec l'accomplissement d'un devoir indiscutable. La loi de 1905, en conférant au Gouvernement le droit de maintenir la classe sous les drapeaux, a laissé juge d'apprécier sous sa responsabilité les circonstances et l'heure de sa décision... On peut affirmer que ces circonstances, dès aujourd'hui irréfutables, ne seront pas devenues, en octobre, moins pressantes et moins impérieuses. L'est semblable certitude qui intéresse la défense nationale impose au Gouvernement l'obligation d'arrêter et d'annoncer ses résolutions assez longtemps à l'avance pour qu'elles puissent recevoir à l'heure voulue leur réalisation... En ne préparant pas ces mesures, le Gouvernement faillirait au devoir que lui confère le souci de la défense nationale. » — L'ordre du jour approuvant la décision du Gouvernement fut voté par 59 voix contre 158.
 
-[p. 181]
-
 l'article du projet (1) portant que la loi s'appliquerait aux classes sous les drapeaux au moment de sa promulgation ; ils n'avaient pas pris au tragique, s'ils en avaient été émus, les mutineries de Toul, Belfort et Rodez ; ils ne s'inquiétaient pas à l'excès de la prédiction que des mouvements plus étendus éclateraient au mois d'octobre et qu'il y aurait des désertions en masse ; — tout de même, ils accueilleraient avec satisfaction une solution qui, sans que la défense nationale eût à en souffrir, permettrait d'éviter tout risque de troubles et de renvoyer dans leurs foyers des hommes qui ne croyaient devoir que deux années de service et qui s'étaient montrés à l'épreuve disciplinés et patriotes.
 
 Cette même considération du renvoi de la classe s'ajoutait, au contraire, aux arguments que d'autres, à la vérité de beaucoup moins nombreux, dirigeaient contre l'incorporation à vingt ans. Mieux eût valu ne pas annoncer, cinq mois à l'avance, le maintien de la classe, ne pas imposer aux Chambres un vote pénible, ne pas fournir un prétexte aux agitations anarchistes qui avaient provoqué les mutineries, que d'en venir là, si vite. On avait justifié la loi de trois ans et le maintien de la classe par la nécessité impérieuse, urgente, de fortifier la défense nationale devant les armements allemands ; on allait avoir à l'automne deux classes de recrues sous les drapeaux ; qui les instruirait après le départ de presque tous les gradés de la classe 1910 ? M. André Lefèvre et M. Leygues, qui venaient de prononcer deux discours d'une grande portée en faveur de la loi de trois ans, M. de Mun qui continuait la série de
-
-(1) Article 29.
-
-[p. 182]
 
 ses éloquents articles sur « l'heure décisive », étaient résolument hostiles à la mesure projetée ; M. de Mun écrivit le mot lourd de « capitulation ».
 
 Les socialistes et ceux des radicaux-socialistes qui s'étaient mis à leur remorque ne cachaient pas leur jeu : abîmer la loi dont ils ne pouvaient pas empêcher le vote, la rendre aussi lourde, insupportable que possible ; ainsi ne durerait-elle qu'un jour. Ils avaient dénoncé et ils continuaient à dénoncer le maintien de la classe comme une mesure illégale, inconstitutionnelle, odieuse ; et ils repoussaient, comme un crime envers la santé des hommes, l'incorporation à vingt ans qui aurait permis le renvoi de la classe.
 
 Entre tant d'opinions contradictoires et d'intérêts divers, le Gouvernement était fort perplexe. Il voyait très clairement les avantages, mais aussi les inconvénients, les uns et les autres à la fois militaires et politiques, de la mesure projetée. Ne pourrait-on atténuer ceux-ci, s'assurer ceux-là ? L'amendement de M. Escudier posait purement et simplement le principe ; deux autres amendements plus récents (de MM. Loth et Roden, et de MM. Puech et Noulens) soulevaient de graves objections. Ajourner aux mois de février ou d'avril et le renvoi de la classe 1910, après la période dite critique, et l'incorporation de la classe 1913, la solution paraissait séduisante. Mais les médecins étaient unanimes à dire que la morbidité atteint toujours son chiffre le plus élevé pendant les mois d'hiver, et reporter au printemps l'incorporation de la classe de vingt ans, c'était tomber dans l'erreur que le Conseil supérieur de la Guerre et le Gouvernement avaient reprochée aux partisans du service de
-
-[p. 183]
 
 trente mois. J'ai été le témoin des hésitations de M. Barthou et de ses principaux collègues ; je n'en ai pas connu de plus honorables.
 
@@ -2341,8 +1859,6 @@ Le président du Conseil et le ministre de la Guerre voulurent bien me demander 
 C'est dans ces conditions que le président du Conseil provoqua, dans la soirée du 11 juin, au ministère de la Guerre, une réunion dont il a fait état devant le Sénat, dans son discours du 6 août.
 
 Bien que restreinte, cette réunion avait été trop nombreuse pour ne pas donner lieu à quelques indiscrétions. M. André Lefèvre en avait été informé ; il s'était proposé d'y faire allusion dans son discours contre l'incorporation à vingt ans. Il consentit, à ma demande, à n'en rien faire. Les membres du Gouvernement ont toujours le droit, ils ont parfois le devoir de prendre
-
-[p. 184]
 
 l'avis de leurs amis, mais ceux-ci contractent de ce fait l'obligation du silence jusqu'à ce qu'ils en soient déliés par les ministres qui les ont consultés.
 
@@ -2362,8 +1878,6 @@ dit alors M. Barthou,
 
 d'entrer dans les détails, mais cela est nécessaire (Parlez ! parlez !) parce
 
-[p. 185]
-
 qu'il y a là une question non seulement de dignité personnelle, mais d'autorité gouvernementale ; je ne veux pas, je ne peux pas accepter, même de la part d'un homme pour lequel j'ai des sentiments d'estime et de respect, qu'on nous prête des intentions et une attitude qui n'ont jamais été les nôtres.
 
 Le 11 juin, je provoque, au Ministère de la Guerre, après la séance de la Chambre, une réunion à laquelle je convoque le général Joffre, le général Pau, le général Legrand, le Directeur du Service de Santé, M. le Ministre de l'Intérieur, le Président de la Commission de la Chambre, M. Le Hérissé, MM. Joseph Reinach et de Montebello, auteurs d'un contre-projet.
@@ -2372,8 +1886,6 @@ Le ministre de la Marine, M. Baudin, et le rapporteur de la Commission de l'Arm�
 
 Nous examinons,
 
-continue M. Barthou,
-
 la question de l'incorporation à vingt ans ; je pose des questions au Service de Santé. Le Service de Santé me déclare, qu'à la condition que certaines mesures rigoureuses soient prises, il n'est pas opposé au principe. Je me retourne vers le généralissime, je me retourne vers le général Pau, je leur demande en quoi le principe de l'incorporation à vingt ans et de l'application de la mesure à la classe 1913.
 
 Messieurs, il n'est pas dans mes habitudes de me retrancher derrière d'autres responsabilités, et je manquerais au devoir essentiel du Gouvernement si, à l'opinion qu'il a, à celle qu'il doit défendre devant vous, à celle dont il est responsable, je substituais d'autres opinions.
@@ -2381,8 +1893,6 @@ Messieurs, il n'est pas dans mes habitudes de me retrancher derrière d'autres r
 Le Gouvernement prend une attitude, puis il recueille les avis de ses services, j'ai aussi recueilli les avis de l'État-Major général de l'Armée.
 
 Je prends ma responsabilité, mais, tout de même, j'ai le droit de dire que j'ai posé la question, que j'ai recueilli une
-
-[p. 186]
 
 réponse et que la réponse de l'État-Major n'a pas été défavorable, non seulement au principe de l'incorporation à vingt ans, mais à l'application à la classe 1913.
 
@@ -2393,8 +1903,6 @@ L'honorable M. de Trévenuc, au début de cette séance, parlait du contre-proje
 Dans le contre-projet par lequel ils assuraient un minimum d'effectif indispensable, ils envisageaient et réservaient la possibilité d'un surnombre. Ce surnombre devait être renvoyé dans ses foyers ; et MM. Reinach et de Montebello envisageaient que l'on pourrait incorporer la classe à vingt ans dans la proportion du surnombre renvoyé, et qu'ainsi on procéderait à un renvoi partiel de la classe 1910.
 
 Messieurs, cette solution m'est apparue comme la pire de toutes. (Très bien ! sur divers bancs) Comment déterminer un renvoi partiel ? À la suite de quel examen, par quelle modalité ? À la suite d'un tirage au sort ? J'ai dit tout à l'heure combien le système était injuste. Serait-ce en raison de la situation de famille de soldats ? J'ai indiqué, il y a un instant, ce que ce système présenterait d'arbitraire ; et dès
-
-[p. 187]
 
 lors, messieurs, si la classe est maintenue en vertu d'un droit qui figure dans la loi, si j'affirme ce droit, si je constate que le Parlement s'est trouvé d'accord avec moi pour le proclamer et pour me donner les moyens de l'exercer, je peux pourtant dire, comme l'honorable M. Labbé, que le maintien de la classe sous les drapeaux a causé une certaine déception aux hommes qui croyaient ne devoir faire que deux ans de service militaire.
 
@@ -2408,17 +1916,11 @@ Il est parfaitement exact et que la réponse de l'État-Major n'a pas été déf
 
 Mes souvenirs sont parfaitement précis à cet égard : M. Barthou et M. Étienne se bornant à recueillir les avis, sans faire encore connaître le leur, la grande
 
-[p. 188]
-
 majorité, sinon l'unanimité de la réunion, se montra très résolument hostile à l'incorporation totale de la classe 1913. Je me joignis à M. de Montebello pour en montrer les inconvénients militaires et, aussi, politiques. Cependant une autre solution nous était apparue. Des observations du directeur du service de santé, nous avions, notamment, recueilli que l'incorporation à vingt ans d'une classe très sévèrement sélectionnée échapperait aux principaux reproches des adversaires de la réforme. N'était-ce pas le système allemand ? M. Paté n'avait-il pas écrit dans son rapport que, sur 100 soldats de l'armée allemande, il y en a 50 de vingt ans, 25 de vingt à vingt et un ans et 25 de vingt-deux ans, soit 50 0/0 de vingt ans ? On pouvait donc incorporer, sans inconvénient et avec toutes sortes d'avantages, une classe à vingt ans très sélectionnée, et c'était à quoi se prêtait très aisément, selon nous, le mécanisme de notre contre-projet ou, plus exactement, du projet devenu commun à la Commission de l'Armée et au Gouvernement. Cette classe, si sévèrement sélectionnée qu'elle pût être, accroîtrait dans des conditions considérables le surnombre dont la libération était prévue par la loi ; ce serait dans cette proportion qu'une fraction de la classe 1910 serait renvoyée dans ses foyers. Les soldats libérables seraient-ils désignés par le sort ? Rien ne s'y opposait. Je pensais, pour ma part, qu'il les fallait prendre parmi les jeunes gens des familles nombreuses et les soutiens de famille. La Chambre aurait à choisir entre ces deux modalités. En résumé, sans modifier le mécanisme de la loi, incorporation d'une classe à vingt ans très sélectionnée et renvoi partiel de la classe 1910.
-
-[p. 189]
 
 Ainsi nous introduirions progressivement dans la loi la réforme sociale qu'était l'incorporation à vingt ans ; nous garderions sous les drapeaux, ce qui importait grandement pour traverser la période critique, un nombre encore considérable de soldats exercés de la classe 1910 ; le vote par lequel la Chambre avait décidé le maintien de la classe 1910 ne subirait point d'atteinte, car, de toutes façons, toute la classe ne serait pas maintenue ; si la Chambre acceptait, en effet, le projet du Gouvernement et de la Commission de l'Armée, même sans se prononcer pour l'incorporation à vingt ans, il résultait de l'article 19 que le surnombre serait renvoyé dans ses foyers et ce surnombre, appartenant tout entier à la classe 1910, était déjà évalué, par l'État-Major comme par la Commission de l'Armée, à 40.000 hommes. Avec l'incorporation à vingt ans, ce surnombre serait vraisemblablement d'environ 150.000 hommes.
 
 « Cette solution, a dit M. Barthou dans son discours du 6 août au Sénat, m'est apparue comme la pire de toutes. » Précédemment, au début de la séance, il avait motivé par avance cette opinion un peu sévère. Répondant à M. le comte de Trévenuc, dont le discours avait été très ostensiblement approuvé par M. Clemenceau, le président du Conseil avait dit que le système du tirage au sort était « arbitraire et, même, odieux, quand il s'appliquait à la libération du service militaire », et que le système qui consistait à libérer les jeunes gens des familles nombreuses ne valait guère mieux « : Une famille peut être nombreuse et riche en même temps ; il peut se rencontrer dans la même commune, tel militaire appartenant à une famille moins nombreuse et moins
-
-[p. 190]
 
 riche, et l'on aurait ainsi ce spectacle fâcheux de voir l'enfant de la famille la plus riche libéré du service militaire tandis que celui qui appartient à la famille la plus pauvre serait resté au régiment. »
 
@@ -2426,27 +1928,15 @@ J'observe d'abord que cette critique, très juste à mon sens, ne s'appliquait p
 
 En effet, à la date du 11 juin, jour de la réunion au ministère de la Guerre, le Gouvernement, après avoir fait sien, dès le 24 avril, (1) notre contre-projet, était d'accord sur tous les points avec la Commission de l'Armée qui avait accepté et le principe de la fixité des effectifs et l'institution d'une seconde portion du contingent. Il n'y avait plus, depuis plusieurs semaines, de « contre-projet Reinach-Lannes de Montebello ». Il n'y avait, comme je l'ai dit plus haut, qu'un projet de loi commun au Gouvernement et à la Commission de l'Armée. En ce qui concerne les modalités, le renvoi anticipé des jeunes gens appartenant à des familles
 
-(1) Voir page 67.
-
-[p. 191]
-
 nombreuses avait fait partie du projet primitif du Gouvernement. C'était une idée de M. Chéron, alors rapporteur général de la Commission du Budget, que le ministère Briand, dont faisait partie M. Barthou, avait accueillie. Il l'avait même accentuée un peu hâtivement, sans en calculer la répercussion sur les effectifs. (1) Notre contre-projet comportait le renvoi des jeunes gens des familles nombreuses, mais sous la réserve de la fixité, préalablement établie, des effectifs. Le Gouvernement (c'était le ministère Barthou) avait accepté les idées directrices. Il n'y en avait deux, de notre contre-projet. Enfin, le Gouvernement avait fait sien le projet de la Commission de l'Armée qui combinait, à tort ou à raison, le système du renvoi des jeunes gens appartenant aux familles nombreuses et celui du tirage au sort.
 
 À la vérité, la Chambre ne s'était encore prononcée, à la date du 11 juin, ni sur la seconde portion du contingent ni sur la fixité des effectifs, articles principaux, essentiels, capitaux, non seulement de notre contre-projet, mais du projet commun à la Commission de l'Armée et au Gouvernement. Mais, à cette date, Gouvernement et Commission étaient fondés, l'un et l'autre, à penser que ces deux idées directrices de notre projet seraient acceptées par la Chambre comme elles l'avaient été par l'opinion. Aussi bien l'amendement Vincent était-il encore dans les limbes.
 
 Ainsi, à la date du 11 juin, la libération anticipée d'une seconde portion du contingent, soit par le système des familles nombreuses et des soutiens de famille, soit
 
-(1) Voir pages 15 et 148.
-
-[p. 192]
-
 par le système du tirage au sort, soit par ces deux systèmes jumelés, n'était pas encore apparue à M. Barthou « comme la pire de toutes les solutions » ; c'était alors la sienne. Un mois plus tard, dans la séance du 10 juillet, M. Barthou disait encore de notre contre-projet : « La Commission de l'Armée, le Gouvernement et la Chambre ont accepté les idées principales de leur système. » Le mécanisme de notre projet était bon ou mauvais ; en tous cas, le 11 juin au soir, dans le cabinet du ministre de la Guerre, il passait encore pour bon ; c'est qu'il facilitait l'incorporation prudente, rationnelle, de la classe à vingt ans, cela n'était pas contestable. — De fait, M. Barthou et ses collègues me remercièrent, avec une très manifeste satisfaction, lorsque j'offris de rédiger, avec M. de Montebello, sous forme d'amendement, les idées que j'avais exposées sur l'incorporation d'une classe très sélectionnée de vingt ans et sur le renvoi de la classe 1910 dans la proportion où les effectifs légaux seraient dépassés du fait de cette incorporation. Comme le règlement ne permet pas au Gouvernement de déposer d'amendement à ses propres projets, — interdiction absurde, car pourquoi, à la réflexion, le Gouvernement ne corrigerait-il pas ou ne compléterait-il pas lui-même ses propositions ? — il n'y a pas pour lui d'autre moyen, quand lui apparaît l'utilité d'un amendement, que de demander à des amis politiques d'en prendre l'initiative, ou d'accueillir ceux qui se montrent disposés à la prendre. Le Gouvernement, dans la circonstance, n'eut rien à nous demander, puisque j'avais, très spontanément, proposé de prendre l'initiative d'un nouvel amendement, non certes sans quelque inquiétude, en raison de la gravité et de la
 
-[p. 193]
-
 complexité du problème, mais avec la conviction que la solution esquissée était sage et, aussi, avec le sentiment très net que nous rendrions, M. de Montebello et moi, service au Gouvernement qui poursuivait si résolument, à travers tant de difficultés, le bon combat. — M. Barthou a donc été parfaitement fondé, dans cette même séance du 10 juillet, à dire de notre amendement sur l'incorporation à vingt ans : « Pas plus que M. Loth, pas plus que M. Escudier, pas plus que mon ami M. Puech, qui vient de se défendre contre l'accusation indéterminée portée contre les auteurs de l'amendement, M. de Montebello et M. Joseph Reinach n'ont obéi à la suggestion du Gouvernement ; ils ont agi dans la pleine liberté de leur initiative parlementaire. » Cela est rigoureusement exact. Bien plus, et si enclin qu'il fût déjà à se rallier à l'incorporation à vingt ans, avec toutes ses conséquences, M. Barthou tenait à réserver encore l'expression publique de son adhésion et, comme on dit, à voir venir ; il ne s'en cacha point et cette temporisation nous parut fort légitime. — Les uns et les autres, à la fin de la réunion, généraux et civils, n'en eurent pas moins l'impression que l'accord était fait. Je demandai, et le ministère de la Guerre y consentit de bonne grâce, que le général Legrand fût autorisé à nous apporter sa collaboration pour mettre sur pied un texte qui comporterait des dispositions, d'un ordre très particulièrement technique, sur le recensement, la revision et l'incorporation. J'avais notamment indiqué, et l'observation avait paru juste, qu'afin d'assurer une sélection très sévère de la classe de vingt ans, les jeunes gens reconnus d'une constitution physique trop faible pourraient être ajournés trois fois de suite au lieu de deux,
-
-[p. 194]
 
 à un nouvel examen du conseil de revision ; (1) et que, même reconnus bons pour le service armé on pour le service auxiliaire par les conseils de revision qui sont, parfois, enclins à trop d'indulgence, les appelés, avant ou après l'incorporation, pourraient être ajournés pour un an par décision d'une commission de réforme, composée exclusivement de militaires. (2) Ces dispositions ont, par la suite, passé dans la loi.
 
@@ -2454,9 +1944,6 @@ M. Barthou et ses collègues ont, quelque temps après, pris d'autres positions.
 
 (1) Voir l'article 10 de l'amendement, paragraphe 1.
 (2) Voir même article, paragraphes 2 et suivants.
-(3) Voir page 207.
-
-[p. 195]
 
 aussi rude que celle qu'il conduisit, il ne suffit pas de résister, d'attaquer, de foncer, avec une belle vaillance, sur l'adversaire ; il n'est pas moins nécessaire de savoir louvoyer et « il y faut parfois, selon Mirabeau, plus de peine et de véritable habileté que pour combattre ». Ni le courage ni la souplesse n'ont manqué à M. Barthou. Avec des erreurs qui furent sans doute inévitables, mais qui ne sont pas irréparables, la loi, telle qu'elle est, restera pour son gouvernement un grand titre d'honneur.
 
@@ -2464,17 +1951,11 @@ Notre amendement fut déposé le 23 juin. L'incorporation à vingt ans y était 
 
 Il fallait, en effet, prévoir un surnombre considérable en raison de l'incorporation de la classe de 1913, si sévère qu'en serait la sélection. Dans toutes ces catégories, les soutiens de famille seraient libérés les pre-
 
-(1) Article 19, 1°.
-
-[p. 196]
-
 miers, en commençant par les plus âgés. On pouvait contester l'idée même du système ; mais le système ne laissait aucune place à la faveur et au privilège.
 
 L'amendement avait recueilli de nombreuses adhésions dans presque tous les groupes de la Chambre ; il portait avec la signature de M. Lannes de Montebello et la mienne, celles de MM. Lebrun, Paul Escudier, Paul Bénazet, André Honnorat, Denys Cochin (Seine), Verlot, J.-B. Abel (du Var), Edmond Aynard, Péchadre, Fayssat, Delaroche-Vernet, Maurice Barrès, Pourquery de Boisserin, Henry Cochin (Nord), Fesq, Jules Desjardins, Pierangeli, Plichon, d'Iriart d'Etchepare, Alfred Dumont (Nord), Jules Siegfried, Maurice Dutreil, Paul Bluysen, Delpierre, François Carnot, Albert Denis, Méquillet, Magnier, Landry, Boschet, Garat, Dechou, Henri Gallois, Muteau, J. Chailley, Duclaux-Monteil, Victor Boret, Paul Bignon, Dusevel, Lavoinne, Jules Cels, Fournier-Sarlovèze, de Dion, Mignot-Bozérian, Fleury-Ravarin, Georges Bonnefous, Veillat, Pierre Goujon, Paul Cuny, A. Jousselin, Chalanset, Robert David, Feillot, Auguste Leblond, Maurice Spronck, Albert Thierry.
 
 Les articles de l'amendement visent ceux du projet de la Commission ; en voici le texte :
-
-ARTICLE 6
 
 Rédiger comme suit cet article :
 
@@ -2482,17 +1963,11 @@ L'article 10 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Chaque année, pour la formation de la classe, les maires établissent les tableaux de recensement des jeunes gens domiciliés dans l'une des communes du canton et
 
-[p. 197]
-
 ayant atteint l'âge de dix-neuf ans révolus dans l'année précédente.
 
 « Les classes sont incorporées dans l'année de leur recensement. »
 
-ARTICLE 7
-
 (Supprimer cet article)
-
-ARTICLE 8
 
 Rédiger comme suit cet article :
 
@@ -2506,17 +1981,11 @@ Rédiger comme suit cet article :
 
 (1) C'est dans l'intérêt des Alsaciens-Lorrains que j'avais ajouté ce paragraphe à l'article 5, en le modifiant en conséquence. Cet article était la reproduction d'un amendement de M. Barrès, que la Commission avait accepté.
 
-[p. 198]
-
-ARTICLE 8 bis (NOUVEAU)
-
 L'article 16 de la loi du 21 mars 1905 est complété par la disposition suivante :
 
 « Dans les départements à population dense ou présentant des difficultés de communication particulières, ou bien à l'occasion de circonstances exceptionnelles nécessitant l'appel anticipé d'une classe, il pourra être formé par département deux ou plusieurs conseils de revision ayant la composition indiquée au présent article, sauf que le sous-préfet pourra être appelé à présider le conseil qui opère dans son arrondissement.
 
 » Tous les conseils de revision fonctionnent dans les conditions fixées par le présent article. »
-
-ARTICLE 10
 
 Rédiger comme suit cet article :
 
@@ -2529,8 +1998,6 @@ L'article 17 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 » Ceux qui, après trois ajournements, sont reconnus l'année suivante propres au service armé sont astreints à deux années de service ; s'ils ne sont pas encore reconnus bons pour le service armé, sans que leur état physique justifie pourtant une exemption définitive, ils sont classés dans le service auxiliaire et incorporés pour deux ans.
 
 » Tous les jeunes gens incorporés au titre du service auxiliaire peuvent, postérieurement à leur incorporation, et à toute époque de l'année, soit sur leur demande, soit d'office,
-
-[p. 199]
 
 être proposés pour passer dans le service armé. Ils sont examinés par la commission de réforme, qui statue.
 
@@ -2558,8 +2025,6 @@ L'article 17 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 » En cas de partage des voix, la voix du président est prépondérante.
 
-[p. 200]
-
 » La commission est assistée, en qualité d'experts, par deux médecins militaires, ou à défaut par deux médecins civils attachés aux hôpitaux civils, désignés par le président.
 
 » Elle statue sur les cas visés au présent article et à l'article 21 bis ci-après ; elle donne des avis sur tous les cas qui lui sont déférés par le Ministre de la Guerre.
@@ -2568,11 +2033,7 @@ L'article 17 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 » Le Ministre de la Guerre fixe le nombre et le siège des commissions de réforme ; il détermine la composition des commissions à instituer hors du territoire de la métropole. »
 
-ARTICLE 11
-
 (Supprimer cet article)
-
-ARTICLE 19
 
 Rédiger comme suit cet article :
 
@@ -2583,8 +2044,6 @@ Rédiger comme suit cet article :
 » Lorsque l'effectif prévu pour les diverses unités à l'article 2 de la présente loi, majoré de 6 0/0 au 15 novembre et de 5 0/0 au 15 avril de chaque année, se trouvera dépassé, le Ministre de la Guerre est autorisé à renvoyer, sur leur demande, dans leurs foyers, en attendant leur passage dans la réserve, aux deux dates énoncées ci-dessus et jusqu'à concurrence du nombre en excédent de cet effectif, les militaires qui ont accompli au moins deux ans de service, qui ont obtenu le certificat de bonne conduite et qui appartiennent aux catégories suivantes :
 
 » 1° Les militaires classés comme soutiens indispensables de famille qui sont les fils uniques ou les aînés des fils, ou, à défaut de fils ou de gendres, les petits-fils uniques ou les aînés des petits-fils de femmes actuellement veuves ou de
-
-[p. 201]
 
 femmes dont les maris ont été légalement déclarés absents ou interdits, ou de pères aveugles ou entrés dans leur soixante-dixième année ; les militaires classés comme soutiens indispensables de famille qui sont aînés d'orphelins de père et de mère, ou aînés d'orphelins de mère et dont le père a été légalement déclaré absent ou interdit ;
 
@@ -2606,8 +2065,6 @@ femmes dont les maris ont été légalement déclarés absents ou interdits, ou 
 
 » Toutefois, les militaires ci-dessus qui, après deux ans
 
-[p. 202]
-
 de service, n'auront pas, par suite, soit de congés, soit de permissions accordées en dehors des dimanches et jours fériés, accompli au moins vingt-trois mois de présence effective sous les drapeaux, ne seront envoyés en congé que lorsqu'ils auront accompli ce temps de service militaire.
 
 » Les séjours à l'hôpital et les congés de convalescence consécutifs à des blessures ou maladies contractées en service commandé entrent dans le décompte du service effectif.
@@ -2622,8 +2079,6 @@ de service, n'auront pas, par suite, soit de congés, soit de permissions accord
 
 » Les militaires envoyés en congé en vertu des dispositions qui précèdent peuvent, à tout moment, être rappelés au corps par décision du Ministre de la Guerre. »
 
-ARTICLE 21 bis (NOUVEAU)
-
 L'article 49 de la loi du 21 mars 1905 est remplacé par les dispositions suivantes :
 
 « Tout militaire appartenant à l'armée active, à la réserve ou à l'armée territoriale qui cessera d'être apte au service armé pourra être versé dans le service auxiliaire, par décision de la commission de réforme.
@@ -2632,15 +2087,9 @@ L'article 49 de la loi du 21 mars 1905 est remplacé par les dispositions suivan
 
 » Le militaire réformé définitivement est libéré entièrement des obligations nées de l'acte ou de la disposition légale qui le liait au service. »
 
-[p. 203]
-
-ARTICLE 37
-
 Rédiger comme suit le 2° § de cet article :
 
 « Des règlements d'administration publique détermineront les mesures d'exécution de la présente loi, notamment en ce qui concerne les conditions dans lesquelles les dispositions nouvelles relatives aux avantages pécuniaires attribués aux militaires engagés ou rengagés seront appliquées à ceux d'entre eux qui se sont liés au service antérieurement à sa promulgation. »
-
-Article additionnel
 
 « La classe 1913 sera incorporée en même temps que la classe 1912, le 10 novembre 1913 au plus tard. Pour le contingent incorporé à cette date, la durée du service comptera du 1er octobre 1913.
 
@@ -2650,23 +2099,13 @@ Article additionnel
 
 » Les demandes de sursis d'incorporation prévues à l'article 21 de la loi du 21 mars 1905 devront être adressées aux maires dix jours au moins avant la date fixée pour les opérations des conseils de revision. Elles seront instruites et transmises d'urgence aux conseils de revision, dans les formes en vigueur, sous réserve que l'avis du maire remplacera celui du conseil municipal. »
 
-VIII
-
-LE PARADOXE DE L'ÉGALITÉ
-
-[p. 205]
-
 La Chambre avait achevé, dans sa première séance du 4 juillet, la discussion des contre-projets ; elle les avait tous repoussés, notamment celui de M. Augagneur (maintien du service de deux ans) par 339 voix contre 214, celui de MM. Messimy et Paul-Boncour (service de trente mois) par 312 voix contre 266, après deux discours de M. de Montebello et de M. Barthou, d'une grande puissance d'argumentation, pressants et émouvants. Il résultait de son dernier vote que la majorité était acquise au service de trois ans.
 
 Il eût été rationnel de commencer la discussion du projet lui-même par le commencement, par l'article 1er qui posait le principe de la permanence des effectifs dont les chiffres pour les différentes unités étaient inscrits à l'article 2 ; la durée du service militaire en résultait, comme j'avais essayé de le montrer à la Chambre (séance du 3 juin) ; j'avais dit expressément que la durée du service militaire n'était pas un principe,
 
-[p. 206]
-
 mais une conséquence ; tout notre contre-projet, devenu le projet du Gouvernement et de la Commission, partait de cette idée que la loi de recrutement doit être fonction des lois d'organisation, cadres et effectifs. Cependant le président de la Commission demanda à la Chambre de ne statuer sur l'article 1er qu'après s'être prononcée sur l'article 18, « l'article, dit-il, qui pose le principe du service de trois ans ». Il ne donna aucune raison de « cette interversion » ; si j'avais été invité à en présenter. Il n'en aurait sans doute pas donné d'autre que son désir, qui était celui de presque toute la Chambre, qu'après un mois de discussion, la question de la durée du service fût tranchée par un vote définitif.
 
 M. Le Hérissé fit cette demande au nom de la Commission, laquelle n'en avait pas délibéré, mais il y était autorisé par l'usage courant qui permet au président d'une Commission de parler en son nom, s'il s'est concerté avec le rapporteur et avec ceux de ses collègues qui siègent, à ce moment de la séance, au banc de la Commission. Si je m'y trouvais alors, ce dont je ne me souviens pas, j'aurais dû entrevoir les conséquences possibles de l'interversion et demander à la Chambre de suivre, dans la discussion du projet, l'ordre des articles. Il eût fallu dire : « Le principe de la loi n'est pas, comme le croit M. Le Hérissé, le service de trois ans ; c'est la fixité des effectifs. Il importe donc de statuer d'abord sur l'article 1er et sur l'article 2. » Cela ne fut dit ni par M. de Montebello ni par moi. La Chambre avait-elle admis notre manière de voir ? Quoi qu'il en soit, la proposition de M. Le Hérissé fut admise sans qu'il se soit produit aucune objection, et, comme les orateurs qui étaient inscrits sur l'article 18 n'étaient
-
-[p. 207]
 
 pas présents (1) ou n'avaient pas été prévenus que cet article serait appelé avant l'article 1er, la suite du débat fut ajournée à la prochaine séance.
 
@@ -2679,9 +2118,6 @@ C'est dans cet article, après les mots : « l'article 32 de la loi du 21 mars 1
 À première vue, ce texte semblait faire double emploi avec le premier paragraphe de l'article 2 de la loi de 1905, article qui avait été expressément maintenu
 
 (1) Quelques membres ayant demandé que la discussion continuât, M. Le Hérissé leur répondit : « C'est une question de bonne foi ; un certain nombre de nos collègues se sont fait inscrire pour prendre la parole sur cet article (18) ; ils ne sont pas prévenus de l'interversion que propose la Commission. Conformément à tous les précédents, nous ne pouvons entamer la discussion immédiatement ; le Président s'y opposerait au nom du règlement. » (Journal officiel, page 3141, colonne 2)
-(2) N° 192.
-
-[p. 208]
 
 par le Gouvernement et par la Commission de l'Armée : (1) « Le service militaire est égal pour tous. Hors le cas d'incapacité physique, il ne comporte aucune dispense. » Mais cette superfétatation n'était nullement dans la pensée de M. Vincent. Ce qu'il entendait, c'était, selon ses propres expressions, « couper court aux libérations anticipées » (2) que nous avions prévues ; en d'autres termes, faire disparaître de la loi soumise à la Chambre la seconde portion du contingent.
 
@@ -2689,9 +2125,6 @@ Au cours des longs débats de la Commission de l'Armée, non seulement c'avait �
 
 (1) Le ministre de la Guerre avait écrit dans son exposé des motifs : « Ce que la loi du 21 mars 1905 a voulu, ce que le pays entend persévérer à assurer avec elle, c'est l'égalité des charges militaires entre tous les citoyens valides : c'est la sauvegarde de notre sécurité par la nation culière, instruite, organisée et armée pour sa défense. Est-il besoin de déclarer que le Gouvernement ne saurait songer « à désavouer cette œuvre ni à renier l'esprit qui l'a inspirée ? » — M. Paté avait cité ce passage dans son rapport (page 8). Il avait même proposé de reproduire dans le projet de la Commission le texte de l'article 2, alinéa 1er. Mais il n'y avait pas insisté parce que, toutes les dispositions de la loi de 1905, qui n'étaient pas modifiées par le nouveau texte, étaient nécessairement maintenues.
 (2) Séance du 7 juillet 1913.
-(3) Rapport Paté, page 128.
-
-[p. 209]
 
 la Commission à avouer que le surnombre s'élèverait à 40.000 hommes ». (1)
 
@@ -2704,16 +2137,11 @@ La Commission de l'Armée n'eut pas à se prononcer, dans sa réunion du 5 juill
 Une fois atteints les effectifs jugés par le Conseil supérieur de la Guerre indispensables à la sûreté nationale, — et le Conseil supérieur de la Guerre avait
 
 (1) « Les 40.000 hommes qui sont en surnombre et que j'ai obligé la Commission à avouer. » (Humanité du 7 juillet)
-(2) Voir page 200.
 (3) Le 5 juillet était un samedi ; la Chambre était ajournée au lundi.
-
-[p. 210]
 
 fait largement les choses, et, par surcroît, nous avions majoré ses chiffres de 6 0/0 pour parer aux déchets, — dans quel intérêt garder le surnombre sous les drapeaux et accroître d'un grand nombre de millions les dépenses publiques ? Le gaspillage d'hommes et d'argent est manifeste : l'intérêt militaire est nul ou à peu près. Cette possibilité d'un congé de long terme, au bout de deux ans ou de trente mois de service, à qui l'accordons-nous ? Aux plus riches ou aux plus instruits, à la fortune ou aux diplômes, à l'argent ou au mérite ? Non : aux fils de ces familles nombreuses qui sont, par grand malheur, moins fréquentes dans les classes aisées et riches que parmi les paysans et les ouvriers, et, d'abord, aux soutiens de famille, c'est-à-dire aux plus misérables. Un millionnaire qui a un fils donne à l'État trois ans de service ; un paysan ou un ouvrier qui a cinq fils donne à l'État quinze années de service. Ô paradoxe de l'égalité !
 
 Cette séance du 7 juillet fut consacrée à l'audition du président du Conseil et du ministre de la Guerre. M. Barthou fit connaître à la Commission de l'Armée dans quelles conditions l'incorporation à vingt ans était jugée acceptable par le Comité consultatif du ministère de la Guerre que présidait le médecin général Vaillard : 1° sélection rigoureuse afin d'éliminer tous les sujets dont le développement et l'aptitude physique sont insuffisants ; les éliminations de ce chef approcheront de 45 à 50 0/0 de l'effectif examiné ; 2° ajournements successifs ; 3° congés sanitaires renouvelables après l'incorporation ; 4° amélioration du casernement, de l'habillement, du chauffage et du couchage ; 5° abandon de l'entraînement qualifié d'intensif dans l'exposé même du projet
-
-[p. 211]
 
 de loi de trois ans. Cependant M. Barthou ne se déclara pas encore favorable à la réforme ; il dit seulement que le Gouvernement n'y ferait pas obstacle si la Commission l'admettait. Aussi bien, comme président du Conseil et comme ministre de l'Instruction publique, M. Barthou reconnaissait les avantages très sérieux de la mesure projetée. Elle sera favorable aux jeunes gens qui se destinent aux professions libérales ; elle ménagera mieux la vie économique de la nation ; elle profitera à l'industrie, aux ouvriers, à tous les producteurs. (1)
 
@@ -2724,8 +2152,6 @@ En apportant à la Commission un avis ferme, le Gouvernement aurait-il fait impr
 M. Jaurès pressa M. Barthou sur la question de la classe 1910 : l'incorporation de la classe 1913 implique la libération de la classe 1910 ; il est indispensable que le Gouvernement se prononce. Le président du Conseil refusa formellement de s'expliquer sur la question du maintien ou du renvoi de la classe 1910 ».
 
 M. Barthou a donné, quelques jours plus tard, les raisons du refus obstiné qu'il avait opposé à M. Jaurès : « Comment pouvais-je dire que la classe serait libérée tout entière, alors que la Chambre ne s'était pas encore
-
-[p. 212]
 
 prononcée sur la question du surnombre et à un moment surtout où la Chambre n'avait pas voté l'amendement de M. Daniel Vincent ? Comment pouvais-je m'expliquer sur le renvoi de la classe, pour le cas où elle serait libérée, alors que je ne savais pas le moment où pourrait être incorporée la classe 1913, si l'incorporation de cette classe était proposée par le Gouvernement ? (1)
 
@@ -2739,13 +2165,9 @@ La Commission, après le départ de M. Barthou,
 
 (1) Discours du 10 juillet.
 
-[p. 213]
-
 engagea un long débat sur l'incorporation à vingt ans, mais sans émettre de vote. Elle était perplexe, décida de demander au ministre de la Guerre des renseignements complémentaires. L'idée qu'elle avait repoussée le 5 mai à la presque unanimité faisait du chemin.
 
 Dès le début de la séance du 7 juillet, M. Jaurès prit la parole. Il connaissait trop bien la Chambre pour ne pas être certain qu'elle était résolue à sanctionner le service de trois ans par « un vote direct et positif ». Aussi changea-t-il de tir et tout l'effort de sa batterie oratoire porta contre le système du surnombre, de la seconde portion du contingent, comme il l'appela, avec raison, de son vrai nom. Il s'était ingénié jusqu'alors, devant la Chambre comme à la Commission, à dégonfler, de calculs qu'il avait établis avec beaucoup de soin, le chiffre vraisemblable, qu'il croyait devoir être très élevé, du surnombre. C'était maintenant le principe lui-même qu'il combattait avec son ordinaire abondance d'arguments topiques, de sophismes et de métaphores. Il dénonçait, en même temps, la nouvelle proposition tendant à l'incorporation à vingt ans. — « Si vous incorporez 50 0/0 de la classe brute, qui compte plus de 300.000 hommes, c'est de 150.000 hommes que vous allez grossir le surnombre déjà constaté de 40.000 hommes, « et c'est la totalité de la classe libérable en octobre, mais dont vous avez décidé le maintien, qui va être libérée ». — « Si, « pour ménager la santé des hommes », vous en incorporez moins, « je vous défie de retenir sous les drapeaux le faible résidu de la classe qui resterait à libérer ; il y a là une impossibilité morale ». Ce raisonnement porta ; les applaudissement gagnaient à gauche. — Sur la question sanitaire : « Comme on
-
-[p. 214]
 
 vous demande de voter une loi dans laquelle le nombre des hommes d'une classe déclarés bons pour le service réagira sur le nombre des hommes de la classe suivante à libérer, voilà que l'examen médical va être livré au jeu des influences politiques et gouvernementales. » — « Le sentiment d'égalité parfaite était, du moins, la force de notre loi de 1905. » Vous allez le détruire. « L'égalité, elle sera encore comme une enseigne sur votre loi, mais elle ne sera plus dans la loi elle-même. » Et « votre loi, si, par hasard, vous la mettez debout, oh ! elle ira pendant quelques mois, mais chancelante, tâtonnante, trébuchante, et elle tombera, à la fois, sous le poids de ses contradictions intérieures et sous le poids de l'esprit républicain qui la condamne ». C'était bien l'opération « abîmer la loi ».
 
@@ -2753,13 +2175,9 @@ Le rapporteur se borna à répondre que la Chambre n'avait à se prononcer, pour
 
 La clôture ayant été réclamée, le président la mit aux
 
-[p. 215]
-
 voix. Les secrétaires firent connaître qu'il y avait lieu de procéder à l'opération du pointage. La séance fut suspendue.
 
 Comme je causais dans les couloirs avec des collègues, on m'avertit que la Commission de l'Armée venait de se réunir, à la demande de quelques-uns des membres de son bureau. Je m'y rendis et trouvai la discussion engagée à la fois sur la question de procédure qu'avait soulevée M. Vincent et sur le fond même de son amendement. M. de Montebello avait déjà soutenu, contre M. Jaurès, qu'il fallait ajourner à l'article 19 l'amendement et que la Commission devait maintenir ses propositions sur le renvoi du surnombre. La Commission était fort agitée. Au milieu du bruit, je parlai dans le même sens que M. de Montebello. On demanda à connaître l'avis du Gouvernement. M. Étienne se rendit aussitôt devant la Commission. Il n'y avait pas à se tromper, depuis le début de la séance, sur les sentiments de la majorité de la Chambre. Le grand mot magique d'égalité avait opéré. Trois fois 365 jours de service pour tous les appelés ; garder ou renvoyer toute la classe 1910 : c'était simple, donc juste. Nous sommes un peuple ingénieux, mais simpliste. M. Étienne, qui s'était concerté avec M. Barthou, accepta l'amendement, ajoutant que la Commission, en l'adoptant, reproduisait de ce fait le texte du Gouvernement. Conclusion inexacte, car le Gouvernement avait proposé la libération anticipée des jeunes gens des familles nombreuses et n'avait oublié que la répercussion sur les effectifs. La Commission se prononça, à une très forte majorité, pour l'amendement de M. Vincent et pour sa discussion immédiate.
-
-[p. 216]
 
 Ce revirement s'opéra en quelques minutes. « La séance, suspendue à quatre heures moins cinq minutes, est reprise à quatre heures quarante minutes. » (1)
 
@@ -2781,8 +2199,6 @@ Le principe du service militaire personnel égal pour tous les Français était 
 
 (1) Page 3295, colonne 2. Journal officiel, séance du 7 juillet.
 
-[p. 217]
-
 M. Vincent le même sens qu'à l'article 2 de la loi de 1905, et quelques députés qui le disaient et auraient voulu s'en persuader, ne trompaient qu'eux-mêmes.
 
 Depuis un mois, M. Barthou suivait avec une grande assiduité la discussion de la loi ; de fait, il la dirigeait, et avec une autorité tous les jours croissante, ne fuyant aucun combat et donnant en plein ; mais ce jour-là, comme il n'éprouvait pas sans doute une très grande fierté de ce qui allait se passer, il avait quitté la Chambre pendant la suspension de la séance.
@@ -2793,13 +2209,9 @@ Et, comme M. Vincent demanda la parole, le ministre de la Guerre insista : « No
 
 M. Vincent n'avait pas renversé en si peu d'instants un chapitre si considérable de la loi pour laisser croire qu'il avait seulement travaillé à faire revivre l'ancien projet de M. Étienne. Il tint, avec raison, à marquer toute la portée de son succès personnel, à donner tout son sens au vote que la Chambre allait émettre, première victoire des adversaires de la loi. Ayant commencé par remercier de leur adhésion le ministre de la Guerre, le président et le rapporteur de la Commission :
 
-Toutefois,
-
 dit-il,
 
 comme nous sommes tous ici désireux d'une absolue clarté, je me permettrai de rappeler que l'amendement que j'ai déposé étant ainsi libellé : « Tous les
-
-[p. 218]
 
 hommes reconnus aptes au service militaire sont tenus d'accomplir effectivement la même durée de service »...
 
@@ -2815,8 +2227,6 @@ M. Daniel Vincent. — Je vois que M. le président de la Commission de l'Armée
 
 Je demandai la parole. M. Jaurès avait dit très haut dans les couloirs qu'il démolirait la loi avec l'amendement Vincent. Il savait avec quel soin nous avions cherché, M. de Montebello et moi, à alléger, dans toute
 
-[p. 219]
-
 la mesure compatible avec les intérêts de la défense nationale, la loi de salut public qu'il n'avait cessé de dénoncer comme un acte de réaction et un véritable crime. La règle de la fixité des effectifs nous avait permis de proposer, en toute conscience, par le moyen de la libération anticipée du surnombre, l'incorporation d'une classe de vingt ans très sélectionnée. Il ne mettait pas en doute que je combattrais l'amendement Vincent ; pour le mieux combattre, n'opposerais-je pas au système des armées à effectifs variables (loi de 1905) le système des armées à effectifs fixes (loi de 1872) ? Cette erreur de quelques théoriciens, si je la commettais à mon tour, lui permettrait de s'autoriser de moi pour dénoncer comme inutile désormais et superflu le principe que nous avions fait inscrire en tête du projet.
 
 Je vis très nettement le parti qu'il tirerait même de mon silence dans le débat qui venait de s'ouvrir.
@@ -2825,8 +2235,6 @@ Si la Chambre n'avait pas interverti l'ordre de discussion des articles et si el
 
 Comme la Chambre avait ajourné le vote des articles 1er et 2 et après celui de l'article 18, s'opposer dans ces conditions à l'amendement Vincent n'était-ce pas risquer de paraître établir une connexité entre la fixité
 
-[p. 220]
-
 de l'effectif minimum et la seconde portion du contingent ? Il fallait, d'abord, sauver des conséquences de la défaite la règle tutélaire que visait surtout M. Jaurès. (1) Et il n'était possible de le faire qu'en disant tout de suite, à la Chambre et au Gouvernement qui se croyait revenu à son premier projet, que la règle s'impose avec la même force aux armées où le contingent comprend deux portions qu'à celles où la durée du service est mathématiquement égale pour tous. À vrai dire, elle s'y impose avec plus de force encore, comme M. de Montebello devait le montrer dans la séance du lendemain. Par la suite, ne pourrait-on amender l'amendement Vincent ? Si l'on y devait échouer, est-ce qu'une loi trop lourde, dont la responsabilité incomberait devant le pays aux adversaires de tout accroissement de la durée du service militaire, ne serait pas préférable, et de beaucoup, si attristant qu'il fût qu'on l'eût gâtée, à une loi insuffisante et inefficace ? Et cette responsabilité, il fallait aussi l'établir tout de suite. Le sens de mon intervention, comme on le verra, fut souligné par tous les partisans de la loi :
 
 M. Joseph Reinach. — Je demande la parole.
@@ -2834,8 +2242,6 @@ M. Joseph Reinach. — Je demande la parole.
 M. le président. — La parole est à M. Joseph Reinach.
 
 M. Joseph Reinach. — Je n'éprouve aucune difficulté à voter l'amendement de notre honorable collègue M. Daniel Vincent (Très bien ! très bien ! au centre et
-
-[p. 221]
 
 sur divers bancs à gauche), mais je demande à la Chambre d'apercevoir avec netteté la question qui lui est posée.
 
@@ -2852,8 +2258,6 @@ M. Paul Aubriot. — Le service militaire doit être égal pour tous.
 M. Joseph Reinach. — Nous nous sommes tournés vers le Gouvernement, et nous l'avons invité à demander au Conseil supérieur de la Guerre le chiffre des effectifs nécessaires. Le Conseil supérieur de la Guerre a répondu, et les effectifs qu'il a indiqués ont été inscrits aux annexes de l'article 2 du projet qui vous est soumis.
 
 Lorsque, par suite de la quantité des engagés volontaires et des rengagés, ces effectifs reconnus nécessaires devaient se trouver dépassés, la Commission de l'Armée et le Gouvernement proposaient de renvoyer dans ses foyers le surnombre...
-
-[p. 222]
 
 À l'extrême gauche. — Et les autres ?
 
@@ -2873,8 +2277,6 @@ Mais, comme l'a dit M. le président du Conseil, dans une loi militaire, c'est l
 
 Nous maintiendrons, et je suis certain que le Gouvernement maintiendra avec la même énergie que nous,
 
-[p. 223]
-
 les articles du projet concernant la fixité et la permanence des effectifs. Elles sont l'une et l'autre les conditions vitales de la loi et du progrès militaire de notre pays, et vous les laisserez intactes, que vous mainteniez ou que vous repoussez les libérations anticipées. (Applaudissements sur les mêmes bancs)
 
 Il ne me reste maintenant qu'un mot à dire : après le vote de l'amendement de M. Daniel Vincent, M. Daniel Vincent et ses amis voteront-ils, comme nous, avec nous, le service de trois ans ? (Vifs applaudissements au centre, à droite et sur divers bancs à gauche. — Exclamations à l'extrême gauche)
@@ -2887,21 +2289,15 @@ Il n'y a pas de règle sans exception. Au chapitre des permissions, nous en avio
 
 M. Jaurès dut reconnaître lui-même, au cours de cette
 
-[p. 224]
-
 même séance du 7 juillet, que la règle égalitaire, qui venait d'être posée, était susceptible d'exceptions. Dans un intérêt d'avenir, il importe de relater l'incident et de retenir l'aveu.
 
 Le résultat du scrutin était à peine prononcé que M. Breton escalada la tribune pour développer l'amendement suivant : « La présente disposition n'est pas applicable aux mesures ayant pour but exclusif de maintenir et de développer la population du pays. » C'était poser à nouveau toute la question des familles nombreuses. On a reproché à M. Breton de l'avoir reprise prématurément ; il eût fallu attendre quelques jours, donner à la Chambre le temps de réfléchir aux conséquences de son vote. Quoi qu'il en soit, il y avait d'autant plus de mérite à cette intervention de M. Breton qu'adversaire très résolu de la loi de trois ans, il se séparait, dans leur manœuvre victorieuse, de ses amis.
 
 Il exposa avec beaucoup de force l'idée sociale qui avait inspiré le Gouvernement dans son premier projet, puis, M. de Montebello et moi dans notre contre-projet.
 
-Si,
-
 dit-il,
 
 la Chambre écarte du projet toutes les dispositions ayant pour but exclusif d'arrêter la dépopulation de notre pays, elle assumera devant l'histoire la plus écrasante responsabilité. (Applaudissements sur divers bancs) Si nous n'agissons pas, l'Allemagne n'a qu'à attendre quelques années, nous serons bientôt pour elle une proie facile. Actuellement, vous le savez, il naît cinq Allemands contre deux Français, de telle sorte que, dans vingt ans, nous n'aurons plus que deux soldats à opposer à cinq envahisseurs allemands.
-
-[p. 225]
 
 Mais il sera trop tard demain. La maladie qui la rouge deviendra bientôt incurable et nous ne pourrons plus qu'assister à sa lente agonie.
 
@@ -2910,8 +2306,6 @@ Mais il sera trop tard demain. La maladie qui la rouge deviendra bientôt incura
 Nul d'ailleurs, messieurs, ne songe plus à contester la gravité exceptionnelle du mal que je dénonce ; nous savons tous que c'est tout simplement pour la France une question de vie ou de mort. (Applaudissements au centre) Mais, comme toujours, nous nous bornons à déplorer le mal, à nous lamenter sur ses conséquences, à pleurnicher sur l'avenir qu'il nous réserve ; et nous ne faisons rien, absolument rien pour l'enrayer ; nous trouvons toujours des raisons de doctrine et de principe à opposer à tous les remèdes préconisés. (Très bien ! très bien ! sur divers bancs)
 
 Il n'est pourtant pas, messieurs, de principes, de traditions, ni de doctrines qui puissent prévaloir lorsqu'il s'agit de sauver notre pays de la décadence et de la mort. (Très bien ! très bien !)
-
-[p. 226]
 
 M. Dejeante (ironiquement). — Par l'institution de l'armée permanente.
 
@@ -2925,19 +2319,13 @@ M. Augagneur demanda la parole : « Un très grand nombre de mes amis et moi, no
 
 On venait déjà d'ajouter aux dépenses publiques l'entretien du surnombre, 40.000 hommes dont la présence prolongée sous les drapeaux avait été jugée superflue
 
-[p. 227]
-
 par le Conseil supérieur de la Guerre, soit une dépense d'au moins 30 à 40 millions. On allait voter un accroissement considérable des allocations accordées par la loi de recrutement de 1905 et par la loi de finances de 1910 aux soutiens de famille, sans limitation de nombre, alors qu'elles n'avaient été précédemment accordées qu'à 8, puis à 10 0/0 du contingent incorporé : environ 60 à 80 millions. (1) — Au total, cent millions de dépenses annuelles et, en plus, celles que M. Augagneur se déclarait prêt à voter et qu'il était impossible de chiffrer. À augmenter, même au taux nouveau, l'allocation des soutiens de famille, mais seulement pendant deux ans pour les uns, trente mois pour les autres, on économisait, par le système des libérations anticipées, de beaucoup plus favorable aux pauvres gens, on l'évitait de gaspiller de 50 à 60 millions. — On a vu des régimes, séculaires et puissants, périr par les finances.
 
 Le bas-relief de Dalou, Mirabeau et le marquis de Dreux-Brézé, orne l'une des salles du Palais-Bourbon : « Allez dire à votre maître... » Il faudrait graver, en gros caractères, sur une grande plaque de marbre, dans la salle même des séances, un autre discours de Mirabeau, le discours sur la banqueroute.
 
-M. Jaurès succéda à M. Augagneur :
-
 M. Jaurès. — Je demande la parole sur la position réglementaire du débat. (Exclamations à droite)
 
 (1) « L'augmentation de la dépense ne semble pas devoir être moindre de 60 à 80 millions. Ces dispositions ont paru, au plus grand nombre des membres de votre Commission, abusives et dangereuses, autant pour la moralité publique que pour les finances de l'État. » (Sénat, rapport de M. Paul Doumer, page 15)
-
-[p. 228]
 
 M. le président. — La parole est à M. Jaurès pour un rappel au règlement.
 
@@ -2955,8 +2343,6 @@ M. Charles Benoist se déclara hostile à l'amendement ; M. de Montebello demand
 
 L'article qui instituait le service de trois ans ne fut combattu que par M. Dejeante ; il tint à la Chambre, très loyalement, le langage qui était le sien et celui
 
-[p. 229]
-
 de ses amis dans les réunions publiques, servit les mêmes arguments, dénonça comme une provocation la réponse à l'Allemagne qu'était la loi. « Le Gouvernement, menacé par le mouvement socialiste, veut, à tout prix, essayer de faire dans une saignée ce que fit Napoléon 1er. Vous comptez sur l'instinct de la bête humaine que vous excitez pour recommencer les guerres barbares du passé. » M. Vaillant, dans une interruption : « La loi de trois ans est dirigée contre la classe ouvrière. »
 
 Le paragraphe de l'article 18 : « De l'armée active pendant trois ans... » fut adopté par 339 voix contre 223. L'ensemble de l'article ayant été adopté (par 343 voix contre 229), la Chambre passa, dans la séance du lendemain (8 juillet) aux articles 1 et 2 qui fixaient les chiffres des effectifs pour les diverses unités, chiffres au-dessous desquels le total des hommes du service armé ne pourrait être abaissé et qui ne pourraient être modifiés que par des lois spéciales indépendantes des lois de finances.
@@ -2965,8 +2351,6 @@ La suppression de ces deux articles fut demandée par M. Voilin. Il découvrit l
 
 « Dans le premier projet présenté par le ministre de la Guerre, dit M. Voilin, il n'était pas question du tout de modifier les effectifs et les cadres. » Les articles de notre contre-projet sur le minimum des effectifs n'avaient pas d'autre but que de « fixer le surnombre et de délimiter le nombre des congés ». — « Si la Commission et le Gouvernement considèrent l'application stricte de l'amendement de M. Daniel Vincent, ils doivent se ranger à mon avis et accepter la suppression de l'article 2
 
-[p. 230]
-
 fixant le minimum d'effectifs. » Et, soit qu'il crût, soit qu'il affectât de croire que le Gouvernement et la Commission seraient capables d'une pareille défaillance et tomberaient au piège : « S'il en est ainsi, je n'aurai pas à insister et, si la Commission et le Gouvernement acceptent la suppression des articles 2 et 3, je suis tout prêt à descendre de cette tribune. »
 
 « Nous ne supprimons rien du tout », répliqua simplement le rapporteur. J'ajoutai : « L'article 2 est plus indispensable après le vote d'hier qu'auparavant. »
@@ -2974,10 +2358,6 @@ fixant le minimum d'effectifs. » Et, soit qu'il crût, soit qu'il affectât de 
 M. Voilin poursuivit son discours sur ce thème : l'égalité effective, absolue, du service militaire est incompatible avec la permanence des effectifs minima. « Si la Chambre, dit-il en terminant, veut respecter le principe de l'égalité, il est inadmissible qu'elle vote la fixation de minimums d'effectifs dans une loi sur le recrutement. » — C'était la vieille erreur que j'avais combattue (1) : faire de la loi des effectifs la fonction de la loi du recrutement. — « Votre texte du minimum d'effectifs aura pour unique effet de consacrer l'arbitraire, l'injustice et l'inégalité. »
 
 Le général Joffre, chef d'état-major général de l'armée, répondit au nom du Gouvernement. Discours sobre, simple, vigoureux, de tous points excellent, qui fut vivement applaudi. Le général Joffre rappelle les raisons (instruction, solidité, cohésion) pour lesquelles l'Allemagne a porté à 160 hommes l'effectif de paix de ses compagnies faibles. « Cette compagnie allemande ira au feu avec environ une vingtaine de sous-officiers de carrière, 140 hommes de l'armée active et seulement
-
-(1) Voir pages 128 et 129.
-
-[p. 231]
 
 50 réservistes dont le plus âgé n'aura pas dépassé 25 ans. » À cette compagnie allemande, nous voulons opposer une compagnie de qualité au moins égale.
 
@@ -2994,8 +2374,6 @@ L'effectif minimum de 140 hommes pour la compagnie de l'intérieur, n'a, d'aille
 On a opposé fréquemment à cet effectif de 140 hommes, fondé comme je viens de le dire sur la considération exclusive de la qualité, un certain effectif de 115 hommes, dont il paraît opportun de préciser l'origine. La voici :
 
 Lors de la séance du Conseil supérieur de la Guerre du
-
-[p. 232]
 
 9 décembre 1911, au cours de laquelle a été discuté le projet de loi des cadres de l'infanterie, la question de l'effectif des compagnies de l'intérieur a été posée de la façon suivante : l'effectif total dont nous pouvions disposer alors était déterminé par la loi de recrutement de 1905.
 
@@ -3019,8 +2397,6 @@ Il ne s'agissait plus de répartir dans un certain nombre d'unités des ressourc
 
 C'est ainsi qu'on a été conduit à déterminer l'effectif minimum jugé nécessaire pour qu'une unité puisse constituer un organisme vivant, susceptible de s'instruire, de se
 
-[p. 233]
-
 développer lui-même, capable d'absorber à la mobilisation, sans que ses éléments perdent leur cohésion, les réservistes qui lui seront nécessaires pour se compléter ; en un mot, pour que cette unité ait la qualité jugée indispensable.
 
 Telles sont les conditions dans lesquelles le Conseil supérieur de la Guerre a adopté le chiffre de 140 hommes pour l'effectif minimum de paix de la compagnie de l'intérieur. (Très bien ! très bien ! au centre, à droite et sur divers bancs à gauche)
@@ -3038,8 +2414,6 @@ Nous devons donc, nous aussi, porter nos unités de couverture à un effectif te
 Cette nécessité exclut toute possibilité de faire appel, pour la mobilisation de la couverture, aux ressources de l'intérieur du pays : ces ressources, tant en réservistes qu'en chevaux de réquisition, arriveraient beaucoup trop tardivement. (Très bien ! très bien ! au centre, à droite et sur divers bancs à gauche)
 
 L'effectif de paix des unités de couverture devra donc atteindre un effectif tel que la seule adjonction des réservistes et des chevaux de réquisition qui se trouvent sur
-
-[p. 234]
 
 place, suffise à le porter au complet de guerre. (Applaudissements)
 
@@ -3061,8 +2435,6 @@ Je ferai simplement observer à la Chambre que cet article n'est que la reproduc
 
 (1) L'article portait, dans notre contre-projet et dans le projet de la Commission, le n° 3. Il était devenu l'article 1er, la Présidence de la Chambre ayant fait observer que notre article 1er, qui modifiait l'intitulé de la loi, n'avait pas sa place dans le texte et qu'il devait être seulement mis aux voix avant le vote sur l'ensemble.
 
-[p. 235]
-
 gouvernement de faire tomber au-dessous des chiffres jugés nécessaires les effectifs de notre armée.
 
 M. Lucien Voilin. — En 1905, le service n'était pas égal pour tous.
@@ -3081,8 +2453,6 @@ M. Adrien Lannes de Montebello. — ... pour faire aussi simplement, disons-le, 
 
 C'est pour vous mettre en garde, messieurs, contre de pareilles surprises que nous jugeons l'article 3 indispensable, aussi indispensable aujourd'hui qu'il l'était hier.
 
-[p. 236]
-
 Encore une fois, quand vous voudrez modifier la loi des cadres et des effectifs que nous vous demandons de voter — car c'est une loi des cadres et des effectifs que nous discutons en ce moment — vous le pourrez, mais par une loi spéciale, discutée avec toutes les garanties nécessaires ; sans cela, prenez-y bien garde, ce que vous faites ou rien sera la même chose, parce qu'il pourra dépendre d'un hasard de séance ou de la défaillance même d'un ministre de renvoyer en congé une partie de l'armée française, et alors ces effectifs, que M. le général Joffre, avec sa grande autorité, a déclarés nécessaires pour la vie même de notre unité, ces effectifs seraient bouleversés.
 
 Je vous demande instamment, messieurs, de maintenir l'article 3 qui est une des bases du projet de loi. (Applaudissements au centre, à droite, et sur divers bancs à gauche)
@@ -3092,10 +2462,6 @@ L'article fut adopté par 356 voix contre 185. C'était la base du projet, que M
 Entre autres conséquences, le vote de l'amendement Vincent renversait notre contre-projet sur l'incorporation à vingt ans.
 
 Deux impossibilités, l'une matérielle, l'autre légale, résultaient, en effet, de ce vote. Impossible, d'abord, d'avoir simultanément sous les drapeaux, de loger, même dans des casernes élargies et dans les nouvelles casernes en construction, la classe 1910, maintenue en vertu des décisions du Gouvernement et des Chambres, la classe 1911 qui entrait dans sa deuxième année, la classe (nouvelle) 1912 et, si rigoureuse qu'en serait la sélection, la classe 1913. Impossible, d'autre part, de libérer partiellement la classe 1910 ; nous avions proposé de la libérer dans la proportion du surnombre déjà
-
-(1) Voir page 220.
-
-[p. 237]
 
 réalisé et qu'accroîtrait de 100.000 hommes environ la classe sélectionnée ; mais tout notre mécanisme de libérations anticipées était brisé.
 
@@ -3107,8 +2473,6 @@ Les votes successifs, à vingt-quatre heures d'intervalle, de l'amendement Vince
 
 Ou bien incorporer une classe à vingt ans moins sévèrement sélectionnée afin de pouvoir renvoyer toute la classe 1910 sans descendre au-dessous des effectifs légaux ;
 
-[p. 238]
-
 Ou bien ajourner à d'autres temps l'incorporation à vingt ans et garder toute la classe 1910, beaucoup plus résignée à faire une troisième année qu'on ne le donnait à entendre, mais qui venait d'entrevoir la possibilité d'être renvoyée dans ses foyers et qui trouverait cruelle la déception infligée.
 
 De quelque côté qu'on se tournât, on se heurtait à des difficultés redoutables, ou morales ou militaires. Apporter moins de sévérité à la sélection de la classe, ce serait jouer avec la santé des hommes, atteindre peut-être des milliers de jeunes soldats aux sources de la vie. Incorporer à la fois deux classes entières de recrues, ce serait affaiblir, pendant de longs mois, la défense nationale et, surtout, cette couverture de l'Est que la loi de trois ans avait précisément pour objet de fortifier. La seconde guerre des Balkans, c'était une cause nouvelle d'inquiétudes.
@@ -3116,8 +2480,6 @@ De quelque côté qu'on se tournât, on se heurtait à des difficultés redoutab
 La Commission de l'Armée s'étant réunie le 9 juillet, le président lui communiqua l'avis qui avait été exprimé la veille par le Comité consultatif d'hygiène et d'épidémiologie, réuni sous la présidence du docteur Roux, directeur de l'Institut Pasteur et membre de l'Académie des Sciences. Le ministre de la Guerre l'avait immédiatement transmis. Cet avis était ainsi conçu :
 
 1° La Commission estime qu'au point de vue de l'hygiène de l'armée il vaut mieux fixer à vingt et un ans l'âge de l'incorporation du contingent en donnant aux jeunes gens le droit de devancer l'appel dès l'âge de vingt ans s'ils présentent une bonne aptitude physique au service militaire. On donnerait ainsi à la jeunesse française une prime à la « robusticité ».
-
-[p. 239]
 
 2° L'incorporation à vingt ans ne pourrait être admise qu'avec une sélection rigoureuse du contingent pour laquelle le fonctionnement des conseils de revision actuels n'offre pas les garanties nécessaires.
 
@@ -3131,8 +2493,6 @@ La Commission estime qu'une première sélection des conscrits doit être faite 
 
 La discussion s'engagea. Je demandai la parole. De l'avis, qui nous était communiqué et qui dominait le débat, il résultait, une fois de plus, que l'incorporation à vingt ans ne pourrait être admise qu'avec une sélection rigoureuse ; l'avis du 8 juillet n'infirmait pas, il corroborait notre amendement dans ses dispositions principales (ajournements, congés sanitaires, etc.). Mais, d'une part, la sélection ne donnerait qu'un nombre d'hommes insuffisant pour réaliser le plein des effectifs légaux, et la classe de 1910 était renvoyée tout entière, et, d'autre part, un renvoi partiel de la classe était rendu impossible par l'amendement Vincent, tel qu'il avait été voté. En conséquence, M. de Montebello et moi, nous avions le devoir d'aviser la Commission que
 
-[p. 240]
-
 notre amendement, qui ne pouvait plus jouer, était retiré.
 
 Restaient l'amendement de M. Escudier, que la Commission avait déjà repoussé, celui de MM. Puech et Noulens qui reportaient au mois d'avril l'incorporation de la classe à vingt ans, celui de M. Painlevé qui incorporait seulement une demi-classe. MM. Augagneur, Lachaud et Lorimy, tous trois médecins, restaient hostiles à tout avancement de l'âge de l'incorporation ; M. Jaurès les appuya. M. Painlevé défendit son amendement avec sa force ordinaire de dialectique. Mais le siège de la Commission était fait. Elle maintint, à une forte majorité, le vote de principe qu'elle avait émis, le 8 mai, sur l'amendement de M. Escudier. Comme il fallait pourtant faire quelque chose, elle accepta l'amendement suivant de MM. André Lefèvre et Lachaud :
@@ -3140,8 +2500,6 @@ Restaient l'amendement de M. Escudier, que la Commission avait déjà repoussé,
 Le ministre fixera, chaque année, le nombre maximum des devancements d'appel autorisés pour les jeunes gens âgés de vingt ans révolus. Ils auront lieu sous le bénéfice de l'examen médical applicable aux engagements.
 
 La discussion reprit le lendemain devant la Chambre, sur l'article 6 (tableau de recensement). Nouveau réquisitoire de M. Jaurès. Il devenait impossible au Gouvernement de n'avoir pas d'opinion. M. Barthou annonça qu'il était à la veille de prendre parti. Il a, d'abord, déclaré à la Commission que, si elle acceptait l'incorporation à vingt ans, il n'y ferait pas d'opposition. Il lui a communiqué, avec une loyauté parfaite et désintéressée, tous les documents. Entre temps, il a fait procéder par le Service de Santé à une enquête dans un très grand nombre de régiments. Dès qu'il aura l'avis
-
-[p. 241]
 
 de ses conseils techniques sur les statistiques et les documents résultant de cette enquête, le Gouvernement s'expliquera devant la Chambre, mais sans poser la question de confiance ; la Chambre statuera dans sa pleine liberté.
 
@@ -3151,13 +2509,9 @@ La Commission se réunit le lendemain sous la présidence de M. de Montebello, r
 
 Le ministre s'étant retiré et la Commission ayant abordé le chapitre des congés et des permissions, je rappelai dans quelles conditions, M. de Montebello et
 
-[p. 242]
-
 moi, nous avions retiré, dans une précédente séance, notre amendement sur l'incorporation à vingt ans. Une nouvelle solution n'était apparue. J'avais l'intention de déposer, précisément aux articles en discussion devant la Commission, un amendement qui, respectueux du principe d'égalité voté par la Chambre lorsqu'elle avait accepté l'amendement Daniel Vincent, introduirait dans la loi de recrutement le mécanisme des congés qui fonctionne pour l'armée de mer dont le recrutement est également basé sur le principe d'égalité. C'est le principe qui est posé par l'article 23 de la loi du 27 décembre 1896 sur l'inscription maritime et qui a été repris par l'article 56 du projet de loi sur le recrutement de l'armée de mer déposé par MM. Pierre Baudin et Étienne. Tous les marins doivent en principe cinq ans de service effectif, mais, en fait, ils sont autorisés à demander des congés renouvelables. Notamment, l'article 56 du projet de loi autorise à mettre en congé, après une durée de service égale à celle imposée par le recrutement de l'armée de terre, les inscrits définitifs reconnus soutiens indispensables de famille. Je proposerais donc d'accorder des congés à long terme d'après la même procédure aux soutiens indispensables de famille et, ensuite, aux jeunes gens des familles nombreuses. Sans une disposition de ce genre, la loi serait trop lourde et le problème de l'incorporation d'une classe sélectionnée serait insoluble. Ma proposition pourrait d'ailleurs être liée à celle du commandant Driant.
 
 J'avais, au cours de cet exposé, rappelé que M. Jaurès, dans cette même séance où il avait tant contribué au vote de l'amendement Vincent, avait reconnu que la
-
-[p. 243]
 
 règle, posée par la Chambre, était susceptible d'exceptions. Je donnai lecture de son intervention, en réponse à M. Breton. (1) Ma proposition sur les congés à long terme tendait assurément à reprendre, sous une autre forme, le texte de notre contre-projet sur les libérations anticipées. Elle n'en était pas moins tout à fait réglementaire. On voulait l'égalité. Je la voulais aussi. Le texte de la loi sur l'inscription maritime est identique au texte de l'amendement Vincent. Pourquoi refuser aux soutiens de famille, dans l'armée de terre, les congés qui sont accordés, par la loi, aux soutiens de famille, dans l'armée de mer ?
 
@@ -3168,10 +2522,6 @@ La réplique de M. Jaurès fut véhémente. Il opposa à l'amendement, que je n'
 (À la réflexion, il supprima les mots : « les permissions », convenant lui-même que le principe de l'égalité effective ne leur était pas applicable.)
 
 M. Bénazet combattit avec beaucoup de force la motion de M. Jaurès. C'était l'évidence qu'il fallait trouver un moyen de sortie de l'impasse où l'on était engagé. La solution que j'indiquais n'était nullement incompatible avec les votes précédents de la Chambre. Le système que je préconisais était, depuis de longues
-
-(1) Voir pages 227 et 228.
-
-[p. 244]
 
 années, appliqué aux 53.000 inscrits maritimes, et il était à la satisfaction unanime des populations.
 
@@ -3187,8 +2537,6 @@ Lorsque l'effectif prévu pour les diverses unités à l'article 2 de la présen
 
 (1) On trouvera tous ces arguments dans les discours de M. Barthou (Chambre des Députés, 10 et 16 juillet ; Sénat, 6 août).
 
-[p. 245]
-
 2° Les militaires classés comme soutiens indispensables de famille qui, soit au moment de leur comparution devant le conseil de revision, soit postérieurement, ont deux frères ou sœurs vivants ou plus, légitimes ou reconnus ;
 
 3° Les militaires classés comme soutiens indispensables de famille et n'appartenant pas aux deux catégories ci-dessus ;
@@ -3202,8 +2550,6 @@ Dans chacune des catégories ou subdivisions de catégories établies par le pr�
 La désignation des militaires à envoyer en congé aura lieu sur l'ensemble de l'armée, sans distinction d'arme ni de corps, en commençant par les plus âgés dans chacune des catégories et subdivisions établies ci-dessus.
 
 Les demandes de congé devront être formulées par les intéressés deux mois au moins avant chacune des deux dates énoncées au paragraphe premier du présent article. Elles indiqueront à quelles catégories et sous-catégories appartiennent les militaires qui formulent
-
-[p. 246]
 
 ces demandes. Elles seront transmises directement au ministre de la Guerre par les chefs des différentes unités.
 
@@ -3219,8 +2565,6 @@ Je puis dire avec assurance à tous les réacteurs, à tous les machinateurs, qu
 
 La suprême tentative de M. Joseph Reinach pour éluder l'amendement Daniel Vincent et pour ramener dans la loi les inégalités, les privilèges, les libérations partielles et les congés de faveur lui apparaît comme le crime des crimes et aussi comme l'utopie des utopies. Oui, c'est la chimère des chimères, comme c'est la scélératesse des scélératesses. Tout
 
-[p. 247]
-
 parti, tout homme public qui entrera dans ce jeu prononcera sur lui-même une condamnation irrévocable. L'idée de se faire pardonner le maintien arbitraire et illégal de la classe en la libérant par partie, et en établissant à demeure dans notre institution militaire le favoritisme, la corruption, le privilège est une idée absurde. La classe libérable sait que sa force, sa vraie force, est d'être solidaire. Il faut qu'on la libère tout entière. On ne peut pas se dispenser de la libérer tout entière. Ceux qui tentent de la diviser pour mieux la perdre font une besogne détestable et dont ni les travailleurs ni les soldats ne sont les dupes.
 
 C'est ce qui signifie, hier, avec une force incomparable, le peuple militant assemblé au Pré-Saint-Gervais. Il ne veut pas de la loi de trois ans. Il ne veut pas des combinaisons de M. Joseph Reinach qui cherche à se venger sur le peuple, par des lois de réaction et de privilège comme par des mesures de répression arbitraire, de l'humiliation qu'il a subie il y a quinze ans, quand il fut obligé, pour une œuvre de réparation, de rechercher le nécessaire concours de ce noble prolétariat qu'il déteste et qu'il redoute.
@@ -3231,8 +2575,6 @@ Pas un seul riche n'en sera (de ces rengagés) ; pas un seul fils des familles a
 
 C'était, en effet, sur « les humbles et les déshérités » dont certains démagogues se diraient volontiers les seuls défenseurs, c'était « sur le prolétariat détesté et redouté » que je cherchais à me venger de l'affaire
 
-[p. 248]
-
 Dreyfus en proposant d'accorder, au cours de leur troisième année, quand ils feraient partie du surnombre, des congés de neuf mois et de six mois d'abord aux soutiens de famille les plus misérables, fils ou petits-fils de veuves, ou d'aveugles, ou de septuagénaires, puis aux membres des familles nombreuses, en troisième lieu aux simples soutiens de famille, en dernier lieu seulement aux membres des familles nombreuses qui n'étaient pas soutiens de famille.
 
 Si critiquable que fût à certains égards notre amendement, il reçut l'approbation de quelques-uns des écrivains militaires les plus autorisés et dont la clairvoyance s'inquiétait le plus de la libération entière de la classe 1910 et de l'incorporation presque totale de la classe 1913. Le général de Lacroix, le lieutenant-colonel Rousset, le commandant de Thomasson, d'autres encore, insistèrent pour que le Gouvernement acceptât, au moins dans ses grandes lignes, une proposition qui ne pouvait réussir qu'appuyée par lui. (1)
@@ -3240,8 +2582,6 @@ Si critiquable que fût à certains égards notre amendement, il reçut l'approb
 J'ai reproduit déjà les raisons que M. Barthou a données au Sénat contre notre précédent amendement
 
 (1) Le général Maitrot était opposé à toute incorporation à vingt ans : « Maintenir sous les drapeaux les deux classes 1910 et 1911 dans la mesure indiquée par l'article 19 du contre-projet Reinach-Montebello, c'est-à-dire en renvoyant dans leurs foyers les hommes en excédent des effectifs minimums, suivant une modalité à fixer, c'était simple et sage, c'était la sécurité assurée. » (Écho de Paris du 14 juillet.) « Par le fait que le Gouvernement et la Chambre ont admis qu'aucune libération anticipée ne pourrait être accordée aux hommes maintenus sous les drapeaux, ils ont détruit le contre-projet si sage Reinach-Montebello. » (Écho du 16 juillet.)
-
-[p. 249]
 
 qui ne différait de celui-ci que par la forme. Le 15 juillet, avant de se rendre devant la Commission de l'Armée avec le ministre de la Guerre, il se borna à me dire que le Conseil, dans sa séance du matin, avait examiné notre proposition, ne l'avait pas acceptée, mais n'avait pas pris connaissance sans quelque émotion de la lettre où j'avais exposé quelles craintes de toutes sortes me causait l'incorporation pure et simple, à l'automne, de deux classes de recrues, dont la plus jeune n'aurait pas été assez rigoureusement sélectionnée. Quand l'événement aura donc donné tort à mes craintes, je n'éprouverai pourtant aucun regret à les avoir ressenties.
 
@@ -3251,15 +2591,11 @@ La Commission ne se dissimulait pas qu'elle serait battue devant la Chambre. Le 
 
 Attitude qui ne manquait pas d'élégance, mais qui
 
-[p. 250]
-
 n'était pas une solution. De fait, la majorité de la Commission était favorable à l'idée qu'elle repoussait. Le lendemain, à la Chambre, au scrutin public, sur 44 membres que comptait la Commission, 25 votèrent pour l'amendement Escudier, 13 seulement contre et 6 s'abstinrent, dont le président Le Hérissé et le rapporteur Henri Paté. Mieux eût valu accepter le principe, chercher la meilleure modalité, établir avec soin, d'avance, les garanties indispensables à la santé des hommes, ne pas ajouter la plus grande force de la loi qui n'est pas le nombre, mais la cohésion et l'instruction qui en résultent.
 
 Il était rare que nous fussions, sur 44 membres, plus de 20 en séance. C'est l'un des vices des grandes Commissions. J'en ai été l'avocat ; à l'usage, mon sentiment s'est modifié. Les membres des Commissions moins nombreuses sont plus assidus ; leurs travaux sont plus méthodiquement dirigés ; la majorité ne s'y déplace pas aussi souvent, de séance en séance.
 
 La motion préjudicielle de M. Jaurès sur les congés à longs termes avait été repoussée à égalité de voix, celle du président (M. de Montebello ce jour-là) étant prépondérante, 8 contre 8. Nous n'étions plus que 14 en séance lorsque mon amendement fut discuté au fond. M. Jaurès avait, avec raison, battu le rappel de ses amis. M. Bénazet et moi, nous défendîmes de notre mieux, contre l'une de ses plus furieuses attaques, notre amendement. Il avait déjà contre lui l'opposition du Gouvernement. S'il était réglementaire, s'il ne constituait, en droit, qu'une exception à la règle admise par la Chambre, il me faut bien convenir que l'exception était grosse. Pourtant, nous aurions pu le
-
-[p. 251]
 
 faire admettre par la Commission, ce qui aurait peut-être changé bien des choses, si, au moment du vote, le président Le Hérissé n'avait point fait une déclaration anormale. À l'ordinaire, comme président, il ne prenait point part au vote. C'était son droit d'y prendre part ; M. de Montebello et moi, lorsque nous présidions en son absence, nous ne nous abstenions pas des scrutins. Il avait été élu, la veille, sénateur. C'était son droit de continuer à siéger et à voter à la Chambre tant qu'il n'avait pas été validé au Sénat. Il demanda au Sénat d'ajourner sa validation, parce qu'il considérait de son devoir, et ce sentiment était honorable entre tous, de continuer à prendre toute sa responsabilité, comme député et comme président de la Commission de l'Armée, jusqu'au vote de la loi militaire. Mais il outrepassa ses droits en déclarant que, respectueux du vote de la Chambre sur l'amendement de M. Vincent, il donnerait, si la Commission acceptait le nôtre, sa démission de président. Le rapporteur fit, en ce qui le concernait, la même déclaration. Notre amendement fut repoussé par 9 voix contre 5.
 
@@ -3267,17 +2603,11 @@ L'idée m'était venue de retirer avant le vote, en manière de protestation, no
 
 Manifestement, il ne nous restait plus qu'à retirer notre amendement devant la Chambre et à appuyer les mesures qui rendraient moins aventureuse l'incorporation simultanée de deux classes. C'étaient, notamment, pour assurer une sélection la plus rigoureuse possible, les dispositions de notre précédent amendement sur les ajournements successifs et les congés sanitaires (elles sont devenues les articles 9 et 10 de la loi), et,
 
-[p. 252]
-
 afin que le rendement numérique plus faible de la classe sélectionnée ne fît pas tomber les effectifs au-dessous du minimum désormais légal, l'amendement de M. Driant, si coûteux qu'il fût, sur les engagements volontaires et les rengagements à titre exceptionnel, du 15 août au 15 novembre 1913 (article 44 de la loi).
 
 On avait lieu d'espérer que, préoccupés du seul intérêt des jeunes soldats, les conseils de revision et de réforme feraient tout leur devoir et que des hautes payes de 1 franc par jour, des primes de libération de 500 et de 1.000 francs, détermineraient un courant de rengagements d'un an et de deux ans.
 
 M. Barthou s'est défendu, devant le Sénat, d'avoir déclaré à aucun moment qu'il garderait la classe 1910 sous les drapeaux pendant une année. (1) S'il s'était gardé, en effet, de le dire depuis qu'était intervenue la question de l'incorporation à vingt ans, par contre le ministre de la Guerre l'avait écrit dans son projet de loi, article 20 ; la loi de trois ans serait « appliquée à tous les hommes appartenant aux classes sous les drapeaux au moment de sa promulgation » ; cette disposition faisait encore partie du texte de la Commission. Mais il était parfaitement exact que M. Barthou et M. Étienne, depuis que l'opinion avait été saisie de la question de l'incorporation à vingt ans, s'étaient refusés très énergiquement à fixer l'époque de la libération de la classe 1910. Ils avaient voulu conserver intact et entier le droit du Gouvernement. Ce qu'ils confièrent à leurs amis ne fut pas répété. C'est seulement le 6 août que M. Barthou a fait connaître publiquement,
-
-(1) Sénat, 6 août 1913.
-
-[p. 253]
 
 au Sénat, que, si la loi était votée avec l'incorporation de la classe 1913 à vingt ans, la classe de 1910 serait maintenue pendant six semaines ou pendant deux mois sous les drapeaux, et qu'ainsi « respect serait assuré à l'autorité nécessaire de la loi et à l'autorité du Parlement ». Ce serait, sur la période critique, au moins quelques semaines de gagnées.
 
@@ -3287,35 +2617,15 @@ Toutefois, puisque, de toute façon, il fallait subir un danger momentané, « m
 
 Le général Legrand communiqua à la Commission de l'Armée, à titre confidentiel, les chiffres suivants que M. Barthou a produits, par la suite, devant le Sénat : (3) Quand les deux lois auront reçu toute leur application, l'Allemagne aura un effectif plein de 830.000 hommes mobilisables, officiers non compris ; l'effectif
 
-(1) Voir page 187.
-(2) Doumer, rapport au Sénat, page 110.
 (3) Séance du 6 août.
-
-[p. 254]
 
 moyen de notre armée sera de 700.000 hommes. Le rapport de nos effectifs mobilisables aux effectifs mobilisables de l'Allemagne, officiers non compris, sera de 85 0/0.
 
 Or, le même rapport paraît devoir se trouver pendant le courant de l'hiver, période inévitable de transition aux deux côtés de la frontière, entre les effectifs mobilisables des deux pays :
 
-ALLEMAGNE — Hommes
-
-Classes anciennes.................. 270.000
 Sous-officiers et assimilés.......... 110.000
-Engagés volontaires................ 20.000
-Au total.... 400.000
-
-FRANCE — Hommes
-
-Classe 1911...................... 180.000
-Contingent permanent métropolitain. 90.000
-Engagés volontaires en surnombre
-depuis le 1er janvier 1913......... 30.000
-Armée coloniale en France......... 44.000
-Au total.... 344.000
 
 Ces mesures, ces chiffres, les promesses réitérées des ministres qui avaient donné des preuves de courage et de résolution, ne rassuraient qu'à peu près nos consciences. Ce n'était pas un secret que l'État-Major, que M. Étienne, si confiant qu'il fût à l'ordinaire, ne se faisaient pas d'illusion sur l'application de la mesure projetée. Dure, cerassant, serait la tâche qui incomberait aux officiers et aux cadres subalternes. L'hiver leur serait rude. Voilà des années qu'à peine le ciel a-t-il été balayé de nuages que de nouveaux nuages se forment. L'idée de l'attaque brusquée, toujours possible,
-
-[p. 255]
 
 était entrée dans les esprits. Mais il y avait quelque chose de supérieur à ces chiffres et à ces mesures : c'était le tempérament national, son ressort, surtout aux heures difficiles, débrouillard jusqu'au génie, et le souffle nouveau, ou, pour mieux dire, le vieux souffle des temps de vaillance et de foi patriotique qui passait sur le pays.
 
@@ -3325,17 +2635,9 @@ J'ai préféré, à tort ou à raison, me résigner au vote du texte que j'avais
 
 (1) M. Breton, dans la Lanterne du 8 juillet.
 
-[p. 256]
-
 Défendue par M. Loth et par M. Puech, l'incorporation à vingt ans fut combattue par M. Gabriel Maunoury et par M. André Lefèvre, partisans de la loi de trois ans, et par MM. Thivier, Lachaud et Augagneur. Le ministre de la Guerre donna en quelques mots l'avis du Gouvernement : « Pourquoi demandons-nous l'incorporation à vingt ans ? Posant la question sur son véritable terrain, je dirai que nous sollicitons ce mode d'incorporation parce qu'il nous paraît que nous répondons ainsi à un vœu unanime du pays. » C'était un peu sommaire, mais, à peu près, exact. L'incorporation à vingt ans donnerait 50 0/0 du contingent recensé. « Les conseils techniques du Gouvernement lui ont fourni, sur la solution du problème, des indications qui ont paru suffisamment précises. » Sans doute, « l'adhésion n'a pas été donnée absolue, sans restriction ni réserve ». « Les conseils ont pourtant conclu « que l'incorporation pourrait être faite sous certaines conditions ». Ils ont indiqué les mesures, les précautions à prendre. « Nous prendrons ces mesures avec méthode, avec suite et avec énergie ; j'en donne l'assurance à la Chambre. Le Gouvernement est résolu à faire tout son devoir ; il le fera. Il demande formellement à la Chambre de vouloir bien voter l'amendement de M. Escudier. »
 
 L'amendement fut adopté, en scrutin public, par 394 voix contre 166. Votèrent contre tous les socialistes, des radicaux, quelques membres de la droite, plusieurs de ceux qui avaient défendu, avec le plus de talent et de courage, le projet de loi : M. Leygues, M. André Lefèvre, M. de Montebello. M. de Mun s'abstint. (16 juillet).
-
-IX
-
-ÉGALITÉ — JUSTICE
-
-[p. 257]
 
 J'avais déposé avec MM. de Montebello, Bénazet, Albert Denis, Forest, Painlevé et Gallois l'amendement suivant à l'article 11 du projet de loi :
 
@@ -3344,8 +2646,6 @@ Les limites d'âge prévues par les lois, décrets et arrêtés pour l'admission
 Cette mesure avait été préconisée dans plusieurs articles du journal le Siècle par M. Raoul Allier ; elle était d'une équité manifeste.
 
 Pour l'admission aux concours des emplois de l'État, la limite d'âge est d'ordinaire de vingt et un ans. Les jeunes gens qui sont, pour inaptitude physique, dispensés du service militaire bénéficient donc d'une avance sur leurs concurrents qui l'accomplissent ou qui
-
-[p. 258]
 
 ont à l'accomplir ; pour ceux-ci, la limite d'âge sera abaissée d'un an, par année de service militaire non accomplie. Ainsi, soit pour ceux qui font leur service, soit pour ceux qui ont devancé l'appel, la situation sera égale à celle des jeunes gens ne faisant pas de service ; le service ne doit pas créer aux premiers une défaveur.
 
@@ -3359,8 +2659,6 @@ Et comme M. Lefas insistait :
 
 M. Joseph Reinach. — Avant de déposer notre amendement, à la demande d'un grand nombre de jeunes gens qui se présentent aux concours ou aux
 
-[p. 259]
-
 emplois d'État, nous avons officieusement consulté les plus hautes autorités du Conseil d'État sur la rédaction de cet article et ce n'est qu'après cette consultation que nous avons soumis notre texte à la Commission de l'Armée, qui l'a adopté.
 
 L'amendement fut adopté. (18 juillet.)
@@ -3373,29 +2671,13 @@ Rédiger comme suit le paragraphe 2 de l'article 13 :
 
 L'amendement avait été soutenu par MM. Henry Cochin et Théodore Reinach ; le Gouvernement l'acceptait. Le président et le rapporteur de la Commission le repoussèrent, parce que, sauf l'Institut agronomique,
 
-[p. 260]
-
 les écoles visées par notre amendement « étaient en dehors de la loi de 1905 ». Normaliens et boursiers de facultés se destinant également au professorat des lycées et des facultés, c'était une grande injustice de ne pas les soumettre les uns et les autres au même régime.
 
 Il n'avait pas été répondu à cet argument.
 
 Le régime que la Commission institua pour (ou contre) les élèves des grandes écoles fait partie des dispositions de la loi dont il a été convenu, au Sénat, qu'elles seraient modifiées par une loi de « redressement ». (1)
 
-(1) Voir page 265.
-
-X
-
-DISCOURS
-PRONONCÉ LE 19 JUILLET
-SUR L'ENSEMBLE DU PROJET DE LOI
-
-[p. 261]
-
 La Chambre acheva, dans sa deuxième séance du 19 juillet 1913, la discussion du projet de loi. Le groupe d'Entente démocratique et sociale m'avait chargé de prendre la parole en son nom. Sa déclaration, dont je donnai lecture, portait, avec ma signature, celles de MM. Fernand David, Guistchau, Lebrun, Maginot, Millerand, Landry, Verlot, Noël, Lefébure, Albert Denis, Delpierre, Lépine, Delaroche-Vernet, P. Bignon, Germain Périer, Plouzané, Raoul Péret, Jules Cels, Armes, Le Bail, Villault-Duchesnois, Maurice Maunoury, André Honnorat, Paul Cuny, Roden, Corneau, Loth, André Lefèvre, Bonniart, Braibant, Grandjean, Bouctot, Lavoinne, Bar, Python, Chalamet, Frayssinet, Voyer, Abel Thiéry, Jules Siegfried, Pourquery de
-
-[p. 262]
-
-Boisserin, Lacour, Robert David, Paul Bénazet, Davine, Fayssat, Sibille, Roch, Pierre Goujon, Chailley, Mathis, Veillat, d'Iriart d'Etchepare, Trouvé.
 
 M. le président. — La parole est à M. Joseph Reinach.
 
@@ -3409,8 +2691,6 @@ L'écart qui allait s'élargir entre les effectifs de notre armée active et ceu
 
 Ce qui domine la loi, ce n'est pas cependant la prolongation de la durée du service militaire ; elle n'est que
 
-[p. 263]
-
 le moyen de réaliser les effectifs actifs qui feront équilibre à ceux de l'Allemagne. Le chiffre de ces effectifs a été établi par le Conseil supérieur de la Guerre. Ces effectifs ne sont pas seulement indispensables pour restaurer l'équilibre militaire rompu, l'équilibre politique menacé. Ils ne sont pas moins nécessaires pour donner une instruction collective plus forte à nos unités, pour constituer un amalgame plus solide entre les soldats de l'active et ceux des réserves, pour accélérer la mobilisation. Il ne suffira pas toutefois de les réaliser pour un jour. C'est pour les conserver toujours à la hauteur voulue que vous avez inscrit en tête de la loi le principe tutélaire de la fixité et de la permanence des effectifs. (Interruptions à l'extrême gauche)
 
 La paix sera d'autant plus assurée que sera plus forte l'organisation de la défense nationale, que l'armée sera plus constamment prête à faire face à toutes les éventualités. Vous pourrez dire demain au pays que vous avez consolidé la paix.
@@ -3418,8 +2698,6 @@ La paix sera d'autant plus assurée que sera plus forte l'organisation de la dé
 Nous avons conscience de nous être élevés au-dessus de toutes les préoccupations de parti pour n'élaborer cette loi que dans la seule pensée de l'intérêt national. Si différentes qu'aient pu être les compétitions militaires, si différentes aussi que soient les préférences politiques des uns et des autres, nous tenons à reconnaître hautement que ces grands débats ont été inspirés par la pensée d'un grand devoir patriotique. Le même devoir s'imposait à tous.
 
 S'il s'imposait d'une façon plus pressante au parti républicain, c'est que le parti républicain a, depuis plus de quarante années, la responsabilité du pouvoir, responsabilité qui ne se réduit pas à l'accomplissement de
-
-[p. 264]
 
 ses obligations quotidiennes, mais qui consiste avant tout à assurer l'avenir d'un pays dont le passé, dix fois séculaire, est glorieux entre tous et à lui garder toute sa place dans le monde. (Vifs applaudissements au centre et sur divers bancs à gauche. — Bruit à l'extrême gauche)
 
@@ -3430,8 +2708,6 @@ La déclaration de M. Caillaux amena une éloquente réplique du président du C
 M. Messimy se sépara de M. Caillaux. Il avait été ministre de la Guerre dans son cabinet. Après avoir soutenu dans un remarquable discours le contre-projet qu'il avait déposé, avec M. Paul-Boncour, sur le service de trente mois, il votera l'ensemble de la loi. Cette déclaration portait une vingtaine de signatures.
 
 M. de la Porte termina son discours par ces mots : « Nous continuerons notre combat jusqu'à ce que le pays ait obtenu l'abolition d'une loi détestable et
-
-[p. 265]
 
 refoulé la réaction pseudo-nationale de la présidence Poincaré. »
 
@@ -3453,30 +2729,15 @@ Il importe d'avoir immédiatement le renforcement de notre armée. Ailleurs, on 
 
 Le sacrifice peut d'autant mieux être accepté que le mal est réparable et réparable promptement. Une loi nouvelle peut modifier demain, sur certains points, les dispositions que vous allez voter. On a opéré ainsi, après le vote de la loi du 21 mars 1905 qui établissait le service de deux ans.
 
-(1) Voir page 55.
-
-[p. 266]
-
 Le Sénat consacra à la discussion du projet les séances du 31 juillet, des 1er, 5, 6 et 7 août. Un discours admirable du général Pau fit apparaître tout l'intérêt qu'il y avait au vote immédiat de la loi. L'ensemble du projet fut adopté, sans modification, par 254 voix contre 37.
 
 Avec des erreurs, sans doute inévitables, la loi du 7 août 1913, je l'ai déjà dit, est un acte. Mais cet acte, si important qu'il soit, en appelle d'autres ; l'effort immense du pays impose de grands devoirs au Gouvernement, aux chefs de l'armée ; la loi n'est qu'un commencement.
-
-ANNEXES
-
-I
-
-LA DEUXIÈME PORTION DU CONTINGENT
-ET L'EXTRÊME GAUCHE DE 1887
-
-[p. 271]
 
 Au moment de donner le bon à tirer de cet ouvrage, je retrouve un document dont je regrette bien de ne m'être pas souvenu au moment où nous avons proposé de rétablir une seconde portion du contingent.
 
 Au mois de juillet 1887, la Chambre avait été saisie du projet qui est devenu la loi du 15 juillet 1889 sur le service de trois ans.
 
 M. Laisant en était le rapporteur général. Il soutint, avec beaucoup de force, devant la Commission de l'Armée, un article (49) qui consacrait la possibilité de renvoyer en congé dans leurs foyers, après deux ans de service actif, un certain nombre d'hommes ayant justifié d'une éducation et d'une instruction militaires suffisantes. Cet article paraissait à M. Laisant « fondamental ». Il l'était, en effet, dans ce sens qu'il créait une seconde portion du contingent.
-
-[p. 272]
 
 M. Laisant ne faisait pas entrer dans la seconde portion du contingent, comme M. de Montebello et moi nous proposions de le faire, les jeunes gens des familles nombreuses et, d'abord, les plus pauvres. Il y faisait entrer des jeunes gens qui auraient été, souvent, parmi les plus riches. Mais M. Laisant disait, avec raison, que son système « ouvrait une soupape de sûreté, » au point de vue budgétaire.
 
@@ -3489,10 +2750,6 @@ Huit membres de la Commission écrivirent à M. Laisant la lettre suivante :
 Cher collègue et ami, il vous a paru que vous ne pouviez plus être ni rapporteur ni membre de la Commission de l'Armée.
 
 Vous n'étiez pas seulement notre collaborateur ; vous vous êtes consacré, dès la première heure, à la réforme démocratique de notre organisation militaire, vous lui avez donné tous vos efforts pendant plusieurs années ; vous avez pris, il y a onze ans, l'initiative de cette œuvre, que vous
-
-(1) Voir page 255.
-
-[p. 273]
 
 voyiez enfin aboutir. Votre nom y est attaché. C'est vous dire si nous nous félicitons de la poursuivre avec vous, et combien nous regrettons de la continuer sans vous.
 
@@ -3510,29 +2767,13 @@ Si nous nous retirions tous ensemble, les ennemis avoués ou secrets de la loi e
 
 Nous restons donc pour leur ôter la ressource de cette équivoque, pour défendre jusqu'au bout ce qui reste de la loi, contre ceux qui l'ont déjà mutilée, et pour établir clairement les responsabilités devant le pays.
 
-Signé : LABORDÈRE, ED. GUYOT-DESSAIGNE, ARMAND RIVIÈRE, H. MICHELIN, TONY RÉVILLON, A. MILLERAND, CHEVILLON, FARCY.
-
-[p. 274]
-
 Ainsi, en 1887, c'était l'extrême gauche qui repoussait le dogme de « l'incorporation totale » et qui jugeait inutile d'infliger au pays et au budget un surcroît de charges militaires que ne réclamaient pas « les nécessités de la défense ».
 
 Deux des signataires de cette lettre, M. Tony Revillon et M. Guyot-Dessaigne, ont été, par la suite, présidents de la Commission de l'Armée ; un troisième, M. Millerand, a été ministre de la Guerre.
 
-II
-
-LOI DU 7 AOUT 1913
-
-ARTICLE PREMIER
-
 Les lois relatives à la constitution des cadres et des effectifs de l'infanterie, la cavalerie, l'artillerie et le génie sont modifiées, en ce qui concerne l'effectif en hommes de l'armée active des différentes unités, conformément au tableau annexé à la présente loi.
 
-ARTICLE 2
-
 Les effectifs fixés par les lois des cadres et des effectifs représentent les nombres au-dessous desquels le total des hommes du service armé présents dans les différentes unités ne peut être abaissé. Ces effectifs ne peuvent être modifiés que par des lois spéciales indépendantes des lois de finances.
-
-[p. 275]
-
-ARTICLE 3
 
 L'article premier de la loi du 21 mars 1905 est complété ainsi qu'il suit :
 
@@ -3542,13 +2783,9 @@ L'article premier de la loi du 21 mars 1905 est complété ainsi qu'il suit :
 
 » 2° Par engagements volontaires et rengagements. »
 
-ARTICLE 4
-
 Le deuxième paragraphe de l'article 2 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Il a une durée de vingt-huit années et s'accomplit selon le mode déterminé par la présente loi. »
-
-ARTICLE 5
 
 L'article 7 de la loi du 21 mars 1905 est complété comme suit :
 
@@ -3556,21 +2793,15 @@ L'article 7 de la loi du 21 mars 1905 est complété comme suit :
 
 » Ce temps est compté en une seule fois, aussitôt accompli, si le service militaire est fait après l'admission dans les cadres, ou dès l'entrée s'il a été fait auparavant. »
 
-ARTICLE 6
-
 L'article 10 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Chaque année, pour la formation de la classe, les maires établissent les tableaux de recensement des jeunes gens ayant atteint l'âge de dix-neuf ans révolus dans l'année précédente et domiciliés dans l'une des communes du canton.
 
 » Les classes sont incorporées l'année de leur recensement. »
 
-[p. 276]
-
 précédente et domiciliés dans l'une des communes du canton.
 
 « Les classes sont incorporées l'année de leur recensement. »
-
-ARTICLE 7
 
 La classe 1913 sera incorporée dans la seconde quinzaine de novembre, au plus tard ; pour les appelés de cette classe, la durée du service comptera du 1er octobre 1913.
 
@@ -3578,23 +2809,17 @@ Les tableaux de recensement de la classe 1913 seront dressés sans délai dans l
 
 Les demandes de sursis d'incorporation prévues à l'article 21 de la loi du 21 mars 1905 devront être adressées au maire dix jours au moins avant la date fixée pour les opérations des conseils de revision. Elles seront instruites et soumises d'urgence au préfet dans les formes en vigueur.
 
-ARTICLE 8
-
 L'article 12 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Les individus devenus Français par voie de naturalisation sont portés sur les tableaux de recensement de la première classe formée après leur changement de nationalité.
 
 « Les individus inscrits sur les tableaux de recensement, en application du paragraphe précédent, sont incorporés en même temps que la classe avec laquelle ils ont pris part aux opérations de la revision. Ils sont tenus d'accomplir le même temps de service actif, sans que, toutefois, cette obligation ait pour effet de les maintenir sous les drapeaux, en dehors des cas prévus par les articles 34 et 39, au delà de leur trente-cinquième année révolue. Ils suivent ensuite le sort de la classe avec laquelle ils sont incorporés. Toute-
 
-[p. 277]
-
 fois, ils sont libérés à titre définitif à l'âge de cinquante ans au plus tard.
 
 « Lorsque l'inscription d'un jeune homme sur les tableaux de recensement a été différée par application de conventions internationales, la durée obligatoire du service actif ne subit aucune réduction, sous la réserve, ci-dessus exprimée, que ce service ne se prolongera pas au delà de la trente-cinquième année révolue. »
 
 La situation des individus devenus Français par voie de réintégration ou déclaration continue à être réglée par les dispositions de l'article 12 de la loi du 21 mars 1905.
-
-ARTICLE 9
 
 L'article 18 de la loi du 21 mars 1905 est complété par les dispositions suivantes :
 
@@ -3614,13 +2839,9 @@ L'article 18 de la loi du 21 mars 1905 est complété par les dispositions suiva
 
 « L'emploi de chacun est fixé, dans la mesure du possible,
 
-[p. 278]
-
 suivant ses aptitudes physiques, morphologiques et professionnelles.
 
 « Le recrutement sera organisé de telle sorte que les réservistes soient le plus près possible du centre des unités actives où ils auront fait leur service et qu'ils devront rejoindre au moment de la mobilisation. »
-
-ARTICLE 10
 
 L'article 19 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
@@ -3644,8 +2865,6 @@ L'article 19 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Ceux enfin qui, après avoir été ajournés quatre fois,
 
-[p. 279]
-
 sont déclarés bons au dernier examen qu'ils doivent subir, sont versés dans la réserve et astreints aux périodes de la classe à laquelle ils appartiennent.
 
 « Les jeunes gens dont l'état physique est suffisant pour qu'ils soient versés dans l'armée active, mais qui présentent une tare accidentelle ou congénitale les empêchant de faire du service armé, sont versés dans le service auxiliaire et font trois ans de service.
@@ -3656,21 +2875,15 @@ sont déclarés bons au dernier examen qu'ils doivent subir, sont versés dans l
 
 « Les règles applicables aux ajournés le sont également aux jeunes gens réformés temporairement, qu'ils soient appelés ou engagés, qu'ils appartiennent au service armé ou au service auxiliaire, si, le temps de la réforme temporaire écoulé, ils sont reconnus aptes à reprendre du service. Le temps passé dans la position de réforme temporaire compte pour le service actif. »
 
-ARTICLE 11
-
 Les troisième et cinquième paragraphes de l'article 21 de la loi du 21 mars 1905 sont remplacés par les dispositions suivantes :
 
 « § 3. — Les demandes de sursis adressées au maire dans les deux mois qui précèdent les opérations du conseil de revision sont instruites par lui ; le conseil municipal donne son avis motivé. Elles sont envoyées au préfet et transmises par lui, avec ses observations, au conseil de revision, qui statue.
 
 « § 5. — Les jeunes gens qui ont obtenu, sur leur demande, un ou plusieurs sursis suivent le sort de leur classe d'origine. »
 
-ARTICLE 12
-
 L'article 22 de la loi du 21 mars 1905 est ainsi modifié :
 
 « Les familles des militaires de l'armée de terre et de l'armée de mer remplissant effectivement, avant leur départ
-
-[p. 280]
 
 pour le service, les devoirs de soutiens indispensables de famille, auront droit, sur leur demande, en temps de paix, à une allocation journalière fournie par l'État pendant la présence de ces jeunes gens sous les drapeaux.
 
@@ -3698,8 +2911,6 @@ pour le service, les devoirs de soutiens indispensables de famille, auront droit
 
 « Dans le mois de cette notification, appel peut être interjeté, tant par le demandeur que par le préfet du département.
 
-[p. 281]
-
 « Cet appel est motivé.
 
 « Il est porté devant le tribunal civil de l'arrondissement, qui statue en chambre du conseil, sur pièces et sans frais, l'intimé ayant été appelé à fournir une réponse écrite aux motifs invoqués dans l'acte d'appel qui lui aura été notifié.
@@ -3708,8 +2919,6 @@ pour le service, les devoirs de soutiens indispensables de famille, auront droit
 
 « Un règlement d'administration publique déterminera les conditions d'application et de procédure du présent article. »
 
-ARTICLE 13
-
 L'article 23 de la loi du 21 mars 1905 est remplacé par les dispositions suivantes :
 
 « Les jeunes gens admis à l'École spéciale militaire, à l'École du service de santé militaire et à l'École du service de santé de la marine entreront directement dans ces écoles pour y faire leurs deux années de service. Ils seront versés chaque année, pendant deux mois, dans un corps de troupes, à la date du 1er août, pour y servir, la première année, comme soldats, la deuxième année, comme sous-officiers et participer aux grandes manœuvres. Ces jeunes gens, en entrant à l'école, devront contracter un engagement de huit années.
@@ -3717,8 +2926,6 @@ L'article 23 de la loi du 21 mars 1905 est remplacé par les dispositions suivan
 « Les jeunes gens admis à l'École polytechnique entreront directement dans cette école pour y faire leurs deux années de service. Ils seront versés chaque année pendant deux mois dans un corps de troupes, à la date du 1er août, pour y servir, la première année, comme soldats, la deuxième, comme sous-officiers et participer aux grandes manœuvres.
 
 « Ceux d'entre eux qui ne seront pas classés dans les armées de terre ou de mer feront deux ans de service à leur sortie de l'école comme sous-lieutenants de réserve.
-
-[p. 282]
 
 « Les jeunes gens admis à l'École polytechnique devront contracter, lors de leur entrée à l'école, un engagement de huit années au service de l'État.
 
@@ -3730,13 +2937,9 @@ L'article 23 de la loi du 21 mars 1905 est remplacé par les dispositions suivan
 
 « Les jeunes gens admis après concours à l'École normale supérieure et à l'École forestière, à l'intérieur desquelles l'instruction militaire est organisée, devront contracter, lors de leur entrée à l'école, un engagement de huit années au service de l'État et seront assimilés aux élèves de l'École polytechnique. Ils seront donc versés, chacune des deux premières années, pendant deux mois, dans un corps de troupes, à la date du 1er août, pour y servir, la première année comme soldats, la deuxième comme sous-officiers, et participer aux grandes manœuvres. Ils feront deux ans de service à leur sortie de l'école comme sous-lieutenants de réserve. »
 
-ARTICLE 14
-
 L'article 24 de la loi du 21 mars 1905 est remplacé par les dispositions suivantes :
 
 « Chaque année, au bout de six mois de service, entre les soldats incorporés, appelés ou engagés, un concours est ouvert pour l'admission aux écoles militaires d'infanterie,
-
-[p. 283]
 
 de cavalerie, d'artillerie, du génie et d'administration. Après un an de service à la caserne, les candidats admis entrent aux écoles. La durée des études y est d'un an. A leur sortie les élèves sont nommés aspirants. Ils accompliront le dernier semestre de leur troisième année de service comme sous-lieutenants de réserve.
 
@@ -3748,8 +2951,6 @@ de cavalerie, d'artillerie, du génie et d'administration. Après un an de servi
 
 « En aucun cas, le nombre des officiers de réserve provenant des sous-officiers de réserve des corps de troupes, ne pourra être inférieur au tiers des vacances annuelles. »
 
-ARTICLE 15
-
 L'article 25 de la loi du 21 mars 1905 est remplacé par les dispositions suivantes :
 
 « Les docteurs ou les étudiants en médecine ou en pharmacie munis de douze inscriptions qui ont subi avec succès, à la fin de leur première année de service, l'examen de médecin ou de pharmacien auxiliaire, peuvent être nommés à cet emploi et accomplissent leurs deuxième et troisième années de service comme médecins ou pharmaciens auxiliaires.
@@ -3758,31 +2959,21 @@ L'article 25 de la loi du 21 mars 1905 est remplacé par les dispositions suivan
 
 « Les étudiants en médecine, en pharmacie et les élèves
 
-[p. 284]
-
 vétérinaires pourront être autorisés, après une première année de service, à demander des sursis pour achever leurs études.
 
 « Ils seront ensuite appelés pour terminer leurs deux années de service, qu'ils accompliront comme médecins, pharmaciens ou vétérinaires auxiliaires. S'ils ont leur diplôme de docteur en médecine, de pharmacien ou de vétérinaire, ils pourront accomplir le dernier semestre de leur troisième année de service comme médecin ou pharmacien aide-major de réserve ou aide-vétérinaire.
 
 « Les sursis ne pourront être accordés à ces étudiants que jusqu'à l'âge de vingt-sept ans révolus. »
 
-ARTICLE 16
-
 L'article 26 de la loi du 21 mars 1905 est remplacé par la disposition suivante :
 
 « Les élèves des écoles normales et les instituteurs seront, pendant leur présence sous les drapeaux, astreints à un séjour minimum de trois mois à l'École normale de gymnastique. »
 
-ARTICLE 17
-
 Les limites d'âge prévues par les lois, décrets et arrêtés pour l'admission aux concours ou emplois de l'État, des départements et des communes sont reculées d'un an pour les jeunes gens ayant accompli trois années de service militaire. Elles sont abaissées d'un an par année de service militaire non accomplie. Toute année pendant laquelle il a été fait quatre mois de service compte pour une année de service.
-
-ARTICLE 18
 
 L'article 32 de la loi du 21 mars 1905 est remplacé par les dispositions suivantes :
 
 « Tous les hommes reconnus aptes au service militaire sont tenus d'accomplir effectivement la même durée de service.
-
-[p. 285]
 
 « Tout Français reconnu propre au service militaire fait partie successivement :
 
@@ -3796,25 +2987,17 @@ L'article 32 de la loi du 21 mars 1905 est remplacé par les dispositions suivan
 
 « Le service militaire est réglé par classe. L'armée active comprend, indépendamment des hommes qui ne proviennent pas des appelés, tous les jeunes gens déclarés propres au service militaire armé et auxiliaire et faisant partie des trois derniers contingents incorporés. »
 
-ARTICLE 19
-
 Le sixième paragraphe de l'article 33 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Dans le cas où les circonstances paraîtront l'exiger, le Ministre de la Guerre et le Ministre de la Marine sont autorisés à conserver temporairement sous les drapeaux la classe qui a terminé sa troisième année de service. Notification de cette décision sera faite aux Chambres dans le plus bref délai possible. »
-
-ARTICLE 20
 
 L'article 35 de la loi du 21 mars 1905 est complété comme suit :
 
 « Les jeunes gens appelés sous les drapeaux pour y accomplir la durée légale du service sont classés dans les différents corps de troupes suivant les règles fixées par le Ministre de la Guerre pour l'incorporation annuelle du contingent. Aucun d'eux ne peut être l'objet d'une affectation spéciale qui ne serait pas conforme à ces règles.
 
-ARTICLE 21
-
 L'article 38 de la loi du 21 mars 1905 est remplacé par les dispositions suivantes :
 
 « Les militaires engagés ou appelés sous les drapeaux au titre des contingents annuels, accomplissant la durée
-
-[p. 286]
 
 légale du service, pourront, en dehors des dimanches et jours fériés, obtenir des congés ou permissions jusqu'à concurrence d'un total de cent vingt jours, au cours de leurs trois années de service. En dehors des périodes de fêtes légales, le nombre des hommes simultanément absents ne dépassera pas, dans chaque unité, 10 o/o de l'effectif fixé par la loi des cadres des différentes armes ou services.
 
@@ -3834,33 +3017,21 @@ légale du service, pourront, en dehors des dimanches et jours fériés, obtenir
 
 « Les militaires servant aux colonies ou dans les pays de protectorat, auxquels les nécessités de service ou le défaut de ressources n'auront pas permis de profiter de tout ou partie des 120 jours de permission, pourront en bénéficier en une seule fois immédiatement avant leur libération.
 
-[p. 287]
-
-ARTICLE 22
-
 L'article 39 de la loi du 21 mars 1905 est complété par le paragraphe suivant :
 
 « Néanmoins, ceux des militaires dont la conduite aura été satisfaisante depuis leurs punitions pourront bénéficier d'une réduction partielle ou totale, après comparution devant un conseil de discipline régimentaire dont la composition sera réglée par décret. »
-
-ARTICLE 23
 
 Le treizième paragraphe de l'article 41 de la loi du 21 mars 1905, relatif à la revue d'appel des hommes de la réserve de l'armée territoriale, est complété par la disposition suivante :
 
 « La décision ministérielle qui prescrit cette revue doit être motivée et spéciale aux unités ou fractions d'unités qu'il est utile de convoquer. »
 
-ARTICLE 24
-
 L'article 41 de la loi du 21 mars 1905 est complété par la disposition suivante :
 
 « Indépendamment de la période d'instruction à laquelle ils sont astreints tous les deux ans, les officiers de complément peuvent accomplir, chacune des autres années, une période de quinze jours avec solde. »
 
-ARTICLE 25
-
 Les trois derniers paragraphes de l'article 50 de la loi du 21 mars 1905, modifiés par la loi du 11 mars 1913, sont remplacés et complétés par les dispositions suivantes :
 
 « Tous les ans, les jeunes gens d'au moins dix-huit ans, remplissant les conditions d'aptitude physique et pourvus du certificat d'aptitude militaire institué par la loi du 8 avril 1905, seront admis à contracter, au moment de l'incorporation de la classe, dans le corps de leur choix, et
-
-[p. 288]
 
 jusqu'à concurrence du nombre fixé par le Ministre pour chaque corps, un engagement spécial de trois ans, dit de devancement d'appel.
 
@@ -3874,15 +3045,11 @@ jusqu'à concurrence du nombre fixé par le Ministre pour chaque corps, un engag
 
 « Les jeunes gens visés à l'alinéa précédent qui, dans les six mois qui suivront leur libération, n'auront pas justifié de leur établissement effectif outre-mer, ceux qui, au cours
 
-[p. 289]
-
 de leur délai quinquennal, séjourneront plus de trois mois en France dans le courant de la même année, et ceux qui rentreront en France définitivement avant l'expiration du délai quinquennal seront tenus d'accomplir six mois de service supplémentaires.
 
 « Les mêmes facilités d'engagement par devancement d'appel sont accordées aux jeunes gens nés ou déjà fixés à l'étranger. Les certificats prévus n'ont, en ce cas, qu'à être envoyés pendant un nombre d'années suffisant à parfaire une période quinquennale de résidence fixe à l'étranger en tenant compte du nombre des années qu'ils y auraient passées antérieurement à leur engagement.
 
 « L'affectation aux divers corps de troupe des jeunes gens admis à contracter un engagement dit de devancement d'appel sera faite par les bureaux de recrutement. »
-
-ARTICLE 26
 
 L'article 51 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
@@ -3892,15 +3059,9 @@ L'article 51 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Les jeunes gens qui contractent un engagement volontaire de quatre ou cinq ans ont le droit de choisir leur arme et leur corps, sous réserve des conditions d'aptitude physique exigées pour cette arme. Ces engagements de quatre ou cinq ans sont admis à des dates fixées par le Ministre de la Guerre. »
 
-[p. 290]
-
-ARTICLE 27
-
 Le dernier paragraphe de l'article 52 de la loi du 21 mars 1905 est modifié ainsi qu'il suit :
 
 « Le temps ainsi passé sous les drapeaux sera, pour ces engagés, déduit des trois années de service actif. »
-
-ARTICLE 28
 
 Les 1er, 2e et 4e paragraphes de l'article 54 et le 1er paragraphe de l'article 55 de la loi du 21 mars 1905 sont modifiés par les dispositions suivantes :
 
@@ -3920,15 +3081,9 @@ Les 1er, 2e et 4e paragraphes de l'article 54 et le 1er paragraphe de l'article 
 
 « La durée maxima des rengagements successifs que
 
-[p. 291]
-
 peuvent contracter les militaires ayant plus de quinze ans de service est fixée à deux années ; l'âge minimum auquel ils sont rayés des cadres est de cinquante ans, à l'exception des militaires occupant certains emplois sédentaires fixés par le Ministre de la Guerre, et qui peuvent être maintenus jusqu'à soixante ans. Les militaires de la gendarmerie pourront être maintenus jusqu'à l'âge de cinquante-cinq ans. »
 
-ARTICLE 29
-
 L'article 58 de la loi du 21 mars 1905 est supprimé.
-
-ARTICLE 30
 
 Le deuxième paragraphe de l'article 60 de la loi du 21 mars 1905 est remplacé par la disposition suivante :
 
@@ -3940,15 +3095,11 @@ Le deuxième paragraphe de l'article 60 de la loi du 21 mars 1905 est remplacé 
 
 « 3° Autres troupes et services de l'armée métropolitaine. »
 
-ARTICLE 31
-
 Les six premiers paragraphes de l'article 61 de la loi du 21 mars 1905, modifiée par la loi du 10 juillet 1907, sont remplacés par les dispositions suivantes :
 
 « Tout militaire des troupes métropolitaines qui contracte un engagement ou rengagement de manière à porter son service à quatre ou cinq années a droit à une prime.
 
 « Les militaires des troupes coloniales et de certains corps métropolitains d'Afrique désignés par le Ministre de la Guerre, y compris ceux ayant contracté un engagement dans les conditions prévues au deuxième alinéa de l'article 51 de la loi du 21 mars 1905, ont droit à une prime à partir
-
-[p. 292]
 
 du commencement de leur quatrième année de service jusqu'à la dixième inclusivement.
 
@@ -3960,21 +3111,15 @@ du commencement de leur quatrième année de service jusqu'à la dixième inclus
 
 « Le Ministre de la Guerre fait connaître annuellement, à la date du 1er janvier, les tarifs des primes des sous-officiers, caporaux, brigadiers et soldats dans les différents corps. »
 
-ARTICLE 32
-
 L'article 64 de la loi du 21 mars 1905 est modifié comme suit :
 
 « Les militaires ayant accompli au moins quatre années de service ou une période de séjour aux colonies sont dispensés de la première des périodes d'exercices de la réserve.
 
 « Ceux ayant accompli au moins cinq ans de service sont dispensés des deux périodes d'exercices de la réserve. »
 
-ARTICLE 33
-
 L'article 65, 9e paragraphe, de la loi du 21 mars 1905, est modifié comme suit :
 
 « Les sous-officiers de toutes armes qui, après avoir servi cinq ans au moins au delà de la durée légale, seraient réformés avant d'avoir acquis des droits à la pension proportionnelle, toucheront pendant un temps égal à la moitié de la durée de leurs services effectifs, une solde de
-
-[p. 293]
 
 réforme égale au montant de la pension proportionnelle de leur grade. »
 
@@ -3984,19 +3129,13 @@ Ce même article est complété par les paragraphes suivants :
 
 « Il sera procédé, dans des conditions analogues, par une loi spéciale, à l'attribution de pensions ou de secours à la veuve ou aux orphelins des anciens militaires titulaires d'une pension proportionnelle, mais n'étant pas pourvus d'un emploi de l'État. »
 
-ARTICLE 34
-
 Le deuxième paragraphe de l'article 69 de la loi du 21 mars 1905, modifié par la loi du 10 juillet 1907, est remplacé par les dispositions suivantes :
 
 « Les emplois désignés au tableau F également annexé à la présente loi sont réservés, dans les mêmes conditions, aux sous-officiers, brigadiers, caporaux de toutes armes qui ont accompli au moins quatre ans de service, et aux simples soldats ayant accompli au moins cinq ans de service dans la cavalerie ou l'artillerie des divisions de cavalerie. Un certain nombre d'emplois de ce dernier tableau seront réservés aux militaires de tous grades de l'armée coloniale ayant quinze années de service, dont dix au moins dans l'armée coloniale, et aux militaires de tous grades de certaines unités métropolitaines d'Afrique désignées par le Ministre, ayant accompli quinze années de
 
-[p. 294]
-
 service dont dix au moins dans des corps ; ces militaires ont également droit aux autres emplois du même tableau. »
 
 Les 4e et 5e paragraphes de l'article 69 de la loi du 21 mars 1905 sont supprimés.
-
-ARTICLE 35
 
 Les emplois de facteurs adultes des télégraphes, à Paris et dans les départements, sont réservés en totalité aux jeunes facteurs arrivés à leur majorité, pour permettre leur titularisation.
 
@@ -4006,47 +3145,27 @@ Les emplois de facteurs adultes des télégraphes, à Paris et dans les départe
 
 Le tableau G annexé à la loi du 21 mars 1905 est en outre modifié comme suit :
 
-*Administration centrale.*
-
-Personnel subalterne permanent (autre que les gardiens de bureau) . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . . 75 o/o
-
-ARTICLE 36
-
 L'article 71 de la loi du 21 mars 1905 est supprimé.
-
-ARTICLE 37
 
 L'article 77 de la loi du 21 mars 1905 est complété par le paragraphe suivant :
 
 « Les militaires libérés après quinze ans de service dans les corps métropolitains d'Afrique désignés par le Ministre de la Guerre auront droit aux mêmes avantages que les
 
-[p. 295]
-
 militaires des troupes coloniales en ce qui concerne les emplois réservés visés au 2e paragraphe de l'article 69 de la loi du 21 mars 1905 et les concessions visées par le présent article. »
-
-ARTICLE 38
 
 Le quatrième paragraphe de l'article 90 de la loi du 21 mars 1905 est remplacé par la disposition suivante :
 
 « En cas de mobilisation générale, les hommes valides qui ont terminé leurs vingt-huit ans de service sont incorporés avec la réserve de l'armée territoriale, sans cependant pouvoir être appelés à servir hors du territoire de la colonie où ils résident. »
 
-ARTICLE 39
-
 L'article 94 de la loi du 21 mars 1905 est complété par la disposition suivante :
 
 « Une loi, qui devra être promulguée dans un délai maximum d'un an après la promulgation de la présente loi, déterminera le nombre supplémentaire des médailles militaires à mettre à la disposition du Ministre de la Guerre et la répartition des médailles entre les divers corps et armes. »
-
-ARTICLE 40
 
 Sont supprimés du tableau E les emplois de chefs de brigade de gendarmerie et du tableau G les emplois de gendarme à pied et à cheval.
 
 *Dispositions transitoires et particulières*
 
-ARTICLE 41
-
 La présente loi n'est pas applicable aux appelés appartenant aux classes de 1910, 1911 et 1912, qui demeurent régies par la loi du 21 mars 1905.
-
-[p. 296]
 
 Toutefois, les dispositions de l'article 18 relatives à la nouvelle durée du service dans les réserves seront appliquées aux hommes de toutes les classes, appelés ou recensés en vertu des lois antérieures, libérés ou non du service militaire actif, à l'exception des hommes actuellement dégagés par leur âge de toute obligation militaire.
 
@@ -4064,19 +3183,11 @@ Sont et demeurent en vigueur les dispositions de la loi du 21 mars 1905 qui ne s
 
 Des décrets détermineront les mesures d'exécution de la présente loi.
 
-ARTICLE 42
-
 La disposition du septième paragraphe de l'article 13 de la présente loi relatif au concours d'admission à l'École
-
-[p. 297]
 
 spéciale militaire ou à l'École polytechnique ne sera applicable que cinq ans après la promulgation de la présente loi.
 
-ARTICLE 43
-
 Par mesure transitoire, un sursis d'office est accordé aux jeunes gens de la classe de 1913 qui n'auront pas répondu à l'appel de leur classe, lorsque ces jeunes gens seront domiciliés à l'étranger.
-
-ARTICLE 44
 
 Sont autorisés, du 15 août au 15 novembre 1913, dans les limites fixées par le Ministre :
 
@@ -4086,13 +3197,7 @@ Sont autorisés, du 15 août au 15 novembre 1913, dans les limites fixées par l
 
 3° Dans les mêmes conditions de durée, de haute paye et de prime, — mais la prime étant payée au jour du rengagement, — le rengagement des soldats ayant accompli leur service militaire et obtenu, à leur libération, le certificat de bonne conduite, n'ayant encouru aucune condamnation et ne dépassant pas 26 ans au 31 décembre de l'année de leur engagement.
 
-ARTICLE 45
-
 Les casernes nouvelles et les casernes anciennes, après achèvement de leurs travaux d'aménagement et de réparations, ne pourront être utilisées qu'après avoir été reçues et déclarées en état de salubrité nécessaire et suffisant par le Service de santé.
-
-[p. 298]
-
-ARTICLE 46
 
 Les Français ou naturalisés Français nés à l'étranger hors d'Europe ou des pays limitrophes de la Méditerranée et y résidant peuvent être admis à bénéficier des dispositions concernant les Français résidant dans les colonies ou pays de protectorat visés à l'article 90 de la loi du 21 mars 1905.
 
@@ -4105,8 +3210,6 @@ Les jeunes gens visés au présent article doivent, en cas de mobilisation, rejo
 S'ils revenaient en France avant leur passage dans l'armée territoriale, ils devraient accomplir ou compléter dans un corps de la métropole le temps de service dans l'armée active prévu par l'article 18, sans toutefois pouvoir être retenus sous les drapeaux au delà de la date où leur classe d'origine passe dans l'armée territoriale.
 
 Pendant les périodes de résidence obligatoire à l'étranger prévues par les dispositions du présent article, les intéressés sont admis à faire en France, chaque année, des séjours de trois mois.
-
-ARTICLE 47
 
 Dans le délai de six mois à partir de la promulgation de la présente loi, le Gouvernement présentera un projet de loi réglant les conditions de recrutement des indigènes en Algérie, aux colonies et dans les pays de protectorat.
 

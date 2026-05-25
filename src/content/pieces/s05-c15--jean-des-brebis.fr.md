@@ -7,59 +7,11 @@ author: emile-moselly
 isAvertissement: false
 wordCount: 51701
 ---
-
-POUR LE PREMIER MAI DE LA CINQUIÈME SÉRIE
-ÉMILE MOSELLY
 Jean des Brebi
-OÙ LE LIVRE DE LA MISÈRE .
 156309
-Aiabil , 2,0
-CAHIERS DE LA QUINZAINE .
 paraissant vingt fois par an
 
-PARIS
-
 8, rue de la Sorbonne, au rez-de-chaussée
-
-ORNE A VOB RUE Hd ANA ARE LE ÉTEN VA AA ARE Se A ENPE UE
-RARE TAN ‘ à Mae) Fe Te
-Re COURS
-ï MA , LT ! : 2 VIRE 8
-M HET ù \ AE Pt de LL
-l | ! J RSR 2. TAN
-? } RAT Fete: 167 DIRE
-
-fier la NE EEE Le À? ” < f' à + NL 2 N + à. à 7 de
-ur à 14% AR ERNESS > LAGEE L; NL L:
-y AE 2) ï C' +104 L - i L
-[4 DA J , # CI L F à r * Ù x 11
-MT he Û , “UE 2e Les : l s } + 2
-RAP, } ] ‘ * F f
-+ FINNENEESS { ' ,
-Nr < OUPS = ATLUS PE 14 \ FA
-FOR FREE ; (l ; n: a Le
-De ls Ù « *
-fi Eu È Et N f Le
-SIN \ : } * À 1 bi
-LA # £ : ‘ \
-
-SET & N 4
-EN ÿ f ,
-10 FA È ‘
-Ro 0 }
-
-.1'0 ÿ
-
-GEL DS 4 L V L } n
-
-PRE à Û x #
-
-ul: li
-
-1. L Fo
-
-ER LR RE AR A re M
-a
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement.
 
@@ -82,86 +34,22 @@ premières séries des cahiers, il suffit d'envoyer dès
 aujourd'hui à M. André Bourgeois le nom et l'adresse
 de la personne à qui on s'intéresse; avertir en même
 temps cette personne ; elle recevra en octobre notre
-catalogue analytique sommaire.
-
-t A PP NOR LAS CR à VPN rt  RNE AEAE À
-D CA LT RAGE SR OR eu Eten US VENde SR
-DÉLAI LE SUCER NME È 14 \ ï PRES DU.
-IR ETATS h ; l'E { i QUEUE ; 4) re
-OT LU MA TVA 12m ; 15
-: PONT JA É d ui nn
-LI (L. ? k 6 PR \
-! ROULE » or Û are
-‘E (4 k | “ ! . AE
-Den 5 É k 7
-Fa ) ï À F sl
-, ati | k ' h
-. OU À
-EL L i TU:
-Lo LE | nl F ï "1
-Du LR
-CN Ur "1 î à ù ; : \ 0 En nee
 
 AAA Se EL LR A on de VAL ce
 
 a NAN Det LE AE TRTANS NO A SES CRE
 
-RS EAN TE A be RAP 0e SONT PRE CP M SSP ET EE TORRES
-
-PAU SAS AE LÉ MALE LE AD cab NA A UN ET À U4 AA ST A RER
-
 ue 4 “és HIVER, VS Lab RE COMQN a VERRA IVE EE 2 Fe STE Vers k
-
-M nu EU MERE
 
 s fr, { de YU TS à A Au M LE: |
 
 VE LAIE PURE Ÿ:- ap L PQ 0 ar |
 
-x. h à M CARLA 1 ti ‘ (A 11 LU MOQMEU. à
-an . A ñ 4 Co { LEE NO REES
-
-4 TES UT AN NES k ; FE AN NN
-
-LC à AE 6 MIN ANR
-
 NT PA OU let
 
-0e at ‘+: 10800
-
-Aa À
-
-"| V4 ù 1 |
-D erliore dela misère “19
-1 . J' r 1 Fe
-7 | ï
-
-10 | Per
-
-11 \ à 4 |
-"À Li l a
-ë h * Li
-
-RTL AT
 SNS AS AR at ON RE Le
-3 FE CU ARR EE A PS RE NRA LIDS 2 ARR PA BL Le 2
-3}: PANIER RUE D CU NN GR EE EAN EAN QE OC
 MS Le Sn RTE ASP 2 mL ge RARE A a Ho
-‘RIRES Re A NE RAIN ERP UE RES
-1 HR CNRS te RE TPE RNA CA A PT AN SAME RENNES LYS CERN
-LEVANT RE TUE NS a RACE AO ee AA
 al ‘10 PRES LOS APT DT SACEUl nd CE RAT ETES PAR TÈNE FES :
-dc A ei D VAR TIR EAN
-% en Au MENT ENS Û 4 A EE ORNE TOONR ON7 LÉRNERNEENNIEEP SES
-ne Si STEP Fi ML NE Me De - | TA AERES WE
-NN É "J : É Lx) UNERNRREENANES
-“FLORMNNE | Ta D) à 2 0e RETRNNNEREERSS
-!:108 + SES x A RTE CHAINE
-1 M ; Pie À A AT Bone e 1 RUN \É8 RER
-"a 1 V AN p #3 th pr A ÿ (ARS ji
-à da PALIER à : AU VE A0 1: MINES
-"04 1 À. LR HA LAS j NA TE à AU PU CU *. is Ve.
-EU ur 41 NQUNAS NES
 
 C'est à toi, Jean des Brebis, que je veux dédier ces
 quelques pages, à toi l'être vivant de chair et d'os que
@@ -180,83 +68,18 @@ du manteau de la cheminée se mouille d'un suintement
 humide. Y a pas plus grand signe de pluie, comme tu
 te plais à le dire.
 
-dE LI PA M AA Ad NEC ER
-RO Poe VNP A ay FU sen ATe 1 EEE
-9 FATHRRS AE RE NACRE ANSE ECO PP TERME USER FLE RTE À
-TRISTE MAÉ: PAR ï 22 ET NU MARÉES.
-14 L RU CRE I RUES RS PE SAR ENT AS CEA
-0 M ET
-a. PPS + 1 Sa en CT ‘ 4 À LES, HR CEE
-À (PTE AD e \ Dos UT UN
-qi TR RE
-“ h \ VUE LE
-{ j ; 4 A Mb 12 eee
-4. À dt RER LACS
-- | É 1e TN MAIN ENS ARE AL
-DE: 4 À A1 MES RRNRSS
-
-N DANS AELAS LEE LATE Fe DE Gr PURE ONU
 A a « à un die js ap M FES RS LRO RUN:
 et FA VU pis x MOD RER UT
-FF ME PRES : ë f A UNE OT
-FETE 1 Ya PAR
-FANS À “ : L ‘ Î F7 "210
-4/00 Roi : $ nf [A k ue
-4 Ë / : Ni
-FA Lt ñ Û 1] f” EUR
-%A APTE 1 Ter
-nd | À,
 | JEAN DES BREBIS
-“ e a LE
-: UR RE EUTSES
 # gi . ÿ LI 5 }
-Er EU,
-LL à 4 FA È
-EX sf W Hu i
-PARUS 1 ' H
-EAU à | - As
 | RER - 15 0e
-PUF D:
-a { no
-Lt 0 ; A
-WECar « o
-"VHS : Ô A
-LR ù 40
-BA A L \\ \,, 20
 
-nr. }; ne
-er !. 18 At.
-sé b LE s RO:
-À L É "4
-
-AP LOU PRET EM EPA NOR NTI RER RE RENTE
-TT y PARA, LS CES PROTESTANT UE ECS PNR ;
-4 ie TIRE nt co k F4 PS M UE RTS
-CNT En) DEEE TNT HN OS TEA ANT ne Fo ORNE Ne
 at LI NÉS PAS En À TANT F4 il NU EE COMPRENNE
 FAR AE TORONTO PRO UN RME He ur RAR LES MAX ue POUR ENS
 ra Eu ARR Le 1er ES SPPAIELE ENNUS DOUANES DRPRAE à MOTTE 1 HER ÿ
-LEE 4 “ee ñ Fe Lu GPA ER ra RSR SRE
-NN
-AVE : “ | UN AIR LCR PTE LED Of ASE T ANR
 es Draue FN Lei RESTAURANT UN TES ET, Ve
-E > T4 AE CET Ha “4 QE ASE L TT À S'ORNERRR
 M, Leur Ÿ Aer + (et D'RMRHEN AU E CL AP TENTE
-Mn . DATA RRELLRS ee TEL TEE li: ! NN
-M PCNENS Len PR ME IS SENTE AAA: :
-MTIEUON Li \ € DES à i UN RE PE JE 5 21 AS EE FSCHE 11)
-RENTE ; , AUX F ÿ Ne FÉES LT :
 | PIE A
-As « , } È HER M 1 TE
-po ' [ AL DR ANNEE PEN
-14 à RAC AO AL
-À 1 ft, rh 4 Los sin ei 1 pa ARLON TT 10
-Lt: Ë . MUNIE 1021) QN VRAIES
-F ‘ Dents à 0 RON NAN N
-
-L : L L ÿ TOUL" ÿ ar DTA
-
-JEAN DES BREBIS
 
 Cette année-là, la fête du Comice agricole devait se
 célébrer à Sexey-aux-Groseilles et le paisible village
@@ -265,7 +88,6 @@ célébrer à Sexey-aux-Groseilles et le paisible village
 C'était un grand honneur pour le petit bourg, joliment situé au bord de la Meuse claire, au bas d'un
 coteau planté de vignes, parmi les prairies dont le
 velours tendre s'étendait sans un pli au fond de la
-vallée.
 
 Il y ayait plus de trente ans que le village ne s'était
 trouvé à pareille fête; à peine si les gens avaient gardé
@@ -284,9 +106,6 @@ bras sur la peau d'âne, dont le ronflement sonore faisait fuir les volailles é
 caution d'assujettir ses lunettes sur son nez, il tirait un
 papier blanc plié sous son baudrier de cuir, et le
 
-II
-
-Ed PASS TONNES
 le livre de la misère
 déployant lentement, il se mettait à lire, d'une voix
 forte, un peu déroutée par la splendeur insolite de
@@ -323,8 +142,6 @@ une pluie d'ondes sonores sur les petits toits de tuile
 brune rongés de mousses, envahis de joubarbes et
 d'herbes sauvages. Les sons tombaient dans les rues
 
-JEAN DES BREBIS
-
 claires, traversaient les ruelles bordées de sureaux et
 d'osiers vivaces, prenaient leur vol à travers les campagnes ensoleillées, où des bouquets d'arbres dormaient dans la lumière argentée et fine, comme aiguisée
 par le vent léger. Et quand les notes, joyeuses, arrivaient au bord de la rivière, on eût dit qu'elles recevaient une force nouvelle, et elles s'en allaient au loin,
@@ -357,14 +174,12 @@ le livre de la misère
 cains, les rouges comme on dit là-bas, s'attelaient à la
 besogne avec la même ardeur que les calotins et les
 mangeurs de bon Dieu, car la cérémonie qui se préparait était chose d'importance et chacun avait à cœur
-d'être prêt.
 
 1 Les fumiers une fois enlevés, on combla les trous
 béants dans la terre fangeuse, noircie par les suintements du purin, avec des brassées de roseaux que les
 femmes avaient coupés dans les mares et le long des
 haies. Cela faisait devant chaque maison un tapis de
 verdure, d'où montaient des odeurs fraîches et péné-
-trantes.
 
 Des chariots revenaient du bois, lourdement chargés
 de ramures verdoyantes. Ils descendaient lentement la
@@ -387,13 +202,10 @@ Par place des drapeaux étaient déployés aux fenêtres,
 façades lézardées. Devant la mairie, au-dessus du
 porche d'entrée, une grande flamme bordée d'une
 
-se
-JEAN DES BREBIS
 lourde frange d'or balayait le vide des plis somptueux
 de sa soie bruissante.
 
 Mais celui qui avait le plus de succès, c'était bien le
-boulanger.
 
 Il avait imaginé de confectionner, avec des papiers
 rouges, blancs et bleus, une sorte de chaîne aux anneaux variés qui festonnait le toit de sa maison, retombaït sur les fenêtres, encadrait les portes d'une guirlande
@@ -426,7 +238,6 @@ le livre de la misère
 trée d'une cour, juste à l'endroit où la rue tournait
 pour déboucher dans la prairie, où devait avoir lieu le
 concours d'animaux gras et l'exposition d'instruments
-agricoles.
 
 Ce fut une consternation.
 
@@ -480,7 +291,6 @@ Une machine à battre ronflait dans la grange, emplissant la cour d'un vacarme a
 impalpables et dorés. Dans un coin des porcs grognaient et soulevaient de leurs groins la porte battante
 de leurs réduits; des odeurs fortes, qui prenaient à la
 gorge et qui piquaient les yeux, sortaient des étables
-chaudes.
 
 Le père Coliche s'avança au-devant des visiteurs.
 
@@ -509,7 +319,6 @@ Le maire l'entreprit doucement, cherchant à l'amadouer, à le rendre docile et 
 sais bien que l'ouvrage presse et que grain battu ne
 craint pas la souris, mais mes ordres sont des ordres,
 et, quand tout le monde obéit, vous feriez bien de vous
-conformer.
 
 La machine à battre s'était tue, et les gens de la
 ferme, tenant à la main des râteaux et des fourches,
@@ -533,12 +342,9 @@ aux champs. Et pis, c'est guère le temps de l'étendre,
 vu qu'y a pas plu depuis au moins trois semaines,
 et pour sûr qu'y fait bien trop desséchant pour ce
 travail. Pensez donc, du si bon fumier qui serait
-perdu!
 
 On voyait qu'il était buté, qu'il se cramponnaïit à son
 idée avec cette lenteur têtue et désespérante des paysans, comparable seulement à l'obstination muette des
-
-1e JEAN DES BREBIS
 
 4 animaux, à la patience des choses inorganiques, insensibles au vent, au soleil, à la pluie. Une lueur de malice
 s'alluma dans ses yeux jaunes.
@@ -575,9 +381,7 @@ tourné à demi vers le délinquant, se montrait tout prêt
 aiguë, affolante, que les paysans ont de la justice,
 battait en retraite, se faisait humble, résigné et coi,
 attendant le bon plaisir du maître et souverain de la
-commune.
 
-/
 le livre de la hore
 
 — C'est dit, Coliche, et que ça ne traîne pas. Je vais
@@ -598,7 +402,6 @@ Puis il se retourna vers ses journaliers :
 Et la machine à battre de nouveau fit entendre son
 ronflement sonore, dans l'ombre de l'immense grenier,
 traversé de rais de soleil, où flottaient des poussières
-lumineuses.
 
 Quatre gaillards robustes vinrent avec des pelles et
 des fourches prendre possession du fumier. Ils grimpè-
@@ -618,7 +421,6 @@ voir les derniers préparatifs. 3
 Un arc de triomphe était dressé devant la première
 maison du village, juste à l'endroit où les ceps de vigne
 
-; JEAN DES BREBIS
 commençaient à incliner au-dessus des petits murs
 | croulants leurs sarments flexibles garnis de vrilles.
 
@@ -639,7 +441,6 @@ reuse et imprévoyante. Immédiatement sous ses pieds,
 un cartouche se balançait dans le vide, orné par la
 plume de l'instituteur de lettres d'une fantaisie extravagante, et l'on pouvait lire ces mots à travers les arabesques d'une bâtarde terriblement compliquée :
 
-Honneur au Comice :
 Honneur à l'Industrie et au Commerce
 et à l'Agriculture!
 
@@ -677,12 +478,8 @@ pâles d'admiration et de surprise, figés devant l'architecture somptueuse dans
 A l'entrée de la grande prairie, près d'une mare
 bordée de saules ébranchés et de peupliers frémissants, on avait dressé une tribune de planches de
 sapin, qui exhalaient encore une odeur résineuse et
-pénétrante.
 
 Maintenant sur la route poudreuse où traînait encore
-
-TH LI CRE { ;
-JEAN DES BREBIS
 
 un reste de jour pâle, deux hommes s'avançaient: un
 vieux aux yeux rouges et saignants, aux prunelles usées
@@ -703,7 +500,6 @@ la route, tout blanc de poussière, et il y restait avec un 4
 air d'abandon et de stupeur, qui faisait de lui une
 loque, un haillon d'homme jeté là parmi les choses
 innommables qui pourrissent dans les fossés des
-grandes routes.
 
 : L'autre lui disait quelques mots pour lui redonner
 du courage.
@@ -758,10 +554,6 @@ détrempés, on n'avait pu désormais se le figurer dans
 une autre condition, et le nom lui était resté, un de
 ces sobriquets comme on en donne si facilement aux L
 
-2Â
-
-11 44 te
-JEAN DES BREBIS
 misérables à la campagne, et qui sont un peu infamanis.
 
 De fait, il pratiquait toutes sortes de métiers, n'ayant
@@ -790,11 +582,8 @@ malin et avisé, qu'il parlait fort et longtemps, les candidats le craignaient e
 
 Il n'avait pas peu contribué au succès du député
 Arsène Mitouret aux dernières élections... Et il en
-concevait quelque fierté.
 
 11 était donc un personnage à sa façon, et comme il
-
-Il
 
 le livre de la misère
 traînait à ses trousses un bon nombre de truands et de
@@ -830,7 +619,6 @@ tournait devant la flamme, avec un grand bruit de ferraille, supportant un chape
 rissolée et craquelée se dorait peu à peu à la chaleur
 du foyer: la graisse blonde coulait dans une lèchefrite
 
-JEAN DES BREBIS
 de fer blanc, aussi large qu'une bassine. — Et des
 odeurs de chairs cuites à point, bardées de lard, montaient, appétissantes, délicieuses, qui vous mettaient
 au ventre une sensation de faim âpre et cuisante et
@@ -908,7 +696,6 @@ Si je viens, c'est pas pour voler le pauvre monde.
 L'autre riait, clignait des yeux d'un air malin, à
 demi tourné vers l'assistance attablée dans l'autre
 
-JEAN DES BREBIS
 pièce, tandis que d'un va-et-vient machinal de sa
 main, il palpait les épaules de Jean des Brebis.
 
@@ -926,8 +713,6 @@ Mitouret. Vous êtes bien ensemble, tout vous deux.
 Quand donc qu'y va te faire donner une bonne place”?
 Avec ta jugeotte, t'aurais bonne mine dans le beau
 monde.
-
-Jean répondit, vexé :
 
 — Pour sûr que je le verrai et que j'y parlerai, vu
 que celui-là est un frère, et pas fier pour deux sous
@@ -947,14 +732,11 @@ Dans l'étendue de la voûte nocturne, seule vivait
 étrangement la palpitation des étoiles dont le poudroiement lumineux animait le velours sombre du ciel,
 et la Meuse, — qui n'était plus qu'une grande chose
 
-29 IL.
-
 le livre de la misère
 mouvante dans les ténèbres, — les reflétait une à une,
 comme jalouse de les emporter dans son eau, traînant
 à sa surface enténébrée, parmi les roseaux vibrants et
 les saules mystérieux, leur reflet d'argent qui se déformait, s'allongeait, se tordait comme un frisson de
-Ô métal.
 
 Dans le village tout dormait. Une porte s'ouvrit, laissant filtrer dans la nuit la trouée rouge d'une lampe,
 projetant sur le mur l'ombre gigantesque d'un homme
@@ -967,9 +749,6 @@ quatre soleils ! » Puis il referma sa porte.
 Et il n'y eut plus dans la nuit paisible que des bruits
 très doux, des claquements d'étoffes et des froissements
 de soie et de papier. C'étaient les lampions et les drapeaux que les souffles légers agitaient dans la haie de
-sapins doucement murmurante.
-
-II
 
 L'aube se leva dans un frisson nacré, versant sur les
 campagnes un flot de poésie et de tendresse. Le ciel
@@ -978,9 +757,6 @@ grande fleur mouillée de rosée. Des oisillons se mirent
 à gazouiller sur le bord des toits et les grands peupliers, caressés par un rayon de lumière naissante,
 se chuchotaïent dans le vent des choses mystérieuses
 et fraternelles.
-
-/ ‘
-JEAN DES BREBIS
 
 Dans la prairie, des cordes tendues indiquaient les
 emplacements marqués pour chaque exposition. Ici les
@@ -1005,7 +781,6 @@ pliants, disparaissant sous leurs chapeaux de paille, et
 d'un geste de la main, pareil au geste du semeur, ils
 faisaient pleuvoir l'asticot et le blé cuit sur les eaux
 claires, où des brumes ondoyaient avec une lenteur de
-sommeil.
 
 C'était une belle journée de septembre. II ferait terriblement chaud sur le coup de midi, quand les ombres
 courtes se ramasseraient au pied des grands arbres.
@@ -1030,7 +805,6 @@ loin derrière les bouquets d'arbres, puis s'approcher
 dans un tourbillon de poussière, projetant des cailloux
 sur leur passage, et faisant de larges embardées en
 travers de la route, au risque de descendre dans les
-fossés.
 
 Sur le devant, des hommes vêtus d'une blouse bleue
 luisante se tenaient assis sur des bottes de paille et
@@ -1048,9 +822,7 @@ tout un luxe de carrosserie neuve, étincelante au soleil;
 — et aussi le lourd tombereau où l'on rentre les
 pommes de terre, pareil avec ses lourdes chaînes et
 
-JEAN DES BREBIS
 l'attirail de ses ferrures monstrueuses à une voiture de
-barbare.
 
 Et de temps à autre arrivaient aussi des chariots
 remplis de paille, descendus des plateaux lorrains où
@@ -1073,7 +845,6 @@ Les deux hommes, le jeune et le vieux, sortirent de
 l'auberge et commencèrent leur promenade à travers
 les rues du village. Le vieux criait d'une voix grêle,
 dont le chantonnement trainait sur un ton de lente
-mélopée :
 
 — Avez-vous des chiffons, de la ferraille, des peaux
 de lapin à vendre?
@@ -1119,8 +890,6 @@ travail qui n'était pas payé encore. L'homme se dandinait gauchement, et porta
 — Faut pourtant que j'te règle mon compte.
 
 — Tout de même, dit Jean des Brebis.
-
-; JEAN DES BREBIS ï
 
 Et il ajouta poliment :
 
@@ -1191,21 +960,16 @@ l'immense clarté.
 — Point de bière, mon fi, point de ces saletés d'inventions qui vous mettent du feu dans l'estomac et le
 cuisant à la gorge, mais du bon vin de la vigne. Ça
 rafraîchit le sang des jeunes et ça donne de la force
-aux vieux.
 
 Ils commandèrent un litre de vin rouge, et quand les
 verres furent pleins, ils trinquèrent cérémonieusement.
 
-— A Ja tienne, Jean.
-
 — A la vôtre, mon père.
 
 Puis s'essuyant les lèvres du revers de la main, le
-vieux Matouillot conclut :
 
 — Ça vaut mieux qu'un coup d'pied dans le derrière.
 
-JEAN DES BREBIS
 ) Ils demandèrent au garçon un morceau de pain et
 quand Jean l'eut rompu en deux parts égales, ils le
 mangèrent silencieusement, à petites bouchées, ramassant du bout de leur doigt mouillé les miettes de pain
@@ -1240,10 +1004,6 @@ tant de tracas, une supposition; si par cas tu as
 quelque chose à lui demander, y t'enverra faire foutre,
 s'y n'a pu besoin de toi. Moi j'ai vu tant de méchancetés,
 que j'en sais plus le compte et je pourrais trop dire.
-
-II
-
-a | + ù NAN AR NES ANNEES
 
 le livre de la misère
 
@@ -1289,7 +1049,6 @@ des marmots qui soufllaient à tue-tête dans des trompettes.
 
 Le vieux Matouillot grattait le sol du bout de son|},
 
-JEAN DES BREBIS
 bâton, et la tête penchée, le regard perdu dans le vide,
 il semblait chercher des choses lointaines parmi les :
 brins d'herbe qu'il arrachaiït.
@@ -1360,7 +1119,6 @@ poulains qui tournaient autour d'elles, comiquement
 perchés sur leurs hautes jambes grêles. On attachait
 au frontail de celles qui avaient le prix, des flots de
 rubans rouges, qu'elles paraissaient secouer avec
-orgueil.
 
 Plus loin, dans les chènevières qui bordaient la praïirie, des charrues labouraient la terre.
 
@@ -1368,11 +1126,6 @@ Comme il n'avait pas plu depuis plusieurs semaines,
 le sol était très dur. Les garçons de labour pressaient
 de toutes leurs forces sur le manche de la charrue,
 
-4o
-
-it
-
-JEAN DES BREBIS
 tandis que les attelages de chevaux, superbes de vie et
 de mouvement, l'œil plein de lueurs et les naseaux
 pleins de feu, jetaient au vent le carillon des sonnailles
@@ -1384,11 +1137,8 @@ Un vieux qui conduisait un attelage de chevaux étiques
 soulevait un rire universel, parce qu'il grattait à
 peine la surface du sol. Un farceur fit remarquer
 qu'on pourrait à peine semer des fèves dans le sillon
-entr'ouvert.
 
 Mais ce qui les étonna surtout, ce fut l'exposition des
-
-__ produits agricoles.
 
 Des légumes géants étaient étalés sur des tables,
 choisis pour la majesté de leur taille et l'ampleur de leurs
@@ -1405,8 +1155,6 @@ et des clameurs de fête.
 Un éleveur exposait des lapins d'une grosseur insolite, dans une cage perfectionnée dont il énumérait les
 avantages aux curieux. Il y avait de petits râteliers
 garnis de foin et de carottes hachées, comme dans une
-
-4x
 
 le livre de la misère
 étable véritable pour le gros bétail. De l'eau claire
@@ -1435,7 +1183,6 @@ que je l'invite, pour sûr que tu ne refuserais pas.
 
 La tribune restait toujours vide et comme il devait
 s'y passer des choses importantes, elle attirait tous les
-regards.
 
 Déjà une armée de mitrons et de gâte-sauce, en
 tabliers et en toques blanches, tirait de longs chars à
@@ -1450,9 +1197,7 @@ devait manger des denrées diantrement bonnes, dans
 des plats aussi précieux. Des farceurs humaïient l'air
 au passage des mannes d'osier renfermant les vic-
 
-k JEAN DES BREBIS
 tuailles et se passaient la main sur le ventre d'un air
-goguenard.
 
 Cela surtout intriguait le père Matrouillot, ce festin
 à cent sous par tête. C'était pour lui une somme prodigieuse et il tracassait son fils pour savoir ce qu'on pouvait bien y manger.
@@ -1513,7 +1258,6 @@ jeune, qui portait beau, avec une belle barbe blonde
 qui enveloppait son visage d'un nuage doré. Le plastron
 largement échancré de son gilet laissait voir la chemise
 de lingerie fine magnifiquement barrée par un ruban
-tricolore.
 
 Si grand était son prestige, si majestueuse sa taille,
 si ferme son assurance, qu'il semblait qu'on ne voyait
@@ -1523,8 +1267,6 @@ Longtemps vétérinaire dans l'arrondissement, il avait
 une façon de soigner le bétail malade qui plaisait à tous
 les paysans. Familier et jovial, il entrait dans les étables en racontant des gaudrioles, en rassurant les pay-
 
-RSR
-JEAN DES BREBIS
 sans affolés à l'idée de catastrophes possibles, et
 comme il était habile, et qu'il se tirait à son honneur des
 cas graves, il leur donnait à tous l'impression d'un
@@ -1560,8 +1302,6 @@ se donner de grands coups de poing sur la poitrine, à la
 place du cœur. Dans ses discours toujours les mêmes,
 deux ou trois métaphores, des images d'une rhétorique
 
-45 LIT.
-
 le livre de la misère
 ampoulée, déclamatoire et vide, qui revenaient à tout
 bout de champ, lui tenaient lieu de pensée, de raison-
@@ -1578,8 +1318,6 @@ toutes ses forces, dressant sa taille difforme, et jetant en
 l'air son vieux feutre troué, ramassé dans le ruisseau,
 il cria de toutes ses forces :
 
-— Vive Mitouret! vive not' député!
-
 Le député sourit, se rengorgea et passa. |
 
 Le cortège gagnait les tribunes et les invités s'installaient à leurs places; Jean des Brebis profita du
@@ -1594,16 +1332,12 @@ visiblement décontenancé en frôlant les haïillons du
 pauvre hère. Ils formaient un assemblage si disparate,
 l'un tout dépenaillé, l'autre plein d'élégance, que des
 rires se levaient derrière eux qui firent froncer le
-sourcil au député.
 
 A quelques pas se tenait une riche veuve de la ville,
 à qui le député faisait la cour et qu'il devait épouser
 prochainement, madame Honorine Blanchon, une belle
 personne, dont la chevelure blonde enroulait ses lourdes
 
-3 er ;
-
-î JEAN DES BREBIS
 iorsades sous un grand chapeau de paille, fleuri de
 coquelicots rouges, dont la poitrine sculpturale était
 moulée dans un corsage de satin noir, garni de jais
@@ -1629,7 +1363,6 @@ tudes gouvernementales acquises au monde des travailleurs. |
 
 Puis on lut le palmarès; mais on n'écoutait pas, dans
 l'attente du morceau de résistance : le discours du
-député.
 
 Enfin IL s'avança sur le devant de l'estrade et tandis
 que les cuivres rugissaient une Marseillaise héroïque,
@@ -1640,8 +1373,6 @@ ramenant sur sa tête ses cheveux longs et cosmétiqués
 qui lui descendaiïent sur les yeux, comme pour rassembler l'essaim tumultueux de ses pensées.
 
 Une voix clama :
-
-— Vas-y, Arsène !
 
 Et toute l'assistance, tournée à la fois vers l'endroit
 d'où cela venait, aperçut Jean des Brebis juché à la
@@ -1662,11 +1393,8 @@ il le dressait fièrement sur sa hampe, ce drapeau imaginaire, qui était tout s
 embrasé, les travailleurs suivaient le vol de cet
 emblème glorieux, déployé à leurs yeux comme le
 vivant symbole des espérances enfin réalisées et des
-futures justices.
 
-Assise au premier rang, madame Honorine Blanchon
 roulait nerveusement ses gants, dans la paume de ses
-mains sèches, aux passages pathétiques.
 
 Le député s'était tu qu'on l'écoutait encore.
 
@@ -1676,12 +1404,9 @@ parut un siècle.
 Puis quand on eut compris qu'il ne parlerait plus, un
 tonnerre d'applaudissements s'écroula, immense, qui
 remplissait les prés, les eaux, l'horizon lumineux et
-calme.
 
 Et madame Honorine ferma les yeux, abîmée dans
 un spasme voluptueux et tendre, et quand elle les rouvrit, elle sourit doucement au grand homme qui galamment s'inclina.
-
-JEAN DES BREBIS
 
 Ce furent des minutes heureuses.
 
@@ -1692,7 +1417,6 @@ stridents déchiraient la ferveur populaire. Arsène Mitouret pâlit.
 A ses côtés, Jean des Brebis, tendant vers lui ses longs
 bras, plus laid, plus sale et plus difforme que jamais,
 voulait lui donner laccolade et consacrer son
-triomphe...
 
 Jean des Brebis, qui l'avait écouté avec émotion et
 recueillement, hochant la tête aux bons endroits et
@@ -1720,7 +1444,6 @@ la prairie une coulée d'or transparente et chaude et les
 
 le livre de la misère
 silhouettes trapues des grands bœufs paraissaient
-démesurément agrandies.
 
 Jean des Brebis, assis dans le fossé parmi des papiers
 graisseux, regardait sans pensée les allées et venues
@@ -1757,8 +1480,6 @@ qui vous secouait le bras jusqu'à l'épaule et vous
 apportait la sensation d'une étreinte loyale et franche.
 De temps à autre un paysan s'approchaïit de lui, et le
 
-JEAN DES BREBIS
-
 tirant à l'écart, il lui murmurait doucement d'un ton
 de pauvre honteux quelque demande de protection,
 d'emploi, d'exemption de service militaire pour ses fils.
@@ -1789,13 +1510,11 @@ dans le fossé.
 Parfois un promeneur s'arrêtait devant eux, et contemplant ces deux formes d'êtres, confondant leurs
 baïllons avec la couleur grisatre de la terre, il blaguait
 
-d
 le livre de la misère |
 Jean des Brebis, avec cette grosse ironie lourde des
 simples, qui fait tant de mal:
 
 — Eh bien, Jean-Jean, t'as fait connaissance avec la
-grosse caisse.
 
 Le soir tomba, versant sur la campagne une sérénité
 
@@ -1816,118 +1535,34 @@ sourdre en lui des rancunes formidables, puissantes à
 soulever un monde.
 
 Arsène Mitouret vient d'être battu au scrutin de
-ballottage.
 
-MAUe LUE fs PAST y Pret Or d + ' r y :
-?_ "ATP ARE pe u
-He 3 4 fs : à a
-A ‘(EI ne L
-4 À :
-M f k
-st "
-+40
-" Du ;
-DU, À L Ÿ A
 CITE l'ud
-LA
-\
 |
-; À
-4 s
-“
-:
-18]
-{!
-put:
-St LL
-4 L
 | NU
 
 LEA ERA VA 1 de Li A" ee EMEA EEE RE EE ARR NE NS
-LEA HONDA ASIN PE EU CR CAPE A AREA CE pa SAN PA RE A AE
-
-LAND CPR Sean DS AO Er ENT EAN UAN TE PES GE nl PS LR AE LAURE A FALSE ESS
-
-A PNR PRIS RULES MEN ER Et SNNN A ALT RATE PI NN EAU {i ALU LRU fe PA D TN
 
 Ne NE Lane AR AAA NU EU SE dl “hit
 
-A QU TA RUN 1 SR TN NEC ANT PER FA VAR ARS EN ES
-
 1 ANNEE DA N AA DANS SN CEE (TR te (Re oo
-
-LUE 12720 * F4 Fra MEN LR TUNNEL DARARRTOALART MES Le NAS PE) THERE
-
-AA A0 Ag LINE NE AE ARE fi 1 ANR DNENSNANIRE
 
 2 ARS EN een en MEN Pi NI
 
 A PA NPA EEE en te VO TN OU FA BLENNNS ee
-1 1 AE A NA EE AC HOT | IE KES TAN 1 RU EE es L'UA
 
-i y À ÉKS NRRETR ASE M a MS lp
-RAS LOS are AE AE Re CM NA AYANT
 se. NS ren CUT OR TES A CUASE À Ve PPT
-j NTM TL Le FAQ DER art CAE: 4e | CEE
-die An He, | } è PORES
 | »: TRES À CRUE oui
-‘10 | “1
-JL RM
-“MN EN d El
 k, ne be‘
 ht ‘on
-y +44 ; : Le \
-RATER ù FU
-Us h ah
-2€ e # 2 » z Ne
-RU A LA BELLE-ÉTOILE à
-+ ER ; 2 "TR
-7 } { , CIS
-à ANNE ñ ds
-PM L TO L
 
-OR) : y ,
-
-lo :
-
-140 BL.
-
-[8 n hf
-a VU
-do k
-<a d LE
 #90 Ê A
-0 kk r
-He : va be
 
-SR [5 T0
-ri +R
-Us i L r
-j x À ï # % J
 11 ; i de hui ROSE
-4 Pr 1e à " x: FR: A A
 
 Dia à PTE (à ï RE fab F is je ue nu: j
-\YJ AR" te Mr +44 NO ' . INR AE
-HA FOR Fe AA INÉIAIROS
-\ pese \ APR Phare DAY : LT Ver
-Gé à A d Dh ' Te PORT SA TYE ARS $ PR TE
-SMES ‘ LP ÉMO NTIUTR PARQUET Ut QT ASS le
-ue. rot CORTE à RE MENT FE CR te ;
-LES F RTE 0), AUS ARE LAURE ES
 LR A'ures DE TT
-Ë FES : \ pee LAURE RTE CN LATE à
-ni | HAE NAS EU D:
-x ; “ À à Ÿ 4 ae "he BAS
-AN î au DRUTA en
 TEE sa Pa eh:
-À } x 4 ; LP | a Eve
-; : RUES jee #00 LS
 | L |
-Le
-
-0h
-A LA BELLE ÉTOILE
 
 La route montait presque à pic.
 
@@ -1938,7 +1573,6 @@ terres, croulant sous l'action des pluies récentes,avaient
 laissé de longues traînées jaunâtres. Tout en haut, très
 loin, les grands monis dénudés projetaient dans l'air
 assombri leurs masses immuables. Des vignes sur les
-pentes ravinées montaient jusqu'à mi-côte, alignant
 leurs tas d'échalas en rangées parallèles, agitant dans
 le vent frais leurs branches sarmenteuses, d'une maigreur frissonnante. Vers la cime des monts, à l'endroit
 où commençait l'ondulation confuse des forêts, vaguement estompée par la vapeur humide, qui se lève, vers
@@ -1977,7 +1611,6 @@ y — Harri! le Rouge.
 La bête se ramassait, assurait ses fers glissant sur
 l'argile molle, et, tendant tous ses muscles décharnés,
 s'efforçait d'arracher la carriole de la glèbe, où elle
-s'enlizait peu à peu.
 
 C'était une roulotte comme en ont les errants de la
 route, les vanniers nomades, les saltimbanques qui
@@ -1990,7 +1623,6 @@ La carriole criait, grinçait, geignait à chaque tour de
 roue, menaçant de se disloquer et de s'éparpiller sur le
 sol, comme un château de cartes, quand une ornière
 s'ouvrait, un peu profonde, quand un choc survenait, un
-peu violent.
 
 # A LA BELLE ÉTOILE
 
@@ -2062,8 +1694,6 @@ Ils avancèrent de quelques mètres.
 
 L'homme pouvait avoir une trentaine d'années.
 
-A LA BELLE ÉTOILE
-
 C'était une bonne face placide et moutonnière de
 paysan vosgien, encadrée d'une barbe rousse et ses
 cheveux longs, retombant sur le col graisseux de sa
@@ -2085,7 +1715,6 @@ signes montraient bien la gypsie, la fille née dans une
 de ces mystérieuses familles de romanichels, qui vont
 à travers le monde, sans se mêler aux autres peuples,
 emportant avec eux leur patrie, leurs coutumes, leur
-langage.
 
 Tout à coup quelque chose remua sous la toile flottante. Écartant le rideau qui la fermait à l'avant, une
 tête d'enfant apparut, poupine, rieuse, crépue sous ses
@@ -2098,24 +1727,18 @@ et effarés, considérant cette immense solitude, qu'agrandissait encore la tomb
 
 La mère le menaça du doigt; l'enfant disparut.
 
-(D:
-IV
-
 le livre de la misère
 
 Alors elle dit à son homme :
 
 — J'sais pas c'qu'il a. Y fait qu'tousser depuis
-c'matin.
 
 Et l'homme, affectant un grand calme, répondit
 d'une voix nonchalante, pour éloigner toute appréhension :
 
 — Ça sera rien. Sûrement un coup d'air qui est
-fraîche. s
 
 D'où venaient-ils? Où allaient-ils ? Eux-mêmes n'en
-savaient rien.
 
 N'ayant des lieux géographiques qu'une connaissance vague et superficielle, talonnés simplement par
 les instincts rudimentaires de la bête qui souffre du
@@ -2139,9 +1762,6 @@ leurs récoltes, ils sentaient vaguement, à de certains
 jours, se resserrer autour d'eux, se faire plus défiantes,
 plus haineuses, plus hostiles, les institutions que les
 
-‘2
-
-3 A LA BELLE ÉTOILE
 hommes ont établies et accumulées autour d'eux, comme
 une sauvegarde de la propriété, et comme une muraille
 pour leur égoïsme.
@@ -2158,7 +1778,6 @@ blouse et sabre au côté, devant tout ce qui pourchasse
 le misérable gibier humain pour recevoir sa pâtée,
 
 ; garde-champêtre, garde-forestier, garde-chasse ou
-garde-pêche.
 
 Ils vivaient ainsi. Pourtant c'étaient des hommes.
 
@@ -2192,7 +1811,6 @@ Plus loin c'étaient les vallées des Vosges, et l'homme
 sentait en lui un tressaillement confus, vague souvenir
 de sa première enfance, en revoyant la verdure noire
 des sapins familiers, en entendant le chant mélancolique et strident des scieries travaillant au bord des
-eaux claires.
 
 Parfois même ils descendaient en Alsace, un pays
 plantureux et de vie large, soupçonnant à peine qu'ils
@@ -2209,9 +1827,6 @@ Vosges, toute bourdonnante, comme une ruche, de travail et d'activité, le long 
 d'une filature de coton. Les nuits claires et chaudes
 succédaient aux jours radieux; le soleil se levant à la
 
-DT ï
-
-à A LA BELLE ÉTOILE
 même place incendiait le ciel : il faisait bon marcher
 pieds nus dans la poussière tiède des routes. Les soirs
 des souflles frais pénétraient dans la roulotte, apportant
@@ -2235,7 +1850,6 @@ pommes de pin suspendues à un fil de fer, et il n'en
 tirait pas un mince orgueil. Il en garnissait aussi le
 fond avec du vieux papier à fleurs, ramassé dans les
 décombres de la voirie, aux environs des grandes
-villes.
 
 La femme allait vendre toute cette marchandise de
 porte en porte. Quand on refusait ses offres, elle
@@ -2244,15 +1858,11 @@ leur arracher un morceau de lard ou quelques pommes
 de terre en marmottant entre ses dents des paroles
 bizarres, dans un idiome inconnu, comme si elle eût
 
-65 IV.
-
-L
 le livre de la misère di
 voulu jeter un mauvais sort. L'effet était d'autant plus
 foudroyant, qu'elle y apportait une conviction sérieuse
 et menaçante, car elle croyait la première à la vertu de
 ces pratiques mystérieuses, à l'efficacité de ces malé-
-fices.
 
 Ils regardaient devant eux.
 
@@ -2280,7 +1890,6 @@ un rayon de soleil pâle, qui, promené lentement sur la
 
 # 3
 
-A LA BELLE ÉTOILE
 plaine, en faisait sortir la flèche d'un clocher, la façade
 lointaine, d'une maison, tout au bout d'un hameau,
 perdu dans cette étendue.
@@ -2323,7 +1932,6 @@ misère, l'homme, la femme, le cheval avaient l'air
 
 ; le livre de la misère
 d'insectes qui peinent sur la terre, de fourmis s'acharnant à transporter un fardeau trop lourd le long d'une
-pente.
 
 Un dernier effort : ils arrivèrent en haut de la montéeet
 
@@ -2351,14 +1959,9 @@ fond, coupés par des carrés de prairie entre lesquels
 un ruisseau se glissait avec de molles sinuosités. Par
 endroits, des saignées avaient été pratiquées dans ses
 rives terreuses, pour faciliter l'irrigation des prés situés
-en contre-bas.
 
 A droite et à gauche, c'étaient tout de suite les
 masses des grands bois violâtres qui, dans un élan
-
-()
-
-U
 
 | A LA BELLE ÉTOILE
 indompté, reprenaient possession du sol, et, gravissant
@@ -2395,7 +1998,6 @@ des heures. La route plus unie et plus facile, inclinée
 par une pente insensible, faisait que la carriole descendait d'une marche égale et sûre. Le vieux cheval, soulagé, avait une allure plus dégagée, un pas plus ferme :
 
 le livre de la misère L
-À
 on entendait le clapotement régulier de ses fers tom- |
 bant dans les flaques d'eau. Et ce qui leur paraissait
 plus doux que tout le reste, ce qui les réconfortait
@@ -2431,9 +2033,6 @@ dans la fosse.
 
 Une fois même ils se décidèrent, attirés par la paix
 
-ê 3
-
-A LA BELLE ÉTOILE à
 des toits de tuile vaguement assoupis au fond des
 ténèbres. Ils s'engageaient déjà dans le chemin, quand
 une grosse voix les fit sursauter :
@@ -2457,7 +2056,6 @@ blancheur de ses lacets au fond de la nuit grandissante.
 
 Les bois, maintenant, s'étaient rapprochés. On
 
-: devinait confusément leurs grandes masses immobiles
 et ténébreuses, debout de chaque côté du chemin,
 | longeant les fossés à droite et à gauche. L'air humide,
 qui stagne sous le couvert des grands arbres, faisait
@@ -2497,7 +2095,6 @@ maisons entassées, dont les toits et les pignons aigus se
 découpaient dans la nuit. La flèche du clocher, haute
 et solitaire, avait l'air de veiller sur le repos de ces bêtes
 assoupies, rasant leurs échines lassées au niveau du
-sol.
 
 Des bruits de voix arrivaient jusqu'à l'oreille des
 errants ; une porte soudain entr'ouverte laissa filtrer
@@ -2511,7 +2108,6 @@ choux, exquise et chaude, flottait dans l'air.
 Alors ils jugèrent bon de s'arrèter là, espérant ils ne
 savaient trop quoi du voisinage des hommes qui d'ha-
 
-A LA BELLE ÉTOILE
 bitude leur étaient hostiles : une vague protection, un
 sentiment obscur de réconfort, contre les dangers sans
 nombre qui s'embusquent au fond de la nuit.
@@ -2545,8 +2141,6 @@ un bruit doux et monotone, et quand elle s'était un peu
 trop écartée un instinct confus, un besoin de protection,
 la peur des ténèbres formidables la ramenaient, elle
 aussi, dans le cercle paisible que faisait la lueur du
-
-L
 
 le livre de la misère
 fourneau dansant sur le sol. Alors on voyait surgir de
@@ -2586,13 +2180,9 @@ frissonner dans de petits souffles amusés et câlins, et
 |
 
 |
-A LA BELLE ÉTOILE
 tentait d'arracher parfois, sous la violence de son haleine, devenue soudain rageuse et mauvaise.
-*
-x *
 
 Vers le milieu de la nuit, ils furent éveillés par un
-bruit étrange.
 
 Cela partait du coin où l'enfant était couché, dans
 une caisse de bois blanc, au milieu de vieux chiffons.
@@ -2642,7 +2232,6 @@ tait le souffle dans sa gorge.
 
 Le père, lui ayant ouvert ses dents serrées avec une
 cuiller d'étain, vit au fond de sa gorge des peaux
-blanches.
 
 Alors il eut un hochement de tête désespéré. La
 
@@ -2659,9 +2248,6 @@ dans la cour d'une ferme perdue au milieu des campagnes. Il hurlaïit à la mort
 
 C'était un aboiïement douloureux qui montait, s'élevait, se prolongeait en un son d'angoisse et de mystère
 
-Ji
-‘4
-A LA BELLE ÉTOILE
 jeté à La face de la nuit frissonnante, dans le vent,
 _ dans l'espace, sous les étoiles impassibles. Oh! qui
 dira ia détresse de cette clameur désespérée, pareille
@@ -2727,7 +2313,6 @@ mesurer la hauteur du mur et de la haïe voisine, comme
 s'il avait voulu sauter par dessus et prendre sa course
 à travers champs. Mais se sentant pris, il s'affermit, se
 campa sur ses pieds et fit avec son gourdin un moulinet
-terrible.
 
 jh À LA BELLE ÉTOILE
 
@@ -2762,7 +2347,6 @@ sympathie dans la voix, et il répétait à tout bout de
 
 û champ, comme pour bien marquer son embarras et
 l'impossibilité où il se trouvait d'apporter quelque
-SeCOUrS :
 
 — J'y peux t'y quèque chose, moi. J'suis pas médecin.
 
@@ -2802,8 +2386,6 @@ la bouche grande ouverte, sentant comme un vague
 soulagement monter en lui, quand il entendait le son de
 sa propre voix.
 
-Cela dura longtemps.
-
 A la fin il entendit remuer dans la chambre, tandis
 qu'un rayon de lumière filtrait par les fentes des volets
 clos. Un pas sonna sur la terre battue du corridor, et
@@ -2819,8 +2401,6 @@ de froid dans cette nuit.
 Alors on poussa des verrous, on tira des loquets, on
 fit tomber des traverses de bois qui barricadaient la
 
-_ EN
-A LA BELLE ÉTOILE
 porte, tout ce luxe de précautions habituelles aux
 vieilles gens, qui ne se sentent pas en sécurité dans
 leur logis ; et quand l'huis eut tourné en grinçantsur ses
@@ -2853,8 +2433,6 @@ distant de deux kilomètres : il fallait gravir la pente
 de la côte et prendre un raccourci à travers les bois.
 C'était l'affaire de quelques minutes et il n'y avait pas
 de temps à perdre. La maison du docteur était facile à
-
-81 Ve
 
 le livre de la misère |
 reconnaître, située juste à l'entrée du bourg: un chalet
@@ -2891,7 +2469,6 @@ le froid plaquait sur son corps, rigides comme des morceaux de carton, il se rel
 que les ténèbres en étaient toutes vibrantes et secouées.
 
 ,
-A LA BELLE ÉTOILE
 Enfin il arriva sur le plateau. La forêt était là, étendant ses masses sombres sur les ondulations de la terre.
 Il se rappela les indications du vieux : suivre la route
 et prendre à droite. Une faible clarté, en des
@@ -2940,7 +2517,6 @@ L'enfant venait de mourir.
 Blottie dans un coin, les yeux secs, le visage hagard,
 la mère poussait un hurlement de bête.
 
-*
 # %
 
 Une vague blancheur s'étendait dans le ciel vers
@@ -2961,9 +2537,6 @@ carapace glacée dont les choses étaient revêtues.
 
 Mais le soleil était chaud: toute cette gelée fondit
 rapidement sous la caresse ardente de l'astre clair.
-
-ii
-À LA BELLE ÉTOILE
 
 Près du mur blanc où l'aurore versait sa clarté
 
@@ -2989,10 +2562,8 @@ rables sur lesquels il reposait, il avait l'air d'une poupée
 de cire.
 
 Les heures passèrent ; les pauvres gens étaient toujours à la même place, dans la même attitude de résignation et de désespoir, pareils à deux statues de la
-douleur.
 
 Il faisait maintenant très chaud. C'était l'été de la
-Saint-Martin.
 
 Il y a comme cela dans ces pays du Nord des journées
 d'arrière-saison d'une splendeur inoubliable, d'une
@@ -3004,7 +2575,6 @@ une fois toute la joie des étés brûlants, toutes leurs
 forces fécondantes déversées sur les eaux et sur la
 plaine, toute la profusion ruisselante des couleurs, des
 
-x |
 le livre de la misère
 sons, des parfums étalés dans la saison chaude, comme
 une mer aux flots innombrables.
@@ -3023,14 +2593,12 @@ obscurcir par instants son disque glorieux.
 
 Une vague rumeur confuse s'éveillait sur la terre,
 pareille à la fermentation de la vie universelle, au mystérieux enfantement des mondes qui vont naître, par les
-aubes tendres d'avril. j
 
 Mais l'astre eut le dessus, il pompa ces buées blondes,
 les but, les dissipa dans l'éther impondérable et subtil,
 où gravitent les astres, et la campagne tout entière
 apparut radieuse, ardente et calme dans l'ondulation
 de ses flancs sacrés, endormis pour les créations
-futures.
 
 De chaque pli du sol, de chaque creux des sillons,
 de chaque rangée des chaumes grisâtres, des alouettes
@@ -3043,8 +2611,6 @@ Puis le vent tomba.
 Rien ne bougeait : pas une herbe, pas un chaume
 desséché. On n'entendait plus ce bourdonnement confus, cette vibration insaisissable des bestioles nées de
 
-(a
-A LA BELLE ÉTOILE À
 la terre qui, par les jours ardents de juillet, semble la
 voix pâmée des campagnes assoupies sous le soleil.
 Dans l'espace immensément vide, sous le ciel bleu, profond, infiniment reculé, seule, la coulée éclatante et
@@ -3056,7 +2622,6 @@ Sous les saules maigres et dénudés, le ruisseau fré-
 tillait comme un lézard, se cachait un instant, reparaissait plus loin, roulant dans ses ondes un trésor de
 paillettes lumineuses et les grands étangs flambaient,
 jetant une réverbération éblouissante, qui brülait les
-yeux.
 
 Alors, les coqs chantèrent.
 
@@ -3112,7 +2677,6 @@ fraicheur de leur jeunesse les avait préservées de tout
 effroi. Certaines portaient sur leurs cheveux blonds
 ébouriffés des coiffes de taffetas ancien aux couleurs
 changeantes, sans doute taillées dans quelque falbala
-d'aïeule.
 
 Peu après, un vieux paysan arriva, important, ventru, gonflé de satisfaction. Il marchaït lentement, s'appuyant sur une canne de cornouiller, et ses pieds
 goutteux étaient chaussés de pantoufles en tapisserie,
@@ -3120,22 +2684,15 @@ ornées de broderies extravagantes. Le garde-champèêtre
 le suivait docilement, reconnaissable au liséré rouge
 qui bordait le collet de sa blouse de toile grise.
 
-AN
-
-A LA BELLE ÉTOILE
-
 — Monsieur le maire, fit-il obséquieux, v'là les gens
-en question.
 
 Le maire haussa les épaules à l'aspect de cette
-misère :
 
 — Si ça ne fait pas pitié, dit-il d'un ton bourru. Y a
 pas de bon sens d'avoir des enfants, quand on ne peut
 pas les nourrir.
 
 ù Puis il dévisagea les bohémiens, soupçonneux et
-méfiant :
 
 — D'où venez-vous ? dit-il.
 
@@ -3145,7 +2702,6 @@ farouche, si plein de choses inexprimables, de rancune
 et de menaces, que l'autre recula de deux pas, tout
 interdit. La femme, plus douce, fit un geste vague dans
 la direction des bois, de la plaine ensoleillée, et elle
-dit :
 
 — Nous venons d'là-bas.
 
@@ -3153,8 +2709,6 @@ dit :
 papiers, un domicile ?
 
 La femme répéta :
-
-— Là-bas !
 
 Alors le maire ricana :
 
@@ -3193,7 +2747,6 @@ entendait des bribes du latin que chantait le prêtre, et
 derrière marchaient quelques enfants, une douzaine de
 petits garçons et de petites filles; pas un des habitants
 âgés n'ayant jugé à propos de se déranger pour la céré-
-monie.
 
 Le curé, un tout jeune homme, à la figure rougeaude,
 à l'air gaillard et bon enfant, l'œil vif derrière ses
@@ -3209,15 +2762,11 @@ rente et ennuyée. Il se hâtait, s'embrouillait, faisait les
 versets et les répons à lui tout seul, ne donnait pas le
 temps de le rattraper au gamin dérouté, qui remplaçait
 
-ji
-« A LA BELLE ÉTOILE
-
 le chantre. On n'entendait qu'un bourdonnement confus
 de paroles pressées, d'où toute ferveur, toute sincérité
 était absente.
 
 | Enfin, il termina dans un amen sonore, comme joyeux
-d'avoir fini.
 
 L'enfant de chœur jeta les yeux autour de lui, cherchant un comparse qui manquait; puis se décidant
 brusquement, il donna la croix à porter à un gamin
@@ -3242,7 +2791,6 @@ Il fallait traverser un coin de la forêt, qui arrivait
 presque derrière les maisons du bourg.
 
 Midi sonnait. Le curé pressait la marche, il se désespérait en songeant qu'il arriverait trop tard, après le
-premier service.
 
 L'heure chaude versait sur la terre dépouillée sa
 coulée de lumière éclatante. Au bas de la pente, les
@@ -3271,7 +2819,6 @@ vif par les sèves automnales, semblaient des fleurs
 d'une pourpre bizarre etsomptueuse. Un grand papillon
 prit son vol, emplissant la fuite de l'allée de la palpitation de ses ailes brunes, ocellées de bleu pâle, pareil à
 une fleur ivre de lumière, qui se serait détachée de sa
-tige.
 
 Cette fête de la vie, inépuisable en sa fécondité, mettant autour de cette mort son rajeunissement, était à
 la fois consolante et cruelle.
@@ -3285,132 +2832,21 @@ lentement, lourd de malheur et de misère.
 
 | À LE HE, TT nr) PR LT 4 Da 5 40 PTTEN À È
 Hé 50 : 3 HER DER HAL | ve FAR ne
-ee | | | A LIRS Nb D LT
-) MAR Pr 1 | | ‘18
-FU | Tec RR
-, Fe : ë | hŸ rs u
-2 SRE | 4
-Ex ET Ÿ : È
-hi Lo : L |
-is | 4
-(0 fe. . | :
-& A
-PA ue |
-ait | |
-L'40 | ; |
-ne ]
-De 4
-‘3 js | |
-Wan |
-!
-îe 1, ; :
-1 | L re
-LL:
 14 3
-« 0
-1 d'u
-LH |
-‘hf ;
-Un î
-1 BAL
-; CN 64
-" JTE
-, . | |
-A ; : |
-A.
-‘ h MuT :
-LA LL] *
-" d 4 1" 0e
 
 A ES RAR A 4 NI ter i it Hal
-LG 6 NAN RQ AE SNS SAT PAGE ED: UE A a RAC î
-at RAR AO LUE Sn PNR
-PAM En NT NN A ASS TA LR ANTON dira NE SU EE , 2°2
-1 ROC Sr ER Er N NN GE a HAN TIERS
-NIET ET EME Fo TT ONU RUN AE LAPS ANNE VE NPA AMEL fa 1 NON
-va vel ANNE URSS CAGE RARE NAN EPA PARCS EU RE 0 Sn ITS 9 .
-78 MESA a pi LEA FR
-FAO ÿ À « LT
-nas k: k NME » -
-F. | 0
-MA à Sy MOTS
-Me" k Ne PC AE
-FANS ï RAR SRE
-4 AMEN UNS Vel At:
-He? D A 1 AU
-er 1 a te A à à
-(PRE ES a Nat SALUE
-Fi NES 12 Per ITEMS
-x LATINE
 5 NANCY TETE il
-2 î LAIT RES
-À LAINE TETE
-146 CRETE d'à A ON
-a AR \ ANS We
 
 ! ce PPS rl Leg p E à SUP AU EC Pre
-“ M ni AA RE RP Du
-ME TO arr É . AE r: bu
-AOL RARES ENS { TT
-RAR HE D ÿ + ru Hp
-ee: AL, 1)
-Las 1 24 PAR {10
-x MT ARE éme
-MAMULE REVENANT me
-Ÿ 40 ‘ à | D
-ue ) fr. =
-à, 1 L | ae ”!
-La À
-TA PR : HR
-J'TE rl
-5n \ LL
 XP à ma An
-ÿ 4
-È mn)
-in, ï Li
-\ 1e VI
-T'as 21
-: a |
-A à Ki "M L
-ER Lei
 l'YR jt ' NE pi A
 #1 1 : 5e
 ou À PAL | l A PRE | he, L
 
-POELE PE PRET RAR LOT, ES PART EC PR PT PT REED 0 EU A UE NE COR TIT ESA RL
-; ; À j 17 ‘ %
-k ; PE RENE AUS OX PAT OMR
-Fe à | #4 ar
-SAR Fa Et \ LR \ Ie HAS
-K Ê (5 % & :LÉANRNRES
-! à # / ATTAAUES
-7 $ PEU L LEE pu | FE
-LE N L A: 17. LAVER
-Ù à à 14,6 SUR
-à LAPANNERS
-, 0 Pa Et T'AS AA
-* dr à Re |
-L 4 TA « 4 7 22#
-4 k SAC AIT ARE
-: ; è 4 4 || IT USERS
-E 414 * LUNRENERNESS
 4 f si: FOR PAUEAEN {LE TSURE
-! ; Te EMEA MR RENE
-Î Ê i : GENS de
-à Ye QT
 | : RE sf EME EC
-ae (A
 | é Lie: N HE .
-À i , RANGS
 = i ‘ ME den ta
-Ur : EF OUT 4
-55) NRNORESEES
-\ F2. RS
-: ARR à UE RES
-SV FRA nn +44 2
-
-HA
-LE REVENANT
 
 C'était un soir de fenaison, le soir d'une journée de
 travail et de chaleur.
@@ -3434,8 +2870,6 @@ fièvre de la besogne qui s'achève. La prairie, tondue par
 endroits comme une pelouse, effleurée de rayons obliques et chauds, était toute vibrante du susurrement des
 faulx, du bruit aigre et lointain des faucheuses dévidant
 leurs engrenages. Les tas de foins amoncelés proje-
-
-VI
 
 le livre de la misère
 
@@ -3471,11 +2905,8 @@ avec une jeune fille, lui cria d'une voix aiguë :
 jvas faire la soupe.
 
 — Ça va comme ça, dit l'homme. Et il se remit à la
-besogne.
 
 La vieille endossa la grande hotte d'osier où trimbalaient des bouteilles vides et les vases de fer-blanc
-
-È LE REVENANT
 
 4 qui avaient contenu le goûter. Puis traversant la
 
@@ -3509,8 +2940,6 @@ chauve-souris gigantesque. Des cavernes de feu creu-
 
 ' tail, sillonnaient tout le ciel de leur poussière lumi-
 
-; neuse.
-
 Alors la vieille remarqua des poules qui, s'étant
 blotties sous un banc, le long d'une façade chaude,
 
@@ -3531,8 +2960,6 @@ aux membres noueux, toute déformée par le dur travail
 de la terre. Elle avait un grand nez maigre, courbé
 comme un bec d'oiseau de proie, qui lui donnait un
 
-be
-
 #
 le livre de la misère
 air colère, et ses yeux vifs disparaissaient presque
@@ -3543,7 +2970,6 @@ Arrivée devant sa maison, elle posa sa hotte près de
 la porte, puis elle prit la clef suspendue à un clou derrière les volets fermés.
 
 La porte ouverte, elle pénétra dans la cuisine obscure,
-marchant à tâtons.
 
 Chacun de ses pas soulevait des tourbillons de
 mouches bruissantes, réveillées de leur sommeil le
@@ -3572,7 +2998,6 @@ danger. Tout en haut, des filles couchées sur le foin sec
 et craquant, montraient seulement leurs têtes rieuses
 coiffées d'un bonnet fin : elles riaient d'aise, doucement
 
-LE REVENANT
 balancées par l'allure lente de la voiture et poussaient
 de petits cris d'effroi quand une secousse arrivait plus
 forte que les autres.
@@ -3594,7 +3019,6 @@ et descendit à la cave pour y tirer du vin.
 Quand elle remonta, elle trouva Manon Cardonnet,
 sa voisine, debout au milieu de la chambre. Celle-ci
 l'attendait, tordant un coin de son tablier dans ses
-mains inoccupées.
 
 — N'a-ty fait chaud aujourd'hui! dit-elle, pour engager la conversation.
 
@@ -3613,13 +3037,10 @@ d'envie, car la Thibaude était riche, très riche. C'était
 une maison où l'argent rentrait de tous les côtés,
 comme on dit au village.
 
-101 VI
-
 |
 le livre de la misère
 
 Mais Manon en vint brusquement au sujet de sa
-visite.
 
 — Y a comme ça un homme chez nous, qui m'a
 demandé après vous. Je l'ai trouvé assis sur not
@@ -3631,8 +3052,6 @@ l'air bien poli et bien convenable.
 — J'sais pas. Y dit, comme ça, qu'il a quèque chose
 à vous dire...
 
-— Eh ben, qu'y vienne.
-
 Une minute passa: Manon reparut, amenant derrière
 elle un grand garçon maigre, à la figure blème, qui
 paraissait avoir une vingtaine d'années. Vêtu d'une
@@ -3643,7 +3062,6 @@ les toucheurs de bœufs. Il portait sous le bras un petit
 paquet de vêtements, serré dans un mouchoir à carreaux noué aux quatre coins. La Thibaude, qui lui jeta
 un coup d'œil méfiant et scrutateur, remarqua tout
 de suite que ce n'était pas quelqu'un de huppé, tellement il avait l'air humble, la mine chétive et les
-membres grêles.
 
 Il se tenait debout, les épaules un peu voûtées, et
 comme il ne trouvait rien à dire, il passait niaisement
@@ -3656,8 +3074,6 @@ sa personne, que la Thibaude, un instant, en eutle cœur
 effleuré d'un rapide frisson de pitié. Elle pensa à la
 mère du pauvre bougre qui peut-être l'avait vu dans
 
-ee.
-È
 | LE REVENANT
 
 cet état. Mais elle était de la race forte des paysans
@@ -3682,8 +3098,6 @@ qui sont un danger continuel pour les récoltes, pour
 
 | Prenant les devants, elle lui dit d'une voix aigre et
 
-injurieuse :
-
 — Nous n'avons besoin de personne et nous faisons
 not' ouvrage tout seuls.
 
@@ -3707,8 +3121,6 @@ Un grand silence s'était fait dans la chambre, un
 silence inquiétant où planait comme une vague sensation de malaise. La vieille Manon, curieuse et flairant
 un secret, restait debout devant la porte entrebâillée,
 
-' 103
-
 le livre de la misère
 
 sans se décider à sortir. On entendait nettement le tic-tac
@@ -3717,7 +3129,6 @@ dans les coins de la chambre, les meubles rentraient
 dans l'ombre, on croyait entendre grandir le murmure
 confus des mouches, serrées en tourbillons compacts,
 bruissant doucement le long des solives noircies du
-plafond.
 
 La Manon dit :
 
@@ -3738,8 +3149,6 @@ caniveau, puis elle ouvrit sa porte et rentra chez elle.
 
 Alors, l'homme fit un pas en avant, et dit simplement :
 
-— Me v'là, j'suis vot'garçon!
-
 Une siupeur immense tomba sur les traits de la
 paysanne. Elle s'était relevée d'un seul coup, et elle
 restait là, les mains pendantes, la bouche ouverte, la
@@ -3747,8 +3156,6 @@ face convulsée par l'effroi, les yeux démesurément
 agrandis comme si une vision d'épouvante et d'horreur avait surgi brusquement dans ce coin de la
 chambre où l'homme attendait, balbutiant des choses
 vagues, tordant gauchement entre ses doigts sa casquette qu'il avait enlevée de sa tête.
-
-LE REVENANT
 
 Alors l'homme parla encore doucement, ayant jeté
 autour de lui un regard soupçonneux, par crainte des
@@ -3762,7 +3169,6 @@ Il n'acheva pas, n'osant pas dire les mots, pliant
 _ sous un lourd fardeau de honte. ‘
 
 Elle parla enfin, à voix basse, égarée, sortant d'un
-rêve:
 
 — Comment s'fait-y qu'vous sachiez ça ? Qu'est-ce
 que vous nous voulez ?
@@ -3797,12 +3203,10 @@ souffle entre ses lèvres, et que ses paroles étaient
 chuchotées comme une confidence : f
 
 — Et pis, j'vas vous dire, y m'faisait gré d'vous
-voir. #
 
 Une moue involontaire tordit la bouche de la vieille,
 si inquiétante, si énigmatique qu'on n'aurait pu dire
 si c'était douleur, envie de pleurer ou simplement M
-mépris : |
 
 — C'est bon, fit-elle rudement, attendez la venue du
 maître et on recausera de tout Ça. Asseyez-vous tout de
@@ -3830,7 +3234,6 @@ avait fini par prendre son espérance pour une réalité.
 Elle avait oublié tout cela, par une sorte d'instinct
 sommeillant dans les profondeurs de son âme, comme
 
-à LE REVENANT
 on oublie le souvenir déshonorant, qui n'apporte dans
 _ notre être que confusion et douleur.
 Elle s'était refait une autre vie, courageusement.
@@ -3859,8 +3262,6 @@ s'accusait d'instant en instant. Derrière ce visage,
 elle croyait retrouver l'autre, ce valet qui était le
 père, qui sortait peu à peu d'une brume estompée,
 qui s'avançait vers elle comme une apparition, comme
-
-L
 
 le livre de la misère
 un spectre venu de l'au-delà, qui allait prendre une
@@ -3894,7 +3295,6 @@ revint malgré tout, dans le vaste naufrage où s'abimaient ses idées, où tout
 Elle marcha droit au poulailler qui était construit contre
 le mur du hangar, près du jardin clos de roseaux secs
 et d'osiers vivaces. Les poules dormaient sur leur perchoir, ébouriffées, roulées en boule, la tête cachée sous
-leurs ailes.
 
 Le coq qui se réveilla au bruit leva sa crête écarlate
 et tenta de pousser un cocorico nonchalant, lourd de
@@ -3902,7 +3302,6 @@ sommeil. Elle compta soigneusement les volailles,
 pas une ne manquait. C'était une habitude qu'elle avait
 comme ça tous les soirs. Puis elle alla prendre un seau
 
-LE REVENANT
 de bois blanc qui traînait dans un coin, elle l'emplit de
 pommes de terre écrasées et se mit en devoir de pré-
 parer le repas du cochon.
@@ -3910,11 +3309,9 @@ parer le repas du cochon.
 Le porc, flairant la pâtée, reniflait bruyamment
 
 et secouait avec son groin la porte battante de son
-_ réduit.
 
 Mais comme elle voulait verser de l'eau dans le seau
 et y jeter du son, elle se trompa, et répandit le son à
-terre. j
 
 Alors elle poussa un soupir navrant, et portant sa
 main à ses tempes, comme si sa tête allait éclater, elle
@@ -3937,8 +3334,6 @@ ciel, tandis que les hirondelles blotties dans leurs nids
 de terre glaise, sous les chevrons du vieux toit, gazouillaient faiblement avant de s'endormir.
 
 La Thibaude restait là, la tête enfouie dans ses mains,
-
-VIL
 
 le livre de la misère
 balançant lentement son corps dans une oscillation
@@ -3972,8 +3367,6 @@ lorsque l'enfant était venu, elle n'avait même pas voulu
 le voir, chose informe, vagissante et crispée d'un fré-
 missement de douleur, comme s'il avait pressenti sa
 
-54 1P ES
-r
 | LE REVENANT
 destinée. Puis elle ne se rappelait plus rien, qu'une
 _ sensation inexprimable de vide et de soulagement, à la
@@ -4011,8 +3404,6 @@ Dès lors, il lui était venu un peu de bonheur.
 
 Ça avait marché tout seul, comme on dit. Les bonnes
 
-III
-
 le livre de la misère
 récoltes aidant, on avait pu arrondir encore les belles
 pièces de terre, ajouter un autre bâtiment à la vieille
@@ -4041,7 +3432,6 @@ Le garçon n'avait pas bougé.
 
 Assis toujours à la même place, son baluchon de
 chemineau entre ses pieds, il restait plongé dans une
-rêverie douloureuse.
 
 Comme le silence leur pesait lourdement à tous les
 deux, ils se mirent à parler, à parler longuement pour
@@ -4051,8 +3441,6 @@ consacrées contre les pluies et la sécheresse. Elle lui
 demanda quel était le prix du foin, dans les pays d'où
 il venait, et il lui apprit qu'il était cher, là-bas sur la
 Meuse, dans les pays où il avait travaillé, car l'eau
-
-LE REVENANT
 
 avait inondé la prairie et les deux tiers au moins de la
 récolte étaient perdus.
@@ -4068,12 +3456,10 @@ disaient, faisant les demandes et les réponses tout de
 
 travers, ou bien ils parlaient d'une voix blanche,
 neutre, machinale, comme lorsque la pensée est
-absente. ;
 
 Tantôt encore ils s'arrêtaient au bord de questions
 précises, embarrassantes, qui auraient fait naître entre
 eux un mouvement de sympathie et d'intérêt, et vaguement épeurés, ils se réfugiaient dans ces mêmes considérations générales, touchant la saison et l'état des
-récoltes.
 
 La nuit était noire, lorsqu'un pas lourd retentit à la
 porte, en même temps que des outils de faucheur sonnaient, en tombant sur le plancher de létroit vestibule.
@@ -4097,7 +3483,6 @@ les gros ouvrages sont finis.
 — On causera d'ça tout à l'heure, dit la femme...
 
 le livre de la misère |
-è
 
 Allons à table. Toi, Mathilde, et elle s'adressa à sa
 fille, quand tu auras soupé, tu iras trouver ta tante Victorine et tu lui diras de venir nous trouver. Tu resteras …
@@ -4108,7 +3493,6 @@ La jeune fille leva la tête d'un air curieux, mais la
 vieille était si résolue, qu'elle ne demanda pas d'explication.
 
 On se mit à table : la Thibaude s'adressant à l'homme
-linvita :
 
 — Allons, asseyez-vous. Vous mangerez toujours
 bien une assiettée de soupe avec nous.
@@ -4131,11 +3515,9 @@ coup de dent. On aurait dit qu'il n'avait pas mangé
 depuis quinze jours. Un peu de chaleur rose montait à
 ses pommettes pâles. Il coupait son pain avec son couteau, ramassant les miettes soigneusement dans le
 creux de sa main, en homme qui sait le prix des
-choses.
 
 Un vague bien-être l'envahissait, maintenant qu'il
 
-; LE REVENANT
 était repu. Étendant ses jambes sous la table, il se
 laissait aller à la sensation douce du chez soi, du logis
 
@@ -4158,7 +3540,6 @@ lPmaître. A toi de décider.
 
 _ de suite. Maintenant il dévisageait l'homme attentivement ; il lui palpait du regard les bras, les jambes, le
 torse, avec la lenteur d'un paysan qui achète une
-vache.
 
 Enfin il dit posément :
 
@@ -4216,19 +3597,15 @@ sur le saint frusquin, une fois qu'ils étaient seuls !
 Une fois partis, cours après. Ni vu ni connu, j't'embrouille.
 
 La voix de la vieille montait dans le silence, aigre,
-méchante, rancunière.
 
 Placide et doux, l'homme baiïssait la tête et tendait le
 
-LE REVENANT
 | dos sous l'averse des sots compliments. Toute la joie
 qui avait illuminé un instant son maigre visage, s'était
 éteinte. Il acceptait tout cela, avec une stupeur infiniment triste et résignée, comme il y était habitué depuis
-- longtemps.
 
 Thibaud et la Thibaude se regardaient tout pâles, à
 l'idée qu'ils venaient d'échapper à un danger aussi
-grand.
 
 Enfin Thibaud dit d'une grosse voix bourrue, avec
 une nuance de douceur et de regret :
@@ -4236,11 +3613,9 @@ une nuance de douceur et de regret :
 — Vous voyez, mon garçon, on ne peut pas s' Cconvenir.
 
 L'homme s'était levé: il dit doucement, avec un
-grand calme :
 
 — Moi j'dis pas : j'veux pas vous faire avoir de
 peine, bien sûr. J'suis venu pour voir si on s'conviendrait. Quand on est jeune, on s'fait comme ça des
-idées.
 
 Il implorait, ayant l'air de demander grâce pour sa
 jeunesse et sa naïveté.
@@ -4262,8 +3637,6 @@ l'homme las, il entra dans la nuit noire.
 
 Une lueur, filtrant par les persiennes mal closes dela
 
-117 VII.
-
 le livre de la misère
 maison voisine, éclaira une dernière fois le dos lamentable et résigné de l'homme, et le petit paquet blanc
 qu'il portait sous son bras.
@@ -4271,7 +3644,6 @@ qu'il portait sous son bras.
 Alors il sembla à la Thibaude que quelque chose
 montait en elle, qui tressaillait, qui s'attendrissait, qui
 avait pitié. Cela était doux et irrésistible, puissant et
-tendre.
 
 Elle le rappela :
 
@@ -4283,126 +3655,25 @@ cent sous.
 L'homme repartit cette fois pour de bon. Son pas
 sonna sur la route...
 
-1 : PNR "ASC ARS
-Sr AE ire MERS tt:
-du: ‘a RER" -
-SR NI 34 ‘ : 8
-RU: ; ‘1414
 #7 10h NES : tea
-DURE 4 | te ' 1
 NEA { nr hu à je
-Fe HR À 1 %:
-(ESF ECS HA k sie
-au 0° F
-1e É re
-M: i ñ LR:
-(a
-Le i V ;
-: "1 \ ; - °° 474
-Je | : "hi
-M: j À
-DE. ï mr 4 À
-NT: ‘à % LL
-Ra | : Let:
-LIRE nr
-nn | k { b « 40 .
-+ LS
 Du A ns
-bre 14
-NE: p:
-* A1, M
-14 ! « 4
-: PR
-ki { :" LS
-“HQE à ‘44
 Î ne
-Le EE: : r ' M,
-€ "EN he *
 ha RE n Ni se" EEE
-ML #4 Î F de PTE
-Fa” PSS Fi HE AE
 
-QE 16 4 1 Au, L TRE
-J : SR :
-
-Ë SN : ga ANR :#
-tee î LÆ : , # HQE TTC ETES
-a ES RE = FE OMEES
-
-f ; À E ER Re PT
-Ar È HA ARRETE
-; à is sl
-DATES ue (re
-jé RE dur. -
 | RUN
-UE EAN
-: CAN TRUE
-q k 5 TP
-i À ‘254 PAL RES
 |: 1 SRE
 |, PINS
 
-M A. <: PE Æ
-SÉRIE | 0
-Re HR:
-Parti: % vi
-DEN © Vi
 la LPS A l'art
-tt at è ME
-STE ; Lu
-Peu F +! +, A8CSR
-mn. ue l k 4 "7
-Pa: Fr +
 de. LA MORT DU BOUIF L:
 De ve *n3al
 # il * … x
-n+. [es 4 | 1
-7 | Cl
-LA fi 0
 ne a n
-i 4 ‘ 1. à M ,
-AN \
-L OR
-U 410
-br Ces \ 54 "1?
-Re. A el
-: 1 _4 0
-+0 au
-ou #, .
-128 ; [ v
-$ Nr Lu £
-Rp +} k
 
-été MARS tn al ELU 4 HE RE AR
-CNE AL PES TE PR EE ARE RON a pre
-Nes s ë dpt a EM ARE Er ACER
-LU: ‘ ] IN 4 ÿ TUE
 > APTE “ AMEL
-PNR k n { . ne LORS
-En Lie a É D ; TES % 4
-Mn, #1 4 4 SES
-ÿ nn API À ee |
-Le )| à 080 : TT
-EME". : A Se CO
-IN) LOC 3 x 1: C4-ANCEIES
-{40e \ vd Hs au! \#4
-Lee ! à : 4 OO ETOIRS
-a F :L FRANS
-Dés. , | TES
 à) ; Le vi SIN FAITS
-EM { y AGREE
-("F8 É À A CH A
-1 ; : Ka, HUDERENERE
-tif 4 rh VEARVE fa
-04 \ RER EE
-NT ) {re NUE ES
-& - “4 LOU ENT ES
-nn”. Ve Vi AR) au
-{ 4 À h { HAN LAS H. 1
-, x 414 RS
-A DA Lo
 
-LA MORT DU BOUIF
 Son vrai nom était Jean Deloison, mais comme il
 exerçait l'état de cordonnier, nous l'appelions tous Jean
 le Bouif.
@@ -4425,8 +3696,6 @@ l'on crierait la classe au bureau, et où chaque homme
 irait joyeusement indiquer sa résidence ! En attendant,
 quand un farceur lui décochait une bonne blague au
 
-À
-
 #
 le livre de la misère |
 passage, il avait une façon à lui de s'arrêter, de toiser
@@ -4436,7 +3705,6 @@ dans la carrure de ses épaules et la solidité de ses
 poignes, massives comme deux marteaux, que les
 plus farauds des anciens en restaient tout décontenancés, et se taisaient derrière lui, saisis d'une vague
 admiration et d'un sentiment obscur de respect et de
-crainte.
 
 Peu à peu il s'apprivoisa. Têtu comme un mulet et
 fort comme un bœuf, ayant dans toute son allure la
@@ -4461,8 +3729,6 @@ on l'entendait fourbir et frotter à tour de bras, dans un
 coin plein d'ombre, écrasant la cire sur la patelette
 vernie de son sac, et l'étendant à petits coups avec un
 
-LA MORT DU BOUIF
-
 | bâton appuyé au creux de son épaule. Des dormeurs
 réveillés par le tintamarre grognaient dans leur lit,
 pendant qu'il allait toujours son train, soufilant
@@ -4486,7 +3752,6 @@ doute par le désir d'aller en permission avec des
 galons sur la manche, il s'était fait inscrire chez le
 fourrier pour suivre le peloton des candidats, des
 aspirants brigadiers, des élèves martyrs, comme on
-disait là-bas.
 
 Il s'était mis résolument à apprendre la théorie, cognant son front avec ses poings, pour y faire entrer
 tant de choses à apprendre par cœur, suant à grosses
@@ -4510,7 +3775,6 @@ d'un mur une bestiole voltigeante et minuscule.
 Ses yeux étaient pleins de grosses larmes. — C'était
 ce moment-là qu'un malin choisissait, pour se permettre
 une allusion plaisante au rengagement inévitable de
-Jean Deloison, futur « biscuité », aspirant « rempilé ».
 On lui demandait négligemment si le four était tombé
 
 . dans sa maison, ou si un poil lui était poussé dans le
@@ -4518,7 +3782,6 @@ creux de la main, maintenant qu'il ne voulait plus en
 ficher une secousse, et qu'il aspirait à la gloire de rester dans le noble métier des armes, blanchi le long des
 murs, nourri à ne rien faire, touchant trois francs
 cinq sous tous les cinq jours, avec en plus le droit de
-punir.
 
 Lui laissait dire et continuait à apprendre sa théorie,
 sans jamais la savoir.
@@ -4531,8 +3794,6 @@ avec cette douceur passive et résignée qu'il mettait en
 toute chose. Et quand le lieutenant se fut informé de
 sa profession, de ses préférences, une fois ses classes
 terminées, on l'envoya travailler de son état chez le
-
-L d LA MORT DU BOUIF
 
 maître bottier, qui justement réclamait de bons ou-
 
@@ -4562,13 +3823,10 @@ travail, alerte comme une diane et sautillante comme
 
 ! paroles du refrain :
 
-Si j t'ai aimée, j't'4âi payée, vieille garce,
 Si j'ai aimée, j'L'ai payée.
 
 Et il se dirigeait le long des murs, jusqu'à l'établissement du patron, au bas du rempart, tout près de
 l'hôpital :
-
-Si j't'ai aimée, j'ai payée.
 
 Il l''amusait, ce refrain, et il le répétait en allant au
 travail, pas tout à fait dans ces termes, car le langage
@@ -4579,8 +3837,6 @@ D'ailleurs, il portait habituellement sur lui, entre sa
 veste collection trois et la bavette de son tablier de
 | lustrine verte, un cahier de chansons graisseux, un
 vieux cahier comme en ont les écoliers, et qui sentait
-
-à
 
 le livre de la misère
 la poix et une odeur de vieux cuir. Il y avait recopié
@@ -4606,7 +3862,6 @@ En ce temps-là, nous étions deux pièces habitant
 côte à côte, séparés seulement par la cloison du batflanc, logés sous les toits dans la caserne Masséna, une
 grande bâtisse triste, posée au bord des remparts,
 
-LA MORT DU BOUIF
 regardant la plaine de ses rangées de fenêtres symé-
 triques, pareilles à des prunelles aveugles.
 
@@ -4630,7 +3885,6 @@ frisson vous passait le long de l'échine, rien qu'à
 regarder le couchant clair.
 
 La nuit, le froid était terrible, sous la pureté du ciel
-fourmillant d'étoiles.
 
 Tous les jours on relevait des sentinelles gelées, raidies, la moustache blanche de glaçons, tenant entre
 leurs mains crispées le mousqueton, dont les garnitures
@@ -4674,8 +3928,6 @@ plus joyeuse que ces soirs-là.
 
 Il allait et venait doucement dans la chambrée
 
-LA MORT DU BOUIF
-
 obscure, promenant son grand corps dont la silhouette
 emplissait toute l'ombre, masquant parfois la fenêtre,
 dont la vitre terne gardait un reflet vague; et de le
@@ -4689,7 +3941,6 @@ bas une payse, qui lui écrivait des lettres sur du papier
 à fleurs, orné de dentelles. Il allait se promener avec
 elle, avant son service, le long des grèves blanches de
 la rivière démesurément agrandies par la tombée des
-soirs.
 
 D'autres fois, il avait quelque menu travail à faire, un
 godillot à réparer,une pièce à remettre à une chaussure,
@@ -4712,7 +3963,6 @@ déridait tout à fait, et mettait en moi je ne sais
 
 le livre de la misère
 quelle flamme de gaieté, pareille à un soleil inté-
-rieur.
 Puis qu'aujourd'hui, ma mignonne,
 Dans les grands bois d'alentour,
 Tout s'anime et tout rayonne,
@@ -4726,7 +3976,6 @@ vivante nous caressait et nous enveloppait.
 
 Puis l'homme de chambre allumait la lampe : alors
 les fantasmagories lugubres, les apparitions vagues, le
-cortège grouillant d'épouvantes se dissipait, reculait,
 se blottissait dans les coins anguleux. Et je n'avais plus
 devant moi que cette bonne face rougeaude, avec son
 gros rire, et ses moustaches tombantes, et ses lèvres
@@ -4740,8 +3989,6 @@ coupé les jambes. Pour monter le rude escalier aux
 marches bordées de fer, il avait dû se reprendre à plusieurs fois et s'asseoir à chaque étage, sous la lampe
 fumeuse, dans les courants d'air, au milieu du va-etvient des camarades qui allaient d'une chambre à
 l'autre, après la soupe du soir.
-
-LA MORT DU BOUIF
 
 Ça lui avait pris comme un coup de fusil, au milieu
 des terres labourées où il pivotait depuis le matin,
@@ -4764,7 +4011,6 @@ amoncellements de feuilles mortes. Tout à coup il avait
 senti un mauvais frisson traverser sa chair; ses dents
 s'étaient mises à claquer, et ç'avait été en lui un froid
 de glace, si aigu et si profond, que rien n'aurait pu le
-réchauffer.
 
 Comme il était très simple et très doux, il se consolait avec des mots qu'il prononçait à haute voix :
 « Cochon d métier! la classe! Vivement le départ! »
@@ -4778,8 +4024,6 @@ Enfin il monta tant bien que mal et pénétra dans la
 grande chambre, sous les combles. Les camarades
 jouaient à la manille autour de la grosse table, sous la
 clarté vacillante de la lampe de cuivre, et des bleus,
-
-VIIL
 
 le livre de la misère
 dans un coin plein d'ombre « s'abrutissaient », sur les
@@ -4822,8 +4066,6 @@ lui-même :
 
 Zidore tout décontenancé, comme il arrive quand on
 
-LA MORT DU BOUIF
-LA
 n'a pas trouvé le placement d'une bonne plaisanterie,
 haussant les épaules et se ‘dandinant d'un air vexé,
 retourna s'asseoir auprès des camarades. Puis il se
@@ -4838,7 +4080,6 @@ L'autre ne répondit pas.
 __ Alors Zidore conclut tout haut, la main levée dans
 un geste canaille, qui ébauchait une vague basane taillée
 à l'adresse des margis, du capitaine, de l'institution
-formidable :
 
 — Moi j'm'en fous, j'installe le fourbi et compagnie :
 deux cent quatre-vingt demain matin. Y a du pied
@@ -4856,13 +4097,10 @@ comme chez soi, loin de l'adjudant de semaine, une
 acclamation s'éleva immense, débordante, folle, le
 chorus des anciens, dont les voix aiguës, chantantes
 montaient, secouant la vieille bâtisse jusque dans ses
-fondations :
 
 — La clâ-a-a-asse !
 
 La partie de manille recommença :
-
-— Atout.
 
 — Femme de cœur.
 
@@ -4888,18 +4126,9 @@ la revue du lendemain.
 
 Puis l'appel : le chef passa en coup de vent:
 
-— Manque personne, chef.
-
-— Un tel?
-
-— De garde.
-
-— Un tel?
-
 — À la tôle !
 
 Puis l'extinction des feux clama dans la nuit son
-long sanglot solitaire.
 
 #74
 
@@ -4911,9 +4140,6 @@ du lit occupé par Jean le Bouif. On voyait une forme
 vague, qui se débattait dans la nuit.
 
 Alors un de nous, s'étant relevé, ralluma la lampe à
-tâätons. |
-
-LA MORT DU BOUIF
 
 Nous vimes Jean le Bouif qui, sorti de son lit, se démenait. Les pans de sa chemise envolés derrière lui,
 comme une bannière, jambes nues et pieds nus sur le
@@ -4939,10 +4165,7 @@ nous détrompa.
 
 Il gueulait :
 
-— Volte-face à droite, volte-face à gauche! Aux
 armes, v'là l'ennemi! Au secours nom de Dieu, v'là les
-Prussiens! Attends, cochon, j'te vas bouffer lnez!
-Attrape, choucroutmann!
 
 A côté de lui, dans le lit voisin, une grosse face
 épeurée roulait des yeux hagards, démesurément
@@ -4952,8 +4175,6 @@ d'attirer l'attention, et s'enfonçait un peu plus avant
 sous les couvertures, à chaque geste menaçant du
 Bouif, ne quittant pas du regard la lame, dont le vent
 lui passait parfois à deux pouces du nez et des oreilles.
-
-199 VII.
 
 le livre de la misère
 
@@ -4965,7 +4186,6 @@ face rougeaude apparaissait à travers une buée de
 vapeur, qui s'exhalait de ses cheveux trempés de sueur
 comme au sortir d'une chaudière. Il haletaït, les flancs
 parcourus de crispations profondes, de secousses convulsives, à chaque expiration de son souffle violent et
-rauque.
 
 Il finit par s'endormir d'un sommeil lourd et fiévreux.
 
@@ -4990,13 +4210,10 @@ Et s'approchant du malade, il lui cria dans la face
 comme pour le ragaillardir :
 
 — Ohé, la coterie, deux cent quatre-vingt demain
-matin.
 
 L'autre ne bougeait pas ; on eût dit qu'il était mort.
 Et tout à coup un soupçon rapide effleura la pensée de
 
-LA MORT DU BOUIF
-ï
 | Zidore, à l'aspect de cette face hagarde et convulsée, de
 ces narines pincées, comme si la camarde les avait déjà
 serrées entre ses doigts osseux.
@@ -5035,12 +4252,9 @@ les arpions, basta pour les bottes de l'adjudant. On t'en
 foutra des hommes de la classe, qui se décarcassent
 pour un sou par jour.
 
-‘a
-
 le livre de la misère
 
 Il riait, le visage plissé de rides innombrables, subitement réconforté, avec cette versatilité d'impressions
-particulière aux simples.
 
 L'autre râlait toujours.
 
@@ -5055,13 +4269,9 @@ chose apporte avec elle.
 
 Et de nouveau Zidore eut un mouvement de colère,
 comme s'il se fût débattu dans un cauchemar : il répé-
-tait machinalement.
-
-— Cochon d'métier; cochon d'métier!
 
 Trouant la nuit de sa clameur géante, le vent s'était
 levé. On l'entendait venir du fond de l'espace, emplissant les ténèbres d'une chevauchée vertigineuse, d'une
-nuée d'êtres invisibles, soudainement déchaînés au
 dehors, quelque part, dans l'immense espace vide. IL
 accourait, ce vent, du fond des plaines glacées, où il
 aspirait l'humidité stagnant sur les labours défoncés :
@@ -5072,9 +4282,6 @@ cathédrale, dans ces architectures de colonnades
 évidées, qu'il faisait ronfler comme des tuyaux d'orgue.
 S'abattant soudain sur les toits de la caserne, dont il
 arrachait des ardoises, qui s'écrasaient dans la cour
-
-Th *
-LA MORT DU BOUIF
 
 avec un bruit mat, il coulait autour des murs, comme
 un fleuve aérien, les entourant de ses nappes frémissantes, donnant aussi l'idée d'une palpitation effrayante
@@ -5100,9 +4307,6 @@ contre les courants d'air. À chaque instant la flamme
 papillonnait, bleuissait, montait dans le verre, et mena-
 çait de s'éteindre.
 
-*
-*% *
-
 Cette nuit d'épouvante prit fin.
 
 Une lueur indécise, une clarté grise et louche filtra
@@ -5121,10 +4325,8 @@ Peu à peu le vide se fit dans la carrée, les bleus
 s'en allant à la manœuvre et les anciens au travail.
 Il ne resta plus, dans la solitude de la grande pièce,
 qu'un trompette, qui astiquait son instrument pour la
-répétition.
 
 Le souffle du Bouif montait, toujours violent et
-rauque.
 
 Les heures passèrent : la distribution des vivres, la
 corvée de quartier, l'appel aux logis de semaine sonnèrent successivement. Puis ce fut la visite du major.
@@ -5145,8 +4347,6 @@ comme par un fait exprès, jamais on n'en avait tant
 vu que cet hiver-là, où les nuits glacées suivaient les
 jours mous et tièdes, apportant des pleurésies et des
 
-ES
-LA MORT DU BOUIF
 mauvaises fièvres. Tous les matins, après la visite des
 malades, on ne pouvait pas faire un pas le long des
 remparts, autour des établissements militaires qui
@@ -5158,8 +4358,6 @@ cela semblait sortir du sol, tellement il y en avait, et
 cela s'en allait tristement, sous la pluie et dans la boue,
 se faufilant le long des murs, dans la crainte d'être vu,
 avec un air de choses honteuses.
-*
-RTE
 
 Trois jours plus tard.
 
@@ -5212,16 +4410,13 @@ un aspect de nonchalance qui sentait son grand seigneur. Tous ces riens aperçus
 tion, à nous autres, petits bleus, qui passions dans les
 couloirs, vêtus de treillis rapiécés, crottés jusqu'à
 
-LA MORT DU BOUIF
 l'échine, sentant peser sur nous l'humiliation de notre
-misère. ‘
 
 Il s'approcha de la planche à pain, et toujours dédaigneux et sifflotant, ayant pris sa boule de son, il en
 coupa une tranche mince, une espèce d'apéritif, un
 avant-goût des douceurs de la soupe. Puis, l'ayant
 mangée, il épousseta le devant de sa veste pour faire
 tomber les miettes de pain, et se dirigea vers la
-porte.
 
 Mais il se ravisa, et pirouettant sur les talons avec
 aisance et désinvolture, comme si quelque chose lui
@@ -5252,8 +4447,6 @@ Et l'on soupa tristement, les gestes s'étaient faits rares
 et contraints, les paroles lentes, et les rires étouftés.
 Dans l'air attiédi, où la fumée des pipes déroulait ses
 
-IX
-
 le livre de la misère
 
 volutes indécises, où la clarté de la lampe projetait des
@@ -5271,7 +4464,6 @@ revient encore, hallucinant et tenace, aux heures mauvaises où l'on se prend à
 de tout, aux heures de boue et d'angoisse, où l'on
 voudrait s'évader dans un monde meilleur, loin du
 mal social, loin de la misère, de la douleur et de la
-mort.
 
 Nous étions rangés dans la cour du quartier, vêtus de
 ces grandes capotes noires qui nous donnaient l'air de
@@ -5281,15 +4473,10 @@ d'anciens, sac au dos, la jugulaire au menton, et le
 mousqueton sous le bras, devait rendre à notre mort
 les honneurs militaires.
 
-— Canonniers à droite, droite !
-
 Et nous voilà partis sur deux rangs, le long des remparts, dans le chemin de ronde qui entoure la petite
-ville. |
 
 IL faisait un temps d'hiver maussade et gris. Il
 avait plu toute la nuit et des flaques d'eau boueuse
-
-LA MORT DU BOUIF
 
 restaient dans les chemins, se ridaient sous des souffles
 froids. Derrière des nuées d'un blanc sale, se promenait
@@ -5314,7 +4501,6 @@ dernier service, une poignée de main, un adieu plus
 attendri que celui des autres. Je n'arriverai pas à
 rendre cela avec des mots, mais il me semble que cette
 mission éveillait en moi des choses indéfinissables et
-douces.
 
 On arrivait à l'hôpital.
 
@@ -5325,7 +4511,6 @@ posée sur deux tréteaux. Un des coins du lourd drap
 mortuaire, galonné d'argent, s'étant relevé, on entrevoyait un peu la blancheur des planches, dont la
 misère et la nudité vous faisaient frissonner, quand on
 
-f NA
 le livre de la misère
 pensait que le pauvre bougre devait avoir froid là-
 dedans, dans ce suaire de toile mince que l'administration accorde parcimonieusement aux morts.
@@ -5342,7 +4527,6 @@ sentait le moisi et le renfermé, et devant les fenêtres
 garnies simplement de vitres claires, des rideaux de …
 calicot blanc tombaient, rigides et sans un pli, pareils
 aux rideaux qu'on voit à l'hôpital autour des lits de
-malades.
 
 Et la lumière douteuse qui venait du dehors, cette
 lumière sale d'un jour d'hiver, était encore plus froide,
@@ -5353,14 +4537,11 @@ d'un pas menu et trottinant, qui effleurait sans bruit les
 larges dalles. Faisant les préparatifs de l'office, elle
 accomplissait cette besogne avec la lenteur machinale,
 les gestes minutieux des gens qui en ont bien vu
-d'autres.
 
 Elle alluma autour de la bière des cierges minces,
 pareils à des chandelles d'un sou : un maigre luminaire
 dont les flammes tremblantes jetaient un éclat faux et
 cru sous le grand jour.
-
-LA MORT DU BOUIF
 
 Mais l'aumônier était arrivé : un vieux tout blanc
 qui se mit à oflicier avec lenteur.
@@ -5393,14 +4574,12 @@ les talons, qui rectifie la position, et donne à un homme
 cette attitude « en bois » qui marque la déférence exigée
 devant un supérieur. Rien n'était étrange et triste
 comme cet instinct de la discipline, surnageant dans ce
-naufrage.
 
 Le vieux prêtre maintenant, avec des gestes cassés
 
 le livre de la misère
 et tremblants, balançait l'encensoir autour de la bière,
 l'enveloppait des vapeurs odorantes, qui purifient et qui
-pardonnent.
 
 Puis le Dies irae clama son long sanglotement triste,
 l'appel déchirant d'une âme sur le seuil de l'éternité.
@@ -5427,7 +4606,6 @@ Dès l'abord, tout marcha à peu près. On eut même
 une minute d'émotion quand, arrivés à la porte de la
 ville, on vit le poste d'infanterie qui sortait à l'appel de
 la sentinelle, s'alignait sur un rang, et présentait les
-armes au camarade défunt.
 
 Mais, comme il était lourd, ce Bouif! Peu à peu je
 sentais le bois anguleux du brancard qui m''entrait
@@ -5458,7 +4636,6 @@ de sapin.
 
 Il était au large, dans cette bière faite à la hâte. Il y
 vacillait, il y glissait, selon les mouvements de notre
-marche cahotée.
 
 Comme je crois l'entendre encore, ce bruit sinistre, à
 de certaines heures...
@@ -5472,12 +4649,9 @@ chaque côté s'ouvraient des terrains vagues, où des
 chantiers de démolition étalaient des poutres vermoulues, des piles de planches pêle-mêle avec des monceaux de gravats. Des bicoques délabrées dressaient au
 bord du chemin leurs constructions branlantes, leurs
 
-II
-
 le livre de la misère |
 toitures de fer-blanc, leurs fenêtres borgnes fermées
 avec des oripeaux, toute la misère des faubourgs où
-grouillent d'inquiétantes larves humaines.
 
 Et toujours ce sol défoncé par le charroi, creusé
 d'ornières boueuses, où nous pataugions.
@@ -5502,7 +4676,6 @@ des cyprès mettait sa note austère, son deuil éternel.
 Au delà, des trains passaient à toute vapeur, trouant
 la campagne de leur rumeur sonore, se hâtant vers la
 vie, vers l'espoir, vers les grandes villes, où sont les
-larges activités humaines.
 
 Il avait fait très froid les nuits précédentes, et la
 terre était gelée à une grande profondeur. Les grosses
@@ -5515,8 +4688,6 @@ plus de larmes.
 
 Nous l'avons laissé là, notre Bouif, au pied de ce
 
-Are
-LA MORT DU BOUIF
 petit mur envahi d'orties desséchées. Il dort le long
 sommeil dont on ne s'éveille pas, dans sa bière trop
 grande, enveloppé du suaire de toile mince, que marchande l'Administration.
@@ -5530,11 +4701,7 @@ libre dispersion de ton être sous le ciel bleu, dans les
 frondaisons vigoureuses et dans les fleurs des champs
 qui vont éclore.
 
-k
-FAIRE
-
 Marches, contremarches, manœuvres à pied et manœuvres d'artillerie, salle de police et prison! La vie
-recommença, brutale, mauvaise, impitoyable.
 
 On se cuirasse à faire des métiers pareils et l'on n'a
 guère le temps de cultiver sa sensibilité. La souffrance |
@@ -5554,7 +4721,6 @@ Subissait-il la mystérieuse influence d'un soir gris,
 tout pareil à ceux où le Bouif chantait? Quelles associations inconscientes allaient réveiller dans la pensée
 de ce simple, ce souvenir ?
 
-153 IX.
 |
 
 le livre de la misère
@@ -5581,97 +4747,32 @@ mort, après l'autre. |
 
 |
 
-SAONE TER A RE) RE ge CALE PATES PTE PIRE ARS TEEAU ROUTE
 NT en NES RE CPR RM Al CRD A JAM (MAS pu l
 vu AA nt Lo Pr AT {FE k MA SUV NS IR
-LUN NN Fe A ENT 0
-\ KE A PT OfHN PATENTS : 5 F à L rÉSAUE
-EN AN MI TAE TE À } À OR
-A x KE ie PO { A (
-Yi 1 1 . a, \ WA
-[te | LME
-1) 0 ; S (08)
-DRE an
 | IPN ! if "TRS
-QE" j W
-HAL [ 4 pt
-APE ARE
-AR ' " DR
-' # Fi (0 Û ; 1. “RS
-“re 4 ORAN {A Art UE
-PRE) :
 
-AAA A TE r Na NAN PLAT AIRES ja HN ui |
-19 { à AURAI (Al RUE HU ENS RES PR tel LUS MS
 Le VA k \A RNA LR ANSE ne RSA NT AE Net RTL TA Ur
-A : \ | ARTE: TES AE AE AN
-DAME WT (po 2 OT UE Hat
 HUE ON LA \ RU AONONTE LRU Ale ji (RE UE
-"TU { 4 AAA MAILS ME PA
-ut h IS #1 à f
 PT b ( À L feu dOARS MENT TA AE NES
 (et | { . U Er tee RTE DA LAN
-d'A Nine Û ÉRANE HANNIREESAONES CL
 ANR SA AA NE ANNE Pete
-LE STMENTEUMER \ À VA PPRIRANE UE
-Re | | LUN ANR pain
-TONI x \ À AP PA AM ERRESntE
-LU | \\ x à Le) 100
-‘ANNEE ñ è \ AA | LES
-\ LE à L RAC RTE LAN AUS
-188 | NUE (AA HN \SERTON
-LD f HN MN A
 #00 j SA ATEN ln \a
 
 de RU PO LOL ON PU DIE UP
 LKR NN APCE Mie TER LE 4 D pos
-21200) VARIE ; M ie !
-2 NE NES AIE NET OUR
-CHERE SES, PER
-LEO AA TERRES 151600
-‘Ha ee 4 , R K
-‘50 Nue >.
 AS LE TROMPION ei
-‘4 si “ + si ST
-NE 14
-11 | 1 "M
 A STAR que | Ti
-A+ a 41 51
-hi ï \ Oo
-Hi, :
-Du €
-‘4 nt: É ; !
-D il.
-NE {ù f
-k {10e 1
-VE. t
-NL” | L'È
-Ds M:
-ETUI, 2
-: NF wi
-KL br f | ‘LU 4 :
 
-AT Re PARA AA FE LE A RURALE
-Ne PORT CAT TARA ATEN PATATE NANNAUE A A TAN De NN
-HONTE pt ART TS ANR AN Or (LATE ANG DRE Ge LANRPATEE pe IN EE PATES
-NN ï Fe OM DR PONT PAT NL LA AS AIS
 nee ni SN ae NOV ANA A A NAT E NO EEE ji DR AUS,
-‘AU FALSE AEAS LS AN RAT ALU pe à
-"FAURE / [A FE { AUS ON LE ATOME
 # nés N k \ EDR EE PO TAN AQERE EL HAN
 RAD Et si à \ S | ut ET || AE EM EN
 VARNEEe fl ï NAN RE TRS NA: ne \
 ete a AE OU KR CAN DA Le
-Der 4 pates È ù RER Hp PEN MPEG
 LA Die PAM SA RAA) DA
-e ‘à AU : à NN ARS
 rt h L'ART AUS
 ÿ io Ne PERTE à
-4 /{X “| ù AA ARE AN REUR
 | LT 1 EVA REA Do qi 1
 del ) ] ma Eu 1 tn Fil A
-
-LE TROMPION
 
 Le Trompion fit quelques pas dans son jardin, interrogeant le ciel du regard.
 
@@ -5718,7 +4819,6 @@ des éclats de voix et des discussions, qui menaçaient
 de chavirer la cambuse. Ces soldats étaient pareils à
 des forçats évadés avec leurs calots de drap, leurs
 bourgerons de toile grise, qui portaient dans le dos le
-mot ARTILLERIE en grosses lettres majuscules.
 
 Le Trompion parut satisfait. Un sourire de contentement erra sur ses lèvres minces, réchauffant pour un
 temps sa physionomie de pauvre homme, navré de
@@ -5732,8 +4832,6 @@ manche de son tricot de laine d'un geste machinal.
 
 — Chouette, dit-il tout haut, va faire beau décidé-
 ment. On pourra aller leur z'y dire deux mots.
-
-LE TROMPION
 
 La petite pluie fine et pénétrante qui tombait depuis
 le matin, noyant les arbres etles bâtisses dans une
@@ -5767,8 +4865,6 @@ Comme les petits pendus désespérément à ses
 chausses et se glissant dans ses jambes, entravaient sa
 marche et menaçaient de le faire tomber à chaque pas,
 
-k
-"|
 le livre de la misère !
 il leur dit d'une grosse voix qui voulait être bourrue :
 — Allons, la marmaille, qu'on me foute la paix et allez
@@ -5782,7 +4878,6 @@ Courroucé et ravi, le Trompion leva les mains, jeta
 un regard circulaire autour de lui, comme pour prendre è
 à témoin le ciel, la terre, les choses prêtes à s'écrouler
 devant l'énormité du fait, l'audace sans nom du
-mioche. |
 Rien ne bougea, rien qu'une hirondelle qui traversa
 avec un cri aigu le grand ciel devenu clair.
 Alors il dit, solennel et levant le doigt, tandis que ses
@@ -5800,10 +4895,6 @@ famille de bat-la-dèche! Était-ce leur faute, si leur père
 bateau de bois qu'il déchargeait. Alors lui, le Trompion, débardeur de son état, et habitué de la cambuse,
 s'était lassé d'entendre la veuve pousser des soupirs et
 
-4 LE TROMPION
-
-d
-
 | se lamenter devant les tiroirs vides de son comptoir,
 
 | et, gagné aussi par les caresses des miochons qui lui
@@ -5817,7 +4908,6 @@ Je gagne pas gros, mais ça vous aiderait à flanquer
 la pâtée à vos moutards.
 
 Elle avait accepté, sans enthousiasme, rapport aux
-enfants.
 
 Pour ça non, il ne gagnaït pas gros, le Trompion,
 par suite des chômages qui vidaient le canal durant
@@ -5848,7 +4938,6 @@ Rentrant dans la cambuse, il décrocha d'un clou un
 épervier aux mailles de soie fine, qu'il enroula autour
 
 le livre de la misère
-$
 de sa taille comme une ceinture. Il passa par dessus sa
 blouse de toile grise. Bien malin aurait été le garde qui
 aurait flairé quelque chose de suspect dans son accoutrement.
@@ -5871,7 +4960,6 @@ carottait le garde-pêche, et on se payait la tronche
 du fisc, du jean-foutre de l'octroi, assis dans sa gué-
 rite à l'entrée du faubourg. On le regardait sous le nez
 et on lui disait : « Mon vieux, j'te déclare que je n'ai
-rien à déclarer! »
 
 Poussant la porte à claire voie du jardinet, le Trompion fut tout de suite sur la grand route. Comme la
 bise était aigre et maligne, il abaissa soigneusement
@@ -5948,8 +5036,6 @@ C'était la baraque de Marquemal, un camarade du
 Trompion, un pauvre diable, qu'il emmenait parfois
 dans ses expéditions.
 
-LE TROMPION
-
 Un mince filet de fumée, s'échappant d'un tuyau de
 tôle, montrait que le maître de la maison était chez lui.
 
@@ -5965,12 +5051,10 @@ gravissant le talus, il alla rejoindre le Trompion.
 Quand il fut à deux pas, il lui détacha à bout portant
 une robuste bourrade sur l'épaule, et s'étant penché
 pour le regarder sous le nez, il lui cria joyeusement
-en pleine figure :
 
 — Alors c'est décidé. On y va.
 
 — Tout de même, fit le Trompion d'un air modeste et
-satisfait.
 
 C'était, ce Marquemal, un grand homme maigre,
 dégingandé, ayant de grands bras et de grandes
@@ -5989,7 +5073,6 @@ poches, les deux camarades se mirent en route.
 
 Après un long détour pour dépister les curieux, ils
 traversèrent la prairie et s'approchèrent enfin de la
-rivière.
 
 le livre de la misère
 
@@ -6016,15 +5099,12 @@ ment dans le crépuscule, se faisaient étranges, fantastiques, monstrueuses. :
 
 Mais ils s'arrachèrent à cette contemplation, car il
 ne fallait pas songer à jeter l'épervier dans ces eaux
-profondes.
 
 Ils reprirent leur marche le long de la rivière. Parfois
 il fallait escalader des petits murs de pierre sèche, et
 parfois aussi leurs souliers ferrés, s'enfonçant dans l'argile grasse des labours détrempés, leur donnaient la
 sensation qu'ils allaient rester là, collés à cette terre
 molle, cloués sur place, et qu'ils s'y enlizeraient.
-
-LE TROMPION
 
 Tout près d'eux la rivière glissait, avec son petit
 bruissement de chose vivante, ayant l'air de les appeler, de les inviter, de leurraconter de vieilles histoires.
@@ -6059,15 +5139,12 @@ de jour pâle, cherchant à voir clair dans ses profondeurs.
 
 Le Trompion, n'apercevant rien, se dépitait, et rele-
 
-x
-
 le livre de la misère |
 vant le nez, il se mit à contempler d'un air détaché la
 rive opposée, où des massifs de saules s'arrondissaient |
 dans l'ombre envahissante. À
 
 Tout à coup, Marquemal poussa une exclamation
-étouftée :
 
 — Bon sang, Trompion, regarde donc ! Y a des
 carpes grosses comme des bourriques. |
@@ -6098,14 +5175,10 @@ leurs ventres blancs, leurs nageoires avivées de rouge.
 Certaines, les plus vieilles, atteignaient la grosseur
 d'un enfant.
 
-À
-LE TROMPION
-
 Mais, cette fois encore, on ne pouvait songer à jeter
 l'épervier, car le fond de la rivière, depuis qu'on avait
 construit cet empierrement, était obstrué de rocs géants
 et les mailles du filet s'y accrochant, il y serait resté
-en pièces.
 
 Alors les deux bribeurs s'attardaient et ne se décidaient pas à partir, tandis que les grosses carpes continuaient, au fond de l'eau, leur promenade lente et
 balancée. Et parfois, ils avançaient la main à la surface du flot, dans un geste instinctif, tout pareils à des
@@ -6128,8 +5201,6 @@ Alors Marquemal dit :
 
 Et le Trompion répondit :
 
-— Décampons.
-
 Ils reprirent leur marche le long de la rivière, dont la
 coulée pâle venait de l'horizon, coupée parfois, sur les
 grèves plates, d'un frémissement de petites vagues où
@@ -6138,9 +5209,7 @@ se prenait le clair de lune.
 Marquemal dit tout haut, se parlant à lui-même :
 
 — Y a que dans la Réserve qu'on prendra quelque
-chose.
 
-? + USE 778
 le livre de la misère
 
 Le Trompion, moins audacieux, mais docile, acquiesça :
@@ -6154,7 +5223,6 @@ voyaient aller et venir sous le porche, dans la clarté
 trouble d'un falot accroché au mur. Puis ils traversèrent les grandes îles qui s'étendent dans le cours de
 la rivière, et qui sont réunies par des chaussées de
 moellons. L'herbe, déjà haute et mouillée de rosée,
-trempait leurs pieds, à travers leurs chaussures percées
 de trous. Des peupliers se dressaient au loin, comme
 des formes menaçantes. Ils longeaient parfois des herbages, où des bœufs couchés ruminaient paisiblement
 et soufllaient bruyamment de peur à leur approche.
@@ -6174,11 +5242,9 @@ Ils y avaient fait des pêches extraordinaires, car le
 poisson qui remonte le courant, aime les eaux vives, et,
 ne pouvant franchir les barrages, s'arrête volontiers
 dans ces trous profonds, sans cesse tournoyants de
-remous.
 
 Il fallait se garder du père Hantz, le barragiste, un
 
-4 AUS
 | LE TROMPION
 
 vieil Alsacien ivrogne, qui n'était pas commode à l'oc-
@@ -6191,8 +5257,6 @@ qu'à guetter les maraudeurs.
 
 Ils se glissèrent, rasant le mur de pierre ; Marquemal
 poussa un juron :
-
-— Bon Dieu d'bon Dieu, y en a+y!
 
 Sur les larges dalles revêtues de mousses visqueuses
 et gluantes, où courait le flot limpide, charriant du clair
@@ -6216,15 +5280,12 @@ qui bordait le pertuis :
 Une lueur pâle étincelait aux mains de l'homme, dont
 la silhouette trapue se détachait sur la nuit. C'était le
 père Hantz, qui braquait sur les maraudeurs son
-revolver.
 
 Marquemal prit son élan : escaladant le talus de
 maçonnerie, il s'enfuit à toutes jambes. Son ombre se
 perdit parmi les troncs des vieux saules, dans les profondeurs de la prairie, vaporeuse de clair de lune.
 
 Le Trompion, abandonnant son filet, se jeta résolu-
-
-173 *.
 
 le livre de la misère F
 ment à l'eau. Nageant sans bruit, il se laissa emporter
@@ -6253,121 +5314,26 @@ affamés dans « la cambuse », ouvrant la bouche comme
 des oisillons, dont on a pris la mère, et qui attendent
 en vain la becquée.
 
-Ar lee UE DER TR RE fe DSTI Lies (EEE
-. Us Re MAD A D RETOUR in
-er D PET ANRRUE Ent à A PART Sté, ï
 #70 EM en ) Re
-TR TN à de A À #1 VA
-AN 5 ! | à 2 D
-se : : : ge: AP ve]
-FLN ARTE 4 ia
-RAA ES M.
-AS cn AR
-ñ, ACT a : A
 #4 "1 A! Ê il a ve
-eu. FRS ; +70
 #4 dr spl ; n Fi
-D Fate
-Et4 PT : } ; + 0
-Pur: N:
-L * |
-FU 11e
-D L :
-æ d li
-PR
-: h.
-G: | 1 | "
-Y#R PAL
-d É. : LE
-‘sui lhe
 ll pi ; l
-Dr PE F:
-14 “ 1 110
-LM "ES
-56 1e En
 
-$ AE ART b FPE AN SNL ETONPIES De AN RAS PAU Ÿ
-D Va APT 6 t FRA 4 "ae ! QU Lo MA RE Hi
-104 y. Le dt NAME Je
-ul \ { “ER SI
 | ; : AL es. n
-00 É * : aire A LE
-M ce 14
-De:
-A : a A AS, ! ia ÿ M
-a L DE Es a re
-à } ÉGALE IE Ai
-È | LR ES NENERS
-LR È ÿ TTNRE Der
-DIS ' k ” TRI SRPTI EN
-MR ; Niue Cr AU
-4 | 6 RATE » TAC
 #40 À NS LR ue
-104 : 1 £T NN à A6
 ton F à : d je Tr ten P Qu.
 | À PNR
-15 à) Ê à) À nt: à
-‘+ + ‘ E a RARE
-“ fn | LA EA
-“à |
-Rx
 
 AXE NE TUNER GER LL l o AR TE nn
-MOT TM IT ENES + * Nue JM AE A CL GES ee.
-SE: 1 EE + ‘ n PT } MAP alt ‘AL
-HORS 137 RTS ! : \ CRD 1
-ARTE | 17 BTE D SN À RATE
-LL TANT KANERS Re } (LE EN
-PAR Ci UMR TR ÿ | RYUE IS
-à RTS TENTE | k ) di Al 3
-AT va LTIEnAt 2
-(ENS PT NS \ 4
-M eo TER
-DE LPS * ; ( 0 :
 ‘4 (He NES nd l ve
-LL PIE ' \ 4
-+ RTS . | FRET
-dou LCR À 4 à
-EAN Ù ; fs
-51100 CRI-CRI 4
-ON ï Sr
-" ) D SU
-PNA | À EEE
-RL TEL A:
-Mau n 4)
-‘00 Ds
 #4 2 La i ! L Va, ‘
-tn
 # d | Me 2
-és N'
-4 TA î DA y ln
-ni. 7 R É \ NON. :
-" À
-8 bd
-Da x M
-LR 5:15
-: Ve \#
-PEUR Pi
-iY0 "1
-RL EL), 2
 
-RCE dE CEE ee Ro A OPEL AOL MEN EE PART SOU At
-DE À H p SUN AREATONEX OUR MONTE VOITTER ÿ n
 APTE tie PRES LUN ON VOA ni ais
 110 L À Con Ve ET we A \ AR OA J LR di SAT ET OREN CAE ,
 \'ANE (AE ss Mi ñ LEA ARE ge La NT
-14 ' \ Re PS ANR
 Das. TA Rae EN MEET ES ERRES
-5% = ï ARE à
-n (EUR ‘1 P'ÉNIMENERNRE
-10 : Ai ANRSNESS
-kb » ! 4 - t 6 k A! 1) EM D'HANETES
-} Ro
-CL + F HA OANN EAN Ur NE A!
-ee : DINAN es
 LE ne ‘ANNEES
-
-CRI-CRI
 
 La pluie tombait lente, fine, pénétrante : un vilain
 temps de brouillasse comme on dit. Les becs de gaz,
@@ -6399,11 +5365,9 @@ faisait de vagues taches blanches qui flottaient dans la
 nuit confuse. Parfois aussi les lourdes cruches de fer
 étamé, heurtées contre les murs dans la précipitation
 de leur course, faisaient entendre un long froissement
-sonore.
 
 Cinq heures sonnaïent à la grande horloge, dans la
 tour de bois dressant sa masse noire au dessus des
-baraquements.
 
 Juste à ce moment, Cri-Cri, l'adjudant de semaine,
 tourna la palissade et pénétra dans la cour du quartier.
@@ -6414,7 +5378,6 @@ bout de sa moustache en croc; les molettes de ses
 éperons sonnaient sur le pavé avec un petit bruit
 métallique, et tout en marchant, il jetait un regard vifet
 fureteur autour de lui, comme une bête qui guette une
-proie.
 
 La sentinelle, qui l'avait vu venir, était sortie précipitamment de sa guérite. Drapée dans le lourd manteau
 de laine grise, elle se dressait comme une masse informe,
@@ -6423,7 +5386,6 @@ militaire, s'appliquant de toute son attention à
 maintenir la crosse de son fusil à la pointe de son
 soulier. Ainsi campée, elle ne bougeaït pas plus qu'un
 morceau de bois, oublié là au milieu de la cour, sous la
-pluie pénétrante.
 
 Cri-Cri s'approcha; il en fit lentement le tour, grommelant dans sa moustache des paroles confuses. Puis
 d'un geste brutal et décidé, il releva la grande capote et
@@ -6431,8 +5393,6 @@ se mit en devoir de vérifier minutieusement l'ajustement
 de l'homme toujours immobile. Il examina l'astiquage
 du sac, suspendu dans le dos comme une armoire,
 
-à
-CRI-CRI
 s'assura si les cartouches d'ordonnance étaient bien
 dans la cartouchière, puis déboutonnant la veste du
 soldat, il lui fit montrer ses bretelles.
@@ -6443,7 +5403,6 @@ Alors Cri-Cri se remit en marche, vaguement décontenancé, furieux de n'avoir p
 infraction au règlement compliqué du service des places
 fortes, tandis que derrière lui la sentinelle ébauchait
 un sourire de soulagement et reprenait sa faction
-somnolente.
 
 Maintenant le grand jour était venu, cette clarté
 douteuse de novembre qui filtre du ciel bas et qu'on
@@ -6465,8 +5424,6 @@ dont la blancheur déconcertait dans cette campagne
 lépreuse ; les baraquements où les régiments étaient
 cantonnés avaient l'air de villages suisses, blottis au
 
-XI
-
 le livre de la misère
 creux des pentes, avec leurs toits deplanches, leur grande
 place vide, la tour centrale de l'horloge se dressant au
@@ -6483,7 +5440,6 @@ pieux de la palissade, les rangées de pavés usés par le
 frottement des godillots. Là-bas, dans un pli du terrain,
 il avait toujours vu ce peuplier isolé, dressant sur le
 ciel d'hiver la maigreur grelottante de ses branches
-nues.
 
 Pourtant à ce moment-là, il lui sembla que ces
 pauvres choses lui parlaient un langage inaccoutumé.
@@ -6505,9 +5461,6 @@ qu'il voyait coulant dans des rives terreuses, parmi des
 pierres moussues, avec de grands remous où frétillaient
 des truites.
 
-{
-‘4
-; CRI-CRI
 i Mais il s'arracha à ces pensées.
 
 Il pénétra dans la guérite vitrée où somnolait le maré-
@@ -6528,7 +5481,6 @@ se retournaient en s'étirant sur leurs lits, et des bâillements sonores montai
 la chambrée.
 à Il s'avança, faisant sonner ses éperons sur le plan-
 
-cher :
 | — Ah! mes gaillards, on se la coule douce. Attendez,
 | j'vas vous secouer le poil...
 S'étant approché du râtelier d'armes, il passa son
@@ -6537,12 +5489,9 @@ doigt ganté sur la planche. Un peu de poussière grise
 | Il se dirigea vers le lit du brigadier, et empoignant la
 couverture, il la tira à lui vigoureusement :
 
-; — Quatre jours, brigadier Anstell, quatre jours ! Mal
 - loutu, tout ça. Ces gens sont sales.
 — L'autre se retournait, ramenait à son menton la
 4 183
-
-LL
 
 le livre de la misère
 
@@ -6576,10 +5525,6 @@ surprenait tout son monde par une exclamation
 familière : « Sont sales, ces gens-là, sont sales! » Il
 crachait ses mots avec mépris et dégoût, comme
 offusqué par le tournoiement des atomes lumineux,
-
-he
-
-CRI-CRI
 
 | par la poussière lente qui se dépose sur les objets au
 
@@ -6630,10 +5575,8 @@ dans son dos, quand il était parti, avec une sorte
 d'ironie. Mais n'empêche qu'on riait jaune et certains,
 qui passaient leurs treillis pour descendre à l'ours au
 lieu d'aller en permission, avaient des larmes dans les
-yeux.
 
 Il allait, laissant derrière lui un sillage de malé-
-diction.
 
 Tout au bout du bat-flanc, dans l'ombre d'un coin
 mansardé,on entendait monter une grosse voix bourrue.
@@ -6716,8 +5659,6 @@ naturelle avait pris le dessus. Alors le bleu se mettait
 
 il
 
-U
-
 le livre de la misère
 
 à rire niaisement, d'un rire respectueux et approbateur.
@@ -6726,7 +5667,6 @@ Sacré Joachim, en voilà un que l'orgueil des galons
 n'avait pas gâté! Les Parisiens, qui d'habitude sont si
 dédaigneux, si méprisants vis-à-vis de l'autorité subalterne, proclamaient, avec cette sûreté de décision qui
 leur est propre, que le brigadier Joachim était « un
-frère ».
 
 Le poste de police, reculé à l'extrémité des baraquements, posé au bord de la route, avait une porte donnant sur une petite cour. Des couloirs, s'ouvrant dans
 les murs, conduisaient aux cellules, à la prison, à la
@@ -6737,7 +5677,6 @@ Ayant avisé un homme de garde qui musardaïit dans \
 la cour, le nez au vent et les mains dans les poches, le
 
 ° brigadier Joachim linterpella d'une voix joyeuse et
-bourrue :
 
 — Dites donc, la flemme! quand vous aurez fini de
 vous ballader à la papa. Vous faut-il une permission de
@@ -6757,7 +5696,6 @@ prisons leur allure rébarbative.
 
 Le Bagnard apparut.
 
-be
 | CRI-CRI
 | Comme il avait l'air misérable et malheureux, le
 | pauvre bougre ! dans cet uniforme de prisonnier qui est
@@ -6795,8 +5733,6 @@ des reproches sur sa mauvaise tenue. Alors on l'avait
 
 | 189 x,
 
-L
-
 le livre de la misère |
 enfermé en cellule, en attendant qu'il passät devant l
 le conseil de guerre.
@@ -6822,7 +5758,6 @@ Son calot de drap noir, enfoncé sur ses oreilles,
 rejoignait le col relevé de sa capote; on ne voyait
 plus que deux petits yeux jaunes, qui luisaient et pétillaient de malice, dans sa face blême, hirsute, dont la
 barbe n'avait pas été rasée depuis au moins quinze
-jours.
 
 Quand ses yeux rencontraient le brigadier Joachim,
 il riait d'un bon rire confiant et ragaillardi.
@@ -6835,12 +5770,10 @@ comme ça!
 
 — Ça serait pas un coup à faire, vu que si l'adjudant
 rappliquait, ça pourrait des fois occasionner de la
-casse.
 
 | Alors l'homme de garde qui flänait dans le poste,
 
 |
-CRI-CRI
 
 occupé à déchiffrer les pancartes qui ornent les murs,
 | aflirma :
@@ -6887,7 +5820,6 @@ triste et disparut. Un bruit confus arrivait jusqu'à eux,
 traversant les murs : quelque chose comme la respiration d'une bête repue, qui souffle devant sa crèche bien
 garnie, allongée sur la paille chaude de l'étable. C'était
 la machine à vapeur de la manutention voisine, dont le
-halètement montait à intervalles égaux.
 
 Un peu de vapeur blanche sortant d'un tuyau d'échappement fusait dans le ciel pâle, comme un fin panache.
 La vapeur se condensant dans l'air froid, une petite
@@ -6903,15 +5835,12 @@ dans le petit jardin clos d'osiers secs, sur la pente d'une
 vallée des Vosges, alors que sa mère faisait cuire le
 pain et qu'une odeur fine de galette au lard trainait
 sous les pruniers, étendant dans le ciel vide leurs
-branchages grêles.
 
 Le brigadier Joachim à son tour parut avoir de cette
 mélancolie une conscience obscure. Quelque chose
 monta en lui de vague, de doux et de fort. Il se prit à
 répéter des paroles confuses, tandis qu'il jetait sur le
 Bagnard un regard attendri :
-
-k CRI-CRI
 
 — Pauvre zig: En v'là un qu'a pas de veine! Des
 hommes, c'est pourtant pas des chiens...
@@ -6943,7 +5872,6 @@ trois heures à battre la semelle contre ce mur.
 
 — Encore douze jours. Et puis les cognes viendront
 me prendre, et quand j'aurai passé au tourniquet, on me
-renverra là-bas...
 
 Il s'arrêta et reprit :
 
@@ -6969,8 +5897,6 @@ plus forts.
 l'autre qui jabote. Enregistré, pesé, on est emballé
 avant d'avoir dit ouf. Ça y est, ma vieille. à
 
-Là-bas, là-bas... |
-
 Alors en phrases courtes, qui s'épeuraient, qui semblaient chanceler devant une vision morne, d'une désolation infinie, il dit la vie des disciplinaires, la vie qui
 se traîne sous le soleil accablant, au ras des sables
 embrasés, comme un grêle cheminement d'insecte perdu
@@ -6978,7 +5904,6 @@ dans toutes ces étendues éternellement silencieuses.
 Là-bas, là-bas. Il dit les soirs flamboyants, alors que
 des ombres fauves tombent des tentes de toile, et qu'on
 se traîne haletant sur le sol, pour y boire un peu de
-fraîcheur.
 
 Des expressions lui revenaient à la mémoire. Là-bas
 on vous fait botteler du sable. Et il répétait ce mot, qui
@@ -6991,23 +5916,18 @@ temps et il rentrerait au patelin.
 L'autre eut un geste las : c'était trop loin. Pourtant il
 se ravisa, et jetant un coup d'œil soupçonneux autour
 de lui, exploitant le mouvement de sympathie, il +
-demanda au brigadier :
 
 — T'as pas un peu de tabac?
 
 Joachim hésita un moment, puis tirant une grosse
 
-CRI-CRI
 blague en vessie de porc, il la jeta au Bagnard
-accroupi :
 
 Alors l'autre roula une cigarette, et il se mit à la
 fumer lentement, à petits coups, tirant des bouffées
 régulièrement, savourant avec une inexprimable satisfaction ce plaisir dont il était privé depuis de longues
-semaines.
 
 Suivant d'un regard amusé les volutes de fumée qui
-s'étalaient, s'allongeaient, se déroulaient mollement
 dans l'atmosphère calme de la petite cour, il continuait
 sa conversation avec le brigadier, s'interrompant parfois pour trancher d'un geste coupant de sa main les
 anneaux bleuâtres, qui se séparaient en tronçons aériens
@@ -7044,9 +5964,6 @@ sur ses oreilles d'un air de défi.
 Cela fait, il rentra dans sa cellule, dont il ferma la |
 porte lui-même.
 
-*
-*X *
-
 Madame Léocadie Martin rêvait assise à sa fenêtre.
 
 Elle habitait avec son mari un petit logement, au fond
@@ -7075,12 +5992,8 @@ cour; une fontaine qui coulait sans cesse, laissait
 tomber dans un bassin de ciment son filet d'eau que le
 vent crispait, tordait, égrenait sur le pavé en un ruissellement interminable de gouttelettes. Et ce bruit de
 
-Lr
-
 | CRI-CRI
 pluie ininterrompu, ce chantonnement de source mélancolique était plus triste que tout le reste.
-
-Madame Léocadie rêvait.
 
 Un vol de pigeons tourbillonnant vint s'abattre en
 face d'elle, sur le rebord du toit. Ayant animé joyeusement le vide de la palpitation de leurs ailes blanches,
@@ -7088,13 +6001,11 @@ ils descendaient des hauteurs du ciel bleu, et se
 posaient sur le zinc de la vieille gouttière, en rangs
 serrés, bombant leur poitrine, gonflant leur jabot, étalant les reflets changeants de leur plumage couleur de
 perle. Parfois l'un d'eux, d'un geste vif et coquet, tournait un peu le cou pour plisser les plumes, de son bec
-rose.
 
 Madame Léocadie rêvait toujours.
 
 Ayant contemplé la fine collerette qui ornait le cou
 d'un mâle superbe, campé sur le rebord du toit avec un
-air d'arrogance, madame Léocadie Martin se perdit
 dans ses souvenirs. Où avait-elie rencontré une nuance
 aussi délicieuse, aussi caressante, un pareil rose noyé
 dans du bleu. Et soudain elle se rappela une robe
@@ -7144,8 +6055,6 @@ morceau de pain dur, accablée et souriante, elle eut
 plaisir à s'asseoir sur les ruines de son existence.
 Tout son passé lui revenait :
 .… Comme c'était loin tout cela ! Elle croyait voir encore |
-198 |
-;
 
 | CRI-CRI
 
@@ -7207,7 +6116,6 @@ grand cri de soulagement :
 — Ah! Georges, comme tu as bien fait de venir. J'allais
 
 * aller chez toi, tellement j'étais triste.
-*
 #
 
 Cri-Cri se dirigeait vers sa maison, ayant terminé son
@@ -7225,9 +6133,7 @@ petits coups des verres d'un excellent kirsch, limpide
 comme de l'eau de roche, pendant que sa femme à côté
 de lui travaillerait à son éternel ouvrage de tapisserie.
 
-) © je”
 | |
-; | CRI-CRI
 
 | Quelle bonne surprise pour Léocadie, qui, depuis
 
@@ -7270,7 +6176,6 @@ prenait instinctivement cette raideur automatique,
 cette attitude « en bois » qui marque le respect vis-à-vis
 d'un supérieur.
 
-À a | HAN AN AT SR
 le livre de la misère
 
 Puis, la main portée à la visière du képi, esquissant
@@ -7285,8 +6190,6 @@ du corridor sombre.
 
 Et Cri-Cri eut la sensation effarante que la chose
 n'avait pas eu lieu.
-
-ee
 
 Il sortit : la silhouette de l'officier disparaïissait au
 tournant de la rue.
@@ -7309,7 +6212,6 @@ Il marchait dans le labyrinthe des petites rues, sentant
 les pavés pointus pénétrer dans la semelle de ses chaussures. Un chien qui passa lui parut un animal extraordinaire, venu d'un continent mystérieux. Il suivit d'un
 regard curieux sa flânerie nonchalante, le long des
 
-CRI-CRI
 murs. Et trois maraîchers qui revenaient de leurs
 jardins lui causèrent une sorte de stupeur, comme s'ils
 avaient marché sur la tête.
@@ -7318,7 +6220,6 @@ Ii vivait dans un cauchemar, promenant autour de lui
 des regards d'halluciné. Et il s'attendait à chaque
 instant à voir les maisons tournoyer dans une ronde
 fantastique, les monts lointains se rapprocher et se
-confondre.
 
 Il croisa au passage une compagnie d'infanterie qui
 rentrait à la caserne: s'arrêtant sur le bord du trottoir,
@@ -7331,7 +6232,6 @@ faisaient les hommes de l'artillerie ; ainsi l'arme oscillait
 moins dans les cahots de la marche. Et ce détail
 remarqué lui fit du bien, lui permettant de se rattraper
 à un point fixe dans le désarroi où s'éparpillaient ses
-idées.
 
 Puis une douleur l'envahit, aiguë et lancinante.
 
@@ -7361,7 +6261,6 @@ englouti par l'eau noire.
 
 Et il s'attendrit sur sa misère, il fut prêt à pleurer
 sur lui, goûtant dans cet anéantissement une sorte de
-satisfaction voluptueuse :
 
 — Aurait-on jamais cru? Une femme si douce, si
 posée, si tranquille. Ah! la meilleure ne valait rien et
@@ -7372,12 +6271,10 @@ chemise! Il la renverrait dans ce costume sommaire,
 il la cinglerait de sa cravache, et tout le monde assisterait à son embarquement, à la gare, dans cet état.
 
 Un afllux soudain de sang lui monta à la tête; il vit |
-rouge. |
 
 D'un geste brusque, il arracha le col de son dolman,
 il l'ouvrit, alors il se mit à respirer bruyamment, aspirant l'air vif à pleins poumons, comme pour échapper à
 l'asphyxie, et il promena encore autour de lui son
-regard d'halluciné.…
 
 Alors seulement il pensa à l'autre. L'autre! Un oficier !Il ne s'y arrêta pas, sentant tout son frémissement
 de colère s'abattre et tomber devant la situation sociale
@@ -7385,7 +6282,6 @@ du malfaiteur, comme un oiseau qui, d'un vol étourdi,
 aurait donné de la tête contre un mur.
 
 Ye et
-CRI-CRI
 
 Il marchaït toujours.
 
@@ -7418,15 +6314,10 @@ bougres, pas plus que lui ne le pouvait à cette heure.
 Quel était le sens de tout cela ? Et ce fut comme une
 illumination soudaine, une brusque lueur d'éclair qui,
 fouillant sa vie passée, lui montra la profondeur de son
-néant.
 
 On eût dit qu'un être nouveau surgissait en lui, doué
 d'un regard plus aigu et plus clairvoyant. Il éprouvait
 
-XIL
-
-"3
-es
 le livre de la misère
 
 la sensation d'étonnement particulière à un imbécile
@@ -7442,7 +6333,6 @@ règlement, la discipline, l'institution vénérée, il s'é-
 tonnait de leur trouver la légèreté d'une noix creuse.
 
 Son désarroi moral se compliqua d'une sorte d'effroi
-intellectuel.
 
 Alors il se mit à penser tout haut, perdant la tête:
 
@@ -7465,8 +6355,6 @@ brigadier de garde, qui s'étant attendri sur leur misère,
 les avait fait sortir deleurs cellules... Ah!les gaiïllards,
 ils s'en payaient du bon temps! Ils abattaient les cartes
 graisseuses avec de grands éclats de voix et le brigadier avait l'air de s'intéresser au jeu; un banc du
-
-d CRI-CRI
 
 | poste posé en travers leur servait de table et Cri-Cri y
 
@@ -7491,8 +6379,6 @@ Cri-Cri sourit, haussa imperceptiblement les épaules,
 et passa son chemin, ayant fermé la porte derrière lui,
 tout doucement.
 
-2x
-
 Une, deux ! Une, deux! Une, deux!
 
 Trois jours après ! Toute la batterie est partie de bon
@@ -7516,7 +6402,6 @@ d'œil sur le talus de la route, dans l'espoir de rencontrer
 la borne qui indiquera qu'on avance.
 
 Bon Dieu, comme c'est long! On n'arrivera donc ,
-jamais ! |
 
 Une, deux ! Une, deux!
 
@@ -7525,7 +6410,6 @@ chaussures, habitués qu'ils sont dans leur pays à porter |
 des sabots, marchent d'un air empêtré, n'osant poser le |
 pied sur le sol. Instinctivement, ils cherchent le bord |
 de la route, où la terre est feutrée d'un peu d'herbe |
-sèche.
 
 Une, deux ! Une, deux!
 
@@ -7552,7 +6436,6 @@ du cœur aux ventres, et ragaillardir les esprits. Et les
 refrains de la caserne défilent, égrenant dans l'air froid
 leur cocasserie stupéfiante : on chante « le petit tam-
 
-; CRI-CRI
 bour qui revenait des Flandres » et « le cantonnier qui
 cassait des tas de cailloux ».
 
@@ -7575,7 +6458,6 @@ Mais que se passe-t-il ? Les pas sonnent alertes sur la
 route : les quarts, secoués dans le dos des hommes,
 battent une mesure joyeuse, les sacs, qu'on relève d'un
 coup de coude vigoureux, ne pèsent plus lourd aux
-épaules.
 
 Le brosseur a parlé; il a dit la nouvelle : cela se
 répand comme une traînée de poudre; des premiers
@@ -7593,28 +6475,21 @@ Une, deux ! Une, deux!
 s'étant ébruitée, on l'a changé de bataillon, en attendant
 sa mise à la retraite.
 
-209 XII.
-
-1 É Ke LCA QUAI
 le livre de la misère L.
 Alors dans ce grand silence que rythmait le battement 1
 des pas, le cliquetis des fourreaux de baïonnettes, et f
 le bruit des quarts secoués au dos des hommes, la Lo
 grosse voix de l'Alsacien Meyer monta, ironique. \.
 Il chanta la chanson du Beau Meunier : a:
-Li
 O beau meunier, tu es cocu, il
 Et ru, et ru, tontaine,
 En passant par ton moulin, {
 Et ru, tontain.
 
-fl
-
 L'air était allègre, le rythme cadencé. Tout le monde 4
 
 reprenait le refrain en chœur : 1]
 Et ru, et ru, tontaine ! k : k.
-be
 Les voix fortes allaient au loin dans la tranquillité b
 dormante du silence hivernal. Un homme ivre de joie, 4
 ne se contenant plus, saisit son képi, l'accrocha au baut (4
@@ -7630,18 +6505,10 @@ Au loin, tout au loin, sous les arbres blancs de givre, il
 il n'y avait plus qu'un tourbillon de poussière où dispa- |
 raissait la troupe gesticulante ; dans Pair, planait If
 toujours la clameur vengeresse.
-* 1 0 4
-À
 
 |
 
-ai LE ‘ c }
 #
-PAGES
-DRE à OR EN RNORRERUR A OEN Ber. pAE 7
-DETTES PBTCDIS CERN AM ET NUE NPA LEE EU UN PURE 9
-PMIGELICLCEELONEN A. PES NN RES
 CRE ETAN LS MU A eue e De ne be tee On
-Mamortau Bou, 4. AL RS, RRNETO
 MERRTOMPION SL 0 See el CC ET TT)
 A ET na PER

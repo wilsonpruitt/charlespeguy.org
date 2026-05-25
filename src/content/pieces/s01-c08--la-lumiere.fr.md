@@ -7,7 +7,6 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 5001
 ---
-
 *Jérôme et Jean Tharaud*
 
 Il avait neigé. La mer descendante laissait entre
@@ -35,7 +34,6 @@ dans une meule de foins l'odeur confondue des
 trèfles et des luzernes. Tu comprendras les paysages
 sans les voir.
 
-LE MAGICIEN Se
 Quand Persée partit à la conquête d'Andro-
 mède, il trouva trois vieilles femmes sur sa route.
 Seules, elles savaient le chemin qui menait à la
@@ -88,7 +86,6 @@ s main le gouvernail, de l'autre le bout de l'écoute
 plusieurs fois enroulée autour d'une amarre d'acier.
 Clément était à l'avant. L'embrun ruisselait sur
 
-LE MAGICIEN a
 sa casaque goudronnée. Abrité par le mâtet penché ; À
 sur le nez du bateau, il tendait la tête au vent. Sa
 respiration était coupée et ses yeux pleuraient. Ses ; k
@@ -122,7 +119,6 @@ Ils furent dérivés par le mauvais temps et les cou-
 rants très loin de la côte. Quandune accalmie arriva
 Braine et Majorel se mirent à la rame. Vers le matin
 ils aperçurent des falaises.
-Reims attendait au sémaphore.
 — Vous tentez Dieu.
 Debout dans le bateau Majorel lui tendit Clément
 à bout de bras.
@@ -131,13 +127,10 @@ porte de Majorel, le prêtre embrassa l'aveugle —
 Clément devina au frémissement de ses lèvres qu'il
 - était triste à pleurer.
 
-À LE MAGICIEN 123
-
 — Vous ne m'aimez donc plus que vous me cachez
 une inquiétude. ‘
 — C'est parce que je t'aime que mon cœur est en “à
 peine. Je sens mourir en toi des choses que j'aurais a;
-voulues éternelles.
 — Je ne sais ce qui meurt en moi, mais je vous
 garde tout mon cœur.
 
@@ -158,11 +151,9 @@ ne sois pas cet aveugle.
 — Je ne puis croire aux promesses divines. k
 — Le Christianisme est une vie. Si tes pensées et 4 1
 tes actes sont chrétiens ton Espérance deviendra pe
-chrétienne.
 Un jour, Majorel dit à Clément: V
 — Quittons cette ville. Je veux t''emmener dans
 un pays où il reste des vestiges merveilleux de Ja
-beauté passée.
 L'abbé s'opposa à ce voyage.
 — Cet enfant n'est pas le vôtre — sa mère me l'a
 confié comme à vous.
@@ -180,7 +171,6 @@ est le plus irrémissible des péchés.
 Clément écoutait tristement cette dispute.
 Majorel força son silence.
 — Il faut choisir entre les pensées de l'abbé et les
-miennes.
 — Vous êtes impitoyable et jaloux. Comment
 choisirais-je entre vos deux amitiés? Puis-je parta-
 ger mon cœur? Comment choisirais-je entre vos ‘
@@ -190,14 +180,11 @@ pensées? Elles forment en moi une confuse harmonie. Quand je les isole, les vô
 m'effraient — celles de l'abbé me rassurent — elles
 sont d'accord avec mes plus lointains souvenirs. *-
 Majorel s'imagina que Clément cherchait des
-détours
 — Va, ne crois pas me tromper — je vois maintenant à qui ton esprit et ton cœur sont liés. De-
 
 k meure avec l'abbé — qu'il déforme ton cerveau à sa
 guise. Je ne le gênerai plus. J'aurais souhaité seulement que tu refusasses plus franchement de me
-suivre.
 
-sortit.
 Clément entendit ses pas sur le trottoir.
 
 — Mais je ne suis pas un hypocrite.
@@ -205,8 +192,6 @@ Clément entendit ses pas sur le trottoir.
 Par la fenêtre ouverte Majorel entendit ces paroles. Il répliqua
 — Si tu ne l'es pas, prends bien garde de ne pas
 le devenir.
-
-Reims:
 
 — Excuse un homme que la passion emporte.
 J'avais peur que tu ne m'abandonnes. Je te croyais
@@ -228,10 +213,8 @@ aux stridences des ponts de fer, à l'écoulement.
 grave des écluses, les tranchées au déchirement de
 l'air, les tunnels au vacarme assourdi, aux bouffées
 de fumées humides, les plaines à la régularité du
-vent.
 
 La tombée du soir fut glorifiée par une harmonie
-d'eaux courantes.
 
 — Où sommes-nous ?
 
@@ -247,7 +230,6 @@ _. — En plein travail. L'industrie moderne des
 hommes ne trouble pas le silence des monts.
 
 Le froid devint très vif. Ils ne perçurent plus de
-ruissellements épars.
 
 — La montagne s'élève à plus de mille mètres
 dans la nuit. La neige qui la couvre est encore
@@ -276,7 +258,6 @@ chantent à la proue. Des chevaliers veillent sur un
 calice, l'épée et la lance au poing. Combien de
 temps encore les gens de cette terre verront-ils fuir
 à l'horizon les voiles noires de la galère chré-
-tienne ?
 
 Clément n'écoutait plus Majorel — il murmura
 — La mer d'Ulysse et de saint Paul!
@@ -310,12 +291,10 @@ réalité suprème de l'Univers — 4 fut juste — 7 fut
 sacré — l'octave fut l'accord parfait.
 É — Les astres, en tournant, donnaient une note.
 
-SE PI NUE LE MCAGIOTEN 7 0 /TaU in + SON NPENE
 Mais si personne n'entend l'harmonie des Sphères, "OP i
 c'est que leur musique est continue. 4 Re
 — Ce fut lui qui créa, sous une discipline austère,
 ce collège de savants qu'une brutalité ignorant.
-dispersa.
 — Socrate vint détourner les philosophes de
 l'étude des phénomènes naturels pour les intéresser
 à de misérables cas de conscience. — IL fut l'ini__ tiateur imbécile au scrupule.…..
@@ -323,9 +302,6 @@ L Cie
 ‘DH Ils s'entretinrent souvent ainsi d'hommes
 oubliés : émus d'entendre encore résonner à leurs
 oreilles l'écho de paroles prononcées il y avaitsi
-longtemps. 4 2 XTER
-« LTD
-RAA A
 
 la lumière
 Après avoir monté tout un jour, ils arriverent, le
@@ -344,10 +320,8 @@ les murs de la Chartreuse d'Emma.
 
 — La route qui descend parmi des orangers, des
 myrtes, des pins, des treilles, des cyprès, des
-platanes.
 
 — D'où nous sommes, vous ne pouvez pas voir
-‘ Florence?
 
 — Cela est impossible.
 
@@ -360,11 +334,9 @@ jouissait de la souplesse de son corps, des marches
 matinales, des siestes les après-midi, des arrivées
 l'étape quand la nuit tombe, du bon vin qu'ils
 
-LE MAGICIEN h
 buvaient dans les auberges, des mots sonores dits vue
 par les gens qu'ils croisaient sur les routes. Souvent
 ii s'arrêtait pour entendre, dans les bourgs, des
-paysans musiciens.
 
 Dans la solitude des cloîtres il suivit avec ses
 doigts, sur des pierres tombales, mainte efligie-en
@@ -374,7 +346,6 @@ d'une vierge ou d'un saint; ou bien il découvrit
 dans les herbes d'un théâtre antique, un tronc
 de colonne, un cippe abattu, la tête d'une déesse
 mutilée, le torse, les bras, les jambes éparses d'un
-athlète.
 
 Cette beauté qu'il comprenait par la caresse, le
 faisait rêver des mystères, des couleurs et des lignes.
@@ -388,7 +359,6 @@ et la reine intercédérent pour le misérable.
 Les Échevins répondirent brutalement
 . — Cet homme a mérité d'être pendu: ilsera pendu
 à moins que vous ne rachetiez sa vie pour cent
-ducats.
 
 la lumière
 Le roi et la reine fouillèrent dans leurs escar-
@@ -403,13 +373,11 @@ quand un page s'écria
 — Fouillez cet homme ; il a peut-être l'argent sur
 lui.
 On le fouilla il avait juste dans la poche les trois
-ducats.
 Le soleil avait disparu derrière une bande de
 cyprès : Majorel poussa la porte de la chapelle. Il
 vit l'aveugle qui passait délicatement ses paumes et
 le bout de ses doigts sur le mur.
 Clément sentit, derrière lui, une présence. Il
-demeura immobile.
 — Maître, est-ce vous ?
 — C'est moi.
 Clément se jeta dans les bras de Majorel et lui
@@ -431,7 +399,6 @@ scintillaient des écailles, des coquillages, des
 varechs, apparaissait glacée d'argent et miroïtante
 sous le soleil.
 Clément écoutait l'âme abandonnée à la musique, sa tristesse muée en sérénité, sa sérénité en
-joie.
 Debout près de Majorel, les mains sur ses épaules,
 il ramena sa tête contre la sienne.
 — Maître vous ne m'aviez jamais joué cette symphonie. Comme elle est belle !
@@ -456,17 +423,13 @@ Quand la violence de sa passion fut tombée, il
 commença le début redoutable que tu as entendu,
 et que lui n'entendait pas, qu'il n'a jamais entendu.
 mesure qu'il créait la paix lui était revenue et la
-joie.
 — Tu as entendu, à la fin, ce triomphe de bonheur.
 — Vous avez raison, maître, il est vain de se
 plaindre. Mais Beethoven imaginait les sons : il se
 souvenait ! Moi je n'ai la mémoire de nulle couleur.
 -_ Et puis, il avait du génie...
 
-v PER ie fee LD RAM ES PA A pa pi « HARAS PEER
-k LUS LE MAGICIEN LAN
 Reims hésitait : Zachée l'accusait de lächeté: Ne
-4 £ MAR.
 préviendrez-vous pas sa mère?
 4 — J'ai peur de perdre son amitié. Clément lui
 écrivait : Réjouissez-vous, si vous m'aimez. Je suis
@@ -481,18 +444,14 @@ comme une église où l'on ne dit plus la messe depuis
 des siècles. »
 Majorel et Clément durent revenir. : 000
 ÿ — Clément, ta mère arrive ce soir par le paques
-ans
 bot des Indes, : FR
 
 Ent Va * CET
 
-a PE TS SE NTM Ts BLEU AT NTOOU RES SMIC L EUR
 { la lumière
 Majorel et Clément rencontrèrent l'abbé sur le
-quai.
 — Pourquoi m'avez-vous trahi?
 , — Je n'ai pas voulu que tu t'endurcisses dans le .
-péché.
 — Vous savez si j'aime cette terre? Par votre
 à faute il faudra que je parte loin d'elle. Une lumière
 éclatante blessera mes yeux, une nature violente
@@ -515,7 +474,6 @@ s — Clément, ta mère te regarde.
 Fi souvenir du départ de sa famille et son désespoir
 [ne quand il avait envoyé son baiser d'adieu aux émi66
 
-d LE MAGICIEN DR
 grants. Aurait-il pu penser alors que le retour de sa
 mère lui serait si indifférent, si hostile? Il essaya de fe
 RTE « s'entraîner à la tendresse, en rappelant des his- nu.
@@ -523,7 +481,6 @@ toires de son enfance. — Une chute dans une cour + “10
 pleine de lapins et de poules, la soirée sinistre où Ne Le
 son père et sa mère avaient décidé l'exil. Il répéta
 plusieurs fois en lui-même
-« : LEA
 — Ta mère, ta mère arrive. — Tu vas entendre ta me
 mère — ta mère que tu n'as pas entendue depuis
 quinze ans. Dans quelques minutes tu embrasseras
@@ -560,10 +517,8 @@ l — Mère, vous êtes rassurée maintenant.
 jamais été séparés. Tu es l'enfant que j'ai laissé,
 mon véritable enfant, n'est-ce pas l'abbé ?
 Reims répondit après une seconde d'hésitation
-— Oui madame.
 — N'est-ce pas Majorel ? j
 Majorel ne répondit pas.
-Clément s'écria
 — Pourquoi mentir ! Vous l'abbé par des paroles
 et vous maître par du silence ! Vous savez bien l'un
 et l'autre que je ne suis plus chrétien.
@@ -581,7 +536,6 @@ tous les deux, vous, qui n'avez pas su défendre
 l'âme que je vous avais confiée, et vous, qui me “al
 l'avez volée. Vous m'avez trompée tous les deux. Ma
 — Mère, ne soyez pas injuste pour ces deux hommes. Ils m'aiment de tout leur cœur. Ils m'ont peut- ï
-être trop aimé.
 Reims et Majorel s'éloignèrent ensemble, et pour f.
 la première fois depuis le temps lointain où ils
 vivaient à l'Université, ils se sentirent l'un pour
@@ -612,10 +566,8 @@ tourbillonnantes autour du bateau. .
 s — Voit-on encore la terre?
 — On la voit toujours.
 À Le soleil se coucha que la terre n'était pas encare
-disparue.
 
 — Je n'aurais jamais cru que la terre fût si longue
-à disparaître.
 
 — Elle est tout à fait disparue maintenant, —
 descendons dans les cabines — il se fait tard.
@@ -626,9 +578,7 @@ Le Gérant : CHARLEs PÉcux
 Ce cahier a été composé par des ouvriers syndiqués
 
 Suresnes. — Imprimerie G.-A. Riciann & Compagnie, 9, rue du Pont, —
-en s'abonnant
 en abonnant leurs amis et toutes personnes à qui ces
-cahiers conviendraient
 en nous donnant des abonnements à servir à des personnes à nous indiquées d'ailleurs par nos correspondants ou par les « Journaux pour tous »;
 en nous donnant les noms et adresses des personnes
 qui nous servirions utilement des abonnements éventuels
@@ -646,20 +596,15 @@ Administration et rédaction le lundi et le jeudi, de
 1 -heure à 4 heures et demie. Adresser toute la correspondance à M. Charles Péguy, 19, rue des FossésSaint-Jacques, Paris.
 Nous publions vraiment notre état de situation : nous
 avons tiré le septième cahier à Soo exemplaires;
-outre 189 exemplaires d'abonnements annuels gra-
 tuits et 29 exemplaires d'abonnements annuels gratuits
-payés d'ailleurs,
 rous l'avons envoyé à 146 abonnés ferme,
-— à 217 abonnés éventuels
 et nous avons fait 5 1 services, dont 6 aux imprimeurs.
 
 Nous publions le 20 de chaque mois l'état de notre
 situation financière à la fin du mois précédent : ‘43 FR
-LUE
 Au 28 février les souscriptions mensuelles régu- <e
 - lières, les ae. extraordinaires, les abonnements
 “à fermes et les abonnements gratuits payés d'ailleurs
-trous avaient donné: =... 1. 17 2.104 fr.:90 : LCR
 È A la même date le premier établisse- st
 fee ment et l'établissement des quatre pre- : LPS
 Fe “miers cahiers nous avaient coûté . . . - 3.299 fr. 7O "NN

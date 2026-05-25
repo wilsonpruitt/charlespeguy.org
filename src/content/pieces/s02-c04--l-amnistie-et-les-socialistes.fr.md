@@ -7,9 +7,6 @@ author: hubert-lagardelle
 isAvertissement: false
 wordCount: 2280
 ---
-
-*Hubert Lagardelle*
-
 Le ministère Méline avait dit : Il n'y a pas
 d'Affaire Dreyfus. Le ministère Waldeck-Rousseau
 vient de prononcer : Il n'y a plus d'Affaire Dreyfus.
@@ -18,7 +15,6 @@ Dos à dos, le général Mercier et le colonel Picquart,
 Esterhazy et Zola se trouvent ainsi renvoyés : les
 uns et les autres ont été « amnistiés », les uns
 d'avoir commis des crimes, les autres de les avoir
-dénoncés.
 
 Pour les socialistes qui ont pris part à l'Affaire
 Dreyfus, l'amnistie est une faillite. Le but par eux
@@ -28,13 +24,11 @@ l'Affaire, à découvrir jusqu'au bout les grands chefs
 militaires compromis, pour retourner ensuite contre
 le militarisme, par des exemples vivants que la
 foule simpliste n'oublie jamais, leurs scandales et
-leurs hontes.
 
 Qu'on s'en souvienne : c'est sur ce point précis
 que les socialistes se sont divisés. Guesde, Vaillant
 et leurs amis ont condamné toute intervention
 
-Hubert Lagardelle
 directe et personnelle du parti socialiste, se réservant uniquement de tirer du conflit engagé la morale appropriée. Tandis que Jaurès et la grande
 majorité du socialisme français, forts de l'appui
 moral du socialisme international, se sont portés
@@ -59,7 +53,6 @@ de la masse sera troublée, elle se trouvera désorientée, elle ne comprendra p
 
 même niveau et les accusateurs et les accusés, alors
 que toute la périté et toute la justice lui avaient été
-solennellement promises.
 
 L'histoire a d'étranges ironies. C'est le même
 ministère, produit paradoxal d'une heure de trouble,
@@ -70,7 +63,6 @@ le sens de la justice et de la loi », qui réédite
 aujourd'hui l'antique politique de Ponce-Pilate, et
 se lave les mains. Et de cette contradiction inouïe,
 bien peu, parmi les socialistes engagés dans l'Affaire
-Dreyfus, paraissent s''émouvoir.
 
 On a invoqué les « nécessités politiques ». L'immortelle Raison d'État, avec son cortège d'hypocrisies et de mensonges, est réapparue. Il semblait
 que l'Affaire Dreyfus dût la tuer, et c'est elle qui
@@ -85,7 +77,6 @@ bourgeoisie française apeurée. Il est incontestable
 que cette petite bourgeoisie — le gros du pays —
 veut la paix et le repos. Son état normal est l'inquiétude mais son aspiration constante est le calme.
 
-Hubert Lagardelle
 L'incertitude de sa situation économique la tour- !
 mente. Craintive, elle s'affole à toute crise, et
 appelle à cor et à cri un « gouvernement fort »,
@@ -109,7 +100,6 @@ aliment de vie au nationalisme, du moins au nationalisme tapageur de la rue et d
 populaires, qui ne vit que de démagogie et de confusion. Il a cru en finir avec l'agitation césarienne,
 d'autant plus qu'il laissait rêver sur la terre espa-
 gnole, loin du pavé parisien, Déroulède et ses
-compagnons d'exil.
 Toutes ces raisons expliquent l'attitude du ministère si elles ne l'excusent. On comprend bien aussi
 la conduite des radicaux et des modérés de gouvernement qui l'ont suivi, et dont il servait parfaitement les intérêts électoraux. Mais comment nos
 camarades socialistes de la Chambre se sont-ils
@@ -127,10 +117,8 @@ les faits de grèves. La seconde a opéré une évolution inverse: elle a subord
 à son ministérialisme, etest restée fidèle au gouvernement. D'une facon générale, par suite des attaques
 Méline, les socialistes ont senti que la situation
 
-Hubert Lagardelle
 politique était grave et que la réaction allait tout
 tenter pour mettre le ministère en mauvaise
-posture.
 Pris par les préoccupations parlementaires, ils
 ont cédé à la volonté ministérielle. Et c'est ainsi
 que dans la presse comme au Parlement, ceux de
@@ -179,13 +167,11 @@ qui nous arrive.
 
 Et quant aux socialistes mélés à l'Affaire, s'ils ont
 
-Hubert Lagardelle
 été battus c'est par leur propre faiblesse. Privés du
 concours de ceux qui ont suivi Guesde et Vaillant,
 ils ont été impuissants à résister à leurs alliés bourgeois, qui les ont absorbés. De plus, ils se sont
 laissé paralyser par l'obsession ministérielle, et ont
 tout oublié devant la fragilité d'un gouvernement
-peu solide. .
 
 L'amnistie a ainsi une double signification : elle
 prouve d'abord que la bourgeoisie libérale en France
@@ -247,22 +233,18 @@ Ce cahier a été composé par des ouvriers syndiqués
 L'{PRIMERIE DE SuResNes (G. Ricæarp, administrateur), 9, rue du Pont.—3817
 
 Siège Social : 23, rue de Pontoise
-(PRÈS LE SQUARE MONGE)
 Publié par le Groupe seul
 Jeax Jaurès.........(L'Idéalisme et le Matérialisme
 PauLz LararGue ..... ( dans la conception de l'histoire 40 centimes
 GagrieL Devicze .... L'État et le Socialisme........ 25 centimes
 GrorGes PLEknANOrr Anarchisme et Socialisme..... 30 centimes
-(Epuisé)
 la Librairie Giard et Brière
 Émize VANDERVELDE. La Question agraire en Belgique 20 cenlimes
-(Epuisé)
 
 Dans la Bibliothèque du « Mouvement Socialiste »
 Émize VANDERVELDE. Les Villes Tentaculaires ........ 15 centimes
 JEAN JauREs......... Bernstein et l'Évolution de la
 
-Méthode Socialiste ......... 20 centimes
 la Librairie 6. Jacques
 Émire VaxperveLDe. Socialisme et Collectivisme.... 20 centimes
 la Librairie 6. Jacques
@@ -293,31 +275,8 @@ Mouvement Socialiste, à la librairie Bellais, 17, rue Cujas, Paris.
 
 JEAN JAURES......... l'Unité Socialiste.............. 5 centimes
 
-= 3 “2 fee
 Lire 18 premier et le quinze de chaque mois
 Le Mouvement Socialiste
-REVUE BI-MENSUELLE INTERNATIONALE
-FRANCE : Paris, 17, rue Cujas. — Téléphone : 801.04
 BELGIQUE : Bruxelles, 14, rue du Béguinage
-Direction : Administration
 HUBERT LAGARDELLE | Société Nouvelle de Librairie et d'Édition
-RÉDACTION
-COMITÉ POUR LA FRANCE
-PAUL DRAMAS, PAUL FAUCONNET, GEORGES FAUQUET
-PHILIPPE LANDRIEU,
-MARCEL MAUSS, LOUIS RÉVELIN, J. RIVIÈRE
-Secrétaire : JEAN LONGUET
-COMITÉ POUR LA BELGIQUE:
-CHARLES GHEUDE, MAX HALLET, EDMOND HASEN
-ÉMILE VANDERVELDE
-Secrélaire : GASTON VANDERMEEREN
-CORRESPONDANTS POUR LES AUTRES PAYS:
-Allemagne : KARL MEYER (Berlin); Espagne : PABLO iGLESIAS (Madrid)
-ADOLF BRAUN (Nuremberg) États-Unis : A. M. SIMONS (Chicago)
-he G. WEILL (Stras- | Finlande : J. DECK (Helsingfors)
 TEL On Londnes  TERSONS | Italie: A. SCHIAVI (Rome)
-Autriche : RUDOLF HILFERDING, Russie : NIKTO
-LÉON SZÉMÉRÉ (Vienne) Serbie : POPOVITCH
-Danemark : NINA BANG (Copenhague) Suisse : OTTO LANG (Zürich)
-PRIX DE L'ABONNEMENT
-AUTRES UNS MSC ASUS RRReS — 10 » —_ 5%.

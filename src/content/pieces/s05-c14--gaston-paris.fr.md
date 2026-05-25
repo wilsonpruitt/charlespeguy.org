@@ -7,8 +7,6 @@ author: joseph-bedier
 isAvertissement: false
 wordCount: 8931
 ---
-
-LES ENSEIGNEMENTS DE JÉSUS d
 : 30. Demdnde. — Quelle opinion a-t-on de ses enseignements sur ces sujets ?
 Réponse. — Une très haute opinion. À
 31. Demande. — Quelles furent quelques-unes des
@@ -19,11 +17,9 @@ les vierges sages et les vierges folles; le semeur qui
 sortit pour semer son grain ; la veuve et son denier; et
 - son miséricordieux appel à ceux qui sont fatigués et
 lourdement chargés, de venir à lui pour trouver le
-repos.
 82. Demande. — Quelle est la valeur de ces paroles
 de Jésus ?
 Réponse. — Elles sont aussi exquises que des paroles
-humaines peuvent être.
 33. Demande. — Arriva-t-il jamais à Jésus de dire
 ou de faire des choses que nous aurions tort d'imiter?
 Réponse. — Oui. Dans un moment de colère et d'impatience, il a « maudit » ses ennemis et les a invectivés. (x) IL employa la force matérielle (2) contre les
@@ -37,7 +33,6 @@ appelle les ennemis de l'Evangile des chiens et des séducteurs ? »
 (@) Voir l'histoire de son recours au fouet contre les marchands
 du Temple.
 
-1 IR ASCII TONER
 DA : le monde sans Dieu De
 | | 1 34. Demande. — Donnez des détails. ni
 ! 4 ©” Réponse. — Dans ce temps-là, en Orient, les gens
@@ -57,7 +52,6 @@ LR putrides, les nourritures toxiques ou les substances
 (} Fi médicamenteuses, les liqueurs qui causent l'ivresse, etc.
 
 di De nous endommagent fréquemment à la fois l'esprit et le
-Ja Corps.
 : 0 36. Demande. — Quand Jésus détruisit-il des biens
 128 appartenant à son prochain ?
 | 4 . Réponse. — Quand il fit noyer un troupeau de deux
@@ -65,14 +59,9 @@ Ja Corps.
 | NES 37. Demande. — Personne serait-il autorisé aujour-
 | pu d'hui à faire ce que Jésus fit dans cette occasion ?
 dust Réponse. — Nos lois punissent des actes comme
-4 celui-là. \
 ï ÿ (1) Nul doute que les moines et anachorètes du Moyen-Age qui
 Je cultivaient la malpropreté comme une vertu ne se rappelassent
 4 cette célèbre parole de Jésus.
-‘3 (2) Matthieu, VIII, 28-34.
-a 78 ÿ
-
-LES ENSEIGNEMENTS DE JÉSUS
 
 38. Demande. — Mais si Jésus était Dieu, n'a:t-il pas
 eu le droit de faire ce qu'il voulait ?
@@ -91,7 +80,6 @@ qui précède que Jésus était sévère et injuste?
 Réponse. — Non. Bien des passages de l'Écriture le
 décrivent comme le plus doux, le plus généreux et le
 plus fraternel des hommes, celui qui « allait faisant le
-bien ».
 
 40. Demande. — N'est-ce pas une contradiction ? à
 
@@ -127,7 +115,6 @@ F la non-résistance au mal. (4)
 leurs libertés et de leurs droits?
 Réponse. — I] leur disait de se réjouir et d'exulter de L
 À joie, car ils auraient leur dédommagement dans l'autre
-' monde. (5)
 (1) On peut voir par le passage suivant de quelle manière l'Église
 a interprété cet enseignement de Jésus : « Si quelqu'un dit que l'état
 : de mariage doit être préféré à l'état de virginité ou de célibat, qu'il l
@@ -147,7 +134,6 @@ fl préféré, tandis que les protestants, qui croient au mariage, montrent
 1 une joue présente lui aussi l'autre. » (Luc, VI, 29.)
 # (5) Matthieu, V, 12; et aussi : « Heureux ceux qui sont dans l'afflic-
 \ tion, car ils seront consolés. » (Matthieu, V, 4.) — « Vous êtes bienheuMN) reux, pauvres, parce que le Royaume des cieux est à vous. Vous êtes
-à) ÿ
 
 : se LES ENSEIGNEMENTS DE JÉSUS
 
@@ -171,23 +157,18 @@ dédommagés dans une vie future ? .
 Réponse. — Non; car ils seraient assurés que
 justice leur sera rendue dans l'autre monde, et puisque
 leurs oppresseurs seraient sûrement punis là-bas, ils
-pourraient être laissés en paix ici-bas. (1)
 
 48. Demande. — Convient-il d'être content dans la
 pauvreté et l'oppression ?
 
 Réponse. — Ce serait une trahison envers nos semblables d'encourager ces maux en nous y soumettant. je
 
-ï
-pre
 bienheureux vous qui avez faim maintenant, parce que vous serez ja
 rassasiés. Vous êtes bienheureux vous qui pleurez maintenant, parce
 “ que vous serez dans la joie. » (Luc, VI, 20-21.) — « Maïs malheur
 Ê à vous, riches, parce que vous avez déjà reçu votre consolation. » d
-(Luc, VI, 24-25.)
 (1) Comparer à la parabole du blé et de l'ivraie qui grandissent
 ensemble jusqu'au jour de la moisson.
-81 V.
 
 Le TA NS AE ES De re AN Qi
 Y le monde sans Dieu...
@@ -199,8 +180,6 @@ nr faible et misérable ?
 M 50. Demande. — Que devons-nous faire alors ?
 pr) Réponse. — Faire tout au monde pour améliorer
 oi: notre condition, dès à présent et ici-bas. ;
-à
-‘4 % # # .
 Br 51. Demande. — Résumez les vues de Jésus au sujet
 14 de la justice. :
 1 Réponse. — Ceux qui possèdent leur récompense
@@ -217,19 +196,8 @@ EL souffrent ici-bas, iront dans le sein d'Abraham. (1) *
 2 at-elle été bonne ou mauvaise ? '
 K Réponse. — Ses paroles d'amour et de bonté ont par- }
 ‘i fumé les siècles, mais ses doctrines théologiques ont Le
-A 2 ° .
 1 causé beaucoup de haïne et d'effusion de sang. $
-Mure. AN
-A 1
-ANSE
-NÉ {
-HEC (1) Luc, XVI, 19.
-FA |
-pt #. ; K
-4 f;
-M : IT
 
-CHAPITRE IX
 L'Église
 
 4. Demande. — Définissez le mot « église ». ;
@@ -247,22 +215,17 @@ ou de damner les âmes pour l'éternité. République à
 l'origine, l'Église devint un corps hiérarchisé.
 
 3. Demande. — Quelles sont les plus anciennes
-Églises ? :
 
 Réponse. — Les églises Catholique, Grecque, Armé-
 nienne et Nestorienne ; et les églises modernes sont les
-églises Luthérienne, Épiscopalienne, Presbytérienne,
-Baptiste, Méthodiste, etc.
 
 4. Demande. — Existe-t-il d'autres Églises ?
 
 Réponse. — Les églises libérales, — savoir l'église
 
 LUS le monde! sans Dieu MNPANONPARARNNES
-Run . . . . . ATEN GT
 174 Unitarienne, Universaliste, et Non-Sectarienne,— Unseca \ tarian.
 1 5. Demande. — Fraternisent-elles entre elles ?
-if Réponse. — Oui, davantage aujourd'hui qu'autrefois.
 Ki Les progrès des sciences ont arrêté toutes les persécu-
 à ; tions de secte à secte qui ont jadis déshonoré l'humajh nité.
 1 6. Demande. — Coopèrent-elles quelquefois sur le
@@ -270,36 +233,23 @@ Ki Les progrès des sciences ont arrêté toutes les persécu-
 1 Réponse. — Plus dans ce pays (1) que dans aucun |
 M autre, ce qui est un symptôme plein d'espoir, car il
 
-Ne . ; .
 PE, montre que l'esprit de tolérance gagne du terrain.
-‘Nb f ‘
 1 7. Demande. — Quelles causes contribuent à cette
-À ÿ évolution libérale ? ï
 “. Réponse.— L'instruction et le commerce; et aussi les à
 ne efforts et les exemples d'hommes et de femmes coura- À
 il) al ‘
-1 geux.
-(Qi Eu
 Le 8. Demande. — Quelle est l'Église Chrétienne la plus 6
 on ù ñ is E'
-ie: formidable aujourd'hui ? dent:
 ji: Réponse. — L'Église Catholique. 3
 ‘à « 9. Demande. — Comment l'Eglise Catholique est-elle |
 AN: Réponse. — Elle fut organisée à peu près à l'époque |
 RU où l'Empire romain a été converti au christianisme.
 ne. L'empereur Constantin (2) fut le premier empereur
-M'A Aile £ # .
 
 Mo chrétien et le protecteur de l'Église Catholique.
 
-44e (1) [Aux États-Unis.]
 YEN (2) Cf. Jules Simon, la liberté de conscience, pages 32-35. ;
 
-PA
-
-VER }
-
-dés
 nt L'ÉGLISE
 10. Demande. — Quelle sorte d'homme était-ce ?
 Réponse. — Il était à la fois cruel et faible. Parmi
@@ -316,15 +266,12 @@ Réponse. — C'est depuis lors que les prélats, pontifes
 et papes prétendent à une autorité universelle sur
 toutes choses, aussi bien temporelles que spirituelles.
 43. Demande. — L'Église Catholique devint-elle
-prospère ? $ à
 Réponse. — Elle devint avec le temps plus puissante
 que l'Empire romain.
 44. Demande. — Quel usage l'Église fit-elle de cette
-vaste puissance ?
 Réponse. — Elle ajouta sans cesse à ses ressources à
 pécuniaires et politiques, domina la conscience des
 peuples, mit à mort tous les hérétiques, et proclama é
-a nl val
 (4) Constantin, dans sa robe de soie brodée d'or, a présidé le A
 _ Concile de Nicée, réuni pour procéder contre l'hérésie d'Arius. Au F
 concile de Chalcédoine, les prêtres présentèrent l'adresse suivante |
@@ -332,7 +279,6 @@ concile de Chalcédoine, les prêtres présentèrent l'adresse suivante |
 Que le roi du ciel garde le roi de la terre, telle est la prière de
 l'Eglise et du clergé », etc.
 
-a AIN NL EM HR AA ETES SR AN EC A D St dr
 140 le monde sans Dieu MERE
 : ke que nul ne pouvait avoir Dieu pour père, à moins qu'il
 nt | n'acceptât aussi l'Église pour mère. (1)
@@ -344,16 +290,11 @@ AVS 15. Demande. — Quel est le verdict de l'histoire sur
 ‘1 son passé ?
 # Réponse. — L'Eglise Catholique croit qu'elle ne peut
 di: jamais se tromper, et en conséquence elle n'a pas de
-D: regrets. (3)
 Al 17. Demande. — Pourquoi ne persécute-t-elle plus
-‘10 aujourd'hui ?
 18 Réponse. — L'État ne le permet pas.
-4 k (1) Cf. Winwood Reade, Martyrdom of man.
-if (2) Cf. Lecky, History of European morals.
 " (3) Cf. Jules Simon sur le massacre de la Saint-Barthélemy, Liberté
 Fe de conscience, pages 43-84. Dans son Histoire de France, Henri Martin
 WA cite ces terribles mots d'un prêtre catholique en réponse aux sol4 dats qui se plaignaient de ne pas reconnaître les catholiques des
-“is CNT A s. A :
 {1 hérétiques : « Tuez, tuez tout », réponditle prêtre, « Dieu reconnaîtra 2
 A les siens. » La joie de l'Europe catholique lors du massacre de la
 4 hi: Saint-Barthélemy fut si grande que le Parlement français décida
@@ -372,11 +313,6 @@ Ru) terminait en déclarant que Charles IX, Catherine sa mère, et le
 ‘ Pape étaient bénis entre tous les hommes d'avoir été choisis pour
 LA exécuter le massacre des huguenots! — Les prédicateurs de la Ligue,
 Jai de Labitte.
-‘ei |
-M} ñ
-34 1:40
-
-L'ÉGLISE
 
 48. Demande. — L'influence de l'Église Catholique
 a-t-elle été entièrement mauvaise ?
@@ -402,7 +338,6 @@ Réponse. — Henri VIII d'Angleterre, qui s'était querellé avec le pape.
 
 Réponse. — Le Roi souhaïtait de renvoyer sa femme
 pour en épouser une autre, et le pape ne voulait pas
-y consentir. (2)
 
 . (©) Sur son lit de mort, Martin Luther put dire qu'il avait vaincu
 trois papes, un roi et un empereur.
@@ -415,17 +350,12 @@ précipita la rupture entre l'Angleterre et Rome. Pendant longtemps
 romaine de croyance et de pratique. Cf. Mosheim, Ecclesiastical
 history. On dit que Charles V, parent de la Reine d'Angleterre, usa
 
-Wi ; PT SONT NMEN MARS FU
 ue le monde sans Dieu PNR
 Ne 23. Demande. — Que fit alors le roi? 4
 ut : Réponse. — Il fonda une nouvelle Église, dont il
-A + É . . . .
 k. devint le maître absolu, et qui lui laissa faire ce qui
-: lui plut. (1)
 ï 24. Demande. — Quel est le nom de l'Église, d'Amé-
-pi à rique?
 x Réponse. — L'Amérique n'a ni Église d'Etat ni Eglise
-“1 nationale. *
 ce és je 2
 a 25. Demande. — Toutes les Églises y sont-elles tolé-
 Le rées ?
@@ -433,16 +363,11 @@ Le rées ?
 À qu'en Amérique l'État ne confère à l'Église aucun droit
 14 propre, — en exemptant d'impôts les biens des Eglises
 (8 il force indirectement le public à payer pour elles.
-V4 ‘
-j
 4 26. Demande. — L'Eglise est-elle aujourd'hui sur un
 ‘ pied d'égalité avec l'État dans aucun pays ? à
 ; Réponse. — Non. L'Église, qui jadis gouvernait à la
 : fois les rois et les peuples, est maïintenant partout
-i LS !
 4 subordonnée à l'Etat. ‘À
-i ÿ
-' À
 is de son influence pour empêcher le pape d'accorder le divorce. È
 "a Henri se maria six fois, envoya trois femmes à l'échafaud, et fit
 ' aussi décapiter sir Thomas Moore pour avoir refusé de le recon-
@@ -456,15 +381,8 @@ mue avons ici la première affirmalion formelle de la suprématie de |
 Qu l'État Séculier sur le Spirituel. Les théologiens de Westminster, qui
 \e0 ont formulé un des credo les plus autocratiques qui soient, l'ont
 0 présenté au Parlement comme « leur humble avis ».
-FR |
-ix 88
-
-À L'ÉGLISE
-
-27. Demande. — Quelle conséquence implique ceci?
 
 Réponse. — Qu'une Eglise qui obéit au pouvoir séculier au lieu de lui commander ne peut pas être une
-institution divine. (1)
 
 28. Demande. — La constitution américaine reconnaît-elie la religion chrétienne d'une manière quelconque ?
 
@@ -475,7 +393,6 @@ ne figurent pas dans la constitution américaine. (2)
 
 Réponse. — Presque autant que les catholiques,
 mais les protestants ont honte de leurs persécutions
-passées. (3)
 
 30. — Demande. — Les persécuteurs catholiques ou
 protestants étaient-ils toujours de méchants hommes ?
@@ -494,8 +411,6 @@ venant de l'Homme, — et non comme venant de Dieu.
 constata que le gouvernement américain n'était « en aucun sens
 fondé sur la religion chrétienne ».
 
-() Cf. Schaff, Creeds of Christendom.
-
 | (4) On a fait observer aussi que peut-être l'hérétique était brûlé
 
 au pilori parce qu'il était plus facile de le réduire au silence par le
@@ -504,27 +419,15 @@ feu que par des arguments. L'Eglise dans ce temps-là revendiquait
 
 le droit de tuer tous ceux qu'elle ne pouvait pas convertir. Cf. Story
 
-of the Crusades, the Inquisition, etc.
-
-89 :
-
-Li
-TA
-
-4e QUE UN ONE TER NE E
 Sa ! FA HAVE Prat:
-A v : AA Pre 1
 À le monde sans Dieu 4
-ne | . Ve 4e
 31. Demande. — Pourquoi l'hérésie n'est-elle pas
 4 dénoncée de nos jours avec autant de véhémence qu'au
-trefois ?
 | Réponse. — Parce que nous avons appris qu'un doute
 honnête vaut mieux qu'une croyance aveugle. (1)
 32. Demande. — Un homme qui ne sait pas douter
 peut-il savoir comment croire?
 | Réponse. — Pas avec intelligence.
-\
 Q 33. Demande. — Comment appelle-t-on la foi qui est
 | inintelligente ?
 Réponse. — La superstition.
@@ -541,13 +444,9 @@ Réponse. — Attribuer à un objet des vertus ou des
 1 investi de vertus imaginaires ?
 ! Réponse. — Un fétiche.
 | HE
-hi
 \ @) I y a plus de foi vivante dans un doute honnête que dans la
 à moitié des credo. (Tennyson.)
-ï
 
-Fe NS ee
-CHAPITRE X
 L'Église libérale (1)
 
 4. Demande. — En quoi les Églises libérales diffèrent-elles des orthodoxes a
@@ -562,15 +461,11 @@ _ Réponse. — Pas au même degré, car ils croient que k
 la Révélation est une autorité plus haute que la raison.
 
 3. Demande. — Quelles sont les croyances des
-Églises libérales ?
 
 Réponse. — C'est très difficile à dire, car les Églises
 libérales ne suivent ni la Révélation ni la raison exclusivement, mais elles s'efforcent de se faire guider un
 peu par toutes deux. '
 
-(1) [Protestante.]
-
-à AA NS RES A UE 4e k
 Fà le monde sans Dieu VPN
 | ï
 1 \ 4. Demande.— La Révélation ne peut-elle se concilier
@@ -602,16 +497,11 @@ fi riorité de la Bible sur tout autre livre, et les rites du
 ) fient-elles la position qu'elles ont prise?
 | ' Réponse. — Généralement d'après la Bible. à
 
-ae rt Sr A A or uit
-+ AQU tE TES
-‘à L'ÉGLISE LIBÉRALE
-9. Demande. — Etles Églises orthodoxes ?
 _ Réponse. — Exclusivement d'après la Bible.
 40. Demande. — Quel est le but principal de l'enseignement des Églises libérales?
 Réponse. — Elles s'inquiètent peu de la théologie et
 beaucoup des âmes.
 41. Demande. — Les Églises libérales sont-elles en
-croissance ?
 Réponse. — Elles n'augmentent pas numériquement,
 mais leur influence a été grande dans le monde religieux. (1) Elles ont obligé les orthodoxes à délaisser
 bien des croyances et des pratiques enfantines ou ridicules, et ont contribué à ramener l'attention des fidèles
@@ -619,18 +509,14 @@ de la théologie à la science, à la philosophie et à la
 morale. Les Églises libérales ont rendu à la religion
 le service inestimable de l'arracher aux dialectiques
 . stériles pour la ramener aux réalités concrètes.
-_ 12. Demande. — Quels autres mouvements religieux
 existent dans ce pays ? (1)
 À Réponse. — Le Spiritisme, la Théosophie, la Science
-_ chrétienne, etc...
 … 413. Demande. — Quelle est la doctrine spirite ?
 … Réponse. — Elle enseigne que nous pouvons commu- F
 ï niquer avec les esprits des morts.
 4 14. Demande. — Comment essaye-t-on de prouver
 … cette assertion ?
 À Réponse. — Par des citations de la Bible et par le
-; (1) [Aux Etats-Unis].
-é 93
 
 le monde sans Dieu
 témoignage d'hommes et de femmes actuellement « vivants. À
@@ -638,9 +524,7 @@ témoignage d'hommes et de femmes actuellement « vivants. À
 Réponse. — Généralement des mediüms, qui gagnent
 leur vie en donnant des consultations ou en organisant
 des séances. |
-à : i
 16. Demande. — Quelle est la réputation de ces
-mediums ?
 Réponse. — Elle n'est pas des meilleures. |
 17. Demande. — Qu'est-ce que la Théosophie ?
 Réponse. — Cette doctrine enseigne qu'il existe des « « Sages », ou « adeptes », ou « maîtres », qui sont devenus dieux et qui dirigent les affaires humaines ‘et
@@ -656,12 +540,8 @@ Réponse. — La croyance qu'une certaine dame de”
 À spéciale de Dieu. ù ;
 () « Nous récoltons dans cette vie ce que nous avons semé dans
 } une existence précédente », telle est l'idée fondamentale du Boudl: dhisme et de toutes les philosophies religieuses de l'Orient.
-) 94
-
-L'ÉGLISE LIBÉRALE
 
 21. Demande. — Précisez la nature de cette révé-
-lation.
 
 Réponse. — Rien n'existe que Dieu ; Dieu est santé et
 pureté ; donc les maladies et le péché sont des illusions.
@@ -680,7 +560,6 @@ effets sont des illusions aussi.
 
 24. Demande. — Les fâächeux effets de l'ivrognerie ou
 de la malpropreté peuvent-ils être traités, sans écarter
-d'abord leurs causes ?
 
 Réponse. — Ce n'est pas possible.
 
@@ -698,13 +577,10 @@ la chose.
 (2) Voir la défense de madame Eddy, [la fondatrice de cette religion!, quand elle alla chez un dentiste. — Mélanges.
 
 à le monde sans Dieu
-À
 26. Demande. — Que font de l'argent ces Savants
-f Chrétiens ?
 : Réponse. — Ils l''emploient pour les nécessités du
 | corps.
 \ 27. Demande. — Les Savants Chrétiens croient-ils au
-corps ?
 | Réponse. — Non.
 ? 28. Demande.— Que doit être un jugement impartial
 ne sur la Science Chrétienne ?
@@ -721,12 +597,7 @@ matières de croyance et de conduite.
 fi établir aucun rapport entre cette vie et une vie avant,
 Î ou une vie après, et sans aucun rapport, non plus, avec
 À des dieux, des démons, un ciel ou un enfer.
-4 (1) [Aux Etats-Unis.]
 44 (2) [Pour la culture de la morale.]
-« iv f
-
-ST CARS L
-L'ÉGLISE LIBÉRALE
 
 31. Demande. — Cet enseignement nie-t-il Dieu et la
 vie future ?
@@ -739,13 +610,11 @@ l'esprit?
 
 \ Réponse. — Oui, et c'est aussi celle qui est le plus :
 pleine d'espérance, car jusqu'à ce que nous comprenions notre ignorance, nous ne chercherons pas à
-savoir. (1)
 
 33. Demande. — La connaissance de notre ignorance
 est-elle le commencement de la science ?
 
 Réponse. — Oui, et la promesse des lumières
-futures. (2) \
 
 l () « Rien n'éloigne un homme de la science et de la sagesse
 
@@ -756,15 +625,9 @@ n'existe pas de surnaturel, il est inutile de donner ici un exposé
 
 - plus complet de la philosophie de ces Sociétés indépendantes.
 
-YI
-
-He
-
 ne CHAPITRE XI
 F Les « credo »
-Re
 
-"À
 1 1. Demande. — Qu'est-ce qu'un credo?
 
 à Réponse. — Une règle de foi, c'est-à-dire une expres-
@@ -779,24 +642,19 @@ Ra Réponse. — Il vient du premier mot du symbole des
 ‘4 Réponse. — Les dissentiments et les désaccords
 entre les fidèles sont responsables des credo du
 
-b christianisme. (2)
 K 4. Demande. — De quelle époque datent les premiers
 28 dissentiments dans l'Église ?
 
 ni. Réponse. — Le premier eut lieu entre les Apôtres
 Ni Pierre et Paul; le premier représentant le parti Juif
 ni dans l'Église, et le second le parti des Gentils.
-1 TT SRNT \
 Ki (1) On l'appelle aussi un « symbole » ou une « confession » de
-: 00 foi — Symbolicum apostolicum. À
 Aa (2) On prétend que Jésus a proclamé la nécessité d'un credo
 459 quand il a dit : « Quiconque donc me confessera devant les
 
 ï \ hommes, je le confesserai aussi devant mon père qui est aux
 
 hr. cieux. » (Matthieu, X, 32, 33; Epître de Paul aux Romains, X, 9,10.)
-
-LES ( GREDO »
 
 5. Demande. — Le désaccord fut-il sérieux ?
 
@@ -805,7 +663,6 @@ car il accusa Pierre de dissimulation, d'hypocrisie, et
 d'une conduite inique. (1)
 
 6. Demande. — Quel était l'objet primitif d'un
-credo?
 
 Réponse. — D'établir par force l'unité de la croyance
 et d'excommunier les hérétiques. (2)
@@ -814,7 +671,6 @@ et d'excommunier les hérétiques. (2)
 tentative appuyée sur ces credo?
 
 Réponse. — Celle d'empêcher personne de penser
-librement.
 
 * 8. Demande. — Quel est le credo considéré comme le
 plus ancien ?
@@ -834,14 +690,12 @@ des Apôtres?
 
 Réponse. — La question de cette origine est entourée
 d'une aussi grande obscurité que celle de l'origine des
-Évangiles. {
 
 (1) Lire l'Épître de Paul aux Galates, et aussi les premiers chapitres de l'Apocalypse et les Actes des Apôtres.
 
 (2) Hérésie vient d'un mot grec et signifie « examiner », « choisir ».
 
 | 99
-TR Lit Be
 
 110 le monde isans Diet NON
 le. 411. Demande. — Quels sont les points fondamentaux
@@ -858,7 +712,6 @@ N de ces aflirmations ? \
 k fe sont vraies.
 54 13. Demande. — Les Mahométans et les Bouddhistes
 me. offrent-ils des preuves à l'appui des doctrines de leurs
-di credo ? \
 Un. Réponse. — Non, ils acceptent également les leurs.
 
 de % 14. Demande. — Comment pouvons-nous savoir
@@ -878,23 +731,16 @@ ne sion d'une dénomination d'Église ou d'une secte, et la
 ! ‘4 mêmes inspirés et élus par Dieu, tous Les autres
 
 ds hommes sont damnés. |
-:44
 1 k 46. Demande. — Parlez-moi maintenant du symbole
 4 de Nicée.
 
 ‘ Réponse. — Celui-ci a été formulé par une assemHN blée de 318 évêques dans la ville de Nicée, près de …
 he { Constantinople, en l'année 325. Ce concile a excom-
 
-F. 4 100 ,
-
-ROUES 4 :1re
-
-LES ( CREDO »
 munié les Ariens (1) et a fulminé l'anathème contre
 eux pour avoir mis en doute le dogme de la Trinité. .
 
 17. Demande. — Quel est ensuite le plus important
-credo ?
 
 Réponse. — Celui d'Athanase, qui est Le plus désagréablement dogmatique et intolérant des anciens credo et
 qui est unique dans ses clauses damnatoires. Néanmoins il était tenu en haute estime. (2) On le chantait
@@ -902,13 +748,11 @@ comme un cantique dans toutes les Églises et il est
 encore en vigueur dans le christianisme officiel.
 
 - 48. Demande. — Quel est le credo de l'Église
-grecque ?
 
 Réponse. — L'Église grecque ou orientale soutient
 que le Saint Esprit procède du Père seulement et non
 du Fils. Pour cette hérésie elle fut excommuniée par
 l'Église catholique, mais l'Église grecque, en retour,
-excommunia celle-ci.
 
 49. Demande. — Quel est le credo de l'Église anglicane ?
 
@@ -923,44 +767,28 @@ Réponse. — « D'abolir la diversité des opinions » et
 () Les sectateurs d'Arius, qui avaient des opinions hérétiques sur
 la divinité du Christ.
 
-(2) Cf. Schaff, Creeds of christendom, volume I, page 41.
-
-IOI VI.
-
 D le monde sans Dieu
 ‘4 Ù 21. Demande. — Était-il obligatoire en Angleterre de
-4 souscrire aux trente-neuf articles ?
 ; Réponse. — Oui. Même les universités d'Oxford et de
 ‘4 Cambridge exigeaient de tous ceux qui prenaient un
 0 grade qu'ils souscrivissent aux trente-neuf articles avant
 L de recevoir leur diplôme ; un Bill du parlement obli4 geait tous les professeurs et prédicateurs à y sou-
-‘ scrire.
 : 22. Demande. — Cette loi atteignit-elle son but ?
-Réponse. — Non.
 ‘ 23. Demande. — La coercition peut-elle empêcher les
 Don! gens de penser ?
 # Réponse. — Elle peut seulement les empêcher d'ensei3 gner ce qu'ils pensent.
-Fe.
 24. Demande. — Que sont des gens qui pensent une
 1 chose et enseignent une autre ?
 \ Réponse. — Des hypocrites.
-d
 j 25. Demande. — Que s'ensuit-il ?
 É Réponse. — Que le seul résultat de la coercition est
 he de faire des hypocrites.
 F3 26. Demande. — Quel est le plus important des
-à ; credo modernes ? (1)
 nr \ Réponse. — Le symbole de Westminster, formulé par |
 hi. une assemblée consistant en cent cinquante membres
 n choisis et réunis par un Act du Parlement en 1643 pen
 ‘1 dant le court règne du Presbytérianisme en Angle-
-‘14 terre. FA
 # ©
-à : (1) [Protestants.]
-% 102
-14 P” Te
-
-LES € CREDO » :
 
 27. Demande. — Quelles sont les idées dominantes
 de ce Symbole?
@@ -1001,27 +829,11 @@ clergymen déclara : « Si un homme n'était jamais né, il serait
 
 (3) Les Eglises américaines ont modifié cet article.
 
-103 | À
-
-Ye ‘ f 20 VE MEL E SRE NT
-
-Mur: % COPA! ER NE EN
-
 1 le monde sans Dieu
-
-Jr 4
-
-‘e e
 
 k « Dix commandements défendent de tolérer une fausse
 
-k religion ». (1)
-
 5 30. Demande. — Peut-il exister une Église sans aucun
-
-te credo ?
-
-À » . . .
 
 Réponse. — Non. Une organisation, quel que soit son
 
@@ -1031,19 +843,13 @@ fl but, doit avoir un programme, une déclaration de
 
 | le plus large, est un credo. \
 
-À
-
 7 34. Demande. — Pourquoi alors incrimine-t-on les
-
-ÿ credo ?
 
 Fi Réponse. — Ce n'est pas parce qu'ils renferment un
 
 ‘ énoncé de croyances, mais parce que cet énoncé est
 
 Ur étroit, intolérant, et fermé au progrès.
-
-it?
 
 F 32. Demande. — Quel est le meilleur credo?
 
@@ -1069,8 +875,6 @@ des connaissances grandissantes de l'homme.
 
 1 inadmissibles pour la raison, l'autre accueilie toutes È
 
-, \ .
-
 ne (1) « Non seulement il est permis de punir par la mort ceux qui F
 
 CA travaillent à renverser la vraie religion, mais les magistrats et le
@@ -1079,17 +883,6 @@ i peuple ont le devoir de le faire sous peine d'attirer la colère de
 
 ni Dieu sur eux-mêmes. » — John Knox, History of Mary I., queen of
 
-f à England ; E. P. Dutton and Co. |
-
-a 104 |
-
-(y
-
-L Di
-
-ANPAIL LE. We
-
-LES € CREDO } »
 les forces dont le progrès des connaissances est
 capable de l'animer.
 
@@ -1108,31 +901,21 @@ pouvons jamais savoir si le prêtre ou celui qui enseigne
 disent ce qu'ils veulent ou seulement ce qu'ils sont
 contraints de dire.
 
-Ll
-
-L
-CHAPITRE XII
-\ Le CGlergé
 4. Demande. — Qu'est-ce qu'un membre du clergé?
 | Réponse. — Un homme qui a reçu les « ordrés sacrés ».
 2. Demande. — De qui les a-t-il reçus ?
 Réponse. — De l'Église et par l'imposition des
-mains. {1)
 
 3. Demande. — D'où vient le mot clergé ?
 
 Réponse. — Il vient des mots clèros ou clèricos, quien
 grec signifient un tirage au sort ou un mode de votation
-quelconque.
 
 4. Demande. — Que signifie ceci?
 | Réponse. — Que les prêtres étaient désignés par un
-à tirage au sort. (2)
 1 5. Demande. — Quelle autre explication donne-t-on ?
-Ÿ
 L Réponse. — On a aussi supposé que le mot grec pou-
 | vait se traduire par « rang » et que ce terme était
-“
 
 L (1) La formule de l'ordination est : « Reçois le Saint Esprit par
 À l'imposition de nos mains . »
@@ -1147,11 +930,6 @@ d'écrire les noms des différents candidats sur des bulletins et de les ,
 Au remuait la boîte et le premier nom qui en tombait était considéré
 ki comme « choisi par le Seigneur ».
 
-Ni 106
-
-gx
-
-LE CLERGÉ
 appliqué aux apôtres et aux premiers prédicateurs pour
 marquer leur autorité. (1)
 
@@ -1159,7 +937,6 @@ marquer leur autorité. (1)
 les membres du clergé ?
 
 Réponse. — Sous ceux de prêtres, prélats, pontifes,
-évêques, popes, etc.
 
 7. Demande. — Quelle est la prétention du clergé ?
 
@@ -1167,7 +944,6 @@ Réponse. — Sous ceux de prêtres, prélats, pontifes,
 clefs du royaume des cieux aux chefs de l'Église, » en
 vertu de quoi « ils ont le pouvoir de retenir et de
 remettre les péchés, ».. « de fermer ce royaume » et
-« de l'ouvrir ». (2)
 
 8. Demande. — Les prêtres ont-ils exercé un grand
 pouvoir dans le monde ?
@@ -1195,10 +971,7 @@ relativement à la pression exercée sur Dieu.
 quelqu'un avait frappé un prêtre, il était excommunié pour la vie,
 car l'absolution lui était refusée jusqu'à l'heure de sa mort.
 
-1 *
-
 Mn . le. monde sans Dieu) MINES
-AN: el
 44 10. Demande. — Quel usage les membres du clergé
 1 ont-ils fait de ces privilèges ?
 4 Réponse. — Dans l'ensemble ils en ont abusé et c'est
@@ -1208,7 +981,6 @@ de membre d'un clergé aujourd'hui ?
 We. Réponse. — En passant un examen pour prouver
 “ F qu'il adhère au credo de l'Église dans le clergé de
 +5 laquelle il désire entrer.
-Î ÿ hrs d
 4 4 12. Demande. — Ces examens sont-ils aussi rigoureux
 + L que par le passé ?
 ‘15 Réponse. — Non. Il est admis maintenant que les
@@ -1221,16 +993,12 @@ au credo tel qu'ilest, d'y lire le sens qu'on lui attribue per2e . sonnellement,
 De philosophique également. Le candidat peut répondre à
 \ A la question : « Croyez-vous à ceci? » par les mots : « y
 à “4 crois », en ajoutant à part lui : « non pas suivant l'inter1 prétation commune, mais selon que je l'interprète moi40 même ».
-PA
 18 14. Demande. — Expliquez ceci par un exemple. |
 je Réponse. — Le candidat peut dire : « Je crois dans la
 4 « parole de Dieu » mais entendre par Tà non seulement
 mu les écritures chrétiennes auxquelles les credo limitent
 14 l'inspiration, mais tout ce qu'il considère comme vrai et …
-AP #0
 
-» y LA F
-LE CLERGÉ |
 pur partout où il le trouve. De la même manière il peut }
 croire à la divinité du Christ, dans ce sens que tous les
 hommes bons et nobles sont divins.
@@ -1250,66 +1018,37 @@ un tel lien serait intolérable. (1)
 
 47. Demande. — Mais un prêtre n'est-il pas obligé
 d'attendre que ses fidèles soient prêts pour des idées
-nouvelles ?
 
 Réponse. — Oui, si son intention est de suivre ses
 fidèles, mais non, s'il désire être un éducateur et un
-guide.
 
 (1) James Martineau cite la louange suivante déversée par un
 Français sur cette catégorie de prêtres : « Notre clergé, bien certainement, est tout entier parjure ; mais aussi, comme il est délicieusement libéral. » — Essays and Reviews, volume II, page 187.
 
-VII
-
-AE 5 f ; L #! 1 ANA
-114 CHAPITRE XIII
-M
 ju Prière et Salut
-CHA
-À
 
-NE)
 (x 1. Demande. — Qu'est-ce que la prière ?
 1 Réponse. — C'est une supplication adressée à Dieu
 ‘1 ou un désir d'être en communion avec lui.
 ‘on 2. Demande. — Les gens prient-ils quelquefois aussi
 114 les lois de la nature ?
-4 Réponse. — Non. :
 “ 3. Demande. — Ou de grands idéals ou de grandes
-"4
-a chimères ?
-AI » CE : s
 SN Réponse. — Non; la prière est toujours adressée à
 4 une personne, parce que seule, une personne peut
 (4 entendre une prière et y répondre.
-©
-tt | . . . .
 Ur: 4. Demande. — Tous ceux qui prient croient-ils en un
-40 Dieu personnel ? 4
-an) A . n°:
 ner Réponse. — Ils le devraient; car si Dieu n'est pas une
 Re personne il ne doit pas être distinct des lois de la nature |
-M) y, :
 Je ou des idéals de notre esprit. î
-ds
 43 5. Demande. — Qu'est-ce qu'une personne ?
-AO # » A . . . . A
 ‘ht Réponse. — Un être qui sait qu'il est lui-même et non
 PA un autre.
-au F
 14 110
-(HAN LA
-A: ; QE
-« L d LA
-
-PRIÈRE ET SALUT
 
 6. Demande. — Dieu peut-il être une personne ?
 
 Réponse. — Il ne peut pas être Dieu et une personne
 à la fois.
-
-7. Demande. — Pourquoi ?
 
 Réponse: — Etre Dieu c'est être infini; être une personne c'est être fini. L'infini ne peut avoir conscience de
 lui-même, car une telle conscience impliquerait qu'il se
@@ -1321,14 +1060,11 @@ moi », ce qui voudrait dire que l'infini n'est pas infini.
 8. Demande. — Ne peut-il exister une personne infinie ?
 
 Réponse. — Non, comme il ne peut exister un fini
-infini.
 
 9. Demande. — Quelle est l'origine de l'habitude de
-prier ?
 
 Réponse. — Cette habitude eut pour origine le désir
 des gens d'apaiser la colère et de s'assurer les faveurs
-d'êtres invisibles.
 
 10. Demande. — Donnez un exemple.
 
@@ -1336,15 +1072,11 @@ Réponse. — Vers la fin d'une longue sécheresse, le
 Pope, l'Archevêque ou le Ministre compose une prière
 pour la pluie, qu'il adresse à Dieu, croyant qu'il a
 permis la sécheresse et peut être induit à la faire
-cesser.
 
 11. Demande. — Les prières de ce genre sont-elles
-quelquefois exaucées ?
 
 Réponse. — Oui, parce qu'une sécheresse ne peut pas
 durer toujours. : À
-
-III
 
 le monde sans Dieu 1
 12. Demande. — N'arrive-t-il pas fréquemment que 1
@@ -1359,12 +1091,9 @@ s'adapter aux convenances de chacun.
 44. Demande. — Dieu a-t-il aucune action sur le temps
 qu'il fait?
 Réponse. — Pas plus que sur la loi de la chute des
-corps.
 | 15. Demande. — Les gens prient-ils jamais pour que
 la loi de la chute des corps soit suspendue dans leur
-intérêt ?
 Réponse. — Plus maintenant.
-16. Demande. — Pourquoi ?
 Réponse. — Ils ont appris que la loi de la chute des
 corps est inviolable.
 17. Demande.— Quand cesseront-ils de prier à propos

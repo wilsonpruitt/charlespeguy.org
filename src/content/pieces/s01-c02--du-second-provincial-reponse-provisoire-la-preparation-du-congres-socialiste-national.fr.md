@@ -8,23 +8,15 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 40150
 ---
-
 ## Du second Provincial. Réponse provisoire. La préparation du congrès socialiste national
 
-*Charles Péguy*
-
-ALI SMSPRRENTRES
 SOCIÉTÉ NOUVELLE DE LIBRAIRIE ET D'ÉDITION, 17, rue Cujas
-troisième édition
-PREMIÈRE SÉRIE
-LE SOCIALISME ET L'ENSEIGNEMENT LE MUCONE ET LES PEUPLES -
 La guerre= Les alliances - La paix
 
 La loi scolaire; le budget de F”
 l'enseignement ; A ; Les écoles militaires; la loi
 
 enseignement primaire : l'en- militaire $ le budget de La
-seignement moral donné au
 peuple par les instituteurs; 4 F à
 
 L'enseignement Secondaire ; la L'éducation militaire; l'armée
@@ -39,7 +31,6 @@ La question religieuse; Léon France et l'Allemagne
 
 Les libertés du pérsonnel en- Ba France et la Russie; la
 seignant; interpellation Thierry | double alliance »; le Tsar
-Cazes ; Paris;
 
 seignement clérical; réponse à La France en Orient; les mas
 d'Huist; sacres d'Arménie; la guérre de”
@@ -51,10 +42,7 @@ ment bourgeois ; La guerre hispano*américaine;
 
 La question sociale dans l'en- mers
 seignement. L'affaire de Fashoda.
-LC ORNE
 
-DU SECOND PROVINCIAL
-Nyons, 13 janvier 1900,
 Mon cher Péguy,
 
 Je regrette de ne pouvoir m'abonner à tes Cahiers
@@ -68,8 +56,6 @@ de la quinzaine : c'est une nouvelle revue, socialiste. Le Mouvement est bon, et
 et j'espère qu'il progresse. Mais tes cahiers prennent,
 dès le premier, l'allure d'une revue de polémique
 très personnelle, et contre des camarades socialistes, contre certains camarades socialistes. Je
-
-condamne cela.
 
 Il est toujours intéressant et utile de savoir ce que
 pense un camarade, qui a le loisir et la faculté de
@@ -87,7 +73,6 @@ amener les membres du Congrès suivant à ses
 idées, je le veux bien. Mais il n'est pas bon qu'elle
 déclare tout de suite et brutalement qu'elle (donne
 tort au Congrès, qui « a piétiné sur un de nos plus
-chers espoirs ».
 Il est plus mauvais encore que toutes ces attaques
 contre le Congrès et que le Triomphe de la Répu-
 blique et que l'affaire Liebknecht se résolvent en
@@ -103,11 +88,9 @@ des gens qui ne sont qu'ambitieux, montrez votre
 désintéressement. Guesde et d'autres qui le suivent
 croient bien servir le socialisme; ils ont peut-être le
 
-DU SECOND PROVINCIAL
 tort de vouloir en être les maîtres : conquérez à vos
 convictions la masse des socialistes, et vous n'aurez
 plus rien à faire contre les guesdistes. La guerre
-personnelle amène aux antipathies irréconciliables,
 et aux divisions perpétuées. Vous arriveriez à une
 scission dans le Parti et à des luttes acharnées, ou
 bien, pis encore, vous formeriez un groupe aussi
@@ -117,7 +100,6 @@ capitalisme. N'est-ce pas la conduite de Jaurès, de
 Gérault et autres militants, qui ont nos convictions, notre désintéressement, et l'expérience de
 plus d'années de lutte?
 Défaut secondaire de tes cahiers : ils sont trop
-longs.
 Pour terminer, une idée qui me passe par la tête
 il faudrait des brochures de propagande très
 courtes, il en faudrait des distributions gratuites
@@ -126,9 +108,7 @@ propagande alimentée par des souscriptions régulières et irrégulières. N'y 
 creuser cette idée? IL importe beaucoup de conquérir les bourgeois au socialisme, cela se fait de
 plus en plus; il importe surtout dele faire connaître
 à des millions d'ouvriers et de paysans.
-LE SECOND PROVINCIAL
 
-RÉPONSE PROVISOIRE
 Mon cher ami, E
 La seule réponse définitive et valable que je puisse
 faire à ta critique sévère sera la teneur même de ces ÿ
@@ -155,7 +135,6 @@ vimaginer que je veux le remplacer, ou le doubler : il
 suffit de feuilleter le premier cahier pour s'apercevoir
 que non. C'est une idée ancienne et individualiste, il me
 semble, que de faire des revues séparément complètes
-FEES RÉPONSE PROVISOIRE
 
 selon cette idée une revue essaye de se suffire à ellemême, elle essaye de se comporter comme si elle était
 seule dans le monde, elle traite en ennemie et concurrente et rivale toute revue amie, ainsi qu'on la nomme
@@ -181,7 +160,6 @@ cela : en admettant que tu sois mon juge, attends au
 moins que j'aie présenté ma défense. Depuis une récente
 affaire on admet communément que l'on ne doit pas
 condamner un accusé avant de l'avoir entendu en sa
-défense.
 
 Ilne s'agit nullement de savoir ce que pense un camarade, parce qu'il a le loisir de penser beaucoup; il ne
 s'agit nullement de faculté : il s'agit d'écouter ce que
@@ -191,8 +169,6 @@ faire imprimer la vérité. Une publication périodique
 peut présenter la vérité complémentaire. — Jereviendrai d'ailleurs sur cette question de la vérité.
 Je reviendrai aussi sur les obligations des minorités.
 — Mais je ne parle au nom d'aucune minorité, au nom
-d'aucune majorité, au nom d'aucune unanimité, au nom
-d'aucun groupe, au nom d'aucune société, au nom d'au- J
 cun parti. Pour un an je parle en mon nom: ai-je le
 droit de le faire? c'est une question, à laquelle toi-même
 tu ne pourras donner de réponse qu'après que tu auras
@@ -318,7 +294,6 @@ rends autant que je le puis par des expressions machinées insinuantes : l'histo
 l'expression étant l'image du fait. Quand je me prononce personnellement, je le fais toujours avec la franchise indispensable.
 
 Je reviendrai sur la valeur d'un congrès, sur le contrat socialiste, sur la tactique, sur l'unité, sur la pré-
-tendue scission.
 
 Je crois que je combats plus que jamais pour le socialisme entendu purement, je crois que je combats
 contre un capitalisme; il n'y a pas seulement des capitalismes d'argent : Guesde est un capitaliste d'hommes.
@@ -330,7 +305,6 @@ ou par asservir des révolutionnaires, — c'est tout un,
 — bien loin qu'ils avancent dans la révolution sociale,
 
 au contraire sont en retard en arrière de la révolution
-bourgeoise. ‘
 
 Nous reviendrons sur l'expérience des luttes passées. ]
 
@@ -348,7 +322,6 @@ Quand je n'aurai plus qu'à noter le présent, mes cahiers
 seront naturellement moins longs. — J'ai calculé mes
 devis de longueur à peu près pour le temps du provincial que je supposais : qui a moins de temps n'aura
 qu'à moins lire. — Je reviendrai sur la composition des
-cahiers.
 
 Ton idée est bonne, et je travaille à la réaliser : car
 toutes les brochures de propagande qui ne seraient pas
@@ -387,15 +360,11 @@ dans toute cette affaire comme les députés français; L
 nous étions mieux informés : nous savions, nous, que .
 c'étaient les Arméniens qui étaient les capitalistes. »
 
-LA PREPARATION
-DU CONGRES SOCIALISTE NATIONAL
-
 Jaurès et beaucoup de bons socialistes recommandaient depuis longtemps l'unité socialiste comme étant
 la condition nécessaire de l'action complète. Ainsi dans
 la Petite République du samedi 1° juillet, au moment
 où la situation républicaine s'éclairait un peu, où la
 situation socialiste allait se compliquer, sous ce titre
-Action complète, Jaurès concluaït
 Et ainsi, par tous les chemins, nous revenons à la même
 conclusion. C'est à l'unité socialiste qu'on aboutira, toutes
 les fois qu'on voudra sérieusement agir.
@@ -407,14 +376,12 @@ constituait vite à l'état d'unité? Des militants ont dit ces
 jours-ci que par l'intermédiaire de ce journal quelques
 socialistes voulaient « mener » tout le parti. Mais c'est nous
 au contraire qui, en pressant l'unification du parti socialiste, préparons la subordination de ce journal au parti
-unifié.
 
 Quand tous les groupes socialistes de France auront délibéré dans des congrès périodiques, quand ils auront fixé
 les questions de tactique, quand ils auront élu pour un an
 une commission permanente chargée de parer aux diflicultés soudaines et tenue de rendre ses comptes au congrès,
 tous les journaux socialistes seront nécessairement les
 interprètes, les défenseurs de la pensée commune du
-parti.
 
 Où veut-on aujourd'hui, dans la dispersion du parti, que
 nous cherchions, aux heures redoutables, conseil et point
@@ -431,12 +398,10 @@ du Jura, de l'Ain et de la Côte-d'Or, qui devaient
 exercer au Congrès même une si importante et si heureuse influence, envoyèrent ou traitèrent la question
 d'envoyer au citoyen Dubreuilh, secrétaire du Comité
 d'entente, à Paris, les propositions suivantes, reproduites, et commentées par Jaurès, dans la Petite République du mercredi
-Chers citoyens,
 
 Dans la crise que traverse actuellement le Parti socialiste
 français, nous, Fédérations socialistes de l'Est, qui avons une
 égale estime et une même confiance dans les grandes organisations socialistes, nous sommes douloureusement surpris par les divisions et les luttes qui surgissent de toutes
-parts.
 
 Nous espérions, dernièrement, que le Comité d'entente
 était un premier pas vers l'unité socialiste, et nous souhaitions de toutes nos forces voir enfin le Parti socialiste fran-
@@ -448,7 +413,6 @@ telle personnalité, demain sur telle autre. .
 
 En fait, l'opinion publique, la classe prolétarienne, confond en un même parti tous ceux qui se réclament du so-
 
-AT . PRÉPARATION DU CONGRÈS
 cialisme; et si nous devons nous séparer de quelques
 citoyens compromettants, cette exécution doit se faire au
 nom du parti socialiste tout entier.
@@ -491,13 +455,11 @@ faire que ce qui est permis ici ne soit pas interdit ailleurs.
 
 Nous marchons vers la décentralisation. Les faits sont là
 
-PAL FRE TI PHRMES
 pour le prouver, puisque même dans les organisations
 qui sont le plus unies, il n'y a pas d''homogénéité dans
 l'action.
 Donc nous ne demandons pas de voir renaître, sous une
 autre forme, une nouvelle organisation, contrôle, direction
-autoritaire.
 
 Non, nous ne voulons pas non plus la disparition des organisations existantes. Nous désirons que lorsqu'il s'agit
 d'interpréter un point du programme socialiste, cette interprétation soit le résultat du parti socialiste consulté dans
@@ -511,7 +473,6 @@ commission permanente nommée à un congrès annuel de
 tous ces comités fédéraux.
 
 Une organisation analogue a été réalisée par la Fédération des bourses du travail, les résultats en sont probants,
-éclatants.
 
 Il y aurait aussi à déterminer l'organisation de campagnes électorales, des réunions, la création et la diffusion
 des brochures, et faire en sorte que les efforts des élus
@@ -531,14 +492,10 @@ problème ne peut être résolu ni par quelques individus, ni
 par quelques organisations. II ne peut être résolu que par
 le parti tout entier.
 
-PRÉPARATION DU CONGRÈS
-
 La Petite République du samedi 15 reproduisait le
 manifeste suivant, communiqué à la presse dès la veille,
-jeudi (1):
 
 la France ouvrière et socialiste
-Citoyens,
 
 En sortant du groupe dit d'Union socialiste de la
 Chambre, qui venait de fournir un gouvernant à la Ré-
@@ -559,7 +516,6 @@ elle s'est manifestée dans des conditions de gravité et
 de scandale telles qu'elle ne permettait plus aucun
 accord entre ceux qui avaient compromis l'honneur et
 les intérêts du socialisme et ceux qui ont charge de les
-défendre.
 
 () La Petite République datant du lendemain et non du jour où
 elle paraît.
@@ -571,7 +527,6 @@ les mains de laquelle l'État ne peut être qu'un instrument de conservation et 
 la libération et de la Révolution sociale.
 Parti d'opposition nous sommes, et parti d'opposition
 nous devons rester, n'envoyant des nôtres dans le Parlement et autres assemblées électives qu'à l'état d'ennemis, pour combattre la classe ennemie et ses diverses
-représentations politiques.
 
 C'est dans cet esprit que, depuis un siècle, c'est sur
 ce terrain que, depuis la Commune notamment, s'organisent et agisseni les classes ouvrières des Deux Mondes
@@ -593,14 +548,12 @@ avec nous jusqu'au triomphe définitif le bon combat, le
 
 Eugène Tomas, conseiller général de la Seine;
 Edouard VAILLANT, député de la Seine; WazTER, député de la Seine.
-Pour L'ALLIANCE COMMUNISTE RÉVOLUTIONNAIRE
 Les secrétaires et les élus
 BERTHAUT, conseiller municipal de Paris; DEJEANTE, député de la Seine; FAILLET, conseiller municipal de Paris; Arthur GROUSSIER,
 député de la Seine; MarcHAND et PASQUET,
 secrétaires de l'Alliance.
 
 Sous ce titre: la lutte de classe, le même jour, Jaurès
-répondait au manifeste:
 
 Ou je ne comprends pas le sens du manifeste élaboré
 par Guesde et Vaillant, ou il est la condamnation
@@ -641,7 +594,6 @@ et dès maintenant la discussion est ouverte. Nous saurons, pour l'honneur de no
 
 La lutte de classe est le principe, la base, la loi même
 de notre parti. Ceux qui n'admettent pas la lutte de
-classe peuvent être républicains, démocrates, radicaux
 ou même radicaux-socialistes : ils ne sont pas socialistes.
 Reconnaître la lutte de classe, c'est dire que dans la
 société d'aujourd'hui il y a deux classes, la bourgeoisie
@@ -677,7 +629,6 @@ toutes ses forces. C'est donc de lui-même que le prolé-
 tariat doit attendre le salut: il ne doit être une annexe,
 une dépendance d'aucun parti bourgeois ; il doit se
 constituer en parti distinct, en parti de classe, en parti
-socialiste.
 
 Mais je le demande à tous les militants ; je le demande
 à Guesde et à Vaillant eux-mêmes; et j'aurai demain
@@ -692,12 +643,10 @@ de ma sphère. Que l'État-Major ait condamné et torturé
 un innocent, qu'il ait accumulé, pour le perdre, les faux,
 les crimes, les trahisons, c'est l'affaire des pouvoirs
 bourgeois et je n'y veux dépenser ni mon temps ni ma
-force. »
 
 Je dis que ce serait la pire abdication et la pire humiliation. Ce serait la négation même du grand rôle de
 classe du prolétariat. Il doit être demain l'humanité
 elle-même : il a donc charge dès aujourd'hui de tous les
-intérêts humains.
 
 Quelle diminution pour lui s'il laissait à cette classe
 
@@ -746,10 +695,7 @@ nous prêchait entre les diverses fractions bourgeoises !
 Je prouverai sans peine à Vaillant et à Guesde, qui se
 réclament de Marx, qu'ils sont en opposition violente
 avec la méthode révolutionnaire définie par Marx. Mais
-quelle glorieuse symétrie! quelle belle impartialité
 entre Dreyfus et Deniel, entre le supplicié et les bourreaux !.…
-
-I
 
 Au reste, cette impartialité prétendue n'est et ne
 peut être qu'apparente. En fait, aujourd'hui, par leur
@@ -770,7 +716,6 @@ voyez bien que les socialistes se désintéressent de
 Dreyfus et du procès. Ils disent bien haut qu'en les
 mêlant à cette affaire on leur a fait jouer un rôle de -
 dupes. Donc, rien à craindre, les bons amis, et votre
-coup passera en douceur. »
 Mais nous prévenons les faussaires, les traîtres, les k
 bourreaux et les juges qu'ils auraient tort de compter
 sur le désarmement du prolétariat, sur la complicité
@@ -812,11 +757,7 @@ que je trouve injuste envers vous et vos amis.
 
 Recevez l'expression de mes sentiments affectueux.
 
-CARNAUD
-
 Au ciloyen secrétaire, pour l'intérieur, du Parti ‘
-ouvrier français .%4
-L
 Mon cher Guesde,
 
 Retenu chez moi par la maladie, je n'ai pu, à mon grand
@@ -847,7 +788,6 @@ prouvée par nous. Si l'avenir nous donne raison, je veux
 pouvoir tendre une main fraternelle à ceux qui auront pu
 se tromper sur les moyens à employer pour atteindre le but
 que nous poursuivons ensemble, mais que je crois de bonne
-foi.
 
 J'accepte donc du manifeste du Conseil national tout ce .
 qui explique et justifie ma conduite; mais non ce qui peut
@@ -858,10 +798,7 @@ tant la suspicion sur leurs intentions que, malgré les divisions du moment, je 
 Recevez, mon cher Guesde, l'expression de mes sentiments
 affectueux et dévoués.
 
-CARNAUD
-
 Le même jour Jaurès continuait sa réponse
-QUI TROMPE-T-ON ?
 
 Ce qu'il y a de plus fâcheux dans le manifeste de
 Vaillant et de Guesde, ce n'est pas la passion injuste et
@@ -909,10 +846,7 @@ où la discipline étroite et mécanique des groupes, substituée à la vivante 
 fonder, a faussé, non seulement tous les sentiments de
 camaraderie et d'amitié, mais toutes les notions morales.
 Dans quelles étranges impasses sont acculés les
-meilleurs ?
 Notre vaillant ami Maxence Roldes a été, dans l'affaire Dreyfus, un des militants de la première heure.
-
-Candidat socialiste aux élections législatives contre
 
 M. Brisson, il a affirmé nettement la nécessité de la
 revision. IL a reproché à M. Brisson ses timidités, ses
@@ -1034,7 +968,6 @@ nous avons été frappés par le manifeste comme par un
 
 coup de couteau : et au bas du manifeste, sur la lame
 même du couteau, je lis le nom de Carnaud et celui de
-Cadenat.
 
 Quels effroyables malentendus et quand donc tout
 cet imbroglio humiliant et triste s'éclaircira-t-il? Oui,
@@ -1049,7 +982,6 @@ scrupule en se persuadant que ce qu'on leur demande
 est peu de chose. Ils s'acquittent d'un manifeste comme
 d'une corvée; et ils n'ont pas l'air de prendre au sérieux
 les coups empoisonnés que, sous leur nom, on porte
-d'autres militants.
 
 Mais ce double jeu ne peut durer sans flétrir la dignité
 des uns et des autres. Ou vous nous estimez et il ne
@@ -1085,7 +1017,6 @@ enthousiaste acclamait de Pressensé, et « le culte dreyfusiste », comme disen
 avec un éclat extraordinaire dans l'Église même de
 Guesde, à la minute exacte où Guesde lui-même nous
 jetait le plus violent anathème et le plus intolérable
-outrage.
 
 Oui, pour la dignité de tout le parti, il est temps d'en
 finir. Ces désaccords, ces contradictions intimes des d
@@ -1132,7 +1063,6 @@ que nous sommes en eflet des « socialistes préten-
 dus » ayant détourné le prolétariat de ses devoirs et
 
 intérêts de classe, il est indigne d'elle d'accepter notre
-concours.
 Des groupes blanquistes, rattachés au Parti socialiste
 révolutionnaire, des élus et des candidats du groupe
 Vaillant m'ont invité, depuis que le groupe Vaillant a
@@ -1158,7 +1088,6 @@ trouver des socialistes révolutionnaires qui veulent sincèrement, comme nous, 
 
 Mais, en tout cas, il ne dépendra pas des grands accusateurs, qui nous flétrissent à l'improviste, d'arrêter la
 
-ent
 propagande socialiste des excommuniés. Ils l'organiseront sur d'autres bases, et voilà tout.
 
 Quels que soient leurs immenses services, quelle que
@@ -1170,18 +1099,15 @@ l'occuper souverainement et le gouverner en maîtres. De
 même que la propriété individuelle et la propriété corporative doivent se transformer en propriété sociale, le
 socialisme va cesser d'être la propriété individuelle des
 chefs de groupes ou même la propriété corporative des
-groupes eux-mêmes.
 
 Il va devenir la propriété commune de tout le parti,
 de tout le prolétariat militant. Avant de socialiser tout
 le reste, le socialisme doit, lui-même, être socialisé.
 
 Mais j'ai encore beaucoup èt beaucoup à dire surla
-crise. À demain.
 
 La Petite République du lundi 17 publiait l'article
 suivant de Fournière
-PREMIÈRES IMPRESSIONS
 
 J'arrive de Lille, et nos amis du Parti ouvrier français
 que j'ai vus, avant et après l''admirable réunion de
@@ -1192,7 +1118,6 @@ hostiles, ils le connaissaient depuis quelques heures.
 Je l'ignorais encore, n'ayant fait que traverser Paris
 en hâte, au retour de la grève de Dijon, et c'est eux qui
 
-5: PRE 2 Fe
 me le montrèrent, dans un journal de l'État-Major. Cinq
 minutes après, je pouvais le lire dans un autre journal
 réactionnaire, l'Écho du Nord, qui étalait sa joie en
@@ -1247,7 +1172,6 @@ la foule.
 
 ce moment passaient des citoyens qui se rendaient
 au meeting de l'Hippodrome, au cri de: A bas la
-calotte !
 
 Mon camarade me serra la main et se joignit à eux.
 
@@ -1261,8 +1185,6 @@ avec une politique prétendue socialiste »; ce sera pour
 protester « au nom de la politique de classe » contre les
 « compromissions » qui consistent à s'unir aux républicains pour défendre la République et contre les « déviations » qui consistent à demander justice des crimes de
 l'État-Major.
-
-ie LTÉE PNR Re:
 
 Arrivés dans le couloir d'accès, nous entendons une
 harmonie formidable. C'est l'Internationale qu'on chante
@@ -1287,7 +1209,6 @@ grâce. Quillard est un révolutionnaire non encadré ; en
 l'applaudissant, on remplit un devoir de courtoisie envers un invité. Mais moi, qui suis un chevronné de la
 Sociale, et qui ai travaillé activement et publiquement
 aux « compromissions » et aux « déviations », mon
-compte va être bon.
 Et, ma foi, sans modestie, c'estmon compte de bravos
 qui a été bon. J'en ai même eu plus que mon mérite.
 Pourquoi ? Parce que je ne pouvais prononcer le nom
@@ -1301,11 +1222,9 @@ Je restitue à mes deux vaillants amis les acclamations
 qui leur étaient adressées. C'est leurs actes que le peuple
 
 socialiste de Lille a approuvés jeudi avec une émouvante
-unanimité.
 d Le peuple ne va pas dans les Congrès. mais il s'y
 fait représenter.
 Le même jour, Jaurès continuait sa réponse
-ORGANISONS-NOUS
 
 Le manifeste de Vaillant et de Guesde ne se borne
 pas à reprocher à Millerand d'être entré dans un ministère où il y a Galliffet : il déclare d'une manière absolue,
@@ -1316,11 +1235,9 @@ ne saurait être ou devenir, sous peine de suicide, un
 parti ministériel. Il n'a pas à partager le pouvoir avec
 la bourgeoisie, dans les mains de laquelle l'État ne peut
 être qu'un instrument de conservation et d'oppression
-sociale. »
 
 C'est clair, c'est net, et si le parti socialiste, consulté
 dans son ensemble, adopte cette règle absolue, elle sera
-facile à appliquer.
 
 Mais j'éprouve, je l'avoue, quelque humiliation devant
 l'état d'impuissance théorique et pratique où notre parti
@@ -1361,7 +1278,6 @@ ministère Brisson à la Chambre même en plein combat,
 se rattachait à un plan d'insurrection militaire et de
 coup d'État nationaliste, le groupe socialiste de la
 
-à PRÉPARATION DU CONGRÈS
 Chambre a signé officiellement un ordre du jour répu- é
 blicain à côté de tous les autres groupes de gauche.
 
@@ -1382,7 +1298,6 @@ du ministère Waldeck-Rousseau; et il aurait suffi d'une
 aggravation de la crise pour que le Comité parlementaire
 de défense républicaine, ‘où les républicains socialistes
 siégeaient à côté des républicains bourgeois, devint le
-gouvernement effectif.
 
 la fois de puissance et d'imprévu : il s'est formé un véritable cartel révolutionnaire des socialistes, des libéraux
 bourgeois, et des démocrates chrétiens des Flandres,
@@ -1390,7 +1305,6 @@ conduits par l'abbé Daëns. Je dis révolutionnaire: car
 si le ministère clérical Vandenpeereboom commettait le
 plus odieux des crimes en abusant de sa majorité réac-
 
-ns Saba
 tionnaire pour mutiler le droit de suffrage et fausser la
 consultation prochaine du pays, il était resté dans la
 lettre de la Constitution: et les socialistes, les libéraux,
@@ -1443,7 +1357,6 @@ les difficultés comme à tous les périls.
 Mais je tremble pour nous, socialistes français, qui
 pouvons être surpris par les événements les plus graves
 à l'état d'hostilité ou tout au moins de dispersion et de
-désarroi.
 
 Quelle puissante journée que celle de Longchamp !
 Mais comme elle était pleine d''imprévu et comme elle
@@ -1474,7 +1387,6 @@ peut dire avec assurance que ce jour-là il n'aurait pas
 accepté, pour sauver la République et maintenir ouverte
 la route au socialisme, la collaboration gouvernementale
 des socialistes révolutionnaires et de la bourgeoisie
-- républicaine ?
 Je me garderai bien de forcer ou de fausser par des
 citations partielles la pensée de nos camarades du
 dehors, et j'ai hâte de dire que le journal socialiste et
@@ -1483,7 +1395,6 @@ principe il s'approprie une déclaration de la citoyenne
 Rosa Luxemburg, qui représentait au récent Congrès
 de Stuttgart la tendance révolutionnaire marxiste
 intransigeante. Or je lis dans cette déclaration le
-passage suivant
 « Il peut d'ailleurs, dans le développement ou plutôt
 dans le déclin de la société capitaliste, y avoir des
 ‘moments où la prise de possession définitive du pouvoir
@@ -1540,12 +1451,8 @@ accueil fait au manifeste par toute la presse antisémite
 et le journal en donnait des citations intéressantes.
 
 Dans /a Petite République du mardi 18, Jaurès continuait sa réponse
-OUI, EXPLIQUONS-NOUS
 
 J'ai reçu du citoyen Paul Lafargue l'intéressante lettre
-suivante
-Draveil, 15 juillet 1899,
-Cher citoyen Jaurès,
 
 Comme signataire et un des trois rédacteurs du manifeste,
 je tiens à vous déclarer que vous vous méprenez entièrement sur son sens : vous n'y voyez qu'une question personnelle, tandis que nous n'avons été préoccupés que de la
@@ -1567,7 +1474,6 @@ heureux de voir les bourgeois dreyfusards et antidreyfusards étaler devant Je p
 de la magistrature, et, selon nous, le rôle de socialiste était
 deretourner ces scandaleuses révélations contre la classe
 capitaliste, qui tolère et étaye sa dictature sur ces deux
-organismes.
 
 Notre congrès national de Montluçon, septembre 1899,
 vota à l'unanimité une résolution dans cet esprit: peu de
@@ -1604,7 +1510,6 @@ sang ouvrier et paysan. N'avez-vous jamais frémi d'horreur
 en songeant à la façon dont les juges militaires doivent
 traiter les pauvres soldats, alors qu'ils se sont permis toutes
 les injustices et toutes les illégalités contre un capitaine
-d'Etat-Major!
 
 Nous pensons que le socialiste qui, dans l'affaire Dreyfus,
 n'a vu que Dreyfus, et non la suppression de la justice militaire, a été la dupe de MM. Trarieux, Guyot et compagnie.
@@ -1614,8 +1519,6 @@ et les signataires du manifeste n'ont pu un seul instant
 vous appliquer le mot de dupeur.
 
 Je vous serre cordialement la main.
-
-Paul LAFARGUE
 
 Je remercie le citoyen Lafargue de ses déclarations.
 Elles sont d'autant plus importantes qu'elles viennent
@@ -1630,8 +1533,6 @@ modeste action dans l'agitation bourgeoise.
 
 L'épisode conté à Paul Lafargue est certainement véridique.
 doit s'agir simplement d'un autre camarade du Parti ouvrier francais.
-
-Gabriel BERTRAND
 
 La Petite République du jeudi 20 publia cette rectification
 de M. Gabriel Monod:
@@ -1659,7 +1560,6 @@ modifier. Ce manifeste de division ne pourra être effacé
 que par la grande réconciliation socialiste, et celle-ci
 n'est possible que par un Congrès général du Parti où
 chacun exprimera sa pensée tout entière et se soumettra ensuite, fièrement, aux décisions réfléchies du
-socialisme unifié.
 
 Carnaud, un des « signataires », a bien compris
 comme nous, puisque, dans la lettre qu'il m'adresse, il
@@ -1701,7 +1601,6 @@ il n'en disait rien. Il n'en a parlé que lorsque j'ai eu dé- î
 montré le faux. Il n'a avoué la vérité que quand il a vu
 qu'elle allait éclater par d'autres. Et qui ne voit que
 toute l'enquête de la chambre criminelle, qui a mis à nu
-PRÉPARATION DU CONGRÈS e
 tant de plaies, aurait été impossible ou anéantie si le .
 parti socialiste, agissant en révolutionnaire, n'avait fait
 équilibre à la démagogie antisémite et césarienne ? Des
@@ -1785,7 +1684,6 @@ mettait à la Petite République d'annoncer en une robuste manchette les États-
 Telles étaient les trois parties dont j'avais pensé que
 se composerait ce cahier. Première partie : attaque soudaine et précautionneusement violente des principaux
 
-chefs aux principaux hommes libres; riposte ferme,
 défense et contre-attaque mesurée des hommes librès
 aux manifestants; intervention générale des amis et
 des camarades; conversation générale et de plus en
@@ -1807,9 +1705,7 @@ conversation, l'une introduisant, la deuxième accueillant, les deux et demie su
 concouru à cette annonce des États-Généraux, où commence la préparation immédiate. C'était bien arrangé.
 Comme il est dommage que les personnalités de la
 première partie aient envahi et débordé tout mon
-cahier!
 
-— N'ayez aucun remords extraordinaire, citoyen,
 d'avoir laissé envahir tout un cahier par ces personnalités, car elles ont commis bien des envahissements
 
 beaucoup plus pernicieux. Ces cahiers vous paraissent
@@ -1873,13 +1769,9 @@ inabordable à tous égards, et il défendait ainsi préalablement contre lui-m�
 accessible. J'admirais sa modération, sa réserve, sa j
 bonté. Je me demandai sérieusement si je n'avais pas
 été un mufile en faisant les personnalités que j'avais
-précédemment faites. .
-
-— Continuez, citoyen.
 
 — Cette hypothèse de remords et cette hésitation de
 
-EEE PRÉPARATION DU CONGRÈS
 méthode m'a poursuivi sans relâche depuis lors. J'ai
 cherché à me renseigner en considérant les autres
 hommes : les uns, comédiens vulgaires, déclaraient tous
@@ -1937,7 +1829,6 @@ fidèles, et que l'on ait soin de les rapporter en définitive à la réalité c
 
 feste se produit : on dira que nous faisons des personnalités si nous attribuons à la personnalité même de
 Vaillant, de Lafargue et de Guesde la plupart de cet
-événement. d -
 
 — Mais alors, citoyen docteur, comment ne pas faire
 de personnalités ?
@@ -1966,12 +1857,10 @@ nous avons le droit, et que nous avons le devoir de
 faire des personnalités, dans l'ordre de la connaissance,
 nous serons opposés à l'opinion commune, à l'opinion
 
-EF SPENT ee Eee RCE APRES EE
 générale de tous nos camarades et concitoyens, du
 public même. Enfin nous n'aurons pas pour nous ceux
 qui font des personnalités, qui mangent des personnalités, qui nourrissent des personnalités, car ils ne
 l'avoueront jamais. Souvent ils n'osent pas se l'avouer
-à eux-mêmes.
 
 —Jepréfère n'avoirpas ces derniers avec moi, répondit
 le docteur. Mais vous ne m'effrayez pas en me déclarant
@@ -2049,7 +1938,6 @@ dans mon jardin, etje me dis comme une bête: « Ils ont
 supprimé la liberté de la presse!Ils ont supprimé la
 liberté de la tribune ! » — car la presse est la tribune la
 plus ouverte, la tribune de ceux qui ne sont pas
-ÿ, PRÉPARATION DU CONGRÈS
 
 orateurs, de ceux qui ne sont pas députés, de ceux qui
 ne sont pas délégués, la presse est la tribune de tous
@@ -2123,7 +2011,6 @@ Et quand nous prêchions l'importune vérité, la vérité
 dreyfusarde, et que les réactionnaires se moquaient de
 nous, qui nous eût dit que le jour était si proche où le
 parti que nous aimons couperait en deux la vérité, admettrait pour l'extérieur la vérité défavorable aux bourgeois, repousserait de l'intérieur la vérité défavorable
-quelques personnalités.
 
 Prononçant ce dernier mot au cours de sa confidence,
 
@@ -2149,7 +2036,6 @@ donc cette proposition préalable
 Le nombre des partisans et des adversaires est indif-
 
 Jférent pour ou contre toute proposition soumise à la
-raison.
 
 — Docteur il ne me semble pas que cette proposition
 soit bien extraordinaire, et nous avons suivi un chemin
@@ -2164,13 +2050,11 @@ d'avoir toujours en considération cette proposition
 triviale. Sans douteil est humain, sinon juste rigoureusement, d'accorder audience aux propositions un peu
 d'après les introducteurs ; mais l'audience accordée, la
 séance commencée, il convient d'oublier tout à fait les
-introducteurs.
 
 La mémoire me revient, continua le docteur. Vous
 m'avez reproché de vous avoir conté complaisamment
 mon histoire. Je vous répondrai bientôt. — Je reviens
 donc à la question des personnalités, dans l'ordre de la
-connaissance.
 
 Au moment où vous m'avez opposé le consentement
 universel, je croyais que l'on doit faire des personna- .
@@ -2220,7 +2104,6 @@ des laideurs est laide; l'histoire des indignités est in-
 digne, l'histoire des infamies est infâme, l'histoire des
 
 petitesses est petite. Pourquoi mettre à l'histoire des
-faux-talons? Histoire généralisée, histoire légalisée,
 histoire anoblie est d'autant faussée. Ne faisons pas
 de l'histoire universelle, ne faisons pas de l'histoire philosophique, ne faisons pas de l'histoire morale, ne faisons pas de l'histoire polie, ne faisons pas de l'histoire
 générale, ne faisons pas de l'histoire légale, ne faisons
@@ -2229,7 +2112,6 @@ l'histoire socialiste, ou révolutionnaire ; soyons socialistes et révolutionna
 faisons de l'histoire historique, faisons de l'histoire. Ne
 sociologiquons pas l'histoire, ne la généralisons pas,
 ne la légalisons pas. Soyons socialistes et disons la
-vérité.
 
 Je laissais le docteur abonder en expressions verbeuses, bien que j'eusse au premier mot saisi sa pensée,
 qui ne m'était pas nouvelle, et qui, soit dit sans l'offenser, n'était pas nouvelle du tout. Mais il se plaisait évidemment beaucoup à la manifestation de cette pensée
@@ -2251,31 +2133,26 @@ tice incomplète, c'est-à-dire injustice ; la part des évé-
 nements, causée par des personnalités, que nous refusons d'attribuer à ces personnalités, pour les ménager,
 nous l'attribuons forcément, pour masquer la vacance,
 à quelqu'un ou à quelque chose: or quelqu'un et quelque
-chose tiennent en général à quelque personnalité, non
 plus considérable, et ménageable, mais humble, et assurément négligeable. C'est toujours le vieux système
 du remplacement: Quand nous refusons d'attribuer aux
 personnalités marquantes la part qu'elles ont dans les
 événements, nous transférons cette part aux petites
 personnalités des soldats oubliés et de la misérable
-foule.
 
 Comme j'arrivais sur le seuil de pierre, le docteur
 ajouta : N'ayons pas de la matière à généraliser comme
 les bourgeoïs ont de la chair à canon. Vous n'imaginez
 pas à quelle injustice, à quel malheur cela pourrait nous
-conduire.
 
 Et me donnant la poignée de mains révolutionnaire
 il conclut en manière de formule:
 
 Nous pouvons et nous devons, dans l'ordre de la connaissance, constater toutes les personnalités que le réel
-TRAVAIL DES ENFANTS
 
 Discussion à la Chambre de la proposition de loi,
 adoptée par le Sénat, portant modification de la loi du
 novembre 1892 (1) sur le travail des enfants, des
 Jilles mineures et des femmes dans les établissements
-industriels. (2)
 
 Séance du mercredi 20 décembre
 
@@ -2307,7 +2184,6 @@ douze heures de travail effectif.
 décider que les repas auront lieu à la même heure, de façon
 à rendre impossible l'abus intolérable, qui règne depuis sept
 années, des relais et des équipes tournantes. /Exclamations
-à droite)
 
 M. ÉpouarD VaiLzanT. — Je viens combattre la proposition qui est faite par M. Charles Ferry. Quand la Chambre
 a décidé l'inscription du projet à son ordre du jour d'aujourd'hui, le rapport de la proposition dont il est question
@@ -2325,7 +2201,6 @@ discuter cette question. /Très bien ! très bien ! à droite)
 Si la Chambre, n'ayant pas étudié la question, se laissait
 aller à voter les propositions de la commission et du Gouvernement, elle commettrait l'acte le plus réactionnaire qui
 ait été fait depuis vingt ans dans ce pays! /Applaudissements sur divers bancs à l'extrême gauche et à droite. —
-Mouvements divers)
 
 Je vous demande, messieurs, de ne pas augmenter la
 journée de travail des enfants, de ne pas la porter de dix
@@ -2334,7 +2209,6 @@ le monde entier. Vous voudrez y réfléchir.
 
 Comme conclusion je propose que la discussion soit renvoyée après le budget, et je dépose une demande de scrutin.
 {Très bien ! très bien ! à droite et sur divers bancs à l'extrême
-gauche) s
 
 M. LE PRÉSIDENT. — La parole est à M. le ministre du commerce et de l'industrie.
 
@@ -2378,9 +2252,7 @@ vers bancs au centre)
 Mais il y a dans les résolutions de la commission un
 second point qui n'est pas d'une moindre importance. La
 Chambre a voté en 1891 le principe de la journée de dix
-heures.
 
-M. CHARLES BERNARD. — Huit heures.
 M. LE MINISTRE. — De dix heures.
 
 M. Massaguau. — Nous ne faisons pas faillite à nos principes, nous. /Exclamations à gauche) Nous sommes pour la
@@ -2403,12 +2275,8 @@ M. CuexeL. — C'est évident.
 M. LE MINISTRE... qu'industriels et ouvriers demandent
 que la question soit réglée. Il n'est pas possible que la
 Chambre prenne la responsabilité d'un nouvel ajournement.
-{(Applaudissements à gauche)
-
-SUR LA CLOTURE
 
 M. ÉpouarD VAILLANT. — Je demande la parole contre la
-clôture.
 
 M. LE PRÉSIDENT. — La parole est à M. Vaillant.
 
@@ -2416,7 +2284,6 @@ M. ÉnouarD VarzLanr. — Messieurs, il n'est pas possible
 que vous prononciez la clôture. M. Lemire s'est trompé en
 disant que j'avais demandé le renvoi à demain : j'ai demandé
 le renvoi après le budget. La question est trop grave pour
-être résolue demain.
 
 La gravité de cette question résulte précisément de la disjonction qu'on nous propose, car nous serions appelés à voter
 -sur l'augmentation des heures du travail des enfants, sans
@@ -2453,10 +2320,8 @@ parcelles, choisies à l'incitation patronale pour augmenter
 l'exploitation de l'enfance, en disjoignant tel ou tel article,
 dont la portée serait très grave, mais de l'examiner dans son
 ensemble, pour que la discussion soit sérieuse, et que ses
-résultats en soient favorables au lieu d'être nuisibles
 à la classe ouvrière. /Très bien! très bien! à l'extrême
 gauche) Et dans ce but je propose l'ajournement après le
-budget.
 On nous a dit que la discussion du budget était pressante, ‘
 et on nous propose d'entamer une discussion qui ne peut
 pas se terminer, comme l'a dit le ministre, en une heure, Ë
@@ -2467,18 +2332,13 @@ lui faisait faire un tel pas en arrière. /Applaudissements sur
 divers bancs à l'extrême gauche) j
 
 M. Le PrésipenT. — La Chambre est saisie de deux motions : l'une de M. Vaillant, tendant au renvoi de la discussion après le budget, l'autre de M. Lemire, tendant au renvoi
-à demain.
 
 M. Lemmme. — Je retire ma proposition, monsieur le pré-
-sident.
 
 M. LE PRÉSIDENT. — Je mets aux voix la motion de
 M. Vaillant, tendant à renvoyer la discussion après le budget. M. Lemire a retiré sa motion tendant au renvoi
-demain.
 
 Il y a une demande de scrutin signée de MM. GuyotDessaigne, Maret, Bérard, Babaud-Lacroze, Gabriel-Denis,
-Jumel, Haussmann, Gouzy, Ville, Devins, Rey, Victor
-Dubois, Cosmao-Dumenez, etc.
 
 Le scrutin est ouvert.
 
@@ -2486,37 +2346,22 @@ Le scrutin est ouvert.
 le dépouillement.)
 
 M. Le PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
 Nombre des votants... 04). 00 RME MIRE
-PACE ADSQIUES A ROUTE PEN ESS
-BORD LA dOPHONS ME 0. UN NE ANRECED
 
 La Chambre des députés n'a pas adopté.
 
-SCRUTIN RECTIFIÉ
 Sur l'ajournement après le vote du budget de la proposition de loi
 adoptée par le Sénat, relative au travail des femmes et des enfants
 dans l'industrie.
 
-Majpette/absoMess2e 1 teur. ee.
-Boumladophon. #22). 41.:311"107
-CORÉEN APM AE SPAS LA Ex
 La Chambre des députés n'a pas adopté.
 Ont voté pour les citoyens Albert-Poulain, Ardennes ; Allard, Var
 Bénézech, Hérault; Antide Boyer, Bouches-du-Rhône; Jules-Louis
 
 Breton, Cher; Cadenat, Bouches-du-Rhône; Calvinhac, Haute
 Garonne; Carnaud, Bouches-du-Rhône; Charles-Gras, Seine; Chauvière, Seine; Coutant, Seine; Dejeante, Seine; Devèze, Gard ;
-Jacques Dufour, Indre; Ferrero, Var; Ferroul, Aude; Fournière,
 
-Aisne; Paschal Grousset, Seine; Groussier, Seine; Clovis Hugues,
-Seine; Labussière, Haute-Vienne; Lassalle, Ardennes; Légitimus, À
-Guadeloupe; Létang, Allier; Pastre, Gard; Renou, Seine; Rouanet, à
-Seine; Sauvanet, Allier ; Sembat, Seine; Vaillant, Seine; Pierre Vaux, .
-Côte-d'Or; Viviani, Seine; Walter, Seine; Zévaës, Isère.
 Ont voté contre les citoyens Chassaing, Seine; Colliard, Rhône; J
-È Jourde, Gironde; Krauss, Rhône ; Narbonne, Aude; Palix, Rhône.
-SUR L'URGENCE
 M. Épouarp VAILLANT. — Messieurs, je n'ai pas obtenu
 que votre hâte de voter le budget se traduisit par un vote
 de renvoi après sa discussion, et je viens vous demanderde
@@ -2532,7 +2377,6 @@ supérieure à ce qu'elle était dans la loi de 1874 pour le
 travail des enfants, des filles mineures et des femmes. Il
 s'agit de savoir si cette loi sera appliquée le 1° janvier 1900 È
 ou, au contraire, si elle sera éludée désormais, ajournée,
-enterrée.
 Le Gouvernement avait promis que cette loi serait appliquée à partir du 1” janvier 1900; maintenant il a changé
 d'avis et s'est rangé aux arguments patronaux par lesquels
 on demande que la loi de 1892, jusqu'ici très mal observée,
@@ -2574,15 +2418,12 @@ La commission supérieure du travail a cependant reconnu
 que la loi de 1892 pouvait être appliquée maintenant, et
 puisque ses opinions théoriques sont en général en contradiction avec les nôtres, j'ai d'autant mieux le droit de me
 servir de son témoignage, qui en a ainsi d'autant plus de
-valeur.
 
 Voici un extrait de son rapport sur l'application de la
 loi du 2 novembre 1892 pendant l'année 1898. /Bruit sur
-divers bancs)
 
 Messieurs, voici ce que disait la commission supérieure
 
-novembre 1892
 « … Une expérience qui s'est poursuivie pendant plus de
 six années permet d'affirmer que l'œuvre de protection
 entreprise en faveur de l'enfant et de l'ouvrière peut se
@@ -2596,7 +2437,6 @@ résistance et que, par conséquent, elle peut être appliquée;
 si le Gouvernement veut tenir sa parole, elle pourra être
 appliquée en janvier 1900. Mais il ne le veut pas et vous
 demande de l'en dégager en discutant la proposition de la
-commission.
 Si vous n'acceptez pas notre proposition, si vous mettez
 le Gouvernement en situation de ne pas appliquer la loi,
 elle ne sera pas appliquée; ce sera une situation déplorable
@@ -2742,7 +2582,6 @@ Vous voyez qu'il est absolument impossible d'accepter
 une proposition semblable, et je ne vois pas avec quels
 arguments on peut la défendre. Si on était franc, on dirait
 
-PO TONNES
 que la loi de 1892, par le fait même qu'elle réduisait le
 travail de l'enfant à dix heures, créait la journée de dix
 
@@ -2890,7 +2729,6 @@ Nous demandons que la protection édictée par la loi de 1892
 pour les enfants et les filles employés dans l'industrie soit
 enfin une réalité; que cette protection trop retardataire ne
 soit pas partielle et incomplète comme aujourd'hui, mais
-entière dès maintenant.
 Messieurs, toute la question est là. Si la Chambre veut
 renier l'engagement d'honneur pris par sa devancière en 1892,
 si elle veut que la loi ne soit pas appliquée, elle votera évidemment le projet de la commission et du Gouvernement.
@@ -2908,8 +2746,6 @@ intérêts de classe et de son droit humain.
 Dans ces conditions, messieurs, nous ne pouvons pas
 comprendre que vous vouliez rétrograder en deçà de la loi
 de 892, alors que vous voyez que partout ailleurs on marche
-en avant.
-M. HENR1 LANIEL. — Lorsque M. Terrier a voulu appliquer
 la loi de 1892, c'est bien moins du côté des patrons que du
 côté des ouvriers que sont venues d'innombrables réclamations.
 droite. — Pour la loi sur les accidents, il en a été de
@@ -2918,7 +2754,6 @@ M. DEJEANTE. — Les ouvriers étaient excités par les patrons.
 M. ÉpouarD VAILLANT. — Permettez-moi de vous faire
 une observation, bien que déjà des interruptions parties .
 
-f TRAVAIL DES ENFANTS
 du banc de nos amis vous aient répondu : toutes les lois de
 protection ouvrière n'ont pas trouvé un assentiment unanime même parmi ceux qu'elles devaient protéger.
 
@@ -2961,10 +2796,7 @@ législation protectrice de l'enfance n'ait précédé toutes les
 autres législations de défense du travail et où nous n'ayons
 pas vu le progrès se réaliser par ce fait même. Depuis,
 
-L
-
 aucun n'a rétrogradé. Voulez-vous que seule la France ré-
-publicaine recule?
 
 Plus la journée de travail de l'enfant est réduite et plus
 la classe ouvrière accélère son organisation et se met en
@@ -2990,7 +2822,6 @@ comme je vous le demande; si vous votiez le passage à la
 discussion des articles, si vous marchiez avec le Gouvernement, vous agiriez contre la classe ouvrière, contre le progrès social et républicain, et vous vous rendriez coupable
 d'un véritable crime. J'espère que vous ne voudrez pas le
 commettre. fApplaudissements à l'extrème gauche et sur .
-divers bancs à gauche) .
 M. CuArLes FERRY, président de la commission. — Nous
 demandons l'urgence et le passage à la discussion des ar-
 ticles. /Très bien! très bien!) 4
@@ -3002,7 +2833,6 @@ M. Henri LANIEL. — Je demande le renvoi à demain.
 M. LE PRÉSIDENT DE LA COMMISSION. — Je prie mon collègue
 et ami M. Laniel de reporter ses explications sur lartiele
 où nous pourrons traiter la question de la journée de dix
-heures.
 
 M. HENRI LANIEL. — Je n'ai pas l'intention de m'opposer
 l'urgence et au passage à la discussion des articles: j'accepte
@@ -3015,52 +2845,28 @@ Roy de Loulay, de Pomereu, Lemire, Savary de Beauregard,
 Derrien, Le Gonidec de Traissan, Jules Baron, DelpechCantaloup, etc.
 
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
 Nombre; des votants: UT" NM UNIS
 Métioniésabsotte PSE LEONE Ta Ge
-BOT A dOpHOMEN MARIE AE TT MREN 2rS
-CORRE RACING EN LUE AE NAUE TE AS ETC)
 
 La Chambre des députés a adopté.
-SCRUTIN RECTIFIÉ
-PART E a NS OR LUI RUN EMSNEE LT, CO E
-Pour l'adoption", 1: ....: 1398
 La Chambre des députés a adopté.
 Ont voté pour les citoyens Colliard et Jourde.
 
 Ont voté contre les citoyens Albert-Poulain, Allard, Bénézech,
 
-Antide Boyer, Jules-Louis Breton, Cadenat, Calvinhac, Carnaud,
-
-Charles-Gras, Chassaing, Chauvière, Coutant, Dejeante, Devèze,
-Jacques Dufour, Ferrero, Ferroul, Fournière, Paschal Grousset,
-Groussier, Clovis Hugues, Krauss, Labussière, Lassalle, Légitimus,
-Létang, Narbonne, Palix, Renou, Sauvanet, Sembat, Vaillant, Pierre
-Vaux, Viviani, Walter, Zévaës.
 N'ont pas pris part au vote les citoyens Pastre et Rouanet,
 M. £e PRÉSIDENT. — Je consulte la Chambre sur la question de savoir si elle entend passer à la discussion des articles.
 Il y a une demande de scrutin signée de MM. Groussier,
-Vaillant, Walter, Paschal Grousset, Poulain, Berthelot,
-! Florent, Bourrat, Fournière, Cornet, Bordier, Baulard, Calvinhac, Renou, etc.
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin.
 Nombre des votants. 10027100 CRETE
-Majorité absolue neue EURE RENE
 Pour L'adoption MEME CRT
-Contre HP. SUN RERRRUnrS 81
 La Chambre des députés a adopté.
-SCRUTIN RECTIFIÉ
 Nombre/des votants #2 "IN ION CN A UENRATe
-Majorité absolue te LORS PETER SENS
 Pour l'adoption ere
-GConire 6 PDU ES ALAN ME 75 l
 La Chambre des députés a adopté.
 Les citoyens ont voté comme sur la proposition précédente, sauf
 que le citoyen Pastre a voté contre, et que les citoyens Antide Boyer,
-Calvinhac, Charles-Gras, Chassaing, Devèze, Fournière, Paschal
 Grousset, Labussière, Narbonne et Viviani n'ont pas pris part au
-vote.
-Plusieurs membres. — À demain!
 M. LE PRÉSIDENT, — La parole est à M. le rapporteur.
 M. FERNAND Dugier, rapporteur. — Je viens prier la
 Chambre de faire encore un très léger effort. Je voudrais
@@ -3070,7 +2876,6 @@ de loi. En votant cet article, la Chambre ne s'engagera pas
 dans la discussion du fond; elle dira simplement qu'elle
 accepte la déclaration qui était faite au début de la discussion par le président de la commission du travail, c'est-à-
 dire que la loi se trouve limitée à la modification de l'article 3 de la loi de 1892 et de l'article 2 du décret-loi des 9-14
-septembre 1848.
 
 Sur divers bancs. — À demain!
 
@@ -3081,7 +2886,6 @@ modifier l'article 1” de la loi du 2 novembre 1892 sur le travail des femmes e
 
 Par conséquent, l'amendement de M. Vaillant devrait être
 discuté et mis aux voix avant l'article 1° du projet de la
-commission. {A demain !)
 
 Je consulte la Chambre sur le renvoi à demain de la suite
 de la discussion.
@@ -3089,7 +2893,6 @@ de la discussion.
 (La Chambre, consultée, se prononce pour le renvoi.)
 
 Séance du jeudi 21 décembre
-SUR LA DISJONCTION
 
 M. ÉnouarD VAILLANT. — Messieurs, la demande de disjonction précisée aujourd'hui par la commission (1) me permet
 de préciser à mon tour mes critiques et de vous montrer
@@ -3112,7 +2915,6 @@ monsieur le rapporteur, à les effacer, et nous tenons plus
 encore à y introduire plus de protection pour les travail-
 
 leurs dont nous désirons réduire encore plus la durée du
-travail.
 
 C'est ainsi qu'avec la commission nous proposerions la
 suppression de ces équipes volantes et alternantes qui permettent aux industriels de tourner et de violer la loi.
@@ -3175,7 +2977,6 @@ mission supérieure du travail, qui est hostile à la loi de 1892,
 qu'elle ne rencontre plus de résistance. On est en train de
 l'appliquer, on peut donc l'appliquer ; il suffit pour y arriver
 que le gouvernement ordonne une inspection sérieuse,
-rigoureuse, efficace.
 
 En 1896, tous ceux qui réclamaient, la réforme de la loi de
 ont lu des témoignages d'inspecteurs qui indiquaient
@@ -3225,7 +3026,6 @@ intervenu par des règlements d'administration publique. Il
 a accumulé les contradictions, les difficultés et les excep- ë
 
 tions, de telle sorte que la loi est devenue encore plus difficile à appliquer que le jour où elle est sortie des délibérations du Parlement. /Très bien! très bien! à l'extrême
-gauche)
 
 Eh bien, si, de bonne foi, on voulait appliquer cette loi,
 ne se bornerait-on pas à demander qu'on l'améliore, qu'on
@@ -3235,7 +3035,6 @@ de l'enfant? Est-ce que, au lieu d'unifier les heures de travail en augmentant l
 des femmes et des adultes? Là serait la solution dans le
 sens du progrès, tandis que la solution proposée par la
 commission et le Gouvernement est conçue dans le sens du
-recul.
 
 En tout cas,.si on ne veut pas arriver à cette solution, il
 est bien simple de proposer le maintien du statu quo, c'est-
@@ -3275,7 +3074,6 @@ Le ministre a déclaré que, si la modification qu'il propose
 était votée, il n'appliquerait plus la loi de 1892 à partir du
 1® janvier 1900. Mais alors, il n'y aurait plus de loi protectrice de l'enfance, la loi du 1* novembre 1892 n'existerait
 plus, puisque vous n'y auriez substitué aucun nouveau
-texte.
 
 Le seul moyen d'arriver à une solution conforme aux
 engagements de nos devanciers, le seul moyen de ne pas
@@ -3286,7 +3084,6 @@ disparaître tout ce qui en rend l'application difficile et de
 repousser, dès maintenant, la disjonction, car cette dis- ue
 jonction montre exactement, et d'une façon très précise, le
 mal, le crime que l'on veut vous faire commettre contre
-louvrier.
 
 Cette proposition est éminemment dangereuse et aggrave
 le mal que l'on veut faire disparaître.
@@ -3304,7 +3101,6 @@ l'ordre du jour de la prochaine session de l'étude générale
 de la loi du 2 novembre, la promesse ministérielle serait Fi
 tenue : à partir du 1* janvier, on appliquerait la loi de t
 
-SOA ONE
 1892 ; on retirerait pour le moment de l'ordre du jour les
 modifications qu'on veut y apporter. Si, au contraire, vous
 acceptez cette disjonction, qui est une proposition incompréhensible de la part d'un homme de progrès comme
@@ -3334,8 +3130,6 @@ dépose sur le bureau, la proposition de disjonction qui
 vous est faite par la commission. /Applaudissements
 l'extrême gauche. — Bruit au centre) .
 
-SUR LA RÉSOLUTION DRON ÿ
-
 M. MIzLERAND, ministre du commerce, de l'industrie, des
 postes et des télégraphes. — Messieurs, personne n'est plus
 
@@ -3356,7 +3150,6 @@ je la prie de voter la motion de disjonction qui lui est pré-
 sentée par la commission. Pour la convaincre, il me semble
 que le seul moyen est de lui montrer qu'elle ne peut faire
 une œuvre utile et eflicace qu'à la condition d'accepter cette
-procédure.
 
 Je comprends très bien le regret qu'éprouve un homme
 comme M. Dron, qui a étudié de près la loi de 1892, qui en
@@ -3385,7 +3178,6 @@ ministre du commerce à différer l'application stricte de l'article 3 -3
 Jusqu'au 31 mars prochain et décide de mettre à son ordre du jour j
 l'examen des propositions qui lui seront soumises par sa commission
 du travail immédiatement après le vote du budget de 1900.
-RARE D 20
 hésion et le vote de tous ceux qui veulent opérer une réforme
 sérieuse, consistera à vous faire toucher du doigt la réforme
 que vous allez opérer. Car il est temps, en effet, de dissiper
@@ -3413,7 +3205,6 @@ appliquer la loi.
 
 M. LE MINISTRE. — Je vais vous répondre. Je ne vous ai
 pas interrompu, monsieur Vaillant; je vous demande la
-réciprocité.
 
 M. ÉnouarD VAILLANT. — Je demande la parole.
 
@@ -3465,13 +3256,8 @@ donc les chiffres. Je les emprunte aux derniers rapports des
 inspecteurs du travail : Dans les établissements soumis aux
 lois sur le travail, il y a 433,637 enfants pour lesquels le
 projet que vous allez voter réalisera la durée effective du
-travail à dix heures.
-
-M. LEMIRE. — A onze heures!
 
 M, LE MINISTRE. — Je vous en prie ; j'ai indiqué...
-
-…. MARIÉES
 
 Un membre à l'extrême gauche. Nous voilà bien loin du
 programme de Saint-Mandé !
@@ -3490,7 +3276,6 @@ C'est-à-dire qu'en vertu de ce projet, dans un délai que vous
 serez appelés à fixer par une loi que vous allez voter,
 2,148,157 travailleurs, soit environ 82 p. 100 des travailleurs
 de France, auront la journée de dix heures. Est-ce là un
-progrès négligeable ? /Applaudissements à gauche)
 
 Mais j'entends bien, messieurs, l'objection qu'on me fait:
 Ce n'est pas tout de suite que vous réaliserez ce progrès;
@@ -3536,7 +3321,6 @@ un modus vivendi; mais — il faut le dire aussi pour rendre
 à chacun la justice qui lui est due — parce que l'application
 de la loi de 1892, sur ce point, présentait des difficultés que
 personne ne conteste et que M. Dron était tout à l'heure le
-premier à reconnaître.
 
 Malgré ces difficultés, j'ai cru, comme on le disait, que la
 loi était la loi et que le ministre devait faire son possible
@@ -3594,7 +3378,6 @@ sur quelques bancs à l'extrême gauche)
 
 Il est beaucoup plus commode de faire des discours que
 de prendre des responsabilités. /Applaudissements
-gauche)
 
 cette politique de formules et de mots, j'oppose la politique de choses et de réalités. /Nouveaux applaudissements
 à gauche et sur plusieurs bancs à l'extrême gauche et au
@@ -3627,7 +3410,6 @@ déclarer à cette tribune qu'ils n'avaient pas poursuivi l'application de l'art
 
 Est-ce que, par exemple, M. Lebon, dans une tournée, n'a
 pas déclaré qu'il acceptait de ne pas donner à ses inspecteurs les instructions nécessaires pour l'application de cette
-loi? /Interruptions à gauche) k
 
 Eh bien, messieurs, M. le ministre a déclaré que, à partir
 du 1° janvier 1900, si vous ne votiez pas le projet qu'il vous
@@ -3642,9 +3424,6 @@ par l'exemple des législations des-autres pays que cette
 disposition est parfaitement applicable, puisqu'elle a été
 appliquée dans plusieurs pays étrangers. Si c'est possible
 dans ces pays, pourquoi serait-ce impossible en France?
-rs ANR EEE APR ARE + a
-Fret PR PE
-MAT TRAVAIL DES ENFANTS
 
 M. LAURENT BOUGÈRE. — Il n'y a pas de ministres socialistes dans ces pays-là !
 
@@ -3717,7 +3496,6 @@ doute; mais permettez-moi d'ajouter une autre considéra-
 tion très brève que je développerai davantage à propos
 des amendements : c'est que, dans le monde entier, la diminution du travail pour les enfants entraine, pour les
 adultes, la diminution du temps de travail, par suite du
-changement d'organisation.
 
 Décider l'application stricte de la durée de dix heures par
 jour pour les enfants, c'est décider en même temps, comme
@@ -3752,9 +3530,7 @@ n'en sera plus ainsi, parce que, si vous supprimez les
 
 plus retenu à l'atelier pour attendre la reprise de son travail, il sera libre quand il aura fini sa journée, et il pourra
 s'en retourner chez lui.
-III
 
-DAT Tri") Pr Mi 7"
 Par conséquent, l'objection de M. le rapporteur tombe, —
 à la condition toujours que la Chambre inscrive à son ordre
 du jour la réforme totale de la loi du 2 novembre 1892.
@@ -3763,7 +3539,6 @@ Je termine en disant: Inscrire à votre ordre du jour la
 réforme totale, la discussion totale de la loi du 2 novembre
 c'est déclarer que vous voulez réformer toutes les dispositions sur lesquelles cette loi était d'application difficile,
 tous les points sur lesquels elle peut être tournée, fraudée,
-violée!
 
 Si, au contraire, vous prononcez la disjonction, vous permettez au ministère de ne pas tenir sa parole, de ne pas
 appliquer rigoureusement la disposition de la loi sur la ré-
@@ -3786,11 +3561,8 @@ demande de repousser par voie de scrutin la disjonction
 qui est, je le répète, de la part de la commission, une pro- à
 position tellement grave, tellement fâcheuse et détestable, 1
 queje ne puis pas croire que vous puissiez la vôter./Applaudissements sur divers bancs à l'extrême gauche. — Mouve- À
-ments divers)
-LÉ 2 TGS CSS Re
 ie à TRAVAIL DES ENFANTS
 s'opposent à l'adoption de la proposition de résolution de
-M. Dron.
 
 M. DeyEANTE et divers membres à l'extrême gauche. —
 Nous demandons la division jusqu'à la date.
@@ -3801,21 +3573,11 @@ La Chambre, approuvant le Gouvernement d'avoir formellement exprimé son intenti
 gralement la loi du 2 novembre 1892...
 
 Il y a une demande de scrutin, signée de MM. Vaillant,
-Walter, Bourrat, Poulain, Lamendin, Sembat, Breton,
-Berthelot, Baulard, Laloge, Calvinhac, Renou, Vaux, Cère,
-Lassalle, Palix, Andrieu, etc.
 
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
-Nombre desivotanis/4 + "1082 4e
-
-Majoerrié absolue 5.05 Furet 20.
-Pour adoption... 124.0: 0 283
-COTE En em tetie ee sue e 2101
 
 La Chambre des députés a adopté.
 
-SCRUTIN RECTIFIÉ
 ombre des Minis 00". tre.
 La Chambre des députés a adopté.
 
@@ -3829,15 +3591,12 @@ de résolution dont je donne de nouveau lecture.
 
 « … mais consciente de la nécessité qui s'impose de
 
-t'en "HAE
 modifier un certain nombre des prescriptions de cette loi,
-invite. »
 
 l'extrême gauche. — Nous demandons immédiatement
 la division. /Exclamations au centre)
 
 M. Lemime. — Nous maintenons la demande de division
-jusqu'au mot « invite ».
 Sur cette partie, nous sommes tous d'accord. La Chambre
 peut voter à main levée sur ce paragraphe.
 
@@ -3856,22 +3615,13 @@ repousser ce paragraphe.
 
 M. LE PRÉSIDENT. — Il y a une demande de scrutin, signée
 de MM. Villejean, Merlou, Tourgnol, Lafferre, Bachimont,
-Baulard, Alix, Desfarges, Chauvière, Gallot, Pajot, Cornet,
-Delon-Soubeiran, Delarue, etc.
 
 M. Le PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
 Nombre des votants 0.221.050 ASTON
-Majorité absolue 22%... 200 ORNE SRE
 Pour l'adOplHonsr ANR CO MER ES
-Contre ii: 2 RUES UNS SRE
 
 La Chambre des députés n'a pas adopté.
 
-SCRUTIN RECTIFIÉ
-LENS Tec) GC CAMES.
-Bo LAON HDH Rue e ee 1117
-LT DCE EN ES PRE NEReSREE:
 La Chambre des députés n'a pas adopté.
 e Tous les citoyens ont voté contre.
 
@@ -3887,30 +3637,17 @@ cette dernière partie.
 
 M. LE PRÉSIDENT. — Il y a une demande de scrutin signée
 de MM. Allard, Breton, Bénézech, Lassalle, Dejeante, Walter, Chauvière, Boyer, Dufour, Florent, Lamendin, Pajot,
-Renou, Poulain, Baulard, Goujat, Narbonne, etc.
 
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
-Nombre deOiants en. NULS CT Re N0b
 Marie absolue: ts. 04e LLele le
-GORE RE TS let Po asie 1020
 
 La Chambre des députés n'a pas adopté.
 
-SCRUTIN RECTIFIÉ
-MPATOERE ARR Te RE CRE ER
 La Chambre des députés n'a pas adopté.
 
 Ont voté pour les citoyens Albert-Poulain, Allard, Bénézech, Antide Boyer, Jules-Louis Breton, Cadenat, Calvinhac, Carnaud,
 
-Charles-Gras, Chauvière, Coutant, Dejeante, Devèze, Jacques Dufour,
-Fournière, Paschal Grousset, Groussier, Clovis Hugues, Lassalle,
-Légitimus, Létang, Renou, Rouanet, Sauvanet, Sembat, Vaillant,
-
-Pierre Vaux, Viviani, Walter, Zévaës.
-
 Ont voté contre les citoyens Chassaing, Colliard, Ferrero, Ferroul,
-Jourde, Krauss, Labussière, Narbonne, Palix, Pastre.
 
 J'appelle maintenant la Chambre à se prononcer sur l'ensemble des deux premiers paragraphes de la proposition de
 résolution qu'elle a adoptés.
@@ -3922,10 +3659,8 @@ Sur divers bancs à l'extrême gauche. — Nous demandons
 M. LE PRÉSIDENT. — Il ne peut pas y avoir de division, ces
 deux paragraphes ont été adoptés au scrutin; mais je suis
 obligé de consulter la Chambre sur l'ensemble de ces deux
-paragraphes.
 
 Sur divers bancs. — Nous en demandons une nouvelle
-lecture.
 M. LE PRÉSIDENT. — ( La Chambre, approuvant le Gouvernement d'avoir formellement exprimé son intention de
 faire appliquer intégralement la loi du 2 novembre 1892,
 mais, consciente de la nécessité qui s'impose de modifier un
@@ -3934,7 +3669,6 @@ certain nombre des prescriptions de cette loi... »
 Sur divers bancs à droite. — Cela ne signifie plus rien!
 
 M. LE PRÉSIDENT. — Je mets aux voix ces deux para-
-graphes.
 
 (Les deux paragraphes, mis aux voix, ne sont pas adoptés.) — Applaudissements et rires sur divers bancs.
 
@@ -3948,8 +3682,6 @@ articles de la loi du 2 novembre 1892, sauf l'article 3. »
 
 M. ÉpouarD VaicLanr. — J'ai demandé que toute disjonction füt repoussée et qu'on inscrivit à l'ordre du jour la
 
-- vembre 1892.
-
 M. LE PRÉSIDENT. — Je mets aux voix le projet de résolution de la commission.
 
 Il y a une demande de scrutin signée de MM. de l'Estourbeillon, Savary de Beauregard, Berry, de Largentaye,
@@ -3957,29 +3689,14 @@ de Lanjuinais, Jules Brice, Colle, Julien Dumas, Magne,
 Derrien, d'Aulan, de La Ferronnays, etc.
 
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
-INT ES VOIES NN LT ere
-DOntre TIMES ete eite Ge bREOR
 
 La Chambre des députés a adopté.
-
-SCRUTIN RECTIFIÉ
-Nombre des votanisz 5 %4u.0442 00.700"
-MaonteabsoMe there
-FOUR FAdO pH US ee nt) AOL bg
-BORA RER EN crane
 
 La Chambre des députés a adopté.
 
 Ont voté pour les citoyens Colliard, Ferrero, Ferroul, Jourde,
-Krauss, Labussière, Narbonne, Palix, Pierre Vaux.
 
 Ont voté contre les citoyens Albert-Poulain, Allard, Bénézech,
-Antide Boyer, Jules-Louis Breton, Cadenat, Calvinhac, Carnaud,
-Charles-Gras, Chassaing, Chauvière, Coutant, Dejeante, Devèze,
-Jacques Dufour, Fournière, Paschal Grousset, Groussier, Clovis
-Hugues, Lassalle, Légitimus, Létang, Pastre, Renou, Rouanet, Sauvanet, Sembat, Vaillant, Viviani, Walter, Zévaës.
-SUR L'ARTICLE PREMIER
 
 M. LE PRÉSIDENT. — Je donne lecture du texte actuellement
 proposé par la commission
@@ -3996,12 +3713,10 @@ lesquels le travail sera interdit.
 Au bout de trois ans, à partir de la promulgation de
 la présente loi, la durée du travail sera réduite à dix
 heures et demie, et, au bout d'une nouvelle période de
-trois années, à dix heures seulement.
 
 Dans chaque établissement, sauf dans les usines
 Jeu continu, les mines, minières et carrières, et les industries qui seront déterminées par un règlement d''administration publique, les repos auront lieu aux mêmes
 heures pour toutes les personnes protégées par la pré-
-sente loi.
 
 M. LE PRÉSIDENT. — La parole est à M. Lemire.
 
@@ -4017,7 +3732,6 @@ Le deuxième paragraphe de cet article porte qu'au bout
 d'une période de trois années, la durée du travail ne sera plus
 que de dix heures et demie, et qu'au bout d'une nouvelle pé-
 riode de trois années, cette durée ne sera plus que de dix
-heures,
 
 J'estime que cette loi n'est faite que contre les enfants et
 les mineurs, auxquels elle fait supporter la mauvaise volonté des patrons qui se refusent à appliquer les lois les
@@ -4031,11 +3745,6 @@ très bien ! à l'extrême gauche et sur divers autres bancs) IL
 a fallu qu'un ministre socialiste arrivàt au pouvoir pour
 dire aux industriels qu'au 1° janvier 1900 la loi serait appliquée dans toute sa teneur.
 
-continuer
-
-POUR MÉMOIRE
-LE DISCOURS DE M. LÉON BOURGEOIS (1)
-Messieurs,
 Notre président et ami M. Mesureur vient de vous
 dire avec beaucoup de netteté et de précision, suivant
 sa coutume, la raison pour laquelle le comité directeur
@@ -4058,8 +3767,6 @@ avait le droit, lorsqu'on ne s'occupe pas de ses intérêts
 mercredi 10 janvier, sous la présidence de M. Mesureur, — Texte
 emprunté au Temps du lendemain. .
 
-QUINZAINE
-
 personnels, mais des intérêts généraux du pays, de se
 donner la satisfaction d'avoir été bon prophète, et trop
 bon prophète, nous pourrions être terriblement satisfaits; car tout ce que nous avions annoncé, tout ce
@@ -4080,7 +3787,6 @@ trouble, à une hésitation, à une incertitude dans ces
 masses populaires qui aiment qu'on leur parle clair et
 qui, loyales elles-mêmes, ne soupçonnent pas toujours,
 du premier coup, la duplicité ou la perfidie de certaines ?
-déclarations solennelles. (Applaudissements)
 
 La défense de la République
 
@@ -4093,7 +3799,6 @@ ou de presque tous les républicains se sont ouverts, et
 on a paru tomber d'accord sur cette formule très claire
 qu'il fallait défendre la République. C'est de cette idée
 simple et nécessaire que le cabinet actuel est né.
-(Assentiment) À
 Je ne dirai pas grand'chose de la situation parlementaire et ministérielle. J'estime que nous nous sommes
 réunis pour une tâche plus haute et plus générale. Je
 puis dire cependant, je tiens à dire et je sais qu'en parlant ainsi je parle comme l'aurait fait Brisson, si nous
@@ -4105,7 +3810,6 @@ qu'il a considéré comme son premier devoir, comme sa
 raison d'exister, la défense de la République; et c'est c
 aussi parce qu'il a entrepris cette œuvre avec un courage et une énergie à laquelle je tiens, pour mon
 compte, à rendre justice, que nous avons continué à le
-soutenir. (Nouveaux applaudissements)
 On peut critiquer certains de ses actes, on peut les
 discuter, mais je rappellerai à ceux d'entre nous qui
 ont eu la mauvaise fortune d'être quelquefois au pouvoir que le pouvoir n'est pas toujours facile à exercer
@@ -4134,7 +3838,6 @@ nous sommes toujours d'accord sur les grandes lignes
 de notre programme et sur la couleur de notre drapeau, afin d'afficher ce programme et de porter haut ce
 
 drapeau devant le pays. (Assentiment unanime et
-applaudissements)
 
 C'est donc du programme qu'à notre sens nos amis
 doivent soutenir devant les électeurs sénatoriaux qu'en
@@ -4191,7 +3894,6 @@ nationale tout entière, sinon la nation ? (Très bien ! très
 bien !) J'ai bien envie de leur dire : qui donc peut ravir
 à l'un d'entre nous ce patrimoine commun des Fran-
 çais, quand l'armée n'est que la nation jeune et
-organisée ?
 
 Que l'on compare — et ce sera intéressant de le faire
 avec eux, lors des discussions électorales — que l'on
@@ -4205,7 +3907,6 @@ ces injures ! Rappelez-vous cette séance de la Chambre
 où M. Sarrien démontrait à la tribune qu'il avait voulu
 poursuivre certains outrages à l'armée. Vous savez qui
 l'a empêché de le faire. (« Ghanoïine ! Chanoiïne ! » Vifs
-applaudissements)
 
 Est-ce à ceux qui s'indignent de voir certains journalistes, certaines individualités, attaquer l'armée en
 généralisant les fautes ou les crimes de certains individus qui en ont fait partie, est-ce à eux d'agir exactement de la même façon en attribuant à tout le parti
@@ -4215,7 +3916,6 @@ ou les injures qui ont pu être proférées par certains?
 Non ! ce n'est pas possible, ce n'est pas vrai. Ils le
 savent comme nous. Tout cela n'est que tactique pour
 leurrer le suffrage universel. J'y insiste et je veux y
-insister.
 
 Je dirai, en parlant de cette campagne, qu'on veutse
 servir de l'armée et non pas la servir. (Applaudissements) Il n'y a qu'une manière de servir l'armée: c'est
@@ -4240,7 +3940,6 @@ vous rappelez quelle a été l'indignation sur nos bancs
 en entendant ces paroles vraiment factieuses qu' « il ya
 des cas où l'indiscipline est le devoir de l'armée ». Est-ce
 des bancs républicains que sont parties ces paroles?
-(Vifs applaudissements)
 
 Nous voulons, tenant l'armée en dehors des partis et
 de la politique, faire ce qui est nécessaire à sa discipline et ce qui peut seul faire sa force et sa grandeur.
@@ -4269,7 +3968,6 @@ sol au lendemain de l'invasion, qu'elle a refaite plus
 puissante, plus éclatante et plus pure que jamais, que
 quelqu'un, dis-je, puisse se servir de cette épée
 comme d'une arme de guerre civile et en tourner la
-pointe contre d'autres Français. (Applaudissements prolongrés)
 L'élection de Tournon
 
 Nous sommes un pays de bon sens et cela commence
@@ -4306,7 +4004,6 @@ l'absolution et l'opinion d'un électeur. (Rires et applaudissements)
 Je vous demande pardon de cette digression, mais il
 est intéressant de savoir qu'un adversaire n'a pas
 triompher d'un événement auquel il est tout à fait
-étranger.
 
 Le cléricalisme
 
@@ -4317,7 +4014,6 @@ tous les traits de celle qui s'est formée, au 24 Mai
 contre Thiers, au 16 Mai contre les 363, lors du boulangisme contre la République, de celle qui, à toutes
 les époques, comprenait royalistes, légitimistes et orléanistes, impérialistes, césariens, tous unis par la discipline cléricale, car c'est un même et unique adversaire
 que nous avons toujours devant nous : le cléricalisme.
-(Vifs applaudissements)
 
 Oui! c'est lui qui est l'ennemi, il faut bien le répéter,
 le mot de Gambetta est toujours vrai. On a beau plaisanter; on aime beaucoup à plaisanter sur ce sujet dans
@@ -4356,7 +4052,6 @@ dans presque tous les départements français, la petite
 surface noire qui déterminait l'importance de la propriété immobilière des congrégations il y a trente ans,
 a triplé. Telle est l'augmentation de cette fortune depuis
 la fondation de la République, de cette République
-persécutrice !
 
 Est-ce pour la prière ou pour la charité que ces
 grosses ressources sont accumulées ? Allez le demander
@@ -4371,7 +4066,6 @@ fidèles n'ont certes pas, dans leur pensée de dernière
 heure, voulu consacrer à des attaques si violentes que
 la charité chrétienne doit bien, aux derniers instants
 de la vie, chasser de l'esprit et du cœur du malheureux
-mourant. (Vifs applaudissements)
 
 Cette puissance est pour ainsi dire consacrée tout entière à une même œuvre contre la République; elle est
 employée à détruire la République, non pas parce que
@@ -4418,7 +4112,6 @@ qui se réclament de nous des déclarations précises
 cet égard, et s'il est un vote que nous devons demander
 à nos amis, c'est celui de la loi sur les associations, qui
 est destinée à prévenir et à punir les excès des congré-
-gations. (Nouveaux applaudissements)"
 
 Puisqu'on parle de politique nationale, nous ferons,
 en agissant ainsi, de la politique républicaine, cela
@@ -4436,7 +4129,6 @@ curateur et procurateur des rédemptoristes, des pré-
 montrés, — je passe les noms — des capucins, des
 bénédictins, etc. Tous ces cosmopolites combinent
 Rome le plan d'asservissement de notre pays. (Longs
-applaudissements)
 
 Ils ont d'ailleurs pour les seconder ceux qui s'intitulent en France si ironiquement les nationalistes. Puisqu'on parle de la patrie française et des nationalistes,
 voici du vrai et du bon nationalisme. Faire en sorte que
@@ -4486,7 +4178,6 @@ libres, si une loi de ce genre est votée — et j'espère
 qu'elle le sera bientôt — la première bataille, la plus importante, sera gagnée, et cette victoire sera suivie de
 
 toutes les autres. (Très bien ! très bien !)
-Impôt progressif, retraites ouvrières, revision constitutionnelle
 
 Mais je m'aperçois qu'après vous avoir promis d'être
 bref, je me laisse entraîner à parler plus longtemps que
@@ -4500,7 +4191,6 @@ fiscal et social, ne sommes-nous pas tous d'accord? Ne
 luttons-nous pas depuis quatre ans pour le défendre ?
 Nous voulons la réforme profonde de l'impôt, cette ré-
 forme qui, en faisant entrer la progression dans notre
-système fiscal, mettra fin aux injustices. (Applaudissements)
 
 Nous voulons établir l'assurance sociale dans tous les
 
@@ -4617,11 +4307,9 @@ peuvent le voir et qu'on remporte la victoire. (Applaudissements répétés et p
 
 La Petite République du samedi 13 a publié l'article
 suivant, de Jaurès
-LE DISCOURS DE M. BOURGEOIS
 
 Le discours prononcé avant-hier soir au punch du
 Grand-Véfour par M. Léon Bourgeois contient une contradiction fondamentale, et toutes les habiletés de parole, tout l'art des nuances ne parviennent pas à la
-cacher.
 
 D'une part, M. Léon Bourgeois déclare ouvertement
 la guerre au nationalisme. Il avait paru se réserver un
@@ -4663,7 +4351,6 @@ loue le ministère d'avoir défendu la République; il
 
 accable les deux ennemis confondus qui menacent en
 même temps le cabinet, je veux dire les nationalistes et M. Méline : peut-on être en vérité plus
-ministériel?
 
 Mais prenez garde. D'abord, M. Léon Bourgeois évite
 avec soin de dire à ses amis : Il faut soutenir le ministère, il faut l'aider à vivre. » Sur ce point, il glisse avec
@@ -4676,7 +4363,6 @@ dérobe. Sans doute M. Mesureur et quelques autres radicaux impatients ne lui on
 Aussi M. Bourgeois, sans parler de l'avenir, qui est ce
 qui importe, se borne-t-il à « remercier » le ministère
 pour ses actes passés, et il a bien l'air en effet de « le
-remercier ».
 
 De plus, M. Léon Bourgeois, qui a longuement insisté
 sur le projet de loi contre les congrégations, n'a pas dit
@@ -4739,7 +4425,6 @@ Le Gérant : CHARLES PÉGuy
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie GA. Ricanp & CW, 9, rue du Pont. —I6
 
-e RER PAL FR OP TEEN RES
 Toutes les fois que nos deux correspondants le
 désirent et nous y autorisent, nous les mettons en
 communication, c'est-à-dire que nous donnons à chacun
@@ -4749,7 +4434,6 @@ Nous publierons sur feuille rose les souscriptions que
 nous aurons reçues par la poste; nous désignerons sur
 cette feuille nos correspondants par le numéro de leur
 abonnement, leurs initiales, et leur lieu de résidence : -
-TAB: 4. Orleans CL TIETAITOINE EE
 Ce deuxième cahier vaut 1 fr. 50.
 Nous vendons l'exemplaire au prix marqué; nous
 vendons pour la propagande : à
@@ -4758,10 +4442,8 @@ heures à 7 heures. — Envoyer toute la correspondance à M. Charles Péguy, 19
 Nous publions vraiment notre état de situation : nous
 avons tiré ce deuxième cahier à 1,300 exemplaires:
 outre 225 exemplaires d'abonnements annuels gra « tuits et r exemplaire d'abonnement annuel gratuit
-payé d'ailleurs, ra
 nous l'envoyons à 75 abonnés ferme,
 et nous faisons 4 services d'échange.
-REA
 
 Nous continuerons Sans doute à publier, dans le
 prochain cahier, les principaux documents commentés
@@ -4785,7 +4467,6 @@ officiel du Congrès général des organisations socialistes
 françaises le passage suivant
 Le citoyen Révelin(1).—Je désirerais faire une proposition
 très courte, au nom du Comité d'entente, au sujet de la sté-
-nographie.
 
 Citoyens, le Comité d'entente s'est assuré le concours de la
 Société nouvelle de librairie et d'édition, qui propose au
@@ -4797,8 +4478,6 @@ commission que vous désignerez ensuite. Le prix de l'ouvrage,
 pour les exemplaires de propagande, sera fixé aussi bas que
 possible : un franc au minimum, deux francs au maximum.
 Vous serez invités, par des circulaires qui vous seront adressées, à indiquer, pour chacun des délégués, s'il veut souscrire. Vous serez invités encore, si vous acceplez ces propo-
-
-(1) Page 39, deuxième journée, première séance.
 
 silions, à demander aux groupes s'ils veulent souscrire et-à
 dans quelle mesure. me:

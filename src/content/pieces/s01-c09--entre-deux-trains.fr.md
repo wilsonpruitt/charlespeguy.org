@@ -7,15 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 12675
 ---
-
-*Charles Péguy*
-
 Le samedi saint, comme je l'avais annoncé à la troisième page de la couverture du septième cahier, j'edministrai, de une heure à quatre heures et demie, au siège
 de ces cahiers, chez mon ami Tharaud, 19, rue des
 Fossés-Saint-Jacques, solitaire. Les Parisiens étaient
 partis pour la province. Et les provinciaux n'étaient pas
 venus à Paris. Un coup de sonnette. Mon ami René
-Lardenois. ÿ
 — Bonjour. Je viens te dire bonjour entre deux trains.
 Je suis arrivé à onze heures cinquante-neuf en gare x
 d'Orléans, ce matin. Ou du moins je devais arriver
@@ -43,7 +39,6 @@ la peine de commencer. Nous parlerons de tes cahiers
 quand nous aurons le temps.
 — Nous parlerons de ta province et de ta classe
 quand nous aurons le temps.
-É.2 — Aux grandes vacances, au commencement d'août, .
 ‘ je passerai plusieurs jours à Paris.
 — L'Exposition ? se
 ri — Naturellement. Ne suis-je pas provincial ? Et puis où
@@ -66,10 +61,8 @@ ni — Parlons des copains.
 Tu donnes des leçons ?
 — Non, je les vends.
 — C'est ce que je voulais dire.
-— Parlons proprement. 7 2
 _— Ce mot que tu as dit — et.par mamiére de plaisanterie je faisais le dégoûté en souriant — me paraît
 peu compatible avec la dignité des professions libé-
-rales. »
 — Mettons que je suis fort obligeant, fort oflicieux; et s
 sans que je me connaisse fort bien en lettres françaises, ‘à
 ‘à en lettres latines et en lettres grecques, je laisse les
@@ -88,9 +81,7 @@ ne vendredi de Bordeaux à Tours, L Îbis
 È Jde res le ue à me des Fossés-Saint- U sa
 CARE Me à €n pleine ere J'aurai encore plus
 re s. Autant pour le retour, le nostos, hélas !
-voité. Total général : huit à nf i
 “ rentrons de mardi matin : neuf jours. Nous
-è . en huit.
 a cela. Des
 soir, si je ne deu AN entré de la veille au
 classe. Il faut done
@@ -124,35 +115,22 @@ l'enseignement secondaire avait lieu à Pâques. Cette
 
 de. vingt-six d'annoncés avant le commencement de l'expo-
 
-sition.
-
  . _ Ce n'est rien. De qui tiens-tu, monsieur, ces renseiJ AC LL gnements officiels ?
 2e — Sache que le citoyen sténographe est mon ami.
 à a /à Aussi m'a-t-il envoyé en province un papier, une piqûre
 
-officielle.
-I 4 _ Parlons proprement. Tiens : République franF çaise —
-
-5 — Liberté, égalité, fraternité —
-
 44 _ Non, cela ne se met que Sur les monuments
 
-publics.
-
-ENTRE DEUX TRAINS É
 Ministère du commerce, de l'industrie, des postes s
 et des télégraphes — ;
-' Exposition.
 à exposition. Mais cela n'est pas officiel.
 , _ Commé tu parles bien. On voit bien que tu es
-n devenu ministériel.
 — Exposition universelle internationale de 1900 ss
 Liste des congrès internationaux de 1900. — Vraiment j'ai passé là un bon quart d'heure. Il ya le congrès de l'Acétylène avec le congrès des Actuaires, le
 congrès de l'Alimentation rationnelle du bétail, le
 congrès d'Aquiculture et de Péche. Tu connais l'aquik culture ?
 ! — Non seulement je la connais, mais je la pratique
 s j'ai dans mon bassin deux poissons rouges et un brun
-vert.
 celui des Bibliothécaires. Le papier officiel ne porte pas
 seulement les noms des congrès, la date et la durée, | CE:
 mais il donne encore les noms des présidents et des à Fa
@@ -160,7 +138,6 @@ secrétaires généraux des commissions d'organisation. ‘Æ a
 Le congrès d'Agriculture a pour président un certain 4 et
 monsieur Méline, rue de Commailles, 4, et le congrès des
 se de l'Écriture a pour secrétaire général un Re. pe. &8.
-. Varinard, 8, rue Servandoni. a
 — Comme on se retrouve.
 trois congrès : celui de l'École de l'Ex ositi :
 l'Éducation physique, — ‘position, celui de
@@ -169,7 +146,6 @@ Le Et celui de l'Éducation morale —
 
 la solidarité radicale is Re lancements de
 ngrès d'Assistance Publique et de bienfaisance privée, —
-— Utile.
 — celui de l'Enseignement agricole, et, vers la fin,
 celui des Stations agronomiques. Il y a le congrès des
 méthodes d'Essai des matériaux,
@@ -182,7 +158,6 @@ Ji non plus que le congrès pour l'unification du Numé-
 ! rotage des fils des textiles. Celui des Associations de d
 ï Presse n'a ni date, ni durée, ni président, ni secrétaire
 1e général, ainsi que celui de la Ramie. Qu'est-ce que la
-ramie ?
 Je sautai sur mon pétit Larousse. Le mot n'y était
 pas.
 — La ramie est une espèce d'ortie, urtica utilis, qui
@@ -271,12 +246,10 @@ la valeur — s'il n'avait sans doute résolu de conduire 3 É, €"
 souvent sa raison et ses actions selon les trois ou F He
 quatre maximes de la morale que Descartes s'était  -
 formée par provision. Je lis au commencement de la J % nt.
-{ troisième partie : RASE
 « La première était d'obéir aux lois et aux coutumes
 j de mon pays, retenant constamment la religion en laAS Re it la grâce d'être instruit dès mon
 lea dtiolans a de en toute autre chose suivant
 ns fes da : s modérées et les plus éloignées de
-nt communément reçues en pratique
 ne çant dès lors à ne Compter pour rien
 les miennes Propres, à cause que je les voulais toutes
 remettre à l'examen, j'étais assuré de ne pouvoir mieux
@@ -300,7 +273,6 @@ jours les plus commodes pour la pratique, et vraisem-
 d'être mauvais, comme aussi afin de me détourner
 Ru moins du vrai chemin, en cas que je faillisse, que si,
 4 : ayant choisi l'un des extrêmes, c'eût été l'autre qu'il eût
-h fallu suivre. » nn:
 À  Oril est incontestable que les lois, les contes Fe
 religion de ce pays, c'est de faire l'exposition ANSE )
 <, selle, et quand on n'a pas l'honneur de JHeAre
@@ -312,7 +284,6 @@ ibuent leur philosoAinsi font nos philosophes. Ils con à De
 phie à la splendeur de l'exposition. 7$ Lu
 ilosophie, ou leurs
 congrès leurs philosophies, ou leur philosophie,
-i hiques.
 personnes philosop NE Re
 — Allons, allons, admettons qu'ils y aillent M x
 vision, qu'ils se gouvernent en ceci euiv on des
@@ -321,8 +292,6 @@ l'excès, qu'ils suivent les opinions des mieux on,
 admettons que ce ne seront pas des philosophes internationaux réunis en congrès, mais que ce seront des
 congressistes internationaux qui d'ailleurs et de leur
 métier seront des philosophes ou des professeurs de
-k philosophie.
-— Comment, comment ?
 [ss — Rien, je distingue et je concilie.
 ( — Ah bien. —Il y ale congrès du Repos du dimanche,
 le congrès des Sapeurs-pompiers (des officiers et sousofficiers), celui de Sociologie coloniale, celui des Spé-
@@ -337,13 +306,11 @@ vois an congrès antialcoolique, et c'est dommage. Û E
 nya que le congrès Végétarien. Encore n'a-til
 — Éa revanche il y a deux congrès Sens
 sation française. grès pour l'Alcooli-
-— Comment deux ;
 à. congrès pour l'Alcoolisation franIl
 
 FL — Mon ami
 pas décemment dns te eV ainsi on ne pourrait
 et la rosace violette < C'ionneur aux Présidents Ÿ
-pr a aux Secrétaires génér.
 ï quoi servirait le Congrès ? A quoi servi aux. Et alors
 ne è ervirai
 1. Exposition? Mais rassure-toi : le pre nie us
@@ -354,12 +321,10 @@ ons encourager la viticul
 à à ture, la sylvi
 l'Horticulture, que préside humblement SA em
 Châteauneuf-sur-Loire ou des envir ns
-i Saints-Pères, Pari SR at
 À » Paris, sans doute avec la finesse épaisse
 Lu, un peu antisémiti + Ini
 À E à S os de et grasse qui lui est habituelle.
 h “ es les gloires nationales que ces présidents, les
-oires i :
 ns “h : modestes et les gloires proprement glorieuses.
 ah M aston Boissier, 23, quai Conti, préside à l'organisa- à
 tion de l'Histoire comparée. Les congrès des enseignehe ments sont nombreux : congrès des Associations des i
@@ -378,13 +343,9 @@ F É devient notre ami Gaston Desbois ?
 4 11 s'est abonné à vingt francs. Il était riche, quand il
 
 s'est abonné. Je viens de lai faire son changemen
-d'adresse.
 en troisième au Lycée de Vesoul. Pour Le récompens
-d'avoir travaillé aux Universités populaires.
 — Ah oui, aux petits teigneux? Il était aussi des
-its teigneux ? e
 Hat ne des petits teigneux? Quels petits tei-
-eux?
 FE Tu n'as donc pas lu l'interview de Guesde, que lui
 (1 — Ah! c'est ça tes petits teigneux! Si, je l'ai lue.
 Non seulement je l'ai lue dans la Petite République —
@@ -422,13 +383,11 @@ Duc à Gien. Mais il y a longtemps.
 ba. — Deschamps vient à Paris de loin en loin.
 "4 — Il a tout de même plus de deux heures de chemin
 à. L de fer. Je connais bien Coulommiers. J'y ai fait mes
-ingt-huit jours.
 « | Il pe abonné à huit francs, parce qu'il n'est pas
 riche. Il est à dix-huit cents.
 es __ Bien. Raoul Duchëne ? j
 ee d'avoir un garçon. J'ai reçu la circulaire.
 
-nvoyé
 Iétait à Brest, en seconde. On l'a s ae A sais
 isième. Il avait dit devant plu
 à Chambéry, en troisi ëse du droit de propriété ne
@@ -480,7 +439,6 @@ De des hommes, il se trouvera que ces deux professeurs,
 l'ancien esthète et l'ancien brutal, auront plus fait pour
 Fe cs préparer ce que nous nommons indivisiblement la révo-
 lution sociale et la révolution morale que tout le Comité
-és D, général ensemble.
 CT < — Tais-toi, tais-toi, mon vieux, tu t'emballes, et cela
 t'empêche de parler proprement. Tu voila dire sans
 x ? doute que ces deux professeurs, n08 anciens El ades,
@@ -498,10 +456,8 @@ pable de marcher vite, parce qu il ont payes s ire ?
 rois-tu que toi-même tu ne sois pas univers!
 Î — Je le sais bien. der
 — Crois-tu que tes cahiers ne soient pas universi-
-} taires ?
 — Crois-tu qu'il n'y ait pas dans ce que tu écris aux
 cahiers des insistances maladroïtes qui sentent leur
-professeur ?
 — À la bonne heure. — Qu'est devenu notre ancien
 camarade Hubert Plantagenet, qui passa plus d'un an
 de sa vie aux dialogues de Platon ? 5 er
@@ -526,9 +482,7 @@ EE — L'auditoire ?
 L'auditoire fut un peu étonné, mais entendit bien
 h — Toujours agrégé, heureux, prospère. Syndicataire
 n à HE cahiers. 11 m'envoie ponctuellement dix francs par
-[Ai mois.
 LA — Tiens, cela me fait penser que j'ai un mois de
-retard. Mars ct avril.
 #7 — Rassure-toi : je te les aurais demandés directement.
 Ici, mon ami René Lardenoïis, m'ayant demandé si
 j'avais la monnaie de cinquante francs, que j'avais, me
@@ -538,22 +492,17 @@ L AL: — Il vaut mieux que je te les donne tout de suite. En
 ‘4 n'aurai pas le temps de m'arrêter à Paris.
 La vue de la monnaie que je lui rendais sembla dé- i
 be terrer de sa mémoire une réflexion négligemment ense- :
-velie. pe
 SE 1 — Crois-tu, me dit-il brusquement, que la vie et le
 ro budget de tes cahiers ne soient pas une vie et un bud- ‘
-à get universitaires ?
 4, — Ta classe ettes leçons payantes, ce son les abon- À
 + ME" nements à huit francs, les abonnements à vingt francs,
 les souscriptions mensuelles régulières et les souscrip- !
-tions extraordinaires.
 
-j ENTRE DEUX TRAINS
 Rte is plus libres.
 — Je le sais bien, mais plus,
 Dr onnef _ Naturellement, tout à fait libres. — Et tes on
 t nos
 ments gratuits, ce sont nos conférences €
-populaires.
 — La preuve en est que ce sont nos salaires de classe
 et de leçons qui nourrissent tes cahiers.
 — Je le sais mieux que toi.
@@ -571,11 +520,9 @@ C'est quelqu'un de vraiment rare.
 a des sentiments rares et son cœur est muni UE 1er
 de tristesse. Dans ton avant-dernier cahier tu as parlé pe
 finalement de notre ami Pierre Baudouin. Qu'est-il \ ne
-devenu ?
 Ce Marcel Baudouin est mort. Pierre Baudouin a été
 érleusement malade, Je suis allé i
 e allé le voir la semai
-passée. | a semaine
 toujours à la campagne ?
 — Qui, en Seine-et-Oi
 bourg. Je suis allé L 15e, à une heure de Paris-Luxem.
@@ -620,13 +567,11 @@ fleurs utiles des arbres à fruits. Quelle fleur de parade, À
 quels catalpas, quels magnolias et quels paulownias
 ÿ sont aussi beaux que ce vieux poirier tout enneigé de
 ses flocons de fleurs? Quel enseignement pour qui sait e
-voir. ——
 k = Jele reconnais bien là : il déteste le langage figuré,
 mais il est passionné d'instituer des paraboles. Parfois
 ilestextraordinairement sage, et souvent je me demande
 s'il n'est pas un peu fou. Croit-il toujours que l'on ne
 peut parler aux hommes sinon en instituant des
-dialogues.
 1 : e et ridicule que celui de ce pauvre -
 ae os 16 sait pas bien comme il fera pour donner Ted
 Ryan È année prochaine à sa femme et à ses enfants re à. ès
@@ -639,11 +584,9 @@ ridicule? capacité parfaite à sentir le
 — Toujours. A FL
 n'est plus en qu ses que j'en connaisse,
 est parfois ridicule. Sapercevoir comme il
-— C'est DA De
 que l'on < fe. ins, it Fe jours
 drame en trois pièces co Varie ee aletion un
 d'acten bisasres ét : pen un nombre incalculable
-ui sindications ridicules, exigeant,
 eu Compte fait, six ou huit heures de représentation,
 d'une représentation qui ne viendra jamais, exigeant, i
 en attendant, 552 — je dis sept cent cinquante-deux
@@ -652,7 +595,6 @@ vraiment, n'est PaS commode, pages dont la moitié sont
 restées tout à fait blanches, ou à peu près, et dont la
 seconde moitié portent de si rares et de si singulières
 ù écritures que, vraiment, ce n'était pas la peine, — un
-volume, si j'ai bonne mémoire, mesurant vingt-cinq !
 centimètres de long sur presque seize centimètres et
 demi de large et au moins quatre centimètres et demi
 Le d'épaisseur, mesurée au dos, — et pesant, tout sec,
@@ -666,12 +608,10 @@ car personne jamais ne les achètera. Ceux qui les
 jardin à labourer, seront forcés de Ja de > dr
 à tique en chambre, seront heureux d voie à Li fe
 sition des livres aussi lourds, qui les dispensero:
-s haltères.
 ra / ; DRE toujours qu'il faille aligner à la fin sé ie
 4 3 tous les noms de tous les citoyens qui les on
 les re t faits, compositeurs, metteur en pages,
 ne industriellemen us rote et ceux que j'ignore ?
-correcteur, imprimeurs, P
 
 — Toujours. Il cherche le moyen d'y mettre sep) Le
 fondeurs de caractères et les fabricants de
@@ -679,7 +619,6 @@ finira par les chiffonniers qui ont ramassé le chi “ .
 Il finira par avoir l'air d'être payé pour faire de la
 réclame. 7 CE ie
 — Il finira suspect : encres Lorilleux, papie
-d'Essonnes.
 — Que pense:t-il des cahiers?
 = Je le lui ai demandé : Je suis ton ami, me réponditil. Quel dommage que tu passes tout ton temps, que tu
 dépenses tous tes soins à un travail aussi futile. Qu'importent ces quinzaines ? Et qu'importent les événements
@@ -698,12 +637,10 @@ mL vous passez, les forces que vous dépensez à 4 Ex
 ques et à ces accusations est la contribution
 fr one a en de ces gens. Vous accroissez SN —. -2l
 ant eurs combinaisons si par vous, ct
-travail honnête interrompu. us en cr a
 - dérément — À ce moment : 1 .ourcissez inconsi-
 Rae Je ‘€ priai de me reparler
 a deuxième personne du singulier . - » Puisque ces cahiers
 
-f ONS, à
 ti duelle. — Tu alourdi L abilité personnelle, indivi.
 pensée, inconsidérément la vi ce
 Le c vie et la pensée de tes amis 1]
@@ -765,8 +702,6 @@ afférentes à cette vie av ue à AVS « UE rie avant d'avoir au moins essayé
 mort. Comment procéder à l'acti
 action quotidienne, et
 comment se guider aux i E ; L.
-vitables, co incessantes combinaisons iné- PF
-? dos : a voter aux élections municipales œ
 na pas co 1.
 moins de commenc se Immencé par essayer au
 er d'examiner les grands prob be
@@ -833,7 +768,6 @@ journaux A ce Cyrano de Bergerac, dont les
 n'aurait  n je Edmond Rostand
 les journaux ont dit es es ce Jeune Aiglon, dont
 
-ï style nat i
 Î È ré à me basis (Con est tout étonné et ravi;
 se un livre croient trouver un homme, sont tout
 Il ; a 2 ne She auteur. Plus poetice quam humane
@@ -890,7 +824,6 @@ te ie . ecteur, qu'ils intéressent mon- L
 EL VOUS y réussissez trop souvent.
 
 F Vous présentez les demandes et 1 s
-es répon:
 blèmes et les solutions comme ell à “ ke pre
 Fa étaient intéressantes, comme elles # . ee
 ou parfois Pa intéressantes,
@@ -915,7 +848,6 @@ nu naliste? Car tu es journaliste. Au lieu que tu pourrais
 employer ta jeunesse finissante à lire les bons auteurs, l
 US) à | qui sont nombreux, que l'on connaît mal, et que tu ne
 CT \ connais pas. Puis tu emploierais ta maturité commen-
-è çante à quelque travail épais, honnêtement ennuyeux.
 Les travaux épais font plus pour l'action que les fantai-
 Ÿ sies plus ou moins réussies, que vous croyez jee
 rade ; Descartes et Kant ont plus fait pour préparer ce qu il
@@ -968,14 +900,12 @@ sl sincère; je ne m'aperçois pas quand les mois passent.
 h: un nouveau calendrier pour avoir ses étrennes, je ne
 1h Saurais pas qu'un an s'est passé, je ne saurais pas que -
 | je vieillis. Vous pouvez donc me compter parmi vos He
-1e abonnés fermes.
 Ha — Je te compterai quand tu auras versé. * L
 Hie — Tu feras comme il te plaira.
 à al — S'il en est ainsi, tu trouveras aux cahiers, aussitôt
 que j'aurai le temps d'en exposer Fonfeals ins
 réponse non négligeable aux reproches que tu m'as faits.
 Me. — Oui, dit Lardenois : c'est un des nombreux
-Rif . i i
 articles que tu as promis et que tu ne feras jamais.
 EE — Nous verrons.
 
@@ -1017,10 +947,7 @@ Baudouin. Et si elle avait lieu elle ne réussirait pas.
 rs a Société Nouvelle de librairi
 d'édition, dont ils doivent ee nn.
 rieur. Un recensement de ; € magasin exté-
-€n restait 670 exemplaires. Due died
 Fe mon ami René Lardenois prit sur ma tabl
-papier blanc dé-
-. M chiré
 #i ne quelques mots incompréhensibles
 se ÿ S deux quatorze et je retiens
 ail ; : un; sept fois ci
@@ -1034,7 +961,6 @@ BE Et s'écria brusquement : mille dix-huit kilos, quatre
 cents grammes : il n'est pas étonnant qu'il soit encomDe bré, le magasin.
 {1 l J'entendis alors qu'il avait calculé le poids total de
 ces six cents ou six cent soixante-dix volumes. Je Int
-répondis : x
 ll — Je ne sais ni par expérience ni par témoignage que }.
 le magasin soit encombré. C'est sur le calcul aussi que
 p je fondais cette supposition.
@@ -1050,9 +976,7 @@ Aaine affaire dont le nom m'échappe et qui, ma € de
 Baudouin, passionna la France et le monde au ous
 des deux dernières années, pendant cette certaine
 à affaire dont Baudouin m'a cependant livré k Le .
-à parler ? a
 — Je crois me rappeler que tel fut bien le nom qui
-n tympan.
 de ae ya quelques personnes encore, plusieurs historiens, qui n'ont pas oublié ce nom.
 — Pendant l'affaire Dreyfus donc, si tel est bien le
 nom que nous devons lui donner, il advint cette histoire
@@ -1060,7 +984,6 @@ incroyable : que plusieurs de ceux qui avaient BCE k
 les exemplaires les plus amicalement et SHARE
 signés s'imaginèrent que l'auteur, leur ami, était aflilié f
 à un mystérieux syndicat formé à seule fin de livrer L Â
-aux bourgeois étrangers, en particulier aux Anglais, nL
 la France entière, de Calais à Perpignan, de Brest
 à Nice, de Domremy à Orléans, passant par Jargeau, É..
 Reims et Rouen, sans compter les colonies. Ceux qui 4 À
@@ -1084,8 +1007,6 @@ M ‘se déclara. qui °rté, peu nombreuse, mais compacte, A
 ‘ 5 uite individuelle ét sans qu'il: He
 … Mais senlement Ne qu'il y eût syndicat, ne
 enarchie et personnalisme_ à
-A Fr ARE Re
-{Li l'a: i jali
 à nteur trahissait le socialisme révolutionnaire Re
 É. * en particulier, le poème est dédié, Pierre Baudouin . ‘
 L. : ne ces de cette inculpation ou de ce malenen mil n'y comprend rien, et de cette incompréhension lui vient cet air stupide que nous lui voyons quelfl quefois.
@@ -1105,7 +1026,6 @@ un dialogue —
 Hs. _— Naturellement, interrompit mon ami Lardenois.
 D: — un dialogue, assez long, et que je préfère écrire
 L $ moi-même, aussitôt que j'en aurai le temps, ce qui ne
-.” An % saurait tarder.
 Ne voulant pas lui faire de peine en contrariant sa
 manie habituelle, je me gardai bien de js ie
 +, n'insistai pas. Je me permis alors de lui deman sé » T0 qu'il pensait faire des six cents exemplaires In
@@ -1162,7 +1082,6 @@ br. d- Ainsi nous serons débarrassés de quelques-uns, sans
 déboires, que la seule manière d'en venir à bout est
 id d'ouvrir un compte. On n'est pas forcé de savoir ce que
 l'on y mettra. Mais on ouvre un compte. Un doit et avoir.
-Doit M. Pierre Baudouin, auteur peu solvable, uen
 dramatique à peine solvable, tant d'envois de la Jeanne
 % À d'Are à nos abonnés fermes et gratuits ne Paris, de
 province, et de l'extérieur, mais non pas à n0$ ppernés
@@ -1237,7 +1156,6 @@ la Tunisie, la Belgique, le Luxembourg et la Suisse. Au
 delà commencent les régions mystérieuses hérissées de
 i tarifs bizarres. Mais on ne saurait quitter son pays sans
 risquer la male aventure. Enfin, je prend tout sur moi:
-cent exemplaires demandés à domicile, environ zéro
 franc; cent exemplaires envoyés dans Paris, environ
 vingt-cinq francs; moins de cinq cents exemplaires en- Li
 voyés en province et ailleurs, allons, cinq cents francs d
@@ -1252,12 +1170,9 @@ ra es . distraitement, Car j'avais à peine
 qu'il donna is PEUL oui de complaisance et
 une réflexion malencontreuse.. ‘
 
-cahi
 * Mon ami, dit-il en me
-à HE recondui
 delà le vieux poirier non Moins bles onduisant par
 beaux esprits, vous parlez un pe je Pour plaire à vos
-Î . u légè
 première philosophie. Je plai Fee ere AS rois Le
 pere . Je plains tout jeune homme qui
 Ée ors passionné pour ou
@@ -1279,7 +1194,6 @@ il F reux appétit. Ne plus s'occuper des grandes questions,
 que l'on prend quand l'âge vous gagne, où l'on croit que
 l'on devient homme, alors que c'est que l'on est devenu
 ÿ vieux. Heureux qui a gardé la jeunesse de son appétit
-métaphysique.
 Bu Ainsi conclut provisoirement notre ami Pierre BauEs. douin. Mon pauvre ami, continua-t-il en me quittant,
 “+ méfiez-vous du bel air. Il est toujours dangereux. Mais
 3. 4 il est plus particulièrement désagréable quand on y
@@ -1290,8 +1204,6 @@ ES "£ “ naturellement simple ou gardé du faux orgueil par la .
 PF FL convenance de sa vie ordinaire, soldat ou née
 libéré, employé modestement quelque Le tre Lu
 ‘4 écrit que vous aviez traité la question de l'immorta
-a rois me
-ENTRE DEUX TRAINS l
 de l'âme d'une manière qui lui plaisait, " br one
 dait de traiter ainsi la question de Din: J admire la
 ‘ simplicité de ce. jeune homme, si s'est ne ss
@@ -1318,7 +1230,6 @@ rs . chez Armand Colin. Le Premier congrès Es
 avait été rapporté générale k ra
 M. Gaston Rabaud, alors et encor. RS D 54
 hasard, fait demander Mnuaire. J'avais, à tout “a
-quelques renseignements
 
 quelqu'un de particulièrement bien sitné Pour savoir
 ÿ l'y aure un congrès d'enseignement secondaire officiel
@@ -1340,7 +1251,6 @@ a 0 auprès du ministre. Mon impression est qu'il n'aura pas
 si lieu, que personne n'y tient, — et mon opinion EU que,
 s dans les circonstances actuelles, il n'est guère à désirer
 qu'il ait lieu, car toute action d'ensemble me paraît
-impossible.
 hé. Tels furent les renseignements que me donne ar
 qu'un de particulièrement bien situé pour savoir.
 D — Bien. Qui t'aurait tout à l'heure entendu
@@ -1355,17 +1265,11 @@ Se 0 is qu'il n'en était rien. Les compagnies
 “ — Je sais qu ; 8 même une réduction. Le
 
 ë chemins de fer n'accordaient pa.
-ë es délit
-nn LEE NU FR
 Je lis dans le Rapport général que j'ai,
-M. Rabaud : 1]
 
-i taient repré- Î
-En avril 1897, cent neuf établissements é : pe
 sentés ; nous avons aujourd'hui— en 1898 — ra
 de cent cinquante-trois lycées ou collèges, et beaucoup
 de professeurs assisteront, à ‘titre personnel, à noS
-réunions. ,
 Tous, délégués ou non délégués, ont d'autant plus de
 mérite à avoir fait le voyage que, malgré nos efforts, a
 nous r'avons pu le leur faciliter. A notre demande de
@@ -1383,7 +1287,6 @@ l'occasion des vacances de Pâques. La situation étant 9 ERA
 ee semblable cette année, une nouvelle démarche ES À
 outirait vraisemblablement à un nouvel échec; vous HA)
 econnaîtrez avec moi qu'il est préférable de ne pas s'y
-exposer, be
 Pour le ministre, le conseiller d'État, 5.
 directeur des chemins de fer, : SA
 publics n'avaient fait à nstruction publique, ni celui des {© 4
@@ -1403,7 +1306,6 @@ mes commissions.
 à ) plus vite. Il est à moitié à traction mécanique.
 a — Non je veux dire qu'il y a ençore des voitures où
 F — Au revoir. C'est le progrès. Au revoir. Adieu.
-RECTIFICATIONS © “à
 Le camarade Émile Boivin nous a fait remarquer
 û sévèrement que je le mettais en cause deux fois dans
 un article de huit pages; il m'a dit froidement qu'il

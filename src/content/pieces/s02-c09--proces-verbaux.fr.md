@@ -7,35 +7,20 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3348
 ---
-
-*Charles Péguy*
-
 K5 Le samedi 9 février dernier, quelques instants avant
 - le moment où je me décidai enfin à fonder une librairie
 pour subvenir aux besoins des cahiers, je reçus la convocation suivante :
-SOCIÉTÉ NOUVELLE 11.
 DE LIBRAIRIE ET D'ÉDITION 8 février 1907
-Directeur : Félix MALTERRE
-L CONVOCATION
-rue Cujas
-PARIS
-Fe Assemblée générale
 Téléphone 801-04 extraordinaire le dimanche
 février à 10 heures à la librairie.
-ORDRE DU JOUR
-Incident Péguy
 Le secrétaire
-Mario RoQUES k
 Le dimanche 17 février, au commencement de la
 séance, un ami que j'avais dans la Société remit au pré-
 sident de séance une lettre que je reproduis de mé-
-moire
 Monsieur le président de séance de l'Assemblée géné-
 rale de la Société Nouvelle de librairie et d'édition,
-rue Cujas, Paris,
 ne Puisque vous êtes assemblés pour traiter de l'incident f
 .  Péguy, permettez-moi de rappeler, une fois encore, aux (
-TAUPE £
 neuvième cahier de la deuxième série
 sociétaires que je suis personnellement à leur entière
 disposition. S'ils veulent bien venir me voir le jeudi de
@@ -52,8 +37,6 @@ arrêtés par avance.
 Comme gérant des cahiers, et conformément aux
 méthodes qui nous étaient communes, je serai heureux
 de publier toutes les rectifications qui nous parviendraient régulièrement des intéressés.
-
-Charles Péguy
 
 Je demande pardon au lecteur si ce texte n'est pas
 rigoureusement littéral. Mais accablé de travail alors
@@ -72,17 +55,12 @@ de présenter.
 La séance recommença le dimanche 24. Je ne fus pas
 convoqué pour ce deuxième dimanche. On y convoqua
 
-5e £ PROCÈS-VERBAUX
-
 Ne __ mon ami. Solécisme juridique. On y vota un second
 
 +4 rapport, beaucoup moins violent que le premier. J'ai
 
 reçu en ces termes communication de ce deuxième
 
-ñ 4) rapport : » SOCIÉTÉ NOUVELLE Paris, 28 février 1901
-
-“_ DE LIBRAIRIE ET D'ÉDITION
 ÿ Directeur : Félix MALTERRE Mon cher Péguy,
 
 rue Cujas L'Assemblée. générale
@@ -99,8 +77,6 @@ président de l'Assemblée.
 
 eo Bien à toi. Paul Fauconnet
 
-RÉSOLUTION
-
 É L'assemblée générale des membres de la Société
 
 Nouvelle de librairie et d'édition, réunis extraordinaire-
@@ -110,7 +86,6 @@ sance du Cahier de la Quinzaine cinquième de la
 seconde série, entendu le rapport que lui a présenté
 ce sujet le Conseil d'administration, et reçu l'avis de la
 commission spéciale instituée pour examen de linci-
-! dent : Ë
 
 È Donne son approbation complète à la conduite du
 É Conseil d'administration exposée dans le rapport;
@@ -130,7 +105,6 @@ répondait à la conscience de ses membres et des membres de la Société solida
 Regrette pour Péguy qu'il n'ait pas cru devoir se
 rendre à la présente réunion pour des explications
 contradictoires avec qui de droit sur les trois points
-suivants
 r° A la page 23 du cahier en question, dont le bon
 tirer est daté du 28 janvier 1901, se trouvent, au sujet
 du compte rendu du Congrès socialiste international,
@@ -157,7 +131,6 @@ concerne l'entrevue décisive, diffère, au moins par
 omission, de la relation contemporaine — et alors non
 contestée — qu'en donnait le même rapport. Nul usage
 
-ER PROCÈS-VERBAUX
 n'est fait ni annoncé du texte de ce rapport. — Voir i
 -_ annexe à la présente résolution.
 4 3 Péguy écrit (page 15) : « Ma finance était épuisée
@@ -185,7 +158,6 @@ les actions, à eux reconnues comme il vient d'étre dit,
 à leur seraient, aussitôt que l'inaliénabilité légale cesK' serait (12 août 1901), achetées ou remboursées en
 Kit espèces, dans les conditions prévues par les statuts. De
 ces faits, rappelés en l'assemblée du 10 janvier 19017,
-PAL À
 
 neuvième cahier de la deuxième série
 qui déterminent l'origine du capital inscrit au nom de
@@ -195,8 +167,6 @@ dont le bon à tirer est du 28 janvier;
 L'assemblée décide que la présente résolution avec
 ses annexes (A et B) sera envoyée à Péguy pour être
 insérée dans les Cahiers de la Quinzaine.
-
-ANNEXE À
 
 Extrait du rapport lu à l'Assemblée du 10 janvier 1901
 
@@ -217,8 +187,6 @@ cune des trois langues; que, d'autre part, une sténographie uniquement françai
 les paroles dites en français, ne serait, à proprement
 parler, une sténographie complète qu'en ce qui concerne
 les discours des orateurs français et aurait nécessairement le caractère d'un compte rendu sténographique-
-
-pe ; PROCÈS-VERBAUX
 
 ment analytique pour les discours d'orateurs étrangers,
 
@@ -260,7 +228,6 @@ ka le nouveau Comité général avait reconnu que le compte
 ‘4 rendu analytique, élaboré comme il a été dit, méritait
 seul la reconnaissance officielle.
 
-ANNEXE B ?
 Extrait du rapport lu à l'Assemblée générale du 18 janvier 1900. — Au nom du Conseil d'administration.
 Il s'est produit il y a quelques jours un incident qui a
 été notre seul grand chagrin au cours de ces cinq mois.
@@ -286,7 +253,6 @@ ces renseignements; puis, au bout de huit jours, nous
 comprîmes rien à cette démission que rien ne motivait,
 et qui nous parut déraisonnable et insensée., J'ai su
 depuis que, dès ce moment, il estimait que sa place
-PROCÈS-VERBAUX
 à n'était plus dans une maison qui n'était plus ce qu'il
 avait espéré qu'elle serait et qui prenait l'allure d'une
 simple maison de commerce. Je n'arrive pas à comprendre ce grief. Si le mot « commercial » veut dire que
@@ -343,7 +309,6 @@ ce périodique en dépôt, sans frais et sans risques.
 C'est moi qui lui répondis, et je le fis, j'en suis sûr,
 de tout cœur, avec toute la tendresse que j'ai pour lui
 et avec une infinie tristesse. Je lui dis qu'on ne faisait
-PROCÈS-VERBAUX
 pas tenir en cent pages, ni en cinq cents ni en deux mille
 les documents authentiques de la vie politique d'une
 quinzaine; qu'il faudrait donc choisir; que son choix,

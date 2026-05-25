@@ -7,28 +7,16 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 19423
 ---
-
-: ÿ \ LS PAS ER GES 3 : à a ane ”
 ñ È et À FA LEE x ; èré
-_# | MONOGRAPHIES 1e
-je “y 0 AS Se
-Er EE ïù k Ê
-Pre à 5 ; - DE
 Te ce
-"4 [39837 “
-ae * - 4 ee
 Pre (CAHIERS DE LA QUINZAINE Le
 ER QE NE # Feat He
-FE LR È À « ERA
 Mie. paraissant vingt fois par an Sem
-Era Se at
-D: « es
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nos anciens abonnés savent et nos nouveaux abonnés À
 verront que nous ne faisons dans ces cahiers aucune
 réclame. Ce qui suit n'est donc en aucun sens de Ru
-réclame. É Ë URRE
 
 Je me permets d'insister pour que nos abonnés di page 249, le coupon qui leur permet d'aller avec un Ne
 ami assister à une représentation dù 14 Juillet. Moi e
@@ -36,7 +24,6 @@ qui ne mets jamais les pieds au théâtre, j'y suis allé.
 J'y retourne. Il y a un intérêt considérable, comme je
 lexpliquerai dans un prochain cahier, à soutenir très
 vigoureusement l'effort du grand compositeur qu'est
-Gémier. PC
 
 Ii ne s'agit pas d'organiser une cabale pour faire
 marcher une pièce qui paraît vouloir aller toute seule.
@@ -51,9 +38,6 @@ contre-coup des mauvaises pièces.
 
 Il ne s'agit pas d'envoyer du monde aux représentations. Il s'agit qu'on y aille. 2 SRE
 
-Charles Péguy 2,0
-< Cao
-
 Nous aussinous devons nous préparer aux prochaines
 élections. Nous prions nos abonnés de vouloir bien nous
 envoyer les programmes, affiches, circulaires intéressantes qui leur viendraient en mains. Nous en constitue- |
@@ -61,9 +45,6 @@ rons des dossiers. Nos abonnés sauront choisir, nous
 
 = renseigner sans nous encombrer. : FAN.
 
-GA AS FA NU
-A VER “
-à PERSONNALITÉS
 Quelques-uns de nos abonnés se sont émus de ce que
 J'avais fait des personnalités dans le septième cahier de
 _ la troisième série. On peut lire dans le deuxième cahier
@@ -86,8 +67,6 @@ nous sommes les soldats d'une armée universelle; nous
 travaillons et nous combattons pour un idéal universel;
 nous préparons la révolution sociale universelle : nous
 n'avons à considérer ni les spécialités, ni les particularités, ni les individualités, ni même les personnalités, di
-I ‘ 4 PA
-\ 1 ets |?
 
 douzième cahier de la troisième sé + RS
 mais seulement les généralités et les universalités : Ne
@@ -118,7 +97,6 @@ des paroles de lâcheté, mais il prononçait des paroles
 dures et libres et droites, audacieux et lui-même étonné À
 | d'introduire la grosseur de sa voix dans la conversation
 
-HR + ! _ PERSONNALITÉS
 © des chef. Je pensais donc qu'il y aurait dans ce cahier
 ke grandissante voix de la foule et du peuple anonyme
 tre envahissant laudience publique et pour la première
@@ -129,7 +107,6 @@ AR organique et ofliciel des organisations, qui dès le
 _ jeudi 20 juillet aboutissait à cette acceptation qui per_ mettait à la Petite République d'annoncer en une robuste manchetteles États-Généraux du Parti socialiste.
 Telles étaient les trois parties dont j'avais pensé que
 se composerait ce cahier. Première partie : attaque soudaine et précautionneusement violente des principaux
-chefs aux principaux hommes libres; riposte ferme,
 défense et contre-attaque mesurée des hommes libres
 . aux manifestants; intervention générale des amis et ÿà
 des camarades; conversation générale et de plus en
@@ -148,9 +125,7 @@ conversation, l'une introduisant, la deuxième accueillant, les deux et demie su
 concouru à cette annonce des États-Généraux, où commence la préparation immédiate. C'était bien arrangé.
 Comme il est dommage que les personnalités de la
 première partie aient envahi et débordé tout mon
-cahier !
 
-— N'ayez aucun remords extraordinaire, citoyen,
 d'avoir laissé envahir tout un cahier par ces personnalités, car elles ont commis bien des envahissements
 beaucoup plus pernicieux. Ces cahiers vous paraissent
 importants parce que vous y travaillez, mais ils mont ‘
@@ -170,8 +145,6 @@ cahiers. Vous avez dû ajourner aux prochains cahiers
 la fin de la première partie, la deuxième et la troisième : ces personnalités ont fait ajourner des actions
 beaucoup plus urgentes que ne le sera jamais la publication de vos cahiers.
 
-LT * Ê
-Si in PERSONNALITÉS
 LE — Je ne savais pas, citoyen, que mon cahier manqué
 | fût une image ainsi fidèle de la réalité. Vous croyez
 qu'en me laissant envahir par les personnalités je me
@@ -214,7 +187,6 @@ inabordable à tous égards, et il défendait ainsi préalablement contre lui-m�
 accessible. J'admirais sa modération, sa réserve, sa
 bonté. Je me demandai sérieusement si je n'avais pas
 été un muffle en faisant les personnalités que j'avais précédemment faites.
-— Continuez, citoyen.
 
 = — Cette hypothèse de remords et cette hésitation de
 méthode m'a poursuivi sans relâche depuis lors. J'ai
@@ -285,7 +257,6 @@ fidèles, et que l'on ait soin de les rapporter en définitive à la réalité c
 
 — L'exemple est tout choisi : je constate que le manifeste se produit : on dira que nous faisons des personnalités si nous attribuons à la personnalité même de
 Vaillant, de Lafargue et de Guesde la plupart de cet
-événement.
 
 — Mais alors, citoyen docteur, comment ne pas faire |,
 de personnalités ?
@@ -305,7 +276,6 @@ témoigner cette déférence à l'opinion commune, ainsi
 formulée : « On ne fait pas de personnalités. » Enfin dans
 les discussions les moins nombreuses, toujours l'interlo-
 
-RARE | PERSONNALITÉS
 cuteur s'arrête à ce reproche, comme s'il avait brus_ quement et par inadvertance violé la règle du. jeu.
 Depuis que j'assiste aux discussions publiques, privées,
 et mi-parties, je n'ai jamais entendu un seul citoyen
@@ -319,7 +289,6 @@ générale de tous nos camarades et concitoyens, du
 public même. Enfin nous n'aurons pas pour nous ceux
 | qui font des personnalités, qui mangent des personnalités, qui nourrissent des personnalités, car ils ne
 Pavoueront jamais. Souvent ils n'osent pas se l'avouer
-à eux-mêmes.
 
 —Je préfère n'avoir pas ces derniers avec moi,répondit
 le docteur. Mais vous ne m'effrayez pas en me déclarant
@@ -358,8 +327,6 @@ commune ; il ne faut pas m'en conter sur l'utilité de ces
 institutions pour assouplir les caractères et pour adoucir les mœurs; c'est au régiment que j'ai le moins eu à
 m'insurger contre ces brimades; je ne sais si j'ai eu le
 
-: 114 1 HQE jé
-PAUSE PERSONNALITÉS
 bonheur de tomber sur une compagnie ou sur un bataillon ou dans un régiment mieux recruté ; sinon je propo- .
 serais cette simple explication, que les régiments sont
 surtout fournis par le peuple, que l'immense majorité de
@@ -425,9 +392,6 @@ humaine ordinaire; nous lui dirons et nous lui redirons
 
 HAN: que la justice et que la vérité sont inaccessibles aux mains souveraines ; et nous serons ennuyeux; et nous
 
-LORD A bb
-
-PERSONNALITÉS
 serons importuns, comme les anciens philosophes
 importunaient les tyrans de Syracuse; et tout de même
 on nous croira sans doute : j'entends par là que le
@@ -475,7 +439,6 @@ Et quand nous prêchions l'importune vérité, la vérité
 dreyfusarde.,et que les réactionnaires se moquaient de
 nous, qui nous eût dit que le jouriétait-si proche oùle ,
 parti que nous aimons ‘couperait en deux la vérité, admettrait pour l'extérieur la vérité défavorable aux bourgeois, repousserait de l'intérieur la vérité défavorable à ‘
-quelques personnalités.
 
 Prononçant ce dernier mot au cours de sa confidence,
 le docteur soudain se réveilla, haussa légèrement les
@@ -489,7 +452,6 @@ de celui qui n'est pas du troupeau.
 
 — Et je vous répondais que je n'ai pas cet orgueil; je
 
-ANT PERSONNALITÉS
 ne crois pas que la minorité ait plus forcément raison
 | que la majorité : cela dépend des espèces; il n'y à que
 è la raison qui ait forcément raison; tantôt c'est la majorité qui a tort, et tantôt c'est la minorité, quelquefois
@@ -500,7 +462,6 @@ moins : elles ne le sont nullement toutes deux; la raison
 pas : elles ne valent, et ne peuvent engager la compétition, que dans la région des intérêts. Nous formulerons
 donc cette proposition préalable
 Le nombre des partisans et des adversaires est indifférent pour ou contre toute proposition soumise à la
-raison.
 
 __ Docteur il ne me semble pas que cette proposition soit bien extraordinaire, et nous avons suivi un chemin
 bien long pour en venir à une vérité triviale.
@@ -513,12 +474,10 @@ ce nous sera vraiment une grande nouveauté que
 d'avoir toujours en considération cette proposition triviale. Sans doute il est humain, sinon juste rigoureusement, d'accorder audience aux propositions un peu
 d'après les introducteurs ; mais l'audience accordée, la
 séance commencée, il convient d'oublier tout à fait les
-introducteurs.
 La mémoire me revient, continua le docteur. Vous
 m'avez reproché de vous avoir conté complaisamment
 mon histoire. Je vous répondrai bientôt. — Je reviens
 donc à la question des personnalités, dans l'ordre de la
-connaissance.
 
 Au moment où vous m'avez opposé le consentement
 universel, je croyais que l'on doit faire des personnalités dans cet ordre. Il me semblait que l'on doit faire
@@ -543,8 +502,6 @@ expliquer par des considérations générales tous les
 événements et les seuls événements qui ont eu des causes
 et des circonstances générales; nous devons expliquer
 
-PERSONNALITÉS
-
 par des considérations particulières tous les événements
 et les seuls événements qui ont eu des causes et des
 circonstances particulières ; ainsi nous devons expliquer
@@ -557,7 +514,6 @@ des événements. L'histoire des personnalités est personnelle, comme l'histoir
 comme l'histoire des beautés est belle, comme l'histoire
 des laïdeurs est laide; l'histoire des indignités est indigne, l'histoire des infamies est infâme, l'histoire des
 petitesses est petite. Pourquoi mettre à l'histoire des
-faux-talons? Histoire généralisée, histoire légalisée,
 histoire anoblie est d'autant faussée. Ne faisons pas
 de l'histoire universelle, ne faisons pas de l'histoire philosophique, ne faisons pas de l'histoire morale, ne faisons pas de l'histoire polie, ne faisons pas de l'histoire
 générale, ne faisons pas de l'histoire légale, ne faisons
@@ -566,7 +522,6 @@ lhistoire socialiste, ou révolutionnaire ; soyons socialistes et révolutionnai
 faisons de l'histoire historique, faisons de l'histoire. Ne
 sociologiquons pas l'histoire, ne la généralisons pas,
 ne la légalisons pas. Soyons socialistes et disons la
-vérité.
 
 Je laissais le docteur abonder en expressions verbeuses, bien que j'eusse au premier mot saisi sa pensée,
 qui ne m'était pas nouvelle, et qui, soit dit sans l'offenser, n'était pas nouvelle du tout. Mais il se plaisait évi- douzième caler de la troisième série
@@ -586,21 +541,17 @@ achevait : Et quand on manque à la vérité, mon ami, on
 manque forcément à la justice : à vérité incomplète, justice incomplète, c'est-à-dire injustice; la part des événements, causée par des personnalités, que nous refusons d'attribuer à ces personnalités, pour les ménager,
 nous l'attribuons forcément, pour masquer la vacance,
 à quelqu'un ou à quelque chose : or quelqu'un et quelque
-chose tiennent en général à quelque personnalité, non
 plus considérable, et ménageable, maïs humble, et assurément négligeable. C'est toujours le vieux système
 du remplacement : Quand nous refusons d'attribuer aux
 personnalités marquantes la part qu'elles ont dans les
 événements, nous transférons cette part aux petites
 personnalités des soldats oubliés et de la misérable
-foule.
 
 Comme j'arrivais sur le seuil de pierre, le docteur
 ajouta : N'ayons pas de la matière à généraliser comme
 les bourgeois ont de la chair à canon. Vous n'imaginez
 pas à quelle injustice, à quel malheur cela pourrait nous
-conduire.
 
-Ç PERSONNALITÉS
 Et me donnant la poignée de mains révolutionnaire
 il conclut en manière de formule
 Nous pouvons et nous devons, dans l'ordre de la connaissance, constater toutes les personnalités que le réel
@@ -654,7 +605,6 @@ comme nous le devions, si nous n'avions pas fait des
 personnalités. Comment sauver l'assassiné sans sauter
 au collet de l'assassin, en admettant qu'il ait un collet, ce qui était le cas. Et il est à peu près impossible de
 
-PERSONNALITÉS
 sauter au collét de quelqu'un sans faire à son égard
 quelque personnalité. Nous avons fait la personnalité
 de M. le général Mercier, la personnalité de M. le général de Boisdeffre, et celle de M. du Paty de Clam, et
@@ -685,7 +635,6 @@ disais ce que je pensais, ce que nous pensions tous alors
 de plusieurs personnalités ; j'allais jusqu'à faire des personnalités contre une personnalité amie qui, à mon
 sens, mavait pas attaqué assez vivement les personnalités dangereuses, sans doute surtout pour ne pas faire
 de personnalités. Tout le monde alors trouvait que j'avais
-raison.
 — Cela ne prouve pas que vous eussiez raison en effet.
 — Mais cela ne prouve pas non plus que j'aie eu tort
 d'avoir continué. Tout le monde en ce temps-là trouvait
@@ -704,12 +653,9 @@ Mais je ne crois pas qu'ils en aient produit aucune. Ce
 sent eux au contraire qui ont bien voulu pardonner à
 leurs accusateurs, et à leurs accusés : ce sont eux qui
 ont pardonné à tout le monde. Ils ont amnistié. Ils sont
-cléments.
 — Ce que vous m'avez répondu sur la question des
 personnalités, dans l'ordre de l'action, ne me paraît pas
 | 22 l
-
-M PERSONNALITÉS
 
 valoir contre la considération du relèvement moral, que
 vous n'avez pas envisagé: quand même il serait vrai
@@ -769,7 +715,6 @@ pas plus haïssable d'abord que les autres, qui sont
 aussi des moi. Cette affectation à ne parler pas de soi
 
 | ! _ 7 .
-PERSONNALITÉS -
 
 _ peut avoir deux sens : ou bien elle est sincère, injuste
 envers le moi, favorable aux autres; c'est alors de
@@ -796,11 +741,9 @@ avais conté un peu complaisamment mon histoire. Et
 notre loi générale des personnalités est ainsi vérifiée
 dans le cas particulier où c'est nous qui sommes la personnalité. Même alors nous pouvons et nous devons
 agir envers toutes les personnalités que le réel nous
-présente.
 
 Cela étant publié depuis deux ans, dans le deuxième
 et dans le troisième cahiers de la première série, voici comme on accueillit le septième cahier de la
-troisième
 Ce cahier causa un assez grand émoi. Beaucoup de
 nos abonnés nous écrivirent ou vinrent nous voir.
 
@@ -810,13 +753,10 @@ me déclarèrent que le cahier était trop doux. Quelquesuns ajoutèrent : beauc
 
 Tous les socialistes peuple que j'ai vus ou lus, sans
 aucune exception, me déclarèrent que le cahier était
-trop doux. Quelques-uns ajoutèrent : beaucoup trop
-doux.
 
 Le scandale commença parmi les universitaires. Les
 Brestois ne furent pas contents. Les gens de Thiers
 furent mécontents. Un Toulousain, de l'enseignement
-supérieur, moraliste ardent, écrivait familièrement à
 ‘ PAGES LIBRES ” : Si Péguy recommence à faire des
 personnalités, zut ! La plupart de nos abonnés méconients m'opposèrent le courrier d''Indo-Chine. C'est ainsi,
 disaient-ils, que l'on doit travailler. Challaye, n'ayant
@@ -828,7 +768,6 @@ M. Beaulavon, m'écrivit une lettre injurieuse. Les gens
 de lettres furent presque aussi effrayés que les universitaires.
 
 Depuis plusieurs mois beaucoup de nos abonnés veulent bien regretter que nous n'ayons pas continué nos ner | < ù
-} PERSONNALITÉS
 anciens entretiens. Pourquoi, me disent-ils, pourquoi
 n'allez-vous plus trouver ce docteur socialiste révolutionnaire moraliste internationaliste, qui vous donnait
 de si fructueuses consultations ? Pourquoi n'êtes-vous
@@ -851,7 +790,6 @@ de l'histoire, et cela est nouveau pour un historien.
 Tous deux travaillent pour nourrir leurs femmes et
 leurs enfants. Ils ne sont pas révoqués. Mon cousin travaillait à faire des feux sans fumée. Tant que l'hiver
 était aussi dur, on ne pouvait penser qu'il viendrait ici
-causer.
 
 Quand la troisième série sera un peu déblayée, je
 serai heureux d'aller consulter les docteurs. Quand le
@@ -887,7 +825,6 @@ sa famille, dans sa santé, dans sa vie et dans sa liberté,
 le peuple saït d'instinct que la guerre est la guerre, et,
 quand on se bat, qu'on tape. Le peuple saït que la vie
 
-PERSONNALITÉS
 | est sérieuse, et que la vie est dure. Nous lui montrerons,
 par les persécutions que l'on nous prépare, que la
 guerre contre la démagogie est la plus dure de toutes
@@ -905,7 +842,6 @@ mettre en œuvre les idées de ces camarades et de ces
 amis, les idées qui leur étaient communes avec moi.
 Il ne s'agissait que de réaliser. J'avais compté sans la
 puissance de l'envie. J'avais compté sans l'automatisme
-intellectuel.
 
 Je suis frappé de ceci : loin que l'abonnement de nos
 cahiers se soit constitué autour de mes amis et de mes
@@ -923,8 +859,6 @@ Rien n'est aussi dangereux que la fausse culture. Et
 
 | ilest malheureusement vrai que presque toute la cul-
 
-29 IL. ï
-
 ture universitaire est de la fausse culture. Le peuple, à
 avant la culture, le peuple qui se bat contre la misère
 etla maladie et la mort, contre le vice et le dépéris- %
@@ -937,7 +871,6 @@ lui apprend qu'il ne faut pas se commettre à faire des
 personnalités. Les vertus salonnières font commettre h)
 plus de crimes par plus de lâchetés que tous les vices t
 n'en font commettre par toutes les faiblesses de droit
-commun.
 L'automatisme intellectuel a une incroyable force.
 Vieillis avant l'âge par la fausse culture, les esprits
 automatiques ne répondent plus au perpétuel rajeunis- H
@@ -947,7 +880,6 @@ comme tels, qui lisent le mieux nos cahiers. Ce sont les
 esprits inhabitués, c'est-à-dire neufs, les esprits inha- :
 bituables, c'est-à-dire poètes, perpétuellement neufs, - w
 puis les esprits universitaires laborieusement déshabitués, rafraîchis, qui nous entendent comme il nous
-plaît. f
 Ce qui me navre, ce n'est évidemment pas que l'on
 ne soit pas de mon avis. J'aime toute liberté. Ce qui î
 m'attriste, c'est que nos cahiers servent si peu, au
@@ -956,9 +888,6 @@ m'enverra une réfutation sérieuse de la démonstration
 que je viens de reproduire, je serai heureux de publier U
 cette réfutation. Mes opinions n'ont jamais eu dans nos ‘1
 
-ñ 116
-
-do PERSONNALITÉS
 cahiers une hégémonie économique sur les opinions
 différentes ou contraires. Si donc on m'avait réfuté ma
 démonstration, j'aurais publié puis à mon tour discuté
@@ -989,7 +918,6 @@ des universitaires. Ceux qui sont restés âpres le doivent à leur génie et no
 faire nos budgets mensuels, nos budgets quotidiens, la
 vie se charge de nous rafraichir l'âpreté native. Et nous n'avons pas pour les personnalités dangereuses l'émous- ù
 sement indulgent des universitaires accoutumés, des
-professeurs garantis.
 Le métier universitaire en cela ressemble au métier
 politique. Dans la politique aussi les idées les plus inconciliables peuvent juxtaexister. Comme les élèves,
 les électeurs, pourvu qu'on les flatte, sont beaucoup
@@ -1016,7 +944,6 @@ démonstration précédente universelle me servit pour
 ma défense personnelle et pour la défense personnelle
 de nos cahiers. Toutse passa dès lors commesi je
 n'avais pas fait ma démonstration. Par un malentendu
-PERSONNALITÉS
 double, ou par un contresens, ou par une fausseté
 double, ou par inadvertance, les mêmes amis, les
 mêmes camarades qui, veulent que l'on fasse comme
@@ -1073,8 +1000,6 @@ n'ai pas autant de joie pour un abonné qui revient que
 pour cent abonnés demeurés solides. Pour les mêmes L
 raisons que j'aime la modestie et non l'humilité, pour
 
-MENU) ; PERSONNALITÉS
-
 _ la même raison nous aimons mieux la solidité continue
 que le péché, la confession, la pénitence et la rémission.
 
@@ -1083,7 +1008,6 @@ sensible, mais rien ne me vaut la parfaite, la modeste,
 et la continue constance. Et pour satisfaire aux besoins
 constants de l'action, pour donner réponse aux fermes
 exigences de la réalité, nous avons surtout besoin de
-fermeté.
 
 à On me dit d'un air entendu, voire d'un air confit
 Attention, mon cher, vous retombez aux erreurs de la
@@ -1108,8 +1032,6 @@ que ce que j'ai fait dans cette âpre année du commencement. Je n'avais pas cen
 pas trente amis serrés. J'ai tenu. On escomptait ma mort. De semaine en semaine. Ceux qui veulent bien
 
 . me bénir n'auraient pas à me bénir aujourd'hui si je m'étais laissé tuer dans le temps.
-
-4 D ALU us LUS GC
 
 Je ne suis pas un pénitent. Quand je dis que je
 regrette ou que je déplore les personnalités que je fis,
@@ -1141,9 +1063,6 @@ avoir faites, que j'aimerais mieux ne pas avoir eu à les
 faire, j'entends qu'il est déplorable que certaines personnes ou certains individus ou le jeu des événements
 ou l'âpreté du réel m'aient contraint à faire ces personnalités. Je me plains d'y avoir été contraint. J'ai pitié !.
 
-A Ha AT
-1 ne à
-NE PERSONNALITÉS
 de moi-même. Juste assez. Pas trop. J'aimerais que
 cela n'eût pas eu lieu. Mais je ne puis me blâmer en
 arrière. Je ne puis me blâmer d'avoir fait ce que je
@@ -1172,7 +1091,6 @@ l'effet d'un acte odieux, m'a toujours semblé d'une
 révoltante fausseté, que je nommerais protestante, si
 tant de catholiques et tant de juifs, et tant d'anticatholiques, ne l'avaient exercée, que je nommerais anglaise.
 Mais quelle nation de la terre ne l'a pas quelque jour
-pratiquée.
 
 Je vais plus loin. Je prétends que la paix n'est valable et que la paix n'est ferme que si la guerre précédente, après qu'elle fut devenue inévitable, a été
 conduite loyale. Or je connais au moins deux loyautés,
@@ -1203,10 +1121,7 @@ Je prétends que la paix n'est ferme, dans son genre,
 que si la guerre précédente a été ferme, dans son genre.
 Ici l'amertume est salubre. Et c'est la tiédeur, la fadeur, E
 la quiétude et la moiteur des complaisances moisies i
-38 je
 
-Es dt NA CEA
-; | PERSONNALITÉS
 qui est pernicieuse. Loin que l'amertume et l'aigreur,
 comme on le croit communément, soient deux degrés,
 le degré suprême et le degré supérieur, d'un même
@@ -1248,7 +1163,6 @@ nouveau nous fassions œuvre commune. Au lieu que si
 j'avais laissé le dissentiment profond s'envenimer en
 silence dans l'aigreur sournoise des consciences
 blessées, c'est alors que toute notre action future eût
-été originellement viciée.
 Quelques-uns m'ont dit, Challaye m'a écrit que mon:
 cahier était injuste, ou leur semblait injuste. C'est ici
 une tout autre question, et dans l'examen de laquelle je
@@ -1270,7 +1184,6 @@ que je pouvais et devais faire. On lira les réponses des
 intéressés. IL demeure entendu seulement que je me
 réserve le droit de répondre à ces réponses. Le droit
 
-PERSONNALITÉS
 de réponse, que je maintiens pour tous dans ces
 cahiers, je le maintiens autant pour moi.
 
@@ -1318,7 +1231,6 @@ pousser à la formation de cet esprit, ce serait le moyen
 d'assurer sans frais la pérennité de nos cahiers. Mais,
 si lon veut bien y regarder, ce serait notre démagogie
 à nous, une autointoxication par complaisance mutuelle, un empoisonnement par la respiration d'un air
-confiné en chambre close d'admiration perpétuelle.
 Pour cette raison, et pour des raisons que je dirai
 ailleurs, nos cahiers sont variés, libres. Jusqu'à présent,
 parmi tant de malheurs, nous avons eu ce bonheur que
@@ -1375,7 +1287,6 @@ de le rendre orgueilleux. On risquait de tuer son talent
 et de briser son caractère. Secondement on risque de
 tuer son génie et son âme. Il serait déplorable qu'un
 jeune homme accueilli aux cahiers oubliât l'effort antécédent du gérant et des autres auteurs. Il serait déplorable qu'un jeune homme oubliât une solidarité déjà
-ancienne.
 Je sais que je fais un métier misérable. Mais tout le
 monde ne peut pas être une bouche d'ombre, ni le clairon sonnant dans les ténèbres, de manière à faire
 trembler les vertèbres. Cela ferait trop d'ombre, trop
@@ -1414,10 +1325,6 @@ aucun métier du tout, c'est-à-dire d'être un homme
 politique, parlementaire ou journaliste. IL serait déplorable qu'un jeune auteur me méprisât. Je sais que je
 fais de la cuisine, en ce sens que je fais de l'économique. Je suis un économe, un gérant, un intendant, un
 
-45 ur.
-
-No 4)
-
 : RE TARESS ba cuisinier, un employé, un commis. Mais je me suis
 laissé dire que le socialisme revenait à restaurer dans
 leur dignité morale ces modestes fonctions de la vie
@@ -1447,7 +1354,6 @@ pas incapable. J'ai depuis plus de trois ans plus de cent …
 pages rédigées d'un grand dialogue, Pierre, que j'ai dû »
 laisser inachevé. J'aimerais mieux travailler à de
 grandes œuvres. Mais je dois faire ce que je dois,et
-ï PERSONNALITÉS
 non pas ce que j'aime le mieux. Dans ces cahiers même
 | j'ai dû ajourner les modestes entretiens qui étaient
 comme des dialogues un peu journaliers. Je les continuerai aussitôt que je le pourrai. Mais ce n'est pas ce
@@ -1505,14 +1411,12 @@ S'imaginer que nos cahiers sont une jeune revue parmi
 tant de jeunes revues, c'est commettre un contresens
 correspondant à celui qui consiste à croire que le
 cours de M. Bergson est un cours parmi tant de
-cours.
 Nous avonsraison où nous avons tort, et nous demandons qu'on nous examine et qu'on nous critique. Mais
 nous savons que notre méthode est nouvelle. Non pas
 nouvelle en imagination, car on y a pu penser avant
 nous, mais nouvelle en réalisation, car nous sommes L
 les premiers en date qui ayons réussi à publier la vérité !
 
-PERSONNALITÉS
 que nous savons de ce qui tient à la révolution sociale,
 au sens où nous l'entendons.
 
@@ -1543,7 +1447,6 @@ Lagardelle retournerait aussi rapidement au guesdisme,
 qui fut sa première discipline. Les hommes de mon
 temps, qui ont contribué de toute leur force à linstitution de l'ancien Mouvement, ne prévoyaient pas qu'un
 
-Lcd > Len
 LE À pi
 jour un nouveau Mouvement accueillerait de la littérature banale et complaisante. Je lis dans ce numéro, sur
 Victor Hugo poète, un article de M. A. Ferdinand
@@ -1571,9 +1474,6 @@ Nous aurons souvent avec nous des auxiliaires momentanés. Nous les accueilleron
 Nous leur accorderons toujours le crédit le plus long
 que nous pourrons. Nous travaillerons loyalement avec (4
 eux. J'ai une théorie du crédit moral que j'exposerai
-5o ‘4
-
-: 6 PERSONNALITÉS
 
 aussitôt que je le pourrai. Nous ferons toujours comme
 
@@ -1640,9 +1540,6 @@ de chimie si un élève se levait : Monsieur, j'ignore
 totalement le permanganate de potasse, mais je
 garantis que mélangé avec deux fois et quart son poids ‘à
 
-\ SAR ICIR
-
-PERSONNALITÉS
 de pommes de terre frites, il constitue un explosif
 des plus dangereux. Nos professeurs feraient cette conjecture, qu'on leur prépare un chahut sérieux. Cest
 pourtant à ce raisonnement, pour ainsi parler, que se
@@ -1671,7 +1568,6 @@ M. Seignobos ou M. Aulard parlent de la démocratie;
 quand Lagardelle et même Révelin parlent du prolétariat; quand Daveillans parle de la démocratie et
 du prolétariat, ils posent vraiment ces mots comme
 des logismes, des symboles morts. Ils refusent vraiment de repenser la réalité que ces mots ont pu
-recouvrir.
 
 Faut-il donc qu'aujourd'hui je recommence ma démonstration? Est-elle surannée? Les événements échus
 pendant que nous réalisions la première et la deuxième
@@ -1684,7 +1580,6 @@ de défense républicaine et d'action qui ne nous a
 jamais promis de se substituer à nous pour faire la
 révolution sociale, trouva-t-on un autre homme que
 M. Waldeck-Rousseau. Je le demande. Y eut-il deux
-candidats ?
 
 Je ne demande pas si la constitution de ce ministère
 fut heureuse ou non; je ne demande pas si le gouvernement de ce ministère fut bon ou mauvais : nous
@@ -1702,9 +1597,7 @@ faite par des mouvements du peuple, par des mouve- !
 ments de masse, par des mouvements d'ensemble, par '
 des mouvements profonds et larges. Les antiministères
 latents pour qui travaillaient, inconsciemment ou non,
-f 54 à
 
-PERSONNALITÉS
 les antiministériels, étaient, aussi, des ministères demipersonnels d'individualités, ou de personnalités secondaires. M. Méline existe.
 
 Je ne demande pas s'il est bon qu'il en soit ainsi. Je
@@ -1735,7 +1628,6 @@ les antiministériels. J'ai vu de très près M. Jules Guérin
 fonctionner en des journées inoubliables. Je crois que
 s'il avait eu le commandement en chef des forces, nous n'en serions pas où nous en sommes. Mais ces grands
 militaires se faisaient conduire par des vieux généraux
-autrichiens. r
 Parmi nous, et je continue les exemples que je citais
 au commencement de la première série, parmi nous
 n'est-il pas vrai que le jeu des personnalités a tenu
@@ -1758,11 +1650,9 @@ niable, je le nie. Moi aussi j'aimerais mieux que ce
 peuple regorgeât de sève, de santé, de personnalité. Û
 Moi aussi j'aimerais mieux que de ce pays montât un
 peuple si abondant de sa personnalité propre que les
-personnalités individuelles y passeraient inaperçues, À
 un peuple de luxuriance, une race copieuse, de grande F
 croissance, de poussée drue et de production harmo- j
 
-na PERSONNALITÉS
 nieuse. Moi aussi j'aimerais mieux que de la terre
 grasse il vint un regorgement de moissons sans fils de
 fer et de forêts d'arbres sans tuteurs. Mais nous n'en
@@ -1790,13 +1680,10 @@ jeu de fiches de France, parmi les républicains, parce
 qu'un homme en a fait son affaire. Pages Libres a le
 plus fort jeu d'abonnement pour des raisons dont l'une
 est que les deux administrateurs en ont fait leur
-affaire.
 
 Chez nous aucune humilité, fausse, ne nous fera dire
 que la gérance de nos cahiers aurait marché, marcherait toute seule, sans moi, que l'administration aurait
 marché, marcherait toute seule, sans Bourgeois. Et
-
-DEL A LP
 
 quand nous publions des contributions ou des œuvres,
 nous savons que ces contributions et que ces œuvres
@@ -1809,7 +1696,6 @@ de périodique et d'éditions un secret du métier : quand
 on veut qu'un cahier soit fait, on le demande à quelqu'un; quand on tient absolument à ce qu'il ne soit pas
 fait, on le demande à un groupe; à un comité, de préférence à un comité de rédaction. Les cahiers que je
 connais ont été faits par Jérôme et Jean Tharaud,
-René Salomé, André Bourgeois, Pierre Deloire, Hubert
 Lagardelle, Romain Rolland, Léon Deshairs, Pierre
 Baudouin, Lionel Landry, Antonin Lavergne, par
 M. Sorel, par mademoiselle Lévi, par Charles Guieysse,
@@ -1827,7 +1713,6 @@ de se faire enregistrer.
 Quand nous publions un cahier établi par la Société À
 des Universités Populaires, cela ne signifie pas qu'un
 groupe intitulé Société des Universités Populaires nous !
-LL SUN Etant se PERSONNALITÉS
 a donné de la copie qu'il avait faite. Cela veut dire que
 les initiateurs, les fondateurs, les secrétaires, les commissaires, les fonctionnaires des différentes Universités
 avaient, sur demande et convocation répétée, établi
@@ -1883,13 +1768,10 @@ Challaye et que Landry n'ont pas besoïn de personnalités étrangères qui les 
 raison que leur style même les recommande,ilnes'en w
 suit pas qu'ils n'aient besoin d'aucune personnalité, il W
 s'ensuit au contraire qu'ils sont eux-mêmes une personnalité, que cela se lit. C'est parce qu'ils sont une personnalité qu'ils n'ont pas besoin de recevoir de la
-personnalité. à
 Ce qui m'intéressait dans les courriers que Landry M
 nous envoyait de Chine, ce qui m'intéresse dans le W
 courrier que Challaye nous apporta d'Indo-Chine, c'est w
 justement que ces deux personnes, ayant voyagé dans
-
-PERSONNALITÉS
 
 _ ces deux pays, et y étant demeurées, nous contèrent ce
 qu'elles y virent. Qu'est-ce que le courrier de Challaye,
@@ -1917,7 +1799,6 @@ général, par le ministère des colonies, ou au contraire
 s'il avait fait authentiquer son courrier par la Mission,
 c'est alors que son courrier serait comme s'il n'était
 pas. Landry ne s'est pas fait certifier par M. le général
-Voyron.
 
 Le courrier de Challaye serait sans valeur s'il n'était
 pas la narration de ce que quelqu'un a vu quelque part
@@ -1932,7 +1813,6 @@ personne a subi, dans un pays, comme traitement
 particulier. Or cette relation a été composée à l'imprimerie et je l'ai lue en épreuves : rien ne m'intéresse
 autant, rien ne me renseigne autant sur le fonctionnement du despotisme russe que cette histoire particulière
 vraie d'un voyageur particulier véridique, des événements, des accidents même qui sont survenus à ce
-voyageur.
 
 On me dit : Les révélations de Challaye intéressent
 vingt-cinq millions d'hommes, le courrier de Challaye
@@ -1952,7 +1832,6 @@ autorité. Il importe en particulier aux cinquante
 millions de sujets français, aux vingt-cinq millions de
 sujets français gouvernés en Indo-Chine, que le
 
-PERSONNALITÉS
 personnel gouvernemental français ne soit pas tout
 composé d'arrivistes cruels. Quand nous barrons la
 route à un jeune ambitieux sans scrupules, nous
@@ -1978,7 +1857,6 @@ connaissait M. Doumer autant que je connais Téry et
 nous donnait la monographie de M. Doumer comme
 j'ai donné des fragments d'une monographie de Téry,
 on s'apercevrait que ce cahier Doumer serait de quelque
-utilité générale.
 
 On ne voit pas en effet pourquoi les monographies,
 qui entrent pour une part si considérable dans tous les
@@ -2015,8 +1893,6 @@ personnalités pauvres qui nous soutiennent aujourd'hui M
 ont fait et auront fait dans l'histoire de cetemps une
 action plus efficace, plus durable, que tous les groupes
 
-, PERSONNALITÉS
-
 groupisants, avec leurs présidents, leurs vice-présidents,
 leurs secrétaires, leurs trésoriers sans trésor, leurs parlotes, et leurs timbres en caoutchouc.
 
@@ -2034,7 +1910,6 @@ dans les bureaux de l'Assistance publique.
 Ainsi de l'abonnement, qui est en un sens une souscription. Je m'étais imaginé sottement que les groupes
 s'abonnaïient aux publications. Un ami nous avait
 communiqué une longue liste où il avait relevé consciencieusement, noms et adresses, tous les groupes importants de la France et des colonies: groupes de LibrePensée, loges maçonniques, Sou de la bibliothèque, F
-Cercles d'enseignement, Universités populaires, Cours
 d'adultes, Groupes d'études, sociales ou non, — je ne
 parle pas des comités politiques. Une expérience de
 deux ans, et qui nous a coûté cher, me permet d'affirmer
@@ -2045,7 +1920,6 @@ Bibliothèques peuvent bien recevoir des sous, mais
 | qu'elles se refusent obstinément à recevoir des livres.
 | Ce qui étudie dans les groupes d'études, ce qui lit dans
 | les groupes de lecture, ce sont certaines personnes. Et
-65 LV.
 
 dans les groupes où nos cahiers ont tenu, Cest qu'il y
 avait quelqu'un qui les tenait, ou quelques-uns.
@@ -2078,8 +1952,6 @@ lui dit pas : Pardon, monsieur, voulez-vous commencer À
 par nous répéter ce que c'est qu'une éprouvette.
 Je demande qu'on ne me fasse pas répéter. La vie est
 brève, et la tâche est immense. Le temps que nous w
-
-PERSONNALITÉS
 
 passerions à piétiner serait dérobé à l'action. Nos
 cahiers sont faits sérieusement. Ils valent qu'on les
@@ -2145,7 +2017,6 @@ plus de bataille il n'y aura plus d'adversaire, et plus
 d'adversaire, plus de bataille, cela veut dire que
 tant qu'on se bat, il faut mentir. Nous refusons formellement.
 
-; PERSONNALITÉS
 Dans le public plus large où nous parvenons, quelle
 sera la part du public universitaire ? celle qu'il voudra.
 Nous vivons sous le régime de la liberté. Le public
@@ -2191,7 +2062,6 @@ autant que je pouvais. Telles propositions, par exemple:
 En France le cléricalisme et l'anticléricalisme sont les
 seuls qui nourrissent leurs hommes. Le socialisme pur
 et l'anarchisme pur laissent crever leurs modestes
-À ouvriers me paraissent importantes. Seuls quelques
 universitaires s'imaginèrent que c'étaient là de misérables rabiots, comme certains universitaires s'étaient À
 imaginé que mes démonstrations des personnalités À
 étaient de lamentables bavardages. Et quand ce cahier

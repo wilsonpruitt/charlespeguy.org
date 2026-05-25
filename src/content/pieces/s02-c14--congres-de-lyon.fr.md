@@ -7,18 +7,8 @@ author: louise-levi
 isAvertissement: false
 wordCount: 13560
 ---
-
-*Louise Lévi*
-
-26-28 mai 1901
-Compte rendu analytique non officiel
-PREMIER JOUR
-
-dimanche 26 mai
-
 AUGAGNEUR est élu président. Le Congrès lui adjoint
 Renou et Gérault-Richard comme assesseurs, Briand eomme
-secrétaire.
 
 VAILLANT, proposé pour être assesseur, avait refusé en
 déclarant qu'aucun membre de son organisation ne ferait
@@ -37,7 +27,6 @@ faites au projet d'unification. Il propose d'inscrire la question de l'unité so
 
 mément à la décision du Congrès de l'année dernière, et de
 nommer une commission chargée d'examiner le projet
-d'unification,
 
 Joxpy dénonce les deux courants qui se produisent dans
 le socialisme, l'un, qui est traditionnel, le courant révolutionnaire, et l'autre, le courant opportuniste, qui tend à se
@@ -45,14 +34,11 @@ produire, On croit amener l'union en écartant les questions
 de principe, c'est la marche contraire qu'il faut suivre. Il
 demande, en conséquence, qu'on examine les votes de certains députés lors de l'amendement Zévaës, le conflit entre
 
-Compte rendu analytique non officiel
 les groupes du onzième arrondissement de Paris, l'affaire T3)
-Gelez.
 DE LA Porte est du même avis quant à la nécessité de
 traiter les questions de principe, mais il demande qu'on
 respecte l'ordre du jour, et il pense que les points touchés
 par Joindy seront mieux à leur place lors du débat sur la
-tactique parlementaire.
 Wizzm lit la déclaration émanée du secrétariat du
 P. O. S. R. après consultation de tous les groupes. Ce ma- è
 nifeste affirme que le projet d'unification du Comité général
@@ -66,7 +52,6 @@ le maintien de ces organisations. Il déclare être hostile à la
 participation d'un socialiste au gouvernement, tout gou- É
 vernement étant par définition hostile au socialisme. En
 ce qui touche Millerand, « il s'agit de savoir si Millerand
-n'appartient à aucune organisation socialiste, auquel cas
 ses actes échappent à notre appréciation; mais s'il appartient à quelque organisation ou à quelque fédération, nous
 demandons qu'on nous le fasse savoir, afin que nous "à
 jugions ses actes ». Enfin, le P. O.S. R. réclame la création
@@ -78,7 +63,6 @@ sentement, l'unification n'est pas possible, mais le P. S.
 demande, dans l'intérêt du Parti socialiste, que le Congrès
 recherche les moyens d'établir des liens entre les diverses
 organisations. Il dépose enfin une motion de bläme
-, Millerand. {Agitation) #
 DeLesALLe souhaite que bientôt le P. O. F. entre dans la
 grande famiile socialiste. {Des guesdistes massés aux tri- à
 
@@ -118,8 +102,6 @@ autre au point de vue des principes et qui ne veut pas
 qu'on le croie capable de s'être abaissé devant certaines
 excitations qui ne procèdent peut-être pas de préoccupations de principes. Le terrain ayant été ainsi déblayé,
 
-Compte rendu analytique non officiel Rs
-
 j'espère qu'il ne restera plus entre nous de malentendus et
 que nous examinerons les conditions dans lesquelles les
 militants et les groupes socialistes, cessant une agitation
@@ -127,7 +109,6 @@ stérile, voudront bien organiser le Parti pour une action
 révolutionnaire et nous demanderons que les éléments
 parlementaires du socialisme aient une attitude moins évo- è
 lutionniste et s'occupent d'organiser révolutionnairement le
-pays. »
 
 VAILLANT repousse l'accusation portée par Briand contre
 Mandé, il dissuada Millerand de prononcer ce discours.
@@ -155,9 +136,7 @@ ce qui nous permettra d'agir en face du péril clérical et
 césarien et de ramener nos amis du P. O. F. parmi nous.
 
 C'est pourquoi je vous demande de voter la proposition du
-citoyen Gauthier. »
 Jaurès demande le renvoi à la commission de la proposition De la Porte. Il trouve qu'il y a dans les termes de
-é CONGRÈS DE LYON
 cette proposition des éléments qui peuvent être acceptés et
 d'autres non. « El est puéril de nier que l'avènement, même
 irrégulier, d'un socialiste au ministère, n'ait été le signe
@@ -197,8 +176,6 @@ quant de la démocratie socialiste; il constate que la France,
 d'abord en retard, a repris son rang dans ces dernières
 années et il rend hommage à l'action exercée par la présence
 
-M ARS Le DR STE
-. Compte rendu analytique non officiel
 d'un ministre socialiste dans le ministère et surtout à laloi
 sur le Conseil du Travail. Il y a donc malentendu et je
 demande en conséquence que la proposition soit renvoyée
@@ -235,7 +212,6 @@ quelques observations supplémentaires au sujet de la proposition De la Porte : 
 de porter aucune excommunication contre personne ; mais
 le citoyen Briand a outrepassé ses droits dans quelques
 
-ÉTae CONGRÈS DE LYON à
 paroles qu'il a prononcées. Nous convenons que le citoyen
 Millerand n'a pas engagé le Parti. Mais pourquoi cette
 question revient-elle chaque année dans le parti? On nous
@@ -247,7 +223,6 @@ l'organisation des Fédérations autonomes. Nous pensons
 que l'unité peut se faire dès ce Congrès. Où donc les organisations puisent-elles leur vie si ce n'est dans le peuple, dans
 les Fédérations elles-mêmes ? Je demande done qu'on
 organise l'unité en prenant comme base les Fédérations
-autonomes. » j i
 LAGARDELLE croit qu'il faut mettre fin à l''équivoque
 actuelle. « Pour la troisième fois le Parti se réunit, et si nous
 ne voulons pas que ce soit une comédie éternelle, il faut
@@ -271,7 +246,6 @@ aussi que la commission ait un rapporteur de la majorité et
 un rapporteur de la minorité.
 De LA Porte déclare que ses amis et lui demanderont le
 vote par mandat. s
-Compte rendu analytique non officiel
 GnroussiER défend Sembat, rappelé à Paris, contre certaines paroles du citoyen Jaurès. « Je suis étonné de voir
 que le citoyen Jaurès, qui a été au Parlement, ait pu confondre le pouvoir exécutif et le pouvoir législatif; car si la
 thèse du citoyen Jaurès était poussée à bout, il faudrait
@@ -289,11 +263,8 @@ Jaurès, interrompant : « Le budget des postes rapporte
 millions à la société bourgeoise. »
 S Groussier : « Le prolétariat ne peut admettre qu'un socialiste reste au pouvoir alors qu'il a été frappé. »
 La séance est levée et remise au lendemain neuf heures.
-DEUXIÈME JOUR e
-‘ lundi 27 mai
 ALLEMANE est nommé président; Légitimus et Camelle
 lui sont adjoints comme assesseurs, Bonnevial comme secré-
-taire. En
 On reprend l'ordre du jour.
 FourxiÈre demande qu'on ne passe pas au vote avant que
 les propositions soient examinées par la commission.
@@ -311,7 +282,6 @@ trouver une formule telle qu'elle ne meurtrisse personne et -
 rallie tout le Parti. »
 
 VAILLANT, interrompant : « La formule De la Porte est
-telle. »
 
 RÉvELIX : « IL me suffit, citoyen Vaillant, que des camarades ne le croient pas pour que je demande que la motion
 soit examinée mürement. » /Des voix du P. S. R. : « Nous
@@ -323,7 +293,6 @@ Réveuix : « Ne procédons pas par un vote de division,
 
 La clôture de la diseussion est prononcée par le Congrès.
 On demande le vote par mandat. Le vote par mandat est
-accordé.
 
 Pendant qu'on dépouille le scrutin, un vote par acelamation a lieu sur la proposition du P. O.S. R. flétrissant la s
 guerre de Chine. /Cris : Abas la guerre ! guerre à la guerre !)
@@ -337,9 +306,6 @@ renvoi à la commission : 402 mandats,
 
 La proposition De la Porte est en conséquence renvoyée
 à la commission et la séance suspendue jusqu'à deux
-heures.
-
-S SÉANCE DE L'APRÈS-MIDI
 
 du Haut-Rhin et du Doubs, considérant que la proposition
 De la Porte est primordiale, demande que eette proposition
@@ -386,10 +352,8 @@ propos des fêtes de Toulon, je me demande quelle assimilation il peut y avoir e
 
 ministère et accepter une place dans une voiture. Ona
 cherché en soulevant cette question à faire une misérable
-diversion. » : “4
 
 Vivraxi ayant voulu reprendre la parole est accueilli à la
-Ù CONGRÈS DE LYON
 tribune par un tumulte indescriptible, il se produit même
 “des scènes de pugilat.
 
@@ -416,8 +380,6 @@ deux propositions, l'une de discuter l'entrée des syndicats
 et des coopératives dans le Parti socialiste et les conditions
 de cette entrée, la deuxième de suspendre la séance. La
 
-première va être mise aux voix.
-
 Le P. S. R. demande au milieu d'un grand tumulte la
 priorité pour l'ordre du jour Landrin.
 
@@ -428,25 +390,20 @@ Le président lit une déclaration du citoyen Landrin qui
 
 Doubs et du Haut-Rhin. Ces organisations déclarent
 qu'elles se retirent, non du Congrès, mais de la présente
-séance.
 
 Toutes ces organisations se retirent.
 
 La majorité du Congrès continue à discuter l'ordre du jour.
 Lévy se prononce pour l'entrée des syndicats dans le
 socialisme, mais à la condition que les membres des syndicats soient adhérents d'abord aux Fédérations de leur
-région.
 
 Plusieurs orateurs parlent pour l'entrée dans le Parti
 
-Compte rendu analytique non officiel
 socialiste des syndicats et des coopératives, d'autres
 orateurs parlent contre. Ces derniers, s'appuyant sur les
 Congrès corporatifs, craignent que les syndicats ne soient F2
 détournés de la lutte économique.
 La séance est levée à six heures et renvoyée au lendemain matin, neuf heures. ; F
-TROISIÈME JOUR É
-mardi 28 mai i
 CoLzy est nommé président avec Barrat et Hahn comme:
 assesseurs et Guillemin comme secrétaire.
 L'ordre du jour appelle le rapport de la commission. Le
@@ -541,8 +498,6 @@ Mais je dois dire que le citoyen De la Porte a maintenu sa
 
 motion sur laquelle il viendra s'expliquer tout à l'heure
 
-LR ÈS FRITES
-Compte rendu analytique non officiel Re
 appuyer parfois le ministère par ses votes, mais il dit que
 s'il a pu étre ministériel, il n'est pas ministérialiste, c'est
 à-dire qu'il n'est point partisan de l'appui donné au ministère en tant que ministère, mais pour ce que ses actes d
@@ -581,7 +536,6 @@ révolutionnaire. Millerand paraissait indiqué par lepro-
 gramme de Saint-Mandé comme susceptible de prendre une
 part de pouvoir. Première faute d'avoir laissé passer ce
 
-ST + CONGRÈS DE LYON
 programme sans protestation et de lavoir affiché partout
 dans les circonscriptions électorales. Je l'avais dénoncé, ce
 programme. Où sont-ils ceux qui sont allés dans le pays
@@ -619,10 +573,7 @@ s'excluant du Parti socialiste. Le citoyen Vaillant était
 uniquement préoccupé de faire écarter Galliffet, mais il n'a
 pas dit à Millerand : Vous ne devez: pas entrer au ministère. » - F
 Une voix du P.S. R. : « Millerand, c'est un assassin ! »
-(Tumulte) )
 
-Compte rendu analytique non officiel
-Esers à Briand : « Politicien! »
 BriaxD à Ebers : « Et c'est toi, Ebers, qui me traites de-
 politicien!!... Je dis que lorsqu'un ouvrier vient nous traiter
 de politiciens, je l'excuse, mais toi, Ebers!!., » /Tumulteformidable) :
@@ -695,7 +646,6 @@ comme ayant quitté le Parti par suite de son entrée au
 ministère ou s'il n'en a jamais fait partie. Nous pensons
 qu'il a été membre du Parti jusqu'à son entrée au ministère
 
-Compte rendu analytique non officiel
 - et qu'alors il s'est considéré comme étant dégagé du Parti.
 Vous voulez avoir une motion qui vous permette daflirmer
 que le Congrès a refusé de se prononcer. Mais nous vous
@@ -731,7 +681,6 @@ dun socialiste et telle était notre attitude au dernier Con-
 grès. Nous n'avons donc pas varié, comme on l'a prétendu.
 Et maintenant nous vous demandons de voter pour la « 4
 
-RMS. CONGRÈS DE LYON
 motion de la minorité et de dire si oui ou non Millerand
 appartient encore au Parti socialiste. La motion est d'une
 netteté telle que personne ne peut éviter d'y répondre. »
@@ -776,7 +725,6 @@ parce qu'elle est la réponse nette au ministérialisme, qu'elle
 ne comporte aucune équivoque. Au sujet des explications
 historiques qui ont été données, je demande à préciser
 
-Compte rendu analytique non officiel
 quelques points. Le groupe socialiste n'a pas été réuni pour
 discuter le cas Millerand; mais le citoyen Millerand est
 venu l'avant-veille de la constitution du ministère etila dit
@@ -847,7 +795,6 @@ tranchent les questions de principe dans le silence du cabinet ; mais quand on e
 quand on sent quelle est sa responsabilité, on hésite et l'on
 vote comme vous voterez un jour, quand vous serez dépu-
 
-Compte rendu analytique non officiel
 tés, je l'espère; et alors, comme vos aînés, vous ressentirez
 ce que nous avons ressenti. Le citoyen De la Portea donné
 des commentaires très conciliants de sa motion. 11 me permettra de lui dire qu'il s'expose à des interprétations qui
@@ -881,8 +828,6 @@ de nos amis que nous serons du même avis et que nous.
 poserons nous aussi. la question préalable, à moins de circonstances nouvelles. Mais, citoyens, nous ne pouvons vous -
 dire que vous n'aurez pas le droit d'admettre Millerand
 
-Lu : CONGRÈS DE LYON
-
 dans telle de vos organisations. Comment Briand veut-il
 concilier cette position d'un homme qui est en dehors du
 
@@ -891,7 +836,6 @@ de justice qui existent maintenant dans le monde ? Et si le
 citoyen Millerand s'est exclu lui-même du Parti, il est bien
 évident que nous n'avons pas à l'exclure, mais il faut du
 moins le constater. Je pose pour la dernière fois la question
-au citoyen Briand. »
 
 Brraxp : « Vous aviez semblé admettre qu'il n'y aurait
 pas de décision pour exclure définitivement Millerand du
@@ -925,15 +869,12 @@ De la Porte et ils demandent la priorité en sa faveur ; mais
 ë si elle est rejetée, ils déclarent se rallier à la proposition —
 Briand qui n'est pas exclusive de la proposition De la
 
-E > Pre
-Compte rendu analytique non officiel
 Porte puisqu'elle a repris les termes de celle-ci. — La déclaration porte les signatures des citoyens Jean Longuet, Parsons, Lagardelle, etc.
 RENAUDEL : € Je me suis rallié à la proposition Briand,
 parce que nous pensions qu'elle forcerait enfin tous les
 socialistes à s'incliner devant les décisions des Congrès. »
 Un grand nombre de citoyens du P. S. R. réclament la
 priorité pour la proposition De la Porte et le vote par ,
-mandat.
 Le P. 0.5. R. réclame vivement la priorité pour sa déclaration.
 BrraAND appuie la priorité en faveur de la motion du k
 P. O.S.R., puis il demande qu'on vote après sur celle de j
@@ -947,11 +888,6 @@ La priorité est repoussée.
 On vote surla priorité en faveur de la motion De la Porte.
 La priorité est adoptée à mains levées,
 On vote par mandats sur le fond de la motion De la
-Porte.
-RÉSULTATS DU VOTE : L
-Mandats représentés”, 2.2... 10100 3
-d DEléguts- VOLANT: er earenee 328 4
-Pour la motion.........,..
 Contre la motion.....,....
 Doubs, du Haut-Rhin, de Seine-et-Oise, du groupe central
 du onzième arrondissement de Paris, etc., lit une déclara- Ë
@@ -996,7 +932,6 @@ faut vous attacher désormais. »
 
 dèche, se rallie à l'union.
 
-Compte rendu analytique non officiel e
 LavauD constate que l'extrême-gauche a voté contre Lx !
 motion du P. O.S. R. Nous sommes pour l'union, mais nous
 sommes contre la disparition des organisations. “773
@@ -1006,7 +941,6 @@ BAGNoL dit au nom des Coopératives : « Nous ne sortirons
 pas de cette salle sans que l'unité soit accomplie. »
 Poxarp parle dans le même sens. É à
 Vivraxi fait appel au dévouement de tous en faveur du
-prolétariat.
 CarxauD parle dans le même sens, mais repousse toute
 coercition. « Nous devons donner l'exemple de l'amour
 entre nous. »
@@ -1025,7 +959,6 @@ rigides; laissant au temps le soin de les déterminer. Nous
 mesurons seulement la force des syndicats et des coopé- “à
 ratives par le nombre des inscrits; et comme dans la
 constitution commune, nous donnons un mandat pour
-deux cents membres cotisants. » RÉVELIX finit en annon-
 çant qu'il va lire article par article le projet d'unification
 qui sera ainsi voté au fur et à mesure que les articles
 seront lus.
@@ -1039,7 +972,6 @@ maintenir les anciennes organisations sans faire une unité
 ee CONGRÈS DE LYON
 prématurée, mais en recherchant les moyens propres
 resserrer le plus possible les liens d'amitié entre organi- ‘
-sations.
 JauRÈs voulant monter à la tribune, les guesdistes des
 tribunes crient : À Chalon, etc. — On les expulse.
 RéveLn lit l'article premier : -
@@ -1056,7 +988,6 @@ la doctrine et la tactique du Parti. »
 ARTICLE 3. — « Les syndicats sont invités à adhérer aux
 fédérations d'industrie ou de métiers, et les coopératives
 sont obligées d'attribuer une subvention à la propagande
-socialiste. »
 ARTICLE 4. — « Les groupes d'études et de propagande,
 les groupes politiques permanents, les syndicats et les coopératives doivent adhérer à la fédération du département
 ou de la région.
@@ -1069,13 +1000,11 @@ dans ses statuts, les règles selon lesquelles doit s'établir le
 concours des groupes socialistes, des syndicats et des coopératives. »
 ARTICLE 6. — « Chaque groupe socialiste doit être excelusivement composé de membres du Parti, et nul ne pourra
 
-. Compte rendu analytique non officiel à
 être inscrit à un groupe socialiste, s'il est exclu de son syndicat pour trahison en temps de grève (sarrasinage). »
 ARTICLE 7. — « Les groupes d'une commune ou d'un
 quartier forment une union de commune ou de quartier.
 « Les groupes des unions de commune ou de quartier sont
 convoqués en réunion plénière au moins une fois tous les
-trois mois.
 ; « Ils se concertent pour la propagande, désignent les candidats aux élections municipales et élisent le comité de
 ë l'union des groupes. » ‘4
 ARTICLE 8. — « Les groupes d'une circonscription législative forment une section unique. Ils peuvent désigner les
@@ -1100,7 +1029,6 @@ sentation proportionnelle des minorités. »
 ARTICLE 14. — « Les groupes ne pourront désigner
 qu'un candidat ou qu'une liste de candidats par circonseription.
 « En cas de conflit entre les groupes, le Comité fédéral
-servira d'arbitre. » è Re.
 ARTICLE 15. — « Nul ne pourra être considéré commecandidat socialiste, s'il ne rappelle dans ses professions de foi
 
 les principes qui ont servi de base à la constitution du
@@ -1110,7 +1038,6 @@ On décide qu'en tout ceci le mode de procéder n'aura ?
 lieu que pour une année, jusqu'au prochain Congrès.
 
 On adopte sans discussion les articles suivants jusqu'à
-l'article 21.
 
 ARTICLE 16. — « La direction générale du Parti appar-
 tient au Parti lui-même, c'est-à-dire au Congrès national
@@ -1119,7 +1046,6 @@ qui se réunit chaque année. »
 ARTICLE 17. — « Les délégués au Congrès national sont
 élus par les Congrès des fédérations, au scrutin de liste
 avec représentation proportionnelle des minorités. »
-ARTICLE 18. — « Chaque fédération aura
 « 1° Un délégué de droit, et si elle comprend plusieurs
 départements, un délégué de droit par département ;
 « 2° Un délégué par deux cents membres inscrits et coti
@@ -1133,7 +1059,6 @@ immédiatement le Congrès ou par fraction de cinq mille
 suffrages égale ou supérieure à deux mille. »
 
 ARTICLE 19. — « Le Congrès nomme les délégués au secré-
-tariat international. »
 
 ARTICLE 20. — « Le Congrès national fixera chaque année
 la subvention qui doit être attribuée à l'organisme central
@@ -1147,11 +1072,7 @@ exercé sur les élus par le Comité général.
 FerrouL propose qu'ils soient sous le contrèle des Congrès.
 
 Le Congrès décide qu'ils seront sous le contrôle du
-Comité général.
 
-CREVER
-RP SRE NAME RE CET dE TS
-Compte rendu analytique non officiel
 Les articles suivants sont adoptés jusqu'à l'article 26 : FC
 ARTICLE 21.— « Le Congrès ne peut se réunir deux ans “
 de suite dans la même ville. Le Congrès désigne chaque Ex
@@ -1191,7 +1112,6 @@ l'examen du Comité général, ainsi que tous ies amendements présentés sur le
 On adopte sans discussion tout le reste du projet d'unilication.
 ARTICLE 26. — « Le Comité général reçoit les cotisations
 perçues au profit de l'organisme central par les fédé-
-rations. »
 ARTICLE 27. — « Le Comité général prépare les rapports
 qui sont soumis tous les ans au Congrès national.
 « Ces rapports sont imprimés et adressés aux fédérations
@@ -1199,16 +1119,13 @@ deux mois avant l'ouverture du Congrès. »
 ARTICLE 98.— « Le Comité général fait observer les
 décisions des Congrès nationaux et internationaux.
 « IL contrôle la presse du Parti, conformément aux résolutions du Congrès de Paris en 1899, les élus et tous les
-militants.
 « Sa fonction essentielle est d'organiser la propagande
 générale et l'action d'ensemble du Parti. »
 ARTICLE 29. — « Le Comité général préparera, pour les
 élections législatives et municipales, un programme qui
 sera précédé d'un exposé théorique des principes du
-socialisme.
 « Ce programme sera soumis à l'examen des fédérations
 et du Congrès national de 1902, qui se réunira avant les
-élections législatives. »
 ARTICLE 30. — « Les députés socialistes forment à la
 Chambre un groupe parlementaire unique. Ce groupe est
 fondé sur les mêmes principes que le Parti lui-même.
@@ -1223,7 +1140,6 @@ tour de rôle au tableau de service.
 le communique au Comité général. »
 ARTICLE 32. — « Le secrétaire du Comité général fait con49 k
 
-Ë -_ Compte rendu analytique non officiel
 naître au secrétaire du groupe parlementaire les demandes
 qui ont été adressées au Comité général.
 
@@ -1264,7 +1180,6 @@ groupes un mois avant l'ouverture du Congrès. C4
 
 « Tous les rapports sont transmis au Comité général du
 Parti socialiste, qui soumet un rapport au Congrès
-national. » ke
 
 ARTICLE 37. — « Le prochain Comité général sera constitué
 sur-les mêmes bases que la commission des résolutions du
@@ -1272,9 +1187,6 @@ Congrès de Lyon.
 
 « Chaque fédération ou organisation nationale aura un
 délégué pour vingt-cinq mandats, ou par fraction égale ou
-supérieure à dix. (
-
-per ‘4
 
 ions CONGRÈS DE LYON
 « Toutes les fédérations qui ont été représentées au
@@ -1283,7 +1195,6 @@ Congrès de Lyon, quel que soit le nombre de leurs man-
 ARTICLE 38. — « Le Comité général est chargé de préparer
 un projet de constitution des groupes socialistes du département de la Seine, d'ouvrir une consultation auprès de
 tous les groupes et de soumettre ce projet au prochain
-Congrès national. »
 ARTICLE 39.— « L'unification complète du Parti socialiste,
 c'est-à-dire la fusion de toutes les organisations, ne pourra
 être décidée que dans un Congrès national. »
@@ -1291,20 +1202,16 @@ L'ensemble du projet mis aux voix est adopté.
 On agite le choix d'une ville pour le prochain Congrès.
 Un violent tumulte se produit.
 STRooBANT propose Albi où se trouve la verrerie
-ouvrière.
 Jaurès, tout en reconnaissant la pensée qui a dicté cette
 proposition, met en doute les conditions matérielles de
 succès d'un Congrès tenu à Albi. « Il ne faut pas non plus
 qu'on soupçonne en ceci les militants, auxquels on reproche
 à tort des préoccupations personnelles /Applaudissements),
 d'avoir voulu placer le Congrès sur le terrain de leurs
-premiers efforts. »
 On propose successivement Dijon, Nantes, Bourg, ete. Un
-tumulte épouvantable se produit. Certains congressistes
 crient le mot de Cambronne, d'autres Hou ! Hou ! Le spectacle
 du Congrès est lamentable.
 Finalement la ville de Tours est choisie à cause de sa
-position centrale.
 On vote des félicitations à Révelin, pour le dévouement
 -qu'il a montré dans ses fonctions de rapporteur.
 On vote également à l'unanimité une motion en faveur
@@ -1314,8 +1221,6 @@ et des remerciements à la ville de Lyon pour l'hospitalité
 accordée au Congrès, ainsi qu'à la commission d'organisation pour la bonne préparation du Congrès.
 Un débat très vif et très confus s'engage sur la question
 
-PSE EX FREE
-. Compte rendu analytique non officiel
 de l'élection du onzième arrondissement de Paris. Finalement un délégué de la Fédération de la Seine prend l'enga- se
 gement au nom de cette Fédération d'examiner à nouveau
 la question.
@@ -1324,7 +1229,6 @@ nal ofliciel du Parti. — Voté à l'unanimité.
 Rexaupez lit le manifeste rédigé par la commission et
 adressé à la France prolétarienne.Il peut se résumer en cette
 phrase : « C'est par les fédérations autonomes que l'unité
-s'accomplit. »
 Des délégués du P. O.S. R. déclarent qu'ils sont pour
 l'union et non pour l'unité.
 Jaurès demande alors d'accorder quelques minutes pour
@@ -1345,7 +1249,6 @@ La commission ayant trouvé une formule qui satisfait le
 P.0.S. R. en ce qu'elle implique l'union sans détruire les
 organisations, le manifeste est voté.
 Le congrès est levé au chant de l'Internationale.
-L.:.Lévi
 Vers l'unité : après ce congrès le Groupe des Étu- Re
 
 -  diants Collectivistes de Paris s'est partagé; les dissidents
@@ -1353,7 +1256,6 @@ vont sans doute fonder le Groupe des Étudiants Gollectivistes Révolutionnaires
 Les deux annonces qui suivent compléteront utilement
 
 nos annonces de la deuxième série : :
-BIBLIOTHÈQUE OUVRIÈRE SOCIALISTE
 
 La Bibliothèque Ouvrière Socialiste est fondée pour aider
 de tous les moyens en son pouvoir à réaliser l'énancipation des travailleurs par les travailleurs eux-mêmes.
@@ -1387,18 +1289,15 @@ contre la réaction et la barbarie menaçantes.
 à Quand vous aurez lu nos petites brochures de la Bibliothèque Ouvrière Socialiste, repassez-les à vos compagnons
 de labeur et de servitude, comme les anciens se passaient
 de main en main le flambeau symbolique dans leurs fêtes
-fraternelles.
 
 Faites-les lire à vos femmes et à vos sœurs pour que les
 lueurs de la science émancipatrice chassent de leur cerveau
 les ténèbres du mystère et les aveuglants éclairs du
-miracle,
 
 Discutez-les entre vous pour vous prouver à ous-mêmes
 
 quatorzième cahier de la deuxième série
 que vous avez bien compris la pensée socialiste qui les
-anime.
 Songez bien surtout que notre désir le plus ardent n'est —
 pas de vous imposer une doctrine quelconque, mais de
 vous renseigner sur les conditions réelles du milieu social a
@@ -1408,7 +1307,6 @@ libération. Apprenez à penser et à conduire votre pensée.
 Rappelez-vous toujours que vous n'émanciperez vos bras
 de la servitude capitaliste que lorsque vous aurez chassé ,
 de vos cerveaux l'ignorance et les préjugés que vos maitres
-y entretiennent soigneusement.
 Vous assurerez le succès de votre Bibliothèque Ouvrière
 Socialiste, car elle sera bien à vous. Fondée sans esprit de
 lucre et sans désir de briller par l'étalage d'une fausse
@@ -1428,10 +1326,8 @@ adresseront, et même par les critiques qu'ils nous feront. 4€
 La Bibliothèque Ouvrière Socialiste n'est pas une œuvre
 de secte. Notre programme est celui du Parti socialiste.
 L'unité définitive et absolue est notre idéal d'organisation
-socialiste.
 Nous convions les représentants de toutes les écoles ve
 socialistes à collaborer à notre œuvre d'une utilité incon-
-testable.
 La Bibliothèque Ouvrière Socialiste contiendra quatre
 catégories de brochures qui traiteront : 1 À
 
@@ -1440,10 +1336,8 @@ catégories de brochures qui traiteront : 1 À
 2) Les questions ouvrières.
 3) L'histoire du mouvenient et des idées socialistes.
 4) Les questions d'actualité intéressant le Parti socialiste.
-BIBLIOTHÈQUE OUVRIÈRE SOCIALISTE
 
 La Bibliothèque Ouvrière Socialiste publiera les brochures
-suivantes
 1. Les Principes socialistes. . . , JEAN JAURÈS
 2. Les Moyens pratiques du So-
 
@@ -1457,16 +1351,9 @@ suivantes
 15. La Coopération socialiste. . . NAVIER GUILLEMIN
 16, La Lutte politique et la Lutte
 17. Le Socialisme et la petite Pro- r:
-Patrie; 51; 2.1.4 HOGOSTAYEROUANET
 20, La Banque de France, . . . . RENÉ VIVIANI
 Nous ont promis également leur concours
 J.-L. Breton, Louis DupreuiLn, E. FAUQUET, ANATOLE
-FRANCE, GÉRAULT-RiIcHARD, HUBERT LAGARDELLE, PHILIPPE
-Laxprieu. BERNARD LAZARE, CHARLES LOXGuET, JEAN LoxGUET, LAVAUL, Pauz Louis, MARCEL Mauss, JEAN MÉLrA,
-ALBERT Mérix, Azrrep NaQuer, Docteur FéLicre NossiG,
-FERNAND PELLOUTIER, G. PINARDI, FRANCIS DE PRESSENSÉ,
-Docteur N. REICHESBERG, JosEP SARRAUTE, Épouann
-VaizLaxT, Docteur Z.…, etc.
 
 quatorzième cahier de la deuxième série
 La Bibliothèque Ouvrière Socialiste se propose en outre ne
@@ -1482,11 +1369,8 @@ La journée de huit heures. — Les grèves. — Boycottage.
 5 — Bureaux de placement. — Caisses de retraite et assurances, etc., etc.
 Pour LA CATÉGORIE III /Histoire du socialisme) : De
 Biographies socialistes : Thomas Morus et Campanella, 4
-Robert Owen, Babeuf, Saint-Simon, Charles ‘Fourier, Louis
-Blanc, Proudhon, A. Blanqui, Karl Marx, Benoît Malon, ‘30
 Lassalle, Pierre Lavroff, Michel Bakounine, César de
 Paepe, etc., etc. De:
-POUR LA CATÉGORIE IV
 {Questions d'actualité intéressant le Parti socialiste) : ‘4
 F La religion à travers les âges. — Le rôle des jésuites. — F.
 plébiscite. — La question coloniale. — La liberté de l'enseignement et les congrégations.
@@ -1495,19 +1379,9 @@ sujets ci-dessus indiqués de s'adresser au Secrétaire-Administrateur *à
 de la Bibliothèque. —
 Le prix de chaque brochure, de 16 à 32 pages, est fixé
 Le Comité de rédaction est composé des citoyens: ALDABE, 50
-è A. BriaAxD, EUGÈNE FourNIèRE, Docteur KAsIMIR, A.
-CuarLes RAPppoPorr, citoyenne E. RENAUD. Re.
-Le Trésorier, ‘33
 L'Administrateur-Secrétaire, Docteur KASIMIR
-CuaARLEs RAPPOPORT ‘Se
 Pour tous les renseignements et les demandes d'abonnements,
 s'adresser à CHARLES RaPPOPoRT, 12, rue du Commandeur, Paris.
-SOCIÉTÉ
-POUR
-L'ENSEIGNEMENT SUPÉRIEUR POPULAIRE
-L'ÉDUCATION MUTUELLE
-m'LAT U'ES
-TITRE PREMIER
 But et Composition de l'Association
 ARTICLE PREMIER. — Il est fondé à Paris, entre les
 personnes qui adhèrent aux présents statuts, une association dite Société pour l'Enseignement supérieur
@@ -1531,11 +1405,9 @@ ARTICLE 4. — La Société publie un bulletin, centralise Re,
 
 les documents et toutes les demandes venant des associations adhérentes, fournit tous renseignements utiles, 4
 statuts et programmes, etc., fait tous actes de propa- É-
-gande.
 ARTICLE 5. — Le siège de la Société est établi Hôtel
 des Sociétés Savantes, 28, rue Serpente.
 Il pourra être changé par décision du Comité d'ad- À
-ministration (1).
 ARTICLE 6. — Pour faire partie de l'Association, il
 faut : 1° être présenté par deux membres au moins de “4
 l'Association; 2° être admis par le Comité d'administra- À
@@ -1547,15 +1419,11 @@ tion, ce comité prononçant l'admission au scrutin secret
 Les mineurs ne peuvent faire partie de l'Association ee
 qu'avec le consentement de leurs parents ou tuteurs. “10
 
-TITRE I
-Administration he.
 ARTICLE 7. — L'Association est dirigée par un Comité
 d'administration de trente membres. Le Comité se renou-
 (1) Ce siège a été transféré 16, rue de la Sorbonne, au second. È .
 
-SOCIÉTÉ DES UNIVERSITÉS POPULAIRES
 velle par quart chaque année, les membres sortants sont
-rééligibles. >.
 
 ARTICLE 8. — Les membres du Comité d'administration
 sont élus par l'Assemblée générale, au scrutin secret.
@@ -1567,7 +1435,6 @@ ARTICLE 9. — Le Comité d'administration choisit parmi
 ses membres le Bureau pour une année. Le Bureau est composé d'un Président, de trois Vice-Présidents, d'un Secrétaire
 général, d'un Trésorier.
 Il peut nommer des adjoints au Secrétaire général et au
-Trésorier.
 
 ARTICLE 10. — Le Comité d'administration fait rédiger
 
@@ -1575,7 +1442,6 @@ chaque année, par le Secrétaire général, un rapport sur la
 situation morale, et par le Trésorier un rapport sur la
 situation matérielle de l'Association; les deux rapports
 sont soumis à l'approbation de l'Assemblée générale
-annuelle.
 . ARTICLE 11. — Le Secrétaire général a la garde des
 archives; il est chargé de la correspondance, reçoit et
 transmet au Comité d'administration les demandes d'admission, tient les registres des procès-verbaux des séances
@@ -1596,9 +1462,7 @@ d'administration est nécessaire pour la validité de ses délibérations.
 
 Tout membre du Comité qui, sans s'être fait excuser,
 manque trois séances consécutives, est considéré comme
-démissionnaire.
 quatorzième cahier de la deuxième série
-TITRE III
 Comité de Propagande
 ARTICLE 15. — Le Comité d'administration s'adjoint
 telles personnes qu'il juge utile pour former le Comité
@@ -1606,13 +1470,11 @@ de propagande. Ces personnes sont choisies : 1° parmi
 les membres des différentes associations adhérentes;
 2° en dehors des associations, parmi les personnes qui k
 peuvent rendre service à la Société en raison de leur
-compétence. d
 ARTICLE 16. — Le Comité de propagande est convo- È
 qué périodiquement par le Comité d'administration.
 Il est consultatif. ,
 Ses réunions sont ouvertes à tous les sociétaires et
 aux personnes présentées par les sociétaires.
-TITRE IV 5 EE.
 Ressources annuelles et Fonds de réserve De.
 ARTICLE 17. — Les recettes de l'Association sont les sui- 3 Evanies : à
 1° Les cotisations annuelles ; Se

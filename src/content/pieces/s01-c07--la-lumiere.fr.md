@@ -7,7 +7,6 @@ author: jerome-et-jean-tharaud
 isAvertissement: false
 wordCount: 3854
 ---
-
 *Jérôme et Jean Tharaud*
 
 — « Je Tai fait du mal. C'est sans le vouloir » —
@@ -25,11 +24,8 @@ mains étrangères, je serai séparée de lui par des
 milliers de lieues. Je ne saurai à aucune minute de
 
 - Madame Saint Adjutory se penchant hors de la
-fenêtre appela
-— Clément !
 
 L'enfant répondit d'en bas
-— Maman.
 
 — Monte ici que je te voie.
 
@@ -45,11 +41,9 @@ l'escalier, revint à la fenêtre, aperçut le corps
 étendu. Elle descendit effrayée, releva l'enfant, le
 porta sur son lit, lava son visage. L'évanouissement
 dura peu. Clément rouvrit sur sa mère ses immuables yeux; un filet de sang avait rougi le blanc des
-sclérotiques.
 
 — Tes yeux sont crevés. —
 
-Clément frissonna.
 — Crevés mes yeux? —
 Il glissa la main sur ses cils tremblants, étonné
 
@@ -73,7 +67,6 @@ et prophétique, avec son diadème de linge blanc.
 — Des souffrances l'attendent au loin, assises
 à tous les carrefours de la vie — Pourquoi était-il
 né ? Qui l'avait désiré? La maison était déjà pleine
-d'enfants —
 
 Des heures tintèrent. Dans l'escalier des pas et
 des voix. Cinq garçons entrèrent à la file, avec des
@@ -86,7 +79,6 @@ Ils demandèrent
 
 L'infirme répliqua violemment
 — Si j'y voyais clair la bâche ne m'aurait pas fait
-tomber.
 
 Ses frères se regardèrent mystérieusement émus.
 
@@ -105,14 +97,12 @@ dans le vide quelques secondes. Il frémit d'avoir
 — Jei tout près de toi ; tu as peur?
 
 Par économie, la lampe était tardivement allumée. Les enfants restèrent dans la pénombre d'un
-soir désolé.
 
 Poussés par le vent, des nuages s'avançaient d'un
 mouvement lent et invincible sur toute l'étendue de
 l'horizon. Les enfants regardaient le ciel en voyage.
 
 la lumière
-Clément demanda
 — Que regardez-vous ?
 
 Vincent l'aîné répondit : 22 A
@@ -130,7 +120,6 @@ Leur père entra. On servit la soupe.
 
 fient tous de moi, tous, tous. Il faudrait vivre pourtant.
 
-Madame Saint Adjutory insinua
 — Dieu ne voudra pas —
 
 — Tu me fais rire — avec ton bon Dieu!
@@ -190,7 +179,6 @@ de toi et de moi.
 ferions-nous là-bas de ses inutiles yeux. Timor est
 une île redoutable. Il faut des sens aiguisés et tou-
 jours en éveil pour échapper à la traîtrise de ses
-forêts.
 — Nous défendrons l'enfant contre la forêt.
 — Le défendras-tu contre le soleil?
 — Contre le soleil?
@@ -216,10 +204,6 @@ faible, de Celui qui a le plus besoin de notre tendresse!
 
 — La vie de Clément est assurée. Majorel m'a
 supplié, si nous partons, de lui laisser cet enfant.
-
-— Majorel —
-
-— Oui Majorel —
 
 — Jamais ! C'est un homme sans religion.
 
@@ -266,7 +250,6 @@ d'ici ! Sur le pont d'un navire écouter le bruissement
 de l'eau contre la carène ! —
 Son mari sentit que sa résistance était à moitié rompue.
 — Le mépris des hommes se lève sous nos pas.
-— Partir.
 — Voir des terres, des mers, des cieux nouveaux.
 — Pitié ne me tente pas!
 — Oublier notre sinistre destinée !
@@ -276,7 +259,6 @@ Son mari sentit que sa résistance était à moitié rompue.
 
 la lumière -
 — Dépenser sa force en liberté, défricher des
-bois.
 Madame Saint Adjutory écarta avec ses mains
 ces images tentatrices.
 — Pitié ne me tente pas!
@@ -290,28 +272,21 @@ avec de longues rames qu'ils manœuvraient à deux
 mains. Pour cadencer leur effort, du fond de leur
 gorge, il sortait des sons rauques. Passées les antennes des digues, la barque fut enlevée sur les
 grandes vagues, et quand ses voiles, son mât, sa
-- coque eurent disparu, madame Saint Adjutory vit
 une minute encore étinceler la pipe de l'homme qui
 était à la barre. — Au loin la mer passait la navette de ses lames paisibles sous la lumière changeante des phares plantés à l'extrémité de la double
-jetée.
 Les hommes de cette contrée partent sur cette
 mer depuis des siècles ! Nous sommes d'une race de
 
 commerçants hardis. La terre maternelle n'est pas
 pour nous. Les îles lointaines nous désirent — ne
-Æ: Madame Saint Adjutory s'abandonna
 l'ivresse de la mer. Elle dit sans énergie : Er
 — Mais nous ne pouvons pas abandonne
-Clément !
-sta . ‘10e
 — Dieu ne nous pardonnerait jamais! — Un
 cri strident s'élança derrière eux. L'homme et la Bt
 femme se retournèrent. L'enfant aveugle, en chemise
 était debout, les yeux grands ouverts, les mains
 crucifiées contre la porte.
 
-CARS
-: STE È
 La ville était une ville de désolation, car elle
 était à l'embouchure d'un grand fleuve qui traver-
 sait un pays de houille. Antique résidence des Rois, he:
@@ -368,7 +343,6 @@ Les Saint Adjutory étaient perdus dans la foule.
 
 Ils furent appelés des derniers. Clément ne put s'approcher assez près de la passerelle pour que sa mère
 pût l'embrasser encore. Elle cria à l'abbé :
-— Sou- F
 
 venez-vous de votre promesse.
 Les chaînes qui portaient les ancres furent hâlées
@@ -377,7 +351,6 @@ broyée par l'hélice écuma, le navire trembla et se
 mit silencieusieusement en route par l'éclaircie .
 d'une après-midi pluvieuse, sous la menace des ‘4
 nuages et le calme présage d'un arc-en-ciel rose et
-vert.
 Clément avait couru à l'extrémité de la digue, j
 
 là où s'élève l'antique tour des Pleureurs, ainsi
@@ -411,7 +384,6 @@ Clément était seul. On apporta pour lui une
 lettre. Il dut garder toute une après-midi entre ses
 doigts le papier où il y avait écrit des paroles
 d'amour qu'il ne pouvait pas lire.
-Enfin Majorel arriva.
 La lettre était très longue et de toutes les écritures.
 Le père exhortait l'enfant au courage.
 Sa mère lui disait sa désolation d'être partie.
@@ -470,7 +442,6 @@ abandonna sa maîtresse, il se désola de la vie humaine qu'il avait menée. Les
 relles évoquèrent en lui des scrupules.
 Un matin, comme ils déjeunaient devant une
 table de brasserie, Reims lui dit sans émotion
-— J'ai décidé d'entrer au séminaire bientôt.
 — Un curé! toi, un curé! C'est une honte, une
 véritable honte. Les superstitions de ton enfance
 sont mortes en moi, elles sont presque mortes en toi.
@@ -485,7 +456,6 @@ Re. appellent Ame et Dieu. Vive la joie de vivre.
 ne — Le temps seulement de régler avec moi .
 De: quelques pensées. Ne me juge pas. Tu ne le pourrais
 PS De nouveau la vie les avait réunis au bord d'une
-A mer septentrionale.
 x ol Reims aimait profondément Majorel, Majorel ne
 Ets savait pas s'il aimait Reims ou s'il le haïssait. Il
 LR” entendit un saut sur le plancher.
@@ -495,7 +465,6 @@ na. & fantôme de son rêve avait pris forme, et le chassait
 ‘2 ne devant lui, vivant, palpable, invincible.
 is Il tomba à genoux demandant grâce.
 ti — Clément — c'est moi, ton ami — reconnais-
-“4 moi.
 Pn : Clément s'élança vers lui.
 #4 4 __ — Ah oui, maître, c'est vous, des gens horke ribles étaient là, défendez-moi si vous m'aimez.
 SE Majorel prit Clément dans ses bras et pendant
@@ -513,7 +482,6 @@ sur des épaules caprines, sa peau avait la blan-
 - cheur des coutures de cicatrices, ses lèvres relevées
 au-dessus des gencives étaient trop courtes pour F .
 s'unir et ses paupières coupées au ras des orbites “ ‘4
-! Fat
 n'essuyaient jamais ses yeux, deux boules de sang 15 » . .
 coagulé blasonnées par des raïes noires. RP 2:
 — Zachée dis-nous ton histoire ?
@@ -525,7 +493,6 @@ l'éclat du fils de Dieu. J'étais dans la lumière, je fus ie
 précipité dans la nuit. — Je criai vers Lui éper- 215
 dûment. Il mit sa main sur mon visage et me Me
 
-demanda : Zachée, quelle chose te blesse ? — ‘17508
 Seigneur, vous le savez : guérissez-moi. — Vis mn.
 plutôt éternellement et conserve dans la nuit la ne!
 Fes ne
@@ -544,13 +511,9 @@ Ce cahier a été composé par des ouvriers syndiqués
 
 Suresnes. — Imprimerie G.-A. Ricmarp & Compagnie, 9, rue du Pont. — 2226
 
-D. ART LIENS CAR EME
-Feat, à TL EEE
 S Nous publions vraiment notre état de siluation : ROUS
 avons tiré le sixième cahier à 800 exemplaires. de
-outre! 191 exemplaires d'abonnements annuels gra
 tuits et 25 exemplaires d'abonnements annuels gratuits
-payés d'ailleurs, Ra
 ee" nous l'avons envoyé à 135 abonnés ferme, (124.
 Le et nous avons fait 22 services, dont 5 aux imprimeurs.
 DUR. Nous continuerons dans le prochain cahier à publier

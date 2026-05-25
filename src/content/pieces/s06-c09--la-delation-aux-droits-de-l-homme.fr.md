@@ -7,59 +7,15 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 49792
 ---
-
-Al |
- /  NEUVIÈME CAHIER DE LA SIXIÈME SÉRIE
-f TEXTES FORMANT DOSSIER
-LA L
 la délation
-? %
 aux Droits de l 'Homm:£
-139891 Fm.
-4.10.i6
-GAHIERS DE LA QUINZAINE
 k paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 a Var: ME DES f Tr LP CR TES
-UOTE É = - 1 VER PSE US
-7250 LES FIRE
-APE RER ” PL) 0 02: STRESS
-+ li > ER) ME ROM Re 5
-PAS - b Ÿ Led SC SE
-F LES L:+ ON PIES GPL RS OEL. SL
-Es È a : ÿ ï : Lire RES #
-+ Re 2 : = Fe RAS ue)
-‘PT NU AL"
-A X ù - À 27: JA CASE
-PL: k ABÈ . LEE DNS RETERS
-Rittte LF} 00 0 ' MED nc À
-à Lee US à RU J ; SAT L'ENIONE- LORS a.
 
-+ aan RU RT Ée pk à 708 LT NYne : eye TV reL aie
-SRE CSN DE 60, AAVA RER Are 5 EEE NC TE RACE
-LA RO PATTES EN LE ER SE EN 2 PR)
 AT L ne 1 ' en
-LÉ ; is
-x ART  « LTÉE
-ï , fes A
-MAT | a a
-AR: : 1 { UE 10
-sa 71 " Me r
-: 1/00 LTÉE
 | j-<,: MOINE i 17 , HASISNTL 5
-LRTL 7 CRC | 12e Aa
-714 HIER RATES Le,
-24 IRC ! KP" 0
-Du | 151 »: UNE , TE ' $ PA AE
-€ 2408 | : AUS 4 LFALRI
-PO f , Ty “ 14 RE
-Dar + ni” ee . > + 1
-Ai CO {TARN e? PE ERRRES
-Heu: ] VERS CU.
-
-À ES i
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si à
@@ -90,114 +46,27 @@ série ; nous l'envoyons contre un mandat de cinq francs Ho à Ë
 
 _ à toute personne qui nous en fait la demande $ “
 
-CC PET SRE A EEE 0 ji: RAP 7 Me (NC PO OS
-0 EN PRÉPARER AE AE TE EC TAN My Cned HE
-RP ar EU À RCE Net 0 AMEN LEONE à Ur INTER
-A A EUR 0 A DD PEAR FR AE AC
-4. re Cv DV ARR » FRUG Fr MEN Pr.
-a XIE
-D UE : MOTS:
-Poe. 2 rc,
 nr: hit L À) + NE
-RE  : L 2 1E XL P5: LES
-RU x DU ER NS ER
-j DAT LA FEES
-ASS TRSERE ü £ 4 { ., ME . 487
-A $ « 4! HE 5
-‘ MER Pi CA j | cs LATE
-:. : S'ALRTERTSS 4 4 ME ON RS
-A  , è ; 1, 14 PASS
-F. Pre Qu” : , ‘ £ A4 Lun -
-1" RCE Lea RE i x ; 16.0 BU sas NL ji
-sé ‘Je MX : LÉ ORPEN Ê , + \): LI CN UR
-, MAR ; ft Vert + { 2 4 OP PEER
 É # VAE he: MORE UE ES LR +R TMS LATE ET
 ta ARSINER RE A PS qe SCORE 2 1 EN RENE
 tre ré be ATEN ETAPE ET 0 0
-RL | AE TRES NT STONE M 1 TA
-. 1 TOME ALT Ne AUS 1 ET ER
 ; Cafe # M L'h2 PA\ESeTI 1 WEP Nu? ] ñ one Ve aus ur
 à JE PORTE L'ONU Es er ik we. A Y ER |
 |, M'ARTOURIREECANTANEE Ne LT ASP URONNSSSS
-+ UE g ft FINE ELEMENT THEMES
 El Des RO e MONTE A Ne NS QE :
 
 ÿ CE Ar TE So Fe Ci nor " La & M L'A ART PAR ES dr En 5
-5 NES PAUSE DL UT UE 5 "x A OP NN RO
 PR 0 E CRAN Eee in, LENS Le ENT NES
-"a 4 >. L DSi à Li 1 1 (e F CEA k 14 +1" DEN
-LS d ODA FOR NET
-HER { # \ % 111 k Ca à « 25
-M ET ae }x ASIE q
-A PURES Lane ' ra As ARE ñ 4 à
-Lit LANCEMENT TN CS
-Gi 42 CAE NES 4 | 0 2 PA 2 '
-Rd re LE < LT RÉ NERE :
-4 + VPN EE 5 5 Se ns ; 4
-: Li CNT RME N + TONER 5
-CAES Ra mas à f : |. LAURE >
-A ASC 13 AE à : es EM :
-1 RAC 1 LE Se k F ‘1,5; 10 TRE !
-A : l'MSE "ANA EE Le A
-N 1 |‘. COFNERS 4 TA LT IEEE Me
-0, CREER ; “ EAN FAQ
-7. "283 fE HA F Hatier de + 00
-CARMEN k D SP eve Ÿ |
-28 re x CR F À
-CL ER JTE LA ES ‘ HUE \ ous LA NRRES £ &
-ROUTE 1: ALES PNR à FLE NE AT MEME
 | 21 ETES 160 HP HR AS
-A es 458 THON
-v! SAUORNRe ERA ARTENE NE 1 , AE Pr
-* PNA > Cac SAYE % A ; A y + M f
-LOT SAR MARS AS Lu 144 UE EEE à
-1% SL NES Dr Sn EE Le 27 VERS Vo SNER ÿ A
 A ln SES
 + ANT AIRES So er $ ME LEE EST RAP TU STARS Ass
 | Ver TE OR NN CA AU À ANA ete LIT S TES
-CS METRE PATATE NT VAE Ni Re LR TA ENEICES ES
-1 RARE RTE RAR TRE
 
-TEXTES FORMANT DOSSIER
-
-} 7 4 FLE ALX LEE ‘ CERESTS
-À 4} ANG, SE RER PS LEARTRN ES … #4
 IE Le Apr” FN AOT PER ARE OLPC RO
-re. RARES di: RSR e ERA JEAN VA ASE EE dr 7
 LAS PR PEL ES IT SONT ter NÉ Sn 124
-RU EAN ONE DINAN": pe ‘ins PAIE TER CNRS
 IT APRES NOREE PA SAUT ES & Cr + an PAS CET El Eos
-4 1 ORNE Là 35 SO NEUTRE CArrÉ 1, an PT
 NE [ vi ; At PAS ENT LASER LE ss 4 DRE 2 #
-AS à 1: ; PRE Te QUE ; SORT Ut)
-NL or: $ ? ” À + + NE RR re -
-“te EAN EAN ECS ARTE LOYER 1 { 208 SRE
-el nn 72° 04 ONCE ë
-Len HA VERTE Fa NUS , k PA 1EY > ANR ; PE
-À DST RNTREESES < L i f Pi, TE TRES à
-és CT TUE TU “3 4 CONTE :
-Re POUR
-RUE : : RME.
-CE RETEANE vie 0e : à i Ua :
-MER 280 \ rtf r
-LEE ASTRA LINE STONES
-TER LEP RES ÿ LAC A Re Te 19 A
-à À FACE Je. k + < ? 14 à TIR Fou 14 (1
-PARU ANER.. ITA ÿ d ' g Le & t
-RE Fr ete Ee. À
-28 OMR LAN j à SATA y
-A YA
-PE & VAE Cr, A RL
-AO TE ; or: at fa
-ax LT Na ï v nt ! Me Ki ?
-RE: Eat e) , . 510 CR ENNERS
 LS Ce Ur ee
-RE Se PA RUE OT Te PAR
-CR EAP A ane SUR LE 4740 SAN :
-
-CHARLES PÉGUY
-TEXTES FORMANT DOSSIER
-. # 2 L 4
 
 Nos anciens abonnés savent, nos nouveaux abonnés ? ;
 reconnaîtront bientôt que nos cahiers sont en premier :
@@ -219,10 +88,6 @@ au jour le jour, du moins à la quinzaine la quinzaine,
 un corpus des textes et documents qui sont vraiment
 à conserver; dans le perpétuel débordement des documents vais ou faux, et, ce qui est beaucoup plus
 
-VII
-
-Charles Péguy
-grave, demi-vrais, demi-faux, partie vrais, partie faux,
 dans l'inondation des textes insignifiants, dans le déluge
 et dans la diluvion des insanités, des vanités, des vérités
 pêle-mêle, rien n'est aussi diflicile, quand on se propose
@@ -249,10 +114,6 @@ je veux seulement noter que dans les temps modernes
 et contemporains rien ne rend aussi diflicile tout travail
 d'histoire, et que rien n'est aussi contraire à l'existence
 même de l'historien que le journalier amoncellementdes
-journaux.
-VI 3
-
-TEXTES FORMANT DOSSIER
 
 Tous les matins paraissent une immense quantité de
 journaux ; au temps de l'affaire nous les lisions presque
@@ -280,17 +141,12 @@ l'humanité a vécues au cours de son histoire.
 
 Sous ce flot croissant des vanités modernes, comment
 se reconnaître; la tâche de l'historien ici n'est plus de
-refaire ingénieusement, — artificiellement, vainement,
 — toute une civilisation abolie avec deux ou trois fragments plus ou moins frauduleux de ruines incertaines ;
 la tâche de l'historien n'est plus, — ce qu'elle n'a jamais
 été, — de reconstituer tout un paléonpachyderme avec
 un morceau de l'ongle du pied; la tâche de l'historien
 est au contraire de tâcher de se reconnaître un peu
 lui-même au milieu de ces informes amoncellements ; il
-
-IX a.
-
-Charles Péguy
 
 est inévitablement conduit à classer, à déclasser les
 hommes et les événements, à reclasser; lui-même il est
@@ -323,7 +179,6 @@ choisir, dans ses matériaux, s'il veut absorber tous ses
 
 # .
 
-TEXTES FORMANT DOSSIER {
 matériaux, s'il ne veut en laisser tomber aucun, c'est
 lui qui tombe, et il choisit de n'être plus.
 
@@ -353,11 +208,6 @@ que la réalité admettait, comme les autres, se montrer,
 des exigences, opérer des ayancements que n'avait pas,
 que n'opérait pas cette réalité, qui pourtant demeure le
 grand et l'unique modèle; faire exprès autrement que
-
-XI
-
-torig 1 E
-Charles Péguy
 
 la réalité, avoir une autre méthode que la réalité, être
 méthodiquement infidèle à la réalité, quand on n'a de
@@ -390,9 +240,6 @@ les contrariétés métaphysiques élémentaires sont engagées dans ces problè
 
 celui qui ne veut pas voir, ou qui feint de ne pas voir ”
 ces redoutables difficultés, ces contrariétés métaphysiques, celui qui prétend faire de la méthode historique |
-XII
-
-TEXTES FORMANT DOSSIER
 
 sans avoir fait de la métaphysique, résout arbitrairement, tranche témérairement tous les problèmes de la
 méthode historique; et celui qui ne veut pas voir, où
@@ -401,7 +248,6 @@ qui feint de ne pas voir les difficultés, les contrariétés
 de la méthode historique, celui qui prétend faire de
 l'histoire sans avoir considéré les méthodes de lhistoire, celui-là, en fait, par là même, tranche et résout
 tout de même dans la méthode et dans la métaphysique ; mais, comme inconsidéré, il tranche et résout ;
-arbitrairement, témérairement, mal.
 
 Ne pas choisir, et c'est l'écrasement, la stérilité, la
 mort; ou choisir, c'est-à-dire oser faire ce que la
@@ -425,9 +271,6 @@ ou moins d'être; comme si nous avions quelque droit
 de nous croire, ou quelque raison d'être, nous faibles,
 les fabricateurs, les auteurs, les pères de la réalité;
 
-XIII
-
-Charles Péguy |
 c'est-à-dire, en analyse toute dernière, — et nous y
 revenons toujours, — comme si nous étions des créateurs, — des dieux.
 
@@ -460,9 +303,6 @@ auteurs, du gérant, qui fait les cahiers, on ne saurait
 croire combien d'hommes et d'événements, combien
 d'éléments de la réalité se proposent pour ainsi dire de
 
-XIV x
-
-TEXTES FORMANT DOSSIER
 s'informer en forme de cahiers; il y en auraït vingt par
 semaine; il faut faire un cahier de Untel; un cahier de
 telle affaire; un cahier de ces documents; un cahier de
@@ -493,9 +333,7 @@ que de se prononcer; que nous nous soyons bien ou mal
 prononcé depuis le commencement de la première » série, et avant, que depuis le commencement de ces
 
 k cahiers nous ayons choisi mal ou bien, c'est ce qu'il ne
-XV
 
-2 : & ANA
 | Charles Pégur C'ÉPPRSSS
 É m'appartient pas de rechercher; pourtant si l'on veut
 bien considérer d'un regard les éditions antérieures et
@@ -504,7 +342,6 @@ si l'on veut bien parcourir ce raccourci qu'est'le catalogue analytique sommaire
 que des manifestations importantes nous n'avons rien *
 omis, et réciproquement que de ce que nous avons t
 publié rien n'a été trouvé vide, à l'expérience du
-temps. '
 | Tout ce que je veux dire, et ce que je puis dire, parce
 que c'est le résultat d'une expérience personnelle, d'une
 expérience de métier, c'est que, pour celui qui, sous sa d
@@ -526,14 +363,11 @@ _ compagnie d'hommes dans un recueil d'hommes au ;
 4 bout de quelques années, quelle attitude, quelle situation aurait cet événement, quelle figure feraît cet évé-
 F, nement dans un corpus d'événements au bout de # :
 quelques années ; et si un tel exercice est généralement à
-Fi VE
 
-: TEXTES FORMANT DOSSIER
 salubre pour toute personne qui se propose de former
 son propre jugement, combien n'est-il pas salutaire
 pour un gérant sur qui non seulement tombent les responsabilités individuelles, mais sur qui retombent toutes
 les communes responsabilités industrielles déjà nom-
-' mées. :
 
 De tous les événements qui marquent la décomposition du dreyfusisme en France, la décomposition du
 socialisme en France, la décomposition du régime politique parlementaire, et malheureusement peut-être la
@@ -554,10 +388,6 @@ l'affaire de la délation qui se produisit à la Ligue fran-
 çaise pour la défense des Droits de l'Homme et du
 citoyen, je veux dire à cette partie de l'affaire de la
 délation que fut la révolte intérieure des éléments :
-
-XVII
-
-Charles Péguy
 
 essentiels de cette Ligue française, contre l'exercice et
 contre l'apologie de la délation.
@@ -587,10 +417,6 @@ une affaire de morale, étrangère à la politique, rompant
 la constitution et les attaches des partis politiques,
 rompant toute la vie politique, tout le train-train journalier de la vie politique, toutes les habitudes, les pra-
 
-XVI LAS
-
-UP 2712
-TEXTES FORMANT DOSSIER
 tiques, les routines, les oblitérations des tyrannies et
 des accommodements politiques.
 
@@ -624,9 +450,6 @@ parlementaire et le pays ; jusqu'à ce lâchage intermittent
 et successif, par à-coups, par fractions, par fragments,
 des hommes, des fautes, des crimes, des responsabili-
 
-XIX
-
-Charles Péguy
 tés ; voilà ce que reconnaissent immédiatement tous
 ceux qui pendant l'affaire n'étaient point occupés à
 exercer le commandement en chef.
@@ -658,8 +481,6 @@ la revendication d'une justice individuelle, qui eût
 à cette profondeur de cœur le goût de la justice, et à
 cette profondeur d'âme le goût de la vérité, le seul qui
 püût avoir une telle crise nationale de conscience natioXX
-
-_ TEXTES FORMANT DOSSIER
 
 nale, mettre toute sa force, une énorme force de tra-
 
@@ -708,9 +529,6 @@ soulèvement ait été formidable, et qu'il ait mis en
 balancement tout le travail, toute la vie du pays, toute la
 lourdeur, tout le repos, toute la quiétude et toute l'immobilité, ce n'est pas tant qu'il y ait eu l'éruption d'un
 
-XXI
-
-Charles Péguy
 soulèvement; de telles crises peuvent s'imaginer; mais
 ce qu'il y a d'admirable, d'autant qu'une vie est plus
 admirable qu'un acte, et toute une conduite plus merveilleuse qu'une crise, vraiment ce qu'il y a d'admirable, :
@@ -726,7 +544,6 @@ pu amnistier, par une amnistie criminelle, des crimes;
 ils ont pu, par une amnistie criminelle, amnistier les
 crimes antidreyfusistes; ils n'effaceront point, par une
 criminelle amnésie, l'enseignement et la conscience
-dreyfusiste.
 
 Voilà tout ce qu'il faudrait dire dans une histoire du
 dreyfusisme ; qui déborderait de partout une histoire de
@@ -742,9 +559,6 @@ est devenu aussi familier, et aussi indispensable, que
 le goût du pain; c'est là surtout ce qui est admirable;
 qu'une crise éclate, on peut imaginer cela; qu'une telle
 
-XXII
-
-TEXTES FORMANT DOSSIER
 crise nationale de conscience nationale éclate, c'est-à-
 dire que tout un peuple ait une vie intérieure comme on
 pouvait croire jusqu'alors qu'il n'y avait que les personnes et les individus qui en avaient, et que tout un
@@ -769,12 +583,8 @@ voilà ce qui est nouveau, voilà ce qui dans l'histoire du
 monde est un événement aussi important que l'invention et que l'exercice de l'harmonie hellénique, aussi
 important que l'invention et que l'exercice de la charité
 chrétienne, aussi important au moins que la révolution
-française.
 Voilà ce qu'il faudrait dire un peu dans une histoire
 du dreyfusisme; il faudrait montrer surtout cette conti- : 4
-XXII ä :
-
-Charles Péguy
 
 nuation sous-jacente, et ce mode, cette pénétration
 d'habitude; il faudrait montrer ces apparents sommeils,
@@ -784,7 +594,6 @@ une œuvre à pu à ce point dépasser les ouvriers,
 comment une action peut dépasser à ce point les opérateurs; on comprendrait peut-être pourquoi et comment
 les États-Majors, ne connaissant point l'action qu'ils
 gouvernaient, ne reconnaissent point l'armée qu'ils ont
-conduite. -
 
 Et si l'on constituait un dossier de toute la délation,
 de cette affaire en général, dans un avant-propos il fau- ;
@@ -804,10 +613,6 @@ vigoureuses revendications des simples libertés ne pouvaient pas, et ne paraiss
 même inintelligence, même imprévision des politiciens,
 même incapacité de mesurer l'amplitude et la profon-
 
-XXIV
-
-F TEXTES FORMANT DOSSIER
-;
 deur, même incapacité d'évaluer ; même retombée
 lourde, boïteuse, des événements tout au travers des
 k combinaisons ; même retombée sur les talons; même :
@@ -834,9 +639,7 @@ de la délation n'est qu'une affaire politique, une
 immense machination politique de plus; mais ce qu'il y
 a justement d'admirable, c'est que cela est parfaitement
 vrai, et que pourtant cela ne fait rien du tout; c'est que
-XXV b
 
-Charles Péguy |
 cela n'a aucune importance du tout; c'est là ce qui fait
 la beauté des mouvements moralistes en France: ils
 sont renseignés; nos vertus françaises ne sont point
@@ -867,9 +670,7 @@ que cela ne fait rien du tout.
 
 On nous dit que cette affaire de la délation n'est pas
 une affaire de conscience, parce qu'elle est une affaire
-XXVI
 
-TEXTES FORMANT DOSSIER
 politique, on nous dit qu'elle n'est pas une affaire de
 morale, parce qu'elle est une affaire de politique; je
 réponds qu'elle est à la fois une affaire de la morale, et
@@ -889,7 +690,6 @@ proprement et séparément des affaires morales, mais que
 tout est matière à de la morale, tout est affaire morale
 pour l'honnête homme, et que tout, au contraire, est
 matière à de la politique, tout est affaire politique pour
-eux politiciens.
 
 Quand donc nos ennemis les amis politiques parlementaires nous veulent interdire de traiter l'affaire de
 
@@ -906,14 +706,10 @@ différents et une affaire de politique, et une affaire de
 morale ; il est vrai, au contraire, qu'elle est une affaire
 de politique, pour les politiciens, et qu'elle est une
 
-XXVIH
-
-Charles Péguy
 affaire de morale, pour tout honnête homme; tout est
 politique aux politiciens; tout est morale aux honnêtes
 gens; il n'y a aucune raison pour qu'il y ait des royaumes dans le royaume, des royaumes exclusivement
 réservés à la politique dans le royaume universel de la
-morale.
 
 — Attendez seulement un peu, nous repartissent là-
 dessus les politiciens, professionnels ; vous avez parfai- :
@@ -940,8 +736,6 @@ ment la seule où pour plaire aux politiciens il faut que
 nous nous taisions et que nous fassions taire la morale
 devant la politique ; séulement ces minutes sont successives, elles ne cessent pas, et pratiquement, socialement,
 historiquement, elles font le temps; les politiciens pasXXVIIE
-
-TEXTES FORMANT DOSSIER
 
 sent tous les aujourd'huis à nous déclarer que tous les
 demains nous serons libres de faire de la morale; et
@@ -972,14 +766,10 @@ décevons également les politiciens de toutes les dominations ; et particulièr
 fiches, elle a beau avoir été inventée par les politiciens
 nationalistes réactionnaires, si elle est conduite uniquement par les moyens de la morale, elle aura des effets
 
-XXIX b.
-
-Charles Péguy
 imprévus, elle trompera, elle décevra ses auteurs
 mêmes; elle ne décevra pas moins les politiciens qui
 lexploitent que les politiciens qui exploitent son étouf- ‘
 fement ; il n'y a jamais rien à redouter de mal de la
-justice.
 
 Telle est, telle restera notre situation en présence des
 politiciens ; et la manière dont se présente le nouveau
@@ -1008,9 +798,6 @@ aimons faire notre devoir, et qu'il n'en paraisse rien
 dans les rues; c'est pour cela que l'on ne nous voit
 point anathématiser bruyamment les politiciens; mais
 
-XXX \
-
-TEXTES FORMANT DOSSIER
 c'est pour cela aussi que l'on ne nous voit point
 succomber aux tentations politiciennes ; les règles de
 vie que nous suivons sont les règles de vie d'hommes
@@ -1047,9 +834,6 @@ pendant les vacances du premier janvier, il avait à faire
 une leçon à l'École des Hautes Études Sociales, il vint
 me voir en coup de vent, comme font tous ces provin-
 
-XXXI
-
-Charles Péguy à
 ciaux, quand ils passent par Paris; ils n'ont jamais le
 temps de rien; il n'avait pas le temps de faire le cahier,
 il repartait pour Toulouse; en deux ou trois quarts
@@ -1058,7 +842,6 @@ d'heure, un matin, au bureau des cahiers, nous convinmes du plan.
 — Il faut, me dit Bouglé, faire un dossier complet,
 
 sans distinguer entre les documents publiés et les
-documents inédits.
 
 Bouglé, qui est un abonné dela première heure, savait
 que c'est là justement la théorie des cahiers en matière
@@ -1071,7 +854,6 @@ Même jeu; on verra même plus loin que M. de Pressensé est plutôt avantagé d
 
 — Voici le paquet de lettres que j'ai reçues, les
 signatures ; il n'y a plus qu'à mettre le cahier en
-état.
 
 Il n'y a jamais plus qu'à mettre le cahier en état ; je
 m'y employai; quand un incident survint.
@@ -1083,8 +865,6 @@ mais il est purement un cahier de dossier; je dis donc
 fort librement que nous préparions ce cahier; Gabriel
 Trarieux, qui est un de nos plus anciens collaborateurs,
 vint me voir pour un cahier que nous préparons ensemble en contribution à l'histoire de la Commune ; je lui
-
-XXXII
 
 | TEXTES FORMANT DOSSIER
 dis que nous préparions ce cahier de la délation aux
@@ -1121,13 +901,8 @@ Ainsi constitué, le cahier comprend :
 les initiatives et démarches Bouglé, Rist, Comte, les
 démarches des Toulousains et des Montpéliérains ;
 
-XXXII
-
-\ Charles Péguy
-
 les incidents, démarches, résolutions, démissions, les |
 polémiques publiques ou privées qui s'ensuivirent
-aussitôt ;
 
 [Je dois dire qu'en greffant sa démission de membre
 du Comité central, qui fut la première de toutes, sur
@@ -1159,9 +934,6 @@ Notons enfin que l'on trouvera, même dans ce commencement du cahier, ou dans de
 documents, lettres ou réponses de Rist ou de Bouglé à
 Francis de Pressensé, qui lui furent envoyées pour être
 
-XXXIV
-
-TEXTES FORMANT DOSSIER
 insérées dans l'Humanité, en réponse à ses propres
 _ lettres ou articles, et que l'Humanité, comme par
 hasard, ne trouva pas l'occasion d'insérer.]
@@ -1174,7 +946,6 @@ de la minorité démissionnaire, et à la thèse de la minorité démissionnaire
 il y a mis aussi toute l'affection filiale qu'il ne pouvait
 manquer de reporter sur la Ligue; il en est résulté une
 _ certaine vivacité, contre les critiques et contre les
-démissionnaires, en particulier contre M. Paul Guieysse;
 M. Clemenceau pria donc M. Gabriel Trarieux de ne
 pas lui demander de publier cet article dans son
 journal; dans le même dossier l'ordre du jour Païnlevé.
@@ -1190,9 +961,6 @@ _ les plus commodes; et comme on est heureux de se
 réfugier dans cette bonne vieille méthode historique,
 dont nous parlons quelquefois, et que pendant plusieurs
 années nous avons nommée la méthode dreyfusiste.]
-XXXV
-
-Charles Péguy
 
 le paquet de lettres, de signatures, d'adhésions reçues
 par Bouglé ; Bouglé ne voulait donner de ces lettres que
@@ -1226,9 +994,6 @@ personnes; avant tout nous voulons garder ce caractère
 familier, qui seul permet d'atteindre à une entière
 exactitude; il fallait surtout le garder à ces lettres,
 
-XXXVI
-
-R TEXTES FORMANT DOSSIER
 dont il fait la principale force; d'autre part les auteurs
 | et les signataires de ces lettres ne savaient point
 qu'elles seraient publiées ; ils ne les eussent pas écrites
@@ -1258,9 +1023,7 @@ qui est à considérer, les lettres devenues anonymes ne
 sont point pour cela devenues des lettres de làches ou
 de faibles, comme on le dit généralement des lettres
 anonymes, puisque c'est moi qui ai supprimé les signatures; d'ailleurs elles sont suflisamment endossées,
-XXXVII €
 
-; Charles Péguy
 puisque les signatures se retrouvent toutes aux signatures proprement dites.
 
 Toute cette partie du cahier n'est pas faite, au sens
@@ -1291,12 +1054,7 @@ bien se rappeler ce que j'ai dit de la centralisation en
 
 * commentaires au cahier de M. Raoul Allier sur l'enseignement primaire des indigènes à Madagascar, ce qui
 fait la valeur de la manifestation inconcertée dont nous
-XXXVIN
-À PA
 
-a
-+46
-_1T4ER TEXTES FORMANT DOSSIER
 # apportons ici quelques échos, c'est justement qu'elle est
 ; inconcertée, c'est qu'un certain nombre de consciences
 ÿ circonférentielles se sont émues et qu'elles ont perdu
@@ -1311,46 +1069,22 @@ _ toute sécurité morale depuis qu'elles se sont aperçues
 | leurs signatures dans ces derniers jours nous pardonneront de ne les avoir pas pu faire entrer dans les
 listes ; pour faire paraître le cahier à une date qui était
 déterminée, il a fallu arrêter le dépouillement à une
-n date déterminée.
-
-CHARLES PÉGUY
 
 Voir Va,
-ADR MÉTRO seb
-” PRESS LS) PES NAN D re A nn
 RAS Sen LE" ALSACE LT HÉNETEX RE Lente
 RSR RAA PL RE ET te Pr FE te FA
-+3 f PHREESE te. PEL NS 4 PR A pe ART A
 Fa Ka fn 1 KA PUY vx? M FE CRM LE. KL
-6 } RER PSE VX RSR RENTE FA
-Ê ES ï } J Va r : DE ANS EL E $N ne]
-SN 2 Aa £ ( ; SRE res Rte RAR MT rE
-ee mé Ai Êr À 2 ; * 4 Len NET Er 4 AA
-5 3 rs Pom À 3 Met - : $ 11e ! ne A te | fe CR TS
-DA 7 Fe KR CU eL i » FLE 1 8 TE À 5 FRET =
-D 19. 4 : DJ EREN Fate Fe TROT a LS FE
 54 ns LE Vin : TE. ; « RE an. pet RÉ US
-“ LATEST Ke PRET HUE Lt LISE LUNA ER SEL
 OPEN) ni RS PRO Er |: HEURES
 EUR Le, Lt 3 L Ur hi MARS er FE NE)
 Pas CET % / F Pa PAT: + dr
-F8 * x: Ç ? ñ +008 p RUES
 vf SR | Le : j 4 Ste : der A AR
-HE nt * PRET RS) 1 + Nr D AREA € 07 + 4
-; CR taire) VAE ES PEN) , \ SAC RENE TA ;
 At de LM , ET ER Re Te ' CHU Final fi
-Aa 2 4 à mn CRE 2? l a à 0 _
-5 "1 PE 6 # Ph ? r ; Rois Rx PR nn L
-CS NOR re Fe f= ; AVIS RAT NET
-PNR ON k Ne TR ETS ASS ARE La
-FAR CA" HN + 7 Le AP ON PRE EX LE
 FILS ARE % ALT (TL ACE i RES 1e ka ur RUE
 LEE LU A ET. RENE ur, A 10 re
-Le SE APR CREN HAN EC Th 'AOMREUR | PURES RAP ?
 
 1 Ce cahier était tiré presque tout entier quand je lis
 …. dans le Matin d'aujourd'hui jeudi 26 janvier la repro-
-- duction suivante :
 
 l Du Radical :
 
@@ -1379,16 +1113,12 @@ renseignements sans contrôle.
 Mais ce qu'ils pensent, ils se refusent à le dire publiquement. Et j'estime, au contraire, qu'il ne faut pas se lasser de
 le dire et de le redire tout haut, si nous voulons couper
 court à de grossières mais dangereuses calomnies contre la
-République.
 
 Obéissant à un point d'honneur dont je ne méconnais pas
-
-XLI
 
 la délation et les droits de l'homme
 la générosité, ils veulent que nous déclarions intangibles
 tous ceux que la réaction attaquera, quels que soient leurs
-torts.
 
 A mon avis, c'est une erreur.
 
@@ -1405,7 +1135,6 @@ groupe la motion tendant « à déclarer irrévocablement close
 la question des fiches ». Aujourd'hui, cette motion est encore
 revenue. Et si elle n'a pas pris place dans le texte de l'ordre
 du jour, elle paraît rallier au fond tous les suffrages. Il n'est
-impossible d'y acquiescer.
 
 Dans un pays libre et sous le régime parlementaire, on ne
 s'inscrit pas en faux contre les droits de la conscience d'autrui parce que le parti adverse s'en est fait une arme. On ne
@@ -1425,10 +1154,6 @@ des « délégués administratifs ».
 
 Ne pouvant, sur ce point spécial de conduite parlemen-
 
-XLII x
-
-(4
-UNE LETTRE DE M. FERDINAND BUISSON
 taire, me mettre d'accord avec le groupe, j'y suis malgré
 moi une cause de trouble et de perte de temps.
 
@@ -1443,64 +1168,15 @@ groupe a bien voulu supporter ma persistante contradiction.
 
 ÿ Veuillez agréer, mon cher président, avec mes vifs regrets,
 _ l'expression de mes plus cordiales sympathies.
-FERDINAND BuIssON
-TL mi
 
-(Æ Fi 3 is #20 D PORN RME C2: at
-Eur V4 Pix NUL ER CHAN SE Ÿ 74m cat AMEN te:
-2 KOENIER 2, À 41X AE ENTER HE ET
 ! A SE CRE VW ' fait be LÉ UTUC ESSENCE OCR
-1 SR COTER PAVARNE EC UR DNS
-PPT ANS h +R CORRE NEC ER 4
-REX fur ; 5 COR a ms
-D CAES PER : DORA NUS 2
-LL Ne à ta 44 4 N CRT LISTE RAR
-LE FREE Sr : STAPS RL
-EM Per Yy A ire 6 SR PAT
-A lacs T4 ÿ ; FT LR RENER ARE
-TEA AR au,
-FACE URS NU RE 2 j : Ty MAN RENE
-SX AN NEC TE t + L'EAU Î
-ONE RE Le LE I LEMREEAREE
-(trs xt ÿ a s FA ee FER ( J'AREE En
-LEP HER ; Ÿ : MUR RE
-% (hs) PARENT 5 à à LRO SANS
-PE ; ô = LA IE NEPPRINIAESSS
-HP s Le “ HLUTRC NES
-: HONNEURS à PLANS
-{A ARR : + ANT AOUOMPRPOTER SE
-2 00 te ba S£ ‘ 0 SR AT AN
-AL RECENSE #1 À j 1 ONG TIRER ETES
-np A7 É ÿ : {TETE AN
-CO Ar *: EX à \ L k? LETTRE ART
 Es les PARA 207: UE k É ANLPRE FN Les ‘#e
 
-LA DÉLATION
-AUX DROITS DE L'HOMME
 | I
 
 BR: ‘ Ne ol CURE EEE
-Le RAA “ VX +8 LU NER
-à ÿ SPRL TENUE D
-D 337 ATOS
-EL Art n ï v} à LS | k, 14 EY
-RATE À | CO et
-MAR Mets :
-va A | AUS SA (AA
-D F. EIRE re
-SEE e Dee LARMES
-LH 0 oi È LS Je
-+ ARE LHBS ES 2
 Le re : 1 FTON SENTE
-d Mari te 7 + = 2
-“ca - CE Be La RE
-‘ A0ERS : MALE Re 2
-INT ORRE Re PEER RE
-: PAUE ee À Pro EEE
-K OT Wéy 4 F An
-CRE < eee à PT k È Pre 1 > ii ETES
 
-. TEXTES FORMANT DOSSIER
 | LA DÉLATION AUX DROITS DE L'HOMME
 
 x Après un échange de vues et de lettres demi-particu-
@@ -1547,7 +1223,6 @@ du 15 décembre 1904; on remarquera que dans le
 la délation aux Droits de l'Homme
 compte rendu officiel ainsi fourni par la Ligue, la
 réponse de M. Francis de Pressensé précède les lettres
-originaires :
 « La délation dans l'armée »
 
 Le Comité central a pris connaissance, dans sa séance du
@@ -1569,7 +1244,6 @@ Voici le texte de la lettre de M. Francis de Pressensé, que
 le Comité central a approuvée unanimement dans sa séance
 du 5 décembre, et qu'il a décidé de publier au Bulletin officiel.
 
-Le 5 décembre 1904.
 Mon cher collègue,
 
 Le Comité central, dans sa séance du 21 novembre a examiné avec beaucoup de soin les points touchés dans votre
@@ -1583,7 +1257,6 @@ la préservation des traditions originelles de la Ligue et en
 
 4 5
 
-LETTRE DE M. FRANCIS DE PRESSENSÉ
 particulier de ce caractère qui l'a placée en dehors et audessus des partis et de la politique des partis. Comme vous
 le Comité est décidé à veiller avec une attention jalouse au
 maintien des principes dont notre Ligue s'est instituée le
@@ -1664,9 +1337,7 @@ déconcertant à voir les bénéficiaires, les fauteurs, les complices, les aute
 la lumière et l'équité venir, en bons apôtres, dénoncer —
 
 pour un méfait analogue — avec une indignation sans
-6 s
 
-LETTRE DE M. FRANCIS DE PRESSENSÉ
 borne, sans le moindre retour sur eux-mêmes, une minorité persécutée et qui, eüt-elle été coupable, ne l'eût en tout
 . cas été que depuis infiniment moins longtemps.
 
@@ -1689,7 +1360,6 @@ républicains de l'aider dans cette tâche. Il s'agissait de lui
 signaler les faits graves qui attestaient de la part de tel ou
 tel officier une attitude hostile à la République. Lui-même,
 une fois l'impulsion donnée, il se chargeait de vérifier
-impartialement.
 
 Un ou plusieurs subordonnés s'avisèrent de perfectionner
 cette méthode. Ils la systématisèrent. Voyant assez naïvement dans la franc-maçonnerie une puissance républicaine
@@ -1706,8 +1376,6 @@ document privé, destiné à renseigner des particuliers, pro-
 
 la délation aux Droits de l'Homme
 bablement sur l'aptitude de postulants éventuels à la
-
-maçonnerie.
 
 Donc, du côté du ministre, nulle idée soit de dresser un
 questionnaire officiel à la maçonnerie, soit de l'interroger
@@ -1732,7 +1400,6 @@ l'avancement dans l'armée en particulier, a cru devoir classer dans des Archive
 plus insensé encore de préserver soigneusement ces pièces,
 comme ce professeur fameux de Neufchâtel qui avait inscrit de sa plus belle écriture : « Papiers de la Conspiration »; impardonnable enfin, après tant de fautes, de
 mettre cette poudrière sous la garde d'un traître et d'un S
-traître mal payé.
 
 Les nationalistes ont acquis ces pièces. Ils ont feint de
 croire qu'il y avait là le dossier monstrueux d'une inquisition maçonnique. Ils l'ont fait croire à quelques esprits
@@ -1743,9 +1410,6 @@ fond de vertu pour s'en servir, à l'occasion, contre la République.
 
 Le parti républicain lui-même — je ne parle pas de la
 
-l 2
-
-LETTRE DE M. FRANCIS DE PRESSENSE
 petite troupe de ceux qui lui ont faussé compagnie il y a
 déjà quelque temps — s'est ému. Et j'ose dire que cette
 émotion sincère fait autant d'honneur à sa probité qu'elle
@@ -1781,7 +1445,6 @@ légalité ont été violées, vient de frapper un professeur, coupable d'avoir 
 traire pour des motifs dérisoires.
 
 9 1.
-é
 
 la délation aux Droits de l'Homme ,
 Des crises de conscience nationale ne portent pas de ces
@@ -1801,17 +1464,12 @@ mouvement à prêter les mains au trop habile complot du 2
 de papiers volés et de ce qu'elle se réserve de choisir son
 heure, ses raisons et ses alliés pour défendre la cause à s
 laquelle elle tient plus que jamais de la suppression des
-notes secrètes.
-Agréez, etc.
 { Le président,
-FRANCIS DE PRESSENSÉ,
 Député du Rhône.
 La même lettre a été adressée à MM. Louis Comte et
-C. Bouglé.
 Voici, d'autre part, le texte de la lettre que M. Charles
 Rist avait adressée au président de la Ligue des Droits de
 l'Homme.
-Montpellier, 7 novembre, 1904.
 Monsieur le Président,
 Une grave question de moralité politique, une de celles
 pour la discussion desquelles la Ligue des Droits de l'Homme
@@ -1819,13 +1477,10 @@ a été en grande partie fondée, vient d'être posée devant le
 pays. Il me paraît impossible que la Ligue s'en désinté-
 resse, impossible qu'elle ne dise pas nettement si oui ou
 
-. LR TL 4
-
 # LETTRE DE M. CHARLES RIST
 non l'organisation de la délation dans l'armée par une association quelconque dans un but politique, et l'utilisation
 par le gouvernement des renseignements ainsi obtenus,
 sont conformes à la tradition et au programme du parti
-républicain. ”
 
 Je ne suis pas de ceux, qui pensent, pour employer le
 charmant euphémisme de M. Ribot, que si des « flottements » se sont, il y a quelques années, produits dans l'ar-
@@ -1862,8 +1517,6 @@ l'exemple de M. Bidegain lui-même, qui, habitué à encourager la délation, a 
 Encore une fois, Monsieur le Président, il me paraît impossible que la Ligue des Droits de l'Homme n'émette pas
 son avis sur cette question. Il est impossible que son Comité central, qui compte parmi ses membres un des
 
-IT
-
 la délation aux Droits de l'Homme
 : membres influents du Conseil de l'Ordre du Grand-Orient,
 dise s'il accepte les principes proclamés solennellement
@@ -1884,21 +1537,16 @@ membres du Comité central, et les vôtres mêmes, Monsieur
 le Président, pour être persuadé que ce Comité refusera
 de se taire et de prendre ainsi une attitude, qui peut
 paraître prudente aujourd'hui, mais qui nuirait profondément dans l'avenir au prestige et à l'autorité de notre
-Ligue.
-Veuillez agréer, etc.
-CHARLES RIsT,
 Président de la section montpéliéraine
 de la Ligue des Droits de l'Homme.
 M. Louis Comte, secrétaire de la section de Saint-
 Étienne, avait écrit en ces termes au secrétaire général,
 en réponse à une demande de réorganisation de la section.
 Saint-Étienne, le 8 novembre 1904.
-Cher Monsieur,
 Réorganiser la section de la Ligue à Saint-Étienne dans ce
 moment-ci serait un vrai défi à l'opinion publique.
 La Ligue ne fait pas son devoir. Elle n'a pas protesté
 
-LETTRE DE M. C. BOUGLÉ
 eomme elle l'aurait dù, contre la façon d'agir assez étrange
 du général André, contre le commandant Cuignet et elle
 devrait protester contre le système de mouchardage et de
@@ -1919,8 +1567,6 @@ des amis qui, je l'espère, se ressaisiront.
 
 Votre bien dévoué,
 
-L. ComTE
-
 M. C. Bouglé, professeur à l'Université de Toulouse, avait
 d'abord envoyé ces quelques mots : ,
 
@@ -1930,8 +1576,6 @@ histoires de « dossiers secrets » ? Et si elle ne dit rien, autant dire qu'ell
 | Puis, sur l'avis que le Comité central serait saisi prochainement de la question, M. Bouglé s'exprimait en ces
 termes quelques jours plus tard:
 
-17 novembre 1904.
-
 J'ai été bien heureux d'apprendre que la Ligue allait enfin
 dire son mot. Son silence étonne et effraie. Mais dans quel
 sens va-t-elle se prononcer? Voilà ce que je me demande,
@@ -1940,7 +1584,6 @@ oserai-je l'avouer, avec anxiété.
 Au point de vue des principes que la Ligue se flattait
 de rappeler en toutes circonstances, envers et contre tous,
 le devoir est clair : il faut, il fallait un bläme et des plus
-énergiques.
 
 ACT et dE
 la délation aux Droits de l'Homme |
@@ -1985,7 +1628,6 @@ Nos abonnés rétabliront d'eux-mêmes, dans ce qui |
 précède, l'ordre historique et l'ordre simplement chro- |
 nologique, si habilement interverti, rompu par ce
 
-LETTRE DE M. RIST
 compte rendu officiel; en effet le Bulletin, comme on
 Va pu voir, publiait la réponse avant les demandes, la
 réponse gouvernementale de M. de Pressensé avant les
@@ -2041,18 +1683,15 @@ l'Homme une désapprobation catégorique et retentissante.
 Veuillez agréer, M. le président, l'expression de nos sen-
 
 timents de respectueux dévouements. É
-C. RisT, CHARMONT, M. BoNNET, MESsLIN, MizmauD.
 
 Une lettre de M. Bouglé, en réponse à la réponse de |
 M. de Pressensé; nous reproduisons cette lettre sur le
-brouillon :
 
 Mon cher collègue,
 
 Votre letire n'a troublé. Il est toujours troublant de voir
 un homme tel que vous, dont on a éprouvé la droiture,se
 porter si décidément au secours de ce qu'on croit être une |
-mauvaise cause. |
 
 Si vous ne réussissez pas à m'entraîner, c'est que |
 « d'autres autorités » me tirent en sens inverse : et pas 1
@@ -2060,15 +1699,10 @@ seulement de « bonnes âmes », mais des esprits critiques
 aussi, et qui ont fait leurs preuves. |
 
 Oserai-je ajouter que quand je relis vos arguments la
-plupart me paraissent porter à côté ?
 
 L'affaire Thalamas”? Pas de rapport. Et puis si je bläme
 un ministre d'avoir cédé à une « dénonciation » publique,
 
-a fortiori.
-
-k RER
-LETTRE DE M. C. BOUGLÉ
 : — Les autres en ont fait, en font autant à l'heure actuelle ?
 Pour pouvoir les blämer, il ne faut pas commencer par les
 imiter. On ne soigne pas l'injustice par l'injustice.
@@ -2086,7 +1720,6 @@ leurs auteurs ne destinaient.pas à la publicité.
 grave. C'est ceci qu'il fallait prouver. Nous en avons
 attendu la preuve huit jours, entre les deux séances de la
 Chambre. Au lieu de cela, on ne nous a sorti qu'un &
-quoque.
 
 Vous me dites que neuf fois sur dix les décisions du
 ministre ont été contraires aux informations de la francmaçonnerie. Cela ne prouverait pas en faveur de la
@@ -2136,7 +1769,6 @@ années, un certain nombre de belles et bonnes actions,
 et que vous l'y aurez, pour votre part, aidée puissamment.
 C'est pourquoi je vous prie d'agréer, avec mes sentiments
 de reconnaissance, l'assurance de ma fidèle sympathie.
-BouGLé
 L'Humanité du samedi 10 décembre 1904 publiait
 l'article suivant ; on doit admettre que cet article ne se
 rapporte pas seulement à la délation en général, —
@@ -2145,9 +1777,6 @@ quelque jour un dossier de la délation en général, —
 mais qu'il se rapporte particulièrement à la relation
 de la délation aux Droits de l'Homme ; on sait en effet
 quelle situation M. de Pressensé occupe dans l'Humanité; on sait aussi qu'il emmêle volontiers ses nombreuses fonctions, ses nombreux métiers, ses situations
-18 j
-
-; IMPUDENCE
 
 nombreuses ; et qu'il répond volontiers, comme journa-
 
@@ -2159,8 +1788,6 @@ Ligue française pour la défense des Droits de l'Homme
 
 et du Citoyen.
 
-Impudence :
-
 Les anciens ministres du ministère Waldeck-Rousseau
 ont eu vraiment de l'audace d'attaquer M. Combes à propos
 de sa circulaire. M. Waldeck-Rousseau, quand il était pré-
@@ -2171,7 +1798,6 @@ des enquêtes politiques relatives aux fonctionnaires des
 - théories que l'on a le droit de juger excessives, mais qui
 auraient dû en tout cas interdire à ses anciens collègues
 les protestations indignées et factices où ils abondent
-maintenant.
 
 C'est au Sénat, à propos de l'interpellation de M. Lavertujon sur les fiches politiques du préfet de la Haute-Vienne,
 que M. Waldeck-Rousseau a prononcé les paroles qui
@@ -2192,12 +1818,9 @@ adressé pour savoir quelle était la tenue, la correction de
 ces fonctionnaires, à ceux qui me paraissaient être le plus
 en mesure de m'informer, aux maires républicains des
 
-LE AC DS p
 la délation aux Droits de l'Homme
 communes, et lorsque le maire n'était pas républicain, au
 conseiller général, qui me donnait toutes les garanties po-
-
-litiques. »
 
 « Il est bien évident qu'en cela, M. Monteil n'a pas excédé
 son droit. :
@@ -2231,7 +1854,6 @@ d'autres qui sollicitent ou une fonction, ou une faveur, ou
 une distinction; et ici la règle que je formulais tout à l'heure
 cesse absolument d'être applicable. A celui qui réclame quoi
 
-IMPUDENCE
 que ce soit à l'État, on a le droit de dire : « Je veux vous
 connaître, savoir ce que vous pensez... » {Très bien! très
 bien! à gauche)... Je veux savoir quelles sont vos doctrines,
@@ -2275,8 +1897,6 @@ de ses opinions, quel intolérable abus!
 
 « Je ne partage pas le moins du monde l'indignation de
 
-CRT ne : +# ul 24 Lt F2 ARR …
-5 :
 la délation aux Droits de l'Homme :
 notre collègue. Je considère, en effet, que la femme, et en
 particulier la Française, exerce une très grande influence
@@ -2314,15 +1934,11 @@ officiel, tout le compte rendu de la question qui fut
 
 | discutée au Sénat dans la séance du jeudi 7 novembre .
 
-ÉNAT
 Session extraordinaire de 1903
 # ,
-COMPTE RENDU IN EXTENSO. — QUATRIÈME SÉANCE
 Séance du jeudi 7 novembre
 Question de M. Lavertujon à M. le président du conseil,
 ministre de l'intérieur et des cultes : MM. Lavertujon, Waldeck-Rousseau, président du conseil, ministre de l'intérieur et des cultes. ;
-PRÉSIDENCE DE M. FALLIÈRES
-QUESTION
 M. le président. — La parole est à M. Lavertujon pour
 poser une question à M. le ministre de l'intérieur, qui accepte d'y répondre.
 M. Lavertujon. — Messieurs, je m'excuse de venir encore
@@ -2344,12 +1960,10 @@ ans, comme a semblé le croire M. le président du conseil :
 il a été édité en 1893 par la librairie de la Nouvelle revue.
 Permettez-moi, messieurs, de vous en rappeler un passage
 que vous avez peut-être oublié et qui mérite toute votre
-attention.
 Lorsque le livre dont je parle a été écrit, M. Edgar Monteil, je vous prie de le remarquer, avait été déjà préfet de
 la Creuse et, par conséquent, il pouvait indiquer en toute
 connaissance de cause les améliorations, les perfectionnements qu'il croyait nécessaire d'apporter à l'organisation 3
 des préfectures.
-Voici comment s'exprime M. Edgar Monteil :
 « Pour organiser une préfecture, il faudrait établir un
 cabinet, ou mieux une armoire dont le préfet seul aurait la
 clé. Cette armoire devrait contenir, tenus à jour, deux jeux
@@ -2360,25 +1974,17 @@ Remarquez, messieurs, qu'il ne s'agit pas seulement là de
 fonctionnaires, de candidats à des fonctions publiques ou
 à des distinctions honorifiques : il s'agit de tous les hommes
 connus où ayant, à un titre quelconque, autorité dans le
-département.
 « Chaque fiche contiendrait les indications suivantes :
 lieu et date de naissance, rôle des ascendants, note sur la
 femme, liens de famille, descendance, relations, tendances
 religieuses, convictions politiques passées et présentes.
 {(Exclamations et rires sur divers bancs)
 M. Hervé de Saisy. — C'est de la tyrannie à la plus
-haute puissance.
 M. Le Provost de Launay. — C'est le programme du
 Gouvernement actuel que vous lisez là!
 M. Victor Leydet. — Nous en avons trouvé bien d'autres |
-au 16 Mai. |
 .
-24 |
 
-QUESTION LAVERTUJON
-
-M. Lavertujon. — « .… renseignements électoraux, action
-politique, fonctions occupées, renseignements particuliers
 et observations des préfets; au coin de chaque fiche serait
 un numéro qui correspondrait à un dossier contenant les
 développements nécessités par la fiche et les pièces à l'appui : publications, professions de foi, renseignements électoraux ou autres. »
@@ -2400,9 +2006,7 @@ M. Lavertujon. — « .… on interrogeait le facteur pour
 savoir quels journaux il apportait. Et avec tous ces potins,
 | avec tous ces cancans, M. Edgar Monteil a constitué ses
 
-dossiers. c
 | « M. le comte de Blois. — Vous devez avoir une bien
-4 mauvaise fiche.
 
 s « M. Lavertujon. — Il paraît — mais je n'en sais rien —
 qu'il y en aurait déjà une dizaine de mille.
@@ -2413,12 +2017,7 @@ que les braves gens de Limoges se savent ainsi catalogués,
 qu'ils savent qu'ils ont à la préfecture des dossiers les concernant, dossiers fabriqués avec les éléments que je viens
 de vous indiquer et qui peuvent contenir ou bien les plus
 É énormes sottises, ou bien les pires infamies.
-r:
-\. 25 2
 
-jh
-
-: ; 4 | MA né qi
 renseignements ou délation ? Ne
 
 « Je serais reconnaissant à M. le président du conseil,
@@ -2431,7 +2030,6 @@ Un sénateur à droite. — Certainement ! à
 M. Lavertujon. — Messieurs, je n'ai rien à ajouter aux
 paroles que je prononçais le 2 juillet; je n'ai rien à en
 retrancher non plus, car elles sont l'expression de la pure
-vérité.
 
 M. le président du conseil me faisait la réponse suivante :
 
@@ -2463,11 +2061,6 @@ en mesure de m''informer, aux maires républicains des
 communes, et, lorsque le maire n'était pas républicain, au
 conseiller général, qui me donnait toutes les garanties politiques. » Il est bien évident qu'en cela M. Edgar Monteil
 n'a pas excédé son droit. » ”
-
-26 :
-
-OA ee MT ANNE ER AA À |
-è QUESTION LAVERTUJON
 
 Je suis de l'avis de M. le président du conseil. Si, en effet,
 M. Edgar Monteil s'était borné à adresser aux conseils
@@ -2503,7 +2096,6 @@ des renseignements confidentiels sur la moralité, la conduite, lattitude politi
 | charges de M. un tel. »
 
 Cette formule était, en effet, employée par tous les prédécesseurs de M. Edgar Monteil; ils se bornaient, je l'aflirme, à
-s'adresser aux députés, aux sénateurs, aux conseillers
 généraux et aux maires, pour ävoir les renseignements qui
 leur étaient nécessaires concernant les candidats à des fonctions publiques.
 
@@ -2521,11 +2113,6 @@ M. Edgar Monteil se servait dans la Creuse, et qu'il a apportée dans la Haute-V
 de ce département.
 
 Cette fiche, qu'il a fait tirer à plusieurs milliers d'exemplaires dès son arrivée dans le département, est ainsi
-conçue :
-
-« Renseignements confidentiels demandés à M. X... :
-
-« Monsieur,
 
 « Je vous serais très obligé de vouloir bien me fournir, le
 plus tôt qu'il vous sera possible, sur M. Un tel, les renseignements confidentiels suivants :
@@ -2555,9 +2142,6 @@ nettement ses sentiments républicains ? »
 
 Telle est, messieurs, la formule qui a servi pendant un
 
-28 :
-
-QUESTION LAVERTUJON
 an à M. Edgar Monteil. Il a trouvé qu'elle était insufisante /Exclamations à droite) et il en a fait rédiger une
 autre, également imprimée à un grand nombre d'exemplaires, qui comporte, outre les questions que je viens d'indiquer, celles-ci :
 
@@ -2583,11 +2167,9 @@ il ne m'aurait pas demandé si je les avais vues.
 Un sénateur au centre. — C'était une précaution oratoire.
 
 M. Lavertujon. — Il les aurait vues, lui, et cela aurait
-suffi.
 
 Ainsi, la différence qui existe entre M. Edgar Monteil et
 ses prédécesseurs, c'est que ceux-ci ne s'adressaient pour
-leurs renseignements qu'aux députés, aux sénateurs, aux
 maires et aux conseillers généraux. M. Edgar Monteil consulte également ces personnes, mais il s'adresse en outre,
 aux instituteurs et même à de simples policiers, de telle
 sorte, messieurs, que l'on a vu à Limoges des agents de
@@ -2639,8 +2221,6 @@ M. le président du conseil avait répondu :
 
 « Il y a un autre fait sur lequel j'ai pu interroger l'hono-
 
-3 à *
-f QUESTION LAVERTUJON
 rable M. Monteil. Il s'agissait de son attitude dans les
 églises. On représente M. Monteil, comme allant dans les
 églises et se faisant un plaisir d'enfoncer son képi sur sa ,
@@ -2665,7 +2245,6 @@ sur la tête est une église dont la construction est terminée
 4 depuis quelque temps déjà; elle date, pour le clocher, la
 nef et le transept, du onzième siècle et, pour le chœur, le
 sanctuaire et les chapelles latérales, du quatorzième siècle.
-; {Rires) :
 ü Il s'agit, en effet, de l'église de Moutiers, qui n'a jamais
 cessé d'être consacrée au culte, église remarquable d'ailleurs par les vitraux de toute beauté qu'elle contient et qui
 sont attribués à des artistes limousins. Il n'est pas étonnant que M. Edgar Monteil, en sa qualité de lettré et d'ar-
@@ -2673,7 +2252,6 @@ sont attribués à des artistes limousins. Il n'est pas étonnant que M. Edgar M
 tort d'entrer dans cette église le képi sur la tête; il y avait
 là des conseillers de préfecture qui le suivaient, un groupe
 | d'officiers qui regardaient les mêmes vitraux; il aurait donc
-3x
 
 renseignements ou délation ?
 été facile à M. le président du conseil de faire une enquête
@@ -2697,7 +2275,6 @@ doivent l'écouter debout et très respectueusement ; mais pour
 l''Internationale et la Carmagnole, nous ne sommes pas
 fixés sur l'attitude qu'ils doivent prendre. Je serais curieux
 pour ma part — et le Sénat partagera sans doute ma curiosité — de connaître le sentiment du Gouvernement à cet
-égard.
 
 Tel est, messieurs, le préfet que M. Waldeck-Rousseau
 nous a envoyé il y a un peu plus d'un an, dans cette grande
@@ -2711,10 +2288,6 @@ M. Waldeck-Rousseau a-t-il la conviction qu'il serait repré-
 senté, dans cette ville importante de Limoges, par le préfet
 pondéré, avisé, prudent, insoucieux de sa popularité, par
 l'homme enfin que les circonstances, peut-être périlleuses,
-rendraient nécessaire ?
-
-L
-ä QUESTION LAVERTUJON
 
 Tel est le point sur lequel je voulais interroger M. le pré-
 sident du conseil; il ne m'appartient pas de résoudre la
@@ -2723,7 +2296,6 @@ question, mais je crois que mon devoir était de la poser.
 bancs au centre et à droite)
 
 M. le président. — La parole est à M. le président du
-conseil.
 
 M. Waldeck-Rousseau, président du conseil, ministre de
 l'intérieur et des cultes. — Messieurs, l'honorable M. Lavertujon a jugé nécessaire de ramener l'attention du Sénat sur
@@ -2741,7 +2313,6 @@ d'autre, M. Lavertujon et moi, nous avons, à la séance du
 2 juillet dernier, exprimé notre opinion et nos vues. Je
 demande au Sénat la permission de relire ce qu'il y avait
 d'essentiel dans les paroles de M. Lavertujon et dans ma
-réponse.
 
 L'honorable M. Lavertujon s'exprimait en ces termes :
 
@@ -2762,7 +2333,6 @@ vous indiquer et qui peuvent contenir ou bien d'énormes
 sottises ou bien les pires infamies. » :
 
 J'ai répondu à l'honorable M. Lavertujon en ces termes
-non moins clairs :
 
 « J'ai également, disais-je, interrogé M. Monteil sur ce
 point. Sa réponse a été très brève; la voici : « J'ai pris des
@@ -2777,7 +2347,6 @@ les garanties politiques. »
 Voilà donc la thèse. et l'antithèse. M. Lavertujon accuse
 le préfet de se livrer à l'espionnage des simples particuliers, de ceux qui ne réclament point une faveur, qui ne
 demandent aucune fonction et dont, par conséquent, la vie
-privée doit rester murée.
 
 Je réponds à l'honorable M. Lavertujon que M. Monteil
 nie de la façon la plus catégorique avoir rien fait de semblable, mais qu'il reconnaît — et je l'en approuve — que,
@@ -2794,9 +2363,6 @@ leur travail, sur leur activité, sur leur intelligence; ceux-ci
 retournent la terre, d'autres font le commerce : aucun d'eux
 ne demande rien à l'État; celui-ci n'a done pas à s'immiscer
 
-34 $
-
-QUESTION LAVERTUJON
 dans leur vie privée et la moindre inquisition dirigée
 contre leur foyer ou leur famille, constituerait certainement
 un abus. /Très bien! et applaudissements à gauche)
@@ -2813,7 +2379,6 @@ rapidité de votre méthode, répondu déjà à toutes les questions. /Rires d'a
 
 M. Franck-Chauveau. — Vous répondiez à côté de la
 question ; c'est le sens de mon observation. /Mouvements
-divers)
 
 M. le président. — Veuillez, messieurs, ne pas interrompre l'orateur.
 
@@ -2822,7 +2387,6 @@ un principe; j'indique quelle est ma doctrine et je ne vais
 pas, soyez-en sûrs, descendre de la tribune. 6
 
 M. Gotteron. — C'est un faux-fuyant! /Exclamations à
-gauche)
 
 M. le président du conseil. — Je demande à la patience
 de l'honorable M. Gotteron de vouloir bien attendre quelques minutes encore, et il verra que, de la thèse abstraite, 4
@@ -2843,7 +2407,6 @@ renseignements ou délation ? 4
 
 M. le président du conseil. — « … Je veux savoir |
 quelles sont vos doctrines, quelles sont vos opinions. » À
-{Interruptions au centre) ,
 
 Si cette inquisition vous semble excessive, mais le |
 remède est tout près, et en vérité bien des gens devraient 4
@@ -2857,8 +2420,6 @@ M. le président du conseil. — Voilà, messieurs, la ï
 question bien précisée. Et, d'ailleurs, M. Lavertujon a faci- k
 lité ma tâche; il a reconnu en effet que l'administration |
 avait le droit de s'enquérir de ce que sont ceux qui occupent ou sollicitent des fonctions, et j'arrive alors au faitsur
-lequel M. Gotteron se montrait particulièrement pressé
-d'être renseigné.
 
 M. le préfet de la Haute-Vienne a-t-il ouvert sur ou
 contre des particuliers n'ayant sollicité aucune fonction,
@@ -2879,16 +2440,12 @@ Le Petit Centre est un journal républicain modéré. Pour
 s'en convaincre, il suflit de lire la manchette : « Préfet
 mouchard » ou encore l'exorde du leading article : « Dans
 quelle bourbe infecte le ministère actuel a-t-il plongé la
-République! » {Rires à gauche) 5
 
 Un sénateur au centre. — C'est la vérité.
-
-QUESTION LAVERTUJON
 
 M. le président du conseil. — Il est vrai qu'un peu plus
 loin, le rédacteur anonyme — auquel l'honorable M. Lavertujon voudra bien transmettre mes remerciements — daigne
 reconnaître que, personnellement, je suis « un très galant
-homme ».
 
 Je suis un galant homme, qui plonge son pays dans une
 bourbe infecte ! IL y a dans les polémiques de ces contradictions. /Nouveaux rires à gauche)
@@ -2896,7 +2453,6 @@ bourbe infecte ! IL y a dans les polémiques de ces contradictions. /Nouveaux ri
 Le journal poursuit : « qu'on ne nous accuse pas
 d'exagération, voici le document qui a été adressé à des
 policiers, avec ordre de répondre à toutes les questions
-posées. »
 
 Comme je le disais tout à l'heure, le même jour, — non
 pas sans doute à la même heure, — un autre journal de
@@ -2956,13 +2512,11 @@ deux journaux, si M. Lavertujon lui-même avait été préfet
 ou sous-préfet, ou même simplement ministre, /Sourires) au €
 seul aspect de cette pièce, il lui eût trouvé quelque chose
 de déjà vu; il n'est pas un dossier de postulant ou de fonctionnaire où ne se rencontrent sous une forme ou sous une
-autre...
 
 M. Lavertujon. — Sous une forme ou sous une autre.
 
 M. le président du conseil. — sous une forme ou sous
 une autre, exactement les mentions qui vous ont frappé,
-monsieur Lavertujon.
 
 M. Gotteron. — Des notes sur les femmes ?
 
@@ -2972,12 +2526,9 @@ M. le président du conseil. — Vous allez le voir, mon-
 ce ministère de l'intérieur qui est un ministère de policiers,
 chacun le sait, mais un ministère qui est une très grande
 
-TNT, 28 AT R
-QUESTION LAVERTUJON *
 administration, la moins politique peut-être, mais une ad- î
 ministration qui sait que l'on n'a point des renseignements
 complets sur un homme si lon ne connaît un peu ses
-alentours.
 
 Un membre à droite. — La Guerre, peut-être ?
 
@@ -2986,7 +2537,6 @@ formule, déjà ancienne, qui doit être remplie par les soins
 des préfets, lorsqu'il s'agit d'un fonctionnaire ou d'un aspirant fonctionnaire dans l'ordre des finances:
 
 « Fonctions actuelles. — Résidence. — Age. — Lieu de
-naissance. — Santé physique. — Tenue. »
 
 Tout ceci, n'est-ce pas, est bien ordinaire? On s'indignait
 tout à l'heure des renseignements sur la fortune; je lis
@@ -3024,7 +2574,6 @@ lieu de photographier une fiche vide, au lieu de braquer votre
 objectif sur une fiche qui n'est qu'une formule imprimée,
 sans mention manuscrite et ne contenant aucun nom, et
 par conséquent n'étant pas applicable à une personne dé-
-terminée.
 M. Lavertujon. — Elles sont sous clef, celles-là! /Exclamations ironiques à gauche)
 M. le président du conseil. — Mais si les prétendues
 fiches sont sous clef, comment parlez-vous de photographies? Vous apportez ici une fiche qui, d'après vous,
@@ -3043,14 +2592,10 @@ Mais essayez-vous au moins d'établir cette nouvelle allégation ? Pas davantage
 M. Gotteron. — Le préfet de la Creuse a trouvé dans une
 armoire deux mille fiches remplies qu'il a jetées à la voirie.
 M. le président du conseil. — Nous sommes dans la
-Creuse maintenant !
 Vous m'avez appelé à m'expliquer sur ce qu'a fait
 M. Monteil dans la Haute-Vienne. Je réponds aux questions |
 que vous m'avez posées et je n'en sortirai pas.
 .
-40 |
-
-QUESTION LAVERTUJON
 
 Je disais qu'autrefois dans la Haute-Vienne on avait eu
 des procédés qui, ceux-là, pourraient être considérés
@@ -3070,7 +2615,6 @@ renseignements politiques seulement à l'égard de ceux qui
 sollicitent un emploi ou une fonction. Or, cette circulaire
 était en usage dans la préfecture de la Haute-Vienne en
 1879, et vous n'en trouverez pas une de ce genre remplie
-pendant ra | e M. Monteil.
 
 M. Hervé de Sais — Ceux qui en ont fait usage en
 1879 ont eu le plyst and tort.
@@ -3093,13 +2637,10 @@ cette circulaire à la date du 27 octobre ; or, elle avait été
 commandée sans le moindre mystère à un imprimeur de
 Limoges, M. Lavauzelle, dans la première quinzaine d'oc-
 
-L u: AT Fa PTE sf /
-*
 renseignements ou délation ?
 tobre. A la date du 27 octobre, il n'en était pas parvenu un
 seul exemplaire à la préfecture de la Haute-Vienne, et les
 deux journaux en question ont été servis avant le préfet.
-{Rires à gauche) 3
 
 M. Gotteron. — C'est une seconde édition, voilà tout!
 
@@ -3142,7 +2683,6 @@ le 31 octobre 1901, protestent contre l'abominable campagne
 de presse déchaïînée encore une fois contre M. le préfet
 républicain Edgar Monteil, lui adressent l'expression de
 
-QUESTION LAVERTUJON
 toute leur confiance et l'engagent à continuer à s'entourer
 des renseignements les plus précis /Interruptions à droite
 et au centre) sur la solidité des sentiments républicains
@@ -3160,8 +2700,6 @@ que professe pour vous le conseil général. »
 
 M. Halgan. — Quel est le nom du signataire de cette
 
-, lettre ?
-
 M. le président du conseil. — C'est M. Vachery, président du conseil général.
 
 M. Lavertujon. — Candidat à la députation!
@@ -3170,7 +2708,6 @@ M. le président du conseil. — Ce langage n'est pas tenu
 par le premier venu, et je pense que la passion politique
 n'ira pas jusqu'à dire que le conseil général de la HauteVienne puisse donner un certificat de complaisance à un
 préfet qui n'aurait été, suivant l'expression qu'on a employée, qu'un bas policier. /Très bien! très bien! à
-gauche)
 
 Un mot encore, messieurs, et j'ai terminé.
 
@@ -3225,11 +2762,7 @@ du dédain. /Très bien ! très bien ! à gauche)
 Il est du devoir de l'État — et M. le ministre de l'Instruction publique a rappelé aux préfets que c'est leur devoir
 aussi — de savoir quelle est au point de vue de l'instruc-
 
-44 |
-
-QUESTION LAVERTUJON
 tion de leurs enfants l'attitude des fonctionnaires de la
-République.
 
 Voilà les explications que je devais au Sénat.
 
@@ -3254,12 +2787,10 @@ l'issue de cette cérémonie, dans un concert qui l'a suivie,
 qu'on aurait chanté l'{nternationale.
 
 Mais, encore une fois, messieurs, ce n'est pas sur de pareils détails que ma réponse devait principalement porter.
-{Mouvement à droite)
 
 On accuse un préfet, que je couvre, de s'être livré à un
 espionnage que je serais le premier à flétrir s'il existait.
 Mais, de cet espionnage, vous n'avez pas apporté la
-moindre preuve.
 
 M. Lavertujon a exprimé le désir d'être promptement dé-
 barrassé de l'honorable M. Monteil ; il emploie, pour cela,
@@ -3275,7 +2806,6 @@ M. le président. — La parole est à M. Lavertujon.
 
 45 3.
 
-L L {
 renseignements ou délation ? |
 M. Lavertujon. — La question est précisément de savoir, :
 messieurs, si les attaques sont imméritées. Sur ce point là, |
@@ -3296,23 +2826,17 @@ rieuse, c'est de ne pas vous en rapporter seulement aux -
 afirmations de M. le préfet de la Haute-Vienne.
 M. Bidault. — Et le conseil général, qu'en faites-vous ?
 M. Gotteron. — Les faits sont de notoriété publique à
-Limoges.
 M. Delpech. — Les aflirmations de M. Monteil valent
 bien les vôtres !
 M. Lavertujon. — Ce moyen, monsieur le président du
 conseil, je m'offre à vous le fournir; donnez-moi cinq minutes d'entretien particulier et je vous indiquerai la manière
 de connaître toute la vérité en moins de quarante-huit
-heures.
 M. le président du conseil. — Ces questions ne sont pas
 confidentielles et ne se traitent qu'à la tribune. Indiquezmoi ce moyen. :
 M. Lavertujon. — Il y a des moyens qu'on ne peut pas
 indiquer à la tribune, vous le savez bien !
 Je répète que si vous voulez faire une enquête sur les
 
-À
-
-PT nu ot APE 0: A 4
-QUESTION LAVERTUJON
 lieux, elle vous est facile, à vous, ministre de l'intérieur ;
 mais vous ne voulez pas la faire et cela pour que votre
 préfet ne soit pas pris en flagrant délit d'inexactitude.
@@ -3353,8 +2877,6 @@ possible de nier, il a dit : Oui, j'ai fait cela ; et M. le président du consei
 j'en suis attristé encore davantage. {Très bien! très bien!
 au centre et à droite)
 
-textes formant dossier
-
 Un sénateur à droite.— Il ne l'aurait pas fait il y a deux ans!
 
 M. Lavertujon. — Monsieur le président du conseil,
@@ -3388,7 +2910,6 @@ vous méritez M. Edgar Monteil, gardez-le ! /Très bien ! très
 bien ! et applaudissements au centre et à droite)
 
 M. Victor Leydet. — Vous avez perdu la majorité au
-conseil général !
 
 M. Gotteron. — Mais nous la reprendrons prochainement, soyez tranquilles !
 
@@ -3397,7 +2918,6 @@ M. le président. — L'incident est clos.
 Le Journal officiel du mercredi 3 juillet 1901 est aujourd'hui épuisé aux bureaux du journal; j'ai en mains
 l'exemplaire que j'ai emprunté à une bibliothèque; —
 
-LA DÉLATION AUX DROITS DE L'HOMME
 Sénat, — session ordinaire de 1901, — compte rendu in
 extenso, — soixante-et-unième séance, — séance du
 mardi 2 juillet, — discussion de l'interpellation de
@@ -3433,8 +2953,6 @@ M. Jean Jaurès, professeur agrégé de philosophie, en
 
 - congé, mis en cause par ses ennemis, qui sont nombreux,
 
-textes formant dossier
-
 parce qu'il a permis que sa fille fit sa première communion, a répondu très fortement dans la Petite République
 du jeudi 11 courant. Nous publions cette réponse. Elle
 est très loin de satisfaire celui qui examinerait ce conJlit au nom de la conscience privée — et au regard de
@@ -3463,9 +2981,6 @@ aujourd'hui sa contribution : :
 
 Le quatrième dossier, attentats dans l'Yonne, était
 
-5o
-
-LA DÉLATION AUX DROITS DE L'HOMME
 le commencement du gros dossier que nous avons con- J
 stitué pour la défense de Hervé; ce quatrième dossier
 était annoncé ainsi :
@@ -3497,8 +3012,6 @@ ministre. La réponse de M. Leygues intéressera ceux
 - qui savent ce que veut dire parler ministériel et ce que
 vaut une enquête officielle.
 
-textes formant dossier
-
 Suivait dans le cahier, en dossier, une assez longue
 citation du Journal officiel ; mais je m'étais limité, pour
 cette citation, à un certain débat particulier entre
@@ -3509,7 +3022,6 @@ Des atteintes plus graves de jour en jour et plus
 générales sont portées aux libertés privées, — publiques,
 
 — civiques, — politiques, — du personnel enseignant en
-France. |
 
 Préparées par des circulaires, ces atteintes ont porté
 sur des personnes. A la rentrée nous publierons un
@@ -3533,10 +3045,7 @@ ou un dossier général pour les libertés des fonctionnaires, nous n'aurions qu
 
 il faudrait évidemment citer tout le compte rendu
 ofliciel de cette première interpellation Lavertujon;
-52 | |
-}
 
-LA DÉLATION AUX DROITS DE L'HOMME
 il faudrait en particulier citer, après la réponse de
 M. Leygues, la réponse de M. Waldeck-Rousseau.
 D'un tel dossier, d'un tel compte rendu résulterait
@@ -3566,7 +3075,6 @@ pas écraser un dossier nouveau sous une majeure partie
 de textes anciens; nous en avons assez publié aujourd'hui pour éclairer la récente introduction dans le
 débat présent du compte rendu de cette ancienne inter53
 
-à
 la délation aux Droits de L Homme
 pellation et de cette ancienne question ayant amené,
 en deux fois, cette ancienne réponse de M. WaldeckRousseau; nous nous en tiendrons strictement désormais au dossier particulier que nous voulons constituer
@@ -3574,12 +3082,10 @@ de la délation aux Droits de l'Homme.
 
 Le Temps du mardi 20 décembre 1904 publiait la |
 
-lettre suivante :
 Contre la délation
 
 M. Joseph Reïinach a adressé la lettre suivante au président de la Ligue des droits de l'homme :
 
-19 décembre 1904
 Mon cher président, À
 
 Je n'assistais pas à la séance du 5 décembre où le comité
@@ -3589,11 +3095,9 @@ Montpellier, Louis Comte, secrétaire de la section de Saint-
 sur la question de la délation dans l'armée.
 
 Je ne connais votre réponse que d'aujourd'hui, par le
-Bulletin.
 
 M. Rist vous écrivait : « Une grave question de moralité
 politique, une de celles pour la discussion desquelles la
-Ligue a été en grande partie fondée, vient d'être posée
 devant le pays. Est-il admissible que l'on confie aux camarades, c'est-à-dire aux concurrents et aux inférieurs même
 des officiers, sur lesquels on veut se renseigner, le soin de
 fournir des renseignements? »
@@ -3607,8 +3111,6 @@ cette préface : « Au dessus de nos intérêts, de nos préjugés,
 de nos passions, de nos haïines, de tout ce qui menace de
 nous mettre aux prises, élevons les principes que tous nous
 
-Ag td À ous TE SE
-UNE LETTRE DE M. JOSEPH REINACH
 reconnaissons, puisque tous nous les invoquons dès que
 
 nous craignons de n'être point les plus forts ».
@@ -3628,7 +3130,6 @@ Je pense, au contraire, que les républicains qui se sont
 n'ont pas fait preuve seulement de probité, mais qu'ils ont
 mieux servi la République que ceux qui ont essayé de couvrir de tels abus ou de plaider les circonstances atté-
 nuantes, et qui, eux, ont fait inconsciemment le jeu de
-leurs pires adversaires.
 
 Je me suis, pour ma part, élevé de toutes mes forces
 contre les détestables procédés que nos collègues de province vous invitaient, à votre tour, à flétrir; je crois, avec
@@ -3648,13 +3149,11 @@ d'y assister, mais le sentiment que j'étais en désaccord avec
 la majorité du Comité central sur des questions essentielles ;
 j'étais décidé, en conséquence, à vous faire savoir que je
 ne solliciterais pas, lors du prochain renouvellement, un
-troisième mandat.
 
 la délation aux Droits de l'Homme Ë
 
 Après votre lettre sur la délation dans l'armée, je ne '
 saurais, sans hypocrisie, attendre cette échéance; j'ai l'honneur de vous adresser ma démission de membre du Comité
-central. |
 
 Je ne me sépare pas sans un profond regret de collègues
 
@@ -3665,14 +3164,10 @@ velles luttes, dès qu'on ne craint plus de ne pas être les
 plus forts.
 
 Croyez, mon cher président, à tous mes sentiments très
-dévoués. $
-
-Josepx REINACH
 
 L'Humanité du mercredi 21 décembre 1904 publiait
 
 cet article de M. de Pressensé:
-LA DEMISSION DE M. J. REINACH
 Une lettre du citoyen de Pressensé |
 
 Le citoyen Francis de Pressensé, président de la Ligue
@@ -3690,9 +3185,6 @@ Droits de l'Homme » et que je n'avais pas encore reçue,
 pas plus que nous n'avions reçu votre protestation relative
 à l'expulsion de l'abbé Delsor, à la séance où nous l'avons .
 
-56 ‘
-
-UNE LETTRE DE M. FRANCIS DE PRESSENSÉ
 discutée. Vous alléguez deux raisons pour justifier la détermination que vous nous communiquez ; en premier lieu,
 votre dissentiment avec nous au sujet de la réponse que
 j'ai faite au nom et avec l'approbation du comité à ù
@@ -3722,7 +3214,6 @@ frapper soit des hommes qui avaient pu se tromper, même
 gravement, dans le feu d'une bataille acharnée, soit surtout
 les officiers républicains, livrés aux représailles de la réaction, de plus en plus maîtresse de l'armée.
 
-TU LAN
 la délation aux Droits de l'Homme L
 J'ose croire que, comme nous et plus peut-être que nous, 3
 vous auriez pu tenir compte, soit dans votre jugement, soit 4
@@ -3762,10 +3253,6 @@ sommes portés à la défense des malheureux ouvriers de
 Neuvilly opprimés par un patronat qui était la honte de sa
 classe, accusés de crimes dont ils étaient manifestement
 
-Le
-
-24 IRIS SPAM re 1 r La Ÿ
-UNE LETTRE DE M. FRANCIS DE PRESSENSÉ
 innocents, dont la justice de leur pays vient de les acquitter, en partie grâce à nous, soumis à une instruction viciée
 dès le début par des illégalités patentes? Nous en voudriezvous de la fermeté courageuse avec laquelle nous nous
 sommes attachés à poursuivre l'œuvre que nous avions
@@ -3831,33 +3318,21 @@ partisans de lamnistie scélérate de 1901. Résolue d'éviter
 toute polémique irritante sans esquiver une seule obligation,
 elle se contente de vous exprimer ses regrets d'une démis-
 
-6o
-
-MER TTE AE S >
-L + 4 ; { ,
-UNE LETTRE DE M. FRANCIS DE PRESSENSÉ
 sion qu'elle ne peut s'empêcher de trouver comme vous
-inévitable.
 
 Agréez, mon cher collègue, l'assurance de mes meilleurs
-sentiments. ë
 
 Le président,
-FRANCIS DE PRESSENSÉ,
 Député du Rhône.
 
 P. S. — Cette lettre, soumise au comité central dans sa
 séance d'hier soir, a été adoptée à l'unanimité. |
 
 La Ligue des Droits de l'Homme nous communique la
-note suivante :
 
 « Dans sa séance d'hier soir, le Comité central, sur la
 proposition de son président, M. Francis de Pressensé, a
 élu à l'unanimité M. Anatole France en remplacement de
-M. Joseph Reïinach, démissionnaire.
-
-« M. Anatole France a accepté. » :
 
 Le Petit Temps du mercredi 21 décembre publiait la
 lettre et la réponse suivantes :
@@ -3876,9 +3351,7 @@ notre ancien collègue. Il me suflira, dans ce journal qui a
 inséré ce réquisitoire, de résumer ma réplique. J'ai rappelé à M. Reinach que la Ligue avait été la première à
 demander la suppression des notes secrètes, et que, si elle
 avait refusé, sur la sommation des nationalistes, de se
-GI 4
 
-; FPE
 la délation aux Droits de l'Homme É
 joindre aux exagérations systématiques fondées sur la production de pièces suspectes par leur origine, elle avait condamné — avec tous les républicains — des procédés inadmissibles. Elle n'a pas voulu, en présence de la délation |
 qui n'a cessé de sévir dans l'armée contre le trop petit - À
@@ -3895,8 +3368,6 @@ Enfin j'ai montré à M. Reinach, en retraçant l'activité de
 la Ligue depuis sa fondation, que si quelqu'un avait
 changé, c'était lui, et que si nous pouvions regretter sa }
 démission, nous ne pouvions nous défendre de la trouver ï
-inévitable,
-: FRANCIS DE PRESSENSÉ,
 Député du Rhône,
 Président de la Ligue des Droits de l'Homme.
 Nous avons communiqué cette lettre à M. Joseph Reinach, qui nous a adressé la réponse suivante :
@@ -3910,9 +3381,7 @@ toutes mes forces. A
 Nos collègues de province lui demandaient de condamner
 cette lamentable série de fiches où les officiers sont dénoncés comme allant à la messe, ou comme y laissant aller
 leurs femmes et leurs filles. M. de Pressensé répondait :
-62 à
 
-UNE LETTRE DE M. JOSEPH REINACH
 « C'était un document privé, destiné à renseigner des particuliers, probablement sur l'aptitude des postulants éventuels à la maçonnerie. »
 
 C'étaient si bien des dénonciations, que M. Vadécard se
@@ -3950,18 +3419,14 @@ et la victoire, vont au devant des pires aventures; et que
 sans hésitation, ce qui, de tout temps et dans tous les
 pays, a été réprouvé par la conscience publique.
 
-Josepn RENAcCH
-
 la délation aux Droits de l'Homme |
 
 Le Temps du jeudi 22 décembre publiait la lettre sui- |
-vante :
 
 M. Émile Bourgeois, maître de conférences à l'École normale supérieure, membre du comité central de la Ligue des
 Droits de l'Homme, vient d'adresser la lettre suivante à
 M. de Pressensé :
 
-. Versailles, 20 décembre 1904
 Mon cher président,
 
 Je regrette plus que jamais en ce moment la grande difficulié que j'éprouve à ne pouvoir venir de Versailles, où
@@ -3994,12 +3459,7 @@ elle le peut, comme elle le doit.
 
 Veuillez agréer, je vous prie, etc.
 
-Énuze BourGgoIs
-
 * 13:11 EN NES ANS ne de F ÿ
-À & ui ju he x: ; ,
-_  ÉNAREATORNEEES
-; ï L OBSTRUCTION ET LA REVOLUTION
 à L'Humanité du dimanche 25 décembre publiait l'ar_ ticle suivant :
 b L'Obstruction et la Révolution
 D Il n'y a pas à s'y tromper; c'est l'obstruction qui a fait
@@ -4019,7 +3479,6 @@ D Il n'y a pas à s'y tromper; c'est l'obstruction qui a fait
 4 Fe Chaque fois qu'il se livre à un fremolo chauvin, il faut se
 demander quel but louche il poursuit, quel sordide intérêt
 — il sert, quelle vilenie il a à cacher ou quel coup il va porter
-- aux libertés publiques.
 a D'avance, il sait qu'il peut compter sur la naïveté, sur la
 - crédulité de la foule. Celle-ci accepta d'emblée comme
 … paroles d'Évangile les papiers les plus suspects. Elle a beau
@@ -4030,13 +3489,9 @@ raisons toutes spéciales et très forles de reconnaître des
 “._ un cambriolage, mis à la disposition d'un receleur. Elle
 u. mwen avale pas moins la bouche ouverte et les yeux fermés,
 toute l'indigeste série des petits papiers de M. Guyot (de
-_ Villeneuve).
 À Et il se rencontre même des hommes qui ont naguère
 lutté contre la bande des faussaires pour reprocher aigrei ment à leurs frères d'armes de ce grand combat la sage
-; 65 4.
 
-N\ 1 Li
-È
 Francis de Pressensé
 
 réserve avec laquelle ils se sont refusés, soit à tenir de
@@ -4082,10 +3537,6 @@ carent quia vale sacro, parce qu'ils n'ont pas d'historien à
 leur dévotion et surtout parce qu'ils n'écrivent pas eux.
 mêmes leur apologie sous la forme d'une prétendue his-
 
-LU L t L " »
-+ 1 SÉRIE
-K # d '
-4 L'OBSTRUCTION ET LA RÉVOLUTION
 ki toire. Ceux-là, les humbles, les dévoués, nous encouragent
 4 et nous remercient : j'avoue que ce verdict me suffit — avec
 F le témoignage de ma conscience.
@@ -4094,7 +3545,6 @@ I Par malheur, tout le monde, surtout dans les régions par-
 a champions du droit. Les défenseurs de la vertu qui ont eu
 — nom Syveton, Guyot (de Villeneuve), Jacquey, etc., ont
 À trouvé des complices — ou des dupes — dans les rangs du
-…_ parti républicain.
 | D'ailleurs, même s'ils n'avaient pas réussi dans cette besogne, même en constatant par dix scrutins de suite qu'il y
 —. a loin de la coupe aux lèvres et que le ministère Combes a
 —._ la vie chevillée au corps, les initiateurs de cette campagne
@@ -4112,7 +3562,6 @@ $ de flibusterie parlementaire. Tour à tour, pour des causes
 Î ont été envahies. A cette heure, contre un nationalisme elé- ‘
 rical plus ou moins masqué, et qui a d'emblée porté l'ob-
 ‘à struction aux dernières limites, la Hongrie doit livrer un
-4 combat désespéré.
 Il n'y avait point de raison pour que la France indéfini-
 , ment demeurât indemne. C'est le grand parti nationaliste,
 avec la complicité du centre progressiste et des dissidents,
@@ -4122,8 +3571,6 @@ mêmes déclarations ont interdit à la Chambre de s'occuper
 4 utilement de son ordre du jour.
 a L'opposition a compris que l'heure décisive approchaïit.
 è Du moment que le gouvernement et la majorité auraient
-
-/ 1
 
 la délation aux Droits de l'Homme
 abordé enfin les réformes, que l'on commencerait à acquitter les lettres de change souscrites à la démocratie, il deviendrait impossible de spéculer sur les déceptions populaires. C'en serait fini de la méthode commode et cynique
@@ -4164,12 +3611,8 @@ Bloc? C'est contre lui que se dressent les machines de
 guerre. Une intrigue savamment ourdie, où tel est dupe qui
 croit être bénéficiaire, prépare le triomphe de M. Doumer,
 à l'aide de ces voix de droite auxquelles il inspire une confiance si méritée. à
-68 |
 
-à SRE gts AE SE BR TAN - Li 4 è à
-RS ue An rt
 LE SEUAN AERERS rite À
-- LETTRE DE M. PAUL GUIEYSSE
 | Il appartient à la majorité républicaine de se prémunir
 | contre ce péril... Il lui appartient également de chercher et
 - de trouver les moyens de dompter l'obstruction.… C'est le
@@ -4185,17 +3628,13 @@ _ tieux que l'Angleterre conservatrice n'a pas connu, l'ex-
 …_ des réformes au prolétariat : elle ne nourrira et ne satis-
 … fera ni l'un ni l'autre avec les viandes creuses de l'obstruc-
 “ tion, de l'inertie et des parades nationalistes.
-“4 FRANCIS DE PRESSENSÉ
 E L'Humanité du mardi 27 décembre publiait la lettre
-) suivante :
 _ A la Ligue des Droits de l'Homme. — Démission
 de M. Guieysse
-;
 à M. Paul Guieysse, député du Morbihan et membre du
 comité central de la Ligue des Droits de l'Homme, com-
 - munique la lettre suivante qu'il a adressée au citoyen
 — Francis de Pressensé, président de la Ligue :
-à
 # ; Paris, 25 décembre
 È Monsieur le président,
 | Je n'ai connu que par le Bulletin du 15 décembre votre
@@ -4206,7 +3645,6 @@ _ retenu de le faire que sur les instances d'un de nos meil-
 - leurs collègues, à la suite d'un appel que j'aurais eu mau_  vaise grâce à ne pas écouter.
 
 la délation aux Droits de l'Homme 4
-*
 Je lui avais exprimé mon ennui de voir le comité central
 engagé par vous dans des considérations politiques étrangères à l'esprit de la Ligue. 4
 Aujourd'hui, par votre article de l'Humanité, vous accen- ;
@@ -4221,27 +3659,19 @@ dans l'autre de ces deux catégories, je me vois forcé,à mon 4
 grand regret, de me séparer de collègues pour lesquels
 je conserve toujours une vive et profonde sympathie, et
 de vous adresser ma démission de membre du comité central de la Ligue des Droits de l'Homme. -
-Recevez, etc.
-PAUL GUIEYSSE
 L'Humanité du dimanche premier janvier 1905 publiait de M. Francis de Pressensé un article intitulé la .
 Légion d'Honneur et l'honneur, dont je retiens ce para- |
 graphe, uniquement parce qu'il ne faut pas le laisser Ë
-perdre : 4
-Ê
 A la date déjà lointaine où ma conception socialiste, pro- 4
 gressivement élaborée, n'avait pas encore, de par une expé-
 rience irrésistible, entraîné pour corollaire dans mon esprit
 l'idée d'une méthode nettement révolutionnaire, le ministère des Affaires étrangères avait cru devoir rougir ma
 boutonnière. Ce fut mon front qui se mit à rougir quand,
 à peine lancé dans la bataille pour le droit, je vis à quels
-contacts, à quelles complicités, à quels silences semblait
 devoir me condamner le port de cet insigne.
 Ci après l'article que M. Gabriel Trarieux voulut
 faire passer dans l'Aurore et que M. Clemenceau ne
 
-+ k \
-
-UN ARTICLE DE M. GABRIEL TRARIEUX
 _ put insérer; nous avons composé sur le manuscrit de
 M. Trarieux, et il a relu ses épreuves :
 à Pour la Ligue
@@ -4273,7 +3703,6 @@ sont ici fait jour : l'une, par souci de loyalisme, par excès
 ” de loyalisme à mon sens, mais peu importe, craignait par
 là de faire le jeu d'une opposition trop habile et d'une
 
-Gabriel Trarieux
 écœurante mauvaise foi, craignait de voir exploiter un 3
 bläme par des commentaires perfides et de susciter à la
 légère de dangereux malentendus. L'autre, soucieuse avant
@@ -4292,8 +3721,6 @@ en eùt modifié l'issue. Ils ont préféré, le lendemain, s'en
 aller, non sans quelque pompe. Nous autres nous sommes
 restés, et n'avons pas le sentiment d'avoir renié quelque
 chose de nos intimes convictions.
-+
-x *
 
 Je ne veux faire injure à personne. Mais enfin,
 puisque nos anciens collègues nous font la leçon d'assez |
@@ -4315,11 +3742,9 @@ voulu devancer cette date. Cela est fâcheux, sans nul doute.
 
 Mais on s'ôte quelque autorité, il voudra bien en convenir,
 
-4 POUR LA LIGUE
 #. pour censurer les actes publics d'une Association comme la
 . Ligue — où les fonctions sont agissantes et nullement
 __ honorifiques — quand, de soi-même et dès longtemps, on
-_  cessa d'y collaborer.
 —_ Ce n'est pas le cas de M. Paul Guieysse, de qui le bon
 £ … sens énergique, la haute raison, aux heures difficiles, nous
 Ë furent souvent précieux. Et j'avoue que je comprends mal
@@ -4346,7 +3771,6 @@ KL: dans son Histoire, il l'a écrit, c'est qu'il le croit. Et il
 …_._ lescamoter, la dissoudre. Peut-être se prépare-t-il à en
 —_. décrire J'agonie. Cette peine lui sera épargnée. Nous ferons
 28 tout notre possible pour la lui épargner. Et voilà. :
-Le
 Ë Et il y a enfin Pages Libres. Cette jeune Revue intrépide
 __ quiaime çà et là, distribuer les vérités rudes el toniques,
 —. se demande, constatant son silence en maintes occasions
@@ -4355,7 +3779,6 @@ __ quiaime çà et là, distribuer les vérités rudes el toniques,
 —_ dire. Ce qui l'intéresse, c'est ce qui fait sa besogne propre,
 “ à savoir la réparation quotidienne, incessante, des injus4
 
-EC AL EE
 la délation aux Droits de l'Homme |
 tices subies. Cette tâche, qui n'a rien à voir avec les débats ;
 politiques, qui est rebutante et obscure, ne prête guère à
@@ -4381,27 +3804,19 @@ les plus signalés services et peut en rendre de plus grands
 encore, ce n'est pas une raison pour le rejeter, en un jour
 de méchante humeur, par une intransigeance facile et faci< j
 lement glorieuse, qui, à s'y méprendre, ressemble à de à
-lamour-propre déçu. :
-GABRIEL TRARIEUX
 Ci-après une lettre de Bouglé à Jaurès; nous la composons sur le brouillon de Bouglé; sauf erreur, Jaurès
 ne l'a point publiée dans son journal :
-Toulouse, 26 décembre
 Mon cher ami,
 Je ne pense pas que M, de Pressensé ait spécialement
 visé, dans son article du 25 décembre sur la Délation, les
 modestes militants de province dont les lettres au Comité
 central des Droits de l'Homme ont amené, indirectement,
 les démissions que l'on sait. Toutefois, au milieu de tant
-74 ; N
 
-Hs Lio s: à
-+
-TEXTES FORMANT DOSSIER
 d'épithètes que M. de Pressensé prodigue à ceux qui ne
 pensent pas comme lui, chacun de nous peut se sentir
 atteint, chacun se demande avec inquiétude s'il est lui aussi
 « complice » ou « dupe », crédule ou hypocrite, béotien ou
-pharisien.
 S J'espère donc que vous voudrez bien m'accorder l'hospitlité que M. de Pressensé se plaint de ne pas trouver
 _ ailleurs, et me permettre d'expliquer ce que je demandais
 à notre Ligue — ce que demandaient avec moi, je le sais,
@@ -4478,18 +3893,14 @@ ce qui était explicable, en blämant énergiquement ce qui était
 blämable. L'affaire en valait la peine. Et il n'y suflisait pas |
 d'un silence prudent. £
 
-Se Ne TEXTES FORMANT DOSSIER
-“rh se 7
 F IL nous semble que pendant cette fâächeuse période notre
 _ Comité central, pour des raisons incompréhensibles à la
 ke province, a été comme en sommeil. Puisse la « naïveté » $
 . provinciale achever de le réveiller! S
-KR C. BoucLé -
 De plusieurs parts des lettres à Bouglé, à Rist,
 Le dem andant une action; nous publions désormais ce
 . dossier, comme nous l'avons dit, dans tout son désordre,
 - et dans toute sa sincérité; une lettre de Goblot, Caen :
-rA
 73e Caen, le 20 décembre 1904
 , ' Mon cher collègue,
 ; Êtes-vous satisfait de la réponse de de Pressensé? Je
@@ -4514,8 +3925,6 @@ _ Je me suis cru obligé de donner ma démission, non de
 LT: Par ménagement pour nos amis politiques, et pour mon
 … collègue et ami [Liguier], qui a été, en cette affaire, absolument candide, je n'ai pas publié ma lettre, mais j'ai tenu à
 me dégager personnellement en écrivant dans un journal
-‘4 77 :
-ET
 
 la délation aux Droits de l'Homme
 
@@ -4541,11 +3950,8 @@ aussi bien que contre la délation officieuse.
 Serrez de ma part la main à mes amis, qui sans doute
 sont les vôtres, en particulier à Durrbach. Bien cordialement à vous.
 
-‘ E. GogLor
-
 une lettre de Hauser, Dijon :
 
-Dijon, 21 décembre 1904
 Mon cher collègue,
 
 Je ne me sens convaincu ni par les arguments politiques
@@ -4558,11 +3964,6 @@ lettre, une sorte d'engagement à cet égard.
 I1 me semble que notre devoir à tous est de rester dans
 la Ligue, pour y défendre son esprit originel, pour y protester contre les déviations qu'on lui fait subir. Tel est
 aussi le sentiment de M. Comte, à qui j'en parlais ici hier.
-
-78 |
-
-A pr 7
-D es TEXTES FORMANT DOSSIER
 
 “& Seulement il faudrait nous grouper, nous voir, former un
 
@@ -4577,11 +3978,7 @@ Re serais très heureux de savoir quelles sont vos inten- k
 
 Veuillez croire, monsieur et cher collègue, à ma bien cor_ diales ie.
 
-ES pre H. HausEr
-
 E. une lettre de M. Paul Lapie ; Bordeaux :
-
-A: : Mardi
 
 …._ Je rouvre ma lettre, encore une fois, après la lecture du
 
@@ -4618,19 +4015,12 @@ _ même à Paris.
 
 une lettre de Douady, Brest :
 
-Fe Brest, 19 décembre 1904
-
-à Monsieur,
-
 — Je viens de lire, dans le Pulletin officiel de la Ligue, la
 …— lettre que vous avez adressée au Comité central à propos
-‘4 79
 
 la délation aux Droits de l'Homme 4
 
 des affaires de délation, ainsi que la réponse de M. de Pres- 1
-
-M "sensé. .
 
 Je n'ai pas besoin de vous dire que cette réponse, bien
 qu'ayant été approuvée à l'unanimité par le Comité central,
@@ -4663,21 +4053,14 @@ protestation collective le plus grand retentissement possible.
 
 Je vous prie de bien vouloir agréer, monsieur, l'expression de mes sentiments distingués. 4
 
-Juces Douany,
 Professeur à l'École navale,
-6, rue Amiral-Linois, Brest,
 Secrétaire de la Section,
 
-OI ES U
 > 18
-TEXTES FORMANT DOSSIER
 
 un projet de protestation qui émanait je crois des
-_ ,  Montpéliérains :
 
 Les soussignés,
-
-Considérant :
 
 Que les Droits de l'Homme sont évidemment lésés dans la
 personne des fonctionnaires lorsque ceux-ci sont jugés et
@@ -4701,10 +4084,6 @@ les fonctionnaires doivent aliéner la liberté de conscience
 
 À Qu'il semble que ce rappel aux principes rentre directement dans l'office de la Ligue tel qu'elle l'a jusqu'ici com-
 
-Î pris.
-
-, Considérant d'autre part :
-
 ? Que du moment où, par l'affaire dite des fiches secrètes,
 la conscience publique se trouve saisie de ces questions, la
 
@@ -4722,9 +4101,7 @@ celte occasion de montrer une fois de plus qu'elle n'attend
 pas, pour aider ceux qui sont victimes de quelque pratique
 
 condamnable, d'avoir apprécié la nuance de leurs opinions;
-81 5:
 
-; Li Se rene 27 cn,
 la délation aux Droits de l'Homme
 
 Qu''enfin, s'il est vrai que sur cette affaire — et sur les .
@@ -4741,7 +4118,6 @@ naires soit évoquée à nouveau par le Comité central. |
 
 une lettre de M. Brunschvicg ; Paris : ;
 
-Lundi 19 décembre — 21, villa Dupont
 Mon cher ami, 1
 
 J'ai reçu avec le plus grand plaisir ton livre, et en lisant
@@ -4765,14 +4141,7 @@ parle pas en théorie, mais dans la République d'aujourd'hui);
 2 Si c'est oui, alors il faut faire quelque crédit aux
 hommes politiques sur les moyens qu'ils ont de se renseigner ;
 
-.::
-we:
-
-x 0 | :
-Fr TEXTES FORMANT DOSSIER
-
 1 3° Dans quels cas ce quelque crédit dépasse-t-il les limites
-permises ?
 
 | Voilà où nous pourrions nous entendre, et je ne défen-
 : drai ni les officiers qui rapportent des propos entendus au
@@ -4795,18 +4164,7 @@ A L'emploi supprimé le premier novembre 1904 est rétabli le
 # par Michaut pour se couvrir contre la gauche. Et il faut
 4 que nous marchions derrière, parce qu'autrement quoi?
 
-d Brunschvicg
-
-nt
-
 ; une deuxième lettre de Goblot ; Caen :
-
-ba
-
-4 LIGUE FRANÇAISE POUR LA DÉFENSE
-
-‘ DES DROITS DE L'HOMME ET DU CITOYEN
-k
 
 ) SECTION DE CAEN Caen, le 25 décembre 1904
 
@@ -4815,10 +4173,8 @@ k
 à J'avais également songé à provoquer une nouvelle assemdE blée générale extraordinaire.
 
 k Nous ne serions pas suivis par tous si nous voulions trop
-è 83
 
 la délation aux Droits de l'Homme L
-“
 demander. Je crois qu'on pourrait trouver une manière
 convenable de présenter les choses. |
 Pressensé est exactement dans l'état d'esprit où se trou- |
@@ -4833,7 +4189,6 @@ cinq ministres de la guerre, vous verrez que c'est la même 1
 chose. C'est ainsi que des officiers très honnêtes gens, faisant
 un pas après un autre, en sont arrivés à la doctrine du
 faux patriotique. Pressensé est parti sur une voie toute À
-semblable.
 « Ne faisons pas le jeu de la réaction, » dit-il, comme on
 disait alors : « Ne faisons pas le jeu de l'Allemagne. » C'est
 faire le jeu de la réaction que de vouloir s'établir dans une
@@ -4849,19 +4204,12 @@ J'ai écrit à Pressensé, il ne m'a pas répondu. Je vais lui
 pas les paroles. Je suis d'ailleurs d'accord avec vous qu'il |
 ne faut pas démissionner.
 Bien cordialement à vous,
-EpmonD GoBLOoT
 une lettre de Rist à Bouglé :
-5 janvier 1905
 Mon cher ami, |
-Deux lignes au galop.
 Je vous envoie les documents que vous demandez à
-Meslier.
 Je crois qu'il serait important que les notes ne fussent |
 
-È .
-TEXTES FORMANT DOSSIER
 pas publiées avant que les listes aient été remises au Comité
-central. ;
 
 Une lettre d'Emile Bourgeois reçue récemment et que je
 vous transmettrai me confirme dans cette idée.
@@ -4869,21 +4217,13 @@ vous transmettrai me confirme dans cette idée.
 J'ai regretté pour ma part la publication hätive de votre
 papier par les journaux.
 
-Amicalement,
-
-C4 C. Risr
-
 Ce papier était la déclaration qu'on lira plus loin et
 sous laquelle se groupèrent enfin les signatures ; Bouglé
 avait en effet l'intention bien arrêtée de l'envoyer
 d'abord au Comité central; mais le papier sortit, comme
 toujours, et parvint immédiatement au Temps, aux
-journaux.
 
 une lettre dont je ne puis déchiffrer la signature :
-
-Grenoble 27 décembre 1904
-Cher Monsieur,
 
 Je vous envoie ma signature et celle d'un de mes collè-
 gues. Deux autres seraient très disposés à signer; mais ils
@@ -4904,7 +4244,6 @@ Il est fâcheux que la Ligue n'ait pas un annuaire. Il est :
 probable qu'elle compte bien des personnes, des sentiments
 desquelles je pourrais répondre; mais comment les connaître?
 
-Ë | 1
 la délation aux Droits de l'Homme {
 De cette façon, le Comité central est tout puissant et les k
 membres de province n'ont aucun moyen de tenter une
@@ -4912,21 +4251,15 @@ opposition quelconque. — Cette opposition ne pourrait
 d'ailleurs être bien sérieuse, car je crois que maintenant
 ceux qui veulent la liberté pour les autres comme pour
 eux-mêmes ne sont plus qu'une bien petite minorité dans la À
-Ligue. | ;
 Veuillez, cher monsieur, agréer l'expression de mes senti- Ù
-ments dévoués. à
 
 un paquet de lettres et de billets; de cartes :
-Cher vieux, |
 J'ai vu ta protestation. Comme je doute qu'on fasse grand |
 chose à Lyon, et comme je suis plus qu'entièrement de ton |
 avis, je t'envoie ma pleine et entière adhésion. Restons
 dreyfusards, ou nous ne sommes plus rien. Il est fâcheux que
 Jaurès et Pressensé ne l'aient pas compris.
-Mille amitiés.
-ANDRÉ CRESSON,
 Agrégé de Philosophie, docteur es-lettres
-85, rue Vaubecour, Lyon.
 Henry Jagot, ancien directeur du Patriote d'Angers,
 directeur-administrateur du Progrès du Nord, à Lille, et
 ancien président de la section angevine de la Ligue, habi- |
@@ -4934,16 +4267,10 @@ tué à n'attaquer qu'en face ses adversaires, se joint bien
 volontiers à votre protestation, conforme à l'esprit qui a
 fait se lever tant de Français au nom de la justice et du
 droit, pour défendre un homme victime de documents
-secrets.
-Lille, 30 décembre 1904.
-Henry JAGOT
-Paris, 10, rue Fromentin, 30 décembre 1904 à
 Monsieur et cher collègue,
 Je vous prie de joindre ma signature à celles que vous
 recueillez en manière de protestation contre l'attitude du
 
-PL :
-; TEXTES FORMANT DOSSIER
 Comité central en face des pratiques de délation. Il est
 regrettable que la grande leçon qu'aurait dû être l'Affaire
 | Dreyfus soit déjà oubliée et que trop de nos collègues ne
@@ -4954,10 +4281,8 @@ les cerveaux, par atavisme, pour que ceux-là même qui
 “à font métier de combattre le jésuitisme ne voient pas l'immoralité qu'il y a à emprunter aux Jésuites leurs procédés.
 Veuillez agréer, monsieur et cher collègue, l'assurance
 é de ma profonde sympathie.
-Fe Pauz MARION,
 10 ancien président de la section
 î des Grandes Carrières (XVII).
-4 Nancy, 30-12-04.
 0 Mon cher Bouglé,
 à Je trouve aux Dernières nouvelles du Temps (30 décembre)
 le texte de votre déclaration sur « les pratiques de délation
@@ -4970,21 +4295,15 @@ savoir ce qu'elle décidera, je t'envoie mon adhésion. Car je
 È dont vous avez eu le courage de prendre l'initiative : c'est
 < l'esprit républicain qui est en jeu.
 G Crois bien, mon cher Bouglé, à mes meilleurs sentiments.
-$
-; A. Despois
 63, rue de Villers, Nancy.
-: 30 décembre
-Monsieur,
 Membre de la Ligue des Droits de l'Homme, je vous envoie
 mon adhésion à la déclaration que vous proposez. Je
 comptais quitter la Ligue au 1° janvier, mais votre interven87
 
-ve RE
 la délation aux Droits de l'Homme |
 tion me fait changer d'avis, en montrant qu'il y a possibilité
 d'y introduire des pratiques meilleures.
 Votre tout dévoué. |
-GEORGES WEILL,
 Professeur d'histoire au lycée Louis-le-Grand.
 
 M. et madame Léonard Marcou et Marie-Louise, tous les |
@@ -4995,13 +4314,10 @@ lettre de M. Rist parue dans le « Bulletin », et vous envoyons |
 notre sincère adhésion.
 
 L. Marco,
-20, boulevard Port-Royal (5°).
 
 cartes de la Ligue numéros 34.652, 34.653; abonnement au
-Bulletin : 6.031.
 
 Paris, le 29 décembre 1904
-8, boulevard Malesherbes
 Monsieur Bouglé, Professeur à l'Université de Toulouse
 Mon cher collègue,
 
@@ -5013,18 +4329,13 @@ Depuis plusieurs jours, je m''emploie moi-même ici à
 recueillir des signatures pour une manifestation analogue.
 
 Je suis très heureux de voir que Paris a été devancé par la
-province.
 
 Il est inexplicable que la passion politique aveugle les
 partis dans notre pays au point de faire perdre à nos collègues du Comité Central de la Ligue des Droits de l'Homme
 le souvenir du véritable objet pour lequel cette ligue a été |
-fondée.
 
 Il y a cinq années, nous avons protesié contre un gouvernement qui, pour des raisons politiques, s'obstinait à
 couvrir et à nier certaines fautes. Aujourd'hui, nous voyons,
-
-88 |
-F
 
 a par un retour de choses analogue, nos alliés d'alors arrivés
 … au pouvoir s'obstiner de même à couvrir et à nier des
@@ -5036,11 +4347,9 @@ a par un retour de choses analogue, nos alliés d'alors arrivés
 É- bonne foi et que, à l'opposition ou au pouvoir, nous vou-
 … lons pratiquer la même justice.
 _ Votre bien dévoué, ]
-E GEORGES BARBEY =
 EE - Avocat à la Cour de Paris, Ancien Secrétaire
 CA de la section du Quartier Latin de la Ligue LE
 à des Droits de l'Homme.
-D. >;
 L £ Montpellier, le 3-1-05
 Re | Mon cher ami, L
 … Je m'empresse de vous renvoyer votre lettre : j'étais con-
@@ -5055,42 +4364,29 @@ sensé, — mais en me recommandant de ne pas la publier. à
 . Peut-être consentirait-il à vous la donner pour les Cahiers. 2
 …— — Si vous voulez lui demander écrivez 33, rue Vaubecour, à
 8 _ A la hâte, et bien affectueusement à vous. 3
-3 " J. CHaRMONT |
-174 |
 “.  Adhésions reçues par M. Charmont :
 — Micé, doyen de la Faculté de droit, Montpellier.
 De Rovvize, doyen honoraire de la Faculté des sciences,
-_ Montpellier.
 re ENNE DE ROUvILLE, docteur es-sciences. ;
-
-p.72
 
 la délation aux Droits de l'Homme 3
 ..
 G. DE Rouvize, professeur à la Faculté de médecine, Mont- £
-pellier. 3
-D° LENHARDT, médecin à Montpellier.
 J. PRUDHOMMEAUX, secrétaire de la Paix par le Droit, Nimes.
 JEAN APPLETON, président de la section de Lyon.
-HYAGINTHE Loyson.
 GRESSE, président de la section de Vercheny (Drôme). 4
-Pauz BRUN, conseiller municipal à Vercheny. |
 Juzes PouLeT, président de la section de Pontaix-Barsac ;
-Drôme). |
 Pauz RANDIN, pasteur, ancien président de la section de è
-Pontaix-Barsac (Drôme). ‘
 Extrait d'une lettre reçue : |
 La Ligue était par son objet même un organe bourgeois,
 mais composé de bourgeois de bonne volonté, n'ayant pas .
 peur de leur ombre.
 Le nombre ne pouvait que lui retirer son caractère
-propre.
 Nôus avons été envahis par trois éléments :
 1° Les gens tarés qui dans leur localité souffraient d'être
 mis à l'index, et à qui leur qualité de ligueurs permettait des
 représailles de mauvais aloi.
 2° La Franc-Maçonnerie.
-3° Le Socialisme. |
 La Franc-Maçonnerie a ses réunions propres, les convents.
 Le Socialisme a ses syndicats et ses groupements particuliers.
 Si on ne se défendait contre des intrusions désordonnées,
@@ -5100,19 +4396,13 @@ une chose déconsidérée.
 Que la Franc-Maçonnerie et le Socialisme accaparassent
 l'instrument bourgeois.
 Et maintenant, c'est fait!
-27 décembre 1904. |
-90 :
 
-SE & THERE FAP pie +R
-TEXTES FORMANT DOSSIER
 Daniel Brun, membre de la Ligue des Droits de l'homme,
 _  applaudit de toutes ses forces à la protestation dont a pris
 …_ l'initiative M. Bouglé avec quelques collègues, protestation
 _ sans laquelle il allait envoyer sa démission de membre de
 la Ligue.
 
-L. 31 décembre 1904.
-4 D. BRUN
 1e 18, rue d'Orléans, Neuilly-sur-Seine.
 ta une lettre de Gabriel Monod :
 de. Paris, le 29 décembre 1904
@@ -5146,7 +4436,6 @@ mu. mettre à la remorque des nationalistes pour protester au
 : chiens muets quand la Légion d'Honneur protégeait
 - Esterhazy et chassait Zola et Pressensé, que je n'ai
 "4 aucune envie de hurler avec eux. Nous ne pouvons pas
-Ë :
 
 la délation aux Droits de l'Homme É
 empêcher la politique de jouer le premier rôle dans tout À
@@ -5158,14 +4447,8 @@ mables et était prêt à travailler à la réparation des injustices que ces pr
 Recevez mes vœux bien affectueux pour vous et les
 vôtres et croyez à mes sentiments tout dévoués. |
 
-GaABrtæL Mono 1
-
-ë
-
 une lettre de quelqu'un qui parle très bien, mais qui |
 n'a pas demandé que l'on publiât son nom :
-
-21 décembre 1904 |
 
 Mon cher Rist,
 
@@ -5175,28 +4458,21 @@ absolument d'accord avec toi. Nous devons, dans la majorité, conserver les prin
 pouvoir, ou bien nous serons un novus ordo, l'esquisse de
 la section française de l'humanité affranchie et alors nous
 devrons à côté de l'action politique continuer notre travail
-si nécessaire d'éducation libérale.
 
 J'écrirais la même chose à M. Louis Comte si je le con- -
 naissais et à Bouglé si je le connaissais autrement que par
-correspondance.
 
 Ton bien dévoué et impénitent dreylfusard dans la majorité comme dans la minorité,
 
 Ordre du jour voté à l'unanimilé par les quarante
 membres de la section de Clairac (dont plusieurs francsmaçons). 4
 
-le 23 décembre 1904 |
-
 (envoyé par le président : Hollard).
 
 Les membres de la section de Clairac, après avoir pris
 connaissance de la protestation de MM. Bouglé, Comte et
 
-. LA
 .
-
-FE TEXTES FORMANT DOSSIER
 
 _  Rist contre l'usage des « renseignements secrets », — et de
 le lettre de M. de Pressensé répondant à cette protestation, >
@@ -5214,16 +4490,12 @@ _ été entraîné par les circonstances à user, pour accomplir :
 #4 Estiment me la République est obligée par ses principes
 mêmes de ne s'enquérir qu'au grand jour de la valeur de ses -
 
-_ serviteurs;
-ÿ _
-
 - Et appuient les démarches que fera sans tarder le Comité
 _ central pour l'abolition des notes secrètes.
 
 _ une lettre de M. Paul Guieysse :
 
 De: Paris, le 27 décembre 1904
-EG,
 es Mon cher collègue,
 
 - Je n'ai pas besoin de m'étendre sur la lettre de démission
@@ -5231,13 +4503,9 @@ es Mon cher collègue,
 - nous sommes entendus ! cela est vrai en tant que les con-
 - clusions logiques tirées d'un principe vrai ne peuvent
 
-- qu'être identiques.
-
 À J'ai reçu votre note au moment où paraissait dans le
 _ Temps ma lettre que les journaux donnent tous ce matin.
 - Mais vous comprendrez aussi la réserve que m'inspire ma
-
-_ démission.
 
 3 Je vous indique seulement les noms des présidents des
 séetions de la Ligue du Morbihan :
@@ -5246,29 +4514,16 @@ séetions de la Ligue du Morbihan :
 
 # _ Th. Guillard, négociant, Auray ;
 
-…_  Desné, professeur au lycée, Pontivy ;
-
-__ Simon, propriétaire à Kermaria, canton d'Allaire ;
-
 _ A. Henry, directeur de l'école normale; vice-président, de
-
-2:
-
-E 93
 
 Des.
 
-es.
-
-"4
 la délation aux Droits de l'Homme à
 la section de Vannes, (dont Simon, fort éloigné, est président).
 J'espère que mes amis y feront bon accueil.
 Veuillez agréer, mon cher collègue, l'assurance de mes
 sentiments les plus sympathiquement dévoués, |
-PAUL GUIEYSSE 3
 A qui envoyez-vous la circulaire ?
-Cher monsieur, /
 Voulez-vous me permettre de vous prier de joindre mon 4
 nom à la protestation, dont vous êtes un des signataires, F
 contre l'attitude de la Ligue des Droits de l'Homme, Il m'est ;
@@ -5277,7 +4532,6 @@ Nevers, lui-même étant compromis dans l'affaire. Si je prends
 la liberté de vous demander l'insertion de ma protestation, :
 : c'est que j'en fais une question de conscience.
 Merci de cette occasion de me rappeler à votre bon souvenir.
-A. ALCAIS,
 Pasteur de l'Église réformée. — Nevers. -
 ici le texte même de la circulaire : 4
 Les présidents des sections de la Ligue des Droits de
@@ -5292,44 +4546,25 @@ Nous vous prions également de transmettre ce texte aux
 se joindre à nous. |
 BouGLé, professeur à l'Université de Toulouse; BonNET, CHARMONT, MEsLIN, MizuAUD, professeurs à 4
 l'Université de Montpellier.
-Le
 
-TEXTES FORMANT DOSSIER
 : Les membres soussignés de la Ligue des Droits de
 lHomme regrettent que le Comité central n'ait pas cru
 devoir désavouer par une délibération formelle les pratiques de délation incontestablement introduites dans l'armée et qu'il ait pæu ainsi préférer des intérêts politiques
 momentanés à l'intérêt permanent de la République et à la
 défense des Droits de l'Homme.
-Adhésions parisiennes :
 | MarrA VÉRONE, 7, rue Germain-Pilon (section des
-: Grandes-Carrières, 18°);
 | ALBERT LAMOTTE (n° 32.012), 7, avenue Victoria;
-Lours WouTERS (n° 15.521);
-Victor CHARBONNEL (n° 14.826), 69, boulevard SaintMichel ;
-À ADRIEN VeiL (n° 13.862);
-s [EL Seziaunez]|, 9, rue Chaptal. :
 | Adhésions envoyées directement à Toulouse :
 Pauz LAprE, professeur, Université de Bordeaux;
 GEorces WELL, professeur, lycée Louis-le-Grand ;
-ANDRÉ CRESSON, professeur, Lyon;
 Henri JAGorT, directeur du Progrès du Nord, Lille;
-GUSTAVE TÉRY;
-DanieLz Brun, Neuilly;
-A. Dsspors, Nancy;
 Pauz Mariow, ancien président, section des GrandesCarrières;
 GEORGES BARBEY, ancien secrétaire, section du Quartier-Latin ;
 M., madame et mademoiselle Marcou, boulevard de
-Port-Royal, Paris;
-F. RoriLLAR », Toulon;
 GogLor (pour la section de Caen).
-9ù
 
-& RE
-« > ER AA L+
-:
 la délation aux Droits de l'Homme es.
 Le Havre, le 2 janvier 1905
-Monsieur, 2
 
 Je n'ai pas encore reçu le texte de votre déclaration, mais à
 j'en ai eu connaissance par le Matin, et avant de vous +2
@@ -5358,11 +4593,9 @@ si vous vouliez bien m'éclairer de votre expérience.
 Cette déclaration de principes, que le Comité central n'a
 pas émise, ne pourrions-nous pas l'élaborer, et la proposer 1
 au Comité central et aux sections de Paris et de pro- 4
-vince ?
 
 Blâmer le Comité central ne me plaît qu'à moitié; c'est de
 l'action négalive — lui montrer ce qu'il aurait dû faire me \
-paraît préférable. F
 
 Voici une déclaration que je soumets à votre critique : “:
 
@@ -5371,18 +4604,15 @@ Voici une déclaration que je soumets à votre critique : “:
 Après avoir pris connaissance de (lettre du Comité central
 — lettres de divers membres — votre déclaration, etc.) tout
 
-TEXTES FORMANT DOSSIER
 en reconnaissant que le gouvernement a le droit et le devoir
 de se renseigner sur les citoyens qui détiennent, de par
 leurs fonctions, une partie de l'autorité de l'Etat,
-estime,
 que cette enquête ne doit porter que sur le point suivant :
 « ces citoyens sont-ils ou non capables de détourner à leur
 profit ou au profit d'un parti politique, l'autorité qu'ils tiennent de leurs fonctions ? » que, dans le cas où cette enquête
 leur serait défavorable, les résultats doivent leur en être
 communiqués par le ministre dont ils dépendent, pour leur
 permettre de s'en défendre et dans l'intérêt même de la
-vérité,
 décide de transmettre cette déclaration au Comité central, —
 puis deux variantes :
 ou : regrette qu'il n'ait pas cru devoir faire, à l'égard des
@@ -5416,18 +4646,13 @@ l'affaire Dreyfus, celui où nous ne faisions pas de politique
 électorale ou parlementaire!
 
 Veuillez agréer, monsieur, l'assurance de mes meilleurs
-sentiments.
 
-H. Du PASQUIER,
 Président de la section du Havre |
 de la Ligue des Droits de l'Homme,
-20, rue Félix Faure.
 Le Havre.
 deuxième lettre de Douady; nous ne reproduisons
 plus les en-têtes des lettres écrites sur papier officiel |
 des sections :
-Brest, 3 janvier 1905
-Cher monsieur,
 
 J'ai reçu, peu après votre lettre, le texte de la déclaration
 relative aux affaires de délation. Il va sans dire que je m'y
@@ -5442,7 +4667,6 @@ Us sont tout prêts à signer une déclaration dans laquelle
 ce texte serait légèrement modifié et davantage précisé, à
 cet endroit-là. La section se réunit le 22. Je vous enverrai
 à ce moment-là le texte de la résolution que nous aurons
-adoptée.
 
 Je comptais faire signer la déclaration à M. le pasteur
 [Rambaud] (un des fondateurs de la section). J'apprends à
@@ -5451,8 +4675,6 @@ l'attitude de la Ligue dans laffaire de la délation. Les ten
 dances trop exclusivement politiques de la Ligue ont causé
 ici plusieurs démissions depuis assez peu de temps
 (M. Bellin, professeur de philosophie, un de nos bons con-
-
-TEXTES FORMANT DOSSIER
 
 férenciers, MM. Ballue, Grall, ses collègues au lycée, et plusieurs autres parmi les membres les plus sérieux et les
 
@@ -5464,11 +4686,8 @@ est de même dans leurs sections. Ces démissions sont tout
 décapiter. Il faut agir sans retard, énergiquement, afin que ‘
 la Ligue ne soit pas détournée plus longtemps de son des-
 
-sein primitif.
-
 Je viens d'écrire à M. de Pressensé pour lui signaler ces
 différents faits, et lui demander quelles mesures il compte
-prendre.
 
 Je crois que les Sections devraient s'entendre pour demander au Comité central :
 
@@ -5494,7 +4713,6 @@ toute la précision désirable;
 6° D'y publier une déclaration précise de la Ligue condamnant le système des renseignements occultes, et déterminant les limites dans lesquelles elle reconnaît au gouvernement le droit de s'informer des opinions de ses agents, et
 
 | aussi de quelle façon ces renseignements peuvent et doivent
-être obtenus, contrôlés, communiqués aux intéressés.
 
 Une enquête précise, une déclaration loyale rallieraient à
 la Ligue des Droits de l'Homme bien des bonnes volontés,
@@ -5513,14 +4731,9 @@ temps héroïques de la Ligue.
 
 Bien cordialement à vous,
 
-Douapy,
-Professeur au Borda,
-6, rue Amiral-Linois.
-
 Église réformée de Montilli (par Flers) Orne; AlfredB. Henry, pasteur :
 
 Montilli, le 31 décembre 1904
-Monsieur,
 
 J'ai lu hier dans les journaux une note signée de vous et
 de quelques-uns de vos collègues de Montpellier, au sujet
@@ -5540,9 +4753,6 @@ le vrai et seul but de la Ligue à des contingences politiques
 que je ne veux pas apprécier ici.
 
 Veuillez agréer, Monsieur, l'hommage de mes sentiments
-respectueux.
-
-- ALFRED-B. HENRY
 
 Adhésions reçues par Rist :
 
@@ -5552,13 +4762,6 @@ des lettres.
 
 L. Dorison, professeur à l'Université de Dijon, Faculté des
 
-lettres.
-
-217 485 L4
-"x
-té TEXTES FORMANT DOSSIER
-
-x
 -_ E.BarTarrron, professeur à l'Université de Dijon, Faculté
 ; des lettres.
 
@@ -5567,10 +4770,7 @@ F. Faculté des lettres. 3
 4 GERMAIN MARTIN, professeur agrégé à la Faculté de droit.
 e J. Fèvre, professeur à l'École normale de Dijon.
 
-_ LouIs EISENMANN, agrégé d'histoire, docteur en droit.
 —_ D'Roserr Sorz, ancien interne des hôpitaux de Paris, à
-
-4 Dijon.
 
 —_  P. SenTis, professeur au lycée de Grenoble.
 
@@ -5594,17 +4794,10 @@ _ aucun doute au sujet de ses sentiments sur la question,
 
 …. unanimement approuvées dans notre réunion du 16 décembre.
 … Je crois donc pouvoir signer ici au nom de la section de
-EN Caen, î
-
-‘ E. GogLor,
 
 4 Président de la section de Caen.
 
-:4
-
 4 Clairac, le 24 décembre 1904
-
-50 Cher Monsieur,
 
 - Je m'empresse de vous communiquer l'ordre du jour que
 
@@ -5617,7 +4810,6 @@ ts L Si je vous envoie cet ordre du jour, c'est pour vous
 
 . donner un argument (un si léger suffit parfois) de plus qui
 — détermine votre décision en faveur de votre maintien dans
-É. IOI 6.
 
 la délation aux Droits de l' Homme
 la Ligue. Vous avez bravement et franchement lancé votre
@@ -5628,7 +4820,6 @@ Pourriez-vous venir nous voir ici en janvier ? Nous
 serions si heureux de vous recevoir. Et vous pourriez nous
 donner une conférence sur un sujet de votre choix et à
 propos duquel le vrai et pur libéralisme qui vous caracté-
-rise serait manifesté.
 
 Notre section est heureusement en bonne voie. Elle a une
 bonne attitude dans la question de la séparation. Les
@@ -5641,7 +4832,6 @@ chez moi quelques amis qui sont vos collègues dans l'Université. Notre maison 
 
 Votre bien dévoué à
 
-H. HorLArD
 À Séance du 23 décembre 1904
 
 Les membres de la section de Clairac après avoir pris
@@ -5666,21 +4856,13 @@ ses serviteurs ;
 Et appuient les démarches que fera sans tarder le Comité
 Central pour l'abolition absolue des notes secrètes.
 
-;
-
-1e TEXTES FORMANT DOSSIER ‘
 _ une lettre de M. Victor Charbonnel :
 
-?
-
 4 : Paris, le 31 décembre 1904
-Bic Cher Monsieur,
 ‘# Je vous transmets quelques signatures. Toutes mes féli-
 “_ citations pour votre heureuse et salutaire initiative,
 
 4 Bien cordial souvenir,
-
-10 Vicror CHARBONNEL
 
 ‘1 P. S. — Pourriez-vous adresser à La Raison, sans tarder
 Hi trop (raisons d'actualité), un article sur la délation et l'esprit
@@ -5691,17 +4873,10 @@ _ une lettre de M. Gustave Téry :
 
 si Le 28 décembre 1904
 
-À Cher ami,
-
 à Bravo! Voici ma signature. Et j'écris à Pressensé pour
 -  l'informer que je pose ta candidature, en même temps que
 -_ celle de Reinach, Bourgeois et Guieysse, au prochain renou- 9
 -  vellement du Comité central. F
-
-4 Cordialement,
-
-7% GUSTAVE TÉRY
-“0 # . .
 
 ‘ii Bouglé ne voulait pas que l'on publiât cette lettre;
 
@@ -5711,18 +4886,12 @@ _ contre le Comité ; il faut toujours tout publier; et on
 était sûr d'avance que Téry trouverait pour la protesta-
 = tion la forme la plus vigoureusement polémique.
 
-‘49
-
-1 Montpellier, samedi 5 heures
 DU, Mon cher ami,
 
 ; ; C'est moi qui vous ai envoyé le jeudi soir un premier pli
 …. recommandé contenant quelques signatures et qui vous en ai
-n 103
 
 #
-
-Fe
 
 la délation aux Droits de l'Homme
 adressé un second (vendredi matin) pour vous faire parvenir ce que Charmont avait en main.
@@ -5747,19 +4916,13 @@ avons recueillis.
 Il y en a si peu que je ne sais si cela en vaut la peine;
 mais en tous cas il n'y a pas lieu de laisser publier ces
 noms sans en avoir fait le dépôt au Comité, il me
-semble,
 
 J'ignore ce qu'est la lettre de Reclus dont vous me parlez;
 je m'informerai auprès de Charmont.
 
 Bien à vous,
 
-GEORGES MESLIN
-
 J'enverrai une feuille aux noms que vous. m'indiquez.
-
-Beauvais, 5 janvier 1905
-Monsieur Bouglé,
 
 Mes collègues du lycée et moi, membres de la Ligue, nous
 nous associons à votre protestation contre les décisions ou
@@ -5770,17 +4933,10 @@ Veuillez m'adresser un exemplaire ou deux de votre protestation. Nous les signer
 Ceci au cas où la section de Beauvais ne serait pas promptement réunie.
 
 Croyez, monsieur Bouglé, à nos sentiments les plus
-dévoués.
 
 J. DEJEAN, professeur de mathématiques, 16, rue d'Amiens,
 
-Beauvais.
-
-AR cn 29
-ET: : TEXTES FORMANT DOSSIER
 ÿ de Paris : :
-; 7 janvier 1905
-£.
 
 4 Profondément afligée d'avoir vu la Ligue, dans une affaire
 
@@ -5788,28 +4944,20 @@ _ aussi grave, oublier ce qu'elle doit à sa tradition dreyfu-
 -.  sarde et à son nom, — je me joins de tout cœur à nos amis
 de Toulouse et de Montpellier.
 
-14 Dick May
-
 À Ont signé la déclaration :
 
-È
 x: | GResse, président de la section de Vercheny (Drôme);
-à Pauz Brux, conseiller municipal à Vercheny (Drôme);
 
 L. Juzes Pouzer, président de la section de Pontaix-Barsac
-4 (Drôme);
 
 4 Pauz RANDIN, ancien président de la section de Pontaix-
 | Barsac (Drôme).
 
 ‘4 La présente déclaration pourrait être envoyée avec succès
 
-14 à
 À M. Hewry Courr, président de la section de Saillans
-4 (Drôme);
 
 À M. le docteur RICATEAU, secrétaire de la section de Crest
-‘4 (Drôme).
 
 #4
 à: Ont signé la déclaration :
@@ -5818,7 +4966,6 @@ L. Juzes Pouzer, président de la section de Pontaix-Barsac
 
 d A. Mazusxi, professeur au lycée de Montpellier.
 
-4 janvier 1905
 4 Monsieur et cher collègue,
 
 % J'ai sous les yeux le texte de la déclaration relative à l'af-
@@ -5830,9 +4977,7 @@ _ mon adhésion.
 pris l'initiative de cette démonstration nécessaire. Etant un
 —_ des premiers adhérents de notre Ligue et l'un des fonda-
 É teurs de la section lyonnaise je n'oublie pas dans quel esprit
-É: 105
 
-{ À ERP PRET
 la délation aux Droits de l'Homme
 nous nous sommes organisés. Si Trarieux vivait encore il
 rappellerait, sans doute, que notre but était de doter notre
@@ -5850,37 +4995,26 @@ que chacun pense tout bas c'est donc défendre tout à la fois
 la République et les principes qui sont la raison d'être de
 notre ligue. ÿ
 Recevez, monsieur et cher collègue, l'assurance de mes
-sentiments distingués.
-P. VALAYER,
 2, place Puvis-de-Chavannes. — Lyon.
 P.,5.— Je vous prie de m'envoyer quelques feuilles contenant le texte de votre déclaraiion pour recueillir des
 signatures parmi mes amis et je vous autorise sous réserve
 à m'inscrire parmi les protestataires.
 Ont signé :
 : J. PRUDHOMMEAUX, agrégé de l'Université, 12, rue
-Bourdaloue, Nîmes ;
 ° AuGusTE FABRE, rédacteur de l'Émancipation, 14, rue
-Bourdaloue, Nîmes ;
 ; ANTONIN, professeur à l'École pratique, 70, boulevard
 de la République, Nîmes ;
-AUGUSTE LAUNE, négociant, 10, rue Monjardin,
-Nîmes ; |
 E. FABRE, conservateur des Eaux et Forêts, Nîmes ;
 Regou, chirurgien de l'Hôtel-Dieu, rue d'Uzès.
 
-RAT
-4 TEXTES FORMANT DOSSIER
-À
 _ - par dépêche :
 Ajoutez sur protestation ligue Milhaud et Montel de
 | Nice. — MixnaAuD.
 É de Paris :
 | _ Mon cher Péguy, ajoutez mon nom à la liste des adhérents
 - à la protestation Bouglé, Rist et Comte. — Bien vôtre. —
-… 7 janvier 1904. — André Spire.
 ; Cher monsieur, M. Bouglé me dit que vous recevez les
 . signatures au sujet de l'affaire de la Ligue des Droits de » l'Homme. Vous pouvez ajouter ma signature à celle de mes
-_ collègues Charmont, Rist, etc. — CHARLES GIDE,
 , .
 __ de province : É
 | Prière d'ajouter A. Roy, professeur à Saint-Girons.
@@ -5893,10 +5027,8 @@ _ sa protestation.
 - Cette liste aurait dû être plus longue, si M. Bouglé avait
 - demandé aux présidents des diverses sections de soumettre
 _ sa déclaration aux assemblées générales convoquées à cet
-_ effet.
 … J'espère que cette idée sera mise à exécution et qu'ainsi
 - un plus grand nombre de ligueurs se joindront à nous.
-PIERRE BouDET,
 Eu étudiant en droit de l'Université
 % de Toulouse.
 k P.-S. — Ci-joint les noms exacts des signataires, au cas où
@@ -5907,17 +5039,9 @@ k P.-S. — Ci-joint les noms exacts des signataires, au cas où
 
 la délation aux Droits de l'Homme
 L. Maury, Professeur à la Faculté de théologie;
-Huques, pharmacien;
-GuILLAU, imprimeur ;
-Juces BERT, publiciste ;
-PÉFOURQUE, propriétaire;
 RoussEAU, conseiller municipal de Reyniès;
 J. OLLIVIER, agréé près le tribunal de commerce; :
-Pere BouDer, étudiant en droit;
-JUSTROBE.
 autre lettre de Douady :
-Brest, 6, rue Amiral-Linois
-18 janvier 1905
 Mon cher Péguy,
 
 On a tellement embrouillé les questions depuis quelque
@@ -5941,15 +5065,10 @@ partie de leur succès à l''U. P., ne peuvent lui pardonner son
 ancienne importance, les services rendus par les intellec--
 tuels. Il y a malheureusement du vrai dans tout cela. L'éducation populaire est une entreprise hardie, et hasardeuse.
 
-Douady
-
-TEXTES FORMANT DOSSIER
-
 une lettre extrêmement violente reçue par Bouglé;
 ; nous la donnons comme indiquant la limite maxima de
 5 son courrier :
 |
-‘ 22 décembre 1904
 Mon cher Monsieur,
 4 - J'ai lu avec intérêt dans le Temps votre protestation cou-
 : rageuse contre l'attitude présente de la Ligue des Droits de
@@ -5970,19 +5089,15 @@ se vocis sans réalité, vous devez sortir d'un groupement qui
 x outrage ofliciellement les lois de l'honneur.
 4 Votre cas m'intéresse. Ces jeunes professeurs de philoso4 phie sont-ils des gens sérieux ? Quel prix attacher à leur
 : parole ? Voilà le problème : j'en attends la solution.
-à Hommages.
 : On me confirme que la lettre de Bouglé à Jaurès que
 < nous avons reproduite plus haut, page 74, était bien
 une réponse à l'article de Pressensé publié dans l'Huma-
 ; nité du 25 décembre; on me confirme que cette réponse
 F a bien été envoyée à Jaurès et qu'elle n'a pas été insérée.
-Le
 
 4 Le texte que nous avons publié page 81 était un projet
 e de protestation proposé à l'Enclos Laffoux, Montpellier,
 fa à la suite de l'espèce de Congrès amical qui y fut tenu
-: LD
-< 109 7
 
 la délation aux Droits de l'Homme |
 après la réponse de Pressensé à Rist et à Bouglé, dans
@@ -6024,14 +5139,8 @@ qui ont porté gravement atteinte aux plus sacrés des droits, |
 aux droits de l'homme, dans la personne de citoyens fran- |
 çais. L
 
-Veuillez agréer, ete. A. ALCAIS
-
 Le président de la section de Nevers est M. Guéneou, auteur de fiches récemment publiées.
 
-È
-‘4
-
-NE TEXTES FORMANT DOSSIER
 É. Cette lettre était suivie de la note suivante :
 : Dans sa réunion d'hier, le Comité central de la Ligue des
 —. Droits de l'Homme a désigné MM. Armand Dayot, viceE président des « Bleus de Bretagne », et Jules Renard, homme
@@ -6039,9 +5148,7 @@ NE TEXTES FORMANT DOSSIER
 _ Bourgeois, démissionnaires, en raison du refus du Comité
 … central de réprouver l'œuvre de délation.
 “à L'Humanité du même jour publiait la communication
-_ suivante :
 $ A la Ligue des Droits de l'Homme
-3 LES NOTES SECRÈTES. — FÉLICITATIONS AU PRÉSIDENT
 | DE LA LIGUE. — ÉLECTIONS AU COMITÉ CENTRAL
 4 Le Comité central de la Ligue des Droits de l'Homme,
 à _ sous la présidence du citoyen Francis de Pressensé, député
@@ -6050,8 +5157,6 @@ _ du Rhône, a adopté à l'unanimité, sur la proposition de
 à Le Comité central de la Ligue des Droits de l'Homme,
 - réuni le 16 janvier 1905,
 —._  Invariablement fidèle aux opinions qu'il a toujours défen_ dues publiquement sans attendre les sommations d'aucun
-+2 PP! >
-. parti politique;
 1 _ Fidèle au vœu solennellement exprimé par la Ligue dans
 … son congrès d'avril 1904, réclamant l'abolition des notes
 | secrètes;
@@ -6063,7 +5168,6 @@ AR Se refuse d'ailleurs à toute manifestation qui paraîtrait
 Le 3 . de l'affaire dite des « délations », contre les ofliciers républi-
 …_—_._  cains, qui ont souffert tant d'années et souffrent encore de
 la délation ;
-TU. 111
 
 la délation aux Droits de l'Homme
 Et affirme énergiquement la nécessité, pour le gouvernement, de prendre la défense de ces officiers.
@@ -6096,122 +5200,23 @@ savoir combien de ceux qui restent pensent comme le i
 Comité central; mais si la Ligue veut incorporer tous X
 les électeurs de France, on en aura dix-huit cent mille;
 et puis après ? |
-CuarLes PÉGUY |
-
-y Rd DES HE PPS PA RER SEE LE > PAT L 4 née ETS DS GE D STE SU A
 
 1 rt ON MM LE CRT APR PR LUS CIAIEE DU
 
-TAN PLAT RP ere k 4, RE RES A ATEN F FA VAR
-
-4) a L | 7.
-
-A: ve:
-
-AL 1}
-
-4, 130 d re
-
-Be È 0: € ? D M
-
-[1040 VF
-
-1: LOTS + ; + Lé
-
 De te VE SR
-
-* SENOMESS . if
-
-N'YA UPE LA
-
-: 1 ALIEN À EME
 
 |. 2 2 ER
 
-“SENTE NPA
-
-"NUE “ ne L
-
-QU = ' 1
-
 # ÿ ru (w* F4 Pere
-
-: AT AT
-
-ER, J nn LE
-
-RS à +.
-
-x pi F
-
-A. - HAT
-
-MAR LS, « v
 
 LS F ; Les sit ANS
 
-4 FU TEE L 4
-
-Pr EN
-
-UE +24 de
-DAS Se
-
-LT TRES - ÿ VAE
-
-{ FRE ue a he: "y Th
-
-" Rs s; q' Poe DE
-y EPP . Rs
-
-21e | : 00
-
-:, FR , ae AN
-
-Re, À É MR:
-+. RATES TR
-
-LATIN ANRT TETE RENE PRONPE RE TRE Mir fs RACINES /
-RE NP LA à RENE NE RTS AC D'ERREUR APS :
 % “: # ‘at 40 j CRE ra el x Le si 2 Fr « "RARE House, ns CS
-A TS NPA 2, 4 A Pa à Kk DA ARE sr
-14 & | & : rs hu xt AA N ANUBEPE A
-JE LT e $ F 4 CA + ra
-TL Pit ; ï ï &F 4 NP
-Mere A 4, ei CARE
-es 472 La . it Li . AG +
-Ke te (us DRE Pl 5 D fé vo
-\ Le L , FE PIE ON 4 AUS
-"TOR Lan, ee féis DS TR
-RUE G- FN
-Ne Da, k “We PE Ie
 ue Fo ne ; . WA nn e re RE 4
 # LR L'EMIEP AUTRES
-rt =) RCE
-LS LT TERRE
-À Ses : 1 MEN
-LOVE TR L DURE
-\ TER DUT y à Ce.
-UPS ; CNE
-44 44 RÉ L l Et we KC:
-AT - Ne ENT
 MA er RE
-1 MASETA ù d' 4: TORRES
-HATT Fer l k LT 90 3 7
-. 100 Le
-+ ND [ 4 KL PE ROIS
-AREA NE" EME G SIT: Ja
-ACT 2 FORME
-‘HU NE >e x”) AU:
-ua :: f ALAN 2:
-HR DRE EUR Ur
 
-; TABLE DE CE CAHIER
-
-; PAGES
 Notre catalogue analytique sommaire.....:...... Il
-
-Fr CHARLES PÉGUY. — Textes formant dossier... Y
 
 Une lettre de M. Ferdinand Buisson ............. XLI
 
@@ -6261,8 +5266,6 @@ n sieur le Président; la lettre de M. Louis Comte,
 
 ,
 
-ù,
-
 la délation aux Droits de l'Homme
 pasteur à Saint-Étienne, secrétaire de la section :
 de Saint-Étienne, Saint-Étienne, le 8 novembre
@@ -6281,10 +5284,8 @@ manité du samedi 10 décembre 1904, un article
 de M. Francis de Pressensé, /mpudence; où
 inclus deux citations du Journal ofjiciel, Sénat,
 séance du 2 juillet 1901, séance du 7 novembre <
-1901 ;
 
 Journal officiel, numéro du vendredi 8 novembre 1903, Sénat, session extraordinaire de
-1903, compte rendu in exlenso, quatrième séance,
 séance du jeudi 7 novembre, question de M. La- à
 vertujon à M. le président du conseil, ministre 4
 de l'intérieur et des cultes, MM. Lavertujon, 3
@@ -6303,11 +5304,6 @@ M. J. Reinach, une lettre du citoyen de Pressensé, 4
 Paris, le 20 décembre 1904, mon cher collègue,
 le président, Francis de Pressensé, député du |
 Rhône, lettre adoptée à l'unanimité par le Comité central; une note de la Ligue, portant élec-
-
-A
-
-ÿ ,
-TABLE
 
 tion de M. Anatole France au Comité central, à
 
@@ -6337,12 +5333,10 @@ k la Ligue des Droits de l'Homme, démission de
 d: député du Morbihan et membre du comité cen-
 > tral de la Ligue des Droits de l'Homme, au
 5 citoyen Francis de Pressensé, président de la
-% Ligue, Paris, 25 décembre, portant démission
 Ne de membre du comité; dans l'Humanité du di-
 Œ: manche premier janvier 1909 un article de
 # * M. Francis de Pressensé intitulé La Légion à
 A d'Honneur et l'honneur, dont retenu un para-
-‘4 graphe ;
 $ un article de M. Gabriel Trarieux, pour la
 à Ligue, non inséré dans l'Aurore;
 rA dossier Bouglé; une lettre de Bouglé à Jaurès,
@@ -6351,43 +5345,30 @@ FA cembre, Toulouse, 26 décembre, mon cher ami,
 F4 non inséré dans l' Humanité ; une lettre de E. Goa blot, Caen, le 20 décembre 1904, mon cher
 ea collègue; une lettre de H. Hauser, Dijon, 21 dé-
 | ; cembre 1904, mon cher collègue; une lettre de
-Fa
 
 5 117
 
 la délation aux Droits de T Homme
 M Pal Lepie. Bordeaux: mme kettre de Douaëy, 74
-Brest, 19 décembre 190$. monsieur, professeur É
 à TEcokce navakr, 6, rue Anüral-Linvis, Brest, L
 secréteire de la section; un projet de proiests- PE:
 Gone form à Montp-lier ; one küre & PNL Brenschies, Par, lmn@ 19 décembre, ar, RE
 cle Dapent, men cher ami; une éeusieme ktire J
 & Goblot, serbor de Can, Caen, Le 25 & =,
 cembre 200£, anon cher collègues: une ire de :
-RS 2 BouE., 5 janrier 1905, non cher am: -
-me ke & Grenvble 27; décembre 190$, cher 5
 &e piolosophar. docteur esdetires, 55, rue VasGrecienr du Panic dingers, reciegr-admi- &
 Séent de k seen ampgervime de L Lipue, Zi, à
-3e décembre 1905; Paul Mario, encien prési- 4
 ent de la secüum des Grandes Lurrivres, diz- È
-Reeme, Pers, 10.,r0e Fromentin. 30 décembre ÿ
-1905, monsieur ci cher collègue: 4. Drsposs, 63, =
 rue Ge Villers, Nancy, 59-212—20£, mon cher Bou- È
-XL & madame Léemzré Marco < Mare lose,
 îoes ks trois membres de L Lèow des Droits ;
 & Tone, mnbres & Tisossüon ne :
 mal des Libres Penmceuws, 20, bonlvaré PortBaby. ooccti à La Cour de Paris, ancien secré- .
 taire de Lo secüom Eu Qaaräier Latin de la Ligue
 &es Droës de THomme, Paris, Le 29 décembre L
-1905, &, bouleoard Malesherbes, monsieur Bou- =
 SE, professeur à T'ÜUnawersiüe de Toulouse, mon E
 cher collegue; ne lire de 3 Choarmemt, Mont.
 geler, L 31-05, mon cher né; aliens ,
 mecs ge M Carmen; cxirast d'une stire s
-recue, 27 décembre 190f ; Das Brun, 51 dé .
-cenibre 1905, 16, ru d'Orlans, Neliy-æur- .
-
-158 D ||
 
 “ Seine; une lettre de M. Gabriel Monod, Paris, le
 2 -… 29 décembre 1904, mon cher ami; une lettre
@@ -6420,14 +5401,11 @@ X une lettre de M. Georges Meslin, Montpellier,
 M samedi 5 heures, mon cher ami; Beauvais, 5 jan-
 “à sier 1905, monsieur Bouglé, une lettre de
 1 M. Dejean, professeur de mathématiques, 16,
-14 rue d'Amiens, Beauvais; Paris, 7 janvier 1905,
 d. une lettre de Dick May; ont signé la déelara4 tion; & janvier 1905, monsieur et cher collègue,
 © une lettre de P. Vallayer, 2, place Puvis-deD Chavannes, Lyon; signatures de Nimes; une
 dépêche de Milhaud, Nice; André Spire; M.CharFa les Gide; A. Roy, Saint-Girons: Montauban, |
 n. le 14 janvier 1905, monsieur, une lettre de |
-En 119
 
-E “NT SN AUINNtEE
 la délation aux Droits de l'Homme ‘4
 M. Pierre Boudet, étudiant en droit de l'Univer- “3
 sité de Toulouse; signataires de Montauban; 4
@@ -6451,59 +5429,26 @@ communication du Comité central, séance du ‘10
 l'Homme, les notes secrètes, félicitations au É
 président de la Ligue, élection au Comité ;
 central, résolution Painlevé; une statistique; 1
-commentaires. 4
-ÿ ;
 |
-À
-À
-j
 Nous avons donné le bon à tirer après corrections ;
 pour trois mille exemplaires de ce neuvième cahier le !
-mardi 24 janvier 1905. 4
-EEE j
 Le gérant : CHARLES PÉGUY |
 Ge cahier a été composé et tiré au tarif des ouvriers syndiqués ;
-Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Pierre-Dupont. — 100 \
 | Ka à
-
-AS à ER EN RES CA. NO PE PAS LUS GS GONE NO EE Re D DURE PTE
-
-Es 5 er | Lo È ti Lt 1 < LL;
-
-k IRON à : ' ET a. He Pie
-
-Feb $ * " Ér ter
-
-Mi 2 LOF
 
 ar + Lot à ee ù ‘ à ET
 
 | TS RC Te nr * À RE M
 
-ANT -! ANCIEN “1 e “ ù Der
-
-RTE Der rue # F.
-
-Es ME MA SL < ce Fa
-ME RE « FC 54 ET
-
 Sur RD t art > à Da
 
 QE PAR CON SL Tien are LD IN 1000 TT RNS
 
-RON. ce : à CPS 4 PTE : 41 La NO
-ge. ie : d j “ (Y 21 FR ne À É* Dé
-Etre # À, 4 RUE ; Li Pit el ù ë. s' a? £ îà 174 4 À CLEA
-2 TENÇ EN RNORSESE A art ; £ 4 DNS TS
-1 0 PR RE MA 1 < 1e 01 MENT
-
-RE RO D PE
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement. 4
 Nos Cahiers sont édités par des souscriptions men-. 4
 suelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur ° 3
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres. :
 | Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année 7
 ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- 3
@@ -6520,7 +5465,6 @@ pour la série; tous les cahiers de l'abonnement recom- 4
 mandé sont empaquetés à part et recommandés à la
 poste; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
-contre certains abus. É
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit :
 l'achèvement de cette série ; ainsi du 2 octobre au é
@@ -6528,42 +5472,20 @@ l'achèvement de cette série ; ainsi du 2 octobre au é
 francs les vingt cahiers de la cinquième série complète. #4
 A partir du premier janvier qui suit l'achèvement 4
 d'une série, le prix de cette série est porté au moins 74
-13 É:
 
 Le HR NE PTT SR ER SNS pue 2 AA UT A NC R ee
-{ A lu no, tie Or C PAUIE RS »PARNEAErE CeuRE
-‘Ie à TT Meet IN M EE ENT NRA SAC
-HS Ar? A Li a À Ur a Re MANS
-41 LORS È ê + 2 LE LENS
-LARMES F + pr SR
-.…. FRR CREER F + À MO. S
-5008 Er TES
-À, TENNIS Pi ; Le.
 ty RSS PO GA ART ER d L LE
-:] SÉTERPE À è <r8
-ON 7. . r TT PAR
 11 5 AA ri TS ue OR PE ET PSN
-Re Dee 0. or 2° = TRIER
-= 07 STAY TENERES + = +7 ACTUS
-LE RS T4 à ‘ ji k 1, . DS,
 d re te di LE £: SET
 el Le Te en le ; AE + ATREE
 a TE. : : NAS EEE la et ire 1 HET OR
-12 Yu st LÉ ERS û LE : EI
-M 0 ES: LIENS
-[A7 Lu FÉES FLE LIRE Jo I
-D Le SH ARTES # $ PCR * LCR
 4 AT DA SERRE he Lu” Fa NE ee A LT LL LÉTANSES È
-PV 17 Le Va RE +, 4 ANSE TE EPS SOIT U DE EUR Lee, # JE à
 vx LR UE le ce de Ar: ME Là LUN SE LS ÉTAT + ACTU 4
 , de” EC UT PAU 2 DANCE rl ARE + ut LARGE Fe È LEE
 171. VAE ER HR ne AS AR LC AT APE te EE ‘ Po,
-* 407 RL GA DIOMNE ES Te Se IE RM A
 
-à Ée AT
 au total des prix marqués; ainsi depuis le premier
 janvier 1905 la cinquième série complète se vend 4
-quarante-sept francs. A]
 
 M. André Bourgeois, administrateur des cahiers, 4
 reçoit pour l'administration et pour la librairie tous .
@@ -6572,4 +5494,3 @@ heures à onze heures et de une heure à sept heures. &
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la $
 rédaction le premier mercredi du mois de trois heures È
-à quatre heures. #4

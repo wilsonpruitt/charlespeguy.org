@@ -7,125 +7,39 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 38266
 ---
-
 méme CAHIER DE LA NEUVIÈME SÉRIE
-ROMAIN ROLLAND |
 |
 Jean-Christophe à Paris
-I. — LA FOIRE SUR LA'PLACE. — 1
-0)
-CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-ÿ PARIS
 | 8, rue de la Sorbonne, au rez-de-chaussée
 
-PAS PNEU UE
 js “ul À L | FU RAMATIE EN AUTUE
-La | MERE ERA \ A DA At ous
 HN ae NEC AN EE TRE TA nue Ki FA NE LEA à
-HPATINRUN [al JAUUr MER 44 nn PR ER à
-Ru FAR ME w À DAC | LEURS 44 PAU
-UD | VA Qt \ } A À AN ta AU
-73 ‘ \ 7 ; S NAT US |
-INT I? \ he 135% 3 TER
-1 “ L I MEATER Ver
-FAN MB N Far
-14 ion LUE
-: KO CNE
-RARE | "0 Lt ai 1: STE
-LAS AR” 1/2 A D UE à (+: ML PACE |
 
-Lt CMP ONS ti ee HAE PHASE x AA TARN NRE
 (ASE re AT EN de à MERE Ds Es CES Re PU A NOR 4
 2 OT ÉENE RE Un A MEME reel LR EPS NO TE
-7 AR ARR
-AN EN | LACS RENNES
-MS | ANT NF ARE
-L' + fF000R & | HE: , F4
-:UR j CPE Re
-A + 'ÉMALENSS
-LATE AL
-UTC ( HTRR ÉTOES]
-ET LE YSTHERN
-NT 7 JA PAPE,
 | VERS RM
 | TANIR RE UE TA RAGE"
-EM: &ù "2H,
-V4 PRE ÿ 2.10) A RON NE
-LT | ; 10 TE 4 be + 54 r |
-Ar j401: : à OS re 44
-Are Nu DRE ANT" : à
-V'UENVE ( p: : 3 "ASE ENT
-LT AN RE 1 " à LATE
-1}; FR É i AR.
-. "AMIENS { è K),,,h 7 TRRNR PSS É
 : Mir Dis 13 T8 AOL TES f > . KE Mr | Arai Hr8
-DME AD: AC AROREEON SIENS RAS TRANS De 76: AAA NT + À
-RAC PS AT CRE 1 HE LAMQUNSE CARE A L
-k AR ; LOL. di EE x nor {ee +174
 
-1e 1,30)
-AE 5
-Le E
-Ne:
-is hs ‘à 4 4
-y à . nn F
 #°
 
 DR à te MA VAL AA SNPE NE D ANT Bu Uno QT 4 ? Maroc
-2 RM eN CAT RE A PARA DRE A UE DR
 OT on NE MAS RP ORAN MERE A PT A EE pat put
 AU OPANE EE PME PRES “ 4} OS NE Mise
-OR 2 NS k < LME ER
-LEE DFE HAE ÿ? { TITRE
-LAN INR MORE Li 4 VA Hay:
-BREST AI, { 1}
-AAA 1 LS SES
-D ANA à s7 H RARPAMAENGEDN 0
-h Pr AE TRUE Û fi ÿ EE) AN
-1e LAURE ALAN ONE da à SRATATE EMA M8 LAS ER
-5 "RE gr MAT SD ARE 1 ON CAE PACA Aa
 LL A PS f ut Yo fut KP ei ( RAS ;
-AUD AR 1 à SA À ANUS No 4}: SAMU AR
-RL EAN Cr AAA; RUN LRU APE
-2 EI, FSU
-1 ' '=
-
-METRE - te RAT r 7 ab PRES CA TAN Sn 0 0 ue AS
 
 A ED D AA ee LS UNE
 
-A O4, 0:
-
-LAN ROME LR PS CE re ES ECO ANS TE RE AT Re E Le -
-
 RS RAS D AR Pare SC MA a AU Re à DER À
 
-_ LAS ÉSARE ePNE a FE SR A A m2 D
- — k 2 M NS DFE RE
-
-Res ve $ ï = MEL D ICE MCE
-MR ee AS ; 3 PR, 01 RENE)
-
 - L'ÉRREES MES LT révur à Me Me UE.
-PR, Le ù 2h PE RMEME ERP à
-ETHERNET ë : è z == LORS
-D | SCENE
-AT EL: 4 Et
-LATE * | r\n EC NON SRE
-n 1: 2 MAP SL ERA < d ANT ER Dodge 0 La
-EU Le % ke EN s / à $ “ TT P:
 
-2e ARR ñ : + *S FAR
-ME. 7 HA UAORSSS
-1 CSN ARE 4 : MAIRE A US (1,
-d'LANREERS à Lé CU one ÿ
 fan PAT, Ÿ: RENE TE RES she KCEILAR e de, ne el PRIE TRE
 D RP A Led DU ei AE SR RE 1 CM ATARTS
 He ER RNA 2 RO La ODA RCE Page Mn :
 
 Rd OR ANR ER LS I MES un
-16 Hé ou
 Nous avons publié dans nos éditions antérieures et
 | dans nos cinq premières séries, 1900-1904, un si
 grand nombre de documents, de textes formant dosx siers, de renseignements et de commentaires; — un
@@ -151,72 +65,39 @@ Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-Il \
-
-À .
-LS æ R: AN EenEs
-
-We FO NÉ GRASSAEN 1E REA PA AN RE d'a
 EE A Ed Eee TOR EC AR ÉD NE ER AE ET
-IEEORES (rss “ A9 NN ES EN Te ë ET) RPM NAERES
 une idée, abrégée, mais complète, de nos éditions anté- PASS
 7 ieures et de nos cinq premières séries ; tout y est classé
 dans l'ordre ; il suffit de le lire pour trouver, à leur FAR
-LAISSES PANNES \ re
 place, | es références demandées. 24 LAN L
 : Ce catalogue, in-I18 grand jésus, forme un cahier AE)
 très épais de XI1+-/08 pages très denses, marqué cinq AE
 Jrancs ; ce cahier comptait comme premier cahier de la RS 1
 six ième série et nos abonnés l'ont reçu à sa date, le 2 S
-CLSUIIEES . “ DA AE
 2 octobre 1904, comme premier cahier de la sixième
 séri e; toute personne qui jusqu'au 31 décembre 1905 DE
 S'abot nat rétrospectivement à la sixième série le rece- AR
-RTE hs É Lg FRE
 vait, par le fait même de son abonnement, en tête de la ASE
 série; nous envoyons contre un mandat de cinq francs Se
 à t oute personne qui nous en fait la demande. HAN ES RES
-Den: 4 fx {= »
-Da pe ; SAS.
-RACE NE L - - > ;
-TT RE à
 
-D PAL SEE er .
 ESS & ANGES EE De Sr ee
-É RER MES TC PRS HSE PE RÉRE HÉRR R7E et 2
 Tate Sa RO AES Te PEN AS EN RE rez PORN AO ARE
-HS NN MES SRE TT ET RTE SRE 21 FLE RE Lol
-RER UNE D Es} LE DRASS HET CRE LE FSU MÉRE 27
 DbE ne LION te LR ALEX à RER ARR Fe de
-RAS NÉS HWSOTRCULRE TRUE RÉ NTEE TETE M7 |
 ANS AE ar LES LR - Lo DIR TT EST HAS D
 je D à PES & à RTE KEes TA FLE J
-RE 0 54 ee Le & nc, er RES ;
 é DE cle ter tri ñù : Æ È NES ÉTARRE LAN D os PE Ta:
 PS Ro dE Rrèx x à PUS PER & tee eva FA q
 Vire LES ES DE ; LR Er Sr
-Re er rte ie D a
-LL ARCAS RANCE T E RS ESS ï FA - CHR LÉ
-4 Ro De +4 ST MP SEE < ue 2 Ps ÉCRE ÿ#
 RE 2 n ce î TEST ns ne
-Ds." RO HS , ; TS se RE - ES >:
-Rs AL EE 22 TA ER BR
-DEN. PAUL 2 € VAE 2244 -#T MÉRIES LT DES
-FN aus RS 5 » . < DE
 Cor LL ei 2 M 2 PEUR Mar RS POÉS (es dE VS tp Ts]
-AE ANT A j RO ET S ET RS
 
 de nu à Ce
-RAP CR RSS Rte r ren D RUE LS AU A
 2 TE RE QE A PE AE ue AE EC ee mr NE
 __ DU MÈME AUTEUR Chr
-TRE : REA f ESS
 Mn. aux Cahiers de la Quinzaine HE
-PP ER EE Cr k ; RUNTER
-Flan PRES x e A LME TENUE
 en e 1 PVR Le présent petit index donne automati- LES HS |
 mn DA . quement pour tout volume et pour tout RS Le 4 rs
-1 TRE : . cahier indiqué : ; ER Fi
 ë “0 sc RE a) le numéro d'ordre de ce cahier dans RSR AT
 PES CRE le classement général de nos collections SA TE MERS
 LT NER complètes, le numéro d'ordre de la série
@@ -230,9 +111,7 @@ GE EE L 4 lire dix-septième cahier de la cinquième. BU A
 RE Ês ya : b) la date du bon à tirer, ou, à son dé- PRE
 a se MR faut, la date du fini d'imprimer, où, à son
 He CA 04 défaut, la date du cahier même; LÉ XES Pr
-2 4 Er iEtée TRES BU TNE Ce
 2 HR su FE e) le prix actuel; } Te Lx
-RU NN OV ; ea kel
 rive RAR d) quand il y a lieu, c'est-à-dire poux nos ÿ < % à
 EP (KA F7 éditions antérieures et pour nos cinq pre- >
 LS FA TNT mières séries, la page du catalogue ana- Mrs 2 nat
@@ -240,38 +119,15 @@ LS FA TNT mières séries, la page du catalogue ana- Mrs 2 nat
 ORPI catalogué. ” OMR LE
 us ss omain Rolland, — Aërt, — trois actes, — premier août Le ne: HS
 # cs un volume en voie d'épuisement.. sept francs 2 Ed RS |
-_ "2 ref 2 Tee | RIM Do
 | 5f5al — le Triomphe de la Raison, — trois actes, — 20 0c- FEAR
 _ lobre 1899, un volume en voie d'épuisement.............. MERE
 Ge née É à ae te dE”
-û Si à Er sept francs 2 Fa 5
 | — — Les Loups, — trois actes, — octobre 1898... 4
-LT FM Fee T0 ÉPUISÉ 3 FRONT Re
-— — Danton,—troi jeudi 7 févri Re
-= Do ,— trois actes, — (1-6, jeudi 7 février 19017, DR Fe
 un cahier épuisé, n'est plus mis en vente que dans les cok
-da! PA #7 5: z X ) EN
 lections complètes de la deuxième série............... 29 Se 1e
-ÉD" Léna
 
 | À
-(ii
 | k
-hi
-ki
-
-Hi |
-Fe |
-sl |
-
-ÉA
-H
-
-DU MEMI UR À
-
-à
-
-ai
 
 l Romain Rolland, — Aër!, - r août FE
 1898, un volume en voie déj pt fra Fi4
@@ -280,33 +136,14 @@ l Romain Rolland, — Aër!, - r août FE
 
 tobre 1899, un volume en voie d'éprsement î
 
-; j Li. ;
-; #5
-
-À
-
 |
-
-d 1 |
-
-ul
-
-t
-
-l
 
 | !
 
-4 t = SU SE (
-Lot DPF MURS
-ME FPE
-pa re En" NA x r
 s du même auteur "Vo.
 \ Romain Rolland, — une introduction à une Lettre inédite
 de Tolstoi, adressée à Romain Rolland (-9, samedi
-\ 2 JéPTIEr TOOL: 2 eee re te ee I OR LEO
 — — Le 14 juillet, action populaire, — trois actes, —
-(11, mardi 18 mars 1902................:,.. ÉPUISÉ 198
 — — Vies des hommes illustres, — Beethoven, avec le
 masque de Beethoven (IV-10, samedi 24 janvier 1903, un
 cahier épuisé, n'est plus mis en vente que dans les collections complètes de la quatrième série ................ 206
@@ -318,164 +155,71 @@ TO MMATSITYOD ns de 8 0e à etes ee ne sons TN SEE
 1903, un cahier épuisé, n'est plus mis en vente que dans
 les collections complètes de la cinquième série ..... 277
 — —  — — le même sous couverture Fischbather,
-quelques exemplaires .............. trois francs cinquante
 — — Jean-Christophe. — I. — L'aube (V-o, mardi 2 fé-
-crier 1904..................... trois francs cinquante 319
 — — Jean-Christophe. — 1. — L'aube;.— édition Ollendorff, en vente à la librairie des cahiers........"
-trois francs cinquante
 2 — — Jean-Christophe. — II. — Le matin; la mort de
-Jean-Michel; Otto; Minna (V-10, mardi 16 février 1904 : 2.
-trois francs cinquante 324
 — — Jean-Christophe. — IL. — Le matin, — édition
 Ollendorff, en vente à la librairie des cahiers ............
-trois franes cinquante
-VI k
 
-AIT AN APS E —— s sr SA
 ms. de. — CE PRES re Se $ à 2
-ATEN ASS Jean-Christop % di 10 janvier 1905, FK-FARES SR
 2 omain Rolland, — ER Ada (VI8, mardi cinquante Je
 LES Fo LL. — l'adolescent, CEA &
 FSU n-Christop ibrairie des ca inquante LÉ e PER
 D sente à la librairie trois francs cin. HOTTE É
-Ollen. loru, € : ÿ 2e
 Fe pes, : la vie de Michel- : LS
 HÉLÉRUSE à illustres, — la 06... De
-LISE es hommes i 26 juin 19 Pres
 ; #5 lutte (VIL18, mardi 26 j dep SA
-11e pr ME us FER
-CEE es illustres, i 16 octobre 1906... PNR.
 RARE ies des homm -2, Mardi I is francs NAN
-Hess cs — labdication (VII-2, re : CTP
 ne. à IV. — la révo F ‘21 VTC
-3 ÈS 4 rislop ee, — : Dre FOOBRLTSS re se Fe
 DT Jean ne à mardi 13 novem trois franes LR
-Sables mouvants ( : LR CRERS
-Da FE TT 2 < 2 — 2 — : Li
 LEE la révolte. — 1 TEE
-! LEURNNRR : AVES trois francs #
-D Tan-Chritophe. décembre 1906. 0
-VE -6, mardi 11 Ex, DE
-NE t (VIL:6, évolte. — 3. ;
 STRESS L _ HÈT roi LS e va
 e Fr . Jean-Christophe. di 2 janvier 1907. t = CPE.
 4 la' dé prance RTS révolte, Le ‘+ 4
 TRI ” # Christophe. — IV. ie des cahiers........ te FR
-a M — Jean- d librairi j inquan CCR
 — — la li francs ç V3
-: LÉO nte à trois CS
-_ Ollend orff, en fee j A |
-AR Re ù ss
-Ha " ce D:
-ge Te : LP $ MER
-FR 700 À , ESS
-FER MONA SUR
-ATOS HA
 
-UR
-FE
-ju
-Hi
-sl |
-Fi
-Fu
-He
-ki
-RE
-ti 4
-El e = à
-1H] ë
-fl
-6 i
-
-E
-x
-°&
-*
-ei >
-DE
-}
-Rom Rolla he
-Ole ï :
-Hi
-Sc s (VII 1
-V'enlisement (VI {;
-— — Jean-Ghristophe. — ;
 la‘ délivrance (VIU-g, mer IH
 — —dean-Christophe.
-Oller x vente à
--æ.
-a ERA
-} i
-: |
-L
 
 oo . on do ET ARCS SORA VE
 : AA cu PA RAM ER Rare ne UP ARE : :
 AR ce Gp ÉCRIRE GE en. |
-UE A Da A à PLU Lire Fr Ta AO RONA LE a OO 2 |
 ee LÉ HE Hat be Mes ne à :
-RÉÉAROES NON ENSE NE LATEST ME M US Ce RAA ge CHAN TERES
 D LACS NE RÉ, Parce AEERPE AE SAONE EA À PEU Axa Fi ” . ci |
 e Ro TERRES M LAS EE ME Lipr RTS Have NE DES L/LNUSG IS ARR
-jte a RAS PA LP TR
 . + pi SA Ne Se, pote CO 6 ;
-à ur AE RM Re ol ste FRE RS re
-D CURE peste : D US FES ROIS
-+ nn PA NU RAP i TAN eee ©
-DRoRe Lt RER PR ETEN AE VAT ES AU IC FUUATA TMC CES
-ee D
-. _ 1e pas x ; 5 EVENE REA A
- . anne en a
-si 11 NME ARTS UE OUT die 320 CUS |
 i … Ai AO 2 non SITE NC AU LAS : ae de
-A AR LT MAT QT PHASE
-DA A LINE 0 RAA AUES ANS Me US
 Re HR Ne Spor MU il STE en ER
-A as PACE
 
-RE D er denim ie
 PR nr ED SMS NE MIS ANTON à SMS
-nu TR OR NOTE LR EL | e CNE Re
-
-254 HS RENE #7 LEUR
 
 30 ote du gérant. — De ce petit index il résulte que
 
 220 Jean-Christophe se compose de quatre livres : : A:
 
-a ; EE".
-
 e F3 e premier livre, Yaube, formait le neuvième cahier
 
 _ de la cinquième série; marqué deux francs, ce cahier LES
 
-_ se vend aujourd'hui trois francs cinquante; RARE A
 “VAN Le deuxième livre, le matin, formäit le dixième cahier RUE
 
 _ de la cinquième série; marqué deux francs, ce cahier se
-Fi aujourd'hui trois francs cinquante ; PR |
 
 | Le troisième livre, l'adolescent, formait le huitième
 
 & cahier de la sixième série; marqué trois francs cin- Ï F5
 
 quai ile, ce cahier se vend aujourd'hui trois francs cin- PT
-ÿ MR andre CAES?
 
 Le quatrième livre, la révolte, se composait lui-même
 
 de trois parties qui formaient respectivement trois PS:
 
-FYPUTE FH rat ;
-
-_ cahiers : PRE:
 … La première partie de ce quatrième livre, Sables RAT ©
 M: _mouvants, Jformait le quatrième cahier de la huitième PSS
 
-Pop ASSET D . D . Re à Le
 _ série; marqué trois francs, ce cahier se vend aujourd'hui ARE: d
-_ trois francs; ! À . PAPE
 
 rl | La deuxième partie de ce quatrième livre, l'enlisement, AU si
 
@@ -483,87 +227,54 @@ _ forn ait le sixième cahier de la huitième série; marqué
 
 _ trois "ancs, ce cahier se vend aujourd'hui trois francs; DA
 
-fa: < Re PAT RS IX à Paris. —r re + es
-SATA RH TSE E* # 4 M? Er ALES
-
-BR tee Fe D ©
-M Le
 treizième cahier de la neuvième série }
 La troisième partie de ce quatrième livre, la délivrance,
 Jormait le neuvième cahier de la huitième série; marqué
 trois francs, ce cahier se vend aujourd'hui trois francs.
 > Ainsi publié en six cahiers pour les quatre livres, le
 y Jean-Christophe est un ouvrage complet. Nous rappelons
-PE . 0 L
 que cette édition du Jean-Christophe dans les cahiers
 en est la première édition; qu'elle en est l'édition com
 ie plète ; qu'elle en est la seule édition complète; qw'elle a
 été tirée à un petit nombre d'exemplaires; qu'elle ne
 sera pas réimprimée. Je crois devoir ajouter qu'il ne
 nous en reste aujourd'hui qu'un très petit nombre
-è d'exemplaires. ; :
 Dans l'édition Ollendorff, qui est une édition de grand Ë
 : public, le Jean-Christophe ne forme que quatre ;
 volumes, soit un volume par livre : k
 Premier volume, le premier livre, l'aube, un volume F
-à trois francs cinquante; :
 | Deuxième volume, le deuxième livre, le matin, un
-volume à trois francs cinquante; }
 Troisième volume, le troisième livre, l'adolescent, un |
-bia volume à trois francs cinquante; Fie
 Quatrième volume, et dernier, le quatrième livre, et
 | dernier, la révolte, un volume à trois francs cinquante.
 Non seulement ces quatre volumes de l'édition Ollen-
 / dorff sont en vente à la librairie des cahiers; mais ROUS
-x » es
 
-: ST TN EDR DEN AR SN TEL SEL VE PR PA EC SR
-RAR NOTE pu GÉRANTS 66 SR se SU
 demandons naturellement à nos amis et à nos abonnés Rte
-DRE Pa AN à É 2 . NSE
 _ de continuer à se pourvoir de ces volumes, autant qu'ils à
-en auront besoin, en adressant leurs commandes à <$
 re [. André Bourgeois à la librairie des cahiers. ei
 Fa _ Le Jean-Christophe, qui forme un premier ouvrage, Lt
 … est ainsi achevé dans ces deux éditions. À $
-LME RE
-D: tr &
 | Avec le présent cahier commence un deuxième ou- SD:
 _ vrage, intitulé Jean-Christophe à Paris. 4
 RU. Ce nouvel ouvrage se composera lui-même de deux EN
 5 livres séparés par un épisode : À
 PREMIER LIVRE : La Foire sur la Place, treizième et 1e À
 es quatorzième cahiers de la neuvième série; bas
-DE, à 1,
-D - Antoinette, ‘4
 a _ ÉPISODE, quinzième cahier de la neuvième série; ; À
-Ar” FR
 _ Deuxième ivre : Dans la Maison, cahiers à paraître ù &
 _ dans la dixième série. à ë
-LATE TR 2e
-SR:
 . Pour ce Jean-Christophe à Paris comme pour le Jean- À ue
-Q APE 5 F CPE | > A"
 Christophe il « a été bien entendu que cette édition des rs
 | cahiers en est la première édition; qu'elle en est une 4
-Len: 1 0 PE] .
 édition complète; qu'elle en est la seule édition com- A,
 GP plète; qu'elle est tirée à un petit nombre d'exemplaires ; 59
 … qu'elle ne sera pas réimprimée. ;
-:" F'AMÈNEES +R
-L' L'ART re Ve L
 
-; |
-RRRERELS .
 | | tr n vièmme €
 
 #31
-ait
-H
-Hal
-ti »
 
-LA y
 |
 
 |
@@ -572,29 +283,11 @@ LA y
 
 il
 
-F
-
 treizième cahier de la neuvième série |
 
 Enfin en méme temps que le présent cahier paraît
 chez Hachette un volume de critique musicale intitulé |
 Musiciens d'aujourd'hui. Sommaire de ce volume :
-
-1. — Berlioz; |
-
-2. — Wagner : Siegfried; |
-
-BH —  — Tristan;
-
-4. — Camille Saint-Saëns;
-
-5. — Vincent d'Indy;
-
-6. — Richard Strauss;
-
-7. — Hugo Wolf;
-
-8. — Dom Lorenzo Perosi;
 
 9. — Musique française et musique allemande;
 
@@ -602,72 +295,23 @@ BH —  — Tristan;
 
 11. — Le Renouveau : Esquisse du mouvement musical
 
-à Paris depuis 1870.
-
 un volume à trois francs cinquante, en vente à la
 librairie des cahiers.
 
 RTS ERP TRS EU en LA Des MS ANS PES PET
-: Sn M PART VE TE Aa RS OUTRE CAS ATEN ele
-EPS DS EN GS ES HR RE NEA PET AE #
 À AR MR EE QU ee Vent PA ARR TP ne F AUS rs
 Pise CRT <a Er TON CEE AC Tes Es MERE 4 Es
 ; Le ITR QE Potete te PRE SE PER CE De Pt u CI RES ET RE
-Là EP PR RO UV AE ARE CNT TS AR AU NPD IYRETRRT OU
 2 1 MRC RE PRE RS TR M ri le
 D ere MCE JE CITES
-M : ; î #8 LOC
-: LHC RU eee
-APÉEER A = LIVE MARRON
-7 SP y 5 SPORE
 ere A2E Le EURE £ & RTS RECENT
-D à | aie
-SE ONE St re ” - Are BUESa Ans *:te
-LATE LITE
-Re deu 1 É PTE
-141 21 METRE he d IPN RER
-TENUE : j AO Ur,
-è TR SÈ 2 : PROD AE 2: ei”
 Eèues DES Men Aus Pret
-USÉES Date M : Dan rec TR
-LI PRES : » AY UPS RAS
-LL SERIES u A + 6 SAR
-A - , F DER I KES TIRE
-MATE y ' $ “4 ‘TETE
-ae € He ! | Ka à “145 ee) "sn
-NAME ñ {Hon f3 PANASRNIE ES
-1 IL ORENMANMANE EUR CES LV ARS HS RE
-1: DIS PONNNIEMRNES (4 RENE NES RE
 
 | ÉCRIN 7 - “ RE PR ON 0:
 
-! L'MOPNNPErENR % * È AE + EEE
-Sr TS SU DT PRES CAD PR Ce ES FA CEE ep 190 2027 TOUS CORRE
 es An) er Che ARE AE Le NE MRC a A SC AUS Ds RAA TE
-LE MESSE SEE SAT Le RACE ARE
-
-RARES \DEUT SATA 2 EE ER PÉRCAIET EE MST LA .
-
-ER ST RENTE PART CNR CATE LEA se
-ONE “AS DRE TU HAN À ALT RAS, Qure OP SE HE ON ;
-RON A NE SRE AR PE ARCS ETES CUS SET ERES
-LEE OU NS SENS NE : LANCER SRE
 
 NS EEE Pepe } TANT CESSE
-re NES re A UPS ER
-
-SL TNA A / LEE (TE
-
-AC CE : * +. 1 ENTER
-
-A 9 5 Te DRE.
-NE SS : t LME
-“IRON LA : EYES
-19, RTE Ve: à . 4 d
-A, ASE te Ê HAUSSE
-ANA NN AT ENT sg OR QU
-
-LR DAC RE aix pr te PSP ARS
 
 Note de l'auteur. — Ayant conscience de m'adresser
 dans ces éditions des Cahiers à des amis de longue
@@ -681,184 +325,56 @@ projets plus libres et plus complets, que je me réserve
 de resserrer, après les avoir vus exposés au grand
 air. — Romain Rolland.
 
-'
-
 se sun RE ete TUE À Lo DE
-M EN NN Cru. E
-PTE: NT En ET 2 ADN) D APS FRE Re UE CDS SC
-5 DER ECS RES TP ARS. VUE RON STE 3 MTS NS MT RS |
-DE Fo ANR nn Es ASS TE PAPAS RARE HMÉETPEE
-ET. PR SEE STATE YA & NT ACE HR ONE NT dd {FACE |
-RES sr S PRE DR RE RU d'a MEME SLT USERS à
 NC AOE ES et FES ee : PE Ar 7 eee PR ER Net Lo
-GY tr (et 23 on + £ A Sr « di. - 7. HO LE Fe gta = SE ar .
-Rs EU RE) EU EE MS re “Ten STRESS EN
-RS 5 SENS RCE DOTE MR Rs
-PINS SRE NUE | 1 ASE
-nn. UR Rg SE G : RS APR à
-7 PRE RU ES 1  1ÈRe “EN
-HARAS © DENAORE ARC RES , THREE HOT:
-LÉ D + ‘SENf £ Re
-Aa ANTON ; : { r APTE
-Fe CNE A y RÉCTAS.. E LME SOURNNERES
 CARAES d: RS LE le? ART AP TA RES Pa ASE Re Ra Rue ji
-RE TE SR Rd RARE RRENe PO ÉTÉ QE
-SET M US RARES Fret der Ale Tab PAPER LS ME EPS
-+ 0 SPORE NON PL ARE MVL A SEE A Er RATS
-A CRE 0 en = OS FRS ASE ER
 
-DRIVE RP ENS Rétro LEE CT
 A ere de cou. ae Mr L.
 5 : Br ES VAE Por ee > y. HER de TRS RATE LP
-AE it Sn ee ES ere dnre 2 ARE DL
-RE DU SE SCD NAT ANT ES FU. ERA QU CURE
 ee 2 SC ANEN PR & ERA NES ve ne
-RE : 210 EE = $- à AE à nt PA
-TENUE RE ET FL RG SA
 Fred SA - ET à RADAR * st
-CHE l'age FE » SRE ET + 2:
-D ALES e : Me Te ÈS EE
-D Au cran |! LESC
-Fe FREE FE, RMS 2 TI
-ERA US (0 - LARR EC AEE CAS
-Eu A rep ART ps ePRar x ane
-LITE Œ à ANIME DA: ETES
 PASS dr: ne FM REED RER de
-: Fes ROMA EE Re
 : LE FEU : ET nd + à 2 DE ee CEE
-“le RE A : LE PERS SE CUT,
 w? Te Sail gr Et Le Es
-“E AN "9 FOR ou 7 2 HAE D. ee > k
 L'AIR rer ANR |, AUS rt
-ET CRT at à SRE ‘mA PS 0
-Lt IST CETNE j ë : £ Dec RTE ri
-TIR TRE ; CES +4 UE FR: QUE.
 Me: PE ni DR en g 2 Me ee PTS e sh SALSA ee PIN) Ses ps
 | SRE TRAIT TENUE HS er as AT RE À A ÉINE ES ne
-Mi à D PQ TR 4.2; HOT RRFONSR
-FAR Re 1e Re a NC pee D TR D
-TU ARS + Nr ZT LERriE
-1: SA SLAM LA
-
-D NRA da Aie A Re CARRE
-
-DAS AU LUE A RSA PET ET MN DE EN DL à SRHEETT IN AE
-
-à RE PR À AS NA ANE LAN D A SAGE LIRN UT ENTREE
-
-A UP ES TE MAN Ge CAE M Re D AL PSS RUES SES RO ET
-
-b noue te AA TARN
-
-NET A NT TN A CR SENTE HR MIS ALES ES a LE PSE ANSE ER ROUE oh
-
-LAON LENS PCR AREAS ETS RO SPA DES dRÉCRS LI ONE ER
-
-1 LR ESS STE ANSE RE Re Ang LE IL AO PINS NRA
-
-RARE VERSER AS ; LS PR R EN ET NE FR TRUE ER
-
-ONE RTE EC PAS È 5 4 NUL SN NUS LME 3
-
-Fa RENE EN PAGES ESS 5 A 5) dE NTENTE f
-
-AVAST ES AMRANRS Ÿ F ; ù AAC d'HES nt
-
-NEA ES EE } 2 1, CUP
-
-“us far 2 ER AS à ë RP a >
-
-LL CNE : 0 CNRS
-
-PEER ANRT AENATN NErpau } $ AR"
-
-PRRLETUES Ar Robe ei 7 € ; APS 2 At ENT
-
-DA 5 4 RAR |:
-
-CR TNT à DUT NOIRE
-
-JR EUNT NS Re
 
 DAT LE fi LA L'EXTNONENSS
-1) ARR ES / Nec 2 : [ist ORENS ASE y .
-
-1 Le A A Dies 1 Pa £ î A 10 dre 4 LS
-
-F0 NOR OS EE EN EER ARR UNE AE
 
 és NS PO RECU A SAR NA SE CE CA IE M Het
-
-DIALOGUE DE L'AUTEUR
-AVEC SON OMBRE
-
-LA TARA AT PSN RETENIR AU DRE PO ENIE ne "M \2
 
 RO Re LR LR WON ANR A on En Ve
 VC PRO ROMAN PES ENSEDN MES A ANR SE ne er QE
 
 et GRAS Un PAR NME DANS pr à Net AE, LE ET NE Re
 ne j Ne AN mad LOIRE SU PR Ne FRERE
-APS NUE Rte Me 1115 RCE ARS
 DM ee de # + ee M UP
-+ LANONTRONR Er “à Ë nu PROS
-LE Me Pr AN V } } TE MATE NE
-MCE ONE IPEIRS À È à à 1 1 ASIN
-CAO A CNP ROSE . LOT CSSOSRENES
-SP EE ES LRONDE ASSOCIES pare LORS
-PARENT SEE M
-RE me our LHC
 Pre LOT ARTS Kg ÿ : à S DAC SON AT. Se
 ANNE NU NE Vie ÉACSeTOAREEEE
-D ARLES CELSES 102
-HEAR RUES ‘ DE f TRES ES
-CIS CPR ue DR
-TA ANRT à 17. LS 22e
-Le +. FE RNAENE
-HAMSTER. à "1 ML ©.
-(ISERE TEE :;: | TENSIONS
-1 TPE AUS RARES 114800 ET |
-AN TAPER » ; . MUTE Ets À
-4 WE fs : ; “æ À re UE ‘te ” 4
-
-w ete # e vé &h £ » " 3. é L/ SEULS À, 4 LITE "Vite
-D nu nibes ra
 
 RD ARE id AT LE QE LT EL NE NA NU “NES
 
-IT VPN. TR RS
-
-DIALOGUE DE L'AUTEUR
-AVEC SON OMBRE
-MOI
 Décidément, c'est une gageure, Christophe? Tu as
 entrepris de me brouiller avec le monde entier?
-CHRISTOPHE
 Ne fais donc pas l'éionné. Dès le premier instant,
 tu savais où je te menais.
-MOI ÿ
 Tu critiques trop de choses. Tu irrites tes ennemis,
 et tu troubles tes amis. Quand quelque chose va mal
 dans une maison convenable, ne sais-tu pas qu'il est de
 bon goût de ne pas en parler?
-CHRISTOPHE
 Qu''y faire? Je n'ai point de goût.
-MOI
 Je le sais : tu es un Huron. Maladroit! Ils te feront
 passer pour l'ennemi de tout le monde. Déjà, dans ton
 pays, tu l'es acquis la réputation d'être un anti-Allemand. Tu te feras, dans le mien, celle d'être un antiXXI
 
 dialogue de l'auteur Ar ne
-: ' io 34 RENTAL RE
 : Français, ou — ce qui est plus grave — d'être un anti #
 sémite. Prends garde. Ne parle point des Juifs... Ke ge
 Ils t'ont fait trop de bien pour en dire du mal. 1
-CHRISTOPHE ; 1
 Pourquoi n'en dirais-je pas tout le bien et tout le mal |
 que j'en pense ? * ES
-MOI à
 Tu en dis surtout le mal. FR
-CHRISTOPHE : s#
 Le bien viendra ensuite. Dois-je les ménager plus que ë& À
 les chrétiens ? Si je leur fais bonne mesure, c'est qu'ils 0e
 en valent la peine. Je leur dois une place d'honneur,
@@ -878,12 +394,7 @@ trahissent les destinées de leur peuple. Les combattre, À
 c'est prendre le parti de leur peuple contre eux, de . ie
 même qu'en attaquant les Français corrompus, c'est la  "\
 France que je défends. f
-. |
-XXII SEA]
 
-nn : ;
-PLASMA AVEC SON OMBRE $
-PSS, MOI è j
 Mon garçon, tu te mêéles de ce qui ne te regarde pas.
 Souviens-toi de la femme de Sg'anarelle, qui veut être
 rossée. « Entre l'arbre et le doigt... » Les affaires
@@ -891,16 +402,13 @@ d'Israël ne sont pas les nôtres. Et quant à celles de la ée
 $ France, la France est comme Martine. Elle consent à
 étre battue; mais elle n'admet point qu'on lui dise
 qu'elle l'est.
-f CHRISTOPHE
 Il faut pourtant lui dire la vérité, et d'autant plus
 | qu'on l'aime. Qui la dira, si ce n'est moi, — et ce fou de
 Péguy? — Ce ne sera pas toi. Vous étes tous liés entre
 vous par des relations de société, des égards, des scrupules. Moi, je n'ai pas de liens, je ne suis pas de votre é
 monde. Je n'ai jamais fait partie d'aucune de vos coteries, d'aucune de vos querelles. Je ne suis pas forcé de à
 Jaire chorus avec vous, ou d'étre complice de votre silence.
-, MOI
 Tu es un étranger.
-CHRISTOPHE
 Oui, l'on dira, n'est-ce pas ? qu'un musicien allemand
 na pas le droit de vous juger et ne saurait vous com- :
 prendre ? — Bon, je me trompe peut-être. Mais du moins,
@@ -911,53 +419,27 @@ grands parmi nos amis morts, et parmi les vivants. —
 d'étre connues ; et elles peuvent vous servir. Cela vaudra
 toujours mieux pour vous que de vous persuader,
 comme vous le faites, que tout le monde vous admire,
-XXI Ë
 
-fi
-SE
 il I
 |
-fi
-É2 , Sais tou
-fi désintére:
 HR du mieu 4:
 FE on
-sl I is
-pi !
-DE s. Lu
-He Li)
-pe lé
-Fi
-+
 
 |_+E
-" 4 { { 1
-w Le” J
-- À “E ES
-ts fr 0 Re À se remettent à
 …. FES » peine, déjà. Je
 Ecse re seux qui les
 EE: Len est d'autres
 # F5 n'orit pas leur
 Le ion, — d'autres
-41 issance d'illusion k
-ouffrent, ceux-là ! À
 s avons souffert! Et À
-F voyions s'amasser, Ï
-— respirant à peine... ÿ
 —- - nées ensemble. Ils ne
-LL laisserions se traîner à 1
 EF: s, sans leur tendre la
 = ns point. Nous |
 parler pour eux. 4
 L de montrer la
-France profonde :
 toute foi, de tout EX à
 wdent la porte de la Fi
 3 uer son apathie, et à
-Paris. — 2 ‘4
-ÿ
-. k
 
 æ dialogue de l'auteur * OISE ne À
 et de vous admirer vous-méêmes, — ou de vous dénigrer, TA
@@ -975,10 +457,8 @@ chevillée au corps de cette race qui ne veut pas mourir, À
 peut et doit hardiment mettre à nu ses vices et ses ridi- ;
 cules, afin de les combattre, — afin de combattre sur- ES
 _ tout ceux qui les exploitent et qui en vivent. ‘A
-MOI È
 Ne touche pas à la France, même pour la défendre.
 * Tu troubles les braves gens. ; à
-CHRISTOPHE | à À
 Les braves gens, — oui, sans doute, — les braves +3)
 gens, à qui cela fait de la peine qu'on ne trouve pas TA
 tout très bien, qu'on leur montre tant de choses tristes HR ù
@@ -990,8 +470,6 @@ victimes. Ils veulent qu'on leur répète, au moins une Er
 le leure des nations, et que QE
 À « tu resteras, 6 France, la première. » : à
 
-Re |
-a
 RAA ed _ AVEC SON OMBRE j
 ET: Après quoi, les braves gens rassurés se remettent à
 _ dormir, — et les autres à faire leurs affaires. Bonnes
@@ -1023,100 +501,48 @@ vraie France, la France opprimée, la France profonde : \
 sang. — Mais pour arriver à elle, il faut d'abord faire
 une trouée à travers ceux qui gardent la porte de la
 maison. Puisse la belle captive secouer son apathie, et
-XXV à Paris. — 3 |
-Li ,
 
 ou. Rs
 j dialogue de l'auteur ir: TON CURE
 renverser enfin les\murs de sa prison! Elle ne se doute
 point de sa force, et de la médiocrité de ses adversaires. ë
-MOI A
 Tu as raison, mon âme. Mais, quoi que tu fasses, +
 prends garde de hair. 4
-CHRISTOPHE ‘4
 Je n'ai aucune haine. Même quand je pense aux plus 1"
 méchants des hommes, je sais bien qu'ils sont des hommes, ;
 qui souffrent comme nous, et qui mourront, un jour.
 Mais je dois les combattre. à
-MOI 4
 Lutter, c'est faire le mal, méme pour faire le bien.
 La peine qu'on risque de faire à un seul étre vivant
 vaut-elle le bien qu'on se promet de faire à ces belles …
-idoles : « l'art » — ou « l'humanité » ? #5
-‘à
-CHRISTOPHE Le
 Si tu penses cela, renonce à l'art, et renonce à moi- f a
-même. | ‘4
 MOI ns.
-F
 Non, ne me laisse pas! Que deviendrais-je sans toi?
 — Mais quand viendra la paix ?
-x CHRISTOPHE SE
 Quand tu l'auras gagnée. Bientôt. bientôt. Regarde
 déjà passer au-dessus de nos têtes l'hirondelle du printemps. Ç
-KXVI ‘ ‘à
-A
-x
 
-LA TUNER Sa 1 # 2
-LUE 1 AVEC SON OMBRE
-PU MOI
-LE ETIENNE EE RE DE OCR 2 PE
-lot r— EEE
-£ EP ST)
-
-À l [EN $
 La dei k-vm-de ne-se -qe-ie de dE CEA ;
-“STE N
 |
 RD PT CRT CIS LE RTE Étant
-AC ESPN OO
-TS PEN ER AN PEL 07 PASS ES
-]
-Elune, 1e Lay vue =
-(Bras e
-CHRISTOPHE
 Ne réve point, donne-moi la main, viens.
-MOI
 - Il faut bien que je te suive, mon ombre.
-CHRISTOPHE
 Lequel de nous deux est l'ombre de l'autre ?
-MOI
 Comme tu as grandi ! Je ne te reconnais plus.
-CHRISTOPHE
 C'est le soleil qui descend.
-MOI
 Je t'aimais mieux, enfant.
-CHRISTOPHE
 Allons! nous n'avons plus que quelques heures de jour.
-RoMAIN RoLLAND
-b - 17 Mars 1
 7 98
 
 PT RTS ot DA D ME D LM Tu
 PNR CU AS CRI nr et
-SRE Er et M 0h Li PEN AE SIT TUE A IÉATONÉESEE
 Me CE RSR PES RE Pc US en RSA
-PU LE PE ES US PP RC ONE CR EST RE € TOR, AR MR A ee
-He INT Ress UN EU VASE TAN PE NES ME Mn 5
-LATE OUT E SAT EEE ASUS à AN Ur LE) ÉOÉENRRES)
-RE | ; 1 $ D SR à, PE
-PAR UE ” CSSS
-TE TPE : à ER 0
-A CHR po - DR Lee RES
-Er. 5 LL TT
-EL SES DRE RO
-rs y. 2 L . 4 sr 7 +248 À A
-ns nd: : ; #È Deere ARE
-DNS ne BASE \ é ; z 2RIÈERRE. LES Ne j
-ENT MA Es 7 SARA T 511207 LAS SCERERRRRSE
 PR AR US ss LEA É sai TP MR NT CE EEE
 CPR En PRSRPERR LE LE ET ide
 
 Jean-Christophe à Paris
 |! à Paris, — 2.
 
-La
 | ‘
 | PREMIER LIVRE. — la Foire sur la Place;
 | Antoinette, épisode;
@@ -1128,179 +554,49 @@ La
 |
 |
 
-\
 |
-Vs PS
-À
 
-y
-ti
-É
-Î
-DA L-
-Î A
-k
-fl
-L1
-
-Fe
-4 :
-: n L
-là
-À KW
 | |
-D
-‘
 
 | . A fi
 | pe
 
-SR DUT RE AR PDT Abe 0
-
 A ae AREA TES RAR De Loi
-
-LE M OMS ÉTERNEL PERSO RCE ES RES RE
-
-SE TR M Ter SU Re at PNR TEREE
 
 AE se RNA A ON ETA DONS MERE HN
 
 PR NAN AT le Se RERO PEN A
 
-S So LE PE RETURN CRTC RE EC TRUE SR PE PS /
-
 NS DES ob Rae MANS OA NU CORTE RTE UT ANNE FETE :
 
-ins AE AT ER RER Re" See ee
-
-HAN de * S ; 2, NES NE
-
-A He BR. £ FA CE SONORE 1% cé
-
-A LE NT Re ; > 2? L'NT R RRe
-
 Pr out SEA RSREORES } : MR De
-
-PACS SC EPST RTE 4 4 $ - + 1 {LR PS EEE te
-
-PS PARENT (ex. NA
-
-SET TENC RE lee < MR
-
-Te 2 er ae
-
-RACE ê L 71 SOON
-
-TRE Re Se Pur FREE
-
-CFA MEN Ê * LL NERF
-
-SRE SN ; TFUE =
-
-Ai Le ES # 7 C2
-
-Der He be PEUT
-
-a ne 7 D
-
-0) PES 3 Æ A
-
-CR D RO SA : LAN Eu GE DT OR
-
-SE RDS AS FRTANTE x x OUT NE 7 OR ve CAT AA
-RARES LS À RC ERA NA Ur 2 gi 4
 
 .
 PREMIER LIVRE. — la Foire sur la Place;
 Antoinette, épisode;
 DEUXIÈME LIVRE. — Dans la Maison.
 
-(
-y
-[e
-ail
-Ë
-Fi
-si
-ii .
-F4
-fi
 il
-Kit
-tH
-fl
 
-— A,
-Lore *
-“ e
-Lt
-LL
 | |
 Ë PREMIER LIVRE. — la Foire Place; | +
 1 DEUXIÈME LIVRE. — Dans la Ma ! ». # ARS
-\Læ 2 ER . 4 « La /
-Re S 2%. 4 /
-Re à FE. à | #” vd 4
-; d
-r ë >”
-F L Pa
-} * #
-F FM
 
 Fac Riu OP SEM NE RES SE EE
 
 AN D A at Fa de PUS MR DETTE CA
 
-Pt PE RTE ES NAN RS A INR NUE TO
-
 Re SR AC AN Pro O ne SOC ARE SM RRARANSE
 
-ATRARC HR Pa APR RE LES LS te AR ES OPA. FERRER
-
-RT SAMERE VE SSe RON MORTE À SONIA 0 IN CNE
-
-RU Vin 7 M ST TC |
-
-RP Ce 5 2 ; RATÉ LE
-
-HSE LENS à # ù LS Fr. SERRES RATE
-
-LA TSe PT k Le ST CPE OP ESS
-
-PS NE CS x È Ÿ È TE : Fr RSR »
 DE Er: E à RACE Se ès
-
-TESTS LL COS
-
-PRES TRE LE SENS LES à :
-
-MEL 70 PERS Ê J TONER
 
 ee ETS Et + ps ste EMEA >< -
 
-MP + j | D
-
 rte EN ; : ss de
-
-RCE M
-
-RS en > YA TEA LPO Pete ©
-
-FN ACER 1 | IN POSE
 
 RU PRMAUPE CAD LU > mA à ? L he OCR
 
-LE < DRM ee à 1 GA k RS 7,
-
-RS ru #11, 8 NIRSESRRENEARES
-
-PREMIER LIVRE
-EA FOIRE SUR LA PLACE
-
-Re NP RSR GE EN ARE dr PAS APE CORADA NN", 7
-PMU NE SAONE SU NN EE LA ORON D NE PONS EN ee
 A ten es CU Ur PE ET tr 1 APN DEA VON
-MS RAM Se sm DL AA NUE 2e ARR OPUS ET HET CL CT A NES LETTRES
 pe LT SON D nn
 SR SE Ne AR AT al MÉRONRE PIE A SOA RE
 
@@ -1308,22 +604,12 @@ oies PR ASE TN CRAN ET EE UE 1 SÉRRRE
 ne es à DEN SN Pen e Re ONE DRE SCANS SEE A J j SCRPRE ï
 He FM PO EN Ten pens Ver ve SRE ET NUS PR DAS
 et Rue SR ENRE E
-Le CRETE AT LL, F MON EPP
-ARTE FAT A
-LAN Ne > CT TONER
 A AT US LE ns À 4 LAGERNES
 en ! LATE LEE L
-
-+ LR a FENTE LIRE
-
-QE Se f À SORTE
 
 Fe ET ER r is nt CRT ES
 Fe ADP AE DES OT PME RO PO à re hr FUNNPRREES
 
-PE APTE Pa MONET, MORE ER ENT: LES +) ET ol . AS
-
-TRS “E ei
 ; Le désordre dans l'ordre. Des discussions aigres. Des ;
 employés de chemin de fer débraillés et familiers. Des :
 voyageurs qui protestaient contre le règlement, tout en
@@ -1346,9 +632,7 @@ _ filet, pour l'agacement de ses voisins, qu'avec sa maladresse ordinaire il heu
 |  retournait vers ses compagnons de voyage, quêtant un
 _ regard qui lui permit d'engager la conversation, de
 À ; demander où l'on était. Mais ils sommeillaient, ou ils
-(4
 
-$ HENRI f AE Es PPS ENCOSS LEUR IUT TARN 3
 Jean-Christophe à Paris. TETE SA
 faisaient semblant, l'air renfrognés et ennuyés, affectant a
 F de ne pas le voir: aucun ne faisait un mouvement pour OT
@@ -1416,7 +700,6 @@ et emporté par le courant. Il descendit le boulevard de :
 4 Strasbourg, ne voyant rien, se jetant gauchement contre :
 “le s passants. Il n'avait pas mangé depuis le matin, Les
 | | ca fés qu'il rencontrait à chaque pas l'intimidaient et le
-ORAL 9 à Paris. — 3
 
 Jean-Christophe à Paris SE
 dégoûtaient, à cause de la foule qui y était entassée. Il *
@@ -1448,9 +731,7 @@ faire relever; la malheureuse bête, étranglée par ses |
 sangles, s'agitait, et retombait lamentablement, immobile, comme morte. Ce spectacle banal fut pour Chris- … .
 tophe la goutte d'eau qui fait déborder l'âme. Les".
 convulsions de cet être misérable au milieu des regards “a us
-; 10 À
 
-LT NS NN SE S
 Ega LA FOIRE SUR LA PLACE
 indifférents lui firent sentir avec une telle angoisse son à
 _ propre néant parmi ces milliers d'êtres, — la répulsion,
@@ -1468,7 +749,6 @@ aurait-il pu voir chez quelques-uns, — mêlée sans doute
 Vi à un peu &ironie parisienne pour le ridicule qilya ,
 dans toute douleur naïve qui s'étale, — une compassion
 | fraternelle. Mais il ne voyait plus rien : ses pleurs À
-j laveuglaient.
 } Il se trouva sur une place, près d'une grande fontaine.
 { Il y baïgna ses mains, il y plongea sa figure. Un petit
 “ marchand de journaux le regardait faire curieusement,
@@ -1484,10 +764,7 @@ suffi pour rouvrir la source des larmes. IL était épuisé.
 “. ment perdu : — il avait oublié jusqu'au nom de la rue
 où il habitait.
 4 . I rentra dans son infâme logis. A jeun, les yeux brû-
-\ ‘#4
-SR
 
-j Jean-Ghristophe à Paris 24 FRET
 lants, le cœur et le corps courbaturés, il s'affaissa sur
 une chaise, dans un coin de sa chambre; ilyresta deux |
 heures, incapable de bouger. Enfin il s'arracha à cette  \
@@ -1520,10 +797,7 @@ où le vieux avait noté ses naïves réflexions. Cette Bible
 prenait souvent, pendant ses longues insomnies, conver- nr s
 sant avec elle, plutôt qu'il ne la lisait. Elle était encore 4
 ouverte sur son lit, pendant sa dernière maladie, et elle
-\ L 18
-D
 
-en ares
 £ Mia ait tenu compagnie jusqu'à l'heure de la mort,
 
 É _ com e elle avait tenu déjà compagnie à son père. Un PRES
@@ -1552,7 +826,6 @@ _ Quand Je dis : Mon lit me consolera, le repos assou- »  pira ma plainte, — 
 74h Tout revient au même : Dieu afflige le juste aussi ;
 bien que le méchant... "
 | Qui me tue! Je ne laisserai pas d'espérer en lui. |
-HEAIEN
 
 Dir. eœurs vulgaires ne peuvent comprendre le bien- N
 | LE malheureux, de cette tristesse sans bornes.
@@ -1564,9 +837,6 @@ Le qui détruit irrémédiablement l'âme, c'est la médiocrité Ù
 | mesquine, sans force pour se détacher du plaisir perdu,
 
 AR SAS ee ee DE MUR
-At CRE SEE RUE DA AE FRE FE. STORE KR
-RE ART RE Dis to phe à Paris
-Fe) \ Te AURA REEN A OA A EE A SR £
 et prête secrètement à tous les avilissem ents pour un
 Ps _ plaisir nouveau. Christophe était ranimé par là pre
 Aa _ souffle, qui montait du vieux livre : le soufile di Sinaï,
@@ -1581,14 +851,7 @@ k en face. Le découragement était parti; il ne lui restait
 DT Quand Dieu me tuerait, je ne laisserais pas d espérer |
 en lui. ‘er
 HE Il se leva, et commença la lutte, avec tranq aillité.
-Laei At
-ro JAYEE PRES
-a ts \ \ \ ti MAcA
-it |
-; + | GENE AREEES
-LENT OER :' S ui Ë
 
-Re ris
 - Il décida, le matin même, de faire les premières dé- Ar
 marches. Il connaissait deux seules personnes à Paris,
 deux jeunes gens de son pays : son ancien ami, Otto
@@ -1624,8 +887,6 @@ tours à Christophe, qui l'étrillait en échange, quand il
 #: voyait le piège où il était tombé. Kohn ne se défendait
 ; pas; il se laissait rouler, et frotter la figure dans la
 
-;: CR 15
-
 ; Jean-Christophe à Paris SES 5 Le PETER
 poussière, en pleurnichant: mais il recommençait a um 0
 sitôt après, avec une malice inlassable, — jusqu'au jour
@@ -1656,10 +917,7 @@ vaux de bois, (ou plutôt, de monstres, de gargouilles,) À %
 sur les places encombrées de statues en redingote 2 2
 je ne sais quelle pouillasserie de ville du moyen-âge, | +3
 initiée aux bienfaits du suffrage universel, mais qui ne
-\ % . 2 UE
 
-D .
-SEE a LA FOIRE SUR LA PLACE =
 | poutse défaire de son vieux fond truand. Le brouillard ;
 _ de la veille s'était changé en une petite pluie pénétrante. É
 er. Dans beaucoup de boutiques, le gaz était allumé, bien
@@ -1682,7 +940,6 @@ ESS Christophe réfléchit, un instant; puis il dit:
 A8 — Très bien. J'attendrai. 5 c
 és. L'employé, surpris, se hâta d'ajouter :
 ne — C'est qu'il ne rentrera peut-être pas avant deux ou
-trois heures.
 3e — Oh! cela ne fait rien, répondit Christophe avec
 .  placidité. Je n'ai rien à faire à Paris. Je puis attendre,
 3 . tout le jour, s'il le faut.
@@ -1695,7 +952,6 @@ avec ses collègues; ils cherchaient, avec une consterg LA 2 17 à Paris. — 8.
 
 Jean-Christophe à Paris SA st n
 nation comique, un moyen de se débarrasser de lim  .
-portun. ; "a
 
 Après quelques minutes d'incertitude, la porte du bu- : à
 reau s'ouvrit. Monsieur Diener parut. Il avait une large C ë
@@ -1716,27 +972,19 @@ ses relations d'autrefois; et il s'était promis de le tenir Pt
 imposantes. Mais à peine retrouvait-il le regard de È
 Christophe, qu'il se sentait de nouveau un petit garçon
 en sa présence; il en était furieux et honteux. Il bre- Le
-douilla précipitamment : à
 
 — Dans mon cabinet... Nous serons mieux pour 4
-causer. >
 
 Christophe reconnut là sa prudence habituelle. |
 
 Mais, dans le cabinet, dont la porte fut soigneusement refermée, Diener ne s'empressait pas de lui offrir ë
 une chaise. Il restait debout, expliquant, avec une 4
-lourde maladresse : è
 
 “ — Bien content... J'ailais sortir. On croyait que :
 j'étais sorti... Mais il faut que je sorte... Je n'ai qu'une e
 minute... Un rendez-vous urgent... À
 Christophe comprit que l'employé lui avait menti ©
 
-18 ‘ je
-
-F 6
-
-Fe LA FOIRE SUR LA PLAGE :
 A tout à l'heure, et que le mensonge était convenu avec
 _  Diener, pour le mettre à la porte. Le sang lui monta à 1
 - la tête; mais il se contint, et dit sèchement :
@@ -1745,7 +993,6 @@ _  Diener en eut un haut-le-corps. IL était révolté d'un
 HU LEE sans-gêne.
 ie — Comment! rien ne presse ! dit-il. Une affaire.
 , Christophe Je regarda en face :
-— Non.
 Le gros garçon baissa les yeux. Il haïssait Christophe,
 È de se sentir si lâche devant lui. Il balbutia avec dépit.
 Christophe l'interrompit :
@@ -1769,9 +1016,7 @@ L voulu.)
 j — Ah! fit-il avec importance, c'est bien fâcheux, bien
 fâcheux. La vie est difficile ici. Tout est cher. Nous
 : _ avons des frais énormes. Et tous ces employés...
-} 19
 
-as Fo * PA
 S Christophe l'interrompit avec mépris Lot <a Rae.
 None — Je ne te demande pas d'argent. as “
 Fa Dienér fut décontenancé. Christophe continua : | 003
@@ -1780,19 +1025,15 @@ Diener. Il se méfiait. 0 4)
 : Christophe lui lança un regard furieux, et reprit ss Ar
 Ve — Tu connais beaucoup de monde dans la colonie
 | allemande ? è HE 5h
-— Oui. . STRESS
 Eu — Eh bien, parle de moi. Ils doivent être musiciens.
 À Ils ont des enfants. Je donnerai des leçons. M LD à
 Diener prit un air embarrassé. : ‘LACER » k — Qu'est-ce encore ? fit Christophe. Est-ce que HE 4,
 : doutes par hasard que j'en sache assez pour un no |!
-métier ? Fe 5 qi
 À I1 demandait un service, comme si c'était lui qui are ê
 Dia rendait. Diener, qui n'eût jamais rien fait pour “Chris 5
 tophe que pour avoir le plaisir de le sentir son obligé, K:
 était bien résolu à ne pas remuer un doigt pour lui. *: 4%
 — Tu en sais mille fois plus qu'il n'en faut. Seule
-ment. se 2860
-— Eh bien? : 16e
 — Eh bien, c'est difficile, très difficile, vois-tu, à cause …
 de ta situation. 1 ‘os
 — Ma situation ? [Es ne |
@@ -1802,16 +1043,13 @@ beaucoup de tort. is FA
 Il s'arrêta, en voyant le visage de Christophe se".
 as décomposer de colère; et il se hâta d'ajouter: " Lie
 — Ce n'est pas pour moi... Je n'ai pas peur... Abt #4
-ASTRA ÿ Fa M: PA
 
-LA FOIRE SUR LA PLACE
 | si j'étais seul! C'est mon oncle... Tu sais, la maison
 est à lui, je ne peux rien sans lui...
 De plus en plus effrayé par la figure de Christophe et
 par l'explosion qui se préparait, il dit précipitamment
 — (il n'était pas mauvais, au fond; l'avarice et la vanité
 luttaient en lui : il eût voulu obliger Christophe, mais à
-bon compte) :
 
 — Veux-tu cinquante francs ?
 
@@ -1819,13 +1057,10 @@ Christophe devint cramoisi. Il marcha vers Diener,
 d'une telle façon que celui-ci recula en toute hâte
 jusqu'à la porte, qu'il ouvrit, prêt à appeler. Mais
 Christophe se contenta d'approcher de lui sa tête
-congestionnée :
 
 — Cochon! — dit-il, d'une voix retentissante.
 
 Il le repoussa du chemin, et sortit, au milieu des employés. Sur le seuil, il cracha de dégoût.
-
-ME |
 
 Il marchaït à grands pas dans la rue. Il était ivre de È 26e
 colère. La pluie le dégrisa. Où allait-il ? Il ne savait. Il 40
@@ -1858,7 +1093,6 @@ Une voix ajoutait en lui : à 3
 
 Il s'assura de nouveau de l'adresse, et il alla chez 4
 Kobn. Il était décidé à lui casser la figure, à la première AS
-impertinence. |
 
 La maison d'édition se trouvait dans le quartier de la ; |
 Madeleine. Un hôtel, à porte cochère monumentale. Une +
@@ -1867,9 +1101,6 @@ cour vitrée. Christophe monta à un salon du premier à À
 lui répondit « qu'il ne connaissait pas ». Christophe, À
 étonné, crut qu'il prononçait mal, et il répéta sa ques- x e
 
-* . : DRE NN
-
-TER
 HAS rs LA FOIRE SUR LA PLACE ï
 tion; mais l'employé, après avoir écouté attentivement, :
 ; affirma qu'il ny avait personne de ce nom dans la
@@ -1901,27 +1132,14 @@ fort est qu'il l'était. Ce petit juif allemand, ce lourdaud,
 Le d'un raflinement compliqué. IL était le champion du
 sl beau style français, de l'élégance française, de la galan-
 * _  terie française, de l'esprit français, — Régence, talon
-L 23
 
-à |. 3
-: Tr.
 | :
-f 23 (|
-} |
 |
-kT
 >
 
-x
 |
-F br
-- j
 
-OT
 | ,
-we | 5
-A
-LA FOIRE SUR LA PLACE {
 instants, eût choqué Christophe, mais qui lui faisait du
 bien, maintenant, dans cette ville étrangère.
 — Mais comment se fait-il, demanda Christophe, en-
@@ -1931,7 +1149,6 @@ l'heure que Monsieur Kohn n'était pas là ? Ë
 riant. Je ne me nomme plus Kohn. Je m'appelle Hamil- 3
 | ton. !
 Il s'interrompit. 1
-— Pardon, fitil. |
 Il alla serrer la main à une dame qui passait, et gri- ñ
 | maça quelques sourires. Puis il revint. Il expliqua que f. à
 c'était une femme de lettres, célèbre par des romans 4
@@ -1953,12 +1170,7 @@ des femmes qui écrivent en France? à
 Kohn se mit à rire, et dit avec f'atuité : Eu
 — La France est femme, mon cher, Si vous voulez th
 arriver, faites-en votre profit. A
-25 ft
-Li d
-À 1% J
 
-" |
-É
 ? Jean-Christophe à Paris
 i rouge, Lauzun. On se moquait de lui; mais cela ne
 : l'empêchait point de réussir, Ceux qui disent que le ri- |
@@ -1971,28 +1183,17 @@ LE bonnes fortunes. Sylvain Kohn n'en était plus à compter |
 ; EE Hparlait, avec un accent lourd et une voix deête, j
 #4 "Ah! voilà une surprise! criait-il gaïement, en |
 4 Serrant et secouant la main de, Christophe dans ses
-À mains boudinées, aux doig qi semblaient tas-
 Î és dans une peau trop é yvait se décider
 Ë cher Christophe. Or yait son u
-É ur ami. Christoph it si .
 | moquait de lui. { pa
 Ée Silisemoquait 11 plie: de é
 a lavait pa que
-ë ! L>: ACER
-Î °° LT
-AE L e
-171 sa P
 FA avait t
 | i cueillir, }
 #4 à son pou
-1 — Et vous
 | demandait-il,
-!
-a
-i KL
 
 | .
-NN
 xd } . LA FOIRE SUR LA PLACE
 rt l instants, eût choqué Christophe, mais qui lui faisait du
 À bien, maintenant, dans cette ville étrangère. i
@@ -2000,33 +1201,20 @@ F — Maïs comment se fait-il, demanda Christophe, enjure) | core un peu soupç
 “ur à Theure que Monsieur Kohn n'était pas là? F
 ‘ne Fr — Monsieur Kohn n'est pas là, dit Sylvain Kohn, en .
 msaur WU 5 riant. Je ne me nomme plus Kohn. Je m'appelle Hamil- à
-e” RL ton. 1]
-TL nu ]s'interrompit. x:
-À pra, a M Pardon, fitil. 4
 te dus 98 … Lalla serrer la main à une dame qui passait, et gri- "il
 ET elques sourires. Puis il revint. Il expliqua que Hi à
 ne décier ) e femme de lettres, célèbre par des romans M
 à Æmülante. La moderne Sapho avait une dé- 4
 n corsage, des formes plantureuses, .
 à Wwdent sur une figure réjouie et ls »s prétentieuses, d'une voix ‘A
-ranc-comtois. à
-* } Mnistophe. I s'informait À
 it ce qu'était devenu (%
 terie à montrer qu'il :
 Y vait oublié son anti- d
- * alité reconnaissante, i -
 * étaient absolument \
 rrompit de nouveau. A
-4 ke
-Siteuse. x
 Stophe, il n'y a donc que (à
-à Ben France? F
 Et t dit avec fatuité : ii
 PS :mme, mon cher, Si vous voulez i FA
-re profit. 4 à
-25 R.
-à
-ds!
 
 < Jean-Christophe à Paris TE MTS
 rouge, Lauzun. On se moquait de lui; mais cela ne
@@ -2036,7 +1224,6 @@ d'en mourir, il y a des gens qui en vivent; à Paris, le Au
 ë ridicule mène à tout, même à la gloire, même aux 4
 bonnes fortunes. Sylvain Kohn n'en était plus à compter
 les déclarations que lui valaient, chaque jour, ses mari- 1
-vaudages francfortois. Fort
 I parlait, avec un accent lourd et une voix de tête. 5
 | — Ah! voilà une surprise! criait-il gaiement, en
 serrant et secouant la main de Christophe dans ses
@@ -2061,7 +1248,6 @@ cueillir, par ce seul fait qu'elle était un hommage rendu 1
 — Et vous venez du pays ? Comment va la maman ?
 demandait-il, avec une familiarité, qui, à d'autres
 2 0
-$ à À
 
 a eue LA FOIRE SUR LA PLACE
 He instants, eût choqué Christophe, mais qui lui faisait du
@@ -2093,7 +1279,6 @@ je Et il alla saluer une autre visiteuse.
 Fe Kohn se mit à rire, et dit avec fatuité :
 54 F — La France est femme, mon cher. Si vous voulez
 Sert arriver, faites-en votre profit.
-à 25
 
 Jean-Christophe à Paris UE EN
 ! Christophe n'écouta point l'explication, et continua "3
@@ -2101,7 +1286,6 @@ les siennes. Kohn, pour y mettre fin, demanda : |
 — Mais comment diable êtes-vous ici ? | a
 — Voilà! pensa Christophe. Il ne savait rien. C'est : £
 pourquoi il était si aimable. Tout va changer, quand il . ;
-saura,
 ) Il mit un point d'honneur à conter tout ce qui pouvait ;
 le compromettre le plus : la rixe avec les soldats, les
 poursuites contre lui, sa fuite du pays. x
@@ -2115,7 +1299,6 @@ tout le côté comique lui en apparaissait. |
 le plaisir. Déjeunez avec moi. H
 Christophe accepta avec reconnaissance, Il pensait : À
 — C'est un brave homme, décidément. Je me suis :
-trompé. !
 Ils sortirent ensemble. Chemin faisant, Christophe
 hasarda sa requête :
 — Vous voyez maintenant quelle est ma situation. Je.
@@ -2127,11 +1310,7 @@ connais tout le monde ici. Tout à votre service. h
 Il était heureux de faire montre de son crédit. t
 Christophe se confondait en remerciements, Il se sentait le cœur déchargé d'un grand poids.
 À table, il dévora, de l'appétit d'un homme qui n'avait À
-26 |
-à
 
-+ FER De ER s
-LAS ISSU LA FOIRE SUR LA PLACE :
 _ pas mangé à sa faim depuis deux jours. Il s'était noué
 __ sa serviette autour du cou, et mangeait avec son couteau. Kohn-Hamilton était horriblement choqué par sa
 voracité et ses manières paysannes. Il ne fut pas moins
@@ -2161,19 +1340,15 @@ promettait Kohn. J'en parlerai tout à l'heure. Vous pouvez être tranquille.
 ns — Non, non, se hâta de dire Kohn. Je vous le ferai
 L savoir. Ne vous dérangez pas.
 — Oh! cela ne me dérange pas. Au contraire! N'est-
-ÿ
 
-Le RAA +
 |
 Jean-Christophe à Paris ui
 ce pas? Je n'ai rien d'autre à faire à Paris, en atten- VHS
-dant. : He
 — Diable! pensa Kobn. — Non, reprit-il tout haut,
 j'aime mieux vous écrire. Vous ne me trouveriez pas, #
 ces jours-ci. Donnez-moi votre adresse. Rene |
 Christophe la lui dicta. HAE
 .— Parfait. Je vous écrirai demain. Î
-— Demain? A
 — Demain. Vous pouvez y compter. 1
 Il se dégagea des poignées de main de Christophe, et ï
 il se sauva. :
@@ -2199,7 +1374,6 @@ I1 ne sortit de sa torpeur, vers le soir, que pour se cou- à
 cher; et il dormit douze heures de suite, sans s'arrêter. 57188
 
 | OVÉNRS Re ne,
-a  : in à
 FRE Le lendemain, dès huit heures, il commença d'atten- :
 _ dre la réponse promise. Il ne doutait pas de l'exactitude
 48 de Kohn. Il ne bougea point de chez lui, se disant que :
@@ -2224,12 +1398,9 @@ sans avoir apporté de lettre.
 sa. # Une journée recommença, semblable à la précédente.
 LENAGERERORE L us
 
-« RE 0
 Jean-Christophe à Paris D
-“ 3
 
 Le troisième jour, Christophe, que cette réclusion
-volontaire commençait à rendre enragé, se décida à
 sortir. Mais Paris lui causait, depuis le premier soir, ASE
 une répulsion instinctive. Il n'avait envie de rien voir : :
 nulle curiosité; il était trop préoccupé de sa vie pour
@@ -2245,7 +1416,6 @@ Le garçon, qui avait le mot d'ordre, dit que Monsieur
 Hamilton était parti de Paris pour affaires. Ce fut un . |
 coup pour Christophe. Il demanda en bégayant quand
 Monsieur Hamilton devait revenir. L'employé répondit, EI
-au hasard : i
 
 — Dans une dizaine de jours. é 4
 
@@ -2265,10 +1435,6 @@ d'eux était mort depuis dix ans. Il leur demandait de F
 vouloir bien lui donner audience. L'orthographe était
 extravagante, et le style agrémenté de ‘ces longues F4
 
-30 eu |
-FAR:
-
-PONT. 7" "LA FOIRE SUR LA PLACE
 _  inversions et de ces formules cérémonieuses, qui sont
 habituelles en allemand. Il adressait l'épître : « Au Palais
 de l'Académie de France. » — Le seul qui la lut en fit
@@ -2281,7 +1447,6 @@ voyant pincé ; mais Christophe était si heureux qu'il ne
 son habitude agaçante, et il demandait, tout joyeux :
 — Vous étiez en voyage ? Vous avez fait bon voyage?
 Kohn acquiesçait, mais ne se déridait pas. Christophe
-continua :
 — Je suis venu, vous savez... On vous a dit, n'est-ce
 _ pas? Eh bien, quoi de nouveau? Vous avez parlé de
 ; moi? Qu'est-ce qu'on a répondu? ,
@@ -2305,7 +1470,6 @@ mA bras. Soignez-vous bien, surtout! IL faut vous reposer. #
 
 : Jean-Christophe à Paris
 peine de plus! Il fallait me le dire. Qu'est-ce que vous
-sentez, au juste ? ; : THON
 
 : Il prenait si au sérieux les mauvaises raisons de Ho.
 Fautre que Kohn, gagné par une douce hilarité qu'il … Res
@@ -2320,7 +1484,6 @@ pour les ennemis même, qui leur offrent une occasion x à
 de l'exercer à leurs dépens. D'ailleurs, Kohn ne lais- =
 sait pas d'être touché par l'intérêt que Christophe pre- Le
 nait à sa personne. Il se sentit disposé à lui rende —
-service. ;
 
 — Il me vient une idée, dit-il. En attendant les leçons, FA
 
@@ -2343,8 +1506,6 @@ en l'obligeant. |
 |
 
 DE LS Tire x
-pre
-PU
 Le lendemain, Christophe vint prendre Kohn à son
 : bureau. Il avait, sur son conseil, emporté quelques com-
 < positions pour les montrer à Hecht. Ils trouvèrent eelui-
@@ -2367,7 +1528,6 @@ encore à ce qu'il y avait en lui d'automatique et de
 (- guindé. Les Juifs de cette espèce ne sont pas rares; et
 $ l'opinion n'est pas tendre pour eux : elle taxe d'arro_ gance cette raideur cassante, qui est souvent le fait
 \! d'une gaucherie incurable de corps et d'âme.
-d: 33 à Paris. — 4
 |: SA
 
 Jean-Christophe à Paris
@@ -2393,7 +1553,6 @@ Il continua, en allemand : Le |
 — Et vous êtes du Rhein-Land ?.… C'est étonnant é
 combien il y a de gens dans ce pays, qui se mêlent de RE
 musique! Je crois qu'il n'y en a pas un qui ne prétende sa
-être musicien. ë $
 Il voulait dire une plaisanterie, et non une insolence; fe ê
 mais Christophe le prit autrement. Il eût répliqué, si! :
 Kohn ne l'avait devancé. s |
@@ -2404,7 +1563,6 @@ rendrez cette justice que moi, je n'y entends rien.
 sèchement Christophe, je suis fâché, je ne fais pas
 l'affaire. ra 4
 
-+ LA FOIRE SUR LA PLACE
 ÿ _ Hecht, la tête toujours tournée de côté, reprit, avec ;
 _ la même indifférence : ;
 _  — Vous avez déjà écrit de la musique ? Qw'est-ce que |
@@ -2422,7 +1580,6 @@ _ puisque vous m'êtes recommandé par mon ami Hamil- é
 _ Bibliothèque de la jeunesse, où nous publions des mor-
 | ceaux de piano faciles. Sauriez-vous nous « simplifier »
 - le Carnaval de Schumann, et l'arranger à six et à huit
-_ mains? £
 : Christophe tressauta : 3
 — Et voilà ce que vous m'offrez, à moi, à moi !.. $
 _ Ce « moi » naïf fit la joie de Kohn; mais Hecht prit
@@ -2436,13 +1593,10 @@ que vous êtes bon musicien. Je dois vous croire. Mais
 -  — Si on croyait tous ces gaillards-là, ils feraient la
 - barbe à Johannes Brahms lui-même,
 _ Christophe, sans répondre, — (car il s'était promis de
-F2 35
 
-PR ENS SO
 Jean-Christophe à Paris
 réprimer ses emporteménts) — enfonça son chapeau sur
 Ps sa tête, et se dirigea vers la porte. Kohn l'arrêta, en
-riant : À
 — Attendez, attendez donc ! dit-il. À
 Et, se tournant vers Hecht : e
 — Il a justement apporté quelques-uns de ses morceaux, pour que vous puissiez vous faire une idée. .
@@ -2451,7 +1605,6 @@ Christophe, sans un mot, tendit les manuscrits. Hecht,
 y jeta les yeux, négligemment,
 — Qu'est-ce que c'est? Une Suite pour piano.
 (Lisant :) Une Journée... Ah! toujours de la musique
-à programme!
 Malgré son indifférence apparente, il lisait avec
 grande attention. Il était excellent musicien, possédait
 son métier, d'ailleurs ne voyait rien au delà; dès les
@@ -2465,17 +1618,13 @@ une note :
 bien écrit.
 Une critique violente eût moins blessé Christophe.
 — Je n'ai pas besoin qu'on me le dise, fit-il, exas-
-è péré.
 — J'imagine pourtant, dit Hecht, que si vous me
 montrez ce morceau, c'est pour que je vous dise ce que
 j'en pense. L
-— En aucune façon.
 
 |
 
-LE LA FOIRE SUR LA PLACE
 — Alors, fit Hecht, piqué, je ne vois pas ce que vous
-_ venez me demander. |
 — Je vous demande du travail, pas autre chose.
 — Je n'ai rien autre à vous offrir pour le moment, x
 _ que ce que je vous ai dit. Encore n'en suis-je pas sûr.
@@ -2502,9 +1651,6 @@ m'offrir, après avoir lu ma musique, que de châtrer de
 grands musiciens, et de faire des saloperies sur leurs
 œuvres, pour faire danser les petites filles! Adressezvous à vos Parisiens, s'ils sont assez lâches pour se |
 laisser faire la leçon par vous! Pour moi, j'aime mieux
-crever!
-: 37 à Paris. — 4.
-ENT 0 Ê |
 
 Jean-Christophe à Paris $
 
@@ -2517,7 +1663,6 @@ Hecht dit, glacial :
 Christephe sortit, en faisant claquer les portes.
 
 > Hecht haussa les épaules, et dit à Sylvain Kohn, qui
-riait :
 
 — Il y viendra, comme les autres.
 
@@ -2531,9 +1676,7 @@ rendre justice à Christophe, et il était incapable de le
 faire, à moins que Christophe ne s'humiliât devant lui.
 Il attendit que Christophe lui revint : son triste scepticisme et son expérience des gens lui avaient fait
 connaître l'avilissement inévitable des volontés par la
-misère.
 
-en KA ;
 | Christophe rentra chez lui. La colère avait fait place $
 | à l'abattement. Il se sentait perdu. Le faible appui sur $
 _ lequel il comptait s'était écroulé. Il ne doutait pas j'
@@ -2565,7 +1708,6 @@ Jean-Christophe à Paris en -
 nait déjà en médiocre estime un locataire, qui ne mangeait qu'une fois par jour et qui parlait allemand, perdit tout reste de respect, quand il sut que ce n'était
 qu'un musicien. Il était un Français de la vieille race,
 pour qui la musique est un métier de fainéant. Il se
-gaussa :
 
 — Du piano! Connais pas. Vous tapez du piano ?
 Compliments !.. C'est-il curieux tout de même de faire
@@ -2574,10 +1716,7 @@ comme s'il pleuvait.. Après ça, vous pourriez peut-être
 m'apprendre. Qu'est-ce que vous en diriez, vous autres ?
 cria-t-il, en se tournant vers des ouvriers qui buvaïient.
 
-Us rirent bruyamment.
-
 — C'est un joli métier, fit l'un. Pas salissant. Et puis,
-ça plaît aux dames.
 
 Christophe comprenait mal le français, et plus mal
 la moquerie : il cherchait ses mots ; il ne savait pas s'il
@@ -2590,7 +1729,6 @@ quelqu'un qui ferait votre affaire.
 — Qui donc? demanda le mari.
 
 — La petite Grasset. Tu sais, on lui a acheté un
-piano.
 
 — Ah! ces poseurs! Cest vrai.
 
@@ -2601,8 +1739,6 @@ quand ce ne serait que pour faire jaser le quartier. La
 femme de l'hôtelier promit de s'en occuper.
 
 Le lendemain, elle dit à Christophe que la bouchère
-
-40 |
 
 | | LA FOIRE SUR LA PLACE Cr
 
@@ -2646,9 +1782,6 @@ S'il en était tombé là, au bout de quelques semaines, ? À
 où ne descendrait-il pas, par la suite? A quoi lui avaitil servi de se révolter contre l'offre de Hecht? Ce à quoi
 il avait consenti était plus dégradant encore. :
 
-ea ‘
-
-\ j CR RL NN MR ex NE 2
 Ve cet _ Jean-Christophe à Paris 00 iQ 4
 À Un soir, dans sa chambre, les larmes le prirent sise Fe
 AE jeta désespérément à genoux devant son lit, il pria
@@ -2679,8 +1812,6 @@ de ce prix, de rougir. Patience! Patience! Le temps viendrait.…
 Mais le lendemain, la patience recommençait à lui
 À manquer; et malgré tous ses efforts, il finit par éclater
 
-en à ï
-$ LA FOIRE SUR LA PLACE 1
 de rage, un jour, pendant la lecon, contre la stupide
 pécore, impertinente par surcroît, qui se moquait de
 son accent, et mettait une malice de singe à faire le
@@ -2700,10 +1831,7 @@ bouleversé, n'eurent pas de peine à se faire raconter
 lhistoire ; et leur malveillance pour les voisins en fut
 réjouie. Maïs, le soir, tout le quartier répétait que
 l'Allemand était une brute, qui battait les enfants.
-+ Ce
 
-a
-Li A “ À À
 Er Christophe fit de nouvelles démarches chez des mar-
 
 chands de musique : elles ne servirent à rien. Il trouvait
@@ -2740,13 +1868,6 @@ eût raison; il n'envisageait les gens que d'après le degré î
 d'amusement qu'ils pouvaient avoir pour lui; et il avait
 entrevu dans Christophe une source de haut comique,
 dont il se promettait bien de profiter. Set
-
-F{I
-4 à
-
-CES { x ta
-
-; 1 \\ | LA FOIRE SUR LA PLACE
 
 | _ — Il fallait venir me voir, continuait-il. Je vous atten-
 
@@ -2791,15 +1912,10 @@ qui étaient faites pour constituer une société rivale,
 « fection de quelques-uns de leurs associés, qui avaient
 * trouvé avantageux de passer, armes et bagages, dans
 la maison rivale, les jetait dans des transports de
-“E
-À À 4 à Paris. —5
 
-FN k  LNNNOTSRNEE
-Wa _ Jean-Ghristophe à Paris A 4
 fureur. Ils ne parlaient de guère moins que de couper
 
 Ô des têtes : « … Déchéance... Trahison..… Flétrissure... |
-Vendus... » are
 
 D'autres ne s'en prenaient pas aux vivants : ils
 en avaient aux morts, dont la copie gratuite obstruait |
@@ -2810,7 +1926,6 @@ chefs-d'œuvre du passé, afin de s'opposer à leur diffu-
 
 à sion à prix réduits, qu'ils taxaient aigrement de concur- \
 rence déloyale pour la marchandise des artistes d'à
-présent.
 
 Ils s'interrompirent les uns et les autres pour écouter |
 les chiffres des recettes qu'avait faits telle ou telle pièce \
@@ -2831,12 +1946,8 @@ conclu, il le tenaït loyalement ; mais son grand art était
 Au travers de tout cela, ils disaient de grands mots;
 à ils parlaient de « poésie », d' « art pour l'art ». Dans'ce \
 bruit de gros sous, cela sonnait : « l'art pour l'argent »; » N
-IA
-46 TN
-ie) 14 À
 
 M un Lo HE
-à TS RE LA FOIRE SUR LA PLACE |
 % et ces mœurs de maquignons, nouvellement introduites
 dans la littérature française, scandalisaient Christophe. é
 . Comme il n'avait jamais rien compris aux questions f
@@ -2844,7 +1955,6 @@ d'argent, il avait renoncé à suivre la discussion, quand |
 ils finirent par parler de littérature, — ou, tout au moins, |
 de littérateurs. \
 Christophe dressa l'oreille, en entendant le nom de
-Victor Hugo.
 11 s'agissait de savoir s'il avait été cocu. Ils discu- AV
 tèrent longuement sur les amours de Sainte-Beuve et de
 . madame Hugo. Après quoi, ils parlèrent des amants de
@@ -2866,28 +1976,13 @@ les gens de ce temps avaient, comme l'on sait, le culte
 f les premiers à fournir le public de renseignements k
 fs exacts, par dévouement envers la vérité.
 …  Ghristophe, de plus en plus gêné, essayait de causer
-D 4)
 |: PSE |
 
-à ;
-. 6 y {
-ac “4 4 {
-&
-L- Re à F s
-LS ÿ d R: A
-SR À LA FOIRE S0R ‘
-me 5j, n génie ;
 ne et ces mœurs de maqui n Mise #
 = dans la litérature fra ; it diable L ù 1
 + mn note CCS ions. Les
 - l il avait à s
 ® d'argent, il avails à ur Jui en :'E
-tbe s ssèrent au ;
-pe : musical, É
-es + à é rair d
-ét AA mme Sgana- #
-, d i thuram, cata- 8 ;
-\ ; » AT ; L :
 3 qui « entendait 15
 de +: pe. ssitôt dans le ma- ‘
 , ÿ 1expugnable, il se |
@@ -2904,9 +1999,6 @@ nt la langue des ho
 | À a xré lui, un peu en Au
 € ui l'on sacrifiait la Fa
 F . Sndalisé d'entendre par- ;
-f OR. é
-F1
-a
 
 Jean-Christophe à Paris
 d'autre chose avec ses voisins. Mais aucun ne s'occupait de lui. Ils avaient bien commencé par lui poser
@@ -2935,7 +2027,6 @@ mière fois, avait, disaient certains, fait table rase de
 tout ce qui était avant lui, renouvelé de toutes pièces,
 re-créé la musique. Christophe sursauta. Il ne deman-
 
-LA FOIRE SUR LA PLACE
 _ dait pas mieux que de croire au génie. Mais un génie
 “à de cette trempe, qui d'un coup anéantissait le passé !..
 4 Nom de nom! C'était un gaillard; comment diable
@@ -2947,7 +2038,6 @@ _ donner, et que Christophe assommait, l'adressèrent au
 Và et de neuvièmes. Christophe le suivit sur ce terrain.
 LÀ Goujart savait la musique, à peu près comme SganaLa relle savait le latin.
 4 — … Vous nentendez point le latin ?
-1 — Non.
 h — (Avec enthousiasme) Cabricias, arci thuram, catad lamus, Ssingulariter,.…. bonus, bona, bonum.…
 Li Se trouvant en présence d'un homme, qui « entendait
 ÿ le latin », il se replia prudemment aussitôt dans le ma-
@@ -2998,8 +2088,6 @@ littérature pour s'attacher aux femmes. — A vrai dire, M
 c'étaient les deux faces d'un même sujet : car dans leur
 littérature, il n'était guère question que de femmes, et
 
-TEE ASE )
-RE NUAGE ‘LA FOIRE SUR LA PLACE
 | dans leurs femmes que de littérature, tant elles étaient :
 _ frottées de choses ou de gens de lettres.
 On parlaît d'une honneste dame, connue dans le 1
@@ -3059,7 +2147,6 @@ fixer en Jui ni une physionomie, ni une pensée. Ses yeux
 de myope, vagues et absorbés, faisaient le tour de la
 table lentement, se posant sur les gens, et ne semblant
 pas les voir. Il les voyait pourtant mieux que quiconque;
-52 É
 
 Le ii - LA FOIRE SUR LA PLACE
 mais lui-même n'en avait pas conscience. Son regard
@@ -3075,7 +2162,6 @@ k d'Allemand, qui s'empiffrait de mangeaille, attentif
 guait rien, sinon qu'en écoutant ses convives s'interpeller
 par leurs noms, il se demandait, avec une insistance :
 d'ivrogne, pourquoi tant de ces Français avaient des
-noms étrangers : flamands, allemands, juifs, levantins,
 ) anglo- ou hispano-américains.…
 ! Il ne s'aperçut pas que l'on se levait de table. II restait
 … seul assis; et il rêvait des collines rhénanes, des grands
@@ -3091,8 +2177,6 @@ _ l'eau, de la vieille maman. Quelques convives causaient
 ' sieurs semaines qu'il n'avait touché à un instrument de
 musique. Il entra, caressa amoureusement les touches,
 ï s'assit, et, son chapeau sur la tête, son manteau sur le
-di ' 53 à Paris, — 5,
-ie (
 
 Î Jean-Christophe à Paris
 dos, il commença de jouer. Il avait parfaitement oublié
@@ -3121,22 +2205,9 @@ sont pas éternels. Quand le sien avait paru près de i
 Î près en avoir emporté tout ce qu'il pouvait prendre,
 Î Las de la politique, où depuis quelque temps il comHe 1 recevoir, pour le compte de son patron, et
 | même pour le sien, quelques coups assez rudes, il avait M}
-à |
-i 54 |
 |
 
-de |
-\
-À
-!
-Le
-
-us. Al :
-l
 | 4
-n
-ph. Ÿ
-3 LA FOIRE SUR LA PLACE 5
 "mais M4 cherché, à l'abri des orages, une situatiôn de tout repos, | ë|
 ss M. où il pourrait ennuyer les autres, sans jamais être ul
 it M” ennuyé soi-même. La critique était tout indiquée. Juste- 1
@@ -3169,7 +2240,6 @@ RE de pédantismes agressifs; il avait une mentalité de ‘1
 me pion de collège. Parfois, de loin en loin, il s'était 44
 a attiré de cruelles ripostes : dans ces cas-là, il faisait \°24
 je gl le mort, et se gardait bien de répondre. Il était à sil
-A
 
 >
 
@@ -3196,33 +2266,24 @@ be noire, de lourds accroche-cœur.sunle een?
 
 | fron Mc fronçait de grosses rides inexpress posa
 
-Î sives al équarrie, com rossièrement sil chace » -
 LE sculpté jois, les 1 $ vie aogs à
 pei: courtes, Ditrin sgh: À ce
 
-k de bois : - F “
 f la musiqu |
-HE découvert y .
 
 pl « du bâtard
 
 at sont pas éte:
 
-Ê ymbrer, Thé
-
 | Î — notamment
 
 tr Las de la pol
-
-ee mençait à rece
 
 | même pour le sic
 
 |
 
 | j
-Fe LA FOIRE SUR LA PLACE # 4
-1 4h
 "ait Ml cherché, à l'abri des orages, une situation de tout repos, )
 À Perstunés ge où il pourrait ennuyer les autres, sans jamais être ni
 Se ennuyé soi-même. La critique était tout indiquée. Juste- (a
@@ -3234,28 +2295,15 @@ qu, ms el ne le auteurs. Goujart ne s'était jamais occupé de musique, MT.
 Hi ctil ne savait rien : on le choisit sans hésiter. On en il
 ant avaitassez des gens compétents; au moins, avec Gou- f |
 0e. AN jet on n'avait rien à craindre : il n'attachait pas une he:
-Pot | PE TRE < ie ; mx ; <
 #4 ortance ridicule à ses opinions ; toujours aux ordres { $ à
 pres boue, M ire ÉRbn et prêt Rien faire passer 5 s éreinte- 4 | ]
 DC LL Sréclames Qu'bne fût pas musicien, c'était 1 4]
 ess 2 é ‘ation secondaire. La musique, comme on hi
 Le ras Vconnaîñf assez en France. Goujart avait 1# ù
 où scie D LE moyen était | x
-y ik Lt sn our |
-set dei * P à
-Lu F ? anosi- à
-* — |
-, … Vo
-Î 4
-F 1 14
-AL.
-i }: 4
-L 1
-F À
 |
 |"138
 
-JT a
 Jean-Christophe à Paris D à
 dos, il commença de jouer. Il avait parfaitement oublié
 où il était. Il ne remarqua point que deux personnes se
@@ -3345,10 +2393,6 @@ sait les sottises que Goujart déposait dans sa feuille,
 
 … le mort, et se gardait bien de répondre. Il était à
 
-‘4
-
-Î ts EE Y A 14 RE
-Jean-Ghristophe à Paris A
 la fois un gros finaud et un grossier personnage, insolent
 ou plat, selon les circonstances. Il faisait des courbettes
 aux chers maîtres, pourvus d'une situation ou d'une À
@@ -3377,10 +2421,7 @@ ge qu'un tel talent ne devait pas rester sous le boisseau, et M
 ils s'engagèrent à le mettre en valeur. Pour commencer, à
 tous deux comptaient bien en tirer pour eux-mêmes tout \
 l'honneur et le profit possibles. }
-à ÿ
-\ | |
 
-Le F AY ‘ jy ; À 0
 Dès le lendemain, Sylvain Kohn invita Christophe à
 \ venir chez lui, mettant aimablement à sa disposition
 ; l'excellent piano, qu'il avait, et dont il ne faisait rien.
@@ -3406,9 +2447,7 @@ ricaner, gémir, siflloter, tapoter, fredonner, imiter les
 | instruments, Et quand le morceau était fini, il eût crevé,
 ; s'il n'avait fait part à Christophe de ses ineptes
 } réflexions. L
-J 92
 
-Ke AG OA RARE EEE AE UE MU CORP ACSNPENSSER
 Jean-Christophe à Paris
 Il était un-curieux mélange de sentimentalité germa- | #
 nique, de blague parisienne, et de fatuité insupportable. a
@@ -3443,8 +2482,6 @@ sait sous des paroles froidement injurieuses, qui bles- |
 ; saient l''amour-propre de Hamilton : les séances de à
 
 | ANSE es
-Le PRE vpn) ! *
-V PR | LA FOIRE SUR LA PLACE
 : _ piano se terminaient fréquemment par des brouilles.
 … Mais, le lendemain, Kohn avait oublié; et Christophe, ù » qui avait remords de sa violence, s'obligeait à revenir. +
 Tout cela n'eût encore été rien, si Kohn avait pu se
@@ -3465,11 +2502,7 @@ ses invités dans une pièce voisine. Naturellement,
 et, cette fois, ne revint plus. À
 s Toutefois, il devait ménager Kobn, qui le présentait Je
 | dans des familles cosmopolites, et lui trouvait des
-{ leçons.
-*
 
--— IF Ve "0 4 À A
-Ÿ '
 |
 De son côté, Théophile Goujart vint, quelques jours à]
 après, chercher Christophe dans son taudis. Il ne se |
@@ -3478,7 +2511,6 @@ contraire : il fut charmant. Il lui dit : à 1
 — J'ai pensé que cela vous ferait peut-être plaisir |
 d'entendre un peu de musique, de temps en temps; et,
 comme j'ai mes entrées partout, je suis venu vous
-prendre. 5
 Christophe fut ravi. Il trouva l'attention délicate, et
 ï remercia avec effusion. Goujart était tout différent de
 ce qu'il l'avait vu, le premier soir. Seul à seul avec lui, J
@@ -3494,9 +2526,6 @@ Ils allèrent ensemble à un concert symphonique. à
 L'entrée était commune avec un music-hall. Par un ;
 boyau sinueux, on accédait à une salle sans dégage- È
 ments : l'atmosphère était étouffante; les sièges, trop |
-60 |
-{ F
-l - ; É
 
 MO it LA FOIRE SUR LA PLACE
 étroits, entassés; une partie du public se tenait debout,
@@ -3512,9 +2541,7 @@ l'œuvre, à travers cette foire; et, au prix d'efforts énergiques, il parvenai
 ; lorchestre était habile, et Christophe était sevré de
 | musique symphonique depuis longtemps) — quand
 : Goujart le prit par le bras, et lui dit, au milieu du
-concert :
 — Maintenant, nous partons. Nous allons à un autre
-concert.
 Christophe fronça le sourcil; mais il ne répliqua
 230 point, et il suivit son guide. Ils traversèrent la moitié
 de Paris. Ils arrivèrent dans une autre salle, qui sentait
@@ -3527,8 +2554,6 @@ comme ces ouvriers pauvres, qui se mettent à deux
 point. Un noble vieillard, avec des gestes de dompteur,
 à déchaïînait un acte de Wagner : la malheureuse bête
 % — l'acte — ressemblait assez à ces lions de ménagerie,
-
-; ; ù
 
 | f Jean-Christophe à Paris SRE
 . ahuris d'affronter les feux de la rampe, et qu'il faut À
@@ -3563,7 +2588,6 @@ avaient la spécialité de ces goinfreries de sons, qui lui
 62 4
 
 a ne LA FOIRE SUR LA PLACE
-LS * = 1
 .  avaïent plus d'une fois répugné en Allemagne. Il constata
 que les Parisiens leur eussent rendu des points à table.
 _ On leur faisait bonne mesure : deux symphonies, un
@@ -3594,7 +2618,6 @@ tchèque. Mais le plus étonnant : presque rien de la musique française contemp
 ; chose qui révolutionnait le monde. Christophe était à
 ke laffät de toutes les occasions d'en entendre; il avait
 4 63
-k Yes
 
 tes Jean-Christophe à Paris Far
 une large curiosité, sans aucun parti-pris : il brülait du | |
@@ -3610,14 +2633,10 @@ mieux fermer boutique, que de donner trois heures par
 an de nouvelle musique française, comme l'État prétendait l'y obliger. Était-ce que cette musique française >
 risquait de faire le vide dans les salles de concert? Ou 1
 bien, était-ce, par hasard, qu'il n'y avait pas de mu- :
-sique française ? |
-À
 | |
-\
 
 En attendant de se faire une opinion par lui-même,
 Christophe chercha à se renseigner auprès de la critique -
-musicale.
 
 Ce n'était pas aisé. Elle ressemblait à la cour du
 roi Pétaud. Non seulement, les différentes feuilles
@@ -3674,8 +2693,6 @@ science récente. Ainsi que monsieur Jourdain, lorsqu'il | û
 
 beau! Ah! la belle chose que de savoir quelque \ F
 
-FD chose !.…
-
 * Ils ne parlaient plus que de sujet et de contre-sujet, 4
 4 d'harmoniques et de sons résultants, d'enchaînements ‘4
 de neuvièmes et de successions de tierces majeures. À
@@ -3692,10 +2709,8 @@ relle de l'âme, que, lorsqu'ils n'en faisaient pas une suc- à
 cursale de la peinture, ils la logeaient dans les fau- à
 bourgs de la science, et ils la réduisaient à des problèmes \
 de construction harmonique. Des gens aussi savants u
-devaient naturellement en remontrer aux musiciens \ 1
 _ passés. Ils trouvaient des fautes dans Beethoven, don- "1
 
-RAD EVA LA FOIRE SUR LA PLACE
 naïent de la férule à Wagner. Pour Berlioz et pour
 Gluck, ils en faisaient des gorges chaudes. Rien n'existait pour eux, à cette heure de la mode, que Jean- RE
 Sébastien Bach, et Claude Debussy. Encore le premier,
@@ -3722,11 +2737,9 @@ en deux armées : celle du contrepoint, et celle de l'harmonie. Comme les Gros-b
 ; les uns soutenaient âprement que la musique devait se
 lire horizontalement, et les autres qu'elle devait se lire
 verticalement. Ceux-ci ne voulaient entendre parler que
-d'accords savoureux, d'enchaînements fondants, d'har-
 | monies succulentes : ils parlaient de musique, comme 6
 4 d'une boutique de pâtisserie. Ceux-là n'admettaient
 à * point qu'on s'occupât de l'oreille, cette guenille : la mu-
-‘ 67
 
 Jean-Christophe à Paris.
 
@@ -3763,10 +2776,6 @@ n'en était pas blessé. Il l'avait tellement décrétée lui- |
 même qu'il ne pouvait de bonne foi contredire à ce juge- 1
 ment. Mais la suprématie de la musique française k.
 l'étonnait un peu : à vrai dire, on en voyait peu de
-
-68 ? |
-
-: AT UEE MNT LAN
 
 | AP | LA FOIRE SUR LA PLACE
 
@@ -3807,8 +2816,6 @@ mide, qu'ils lui avaient promis. Ils se récriaient, d'un » air offensé : c'é
 
 4 vestiges d'un âge moribond ; personne n'y songeait plus.
 
-ÿ 5 69 à Paris. —6
-
 © Jean-Christophe à Paris |
 de CAR us |
 — À la vérité, Cavalleria Rusticana trônait à l'Opéra- #
@@ -3841,10 +2848,6 @@ un qui ne composât des opéras. — Mais c'était là sans
 doute encore un accident sans importance. Il falfait les
 juger, comme ils voulaient être jugés, d'après leur musique pure. Christophe chercha leur musique pure.
 
-: AA LA
-CAN A
-
-er PE a Loue x » ‘
 Théophile Goujart le conduisit aux concerts d'une
 
 | Société, qui se consacrait à l'art national. Là, les gloires
@@ -3880,8 +2883,6 @@ n'avait eu que la pluie et le brouillard, était assez porté
 soleil, lorsqu'il n'y en a pas. Ceux-ci allumaient bien
 leur petite lanterne; seulement, c'était comme celle des ï
 vers luisants : elle ne réchauffait rien, et éclairait à
-
-{ DELA
 
 Jean-Christophe à Paris FAP
 peine. Les titres des œuvres changeaïent : il était par- |
@@ -3920,7 +2921,6 @@ cahiers de tout ce qui leur passait par la tête, inscri-
 
 |
 
-ER LA FOIRE SUR LA PLACE
 _ vant naïvement au-dessous, en grosses lettres, que
 | c'était le portrait d'une maison ou d'un arbre.
 A côté de ces imagiers aveugles, qui voyaient avec
@@ -3941,17 +2941,13 @@ prophétiques, des pêcheurs apostoliques. Goethe parlait
 déjà des artistes de son époque, « qui reproduisaient
 les idées de Kant dans des tableaux allégoriques ».
 Ceux du temps de Christophe mettaient la sociologie en es
-doubles croches. Zola, Nietzsche, Maeterlinck, Barrès,
 Jaurès, Mendès, l'Évangile et le Moulin Rouge, alimentaient la citerne, où les auteurs d'opéras et de symphonies venaient puiser leurs pensées. Bon nombre d'entre
 eux, grisés par l'exemple de Wagner, s'étaient écriés :
 « Et moi aussi, je suis poète! » — et ils alignaïient avec
 confiance sous leurs lignes de musique des bouts-rimés,
 | ou non rimés, en style d'école primaire ou de feuilleton
-décadent.
 Ù Tous ces penseurs et ces poètes étaient des partisans
 de la musique pure. Mais ils aimaiïent mieux en parler
-1 59 à Paris. — 6.
-ue
 
 Jean-Christophe à Paris SR
 qu'en écrire. — Il leur arrivait pourtant quelquefois
@@ -3983,9 +2979,7 @@ temps du roi Louis XIV, qui s'évertuaient à parler le
 français et qui avaient fini par oublier leur langue, les
 musiciens français du dix-neuvième siècle avaïent si }
 longtemps désappris la leur que la musique française M
-74 |
 
-NS EAN RS LA FOIRE SUR LA PLACÉ
 _ était devenue chez certains un patois allemand, chez la 3
 si plupart un langage farci d'expressions étrangères. Ce
 _ n'était que depuis peu qu'un mouvement avait commencé
@@ -4016,35 +3010,18 @@ d'accords, — afin d'exprimer...? Peu importe! Des
 | expressions nouvelles. Comme l'organe crée le besoin,
 4 dit-on, l'expression finit toujours par créer la pensée :
 ; l'essentiel est qu'elle soit nouvelle. Du nouveau, à tout,
-NN 75
 
-u n
-/
-à d
-Î Pari
 |
-3 vourtant quelc s
-che ait
-( be. —
-FE t une 1
 4 5
 Î t sous
 |
-tit idre maintenant
 A ï L dre la langue, et CEE
 th Christoph le 2 vs es >
 st On pouvait exe OÙ x pes de dus
 és s ne comprenaient À nds à oi vo
-[Hi
 |
 |]
 
-- ne: i
-$ t : {
-; . NE *
-PR # 5 !
-2} -
-x { :
 L LA FOIRE SUÈLA PLACÉ re
 | : F
 = à pu an Î était devenue chez certains & patois allemand, chez la 4
@@ -4056,9 +3033,7 @@ leur français était un ou gardait un fumet fi
 ds. germanique. Il était dor rel qu'un Allemand pût
 Ni s'y tromper et déclarà issurance ordinaire, f
 “ire que c'était là du bier allemand et qui ne Fe
-é signifiait rien, puisque nprenait rien. 4
 aér Christophe ne s'en fa faute. Les symphonies
-: F
 LEE françaises lui semblaier lectique abstraite, où }] -*
 ar les thèmes musicaux s' u se superposaient 4 a
 ms, les uns aux autres, à 1 d'opérations arithmé- il
@@ -4072,19 +3047,9 @@ ee: neuf dixièmes de l'œuv itre échafaudait des va- :
 rs riations sur un thème, qu ntrait qu'à la fin, des- ù :
 1 eu à peu du c u simple. C'étaient des } 4 ë
 coin mit cendantpeu à peu du com} nple. C'étaient des à ù
-nuls dietitrès Rens po, ponvoÿ sms Cela Are 5 F
 iii rt 8 des e rts inouis. ls mettaient pe”
 RS années à écrire une faisie. Ils se faisaient des w +6]
-es - À ae
-s ; it
-F e à
-. LA 7 ;
-EN
-é LS
-£
-À 1
 | D # |
-l
 
 Jean-Christophe à Paris Reg re
 prix! Ils avaient la frayeur maladive du « déjà dit ».
@@ -4119,7 +3084,6 @@ mées, à la façon de Gounod et de Massenet, mais avec |
 
 de Gluck, à propos des Français :
 — Laissez-les faire : ils retourneront toujours à leurs À
-ponts-neufs. |
 Seulement, ils s'appliquaient à les rendre très savanis. Ils prenaient des chansons populaires pour
 thèmes de symphonies doctorales, comme des thèses
 de Sorbonne. C'était le grand jeu du jour. Toutes les {
@@ -4150,9 +3114,7 @@ pensaient un enthousiasme frénétique, comme les gestes
 du chef d'orchestre, et les clameurs de la musique...
 — Tu parles! disait Christophe.
 (Car il était devenu un Parisien accompli.)
-SN
 
-BND ATANE AIRES
 Mais il est plus facile de pénétrer l'argot de Paris, \
 que sa musique. Christophe jugeait, avec la passion
 qu'il mettait à tout, et l'incapacité native de tout Allemand à comprendre l'art français. Du moins, il était
@@ -4190,7 +3152,6 @@ grands musiciens, un Berlioz, un Saint-Saëns, — pour
 ne pas nommer les plus récents, — ne se fût pas
 embourbé en soi-même, acharné à se détruire, renié,
 … faute d'énergie, faute de foi, faute surtout de boussole
-intérieure. |
 Cette mauvaise utilisation de soi-même était aussi
 sensible dans les exécutions des œuvres musicales que
 k dans les œuvres mêmes. Il y avait contradiction entre
@@ -4207,7 +3168,6 @@ artistes ; et les instrumentistes étaient en général supé-
 du médiocre, — par suite du manque de discipline, du
 manque de persévérance dans l'effort, du groupement |
 _ défectueux de l'orchestre sur la scène de concerts, de la
-: 79
 
 Jean-Christophe à Paris
 disproportion entre les diverses familles d'instruments, |
@@ -4236,7 +3196,6 @@ rien changé à l'interprétation. Le Gluck du Debussysme
 m'était pas encore venu.
 
 Christophe, avec le dédain insolent des Allemands
-d'aujourd'hui, pensait :
 
 — Les Français ne savent que se gaspiller en inventions dont ils ne font rien. Il leur faut toujours un maître
 d'une autre race, un Gluck ou un Napoléon, qui vienne |
@@ -4276,14 +3235,8 @@ _ religieuse, morale et artistique, expliquant l'Évangile
 
 n_ de la musique en termes abstraits au petit peuple des
 
-F 81 à Paris. — 7
-
-Fr ‘
-
-Re at, FAO ER
 Re “A ! Fait Le Fa ch 7 NOT RARE FA
 ; Jean-Christophe à-Paris Pic
-+ PR. Lt MA ETES
 | Élus, et damnant avec tranquillité l'Orgueil et l'Hérésie.
 Il leur attribuait toutes les fautes de l'art et les vices
 de Thumanité : la Renaissance, la Réforme, ele |
@@ -4293,7 +3246,6 @@ avoir été affublés de costumes infamants. Le colossal
 G Hændel recevait les étrivières. Seul, Jean-Sébastien |
 Bach obtenait d'être sauvé, par la grâce du Sei
 gneur, qui reconnaissait en lui un protestant par
-erreur. 1e
 Le temple de la rue Saint-Jacques exerçait un apo-
 
 ; stolat : on y sauvait les âmes et la musique. On enseignait méthodiquement les règles du génie. De laborieux. Sa |
@@ -4315,12 +3267,8 @@ effort pour combattre l'esprit casanier des Français.
 Cés gens-là se calfeutrent chez eux; ils ont peine à
 sortir. Aussi leur musique manque d'air : c'est de law
 musique de chambre close, de chaise longue, de la =
-82 HO -
-ALT
-\ PRIT. UT
 
 > A CSS RAR pres a D a
-Li ___ LA FOIRE SUR LA PLACE Sa
 LE musique qui ne marche pas. Tout le contraire d'un !
 | Beethoven, composant à travers les champs, dégringo- ji
 k lant les pentes, marchant à grandes enjambées, sous le
@@ -4394,10 +3342,7 @@ ouvriers, laborieux, consciencieux, étaient pleins de
 vertus. Christophe sortit de leur compagnie, extrêmement édifié, mais pénétré d'ennui. C'était très bien, très
 bien.
 Qu'il faisait beau, dehors!
-/
-Æ.
 
-Æ
 |
 + 11 y avait pourtant à Paris, parmi les musiciens, quel- :
 ques indépendants, dégagés de toute école. C'étaient les
@@ -4425,7 +3370,6 @@ taire, et écouta de toutes ses oreilles. Après le premier
 CRT Jean-Christophe à Paris Rs
 | acte, il se pencha vers Sylvain Kohn, qui lui d emandait, les yeux brillants : ACTES
 — Œh bien, mon vieux lapin, qu'est-ce que vous en
-< dites ? ER 74
 Ë ; et il dit : E A
 — Est-ce que c'est, tout le temps, comme cela? :
 — Mais il n'y a rien. +
@@ -4454,7 +3398,6 @@ cherchait à être vraie, plus elle faisait sentir combien $
 la langue française convenait mal à la musique : trop +.
 logique, trop dessinée, de contours trop définis, — un
 
-D OO creme
 monde parfait en soi, mais hermétiquement clos.) — : AE
 
 - Néanmoins, l'essai était curieux, et Christophe en ap- ASP
@@ -4495,13 +3438,7 @@ _ daud, comme une grosse fille du Rhin. Mais le gnan-
 5 deries et ses bêtasseries de salon : — « les cheveux », $ Ke
 … lea petit père », les « colombes », — et tout ce mysté- v£
 Me rieux à l'usage des femmes du monde. Les âmes pari- É
-A: NL £a 4
 
-D ; g.
-
-FANS UES
-
-; AT CEA TUE Sert pe!
 Jean-Christophe à Paris
 siennes se miraient dans cette pièce, qui leurrenvoyait, |
 comme un tableau flatteur, l'image de leur fatalisme “2
@@ -4511,7 +3448,6 @@ qu'il voulait. Nul ne savait ce qu'il faisait.
 | — Ce n'est pas ma faute! Ce n'est pas ma faute!
 gémissaient ces grands enfants. Tout le long des cinq
 actes, qui se déroulaient dans un crépuscule perpétuel
-— forêts, cavernes, souterrains, chambre mortuaire, — ;
 de petits oiseaux des îles se débattaient, à peine. Pau-
 ; vres petits oiseaux! jolis, tièdes, et fins. Quelle peur
 ils avaient de la lumière trop vive, de la brutalité des
@@ -4519,10 +3455,6 @@ gestes, des mots, des passions, de la vie! La vie n'est
 pas raffinée. La vie ne se prend pas avec des gants.
 Christophe entendait venir le roulement des canons, À
 qui allaient broyer cette civilisation épuisée, cette petite
-Grèce expirante. 6 |
-{
-
-LIN è F 4 i
 
 k Était-ce ce sentiment de pitié, mélancolique et orgueil-
 
@@ -4560,7 +3492,6 @@ Fs curieux d'observer, étaient peu abordables. Ils sem-
 
 x possédait Christophe. A part un ou deux, ils parais- ,
 
-< saient peu lire, peu connaître, peu désirer connaître.
 Presque tous vivaient à l'écart, les uns hors de Paris, à
 les autres à Paris, mais isolés, de fait et de volonté, 6
 
@@ -4572,10 +3503,6 @@ qu'ils fussent, ils étaient divisés en petits CRAN
 
 rivaux, qui ne pouvaient vivre ensembl
 
-: 89 à
-
-x + UT, 1 « 7 y, Le Gen nR s -OE.
-_ Jean-Ghristophe à Paris CORRE
 d'une susceptibilité extrême, et ne supportaient ni leurs ; on à
 ennemis, ni leurs rivaux, ni même leurs amis, quand
 ceùx-ci osaient admirer un autre musicien qu'eux, où # à
@@ -4607,10 +3534,7 @@ grimpante ne pouvait se passer d'étai : elle ne pouvait
 rasser de littérature. Elle ne trouvait pas en elle
 le raisons de vivre. Elle avait le souffle court,
 re, pas de volonté. Elle était comme une
-go x
 # ES ANE LE
-
-F AE . LA FOIRE SUR LA PLACE
 
 | femme alanguie, qui attend un mâle qui la prenne.
 04 Mais cette impératrice de Byzance, au corps fluet, ex- $
@@ -4646,9 +3570,6 @@ _ dire leur ami, — et cette petite armée de savants
 __ obscurs et laborieux, qui, sans ambition, insoucieux à
 à . d'eux-mêmes, relevaient pierre à pierre la grandeur de
 - la France passée, ou qui, s'étant voués à l'éducation s
-ee
-= à LA
-4 | se
 
 h Jean-Christophe à Paris | STATS
 musicale du pays, préparaient la grandeur de la France dE
@@ -4659,7 +3580,6 @@ entrevu, en passant, deux ou trois d'entre eux; il ne les
 connaissait qu'à travers des caricatures de leur pensée.
 Il ne voyait que leurs défauts, copiés, exagérés par les
 singes habituels de l'art et les commis-voyageurs de la 1
-presse. :
 Ce qui l'écœurait surtout dans cette plèbe musicale, ;
 c'était son formalisme. Jamais entre ces gens il n'était L
 * question d'autre chose que de la forme. Du sentiment,
@@ -4682,9 +3602,7 @@ ment à la puissance de la vie, et à celle de l'exprimer
 au moyen de l'instrument imparfait, d'arracher à la
 misérable épinette le cri profond de la vie. — Mais
 combien de gens s'en doutent en France? Pour ce
-g2 À
 
-; Ë LA FOIRE SUR LA PLACE
 F - peuple de chimistes, la musique semble n'être que l'art
 mo S de combiner des sons. Ils prennent l'alphabet pour le
 livre, le signe pour la pensée. Christophe haussait les
@@ -4740,69 +3658,21 @@ Il tourna le dos à ces docteurs Wagner, couvant leurs Be:
 alambics, pour faire éclore quelque Homunculus en
 bouteille; et, s'évadant de la musique française, il Sa
 tâcha de connaître un peu le milieu littéraire et la F3)
-société parisienne. ‘ 3
 |
-"Ai
-A
 
 L LATE ï 5) (PR LE TS TUE Pers HER PEN tu DNA Pi NE EEE
-PH CASE NRE ANCR UT TE ES FUD u RATE ARE A FAT ORIENTÉ OS
-FOR ARENA SEEN Per He ER PO AT Re Os ENS > INT
-RES AT SPP CHU N RME HT FALSE AU SR free ENCRES NUE
 LÉ NO ER RANES PE SES ARE SN TA ee
 PRE SES De ee PR TO NE NT LA Rte Le
-DPF PIN EEE CRUE Fe On LIRE RUES LS Ne RTE
-3 RÉEL NE Ce EE Ar EST VEN CE ep PL VC RS
 | RP Un AU RE OU ALT Er Pme LME 1e ELRAEAR cars
 | | TURC FRS ASE D FR
-1 CT r É k A SE © 1529
-_ 1 RISÉDÉENSERES : LE SETSNNERNEETES
-LR ; Soc x ES ‘LDH ELERÉENNER
-2} 24 NN ENS * Re ‘= FR. PERL
-MT, $ à NE UT ù
-+: TO NES 4 . * [TEX + LT TASSE
 | : PEER S ; RP
 ont ar = ? ea est En,
-CORRE NS He, di.” na à KES : ROSES
-LL TANT UN © : LOT MER
 FR REA. + É7. j " re L'ÉTAT rte
-1 A ERP 25 EN ER ee é;
-: TASER : _ L'ÉRRNSESS
-er « 45100 USER A 0
 re a sr À 7 1 el RTC E Le >
 Re Le TTC ane Ar rte à A : . AYANT pS Frs + ANRT S
 var ART LÉ ES IT pes Mes ie 4 #5 : l
-7 7008 OICEROER De UT À Ro PTS TT ATARI EIRE FAT MNADRES
-11 AT ER RON EE PR LR Ar TA FA ET: Ge 58e a
-Dee me, ë à APTE AS D RON PT EE NS dpt E8 1 - FLN Sort LS
-DAME AOL ENS TER TERRE NAT A EME à
-LS NN ARS ANT UN ARMES MAR ER UE -
-RE NA MEME: UN PS PARENT TESTS 2 à {
-A he AS | METEO PARER g. PR
 
-Ale PRE RUN MIRE EE RSS ES
-
-ETES Au DD NUE CONTRER ER EE LI NI FRE AN EIRE
-
-ue PAT: DA MED PEU ES SU HER ARTS D &:
-
-ETES x ; Ë ET DENTS
-&e TR de
-
-RE RE ANRT —.
-4 : 757 ARREON
-
-Rs - LERPIER
-Re 71 et
 ee A5 PAR
-x 4 3 \ Pne À, L2RNCREE
-+ 4 5 4 3 es il
-
-D eR : HERO
-DA NS 2° 1, LOLSCLNENIEES
-
-RE EE ” De,
-REA LS EM a) L +, L ñ 21 6e di: D SN PE
 
 Ce fut par les journaux quotidiens que Christophe
 fit d'abord connaissance, — comme des millions de
@@ -4822,7 +3692,6 @@ son fils, âgé de douze ans, qui couchaient avec la même
 fille. Le troisième jour, il lut une nouvelle sur un frère,
 qui couchait avec sa sœur. Le quatrième, sur deux
 - sœurs qui couchaient ensemble. Le cinquième... Le cinquième, il jeta le journal, avec un haut-le-cœur, et dit à
-Sylvain Kohn :
 
 — Ah! ça, qu'est-ce que vous avez? Vous êtes malades ?
 
@@ -4835,7 +3704,6 @@ _ — C'est de l'art.
 
 ù Le Jean-Christophe à Paris EL His
 __ Kobn rit de plus belle: F “ PER 0
- — En aucune façon. Voyez plutôt. FRS RE a 74
 Il montra à Christophe une enquête récente sur l'Art Re
 et la Morale, d'où il résultait que « l'Amour sanctifiait
 tout », que « la Sensualité était le ferment de l'Art », 28
@@ -4866,7 +3734,6 @@ cables. Ce mélange de pédantisme et de gaillardise #
 Le plus consternant, c'était de voir de braves gens et - PTS %
 de vrais artistes, des hommes qui jouissaient dans les <&
 lettres françaises d'une juste notoriété, s'évertuer à ce. È 3
-\ . # 2 US
 
 | LA FOIRE SUR LA PLACE
 | métier, pour lequel ils n'étaient point doués. Certains
@@ -4887,22 +3754,18 @@ Christophe, qui ne connaissait pas tous les dessous
 de ce triste métier, et qui, s'il les eût connus, n'en eût
 pas été plus indulgent : car rien au monde n'excusait
 … à ses yeux un artiste de vendre l'art pour trente
-deniers.
 | — (Même pas d'assurer le bien-être de ceux qu'il
 | aime?
-...  — Même pas.
 | — Ce n'est pas humain.
 _ —Ilne s'agit pas d'être humain, il s'agit d'être un
 homme... Humain! Dieu bénisse votre humanitarisme
 au foie blanc, où il n'y a plus une goutte de sang!
 On n'aime pas vingt choses à la fois, on ne sert pas
-- plusieurs dieux!...)
 . .… Christophe, qui, dans sa vie de travail, n'était d
 3 guère sorti de l'horizon de sa petite ville allemande, ne
 __ pouvait se douter que cette dépravation artistique, qui
 2 99
 
-Eee x 4. TAROT
 Jean-Christophe à Paris. A
 x: s'étalait si crûment à Paris, était commune à presque ;
 ë toutes les grandes villes; et les préjugés héréditaires
@@ -4931,9 +3794,7 @@ ils s'ignoraient mutuellement. Jamais Sylvain Kobhn
 n'en eût parlé à Christophe. De bonne foi, il était convaincu que ses amis et lui incarnaient l'art français, et
 qu'en dehors de ceux que leur opinion et la presse des
 | boulevards avaient sacrés grands hommes, il n'y avait
-‘ 100
 
-A RS . LA FOIRE SUR LA PLACE
 : pas de talent, il n'y avait pas d'art, il n'y avait pas de
 __ France. Des poètes qui étaient le meilleur titre d'hon-
 |. neur des lettres françaises d'aujourd'hui, la couronne
@@ -4964,8 +3825,6 @@ autres n'écrivaient que pour attirer l'homme : elles étaient
 aussi mensongères dans leurs livres que dans leurs salons; elles s'embellissaient fadement, et flirtaient avec le
 : lecteur. Depuis qu'elles n'étaient plus bigotes etn'avaient
 plus de confesseur à qui raconter leurs petites malpro- à
-IOI
-* Î
 
 Jean-Christophe à Paris FT 2
 
@@ -5004,5 +3863,3 @@ aux paroles. Impossible d'entendre tant de jolis airs de à
 quelles souriait le ciel limpide et la ligne harmonieuse |
 _des collines de l'Attique, — tant de talent, tant de
 grâce, une douceur de vivre, un charme du style, une ‘e
-102 ;
-À _—

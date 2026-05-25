@@ -7,15 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 36430
 ---
-
-L  CINQUIÈME CAHIER DE LA QUATRIÈME SÉRIE
-TEXTES ET COMMENTAIRES
-(39851
-Ft !
-A,10.ic
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
@@ -24,57 +16,22 @@ il suffit d'envoyer un mandat de trois francs cinquante
 8, rue de la Sorbonne, Paris. On recevra en spécimens
 six cahiers de la deuxième et de la troisième série.
 Nous mettons ce cahier dans le commerce: nous le
-vendons deux francs .
-Of ù
 
 | ns PRE ACXAT CAN DAV À VAT OR UE
-si nt LED me ur LI TROT AfAAAET AU RATES sw ui
-RAR AU or D : d DEN TR TEA dl à ©
-« = LES FREE 5 dr) ( + : NAN Piel
-{ MTS NN SEAC PASSES P j À J OC DER
-A ‘ RUE à
-24 AT NS RPRRRE ; ; ù TOR
-1 PS0 N'ARESNNEEr Want { MRC
-are 2) NS SM & {s ER |
-AA * PER cs » RSA DS n l RÉ É:
-Lee LOU WE DRE Loue 7 r k , We
-AU, RAR à À FE
-AR DRE : \ Sail
-CTP ! PT +
-De ; {160
-HA / A La ei]
 FUEL ne ; à RAI
-PA ARE nt Le à s \ 11 1e
-LE PTS A » } ÿ ét!
-LTÉE MN :
 #86 »: # iQ ; à » ê ir R al
-Lt en + : ms
-É LUE Ne at Fi ; s-\4 "
-ARRET LRO ANET + NUE
 À S MERS DA et LT PRE À n RON
-D CONCS à 9 ON à CE » É LP era
 y APE UN ec PH Lit à nl k V4 CNRS
-; AL TE PRO SRE 14
-L SALE Fo 17 À Ù x :
-NEC C OT ER AIRES Nr dat 44
-cat TRANS HT “re
-Fe * RO TEE à L'EAU En
 
-ÉDITIONS D'ART
-ë ÉDOUARD PELLETAN, 195, boulevard Saint-Germain, Paris
 Pour paraitre en décembre '
-ANATOLE FRANCE 1e
 de l'Académie française
-FUNÉRAILLES D'ÉMILE ZOLA
 Une plaquette petit in quarto carré, ornée de sept compositions de SreINLEN, dont un portrait d'Emile Zola,
 gravées par FRomenT et L. PEerricuon. Tirage en noir et
-rouge à 75 exemplaires seulement.
 
 75 exemplaires — numéros 1 à 99 — sur vélin à la cuve
 des papeteries du Marais, filigrané KTHMA ES AEI, au
 prix net de 20 francs
 
-Îl a été tiré en outre:
 6 collections d'épreuves d'artiste, signées, sur japon ancien,
 au prix net de 20 francs
 
@@ -82,36 +39,15 @@ au prix net de 20 francs
 prix net de 15 francs
 
 di TUE i And EL EN mt 26 E RP : L'URT }} EU
-ER 2 ARS MR ES D'ART
-à DORE DAT MELUN à T AULARE UE
-44 PV Le y à \ à net 4
-Vis ATARI À 4 (NES
-MR LEE te, +0
-UE More ENT LAN 74 x 'L 0
 LENS De ane S 11 HAUTES
-1e MT AR : - T'AS
 ST ais rs Les È
 Fun LOC EN ne : “re
-ie ile Zola 1
-AURA A à SANTE Mn 012 S 5 ESC
-AE "POS NA TOME r + ai
-LS, 09: EURE QE #: 4 15e à Û 1h
-CERTES Res À Û “ 3 +74 NEA
-AVAPOES Rx È LUE 5, SES
-D (rs
-Fe: EE) ; AUS
-m7 SAONE 4-2 2: 1
-LV ONE ! En
-« ix Ban MS ï DRE Te Pi.
-, mo A Fe. NC ER RE SJ © » ‘ Lot re à
 + TUE CE 4 Lit a fi +
 Ka 24 Hp RES ARS Des CCE dr er on
-x A PAIE 14 TERRA ; N Fe ii LP
 | AMEN HAT EERE den TE AT A CES
 
 Émile Zola est mort le lundi 29 septembre 1902. +
 Ses funérailles ont eu lieu le dimanche 5 octobre au
-cimetière Montmartre.
 
 Trois discours ont été prononcés :
 
@@ -122,10 +58,6 @@ le deuxième par M. Abel Hermant, président de la
 Société des Gens de Lettres;
 
 le troisième et dernier par M. Anatole France.
-
-pe
-
-DISCOURS DE M. CHAUMIE
 
 Messieurs, il y a quelques jours à peine, le grand écrivain autour du cercueil duquel nous sommes aujourd'hui
 rassemblés, était en pleine vie, en pleine force. Son talent
@@ -164,7 +96,6 @@ d'en sentir les frissons, d'en dégager l'âme, la puissance
 saisissante de ses descriptions, le relief de ses tableaux ;
 ils mettront en pleine lumière les grandes pages qui doivent
 
-Funérailles d'Emile Zola
 rester, jetant peut-être un voile sur certaines, qui ont provoqué chez les uns tant de protestations et de colères,
 chez les autres tant de froissements de délicatesse et de
 pudeur, et qu'il a considérées comme inévitables, dans son
@@ -207,11 +138,6 @@ demain disparu, le puissant souflle généreux qui l'a inspiré
 donne une grandeur supérieure, assure une gloire plus
 haute encore.
 
-; 6 D:
-
-+ pis LE
-DISCOURS DE M. CHAUMIÉ
-
 Qu'importe que l'idéal entrevu soit souvent inaccessible ?
 Qui a cherché à l'atteindre a monté.
 
@@ -241,10 +167,6 @@ ceux qui pleurent l'immense perte faite par les lettres, et
 c'est ainsi que suivi d'un cortège grandiose, au milieu des
 hommages, laissant derrière lui un nom glorieux et des
 pages impérissables, le maître écrivain entre dans la
-tombe.
-
-DISCOURS DE M. ABEL HERMANT
-Messieurs,
 
 Au bord de cette glorieuse tombe, devant laquelle même
 les inimitiés littéraires ne se sont pas tues, je voudrais de
@@ -277,8 +199,6 @@ manque s'est ajoutée pour lui à l'angoisse du génie qui se
 cherche. Mais le mauvais sort, en s'acharnant à gêner son
 énergie, n'a fait que la multiplier. Il en avait accumulé au
 
-A Se,
-: DISCOURS DE M. ABEL HERMANT
 début de telles réserves que, plus tard, il ne s'est pas trouvé
 moins pourvu contre la fortune pernicieuse que contre la
 pauvreté salutaire, et il a gardé dans le luxe, qui en eût
@@ -315,11 +235,6 @@ Mais déjà Lourdes était ébauché. Maintenant il lui fallait
 pour personnages des villes, la cité de misère et de foi —
 la Rome éternelle — Paris qui travaille, qui pense, qui
 brise les idoles et qui fait les révolutions.
-
-‘
-9 à
-
-Funérailles d'Emile Zola
 
 Tandis qu'il posait une par une, avec son calme et sa
 sûreté coutumière, les assises de ce nouvel édifice, son
@@ -362,7 +277,6 @@ se défia moins de ce romantisme invétéré, il s'efforça
 É moins de s'y dérober que Flaubert, qui écrivit, dit-on,
 Madame Bovary par pénitence et pour asservir sa fantaisie
 
-DISCOURS DE M. ABEL HERMANT
 fougueuse au joug minutieux de la réalité. C'est qu'il avait
 de cette réalité une vision autre que Flaubert, et capable
 justement d'emplir les cadres d'une imagination romantique.
@@ -386,7 +300,6 @@ que précis. Ses personnages vraiment réels sont les personnes civiles, les gro
 ville, une mine avec ses mineurs : ils ont d'autant plus
 d'âme qu'ils embrassent plus d'individualités diverses, et
 les deux êtres qu'il a le mieux fait vivre sont la Foule et la
-Nature.
 
 Voilà où il a mérité son titre de naturaliste. Il ne fallait
 pas le lui refuser si vite, mais seulement s'apercevoir que
@@ -402,11 +315,7 @@ façon si àpre et si chagrine que ces deux mots inscrits en
 tête d'un de ses livres y font l'effet d'une ironie; — plus
 tard avec une sérénité profonde. Et je note que son optimisme, un peu artificiel peut-être aux jours de triomphe,
 
-II
-
-Funérailles d'Émile Zola
 est devenu sincère et imperturbable aux jours d'épreuve et
-d'amertume.
 
 Non moins que la nature innombrable, il a aimé la foule,
 pareille à un élément. La foule n'est jamais absente de son
@@ -444,8 +353,6 @@ Mais je ne sors pas de mes attributions littéraires en rappelant qu'avec une ab
 de la gloire, a fait bon marché de son repos, risqué la
 fortune acquise, joué sa gloire même. Le caractère ne se
 
-{
-DISCOURS DE M. ABEL HERMANT
 disjoint pas du génie. Et puisque je suis ici pour rendre
 l'hommage suprême au génie d'Émile Zola, son caractère
 m'appartient : je dois proclamer qu'il fut une conscience,
@@ -486,9 +393,6 @@ numéro 94%, deuxième année, du 18 octobre 1902. Anatole France a bien voulu r
 de Pages libres, un texte revu et définitif. C'est sur le
 méme texte que M. Pelletan a établi son édition d'art.
 
-DISCOURS D'ANATOLE FRANCE
-Messieurs,
-
 Appelé par les amis d'Émile Zola à parler sur cette
 tombe, j'apporterai d'abord l'hommage de leur respect
 et de leur douleur à celle qui fut durant quarante
@@ -496,8 +400,6 @@ années la compagne de sa vie, qui partagea, allégea
 les fatigues des débuts, égaya les jours de gloire et
 le soutint de son infatigable dévouement aux heures
 agitées et cruelles.
-
-Messieurs,
 
 Rendant à Émile Zola au nom de ses amis les honneurs qui lui sont dus, je ferai taire ma douleur et la
 leur. Ce n'est pas par des plaintes et des lamentations
@@ -510,8 +412,6 @@ d'entendre le président de la Société des Gens de
 lettres en définir le caractère avec une admirable pré-
 cision. Vous avez entendu le ministre de l'instruction
 publique en développer éloquemment le sens intellectuel et moral. Permettez qu'à mon tour je la considère un moment devant vous.
-
-Funérailles d'Émile Zola
 
 Messieurs, lorsqu'on la voyait s'élever pierre par
 pierre, cette œuvre, on én mesurait la grandeur avec
@@ -540,12 +440,10 @@ le livre imbécile et sans défense à toutes les oppressions, à toutes les mis
 combattit le mal social partout où il le rencontra.
 Telles furent ses haïines. Dans ses derniers livres,
 il montra tout entier son amour fervent de l'humanité. Il s'efforça de deviner et de prévoir une société
-meilleure.
 
 Il voulait que sur la terre, sans cesse un plus grand
 nombre d'hommes fussent appelés au bonheur. Il espé-
 
-È DISCOURS D'ANATOLE FRANCE
 rait en la pensée, en la science. Il attendait de la force
 nouvelle, de la machine, l'affranchissement progressif
 de l'humanité laborieuse.
@@ -579,8 +477,6 @@ justice et la vérité, m'est-il possible de garder le silence
 sur ces hommes acharnés à la ruine d'un innocent et
 qui, se sentant perdus s'il était sauvé, l'accablaient
 
-Funérailles d'Émile Zola
-
 avec l'audace désespérée de la peur. Comment les écar-
 
 ter de votre vue alors que je dois vous montrer Zola se
@@ -611,14 +507,12 @@ l'erreur, qu'ils désespéraient de détruire. Les ténèbres
 s'épaississaient. Un silence sinistre régnait. C'est alors
 que Zola écrivit au président de la République cette
 lettre mesurée et terrible qui dénonçait le faux et la
-forfaiture.
 
 De quelles fureurs il fut alors assailli par les criminels, par leur: défenseurs intéressés, par leurs complices involoniaires, par les partis coalisés de toutes
 les réactions, par la foule trompée, vous le savez et
 vous avez vu des âmes innocentes se joindre avec une
 sainte simplicité au hideux cortège des aboyeurs à
 
-. DISCOURS D'ANATOLE FRANCE
 . gages. Vous avez entendu les hurlements de rage et les
 cris de mort dont il fut poursuivi jusque dans le palais
 de justice, durant ce long procès jugé dans l'ignorance
@@ -631,7 +525,6 @@ jamais plus d'outrages furent jetés à un juste ! Qu'ils
 disent aussi avec quelle fermeté il les supporta ! Qu'ils
 disent si sa bonté robuste, sa mâle pitié, sa douceur se
 démentirent une seule fois et si sa constance en fut
-ébranlée. y
 
 En ces jours scélérats plus d'un bon citoyen désespéra du salut de la patrie et de la fortune morale de la
 France. Les républicains défenseurs du régime actuel
@@ -655,10 +548,8 @@ s'arrêtera pas. Il en sort un nouvel ordre de choses
 
 19 4
 
-Funérailles d'Émile Zola
 fondé sur une justice meilleure et sur une connaissance
 plus profonde des droits de tous.
-Messieurs,
 
 Il n'y a qu'un pays au monde dans lequel ces grandes
 choses pouvaient s'accomplir. Qu'il est admirable le
@@ -679,8 +570,6 @@ Envions-le : il a honoré sa patrie et le monde par une
 destinée et son cœur lui firent le sort le plus grand: il |
 fut un moment de la conscience humaine.
 
-ANATOLE FRANCE
-
 Il faut avoir lu, dans ce méme numéro de Pages
 libres, vingt centimes, en vente à la librairie des cahiers,
 un article de M. Gabriel Trarieux : Émile Zola, homme
@@ -688,9 +577,6 @@ d'action. Que l'on partage ou non la pensée de M. Trarieux, cet article, je cro
 sage, le plus historique de tous ceux que l'on a publiés
 sur Zola dans les jours qui ont suivi sa mort. Nous
 devons en reproduire plus de la moitié, toute la fin :
-
-GABRIEL TRARIEUX
-ÉMILE ZOLA, HOMME D'ACTION
 
 Son œuvre est là, née de sa doctrine et — Ia méthode
 mise à part — en conformité avec elle. Elle nous promène lentement à travers les cloaques, les jardins de
@@ -715,10 +601,6 @@ qu'on n'aime… W
 S'il faut préciser ce qui manque à cette œuvre rude et
 massive, ce sera sans doute un soupir, le pressentiment
 d'autre chose, une revanche à tant de défaites, à tant
-
-22 “
-
-.  ÉMILE ZOLA, HOMME D'ACTION
 
 de douleurs amassées. Je ne ferai pas à Zola le reproche, pudique ou perfide, d'en avoir « trop mis » dans
 ses fresques. Trop osé, non. Pas assez plutôt, puisqu'il
@@ -753,10 +635,6 @@ bien que ses derniers livres, les « Trois Villes », les
 « Trois Évangiles », s'efforcent vers des synthèses plus
 hautes, abordent des notions plus complexes, les conflits
 
-À
-
-Gabriel Trarieux
-
 de la vie et de la foi, l''ébauche des rénovations sociales.
 Il est sans doute permis de dire qu'il s'y montre moins
 à son aise que dans les cyniques et fortes peintures de
@@ -787,11 +665,9 @@ adorable, il a fait mouvoir en ombres tragiques les
 masses anonymes des foules. La Foule a été son héros,
 en elle il a mis tout l'espoir, toutes les chaleurs d'enthousiasme qu'il déniait à l'individu. C'est assez pour
 
-“ ÉMILE ZOLA, HOMME D'ACTION
 beaucoup de gloire, et pour survivre dans le temps.
 Entin son effort, plus haut que son œuvre, commande la
 stupeur et le respect.
-*
 # %
 
 Et nous arrivons à son Acte. Rien de plus logique, en
@@ -814,19 +690,13 @@ atteindre, émouvoir toute pensée vivante. Enfin Zola
 touchait à l'âge où l'artiste le plus obstiné entend
 sonner un glas intime qui lui conseille une action plus
 humble, un dévouement plus immédiat : Byron a eu
-Missolonghi, Lamartine a eu 48, Victor Hugo a eu
 
 Jersey, Tolstoi à croisé Soutaieff... On dirait qu'une
 fatalité les pousse, pour être bien sûrs d'épuiser leur
 forcé, à tâter toutes, les issues. Émile Zola écrivit
 J'accuse !.… Ici, pour la première fois, son idéal fut
 
-IL
-
-Gabriel Trarieux
-
 réalisé. Il eut la divination géniale, la précision scientifique, et l'expérience, pour le coup, vint contrôler son
-hypothèse.
 
 Je ne reviens pas sur l'histoire. Elle est trop près de
 nous, vit encore. Je note un point laissé dans l'ombre.
@@ -858,7 +728,6 @@ sorte, nous en sommes tous restés debout. ;
 Et il en reste, lui, plus grand. C'est beaucoup, c'est
 
 di ie re EE e Lo La
-ÉMILE ZOLA, HOMME D'ACTION
 
 trop peu de dire que son œuvre impliquait un tel acte,
 qu'il n'a fait qu'appliquer sa méthode. Oui, certaine- ;
@@ -893,13 +762,9 @@ d'amertume. Il me semble, à distance, que ce visage
 sort des ténèbres où Carrière se plaît à noyer ses portraits. Nous parlâmes littérature, théâtre. Je risquai, sur
 la fin, une allusion aux événements politiques. Il répondit deux mots, se tut, puis reprit de sa voix mordante:
 
-à
-
-Gabriel Trarieux
 « Cette affaire nva rendu meilleur. » Tout ce qu'on
 pourrait dire de plus sur les rapports mystérieux de
 son action et de son œuvre serait moins simple, et
-done moins beau.
 Il est mort, comme Balzac, en pleine force, après
 avoir fait sa carrière, sans avoir connu le déclin. C'est
 une mort enviable entre toutes. On a déploré qu'il n'ait
@@ -921,10 +786,6 @@ symbolique. Moralement aussi, il était en route, émer-
 fenêtre au delà de laquelle est l'air pur. C'est la mort
 qu'il a rencontrée. Qui oserait dire avec certitude |
 qu'elle a terminé sa Recherche ? |
-GABRIEL TRARIEUX |
-M
-
-he 20 % #
 
 On me permettra de reproduire ici un article qui fut
 publié pour la première fois dans le Mouvement Socialiste, numéros 20, du premier novembre, et 21, du
@@ -932,7 +793,6 @@ publié pour la première fois dans le Mouvement Socialiste, numéros 20, du pre
 ne reproduisons pas les articles publiés dans les cahiers. .
 Nous reproduisons cet article précédemment publié dans
 le Mouvement Socialiste parce que la région de nos
-abonnés actuels a, — malheureusement, — gardé peu
 d'éléments communs avec la région des socialistes qui
 en novembre 1899 lisaient le Mouvement.
 
@@ -945,10 +805,6 @@ critique affectueuse et pieuse est plus intelligente que
 la critique raide. Elle est celle aussi qui doit paraître
 après la piété de la mort.
 
-Le
-
-LES RÉCENTES ŒUVRES DE ZOLA
-
 Je retiens parmi les récentes œuvres de Zola :
 
 Sa Lettre au Président de la République, publiée dans
@@ -956,7 +812,6 @@ l'Aurore le jeudi 13 janvier 1898, après qu'un Conseil
 de guerre eut acquitté Esterhazy ; sa Lettre à Monsieur
 le Ministre de la Guerre, publiée dans l'Aurore du
 22 janvier 1898, après que le ministère eut engagé des
-poursuites restreintes ;
 
 Son roman Fécondité, le premier des Quatre Évangiles, écrit dans l'exil en Angleterre, d'août 1898 à
 mai 1899, publié en feuilleton dans l'Aurore, du lundi
@@ -971,17 +826,12 @@ Acte, publié dans l'Aurore du mardi 12 septembre ;
 
 Et enfin, après la grâce présidentielle, sa Lettre à
 Madame Alfred Dreyfus, publiée dans l'Aurore du
-vendredi 22.
 
 Le Conseil de guerre, qui s'était réuni le 10, acquitta
 Esterhazy le 11 janvier. Ce fut un rude coup porté à la
 justice. Plusieurs se demandèrent si la justification de
 
 ,
-À
-
-Al :: TEE ARR
-LES RÉCENTES ŒUVRES DE ZOLA
 
 _ l'innocent serait jamais réalisée. Zola ne bougea pas :
 « Mais puisque nous avons raison! » répétait-il assis
@@ -1052,9 +902,6 @@ point, apparaît comme tout à fait enfantine, une simple
 
 (1) De l'esprit géométrique.
 
-£
-
-LES RÉCENTES ŒUVRES DE ZOLA
 berquinade, une invention de romancier timide, à côté
 de la superbe et farouche réalité. » (1)
 
@@ -1073,7 +920,6 @@ singulièrement. Le début de la Lettre au Président de
 la République est encore un peu gêné. La conclusion
 est sans aucun doute un des plus beaux monuments
 littéraires que nous ayons, et je me permets d'y
-insister.
 
 Je ne connais rien, même dans Les Chätiments, qui
 soit aussi beau que cette architecture d'accusations,
@@ -1123,14 +969,11 @@ Notre-Seigneur-Jésus-Christ selon saint Matthieu, com-
 
 (1) La revue blanche du 15 octobre 1899.
 
-3% |
 #
 
-LES RÉCENTES ŒUVRES DE ZOLA
 mence par le Livre de la génération de Jésus-Christ,
 fils de David, fils d'Abraham :
 
-« Abraham engendra Isaac. Isaac engendra Jacob.
 Et Jacob engendra Judas et ses frères.
 
 « Et Judas engendra de Thamar Pharès et Zara. Et
@@ -1148,7 +991,6 @@ Par une harmonie merveilleuse, comme l'auteur avait
 France, ainsi nous avons lu au loin, nous interrompant
 pour lire les nouvelles de Rennes. Et, sans vouloir en
 faire un moyen d'art, les ajournements successifs du
-feuilleton donnèrent aux recommencements successifs
 du roman une singulière perspective, agrandie encore
 par l'importance des événements réels intercalaires.
 Quand nous arrivâämes à la fin, il y avait vraiment de
@@ -1161,9 +1003,6 @@ donnions cours aussi au secret espoir que nous avions
 formé, que Mathieu deviendrait socialiste, que ce livre
 serait l'évangile du socialisme. Car nous n'éprouvons
 aucune fausse honte à constater le socialisme partout
-PERS
-
-(1) Fécondité, page 4.
 
 cinquième cahier de la quatrième série
 où ilest en réalité, à le demander, sous son nom, partout où il doit être. Plusieurs descriptions des misères
@@ -1192,10 +1031,7 @@ N'élargira jamais la sienne autour de lui! \
 Selon que l'on résout ou non cette difficulté, on est ou
 on n'est pas socialiste. Sully-Prudhomme ne la pas |
 (1) Vœu, dans les Vaines Tendresses (Poésies, 1872-1878), pages 108 et
-suivantes, petite édition Lemerre.
-36 |
 
-LES RÉCENTES ŒUVRES DE ZOLA
 résolue, mais supprimée par l'artifice de la stérilité.
 Zola ne l'a pas résolue, mais tournée par l'artifice du
 premier occupant et de la déshérence.
@@ -1205,7 +1041,6 @@ s'agit pas seulement d'élargir sa place à l'inégal banquet. Il s'agit aussi d
 plus aucun inconvénient à ce qu'ils occupent à ce banquet non des places empiétées, mais des places nou- *
 velles. Que si les nouveaux travailleurs produisent plus
 qu'ils ne consomment, c'est tout avantage pour la
-cité. »
 
 J'abandonne ici cette comparaison du banquet, toujours un peu lourde et un peu inexacte. Je dis : « Si
 nos enfants ne produisent pas, comme ils consommeront
@@ -1227,7 +1062,6 @@ générations naissantes et croissantes.
 
 ni
 
-Li UE TA |
 cinquième cahier de la quatrième série
 Zola n'a pas voulu, pour ainsi dire, que ce crédit fat
 demandé. Il n'a pas voulu que les fils de Mathieu dussent rien à la société. Mathieu ne demande rien à personne. Mathieu ne prend rien à personne. Mathieu fait
@@ -1250,14 +1084,9 @@ il énonce un travail légitime, une production légitime,
 * une vie légitime. Aussitôt que Mathieu réalise des béné-
 fices sur le travail de ses serviteurs et de ses servantes, |
 — et cela ne manque pas d'arriver, bien que le roman |
-soit à peu près muet là-dessus, puisque Mathieu achète
 une immense étendue de terres et fournit de l'argent
 pour acheter l'usine, — aussitôt que Mathieu devient ;
 un patron, tout ce travail devient illégitime, toute cette
-(1) Fécondité, pages 613 et 614. |
-38 |
-
-LES RÉCENTES ŒUVRES DE ZOLA
 
 vie devient illégitime. On a beaucoup trop salué Fécondité comme un livre nouveau, (1) comme le livre d'une
 génération nouvelle, comme le Livre d'un âge nouveau. Laurent Taïlhade salue cette « annonciation des
@@ -1281,7 +1110,6 @@ ponctuellement volés qu'ils étaient volés sous le gouvernement malade de Beau
 pas fait, au seuil de leur vie nouvelle, cette simple
 
 () Relire dans la revue blanche l'article déjà cité de Gustave
-Kahn.
 @) Venus Victrix, dans la Petite République du mercredi 25 octobre. j
 
 cinquième cahier de la quatrième série
@@ -1308,10 +1136,7 @@ il avait voulu l'hôtel de l'avenue d'Antin... » (1) « Maintenant, l'hôtel en
 l'hiver d'un bruit de fêtes, égayé du rire des quatre |
 enfants, de l'éclat de cette fortune vivante que renouve- |
 lait sans cesse l'effort de la conquête. » (2) Je demande |
-(1) Fécondité, page 705. |
-(2) Fécondité, page 707. |
 
-LES RÉCENTES ŒUVRES DE ZOLA
 simplement quelle différence il y a entre cet Ambroise
 et un homme de proie. Je demande combien cet
 Ambroise a mangé d'hommes et de maisons avant
@@ -1343,10 +1168,6 @@ assez bien : « Alors que la vie humaine gisait salement
 sous les yeux, écrasée sur terre sous la lourde religion,
 qui des régions du ciel montrait la tête, menaçante audessus des mortels par l'horreur de son aspect, pour la
 
-(1) Article cité.
-
-Qi
-
 cinquième cahier de la quatrième série
 première fois un homme grec osa lever des yeux mortels encontre, et le premier s'asseoir encontre. » Je n'ai
 pas à concilier Lucrèce avec Lucrèce, mais au moins
@@ -1374,12 +1195,7 @@ les germes, créait, enfantait, nourrissait. Et, pour l'éter- l
 nelle œuvre de vie, l'éternel fleuve de lait coulait par le |
 monde. » (3) Jamais sans doute un hymne aussi écla- |
 tant ne fut chanté à la gloire de Vénus perpétuelle, et |
-(1) Fécondité, page 223.
-@) Fécondilé, page 247.
-(3) Fécondité, page 615. J
 |
-
-LES RÉCENTES ŒUVRES DE ZOLA
 
 près de cette ardente prière le Sacre de la Femme semblera un excellent exercice de bonne rhétorique. Pourquoi faut-il que les enfants nourris de ce lait, qui au
 commencement de ce livre bondissaient innocemment
@@ -1402,14 +1218,11 @@ bonté, plus d'équité, la logique répartition des richesses
 par de justes lois réglant le travail universel. » (1)
 Pourquoi faut-il que les Froment n'introduisent pas
 dans l'humanité des mœurs conformes à ces lois
-futures ?
 
 Levons nos regards humains vers les dieux du ciel.
 Vénus ne fut pas une déesse de paix, de bonté. Si
 Iahvèh fut un dieu jaloux, les dieux de l'Olympe étaient
 des dieux envieux. Les dieux d'en haut n'ont pas tou-
-
-(1) Fécondité, page 614.
 
 cinquième cahier . de la quatrième série
 jours aimé la fécondité humaine. La morne Niobé
@@ -1433,18 +1246,13 @@ richesses. Quand un bourgeois qui monte s'arrête à la |
 charité, il s'arrête beaucoup trop tôt. Mais cela vaut L
 assurément beaucoup mieux que de rester bourgeois |
 simplement. Fécondité n'est pas un livre de bonté,
-d'humanité. 4
 Fécondité n'est pas un livre de paix. Jé prie qu'on le 4
 relise et que l'on n'oublie pas de voir cette guerre inces- ï
 sante. Ne nous laissons pas séduire à un nouvel artifice ï
-employé sincèrement. Zola donne aux Froment, à
 quelques exceptions près, une victoire si facile, si
 écrasante, si abondante, que la pensée du lecteur ne À
 s'attache pas à la considération de la bataille. Mais les À
-ne |
 
-CAT D en,
-LES RÉCENTES ŒUVRES DE ZOLA
 guerres victorieuses n'en. sont pas moins des guerres.
 Les invasions faciles n'en sont pas moins des envahissements. Les oppressions aisées n'en sont pas moins
 des étouffements, des écrasements.
@@ -1471,10 +1279,7 @@ court le danger de mort par la tristesse de cette guerre
 intestine. Je demande s'il n'y a pas des mères qui
 meurent tout à fait quand Grégoire exerce, en aflaires,
 
-(1) Fécondité, page 698.
-
 .
-6) LLUA
 
 cinquième cahier de la quatrième série
 sa rudesse d'homme sanguin contre des hommes qui ne
@@ -1500,11 +1305,6 @@ pas, remarquons-le bien, qu'il manque de place pour 4
 travailler, car la ferme est grande, l'usine est grande, |
 la maison d'Ambroise est grande : c'est qu'il manque 4
 de place pour fonder, pour commander, pour être à son ;
-() Fécondité, page 593. |
-(2) Fécondité, page 721. !
-46 |
-
-LES RÉCENTES ŒUVRES DE ZOLA
 
 tour un patriarche, un chef de dynastie. « Ses frères,
 ses sœurs, avant que son tour fût venu, avaient déjà
@@ -1536,10 +1336,6 @@ fusil ailleurs qu'au stand est une opération grave.
 
 Loin que Fécondité soit un livre d'humanité, de soli-
 
-(1) Fécondité, page 658.
-
-(2) Fécondité, page 742.
-
 cinquième cahier de la quatrième série
 darité, c'est le livre de la conquête de l'humanité par
 
@@ -1554,7 +1350,6 @@ n'en est pas moins réel :
 
 « En face de nous deux, là, mettez son couvert... Il
 « sera seul en face de nous, tel que l'ambassadeur d'un
-« puissant empire. » (1) Mathieu se trompe : Dominique,
 le fils aîné de son fils Nicolas, est bien réellement l'ambassadeur d'un puissant Empire économique institué au
 Soudan. Et c'est cela qui m'épouvante.
 
@@ -1573,10 +1368,6 @@ ne font qu'une jeune nation parmi les vieilles nations,
 que m'importe ? Auront-ils des guerres civiles, aurontils entre eux l'horreur des guerres fraternelles? Mais |
 toutes les guerres ne sont-elles pas des guerres frater-
 ————
-() Fécondité, page 734. k ;
-(2) Fécondité, pages 548 et 549. -
-
-j | LES RÉCENTES ŒUVRES DE ZOLA
 
 nelles ? Et quand les Froment seront nombreux comme
 les Anglais, quand leur envahissement sera barré,
@@ -1629,7 +1420,6 @@ la vanité de la faire partout quand même intéressante,
 au sens habituel du mot. Il est impassible comme la
 nature, patient comme elle, et, pour qui ne sait pas,
 ennuyeux comme elle. Plusieurs, ayant commencé le |
-(4) Fécondité, pages 372, 401, 427, 458, 481. Le motif est esquissé à à
 la page 345. On peut remarquer qu'il se succède ensuite à des :
 s intervalles presque réguliers de 27, 29, 26, 31 et 23 pages, qu'il ne
 commande, sauf erreur, que 136 pages, au milieu du livre, sur 751, t
@@ -1638,11 +1428,9 @@ motif ne consiste pas seulement en cette phrase fidèle, mais en
 tout un cortège de phrases ou identiques {A Chantebled, Mathieu et (
 Marianne fondaient, créaient, enfantaient.), ou apparentées.
 (2) Paul Brulat, dans Les Droits de l'Homme du dimanche 2 octobre. È
-5o ‘
 |
 |
 
-LES RÉCENTES ŒUVRES DE ZOLA
 poème, se sont ennuyés de ces recommencements.
 J'ai peur que ceux-là ne s'ennuient aussi des inévitables recommencements de la vie. « Deux ans se passèrent. »
 
@@ -1663,12 +1451,7 @@ endormis pour aller le soir, très tard, au devant de
 Mathieu. Naturellement la vieille servante, Zoé, s'endort
 avec les enfants sur qui elle doit veiller. (3) Ou cela
 n'est pas vrai, ou cela n'est pas bien. Je crois surtout que Ê
-celan'estpas vrai. Marianne, sinous en croyons Zola, vaut
 beaucoup mieux. Mathieu aussi, du moins je l'espère,
-
-(1) Fécondité, page 2.
-
-@) Fécondité, page 96.
 
 (3) Fécondité, page 82 et suivantes.
 
@@ -1700,12 +1483,7 @@ de la ferme et parce que le fermier veut y mettre la
 charrue. Cela n'a aucun sens. Mais cela est de la réa5 SRE
 () Fécondité, page 85 et suivantes.
 (2) Fécondité, pages 33, 35 et suivantes.
-52 |
-!
 
-EE pt à
-
-LES RÉCENTES ŒUVRES DE ZOLA
 lité bourgeoise. Or Séguin est un bourgeois, Mathieu
 est un bourgeois. Justement parce que Séguin a des
 besoins d'argent croissants, il doit faire chanter
@@ -1713,7 +1491,6 @@ Mathieu. La théorie des mitoyennetés, des contiguités
 et des enclaves est l'a, b, c du propriétaire terrien.
 Séguin est un chasseur, un propriétaire terrien, et il
 n'est pas une bête. Pourquoi n'exerce-t-il pas l'inévitable chantage, le chantage qu'exerce, en un Sens, le
-vieux meunier Lepailleur ?
 
 Cette inconséquence économique el psychologique
 tient sans doute pour une part à la conception mème
@@ -1744,10 +1521,8 @@ veulent, mais trop souvent comme des déclanchements,
 comme des remplacements : à un état d'esprit donné
 succède brusquement un nouvel état d'esprit étranger
 au premier. Déjà dans Paris le plus épouvantable combat de conscience avait fini par un coup de brique mal
-asséné :
 « Et, suffoquant, tremblant de rage, Guillaume avait
 saisi Pierre, lui écrasait les côtes de ses muscles
-solides.
 « … Déjà, la brique s'abattait. Mais les deux poings
 durent dévier, elle ne lui effleura qu'une épaule et il
 tomba, dans l'ombre, sur les genoux. » (1)
@@ -1767,12 +1542,7 @@ personnages d'un roman essentiel, d'un poème, d'une |
 du poète Zola. Ou bien Mathieu n'est pas un caractère, |
 et alors il est tout à fait vrai si l'on veut. Ou bien il est |
 un caractère, un type, et alors il n'est pas tout à fait
-(4) Paris, pages 572 et 573.
-(2) Fécondité, page 81. £
 
-F.
-
-À LES RÉCENTES ŒUVRES DE ZOLA :
 vrai, tout à fait réussi. Ce serait diminuer la pensée de
 Zola, le sens, la valeur, la portée de l'œuvre, que de
 s'en tenir à la première hypothèse. Non. Fécondité n'est
@@ -1795,7 +1565,6 @@ qu'à l'admirer sans aucune réserve. Mais ce serait
 là une véritable trahison. À une telle œuvre de sincérité, nous devons sincèrement la vérité entière. Nous
 devons lui restituer tout son sens, toute sa valeur, et,
 dès lors, faire toutes les réserves que nous avons
-faites.
 
 Paul Brulat compare (1) Zola lui-même à Mathieu :
 « Le bon Mathieu, c'est Zola lui-même, dont le cerveau
@@ -1811,7 +1580,6 @@ cinquième cahier de la quatrième série
 dable intensité de vie : hommes, femmes, enfants,
 bêtes et plantes. » J'avoue que cette postérité de Zola
 ne me laisse pas moins inquiet que la race née de
-Mathieu.
 
 La fortune littéraire, politique et sociale de Zola fut
 singulière. Sa sincérité même et une optique propre le
@@ -1841,9 +1609,6 @@ très pernicieuse.
 Le malheur fut, si nous en croyons les indications É
 données au verso du faux-titre de Fécondité, que cette
 
-56 ;
-
-LES RÉCENTES ŒUVRES DE ZOLA
 fréquentation devint très nombreuse. (1) Le romancier
 se fit ainsi une clientèle considérable, puissante,
 mélangée. Comme il était fécond il donna un très grand
@@ -1860,32 +1625,8 @@ toute sa force de vérité, toute sa force de sincérité au
 service de la justice et de la vérité en danger. Alors il se
 
 (1) Il est intéressant de classer les romans de Zola d'après leur
-lirage :
 
-La Débâäcle a été tirée à. . . . . . . . . . 196.000
-VA A RTE Se à Le 1... 182.000
-PO RSR ee ee 0 + à 449.000
-DAMON eee te neue à ee + 1992000
-MORE RARE OT LE 1.0 1832000
-A ET NU nie vel 111006 000
-POMREDERNEN A ENT 2721.00, 5 92. 21 105:000
-OT RE TA U T T"0 7.2 400:000
-PAPE NME. 06 01 1e feet re - À x 94000
-POMMOMNÉ RIT EE ie. 7 92: 000
-Da nocteur PSC ENS ES 1,05 311 906000
-UnesPage d'Amour ls LENS 22. 0. 4: À 881000
-DOTE RENTE VIA AE NES 7 2, # © 88:00
-MANTEAU te liver ts + t 86.000
-Au Bonheur des Dames. . . . . . . . . . 68.000
-AO dVIUrB Te N e,E. 16 2 111/67.000
-La Faute de l'abbé Mouret . . . . . . . . 49.000
-OR RE EU 4 1 42.7 47000
-DORRERMRSEGETPArIS. à 0 0.2. » .1:40:000
-La Conquête de Plassans. . . . . . . . . 37.000
-La Fortune des Rougon. . . . . . . . . 33.000
 Son Excéllence Eugène Rougon. . . . . . 32.000
-(2) Fécondité, page 61.
-À 57
 
 cinquième cahier de la quatrième série
 produisit un phénomène extraordinaire et peut-être
@@ -1905,37 +1646,10 @@ elle en a garanti la brutale sincérité. C'est à ce moment-là qu'une foule s'
 venue. En définitive le cercle de ceux qui ont combattu
 avec Zola n'avait pas beaucoup d'hommes communs
 avec le cercle de ceux qui, habituellement, lisaient
-Zola.
-CHARLES PÉGUY
 Les nombres indiqués dans Travail, au verso du fauxtitre, dans mon exemplaire, qui appartient lui-même au |
 42e mille, sont les suivants : ;
-; La Débâcle . . . . . . . , . . lr202.000 exemplaires |
-Nana; 1}41410lie0e Peel TTnS ACC —
-Lourdes 1.54". 2006 NPNNNSr 0 0pn —
-L'Assomnmoir. 210. VMC 4 CERTA 000 — à
-Da Terre:\. SERRE OTOE0 — ;
 
-À
-
-NME D
-
-/ LES RÉCENTES ŒUVRES DE ZOLA
-GERRARAL ENS 0 7 13 4. 110.000 exemplaires
-DEPECHE 00 5 1 110.000 —
-ROME 0 0, 4! 100.000 —
-InrBételhmmaine .". .°, !. 99.000 —
-Une Page d'Amour . ..... 94.000 —
-LEE D'AGIR 92.000 —
-Le Docteur Pascal . ..... 90.000 —
-LEE OM ET ON ENSERReR 88.000 —
-LATTES SERRE 86,000 —
-Au Bonheur des Dames. . .. 72.000 —
-uen UE LE 0 60.000 —
-La Joie de Vivre. . . . . . .. 54.000 —
 La Faute de l'abbé Mouret . . 52,000 —
-LL GERS és PRSIRRERNOER 47.000 —
-
-Le Ventre de Paris. . . ... 43.000 —
 
 La Fortune des Rougon. . .. 35.000 —
 
@@ -1957,7 +1671,6 @@ En outre mon exemplaire de Travail porte
 Fécondité pour 94.000 exemplaires
 et Travail pour 77.000 —
 On obtient ainsi un total de :
-2.283.000 exemplaires,
 sans compter les exemplaires non millésimés, des
 autres volumes, et sans compter les traductions, qui
 sont, paraît-il, innombrables.
@@ -1971,7 +1684,6 @@ a paru chez Fasquelle en un volume de la Bibliothèque-
 Charpentier, à trois francs cinquante; nous avons
 
 annoncé son apparition dans le onzième cahier de la
-deuxième série.
 
 Vérité est en cours de publication dans Aurore depuis
 le mercredi ro septembre 1902; il paraîtra ensuite
@@ -2018,45 +1730,15 @@ et des conséquences que j'en espérais.
 
 |
 
-FAATIUE “ET À |
-RO DE NEC NOM EE PRO
-YAT né x A RUN ROSE à ' :
-VAR MERE PUS INTER An TE
-MAADAEUES 19 Si 250 OT EEE PERLE
-Fe ANT <
-« ii a VA MEET MELT AA
-“3h : : f CORANUVERS LUE
-REA ù 1 5 de a" 28
-ER | :
-15 AE F
-LR ‘2 2
 > CH ee £ ee Fe
-_ PRÉSIDENT DE LA RÉPUBLIQUE
 ALTO ete di PR LT Ni: En.
-rrÈ Lee NET x
-IPS ; & RUE ALT 5 Ey10
-" à : L Fi dé 102
-4 d EN % <LEAIE
 VER j Î ke Pa ou PEN x RAT 4
-a . : TRUE RAS
-SAS TELE Ê ! LME eo
 Le CRE là . Cyaiiee CARTE
-1008 À £ | VY3 His , ANR à h
-KART Û ; À 4 HANTEON nn pe
-arte À PNR ETS
-1: ER LE Me
 sa 2 F ALLO ce tas
-SRE Ch Pa CUS : e She do (ALSA
 je ê AND 7AN NREEREZ 1
-2 S + à YA a LS à RME
-2 ÉLPENT ; PA AE NPA +
-x 11 “ Fu ? \ jh” SU Aà ; à: A É ‘
 1676 Per : je PER EE ARE
-Fo CAN PUART AE Pret vi VEMORS (TS 4
 FT NRA CM NE cn (Nes Das
-1 MO ENS EST Lu AE RNR PERS
 
-4 ÉERIRE
 à M. FÉLIX FAURE, Président de la République
 Monsieur le Président,
 
@@ -2076,18 +1758,14 @@ guerre vient, par ordre, d'oser acquitter un Esterhazy,
 Soufllet suprême à toute vérité, à toute justice. Et c'est
 fini, la France a sur la joue cette souillure, l'histoire
 écrira que c'est sous votre présidence qu'un tel crime
-social a pu être commis.
 
 Puisqu'ils ont osé, j'oserai aussi, moi. La vérité, je la
 dirai, car j'ai promis de la dire, si la justice, régulièrement saisie, ne la faisait pas, pleine et entière. Mon
 devoir est de parler, je ne veux pas être complice. Mes
 nuits seraient hantées par le spectre de l'innocent qui
 
-65 IV.
 ,
 
-1 n AVENANT PES N A
-Émile Zola
 expie là-bas, dans la plus afireuse des tortures, un
 crime qu'il n'a pas commis.
 
@@ -2096,9 +1774,6 @@ crierai, cette vérité, de toute la force de ma révolte
 d'honnête homme. Pour votre honneur, je suis convaincu que vous lignorez. Et à qui donc dénoncerai-je
 la tourbe malfaisante des vrais coupables, si ce n'est à
 vous, le premier magistrat du pays? ;
-
-%
-p % *#
 
 La vérité d'abord sur le procès et sur la condamnation de Dreyfus.
 
@@ -2127,7 +1802,6 @@ un brusque flot de lumière et surprendre ainsi son …
 
 (2) Une virgule dans l'Aurore. |
 
-LETTRE A M. FÉLIX FAURE
 crime, dans l'émoi du réveil. Et je n'ai pas à tout dire,
 qu'on cherche, on trouvera. Je déclare simplement que
 le commandant du Paty de Clam, chargé d'instruire
@@ -2144,7 +1818,6 @@ de l'état-major, et un oflicier d'artillerie : double erreur
 manifeste, qui montre avec quel esprit superficiel on
 avait étudié ce bordereau, car un examen raisonné
 démontre qu'il ne pouvait s'agir que d'un oflicier de
-troupe. (1)
 
 On cherchait donc dans la maison, on examinait
 les écritures, c'était comme une affaire de famille, un
@@ -2161,9 +1834,6 @@ Mercier, dont l'intelligence semble médiocre; il y a
 
 () Sans alinéa dans l''Aufrore.
 
-Dr à
-
-Émile Zola
 qui paraît avoir cédé à sa passion cléricale, et le
 sous-chef de l'état-major, le général Gonse, dont la
 conscience a pu s'accommoder de beaucoup de choses.
@@ -2189,9 +1859,7 @@ déni de justice dont la France est malade. Je voudrais
 faire toucher du doigt comment l'erreur judiciaire a pu
 être possible, comment elle est née des machinations
 (4) La Vérité en marche porte : On ne saurait concevoir les expé-
-riences auxquelles...
 
-qe 7
 | LETTRE À M. FÉLIX FAURE
 du commandant du Paty de Clam, comment le général
 Mercier, les généraux de Boisdeffre et Gonse ont pu s'y
@@ -2221,9 +1889,6 @@ conseil de guerre.
 (1) donc de leur part que de. dans l'Aurore.
 (2) Une virgule dans l'Aurore.
 . (3) Sans virgule dans l'Aurore.
-
-MOIS
-Émile Zola
 
 Ah ! le néant de cet acte d'accusation ! Qu'un homme
 ait pu être condamné sur cet acte, c'est un prodige
@@ -2255,10 +1920,6 @@ la chambre du conseil, les juges allaient naturellement
 acquitter. Et, dès lors, comme l'on comprend lobstination désespérée avec laquelle, pour justifier la condamnation, on aflirme aujourd'hui l'existence d'une
 pièce secrète, accablante, la pièce qu'on ne peut mon-
 
-à
-
-LETTRE A M. FÉLIX FAURE
-
 trer, qui légitime tout, devant laquelle nous devons
 nous incliner, le bon Dieu invisible et inconnaissable! (1)
 Je la nie, cette pièce, je la nie de toute ma puissance!
@@ -2271,7 +1932,6 @@ d'autant plus odieux et cynique qu'ils mentent impuné- /
 ment sans qu'on puisse les en convaincre. Ils ameutent
 la France, ils se cachent derrière sa légitime émotion,
 ils ferment les bouches en troublant les cœurs, en pervertissant les esprits. Je ne connais pas de plus grand
-crime civique.
 
 Voilà donc, monsieur le Président, les faits qui expliquent comment une erreur judiciaire a pu être commise;
 et les preuves morales, la situation de fortune de
@@ -2280,16 +1940,12 @@ extraordinaires imaginations du commandant du Paty
 de Clam, du milieu clérical où il se trouvait, de la
 chasse aux « sales juifs », qui déshonore notre époque.
 
-+
-Ex
 Et nous arrivons à l'affaire Esterhazy. Trois ans se
 sont passés, beaucoup de consciences restent troublées
 n (1) Le bon dieu invisible et inconnaissable. Je... dans l'Aurore.
 (2) exigeant : quelque... dans la Vérité en marche.
 (3) non! C'est un mensonge ; et. dans l'Aurore.
-‘ 71
 
-Émile Zola
 profondément, s'inquiètent, cherchent, finissent par se |
 convaincre de l'innocence de Dreyfus.
 
@@ -2322,7 +1978,6 @@ condamnation d'Esterhazy entraînait inévitablement la À
 
 (1) Le bordereau ne fût... dans la Vérité en marche. À
 
-LETTRE À M. FÉLIX FAURE
 revision du procès Dreyfus ; et c'était ce que l'étatmajor ne voulait à aucun prix.
 
 Il dut y avoir là une minute psychologique pleine
@@ -2349,19 +2004,12 @@ de la justice. Il les suppliait même, il leur disait combien
 leurs délais étaient impolitiques (3) devant le terrible
 orage qui s'amoncelait, qui devait éclater, lorsque la
 vérité serait connue. Ce fut, plus tard, le langage que
-M. Scheurer-Kestner tint également au général Billot,
 
 () chose! dans la Vérité en marche.
 
 (2) Le lieutenant-colonel Picquart… dans la Vérité en marche
 
 G) Une virgule, dans la Vérité en marche.
-
-D
-Le
-
-PAIE 12
-Émile Zola
 
 l'adjurant par patriotisme de prendre en main l'affaire,
 de ne pas la laisser s'aggraver, au point de devenir un
@@ -2401,11 +2049,6 @@ son imagination fertile. Son œuvre, la culpabilité de |
 
 (2) qui l'aurait sûrement fait massacrer,.… dans la Vérité en marche.
 
-74 J
-
-5° F #
-LETTRE A M. FÉLIX FAURE
-
 Dreyfus, était en péril, et il a voulu sûrement défendre
 son œuvre. La revision du procès, mais c'était l'écroulement du roman-feuilleton si extravagant, si tragique,
 dont le dénouement abominable a lieu à l'île du Diable!
@@ -2434,12 +2077,7 @@ Donnez un motif. Est-ce que celui-là aussi est payé par
 (1) dans... dans la Vérité en marche.
 
 (2) prodigieuse est que l'honnête homme, là-dedans... dans la Vérité
-en marche.
 
-7ÿ
-
-”
-Émile Zola
 les juifs? Le joli de Fhistoire est qu'il était justement
 antisémite. Oui ! nous assistons à ce spectacle infâme,
 des hommes perdus de dettes et de crimes dont on proclame l'innocence, tandis qu'on frappe l'honneur même,
@@ -2453,8 +2091,6 @@ résumé de Fhistoire dont les brûlantes pages seront un
 jour écrites tout au long. Et nous avons donc vu le
 général de Pellieux, puis le commandant Ravary, conduire une enquête scélérate d'où les coquins sortent
 transfigurés et les honnêtes gens salis. Puis, on a convoqué le conseil de guerre.
-%
-x *
 Comment a-t-on pu espérer qu'un conseil de guerre
 déferait ce qu'un conseil de guerre avait fait? ;
 Je ne parle même pas du choix toujours possible des ;
@@ -2466,9 +2102,6 @@ Lorsque le ministre (2) de la guerre, le grand chef, a
 () leur pouvoir d'équité? dans la Vérité en marche. ï
 (2) ministère dans l'Aurore par coquille.
 (3) l'autorité de la chose jugée. dans la Vérité en marche. 3
-76 :
-
-LETTRE À M. FÉLIX FAURE
 
 jugée, vous voulez qu'un conseil de guerre lui donne
 un formel démenti? Hiérarchiquement, cela est impossible. Le général Billot a suggestionné les juges par sa
@@ -2503,10 +2136,8 @@ dignité, dans notre besoin de justice. Il s'agit du
 
 (5) Virgule, dans la Vérité en marche.
 
-Émile Zola
 sabre, le maître qu'on nous donnera demain peut-être.
 Et baiser dévotement la poignée du sabre, le dieu,
-non !
 
 Je l'ai démontré d'autre part: l'affaire Dreyfus était
 l'affaire des bureaux de la guerre, un officier de létatmajor, dénoncé par ses camarades de létat-major,
@@ -2538,9 +2169,7 @@ lui rentrant dans la gorge son cri de vérité et de jus-
 
 @) Dreyfus. Quel coup de balai dans la Vérité en marche.
 
-LETTRE À M. FÉLIX FAURE
 tice, sous le prétexte menteur et sacrilège de la raison
-d'État !
 
 Et c'est un crime encore que de s'être appuyé sur la
 presse immonde, que de s'être laissé défendre par toute
@@ -2569,7 +2198,6 @@ M. Scheurer-Kestner, et je crois bien qu'il finira par
 
 (2) et c'est un crime, enfin, que de... dans la Vérité en marche.
 
-Émile Zola
 lächant tout le paquet, pour tout jeter à bas. Il a été le
 grand honnête homme, l'homme de sa vie loyale, il a
 cru que la vérité se suffisait à elle-même, surtout lorsqu'elle lui apparaissait éclatante comme le plein jour.
@@ -2600,7 +2228,6 @@ G) d'autant plus que. dans la Vérité en marche.
 
 (2) Je dis que ceci. dans la Vérité en marche. |
 
-LETTRE A M. FÉLIX FAURE
 pas moins un devoir d'homme, auquel vous songerez,
 et que vous remplirez. Ce n'est pas, d'ailleurs, que je
 désespère le moins du monde du triomphe. Je le répète
@@ -2613,7 +2240,6 @@ qu'elle soit faite. Quand (1) on enferme la vérité sous
 terre, elle s'y amasse, elle y prend une force telle d'explosion, que, le jour où elle éclate, elle fait tout sauter
 avec elle. On verra bien si l'on ne vient pas de préparer,
 pour plus tard, le plus retentissant des désastres.
-*
 
 Mais cette lettre est longue, monsieur le Président,
 et il est temps de conclure.
@@ -2629,11 +2255,6 @@ tout au moins par faiblesse d'esprit, d'une des plus
 grandes iniquités du siècle.
 
 (1) soit faite. Je l'ai dit ailleurs, et je le répète ici : quand. dans la
-Vérité en marche.
-
-81 V.
-
-Émile Zola
 
 J'accuse le général Billot d'avoir eu entre les mains
 les preuves certaines de l'innocence de Dreyfus et de
@@ -2645,7 +2266,6 @@ J'accuse le général de Boisdeffre et le général Gonse
 de s'être rendus complices du même crime, l'un sans
 doute par passion cléricale, l'autre peut-être par cet
 esprit de corps qui fait des bureaux de la guerre l'arche
-sainte, inattaquable.
 
 J'accuse le général de Pellieux et le commandant
 Ravary d'avoir fait une enquête scélérate, j'entends
@@ -2670,11 +2290,6 @@ violé le droit, en condamnant un accusé sur une pièce
 restée secrète, et j'accuse le second conseil de guerre
 d'avoir couvert cette illégalité, par ordre, en commettant à son tour le crime juridique d'acquitter sciemment un coupable. |
 
-L
-F
-
-LETTRE A M. FÉLIX FAURE
-
 En portant ces accusations, je n'ignore pas que je me
 mets sous le coup des articles 30 et 31 de la loi sur la
 presse du 29 juillet 188x, qui punit les délits de diffamation. Et c'est volontairement que je m'expose.
@@ -2691,12 +2306,8 @@ Ma protestation enflammée n'est que le cri de mon âme.
 Qu'on ose donc me traduire en cour d'assises et que
 l'enquête ait lieu au grand jour !
 
-J'attends.
-
 Veuillez agréer, monsieur le Président, l'assurance de
 mon profond respect.
-
-ÉMILE ZOLA
 
 Bernard-Lazare me préte son exemplaire de la même
 lettre en brochure. Cette brochure ne fut pas mise en
@@ -2705,7 +2316,6 @@ France, qui au contraire furent mises en vente et portaient un prix de vente, c'
 jaune, plate, une plaquette in octavo d'une feuille d'impression, seize pages; comme les deux précédentes
 lettres elle portait en titre générique : Y'affaire Dreyfus,
 et en exergue semi-circulaire HUMANITÉ — VÉRITÉ —
-JUSTICE.
 
 ; Les leçons de la brochure, où elles diffèrent du texte
 que nous avons adopté, sont les suivantes :
@@ -2715,47 +2325,29 @@ le Président ;
 
 Page 67, ligne 18 : troupe. On cherchait sans
 
-alinéa ;
-
 Page 68, ligne 7 : On ne saurait concevoir les expé-
-
-riences… ;
 
 Page 68, ligne 16 : dit que si... sans virgule;
 
 Page 69, ligne 17 : l'Histoire, et naturellement, la
 
-nation. ;
-
-Page 91, ligne 6 : exigeant : quelque mari….;
-
 Page 72, ligne 26 : que le bordereau füût….;
-
-Page "3, ligne 20 : chose! et... ;
-
-Page 73, ligne 26 : émpolitiques, devant;
 
 Page 74, ligne 6 : de plus en plus loin, jusqu'en..;
 
 Page 79, ligne 21 : croulent dans le mépris... ;
 
-à
-
-LETTRE A M. FÉLIX FAURE
 Page 75, ligne 22 : prodigieuse est que l'honnéte
 homme, là-dedans, ;
-Page 76, ligne 22 : pouvoir d'équité?
 
 Page 77, ligne 6 : leur siège, est évidemment...;
 Page 77, ligne 8 : guerre, il est donc coupable; et
-nous, ;
 
 Page 77, ligne 10 : or, nous savons... ;
 Page 77, ligne 13 : inique, qui….:
 
 Page 77, ligne 24 : peuple, et nous...;
 Page 78, ligne 8 : innocent sans que.….;
-Page 78, ligne 13 : Dreyfus. Quel coup…..;
 Page 79, ligne 19 : crime, enfin, que...;
 Page 80, ligne 10 : d'autant plus que...
 
@@ -2766,24 +2358,16 @@ J'ai en mains le catalogue de Fasquelle, février 1902.
 Page 38 ce catalogue omet dans les Rougon-Macquart
 la Terre entre l Œuvre et le Rève; méme page, dans
 les Trois Villes, après Rome il omet Paris, ce qui
-donne :
-LES TROIS VILLES
 Lourdes (154"° mille) un volume
 Rome (106"° mille) un volume
 | Les œuvres de Zola paraissaient régulièrement en
 volumes de la Bibliothèque-Charpentier, aujourd'hui
 chez Fasquelle, éditeur; ces volumes sont uniformément
-à trois francs cinquante.
-:
 |
 
-Êmie ZoLa À
-LES ROUGON-MACQUART
 Histoire naturelle et sociale d'une famille sous
 le Second Empire
 La Fortune des Rougon, édition complète en un
-.… volume, 385 pages;
-PRÉFACE
 
 Je veux expliquer comment une famille, un petit groupe
 d'êtres, se comporte dans une société, en s'épanouissant
@@ -2808,7 +2392,6 @@ et qui déterminent, selon les milieux, chez chacun des
 individus de cette race, les sentiments, les désirs, les passions, toutes les manifestations humaines, naturelles et
 instinctives, dont les produits prennent les noms convenus
 
-Emile Zola
 de vertus et de vices. Historiquement, ils partent du peuple,
 ils s'irradient dans toute la société contemporaine, ils montent à toutes les situations, par cette impulsion essentiellement moderne que reçoivent les basses classes en marche
 à travers le corps social, et ils racontent ainsi le second
@@ -2827,25 +2410,15 @@ Cette œuvre, qui formera plusieurs épisodes, est donc,
 dans ma pensée, l'Histoire naturelle et sociale d'une famille
 sous le second empire. Et le premier épisode : La Fortune
 des Rougon, doit s'appeler de son titre scientifique : Les
-Origines. :
-ÉmiLe ZoLA
 Paris, le premier Juillet 1871.
 La Gurée, édition complète en un volume, 387 pages ;
 Le Ventre de Paris, édition complète en un volume,
-358 pages;
 La Conquête de Plassans, édition complète en un |
-volume, 402 pages;
 La Faute de l'abbé Mouret, édition complète en |
 un volume, 428 pages ;
 Son Excellence Eugène Rougon, édition complète
 en un volume, 462 pages;
 L'Assommoir, édition complète en un volume,
-568 pages ; 1
-88 à
-
-j AE JTE? dd
-BIBLIOGRAPHIE
-PRÉFACE
 
 Les Rougon-Macquart doivent se composer d'une vingtaine de romans. Depuis 1869, le plan général est arrêté, et
 je le suis avec une rigueur extrême. L'Assommoir est venu à
@@ -2883,7 +2456,6 @@ mes personnages ne sont pas mauvais, ils ne sont qu'ignorants et gâtés par le 
 où ils vivent. Seulement, il faudrait lire mes romans, les
 comprendre, voir nettement leur ensemble, avant de porter les jugements tout faits, grotesques et odieux, qui cir-
 
-Emile Zola
 culent sur ma personne et sur mes œuvres. Ah! si l'on
 savait combien mes amis s'égayent de la légende stupé-
 fiante dont on amuse les foules! Si l'on savait combien le
@@ -2893,13 +2465,8 @@ son coin, et dont l'unique ambition est de laisser une
 démens aucun conte, je travaille, je m'en remeis au temps
 et à la bonne foi publique pour me découvrir enfin sous
 l'amas des sottises entassées. À
-Emize ZOLA
-Paris, premier janvier 1877.
 
 Une Page d'Amour, édition complète en un volume,
-
-4o6 pages ;
-NOTE
 
 Je me décide à joindre à ce volume l'arbre généalogique
 des Rougon-Macquart. Deux raisons me déterminent.
@@ -2927,9 +2494,6 @@ qui m'ont accusé de courir après l'actualité et le scandale.
 Depuis 1868, je remplis le cadre que je me suis imposé, \
 l'arbre généalogique en marque pour moi les grandes ;
 
-90 |
-
-BIBLIOGRAPHIE
 lignes, sans me permettre d'aller ni à droite ni à gauche.
 Je dois le suivre strictement, il est en même temps ma
 force et mon régulateur. Les conclusions sont toutes prêtes.
@@ -2962,42 +2526,27 @@ coup et à l'avance, et que l'on doit par conséquent, tout en
 jugeant chaque roman à part, tenir compte de la place
 harmonique qu'il occupe dans cet ensemble. On se prononcera dès lors sur mon œuvre plus-justement et plus largement. y
 
-Emize ZOLA
-Paris, 2 avril 1878.
 Suit l'arbre généalogique, portant 26 noms.
 Nana, édition complète en un volume, 524 pages:
 
-Émile Zola
 Pot-Bouille, édition complète, un volume, 495 pages;
 Au Bonheur des Dames, édition complète en un
-volume, 521 pages ;
 La Joie de Vivre, édition complète en un volume,
-447 pages;
 Germinal, édition complète en un volume, 59r pages;
 L'Œuvre, édition complète en un volume, 4gr pages;
 La Terre, édition complète en un volume, 5r9 pages;
 Le Rêve, édition complète en un volume, 310 pages ;
 La. Bête humaine, édition complète en un volume,
-415 pages;
 L'Argent, édition complète en un volume, 445 pages ;
 La Débâcle, édition complète, un volume, 636 pages ;
 Le docteur Pascal, édition complète en un volume,
-390 pages ;
-Roman dédié ;
 A la Mémoire
 de
-MA MÈRE
 et à
-MA CHÈRE FEMME
 Je dédie ce roman
 qui est le résumé et la conclusion |
 de toute mon œuvre
 Au commencement de ce volume l'arbre généalogique, portant 32 noms. j
-92 |
-
-AMEN En
-BIBLIOGRAPHIE
-LES TROIS VILLES
 
 Lourdes, édition complète en un volume, 598 pages;
 
@@ -3005,22 +2554,11 @@ Rome, édition complète en un volume, 751 pages;
 
 Paris, édition complète en un volume, 608 pages;
 
-LES QUATRE ÉVANGILES
-
 Fécondité, édition complète en un volume, 551 pages;
 
 Travail, édition complète en un volume, 666 pages;
 
-Vérité, à paraître ;
-
-Justice.
-
-ROMANS ET NOUVELLES
-
 Thérèse Raquin, édition complète en un volume,
-309 pages ;
-
-PRÉFACE DE LA DEUXIÈME ÉDITION
 
 J'avais naïvement cru que ce roman pouvait se passer de
 préface. Ayant l'habitude de dire tout haut ma pensée,
@@ -3034,9 +2572,6 @@ feuilles littéraires elles-mêmes, ces petites feuilles qui
 donnent chaque soir la gazette des alcdves et des cabinets
 particuliers, se sont bouché le nez en parlant d'ordure et
 de puanteur. Je ne me plains nullement de cet accueil; au k
-
-{ ÿ?
-Emile Zola
 
 contraire, je suis charmé de constater que mes confrères
 ont des nerfs sensibles de jeune fille. Ilest bien évident que
@@ -3074,12 +2609,6 @@ un but scientifique avant tout. Lorsque mes deux personnages, Thérèse et Laure
 me poser et à résoudre certains problèmes : ainsi, j'ai tenté
 d'expliquer l'union étrange qui peut se produire entre deux
 tempéraments différents, j'ai montré les troubles profonds
-
-À
-Fr.
-
-l ‘ si à. ;
-BIBLIOGRAPHIE
 
 d'une nature sanguine au contact d'une nature nerveuse.
 Qu'on lise le roman avec soin, on verra que chaque chapitre
@@ -3121,8 +2650,6 @@ oublié comme un médecin s'oublie dans un amphithéâtre. »
 
 où
 
-Emile Zola
-
 Remarquez que je ne demande nullement la sympathie de
 la presse pour une œuvre qui répugne, dit-elle, à ses sens
 délicats. Je n'ai point tant d'ambition. Je m'étonne seulement que mes confrères aient fait de moi une sorte
@@ -3148,7 +2675,6 @@ juges d'y trouver une page réellement licencieuse, faite pour
 les lecteurs de ces petits livres roses, de ces indiscrétions:
 de boudoir et de coulisses, qui se tirent à dix mille exemplaires et que recommandent chaudement les journaux
 auxquels les vérités de Thérèse Raquin ont donné la
-nausée.
 
 Quelques injures, beaucoup de niaiseries, voilà donc tout
 ce que j'ai lu jusqu'à ce jour sur mon œuvre. Je le disici !
@@ -3159,10 +2685,7 @@ défaut qui vous fermera toutes les portes : vous ne pouvez
 causer deux minutes avec un imbécile sans lui faire comprendre qu'il est un imbécile. » Cela doit être, je sens le
 tort que je me fais auprès de la critique en laccusant |
 
-ÿ
-
 tue le He :
-BIBLIOGRAPHIE
 
 d'inintelligence, et je ne puis pourtant m'empécher de
 témoigner le dédain que j'éprouve pour son horizon borné
@@ -3199,10 +2722,6 @@ Quelles que dussent être leurs conclusions, ils admettraient
 mon point de départ, l'étude du tempérament et des modifications profondes de l'organisme sous la pression des
 milieux et des circonstances. Je me trouverais en face de
 
-vi
-
-Emile Zola
-
 véritables juges, d'hommes cherchant de bonne foi la vérité,
 sans puérilité ni fausse honte, ne croyant pas devoir se
 montrer écœurés au spectacle de pièces d'anatomie nues
@@ -3238,20 +2757,11 @@ naturalistes auquel j'ai l'honneur d'appartenir a assez de
 courage et d'activité pour produire des œuvres fortes, portant en elles leur défense. Il faut tout le parti pris d'aveuglement d'une certaine critique pour forcer un romancier
 à faire une préface. Puisque, par amour de la clarté, j'ai
 
-:
-
-BIBLIOGRAPHIE
 commis la faute d'en écrire une, je réclame le pardon des
 gens d'intelligence, qui n'ont pas besoin, pour voir clair,
 qu'on leur allume une lanterne en plein jour.
-Émice ZoLA
-15 avril 1868.
 
 Madeleine Férat, édition complète en un volume,
-310 pages ;
-
-Roman dédié ; 4
-A Edouard Manet
 
 Le jour où, d'une voix indignée, j'ai pris la défense de
 votre talent, je ne vous connaissais pas. IL s'est trouvé des
@@ -3262,14 +2772,7 @@ La foule a voulu mon amitié pour vous; cette amitié est
 aujourd'hui entière et durable, et je désire vous en donner
 un témoignage public en vous dédiant cette œuvre.
 
-ÉMILE ZOLA
-Premier septembre 1868.
-
 La Confession de Claude, édition complète en un
-
-volume, 320 pages;
-A MES AMIS
-P. CÉZANNE ET J.-B. BAILLE
 
 Vous avez connu, mes amis, le misérable enfant dont je
 publie aujourd'hui les lettres. Cet enfant n'est plus. Il a
@@ -3282,7 +2785,6 @@ secret d'une confession. Puis, lorsque je relisais ces lettres
 haletantes et fiévreuses, vides de faits, se liant à peine les
 unes aux autres, je me décourageais, je me disais que les
 
-Emile Zola
 lecteurs accueilleraient sans doute fort mal une pareille
 publication, toute diffuse, toute folle etemportée. La douleur
 n'a qu'un cri : l'œuvre est une plainte sans cesse répétée.
@@ -3319,10 +2821,7 @@ Il y a du prêtre dans cet enfant. Il s'agenouillera peut-être |
 un jour. Il cherche avec un désespoir immense une vérité À
 qui le soutienne. Aujourd'hui, il nous conte sa jeunesse ;
 désolée, il nous montre ses plaies, il crie ce qu'il a souffert, ;
-100 J
-k
 
-BIBLIOGRAPHIE
 afin d'éviter à ses frères de pareilles souffrances. Les temps
 sont mauvais pour les cœurs qui ressemblent aux siens,
 
@@ -3332,29 +2831,19 @@ en même temps à toutes les objections qui seront faites :
 
 Claude a vécu tout haut. ;
 
-Emize ZoLA
-15 octobre 1865.
-
 Naïs Micoulin, édition complète en un volume,
-380 pages;
 
 Ce volume contient, outre Maïs Micoulin :
 
-Nantas;
-
 La mort d'Olivier Bécaille ;
-Madame Neigeon;
 
 Les Coquillages de M. Chabre;
-Jacques Damour.
 
 Contes à Ninon, édition complète en un volume,
-360 pages ;
 
 Ce volume contient :
 
 A Ninon, daté du premier octobre 1864 ;
-Simplice ;
 
 Le carnet de danse;
 
@@ -3370,12 +2859,8 @@ Sœur-des-Pauvres ;
 
 Aventures du grand Sidoine et du petit Médéric.
 
-Nouveaux Contes à Ninon, édition complète en
 un volume, 308 pages;
 
-101 VI.
-
-Émile Zola
 Ce volume contient : |
 A Ninon, daté de Paris premier octobre 1874;
 Contes. — Un Bain;
@@ -3385,41 +2870,27 @@ Le Jeûne;
 Les épaules de la Marquise;
 Mon voisin Jacques; |
 Le Paradis des Chats; |
-Lili; |
 La légende du Petit Manteau bleu de
 l'amour ;
 Le Forgeron;
 Le Chômage;
 Le Petit Village;
-SOUVENIRS;
-LES QUATRE JOURNÉES DE JEAN GOURDON.— Printemps ;
-Été:.
-Automne ;
-Hiver.
 Le capitaine Burle, édition complète en un volume,
-342 pages;
 Ce volume contient, outre Le capitaine Burle :
 Comment on meurt ; ;
 Pour une nuit d'amour ;
-Aux champs ; ë Ë
 La Fête à Coqueville ;
 L' Inondation.
 Les Mystères de Marseille, édition complète en
 un volume, 448 pages;
-102 . |
-d
-
-BIBLIOGRAPHIE
 
 Le Vœu d'une morte, édition complète en un
-volume, 314 pages ;
 
 Ce volume contient, outre le Vœu d'une morte :
 
 ESQUISSES PARISIENNES. — La Vierge au cirage ;
 
 Les Vieilles aux yeux
-bleus ;
 
 Les Repoussoirs ;
 
@@ -3434,42 +2905,27 @@ certes, mais pour la comparaison intéressante que les
 curieux de littérature pourront être tentés de faire un jour,
 entre ces premières pages et celles que j'ai écrites plus tard.
 
-Émize ZoLA
-
-Médan, premier septembre 1889.
-
-ŒUVRES CRITIQUES
-
 Mes Haines, Causeries littéraires et artistiques. —
 Mon Salon (1866). — Édouard Manet, étude biographique et critique, édition complète en un volume,
-374 pages ;
 
 Ce volume contient :
 
 Mes Hans. — Mes Haines ;
 
-L'abbé *** ;
 Proudhon et Courbet ;
 Le Catholique hystérique ;
 La Littérature et la Gymnastique ;
-Germinie Lacerteux ;
 
-Émile Zola |
-Gustave Doré ; |
 Les Chansons des rues et des bois;
 La Mère ;
 L'Égypte il y a trois mille ans;
 La Géologie et l'Histoire ;
 Les Moralistes français ; |
 Le Supplice d'une femme et les |
-Deux Sœurs ; |
-Erckmann-Chatrian ; |
-M.-H. Taine, artiste ;
 Histoire de Jules César ;
 Mon SALON. — A mon ami Paul Cézanne;
 Le Jury ;
 Le moment artistique ;
-M. Manet ;
 Les réalistes du salon ;
 Les chutes ;
 Adieux d'un critique d'art ;
@@ -3477,7 +2933,6 @@ Adieux d'un critique d'art ;
 Les œuvres ; l
 Le public.
 Le Roman expérimental, édition complète en un k
-volume, 416 pages. j
 Cinq de ces études ont d'abord paru, traduites en russe,
 dans le Messager de l'Europe, une revue deSaint-Pétersbourg. t
 Les deux autres : Du roman et De la critique, ne sont que
@@ -3486,13 +2941,7 @@ Bien public et dans le Voltaire.
 Qu'il me soit permis de témoigner publiquement toute ma
 gratitude à la grande nation qui a Bien voulu m'accueillir
 et m'adopter, au moment où pas un journal, à Paris, ne à
-10/4 Î
 
-À
-
-TUNIS
-
-BIBLIOGRAPHIE
 m'acceptait et ne tolérait ma bataille littéraire. La Russie,
 dans une de mes terribles heures de gêne et de découragement, m'a rendu toute ma foi, toute ma force, en me
 donnant une tribune et un public, le plus lettré, le plus
@@ -3513,40 +2962,25 @@ prennent, peut-être trouvera-t-on là mes meilleures pages;
 car je suis plein de honte, lorsque je pense à l'énorme tas
 de rhétorique romantique, que j'ai déjà derrière moi.
 
-ÉMILE ZOLA
-
-Médan, septembre 1880.
-
 Ce volume contient :
 
-Du ROMAN EXPÉRIMENTAL ;
-LETTRE A LA JEUNESSE ;
-Le NATURALISME AU THÉATRE ;
-L'ARGENT DANS LA LITTÉRATURE ;
 © Du Roman. — Le sens du réel;
 L'expression personnelle ;
 La formule critique appliquée au
-roman;
 De la description ;
 
-Émile Zola
-Trois débuts. — I. — Léon Hennique ;
-IL. — J.-K. Huysmans; l
 IL. — Paul Alexis ;
 Les documents humains ; ;
 Les frères Zemganno.—1.La Préface;
-II. Le Livre ;
 DE LA CRITIQUE. — I. — A M. Charles Bigot;
 IL. — A. M. Armand Sylvestre ;
 Le Réalisme ;
 Les chroniques de SainteBeuve :
-I. — Hector Berlioz:
 II. — Chaudes-Aigues et Balzac;
 UT. — Jules Janin et Balzac ; |
 Un Prix de Rome littéraire;
 La haine de la littérature ;
 La littérature obscène ;
-LA RÉPUBLIQUE ET LA LITTÉRATURE.
 Les Romanciers naturalistes, édition complète en :
 un volume, 388 pages ;
 Ce sont encore ici des études qui ont paru d'abord en
@@ -3563,9 +2997,7 @@ son vrai sens, sa valeur exacte. Elle n'est, après les autres
 montravail complet. J'espère qu'on voudra bien comprendre.
 Il me reste à m'excuser de donner sur Balzac une étude
 
-Lis 4h 1 ete
 # ,
-BIBLIOGRAPHIE
 absolument indigne de lui. Ce n'est là qu'une compilation
 faite à l'aide de sa Correspondance. Je comptais reprendre
 ce travail, l'élargir en étudiant plus particulièrement en lui ,
@@ -3574,19 +3006,9 @@ manqué, comme d'autre part je ne puis décapiter mon
 livre en omettant Balzac, je me décide à publier les pages
 que j'ai sous la main, pour qu'elles marquent au moins, à
 notre tête, au sommet, la glorieuse place du père de notre
-roman naturaliste. :
-Eure ZOLA
 Ce volume contient :
 
-Balzac ;
-
-Stendhal ;
-
-Gustave Flaubert ;
-
 Edmond et Jules de Goncourt :
-
-Alphonse Daudet ;
 
 Les romanciers contemporains.
 
@@ -3612,15 +3034,11 @@ et sous le coup de l'actualité, mon ambition serait d'avoir
 écrit un livre. En tout cas, telles sont mes idées sur notre
 théâtre, j'en accepte hautement la responsabilité,
 
-Émile Zola
 Comme mes articles étaient nombreux, j'ai dû les répartir
 en deux volumes. Le Naturalisme au Théâtre n'est donc
 qu'une première série. La seconde: Nos auteurs dramatiques,
-paraîtra prochainement.
-E. Z.
 Ce volume contient :
 Les Taéorres. — Le Naturalisme;
-- Le Don; |
 Les Jeunes ; |
 Les deux Morales ;
 La Critique et le Public ; |
@@ -3628,7 +3046,6 @@ Des Subventions ; |
 Les Décors et les Accessoires ; |
 Le Costume ;
 Les Comédiens ; |
-Polémique;
 Les ExempLes. — La Tragédie ;
 Le Drame ;
 Le Drame Historique ;
@@ -3640,14 +3057,8 @@ Le Vaudeville ;
 La Féerie et l'Opérette ;
 Les Reprises.
 Nos Auteurs dramatiques, édition complète en un +
-volume, 418 pages ; à
 Voulant réunir les articles de critique dramatique publiés ,
 par moi dans Le Bien public et dans le Voltaire, j'ai dù les )
-répartir en deux volumes. 4
-
-J
-
-BIBLIOGRAPHIE
 
 Le premier volume a paru dernièrement sous ce titre :
 Le Naturalisme au Théâtre. Je donne aujourd'hui le second,
@@ -3667,28 +3078,13 @@ Voici mes études. On les jugera.
 
 Ce volume contient :
 
-Théâtre classique ;
-Victor Hugo;
-Émile Augier ;
 Alexandre Dumas fils ;
-Victorien Sardou ;
-. Eugène Labiche ;
 Meilhac et Haléoy ;
-Edmond Gondinet :
-Édouard Pailleron ;
-Adolphe d'Ennery ;
-Théodore Barrière ;
-Octave Feuillet ;
-George Sand;
 Théodore de Banville ;
 Edmond et Jules de Goncourt ;
-Alphonse Daudet ;
-Erckmann-Chatrian.
 
 vu
 
-Emile Zola 1
-L
 Documents littéraires, études et portraits, édition
 complète en un volume, 422 pages;
 Les études que je réunis aujourd'hui ont toutes paru dans
@@ -3702,27 +3098,19 @@ plus lâchées au point de vue des documents et du style, |
 j'ai trouvé, en les relisant, des pages dont je désire affirmer
 les idées. |
 Ce volume contient : :
-Chateaubriand ;
-Victor Hugo ;
 Alfred de Musset ;
-Théophile Gautier ;
 Les Poètes contemporains;
-George Sand;
 Dumas fils ;
-Sainte-Beuve ;
 La critique contemporaine ;
 De la moralité dans la littérature.
 Une campagne, 4880-1881, édition complète en
 un volume, 408 pages ; à
-PRÉFACE
 Je réunis, dans ce volume, les articles que j'ai donnés au
 Figaro, pendant ma campagne d'une année. Pourtant, on
 ne les y trouvera pas tous, car j'ai cru devoir mettre à part
 les pures fantaisies, les airs de flûte que je jouais entre
 deux batailles, et que je réserve pour un autre recueil. Je
 publie les seuls articles de polémique.
-
-BIBLIOGRAPHIE
 
 Aujourd'hui, me voilà dans la retraite. Depuis quatre
 mois, j'ai quitté la presse, et je compte bien n'y point rentrer, sans vouloir toutefois m'engager à cela par un
@@ -3761,9 +3149,7 @@ dans mes sept volumes de critique, que le développement
 
 . continu, et seulement de plus en plus appuyé, de la même
 idée. L'homme qui, l'année dernière, à quarante et un ans,
-I11
 
-Emile Zola
 publiait les articles d'Une Campagne, est encore celui qui,
 à vingt-cinq ans, écrivait Mes Haines. La méthode est
 restée la même, et le but, et la foi. Ce n'est pas à moi de
@@ -3800,10 +3186,6 @@ le penser, et quitte à gâter les joies de sa vie! Voilà quelle a
 été ma passion, j'en suis tout ensanglanté, mais je l'aime, et
 si je vaux quelque chose, C'est par elle, par elle seule!
 
-112 )
-
-BIBLIOGRAPHIE
-
 . D'ailleurs, elle est la grande force. Malgré les erreurs que
 j'ai pu commettre, on a entendu ma voix, parce que j'étais
 convaineu et que j'étais passionné. Dans notre effroyable
@@ -3834,29 +3216,20 @@ le jeune écrivain qui nous sauvera de cette commère braillarde de la politique
 plantera dans les décombres le drapeau noble de la littérature, si rudement, que la France oubliera au moins pour un
 jour les torchons sales des partis !
 
-ÉMILE ZOLA
-Médan, 15 janvier 1882.
 Ce volume contient :
 Un homme très fort. .
 Les trente-six Républiques.
 Le parti de l'indignation.
 
-! Émile Zola
 L'encre et le sang.
-Victor Hugo.
 Impuissance de la critique. ;
-Futur ministre.
 Un bourgeois.
 Une statue pour Balzac.
-Gambetta.
-Bétise. <
 Monsieur le comte.
 Le naturalisme.
 La fille au théâtre.
-Nana.
 Comment elles poussent.
 L'adultère dans la bourgeoisie.
-Femmes honnétes.
 Le divorce et la littérature.
 Un cadavre récalcitrant.
 Edmond de Goncourt.
@@ -3866,25 +3239,16 @@ Notre École Normale.
 Céard et Huysmans.
 Nos hommes d'esprit.
 Émile de Girardin.
-Protestantisme. À
-Réponse aux protestants.
 ï Hugo et Littré.
 Souveraineté des lettres.
 Alexis et Maupassant.
-Pro domo mea.
 Le suffrage universel.
 Pluie de couronnes.
 
-‘ BIBLIOGRAPHIE
-Esclaves ivres.
 La démocratié.
-Alphonse Daudet.
-Adieux.
 Nouvelle campagne, 1896, édition complète en un
-volume, 298 pages ;
 Tous les articles réunis dans ce volume ont paru dans le
 Figaro, excepté le dernier.
-E. Z.
 Ce volume contient :
 L'Opportunisme de Léon XIII;
 La Vertu de la République ;
@@ -3898,27 +3262,16 @@ La Société des Gens de Lettres :
 Ce qu'elle devrait étre ;
 La Voyante;
 La Propriété littéraire;
-Peinture ;
 L'Élite et la Politique ;
 Pour les Juifs;
-Dépopulation ;
-Enfin couronné;
 Les Droiüs du Romancier ;
 Auteurs et éditeurs ;
 Les Droits du Critique.
-11ù
-
-2 }
-Emile Zola |
-\ 4
-L'AFFAIRE DREYFUS
 
 La Vérité en marche, édition complète en un
-volume, 316 pages;
 
 La vérité est en marche
 et rien ne l'arrêtera,
-PRÉFACE
 
 Je crois nécessaire de recueillir, dans ce volume, les
 quelques articles que j'ai publiés sur l'affaire Dreyfus,
@@ -3944,14 +3297,10 @@ de métier tenait absolument à ne toucher aucun droit. J'ai
 refusé toutes les offres, je n'ai écrit ni romans ni drames,
 et peut-être voudra-t-on bien ne pas m'accuser d'avoir battu
 monnaie avec cette histoire si poignante, dont l'humanité
-entière a été bouleversée.
 
 Pour plus tard, mon intention est d'utiliser, en deux
 œuvres, les notes que j'ai prises. Je voudrais, sous le titre :
 « Impressions d'audiences », conter mes procès, dire toutes
-
-: ; |
-BIBLIOGRAPHIE
 
 à les monstrueuses choses et les étranges figures qui ont
 défilé devant moi, à Paris et à Versailles. Et je voudrais,
@@ -3989,28 +3338,19 @@ Et, je le répète, ces articles ne sont eux-mêmes qu'une
 contribution au dossier en formation de l'affaire Dreyfus,
 les quelques documents de mon action personnelle, dont
 j'ai tenu à laisser le recueil à l'Histoire, à la Justice de
-demain.
 
 Paris, le premier février 1901.
-Émize ZOLA
-117 VIL.
 
-(
-Émile Zola
 Ce volume contient : ;
 M. Scheurer-Kestner, article paru dans le Figaro du
-25 novembre 1897; k
 Le Syndicat, dans le Figaro du premier décembre
-1897;
 Procès-Verbal, dans le Figaro du 5 décembre 1897;
 Lettre à la Jeunesse, brochure publiée le 14 décembre
-1897;
 Lettre à la France, brochure publiée le 6 janvier 1898;
 Lettre à M. Félix Faure, président de la République,
 publiée dans l'Aurore du 13 janvier 1898;
 Déclaration au jury, lue le 21 février 1898 devant la
 cour d'assises de la Seine, et publiée dans l'Aurore du
-lendemain 22;
 Lettre à M. Brisson, président du conseil des ministres, |
 publiée dans l'Aurore du 16 juillet 1898;
 Justice, article publié dans l'Aurore du 5 juin 1899;
@@ -4022,12 +3362,8 @@ Lettre à M. Émile Loubet, président de la Répu- :
 blique, publiée dans l'Aurore du 22 décembre 1900;
 Mon père, François Zola, quatre articles publiés |
 dans l'Aurore du 28 mai 1898, des 23, 24 et 31 janvier |
-1900. |
 La préface du volume a été publiée dans l'Aurore
 du samedi 16 février 1901.
-
-: BIBLIOGRAPHIE
-THÉATRE
 
 Théâtre, édition complète en un volume, 518 pages;
 
@@ -4045,7 +3381,6 @@ hurlait : « Pas l'auteur ! pas l'auteur! » Mon nom aurait été
 
 , une indécence, que les honnêtes gens qui étaient là, ne se
 seraient pas fâchés avec une indignation de pudeur plus
-vigoureuse.
 
 Et je ne parle pas de la critique. J'ai collectionné pré-
 cieusement tous les articles publiés, j'ai créé pour chaque
@@ -4063,7 +3398,6 @@ nettement où je voulais aller. On ne tue pas un livre. On
 peut chercher à l'enterrer sous le silence ou sous le scandale, mais il ressuscite à son heure, il a quand même le
 succès qu'il doit avoir. Malheureusement, au théâtre, les
 
-Emile Zola |
 conditions changent. Une pièce sifflée est une pièce tuée. À
 Il faut des circonstances extraordinaires pour qu'elle soit
 reprise un jour dans de bonnes conditions, et qu'un nou- :
@@ -4087,20 +3421,13 @@ et de la critique à mon égard, c'est une appréciation plus
 nette et plus juste de ce que je suis et de ce que je veux.
 J'ai beaucoup d'entêtement et de patience. On a bien fini
 par lire mes romans, on finira par écouter mes pièces.
-ÉMILE ZOLA
-Paris, premier juin 1878.
 Ce volume contient :
-Thérèse Raquin, drame en quatre actes, représenté
 pour la première fois à Paris, sur le théâtre de la Renaïssance, le 11 juillet 1873;
 Les Héritiers Rabourdin, comédie en trois actes,
 représentée pour la première fois, à Paris, sur le théâtre
 Cluny, le 3 novembre 1874;
 Le Bouton de rose, comédie en trois actes, représentée
 pour la première fois, à Paris, sur le théâtre du PalaisRoyal, le 6 mai 1878.
-
-DR
-; BIBLIOGRAPHIE
-EN COLLABORATION
 
 Les Soirées de Médan, édition complète en un
 volume, 298 pages, dont 50 de Zola ;
@@ -4116,15 +3443,11 @@ donné tant de preuves. Notre seul souci a été d'aflirmer
 publiquement nos véritables amitiés et, en même temps,
 nos tendances littéraires.
 
-Médan, premier mars 1880.
-
 Ce volume contient :
 
 ÉmLE ZoLa. — L'Attaque du Moulin ;
 
 Guy pe MaupassanT. — Boule de Suif;
-
-J.-K. Huysmaxs. — Sac au Dos;
 
 Henry CéarD. — La Saignée ;
 
@@ -4132,20 +3455,13 @@ Léon HENNIQUE. — L'afjaire du Grand 7;
 
 PauLz ALExIs. — Après la Bataille.
 
-ŒUVRES DE ÉMILE ZOLA
-
 Les Personnages des Rougon-Macquart, pour
 servir à la lecture et à l'étude de l'œuvre de Emie ZoOLA,
 édition complète en un volume, 478 pages ;
 
-PRÉFACE
-
 En dénombrant les douze cents personnages des Rougon-
 
 Macquart, en résumant Jeurs faits et gestes à travers vingt
-
-“
-Emile Zola à
 
 volumes, l'auteur n'a pas perdu de vue que, pour avoir un ;
 intérêt véritable, son livre devait respecter, non seulement |
@@ -4157,7 +3473,6 @@ pensée de plagiat doit être écartée, puisque l'unique et très
 mince mérite auquel prétende l'auteur consiste, non dans
 l'évocation de cette foule vivante et agissante, mais dans
 sa simple mise en ordre, dans son classement alphabé-
-tique.
 
 Conçu il y a trois ans, alors que Zola proscrit, outragé
 dans les siens, presque déchu de la qualité de citoyen
@@ -4184,8 +3499,6 @@ comme Léon Josserand ou sceptiques comme Camy-Lamotte, |
 des militaires comme le colonel Jobelin ou le général
 Bourgain-Desfeuilles, justifient par leur mentalité tout le
 
-ie: à 0) El
-- BIBLIOGRAPHIE
 trouble où s'enlize notre époque. Si chacun d'eux n'est qu'un
 comparse, ils prennent dans l'ensemble un aspect redoutable, ils sont la vérité même. Du Poizat, Mélanie Correur,
 Gilquin, Kahn, la terrible bande d'Eugène Rougon, toujours
@@ -4214,15 +3527,12 @@ fraternité étroite. D'un volume à l'autre, le médecin Pascal
 Rougon tend une main amie au romancier Pierre Sandoz;
 Albine, la libre fée du Paradou, est bien la sœur de Marie
 Chantegreil et de la petite brodeuse Angélique; Pauline
-*  Quenu, Henriette Levasseur, Marcelle Maugendre, Denise
 Baudu, parfaites eréatures de devoir, de dévouement et de
 sacrifice, sont les filles tendrement unies, tendrement aimées,
 d'un mème père; la princesse d'Orviedo, qui distribue sa
 fortune aux pauvres et s'enterre vivante, possède un trait
 commun, la pureté de l'idéal, avec la farouche Annouchka,
 qui meurt courageusemient pour sa foi. Et si la critique est
-
-Emile Zola
 
 en veine de découvertes, elle doit apercevoir, à travers les
 rudesses des Rougon-Macquart, toute une pléiade d'ado- tt
@@ -4258,9 +3568,6 @@ affichant madame de Jeumont, sous l'œil amusé du comte
 de Bismarck; le peintre Gagnière fera défiler devant nous
 les maîtres de la musique, depuis Haydn et Mozart jusqu'au
 dieu Wagner; Angélique ouvrira la Légende dorée, avec sa
-
-NT PALR €
-‘BIBLIOGRAPHIE
 
 longue théorie de saintes et son envolée hors du réel; avec
 le chasseur d'Afrique Prosper Sambuc, nous assisterons à
@@ -4298,7 +3605,6 @@ l'enquête universelle? Cette machine éventrée, ces bêtes
 souffrantes et aimantes, vieillies et sacrifiées, sont comme
 les ombres douloureuses de tant de vaincus de la bataille
 
-Émile Zola -
 sociale, le maigre Florent, le malchanceux Henri Deloncle, |
 et le petit François Quittard, et le père Josserand, et le
 remisier Massias, et le vieux Bonnemort, et Pauvre-Enfant,
@@ -4307,18 +3613,14 @@ doucement l'agonie. C'est un lamentable concert qui adoucit
 de ses sanglots l'histoire des Rougon-Macquart, hymne à |
 la vie, œuvre de science, de justice et de pitié humaine.
 
-F.-C. Ramonp
-
 Telles sont les œuvres de Zola publiées en volumes
 dans la Bibliothèque-Charpentier. Je ne veux pas faire
 des calculs puérils, mais nous devons compter, parce
 que ce compte avait beaucoup d'importance dans l'esprit
 de Zola, parce qu'il en a eu et qw'il en a beaucoup dans
 l'esprit du public, dans l'esprit de son public et de ses
-admirateurs :
 
 que la collection des œuvres de Zola dans la Bibliothèque-Charpentier se compose de quarante-sept
-volumes ;
 
 que les quarante-six volumes parus font un total de
 20.139 pages; la page n'est d'ailleurs ici qu'une assez
@@ -4332,47 +3634,29 @@ ment à trois francs cinquante, font un prix marqué
 total de 164 francs 5o.
 
 Nous sommes en mesure d'envoyer les quarante-six
-volumes parus franco à domicile à Paris, en province
 ou à l'étranger pour la somme de 435 francs.
 
 | AUOT p ”
-. BIBLIOGRAPHIE
 Le catalogue de Fasquelle, février 1902, outre les
 mille que nous avons comptés, donne les millésimations
-suivantes :
-ITR ERTR AMEN CASE enr, 5.000 exemplaires
 Le Roman expérimental. . . . 7.000 —
-Une Campagne (1880-1881). . 4.000 —
-Nouvelle campagne (1896) . . 7.000 —
-La Vérité en marche. . . . . 9.000 —
-Les Soirées de Médan . . . . 28.000 —
 Les Personnages des RougonMACQuar ENT EE ete. (N 6:000
 Si nous ajoutons ce nouveau total de
-66.000 exemplaires
 au premier total que nous avons obtenu de
-2.283.000 exemplaires,
 nous obtenons un total général de
-2.349.000 exemplaires,
 sans compter les exemplaires non millésimés, des
 autres volumes, et sans compter les traductions, qui
 sont, paraît-il, innombrables.
 
-Émile Zola
-
 En dehors de la Bibliothèque-Charpentier, Char- 1
 
 pentier puis Fasquelle ont édité de Zola : |
-
-THÉATRE |
-
-Thérèse Raquin, drame en quatre actes, représenté
 
 pour la première fois à Paris, sur le théâtre de la |
 
 Renaissance, le 11 juillet 1873, un volume grand in-18 |
 de 16% pages, dont 16 de préface, datée de Paris,
 25 juillet 1873, Paris, G. Charpentier et E. Fasquelle
-éditeurs, 1892, deux francs
 Les Héritiers Rabourdin, comédie en trois actes,
 représentée pour la première fois à Paris, sur le
 théâtre de Cluny, le 3 novembre 1874, un volume grand
@@ -4380,7 +3664,6 @@ in-18 de 128 pages, avec une préface de xx pages, datée
 du premier décembre 1874, Paris, Charpentier et Com-
 
 pagnie, libraires-éditeurs, 28, quai du Louvre, 1874,
-deux francs
 Renée, pièce en cinq actes, représentée pour la première fois, sur le théâtre du Vaudeville, à Paris, le
 16 avril 1887, un volume grand in-18 de 138 pages,
 dont une préface inédite de 32 pages, datée de Médan,
@@ -4392,14 +3675,10 @@ la scène de l'Académie Nationale de Musique, le
 15 février 1897; le poème, un volume grand in-18 de
 70 pages, Paris, Fasquelle, 1898, un franc
 
-‘ BIBLIOGRAPHIE
-
 L'Ouragan, drame lyrique en quatre actes, poème de
 Émire ZocA, musique de Arrrep BRUNEAU, représenté
 pour la première fois sur le Théâtre National de l'OpéraComique, le 29 avril 1907 ; le poème, un volume grand
 in-18 de 54 pages, Paris, Fasquelle, 1901, un franc L
-
-EN COLLABORATION
 
 Le Rêve, drame lyrique en quatre actes, huit tableaux, d'après le roman de ÉmIre ZoLA, poème de
 Lours GALLET, musique de ALFRED BRUNEAU, représenté
@@ -4414,9 +3693,6 @@ musique de ALFRED BRUNEAU, représenté, pour la première fois, à Paris, sur l
 Carvazno; le poème, un volume grand in-18 de
 66 pages, Paris, Fasquelle, 1894, un franc
 
-*
-
-BROCHURES |
 |
 À La République et la Littérature, une plaquette |
 in octavo de 40 pages, Paris, G. Charpentier, éditeur,
@@ -4424,46 +3700,27 @@ in octavo de 40 pages, Paris, G. Charpentier, éditeur,
 Discours prononcé au Banquet de l'Association |
 générale des Étudiants, une petite brochure de 32 pages,
 Paris, Charpentier et Fasquelle, éditeurs, 1893,
-o franc cinquante
-L'AFFAIRE DREYFUS
 Humanité — Vérité — Justice. — L'affaire Dreyfus.
 — Lettre à la Jeunesse, une plaquette in octavo de
-13 pages, Paris, Fasquelle, 1897, dix centimes
 Humanité — Vérité — Justice. — L'affaire Dreyfus.
 — Lettre à la France, une plaquette in octavo de
-15 pages, Paris, Fasquelle, 1898 dix centimes
 Humanité — Vérité — Justice. — L'affaire Dreyfus.
 — Lettre à M. Félix Faure, président de la Répu- |
 blique, une plaquette in octavo de 16 pages, Paris, |
-Fasquelle, 1898. |
 
 la u:5 1 fée
 Enfin le catalogue de Fasquelle, février 1902, porte les
-ÉDITIONS DE LUXE
-suivantes :
 .
-Fécondité, édition in octavo carré,
 sur papier du Japon, les deux volumes,
-trente francs ;
 sur papier de Hollande, les deux volumes,
-vingt francs ;
-Travail, édition in octavo carré,
 sur papier du Japon, les deux volumes,
-trente francs ;
 sur papier de Hollande, les deux volumes,
-vingt francs ;
-PETITE BIBLIOTHÈQUE CHARPENTIER
 Format petit in-32 de poche
 à quatre francs le volume
 Chaque volume orné de deux ou plusieurs eaux-fortes par
 les principaux artistes
-Reliure pleine, veau grenat, poli, tranches dorées 8 francs
-—  demi-veau, tranches dorées 6 francs 50
-— empire, tête dorée 6 francs
 ZoLa. — Contes à Ninon, avec 2 dessins de Jeanniot,
 1 un volume
-
-Emile Zola
 
 Zoza. — Nouveaux Contes à Ninon, avec 2 des- :
 sins de F. Fau, gravés à l'eau-forte par
@@ -4476,8 +3733,6 @@ Alaux, gravés à l'eau-forte par Manesse,
 
 un volume
 
-*%X *
-
 Les Soirées de Médan, un volume in octavo, illus-
 
 tré de 6 compositions de Jeanniot, gravées à l'eau-forte
@@ -4487,17 +3742,12 @@ par Muller, et des portraits des six auteurs, eaux-fortes
 de Desmoulins, 20 francs
 La Curée, illustration de G. Jeanniot, un volume |
 
-in octavo, 10 francs
-
 Lourdes, illustration par Henri Lanos, un volume
 
-in octavo, illustré en couleurs, 8 francs
 La Terre, illustration de G. Ibels, un volume in-18 |
-jésus, 12 francs |
 
 La Fête à Coqueville, un volume in quarto raisin,
 avec de nombreuses aquarelles de André Devambez, Î
-< 4
 reproduites en couleurs, 5 francs L
 
 Il y a une grande lithographie, un portrait de Zola,
@@ -4506,126 +3756,44 @@ par Henry de Groux; cette lithographie se vend
 
 vingt francs; il y en « a une réduction, qui se vend
 
-dix francs.
-
 a NE TLLTTE k CE ES UT niet OPEN Al
-LEA 4 PUR CEST EEE EEE g- . DT et
 # FROURS Ml FLE re PS are % e LE
-ÉLUS RE À ; : 11 PPT s:
-SE RAS AT AEUR LETTRES ‘a f 12 x
-Ce AP RENE ; A
 qe 6 RES ra il #}
-fours 3 d'A
-DS ES 21
-RE) HORS ARTE
-HR SEE d ee
-AS: As GER TT ! P nt
-TR s An A 1e Des
-DE + 5 LATCIAL re à
-:: OPPOSER . ARCRO :
 rr r'Yéden ta | + : y
-RSR, SANTE RE Fi ‘
-EC RE ; 4 es
-POSE AN 2 AAA. : . É à |
 de AA À l Re on À AU ar
-ECS RE cs Men « ll 0 sURE
 AT AN Ut ESA : viu de
-JR N ra à vis ;
-ME RAP A. j ; “ ; Ru 4
-A DOCS ET Ag
 
 17 Je it 1 Mt ER PAL fs A AE MINE lautY ñ DA
-MU En a ME ONE SENS to
 Re vi LA EN CE ee 2
-DEAN nu Î AN MN D At RARE
 £ Arts MRC # CE er a ete 1 FEU
 a LS Une ; LRU AS AR SEE HS du 7
-EN US ï te NET SNA EE COTE D PA)
-Fe RENE X MI FUEL UPREN LEUR A
 ARR". S du À DST IN DETTE ee fe LBÉTA SE
-2 1) Re AT , f PR CR AS NU ie NE AL ARE
-LOU xs: è VAR POS AA OA $
 vi RE LA A k VE RIAEES AE Ar MN Ur
 ME 2RATINUN Û k ee L'ART AIPOPRE AE ARQU AC ent 4
 AFTONT USE mr PURGE Ne Ù ï Û (22 ie vi Ÿ sé e
-VA TRUE AU ON PRE à |
-AC GE ele à el DNA CUT
 À A A TAB MAN Ag) CNYAUETS See MA 20
 ke pr RS RE NN A AA Ne HE ‘RS ENER
-GORAP ALL NIUE NAN AU EST EEE AURA Vo Are
 
-ne |L 0 LA +
-Funérailles d'Émile Zola
-DbooumTde Mi Caunes
 Discours de M-/Abel Hérmant. : .. .:... 08
-Hiscouts d'Anatole France... : % 4... 002
 Gabriel Trarieux. — Émile Zola, homme d'action. . . . 92
-Les récentes œuvres de Zola, essai . . . . . . . . . . . 30
 Émile Zola. — Lettre à M. Félix Faure, président de la
-LD CORNE PIRE RE RAT: |
-DR era ee AT a Lee Se
-
-} 740]
 
 Fini d'imprimer deux mille exemplaires de ce
 cinquième cahier le jeudi 4 décembre 1902
 
 à l'Imprimerie de Suresnes
 
-(E. PAYEN, administrateur)
 9, rue du Pont :
-IS ?
 
-Lot EPA E Me ECS
-e AE nue w. à
-HER Æ “Eu S k + : RAS A
-FE te El 4 Rai al 3e CI EUS Été
-SRE EE PA NE EN LUC HER AO ONE
-1% >: EL EPMe ! J AS . d
-pe AE ss Rae “Vue j
-Frs WIN S UE ‘5 Li 4 “D
-RS | Dr: à | At fk
-BALE ANT PIRE Ue :
-RUE A AE : à "(04h 4008
-à au: Lie i RE
-rés Le % : 1e 4 % « #
 ke RES 2 © de NAT
-LE RS } - : PJ A
-OR : See F " # . Se
-ANR ? 3 va ù Fin ‘M
-“ À \ 5" LES
-À ETES DT à Pr
 | "À YOU LS : L NUS
-CRT ME Ca dt LEA DAT
-LRO TR ve : Ê ' "A ".
-ane "7 j° Ha : l Ô rl i
-APN 14 w Fr y ' ne.
 1e pet LE 0 PAL ul * :
-; NN À in ae . 144 wk L
-ÉRISES, INC UNEE LR
-ny He Ar Lr A 1 4 | - Re
-PMR LL NSP, ERA L' ) AT Û
-WE ONE A NAS "DIE
-Ÿ x à ND "1 Ph. ne
-+ FRS RE N à 1 '
-STONES Cr A
-FI Fan ho, raté Nr LUTTA RU
-k + M ES Te UM À LAN A rs
-ue à NAS 157 : NP ATR j pi » de je “ 4 L ar Lot 2 à EL AU) É “€
-D ct a ht à
 
-ÉDITIONS D'ART L
-EpouArRD PELLETAN, 125, boulevard Saint-Germain, Paris
 Vient de paraitre
-ANATOLE FRANCE
 de l'Académie française
-Édition définitive
-20 compositions d'AUGUSTE LEROUX
 Gravées par ERNEST FLORIAN ,
 in quarto et in octavo, imprimé en quatre couleurs par
 Lahure, tirage à la presse à bras, limité à 225 exemplaires
-numérotés.
-IN QUARTO, TEXTE RÉIMPOSÉ
 Un exemplaire — numéro 1 — sur whatman, contenant
 tous les dessins originaux, avec une double suite
 d'épreuves d'artiste signées, sur japon et sur chine;
@@ -4638,7 +3806,6 @@ sur grand vélin des papeteries du Marais, contenant une
 aquarelle originale de lillustrateur, plus une: suite
 d'épreuves d'artiste signées, sur chine, au prix net
 de 500 francs
-IN OCTAVO ‘
 °0 exemplaires — numéros 23 à 42 — sur chine fort, au |
 prix net de 225 francs -
 183 exemplaires — numéros 43 à 225 — sur vélin à la cuve
@@ -4650,19 +3817,12 @@ gravures, sur japon ancien, au prix net de 125 francs
 26 collections d'épreuves d'artiste, de toutes les gravures,
 sur chine, au prix net de 100 francs
 
-ÉDITIONS D'ART
-ÉpouarD PELLETAN, 125, boulevard Saint-Germain, Paris
 er ui, A on, LR
 Pour paraitre en décembre
-ANATOLE FRANCE
 de l'Académie française
-OCURATEUR DE JUDÉE
 Décoré de compositions en camaïeu et en noir
-d'EUGÈNE GRASSET
 Gravées par ERNEST FLORIAN
 in quarto et in octavo, imprimé en trois couleurs, tirage
-limité à 350 exemplaires numérotés.
-IN QUARTO, TEXTE RÉIMPOSÉ
 
 Un exemplaire — numéro 1 — sur whatman, contenant tous
 les dessins originaux, plus une double suite d'épreuves
@@ -4670,14 +3830,11 @@ d'artiste, sur japon et sur chine;
 
 Un exemplaire — numéro 2 — sur whatman, contenant une
 double collection d'épreuves d'artiste, sur japon et sur
-chine;
 
 20 exemplaires — numéros 3 à 22 — sur japon ancien ou
 sur grand vélin, contenant une collection d'épreuves
 d'artiste, sur chine, de toutes les gravures, au prix net
 de 300 francs
-
-IN OCTAVO
 
 12 exemplaires —numéros 23 à 32 — sur chine fort, au prix
 net de 175 francs
@@ -4692,22 +3849,11 @@ Il sera tiré en outre :
 
 sur chine. ?
 
-ONE :
-: PNR Al
-: |
-%
 ta
 
-a +
-. V à à
-: {
 à Nous avons reçu de M. Urbain Gohier, sur papier é
 _ libre, la rectification suivante : us DA
-i ; ï AE
 
-UNE RECTIFICATION DE
-M. URBAIN GOHIER
-Paris, 23 novembre 1902
 Monsieur le rédacteur
 des Cahiers de la Quinzaine,
 
@@ -4756,19 +3902,15 @@ Pressensé ? » M. Clemenceau me répondit, de son ton
 railleur : « Allez-y voir. » Je passai dans l'autre bureau
 et M. de Pressensé, qui lisait aussi le Temps, me dit:
 « J'espère que vous allez fustiger ce monsieur-là ? » Je
-me retirai simplement. ;
 
 Je n'avais pas & marché » dans l'affaire de Saxcé,
 parce qu'elle était toute personnelle.
 
 J'ai « marché » dans l'affaire Jaurès parce qu'elle est
-d'intérêt général.
 
 Sur un seul point, M. de Pressensé blâmait mon argumentation. J'ai noté que le frère de M. Jaurès, qui traîne
 un sabre dans la marine, a reçu trois avancements successifs dans l'année même où le célèbre tribun cessa
 
-LE CIS EN
-UNE RECTIFICATION DE M. URBAIN GOHIER
 d'attaquer les états-majors. M. de Pressensé me signala
 qu'il avait lui-même un frère dans l'administration des
 Finances, et que mes procédés de discussion gêneraient
@@ -4788,7 +3930,6 @@ le journal, de commentaires auxquels j'avais le devoir
 de répondre. J'y répondis en effet. Mais, depuis six
 mois, la réponse n'a pas élé insérée; je suis obligé
 de recourir aux voies légales pour en obtenir la publication, qui n'est pas dénuée d'intérêt pour mes anciens
-lecteurs.
 
 Deux jours avant mon départ pour l'Amérique, j'eus
 le plaisir de dîner avec M. de Pressensé, notre ami
@@ -4832,43 +3973,26 @@ reprendrais, avec l'approbation de mon loyal ami, f
 l'œuvre si nécessaire du nettoyage socialiste. Est-ce la }
 faute de mon loyal ami si je n'ai pas trouvé le filon ? l
 Veuillez agréer, monsieur, mes compliments les |
-meilleurs.
-Urbain Gohier
 6794 Le gérant : CHARLES PÉGUY À
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
-à
 
-FN pee TR hate Sr sr dt ES SE SR en
 NE AU pe ONE NO Va ie PTe TU
-D La c
-FA #3
 Nous prions tous nos abonnés de vouloir bien acheter
 tous leurs livres à la librairie des cahiers. — Adresser ÿ
 les ordres et les mandats à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne, Paris, d
-cinquième arrondissement.
-;
-De,
 #
-e.
-1 J à 4
-Ne =
-* EAU ‘ ; e
 
 Vient de paraître chez Fasquelle, en vente à la 1 h
 librairie des cahiers : ï
 
 Joserx ReINACK. — Histoire de l'Affaire Dreyfus. — |
 IT. — Esterhazy, un gros volume in octavo carré de k.
-718 pages, sept francs |
 
 Table des matières : î
 
-Esterhazy;
 l'île du Diable; À
 le petit bleu; à
 la double boucle;
-Henry;
-Scheurer-Kestner ;
 La collusion; \
 Appendice. — Henry et les cornets; {
 Boisdeffre et Picquart; 4
@@ -4881,4 +4005,3 @@ d'annonces, nous avons annoncé l'apparition du premier
 volume : le Procès de 1894; ce tome I, même prix,
 parut aux éditions de la revue blanche; on sait que les 114
 éditions de La revue blanche ont passé récemment chez
-Fasquelle.

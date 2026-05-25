@@ -7,74 +7,25 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 54909
 ---
-
 neue CAHIER DE LA SIXIÈME SÉRIE
-3 RAOUL ALLIER
-
-…_ L'ENSEIGNEMENT PRIMAIRE
-BP DES INDIGÈNES
-
-_ à Madagascar
-@ 139387
-
-à 4,10.16
-
-$ G CAHIERS DE LA QUINZAINE
 
 k paraissant vingt fois par an
 
-5 : PARIS
-
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-be + À Fe:6 LS DÉBATS TPR ERR R PETER
 Et: re RÉ a See HITS
-Tee ERREURS
-=> EL à Vire RP LES
 ae « Le CERTES RTE:
-no à RS
-D : A
-TA ‘2 $ de 0 SAR SE RE
-5 LE SHOP eReS \ 2 4 ST GE REP
 vi CS D‘ et r RAS
 >. VASTES RAS me Ce
-A 2e” 2: ERREURS RUE + 3
 ROVER 0 ns FRS PNNE Re NE ON CREER
-$ JET Em. d VAL RAR RTE EAN à
-SUR TE NP RS PA?
 
-RENE REV AQU) CG à dé pe GP ê Ro, vécu DER EE
-ee te ee ie CN RUN
-TER SNS Re ane 1 TRAVERS EE DÉS AE URAEN =
-SA RE Re LE AE A TE TT OMÉ OMR Pod CR UE TES PAU À JR
-RO * AR RTS 72 1,26 Mes
 Fer RS EE ee) PROS Et _ AUDE TEA
-GI 6 Pres A £ #2 LR LETTRE
-Ro Ÿ ; PTS LES
-Re 2: FIRE
-_ LPS ERNERRS î ets 6 à ; ; RARES
-: ÉTÉ RES E ere: 2 Lan : S ù RS
-1.10 PETER ES 3 PAPE HAE
 AE “AE 2 DURE A LATE ES ee À Sr LES
-RS 5 0 Et : : À PATES
-LTÉE E + En HAS HAUTS pe
-LR DA net : as èz 5 : : 4 ; es
-NES FAN CRE Re es ESS S ES È BE RS
-M eur DRE ES + x ete
-LPS PRES S a LUS
-RE PLUS A] —. - FALSE È ; NA PES
-ER à LT ER TE VHS MERS ER None Re
 TARN PRE et SN REGIS DES AN Mouse
 LIVRES 2 td É DIRE RS AR MR ur EE LR) RME Fev $
 Me PORN RSI Rte +R dE
-LATE RE Mer 5 NRA 0e ROSE
 o METRE UT UE Terre RCE DEN EN LA ENT YF sou SC ARE DE
-Re RAPECRONTE ESA A Se RAA VS AA RATES SRE
 er. l'O re MPOS EN ni nd A
-DPI Re ATEN Det SNS CR te
-IRL AL ARRET NDS SP Re EEE REED 22 Te TETE Gi
-SEP ME SEEN EE D jé FD 2 ARCS
-EAGÈ v _ en; Eat ds: Re Gt 2
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un si grand
@@ -92,15 +43,10 @@ songer à en donner ici l'énoncé même le plus succinct;
 pour savoir ce qui a paru dans les cinq premières
 séries des cahiers, il suffit d'envoyer un mandat de
 
-; cinq francs à M. André Bourgeois, administrateur
 des cahiers, 8, rue de la Sorbonne, rez-de-chaussée,
 
 ; Paris, cinquième arrondissement ; on recevra en retour
 
-RC : Il
-
-MN 5 TERRES
-CATALOGUE ANALYTIQUE SOMMAIRE
 le catalogue analytique sommaire, 1900-1904, de
 _ nos cinq premières séries.
 
@@ -120,59 +66,22 @@ série; toute personne qui s'abonne à la sixième série Ë
 le reçoit, par le fait même de son abonnement, en tête
 de la série; nous l'envoyons contre un mandat de
 cinq francs à toute personne qui nous en fait la
-demande.
 
-LL
-
-A RO RE PRE
 ES DUC Les, PRET AN À CO NS LA ALU EEE See ES
 _ LISTEN PO PA Cle PH ue Le DE RE
 La WA frs L le Char! 4 HER ET VE DA Ep LE TETE À
-rt ue LS RE Te a CS
-Le FORMES ER LÉ J MA ET ARR EL Ve EME
 Don. 2 TES RC RUE PEAR SSSR
-PINOT net < ; NES LS ur
-F'ISEIRONNES 3 fr RTE PME LATE 26 ©
-É ie * à FE Ë LCR AO ;
-LIT NSRNTAR È 2 . FL Er ef OPEN ER Ca
-LS EMA ‘ LE ACT NN SRE RES M 2 UE)
 M tie ni ee
-‘000
 26 ANR LE Puerto a een St RL M
-Li DRE NES RAI ER
-ARMES CA NENES AS NE LEE DR Ne LM Ce ARE
 Un. die RE ae a A nn RAT NCRE) « ue PANNEAU
 
-UN ESSAI DE MONOPOLE
-g? \1v
-A
 LE SR ie
-a \
-X
-A
 
 ire RS et SAS
-MR SR SRE SRE RER NRA
-Laf LRUEERSR Da AP CRE DES Le ARE An JR ANT PR
-5 CAVE F : NET Fe NUE PRET
-- PMP. Ne on.
-SAR = ë - PE RSS ee Fe
-GS d £ EE Fr a A
-ÉPRETE k À È Er M4
-M $ k A En duc.
-RCE | * LS ASS ER TER ER SESSEE
-LEGS À \ TRI ARE APR
-: 48 353) Aer LEE sr
 % ose 7 SE SNERER LCA Le
-MR 3 CUS ee DAT TN
-A ‘ ie F CR R E  n r re ARE À
-re “se LL OSSI NES LENS MAN Te
 PORTES : jé À LS LE a NA TE ARENA ESC
-75133 RUE T7 MMS LR SES wi: à à TENUE *
 NN et, ë DENT DILUMDNES FE, Pt nes RE a
 
-CHARLES PÉGUY
-UN ESSAI DE MONOPOLE
 £ Nos anciens abonnés savent, pour l'avoir éprouvé
 pendant cinq ans, nos nouveaux abonnés reconnaîtront
 rapidement que nos cahiers forment un grand peuple
@@ -183,7 +92,6 @@ serviles et apeurées ; ils ne tremblent point sous le
 gouvernement de commanditaires capitalistes ; ils ne
 mentent point sous le commandement de directeurs
 terrorisés, dirigés eux-mêmes; ils forment un grand et
-variable peuple libre.
 
 LL On y peut distinguer des familles, des races, des
 compagnies, des tribus; libres, autochtones, autonomes;
@@ -194,9 +102,6 @@ des réponses; des résonances et des consonances ; des
 de spéculation; des veines, au sens où les prospecteurs
 entendent ce mot, des veines courent; des filons
 
-: VIL
-
-Charles Péguy See
 reparaissent; des souches, de vieilles souches poussent
 des rejetons; des germinations se poursuivent; des
 frondaisons s'épanouissent ; des floraisons éclatent; et
@@ -206,7 +111,6 @@ monde, nous faisons quelques récoltes; tout un monde,
 
 un peuple de travail se meut; des végétations naissent
 et croissent; des moissons poussent; des forêts montent;
-en pleine liberté.
 
 Parmi toutes ces familles de cahiers, deux familles
 apparaissent aujourd'hui dans toute leur vigueur, dans :
@@ -226,7 +130,6 @@ Landry. le premier daté de Tien-Tsin, 13 novembre
 courrier de Chine, la suite et la fin; et nos cahiers
 de l'enseignement remontent si loin que je ne me rap- ;
 pelle plus à quand ils remontent; au delà de cet
-immortel Jean Coste.
 
 Tous nos cahiers, d'ailleurs, et en un sens, ne sont-ils
 pas des cahiers de courriers; puisque tous nos cahiers,
@@ -234,7 +137,6 @@ sans aucune exception, apportent à nos abonnés des
 nouvelles vraies de quelque part; et tous nos cahiers,
 en un sens, ne sont-ils pas des cahiers d'enseignement;
 puisque tous nos cahiers, sans aucune exception,
-VIII
 
 UN ESSAI DE MONOPOLE di
 apportent à nos abonnés les meilleurs des enseigne- :
@@ -256,7 +158,6 @@ comme un grand pays géométrique où se coupent un s
 grand nombre de regards et de sens, d'actions et de
 directions; qu'en un sens ils apportent des renseignements, qu'en un autre sens ils apportent des enseignements; sans compter tous les autres sens; que si l'on
 veut ils sont tout courriers, et, si l'on veut, tout
-enseignements.
 Que si l'on veut au contraire s'en tenir au sens restreint, au sens particulier, dans ce grand peuple libre
 des cahiers nos anciens abonnés connaissent bien, nos
 nouveaux abonnés apercevront bientôt ces deux grandes
@@ -264,9 +165,7 @@ nouveaux abonnés apercevront bientôt ces deux grandes
 cahiers de l'enseignement; en ce sens restreint, en ce
 sens particulier, le cahier que l'on va lire présente un x
 ‘intérêt singulier, car il appartient également à ces deux
-IX : a.
 
-Charles Péguy
 | grandes familles, il est à la jonction de ces deux races,
 | au point de recoupement de ces deux grandes lignées;
 il est si l'on veut un cahier de courrier proprement dit;
@@ -298,7 +197,6 @@ j commandement paraît former une plaisanterie excessi-
 LE quand on parle du monopole, quand on veut faire le
 #,
 
-UN ESSAI DE MONOPOLE
 monopole, on s'amuse extrêmement, parce qu'on ne
 pense qu'à embêter les catholiques.
 
@@ -332,8 +230,6 @@ indigènes à Madagascar, à le lire comme un cahier de
 l'enseignement primaire des indigènes à Madagascar;
 comme un cahier de courrier; comme un cahier de l'enseignement.
 
-XI ,
-
 | Charles Péguy à
 Pour tout travail, pour toute œuvre, la bonne lec-
 : ture consiste à lire l'œuvre en elle-même, par ellemême, pour elle-même.
@@ -364,8 +260,6 @@ intention que le tout formerait un cahier; des uns aux
 4 autres nulle différence; une homogénéité parfaite; la
 vérité, étant une, étant constante, étant fidèle, étant
 perpétuellement identique à elle-même, se retrouvait la ». XII
-
-À UN ESSAI DE MONOPOLE
 
 même en articles de journaux, se retrouve la même en
 ce cahier.
@@ -398,9 +292,6 @@ tuelles ; nous ferons ainsi toutes les fois que dans un
 cahier les notes auront cette importance d'annexes.
 
 Ainsi constitué, ce cahier de courrier, ce cahier d'enseignement, ce cahier de courrier d'enseignement doit
-XIII
-
-Charles Péguy #e
 
 l se lire comme tous nos cahiers, dans un esprit de
 
@@ -462,7 +353,6 @@ la France, des intentions qui ne sont point dans Ja
 
 pe gascar et que l'on jurerait qui sont dits pour la France;
 
-UN ESSAI DE MONOPOLE
 et pourtant ils ne sont pas dits pour la France ; et c'est
 nous qui faisons des transpositions.
 
@@ -493,15 +383,11 @@ dreyfusiste qui ne manquera point d'attirer sur l'auteur les malédictions de no
 style, politiques parlementaires, ouvriers de la cent
 soixante-et-onzième heure, mais qui ne surprendra
 point tous ceux qui connaissent M. Raoul Allier. Plus
-loin, deux mots en passant : :
-
-XV
 
 Charles Pégur DE
 | « Ce n'est pas le général Gallieni qui avait inventé 4
 \ ce régime. J'ajouterai même qu'il ne faut pas, non plus,
 | en rendre responsable le ministre d'alors, M. André
-À Lebon. » … +
 : M. André Lebon, quel nom sinistre, évocateur de
 : quels souvenirs ; mais de notre auteur quelle attention
 } ponctuelle d'historien à mesurer les responsabilités ;
@@ -527,9 +413,6 @@ Ni démagogie militariste, ni démagogie antimilita-
 protestante française, qui, pendant plus de deux ans,
 il en eut toute la responsabilité morale et, presque en
 $ entier, la responsabilité financière. »
-ét XVI $
-pue
-‘E
 
 ae UN ESSAI DE MONOPOLE 172
 Plus loin : 3
@@ -551,7 +434,6 @@ privé des missions françaises de toutes dénominations.
 il n'a jamais été nécessaire, et il ne l'est pas davantage
 aujourd'hui, de maintenir, au milieu de populations en
 majorité protestantes, des écoles officielles qui soient
-catholiques. »
 Tout est là : « l'enseignement privé des missions
 françaises de toutes dénominations ; » ce que demande
 lauteur, c'est exactement que les écoles officielles ne
@@ -559,11 +441,8 @@ lauteur, c'est exactement que les écoles officielles ne
 soient pas officielles ; qui ne penserait comme lui ; l'auteur ne veut point l'immédiate mort des catholiques ; il
 ne s'agit point de cela; l'auteur demande seulement
 qu'en matière d'enseignement l'État ne soit pas d'Église,
-XVIL
 
-Charles Pégur
 et que l'Église ne soit pas d'État ; c'est toute la formule, en ces matières, du véritable acratisme, et de la
-véritable liberté.
 
 ' Les titres mêmes de chapitres nous conduisent malgré
 l'auteur et malgré nous aux plus rapprochés rapprochements : une erreur ; n'a-t-on point commis cette erreur
@@ -593,10 +472,6 @@ primaire des indigènes à Madagascar, nous écrivait: « Il faut toujours tenir
 
 à une satrapie. Il est loisible à Gallieni et à ses subor-
 
-Jan. e
-
-UN ESSAI DE MONOPOLE
-
 donnés de rendre la vie impossible aux individus ou
 aux collectivités qui s'exposent à des rancunes de l'administration. D'autre part, les enquêtes sont presque
 impossibles dans la colonie. Les Malgaches sont si
@@ -624,7 +499,6 @@ Jaurès, périssent mes principes, et vive ma colonie.
 
 > Conclusion du chapitre IV : x
 .… € D'aucuns diront sans doute que le principe de
-XIX
 
 | Charles Péguy SE
 la laïcité absolue de l'État ne permet pas à celui-ci
@@ -656,9 +530,6 @@ ss le système lui déplaisait et qu'il préférait réserver dans
 l'avenir loutes ses ressources pour ses propres écoles.
 ra Le régime des subventions conditionnelles était tout à
 le
-2e. :
-
-! UN ESSAI DE MONOPOLE
 
 fait défendable. De même, sa suppression ne lésait, en
 théorie, aucun droit. A condition de n'être pas opérée
@@ -731,13 +602,7 @@ par l'auteur de ce cahier ; qu'un protestant, ayant à citer
 des écoles libres, ou plutôt ayant à citer des éloges
 Fe officiels adressés à des écoles libres, ait choisi des établissements protestants anglais, une Mission protesRe tante norvégienne, et une école catholique française,
 < tenue par les Frères de la Doctrine chrétienne, cela
-ee 4
-À XXII
-pe
 
-ar
-
-UN ESSAI DE MONOPOLE
 est d'un haut, pratique et intelligent internationalisme,
 et d'une loyale impartialité.
 
@@ -761,7 +626,6 @@ merveilleuse histoire de ces écoles privées, ou libres,
 où l'on prescrit que les élèves apprennent à faire de la
 menuiserie, mais où l'on défend que ce soit de la
 menuiserie qui serve à faire des tables; je cite la
-note :
 
 « Le plus souvent, au lieu de passer sous la direction de x
 leurs maîtres par toutes les phases » …
@@ -771,9 +635,6 @@ Toutes Les phases!
 .… (d'un enseignement professionnel donné, les élèves sont, non pas instruits,
 mais simplement utilisés à la fabrication courante du mobilier et du matériel nécessaires aux missions. On les spé-
 
-XXII
-
-À £ AIN EE:
 | Charles Péguy | ONE rs à
 #4
 | . cialise ainsi, non pas dans un métier, mais dans un certain 4
@@ -787,7 +648,6 @@ vue du rendement industriel dans une usine ou un grand
 É certaines écoles privées et que j'ai été amené à diverses -
 MS reprises, notamment au mois de janvier dernier, à rappeler à
 : ; quelques-unes d'entre elles » … : Î
-Le
 Î On entend ce langage officiel; d'une part le gouveri peur général prescrit que les écoles privées, libres,
 | donnent un enseignement professionnel; mais d'autre - =
 | part il faut que cet enseignement professionnel ne fasse
@@ -797,7 +657,6 @@ Le
 il n'est plus un métier universitaire, un métier noble,
 ‘ un métier gouvernemental, un métier scolaire, un mé-
 tier que l'on peut mettre sur les programmes et que les
-inspecteurs peuvent inspecter.
 Nous avons ici un avant-goût de ce que sera dans 5
 nos écoles primaires et dans nos lycées l'enseignement ï
 du travail manuel quand les grandes révolutions jaurésistes auront fait pénétrer le socialisme gouverneF mental dans le monopole de l'enseignement ; on ne fera
@@ -808,7 +667,6 @@ se travail feint, du travail manuel pour avocats et pour -
 wi manuel, des pièces modelées, des pièces thématiques ; ;
 Es du travail manuel de la réalité du monde sensible ;
 
-à UN ESSAI DE MONOPOLE
 c'est bon pour nous autres, gens de rien, de faire de la :
 vraie menuiserie ou de la vraie typographie, des vraies ;
 tables, des vrais bancs, des vraies chaises, des vraies
@@ -842,11 +700,6 @@ l'école même. S'il faut des bancs et des tables, on les achè-
 à de fastidieux assemblages variés. Le bois, — coûteux à
 Madagascar, — est gàché, les outils abîmés, en pure perte,
 
-XXV
-b
-S
-
-Charles Péguy
 par la main novice des apprentis. Tout cela est ruineux.
 Or, il paraît que l'administration ne se prive pas d'admettre pour elle-même ce qu'elle interdit aux autres. L'Echo
 de Madagascar, qui se soucie fort peu des missions, dit
@@ -862,7 +715,6 @@ l'État forçant les particuliers à fabriquer dans leurs
 des meubles pour ses administrations, sinon pour ses
 administrateurs ; tyrannie et favoritisme, le symbole
 est complet; tyrannie et autofavoritisme : c'est tout le
-jaurésisme d'État.
 
 | Même chapitre, conclusion : le même État manque
 
@@ -877,13 +729,7 @@ be son appel du 15 juin n'était pas sincère et qu'il était,
 % dès cette époque, décidé à ne faire qu'un simulacre de
 F collaboration et à biffer sa propre parole après avoir
 La provoqué des gens à des dépenses considérables et
-CA vaines.
 1 « Pourquoi ne pas dire, en toute liberté, que les événeSE
-
-Ê ci | XXVI
-Dao
-
-3 UN ESSAI DE MONOPOLE
 
 ments de France, — peut-être des instructions venues de
 Paris, — lui imposaient un changement de politique?  - |
@@ -898,7 +744,6 @@ ce langage. Pour ma part, je ne l'aurais pas blâmé. Ce
 langage aurait été plus respectueux pour des hommes
 qui méritaient quelques égards en récompense de leur
 bonne volonté. Il aurait été plus digne du gouvernement
-général.
 
 « Mais, s'il n'y avait dans l'arrêté du 25 janvier que
 cette suppression un peu brutale d'un régime accueilli
@@ -906,21 +751,17 @@ par tous avec complaisance, l'idée ne me serait pas venue
 d'en parler ici. D'autres dispositions, qu'on n'a pas citées, soulèvent d'importantes questions de principes. »
 
 Comme si des questions de principes pouvaient être
-importantes !
 
 Et quand l'État manque à sa parole, où sera le recours; et quand l'État est sournois, qui sera l'arbitre;
 qui nous gardera contre le souverain ; qui nous garantira contre le fait du prince.
 
 Répercussions lointaines de nos démagogies fran-
-çaises.
 
 Presque au commencement du chapitre suivant, le
 gouvernement, — j'entends le gouvernement de Madagascar, — s'aperçoit que des mesures qu'il avait prises,
 
 et qui, au regard du sens commun, paraissaient contradictoires, décousues, très heureusement sont commandées par une grande pensée synthétique :
-XXVII
 
-k Charles Péguy ee
 ni « L'administration de Tananarive a dû se contempler
 s'e dans ce miroir, peut-être avec quelque surprise, du
 1 moins avec un contentement naturel et auquel il me
@@ -943,10 +784,7 @@ ke FR fera des apparences, on travaillera les statistiques ;
 ; ra : travail même, il faut bien qu'il y ait quelqu'un dans les
 ‘ à écoles du gouvernement; alors le gouvernement fait des
 
-é efforts :
-
 Fi Parmi tous ces efforts, il y en a eu de toutes les qua-
-è lités.
 
 SPL On pouvait s'y attendre.
 
@@ -986,13 +824,11 @@ point faire de la délation.
 , ' … profitant de l'absence momen_tanée de M. Delord, arrive à l'école protestante d'Ambatomanga. Il demande la liste des élèves, appelle les cinquante
 premiers inscrits, les fait mettre en rang, puis commande :
 « Par file à droite, marche! » Il se rend à l'école catholique
-XXIX b.
 
 | 4 Me.
 | Charles Péguy
 et fait la même opération. Les cent élèves, réunis dans
 l'école officielle, reçurent de Fofficier l'avis de n'avoir plus
-è à changer d'école.
 | L'histoire est brève, on le voit; elle s'est passée il y
 : a plusieurs années; on m'assure qu'elle ne se reproduirait plus; on se flatte; elle se reproduira, non pas
 seulement à Madagascar, mais en France.
@@ -1017,8 +853,6 @@ d'État, étant docteur, — professeur de philosophie;
 montant de l'enseignement primaire, traversant le secondaire, le monopole d'État aura gagné le supérieur;
 Fe Jaurès enseignera, de deux années l'une, alternative-
 
-RÉ É
-ÿ UN ESSAI DE MONOPOLE
 ment la métaphysique de la morale, et la morale de la
 métaphysique; mais il s'agira de lui trouver des élèves;
 un oflicier, — un officier de défense républicaine, — se
@@ -1046,10 +880,7 @@ arrivent dans l'amphithéâtre de Jaurès; le grand tribun
 les accueille de ce bon sourire jovial que nous lui connaissons; le grand tribun les accueille paternellement;
 n'est-il pas, comme étant notre colonel, notre père à
 tous; le grand tribun les exhorte, paternellement les
-XXXI
-LA
 
-$ Charles Péguy FE
 félicite du grand exemple de véritable liberté qu'ils
 À viennent de donner au monde; car la véritable liberté
 : ne consiste plus à être libre; elle consiste à n'être pas
@@ -1059,7 +890,6 @@ félicite du grand exemple de véritable liberté qu'ils
 * après chacune des leçons il y aura les travaux pratiques ; tous les élèves seront tenus d'y prendre part;
 chacun des élèves, à son tour, viendra dénoncer au
 $ maître les propos de ses voisins, de ses amis, de ses
-i camarades; cent élèves peuvent donner, au maximum,
 Le neuf mille neuf cents délations.
 ca Ce Madagascar, ou cette Madagascar, est un singulier pays; je vois plus grand encore; je me représente
 en France un spectacle beaucoup plus grandiose; nous
@@ -1076,9 +906,6 @@ Fa donner vingt-quatre millions, neuf cent quatre-vingt4 dix-neuf mille, neuf ce
 ASE millions de délations. f
 à Je vois plus grand enfin : cinquante millions de Fran4e çais, hommes, femmes, enfants, réunis au camp de
 (7 Châlons, le Champ-de-Mars ne suflisant plus ; réunis
-FL XXXII
-
-ER UN ESSAI DE MONOPOLE
 
 A par la collaboration du Matin et du Journal officiel; et
 
@@ -1088,16 +915,11 @@ __ cinq cent mille fonctionnaires de défense républicaine
 
 - cinquante millions de sujets peuvent donner deux mil-
 
-… liards, quatre cent quatre-vingt-dix-neuf millions, neuf
-
-… cent quatre-vingt-dix-neuf mille, neuf cent cinquante
 unités de millions de délations.
 
 Ce qu'il y a de bon dans cette histoire de Mada-
 
 | gascar, c'est qu'elle nous montre la fin de toutes ces
-
-_ histoires : s
 
 …__ De fait, aussi longtemps que cet officier fut à la tête
 
@@ -1124,14 +946,10 @@ _  queroute, à quelle banqueroute frauduleuse; faut-il
 —_. donc le redire, que la force ne fonde rien d'éternel, que
 ce qui vient de la force, également s'en retourne par la
 
-XXXIIL
-
-lus
 de Charles Péguy
 Ie force, que le droit seul peut fonder une institution, une
 \ cité durable, que rien de durable ne se fonde que dans
 (e la justice et dans la vérité, dans la liberté, dans le
-HE droit.
 ; Qui trouvera jamais une histoire plus merveilleuse,
 pce plus complète, et qui soit d'un symbole aussi admirapi blement exact; quel Diderot, quel Voltaire nous fera
 il jamais un aussi beau conte; et comme on a raison de
@@ -1155,9 +973,7 @@ admirable champ d'expérience en vase clos; son éloignement géographique; Mada
 continent; son éloignement de communication; Mada-
 Ë gascar est en dehors des grandes routes passagères du
 ' monde ; pour l'atteindre en réalité, il faut contourner
-Li XXXIV
 
-UN ESSAI DE MONOPOLE
 tout cet énorme continent; son isolement, géographique ;
 son isolement, historique; la conquête de Madagascar
 fut en effet elle-mêmeinsulaire, pour ainsi dire; je veux
@@ -1186,7 +1002,6 @@ et le Japon forment deux peuples particulièrement
 caractérisés, deux véritables sujets de laboratoire,
 sujets d'expériences limitées, closes, préparées, réalisées par la nature; Madagascar est dans l'ordre des
 colonies ce que sont l'Angleterre et le Japon dans
-XXXV
 
 LE Charles Péguy 1
 ls ) l'ordre des nations libres. Son gouvernement même est
@@ -1216,10 +1031,6 @@ se. à leur tête un maître breveté. Comme elles étaient la
 de Ils n'y ont pas manqué.
 3 « J'ai raconté comment, sous le régime des subven1e tions conditionnelles, la présence d'un maître breveté à
 TA la tête d'une école libre était pour celle-ci la première
-“he.
-', EL
-
-4 “#0 £ UN ESSAI DE MONOPOLE
 
 4 condition pour obtenir certains privilèges. Dès qu'elles
 4 _ remplissaient cette condition, les écoles étaient « clasDe sées », et, si elles donnaient l'instruction industrielle et
@@ -1237,7 +1048,6 @@ L planches pour faire des tables, et des planches qui
 “à .… € Ce simple artifice de comptabilité permet de
 _ réduire le nombre des écoles de cette seule mission de
 —._ 576 à 110 et la population de ces écoles de 26.809 élèves
-5 4 à 10.661. »
 4 . Avais-je raison d'avancer que cette comptabilité de
 monopole était purement et simplement de la compta-
 « —  bilité électorale; même chapitre, comment on peut
@@ -1251,9 +1061,7 @@ _ école officielle, créée il y a quelques mois à Tananarive,
 3 La nouvelle rend rêveur quiconque est un peu au cou4 rant de ce qui se passe dans la capitale de Madagascar.
 Ce qui a été fait par l'administration à Faravohitra
 + est tout différent. à
-=. XXXVIL
 
-ê Charles Péguy
 F « Une des écoles qui ont été enlevées aux Frères le.
 1 premier janvier 1904 a été aménagée avec, un luxe
 (Ë magnifique. On l'a ornée de portiques, de grands
@@ -1284,13 +1092,10 @@ TES une évidente injustice à se dissimuler l'importance de
 ce que le Gouverneur général de la Colonie, avec un
 134 () D'après le Journal Officiel de Madagascar du 7 mai,
 4 elle devait être ouverte le 16.
-‘ A XXX VII
 
-DS UN ESSAI DE MONOPOLE
 budget difficilement équilibré, a su réaliser. Mais il
 n'est vraiment pas nécessaire que des études tendancieuses, comme celle de Za Nouvelle Revue, donnent au
 lecteur français de trop fortes illusions sur ce qui se
-passe à Madagascar. »
 
 Ainsi l'État préfère jeter les enfants à la rue, plutôt
 que de les laisser dans les écoles particulières; suppri- :
@@ -1321,14 +1126,11 @@ trouver la confirmation détaillée de ce que j'ai dit :
 disposition de ces derniers furent repris par la Colonie, en
 vue de l'installation de nouvelles écoles officielles dans 4
 plusieurs quartiers de la ville ; ils reçurent la destination
-suivante :
 
 « 1. — Une école primaire officielle, dirigée par des insti-
 
-XXXIX
 ,
 
-Ë : Charles Péguy ;
 : tuteurs indigènes, fut installée à Ambohimitsinbina ; elle
 ' fonctionne depuis le 4 janvier 1904 ;
 | « 2. — L'immeuble d'Ambavahadimitafo sert d'internat
@@ -1336,7 +1138,6 @@ XXXIX
 14 « 3.— Les bâtiments d''Ambatonilita tombant en ruines
 n'ont pu être utilisés ; mais l'emplacement sur lequel ils sont
 | situés est réservé pour l'installation ultérieure d'une école
-ménagère ;
 « 4. — Quant à l'immeuble de Faravohitra, il est actuellement occupé par le groupe scolaire européen.
 « L'école de garçons européens était installée auparavant
 à Ambohijatovo, dans le local de l'école administrative ;
@@ -1354,23 +1155,13 @@ A satisfaite de l'installation du groupe scolaire, qu'elle a
 \ déclaré convenir parfaitement à sa destination. Satisfaction
 ; immédiate a été donnée aux quelques desiderata qu'elle a
 formulés en ce qui concerne certains aménagements supplé-
-mentaires.
 + « Le groupe comprend : ;
 } « 1. — Une école préparatoire de garçons, fréquentée par
-\ 24 élèves ;
 ; « 2. — Une école préparatoire de filles, fréquentée par
-s& 15 élèves ;
 ER « Ces deux établissements sont organisés conformément
 Se aux dispositions de l'arrêté du 27 janvier 1903.
 1 \Rte « 3. — Une école maternelle fréquentée par sept enfants
 Fe des deux sexes.
-AE,
-LR
-‘Ke:
-
-; ESS '] F :
-
-4 : UN ESSAI DE MONOPOLE
 
 à « Le personnel enseignant de l'école préparatoire de
 
@@ -1379,7 +1170,6 @@ garçons comprend: un directeur, un instituteur-adjoint et !
 _ des professeurs chargés de cours spéciaux à la division
 supérieure. L'école préparatoire de filles a une organisation
 analogue à celle des garçons. Une institutrice dirige l'école
-maternelle.
 
 « Les élèves des deux sexes peuvent déjeuner à l'école,
 ils restent sous la surveillance des maîtres pendant l'intervalle qui sépare les deux séances de classe du matin :
@@ -1414,8 +1204,6 @@ même du monopole; et voilà de la bonne laïcisation :
 
 | Ù XLI
 
-‘ AR SAURE.
-$ Charles Péguy
 Hi mieux vaut un abandon laïque dans la rue que la
 Î présence aux écoles protestantes; ou plutôt un abandon
 ‘4 laïque dans la rue gouvernementale vaut tout; et la
@@ -1450,12 +1238,7 @@ question post-scolaire, — c'est elle qui est ici, car des
 | scolaire est encore plus difficile à résoudre que la ques-
 
 | tion scolaire, — sans vouloir avancer par là que la
-4 XLIL
 
-(Me ”
-
-LR te
-UN ESSAI DE MONOPOLE
 | question scolaire soit aucunement facile; — au-dessous
 de quatorze ans on sait encore un peu quoi faire des
 | enfants; il y a l'école, bonne ou mauvaise; au-dessus de
@@ -1485,9 +1268,7 @@ au retour du régiment, si le jeune homme n'est point
 perdu, l'atelier, dur et vrai, peut lui enseigner la dure
 et la véritable vie; mais de l'école au régiment, de onze
 à vingt et un ans, tout au moins de quatorze à dix-neuf,
-XLIUI
 
-Charles Péguy
 aussitôt après le sinistre certificat d'études primaires, -
 
 c'est le vide, c'est l'abime, le vague, et la perpétuelle
@@ -1498,8 +1279,6 @@ résultat de désorganiser l'ancien apprentissage; heu- .
 reux ceux qui, mieux doués ou plus chanceux, peuvent
 devenir des ouvriers à seize ou dix-sept ans ; ceux-là,
 je mais ceux-là seuls, ont quelque assurance d'être sau-
-
-vés.
 
 Quatorze ans; c'est à cet âge qu'à Madagascar une
 administration prévoyante, un gouvernement ingénieux,
@@ -1525,13 +1304,6 @@ remarquer que, chez beaucoup de leurs élèves, jusquelà médiocres et en appar
 
 ; de l'esprit. Ils ne peuvent s'empêcher de regretter que
 -5@ l'on fixe, juste à ce moment, l'interruption forcée de
-: XLIV
-
-n° NP
-
-LÉ
-
-24 UN ESSAI DE MONOPOLE
 
 _ l'étude. Jen'insiste pas sur cetteobservation, quia pour- » tant son intérêt. C'est un autre inconvénient que je
 relève dans une ville comme Tananarive.
@@ -1569,9 +1341,6 @@ s'il lui prenait fantaisie de le passer à l'école.
 « Ces enfants, parmi lesquels de très grands garçons,
 pullulent surtout aux abords des marchés et des grands
 
-: XLV
-
-1 Charles Péguy
 magasins. Dès qu'un « vazaha », un blane, a fait un
 achat, ils accourent autour de lui comme un vol de
 LE moineaux avides. Ils se pressent, se poussent, se
@@ -1597,11 +1366,6 @@ bandes de gamins dont je viens de parler. Je conçois
 J que l'administration songe à mettre hors de certaines
 écoles les quelques douzaines d'adultes qui les encombrent, et qui risquent, tout au plus, d'apprendre quelque
 ; chose de notre langue. Pour corriger ce mince inconvé-
-{ XLVI
-
-Li A
-
-F” UN ESSAI DE MONOPOLE
 
 * nient, fallait-il créer, de façon à peu près inévitable, un
 mal plus grand? L'augmentation presque forcée du
@@ -1623,7 +1387,6 @@ la confiance qu'elle méritera. »..
 
 En un mot, le monopole de l'enseignement complété
 par un monopole du non enseignement et de l'ignorance; après l'école obligatoire laïque, la non-école
-obligatoire laïque.
 
 C'est à cette gageure de paradoxe que nous nous
 arrêterons, pour aujourd'hui; car il est temps que je
@@ -1636,9 +1399,7 @@ le chapitre XII, leçons de français, et le chapitre XIII,
 pour la langue malgache, étant des chapitres de tech-
 
 nique et de pédagogie stricte, n'auraient peut-être pas
-XLVII
 
-Charles Péguy
 donné beaucoup à la transcription ; mais les autres chapitres, au contraire, j'entends les autres qui nous restent,
 seraient presque à sortir et à transcrire en entiers ; nous
 le ferons aussitôt que nous le pourrons ; aujourd'hui
@@ -1656,116 +1417,42 @@ Au moins nous avons l'assurance que nous n'y retom-
 : berons point dans le prochain cahier; le prochain
 + cahier, comme on le verra du premier regard, est un
 Hi de ces cahiers qui n'admettent que leur texte.
-ï CHarLes PÉGUY
 
 RE SE SUD AL ee ee EE ÉD LRQ ES QUE Ra DUR HQE ANT
-À SSSR a 2 RL PTS RO RNA PIE DNA PAS ie RL A STATE 24
-LEE POST RESTES ire Ÿ ren AY | CU
-UE
 
-: ETES ARC NE 7 < - CR
-US 0 © à SENS 1 211: RATER
-RE Ce à 2 SEAT
-. NT ARS + Re
-5 HSE NEA
-LT SENS ; CE
-PE Are | Le 2 1e SRE
-Re ET FRS.
-
-h D ac: 4 x s LR
-
-DT 1 ET ‘ : ve, ÿ
-
-1 * Te #7 F +. D
-ré PSE MA + # É 2 12
-1: LARMES "2 y a € < A * LHC
-es "ue
-Te CU my Fe, < és A F Es KE me
-2 8 SAONE M PAL R ER t 5 è SES Vs: NTSC ENCRES
-HE AL ï 2 Pre | PAS
 LE ME ER Re RE ES PR TR D te RER
 
-{
 Nos abonnés trouveront sur les cartes usuelles de
 Madagascar les localités mentionnées dans ce cahier ;
 nous publierons des cartes pour nos cahiers de courriers aussitôt que nous en aurons les moyens.
 
-fi das NUE 4 ss re ir EE RSA ORNE TRES 0 CAPES Er e 2 k
-
 Ph JE A ET RE Li TER RE AE A ADR Es Be PE NT UT ee un LES
-EE RES MALO M ENS ee RAR PTS
 Le tr ES LT PPT NL OS? 4 MONT AUS AE
 
-2: 1 VÉRITÉS ns ÿ IFS . « ra ë RE:
-2 SNA L à 4 LR RIT EET
-D | LATTES
-
-5, LUN PERENOEES N RE
-M AMD NERO
-AS DÉS RAAN E TER ER CRE ALT \ È ki : "ORNE ya
-RE QE ESS ER RTE ES MEME \ HER RENE SEE NUS Fa
 EE de, OT ET ere UE à. Er er = LUN CEE LE 2
 É PAUL CRETE ETR PRE LE en EE pts 2 ANR Er Jp SARA TRUE 5 qu A ne Ki]
-1, RERO EEE 2 SRE Ie NS Sr MARNE
 ATANGRE RE ao M NE ve MEN CENTRE Le TES pe
-LRCES FACE ANSE M D An PE ERA “hs ese a
 
 | EN PT SEMESTRE ÉTÉ Ca TR et) je LAN HAT EN ASTM
 CE TEE RSR A St CPAS LE Cane HN ARS Me) ie
 
-à 40 MANN D CNE PAS RE TA GR. PAL TON NES RS CAMES
-+ ÉEEf ‘ cs : 3 1 OÛER Sr ETER
 x ral Ê Re Le
 FACE ARR L 5 ANT TERRES cr
-As te  .
 on ; A Ca eue; C LE NO)
-me -
 nat =, PA) eu le RES
-“KES 2 #7 RL SERA RACE TRES Les
-STRESS |
-ETS ENRRE É 4 RCE SES
-Rue FESSES SE “ PORT Q KL AS Tree
-1% for + j RARE CN
-1 LCI É ATX, EME RUNRCSSON ESS
 CNE de M
-Ben 2 OR NS
-Aa | 0 LR RER
-SU L'ART AE TIRER IS
 RTE Ce Se ne NP EE ne,
-PATENTS 74 \ 2 Dm 7
-HE Éa à . FEU 2 TES
-. FRS F RE Et
-“OS nt + Te CR IEEE
 + "RP tes . LS tr Ge
-RO" à 17 1 TER ER
-En : RER ere
-ARR OR RRE A MA
 ARE RME 2 er ES TES ER SRE
 
 y & MR RPÉ QT LS V4 1 ns 4 que
-AG ; At ‘Ta
-ya (met Li FA ;
-4 # LL
 _ l'enseignement primaire Gi:
 148 1
-En, = = > ù 0 {
 _ des indigènes à Madagascar ‘#0
-1: CNNRIRE Hen
-D + UV
-TRES 1800
-IRAN FA £ : Eu RONA
-M: LIN
-LAN SEE ave A
 
 TES UP trou MA jai { L
 
-Et TA A LS SAT AA NE NOM
-
-Er LU HR ONINNAUS HAUT AU LA A AN SR AEUS
-
 A 4h TTC rte x, FANS ve ÉEME a LE DSP ELRERSEN
-4 FAO EE NAN D TE A a El e : AIRES RUE
-d'A RS * à te Fr ANR EN ES AA
 RE k co PAUTEE ” PAS Er LA
 
 A Fat MCUNSE APN UN PANIERS ;
@@ -1774,25 +1461,11 @@ PRE ne CLR pic TRES 0 CNE IPS AP
 LAINE PME Re pis re dE
 K ) RTE ne ARTS NM VE
 NU 1 ! ù LOL NE pen PE OI EE ss f
-PR To: ù HT CNRS
 
 on | LE CORNE
-NV ANT NEA HEURE PONS ES x D.
-(HAE FAR SAN Me -
- - ; ‘ / RER VPN
-PEUR L Rs L LANTERNE
-y is Lt EEE f PR.
-Men # AIO EN re CR FAI
 | Pl A RE ET 4e Ne
-AG AT ONE L E AT NET +48 VAN
-“0 ss £ D OL Het
-RS DR NT DA A 1 ARR A
 
-50 PEN Ce
-;
-I
 Une erreur
-16.mai 1904
 M. Étienne, vice-président de la Chambre des
 députés, écrivait, l'autre jour, une lettre intéressante,
 … à propos de l'amendement Leygues, qui a eu pour but
@@ -1874,9 +1547,6 @@ F ment les Missions norvégiennes, mais aussi, .et surtout, les
 
 10 Missions anglaises continuent leurs œuvres? Dans un sem-
 
-na
-
-JE UNE ERREUR
 la trahison méditée par le cabinet. Des hommes poli-
 … tiques recueillirent cette émotion, s'en pénétrèrent et,
 quelques semaines plus tard, l'exprimèrent à la tribune.
@@ -1889,7 +1559,6 @@ Ce qu'il y a de faux à l'origine de tant d'émotion,
 dit Anglais. » Sans doute, on se défend volontiers de
 _ faire usage de cette phrase. Maïs, sans même s'en
 douter, on en est dominé au point de ne plus distinguer
-certains faits. ù
 
 Un de ces faits, c'est l'effort inouï qui, en quelques
 années, a été entrepris par les protestants de France
@@ -1897,18 +1566,15 @@ blable milieu, une telle politique équivaut à un suicide !.…
 
 « Si l'on veut supprimer les Missions, il faut être logique
 et interdire notre domaine colonial aussi bien aux Missions
-étrangères qu'aux Missions françaises.
 
 « Si nous ne pouvons, du moins immédiatement, rejeter
 hors de notre territoire les Missions étrangères, gardons
 jalousement en face d'elles les seules institutions qui
 peuvent combattre utilement leur influence : nos Missions
-catholiques.
 
 « Faire le contraire, c'est nous exposer, à la première perturbation, à la première menace de guerre avec l'Angleterre;
 à nous trouver face à face avec la révolte d'une population
 indigène complètement anglicisée et devant laquelle nous
-serons impuissants. »
 
 C'est moi qui ai souligné deux membres de phrase.
 
@@ -1948,13 +1614,8 @@ D continuer à aller au moins deux fois par semaine dans trois
 grands collèges, comptant, l'un 300 jeunes gens, l'autre
 É 100, et le troisième 400, et aux deux grandes écoles de
 Eu jeunes filles, qui comptent chacune plus de 300 élèves, enfin,
-jo ol I » P
 er aux écoles de la mission norvégienne, »
-À
 
-A1 6
-
-‘4 UNE ERREUR
 plume. Je me contenterai de quelques chiffres et de
 quelques citations très officielles.
 
@@ -1976,10 +1637,8 @@ Elle a fondé, à Fianarantsoa, la première école maternelle qui ait existé �
 Mahéréza. De cette école sont déjà sortis des apprentis ;
 qui ont passé avec succès les examens techniques institués par l'arrêté du 16 avril 1901. A Mahazoarivo a
 été installée une école normale qui prépare les institu- :
-teurs brevetés. (2)
 
 Voilà pour les grandes écoles. La mission protestante
-française possède, en outre, à Madagascar, 576 écoles
 rurales, dont 356 en Imérina, 206 au Betsiléo et 14 en k
 
 (1) Une de ces deux écoles a dù être supprimée, cet été,
@@ -1987,9 +1646,6 @@ pour des raisons financières.
 
 (2) Dès juillet 1900, malgré des conditions très défavorables, cette école occupe, dans les examens du brevet, le
 
-2)
-
-L: 12 +
 ne enseignement à Madagascar
 1 dehors des Hauts-Plateaux. (1) La population scolaire
 LS de ces établissements est de 29.341 élèves (18.310 gar-
@@ -2012,21 +1668,14 @@ je du choix. »o Le premier rang, qu'elle garde d'ailleurs dans les années sui1
 Y! Voici, par exemple, le tableau des candidats reçus en
 il 1901 à Tananarive :
 
-Fa ‘ Candidats Reçus Proportion
-ILE Mission protestante française . . . 21 16 78 00
-
 | DIDCICLS PRIS CDR MANN TIRER 28 19 65,5 0/0
-Il Société de Londres. 41: 21414 01 14 9 64 0/0
 
 | 23 HATROliqUes 157 RRICONSRNECAANE 18 11 58 0/0
 jE (1) Elle a surtout établi, dans les centres missionnaires
 i de la campagne, à Ambatomanga, Anosibé, Tsiafahy,
-Lo Ambatolampy, Mahéréza, Ambohibéloma, Miarinarivo,
 Wy Fihaonana, des écoles mixtes devant servir de modèle à
 lé toutes les écoles du district et dirigées, en principe du
 M: moins, par un instituteur ou une institutrice venus de
-Fct France. |
-ATOS
 
 Der UNE ERREUR
 En 1901, le général Gallieni fait une tournée de ces
@@ -2040,7 +1689,6 @@ _ quelques instituteurs. Tous les élèves présentés à
 l'examen du certificat d'aptitude à l'enseignement ont,
 à l'exception d'un seul, obtenu le brevet. » Suit un
 _ éloge que je supprime pour abréger. (Journal Officiel
-du 16 février 1901, page 5409)
 
 Le même journal, dans son numéro du 3 avril 1901
 (page 5604), apprécie une école de district : « Dans son
@@ -2059,8 +1707,6 @@ quelques connaissances professionnelles La visite
 amène involontairement à un retour en arrière et à
 apprécier la différence de l'état d'esprit des habitants
 au moment où M. Delord est venu s'installer dans le
-
-9 É
 
 L enseignement à Madagascar RS
 pays avec les sentiments tout pacifiques qu'ils nous
@@ -2094,18 +1740,12 @@ M. le pasteur Delord et les personnes dévouées de son
 à entourage réussirent à redonner la confiance aux égarés,
 à les ramener un à un à leurs maisons abandonnées, et,
 enfin, à se les attacher de telle façon qu'aucun sentiment
-“ 10
-po”
 
-Htc DEEE
-
-RU UNE ERREUR
 témoignent de dispositions naturelles sérieuses chez les
 
 _ élèves qui suivent ces leçons spéciales. Au cours de sa
 visite, le général a été frappé de la bonne organisation
 d'ensemble de l'école et de l'esprit de méthode qui y a
-présidé. »
 
 Arrêtons ces citations sur une dernière, que j'emprunterai au Journal Officiel de Madag'ascar (numéro du
 
@@ -2136,9 +1776,6 @@ madame Delord ne fut pas ia moins vaillante, et toute la \
 mission protestante française, qui s'est, depuis l'année
 1895, attachée avec une patriotique ardeur à son œuvre
 éminemment française en même temps qu'humanitaire et
-civilisatrice. »
-
-II
 
 |: 240 enseignement à Madagascar RAS V1.
 4 colons ou des auxiliaires précieux pour les services
@@ -2166,15 +1803,9 @@ iL: VER réclament pour eux le droit commun tout entier, mais
 
 à st identifiée avec l'influence cléricale.
 
-(DE
-
 | LS {
 
-F2
-
-Il
 | Vieillerie condamnée
-29 mai
 On discutait, le 21 mars dernier, à la Chambre des
 députés, le projet de loi relatif à la suppression de l'enseignement congréganiste. M. Leygues avait proposé
 _ une disposition additionnelle qui devait sauvegarder
@@ -2197,8 +1828,6 @@ traités dans cette séance parlementaire. Pour la plupart
 des députés, comme pour le public, il ne s'agissait que
 de ceci : la France républicaine, pour conserver l'in13
 
-1 enseignement à Madagascar ki
-fe
 | fi fluence de notre esprit et de notre langue à l'étranger,
 Are dans les colonies et dans les pays de protectorat,
 h LA a-t-elle besoin ou non de s'appuyer sur les congréga-
@@ -2217,7 +1846,6 @@ JE Ici, comme partout, il faut sérier les problèmes. Le
 LUE Sœurs de Saint-Joseph de Cluny. Il est impossible de
 | ; ne pas approuver de toute façon, en cette affaire, la
 conduite du général Gallieni. Il a demandé énergiqueil ment la résiliation de ces contrats. Cette laïcisation des
-ji é écoles officielles s'imposait.
 (1 On ne sait pas au juste, parmi nous, en quoi consis-
 À taient ces contrats. Voici le texte de l'un d'eux :
 k « Entre le gouvernement de la République française
@@ -2227,9 +1855,7 @@ qu représentée par sa supérieure générale, résidant à
 L! L « Article premier. — L'institut s'engage à envoyer
 ‘à | à Madagascar, à partir du premier janvier 1898, le
 |
-1:04 0
 
-Hfas VIEILLERIE CONDAMNÉE |
 nombre de religieuses qui lui seront demandées et pour
 les postes qui lui seront assignés par le gouvernement,
 à condition qu'un service religieux y soit assuré.
@@ -2254,7 +1880,6 @@ par des fonctionnaires du gouvérnement.
 
 « Article 4. — La présente convention est valable
 pour une période de vingt-cinq ans à partir du premier
-janvier 1898. »
 
 Le contrat passé avec les Frères de la Doctrine chré-
 tienne était analogue, quoique un peu plus bref dans les
@@ -2264,7 +1889,6 @@ de 25.000 francs, soit 5.000 francs par groupe de trois
 Frères. L'État devait en outre leur assurer les bâtiments
 scolaires dans lesquels ils étaient appelés à enseigner.
 
-ia enseignement à Madagascar |
 3 Il aurait été impossible de donner à des écoles officielles
 1 un cachet plus nettement confessionnel. ke
 | Pour atténuer un peu le caractère de cette convenKo tion, le gouvernement, — M. André Lebon était alors
@@ -2293,9 +1917,6 @@ a eu du malheur : les entrepreneurs ontsi bien travaillé
 Le ce n'est pas à cette seule école officielle que semblable
 accident est arrivé.
 1: Dès leurs débuts, les Frères, avec l'assentiment de
-“ 16
-
-pente VIEILLERIE CONDAMNÉE
 
 - l'autorité, ne manquèrent pas de mettre, sur chacun
 des établissements à eux confiés, cette inscription
@@ -2317,7 +1938,6 @@ aux offices que célébraient les Pères jésuites. La neu- Ê
 * tralité n'existait même plus en théorie. Une arme .
 
 admirable de prosélytisme était donnée à la mission
-catholique. (1)
 
 Ce n'est pas le général Gallieni qui avait inventé ce
 régime. J'ajouterai même qu'il ne faut pas, non plus,
@@ -2331,8 +1951,6 @@ de l'enseignement et des œuvres catholiques obtenus à
 l'Exposition de 1900, c'est que le baptême est administré
 chaque année à environ 250 adolescents malgaches, élèves
 des écoles des Frères de Tananarive. »
-
-17 è
 
 | enseignement à Madagascar
 
@@ -2356,13 +1974,6 @@ f chrétienne et les Sœurs de Saint-Joseph de Cluny.
 
 | Par la rupture de ces conventions, il a rétabli la neuhe k tralité dans l'enseignement officiel de la colonie.
 
-{
-
-a
-III |
-Alarme inutile
-5 juin 1904
-
 Je me propose d'étudier ici dans le détail les derniers
 arrêtés qui ont entièrement modifié l'organisation de
 l'enseignement à Madagascar. Mais il me faut encore
@@ -2376,7 +1987,6 @@ britannique ne tarderait pas à flotiter sur les hauteurs
 de Tananarive. Les déclamations anglophobes sont
 faciles. Dans le cas présent, elles permettaient d'éluder
 la question principale et de provoquer, néanmoins,
-quelque émotion.
 
 Tout d'abord, est-il besoin d'établir que les faits qui
 fournissaient une occasion au débat avaient été travestis? L'annulation d'un contrat avec certaines personnes n'est pas précisément l'expulsion de ces mêmes
@@ -2414,13 +2024,7 @@ h y a-t-il lieu de vivre perpétuellement dans des transes à
 ar sont établies à Madagascar? Il s'agit, non pas de
 a disserter en l'air, mais de considérer les faits réels. IL
 à ne s'agit pas de ressasser, avec plus ou moins de cri-
-‘4
 
-Ë
-EEE À
-
-LAS
-& ALARME INUTILE
 . tique, des histoires vieilles de vingt ou trente ans, mais
 | de savoir avec exactitude ce qui se passe à Madagascar
 depuis que nous y sommes.
@@ -2453,8 +2057,6 @@ prouver sa science de polyglotte. M. Deloncle n'en est 4
 pas là. Mais il devrait se défier un peu des colporteurs
 de certaines histoires.
 
-4 enseignement à Madagascar
-
 | | Il y a mieux encore. Avant la conquête de Madagascar
 je par la France, la Société des missions de Londres
 | possédait des centaines d'écoles élémentaires. Dans
@@ -2471,7 +2073,6 @@ fe Londres, sans distinction d'âge, est venue en France
 il pour acquérir l'usage du français. Quatre instituteurs
 ü ; ou institutrices, Français ou de la Suisse française, lui
 ME ont été adjoints pour l'aider à l'enseignement de notre
-ii langue.
 ‘ul Ce sont là des faits aisés à contrôler. Je sais des gens
 1 qui ne pourront les constater sans irritation. Il leur
 à manque quelque chose quand ils n'ont plus l'occasion
@@ -2488,11 +2089,6 @@ jh devine. Il était inquiété surtout par leurs écoles. De là
 LE deux faits dont un seul est généralement connu. Le
 fs premier a été le contrat avec les Frères de la Doctrine
 | q chrétienne, dont il a déjà été parlé. Le second n'a guère
-: 22
-
-Ïl
-
-PA ALARME INUTILE
 
 _ été su que par ceux qui, sans s'en vanter, en ont eu
 
@@ -2532,8 +2128,6 @@ discours prononcés, soit par le général, soit par les
 missionnaires, ont exposé, d'une façon très nette, l'es-
 
 LA: 10 enseignement à Madagascar FRS LT
-
-EEE |
 
 4 prit qui doit présider au fonctionnement de ces écoles
 
@@ -2599,10 +2193,6 @@ I N a français et professionnel a été conçu et établi d'après les
 
 i} ‘1e concours efficace au développement de la colonie. »
 
-D: ‘ à
-AR: os
-
-Diet / ALARME INUTILE
 ! . Le 26 juin 1902, le secrétaire général du gouvernement,
 … M. Lepreux, parlant des rapports de la France et de
 l'Angleterre, s'exprimait ainsi, au nom du général
@@ -2620,7 +2210,6 @@ le Consul, qu'à Madagascar vos compatriotes collaborent sans arrière-pensée �
 progrès qui a toujours, au cours de son expansion
 coloniale, tenu le premier rang dans les préoccupations
 de la nation française ? » (Journal Officiel de Madagascar
-du 28 juin 1902)
 
 Il ne s'agit pas de faire ici l'éloge d'une mission particulière. Je n'ai pas attaqué, dans mon dernier article,
 lœuvre des Frères. Je n'exalte pas, dans celui-ci,
@@ -2635,36 +2224,18 @@ de rédaction ou même dans les couloirs du Palais-
 Bourbon, il était plus simple de consulter le général
 Gallieni lui-même. :
 Non, l'influence nécessaire de notre pays n'est me25
-IL
 
-12 En LS de Se NAN RP EEE
-1104 enseignement à Madagascar s AE
-[res ' à® NEA FOR.
-1 A n APN EN ETES
 | 31 nacée par personne à Madagascar. Il y a, pour la
-\ . Sedan ati
 Li rs propager activement, l'œuvre même de notre civili- à
 \| 12 sation, l'enseignement officiel laïque, l'enseignement ù
-TRES st UE . . . À
 (348 privé des missions françaises de toutes dénominations.
-(UE 20 . 2 + ke
 | 54 Sous prétexte de sauvegarder ce qui n'est pas en péril, ‘
 ik 4 il n'a jamais été nécessaire, et il ne l'est pas davantage
 Fi aujourd'hui, de maintenir, au milieu de populationsen
 Li majorité protestantes, des écoles officielles qui soient
 L 4 catholiques. CN
-VA x
-LR
-- His. |
-L ra (4
-LR
-pra |
-We cl
-Ho x
 
-LV
 Une originale tentative
-; 8 juin
 
 Le contrat passé avec les Frères de la Doctrine chré-
 tienne et les Sœurs de Saint-Joseph de Cluny a été en
@@ -2686,10 +2257,8 @@ Pour avoir droit à cet appui, ces écoles devaient, en
 
 (1) Il a été précisé par la circulaire et l'arrêté du
 16 avril 1899 et par le programme d'enseignement publié
-le 26 juillet 1899.
 
 0 6
-He enseignement à Madagascar
 
 dé premier lieu, avoir à leur tête des maîtres brevetés,
 il qui, par conséquent, avaient passé leurs examens
@@ -2717,14 +2286,10 @@ ii classement était opéré, mais la subvention n'était pas
 is encore obtenue. Il fallait voir ce que l'école donnerait
 fur, au bout de quelque temps et dans quelle mesure son
 étiquette agricole ou industrielle méritait d'être prise
-Vy au sérieux.
 
 je Une subvention accordée ne l'était pas, d'ailleurs,
 F4 pour toujours. Il ne suffisait même pas, pour qu'elle fat
 ue maintenue, que l'école restât au niveau de dévelopa pement qu'elle avait atteint. Il fallait qu'elle réalisat
-("00
-
-4) 11 'ONUANNEES
 
 Hans UNE ORIGINALE TENTATIVE
 des progrès dans le sens indiqué par les circulaires .
@@ -2759,15 +2324,8 @@ dut subir plusieurs retouches. La dernière est du
 « Article 79.— En ce qui concerne les avantages à accorder
 aux écoles privées, et afin de diriger l'enseignement dans
 la voie indiquée par l'article 6 ci-dessus, ces écoles sont
-divisées en plusieurs catégories :
 
 « La première catégorie comprend les écoles dirigées par
-
-29 IL.
-
-1] enseignement à Madagascar £
-
-AU tv
 
 | HER vigueur les intentions du gouvernement général : « Le
 “| principe qui domine, disait le général Gallieni, est la
@@ -2784,16 +2342,13 @@ ment jeunesse malgache réponde aux besoins actuels, — qui
 Le de la section agricole des écoles régionales.
 fl « La troisième catégorie comprend les écoles possédant un
 | jardin et où le programme des écoles primaires rurales doit
-ii être enseigné.
 
 pré « La quatrième catégorie comprend les écoles dans lesj: quelles, à l'exception de l'agriculture, toutes les matières
 Aie) du programme des écoles primaires rurales sont ensei-
-à À gnées.
 CH « Dans une même école, il pourra être distingué plusieurs
 ! sections, qui seront classées à des catégories différentes.
 
 \ « Article 80. — Les écoles dirigées par des maîtres indi4 gènes brevetés font partie de droit de la quatrième
-$ catégorie.
 1 « Article 81. — Les instituteurs indigènes brevetés en
 : exercice dans les écoles privées des première, deuxième et
 { troisième catégories seront exemptés du service militaire,
@@ -2802,14 +2357,9 @@ Fe annuelle de 15 francs à tous les maîtres indigènes brevetés
 ‘ en exercice dans les écoles privées.
 ll « Elle prendra également à sa charge une partie au moins
 {| égale à 150 francs du traitement des instituteurs de troiil ; sième catégorie, à 1799 francs du traitement des instituteurs »
-1%
 | >
 
 #1 |
-
-\, ; UNE ORIGINALE TENTATIVE
-
-TN “
 
 _ sont surtout matériels, — du peuple malgache lui-même
 et de la colonisation européenne ». Il ajoutait : « En
@@ -2820,7 +2370,6 @@ dans lesquels l'enseignement est purement spéculatif et
 de deuxième catégorie, à 200 francs du traitement des
 instituteurs de première catégorie, s'il est obtenu dans ces
 écoles des résultats satisfaisants dans l'application des
-programmes,
 
 « Article 83. — La Colonie prendra aussi à sa charge au
 
@@ -2832,7 +2381,6 @@ dans les écoles officielles.
 « Article 84.— La Colonie pourra également accorder des
 subventions aux écoles de première et de deuxième caté- 3
 gorie pour leur organisation matérielle (locaux scolaires,
-ateliers, jardins d'essais).
 
 « Article 85. — Les écoles privées doivent être obligatoirement classées dans l'une des catégories ci-dessus, à la
 diligence de leurs directeurs.
@@ -2852,7 +2400,6 @@ conservent le bénéfice de leur classement et des subventions
 attribuées antérieurement en application des articles 82 et
 83 du présent arrêté. »
 
-k enseignement à Madagascar à
 4 ne peut, en conséquence, profiter en rien au développement matériel de la colonie. » \
 à Je sais une école privée, celle de Mahéréza, qui a été
 il maintes fois louée dans ces dernières années par les
@@ -2863,7 +2410,6 @@ i) catégorie, a dû se résoudre à une dépense de 4.000 francs
 | tion de son outillage. Ce simple fait, — et il y en a
 ! d'autres, — en dit long sur les résultats que ce régime
 2 & des subventions, entendu comme je viens de l'expliquer, se piquait de poursuivre et pouvait se flatter
-0 ; d'obtenir.
 1 Ce système n'avait absolument aucun rapport avec
 | $ celui qui consiste à protéger spécialement une mission
 religieuse ou à les protéger toutes indifféremment. Il
@@ -2882,7 +2428,6 @@ il Il y a un détail que, dans toute cette histoire, il ne
 | faut jamais perdre de vue. La situation financière de
 | Madagascar n'est un mystère pour personne. On n'exa1 gère rien en disant qu'elle est très difficile et précaire.
 i On peut être convaincu, d'autre part, que les colons ne
-À,
 
 me UNE ORIGINALE TENTATIVE |
 _ permettraient pas de consacrer, sur le budget de l'île,
@@ -2897,8 +2442,6 @@ nie française, le général Gallieni avait obtenu un )
 
 maximum de résultats avec un minimum de dé-
 
-penses. (1) <
-
 L'arrêté du 25 janvier 1904 a clos ce régime. Un ave-
 
 nir plus ou moins prochain nous apprendra s'il faut le À
@@ -2908,8 +2451,6 @@ regretter ou non. La tentative était originale, peut-être
 heureuse. Elle constituait, en tout cas, une expérience
 
 _ (1) Le budget total de l'enseignement officiel à Mada-
-
-gascar a été, en 1903, de 584.805 francs, dont 100.000 envi-
 
 ron n'étaient point pour l'enseignement primaire (admi-
 
@@ -2953,9 +2494,6 @@ budgets représente, c'est-à-dire près d'un million. Est-il
 
 sage de ne pas utiliser ce qu'on n'est pas capable de rem-
 
-placer ?
-
-ue enseignement à Madagascar |:
 y qu'il aurait été curieux de suivre pendant quelques
 1 années encore. D'aucuns diront sans doute que le prin1 cipe de la laïcité absolue de l'État ne permet pas à
 ie celui-ci d'avoir le moindre rapport avec une mission,
@@ -2969,16 +2507,11 @@ be peuvent meitre en doute l'utilité pratique de cette supUs pression subite. P
 Le lettre de notre droit public. À
 La L'arrêté du 25 janvier a prétendu inaugurer un ré-
 ur gime tout à fait nouveau. Il nous reste à l'étudier de
-Re près.
 |
 il
-1H +
-ME
 
 . .
 Changement de front
-
-12 juin |
 
 J'ai exposé le régime des subventions conditionnelles J
 qui a été en vigueur à Madagascar du milieu de 1899 à
@@ -2991,7 +2524,6 @@ la suite de décisions d'espèces qui auraient été justi-
 \ fiées, par exemple, par une mauvaise observation des
 règlements. Il n'était point nécessaire de tout bousculer et de choquer par des mesures vexatoires des prin-
 
-cipes essentiels.
 Ce régime pouvait aussi prendre fin d'une autre
 façon. L'État était parfaitement libre de déclarer que
 le système lui déplaisait et qu'il préférait réserver dans
@@ -3005,7 +2537,6 @@ points. J'admets qu'elle pouvait paraïtre exigée par le
 principe de l'absolue laïcité de l'État. Mais, alors, il
 fallait, tout simplement et tout franchement, en appe35
 
-hi J enseignement à Madagascar 4
 ‘4 ler à ce principe et l'appliquer avec les transitions È
 1 1 nécessaires. Surtout, il était inutile de compliquer ce
 | 1 à changement soudain de régime par d'autres mesures
@@ -3034,13 +2565,9 @@ it après, le général Gallieni exprimait une satisfaction
 til ÿ d'autres, ils sont là sous ma main, et je suis tout
 4 prêt à les produire. (x)
 
-ï
 à fi (1) Journal Officiel de Madagascar du 3 avril 1901 : \.
 NA « Le général a visité, à Soavina, les établissements sco-
 |) he | laires de la London Missionary Society, très bien tenus par
-
-AA )
-CHANGEMENT DE FRONT
 
 Je trouve dans le Journal Officiel de Madagascar, à
 la date du 27 avril 1901, un discours prononcé par
@@ -3054,7 +2581,6 @@ classes des jeunes garçons et dans celles des jeunes filles,
 et a fait procéder, en sa présence, à des interrogations. Il a
 parcouru les ateliers professionnels organisés par M.Peake,
 et dans lesquels de jeunes ouvriers, formés sur place, et
-appartenant aux diverses spécialités, confectionnent fort
 habilement des objets mobiliers et des outils ou instruments
 en bois ou en fer destinés aux usages les plus courants.
 Des gratifications ont été distribuées aux élèves les plus
@@ -3063,7 +2589,6 @@ méritants des diverses classes.
 « Après avoir exprimé à M. et madame Peake la bonne
 impression qu'il emportait de sa visite à leurs écoles, le
 gouverneur général a pris congé d'eux et s'est dirigé sur
-Tananarive. »
 
 Idem, du 6 avril 1907 : « La Mission norvégienne est au
 nombre des plus importantes Missions établies à Madagascar:; elle a 900 établissements scolaires : 340 dans le
@@ -3078,11 +2603,7 @@ son œuvre du Vakinankaratra est prospère. »
 Idem, du 11 mai 1901, à propos de l'école d'Andohalo,
 tenue par les Frères de la Doctrine chrétienne : « Le pro37
 
-IX
-
 | PO d , L'ATRNTR
-ln enseignement à Madagascar $
-re :
 ï di nement de la colonie et pour les résultats très satisfail “1 ! sants déjà constatés. Ces trois missions ont devancé
 : Ve dans cette voie l'enseignement officiel. » (1)
 M. Dans la même collection, j'ouvre le numéro du
@@ -3096,10 +2617,8 @@ a cest ainsi que les élèves font d'abord le croquis du travail
 AVE qu'ils doivent exécuter à l'atelier. La forge a été ajoutée à
 Nat \ la menuiserie au début de cette année et, à mesure que les
 LUE besoins se feront sentir, de nouveaux métiers viendront
-kr L = EVA . : s Es
 L de prendre place à côté des deux principaux. Parallèlement à
 Ke l'enseignement professionnel, des cours d'enseignement .
-a à « PA 235
 Bi d'agriculture et d'horticulture sont organisés et les élèves
 ut sont conduits de temps à autre à la station agronomique
 cl de l'État, attenante à leur champ d'expériences de Soavimne bahoaka. Il faut rappeler à ce sujet qu'à l'Exposition
@@ -3107,7 +2626,6 @@ Va Universelle de 1900, les Frères de Tananarive méritaient
 F4 À une médaille pour la partie agricole. Enfin, au dernier
 VAR concours d'Amdrohibe, leur école a envoyé des produits de
 dE toute espèce i témoignent des progrès incessants des
-( pêce, qu 8 prog
 4 : élèves et du désir du personnel enseignant de seconder
 x efficacement les vues du Gouvernement de la Colonie. »
 “0 ; (:) I n'y a pas là une exagération d'amabilité, mais
@@ -3118,11 +2636,7 @@ su une épreuve de menuiserie qui n'a été exigée qu'en 1903.
 ti Le retard de cette exigence tient tout simplement à ce fait
 di € que l'École Le-Myre-de-Vilers n'a pas été plus tôt en état
 je de préparer ses élèves à cette épreuve.
-qe WA
-{un 38
 
-LH, STORES
-À CHANGEMENT DE FRONT
 même temps active et courtoise, qui sera des plus
 profitables aux intérêts généraux de la colonie. » Ces
 paroles, prononcées deux ans après la promulgation 1
@@ -3154,8 +2668,6 @@ Officiel de Madagascar du 20 juin :
 _ preuve dans l'organisation de leurs écoles et dans l'appli39
 
 | ANS 1! VIONNORNERS TE
-I<E enseignement à Madagascar
-Li ù
 3 ne peut l'empêcher d'exagérer ses exigences et de
 L mettre les subventions oflicielles à un tel prix qu'elles
 (n° cation des programmes d'enseignement tracés par le gouIFR vernement de la Colonie, leur collaboration à l'enseigne-
@@ -3163,7 +2675,6 @@ L mettre les subventions oflicielles à un tel prix qu'elles
 (AS la jeunesse indigène à la mise en valeur effective de la
 M Colonie n'a pas encore donné les résultats que j'espérais,
 et lorsque furent élaborés les arrêtés des 16 avril 1899 et
-25 mars 1901.
 FO « A ce titre, le classement actuel des écoles des missions
 (1 dans les différentes catégories est absolument significatif.
 p+ « Sur un chiffre total de 469 écoles de l'enseignement privé,
@@ -3176,8 +2687,6 @@ plus grande importance, qui devait, dans ses prévisions,
 à tenir de beaucoup la première place et en vue duquel il a,
 £ pendant ces trois dernières années, accordé aux écoles
 U: F privées des subventions de plus en plus importantes :
-1! 4.000 francs, en 1900; 30.000 francs, en 1901; 60.000 francs,
-13 en 1902.
 4 « Les écoles de troisième catégorie, dans lesquelles l'ensei-
 \ gnementest purement pédagogique, et quireprésentent820/0
 fe k * du nombre total actuel des écoles des missions, sont bien
@@ -3188,11 +2697,8 @@ j s'inspirant du but poursuivi par le gouvernement de la
 LÉ Colonie, utiliseraient les capitaux et les ressources en per14 sonnel dont elles disposent pour transformer ces écoles et
 té les faire admettre en grand nombre à la deuxième caté-
 , gorie, après y avoir introduit l'enseignement pratique et
-\ 4 professionnel.
 + « J'ajoute que, dans les écoles de deuxième et de première
 | catégorie des missions, cet enseignement est encore bien
-he 4o Di
-F
 
 Net CHANGEMENT DE FRONT
 soient ruineuses pour les sociétés qui tiennent à lui
@@ -3231,16 +2737,10 @@ privées à l'œuvre de l'enseignement à Madagascar, à la
 condition qu'elles adoptent sans arrière-pensée le programme qui leur a été indiqué par le gouvernement et
 qu'elles lappliquent dans un sens large et libéral, conforme à l'esprit et aux idées modernes. »
 
-4x
-
-HAE enseignement à Madagascar
 1 marquer leur bonne volonté. (1) Le 15 juin 1903, il
 Fa prend un arrêté qui précise à nouveau le programme de
-M . . . . 2
 br l'instruction professionnelle et il déclare dans les
-A EN ë L x
 JR & Instructions » qui accompagnent cet arrêté : « Je
-us . si
 in compte aussi sur la collaboration large et loyale des
 MALE directeurs d'établissements d'enseignement privé, et
 (hi notamment des missions, qui voudront, je l'espère, se
@@ -3252,7 +2752,6 @@ nie Cet arrêté du 15 juin 1903 maïntient donc, en le réorpi ganisant, le ré
 L4 Celui du 25 janvier 1904 y met fin radicalement. Que :
 #1
 de () Je fais allusion à la critique qu'on vient de lire dans
-Ÿ. AP 7 pan
 Lu la note précédente. Le général n'admet pas que, dans
 M l'atelier d'une école, on puisse construire des bancs pour #
 sn l'école même. S'il faut des bancs et des tables, on les achè- j
@@ -3278,7 +2777,6 @@ pas manifesté l'intention d'y répondre favorablement.
 Et le général Gallieni a l'air d'insinuer la même chose
 dans un rapport dont un fragment a été lu, à la Chambre
 des députés, le 21 mars dernier, par M. le ministre des
-colonies.
 
 Je me permets de trouver que ces affirmations n'ont
 rien de sérieux. L'arrêté du 25 janvier 1904 n'a pas été
@@ -3302,10 +2800,6 @@ réza : 4.000 francs pour des constructions, 1.500 francs
 pour des outils. La demande part. Ceux qui la reçoivent
 n'hésitent pas à se mettre en quête de fonds. M. DurandGasselin, de Nantes, à qui nos colonies doivent certaine
 
-{
-
-an FN RÉ à NS
-j enseignement à Madagascar
 nt fondation très importante et qui n'a rien de confes-
 (lLil sionnel, donne 4.000 francs, la « Société pour l'En-
 (7h couragement de l'instruction primaire » fournit les
@@ -3318,7 +2812,6 @@ ji son appel du 15 juin n'était pas sincère et qu'il était,
 fl ; dès cette époque, décidé à ne faire qu'un simulacre de
 | | collaboration et à biffer sa propre parole après avoir
 IN provoqué des gens à des dépenses considérables et
-A FI vaines.
 l 13 Pourquoi ne pas dire, en toute liberté, que les événe14 Fi ments de France, — peut-être des instructions venues de
 ee Paris, — lui imposaient un changement de politique?
 1 | Pourquoi ne pas dire que le principe de l'absolue laïcité
@@ -3330,18 +2823,13 @@ LR avait l'air de le violer? Tout le monde aurait compris
 ji langage aurait été plus respectueux pour des hommes
 À qui méritaient quelques égards en récompense de leur
 1h (es bonne volonté. Il aurait été plus digne du gouvernement
-E? général.
 #4 Mais, s'il n'y avait dans l'arrêté du 25 janvier que
 1 cette suppression un peu brutale d'un régime accueilli
 \ par tous avec complaisance, l'idée ne me serait pas
 ‘à venue d'en parler ici. D'autres dispositions, qu'on n'a
 | IR pas citées, soulèvent d'importantes questions de prinF.h è cipes.
-l'A « 7 4
 
-fa RUE 1
-NL
 L'art des statistiques
-: 15 juin
 
 … Le 25 janvier 1904, un arrêté du général Gallieni a
 réorganisé l'enseignement à Madagascar. Un article qui
@@ -3365,11 +2853,6 @@ général à modifier la réglementation de l'enseignement à
 Madagascar conformément à l'orientation donnée par le
 Souvernement de la métropole. Un arrêté récent pris à ce
 
-4 IY.
-
-NE FPT ON PETER AR
-NO LS CUMRNNENE TEE
-ii enseignement à Madagascar
 HI L'administration de Tananarive a dû se contempler
 A] dans ce miroir, peut-être avec quelque surprise, du
 | moins avec un contentement naturel et auquel il me
@@ -3380,8 +2863,6 @@ Ve arrêtés. Il lui arrivait à elle-même de s'y embrouiller
 4] mesures qui ont eu quelquefois l'air de se contredire
 ke se complétaient avec élégance. Ce sont choses qu'il est
 mi, toujours agréable d'apprendre.
-k STONE
-j sujet supprime désormais aux associations religieuses
 | toute subvention. »
 f L'historiographe de La Nouvelle Revue a tenu à présenter
 ÿ les choses sous un jour un peu différent : « Dans les dis-
@@ -3401,7 +2882,6 @@ situation générale, appropriée aux besoins sans cesse croissants du pays, et 
 françaises. IL a créé, en un mot, sans renverser brusQ quement, et il s'est attaché à ne rien supprimer de ce qui
 existait sans le remplacer de la façon la plus avantageuse
 pour l'intérêt de la colonie et pour le but national à poursuivre. »
-6 {
 #
 
 at L'ART DES STATISTIQUES 3
@@ -3415,7 +2895,6 @@ et c'est là le principal motif de la dernière réforme. +
 gouvernement de la colonie ont atteint ce premier et Ê
 très important résultat que l'enseignement officiel, parti k
 de rien, forme aujourd'hui le groupe scolaire le plus he
-nombreux ». (1) “
 Ce résultat est, en effet, si considérable qu'il faut î
 examiner d'un peu près les statistiques produites. #
 En voici le résumé. A la date du 31 décembre 1903, 1
@@ -3438,10 +2917,7 @@ miers inscrits, les fait mettre en rang, puis commande : \
 et fait la même opération. Les cent élèves, réunis dans
 l'école officielle, reçurent de l'officier l'avis de n'avoir plus ;
 à changer d'école. De fait, aussi longtemps que cet officier %
-47 |
-F
 
-i enseignement à Madagascar 4
 | avec 9.241 élèves, la mission anglicane 26 écoles avec 1
 2.934 élèves, la mission norvégienne 63 écoles avec
 de 4.256 élèves, la Société des amis ou Quakers 16 écoles
@@ -3471,7 +2947,6 @@ et l'école catholique de 50 à 60. Le même officier, à Ifara-
 Î riana, créa l'école officielle en chassant purement et simLu plement l'instituteur de l'école libre et en le remplaçant
 Jar par un instituteur du gouvernement. Des faits analogues
 { se sont passés, en 1897, dans le Vonizongo.
-L
 
 | L'ART DES STATISTIQUES
 remplissaient cette condition, les écoles étaient « classées », et, si elles donnaient l'instruction industrielle et
@@ -3483,7 +2958,6 @@ de reconnaître leur existence.
 Remarquons que le certificat d'aptitude à l'enseignement n'a été établi par l'administration qu'au milieu
 de l'année 1899 (voir les arrêtés des 16 avril et 26 juillet
 de cette année-là). Il n'était pas et ne pouvait pas être
-obligatoire. Pourtant beaucoup d'instituteurs libres, au
 prix de mille difficultés, se sont efforcés de le conquérir. La seule mission protestante française, sur
 649 maîtres à son service, en compte déjà 145 qui possèdent ce diplôme. Les plus mal disposés voudront bien
 reconnaître qu'en quatre ans ce n'est pas mal.
@@ -3504,8 +2978,6 @@ de Za Nouvelle Revue à l'enseignement ofliciel. Acceptons les chiffres qui nous
 ne portent plus uniquement, comme ceux que nous
 venons d'étudier, sur la seule instruction primaire. Ils
 
-ne 4"
-hi ' enseignement à Madagascar |
 comprennent les effectifs de l'École de médecine, de
 | l'École Le-Myre-de-Vilers, etc. Le nombre des étudiants
 grossit ici celui des écoliers ordinaires. N'insistons
@@ -3542,10 +3014,6 @@ plusieurs quartiers de la ville ; ils reçurent la destination
 
 « 1. — Une école primaire officielle, dirigée par des insti-
 
-ï 50
-
-L'ART DES STATISTIQUES
-
 Un autre local, moins grand, avait été cédé jadis,
 dans ce même quartier, en suite d'un échange, à la
 mission protestante française. Il a été repris par l'admi- |
@@ -3559,7 +3027,6 @@ pour la section sakalava de l'école administrative ;
 « 3. — Les bâtiments d'Ambatonilita tombant en ruines
 n'ont pu être utilisés ; mais l'emplacement sur lequelils sont 4
 situés est réservé pour l'installation ultérieure d'une école ÿ
-ménagère ; :
 
 « 4. — Quant à l'immeuble de Faravohitra, il est actuel- 0
 lement occupé par le groupe scolaire européen. |
@@ -3581,17 +3048,12 @@ satisfaite de l'installation du groupe scolaire, qu'elle a 1
 déclaré convenir parfaitement à sa destination. Satisfaction if
 immédiate a été donnée aux quelques desiderata qu'elle a
 formulés en ce qui concerne certains aménagements supplé-
-mentaires.
 
 « Le groupe comprend :
 
 « 1. — Une école préparatoire de garçons, fréquentée par
-24 élèves ; ;
-
-L'
 
 il Û x ta
-ke enseignement à Madagascar “
 | une école pour enfants malgaches. Mais cette école |
 ji n'était pas ouverte au premier mai dernier. Elle ne l'est
 Le sans doute pas encore. (1) Voilà tout ce qui a été fait à
@@ -3601,7 +3063,6 @@ fl cents élèves aux établissements libres de ce quartier;
 {l de Frères (celle que l'on a transformée à l'usage des
 il blancs), il y a là quelques centaines d'enfants mal-
 « 2. — Une école préparatoire de filles, fréquentée par
-EUR 15 élèves ;
 fui « Ces deux établissements sont organisés conformément
 ! aux dispositions de l'arrêté du 27 janvier 1905.
 | « 3. — Une école maternelle fréquentée par sept enfants
@@ -3611,7 +3072,6 @@ pl garçons comprend: un directeur, un instituteur-adjoint et
 NA des professeurs chargés de cours spéciaux à la division
 EI supérieure. L'école préparatoire de filles a une organisation
 Ris analogue à celle des garçons. Une institutrice dirige l'école
-fl maternelle.
 pi « Les élèves des deux sexes peuvent déjeuner à l'école,
 nel ils restent sous la surveillance des maîtres pendant l'in11 tervalle qui sépare les deux séances de classe du matin
 | et du soir. Le ménage d'instituteurs placé à la tête du groupe
@@ -3626,15 +3086,11 @@ FU la demande des parents moyennant une rétribution men-
 | | l'enseignement. »
 ji: (1) D'après le Journal Officiel de Madagascar du 7 mai,
 | Ç elle devait être ouverte le 16. ÿ
-k Re 52
 
-VAE US
 | TU
 
-L'ART DES STATISTIQUES
 gaches qui s'en vont frapper à la porte de toutes les
 écoles privées et qui, faute de place, n'y sont pas
-admis.
 
 Le développement de l'instruction officielle et laïque
 est réel à Madagascar. Il est réel et il est normal. Le
@@ -3646,11 +3102,9 @@ budget difficilement équilibré, a su réaliser. Mais il
 n'est vraiment pas nécessaire que des études tendancieuses, comme celle de La Nouvelle Revue, donnent au
 
 _ lecteur français de trop fortes illusions sur ce qui se
-passe à Madagascar.
 
 | VII
 | k Enfants à la rue
-19 juin
 Prenons l'arrêté du 25 janvier 1904 qui réorganise
 il. l'enseignement dans la colonie. Une des mesures les
 | plus extraordinaires, et qui frappe dès l'abord, est celle
@@ -3669,11 +3123,7 @@ droit de s'instruire.
 divers. Il en est un qu'il y aurait injustice à ne pas souligner et approuver immédiatement. C'est le souci de ne j
 ik point peupler l'île de déclassés, incapables detravailler,
 H dédaigneux du travail manuel, inutiles, encombrants et
-je: 5%
-À
 
-(ie Lai He ñ
-ENFANTS A LA RUE
 toujours mécontents. Cette préoccupation du gouvernement général n'est pas seulement légitime. Elle à
 s'impose, — j'aurai l'occasion de le répéter, — à quiconque s'intéresse véritablement au sort des indigènes.
 Aussi, n'est-elle point propre à l'administration. Elle est
@@ -3702,7 +3152,6 @@ duisait, vers treize et quatorze ans, une sorte d'éclosion |
 de l'esprit. Ils ne peuvent s'empêcher de regretter que A
 l'on fixe, juste à ce moment, l'interruption forcée de
 l'étude. Je n'insiste pas sur cette observation, qui a pour- k
-55 |
 
 LE enseignement à Madagascar
 | tant son intérêt. C'est un autre inconvénient que je
@@ -3738,8 +3187,6 @@ temps dans la rue. Il n'en ferait pas un moins bon usage
 À pullulent surtout aux abords des marchés et des grands
 À magasins. Dès qu'un « vazaha », un blanc, a fait un
 
-ENFANTS À LA RUE
-
 achat, ils accourent autour de lui comme un vol de
 moineaux avides. Ils se pressent, se poussent, se
 disputent le privilège de porter son paquet. A Tananarive, iln'est pas distingué, pour un Européen, d'être vu
@@ -3768,38 +3215,25 @@ que l'administration songe à mettre hors de certaines
 chose de notre langue. Pour corriger ce mince inconvé-
 nient, fallait-il créer, de façon à peu près inévitable, un
 
-1 a Me U MEN EN TON ONE LR st (7'IÈR Al 5 A È
 DU enseignement à Madagascar M a à
 ju AE mal plus grand? L'augmentation presque forcée du 70
 1 st vagabondage est une manière assez étrange de contriEAN ' L : \
 hi 1H te buer au renouvellement moral de la jeunesse malgache. k.
-[ Qi Zn mu x x . . ‘4
 tu, Je serais étonné si quelque fonctionnaire subtil n'aviAl EE . : ; 7 : l
 || PEU sait au moyen de pallier le résultat nécessaire d'une
 AN déplorable mesure. Avec un peu de bonne volonté, on
 LH (4 dresserait une de ces statistiques savantes, à l'aide
-FUEL RER . = :
 MANU desquelles on arrive à prouver tout ce qu'on désire.
-LE ON q
-f ALU . # : .
 Hi hi CT En cherchant bien, en négligeant ceci, en tenant compte
 si Eu de cela, on finirait par établir que les pires des marauNME M. deurs ont commencé par fréquenter une école, et même
 PR: telle ou telle école. Les chiffres procureraient peu à peu
 À 11 NUS l'impression que l'influence de la rue est, après tout,
 Re. moins mauvaise que celle d'établissements où l'on
-PAIE : : 21 a +
 fait 00 essaie de former la conscience de l'élève. C'est l'enEEE fance de Fart que de bâtir une de ces statistiques. Nous
 il: 1008S rêterons, à celle qu'on ne manquera pas de nousfaire,
-(EN P ; P ;
 LS la confiance qu'elle méritera. Je l'attends avec un souAU
-RALO 4 L
-2h. AN
-AM.
-4 (170 Tin
 
-VIII
 Contre l'élite
-23 juin
 
 Les programmes élaborés par le général Gallieni et
 par ses conseillers partent d'une idée fort juste, — fort
@@ -3816,7 +3250,6 @@ industries et de leurs exploitations. »
 I est impossible de ne pas approuver cette préoccupation du gouvernement général. Si elle doit hanter les
 hommes qui pensent surtout au développement économique de la colonie, elle ne s'impose pas moins à ceux |
 
-ji enseignement à Madagascar
 1 qui se consacrent à l'éducation morale des indigènes.
 FRn ue Il ne faut pas être grand clerc pour savoir que des
 | | « déracinés » ne valent souvent pas cher au point de
@@ -3845,12 +3278,8 @@ f aura séparé ces jeunes gens de leur champ et de leur
 ï bôche, et on aura contribué à créer cette classe de fai1; néants, qui n'est que trop nombreuse déjà à Maie dagascar. »
 a C'est là le langage du bon sens. Mais vraiment je ne
 1 vois pas pourquoi je l''emprunte à cette lettre plutôt
-HN
-, di 6o
-ru
 
 | LH: 064 FÉeR
-CONTRE L'ÉLITE
 qu'à une autre d'une autre personne. C'est tout simplement parce qu'elle est là, sous ma main. Tout le monde
 est du même avis sur ce point. Ceux qui ont le plus
 d'ambitions intellectuelles et morales pour la race malgache ne font pas exception. (1)
@@ -3882,8 +3311,6 @@ tutelle les populations conquises et de les élever, sans
 (1) Voir, aux annexes, une lettre significative de
 M. Groult, directeur de l'école normale de Mahazoarivo.
 
-iLA , ane
-ji enseignement à Madagascar 4
 ll transition brusque, mais avec une méthode logique et À
 ML sûre, aux bienfaits de la liberté et aux derniers progrès
 1h de la civilisation. »
@@ -3914,11 +3341,6 @@ N Hovas, ne manifestent guère de dispositions esthétiques; « oi en revanche i
 | nf puisse être faite, — n'est certainement pas celle que l'on a
 V7 construite dans les bureaux du service de l'enseignement
 
-D à Tananarive.
-
-! , À
-
-CONTRE L'ÉLITE
 dont je ne veux pas discuter l'importance numérique,
 mais qui est très réelle.
 
@@ -3953,7 +3375,6 @@ une école primaire, est-ce bien ce qui suffit pour faire
 produire à une petite élite ce qu'on devrait espérer
 d'elle? C'est une pédagogie spéciale qu'il faudrait
 
-1 enseignement à Madagascar
 Ë tenter sur ces intelligences qui n'ont pas encore une
 |] hérédité d'attention, sur ces raisons qui se contentent
 1 vite d'imiter nos raisonnements et qui manquent d'ori-
@@ -3962,7 +3383,6 @@ d'elle? C'est une pédagogie spéciale qu'il faudrait
 li à essayer, et cela ne pourrait se faire, dans l'intérêt de
 ll ces enfants, que dans un établissement où ils seraient
 h réunis ensemble et en nombre très minime. (1)
-if
 Ë (1) La mission protestante française avait confié, l'an
 jl dernier, à M. André Chazel, licencié ès lettres de l'UniverJEU sité de Paris, le soin de fonder un établissement, projeté
 "e depuis longtemps, qui ne devait s'occuper que d'une élite:
@@ -3990,14 +3410,8 @@ activité. Il leur serait donc matériellement impossible de
 3 consacrer à quelques élèves d'élite le temps et l'attention
 s qu'ils méritent. Pour pouvoir tirer parti de leurs aptitudes
 y et de leur Application, il est nécessaire en premier lieu de
-{
-
-“
-
-4 $
 
 (le ein Or À
-CONTRE L'ÉLITE
 Or, c'est cela que l'on ne permet pas. Ici il est vraiment par trop difficile de ne pas distinguer une concession peut-être inconsciente, mais assurément fâcheuse, à
 un certain esprit colonial. Il y a des blancs, beaucoup de
 blancs, qui nient tout droit des indigènes à s'élever un
@@ -4027,10 +3441,7 @@ instruction supérieure à ceux qui ne pourraient pas en
 tirer un profit véritable. »
 (1) Voici une petite histoire qui montre combien l'« esprit
 colonial » peut être hostile aux ambitions « humaines » que
-65 I.
 
-a D |
-qe ; enseignement à Madagascar :
 HAUT Le général Gallieni n'a jamais favorisé ces tendances.
 an Avec un courage qui l'honore, il les a souvent comHUE AN d'aucuns se permettent d'avoir pour les indigènes. Le premier
 [144 août 1903, M. le pasteur Jean Bianquis inaugurait, à TanaFil narive, le temple d'Andohalo consacré aux services relihe gieux français. Il définissait dans son sermon la tâche
@@ -4051,7 +3462,6 @@ s M lique qui est le principal facteur des sociétés modernes et
 alé la meilleure garantie de leur prospérité, travailler enfin à
 ja éclairer, à redresser, à fortifier la conscience à l'école de
 Ne Jésus, le Sauveur des pécheurs et le modèle de l'humanité
-At 1e régénérée. »
 | Interrompons ici la citation. J'admets, certes, que des
 non-chrétiens aient des réserves à faire sur une affirmation
 | que je crois vraie, à savoir que l'esprit évangélique est un
@@ -4064,12 +3474,7 @@ ju Faisons une hypothèse dont je demande pardon aux lec-
 è M.Bianquis ait dit quelque chose comme ceci:« Nous apprenfi g drons aux Malgaches que l'instruction n'est rien et que la
 1 À pieuse observance des commandements de l'Église est tout,
 | ÿ que la recherche libre dela vérité est souvent d'inspiration
-ul EPA
-au
 
-_ÉLGÈES
-
-Nr CONTRE L'ÉLITE
 battues. Dans bien des circonstances, il s'est conduit
 véritablement comme le protecteur des indigènes contre
 diabolique, que les hommes n'ont pas à se soucier de leurs
@@ -4109,8 +3514,6 @@ Je demande à nos démocrates s'ils ont un mot à reprendre
 
 | 67
 
-be enseignement à Madagasear
-
 | certains personnages. C'est à d'autres principes qu'il
 
 UN doit sa conception utilitaire de l'instruction publique.
@@ -4124,7 +3527,6 @@ fon énergiquement réprouvé et flétri. Parlons franchement :
 qi n'auraient-ils pas été heureux de dénoncer une contradic-
 
 ill tion flagrante entre l'Évangile et les principes de la Révo-
-(| | lution ?
 | Ces attaques n'ayant pu se produire, d'autres les ont
 ( remplacées. M. Bianquis avait prononcé son sermon le
 
@@ -4142,7 +3544,6 @@ DELLE ment; mais de là à dire que nous sommes les émancipajs teurs désignés
 
 UE à connaître leurs droits pour en faire des citoyens, il ya
 
-vil loin.
 nul « Nous avons ici complètement transformé la condition
 
 f 1 | sociale des indigènes ; ils vivaient sous un régime d'oppres-
@@ -4162,17 +3563,12 @@ NE pressantes. Je continue la citation :
 4 prix de réels sacrifices. Nous avons créé très vite des écoles
 ty 4 professionnelles, où les indigènes doivent apprendre les
 ï À métiers manuels les plus divers, leur permettant de gagner
-ji 68
 
-ANA
-
-CONTRE L'ÉLITE
 Mais, à force de vivre dans une atmosphère, il semble
 bien qu'il en ait subi l'action, même sans s'en douter.
 leur existence en devenant les auxiliaires des colons qui
 apportent ici leur intelligence, leurs capitaux. On a institué beaucoup trop vite des Écoles normales, des écoles \
 administratives où on apprend aux indigènes, très paresseux de leur nature, qu'ils doivent s'appliquer à devenir ;
-d'excellents fonctionnaires.
 « Qu'est-ce qu'il vous faut de plus? Ceux qui n'ont rien R
 à risquer, que d'augmenter leur clientèle en flattant les 7 |
 douces manies des Malgaches, sont mal venus, il me semble, 3
@@ -4201,19 +3597,15 @@ a réclamé pour les Malgaches les droits civiques. Il
 savait et il sait, aussi bien que n'importe quel journaliste, que ce serait folie de transformer, du jour au lende- ÿ
 main, en citoyens de notre République, des multitudes x
 
-a enseignement à Madagascar
 1 Qu'il l'ait voulu ou non, son interdiction d'un enseiLi gnement un peu général pour la petite élite malgache
 15 est en accord avec, une politique qui, si elle était
 fn adoptée, ne serait pas digne de la République.
-
-NN RC
 
 !| FR d'êtres dont la plupart, — je ne parle pas d'uneélite, —ont
 nt encore besoin d'être élevés à la dignité d'hommes conEs À scients. Mais il a proclamé ce qui est le but de toute évoluJA tion morale, le but de toute éducation qui mérite ce nom.
 Us S'il avait affirmé le contraire, il aurait mérité le tolle d'une
 1H démocratie. Je devine les développements indignés que son
 ni À discours aurait inspirés, — et justement, — à notre presse
-fu fe avancée.
 
 il Ayant parlé comme il l'a fait, il a été accusé de faire de
 li la politique :
@@ -4234,26 +3626,8 @@ EN haut idéal de vie personnelle. C'est par suite faire de la poliCHAN tique, �
 ie de journaux coloniaux, —que d'enseigner aux jeunes femmes
 A ie et aux jeunes filles qu'elles déchoient en consentant aux
 WU unions momentanées que Loti a célébrées dans Madame
-ii Chrysanthème.
-A UAT
-
-{ Le « Ne"
-(5) LR
-
-i
-
-J
-
-e 4
-
-:
 
 L'initiative interdite ï
-
-x
-
-i 29 juin 4
-L
 
 Dans un bureau de l'administration, à Tananarive, un î $
 chef de service fait la philosophie de la race malgache.
@@ -4273,8 +3647,6 @@ essayer, avec un très petit nombre de Malgaches, d'un à
 enseignement qui ne serait pas tout à fait coulé dans le à
 moule de celui de l'administration. Il est libre de rêver e'
 
-Mi | 2 2 IN NN
-À enseignement à Madagascar
 | | d'une école très restreinte où, sur un chiffre minime
 1] d'élèves, on pourrait tenter une éducation un peu plus
 1 intellectuelle et libérale. Aussitôt, le chef de service
@@ -4305,7 +3677,6 @@ d'une utilité compromise. Un droit essentiel est violé,
 l garanties, et s'il ne se trouve pas dans certaines situations visées par la loi, a le droit absolu d'ouvrir un
 L établissement d'instruction. A Madagascar, on le lui
 
-5 L'INITIATIVE INTERDITE
 refuse net. Pour m'en assurer, j'ai posé, à quelqu'un qui
 était en mesure de me répondre, une question qui
 affectait volontairement un caractère personnel : « Je
@@ -4315,7 +3686,6 @@ Je ne fais partie d'aucun clergé. Ai-je le droit d'ouvrir,
 à Tananarive, une institution libre qui donnerait, non
 pas l'enseignement primaire qui est autorisé, mais un
 enseignement un peu général? » On m'a répondu :
-« Non! » ;
 
 Et je demande, maintenant : Que devient, en tout
 ceci, le droit du citoyen français ? Où est-il écrit que ce
@@ -4327,7 +3697,6 @@ français est imprescriptible. Il n'est pas admissible
 qu'un simple arrêté d'un gouverneur puisse supprimer
 ce qui est garanti à tous par la loi. Ce n'est pas seulement la liberté des citoyens, c'est aussi le pouvoir
 d'un gouverneur qui est et qui doit être limité par la
-loi.
 
 IL va sans dire que l'administration n'est pas tout à
 fait sans réponse pour essayer de justifier ce que je
@@ -4337,10 +3706,6 @@ des mineurs, comme des faibles. On leur doit la protection sous bien des formes.
 leur faveur, ils seraient victimes d'abus. IL faut les
 défendre, par exemple, contre les exagérations du
 portage. De même, il est légitime de les défendre contre
-
-re
-
-ii enseignement à Madagascar
 
 4 A une instruction qui ne leur serait d'aucune utilité et qui
 
@@ -4400,13 +3765,9 @@ nr procurer les ressources nécessaires à la satisfaction des
 1e disons-nous, n'éprouvera pas davantage le besoin d'aller
 vs travailler chez le Vazaha, le colon, celui qui travaille et |
 à fait travailler méthodiquement... Le Malgache, il est vrai, F
-Le,
 
-nus ‘AM }
-À: \ L'INITIATIVE INTERDITE
 raison pour élever l'interdiction d'un enseignement un
 _ peu général à la hauteur d'une réforme humanitaire et
-libératrice.
 
 Je suis le premier à distinguer ce qu'aurait de mauvais pour le peuple malgache la diffusion d'une instruction sottement théorique et spéculative. Mais
 Vadministration est aussi la première à savoir qu'il ne
@@ -4438,10 +3799,7 @@ toujours plus grande. Certains espèrent, — ils le disent
 couramment, mais n'osent l'imprimer, — que son « successeur saura établir le travail obligatoire ». Ces attaques sont
 à la louange du général.
 
-7ù
-
 il enseignement à Madagascar
-ul
 ! s'agit de rien de tel. C'est pour un tout petit nombre
 il que l'on voudrait faire l'essai interdit. On va jusqu'à
 ( dire au gouvernement : « Fixez à l'avance le chiffre
@@ -4473,10 +3831,6 @@ ie, droit sera respecté. Mais il n'aura pas d'élèves. Le .
 tour est joli.
 | 76
 
-È
-
-À L'INITIATIVE INTERDITE
-
 C'est qu'en effet, — nous l'avons déjà vu, — un enfant
 âgé de plus de quatorze ans et qui désire recevoir un
 enseignement un peu général, même dans une école
@@ -4489,8 +3843,6 @@ d'indiquer, mais dans l'organisation qui fonctionne en
 ce moment même à Madagascar. Je le montrerai dans
 mon prochain article.
 
-=
-
 |
 
 |
@@ -4498,8 +3850,6 @@ mon prochain article.
 | x
 
 | L'arbitraire
-
-3 juillet
 
 La L'article 45 de l'arrêté du 25 janvier 1904 est ainsi
 
@@ -4539,9 +3889,6 @@ delà de quatorze ans, dans une proportion nettement
 ' déterminée, quelques élèves intelligents et studieux.
 Elles auraient jugé elles-mêmes, sous tous les contrôles
 
-nee k
-
-L'ARBITRAIRE
 imaginables, mais avec leur incontestable compétence,
 à qui il convenait d'accorder une faveur exceptionnelle. Au lieu de cela, c'est le gouvernement qui, de sa
 propre autorité, désignera par leurs noms les jeunes
@@ -4572,9 +3919,6 @@ sation est prononcée, en définitive, par lui. On ne sau- }
 rait mettre en doute son équité personnelle. Mais il est
 
 ne Dupae M Le
-a enseignement à Madagascar
-
-ia © “
 
 j le dans la situation d'un ministre de l'instruction publique
 pe qui est, certainement, trop haut et trop loin pour bien
@@ -4582,7 +3926,6 @@ pe qui est, certainement, trop haut et trop loin pour bien
 Va obligé, pour toutes les demandes individuelles qui lui
 La) sont adressées, de s'en rapporter sans réserve à ses
 de (1 fonctionnaires. C'est ici que le danger du régime
-hs apparaît.
 
 1 L'administration ne veut pas entendre parler de ce
 ji ‘ danger. Elle est sûre de tous ses agents, à tous les
@@ -4606,10 +3949,6 @@ LUE Ne parlons pas seulement de compétence pédagoji gique. Ce serait manquer d
 il dans le régime inauguré par l'arrèté du 25 janvier 1904,
 il j c'est la facilité laissée aux injustices calculées, aux
 1 passe-droit, au favoritisme éhonté. Est-on bien certain
-
-11 b 80
-
-; 4 L'ARBITRAIRE
 
 … que des individus, sûrement des Malgaches, peut-être
 
@@ -4647,10 +3986,6 @@ L'article 45 de l'arrêté scolaire établit que nul ne
 pourra rester dans une école primaire après quatorze
 ans révolus, — sauf dans le cas où il reçoit un trai-
 
-81 Ve
-
-qe enseignement à Madagascar
-
 LA tement de faveur. On ne peut pas appeler d'un autre
 El nom l'autorisation qui lui est donnée ; c'est un privilège
 hi concédé, c'est une grâce dont l'individu est l'objet. Eh
@@ -4676,20 +4011,10 @@ ie Pour faire disparaître les pratiques de l'arbitraire,
 à commençons par en biffer le principe dans la loi et dans
 | k les arrêtés qui en tiennent lieu.
 
-1|
-
 |
-
-1;
-
-VE
 
 { À (:) A défaut de vénalité, les querelles de clans et de
 Al ad castes joueront leur rôle dans l'arbitraire. Elles se conSOL cilient, d'ailleurs, sans peine avec les pensées de lucre.
-
-XI
-Paradoxe d'illégalité
-13 juillet
 
 J'arrive à une des plus admirables curiosités qu'il, y
 ait dans l'arrêté scolaire du 25 janvier. L'article 76 est
@@ -4712,10 +4037,6 @@ blanc, fat-il muni de tous les brevets possibles, l'auto-
 école d'apprentissage industriel et agricole, mais il n'a
 pas le droit de fonder ou de diriger une école primaire.
 Il avait ce droit en France; il l'y a laissé en s'embarquant à Marseille pour Madagascar.
-
-PA FAURE 4: AT CNRS M
-
-pi enseignement à Madagascar À
 
 1 Pourquoi est-il ainsi, de façon sommaire, exproprié J
 
@@ -4778,10 +4099,6 @@ français. Et pour compléter cette mesure on ajoute que
 | les maïtres européens seront soigneusement exclus de
 cet enseignement. Je renonce à saisir cette logique. Je
 
-À
-
-HEAR PARADOXE D ILLÉGALITÉ
-
 É distingue, pourtant, quelques-unes des scènes qu'elle
 
 . pourrait inspirer à un Labiche. Ces scènes seraient à
@@ -4818,7 +4135,6 @@ nombre d'établissements primaires, créés par l'État, les
 Malgaches voyaient le français enseigné par des blancs.
 Ils affluaient aussitôt vers ces établissements, non
 
-qu enseignement à Madagascar ; |
 ê point parce que les maîtres étaient des religieux, mais
 | 4 parce qu'ils étaient européens et devaient bien savoir
 notre langue. Les gens qui ne se souciaient pas d'aban-
@@ -4837,7 +4153,6 @@ table et devait tôt ou tard prendre fin. Quand un
 Français se trouve dans les conditions prévues par la
 
 HE loi, son droit à ouvrir une école primaire est absolu et
-imprescriptible.
 
 Faut-il donc se résigner à ne rien comprendre à la
 dé mesure qui frappe ainsi nos concitoyens et les expro-
@@ -4861,9 +4176,6 @@ placer dans les siennes propres. Je neveux pas en avoir
 
 pour moi. Donc je défends aux autres d'en avoir. Tant ,
 
-ÿ 86
-
-PARADOXE D'ILLÉGALITÉ
 pis, si je suspens un droit. Il me plaît qu'il en soit ainsi,
 et je commande.
 te langage est clair. Il est même compromettant. Car
@@ -4880,25 +4192,15 @@ est violé à Madagascar. Pour faire des économies dans
 des finances peu prospères, le droit du citoyen français
 est supprimé. Il est peut-être permis de ne pas admirer.
 
-MT . DR NT RE Le TXQN ANUS Qi
-
 je D
 
-je N.
-el
 |
-L: ce
 |
 Ni Leçons de français
 
-vf
-ll , 15-16 juillet
-1h S
 tits J'ai déjà fait allusion à l'enseignement de notre
-(Rex . . A A
 1 langue. La question vaut la peine d'être traitée pour
 
-L a
 ï elle-même.
 1| Il va sans dire que, dans une colonie française, cet
 ke enseignement doit avoir une place importante: La
@@ -4918,13 +4220,8 @@ j utile au gouvernement de leur propre pays. L'élite, si
 jh que ce soit, ils sentent peu à peu leur esprit, leurs tendances, leurs capacités respectives s'orienter vers le
 F' peuple dont ils apprennent l'idiome. C'est incontes-
 
-table.
-
 C'est pourquoi l'on ne peut qu'approuver le gouver-
-\ |
-Her r
 
-LEÇONS DE FRANÇAIS
 nement général pour l'effort, commencé dès le lendemain de la conquête, d'introduire l'enseignement du ù
 français dans toutes les écoles supérieures de Tananarive. C'est dans ces écoles que se donnaient autrefois
 ces leçons d'anglais dont on a prétendu à tort qu'elles
@@ -4948,7 +4245,6 @@ d'une colonie. L'administration française n'hésite pas
 Madagascar du 20 juin 1903) contiennent un historique de
 l'enseignement dans la colonie. J'en extrais ce qui se rap- k
 porte à la langue française. C'est le général Gallieni qui
-parle :
 
 « Circulaire du 5 octobre 1896. — A la suite de la loi
 d'annexion du 10 août 1896, ma circulaire du 5 octobre suivant posa pour la première fois quelques principes géné-
@@ -4957,11 +4253,9 @@ début, dans les écoles de Madagascar.
 
 « Cette circulaire insistait notamment sur l'obligation ï
 
-ke enseignement à Madagascar 1 "4
 | |
 permets, — encore que les hérésies soient mal accueil- À
 lies parmi nous, — d'être d'un avis radicalement
-différent. \
 a Ma première raison est de simple bon sens. Cet enny seignement ne peut pas être bien donné. Li est confié à
 We des indigènes. Même si la loi française n'était pas
 18 violée à Madagascar, même s'il était loisible à un de
@@ -4971,7 +4265,6 @@ Ni enseignement dans un sens résolument français et elle
 Ÿ langue était l'un des plus puissants moyens dont nous disposions pour assimiler nos nouveaux sujets, les initier à
 à nos idées et à nos coutumes et, enfin, les préparer à fournir
 le concours nécessaire aux entreprises de nos colons. »
-H
 ; « Circulaire du 11 novembre 1896. — Ces principes géné-
 HF raux furent précisés un peu plus tard par ma circulaire du
 4 11 novembre 1896, qui rappelait, en les détaillant davan-
@@ -4990,8 +4283,6 @@ tard, un autre arrêté, du 17 janvier 1897, impose la connaissance de la langue
 des emplois du gouvernement. »
 « Circulaire et arrêté du 16 avril 1899 et programme
 d'enseignement du 26 juillet 1899. —..Dans leur ensemble,
-
-, \d
 
 | LEÇONS DE FRANÇAIS
 toyens exerçant dans les écoles serait toujours mé-
@@ -5027,11 +4318,6 @@ et la généralisation de l'emploi de notre langue par les
 indigènes restaient à cet égard le but essentiel à poursuivre
 et à réaliser. »
 
-é js
-
-is À
-(fil enseignement à Madagascar
-
 “A souvent un vocabulaire ramassé un peu partout, qui se
 
 ie ressent par trop des influences militaires et qui, dans
@@ -5039,8 +4325,6 @@ ie ressent par trop des influences militaires et qui, dans
 | bien des cas, prête à rire. Ils ont une prononciation
 
 5 il souvent vicieuse. Les élèves, naturellement, exagèrent
-
-FOR TEN . 23"
 
 ( les défauts des maîtres. Les lois phonétiques ne deman-
 ( dent pas, pour agir, l'autorisation officielle. Les mots
@@ -5079,16 +4363,9 @@ des feuilles illustrées qui, à la devanture de nos kiosques
 1 La Vie en rose, Fin-de-Siècle, La Gaudriole, La Culotte
 té rouge, Le Vieux Marcheur, etc. Voilà ce qui a Le plus grand
 
-Wu 92
-
-PAC
-
-a
 gs LEÇONS DE FRANÇAIS
 
 en quelque sorte administrative, d'un patois informe et
-
-barbare.
 
 Voilà une première raison de fait. En voici une
 seconde qui n'est pas, non plus, de théorie. L'administration, en ordonnant l'enseignement universel du fran-
@@ -5121,8 +4398,6 @@ en bénéficieront une récompense de leur zèle au travail et
 de leur bonne conduite. Avant-hier soir, une première série
 de dix élèves de l'école administrative ont assisté à la repré-
 sentation de Gilette de Narbonne. »
-
-CA A enseignement à Madagascar
 
 | 1. ; struire. Et il ne s'aperçoit pas qu'il a donné et donne
 | if l'exemple de ce qu'il réprouve. Il ne s'aperçoit pas qu'il
@@ -5158,7 +4433,6 @@ PU exerçait toutes les fonctions, y compris celle de pomper
 
 fi 188 Or cet afflux incessant des Hovas à Tananarive est
 sans utilité sociale. Tous ces gens n'ont rien à faire
-(RE
 
 | LEÇONS DE FRANÇAIS
 
@@ -5174,10 +4448,8 @@ La question a, d'ailleurs, un autre côté, — un côté plus
 philosophique, — qu'il me reste à aborder.
 
 | | 0 A DU PE. ANT A pe UV
-NN G
 
 #J 12 Pour la langue malgache |
-F1 24 juillet
 DA. Il faut que je revienne sur la question de l'enseigne-
 
 A à ment du français. Quand on veut tuer son chien, on dit
@@ -5206,10 +4478,6 @@ HU dehors, par une transfusion mécanique d'un esprit dans
 
 ti de un autre, par l'absorption d'un certain nombre de for- Û
 
-np FE Pl A Le .
-
-4 POUR LA LANGUE MALGACHE
-
 . mules apprises par cœur. On passe de la main à la
 
 - main une pièce de monnaie. On ne communique pas, à
@@ -5218,7 +4486,6 @@ cet homme à penser cette idée. Elle n'est à lui que du
 moment où il l'a pensée. Avant, il était une machine
 qui reproduisait des sons. Il n'est un homme, au sens
 exact du mot, que dans la mesure où il pense par luimême, où il réfléchit ce qu'il dit et dit ce qu'il a
-réfléchi.
 
 Eh bien ! je pose délibérément en principe que des
 hommes n'apprennent à réfléchir que dans leur propre
@@ -5245,9 +4512,6 @@ souvent, comme je l'ai déjà dit, l'enseignement d'une
 caricature de notre langue. Osera-t-on prétendre, sans
 rire, que cette contrefacon grotesque du français peut
 
-VE
-
-: LS
 | enseignement à Madagascar CAES
 À avoir une valeur éducative quelconque ? Passons. Je 1%
 Â mets les choses au mieux. Dans les conditions que l'on 4
@@ -5281,9 +4545,6 @@ $ ans, à des chefs indigènes de Brass (à l'embouchure du …
 | La faute n'en était ni aux enfants, ni aux instituteurs, M
 à mais aux chefs qui voulaient qu'on enseignât, non pas #
 # leur langue, mais l'anglais. Le personnage que je cite J
-ÿ 98
-
-. Less
 
 sa POUR LA LANGUE MALGACHE
 
@@ -5319,25 +4580,10 @@ deux choses l'une : ou bien vous ne parviendrez pas à
 ouvrir, ou bien vous gâterez la serrure et la clef, c'est-
 à-dire l'esprit de vos enfants et la langue, qu'ils défigureront... » ;
 
-Y
-ms
-a clas li
-que :
-paisles
-V'ARach:
-:
 .
-:
-A |
-
-À
 
 R LA LANGUE MALGACEE 1 Hit |
 | é
-
-11 enseignement à Madagascar
-
-el
 
 (4 Je me permets de penser que ces paroles s'applique- :
 4 raient fort bien à Madagascar et au peuple malgache.
@@ -5347,13 +4593,11 @@ el
 1 y à la malgache, deviennent malgaches. Sinon, elles ressl teront toujours à la surface. On n'aura qu'une civilisale tion de placage. J'avoue que j'ai pour cette race une
 4 autre ambition et que je rêve pour la France, non pas
 fe des perroquets ou des singes qui répéteront avec ai4 M sance des sons ou des gestes, mais des enfants de son
-14 esprit. |
 
 ‘il Mes espérances, mes convictions et ma pensée, les
 11 voici traduites par un des hommes qui ont bien étudié la
 h question à Madagascar même :
 
-11 |
 14 « Tandis que la connaissance du français ne permet
 À que par exception au Malgache de pénétrer notre
 à pensée, de comprendre en quoi nous différons de lui et
@@ -5370,14 +4614,9 @@ ie que par tout autre moyen. d
 
 | « L'éducation que nous devons au peuple malgache,
 Li et qu'il attend de nous, se fera du même pas, progressi-
-{ 100
 
 |
 
-1|
-
-. te LME
-F POUR LA LANGUE MALGACHE
 « vement et sûrement. Une littérature, et non pas peut-
 ; être seulement une littérature scolaire, se créera petit
 à petit, toute pénétrée de notre esprit et toute tournée
@@ -5387,18 +4626,8 @@ vers la nôtre. Cultivons avec nos méthodes et dans un
 dise pas un jour ce que, naguère encore, Michel Bréal
 pouvait dire des écoles mêmes de France : « C'est pour
 « avoir méconnu la force des attaches locales que votre » « culture est trop souvent sans racine et sans profon_ « deur. » ‘
-s
-VI.
-
-ql
-
-jt XIV
-
-fs
 
 il ‘ Fagots et Fagots
-
-qe 31 juillet
 
 le Revenons à l'arrêté du 25 janvier 1904. L'article 3 en
 ie est relatif à l'obligation. Il est ainsi conçu : « L'injh struction est obligatoire pour les enfants de 8 à 13 ans
@@ -5420,9 +4649,6 @@ NU dans cet article 3, sera bientôt une réalité. Quoi que le
 | ‘ parents, pour obéir à la loi, soient contraints d'envoyer
 | à 1 102
 
-“Ar
-
-ÿ FAGOTS ET FAGOTS
 leurs enfants dans un établissement confessionnel. IL
 les laisse parfaitement libres de le faire. Mais il n'entend pas les y forcer indirectement. Il ne décrète l'obligation que le jour où les parents, qui ne veulent pas
 d'une école de mission, peuvent recourir à une école de
@@ -5454,38 +4680,28 @@ sans exception, seraient absolument insuflisantes pour
 recueillir les enfants du canton en âge de s''instruire. On
 peut évaluer le chiffre de ces enfants, par canton, à 200
 
-ee : NET LD su
-ht: EEE 4% PA tine ARR
 WE enseignement à Madagascar Dé NE
 ( ke ou 300 environ. Dans bien des cantons, ce nombre est
 1 î beaucoup plus grand. La plupart des écoles officielles
 1e j existantes n'ont qu'un seul maître. C'est la présence de
 4 G ce seul maître qui fait décréter l'obligation. Supposons
 |: 6 que tous les enfants affluent vers lui, que pourra-t-il
-l a faire ?
 il ÿ Non seulement il n'a point de collaborateurs, mais le
 fl. ÿ bâtiment dont il dispose est beaucoup trop petit. Ce
-ET .
 il ‘4 n'est, dans bien des cas, qu'une case un peu vaste, une
 (Se salle dans laquelle une cinquantaine d'élèves tout au
 Me: lus pourraient tenir. Si, du jour au lendemain, l'enseiRE P'us p 2 CU
 FLUFS nement libre abandonnaïit sa tâche, il y aurait dans
-Hi 8 vf
 NE chaque « faritany » des centaines de petits Malgaches
 (Re. qui ne recevraient plus la moindre instruction. L'enseiii j gnement ofliciel ne serait pas en mesure, en mettant les
 lé 2 choses au mieux, d'en recevoir plus d'un tiers ou d'un
-j'te quart.
 Re Il y a enfin une autre difficulté matérielle. Supposons
 ni ki l'obligation décrétée dans un canton où les écoles libres
 El n'auraient pas de maîtres diplômés ; elles ne pourraient
-ALT . , pe .
 11) NI plus recevoir d'enfants au-dessus de huit ans. L'école
 ii ' officielle fonctionnerait seule. Pour s'y rendre, les
-IS J »
 s 1 10 enfants seraient obligés, dans bien des cas, de faire
-Aix ges,
 Miss une marche d'au moins deux heures le matin et deux
-Rx 1140 . . . .
 NE A heures le soir. Dans bien d'autres cas, ils auraient à
 if re traverser des torrents qui, au moins dans la saison des
 4 118 pluies, sont presque infranchissables même pour des
@@ -5494,19 +4710,7 @@ A qe multiplié dans la campagne des écoles qui ne répondent
 f Jp qu'aux premières nécessités, mais qui y répondent. Le
 ART décret établissant l'obligation aurait pour effet voulu
 ka £ de les fermer, sauf aux tout petits enfants.
-è RS
 
-PC
-
-Ne
-
-vaut, A7
-
-An -
-N'a
-Va 4
-ve
-FAGOTS ET FAGOTS 4
 Il est clair que, dans des conditions pareilles, l'obligation serait tout simplement inscrite sur le papier.
 Elle ne serait pas observée dans la pratique. Les enfants
  n'iraient pas dans les écoles voisines, qui n'auraient
@@ -5538,29 +4742,19 @@ l'indépendance, de faire des ouvriers indociles et des
 criailleries, entraver le progrès si fâcheux de l'instruction ? » Puis ils s'apercevraient que cette instruc109
 
 NO AA 2 cf Ni Net RARE CR Eu CNT TS ANT ONE MA ‘# À
-APM TT e PUNRE + EN RURT APSSRE TERNR (IAE CPAS ‘
-0e enseignement à Madagasc a. Fe A
-APP { k 714 PI TONER o—
 MX tion, qui leur déplaît, est donnée en très grande partie
 D par des écoles libres. Et du coup ils verraient le ME,
 Me: truc cherché. Des écoles libres ! IL n'en faut plus. Sous us f
 | prétexte de laïcisation, on les ferait fermer. Ensuite, ER
 DA on se garderait bien d'en mettre d'autres à leur place
 1 ou du moins d'en mettre en quantité suflisante, Letour
-40 serait joué. ; REA 4
 ps * Est-on sûr que c'est là un roman et que ce ne sera ‘4
 De, pas demain l'histoire de Madagascar ? Ce ne sera pas
 as l'histoire de Madagascar, si la France républicaine est . si
-“rie avertie. 5
-k ' À { JS
 2 1,112
-an ma f . 4
 NM ur sl (l
 
-XV
-
 Pour les écoles laïques
-5 août
 Il y à un malentendu qui, entre tous, me serait infi- :
 niment désagréable. C'est celui qui me ferait prendre
 pour un adversaire de l'enseignement laïque à Madagascar et ailleurs. Loin de l'attaquer, je prétends le
@@ -5575,11 +4769,8 @@ je désire que ces progrès soient réels, qu'ils consistent,
 non pas à détruire ce qui est, mais à construire quelque
 chose de positif et de bon. Mon dessein aujourd'hui est
 précisément de dire comment ils pourraient être très
-rapides.
 J'ai la conviction que, dans un temps très court, l'enk 107 \
 
-ü enseignement à Madagascar
-à
 be seignement ofliciel aurait, si on le voulait bien, une
 je prédominance incontestable. Si certaines conditions
 Li étaient réalisées, il ne rencontrerait bientôt, devant lui,
@@ -5599,7 +4790,6 @@ l ‘ que je le sais, et je le sais parce que je suis de ces
 désir : c'est de passer la plus grande partie de son
 f œuvre scolaire à l'administration de la colonie. Mais il
 ne le fera que le jour où il aura trouvé des garanties
-if suflisantes.
 I] lui en faut de deux sortes. La première, c'est que la
 conscience des familles malgaches soit absolument:
 | respectée; c'est que des maîtres d'instruction en
@@ -5612,15 +4802,9 @@ ce contrat n'est pas observé, à qui s'en prendre du
 mécontentement des pères et des mères? À qui s'en
 Lot prendre dans le cas où ceux-ci veulent des écoles libres ?
 Dans ce cas, les adversaires de l'enseignement laïque
-(6 108
-( *-
-al
-
-‘+ POUR LES ÉCOLES LAIQUES ;
 
 … sont ceux qui le comprennent d'une certaine manière.
 Cesont eux qui développent l'enseignement libre en le
-rendant nécessaire.
 
 Je sais bien que des instructions, en apparence fort
 sévères, sont données. Je sais bien que le principe
@@ -5645,7 +4829,6 @@ Sommes trop loin pour traiter avec précision de tous les
 détails. Mais il y a une certaine initiative qui met en
 jeu, d'une façon formelle, la responsabilité du gouvernement général. Qu'elle se prolonge, qu'elle soit imitée
 en divers lieux, et les conséquences en seront
-fâcheuses. à
 À Tananarive, on affecte d'organiser, dans certaines
 écoles officielles, à l'heure même des services religieux,
 des réunions pour les élèves. Sans aucun doute il ne
@@ -5655,9 +4838,7 @@ n'apprend pas les quatre règles et l'on ne récite pas une
 leçon de géographie. C'est parfaitement vrai. Mais le
 nom des exercices ne change rien à l'affaire. Alors
 qu'on dispose de toutes les heures que l'on veut, l''admi109
-‘ : VII
 
-1 enseignement à Madagascar Dee
 | nistration choisit, pour convoquer les enfants, le moment
 É précis où leurs familles les emmèneraient peut-être à la
 ' messe ou au prêche. L'intention est visible, et les
@@ -5686,12 +4867,8 @@ maitres? Leur annonce-t-on que, s'ils veulent assister à
 un office religieux plutôt qu'à une conférence à projections, personne n'aura rien à leur reprocher? D'abord,
 on ne leur donne aucune assurance de ce genre. Ensuite M
 ge : on fait bien de ne pas la leur donner, car personne ny
-Lu 110 L
-
-à POUR LES ÉCOLES LAIQUES
 
 - croirait. Qu'on ne parle donc pas ici du respect des
-consciences.
 
 Le général Gallieni, dans sa réponse, a exprimé une
 prétention qu'il faut souligner. Il a affirmé qu'il devait,
@@ -5726,10 +4903,6 @@ des enfants y est parfois compromise, comme je viens
 de l'indiquer, s'étonnerat-on que des familles la
 trouvent insuflisante et désirent conserver des écoles
 
-1II
-
-RAP TI Nr ER ER CR
-nu. enseignement à Madagascar
 (ESS _ privées en face de celles du gouvernement ? Il fa udrait
 FRA de la bonne volonté pour s'en étonner. Je m'interdis de
 | 11e ; re à , x FI EU RL AN
@@ -5740,14 +4913,8 @@ nn; réelle, veulent amener sur ses bancs tous les enfante
 + 100 d'une population ? Ne sont-ils pas les hommes qui, par
 MR zèle maladroit et mauvais, rendent inévitable le |
 RE. maintien des écoles libres ? +
-À CAEN #1 34
-f; SEE % 4:
-ie API
 
 | rs DONS OS LS Cd VE te : +
-XVI
-Éthiopianisme
-14 août
 
 Le Journal Officiel de Madagascar, dans son numéro
 du 18 juillet 1903, contient le récit suivant :
@@ -5769,7 +4936,6 @@ du Tranozozoro ont prononcé des allocutions pour
 remercier le gouverneur général d'avoir bien voulu
 présider à l'ouverture de leur école, lui promettant que
 
-enseignement à Madagascar are
 AU les leçons qu'y recevraient les enfants seraient con-
 , formes au récent programme d'instruction et l'assurant
 ! de leur attachement à la France. Dans sa réponse,
@@ -5778,7 +4944,6 @@ HE la colonie a félicité la secte de son initiative, engagé
 hi les indigènes à observer les prescriptions relatives à
 | l'enseignement et exprimé, enfin, sa conviction de voir
 les enfants devenir de bons et fidèles sujets de la
-France. » n -
 : Je n'aurais point parlé du Tranozosoro ni de la con4 k duite du gouvernement général à son égard, si l'inaufi guration de cette école de Tananarive ne m'y invitait
 en quelque sorte. Aussi bien y a-t-il peut-être là le |
 point de départ d'événements qui, à une date indéterminée, risqueront d'être graves dans l'histoire relij  gieuse et même politique de Madagascar.
@@ -5797,12 +4962,9 @@ de renoncer à sa situation sociale. Il groupe autour de
 est ouvert. La secte dite du Tranozozoro consiste en
 ce ramassis. Sa valeur spirituelle ne dépasse pas sa
 
-valeur numérique. S
-
 Il est clair que le gouvernement n'a pas à s'occuper
 l'E de ces démêlés. Ce qui lui importe, c'est que tous ces
 
-ES ÉTHIOPIANISME
 ; gens soient respectueux des autorités publiques et se
 … montrent de fidèles sujets de la France. Ce qui se passe
 dans l'intérieur des Églises, les querelles qui peuvent
@@ -5832,7 +4994,6 @@ paierait un jour fort cher.
 Il ne faut encourager aucun mouvement qui soit in-
 … spiré par l'idée de race. Le Tranozozoro n'est que trop
 accessible à cette idée. Quand il s'agit de juger les
-119 3 :
 
 | enseignement à Madagascar ;
 gens et d'apprécier leur conduite, il regarde plus àla
@@ -5877,7 +5038,6 @@ sciences nationales ont commencé de se former. Mais
 À les chefs de bureau qui provoquent les événements ne
 voient pas bien loin, en général; et les événements ne \
 leur demandent pas la permission de produire leurs
-conséquences.
 
 j Ce qui se passe dans l'Afrique australe devrait nous
 mettre en éveil. Là aussi, exactement dans les mêmes
@@ -5889,11 +5049,6 @@ on ne s'en est pas soucié. Puis, peu à peu, le mouvement est devenu ce que l'o
 
 | 116 ,
 
-j: |
-
-Ur
-5 ÉTHIOPIANISME
-+ 4
 æ spéciale aux questions religieuses et, finalement, ceux
 qui se préoccupent surtout des problèmes politiques. ;
 Dans une première période, les « Éthiopiens » se sont ;
@@ -5924,9 +5079,7 @@ C'était un sujetréservé aux personnes qui trouvent que
 vu par les faits la portée que ce mouvement risquait
 d'avoir, les journaux anglais ont été remplis d'articles
 sur ce sujet. Depuis deux mois, ils ont découvert
-117 VII.
 
-ri enseignement à Madagascar
 l'Éthiopianisme, — qui, pourtant, menait grand bruit
 À depuis 1896. — On annonce maintenant que l'Éthiopia-
 ù nisme, — qui a cette fois pour mot d'ordre : « l'Afrique
@@ -5946,125 +5099,29 @@ e à fonder quelque chose sur la haïne des races. à
 parler. Une administration qui tendrait sous main à le
 créer commettrait une faute impardonnable. Elle ferait
 une œuvre mauvaise, une œuvre antifrançaise. *
-SE >
-L
 |
 
-CTAREEEE SAR ee ré A SE PRE PE AN PUR VE Alta rRE
-Lu] PAS TASER ARE #A EE < Sr x NDS CURE
-x PEYRE “ u ; er
-ee we Ç
-ET ns k, F L 2
 Lans EAN CS e Le !
-"ÉS L ÿ £ +
-4° du Ce € + Ô
-‘4 k " LL AÈTRS D: 2 4
-CES 4 NS
-Ce: re + ;
-s PIE L C- Re,
-é SAGE PET ne” Le 5
-mer < _ ; : 3
-Fe : à £ z Si ie
-aa ‘1%
-_ ÈS pe ST 2
-es CL r s TR
-TL: ; 5
-LE NES z
-$ ; fe 1 NS rh “
-ne ; ; SA
-+ APR Re AE À Fe
-Age, à PS
-:1 200 « MT à.
-ee qe Ÿ ù NT
-FE cs + * < ve: A CO anse À
-Sr y 1 Fa) F He
-à, EE
 
 PMR ON ee RTS AUTEUR ter PES Fate
-SN SR A ER PE D a :
-1 ER À À PAR Les AE Se |
-(ae F4 TAN SAR RES + SA
-T'AS LISE PRES RER
-AE à F : RE EN ER Die 1
-AS à ; NE 5, ii < ARCS
-JTE ÿ ÿ INT a RC NEOAES ee RE) 5
-mo ve me Me 77 à LEE
-Lee MPRER PRE AS
-1e RENE - à 1 AN
-TS HAT à 21e
-LS | $ LAS]
-RERO TR ee
-FER ere 2%
-* SNS SLT se 4 kS
-HUE + EE
-1 CARTER : * Ne, F1 ATEN
-Re 4 Di ASS
 
 RES DT ag ET Le 7 tre DE SN M ANS
-. TARA TERRES ER NÉ De ER RER à: 4
-RETRACE TT EE Ne PS Ce Gore e PR EE CM RS
-. 4 SRE Ar ES ur ane : n rat ETS TEETE A6 ER
-NE. PIX D Éd SSTE +2 NAS
-x : [5
-pt! Mer à à : FOURS
-T3 FRERE à CR
-A Der 7, _ HIER
-4. VAL EN NZ 2 +, SÈC
-A É + CAES
-x RTS PA: M
-ne HER : 4 De 11530
-ED 7 À :! : SR
-11 ON AREENS = Nes -
-x ca + 3 2
-VERRE PR ; Te
-STARS ES LE ; - TEE
-q LASER = NE F, +3 en AN"
-A. 7 : io PETER
-Le CNRS + + : F RAS
 A Fou rs É Ta de De c: TRUE 1ECRe TERRES
-TOC ERP) PAR PU DIEU NA TRES
-ATARI | + ARRETE EN, CESSER
-FRITES EVE RL es APE 4] tte N 544 €; PT RTOPNSONNEESES
 NE Sr A ASE re : ZA SNS
 D ne Ve Pen Ne brin DENT RE FE
-SM EN EORIEE Rs rt FAR NT EE. EN EE
 
-TR HR ES HU a PTE LD MAG j
-RE CE 2 ler TE METTRE DURE VER EI DATI ESSOR F
 LPO 0e a LA FR AN ee PONS
-2 ARR UT UN TRES
-Dre ; 3 : LE LE TP TER UE LYS
-Ru raA tre £ : « SH QE SAUME he NS Ë
-I Lee Ti ee
-Da. ES ARCS
-D < ; HP DAS SEE 5
-D É RS
 | ER RENE 4 à À ‘ Re n  :
-PS Ve SÉRIE
 | TT Came : ER we:
-? LITRES É £ Se VERRE
 | k D à LEE
-ARS à TE
-ji LEP « Her à
-ANS N UE CFE
-) SNS ” »} QE ae 7 SE J
-‘} ait : à à 7 : > 10
 RE Sa fi RE
-: APE RUE he
-RL. s dE :00. ° TR 2m ei Y ANSE
 
 LP SR RQ. NE Es CR Ste ee
-agité = JU
 ÈS ANNEXES de
-\ RUE:
-k ù Le
 É Ce qu'il faut aux Malgaches 5
 “À Lettre de M. Groult, directeur de l'École normale de el
-_  Mahazoarivo (Mission protestante française). “24
 
 AT Mahazoarivo, le 30 juin 1904. (1) 7, AE
-
-TE
 
 k _ … Cest avant tout l'instruction professionnelle qu'il : Ÿ 220
 faut donner à ce peuple. FE.
@@ -6080,11 +5137,7 @@ _ les épreuves de ce monde et, en tout cas, de toutes les a
 _ fatigues qu'entraine le travail manuel. » 10
 _ Le tableau qu'il fait des jeunes nègres vaniteux est bien 18
 £ (1) La lettre est arrivée à Paris le 27 juillet. .
-4 CAT
-VS
-"HÈPE A be.
 
-l ; annexes RS 4
 il
 ie celui qu'il faudrait faire des jeunes déclassés malgaches : =
 1 À « J'ai vu de jeunes nègres, dont le revenu ne s'élevait pas à à
@@ -6123,18 +5176,11 @@ je Washington dut affronter pour être admis à l'école de
 } meubles et nettoya tous les coins et tous les placards. \
 
 Les succès qui ont couronné l'activité d'un tel homme ne l
-peuventplus nousétonner,etjetrouvequ'ilnousestprécieux, ?
 
 ; à nous autres missionnaires, de pouvoir consulter une telle
 : vie. Un homme sorti de l'esclavage est beaucoup plus que W.
 | nous en état de savoir ce qu'il faut à un peuple enfant aux 4
-+ 124 À
-Fa
-w .
 
-LAN ESS ÿ
-
-5 CE QUIL FAUT AUX MALGACHES
 s prises avec une civilisation qui le grise. Je conseille la lec-
 
 - ture de son livre aux missionnaires et à tous ceux qui s'ock cupent d'éducation aux colonies. Je les mets en garde contre
@@ -6159,7 +5205,6 @@ au sol? Ma conviction profonde était que ce qu'il fallait
 _ surtout à notre peuple, c'était d'obtenir un peu d'instruction, d'habileté industrielle et de propriété. Aujourd'hui
 encore, si quelqu'un va dans une ville des États du Sud et
 demande à voir le nègre notable de l'endroit, on lui indiquera un noir qui a appris un métier durant qu'il était
-esclave. »
 
 J'abandonne là mes citations d'un ouvrage que j'ai eu
 d'autant plus de plaisir à lire qu'il était comme l'écho de
@@ -6178,40 +5223,23 @@ récompense. Pour peu que cela dure, nous en arriverons à
 attendre du gouvernement nos jeux et notre pain. Mais ces
 restrictions étant faites, je ne puis qu'approuver la création
 
-125 :
-
-eh (TR “ #3 PEN NU CRE ES RTS
 |: SRE L'AOANNEXES "PIONEER
 (LENS des écoles régionales que notre administration coloniale ï
 IE place, de ci, de là, dans les centres les plus populeux des
-[E VAR à ro RUE ut,
 (TT l'ile, Ce n'est pas encore grand chose. Pourtant ilya là de ES
 il FS germes, et je suis assuré qu'ils se développeront. C'est R
 fl tie l'éducation qu'il faut à ce peuple. Elle est pour lui le che- …
 | min le plus sùr vers le relèvement et la dignité. On se
-a . es RE
 (|. TE moquera toujours du Malgache qui joue au dandy, s'affuble Fe
 hi DR. d'un lorgnon, de gants et d'une badine et qui laisse après
 1 CA lui une traînée d'odeur de muse. Mais on estimera l'ouvrien
 fi É ts dont on a besoin. Il faudra compter avec lui, traiter avee nn
 | AT lui de puissance à puissance. Celui-là aura le droit de garder
 m| Xe ses convictions, d'aller, si bon lui semble, au templeou à
-AL À ART : rer e css TER
 (5 00 l'église. Le premier sera méprisé et se traînera de platitudé
-1008 en platitude.… FE
-ill Te E. GrouLz F4
 à] TES Directeur de l'École normale de Mahazoarivo
-j ES (Mission protestante française) A TN
-PE. 2 Er Ve
-Ant Rs NS
-W “STAR Hr:
-ARS Sn
-i{ sh EL CF
 
 #9 ;
-L
-: II
-TRES L 4
 | Écoliers malgaches
 [Je rappelle que l'auteur des observations que l'on va
 lire avait été chargé par la Mission protestante fran_ çaïise de créer, sous le nom d'École Paul Minault, un
@@ -6231,9 +5259,6 @@ au-dessus de ses compatriotes, devenir un civilisé.
 Dans les plus pauvres écoles de campagne même, la patience et l'ardeur que les enfants mettent à apprendre à
 lire, compter et écrire m'a bien souvent frappé par le con127
 
-Lt Fr
-
-i annexes 4
 ï traste qu'elles faisaient avec le misérable enseignement Ë
 
 Di qu'ils y trouvaient. Dans nos écoles, dites supérieures, de
@@ -6301,9 +5326,6 @@ s'ingénier, et enfin il ne faut pas oublier que leur infério-
 sera pas fort long, une éducation bien dirigée réveillera
 
 1 128
-Î he w à
-
-= ÉCOLIERS MALGACHES
 
 4 . chez les générations nouvelles, placées désormais dans des
 
@@ -6347,13 +5369,11 @@ répéter patiemment les phrases du maître. La discipline
 est singulièrement facile; jamais, pour ainsi dire, le maître
 n'a à sévir pour obtenir l'ordre et le silence. L'enfant malgache a déjà ce respect du maître qu'il ne perdra guère
 plus tard. Son système nerveux est assurément moins sensible que celui de l'enfant européen, il n'a pas le même
-surcroît d'activité physique à dépenser. En récréation
 même, après les trop longues classes, le bruit ne manque
 certes pas, mais ce sont surtout les langues qui marchent,
 presque jamais de dispute ou de coups. Les cours trop
 exiguës, dont disposent en général les écoles de la ville,
 
-annexes SSSR
 ne ne leur permettent guère de jouer; mais là même où il en
 | est autrement, ils ne s'y mettent guère, à moins qu'on ne 4
 1e les y excite. F
@@ -6383,7 +5403,6 @@ moins considérable; il semblera qu'il y ait un résultat
 chez eux la faculté la plus prompte à fonctionner, la seule <
 qui soit toujours en éveil; si l'on n'y prend garde, on la ,
 verra empiéter sur le domaine des autres au point de les
-paralyser presque.
 | Ge sont là les tendances naturelles de l'écolier malgache.
 Far L'instituteur indigène dans la campagne est, sauf de très
 | rares exceptions, incapable de les combattre, parce qu'il
@@ -6391,12 +5410,9 @@ y obéit lui-même complètement. Dans les grandes écoles ;
 { de Tananarive elles-mêmes, peut-être ne s'en est-on pas
 ë assez défié autrefois. IL semble que les brillants résultats
 obtenus dès le début avec une facilité relative aient fait
-ALES 130 Te se
 # . F
 
 | Hi T RSS ETS e
-
-“4 na _ ÉCOLIERS MALGACHES
 
 4 illusion sur la valeur des méthodes employées, qui avaient
 
@@ -6431,8 +5447,6 @@ anciennes et, dans ces conditions, toute l'énergie et la
 bonne volonté du directeur, répandue sur une masse de
 300 élèves, a bien de la peine à modifier cet état de
 
-_ choses.
-
 Le but à atteindre n'en est pas moins certain. Il faut,
 malgré toutes les difficultés, et la plus grande est peut-être
 le manque de livres français ou de livres malgaches bien
@@ -6452,14 +5466,7 @@ notre œuvre une idée des expériences que j'ai déjà pu
 faire dans ce sens et des résultats obtenus. J'ai voulu
 seulement aujourd'hui faire toucher du doigt les difficultés
 
-< 131
-
-[à Ÿ ue SE es re sé ki si es
-(a annexes SRE IE
-in SFA
-‘ie Es
 $ spéciales auxquelles on se heurte dans l'enseignement des à
-Fa Malgaches. 4
 Aus L'extrême facilité de leur mémoire n'est pas la moindre. {
 K Autant il leur est difficile de s'assimiler réellement des +
 Fe connaissances et de s'en pénétrer, autant il leur est facile 4
@@ -6492,12 +5499,7 @@ he remarquables, et certainement supérieures à ce que la plu- i
 je part de mes lecteurs s'imaginent.
 | ANDRÉ CHAZEL 4
 | Ÿ Ancien élève de la Faculté des Lettres de Paris.
-É
-fi À :
-F F
 
-à
-III
 Arrêté organisant le service de l'enseignement
 des indigènes à Madagascar
 
@@ -6524,22 +5526,14 @@ Considérant, d'autre part, la nécessité de continuer à
 imposer aux écoles de l'enseignement privé l'obligation de :
 
 - ne pas appliquer d'autres programmes que ceux des écoles
-officielles ; !
 
 Vu les instructions ministérielles en date du 8 dé-
-cembre 1903 ;
 
-133 :
-VII
-
-à annexes STORE
 fi Sur la proposition du chef du service de l'enseignement;
 NS Le conseil d'administration entendu, 3
 | Arrête :
 { V ARTICLE PREMIER. — L'arrêté du 15 juin 1903 est abrogé et
 ul : remplacé par les dispositions suivantes :
-(] TITRE PREMIER
-12 Dispositions générales 3
 | jh
 k| 4 ARTICLE 2. — l'enseignement est donné à Madagascar
 fo dans les écoles officielles et les écoles privées.
@@ -6549,11 +5543,8 @@ Va Au point de vue de la direction pédagogique et de la
 | Circonscription scolaire du Centre :
 | Chef-lieu Tananarive ; <
 Circonscription scolaire du Sud :
-EE Chef-lieu Fianarantsoa ;
 ie Circonscription scblaire de l'Est :
-Eu Chef-lieu Mahanoro;
 | Circonscription scolaire du Nord-Ouest :
-Chef-lieu Analalava.
 ARTICLE 3. — L'instruction est obligatoire pour les enfants
 be de 8 à 13 ans dans les faritany où existe une école oflcielle,
 | Des arrêlés spéciaux, pris sur la proposition des chefs de
@@ -6567,19 +5558,14 @@ Un chef de province ; À
 F L'inspecteur des écoles ; e.
 Le directeur de l'école « Le-Myre-de-Vilers » ; 4
 PE Le sous-directeur de l'école professionnelle ; 02
-É 13% 4
 
-% L'ARRÊTÉ OFFICIEL
 Le directeur de l'école d'agriculture ;
 È Deux membres de la chambre consultative de TananaM rive.
 | ARTICLE 5. — Le conseil de l'enseignement a pour attri-
 : butions d'étudier les questions d'organisation et de
 programmes et de donner une direction unique à l'enseignement à Madagascar. FR
 | 11 se réunira sur la convecation de son président.
-“ TITRE II
 De l'enseignement officiel
-CHAPITRE PREMIER
-DES ÉTABLISSEMENTS D'ENSEIGNEMENT OFFICIEL
 ARTICLE 6. — L'enseignement officiel à Madagascar est
 donné dans les écoles supérieures, les écoles régionales
 | d'apprentissage et les écoles primaires rurales.
@@ -6594,40 +5580,16 @@ publics de la Colonie des collaborateurs et agents instruits
 et exercés, de l'autre, fournir aux élèves les moyens d'ap-
 -. prendre un métier destiné à leur assurer des moyens
 d'existence et à augmenter ainsi leur bien-être matériel.
-CHAPITRE II ;
-DE LA NEUTRALITÉ RELIGIEUSE :
 ARTICLE 7. — La neutralité religieuse la plus absolue est
 ; observée dans les écoles officielles, dont l'accès est laissé
 - libre à tous les enfants et jeunes gens, à quelque religion
 qu'ils appartiennent.
 
-LL: Dr 5 LRO ENS R EN IST
-
-ll sise AAA
-
-1 annexes À
-
-1h
-
 fe Le temps nécessaire sera laissé aux élèves pour pratiquer,
 
 (il en dehors de l'école, la religion qu'ils ont choisie.
 
-Il
-
-fs
-
-p CHAPITRE II
-
-?
-
-[is DES ÉCOLES FORMANT LE DEGRÉ SUPÉRIEUR \
-
-je ”
-
 je DE L'ENSEIGNEMENT
-
-ie 7 ” g
 
 pr ARTICLE 8. — Les écoles supérieures sont :
 
@@ -6647,8 +5609,6 @@ AE Tananarive conformément aux dispositions de l'arrêté en
 
 116 date du 30 décembre 1897. Elle relève du directeur des
 
-te travaux publics.
-
 | Ft ARTICLE 10. — L'école d'agriculture reste organisée à
 
 : Fe Tananarive conformément aux dispositions de l'arrêté en
@@ -6667,20 +5627,14 @@ Hs actuellement en vigueur. Elle relève du directeur du service
 
 ‘il de santé.
 
-Le
-
 1 ARTICLE 12. — Les écoles administratives et commerciales
 
 | 2 de Tananarive, Mahanoro et Analalava, restent organisées
 conformément aux dispositions de l'arrêté du 5 juillet 1903.
 
-l CHAPITRE IV
-
 |
 
 | ÉCOLES RÉGIONALES
-
-] .
 
 dE ARTICLE 13. — Il pourra être fondé dans chaque province
 
@@ -6690,19 +5644,11 @@ ou cercle, pour former des cultivateurs et des ouvriers
 
 | KR 136
 
-AU 2
-
-[Pe
-
-TRES , A7
-; L'ARRÊTÉ OFFICIEL
 as industriel et agricole », qui pourra être, d'après les instruc3 tions du Gouverneur Général, soumise aux inspections du
 | chef de la province ou du cercle et du fonctionnement de
 É laquelle celui-ci rendra compte dans ses rapports pério-
-; diques.
 ARTICLE 14. — Les écoles régionales d'apprentissage
 comprennent deux sections : une section industrielle, une
-É seetion agricole. /
 ARTICLE 15. — Sur la proposition des chefs de province
 ; intéressés, transmise au chef du service de l'enseignement,
 il pourra être annexé aux écoles régionales une section
@@ -6716,7 +5662,6 @@ Sous ses ordres seront placés deux chefs-contremaîtres
 français ou, à défaut, indigènes, spécialement choisis en
 raison de leurs capacités, dont l'un sera chargé de la section industrielle et l'autre de la section agricale; ces deux
 chefs-contremaîtres seront assistés de un ou plusieurs
-N contremaitres indigènes.
 ARTICLE 17. — Les cours théoriques et d'enseignement
 | général seront professés par le directeur de l'école, assisté, s'il y a lieu, d'un ou plusieurs professeurs assistants.
 
@@ -6733,13 +5678,9 @@ aménagement intérieur et extérieur, l'hygiène de l'établissement; il soumet
 ; les programmes détaillés d'enseignement professionnel,
 
 | visés par l'article 27 ci-après, qui doivent toujours être
-137 VIL.
-
-:
 
 let) ua ES | is SMS EST NO TEEN RER ch
 pal 3 A PAR Rp NRA re
-annexes RAS » . : . A : : à
 établis en tenant compte de la situation économique parti: .
 culière de la région. j
 ARTICLE 19. — La durée des études dans chacune des sec-
@@ -6791,10 +5732,6 @@ gagement qu'il a souscrit, est tenu de restituer :
 f culés à raison de 10 francs par mois; F
 134 2
 
-PE PU En 77 v Gt
-4 Rire à
-ARE PRES *
-22484 L'ARRÊTÉ OFFICIEL
 2 Le montant des allocations dont il aura pu jouir en
 qualité de boursier.
 
@@ -6806,7 +5743,6 @@ ARTICLE 27. — Les programmes détaillés d'enseignement
 pratique des écoles régionales, établis d'après les programmes généraux annexés au présent arrêté, sont pré-
 parés comme il a été dit à l'article 18 ci-dessus et présentés
 par le chef du service de l'enseignement à l'approbation du
-gouverneur général.
 
 ARTICLE 28. — La sanction des études de l'école régionale
 consiste en un diplôme délivré par le chef du service de
@@ -6819,7 +5755,6 @@ dans les conditions déterminées par les articles ci-après.
 
 . ARTICLE 30: — Les dispositions des articles 19 et 20 inclus
 sont applicables à l'école normale de la circonscription
-scolaire centrale.
 
 ARTICLE 31. — Les élèves des écoles régionales et de
 l'école normale de la circonscription scolaire centrale sont
@@ -6829,41 +5764,24 @@ Les plus méritants et les plus nécessiteux d'entre eux,
 âgés de plus de seize ans, pourront recevoir des allocations
 annuelles, dont le taux est fixé comme suit :
 
-MAnanarve- Ville 4. EEE Eu 22 V9 francs
-
-Circonscription scolaire centrale , . . . . . 10 —
-
-Provinces
 | RAR Van een + noie inst Pe TO DARCE
 4 PROPRES HU Le) RON PUS fit Crop
 RATES OA. 22e On es + nl D4
 
-LEE Andovoranto #02. 12 RSMENENEREREES M &
 4 Vatomandry-Mahanoro: ©7202 NE
-} 2 % : ESP
-Tamatave.. "2421. 400 ONE
 LAON F'enerives 47 02e et AT NOIR RUE +.
-i 5 Farafangana, 1.2. 0 RES BE
 |}. 5 n AE
-HR. |: Districts Es
 | LS Marolambo:: 1.11 2150 NN NSTE TA x
-: 4 à
 | 542 Béforona: 4. 22061.) NRA O EE ne
-RE”. Fetraomby!. 1/0, SUN PSN RME 544
 IS ARTICLE 32. — Les professeurs assistants des écoles régio- 2
 LC nales sont répartis en cinq classes, dont le traitement 4
-Let A . ! . . $
 re + mensuel est fixé ainsi qu'il suit : À à
-KT biclasses 15.51, SAR IR OMR RENE DAC) Cl
-IC Fe PR Re RE IDE 3
 1:30 Len de des MN UE LE CM ER NOIRS 55
 ARE Les professeurs assistants originaires de l'Imérina ou du É
 A Betsiléo, en service dans les régions excentriques, pourront
 | (tE recevoir un supplément de traitement de 15 à 30 francs
 54 par mois, variable suivant les circonstances et les localités.
 LE Le montant de ce supplément sera fixé par arrêté pour les Fe
-g 138 diverses provinces. 4
-10 Lu
 PE ARTICLE 33. — Les professeurs assistants sont choisis par h
 Le voie de concours. 54
 Pi Sont admis à concourir : Hg È
@@ -6871,19 +5789,13 @@ REA. Les instituteurs officiels pourvus du certificat d'aptitude
 HA à l'enseignement, ayant au moins trois années d'exercice
 LS et agréés par le chef du service de l'enseignement. x.
 | ER Le concours pour l'emploi de professeur assistant comLT ES prend des épreuves écrites, des épreuves pratiques et des
-ETS — ”
-Lis épreuves orales. “
-ra % RAC 1
 Je Epreuves écrites Fe
 h Fa Une dictée d'un texte français ; a.
 | FAO) Un thème; Es
 
-Di, PRES RE s
-L'ARRÊTÉ OFFICIEL
 Une version;
 Une composition française;
 Deux problèmes d'arithmétique et de système métrique.
-Épreuves pratiques
 
 Croquis à main levée d'un objet;
 
@@ -6894,14 +5806,10 @@ Interrogations sur l'agriculture;
 Une séance de classe dans une école officielle du chef-lieu
 de la province.
 
-Épreuves orales
-
 Interrogations sur la langue française, la langue malgache, l'arithmétique, le système métrique, l'histoire et la
-géographie.
 
 ARTICLE 34. — L'avancement a lieu exclusivement au
 choix, après deux ans au moins passés dans la classe
-immédiatement inférieure.
 
 ARTICLE 35. — Les professeurs assistants débutent tous à
 la 5° classe.
@@ -6915,12 +5823,8 @@ officiels avec leur ancien emploi, en ajoutant, toutefois, à
 leur ancienneté, le temps passé dans le cadre des professeurs assistants. Si cette ancienneté le permet, ils peuvent
 être nommés à la classe supérieure.
 
-CHAPITRE V
-ÉCOLES PROFESSIONNELLES DE JEUNES FILLES
-
 ARTICLE 38. — Une école professionnelle de jeunes filles
 est créée dans chacune des localités où existe une école
-régionale.
 
 ARTICLE 39. — La durée des études est de deux ans.
 
@@ -6934,7 +5838,6 @@ l je être allouées par demi-bourses et dont le nombre est fixé
 (fre tantes et les plus nécessiteuses des écoles. ;
 fe ARTICLE 42. — Le but de l'école professionnelle est de
 : mettre les élèves qui la fréquentent en possession d'un
-( métier.
 PE Les cours pratiques ont pour but : le blanchissage et
 l'entretien du linge, la couture, la cuisine, la sériciculture,
 r la confection des dentelles, les travaux sur étoffes de soie,
@@ -6942,8 +5845,6 @@ le tissage, la sparterie.
 ' ARTICLE 43. — Des assistantes indigènes pourront être
 . attachées aux écoles professionnelles de jeunes filles; elles
 , recevront un traitement mensuel de 20 francs.
-ÿ CHAPITRE VI
-: ÉCOLES PRIMAIRES RURALES
 ne ARTICLE 44. — Les écoles primaires rurales sont créées
 par arrêté du Gouverneur Général, sur la proposition du
 | chef de la province et du chef du service de l'enseignement.
@@ -6956,10 +5857,7 @@ service de l'enseignement.
 La langue malgache; ;
 s La langue française;
 £ La lecture et l'écriture; |
-Wire 142
-ÿ à
 
-L'ARRÊTÉ OFFICIEL
 | Le caleul et le système métrique ;
 
 L'histoire élémentaire de la France envisagée surtout dans
@@ -6982,11 +5880,6 @@ pour l'enseignement de l'agriculture.
 ARTICLE 48. — Toutes les fois que cela sera possible, il
 sera annexé aux écoles primaires un atelier, où les élèves
 commenceront l'apprentissage d'un métier (menuiserie,
-forge, industrie spéciale à Madagascar).
-
-CHAPITRE VII 4
-DU PERSONNEL ENSEIGNANT DES ÉCOLES PRIMAIRES.
-TITRES DE CAPACITÉ
 
 ARTICLE 49. — Les instituteurs officiels sont choisis parmi
 les élèves des cours normaux officiels.
@@ -7000,8 +5893,6 @@ obtenu dans les conditions ci-après indiquées.
 
 ARTICLE 52. — L'examen du certificat d'aptitude à l'enseignement dans les écoles primaires de Madagascar com-
 
-ï porte : :
-
 1° Des épreuves écrites éliminatoires ;
 
 2° Des épreuves d'enseignement pratique éliminatoires ;
@@ -7010,31 +5901,19 @@ ARTICLE 52. — L'examen du certificat d'aptitude à l'enseignement dans les éc
 
 | Ets F < PAR D Ua (Patte CORTE n
 
-IH ; PET RU ER TU TPS ER w 4
-AURES: annexes RE ti
 (Es #0 ARTICLE 53. — Les épreuves écrites comprennent : REA
-1110 ES FAR
 
 Hu ‘# 1° Une dictée d'un texte français simple; #1
-RME "as : 242 : F ;
 f 1 à 2° Une composition française élémentaire;
 Bee 3° Une composition malgache, dont le sujet pourra porter
-l'NEES J
 
 | ie sur une-question de pédagogie; G £
 
 MIT ÉER * Un thème;
 
-1h) Fa :
-
 {pas ie 5 Une version.
 
-He ;
-
-ANAL, fé : à : £
-
 | \17NCRS ARTICLE 54. — Les épreuves d'enseignement pratique !
-1116108 comprennent : Li
 1 D : 1° Une leçon sur une des matières du programme, faite
 FLE à l'école annexe de la section normale ou dans toute autre
 HIER école de la localité désignée à cet effet;
@@ -7042,10 +5921,7 @@ et 2 L'exécution d'un travail simple, bois ou fer, à l'atelier
 Rés de l'école normale ou de l'école régionale;
 AE 3° L'exécution d'un croquis coté;
 11111 ‘* Des interrogations sur l'agriculture. ;
-pl { D 5
-Ep 1 @TReS
 
-IQ" ;
 La it ARTICLE 55. — Les épreuves orales comprennent : Ë
 fe 1 1° La lecture d'une page de texte français avec traduction
 |. 11 et explication en malgache;
@@ -7053,37 +5929,21 @@ fe 1 1° La lecture d'une page de texte français avec traduction
 {f ML duction en français et explication en malgache;
 Ha fs 3° Une conversation en français;
 HAE 4° Des interrogations sur les matières du programme
-[LL A . . : 24: Es s . :
 Le je k des écoles primaires (arithmétique, système métrique, his-
-( i toire, géographie).
-LA 1 « 5
 jé 18 + ARTICLE 56.— L'examen aura lieu au siège de chaque cours
 
-l = 2 # #
 fs er normal, à une date fixée par le Gouverneur Général, sur
 Li le la proposition du chef du service de l'enseignement. Il sera
 (PERS ublie. Tout candidat à cet examen devra avoir dix-sept ans
-tite p P
 il x au moins au premier octobre de l'année dans laquelle
 si IS il se présente. Des dispenses d'âge, dont les demandes
 | seront transmises et annotées par le chef de la province,
 AE pourront être accordées par le Gouverneur Général, sur la
-LR APE . .
 FILE proposition du chef du service de l'enseignement.
 EH Le diplôme ne sera délivré aux élèves reçus à l'examen
 
-F D de = . . . . : .. à
 î jl 4 qu'après dix-huit mois au moins d'exercice dans une école.
-U'e18
 
-LES
-
-Ro
-
-t4 144 <
-{LE “HO
-
-1 CRM EN 2 Â }
 fl L'ARRÊTÉ OFFICIEL
 
 ! A Tananarive, la commission comprendra :
@@ -7094,7 +5954,6 @@ Un fonctionnaire de l'administration centrale désigné
 par le Secrétaire Général;
 
 Le directeur de l'école administrativé et commerciale de
-Tananarive;
 
 Le sous-directeur de l'école professionnelle de Tananarive ;
 
@@ -7108,16 +5967,8 @@ agent du service technique de l'agriculture, ou, à défaut
 de ces derniers, deux fonctionnaires ou colons désignés en
 raison de leurs aptitudes par le chef de la province. } |
 
-CHAPITRE VII
-TRAITEMENT ET AVANTAGES ACCORDÉS AUX INSTITUTEURS
-OFFICIELS
-
 ARTICLE 58. — Les instituteurs officiels sont répartis en
 cinq classes dont le traitement est fixé ainsi qu'il suit :
-
-ARCS SOS LOC RO TETE TER A AE Dr EN SG francs
-
-RE RS ES TOME ML ER a API EAU NA
 
 SL ET RUe RRNE OR ORNE EAN PE RC AT at te PE ;
 
@@ -7129,10 +5980,7 @@ une rizière est mis à leur disposition. Ils ont l'obligation
 d'utiliser ce terrain pour l'enseignement pratique agricole
 de leurs élèves.
 
-IX
-
 LE HE annexes
-1h
 {l 14 AnrTicLe 60. — Les contremaîtres employés dans les écoles
 Le officielles reçoivent un salaire mensuel de 45 francs et
 js jouissent des mêmes avantages que les instituteurs officiels,
@@ -7171,10 +6019,6 @@ ciels sont passibles des peines disciplinaires suivantes :
 3 La rétrogradation;
 
 4° La révocation.
-d 146
-OT ?!
-
-L'ARRÊTÉ OFFICIEL
 
 ARTICLE 67. — La réprimande est prononcée par le chef
 du service de l'enseignement ou par le chef de la province.
@@ -7184,7 +6028,6 @@ sur la proposition du chef du service de l'enseignement et
 l'avis du chef de la province; la suspension par mesure
 disciplinaire entraîne la privation de solde, mais non la
 cessation des fonctions. Elle ne pourra être supérieure à
-trois mois.
 
 La rétrogradation et la révocation sont prononcées par le
 Gouverneur Général, sur la proposition du chef du service
@@ -7197,20 +6040,14 @@ temps minimum exigé pour être élevé à la classe supé-
 rieure, sans qu'il puisse être tenu compte du temps qu'il y !
 avait antérieurement passé.
 
-CHAPITRE IX .
-DES INSPECTEURS INDIGÈNES
-
 ARTICLE 68.— Il est créé un cadre d'inspecteurs indigènes
 recrutés par voie de concours.
 
 Sont admis à concourir : les instituteurs officiels ayant
 5 années d'exercice et les professeurs assistants ayant
-3 années d'exercice.
 
 ARTICLE 69. — Le concours pour l'emploi d'inspecteur
 indigène comprend des épreuves écrites, des épreuves pratiques et des épreuves orales.
-
-Épreuves écrites
 
 Une dictée d'un texte français;
 
@@ -7224,17 +6061,13 @@ Une composition française;
 
 Deux problèmes d'arithmétique et de système métrique.
 
-Au FLAN LEE dl us ANT NIFATS OM dau Has AAA TE
 | RTE Le RTE î ie 14 PU nexes AE Wr4 # di Meur,
-ll (NAN FA in! - an { Ut see NT s (A
 il DE Free 5 ; ne
 |A TA À ERA objet; échelle donn ANA
 |E NS in levée d'un à une éc FA Ro
 [NRA f ( uis à mai 'un croquis x : 5 (
-ln 1 ire Croq é au net d js riculture ; école officielle; AA?
 l Ke : Relevé au sur l'ag une éco CRE
 it ENS Interrogation classe dans î QUE
-f. ui séance Lee e classe, Hu
 11 TAN Une tion d'un les alci a
 j ‘Hu L'inspec ipreuves orale , la langue Bt Eu
 L L LE M e française, l'histoire et j
@@ -7244,53 +6077,35 @@ l ER \ la étriq À
 { 1 ions sur stème m
 ie ol Jap A RTE e, le sy épartis en
 l “I jte l'arithmétiqu s sont répa insi
-AU LE bene é a: 8
-US 4h gache, ï indigèn t fixé 4
 fe Le A { k hie. urs el es |
 fe | PALIN geograp Les eu pense { rl
 ik vi) ui fé ARTICLE 70. Faq le traite Frs is
 ji ‘1 lasses, 5 francs (un
 1e MN cinq cla Une) (ps
-:. ‘An Re A Le
 le AU | 5° classe . . NUE ASIE 105 ru ÿ
 | toi aus RARE HAS UE 115 nue À
-1 25 CAC QUE = fn + or
 l, | {uns EE M HT ERS 125 du
 ‘1 nl nue érinaet du |
 FUIT ALES . Que a js
 sl 10 } A Aa Are Ï de l'Imérin: Al ji
-1 rar BEL nJ es ourr. Ca
 A0 LE originair triques pote ns
 fi 18 s indigènes égions excen les condition: V4
 EU MA k eur s ré ans WA
-5: NA iléo, en ément sus. és dan: F0
-h AUS 1 ae cu da 32 ci-dessus. isènes recrutés A DTA A
 A fau cevo 'artic indigè | tous 5
 li ÉRTSE par l inspecteurs débutent LUE
 Ê. dt qu indiq M pi officiels des ‘ii
 (FU ni ù { ARTICLE Ve instituteur. dans le M us 708
 
-TR ‘ N K
 | D TÉMCoUre Do Là à laqu Ï
 1 HAE 5* classe. cteurs indig ébuient à la èsdeux
 NE Les inspe ssistants “ nier cadre. choix, A infé- Ne
 
-VANNES rs a er t au s en \ da
-
 NPA fesseu. ns ce ivemen édiatem “104
-ci 4 ro t da lusiv immé: y
-LH ONAR Pp iennen ieu exc e im 12
 RTE artien t a lieu la class
 ” 24 ii | avancemen passés dans les 64, 65 et si a
 117 ! FI PR D itions des à ae
-ASE ; { sal AUX 1. ÿ
 de 0 rieure. Les Pace gi +
 185 HP ARTICLE RE sont app h
 1 ‘9 du présent a :l
-: M fl RES 14 \ Le "1
-À M A0)
 
-LEE
 JE \ de nt. L
-
-LAN TAN E

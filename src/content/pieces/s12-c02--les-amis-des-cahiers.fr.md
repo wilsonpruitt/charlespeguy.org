@@ -7,7 +7,6 @@ author: paul-milliet
 isAvertissement: false
 wordCount: 28
 ---
-
 # XII-2: Les Milliet. III. "Les amis des cahiers".
 # Series: 12, Issue: 2
 # Source: https://archive.org/stream/s12cahiersdelaqui01pg#page/n276/mode/1up

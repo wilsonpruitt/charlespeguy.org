@@ -1,0 +1,287 @@
+cahier,piece,title,listed_author,fr_prose,fr_ratio,en_prose,en_ratio,flags
+s01-c01,lettre-du-provincial,Lettre du Provincial,charles-peguy,465,0.92,40,0.83,
+s01-c01,reponse-au-provincial,Réponse au Provincial,charles-peguy,289,0.93,0,0.00,EMPTY_EN
+s01-c01,le-triomphe-de-la-republique,"le ""triomphe de la République""",charles-peguy,391,0.92,49,0.91,
+s01-c01,l-affaire-liebknecht,L'affaire Liebknecht,charles-peguy,2511,0.90,85,0.92,
+s01-c02,du-second-provincial-reponse-provisoire-la-preparation-du-congres-socialiste-national,Du second Provincial. Réponse provisoire. La préparation du congrès socialiste national,charles-peguy,3622,0.89,66,0.82,COM_PLACEHOLDER
+s01-c03,pour-ou-contre-le-socialisme-la-preparation-du-congres-socialiste-national,Pour ou contre le socialisme. La préparation du congrès socialiste national,charles-peguy,3588,0.90,130,0.73,COM_PLACEHOLDER
+s01-c04,de-la-grippe,De la grippe,charles-peguy,34,0.92,25,0.96,
+s01-c05,la-consultation-internationale-ouverte-a-la-petite-republique-sur-l-affaire-dreyfus-et-le-cas-millerand,La Consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand,charles-peguy,2180,0.87,434,0.77,COM_PLACEHOLDER
+s01-c06,de-la-grippe,De la grippe,charles-peguy,1183,0.92,236,0.86,COM_PLACEHOLDER
+s01-c06,la-meme-consultation-internationale,La même consultation internationale,charles-peguy,749,0.89,0,0.00,COM_PLACEHOLDER|EMPTY_EN
+s01-c07,annonce-au-provincial-toujours-de-la-grippe,"Annonce au Provincial, Toujours de la grippe",charles-peguy,1361,0.90,200,0.85,
+s01-c07,la-lumiere,La lumière,jerome-et-jean-tharaud,388,0.83,0,0.00,EMPTY_EN
+s01-c08,premiere-annonce-deuxieme-annonce-la-meme-consultation-internationale,"Première annonce, deuxième annonce. La même Consultation internationale",charles-peguy,1118,0.85,83,0.89,
+s01-c08,la-lumiere,La lumière,jerome-et-jean-tharaud,510,0.82,208,0.81,
+s01-c09,entre-deux-trains,Entre deux trains,charles-peguy,1153,0.84,73,0.83,
+s01-c09,le-socialisme-et-les-intellectuels,Le Socialisme et les intellectuels,paul-lafargue,1969,0.86,90,0.75,
+s01-c10,communications-les-petits-teigneux,Communications. Les Petits Teigneux,charles-peguy,1231,0.83,35,0.47,LOW_PROSE_EN
+s01-c10,socialisme-et-collectivisme,Socialisme et collectivisme,emile-vandervelde,876,0.84,23,0.77,
+s01-c11,reponse-breve-a-jaures,Réponse brève à Jaurès,charles-peguy,1687,0.87,95,0.97,
+s01-c11,le-socialisme-et-les-intellectuels,Le Socialisme et les intellectuels,charles-peguy,944,0.82,0,0.00,EMPTY_EN
+s01-c12,deuxieme-serie-au-provincial,Deuxième série au Provincial,charles-peguy,370,0.90,39,0.93,
+s01-c12,administration,Administration,charles-peguy,78,0.89,6,0.75,
+s01-c12,nouvelles-communications,Nouvelles communications,charles-peguy,1556,0.84,224,0.78,
+s02-c01,ajournement,Ajournement,charles-peguy,108,0.91,13,0.68,
+s02-c01,nouvelles-communications,Nouvelles communications,charles-peguy,604,0.88,64,0.49,LOW_PROSE_EN
+s02-c01,nos-annonces,nos annonces,charles-peguy,1274,0.84,0,0.00,EMPTY_EN
+s02-c02,vers-l-action,Vers l'action,rene-salome,2037,0.85,252,0.74,
+s02-c03,pour-ma-maison,Pour ma maison,charles-peguy,184,0.87,74,0.89,
+s02-c03,administration,Administration,charles-peguy,1036,0.89,57,0.79,
+s02-c03,le-theatre-social,Le théâtre social,jean-jaures,498,0.91,59,0.82,
+s02-c04,les-intellectuels-devant-le-socialisme,Les Intellectuels devant le socialisme,hubert-lagardelle,1159,0.89,107,0.94,
+s02-c04,l-amnistie-et-les-socialistes,L'amnistie et les socialistes,hubert-lagardelle,216,0.80,23,0.85,
+s02-c05,pour-moi,Pour moi,charles-peguy,1283,0.89,57,0.76,
+s02-c05,contribution-aux-preuves,Contribution aux Preuves,charles-peguy,310,0.87,57,0.75,
+s02-c05,courrier-de-chine,Courrier de Chine,lionel-landry,297,0.83,67,0.83,
+s02-c06,danton-trois-actes,"Danton, trois actes",romain-rolland,1277,0.61,987,0.50,
+s02-c07,administration,Administration,charles-peguy,0,0.00,1,0.33,EMPTY_FR|LOW_PROSE_EN
+s02-c07,casse-cou,Casse-cou,charles-peguy,1311,0.93,131,0.94,
+s02-c07,librairie-des-cahiers,librairie des cahiers,charles-peguy,341,0.82,4,0.67,
+s02-c07,pour-et-contre-diderot,Pour et contre Diderot,charles-peguy,240,0.85,50,0.88,
+s02-c08,bacchus-trois-actes,"Bacchus, trois actes",lionel-landry,1450,0.64,901,0.53,
+s02-c09,proces-verbaux,Procès-verbaux,charles-peguy,315,0.86,39,0.80,
+s02-c09,intellectuels-et-socialisme,Intellectuels et socialisme,paul-mantoux-charles-guieysse,663,0.87,96,0.92,
+s02-c09,quatre-jours-a-montceau,Quatre jours à Montceau,andre-bourgeois,797,0.89,97,0.95,
+s02-c10,cahier-d-annonces,Cahier d'annonces,charles-peguy,1526,0.75,129,0.81,COM_PLACEHOLDER
+s02-c11,compte-rendu-de-mandat,Compte rendu de mandat,charles-peguy,256,0.91,200,0.84,
+s02-c12,jean-coste-ou-l-instituteur-de-village,Jean Coste ou l'instituteur de village,antonin-lavergne,5845,0.90,1098,0.91,
+s02-c13,librairie-des-cahiers,Librairie des cahiers,charles-peguy,458,0.79,90,0.80,
+s02-c13,quelques-mots-sur-proudhon,Quelques mots sur Proudhon,georges-sorel,1152,0.89,37,0.76,
+s02-c14,expulsion-de-nicolas-paouli,Expulsion de Nicolas Paouli,charles-peguy,249,0.88,48,0.74,
+s02-c14,boecklin-chez-les-francais,Boecklin chez les Français,leon-deshairs,214,0.90,15,0.88,
+s02-c14,congres-de-lyon,Congrès de Lyon,louise-levi,1263,0.88,177,0.92,
+s02-c14,courrier-de-chine,Courrier de Chine,lionel-landry,0,0.00,2,0.67,EMPTY_FR
+s02-c15,memoires-et-dossiers-pour-les-libertes-du-personnel-enseignant-en-france,Mémoires et dossiers pour les libertés du personnel enseignant en France,charles-peguy,1913,0.85,441,0.81,COM_PLACEHOLDER
+s02-c16,congres-socialiste-international-paris-1900,Congrès socialiste international Paris 1900,charles-peguy,6018,0.89,1005,0.92,COM_PLACEHOLDER
+s03-c01,compte-rendu-de-congres,Compte rendu de congrès,charles-peguy,292,0.92,217,0.94,
+s03-c02,vraiment-vrai,Vraiment vrai,charles-peguy,66,0.80,19,0.83,
+s03-c02,les-universites-populaires,Les Universités Populaires,charles-guieysse,0,0.00,206,0.97,EMPTY_FR
+s03-c03,de-l-eglise-et-de-l-etat-fragments,"De l'Église et de l'État, fragments",georges-sorel,1841,0.86,159,0.90,
+s03-c04,de-la-raison,De la raison,charles-peguy,7730,0.79,679,0.92,
+s03-c04,etudes-socialistes,Études Socialistes,jean-jaures,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s03-c05,juifs,Juifs,georges-delahache,1691,0.85,169,0.88,
+s03-c06,la-greve-trois-actes,"La Grève, trois actes",jean-hugues,1475,0.73,508,0.69,
+s03-c07,m-gustave-tery,M. Gustave Téry,charles-peguy,1798,0.86,323,0.86,
+s03-c08,les-juifs-en-roumanie,Les Juifs en Roumanie,bernard-lazare,2711,0.80,214,0.95,
+s03-c09,une-lettre-inedite-a-romain-rolland,Une lettre inédite à Romain Rolland,leon-tolstoi,694,0.70,90,0.89,AUTHOR_MISMATCH(leon-tolstoi→romain-rolland)
+s03-c10,les-universites-populaires-1900-1901-paris-et-banlieue,"Les Universités Populaires 1900-1901, Paris et banlieue",charles-guieysse,1339,0.80,218,0.73,
+s03-c11,le-14-juillet-action-populaire-trois-actes,"Le 14 Juillet, action populaire, trois actes",romain-rolland,3815,0.59,1090,0.79,
+s03-c12,monographies-personnalites,Monographies. Personnalités,charles-peguy,1766,0.89,125,0.82,
+s03-c13,dingley-l-illustre-ecrivain,"Dingley, l'illustre écrivain",jerome-et-jean-tharaud,1499,0.86,326,0.83,
+s03-c14,socialismes-nationaux,Socialismes nationaux,georges-sorel,1713,0.88,61,0.81,
+s03-c15,cahiers-de-la-quinzaine,Cahiers de la Quinzaine,anatole-france,894,0.79,85,0.78,
+s03-c16,les-elections,Les élections,charles-peguy,1752,0.89,32,0.84,
+s03-c17,cahier-de-courriers,Cahier de courriers,felicien-challaye,1587,0.90,37,0.71,
+s03-c18,personnalites-monographies,Personnalités. Monographies,charles-peguy,1684,0.82,65,0.68,
+s03-c19,pour-l-armenie,Pour l'Arménie,pierre-quillard,3699,0.76,184,0.91,
+s03-c20,les-universites-populaires-1900-1901-departements,"Les Universités Populaires 1900-1901, Départements",charles-guieysse,3803,0.84,102,0.76,
+s03-c21,pour-la-finlande,Pour la Finlande,jean-deck,5373,0.77,148,0.88,
+s04-c01,l-affaire-crainquebille-edition-complete,"L'affaire Crainquebille, édition complète",anatole-france,1257,0.63,225,0.80,
+s04-c02,l-aube-fraternelle,L'aube fraternelle,emile-moselly,2044,0.80,109,0.90,
+s04-c03,de-jean-coste,De Jean Coste,charles-peguy,1862,0.86,40,0.73,
+s04-c04,la-medaille,La médaille,antonin-lavergne,2593,0.78,78,0.87,
+s04-c05,textes-et-commentaires-emile-zola,Textes et commentaires. Emile Zola,charles-peguy,3239,0.78,39,0.72,
+s04-c06,inventaire-des-cahiers,Inventaire des Cahiers,charles-peguy,1200,0.65,92,0.65,
+s04-c07,villon-tolstoi-tharaud-gillet-cahier-de-noel,"Villon, Tolstoi, Tharaud, Gillet. Cahier de Noël",charles-peguy,1400,0.64,388,0.81,AUTHOR_MISMATCH(charles-peguy→leon-tolstoi)
+s04-c08,monsieur-matou,Monsieur Matou,rene-salome,1613,0.73,288,0.95,
+s04-c09,almanach-des-cahiers-pour-l-an-1903,Almanach des cahiers pour l'an 1903,charles-peguy,1236,0.60,65,0.81,
+s04-c10,vie-des-hommes-illustres-beethoven,"Vie des hommes illustres, Beethoven",romain-rolland,2180,0.74,30,0.75,
+s04-c11,la-politique-clericale-et-le-socialisme,La politique cléricale et le socialisme,edouard-berth,1485,0.85,24,0.71,
+s04-c12,introduction-a-la-metaphysique,Introduction à la métaphysique,henri-bergson,2033,0.85,26,0.74,
+s04-c13,impressions-sur-java,Impressions sur Java,felicien-challaye,1849,0.87,33,0.66,
+s04-c14,le-temps-viendra-trois-actes,"Le temps viendra, trois actes",romain-rolland,2258,0.55,922,0.48,LOW_PROSE_EN
+s04-c15,la-chanson-du-roi-dagobert,La chanson du roi Dagobert,pierre-baudouin,664,0.39,537,0.60,LOW_PROSE_FR
+s04-c16,les-vaincus-joseph-d-arimathee,Les Vaincus. Joseph d'Arimathée,gabriel-trarieux,1691,0.56,454,0.46,LOW_PROSE_EN
+s04-c17,affaire-dreyfus-debats-parlementaires,Affaire Dreyfus. Débats parlementaires,charles-peguy,6130,0.69,1592,0.83,COM_PLACEHOLDER
+s04-c18,affaire-dreyfus-cahiers-de-la-quinzaine,Affaire Dreyfus. Cahiers de la Quinzaine,charles-peguy,1890,0.83,28,0.82,
+s04-c19,le-rhin-allemand,Le Rhin allemand,gaston-raphael,1878,0.71,53,0.75,
+s04-c20,affaire-dreyfus-reprise-politique-parlementaire,Affaire Dreyfus. Reprise politique parlementaire,charles-peguy,3366,0.84,27,0.79,
+s04-c21,edgar-quinet,Edgar Quinet,henry-michel,2145,0.73,32,0.86,
+s04-c22,courriers-de-macedoine,Courriers de Macédoine,maurice-kahn,2703,0.77,53,0.80,
+s05-c01,les-massacres-de-kichinef,Les massacres de Kichinef,henri-dagan,2790,0.76,57,0.69,
+s05-c02,la-vie-d-evariste-galois,La vie d'Evariste Galois,paul-dupuy,2503,0.79,37,0.93,
+s05-c03,le-monument-de-renan,Le monument de Renan,charles-peguy,2461,0.76,39,0.76,
+s05-c04,le-theatre-du-peuple,Le Théâtre du Peuple,romain-rolland,5084,0.77,48,0.81,
+s05-c05,discours-pour-la-liberte,Discours pour la liberté,georges-clemenceau,4063,0.77,86,0.88,
+s05-c06,histoire-de-quatre-ans-1997-2001,"Histoire de quatre ans, 1997-2001",daniel-halevy,2867,0.77,390,0.86,
+s05-c07,notes-sur-la-hollande,Notes sur la Hollande,henri-michel,3383,0.80,37,0.90,
+s05-c07,moines-de-l-athos,Moines de l'Athos,jerome-et-jean-tharaud,0,0.00,6,0.75,EMPTY_FR
+s05-c08,maximilien-robespierre,Maximilien Robespierre,karl-brunnemann,4554,0.83,59,0.77,
+s05-c09,jean-christophe-i-l-aube,Jean-Christophe. I. L'aube,romain-rolland,3878,0.93,88,0.72,
+s05-c10,jean-christophe,Jean-Christophe,romain-rolland,3889,0.82,15,0.60,
+s05-c10,le-matin,Le matin,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s05-c11,le-monde-sans-dieu,Le monde sans Dieu,mangasarian,1483,0.77,61,0.69,COM_PLACEHOLDER
+s05-c12,petites-garnisons,Petites garnisons,charles-peguy,759,0.74,33,0.70,COM_PLACEHOLDER
+s05-c13,les-vaincus-hypathie,Les Vaincus. Hypathie,gabriel-trarieux,494,0.72,22,0.67,
+s05-c14,gaston-paris,Gaston Paris,joseph-bedier,789,0.73,20,0.74,
+s05-c15,jean-des-brebis,Jean des Brebis,emile-moselly,4800,0.79,68,0.81,
+s05-c16,le-congres-de-dresde-edition-gaston-raphael,"Le congrès de Dresde, édition GASTON RAPHAEL",charles-peguy,6362,0.78,92,0.75,
+s05-c17,a-chaque-jour,A chaque jour,francois-porche,97,0.27,441,0.90,LOW_PROSE_FR
+s05-c18,prologue-d-une-revolution,Prologue d'une Révolution,louis-menard,8247,0.75,84,0.71,
+s05-c19,les-hobereaux,Les hobereaux,jerome-et-jean-tharaud,1002,0.40,489,0.87,LOW_PROSE_FR
+s05-c20,congres-des-u-p-mai-1904,Congrès des U.P. mai 1904,charles-peguy,3257,0.63,105,0.54,
+s06-c01,texte-sans-commentaires-catalogue-analytique-sommaire,Texte sans commentaires. Catalogue analytique sommaire,charles-peguy,3958,0.78,43,0.80,
+s06-c02,l-egalite-devant-l-instruction,L'égalité devant l'instruction,alexis-bertrand,7357,0.74,71,0.75,
+s06-c03,zangwill,Zangwill,charles-peguy,14563,0.76,478,0.89,
+s06-c03,chad-gadya,Chad Gadya!,israel-zangwill,0,0.00,64,0.82,EMPTY_FR
+s06-c04,un-essai-de-monopole,Un essai de monopole,charles-peguy,4620,0.77,19,0.95,
+s06-c04,l-enseignement-primaire-a-madagascar,L'enseignement primaire à Madagascar,raoul-allier,0,0.00,20,0.69,EMPTY_FR
+s06-c05,le-testament-politique-de-waldeck-rousseau,Le testament politique de Waldeck-Rousseau,charles-peguy,8223,0.72,9,0.90,
+s06-c06,juifs-russes,Juifs russes,georges-delahache,446,0.70,481,0.75,COM_PLACEHOLDER
+s06-c07,les-primitifs-francais-contes-de-la-vierge,"Les primitifs français, contes de la Vierge",jerome-et-jean-tharaud,1931,0.45,30,0.79,LOW_PROSE_FR
+s06-c08,jean-christophe,Jean-Christophe,romain-rolland,5177,0.92,276,0.82,
+s06-c08,l-adolescent,L'adolescent,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s06-c09,la-delation-aux-droits-de-l-homme,La délation aux Droits de l'Homme,charles-peguy,4172,0.77,7,0.70,
+s06-c10,yves-madec-professeur-de-college,Yves Madec professeur de collège,brenn,1048,0.63,8,0.67,
+s06-c11,la-tragedie-d-elektre-et-oreste,La tragédie d'Elektre et Oreste,andre-suares,10134,0.57,23,0.77,
+s06-c12,spartacus,Spartacus,urbain-gohier,1022,0.78,12,0.80,
+s06-c13,l-eglise-et-l-etat,L'Eglise et l'Etat,leon-tolstoi,1049,0.72,1,0.50,
+s06-c13,les-evenements-actuels-en-russie,les événements actuels en Russie,leon-tolstoi,0,0.00,7,0.70,EMPTY_FR
+s06-c14,la-separation-des-eglises-et-de-l-etat,La séparation des Eglises et de l'Etat,raoul-allier,14589,0.82,5,0.45,LOW_PROSE_EN
+s06-c15,la-tragedie-de-tristan-et-iseut,La tragédie de Tristan et Iseut,eddy-marix,2538,0.58,1,0.33,LOW_PROSE_EN
+s06-c16,la-vie-et-les-propheties-du-comte-de-gobineau,La vie et les prophéties du comte de Gobineau,robert-dreyfus,7005,0.79,6,0.60,
+s06-c17,catholicisme-et-critique,Catholicisme et critique,paul-desjardins,2829,0.82,9,0.75,
+s07-c01,petit-index-alphabetique,Petit index alphabétique,charles-peguy,1263,0.62,22,0.65,
+s07-c02,la-paix-et-la-guerre,La paix et la guerre,charles-richet,1758,0.79,22,0.85,
+s07-c03,notre-patrie,Notre patrie,charles-peguy,2001,0.76,4,0.67,
+s07-c04,la-separation-au-senat,La séparation au Sénat,raoul-allier,7578,0.78,23,0.77,
+s07-c05,courrier-de-russie,Courrier de Russie,charles-peguy,7157,0.80,12,0.92,
+s07-c05,le-22-janvier,Le 22 janvier,etienne-avenard,0,0.00,22,0.88,EMPTY_FR
+s07-c06,le-congo-leopoldien,Le Congo léopoldien,morel-et-pierre-mille,4662,0.73,29,0.97,
+s07-c07,les-suppliants-paralleles,Les suppliants parallèles,charles-peguy,2743,0.77,21,0.84,
+s07-c07,les-suppliants,Les suppliants,francois-porche,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s07-c08,louis-de-gonzague,Louis de Gonzague,charles-peguy,785,0.59,19,0.83,
+s07-c08,et-vous-riez,Et vous riez,andre-spire,0,0.00,1,0.50,EMPTY_FR
+s07-c09,de-la-situation-faite-a-l-enseignement-superieur-i,De la situation faite à l'enseignement supérieur. I,ferdinand-lot,2493,0.59,33,0.61,
+s07-c10,les-freres-ennemis,Les frères ennemis,jerome-et-jean-tharaud,2029,0.69,38,0.88,
+s07-c11,de-la-situation-faite-a-l-enseignement-superieur,De la situation faite à l'enseignement supérieur,ferdinand-lot,3244,0.69,109,0.87,
+s07-c12,le-congo-francais,Le Congo français,felicien-challaye,2858,0.70,44,0.94,
+s07-c13,de-la-situation-faite-a-la-defense-militaire,De la situation faite à la défense militaire,georges-picquart,2418,0.72,30,0.88,
+s07-c14,les-vaincus-savonarole,Les Vaincus. Savonarole,gabriel-trarieux,2679,0.50,14,0.41,LOW_PROSE_EN
+s07-c15,les-cahiers-d-arnold-scherer,Les cahiers d'Arnold Scherer,charles-peguy,3026,0.74,16,0.73,
+s07-c16,les-deux-congos,Les deux Congos,pierre-mille,2257,0.74,7,0.88,
+s07-c17,heureux-qui-comme-ulysse,Heureux qui comme Ulysse,jean-schlumberger,1657,0.65,38,0.67,
+s07-c18,la-vie-de-michel-ange-i-la-lutte,La vie de Michel-Ange. I. La lutte,romain-rolland,2503,0.74,10,0.59,
+s07-c19,les-retours-les-haleurs-le-soldat,"Les retours. Les haleurs, le soldat",emile-moselly,1333,0.65,48,0.87,
+s08-c01,petit-index-alphabetique,Petit index alphabétique,charles-peguy,1498,0.58,36,0.80,
+s08-c02,la-vie-de-michel-ange,La vie de Michel-Ange,romain-rolland,1469,0.72,120,0.90,
+s08-c02,l-abdication,L'abdication,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c03,de-la-situation-faite-a-l-histoire-et-a-la-sociologie,De la situation faite à l'histoire et à la sociologie,charles-peguy,1622,0.75,43,0.78,
+s08-c04,jean-christophe,Jean-Christophe,romain-rolland,3315,0.92,14,0.64,
+s08-c04,la-revolte-1-sables-mouvants,La révolte. 1. Sables mouvants,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c05,de-la-situation-faite-au-parti-intellectuel,De la situation faite au parti intellectuel,charles-peguy,1907,0.83,14,0.82,
+s08-c06,jean-christophe,Jean-Christophe,romain-rolland,1397,0.90,1,0.17,LOW_PROSE_EN
+s08-c06,la-revolte-2-l-enlisement,La révolte. 2. L'enlisement,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c07,untitled,Les sonnets de Shakespeare. I.,marie-garnier,1050,0.46,81,0.72,LOW_PROSE_FR
+s08-c07,les-sonnets-de-shakespeare-i,Les sonnets de Shakespeare. I,marie-garnier,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c08,le-livre-des-livres,Le livre des livres,jean-bonnerot,790,0.39,57,0.85,LOW_PROSE_FR
+s08-c09,jean-christophe,Jean-Christophe,romain-rolland,171,0.80,13,0.72,
+s08-c09,la-revolte-3-la-delivrance,La révolte. 3. La délivrance,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c10,polonais-et-prussiens-i,Polonais et Prussiens. I,edmond-bernus,6175,0.76,17,0.74,
+s08-c11,bar-cochebas-notre-honneur,"Bar-Cochebas, notre honneur",jerome-et-jean-tharaud,1653,0.76,32,0.80,
+s08-c12,polonais-et-prussiens,Polonais et Prussiens,edmond-bernus,1529,0.72,1,0.25,LOW_PROSE_EN
+s08-c13,swift,Swift,henriette-cordelet,1202,0.66,46,0.71,
+s08-c14,polonais-et-prussiens,Polonais et Prussiens,edmond-bernus,2252,0.68,1,0.25,LOW_PROSE_EN
+s08-c15,untitled,Les sonnets de Shakespeare. II.,marie-garnier,1267,0.43,15,0.68,LOW_PROSE_FR
+s08-c15,les-sonnets-de-shakespeare,Les sonnets de Shakespeare,marie-garnier,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s08-c16,les-preoccupations-metaphysiques-des-physiciens-modernes,Les préoccupations métaphysiques des physiciens modernes,georges-sorel,2023,0.67,1,0.25,LOW_PROSE_EN
+s09-c01,de-la-situation-faite-au-parti-intellectuel-devant-les-accidents-de-la-gloire-temporelle,De la situation faite au parti intellectuel devant les accidents de la gloire temporelle,charles-peguy,3491,0.81,116,0.95,
+s09-c02,quarante-huit,Quarante-Huit,robert-dreyfus,3068,0.72,5,0.62,
+s09-c03,the-socialist-party-and-the-trade-unions,The Socialist Party and the Trade Unions,etienne-buisson,0,,400,0.93,COM_MISSING|NO_FR
+s09-c04,le-rouet-d-ivoire,Le rouet d'ivoire,emile-moselly,3446,0.76,7,0.58,
+s09-c05,la-representation-proportionnelle,La représentation proportionnelle,von-wendt,1935,0.68,6,0.67,
+s09-c06,un-episode,Un épisode,daniel-halevy,1085,0.71,221,0.89,
+s09-c07,par-le-chemin-des-souvenances,Par le chemin des souvenances,rene-salome,648,0.50,480,0.92,LOW_PROSE_FR
+s09-c08,der-professor-ist-die-deutsche-nationalkrankheit,Der Professor ist die deutsche Nationalkrankheit,gaston-raphael,2171,0.69,7,0.78,
+s09-c09,alexandre-weill-ou-le-prophete-du-faubourg-saint-honore,"Alexandre Weill, ou le prophète du Faubourg Saint-Honoré",robert-dreyfus,1483,0.67,237,0.85,
+s09-c10,mes-cahiers-rouges-i,Mes cahiers rouges. I,maxime-vuillaume,1162,0.74,215,0.88,
+s09-c11,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,1663,0.75,57,0.90,
+s09-c12,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,2465,0.68,1,0.33,LOW_PROSE_EN
+s09-c13,jean-christophe-a-paris-i-la-foire-sur-la-place-1,Jean-Christophe à Paris. I. La foire sur la Place. 1,romain-rolland,2953,0.88,1,0.50,
+s09-c14,jean-christophe-in-paris-i-the-fair-on-the-square-2,Jean-Christophe in Paris. I. The Fair on the Square. 2,romain-rolland,889,0.68,409,0.86,COM_MISSING
+s09-c15,jean-christophe-a-paris-antoinette,Jean-Christophe à Paris. Antoinette,romain-rolland,3099,0.92,1,0.50,
+s09-c16,quand-panurge-ressuscita,Quand Panurge ressuscita,pierre-mille,3002,0.76,120,0.88,
+s10-c01,l-enfant-et-la-reine-morte,L'enfant et la reine morte,pierre-mille,4080,0.64,156,0.83,
+s10-c02,dix-contes-ecrits-dans-le-nord,Dix contes écrits dans le Nord,pierre-hamp,1938,0.62,34,0.74,
+s10-c03,la-peine-des-hommes-i-maree-fraiche,La peine des hommes. I. Marée fraîche,pierre-hamp,1855,0.67,12,0.75,
+s10-c04,la-peine-des-hommes,La peine des hommes,pierre-hamp,3482,0.76,4,0.57,
+s10-c04,vin-de-champagne,Vin de Champagne,pierre-hamp,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s10-c05,le-portrait-d-ibsen,Le portrait d'Ibsen,andre-suares,3641,0.83,5,0.71,
+s10-c06,plus-pres-des-choses,Plus près des choses,rene-salome,1964,0.61,28,0.88,
+s10-c07,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,2936,0.74,9,0.75,
+s10-c08,mes-cahiers-rouges-v,Mes cahiers rouges. V,maxime-vuillaume,2462,0.75,708,0.83,
+s10-c09,jean-christophe-a-paris,Jean-Christophe à Paris,romain-rolland,78,0.76,3,0.60,
+s10-c09,dans-la-maison-1,Dans la maison. 1,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s10-c10,jean-christophe-a-paris,Jean-Christophe à Paris,romain-rolland,6433,0.92,7,0.70,
+s10-c10,dans-la-maison-2,Dans la maison. 2,romain-rolland,0,0.00,2,1.00,EMPTY_FR
+s10-c11,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,557,0.86,33,0.94,
+s10-c11,au-large,Au large,maxime-vuillaume,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s10-c12,le-travail-de-zarathoustra,Le travail de Zarathoustra,daniel-halevy,1,0.20,2,0.67,LOW_PROSE_FR
+s10-c13,a-nos-amis-a-nos-abonnes,"A nos amis, à nos abonnés",charles-peguy,3482,0.70,3,0.75,
+s11-c01,visite-a-pascal,Visite à Pascal,andre-suares,1516,0.71,130,0.96,
+s11-c02,le-portique,Le portique,gabriel-trarieux,1435,0.51,2,0.67,
+s11-c03,l-homme-en-proie-aux-enfants,L'homme en proie aux enfants,albert-thierry,2479,0.77,2,0.67,
+s11-c04,la-carte-au-lisere-vert,La carte au liseré vert,georges-delahache,5486,0.76,676,0.77,
+s11-c05,israel-zangwill,Israël Zangwill,andre-spire,2031,0.78,313,0.59,
+s11-c06,le-mystere-de-la-charite-de-jeanne-d-arc,Le mystère de la charité de Jeanne d'Arc,charles-peguy,0,,0,,COM_MISSING|NO_FR|NO_EN
+s11-c07,jean-christophe,Jean-Christophe,romain-rolland,2904,0.83,476,0.83,
+s11-c07,la-fin-du-voyage-i-les-amies-1,La fin du voyage. I. Les amies. 1,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s11-c08,jean-christophe,Jean-Christophe,romain-rolland,3028,0.87,354,0.81,
+s11-c08,la-fin-du-voyage-i-les-amies-2,La fin du voyage. I. Les amies. 2,romain-rolland,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s11-c09,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,3275,0.62,1,0.25,LOW_PROSE_EN
+s11-c09,dernier-cahier,Dernier cahier,maxime-vuillaume,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s11-c10,apologie-pour-notre-passe,Apologie pour notre passé,daniel-halevy,2491,0.75,218,0.86,
+s11-c11,la-maison-vers-le-lac,La maison vers le lac,joseph-melon,965,0.54,738,0.87,
+s11-c12,notre-jeunesse-les-milliet,Notre jeunesse. Les Milliet,charles-peguy,5925,0.84,380,0.97,AUTHOR_MISMATCH(charles-peguy→paul-milliet)
+s11-c13,the-milliets-i-up-to-the-threshold-of-exile,The Milliets. I. Up to the Threshold of Exile,paul-milliet,0,,932,0.78,COM_MISSING|NO_FR
+s11-c14,the-milliets-ii-farewells,The Milliets. II. Farewells,paul-milliet,0,,617,0.79,COM_MISSING|NO_FR
+s12-c01,victor-marie-comte-hugo,"Victor-Marie, comte Hugo",charles-peguy,6714,0.82,940,0.78,
+s12-c02,les-amis-des-cahiers,"""Les amis des cahiers""",paul-milliet,1,0.20,279,0.81,COM_PLACEHOLDER|LOW_PROSE_FR
+s12-c03,my-first-testament,My First Testament,julien-benda,0,,98,0.92,COM_MISSING|NO_FR
+s12-c04,vies-paralleles,Vies parallèles,paul-milliet,2654,0.72,529,0.78,COM_PLACEHOLDER
+s12-c05,dialogue-d-eleuthere,Dialogue d'Eleuthère,julien-benda,538,0.61,57,0.88,
+s12-c06,les-milliet-v-jours-heureux,Les Milliet. V. Jours heureux,charles-peguy,5352,0.69,48,0.73,COM_PLACEHOLDER|AUTHOR_MISMATCH(charles-peguy→paul-milliet)
+s12-c07,tolstoi-vivant,Tolstoi vivant,andre-suares,3896,0.74,354,0.84,COM_PLACEHOLDER|AUTHOR_MISMATCH(andre-suares→leon-tolstoi)
+s12-c08,mes-maitres-et-mes-amis,Mes maîtres et mes amis,paul-milliet,3316,0.75,536,0.82,COM_PLACEHOLDER
+s12-c09,l-ordination,L'ordination,julien-benda,336,0.82,14,0.78,COM_PLACEHOLDER
+s12-c10,les-milliet,Les Milliet,paul-milliet,1798,0.77,0,,COM_MISSING|NO_EN
+s12-c10,adrien-de-tuce,Adrien de Tucé,adrien-de-tuce,0,,0,,COM_MISSING|NO_FR|NO_EN
+s12-c10,cinq-ans-au-mexique,Cinq ans au Mexique,adrien-de-tuce,0,,0,,COM_MISSING|NO_FR|NO_EN
+s12-c10,oeuvres-choisies-postface,Œuvres choisies (postface),charles-peguy,0,,0,,COM_MISSING|NO_FR|NO_EN
+s13-c01,voyage-d-etudes-en-italie,Voyage d'études en Italie,paul-milliet,2943,0.73,618,0.83,COM_PLACEHOLDER
+s13-c02,a-new-theologian-m-fernand-laudet,"A New Theologian, M. Fernand Laudet",charles-peguy,0,,770,0.95,COM_MISSING|NO_FR
+s13-c03,la-guerre-de-france,La guerre de France,ix,12,0.19,818,0.81,COM_PLACEHOLDER|LOW_PROSE_FR
+s13-c04,le-porche-du-mystere-de-la-deuxieme-vertu,Le porche du mystère de la deuxième vertu,charles-peguy,2113,0.64,2,0.67,COM_PLACEHOLDER
+s13-c05,jean-christophe-le-buisson-ardent-1,Jean-Christophe. Le buisson ardent. 1,romain-rolland,6718,0.85,111,0.86,
+s13-c06,jean-christophe-le-buisson-ardent-2,Jean-Christophe. Le buisson ardent. 2,romain-rolland,2391,0.72,203,0.82,COM_PLACEHOLDER
+s13-c07,the-milliets-x-the-commune-and-the-second-siege-of-paris,The Milliets. X. The Commune and the Second Siege of Paris,paul-milliet,0,,598,0.82,COM_MISSING|NO_FR
+s13-c08,dostoievski,Dostoïevski,andre-suares,2275,0.71,298,0.87,COM_PLACEHOLDER
+s13-c09,un-cas-de-conscience,Un cas de conscience,paul-milliet,2,0.09,598,0.76,COM_PLACEHOLDER|LOW_PROSE_FR
+s13-c10,l-ami-desabuse,L'ami désabusé,joseph-melon,5239,0.58,2,0.67,COM_PLACEHOLDER
+s13-c11,deux-drames,Mes cahiers rouges. VIII. Deux drames,maxime-vuillaume,3888,0.73,792,0.58,COM_PLACEHOLDER
+s13-c12,le-mystere-des-saints-innocents,Le mystère des saints Innocents,charles-peguy,0,,0,,COM_MISSING|NO_FR|NO_EN
+s14-c01,de-napoleon,De Napoléon,andre-suares,851,0.70,80,0.70,
+s14-c02,jean-christophe-la-nouvelle-journee-1,Jean-Christophe. La nouvelle journée. 1,romain-rolland,3654,0.93,785,0.74,COM_PLACEHOLDER
+s14-c03,jean-christophe-la-nouvelle-journee-2,Jean-Christophe. La nouvelle journée. 2,romain-rolland,58,0.66,2,1.00,
+s14-c04,l-ordination,L'ordination,julien-benda,3849,0.77,130,0.88,
+s14-c04,la-chute,La chute,julien-benda,0,0.00,0,0.00,EMPTY_FR|EMPTY_EN
+s14-c05,la-tapisserie-de-sainte-genevieve-et-de-jeanne-d-arc,La tapisserie de sainte Geneviève et de Jeanne d'Arc,charles-peguy,1351,0.47,31,0.82,COM_PLACEHOLDER|LOW_PROSE_FR
+s14-c06,l-argent,L'argent,charles-peguy,2481,0.82,77,0.86,
+s14-c07,depuis-1880-l-enseignement-primaire,"Depuis 1880, l'enseignement primaire",naudy,3058,0.79,43,0.72,
+s14-c08,les-chants-de-l-ame-reveillee,Les chants de l'âme réveillée,rene-salome,0,,0,,COM_MISSING|NO_FR|NO_EN
+s14-c09,l-argent-suite,L'argent suite,charles-peguy,5734,0.79,30,0.75,
+s14-c10,la-tapisserie-de-notre-dame,La tapisserie de Notre Dame,charles-peguy,1068,0.36,489,0.87,LOW_PROSE_FR
+s14-c11,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,0,,0,,COM_MISSING|NO_FR|NO_EN
+s14-c11,ix,IX,maxime-vuillaume,0,,0,,COM_MISSING|NO_FR|NO_EN
+s14-c11,lettres-et-temoignages,Lettres et témoignages,maxime-vuillaume,0,,0,,COM_MISSING|NO_FR|NO_EN
+s15-c01,ecoute-israel,Ecoute Israël,edmond-fleg,1571,0.54,1281,0.83,
+s15-c02,une-philosophie-pathetique,Une philosophie pathétique,julien-benda,2994,0.76,426,0.86,COM_PLACEHOLDER
+s15-c03,la-loi-militaire,La loi militaire,joseph-reinach,1582,0.76,0,,COM_MISSING|NO_EN
+s15-c04,eve,Eve,charles-peguy,7592,0.77,1,0.33,COM_PLACEHOLDER|LOW_PROSE_EN
+s15-c05,francois-villon,François Villon,andre-suares,1633,0.63,201,0.57,COM_PLACEHOLDER
+s15-c06,l-exode,L'Exode,georges-delahache,0,,334,0.88,COM_MISSING|NO_FR
+s15-c07,notre-pays,Notre pays,rene-salome,1590,0.56,1,0.33,COM_PLACEHOLDER|LOW_PROSE_EN
+s15-c08,note-sur-m-bergson-et-la-philosophie-bergsonienne,Note sur M. Bergson et la philosophie bergsonienne,charles-peguy,1692,0.63,123,0.99,COM_PLACEHOLDER
+s15-c09,mes-cahiers-rouges-x-proscrits,Mes cahiers rouges. X. Proscrits,maxime-vuillaume,1929,0.62,1,0.33,COM_PLACEHOLDER|LOW_PROSE_EN
+s15-c10,nous,Nous,francois-porche,0,,0,,COM_MISSING|NO_FR|NO_EN

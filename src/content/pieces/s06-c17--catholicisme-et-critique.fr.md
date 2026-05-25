@@ -7,35 +7,20 @@ author: paul-desjardins
 isAvertissement: false
 wordCount: 34897
 ---
-
-FE) re Hs 3e A PAR RAA
-
 PUR SUN LOCAL Un LEE en or RES MERE LAURE ji AN ia
-Re MR PASS LI à AU Ten À ARIANE FES
-ARE Ts ue pie A (ER d7 URL î ; " . En ÿ
-MAT EE el j so NP] 1648 IE
 « 1 Haut) ar WF ù É pas AL RATES 1 | (ua ALU Fan r
 FA ENS NU OU SU x tt: AE LARAT
-ARE D DETO OUR APR AE QU ! SAUT } GER ot
-A EE a 1) ) HAT LES ET nel À / È A À
 4 ASS CRUE AA ÿ TOUT it FAR Pis } V NA x
 ne at vin D: HA, LUN MUR + at
-Ne
 AE Re ENFANT aus à TT ONE CPE EN a NN "
-A FETE RL LANTA Re” int FAI NES Fos
-
-M Tan We POUE
 
 à a te EUR nt * Fa Qi À RU | 4 Ur le A4 se Va n HAE WE
 
 SUCER APN UT MIS. 46 tt ER, out M LA LUNPRRE ï LA Lo He ARE ar Are 4
 | | SOON ÿ RU SEEN RU qe VAE
 PR ER At Pate NON LR AT TR FH) PLEMET je
-ANA AN LAURE HATAALERE AUS ATEN É AU js
 de ef 1 ant HAE MATE EAU DL dy RN UM NE Je
 ATARI PAM PAT ce ASE AR ARENA A x
-
-AUTA EE ua (END OS rat
 
 Il est impossible de suivre honnêtement le mouvement littéraire, le mouvement d'art, le mouvement
 politique et-social si l'on n'est pas abonné aux Cahiers
@@ -47,7 +32,6 @@ il suffit d'envoyer un mandat de trois francs cinquante
 6, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
 de la deuxième, de la troisième et de la quatrième
-série.
 
 Pour savoir ce qui a paru dans les cinq premières |
 séries des cahiers, 1900-1904, envoyer un mandat de
@@ -71,44 +55,20 @@ Nous mettons le présent cahier dans le commerce;
 seizième cahier de la sixième série; un cahier blanc de
 
 … XII + 360 pages; in-18 grand jésus; nous le vendons
-trois francs cinquante.
 
-; / DIX-SEPTIÈME CAHIER DE LA SIXIÈME SÉRIE
-k
-À PAUL DESJARDINS
 catholicisme et critique
-RÉFLEXIONS D'UN PROFANE
 | SURMEAEFAIRE"LOISY
-È
 |
 |
-! CAHIERS DE LA QUINZAINE
 % paraissant vingt fois par an
-PARIS
 L 8, rue de la Sorbonne, au rez-de-chaussée
-
-ASS MÉRHESEENRE Q' Te Ve PALANE PE REY
-RÉ ARS DEA PTE D CAE ON PMR AR Lu: :
-INT NS ORAUTITR OT NE NDS DE KTMACNERRES SPRL: 1
-
-MERE LP PAS À LES PA LS MARINENT E s RENDENT AUE
-
-es RENNES ANRQUEES RAR CARLA ALT MAUES nd à LR RU
 
 à | AR CN II RE D HRNSNS Vas EL PO ES AR 4 Ne fe NA LS REA ;
 5 LA Ent ARR AI ANR Fe SERA MESSE
 
-A A AR RO io) EN NAS PRIPANI ER A PA ANR SES NANTES
-SEE RS RARE M Pete PUR LEE NME TITI)
 É RU ne ae EAU ÿ > As Fr VA TR re Ta ES RSR >
-1 FN A A Aie : 1 ENST
-SCAN POS atrr AE F * î MR R: Te ur NS 3
-NIURES ES LEnE FU 11 ARS
-TNA NITE TETE E er RO AoEe MORTE Pr VEINES ARS ES d Eu
-ES RSR EE 8 RAR RUE Fans 42 Re, dl
 
 |
-K
 Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, 1900-1904, un Si |
 - grand nombre de cahiers de lettres, — nouvelles, |
@@ -139,77 +99,44 @@ reçoit, par le fait même de son abonnement, en tête de
 la série ; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-AE LU OU ONU
-ALMA NUIRR" DA OUT Te
 DRE EnS HA Fat à de A PAT DNA RAD nt RAR ANA
 EE dl RTE ONE Hier SN UE iQ il (UE SL MA Her TO Ne MAP LU
-SUR ANUS FR NN ANA PARU TIQUE SATA NAT AE A AU PAS LAVE) EU DU AU RAA
 see HA ARS NUREN PANNE A CU D A LE ONE PU en He 1 ‘9
-1e Re a ue Ut RENE a ea PAUL
-Se PASSES AAA AE PAR TENAN HAN EEE AE EAN AS A RECENT FN
-RACINES ‘RAS dal HA PAU AUS MONA ATX Hit)
-NNE NE AA fe mA DR DNEN AA ALES PACA PE HA NO CA PANARS A EU NIGINGINE
-AUS EE AUS EE D M NANTES HAE ANA RU A0 | LLRE ANA Ep 4 JAN DE RE AR Aout
-A PAO SAP ER PATRONS HE LE GS EMIE) LATE ENTRE CA RU PAR DE RAT RAA Mél
 do Le : Lo . A on oo ut c.
-‘QT NEEntt HE AE RATS AE PAS SE LA LA AAA
 1 à ET RN nu Su EE nt NA) PA ANAL At NT À te AS.
 nt ‘LP ANeneS LEA nt (ANS ne ji au HUM AUS LA CARE VAN Ve UN EUR ae
-AT aie A VA A ji EE JU NEA FEU) A EU LU Lux
-D di (PNA DD AN es ii 0 AS IS
-ANNEE MAS M AE An CAROL dat CEE ANIOU LA EE 1 A AS
-ANNEE Ma DES LA A DA AAA AU TLELUE Le MANU RUN
 re ti LUE IMPR TE DANAUIEN RU ANS to AIS Un on HURNE LAN
 VER NE 11030 Na ne pi LAN Ne DA Te Ar ANNE
 PNR PAL en PA MAN Ni HN LAN ten NRA Lt ;
 MA "a QUEUE ï His sa UE tu US ju Lt Fr NL PAU N
 11 NTENNN RUN in A AN NE Re UNE FA ns
-: 211 " RUE one ee 1 A EAN A ete IRAN Jr
 nat LE Hi RANPATUTE NE ip DA AE ï ART
-DA NA 0 AU RE ER ERA A NN One Fe MAL AU AND OEP IE
 DU Rouen PAU OA HRAANTL Le de AA PR INA EN PE
 
 pa ds a in Un ‘| s
 AS Rap GA a Des (NT "4
-a Le Hi on 4,
-1 ie p . A a ie 5 Ro
 vs ÿ 1 so ie ri a del je RAT
 ni hs ju D. à dt “ UT,
 FIN 11 nt Me NL K « fe AAA an Je As 4 a lt nt nt Es
 1 ni A, Fes Ye he po EN EN non il Ke KE ts SR À A ni Las A No re ; }
 ‘os té WA : ui ui ja nu HA ‘ie # jo (ont so FU MX j
-1 o x SE tt FH) ut sh AE Fe te Hit LAS Nr ke HS Rte ch ‘y NA ie “ Hu ru
 . 4e ti} Et f et do do is je is Pa Fa 1 qu 41e
 4 À de ie Dit ii La LL. in ju hi ue a LE) it
-{ 1 "ait ALES 6 À JL | (LUE Ÿ A HT Nue A: Rio 1 à KA AE Lee
 Le HA ee A A: à " FES HA 1H Au fée ii (ai [RAS ie : MAL sers de
 non bal Ro] NUS A ke À 1 | "| RQ ÿ, a i ni in ÿ,
-site er se a À A N : 10 EN K \
 We 4 no nt es qu f) A na ne a oi AR
 F4 ca \ BR: IA PAU . no one (is j PAT HU ( ft saut PA su qu re ‘ Le
 & ni. x rt ra Ge Lie 0 di À AR AS
 A (Hit RU me cf fr noi a DU Aa sn) va rt {ti LU Ut hf nt je sit di \
-NURE.  . A Li . I UR RU NL) ni D . Hi 1 1 (E ;
-2 “al ni " « tra . (ar # Et ji nt #ie ji, ÿ
-VE AE Al Re ral fe jl d NA ME aa 4 M RU di Vue (0 1 Te }
 un 4 7 ia Des
-nn do. } nu . A |
-14 . “a ut Fe ul NE ï
 0 40
 ! Sie nu Ts l
 AE No (ne pt Mu |
 sh 1e il Vis A Dal ae
 
 | catholicisme et critique
-ad)
-S © \| Ê
-En a |
-A
 
 un A f HAE CN MAUR
-a “ nu St Re 2
-FR (LE 1e TN (a SAVE 1e A UIX CSP AUS PAIE GA (NON Le NEA UT fe à
-} EE ARS BE AT NAN MNCIE ((ÿ DURS HP PMR ANT LC fs AA a AN
 ji hi pt AN SA MS CRE MS AA NEA Ra D re RE LE NE MAR ol LA EAU )
 Fe Us pl sai ‘A SAPA HE NAN Al EN ji LE a NE ETENN
 NS Sat 2 ÿ f' LUE | d'A RER NE 1 AE NACRE" AE Di SU pe au A ane AA Vue AA AŸ
@@ -219,119 +146,68 @@ LE Sy Fair Aa CESR TOR J'Y NY EE UE ALENIX Son HAN EAU (eat MNT LUS AU AU Ni LA 
 “al js WAR HPALER Nr D NT Ne AU GARE Riu I ie NA NDS LE
 i 1 AE HAOU LEA on AA) GARE Ie il RUEAIE AA NE (AAACEE ENS AURAS AU
 iL in LS AT ÿ fe RSA SAND E DEA HAINE AN IAE usb) ORAN AUS Wet
-KA AN 1 PUR KAroNe \* HN DA He ARE if NIUEY Ÿ pie HEURE :
 PAL CENT FE IRC on dat AN a DA ii i
-ee AU sn Hi AS ANNEE
-(RERO AU ji Ie FO Ant RECU “JR ren Wy
 dt SCAN LUE AE 4 ns qua JE (Gite AE LA y
-RATE A AA 1 An tte Mec 1} f
 NN AA An he TU
-PPEEN nt F
 
-RÉFLEXIONS D'UN PROFANE
-SUR L'AFFAIRE LOISY
 |
 
-MY
 £ IL al HOTTES
 ï ne nul ji LL DRE di UE oi
 ie Lo NUS out nl NPA a Une NE RAA jus]
 Je NUE on ÉEAIVE te, A NEA MA HU ds NA AN PA
-00 He pÉAGE) ANT RR AP xA1) Res DIRE Ji RES Ne A Ne HR \
 1210000 AT LUE AA ADN A AANER UE plie gr fit) 7 Aya RARE Le
-Al (RAA 10 RCE HER au m RAS LATNet MAO
-là À 3 #47 RANCE à À A W 1 4
-We nue # ù 4 ; (4 Mat DAS ( # A OR ons Von tea
-LAS 1 | HEIQANS NS pl RAM DEN MU Prin Re y VASTE FR JA ji ;
-trs AU ae A RER A UARE VAT Fit ia can Poe to ul 5 4 #84) Ur ,
 SR EVENE Feu NAN LES ne Eu Ne EEE ju ST LAVAN YU SA DE " ue CAC û Qué |
 Fat Du ALAN CL AE or US VE UNE Mdr (il NAT pin CTI ALAN Sin L
 PEAU FAQ DNLE : WE Rat NA tas MUR HE UNE DATI Ua k put 1e nee
 PUR TA ne ! His RTE MES PUR
-RTEAUT li if ÿ
 
-à Richard Simon,
 critique et prêtre,
-mort en 1712
 réparation et tardif honneur
-TK
 
-tte) We KAR SP AU di LAURE PS dre EAN UE
-My A7NES PRE PE CARRE ANT Ce AE RU RASE HAE ANA RENE Qu Are ‘
 LU Le AMAR EA ae Fri NPA date RUES APP ÿ SA
 4; A AA EN EN ENTRE UN nn DRE re US A SA tr FER AE
-LA UHr MO ESNEANS (NERO RUN ADS EAU SLAM A "4 NA USENET Ji
 AU NAT LA a UVau SUR DNA no} ANNE IP
 es DAT ar GR UE PAR US FR TTNIAS “Ho W
 A TN nee a EU du Ra “UE
-MAUAEUE (KA ES) AS / k 17 ANUS NANTES VAN \
 (Ua NA CM QI Re At HA ne ANR A] rs, SEA LENCO “4 A er NAN :
-RE LAON WIe JA ME BASE (AA SAUNA pe ATEN VA are
-qe HADE ON RAA ASIN EERENE AN LARLI OU 7 TAG AA © NRA “4 JU RU } ï
 NUE AREA AN EAN EMEA RE LE AS TANT fs EE PA 6 ALAN true + A
-? AOUSINNOES MAMA EU GEANACE RUE AREAS PE EE {} } EPA ES FRS j
-16e AAMALITENS PAT UNE VSAEN KI MALE Er ANT KR NAT NAS DHHE
-DATENT PEN SRE DEN NEMPAUL TRUE RAUINPENT CERTES PAUTAU À HQE NA {
 Mt MA ner MAN dla rs HAE NI AE Ne
-1H ATOS RENNES ANR pt 0 AE A NOR
-ROETON AA ANUS ARE RÉPARER 1) HAN Une [Fa PEN Ve Na X NE 4
 PAPE NE As NUS Hu Re AAREUUE to IFRS
-TT MM De A LRU A LAINE NA NUE AAA TE furet
-LR ARR URURe à D eo EN D AE
 
-DORE ARARES EN Ÿ
 ne nd ie
-NA UE) j'a DURS V3 SUR GS SRE 4 LT HE RUE Pa 14 MA y
 jh PU "à ju É 7 n Que ue « e FH à du
-D AU e CEE MEANS DA Ve ee MAUR RU AE AU pan A (HA Ka
 ADO, M Vox MC GLS MSN < HU MOUNS st à FRA NM LE MAO FAI 1aË
-1 RE pi Ken VAE RO RENE U MRTEN D PT En FN). Fa PE REA AE Bet cn
-NDS Ven dl EAN SU AE NN Eu VA HP LM D EUR ANA dl ATEN 12
 EUpA AN NPA AUhAUT ARE À TNT LOUE On ATEN FOR »! FER on ohne MU NU JA dk ju ie Fute Ni Hate LAN nn) ï
 PASS con At AS RE DAUGNE HA Va ER 1 SC ts + APE es Un 1x RAA
 53n MAD) s A nt NET) tt DES EUX su Ps EL EWRQUE Mt BAS dr: "AA k PARU M ve
 MURS Aa PE ju FAR TES SAN RON Je DER PACA ROSE At AN en HAUT NEUET
 a NA PAU & % te Mae UE WU 54 nee ne pi RL PE NAS LAN JS DA He Dre 4 « | Le 4e
-ROSE C ee “A Ra La ATEN HAN ETAER AE ARTE WEAR OR) RUE HA AIS TER
-eus Re a or AUS Fat
 FA “é ni FR CUS FRA ot RUN AE US AT ASIA ANS AA BTE EU NU
 Or 02 TRE ANS TN ARE (RAC SpA AA Dis HU RU AP PERS RE se TA MARS FAR Fe: MR
 2 ( PAS tn AND Rs AN un tea 1, AE 8 Al
 (EAU AN RSA Te ji AN pi NEA AU A ne AS FE à LÉLRONEREER FU 1
-CEA AT 6. See ( RU ae sr VAN Nes ae RTL ASPAT ent M At an 14
 LUE ÿ dt jo A A FO 1e CUP AUS JU RNA ee ne
 MRC FE: ren AURA DAS ME CR AUA LC EAN 2 MON on MNT sa LalL a “en
 
 FAN ms des AA in Ru ao M di AU ENQUE D
-AA Hoi FA oss LL AN Ha ee LL CNE DA te Mu io M p
 SALE ARS ol HAE et VE At ‘ Aa ANS A Le
 JFENE HE ps Ja not er PAS NAN OU UN US LA D ELU NES û 0
 4 (RAC LAURE AN (3 MH Le A NTATAM At 4 Vel ANT EAN He SA ro Les AGE HI LAVE
 LA RODEM pot Re cr A (PS MNENES MAR Al RAA SL iv à MENT Mn 4 ‘RITES
 
 RE un AA re 4) Ne de AR on nn ne
-Aa ES MU CA UNE ARE AS HU CHA En D qi ANS NUE g ACCES
 HONTE ŒUE sis PEAU ANT VAR RUE We SANTE Pat ANA sain AVE DU ju
 D" De don Aou ANA Fe LE AS
 TANT Re AU EE (RU AAA nn tt d REA qu Lx DL AANANEN AA | A tee
-NRA HA Ven PE it (NAN A ARE A HU AA quel AUS
-Mt Al RES UE AU AU i) qe N AIRE A PAU (Et e RON AU
 
-AT mt SUN AIN MALE ñ CRE qi ñ
-
-CERN
-in d a ï'ù
 Hot \ en va Ÿ LM) cie ch je
 ü 4 ju rl Hu AIS pl HN ae 4 ne ie a) is
 our at IP A no 1 ii l us by
 Lit ji S io ) Hi A a at un 1 ra \ “ “1 a je nu Hi Pau ni i} jh Une OA Fa |
-do \ vi li Vi ji ds pu ° ie io 1 0 1 . ei n
-AA RP us S prit ELU HE AE “ qe Me Nr nel Fos 4 Ha M ï ji
 nul RU HA ain Au CAS Ë NS ï FR ŒUS f) SEA ct Ru a N he th rs b ve WiN ni
 no qu fn EN ip) tt rt ‘ sie { Cl A HN tas Done a LA ne ‘ AN si
 JA ya NO r ut ie" if tu at pie pe TAN Ni À 1 uuyr H EN rue i AGE a \, |
-CS ! Eu { vel RE DH) Hs aa VA AA VA Qt Eu ji ÿ A quiet
-HA Ê NH HA 4 hi à Un 40 Ne } LEA Tr D,
 . AS À ee) a ne à ee tu po nai Dee si
 NUE ii Ne gel AT 1 be Wu AE aus au SU : n qu 0 J
 j; Noa Ua A QU HN Ed AR TE El nes (re sal un me), CA ï
@@ -340,17 +216,12 @@ AE “ ET na (ei AA ont A) Ha \ Ha NU H ï
 a | ui We ti y! un A sie Hunt 7 jh (ENT A #0 ou al en OL {
 il a re 40 ne fl Li tu Mal] jé AA HAAURU ÿ at FA if ti ri Na
 LL do pe EU Ji ‘he il !
-PANNE M we Jo È An Fi An Rd 4
 ni (ir en à A JA h
-nn. nt AE cu Ho no {
-a a A |
-k A “ UE
 
 Êtes-vous curieux de savoir si une pure idée, spéculation métaphysique, notion d'astronomie, d'histoire, de
 philologie, peut à la fin produire dans une société vivante des déplacements de force ?.. A quelles conditions, par quelles transformations elle le peut? Essayezvous de mesurer jusqu'où va, où échoue cette eflicacité
 dynamique de l'idée pure? Un appareil excellemment
 démonstratif pour une telle enquête est l'Église chré-
-tienne catholique.
 
 Il n'est théorie si abstraite que cette Église ne l'ait
 fait aboutir à un effet de vouloir et d'acte. L'ontologie
@@ -367,7 +238,6 @@ bien la repousse : dans l'un et l'autre cas, elle y inté-
 resse le cœur. L'Église fait qu'on a honni etemprisonné
 
 | I I
-L\
 
 catholicisme et critique
 
@@ -386,7 +256,6 @@ qu'il est, comme clerc, personne privilégiée, — ne peut
 expliquer les allégories du Quatrième Évangile sans
 produire des alarmes, des scandales, des exorcismes,
 des consternations et, peut-être, une scission dans la
-catholicité.
 
 Vous voyez à quelle condition une idée pure engrène
 sur les mobiles d'un groupe d'hommes, à condition |
@@ -397,7 +266,6 @@ spéculative est devenue sociale, réagissent sur l'idée,
 en la déviant, en détournant de là pousser à bout avec
 l'inflexibilité permise à une logique de solitaire. Le
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 peuple chrétien pèse sur la théologie chrétienne. Action
 et réaction offrent à l'historien un beau graphique
 sinueux et pourtant clair.
@@ -424,7 +292,6 @@ n'ont provoqué que des crises individuelles, moralement grandes, mais sans prol
 
 | une dizaine de chrétiens sévères ont demandé que la
 
-' 1
 catholicisme et critique
 foi fût circonscrite du côté de la crédulité aussi fermement qu'elle l'a été du côté de la raison positive. Mais
 Rome a laissé entendre que le danger de la foi ne lui
@@ -438,7 +305,6 @@ d'opposer la passion ancienne à la spéculation neuve.
 Son énergie éliminatoire est toujours vivace. Vous le
 voyez tout d'un coup par cette grande « affaire Loisy »,
 — qui n'est pas un accident impromptu, puisque c'est
-V & affaire Richard Simon » reprise après deux cents
 ans ; mais la reprise est plus forte et plus large, parce
 que si la passion, dans la catholicité, est demeurée la
 même en faveur de ce qu'on veut qui soit, la constance
@@ -454,12 +320,10 @@ des « livres de Moïse », ou sur l'historicité des récits de
 saint Jean, il se peut que dépende finalement la question
 de savoir si le catholicisme, dans un avenir prochain,
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 établira sa clientèle, ou bien dans les parties éclairées
 du public, qui orientent les autres, ou bien parmi l'innocent public des Croix et les miraculés de la grotte.
 L'Église en est présentement à cette bifurcation, angoissante pour les fidèles qui comprennent, extrêmement
 intéressante pour le simple témoin. Car d'observer si le
-christianisme catholique, forme probablement unique
 où nous puissions, en Occident, en France, réaliser une
 cité des esprits, va glisser à la superstition populaire,
 ou bien remonter à la vie intellectuelle originale, —
@@ -484,7 +348,6 @@ aux catholiques intelligents d'entrevoir une issue.
 
 Je vais parler en historien. Ceci veut dire, d'abord,
 
-(l
 catholicisme et critique
 
 que je ne ferai pas intervenir en cette affaire « les desseins de Dieu », desquels je n'ai nulle clarté, qu'ainsi je
@@ -501,11 +364,6 @@ psychologiquement, assez bien, mais n'est pas embarqué à son bord. Je veux dir
 faits avec la persuasion arrêtée qu'ils s'enchaïînent, et
 sans aller puérilement accuser les acteurs individuels, .
 — comme s'ils n'étaient pas tenus par des nécessités
-antérieures irrésistibles.
-
-;
-
-I
 
 Je revois encore le geste d'abomination de Ton XIII,
 de sa fine maïn coupante, quand ce mot « les radicaux »
@@ -558,9 +416,6 @@ ment les consciences qui sont en pleine activité d'investigation ne s'interromp
 Les Anciens de l'Église ne tolèrent plus les essais
 d'examen. Cette touchante timidité des personnes vieil-
 
-: 8
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 lissantes, devant des curiosités qu'on n'avait pas de
 leur temps, fait place à une impérieuse compression
 des intelligences jeunes.
@@ -586,8 +441,6 @@ que durera la lutte politique du clergé catholique pour
 l'existence. Les Concessionnistes, rejetés déjà par Léon
 XIII, ont été pourchassés, en 1899, par le P. Méchineau,
 jésuite, par l'abbé Maignen, de la Congrégation des
-
-9 I,
 
 catholicisme et critique
 Frères de Saint-Vincent-de-Paul, et par l'abbé Gayraud,
@@ -618,7 +471,6 @@ quelque chose, quelqu'un, ou se ménager eux-mêmes.
 
 Parmi les Critiques de l'école large, les uns discutent
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 les légendes qui accréditèrent l'origine apostolique des
 Églises de France, ou déblaient la formation de la
 liturgie : d'autres examinent le texte des saintes Écritures. Quel que soït leur objet, ces critiques sont des
@@ -645,8 +497,6 @@ un tour de pamphlet).
 
 On ne le peut nier: les conclusions les plus archaï-
 ques sont toujours celles qui prévalent auprès des autorités ecclésiastiques. Officiellement les thèses de
-
-pe:
 
 catholicisme et critique
 
@@ -676,7 +526,6 @@ des conclusions exactement critiques sur la composition
 parcellaire de l''Hexateuque et la modernité de la
 rédaction que nous en avons. On trouverait aujourd'hui
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 moins d'apologistes qu'en 1850 pour discuter si Adam,
 connaissant toutes choses dans l'Eden, avait la prescience de lélectricité, ou pour soutenir que saint
 Pierre, en sa seconde épître, nous révèle que l'hydrogène est le commun élément de tous les corps. La dévotieuse subtilité des exégètes orthodoxes se rend, par
@@ -715,7 +564,6 @@ s'agit-il de se sanctifier, le catholique est membre d'un L
 corps; — de chercher et de réfléchir, il est seul.
 Aussi le recul est-il marqué, de la science catholique
 du dix-neuvième siècle sur celle du dix-septième. Non
-seulement aucun critique prêtre, avant M. Loisy, n'a
 retrouvé ni l'application patiente de Maldonat, ni la É
 finesse et l'héroïque intégrité de jugement de Richard
 Simon ; mais la simple bonne foi dans la recherche, qui
@@ -730,11 +578,8 @@ besoin de se défaire de l'illusion n'est plus ressenti que
 de très peu de catholiques. Mieux vaut, tant qu'on le
 pourra, ne rien entendre, ne rien voir de neuf. Entraînée
 sur une pente rapide par l'élan de toutes les sciences,
-ñ
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 l'Église a passé ces dernières cent années à serrer les
-freins désespérément.
 
 Il ne sert de rien de prétendre qu'on voit cependant,
 sous la soutane, plusieurs bons érudits capables d'établir un cartulaire, quelques historiens diligents, trois ou
@@ -793,7 +638,6 @@ apologétiques du dix-neuvième siècle, c'est le ton mon-
 |
 |
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 dain, l'aplomb infatué. On y reconnaît une éducation
 uniquement « littéraire » et sans dessous. Rien n'est plus
 propre, en effet, à faire passer le goût de la vérité
@@ -847,7 +691,6 @@ Versailles objectent : « Imagine-t-on ce quasi dédain de
 la Providence pour notre France? Ce titre de Fille
 aînée qui devait plus tard lui être décerné n'obligeait18
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 il pas, en quelque sorte, l'Église naissante à la compter
 parmi les nations évangélisées dès le début? » C'est
 bien encore, chez de modestes curés, la méthode cavalière des apologistes gentilshommes. On croirait déroger
@@ -871,8 +714,6 @@ comme « d'histoire », comme « d'érudition », et découvrent que les auteurs
 mot certitude. Évidemment ils sont contents, ils sont
 rassasiés de leurs vraisemblances ; ils s'y reposent.
 
-“ NAN FAN
-Re nur Li RUe Nef
 eu 4 DR ik dun fui AA AUE 5 VS ESS de RU
 Une NAN AN HAE ATEN ra
 à nn PA At At AA ni A UE FLN RENTE ‘| ARE Lure 1
@@ -880,22 +721,13 @@ Ro] HF DS Fa HAT A\AYE CRTC RENE Na Hunt Le te AA vol pie LAN nant
 À l'AS Fac [AMEL sine We AE [HU Er CIS FREE Ua to at RTL) ENS PET) RAD RAV ITR
 ANS VAL AA { A HAN " A el RSA (RU RTART UE x An A et: CV SEE
 4) CE 4, ne KA 4 Al A Jun Yan A2 An MNTEAUX LR) ARS RE) A ir UN \ SE Su +R Re AY
-à PAU A { RM à UE HAN DEN f MYANES (HAMEA FAN NEA PASTEUR
-the Hi VAE YA À CYR NRA NAT ANS Nr C4 Pt VE ( FU) AU aa AS A (OA
 + te NAuA MURS 1 APN Rep A VER F our) FA CE CAL
 A PONS MAL DU PRE ul AU quil 48 PAIN A ne eos RAT gra IN y
 Ne EVA AE 11920 MT ea sx PEU À Ki (ae dif Ne (AE AT HET (NES NO A
 PAT NET MA fe AY QUE A ANS 1 a
-put no D ju 15 DA EN te
 LEARN ms Ne GET UNE h DAS AU tn AE oi j |
 CCR RTE oi ÿ HA Len pee HAN Un LA ais ee 1 ï
-SARA LOIR if) AU RUN À UE Ut \ Lie HO
-Lu VAN MU He RNA HU A rl |
 MATRA Pas HR LEE nu AURAS FN us HER
-RAS Re nu JR EN
-EAN GUEA pe At cs CERN VAT \ ;
-
-IL
 
 L'initiation aux méthodes critiques, non attendue,
 non souhaitée du clergé, lui est venue du dehors. Les
@@ -941,7 +773,6 @@ et cette aisance, pour nous Français qui sommes habitués
 à trouver sous la barrette des aflirmations compactes,
 est un émerveillement. Certes il croit, in petto, puisqu'il
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 est catholique et prêtre ; mais il ne prend pas l'attitude
 du croyant dans les questions oùilest possible d'arriver
 à savoir. Par exemple, lorsqu'il publie les Fastes épiscopaux de la Gaule, il déblaie d'un coup toutes les traditions sans textes sur l'origine apostolique des évêchés;
@@ -998,7 +829,6 @@ revue de lÆEnseignement biblique (n° de novembredécembre 1893), les conclusio
 la critique sur l'Ancien Testament, il fut éliminé tout à
 fait de l'Institut catholique, sans bruit, sans bläme,
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 sans débat. C'était la même semaine justement où paraissait l'encyclique Providentissimus qui fut un cordial
 pour les conservateurs inquiets. M. d'Hulst, visé luimême,abandonna son professeur. Laissé seul, M. Loisy
 se replia; il cessa la publication de l'Enseignement
@@ -1037,7 +867,6 @@ d'Israël fut interrompue brusquement, sèchement, par
 ; un communiqué de l'archevêque (23 octobre 1900) ; autre
 bénéfice : Le critique se fût dépensé en articles de revue;
 il s'est ramassé dans des livres médités qui demeurent.
-Lorsqu'en janvier 1903, huit évêques s'accordèrent à
 dénoncer et « boycotter » l'Évangile et l'Église qui venait de paraître, cette hostilité publique provoqua l'auteur à rompre tous les ménagements diplomatiques
 dont sa pensée était entravée; il la donna franche et
 intégrale en deux livres qui ne sont plus du tout d'un
@@ -1053,7 +882,6 @@ En vérité, cet homme frêle, valétudinaire, de conte- |
 nance modeste, d'écriture minuscule, de voix nette et
 faible, est difficile à abattre. C'est un obstacle sérieux,
 
-__ RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 plus sérieux que Lamennaïs, car sa force n'est pas dans
 un tempérament fougueux, mais dans une pensée froidement objective, impassionnée, dépersonnalisée, sans
 emphase et sans égotisme, imployable à cause de cela.
@@ -1068,7 +896,6 @@ trait; on jurerait que l'auteur défend la cause d'un
 autre, ou plutôt ne défend rien et s'égaye en simple
 spectateur. C'est Montalte épiloguant sur une controverse, où pourtant se joue son repos à lui. Pour
 mieux considérer les aspects multiples de la question,
-M. Loisy s'adresse à sept correspondants divers. Ailleurs,
 comme l'a fait Richard Simon, il use de pseudonymes
 successifs ; tantôt il est M. Isidore Després, tantôt Firmin, docteur en théologie, ou Jean Lataix, etc. Sans
 doute cette diversité de visages est précaution ; mais
@@ -1082,7 +909,6 @@ Récits de la Passion furent pendant deux ans, avec
 
 catholicisme et critique
 ceux de M. Bergson au Collège de France, la plus complète satisfaction que pussent se procurer, à Paris, les
-amateurs d'intelligence pure.
 Cependant ce qu'il apportait de sa petite chambre de
 . Bellevue devant son auditoire compact de la Sorbonne,
 c'est une pensée formée et formulée dans la solitude. Et
@@ -1106,7 +932,6 @@ absolument et gagneraient à être présentées à part de
 toute théorie. Ainsi la condition d'anachorète où
 M. Loisy s'est trouvé réduit, a pour effet heureux de lui
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 donner de belles journées de travail continu, et pour
 effets malheureux, d'abord de le désaccorder d'avec ses
 coreligionnaires et contemporains, puis de le confiner
@@ -1154,11 +979,9 @@ la vérité surnaturelle et a priori des Écritures, distinction du point de vue
 défendable, ni même intelligent, pour la grande majo- |
 rité des récits (par exemple pour ceux de la Création,
 du Déluge, et des actes ou paroles de Jésus dans l'évangile de Jean) — et du point de vue de la vérité doctrinale, psychologique, humaine, qu'il faut préserver
-scrupuleusement ;
 3 Une théorie explicative des faits que la critique !
 dégage, théorie d'un Développement religieux continu,
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 depuis les origines, dans le judaïsme, et ensuite dans le
 christianisme, qui s'y embranche ; de sorte que l'action
 divine que l'on insère d'ordinaire, comme une rupture
@@ -1189,7 +1012,6 @@ ri FAP NL ee (an LA Hu FE FARUPRE
 A au l'in no A Ur at 4] RES SU 4 TS ol Ke QE HART nee De
 HE) AUTOUR ASE" SA A a 4 ï Ué na ai EAST 14 LEE jh Rte À
 U Fr IE NY ANA Qi hi Lo ND V “à DATI À ai PE ant Li L in a n nl 4 NS FAtA it
-1 ROUE &F 2 1 44 fie YEAR RE He A 6 Ur {i AU j HAN tie RAR)
 AE Na LT FŸ AUS op MAN A jy Sn ie DAA Las nt (ES du MT a KA DAME
 LT 4 (ea HA TA TU HAE ANA Art ee ALUPA) ab 1 A AN 3 \
 QUE pe AU (f site AUTRE PA 2 qi NA sal
@@ -1200,19 +1022,12 @@ OÙ 140 ARE LA pas) A AY (AE (AN AS DTA AU RUN % 4x AUS ns AA
 ù ,NeS ET NZ 114 Ji RER 1 (ur) MA if) NU an pa EU a EU Ve nur FA À Al
 1 Det dors AU die A aout LR ANAA RUN HAE MAR rie / et,
 sn | DURE Re AA CE) Er HUE US NE #4) VRn sen RUE NES sise ro ;
-fi RU QG mu (ii (AFhl DA tait pe rest qu Ra nl He (ao Pit ù
 ui n ve RTE 10 oo ne LA vi 1 Lg
 | NADINE on AD 1e HA nr is AU ACIES AA #
 EL ii nt DE “At out | a no a fi
 
-NEC Ho WA fran RU eu
 Ke Ho is ti ni we
 LE AURA HU ne Ne IAE HE
-(EE WA A PU non |
-21 AU Lits HAE 4 |
-OUAE AE L
-
-II
 
 Il n'y a nul péril, pour un bon religieux, à établir un
 Cartulaire par la méthode la plus rigoureuse, et il ne lui
@@ -1232,7 +1047,6 @@ confiance qu'on fait à l'observation désintéressée et à la ù
 preuve n'est pas absolue, — et dès lors elle ne se confie
 plus, et comme confiance elle est nulle, — tant qu'on
 
-t SAT
 catholicisme et critique
 n'ose point soumettre à cette observation, à cette
 i preuve, les documents réputés les plus graves, et qui
@@ -1261,9 +1075,6 @@ D'abord il refuse aux solutions traditionnelles le bé- |
 néfice de la possession; ensuite il écarte toute immix- |
 tion de la dogmatique dans les recherches de l'historien; |
 
-%
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 enfin il passe outre aux effets scandalisants ou édifiants
 des conclusions de la critique, parmi un public moins
 soucieux de savoir que d'être consolé.
@@ -1314,9 +1125,7 @@ du Calvaire »; 3° c'est un fait « que rien ne portait à
 inventer »; 4° l'Église se prétend en possession du suaire
 même et le présente à la vénération « en de telles conditions qu'il est impossible de n'en être pas ému ». — Je |
 crois inutile de chercher un exemple plus significatif
-d'argumentation orthodoxe.
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 L'abbé Loisy procède de façon exactement contraire.
 
 Pour lui, la critique n'est pas, comme pour dom Gué-
@@ -1373,14 +1182,12 @@ prophétisé, est tout proche; il ne se fera pas attendre
 plus d'une génération d'hommes. Et ce règne de Dieu
 sera manifesté à l'homme tout entier, esprit et chair, ou
 plutôt à la collectivité des hommes, quoiqu'un petit
-nombre seulement, se trouvant justifié, y doive obtenir
 accès. Jésus s'est senti appelé, quant à lui, à prêcher à
 tout venant, par amour, le repentir, le renoncement et
 l'amour, conditions de cette entrée dans Ja béatitude
 définitive. C'est tout l'Évangile. Voilà mis à nu le premier germe tout simple de la chrétienté future. M. Loisy,
 38 ,
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 contredisant Harnack sur ce point, ne craint pas de
 restituer cet Urchristenthum en sa matérialité qui date,
 avec sa perspective rapprochée et illusoire. De la prévision du dénouement immédiat vient, dit le critique, cette
@@ -1408,8 +1215,6 @@ modation, le plus souvent naïve, du fait à une préoccu-
 
 | 39
 
-di
-
 catholicisme et critique
 Enfin, dernière divergence, tandis que le publiciste
 orthodoxe est préoccupé de travailler à l'avancement
@@ -1436,7 +1241,6 @@ dans l'Église, du danger, non moindre, de trop scandaliser à la fin l'intellig
 sont les intelligents, à qui l'on a licence de parler ? Certains prélats pensent que ce sont ceux qui lisent le
 #0
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 latin, et vous vous rappelez l'admonestation de Bossuet
 à Richard Simon : « Pourquoi donc, puisqu'il y a une
 langue des savants, ne parle-t-il plutôt en celle-là?
@@ -1463,7 +1267,6 @@ des opinions. Sont-elles conservatrices ou subversives,
 conformes ou non conformes ? Voilà ce qu'ils se demandent. Et ils bataillent, selon la règle du jeu en politique:
 Mais M. Loisy s'efface ; il les laisse seuls avec les faits,
 avec les textes et ce qu'il est désormais impossible
-4x
 
 | À | \ i su
 
@@ -1497,7 +1300,6 @@ en 1894, et celui, restreint au Discours sur la Montagne,
 qu'il a publié en 1903. Voici un exemple des corrections
 qu'il s'est faites. Ayant lu, dans l'évangile de Luc |
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY |
 (vx, 17), que Jésus descendant d'une montagne avec les
 Douze, « prit place en un lieu uni », et là prononcça les
 Béatitudes, M. Loisy n'a pas trouvé d'abord que cette
@@ -1524,8 +1326,6 @@ discours même vérifie cette hypothèse vraiment jolie et je
 éclairante, qui est ainsi la récompense d'un plus éner-
 { gique effort de soumission aux faits. Que conclure de cet ne
 | exemple ? Que la vue scientifique des faits est une lente {
-j |
-HI |
 
 catholicisme et critique A
 conquête, et qui doit toujours être poussée. Mais combien de gens, surtout parmi les ecclésiastiques, et pré-
@@ -1536,13 +1336,6 @@ petit fait solide, et de quel poids irrésistible il pèse sur
 le jugement! Il faut avoir par son propre labeur, comme
 M. Loisy, découvert un peu de la vérité, pour sentir
 d'expérience que la vérité ne se plie pas à nos a
-priori.
-
-{
-
-‘
-IV
-\
 
 Cependant M. Loisy est un prêtre pieux. Ceci complique son attitude, — j'entends son attitude intime, de
 conscience, — à l'égard des témoignages sacrés qu'il
@@ -1560,9 +1353,6 @@ pas la clarté vivante et immédiatement sentie? Ce n'est
 pas seulement à sa paix intime que tient ce fidèle, —
 et il aurait droit d'y tenir, — c'est encore à sa lumière
 intime. Il est donc intéressé extrêmement à trouver que
-
-À
-5) 3
 
 j catholicisme et critique
 la vérité dont il vit est chose tout à fait indépendante
@@ -1594,9 +1384,6 @@ crites des choses merveilleuses qui ne se sont jamais passées et qui ne se pass
 , vraies, parce qu'elles montrent en quoi consiste la volonté
 de Dieu et où réside la vérité du royaume de Dieu.
 (Préface de Contes et Fables, traduction Halpérine, |
-Plon, 1888)
-
-© RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY hi
 
 Est-ce donc avec cette différenciation, me disais-je, qi
 
@@ -1663,7 +1450,6 @@ des hommes chrétiens, sous la sollicitation et la pression des nécessités his
 encore. Au reste, M. Loisy, pieux catholique, tient que
 la vérité religieuse n'est saisissable qu'en cette manière,
 médiatement et dans la communion avec tout le
-passé. )
 
 Enfin, venons-en à l'historicité des récits miraculeux :
 Tolstoiï les néglige comme des enveloppes ou les rejette
@@ -1687,16 +1473,12 @@ qu'ils sont anciens, qu'ils datent d'un âge où la certitude |
 subjective et l'exactitude objective n'étaient pas diffé-
 renciées encore, Un composé de réalité directe et de
 
-Lt
 .
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 
 réalité réfléchie, d'ignorance de la nature (ou plutôt
 | d'indifférence à la nature) et de prophétie vraie sur la
 
 seule chose qui importe, voilà l'espèce de vérité que les
-livres saints contiennent.
 
 N''en vouloir extraire qu'un noyau de vérité morale
 pratique, et faire fi de l'enveloppe narrative, c'est en
@@ -1736,12 +1518,10 @@ d'Eden, le Déluge et la Tour de la Confusion des
 
 ; Langues; récits très dignes qu'on les étudie comme
 solides à ce titre, qu'on en cherche l'origine et le sens
-profond.
 
 Nous supposons jusqu'ici un livre sacré qui s'offre
 lui-même comme déposition de témoin, et nous marquons en quel sens cette déposition est recevable, les
 histoires « saintes » étant toujours mêlées d'émotion, de
-rêve, d'essais d'explication, d'intentions didactiques.
 Mais il arrive que tel écrivain n'a point du tout visé à
 
 | rendre témoignage du passé. Sous la forme narrative, il
@@ -1756,8 +1536,6 @@ une de ses vertus, par laquelle il perçoit le sens obvie
 et naturel des textes : il faut que, simple avec les
 simples, il soit subtil avec les subtils. Ici c'est Le cas de |
 déployer tout ce qu'il a d'acuité et de sens fin du symbole.
-
-5o
 
 | RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 L'évangile selon saint Jean se présente comme l'exem-
@@ -1793,7 +1571,6 @@ venue de ce qu'il est symbolique, réceptif de songeries,
 …. de réflexions et d'amour. C'est un graal.
 ; Ce caractère a justement été restitué au vieux monu-
 | 5
-TA
 
 catholicisme et critique
 
@@ -1854,9 +1631,6 @@ les autres n'étaient qu'image et ombre, comme on rec-
 
 tifie un rêve sur le réel.
 
-D2
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 Ainsi réapparaît sous les figures le sens de l'auteur,
 dès longtemps extériorisé et perdu. Nous déchiffrons
 enfin son message. Trop longtemps les apologistes ont
@@ -1879,7 +1653,6 @@ avons des lois physiques; tandis que si l'on nous eût
 jamais troublés. Quelle collection de faits positifs, cer-
 ; tifiés, cachetés de cachets authentiques, quel passé qui
 | se serait passé une fois posséderait cette actualité
-ÿ perpétuelle 7...
 Habituons donc nos yeux à la pénombre secrète où
 
 catholicisme et critique
@@ -1944,9 +1717,6 @@ sensible. Soit cet énoncé : Le Verbe de Dieu est Lumière,
 ï que les autres évangélistes l'aient omis. Rien de plus
 À naturel, si l'on accepte l'interprétation de M. Loisy.
 “ Cette histoire de résurrection résume et explique les
-‘1
-
-À
 
 catholicisme et critique |
 
@@ -2008,9 +1778,6 @@ implorant elle aussi le réveil de l'Homme mort? Si de- |
 
 vant le Sépulcre Jésus pleure, c'est qu'une telle et si in-
 
-;
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 consciente misère est bien digne de la pitié de celui qui
 sait et qui peut; si Jésus, ayant pleuré, se révolte
 des pleurs que versent les assistants, c'est qu'il est
@@ -2068,7 +1835,6 @@ Non seulement les procédés sont de deux ordres, |
 mais ils impliquent ou développent des mentalités si l
 irréductiblement diverses que chacun, pour être suivi 4
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 correctement, requiert un personnel distinct. Quant à |
 M. Loisy lui-même, qui ne peut suflire à tout, il si
 demande qu'on lui permette de se cantonner dans lhistoire critique des idées religieuses, d'après les textes.
@@ -2080,44 +1846,16 @@ faut vivre, — voilà la tâche que ce petit abbé dans sa
 chambrette s'est assignée, sans plus, comme suflisante
 à occuper quelques années d'une activité moyenne.
 
-ï
-
-É
-
-4 !
-
-l
-
-Ai
-
-j
-
-MARCEL SANT PA Lg PA TL AT A TH NN APE U LAEUUS NS AR AOnE DARu ES,
-À a PAT A A SL
 M PANNE AAA DNA PA AAA NE NT) pis pisa”
 2 ET AREAS A TE AA A QT EE en qe
-LA MNT ON AR NE EURE AE ET EU RAT ANEL UF ECM fer EE PE RS AR ETS \
-D D ERA CAE A ONE ES M TPE ER RE AR TP START CAES ACCRU
-"ANIME MA RU AE ARE AO RAS AN PA ORAN AU CE AR EE BEA M UAU
-NES A } RADAR TNA APTE Î PSS AE Vo AD. }
-1: 180 ER LR PR PR FN EU ‘13 GONE ANS
 Fi ÿ AIS \ An ‘ei s | fu We. Hu AU MA An eue DRE AXE AT #4 LS
-ANTON EAN LS ASE DUR LAN ER TR ERMREMERS
-je MAR! FN Te AE Le 4 3 TERN (# '; AUPMSrer TAN ÿ d
 A RU NYC D PNR HN SAN ACUE SENS ne }
-"fe TRE ) 64 PAL À #1, PET P DU PP RSINENEREERERESS
 pu A SRE CA ERANENNS RUNUIATEET RATE ACIER Te PA de ; PE ï
-LES INTERNES PA PAT DECO M NCA 1 Ten L'ÉIS NTRE ROSAREN
 ANTERE UE ENT a délit EN qnt (A xhi at) LE APN # MERE ra ue 4 f
-LH EN LRU, VÉTOP RU ANS Là - fn qe
-UNE PNR MIENNEN SE CA PIN LEE AE EE RUE NE Een ES HEUE AIR '
-A ALT co AAA ARMAND GATE ERA AE RECU ART A ITA CERTES IE \
 A A LM EU ELA A Data PAR NT NA re TS ? 1
 OCR VIE RAAADLE er OA AA AE ur CHARIOT MN ONE STE ORENEE
-De !, PRE L TON ACL ENS RFA TA RCA FR: RE RACE We Er
 LUN RON CA CARO ERA A A Gen O ARR Le
 
-Y
 On voit que le critique, tout doucement, change de
 . plan!' « histoire sainte ». Celle-ci, dans le catéchisme
 de notre enfance, était une démonstration de l'action
@@ -2134,7 +1872,6 @@ la conscience religieuse dans le Christ et dans la por-
 i produites par Dieu dans les âmes une suite, une continuité de présence, une extension, si bien que de l'Évan-
 ; gile soit sortie sans brisure l'Église romaine. Telle est
 # aussi la persuasion de M. Loisy.
-É 61 4
 
 - catholicisme et critique
 Contre Harnack et les théologiens protestants, il soutient que l'entreprise de dégager des textes & la pure
@@ -2162,7 +1899,6 @@ ou d'Augustin, pour établir la religion vraie, qui ne
 saurait être qu'une religion fixée. Comme si la fixité
 était signe de vérité dans cet ordre! Mais il peut yavoir
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 une vérité en mouvement. Ne confondons pas, en effet,
 le mouvement avec la variation, qui dénonce Fincertitude. Si le mouvementse continue, et que la direction en soit constante, et que la vérité soit justement
 dans cette direction, n'est-ce pas pour l'apologiste une
@@ -2216,7 +1952,6 @@ Un rapport s'établit entre cette idée et tout ce qui préoccupe ceux qui la po
 ce qui l'entoure, et sa pureté ne consiste pas à s'isoler |
 de tout, mais à tout dominer, à se perpétuer en dominant tout ce qui l'approche... L'histoire d'une telle idée
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 est celle d'une lutte perpétuelle, et les temps de silence
 ne sont pas ceux où l'idée prospère et grandit... »
 Ainsi parle M. Loisy, d'après Newman. La conception
@@ -2243,9 +1978,6 @@ l'envie de réussir ou la trop complète réussite, ont tiré
 ; en tous sens et dévié mille fois l'impulsion première. Du
 L Discours sur la Montagne aux circulaires du cardinal
 
-65 a
-
-:
 catholicisme et critique
 Merry del Val, quels virements ! Et cependant, pour un
 Newman, la rectitude d'une conduite certainement
@@ -2275,9 +2007,7 @@ qui d'abord s'étaient projetées de façon individuelle, |
 capricieuse, en hérésies. Sabellius prélude à la doctrine |
 augustinienne de la Trinité; les montanistes préludent |
 à l'ascétisme qui se retrouvera plus achevé dans le sein
-66 I
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 de l'orthodoxie; les gnostiques préludent à la métaphysique des théologiens; ainsi de ces riches surgeons
 dont on serait tenté de déplorer le retranchement, aucun ne sera perdu. Seulement l'intégration est lente, la
 perfection s'élabore. C'est un sujet de surprise pour
@@ -2334,7 +2064,6 @@ l'idée chrétienne dans le temps. Toutes les saiïllies de
 l'histoire des idées s'aplanissent sous la caresse de son
 regard. Il ne voit nulle part de révolution mais l'évolution partout, liée et continue. Même à l'origine du
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 christianisme, il est bien plus frappé de ce qui subsiste
 du passé, que de la déchirure entre juifs et chrétiens :
 la part de création originale lui paraît surfaite. « Il est
@@ -2392,7 +2121,6 @@ sachant mobile, et ses formules relatives et relative son
 
 organisation, appréciant l'écart de son présent à son
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 passé, présageant et appelant d'autres renouvellements
 à perte de vue, il contrarie les immobilistes, qui sont
 justement dans l'Église, comme partout, les investis de
@@ -2403,7 +2131,6 @@ formule du Vatican sur la conservation des dogmes
 le commun du troupeau, qui se plaît dans l'assurance
 que le travail de Dieu dans les âmes en est au septième
 jour : repos. Donc, aux yeux de l'Église, il se détache
-d'elle. — :
 
 Mais d'autre part, il y tient, aux yeux des détachés,
 car il croit ce mouvement de l'Église chrétienne hété-
@@ -2440,7 +2167,6 @@ plus de l'histoire, mais de la théologie, et comme une
 transposition, selon les idées évolutionnistes, du Discours sur l'Histoire universelle...
 Aïnsi demeure isolé, du moins quant à présent, l'ingénieux conciliateur de l'absolu théologique avec l'histoire contingente et fluide.
 
-VI
 .
 
 M. Loisy reste cependant catholique, par adhésion
@@ -2462,7 +2188,6 @@ substance même de la pensée de M. Loisy se dissout.
 On ne concevrait pas qu'il se séparât. S'il en venait là, °
 75 5
 |
-(?
 
 catholicisme et critique
 c'est alors qu'on aurait lieu de dire qu'il se sépare de
@@ -2492,7 +2217,6 @@ crois qu'il ne l'abandonnera pas de si tôt. Pour quelle
 autre s'y résoudrait-il ? Pour le pur rationalisme, ou
 pour le christianisme réduit des confessions protestantes)?
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 Mais il a souvent énoncé que le rationalisme absolu
 lui paraît maigre, et décidément incompétent dans les
 choses religieuses. Excellent comme filtre de la tradition, le rationalisme ne saurait être la source de rien.
@@ -2518,8 +2242,6 @@ M profession, au point de jonction de la spéculation et de
 « la pratique, c'est-à-dire au nœud même de la philosophie. C'est pourquoi M. Loisy, philosophe et chrétien
 f spirituel, gardera toujours M. Loisy, historien de la
 _ religion, de résoudre cette histoire en un pur phénomé-
-à
-‘ 75
 
 | catholicisme et critique
 nisme. Au travers des phénomènes il saisit l'Esprit, qui
@@ -2551,9 +2273,6 @@ prouve du même coup qu'elle les passe en eflicacité, en
 vérité. L'étude des textes et le raisonnement sur les
 textes déterminent donc le symbole de foi. Terrible
 
-à 76
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 importance d'une généalogie d'idées : des conversions
 d'individus et de nations y sont suspendues... (Hâtonsnous d'ajouter que ceci n'est que théorie; car en fait,
 les habitudes héréditaires, les plis d'éducation, bref les
@@ -2580,8 +2299,6 @@ quelque doctrine spécifiquement chrétienne un bénéfice
 de priorité et de primauté, démontre qu'il la faut chercher dans les « paraboles », qui contiennent sûrement 1
 le germe déposé par le fondateur même; puis fait voir
 
-à 77
-
 catholicisme et critique
 que toutes les paraboles tournent autour du Royaume
 des Cieux, et de là conclut que la foi au Royaume
@@ -2607,9 +2324,6 @@ quence, mais par une conséquence de leur protestantisme même ?
 
 Ainsi l'auteur censuré de l'Évangile et l'Église demeure décidément catholique. Même il est peu de catholiques, parmi ceux qui osent toucher aux sciences, dont
 
-78 :
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 la foi soit en sûreté autant que la sienne. M. Loisy est
 préservé justement par ses conceptions singulières sur
 la vérité religieuse indépendante de l'exactitude historique, et sur le Développement chrétien : ces deux
@@ -2636,7 +2350,6 @@ plus fragile, en nos temps périlleux, qu'une belle orthodoxie complète et cris
 heurt. Au contraire, une foi qui est une disposition de
 } l'âme, qui ne résiste pas aux faits, qui ne craint pas les
 f faits, qui ne dépend pas des faits, contourne doucement
-à 79
 
 catholicisme et critique
 les obstacles et poursuit. Je me demande quelle tradition auguste, quelle définition dogmatique essentielle
@@ -2649,10 +2362,8 @@ d'un terme tendre et prudent qui laisse du jeu aux variations métaphysiques et 
 profonde, authentique de la sainte personne au dedans
 des âmes.
 
-Quel beau secret d'invulnérabilité M. Loisy eût pu ré-
 véler à ses coreligionnaires, s'ils avaient eu assez de
 compréhension des opportunités modernes ‘pour s'en
-saisir !
 
 Observez, en effet, par quels motifs, aujourd'hui,
 l'on se sépare de la catholicité, quand on s'en sépare
@@ -2667,7 +2378,6 @@ déconcerter la raison et soustraire à son contrôle une
 pelite section circonscrite de l'histoire générale, avec
 quatre ou cinq propositions métaphysiques réservées;
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 les autres, parce qu'ils jugent insoutenable l'exclusion,
 ; par une certaine Église, qui n'est ni la plus nombreuse
 qui soit au monde, ni la plus pure, mais moyenne et
@@ -2693,8 +2403,6 @@ dans une Église ainsi humanisée, sauf les raisons de
 sentiment (la douceur de communier et d'être soutenu) ;
 mais du moins on n'en aurait plus de graves pour la
 
-8r 5.
-
 catholicisme et critique
 quitter, si l'on y était né. M. Loisy offrirait donc à
 l'Église catholique, dans les pays où l'on naît catholique, le moyen de retenir, avec la force qui vient de l'organisation, la vie qu'apporte le libre esprit. Vous le
@@ -2712,7 +2420,6 @@ obscure! La bonne manière d'être catholique est de
 l'être par la grâce, sans peser ses motifs, par nécessité
 du cœur et sans idées trop claires.
 
-VII
 Ce n'est pas à nous, spectateurs et profanes, d'arbi-
 | trer ce débat. Il nous semblerait extrêmement curieux
 et d'infinie conséquence pour les destinées ultérieures
@@ -2759,9 +2466,6 @@ s'incorporer à la catholicité actuelle, ou mieux, sila catho- |
 licité actuelle a la force de s'incorporer M. Loisy, n'est
 pas de notre ressort. Que cette question soit d'un inté-
 
-8%
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 rêt passionnant, j'en conviens, et d'un intérêt universel,
 je lai dit; mais enfin, il serait impertinent aux profanes d'émettre un avis là-dessus. Témoin détaché, je
 m'abstiendrai décemment de prononcer quelle issue de
@@ -2776,8 +2480,6 @@ absorption habile, ou bien une belle condamnation
 franche. Je n'ajouterai donc rien, pour apprécier, pour
 me réjouir ou déplorer, ou faire un souhait. L'exposé
 analytique de l'affaire étant achevé, il est temps de me
-
-taire.
 
 Seulement je peux, sans offense à personne, présenter
 encore quelques remarques sur cette question annexe :
@@ -2811,14 +2513,12 @@ de M. Loisy fut accompagné, dans l'Église, d'une émotion très vive. N'est-ce
 les esprits, puisque l'entendre proclamer donne à beaucoup de fidèles catholiques une secousse, un émoi,
 comme si l'on tranchait quelque lien, — quand ce ne
 serait qu'un souvenir où un espoir, ou une possibilité
-derlhen?/2 |
 Mais voici une observation qui va plus avant: cette |
 vive émotion apparaît très diverse de nature, suivant
 que l'on considère dans l'Église (je veux dire dans le |
 clergé; en France, aujourd'hui, les deux termes sont |
 presque réductibles à un seul), soit les chefs, soit les
 
-, RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 simples clercs qui entrent dans la voie. Les premiers, à
 part trois ou quatre exceptions notables, ont déployé
 une forte et oratoire indignation, une réprobation solide
@@ -2864,8 +2564,6 @@ esprits est perdue. Quand et comment en retrouver une
 autre? Après quels tàtonnements anxieux, par quel
 acte d'intégrité, qui peut-être serait un acte d'impiété 7...
 
-VIII
-
 Examinons d'abord l'émotion des chefs de l'Église.
 
 Il faut convenir qu'elle n'est pas sans sujet, dès lors
@@ -2906,7 +2604,6 @@ cependant les recherches de science, autour de points
 de fait, soient libres.
 
 — Oui, mais l'Église, par succession de ses tâches |
-médiévales, assume plusieurs magistères ensemble. |
 Elle enseigne aussi les vérités de fait; on s'en vient au |
 sanctuaire non seulement pour se retremper le cœur,
 mais pour apprendre la date de la création du monde.
@@ -2914,7 +2611,6 @@ mais pour apprendre la date de la création du monde.
 Il y a une histoire officielle, il y a une science officielle
 catholique. La division entre le spirituel et le scienti90
 
-RÉFLEXIO S D'UN PROFANE SUR L'AFFAIRE LOISY
 fique n'est pas faite dans la conscience des catholiques ;
 elle ne s'accomplira qu'au prix de grands déchirements...
 
@@ -2923,7 +2619,6 @@ tend administrer aussi l'intelligence, est un corps lié
 par la spiritualité, non par l'intelligence : elle embrasse
 des états d'avancement intellectuel prodigieusement
 inégaux. On y trouve, en société avec M. Loisy, avec
-MM. Duchesne, Baudrillart, Lejay, Hemmer, Houtin,
 Vacandard, Turmel, Tixeront, les milliers de dupes de
 la fameuse Diana Vâäughan, et les milliers de « Croisés
 de Marie » de N.-D. de la Salette, qui professent que le
@@ -2942,8 +2637,6 @@ si on savait qu'elle se rationalise décidément par en
 haut. Va--elle donc se mettre, elle aussi, comme la
 science nouvelle, à ruiner les abris anciens ? Alors il
 sortirait du peuple quelque chose de plus populairement religieux, une religion autre, si la religion se fai-
-
-Hé
 
 catholicisme et critique
 
@@ -2972,8 +2665,6 @@ l'affamer, — argument qu'on n'emploie qu'à regret, car
 enfin il coûte à la charité; — mais pour le livre, il faut
 bien souffrir que l'auteur en soit le maître.
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
-
 C'est alors que les évêques, impuissants à faire taire
 l'importun, se sont tournés vers leurs ouailles, avec cet
 expédient proposé par un personnage de Molière : « Je
@@ -2987,7 +2678,6 @@ suranné et d'eflicacité faible.
 On pouvait prendre un deuxième parti : laisser
 tomber la conversation, laisser le critique monologuer;
 puis, comme n'ayant rien entendu, comme par un ressort spontané, professer des enseignements positifs qui
-impliquassent négation, nettoiement, anéantissement
 des thèses du critique.
 
 C'est le parti le plus romain. Rome en a essayé. La
@@ -3029,9 +2719,6 @@ côtés), a insisté encore pour que les exégètes fussent \
 
 |
 
-+ 4
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 circonspects et bons tacticiens contre les ennemis de la
 foi (dans son Encyclique du 8 septembre 1899, aux
 archevéques, évêques et au clergé de France). Gette fois
@@ -3060,7 +2747,6 @@ lui a trouvé encore une autre destination; par Lettre
 apostolique du 23 février 1904, il l'a convertie en un suprême jury qui, après examen, conférera des grades
 académiques in Sacra Scriptura aux clercs déjà nantis
 du doctorat en théologie; c'est donc une archi-université,
-a
 
 catholicisme et critique
 qui n'enseigne pas, mais qui contrôle. Le sûr, c'est
@@ -3092,7 +2778,6 @@ d'argumenter. Cette décision n'a-t-elle pas été rendue
 jadis? On nous fait espérer qu'elle sera renouvelée
 encore par les autorités compétentes ; il n'est donc pas
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 besoin de se fatiguer à raisonner. Un curé de Paris
 l'écrivait au journal l'Univers : « Nicée et Éphèse, dit-il,
 ont répondu à M. Loisy, il y a quinze et seize siècles, et
@@ -3157,9 +2842,6 @@ d'un savant capitaine ».
 
 Il faut mettre à part le tout petit groupe dont le Bul-
 
-6 à]
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 letin de Littérature ecclésiastique de Toulouse a publié
 les discussions. Ceux-ci ont soin de se tenir distants de
 M. Loisy, mais sans vouloir se mêler à la foule adverse.
@@ -3189,8 +2871,6 @@ qu'il y a quelque part quelqu'un qui ne s'y est pas
 rendu. Que ces discussions sont commodes, mais qu'elles
 sont vaines ! — L'autre critique-historien, le P. Lagrange,
 
-f 99
-
 catholicisme et critique
 est d'une franchise plus entière. IL accorde beaucoup à
 M. Loisy. Il se demande seulement si la conception que
@@ -3218,10 +2898,6 @@ dernier parti à embrasser? — Le plus long, et celui dont
 on à peur. Mais qui sait si le plus long ne serait pas
 encore le plus court, en tout cas le plus sûr, et bientôt
 
-‘1
-‘ [
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 le seul parti? Il s'agit, — l'hypothèse peut sembler folle,
 — il s'agit d'apprendre aux jeunes clercs qui en auront
 le goût sévère et la constance, comment conduire honné-
@@ -3249,8 +2925,6 @@ dans le clergé, vaut d'être signalée, car le principe en
 
 101 6.
 
-à
-
 catholicisme et critique |
 est très bon. Ce qu'on voudrait, ce n'est point doter des
 
@@ -3276,11 +2950,9 @@ l'essentiel, pour cela, est-il moins d'apprendre des
 
 choses nouvelles, que d'en désapprendre de vieilles : la |
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 rhétorique mondaiïne et l'infatuation dogmatique. Si l'on
 était entré seulement dans cette voie, alors, je Le crois,
 l'affaire Loisy perdrait de son acuité, le péril de la foi
-semblerait moins effarant.
 
 Mais combien de générations seront nécessaires pour
 en venir à cette mise en chemin? L'Église y viendra-t- ;
@@ -3320,7 +2992,6 @@ la religion à la mystique. Ce lui sera encore un beau
 champ que ce champ bien à elle. Les sondages y décou- |
 vriront sans fin des trésors, ou mieux, des abîmes, par |
 où les âmes songeuses, clientes nées de l'Église, seront
-longtemps fascinées. |
 On peut trouver en effet que les propugnateurs de la
 foi ont choisi maladroiïtement leur terrain. Ils mécon- |
 naissent la nature propre de la foi qu'ils défendent. Ce
@@ -3342,10 +3013,8 @@ terroger sur ces choses. Souvenons-nous donc que la Û
 mise du sentiment est de beaucoup la plus forte. Il ne |
 faut pas, si l'on est catholique, traiter le sentiment à
 comme une illusion. Ce serait faire preuve d'un intellectualisme borné. Le texte autour duquel on dispute ne :
-104 {
 |
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 contient pas en sa teneur même la vérité et la vie; il
 est seulement apte à la contenir, si on l'y met. Il en est
 comme de ces morceaux de roc qui paraissent luire
@@ -3355,30 +3024,14 @@ les emporte dans un cabinet de minéralogie, sous les
 lampes, — ce n'est plus cela, ce n'est plus rien; il y
 faut la lumière juste et la mer.
 
-ESA UD
-RTE AA AL A
-Do. Re LR A MTS AN
-RDA LU HUMAN Haba ARS
 MM ce ARENA PUS RARE TU CAE a fuel RAP 4 A Lux ja ( "à dit
-NME BAL ELAES AU CRE PTT ROUE Ro AUOT 1e qu
 Pa ra NAVAE IN NUE MAN ae PUR NCA ROUES AR RATE ANA DU oh
 . . 1 1 ARE FER Tu AAA ON HN EE ai ne VIRE
-e. 4724 nt AU TNE \NAAT IE THE CPE 2 CE 14 STE RANEE
 PANNE REY PRET ARE fe PA TN CT NCA MIN ARS ELON SA IT AN 1% Has D
-OUT ME a ao s À UE “7 EE) EPA PU SOU AE W
 0 ii je LA \ tant RU AN LAINE WRUANE MER j ñ
-ME) (RENE Ç Wen San ANTON nes AAA SHRNIE
-AS FUREUR En EUR PNA PA A ON DITES MANS ANT NES EAN é
-: NRC EE US a AE |Lf{ 147 SN 5
-ANR MÉRRUT UT DH UNMEUE PA DFE NIET nie (ner ie ; 2 R
 ANS HAN EP a LC 21 HS LUS RE PEN os otre ti f je he Des
 
 CEA 0 AN NE à DL STAR 4 NAS va (TR il AE ju ni ui V1 ï | %
-
-ET Era TE HAE FR ANNE SN FRONT CA AA AROEE, ‘AE EU
-ASE API RUES LE DAME ARE
-
-IX l
 
 Ceci nous ramène à observer le contre-coup de Paffaire Loisy dans la conscience des jeunes clercs, de
 ceux qui ont été, non pas indignés et catégoriques,
@@ -3386,7 +3039,6 @@ mais troublés. L'étude, ici, est délicate. Ayons soin de
 rester dans le général; considérons un jeune catholique
 du commun troupeau, en qui seulement le cœur soit
 fervent, et qui sache pourtant ce que c'est qu'une dé-
-monstration correcte.
 
 Pour cet adolescent, s'il est pieux et nourri de la tradition, accepter, après démonstration, les vues de
 M. Loisy sur la vie et l'enseignement de Jésus est chose :
@@ -3402,8 +3054,6 @@ d'avance, prévu et expliqué, se substitue l'investigation
 directe, laquelle nous poussera jusqu'ici ou jusque-là,
 ou plus loin. On est mis dans la nécessité de toucher
 
-catholicisme el critique
-
 de ses doigts, — et, qu'il s'agisse de textes ou de
 dogmes, avec l'intangibilité le caractère sacré s'en va,
 — on est mis en demeure d'opter, d'inventer, de tirer
@@ -3412,12 +3062,10 @@ Le catholique s'effraie de choir dans ce précipice du
 sens propre. Et le consentement à soi-même, principe
 du courage intellectuel, il ne l'a pas, car il ne s'approuve
 pas d'oser voir clair. M. Durkheïm l'a remarqué : « les
-représentations d'ordre religieux s'opposent aux autres
 comme les opinions obligatoires aux libres opinions. »
 Cesser de croire, pour le catholique, c'est mal faire :
 non licet. Cesser de croire, c'est encore se séparer,
 s'isoler, sortir de la fraternité dont on a mangé en commun les bons fruits et goûté en commun la bonne
-paix...
 
 Le labeur est aussi grand que le péril. Il fant avoir
 été commensal d'un prêtre pour imaginer à quel point
@@ -3429,8 +3077,6 @@ tel que le moindre changement, non dans les mots seulement du bréviaire, mais d
 associées de longue date à ces mots, entraîne un affolement véritable. Qu'on lise, par exemple, dans le livre
 de M. Houtin (page 229), la lettre qu'un curé adressa, le
 24 octobre 1887, à l'abbé Paulin Martin, lorsque celui-ci
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 
 eut démontré que le passage dit des Trois témoins
 célestes, dans la première épître de Jean, était interpolé ; le bon curé s'en épouvantait : la lecture de son
@@ -3448,16 +3094,11 @@ Comment résister à cela ? — Ajoutez que l'art chrétien
 concourt avec les formules liturgiques pour incruster
 dans l'imagination, pour inscrire sur la rétine les traditions anciennes de l'histoire de Jésus, conformément au
 Quatrième évangile interprété à la lettre. Lisez dans la
-vulgate Jean XIX, 5 : « Stabat autem juxta crucem
 Jesu mater ejus.. » Vous savez que cela s'est chanté et
 avec émotion profonde :
 
 Quis est homo qui non fleret
 
-Matrem Christi si videret
-
-In tanto supplicio?
-Quis non posset contristari.…. ?
 Maïs la vision âpre de Mantegna en a fait quelque
 chose de plus corporel encore, avec cette femme vieille
 109 7
@@ -3482,17 +3123,12 @@ lors un changement de foyer dans l'ordre de l'histoire
 et de l'exégèse amène la désagrégation d'un système à
 la fois mental, sensible et pratique. En vérité, il faut,
 au prix d'une initiative minutieuse et douloureuse, corriger tout l'instinctif de son activité, se changer à
-fond.
 Combien, après cela, il est improbable que, comme ;
 le veulent les évêques, les jeunes gens soient attirés
 aux idées de M. Loisy par suggestion, par mode, par |
 mollesse! Les suggestions agissent dans le sens contraire. Elles ne commenceraient à agir dans ce sens que 4
 si des autorités graves s'étaient déplacées dans ce sens. |
-:
-110 k
-à
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 Quant à présent, ce sont les périlleux et les laborieux
 qui vont à ce qui est péril et labeur. Et ils y viennent
 en surmontant quels obstacles ! Il faut donc qu'une force
@@ -3521,8 +3157,6 @@ ardente, une interprétation symbolique de l'histoire
 sainte s'est produite. Il peut nous sembler sec et sans
 prise sur le cœur, de concevoir que la mère de Jésus, —
 
-III
-
 catholicisme et critique
 amenée par le Quatrième évangile au pied de la croix,
 la femme dolente du Stabat, — n'est point Marie, la
@@ -3548,9 +3182,6 @@ court le plus fort, et pourtant, arrivé le premier, laisse :
 Pierre pénétrer le premier dans le sépulcre, cela signifie :
 qu'un premier christianisme judaïsant, moins fervent, “
 
-Fe;
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 a cependant passé le premier, et que le jeune christianisme hellénisant, auquel appartient l'évangéliste, après
 s'être effacé devant celui-là, le prime dans la foi. Cette
 émouvante histoire n'est donc qu'une allégorie. Mais
@@ -3577,7 +3208,6 @@ que je détache du texte johannique, dans le récit de la
 Passion, — XIII, 30 : « Et il était nuit... » C'est le moment où Jésus a dit à Judas : « Fais vite ce que tu as à
 faire. » Et, Judas sorti, Jésus, dont la fin est proche, va
 
-L'
 catholicisme et critique =
 dire : « Maintenant le Fils de l'Homme est glorifié.… »
 Avec l'interprétation historique, anecdotique, qui a
@@ -3606,9 +3236,6 @@ n'est pas finie. » (le Quatrième Évangile, page 638). Alors :
 les simples mots : « Et il était nuit », venant au point J
 que l'on sait, quand c'en est fait, et que Jésus s'aban- À
 
-\.
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 donne, retentissent avec un effroi religieux. Le fidèle,
 « fils de lumière », s'associe à l'appréhension de Celui
 qui est la Lumière du monde et murmure avec lui :
@@ -3619,14 +3246,12 @@ une songerie, sur l'éclipse du divin qu'il connaît bien, |
 et sur « l'heure » dont lui aussi voudrait être sauvé. —
 Voilà, je pense, un exemple à proposer aux chrétiens
 qui redoutent la critique comme un dissolvant de la
-piété.
 
 Au demeurant la piété, dans les âmes nativement
 pieuses, survit à tout, s'accommode de toutes les données de fait et renaît sous des formes imprévues. Qu'on
 lise le Quatrième Évangile de M. Loisy dans le cloître
 de San Marco, à Florence, et qu'on essaye si la discordance en est trop forte avec les nuances anciennes
 de la foi que l'Angelico a fixées sur la paroi de la Salle
-capitulaire. Y a-til vraiment rupture ?
 
 Ces sourires d'extase, ces froncements de sourcil où
 se lit l'effort pour comprendre, ces regards baïgnés de
@@ -3668,7 +3293,6 @@ dement assis, en costume blanc et noir de dominicain,
 
 116 ,
 
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
 baïssant sa tête tonsurée sur le saint livre et méditant, le menton appuyé sur son doigt; il est là présent,
 comme aussi Pascal au Mystère de Jésus ; c'est lui. Le
 cénobite fervent qui habita cette cellule, en écoutant
@@ -3683,7 +3307,6 @@ de M. Loisy. Si je l'entends bien, c'est, à ses yeux, un
 échantillon des systèmes apologétiques que la libre
 critique, une fois admise, permettrait encore aux orthodoxes. On pourra en concevoir une autre; peut-être
 même le faudra-t-il. M. Marcel Hébert a fait de celui-ci
-upe critique assez fortement fondée en logique.
 
 En faveur de cette hypothèse du Développement, on
 peut dire toujours qu'elle a plus de vraisemblance que
@@ -3724,10 +3347,6 @@ qui est né historien. Mais tous, gens de ce temps, nous à
 sommes aussi, comme lui, avec la puissance du coup ‘
 d'œil en moins, critiques et historiens.
 
-118 |
-
-RÉFLEXIONS D'UN PROFANE SUR L'AFFAIRE LOISY
-
 Il est donc probable que les esprits ne rétrograderont
 pas. Si la théorie du Développement chancelle, ce ne
 sera pas au profit de la vieille doctrine de la Révélation
@@ -3743,35 +3362,14 @@ l'alternative est aussi inexorable que le lui prophétisent
 ses supérieurs : ou la renonciation à la franchise de son
 jugement, ou la perte du trésor de consolations et
 de vertus qu'ont amassé pour lui cent générations
-d'hommes au cœur profond.
 
 D ne NE OR
-FD AREA VE Se ns TR NN er ju NANTES "Tr RÉ EERe
-à he RATS UE A ere P MMS Qt À ME RTE AP TER NICE NT ÉINIEREEENE ie
 RD OU UT Res VI MN EE ROTATION Ma
 1 ROSES CU ne fe. MS CE SL TELE
-LS RARES" 2 s M 5
-à | Tate } F * À AZ ÉNRIERSSS
-OR UT Le 2 (RUE TES AMENER NES
 5}, tes nn
-Mama Le à > 7: ANSE ONENE
-31 NN f ae ke RE 2: RENE
-EC IE SNA AVR à LS. MUC PANERS
-ALT ot : LS TENENE
-AT ER ‘ ? 1. FT MRRONIOE
-Se: + € $ À mes. SE EN TA
 HOT E nr - _ DE ai | Ne
-2 14 È 2 1100 ETS
-roue FPE
 TC SNRRE = TA en à
-Hi DT-NEUTEER S : A PAIE ARR
-FSC AND ES à ; ; Re TU
-LES PERS < ÿ VITE M
-PET Re M ee :
-‘5040 VAN de
-RE PUR ae PR ê Bo : Er5e TRES
 ATX NA l SLR Dane ne
-D dou.
 
 Le narrateur impassionné (ou qui n'est passionné que
 de comprendre), n'est point surpris que cette crise soit
@@ -3791,7 +3389,6 @@ que le dix-neuvième siècle opère avec sûreté dans tous
 les domaines, — la substitution du point de vue de l'immanence au point de vue de la transcendance, — il est
 clair que la secousse du déracinement doit être la plus
 
-L
 catholicisme et critique ï
 terrible 1à justement où la transcendance a son fort, |
 dans le christianisme catholique, où la scolastique est
@@ -3806,7 +3403,6 @@ fut le garant de la transcendance dans tous les autres
 ordres et qui a tiré de là sa prétention à la suprématie, |
 se refuse à ce découronnement et combatte comme ;
 pour la vie ?.. |
-!
 g Cependant, que les catholiques s'y prêtent ou qu'ils 1
 y fassent obstacle par un verdict de condamnation, qui, |
 désormais, serait un verdict sur eux-mêmes, — la pen- ‘
@@ -3814,37 +3410,25 @@ sée achèvera sa révolution. On peut déjà prévoir que, 4
 dans une génération ou deux, l'insertion de l'absolu
 dans la trame des faits ne sera plus même intelligible. È
 
-LRU A EURE
-DU M Ge BASSES AE RAS Rs DAS
 TRUE Le Fan apart Leu à A A SR ie .
 LANTA PENSE EE" EU nr à de ss .
 ET Net Aÿ, LS PAP RARE AE Li Tete ne HUE Fe ne |
-4 | er po a FRSCIES RL TL NES
-n + Re in us ‘ Fes
 D PR: HR Re de RARE nn Fe où A
 Et nr Vase NE EAU pre ee a
 | + a MAS NS ES se ln RU Ne SUR 5 Se DENTS SERA RÉ
 pe TE He CHEN A DA) A RAS PMNTESSE CRNES ES REP RE ne ia -
-Fo Fe PRE BE Rd RE E RAS “Ve à
 Fe ae sh on Ambre He A TT et RE TES ‘ane de
-15 es FPE RE É HENIC Se eNE AR RAR EN ARC D ï “
 ME GC: mÉRC (3 WE Apt ES PA Ne RAT AT CRE CARRE € AETRURS Pt CR TEE e FRE ce >
 ET Se ne De re nos nn .  _ |
 F L 0 in CON se ;
 RE AR be HE Se EN D'Ape le HA Ps . _. .
 mn CERN Horn Here puis ou. . à .
-La a es . 0 .
 +. a ss Pie SU EN A AE Ce FE EE RG
 à à : … La ee CR Se ae Rae FRE RTE be
 ONE vis Ro ENTRE D AUDE ANRT LC NA ren Re
 ‘ SR NES cn 4 He UN ct eo
-ER RS TRES Se RO APE PME EMA ARTS ARE Ar
-ES Hans LÉ AAS nn DA RAS at  : e
-Fr.  . a. Re Le a en  . “HA
 “A ER 4 ue Roue NET PR Sen FAIRE ee
 Pire Sie a FAN NU RUAE rer. La
-. | en Es RE
-2 NS NES AE RENE NRA os RL VA RMS HE RSR cr PU RAD RS SAR FERTE
 FRE D DD EE Ra de RE ES Nr CRE no
 r bte Ur I RARE UE NE SN OR “e PACE se Ve LA
 ARS Se: nur fa Hs es “al on È .. |
@@ -3854,54 +3438,31 @@ RÉ RE RES ss Ne PAM Ta He Apos En d VS + .
 D ANT ne D ou sur LR Sara nt . FD
 RS Re Jens fe GE AUS FAUNE ; A par A A |
 + ARE 1 RS SA PAPAS TN à ne HADER. ME RARE) ET de ANAL ASE
-ROME Te ASE a Re DEN Fe RE A TETA “ . ur à “1
 Le Fc ne Ha no)  . DE ses os RARES
 Ne SRE Han Re Ÿ dura SR Se AUS RU ha # PAS
 Re pare RE ni ee 5
-"e EEE PAREUE ALES Dr JR Rips ARRET > re LRRACES Se HAE Ste
 ; é A ua “et LEA HAS NE TE € AA CR AUS He Vree SEE LR
-di a Roi ae URSS
 Fans ORAN ER A DE RÉAL Fa NEA À | SMS re
 4 g D ri o Wa ne AA M DU Le Rte Lu :
-Me. re Med mere 7 A RARES er SNS sen NUE DR ñ
-e. De Hu ET Re A A NS Lo TS
 ne : ne et À AU: CHE HS LT 6 RER « DE
 dr Eee AE Are ci RE NUIT AP re AE Un
 Re ARE EE US NE? Ne Arte UE STE a
 L 5 D É Rae. LUE FRE CRE D ee LT Fa RL
 TA GPS pere FRE DAS in HEURE NT Re me
-Ps . FE ue
-Lune 16 » NS ARE
 
-CRIE FRA RENE D'UN Ru
 MR KL AA RAT A A Pas DO do % |
-D ed
-LU LEONE TAN NE UNT NE |
-FC NUNNEEN e S EL ANA SEE {
-TENTE Ë NT EU sl f
-bre Bee à : ê ETAT METRE Verne
 
-Ÿ ere ATEN, M,
 NE ‘el Dear e ê rte TOUS 1h
-HE GA N e ATEN ES Î
-
-1: OR nn |
-
-ee PAM |
-Ne à ù ) F5 CINE |
 
 DA Pa DRE je ARE
 
 Lie NTM : É : SIPREERT EEE Il
-
-Xe
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 
@@ -3921,7 +3482,6 @@ l'abonnement recommandé est de vingt-cinq francs
 pour la série; tous les cahiers de l'abonnement recommandé sont empaquetés à part et recommandés à la
 poste; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
-contre certains abus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
@@ -3933,22 +3493,10 @@ francs les vingt cahiers de la cinquième série complète.
 A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 
-\ # “ ; 8
-
-4 AA AT A EE AR A
-
-nn A NN
-RAS, Ÿ à À ï F2 NPA MER EN PRES
-
 2 a AN Re ENT NE PEAR EAN NAME ns MATE ñ
-
-LIOIAUES AT AP A A à TOUR ARR
-
-MA APE Na } PLUIE Jr CREER FU ANNE R IE ARE UNNMENE Se 4 EEE PLEINE
 
 au total des prix marqués; ainsi depuis le premier
 janvier 190 la cinquième série complète se vend
-quarante-sept francs.
 
 M. André Bourgeois, administrateur des cahiers,
 recoit pour l'administration et pour la librairie tous
@@ -3957,4 +3505,3 @@ heures à onze heures et de une heure à sept heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures.

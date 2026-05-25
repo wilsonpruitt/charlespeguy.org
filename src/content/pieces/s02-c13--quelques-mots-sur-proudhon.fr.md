@@ -7,9 +7,6 @@ author: georges-sorel
 isAvertissement: false
 wordCount: 12198
 ---
-
-*Georges Sorel*
-
 Dans la Petite République du mardi 22 janvier Jaurès
 nous a signalé « un très substantiel et très pénétrant ré-
 sumé de toute l'œuvre du puissant penseur et écrivain »
@@ -36,7 +33,6 @@ En jetant les yeux sur la bibliographie que Jaurès
 spécial pour le socialisme petit bourgeois; Pfoudhon serait tout
 fait bourgeois, d'après ce document. — Ces notes sont de M. Sorel.
 
-Georges Sorel 4:
 signale comme « très soignée », j'ai remarqué deux
 lacunes bizarres dans la liste des livres à consulter sur De
 Proudhon. M. Bourgin nous laisse ignorer que Marx a
@@ -68,7 +64,6 @@ n'a point exposé ce que Proudhon pensait du divorce.
 Pourquoi ne pas nous avoir fait connaître la conception
 de la vie que Proudhon a tant de fois développée ? Le
 travail est une émission de l'esprit, le privilège et la
-FS QUELQUES MOTS SUR PROUDHON
 Wgloire de l'homme ; il ne sera jamais attrayant, mais il
 peut être ennobli; il ira toujours en croissant etlhumanité ne dépassera jamais une honnête et décente pauvreté. Ces conceptions austères ne sont pas du goût de
 tout le monde aujourd'hui.
@@ -79,8 +74,6 @@ point été préparée au régime de la pure morale par une
 préparation protestante, et, si l'on veut éviter une re- .
 chute en mysticisme et même en superstition, le moyen
 le plus efficace est de conserver, autant que les principes de la Révolution le permettent, le ministère ecclé-
-
-siastique. » (Justice, tome VI, page 342.)
 
 Je ne relève pas d'autres omissions de détail ; il y
 en aurait trop ; mais je me demande pourquoi M. Bourgin n'a pas analysé la fameuse brochure : La révolu-
@@ -101,7 +94,6 @@ régulier. Contre Les déviations et les compromissions
 (comme on dirait aujourd'hui), Proudhon proclamait
 la nécessité d'une scission et disait : « Dans cette com4 93 ”
 
-Georges Sorel
 binaison étrange d'autorité monarchique et d'anarchie
 capitaliste et mercantile qui constitue l'ordre bourgeois,
 l'opposition au pouvoir apparaît comme partie inté-
@@ -133,14 +125,12 @@ l'importance qu'il attachait aux formes légales etl'opposition qu'il fit à la 
 . L'influence de Proudhon n'a pas été très grande
 jusqu'ici sur le socialisme français: les idées fédéralistes
 
-F QUELQUES MOTS SUR PROUDHON ë
 qui se manifestèrent dans l'Internationale, auraient pu j
 se produire en dehors de lui, car elles avaient des ori-
 gines historiques; — mais l'influence de Marx n'a pas
 été bien notable non plus. f
 Je crois que le moment est venu où les idées proudho- K
 niennes, après avoir exercé une grande action sur la
-pensée bourgeoise contemporaine, vont devenir con-
 sidérables pour l'avenir du socialisme. La question
 fondamentale qui est posée actuellement, celle qui se
 cache sous les apparences des querelles des écoles, est
@@ -149,7 +139,6 @@ Waldeck-Rousseau (1) sont les représentants de cette
 doctrine, qui a pour elle la tradition monarchique de la
 France. On a déjà signalé ici le danger que présente le t
 réveil de l'esprit saint-simonien parmi les intellectuels Hi
-venus au socialisme (2). k
 Les réformes qui se font partout peuvent aboutir
 des résultats bien différents les uns des autres suivant
 les idées que le prolétariat se fera de son rôle ; elles
@@ -166,7 +155,6 @@ d M. Millerand se proclame le fidèle et modeste collaborateur de l'œuvre
 sociale poursuivie par le Président du Conseil (Débats, 19 janvier 1901).
 A Lens il avait fait un pompeux éloge des œuvres de paix sociale des
 patrons ; il y aurait tout un catéchisme de paix sociale à tirer de ses
-‘ improvisations. .
 (2) Voir le quatrième cahier de la deuxiéme série.
 
 Vin: lution, armé pour la } révolutionnaire, il lui est [4
@@ -197,11 +185,9 @@ tête, fier Sicambre ; adt 1e tu as brülé et brûle ce
 que tu as adoré ». Mais pas l'empire des Gaules At:
 qu'il recevrait pour récc de son baptême... il
 stituer le parti de la on. — Œuvres complètes, Hu
-ñ tome VIII, pages 206-207 en 1863) (ll
 . La vraie, l'unique ques re le parti de la foi et Le ll
 parti du progrès est la q morale, dans laquelle nous (LA
 sommes certains de suecr { nous nous condamnons Ha
-Georges Sorel sidi
 timent du droit et poursuivent l'émancipation de leur
 classe sur le terrain des organisations économiques.
 Dans ce cas, ils seront fidèles aux idées de Proudhon.
@@ -222,14 +208,10 @@ qui s'est tant préoccupé des questions de politique
 si ardemment l'équilibre européen créé par les traités
 de 1815. — Je n'ai pu trouver aucune indication sur ces
 questions si graves dans le résumé de M. Bourgin.
-GEORGES SOREL
-RÉFÉRENCES
 Proupnox. La Fédération et l'Unité en Italie. — Œuvres
-complètes, tome XVI, page 137 (écrit en 1862)
 - Quelle que soit l'opinion d'un homme d'État en matière
 de foi, à moins qu'il ne serve un gouvernement de révo- »
 
-UE QUELQUES MOTS SUR PROUDHON 3
 lution, armé pour la propagande révolutionnaire, il lui est
 défendu d'agir sur la pensée et les institutions religieuses
 et nommément de trancher, au détriment du Saint-Siège,
@@ -244,7 +226,6 @@ ment sur les intelligences libres, est ici compétente. Tout ;
 +. ce que peut un gouvernement ordinaire, obligé à la tolé- PAR CRE | »  rance des opinions et des cultes, est de laisser faire au temps ?
 - et de s'abstenir de toute initiative. Des brouillons mena- Lo
 - cent la Papauté de schisme, voire même de protestantisme; 5
-quelques-uns, flatteurs à outrance, proposent à Napo- À
 léon IN de se déclarer le chef du spirituel aussi bien que
 - du temporel. On peut juger, d'après ces rêves, du désarroi
 - des esprits. Le schisme, s'il était sérieux, je veux dire s'il
@@ -262,12 +243,10 @@ que tu as adoré ». Mais ce n'est pas l'empire des Gaules ïl
 qu'il recevrait pour récompense de son baptême...
 . Proupnox. Du principe fédératif et de la nécessité de recon-
 stituer le parti de la Révolution. — Œuvres complètes,
-tome VIII, pages 206-207 (écrit en 1863)
 à La vraie, l'unique question entre le parti de la foi et Le
 parti du progrès est la question morale, dans laquelle nous
 “… sommes certains de succomber et nous nous condamnons
 
-Georges Sorel
 nous-mêmes en faisant à notre antagoniste une guerre
 déloyale, et en joignant à la spoliation (1) l'hypocrisie. Ce
 qui soutient l'Église contre toutes les attaques et qui fait
@@ -280,8 +259,6 @@ haut ni d'en bas ne soutient plus; c'est le matérialisme de
 
 notre enseignement; c'est l'abandon de la pensée révolutionnaire remplacée par le plus détestable pharisaïsme
 c'est notre impur romantisme et notre libertinage voltai-
-
-rien.
 
 À Je crois et j'attends la fin de la papauté temporelle puis-
 
@@ -312,11 +289,7 @@ mœurs (2) et d'une coterie sans principes. .
 . (1) Cet écrit est une polémique à propos de l'unité italienne et du
 pouvoir temporel du pape.
 
-(2) Allusion évidente aux derniers saint-simoniens. .
-
-3 ;PRS QUELQUES MOTS SUR PROUDHON d
 Proupuox. De la justice dans la Révolution et dans l'Église,
-tome IV, pages 240-243 (écrit en 1856) ,
 Le premier sentiment que l'homme éprouve à la vue de ne
 la femme est tout d'amour ; il ne s'y arrêtera pas longtemps.
 De l'ivresse des sens il passe rapidement à l'adoration de
@@ -351,7 +324,6 @@ assister dans nos transactions de quelque conseil : de tout
 temps elle a pris pour elle la portion la plus douce du
 travail... Quant à sa justice, il en est comme de sa philok ' 29 IL.
 
-Georges Sorel
 sophie : elle n'en a pas d'autre que la religion. La femme ?
 qui prie est sublime (1) : homme à genoux est presque « aussi ridicule que celui qui bat un entrechat. r
 
@@ -390,9 +362,6 @@ même entre fiancés, même entre époux, est messéanie,
 de la pratique du devoir social.
 - (1) Madame Ackermann fut, un jour, scandalisée de voir un crucifix suspendu dans la chambre de madame Proudhon.
 
-DOSSIER
-JEAN GRAVE ET URBAIN GOHIER
-Paris, avril 1901
 Mon cher Péguy
 Tu m'as demandé de mettre au point le différend
 qui s'est élevé entre Jean Grave et Urbaiïn Gohier? Je
@@ -420,7 +389,6 @@ souvent en désaccord avec lui sur des questions de
 principes et de tactique pour être en état de parler de
 lui sans partialité. J'aurai à citer de longs textes,
 
-Ludovic Marchand Ave
 tout en me bornant aux principaux. Je sais que c'est la
 méthode des Cahiers. À mon avis elle est bonne.
 La querelle commença à propos de réunions faites en
@@ -451,7 +419,6 @@ certainement nous sommes d'accord, il faut arrêter cela;
 nous profiterons d'une occasion pour nous rendre mutuel-
 - lement justice. Envoyez-nous un article, nous l'insérerons ;
 ça ne sera pas la première fois du reste.
-JEAN GRAVE ET URBAIN GOHIER
 
 Il faut avouer que l'attitude de Vaughan paraît ici
 très louable. Grave eut sans doute tort de ne pas en-
@@ -470,7 +437,6 @@ Dans son article de jeudi, Gohier parle d'industriels de
 l'anarchie. Voudriez-vous lui demander d'éclairer sa lanterne, et de nous dire qui il entend désigner par là?
 
 Bien cordialement
-JEAN GRAVE
 
 Cette lettre causa la rupture définitive. L'Aurore la
 
@@ -498,7 +464,6 @@ louer largement les devanciers déjà célèbres. 11 en oublie.
 
 Il y a notamment le bâtard de journaliste arrivé et influent
 
-Ludovic Marchand sn
 — la presse aussi a ses fils d'archevêques — qui, pistonné
 par papa, voit s'aplanir toutes les difficultés du début. Gé-
 néralement vaniteux et insolent, ne tolérant aucune contradiction, il n'a pour qui lui déplaît qu'injures et violences.
@@ -523,12 +488,9 @@ la parole. Au nom de l''Anarchie, c'est Jean Grave.
 , Voilà fixé, pour l'Histoire, un point important.
 Anarchiste respectueux de la voie hiérarchique, Jean
 Grave me pose une question par l'intermédiaire de mon
-Directeur.
 De Directeur à Directeur.
 — Qu'est-ce que j'entends par les industriels de l'Anarchie ? k
 ASE — Les mots l'indiquent. J'entends ceux qui font de l'anarchie une industrie, une lucrative industrie, et qui ont quitté
-dure ; :
-JEAN GRAVE ET URBAIN GOHIER
 le petit métier dont ils vivaient très mal, pour vivre très
 bien de la propagande anarchiste.
 
@@ -546,8 +508,6 @@ Je ne suis pas mécontent de cette petite querelle avec les
 Autorités anarchistes. Les gens malintentionnés m'ont
 quelquefois représenté comme un anarchiste. On voit bien
 que je n'en suis pas un, puisque j'ai contre moi les personnes qui décernent le diplôme.
-
-L
 
 Il n'y a encore là que des insinuations, de petites
 méchancetés, rien d'irréparable. Je remarque simplement qu'il était assez naturel de la part de Grave de
@@ -567,26 +527,20 @@ février, l'Aurore publia, en première place, un grand
 
 article de Gohier qu'il est nécessaire de reproduire in
 
-extenso
-d4 CABOT D'ANARCHIE
-
 LL Pendant deux années de bataille, depuis la première réu-
 
 nion dreyfusarde jusqu'à la grande journée de Longchamp,
 
 bs nous avons eu des compagnons anarchistes dans le camp
 
-Ludovic Marchand
 de la vérité. C'est eux qui ont supporté le premier choc
 des bandes nationalistes, quand les masses socialistes demeuraient encore incertaines. À Chalon, ces jours derniers,
 les compagnons anarchistes offraient, avec une sombre
 énergie, leurs poitrines aux baïonnettes de la Défense
 républicaine. Cinq anarchistes ont été empoignés dans
 leur domicile, au saut du lit, par les estafiers du ministère
-Waldeck-Millerand.
 
 Ces hommes sont des braves, qui paient toujours de leur
-personne.
 
 Ily en a d'autres qui prennent le nom d'anarchistes et
 qui s'en font des rentes : les cabotins, les industriels de
@@ -610,7 +564,6 @@ l'état-major de la rue Mouffetard et le pape de la Montagne
 Sainte-Geneviève ne m'effraient pas plus que l'état-major
 de la rue Saint-Dominique ou le pape du Vatican. Voyezvous que j'aie chassé Boisdeffre du ministère et bravé la
 Société de Jésus pour subir les. sévérités de M. Jean Grave,
-ci-devant savetier, « tombé » journaliste ?
 Ce publiciste éminent nous reproche de manquer d'artuments. Nous devons en avoir, puisqu'il les prend et fabrique
 son « canard » à coups de ciseaux dans notre journal. En
 voici quelques autres qu'il ne nous empruntera sûrement
@@ -620,7 +573,6 @@ il est directeur et rédacteur de journal, marchand de papier,
 publie celles des autres.
 Nous avons une collection de ses autographes : ils “
 
-: _ JEAN GRAVE ET URBAIN GOHIER ‘
 abondent en termes orduriers, mais sont dépourvus de
 syntaxe et d'orthographe. Rien de plus naturel chez un ea
 ouvrier ; rien de plus grotesque chez un auteur, un littérateur, un intellectuel! Or, celui-ci publie des volumes qu'il
@@ -659,14 +611,10 @@ dégoûtés pour toujours des individus qui se sacrifient,
 Protégeons-nous de ceux qui se sacrifient pour nous autant que de
 j nos ennemis.
 
-Ludovic Marchand
-
 Qu'il soit prince, balayeur, évêque, général ou tondeur
 
 de chiens, l'homme qui pense ainsi ne peut être qu'une
 ._ créature méchante et vile.
-
-J'ajouterai deux faits.
 
 En février 1894, M. Jean Grave figurait parmi les accusés
 du procès des Trente. Dans une affaire politique, on ne
@@ -677,8 +625,6 @@ eut pour défenseur M. de Saint-Auban, avocat de la Libre
 effréné. La conclusion me paraît limpide. On l'aurait tirée
 pour moi si, dans le procès de l'Armée contre la Nation,
 j'avais demandé le secours de M. Joseph Ménard ou de
-
-x M. Auffray.
 
 . Depuis que je lutte sans reläche et sans merci contre les
 prétoriens et contre les jésuites, je n'ai pas été insulté dans
@@ -699,7 +645,6 @@ anarchistes se mettre au pain sec pour huit jours, et payer
 vingt francs l'entrée au pesage, pour se trouver au plus
 
 chaud de la mêlée, pour avoir affaire aux ennemis les plus.
-huppés. -
 ñ Dès le matin, M. Jean Grave avait filé dans les bois de
 Meudon, malgré les remontrances des autres. L'industriel
 qui fait métier d'aiguiser les couteaux et de charger les
@@ -710,8 +655,6 @@ rentra dans Paris, pour savoir si les hommes qu'il vilipende
 - avaient sauvé sa liberté et son commerce.
 Voilà le Pape anarchiste, le Rochefort de la dynamite.
 C'est ça qui fait peur aux bourgeois!
-‘JL AR FUN RE ESA
-JEAN GRAVE ET URBAIN GOHIER
 Drôle de temps tout de même, où l'on appelle socialistes
 les gens qui fusillent les grévistes, qui envoient des armées
 à la croisade, qui vendent des Légions d'honneur, qui banquettent avec Schneider et s'agenouillent au saint sacrifice
@@ -720,10 +663,8 @@ du roi d'Espagne, clients de la Société de Jésus et de la
 Patrie française, chasseurs de grouses en Ecosse, habitués
 de la Côte d'Azur et pique-assiettes des châtelains! x
 Comme il serait beau, le socialisme, sans les repus et les j
-exploiteurs !
 Comme elle serait séduisante, l'anarchie, sans les saltim- ,
 banques et les ventrus!
-URBAIN GOHIER
 Tel est l'acte d'accusation. Les abonnés des Cahiers, EE,
 qui ont lu le Danton de Romain Rolland, y retrouveront ,
 le système de Fouquier-Tinville. Je veux reprendre et
@@ -742,8 +683,6 @@ petit métier dont il vivait très mal pour vivre très bien
 de la propagande anarchiste : il gagnaït de meilleurs
 mois comme ouvrier mécanicien qu'il n'en a comme
 secrétaire des Temps Nouveaux.
-
-Ludovic Marchand
 
 Je ne peux pas répondre à ceci : que les farceurs
 anarchistes ont tiré dans le dos des défenseurs de la
@@ -781,7 +720,6 @@ sérieux. Ajalbert m'a devancé pour une réponse ; car je ÿ
 - savais, et beaucoup de camarades savaient que Grave
 n'avait choisi M° de Saint-Auban comme avocat dans le !
 Procès des Trente que sur la recommandation d'Ajal-
-He, JEAN GRAVE ET URBAIN GOHIER
 bert, avocat ordinaire de la Révolte. Gohier a dû en
 convenir dans l'Aurore du 4 mars. Je veux lui faire
 noter encore qu'Émile Henry fut défendu, très mal ilest
@@ -814,7 +752,6 @@ ne regarde pas Gohier, cela ne regarde personne. L'hiver,
 ilest vrai que Grave se rend quelquefois à Nice, ou au
 moins dans les environs. Ce n'est pas un privilège à son
 
-Ludovic Marchand
 seul usage ; d'autres compagnons ont pu profiter de la
 même hospitalité, sans toutefois que la jouissance de
 la villa incriminée soit un commencement de communisme ; la personne qui en est propriétaire la réserve
@@ -849,8 +786,6 @@ vent, malgré lui, parfois sans le savoir, incorporé dans
 
 une foule de comités, de ligues, de sociétés, d'associations, d'unions, de fédérations. Cela n'a pas toujours
 grande conséquence. Gohier est-il bien sûr même que
-LR NES ER
-JEAN GRAVE ET URBAIN GOHIER
 ce pauvre gamin de roi se doute qu'il est l'associé de
 Jean Grave ? Et quand cela serait, qu'est-ce que cela
 prouverait ? Gohier refuserait-il d'entrer dans une
@@ -865,7 +800,6 @@ Je ne vois pas davantage que Grave puisse être rendu
 responsable de la mort des guillotinés. Je n'ai pas lu
 tout ce qu'il a écrit; mais dans ce que j'en ai lu, je ne
 merappelle pas avoir trouvé une provocation précise
-au meurtre. Grave a pu se prononcer autrefois en faveur
 de la propagande par le fait, des moyens violemment
 révolutionnaires. Mais Gohier, moins que personne,
 peut le lui reprocher. Tous les jours, en effet, il nous
@@ -886,7 +820,6 @@ comme l'a fait Gohier dans l'Aurore du 8 mars, qu'il ne
 se trouverait pas là dans toute autre occasion où il faudrait payer de sa personne. Je soutiens d'abord qu'il
 n'y a pas un militant, dans un parti quelconque, qui ne
 
-Ludovic Marchand
 se soit trompé, au moins une fois, sur l'importance probable d'une manifestation, qui n'ait cru pouvoir sacrifier
 la manifestation à une affaire personnelle. J'affirme
 ensuite que dans d'autres occasions Grave a fait toutson
@@ -903,7 +836,6 @@ la soirée, avant le gouvernement, que le coup d'État
 nouveler les journées de juin 48. Immédiatement un certain nombre d'hommes résolus se trouvèrent presque
 instinctivement réunis dans le quartier des journaux, 1
 prêts à organiser la lutte. De l'Aurore on envoya vers
-M. Brisson deux personnages importants; M. Brisson k
 prit des mesures et le complot n'eut même pas un com-
 mencement d'exécution. Mais il subsiste ceci, que, sans
 tergiverser, un certain nombre de camarades se trouvèrent prêts à assumer toutes les responsabilités : Grave
@@ -923,10 +855,8 @@ pu attaquer de vrais coupables. — Après l'article de
 Gohier, Grave déclara que ceux qui le connaissaient
 savaient à quoi s'en tenir, que l'opinion de ceux qui
 pouvaient croire Gohier sur parole lui semblait négli- À
-geable. d
 Gohier cependant ne s'arrêta pas. Le 4 mars parurent
 dans l'Aurore les lignes suivantes :
-MYSTÈRE ÉCLAIRCI
 Tout finit par se découvrir. On sait que les grands
 événements de l'Histoire ont toujours été provoqués par
 de petites causes. ;
@@ -946,8 +876,6 @@ Il a proposé sa collaboration, naguère, à l'Aurore, et
 l'Aurore n'en a pas voulu !
 ? Quand notre principal rédacteur nous a quittés, M. Jean
 Grave s'est offert. L'Aurore a répondu: « Zut! » On se
-tordait.
-Ludovic Marchand 2078
 De là cette haine redoutable.
 
 - On pourra s'arranger. A la reprise des affaires, nous
@@ -964,8 +892,6 @@ ne faisons pas chanter le bourgeois.
 s'intéressent à la propagande du farouche dynamiteur,
 associé de S. M. le jeune roi d'Espagne : mais elles ne
 s'intéressent pas à la nôtre. -
-
-LES
 
 P.-S. — Tous les renseignements que j'ai publiés dans
 mon article de dimanche sont littéralement exacts.
@@ -988,10 +914,8 @@ profession manuelle d'un homme pour se moquer de lui
 quand il essaye de publier ce qu'il pense. Est-ce que
 le droit d'écrire serait un apanage ? Ce qui me choque
 
-panas q q
 surtout c'est ce persiflage féroce et meurtrier. Gohier a
 
-JEAN GRAVE ET URBAIN GOHIER P,
 dépassé là les bornes, si large que l'on conçoive le
 champ de la polémique. Si Grave a eu les premiers
 torts, — et je n'ai pas hésité à le montrer, — ces torts
@@ -1021,8 +945,6 @@ serviçe rendu par l'agitation des années dernières avait
 été de débarrasser le socialisme de tous les éléments
 démagogiques qui l'avaient encombré jusque-là. Ces
 
-3 : TAC ne
-Ludovic Marchand
 éléments d'inconscience et de brutalité sont allés se
 jeter dans l'antisémitisme et le nationalisme : c'est
 normal, c'est un bien pour notre cause. Mais qu'on
@@ -1035,7 +957,6 @@ tous ses lecteurs lui demeurent attachés en raison de la
 montrèrent ses rédacteurs, permanents ou occasionnels.
 Le passé de l'Aurore doit nous garantir que nous ne
 sommes pas dupes d'une illusion.
-Ludovic Marchand
 Ludovic Marchand est du groupe des Étudiants Socialistes Révolutionnaires Internationalistes. Nous avons .
 en dépôt à la librairie des cahiers les brochures dece
 groupe et celles des Temps nouveaux.
@@ -1047,12 +968,8 @@ est un dossier pour servir à l'histoire intérieure de la
 Coopération des idées. Nous n'avons mis dans ce dossier
 que les documents qui marquent pour la Coopération
 des idées le commencement et la fin de cette année
-ouvrière.
-DOSSIER
-LE PALAIS DU PEUPLE
 La Coopération des idées du samedi 7 juillet 1900 c
 publiait cet article de M. Gabriel Séailles : s
-LE PALAIS DU PEUPLE
 Deherme poursuit son œuvre : les résistances et les
 obstacles, loin de l'arrêter, lui font plus vivement sentir
 la nécessité de faire ce qui doit être fait. Le mal n'est .
@@ -1062,7 +979,6 @@ derai d'opposer à l'homme d'action les conseils d'une
 sagesse timide, hésitante : il faut sans doute qu'il )
 tienne compte des circonstances, qu'il prévoie les diffi- Ÿ
 ! cultés, mais il est seul à savoir ce qu'il peut mettre d'intelligence, d'énergie, de courage au service de son
-œuvre.
 La Coopération des Idées était une bien petite chose,
 alors que nous l'inaugurions dans notre petite salle de
 la rue Paul-Bert ; non seulement elle a grandi, mais elle
@@ -1074,7 +990,6 @@ Elles ont rapproché les travailleurs intellectuels et les
 travailleurs manuels, elles leur ont montré qu'ils étaient
 faits pour s'entendre, qu'aucun intérêt ne les sépare,
 
-Gabriel Séailles
 qu'un commun amour de la justice et de la vérité les
 rapproche. Elles ont prouvé que l'élite ouvrière, dans ses
 revendications légitimes, poursuit autre chose que des
@@ -1105,7 +1020,6 @@ qu'elle sera fondée par des travailleurs, qu'elle se reliera
 par les œuvres connexes qu'elle aura rendues possibles, j
 qu'elle symbolisera ainsi l'accord fécond des esprits et
 
-LE PALAIS DU PEUPLE
 des volontés. La coopération des idées n'a de sens que
 par la convergence des efforts.
 Qu'on ne se trompe pas sur ma pensée ; je ne veux
@@ -1142,7 +1056,6 @@ pas ramenés en arrière. Les vérités que nous croyions
 acquises sont' contestées ; les vieilles superstitions
 renaissent, les haines nationales se réveillent, les pas- Œ
 
-Gabriel Séailles
 sions religieuses s'exaspèrent, le fanatisme, combiné
 avec l'incrédulité, avec ‘les soucis d'un égoïsme
 envieux, ajoute à sa laideur sans rien perdre de sa wiolence. Beaucoup, qui avaient compté sur le nouveau
@@ -1178,8 +1091,6 @@ lutte contre le mal sous toutes ses formes. Elle doit » donner au prolétariat 
 
 chose pour lui-même. Sans direction commune, ses
 
-Fa forces se perdent, se dispersent, se contrarient; com-
-
 posées en une même résultante par l'association, elles
 
 deviendraient irrésistibles. Mais l'association ne se.
@@ -1209,8 +1120,6 @@ Le Palais du Peuple répond à cette volonté d'agir,
 à cette résolution de commencer. Centre des œuvres
 populaires, il faut que tout à la fois il facilite l'unité
 Le. . d'action et que déjà il en soit comme la représentation
-
-Gabriel Séailles ; FA:
 
 symbolique. S'il s'élève uniquement par la générosité
 
@@ -1266,7 +1175,6 @@ de la beauté, s'ils sont autre chose que des magasins
 et des bazars, s'ils répondent à un idéal nouveau, et
 à À SNS SULEE # du dès tait ; OR ARRET Mes dé de ji dre VERITAS
 s'ils le manifestent : la volonté de réaliser la justice
-ici-bas.
 Mais n'allons pas imaginer que cela sera parce que
 à cela doit être en vertu des lois de la sacro-sainte évoluj tion. Ilest d'autres possibles. Des esclaves ne fonderont
 pas la société libre. De la laideur des âmes jamais ne
@@ -1282,7 +1190,6 @@ pouvons dresser nos tréteaux, battre la caisse, faire la
 parade, devant une toile peinte évoquer les mirages de
 l'avenir; demain, il n'y aura rien que ce que nous aurons
 fait aujourd'hui.
-GABRIEL SÉAILLES
 Nous reproduisons les affiches que la Coopération des
 idées fit apposer au commencement de la présente année
 scolaire. Sur l'affiche de l'Université populaire, nous
@@ -1299,12 +1206,8 @@ i du Peuple est ün si beau nom.
 
 Dans le même numéro du samedi 7 juillet Za Coopé-
 ration des idées publiait cette déclaration
-LE PALAIS DU PEUPLE
-
-SOCIÉTÉ ANONYME A CAPITAL VARIABLE
 
 Constituée légalement à Paris le 14 juin 1900
-PRÉAMBULE
 
 Nous ne sommes pas une secte, un parti. Nous ne gardons
 aucun dogme. Nous n'avons qu'un but : organiser la démocratie, l'éclairer, la défendre. Et c'est en continuant l'action
@@ -1330,7 +1233,6 @@ ne constituons plus alors qu'un amas confus, amorphe,
 d'individus en lutte, ouverte ou sourde, les uns contre les
 autres, où la victoire n'est même pas assurée aux plus
 forts, aux plus vaillants ; mais presque toujours aux moins
-généreux, aux moins scrupuleux.
 
 Mais les victimes, à mesure qu'elles deviennent plus nombreuses, élèvent leurs voix. Leurs clameurs se font plus
 
@@ -1339,7 +1241,6 @@ raison, l'humanité ne peuvent plus unir les hommes, iln'en
 est pas de même de l'envie et de la haine exacerbées. Les
 foules entrevoient alors la possibilité d'opposer leur masse
 
-LE PALAIS DU PEUPLE a:
 indisciplinée à la force sociale organisée pour l'oppression.
 tort, ou à raison, elles se sentent en dehors de la société,
 
@@ -1361,7 +1262,6 @@ riche de l'ensemble, tout ce qui était épars, dissous ; pour,
 aussi, harmoniser ce qui était antagonique.
 
 Le Palais du Peuple est un premier effort d'organisation
-sociale.
 
 Ce sont des pierres qui marquent les étapes successives
 de l'humanité. L'antiquité a dit son rève de beauté par ses
@@ -1382,8 +1282,6 @@ La façade et les sous-sols seront destinés aux magasins
 des coopératives, aux bains, à une salle de lecture pour les
 passants, à un café de tempérance et à un grand restaurant
 
-coopératif pouvant contenir 200 personnes.
-
 Au centre sera le théâtre contenant 1.500 spectateurs.
 
 Nous ferons le Théâtre populaire qu'on attend : il n'est réa-
@@ -1399,8 +1297,6 @@ fera l'éducation physique, on travaillera joyeusement au
 développement harmonique du corps (1).
 Enfin, au fond de ce rez-de-chaussée, on installera un hall
 pour la récréation des enfants et des jeunes gens et une
-
-salle d'escrime. j
 
 Au premier étage, ce seront d'abord des petits et grands
 bureaux et salons qu'on louerait à différentes sociétés ouvrières : cercles d'amis, mutuelles, syndicats, coopératives,
@@ -1434,7 +1330,6 @@ serviront à compléter un enseignement technique solide.
 on veut fumer on fume, et l'on ne dit pas que l'on travaille joyeu-
 ! sement au développement harmonique de son corps:
 
-FR LE PALAIS DU PEUPLE
 Enfin, au troisième étage, nous aurons de petites chambres,
 chauffées, éclairées, meublées sommairement, mais d'une
 rigoureuse propreté. Elles seront louées pour un prix modique à de jeunes ouvriers célibataires auxquels la proximité des garnis louches est souvent funeste, Un escalier
@@ -1452,10 +1347,8 @@ mocratie et une raison de vivre.
 Nous convions tous les hommes de bon vouloir à se
 joindre à nous :il n'y a pas d'œuvre plus urgente, plus <
 essentielle, plus belle, plus féconde que celle que nous
-allons entreprendre. F j
 “ Puis La Coopération des idées donnait la composition du
 
-À COMITÉ DE PATRONAGE
 à MM. Pierre BAuDIN, ministre des travaux publics (1).
 ‘4 Henri BAUER, homme de lettres.
 EF Maurice Boucuor, homme de lettres. x
@@ -1468,29 +1361,20 @@ L_ présentent. La même remarque s'impose pour les témoi-
 gnages dont nous voyons que les signataires ont accom-
 pagné l'envoi de leur signature.
 
-« + PIN LAS CRE NAS RENE
-- ; tué: ce
 treizième cahier de la deuxième série
 MM. Ferdinand Buissox, professeur à la Sorbonne.
-Eugène CARRIÈRE, artiste peintre.
 Victor CHARBONNEL, homme de lettres.
 Georges CLEMENCEAU, homme de lettres.
-Docteur DELBET, député.
 Hector DEpasse, homme de lettres.
 Lucien Descaves, homme de lettres.
-Paul DEssaRDINS, professeur au lycée Michelet.
 Docteur Paul Duguissox, médecin-chef de l'asile
-Sainte-Anne.
 Émile Ducraux, membre de l'Institut, directeur
 de l'Institut Pasteur.
 A. Esrivas, professeur à la Sorbonne.
 D'EsrourNELLES DE CONSTANT, ministre plénipotentiaire, député.
 Arthur FONTAINE, directeur du Travail au Ministère du Commerce.
-Lucien FONTAINE, industriel.
-Eugène FoURNIÈRE, député.
 Gustave GEFFROY, homme de lettres.
 Charles GDE, professeur à la Faculté de droit.
-Paul GuEyssE, ancien ministre, député.
 Charles GuIEYSsE, secrétaire général de la So-
  ciété des Universités populaires.
 Étienne JacquiN, conseiller d'État, président de

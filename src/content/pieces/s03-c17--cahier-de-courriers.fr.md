@@ -7,12 +7,7 @@ author: felicien-challaye
 isAvertissement: false
 wordCount: 18129
 ---
-
-Cahier e Courriers
-
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 ! Les Cahiers de la Quinzaine ont publié
@@ -21,9 +16,7 @@ cahier de la première série, épuisé
 là consultation internationale des militants socialistes
 = sur l'affaire Dreyfus et la participation des Socialistes
 au pouvoir en régime bourgeois, enquête ouverte à la
-Petite République en août 1899, cinquième, sixième,
 huitième, onzième cahiers de la première série,
-épuisés
 Lionel Landry. — Courrier de Chine, cinquième
 cahier de la deuxième série, épuisé
 André Bourgeois. — Quatre jours à Montceau, neuvième cahier de la deuxième série, épuisé
@@ -37,14 +30,12 @@ Compte rendu sténographique non officiel de la ver- ê
 sion française du cinquième congrès socialiste international tenu à Paris du 23 au 27 septembre 1900,
 seizième cahier dela deuxième série, un très fort cahier
 de 216 pages trois francs cinquante
-Félicien Challaye. — Courrier d'Indo-Chine, septième
 
 Bernard Lazare. — Z'Oppression des Juifs dans lEurope orientale, les Juifs en Roumanie, huitième deux francs
 Tolstoi, — Une lettre inédite, adressée à Romain un franc
 
 Impressions sur la vie japonaise
 
-II MA 1902
 Mon cher Péguy
 
 4 Je t'envoie l'article sur le Japon. Je l''intitule Impressions sur la vie japonaise. J'entends dire par là que
@@ -53,10 +44,6 @@ plutôt que des vérités objectivement certaines. C'est un
 point de vue sur le Japon : beaucoup de ceux qui connaissent le Japon le voient ainsi; mais nON pas tous; —
 par exemple sur le sens de la vie religieuse au Japon les
 opinions et les impressions sont très diverses.
-
-Félicien Challaye
-
-IMPRESSIONS SUR LA VIE JAPONAISE
 
 Trois mois de voyage au Japon : c'est comme si on
 avait vécu, pendant cent jours trop rapides, une succession cohérente de rêves étranges et charmants. Un
@@ -80,7 +67,6 @@ le comprendre : leur vie européenne a mis en eux trop
 de besoins et de préjugés qui limitent leur action et
 resserrent leur pensée. Ils ne peuvent vivre que dans
 
-Félicien Challaye
 les hôtels anglais des grandes villes; ils nosent se
 hasarder dans les quartiers indigènes; ils voient ce
 que leur interprète veut bien leur montrer. Ce qu'ils
@@ -140,7 +126,6 @@ qui s'envolent, une tortue, une sauterelle, une tige de
 bambou. — La simplicité de ces chambres toutes nues
 est profondément artistique. Nulle part au monde n'est
 
-Félicien Ghallaye
 mieux appliquée la règle d'or du camarade William
 Morris : « N'ayez chez vous rien que vous ne sachiez
 utile ou que vous ne croyiez beau. » ,
@@ -169,8 +154,6 @@ de lit; et, s'il ya des moustiques, on pend au plafond
 une moustiquaire de gaze bleu-vert. Au matin, la servante débarrasse la chambre de ces meubles inutiles.
 Pendant ce temps, on va se laver à l'eau froide dans la
 cour, ou à l'eau chaude dans la salle de bain, que possèdent toutes les maisons japonaises. Le Japonais
-
-; IMPRESSIONS SUR LA VIE JAPONAISE
 
 | retournera à cette salle trois ou quatre fois par jour
 
@@ -204,7 +187,6 @@ rend possible, l'aiment pour la satisfaction qu'elle
 donne à leur sentiment esthétique. C'est parce qu'ils
 n'ont pas chez eux de meubles inutiles, encombrants et
 
-Félicien Challaye
 coûteux, qu'ils peuvent y placer d'intéressants objets
 d'art. L'absence de luxe et de faux-luxe rend seule
 possible l'introduction de l'art véritable dans l'habitation.
@@ -225,15 +207,12 @@ le préjugé commun, qui confond richesse et beauté, par
 la vanité vulgaire, qui transforme l'art en un moyen
 commode d'exprimer l'odieuse distinction des classes.
 Si nos sociétés capitalistes sont d'une laideur attristante, c'est surtout parce qu'elles manquent d'âme, de
-bonté.
 
 La même simplicité qui caractérise la maison japonaise distingue aussi le costume japonais. C'est le
 kimono, la longue robe à manches pagodes, qu'une
 ceinture de crépon serre autour de la taille. Aucun
 vêtement ne saurait être aussi bien adapté à tous les
 
-En s e
-IMPRESSIONS SUR LA VIE JAPONAISE
 détails de la vie japonaise; aucun n'est plus élégant,
 ne drape mieux le corps humain. Comparé à lui, notre
 costume européen est à la fois laid, gènant, absurde
@@ -264,8 +243,6 @@ mais réelle, et qui appelle la pitié. Le culte de la
 richesse, principale religion des Européens, et les sentiments de vanité ét de haïne qui en procèdent, contribuent à enlaïidir en Europe le vêtement aussi bien que
 l'habitation.
 
-Félicien Challaye
-
 Quand la curiosité, qui s'adresse d'abord aux choses
 extérieures, s'est satisfaite, elle sé tourne vers les personnes, plus mystérieuses. Voici la première remarque
 
@@ -291,7 +268,6 @@ c'est faire défiler devant soi, pour en jouir, des tableaux
 
 : changeants; c'est s'attacher aux choses et aux êtres
 parmi lesquels on passe, à la foule, aux maisons, aux
-temples, aux forêts, aux animaux, aux fleurs, aux
 pierres, aux nuages; c'est goûter le charme trop bref
 d'un aspect de l'univers qu'on ne reverra jamais plus;
 c'est trouver du plaisir à la contemplation de tout le
@@ -299,7 +275,6 @@ réel, l'accepter et le vouloir, l'aimer.…
 
 Jamais je n'oublierai l'air d'animation joyeuse que
 
-IMPRESSIONS SUR LA VIE JAPONAISE
 présentent certaines rues de Tokyo, de Nagoya, de
 Kyoto. Par exemple, à Kyoto, il y a foule, le soir, dans
 la rue des théâtres et des bazars; et chacun paraît
@@ -318,7 +293,6 @@ d'impressionniste. Les femmes tâtent des étoffes aux
 devantures, marchandent des objets, pour rire. Dans
 des jardins illuminés, on va prendre des ice-creams
 japonaises, faites de glace râpée, de sucre fin et de
-soda...
 
 Beaucoup de ces promeneurs reviennent des théâtres.
 Le théâtre est une distraction très appréciée des Japonais, et, par son bas prix, accessible à tous. L'installation est fort simple. C'est une grande maison de bois,
@@ -330,7 +304,6 @@ l'intérieur une foule de gens accroupis sur des nattes,
 
 L fumant leurs petites pipes, mangeant des pamplemousses. La scène est une plaque tournante qui se
 
-Félicien Challaye
 meut à la fin de chaque acte, faisant apparaître, à La
 place de l'ancien décor et des anciens acteurs, les
 nouveaux acteurs dans le nouveau décor. Les acteurs,
@@ -360,8 +333,6 @@ entre les maisons ; des lanternes de papier aux couleurs harmonieuses, surmonté
 papier rouges ou bleues, sont mises devant chaque
 porte; les rues prennent, le soir surtout, un aspect
 
-RASE LUS n
-IMPRESSIONS SUR LA VIE JAPONAISE
 étrange, irréel. Un sentiment artistique exquis, appliqué
 à des matériaux sans valeur, papier, bois, pierre,
 plumes, paille, produit de charmants et fragiles objets
@@ -389,7 +360,6 @@ particulière dévotion. Les fêtes les plus populaires, les
 véritables fêtes nationales, se célèbrent à l'occasion de
 l'apparition de certaines fleurs : petit fait très significatif, découvrant jusqu'au fond l'âme japonaise, révélant l'exquis sentiment poétique de cette race privilé-
 
-Félicien Ghallaye
 giée. On va en troupes joyeuses, dès le mois de février,
 admirer les fleurs des pruniers, et en respirer l'odeur,
 célébrée par d'antiques chansons; on va voir fleurir les
@@ -416,7 +386,6 @@ grands-parents et les tout petits enfants ; et c'estle plus
 gai des pèlerinages.
 D'abord on va saluer les dieux. Les cailloux étendus devant le temple craquent sous les pas des promepeurs, avertissant ainsi les dieux qu'on vient leur
 
-- IMPRESSIONS SUR LA VIE JAPONAISE
 rendre visite; les visiteurs tirent une sonnette, claquent des mains, frappant trois ou quatre coups, pour
 appeler les dieux, comme on fait dans les auberges
 pour appeler les servantes ; alors ils leur adressent une
@@ -445,7 +414,6 @@ allées d'innombrables lanternes de pierre conduisent
 aux autres portes ; des daims y circulent, très calmes,
 que le passage des pèlerins n'effarouche pas; l'air est
 
-Félicien Challaye È
 d'une extrême limpidité ; la mer est divinement bleue
 de l'autre côté du détroit apparaissent dans l'éloignement des montagnes violettes ; et les voiles de paille,
 
@@ -458,7 +426,6 @@ profondeur et de mystère, plus d'intimité. Le pèlerinage
 japonais est une promenade un peu plus méditative,
 accompagnée d'un peu plus d'émotions désintéressées
 c'est la distraction suprême d'une race sincèrement
-artiste.
 
 Si les Japonais montrent dans leur habitation, dans
 leur vêtement, un esprit d'élégance simple, s'ils savent
@@ -466,8 +433,6 @@ leur vêtement, un esprit d'élégance simple, s'ils savent
 . jouir des beautés les plus diverses de la nature et
 trouver en cette jouissance leur principal plaisir, c'est
 que la plupart d'entre eux ont atteint un haut degré de
-
-. . culture artistique.
 
 D'où leur vient cette culture, si générale qu'elle semble
 instinctive? D'abord, sans doute, du spectacle des
@@ -479,7 +444,6 @@ de bronze, adoptant la forme d'une tige de bambou; un
 brüûle-parfum où, sur une fleur en relief, une sauterelle
 est posée... Jusque dans les bazars modernes, on trouve, à des prix minimes, de menus objets dont les motifs
 
-IMPRESSIONS SUR LA VIE JAPONAISE
 décoratifs, tous tirés de la nature, éveillent un réel
 plaisir esthétique. — Peut-être les estampes coloriées
 jouent-elles aussi un rôle dans la formation du goût
@@ -505,7 +469,6 @@ quelques sous — comme nos odieuses images d'Épinal
 surtout parmi la petite bourgeoisie et le peuple : c'est
 les petits marchands, les artisans, les acteurs, les courtisanes, qui firent le succès d'Hokousaï. Pas de maisons
 
-Félicien Challaye
 qui ne possèdent de ces estampes ; pas de Japonais qui
 n'ait constamment l'occasion de contempler ces exquises
 et fidèles images de la nature et de la vie japonaises
@@ -516,7 +479,6 @@ que les petites choses dans la nature ont de grâce etde
 beauté, — En tout cas, au talent de ces auteurs d'estampes peu coûteuses, au génie encyclopédique d'un
 Hokousaï, le Japon doit le privilège d'un art réaliste
 sans platitude, poétique sans niaiserie, populaire sans
-vulgarité.
 Au-dessus ou à côté de cet art populaire, il y a le
 grand art traditionnel classique, les peintures des
 Écoles de Tosa et de Kano. Plusieurs Japonais des
@@ -534,8 +496,6 @@ de lui faire dire, par l'interprète, mon admiration pour
 les estampes populaires de l'école réaliste, le vieux seigneur me reprocha cette faute de goût, tout en l'excusant : « Les Européens, dit-il, n'ont derrière eux que
 deux ou trois siècles d'art; nous, Japonais, avons vingt18
 
-'TRR L
-IMPRESSIONS SUR LA VIE JAPONAISE
 - cinq siècles d'art dans notre passé : c'est tout naturel
 que le goût des Européens ne soit pas aussi formé que
 le nôtre... » Et pour confirmer son dire, il me mena
@@ -556,7 +516,6 @@ contribué à former le goût du peuple : un motif que
 nous admirons sur une boîte de laque ou une étoffe
 moderne peut venir d'un grand artiste classique, comme
 Tanyou ou Okio, comme tel autre du grand artiste
-réaliste Hokousaï.
 
 Ce qu'il faut indiquer encore, c'est que, si le bon
 marché des gravures de l'école réaliste a rendu possible
@@ -565,7 +524,6 @@ tout Japonais. La peinture, au Japon, a un rôle déco-
 
 * ratif; elle est conçue comme une dépendance de l'archix
 
-Félicien Challaye Ù
 tecture : les grandes œuvres pictoriales du passé
 décorent les temples : tous peuvent aller les y voir,
 tous vont les y voir. Tous les habitants de Kyoto peu6 vent aller dans le prodigieux temple Nishi Honganji
@@ -593,7 +551,6 @@ qui vous sert, agenouillée à côté de vous : « Condescendez [à me donner] d
 honorables gâteaux. » La politesse égalitaire de cet
 Extrême-Orient hiérarchisé contraste de façon surprenante avec la rudesse autoritaire de nos sociétés démocratiques. — Une tradition constamment suivie par tous
 
-IMPRESSIONS SUR LA VIE JAPONAISE
 introduit de la douceur, et même une sorte de cordialité, dans les détails de la vie quotidienne. Jamais de
 scènes de violence ; presque jamais de disputes; les menaces même s'expriment avec calme. La facilité avec laquelle les Européens se mettent en colère stupéfie les
 Japonais et leur paraît une marque d'instinctive grossièreté. Certaines habitudes japonaises sont d'une char-
@@ -622,7 +579,6 @@ certains cas la politesse japonaise confine à des formes
 très subtiles de la bonté. L'usage qui veut qu'on
 témoigne aux vieillards les plus grands égards, qu'on
 
-Félicien Challaye
 cède à tous leurs désirs, est infiniment touchant, et justifié par d'excellentes raisons : c'est peut-être la plus
 douloureuse des tristesses humaines que celle de se
 sentir vieillir, mourir peu à peu, approcher de la mort définitive ; il y a une exquise charité dans l'effort pour apaiser chez les autres cette tristesse-là, pour adoucir les derniers jours des vies qui vont finir bientôt. —
@@ -632,7 +588,6 @@ Par un autre côté, la politesse japonaise touche à cette
 ; qualité très haute, la domination de soi-même. On se maîtrise pour ne pas attrister les autres en leur révé- lant ses souffrances individuelles. Il y a de la résigna- tion, quelquefois de l'héroïsme sous certains sourires.
 
 Un Japonais peut sourire en annonçant la mort d'un être cher : c'est une façon à lui de reconnaître l'inévita- bilité de son malheur, d'empêcher ses amis d'éprouver un trop vif chagrin ; ensuite il s'abandonnera à sa dou- leur, mais seulement dans la solitude, quand il sera bien sûr de ne pas attrister par ses larmes le spectacle de l'Univers, de ne pas diminuer la joie qu'ont les
-autres à vivre.
 
 On pourrait dire, je crois, que le peuple japonais,
 très civilisé, est civilisé autrement que nous — civilisé
@@ -642,10 +597,8 @@ L'idée de péché originel est incompréhensible aux Japonais. La pensée qu'un
 faire un choix parmi les hommes et de condamner la
 plupart d'entre eux à des peines éternelles, leur paraît
 la pire des absurdités. — De cette acceptation de la
-nature totale résultent diverses habitudes dont souvent
 les Européens se choquent, à tort. Les Japonais, par
 
-IMPRESSIONS SUR LA VIE JAPONAISE
 exemple, ignorent certaines formes de notre pudeur
 européenne aussi bien que certaines formes de notre
 impudicité : sont-ils en cela moins moraux que nous ?
@@ -683,7 +636,6 @@ Nishi Honganji, me résuma en quelques mots cette
 religion simplifiée: religion laïque, justifiée par son
 utilité sociale et nationale, où une morale de résignation, de pitié, d'humaine douceur remplace les subtilités
 métaphysiques et les pratiques ascétiques des autres
-sectes.
 
 Sous ces influences traditionnelles, les Japonais en
 sont venus à une attitude morale particulière. Ne pas
@@ -701,7 +653,6 @@ sait vaguement que les Japonais ont une armée, une
 flotte, une industrie à l'européenne, des chemins de fer -
 et des téléphones; on conclut très vite que ces Orientaux ont dû se rendre compte de l'infériorité de leur
 
-IMPRESSIONS SUR LA VIE JAPONAISE
 genre de vie, et se décider à adopter notre civilisation,
 bonne absolument, rationnellement, pour tous les
 peuples du monde; quand on retrouve dans la vie japonaise des traces du passé lointain, on les note comme
@@ -729,7 +680,6 @@ pour échapper à l'influence des capitaux européens, ils
 ont constitué un grand commerce à l'européenne, ils ont
 doté le pays des moyens de communication nécessaires,
 
-Félicien Challaye
 chemins de fer, postes, télégraphes, téléphones; pour
 alimenter ce grand commerce, ils ont créé d'importantes industries à l'européenne, élevé partout des
 : usines ; — et je dois dire que les heures passées dans
@@ -757,7 +707,6 @@ même vie matérielle simple et embellie; c'est le même
 goût pour la nature, le,même sentiment artistique;
 c'est la même douceur de manières, la même cordialité; c'est la même espèce de moralité, simple embel-
 
-IMPRESSIONS SUR LA VIE JAPONAISE
 lissement de la nature: c'est la même nuance de joie, le
 même intérêt à la vie: « Nous prenons le plus vif plaisir
 à toute la vie du monde... Oh! que j'aime la terre, etles
@@ -800,8 +749,6 @@ beauté. La société serait tout de suite un peu meilleure,
 si chacun de nous vivait dès maintenant comme si la
 société parfaite, la société juste, était déjà réalisée.
 
-Félicien Challaye
-
 Nous avons publié du même auteur
 Courrier d'Indo-Chine, septième cahier de la troisième
 série, un franc
@@ -820,7 +767,6 @@ j'ai écrites immédiatement après mon voyage. Mais les
 faits sont restés gravés dans ma mémoire. Voici donc
 mon récit
 
-LA RUSSIE VUE DE LA VISTULE
 En 1895, j'étais étudiant à l'Université de Berlin.
 Je me décidai à profiter des congés de Pâques pour
 - visiter la Pologne prussienne. La question polonaise,
@@ -879,7 +825,6 @@ Partout, dans les châteaux aussi bien que chez les
 paysans, on est reçu avec une cordialité simple et
 franche. Il est rare qu'on puisse faire accepter une
 rémunération quelconque au paysan qui vous a nourri.
-OT e PEcEt ,
 
 Partout aussi, dès que le mot de Pologne est prononcé, ce sont d'interminables discours sur l'ancienne patrie,
 des paroles d'espoir, presque toujours naïves, souvent
@@ -905,7 +850,6 @@ ont germanisé le nom en « Kruschwitz ». C'est un joli
 bourg, assez près de la frontière. Une vieille tour,
 appelée « Tour aux souris », à cause d'une antique
 légende relative aux Piasts, s'y mire dans le lac de
-Goplo.
 
 Dans cette région de Cujavie, les représentants du
 droit lésé l'emportent de beaucoup comme nombre sur
@@ -913,7 +857,6 @@ ceux de la civilisation triomphante. — Je descendis
 dans l'unique petit hôtel de la localité, tenu par un
 Polonais, originaire de Galicie. Je couchai dans un lit
 
-Edmond Bernus
 dont les draps n'avaient pas été changés depuis qu'un
 hôte de la veille y avait reposé.
 Be lendemain, je voulus faire le tour du lac de Goplo.
@@ -941,7 +884,6 @@ remarquai en même temps des monticules réguliers,
 recouverts d'herbes et espacés de distance en distance
 sur une ligne presque droite. Mon guide m'apprit que
 c'étaient les abris des sentinelles russes, dontle cordon
-LA RUSSIE VUE DE LA VISTULE
 ne cesse pas tout le long de la frontière. En effet, un
 soldat russe, couvert d'une capote grise, ne tarda pas
 à sortir de derrière le monticule le plus proche. Il
@@ -971,7 +913,6 @@ bientôt dissipé, que nous passerions devant un officier,
 qui nous ferait des excuses et s'empresserait de nous
 faire reconduire à la frontière. C'était naïf, je suis
 obligé de l'avouer.
-Edmond Bernus
 
 Il n'y avait pas d'officier dans la baraque; ce fut un
 sous-officier qui nous reçut. Les soldats du poste nous
@@ -986,7 +927,6 @@ Je dois dire que pour le resteils ne se montrèrent point
 méchants ; ils me laissèrent mon argent, mon portefeuille et ma carte, devant laquelle ils s'extasièrent
 comme devant une curiosité extraordinaire. Puis ils
 nous firent à leur façon les honneurs du poste; ils nous
-montrèrent deux images grossièrement coloriées, dont
 l'une représentait un combat contre des Turcs et l'autre
 la tête de Nicolas I®. L'intérieur du poste était du reste
 extrêmement simple : des couchettes sur deux rangs
@@ -999,7 +939,6 @@ honneur. Comme nous étions debout, cela nous sembla
 plutôt long et ennuyeux. Vers le soir, on nous permit de
 nous asseoir sur une des couchettes, et c'est ainsi que
 nous passâmes toute la nuit, sans qu'on nous eût donné
-à manger.
 
 Nous eûmes le loisir de voir les sentinelles partir ou revenir; chacune emmenaït avec elle un chien
 
@@ -1008,7 +947,6 @@ au cordon de sentinelles, il est extrêmement difficile de
 passer la frontière, même de nuit. Les contrebandiers, comme je l'appris plus tard, arrivent cependant à
 entrer ou sortir, en corrompant un soldat, dont ils connaissent l'heure et l'endroit de garde. Pour le reste, je
 n'ai conservé de cette nuit que le souvenir des ronflements et de l'horrible odeur qu'exhalaient tous ces
-corps étendus.
 
 Le lendemain, dès cinq heures, on nous dit que nous
 
@@ -1039,9 +977,6 @@ Ils s''amusèrent bientôt à cracher sur un des paysans
 revers de sa manche, sans dire un mot; sa femme
 pleurait à côté de lui. Je ne cachai pas mon indignation,
 
-È ail
-
-Edmond Bernus j
 et à mon grand étonnement, les soldats se bornèrent à
 me placer dans un autre coin et à se passer mon chas peau de main en main. Je suis persuadé que si j'avais
 porté des vêtements de paysan, les pauvres brutes
@@ -1071,7 +1006,6 @@ de la province de Posen, comprenant en outre un morceau de la frontière russe.
 Toujours sans nous adresser la parole, l'officier nous
 remit aux quatre soldats qui nous avaient accompa-
 
-AREAS
 k gnés, et nous recommençâmes à marcher, sans savoir
 s où nous allions. Cette fois, j'étais beaucoup moins ras-
 | suré sur l'issue de notre aventure.
@@ -1102,7 +1036,6 @@ et tira une coupure du Temps contenant les noms des
 | que je tenais à savoir les noms de tous les ministres
 français. »—« On ne doit pas s'occuper de ces choses »,
 
-Edmond Bernus
 me dit-il sévèrement. J'ai toujours trouvé ce mot très.
 typique. Puis le bureaucrate tira victorieusement de
 . xmuon inépuisable portefeuille une carte de visite, qui
@@ -1160,7 +1093,6 @@ gros pain et des saucisses. Je n'eus même pas le temps
 de le remercier, car il s'enfuit immédiatement, et nous $
 partimes. Un des soldats nous apprit alors que nous
 
-Edmond Bernus \?
 étions dirigés sur Plock. Je ne parlerai pas de ce
 voyage, parce que ce fut une série monotone des mêmes
 événements : cahots et heurts, embourbement du char,
@@ -1185,7 +1117,6 @@ Nous eùmes donc notre cellule spéciale, ce qui con- stituait un immense avanta
 
 Les malheureux n'ont pas toujours la place de se
 
-ROUE à.
 coucher en long pour la nuit, et plusieurs sont forcés g
 de dormir accroupis sur le plancher rempli de cra- t
 chats et de saletés. L'air ne se renouvelle pas assez,
@@ -1219,9 +1150,6 @@ petite scène tristement curieuse. Un paysan demandait
 un passeport -pour se rendre du côté de Bromberg, où
 sa sœur était malade. Le juge refusa. Alors le pauvre
 
-UN EN D
-
-Edmond Bernus
 homme s'agenouilla devant lui, lui baisa les jambes et
 le supplia en pleurant de le laisser aller. Le juge à la
 figure distinguée lui dit simplement et sans colère
@@ -1256,8 +1184,6 @@ qu'à deux d'entre eux. L'un était un petit russe très
 vif, qui se montrait cassant, parfois grossier envers
 nous. L'autre était un grand gaillard sec et osseux, de
 
-LA RUSSIE VUE DE LA VISTULE
-
 caractère doux et communicatif. C'était un Polonais,
 qui avait passé à l'orthodoxie officielle pour gagner sa
 vie ; mais il était resté Polonais et catholique dans son
@@ -1283,17 +1209,12 @@ qui vint une fois pendant notre séjour. Lorsqu'il fut
 parti, notre gardien fit des signes de croix et nous dit
 que ce fonctionnaire avait déjà fait envoyer un geôlier
 
-‘ en Sibérie.
-
 Nous pouvions aussi voir de temps à autre quelques
 personnes qui n'appartenaient pas à la prison. C'était
 d'abord un petit employé, qui passait matin et soir par
 la cour ; il nous souhaitait gentiment le bonjour, et plusieurs fois il nous jeta en passant un petit pain et des
 cigarettes. Comme nous n'avions pas d'allumettes,
 
-45 ur.
-
-Edmond Bernus
 c'étaient toujours les gardiens qui fumaient nos cigarettes. Il y avait aussi la servante d'un fonctionnaire,
 dont la maison donnait sur la cour. Les gardiens se
 = permettaient avec elle toutes sortes defamiliarités. Une
@@ -1322,8 +1243,6 @@ quarantaine de prisonniers qui arrivaient, escortés par
 des soldats. Plusieurs hommes avaient les mains attachées.
 Nous ne connaïissions naturellement que les prison46
 
-PS A ts RS NN NL?
-LA RUSSIE VUE DE LA VISTULE
 niers qui restaient plus longtemps. Je me souviens très
 bien de quelques types. Il y avait entre autres un ,
 homme dans la force de l'âge, qui était de la ville
@@ -1341,7 +1260,6 @@ nous lancer des injures, lorsqu'il passait devant notre
 fenêtre. C'était un beau type de paysan polonais ; il
 s'était fait pincer pour la seconde fois, en cherchant à
 passer la frontière sans passeport pour émigrer en
-Amérique. À
 
 Un de ceux qui nous intriguaient le plus était celui que
 nous appelions le « philosophe ». C'était un homme
@@ -1352,7 +1270,6 @@ pour réintégrer sa cellule ; cela n'avait du reste pas
 l'air de beaucoup l'incommoder.
 D'autres détenus éveillaient plus particulièrement
 
-Edmond Bernus
 notre pitié. L'un avait de graves blessures à la jambe,
 ayant été mordu par le chien d'une sentinelle. Ce
 n'était pourtant pas le plus malheureux.
@@ -1385,7 +1302,6 @@ prison avec un petit convoi de prisonniers. Dès qu'elle
 parut dans la cour, ce furent de la part des gardiens
 des mots orduriers et des quolibets infâmes. Puis,
 
-LA RUSSIE VUE DE LA VISTULE
 comme elle ne voulait pas laver la cuve à ordures, elle
 fut frappée par un des geôliers. La nuit qui suivit, elle
 mit au monde un enfant mort-né.
@@ -1417,7 +1333,6 @@ chez le juge. Pour la première fois, il nous fit asseoir
 et m'offrit même une cigarette, ce que je considérai
 comme un signe favorable. Il nous annonça qu'un télégramme de Varsovie ordonnait notre élargissement.
 Toutefois, ajoutait-il, il y avait des formalités à remplir, et nous ne repartirions que le soir; mais en attendant nous étions libres de circuler dans la ville. Le
-Edmond Bernus
 scribe qui parlait allemand, le même qui me traitait s
 gaillardement de menteur, ajouta cette phrase sentencieuse : « Chez nous la justice est lente, maïs elle est
 “ sûre. » La première partie de ce dogme juridique est
@@ -1440,7 +1355,6 @@ arrivâmes dans la nuit à Thorn, en territoire prussien.
 Mon portefeuille et ma carte, qui avaient eu l'honneur d'être mis jusque sous les yeux du comte Schouwaloff, alors gouverneur à Varsovie, me furent rendus
 un mois après par un agent de police berlinois. Quant
 à l'argent, le gouvernement russe le garda « pour couvrir les frais que nous lui avions occasionnés ».
-Edmond Bernus
 
 Les journaux français ont tous parlé, dans les deriers jours d'avril, de troubles qui ont eu lieu en Fin4 lande, en particulier à Helsingfors les 17 et 18 avril.
 Ces démonstrations constituent le dernier chapitre — le
@@ -1461,13 +1375,10 @@ parus surtout en province, traitent de la question finlandaise en général, à 
 | et on sent qu'eux aussi sont inspirés par le gouvernement russe, qui cherche sans doute à profiter du regain
 d'attention provoqué par ces manifestations pour
 tromper l'opinion en France. Il faut essayer de s'y
-opposer.
 
 J'ai été témoin oculaire d'une partie des événements
 je me suis informé pour le reste auprès de personnes
 sûres. Voici ce qui s'est passé.
-
-COURRIER DE FINLANDE
 
 Les « troubles » — plus exactement les démonstrations — ont été provoquées par l'application de la loi
 militaire décrétée en juillet 1901 par le tsar, en
@@ -1488,7 +1399,6 @@ rendre valable les opérations du recrutement. (1)
 () Sur tous ces renseignements préliminaires, le cahier que je
 prépare donnera des détails plus amples. Je me contente ici de ?
 l'indispensable.
-Jean Deck
 
 C'est dans ces conditions que s'ouvrit la période des
 appels. La Finlande est divisée en districts de recrutement. Chaque district a une commission, qui se trans-
@@ -1498,7 +1408,6 @@ opérations du recrutement, qui se suivent dans un ordre
 différent du nôtre : appel des conscerits, visite médicale,
 puis tirage au sort des conscrits déclarés bons pour le
 service. De la sorte, l'ensemble des opérations dure
-plusieurs semaines — six semaines à deux mois, à partir
 du milieu d'avril.
 
 Quand le moment fut venu de commencer les opérations, il se produisit un résultat prévu de tous ceux qui
@@ -1516,8 +1425,6 @@ particulier dans le grand centre industriel de lintérieur, à Tammerfors, et da
 il y eut de sérieuses démonstrations. Il faut évidemment les attribuer pour une part à la présence d'ouvriers, pour une part aux gamins, et aussi pour une
 autre part à la curiosité des gens désœuvrés: c'est le
 
-AA HN
-NAS | f ë
 es COURRIER DE FINLANDE
 cas surtout à Helsingfors, où les badauds ne le cèdent
 en rien à ceux de Paris.
@@ -1574,7 +1481,6 @@ attroupement insignifiant, composé surtout de gamins.
 Le maître de police crut devoir arriver, avec son
 adjoint, des gendarmes russes et des agents à pied et à
 
-COURRIER DE FINLANDE
 cheval. Comme il était naturel, le déploiement de forces
 aitira des curieux, qui se mirent à siffler, surtout au
 passage des conscrits qui entraient ou sortaient. Tout
@@ -1604,13 +1510,10 @@ tenir tranquille et laisser les gamins s'égosiller. Au liew
 de cela, le maïtre de police, le lieutenant-colonel Carl--
 stedt, crut trouver une belle occasion de déployer ses.
 
-LA CLR
-
 (1) Le Sénat de Finlande n'est pas une assemblée législative, mais
 l'organe suprême de gouvernement : à peu près la réunion de nos
 ministères et de notre Cour de Cassation.
 
-Jean Deck j
 talents. Il réunit ses agents sur une ligne, les agents à
 pied au centre, les agents à cheval sur les flancs, prit
 Ja tête et exécuta une marche de parade pour
@@ -1622,7 +1525,6 @@ opérette, et se moquait de Carlstedt tout à sa barbe,
 qu'il a très longue. Maïs on ne s'en allait pas. Les
 sénateurs s'esquivaient par les rues avoisinantes. Mais
 on en aperçut deux. Cris, sifflets, monômes pour les
-reconduire, au milieu d'interpellations injurieuses.
 Trois heures arrivent. La place se vide peu à peu de
 curieux; les marches de l'église se remplissent de
 gamins sortant de l'école. Le major général Kaïgorodoff, gouverneur de la province, est informé de ce
@@ -1641,7 +1543,6 @@ passer les cosaques au grand trot. Je vais aussitôt'sur
 la place. A mon arrivée, la place elle-même est vide
 seuls les escaliers de l'église, du Sénat et de l'Université sont couverts de monde. C'est l'heure où les ser58
 
-STAR COURRIER DE FINLANDE
 vices publics sont fermés, où l'on va diner, où beaucoup de gens se promènent. La nouvelle se répand, et
 attire des curieux, qui se massent sur les trottoirs. Les
 cosaques sont rangés sur un des côtés, immobiles. Les
@@ -1699,7 +1600,6 @@ monde, indigné de ce qui se passe. Le bruit court que
 ce sont les sénateurs qui ont demandé la troupe: et,
 pour en finir tout de suiteavec cet incident, il semble bien,
 tous renseignements pris, que ce soit à la suite d'une
-COURRIER DE FINLANDE
 conversation avec un sénateur que le général Kaigorodoff ait appelé la sotnia de cosaques. — J'apprends, par
 des connaissances, que la place est toujours ouverte,
 mais toujours occupée par les cosaques qui chargent de
@@ -1730,7 +1630,6 @@ poste de police pour se plaindre ; on lui répond : « C'est
 bien fait pour les gens de Helsingfors. » Sur la place,
 un officier de gendarmerie a tiré son sabre et frappé à
 
-Jean Deck
 la tête un homme qui cherchait à protéger une dame
 contre le fouet d'un cosaque. — Et le général Kaïgorodoff regarde le spectacle d'un air satisfait.
 # Un conseiller municipal lui demande de mettre fin à
@@ -1743,7 +1642,6 @@ nette que la responsabilité de l'attitude des soldats
 | retombait sur leurs chefs. J'ai vu plusieurs fois des
 officiers et même des sous-officiers retenir leurs hommes.
 Il n'y avait guère qu'un officier, un lieutenant, qui les
-excitât.
 A un seul moment, du reste, la situation devint menaçante. Il était environ six heures un quart. Je vis arriver sur la place des ouvriers, sans doute des maçons
 ayant fini leur travail. Il y en avait une trentaine ou
 une quarantaine, qui se portèrent vers l'église. La police
@@ -1763,7 +1661,6 @@ deux cosaques galopant sur le trottoir. — Tel fut l'incident, sans contredit, 
 Cependant nombre de personnes avaient essayé de
 rétablir l'ordre. Des conseillers municipaux se répandaient dans la foule pour engager les gens à se retirer;
 sans succès d'ailleurs ; les Finlandais voulaient que la
-troupe se retirât d'abord. D'autres s'adressèrent au
 gouverneur Kaiïigorodoff : un des bourgmestres, le gouverneur de la province d''Abo, un pasteur, le viceprésident du Sénat. Leurs efforts furent longtemps
 inutiles. Pourtant le gouverneur dut voir qu'il ne gagnerait rien. Il renvoya vers sept heures et demie son
 infanterie, et retira ses cosaques dans la cour de la !
@@ -1777,13 +1674,11 @@ leur en ait jeté assez pour casser des canons de fusil et
 blesser grièvement des hommes et des chevaux. Mais il
 fallait bien trouver une excuse à la dernière charge que
 la sotnia exécuta sur un boulevard, sans le moindre
-motif.
 Aussitôt après, le calme se rétablissait. Le lendemain res
 matin, le conseil municipal faisait afficher une proclamation invitant au calme. Le dimanche, c'était le gouverneur qui affichait un avis menaçant. Les troupes
 étaient consignées; trois compagnies étaient cachées
 dans la cour de la station de police. Rien ne se produi63
 
-Jean Deck
 sit, quoiqu''on sentît nettement une grande irritation
 chez tous. Le gouverneur général était revenu le samedi
 matin. Il ne semble pas qu'il ait cherché le renouvelle-
@@ -1807,12 +1702,10 @@ d'envoyer une pétition à l'empereur, pour se plaindre
 de l'attitude de la police, du maître de police et du
 gouverneur, qui n'avait pas même observé les prescriptions édictées par le Code pénal en matière de
 répression des manifestations par la force armée.
-: Mae
 Tels sont les faits. Mais telle n'est pas la manière
 dont on les a présentés en Europe. Le gouverneur géné- Ê
 ral a fondé à Helsingfors, aux frais du budget finlan- l
 
-R COURRIER DE FINLANDE
 dais, un journal russe, la Gazette de Finlande, rédigé
 en partie par des officiers sous ses ordres. L'agence
 télégraphique russe a eu l'habileté de faire passer cette
@@ -1843,10 +1736,8 @@ du 18 avait demandé à l'association ouvrière de Helsingfors de mettre à sa d
 association. L'association ne voulut pas s'y prêter,
 craignant d'avoir des ennuis avec le gouverneur général. C'est ce que de Pétersbourg on a travesti en une k 65 Uvr.
 
-Jean Deck
 condamnation des troubles par les ouvriers, quiauraient
 déclaré n'avoir rien à faire avec ces manifestations de
-bourgeois.
 
 À Enfin de son côté, le gouverneur général a fait faire
 une enquête sur la conduite des cosaques par son chef
@@ -1858,35 +1749,25 @@ blessés eût été plus grand. Et Bobrikoff a publié un
 ordre du jour où il félicite les cosaques de leur sangfroid et de leur humanité. Il termine en rappelant que
 les troupes doivent se montrer toujours terribles aux
 ennemis, aussi bien ceux du dedans que ceux du
-dehors.
 
 Quant aux personnages responsables, par leur incapacité, des événements, l'empereur, à l'occasion des
 fêtes de Pâques, les a récompensés : Kaïgorodoff a reçu
 une tabatière ornée de diamants (6.000 francs), Carl- stedt a été nommé colonel, et Kaïtokangas a reçu une
 bague ornée d'un diamant (800 francs).
-Jean Deck
 
-FR DANS NT
-‘ps ets Lie te ju te A da doi so
 Er ne enr RE LE et Wa Vu PAT { fl A ROIS RME RTE
 de es à ta ii ei i PLUS PT 4 Ni De je d 4 Eu Re ?
 Fa l ue a He RAA RS TR MCE oi DT W 28 “ LUE de Au)
 
-Dis che: He pi SNS A ‘or Anne
 CON Lai 0e de me ga srl ent TNT SL 1 MX NES PAS PU AA DIN ENS
 “Ne Lo rs A ne RAT gr TE ï no Nb Al fi
 À AE june IRD Le pan DR | ar FAT Fe
 
 ER ibn 1 cat ‘il LRQ true UE NU HAS
-RE ON Er CA
-
-à RAT
 
 5 Nous avons publié, huitième cahier de la troisième
-série
 BerNarD Lazare. — L'Oppression des Juifs dans
 l'Europe orientale. — Les Juifs en Roumanie
-deux francs.
 Notre collaborateur nous préparait
 L'Oppression des Juifs dans l'Europe orientale. —
 Les Juifs en Galicie.
@@ -1921,7 +1802,6 @@ doctrines barbares qu'ils représentent, manqué au
 devoir de l'hospitalité, je ne m'adresserais pas à
 vous, monsieur le ministre. Je me bornerais à en
 
-Bernard Lazare
 appeler à l'opinion européenne en demandant siun
 pays où on ne sait pas respecter un hôte est digne
 id'être rangé parmi les pays civilisés. Mais ce ne ”
@@ -1935,7 +1815,6 @@ ont été, le lundi 6/19 mai, distribués dans les rues
 de Bucarest par des agents de police en uniforme.
 La réunion du mardi 7/20 mai, à la suite de laquelle
 a eu lieu le tumulte, a été présidée par un fonctionnaire du ministère de l'instruction publique et des
-cultes — quelle ironie ! — M. Nae Dimitrescu.
 Ma personnalité n'est pas en jeu, monsieur le
 ministre, mais il est nécessaire de vous signaler la
 À gravité de ce fait que des fonctionnaires du gouvernement roumain sont à la tête de ceux qui empéchent un citoyen français, respectueux des lois du
@@ -1946,7 +1825,6 @@ La législation xénophobe de la Roumanie, législation que vous connaïssez, mo
 et dont les intérêts français ont déjà eu à souffrir,
 ne me permettait pas de penser que les étrangers
 
-LETTRE À M. DELCASSÉ
 fussent vus d'un bon œil sur la terre roumaine.
 L'expérience vient de m'apprendre qu'un citoyen français peut ne pas y être en sûreté.
 Je crois, monsieur le ministre, en vous informant
@@ -1956,11 +1834,8 @@ les conséquences qu'ils comportent, rendre service
 toute liberté en France, un Français, mesemble-t-il,
 doit à son tour jouir de toute liberté en Roumanie.
 
-Veuillez agréer, etc.
-Bernard Lazare
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-demeurent libres.
 
 Nous servons
 des abonnements de souscription à cent francs:
@@ -1976,7 +1851,6 @@ Nous ne consentons des abonnements de propagande
 que pour la France et pour la Belgique.
 
 Nos cahiers étant très pauvres, nous ne servons plus
-d'abonnements gratuits.
 
 Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 

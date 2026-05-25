@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 14227
 ---
-
-*Charles Péguy*
-
 Quand mes amis me revinrent, ils me trouvèrent
 alité. Une attaque un peu sérieuse de la grippe habituelle m'avait surpris par le mauvais temps dans un
 excès dé fatigue survenu après un excès de travail. Je
@@ -48,7 +45,6 @@ de vie sociale.
 
 — Tu parles beaucoup pour un malade, interrompit
 Pierre Deloire. II me semble que tu retombes aux
-moyens bourgeois.
 
 — Nous y retombons souvent. Mais cela ne sera rien.
 Quand j'eus reconnu la grippe solennelle je me couchai
@@ -57,7 +53,6 @@ Je suivis ponctuellement ses ordonnances. Il me commanda de cesser tout travail.
 jours, dormant ou sommeillant, la tête aussi débarbouillée de soucis que si je ne dusse plus jamais fournir de copie et n'eusse pas signé pour des échéances
 mensuelles des traites lourdes. Je vais mieux. Laissezmoi dormir. Demain je me lèverai. Après-demain je
 travaillerai. Ne bravons pas. Suivons les méthodes
-révolutionnaires.
 
 — Puisque je suis venu, dit Pierre Baudouin, permets
 que je travaille ici. Mets à ma disposition tes collections de journaux et de revues. Il y a longtemps que
@@ -72,13 +67,11 @@ lées, qui vont plus vite.
 
 — Assieds-toi là, répondit Pierre Baudouin. Puisque
 
-we CASSE-COU
 tu es historien, tu découperas et tu colleras les fragj ments dont je ferai citation.
 à Mon cher Jaurès,
 Dans la Petite République datée du mardi 8 janvier
 6 1907, vous avez publié un article que je vous demande
 la permission de vous reproduire en entier
-! LA PHILOSOPHIE DE VAILLANT
 Depuis quelques semaines le citoyen Vaillant, s'élevant
 au-dessus des passagères querelles et des dissentiments
 secondaires qui troublent encore l'action socialiste, semble
@@ -97,7 +90,6 @@ des dirigeants, contre les violences des privilégiés ; et la
 ji bestiälité que le nationalisme « décerveleur » déchaîne dans
 s. les « hautes » classes et les classes moyennes ne permet
 guère l'idyllique espérance d'une évolution pleinement
-ë pacifique.
 _ Mais, et c'est ici surtout qu'il convient d'insister, il s'en
 faut que le citoyen Vaillant conçoive la révolution sous la
 forme soudaine et théâtrale qu'on lui donne trop souvent,
@@ -210,7 +202,6 @@ perpétuel effort, et sous les fausses apparences des formes
 figées, éternelle fluidité, incessante aspiration de la vie. De
 là, dans l'ordre social, la philosophie à la fois profondé-
 ment évolutionniste et hardiment révolutionnaire du
-citoyen Vaillant.
 Il n'y a pas de forme sociale immuable et nécessaire qui
 
 puisse arrêter la poussée des forces économiques et l'élan
@@ -237,7 +228,6 @@ l avant de se perdre enfin dans le communisme, la petite pro-
 
 par les approches du communisme; c'était de la poser
 comme une pierre au bord du flot, hors du courant des
-transformations.
 
 Cette philosophie profonde et subtile lui donne le sens
 très délié de toutes les réformes de transition, de toutes les
@@ -270,7 +260,6 @@ sociale ». Il s'agit d'assurer tous les travailleurs contre l'in-
 
 à tégralité des risques qu'ils courent : accidents, vieillesse où
 
-invalidité, chômage
 j « C'est à la contribution propriétaire et patronale de tous
 
 ft ceux qui sont employeurs de salariés; c'est aux budgets
@@ -295,13 +284,11 @@ la dépendance absolue du patronat au travailleur pleinement affranchi de la cit
 décisives peuvent être marquées. Mais ce que je retiens,
 c'est l'idée même de ce mouvement, de cette progression.
 ? Et je dis qu'à l'heure présente notre effort passionné doit
-tendre à assurer, à hâter celte marche méthodique. Trois
 conditions, à mon sens, sont nécessaires, que je ne puis .
 aujourd'hui qu'indiquer d'un mot
 1° Il faut qu'une philosophie générale, à la fois révolutionnaire et évolutionniste, se communique peu à peu à l'élite
 consciente du prolétariat, et de proche en proche au prolé-
 tariat tout entier. C'est cette Encyclopédie socialiste et prolétarienne dont je parlais plus haut, et sur laquelle je
-reviendrai.
 2° Il faut que le prolétariat s'organise en un parti poli
 tique de classe unifié, ayant une conscience très nette de son
 but suprême, et sachant marquer, aussi, dans toutes les
@@ -388,7 +375,6 @@ aînés nous accusent formellement d'intrigue ambitieuse, et
 nos cadets nous accusent presque de « crétinisme », avec
 définition doctrinaire, je le veux bien, et atténuante. Nous
 
-‘SR CASSE-COU
 sommes dans une ruelle étroite, et des deux toits opposés,
 il pleut également sur nous. Vienne enfin le beau soleil de
 Vunité socialiste pour nous sécher un peu!
@@ -430,7 +416,6 @@ dans l'article que je vous ai reproduit où commence et
 
 où finit ce qui est mis pour faire plaisir à Vaillant et
 
-Éd PAF ARNERS
 septième cahier de la deuxième série
 ce qui est mis parce que c'est la vérité, ou du moins
 parce que vous croyez que c'est la vérité.
@@ -518,7 +503,6 @@ quand il dit : Je suis athée, cela veut dire en gros qu'il
 a envie d'embêter les curés. Je ne vois pas quel avantage nous aurions, ni quel intérêt, à imiter les vieuxbourgeois dans ce qu'ils ont de grossier et d'inculte, à
 imiter les vieux-radicaux dans leurs infirmités mentales, ou morales.
 
-Hs CASSE-COU
 On n'a d'ailleurs assuré que le citoyen Vaillant n'en- Û
 tendait pas son matérialisme et son athéisme au sens
 grossièrement vieux-bourgeois, mais en un sens philosophique. Ou plutôt en un sens pseudo-philosophique.
@@ -557,7 +541,6 @@ immatériels de l'univers, c'est-à-dire la plupart de la
 réalité. Ou bien, placé devant cette idée stérile, sèche,
 le matérialiste y réintroduira sournoisement les qualités
 et le contenu des immatériels : ce sera, si vous permettez d'employer ce mot, un coup de jésuitisme métaphysique, puisque le matérialiste ne pourra effectuer la
-réduction demandée qu'en insinuant frauduleusement,
 sans les nommer et sans en avouer l'origine, les qualités
 des immatériels dans l'idée confuse que nous pouvons
 avoir de la matière.
@@ -579,7 +562,6 @@ philosophie française la plus exacte, vous sautez rapidement du matérialisme, 
 en général. Cet empiétement n'est pas plus justifié que
 
 celui qui consisterait à sauter du monisme spiritualiste
-au monisme en général.
 Pareillement l'athéisme est une métaphysique et
 une théologie. Or autant nous entendons ce que nous
 disons quand nous aflirmons que nous ne croyons pas
@@ -589,7 +571,6 @@ l'athéisme absolument, c'est-à-dire indifféremment parlant. Un athéisme supp
 dieux que l'on nie, et la définition de ce que l'on nie. Au
 moins en ce sens un athéisme est ou suppose une théologie métaphysique. Réduisant au monisme en général,
 après le matérialisme de Vaillant, l'athéisme de Vaillant, vous faites une opération de métaphysique théologique, et sans doute une opération de métaphysique
-théologique arbitraire.
 Laissant l'opération, je m'en tiens provisoirement au
 résultat. Nous en sommes au monisme, et vous tenez
 ce que ce monisme soit le grand esprit de la philosophie
@@ -666,7 +647,6 @@ substituer l'hypothèse de la Providence laïque, du mo-
 septième cahier de la deuxième série
 nisme optimiste, ou de l'optimisme moniste. Vous savez
 pour quelles raisons. Permettez-moi de vous les rappeler à mesure que je relis le texte que vous nous avez
-proposé.
 
 Le citoyen Vaillant n'admet pas la dualité et l'opposition de ce qu'on appelle matière et de ce qu'on appelle
 esprit ; — moi je veux bien, pourvu que le citoyen commence par définir ce qu'il entend par matière, ce qu'il
@@ -717,7 +697,6 @@ la raison pour laquelle un orateur qui veut lancer la
 foule des grévistes à la queue d'un drapeau noir, ou
 qui, armé d'un fusil, monte la garde auprès de ce dra-
 peau, est tout ce que l'on voudra, mais non pas un
-véritable anarchiste.
 
 Qui dit dualité dit oppression; car des deux forces
 opposées l'une doit dominer l'autre, à moins que ces
@@ -763,7 +742,6 @@ spiritualiste. C'est ainsi, dites-vous, que le christianisme
 et le spiritualisme ont soumis le monde à la tyrannie de
 
 . Dieu. Le dualisme engendre donc oppression et terreur.
-Singulière conclusion. Rapide, facile, téméraire consé-
 quence. Il paraît plutôt que c'est encore un besoin
 
 mystique de monisme religieux qui a poussé les chré-
@@ -785,7 +763,6 @@ que vous rêvez dans l'installation du parti socialiste.
 Ne peut-on dire, dans l'état des hommes et des événements, que, voulant unifier le parti socialiste, vous ne
 voulez rien que substituer aux haïines extérieures les
 déchirements intérieurs, aux envies extérieures les
-ressentiments domestiques.
 
 Il faut que je vous presse en politique sur le sens de
 
@@ -834,7 +811,6 @@ surérogatoire et encombrante. Une libre et croissante
 harmonie peut se passer, doit se passer d'une supé-
 rieure unité, si mouvante et immense que l'on distende -
 cette unité. Si vous laissez vraiment à la multiplicité
-Fee CASSE-COU
 toute sa variété libre, il n'y a aucun avantage à garder
 quelque part, sous le nom d'unité, je ne sais quelle
 survivance d'un Dieu que nous avons renoncé. Quelle
@@ -960,7 +936,6 @@ révolutionnaires, mais surtout avait commencé après
 une insuflisante ou mauvaise préparation révolutionnaire. Cela me diminue considérablement la valeur de
 la grande Encyclopédie. Non pas que je ne reconnaisse
 
-‘4e : CASSE-COU
 et n'admire la grandeur de cet effort. Plus que personne
 d je respecte les précurseurs. Mais, justement parce
 qu'ils furent nos précurseurs, il est probable que nous
@@ -1021,7 +996,6 @@ grands philosophes aimaïient leur liberté. C'est même
 un peu pour cela qu'ils furent de grands philosophes.
 Soyez assuré que s'ils vivaient parmi nous les cinq ou
 
-‘rs CASSE-COU
 six que vous avez nommés ne tiendraient nullement des
 F- congrès pour instituer le grand parti de l'unité philoso_ ,  phique. Mais ils vivraient librement, — et sans doute
 ‘FA séparément, — leur vie. Librement, — et sans doute
@@ -1051,7 +1025,6 @@ soit un mouvement linéaire pour qu'il soit un mou-
 à vement unitaire, la ligne étant une. Il vous plaît de
 situer les grands philosophes et les grands savants à la
 queue leu leu comme les petits enfants des écoles.
-septième cahier dela deuxième série
 vous plaît de vous représenter et de nous représenter
 les grands cœurs et les grands esprits comme attachés
 à réaliser un progrès continu de la pensée humaine où
@@ -1079,7 +1052,6 @@ rafraîchir et à les renouveler. Ils n'ont pas pensé à se
 faire continuer et compléter par leurs successeurs, mais
 ou bien ils croyaient sincèrement tenir la vérité défini-
 
-ë À CASSE-COU
 tive, au moins essentielle, ou bien ils pensaient, ils ‘
 comptaient que les successeurs les traiteraient comme
 ils avaient traité eux-mêmes les prédécesseurs, ils
@@ -1244,14 +1216,12 @@ les fils de bourgeois pour aller enseigner les fils du
 peuple, s'il avait quitté sa classe trop petite pour un
 auditoire plus vaste, nous lui eussions souhaité la bienvenue parmi nous. Mais dans la Petite République datée du vendredi 26 octobre 1900, nous avons lu avec
 beaucoup de peine cet article démagogique
-A BAS LA CALOTTE!
 Dans les universités populaires. — A propos d'une conférence de
 l'abbé Denis. — Notre tactique envers les cléricaux
 
 C'est encore la question de la liberté de l'enseignement
 que M. Deherme et son nouveau collaborateur, l'abbé
 
-t CASSE-COU
 Denis, viennent de poser à la Coopération des idées. Nos
 camarades du faubourg Antoine se sont chargés de la
 résoudre avec autant de simplicité que de promptitude :ils
@@ -1265,7 +1235,6 @@ débat contradictoire n'élait pas nécessaire pour éclairer la
 religion des fidèles de l'Université populaire. Et je me suis
 réjoui de les entendre crier : « À bas la calotte ! » Quand il
 s'agit de réfuter la doctrine du bayado, je goûte fort les objections présentées sous cette forme vigoureuse et sÿnthé-
-tique.
 
 Je sais bien ce que vont nous dire les gazettes bourgeoises,
 ce que nous a dit Deherme avant-hier, lorsqu'il nous a pré-
@@ -1320,7 +1289,6 @@ Qu'il ouvre largement sa porte à ceux qui viennent lui apporter ou lui demander
 à ceux qui viennent pour souffler sur le flambeau. « A bas
 
 Sans doute il n'eût pas été sans élégance de dire à l'abbé
-Denis:
 
 — Admirez notre tolérance. Jamais vous n'auriez permis
 à un libre penseur de prendre la parole dans votre église.
@@ -1342,7 +1310,6 @@ dans la bergerie ». N'exagérons rien : Je suis tout disposé
 pour ma part à considérer l'abbé Denis comme un loup très
 redoutable ; mais j'ai pu me convaincre, avant-hier, que nos
 camarades du faubourg ne sont pas prêts encore à se laisser
-dévorer.
 Il ne saurait y avoir d'équivoque sur le sens de leurs protestations. Le peuple n'a pas assez de loisirs pour écouter
 les théologiens. Il est un petit nombre de vérités acquises,
 de postulats qu'il est inutile de remettre sans cesse en question. En venant à l'Université populaire, l'abbé Denis perd
@@ -1357,9 +1324,6 @@ permettre d'aller chez eux leur donner la réplique, s'ils invitent Jaurès ou P
 nous serons charmés de leur rendre leur politesse. D'ici là,
 que les cléricaux ne s'étonnent point si dans nos rapports
 avec eux nous leur faisons l'honneur d'adopter la politique
-cléricale.
-
-Ux UNIVERSITAIRE
 
 Je ne veux pas traiter incidemment l'incident Deherme. Je crois que cette affaire, oubliée aujourd'hui,
 
@@ -1427,7 +1391,6 @@ Que tous les ivrognes arrêtés sur la voie publique se
 trouvent, comme par hasard, affublés d'une soutane. Que
 Vapparition d'une soutane excite dans le village, comme
 
-v % MEL
 septième cahier de la deuxième série
 par enchantement, les hurlements des chiens et les huées
 des galopins.
@@ -1507,7 +1470,6 @@ simples citoyens, de notre propre et légitime autorité, nous
 pouvons à nous tout seuls décider, et, par des portraits ré-
 pandus, par des conférences, par une vaste publicité édificatrice, nous pouvons à nous tout seuls faire exécuter ce
 j châtiment du général Mercier : que partout, que toujours il
-soit reconnu.
 3° Les questions, ainsi qu'elles sont posées actuellement,
 le sont-elles au mieux de notre cause ? Les dreyfusards qui,
 dans l'affaire Dreyfus, n'ont vu que Dreyfus ne comprendront pas ce doute. Je m'adresse aux autres. Il est entendu
@@ -1524,7 +1486,6 @@ position de la question: Des jésuites et de nous, eux sont de
 trop, ou bien nous, dans le même pays, pour la même
 « république ». Ici le terrain est large, ici il est solide, ici
 nous serons suivis. « Allons-y ! »
-FrANÇoIs DAVEILLANS
 Je ne m'attarde pas à vous commenter cette note.
 Vous savez encore lire. Je vous l'ai reproduite parce
 qu'elle représente exactement la mentalité de vos prochains encyclopédistes. L'auteur est un homme imporL
@@ -1557,7 +1518,6 @@ jugement, et peut-être s'arrêtent un peu plus à des scrupules de doctrine, pa
 dont le grossier empirisme s'imagine volontiers être et dé-
 velopper un système rationnel de principes. Mais, en gros,
 les députés représentent assez exactement le simplisme des
-électeurs.
 
 septième cahier de la deuxième série
 
@@ -1587,7 +1547,5 @@ dans le bloc de la majorité, dont le cabinet WaldeckRousseau a jusqu'ici mérit
 s'atténuer et devenir entente nouvelle et meilleure, assez
 vite et assez tôt pour que le commun et attentif adversaire
 soit une fois encore déçu.
-
-FRANÇOIS DAVEILLANS
 
 ---

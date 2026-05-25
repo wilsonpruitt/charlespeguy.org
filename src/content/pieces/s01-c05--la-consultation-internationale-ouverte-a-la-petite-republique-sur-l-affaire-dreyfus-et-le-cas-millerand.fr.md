@@ -8,27 +8,18 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 23844
 ---
-
 ## La Consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand
 
-*Charles Péguy*
-
-LA CONSULTATION INTERNATIONALE
 La Petite République du jeudi 20 juillet avait publié
 la communication suivante :
 Lettre du citoyèn Anseele ‘
 Notre camarade Anseele, député à la Chambre belge et un des
 socialistes les plus qualifiés du socialisme international, écrit
-CHAMBRE Ÿ
 des Gand, 14 juillet 99,
-REPRÉSENTANTS
 Laissez-moi, mon cher Millerand, vous féliciter pour
 votre courage d'avoir accepté le poste de combat au minis-
 tère dans les circonstances connues.
-Salutations fraternelles.
-ANSEËLE à
 La même Petite République avait donné les citations
-suivantes
 Le Vorwaerts
 Le Voriwaerts publie le manifeste du Parti ouvrier français et du
 Parti socialiste révolutionnaire et le fait suivre des commentaires ?
@@ -55,7 +46,6 @@ L - entière et avant tout autre du député Bissolati, directeur du journal,
 temps qu'un lutteur, toujours prêt à payer de sa personne, à
 mn}: accepter la bataille sans compter les dangers, parce qu'il pense
 ÿ comme nous que la lutte de tout instant est un devoir pour le Parti
-}\ socialiste.
 EX Après avoir rappelé la surprise produite par la publication du
 manifeste de Guesde et Vaillant, l'Avanti reconnaît que l'accusé
 an principal demeure Jaurès, coupable d'avoir entrepris seul la lutte
@@ -110,7 +100,6 @@ volonté, c'est se fermer l'avenir que de se retrancher du
 monde pour s'extasier dans la contemplation de l'avenir, À
 en laissant tomber de temps en temps de son observatoire ge
 solitaire quelque prophétie sur les événements de la vie
-quotidienne. »
 Le conflit entre les amis de Guesde et ceux de Jaurès est … 10
 donc inconciliable : ou bien les socialistes français Re
 acceptent de se méler à toutes les luttes tout en gardant h,
@@ -206,19 +195,12 @@ a mené le prolétariat dans le combat pour la justice contre
 le moyen âge essayant de revivre.
 
 La Petite République du mercredi 19 avait publié les
-communications suivantes
 Lettre de Hyndman, secrétaire général de la Social-DemocraticFederation
-London, 17 juillet 1899,
 Mon cher Gérault-Richard,
 Présentez, je vous prie, mes chaleureuses félicitations
 Ë Jaurès et nos camarades de Paris sur la victoire qu'ils ont
 remportée dans l « affaire » et dans leur lutte contre la
-réaction.
-Believe me yours fraternally.
-HyYNDMAN
 Lettre d'un démocrate italien
-Rome, le 27 juin 1899,
-Citoyen Millerand,
 Du pays de la réaction, où meurent à la fois les libertés
 publiques et le régime représentatif, permettez qu'une
 parole d'approbation sincère et chaleureuse vous soit adressée par un homme qui aime la France comme sa seconde
@@ -245,18 +227,14 @@ traitement nous a réduits la monarchie de Savoie, ils
 changeraient de tactique et ils songeraient avant tout
 conserver la République.
 
-OUTRE : CONSULTATION INTERNATIONALE VUS
 En formant les vœux les plus ardents pour la prospérité
 de la France et de vos libres institutions, je me dis, AIRES
 Votre bien dévoué RENE RH
-D: Napoléon CoLAJANNI, HP
-député au Parlement italien, HA
 La Petite République du samedi 22 juillet publiait ‘i
 cette communication : ‘400
 Les Députés Socialistes Belges à Jean Jaurès où 14) 3
 Les députés socialistes belges viennent d'envoyer à Jaurés la
 lettre collective que voici: VA Ru
-Cher ami, ; 448 à
 Nous avons lu, avec une douloureuse émotion, les articles th “
 que vous venez de publier dans La Petite République. At x Ju}
 Sans intervenir dans les graves et délicates questions qui
@@ -274,18 +252,10 @@ pour le même idéal, forment bloc contre la réaction etne
 donnent pas, à nos adversaires, le spectacle de leurs divisions. ty +È8
 Sachant que c'est votre plus cher désir, nous sommes fra- … ne ‘4
 ternellement à vous,
-VANDERVELDE, CAVROT, ANSEELE, LAMBILLOTTE,
-Dexis, MANSART, BERLOZ, BERTRAND, WETTINCK,
-} BRENEZ, SMEETS, FURNEMONT, BASTIEN, MAROILLE, (e
-L. DeruissEAux, A. DeruissEAUX, HUBIN, DEM-
-BLON, PAQUAY, WALTHÉRY, LÉONARD, GRIMARD, 130
-DEFNET. # ju
 manque la signature de cinq députés socialistes qui n''assis-
 taient pas, mercredi, à la séance de la Chambre. EX ; : Î
 
 La Petite République du jeudi 17 août publiait la note
-suivante
-CONSULTATION INTERNATIONALE
 Des Militants Socialistes sur l'Affaire Dreyfus et la participation
 des Socialistes au pouvoir en régime bourgeois
 
@@ -296,7 +266,6 @@ points de tactique qui occupent présentement le parti socialiste français. x
 Voici la lettre-circulaire envoyée par nous et la liste des
 
 militants à qui nous l'avons adressée
-Cher citoyen,
 
 Le Congrès national socialiste français, qui est en
 préparation, aura très probablement à délibérer sur des
@@ -324,47 +293,20 @@ résoudre, d'avoir les lumières du socialisme interna-
 tional. Nous vous serons donc très reconnaissants
 de nous adresser sur ce sujet une lettre ou un article
 que nous publierons intégralement dans la Petite Répu-
-blique. “ei
 
 Nous adressons notre requête à nos excellents et éminents
-camarades
-Allemagne. — Bebel, Schoenlank, Kautsky, Liebknecht, £
--  Parvus, Max Schippel, Clara Zetkin, Vollmar, Bernstein, 7
 Rosa Luxemburg, Singer. je
 
-Etats-Unis. — Sanial.
-
-Angleterre. — Hyndman, Tom Mann, Blackford, Keir
-Hardie, Quelch, Sydney Webb, Belfort Bax.
-
-Autriche-Hongrie. — Adler, Daszynski.
-
 Belgique.— Vandervelde, de Brouckère, Bertrand, Anseele,
-Furnemont, Hector Denis, Léon Defuisseaux.
-Danemark. — Mayer, Knudssen, Olsen. ‘4
 
-Espagne. — Pablo Iglesias.
-Hollande. — Troelstra, Van Kol.
-Italie. — Enrico Ferri, Bissolati, Turati, Andrea Costa,
-Pescetti, Antonio Labriola. A)
-
-Portugal. — Gnecco. “à
-
-Russie. — Plekhanov, Lavrov, Schiflonski, Kritchewski.
 Suède et Norvège. — Ludwig Meyer.
-Suisse. — Greulich, Otto Lang, Karl Mohr. ‘2
 
 Recevez, cher citoyen, nos salutations fraternelles, FR
-
-GÉéRAULT-RICHARD ÿ
-
-Jaurès Ru
 
 Une lettre de Bebel
 Nous avons déjà reçu quelques réponses que nous publierons tra-
 duites avec une fidélité servile. Voici en quels termes notre éminent
 ami Bebel nous annonce la sienne
-Chers camarades,
 
 J'enverrai lundi ma réponse aux questions que vous n'avez posées. Je ne suis pas de votre avis sur tous les points,
 mais je suis d'accord avec vous sur la plupart et notamment sur les principaux. Vous-mêmes considérez le « ministère Millerand » comme un incident qui ne se reproduira
@@ -400,12 +342,7 @@ d'un effet déplorable.
 
 Amicalement à vous,
 
-AUGUSTE BEBEL
-
-PONS 4 POTTER MOI OMEONMRMIES EE QUE RS DER ER RTS TE Te
-FAI L MANS L { x j' TRAME
 La Petite République du lundi 28 août publiait la mt
-communication suivante : 1150 ii
 Adresse des députés socialistes italiens à Jean Jaurés Ÿ Fa) ge
 Carpi, 25 août, De
 Le groupe parlementaire socialiste s'est réuni aujourd'hui
@@ -416,7 +353,6 @@ noble et courageuse engagée, avec conscience révolution nt,
 naire, pour la défense de la justice et de la civilisation. IL ne
 souhaite qu'à celle-ci soit assurée la victoire définitive.
 Le secrétaire du groupe parlementaire socialiste dE sie
-À ALFREDO BERTESI “4 es
 La Petite République du jeudi 14 septembre publiait ‘1
 cette réponse à la Consultation internationale : à k “ati
 HENRI VAN KOL (Rienzi) un
@@ -426,13 +362,11 @@ l'heure actuelle nous avons reçu presque toutes les réponses que
 nous attendions. La longueur des débats du procès de Rennes nous sg Fe
 a obligés à en retarder la publication. Nous la commençons aujourd'hui et nous la continuerons jusqu'au Congrès national du Parti
 socialiste français où seront discutées les questions traitées par nos pur
-correspondants.
 Aujourd'hui nous publions la réponse du citoyen Van Kol (Rienzi),
 député à la Chambre hollandaise. Van Kol est jeune encore. Ingé- A
 nieur de grand mérite, écrivain réputé dans toute l'Europe socialiste, il a soutenu de retentissantes polémiques sur la doctrine.
 ‘ Avec Troelstra et Pollag , il est l'un des fondateurs du nouveau L X
 parti démocrate socialiste de Hollande. | Li #
-QUESTION 1 < J0R
 Le prolétariat socialiste peut-il, sans manquer au principe
 de la lutte des classes, intervenir dans les conflits des diverses
 fractions bourgeoises, soil pour sauver la liberté politique, :t
@@ -474,8 +408,6 @@ l'histoire. Noblesse oblige aussi pour le prolétariat socialiste ! Jamais ses a
 esprit de parti étroit et mesquin, au lieu d'être animées par
 un idéal de bonté, de justice et d'humanité.
 
-QUESTION II
-
 Dans quelle mesure le prolétariat socialiste peut-il participer au pouvoir bourgeois; et le principe de la lutte de
 classes s'oppose-t-il absolument et dans tous les cas à la
 prise de possession partielle de la puissance ministérielle
@@ -483,7 +415,6 @@ par le parti socialiste ?
 
 Cette grave question, qui gagnera chaque jour plus d'im-
 
-CONSULTATION INTERNATIONALE Van Kor
 portance dans les luttes de notre temps, ne peut recevoir
 une réponse générale. Il faudrait examiner chaque cas spé- à
 cial, d'après le pays, le développement économique, l'his- s
@@ -537,7 +468,6 @@ couteau que le hasard et les circonstances inattendues
 mettent à la portée de notre main.
 
 Pour combattre, pour écraser la contre-révolution, Millerand devait agir, il a agi et il agira encore mieux si on le
-soutient.
 
 Malgré l'horreur qu'inspire un bourreau de la Commune
 comme Galliffet — le cas échéant il s'en trouvera d'autres
@@ -565,7 +495,6 @@ ses pires ennemis, il fallait en prendre ce qu'on pouvait
 pour l'utiliser dans le sens de l'évolution économique
 laquelle on faisait obstacle.
 
-CONSULTATION INTERNATIONALE Van Kor pe
 Plus grand sera notre pouvoir dans l'État, plus grands “s
 seront les résultats qu'on obtiendra.
 Trop faibles encore pour imposer la volonté du proléta- ‘ 1
@@ -597,7 +526,6 @@ dans le terrain ennemi, mais on ne doit jamais hésiter à ‘4
 entrer de plain-pied dans le camp des adversaires.
 C'est malgré eux qu'ils subissent notre présence, signe
 certain de leur affaiblissement, présage heureux de notre fi
-pouvoir naissant. s
 
 En plantant fièrement au Parlement le drapeau rouge du gr
 prolétariat, en faisant pénétrer l'esprit et la politique pro- *e
@@ -611,7 +539,6 @@ la cour suprême dans cette question de tactique, appuyer
 
 È Millerand à son poste de combat en prenant, au nom du
 socialisme pratique, les garanties nécessaires et jamais
-superflues !
 
 Puissent tous les socialistes se soumettre aux résolutions
 de ce Congrès, car jamais, même durant les discussions les
@@ -621,18 +548,12 @@ moyens, mais que le but est le même, et qu'on n'arrivera
 à la victoire que le jour où l'entente et la discipline libre- .
 ment acceptée nous auront rendus unis et forts.
 
-HENRI VAN Koz (RIENZI)
-
-Princenhage, 25 août 1899
-
 La Petite République du samedi 16 septembre publiait la réponse de Bebel
-AUGUSTE BEBEL
 
 Le citoyen Bebel, député au Reichstag allemand, dont nous pu-
 
 blions aujourd'hui la réponse, est un des représentants les plus
 autorisés, une des gloires, devrions-nous dire, de la démocratie so-
-cialiste allemande.
 
 Retracer la vie de Bebel, c'est faire l'histoire du mouvement socialiste allemand, Entré au parti il y a trente et quelques années,
 presque aux débuts du mouvement, à l'époque où le socialisme
@@ -646,14 +567,11 @@ politique en Allemagne, c'est sans nul doute l'ancien ouvrier tourneur sur bois,
 Nos militants français ont lu de lui La Femme, le remarquable
 ouvrage qui a été traduit dans presque toutes les langues.
 
-Berlin, septembre 1899,
-Chers camarades,
 Les questions que vous nous posez préoccupent vivement
 les socialistes de tous les pays.
 
 En Allemagne, nous nous trouvons depuis longtemps
 
-CONSULTATION INTERNATIONALE BEBEL PA
 engagés dans des discussions pareilles à celles qui viennent
 de se produire en France, avec cette différence pourtant De
 qu'en Allemagne nous formons un parti socialiste unifié a;
@@ -677,16 +595,12 @@ positions les plus absurdes et les plus insensées, ayant
 toutes un but, celui d'exclure la classe ouvrière de toute
 représentation politique. La même situation que nous con- < 4
 statons pour les assemblées législatives existe aussi pour la
-représentation communale.
-* (A
 Dans leur tendance naturelle à acquérir de la puissance .
 et de l'influence dans ces assemblées, les membres du parti
 ont conclu en vue des élections, dans plusieurs de ces États, f .
 des conventions passagères avec des partis bourgeois, et ces De.
 conventions ont provoqué de vives discussions dans l'ensemble du parti. Il est probable qu'elles seront mises aussi ‘ FT 14
 à l'ordre du jour de notre prochain Congrès de Hanovre (1). Nr
-RERLEAU AI
-L
 (1) Dans le Mouvement Socialiste Karl Meyer et Paul Fauconnet ont Ne :]
 particulièrement renseigné nos lecteurs sur ce congrès de Hanovre.
 Ainsi, par exemple, la façon de procéder de nos camarades
@@ -722,17 +636,13 @@ du Parlement l'ennemi le plus dangereux. Entre deux
 maux, il choisit le moindre. Il sera forcé de suivre une
 tactique semblable partout où il prendra part à une lutte
 électorale dans laquelle le mode d'élection lui sera peu
-favorable.
 
 La démocratie socialiste a deux rôles différents. Son rôle
 principal, c'est la réalisation de son programme, c'est-à-dire
 la transformation de l'organisation actuelle en société
 socialiste. Pour gagner à ce programme des adhérents, elle
 
-CONSULTATION INTERNATIONALE BEBEL ‘0
 doit faire de la propagande partout où l'occasion se pré-
-sente.
-15; OMR
 Mais pour arriver à ce but final avec plus de facilité, elle
 doit considérer comme son but le plus immédiat d'élargir
 son terrain de lutte et de lui donner une configuration plus
@@ -757,7 +667,6 @@ discuter sur ce sujet. C'est une attitude que nous imposent
 à la fois la tactique et l'instinct de conservation. Ne ‘4
 La même tactique est valable pour toutes les circon- it ‘xt
 stances dans lesquelles le droit, la justice et l'humanité sont
-en jeu.
 Certes, nous sommes un parti prolétarien qui doit faire ne.
 de la politique de classe, mais la démocratie socialiste est : « +140
 en même temps Le parti de toutes les victimes de l'infortune N que
@@ -790,7 +699,6 @@ la cause de la justice et de la liberté du citoyen.
 
 Je ne cache pas que l'immense majorité des camarades
 allemands n'a pas pu comprendre, et ne comprend pas encore, comment dans l'affaire Dreyfus le parti socialiste
-français ait pu se diviser.
 
 En supposant que le cas Dreyfus avec toutes ses consé-
 quences, au lieu de se produire en France, se fût produit en
@@ -801,19 +709,16 @@ l'ensemble de la démocratie socialiste allemande serait in-
 Pourquoi doit-il en être autrement en France qu'en Allemagne ? Cela m'échappe.
 
 Je réponds donc à la première de vos questions par un
-« oui ».
 
 La deuxième question n'est pas si simple.
 
 Tous les États modernes possèdent en tant qu'États de
 classe des institutions que le socialisme doit combattre en
 
-FAT 4 à
 toute circonstance, mais qu'aucun gouvernement bourgeois
 n'est susceptible d'abandonner: le militarisme, le « marinisme », les impôts indirects, l'attitude de l'État vis-à-vis
 de l'Église, la façon dont sont dirigées les affaires étrangères et coloniales, l'usage qui est fait de l'administration, etc.
 Ensuite, donnant lieu à des divergences profondes, les revendications relatives à la protection ouvrière et aux ré-
-formes sociales incisives.
 La question de savoir si un socialiste peut entrer dans
 un gouvernement bourgeois ne peut être prise en considé-
 ration que dans les États qui sont;des démocraties pures,
@@ -834,7 +739,6 @@ Mais la question se présente sous un jour différent: Un
 socialiste entre dans un ministère dont la grande majorité
 est la représentation de partis bourgeois, parce que la majo- ?
 rité parlementaire est essentiellement composée de ces #ñ
-partis.
 Un gouvernement doit être, en principe, composé d'élé- S
 ments homogènes, ou il n'est pas un gouvernement. Un
 gouvernement qui est divisé sur toutes les questions importantes ne peut pas gouverner longtemps. Un ministre
@@ -868,7 +772,6 @@ même forcé, dans le cas où celui-ci se sera déclaré solidaire
 de ses collègues, de voter contre lui. En un mot, le ministre
 socialiste sera forcé de quitter au plus tôt sa place. Les
 beautés et les splendeurs du gouvernement auront donc
-bientôt pris fin.
 
 Ou bien le parti soutient le gouvernement pour faire
 plaisir au socialiste qui en fait partie : alors il commet une
@@ -883,14 +786,11 @@ nous réclamons de l'État et de la société actuelle. Mais un
 tel parti radical n'existe ni en France ni ailleurs, et, par
 conséquent, nous n'avons pas à nous occuper de cette éven-
 
-vaut
 tualité. D'autant plus que c'est un fait acquis que les bour- 244
 
 geois radicaux deviennent partout d'autant plus réaction- LAS
 
 naires que la démocratie socialiste devient plus puissante. jé Me,
-
-MÉCRE
 
 Mais on peut encore imaginer le cas suivant. Un ministère ‘MER
 se forme pour la solution d'une question spéciale, tel le mi- 12 SE
@@ -926,7 +826,6 @@ ce sujet aucune protestation. Pre
 Dans chacun des gouvernements des cantons de Genève
 et de Zurich siège un socialiste. Pourquoi donc ce que l'on
 trouve naturel à Genève et à Zurich serait-il déplacé
-Paris ?
 Mais la situation est essentiellement différente en France
 et en Suisse. Les cantons suisses ne sont pas, comme on le S4
 sait, des États gouvernés parlementairement, mais des Hi
@@ -938,7 +837,6 @@ c'est toujours l'ensemble du peuple qui décide sur les a
 lois, chaque fois qu'un nombre déterminé d'électeurs le ]
 propose, ou lorsqu'une proposition de loi donnée venant
 de l'initiative populaire est adoptée par la majorité du
-peuple.
 D'autre part, il n'y a pas dans les cantons de Chambre
 haute (Sénat); le gouvernement cantonal n'a pas non plus
 le droit de veto; il n'a qu'à exécuter ce que le peuple ou
@@ -965,10 +863,8 @@ La question se présente sous un autre aspect dans les
 démocraties où les ministres sont élus et où, par conséquent,
 l'élu est le mandataire / Vertrauensmann) du parti.
 La Petite République du jeudi 21 septembre publiait ‘#0
-ÉMILE VANDERVELDE { ‘4
 Émile Vandervelde, avocat à la Cour d'appel de Bruxelles, repré- D:
 sente le collège électoral de Charleroi à la Chambre des députés de 137200
-Belgique. ‘is
 Tous les lecteurs de la Petite République connaissent notre ami et mie
 tous nous ont su gré d'avoir souvent publié, dans nos colonnes, ses 8 l
 communications. Elles seraient plus fréquentes si les nécessités de la t AS URR
@@ -980,11 +876,8 @@ dans tous les milieux scientifiques de l'Ancien et du Nouveau
 Monde, Vandervelde est une des forces du socialisme interna- oc:
 tional. ne
 
-Bruxelles, septembre 1899, D)
-Chers camarades, ! [RTE
 Je me hâte de répondre aux deux questions que vous Ne
 soumettez aux militants de l'Internationale : Hot
-Die
 1. — Le prolétariat socialiste peut-il, sans manquer au principe de la lutte des classes, intervenir dans les conflits des
 diverses fractions bourgeoises, soit pour sauver la liberté
 politique, soit, comme dans l'affaire Dreyfus, pour défendre
@@ -992,7 +885,6 @@ l'humanité ?
 cette première question, je conçois à peine qu'un x
 socialiste puisse répondre autrement que par l'aflirmative. A is
 « Je suis homme, et rien de ce qui est humain ne peut ‘400
-m'être étranger. » Ha
 Prétendre que le prolétariat doit rester indifférent à tout
 conflit dans lequel ses intérêts de classe ne sont pas direc- NES
 tement engagés, c'est diminuer le socialisme et rétrécir le 5100
@@ -1002,12 +894,10 @@ alors que, dans le Manifeste du Parti communiste, ils
 recommandaient aux prolétaires conscients d'appuyer les
 autres partis, dans leur lutte pour la conquête des libertés DA!
 modernes. Et ce qui est vrai de la liberté politique ne l'est
-NET:
 
 Dans chacun des gouvernements des cantons de Genève —
 et de Zurich siège un socialiste. Pourquoi done ce que l'on g
 trouve naturel à Genève et à Zurich serait-il déplacé
-Paris ?
 
 Mais la situation est essentiellement différente en France
 et en Suisse. Les cantons suisses ne sont pas, comme on le
@@ -1019,7 +909,6 @@ c'est toujours l'ensemble du peuple qui décide sur les tr
 lois, chaque fois qu'un nombre déterminé d'électeurs le -
 propose, ou lorsqu'une proposition de loi donnée venant -
 de l'initiative populaire est adoptée par la majorité du Vo
-peuple.
 
 D'autre part, il n'y a pas dans les cantons de Chambre
 haute (Sénat); le gouvernement cantonal n'a pas non plus
@@ -1050,10 +939,8 @@ démocraties où les ministres sont élus et où, par conséquent, es par
 l'élu est le mandataire /Vertrauensmann) du parti. Modernes,
 La Petite République du jeudi 21 septembre publiait
 la réponse de Vandervelde :
-ÉMILE VANDERVELDE
 Émile Vandervelde, avocat à la Cour d'appel de Bruxelles, repré- kb
 sente le collège électoral de Charleroi à la Chambre des députés de
-ï Belgique.
 Tous les lecteurs de la Petite République connaissent notre ami et ,
 n tous nous ont su gré d'avoir souvent publié, dans nos colonnes, ses #4]
 s communications. Elles seraient plus fréquentes si les nécessités de la (l
@@ -1062,9 +949,6 @@ front un grand nombre de tâches dont une seule suffirait à remplir qu
 ordre, publiciste dont les articles et les brochures font autorité Îl
 dans tous les milieux scientifiques de l'Ancien et du Nouveau i\ 1
 Monde, Vandervelde est une des forces du socialisme interna- #4
-tional.
-Bruxelles, septembre 1899,
-Chers camarades, F
 Je me hâte de répondre aux deux questions que vous ?
 soumettez aux militants de l'Internationale : l
 1. — Le prolétariat socialiste peut-il, sans manquer au principe de la lutte des classes, intervenir dans les conflits des f
@@ -1074,7 +958,6 @@ l'humanité ?
 cette première question, je conçois à peine qu'un
 socialiste puisse répondre autrement que par l'aflirmative.
 a « Je suis homme, et rien de ce qui est humain ne peut
-m'être étranger. »
 Prétendre que le prolétariat doit rester indifférent à tout ; Vas
 re conflit dans lequel ses intérêts de classe ne sont pas direc- y
 gun tement engagés, c'est diminuer le socialisme et rétrécir le Ep
@@ -1084,8 +967,6 @@ alors que, dans le Manifeste du Parti communiste, ils
 recommandaient aux prolétaires conscients d'appuyer les
 autres partis, dans leur lutte pour la conquête des libertés Hit
 modernes. Et ce qui est vrai de la liberté politique ne l'est
-LIRE
-Mer
 
 Ë pas moins des autres droits de l'homme, menacés par la
 réaction cléricale et militariste,
@@ -1102,7 +983,6 @@ prolétaire arrache à la mort un homme d'une autre classe ?
 Pourquoi s'opposerait-il à ce que des militants socialistes
 
  arrachent un innocent aux mains des bourreaux et des
-sauvages ?
 
 Et cela quand il s'agit de sauver, en même temps, tout
 ce qui vaut la peine d'être sauvé dans la société moderne.
@@ -1122,17 +1002,12 @@ un ministère bourgeois, sous sa responsabilité personnelle?
 Avec nos habitudes de discipline et d'action en commun,
 nous ne pouvons que regretter qu'en l'absence d'une organisation unitaire des socialistes français un militant puisse
 prendre des décisions aussi graves sous sa responsabilité
-personnelle.
 
 Aussi espérons-nous fermement que, de votre prochain
 congrès, jaillira l'Unité socialiste,
 
 Quant à la question de savoir dans quelle mesure le
-prolétariat socialiste peut participer au pouvoir bourgeois,
 c'est avant tout, à mon avis, une question de fait et de
-circonstances.
-
-CONSULTATION INTERNATIONALE VANDERVELDE À
 
 Beaucoup de nos amis font une distinction subtile entre les
 cas où les représentants du prolétariat pénètrent dans une
@@ -1149,7 +1024,6 @@ compromis, des alliances, des coalitions, il devient impossible de soutenir, a p
 quoi qu'il arrive, les socialistes ne doivent prendre « pos- ‘
 session, partiellement, de la puissance ministérielle ».
 Des circonstances exceptionnelles peuvent exiger des
-actes exceptionnels. Salus populi suprema lex.
 
 Mais, ces réserves faites, je dois ajouter qu'en règle
 générale je suis résolument opposé à l'entrée de manda- #4
@@ -1166,17 +1040,12 @@ Aussi longtemps que le socialisme n'a pas la puissance de
 nécessaire pour gouverner, au nom de ses principes, il ne
 doit pas — sauf en des cas exceptionnels — participer
 une action gouvernementale qui se fonde sur des principes
-diamétralement opposés.
 
 Avec mes vœux les plus ardents pour que l'union socia-
 liste triomphe dans votre prochain Congrès, et assure le
 succès du Congrès international de 1900, je suis fraternellement vôtre.
-ÉMice VANDERVELDE #1
 
-VAT + PPRE CR NE OS Te AR CAVE MMA “PONS UE BEN FR
 j La Petite République du vendredi 22 septembre publiait
-trois réponses
-GEORGE PLEKHANOV
 George Plekhanov est l'éminent théoricien de la socialdémocratie
 f russe, qui avec un talent d'écrivain hors ligne et une énergie admirable a puissamment contribué à la diffusion des idées marxistesen -
 Russie. Par ses écrits il a conquis une grande place parmi les
@@ -1184,9 +1053,6 @@ théoriciens du socialisme international.
 
 Traqué par la police du tsar pour sa participation au mouvement
 révolutionnaire, il se réfugia en Suisse, où il dirigea une revue importante, le Socialdemokrat.
-
-Genève, septembre 1899,
-Chers citoyens,
 
 Vous me faites l'honneur de vouloir connaître mon opinion sur les questions suivantes
 1.— Le prolétariat socialiste peut-il, sans manquer au principe de la lutte des classes, intervenir dans les conflits des
@@ -1211,7 +1077,6 @@ le droit, mais le devoir d'intervenir dans les conflits des
 diverses fractions bourgeoises, toutes les fois qu'il le trouvera utile pour les intérêts du mouvement révolutionnaire.
 Mais cette intervention ne saurait être utile aux intérêts du
 
-CONSULTATION INTERNATIONALE PLEKHANOV
 mouvement révolutionnaire, et ne devrait avoir lieu, que
 dans les cas où elle pourrait rendre plus active et plus énergique la lutte entre la bourgeoisie — c'est-à-dire les posses-
 seurs des moyens de production — d'un côté, et le proléta-
@@ -1244,12 +1109,6 @@ la résolution de participer au pouvoir bourgeois ne saurait
 être prise par les socialistes que dans le but immédiat et
 nettement posé d'accélérer la dissolution de la société actuelle.
 Agréez, chers citoyens, l'assurance de mon amicale con- N
-sidération.
-GEORGE PLEKHANOV
-
-IL
-
-PABLO IGLESIAS
 
 Pablo Iglesias est depuis vingt ans l'âme du Parti ouvrier espagnol.
 C'est lui qui a arraché les travailleurs socialistes de la péninsule aux
@@ -1261,7 +1120,6 @@ lista la lutte contre le capitalisme et ses suppôts, le militarisme et le”
 cléricalisme. Orateur à la parole entraînante et chaude, il multiplie
 les meetings et les réunions sur la surface entière de l'Espagne.
 
-Madrid, 7 septembre 1899,
 Honorables citoyens Gérault-Richard et Jaurès,
 
 Je ne puis répondre avec l'ampleur nécessaire à votre
@@ -1283,7 +1141,6 @@ cessaire afin de combattre les courants réactionnaires qui y
 sont allés plus loin qu'ils ne devaient, en lui donnant une
 
 importance supérieure à celle qu'elle a en réalité pour la
-! classe ouvrière.
 
 L'affaire Dreyfus, lorsqu'on la considère exclusivement
 au point de vue de l'injustice commise par les tribunaux
@@ -1300,9 +1157,6 @@ Les socialistes ne peuvent participer au pouvoir pour
 faire exécuter les lois faites par la classe exploitante dans
 le but de maintenir les producteurs dans l'esclavage, dans
 la misère et dans l'ignorance. Il doivent s'en emparer seulement pour détruire tous, absolument tous les privilèges
-capitalistes. i
-PABLo IGLESIAS Ù
-ANDREA COSTA
 Andrea Costa est par excellence un militant. C'est de prison qu'il
 nous adresse les lignes ci-dessous, et de fait notre vaillant camarade
 a déjà passé la moitié de son existence soit en exil sur la terre de
@@ -1327,11 +1181,9 @@ Je dois donc me borner, mes chers amis, à vous envoyer
 mes salutations cordiales'et à vous souhaiter, ainsi qu'à tous
 nos amis et compagnons de France, assez d'abnégation et de
 constance pour traverser la douloureuse période présente. .
-ANDREA CosTA
 La Petite République du lundi 25 septembre publiait
 
 la réponse de Enrico Ferri
-ENRICO FERRI
 
 Eorico Ferri est en Italie l'un des représentants les plus autorisés,
 
@@ -1347,13 +1199,11 @@ Chambre italienne la circonscription de Mantoue.
 Pour donner une réponse aux deux questions qui agitent
 maintenant les différents groupes du parti socialiste fran-
 çais, il faut d'abord s'entendre sur ce que c'est que le socialisme, en tant qu'il est le programme et la boussole d'un
-parti politique militant.
 
 L J'entends par socialisme la doctrine, en même temps sociologique et politique, que Marx surtout a établie dans ses
 lignes fondamentales en accord complet (et c'est là sa force)
 avec l'orientation expérimentale et scientifique de la pensée
 contemporaine, qui va du transformisme universel (évolution) et du transformisme biologique (lamarckisme et
-darwinisme) au transformisme social (marxisme).
 
 La doctrine marxiste n'est pas, naturellement, le produit
 immuable d'une intelligence surhumaine ; elle est — comme
@@ -1368,7 +1218,6 @@ opposé à tous les partis bourgeois, quelle que soit leur nuance.
 
 L'inévitabilité de la socialisation des moyens de produc-
 
-CONSULTATION INTERNATIONALE FERRI ; à]
 tion et de travail — comme processus naturel et évolutif de
 de la société bourgeoise — constitue la donnée sociologique (A
 fondamentale et partant la boussole du prolétariat, en tant
@@ -1406,7 +1255,6 @@ même sans être de vrais prolétaires salariés, en ressentent
 tous les frémissements rénovateurs dans le cœur et dans le
 cerveau — la conscience socialiste peut répéter dans un
 sens absolu ce que le poète latin a dit : homo sum et nihil
-humani a me alienum puto.
 Je suis homme, et tout ce qui est humain — dans le sens
 le plus moderne et évolué du mot — constitue mon essence
 et ma force : depuis la condition économique jusqu'aux
@@ -1424,7 +1272,6 @@ et qui, pour vivre, a eu et a besoin de la liberté, est condamnée — dans sa 
 avec un antagonisme intérieur qui en signe la mort, sur les
 institutions (militarisme et cléricalisme) qui étaient le propre
 de cet ancien régime et de ce féodalisme, que la bourgeoisie
-a tués en naissant.
 
 Ces considérations générales, quoique formulées tout à la
 
@@ -1445,12 +1292,10 @@ erreur judiciaire quelconque. Le prolétariat socialiste s'en
 est occupé et devait s'en occuper, non pas comme Voltaire
 s'occupa généreusement de l'affaire Calas, mais en prenant
 l'affaire Dreyfus comme symbole et symptôme de la survivance menaçante du militarisme et du cléricalisme féodaux
-en plein régime bourgeois républicain.
 
 Le capitaine Dreyfus nous intéresse beaucoup; mais il
 n'est qu'une, et des plus fortunées, parmi les innombrables
 
-CONSULTATION INTERNATIONALE Ferrt
 victimes de cette machine à écraser les hommes qu'on
 appelle la « justice pénale ».
 
@@ -1530,13 +1375,10 @@ une administration municipale, sans qu'il soit le mandataire
 du parti? Et pourrait-il être le mandataire du parti avant
 que le parti ne soit arrivé à la majorité légale dans le conseil communal?
 
-Évidemment, non.
-
 Dans une commune où les électeurs et les élus socialistes
 sont, par exemple, la vingtième partie du corps électoral et
 du conseil communal, un socialiste élu pourrait-il être le
 
-CONSULTATION INTERNATIONALE Ferrt
 maire ou l'assesseur, perdu dans la foule des conseïllers et
 des assesseurs bourgeois ?
 Je crois que jamais on n'admettrait cela, car cette participation ne serait qu'une participation personnelle, trop
@@ -1563,7 +1405,6 @@ civilisation contre le retour du médiévalisme, il peut et il
 doit le faire (car la conscience socialiste est la forme la plus
 haute de l'évolution humaine), mais toujours comme parti,
 jamais comme individu sans mandat de ses compagnons de .
-lutte.
 Dans ce cas, on a une position difficile et délicate, qui, en
 vue de quelques avantages très restreints et très problématiques, porte avec elle la certitude d'énormes désillusions.
 Celles-ci n'empécheront pas, tant s'en faut, la marche du
@@ -1576,12 +1417,7 @@ qui ne pouvant pas faire de la philosophie de l'histoire
 sont plus suggestionnés par les leçons de choses que la
 chronique quotidienne leur met devant les yeux.
 
-Enrico FERRI
-
 La Petite République du mardi 26 septembre publiait
-
-deux réponses
-WILHELM LIEBKNECHT
 
 Liebknecht symbolise en sa personne tout le passé héroïque et
 
@@ -1595,7 +1431,6 @@ Député de Berlin au Reichstag, rédacteur en chef du Vorwaerts,
 vétéran des congrès internationaux, Liebknecht est aussi connu des
 socialistes de France que des socialistes d'Allemagne.
 
-ù Berlin, septembre 1899,
 Mes chers amis,
 
 Puisque la réponse à vos questions se trouve dans ma
@@ -1612,13 +1447,9 @@ Mes salutations fraternelles à vous et au citoyen Jaurès.
 
 Tout à vous.
 
-WILHELM LIEBKNECHT
-
 () Par exception nous ne donnons pas cette lettre : nos lecteurs
 
 sont amplement renseignés sur les sentiments du citoyen Liebknecht.
-
-LOUIS BERTRAND
 
 Louis Bertrand est en Belgique l'un des militants de la première
 heure. II combattait dès 1880 aux côtés de César de Paepe, de Brismee
@@ -1629,11 +1460,8 @@ Représentant, à la Chambre des députés, de l'arrondissement de
 Soignies, échevin de Schaerbeek, Louis Bertrand s'attache avant
 tout à l'obtention des réformes immédiates qui peuvent alléger les x
 misères du prolétariat.
-ï Bruxelles, septembre 1899, k
-Chers camarades,
 
 Vous voulez bien me demander mon avis sur deux questions qui préoccupent en ce moment le parti socialiste
-français
 I. — Le prolétariat socialiste peut-il, sans manquer au
 principe de la lutte des classes, intervenir dans les conflits
 des diverses fractions bourgeoises, soit pour sauver la liberté
@@ -1642,15 +1470,12 @@ l'humanité ?
 cette première question, je réponds aflirmativement
 pour les raisons que voici
 La classe bourgeoise, si elle a un intérêt commun, est
-cependant divisée en diverses fractions.
 
 Elle compte des monarchistes et des républicains, des clé- À
 ricaux et des libres penseurs, des protectionnistes et des
-libres-échangistes, etc., etc.
 
 Quand la question de la forme du gouvernement est en
 cause, ou celle de la liberté de conscience, pourquoi les socialistes n'appuieraient-ils pas les uns pour battre les
-autres?
 
 En ce qui concerne spécialement l'affaire Dreyfus, l'intervention du parti socialiste était indispensable.
 Un homme se noie ou va être dévoré par les flammes.
@@ -1664,7 +1489,6 @@ parce que c'est un bourgeois et un juif? Ce serait monstrueux !
 
 Aussi, Jaurès, en prenant la défense de la victime de
 l'État-Major, a-t-il rendu un énorme service à l'idée socialiste; nous sommes tous d'accord ici sur ce point, et nous le
-félicitons fraternellement.
 
 Il a d'ailleurs fait un coup double : il a posé d'abord un
 acte d'humanité et de justice; ensuite, il a fait la guerre au
@@ -1690,7 +1514,6 @@ Il y a plus: Avant d'aboutir à l'idéal, nous devons pas-
 pourquoi tous les partis socialistes, à côté de leurs déclara-
 
 tions de principes, ont rédigé un programme de réformes
-pratiques.
 
 Le but, c'est de rendre les hommes plus heureux, maté-
 riellement, et meilleurs, moralement.
@@ -1700,14 +1523,12 @@ plus humaine.
 
 Et alors se pose cette question : cette œuvre d'améliora-
 
-VTT: Lau 3 ir
 tion matérielle et morale de la condition des masses populaires ne peut-elle être entreprise que lorsque le parti socialiste sera majorité, ou doit-elle être secondée et activée
 par le concours du parti socialiste, prenant part, pour une
 partie seulement, à la constitution d'un gouvernement?
 Refuser d'entrer dans un ministère non complètement
 socialiste serait, à mon avis, aussi insensé que de refuser ,
 d'entrer dans un parlement ou dans un conseil municipal
-avant d'être majorité!
 
 Ma conviction profonde est donc que l'intérêt du parti
 socialiste est de pénétrer partout où son action peut être
@@ -1722,15 +1543,11 @@ Pour ce qui est du cas spécial de notre ami Millerand,
 je crois aussi qu'il a bien fait d'entrer dans le ministère
 actuel, surtout à cause de la situation exceptionnelle dans
 laquelle se trouvait et se trouve encore la France de la Ré-
-volution.
 
 Voilà, chers camarades, l''humble avis de votre dévoué
 
-Louis BERTRAND
-
 La Petite République du jeudi 28 septembre publiait
 la réponse de Kautsky
-KARL KAUTSKY
 
 Karl Kautsky, le théoricien le plus autorisé du socialisme scientifique, sb a créé, pour soutenir les idées de Marx, l'organe die Neue
 Zeit (l'Ére nouvelle), qu'il dirige depuis 1883 avec un tact et un talent
@@ -1743,16 +1560,13 @@ sur la question agraire marque une date dans la littérature socia-
 liste. Son dernier livre, destiné à un grand suecès, combat avec
 
 vigueur les tendances opportunistes de Bernstein.
-Berlin-Friedenau, 12/8 1899,
 
-Chers camarades,
 Des deux questions auxquelles vous m'avez, en même
 temps que plusieurs autres membres du parti, invité
 répondre, l'une me paraît extrêmement simple; c'est la
 question de savoir si le prolétariat socialiste viole les principes de la lutte de classe, lorsqu'il intervient dans l'intérêt de la liberté et de l'humanité dans les conflits entre
 diverses fractions de la bourgeoisie. Je crois que dans ces
 cas le prolétariat a non seulement le droil, mais même le
-devoir d'intervenir.
 
 Il ne faut pas oublier que pour le socialiste la lutte de
 classe n'est pas un but en soi, mais un moyen pour
@@ -1781,12 +1595,9 @@ la plus intime et que le prolétariat devait participer énergi-
 
 L'air 4, Ps ar
 
-CONSULTATION INTERNATIONALE KaurTskY
 quement à toute lutte intéressant le progrès social, même
 
 dans le cas où aucun intérêt prolétarien ne serait directe-
-
-ment en jeu.
 
 Déjà dans le Manifeste du parti communiste ils déclaraient
 « En France les communistes se rallient au parti démocrate
@@ -1802,17 +1613,14 @@ le programme de la démocratie socialiste allemande (1875),
 
 Marx s'éleva contre cette formule qui ne pouvait que trop
 facilement nous amener à négliger l'importance des antagonismes et des luttes intestines entre les classes non proléta-
-à riennes.
 , L'Internationale non plus ne s'est pas désintéressée des
 luttes intérieures des classes non prolétariennes ; elle prit
 part pour tous les opprimés, pour l'indépendance de la
 Pologne, pour le Home Rule en Irlande, pour les États du
 Nord contre les États du Sud pendant la guerre de Sé-
-cession.
 L'intervention des partis socialistes dans les luttes intestines de la bourgeoisie est d'autant plus nécessaire qu'ils
 sont plus puissants, car leur neutralité apparente devient
 en fait, dans la même mesure, une protection des éléments
-réactionnaires.
 
 C'est un fait désagréable, mais inévitable, que la crois-
 sance des partis socialistes s'effectue au détriment du
@@ -1845,7 +1653,6 @@ question de tactique à laquelle on peut donner des réponses
 différentes pour différentes époques et différents pays et
 laquelle je n'oserai point donner de réponse absolue et
 
-Bat inconditionnée.
 En Suisse et en Angleterre une telle participation me
 paraît possible; en Allemagne inadmissible. Mais précisément parce que je ne puis pas donner de réponse absolue,
 je ne puis pas non plus prétendre que le principe de la lutte
@@ -1862,7 +1669,6 @@ lui-même, ainsi que le parti qui le soutient. Je ne voudrais
 pas prétendre par cela que, sans violer le principe de la
 lutte de classe, les socialistes ne puissent pas, dans des cir-
 
-CONSULTATION INTERNATIONALE KAUTSKY
 constances exceptionnelles et pour un but déterminé,
 
 collaborer avec des démocrates bourgeois dans le même s
@@ -1905,11 +1711,7 @@ pour qu'il devienne l'arme Ja plus puissante dans la grande
 lutte contre le militarisme et le cléricalisme qui agite
 actuellement ce pays.
 
-KARL KAUTSKY
-
 La Petite République du vendredi 29 septembre
-publiait deux réponses
-ÉDOUARD BERNSTEIN
 
 Édouard Bernstein est un des plus vieux lutteurs et un des meilleurs publicistes du parti socialiste allemand. Lorsqu'après le vote
 de la loi d'exception contre les socialistes, en 1878, le parti fonda à
@@ -1926,13 +1728,9 @@ de l'Angleterre. Il ne cessa point pour cela de travailler au développement du 
 correspondances dans les quotidiens, comme le Vorwaerts. Ces temps
 derniers, la polémique doctrinale engagée entre Bernstein et Kautsky
 a fait grand bruit en Allemagne et dans tous les milieux socialistes
-internationaux.
 
-London, août 1899,
 Aux citoyens Jean Jaurès et Gérault-Richard
-Chers citoyens,
 Voici ma réponse aux deux questions que vous avez bien
-voulu me poser.
 
 : Dans la société moderne, où les privilèges légaux de
 classes, d'états ou de castes ont disparu, ôu sont en train
@@ -1945,7 +1743,6 @@ batailles ayant pour enjeu la liberté politique ou l'humanité? Cela équivaudr
 
 diction de défendre ses propres intérêts et ses idées huma46
 
-CONSULTATION INTERNATIONALE BERNSTEIN el
 nitaires. On se trouverait alors en face d'un principe d'im- QU.
 bécillité, mais pas d'un principe de lutte de classe. ‘el
 La non-intervention peut être défendue en se basant sur , ‘44
@@ -1962,7 +1759,6 @@ présence de la guerre civile des États-Unis, ce « seul événe- D
 ment grandiose de l'histoire moderne », comme Marx la
 appelée dans Le Capital. Bien que les Yankees du Nord 1$0
 fussent des bourgeois, l'Internationale se prononça en leur
-faveur.
 Ceux qui nient l'intérêt du parti socialiste dans l'affaire
 Dreyfus, parce que Dreyfus est un bourgeois, me semblent He
 confondre la lutte de classe dans la société moderne avec 4 » ve
@@ -2016,8 +1812,6 @@ de se déclarer résolu à agir d'après les exigences du moment
 et d'assumer toutes les responsabilités qui en résultent.
 - Salut cordial et fraternel.
 Votre très dévoué
-EDpouARD BERNSTEIN
-LÉON DEFUISSEAUX
 Léon Defuisseaux descend d'une ancienne famille de démocrates
 et de républicains belges.
 
@@ -2027,7 +1821,6 @@ imposée à la Belgique par le Second Empire.
 
 Léon Defuisseaux fut élu pour la première fois député en 1870, par
 
-CONSULTATION INTERNATIONALE DErFuISssEAUx
 les électeurs de l'arrondissement de Mons. C'était sous le régime
 censitaire. Après avoir siégé pendant dix ans à la Chambre belge et (+728
 y avoir défendu les principes de la démocratie, parmi lesquels figu-
@@ -2035,19 +1828,16 @@ rait au premier rang le suffrage universel, il donna, en 1881, sur Ca
 cette question, sa démission, qui eut un retentissement énorme et
 prépara les voies au suffrage universel. h;
 En quittant la Chambre censitaire, il annonça sa prochaine rentrée au Parlement avec ses amis socialistes. Cette prophétie s'est
-pleinement réalisée. Fù-
 Léon Defuisseaux écrivit alors un livre qui eut en Belgique un ue
 succès considérable, les Hontes du régime censitaire. Il collabora au f
 National, le premier journal républicain de Belgique. Il collabore hi
 encore aujourd'hui au Peuple, organe quotidien du Parti ouvrier
-belge.
 Léon Defuisseaux est un brillant orateur. Il jouit dans les rangs Ne
 de l'opposition d'une grande autorité. Tous les socialistes belges, 4
 wallons et flamands, entourent de la plus vive affection cet homme Ve
 tout de bonté et de générosité, qui fut en Belgique le précurseur et
 l'apôtre du suffrage universel et de l'idée républicaine. ce.
 
-” Bruxelles, août 1899, 4
 Chers citoyens, Le
 
 Vous me demandez si je crois que le prolétariat socialiste i'
@@ -2072,8 +1862,6 @@ que le prolétariat socialiste peut participer au pouvoir f
 bourgeois, et si le principe de la lutte des classes s'oppose Ke
 absolument et dans tous les cas à la prise de possession
 
-RTE SR TR RER PR OT LIU
-
 partielle de la puissance ministérielle par le parti socialiste.
 
 Je pense que le prolétariat a le droit et dans certains cas
@@ -2091,12 +1879,8 @@ aux socialistes de tous les pays.
 Je vous écris ces lignes avec une conviction profonde, et
 vous donne de loin ma fraternelle poignée de main.
 
-Léon DEFUISSEAUX
-
 La Petite République du mardi 3 octobre publiait la
 réponse de Pierre Lavrov:
-
-PIERRE LAVROV (1)
 
 Une des plus pures gloires du socialisme russe. Penseur profond
 et original, lutteur infatigable, le célèbre proscrit russe est sur la
@@ -2109,25 +1893,20 @@ chef de la revue : Vpériod (En avant, 1874, Londres), un des directeurs
 du Messager de la Volonté du Peuple (1883, Genève), et le collaborateur le plus actif des Matériaux, publication ayant pour but l'exposé
 
 - documentaire de l'histoire du mouvement socialiste en Russie (1893,
-Genève).
 
 En Russie, Pierre Lavrov a publié, sous différents noms d'emprunt, ses célèbres Eettres historiques et un nombre immense d'articles sur les différentes questions philosophiques et sociologiques.
 Parmi ses publications les plus récentes nous avons à signaler surtout les deux volumes, parus à Genève, de son Histoire de la Pensée
-humaine, véritable monument d'érudition philosophique.
 
 (1) Nos lecteurs savent que Pierre Lavrov est mort le 6 février
 
-. CONSULTATION INTERNATIONALE LAvrov
 Ami intime de Karl Marx, Lavrov était toujours partisan de la Val
 théorie de la lutte des classes, et il se dit même très modestement éd
 élève du grand penseur, en économie politique ; mais il s'est toujours
 refusé à l'interprétation étroite de la philosophie de son génial ami, Su.
 en opposant aux adeptes russes de cette interprétation une philoso- F mr
 phie plus large, plus solide et non moins scientifique.
-Chers camarades, :$"38R
 La rédaction de La Petite République me demande mon
 opinion sur deux questions, qui vont être l'objet d'une Ê LR
-délibération au Congrès national socialiste français :
 
 1.— Le prolétariat socialiste peut-il, sans manquer au prin- RÈ
 cipe de la lutte des classes, intervenir dans les conflits des
@@ -2163,7 +1942,6 @@ lutte des classes, où le prolétariat socialiste s'organise sur
 une base internationale pour détruire le régime capitaliste
 « qui sert de fondement à l'état social actuel et y domine. Je
 crois que c'est admis par tous les socialistes de notre
-époque.
 Mais si on considère attentivement le cours de l'histoire
 ï humaine dans son ensemble, on trouve, à ce qu'il me paraît,
 en premier lieu, que la lutte du prolétariat contre le capi-
@@ -2190,7 +1968,6 @@ du régime socialiste ?
 
 l'apparition de l'Internationale on avait pu croire que
 
-CONSULTATION INTERNATIONALE ‘ Lavrov
 l'organisation du prolétariat en sections, en conseils fédé- s )
 raux, et en congrès ouvriers internationaux, avec l'organe
 permanent d'un Conseil général, pourrait devenir immé-
@@ -2271,7 +2048,6 @@ laisser indifféremment triompher, selon l'occasion, l'un
 ou l'autre parti politique. Toute opposition à un abso-
 lutisme, même mitigé, est une meilleure préparation à ne
 l'avènement du socialisme que le triomphe de l'absolu-
-tisme. pe
 Donc, au nom des intérêts socialistes, il n'y a pas à #”
 s'abstenir, mais à voter, dans le sens d'une opposition au L', ÿ
 parti le plus dangereux. Il est encore plus évident, à ce
@@ -2290,14 +2066,12 @@ ministère, soutenu par un Parlement bourgeois, qui possède d
 — du moins officiellement — le pouvoir suprême dans
 l'État, et, par cela même, ne représente aucun élément Ne
 d'opposition à la direction des affaires dans le sens des . x
-intérêts capitalistes ?
 Pour ceux qui voient dans le socialisme actuel uni- pa
 quement la lutte des classes, le problème admet différentes s
 solutions selon des circonstances tout à fait éventuelles. Il
 s'agit d'apprécier les combinaisons qui permettraient à une
 individualité socialiste — et que je suppose complètement ‘
 sincère dans ses convictions — de donner à la législation
-PRE PORT EN a PRO RS RER PE NLITS PAU LL PAS RASE OU MEUUS RTE
 
 du pays une poussée dans un sens favorable au socialisme
 comme principe et au prolétariat comme classe sociale.
@@ -2325,8 +2099,6 @@ l'avènement de la révolution sociale? Serait-il utile, dans
 ce cas, qu'une personnalité éminente du parti socialiste
 acceptät un rôle ministériel pour préparer la révolution
 
-future ?
-
 la première de ces deux questions je crois pouvoir
 répondre affirmativement. Pour préparer un meilleur avenir le parti socialiste me semble devoir aider le gouverne-
 
@@ -2342,7 +2114,6 @@ d'un membre du Parti socialiste, dont les talents et l'activité énergique ont 
 
 ses coreligionnaires et dont la conduite dans des cas dou56
 
-CONSULTATION INTERNATIONALE Lavrov
 teux put leur servir d'exemple. Ce qui est surtout grave il ne
 ici, ce ne sont pas les résultats immédiats du fait accom- É
 pli; c'est, pour un avenir plus ou moins prochain, l'admis- a
@@ -2379,17 +2150,11 @@ s'agisse du règne de la justice et de la solidarité humanitaire, mais pour ceu
 que soient les moyens employés, est un but à atteindre par
 cela même, et des réponses tant soit peu générales aux
 questions posées, à ce point de vue, comme je l'ai dit, me
-paraissent complètement impossibles.
 
 Agréez, chers camarades, mes meilleurs séntiments socialistes.
 
-PIERRE LAVROV
-
-Paris, 14 septembre 1899
-
 La Petite République du mercredi 4 octobre publiait
 la réponse de Hyndman
-HENRY HYNDMAN
 
 Henry Hyndman, le fondateur et le principal leader de la Social
 Democratic Federation, appartient à une opulente famille de l'aristocratie anglaise.
@@ -2403,7 +2168,6 @@ plein de fougue, Hyndman est un homme supérieur tant au point
 de vue moral qu'au point de vue intellectuel.
 
 Son principal ouvrage, l'Idéal d'un démocrate socialiste, a fait
-époque en Angleterre.
 
 Doué d'une remarquable activité, Hyndman se dépense sans
 compter, écrivant brochures, tracts, articles dans le périodique du
@@ -2411,8 +2175,6 @@ parti, Justice, donnant six meetings ou conférences par semaine. Mais
 l'objectif de notre camarade est surtout d'amener au socialisme les
 puissantes trade-unions d'outre-Manche, afin d'accélérer la marche
 du mouvement prolétarien et de le rendre irrésistible.
-Ê Londres, septembre 1899,
-ë Chers citoyens,
 Il est très difficile de résoudre d'une façon purement
 abstraite les deux problèmes sur lesquels vous me demandez
 mon opinion. Mon ami Belfort Bax, l'homme le mieux doué
@@ -2424,7 +2186,6 @@ sur les événements actuels. De toutes facons, les réponses
 faire dépendent nécessairement de la situation du parti
 socialiste dans le pays où se pose à lui le problème. Sans
 
-CONSULTATION INTERNATIONALE . HyNDMaAN
 quoi, une discussion de cette nature ne serait-elle pas un peu
 « la recherche de l'absolu » dans le domaine politique ?
 Je vais done m''efforcer de vous donner mon opinion, rien
@@ -2474,7 +2235,6 @@ le haut clergé, aussi bien anglican que catholique, et en
 agissant ainsi nous nous trouvons plus ou moins sur un
 te terrain commun avec les protestants dissidents etautres non
 conformistes, dont nous sommes sur d'autres points les
-adversaires résolus.
 Assurément si un cas comme celui du capitaine Dreyfus
 s'était produit en Angleterre, nous aurions, nous les socia-
 listes anglais, demandé justice pour l'innocent, et j'espère
@@ -2494,11 +2254,9 @@ l''antagonisme des classes sur le terrain économique ou
 même politique. C'est ainsi par exemple que socialistes et
 libéraux font en Belgique cause commune à propos du suf6o
 
-CONSULTATION INTERNATIONALE HynpMaAx
 frage universel. Mais le jour où ils auront obtenu l'égalité .
 politique, ils seront aussi antagonistes qu'auparavant. Ils
 ne sont d'accord que pour atteindre un but nettement
-défini. ‘4
 
 Ilestbeaucoup plus difficile de répondre à la deuxième ques-
 tion qu'à la première. Personne ne conteste, si ce n'est les
@@ -2533,7 +2291,6 @@ un cabinet dont M. Asquith eût été membre ? Certainement
 non. À moins que le parti socialiste tout entier, par un
 referendum général ou par la voix de ses délégués se fût
 } déclaré à une énorme majorité pour notre entrée dans un
-tel gouvernement.
 Je reconnais parfaitement que dans une période de tran-
 sition nous avons tout intérêt, qu'on peut même juger que
 c'est nécessaire pour nous d'agir d'accordavec les adversaires
@@ -2559,26 +2316,20 @@ l'erreur et victimes des préjugés, mais elles deviennent
 graduellement des organismes conscients et intelligents.
 C'est pourquoi tout acte qui va à l'encontre de leur sentiment a beaucoup de chance de faire plus de mal dans l'ave-
 nir qu'il ne peut faire de bien au point de vue de la tactique
-immédiate.
 - En attendant, et quelle que soit l'impression désagréable
 que me cause la présence de Millerand dans le même cabinet que Galliffet et Waldeck-Rousseau, j'espère que le
 prochain Congrès national du Parti socialiste français
 reconnaîtra votre dévouement absolu et celui de vos collaborateurs à la cause de la justice et de la liberté, et déclarera nettement que vous n'avez jamais voulu subordonner
 la grande cause du socialisme international à des avantages
 passagers de tactique.
-HENRY HyYNDMAN
 
-CONSULTATION INTERNATIONALE NE
 La Petite République du jeudi 5 octobre publiait cette nr
-réponse triple :
-LES SOCIALISTES DANOIS ‘4
 Le parti socialiste de Danemark est un des plus fortement orga-
 nisés d'Europe. Grâce à la souplesse de sa méthode, grâce aussi
 au sens pratique caractéristique de la race, il a réalisé en peu
 d'années des progrès considérables. Il compte aujourd'hui près de
 100,000 adhérents groupés dans leurs syndicats et agissant avec une d
 admirable discipline sur le terrain économique et sur le terrain
-politique.
 On l'a bien vu lors du lock-out qui vient à peine de prendre fin.
 Dans cette lutte gigantesque engagée par le patronat tout entier
 contre la classe ouvrière tout entière, le socialisme, après une + 2
@@ -2587,7 +2338,6 @@ La consultation que nous donnons plus bas émane de trois des 1100
 meilleurs militants de ce parti, qui bientôt sera le maître de la
 terre danoise, les citoyens Sigvald Olsen, P. Knudsenet A.-C. Meyer.
 Classe ouvrière et bourgeoisie ÿ
-Copenhague, septembre 1899,
 
 .. * Les rédacteurs de la Petite République nous ont invités
 fournir des réponses à quelques questions qui, malgré
@@ -2614,7 +2364,6 @@ l'humanité ?
 Nous jugeons que les partis ouvriers non seulement
 peuvent se mêler aux conflits des fractions bourgeoises,
 mais qu'ils ont la charge de le faire. Et voici pour quelles
-raisons
 La démocratie socialiste n'est pas une secte dont les
 adeptes sont revêtus d'un uniforme rouge pour se distinguer .
 des autres partis. Sa tâche consiste à utiliser toute situa-
@@ -2624,7 +2373,6 @@ classe ouvrière. Par conséquent, dans sa lutte contre la
 réaction noire, la démocratie socialiste se rangera du côté
 du bleu politique, soit de la bourgeoisie, tandis que, dans
 la lutte contre la politique conservatrice, elle se tiendra du
-côté radical.
 
 j Nos adversaires ne se ressemblent qu'autant qu'ils ne
 sont pas démocrates socialistes. Dans leurs rapports mutuels ils sont souvent divisés et se combattent avec acharnement. Dans aucun pays, nous parait-il, ce fait ne s'est
@@ -2648,7 +2396,6 @@ son programme, mais aux dépens des autres partis politiques.
 
 La démocratie socialiste de Danemark a lutté à côté du
 libéralisme contre la réaction, et à côté du radicalisme
-CONSULTATION INTERNATIONALE Daxois
 contre la modération : dans l'un et l'autre cas, elle a réussi
 à consolider ou à étendre les droits politiques de l'ouvrier,
 qui forment sa meilleure arme pour l'obtention du pouvoir Vs
@@ -2715,7 +2462,6 @@ les principes dont Galliffet est le symbole, et la classe tra-
 vailleuse, encouragée par ses succès, s'acheminera à pas
 
 rapides vers le pouvoir, vers la réalisation de ses nobles
-aspirations.
 
 Nous accompagnons de nos meilleurs vœux nos vaillants
 camarades de France dans la lutte qu'ils ont entreprise
@@ -2725,17 +2471,13 @@ fait la force.
 
 La Petite République du vendredi 6 octobre publiait
 cette réponse: !
-HENRY QUELCH ji
 Henry Quelch est, avec William Thorne, Tom Mann et quelques
 autres, un de ces admirables ouvriers manuels qui, par leur sens
 pratique, leur intelligence claire et nette, rendent aujourd'hui de
 si grands services à la cause de l'émancipation de la classe ouvrière
-d'outre-Manche.
 Rédacteur en chef de Justice, organe central de la Social Democratic Federation, Quelch est dans cette organisation socialiste anglaise un des militants les plus dévoués, les plus énergiques. Il est
 en même temps à la tête de l'imprimerie coopérative « The Twentieth Century », à laquelle on doit entre autres une magnifique édition des Economics of Socialism, de Hyndman, dont il est l'ami et le
 compagnon de lutte estimé.
-Londres, septembre,
-Chers camarades,
 Les deux questions que vous me posez sont d'un intérêt
 si capital pour les socialistes de tous les pays, que je crois
 qu'il n'y aurait aucune excuse à un refus d'y répondre.
@@ -2753,7 +2495,6 @@ Boers, le déplorable gouvernement de l'Inde. Et c'est pourquoi je vous félicit
 dans l'affaire Dreyfus, pour la justice et pour l'humanité.
 Cette action bénéficiera d'une façon incroyable à la cause
 du socialisme non seulement en France, mais dans le monde
-entier.
 Pour ce qui est de votre deuxième question, il me semble
 que le principe de la lutte des classes, que le caractère de
 
@@ -2787,18 +2528,12 @@ sortent l'union et l'accord parfait de tous les socialistes
 français, afin que ce soit un parti socialiste français unifié
 qui reçoive, en 1900, les délégués du grand Congrès socia-
 
-liste international.
-
-HENRY QurLeu
-
 La Petite République du mercredi 11 octobre publiait
 la réponse de Labriola
-ANTONIO LABRIOLA
 
 Antonio Labriola, professeur de philosophie à l'Université de
 Rome, est un des théoriciens les plus distingués du socialisme international. Tout le monde connaît ses essais sur la conception ma-
 
-CONSULTATION INTERNATIONALE LABRIOLA ]
 térialiste de l'histoire et sur le manifeste communiste, qui ont eu
 l'honneur de plusieurs traductions. Ils ont paru aussi en français
 chez Giard et Brière, suivis bientôt d'un deuxième volume, recueil
@@ -2808,8 +2543,6 @@ Antonio Labriola collabore à tous les périodiques socialistes de
 son pays et à un grand nombre de revues savantes. Le parti socialiste italien lui sait gré d'avoir coopéré à ses brillants et rapides
 succès par des conseils éclairés autant que désintéressés, par sa
 science profonde, et par son dévouement envers la cause du prolé-
-tariat.
-Portici (Napoli), septembre 1899,
 En m'excusant du retard dû à la lenteur avee laquelle la
 poste est venue me chercher hors de ma résidence ordinaire
 — c'est-à-dire Rome — je me hâte de répondre à votre cir
@@ -2822,7 +2555,6 @@ de Rennes, à l'occasion de laquelle on voit l'infamie du militarisme férocemen
 proche d'ici — qui, du reste, est bien loin d'être en contact
 intime avec la France, ce qui est le propre de Turin et de
 Milan, en a été vivement touchée comme si c'était un
-désastre national.
 C'est en considération de ce sens intuitif de la grande
 « Affaire », que je croirais manquer aux plus élémentaires j
 principes du devoir et de la convenance, en me mettant
@@ -2834,7 +2566,6 @@ Ceux qui entrent en lutte — on le sait bien — ne peuvent
 choisir toujours le champ où ils descendront pour y combattre bravement. C'est pour cette raison qu'à nous socia-
 listes, qui jusqu'à ce moment ne sommes pas les maîtres du
 
-RE ROUTE TO AB Ou ACER POP AT ARNARE E PT SP Mere
 monde, les hasards heureux de la vie échoient comme aux
 autres mortels. Mais pouvait-il advenir à un parti une meilleure fortune que de pouvoir atteindre, en même temps,
 comme en un seul point, le militarisme qui dévoile avec si
@@ -2860,7 +2591,6 @@ sante éloquence, que ce qui peut être occasion ou oppor-
 ) Lunité de lutte n'en est jamais le but.
 
 Quant à la seconde question, je ne puis répondre d'une
-- manière aflirmative.
 Pour sauver la République, faire pénétrer le socialisme
 dans le gouvernement de la bourgeoisie — Millerand devenant ministre avec notre agrément — et finalement admettre
 la thèse que les socialistes puissent participer actuellement
@@ -2916,9 +2646,6 @@ par récent commerce! Est-ce que, par exemple, quand je
 lis les romans d'Anatole France, je ne dis pas continuellement : voilà, je suis chez moi ? he
 Agréez mes souhaits pour la prochaine constitution du
 parti socialiste français un et indivisible.
-ANTONIO LABRIOLA
-finir
-L
 Le Gérant : CHARLES. PÉGUY
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie G.-A. Ricmarp & Compagnie, 9, rue du Pont. — 2036

@@ -7,9 +7,6 @@ author: alexis-bertrand
 isAvertissement: false
 wordCount: 87947
 ---
-
-PROLOGUE D'UNE RÉVOLUTION
-
 Séance de la chambre. — Ministère Molé. — Joie de la bourgeoisie. — Pétition du comité électoral démocratique. —
 Le peuple veut compléter sa victoire.
 
@@ -22,8 +19,6 @@ roi. — Sa fuite.
 Combat du Château-d'Eau. — Prise des Tuileries. — Probité
 du Peuple. 4
 
-CHAPITRE II.
-
 Efforts suprêmes de la royauté. — La duchesse d'Orléans
 à la chambre. — Dupin parle en faveur de la régence. —
 Marie et Crémieux demandent un gouvernement provisoire. — Discours d'Odilon Barrot. — Impuissance de
@@ -32,8 +27,6 @@ l'opposition.
 Envahissement de la chambre. — Discours de Ledru-Rollin
 contre la régence. — Discours de Lamartine. — Essai de
 formation d'un gouvernement provisoire.
-
-CHAPITRE IV.
 
 Première proclamation. — Distribution des Ministères. —
 Le Peuple impose la République au Gouvernement provisoire.
@@ -45,21 +38,17 @@ Création de la garde mobile. — Proscription des emblêmes
 républicains. — Clémence du Peuple. — Abolition de
 l'échafaud politique.
 
-CHAPITRE V.
-
 La curée des places. — Inquiétude du Peuple. — Proclamation socialiste dictée au Gouvernement provisoire. — La
 question sociale posée par le Peuple à l'Hôtel-de-Ville. —
 Création de la commission du Luxembourg. — Ses services. — Son premier décret.
 
 Manœuvres du Gouvernement contre les journaux. —
 
-389 XXI.
 1 3
 
 | Louis Ménard
 no Développement de la presse républicaine. — Ouverture
 des clubs. — Initiation du Peuple à la vie démocratique.
-k CHAPITRE VI.
 f Établissement de la République dans les départements. —
 j Les Commissaires de Ledru-Rollin.
 À La circulaire de Lamartine. — Mouvement général des
@@ -72,15 +61,11 @@ FA Indécision du Gouvernement. — Fausses mesures finan-
 
 La circulaire de Ledru-Rollin. — Conspiration des bonnets
 
-: à poil.
-CHAPITRE VII.
-
 Journée du 17 mars. — Marche du Peuple vers l''Hôtel-de-
 
 ; Ville. — Conférence des délégués du Peuple avec le Gouvernement provisoire. — Lamartine promet l'ajourne-
 
 > ment des élections et l'éloignement de l'armée. — Le
-Peuple se retire.
 
 4 Le Gouvernement provisoire écarte l'influence de Blanqui,
 
@@ -88,7 +73,6 @@ Peuple se retire.
 
 Intrigues de la réaction dans les provinces. — Torpeur des
 ouvriers au moment des élections. — Centralisation des
-clubs. ‘
 
 | CHAPITRE VIIL.
 
@@ -99,15 +83,9 @@ ouvriers reçus par Louis Blanc à l'Hôtel-de-Ville.
 
 Menace d'assassinat contre Cabet. — Nouvelles parades de
 la garde nationale. — Rappel de l'armée. — Toute-puissance de la réaction. — Ses manœuvres électorales. — Le
-suffrage universel faussé partout. 1
 
 Troubles en province à l'occasion des élections. — Victoire ;
 pacifique du peuple de Limoges. — Massacres de Rouen.
-
-390 k
-
-PROLOGUE D'UNE RÉVOLUTION
-CHAPITRE IX.
 
 Réunion de l'Assemblée nationale. — Acclamation una-
 
@@ -118,8 +96,6 @@ Protestation de Barbès.
 Création d'une commission exécutive. — Exclusion des
 socialistes. — Précautions prises par l'Assemblée contre
 le Peuple. — Impuissance de la Montagne.
-
-CHAPITRE X.
 
 Défaite générale de la révolution en Europe. — Massacre
 des Insurgés Polonais. — Huber organise une manifestation en faveur de la Pologne.
@@ -133,8 +109,6 @@ Efforts de Louis Blanc pour contenir le Peuple. — Raspail
 lit une pétition en faveur de la Pologne. — Barbès engage
 l'Assemblée à délibérer et le Peuple à se retirer. :
 
-CHAPITRE XI. %
-
 Blanqui demande au nom du Peuple le rétablissement de la
 Pologne, une enquête sur les massacres de Rouen et des
 lois en faveur du travail. — Ledru-Rollin promet satisfaction au Peuple. — Les délégués des clubs cherchent à
@@ -143,35 +117,27 @@ cesser le rappel. — Derniers efforts de Barbès et de Louis
 Blanc pour faire sortir le Peuple. — Huber prononce la
 
 dissolution de l'Assemblée nationale.
-CHAPITRE XII.
 
 . Les Représentants quittent la salle des séances. — On pro-
 | pose un gouvernement provisoire. — Barbès et Albert
 3 sont entraînés à l'Hôtel-de-Ville par le Peuple. — La .
 £ garde nationale ne leur oppose aucun obstacle.
 
-* 391
-Fe
-
 #f < ñ 1 PSS ee SEP EN UNS
-s Louis Ménard
 4 L'Hôtel-de-Ville est envahi par la garde nationale. —
 L'EGTR Barbès et Albert sont trainés en prison.
 É: Les Représentants rentrent à l'Assemblée, — Tentatives
 “ d'assassinat contre Courtais et Louis Blanc. — Louis
 : Blanc à la tribune. — Clameurs des Représentants. —
 ; L'Assemblée essaie en vain de délibérer.
-CHAPITRE XI.
 ui Arrestation de Sobrier. — Pillage de sa maison et de celle
 | de Cabet. — Quatre cents arrestations. — Les chefs de la
 | démocratie enfermés à Vincennes. — Fête de la Concorde
 ÿ _et de la Fraternité. — Fureur contre les clubs. — Les
 " gardes nationaux tirent les uns sur les autres au passage
-4 Molière. 7
 La Commission exécutive se met aux ordres de la réaction.
 — Ses insinuations contre Caussidière. — Rapport contre
 | Louis Blanc.
-CHAPITRE XIV.
 : Loi contre les attroupements. — Nouvelles élections. —
 Importance donnée à M. Louis Bonaparte par les mala-
 / dresses de la Commission exécutive.
@@ -182,16 +148,11 @@ k Mauvaise organisation des ateliers nationaux. — Attaques
 continuelles de lAssemblée contre les ouvriers. — La
 Commission exécutive, par une mesure violente, donne
 à le signal de l'insurrection.
-CHAPITRE XV.
 Conférence entre Marie et les délégués des ateliers natio- 4
 naux. — Préparatifs de la Commission exécutive. —
 Résistance de Cavaignac. — Ressources du pouvoir.
 Journée du 93 juin. — Étendue de l'insurrection. — Modéra- J
 tion du Peuple. — Premiers combats à la porte SaintDenis, au faubourg Poissonnière, et aux abords de la k
-Cité.
-
-PROLOGUE D'UNE RÉVOLUTION
-CHAPITRE XVI.
 
 Journée du 24 juin. — Proclamation de l'état de siége et de
 la dictature militaire, — Suppression des journaux.
@@ -201,8 +162,6 @@ insurgés. — Calomnies répandues contre eux. — Acharnement de leurs adversa
 
 Attaque et prise du Panthéon. — Prisonniers fusillés au
 Luxembourg, etc. — Prise de la place Maubert. — Prisonniers fusillés à l'Hôtel de Cluny, etc.
-
-CHAPITRE XVII.
 
 Proclamations promettant l'amnistie. — Massacres des prisonniers rendus sur ces promesses.
 
@@ -215,8 +174,6 @@ Attaque du Marais et du faubourg du Temple. — Massacres
 pendant et après la victoire. — Fusillades en masse dans
 le quartier de l'Hôtel-de-Ville.
 
-CHAPITRE XVIII.
-
 Attaque et prise du clos Saint-Lazare. — Attaque du faubourg Saint-Antoine. — Probité du Peuple. — La caserne
 de Reuilly prise par le Peuple et reprise par les troupes.
 — Fusillade des prisonniers.
@@ -228,18 +185,14 @@ Propositions de paix faites par les ouvriers. — Mort de
 l'Archevêque. — Proclamation du Peuple. — Journée du
 26. — Capitulation du faubourg. — Massacre des prisonniers. — Adieu des insurgés à leurs frères morts.
 
-CHAPITRE XIX.
 Suites de l'insurrection. — Récompenses données aux vainqueurs. — Dénonciations, perquisitions et arrestations.
 
 |
 
-k catalogue analytique sommaire
 #8 . — Prisonniers fusillés dans les maisons, les rues et les
-ÿ: casernes.
 4 Le fédéralisme. — Invasion des gardes nationaux de proFe. vince. — Les prisonniers des caveaux des Tuileries, —
 % Massacre du Carrousel. — Translation des prisonniers
 É. dans les forts. — Leurs souffrances. — Derniers masPA. .  sacres.
-CHAPITRE XX. :
 é É Punition des vaincus. — Anéantissement de la Montagne.
 à — Pierre Leroux et Caussidière parlent de clémence. —
 } 6 Article de Lamennais contre la terreur. — Article de
@@ -251,7 +204,6 @@ $ 1 — Commissions militaires. — Conseils de guerre. —
 de siège. — Contre-coup des journées de juin en Europe.
 D: — Élection du Président. — Promesses d'amnistie. — État
 # de la France.
-DANIEL HALÉVY. — Annexes;
 ; I. — Adrastée; poème de Louis Ménard, écrit après l'in-
 Û surrection de Juin 1848; II. — Le procès; en feuilleton dans
 NS : le Peuple, de Proudhon; samedi 3 mars 1849, Ménard et le
@@ -264,12 +216,6 @@ nt rédaction, mon cher ami; dans le supplément au Peuple du
 ; Bibliothèque de l'Institut, une lettre, manuscrite, du père
 Î de Louis Ménard; procès appelé devant la Cour d'assises 4
 de la Seine à l'audience du 7 avril 1849; prévenus deman- |
-k dent audition certain nombre témoins; avocat-général Mey394
-L:
-
-Li à
-
-F y
 
 de LES HOBEREAUX £
 nard de Franc fait opposition; conclusions de la défense;
@@ -278,7 +224,6 @@ répondu par la Cour; plaidoirie Madier de Montjau; protestation de Louis Ménar
 dans le même cahier ;
 
 | L'an mil neuf cent quatre, le vingt-cinq juin: assignation de M. l'abbé Dissard, chanoiïne de la Cathédrale
-demeurant à Laval, à monsieur Charles Péguy, à comparaître
 
 Couverture; vacances; distributions de prix ;
 
@@ -289,11 +234,8 @@ JÉROME ET JEAN THARAUD ; — les hobereaux, — histoire vraie ;
 
 dédié à notre ami Pierre Baudouin ;
 
-LA
 les hobereaux;
 | à la mémoire de monsieur Jean de Monéis;
-
-— À table, messieurs, à table!
 
 La table du curé de Villefaignes était célèbre dans le
 pays : quatre fois par an, aux grandes foires, il rendait aux
@@ -309,12 +251,8 @@ cet eunuque !
 Les bêtes, ouvertes en un tour de main, épandirent dans
 les assiettes les truffes qui tendaient à crever leurs peaux
 
-: dorées.
 |
 
-b
-Ë catalogue analytique sommaire
-Û
 Ê Les hobereaux étaient partis le matin, de bonne heure,
 F à cheval; ils avaient bataillé dans les auberges avec les
 F bouchers; il était plus de deux heures : les chapons étaient
@@ -326,7 +264,6 @@ Prussiens méritaient une leçon... Vous avez lu le Conser3 vateur ?.…
 ‘ Du Landier s'étonna d'entendre parler de guerre. Il
 | vivait à trente kilomètres du bourg, comme un loup, dans
 ; une bicoque où n'arrivait jamais ni un journal, ni une
-à lettre. 3
 — Vraiment... l'Empereur ?
 | Il agitait sa tête couverte de cheveux grisonnants, bien
 Ë qu'il fût jeune, d'un mouvement nerveux pour chasser les
@@ -351,10 +288,7 @@ une fille? |
 aurais une avant lui. à
 — Le Sourd m'avait prêté des terriers.. Je passe chez la
 Sicotière. Nous lächons les terriers dans sa garenne... Un |
-396 s
-LE.
 
-CONGRÈS DES U. P. MAI 1904
 coup de fusil... La Sicotière lève son chapeau... « Nom d'un
 chien, c'est une fille !.. » Le diable m'emporte si je savais
 ce qu'il voulait dire. Sa femme accouchait quand nous
@@ -371,7 +305,6 @@ quitte. Il monte à cheval, court à Bergerac, joue toute la
 nuit, perd tout ce qu'il a, remonte à cheval. La pluie tombaïit. La goutte le prend. La douleur le tord. Il enfonce,
 long comme ça, ses éperons dans Péchard... la bête s'effare, le jette la tête la première dans un bourbier. On l'a
 retrouvé le lendemain, planté dans la tourbe comme un
-pieu.
 
 | — Sacré Léonard ! dit Montcharmin.
 
@@ -386,14 +319,10 @@ la barre de la neuvième chambre correctionnelle ; désistement de M. l'abbé Di
 | Vingtième cahier de la cinquième série, un cahier
 jaune de 160 pages, bon à tirer du mardi 13 septem-
 
-bre 1904 ; deux francs
-
 Textes et documents ; —_ congrès des U.P.mair904 ;
 
 Le cahier que l'on va lire a été établi par la Fédération
 des Universités populaires de Paris et banlieue; il est le
-
-4 XXII
 
 | vinglième cahier de la cinquième série
 compte rendu officiel du congrès tenu à Paris les dimanche
@@ -403,9 +332,7 @@ Fe 22 et lundi 23 mai, — Pentecôte, — 1904, par les Universités
 © lues, entre autres, par M. Maurice Kahn, et par M. Paul
 Kastor, secrétaire de la Fédération des U. P. ; M. Gaston
 4 Rabaud, notamment, a relu sur épreuves son important
-troisième rapport.
 > »
-1 ORGANISATION DU CONGRÈS
 ; Réunion mensuelle de la Fédération des Universités
 } populaires de Paris le 13 décembre 1903, proposition d'un
 ( délégué; adoptée à l'unanimité; décision; commission d'or ‘
@@ -420,24 +347,17 @@ Secrétaire de la Fédération des U. P., Paul Kastor; réunion du 13 mars; adh�
 | signée pour le Comité, Le Secrétaire, H. Ablonet; liste des à
 Universités populaires qui ont envoyé leur adhésion;
 départements; villes; titres des Universités populaires;
-délégués; fédérations régionales; Universités populaires;
-PROCÈS-VERBAL DES SÉANCES
 | Séance du Dimanche 22 Mai, matin;
 Ouverture de la séance; souhaits de bienvenue;
 appel nominal; nomination du bureau; allocution de è
 ; M. Gabriel Séailles, nommé président; quelques renseignements sur l'organisation du Congrès; le déjeuner; L
-, 398 | |
-i
 | 4
 
-E CONGRÈS DES U. P. MAI 1904
 un bureau par commission ; nomination de ces bureaux;
 cinq commissions; réunion de ces commissions; cinq
-À rapports généraux;
 4 Séance du Dimanche 22 Mai, après-midi:
 ; Rapport de la deuxième commission, institutions
 F annexes; lecture par le camarade Clair, rapporteur;
-4 syndicats; coopératives; groupes politiques; patro-
 | nages; mutualités; conclusions; avant discussion du ;
 1 rapport, discussion sur mode de votation; non vote;
 k. surtout congrès d'études; utile de se compter; ne
@@ -445,10 +365,8 @@ k. surtout congrès d'études; utile de se compter; ne
 | laires et de Fédérations; discussion ; rapports des
 ; Universités populaires avec les syndicats; avec les
 3 Coopératives: avec les Groupes politiques; avec les
-; Patronages:
 , Rapport de la première commission, organisation
 générale; lecture par madame Wathier, rapporteur;
-à organisation générale, statuts; question financière;
 À annexes ; statuts; questions financières; où inclus rapL port du camarade Casevitz, trésorier de la Fédération
 de Paris et de la banlieue, président de la commission;
 É ce rapport est sur le budget de cette Fédération; une
@@ -458,14 +376,9 @@ Rù des cotisations; projet de constitution d'une caisse cen3 trale de subventio
 4 financière et administrative; tableaux synoptiques ;
 4 désignation des Universités populaires; moyens finanKa ciers ; cotisations; membres actifs; membres adhérents
 K. ou participants; membres honoraires; dons, subven-
-ÿ tions, allocations; organisation; fédération parisienne
 4 des Universités populaires, nombre d'Universités popu-
 | laires adhérentes et recouvrements; compte des disponi-
 : bilités de la fédération parisienne des Universités popu-
-" laires; 1902, 1903, 1904; disponible, monument Zola,
-fêtes, matinées, Saint-Louis, totaux;
-
-Ut
 
 . vingtième cahier de la cinquième série
 
@@ -477,25 +390,13 @@ ME Plusieurs lettres et télégrammes d'excuses; rapport
 
 ÿ lecture par le camarade Rabaud, rapporteur; confé-
 
-rences isolées; cours; séries; causeries; lectures; dis-
-
 3 eussions ; la Politique; enseignement professionnel;
 
-115 bibliothèque ; publications; matériel d'enseignement ;
-
 0 l'Art et les Universités populaires, l'Art pour tous, les
-
-\ Musées cantonaux; personnel enseignant; conclusion;
-
-4. discussion; Marseille, Montpellier, Brioude, Bourges,
-
-cà Rouen, Montpellier ;
 
 TA Rapport de la quatrième commission, fêtes et distrac-
 
 L. tions ; lecture par le camarade Georges Baër, rappor- ,
-
-ja teur; consultations; consultations médicales ; trois
 
 2. vœux; demandes et offres de renseignements; consul-
 
@@ -515,15 +416,11 @@ f: de musique, de chant et de déclamation; promenades,
 
 excursions, visites; caisse de voyages; cercles de lec-
 
-É ture; trois vœux; bibliothèque, publications officielles;
-
 } acquisition de livres; échange régulier de livres ;
 
 FR discussion ; le Mans, Lyon; la Fraternelle; banquet,
 
 : simple et substantiel; amicale présidence de Gabriel
-
-, Séailles; 65 convives ; Maurice Bouchor;
 
 | Séance du Lundi 23 Mai, après-midi;
 
@@ -539,9 +436,6 @@ les moyens d'entretenir entre elles des rapports aussi
 ; fréquents que possible ; elles reconnaissent la puissance |
 d'action des groupements et loin de repousser la for-
 
-400 ;
-
-CONGRÈS DES U. P. MAI 1904 ;
 mation de Fédérations, quelques-unes concluent logiquement à créer, après la Fédération Nationale, une
 Fédération Internationale des Universités populaires
 ou organisations similaires; Auvers-sur-Oise; Fontenay-en-Vendée; Fédération post-scolaire des DeuxSèvres ; le Mans; Montreuil; la Fraternelle rejette
@@ -549,7 +443,6 @@ la création d'une fédération nationale ; discussion,
 réponse, d'accord avec la majorité; l'Effort de Montrouge; un Bulletin des Universités populaires; une
 mutualité des Universités populaires de France; rapports entre Universités populaires voisines fédérées ou
 non; rôle des fédérations départementales et régionales ; fédération nationale; une bibliothèque documentaire ; une bibliothèque circulante ; conclusion; annexe ;
-Limoges, affiliation aux Jeunesses laïques ; discussion ;
 Bayonne, Tarbes, Bar-le-Duc ;
 
 le prochain congrès ; à mains levées, une seule voix
@@ -566,22 +459,16 @@ des Universités populaires; mais simples propositions
 annexées à la suite des travaux du Congrès; dix vœux
 acceptés; cinq vœux renvoyés pour examen jusqu'après
 la fondation de la Fédération nationale des Universités :
-populaires ;
 
 une communication Jeunesses laïques; une commu- \
 nication Exposition de Saint-Louis ;
 
 remerciements de Maurice Bouchor président aux
 congressistes ; un souvenir ému à la mémoire d'Emile
-Duclaux ;
 
 clôture du Congrès ;
 
-401 XXII.
-
-*, . COPIES Re
 | vingtième cahier de la cinquième série
-‘à FÊTE DE CLOTURE
 | à -
 x Fête de clôture;
 À Le lundi soir 23 mai, à huit heures et demie, au
@@ -609,140 +496,41 @@ série, le prix de ceite série est porté au moins au total
 | . » 0 . 1 . “ .
 des prix marqués: ainsi à dater du premier janvier
 1905 la cinquième série sera vendue un prix sensiblement égal au total des prix marqués, soit
-quarante-sept francs |
 |
-1 "+2 |
 : Aussitôt que ces collections complètes de la J
 | cinquième série seront en voie d''épuisement,
 | leur prix sera porté l'une à cent francs |
 | %
-4 F
 
 ST AA LE DE E ue, 4 PALE HPET Mas Li
 RET a : de SIL EIRE LACS ME dt % HAT
-ï > 0 4 IA ED 4 Me jt REA Rat pit LAS A HA AR à
-AS CPU FA PNA RE SARA, CB APS TL PA L DCS FN qu É
-m2) + ie (PR t, Lu: L TR ‘ : LCR LA 5
-PET RER) NA C PASS PE 11 FOR
-hr SU der 16 X 7: 40 ,
-Rs) Ph # ï }4 44
-MAP rat û « ES
-COTES : È ÿ è # STE
-‘LIT Li ' pl [in rs ui
 ne He REX ; AA i THE
-: « PA A : L LE
-4% OR 4" É “ 4 É De
-fi NA RES C
-LME 5 F0
-L 4 NOTA DO
-LT ITE HS
-RTS - UT ‘ SEE
 # ‘ 'HASAIRE é 0e EN cr
-MN : : k > : M :
-XL NEIREESS AE LT
-LEP M £ ONE
-RO 5 | Mur
 in eue :: * \ L'EHESR
-4 [AG ue . ; AL |
-ARE Eh |
-L RAS 1 (|! RSR
-ht CHR - ‘34 %
-: AÉRERS pre
-\ NS % 4 2. FRS
-FT f ' dei 4 À Fé, à
-QUE RATE = LP
-h MS Mt,
-EL Ge É À Te
-' . re CE He
-ÿ AÛ AVES
-DIEMEE "
-
-L
-
-Fi
-
-è
-
-4 TABLE
-
-"|
-
-*
-
-é: PAGES
-
-Charles Péguy. — Quelques mots . . . . . . .. ÿ
 
 ï Éditions des cahiers antérieures à la fondation }
 
-À. desicahiers. 4. RAS SU URONAOIENSERE I
-
-x : A
-
-À Hnémibne série à 11.101 RENTE RAS 6
-
 ; Denième,série 1.7. NIMES ER TES
-
-13 HIROiSIEMENSÉT IE. 21e ee lle PO RPANNENSS
 
 | Ounaimème série... 21410000 VON NRA TRES
 
-1 Crguieme série... 1.421 NO EN HENERENES
-
-Î
-
 Nous avons donné le bon à tirer après corrections
 pour dix mille exemplaires de ce premier cahier le |
-mardi 27 septembre 190%.
-RAT CU ps ;
 
 Le Gérant : CHARLES PÉGUY
-PR A MR NP 40 UN A REINE RES À
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués. k
 IMPRIMERIE DE SURESNES (Ep. GRENIER, directeur), 9, rue du Pont. — 9092
 
 PR ETS TA TT DS LEE ie NOT OS) TES EURl
-25 ris ÉRIC RL =.
-M A Ms Pa bp SE 1, APR TE 0
-8 MAIRES RCE x 418
 f F° DT Es Nr SAT en | RE à * L Le e. Les
-teen UE, 4 nn PARTS Li ECS A
-; D UT 5 pee 2e ES Le * Le Æ
-A me en A rar a pe
 at 2 NÉ RE ER Le ee à te
-nn A nr HrÉ ; Ra
-: PER ne a LE à LU IT FAP i 34
-RES PR TE D Ex 34 à rs
-NE SPACE F3 + é, CN ANT ARAT RTS ss A + 44
-5 QE + rie à, salt Æ lANBELLAEC +
-24e tar MEN à. ne: AE É : 1e, 14
-154 RUE D Au, | Ce ER ei
-TES Rs RUE ER: STE Tr CR
-AS ARR OM PER: a TT e 2, Le TE
-SN OR RER ñ =
-F r *LINVEOR à À +:+t "00
-_: 2 PSS RREE 0
-- L' LENOIR ne + 0
-DR. “ar j A] TM EE " , [LIU
-/ CS" MERE à À TE
-er bn hi mt: 2. M2: 2119800
 en on Free M OR ORAN AC È ; ERA
-XP VS Ex LOL PIE Er LATE VE Mer.
-TG DT à: Lt AE : TC
 M Ces As ts ds Les F | ARR. : à
-Dee. Nr Te NE A { ; s :
-7 D, 110 à 4 AT
 
-k
-
-c'
-! EE
 ï CAHIERS DE LA QUINZAINE, 8, rue de la Sorl bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-à ment.
 4 Nos Cahiers sont édités par des souscriptions men-
 î suelles régulières et par des souscriptions extraordiR à naires ; la souscription ne confère aucune autorité sur
 ; la rédaction ni sur l'administration; ces fonctions
-demeurent libres. :
 A Nos Cahiers paraissent par séries; une série parait
 4 dans le temps d'une année scolaire, d'une année
 À ouvrière, d'octobre-novembre à juin-juillet; l'abonne- :
@@ -765,13 +553,10 @@ j l'achèvement de cette série ; ainsi du 2 octobre au
 J 31 décembre 1904 on peut encore avoir pour vingt francs
 les vingt cahiers de la cinquième série complète.
 ! A partir du premier janvier qui suit l'achèvement
-s
-\ &c L |
 
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués ; ainsi à dater du premier
 janvier 1905 la cinquième série complète, s'il en reste,
-se vendra quarante-sept francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
@@ -780,7 +565,6 @@ heures à onze heures et de une heure à sept heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures.
 
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
@@ -807,68 +591,24 @@ sans autre signification ni contrat.
 
 te PAS LÉ AR MR:
 
-RARE IS PR OT SENe ep AND ASE ENTER TUE IS POS
-
 4 Le } ÿE 19 La LE gr re ES e ST PET FEAT
 
 à LS à Rare RES ty SRE ut dE CRT 278 IH CEE ;
-
-M At rs Sore tas RUN RE
 
 re 1 me A ANT AR Re TES 0 PA PET ANOL EE SN NE
 
 CIS SSP RER e PTE NPA AE EUR PAR AE de an 2 ce NC
 
 2 FE 0 SE Pete ë, AHADE Er LA OUT OR Dal LE NE RAR CNE AN AA
-HN SR AE MRRSNERSES j d 7 ACCRO RAIN TE
 
 | AROSES APTE VA A ae
 
-STI A
-
-D, RAT . 1 TRES
 “ ROMANE nr : tous î 214 LUS SF ARE
-LT be SRE 4 RNPARS A à ) 2 VU MR
-Xe POESIE TER 5 » PES < 2] +" 111178) Re VETS(PTREENERRR
-LE RS RIRE MA EC d Fi OA
-LR as + DR EU |
-MT A En | kg; x {, Y'in; LOI FRRCSIEE
 
-RASE HSE DAS 0 IX DORE ARE RAA OP À >
-RP DST tete ds ARMOR Re PA M ee
-Let PRESS AE RUN RER LACET NEC ES RACE
-PR Dr 4 FDA N te SISTER RENE VUE
 . mo PER Re dns EE se ES SRE ne
 
-nc: EE SR TS DOC 2e APT REC
 AN One: EUX LHC NE CEE Pere
-Due ? , he 2h
-47 7 APT E FCO
-DULE. La.” * è ; | È .
 ti DES LES
-SC Re ce i #2
-: AIT ÿ ;
-LS FU ê | ; :
-
-LS het Le .
-£: LE S
-
-. TEINTE É
-
-+ Fr = L 1
-1: LOIS , *
-LASER Ÿ
-
-£ TE =
-D”. Re : 5 ; À
-
-! 9 SES pr E Ù à
-DR, RTE re |
-
-2 TERESA ao 2
-
-ENT RCA RRERSS Fes J Ê
-NT me 7 7 s %
 
 RE Se ST TR AE on te PE EN Te 0° Se SORT ARTE
 eu ART = Ÿ RP ER dr RS PRE AVANT NE FRE: ARR SFAGES DAS LEE ARS
@@ -879,73 +619,19 @@ SA 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième ae |
 50 arrondissement. On recevra en spécimens six cahiers
 “à de la deuxième, de la troisième et de la quatrième À
 F série. LES TRS
-4 : à es s NE
-CRE D |
 re Nous mettons ce cahier dans le commerce; premier …  "
 cahier de la sixième série; nous le vendons cinq
-Bas) francs. |
 
-DEUXIÈME CAHIER DE LA SIXIÈME SÉRIE
-
-N/  ALEXIS BERTRAND He
-Fe L'ÉGALIT
-es dé x 7 =
 devant l'instruction
-_ CRISE DE L'ENSEIGNEMENT ,
-- CAHIERS DE LA QUINZAINE
 
 5 paraissant vingt fois par an
 
-Mn PARIS
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-NON LR:
-LS RE Re HE
-Mrs RATE ut es ; : LRTHESEN
-LS RE PEUEES En | À LES —
-LTÉE ter x LAVER
-CSP ‘' F, FE TIGER
-Re n  7 es LE
-È ri. - NE S 4 ss. LT TES “
-04 DRE P (Let “ di
-; LPS . : KLRSTES
-LE MS É £ RER or
-MAR €S 7 Te ER
-[LUS
-3 SRE ra RAS :
-DR 0 re : ME >
-FESSES np 3 ER! RE
-Cor: Lee PJ “PSE
-Ne: FE LE N LÉ NES :
-Re + Le re
-1 $ $ 4 2 Ke CFE 4
-nn DO LATTES
-
-TN PME TAB DS Se RES ER AE RER EE
 RS Ti TR ve IR CE
 RU rt Ph eue SSP NEl TNT S PR SNA Ce
 RE Pan "a ARS tn R 2 L Div:
-RACE .. 2 < Sr *
-D |
-RMS - Ver ARE
-UE ; ñ è : ; Fa +
-+5 AE rues] e E ; ? eur?
-ER nue : : ; Û CR
-RCA EE à. 5 À 7 à . LAS
-LL PERTE CE ; : : 77
-CF FR 7 se SRE à
-ET 3 es s: n ul È à = Ur: L2 7 be
-Us VE 2
-re à » : ES HS
-LT CR si 3e
-PPT SONT | SE À: E
-LATE Eee
-= Fais | : ae, a LR
-Due Me Er j PR
-£ [2e = ; _ do Le
 FE LOER NE on 4 Cp
-à ïs < £ F PE
-LANeRE FF 4 :LAMER
 
 4 Nous avons publié dans nos cing premières séries,
 ; 1900-1904, un si grand nombre de textes et comF mentaires, de documents et renseignements, de contri- ë
@@ -956,7 +642,6 @@ Eu gnement, sur les méthodes, en particulier sur l''ensei-
 sur les instituteurs et le péril primaire, sur le monopole <a
 # de l'enseignement, sur les trois ordres d'enseignement,
 sur toutes les questions annexes, et ces textes, com-
-; mentaires, documents, renseignements, contributions, à
 % dossiers, travaux étaient si considérables que nous #
 : ne pouvons pas songer à en donner ici l'énoncé même 4
 # - le plus succinct; pour savoir ce qui a paru dans les F
@@ -970,9 +655,6 @@ F Ce catalogue a été justement établi pour donner,
 | autant qu'il se pouvait, une image en bref, un rac- |
 courci, une idée, abrégée, mais complète, de nos édi- L
 
-hge RPC ESA RE Tr E PS SE
-: SR NÉS OT MR TE ESS der
-_ CATALOGUE ANALYTIQUE SOMMAIRE
 _ tions antérieures et de nos cinq premières séries; louty CL $
 _ est classé dans l'ordre; il suffit de le lire pour trouver, De
 _ à leur place, les références demandées. 5 .
@@ -981,93 +663,28 @@ _ Ce catalogue forme un cahier très épais de 5
 _ cahier comptait comme premier cahier de la sixième ee
 série et nos abonnés l'ont reçu à sa date, le 2 octobre, =
 ._ comme premier cahier de la sixième série; toute per_ sonne qui s'abonne à la sixième série le reçoit. par le è
-Ft 7"
 _ fait même en tête de la série; nous l'envoyons contre
 un mandat de cinq francs à toute personne qui nousen
 _ fait la demande.
-.. "
-ne: 4 : F
-LÉ
-+ ; N
-A à
-CR ‘
-S: nn. x
-£. LENS
-RARE Aime y
 
-PE NT ES ST POUND 1, RJA RE a ir anal OR ED.
 MAR NU IS ne RE A RS CE RES
 
-0 URLS RE nd CR RE VO MS CORRE
-
-_ SSSR Dh AN RENE CE RTE SRE RSR PRE PES
-SSP ; 14 PA LU CS Ÿ PAF SRE
-LÉ ; AVS FRS
-M : - JS SN SNS
-
-Er à . ir RL « e
-
-Re: 2 LD NS CNRS
-AMEN 4 + Fi RaËr SUR (+92
-HR EUR D " Le Dre.
-STATS 4 5 #2, 2 SR ENRE
-2 : LT. FREE
-
-+ & = x 7 VOST
-
 ë DAT ES DRE Tee ET LIRE ad VF
-À GER LT MS AE ST RAR Dies ME Re TS
-AR RE me Re LU CIE ARR SORA
-‘ARE RES PE PCSI EME Res rer AU FESSES RNCS
-FFE EE SPC TEE] f “4 the LÉ EE ue
-DC. rs " 43 — - ART #
-ER 0. 4 3 1PÉSICEENR
-PRE 2. + e : “ Re SE
-A c ; = Fra
-ON" ST ; “ à = LE
-RES M ARE *# ir : PNR
-RIT s : HE
-PA RAT ET ie £ È DS:
-Les AL : } : ; +75
-na SE Æ “À = s 2 "Be
-As 3 } È p : sé LASER
-: T'es ; as |‘:
-2.7 ACAEHENERSE € ER
-
-DR 2 ee,
-
-: 2 | 4
-1: AFTER EEE
-SR Fe 5 < ; a
-5 Re rares nt.
-
-4 | ANNE + | > « - YO
-SE: F ñ ee 3 > 20
-
-OT : Me FRE ES . Eau:
-< RE d: de ” à . . ee Ne
 
 D ne ne.
 
-ne - FRA 6 a 5
-\
-DU MÊME AUTEUR
 Chez STORCK |
 ; Mes vieux Médecins : Le Corps et l'Esprit, in-12 |
 (vient de paraître en octobre 1904).
-:
 Chez ALCAN ;
 (Bibliothèque de philosophie contemporaine) % |
 L'Aperception du corps humain par la conscience, ;
-in-8° (épuisé). ; Ë
 La Psychologie de l'Effort et les doctrines contempo- j
-raines, in-12. À
 k L'Enseignement intégral, in-8. Ë
 | Les Études dans la Démocratie, in-8&.
 Le Pessimisme : Histoire et Critique, traduit de l'an- $
 glais de James Sully, in-8. É
 : L'Immortalité chez les Panthéistes : Plotin, Spinoza, F:
-in-8° (épuisé). É
 Chez LEROUX 7
 Science et Psychologie; Nouvelles Œuvres inédites |
 ; de Maine de Biran, in-8&.
@@ -1076,74 +693,35 @@ Science et Psychologie; Nouvelles Œuvres inédites |
 Principes de Philosophie scientifique et de Philosophie
 | morale, in-8.
 
-PES RES POSE CS SRE CENTRE rt per RARE +
-0 © æ DU MÊME AUTEUR : $ FSU
 |: FOSSES Librairie de l'ART RSS
-ES si
 _ François Rude, in-#4°, avec gravures. & #
-2e Chez E. BELIN A » i1 — UT
 #5 L'Éducation intellectuelle, morale, physique, traduit Fe
 
 _ de l'anglais de Herbert Spencer, in-12. à
 Se Ë La Monadologie; les Nouveaux Essais sur l'Entende- >
-E= #
 ment humain, de Leibniz (édition classique). Mr
 5 Chez DELAGRAVE he
 ee. Le De Vità beatà de Sénèque (édition classique). ‘
 _ La Déclaration des Droits de l'homme et du citoyen :
-_ (Origines, Discussions parlementaires, Critiques), in-8°.
 1 Chez PICARD É
 _ Extraits des « Séances et Travaux de l'Académie des Sciences
 Lie morales et politiques »
-=
 _  L'Effort musculaire; le Texte primitif du Contrat f&
 _ social; P.-J. Proudhon et les Lyonnais.
-FE < . L
 _ En vente à la librairie des cahiers.
-L ne MT CRE » \
 
 AT £ VER CAE DR ARS GRR EEE SENS Son
 54 ne LS RSS ee SEE
-A SENTA RESRES Or Er Te RARES US à
 1 Beer, + os OL AE PSE D EAN + 2 0 NE RSR
-Re | } RE 5 = $ ‘63 CE RE
-M É etl ER, PAC : AR
-É RER :- LP < ; \ < RS
-Ke RER = : = û 4 NZ SR R: ES no
-D HAT
-SEE LE : + EPST
-A TERRES
-nue pe AVE se "E
-ACNCNES $ Ne  — sd RER Re:
-LE : ' * 2 FOR
-éd,” Lt à 4 + € _ Le == 2 e < 2e hi
 
 M ET LME DO MP SRE Me M Ce nr à
 
-a SR cs £ te FRS PE MEUEX q 3 1074 LR INR VA
-D j a
-Mn SE N PPETN
-Me S ; Er Li r Er: £' 1 HREASAARESNES 7
-LISTES e 5 APE LES RES
-LX AS SPAS ; 2 LL TSETSES
-à : * ÿ & RTE TA SCORE
-D ‘ Pres s É " 7x TR SNS
-Ne. Er a < SITES AID APE
-
-. La LT RENE
-
-e + 14 CS ATTEEEEER
-& | - s, Le A
-
 PR RE NET RS RM et Ve Un DA CA
-_  CHarzes PÉGUY
 | £
-POUR LA RENTRÉE
 : Pour la rentrée des classes, petites et grandes, un
 cahier de l'enseignement; ce cahier rejoint tant de
 cahiers, et de tant d'enseignements, que nous avons
 publiés dans nos éditions antérieures et dans nos cinq
-premières séries. > \
 Les trois études que l'on va lire sont unies entre elles
 et forment un ensemble beaucoup plus par la répétition
 obstinée des mêmes soucis, par l'insistance des mêmes
@@ -1155,9 +733,7 @@ compléteraient l'une l'autre, ni exactement complémentaires en ce sens qu'elle
 l'autre ; d'une part elles sont fort loin d'épuiser tout le
 : sujet, qui est immense; elles sont des études, simplement, honnêtement; l'auteur y répète partout qu'elles
 ne sont que des contributions; d'autre part elles chevauchent, elles se recouvrent souvent; il en résulte,
-XI
 
-\ Charles Péguy
 À ) dans l'ensemble du cahier, des répétitions nombreuses;
 ‘34 nous n'avons rien fait pour éliminer ces répétitions.
 É Il vaut toujours mieux donner les études exactement
@@ -1187,9 +763,6 @@ LE de combien ce discours dépassait l'auditoire auquel il
 1 radical-socialiste, au lieu de courir les aventures
 | politiques, au lieu de s'abandonner aux combinaisons
 
-Re RS Ce
-POUR LA RENTRÉE
-
 de ses politiciens parlementaires, n'ait pas donné toute
 son attention aux problèmes de l'enseignement; car
 donner toute son attention aux problèmes de l'enseignement, ce n'est point penser à supprimer, par un effet
@@ -1197,7 +770,6 @@ de l'autorité de commandement, par un exercice du
 gouvernement d'État, l'enseignement du voisin; c'est
 au contraire penser à organiser, à fonder dans la justice,
 dans la vérité, dans le travail et dans la liberté, son
-propre enseignement.
 
 Quelques-unes des idées proposées dans cette première étude nous sont depuis devenues familières ; le
 retour à Proudhon s'est si accentué récemment que nous
@@ -1218,9 +790,6 @@ compte rendu sténographique ofliciel, séance du
 22 mars 1899 ; nous l'avons sortie des volumes immenses
 où tout est enterré ; cette sténographie est précédée
 
-XUI
-
-fe Charles Péguy
 ï d'une introduction où l'auteur parle fort justement, et
 e fort modestement, de la Commission, de l'Enquête, et
 ge de l'Enseignement ; elle est accompagnée d'un commen-
@@ -1228,7 +797,6 @@ ge de l'Enseignement ; elle est accompagnée d'un commen-
 constitution du Lycée, comme au temps heureux où l'on
 faisait encore des constitutions, comme au temps où les
 : grands débats de la pensée aboutissaient toujours à
-£ formuler dix-huit propositions. :
 È La déposition elle-même donne le spectacle amusant
 d'un dialogue monologué ; on ne saurait imaginer, dans
 % d'aussi graves matières, un contraste plus comique, ;
@@ -1251,11 +819,7 @@ congrès de la Ligue française de l'Enseignement, en un
 elle était un peu moins une Ligue; vingt-deuxième con- |
 grès national, tenu à Lyon du 25 au 28 septembre 1902; |
 elle forme une intéressante monographie d'une institu- |
-: XIV :
-:
 
-17 PC ire » È
-ES POUR LA RENTRÉE
 _tion lyonnaise ; on sait combien Lyon a une vie locale, |
 personnelle, intense, une mémoire de ville, une histoire
 autonome, une existence; combien cette ville est un
@@ -1272,18 +836,14 @@ dit quelque part que la répétition est un grand moyen
 d'enseignement; ceux qui n'ont jamais fait une classe
 “en leur vie seront seuls à le lui reprocher; pour nous,
 -allons en classe, aujourd'hui, puisqu'aussi bien voici la
-rentrée.
 A ce cahier universitaire, j'ai failli mettre un titre
 _sensationnel; je le disposais ainsi :
 deuxième cahier de la sixième série
-ù ALEXIS BERTRAND
 408 un enseignement court
 | le lycée de quatre ans;
 Évidemment on se serait jeté dessus; il s'en serait
 vendu un beaucoup plus grand nombre d'exemplaires ;
 - mais ce titre, le Lycée de quatre ans, appartient à un
-
-Ë Charles Péguy :
 
 : autre travail du même auteur; et il ne recouvrait pas
 
@@ -1304,7 +864,6 @@ pourquoi cette inégalité sociale ; pourquoi cette iné-
 quité; pourquoi cette injustice; pourquoi le haut ensei-
 
 ; gnement à peu près fermé, pourquoi la haute culture à #
-peu près interdite aux pauvres, aux misérables, aux
 enfants du peuple ; s'il n'y avait d'interdit que l'ensei- « gnement secondaire, il n'y aurait peut-être que demi-
 
 j mal, et demi-faute ; mais en France et dans la société « moderne l'enseignement secondaire est le presque iné-
@@ -1317,11 +876,6 @@ des conditions ; il s'agit, on le verra dès les premiers
 mots, d'un souci très réaliste, très réel, modeste et
 utile; comme il s'agit de remèdes honnêtes, modestes,
 utiles ; nulle déclamation; nulle démagogie; un plan
-simple, innocent, modeste, pratique, usager.
-
-XVI ) .
-
-POUR LA RENTRÉE
 
 Débarbouiller l'enseignement secondaire des superfétations qui le dénaturent et le chargent; débarbouiller l'enseignement primaire dit supérieur des
 pauvretés qui l'amaigrissent ; faire un enseignement
@@ -1342,7 +896,6 @@ il poursuit un plan dans le détail des pensées et des
 faits; il poursuit la confrontation des programmes
 mêmes ; il additionne des heures ; il dresse des tableaux ; et conformément aux méthodes scientifiques
 expérimentales il nous apporte les résultats d'une expérience poursuivie pendant quarante ans par une
-institution populaire lyonnaise.
 
 Pour la rentrée, ce cahier n'est pas seulement un
 cahier de l'enseignement ; c'est un cahier de professeur ;
@@ -1350,10 +903,6 @@ M. Bertrand est un professeur; on a lu plus haut
 l'énoncé de ses nombreux ouvrages, travaux, brochures, études et contributions ; en ce moment même j'ai
 en mains une étude de lui, un essai de cosmologie
 
-XVII
-
-3 ARR TM du SC Le
-4 Charles Péguy 2:34
 : sociale, les Thèses Monadolog'iques de G. Tarde; et son |
 Mi > P.-J. Proudhon et les Lyonnais, (lettres inédites), par 4
 ? A. Bertrand, professeur à l'Université de Lyon, corres- |
@@ -1380,19 +929,14 @@ cation, » m'écrivait-il récemment en me renvoyant ses
 Gaillarde !), sans parler d'Annecy où je n'ai fait que
 - passer; 2°, d'autant de Lycées, Auch, Carcassonne, 3
 Dijon; et de deux Universités, Dijon, Lyon.
-« En outre j'ai mis quelque coquetterie à me rendre
 compte de tous les examens : baccalauréats, licence, -
 | doctorat, que j'ai fait passer; plus brevets simples et
-3 XVI. : 4
 
-JE ? POUR LA RENTRÉE
 complets, même certificat d'études primaires comme -
-délégué cantonal.
 
 . « Ceci pour qu'on ne m'accuse pas d'édifier une
 théorie en philosophe. Personne plus que moi n'a misla
 main à la pâte et vu les choses de près, par l'expé-
-rience.
 
 « Voilà, je crois, ce qui peut donner quelque autorité
 à ce que j'écris sur la Crise. Je vous avoue... » :
@@ -1424,10 +968,6 @@ _ entre nous, » nr'écrivait-il en fin de cette même lettre.
 - « Je vous avoue, entre nous, que ce qui n'a peut-
 
 - être le plus monté contre la réforme Leygues, c'est que
-
-XIX
-
-Charles Péguy
 
 “& j'ai un fils qui a été obligé d'opter, (à treize ans !),
 
@@ -1462,7 +1002,6 @@ ayant obtenu le plus grand nombre de points pour
 l'ensemble de ses compositions latines, discours ou
 dissertation, ne saura jamais ce qu'était celui qu'à « Lakanal nous nommions familièrement, et familia-
 
-POUR LA RENTRÉE
 lement, et filialement le père Édet; je le dis à ce jeune
 rhétoricien, si jamais ces lignes lui tombent sous les
 yeux; ce jeune rhétoricien croira que ce vieux père
@@ -1494,8 +1033,6 @@ expédition coloniale; honneur à ces vieilles gens; de
 tels hommes raisonnaient plus pour classer une copie
 que nos gouvernements ne déraisonnent pour déclasser
 
-XXI
-
 | Charles Péguy “ 4
 tout un peuple; honneur à eux; ils n'avaient point x.
 
@@ -1519,8 +1056,6 @@ pain de froment de tout un peuple; ils n'avaient point
 
 L jeunes pleins de zèle ne mettent dans la circulation
 
-Ù - beaucoup d'ambitieux.
-
 Ô Ils ne défendaient point la République dans les mee-
 
 tings républicains ; ils n'étaient point révolutionnaires
@@ -1539,8 +1074,6 @@ F leur enseignement, de tout leur exemple, de toute leur $
 
 : lendam esse virtutem, qui seule fait la force des Répu-
 
-î bliques. “
-
 Heureux temps : ni la pourriture politique parlemen- *
 ee taire, ni l'effroyable tartufferie bourgeoise, politicienne,
 
@@ -1550,9 +1083,6 @@ congrégations industrielles et les agrégations universitaires ; le mal était 
 
 Dans les tristesses du temps présent, et particulièrement dans les tristesses de mon métier, c'est une des =
 
-; XXII /
-
-Fe POUR LA RENTRÉE
 _ plus grandes consolations que j'aie conservées que la 3
 _ consolation et l'encouragement que je reçois de la :
 paternelle bienveillance de mes vieux maîtres; la plu- D:
@@ -1570,7 +1100,6 @@ de la Sorbonne, devant la neuve Sorbonne, et paternellement ils me donnent des c
 _ me tiennent des propos qui reviennent à ceci : Votre
 dernier cahier ne valait pas plus de 12; mais au pré-
 cédent, — ici la voix baisse un peu, — au précédent
-j'ai donné 19. 3
 F Nos jeunes gens ne connaîtront jamais ces puits de
 véritable science, et de tels abîimes de probité; l'autre
 jour un de ces maîtres qui me sont le plus chers était
@@ -1584,13 +1113,10 @@ _ Je l'ai vu grand comme ça; etil me tapait sur le genou;
 et l'instant d'après il me grondait effroyablement; et il
  metapait toujours sur le genou ; et quand il est parti
 _ nous nous sommes quittés heureux comme tout l'un de
-4 XXII
 
-Charles Péguy
 l'autre ; et je n'ai jamais serré d'aussi bonne main ;
 ne quel abîme entre la profonde bonté de ces objurgations
 abominables et l'aigre férocité frôïde de nos petits normaliens arrivistes, de nos Sorbonnards secs, de nos
-À bons camarades.
 
 Je retrouve dans ce cahier le ton de nos vieux maîtres;
 ce qui vaut mieux, ce qui porte plus que la teneur et
@@ -1622,9 +1148,6 @@ crises de l'enseignement ne sont pas des crises de
 l'enseignement; elles sont des crises de vie; elles
 dénoncent, elles représentent des crises de vie et sont
 
-: XXIV
-
-F POUR LA RENTRÉE
 .
 4 _ des crises de vie elles-mêmes; elles sont des crises de
 $ vie partielles, éminentes, qui annoncent et accusent
@@ -1658,7 +1181,6 @@ Les parasites politiques parlementaires de tout le
 | une culture ; comment enseigner, quand tout le monde
 ment; je sais que l'on ment beaucoup dans l'enseignement ; mais tout de même l'enseignement répugne plus
 … au mensonge que les autres opérations sociales; l'enXXV
-b
 
 à Charles Péguy Le
 
@@ -1673,8 +1195,6 @@ b
 pe formes de la démagogie; et c'est pour cela que les mala-
 
 à dies sociales venues du mensonge apparaissent d'abord
-
-58 en symptômes pédagogiques. S
 
 + Les exagérations mêmes des nouveaux prédicateurs
 
@@ -1716,8 +1236,6 @@ F- . ticiens ; comme si ce n'était pas ce manque même, cette
 | du véritable savant, comme si cette impuissance impo-
 
 F litique de la science n'était pas, aux yeux du véritable |
-
-ES POUR LA RENTRÉE
 
 ; savant, sa marque même, la cause de sa grandeur émi- . :
 __  nente, la condition de sa dignité.
@@ -1762,10 +1280,7 @@ les consciences universitaires mêmes, quand le favoritisme, quand le népotisme
 neveux, les gendres et les arrière-cousins des grands
 - maîtres franchissent les degrés de la hiérarchie à une
 - vitesse uniformément accélérée, quand enfin tous les
-hs: XXVII
-Ë |
 
-à Charles Péguy
 F 23 jeunes professeurs éprouvent simultanément le même
 Ro coup de foudre automatique pour toutes les filles de
 : 1500 tous les inspecteurs généraux.
@@ -1784,11 +1299,8 @@ Hs, mensonges; elles retombent toujours sur la même
 $ humanité ; comment enseigner quand toute la société
 aps est pourrie de mensonge; en France même le grand
 mouvement démocratique, si plein de promesses, formulées, trahi par son État-Major politique parlemen-
-$ taire, vendu, retourné en usurpations démagogiques ;
 2 l'immense mouvement socialiste, si plein de promesses,
 À presque réalisées, trahi par son État-Major politique
-É parlementaire, vendu au capitalisme, retourné en usur-
-ÿ pations capitalistes ; etle violentmouvement dreyfusiste,
 à que nous n'avons pas à renier, au moment même qu'il
 Î ouvrait une ère de révolution pour la justice, envahi
 4 de la corruption politique, trahi par son État-Major
@@ -1796,9 +1308,7 @@ $ taire, vendu, retourné en usurpations démagogiques ;
 i 4 donner de l'antidreyfusisme une réplique exacte, une
 F contrefaçon parfaite; au lieu de se glorifier dans la
 F! vanité des cérémonies, dans la grandeur des majus4 cules, que le monde moderne commence par faire son
-E XXVIII A
 
-k CATALOGUE ANALYTIQUE SOMMAIRE ae
 examen de conscience; que la science, que l'art, que
 : la philosophie se débarrasse des politiciens, que le
 socialisme, que le monde ouvrier se débarrasse des
@@ -1808,11 +1318,9 @@ pureté première, se débarrasse des politiciens ; peut-
 quelque droit de parler à la jeunesse ; et n'y ayant plus
 cette crise de vie, peut-être alors n'y aura-t-il plus de
 crise de l'enseignement.
-; CHARLES PÉGUY
 Je garde ici les mots de socialisme et de dreyfusisme,
 quelques ignominies que les politiciens aient commises
 en leur nom, parce qu'il est puéril de renier des mots.
-/
 Catalogue analytique sommaire. — Je puis dire ici,
 : dans ce cahier d'abonnement, ordinaire, ce que je n'ai
 point osé dire dans la grosse majesté du récent catalogue analytique sommaire.
@@ -1823,8 +1331,6 @@ nous disposons, le personnel que nous sommes, la
 j mille, représente pour nous un effort considérable ; nous
 x sommes assurés qu'à cet effort considérable de fabri7 cation nos amis, nos abonnés répondront par un effort,
 | XXIX d.
-di.
-:
 
 | Charles Péguy Fi
 à au moins égal, de propagande; je dis au moins égal,
@@ -1881,10 +1387,7 @@ Fe puis dans la fabrication d'un aussi énorme cahier, tenu
 >. en même temps d'assurer le fonctionnement, la fabrica-
 
 5 tion de cette fin de la cinquième série, qui fut énorme
-KXX : |
 
-220 CATALOGUE ANALYTIQUE SOMMAIRE
-“
 # _ aussi, comme je suis dès aujourd'hui tenu d'assurer le
 * commencement de cette sixième série, qui ne sera pas
 E. moins considérable, j'ai presque totalement négligé ma à
@@ -1910,13 +1413,10 @@ e sont dévoués; depuis les dernières élections munici-
 : pales plusieurs sont devenus, de conseillers municipaux,
 _ adjoints aux maires; je me demande avec épouvante,
 étant donnée l'idée qu'ils ont du travail industriel, comment ils peuvent assurer les services municipaux d'une
-_ grande ville.
 à Je ne veux point leur en faire un reproche, et je ne
 veux point commencer incidemment ici d'étudier le
 - gouvernement des intellectuels, plus envahissant tous
-14 XXXI
 
-Ë Charles Péguy
 $ les jours; je veux noter seulement que ce manque est
 4 particulièrement grave pour ceux de nos camarades qui
 s'intitulent socialistes ; qu'est-ce en effet que le socialisme, s'il n'est pas la bonne administration du travail
@@ -1947,8 +1447,6 @@ même au cours de la quatrième, — et hier encore on
 me l'a dit une fois, mais c'était avec bonté, — il n'était
 | point rare qu'un bon camarade, me rencontrant remonXXXIT :
 
-:
-
 | CATALOGUE ANALYTIQUE SOMMAIRE
 tant la rue de la Sorbonne, me dit amicalement, serrant
 ma main loyale: Eh bien, qu'est-ce que tu fais, avec les
@@ -1960,7 +1458,6 @@ cahiers, mais innocemment, cordialement, il me demandait ce que je faisais en ou
 - immenses loisirs qui évidemment me restaient ; depuis,
 devant les écrasantes révélations de la quatrième et de
 la cinquième série, ces interrogations formidables ont
-à peu près disparu; quelques correspondants seuls
 s'émeuvent, s'imaginant qu'ils ne sont point dépouillés
 à leur tour.
 
@@ -1982,247 +1479,49 @@ lui assurer la publicité, l'audience, la fortune honnête
 Le - Je reviendrai dans un prochain cahier, si je le puis,
 sur les moyens de cette publicité.
 
-:
-
 ù Le gérant,
-
-; a, Charles Péguy
-
-; AxXxi
-
-ë, eee
-
-à 3
 
 $ ren PA La DE. De RAA AE NT CRE LIRE
 2e EST - FER Rest * VEIOSSER EN
-HSE Tee FROT GOT NT RTE" * Ÿ pee HPTALESEON
-Re HAT ; : es ‘ 4 A EE SPIP
-Mn <> 2 CR TRUE
-PCR AT T EE =. + ; « #21 LS
-La POMSINEe + HF ATS
 ne $ se LRprRr
-ST é Re
-RSR RS £ PRE ns
-TIRER : sen : SN
-F “à ut g 5 . SARA
-2 RE RESEE PA: e
-Die Te à ; fi RErRt
-FUME OR 4 : 18 EPS
-+5 10 LES £ ‘4 \'É ET
 A Le a rs
-Res : Rs
-;: LÉO 2 # à PRE US
-LOUE ë > ti
-L'ELT NES * LA © D TR
-TUNER & KR
-SE = Re à
 VERS ” NAN ant
 
-L RES DES Re EE RO MR PORN Cr +
 A nn a: = VE nn GE LE SRE PRES
-Le DRE RS De - HE re, Fe t5 5 EE:
-RE fa MS : à F ré FICtESS
-ET RS EREES LR MARÉES 7 Fa MAR
-En TL , : » Te "54
-Tes 5 = RE + 4 © Le 5e
-Le OS S | Fe
-ETES NBE = . À Lo ÈS
-SR TER TES
-RTE LE ENÈTE
-Rs 7 Res |
-4 ee £ As :
-* T Ë _ Te ER
-D D $ PR
-É LE LA ELURE : RS ET
-NON: - , + DR >
-DE = . n ; 2 ; 4385
-": S Es a 280
-_ LÉNES ER
-nr”, > à SR
-2 Y= ze, TS
-DE ; DRE.
-Rte : = Ti
-Ce n 4 = L x ‘a
-ST < DER.
-A : FE
-‘# k k en” # Ÿ
-Es per.
-= TEE ; Es;
-A RER |
-M - - Fa +
-LR: - »
-LR Re:
-A ro N RS
 
 D our RER ET RE Se FN MR en <
-A = s Q j RS nl
 ERA 2 x FER SNR de
-FPE > ES
 PAS Lars
-EX PRE 3 : 51
-pare” S'HPER
-À S-PERRRS Se CA
-= KT CRE nl Free
-nn. ï ; UT.
-LÉ; CPE F : #61
-LP URRTEN SEA Ree
-RS PE FREE s FF LEE
-LEA AS ER x A LT TER
 nn Ve SA Re
-TS NE x SE ARE D
-20 0 ES * EE x
-F2 À RS à
-+ HET à ; y,
-mt Ë 5 Fe M4 te 7
 
-EDR NAME SN rie
-PE UNS, à tr € ti RUES DER Satan PME ARE SMS ME
-ue \ FL TASER
-MR ns | ; SR
-5 PS, AE = E Seal
-: SRE RER F 4 VS NE
-& Sc (= TEE CES Fe
-IA Pose k É D:
-ES m2 " ; ? - 14% ES Ru
-F, ACTES s - LS RÈ LS OR
 _ l'égalité devant l'instruction
-De | ‘ Ke
-ACASS $ TRES
-% E : x éd TES
-KT Dre
 | #4 = < je TER
-Le € « 4 LA # La 1 .
-MERE .? D ::
-es AT: *« #x% à L » | vil A
-pa IT TRS À « Le A.
 
-ES ES CR En
-. CRISE DE L'ENSEIGNEMENT
-ITS - FRE
-L'ÉSR PS #G
 KW “+ Les À er ?
-PACA a ë Se
-CAE SRE 1 = à # L'ERERt re
-LACS 1 : * CES
-ne | FE
-AE FÉES
-RE: Fe : "à =
 ne ESA. AYr È RU
-s'8E ET € KES
-+ ie
-DR À te :e
-PERS È Là
-TEEN RES LES FEES F
-ST EE 3 RE
-PNR S = RSR
-D, È 45 ie
-DA ds re. *-HRNE AN
 
-+ PANNE Em) ss 5 ONE Se SO EL USERS à RTE LE
-SRE AS SAONE EC UT à RER M IT ET mA CU ETS
-ITS MN ER S 26 LOT EUR RE ET ER tie ARR RS TRE SITE ES
 RE D RE UE Ce Un et moe AS) 10 ROLE TE
-LCA NES : s AT 2 PTT SE
-LL : à FLD
-TS > ‘ LRU |
-"NOR VE = Ce (9) à 2%
-Se DRE à Ù À
-MRrT ur > E RICE
-A . - G $ : S Le
-7 RÉ RANTINER : æ AE D D
-RSR LE = Se 4 « CUS:
-COS TR ORRMAPENNEE Le À 4 à £
-k. FANS LS > : Eee =}
-PS Ta Lo El À N =
-Me Ci Er. De : ART : L -
-= LL SRE ee 0 Se 5 - s
-PR EE = | ; È #
-MR : 3 Ÿ
-f EVE RS *
-M d ; ei
-Re : | À
-a DCE FT - à à ‘4
-JL RPCESRESS $ |
-nn, + EX. Re
-1 PARCS sal
-: ASE rs es AS re Gear ="
-ir à Mi tis : er AV
-ES, Ne: ia .
 ne LE SE TRES *« tu
 
 PR CRUE VIA et cg SRE NON ie
-pe HHENSAM SAVE CRE FEU ETAT CT CREER î
-2 ARS à MÉTAMRE EEE SRE Œ LMGER SIP NRRRE Ke
-PATTES ; 1 S 21 NEO
-Fo SÆASNE
-Pr OR ENS Mo LU
-LA PRES RL “1/7 SCENE
-Ro IE a : x à 2 VA 4 HZ |
-3 'ANRCERES Fe ee
 : je TOUR 5 : on PERTE
-l'r 8e k Aix
-Fr TE * É % à
-E “HS Re > _ L 5 PAR :
-2e 2 12
-va En 2 MI - * Eu. TU RARES: :
-PA RUEES Dan Ù ES à
-LS SORTE < Se 2 ETRME
-- à
-É NES AT ÿ < S ae
-Re DRE à
-4 Se 7 pe Le RSR ARE)
-Lys Po LR Eee)
-ÉOTINLERCRES ) LE 0
 
-D 2
-3 :, 208
-SE AE Cp < CRE
-Re: IRÈESS
-D LA GRATUITÉ 1 LÉ TER
-CE : ê : + TM
-DANS L'ENSEIGNEMENT “À
-_ SECONDAIRE 7 FES
-$ RC AL. * Mar
-à 1400 SA k LES
-we more : F
-Rs ps Me
-EURO Fe
 DE es Le Ne
 
 de es CSN ONE ARRET OS LE VE Es Re LIST
 
-D RE PEAR Rem
 RS de Discours prononcé devant la Commission d'enseigness 52 ment du Congrès des républicains radicaux et radicauxLÉ ÉTESRREE A > 4 Ps NE <
 | socialistes, le rx octobre 1902. $ FESSES
 DORE on © LL LR EIRE
 pee, " L'AVGTENSES
-Sen ; = < 7 SSSR
-CRE è Le
-A. CR:  : VF UTERS RER ENEES
-
-1 y TETE = AT
-
-ST CR Re
 
 #2 CO o de, spl
-HER ; $ x EN
-ke LR : = EUR
-ue ©
-
-+ LR TERRES , 2 % Fe
-Deer FE £ ee PTE
-Tr + et
 
 if ce: RS <br RE RSS RSR) RSS
 
 a RE DES dt ae LE
 
-' ; -
-
 #4
-
-è PREMIÈRE PARTIE
 
 - La gratuité dans l'enseignement secondaire (1)
 
@@ -2252,9 +1551,7 @@ $ bien c'est simple : j'affecte à ma réforme la totalité du
 
 “ (1) Discours prononcé devant la Commission d'enseignement du
 Congrès des républicains radicaux et radicaux-socialistes, le
-11 octobre 1902.
 
-Alexis Bertrand
 budget des cultes, les trois quarts du budget de la
 guerre et les deux tiers du budget de la marine. Par ce
 temps d'anticléricalisme et de pacifisme, qui donc oserait faire des objections ? »
@@ -2280,9 +1577,6 @@ rieures qui leur permettront, sans l'aumône toujours |
 un peu humiliante et aléatoire des bourses, d'aspirer à
 légalité par en haut, égalité dans la haute culture
 intellectuelle, égalité pour les hauts emplois qui
-8 |
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 
 * devraient être départis, selon l'esprit de notre Déclaration, aux « vertus et aux talents » et qui fatalement
 _ sont plus ou moins réservés, dans la situation actuelle
@@ -2292,8 +1586,6 @@ dans son principe, vous parût insignifiante : par ses
 
 conséquences, c'est presque une révolution.
 
-I
-
 Êtes-vous donc, direz-vous, un admirateur de la
 réforme à laquelle M. Georges Leygues a attaché son
 nom, puisque vous semblez la prendre pour point de
@@ -2302,7 +1594,6 @@ outre que les réformes définitives durent en France,
 l'expérience le prouve, environ cinq ans, celle-ci est
 déjà si discutée, si décriée que vous pourriez bien
 construire votre édifice sur une base ruineuse, ruinée
-d'avance.
 
 J'admire si peu le régime des cycles que j'en avais
 d'avance signalé les vices presque irrémédiables. Je
@@ -2315,8 +1606,6 @@ l'autre; je les veux souples jusqu'à la fluidité, éclectiques jusqu'à l'indi
 | rieure ou, si j'ose le dire, le squelette ? Il affecte même
 de l'ignorer; les os, les muscles, les nerfs, la chair, il
 
-a : set
-Fe Alexis Bertrand
 É ne voit tout cela qu'en gros et ne distingue vaguement
 ces éléments dissemblables que comme un profane qui
 Fe n'aurait fait ni anatomie ni physiologie. J'estime qu'il
@@ -2347,9 +1636,7 @@ H : qu'avec sa quadrifurcation, il restaurait tout simple-
 4 ne se contente pas de la restaurer, il l'aggrave prodigieusement. Les pères de famille mettront trois ans à
 s'en apercevoir, mais quand ils s'en seront aperçus, ce
 seront de beaux cris de protestation. Remarquez, en
-È 10
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 effet, que des quatre sections du second cycle A, B,
 C, D, c'est-à-dire latin-grec, latin-langues vivantes, E
 latin-sciences, sciences-langues vivantes, les deux premières sont littéraires, les deux dernières scientifiques.
@@ -2377,9 +1664,7 @@ de l'enfant naturellement peu réfléchi et qui se déci-
 | bryonnaires, par l'entraînement de l'exemple, pour des
 | motifs encore plus légers, parce que.le nez de tel pro-
 è fesseur lui aura déplu. C'est plus qu'un crime, c'est une
-II
 
-Alexis Bertrand
 | faute d'avoir condamné un innocent à chercher à tâtons,
 fatalement exposé à être écrasé par Le lourd quadricycle.
 | Et qui le guidera, qui pourra le conseiller avec compétence et certitude ? Personne; et c'est là mon troi1 sième grief : il n'a plus à proprement parler de profesf seur attitré, il a des répétiteurs, des maîtres de confé-
@@ -2441,7 +1726,6 @@ même, qui dit université, dit au fond la même chose
 qu'enseignement intégral. Rien donc de paradoxal et
 de trop ambitieux dans cette dénomination : l'ensei-
 
-Ë Alexis Bertrand
 Î gnement primaire doit lui-même être un enseignement
 É intégral, le résumé mis à la portée des enfants de tout
 l'essentiel de la science de notre siècle.
@@ -2472,8 +1756,6 @@ s: développer méthodiquement toutes les facultés ou puisre sances des esprits
 à sciences classées et hiérarchisées.
 ï @) Voir l'Enseignement intégral, Paris, Alcan.
 | 14 ;
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 
 Loin de moi la pensée de vous exposer par le menu
 le régime d'éducation intégrale qui remplacera certai-
@@ -2506,9 +1788,7 @@ moindre velléité, en exposant la thèse de l'enseignement
 intégral, de briller par étalage d'un paradoxe, quelle
 déception! Le paradoxe était depuis près de cinquante ans singulièrement dépassé : il est vrai que
 
-P. Alexis Bertrand
 à depuis cinquante ans aussi la thèse proudhonienne était
-à totalement oubliée.
 EL ; Il faut donc l'exposer brièvement. Trois lois succesk" sives ont régi, selon Proudhon, le travail humain et
 ee . gouverné la classe des travailleurs : loi d'égoïsme, dans
 # l'antiquité, qui ne voyait dans l'ouvrier que l'esclave,
@@ -2539,10 +1819,8 @@ humiliations, aussi bien de la mystique pitié que de
 | 16
 #11
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 çoit qu'il est devenu, en fin de compte, le grand dispensateur des biens que la civilisation donne ou promet.
 Et dès lors surgit dans sa conscience réfléchie cette
-autre vérité : servilité, peine, condamnation, réproba- :
 tion, flétrissure, le travail n'est rien de tout cela. Il est
 temps de fouler aux pieds les vieux préjugés et de se
 redresser contre le blasphème. Que me parlez-vous du
@@ -2568,8 +1846,6 @@ méchant ». Et les malédictions sur les abus du machinisme industriel, broyeur
 « tombent comme un torrent vomi par l'Etna du bec de
 sa plume ». Nous n'avons su organiser ni l'apprentissage
 ni l'atelier : à chaque révolution, 89 ou 48, nous nous
-
-s Alexis Bertrand
 
 à sommes endormis dans un beau rêve, pour nous
 réveiller dans une réalité plus affreuse par le contraste.
@@ -2597,7 +1873,6 @@ e ont semé dans l'enthousiasme, il recueillerait dans la
 | plus compliquées. Et Proudhon se demande pourquoi
 1: le travail de l'ouvrier, compagnon du maître, ne serait
 pas « une réjouissance perpétuelle, une procession
-î triomphale ».
 | : Et voici la réalité : un homme exténué, pâle et hâve
 ï de privations et de souffrances, suant et peinant douze
 t heures par jour afin d'enrichir le capitaliste, le maïtre,
@@ -2644,7 +1919,6 @@ de l'intervention du pouvoir, en dépit même des asso-
 
 | ciations ouvrières. Il faut donc changer de tactique. Il
 | faut, pour relever la condition de l'ouvrier, commencer
-i
 
 | Alexis Bertrand
 par relever sa valeur. « Hors de là point de salut, que
@@ -2678,11 +1952,7 @@ L. assez fort pour ramener les faits à leurs lois, les vérités
 démontrées à leurs principes, n'échouera pas éternellefl ment dans la tâche, plus ardue peut-être, &e ramener à
 leurs instruments essentiels les métiers. IL accorde
 | d'ailleurs, nous l'avons vu, toutes les transitions que
-Î 20 ,
-{
-Ë
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 l'on voudra. De ces instruments essentiels enseignez le
 fonctionnement et l'usage, puis dites à l'apprenti: choisis
 maintenant ta spécialité pour la posséder en perfection ;
@@ -2703,9 +1973,6 @@ poulie et le chronomètre compliqué. On peut esquisser
 une sorte d'alphabet du travailleur :
 
 a) BARRE OU LEVIER (Pieu, tige, colonne, pal, piquet).
-
-b) Croc (crochet, agrafe, clef, sergent, valet, ancre,
-tenon, harpon, etc.).
 
 Chacun lachèvera à sa guise. L'idée neuve et
 féconde c'est que le travail manuel, vraiment éducatif
@@ -2751,11 +2018,7 @@ fait de la propriété un privilège, de l'aumône une vertu,
 : de la science un orgueil, de la richesse une tentation,
 de la justice une fiction, de l'égalité un blasphème et de
 1 la liberté une révolte ».
-È 22 ;
-Î
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
-II '
 La longueur de ce préambule se justifie par de fortes
 raisons que vous avez certainement devinées, car je
 n'ai pas oublié un instant que je m'adresse à la Commission d'enseignement d'un Congrès politique. Votre
@@ -2776,8 +2039,6 @@ rations rationnelles les plus sûres et les autorités philosophiques les moins 
 l'aboutissement inévitable de ce mémorable débat
 pédagogique qui vient, pendant quatre années, de pas23
 
-el: Alexis Bertrand
-Ce
 + : sionner en France tous ceux qui s'occupent de l'avenir
 EU du pays et qui pensent.
 48 C'est pour vaincre les préventions de ceux que le
@@ -2810,7 +2071,6 @@ prolétariennes : cet enseignement secondaire gratuit,
 qu'il soit entendu avant tout qu'il sera l'égal de l'autre ;
 je ne demande aucune faveur pour la classe populaire,
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 je ne fais que revendiquer son droit strict, l'égalité et
 la justice.
 
@@ -2834,9 +2094,7 @@ au développement intellectuel et moral et celles qui ort » le caractère profe
 _ l'enseignement général, s'imposeraient à tous nos
 élèves ; les autres s'offriraient à leur choix. Ainsi, au
 … lieu d'avoir de vagues connaissances, difficilement uti25
-IL
 
-c Fe Alexis Bertrand
 É FA lisables, l'adolescent, ayant l'intelligence ouverte et le
 f jugement formé, quitterait l'école après y avoir puisé
 f: les seules connaissances pratiques qui conviennent à sa
@@ -2864,7 +2122,6 @@ sais bien qu'entre la note supérieure bémolisée et la
 note inférieure diézée, les musiciens reconnaissent une
 : différence qu'ils désignent par le nom de comma. Mais
 
-; LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE :
 cette minime différence sufit-elle vraiment pour altérer ,
 léquivalence du certificat de l'école gratuite et du
 certificat de l'école payante? J'ajoute que si vous ne à
@@ -2897,9 +2154,6 @@ avec les écoles élémentaires ». Il inclinait pour « instruction intermédia
 
 _ d'honneur à son imagination. Mais on comprend son
 
-à 27
-
-ë Alexis Bertrand
 Le Ô embarras à une époque où personne ne pouvait supLe k poser qu'on püût, sans sacrilège, concevoir un enseiKi gnement secondaire sans grec ni latin : les « Collèges
 4 royaux », c'est-à-dire nos Lycées d'aujourd'hui, eussent
 k protesté par des clameurs d'indignation.
@@ -2929,15 +2183,9 @@ ce aux établissements où s'enseignent le grec et le latin,
 | i en dépit même de la langue française et de l'Aca-
 ë démie qui définissait le Collège « un établissement où
 ÿ l'on enseigne les lettres, les sciences, les langues et
-1]
-
-M nn Me à CAS #.
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE ë.
 
 où demeurent d'ordinaire plusieurs professeurs ou
 
-régents ». :
 Conséquence bizarre du mauvais choix d'un nom;
 
 dès le début, un puéril artifice typographique faisait °
@@ -2990,19 +2238,13 @@ ture sans pouvoir la forcer à fournir une appellation
 
 adéquate et de tout point satisfaisante. Guizot eût aimé
 
-écoles supérieures municipales; Villemain préférait
-
 écoles supérieures universitaires. Ce fut Salvandy qui
 
 inventa enseignement spécial; ce fut Duruy qui fit un
 
 sort à cette dénomination en l'appliquant à la section
 
-: 29 Il.
-
-Fi Alexis Bertrand
 4 moderne de l'enseignement des lycées et collèges.
-À à Carnot proposa collèges industriels; Fortoul, collèges
 ES 1 scientifiques; Rouland, collèges français. J'en passe, et
 k des meilleures! Cette énumération est instructive au
 +3 moins en ce qu'elle nous apprend que le mot collège fut
@@ -3033,9 +2275,7 @@ ra ; se meurt, le grec est mort.
 Je me serais bien gardé d''insister si longuement sur
 une simple question de nom si d'une part elle n'enve-
 | loppait une question de définition, puisque les mots ne
-Jon |
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE ù
 sont que les étiquettes des choses ; si, d'autre part, la K
 désignation vicieuse qui a été choisie, et qui s'est maintenue contre toute raison, n'exposait périodiquement k
 nos écoles primaires supérieures à un double danger $
@@ -3064,7 +2304,6 @@ quand il restait, la fiole remplie, quelques gouttes d'une é
 potion préparée : « Versez cela dans la thériaque ! Ce
 sera bon pour la thériaque ! » disait l'apothicaire à son
 
-Alexis Bertrand
 apprenti. La thériaque, vous le savez, c'était le grand ;
 bocal à panacée: un mélange de tous les remèdes
 % n'est-il pas un spécifique propre à guérir toutes les
@@ -3081,7 +2320,6 @@ actif, la quinine, afin qu'ils ne soient pas réduits à forcer
 : le doubler? Un enseignement supérieur, pourquoi le
 | parodier ? Le mieux n'est-il pas de supprimer purement
 Æ et simplement nos écoles primaires supérieures par
-8 transformation radicale en écoles professionnelles, en
 % écoles techniques? Le ministère de l'Instruction pu-
 : Ÿ blique, qui devrait s'appeler ministère de l'éducation
 ; nationale, est tous les jours invité à abdiquer entre les
@@ -3094,9 +2332,7 @@ secondaire, disait-il, est appelée à préparer des hommes
 à le programme, tout ce monde-là est oublié. L'omission
 à est un peu forte; car enfin, le travail industriel, dans
 f ses diverses formes, l'agriculture, le commerce, ce n'est,
-il 32
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 dans l'État, ni un accessoire ni un accident: c'est le Ne
 principal. Si l'Université veut justifier son nom, il faut 5
 qu'elle prenne parti dans ce sens, sinon elle verra se
@@ -3111,7 +2347,6 @@ d'élèves. Mais rien ne serait plus aveugle que de les
 multiplier au détriment de la culture générale, au
 moment surtout où nous voyons, par l'essor même du
 machinisme, l'ouvrier devenir ingénieur, ingénieur-
-électricien, ingénieur-chimiste, ingénieur-agricole. Ingé-
 nieur c'est le mot à la mode, dans le langage usuel
 comme dans les comédies et dans les romans ; mais ce
 mot implique une culture générale, suppose des connaissances théoriques. Et je n'entends pas dire simplement que notre premier métier c'est notre métier
@@ -3129,13 +2364,7 @@ ne sont pas leurs succédanées : si elles se réduisaient à
 ce rôle ce serait un suicide partiel de l'intelligence
 française, une brèche irréparable à notre capital intel-
 
-15 na SR
-AS
-
-1 Alexis Bertrand
-
 1 lectuel, réserve énorme mais non pas inépuisable de
-{ force vive. ;
 
 4! 3 Où donc ai-je lu cet apologue ? Minerve et Gribouille
 : voyageaient un jour de compagnie. Ils arrivèrent à un
@@ -3150,10 +2379,6 @@ i: Quand elle eut achevé ses croquis et ses calculs, elle
 à de son voyage. A vouloir persuader son compagnon,
 Mte Minerve avait perdu son grec.
 
-+
-
-Je =
-
 41 Voici donc à quelle conclusion aboutit toute cette
 4 suite d'arguments à la fois pédagogiques et politiques.
 e. Nous voyons distinctement, quoique encore dans le
@@ -3165,10 +2390,8 @@ $ lement par la complète liberté d'option au sujet de
 fu l'étude des langues soit anciennes, soit modernes, étude
 js considérée non comme un accessoire, mais comme un
 2 indispensable complément, au double point de vue de
-ÿ 34 À
 
 ER + PONT je Fe aie DOME Le RO re
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE 4
 
 la culture de l'esprit et de l'utilité pratique, de l'étude ss 5
 des sciences. Nous reconnaissons, convaincus par un “à
@@ -3176,7 +2399,6 @@ examen attentif de leur origine et de leur évolution, a
 par l'analyse exacte de leurs conditions d'existence M
 dans notre système d'enseignement général et profes- 3
 _ sionnel, que nos Écoles primaires supérieures sont de SA
-véritables Collèges modernes, français, gratuits. D'autre +
 part, nous nous heurtons à ce dilemme : l'opinion ré-
 clame impérieusement, au nom de l'égalité et de la à
 justice, la gratuité des études secondaires; tandis que |
@@ -3201,8 +2423,6 @@ supérieur, des Universités, ouvert aux fils de paysans
 et d'ouvriers. Ne me dites pas : voilà précisément le
 
 LE À e Pi Are FRS
-L D
-Alexis Bertrand
 nn: danger; votre réforme produira non pas un grand bien,
 1h comme vous paraissez le croire, mais un grand mal, la
 a: course aux emplois, la curée des places, dont nous souf-
@@ -3231,15 +2451,11 @@ se douze millions qu'exigerait la gratuité de l'externat des
 Le nient de ne profiter qu'à un petit nombre, mais encore
 * - celui d'enrichir les riches en mettant à la charge de
 k l'État une dépense qui ne leur est nullement oné-
-: reuse.
 Quant au progrès politique et au gain social qui
 } résulteraient de cette réforme si minime en apparence,
 : 3 si grosse de conséquences en réalité, j'ai à peine besoin
 : . de vous l'indiquer. Vous avez, comme moi, entendu
-k 36
-D:
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE Fi
 hier vos plus vibrants orateurs s'élever avec une véhé- é
 mence presque inquiétante et contre l'inamovibilité de BR
 nos magistrats et contre la constitution de nos conseils Fée
@@ -3265,7 +2481,6 @@ nation, c'est la fin, du moins théoriquement, d'une
 situation anti-sociale et pleine de périls. Il ne faut pas
 simplement l'octroyer au peuple, il faut le déclarer un
 droit du peuple, le rachat et la rédemption de la pau- À
-vreté.
 
 Je plaïdais un jour la cause de l'instruction, et parti- :
 culièrement des études secondaires, dans un milieu
@@ -3274,9 +2489,6 @@ tants » me firent des objections qui me donnèrent beau- .
 coup à réfléchir. — L'instruction ! disait le premier, ;
 c'est fort beau; mais aux yeux du parti ouvrier, c'est
 
-III
-
-< à é Alexis Bertrand
 # s un leurre, une duperie : le temps qu'on use à s'instruire,
 4 . c'est du temps volé à la lutte de classes. — Redoutable
 nil argument et irréfutable, car il se rattache à une quesMi tion mystérieuse de tactique des partis : je me contentai
@@ -3307,8 +2519,6 @@ id d'oublier ceux qui luttent encore. Qu'il se sente non
 Le plus isolé, supporté et dédaigné, mais entouré de com58 0
 
 SPP RS RTE RER Et SP er nd US OUT) a pi ER
-_ LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE “à
-Ne:
 pagnons de sa trempe et de sa classe, il relèvera la s
 tête et, avec la fierté, vous le verrez reprendre la volonté É
 etl'audace. Qu'un seul puisse s'élever, avantage indivi- 4
@@ -3316,7 +2526,6 @@ duel socialement insignifiant ; que tous le puissent, à la ?
 seule condition d'en avoir les capacités et le talent, sans à
 autres privilèges, sans aumône et sans charité, voilà |
 l'avenir, renouvellement de forces, entretien de sève, :
-rajeunissement social.
 Décléricaliser l'enseignement secondaire par l'abro- F0
 gation de la loi Falloux, c'est bien; démocratiser l'enseignement secondaire par la gratuité, c'est mieux. La
 seule originalité que je revendique pour le plan que je
@@ -3338,10 +2547,6 @@ sur la surface du pays, éveillant partout les aptitudes
 et échauffant partout les vocations. En un mot, l'échelle
 de la connaissance humaine dressée fermement par la
 
-fe
-
-4 Alexis Bertrand
-
 # main de l'État, posée dans l'ombre des masses les plus
 M profondes et les plus obscures, et aboutissant à la
 1 Ÿ lumière. Aucune solution de continuité. Le cœur du
@@ -3355,7 +2560,6 @@ ja bien étonné et, en dépit de cette tirade immense,
 % légèrement sceptique, si on lui avait affirmé avec
 dl certitude que moins de cinquante ans plus tard l'en- 9
 F1 seignement primaire gratuit et laïque seraït instauré
-4 en France.
 
 À Notre époque positive n'est plus d'humeur à se
 rl : leurrer d'un idéal inaccessible, à s'hypnotiser d'un
@@ -3369,18 +2573,13 @@ ri à la constater qu'à la créer : elle existe virtuellement
 " sement le capitaliste généreux qu'il avait invité à lui
 É fournir le million nécessaire pour organiser son preLS mier phalanstère ; pareille attente ne nous sera pas
 } infligée, puisque nos pères ont créé les phalanstères des
-% études gratuites.
 
 1 Les objections sont plutôt de l'ordre idéal que de
 À: l'ordre réel, sans être pour cela moins redoutables.
 # Elles sont de deux sortes, les unes pédagogiques, les
-pi
 
-1 ; F « #7 * ci - : 4
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 autres sociales et politiques. Les unes et les autres ce
 s'évanouissent devant un examen impartial et appro- à
-fondi. É
 Me plaçant d'abord au point de vue pédagogique, n
 je mettrai sans hésiter en pleine évidence ce qui +
 pourrait sembler le point faible et ruineux de mon :
@@ -3406,8 +2605,6 @@ siècles de l'âge d'or dont parle Joseph Bertrand dans
 son éloge de Poinsot. Pour être admis dans la première
 École polytechnique, « les jeunes citoyens devaient
 donner des preuves d'intelligence, en subissant un exa-
-{
-4x |
 
 | Alexis Bertrand
 men sur les éléments des mathématiques ». La méthode
@@ -3423,9 +2620,6 @@ Voulez-vous une brève et sèche énumération des matières que l'on enseigne d
 remplacera, autant que possible, le parallèle minutieux
 que j'ai fait personnellement des programmes et que je
 suis bien forcé de vous épargner. (1) Je copie: « Morale,
-français, histoire, géographie, droit usuel, arithmétique,
-algèbre, géométrie, arpentage, nivellement, trigonomé- |
-trie, physique, chimie, histoire naturelle, anglais, allemand, comptabilité, dessin linéaire, dessin d'ornement,
 
 : écriture, travaux manuels, gymnastique, chant, agriculture. » S'il n'y a pas dans cette masse encyclopédique
 l'étoffe suffisante pour faire un bachelier, il faut en con- |
@@ -3442,11 +2636,6 @@ qui veut paraître sans être, qui emmagasine sans s'as-
 
 (4) Voir les annexes, à la fin du cahier.
 
-TRS
-
-2: 20 :
-F LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
-É
 | similer, est en raison directe de l'ampleur des pro1 grammes. Quand ils croissent en progression arithmé-
 : - tique, elle s'accroît en progression géométrique. On
 ; avait promis d'instituer dans les Collèges et les Lycées
@@ -3475,13 +2664,8 @@ ni laiin, est du secondaire authentique ? N'y apprend-on
 le primaire ? Puis, croyez-vous que vos fils de bourgeois
 . déploient pendant sept ans le même effort tendu et
 [ énergique que déploieront pendant quatre années les
-“à
-
-=
-F0 “ 3
 
 Fe AS g ” Rte: ee + OU AFTER RE
-î Alexis Bertrand
 '' mieux doués et les plus laborieux des fils de prolé-
 D - taires ? Encore une fois, je m'en réfère à l'expérience :
 che elle nous a donné cent fois la démonstration que l'ancien
@@ -3512,11 +2696,8 @@ brutalement, mais qui se glissent entre les lignes des
 1 l'une primaire, l'autre secondaire, mais il est très vrai
 ‘ qu'à égalité de savoir, il y a la science des bons et
 "k solides esprits et la science des autres, des esprits boije teux et mal conformés : ce ne sont pas les mots de
-à:
-v :
 je
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 primaire et de secondaire qui en décident, c'est le
 métal même de l'esprit.
 
@@ -3549,10 +2730,6 @@ places et de la course aux emplois.
 
 Ce fléau proprement français, vous avez sans doute à
 
-45 ur.
-
-4 Alexis Bertrand
-
 ja cœur de l'enrayer et vous devez craindre que l'extencs sion et la gratuité des études secondaires n'en redouble
 ï. les menaces et les ravages. Telle n'est pas mon opi-
 |. nion : l'enseignement que j'appelle intégral « et qui emde brasse tout l'homme et tout le peuple, porte en lui un
@@ -3581,10 +2758,7 @@ ht lobéissance. Surtout n'oubliez pas qu'intégral veut dire
 à bourgeois nous sommes, il faut bien avouer l'évidence;
 à et je plains nos fils qui auront à lutter contre la plus
 A redoutable des concurrences. Croyez-le, ceux qui se
-Fe
 
-LES 3 RTE »-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE se
 montrent si réfractaires à la vraie réforme et s'efforcent ;
 tant qu'ils peuvent de la retarder, sentent confusément F
 ce péril de leur classe et de leur caste:; ils se refusent +
@@ -3613,8 +2787,6 @@ proie. La fonction, disent les physiologistes, crée l'organe : ici, c'est l'org
 réclame impérieusement, la dent qui ne peut que
 
 FE à RU Ne ue
-:
-4 Alexis Bertrand
 
 ï broyer, la griffe qui ne peut que saisir et déchirer. Ma
 
@@ -3632,7 +2804,6 @@ division de cavalerie de monter à cheval et d'exécuter
 f: mais l'hypothèse ? — Comment, l'hypothèse; que vou-
 À lez-vous dire ? — Eh oui, dans quels cas, à la guerre,
 ù exécuteriez-vous ces mouvements ? » Les manœuvres
-\ continuèrent ; formations irréprochables en colonnes
 É serrées, à allure vive, et toujours Grant de demander :
 à " « Et l'hypothèse? » Et Forey de répondre : & Il n'y a
 à pas d'hypothèse. » On nous assure que dans notre
@@ -3648,11 +2819,8 @@ passive et simplement réceptive de la théorie figée et
 | Tant que notre enseignement secondaire a oublié l'hy2: pothèse, il n'a pu produire que le factice et Le stérile.
 É L'hypothèse, dans l'armée, c'est la guerre; l'hypothèse,
 
-at
-
 | LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 dans l'enseignement, c'est la vie, la vie sociale avec ses
-innombrables activités.
 
 Activités, dis-je, innombrables, et par conséquent
 
@@ -3677,8 +2845,6 @@ d'être », et que les jeunes gens des campagnes, loin de
 se ruer aux places, vont nous laisser manquer d'instituteurs. Cette rupture d'équilibre entre l'offre et la
 demande, cette grève curieuse des coureurs de places,
 
-4 : AUS
-; Alexis Bertrand
 ; méritent d'être analysées de près; je n'en retiens que
 % cette remarque : plus il y a de jeunes gens, semble-t-il,
 4 capables de remplir un emploi, moins il se rencontre
@@ -3706,7 +2872,6 @@ fe de pères de famille demain, ne cessent de déclamer
 Fi choisi; mais qu'est-ce qu'un monopole qui coûte des
 H millions ? En quoi mérite-t-il le même nom que le mo-
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE |:
 nopole des tabacs, qui remplit les caisses de l'État ?
 Dites au moins : service public, comme l'administration de la justice ou l'entretien d'une force publique ;
 permanente, et reconnaissez que ce prétendu monopole,
@@ -3733,8 +2898,6 @@ exagérée, peut-être, de détails pédagogiques. Je vous
 invite, au nom des intérêts politiques permanents du
 pays, qui résident dans l'éducation des citoyens, au
 nom des intérêts électoraux d'une politique à larges
-
-‘à Alexis Bertrand
 
 ! vues et à longue échéance, à base de justice distribus tive, d'équité et d'égalité sociales, à adopter d'abord,
 ° puis à m'autoriser à proposer et à défendre demain, en
@@ -3764,10 +2927,6 @@ ji primaire et primaire supérieur, sans que les ressources
 Al quentent ces écoles gratuites, fils de paysans, d'oun. vriers, de petits commerçants, des avantages et des
 5 droits que confèrent, à leurs camarades des lycées et
 1 des collèges payants, les certificats et diplômes de
-: 52 :
-“14
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE À
 
 l'enseignement secondaire, alors qu'il y a identité d''ef- 4
 forts, de culture et de talents; ee
@@ -3792,65 +2951,24 @@ emplois que leurs camarades de la section D du second
 cycle des lycées et des collèges. (1)
 (1) Le vœu a été adopté à l'unanimité dans la séance du 12 octobre 1902.
 
-Re SU OR LUN PT AREA
 Dr NRA te LE « à SR Er. LA PEOMEATE je
 ALFA el s LOT CN ME ENT VU 1 0CE po RS LE
-LE SLR « À r LU LIN ST STE A
-LR ENS : È À Et FRERE PSE
-ne : à SRE PNR s ;
-a Tu 2e AE * *- k L 1
-F4 + ATRaE Se s: à La us
-FES £ ; al à FSC ; ") ra s
-LES : We” ET
-RTE ) RE
-2 FES à: # - rs EN RS ;
-Si FH lan F RTE
-LE 4 | ER +" , c Ke 54
-LIRE LT. E
-NC > He ‘4308
-a RAD.
 
 ce 5 bn Sig pet RÉETsE Re 4 Lee BE 36 Des L FRSNE
-LITRES D.
-Re ÉCENSEIGNEMENT: INTEGRAL =
 ni: ‘ ET:BES : me
-__ HUMANITES SCIENTIFIQUES É.
-3 é der ”
-= : rs
-ee x D s 26
 3 À br dl L 2 LR
-+ res
-à + 7
 dE : té we AY
-ù UP: :
-PERS D. |
 
 pi 4 Le ht À RP
-; Me Dr ot.
-VE }
-LS
-L'ENSEIGNEMENT INTÉGRAL
-ERLÈES
-HUMANITÉS SCIENTIFIQUES
-1e
 
-SSSR RS
-2 LS TM EE ai Pen ART LAS RE SRE ER
-ARE A | D
-LS Re
 Contribution à la grande Enquête parlementaire su
 # ne l'Enseignement secondaire, de 1899; introduction;
 Lo ai ss . . Tu M:
 _  déposition devant la Commission d'enquête, compte
 rendu sténographique officiel, séance du 22 mars 1899;
-commentaires. S LEE:
 #3 RAR $ En
-$ 2 Le Pal
 
-DEUXIÈME PARTIE
 L'Enseignement intégral et les Humanités
-scientifiques
-I
 
 « Testament politique de l'impuissance universitaire
 au dix-neuvième siècle » : c'est en ces termes plutôt
@@ -3872,7 +2990,6 @@ k Ô résultats? — J'estime qu'il faut, à ses risques et périls,
 al dire ce qu'on croit être la vérité, surtout ne pas regretter
 L de l'avoir dite. Quant à l'Enquête elle-même, on doit
 ‘4 désormais la juger comme un fait objectif et histo-
-î ; rique.
 | Elle eut le tort d'être plutôt une vaste interview
 à qu'une véritable enquête. C'était pourtant, méthode et
 3 résultats à part, un curieux et réconfortant spectacle
@@ -3899,9 +3016,7 @@ u pour les dimensions, une tour de Babel pour la confusion
 ï Égypte il y avait autant de médecins que l'on peut
 2 dénombrer de parties dans le corps humain, l'un pour
 ë le nez, l'autre pour les oreilles, celui-ci pour l'estomac,
-: 58
 
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES 5
 celui-là pour le ventre; chacun soignait la partie du À 4
 corps qui lui était dévolue, s'y bornait scrupuleusement, s
 et si, chaque membre guéri, l'homme mourait, c'était #
@@ -3931,9 +3046,7 @@ désespoir de cause, suivre le conseil de Platon. Dans sa
 République Platon, pour faire des mariages assortis et
 assurer l'avenir de la race, charge les magistrats de
 tirer au sort les conjoints, mais il leur permet, il leur
-59 $
 
-à Alexis Bertrand
 ' recommande même de tricher un peu et de guider disLe crètement le sort, innocente supercherie qu'il croit
 ME nécessaire au bien de l'État. On pouvait aussi recourir
 à à la pratique du Moyen-Age des Sorts Virgiliens. On
@@ -3960,12 +3073,9 @@ hi désordre. Sériez les questions, disait Gambetta. Le ha5 sard, la fatalité 
 de procéder logiquement, qu'il eût fallu choisir. La loi
 ue Falloux dominait, pédagogiquement parlant, tout le
 4 débat, à cause de la question du baccalauréat qui terje mine les études et qu'il était extraordinairement difi4 cile de supprimer ou de réformer, parce que l'enseigne-
-(
 4. 60
 4 0
-:f
 
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES na
 ment congréganiste était alors une pierre d'achoppe- 4
 ment. Un décret ministériel avait antérieurement réor- ÿ
 ganisé l'enseignement des langues vivantes. Je me ë
@@ -3978,7 +3088,6 @@ pour les hôtels cosmopolites. Si elles étaient destinées
 leur enseignement à ce rôle nouveau et les faire servir
 le plus possible à la culture littéraire. Elles pouvaient
 peut-être devenir éducatives sans que leur caractère
-d'utilité pratique fût compromis.
 
 Le Conseil supérieur de l'Instruction publique souffrit
 lui-même de ces errements, je n'ose dire de ces erreurs,
@@ -3997,11 +3106,6 @@ précisément à cause de son caractère syncrétique, trop
 de coins et de recoins obscurs et inquiétants. Je n'ai
 rencontré, pour l'approuver sans restriction, que ces
 
-6x
-IV
-
-No. Alexis Bertrand
-“
 : Pandores de la pédagogie dont le veule éclectisme,
 230 l'optimisme béat dit à chaque système : Brigadier, vous
 Mi avez raison! s'inclinent avec onction et componction
@@ -4030,12 +3134,9 @@ i broute : voilà l'élève embrigadé et ensectionné; pas un
 : clopédies reliées en veau. Trop de connaissances et
 É pas assez de science. On oublie trop que dans la science
 Ë même il ne faut estimer que ce qui nourrit et fortifie
-Î G2
 |
-h
 
 Shen HI ENS ee NE
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES a
 lesprit; que les sciences ont des coins et des recoins x
 ténébreux où il est inutile de s'égarer et dangereux de “a
 se perdre; qu'à vouloir saisir toutes les branches, même 4
@@ -4066,8 +3167,6 @@ sciences, en C et en D, beaucoup trop chargés, mais on
 a mis le professeur de philosophie dans la plus bizarre
 situation : en À et en B, il a dans son programme « Dieu
 
-Él,
-D Alexis Bertrand
 L et l'Ame »; en C et en D, il n'a plus ni dieu ni âme.
 li Forte distraction, car enfin, si Dieu est une quantité
 négligeable il semblait qu'il fallût l'éliminer totalea ment; mais, pour alléger le programme philosophique
@@ -4099,8 +3198,6 @@ prouvé dans mon Enseignement intégral, à René Des-
 j tradition française et aux plus hautes autorités scienti-
 \ fiques et humaines.
 
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES
-
 Je n'éprouverais de déception et de regret que si le 5
 lecteur condamnait mon projet comme ayant l'appa- S
 
@@ -4111,7 +3208,6 @@ science des d'Alembert et des Joseph Bertrand était,
 par elle-même et en tant que science, anti-littéraire ;
 comme si la Béotie, de mauvais renom artistique et
 littéraire, était justement la terre de prédilection des
-savants ?
 
 Si Renan vivait encore, je suppose qu'il nous conseillerait de faire avec lui une fervente prière sur l'Acropole et de réciter, pour obtenir qu'elle nous éclaire et
 chasse les ténèbres de notre esprit, les litanies de
@@ -4129,13 +3225,6 @@ cycles dans l'éducation des jeunes Athéniens, la gymnastique et la musique, la
 parole, c'est-à-dire les Sciences auxquelles obéissent les
 Arts, que président les Muses. Vous me demandez
 quelle est la meilleure éducation : c'est la Science transformée en Sagesse.
-
-65 IV.
-
-Alexis Bertrand
-N
-IT
-DEVANT LA COMMISSION PARLEMENTAIRE (1)
 
 M. le Président. — Monsieur Bertrand, vous êtes
 professeur de philosophie à la faculté des lettres de
@@ -4161,10 +3250,6 @@ crise des lycées. Je crois que le baccalauréat, — il a du
 moins l'utilité d'une enquête, — donne la preuve trop
 
 (1) Compte rendu sténographique, séance du 22 mars 1899.
-
-66 j
-
-. “4ù DEVANT LA COMMISSION PARLEMENTAIRE
 
 L décisive du contraire. La crise n'est pas localisée aux
 | É établissements de l'État : elle sévit partout, si l'on n'en4 tend parler ni de l'enseignement primaire ni de l'ensei-
@@ -4192,10 +3277,6 @@ k qui ne répond plus à rien de réel, cette continuité vague
 # Ë condamnerait les jurys d'examens de passage à un iné-
 # vitable arbitraire, singulièrement aggravé par la crainte
 Re : toujours plus grande, partout ressentie, de perdre des
-el « unités ».
-FA 4 67
-
-Alexis Bertrand
 
 La cause de cette déformation est facile à reconnaître : c'est l'invasion des sciences ; elles se sont pré-
 cipitées toutes ensemble dans un système préparé uniquement pour l'enseignement des lettres et l'ont brisé.
@@ -4227,9 +3308,6 @@ celle de Kant, qui déclare avoir imité Copernic.
 Voyant qu'il fallait imaginer orbe sur orbe, épicycle
 sur épicycle, pour expliquer tant bien que mal le mou-
 
-68 ;
-
-DEVANT LA COMMISSION PARLEMENTAIRE
 vement du soleil autour de la terre, Copernic se dit :
 Supposons que les choses se passent autrement et que
 ce soit la terre qui tourne autour du soleil. Je demande
@@ -4242,7 +3320,6 @@ $ la méthode de Copernic et de Kant dans l'ordre péda-
 ù gogique. Ce n'est d'abord qu'une hypothèse; elle sera
 “ _ ensuite légitimée par ses conséquences; le procédé est
 à régulier et scientifique. Examinons l'hypothèse et ses
-FA conséquences.
 LA Ce qui a manqué aux grands pédagogues de la RévoLi lution, à Condorcet par exemple, pour fonder sur le roc
 $ l'enseignement secondaire national, — (à mon avis, l'enrs seignement secondaire est en décadence depuis cette
 % époque), — c'est une bonne classification des sciences.
@@ -4264,9 +3341,7 @@ insiste, je ne demande pas moins de lettres ; mais si
 
 ‘ sature intérieure des études, le noyau, le centre, je
 ‘à constate que tout devient intelligible et qu'il n'est plus
-À 69 -
 
-Alexis Bertrand :
 besoin de tous ces orbes et épicycles pédagogiques. Ce
 “serait le terme d'une évolution ou l'achèvement d'une
 révolution qui se fait actuellement sans nous, sinon
@@ -4283,7 +3358,6 @@ intentions ; elles ont eu, au moment précis où on les
 réalisait, leur nécessité, partant leur utilité; je cherche
 donc la logique de ces réformes, leur ligne de convergence, et je trouve qu'il y a au fond unité de direction
 . en dépit des tâtonnements, des hésitations, même des
-retours en arrière.
 Cette orientation des réformes, c'est, pour la définir
 en un mot, l'introduction progressive, mais peu méthodique, des sciences dans l'enseignement secondaire : ce
 fut l'esprit de l'enseignement « spécial » de Victor Duruy
@@ -4298,14 +3372,11 @@ Je vais essayer d'adapter à la réforme de l'enseigne-
 à ment la classification des sciences d'Auguste Comte.
 Non que je prône ou que je prêche le positivisme, mais
 
-% DEVANT LA COMMISSION PARLEMENTAIRE
 | parce que la classification de Comte, détachée du
 système, me semble éminemment propre à guider la |
 pédagogie de l'enseignement secondaire. Tout le monde
 sait qu'elle échelonne et hiérarchise les sciences de la
 - mathématique à la morale : 1° mathématiques; 2° astro-
-…_  nomie ; 3° physique; 4° chimie; 5° biologie; 6° sociologie ;
-7° morale.
 ; Cest l'ordre du développement historique des
 à sciences, Avec Comte, je crois que chaque esprit indi-
 ë. viduelse développe comme s'est développée l'humanité :
@@ -4331,10 +3402,8 @@ ___ dix-huit ou de treize à dix-sept ans.
 ia 1 Je me hâte de répondre à plusieurs objections ; et
 F d'abord le mot « sociologie » va paraître insolite : il est
 M; . pourtant déjà consacré par un usage européen, uni-
-+ ii
 #
 
-Alexis Bertrand
 versel. La sociologie de l'enseignement secondaire ne
 sera guère autre chose que ce que nous avons étudié en
 philosophie sous le nom de morale sociale en y ajoutant
@@ -4347,7 +3416,6 @@ classification à laquelle je ne crois pas nécessaire de
 rien changer; la sociologie classique, c'est donc au fond
 l'ensemble des problèmes de la morale sociale traditionnelle, avec les compléments historiques et économiques
 indispensables. C'est la plus nécessaire de toutes les
-études.
 M. Henri Blanc. — Vous dites que la première
 année serait consacrée à l'étude des mathématiques ;
 mais, par mathématiques, vous entendez les mathématiques élémentaires ; dans une année vous ne feriez pas Ë
@@ -4363,10 +3431,6 @@ jamais, chez quelques-uns.
 Voici ma réponse : je débute, il est vrai, par les
 mathématiques ; seulement, la remarque est d'importance capitale, l'élève a quatorze ans; il a appris par !
 une solide initiation primaire tout ce qui, dans les Ï
-72 |
-ns t
-
-; DEVANT LA COMMISSION PARLEMENTAIRE
 
 | mathématiques, est empirique et pratique; il sait
 
@@ -4380,7 +3444,6 @@ M. le Président. — Enfin vous faites deux séries
 d'études : une forte assise d'études primaires, et ensuite
 
 | un enseignement plus complet qui se rapproche d'un
-enseignement secondaire supérieur ?
 M. Bertrand. — Je le voudrais élémentaire, simplement élémentaire. Mais, à la différence des mathéma-
 | tiques de l'enseignement primaire, celles de l'enseignement secondaire sont essentiellement théoriques, ce
 | qui ne veut pas dire supérieures ou transcendantes.
@@ -4391,7 +3454,6 @@ M. Bertrand. — Je le voudrais élémentaire, simplement élémentaire. Mais, �
 | « supérieur » et l'enseignement « supérieur » ou des
 | universités.
 | M. le Président. — Mais la sociologie est déjà une
-étude supérieure ?
 
 M. Bertrand. — Je demande grâce pour son nom et
 sa jeunesse ; au fond, elle est presque familière à l'instituteur, sous le nom d'enseignement civique; au
@@ -4400,9 +3462,6 @@ professeur de philosophie, sous le nom de morale
 sociale; il n'y a sur ce point qu'à compléter et à systé-
 matiser un enseignement qui n'est pas à créer de toutes
 
-à:
-
-2 : Alexis Bertrand
 ‘ pièces. Un bon enseignement sociologique est de
 première nécessité pour notre pays à tous les degrés
 G des études.
@@ -4428,12 +3487,10 @@ pêlerin qui avait fait vœu d'aller à Rome en faisant
 scrupuleusement trois pas en avant et deux pas en
 arrière : il arriva, mais c'est miracle.
 M. le Président. — Et vous êtes d'avis d'avoir un
-seul genre d'enseignement ?
 M. Bertrand. — Oui; un seul type de lycées ; mais
 je serais enchanté que l'expérience fût faite d'abord,
 
 ions ja dy ha on Fe Me MNtet PE PAT OR PE a:
-Re DEVANT LA COMMISSION PARLEMENTAIRE 3
 _ comme sont conduites les expériences scientifiques,
 …_ sous la formeprudente d'une expérimentation restreinte.
 . _ Voici mes raisons : Je tiens beaucoup à ce que l'ensei4 è gnement secondaire soit ramené à l'unité ; je dis comme
@@ -4467,10 +3524,6 @@ liberté absolue à l'élève de résoudre pour son compte
 personnel, à ses risques et périls, ce qu'on a appelé la
 |
 15 7
-à
-
-D k M LD dt RE dd à
-Alexis Bertrand
 
 « question du latin ». L'élève, loin de se borner à son
 bagage scientifique, doit, outre le français, étudier à
@@ -4504,8 +3557,6 @@ faut opter. L'art d'enseigner a cela de commun avec
 l'art d'écrire qu'il consiste à choisir et vit de perpétuels
 sacrifices. M. Fouillée, le grand interprète de Socrate et
 de Platon, qui connaît le « divin Platon » mieux qu'il
-
-ARE
 
 | DEVANT LA COMMISSION PARLEMENTAIRE
 
@@ -4554,74 +3605,19 @@ Pour résumer, je dresse ce tableau, qui représente,
 par le nombre d'heures dévolues à chaque professeur,
 l'importance relative des enseignements et toute l'économie du lycée ou du collège de demain :
 
-À
-Alexis Bertrand
 env | mm NNm a N Om ON mm Ni
-2 ©
-2 26 E &
 tolO Le SE mme HE Me E Eh tete
-= $ © = Si
 
 ENE Te DER Dee DU
-4 PE -.#= 4 |, 1 QU CHERE
 sis: | CES al Cor ler
-ÉA DET : ES - me OL Free | 14
-[al OR H . CRT © © ® 282:
 
-© eZ © … © AE Oo e
-1 . SET Lee Sue - ua Oo:
-[a] dr RENE 2,3 Rx DR
-x ca CSA BF 28. 222 . don
-Z SERRE SR Le RENE CREME
-Q 5 ® © à 5 & 9 2 5 É% 3 4% © 9
-
-© D An 27 3 3 D—- a SE dei
-SA ET S EL = Oo © 2 &À ©
-L655 | SSES |'ÉS es 5 & © à
-SRE S FHE S SRE Gex Es
-Lost | S6s | Less | 5%
 2 DE ok 2 à on En ÉtTos
-20 esEes S s 02 S 20 's
-D 2 Fan LE na = »% 2
-S228 LEZ CS £ © s « © ©
-AUVEA AñOA é£zkA £AAA
-saua | + + << SN Zee co =# « © ©
-E à A © 2 © FA « n
-CEST DE © EP 9,119
-2-1 Q = 9 — -
-ARE ER Len NUE
-2 ER S'en sis © & .5S
-Ti ex + Ë A pet Bic
-2 a DE? EREF RUE # De ?
-< 2SS « 2 2ES eu 2 S a £Ÿ SE "2
-à 5 © © = © © . 2 2 = en
-= | Sr ie Et Ge mes = — =
-© 5 © © © © © © . © © © o © © ©
-EN EE DE n £ 49v$é
-gsas | Ssés |-28as leRas
-Bosnul: 3 0 Suilroe Polo
-L = & a = CORTE T2 x DS
-ES: À © mi = © min à © oO: A ©
-Æ © & À REEA ATEA AEERA
 RP ST Con en CE SR ET Re 6
-éà| a > © 2 2 2
-£, 2 OMS Fo À Ee à £e ©
 ES SD de En SU 2C" LOTS so 9
-2 = ESISS 8Sl% BSI< ESIS
-5 À SS Sa IS >? 56.4 S3 ©
-D & HOT CRE: £S à = o
-© R& Ê [= Cx E s) A
 
-'
-É
-78 à
-
-” x VZ%
-DEVANT LA COMMISSION PARLEMENTAIRE
 M. le Président. — Voulez-vous nous dire, en terminant, quelques mots du baccalauréat? Vous êtes à #
 Lyon dans une grande faculté, vous faites passer des ;
 examens; croyez-vous qu'il y ait utilité à toucher au
-mode d'examen?
 M. Bertrand. — Si on touche au baccalauréat,
 comme on ne détruit que ce qu'on remplace, il faut le
 remplacer, et par quoi le remplacer, si ce n'est par les
@@ -4634,7 +3630,6 @@ aux élèves des matières de vers latins. » Or on ne fait
 plus de vers latins, la caractéristique de cette classe a
 disparu. La caractéristique de la deuxième était la
 | narration latine; celle de la rhétorique, le discours
-latin…
 M. le Président. — Vous êtes d'avis de maintenir
 le baccalauréat?
 M. Bertrand. — Je le regarde comme un furoncle ou
@@ -4646,8 +3641,6 @@ l'opération qui l'extirpera.
 Je compare le baccalauréat à une course de bicy_ clettes ou d'automobiles de Lyon à Grenoble, par
 _ exemple, où iln'y aurait qu'un seul contrôle, à l'arrivée.
 S'il n'y a pas de contrôle sur la route, de distance en
-
-Alexis Bertrand
 
 distance, beaucoup de coureurs, j'allais dire de frau- |
 deurs,' mettront tout simplement leur machine au |
@@ -4663,7 +3656,6 @@ rien ou presque rien. Je voudrais des contrôles en cours
 de route.
 
 M. le Président. — Cela s'appelle les examens de
-passage. 4
 
 M. Bertrand. — Encore faut-il qu'il y ait au passage
 des postes, des stades, des points de repère nettement
@@ -4678,18 +3670,12 @@ jusqu'à ce que nous ayons accepté vos idées d'organisation ?
 
 M. Bertrand. — C'est peut-être le maintenir jusqu'aux calendes grecques; j'espère pourtant le contraire; en attendant nous tâcherons d'atténuer quelques-uns de ses innombrables inconvénients sans
 espérer y parvenir. Il nous tient enfermés dans un
-cercle vicieux.
 
 M. le Président. — Vous avez le temps, à Lyon, de
 faire passer les examens convenablement ?
 
 M. Bertrand. — Le temps est mesuré; je ne dirai
 pas que le temps ne fait rien à l'affaire, mais que le
-
-80 ke
-
-< r4
-DEVANT LA COMMISSION PARLEMENTAIRE
 
 temps, même doublé ou triplé, ne changerait guère à la
 
@@ -4699,8 +3685,6 @@ examen, superficiel et encyclopédique, n'existe pas. Il
 sera toujours vain de prétendre, par un examen unique
 
 et même doublé, contrôler loyalement huit longues
-
-années d'enseignement secondaire.
 
 Le baccalauréat sera toujours un détestable « psychomètre » : il prend la mesure non des esprits, mais
 des mémoires; non de la force intellectuelle acquise,
@@ -4715,7 +3699,6 @@ Mauvais, il l'est surtout parce que les études secon-
 | et j'ajoute qu'il est difficile de s'en passer actuellement
 | parce que le désarroi du système des classes ne laisse
 guère d'espoir d'organiser efficacement les examens de
-* passage.
 | M. le Président. — Enfin vous préféreriez l'examen
 de passage et provisoirement vous considérez le baccalauréat comme devant être gardé, quoique suffisant
 médiocrement à sa fonction?
@@ -4726,11 +3709,7 @@ ce sens qu'il est en parfait accord avec les études
 mêmes, qu'il leur est adéquat. Tant que nous n'aurons
 pas réformé les études, nous pourrons bouleverser,nous
 ne pourrons ni réformer sérieusement ni supprimer le
-‘baccalauréat.
 
-81 Ye
-
-Ée Alexis Bertrand ;
 ; Le principal avantage de mon plan, et je tiens à le
 faire ressortir, c'est que, notre enseignement secondaire
 ê étant réorganisé sur la base scientifique, ce serait
@@ -4762,7 +3741,6 @@ sont pas les promesses de son intelligence, c'est simplement la situation de sa 
 
 82 4
 
-DEVANT LA COMMISSION PARLEMENTAIRE
 réclame pas contre ce « privilège », mais je voudrais à
 qu'on étendiît le champ de la sélection. h
 
@@ -4796,11 +3774,6 @@ de la culture de l'esprit; c'est ensuite parce que la
 Et tout à l'heure je n'ai pas complètement répondu à
 une objection très forte et qui reviendra sous toutes
 
-à 83
-
-“AJ
-
-Alexis Bertrand
 les formes : à quatorze ans l'élève est-il apte à comprendre les mathématiques? Je n'introduis pas les
 mathématiques dans une seule année; le professeur
 de mathématiques enseigne en première année, mais il
@@ -4808,7 +3781,6 @@ continue son enseignement jusqu'à la fin. Réciproquement le professeur de mora
 
 - Si les mathématiques éloignaient dès l'entrée quelques
 incapables, j'avoue que je n'en serais pas autrement
-désolé. ;
 
 Il a paru un livre excellent de M. Laisant sur l'enseignement des mathématiques : l'auteur reconnaît que
 les mathématiques sont devenues encombrantes parce
@@ -4830,9 +3802,6 @@ Je crois donc qu'à quatorze ans, muni d'un bon enseignement primaire, — ajout
 complété par une année complémentaire d'enseignement
 primaire supérieur, — l'élève est apte à entrer dans le
 
-84 :
-
-DEVANT LA COMMISSION PARLEMENTAIRE
 cycle secondaire par la porte des mathématiques. Au
 surplus, il n'y a pas, disait Euler, de route royale en
 mathématiques; je ne puis changer l'ordre naturel des
@@ -4866,9 +3835,6 @@ que tous nos enfants sont dauphins en France.
 
 | 85
 
-: :
-Alexis Bertrand
-
 Comment a-t-il mis la dernière main à cette éducation
 royale, qui réussit médiocrement, il est vrai, mais par
 la faute de l'élève, irrémédiablement médiocre, non
@@ -4890,7 +3856,6 @@ C'est, selon Comte, le premier en date et en éloquence
 À des traités de sociologie, admirable ébauche, esquisse
 grandiose d'une science bien française et qui n'a plus
 guère qu'en France des détracteurs et des sceptiques
-obstinés.
 
 Donc Bossuet, le dernier des Pères de l'Église, déclare
 implicitement, par sa pratique d'éducateur plus encore
@@ -4903,7 +3868,6 @@ de rénovation pédagogique que ni la Constituante ni
 
 | 86 |
 
-DEVANT LA COMMISSION PARLEMENTAIRE
 la Convention n'ont pu mener à bonne fin, faute d'une
 classification des sciences qui leur servit de base
 d'appui, classification qu'il était impossible d'édifier à f
@@ -4918,7 +3882,6 @@ grande lumière qu'il a fait briller aux yeux des savants
 et des pédagogues.
 
 M. le Président. — Avez-vous un autre point à
-traiter ?
 
 M. Bertrand. — Le chapitre des objections et des
 difficultés ; mais cela demande tout un livre, que j'écrirai,
@@ -4929,7 +3892,6 @@ séance ou scientifique ou littéraire.
 
 M. le Président. — Nous sommes à un moment de
 l'enquête où nous sommes absolument obligés de
-serrer.
 
 M. Bertrand. — Je n'ai apporté qu'une idée, une
 seule, mais que je crois essentielle. Je termine donc
@@ -4937,14 +3899,11 @@ comme j'ai commencé : je pressens une grande révolu-
 
 G) Voir les Études dans la Démocratie, Paris, Alcan.
 
-4 Alexis Bertrand
-
 tion pédagogique que je caractérise d'un mot, une révolution semblable à celle de Copernic en astronomie, de
 Kant en philosophie : les sciences placées systématiquement au centre des études, les lettres devenant leurs
 éclatants satellites. Qu'un seul lycée de ce type nouveau soit créé demain et je suis convaincu que cette
 expérimentation pédagogique, qui n'offre aucun danger,
 changera promptement la face de notre éducation
-nationale.
 
 Au point de vue budgétaire, je tiens à faireremarquer ,
 que les innovations que je propose ne consistent pas en
@@ -4955,8 +3914,6 @@ aggravées. Nous avons, Dieu merci, un corps de professeurs à la hauteur de tou
 M. le Président. — Nous vous remercions, monsieur
 Bertrand, de votre déposition.
 
-III Û
-
 Le tableau des études réorganisées en un planintégral,
 c'est-à-dire la partie essentielle de cette déposition,
 paraîtra sans doute un peu obscur et énigmatique.
@@ -4965,13 +3922,7 @@ l'esprit et la portée, quelques pages explicatives d'une
 courte brochure, intitulée Le Lycée de quatre ans. Cette
 brochure fut écrite sous la forme d'un article de la
 
-88 :
-
-D à e : .
-APRÈS LA COMMISSION PARLEMENTAIRE
-
 Revue Occidentale. Je devais bien ce témoignage de 3
-reconnaissance aux positivistes, puisque j'empruntais |
 à leur maître Auguste Comte le principe et les dispositifs
 
 de la classification des sciences. Toutefois, je dois aussi
@@ -5042,10 +3993,7 @@ réformer la Chine ! » Il résume en deux mots la portée
 négative de son programme : « Allégez les programmes,
 abrégez les études » ; en deux mots également la partie
 
-90 ÿ
-
 |
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 positive : « Tous les petits Français devraient passer à
 des degrés divers par cet enseignement primaire élargi
@@ -5081,7 +4029,6 @@ la fortune a plutôt favorisée? A cette objection, fondée,
 
 | je l'avoue, je ne puis faire qu'une réponse: je prends la
 
-Alexis Bertrand
 question telle qu'elle se pose ». A quoi je répondrai que
 ces adolescences dont il parlait tout à l'heure sont des
 adolescences plutôt démocratiques et prolétariennes
@@ -5105,10 +4052,6 @@ surtout et Sociologie « grands mots que Pradon croit |
 : des termes de Chimie ! » font que les académiciens,
 par délicatesse, et le vulgaire, par ignorance, froncent
 les sourcils en s'éloignant, vaguement inquiets. Je m'accuse donc d'avoir négligé, dans l'intérêt de la précision,
-
-92 ‘
-
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 le grand art de la périphrase : je m'en accuse, dis-je,
 sans la moindre nuance de réticence ironique, car je
@@ -5149,8 +4092,6 @@ déclarer que par conviction scientifique, par respect
 
 j pour Comte, et, j'ose ajouter, par respect de moi-même, CARE
 
-\ Alexis Bertrand
-
 je n'y ai pas songé un instant. Je ne me targue d'aucune
 13 orthodoxie. Il est telle opinion de Comte à laquelle je
 ! ne me rallierais pas : par exemple, et pour le dire en
@@ -5185,9 +4126,6 @@ aisément du monde : c'est l'invasion des sciences dans
 | langues anciennes et c'est aussi l'invasion de la démo-
 | 94
 
-PROPOS | ; f
-; i
-APRÈS LA COMMISSION PARLEMENTAIRE 1
 cratie dans une institution qui avait pour but principal F
 de former ce qu'on a très bien nommé « des hommes de É
 luxe ». Rien ne sert de déplorer cette double invasion 4
@@ -5216,10 +4154,7 @@ autour de la Terre, et il fallait imaginer orbes sur orbes,
 inventer épicycles sur épicycles, pour rendre compte
 des apparences, tout en se méprenant grossièrement
 sur les réalités. Replacez le Soleil au centre et faites
-9ù
 
-À Alexis Bertrand
-h
 ‘| graviter autour de lui la Terre et les planètes, tout s'é-
 ! claircit, tout devient intelligible et lumineux. SemblaL. blement, dans le système des études, on a placé au
 EI centre les lettres, surtout gréco-latines ; les sciences
@@ -5250,14 +4185,11 @@ avec du désordre, réintroduire l'harmonie dans les
 lieu de ce système de contradictions pédagogiques qui
 | 96 } |
 
-APRÈS LA COMMISSION PARLEMENTAIRE
-
 nous réduit à l'impuissance, ramener la foi et la confiance sans lesquelles maîtres et élèves ne peuvent rien. %
 C'est enfin procéder en pédagogie comme on procède À
 en science ; déduire d'une théorie les conséquences
 qu'elle renferme et la juger sur ces conséquences ;
 mêmes. Voyons ce qui résulterait de ce copernicisme
-pédagogique.
 
 Tout d'abord, le grec et le latin cessant d'être le trait
 caractéristique de l'enseignement secondaire, cet enseignement deviendrait la suite naturelle de l'enseignement primaire, sans hiatus, sans solution de continuité.
@@ -5280,14 +4212,10 @@ mêmes choses, mais on les y enseigne généralisées et
 systématisées : on ne se contente pas d'y introduire des
 vérités toutes faites en vue des applications immé-
 
-VI
-
-* Alexis Bertrand ;
 k diates; avec la chose, on y enseigne la raison de la
 qd. chose, en vue, sans aucun doute, des applications, mais
 he en vue surtout du développement et de la fécondité de
 : l'esprit. Tout cela est compris dans ce mot : enseigne-
-Ê ment théorique.
 Hi! « Point de régénération nationale sans une régéné-
 1 ration morale; point de régénération morale sans une
 DE culture énergique, s'occupant à la fois de tout l'homme
@@ -5312,10 +4240,7 @@ fl. Minerve ou de la raison. C'est pourquoi je tiens tant à
 fe ce mot d' « intégral » que l'on affecte assez sottement
 je de confondre avec « encyclopédique », dont il est
 4 (1) Voir l'Enseignement intégral, librairie Alcan, Paris.
-' 1 los No ;
 
-HU |
-APRÈS LA COMMISSION PARLEMENTAIRE "à
 presque l'opposé, car il implique qu'on enseignera Le A
 tout, et exclut conséquemment que l'on enseigne tout. 4
 Coupez la série des sciences en haut ou en bas, mutilez N:
@@ -5329,7 +4254,6 @@ tout entière ». Et par parenthèse, je ne sais rien de plus
 platonicien que le plan d'éducation de Comte. On m'a
 accusé d'un rapprochement forcé; un rapprochement
 forcé, c'est souvent celui dont on ne s'est pas avisé soimême. Je le maintiens, l'éducation positiviste est une
-éducation platonicienne.
 On s'effraye parfois de ces grands mots de Biologie
 et de Sociologie. C'est encore la faute du grec et du
 latin. Dans les auditoires populaires et même devant la
@@ -5344,7 +4268,6 @@ ne me sépare de la routine que pour me rattacher à
 nos plus hautes traditions. La Biologie n'est-elle pas
 enseignée sous le nom d'histoire naturelle et de physiologie dans nos lycées ? Mettez bout à bout et reliez É
 
-ë Alexis Bertrand
 | par une idée dominante d'unité l'histoire des institu-
 : tions, la morale sociale, les éléments d'économie polib tique, toutes études qui figurent déjà dans nos pro-
 : grammes, n'aurez-vous pas toute la matière de la
@@ -5370,10 +4293,8 @@ l'exemple et s'y rallient avant nous? Je suis extrêmement frappé de trouver da
 un plan d'éducation qui semble calqué mot pour mot
 sur le plan d'Auguste Comte : même hiérarchie de
 sciences et d'études, qu'il couronne, il est vrai, par la
-100 |
 
 |
-APRÈS LA COMMISSION PARLEMENTAIRE
 théologie; mais dont le ciment, ou plutôt la sève et le |
 sang, est la Morale, à qui seule appartient selon Comte |
 (et c'est la grande pensée qui le met dans la famille de 4
@@ -5399,11 +4320,8 @@ trop élevé encore, des études, les Collèges une fois réorganisés seraient 
 fléaux qui nous assiègent : la concurrence cléricale et
 linternat. Au lieu d'en transformer inutilement un
 grand nombre en lycées onéreux, que ne les a-t-on multipliés en transformant au contraire en collèges les
-écoles mal définies d'enseignement primaire supérieur
 qui donnent un enseignement presque secondaire, quoiI0I VI. À
 
-' |
-F Alexis Bertrand |
 4 que actuellement mutilé et déguisé? Mettez donc un
 À collège à la portée de toute famille où naît cette espé-
 QC rance, un enfant; n'essayez pas, craignez au contraire
@@ -5411,12 +4329,10 @@ QC rance, un enfant; n'essayez pas, craignez au contraire
 | L stème tutorial : pension chez les professeurs, pension
 1} dans les familles des petites villes. Voilà le salut; mais
 % le système est trop simple pour séduire et se faire
-) accepter.
 | Je remercie M. le docteur Jabely de m'avoir suggéré
 È cette excellente désignation : le Lycée ou le Collège de,
 È quatre ans. Abréger les études secondaires est une né-
 Ÿ cessité du temps présent. La division triennale (sciences
-à mathématico-astronomiques, physico-chimiques, bio-
 ü logico-sociologiques) s'adapterait mieux, je le sais,
 à la classification positiviste, mais j'ai consulté avant
 : tout ma vieille expérience de professeur de lycées
@@ -5435,8 +4351,6 @@ premier : on ne comprend pas le principe positiviste de
 | qu'aux yeux de Comte, tout le savoir humain se ramène
 | en dernière analyse aux mathématiques, et que la philosophie, selon le mot très injuste, mais excusable à
 j cette date, de Guizot, est un « matérialisme mathéma102
-
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 ticien »; interprétation absolument fausse que la plu- ;
 part de nos historiens de la philosophie répètent encore À
@@ -5458,13 +4372,11 @@ les objections.
 I. L'enseignement secondaire, lycée ou collège, ramené à son type rationnel et fondamental, est essentiellement l'étude théorique des sciences envisagées dans
 leur filiation et leur interdépendance, en vue de la
 culture générale de l'esprit individuel et des utilités
-sociales.
 
 IT. Il n'y a qu'un seul enseignement secondaire. L'opposition du classique et du moderne est une division de
 
 @) Voir les Etudes dans la Démocratie, librairie Alcan, Paris.
 
-Alexis Bertrand
 Ù l'esprit contre lui-même; une plus exacte notion du
 savoir fait cesser cette dualité et ramène dans les
 études secondaires l'unité de vie et d'esprit. Il est contraire à une bonne pédagogie et à l'intérêt social de
@@ -5491,9 +4403,6 @@ distinctifs assignés à chaque année des études, de
 sérieux examens de passage d'une classe à l'autre, et
 c'est ce qui explique le maintien obstiné de l'examen
 factice et fictif du baccalauréat, en dépit de l'avis contraire des meilleurs esprits.
-104 ;
-
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 IV. Les études secondaires nouvelles sont réparties en
 quatre années d'enseignement : première année, Mathé-
@@ -5514,7 +4423,6 @@ V. Nul n'est admis aux études secondaires qu'après
 de solides études primaires; les études théoriques supposent, en effet, des connaissances empiriques du même
 ordre qui sont proprement l'objet de l'enseignement
 primaire, complété, s'il est nécessaire, par une ou deux
-années préparatoires d'enseignement primaire supé-
 rieur. L'examen d'admission est subi devant un jury
 composé des professeurs du lycée ou du collège. Le
 candidat doit prouver par cet examén qu'il possède la
@@ -5522,14 +4430,6 @@ netteté et la sagacité d'esprit nécessaires pour entreprendre les études th�
 que celui de lécole primaire : notions pratiques ou
 empiriques sur les éléments des sciences, habitude des
 opérations de l'arithmétique et des problèmes élémentaires, connaissance pratique du français et premiers
-
-: 105
-
-Î
-
-1f Alexis Bertrand
-
-‘a
 
 1e rudiments (mais cette dernière condition n'est pas absoD lument obligatoire) d'une langue étrangère.
 
@@ -5557,13 +4457,10 @@ i4 groupe de vérités essentielles doit être, non pas laissé
 is la solidarité humaine et la piété du passé. La pensée
 a habituelle des fondateurs de la science, invisible, mais
 4! présente à son enseignement, lui confère un surcroît de
-‘+1
 
 vu
-APRÈS LA COMMISSION PARLEMENTAIRE \
 #
 vie et de vertu éducative. — 2 La science allant tou- 5 4
-jours s'accroissant, s'enrichissant d'acquisitions nou- es
 velles, il faut que chaque professeur comprenne que 4
 l'art d'enseigner, comme l'art d'écrire, vit de perpétuels Ke:
 sacrifices, que l'élève et surtout le maître se garde de %
@@ -5589,7 +4486,6 @@ seules le but ultime et la cause finale de toutes les à
 autres études. Il y à partout pénétration et action réciproque. L'isolement pour chaque science serait mortel ;
 
 L Alexis Bertrand
-W'
 à une science isolée, en dehors de son utilité pratique, ne
 F vaut pas une heure de peine. C'est le sentiment confus
 4 de cette vérité qui a donné cours et crédit, à toutes les
@@ -5620,9 +4516,7 @@ scientifiques et littéraires. Les lettres, par rapport aux
 sciences, ne seront donc pas considérées comme un
 simple complément: elles sont élément intégrant et
 inséparable des études et n'en peuvent pas plus être
-108 Ï ,
 
-APRÈS LA COMMISSION PARLEMENTAIRE :
 éliminées que la forme extérieure du corps ne peut se :
 séparer de son organisation interne. Entre les études | "
 scientifiques placées au centre du système, mais qu'il À
@@ -5638,13 +4532,11 @@ lité, instruments des relations internationales, véhicules
 des sciences, seront le fond des études littéraires.
 Outre la connaissance approfondie de la langue et de
 la littérature françaises, l'élève sera tenu d'apprendre
-deux langues au moins : soit deux langues modernes,
 soit une langue moderne et le latin.
 
 XI. Chaque élève résoudra individuellement et à ses
 risques et périls la question du latin. Les études secondaires ont théoriquement la même valeur, que l'élève
 ait choisi le latin ou qu'il lui ait préféré une seconde
-langue moderne.
 
 XII. Que le latin ne soit nullement délaissé, qu'il soit
 au contraire mieux étudié, étant choisi librement, nous
@@ -5654,11 +4546,6 @@ pour les professeurs qui deviendra persuasion pour les
 familles, que le latin est la clef non seulement du fran-
 çais, mais de presque toutes les langues modernes,
 
-VII
-
-BU + UE AR : MU 4
-
-ï
 | Alexis Bertrand
 | dont il abrège et féconde l'étude; le désir soigneu-
 
@@ -5682,7 +4569,6 @@ a+ qu'on ne sait une langue vivante que quand on est
 $ capable d'écrire et de parler en cette langue, tâche
 î difficile, tandis qu'on sait assez une langue morte
 ; quand on est capable de comprendre et de goûter ses
-ù grands écrivains.
 # XIII. Pour appuyer d'un trait décisif ce caractère
 3 de l'Université qui demeuré le Conservatoire du latin;
 pour marquer fortement que l'Université n'entend pas
@@ -5693,7 +4579,6 @@ l renoncer pour elle-même à ses propres traditions, nul
 : pas besoin de savoir ce qu'on n'est pas obligé d'en-
 | 110 é
 
-APRÈS LA COMMISSION PARLEMENTAIRE AU
 seigner soi-même : le professeur qui ne sait que ce qu'il - “
 enseigne n'est qu'un médiocre professeur. Admettre
 qu'on puisse enseigner le français ou les langues vi- À
@@ -5723,9 +4608,6 @@ histoire du commerce et de l'industrie. Ces indications
 sommaires n'ont d'autre portée que de signifier clai-
 
  rement que l'enseignement de l'histoire et de la géographie doit être synthétique et scientifique.
-III
-
-" Alexis Bertrand
 
 XV. Pendant toute la durée des études secondaires,
 
@@ -5770,7 +4652,6 @@ aujourd'hui, encouragée par cet examen; licence voulait dire permission d'ensei
 
 112 1
 
-APRÈS LA COMMISSION PARLEMENTAIRE
 permission d'ignorer la philosophie ; pour la licence
 littéraire, permission d'ignorer à la fois l'histoire et la
 philosophie, etc. ; 2° Les diverses agrégations prendront un caractère plus strictement professionnel. Elles
@@ -5786,71 +4667,19 @@ des classes préparatoires qui ont un caractère primaire
 et des classes de préparation aux grandes Écoles, qui
 sont en dehors du cycle des études secondaires.
 
-LP ENTER e RUES ES PU ETC NCMENT LENS Neu E CRETE
-(EPS CRE Le : F4 LL KA ER RAS,
 Nnr aa ce Fe ! % : ne PA AIT EE
-LRO “4 $ TN nt)
-LCI SRE UM JRMRNER
-11 4 DR i VrE “ee
-NAT) SEP ‘1:44 | a ie |
-de AA 4 k RUN TLC 2252
 FER L NORD se FER
 FAN à ie l'US AIERES
 | PRISES RP D 4 :
-« a Éhty FREE
-PEN SO 1 60 © “5
-"PAIE TENRS Le 4224
-ART - ; Fr NE
-EU MACL NS A" |
-LÉNVTE CRE |
-M), ; Ni
-QE: SR 2e ARCS À Dr.
-FAT. Phrires ï RTE:
-2: UE À Pr à:
-MALE Fe
-le: 41 } ;” + FRE Ne.
-4288 ET. es °]
-
-En HL'x Us ES a Fee A Mure | PARTONS tel FT
-3.‘ ST RER F4 M2 tr
-Sri | LR
-pi 112
-_ L'ORGANISATION RATIONNELLE
-\ “LYS EN
-& UNIVERSITES POPULAIRES F0
-; 4 Fe k » vi
-Le ; 10e KS
 
 A, 2 CRAN TS EEE SUR paie Re +} Eee Li L DURS : !
-EN MARS QE GP Part Na ARE ENT « à
-LRU TASER TT 1 *: ER OTEE FERREN RE SES USER AC: LS
 tr ke L k LEUR TO ORRNRRR FA TR EE
-MS ee à FÉES CENT
 Communication au congrès de la Li fr der:
-i E (ia ALES
 te ne l'Enseignement. (XXII° congrès national, tenu à Lyon.
-SN TO SENS F FSC
-Re di LEE
 du 25 au 28 septembre 1902) FAR
-OEM ts | CA
-114, VOLE PE.
-RER ed : ATRE
-à d' LIST MAR US. (6.
-RAC ELN AREA
-CRE Cat LAS
-EE HA * L 39 # Per >
-Pr LA A OU:
-NN EL L v. Ca R
-"28 Pb TS: :
-Rte js : Fos. per
-68 ent |
-+ UT PRES t NOR |
 
-TROISIÈME PARTIE
 L'organisation rationnelle des Universités
-populaires (1)
 
-Quarante années d'expérimentation pédagoique, tel
 pourrait être le titre de cette brève étude de l'enseignement supérieur municipal que le nouveau maire de Lyon,
 M. le docteur V. Augagneur, a organisé dès le lendemain
 de son élection. C'est une Université populaire officielle,
@@ -5867,11 +4696,6 @@ services et sa popularité n'ont fait que s'accroître, je
 
 (1) Communication au congrès de la Ligue française de l'Enseignement. (XXII: congrès national, tenu à Lyon du 25 au 28 septembre 1902)
 
-117 VILS NS
-
-1 ‘ .
-REX | Alexis Bertrand
-
 Li resterai toujours personnellement reconnaissant au
 1 maire de Lyon, dont le suffrage universel vient de
 + renouveler le mandat, et à la municipalité lyonnaise, de
@@ -5882,9 +4706,7 @@ fl # soustrayait pas totalement notre Lycée, partiellement
 il nos Écoles primaires supérieures à la juridiction munira ‘ cipale, une réforme analogue les aurait déjà mis en
 ‘4 harmonie avec les données certaines de la science
 1 Û moderne et les légitimes revendications de la démo- ,
-s 4 cratie.
 
-PA
 L : De ce paradoxe, un enseignement à la fois supérieur
 ‘4 et populaire, en prenant ces deux mots dans la plénitude
 de leur sens et de leur force, il a fallu bien des essais ï
@@ -5902,7 +4724,6 @@ qi par le mode d'exposition plus oratoire que scientifique,
 1. Tel de ces cours a laissé de vivaces souvenirs chez les
 L auditeurs, par exemple le cours de géographie de
 
-L'ORGANISATION RATIONNELLE DES U. P. ‘4
 Berlioux ; tel autre s'est survécu, condensé dans un (2
 livre de valeur, Nos devoirs et nos droits, de Ferraz. Le ts
 talent des professeurs faisait presque oublier le défaut 4
@@ -5937,10 +4758,6 @@ organisés, puisque chaque professeur choisissait son de
 sujet au gré de ses préférences, selon son goût particu- 1%
 lier et ses études personnelles, du moins c'étaient des Le
 
-119 #
-
-à Me ;
-Alexis Bertrand
 : cours, une suite de leçons se rapportant à un même
 £ sujet. Que dire des conférences et de leur bigarrure
 invraisemblable ? Je me souviens d'une semaine ainsi
@@ -5970,7 +4787,6 @@ publique, M. Léon Bourgeois parla d'un cours de sociologie à M. l'adjoint Lavi
 publique, et ce cours fut fondé l'année même; ce fut le
 centre de gravité de l'organisation nouvelle. La substi120 x $
 
-L'ORGANISATION RATIONNELLE DES U. P.
 tution de la traction mécanique à la traction animale et ;
 l'établissement de nombreuses usines électriques décida
 l'adjoint Clavel, un ferme défenseur des cours, quoique
@@ -5983,7 +4799,6 @@ en exceptant toutefois le samedi, réservé aux confé-
 rences isolées, qui se survécurent ainsi partiellement.
 Voilà donc les cours rétablis : d'idée maîtresse et directrice, pas la moindre trace: il restait à faire de l'ordre
 avec ce désordre, à prononcer sur ce chaos un énergique et efficace : « Que la lumière soit ! »
-II
 
 Il fallait avoir une bonne fois la claire vision du but
 à atteindre; les moyens s'offriraient d'eux-mêmes et par
@@ -5996,10 +4811,6 @@ comme le club, ou de convertir, comme le sermon ? De
 vulgariser les connaissances utiles aux arts et métiers,
 comme l'enseignement professionnel? Dans ces trois
 
-: 121
-
-:
-EC Alexis Bertrand
 ! alternatives, il est bien inutile de se donner l'air d'in5 nover, on n'aboutira sûrement qu'au double emploi et
 À à la superfétation.
 ÿ Mais au peuple, tel que nous l'ont fait l'enseignement
@@ -6036,7 +4847,6 @@ dénature en le brisant. Il nous faut donc tout d'abord
 | 122
 |
 
-L'ORGANISATION RATIONNELLE DES U. P. ; '
 est-il capable de ce grand œuvre. Il en est une qui a 4
 la prétention justifiée, semble-t-il, de se conformer : 4
 1° à l'ordre historique de l'évolution des sciences; 2° à pe
@@ -6054,7 +4864,6 @@ des étapes par où tous les esprits, s'ils en sont capables, doivent également
 de vous conduire aux sciences supérieures en vous
 dispensant entièrement des sciences inférieures qui les
 préparent et les soutiennent, défiez-vous de lui, c'est un
-charlatan.
 Tout le monde connaît aujourd'hui cette classification : les sciences de l'étendue nous donnent la mathé-
 matique et l'astronomie; les sciences de la matière, la
 physique et la chimie; la vie organique est l'objet de
@@ -6068,7 +4877,6 @@ est accessible à un auditoire populaire, ce sera l'affaire
 de nos professeurs. Chacun d'eux devra mériter, toute
 proportion gardée, un peu de l'éloge qu'on a fait de
 
-Alexis Bertrand j
 Montesquieu : il abrégeait tout, parce qu'il voyait tout.
 > Choisissez-les surtout très savants, afin qu'ils ne soient
 point tentés de faire parade de leur science. Je définis
@@ -6097,8 +4905,6 @@ par Comte. Ajoutons que nulle science n'est plus propre
 scientifique et le sentiment non moins important de la
 continuité et de l'efficacité de l'effort humain dans la
 124 4
-
-L'ORGANISATION RATIONNELLE DES U. P.
 
 conquête du vrai. Elle a en outre l'incontestable mérite |
 d'avoir la première chassé de l'univers les interventions |
@@ -6131,7 +4937,6 @@ sujets traités sont eux-mêmes très généraux, mais très
 précis dans leur généralité même : une année, les transformations de la matière, l'année suivante, l'air et l'eau.
 Les menus faits soutiennent l'intérêt, les grandes géné-
 
-Alexis Bertrand ' |
 ralisations élargissent la pensée : la physique et la |
 chimie ainsi enseignées deviennent le plus fécond et
 le plus philosophique des enseignements.
@@ -6157,16 +4962,11 @@ constituent la série animale. La zoologie nous fait
 assister à l'évolution ascendante de la vie et nous révèle ;
 ces premiers rudiments de solidarité et de sociabilité
 où l'on sent déjà l'approche et le voisinage de l'homme
-« animal social ».
 
 N'est-ce pas aussi la meilleure préparation, linitiation nécessaire à l'enseignement de la sociologie ?
 De ce cours, je ne dirai rien, et pour cause (j'en suis 4
 chargé), sinon qu'il faudrait, pour qu'il fat dénué d'in- 1
 térêt et de large utilité, une ignorance du sujet, une
-
-126 F k
-
-L'ORGANISATION RATIONNELLE DES U. P.
 
 absence de méthode ou une indigence de talent vrai- |
 semblablement introuvables. Qu'il me soit permis seulement de noter un trait significatif : mon cours de
@@ -6199,8 +4999,6 @@ autres de quatre ou cinq mois. Ainsi l'histoire de l'art
 et l'histoire des religions sont respectivement traitées
 en demi-cours. Cette remarque est d'ordre pratique,
 
-d Li tas
-Alexis Bertrand |
 car ces enseignements eussent aisément donné lieu à
 des cours entiers. Celle qui suit est d'ordre théorique
 et a plus de portée que l'exigence d'une ingénieuse
@@ -6222,16 +5020,13 @@ Voltaire ou Victor Hugo, ne craignez pas qu'il limite
 son exposition aux formes littéraires, à l'évolution des |
 F genres, aux révolutions du goût : c'est l'esprit d'une F
 époque, l'âme d'une civilisation, c'est un fragment d'humanité, dont il montre dans son auteur l'ineffaçableet
-éclatant reflet.
 On en peut dire autant de l'histoire de l'art : une
 œuvre d'art est, en effet, un signe révélateur de la vie
 intime d'un homme ou d'une race, un témoin ou un
 symbole des aspirations d'un peuple ou d'un siècle.
 Rien de plus expressif que ce signe, de plus éloquent
 que ce témoin; partant, rien de plus intéressant que
-128 !
 
-L'ORGANISATION RATIONNELLE DES U. P.
 l'analyse historique et esthétique d'un temple grec,
 d'une cathédrale gothique, d'un siècle d'art à Venise,
 quand elle est présentée avec la science impeccable i
@@ -6248,8 +5043,6 @@ comme un fait divin,'mais comme un phénomène tout
 psychologique, même purement verbal, en tout cas simplement humain, est pour les auditeurs une vraie révé-
 lation, destruction infaillible des révélations. (1)
 
-IV
-
 Si le vieux Bacon a dit vrai, si pour faire une bonne
 expérience il faut la varier, l'étendre, la renverser, nul
 ne contestera la valeur démonstrative de l'expérience
@@ -6263,10 +5056,6 @@ cours et le nom des professeurs chargés des parties d'enseignement, quatre de l
 peuvent changer, mais le plan général est invariable et le public le
 reconnaît toujours.
 
-Tao
-
-À $ #
-; Alexis Bertrand |
 | suspendue, reprise pendant quarante ans. Étendre
 l l'expérience : on l'a essayée successivement sur tous
 les publics et sur toutes les matières enseignables,
@@ -6297,10 +5086,7 @@ empiriques, il est tout heureux de voir succéder une
 organisation rationnelle, peut-être parce qu'il sent
 d'instinct ou comprend clairement qu'à partir de ce
 | jour on ne le réduit plus, si j'ose dire, à la portion
-à 130 ï
 
-te LE / ' à
-L'ORGANISATION RATIONNELLE DES U. P. 10
 congrue et qu'en fait descience, on socialise résolument *}
 le patrimoine entier de l'esprit humain. Le même au- à
 diteur ne suivra pas tous les cours : n'importe; il sait cÙ
@@ -6362,10 +5148,7 @@ tâtonnements et d'empirisme. Serait-il présomptueux
 de leur proposer un plan d'enseignement préparé et
 éprouvé? Il répond parfaitement à l'idée d'Université
 puisqu'il a pour caractère d'être non pas encyclopédique, mais ce qui est le contraire, intégral : j'ai
-132 ‘
 
-5 à
-L'ORGANISATION RATIONNELLE DES U. P. n:
 cent fois répété qu'en se proposant d'enseigner Le tout à
 on s'interdit par là même de tout enseigner. IL a toute ;
 la souplesse et toute la consistance qu'on peut désirer :
@@ -6395,9 +5178,7 @@ notions positives. Justement, la nature a voulu que le
 vieillard fût aussi avide de se raconter que le jeune
 homme est ardent à s'épancher. « Dans une société
 supérieure à la nôtre et telle qu'elle sera un jour, l'en133 !
-VIII
 
-c Alexis Bertrand
 À seignement intermittent sera, je n'en fais pas doute, un
 a puissant moyen d'action. On saura profiter de ces puis4 sances diverses, de l'élan du jeune homme, du recueil-
 $ lement du vieillard, de la flamme de l'un, de la lumière
@@ -6413,64 +5194,16 @@ donner un exemple définitif ou un modèle immuable, |
 ; pensée qui a pris corps et dont on peut dire, comme de
 | toutes les grandes pensées, qu'elle vient du cœur, d'un
 ' amour sincère de la démocratie.
-FA
-K
 
-A 6 SPACE INR 5 LAS TE MOTTE
-+ LE Les F 1 #: (1 3 . 4 1 L Re - CRE CFE
-Xe: CRE LA ë 398 PSE
-12 AN, PRE Je À EAN
-NT" JE #7
 ÈS wa je des
-4 , PA 0 5 ne d' Va
-Fe Jr” FA
-IRIS ETS HE NACRE
-ct
-Ë CHEN
-4, F TR
 | +TÉ F0
-, . | LNORA
-0 “Hit
-SC TR LA à pe?
-HA. 7
-6 MP
-: Éd
-\ RER
-ja : n “ FN
-“ee
-FR ‘ 3. F4
 
-AR NE MRC MON MIAT LCR à EMI ZONRI APS Liebe
-NN AE Fr AS EUPINOS HR A RENE à
-1. A PRET RTS PEN RS RS nr ur US ©
-(TNT t * "es Ab Cl EL: Ar TA
-fr Re UE STE TROT ER KL TITRES STRESS CAT
-AU Sn te . FN TEURE TRES Qt Prat
-SE Re 4" TRES
-RUE RE EAGES , ; É ve SEE
-LES à D
 et A CO ; z “ee Ale, 2
-Rene, g * à
-3 ARC RE
 #4 LS NES g. LME
 ATEN CR ne
-+ STE : + ; x
-: 1 RANRTE : $ È L D 1
-SE PAR : Se UV ÉLEMR 54
-- LR OT “ %Æ US SANTE
-D. | M
-Ki: 2 UN ES FL RAT
 FAUNE le LENS
-57e STE ALES ë à pou
-LES 20 ‘43 ES
-FN PEAU, ES
-“AIRE < s We ‘à
-22 F0 pal RE |
-= NE , s Sc AS, NPAIQUEES
 MP à ‘ À ds Tete je ‘VO
 RAR ER Ti tree LUN Le L'h1 Jret. PIERRE
-
-ANNEXES
 
 A l'endroit des pièces justificatives, je donne ici un petit
 tableau qu'un directeur d'École primaire supérieure a bien
@@ -6502,13 +5235,10 @@ présentement aucune conclusion, premièrement, parce qu'il
 est incomplet; et, deuxièmement, parce que nul n'est plus
 convaineu que moi de la vanité des programmes, du mensonge de leurs rubriques.
 
-(a. À VIII.
-
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement. |
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions à
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année p
@@ -6531,7 +5261,6 @@ l'abonnement recommandé est de vingt-cinq francs
 : mandé sont empaquetés à part et recommandés à la Rs
 poste ; la recommandation postale, comportant une 5 4
 transmission de signature, garantit le destinataire
-contre certains abus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit j
@@ -6541,37 +5270,18 @@ les vingt cahiers de la cinquième série complète. ‘+
 
 A partir du premier janvier qui suit l'achèvement Î
 
-LICE SF AO. 1 due TR LPUFM 220
 TER EE ht ET de, ESA 4 $ ft AN à
-Fe RUE 3 } 20 CDS ” ÿ 4 VE
-SC ARR M | 2 LÉ SRRERR
-N'a. LT ; [a Ne
-44 Ÿ S al RUE
-FPE k * REE à 5 Fu
-APT. : , L' 2 EST
-Dr Sr - brie ti
-M 1
-SR a à a AS
-+, "A *; *. K " + 5 k
-PSC 4 + S. à 428 %
-FE 4 HE ref 4 n ' 41000
-FUI LAS 3 & 1:10
-CIRE | 4 A 1 U CL ‘4 2. È
-à ; VO,
 VE EME SF ris NE ae t14
 
-LI Fr \ VE
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués ; ainsi à dater du premier
 janvier 1905 la cinquième série complète, s'il en reste, à
-se vendra quarante-sept francs.
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de huit
 heures à onze heures et de une heure à sept heures.
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures. )
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 cinquième arrondissement, toute la correspondance
@@ -6594,159 +5304,60 @@ en toute propriété littéraire, sans aucune réserve, et à
 sans autre signification ni contrat.
 
 ARR ee 0 Se Le IM ANT RARES de FAT LR ACATANENNNETet IE
-RE LL - on LES AN ; k à
-Pr OETA fr FAUNE PRRRNE £ “te Dee FUN
-CERN Rec Ro Re / Fe {RS £
-2 FM AS REA È TES
-ve we RS He K
 gi pi NEO ne:
-À # ‘ Pr 5
-; | ie
-è REUT
-k PRE:
-! Li mes.
-* 1100
-FT
-4 AN =
-$ M
 | KES
-; 4
-pe a
-L \ pl “4
-ra
-à Fo Ai ds v
 #23 ait
-DA + QU LE RE
-7 OT N {RTS à FN
 
 RER AMENER NPC SR AA E TE TS ne
 ME ! à LATE DE Pet Fe A Op Fc
-pere su", ÿ 1 4 à
-FRE %) CT PEN
-MC: 4 | “
-+ SES ait,
-À Pr KT
-MA Lo x ‘ ce 1
-: LA RME CSRS TER |
-PESRRYE “ "+
-A LME x bé » AE OR s1È »20}
-‘T4 Les #
 de SRE te
-+ LRO . PA ,
-TE RES LE
-F ‘A Et, 5 5 te
-HÉSSRRE RUE
-RES
-‘S0rEe x ï à
-e t 1% |
-ÿ ie ca ;
-Et e. |
-EX : : 52
-Es J + A
 
 \A jh, a 41 RAA ITS ee De À APT j AU FAT if ; TE EU à OU
-5 Se ANNEES NAS LS ANA DA ob aan
-È RUE ST
-TRY DÉS
-TABLE DE CE CAHIER A) 2
-PAGES FR SA
 Notre catalogue analytique sommaire. . . . .. Il As É
 Du même auteur, en vente à la librairie des ‘te
-SIC RE LUE TRANDERRS TIR ARE ETES ARE RUES FRS art VE à CRE
 CHARLES PÉGUY. — Pour la rentrée. . . . . . . IX "RES
-Catalogue analytique som- it per
 IMGiRE. ne te ei nt EX ECS NES
 ALEXxIS BERTRAND. — L'égalité devant l'instruc- SONT
 tion; — crise de l'ensei- FC
-gnement ; È “5
 La gratuité dans l'enseignement secon- HR
-= Ÿ 4,008
-daire; 1
 Première partie. — La gratuité dans l'enseigne- E 148
-TER AUD ON ARE IORT ARR ER ARE } : ACT
 Discours prononcé devant la Commission de re.
 l'enseignement du Congrès des républicains PA + x
 radicaux et radicaux-socialistes, le 11 octobre EX ve
-1902. : AND
-ERNST ARS AR NRA Le CAC E RUN RU 23 LE LE
-145 es Lu
 
-A UE ON R
 deuxième cahier de la sixième série
 _  L'Enseignement intégral et les Humanités
-ÿ à mn scientifiques ; ;
-4 CA! } '
 | Deuxième partie. — L'Enseignement intégral et
-Fee | &
-À - 00 les Humanités scientifiques. . . . . . . . . . 55
 de
 : GRR Déposition devant la Commission d'enquête -
-SLA P q
 AR parlementaire sur l'Enseignement secondaire,
-à NRA compte rendu sténographique officiel, séance
 TEA du 22 mars 1899; où inclus un tableau des ?
-6 fi? quatre années; classes; conférences;
 | 1 RE RAR le re te SNS
 a (11H ; où inclus, à la fin, les dix-huit propositions ;
-434 { L . . . : 242
 ‘. “10 L'organisation rationnelle des Universités
-En populaires:
-1 ne 1 +
-+ en . , « « .
 : NN Troisième partie. — L'organisation rationnelle
 \ UOTE des Universités populaires.) 27.100 WENORIErr
 | UN Communication au congrès de la Ligue fran-
 | | S'AR çaise de l'Enseignement, vingt-deuxième conAU 72; n » = =
 Es grès national, tenu à Lyon du 25 au 28 sep3 pue < tembre 1902;
-A:
-2 (ce
-ER.
-M Annexes 2 V0 M Na ee
 1 où inclus un tableau de la correspondance
 Dur: partielle entre l'enseignement des Lycées et
 20 celui des Ecoles primaires supérieures.
 
-D 0 Prius
 Nos cahiers sont CE AAA CAROL AS AE Mia ee ME rio | 10
-Pl M FOUTU (MA Ua | a of]
 LENS QUE AE AO AR ER A A LS ur
 CuarLes PÉGUY. — Avis important de l'adminis- PAR MOUS Là
 ; ; tration, portant sur les frais ME 1 A “HS
 d'envoi de notre catalogue Ne
-analytique sommaire. . . 149 Re
-à 1 NE
-NS ein |
-KA ; } D CHU #
-AMEN
-TP
-à ÿ po ÿe
 
 Nous avons donné le bon à tirer après corrections Fr
 pour trois mille exemplaires de ce deuxième cahier le
-mardi 11 octobre 1904. ‘44
 : Le Gérant : CHARLES PÉGUY Beau
-COARONE
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués. DA En pi
 IMPRIMERIE DE SURESNES (Ep. GRENIER, directeur), 9, rue du Pont. — 9339 À fi Us Far
-UE *'HE R
 
-ACHATS PEARL DONS
-UNS AL:
-Huy eg 10
-RE SES } ML
 À de HORS: ai
-Ru, -
-rue À
-‘4780 2
-ne € ; RC
-ie : ; # | à
-pose “4 |
-Met à
 pre il
-HA k ‘4 f
-pt ‘ 15 à
-TS Ki
-PE x A
 
 Avis important de l'administration. — Bourgeois nous à
 rend compte que nous sommes en litige avec l'administration des postes ; l'administration des postes n'a pas t K.
@@ -6775,7 +5386,6 @@ est présentement inutile que je les donne ici; ce ne sont -
 pas nos abonnés qui jugeront, mais les hiérarchies |
 administratives et au besoin judiciaires successivement
 saisies ; nous tiendrons nos abonnés au courant de cette :
-aventure imprévue.
 
 En attendant, et jusqu'à ce qu'une juridiction administrative ou judiciaire nous ait rendu justice, nous
 sommes, provisoirement, contraints de payer le tarif
@@ -6783,7 +5393,6 @@ sommes, provisoirement, contraints de payer le tarif
 A deuxième cahier de la sixième série £
 id: plein pour les exemplaires isolés du catalogue analy- 1
 j tique sommaire que nous envoyons directement de nos Re. 14
-A bureaux. DS
 j Pour que notre budget ordinaire ne soitpoint détraqué he
 | par cet accroissement imprévu de dépenses, nous de- ‘4
 T2 mandons à tous ceux de nos abonnés qui nous deman- 4
@@ -6797,88 +5406,22 @@ ni timbres, une somme de soixante centimes par exem- T4
 | et le prix commercial, n'ont évidemment pas à se P:
 à préoccuper des frais d'envoi; le prix marqué, enlibrairie, 14
 Re est justement établi de manière à incorporer les frais ni.
-d'envoi. 4
-? *@
 ù Le gérant 4
 | Charles Péguy 4
 | #2
-4/0 ;
-he | :
 
-RARE €: PE TTr FRA Ba NL ET VUS 0 v708e + ds He 48, r
 PAT EN te rh AR to re cr ur CMNTR 7 FEU hi LE ES ACIER
 ci NEC AE AS Poe (er Eee RUE LOT 2e RTL DÉTIENT RTS Ne NAN
-(NS TERRE RS EE AO AO A EI DR AE FUURE MONT MONT TEEN
-A LATE LU: Fi CAIA TE EMEUeR pr 'j) jé RG AT:
-AE in | 47 + SAUTER
-PRE Dir 20" an TM
-dde \ 10 1! AIR TRE
-ne Am A 5 N EE
-(NS An LEA PUS
-FA (3 , LUE FSU TS
-5% À 7 jé Fa
-STE , 1} 1 Dr
-FA ÿ} { 1 te)
-17 à U MEL
-Pat a j it « CHAN
-Ÿ 4 7 nor.
-VrSE Pa Ne 4
-ÿ LT HAT
 | À H x. Eu}
-ss \ LS
-4 k RTE
-1 À IX VON
-RAT
-l | /PEUNE
-SATA
-À « 4 {41
-ha À À
-FA À
-He. 0
 is tra (NATH | Vi} WE de f\
 
-A SR tn
-ARRETE. Cf ER EAU CTP VAR UNE CAN DEA
-; A PENTIER DE PR en TA AT AURA ACT ETES AM ERTS CHE TE
 +55) RE RATES ENS TEST SENTE Pas TRS Re te s
-FENRASE RAT UN SSSR RASE MO TNS 2 NES SERRES
 Me: RAR A à on - « KR + "aa ARTIRESAS RE
-HNATRG EN ns re. 6 VA TRES
-ASE BIS YU TAN
-Fee RE 1" PE RDA
-a PA ‘ F3 DOME SATO
-ny TR RE 1} CANNES *
-Rs È FAABTEURS
-5 CAS) 114 pe JA
-1, SGEN OR « ‘#38
-TERRA 272
-FRE É ; We
-Fr Cr Œr,
-RES L'ÉAR i ‘ 4
-n SE (12 VA
-LITE at
-SHC À : Fe
-RUE FA
-RURALE ge HART :
-4, She : TS
 
-; PR RUN ES He L TU TV #4 MR QE 3
 PR MR AA Ne cine ne ASE TUE ARE ARMES
-TR DE à LA AR HEAR 3 FACE RSS
-MATE RCE SEE " ACER rs
-NA NE et VS Tr F | 2200 En
-FU® PET : ; SENS ;
 re DS ON s L is 4 + Ne RE
 PER É LA A "1 pe hi Ve:
-: EVANS PAT LUS
-LAS CPE ; Men |
 |; STAPS ‘1,60
-fre Li 1 NES
-A SERRE Ÿ è 2 CCE
-nr MES CES CNT 3 | TRE
-0 UE
-Le A BUT
-CL ORNE UE res 1e, OPA
 
 : Il est impossible de suivre honnêtement le mouve- A
 : ment littéraire, le mouvement d'art, le mouvement : 0
@@ -6890,7 +5433,6 @@ il suffit d'envoyer un mandat de trois francs cinquante %
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
 de la deuxième, de la troisième et de la quatrième
-série. É
 : Pour savoir ce qui a paru dans les cinq premières
 séries des cahiers, 1900-1904, envoyer un mandat de
 &e cinq francs à M. André Bourgeois, méme adresse; on
@@ -6911,61 +5453,12 @@ sixième série reçoit donc automatiquement le premier
 deuxième cahier de la sixième série ; un cahier jaune de
 xxxy1 + 152 pages; nous le vendons deux francs.
 
-TROISIÈME CAHIER DE LA SIXIÈME SÉRIE
-Ps
-PA ISRAËL ZANGWILL
-K
-\
-Chad Gadyal!
-TRADUIT DE L'ANGLAIS
-PAR MATHILDE SALOMON
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-MARTEL FEV T detre ee RUE TE CU NUE
-5e a + +: LT
-gi * “ Le À NE æ
-3 “HIER
-e
-
-; 5
-
-: - : * EE
-4 - UE L
-ré ë el
-4 ï è
-LE .
-
-; d
-
-4 ; Le
-
-à 250)
-É ; hi
-E Dr
-‘#3 M x
-3 br Ce
-
-MN AR SL RACE RUE AN te EE
-À 2 4 À L'As RE DT AT O a ü 4 a ieh Fr De
-PL Tea: at ah PSE RER MEUTE die so} HET PRET
 ” x! #4 [ea Ke AMEN EIRE Des Le Me TAC M: Pie bé As Rss. dt UE
-it HE NES fais 2 . | IN TM AU
 : je * VE oran
-Me © + F0
-Fe : \ ; LEO UER
-4 AUX?
-tai i ) "1 à
-k à MU.
-« î : 7] 4
-+ ds
-CAD Ads
-a Rx:
 
-& LA
-di
 Nous avons publié dans nos éditions antérieures et L
 dans nos cinq premières séries, 1900-1904,unsigrand
 nombre de cahiers de lettres, — nouvelles, romans,
@@ -6985,7 +5478,6 @@ cinq premières séries des cahiers, il suffit d'envoyer
 un mandat de cinq francs à M. André Bourgeois, |
 administrateur des cahiers, 8, rue de la Sorbonne, rezde-chaussée, Paris, cinquième arrondissement ; on
 
-CATALOGUE ANALYTIQUE SOMMAIRE 5e
 recevra en retour le catalogue analytique sommaire, 3
 1900-1904, de nos cinq premières séries. 1
 Ce catalogue a été justement établi pour donner, 5
@@ -7003,85 +5495,22 @@ série; toute personne qui s'abonne à la sixième sérte
 le reçoit, par le fait même de son abonnement, en tête
 de la série; nous l'envoyons contre un mandat de
 cinq francs à toute personne qui nous en fait la k
-demande. :
 
-PT LENS NN RD EC MED
-; SRE Vans nt LENS PREUT RM EUR ? DAS {
-f À MONS (: MERE Y BL NAME TE de 1. HT
-HS (TSH QE } 4 Le ‘ « JA FAR 11 î F4 vi (Se ros
 ne INR
-A te ; . : ‘4
-EU 4 \ à dr,
-[RER “a
-4: Ù a
-17 "À 1 À
-we Re ; 208
-+6 RE pa'
-ARE ds 4 x ki 0
-che UE ! À e
-SR F0 e ERP. :
-:\ AR 1
-k GE As) j
-F TA ; À ke
-CAP ” y;
-EF “in Et:
-HE À ÿ L + or:
-Li CRE F
 Des hi
-We170s , ‘44
-à pi |
 
-il (l k à |. \
-EMTRTA A v* NUE UT ET / ININ RON TAN
-v Ve 20 Gi U #1} JE 5) PANEN
-128 fe: GRAS CR ARC)
-: FE re + SANTIAERS
 AIN UN AE Xe eo si AUTRE
 pee LA ra { avé A ie 14
-A Cd Ga: NRAVI
-Aie K RAT :
-i ï À 4) ROME
-Li SU
-1 RE L'ONU
-‘ \ th
-s7 : ER
-ne | 4 A0
-Ne è ME
 
-NAT, TO0R AI RENNES LD 4 Fe 1 ER DNA E RPR ENTRE ENS tn LUE c
-a sx D vaine ‘4 Ÿ ? pe ik RULES he RAT 0)
-STAR REA dl lur
-: KR qu,
-L'ORRE À
-M at \ e ; 44
-JF VENIR * de.
-LAS AIRE Di:
-Hd ï 10
-k 4
-DM re ÿ :
-(REUE (fi 1 ‘ N:
-NUEATANE fL
 ta ir ve 4 à
-QE PAT s 3 ‘ÿ
-ie 4 ; 3
-M4 ë à
 ae ï ne |
 # M À ê |
-5 L HR É
-He Û : VIEN
-sie “ Dr di:
-Dean 2:36 }
-s: f Î }
 
-font ANT Cain En ns PRIE LV Mae "ARE
-CHARLES PÉGUY
-ZANGWIEL
 Le cahier que l'on va lire nous a été apporté tel que
 par le traducteur, mademoiselle Mathilde Salomon,
 directrice du Collège Sévigné, 10, rue de Condé, Paris
 sixième ; le nom du traducteur et sa qualité recommandaient amplement le cahier; le nom de l'auteur <
 n'est point connu encore du public français ; il m'était
-totalement inconnu.
 Quand nous ne connaissons pas le nom d'un auteur,
 nous commençons par nous méfier ; et par nous affoler; c
 nous nous inquiétons; nous Ccourons aux renseignements; nous nous trouvons ignorants; nous sommes
@@ -7091,20 +5520,14 @@ aux manuels, ou à ces hommes qui sont eux-mêmes des À
 dictionnaires et des manuels, ambulants; et nous ne
 retrouvons la paix de l'âme qu'après que nous avons
 établi de l'auteur, dans le plus grand détail, une bonne -
-biographie cataloguée analytique sommaire.
 C'est là une idée moderne; c'est là une méthode toute
 contemporaine, toute récente ; elle ne peut nous paraître ancienne, et acquise, et déjà traditionnelle, à
 nous normaliens et universitaires du temps présent, que
 parce que nous avons contracté la mauvaise habitude,
-vIL
-
-{ Charles Péguy .
 
 scolaire, de ne pas considérer un assez vaste espace de |
 
 #4 temps quand nous réfléchissons sur l'histoire de l'hu- À
-
-4 manité.
 
 $ Beaucoup plus que nous ne le voulons, beaucoup plus f
 
@@ -7118,8 +5541,6 @@ $ Beaucoup plus que nous ne le voulons, beaucoup plus f
 tous plus ou moins obscurément que l'humanité com- |
 
 mence au monde moderne, que l'intelligence de l'huma- |
-
-à nité commence aux méthodes modernes; heureux ,
 
 % quand nous ne croyons pas, avec tous les laïques, avec
 
@@ -7163,9 +5584,6 @@ par le chemin le plus long possible au point de connais-
 
 # sance ayant quelque rapport au texte qui est le plus
 
-à ; VUI ‘
-
-: ZANGWILL Ua 11
 éloigné du texte, alors nous obtenons le couronnement ai
 même de la méthode scientifique, nous fabriquons un 4
 chef-d'œuvre de l'esprit moderne ; et tant plus le point À. ‘|
@@ -7173,7 +5591,6 @@ de départ du commencement du commencement du tra- 1
 vail sera éloigné, si possible étranger, tant plus l'ache- 00
 minement sera venu de loin, et bizarre ; — de tant plus 1
 nous serons des scientifiques, des historiens, et des sa- "
-vants modernes. d
 
 Avons-nous à étudier, nous proposons-nous d'étudier : 100
 La Fontaine; au lieu de commencer par la première il 1
@@ -7199,9 +5616,6 @@ sentiment religieux au dix-septième siècle et dans La ‘4
 Fontaine ; de la faculté poétique; enfin troisième partie, ÿ
 l'art, qui ne se confond ni avec les deux premières 3
 ensemble, ni avec chacune des deux premières sépa- à]
-
-IX a. je
-r
 
 | ; Charles Péguy
 
@@ -7244,16 +5658,13 @@ pour parler exactement, tout cela serait fort bien si
 nous étions Dieu ; car si nous voulons évaluer les qualités, les capacités, les amplitudes que de telles méthodes
 nous demandent pour nous conduire à l'acquisition de
 quelque connaissance, nous reconnaissons immédiatement queles qualités, capacités, amplitudes attribuées
-aux anciens dieux parles peuples mythologues seraient
 absolument insuffisantes aujourd'hui pour constituer le
 
-ZANGWILL ei
 véritable historien, l'homme scientifique, — vir scien- '
 tificus, — le savant moderne; il ne suffit pas que le 0
 savant moderne soit un dieu; il faut qu'il soit Dieu; 1
 puisque l'on veut commencer par la série indéfinie, 4
 infinie du détail; puisque l'on veut partir d'un point M
-indéfiniment, infiniment éloigné, étranger, puisqu'avant À
 d'arriver au texte même on veut parcourir un chemin Ei
 indéfini, infini, pour épuiser tout cet indéfini, tout cet | il
 infini, l'infinité de Dieu même est requise, d'un Dieu |
@@ -7282,10 +5693,6 @@ nemment le sens du parfait, du fini, de la limite,
 l'avaient en particulier dans l'ordre de l'humanité ; h:
 ajouterai-je que ces humanités étaient généralement
 
-XI
-{
-
-4 Charles Péguy
 k | intelligentes, et qu'elles ne vivaient point sur des contra- |
 W riétés intérieures sans les avoir enregistrées; dans ces
 L humanités l'homme était reconnu limité aux limites
@@ -7317,10 +5724,7 @@ de l'humanité; ajouterai-je que généralement ces |
 humanités étaient à la fois intelligentes et profondes, et
 que la constatation même des contrariétés intérieures, |
 de la grandeur et de la misère, faisait peut-être le prin- |
-ï
-À
 
-ZANGWILL | ‘
 cipal objet de leurs méditations; dans ces humanités ‘à
 l'homme était reconnu créature et limité aux limites ‘4
 humaines ; l'historien demeurait un homme. ‘ee
@@ -7353,10 +5757,6 @@ populaire de nos démagogues anticatholiques ; ils ont 1e
 eux-mêmes absorbé beaucoup plus de bons Dieux, et ah
 de mauvais Dieux, qu'ils ne le croient. 44
 En face des dieux de l'Olympe, en face d'un Dieu ft
-XUI 1
-
-te
-Charles Péguy
 
 | Tout, en face du Dieu chrétien, l'historien était un
 
@@ -7389,16 +5789,10 @@ J tier, par méthode, nous n'avons ni vanité ni orgueil, ni ;
 présomption, ni cupidité de la domination; l'invention
 des méthodes historiques modernes a été proprement
 l'introduction de la modestie dans le domaine histo- î
-; rique.
 d C'est exactement là que réside la grande erreur |
 
 | moderne.
 Les prêtres aussi étaient de petits abbés et de petits
-XIV '
-
-AL à,
-
-ZANGWILL è ) 1
 
 curés; de modestes et d'honnêtes ecclésiastiques ; ils à
 n'occupaient aucune situation dans l'État, car les petits nel
@@ -7417,7 +5811,6 @@ devant sa table de travail, » nous dit le journaliste, L)
 « au milieu de ses livres et de ses carnets, M. Gabriel à
 Séailles me disait, en une causerie aimable et sympa- À
 thique, les mêmes choses à peu près dans les mêmes À
-termes. » À!
 |
 
 — Aimable, dans ces graves questions ; enfin. F
@@ -7430,16 +5823,12 @@ Jésus-Christ, qui avait des disciples ; M. Séailles forme t
 des élèves, tout simplement. j
 « M. Gabriel Séailles aime ces entretiens familiers où ÿ
 se plaît sa bonne humeur charmante. {
-a?
 
-: . : Charles Péguy CV
 À « Et vous la connaïssez bien, amis des universités LE
 # populaires; car le maître qui consacra tant de belles 13
 14 pages à la « biographie psychologique » d'ErnestRenan |
 L et qui, par ses discours et ses écrits, nous a fait mieux |
 \ connaître les pinceaux enchanteurs de l'immortel Wat- }
-+ teau, »..
-À f
 \ On dit Le pinceau, d'habitude; il est vrai qu'il en !
 avait plusieurs. 1
 ; « descend pour vous de sa chaire trop haute, à
@@ -7456,7 +5845,6 @@ FA bristol, le regard riant à travers le double verre du lor-
 ( gnon bien posé sur le nez fort, le front large, la barbe *
 cascadante grisonnante au menton, et les pieds chau- ;
 | dement fourrés dans les pantoufles, M. Gabriel Séailles
-poursuivit : » À
 Je suis assuré qu'un tel ton, de telles expressions |
 désobligent beaucoup M. Gabriel Séailles ; je n'insis- j
 terai point sur ce que la description détaillée de toutes É.
@@ -7464,10 +5852,8 @@ terai point sur ce que la description détaillée de toutes É.
 | A , .
 bligeant quand on s'installe pour traiter d'un débat qui
 divise douloureusement les consciences; je suis assuré
-; XVI
 
 Ne M x Eau 1 " j Ya L ton F Û Fat
-6 ZANGWILL rs
 que M. Séaïîlles sent beaucoup plus vivement que moi ‘43
 combien ces expressions sont inconvénientes ; pour moi R:
 elles me paraissent tout simplement insupportables; (4
@@ -7489,7 +5875,6 @@ contrefaçons des cérémonies religieuses; et pour la a
 commémoration de Zola, pour l'anniversaire de sa ‘4 4
 mort, ne nous a-t-on pas fait une semaine sainte, une 4
 neuvaine; sentiment religieux et naissance de la déma- , n
-gogie. ‘4
 Les prêtres aussi, les petits prêtres, en ce sens, n'oc- “ À
 cupaient aucune situation dans l'État, n'avaient aucun 3 fl
 pouvoir dans l'État; les prêtres aussi étaient assez mal- |
@@ -7500,15 +5885,11 @@ quand ils ne seront plus des fonctionnaires mal rétri- - 3 À
 bués d'Etat, ils seront des fonctionnaires mal rétribués 4 ;
 d'Église; et nul ne les entendra; ils poursuivent modes- Re Ho
 tement leur prédication de la vie future; par situation, @l
-XVII 184 # }
-M
 
-Charles Péguy
 4 par métier, par humilité chrétienne ils n'ont ni vanité
 | ni orgueil, ni présomption ni cupidité de la domina- A
 Î tion ; un curé de campagne est un petit seigneur; l'exer-
 | cice du ministère ecclésiastique est essentiellement un À
-k exercice d'humilité chrétienne.
 ! Je ne dis pas que cela soit vrai des prêtres; je dis
 que, autant et dans le sens que cela est vrai des
 ; universitaires, si l'on veut, autant et dans le même
@@ -7532,11 +5913,7 @@ passé. — Il entendait railler ainsi, doucement, les historiens antérieurs. �
 
 il, c'était quand le professeur d'histoire, assis devant
 son bureau, refaisait à loisir toutes les opérations du
-XVI ;
 
-A a
-:
-ZANGWILL k
 monde; il parlait de tout; il écrivait de tout; il était L;
 ministre, et refaisait l'administration de Colbert, qui, ï
 entre nous, n'était pas fort; il était général ou amiral, {
@@ -7564,9 +5941,7 @@ et peut-être a-t-il raison; peut-être les historiens, personnellement et comme
 modestes; mais je me demande justement si tout l'ancien orgueil ne s'est pas réfugié dans la méthode,
 agrandi, porté à la limite, à l'infini; je demande s'il
 n'est pas vrai que les méthodes scientifiques modernes,
-XIX
 
-* 4 Charles Péguy
 ; long ». Ce chemin-là lui a toujours plus agréé que les
 Et autres. Volontiers il citerait Platon et remonterait au
 
@@ -7586,10 +5961,8 @@ l tort. Laissez-nous prendre comme lui le chemin des |
 | ï L comme il faisait à l'endroit de ses bêtes, alléguer l'his-
 £ toire et le reste. C'est le plus long si vous voulez : au
 | demeurant, c'est peut-être le plus court.
-Î I.
 | « Me voici donc à l'aise, libre de rechercher toutes
 H les causes qui ont pu former mon personnage et sa
-poésie; »...
 | Toutes les causes qui ont pu former son personnage et
 | sa poésie, quelle prodigieuse audace métaphysique
 sous les modestes espèces d'un programme littéraire;
@@ -7599,9 +5972,6 @@ mais pour aujourd'hui passons.
 | J'en ai fait un l'an dernier par la mer et le Rhin, pour
 revenir par la Champagne. » …
 
-XXII
-
-ZANGWILL ;
 #
 Pour revenir est admirable, dans sa docte naïveté. IL 4
 fallait commencer par y aller. #
@@ -7631,9 +6001,6 @@ ici mon exemplaire, et je cite au long, pour que l'on ]
 voie, pour que l'on mesure, sur cet exemple éminent, ;
 toute la longueur du circuit : « Au nord, l'Océan bat
 les falaises blanchâtres ou noie les terres plates: les
-XXIU
-
-à } Charles Péguy
 
 " 5 coups de ce bélier monotone qui heurte obstinément la
 | k grève, l'entassement de ces eaux stériles qui assiégent
@@ -7662,7 +6029,6 @@ LA rassemble autour de lui les plis dorés de son manteau.
 FRS Des deux côtés les versants qui le nourrissent se re1 dressent avec un aspect énergique ou austère; les pins
 | XXIV
 
-ZANGWILL : " 48
 couvrent les sommets de leurs draperies silencieuses, 5e
 et descendent par bandes jusqu'au fond des gorges; le “4 ;
 puissant élan qui les dresse, leur roide attitude donne :5e8
@@ -7697,10 +6063,6 @@ l'éclair passager d'un ruisseau à travers les lentilles F.
 d'eau qui Pobstruent, la teinte délicate dont l'éloigne- Nix
 ment revêt quelque bois écarté, voilà les beautés de 1
 
-xXÉV ï f
-NE à
-
-is Charles Péguy
 de i9 notre paysage; il paraît plat aux yeux qui se sont
 ( reposés sur la noble architecture des montagnes mérif é dionales, ou qui se sont nourris de la verdure surabon-
 à é dante et de la végétation héroïque du nord; les grandes
@@ -7729,10 +6091,7 @@ en toute saison, vivre dehors sans trop pâtir ; les im-
 sens ou concentrer la sensibilité ; l'homme n'est point
 alourdi ni exalté; pour sentir, il n'a pas besoin de violentes secousses et il n'est pas propre aux grandes
 émotions. Tout est moyen ici, tempéré, plutôt tourné
-XXVI ;
 
-ZANGWILL ë
-s KL
 vers la délicatesse que vers la force. La nature qui est g:
 clémente n'est point prodigue; elle n'empâte pas ses a
 nourrissons d'une abondance brutale ; ils mangent so- À
@@ -7747,7 +6106,6 @@ grossier, pour porter dans leur cerveau la stupeur ou
 la violence; on les voit à la porte de leur chaumière,
 qui mangent debout un peu de pain et leur soupe ; leur LES
 vin ne met dans leurs têtes que la vivacité et la belle “
-humeur. <
 « Plus on les regarde, plus on trouve que leurs gestes,
 les formes de leurs visages annoncent une race à part.
 Il y a un mois, en Flandre, surtout en Hollande, ce
@@ -7765,10 +6123,7 @@ hommes, la vaillante pousse des corps superbes annon-
 mais l'intelligence brille, non pas la verve pétulante et
 la gaieté bavarde des méridionaux, mais l'esprit leste, k
 juste, avisé, malin, prompt à l'ironie, qui trouve son
-XXVII
 
-a Charles Péguy
-: |
 A. amusement dans les mécomptes d'autrui. Ces bourHs Ë geois, sur le pas de leur porte, clignent de l'œil derrière
 ‘à } vous; ces apprentis derrière l'établise montrent du doigt
 É votre ridicule et vont gloser. On n'entre jamais icidans
@@ -7820,11 +6175,6 @@ F soins de plusieurs anatomistes et physiologistes éminents, |
 
 L MM. Brown-Sequard, Béclard, Broca, Follin, Verneuil. — Note de
 
-À Taine. c |
-
-XXVIU $
-
-ZANGWILL à
 causes ; un cheval de Hollande est aussi peu semblable
 à un cheval de Provence qu'un homme d'Amsterdam à de
 un homme de Marseille. Je crois même que l'homme, :
@@ -7852,14 +6202,11 @@ les objets et la poésie du dehors deviennent les images w
 et la poésie du dedans. Il ne faut pas trop se hasarder Ÿ
 en conjectures, mais enfin c'est parce qu'il y a une
 France, ce me semble, qu'il y a eu un La Fontaine et des k
-Français. »
 
 Mon Dieu oui; seulement il y a une France pour tout
 le monde, la France luit pour tout le monde, et tous les
 Français, s'ils seront toujours français, ne sont pas
-FAX
 
-pe Charles Péguy
 } La Fontaine ; je n'insiste pas sur toutes ces difficultés,
 & Ré sur toutes ces contrariétés ; je m'en tiens pour aujourJE: d'hui à la forme même du connaissement ; la méthode
 \. ne se révèle pas dans toutes les œuvres modernes
@@ -7878,7 +6225,6 @@ F tour du pays, il commence l'autre tour, afin de ne point
 | k tomber par mégarde au cœur de son sujet, il commence
 4 le tour le plus cher à tout historien bien né, le tour des
 Ÿ livres et des bibliothèques ; avec ce tour commencera le
-me, paragraphe deux.
 « En tous cas, il y a un moyen de s'assurer de ce carac-
 Ê tère que nous prêtons à la race. La première bibliothèque
 Ë va vous montrer s'il est en effet primitif et naturel. II
@@ -7893,12 +6239,6 @@ Sans s'en douter vaut un certain prix. « Quelle oppo-
 Ê sition entre notre littérature du douzième siècle et celle
 À des nations voisines. » :
 
-F
-
-ë XXX :
-
-set,
-ZANGWILL . 4
 J'arrète ici pour aujourd'hui la citation ; la méthode | È
 est bien ce que nous avons dit; elle est doublement ce 7
 que nous avons dit; quand par malheur l'historien #3
@@ -7929,9 +6269,7 @@ auteur; cela fera autant de chapitres ; nous nous garderons surtout de nous occu
 pitre de l'art et de l'artiste; cela ferait un chapitre
 de perdu ; et si d'aventure, de male aventure nous parvenons à parcourir toutes les indéfinités, toutes les
 infinités de détail de tous ces chapitres, de toutes ces
-XXXI « |
 
-Dm À Charles Péguy
 É sections, il nous reste une ressource suprême, un dernier
 c. E moyen de nous rattraper; ayant étudié séparément
 ! l'homme, l'écrivain, l'artiste, et ainsi de suite, nous
@@ -7947,7 +6285,6 @@ NU aurons fini, si jamais nous finissons, le diable soit du
 ] bonhomme s'il peut seulement ramasser ses morceaux ;
 . que de les rassembler, il ne faut point qu'il y songe:
 l'auteur a fait un jeu de patience où nulle patience ne
-Fi 2e se retrouverait.
 
 Le bonhomme avait prévu tout cela ; il en avait prévu
 bien d'autres; il avait, croyons-le, nommément prévu
@@ -7967,9 +6304,7 @@ l les entendre, les interpréter, les représenter; on me
 É Mes chers enfants, dit-il, (à ses fils il parloit),
 
 k Voyez si vous romprez ces dards liés ensemble.
-Di) XXXII
 
-ZANGWILL À
 Je vous expliquerai le nœud qui les assemble. F
 L'aîné les ayant pris, et fait tous ses efforts, ;
 Les rendit, en disant : Je le donne aux plus forts. Le
@@ -7999,12 +6334,8 @@ travaux; mais ce que je dis, si vous assistez à une i
 soutenance de thèse et que vous entendiez bien, que #
 vous interprétiez les critiques du jury, c'est qu'elles je
 reviennent généralement à cela ; il faut avoir épuisé à
-XXXIII b. 6
-ul
 
 il
-
-47 Charles Péguy
 
 si l'infinité du détail pour arriver au sujet; et dans le
 ; sujet même il faut, par multipartition, avoir épuisé une
@@ -8017,8 +6348,6 @@ i détaillé, comme un circuit lui-même, à faire en défi-
 (4 soit pas le sujet.
 
 3 Avant de commencer, une infinité du détail par cirs culation ; au moment de commencer, une infinité d'infif nité du détail par multipartition.
-
-;
 
 Épuiser l'indéfinité, l'infinité du détail dans la connaissance de tout le réel, c'est la haute, c'est la divine,
 1 c'est la folle ambition, et qu'on le veuille ou non c'est
@@ -8037,9 +6366,7 @@ surhumaine, orgueilleuse, mystérieuse, agnosticiste ; et
 au contraire, un jour que nous essaierons d'éprouver
 plus profondément nos méthodes, qu'en histoire c'est
 la méthode discursive qui est surhumaine, orgueilleuse,
-XXXIV
 
-ZANGWILL ‘x
 mystérieuse, agnosticiste ; et que c'est la méthode {
 intuitive qui est humaine, modeste, claire et distincte à
 autant que nous le pouvons, scientifique. \
@@ -8072,8 +6399,6 @@ rien ayant conçu sa science selon une méthode qui ;
 requiert de lui exactement les qualités d'un Dieu. j
 Telle est bien la pensée de derrière la tête de tous :
 ceux qui ont fondé la science historique moderne, k
-‘
-à
 
 L Charles Péguy
 f introduit les méthodes historiques modernes, c'est-
@@ -8085,7 +6410,6 @@ F toute son histoire, ayant donc parcouru toute une
 PA: ayant donc littéralement épuisé tout un univers indéfini,
 Va infini, de détail; une humanité Dieu, ayant acquis,
 5 englobé toute connaissance dans l'univers de sa totale,
-F4 mémoire.
 F1 Une humanité devenue Dieu par la totale infinité de
 sa connaissance, par l'amplitude infinie de sa mémoire
 totale, cette idée est partout dans Renan; elle fut vrai-
@@ -8107,7 +6431,6 @@ limitation je trouve dans la préface même, écrite au
 ï sciences philologiques, ont fait d'immenses conquêtes
 |
 
-ZANGWILL à &
 depuis que je les embrassai avec tant d'amour, il y a 4
 quarante ans. Mais on en voit le bout. Dans un siècle, 4
 l'humanité saura à peu près ce qu'elle peut savoir sur 4
@@ -8136,12 +6459,9 @@ mentions plus ou moins honorables dans l'histoire du 1
 progrès sont à peu près déterminés. Et cette singulière À
 et inquiétante affirmation, ce jugement implacable,
 hautain, désabusé : Le propre de ces études est, aussitôt
-XXXVII
 
 | RUES Pc Lo NL |
-! Charles Péguy
 qu'elles ont atteint leur perfection relative, de com-
-. mencer à se démolir.
 Quel historien contemporain, quel petit-fils, quel
 ? petit-neveu du vieil homme ne reculera de saisissement
 | devant de telles affirmations, devant de telles présompf tions, devant cet admirable et tranquille orgueil, devant
@@ -8170,12 +6490,10 @@ reconnaissent pas toujours les grands ancêtres ; ce ne
 reçu de rudes avertissements ; pour deux raisons, l'une |
 recouvrant l'autre, nul aujourd'hui n'avancerait que Ë
 toute l'histoire du monde est sur le point d'aboutir, nul k
-XXX VIN |
 
 | ZANGWILL
 
 | aujourd'hui, de tous les historiens, ne souscrirait aux
-anticipations aventurées, aux grandes ambitions pleines
 de Renan.
 
 Premièrement pour des raisons d'histoire même; il
@@ -8208,7 +6526,6 @@ b. l'histoire tout court, on a tant surélevé l'histoire que l'on
 k. a quelque peu oublié que ce mot tout seul ne veut rien
 
 ||
-Charles Péguy .
 
 d dire, qu'il y faut un complément de détermination, que
 | l'histoire n'est rien si elle n'est pas l'histoire de quelque
@@ -8236,14 +6553,9 @@ FE l'on n'a jamais rien fait de mieux, dans le genre,
 14 que l'on ne fera jamais rien de mieux, qu'il est inutile
 ï d'insister, que le monde moderne est le dernier des
 \ mondes, que l'homme et quela nature a dit son dernier
-; | mot.
 lé Incroyable naïveté savante, orgueil enfantin des
 13 doctes et des avertis; l'humanité a presque toujours
 | cru qu'elle venait justement de dire son dernier mot;
-TS à
-
-CS
-ZANGWILL
 
 l'humanité a toujours pensé qu'elle était la dernière et
 la meilleure humanité, qu'elle avait atteint sa forme,
@@ -8273,11 +6585,7 @@ allait se figer dans la béatitude éternelle d'une humanité Dieu.
 Si je voulais chercher dans l'Avenir de la science
 tout cet orgueil, toute cette assurance et cette naïve
 
-XLI
-
 1. nl T F FRANS EE FES NET ss A tu
-k tt Charles Péguy {
-1e :
 4! certitude, ilme faudrait citer tout {Avenir de la science,
 
 | et une aussi énorme citation m'attirerait encore des
@@ -8325,10 +6633,6 @@ L: qui nous donne vraiment le fond et l'origine de sa
 j soit malheureusement presque toujours qu'une maturité
 persévérante réalisée, brusquement révélée dans un
 
-1: XLIL
-
-ZANGWILL
-
 éclair de jeunesse ; Renan lui-même en a beaucoup plus
 vécu, encore beaucoup plus qu'il ne l'a dit dans sa pré-
 face ; et le vieux Pourana de l'auteur est vraiment
@@ -8360,12 +6664,8 @@ passe les passages où ce Théoctiste rêve de la Terreur
 intellectuelle ; nous y reviendrons quelque jour; car
 ils sont extrêmement importants, et graves; et je
 
-XLIII "
-
-4 Charles Péguy
 1 m'en tiens à ceux où il rêve de la Déification intellec-
 | tuelle :
-‘4
 E « Je vous ai dit que l'ordre d'idées où je metiens en ce
 (1 moment ne se rapporte qu'imparfaitement à la planète
 14 Terre, et qu'il faut entendre de pareilles spéculations
@@ -8394,9 +6694,7 @@ nature l'a laissée. La botanique fait vivre artificiellement
 | actions lentes, les sélections laborieuses, l'éducation
 | compliquée et la conservation pénible d'un pareil être
 | contre nature. Une fabrique d'Ases, un Asg'aard, pourra
-Î XLIV ÿ
 
-ZANGWILL
 être reconstitué au centre de l'Asie, et, si l'on répugne
 à ces sortes de mythes, que l'on veuille bien remarquer
 le procédé qu'emploient les fourmis et les abeilles pour
@@ -8426,9 +6724,6 @@ Ces rêves, ces imaginations nous paraissent aujourd'hui monstrueuses, peut-êtr
 toutes parts nous avons reçu de la réalité de rudes
 
 avertissements ; nul aujourd'hui, de tous les historiens
-XLV
-
-É Charles Pégur
 
 fl : modernes, et de tous les savants, neles'endosserait ; et
 1l 4 non seulement il n'est personne aujourd'hui qui ne les
@@ -8461,13 +6756,9 @@ C'est alors peut-être que l'homme s'apercevrait que
 { « L'homme ne s'ar4 rête guère à cette pensée qu'un pas, un mouvement
 
 de lui écrase des myriades d'animalcules. Maïs, je le
-à 6 XLVI ;
 
-1" PS si . » 4
-ZANGWILL
 répète, la supériorité intellectuelle entraîne la supériorité religieuse; ces futurs maîtres, nous devons les
 rêver comme des incarnations du bien et du vrai; il y
-aurait joie à se subordonner à eux. »
 
 J'arrête ici ma citation, parce qu'il est très long de
 copier, et parce qu'ici, comme dans l'Avenir de la
@@ -8478,7 +6769,6 @@ je recommence : ‘
 « L'univers serait ainsi consommé en un seul être
 organisé, dans l'infini duquel se résumeraient des dé-
 cillions de décillions de vies, passées et présentes à la
-fois. »
 
 Or il est évident qu'un tel résumé ne pourrait s'obtenir que par une totalisation de la mémoire universelle, donc par une globalisation, par un achèvement,
 et par un arrêt de l'histoire.
@@ -8525,10 +6815,8 @@ s# qui s'est haussé en Dieu, qui a culminé en Dieu, qui
 | Ï if incarné en historien.
 
 « 4 « Déjà nous participons à la vie de l'univers (vie
-LE
 
 1 Voire il faut que je me résolve à découper ici mon
-R: exemplaire :
 
 | « (vie
 | “ bien imparfaite encore) par la morale, la science et
@@ -8539,7 +6827,6 @@ R: exemplaire :
 1 à quand il y aura un être actuellement parfait. Un tel
 ; j être n'existe pas encore, puisque nous n'avons que
 
-ZANGWILL à | F
 trois façons de constater l'existence d'un être, le voir, x
 entendre parler de lui, voir son action, et qu'un être (4
 comme celui dont nous parlons n'est connu d'aucune ,
@@ -8566,7 +6853,6 @@ faisons autant. La nature, à tous les degrés, a pour
 soin unique d'obtenir un résultat supérieur par le sacri- "
 fice d'individualités inférieures. Est-ce qu'un général,
 un chef d'État tient compte des pauvres gens qu'il fait
-tuer ?
 
 « Un seul être résumant toute la jouissance de
 l'univers, l'infinité des êtres particuliers joyeux d'y
@@ -8574,11 +6860,7 @@ contribuer, il n'y a là de contradiction que pour notre
 individualisme superficiel. Le monde n'est qu'une série
 de sacrifices humains ; on les adoucirait par la joie et
 
-XLIX
-À
-
 | es
-I] ; Charles Péguy ;
 |: la résignation. Les compagnons d'Alexandre vécurent
 f k d'Alexandre, jouirent d'Alexandre. Il y a des états
 he: sociaux où le peuple jouit des plaisirs de ses nobles, se
@@ -8610,11 +6892,7 @@ ph sacrifié a sa petite place dans l'œuvre éternelle, ce que
 4 des guirlandes et une cérémonie.
 fi « Le grand nombre doit penser et jouir par procu-
 ï ration. L'idée du moyen âge, de gens priant pour ceux
-H
 
-'
-
-È e ZANGWILL :
 qui n'ont pas le temps de prier, est très-vraie. La masse
 travaille ; quelques-uns remplissent pour elle les hautes
 fonctions de la vie; voilà l'humanité. Le résultat du
@@ -8646,12 +6924,8 @@ jouissent. Il meurt volontiers pour la gloire d'un chef,
 c'est-à-dire pour quelque chose où il n'a aucun profit
 direct. Je parle du vrai peuple, de la masse inconsciente, livrée à ses instincts de race, à qui la réflexion
 
-LI
-
-1 Charles Péguy
 És n'a pas encore appris que la plus grande sottise qu'on
 puisse commettre est de se faire tuer pour quoi que ce
-$ soit.
 4 « Parfois, je conçois ainsi Dieu comme la grande fête
 4 intérieure de l'univers, comme la vaste conscience où
 ÿ tout se réfléchit et se répercute. Chaque classe de la
@@ -8677,9 +6951,7 @@ des voluptés du voluptueux, des débauches du dé-
 f bauché, de la mondanité du mondain, de la sainteté de
 l'homme vertueux, des méditations du savant, de l'austérité de l'ascète. Par une sorte de sympathie douce, je |
 | me figure que je suis leur conscience. Les découvertes
-LIL s
 
-ZANGWILL
 du savant sont mon bien; les triomphes de l'ambitieux
 me sont une fête. Je serais fâché que quelque chose
 manquât au monde; car j'ai conscience de tout ce qu'il
@@ -8690,8 +6962,6 @@ tout ce qui a été beau, aimable, juste, noble me fait
 comme un paradis. Je défie avec cela le malheur de
 m'atteindre; je porte avec moi le parterre charmant de
 la variété de mes pensées.
-
-PHILALÈTHE.
 
 « Vous avez cherché à montrer sous quelles formes on
 peut rêver une conscience de l'univers plus avancée
@@ -8710,8 +6980,6 @@ totale; nous y voyons dès les premiers mots qu'elle ne
 l'obtient point par une réelle résurrection des individus
 réels, qu'elle ne l'obtient point proprement par ce que
 
-AR LIT c.
-
 || 1
 | É Charles Péguy
 L° nous nommons tous la résurrection des morts, mais
@@ -8720,7 +6988,6 @@ L° nous nommons tous la résurrection des morts, mais
 | 1174 reconstitution historique, par une totalisation de l'his-
 || 24 toire, par la résurrection des historiens, par le règne et
 1 par l'éternité de l'Historien.
-(| à THÉOCTISTE.
 | is « Dites mieux, la résurrection des individus. Sur ce
 1 “S point, je m'écarte des conceptions, merveilleuses du
 | 108 reste de poésie et d'idéal, où s'éleva le génie grec.
@@ -8742,7 +7009,6 @@ Do. passé, pour en réparer les innombrables iniquités. Dieu
 # existera de plus en plus; plus il existera, plus il sera
 | 14 juste. Il le sera pleinement le jour où quiconque aura
 
-ZANGWILL |
 travaillé pour l'œuvre divine sentira l'œuvre divine accomplie, et verra la part qu'il y a eue. Alors l'éternelle
 inégalité des êtres sera scellée pour jamais. Celui qui
 n'a fait aucun sacrifice au bien, au vrai retrouvera ce
@@ -8775,8 +7041,6 @@ Chéphrem dont nous parlions tout à l'heureexiste encore
 par la pierre qu'il a posée; ainsi sera-t-il de l'homme
 qui aura collaboré à l'œuvre d'éternité. Nous vivons en
 
-LV
-
 | à Charles Péguy
 
 (1 4 proportion de la part que nous avons prise à l'édification
@@ -8789,18 +7053,11 @@ Ex serons ce qu'est la coquille géologique dans le bloc des-
 #4 tiné à bâtir un temple. Ce pauvretrilobite dont la trace
 2 est écrite dans l'épaisseur de nos murs y vit encore un
 | +5 peu ; il fait encore un peu partie de notre maison.
-h : EUDOXE. £
 4 « Votre immortalité n'est qu'apparente; elle ne va
 F pas au delà de l'éternité de l'action; elle n'implique pas
 à l'éternité de la personne. Jésus aujourd'hui agit bien
 © plus que quand il était un Galiléen obscur; mais il ne
 h vit plus.
-
-À
-
-hr. THÉOCTISTE.
-
-ra
 
 Fe « Il vit encore. Sa personne subsiste et est même aughi mentée. L'homme vit où il agit. Cette vie nous est plus
 & chère que la vie du corps, puisque nous sacrifions vo-
@@ -8814,9 +7071,7 @@ jf fuient. Tamerlan est plus célèbre que tel juste ignoré.
 (É fluence vraie est l'influence cachée; non que l'opinion
 À définitive de l'histoire soit en somme très fausse; mais
 4 elle pèche tout à fait par la proportion. Tel innomé a
-}
 
-ZANGWILL
 été peut-être plus grand qu'Alexandre; tel cœur de
 femme qui n'a dit mot de sa vie a mieux senti que le
 poëte le plus harmonieux. — Je parle de la vie par
@@ -8834,12 +7089,8 @@ il n'a pas plus d'inconvénient que l'emploi de toute autre
 figure ou métaphore. Le langage devient impossible, si
 l'on pousse à l'excès le purisme à cet égard.
 
-EUDOXE.
-
 « C'est entendu; mais vous ne nous avez pas expliqué
 comment on peut parler de réelle existence sans conscience.
-
-THÉOCTISTE. ,
 
 « La conscience est peut-être une forme secondaire
 de l'existence. Un tel mot n'a plus de sens quand on
@@ -8848,11 +7099,7 @@ suppose une limitation, une opposition du moi et du
 non-moi, qui est la négation même de l'infini. Ce qui
 est éternel, c'est l'idée. La matière est chose toute relative ; elle n'est pas réellement ce qui est; elle est la cou-
 
-LVII
-
-MAN 0 s A OT URL PR OSSI RE
 | ë
-4 Charles Péguy
 | à
 |A leur qui sert à peindre, le marbre qui sert à sculpter, :
 l 2 la laine qui sert à broder. La possibilité de faire exister
@@ -8877,14 +7124,11 @@ payé ; mais je désire que cela serve à quelque chose :
 } ‘ que quelqu'un le sût; je veux l'estime de Dieu, rien de
 Dé : plus; ce n'est pas exorbitant, n'est-ce pas? Reproche1 t-on au soldat mourant de s'intéresser au gain de la É
 | bataille et de désirer savoir si son chef est content de
-1 lui?
 | l « La sensation cesse avec l'organe qui la produit,
 | l'effet disparaît avec la cause. Le cerveau se décomposant, nulle conscience dans le sens ordinaire du mot ne
 f peut persister. Mais la vie de l'homme dans le tout, la
 À place qu'il y tient, sa part à la conscience générale,
 | voilà ce qui n'a aucun lien avec un organisme, voilà ce
-LL $ LVI :
-ÿ 12
 
 | ZANGWILL |
 _ qui est éternel. La conscience a un rapport avec :
@@ -8896,7 +7140,6 @@ qui y sert.
 « Consolons-nous, pauvres victimes; un Dieu se fait
 
 avec nos pleurs.
-EUTHYPHRON.
 
 « Les savants positivistes auront toujours une difficulté capitale contre ce que vous venez de dire, et aussi
 contre plusieurs des vues que nous ont développées
@@ -8906,9 +7149,6 @@ l'idéal des volontés, des actes qu'on n'a remarqués jusqu'ici que chez des ê
 la manière du dernier zoophyte. Où sont ses nerfs? Où
 est son cerveau? Or, sans nerfs ni cerveau, ou pour
 mieux dire sans matière organisée, on n'a jamais constaté jusqu'ici de conscience ni de sentiment à un degré
-quelconque.
-
-THÉOCTISTE. >
 
 « Votre objection, décisive contre l'existence des
 àmes séparées et des anges, n'est pas décisive contre
@@ -8917,9 +7157,6 @@ impulsion instinctive serait quelque chose de sui
 generis, un principe premier comme le mouvement luimême. Ce n'est jamais que par métaphore que nous
 avons pu présenter l'univers comme un animal. Animal
 
-LIX
-
-LÀ * Charles Péguy
 É. suppose espèce, pluralité d'individus; il y aurait donc
 4 plusieurs univers! Mais que la masse infinie produise
 é une sorte d'exsudation générale, à laquelle, faute de
@@ -8929,7 +7166,6 @@ LÀ * Charles Péguy
 5 nature se réduit au mouvement. Oui certes; mais le
 ee mouvement a une cause et un but. La cause c'est l'idéal;
 ‘a le but, c'est la conscience. à :
-“2 \ PHILALÈTHE.
 
 i * « Je me dis souvent que si le but du monde était une
 ‘1 course aussi haletante que vous le supposez vers la
@@ -8937,7 +7173,6 @@ i * « Je me dis souvent que si le but du monde était une
 à lants, pas de joie, pas de printemps. Tout cela suppose
 ‘3 un Dieu moins affairé que vous ne croyez, un Dieu déjà
 ‘à arrivé, qui s'amuse et jouit d'un état acquis définiti4 vement.
-À EUDOXE.
 : « J'irai plus loin que vous, et je réclamerai au centre ,
 | de l'univers un immotum quid, un lieu des idées, comme |
 4 le voulait Malebranche. On revient toujours aux formules
@@ -8948,9 +7183,7 @@ Dieu sera et Dieu est. En tant que réalité, il sera ; en !
 tant qu'idéal, il est. Deus est simul in esse et in fieri.
 Cela seul peut se développer qui est déjà. Comment, |
 d'ailleurs, imaginer un développement ayant pour point |
-1 Le
 
-ZANGWILL
 de départ le néant? L'abiîme initial fût resté à tout S
 jamais en repos, si le Père éternel ne l'eût fécondé. A
 côté du jieri, il faut donc conserver l'esse; à côté du
@@ -8967,8 +7200,6 @@ d'expliquer comment l'équilibre s'est rompu. Si le tireur
 dont nous parlions hier tire depuis l'éternité, il a déjà
 dû atteindre le but.
 
-EUTHYPHRON.
-
 « Nous touchons ici aux antinomies de Kant, à ces
 goufires de l'esprit humain, où l'on est ballotté d'une
 contradiction à une autre. Arrivé là, on doit s'arrêter.
@@ -8981,18 +7212,11 @@ paysage ; nous commettons la même erreur que celle à
 laquelle on est exposé en déchiffrant les papyrus
 d'Herculanum. Les différents feuillets se pénètrent réci-
 
-LXI
-d
-
-4 Charles Péguy
-(
 ti PA proquement, et l'on rapporte à une page des lettres qui
 F viennent de dix pages plus loin.
-ù
 de.
 | % n
 | 2 EUDOXE.
-1 2 a
 | 12 « Remercions Théoctiste de nous avoir dit tous ses
 | rêves. « C'est bien à peu près ainsi que parlent les
 | 108 prêtres; mais les mots sont différents. » Les esprits
@@ -9000,8 +7224,6 @@ F superficiels échappent seuls à l'obsession de ces proon blèmes. Ils se renf
 Hé Ces gens-là eussent dit à Colomb regardant l'horizon
 | de la mer vers l'Occident: « Pauvre fou, tu vois bien
 ‘à qu'il n'y a rien au delà. »
-'
-} PHILALÈTHE.
 3 « Dans quelques années, si nous existons et si quelque
 chose existe, nous pourrons reprendre ces questions et
 à voir en quoi se sera modifiée notre manière d'envisager
@@ -9010,17 +7232,13 @@ F l'univers. Quel dommage que nous ne puissions, comme
 il donner rendez-vous à ceux d'entre nous qui seront
 | morts, pour qu'ils viennent nous rendre compte de la
 k. réalité des choses de l'autre vie !
-‘te
 | \ EUDOXE.
-h.
 « Je crois qu'en pareille matière le témoignage des
 f morts est peu de chose. Comme dit la parabole: Neque }
 (à si quis mortuorum resurrexerit credent. En fait de
 vertu, chacun trouve la certitude en consultant son
-propre cœur. »
 | LXI
 
-ZANGWILL
 On ne me pardonnera pas une aussi longue citation;
 mais on m'en louera ; et on la portera sans doute à mon /
 actif; car c'est un plaisir toujours nouveau que de
@@ -9081,10 +7299,6 @@ que de commencer par discerner ces trois plans ; mais
 ‘à comme on en serait récompensé; comme la partie qui
 : reste est pleine et lourde ; comme la domination de
 | l'arrière-pensée est impérieuse.
-A LXIV |
-
-1 Ÿ *
-ZANGWILL
 
 Je n'ignore pas, je le répète, que la plupart de ces K
 rêves soulèvent en nous des indignations légitimes, et
@@ -9115,10 +7329,6 @@ cité aujourd'hui, tout au long, sans l'interrompre, et sans
 le troubler de commentaires, parce que s'il porte en
 même temps sur une infinité d'autres immenses questions, il porte aussi, tout entier et à plein, sur la grosse
 
-LXV
-
-: EAU S it CERN LRO RAT ent RER ERS
-(1 Charles Péguy
 À. question qui s'est soulevée devant nous; et sur cette
 H question nous ne l'avons pas interrompu, parce qu'il est
 
@@ -9127,8 +7337,6 @@ H question nous ne l'avons pas interrompu, parce qu'il est
 l: l'interprète; il est formellement un texte de métaphy-
 
 d sique, et j'irai jusqu'à dire qu'il est un texte de théo-
-
-là logie.
 
 Les textes de Taïne, et sur ces textes reportons-nous
 
@@ -9161,7 +7369,6 @@ Car c'est un avantage capital de Taïine, et que nul de
 | ses prétentions ; brutal et dur, souvent grossier, et
 | LXVI
 
-ZANGWILL
 mesurant les grandeurs les plus subtiles par des unités *
 qui ne sont point du même ordre, il a au moins les
 vertus de ses vices, les avantages de ses défauts, les
@@ -9189,10 +7396,8 @@ près aussi bien réussi; je tiens ce tour de France pour
 un symbole unique; oui c'est bien là le voyage antérieur
 que nous faisons tous, avant toute étude, avant tout
 travail, nous tous les héritiers, les tenants, la monnaie
-LXVII
 
 66 18% LE VA bte Eesti Cala 2 ER Lo
-! Charles Péguy
 | € de la pensée moderne; tous nous le faisons toujours,
 || “ ce tour de France-là ; et combien de vies perdues à faire
 d le tour des bibliothèques ; et pareillement nous devons
@@ -9223,7 +7428,6 @@ fi pleine vie, en pleine élaboration, du génie vivant; et
 | ries particulières, quelle ne sera pas la totale atteinte
 1] obtenue par la conclusion, où se ramassent et cul1 LXVIIL
 
-ZANGWILL
 minent toutes les ambitions des théories particulières ;
 je ne puis citer les théories particulières; il faudrait
 remonter de la fin du volume au commencement, il fau- :
@@ -9245,7 +7449,6 @@ que de corriger sur épreuves un texte de Renan, et se
 fait-on un devoir de corriger sur épreuves un texte de
 Taine; telle est la différence que je vois entre les héritages laissés par ces deux grands maîtres de la pensée ‘
 moderne. « J'ai voulu montrer », dit Taine en forme de
-conclusion : à
 
 « J'ai voulu montrer la formation complète d'une
 œuvre poétique et chercher par un exemple en quoi consisté le beau et comment il naît.
@@ -9255,17 +7458,13 @@ climat, du sol, des aliments, et des grands événements
 qu'elle a subis à son origine. Ce caractère l'approprie
 et la réduit à la culture d'un certain esprit comme à la
 
-LXIX d.
-
 il URI N
-By © Charles Péguy
 Ê conception d'une certaine beauté. C'est là le terrain
 À 1 national, très-bon pour certaines plantes, mais trèsD: mauvais pour d'autres, incapable de mener à bien les
 | 1 graines du pays voisin, mais capable de donner aux
 | siennes une séve exquise et une floraison parfaite,
 | lorsque le cours des siècles amène la température dont
 : 14 elles ont besoin. Ainsi sont nés La Fontaine en France
-; au dix-septième siècle, Shakspeare en Angleterre pen-
 | . dant la Renaissance, Gœthe en Allemagne de nos jours.
 À « Car le génie n'est rien qu'une puissance développée,
 4 et nulle puissance ne peut se développer tout entière, :
@@ -9289,8 +7488,6 @@ H c l'œuvre, le pays et le siècle, un grand artiste est un :
 homme public. C'est par elle qu'on peut le mesurer et
 te lui donner son rang. C'est par elle qu'il plaît à plus ou
 { moins d'hommes et que son œuvre reste vivante pen-
-
-ZANGWILL
 
 dant un temps plus ou moins long. En sorte qu'on doit
 le considérer comme le représentant et l'abrégé d'un
@@ -9322,8 +7519,6 @@ générales sans les petits faits sensibles qui les manifestent, ni les petits f
 générales qui les ont produits. Son œuvre nous tient |
 lieu des expériences personnelles et sensibles qui seules
 peuvent imprimer en notre esprit le trait précis et la
-
-EXXT
 
 | 0 ne :
 
@@ -9362,9 +7557,7 @@ te arbres immenses qui croissent autour d'elle; on l'oublie,
 k leur ombre; on la décompose plus aisément ; on la met
 4 4 mieux en expérience ; et l'on peut découvrir en elle les
 ÿ lois générales, selon lesquelles toute plante végète et se
-\! soutient. »
 
-ZANGWILL
 Je me garderai de mettre un commentaire de détail à |
 ce texte ; il faudrait écrire un volume; il faudrait mettre,
 à chacun des mots, plusieurs pages de commentaires,
@@ -9384,18 +7577,15 @@ net, que n'étaient les anticipations de Renan; ne nous
 laissons pas tromper à la modestie professorale; ne
 nous laissons d'ailleurs pas soulever à toutes les indignations qui nous montent; je sais qu'il n'y a pas un
 mot dans tout ce Taine qui aujourd'hui ne nous soulève
-d'indignation ; attribuer, limiter Racine au seul dix- ;
 septième siècle, enfermer Racine dans le siècle de
 Louis XIV, quand aujourd'hui, ayant pris toute la reculée nécessaire, nous savons qu'il estune des colonnes
 de l'humanité éternelle, quelle inintelligence et quelle
-hérésie, quelle grossièreté, quelle présomption, au fond
 quelle ignorance ; mais ni naïveté, ni indignation ; il ne
 s'agit point ici de savoir ce que vaut Taine; il ne s'agit
 point ici de son inintelligence et de son hérésie, de sa
 grossièreté, de son ignorance ; il s'agit de sa présompLXXIU
 
 | de: < ,
-4 Charles Péguy
 
 h tion ; il s'agit de savoir ce qu'il veut, ce qu'il pense
 48 avoir fait, enfin ce que nous voyons qu'ila fait, peut-être
@@ -9437,7 +7627,6 @@ fl même des phénomènes ; pareillement en histoire, si nous
 {l connaissons exactement, entièrement les conditions
 gi physiques, chimiques, naturelles, sociales qui détermi-
 
-ZANGWILL ;
 nent les peuples, les cultures, les talents, les génies,
 toutes les créations humaines, et les humanités mêmes,
 et si vraiment d'abord ces conditions extérieures, anté-
@@ -9465,12 +7654,7 @@ adversaires, de ses contradicteurs, de ses critiques
 éventuels; toute sa forme de pensée, toute sa méthode,
 tous ses goûts, tout son passé, toute sa vie de travail, C
 de mesure, de goût, de sagesse le gardaient contre de
-LXXV
 
-Î h - 4
-l
-b Charles Péguy
-LE -
 * telles exagérations; il n'a jamais aimé Les outrances, et,
 h juste distributeur, autant et plus averti sur lui-même
 il que sur les autres encore, il ne les aimait pas plus chez
@@ -9500,9 +7684,6 @@ f illustre contemporain, qu'enfin nous connaissons, dans
 | À sance audacieuse, que de constituer une lointaine <
 | : surhumanité en un Dieu tout connaissant par une totali lisation de la mémoire historique; avec Taine au conl traire, ou plutôt au delà, nous avons épuisé nettement
 | LXXVI :
-:
-
-ZANGWILL
 
 des indéfinités, des infinités, et des infinités d'infinités
 du détail dans l'ordre de la connaïissance, et de la connaissance présente ; désormais transportés dans l'ordre
@@ -9538,11 +7719,6 @@ ce que nous nommons orgueil était en lui un défi à l'infortune, à la paresse
 malheur, non une insulte à l'humilité, parce que ce que
 nous croyons être un sentiment de l'orgueil était pour
 
-LXXVII
-
-$
-M: Charles Péguy
-‘4
 1° lui le sentiment de la conscience même, du devoir le
 [oi plus sévère, de la méthode la plus stricte; et c'est pour
 4 cela que nous lui devons, à lui et non à son illustre
@@ -9573,10 +7749,7 @@ UE: puissance, les qualités; enfin l'accomplissement de
 | : dont on l'entoure, justement par ce qu'elles ont de
 minutieux, par tout le soin qu'elles exigent, peuvent si k
 bien se retourner, s'entendre en précautions prises |
-: LXX VIII É
 
-« 1
-ZANGWILL '
 pour qu'il n'arrive pas; une opération si lointaine, si ;
 délicate, si minutieuse, ne va point sans un nombre ;
 incalculable de risques; Renan, grand artiste, a évidemment compté sur la sourde impression que l'attente
@@ -9593,17 +7766,13 @@ Renan n'est point engagé au delà des convenances intellectuelles et morales ; 
 « mais ne pensez-vous pas, » dit Eudoxe:
 « Mais ne pensez-vous pas que le peuple, qui sentira
 grandir son maître, devinera le danger et se mettra en
-garde ?
-THÉOCTISTE. -
 « Assurément. Si l'ordre d'idées que nous venons de
 suivre arrive à quelque réalité, il y aura contre la
 science, surtout contre la physiologie et la chimie, des
 persécutions auprès desquelles celles de l'inquisition
 auront été modérées. La foule des simples gens devinera
 son ennemi avec un instinct profond. La science se |
-LXXIX
 
-d' « : Charles Péguy
 | réfugiera de nouveau dans les cachettes. Il pourra
 ; venir tel temps où un livre de chimie compromettra
 autant son propriétaire que le faisait un livre d'alchimie au moyen âge. Il est probable que les moments les
@@ -9635,8 +7804,6 @@ grossier; mais elle éclatera, toute évidente, le langage 1
 étant donné, pour le lecteur insidieux ; dans la préface à
 ,
 
-ZANGWILL
-
 même de ces dialogues redoutables et censémient consolateurs, de ces rêves redoutablement consolateurs, le
 sage nous met en garde contre les épouvantements :
 « Bien assis sur ces principes, livrons-nous doucement à
@@ -9661,17 +7828,12 @@ comme on dit, éminemment représentatif, c'est que
 dans sa grande honnêteté universitaire il usurpe nette- ù
 ment les fonctions de création, et qu'il usurpe ces
 fonctions pour l'humanité présente avec une brutalité
-nette.
 
 La seule garantie qu'on nous donne à présent est
 qu' « une société d'anthropologie vient de se fonder à
 Paris, par les soins de plusieurs anatomistes et physiologistes éminents »; nous qui aujourd'hui savons ce que
 c'est, dans le domaine de Fhistoire,que l'anthropologie,
 
-LXXXI
-
-ho ee Fr OR AR LU |
-Ê. ; Charles Péguy
 ‘8 et ce que c'est, dans la république des sciences, que la
 société d'anthropologie, une telle garantie nous effraye
 | plus qu'elle ne nous rassure ; c'est bien sensiblement à
@@ -9701,9 +7863,7 @@ LE Ainsi les propositions de Taine ont l'air moins audacieuses que les propositi
 fi revêtent un simple langage professoral, modeste, qu'à
 1h son insu elles nous trompent et que, nous donnant le
 1! dernier mot de la pensée moderne en tout ce qui tient è
-l LXXXIL
 
-ZANGWILL e |
 à l'histoire, elles nous dissimulent tout ce qu'elles contiennent et admettent de surhumanité.
 
 Ce dernier mot de la pensée moderne en tout ce qui
@@ -9729,13 +7889,7 @@ les pessimismes sont des arrêts comme les optimismes,
 et que c'est l'arrêt même qui nous paraît vain; qui aujourd'hui se flatterait d'arrêter l'humanité, ou dans le
 bon, ou dans le mauvais sens, pour une halte de béati-
 
-‘
-LXXXII
-'
-
 | 4
-% Charles Péguy
-A:
 .°1e tude, ou pour une halte de damnation ; l'idée que nous
 # recevons au contraire de toutes parts, du progrès et de
 4 l'éclaircissement des sciences concrètes, physiques,
@@ -9763,12 +7917,7 @@ D anciens, inattendues, nouvelles perpétueitement; que
 | sans doute il en recevra éternellement ; que l'avance- |
 ‘4 ment que nous croyons voir se dessiner revient peutEn être à n'avancer que dans l'approfondissement de cette « formule antique, à lui trouver tous les jours des sens
 (à nouveaux, des sens plus profonds; qu'il reste immen-
-; LXXXIV
-È
 
-F L
-
-ZANGWILL
 sément à faire, et encore plus immensément à connaître; que tout est immense, le savoir excepté;
 surtout qu'il faut s'attendre à tout ; que {out arrive;
 qu'il suffit d'avoir un bon estomac; que nous sommes
@@ -9797,11 +7946,6 @@ deux peuples se sont affrontés, avec un fanatisme de
 rage dont il ne faut pas dire seulement qu'il est barbare,
 qu'il fait un retour à la barbarie, mais dont il faut
 
-LXXXV
-e
-
-n. Charles Pégur
-
 ‘4 ‘avouer ceci, qu'il paraît prouver que l'humanité n'a rien
 
 M gagné peut-être, depuis le commencement des cultures,
@@ -9821,7 +7965,6 @@ courir au bout du monde, parmi nos Français mêmes, ‘
 14 quels rudes avertissements n'avons-nous pas reçus, et
 \ en quelques années ; qui prévoyait qu'en pleine France
 | toute la haine et toute la barbarie des anciennes
-Ë guerres civiles religieuses en pleine période moderne
 É. serait sur le point d'exercer les mêmes anciens ravages ;
 ‘4 derechef qui prévoyait, qui pouvait prévoir inverseik ment que les mêmes hommes, qui alors combattaient
 È l'injustice d'État, seraient exactement les mêmes qui,
@@ -9841,9 +7984,7 @@ j de crise, et de tant de crise tant d'indifférence; qui fa
 ! aujourd'hui répondrait de l'humanité, qui répondrait \
 ! d'un peuple, qui répondrait d'un homme.
 à Qui répondra de demain ; comme dit ce gigantesque |
-LXXXVI k
 
-ZANGWILL
 Hugo, si éternel toutes les fois qu'il n'essaie pas d'avoir (
 une idée à lui :
 Non, si puissant qu'on soit, non, qu'on rie ou qu'on pleure, ;
@@ -9874,12 +8015,7 @@ Et ce n'était pas la peine de tant mépriser Michelet.
 
 Les vieux eux-mêmes, Taine, Renan, les autres, quand
 ils travaillaient, oubliaient, étaient contraints d'oublier
-leurs propres enseignements ; leurs propres ambitions ;
 toutes les fois qu'un volume de Taine paraissait, c'était
-
-LXXXVII
-
-1 Charles Pégury
 
 18 que Taine avait, pour la pratique de son travail, pour
 | [1 la réalisation du résultat, oublié de poursuivre l'indéfi-
@@ -9887,7 +8023,6 @@ LXXXVII
 t de Renan, c'était que Renan avait, pour cette fois,
 |: renoncé à la totalisation du savoir; ils avaient choisi;
 À ; comme tout le monde, comme les anciens, comme Hérodl dote, comme Plutarque, et comme Platon, ils avaient
-choisi.
 É Choisi, le grand mot est là; choisir est un moyen
 L d'art; comment choisir, si l'on ne veut absolument pas
 a. employer les moyens d'art; choisir, c'est faire un rac- -
@@ -9911,11 +8046,7 @@ l poursuite indéfinie du détail, qu'il fait œuvre d'artiste,
 débat de toute la pensée moderne; au cœur de la plus
 pi grande contrariété moderne ; et c'est sur ce seuil que
 bi} nous nous arrêterons, pour aujourd'hui, car il est éviAl LXXX VIII k
-l
 
-5 L
-:
-ZANGWILL |
 “dent que ce simple avant-propos ne peut devenir ni un |
 traité, ni même un essai de la manière d'écrire l'histoire;
 c'est déjà beaucoup, peut-être, que d'avoir commencé
@@ -9942,8 +8073,6 @@ nous arrêterons, pour aujourd'hui, au seuil de ce débat;
 c'est assez écrit pour un cahier, pour l'avant-propos d'un
 cahier; gardons-nous quelque travail pour les veillées de
 cet hiver; en outre, je parviens au point de nos recherLXXKIC
-
-‘à Charles Péguy |
 
 ches où il me serait presque impossible de continuer 1
 
@@ -9982,10 +8111,6 @@ nuée permet aux considérations d'apparaître sans pa-
 
 raître trop misérables en comparaison du texte. $
 
-L
-
-CHARLES PÉGUY É
-
 Nous n'avons pas coutume ici de remercier nos col
 
 laborateurs, puisque nous travaillons tous d'un même M
@@ -10002,107 +8127,23 @@ thousiasme ce beau poème, totalement inconnu de nous; $
 
 d'enthousiasme nous l'apporta. À
 
-è
-
 Le ae . sf: LES DE CPP TRE A Tens-n aa es ©
 : jSIRSINES CE REIT Eau AT 0e MEET ou ee : 3
-2 Nr. À 0 à. FT RER AVE Far (ee Er TE 08)
-: CRE FOR : LEE VA 2210 PE L'TURRE 1 0
 | LUE F À + EST RS Tree A PNR
-FRS 7% x È % r ,] Lie + 48) ren
-FL x Ÿ "00
-me: Lo: : : à 1800
 SL Les Fer FE LL
-ane | + A COR à vs
-HA es : 70
-ad a re 4 ss . 2 ï
-1e 4 ie A
-4 RUN :
-t: ut - 3 : Ni! Pat:
-dr TP : 3400
-AL ;
-5 ue Eh
-ft ‘NES
-A \ a
-re pt: 15
-A x |
-ir x fa
 # CYR
 | ÿ, 124 #4 eu
-. s'- APRES
-AT) LA en 4 à
-Mo HIER
-irait ù 2
-ie 4 4 F $ à hi On.
-FANS f À d k
-3 ANT - À n us
 
 À RACE AT tt ES AL nn PASS GANTS LES
-PR LL MOTS ME ARE ee ht ÉRRre j te AREREN
-LISE CELA
-“ RTE à FR F F0 A
 NE wi à pu : $ “ER
-Gs LUE Re
-44 LALI À Le
 er sa
-Ra: d : 242
-12 1 FA
-DE :, &
-Je
-PEL È
-5e 4
-“ie :4
-VERS “ à FA
-3 TR
-PA ae
-11% = ‘
-HR S
-“es Li -
-ER ji
 
 Et c LAS dx Ve ue F e s + v : r
-4% AR CE MEN PART ER RTE DURS She EN APPEL ET)
 ÿ 5 Tale LA TES HS y LE ER on SALE 5548 Ve D ÉRRMTRNTS RTES
-RER re 15 é LR NN SEE
-M ARE ver
-LL HRSETESEE F SES TIR
-Der SX RAS À R A TRIER ere
-LPS EE 20e
-DPRRANE rer u LEE
 Tr RER : ei ce se
-5 CÉSTeS È = CE « Ts
-DS : LS
-its enr s = C2
-É : LOS
-DR à + #, Ke Ur
 ce TITES x rs
-LÉCAEE , CRE |:
-He Rens re NA Er ARE :
-MRC: E 72
-É, MIRE ‘ LATE
 
-FRERE TE SE M RE HE NUR Sen
-D UT Re Nero FF Rte 22
--. SEC Ç En e re | & : à SSTTTNRESSS
-5. ES à L Fe ey = RAR CE.
-TS 14 PE” < RES ES
-De — = (+ FT LS
-LÉ > der te
-Re + = A É " Et Le ne
-EC . DE CSES
-28 É Suns Vr f 4
-D - LAIT TE
-LS RSS TUE
-Ts a Fi RE L'AIR
-« 3% TESTS
-Ne < RAR RU TEE
-LEE : SAPIN
 | TRES = EU Fo
-Tr = b mr
-ae - PERS
-
-MATHILDE SALOMON
-ZANGWILL
 
 Chad Gadya! est la dernière d'une série d'études
 publiées il y a quelques années par M. Israël Zangwill
@@ -10110,7 +8151,6 @@ sous le titre : Les Réveurs du Ghetto.
 
 Quelques-uns de ces rêveurs ne se sont pas confinés
 dans les limites étroites du cercle juif. Le monde connaît leur nom et leur action : ils s'appellent Spinoza,
-Henri Heine, Lord Beaconsfield, Ferdinand Lassalle,
 pour ne citer que ceux-là. ;
 
 En nous exposant certains traits de leur vie et de
@@ -10126,7 +8166,6 @@ Chad Gadya/! nous présente le juif moderne à l'intelligence façonnée par l'�
 v Mathilde Salomon à LEUR
 LE chrétienne. Lui aussi est possédé des mêmes besoins
 e: : de vérité, de certitude, de justice, résumés sous un seul 4
-En À È £
 ca mot : Dieu! Et un drame poignant se déroule dans sa
 
 ne conscience entre les données de sa raison et les mysté- ;
@@ -10141,83 +8180,20 @@ ne conscience entre les données de sa raison et les mysté- ;
 
 " justice visible, immédiate, non pas future et chimé-
 
-j rique.
-
 k , Un monde qui n'est pas régi par elle ne lui paraît pas 3
 
 Re un monde habitable. Si la vie n'est qu'un jeu de forces
 
 & brutales, inconscientes, l'idéal, c'est la délivrance de la
 
-. vie. ë |
-
-é 4
-
-a Mathilde Salomon
-
-}
-
-$
-
-3)
-
-x
-
-ù -
-
 | v#|
 
 Û La ARE RER ja je RER AIR
 D ee TS CE
-É Te re RP US RD EURE re
 
 à BARRE Pipe #ÿe à: : NT TES
-LTÉRÉCARRESS Dee 2 4 RER
-a PR RS
-DE RE Re : ; STE
-S MR 2: PE
-RES ES x F Dan:
-RENE RS L'ÉNOETEE À è Ne:
-RE ME nd de % * î à +.
-SET RATE F : Kb É PEU, à
-A en A À: RTE
-AÉRP AN Æ SNS PÈRE
 Dire AC ARE Al s & A5 Ces
-APFARTENS 4 < RPM
-RES Ve | : | LE HP
 GA "ET Le à er Ze « 4 Rare Ÿ ce
-RE PES ER ps à RARES Le RER * :
-
-DER Æ = DES TUE
-1:80 3 Si SIMCA UR
-Et 4 S CIN Re
-Me ”.. è ER
-FA {  SCPEECNESS
-LES Ê 7 VÉOPSR RSS
-F4: : : ESF
-er es à D
-_ 2 È ï : x 750)
-Bou PU $ £ FR SRE RAR :
-34 MAT EDS
-” = HARAS FTIORS €
-Ru. - LUE RES
-“20 HG SENTIERS
-
-ES 2 : MORTE
-NE. $ See:
-D. 5
-HS - 1h60
-MAR 2 ; MRC EE,
-ee ? L Ex :
-es : = a) 2€
-
-d * + ea : Tr)
-
-é . 6 PTE
-te * < ER
-
-ISRAËL ZANGWILL
-CHAD GADYA !
 
 Et il arrivera, quand ton fils te questionnera,
 dans les temps à venir, disant : « Qu'est ceci ? » que
@@ -10229,16 +8205,13 @@ nés de mes enfants, je les ai sauvés. » Exode, XIIT,
 Chad Gadya! Chad Gadya ! un seul chevreau de
 la chèvre!
 
-Israël Zangwill
 ë Le service familial de Pâques tirait à sa fin. Son
 père avait commencé le curieux récitatif chaldéen
 à qui le termine : is
 Un seul chevreau, un seul chevreau que mon
 ; père acheta pour deux zuzim. Chad Gadya! Chad
-à Gadyaà!
 | Le jeune homme eut un léger sourire devant
 | l'étrangeté du vieux monsieur en habit, un directeur de la Compagnie des bateaux à vapeur dela mo-
-£ derne Venise, parlant chaldéen, absolument incon- ;
 scient de cette singularité, faisant rouler avec |
 onction les syllabes sonores, accoudé sur les cous- 4
 ;. sins prescrits par le rite.
@@ -10249,10 +8222,7 @@ onction les syllabes sonores, accoudé sur les cous- 4
 | père, le service fini. Il n'était entré que pendant la È
 | seconde partie, arrivant de Vienne, inattendu k.
 | ‘à
-L +
 
-LA
-CHAD GADYA !
 comme d'habitude, et tout surpris que ce fût justement la nuit de Pâques, avec La cérémonie immé-
 moriale célébrée exactement comme au temps de
 son enfance. La rareté de ses visites à ses.vieux :
@@ -10274,11 +8244,7 @@ escalier, — et puis, la transition brusque vers
 (1) En français dans le texte.
 9 1.
 
-Fe SNS
-3 , TR
 | Israël Zangwill "
-È
-Be à : ;
 Ê l'Orient, vers les siècles éteints ; Jehovah faisant 3
 Eu DE ici 1or
 à sortir d'Egypte son peuple choisi, lui ordonnant de à
@@ -10286,7 +8252,6 @@ k célébrer avec du pain sans levain, à travers les :
 Es générations, son voyage précipité au désert !
 : Son père souffrait sans doute de voir le fils aussi
 = indifférent aux traditions qui lui étaient si chères à :
-Lo À : 72
 lui-même, bien que depuis longtemps il fût con- à
 ù vaincu de cette vérité amère que ses voies n'étaient 4
 pas celles de son fils, que leurs pensées étaient dif- É
@@ -10296,17 +8261,12 @@ pas celles de son fils, que leurs pensées étaient dif- É
 3 adepte des choses défendues ; — le fils se regardait à
 lui-même avec les yeux de son père, et le léger sou- 4
 Ë rire qui se jouait sur ses lèvres mobiles devenait
-3 Be.
 à plus amer. Ses longs doigts blancs s'agitaient fié-
-: vreusement. 4
 Et pourtant il aimait son père; il admirait la
 & persévérance qui l'avait conduit à la fortune, la E
 | = 9
 à générosité avec laquelle il dépensait cette fortune,
 
-S 10 ‘3
-
-CHAD GADYA ! s
 la fidélité qui résistait aux tentations et faisait ce
 service du Seder, cette réunion de famille aussi
 simplement pieuse que dans le passé, alors que le
@@ -10322,7 +8282,6 @@ la salle.
 
 Et le chien vint et mordit le chat qui avait dévoré
 le chevreau que mon père avait acheté pour deux
-zuzim. Chad Gadya! Chad Gady a !
 
 Et tout à coup le contraste de cette sérénité avec
 sa propre vie si agitée le frappa comme une grande
@@ -10331,9 +8290,6 @@ larmes amères. Ce n'est pas lui qui s'asseoirait
 jamais à sa propre table perpétuant la chaîne de
 piété qui unit les générations l'une à l'autre; jamais
 
-Il
-
-à Israël Zangwill
 F- son âme ne se reposera dans cette atmosphère de
 paisible confiance ; .aucun amour de femme ne sera
 : son partage, aucun enfant ne placera sa petite main
@@ -10348,16 +8304,12 @@ J que le jour de sa naissance. » — Vraiment voici
 bien une preuve ironique de la maxime du sage :
 Rien n'est nouveau sous le soleil. Et il se rappela
 les grandes paroles :
-À
 « Vanité des vanités, dit l'Ecclésiaste ; vanité des ;
 vanités ; tout est vanité. » $
-ÿ
 « Une génération passe et une autre génération L
 arrive ; mais la terre dure éternellement. Toutes les
 rivières se perdent dans la mer; pourtant la mer
-12 L
 
-CHAD GADYA |
 n'est pas remplie et la place d'où les rivières viennent, c'est à celle-là qu'elles retournent. »
 
 « Ce qui a été, sera; l'action qui est faite sera
@@ -10381,9 +8333,7 @@ rien que la réalité. Et il avait cru jadis préférer les
 Grecs; il avait soupiré depuis son enfance vers les
 Dieux défendus, enivré par cette solitaire Vierge
 
-ss Israël Zangwill
 à de marbre, regardant le Ghetto, d'un mur limi- à
-trophe. |
 É S Oui, il avait apporté ses adorations à l'Autel de
 ë. la Beauté; il avait prôné la Renaissance. Il avait
 écrit, — avec cette faculté d'adaptation multiple de
@@ -10398,11 +8348,9 @@ trophe. |
 ; Et un bâton vint qui frappa le chien qui avait 4
 | mordu le chat, qui avait dévoré le chevreau que : 3
 mon père avait acheté pour deux zuzim. Chad e
-Gadya! Chad Gadya! EF
 À Oui, il était juif de cœur. Son enfance dans le À
 Ghetto, la longue hérédité l'avaient enchaîné dans |
 
-CHAD GADYA !
 des émotions, dans des impulsions comme avec des
 phylactères. Chad Gadya! Chad Gadya! Cette
 mélodie même éveillait d'innombrables associations <
@@ -10426,9 +8374,7 @@ Ghetto? Son imagination le lui montra tel qu'il
 était avant sa naissance : un camp bordé d'arcades
 de boutiques, les marchands hébreux à barbes
 noires dans leurs longues robes, les portes de fer
-à 15
 
-; Israël Zangwill
 fermées à minuit, les gardiens ramant autour de la
 : partie libre du canal. — Le bonnet jaune? l'O jaune
 sur la poitrine? — Des signes d'honneur, car il est
@@ -10449,14 +8395,11 @@ trop dures, leur subtil refus passif de vivre à Mestre,
 leur relégation finale au Ghetto. Quelles sources |
 d'énergie bouillonnaient dans ces extraordinaires
 ancêtres, qui unissaient le calme de l'Orient avec la
-16 :
 
-CHAD GADYA !
 fièvre de l'Occident, ces idéalistes occupés seulement de‘choses pratiques, ces amoureux de l'idée,
 ces princes de l'abstraction, dominant ce qui les
 entourait parce qu'ils ne tenaient compte que
 d'idées représentées par des réalités concrètes. Réalité! Réalité !
-ANSE:
 
 C'est là la note du génie juif, qui a cette aflinité du
 moins avec le génie grec. Et lui, bien que le vrai
@@ -10478,13 +8421,11 @@ ces strozzaroli, à ces revendeurs forcés de mar-
 , 17
 
 | É Israël Zangwill
-j D
 
 : chandises d'occasion, arrivés à acheter toutes
 les draperies de pourpre fanée de la gloire vénitienne !
 
 Il se rappelait ces résultats d'un recensement
-ancien : Hommes, femmes, enfants, moines, nonnes,
 — et juifs! — Eh bien, les Doges avaient vécu;
 Venise était une ruine mélancolique, et Le Juif, — le SJ
 Juif vivait somptueusement dans les palais de ces
@@ -10501,9 +8442,6 @@ Juifs, après tout, avaient enseigné quelque chose ;
 aux Vénitiens, — c'est que la seule richesse durable, É..
 c'est l'énergie humaine. Toutes les autres nations :
 avaient eu leur temps de prospérité et s'étaient
-éteintes. ;
-
-CHAD GADYA !
 
 Mais Israël poursuit son chemin avec une
 vigueur et un courage invaincus. C'est extraordinaire, ou plutôt, n'est-ce pas miraculeux? Peut- :
@@ -10528,7 +8466,6 @@ entre les modernes au dehors, — un lettré et un
 saint à la maison ! Ah ! que ne peut-il, lui aussi,
 s'appuyer sur cette foi solide! Oui, son âme sym-
 
-Israël Zangwill
 4 pathise avec le mélancolique, l'immuable Orient,
 avec le mysticisme des cabbalistes, avec l'enivrement des ascètes, la fantastique et frénétique
 extase des derviches qu'il avait vus danser dans les
@@ -10548,24 +8485,19 @@ Science, qui classifie tout, et n'explique rien.
 Expliquer, que ce mot est futile! Les choses sont. :
 Les expliquer, c'est énoncer A en termes de B, et
 B en termes de A. Qui expliquera l'explication ? ;
-%
 Peut-être par l'extase seulement peut-on com- 4
 . prendre ce qui demeure derrière les phénomènes. à
 Mais même ainsi l'essence ne peut être jugée que
-20 '
 
-CHAD GADYA!
 par ses manifestations, et les manifestations sont
 souvent absurdes, injustes et sans aucun sens. Non,
 
 il ne peut croire. Son intelligence est sans remords.
-Qu'importe qu'Israël ait été préservé ? Pourquoi
 lempire de Venise a-til été détruit ?
 
 Et il vint un feu, qui brûla le bâton, qui avait
 frappé le chien, qui avait mordu le chat, qui avait
 dévoré le chevreau, que mon père avait acheté pour -
-deux zuzim. Chad Gadya! Chad Gadya !
 
 Il pensa à l'énergie dépensée pour bâtir cette
 étonnante cité, aux piles de bois profondément
@@ -10588,7 +8520,6 @@ je m'en retournai et considérai toutes les oppres-
 | sions qui ont lieu sous le soleil; et je vis les larmes
 | de ceux qui sont opprimés, et ils n'ont pas de con-
 
-solateur. »
 Il se rappela un tableau moderne représentant |
 
 | une belle femme nue: ce tableau avait coûté le |
@@ -10606,8 +8537,6 @@ homme de tout le travail qu'il a accompli sous le À
 
 soleil ? l
 
-;
-
 Non, tout n'est que le flot qui passe, rien que le ;
 
 | flot. Ilévra ge. Les plus sages l'ont toujours vu. à
@@ -10618,14 +8547,9 @@ mord le chat, et le bâton qui frappe le chien, etle
 
 feu qui brûle le bâton, et ainsi éternellement. Les <
 
-22 à
-
-CHAD GADYA ! .
-
 commentateurs ne disent-ils pas que c'est là le sens
 
 : de cette parabole même, — la succession des anciens
-empires, Égypte, Assyrie, Perse, Grèce, Rome ?
 Les commentateurs, quelles singulières gens ! Dans
 quel désert perdu de dialectique l'esprit juif a
 voyagé pendant des siècles ! Les volumes infinis
@@ -10645,7 +8569,6 @@ doit vouloir mourir. Et en lui peut-être est née cette
 volonté. — Il prévoyait le désespoir de ce peuple,
 l'Israël des jours futurs, toujours porté aux extrêmes, qui ayant été le premier dans la foi, est
 
-) Israël Zangwill
 aussi le premier dans le scepticisme, le plus prompt
 e à pénétrer dans le cœur vide des choses, semblable
 à un vent perdu, gémissant autour des terres disparues de l'univers. Savoir que tout est illusion,
@@ -10667,12 +8590,10 @@ la mer qui agissaient ainsi sur son esprit. Tourgue- |
 nief a raison : ce sont les jeunes seuls qui doivent
 | venir ici, non ceux qui ont vu, comme Virgile, les 3
 
-ji CHAD GADYA ! :
 larmes” des choses. Et il se rappela les vers de
 Catulle, la triste et majestueuse plainte classique,
 pareille au sanglot contenu d'un homme fort :
 Soles occidere et redire possunt
-Nobis cum semel occidit brevis lux
 £ Nox est perpetuo una dormienda.
 
 Puis il pensa encore à Virgile évoquant un
@@ -10687,8 +8608,6 @@ des vertes collines ensoleillées, des blanches villas
 nichées dans la verdure, des oliviers gris. Qui avait
 
 -  foulé ces terrasses aux légères colonnettes? Des
-
-Il
 
 (l Israël Zangwill
 ( princesses du Moyen-Age, dédaigneuses et pas-
@@ -10710,10 +8629,6 @@ Et une eau vint qui éteignit le feu, qui avait brûlé
 le bâton, qui avait frappé le chien, qui avait mordu
 if le chat, qui apait dévoré le chevreau, que mon père
 avait acheté pour deux zuzim. Chad Gadya! Chad
-Gadya!
-26 À
-
-CHAD GADYA ! à
 
 Mais la chaleur s'éteignit. Il redevint triste et s
 désespéré. Car maintenant il savait ce qui lui man-
@@ -10737,10 +8652,6 @@ Oh! la cruelle tragédie que cette culture occidentale
 greffée sur le tronc d'Orient, faussant les cordes de
 la vie, séparant le cœur du cerveau! Mais la nature
 est cruelle par essence. Il pensa aux vendanges de
-
-“+ S
-
-4 Israël Zangwill
 
 Fe l'an dernier, ruinées par un orage, à l'effrayante
 
@@ -10768,15 +8679,6 @@ tout à son image, transportant dans le grand mécanisme inconscient l'idéal qu
 d'homme à homme. La religion, comme l'art, fait
 de l'homme, produit accidentel sans importance,
 le foyer de l'univers; c'est de la mauvaise science
-changée en art.
-
-28 :
-
-Se CE F#
-
-< ; *
-
-CHAD GADYA ! à
 
 Et c'est sa propre race qui a créé et propagé cette é
 
@@ -10804,9 +8706,6 @@ Par elle-même, la vie est assez simple : un phénomène biologique qui a son d�
 maturité, son déclin. La mort n'est pas un mystère ;
 la douleur n'est pas un châtiment; le péché n'est
 
-29 Ir.
-
-Israël Zangwill
 e autre chose que la survivance d'attributs inférieurs,
 E restes d'une phase plus reculée d'évolution, ou assez
 ë souvent la protestation du moi naturel, contre la
@@ -10831,9 +8730,7 @@ artistes, des savants allemands, contents d'eux- 4
 mêmes, comme celles des prédicateurs de conven- 4
 tion; elle demandait justice pour l'individu, jus- ‘
 ne
-30 ? F
 
-CHAD GADYA !
 qu'aux moineaux qui se vendent deux sous la paire
 au marché ; elle voulait un sens, un but à la marche £
 séculaire de la destinée, et savait cependant qu'un
@@ -10858,7 +8755,6 @@ aux faces infinies, dont tous les infinis étoilés ne
 sont qu'une pauvre expression, et dont l'amour
 n'implique pas être aimé en retour. S'élever par
 
-Israël Zangwill
 l'adoration de cette splendeur, cela est beau ; mais
 = cette splendeur se glace, et l'ardent besoin de Dieu
 revient. Ce qu'il lui fallait, c'est que l'Être éternel
@@ -10882,11 +8778,7 @@ Et un bœuf vint, qui but l'eau, qui avait éteint le
 feu, qui avait brûlé le bâton, qui avait frappé le
 chien, qui avait mordu le chat, qui avait dévoré le
 
-o2
-
-CHAD GADYA !
 chevreau, que mon père avait acheté pour deux
-zuzim. Chad Gadya! Chad Gadya !
 
 ; A Vienne, où il avait passé, un Israélite rêvait le
 vieux rêve d'un État juif, — un État moderne, incarnation de tous les grands principes acquis par le
@@ -10908,7 +8800,6 @@ au Prater, s'étalantavec arrogance, dans de brillants
 équipages, aux laquais d'une correction parfaite, —
 race étrange, qui savait bâtir des villes pour les
 
-1 Israël Zangwill
 il à
 fl. autres, jamais pour elle-même, qui professait d'être
 | 1 à la fois une religion et une nationalité, et n'était
@@ -10923,7 +8814,6 @@ L. Et supposons même qu'un autre anneau miraculeux
 ) À s'ajoute à cette chaîne merveilleuse, les Juifs plus
 | heureux du nouvel État y naïîtraient comme les enL fants d'un enrichi, inconscients des luttes, acceptant
 ‘4 le bien-être, devenus épais de corps et d'âme
-‘4 étroite.
 L On rebâtirait le Temple? Et après? L'architecte
 g. enverrait sa note. Les gens dineraient en ville, se
 f taperaient sur le ventre en se racontant de vieilles
@@ -10957,10 +8847,8 @@ Et le boucher vint et tua le bœuf qui avait bu
 l'eau, qui avait éteint le feu, qui avait brûlé le
 bâton, qui avait frappé le chien, qui avait mordu le
 
-124 Israël Zangwill
 ‘à chat, qui avait dévoré le chevreau, que mon père
 à avait acheté pour deux zuzim. Chad Gadya!
-à Chad Gadya!
 | Chad Gadya! Chad Gadya! Jamais il ne s'était
 ù demandé le sens de ces mots, toujours associés
 r à la fin de la cérémonie. Tout est fini, tout est fini,
@@ -10970,7 +8858,6 @@ r à la fin de la cérémonie. Tout est fini, tout est fini,
 Ë nées et laissées là, une fièvre tombée, un travail
 | achevé, une clameur apaisée, un son de cloche
 $ d'adieu, des mains croisées pour dormir.
-ë
 5 Chad Gadya! Chad Gadya! C'était une lamen1 tation sur la lutte pour l'existence, la succession
 5 sans but des siècles, le passage des anciens empires,
 1 — selon les commentateurs, — et des empires mo-
@@ -10979,17 +8866,11 @@ $ d'adieu, des mains croisées pour dormir.
 j finisse à son tour, dans le froid et les ténèbres. Flux
 et reflux ! le feu et l'eau, l'eau et le feu ! Il pensa aux |
 immobiles squelettes qui attendent encore l'exhu-
-È 36 :
 
-DR RE EME EE NT ANNEE + die 11
-CHAD GADYA ! 4
-1%
 mation à Pompéi ; aux momies emmaillotées des #
-D Ÿ
 Pharaons, aux cendres d'amants oubliées dans les ra
 vieilles tombes étrusques. Il eut le sens soudain de ;
 la grande procession du Moyen-Age, — papes, rois, F::
-croisés, frères mendiants, paysans, flagellants, nt:
 étudiants ; de la vie moderne variée à l'infini, à î
 #
 Paris, Vienne, Rome, Londres, Berlin, New-York, LE
@@ -11007,12 +8888,7 @@ problème pour les Etats-Unis, — et chacun de ces |
 peuples, bien mieux, chaque individu se regardant #
 comme le centre et le souci de l'univers; la destinée
 des races aussi obscure que celle des individus et ‘4
-£
-: 37 à
-IL
 
-Re pe FAN NA RO EUR dd
-4 Israël Zangwill
 toute l'immense étendue de l'histoire n'étant rien
 ‘4 à qu'une convulsion de vie sur le plus misérable d'un
 ‘4 obscur groupe de mondes, perdu dans un infini de
@@ -11036,9 +8912,7 @@ L- imposants qu'un seul. Géologie, chimie, astronomie,
 insignifiance. La race humaine ? D''étranges mons-
 “à tres marins se traînant sur le lit d'un océan d'air,
 incapables de s'élever dans cet air, bizarrement
-ë 38 4
 
-CHAD GADYA ! à
 déguisés sous Les peaux volées à d'autres créatures, |
 aussi absurdes, à les regarder impartialement, que |
 les êtres baroques adaptés au curieux milieu d'un
@@ -11060,8 +8934,6 @@ se demanderont tout à coup ce que signifie tout
 cela, et comprenant qu'elles étaient entraînées par
 des forces aveugles au travail, à l'effort, à la lutte ;
 
-: M Israël Zangwill
-f: : 1 4AFt
 h. elles aussi passeront. Les grossières races nouvelles
 +4 : les balayeront comme la poussière, la nature faisant
 Ne jaillir des énergies sans cesse renaissantes de sa
@@ -11085,7 +8957,6 @@ ciel, perpendiculaire et basse, semblant un objet
 : terrestre en comparaison des étoiles dispersées
 | k. Go '
 
-CHAD GADYA ! 2 4
 au-dessus et lui donnant l'impression, dans cette + #1
 lumineuse nuititalienne, d'appartenir à leur rayon- 1 À
 nante compagnie, qui tourbillonne à travers le 3
@@ -11108,33 +8979,24 @@ la voix de la passion même, l'aspiration du moucheron vers l'étoile, de l'homm
 mort, la mort à tout prix pour en finir de ramper
 sinistrement à travers les confins de la vie ! La vie
 
-4x UL.
-
-E Israël Zangwill
 | même un instant de plus, la vie sans Dieu, semblait
 ‘à intolérable. Il trouverait la paix dans cette eau
-de : : ; :
 3 noire. Il se glisserait dans l'escalier sans un mot.
 L Et l'ange de la mort vint et tua le boucher, qui
 Î avait tué le bœuf, qui avait bu l'eau, qui avait
-Fo) Q o 4 A . .
 éteint le feu, qui avait brûlé le bâton, qui avait
 F frappé le chien, qui avait mordu le chat, qui avait
 # dévoré le chevreau que mon père avait acheté pour *
-' deux zuzim. Chad Gadya! Chad Gadya!
 | Quand on le trouverait noyé par accident, — car
 ÿ comment le monde comprendrait-il, ce monde tou-
 À jours si prompt à le juger, — qu'un homme ayant
-jeunesse, santé, richesse, quelque célébrité, ait mis
 fin à sa vie, ses parents penseraient peut-être que
 c'était un fantôme qui avait pris place à la table du
 ; Seder, silencieux etimmobile. Et vraiment n'était-ce
 pas un fantôme ? Il n'est pas nécessaire de mourir
 pour planer en dehors du cercle animé de la vie, les
-bras étendus.
 Un fantôme ? Il avait toujours été un fantôme. |
 Depuis l'enfance des gens singulièrement robustes
-H 42 :
 
 | CHAD GADYA !
 étaient venus, lui avaient parlé, avaient marché
@@ -11158,200 +9020,92 @@ statues de vieux Vénitiens revêtus d'armures, descendit du grand escalier dans
 sépulcrale à la lueur d'une allumette lui permettant
 
 ee: Ne * Israël Zangwill Pr fée
-* à :
-k "4 HE2
 1:10 de trouver la porte sur l'eau et de voir son ombre
 4 monstrueusement courbée le long du toit qui surRU." »
-\ 0 . FER :
 1 plombait les profondes ténèbres. Il ouvrit lasporte
 : RS avec précaution et goûta la douceur de la nuit prinLT ‘4: 13
 | LIEU tanière. Tout était silencieux. L'étroit canal reflétait
 ‘M le clair de lune ;le palais opposé était noir avec une
 16 tache de lumière à une fenêtre ; au dessus de sa tête,
 D. dans la petite échancrure de ciel bleu foncé, ,
-+ Nan) ». . . :
 4 un groupe d'étoiles rayonnaient, comme de bril-
 ‘08 lants oiseaux, dans les ténèbres veloutées. L'eau
 FR - battait tristement les marches de marbre; une
 ne. gondole attachée aux poteaux semblait se balancer
-3 ten
-Hi °
 Re doucement vers son ombre noire dans le canal.
 
-6 3 : : 4 ; 2 4
 13 I1 marcha vers l'endroit où l'avenue d'eau était
 # S . .
 | # plus profonde et se laissa glisser doucement. Il se |
 | Te retrouva luttant, mais vainquit l'instinctive volonté
-AIR
 45 de vivre. -
 TR Comme il plongeait pour la dernière fois, le
 4 mystère de la nuit, des étoiles, de la mort se con-
 ; fondit avec un tourbillon étrange de souvenirs d'en- |
-*
 3 fance, et les paroles immémoriales du Juif agoni-
-À
-, Fr
-Fe.
 
-D 'HMLES PANNE hr à FN TRE, LCL PTS AUS LEURES * NUS: 4 Mani,
-Spas  CHAD GADYA! SR BNATyE P RENTE ATOS
 | sant jaillirent violemment de sa gorge étranglée:
-. 3 ; 2 A
 _ « Écoute, 6 Israël, l'Éternel, notre Dieu, l'Éternel ni
-k LR
 _ est Un! » A5R Bts
-SEP
 _ Par la porte ouverte flottaient les derniers mots ViUrE
 de l'hymne et du service : Sa ‘A
 #40
-3 : . . . F . 4.04
 El le Saint des Saints vint, que son nom soit béni, . CE
 ÿ L sl RC
 * ettua l'ange de la mort, qui avait tué le boucher, ‘ne
 qui avait tué le bœuf, qui avait bu l'eau, qui avait LL
 éteint le feu, qui avait brûlé le bâton, qui avait Tea
 _ frappé le chien, qui avait mordu le chat, qui avait Ta
-We
 | » x . » ‘1e
 dévoré le chevreau que mon père avait acheté pour PA
-_ deux susim. Chad Gadya! Chad Gadya! Ra
-î RE
-; “à a?
 | ISRAËL ZANGWILL 1:10
-sas 1
 
-44e AR
-
-LT EUR AA
 "| “MES * | id HR PANE Pr RITES Lo Dar pat Havre
 : OS RANCE PARU Dis el Palo Le
-LS ET MOTRMES CE LIRCPARES rt NRA AE HATES TRS PAIE LES ?
-2; 300 LA Gr k à LR RARES RNA
-OR à #4 À Le NN INTER Hal
-NAS MR ©
-Me aus à À 24 RU !; ‘ ASE 4 e r<
-4e MONNIER
-F 1e > ! f # RUE Lo tax a
-T'AS ee D gl:
-eue: pu ; AE RON ER
-S : 1 LEE
-ÿ \ ‘AT
 
 traduit de l'anglais par Mathilde Salomon
 #7
 
-YA ES ee, HR à
 A PE UN aX FA ARE PAR ENT TONER mi ONE
-LENS ATARI
-EPSON 4 À 1 SÉPARÉ
-4 ACER : IP RRRAES AUS
-ie Len : ï é Lt TR SUP MEE
-LUN PP : (AL ÉRELTEEN Nu,
-{ f VE 4;
 
-nn MACLAN ! { : RNA 44 4
-M. + “es Mel D.
-AE, $ \ en LRRUREI ESS
-
-EN (Ar ; FR 4 20
-
-vf # pus *
-
-4 16e À ' \ AA AE" 2 ï
 FALL! 4 te vw te Le
-ua 21 UE UT EONRRS
-A{TAETES) COR te "à
 
-HN \ NT TT FAST ES HR
 on PRE L \ je RAR AR VAE
 
-: 1008) f Ÿ A. 11600
-FSU | \ Niro AN \
-+48 Ke ni ; 4 MATE D
-
-?:
-TABLE DE CE CAHIER :
-PAGES .
 Notre catalogue analytique sommaire... . . . .. Il
-CHARLES PÉGUY. — Zangwill. . . . . . . . . . vu
-Mathilde Salomon. — Zangwill.. . . . . . . .. 3
 ISRAËL ZanGwizz. — Chad Gadya! — traduit de
 l'anglais par Mathilde Salomon... . . . . . . . 7
 Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce troisième cahier le
-mardi 25 octobre 1904.
 Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 IMPRIMERIE DE SURESNES (ED. GRENIER, directeur), 9, rue du Pont. — 9340
 #1 Ll IV
 
-» PNR CNE CH
 eu in it ro RE: LU % RG OR RAS Z DE
-1:28 MER PAT): Up dr PUR ES ACER RFTE BAS à
-ARR OM ee NN (ARE TOR AN
-Fe “À A a A Mets [NV FAN FINE LEAOENTES
 Etes re Pet RE LES ETS RATE N ER aUt HAL 0% À s
-Fe AS Re " : nn HE
-TE Lan TITI 15, (TRES
-He CPS # Ç LH TER RE
 #,Fsets À ‘ e \ HAS TMNCENE
-He AR |: MEANS!
 | ES 4 \ M ' AL OT TPE D
-es ; AR
-RE he: 7. LIT ÉPRSRES
 | FAN + ICRA RUES
-LES 224 J n Sa met LS
-EL 2 PAU re
 M ae : : el EL: FAC 7 fi des
-DRerar : < +4 al l'AS
 Fa au r sa Nr 4 ‘
-VHBTNRES " È 4 PRET ORPI
-HEC : : s MODE 124
-VEHU di J FE 5
-É + | FINS TAN
 L VS À dl: tu dure
-BAT REX ‘ D Eee
-L Ê 4 | ASSET ORNE
-EE 4727
 
 Fini d'imprimer trois mille exemplaires de ce
 troisième cahier le jeudi 27 octobre 1904
 à l'Imprimerie de Suresnes
-(Ep. GRENIER, directeur)
 9, rue du Pont
 
-IV.
-
 Noer 1 dE Rs ane ORAN PRE Yo h At
-ë U LUE AD 4 SN LA LAN HP LE HIS EUR
-Ps MR EE" RE DA RE ARE OM té A "ri
-3 EI ENSERREPAr % RE NE PANIER CAC ARR À
 ” ee) on A PR TAUNAS ÉS SON Er" CUVE E M ue
 4 NEA SAS Pat RTS à è Tes SES
-LR sal LORS
-+555 k SES
-10 i FAT EE
-a) DRE 0
-s \; ENT NU on H WE A
-33 | LEON RSS
-Le È
-1790 < ae LRO
-2 SRE EN : RÈRSR Een
-Re fn J & # di 4
 Ch et ÿ T on ; LE
-Ru TOP
-she à EN re ETES
 ses Cr Eà
-RS k AS AA
-EY LME
-Le ARE NT
 
 CAHIERS DE LA QUINZAI 8, rue de la Sorbonne, rez-de-chaussée, Paris, chquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -11372,7 +9126,6 @@ pour la série: tous les cahiers de l'abonnement recommandé sont empaquetés à
 
 poste ; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
-contre certains abus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
@@ -11383,36 +9136,12 @@ les vingt cahiers de la cinquième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 
-SUP
-
-ie LAS ENS RE EN Er AL FAURE
-SNS Lee ! EAP EEE TÉRRT TS ui
-TANT Ÿ SENTE Sr
-4 CAN s RES HI
-1 LE |
-<t ARNO OPE ; 3 2 VE Vin TE ONE
-: MAS éc r À RS Us F
 TOUR ÿ ; LE “Nes EIÈTS
-Ktreed 3 \ AA 44 RARE
 ROSE Je Pros ACTES
-5 7 * Ne D 140
-AP à, WA 1 EM
-NT ï ie) Re A.
-- NF “ ee MAC
-ae 2 RNCS TN nt
-ed È h EAU PL,
-5 nu /ix 2 US AUS
-Re È sn FC « Nu L 1 AA HE:
-o Ht + x De EPA
-* Le ” . he rs Î
-". Deer LR |
-LAISSES
-À CHARTE |
 
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués ; ainsi à dater du premier
 janvier 1905 la cinquième série complète, s'il en reste,
-se vendra quarante-sept francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
@@ -11421,4 +9150,3 @@ heures à onze heures et de une heure à sept heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures.

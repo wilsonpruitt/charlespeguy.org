@@ -7,46 +7,24 @@ author: anatole-france
 isAvertissement: false
 wordCount: 9863
 ---
-
-ANATOLE FRANCE
-
-aniers
 de [a Quinzaine
-PARAISSANT VINGT FOIS PAR AN
-
-PARIS
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
 FOME EU AE de.
 
-DAS AIR ; AE RANCE &
-; 5500 db
-k D Prier: . HA
-3 v 5 +60 sr:
-Ê 4 LP d Len
-. ARS RE COR Le
-* x DS RECRUE SE “ae
 | 46 TES Je
-3 FERA EAP — LT
 Nous mettons ce cahier dans le commerce. nous ASS
 FETES vendons un franc =".
 | 5% QUE: F CR ï R Ÿ
-+ Ligee ROME
-Rs pd EE 4 A all er) - CCR
 
 eh ne LEE ONE
 EE DD où He PE
-EN nues 0 ANR fe SEE co
-A A FRANS
-D, NAN
 
 DA HAE ATEN “EE AS ni
 
 Du même auteur, Calmann-Lévy éditeur, volumes à
 trois francs cinquante, en vente à la librairie des
-cahiers
-Balthasar. ï
 Le Crime de Sylvestre Bonnard.
 L'Étui de nacre.
 Le Jardin d'Épicure.
@@ -56,44 +34,22 @@ Le Lys rouge.
 Les Opinions de M. Jérôme Coignard.
 Le Puits de Sainte Claire.
 La Rôtisserie de la Reine Pédauque.
-Thaiïs.
 La Vie littéraire, quatre volumes.
-HISTOIRE CONTEMPORAINE
 I. L'Orme du mail. Ô Î
 II. Le Mannequin d''osier.
 III. L'Anneau d'Améthyste.
-IV. M. Bergeret à Paris.
 
-il NE #4 y 4 À 7 HUE V
-
-L "534 { à è \ { AU NT A sous f
 LT 'ahiers de la Quinza A
-FRS ST BED HN SAM NRA
-2 NE PO ERNE | ALU EE"
 g* fs AU At L Ne dé “ ; LR ENS RUN Les
 De TMAUS at 4 . à ENS TR du
 
 on js a AE AS CE
-D + NAT Ut
 on À AMEN \i YALU rs ous \ A fou MT ÿ lse te
-vi PA LC SE pont 2 to (ii si ul EE “ ja
-OT jo LYS ee Lt FC RAA
-APE 4 re ‘ox one Fa MAT 4 Dai We LRU AUD s'DJAR
 
-ANATOLE FRANCE
-Cahiers
 de la Quinzaine
 
-\ À \ ! L
-ÉDITIONS DES CAHIERS
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée ur PAU à LR
-RE RATE 1 {ur PRE Ph ns al Nu ait UNS NT: à
-HSE RTE Se te he Lift su ‘9 ire ns A EE
 1 UN HA tieo LAS A d i Lis À Hi d: LP PRESS t es : MAL à : areN ay AA US LA
-: CHERS VE UT AFTER At
-ALAN OS BASS £ ; RAY
-AS) # CAC MEN 10 té
 Une, sans RON AAA" k JE gU ‘ Ur A
 | 20 AR EUR le } tt AU Ni } MCE te {AG
 Dans le troisième cahier de la première série, daté du
@@ -102,9 +58,7 @@ d'après les journaux du jeudi 23 novembre 1899, le
 discours prononcé par Anatole France à l'inauguration
 de l'Émancipation, université populaire du quinzième
 arrondissement. Nous reproduisons aujourd'hui ce
-discours
 
-LA LIBERTÉ PAR L'ÉTUDE
 Citoyennes et citoyens,
 
 L'association que nous inaugurons aujourd'hui
@@ -126,7 +80,6 @@ De saire que chacun sache son métier, ilest utile à
 | chacun d'interroger la nature qui nous a formés et
 | 9 I.
 
-Anatole France
 la société dans laquelle nous vivons. Quel que soit
 notre état parmi nos semblables, nous sommes
 avant tout des hommes et nous avons grand intérêt
@@ -147,8 +100,6 @@ avaient eu cette juste idée de l'univers et y avaient
 suffisamment attaché leur pensée, il eût été possible de les effrayer en leur faisant croire qu'il ya
 sous terre un enfer et des diables ? C'est la science
 dit tu
-
-À LA LIBERTÉ PAR L'ÉTUDE
 
 Û qui nous affranchit de ces grossières imaginations et
 
@@ -179,7 +130,6 @@ _ lexemple de ces grands inventeurs qui n'ont
 | observée.
 
 Vous étudierez les faits de bonne foi, sans parti pris ni système préconçu. Les vrais savants — et
-Anatole France
 j'en vois ici — vous diront que la science veut garder son indépendance et sa liberté, et qu'elle ne se
 soumet à aucune puissance étrangère. Est-ce à dire
 que vous poursuivrez vos recherches sans direction
@@ -205,11 +155,9 @@ l'agréable à l'utile. D'ailleurs, comment les séparer,
 si l'on a un peu de philosophie ? Comment marquer
 le point où finit l'utile et où commence l'agréable ?
 
-LA LIBERTÉ PAR L'ÉTUDE
 Une chanson, est-ce que cela ne sert à rien? La
 Marseillaise et la Carmagnole ont renversé les armées des rois et des empereurs. Est-ce qu'un sourire
 est inutile? Est-ce donc si peu de plaire et de
-charmer.
 
 Vous entendez parfois des moralistes vous dire
 qu'il ne faut rien accorder à l'agrément dans la vie.
@@ -234,8 +182,6 @@ nous offre du plaisir, nele refusons pas. Votre asso-
 avec des pensées utiles, des pensées agréables, qui
 sont utiles aussi. Elle vous fera connaître les grands
 
-« Anatole France
-poètes : Racine, Corneille, Molière, Victor Hugo,
 Shakespeare. Aïnsi nourris, vos esprits croîtront
 en force et en beauté.
 
@@ -257,7 +203,6 @@ vos esprits et vos cœurs, et de vous rendre capables,
 par l'étude et la réflexion, de préparer l'avènement
 de la justice sociale et de la paix universelle.
 
-} D AD à { ve
 tt a nt DA ne 407 de. is el D PACE
 MU | PE HER AN ( PTS Faits RERASE NE AE e ME) jidias) Fous
 Arena Ca TE A: 0 Dan der) 1 vil ÿy AE Fer ES As Ni MAPS MILAN EU, f qu
@@ -268,10 +213,7 @@ QE Pt da À 4 ee 1* NT sien AVS (tt De ex ApU A + Mie EN EN
 he LA CA TN ana Te "df EC At AMEN a D 58 AUX À Wit SR
 pare (4 Ta RL: AE LP NS AN bé
 ti CAN Got" du FAQ ( At JuNGE nor je SU DR ic) Al + OS
-+ (os fi (Ah 1e Fin x AC nr vi Pr: AP PEL ES 1 FX 1 AA
 Vs il TA RU : LOTS An Le ire) 135
-AE FEI OS (St ru DA e
-HAL us
 
 Dans le même cahier nous avons publié, d'après le
 Figaro du mercredi 3 janvier 1900, de l'Histoire contemporaine, le conte intitulé Clopinel; d'après le Figaro
@@ -286,8 +228,6 @@ premiers de ces articles ont passé dans Monsieur Bergeret à Paris, quatrième 
 
 Dans le septième cahier de la deuxième série, aujourd'hui épuisé, nous avons publié, d'après la Petite République datée du mardi 31 juillet 1900, le discours prononcé l'avant-veille à la salle Wagram par Anatole
 France pour la Célébration de Diderot.
-res LT
-à Us nd.
 fu HT AS fat SA de AS AE nee PME EN (ac ne
 EU ni) ae Me Ab Re AUS RTE hits nu ie a nt
 “à Te hi) afu NAN da à RQ a ul E VAT A Ÿ) \ + HAS amer AA PUS) L fioul ACTA De AU
@@ -298,17 +238,8 @@ Nous publions ci-après, sur la copie de l'auteur, et
 avec son assentiment très bienveillant, plusieurs fragments de l'Histoire contemporaine. Les fragments que
 l'on va lire n'ont jamais été réunis en volume. l
 
-LA LOI EST MORTE,
-MAIS LE JUGE EST VIVANT.
-
 A UE A date ne RAT CN
 Je, n at PPT RL AT à Ben
-M A Mt a à AR
-nn Mit
-SANS 10 a EE ni.
-
-LA LOI EST MORTE,
-MAIS LE JUGE EST VIVANT.
 
 — C'était au printemps de 1895, j'avais vingt ans.
 Nouveau venu à Paris, je traversais des temps difficiles. Cette nuit-là je m'étais étendu dans un taillis
@@ -322,7 +253,6 @@ avait les yeux tendres et le regard dur. Il examina
 minutieusement Jean Marteau et lui dit avec plus
 de surprise que de sympathie :
 — Vous dites que vous n'aviez pas mangé depuis
-trente-six heures ?
 
 — C'est vrai, répondit Jean Marteau; je n'avais
 pas mangé depuis trente-six heures. Mais j'avais
@@ -335,7 +265,6 @@ six mois de prison les gens qui n'ont pas de moyens
 Anatole France de subsistance. Le vagabondage, dit le Code, est
 l'état des vagabonds, des gens sans aveu, qui n'ont
 ni domicile certain ni moyens de subsistance et qui
-n'exercent habituellement aucun métier, aucune
 profession. Ce sont de grands coupables.
 — Il est remarquable, dit M. Bergeret, que l'état
 de ces vagabonds, passibles de six mois de prison
@@ -359,7 +288,6 @@ contre ses ennemis. La tâche auguste du juge est
 d'assurer à chacun ce qui lui revient, au riche sa
 richesse et au pauvre sa pauvreté.
 
-” LA LOI EST MORTE
 — J'ai médité la philosophie du droit, dit M. Bergeret, et j'ai reconnu que toute la justice sociale
 reposait sur ces deux axiomes : Le volest condamnable. Le produit du volest sacré. Ce sont là les
 principes qui assurent la sécurité des individus et
@@ -383,7 +311,6 @@ de toutes les injustices, qu'elle rassure tout le
 monde. » Un juge peut être bon, car les hommes ne sont
 pas tous méchants ; la loi ne peut pas être bonne,
 
-Anatole France
 parce qu'elle est antérieure à toute idée de bonté.
 Les changements qu'on y a apportés dans la suite
 des âges n'ont pas altéré son caractère originel. Les
@@ -397,7 +324,6 @@ qu'une action punie est une action punissable. J'ai
 ou en Cour d'assises, que le coupable et le juge
 s'accordent parfaitement sur les idées de bien et de
 mal. Ils ont les mêmes préjugés, et une morale
-commune. »
 
 — Il n'en saurait être autrement, dit Jean Marteau. Un malheureux qui a volé à un étalage une
 saucisse ou une paire de souliers n'a pas pour cela
@@ -409,9 +335,6 @@ l'origine des Codes, ceux-là sont incapables de voler
 un centime.
 
 — Mais enfin, dit M. Goubin, il y a des lois
-justes.
-
-: MAIS LE JUGE EST VIVANT
 
 — Croyez-vous ? demanda Jean Marteau.
 
@@ -442,7 +365,6 @@ c'est un grand avantage qu'il a sur elle. Malheu- reusement il n'en use guère. 
 plus mort, plus froid, plus insensible que le texte
 qu'il applique. Il n'est point humain; il n'a point
 
-Anatole France
 de pitié. L'esprit de caste étouffe en lui toute sympathie humaine. » Je ne parle ici que des magistrats honnêtes. »
 
 — C'est le plus grand nombre, dit M. Goubin.
@@ -465,7 +387,6 @@ quand ils furent prononcés, indignèrent les magistrats austères et les légis
 tendre. Ils sont pleins de pitié, ils sont humains,
 ils sont vertueux. On estima dans la magistrature
 
-. LA LOI EST MORTE
 que le président Magnaud n'avait pas l'esprit juridique, et les amis de M. Méline l'accusèrent de ne
 point assez respecter la propriété. Et il est vrai que
 les « attendus » dont s'appuient les jugements de
@@ -481,7 +402,6 @@ infiniment plus faciles à pratiquer quand on ne
 manque de rien, que lorsqu'on est dénué de tout. »
 
 « Ce qui ne peut étre épité ne saurait être
-uni. »
 
 « Pour équitablement apprécier le délit de l'indigent, le juge doit, pour un instant, oublier le
 bien-être dont il jouit, afin de s'identifier autant
@@ -491,7 +411,6 @@ abandonné de tous. »
 « Le souci du juge, dans son interprétation de
 la loi, ne doit pas être seulement limité au cas spé-
 
-Anatole France
 cial qui lui est soumis, mais s'étendre encore aux
 conséquences bonnes ou mauvaises que peut produire sa sentence dans un intérêt plus général. »
 
@@ -500,12 +419,9 @@ sa santé ou sa vie au profit exclusif du patron, lequel ne peut compromettre qu
 
 . velles et qui rendent le son d'une grande âme ! »
 
-A 0 0 US
 DRE NET ji NE duo DU du
 |! PES OR A ON NAN LUN M
-ape RNA ; RATE sy AR OS “4 ( EDR EE te OT ae au 108
 
-VOL DOMESTIQUE
 Il y a environ dix ans, peut-être plus, peut-être
 moins, je visitai une prison de femmes. C'était un
 ancien château construit sous Henri IV et dont les
@@ -526,14 +442,11 @@ file de détenues achevait la promenade silencieuse
 _ et regagnait les ateliers. Il ÿ avait beaucoup de
 | _ vieilles, l'air brut et sournoïs. Mon ami le docteur
 
-Anatole France
-
 Cabane, qui nous accompagnait, me fit remarquer que presque toutes ces femmes avaient des tares
 caractéristiques, que le strabisme était fréquent
 parmi elles, que c'étaient des dégénérées, et qu'il
 s'en trouvait bien peu qui ne fussent marquées
 des stigmates du crime, ou tout au moins du
-délit.
 
 Le directeur secoua lentement la tête. Je vis bien
 qu'il n'était guère accessible aux théories des médecins criminalistes et qu'il demeurait persuadé
@@ -553,13 +466,11 @@ délinquantes et à des criminelles; et, contrairement à l'usage, il n'exigeait
 entremetteuses qu'elles fussent parfaites parce
 qu'elles étaient punies. Il ne croyait guère à l'efficacité des châtiments pour rendre les êtres meilleurs, et il désespérait de faire de la prison une
 
-VOL DOMESTIQUE
 école de vertu. Ne pensant pas qu'on rend les gens
 meilleurs en les faisant souffrir, il épargnait le plus
 qu'il pouvait les souffrances à ces malheureuses.
 Je ne sais s'il avait des sentiments religieux, mais
 il n'attachait aucune signification morale à l'idée
-d'expiation.
 
 — J'interprète le règlement, me dit-il, avant de
 l'appliquer. Et je l'explique moi-même aux détenues. Le règlement prescrit, par exemple, le silence
@@ -583,7 +494,6 @@ approuvaient cette interprétation du règlement.
 
 I1 me répondit que les inspecteurs lui faisaient
 
-Anatole France
 souvent des reproches; qu'alors il les conduisait
 jusqu'à la porte extérieure et leur disait: « Vous
 voyez cette grille ; elle est en bois. Si l'on enfermait
@@ -602,10 +512,6 @@ cymbales. Cette déesse tournait la pointe de son
 glaive contre une petite malade couchée dans un
 lit de fer, sur un matelas aussi mince qu'une serviette pliée. On eût dit un enfant.
 — Eh bien! cela va mieux? demanda le docteur
-* Cabane.
-— Oh ! oui, monsieur, beaucoup mieux.
-
-s VOL DOMESTIQUE
 
 Et elle sourit.
 
@@ -621,11 +527,6 @@ Et nous passâmes.
 — Pour quel délit a-t-elle été condamnée ?
 
 — Ce n'est pas pour un délit, c'est pour un
-crime.
-
-— Ah!
-
-— Infanticide.
 
 Au bout d'un long corridor, nous entrâmes dans
 une petite pièce assez gaie, toute garnie d'armoires,
@@ -643,13 +544,10 @@ Je ne l'avais pas remarqué, sans doute parce qu'elles ne le portaient pas comme
 ï — Leurs robes sont mieux faites et leurs bonnets,
 b plus petits, laissent voir leurs cheveux.
 
-Anatole France
-
 — C'est, me répondit le vieux directeur, qu'il est
 bien difficile d'empêcher une femme de montrer
 ses cheveux, quand ils sont beaux. Celles-ci sont
 soumises au régime commun et astreintes au
-travail.
 
 — Que font-elles ?
 
@@ -674,8 +572,6 @@ malheureuses soient toutes indignes de pitié et ne
 méritent point qu'on s'intéresse à elles. Plus je vis,
 plus je m'aperçois qu'il n'y a pas de coupables et
 qu'il n'y a que des malheureux. »
-
-: VOL DOMESTIQUE
 
 I nous fit entrer dans son cabinet et donna à un
 surveillant l'ordre de lui amener la détenue 503.
@@ -710,7 +606,6 @@ qu'est-ce que je vas devenir? Ici j'étais nourrie,
 vêtue, et tout. Est-ce que vous pourriez pas le dire
 à ce bon monsieur, qu'il vaut mieux que je reste où je suis ?
 
-Anatole France
 Il l'avertit qu'à son départ elle recevrait une certaine somme, dix ou douze francs.
 Elle sortit en pleurant.
 Je demandai ce qu'elle avait fait, celle-là.
@@ -718,18 +613,11 @@ Je demandai ce qu'elle avait fait, celle-là.
 — 503. Elle était servante chez des cultivateurs…
 Elle a volé un tablier à ses maîtres... Vol domesti-
 . que. Vous savez, la loi punit sévèrement le vol
-domestique.
-Er RES AXES da ei Fan) à His Fa ME
 DURE ne A a joe an ni
 ANS ji Ne RO Ten L
 1 POUR done: Le AN ne cu
-RUN an Lis es AN
 1 i pa: te à AAA RuIGS oe st AN LA oi
 de en : LS É AR
-CA EE RU. PRE AO
-AA Ge ANR NES Do
-
-LES JUGES INTÈGRES
 
 — J'ai vu, dit Jean Marteau, des juges intègres.
 Ce fut en peinture. J'avais passé en Belgique pour
@@ -771,15 +659,11 @@ du scribe est lente et l'esprit des hommes est agile
 et leur destinée mouvante. É du
 
 Et ces deux bons vieillards poursuivirent leur
-entretien sentencieux
 PREMIER JUGE. — La loi est stable.
-LES JUGES INTÈGRES
 
 SECOND JUGE. — En aucun moment la loi n'est
-fixée.
 
 PREMIER JUGE. — Procédant de Dieu, elle est
-immuable.
 
 SECOND JUGE. — Produit naturel de la vie
 sociale, elle dépend des conditions mouvantes de
@@ -805,7 +689,6 @@ SECOND JUGE. — Ce qui est écrit par les morts
 _ sera biffé par les vivants, sans quoi la volonté de
 . ceux qui ne seront plus s'imposerait à ceux qui sont
 
-Anatole France
 encore, et ce sont les morts qui seraient les vivants,
 et ce sont les vivants qui seraient les morts.
 PREMIER JUGE. — Aux lois dictées par les morts
@@ -818,11 +701,9 @@ SECOND JUGE. — Les vivants doivent tenir leurs
 lois des vivants. Zoroastre et Numa Pompilius ne
 valent pas, pour nous instruire de ce qui nous est
 permis et de ce qui nous est défendu, le savetier de
-Sainte-Gudule.
 
 PREMIER JUGE. — Les premières lois nous furent révélées par la Sagesse infinie. Une loi est
 d'autant meilleure qu'elle est plus proche de cette
-5 source.
 SECOND JUGE. — Ne voyez-vous point qu'on en
 fait chaque jour de nouvelles, et que les Constitutions et les Codes sont différents selon les temps et
 selon les contrées ?
@@ -830,8 +711,6 @@ selon les contrées ?
 PREMIER JuGE. — Les nouvelles lois sortent des
 anciennes. Ce sont les jeunes branches du même
 arbre, et que la même sève nourrit.
-
-LES JUGES INTÈGRES
 
 SECOND JUGE. — Le vieil arbre des lois distille
 un suc amer. Sans cesse on y porte la cognée.
@@ -859,9 +738,7 @@ SECOND JUGE. — Nous sommes des hommes.
 
 PREMIER JIUGE. — Un homme ne saurait juger
 les hommes. Un juge, en siégeant, quitte son humanité. Il se divinise, et il ne sent plus ni joie ni à douleur.
-45 ur.
 
-Anatole France ‘
 SECOND JUGE. — La justice qui n'est pas rendue avec sympathie est la plus cruelle des injustices.
 
 PREMIER JUGE. — La justice est parfaite quand
@@ -887,8 +764,6 @@ chacun son dû. Leurs chevaux, attachés à un pieu,
 sous un grand orme, conversèrent ensemble. Le à
 cheval du premier juge parla d'abord.
 
-LES JUGES INTÈGRES
-
 — Quand la terre, dit-il, sera aux chevaux (et
 elle leur appartiendra sans faute un jour, car le
 cheval est évidemment la fin dernière et le but final
@@ -897,10 +772,8 @@ quand nous serons libres d'agir à nos guises, nous
 vivrons sous des lois comme des hommes, et nous
 nous donnerons le plaisir d'emprisonner, de pendre
 et de rouer nos semblables. Nous serons des êtres
-moraux. Cela se connaîtra aux prisons, aux gibets
 et aux estrapades qui se dresseront dans nos villes.
 Il y aura des chevaux législateurs. Qu'en penses-tu,
-Roussin ?
 
 Roussin, qui était la monture du second juge,
 répondit qu'il pensait que le cheval était le roi de la
@@ -913,12 +786,10 @@ police des villes. Je voudrais qu'alors les lois des
 _ chevaux fussent chevalines, je veux dire favorables aux chevaux, et pour le bien hippique.
 
 \ — Comment l'entends-tu, Roussin ? demanda
-Blanchet.
 
 { — Je l'entends comme il faut. Je demande que
 4 _ les lois assurent à chacun sa part de picotin et sa
 
-Anatole France
 place à l'écurie ; et qu'il soit permis à chacun d'aimer à son gré, durant la saison. Car il y a temps
 pour tout. Je veux enfin que les lois chevalines
 soient en conformité avec la nature.
@@ -936,7 +807,6 @@ devront maintenir cet ordre adorable.
 
 F sin, que ces maux viennent du cheval céleste qui
 nous a créés, et non pas seulement de l'homme, sa
-créature inférieure ?
 — Les hommes sont les ministres et les anges
 du cheval céleste, répondit Blanchet. Sa volonté
 est manifeste dans tout ce qui arrive. Elle est bonne.
@@ -944,7 +814,6 @@ Puisqu'il nous veut du mal, c'est que le mal est un
 bien. Il faut donc que la loi, pour être bonne, nous
 fasse du mal. Et dans l'empire des chevaux, nous
 
-LES JUGES INTÈGRES
 serons contraints et torturés de toutes les manières,
 par édits, arrêts, décrets, sentences et ordonnances,
 pour complaire au cheval céleste. » Il faut, Roussin, ajouta Blanchet, il faut que tu
@@ -952,24 +821,15 @@ aies une tête d'onagre, puisque tu ne comprends
 pas que le cheval a été mis au monde pour souffrir,
 que s'il ne souffre pas, il va en sens contraire de.
 ses fins, et que le cheval céleste se détourne des
-chevaux heureux. »
 
 Area We Deer tl Paye) ha { jee JR 4 AE NE HAN pe FA
-(VUE Us A Li N AU He HE
-
-Dette PTE AE AN 1e FE Ba
-LA MORALE CANINE
-PENSÉES DE RIQUET
 
 # Ar ON LE tu
-RS EUVe : z : ‘3
 
 Ayant pénétré plusieurs pensées de mon chien (.
 
 Riquet, je les ai mises en langage humain. Ilya à intérêt à connaître les idées morales des chiens et
 à les rapprocher de celles des hommes.
-
-PENSÉES DE RIQUET
 
 Les hommes, les animaux, les pierres grandissent
 en s'approchant et deviennent énormes quand ils
@@ -987,8 +847,6 @@ derrière lui dans son fauteuil. Et cela vient de ce
 qu'il est un dieu. Il y a aussi devant la cheminée
 une dalle chaude. Cette dalle est divine.
 
-Anatole France ‘
-
 Je parle quand je veux. De la bouche du maître
 il sort aussi des sons qui forment des sens. Mais
 ces sens sont bien moins distincts que ceux que ‘2
@@ -998,9 +856,7 @@ deviner la pensée du maître.
 
 Manger est bon. Avoir mangé est meilleur. Car M
 l'ennemi qui vous épie pour prendre votre nourriture est prompt et subtil.
-VII À
 Tout passe et se succède. Moi seul je demeure.
-ë VIII ï
 Je suis toujours au milieu de tout, et les hommes,
 les animaux et les choses sont rangés, hostiles ou
 favorables, autour de moi.
@@ -1018,7 +874,6 @@ qu'il est puissant et terrible.
 Une action pour laquelle on a été frappé est une
 mauvaise action. Une action pour laquelle on a
 reçu des caresses ou de la nourriture est une bonne
-action.
 
 A la tombée de la nuit des puissances malfaisantes rôdent autour de la maison. J'aboie pour que
 le maître averti les chasse.
@@ -1033,9 +888,7 @@ faisant jaillir la flamme tu changes la nuit en jour.
 Garde-moi dans ta maison à l'exclusion de tout
 autre chien. Et toi Angélique la cuisinière, divinité
 
-Anatole France
 très bonne et très grande, je te crains et je te vénère afin que tu me donnes beaucoup à manger.
-XIV ‘
 Un chien qui n'a pas de piété envers les hommes
 et qui méprise les fétiches assemblés dans la maison à
 du maître mène une vie errante et misérable. !
@@ -1050,10 +903,8 @@ qu'un petit nombre. Les portes sont de grands fétiches qui n'obéissent pas vol
 La vie d'un chien est pleine de dangers. Et pour
 éviter la souffrance, il faut veiller à toute heure,
 pendant les repas, et même pendant le sommeil.
-XVIII
 On ne sait jamais si l'on a bien agi envers les d
 
-PENSÉES DE RIQUET
 hommes. Il faut les adorer sans chercher à les comprendre. Leur sagesse est mystérieuse.
 
 Invocation. O Peur, Peur auguste et maternelle,
@@ -1071,35 +922,24 @@ Je n'aime pas les enfants qui, se cherchant, se
 fuyant, courent et poussent de grands cris dans les
 rues. Le monde est plein de choses hostiles et redoutables.
 
-M te AIN nu DIN eee ro eu
-1e | Re
 ei De PR Core PR nt OR HAE
-Er LA 1) TER RS ON
-« | ARR RTE Le ARR ARR
 Ce ANNAAE LA NAT Ren) re
 AA Fe Le eu D US trés Rs
 AL EPA À der Une ‘LAMES Fée Es à
 ARE AA ti te Qi AL ee AA 1 l
-1 MAN 0 AUS EE Pa Ex
 Es 8 CARO LES RE PC a ee here EN PL Rd de vel re: (RE OR De AUS
 
 RE PL QT ol een ERA AU Un Aire
-dei LS UT pr (h. SPRNSPeS
 A nn AL « ar gif NE
-LR AL NC AA TO A A Pate
-PL me TC NS FI SRE CAES
 
 Enfin nos abonnés seront heureux d'avoir en ce format
 de volume le discours prononcé par M. Anatole France,
 membre de l'Académie française, Président de la Section du quartier de la Porte-Dauphine (seizième arron- ï
 dissement), à l'assemblée générale extraordinaire, du
-20 avril 1902, de la
 Ligue française pour la défense
 des Droits de l'Homme et du Citoyen.
 Comme le porte le procès-verbal de la méme assemblée, le discours que l'on va relire a été affiché par les
 soins de la Ligue.
-
-Citoyens,
 
 Il y a un petit conte de nourrice qu'on retrouve
 chez tous les peuples. C'est celui du lutteur merveilleux. Dans une version lorraine, je crois, de
@@ -1115,7 +955,6 @@ griffes horribles. Pourtant ils furent vaincus, et
 voici qu'ils renaissent, pour une autre lutte, avec
 des plumes lisses, un air de familiarité, une voix
 domestique et paisible. (Rires prolongés) Quelle
-merveilleuse transformation !
 
 Sous leur première figure, il vous en souvient,
 citoyens, c'étaient des Hippogriffes et des
@@ -1131,7 +970,6 @@ par-dessus les toits, comme M. et madame Gayant
 dans la vieille ville de Douai. Les badauds, les
 marmitons, les petits garçons des jésuites lui
 faisaient cortège en poussant des cris aigus. (Vifs
-- applaudissements)
 
 Aux obsèques du président Faure, ce fut un beau
 vacarme. Un cheval se mit de la bande, un cheval
@@ -1147,7 +985,6 @@ de Gargantua et voulait avaler le Parlement tout
 entier. On craignait que du nouveau président
 il ne fit qu'une bouchée. « Ce pauvre M. Loubet,
 
-DISCOURS POUR LA LIBERTÉ
 disait-on, n'a plus que la ressource de se loger dans
 la dent creuse de l'ogre. » (Rires)
 
@@ -1173,8 +1010,6 @@ est de radicaux pour les électeurs radicaux, de
 socialistes pour les électeurs socialistes, de libertaires pour les électeurs libertaires. (Applaudissements répétés) En cherchant bien, on découvrirait des candidats qui se disent impérialisies
 | nationalistes républicains et des candidats qui se
 
-Anatole France
-disent monarchistes nationalistes républicains.
 (Applaudissements et rires)
 
 En entendant leur nouveau langage, en voyant
@@ -1200,8 +1035,6 @@ se couler par la fente des boîtes électorales. ( Applaudissements et rires pro
 C'est la procession de la Ligue qui passe. C'est
 l'armée des moines. Ces gens-là sont tous au ser-
 
-DISCOURS POUR LA LIBERTÉ
-
 vice des moines. Quand ils vous disent qu'ils sont
 républicains, c'est la République des moines qu'ils
 entendent vous donner; quand ils réclament la
@@ -1210,10 +1043,8 @@ liberté, c'est la liberté pour les moines d'échapper
 les enfants dans la haine et le mépris de la société
 laïque, et s'ils vantent la tolérance, c'est qu'ils prétendent obliger la République à tolérer les attentats
 des moines. (Applaudissements enthousiastes et
-répétés)
 
 Ils sont les candidats des moines de toute robe,
-noirs, blancs, mi-blancs, mi-noirs, noisette, figue
 etraisins secs. Leur liberté a un nom. C'est la
 liberté Falloux. Ils sontles candidats de ces moines
 qui ont dévoré l'Italie, dévoré l'Espagne, et que la
@@ -1225,15 +1056,10 @@ contre la France. Ils sont les candidats de ces
 Assomptionnistes, de ces frocards féroces des
 Croix qu'on vit, il y a trois ans, allumer la guerre
 civile dans la nation qui les avait accueillis.
-(Applaudissements)
 
 Ils sont les candidats des moines qui, pour payer
 
-65 IV.
-
-Anatole France
 les frais des pieuses candidatures, mendient à leur
-manière antique, amplement, universellement,
 catholiquement. Ils sont les candidats de la Pairie
 Romaine. (Applaudissements répétés et rires) Ils
 sont les candidats de ce cléricalisme violent et
@@ -1246,7 +1072,6 @@ Citoyens, prenons garde ! Quand le cléricalisme a
 mis la main sur un peuple, il le tient ferme. Voyez
 la Belgique. Il l'a surprise un jour; il l'a gardée
 vingt ans. Et qui sait, hélas ! ce qu'il faudra de sanglants efforts pour lui faire lâcher prise. (Vifs
-applaudissements)
 Citoyens, vous voterez, contre les nationalistes,
 pour les candidats vraiment et intérieurement républicains; non pour ces tristes et pâles candidats,
 qui floitent mollement entre le nationalisme et la
@@ -1256,9 +1081,6 @@ les oppressions et toutes les iniquités. Vous les
 donnerez au candidat qui, radical, radical socialiste
 ou socialiste, réclame la liberté véritable, celle qui
 ne reconnaît pas de liberté contre elle. Vous les porterez hardiment jusqu'à ceux qui s'efforcent d'insti-
-
-ARR nl 0
-DISCOURS POUR LA LIBERTÉ
 
 tuer la justice sociale dans sa plénitude et de préparer
 la paix universelle par l'union des travailleurs. On
@@ -1271,7 +1093,6 @@ première cité. Il faut plaindre le parti politique
 qui n'a pas ses utopistes. Des rêves généreux.
 sortent les réalités bienfaisantes. L'utopie est le
 principe de tout progrès et l'esquisse d'un avenir
-meilleur. (Applaudissements répétés)
 
 Vous voterez pour les candidats de la raison et
 de la science, de la paix et de la justice, des nobles
@@ -1306,23 +1127,17 @@ malheureux justiciable qui en fut la victime.
 républicaine qui symbolise à cette heure les idées
 de progrès moral et d'émancipation intellectuelle. » *
 Fini d'imprimer trois mille exemplaires pour la
-1 12 PB
 première édition le jeudi premier mai 1902
 à l'Imprimerie de Suresnes
-(E. PAYEN, âdministrateur)
 9, rue du Pont
 
 NE de
 LR 1 pet ent Un RSC AE EN û Dei
-di A AU AE NN Aat
 
-TR ARR A A Ut
 a LR AUS Dre PE es Ten Wa dé La M nl SCA A AO EE RES
-1 A ASPE PIORRE 10 PP NONNNnSS Rene ones
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration : ces fonctions
-demeurent libres.
 
 Nous servons
 des abonnements de souscription à cent francs;
@@ -1342,7 +1157,6 @@ Nous ne consentons des abonnements de propagande .
 que pour la France et pour la Belgique.
 
 Nos cahiers étant très pauvres, nous ne servons plus
-d'abonnements gratuits.
 
 Nous acceptons que nos abonnés paient leur abonnement par mensualités de un ou deux francs.
 
@@ -1356,7 +1170,6 @@ M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de
 huit heures à onze heures et de une heure à sept
-heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction le jeudi soir de deux heures à cinq heures.

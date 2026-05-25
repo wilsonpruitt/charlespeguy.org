@@ -7,14 +7,9 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 2440
 ---
-
-*Charles Péguy*
-
 La Petite République datée du mardi 31 juillet donnait le texte du discours prononcé l'avant-veille à la
 salle Wagram par Anatole France pour la célébration
 de Diderot
-DIDEROT, AMI DU PEUPLE
-Citoyens, -
 
 Des maîtres, qui sont nos amis, viendront ici nous
 parler de Diderot philosophe et de Diderot savant. Ce
@@ -53,22 +48,16 @@ dresser des tables et de les définir, de converser avec
 ceux de qui on avait obtenu des mémoires, et (précaution presque indispensable) de rectifier dans de longset
 fréquents entretiens avec les uns ce que d'autres avaient
 imparfaitement, obscurément et quelquefois infidèlement
-exprimé.
 
 Et Diderot ajoute
 On enverra des dessinateurs dans les ateliers; on
 prendra l'esquisse des machines et des outils; on
 n'omettra rien de ce qui peut les montrer distinctement
-aux yeux.
-
-Citoyens,
 
 l'heure où les ennemis coalisés de la science, de la
 paix, de la liberté s'arment contre la République et
 menacent d'étouffer la démocratie sous le poids de tout
 ce qui ne pense pas ou ne pense que contre la pensée,
-
-10e POUR ET CONTRE DIDEROT
 
 è vous avez été bien inspirés en rappelant, pour l'honorer,
 
@@ -76,7 +65,6 @@ la mémoire de ce philosophe qui enseigna aux hommes
 le bonheur par le travail, la science et l'amour et qui,
 tourné tout entier vers l'avenir, annonça l'ère nouvelle,
 l'avènement du prolétariat dans le monde pacifié et
-consolé.
 
 Son regard pénétrant a discerné nos luttes actuelles
 
@@ -90,7 +78,6 @@ où le préjugé les a tenus si longtemps. »
 
 Voilà donc au milieu du dix-huitième siècle, les métiers
 honorés, chose étrange, nouvelle, merveilleuse. Les
-artisans demeurent humblement courbés sousles dédains
 traditionnels. Et Diderot leur crie : Relevez-vous. Vous
 ne vous croyez méprisables que parce qu'on vous a mé-
 prisés. Mais de votre sort dépend le sort de l'humanité
@@ -102,7 +89,6 @@ qu'on paye au jour la journée. Cette espèce d'hommes
 forme la pius grande partie d'une nation; c'est son sort
 qu'un bon gouvernement doit avoir principalement en
 vue. Si le journalier est misérable, la nation est misé-
-rable. »
 
 Est-ce trop de dire après cela que Diderot dont nous
 célébrons aujourd'hui la mémoire, Diderot mort depuis
@@ -119,12 +105,10 @@ pourraient la retarder. Elle est certaine parce que la ‘à
 nature même des choses et les conditions de la vie l'or-
 donnent et la préparent. Elle sera méthodique, raisonnée, harmonieuse. Elle se dessine déjà sur le monde
 avec l'inflexible rigueur d'une construction géométrique.
-ANATOLE FRANCE
 Le Socialiste (1) du 5 août publiait dans sa Semaine
 le commentaire suivant
 Les journaux « socialistes » ont fait les honneurs de leurs +4
 colonnes au panégyrique de Diderot prononcé par le
-« socialiste » Anatole France.
 Le discours est joli. IL s'y trouve une belle citation, où
 l'auteur du Supplément au voyage de Bougainville définit
 le « journalier » de son temps, celui qui devait bientôt
@@ -140,13 +124,11 @@ du prolétariat ».
 
 () Nos anciens abonnés se rappellent que le Socialiste est l'organe
 officiel du Parti Ouvrier Français.
-POUR ET CONTRE DIDEROT
 
 Quand c'est précisément l'essor de l'industrie, dû à Ja
 prise de possession du pouvoir politique par le Tiers, qui
 a achevé de dégager du milieu économique le type de
 « l'ouvrier libre », entièrement séparé des moyens de production et ne vivant exclusivement que du travail de ses
-bras.
 
 Confondre avec le mouvement « socialiste » la préparation de la victoire de la bourgeoisie révolutionnaire, qui seule
 a fait naître les conditions où pouvait plus tard se produire le socialisme, c'est ce qui vraiment n'est pas permis
@@ -156,7 +138,6 @@ Le prospectus est de novembre 1750.
 
 Nous lisons de d'Alembert dans le Discours préliminaire des éditeurs à l'Encyclopédie
 — Tout nous déterminait donc à recourir aux
-ouvriers.
 
 Mais il est des métiers si singuliers et des manœuvres
 si déliées, qu'à moins de travailler soi-même, de mouvoir une machine de ses propres mains, et de voir
@@ -170,7 +151,6 @@ Plus loin
 On a envoyé des dessinateurs dans les ateliers. On a
 pris l'esquisse des machines et des outils; on n'a rien
 omis de ce qui pouvait les montrer distinctement aux
-yeux.
 
 septième cahier de la deuxième série
 Plus loin : 7 À
@@ -200,28 +180,23 @@ sciences d'excellents mémoires, a fourni des éclaircissements utiles et import
 M. Goussier, déjà nommé au sujet de la coupe des
 pierres, et qui joint la pratique du dessin à beaucoup
 de connaissances de la mécanique, a donné à M. Diderot la figure de plusieurs instruments et leur explication. Maïs il s'est particulièrement occupé des figures
-POUR ET CONTRE DIDEROT À
 de l'Encyclopédie qu'il a toutes revues et presque
 toutes dessinées; de la lutherie en général, et de la
 facture de l'orgue, machine immense qu'il a détaillée
 sur les mémoires de M. Thomas, son associé dans ce
-travail.
 M. Rogeau, habile professeur de mathématiques, a
 fourni des matériaux sur le monnayage, et plusieurs
 figures qu'il a dessinées lui-même ou auxquelles il a
-veillé.
 
 On juge bien que sur ce qui concerne l'imprimerie et
 
 la librairie, les libraires associés nous ont donné par
 eux-mêmes tous les secours qu'il nous était possible de
-désirer.
 
 M. Prevost, inspecteur des verreries, a donné des
 lumières sur cet art important.
 
 La brasserie a été faite sur un mémoire de M. Longchamp, qu'une fortune considérable et beaucoup d'aptitude pour les lettres n'ont point détaché de l'état de ses
-pères.
 
 M. Buisson, fabricant de Lyon, et ci-devant inspecteur
 des manufactures, a donné des mémoires sur la teinture, sur la draperie, sur la fabrication des étoffes
@@ -243,7 +218,6 @@ septième cahier de la deuxième série
 et démonté plusieurs fois, en présence de M. Diderot,
 le métier à bas, machine admirable. | K.
 
-M. Pichard, marchand fabricant bonnetier, a donné
 des lumières sur la bonneterie.
 MM. Bonnet et Laurent, ouvriers en soie, ont monté
 et fait travailler, sous les yeux de M. Diderot, un
@@ -256,8 +230,6 @@ M. Fournier, très habile fondeur de caractères d'imprimerie, en a fait autant 
 
 M. Favre a donné des mémoires sur la serrurerie, 4
 taillanderie, fonte des canons, etc., dont il est bien
-instruit.
-M. Mallet, potier d'étain, à Melun, n'a rien laissé
 désirer sur la connaissance de son art. : .
 
 M. Hill, Anglais de nation, a communiqué une verrerie
@@ -273,12 +245,10 @@ qui concernent la pêche et la chasse.
 Enfin, un grand nombre d'autres personnes bien in- ,
 tentionnées ont instruit M. Diderot sur la fabrication
 des ardoises, les forges, la fonderie, refenderie, tréfi-
-lerie, etc.
 Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
 IMPRIMERIE DE SURESNES (G. RICHARD, administrateur), 9, rue du Pont.—4014 F
 
-Hu INDES Ds ere robe d *
 + Nous prions ceux de nos abonnés qui nous envoient +: (10
 à des documents et des renseignements de vouloir bien
 écrire très lisiblement et d'un seul côté de la page.
@@ -292,7 +262,6 @@ installées 16, rue de la Sorbonne, au second.
 a M. André Bourgeois, administrateur des cahiers, Ë
 reçoit pour l'administration tous les jours de la
 semaine, le dimanche excepté, — le matin de dix
-onze heures.
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction k
 le jeudi soir de deux heures à cinq heures et de pa.
@@ -315,21 +284,16 @@ exemplaires en double ou qui ne tiennent pas à garder.
 leurs collections de vouloir bien nous les renvoyer.
 Nous avons donné le bon à tirer après correction pour
 seize cents exemplaires de ce septième cahier le samedi
-He 7rnars I9O1I.
-PR. Pons #
 . Nous prions nos abonnés de vouloir bien acheter leurs
 livres à la a.
-Librairie
 des Cahiers
 
 Nous faisons dans nos bureaux les plus fortes réductions usuelles, c'est-à-dire que nous y vendons les livres ‘1
 
 exactement aux prix de l'Odéon.
 Nous envoyons franco à domicile à Paris aux mêmes
-conditions. PS EL F2
 Nous envoyons franco à domicile en province et à s
 l'étranger aux prix marqués pour toute commande
-inférieure à onze francs.
 Nous envoyons franco à domicile en province et
 l'étranger avec les plus fortes réductions usuelles, Me
 c'est-à-dire exactement aux prix de l'Odéon, pour toute 2: 2808

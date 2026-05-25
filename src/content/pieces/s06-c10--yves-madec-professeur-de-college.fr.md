@@ -7,79 +7,14 @@ author: brenn
 isAvertissement: false
 wordCount: 13590
 ---
-
 te RTC RES ne AE MER LOS CE vds
 | LT SR A nS
-Le TR CR A
-AY PILE 1e CESR Re 0 Le
-PF LECT LREE CE, è : : “
-D BRENN N ENRC MES
-LH LPAT Nes + : ù s
-118 ANS FSC k : / RDS
-per Nat à = (
-F9 ÉR Ke " 4 : %
-MPROFESSEUR DE COLLÈGE
-PIB vi
-DA } FA i } ©
-L LT, ro F s {
-__ CAHIERS DE LA QUINZAINE : J 4
 M Du paraissant vingt fois par an Nr -
-D PARIS a
 >, rue de la Sorbonne, au rez-de-chaussée
 
-ERA UT AN AR DR MR EPS at ONE AA e Dir Ë
-LEGNAPENS RÉPÉNALATEEN RM ST RTE RÉ CARE RAT : STATE }
 ne RUE NU RE ETA 9 SA RUE KT LS RO ES VI PUA à Has AE É
-TR AN S ER HAR PT sc SE à
-ANT NV <. ÉD AL nier
-ee RL N ; Û RE TN + 4208 !
-JS PTS AN LHC RITRUNER
-y PE At F } 5 ; CR EMA 2 AGE
-MENT 2 s ) RC RE .
-MTS "LIN { rat tp 579 092 (RIRE Lars
-DIET: ET AT 0
-St LIEN + F'AGIAA IP ONE AM
-ÉREUUR d L'INN ON
-LOT Lit ER
-ee ; s" { an à Top Fe PAPAUS
-ARR $ É | CARPE REtEA
-HAT ») ; ? 3.2 PRE CAES LS À
-Wire à Pr VE l'ARN L :
-APT ES à x NM EE ts SEUCR ;
-Hit re a & Jn4 ApuS ia
-fi, > RS REX ! AN & | trÈ UE Arr Su
 L RÉF) > L PUS ait r FORTE
-28 LE # , 314" L
-CU 16 Ta ? 7,
 
-OA PRES ANR Un RU PTT
-Liu ER ARS AA EE
-CAN APRES LATE PSE ART RENTE CE ES AE NE
-D Ghoous
-A ARE 0 PAIE ; AE LE
-te CU CS SEE 1 " FA
-RES: S A : ERA
-140 M es
-[CRC { F
-* 4 F à < , =
-12 aux ù
-M) ky AOD
-1 1 COR ND ÿ
-3 *. b- à $ h,
-A A 2 NE
-« 20088 ñ dép
-RL. - # ACT
-RU C
-EN RS
-Pas D | U x
-EPA FA « x
-, 34:00 Se
-73" 27 7%
-:TENOREES À es
-2 #"] L *
-LATTES : ï D 'YRS
-
-à 4 7 EST ]
 Nous avons publié dans nos éditions antérieures et #
 dans nos cinq premières séries, 1900-1904, un Si FE
 grand nombre de cahiers de lettres, — nouvelles, ,
@@ -109,80 +44,14 @@ toute personne qui s'abonne à la sixième série Le reçoit,
 par le fait même de son abonnement, en tête de la 4
 série ; nous l'envoyons contre un mandat de cinq francs 4
 à toute personne qui nous en fait la demande
-{
 
-Ra ee a 2 OR M TE UE
-Se as 24 FA RENAN MAS CRETE tr 4
-RU. 5 ÿ à
-"TA - |
-s DEL. ‘ SN
-"Rs
-« * £
-: API Ë ÿ
-FT : A
-DS. g OS
-FI) ‘ ë
-PAR |: è x
-. CREER . x
-DT = ré
-HE RE.
-RS .
-+ 7 al (
-: Les : L \
-De : Are |
-+2 TE
-D Ce,
-VAS - É
-78 er 5 : LS
-RME > A
-D à he
-A FR oi PAL
-ER 4 rte:
-RTS: Fe ë
-__ 1 + Es "pe AY
-4 Due + MT
-4 TL FR a
-per”, : - : MR
-< 50e k . MASSE
-2 TR ES :
-= VF ; DS
-a © © . 4 er OURS
-
-: PERRET TRE TON PU ES 2, FRERE
-ALT s 1547 2 SR PAR
-SRE LP k FAT Ke ÿ
-ARTE + RE RE En Le
-RE 7, F NT
-n: is : : PRES
-LIRE - Perte e Me” a
-“10 : Fe
-a Hi g ; É PARUS RARE
-ir 248804 Ô 5 E
-Re ee + CRETE Era
-ALP < NS res A
 TANT + HE eat AS
-2, 32088 ; LA SRE
-ESS Re Pet
-4 vhs ST
-, Fa APE ITS à
 > Û ci: 4}, CREER EE HER
-« 5 “788 ER ARE
-ee Frpees CRE %
-; ASS HOME EE
-r ve ‘ Se VEN AARE RE
-Fr CR N ge ) TBE.
-PRO ES LR TT STRESS
-L'ANPE RU
 
-MATE Et 5;
-_ Cnarzes PÉGUY
-D UN NOUVEAU JEAN COSTE
-ra. HR À
 _ Je vois qu'il faut que les auteurs pour qui je travaille
 _ comme gérant me pardonnent beaucoup ces quinZ aines-Ci ; je n'ai déjà pas fait le cahier de la délation
 aux Droits de l'Homme ainsi que Bouglé se le repré-
 _ sentait ; et voici qu'aujourd'hui je manque de parole à
-C2 LA
 _ notre nouveau collaborateur Brenn. j
 _ Il navait demandé de présenter Yves Madec au public
 de s cahiers ; je le lui avais promis formellement; je suis
@@ -194,9 +63,7 @@ _ compagnie; je me proposais, m'appuyant sur ce fragment de réalité qu'est Yve
 to ut ce qu'il y aurait à dire du collège, de l'enseignement
 au collège, de l'enseignement secondaire, des petites
 villes, des arrondissements, des chefs-lieux d'arrondissem ent, de la politique dans les chefs-lieux d'arrondis138
-5: v a. de
 
-Charles Péguy
 sement, de la vie locale, des U. P. locales, des sections Fe
 locales de la Ligue française pour la défense des Droits
 de l'Homme et du Citoyen, de la vie universitaire, du
@@ -214,7 +81,6 @@ on me le permet, nous allons profiter de ce que ces
 quinze ou dix-huit cents pages m'interdisent d'écrire un É
 peu pleinement pendant trois mois pour mettre au pair 1
 un certain nombre de travaux qui restaient en souf- ;
-france.
 Demandant à nos abonnés comme auteur ce congé de F:
 trois mois, je pourrai consacrer entièrement ces trois à
 mois aux devoirs de ma gérance; il faut que j'assure la . À
@@ -225,7 +91,6 @@ procéder à une réinstallation, à l'installation définitive È
 de nos cahiers. 1
 Pendant le commencement de cette sixième série {
 
-UN NOUVEAU JEAN COSTE
 même, et sans qu'il en soit résulté aucun dommage pour
 
 À la fabrication nous avons pu procéder à une réinstallation
@@ -236,7 +101,6 @@ _ trielle; avant la fin de cette sixième série, et sans que
 _ notre institution première en subisse aucun dommage,
 nous aurons achevé une réinstallation commerciale et
 d statutaire complète, une définitive installation commerwe ciale et statutaire.
-+ s
 : Je ne crains pas de le déclarer, le cahier que l'on va
 _ lire est un nouveau Jean Coste; j'entends qu'il est pour
 la vie du professeur de collège exactement ce qu'était
@@ -254,10 +118,6 @@ moyenne dans la vie du professeur de collège.
 “—_ image vraie de toute une réalité, de toute la réalité de
 : l'instituteur de village; il est une image vraie d'une
 É partie de la réalité, d'une réalité partielle en extension,
-\ vu
-
-Var
-Charles Péguy
 
 d'une réalité exceptionnelle ; et il nous ouvre des jours
 sur tout le reste de cette réalité. :
@@ -276,307 +136,56 @@ le roman est de juin 1903; j'avais la copie depuis ce
 temps ; l'auteur n'y a pas changé un mot; certaines indications que l'on trouvera dans ce cahier, et qui se
 sont vérifiées depuis, étaient donc bien des prédictions,
 résultant de prévisions, et ne forment nullement des
-jeux d'actualité.
 
-CHARLES PÉGuY
-
-4 VONOPS LTD PORT
-D D RON CE À PS UP EST OHEOPN
-(arfs Pris Dr VE RAS US RSA BU PRE ; LS
 2 PCR es ET TO £ de
-MORE } +. | : 3
-1,4 HS d
-LES
-+ af Le ï
-S'NE >
-AE
-8 à
-ER
-MD l
-FANS
-ee. F1 00
-Ne :
-Res, ;
-Me < Mi
-… ER
-"1 « Un *., F à |
-Me: 3 ;
-‘à +8
-15 RS a
-3 (7
-TS d 1 : É pis = Don
-de PA; de : 1 ; 4
-1 TA FOREST À L
 
 MS A Nan Le NS AVES Née EURE SRE NE EEE Re EU
-LE HIER PRE NE D EN CESR
 >: Fe En F CREED 4 < 4 20 SU 0 RME MEMEEE
-DR Nr rome RS FT EUTRTRSSSREREE
-1 AI M > ER ÿ LT CETTE
 LÉ REZ RE RE UN re ÉATIESE
-TOR à 7 re e M D
-ROSE | \ EAST R TRE REINE
-“ALUET SES % à 4 ; à NES M .
-13, PTS : : ET PRET Hs AE
 NÉS à es A ne de
-TR \ ë k SV 2 FREE STE AR RER
-ANNEE : : ra 12 RAR DPNENEEE
-À SEE à a CRT ANT OEMERRSERS
-RARES ? he, SE a LIRE NAME
-+ SE $ DES : LH TES MUIIEREMENERS ES
-LENS SRE < 2 2 ; TS LP ANS UE
-(a T TER ; > É LEE FE ET RTE ER
-AN: à e : é f Le: Rene LES TAN ME £
-8 x ° pa 4 z #2 Die EP El
-« He TA ST 6 & STI PTT NN EEE
 de > pre + ; RSS ISERE SES
 r > nn FH LT VAENT L
-MARS m0 ue ALTER + LC EF ERREURS
-1. KLTEN ONE 2 te E ER Re PA RO ST EP SON
 
 D de ART en "10
-à PAR NE UN SÉREN » EN NUE RP Tr LA 7
 PR ee ne re RE NS EE
-NE CPE Pa RD Bet AA RS AR 1e GUN TT Gr AMAR ECS De An
 LR LE TS SIENS Poe re TA nt Ô < Se CELL
-Ér RS: LOVE PET RTE re LÉ & real
-A RP 7a T2 Lis : pe BE si à
-SENTE > PAT L : r es MAC
-Re | _ x à FES
-ART 2 2 >
-Tee PERLE ; Ê 4 es
-ET - Le à \ : Su :
-“ES $ - M = 2 :410E68
-1 TEE 16 : < RSA,
-x (45e, EU MIE, a . * 4 Ha e.
-LÉ ESS We ; PESTE SICRSS
-SES 2 £. 14
-LEE AT RON c r ee + HA
 | NF | | 2
-MALO 2 RSS * w. . +"
-CRE at € LS te 4 LT
-ë Jeu? FLE à û : i 2°730
-‘ à LA Sd s F Lac à k A,
-CC CÉOEN e LES
 î ne AIN RE CURE ONE RNA CE S Pc va ad LAS
 +. TTENEIRRERES Ten de ARS, NS FR k no. Fe:
-INRP TRS RR ET, RS PRET UN EU FÉCHEERES
 UT SAR SAS NE 9 eau AL SEL NS TN PTS “LG
-ER we 1 { MC, ÿ AAC EE TIR ANS 11780 #
-SRB PEL TT Loue RTE RAT or EX RES Re
-NRE LÉ ERNEE Ne TON RAP SE VE LG POLE A : 077 ht.
-” F BE MATE Fe PE PRE | F LETTRES
-CON er CAROL AT <a T * L, = FRE 1 4 27408)
 
-ANNEE TN AR ANT QE EE ME EN TE OA
 eg ge PONUIERS OS ARS PEAU Tes PR ÉD MONS Er er AGE 0
-ENS A RANCE MAIRES AS AS ER HORDE
-ons : g : SR ra MAR ENCRUEOT +
-" e ' + TETE NRC
 | FA ARS LANTERNE
-HE f pe v 4) ES CET
-an TPE CN ER
-é x DRE ONT
-5 & ; à IS À
-L ‘ Ah me FE
-: 1 - à YA LEE
-"AA È \ STOM 2 MS ie
-5 ;: £ DA:
-ir ë aie (Nes
-AT 5 Co A SEP
-La : DURS
-Les + RES 4
-s Ke
-, cs : Re
-84 “ r x « SA SEA
-N e r. 4° x il
-2 5 y À CS TR
-3 p AR
 “RTE Der Lu L
 “h ze TES
-Le É LENS RE
-L ; CT Et: PRET
-PP ENTER
-À ï . « NL, wii FES
 Le : PAS dl re EST RES
-+ ru 2 aies Î
 
-x NA A AT PES pe LE, .# RU L END
-
-4 1 CMS CSS \AT4S (2e
-LRU TNA 38h
-DRE PTE FER
-DL UEE à +62 î à Rein:
-
-SOLS — Fr “ Nr
-
-£é Hi: Fu 4
-NE À Ke
-+ FF . LS
-
-1: QE 1:\V 5
-Do - es Madec ‘248
-ANA 1 (A E EX +
-11e TRE s
 140 professeur de collège ÉR :
 
-y L n Re
-De D
-À LATE ee
-
-+ #4 LCR ne
-
-+ F0 1 | 4 1730
-
-Lee nr. f AA
-0 VS
-
-À CIRE é 4 É UNS :
-
-CRE £ net
-Pr J TNOE
-
-\ * 40e N 1 HER
-
-“À ET t Le e 0
-
-wie FANTAT ÿ Te |.
-
-À PL “: : Men 7) 4 ED €
-TE 4 " Ut LAEA
-FE .
-L: | DITS ET TR $
-LA à : ; ‘ à ;
-Pat: .
-EAPUr | 4
-: Rx Pal Fe
-à | ) LA TENE
-an = | :
-tre ' , BR VUE Ÿ
-J | h }Y4 TPE ES
-A + ER | 4
-À À : FUN
-: | É $ EE ARE
-dy ‘ 4 à ;
-4 “SA
 L NL RE ue
-1: ER | | ; ‘4
-AN | oi
-LS ï. at Me
-” \ FA? | : | 1 :
-D: . ON : <ALÈRS
-Mn CAS
 
-AA OT OR Ne OU SORA RL DUREE PES PO NP RSS
-M. DS VS LR —
-1 4 0 Me »
-18 PA, Fe 4
-AS AT SAC
-Dar + Ru: 6
 | TS Lemieux était certainement,
 “Ve sans frapper la vieille Sor1000 bonne, de lui élever en face
 0 j une vraie école de science,
 ARE école laïque, gratuite, qui en-
 : FH seignât pour tous, librement,
-F1 DÉS: en pleine lumière, à portes
 LR ouvertes! et fit déserter peu
 TE à peu le nid des chauvesTS souris.
 ue” Rien n'indique que le roi
 54e s wait bien vu ni bien compris
 D — un but tellement élevé.
-+
 0 (Histoire de France —
-0 Réforme en France
 : et en Angleterre —
-154 chapitre xvrr)
-+15
-RAA :
 Les
-Se
-Eu 1 ê ;
-50 À
 
-ou ‘
-: 11e
-US à
-MR
-
-SLMRNIERSS A ment A re EE FPT OPUS 0
-RATER nent AIRE OP TOP ER MONTS LU ARE
 | HN MOSS) ART ge Ne SVT LENS ONU na HR TEVOR
-LRO ES EVA RE TOR AAA ee 2) FA NET
-1 VON : AO TÉRNS Fe
-:., COTES 1 st TRANS PA
-KA Lu er LAN SEEN
-ni À T4 d Li RU A
-RUE ‘ MONTRE TETE Lx
-5x8 ; “ AR CR à
-Pare M RU en ro -
-AL h Lo N
-Des 20 à MONTE
-Mur ; Er
-+ TOME (4 LME 2
-:; 2 4 , 174 SE
-OR RATS
-HE * V ? WT ve rés
-T'ES “ 2 RE IS
-nes d SATA
-HAE CR D
 ce THE + MDN ER
-LS ” $ +; SONORE
 de PE FPS ATSaNRS a
-- Le ï OCEAN.
-ARE $ + HE
-LR à À 4 £ : dE PA
-"AR c : ARE VE
-! né TRES À y PACE Ft
-ECUER : Fe d ‘ x * We A
-ER : + Se INR NT 0 ee
-EN : É Ne : 4 CEN
-11 PTE à j \ G
-JF STE r NUIT MeS ARE
-: RAR AE A A
-31 AMIS ÿ " RE LL. Nr L
 
-\ AA ACT et J
-SOA PES US * ar MUR
-AAC CA AS PNR ETS RATES
-1e Ni UT TT ENS RE FN AE Fe x
-134 CR ! ; di CAEN F'AAEAT "KA
 TES É rt at ;
-L. MAUR
-à + * & “AS d
-1, \ ru ;
-LR L 4 ; | | -
-4 : 271
-DURE, 2 : à
-CR Fe
-PE TR de 4
-k 22 M | L ;
-Fe k à 2
-LT A | : . x
-SRE LA é .
-‘| EEE ..
-RTE “/
-À TN AS À | È
-‘14 : SR GER
-+ AP ; | "
-. } 'ALELA
-à fi i' 3 PTE TE
-AU: 1 |
-pes 7 1
-Us b | | a
-Ye FER | 4
-MT e à +< | Fa
-118 pee : |
-RATES | 4
 ii ve DE
-ÿ tin APR
 
-Lu HS RETARD
 |
-CHAPITRE PREMIER
-En route
 Yves Madec était seul dans le wagon de troisième
 classe du train qui l'emmenait loin de Bretagne, à Villetaupier, où il venait d'être délégué à la chaire d'anglais
 . du collège. Il avait trente ans. Il était de teint hâlé, et
@@ -598,8 +207,6 @@ j' maisonnettes, tandis que, des lointains, semblaient
 …_ accourir vers lui, à la ronde, dans un mystérieux glis-
 # sement, des contrées nouvelles.
 “ Yves songeait à sa vie passée. La nomination minisoi)
-
-Yres Madec
 
 térielle, si longtemps attendue, venait enfin de le délivrer à jamais du dortoir. En ces trois dernières années,
 
@@ -639,8 +246,6 @@ n'est dans quelque café de la ville, un jeu de manille à
 la main; par où, dès cinq heures du matin, et dix fois |
 par jour, s'en allait s'alcooliser dans quelque bouge,
 
-à 7 554 dl
-3 EN ROUTE
 derrière la caserne d'infanterie, le surveillant général,
 un tout jeune à longue barbe et aux beaux yeux noirs;
 par où il revenait à toute heure, titubant et jurant,
@@ -671,9 +276,7 @@ _ menacer de le « rosser » après le baccalauréat, parce
 à qu'il surveillait étroitement son jeu malsain d'agace-
 … ries avec un très jeune, pâle et frêle, de son étude.
 _ ‘Trois ou quatre fois il en avait parlé au proviseur. Il
-ja 9 1.
 
-Yves Madec Nr
 les avait montrés tous deux assis l'un près de l'autre À
 sur une même pierre, dans la cour de récréation, objet à
 de scandale, de rires, de chuchotements pour les ca- Ë
@@ -704,11 +307,7 @@ pouvait sans écœurement se rappeler les scènes du ré-
 fectoire des maîtres. De onze heures à une heure, dans 1
 la salle étroite, à deux tables parallèles, des répéti- 1
 teurs entraient, par groupes de quatre, cinq, claquant |
-10 |
-4 |
-À
 
-EN ROUTE
 la porte, hurlant, flanquant les chaises à terre, à coups
 de pieds. N'ayant qu'une brève demi-heure pour leur
 repas, on ne les servait cependant qu'après dix, quinze
@@ -751,13 +350,9 @@ s lait, brisant assiettes, verres, bouteilles, répandant le
 
 “ vinet l'eau, dans un charivari épouvantable, au milieu
 
-II
-
-Yves Madec ‘4
 de cris féroces. Parfois le censeur, grand, gros, rouge, 4
 le haut de forme sur le front, paraissait, haletant : 3
 — Ignoble ! messieurs. Dégoûtant !.. On appelle le 3
-quatre !.… à
 Et la porte claquait derrière lui. Après un demi- t
 silence, les hüurlements recommençaient : |
 — Brute ! Va donc, eh ! jésuite ! F
@@ -769,13 +364,11 @@ humains, qui se soulageaient ainsi ! 4
 Un seul collègue encore, — mais ses élèves surtout, — 4
 avaient été sa consolation. Il avait une étude de trente
 cinq « grands ». Philosophes, vétérans pour Normale- à
-sup., mathématiciens. ;
 Le proviseur l'avait prévenu que c'était « une collec- 3
 tion de mauvaises têtes ! » Yves y était entré anxieux. 4
 Plus tard il avait compris ce que M. le Proviseur vou- l
 lait dire : l'Affaire avait influencé ces jeunes cerveaux. i
 Les deux études d'à côté étaient composées de quelque 4
-soixante futurs Saint-Cyriens. Élégants, parfumés, cra- :
 vattés, bottés, éperonnés, la cravache à la main, la bou- #
 tonnière fleurie, le monocle à l'œil, on les voyait aller à
 et venir librement dans les couloirs et les cours. Il était L
@@ -785,10 +378,7 @@ donnait des fêtes, aux anniversaires de batailles glo- A
 rieuses. Ils avaient un répétiteur spécial, particulièrement choyé de l'administration... Quoi d'étonnant à ce
 que les autres élèves — souvent plus travailleurs et :
 méritants, en tout cas plus modestes, et de droits
-12 |
 
-Lee VA RUN eve MP DNS É LS
-EN ROUTE
 égaux, ne vissent pas sans quelque velléité de révolte
 un tel étalage de privilèges en faveur de ces messieurs ?
 Un beau matin, philosophes, normaliens et mathématiciens se réveillèrent dreyfusards ! Il fallut les « mater ».
@@ -827,7 +417,6 @@ Yves se considérait, avec raison d'ailleurs, comme un
 privilégié. Il ne lui échappait point que la plupart de ses
 nouveaux collègues, — à moins qu'ils ne fussent d'an-
 
-Yves Madec Tec
 ciens admissibles à l'agrégation, — avaient passé huit,
 dix, et même quinze ans dans le répétitorat avant d'ob- e
 tenir la chaire de collège tant désirée. Lui avait
@@ -860,13 +449,7 @@ il n'avait pas été abèti dès l'enfance. F
 Sans orgueil, avec pitié, — et non sans indignation
 contre les contingences dont le mal dérivait, — Yves l
 comparait son sort à celui de la plupart de ses collègues, les autres professeurs de collèges. Ils arrivaient |
-14 ‘4
 
-- FN te RÉ GS SG 2 MAO Ve à K
-
-HAL ENEA RÉ TT Re LD SR UT { ' g
-
-EN ROUTE
 au professorat épuisés déjà, blasés, amortis, anémiés
 par la lutte quotidienne de toute une longue vie —
 enfance, adolescence, jeunesse — contre tous les vices,
@@ -890,26 +473,11 @@ _  missants de toute vie. L'Université ne donnait, — sauf
 
 … exceptions, — que des âmes aveulies, que des volontés
 
-…_ abattues… :
-
 ‘à Le train, fuyait, et Yves, engourdi un peu, se frottait ‘
 
 … les mains comme un homme de bonne humeur qui va
 
 _ mettre tout son cœur à la besogne..
-
-ri
-
-À
-
-; ”
-
-“à
-
-iæ = + te J
-%
-CHAPITRE II Fe
-Installation
 
 Bien qu'il plaisantät et rit très haut avec son ami
 Camille Devaiges, professeur dans ur collège des en- À
@@ -932,7 +500,6 @@ e2 Bretagne ! Pourvu qu'il ne fasse pas froid ici! C'est
 toute La grâce que je demande à ce pays de la vie nos- k
 Leurs pas, fermes et rapides, et leurs voix hautes
 remplissaient de bruit l'avenue déserte. Instinctivement,
-16 ; 0
 
 | INSTALLATION
 comme des gens habitués aux grandes villes, ils avaient |
@@ -958,11 +525,7 @@ __  d'allure vaguement académique, toujours un peu
 
 « fiévreux, dans sa hâte de trouver son collège, s'arrêta, |
 
-_ s'esclaffant soudain :
-
 & __ — Ah! Si c'était le collège! Regarde-moi cette mer-
-
-_ veille!
 
 ra Camille pouffa, égouttant le parapluie au-dessus de
 
@@ -993,8 +556,6 @@ la chaussée.
 — Pas si vite, reprit Yves; voilà une rue; attention!
 
 È | Une des trouées qui, de l'autre côté, leur avait semblé
-
-Yves Madec F 4
 
 trop étroite pour être autre chose qu'une ruelle, s'élar- 4
 gissait, en effet, en montant, avec une chaussée et des : 4
@@ -1038,12 +599,10 @@ Ils traversèrent ainsi la ville par le milieu sans le
 savoir, et se retrouvèrent sur un point d'un de ces
 boulevards circulaires qu'ils avaient aperçus à l'issue
 
-À è à INSTALLATION
 à de l'avenue de la gare. Là ils délibérèrent un instant.
 La pluie tombaït toujours abondamment ; ils songeaient
 à entrer dans quelque auberge.
 — Eh bien? Que faisons-nous?
-. Yves, en bon breton, s'obstinait :
 l — Je m'en moque! Filons par la gauche! Il faudra ;
 bien que nous dénichions ce collège! Allons par ici jusqu'à ce que nous retrouvions l'endroit d'où nous sommes
 v partis. Si nous n'avons pas vu ce sacré collège en
@@ -1080,12 +639,6 @@ d'une étable!
 …_ sonnette de deux étages, en tuffeau gris sale, coiffée
 4 19
 
-Sr L 2 + Fa, FÉERIES 4
-
-we Fe si à Fe a be
-
-Yves Madec ; È
-
 d'ardoises, près d'un long pavillon sans ouverture, 4
 
 d'une hauteur de premier étage, coiffé de tuile; sem- 3
@@ -1093,7 +646,6 @@ d'une hauteur de premier étage, coiffé de tuile; sem- 3
 blable à une grosse ferme flanquée d'une longue étable 3
 
 plutôt qu'à un établissement d'enseignement secon- 3
-daire.
 
 Plus ils approchaient, et moins ils pouvaient se convaincre. Le cœur d'Yves se serrait, comme s'il pressen- !
 tait un gros chagrin. Rien à l'extérieur n'annonçait que “04
@@ -1110,32 +662,24 @@ tants d'épaisse boiserie grossière et fendue, badi- Ë
 geonnés en rouge brique, boulonnés comme ceux d'une ;
 prison, étaient soigneusement clos. Ils se reculèrent
 pour inspecter l'entrée. Sur les pierres molles du linteau roman, des mots étaient peints en noir, à demi
-effacés : « Collège municipal ». x
 
 Il n'y avait plus à douter. Résignés, ils allèrent à
 une porte étroite et basse, ouverte, celle-là; toute
 proche du portail, et au-dessus de laquelle une plaque L
 carrée très noire portait des mots qu'ils ne distinguèrent
-point. |
 
 — Il y a tout de même bien un concierge, dit Yves.
 
 Il entra résolument dans une petite pièce ouverte
 tout de suite devant eux, à jour louche, à pavés de
 briques, avec une fenêtre donnant sur une cour inté-
-rieure.
 
 Cette pièce était meublée d'une table de bois noir,
 
 20 4
 
-r
-INSTALLATION
 au-dessus de laquelle s'étageaient des planchettes à
 petits casiers étroits portant les noms des fonctionnaires, comme il s'en trouve chez les concierges des
-lycées.
-
-— « Personne? interrogea Devaiges.
 
 Non ! attendons un moment... Pas de sonnette? »
 
@@ -1144,7 +688,6 @@ Ils s'impatientèrent vite.
 — Non! ça n'a pas l'air gai, songea Yves dont
 
 toute l'excitation fiévreuse de l'arrivée commençait à
-tomber.
 Il appela du pied, puis sortit, s'avança dans le large
 couloir, où donnait aussi accès le portail fermé. Un f
 bac de jardin était là, et, devant lui, il découvrait
@@ -1153,8 +696,6 @@ une grande cour avec un tilleul à droite, un vieux bâtiment à gauche, au fond
 doute qu'ils avaient aperçue à la fenêtre du dehors, se
 présenta en s'essuyant les mains, par une petite porte
 de gauche du couloir :
-
-— Monsieur demande ?
 
 — Ah, pardon! Il n'y a personne chez le concierge,
 
@@ -1175,9 +716,6 @@ Il s'enfonça dans un couloir sombre, monta un escalier tournant derrière la do
 après, il entrait dans le cabinet de monsieur le prin-
 ; cipal. Un gros homme court, à cheveux blancs,
 
-DS
-Yres Madec BEN,
-É SE
 d'épaisse figure poupine, trop grasse, trop blanche, aux Le ‘2
 yeux d'un bleu de faïence, se leva aussitôt, de derrière 1
 un bureau planté au milieu de la vaste chambre toute
@@ -1205,15 +743,10 @@ aux plis profonds du vaste gilet, et toute la large face |
 s'épanouissait dans un sourire de brave homme. M
 Ils parlèrent du pays qu'Yves quittait, du répétitorat, 4
 : ils parlèrent encore des élèves, du collège, de la 4
-ville. 2:
 Yves s'était levé : F
 — Eh bien, monsieur le principal, je ne vous déran- 4
 gerai pas plus longtemps. 4
 — Ah! mon cher monsieur, vous m'entendez bien! ;
-
-ri ROLE "
-:
-à INSTALLATION
 
 Familièrement déjà la grasse menotte s'était posée
 sur l'épaule de Yves :
@@ -1221,21 +754,18 @@ sur l'épaule de Yves :
 — Cette ville est une perle ! Vous en demanderez des
 nouvelles à madame Binelle, je ne vous en dis rien...
 Vous la connaîtrez peut-être trop vite. Êtes-vous
-chasseur ?
 
 Chasseur! lui? Comment y aurait-il jamais songé?
 Paris, la Sorbonne, l'Angleterre, les études, les dortoirs?
 les courtes vacances au bord de la mer. Les longues
 
 . heures de méditation solitaire, une foi cherchée, une
-foi perdue. :
 
 — Non, monsieur le principal !
 
 — Tant pis, tant pis! Car au moins il y a du gibier...
 Pour le reste, c'est pas même une mare; vous m'entendez bien? pas même une mare. sauf celle de
 … devant chez nous! Vous l'avez vue? et si vous aimez
-Hola pêche!
 
 & Les mains plongées dans les poches de son pantalon
 LS noir, sous le ventre, le père Binelle tanguait sur ses
@@ -1250,12 +780,7 @@ _ bonasse lourdaud, né pour la vie rustique, pour le
 ) grossier labeur du plein air, pour les mangeailles bien
 4 gagnées à la sueur du corps, des prétentions d'intellec1% tuel. Le fonctionnarisme avait usé ce cerveau, détraqué
 ; ce système nerveux, fait d'un paysan du midi, un épais
-; neurasthénique.
 
-; 23
-
-PUS D RE RUE D RP ME ARR 4 A ERP EE VE RES
-Yves Madec UK 2
 Pauvre diable, songeait Yves, en dégringolant l'escalier en bigorneau, il me fait mal quand il rit! Il n'y a è ‘à
 que sa peau qui rit; ses yeux sont morts, son cœur à
 aussi. Il souffre de n'avoir pas une blouse bleue sur le È R:
@@ -1263,7 +788,6 @@ dos et une trogne au nez bourgeonné ! »
 Quand il reprit le bras de Devaiges, impatient dans ;
 un pâle soleil sur le pavé brillant et fumant, il l'en- 4
 traîna tout de suite vers le haut de la rue qui menait 4
-au centre.
 — Eh bien quoi? lui demanda son ami. Tu m'as l'air À
 bien décidé. Te plaît-il, ton principal? 3
 Yves rapidement lui conta ses impressions : à
@@ -1272,9 +796,7 @@ des Blés, que me recommande le père Binelle. J'y trou- “4
 verai, paraît-il, un ancien répétiteur comme toi-z et 4
 moi; un mathématicien bi-licencié, qui me donnera tous à
 les renseignements possibles. ‘4
-PA MX
 
-CHAPITRE III
 Hôtel des Blés
 Ils ne purent flâner longtemps. La pluie recommen-
 çait. En outre six heures approchaiïent, et les deux
@@ -1295,24 +817,18 @@ _ JIs s'assirent à la première table venue.
 …._ Yves interpella le garçon :
 4 — Est-ce que monsieur... Ah! ma foi! j'ai oublié le
 nom... 'Le professeur de mathématiques du collège”?
-L 25 2
-re
 
-7 Yves Madec ji
 — Monsieur Arverne! il n'est pas encore arrivé, mon- LE.
 sieur, mais il ne tardera pas! À
 — Merci. Vous me préviendrez, n'est-ce pas?
 Yves et Devaiges échangèrent de nouveau leurs impressions. 4
 £ — Ah! ça n'a pas l'air fameux! pouffait Devaiges, que
 l'air déconfit d'Yves amusait.. Ce que tu vas tembêter
-ici! |
 — Mais non, mais non, mon cher! Tu sais bien, le
 silence, la solitude, la campagne. Je ne demande que ‘
 ça. Ah! comme j'y rêvais, dans le hideux métier de s
-pion!
 Ils évoquaient le passé, cette année de début, où
 Devaiges et lui s'étaient connus, les matins où ils s'amue
-- saient à traduire Heine, Wilhelm Meister… É
 Un homme corpulent, à face pleine et vermeille, si L
 raide dans sa démarche qu'il semblait porter son ventre
 devant soi avec orgueil, avec ostentation, avec délice, {
@@ -1320,20 +836,15 @@ parut tout à coup, et, s'adressant à Yves : 4
 — Pardon, messieurs... Monsieur est le nouveau professeur, sans doute ? 4
 — Oui, monsieur, dit Yves, sans dissimuler le plaisir
 tout frais que lui faisait cette appellation de pro
-fesseur. À
 — Monsieur arrive. Monsieur ne connaît pas la
 ville... Monsieur le Professeur prendra-t-il pension ici?
 Monsieur le Professeur n'est pas marié, je crois? L
 — Ah diable! dit Yves, attendez un peu! Je vous Ê
 dir@i tout cela plus tard... Laissez-moi descendre du
 train. Vous me donnerez tout de même à dîner pour ce
-soir ?
 — Je demande pardon à Monsieur, dit la face ven
-26 LA
 
-PEN ES AO LR PR T0 SNA EE LUN 2 ANIME
 # SLR 5 .
-HÔTEL DES BLÉS
 meille, s'illuminant encore, comme le ventre semblait
 saillir davantage. Mais je crois bien faire de prévenir
 tout de suite Monsieur le Professeur. Monsieur le Professeur peut s'informer. Monsieur le Professeur ne
@@ -1350,23 +861,16 @@ FA que je respire. Il se ravisa : D'ailleurs, vous savez, je
 — suis très particulier là-dessus. Nous ne nous entendrons
 ES peut-être pas facilement. Quel est le prix de votre penD ion ?
 T: — C'est quatre-vingt-dix francs par mois, Monsieur le
-% Professeur !
 À Yves se renversa sur sa chaise, les yeux écarquillés :
 4 — Ah ça! vous perdez la tête? Non, merci. Merci.
 —. Vraiment je ne puis pas. Tant pis. Que voulez-vous. Je
 — ne m'entendrai jamais pour un prix aussi fabuleux.
-k. — Fabuleux!
 ‘4 Cette fois le digne amphitryon s'enflamma. Ilse recula
 Br, en inclinant la tête sur son bedon, et avec un léger ac-
 … cent de raillerie méprisante :
 qe — Ah! Monsieur le Professeur peut chercher ailleurs.
 … Il m'en dira des nouvelles., à un prix inférieur, Mon-
-É 27
 
-VE
-Yres Madec %
-ë
-&
 sieur le Professeur ne trouvera à manger qu'avec des 4
 maçons et des balayeurs de rues. 4
 | Il s'était retiré. Ÿ
@@ -1383,7 +887,6 @@ pas cher! |
 
 — Au contraire, conclut Yves. C'est à moi que ça À
 peut coûter, pauvre pion à peine dégrossi, et professeur |
-à 1900!
 
 Les deux amis continuaient à plaisanter, attendant 1
 impatiemment l'heure du diner. Tout à coup l''hôtelier |
@@ -1414,7 +917,6 @@ sourire, comme frappé d'une heureuse pensée : l
 28 4
 
 x SA ES En SA CS de Aid e à L
-HÔTEL DES BLÉS
 rent! Si Monsieur le Professeur ne prend ni vin, ni
 alcool, ni café, (il clignaïit de l'œil, avec incrédulité ou
 mépris? Yves ne sut distinguer), on pourra aisément
@@ -1429,14 +931,12 @@ Monsieur sera chez lui, chez nous. Il s'inclina, comme
 prévenir Madame, n'est-ce pas?
 Et comme Yves déclarait, tout surpris encore de
 Vaplomb de son marchand de soupe :
-— Soit.
 Celui-ci tourna le dos, et fila vers la cuisine.
 — Épatant! cria Devaiges. Épatant ! un toupet! Ficelé, |
 mon vieux!
 
 k — Oui, ficelé! répéta Yves, décontenancé de voir
 qu'il s'était déjà laissé faire par le premier gargotier
-venu.
 
 — C'est pas long”? hein?
 
@@ -1458,11 +958,7 @@ collègue. et puis les notabilités officielles, les fonctionnaires de la Cité!
 
 … qu'en fait, c'est le début pour moi, il faut qu'il me mette
 
-c 29 D
-
-Yves Madec LÉ 4
 au courant de bien des choses. Pourvu que ce soit un
-type chic! : 1
 
 Quelques instants, et ils passèrent à la table d'hôte. “Æ
 C'était une haute salle rectangulaire, à panneaux de
@@ -1488,7 +984,6 @@ avait retenue pour la nuit. 4
 Il se recueillit un instant avant de se mettre au lit... k
 Son voyage, les émotions de la journée l'avaient fati- |
 gué. Mais de rombreuses appréhensions le tenaient 4
-éveillé.
 
 Allait-il enfin pouvoir « vivre sa vraie vie », comme il 4
 avait dit plaisamment à Devaiges. Était-ce enfin l'heure
@@ -1503,10 +998,6 @@ chir, si elles lui étaient contraires ?
 
 Quelque angoisse lointaine, — pressentiment de dé-
 
-30 “2
-1 »
-
-EE EME true NET MORTE RATE
 CR NC OX "HÔTEL DES BLÉS fe Fr MINOR
 _ faite, — ou émotion de l'action, —tourmentait son cœur. 4
 LE ist lement il sourit en songeant que déjà, s'iln'yprenait ‘5
@@ -1519,27 +1010,6 @@ _ Ii s'endormit, résolu à être frais et plein de force,
 
 pour les classes qu'il commençait le lendemain. (8
 
-RAT: f. . PAUDR
-
-FACE À 1°
-
-200 fe
-
-« 9: SN \Ya18e
-
-n: TES ‘44
-
-à LEA LU
-
-à L So. / F&
-
-ns 40
-
-Ü - À dé TPE 27
-{le À)
-. FE +
-CHAPITRE IV :
-Premières Classes
 Le lendemain matin, à sa grande stupéfaction, le 3
 Principal, — dont la grosse tête blanche s'agitait dans
 le soleil d'octobre de la cour, parmi les feutres de ces
@@ -1548,7 +1018,6 @@ en grande bruyance, — lui dit :
 — Ah! Monsieur Madec! Voici vos élèves; vous com- j
 mencez justement par une classe d'allemand. |
 — D'allemand? interrogea Yves, croyant à une mé-
-prise.
 Le bonhomme eut un sourire d'enfant :
 — Mais oui, d'allemand! Comment? Est-ce que vous
 ne savez pas? Mais vous avez l'allemand, avec l'an- 1
@@ -1563,15 +1032,11 @@ pauvre, renvoyé au dortoir. pour combien de siècles!
 
 |
 
-ru g +
-: PREMIÈRES CLASSES
-
 Cependant les autres professeurs, au bruit infernal de
 la cloche, menaient chacun son troupeau, et disparaissaient dans les couloirs. Le Principal, sans s'émouvoir :
 autrement, très jovial, prenait câlinement Yves par le
 bras, lui faisant signe de baisser la voix, à cause des
 élèves, une quinzaine, qui, groupés à quelque distance,
-attendaient.
 
 — Allons donc! Bah! Qu'est-ce que ça fait! Vous en
 savez toujours assez, allez! On ne vous a donc pas
@@ -1631,9 +1096,7 @@ On est bon à tout... Votre prédécesseur, d'ailleurs, était
 comme vous. Il ne savait que l'anglais, — il était licencié d'anglais. Eh bien, au bout de cinq ans qu'il est ,
 resté ici, il savait l'allemand ! Il sait l'allemand, main- f
 tenant. — Dites-vous donc, vous m'entendez bien, que
-34 “il
 
-: PREMIÈRES CLASSES
 l'Université vous offre d'apprendre l'allemand à ses
 frais. Elle vous paie pour cela ! Allez donc !.…
 Il fallut entrer en classe. Yves se sentait honteux
@@ -1665,7 +1128,6 @@ un thème oral. Il reprit quelque confiance, non sans
 … et déjà Yves n'osait trop s'avancer, de crainte de com-
 … mettre quelque gaffe irréparable. L'important était pour
 
-‘à 7
 | Yves Madec -
 lui de faire cette première classe sans rien laisser
 échapper qui pût manifester son incompétence. Mais
@@ -1699,9 +1161,7 @@ livres, que je prépare quelque chose.
 
 Il fut reçu au milieu de ses collègues, riant très fort
 de son histoire, levant les bras, les cannes en l'air. Et
-k 36 :
 
-ÿ PREMIÈRES CLASSES
 tous citaient des aventures pires. Eux-mêmes n'étaient_ ils pas logés à la même enseigne ? Licencié d'histoire ?
 À — et professeur de latin ! Certifié de Cluny ? et profes_ seur de géographie! Licencié de mathématiques ? et
 professeur de botanique ! Bachelier es-sciences ? et
@@ -1731,16 +1191,11 @@ k A petite classe du pavillon neuf, au fond de la cour. Ils
 À étaient trois, avec deux élèves de seconde, et un élève
 … de seconde moderne. Il éprouva quelque terreur devant
 . leur taille. Les trois rhétoriciens surtout étaient plus
-Fr 37 3
-S
 
-Yves Madec , DRE
 grands que lui, forts garçons, doni lun,, plus fluet “4
 cependant, l'air gamin et malin, semblait déjà le
 sonder. Yves lisait dans les yeux moqueurs cette ques- Rs
-tion : 1
 - — Es-tu calé en allemand ? Vas-tu faire de moi un 4
-bachelier ? 4
 
 F. Il retrouva dans la troisième année de Halbwachs le …
 petit poème de Goethe, Mignon, qu'il savait par cœur,
@@ -1768,36 +1223,20 @@ Binelle tapa sur ses cuisses : n..
 ça ! Vous n'entendez bien ! :
 Puis, se rapprochant de Yves, qu'il heurta du coude, k
 les yeux de gamine gaîté levés vers les yeux graves de ;
-Yves : À
 — Sont pas forts ! hein ? 4
-à
 
-À: NT CR 2 : re
-Te Re g
-A2
-RE CHAPITRE V *
-Dee
-‘EAU £ -
- : En garni
-He “
-po.
 _ Yves passa le reste de l'après-midi, jusqu'au diner, :
 avec Arverne, à la recherche d'un logement. Il avait
 : rêvé d'une maisonnette vide, en rase campagne, devant
 le ciel et les champs. Il la meublerait à la diable; il er |
-EN g. &>: : :
 “ferait un logis où il accueillerait un tas de gens.
-RE ; A »
 Arverne l'emmena dans sa chambre, vaste salle à
 deux fenêtres, s'ouvrant sur la place principale de
-lilletaupier. Plancher ciré, long canapé, grand lit à
 baldaquin. Le cœur de Yves se serra :
 — Trop chic pour moi, mon cher, déclarat-il.
-LE ER ‘
 ce - Té ! qu'est-ce que vous voulez donc, exclama
 Arverne, interloqué. Je ne paie que vingt-cinq francs !
 Rien de plus simple, pourtant ! — Venez voir l'autre
-jen ii
 tite chambre, que la mère Guiraud veut louer...
 Brave femme. Elle est veuve, soixante-quatorze ans.
 Yétaient les appartements de son fils ainé. Il est mort
@@ -1807,7 +1246,6 @@ pauvre vieille, maintenant qu'elle n'a plus grand monde
 Ji grand argent, commence à être regardée de travers...
 I n'y a qu'elle dans la maison et la petite servante qui
 
-Yres Madec +
 n'en fiche pas lourd, vous verrez... Mais c'est une
 bonne fille, une de ces filles de la campagne, honnête, vous savez... Ça ne danse pas encore le rigodon,
 Mais ça commence à aller au bal... Petite rosse ! Ah!
@@ -1829,7 +1267,6 @@ plein d'oiseaux, — non loin d'un autre arbre, mince et
 élancé, qu'Yves ne connaissait point. Par delà le jardinet, obstruant la vue, un pavillon d'allure neuve, qui
 paraissait être un entrepôt, et, dans l'angle renversé
 formé par deux toitures voisines, un coin de lointaine
-campagne. =
 -— Ça me va, cria Yves. Si seulement on pouvait faire « sauter cet entrepôt ! :
 
 Il se retourna vers la chambre où le soleil entrait à
@@ -1842,14 +1279,9 @@ commode bourrée entre le lit et la fenêtre. |
 — Pas mal! dit-il à Arverne qui, appuyé à la che- nu
 minée, attendait patiemment : Pas mal! mais.….on
 
-é 1
-
-4 EN GARNI
 n'est pas chez soi, et... c'est tout de même un peu
-bourgeois !
 Arverne, atrabilaire, ouvrit de grands yeux :
 — Eh! bon Dieu! mon cher! Je ne vous comprends
-pas...
 — Je suis stupide, pensa Yves. Je sais bien qu'il ne
 peut pas comprendre. po
 - Des pas lourds résonnèrent dans la spirale étroite de
@@ -1857,7 +1289,6 @@ l'escalier :
 - — Tiens, réfléchit Arverne, c'est monsieur Louis !..
 le second fils de la propriétaire. Entrez done, voilà
 monsieur qui cherche une chambre, et comme je sais
-_ que...
 # _ Monsieur Louis, petit, trapu, rouge, congestionné, de
 gros yeux vides de bouledogue, vêtu de drap grossier,
 “la cravate mal nouée, botté en propriétaire de campure, faisait déjà _—. :
@@ -1865,7 +1296,6 @@ gros yeux vides de bouledogue, vêtu de drap grossier,
 Re: Yves aurait voulu être au diable ; il se sentait pris. IL
 … fit effort pour se dégager :
 #4 — Eh bien, je reviendrai... Je ne crois pas trouver
-mieux en effet, cependant. |
 - Arverne et Yves firent le tour de Villetaupier par les
 … boulevards. Yves ne voulait pas entendre parler d'une
 % chambre à l'intérieur de la ville. Ils s'entretinrent iné-
@@ -1907,7 +1337,6 @@ il lisait l'Intransigeant) s'accoutuma. IL chérit tout de È
 suite l''absolue tranquillité de la maison, le silence pro- Ni
 fond des soirs de la petite ville, quand, à sa table,
 fenêtre ouverte aux crépuscules doux de l'automne, il
-42 “4
 
 1 ne EN GARNI
 l feuilletait ses livres, sans percevoir d'autre bruit que &
@@ -1936,11 +1365,6 @@ fai e partie du cercle... d'aucune association fermée. En
 _ de travail. Jusqu'à la Toussaint, il vit peu de monde et
 | ent evit à peine la campagne et la ville elle-même.
 
-ANR
-Le f
-\È rs -
-
-CHAPITRE VI à
 Répétiteurs de collège |
 Cependant il fit connaissance avec les répétiteurs. |
 Ils étaient trois, dont l'un recevait et portait fièrement

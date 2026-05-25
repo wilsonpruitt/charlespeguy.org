@@ -7,54 +7,17 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 21448
 ---
-
-_ DIX-HUITIÈME CAHIER DE LA QUATRIÈME SÉRIE 4
-AFFAIRE DREYFUS ‘e
-
-o L/77 à
-
-à! FA .
-
-Cahiers.
-
-/ \, 4
-
-[NAN $
-
 de [a Quinzaine
-18986 :
 
-10.16 Ë
-
-PARAISSANT VINGT FOIS PAR AN 24
-
-S j PARIS 4
 8, rue de la Sorbonne, au rez-de-chaussée L #2
-ÉTAT E Ru rie * “4
 
 RUE DE tErS & LACS RE rs RP TT JET
 $ ne. RSS es Men Fra RSA) Pa Et.
-LTÉE L ES PTE ST TRE 15
-STE Ele Dr ee
-vis FAC Fr jar » à RAR US:
-RE à \ \n9/ ? Ê SLI ARESTSS LE LATE Far
-TER LÉ = À Vs 441 y ru +: A TPE F \
-Pi NES asce ns |
-ne ri ; \ A2" Ra re ee. PE Es ?
-. NOCRNNETTATAA M
-ETAT TRE g °C PRESENT
-RSS A Î
-vu ITS 153 F 13 ER > TAN >
-RD
 
-ef
 | YN NEA
-DÉBATS PARLEMENTAIRES ., | 1 ;
-k US) SA Ÿ
 > NS NU M *
  L'avertissement qui suit devait passe en, tfte du
 És cahier précédent, dix-septième cahier de la quatrième
-série, compte rendu sténographique in extenso, d'après
 le Journal officiel, de l'intervention Jaurès dans l'invalidation Syveton, Chambre des députés, séances du ;
 lundi 6 et du mardi 7 avril 1903. J'avais commencé de
 l'écrire en même temps que j'envoyais aux imprimeurs
@@ -77,12 +40,10 @@ plus dangereuses de l'universelle démagogie; enseigner 4
 ki enseignement bien entendu ; que le lecteur sache lire, (?
 & et tout est sauvé; rien ne vaut la lecture pure d'un (0e
 
-SN M SO |
 ji dix-huitième cahier de la quatrième Série |
 # get ph ‘jaussi dans ces cahiers évitons-nous
 à & soigneusement de contaminer le texte par le commen *
 _ {A taïre;/atusi dans cet acte nouveau de l'affaire Dreyfus
-fe/k: ? yius
 fl < (Are avôns publié le texte en un gros cahier et nous ke
 La) pubKons aujourd'hui l'avertissement en un cahier
 Pé ; ordinaire. Enfin est-il pas sage, et n'est-il pas usuel, .
@@ -109,9 +70,7 @@ is fallait donc en enlever aussi les parties que l'auteury 1
 1 avait mises délibérément pour se concilier ou pour
 s'aliéner tel ou tel parti parlementaire, tel ou tel homme
 de de parti parlementaire. Après avoir débarrassé le
-FD
 
-Fes EN DÉBATS PARLEMENTAIRES A À + 1e
 À discours de son parlementarisme extérieur, il fallait Le 0
 Re donc, par une opération beaucoup plus profonde et 2e 00
 beaucoup plus grave, le débarrasser aussi de son par- an
@@ -144,8 +103,6 @@ k mentaires de sa pensée; nous ne connaissons qu'un ns
 - Jaurès député, un Jaurès parlementaire, non seulement F
 à un Jaurès devenu parlementaire par son entourage, par VA
 # _ ses camaraderies, par ses relations de parti, par son 4
-2 br 10
-; qi à
 
 | dix-huitième cahier de la quatrième série
 
@@ -168,8 +125,6 @@ rieur qu'il avait préparé dans sa mémoire. Nous |
 s'était tenu à lui-même avant de préparer son discours
 intérieur. Nous devons nous en tenir scrupuleusement
 au texte produit que nous avons dans le Journal
-
-: officiel. 9
 
 Nous avons suivi rigoureusement l'Oficiel. Nous
 
@@ -195,7 +150,6 @@ a réduction, de faire autant que nous le pouvons l'opéra-
 
 is TE OR CO Le en, Ne LAN UT RE
 
-Ë 4 DÉBATS PARLEMENTAIRES à
 tion inverse, la restitution du réel. C'est à nous, quand +
 nous avons le compte rendu sténographique, de nous ge:
 représenter autant que nous le pouvons, d'autant mieux 3
@@ -232,11 +186,7 @@ s'attendre que dans une séance tumultueuse les sténo- :
 graphes n'aient pu enregistrer qu'un texte particuliè-
 rement réduit. Nous devons seulement les avertir qu'au ;
 
-i k
-
 Li dix-huitième cahier de la quatrième série
-
-Es
 
 “ témoignage de personnes habituées ou compétentes,
 
@@ -279,8 +229,6 @@ soi, un discours parfaitement concerté, voulu, arrêté,
 
 KL tribune, et que l'origine et la solidité du discours était
 
-y extérieure, extrinsèque, antérieure au débat soulevé.
-
 ri Jaurès parlait non pas comme un orateur qui fait un
 
 5 discours, non pas comme un parlementaire qui fait son
@@ -297,7 +245,6 @@ REA jamais la tribune afin d'y prononcer un grand discours
 
 sr ou d'y faire quelque déclaration sans avoir en lui- .
 
-Fe ÿ à À
 | : DÉBATS PARLEMENTAIRES W
 Ÿ même arrêté dans le dernier détail son texte et son Ent
 action. Telle n'est pas la question d'art et de méthode A
@@ -338,7 +285,6 @@ Journal officiel, que d'y séparer les strates superposées, les couches politiq
 tout à fait évident, à la lecture du texte, que cette
 surface recouvre des sédiments, et que ces terrains
 de sédimentation, que ces alluvions recouvrent du
-rocheux.
 Mais comme gérant, comme historien, comme éditeur,
 cela ne nous regardait pas. Nous avons dû nous en
 À tenir au texte publié dans le Journal officiel.
@@ -349,8 +295,6 @@ jeu des assemblées parlementaires, les séances de la
 ! Ce que nous dirons alors fera un retour, portera sur
 ‘ tous nos comptes rendus parlementaires, sur nos
 comptes rendus précédents, sur tous les comptes rendus
-bi: publiés au Journal officiel.
-t
 Nous avons suivi rigoureusement l'Officiel. Mais il
 à faut bien savoir qu'il ne présente pas seulement un
 ; effet de réduction, d'appauvrissement. En outre
@@ -361,9 +305,7 @@ nn. inverse n'est pas garantie; le rétablissement est tou-
 va ne peuvent saisir et enregistrer qu'une image des
 débats, outre qu'ils ne peuvent saisir et enregistrer
 ù qu'une image pauvre et pour ainsi dire linéaire de
-8 !
 
-à DÉBATS PARLEMENTAIRES No
 débats tumultueux et nombreux de personnages ; — fe
 car nous wentendons pour ainsi dire jamais qu'un personnage à la fois; et il n'y a jamais qu'un personnage de
 à la fois qui parle dans une sténographie prise et rédi- |
@@ -371,7 +313,6 @@ gée, où les lignes se suivent, et au contraire dans la
 réalité il peut y avoir tous les personnages, toute l'assemblée à la fois qui parle; et même quand il y a des pe
 rumeurs nombreuses, collectives ou non, la sténographie ;
 ne peut que leur donner cette forme littéraire et linéaire: \
-Exclamations, bruit, protestations au centre, à droite, |
 à gauche, à l'extrême gauche, forme qui fait du centre, F
 de la gauche, de l'extrême gauche, de la droite, —ily a ni
 beau temps qu'il n'y a plus d'extrême droite, — un per- V4
@@ -394,9 +335,6 @@ mement prudents quand partant d'une image, d'un texte,
 nous essayons de nous représenter une réalité histo- ji
 rique. Ceux qui n'ont jamais fait d'histoire, les politiques et certains sociologues, font, des textes et des
 monuments à la réalité, un transfert immédiat, un pas9 I.
-l L 7
-
-5 NT bn URba OUR DMANOURENPERERTES
 
 5% 1 dix-huitième cahier de la quatrième série 7
 
@@ -460,15 +398,11 @@ D tueux, mais inféconds, ne sont pas faits pour le travail
 
 ; dence totale, avec une modestie exacte.
 
-à 10
-
 | 4
-4 | DÉBATS PARLEMENTAIRES “
 A preuve les grosses différences que nous avons pu 4
 noter entre les impressions reçues de la séance même 15)
 par ceux, d'une part, qui avaient assisté à la séance et #
 par ceux, d'autre part, qui n'en connaissaient que le ii
-compte rendu sténographique publié au Journal officiel. fl
 Ainsi le discours de Jaurès paraissait beaucoup plus fé
 fort, beaucoup plus solide, plus constant, mieux char- k
 penté, meilleur, à ceux qui l'avaient entendu qu'à ceux
@@ -494,19 +428,16 @@ sur la prudence d'interprétation; et je n'apporterai, pour
 à enseigner la prudence de l'interprétation, c'est-à-dire
 4 déjà de la reconstitution, que deux exemples, qui se
 ù tiennent, qui font un exemple double. C'est l'exemple
-$ II
 
 dix-huitième cahier de la quatrième série
 “ de l'incident soulevé à peu près aux deux tiers de la
 première séance entre M. Henri Brisson et M. Godefroy
-PA Cavaignac.
 é Un dreyfusiste qui avait assisté à la séance, non pas
 un de ces dreyfusistes bonnes têtes à quiun état-major
 de chefs prétendus dreyfusistes fait croire un peu |
 | confusément tout ce que l'on veut, mais un dreyfusiste
 libre, un dreyfusiste autonome, un dreyfusiste, enfin, |
 me disait : Je vous assure que l'intervention de
-M. Brisson me parut spontanée, sincère, naturelle. —
 Au contraire et sans aucune exception tous ceux que
 ‘ j'ai vus qui n'avaient eu connaissance que du texte
 | sténographique publié au Journal officiel, — que ce >
@@ -527,7 +458,6 @@ A une interruption. — Les autres lui répondaient : Nous
 avons lu le texte. Jamais vous ne nous ferez croire
 a qu'avant de monter à la tribune Jaurès ne savait pas
 
-DÉBATS PARLEMENTAIRES à
 qu'à ce moment de son discours l'honorable M. Brisson à
 interviendrait pour lui apporter son témoignage. Notez, 4
 continuaient-ils, que ce témoignage, comme tel, était #
@@ -560,12 +490,9 @@ en séance; mais dans les couloirs il ne doit pas feindre; a
 je lai vu dans les couloirs; oubliant, comme il est
 naturel, comme il est humain, les coups terribles qu'il
 avait portés pour ne se rappeler plus que ceux qu'on
-13 !
 # i
-à , à
 
 de dix-huitième cahier de la quatrième série
-s
 
 je. . Jui avait portés lui-même, il pleurait pour de bon et
 
@@ -623,7 +550,6 @@ LE. ù nous ferez croire qu'un tel homme, à notre âge, un
 
 f EAU au cimetière Montmartre, dans un vrai cimetière, et
 
-5 _ DÉBATS PARLEMENTAIRES ‘à
 ; qu'il voit une vraie statue, en vrai bronze, — vraiment + à
 jamais vous ne nous ferez croire que cet homme se à
 demande pour de bon si du vrai bronze va s'animer, si Re.
@@ -658,7 +584,6 @@ __ vase mettre à écrire avec un porte-plume pour embêter 1; Re
 j reux de dire ce que l'on ne croit pas. | 1
 3 — Même par figure de rhétorique romantique ? : “
 
-A8 à ï PR nb do Met TE
 ë dix-huitième cahier de la quatrième série
 ; — Surtout par figure de rhétorique romantique. ;
 
@@ -697,13 +622,8 @@ Pr demandez un peu au concierge, au fossoyeur, au jardinier, si une statue de br
 doigts, et crier. Qu'est-ce qui vous arriverait, si vous
 teniez de tels propos au modeste fonctionnaire ?
 
-16 is
-
-;
 # |
-À DÉBATS PARLEMENTAIRES
 Ainsi parlaient ces provinciaux, parce qu'ils étaient 1
-entêtés.
 Les véritables historiens, ceux qui ont fait de l'his- ga
 toire ou tâché d'en faire, non pas ceux qui ont fait sur
 l'histoire des discours de distribution de prix, sont unanimes à ne prendre les textes, les témoignages, les \
@@ -711,7 +631,6 @@ documents, les monuments que pour ce qu'ils sont, des |
 textes, des témoignages, des documents, des monu- ‘
 ments, ils sont unanimes à ne leur attribuer qu'une
 valeur textuelle, testimoniale, documentaire, monumentaire ; ils ne les manient jamais comme la réalité
-même. ;
 Ainsi, et beaucoup plus encore, dans l'altercation
 Cavaignac, née de l'intervention Brisson, qui fut comme
 la continuation de cette première intervention, l'impres- '
@@ -728,9 +647,7 @@ président du conseil, convaincu de tous ses crimes,
 renié par tous ses anciens amis, mal soutenu par les
 nouveaux, pliant sous la colère et sous les huées vengeresses des gauches, abandonné du centre, soutenu
 des seuls nationalistes, étranger à la droite, c'était l'exé-
-\ cution totale, irrémissible.
 | 17
-)
 
 Fs dix-huitième cahier de la quatrième série
 Fe Au contraire ceux qui n'avaient reçu de l'altercation
@@ -740,8 +657,6 @@ us que M. Cavaignac en était sorti victorieux. Je ne parle
 À pour aujourd'hui le débat qui en faisait la matière. Les
 À phrases mouillées de M. Brisson ne rendent pas à la sté-
 & nographie. Les phrases sèches et dures de M. CavaiLa gnac avaient gardé toute leur dureté.
-F3 J'ai trois choses à répondre à M. Henri Brisson….
-4 (Interruptions)
 À Il n'a pas craint de dire que sur la question du faux
 4 Henry ma conviction était faite le 14 août, cela n'est à
 S pas vrai.
@@ -763,10 +678,8 @@ Se garanties pour l'accusé à tel point qu'il n'en reste plus
 à pour la recherche de la vérité. (Applaudissements sur
 ti divers bancs au centre et à droite. — Exclamations à
 Me l'extrême-gauche)
-5 si
 
 PEN js Gas Me Lutte SU ES LME Enes PONS AMEN LA Pr dE Le sh dir: \ Ÿ
-REY | DÉBATS PARLEMENTAIRES LUS Ne
 _ [line s'agit ici, bien entendu, que de la tenue, du ton, : 04
 du maintien : nous n'endossons nullement les affirma- “5
 tions de M. Cavaignac; dans sa rage antidreyfusiste, 1,
@@ -785,7 +698,6 @@ ou fait faire des instructions judiciaires, il n'est mal- 4 j;
 < heureusement pas vrai qu'il ait su y accumuler les A
 garanties pour l'accusé à tel point qu'il n'en reste plus :50
 pour la recherche de la vérité. (Applaudissements sur 470
-divers bancs...) 4
 Accumuler pour des accusés politiques puissants les * 4
 faveurs d'impunité d'État, ce n'est nullement accumuler Wie
 pour l'accusé les garanties juridiques; c'est même le 5
@@ -835,7 +747,6 @@ d'État et la raison d'État, sinon une différence, moralement négligeable, d'
 Qu'est-ce qu'un coup d'État, sinon de la raison d'État
 discontinue ? et qu'est-ce que la raison d'État, sinon un
 
-DÉBATS PARLEMENTAIRES Fa
 coup d'État continu ? Qu'est-ce qu'un coup d'État, sinon Ÿ ‘À
 de la raison d'État condensée, une application critique ù
 de la raison d'État? et qu'est-ce que la raison d'État, 5
@@ -858,17 +769,14 @@ et injurieuse pour le dreyfusisme. Non, monsieur Cavai- Le
 gnac, l'honorable M. Brisson est parfaitement innocent 4
 des crimes que nous avons commis, que nous commet- Isa
 tons, que nous commettrons contre la domination de la ti
-raison d'État. “aa
 Ceci pour montrer que M. Brisson n'a pas autant is
 droit que M. Brisson et que M. Cavaignac sont d'accord
 pour le croire, aux froides invectives, sèches, dures, de
-M. Cavaignac.] :
 Non, il n'y a pas de danger que l'honorable M. Brisson accumule jamais les garanties juridiques pour les |
 accusés honnêtes, pour les accusés ordinaires, pour les
 accusés pauvres, pour lés accusés faibles.
 
 |
-K
 
 à dix-huitième cahier _ de la quatrième série ee
 fe > M. Goprrroy CAvVAIGNAC. — Peut-être aussi, monsieuür Henri Brisson, à quelqu'une de ces enquêtes par- è
@@ -881,7 +789,6 @@ Pa (Applaudissements et rires sur les mêmes bancs au
 : Valtercation que la connaissance textuelle, venant après
 i le bronze et les gesticulations du bronze, la réplique de
 nn M. Cavaignac est autrement nette, autrement ferme,
-autrement posée, autrement sèche, autrement raide. Fo
 Eh bien, non! je suis sorti volontairement des voies
 1 régulières; j'ai fait venir le coupable devant moi.
 k, De l'aveu de tous ceux qui ont lu le texte, le coup A
@@ -899,9 +806,7 @@ il bien simple: je vous oppose le démenti le plus net et le
 è plus formel. (Applaudissements sur divers bancs, au
 4 centre et à droite)
 ‘ Quant à cette autre affirmation, que vous avez été sin-
-$ 22 :
 
-Pi | DÉBATS PARLEMENTAIRES He ee
 j a gulièrement imprudent de porter ici, monsieur Henri Hs:
 + Brisson, d'après laquelle je vous aurais dissimulé la 4 ts
 | pièce dont a parlé M. Jaurès, je n'ai jamais, quant à F #3
@@ -928,26 +833,20 @@ tribune, dans la séance du 18 décembre. ‘5
 
 | Enfin M. Brisson avait dit, avant le bronze: ‘3
 | Parmi ceux qui faisaient votre éloge, j'ai le droit de F4:
-_ me ranger. RAR:
 Ce n'était pas ce qu'il avait fait de mieux. Mais cela 1 Et
 confirme ce que nous espérons pouvoir montrer quelque ne
 jour, que tous les dangers de la République sont tou- l he
 jour$ venus des différentes démagogies radicales, FE
-démagogie radicale nationaliste, démagogie radicale j.
-militariste, démagogie radicale colonialiste, démagogie CP
-radicale budgétaire, démagogie radicale anticléricale, M
 : démagogies radicales étatistes, pour n'en nommer que | ne
 
 ! dix-huitième cahier de la quatrième série
 
 quelques-unes et pour nommer un de leurs caractères
-communs. à
 
 C'était l'impôt progressif sur le revenu qui était le |
 moyen préféré de la démagogie radicale quand les
 
 ‘ politiciens radicaux firent la fortune politique de
-M. Cavaignac.
 
 | .… Un jour, à la tribune, j'ai rappelé que, quelques
 
@@ -956,8 +855,6 @@ réforme fiscale et sociale, de réforme démocratique, et
 Je vous ai félicité de marcher sur les traces de celui dont
 vous portiez le nom et le prénom, de ce Godefroy Ca-
 | vaignac dont vous sembliez suivre la tradition.
-
-M. Godefroy Cavaignac répond : -
 
 M. Henri Brisson a terminé en mélant à cette affaire
 
@@ -970,8 +867,6 @@ des jugements au nom de la conscience universelle,
 
 moins la sienne. (Applaudissements au centre et à
 
-j droite, — Bruit à gauche)
-
 Ë Vous n'êtes pas des juges ; vous étes des adversaires
 politiques, et des adversaires politiques que nous combattrons sans relâche.
 
@@ -983,7 +878,6 @@ appelât ici, les hommes qui ont fondé autrefois la
 { République contre les régimes de corruption de jadis ;
 Je voudrais bien qu'on les appelât ici.
 
-DÉBATS PARLEMENTAIRES \
 J'ai peut-être plus de droits que M. Henri Brisson de Ÿ b
 parler au nom de ceux qu'il a eu l'audace d'évoquer no
 tout à l'heure. Oui, je voudrais qu'on rappelât ici les ie
@@ -1018,9 +912,6 @@ vague de ses ennemis, devant la face muette et lâche de j
 
 ses amis, son effondrement était si total que le malheu- j
 
-LL
-À K
-
 dix-huitième cahier de la quatrième série
 je j. reux faisait pitié. Vous savez si nous avons réprouvé
 “à cet homme hagard. Mais son effondrement était pitoyaie ble. Et comme je demandais à cet ancien dreyfusiste s'il
@@ -1052,8 +943,6 @@ ge : Ainsi les panamistes les plus avérés flétrissaiént tumul-
 
 ‘à président du Conseil, oratoire, homme de bronze, haut
 
-à en paroles, timide.
-
 ne | Les honnêtes gens, les simples gens n'ont pas de ces
 
 À à. indignations tempêtueuses. Nous touchons ici à une rai-
@@ -1075,7 +964,6 @@ ES parlementaires, qu'un aflleurement, une surface, une
 115 manifestation superficielle, presque toujours truquée, :
 Re une superficie factice, une représentation en surface,
 
-DÉBATS PARLEMENTAIRES M.
 | presque toujours fausse, le masque d'un mouvement 1e
 profond, de couches profondes géologiques, d'une agi- fe ÿ
 {ation sourde, souterraine, obscure, d'un travail dérobé 1 4
@@ -1108,7 +996,6 @@ politiques, dans les relations privées, dans les népo- ‘4
 * tismes et dans les flatteries, dans les haïnes et dans les pe de
 faveurs, et dans ce que M. Combes a nommé si heu- A
 _ reusement les faveurs gouvernementales, dans les rela- ; 1
-27 "à
 
 |
 
@@ -1142,7 +1029,6 @@ totale, exacte, épuisée, de la réalité dont elles sont des
 représentations, mais elles sont des images truquées,
 falsifiées, faussées pour les besoins de la politique
 
-DÉBATS PARLEMENTAIRES 14
 même; outre les imperfections essentielles de toutes b:
 les images, outre leurs imperfections naturelles, outre L4
 la difficulté, la complexité, la mouvance du réel repré- + à
@@ -1175,7 +1061,6 @@ turelle des images, et, en outre, la falsification voulue |
 des images politiques, si cette falsification même avait ù
 gardé quelque constance, au moins une interprétation
 de l'image obtenue, c'est-à-dire déjà une reconstitution
-“ 29 Il.
 
 Le dix-huitième cahier de la quatrième série
 ñ du réel ainsi représenté, conduite avec une extrême
@@ -1194,7 +1079,6 @@ au deuxième degré. Aussi tout ce que l'on peut à peu
 | textes, quand on n'est pas d'une prudence extrême on
 a _ est sûr de se tromper, et qu'au retour quand on est
 | d'une prudence extrême, on n'est jamais sûr de ne pas
-se tromper.
 | Tout ce que l'on peut à peu près dire, c'est que les
 séances parlementaires sont d'autant plus travaillées
 qu'elles sont importantes. Les séances capitales sont
@@ -1207,10 +1091,8 @@ séances historiques, des grandes séances. Elles étaient
 des séances capitales.
 Ce n'est pas seulement parce qu'elles étaient des
 | séances historiques, des grandes séances, des séances
-30 ;
 
 Len IS ce LA ES LE SE A 0
-ë = DÉBATS PARLEMENTAIRES ‘4
 éclatantes et tumultueuses, passionnantes, émouvantes, è 1 |
 | entraïnantes, que nous en avons publié dans ces cahiers 1
 le compte rendu sténographique in extenso d'après le ‘14
@@ -1243,9 +1125,7 @@ cahier de la deuxième série. Nous avons fait pour le F ‘4
 et des frais que le socialisme international avait négligé 4
 à de faire. Comment pourrions-nous publier des rensei- 3
 È gnements, des documents et des textes sur ce congrès a 1
-1 31 ï
 
-: \ )
 | dix-huitième cahier de la quatrième série
 ) de Bordeaux, qui n'existe pas. Aussitôt qu'il existera
 quelque mouvement et quelque vie, nous recommence-
@@ -1254,7 +1134,6 @@ séances du lundi 6 et du mardi 7 avril avaient de l'existence que nous en avons
 parce qu'elles avaient de l'existence, parce qu'elles
 ; étaient capitales, qu'elles furent si travaillées.
 | Qu'on relise attentivement ce texte. Si peu expertque
-Von soit aux combinaisons parlementaires politiques,
 on reconnaîtra aisément que le texte sténographique
 des discours prononcés à la tribune et l'enregistrement
 officiel des votes recueillis recouvrent, dénoncent un
@@ -1266,19 +1145,14 @@ commencement de la deuxième, le travail parlementaire était tout entier au dis
 d'orateur, d'homme politique démocratique, et moitié
 habileté politique, — tout l'intérêt, tout le travail parle-
 À mentaire était au discours de Jaurès. Les ennemis du
-grand orateur, nationalistes, cléricaux, réactionnaires,
 attendaient impatiemment les coups qu'ils allaient recevoir. Et malgré les intermèdes, malgré l'intermède Brisson-Cavaignac, malgré la rupture des incidents et lem- î
 ; broussaillement du débat, cetintérêt se maintint jusqu'à
 laccomplissement du discours. Les amis du grand orateur, quelques socialistes, les radicaux-socialistes et les
 radicaux attendaient impatiemment qu'il échouât. Ses
-vieux ennemis socialistes, unité socialiste révolution32
 
-ï DÉBATS PARLEMENTAIRES 3
 paire, parti socialiste de France, continuaient la vieille 5
-attitude guesdo-blanquiste. Seuls plusieurs socialistes y
 parlementaires, parmi lesquels M. de Pressensé, quel- Ni
 ques radicaux-socialistes, parmi lesquels M. Vazeille et e
-M. Paul Guieysse, quelques radicaux désiraient sincè- À
 rement qu'il réussit. Aussitôt que le discours de Jaurès É
 fut accompli, tout l'intérêt politique et parlementaire \ &
 s'en retira, s'en détacha. Il y eut une brusque détente, hi
@@ -1308,9 +1182,6 @@ savons qu'avant le commencement de la séance tout le
 grand jeu politique et parlementaire avait travaillé 3
 contre Jaurès. Pendant toute la première séance et pen- N
 
-: 33
-
-14 è k È HN Mit. ;
 J dix-huitième cahier de la quatrième série
 < dant tout le commencement de la deuxième le grand
 x jeu culminait autour du discours même. Et non seu-
@@ -1341,10 +1212,6 @@ Et tout le monde voit qu'il travaille au grand jour, et
 : que les cheminements laissent des monceaux de rem-
 | blais. Cheminements de taupe ou de caporal sapeur. Lui
 1 34
-
-EN Ut id
-
-i | DÉBATS PARLEMENTAIRES 4
 
 seul il croit qu'il fait des combinaisons puissantes. Tant 1
 
@@ -1392,7 +1259,6 @@ réalité du jeu. Visiblement les orateurs nationalistes et 4
 ME Ti vers
 
 4 dix-huitième cahier de la quatrième série
-;
 à. réactionnaires ne parlaient que pour gagner du temps,
 Re pour tenir du temps comme on tient de la place, pour
 bn: amuser le public, le public des députés, le public des
@@ -1408,7 +1274,6 @@ d la trahison. Le président du conseil, ministre de l'inté-
 À tant le gouvernement de la tribune; et même il n'est pas
 tant le gouvernement des commissions; il est le gouverI nement des couloirs. Le gouvernement des ministères
 est devenu le gouvernement des antichambres ministé-
-à rielles.
 à Tout le monde sait que M. Ribot avait prêt un grand
 Fe discours, contre-partie et réponse au grand discours de
 É Jaurès. Lui-même l'avait de longtemps annoncé, en
@@ -1423,14 +1288,9 @@ oratoire pendant les deux derniers tiers de la deuxième
 ; rable conclusion de la deuxième et dernière séance,
 aucun de ceux qui firent les scrutins et qui en sont res36
 
-AE k : $ ñ PE
-
-; DÉBATS PARLEMENTAIRES à
-
 ponsables, et moins que tout autre l'ancien vice-roi È
 
 soleil levant, ne prit la parole pour prononcer un véri- # 1
-table discours. Es,
 
 Les honnêtes lecteurs, les honnêtes électeurs, —ily en à
 
@@ -1468,9 +1328,6 @@ compte rendu sténographié de l'incident Walter. Cet 4
 incident est particulièrement caractéristique. Les jour- {
 naux du lendemain matin, de tous les partis, étaient 14
 
-IL
-L 7
-
 a dix-huitième cahier de la quatrième série
 ji à peu près unanimes à rapporter l'incident. Il est à
 ë peu près acquis par cette unanimité que M. Walter
@@ -1480,7 +1337,6 @@ Pis phrases, ou bien : Il n'y a que des maquereaux
 maquereaux. Ni le président ne voulut entendre, ni
 ; les honorables typographes du Journal officiel n'ont
 voulu composer le nom de cet innocent poisson. Qu'on
-KA se reporte pourtant au compte rendu sténographique
 in extenso que nous avons publié d'après le Journai
 | officiel. Qu'on lise attentivement le compte rendu de
 l'incident même et surtout de son éclatement. Qu'on se
@@ -1500,10 +1356,6 @@ méthode, le procédé, la politique, — et la grossièrement
 1 compte rendu de l'incident, et surtout de son rattache1? ment artificiel Qu'on examine attentivement à quel
 | moment précis, à quel point stratégique de la séance,
 à quel point parlementaire, à quel point politique il se
-
-À DÉBATS PARLRMENTAIRES à 1
-
-A
 
 produisit, au moment où la droite avait besoin de toutes l 5
 ses forces, au moment où il fallait achever le descel- D
@@ -1557,7 +1409,6 @@ Dr: assuré qu'elle est théâtrale, non pas seulement théä-
 ÿ trale dans sa forme et dans son agencement, maïs dans =
 k son origine, sa cause, et dans son utilité. Il est naturel |
 R qu'il en soit ainsi. Où veut-on que les fabriquants de
-4 représentation parlementaire cherchent leurs scénarios,
 ! sinon parmi les fabricants de représentation théâtrale
 "1 qui leur sont contemporains. Nos abonnés se rappellent
 quel sens précis nous avons donné dans ces cahiers au
@@ -1573,7 +1424,6 @@ He scènes artificielles théâtrales parlementaires que les
 ; opérée avec tant d'apparat pour le public des spectateurs, que nous pouvons être assurés qu'elle constituait littéralement une représentation théâtrale. Et c'est
 parce qu'elle constituait une représentation théâtrale
 
-DÉBATS PARLEMENTAIRES 4
 que l'honorable M. Brisson éprouva le vieux besoin d'y 3 n
 parler un langage romantique. Réciproquement et 114
 généralement, c'est parce que M. Brisson parle un Dr,
@@ -1582,7 +1432,6 @@ représentations théâtrales parlementaires ou qu'il y 4 Î
 participe. Ce n'est point par hasard, mais c'est par 0
 une logique intérieure inévitable que M. Brisson parla N |
 un langage romantique outré dans une représentation ‘il
-théâtrale outrée. 2
 Les honnêtes gens, les simples gens n'ont pas de ces ‘4
 _ indignations concertées, théâtrales, scéniques. C'est n Ÿ |
 que leurs indignations ne sont point parlementaires, et ; 2
@@ -1606,7 +1455,6 @@ reuse, théâtrale, répandit la terreur, emportât la posi- À
 tion. Il fallait donc choisir un ennemi, laisser les autres, ‘4
 et totalement écraser celui que l'on aurait marqué. Ce #
 sont là faits de guerre, coutumiers, et qui ne relèvent
-gr 1
 
 | ous ns MA
 4 ix-huitième cahier de la quatrième série
@@ -1642,8 +1490,6 @@ génie de Jaurès fut, pour donner à l'injustice une
 À iapression de terreur salutaire et d'isolement, de faire
 exercer une épouvantable sanction de justice par des
 
-A MR NU ENT TO PS DO DT Rare RE LEE ROROUTATE CU DOI
-DÉBATS PARLEMENTAIRES £ 173
 injustes professionnels. Car Jaurès ne s'est pas seule- 2h
 ment permis, Jaurès ne s'est pas seulement attribué le ‘4
 droit de nous imposer une odieuse amnistie, qui, au- #4
@@ -1676,9 +1522,6 @@ au gré, à la fantaisie du dispensaieur. Elle sert com- x.
 munément à garantir des menaces politiques sous a
 condition. Pour qui sait bien ce que c'est qu'une mani- ; 3
 festation religieuse, pour qui sait retrouver la réalité : ;
-: 43 7
-
-‘ts Er
 
 à dix-huitième cahier de la quatrième série
 
@@ -1695,8 +1538,6 @@ si ment tous les caractères non pas seulement d'une
 excommunication catholique, mais d'une mauvaise
 
 Ë excommunication catholique, d'une excommunication
-
-; catholique à prétexte religieux maïs à cause politique,
 
 | telle que nous en connaissons un si grand nombre qui
 ont démoralisé, qui ont déshonoré l'histoire de l'Église.
@@ -1739,10 +1580,6 @@ f Jaurès avait pensé que le meilleur moyen de les tenir
 lächeté commune. Cette combinaison fonctionnait à
 plusieurs fins. Pendant que les hommes qui ont fait
 
-& 4%
-
-n t
-DÉBATS PARLEMENTAIRES
 M. Cavaignac s'acharneraient sur M. Cavaignac, ils
 s'adonneraient moins à leurs pensers de faiblesse et de
 trahison habituels; tout ce qui serait pris sur M. Cavaignac ne serait pas pris sur M. Jaurès, — puisqu'il
@@ -1801,10 +1638,8 @@ Re que ces mêmes radicaux et que ces mêmes radicaux-
 “ en présence du vote. Il ne s'agissait plus de huer, de
 A maudire, et d'exterminer verbalement. Il s'agissait de
 px se prononcer, de prendre parti, de se compromettre
-ts 46
 
 EE LR RL a VO ADE ECS À A be su EN AS RON LA DR à AT
-È | DÉBATS PARLEMENTAIRES
 par un acte, par le peu d'acte qu'est un vote parlemen- FOR
 taire. On sait quelle était la teneur de cet ordre du |
 jour en sa seconde partie : La Chambre... et résolue à Ù
@@ -1834,8 +1669,6 @@ encore. Qu'on se reporte au scrutin suivant, sur l'ensemble de l'ordre du jour d
 | scrutin définitif l'honorable M. Brisson ne s'est plus
 abstenu. Il a pris part au vote. Il a voté. Mais préparons-nous à une stupeur double : il a voté pour lordre
 
-Er
-
 ‘4 dix-huitième cahier de la quatrième série
 4 du jour de M. Chapuis. Je cherche en vain une rectifi-
 “3 cation parmi celles que nous avons reproduites.
@@ -1863,10 +1696,8 @@ ne devoirs et sur les responsabilités d'un chef de gouver4 nement. Tous les jou
 fe, pas fait, pendant les semaines terribles, quand il avait
 * la charge, l'autorité, le pouvoir. Dans deux ans
 de M. Brisson nous expliquera, dans le Siècle, par les
-fe
 
 Er ch TN SO l Te DAME TER vita dE tige > AR PE CFE RAS PART EN TRACE
-‘0e. DÉBATS PARLEMENTAIRES
 —_ raisons les meilleures du monde, qu'il a eu tort, le
 mardi 7 avril 1903, à telle heure du soir, de s'abstenir
 dans le scrutin sur la seconde partie de l'ordre du jour
@@ -1894,7 +1725,6 @@ parce qu'ils ne sont pas gênés par d'anciennes habitudes d'honnêteté, mais p
 homme. Jaurès put croire, aux deux tiers de la pre-
 | mière séance, quand il vit les radicaux entrer si tumultueusement dans l'exécution de M. Cavaignac, il put 5
 j croire qu'ils donnaient ainsi des gages, qu'ils entraient
-à 49
 
 n dix-huitième cahier de la quatrième série
 Fe dans son recommencement de l'affaire. C'était au con-
@@ -1905,7 +1735,6 @@ Fe dans son recommencement de l'affaire. C'était au con-
 ÿ flétrissaient aujourd'hui, plus ïls s'encourageaient,
 hs plus ils s'excusaient, plus ils se justifiaient, par un
 À moyen usuel de la politique parlementaire, à trahir
-; demain.
 ds On se demande avec anxiété comment des hommes
 | à comme Fhonorable M. Brisson peuvent jouer d'aussi
 basses comédies, que de flétrir la veille avec ostenta- -
@@ -1924,11 +1753,8 @@ Il faut pouvoir dire aux électeurs dreyfusistes qu'on a
 1 poussé des clameurs de réprobation sur M. Cavaignac.
 pi Mais il faut pouvoir dire aux élecieurs nationalistes
 “2 radicaux et radicaux-socialistes que l'on a voté contre
-ai M. Jaurès. Misères.
-50 j
 
 Ce pose oi MR EN to EN RON pi ON RS PS
-DÉBATS PARLEMENTAIRES :
 Il nous reste à examiner au point de vue dreyfusiste,
 et non plus seulement au point de vue de l'histoire par-
 ‘lementaire, au point de vue de la justice et du droit, et
@@ -1937,7 +1763,6 @@ seulement ces deux séances politiques parlementaires,
 : mais, autant qu'il est provisoirement indispensable,
 affaire Dreyfus elle-même et le recommencement que
 l'on vient d'en essayer par les moyens politiques parlementaires.
-CHARLES PÉGUY
 En dehors de tout commentaire, et sans interrompre
 le travail normal de nos cahiers, nous avons résolu de :
 publier un dossier de l'affaire Dreyfus, textes et docu- ù
@@ -1948,30 +1773,11 @@ sténographie des récents débats parlementaires ouvrait Ÿ
 
 4 EN Br RAS SEXY fut AE MAROC th pe HR 2 Ft ET a PURE 0 #
 | REINE REA NU PA TN AE VE ADP EP AL cl à
-ADS A acid au d'A NM RANAERe 5
-PE ï Lt ERRTAS 2.5 LP MR : * 1ùé LL RSR
-ÉRUUNE TS CRAN NES SRE HU DAMES ÿ e ( LA LR NE RNNERE
-D 191 TONNES
-(ANNE AN AO NE \ 4 + Le SOON EEE
 LAN RO ANRT : Le ts
-ki ET ALLAN ER NET | « | S'TPENENS
 ni SN NE A REA ss +: LIT TTC SEES
-DM Ou) FAT ke RE EE À Le | Me. ER
-LUE RONDES | LAN PANENREES
 NT NES SSP Aer TT TNT AMENER 55 TANT En
-RH LORS SAV ANNITRNINE À : | 'ARINSEEES
-‘iQ À (Ag A IE CHROME LRO
-HE ONE DANS RE NE ARTE RÉ RARAE À ne “ ACTOR
-LUNCTROIR k tre b SCA 4
-2 MIA LR OURS À k * AAA RQ EU k 1 AN à
-1) sal" RTE 1 WA nm " 1
 
-RE UP ERREUR Aa AN A E ret
-DOSSIER
 Le Temps daté du jeudi 23 avril publiait le texte
-suivant :
-L'AFFAIRE DREYFUS
-DEMANDE D'ENQUÊTE ;
 . On nous communique la lettre suivante, qui vient d'être
 adressée au ministre de la guerre par M. Alfred Dreyfus:
 | Paris, le 21 avril 1903
@@ -1980,22 +1786,15 @@ La loi du 17 décembre 1900 m'a, sur ma demande,
 exclu de l'amnistie, et, aux termes des déclarations formelles qui ont précédé le vote de la loi, cette exclusion
 avait pour but de me laisser ouvertes les portes de la
 Cour de cassation pour me permettre de poursuivre ma
-réhabilitation judiciaire. À
 “: En votre qualité de chef suprême de la justice mili-
 | taire, j'ai l'honneur de vous adresser une requête à fin
 d'enquête sur les faits suivants :
-I k
 A la date du 9 avril dernier, M. Ferlet de Bourbonne
 | a envoyé à M. le député Jaurès la lettre ci-après:
-A monsieur Jaurès, député
-ù Paris, 9 mars 1903
-D Monsieur,
 # Puisque dans les deux dernières séances de la Chambre
 des députés, vous avez cru devoir me citer à plusieurs
 | 53
-bee *
 
-à affaire Dreyfus |
 Ne: reprises, comme un des plus actifs propagateurs de l'anno-
 # tation par l'empereur d'Allemagne du bordereau de Drey4 ï fus, je viens aujourd'hui vous répondre au nom de la
 a Lumière, de la Vérité, et de la Justice, triplice devant laquelle,
@@ -2032,7 +1831,6 @@ question. » Le mardi 4 décembre, à l'issue du conseil, il
 S rappelle de nouveau les engagements pris à ce sujet. (Voir
 ( procès de Rennes, Figaro, du 18 août 1899)
 
-D RE EEE
 se LETTRE AU MINISTRE DE LA GUERRE |
 Rappelez-vous la fameuse soirée où le ministre de la
 guerre, peu de jours après la condamnation de Dreyfus,
@@ -2043,7 +1841,6 @@ temps après cette soirée. !
 Rappelez-vous la visite extraordinairement matinale que
 . l'empereur d'Allemagne fait à notre ambassadeur à Berlin,
 M. Herbette, auquel il tint à apprendre lui-même cette
-démission. 5 7
 Rappelez-vous enfin certaine lettre que Dreyfus écrit de
 Yîle du Diable, etc., etc.
 Réfléchissez et voyez si tout cet ensemble que je résume
@@ -2070,12 +1867,8 @@ mon pays vis-à-vis de l'étranger mal renseigné...
 À la France, et même, au besoin, d'essayer de la faire aimer
 Qt. et de la défendre,
 Du: Que Dieu la protège!
-4 FERLET DE BOURBONNE
 #4 « J 55
-EE:
-A
 
-‘ affaire Dreyfus gi
 Let Il résulte des déclarations contenues dans la lettrede .
 000 M. Ferlet de Bourbonne qu'il a existé une pièce portant
 Re une soi-disant annotation de l'empereur d'Allemagne et
@@ -2110,7 +1903,6 @@ mi. lait l'existence de prétendues lettres de l'empereur d'AId ÿ. lemagne.
 
 4} En "Ne LS RENE) Ver MENT À URSS Ar Lau aid) tirs at 7, WE AUX:
 |
-LETTRE AU MINISTRE DE LA GUERRE
 sation, dit que le lieutenant-colonel Henry, le 2 ou
 3 novembre 1897, a fait allusion à une lettre de l'empereur d'Allemagne.
 Le 15 février 1898, M. Millevoye, dans une réunion
@@ -2139,18 +1931,14 @@ bordereau avait été écrit par lui et vous avez pu sou-
 , lettre fut reproduite par La Libre Parole et l'Intransid gant du lendemain 15 août 1899.
 KE En deuxième lieu, un juge suppléant au procès de
 
-‘Hip ON ER RUE PA EAN RAR CN VER PP ARE OP ERIR
-Bi affaire Dreyfus
 Fi Rennes a dit que « pendant tout le procès les juges ont
 ci parlé fréquemment d'un bordereau annoté, et que plum7 sieurs d'entre eux tenaient le bordereau sur papier
 1544 pelure pour un calque ».
 à Les questions posées par certains juges aux témoins,
-1e \ restées jusqu'ici inexpliquées, s'éclairent aujourd'hui
 4 par cette révélation. En particulier, les questions adressées à madame veuve Henry à l'audience du 16 août 1899
 DE sont caractéristiques à cet égard et suggèrent le soupçon
 ni des préoccupations extrinsèques aux débats et nées
 me de la connaissance de pièces autres que celles des
-f dossiers.
 jh Le rôle que le bordereau annoté a joué au procès de
 à Rennes a été signalé depuis par deux journaux d'opi- ©
 ne nions opposées.
@@ -2168,11 +1956,9 @@ k À Rennes, le commandant Merle, a fait une déclaration
 Ë stupéfait d'une condamnation après de tels débats, le
 ‘4 commandant Merle répondit: « Ne vous occupez pas
 # des dépositions. On ne peut pas se faire une conviction
-té 58
 1 -
 
 # “a Li GÉRÉE FL PAST PES E MAT AS épis À #0 ne De PTS DU RM APM NT RICE
-7 LETTRE AU MINISTRE DE LA GUERRE,
 avec elles. Nous avons eu des éléments que vous ne pouvez pas connaître et qui nous ont fixés. » Le docteur
 Dumas, lui demandant alors si cet élément n'était pas
 le bordereau sur papier épais annoté par l'empereur {
@@ -2184,25 +1970,18 @@ Merle que pareille pièce ne pouvait être qu'un abomi-
 | nable faux, celui-ci Ini déclara quelques jours après :
 « Tout le monde peut être trompé. Si l'on m'a trompé,
 je ne demande pas mieux, en cas d'enquête, que de le
-reconnaître. »
 L'aveu de la communication de pièces secrètes à cer- a)
-tains juges, soit collectivement, soit individuellement, à
 titre privé, pendant leurs délibérations ou en dehors de
 leurs délibérations, ou de l'affirmation, par une voie
 quelconque, de l'existence et de l'authenticité de documents secrets non versés aux débats et non communiqués à la défense, quoique implicite, ne peut être plus :
 formel, et cet aveu sera forcément renouvelé dans une
-enquête officielle.
 Ces allégations, ces faits ont déjà été magistralement exposés à la tribune de la Chambre des députés {
 par M. Jaurès, dans les séances des 6 et 7 avril 1905.
-re
 Czernuski, ancien officier de cavalerie en Autriche,
 à qui a sollicité d'être entendu à l'audience du conseil de
 _ guerre de Rennes, a prétendu qu'ayant quitté le service
 4 de l'Autriche en 1894 pour se réfugier en France, un
-à 59
 
-VA affaire Dreyfus NES
-NEO
 de Serbe, du nom d'Adamovitch, lui aurait raconté tenir
 ts du docteur Mosetig, conseiller aulique, que ce dernier
 Flo aurait eu, en 1894, une conversation avec un officier
@@ -2232,8 +2011,6 @@ me pas la peine d'avoir des juifs si l'on ne s'en servait pas.
 Ex et à quelques jours de là mon arrestation aurait été
 4 annoncée par la presse.
 
-LETTRE AU MINISTRE DE LA GUERRE
-
 L'invraisemblance des raisons que donne Czernuski
 des confidences qui lui furent faites, démontre déjà la
 fausseté de sa déposition.
@@ -2260,7 +2037,6 @@ conseiller aulique, que Czernuski a donné à Rennes.
 
 Czernuski a donc apporté au conseil de guerre de
 Rennes une déposition mensongère et préparée
-d'avance.
 
 Sous le ministère Waldeck-Rousseau, M. Tomps,
 commissaire spécial de la Sûreté, fut chargé de faire
@@ -2273,9 +2049,6 @@ Czernuski avait fait son faux témoignage. Cette enquête
 
 te furent faites à la presse par le capitaine Fritsch, et qui
 
-RS IV
-
-e affaire Dreyfus +
 s motivèrent une interpellation au Sénat et à la Chambre
 SR des députés du mois de mai 1900. $
 - Depuis l'arrestation récente à San-Remo du lieutenant
@@ -2290,8 +2063,6 @@ M t- rédacteur du Petit Bleu de Bruxelles, interview dans
 by Dans l'enquête sur le faux témoignage Czernuski, j'ai -
 cs l'honneur de demander que soient entendus M. Cavard,
 « directeur de la Sûreté générale et M. Tomps, commis-
-ë III
-Fa
 Ë Nous n'avons pas encore une procédure qui permette
 ‘ aux parties de faire recevoir en la forme authentique
 les déclarations des témoins qu'il leur importe de recueilCi lir. Au gouvernement seul, c'est-à-dire aux chefs des
@@ -2305,7 +2076,6 @@ b. : pays et qui, d'un instant à l'autre, voit flétrir son nom,
 | arracher son honneur, celui de ses-enfants ? On le jette
 $ dans un précipice, on le sépare des hommes, on l'ou-
 
-CN A2 I SE g
 | LETTRE AU MINISTRE DE LA GUERRE
 | trage, on le condamne sur des pièces qu'on ne lui fait
 pas connaître.
@@ -2318,7 +2088,6 @@ contre son corps, contre sSOn Cerveau, se cramponnant
 Les jours, les mois, les années se passent ainsi dans
 les plus cruelles angoisses, sous un climat meurtrier.
 , On le fait enfin revenir en France, car le coupable est
-découvert.
 ‘Le supplice touche à sa fin, il va revoir sa patrie, les
 siens, s'entendre proclamer innocent par cette même
 foule qui, abusée, acclamait autrefois la condamnation
@@ -2337,14 +2106,7 @@ renouvelée par les mêmes hommes avec son accompa-
 * réédition aggravée de ce qui s'était passé en 1894.
 4 + Alors que le coupable était connu, démasqué, alors
 « … qu'après l'arrêt unanime de la Cour de cassation, devant
-Late
-a ; 63
-ue
 
-_ NAT AR PENSE ECO PT CAN RENE
-ka % FA Ke S re
-(3 ;
-affaire Dreyfus
 4 le monde entier, Esterhazy était l'auteur de la trahison,
 4 les mêmes hommes qui avaient trompé la justice en
 re 1894, recommencèrent en 1899, pour la tromper une
@@ -2370,13 +2132,10 @@ x È 9 septembre 1899 par le conseil de guerre de Rennes ;
 | ie 2° Sur le caractère mensonger et frauduleux du témoiFe gnage Czernuski au procès de Rennes
 LL Veuillez agréer, monsieur le ministre, l'assurance de
 Es mon profond respect.
-(a ALFRED DREYFUS
 x Quand cette lettre parvint au ministère de la guerre,
 A M. le général André, ministre de la guerre, comme
 5 par hasard, était absent. Il était, nous dirent les jour-
-à 64
 
-% LETTRE AU MINISTRE DE LA GUERRE
 | naux, dans sa propriété de Gevrey-Chambertin, Côte- |
 d'Or, où les républicains vont lui offrir une candidature
 | au Conseil général. À son retour, il devait prendre
@@ -2406,37 +2165,17 @@ nous reproduisons ci-après fait éminemment partie
 4 d'un dossier Dreyfus, complète indispensablement le ”
 _  comple rendu des récents débats parlementaires :
 
-AS PRONE PE A ER TE ONE RS LR ET
-\J ENS Murs MUR à FRE OR PEUR (EU ANDRE
-Ju RTE "ARE VASE MO MON PA QU Pi ee ARS AHSA) NAN NPRE
 LE en NP ER PRES PTE Pat Le LA TRS AR VE BA
-LATE PO ENES GE AE D CARRE Le CREER EE EE ARRETE | ;
-HAUT a RENE DEC ER PES ET à Te : Da HU
 Le à Ve RAR De tnt 147 E Fes Es RSC TEEN ; LENS
 Pa En de se QUE RS
 LE ERTINRE ETS DARAT AR ENT ner RS ne |
-Re D Nr UT ARE OX LES 74 \ A ü 143% TA
 Ne en: ENT
-(28 RER RTE rte RENE 5 421 ONSENCIOSTEES
-A TOR QU AR LAS RAA ET + 1} NES RP
-EPA NT PE Lu LT SALLE RSR ETES
-Fe FT à ACTES F4 CLS
-0 : > TAN
-AE ee Pr + + à ER NE
 RUE UE DT RTE MERE À k et DURE PO
-SALSOTISRRIGRSUTENTES Fu ra RATE s
-SNS COPA ARESSSSE fra 1 RON ESS
-OR TRAME MENT ARR ERRE : Re
 F RE EANE Ne Dre NN STATE. ri ar < à f Le LENS TU “
-TT ARRETE SR | # y) HNSAGE, RERO RRE À AN TE #: =} M à
 | SLT SENTSS EDR Rs US 1'R PTE PR
 
-Li
-La 4
 La Dépêche, de Toulouse, datée du samedi 11 avril,
 publiait l'article suivant : L J
-OPINIONS à
-CLÔTURE !
 La clôture de la session a été en même temps la clôture :
 de la « reprise » de l'affaire Dreyfus.
 Cette « reprise » avait été annoncée, non sans fracas,
@@ -2450,19 +2189,13 @@ Politiquement, il était à craindre qu'une pareille reprise 1
 ne tendît à séparer de nouveau l'Armée et la République, ANT AE
 dans un moment où la République doit compter sur :
 FArmée pour exécuter les lois contre les Congrégations ht
-Romaines. À
 Socialement, l'on pouvait aussi se demander si la VA ER
 « reprise » n'aurait pas pour conséquence de reculer indé-
 \ finiment l'examen des problèmes économiques, tels que !
 l'impôt sur le revenu et les retraites ouvrières, qui passionnent à juste titre le prolétariat tout entier. ù
 se) L'heure paraissait donc assez mal choisie, à tous les
-ù
-re 67
-kK
 
 11 A CS RE À de, FA du + NE A ER EEE TR MASTER APN ET RE RAT CAE
-41 # , à É
-ï Henry Bérenger PORTER VE
 dt points de vue, pour reporter la bataille sur des terrains
 “à j abandonnés par l'inertie même des intéressés. à
 sn à Le parti républicain se donnait ainsi les apparences d'une
@@ -2479,7 +2212,6 @@ nf à fantômes d'une Affaire qui, si longtemps, obséda la nation
 4e et l'humanité ? »
 pi Ces scrupules, qui honoreront toujours la conscience
 Fee française, prévalurent. La Chambre admit que la question -
-fi fût à nouveau posée.
 Let 1 Elle l'a été, mais il faut bien convenir que ce fut sans
 É fe grande ampleur et sans grande profondeur. Les deux deryes nières séances de la Chambre furent des tournois oratoires,
 ë de coupés d'apostrophes dramatiques, plutôt que les séances
@@ -2498,10 +2230,7 @@ ns et politique. Mais cette communication n'est rien moins
 “à. que certaine jusqu'à présent, et la conversation du comEx : mandant Merle, transcrite par le docteur Dumas, ne conrs stitue pas un témoignage décisif, ni même très probant.
 RÈ Alors ?
 ; Alors, la Chambre, à une énorme majorité, s'est prononcée
-L'i4 r
 
-e
-HS: CLÔTURE ! 50
 contre toute reprise politique de l'Affaire. Elle a laissé le à
 général André parfaitement libre d'ordonner toutes en- x
 quêtes administratives qui lui paraîtraient utiles sur les S
@@ -2520,13 +2249,11 @@ imbécile qui ne mérite même plus de porter le nom des
 Cavaignac. Et la remise en lumière des faux « patrio- 4
 tiques » sur lesquels s'étaya la « Patrie française » n'a pas
 peu contribué à faire invalider son trésorier général :
-M. Gabriel Syveton. !
 Mais, en dehors de cela, il faut bien convenir que la x
 « reprise », insuffisamment amorcée, pouvait présenter les ; F
 plus graves désavantages pour la République laïque. L è
 Il ne faut pas essayer de faire revivre après coup les
 époques héroïques. On n'en évoque plus que la caricature
-démodée. ;
 L'intérêt de la vie s'est porté ailleurs, sur des problèmes ÿ
 d'une humanité plus large. ÿ
 En dehors des professionnels de la politique ou de la M
@@ -2540,15 +2267,11 @@ Peuple par la Raison sera rétréci, canalisé, finalement 5
 | amorti sous l'Église et sous la Ploutocratie.
 La « reprise » de l'Affaire ne pouvait guère être qu'un +
 . épisode rétrospectif et même une déviation assez dange- Ÿ
-* {
 
-RE CS UE RE UT  En COUS EN Vs ! PA HR AR ES NS
-RENTE RO ER ES CEE ÉD a RIRES BR € | ES
 Pr T os SA PSN Da CORRE
  rense de la politique générale qui triompha aux élections
 
 PER d'avriligors 24 0 RE à ! PHP RENT CE
-PT n.: SAR 2 : Ë 4: NES MATENTRE | CHEN
 La majorité républicaine de la Chambre Fa très bien Re
 1 compris. Elle a clos la « reprise » inopportune d'une
 % « Affaire » qui regarde surtout maintenant M. Alfred
@@ -2556,24 +2279,15 @@ k : 4 à Dreyfus et ses conseils, mais en même temps elle n'a pas
 ne: $ voulu clore sa session avant d'avoir signifié au ministère ke
 10 à Combes sa confiance dans l'action décisive contre l'Église
 _ et pour la Démocratie. \ A
-HE 4 4 » F |
-: APE l9 HENRY BéRENGER x
-MEN: 2 “L \ ON
-5x (l É
-4") 1 . 5 - à
 : #8 Noire collaborateur Bernard-Lazare nous & envoyé
 4408 . . A . . « ‘La \ du Midi, où il poursuivait sa convalescence, la lettre
 ts FE | suivante, que je gardais pour le premier cahier de
 _: 1108 courriers, mais dont je ne puis ajourner plus longtemps
 Ùù_ la publication:
 
-Nice, mercredi 4 mars 1903 ;
-
 Mon cher Péguy à
 
 Reçu le cahier de courriers. J'ai lu le courrier 5e
-
-d'Algérie. ‘ È 4
 
 Page 48. — Ce n'est pas Tirman qui s'est appuyé sur 4
 
@@ -2599,7 +2313,6 @@ Page 50. — Il faudrait mentionner la masse proléta- ï
 
 rienne juive, se référer au livre de Durieu sur les Juifs rs
 algériens, dont /a Revue Socialiste a publié de nom- N
-breux chapitres. k
 
 Page 54. — Sur la question de l'usure algérienne. À
 
@@ -2619,15 +2332,12 @@ Pourquoi ? Parce qu'elle montra : É
 1° Que les usuriers juifs étaient bien moins nombreux |
 
 1 que les usuriers maltais, italiens, espagnols, mozabites
-… oufrançais; É
 
-à. Huet Bernard-Lazare FN: CREME EEE
 ‘# n 2° Que c'étaient ceux qui prenaient l'intérêt le plus
 ne bas; <
 we 2 3 Qu'ils n'expropriaient pas et ne ruinaient pas
 3 l'arabe, parce qu'ils restent dans le pays tandis que les
 à : autres usuriers fuient après avoir épuisé un village et
-+ ; rempli leurs poches.
 ne Pages 76 et 77. — En envisageant l'hypothèse de
 te. l'expulsion des juifs et des étrangers, il faut faire
 To remarquer que la question n'est pas la même, pour
@@ -2638,8 +2348,4 @@ ER Kahina, l'héroïne berbère qui défendit l'Algérie contre
 7a l'invasion arabe, était à la tête d'une de ces tribus
 174 : judaïsées : elle était juive; — et ce ne sont pas eux qui
 Ê a ont envahi le sol des Français d'Algérie, mais bien le
-; _ contraire.
-‘ à BERNARD-LAZARE
-ÿ
-l'A ;
 34

@@ -7,42 +7,19 @@ author: andre-spire
 isAvertissement: false
 wordCount: 23843
 ---
-
-Ë CINQUIÈME CAHIER DE LA ONZIÈME SÉRIE
-ANDRÉ SPIRE
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
-e : PARIS
 . 8, rue de la Sorbonne, au rez-de-chaussée
 
 ee PR er 4e: EC QT De Rue QU AUS SENS LEE AUS OUT, SL AT PR ARE 3 CN SMS ER EL RSRTR
 HAUTE a nt RE “ ete None RME EM [qe RU PAR EL
 AA AS es ete Re Et RATES
-PAPAS PAR MDN QUE AU Te SNA NON TRE Et rs ART ASE A ENCYEAS EN
 D AG RE EL EN DCS LEE A CEA Ne pr MARNE SNA NP MAN OPEMRMES, SET Lcd EU à
-FENG CNE DR EAN GS A PS a RAS EANLE AE
-CAEN Re AN PE AO SAR RE OV RO APR En SE
-MER RRIQUERS AE a ERA CO CNET M NS ST RSI e OS
-SPA PAIE ARE TES OT NE BR PR ES
 RL Je à PS ee es NS RAR nie nel SHC L'ANINS À
-SAR EN NN PE TE EE LP EL PP NULLE TE NN EI x RCE RASOIR
 A AE LA LADA EU lan RE A TRIAL ES Rec o
-CRE TN SR OT PR TN RAT RENE RER ER Se }: SRE LT RENE)
 UNE + AA LPS OS ps ont LCA VE EE EE PRES ne ATEN
 ss ne ï QU NN er ee a Late) LORS
-NS Ki SA TENES OR ENS ARS PRE AA Pr 1 A AE ME HEAR
 
 el ER RAR ET MAT TAC AU TMS PARUS LORS AN rar Et 25e
-
-PO NA Re Tr ER RO LEE « 1
-
-Israël Zangiwili
-à à à à \ 9
-ARE
-ve x \
-À l Zangcwill. — 1
-
-PAUL. Le ER PNA RUES Lier D ON PE ER NE NE PNG 0 AAA MS
 
 NA  : D re on Are
 Re eine À Lune “4 RS ANR dpt Le NO 0 à
@@ -50,90 +27,41 @@ ss it ANS 1 CNE Ne EE en an
 ALT CE A NC Orne EN io STD RU MANU) :
 
 UNE A NAN SANTE AN DA See RAR EE ai ie fé
-Ha RES RÉAL 4 M DC mena RAR Rte
-AE ne a EN EH EE JA PET FE RAA ANS FRA SNCEN OTERES É
-2 0 TS RAT EE ; S Ra RCE RATES
-MT Aa" DATE Aa “ SU TA L IRAN SENSNSES
-A ee ERA { : : à è LT PSS SRREES
 on de Se : At A noie LU :
-LEA PR Y : F + ETS FRS ‘
-Re PAS ANA ER F AE PTS VELIOS SSSR
 
-NPA TN CT EN SEE SANTE PARA AE Le der Ce AT NES Fe
 A pc da Dar A SN NE SA
-RES R R RC ENE REOOR P
 
-CRT el A4 SAT es RP CHA REA NUE
-Ne à TN PAR NO DAME ENNR
-IR On eV SAR PDO RE Le RAILS 27 PARA EAN ARE
-D Mens en 0 AE M RURALE VE SAS N er OR
-20 rl À 3 ete
 SRÈTÉENSS « J'aimerais à me plonger dans la vie com- LEE
 RS mune et à me laisser aller au grand flot dela Ste
 EU ; vie. Si je ne le fais pas, ne m'en demandez ee
 af É pas la cause. Pourquoi Joseph, revoyant en AUS
 . TNT Egypte les frères qui l'avaient vendu, laissa-t-il re
 È us échapper des larmes de joie? Pourquoi, malgré RER
-+ SITE 1 + . SNL
 TASSE) l'horreur qu'il inspire, ce chaos de coutumes Re de
 2 5 que nous trainons après nous de lOrient Le
 SLT nous relie-t-il encore comme si nous étions NÉS NSSE
 de rs Fer frères, ce que nous sommes bien moins sou Fo
 AS Es RES vent que nous ne paraissons? » é Sr Se
-LONAÈRRE RÉ R
-STE CHARLES Gurzkow, Uriel Acosta. 2EQn
-LR L » ACER
-% “26 - ENT
-LÉ MES à 14 NAT ES
-2 NE L ALERT Ps
-L ES MÉRN EC v''rA à 4 Le Ge at
-
-D D D a te 2 a NO
 
 rie AS pe Ce Re nn APR EN Ve
 
 RAR PE RENE NA ANR ne AUS dk Ar LÉ
 
-M2 AU DR QE ANNE AU CR A RE AE
-
 Mer EAN ECIE à PA 7 Fe MM Le NT
-
-de | US
-
-RE RTE ln ñ te j : à 1}; NME
-
-PE à UNI TRS
-
-Ne INC NES HAS 14 LEONE 4 ).:"< RS
-
-1 MUNIE k ; MER "US Ms :
-FI ARRETE ot: 1010 A ANNEE
-
-: À 2 SRE
-
-LD ARE ; ; Ha : AR ER EE
-A. A D
-
-TMS ER
 
 TE NE Font ER ne TE à CURE ON 0) A TUE
 
 Re AN dent A bi du) PCs A oc ERA net SA
 
-Chad Gadya!
-A GUSTAVE SITTENHEIM
 Conseiller Référendaire à la Censure des Comptes
-Directeur Général
 du Cabinet du Ministre des Contributions, de la Paix
 et des Manufactures sociales
 — M. Sitenème n'est pas là, me dit l'huissier du
-cabinet.
 | — Êtes-vous bien sûr, lui dis-je? Demandez-lui donc
 4 à quelle heure il sera libre, je repasserai.
 — M. le Directeur est toujours là pour Monsieur.
 Il n'est pas venu au Ministère depuis plus d'une
 | semaine. Il a la grippe. Vous le trouverez sûrement
-avenue Hoche.
 Je pris l'omnibus qui passe devant la porte de mon ami.
 : Comment était-il resté mon ami, ce jeune Conseiller
 Référendaire, Officier de la Légion d'honneur, détaché
@@ -145,10 +73,6 @@ ancien camarade d'école des Sciences politiques, libéral,
 | travail.
 Ï m'intimidait un peu. Je l'admirais. Il était si fin, si
 
-È
-
-a | RS
-nou André Spie
 ae curieux, si subtil, si mobile. Et au moment oùallaitse
 décider sa carrière il avait été si malheureux. F7
 Son père était Galicien ; naturalisé Français. Pendant M
@@ -167,14 +91,12 @@ lycéens avaient regardé sans bienveillance leur concur- Re.
 rent victorieux. Né à Munich, disaient les palmarès; né. 6
 à Munich, portait l'extrait de naissance qu'il présenta FA
 au Conseil de revision, au secrétariat de l'École de QE
-Droit. 2 Ps
 — Vous êtes né à Munich? Monsieur, lui dit le Con- F
 5 seiller Maître à la Censure des comptes, chargé de faire 5°
 une enquête sur les candidats au concours de l'audi- “4
 torat. Comme c'est ennuyeux! Vos coreligionnaires ‘oi
 sont très. attaqués. Aucun d'eux n'a réussi encore à #1
 entrer dans cette maison. Vous seriez mal reçu par vos 4
-collègues. k “4
 s — Mais je suis Français! La famille de ma mère est Ÿ '
 fixée en France depuis plus de trois cents ans. D. x
 — Vous avez raison, Monsieur. Du séjour en France, +1 4
@@ -182,7 +104,6 @@ des parents en France, vous en avez plus, beaucoup 1
 plus que beaucoup de Français. Mais vous êtes né à pe: K
 Munich. On ne comprendrait pas. On ne pardonnerait ‘4
 
-Ex a ISRAËL ZANGWILL
 pas. Vous voyez d'ici la manchette de la Libre Parole :
 Un Juif allemand à la Censure des comptes. Évitez-nous,
 £ et à vous-mêine, Monsieur, évitez cet ennui. Vous seriez
@@ -213,10 +134,8 @@ Sittenheim. Ce fut à la Mairie du Septième une éton-
 : nante pompe civile en musique. La mariée avait pour
 . témoins un ancien Président du Conseil et un Général
 | & 4 7
-L. |
 
 | PS RUES
-4 ‘ es + *
 3 André Spire vu :
 ; à plumes blanches. Et les revues illustrées repro- E
 duisirent en première page la robe de point d'Angleterre que portait la jolie Madame Sitenème-Martin.
@@ -244,8 +163,6 @@ yeux il y avait encore des larmes. 4
 — Connais-tu cela, me dit-il; et il prit sur ses genoux 4
 un petit livre qu'il me tendit.
 
-— Chad Gadya! Quel titre singulier. ; à
-
 — Comment, tu ne sais pas; toi non plus tu ne sais |
 plus; tu ne te souviens pas, la veille de Pâques, quand
 le Seder fini grand-père lisait :
@@ -253,9 +170,6 @@ le Seder fini grand-père lisait :
 « Chad Gadya! Chad Gadya! un seul chevreau de la
 chèvre. Un seul chevreau, un seul chevreau que mon
 père acheta pour deux souzim. Chad Gadya! Chad
-Gadya! »
-
-: ISRAËL ZANGWILL
 
 Je me souvins que nous pouffions de rire car son
 père nous avait appris l'irrespect. Je répondis simplement :
@@ -277,9 +191,7 @@ herbes amères, un vieux monsieur en habit, son père, ‘
 assis sur les coussins prescrits par le rite, et lit le récitatif chaldéen : « Chad Gadya! Chad Gadya! un seul
 chevreau de la chèvre! — Un seul chevreau, un seul
 chevreau que mon père acheta pour deux souzim. Chad
-Gadya! Chad Gadya! »
 
-Quelle sérénité, quelle sécurité, quelle certitude!
 Quel contraste avec sa vie fiévreuse de rêveur de rêves,
 de poseur de problèmes! IL avait essayé d'aimer la
 Beauté. Il avait bavardé sur la Renaissance; il avait
@@ -293,10 +205,6 @@ l'avaient enserré dans des émotions, dans des impul-
 4 sions comme dans les courroies d'un phylactère. Chad
 
 Gadya, Chad Gadya! La vieille mélopée réveillait en
-
-È
-
-% 9 Zangwill. — x,
 
 | André Spire : TES
 * Jui d'innombrables associations. Qu'elle était adorable “4
@@ -316,7 +224,6 @@ d'énergie bouillonnaient dans ces extraordinaires an- e
 
 : cêtres qui unissaient le calme de l'Orient et la fièvre &
 de l'Occident! Il se rappelait les rubriques d'un 4
-ancien recensement : hommes, femmes, enfants, moines, :
 nonnes et juifs. Eh bien, les Doges avaient vécu, Venise
 était une ruine mélancolique, et les Juifs vivaient è
 somptueusement dans les palais des fiers patriciens. si
@@ -336,11 +243,9 @@ l'explication? Peut-être seulement par l'extase arrive-t- a
 
 on à comprendre ce qu'il y a derrière les phénomènes, à
 
-Re : & ISRAËL ZANGWILL
 ee Mais non, il ne peut croire; son intelligence est sans
 ; remords; car, même ainsi atteinte, l'Essence doit être
 = jugée par ses manifestations, et ses manifestations sont
-4 souvent absurdes, injustes.
 4 Il pensa aux vendanges ruinées l'an dernier par un
 s. orage, et à l'effrayante pauvreté des paysans sous le
 ? joug des propriétaires; il eut la vision d'une seiche que |
@@ -360,14 +265,12 @@ de ainsi de suite, indéfiniment. Et c'est le peuple qui a ;
 4 illusion de Dieu sans laquelle la vie n'est qu'inutile
 Êr AE angoisse; ce Dieu dont il a de soudaines intuitions à
 | l'odeur d'une rose, au rire d'un enfant, à la vue d'une
-ville endormie. Certaines races secrètent certaines
 | croyances et tant que vous n'aurez pas tué la race vous
 | é n'aurez pas tué la croyance.
 | Cela seul serait satisfaisant : Dieu! Dieu! Il avait
 soif de Dieu. Il était ivre de Dieu, sans le calme de SpiKES noza, sans la certitude de Spinoza. Il appelait un Dieu
 réel, un Dieu vivant, quelqu'un qui entendît, qui fût
 
-André Spire LT
 ; « conscient de son existence à-lui; bien plus, qui mani- :
 - festât par un signe qu'il n'est pas une fiction métaphysique. Pitié, amour, justice, justice pour l'individu, justice pour tous les êtres, jusqu'aux moineaux qui se
 vendent, deux sous la paire, sur la place du marché!
@@ -385,7 +288,6 @@ la nuit, des étoiles et de la mort, se mélèrent avec un
 de la splendeur de la vie, et les mots hébreux du Juif
 mourant essayèrent de jaillir de sa gorge pleine d'eau :
 « Écoute, Israël, le Seigneur notre Dieu, le Seigneur |
-est Un. » (1) |
 Quel génie, dit Sittenheim! Avoir posé ces émotions, k
 ces idées, dont toutes ne sont pas neuves, chacun des
 pas de ce drame, sur chacun des degrés de la plus
@@ -394,10 +296,6 @@ s'efface en nous, Israël qui meurt absorbé dans un
 monde qui ne le vaut pas, dressé tout à coup, « une
 figure de granit », devant notre face mobile : pour nous,
 G) Dreamers of the Ghetto, p. 453 et suiv. ;
-; 12 :
-
-ji 4 TONNES HOT S
-ISRAËL ZANGWILL
 
 pour tous ceux qui dans leur enfance ont connu les derniers vestiges du culte domestique, quel rappel, quels
 retours ? Me voilà comme aux heures de mes plus gros
@@ -416,7 +314,6 @@ dans quel pays il habite; ce qu'il a écrit?
 — Je ne connais que son nom : Israël Zangwill.
 Péguy, dans l'article de quatre-vingt-neuf pages qu'il a k
 placé en tête de Chad Gadya, cite Taine, Renan, La
-Fontaine, Hugo, nomme Pascal, Kant, Michelet, Gabriel
 
 : Séailles et l'historien Pierre Deloire, mais ne nous
 apprend rien de Zangwill.
@@ -425,7 +322,6 @@ apprend rien de Zangwill.
 — Tout de même, j'aimerais en savoir davantage. :
 
 — Ce n'est pas très difficile, chez le premier libraire
-étranger venu... :
 
 — Je n'ai pas une minute. Pour lire il faut que j'aie la
 grippe. Comment veux-tu que je fasse des recherches
@@ -441,11 +337,7 @@ bibliographiques, au milieu de cette vie infernale où je
 
 4 J'appris que Zangwill est un des écrivains vivants les
 4 _ plus connus de l'Angleterre ; qu'il est né à Londres, en
-: 13
 
-$
-
-An : Anäré Spinéi® 90 CAS
 1864, de pauvres parents juifs. Je lus ses livres. Je le vis
 lui-même. Je vis ses cheveux presque blancs: sa jeune
 face volontaire, immobile; ses fines mains inquiètes. 75
@@ -457,12 +349,10 @@ C'est au Ministère, au milieu de l'après-midi, que : À
 j'avais le plus de chances de le trouver seul et libre. 41
 — M. Martin est chez le Ministre. Maïs entrez dans TÉ
 son cabinet, il va revenir, me dit le vieil huissier pâle et 4
-glabre. re
 Dans l'immense pièce toute rouge de tapis épais et 0
 de tentures cerise, j'attendis longtemps. Enfin, Sit- “4
 tenheim arriva suivi d'un attaché qui portait sous le … 0
 bras une énorme chemise de maroquin pleine de dos: ee .
-siers. “ 38
 — Excuse-moi, dit-il. Le Ministre a eu la fantaisie de 2e
 demander la signature à une heure. Ça n'en finissait nn"
 
@@ -472,14 +362,12 @@ ne l'ai vu, une éternité. : Tr
 L'attaché classait des papiers sur un petit bureau
 
 _ dans un coin de la pièce. à 3
-; — J'ai voyagé. J'ai été en Angleterre. J'ai lu Zangwill. 10 “à
 J'ai vu Zangwill. 0
 
 — Zengwill? me dit Sittenheim. 44
 L'huissier entra, présentant une carte. 2 “4
 
 — Oui, dis-je en baïissant la voix, Zangwill. Chad ÈS
-Gadya ! ‘2 Le $
 
 11 réfléchit un instant les yeux dans le vague. “I
 
@@ -488,10 +376,8 @@ n'est-ce pas que j'expédie ça! — Faites entrer. ai
 — C'est bien difficile, lui dis-je, quand le gros député
 fut sorti, de causer ici un peu sérieusement avec toi. 1e
 
-ISRAËL ZANGWILL
 Donne-moi rendez-vous chez toi un soir, un après-midi.
 Que diable, tu as le droit de te reposer quelques mi-
-; nutes.
 
 Le téléphone retentit.
 
@@ -511,10 +397,6 @@ Je n'ai jamais reçu de lettre.
 Et c'est moi qui suis obligé de lui écrire, pour lui
 rappeler cette heure de fièvre où il se souvint qu'il
 était Juif.
-
-:
-
-* 4 L'AMTAMPPENR
 
 Le Ghetto :
 
@@ -546,11 +428,6 @@ bien portants, les plus pauvres sont rembarqués. Ils
 reviennent, pénètrent par les ports où la police est le {
 moins vigilante, et vont se perdre dans ces immenses
 
-16 |
-
-Ne
-
-\ ISRAËL ZANGWILL
 fourmilières qui les attirent. À New-York, ils sont
 750.000, dont 400.000 groupés sur un mille carré; à
 
@@ -592,11 +469,8 @@ corrompus, et s'écrit en caractères hébraïques. Le
 
 ———
 
-() Zangwill, Children of the Ghetlo, p. 1.
-
 | 17
 
-A A
 Ho Æ PR ee re Aie on Ten k
 _ delsohn l'abandonnaït et recommandait aux Juifs d'Alle- 5
 | magne de se servir de l'allemand littéraire. Cependant
@@ -609,7 +483,6 @@ _ Les marchands chrétiens de l'East End rédigent leurs #0
 mêmes, dont les missionnaires essayent de conquérir à Le.
 l'Évangile les misérables du ghetto, annoncent l'heure à
 de leurs conférences et de leurs services à l'aide de ET
-caractères hébreux. -
 Cest le ghetto que Zangwill connaît le mieux. Sans FT
 ï doute, certains de ses romans, de ses nouvelles, 7 :
 racontent ou raillent la vie des artistes, la vie politique, Re.
@@ -623,17 +496,11 @@ quarantaine de contes, histoires humoristiques, grandes … é S ï
 . nouvelles, réunis sous divers titres : Ghetto Tragedies, FE :
 De Ghetto Comedies, The King of Schnorrers, Drea- 4
 mers of the Ghetto et un roman ou plutôt une suite de EM =
-récits, Children of the Ghetto. 4
 En France, on chercheraïit en vain une œuvre compa-
 Ë rable à celle de Zangwill. Robert Dreyfus dans un petit Si ;
 livre sur l'écrivain Alexandre Weill (1) explique pour.
-LP REEME RON ETS 54
 (1) Robert Dreyfus : Alexandre Weil, ou le prophète du faubourg 114
 ù Saint-Honoré. Cahiers de la Quinzaine, 8, rue de la Sorbonne. Es
-N° du 20 janvier 1908. RS :
-
-an EN ele :
-VENT ISRAËL ZANGWILL
 
 à quoi jusqu'à présent il n'y a pas eu de littérature judéofrançaise. « Les Juifs de France sont à présent trop
 identifiés à la Société française, trop pareils aux autres
@@ -690,7 +557,6 @@ tout ce qui lui parle de lui-même.
 
 He Dans la littérature européenne le Juif est presque
 
-; André Spire EU pu
 toujours un type conventionnel. Quand il n'est pas …
 Shylock, le traître, ou le boursier, il est Nathan le à.
 Sage de Lessing. Lorsque Georges Elliot composa k
@@ -703,7 +569,6 @@ Dax qu'une sorte de pancarte en papier mince où sont
 
 inscrits les vertus et les vices attribués aux Juifs pa ;
 l'opinion courante : intérêt, fermeté, logique, ardeur au ;
-travail, perspicacité, prudence, tyrannie intellectuelle,
 
 esprit d'nquisition, de calcul, et non pas un être formé
 
@@ -720,7 +585,6 @@ Matzes de Pâques. Il faut aimer le poisson frit, la carpe ;
 soirées avec les petites gens qui jouent autour d'une :
 table verte au Napoléon, au vingt-et-un, au brag, au À
 Klobbiyos, (1) avoir parcouru les carrefours où des Ë
-gamines brunes aux cheveux bouclés dansent autour 4
 du piano mécanique tourné par une Italienne, les si
 squares où les bonnes femmes assises devant leurs ;
 portes « bavardent et tricotent comme si la mer venait
@@ -728,15 +592,6 @@ portes « bavardent et tricotent comme si la mer venait
 écumer à leurs pieds ». (2) Il faut avoir grimpé les L
 escaliers gluants des maisons ouvrières, visité les back-
 
-(1) Ch. of the Gh., 54.
-
-(2) Ch. of the Gh., 32.
-
-: F4
-Per
-
-» : a tie L 4
-ISRAËL ZANGWILL
 rooms (1) où des lingères travaillent quatorze heures
 par jour; les taudis où des familles de sept personnes
 vivent sur une surface de seize mètres carrés; les
@@ -766,14 +621,8 @@ dans leur saumure, ou goûtent, à même les barils
 amoncelés, les olives grasses et juteuses,.… sans plus de
 | (1) Ch. of the Gh., go. L
 | (2) The King of Schnorrers, 331. +
-(3) Without prejudice, 292. ë
-(4) Ch. of the Gh., 63. ,
-(5) Zd., 216.
 | 21
 
-F
-
-André Spire STE
 fausse honte que les écolières... Car c'est la nuit des d:
 nuits. Ce soir elles peuvent rire, jeter bas toutes k,
 les barrières sociales: et, malgré l'éclat de leur haute à
@@ -787,18 +636,10 @@ peut rencontrer de pareil que sur les champs d'or où
 dans les pays neufs, et jeté tout naturellement au milieu
 d'une civilisation sans couleur par un peuple doué d'un 7
 don indestructible pour le pittoresque. » (2) : |
-à
-È
-NÉ
 #4
-%
 (1) Cest-àa-dire : des temps où, quand on parlait d'un mort, on re
 disait Olos Hasholom (paix soit sur lui); du bon vieux temps. Re
-(2) Ch. of the Gh., 203-204. “a
-d %
-D
 
-II
 Les Enfants du Ghetto
 
 LE Le pittoresque du ghetto, le mouvement, le grouil- |
@@ -821,9 +662,7 @@ les langues, « s'imaginant qu'ils font partie du sol qu'ils
 É habitent, et souvent patriotes au point de regarder les
 co Juifs immigrés comme des étrangers »; mais malgré
 leur diversité de types et de caractères, si semblables
-RES 5)
 
-6 André Spire |
 au fond, si éprouvés, si épurés et faits d'une matière
 si durable que pareils au cèdre du Liban « ils conservent les autres matières et arrêtent la putréfaction ». (1)
 
@@ -855,15 +694,6 @@ politiciens, un peuple, non pas une plèbe, « soumis à
 à un entraînement moral et physique, race choisie dont le#
 régime alimentaire a été réglé par la religion », Israël,
 ; produit « d'une expérience sociale réussie ». (2)
-
-(1) Ghetto Tragedies, 132.
-
-(2) Ch. of the Gh., 399.
-
-24 *E
-d
-
-ISRAËL ZANGWILL =
 
 Toute Juive a rêvé qu'elle mettrait au monde un
 
@@ -918,13 +748,10 @@ presque disparue du monde moderne, des hommes à
 
 qui la plus humble vie laisse le souci de la plus haute
 
-pensée.
 Il raconte la vie de ces rêveurs du ghetto, fourreurs,
 fruitiers, employés, colporteurs, revendeurs, dans la
-; () Ch. of the Gh., 57.
 | 25 Zangoill. — 2
 
-: : : Mndré Spuéee ECO ENE
 : chambre desquels il y a toujours un livre; savetiers
 j qui, battant la semelle, lissant des coutures avec un fer
 chaud, discutent passionnément sur l'origine du monde |
@@ -937,7 +764,6 @@ C'est dans un tel milieu qu'il fait vivre Esther Ansell,
 le personnage central de son chef-d'œuvre, Children of
 the Ghetto, suite de récits pleins de vie, de tragiqueet
 d'humour, l'un des plus beaux livres de la littérature
-contemporaine.
 
 Esther Ansell est la fille d'un pauvre immigré, qui ne
 parle que yiddish, ouvrier d'occasion, tantôt tailleur,
@@ -957,11 +783,7 @@ au fourneau populaire, « pareille, avec sa démarche
 orientale, à une Réhecca en miniature allant au puits ».
 Elle rêve, comme tous les pauvres gens, du jour où le
 travail, la chance lui apporteront une vie moins hale-
-Ÿ : (1) Dream. of the Gh., 416. %
 
-e# RO RE NM ie PURE UE SA Mo MEET LU 2 … “!
-: LS CONS ESS FRA UE DRE p
-5 PE 4 ISRAËL ZANGWILL AO
 . tante, moins incertaine, Mais, le plus souvent, ses rêves : |
 sont déçus : elle heurte la porte de son galetas et la
 re _cruche pleine de bouillon tombe à terre, se casse. Le
@@ -980,7 +802,6 @@ tenant à la porte d'une petite synagogue d'où, fascinée,
 L samedi soir, les psaumes plaintifs d'une race traquée. $
 -_ Elle ne manque jamais d'allumer les bougies du Sabbat,
 . ni de préparer la viande d'une manière orthodoxe.
-:
 ie Jamais enfant nc fut plus sensible à la beauté du devoir,
 …._ plus ouverte à l'appel de la vertu, de la maîtrise de soi, de
 E l''abnégation... Quand elle lisait un de ses livres de prix,
@@ -998,14 +819,11 @@ _ plus de force, elle comprenait qu'elle était une Anglaise.
 - Elle était bien plus fière de Nelson et de Wellington que de
 “ .… Judas Macchabée. Elle se réjouissait de découvrir... qu'Al-° \
 
-André Spire
-
 fred le Grand avait été le plus sage de tous les Rois, que les
 Anglais sont maîtres de toute la terre et ont planté des
 colonies dans les quatre coins du monde, que la langue
 anglaise est la plus noble des langues et que les hommes
 qui la parlent ont inventé les chemins de fer, les bateaux à vapeur, le télégraphe et toute chose digne d'être
-inventée.
 
 Enfin le miracle arrive. Une de ces demi-divinités qui
 distribuent de la soupe aux petits pauvres, portent des
@@ -1033,10 +851,6 @@ absolument sans le sou ». t
 Dans le salon des Goldsmith, Esther Ansell rencontre à
 Raphaël Léon. Les philanthropes sont obligés parfois V
 
-ù Î
-Lx ER
-
-; ISRAËL ZANGWILL L
 d'aller dans de singuliers milieux. Raphaël Léon est un
 de ces dreamers, un de ces rêveurs qu'Israël Zangwill
 aime et raille doucement, un de ces pauvres, braves,
@@ -1070,14 +884,7 @@ une réalité joyeuse et sacrée, pleine de possibilités
 1 infinies de travaux dignes d'être accomplis et de nobles
 à plaisirs ». Raphaël presque aussitôt aime la brune jeune
 È fille; mais elle, qui sent croître le sentiment de sa
-29 Zangwill. — 2,
-D
-eA
 
-RS à Ur
-D
-er 221 André Spire OURS
-ANS * LS st FRS es EUX MERS TIRER en
 dépendance envers un milieu qu'elle n'estime plus, veut de.
 k reconquérir sa liberté en gagnant elle-même sa vie. Un FE
 NE matin, de bonne heure, quand tout le monde est encore "
@@ -1096,7 +903,6 @@ maisons ouvrières, casernes monotones de briques, qui, MCE
 4 par leur prose ennuyeuse, morte, tuaient toute gaieté, nn
 ; écrasaient l'âme. En revanche, d'autres rues paraissaient se
 : incroyablement étroites. Est-ce possible qu'il ait fallu pour NN
-. . : . : « LL
 è les traverser jadis, six enjambées à ses membres d'enfant ?... “ESS
 ; Elles lui semblaient tellement sordides et crasseuses, A:t-elle nn"
 5 pu jamais s'y promener, l'esprit léger, inconsciente de leur À ss
@@ -1113,11 +919,9 @@ hommes cerasseux, au pas lourd, étaient encore plus laids a
 \ et plus crasseux qu'elle ne l'imaginait. Ils lui paraissaient D:
 : des caricatures d'humanité, épouvantails en chapeaux : |: M
 MU TA enfoncés et en jupons crottés. Mais peu à peu, au fur et à pe
-2 al
 : mesure qu'elle avançait elle comprenait que malgré les eee
 ci bâtisseurs de maisons modèles pour ouvriers, la szène, dans % Ecus 30 FÉES
 
-DRE ie 1  ISRAËL:ZANGWILL
 se ses parties essentielles, n'avait pas changé. Aucune trace
 ee à d'amélioration, à Wentworth Street, étroite et bruyante
 2 rue-marché, où des files de charrettes bordaïent la chaussée
@@ -1178,7 +982,6 @@ Le Emmanuel, et en avait bariolé les murs avec des affiches
 
 …_ illustrées et morales. Là des cabines pour une personne
 
-André Spire RE
 ne coûtaient pas plus de quatre pence la nuit. A la vue des
 journaux pendus à la fenêtre d'un bureau de tabac Esther
 comprit que le nombre des personnes sachant lire avait
@@ -1221,9 +1024,6 @@ vapeurs qui formaient l'arrière-fond de son être, un écran
 toujours sombre derrière les couleurs irisées des émotions |
 joyeuses. Qu'avait-elle de commun avee ce dénüment ?
 
-32 !
-
-( ISRAËL ZANGWILL
 Quoi ? Tout. C'est avec cela que son âme avait d'imperceptibles affinités, non avec la gloire du soleil, de la mer et de
 la forêt, les palmes et les temples du Sud. (1)
 Trouvant une joie mélancolique et raffinée à se torturer elle-même, elle laisse échapper et repousse toutes
@@ -1241,10 +1041,8 @@ Raphaël. Est-il sage d'épouser le sombre esprit du
 | _ is tenteront d'améliorer le sort de leurs misérables
 | frères juifs. :
 .
-(1) Ch. of the Gh., 345 et suiv.
 .
 
-II
 L'Humour Juif Ÿ
 Zangwill n'a pas regardé seulement la face grave du :
 ghetto. Son talent est complet, et ses dons sont mul- L
@@ -1255,7 +1053,6 @@ modeste, et qui ne sont pas trop déjudaïsés. Le prolé- 103
 tariat juif ignore « la grande douleur juive ». Il est gai,
 il est jovial. Les Juifs qui travaillent n'ont pas le temps É
 d'être tristes. Ils laissent le pessimisme à leurs philan- ;
-thropes. ‘24
 Le philanthrope ressemble à ces gens qui pleurent en ji
 lisant des romans. Quand un riche se met tout à coup à 1
 regarder d'un peu près la vie du peuple il est effrayé de ;
@@ -1264,9 +1061,7 @@ jamais. Cependant le confortable de la maison où il!
 revient le soir, l'empêche d'en mourir. On peut s'ima- à
 giner l'Ecclésiaste comme une sorte de roi philanthrope s Ë
 pris d'une crise de désespoir, après une tournée dans :#%
-nie
 
-rs ISRAËL ZANGWILL
 _ les Slums de sa capitale. Mais il rentre dans son palais -
 __  oùil y a des femmes, des serviteurs et des parfums.
 "0 Le bourgeois philanthrope, lui, ne se résigne plus au ù
@@ -1292,15 +1087,10 @@ x tables. (3) Ils ont empêché le Peuple Juif de se « frapper »
 #4 et par suite de se laisser mourir. C'est par leur bomho- +
 mie un peu terre à terre, et qui a toujours exaspéré les
 : mystiques, qu'Israël a duré au milieu de l'écroulement :
-(:) Erckmann-Chatrian.
 5 (2) Voir le portrait de Reb Shemuel, dans Zangwill, CA. of the à
 F Gh, 63 et suiv. et 170 et suiv.
 FANS G) Moïse Schuhl, Sentences du Talmud et du Midrasch, Paris,
-_ Imprimerie Nationale, 1858.
-N dada
-4° 110 Lie #
 
-André Spire :
 des nations. Enseignant moins une religion qu'une
 sagesse ils ont habitué leur peuple à accepter « l'inévitable avec bonne humeur ». (1)
 
@@ -1319,7 +1109,6 @@ Heine, a sucé dans son enfance le lait grossier de la
 blague juive, qu'il est un farceur de ghetto. Sur ce fond
 juif s'est déposée la culture anglaise, plus que toute autre \
 favorable au développement de son génie car il y trouvait l'exemple et la tradition de l'humour. La culture
-anglaise, unie au génie juif, a donné naissance à À
 une plante nouvelle : l'humour juif.
 
 Je vis Zangwill, en 1909, à Paris. Lorsque j'entrai il
@@ -1329,17 +1118,11 @@ leurs coreligionnaires persécutés dans l'Est de l'Europe. |
 
 Zangwill s'enquérait de la valeur de quelques
 hommes, qui avaient offert de s'intéresser à la cause
-juive.
 
 — Et le docteur Ebenezer, disait-il, qu'en pensezvous? — C'est un très honnête homme, répondit l'autre.
 
 Mais..., connaissez-vous l'histoire de ce Polak à qui |
 
-(1) Ch. of the Gh., 149.
-
-si
-
-ISRAËL ZANGWILL
 l'on demandait des nouvelles de sa fille? Ma fille, dit-il,
 a épousé un homme quine sait pas jouer aux cartes. —
 Quelle chance vous avez! — C'est ce qui vous trompe;
@@ -1350,7 +1133,6 @@ sièges bas, je me demandais si j'étais dans le siftingroom d'un modeste hôtel
 Hyacinthe, ou dans une de ces académies orientales où
 les sages talmudistes enseignaient selon la méthode
 hagadique, par questions et par réponses, par maximes,
-sentences, apologues.
 
 Des éclats de rire, ou des images, voilà ce que le Juif
 a toujours préféré au mur blanc des idées générales.
@@ -1361,22 +1143,13 @@ du raisonnement logique. Il lui faut de petits chocs successifs séparés par de
 les foules juives se grisaient de ses paraboles. Ainsi
 parlèrent les Rabbis, car la Loi est une corbeille pleine
 de fruits délicieux, mais lourde, ronde et lisse; « l'apologue est l'anse par laquelle il est possible de saisir la
-corbeille ». (1)
 
 Aussi le peuple juif possède-t-il un immense folk-lore :
-
-}  … historiettes, fables, récits, légendes, calembours, bons
 
 | mots, (2) répertoire énorme où puisent les rabbins,
 
 (1) Sentences et proverbes du Talmud et du Midrasch, op. cit.
-page 176.
 
-(2) Ch. of the Gh., 245.
-
-37 Zangivill. —3
-
-+ André Spréte © T2 PORN
 et les maîtres d'école, les Badchen dont c'est le mé- 20
 tier de faire rire les convives aux repas de noces et 5
 les Schnorrer dont les bouffonneries amusent l'hôte 1e
@@ -1394,7 +1167,6 @@ temps les plus reculés, des époques bibliques outalmu
 transformées sans cesse; les autres sont d'hier, d'au- #4
 jourd'hui même, chaque génération admirant, vantant à
 ; ses aspirations, se moquant de ses travaux ou de ses
-vices.
 Car il ne faut pas s'imaginer que toutes les blagues |
 : juives qu'impriment les journaux ou les livres antisémites soient d'origine chrétienne. Un grand nombre a
 ” été inventé par des Juifs. Le théâtre juif de Vienne, les
@@ -1407,9 +1179,7 @@ Français poli et plein de soi, il aime à se railler soimême par politesse et 
 ; lités à voix basse et à voix haute de ses travers. (1)
 (n Sentences du Talmud, op. cit. |
 >
-+ che
 
-ISRAËL ZANG-WILL
 C'est comme s'il disait à son corps : tu n'es pas très
 joli, tu es grêle et gauche; à ses bras : vous êtes
 *  remuants; à ses mains : vous êtes des touche-à-tout; à
@@ -1426,7 +1196,6 @@ bas, le nez droit et charnu prolongeant le front; toute
 | orange, à la face elle-même de la lune. Une race vaincue
 - ou troplongtemps bafouée finit par se mépriser elle-même. » Elle n'admire plus que le type de ses vainqueurs, et leur
 ; âme. IL y a certes des Juifs qui, pour des raisons désinS téressées et de foi, cessent d'être Juifs, bien qu'ils enrai gent de n'avoir pu changer de tête en changeant de
-É Dieu. « Ihr Antesemitismus war mir bekannt, Ihr Anti-
 ; semitismus ist mir neu », (1) fut obligé de dire à l'un
 É d'eux un chrétien effaré du zèle de son nouveau
 F coreligionnaire. D'autres, sans se convertir, sont flattés
@@ -1437,11 +1206,7 @@ n° de s'efforcer de rester eux-mêmes et bien à part, ils
 ï s'adaptent, se fondent, se conforment, et diminuent en
 E. () Votre antésémilisme m'était connu, votre antisémitisme m'est
 : tout neuf. S. Freud. Der Wilz und seine Beziehung zum Unbewuss-
-; ten, Leipzig und Wien, Franz Deuticke, 1905, page 22.
-L 4 39
-CRALTS (NIV TS à w
 
-André Spire
 quelque sorte par leur fait cette diversité des êtres
 qui est une bénédiction de la nature. Cette espèce de
 Juifs ont peur sans cesse qu'un malotru ne leur reproche
@@ -1472,9 +1237,6 @@ visage immobile et l'audace tranquille du philosophe. (1)
 Mais voici un conte d'Alsace. Un colporteur, qui n'a
 io) H. Heine, De l'Allemagne, pages 89-90, édition Renduel, Paris,
 
-4o |
-
-ISRAËL ZANGWILL
 pas gagné un sou dans sa semaine veut cependant être
 rentré chez lui à Colmar pour le Sabbat. Il réussit à se
 glisser sur le quai et prend le train. En route le contrô-
@@ -1508,7 +1270,6 @@ premier, moi je ne pourrais voir Ça; tu me raconteras
 
 |
 
-André Spire RESTE
 comment ça s'est passé. Et il fait les cent pas sur le à E:
 trottoir. Enfin son ami redescend : Comment va l'en "8
 fant? — L'enfant, il n'y a pas un enfant, il y a deux 5
@@ -1523,7 +1284,6 @@ vaise foi. Car ils connaissent plus d'une farce chrétienne, Ÿ
 dont les héros chrétiens, en fait de ruse, rendraient des À
 points à des Juifs. Mais la défense des Juifs est mala- ù
 droite : avec le renard, renarde, (1) ont enseigné les :
-rabbis. pr
 La psychologie d'une race persécutée justifie, en effet, :
 les récits où les Juifs mettent dedans les Chrétiens. |
 ou les Infidèles. Mais ceux-là, et ils sont nombreux, où
@@ -1537,9 +1297,6 @@ toujours à l'affût de jeunes hommes à marier. La bellemère ne me plaît pas,
 stupide et méchante. —. Ce n'est pas la belle-mère, à
 c'est la fille que vous épousez. — Mais elle n'est plus
 () Alexandre Weill, Sagesse et fleurs d'esprit des rabbins, page ne
-me el
-
-ie AU" ISRAËL ZANGWILL
 
 jeune, et pas beaucoup plus belle: — Qu'importe ! Elle
 | ne vous en sera que plus fidèle. — Elle n'a pas beau-
@@ -1549,7 +1306,6 @@ l'argent que vous épousez”? Vous demandez une femme.
 
 — Mais elle à aussi une bosse. — Vous êtes bien difi-
 | cile. Est-ce que vous voudriez qu'elle n'ait aucun
-à défaut? (1)
 L: Quant au marchand il a besoin de tout le monde.
 | : Il ne veut se brouiller avec personne; mais en même
 
@@ -1574,11 +1330,7 @@ certains vizirs juifs, grands et petits, se sont montrés de
 l'esprit de repartie sur la place du marché. L'un d'eux,
 à marchand de chevaux, examinait un cheval de selle.
 4 IL est si rapide, lui dit le propriétaire de la bête, que si
-Es 5 (1) Freud, op. cit., 43.
 
-?
-
-André Spire PA
 vous montez dessus à quatre heures du matin vous
 serez à six heures et demie à Strasbourg. — Qu'est-ce
 que vous voulez que je fasse à Strasbourg à six heures
@@ -1594,7 +1346,6 @@ quelques sons grâce auxquels il conserve son indépen- ;
 tant après diner ces histoires juives qu'il ne publie pas,
 et auxquelles ressemblent d'une manière frappante, soit
 par le sujet, soit par l'accent, les contes brefs qui l'ont
-rendu célèbre.
 
 L'humour juif et les autres genres d'humour ont bien
 des traits communs : un sens aigu de l'ironie des choses;
@@ -1616,11 +1367,6 @@ Freud, et en particulier une version allemande de l'histoire ci-dessus. à
 
 (2) Par exemple the Hope Extinct, dans Ch. of the Gh., 189.
 
-G) Henri Heine, Reisebilder.
-
-; 44 ;
-
-ISRAËL ZANGWILL
 quent de la blague juive. Zangwill a recueilli un grand
 nombre de contes, de sorte que certains morceaux de
 ses œuvres sont une sorte de folk-lore juif, et que
@@ -1647,10 +1393,7 @@ On dit au talmudiste : Vous devez la dime dès que
 | si la cour est ouverte, et que les voisins puissent vous
 | (1) Ch. ofthe Gh., 54.
 (2) Par exemple, The King of Schnorrers, 303 à 311 et Ch. of the
-Gh., 26 et suiv. .
-4) Zangwill. — 3.
 
-André Spire 4. © ONE
 à voir les manger. — Et si la cour est ouverte dans une Eu.
 partie et couverte dans une autre? — La partie cou- +5 :
 verte sera considérée comme la maison. — Mais si je ‘s
@@ -1681,15 +1424,12 @@ De chacun des éléments qui composent l'humour de 24
 Zangwill il est très difficile de donner des exemples >=
 . (1) Talmud de Jérusalem. Traduction Moïse Schwab, tome III, 8
 page 155. Maisonneuve, éditeur, Paris, 1879. SES
-(2) The King of Schnorrers, 108. Sn
 
-1 +  ISRAËL ZANGWILL
 purs; car, même dans ses Essais, /où il discute à la manière juive sur des sujets non juifs, tous les éléments
 sont mêlés entre eux et brassés avec un fond d'humour
 anglo-saxon et germanique. (1) Mais c'est de leur pâte
 que sont pétris les personnages des romans, des contes,
 des drames de Zangwill : des êtres cultivés, gais, susceptibles, vétilleux, vulgaires, enthousiastes, flagorneurs, escrocs, bateleurs, dévots, ignorants, superstitieux, éloquents, bavards et braves : le Roi des
-Schnorrers, Sugarman the Shadchan, Mrs. Belcovitch,
 Malka, Flutter Duck; le doux, aimable, jovial Reb
 Shemuel, et enfin un héros singulier qui réunit en lui
 les deux traits dominants du Juif oriental, l'idéalisme
@@ -1711,13 +1451,8 @@ toutes choses, sur quoi que ce soit. Et il croyait en ses
 idées parce qu'elles étaient siennes et en lui-même à cause
 de ses idées. Il lui semblait parfois que sa taille grandissait,
 jusqu'à ce que sa tête touchàt le soleil, mais c'était surtout
-() Without prejudice.
 
-i » MES
-2er
-André Spire RE
 après boire, et son cerveau gardait de ce contact une per- ;
-pétuelle flamme. (1) c e
 Pinchas envoie ses ouvrages aux Juifs riches qui,
 pour se débarrasser de lui, lui donnent, en retour, quelques shillings. Mais il accepte de toutes mains et porte
 à domicile ses livres chez de plus humbles, dont il
@@ -1734,7 +1469,6 @@ les Flammes du Métamoron. N'est-ce pas un beau titre ?
 Quand Enoch fut enlevé tout vif au ciel, il fut changé en
 feu et devint Métamoron, le Grand Esprit de la Cabale.
 Ainsi mon àme s'élève dans le Ciel de la poésie lyrique et
-se transforme en feu, en flamme, en lumière.
 [La face du poète] était taillée à coups de hache, et non
 sans ressemblance avec celle d'un Aztèque.. Il tenait dans
 une main un paquet de livres à couverture de papier, et
@@ -1747,12 +1481,7 @@ des cents pour porter des cravates blanches.
 Pinchas, dit la Rabbine ? :
 — Qui, qui, balbutia Melchitzedec ? qui d'autre que moi ?
 — Mais vous dites que vous êtes un pauvre diable.
-(1) Ch. of {he Gh., page 141.
-(2) Ch. of the Gh., page 69.
 
-RS OP
-
-ï ISRAËL ZANGWILL
 — Vrai comme la loi de Moïse! Mais j'ai écrit des articles
 pour les journaux yiddish. Ils courent après moi. Il n'y a
 pas dans leur rédaction un seul homme qui sache trousser
@@ -1789,8 +1518,6 @@ réunions, dans les sociétés, dans les comités, où il
 sollicite avec une naïve et inlassable ambition un
 poste de président, de secrétaire, de trésorier, d'orateur.
 
-ve MES 7,
-André Spire +10
 : On n'ose le mettre à la porte. On sait que seule la force 4
 physique est capable de le faire sortir; et ce n'est pas “5
 toujours sans danger, comme l'éprouva le Directeur du À
@@ -1820,25 +1547,18 @@ Vous savez, ils sont tous déjà jaloux de moi ; je n'ose pas en À
 rayer un.
 — Ah non! ne dites pas ça! plaida Pinchas en posant
 l'index sur l'aile de son nez. 3
-CRE
-(1) Ghetto Comedies, 259. d
 (2) Ch. of the Gh., 179. Je n'essaye pas de traduire l'accent judéo- 2
 anglais qui augmente encore le comique du personnage. FE
 50 1
-1e
-
-ISRAËL ZANGWILL
 
 — Il le faut bien!
 
 — Vous déchirez mon cœur en deux. Je vous aime comme
 un frère ou presque comme une femme. Rien qu'un seul
-discours,
 
 Dans ses yeux brillait un sourire solliciteur.
 
 — Je ne peux, ils fondraient sur moi comme un nid de
-guêpes. ge
 
 — Un seul petit, un seul, Simon Wolf.
 
@@ -1865,7 +1585,6 @@ contre son nez :
 
 — C'est moi que vous ne reprendrez plus à vous passer
 mes idées, dit le poète éclatant. Et il sortit en claquant la
-porte,
 
 Le leader s'installa devant ses papiers avec un soupir
 
@@ -1885,13 +1604,8 @@ vous aime.
 — Oh! vous êtes un grand homme, dit-il! puis il sortit
 3 fermant la porte doucement.
 
-;
-
-D
-
 #4 ac: tr à
 
-IV
 Les Pogromes
 
 L'impossibilité d'être satisfaits, voilà la caractéristique de la plupart des héros de Zangwill. Des natures
@@ -1912,8 +1626,6 @@ amour des idées ont fait dilettante, au fond haït les
 dilettantes, « les tisseurs de nuages, les jongleurs de
 mots », et, misérable au milieu des jouissances, c'est
 lui qui va vers la mort. Quant à Dieu lui-même, le tout
-
-ISRAËL ZANGWILL
 
 puissant Créateur, il ne peut rien pour le désespéré qui
 s'abandonne à lui. S'il agit, Dieu n'agit qu'au travers
@@ -1940,19 +1652,11 @@ quelques jours de soleil, un peu de repos, une petite réussite, et il comprendr
 plaisir qui soit donnée à sa nature passionnée : dépenser son enthousiasme; que ce qui importe ce n'est pas
 les « résultats, mais l'action elle-même ». (3) Car il
 
-(1) Ch. of the Gh., 379.
-
-(2) Without prejudice, 53.
-
-G) Dream. of the Gh., 448.
-
-André Spire ar Eu - $
 appartient à cette race incapable de désespoir, à cette FFE
 race si active, si vivante, qu'il lui est impossible d'ima- Fe
 giner que ses morts eux-mêmes cesseront d'agir un 5 L
 jour. « Il ne faut pas envisager le monde futur comme :
 un lieu de repos, a dit un de ses sages. Là même, l'acti- ;
-vité spirituelle continuera à s'exercer. » (1)
 
 11 ne suffit donc pas à Zangwill de nous émouvoir ou
 de nous amuser en peignant des personnages. Il a ;
@@ -1977,10 +1681,7 @@ de la fraternité universelle. Les Russes commencèrent
 à massacrer leurs frères juifs. Les Roumains avaient
 (1) Moëd Quaton, cité dans Des Ailes à la Terre, publication de '
 l'Union libérale Israélite, Paris, rue Copernic, 24. 3
-(2) Dream. of the Gh., 318. ne 1
 
-Ne
-k ISRAËL ZANGWILL
 inventé pour eux une condition inférieure à celle de
 citoyen, celle de sujet tenu aux charges, ne jouissant
 .pas des droits. (1) Vienne élisait une municipalité
@@ -1995,7 +1696,6 @@ leur jeta ce poème :
 Mais nous, peuple de Jéhovah, sommes doubles et si défaits.
 Esclaves d'éternelles Égyptes, faisant cuire nos briques sans paille,
 A l'aise dans des Sions successives, bavardant sur leurs politiques ;
-Pourrissant au soleil roumain, baugés en Zerritoire russe,
 Conduisant au Parc, au Bois, au Prater, pendus à la queue du chic.
 Tremblant devant les brutes, blessés de mille pointes, A
 Habillés de pourpre, de lin, choyés à la cour des Rois ;
@@ -2012,11 +1712,7 @@ roulaient, que les expulsions et les massacres se préci-
 
 (1) Bernard Lazare, les Juifs en Roumanie, et Jérôme et Jean ï
 Tharaud, Bar-Cochebas. Cahiers de la Quinzaine, février 1902 et
-février 1907.
 
-(2) Blind Children, page 129.
-
-3 André Spire
 pitaient, il essaya de remuer la conscience juive en lui :
 parlant des pogromes. Aux Juifs lâches, il conta l'histoire des héros juifs,
 
@@ -2045,8 +1741,6 @@ cration, s'avance droit dans sa robe de satin blanc et
 son châle bordé d'une bande d'argent. Un soldat doit
 savoir ce que c'est que du sang, dit-il avec tranquillité. — L'officier flaira le goulot débouché de la bouteille et sa face se détendit dans un faible sourire. Un
 
-ISRAËL ZANGWILL
-
 soldat connaît l'odeur du vin aussi, dit-il ; et, sautant
 en selle, il ordonna la retraite. (1)
 
@@ -2054,7 +1748,6 @@ Samooborona (2) est l'histoire du pogrome lui-même.
 
 La nouvelle qu'un massacre se préparait à Milovka,
 petite ville polonaise, arriva au quartier général de la
-Samooborona (Self-defence) grâce aux indiscrétions
 : d'un pope de village « qui avait eu une goutte de sang
 de trop ». Le jeune David Ben Amram est expédié en
 hâte pour organiser un corps local de la Selfdefence.
@@ -2079,9 +1772,6 @@ d'un Vrai Russe. Bourgeois, tonna-t-il, je veux vous
 
 (1) Zlijah's Goblet dans Gh. Com.
 
-(2) Gh. Com.
-
-: HUIT
 André Spire ne.
 ,
 
@@ -2095,10 +1785,7 @@ sauverons Milovka. — Hélas ! murmura Ezéchiel, je
 viens de tirer un mauvais numéro. Je pars combattre $
 pour la Russie. :
 
-David rend successivement visite aux banquiers, aux
-avocats, aux médecins, aux intellectuels, aux ouvriers.
 Chacun appartient à un parti : Octobriste, Cadet, Polonais, Progressiste, Social-démocrate, Socialiste-révolu- :
-tionnaire, Social-Sioniste, Social-Territorialiste. Aucun
 ne veut s'entendre avec les autres. Chacun trouve des
 prétextes pour ne pas s'entendre avec David. Vous êtes
 un Maximaliste, je le vois bien, lui dit le gardien du
@@ -2126,10 +1813,7 @@ offrit à David de se cacher dans une cave. Mais il pré-
 féra monter sur un toit d'où, à l'aide d'une petite
 
 lunette, il pouvait surveiller les mouvements du cordon ;
-58 de
 
-M A È .
-ISRAËL ZANGWILL
 d'investissement. Ses yeux ne quittaient pas une figure
 qu'il avait découverte parmi les canons. « C'était
 Ezéchiel Leven, son ancien lieutenant, avec lequel il
@@ -2140,7 +1824,6 @@ pointait minutieusement un canon Gatling. « Pauvre
 « encore une autre forme de Self-defence. » Et il tourna
 son pistolet contre lui-même. »
 Dans The Melting Pot, (1) nous voyons les suites des
-pogromes.
 C'est à New-York, que se déroule le drame. David
 Quixano est un jeune musicien de génie. Il appartient
 à cette catégorie d' « Orphelins de Pogromes », comme
@@ -2158,9 +1841,7 @@ la face de l'officier qui assistait au massacre de KishinefF,
 F et qui, au lieu d'ordonner à ses soldats d'arrêter les
 | (1) Le Creuset, drame joué pour la première fois le 5 octobre 1908
 : sur la scène de Columbia Theatre à Washington.
-L
 
-André Spire
 émeutiers, leur commandait de tirer sur les femmes,
 sur les enfants qui échappaient au massacre. Soudain,
 il reconnaît que le père de Vera est ce chef d'assassins
@@ -2178,39 +1859,27 @@ Mais maintenant, maintenant David, je viens à vous et
 je vous dis, répétant les paroles de Ruth : « Ton peuple
 sera mon peuple et ton Dieu sera mon Dieu. »
 
-DAVID
-
 Ne m'approchez pas. Il y a une rivière de sang entre nous.
-VERA ;
 
 S'il y avait les sept océans, notre amour les franchirait.
-DAVID
 
 Facile à dire pour vous. Vous n'avez jamais vu le ruisseau
 rouge charriant des seins mutilés de femmes ou des cerveaux
 écrasés de petits enfants. :
 
-VERA
-
 O mon Dieu! Laissez Vera vous consoler. Elle s'agenouille
 
 contre la chaise de David et essaye de jeter ses bras autour de lui...
-DAVID
 Otez vos bras. Ne sentez-vous pas la froide mort qui se
 glisse entre nous.
-VERA
 Sans se troubler attire la face de Dayid vers ses lèvres.
 Embrassez-moi, David.
 
 |
-y
 
 | ISRAËL ZANGWILL
-. DAVID
 Je sentirais le sang sur vos lèvres.
-VERA
 Mon amour l'effacera.
-DAVID
 Amour, amour chrétien. Pour cela, j'ai quitté les miens,
 assombri le foyer qui m'avait recueilli, Il y avait pourtant
 dans mon cœur une petite voix qui ne cessait de me dire :
@@ -2234,11 +1903,7 @@ qui calcule, qui analyse tout ce que l'opinion exige
 qu'elle fasse pour venger son père tué par son amant.
 Crains-tu si peu le blâme et si peu les faux bruits ?.…
 Il y va de ma gloire, il faut que je me venge.
-() Acte III, in fine.
-(0: Zangwill. — 4
 
-TA TERS
-André Spire FER
 David et Vera ne s'occupent pas de ce que pensent FER à
 d'eux quelques gens bien élevés. Leurs sentiments SE
 sont de l'élite, mais eux sont peuple de préférence ou pes
@@ -2247,7 +1912,6 @@ sionnés, intuitifs, détraqués si l'on veut, détraqués
 ; comme tous ceux qui ont baissé une fois les yeux sur Re
 le grand drame où se débattent les peuples et n'ont pas
 la tête froide d'un ambitieux, ou le cœur sec d'un dilet- “e
-tante. =
 The Melting Pot est, je crois, l'œuvre la mieux %
 réussie de Zangwill. Toutes ses autres œuvres ont Ée
 quelques taches : des fautes de goût, un certain manque
@@ -2268,11 +1932,7 @@ déjà tendus par une forte situation dramatique. On lira CHERS
 * plus loin (1) une de ces scènes trop longue pour être reproduite ici: David vient d'annoncer à son oncle que
 Vera Revendal l'aime. Mendel Quixano le blâme de
 vouloir épouser une chrétienne. David quittera donc
-(1) Page 79. LR
-: 62 a
-Er e
 
-PA * ISRAËL ZANGWILL
 à __ la maison. À ce moment Frau Quixano, qui célèbre |
 f Pourim, le carnaval juif, dans la cuisine, entre en riant
 " avec Kathleen la servante irlandaise, se met un faux
@@ -2308,7 +1968,6 @@ L: jection, sont tentés de prendre pour des nouveautés ce
 
 a n'a pas plus imité Ibsen qu'il n'a singé Shakespeare.
 
-( V
 L'Ito
 Une œuvre d'art, des mots, des sons, enseigner les
 hommes, émouvoir les hommes, chose vaine! Quelques
@@ -2337,7 +1996,6 @@ Lorsque le docteur Herzl vint à Londres avec son
 plan d'État juif, ce fut Zangwill et ses amis les Macchabéens qui le reçurent et l'aidèrent à rendre publics
 ses projets. Zangwill assista à presque tous les congrès
 sionistes et fut l'ami fidèle et le collaborateur du doc- :
-teur Herzl. Cenendant Zangwill, esprit divers, ennemi
 des systèmes, n'ignorait aucune des objections que l'on
 peut faire contre la reconstitution d'un État juif.
 
@@ -2365,12 +2023,7 @@ chercheraient à faire donner à leurs maîtresses les premiers
 
 | grandes religions, la cité la moins sainte sous le soleil,
 où des quantités effroyables de misérables agonisent
-(1) Dream. of the Gh.;, 463. $
-65 Zangioill. — 4.
-È
 
-2 CR NES AR ER |
-André Spire Fe 7”
 dans des ruelles à pic, pleines de détritus »: (r) la Pa- #
 lestine, ce pays dévasté, où les peuples n'ont laissé que
 des pierres brûlantes et de la poussière, sous un amas de 5
@@ -2400,14 +2053,9 @@ pour jour, après la mort du docteur Herzl, le septième
 congrès déclara que le but du Sionisme ne pouvait
 être que la Palestine ou les pays limitrophes et refusa
 le territoire Est-Africain. É-
-(1) Dream. of the Gh., 474. ; E
-FAR
-ms
 
-RAA fe ISRAËL ZANG-WILL
 | De Russie des centaines de lettres arrivèrent pour
 supplier les chefs du mouvement d'accepter l'offre
-3 anglaise :
 4 Les rues de Kieff sont pleines de lamentations ; les cosa-
 : ques, les hooligans abattent, égorgent nos frères et
 s personne n'est là pour nous défendre. Les organisations de
@@ -2434,16 +2082,11 @@ Fe de Varsovie, d'Élizabethgrad... Nous avons été déclarés
 ‘ demandez-lui l'Ouganda... Il n'y a qu'un mot à dire et toute
 “= - Vémigration partira pour l'Est-Africain. Au nom de milliers
 É de familles.
-Es.
 È Zangwill fonda aussitôt la « Jewish Territorial
 | Organisation » (I. T. O.), et, trois semaines après le
 refus du congrès sioniste, se déclara prêt à accepter le.
 Ke territoire Est-Africain. Malheureusement, le GouverRe nement anglais en avait déjà disposé. Depuis lors
 d Zangwil dirige l'Ito. Il négocie, voyage, fait des confé-
-Ês: 97 .
-
-} 2 RCE
-André Spire
 
 rences, des discours, écrit des pamphlets, des manifestes, échange une énorme correspondance, intervient
 devant la justice. Il a maintes fois développé le programme de lIto. Mais où nous trouvons ce programme
@@ -2510,7 +2153,6 @@ pas indispensable; elle n'est qu'un moyen pour une fin
 
 |
 
-ue André Die : è 7 ;
 qui est l'autonomie. Cette autonomie est absolument M.
 nécessaire. À quoi bon se donner le mal de peupler un 8 ‘+ |
 pays neuf, si les colons n'ont pas le contrôle de leur
@@ -2543,7 +2185,6 @@ quand ils pourraient émigrer en terre juive prouvera #2
 leur patriotisme. D'autre part leur situation mondaine
 est bien plus compromise par l'existence d'abattoirs et # à
 
-UNSS
 | RU ISRAËL ZANGWILL A
 de cloaques, comme le Territoire russe et la Mellah
 marocaine, que par un État juif prospère. S'imaginent_ ils que leurs amis chrétiens reviennent avec beaucoup
@@ -2574,9 +2215,6 @@ $ commission géographique, (1) l'Ito en a retenu deux
 à (1) Composée entre autres membres de M. Oscar S. Strauss,
 ê ambassadeur des Etats-Unis en Turquie, et de lord Rothschild,
 
-2 a ss
-André Spire
-
 assez rapprochés de la Palestine pour attirer les masses
 juives toujours tendues vers Jérusalem. Le premier
 était la Cyrénaïque. Son climat, ses côtes, ses paysages,
@@ -2590,13 +2228,11 @@ l'Ére chrétienne. Mais la mission que l'Ito envoya en …
 Cyrénaïque trouva partout un sol perméable. L'eau des
 pluies y est si rapidement absorbée que le pays ne peut ;
 faire vivre, et sans doute n'a jamais pu faire vivre une
-importante population.
 
 L'autre territoire est la Mésopotamie, le berceau de la
 race juive, jadis l'une des plus fertiles contrées de la
 terre, aujourd'hui un désert presque dépeuplé. IL
 suffirait d'un peu d'eau pour qu'elle pût nourrir des
-millions d'hommes. Abdul Hamid, en financier avisé, y
 avait envoyé en mission Sir William Willcocks, l'ingé-
 nieur célèbre qui irrigua l'Égypte. Sir William Willcocks
 revint avec un rapport plus que favorable. Il ne faut pas
@@ -2610,9 +2246,6 @@ publics. Mais les capitaux et les hommes leur font
 défaut. L'occasion est propice pour les Juifs de passer
 avec la Turquie un contrat, et de lui fournir les capitaux,
 
-Si \
-ISRAËL ZANGWILL
-
 le travail et la population nécessaires. Ahmed Riza Bey,
 président de la Chambre des Députés Ottomane les ya :
 invités. (1) Il ne reste plus ‘qu'à déterminer à quelles
@@ -2620,7 +2253,6 @@ conditions et sous quelles garanties les Juifs accepteront; quelle sera celle de
 juives : le Jewish Colonial Trust (Sioniste), l'Ica ou
 l'Ito à qui sera confié l'honneur de mener à bien cette
 œuvre gigantesque et d'apporter à la question juive le
-remède guérisseur.
 
 Mais en attendant que le contrat ait été passé, que le à
 territoire puisse être mis en culture, que des marchés
@@ -2646,7 +2278,6 @@ juifs, pouvant en cas de danger se grouper pour la
 | numéro du 30 avril 1909.
 | 73 Zangwill. — 5
 
-André Spire |
 Self defence, et disposant d'une certaine puissance électorale, auront une vie respectée. -
 
 Malgré toutes sortes de difficultés de la part du Gouvernement russe, et les railleries de la presse sioniste,
@@ -2676,8 +2307,6 @@ aussi bien que des vertus. Nos vertus ne sont comptées
 qu'à chacun de nous. Nos vices sont imputés à toute
 notre race. On nous reprochaïit jadis la crasse de nos
 
-; “
-ISRAËL ZANGWILL
 pauvres. Maintenant c'est le bien-être de nos riches.
 Leurs automobiles jettent sur les passants une boue
 plus gluante que les automobiles chrétiennes. Demain
@@ -2709,8 +2338,6 @@ qui passe ses jours à faire des bandages pour les blessures
 î heures de la paix. Mais quand nous sommes sur le pied de
 (1) Discours du 7 décembre 1907.
 | :
-
-André Spire | À
 
 guerre, quand l'agonie de notre peuple crie à nos oreilles,
 depuis les abattoirs russes jusqu'aux Mellahs du Maroe, et
@@ -2758,7 +2385,6 @@ combien de temps encore? Pour combien de temps? ?
 | Le plein jour ne l'aveugle pas, comme certains hommes
 ; de lettres que les grands cris du peuple ont attirés un
 | jour hors de leur bibliothèque, et qui, après avoir heurté
-leurs pauvres larges fronts contre quelques murailles
 É rugueuses, retournent en titubant à leur chère demi-
 | lumière. Lui, il est de taille à vivre les romans qu'il a
 écrits. Les nuits en chemin de fer, les semaines en
@@ -2775,13 +2401,11 @@ On a lu les anecdotes qui courent dans les Juiveries et
 | est loin d'être flatteur. Nous nous montrons toutes
 nos tares, parce que nous espérons nous en guérir.
 ê Zangwill est un conteur Juif. C'est pour cela que, si
-; souple, si divers, si intellectuel, si peu Anglais en
 4 somme, il ressemble si peu à un écrivain français. Il
 | est comique, drôle, amusant, farceur, cocasse. Ce n'est
 { pas un ironiste. L'ironiste Français semble lever ses
 à épaules lassées et dire : rien ne sert à rien, sourions.
 
-André Spire
 Le Juif dit aussi : rien ne sert à rien. Mais, au fond de
 lui, il pense : Qui sait? tout est possible! essayons!
 _ Zangwill essaye de régénérer son peuple. Il ne veut
@@ -2796,112 +2420,62 @@ pour une idée est le privilège qui a été accordé seulement à Israël, le s
 tragédie, mais une épopée... La vraie tragédie, la
 tristesse des tristesses, consiste dans le martyre d'un f
 Israël indigne de ses propres souffrances. » (1)
-(à) Gh. Com., 6.
 
-UN TEXTE DE ZANGWILL
-A Le Creuset (1)
 Dernière scène de l'acte II
-j DAVID
 jetant ses bras comme un enfant autour du cou de son oncle (2)
 Je suis si heureux.
-MENDEL
-Heureux ?
-DAVID
 Elle m'aime, Vera m'aime.
-MENDEL
-Vera ?
-DAVID
-Miss Revendal.
-MENDEL
 As-tu perdu l'esprit ?
-DAVID
 Votre surprise ne m'étonne pas. Est-ce que vous croyez
 par hasard que je nai pas été surpris, moi ? C'est comme
 | si un ange s'était penché.
-(1) The Melting Pot, drama in four acts, New-York, the Macmillan
-Company, 1909, pages 99 à 105.
 (2) Selon l'habitude anglaise le texte original contient de nombreuses indications d'attitudes scéniques. Je n'ai traduit que les
 plus indispensables. — A. S.
 
-4 !
-Israël Zangwill
-CERN LIEN EE Ne PRE ARR RE TC EEE  ME e U
-MENDEL
 Est-ce bien vrai ? Ce n'est pas quelque stupide farce de
-Pourim ? |
-DAVID +0
 Vrai el sacré comme le lever du soleil.
-MENDEL
 Mais tu es Juif.
-DAVID
 Oui, et pensez un peu? Elle est née pour mépriser les
 Juifs, son père est un baron russe.
-MENDEL
 Même si elle était la fille de cinquante barons tu ne
-. 2 ll
 pourrais l'épouser.
-DAVID
 Mon oncle! Alors votre passion pour la Synagogue c'était
 quelque chose de sérieux au fond.
-MENDEL .
 Ce n'est pas tant la Synagogue que l'appel de notre sang
-à travers d'innombrables générations.
-DAVID
 Vous dites ça, vous, vous qui êtes venu ici au cœur du
 Creuset où la fournaise de Dieu fond notre race avec toutes
 les autres.
-MENDEL
 Non pas, notre race à nous; non pas ta race et la mienne. é
-DAVID
 Quelle immunité a notre race ? L'orgueil et les préjugés,
 les rêves et les sacrifices, les traditions et les superstitions,
 les jeûnes et les fêtes, les choses nobles et les choses
 sordides, tout cela doit aller au Creuset.
 
-Lg 0 EURE f
-14 4 " +
-LE CREUSET
-Re
-x
 | MENDEL
-. \
 Le Juif a passé mille fois par l'épreuve du feu, il s'y est
 seulement trempé et recuit.
-\ DAVID
 Feux de haine, non feux d'amour. C'est cela qui fond tout.
-MENDEL
 C'est ce que je vois.
-DAVID
 Raillez! Vous tombez à côté. L'amour qui m'a fondu,
 moi, n'est pas celui de Vera, mais l'amour que l'Amérique
 ; me montra le jour où elle me recueillit contre sa poitrine.
-MENDEL
 Beaucoup de nations nous ont recueillis. La Hollande k
 nous reçut quand l'Espagne nous chassa ; mais nous ne
 devinmes pas des Hollandais. La Turquie nous reçut quand
 4 l'Allemagne nous opprima, nous ne sommes pas devenus
 ; des Turcs.
-F DAVID
 { Ce n'était pas des pays en formation, c'était de vieilles
 ï civilisations marquées du sceau d'une croyance. Ici, dans
 4 cette jeune République laïque, il faut regarder en avant.
-Le MENDEL
 
 4 Il faut aussi regarder en arrière.
-b
 
-1 DAVID
 { Vers quoi, vers Kishineff ? comme si sa vision se dressait devant
 lui. Vers cette face de boucher dirigeant le massacre ; vers
 j ces?
-V
-j MENDEL
 | - Chut ! calme-toi.
 | 81
 
-Israël Zangwill : n
-
-DAVID
 Oui, je veux me calmer; mais comment puis-je me
 calmer, sinon en oubliant tout ce cauchemar des religions
 et des races, en élevant mes mains, mes prières et ma
@@ -2909,50 +2483,29 @@ musique vers la République de l'homme et le Royaume de
 Dieu. Le passé je ne peux le changer ; ses lignes mauvaises
 sont figées dans leur immortelle rigidité. Enlevez-moi
 l'espoir que je peux changer l'avenir et vous me rendrez fou.
-MENDEL
 Tu les déjà. Tes rêves sont fous. Le Juif est détesté ici
 comme partout. Tu es infidèle à ta race.
-DAVID
 C'est à l'Amérique que je réserve ma foi. J'ai foi que
 l'Amérique nous gardera sa foi.
-MENDEL
 Va-t-en, et épouse ta Chrétienne ; et sois heureux!
-DAVID
 Vous me renvoyez ?
-‘ MENDEL
 Voudrais-tu rester ici et briser le cœur de ma mère. Tu
 sais bien qu'elle prendrait le deuil à cause de toi comme si
 tu étais son propre fils. Va, tu as rejeté le Dieu de nos
-pères!
-DAVID |
 Et le Dieu de nos enfants est-ce que nous n'avons pas de
 devoirs envers lui? Vous avez raison, il me faut un monde
 plus vaste. Il faut que je m'en aille.
-MENDEL
 Pars donc. Je lui cacherai la vérité. Il faut qu'elle ne
 soupçonne rien. Sans cela elle te pleurerait comme si tu
-étais mort.
 
-:
-Ê à
-L n
 | LE CREUSET
 | .
 FRAU QUIXANO, du dehors, dans la cuisine
-Ha ! Ha! Ha! Ha! Ha!
-KATHLEEN
-Ha ! Ha! Ha! Ha ! Ha!
-FRAU QUIXANO ET KATHLEEN
-Ha! Ha ! Ha ! Ha ! Ha!
-MENDEL, amèrement
 Un joyeux Pourim ! La porte de la cuisine s'ouvre, Frau Quixano se
 précipite en scène tenant le violon et l'archet de David. Kathleen regarde
 ébahie par la porte entrebüäillée.
-FRAU QUIXANO, riant aux éclats :
 Joue encore! Joue !
-MENDEL
 Non, non, David, je ne pourrais supporter ça !
-DAVID
 Mais je le dois. Vous m'avez dit qu'il faut qu'elle ne se
 doute de rien. Il la regarde avec amour en disant à haute voix ces mots
 qu'elle ne peut comprendre : Il se peut que ce soit la dernière fois
@@ -2964,12 +2517,7 @@ Hi! Hi! Hi! Elle se plaque sur le visage un faux nez grotesque qu'elle
 tire de sa poche.
 (1) En yiddish dans le texte.
 
-Israël Zangwill |
 DAVID, riant et pleurant à la fois D
-Ha ! Ha! Ha ! Ha! Ha!
-MENDEL, choqué
-Mère. (1)
-FRAU QUIXANO
 
 Et toi aussi. Elle applique de force un autre faux nez sur la face de
 Mendel, et rit de l'effet avec une joie puérile. Puis elle se met à danser au
@@ -2978,76 +2526,35 @@ de sa maîtresse.
 
 DAVID, les yeux pleins de larmes rit avec les autres
 
-Ha ! Ha ! Ha! Ha! Ha! :
-
 Le rideau tombe vivement: il se relève sur un tableau où Frau Quixano
 essoufflée de rire et affalée sur une chaise s'évente avec son tablier, tandis
 que Kathleen haletante s'est écroulée en travers du bras d'un fauteuil. David
 joue encore, et Mendel qui a arraché son faux nez se tient à côté de lui tout
-sombre...
 
 () En yiddish dans le texte.
 
 #4
-$
 
-ŒUVRES D'ISRAEL ZANGWILL
-Romans — Nouvelles — Essais — Poèmes
 The Premier and the Painter /en collaboration avec Louis
-Cowen), 1888.
-The Bachelors Club, 1891.
-The Big Bow Mystery, 1892.
-The Old Maids'Club, 1892.
 | Children of the Ghetto, 1892.
-Merely Mary Ann, 1893.
-Ghetto Tragedies, 1893. ï
-The King of Schnorrers, 1894.
-The Master, 1899.
-Without Prejudice (Essais), 1896.
-À Dreamers of the Ghetto, 1898.
-£ They that Walk in Darkness, 1899.
-The Mantel of Elijah, 1901.
-The Gray Wig, 1005.
 | Blind Children {Poèmes), 1903.
 | . Ghetto Comedies, 1907.
 | Théâtre
 f Six Persons. — Children of the Ghetto {en anglais et en
-{ yiddish). — The Revolted Daughter. — The Moment of.
-Death. — Merely Mary Ann. — The Serio-Comic Governess. — Jinny the Carrier. — Nurse Marjorie.
 | The Melting Pot /Drame).
 VS A part les pièces de théâtre, dont la plupart ne se trouvent pas
 | en librairie, et The Melting Pot, édité à New-York, chez Macmillan, les œuvres d'Israël Zangwill sont éditées à Londres, chez
-William Heinemann.
 3,51
 
-RATE MES RU A AE PRO ANT AD SL 14) FANS ATOS RS Ge Led LE GET: ES à
-AR A NO AU AA LE Fe AN NA RON PARA ET ER ORRTE
 PAL on ji 4) NA Pile AA nn MU
-À 1e RNA \ k ! fi 4 CI TEA RTS
-Li ANNE nn (OT SNS
-AM OT RAM | | | Ve A ANNE SNS
-LORIE RENNES l k SR RE A AO (+ DORE CU
 ASIA NE PAM NAN Pate L et) DA ITR I M
-Ne OT OMS NN \ k AN k FAT |.
-DRE 1 PAU MR ANAAT ETAT EE Na RNA AT MENNS (TR
-sn LA CNT RAINE ATEN NS (2 MAR AURONT RO CAM TU EM EN NNes
-LA ONE NAS CRRE AN EE En A0) BETA LUN EE AA AE QUE A LACS
 D ue ou uns EU À
 TETE MIS REEEESS AU LEA CP EAN A LA AA ga tt Aa ta ARE EL 1
 AT AU nu MAS HD ET es FAN EE PATES RAA PEL
-LA AO AN a
 
-TABLE DE CE CAHIER
-PAGES
 Sa Zano villa SNS ha OUEST
-aimerais à me plonger.:01..1.1.:1.....0MeMCRRs 3
-TT COTÉES RER PARA As nl 5
 M PeiGhetto nu iso CAT SA nn ART G
 HÉiLes Enfants du Ghetto:...:11:.11.1 1m ;
 Et omourt Juif. 40 UE AAA
 IV Les) Pogromes: (ul ne ere res
-Ke A ARMELLE (GE
-BA UCHOTUTL A) DAS ADDAUVT TN 5.2; NAN
 | Un texte de Zangwill. — Le Creuset.................. 79
-uvres d'Israël Zangwil........1:......0. 022785)
-Mablerdercencalier #20 Ur Arena er

@@ -7,78 +7,31 @@ author: robert-dreyfus
 isAvertissement: false
 wordCount: 20834
 ---
-
-NEUVIÈME CAHIER DE LA NEUVIÈME SÉRIE
 | ROBERT DREYFUS
-VIES DES HOMMES OBSCURS
-Alexandre Well
 ou le prophète
 du faubourg Saint-Honoré
-1811i—1899
 139394,
-À.10./€
-CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-"1 LAN j II +"
-RUE PARU PEUT
-ANA DR MU) DÉFINIES PCR AU A RTE FES VEN EME 'HEPE NN VAN
-à (FEA 4 (NET es ST } ÿ } AT AU ARTS CCE LU CP PAT LEA AU ANA
-D eat HT LR AAINENEESS
-SAREIE à MEN \ Pre LUN Ni TN 1 UN ES VE NT A FU 0 EN k
 (144 ie on AGE ANA LU TRS y EU AN STONE er | RTE 4
 
-he 1, TOR AU } ‘ 1} (a MENT RL SEE an PART SAR
 à ARE TNT OA A VAN AAA EAN Da } ARR Une
 + VONT tee 4 ) PAS KA al h 'K RE AC CHAT A AUONNPEN
-UE Ke CN MALE FOR A
-1} FRE 0 MERE Luc 1 À rm F FER “APS *J'ATE
-UE ÿ : \} " fée FE x ‘RME
-MENT PARU TE nie À ete d PURE DRE
 
-: HANANENN j} h 4e A RATS INA
 nl DTA ù el PACA EE LE A0 RARES 3
 10 ( ; ea 6 jte MR A Un fou QUE ta
 NE NE enn \ | ; RAT: 6 tp INR NES
 
 il Le | à e af A at TRES M
-(AA ! } } fa \ ! (PNR nn EAN
-
-110 NAN À | NE CARTE ERA TUE
-nu { o } ! DS NAN ie
-\\ IS ft à CLONE
-« VEN TN VA MEANS ANA % RAR TEUU DAME 7
 
 4 Ai TR A ARE EU PT UN) hi! fe nor HAINE More
 
 :: ATOS ES ANNE (ec DANS ( RENAN AREN ATALRE 74 RANCE RNA sl k
 
-f à SARA 4) RTS Le FA DRE
-
-CA PA A DEL A a LA
-PCR ULRE NE à FN LD DATES ERA AU RUE PRO EN POSE A TRES AN IFR
-
 LRU pre 6 ER Ce I AE Le tr ON AR IEEE AN PE EE EAP
 
 era je EE NU AN SN RO Lee Hu
-
-Me « “ LÉ RAT A4
-D Fe +7 RUE
-ES SRE ' * À ë L ASE Si
-AE Re ; ; : ; b L E x
-LI LME EE 1 he NARUARNIETS
-LS AREAS 4 } x 4 "1 0 VA QE
-
-!: 1104 ENTREE h x D SFR NOEL ER
-“4560 GATE EAN AES Alexandre Weil. — 2 0 AN À
-
-1 1H SRENTS à 2 n x y k € ï <: RE Le NA
-‘RNA RE TP 5,1 OT ETES
-LI UPORNNSRRCES net DUREE AN SEEN
-
-?
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières Séries, 1900-1904, un St
@@ -98,8 +51,6 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une imag'e en bref, un raccourci,
 
-A GC LP RSR Eee
-ROSES £ - SU RSR
 _ une idée, abrégée, mais complète, de nos éditions anté- SENS
 _ rieures et de nos cinq premières séries ; tout y est classé ni
 _ dans l'ordre ; il suffit de le lire pour trouver, à leur Tate
@@ -107,7 +58,6 @@ _ place, les références demandées. ee
 . Ce catalogue, in-18 grand jésus, forme un cahier e
 _ très épais de XII+/08 pages très denses, marqué cinq
 …— francs; ce cahier comptait comme premier cahier de la QE
-De .. . s L£
 _ sixième série et nos abonnés l'ont reçu à sa date, le FR
 L: 2 octobre 1904, comme premier cahier de la sixième RAR
 … série; toute personne qui jusqu'au 31 décembre 1905 AE
@@ -115,49 +65,26 @@ L: 2 octobre 1904, comme premier cahier de la sixième RAR
 _ vait, par le fait méme de son abonnement, en tête de la RAS
 er série ; nous l'envoyons contre un mandat de cinq francs ÉFENN ee
 + c toute personne qui nous en fait la demande. DURE
-: 10 f ï ;
-EE: SEA
-RU - F k
-Re ss à
 
 # ñ
-Re > à
 
-RUE ee MR AE
 en ni RARE MER PES ASE ReS EANEe
 ne RAR Re RAA EN AE NCO TE
-A ui ot AR RS EU SL AS CESR
 PORTE ALES SES ANR eE PEER tra tt SR PAR A ANS AO AE à PSN A tou RÉRA TE AN OSNRAE
 ASP TRANS MERE PSE ter. À 4 ne FR YA ONE
 LPS EE à L er DER AVS EEE 7
-ROC OS RES h Rte CL ANETSERESS
-HR. Cu CAE TUE 5 TASSE
-Rare u à : ' si LAS TAN
-TS ARR Le 07 2 4 7 i Ç LESTOES LITERIE
-Mn a) he , £ lc NPA
 ki RER Ce LS NET AA ESE RRE
-ie D : ; 5 < DEA ent
-RS je 1e f Ro
-4 AT As £ F re D Me 0 DER ASE
 Re nr USE EXT : ÿ NE LT SET AE SENS
 UN Pie a
-© WE RARE Re S Ve LA HOT OR
-Mer + CE À \ } :'RSLEUANERS
-ds Len Se Re à : ; LUTTE
-Pre RAS GENE D PRE TOR APR EM TI REA ENT PANNE “ Pet rie)
 
-rs a RE =
 | -_ DU MÊME AUTEUR
 } aux Cahiers de la Quinzaine
-à
 _  Roserr DreyFus. — la vie et les prophéties du
 - comte de Gobineau, — seizième cahier de la sixième
-HRSérIer:
 
 I. — La morale aristocratique du comte de Gobineau.
 
 II. — Années de jeunesse (1816-1855). — L'Essai sur l'iné-
-galité.
 
 II. — Méthode historique. — Ineflicacité des mœurs, des
 lois, du climat, des croyances. — Efficacité du
@@ -169,7 +96,6 @@ V: — Synthèse historique. — Les grandes civilisations
 humaines. — Théorie de la démocratie. — Pessimisme.
 
 VI. — Gobinisme et Nationalisme, — Tableau des valeurs :
-gobiniennes.
 VII. — Gobineau, Renan et Taine, — Voyages et carrière
 (855-1877). — L'Histoire des Perses.
 VIII. — Le Génie asiatique. — Trois ans en Asie. — Traité
@@ -179,86 +105,44 @@ philosophies dans l'Asie centrale. :
 IX. — Littérature. — Souvenirs de voyage. — Nouvelles
 asiatiques. — Les Pléiades. — La Renaissance.
 
-X. — « Ottar Jarl, pirate norvégien » — Dernières
-années (1877-1882). ,
-
 un cahier blanc de xu--360 pages, marqué............
-trois francs cinquante
 On sait que ce cahier est complètement épuisé; la :
 seule édition de ce Gobineau qui soit aujourd'hui dans 1
 le commerce est l'édition Calmann Lévy annoncée ciaprès, en vente à la librairie des cahiers.
-Ë
 
-AAA os 2 die Da
-
-EN ASS PAR L CRAN PSE TENTE ANNE TES LEP à
-PA RES TANT SAS A KE PAU CURE AU APRES ARENA CIRE
 HN es Re ANUS NS ENS one ET ES EN IENE :
 AAETAU ho SR RENE RS Le
-ROUE pr AD EG CS MATAURS EME R'ÉMAC e  C PRE DE HICRE
 
 ETS AT ES À C2 Fe, EURE Let 2 KP C fat + , 74 À WA PR 774 Er FT RENEE Un
-H'ÉHNEES RAR } * : 11109 1 TOR EANNES
 
-KA CNRS 4: \ à SE 4 £ TS ETES %
-HOT MAS AIS RER CRT HER d 4 LPS ART LES
-
-Le UN LE SR ST Ho AIS RATE EEE SR 0 |
-
-4 RU OVER ÿ d' Loe EN 2 < PA | ; M SD HOT ei | CÉREA Dee
 DPI TM ORNE NE ae S nu ie CAL LT ARE CT x s
-NAS NENES MAR LD AErU iern AR A NA AE 1 ORNE
-MERE (TE ANR AR, HUE" HE ES DRM A ACT ei ET 5 :7 CT TRES j
 ae Fi RAA D ARE S A AN ee der ANAL AS ne à
-
-Rs FEMIY ER De, EX TAN NET APR JA CE CE AUUE OUR “ee Ai RES
-
-& ARS RC RCTAUS (ARR PR AN PERRET DIRES SES NE VAR dvd 4
 
 FA ra RSA EE LE DRE RON CTI
 
-26 ER ES
-
-DU MEME AUTEUR
 en vente à la librairie des cahiers
 Rogertr DREYFUS. — Essai sur les lois agraires
 à Rome; Spurius Cassius Vicellinus et les premiers
 démagogues 4 Tiberius Sempronius Gracchus et Caïus
 Sempronius Gracchus; crises sociales et secousses
-agraires; — Calmann Lévy, éditeurs.................
-trois francs cinquante
 Rogerr DREYFUS. — La vie et les prophéties du
 comte de Gobineau; — nouvelle édition; — Calmann
-Lévy, éditeurs ................. trois francs cinquante
 Danrez HALÉVY ET ROBERT DREYFUS. — une tra-
 : duction française de Frépéric Nierzscue. — le Cas
 Wagner, un problème musical.......... deux francs
-”
 
 he dr de So Fe Ps Re sé
 HSE LA, HE en RAS NE DE A CT et ÉETE TION AE RÉPARER Le A EN per $
 
-PS ASP LS SPACE DRM: URSS U ne TES STARS ;
 da de os rise PT RAA D So pdt ere . . |
-MOTTE BA PCR SR se
-ES 0 VER MN CARRE a RO AS Ur 4F4 TT TRE a
-. | . à Fe de, * : 4 , j (4 T'ES a 4; Sr UE ZAR a ü
-1 RES USE TU . Ai MARS AIT av: 1 ROSES
-D  -. ne
 LISE TRES fi k Lane ANA PAS NA is RO CNP UREN LE
-FERRER SET PCR ERNST En , PAS ONE ENT NOPAEATE RTS, ne
 re A GP TOANEO LPS CROIRE ; « î L MARNE UNE RE Cru RIDER
 0 Des AL AA 7%: L È F5 ANR ET par AE |
 FA SERRE PE TEE Man) PUS RÉRATSAR e et à K> : LT :
-ee Ra ut PE EEE EE FU ASIE RS rt
 ee mix Le SD RARE Er USER TRES PART LMATORT NE
-CRE EN ARE
 
-DU MÈME AUTEUR
 aux Cahiers de la Quinzaine
-RoBerT DREYFUS. — Quarante-Huit. — Essais
 d'histoire contemporaine. — deuxième cahier de la pré-
-sente neuvième série :
 I. — la révolution de Février, — causerie faite aux Soirées
 ouvrières de Montreuil-sous-Bois en féprier 1900.
 II. — précis historique de la loi Falloux.
@@ -271,7 +155,6 @@ V. — Les « catholiques avant tout » ;
 VI. — La retraite de M. de Falloux.
 III. — l'expédition de Rome (1848-18/9).
 IL. — L'assassinat du comte Rossi;
-II. — Pie IX à Gaëte; 5
 Il. — L'élection présidentielle ;
 IV. — Le corps expéditionnaire ;
 V. — Les Français devant Rome;
@@ -282,167 +165,65 @@ NIIL. — Le retour de Gaëte.
 I. — De Napoléon à M. Garnier-Pagès ;
 II. — La presse riche;
 III. — La presse pauvre; U
-à IV. — Le choc.
-un cahier blanc de 196 pages, marqué........:..-...::
-: trois francs cinquante
-Alexandre Weill. — 1.
 
-A ee DATI D PART A RS EE M CU
-
-CR CSA CE CS On RC CIO Ed O
-
-rs CNP DO PNR A, PR OL A MAIS TE PTS A MR à à
 Un “ee Re CR REA
-RIVE SIT TES CRETE JR MAN EN TA A PT RUES EE A EE IE FRE ?
 M one reine LE PA TON CAT RRRE
-ANIME LA (LEE AE RÉ RSSER  C :
-ed ur FE è DR |
-De à | ENS PA LS RE MONTE SE ,
-(Le MENT ii a APE RTE" CE NE MR Es 1 Re SMS
 
-IG PENSE GOPREE: *EA SCT AA ANS EU EL TRS LÉ M de
-eu
 NN du ac DE PANNES AS
 
 CARE 2 OO RSR ete D PA PA NE RAS re CARE SEEN
 le FSI CONTE NÉS OP D SR OR ANT Amie PA ERGEON MANNE ve SSEESS
 
-LR EN RO PT A  RRRRENRERERETERET eREE
-
-VIES DES HOMMES OBSCURS
-te
-À
 | 3 s|it
-di
-À|
-
-FIELA PNÉSR x TUE RARE M SN NC ie PARA ARR EE Arrogent RE
-
-PAU m2 Cao bee Pr do APE Er
-
-RE RE TES RE EPA HER DES EN EUR ARTE Re ER TE
 
 HA PET UÉERE USE RETEEX Rs UT ere ira ET ONTES HT TRUE NE
 
-ALES ee À 0 RATE a € AND ERENET EME RaNES
-
-ui NP MR Rd
-
 M M on. ME UN de PU Te ES ANT et 1 EPL IR SRE
 
-Rs PA ne 4e RARE CE NE MAT SR M RS SCANNERS
-
 MEN TR En ie FE LE MTS RER ER NE LENS DATE Te RO EI SANS AUE Rene “à
-ie RARE LE RAGE VUE TA FRE EN ENS S'RMRSERENT a RU TELE A
 
-PAPE JAN ERRNRRREES LOC SUIS RES ARS FLE DES bo) EVARTRESES *
-
-NES 2 PNA SD M
 ee ie ; Sa st 28 00 ATEN
-RDA A 1 TR CPAM 128: FAUNE CFA APTE PPT TARN
 
 ED ER MURS 22. 5 ARE MRR N SRE EU À Dre ue , SALES NX SRE PA ART ER Ne x
-MEN LE VOIRE V4 PAL ET HUE 4 LT NÉE FSU EN PREOREE à PE
 Ne HAVE AA ARS Ar a er CE PR LENS
-DUPE ETS ARENA ER UOE SRE ASS EN M QUE ERA LION ; 33 PE MÉTrON EE CURE ge
 
 D A a à AR Ut AU et TO NES OR
 
-CRE M tenue à NS APTE DES FARMER TA RSR RASE T I SES
-
 SUR RES Li. CS DOS ES NS ARE : PENSE me
-ASUS FRE SE EE LRO ÉNANNTIEN VALSETEAN 57 AP EVE ET He sv Pr LT
 
-FN EI RSNINE D PA PA à AU ROUE EE 2 1 RSR
-
-RE OT ee Mat a a RAA, DR A nr
 RS nd a nn Nr Re RRQ et
 DR TS 0 nets, MSP ETRES Per et sr ON PSG SENS
 PET RAR ENTRE A ea RE A RE ER A DT Eu à
 SRE Nr PR mn sue BR NME US NE RENE
-1 TPS RE Re FT RENE
-A Pret 2 En AL SN NCA ES î
-D ge
-a LEP NO METRE
 TA NEA SR RE url à ARE PRET HSE D NAN
-ec : A
-dt PH NTM : \ A 0
-D à A Re
-0 ' A
-EL ATN NE EREREE ; ; à | LS
-LENOIR A
-RS SR AE SP EUR ESS ;
 Ro MR en) VER EST ISERE APE É
-ue NU en LAN TEE NEQU PRRSSS
-nec, hear er
 de AV ES 7 ee Us C0 PSN
-
-OÙ LE PROPHÈTE
-DU FAUBOURG SAINT -HONORÉ
-
-LRO a ER PACE OT Et SP TRE ALES Lt 19 7 2 Ep, DONNE Ter 2 2. e.
 
 “e A LA Mons. PRET
 
-0 ae dre 1e ss 1 DAS ER
-
 M rule et
 
-ME LAS Es RE Ress j AL 21 SEVRES
 2 LP TETE PNSIPES SR AIERER Hiéris CU Ÿ SAN LA TETE te
-LEE SAR ET ? G ÿ OR Ch :L'ITC M UIRENNEESESE
-PA LT MST ANR RES L'ART : è " RER TTC
-Re Pr. PER £ 1 : É Ÿ ie MMS
-HUE LORS MR Nes M eu à
-(ETES Mr EN. JUMENT RL ee RSS eu Rues
 A ou re Re |
 | LUS a
-RAR ru CAEN ES En
-L'ACTION San AS" h * PHIEDEES y LT FREE ;
 MAPS Den ur Le LUN EN ASE LA 4 Aout LI a 4 Re rar. 1e
-RE AN is Re
-NT SAN ENESES He eat : £ù : LL STI :
 MELUE SE TOME Re EE x ( * rar COPRE de SAME ESS
 A A NE RME Rene ac fe er ON ca er EN ERREEES
 
 DAS RS PA EVE A A am ANR ne AL AT EL MD be RÉ OT AU PEN RTS
 
-ET Pete) RCE Ce ALES ES ÈS NERO STE LI AGENT ARR
-
 OURS U ia Sa at ne ART AE CNE PAT
-
-Re HA PA AR AR RME SA of VER SERRE PR A A
 
 RISRSS He AT Et Rdte Ge ON PA RTC PAPA TRE ee re AVERTIR ÿ
 ii D RS A A Are at SA APR A PAR NES
-MACON ET ER PAS ON LA Et Ce AN NN NE RSS À
 I RUE) 1e tour SRENNNE MEAUA ARR CE. PORN OURS A iris Da ESS LES TONNES
-AA RAS Re
-Su A OT RSR AMD rs Rens $ | AR AC EU EE FRET
-0 RC :
-EE LES EEE #07 ne
-AVIS ARE AE Mouaere DR: NRA ANA L'HPÉTRARSES
-RU NT 0 BR « UE AN LINE ENS
-2 Le 0 NC EURE 15 ANS Va (re ; “ à d' 6 LENS
-D Au tn 111 IS SIENNE
-RE EUR e ee 2 RACE me ) APRES À. LL EN ERRENNESS
-
-ATOM ES PRIRENT MERS SR T Pr) + LR AE Le Le. EX AR TA : AA %,-N0R
-LURESTEESENNNRENT A “ 7. DES 11 Ya AE
-LS ESRI RER CN MO Uen
 
 TON ee ee RO ARE CE TT ETS ST POLE Tr MARS EAN see RE ME 2 \
 
-520 TURN NTERRE MATE DA SAONE DIR OR PEUR L'SPEUT D CN ÈS
-
-pPorirait d'Alexandre Weill
 à l'âge de Soixante-cinqg ans
 d'après une photographie
-1q à
 
 UOTE ET LS D ALL RE RS HAN AAA dg
-
-SEE ES ue Durs
 
 af PARDARSe en RO ER D ne A A NE TE SARA EU ANR
 
@@ -452,78 +233,33 @@ LAS ET or +; FHANESTE PARENT PE tee
 HOUR sig RE PEN HR Sn Dee de ce RE NUE AL D AFS
 a De ae ee A
 ARE AR Re +4) OT dise ait SET # Vos ta DT DAMES M 4
-FR 2 FIN D RAA AE A SL ÉLUS VAL TNT RSR
-TS TN ARE Feis , TROT CN TRS RES PR:
-nn Ge SE nues A
-RÉPONSES MP PRE CT à HE EEE Re
-RU mue RTE en 4 PONS GPO nee ASE LUE Re: VyÉ MU CA
-Hs LA NA ARE: À 4 4 AE v Met Ye à Ar DER "HAIES SE *
-GPA ER ARRETE À pe: A + A TM ART PONTE
-Re mr pen Res à x SLR HET PNR :
 De A ee cl FA AOME V1, AULOEAREESe
-5-20 tp SEEN TEA SRNTE CR j K KE MU ENTREE
-LUS
 Rise LA 2 if OA NEA ER 15000 2: eupes
 RENE Des Sens: A PAR A en | LIT: TRECRNNERRRESS
-RE
-
-FRE
-
-FAT
 
 |
 
-“TN |
-Ê j
-k ER
-
-7 1 £ *
-7 g Ja ; en
 ee LES
-SEE
-e, L
-Su 3
 
-ur RC NOR Re.
-Die EE SUR TE TES ACIER ANT PRRARS ER RS UNUTR
-REP EN. FR Re RÉ REET AE d'A RATS ÉEE PR APRES cr
 NE A ROUEN LR TENTE LOUP TT care VOS
 A deu Lx ME LRRATOET SRE ELEC SN Pye Nbr EEE TA # RCE: È
 ie NES RENAN NS M re Rene NE OLIS L'ANPE
 FAN MES Re AR UN SR AUIE FE Lire PL M
-PE TA Le > A Nr SR PE TA ON ARR UNS SAT PARUS er
 ne MESSE Te NET Don Po RES ri ee) AVR PA ELLE LORE
-ROUE EN MR RE SE DANS Ne FEES le D Qu CRETE WE
 PO nn ee un She PRET SE ES RER BP
-SÉTE TE FPE Se AAA Pret REA EN ED SL MT ES PC EE
 SAR CAES Sean TT SAN 0 en FAR AR LA y RSS €
-SE SRE . iQ ERA à DAT RCE Co ee r
 GERS HAE ét LS HE és EN eu AU : (1e = A Eee CAR PT NA RURE
-HP a LEONE SAC R ES NAT RENE HART Fier Re &
-Ne EE A 4 MANÉTUMESE Ne TS Æ NE = ne PQ: DRAP k
-SRE Am. : raie LOUE Dares FAIR FE 2 re
 ee dt ES EN) PEU) u x OS NES nn IE De A
-‘TRÈS Ce RENE LU HE MO Ne
-s ANSE LES SR SU TS A AE NE M Cu, RSR
 De ic etre or MCE Re ALT de: Mer ENT men NT Le
 ENV TON Rise Tr as + 0 En RE TER F 1
-e F Ê : Gers] AAA TRAME ECC RS
 Res 17 UNE Ta id û « RE Mt AGREE Er LEXM CCR RS
-LT ELA TES ER M ET FOSSES
 HSE “EU LM ENETAUE RÉEL M si OU Ier DD + :
-SR RTE THE Ke } PA MERE NE MUR 52 fai! HF RENES Fr.
 SH TS NON AE rx rs RE AS NE die ÉRRETEC Ru
-: PRESS A
 En He OS E Les ou 4 PR FE LANTeS AE AE Na
-< os i@: Li AC iles ÉT  ES RENE
 ACC HPE ne É e L - Fe | UNPE « f POES À; ie
 RUES ou de Si TN Le MC CEE ; tons nt rn. ue Gen à
 EL NE NE el EPS TE nee ASE a SE
-NA 7 EE EA l'es PP. 5) F2 | 4 ARR DU. Ep.
-PR AN Ve LP EE A RATE rRNERES 7%
 Peur ET ant ‘ie
-PM LR CS 0 UT
-NÉ A PRESS [
 
 Je ne tiendrai jamais à
 être élu par d'autres. Je me
@@ -531,35 +267,16 @@ suis élu moi-même dès l'âge
 de sept ans, quand, tout
 en gardant les bêtes de mon
 village, j'ai lu l'histoire de
-David en hébreu.
-
-ASNN
 
 A nu ee de nr RON ns LE Re
 
-PRET FAR Re RE SPP AN CE LAEOTR De RENE DR TE CN È
-
-LC PSE de IQ Te GENS REY PAPA RON RSR PANNE Fÿ <
-
 PNR Ford RS PT ARE AREA CR hne ST A ET LANCE
-
-HER OX Re MAR EAU PRE A CAR EE 2 PR ARR ONE SUN TE A5 ARR
 
 RU | F a RU Fo A DT Den tes Cu
 
 Ne Ne EE FLE Car ALES RARE ctE ARCS EE RES NORLPS pe D ROSES DES
 
-ATOS RIMISDAR END EE CA NS RASE EE NE DE RARES RER DAE ALES F
-
 D ‘à SERRE RU" po De Fe
-
-LR Te. LR RE PS RUN EE ACTOR PRES
-
-RE a
-
-PIERRE RÉAL Le LEE 5 A0 GR ET US MEN RENE Fa Pt te
-
-DR Ne FE AA MERE AN At, FE LT EMEA
 
 ur KR RSR PE FANS LU AL NE TERRES TRE
 
@@ -567,20 +284,9 @@ ESCASR RAS A M dir RTE ne ee rentre ER  *
 
 RS D dei de CNED PS XEMOORAREER ESS.
 
-RS ee En re c
-
-2 RÉ LES ROSE R RER AR A PUS MS RUES e*
-
 AT ARS SEE M Se de IN AU be EU HS Mn > 3
 
-Re RAP FACE FAN ET Re AANRES ARRET PTE RE FOND ITR HORS
-+ FÉTRNRRESS
-
-RASE 1 + ‘J
-nE 4 VIES DES HOMMES OBSCURS
-ALEXANDRE WEILL
 ou
-LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ (*)
 Il y avait une fois, voici une centaine d'années, un
 petit Juif alsacien âgé de douze ans, qui gardait les
 chevaux de son père dans la forêt de Schirhof, sur la _
@@ -596,9 +302,7 @@ de Dieu) d'éternité en éternité ! »
 
 (*) Conférence faite à la Société des Études juives, le 23 mars 1907,
 À et publiée par la Revue des études juives dans son fascicule du
-4 Ie" aoril 1907. ù
 
-Alexandre Weill SN ER
 É Étudiant toujours la Bible et les prophètes, je ne fus pas
 étonné d'avoir des rêves de ce genre. Celui-ci pourtant
 m'avait vivement frappé.
@@ -606,7 +310,6 @@ m'avait vivement frappé.
 D'abord je n'éveillai tout de suite après le songe, en réei-
 
 tant le verset, ce qui, d'après le Talmud, est signe de pro-
-- phétie.
 
 Puis, la vision était si nette, si claire, si palpable, que
 je ne pus m'empêcher de la communiquer à mon rabbi et
@@ -614,7 +317,6 @@ au maire M. Heiser, catholique fort versé dans la Sainte-
 Écriture, et m'aimant comme son fils.
 
 Rabbi Aron me dit : « Mon enfant, c'est la voix de Dieu, il
-faut partir. » 9
 
 Heiser, à son tour, me dit : « Imbécile, tu comptes donc
 
@@ -625,7 +327,6 @@ passeport et le signerai pour lui. »
 Mais où alier? Mon rabbi me proposa d'aller à l'académie
 talmudique de Prague. Deux cent cinquante lieues, rien que
 
-Macela!
 Le maire me dit : « Va à Metz, à Nancy, va au diable,
 5 mais ne reste pas dans le village ! Quand on fait des psaumes
 ‘ comme toi (j'en avais composé un en hébreu que je lui avais .
@@ -643,12 +344,7 @@ qui a tenu sur elle des propos sans indulgence, parce
 G) Alexandre Well, Ma Jeunesse, pages 92-93. — Je citerai
 toujours l'édition de 1888 (Paris, Sauvaitre, 72, boulevard Haussmann et chez l'auteur, 11, faubourg Saint-Honoré). — Actuellement,
 on peut se procurer presque tous les livres d'Alexandre Weill à la
-librairie Durlacher, 83 bis, rue Lafayette.
 
-2% ,
-
-H fe à ÿ
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 qu'elle refusait d'approuver ses idées sur le Pentateuque. a
 Alexandre Weill avait, sur le Pentateuque, des idées
 | fort originales. Au reste, il avait des idées originales
@@ -668,7 +364,6 @@ manière, c'est-à-dire de mille manières : en français et
 en allemand; en prose et en vers, — en très mauvais
 * vers; par des envolées, des fureurs et des boutades, — |
 , avec une fertilité de petit journaliste et une majesté de
-t prophète...
 ; S'il est parmi vous des personnes qui aient connu
 . Alexandre Weill, elles ont pu garder sur lui une opinion :
 k faite de leurs sentiments et de leurs souvenirs. Pour
@@ -678,10 +373,7 @@ de vision de sa personne. Et c'est cette vision que je
 voudrais vous communiquer telle quelle.
 (1) Né en Alsace au printemps de 1811, Alexandre Weill mourut
 Ë à Paris, le 18 avril 1899 ; il avait près de quatre-vingt-huit ans.
-{ 25 Alexandre Weill. — 2
-*!
 
-Alexandre Weill - $ LS
 : Mais auparavant, je crois décent de vous avertir des -
 intentions que j'apporte. On doit, je le sais, le respect
 aux morts; mais on leur doit aussi et surtout la vérité,
@@ -697,8 +389,6 @@ $ complète de la vie et de l'œuvre d'Alexandre Weill : je
 tenterai seulement d'esquisser sa silhouette. Et je con_  terai donc quelques épisodes remarquables de son
 existence, ce qui nous permettra de nous initier, chemin
 faisant, à plusieurs de ses livres et au travail de sa
-- pensée.
-A
 Je me souviens d'une matinée déjà ancienne où, me
 : promenant au Bois-de-Boulogne, je croisai soudain
 | M. Maurice Barrès au détour d'une allée.
@@ -706,14 +396,11 @@ Rencontrer ainsi M. Maurice Barrès, — l'entendre
 parler librement, — est toujours une bonne fortune. Ce
 7 matin-là, il me dit son étonnement de ce que, parmi
 tant de jeunes litiérateurs juifs, aucun ne songeût à
-s'aider d'instincts personnels, d'impressions d'enfance,
 de papiers de famille, pour fixer | & âme juive », dans
 une œuvre d'imagination, comme lui-même s'efforçait
 de fixer l' « âme lorraine ».. Et je me permis d'expliquer
 à M. Maurice Barrès que les juifs de France sont à
 
-ue ;
-rs OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 S présent trop identifiés à la société française, trop pareils È
 . aux autres Français de tous les groupes et de toutes les
 provenances, pour être tentés ou capables d'exprimer
@@ -745,18 +432,13 @@ un juif étranger. Mais les Deux Rives sont quand même un roman
 E parisien, non le « livre juif » proposé par M. Barrès.
 | t
 
-Alexandre Weill
 resque : je n'utiliserai ces souvenirs d'Alexandre Weill
 que dans la mesure où ils permettent d'observer son |
-développement intérieur.
 
 A cet égard, voici une page qui nous donne une
 indication sur l'esprit dans lequel il convient de les
-interroger : ;
 
 Je suis né, ;
-
-écrit Alexandre Weill, (1)
 
 dans une époque
 où les principes de 89 ont commencé à pénétrer la moelle |
@@ -777,7 +459,6 @@ Le vrai sage, comme la vraie vertu, craint la tentation et
 s'entoure d'une haie d'épines. Dès que j'ai eu le diplôme de é
 rabbin, et je l'ai eu pour ainsi dire malgré moi, je me suis |
 dit : « Tu ne mangeras pas de ce pain de mensonge et
-d'erreur, »
 
 Un instant, on me berça de l'idée de devenir un grand
 réformateur dans le judaïsme, mais ces genres de réforma- |
@@ -789,11 +470,8 @@ les attributs de la Bible et du Talmud m'ont paru contraires |
 
 (1) Ma Jeunesse, préface. :
 
-28 |
 |
 
-DRE LUS Tr e
-OÙ LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 à la vérité, dès que j'eus l'âge de vingt-deux ans. On verra
 que, fort de ma volonté, j'ai vécu, tant bien que mal, plutôt
 mal que bien, sans avoir eu recours à ce pain de mystère,
@@ -810,10 +488,7 @@ de la Révolution française. (1)
 Nous rechercherons dans Ma Jeunesse la première
 étape de ce développement et de cette rupture.
 
-%
-HE
 Abraham-Alexandre Weill naquit à Schirhoffen (BasRhin), le 10 mai 1811. Son père était marchand de
-. = a # . . . Cé
 bestiaux. Sa mère était fille du rabbin de Bischeim.
 - Elle avait vu, dans sa jeunesse, le moine roux Euloge
 {1) « Sciemment ou inconsciemment, ces principes ont été empruntés par les grands hommes de 89 aux principes fondamentaux
@@ -827,11 +502,7 @@ le Créateur-Un, auquel il a donné le nom de Yeovah, mot qui veut
 dire: VEtre qui fut, est et sera toujours le même, en d'autres termes
 indiqués par lui, La Loi de la justice absolue ; idée universelle
 que la Révolution a tronquée en Fraternité restreinte. » (Code
-4 * d'Alexandre Weill, page vin ; Paris, Sauvaitre, 1895)
-29 Alexandre Weil, —, :
 
-Alexandre Weill es.
-< À
 Schneider promener à travers l'Alsace les atrocités de
 sa guillotine, Son propre père avait exercé à Stras- 44
 bourg les fonctions de greffier révolutionnaire : Q Il fut,
@@ -842,7 +513,6 @@ Vraie ou prétendue, cette « amitié » des grands
 hommes de la Révolution et de son humble grand-père
 était, pour Alexandre Weill, un titre de noblesse
 auquel, — vous le sentez, — on ne l'eût pas fait renoncer
-aisément.
 
 Israël a toujours été un peuple reconnaissant. En ce
 temps-là, les juifs d'Alsace sentaient avec force les
@@ -868,7 +538,6 @@ demandé que de vivre en bonne amitié avec tous les
 
 (1) Ma Jeunesse, page 93.
 
-_ ou LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 petits garçons et surtout avec toutes les petites filles
 qui n'étaient pas de sa race. Mais cela ne dépendait pas
 de lui seul. Et il eut violemment à souffrir des premiers
@@ -879,8 +548,6 @@ Le fanatisme,
 écrit-il, (x) Ë
 , nous était venu de l'autre côté
 . du Rhin, où la réaction cléricale donnait la main à l'oppres-
-
-“ sion féodale.
 
 Quand un Allemand sent l'éperon de son seigneur, il rue
 
@@ -914,8 +581,6 @@ a qu'un mouvement.
 
 | (1) Ma Jeunesse, page 63.
 
-Alexandre Weill SE is.
-F :
 Le juif a toujours été habitué à ne pas répondre aux |
 injures ; il est un contre cent mille. Il sait que devant la “4
 justice chrétienne, je parle ioujours de cette époque, dès
@@ -923,12 +588,10 @@ qu'il y a dans un plateau de la balance un juif contre un
 chrétien, il faut qu'il ajoute quelques pièces d'or, non pour
 avoir gain de cause, mais pour maintenir les deux plateaux
 en équilibre; autrement le chrétien l'emporterait de son
-propre poids.
 Un ancien dicton du juif dit: « Supporte injures et horions,
 si tu veux avoir la vie sauve. » Pourtant, après Robespierre
 et l'Empire, il élait difficile à la jeunesse alsacienne de
 rester de sang-froid devant cette éternelle scie de hep,
-hep ! (1)
 On apprit donc à l'enfant qu'il était un réprouvé:
 Je cherchais les malheurs de ma race, sans les trouver.
 Ma mère, quand je lui en parlais, n'avait qu'une réponse :
@@ -946,16 +609,11 @@ est-il toujours le bouc émissaire, le souffre-douleur de Dieu? |
 Nul ne put me résoudre ce problème.
 M. Lévy, (2) à ces questions, ne répondait que par des
 coups de règle, ou bien par de sinistres prédictions sur mon
-avenir.
 Parfois je m'adressais à M. Michel Heiser, qui, tout
 versé qu'il était dans l'Ancien Testament, ne sut me satis-
 (1) Ma Jeunesse, page 64.
 (2) C'est le maître d'école.
 
-x
-
-à tt
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ :
 _ faire. « Guidèle, disait-il à ma mère, veille bien sur ton garL çon, c'est une vieille âme; il a vécu du temps de Moïse, » (1)
 ; Or, le petit Alexandre avait lu un récit hébraïque, où
 il était dit qu'un certain Jésus, « élève talmudique de
@@ -978,7 +636,6 @@ C'était un enfant très religieux, mais déjà très raison_  neur. Souvent, se
 audacieuse et intransigeante, avaient embarrassé
 - lhumble science des rabbins de village, ses premiers He
 maîtres. (4) Fière de sa précocité, sa mère, qui avait
-* 4 a —— ——
 (1) Ma Jeunesse, pages 59-60.
 £ (2) Ma Jeunesse, page 60.
 (3) A la fin de sa vie, Alexandre Weill convenait cependant que,
@@ -987,18 +644,13 @@ S disciple et chrétien, tout au moins jusqu'à saint Paul.
 | (4) « J'avais trois ans et demi, quand je fus conduit par ma mère
 > chez Rabbi Samuel qui devait m'apprendre à lire lhébreu. Il me
 É dit: « Mon enfant, pour chaque lettre que tu apprendras, un ange
-$ 33
 
-é Ki 1 ee M
-Alexandre Weill
-:
 neuf enfants, souhaita que celui-ci devint un sage en
 Israël; et son père se résigna à n'être plus secondé par
 lui dans son commerce de bestiaux. )
 Lorsqu'il eut treize ans et trois mois, on décida qu'il ”]
 irait étudier à Metz. Sa mère, après avoir cousu cin_  quante francs dans ses vêtements, lui recommanda de
 n'y toucher qu'en cas de nécessité extrême; puis elle le
-laissa partir, en priant Dieu.
 En ce temps-là, les étudiants talmudiques voyageaient \
 à pied, s'arrêtant dans les villages où il y avait des
 Juifs. Le commissaire de la commune leur assurait le
@@ -1010,7 +662,6 @@ qu'à tour de rôle chaque famille israélite admiît quelques
 du ciel te jettera une amande en guise de récompense. — Il y a *
 donc des amandiers au ciel ? lui répondis-je. » (Ma Jeunesse, page 30)
 — « À cinq ans et demi, après avoir traduit le premier verset hé-
-braïque, « Bereschith bara Elohim eth haschamaim veëth haaretz »,
 : « Avec le commencement Dieu créa les cieux et la terre », je deman- ÿ
 dai à M. Lévy, mon maître d'école : « Et qu'est-ce que Dieu à fait
 avant de créer le monde ? » Au lieu de me répondre, il mappliqua
@@ -1027,7 +678,6 @@ aussi du fil à retordre, bien que M. Lévy nous expliquât le commentaire du gr
 Eve, celle du déluge m'arrachèrent aux mystères de la création. » >
 (Ma Jeunesse, page 35)
 
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ |
 Cela se nommaït des journées. Toutefois, cet usage
 tendait à se perdre, surtout dans la Lorraine française,
 où les notables juifs commençaient à se montrer oublieux
@@ -1041,7 +691,6 @@ juif, un Gil Blas vertueux. — Ses miraculeuses aventures de misère, de joie e
 Ma Jeunesse... Sans pouvoir le suivre dans toutes ses
 pérégrinations romanesques, je vous transporterai tout |
 | de suite dans la ville où s'effecitua sa rupture avec la
-synagogue, —-- à Francfort.
 Alexandre Weïll approchaït de sa vingtième année. \
 _ Il était très petit, chétif, avec des yeux intelligents, un &
 $ grand nez, et des favoris floconneux. Il avait plus d'une
@@ -1055,8 +704,6 @@ doué d'une jolie voix de ténor. Ce don lui valut d'être |
 (2) « Pendant mon séjour à l'hospice, je fus employé comme officiant à la synagogue du Hekdesch. Ces fonctions, je les remplis
 d'abord gratuitement pour la gloire du Seigneur, mais bientôt je
 
-pers D
-5 Alexandre Weill
 L donnait aussi quelques leçons d'hébreu et de français,
 et, de la sorte, parvint à vivre, d'autant qu'il était
 économe et sobre, et ne reculait point devañt les
@@ -1093,7 +740,6 @@ et la chauffer. Cela me rapportait trente kreutzers par mois. Jai
 fait ce métier pendant une année. Au point du jour, les fidèles
 arrivaient pour la prière. » (Ma-Jeunesse, page 210)
 
-; OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 vard, il resta jusqu'à la fin de sa vie l'éternel et terrible
 disputeur, le bachor de sa jeunesse :
 
@@ -1132,8 +778,6 @@ coupait la parole. A notre tour alors de sourire, non d'aise,
 
 à mais de dédain. Il nous fallait des raisons et non des
 
-pupitres,
-
 Un jour, le voyant se courroucer contre un condisciple, je
 criai à celui-ci en hébreu le verset de Moïse : « Ne sais-tu
 
@@ -1141,9 +785,6 @@ criai à celui-ci en hébreu le verset de Moïse : « Ne sais-tu
 
 - doucement, en étouffant un sourire!
 
-Ô 33 Alexandre Weill. — 3
-
-Alexandre Weill He
 Cela durait tous les jours, de 9 heures à midi, sauf le
 L vendredi et le samedi. (1) “
 Pourtant, cette théologie n'absorbaït pas entièrement !
@@ -1179,7 +820,6 @@ par M. de Genoude et travailla pour la Gazette. Il serait piquant
 d de rechercher les traces de la collaboration d'Alexandre Weill à
 la sévère Gazelie de France.
 
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ à
 saisissent les relations intérieures, qui lient l'idée d'un Dieu
 immuable comme idéal de justice, avec la Révolution de 89;
 Révolution, qui, quoi qu'en disent les ignares, les cafards
@@ -1196,12 +836,10 @@ de larmes de joie j'ai vu couler! Pendant trois jours, nous
 ne sentions pas le besoin de nourriture. Et quand enfin le
 Constitutionnel arriva avec des détails, ce fut une fièvre,
 une liesse perpétuelle, quelque chose qui, d'après un proverbe allemand, n'a pas encore été! Une cohue hurlante, +
-buvante, dansante, prophétisante. ;
 
 La race juive est toujours la même! Telle elle est dans la
 rue des Juifs de Francfort, telle elle fut dans le parvis du
 temple de Jérusalem; telle elle sera toujours! Une mer,
-tantôt tourbillonnante, mugissante, engloutissante, tantôt
 
 4 plate, à peine ridée, dévorant ses fureurs dans l'abîme.
 
@@ -1209,21 +847,14 @@ Le soir, nous dansions comme des forcenés dans nos
 
 chambres, en gueulant la Marseillaise... (1}
 
-k
-
 à C'est vers le même temps que notre héros entreprend
 … de se donner une culture universelle. Avec une préfé-
 + rence marquée pour les écrivains du dix-septième et
 ) du dix-huitième siècle français, il se met à interroger,
 … brusquement et éperdument, les génies de tous les pays
 # et de tous les temps : Homère, Sophocle, Thucydide,
-1 Condillac, Goethe, Lessing, Fénelon, Dante, Klopstock,
 …_ Shakespeare, Rollin, La Fontaine, Le Sage, Florian,
-à (1) Ma Jeunesse, pages 266-267.
 
-il 39
-
-S MAMEREAPA DJ: gi '
 Alexandre Weill “NE
 Racine, Jean-Jacques, — plus tard Descartes et Spi- |
 noza.. Par le désordre de cette liste, je cherche à imiter %
@@ -1250,14 +881,11 @@ révélation personnelle de Moïse, encore moins au 1h
 Talmud. Je passais mes nuits à chercher les preuves de
 l'existence de Dieu. » (1) Et vous entendez bien que ces
 preuves, s'il les cherchait, c'est qu'il ne les trouvait plus
-ent: |
 Ailleurs, il nous conte les étranges soirées qu'il pas- |
 sait en compagnie de deux jeunes filles, couturières de |
  Jeur état, dont l'une, — Réginèle, — fut, dit-il, « son |
 É (1) Ma Jeunesse, page 35o.
-4o |
 
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 premier amour ». (1) (Même, cet amour l'attira dans
 certaines aventures scabreuses..….) Il leur lisaït, leur
 commentait la Nouvelle Héloïse de Jean-Jacques, le
@@ -1274,7 +902,6 @@ Dire que, dans le fond d'une chambre, au fond d'un couloir, au fond de la rue de
 deux couturières mettaient en doute tous les principes sur
 lesquels l'humanité roule depuis des siècles! (2)
 F (En vérité, n'était-ce point là, très exactement, la pre-
-.  mière Université populaire ?)
 De pareilles crises sont toujours redoutables chez ceux
 qui sont aptes à les trouver sur leur chemin. Mais com-
 . bien davantage chez un futur prêtre ! Soudain, le jeune
@@ -1283,15 +910,11 @@ __ Alexandre Weill ne se découvre plus d'obéissance pos- h
 … les joies de la vie, de l'esprit et de l'amour. Incertain de
 … croire en Dieu, il était certain de rejeter le dogme et le
 ( rituel... Et brusquement, il sentit qu'il ne pourrait pas
-être rabbin...
 ' De telles natures ignorent l'art d'accommoder le juge-
 ) (1) La troisième et dernière partie de Ma Jeunesse a pour titre:
 Réginèle, mon premier amour.
 (2) Ma Jeunesse, page 364.
-4x
-* ”
 
-Alexandre Weill :
 ment à la conduite. Chez elles, l'acte suit toujours de
 prèslla décision intérieure. La peur du scandale leur est
 inconnue, et celle de ses conséquences... Alexandre
@@ -1335,11 +958,7 @@ même pour les femmes, toutes connues pour leur piété et
 leur charité.
 
 Le Pentateuque écrit sur parchemin est sans voyelles: 16
-VE nr ee |
 
-(1) Lévitique, xxvI, 28-29.
-
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 * Comme j'en faisais tous les samedis une lecture à haute
 voix de sept coupures et tous les lundis et jeudis d'un chapitre, je le savais par cœur. Un samedi (j'avais déjà sauté
 d'un extrême à l'autre, d'une grande piété, d'un bond, à un à
@@ -1370,10 +989,7 @@ ma démission, en leur disant que depuis longtemps je n'étais
 ( plus digne de leur servir ni de lecteur, ni de chanteur, et |
 | depuis ce jour je n'ai plus revu cette sainte synagogue que quarante ans plus tard, et qui aujourd'huin'existe plus du tout. (x)
 + (n) Les Cinq livres (mosaistes) de Moïse. Tome III; Le Léoitique,
-pages 223-22/.
 
-ÿ k PL A Val
-Alexandre Weil PO
 Et voilà notre Alexandre Weill sur le pavé de Franc- s
 fort. Il n'a plus de métier, il n'a pas de ressources, et,
 par cet éclat, vient sans doute de s'aliéner ses protecteurs ? — Si pourtant! il lui en reste, tant parmi les
@@ -1414,7 +1030,6 @@ souvenirs, jamais il ne craint les répétitions.
 |
 |
 
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 doré, soit ! Mais esclavage! Tousles jours à l'heure fixe aux
 répétitions, matin et soir aux leçons. Être exposé à ce qu'un
 
@@ -1450,20 +1065,15 @@ une bonne petite maladie de peau, me livra à un tas de
 médecins allemands, plus ignorants, plus empiriques l'un
 _ que l'autre, et le théâtre et le chant furent, non sans luttes,
 écartés pour toujours, malgré une nouvelle tentative de mon
-ami Meyerbeer. }
 
 Le même sénateur — il s'appelait Coester — qui avait
 souscrit pour faire de moi un chanteur, après avoir vu mon
 
-: 45 Alexandre Weiil. — 3.
-
 NAN ne L PRARSRER AIT AE PAS ARTE RENE
-Alexandre Weill RITES
 ÿ refus et après avoir lu de moi une brochure intitulée :
 Kolladi et son ami, réponse aux questions vitales de la philo- ÿ
 sophie et de la religion, vint m'offrir en mariage sa nièce,
 son héritière, à condition de me convertir et de me faire
-pasteur protestant.
 
 Là-dessus, soyons un peu sceptiques... Si Alexandre
 Weill avait pu épouser toutes les jeunes filles qui,
@@ -1496,7 +1106,6 @@ ma fiancée juive, Perle de Hatten. Avant mon mariage, je mai .
 jamais été aimé que par des femmes qui n'étaient pas belles. Seule,
 Réginèle fut une grande beauté... » (Briefe hervorragender verstorbener Männér Deutschlands, page 295 ; Zurich, 1889)
 
-à OÙ LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 dame de Metz, qui veut l'entraîner dans le catholi- |
 cisme : il a treize ans, et répond à madame de Caulat
 sur le ton de Joas enfant à la reine Athalie.. Plus
@@ -1527,13 +1136,11 @@ rabbin se transforme en homme de letires; et le petit
 Alsacien, après avoir essayé de Francfort, est guetté
 par le grand Paris.
 
-Alexandre Weill | 1 ain LEE 14
 Le hasard lui vint en aide. | le
 En 1836, Gérard de Nerval traversa Francfort, en 4
 compagnie de Dumas père. Alexandre Weill combattait dl
 alors dans les rangs de la Jeune Allemagne. Gérard le
 vit, s'attacha à ce drôle de garçon, et l''engagea à venir
-chercher fortune à Paris. x
 Alexandre Weill en était bien tenté, mais il hésitait :
 Comment aller à Paris sans être sûr d'y gagner ma vie
 avee ma plume française, affligé que j'étais de mon accent 4
@@ -1543,12 +1150,10 @@ Israélites, devint pour moi une patrie, sempara tellement
 de mon esprit, qu'elle faillit briser le corps. (1) à !
 IL se décida à jouer la partie, quitta Francfort, et
 « devint » Français, comme il le dit, par un libre
-choix.
 Cette grande patrie retrouvée, la France, il l'aima |
 jusqu'à sa mort et, quand vinrent les malheurs de
 1870-71, ses Lettres de vengeance d'un Alsacien (2)
 dirent sa douleur et sa colère d'avoir vu Schirhof changé |
-en village allemand.
 Mais en 1837, époque où il vint s'installer à Paris, |
 convenons qu'il était encore un peu étranger à la
 France, sinon dans son cœur, du moins dans son lan- F
@@ -1557,10 +1162,7 @@ vard. Dans cette bohème littéraire où il fréquente dès
 son arrivée, il apparaît comme eût été l'Ingénu de Voltaire, si, au lieu d'être Huron et de s'être laissé baptiser, j'A
 il était né, demeuré juif et Alsacien. Tout de suite, à
 (r) Préface de Mes Romans. — Paris, Cohen frères, 1886.
-(2) Paris, Dentu, 1871.
 
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
-?
 Paris, il avait rejoint son grand coreligionnaire Henri
 Heiïne, dont il devint vite lè commensal et, si j'ose dire,
 la doublure... Henri Heine, voilà à qui il faut toujours
@@ -1579,7 +1181,6 @@ Heine et Mathilde autour d'une côtelette à la proven-
 — Possible, réplique le petit Weill, mais je ne les
 garde plus. Tandis que vous, monsieur de Saint-Victor,
 si vous aviez gardé les pourceaux, vous les garderiez
-encore !.…
 (1) « Grâce à ma qualité de correspondant des principaux journaux allemands et à mon amitié avec Gérard de Nerval, j'obtins
 vite mes entrées dans les sanctuaires de la science et de la littéra- J 1
 ture de Paris. En effet, tous les journaux allemands étaient à ma
@@ -1591,10 +1192,6 @@ en France, après quarante années de travaux littéraires, poétiques
 et philosophiques. Mais j'étais décidé, dussé-je mourir de faim, à
 briser ma plume allemande et à ne plus écrire que dans la langue
 sacrée de ma patrie, à laquelle je ne préfère que lhébreu. » (La
-Mission nouvelle, préface)
-É 49
-
-* Alexandre Weill En nu
 
 Et Henri Heine d'intervenir en riant : « Bien ré-
 pondu... » disait-il. Et il ajoutait : « Weïll, tu as dû
@@ -1633,10 +1230,8 @@ Henri Heine. — Temps du 21 novembre 1901. e
 (2) « Moi aussi, je suis gentilhomme et de race encore! Ma noblesse remonte jusqu'au patriarche Abraham. » (Lettres de vengeance d'un Alsacien, page 4)
 
 | 5o
-L
 
 OR TN UNE es À PNA W . Ali.
-pt | OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ ;
 ! mais, à vrai dire, je ne tenais pas et ne tiendrai jamais à
 être élu par d'autres. Je me suis élu moi-même dès l'âge de
 sept ans, quand, tout en gardant les bêtes de mon village, ;
@@ -1654,14 +1249,6 @@ d'un contemporain du roi David. (2) Dans ce petit Alsa-
 (2) Tel était bien son propre sentiment sur lui-même. Aussi a-t-il
 mis les vers que voici en tête de ses Xniltelverse eines Elsässer
 Propheten (Paris, 1885, chez l'auteur) :
-Es giebt keine Propheten mehr!
-So schallt es aus den Gassen.
-Die Häuser Gottes, sie sind leer,
-Die Priester sind verlassen.
-Ich aber herzhaft sage Euch:
-Ich bin ein Gottesgesandter,
-Ich komme aus dem Frankenreich,
-Und heisse Alexander. Fe
 Traduits en français par lui-même (ARimes alsaciennes, Paris, 1889),
 . ces vers ont moins de force, mais non moins de saveur :
 I1 n'est plus de prophètes,
@@ -1674,11 +1261,8 @@ Je viens du cœur de la France,
 Et mon nom est Alexandre !
 - 51
 
-a Alexandre Weil |
 !  cien déraciné, couve encore le feu sacré et crépitent
 parfois les étincelles du prophétisme d'Israël.
-k ;
-FES
 Je ne suivrai pas Alexandre Weïll dans sa carrière
 parisienne, car il nous faudrait étudier presque toute
 l'histoire littéraire, politique et morale du dernier siècle,
@@ -1693,8 +1277,6 @@ ou d'une quarantaine d'années, afin de peindre
 connaître encore; et je lui restituerai, si je puis, la
 figure qui semble s'évoquer d'elle-même, lorsque son ‘
 nom est prononcé de notre temps.
-%k
-*% *% l
 C'est un vieux petit homme, vif et sarcastique, dont
 la tête éclate de pensées et dont les vêtements sont |
 bourrés de brochures.
@@ -1702,9 +1284,6 @@ bourrés de brochures.
 Empire et la Troisième République, il a voisiné avec
 toutes les gloires de la politique, de la finance, du journalisme et de la littérature. Et lui-même, il est devenu
 une physionomie du boulevard. De près ou de loin, tout
-
-ï
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 
 le monde à Paris connaît Alexandre Weill: et Alexandre
 Weill se vante de connaître tout le monde. Les simples
@@ -1741,9 +1320,6 @@ par ma pensée que corroborées par ma science, feront
 
 (r) La Mission nouveile, préface. \
 
-4 ( Pa LA PA OU ONE CE Lis 5 N° 7
-“401 NAMeRERNRN
-Alexandre Weill : na
 une révolution dans l'histoire de toutes les religions
 existantes. Je sais aussi, comme dit David, qu'on partagera ma robe en lambeaux, chacun inventera quelque
 partie de mes découvertes et la déclarera sienne ; mais,
@@ -1774,66 +1350,28 @@ il vivait en compagnie de ses deux servantes, qui laidaient à ;
 relire et à corriger tous ses livres. Alexandre Weill leur dédia yne
 « idylle dramatique en vers », intitulée Christian et Christine (Paris,
 1896), qui porte en exergue :
-A Mademoiselle MaAR1E NIEVOLLET,
 à ma fidèle et honnête servante depuis seize ans,
 Et à Mademoiselle ALICE BARBERET,
 qui me sert fidèlement, depuis cinq ans, de sercante et de secrétaire.
-54 id
 
-portrait d'Agathina Weill, née Marx
 à l'âge de cinquante ans
 d'après une photographie
 
-D EME PU DAT NÉE Re MEET ARE OUT NEA A a LE
 PANAR ER TC DIS PEN CRAN RM QUE CERN RE RARE T AS RU PRINENN RTE REIN ane so
-RATE RSS M TE SN
-
-NL NE NE ARS RON QUEUES NME RANGS 1} AA EVE UT (REC k
-CN CES AM AT Re À RE A RUN D ALU ARNO SENCPM A e AURAI
-EN NT ARE TRS PAS CEA Drap ASS AO LU RAA PAR
-
-NEA EREN SARA REPARER ANA ENT VOTR MNT
-Mit FER EE AMENER RL ES AR DA ABUS APR RARE Er LA NUS
-TA NT NAN ENS ESS SN MANS OPEN LT AA TER TOR er
 
 Fr Tes TA ENS US PET AE AL VERTE GT Lei Fe EE A NAN h
-D
-TRE 13 DUR TENINE : 5 \ FAN OL NS ARE P4 Ra PAU
 MS je V Pr L j i ui) 2 cn et #05 PU AA) j' HO mes fi NT
-VINS D
-FE AM NT UE AN TARA MS MR LEA LAN AINNEEN di
 A Etat | 2 { fre FE: MEME TA Fe AE 4, A 2
 
 A T2 PACE SU CRT ef VO RES TE VER TT En NT Ne et DE CEA + * F6 SL
-AD PS MP TR LOS (GER PRE UE. CUT RESTE ee CON CRE
 tes A RER Rte LE ARS GA DR AU RS EE Crete NEA - APS je:
 
 DM due D'un rt Le LCR hu + 4
-ARS EAU RCE à j < ' r : > : LOS RENE :
-ae + ; w ; Pics | gli FAT
-Mn he 5 à re s 0
-RTE É 5 = , À "pi
-BE SANS /E "a Se Er Le RÉ © 2
-RAR ET RER L pe 2 14: PER
-Ca _ je = 2 Cr . PE £ h
-4 ; # ë ne & MR CrE '
-
-% Se Le à » : à F FA Et 7 >
-ARRET “ - L'ŒRER 5
-RATER : F, : ; C Dep ae ve )
-
-HAyrE E % À un, (PR) >
-Ne Le, F “à f ù SET RP
-
-REC de F À = : AE
 
 L'or: ét: $: +4 ss pa L à L Mate
 
 Que LÉGER LRU Va RE HET NT ES ;
 
-* A ER ES RU 1e RE Se EN - E 7 à. 21, Me RE RER
-
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 Elle n'avait jamais été belle dans son apparence périssable, et ce n'est plus une indélicatesse de dire qu'elle
 fut même un peu contrefaite; mais son âme était haute
 et pure. Tant qu'elle vécut, Alexandre Weill l'aima religieusement; et, dans le volume de vers qu'il a nommé
@@ -1846,12 +1384,10 @@ Le ménage habita longtemps la maison qui porte le
 numéro 11 du faubourg Saint-Honoré, près la rue Boissyd'Anglas. Agathina y avait son magasin de modes, et
 
 _ elle offrait des soirées aux gens de lettres amis
-d'Alexandre Weill.
 
 Elle était modiste, il était prophète. Et lui-même se
 surnommait l'Zsaie du faubourg Saint-Honoré… |
 
-*k
 ne
 
 Je voudrais caractériser rapidement ce prophète et
@@ -1860,7 +1396,6 @@ dire le secret de ses prophéties.
 (1) Paris, Dentu, 1879. Agathina Weill, née Marx, mourut le [
 20 octobre 1878. Elle repose auprès de son mari, au cimetière Mont- !
 martre, où le passant s'arrête à lire l'épitaphe que lui a composée \
-Alexandre Weill :
 
 Amis! elle a quitté notre sainte phalange! À
 Ce n'est qu'à son départ que l'on reconnait l'ange!
@@ -1870,18 +1405,12 @@ pourra lire ses lettres, dont quelques-unes sont charmantes, dans
 le récueil intitulé Lettres d'amour entre deux Epoux avant et après
 le mariage, depuis 1847 jusqu'à 1878, où Alexandre Weill a imprimé, sans la moindre pudeur, l'histoire de sa vie conjugale.
 
-û to # <
-Alexandre Weill PA
 Mais d'abord, qu'est-ce qu'un prophète ?
 — CPROPHÈTE, dit Littré, celui qui, chez les Hébreux,
 inspiré de Dieu, prédisait l'avenir. »
 Si tels sont les dons auxquels se reconnaît le « prophète », Alexandre Weïll fut véritablement le dernier
 prophète d'Israël : né chez les Hébreux, il se tenait
 pour inspiré de Dieu (1) et il se flattait de savoir
-Javerir. <
-% L
-RCE
-!
 Depuis cette nuit mystique où une figure étincelante |
 était apparue au petit pâtre de Schirhof, et lui avait
 dit : « Jeune homme, lève-toi, ceins tes reins et va-t-en
@@ -1895,7 +1424,6 @@ ses principes dans Moïse, n'a pas compris ses vérités éter-
 | nelles, à cause des falsifications pharisiennes qu'il n'a pu :
 séparer pour les rejeter, Si un juif comme moi avait surgi, |
 il y a seulement un siècle, il aurait été brülé par les prêtres
-PEINE À
 (1) « La vérité est que je ne médite pas. Je ne cours jamais
 après une pensée. Les pensées sautent sur moi et me quittent de
 même, si je ne les retiens pas par la parole écrite. De là vient que
@@ -1905,7 +1433,6 @@ première à la dernière ligne : « Je suis la Force-Justice, la Loi autonome e
 point là un procédé littéraire, mais le signe d'un état de suggestion.
 Le titre dit : « Révélations ». Les chapitres se nomment des « dictées »… L'auteur écrit, mais Dieu dicte.
 
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 juifs et chrétiens, comme ils ont voulu le faire à Maimonide,
 du moins envoyé aux galères.
 J'ai expulsé de l'Ancien Testament les fraudeurs de Moïse
@@ -1934,12 +1461,10 @@ de l'annulation des effets d'une cause, par la volonté de
 Dieu, soit par un miracle, soit par un caprice, soit par !
 le simple repentir » ; (2) que l'idée du pardon est immorale, absurde, et proprement inintelligible; qu'en effet
 _ elle est contraire aux lois de la justice et de la nature,
-() Code d'Alexandre Weill, page 1x ; Paris, Sauvaitre, 1895. — A
 Pexemple de Moïse, Alexandre Weill se propose, dans ce livre,
 comme législateur. À
 (2) Ma Jeunesse, pages 85-84.
 
-= à NL fe ENT È
 | Alexandre Weill ;
 qui sont l''émanation directe de Dieu; qu'elle est donc
 | injurieuse pour Dieu même; et que l'humanité ne trouvera le chemin du progrès et du bonheur, qu'en retournant à la vraie loi de Moïse, c'est-à-dire à sa parole
@@ -1967,11 +1492,7 @@ dans la bouche de Moïse. — Cinq volumes, Paris, 1890-1891.
 lAthique de Spinoza. (Voir La Parole Nouvelle, page 59; édition de
 1892) Il voit des contradictions dans l'Zthique et décide, en consé-
 quence, qu'elle n'est pas tout entière de Spinoza. Cela peut mettre
-en défiance,
-6o
 
-ÿ 1 4 7
-OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 tout acte humain se mesurent à la valeur de cet acte,
 et contiennent l'expiation ou la récompense. Et il croit,
 IF en conséquence, que l'humanité est maîtresse de s'affranchir et de se rendre heureuse sur cette terre, dans la
@@ -1979,12 +1500,9 @@ IF en conséquence, que l'humanité est maîtresse de s'affranchir et de se rend
 œuvre et n'intervient pas dans les affaires du monde
 pour détruire ses propres lois par le pardon et le
 miracle, c'est-à-dire par l'arbitraire.
-*k 0
-CRE
 Il y a intérêt à considérer comment Alexandre Weill
 relie à cette philosophie sa théorie du prophétisme :
 | Un prophète,
-dit-il, (1)
 n'est pas un prêtre ignorant qui,
 après avoir pendant des années avalé des erreurs religieuses
 et pris de nausées, vomit des prophéties miraculeuses sur
@@ -2001,9 +1519,7 @@ prophétie n'est plus possible. La prophétie est basée sur la
 loi immuable de Dieu, des causes et des effets par le Temps,
 chaque cause produisant son effet sans qu'aucun pouvoir » puisse détacher les effets de sa cause par un miracle ou par
 () Lettres de vengeance d'un Alsacien, page 16.
-61 Alexandre Weill. — 4
 
-trs a AN te
 Alexandre Weill ; du
 
 le pardon, uhe action de vertu ou de justice produisant
@@ -2042,11 +1558,9 @@ puisque dans ce même laps de temps le Dieu, au nom duquel
 parle le prophète, peut avoir changé de volonté et de loi ?
 Et voilà la raison pourquoi il n'y a plus eu de prophètes,
 ni sous le second temple, ni dans l'exil, ni pendant les
-siècles chrétiens. (1)
 
 () Le Centenaire de l'émancipation des Juifs, pages 87-88.
 
-6 OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ
 Mais Alexandre Weill est venu... Il connaît Dieu : }
 « Dieu, c'est la Justice incorruptible, rien que la Justice,
 en vertu de laquelle tout existe, depuis le brin d'herbe
@@ -2076,12 +1590,8 @@ tournait point d'être, dans le présent, un grand patriote. Voir ses
 n effroyables oracles contre tous les ennemis d'Israël (Babylone,
 Moab...) et ses objurgations à son peuple : « Réveille-toi, réveilletoi, Jérusalem... »
 
-: Alexandre Weil \
 plies, ou s'accompliront. Mais Alexandre Weill était si
 habile à deviner partout les marques de la justice de
-Dieu ! |
-h j
-% *
 
 Ce Dieu impassible, qui jamais ne s'attendrit sur la
 créature, qui jamais ne pardonne, est-il vraiment le
@@ -2097,8 +1607,6 @@ ouvrages. C'est pourquoi nous nous interdirons de sourire de son mauvais style p
 à la lignée des grands « justiciers » d'Israël.
 
 We) CAR MORTE REC f OL ANNE évite de }, er OS an ' Li dB MOVE :
-f
-DEUX LETTRES
 Cette esquisse de la vie d'Alexandre Weill, d'abord Ÿ
 accueillie par la Revue des Études juives, m'a procuré
 bien des lettres intéressantes, dont je voudrais faire un
@@ -2111,22 +1619,16 @@ les façons essentiellement religieuses du rabbin qu'il a été,
 prend, à mes yeux, l'aspect d'une sorte de petit Renan
 juif, plus rude, plus crochu que lautre, plus comique et
 plus pur à la fois, — un petit Renan grimacier de l'Ancien à
-Testament.
 Ce petit portrait, d'une caresse si fine et si forte, est
 dû à l'auteur du Partage et de Décadence : je le découpe
 dans une lettre signée de M. Albert Guinon.
 Puis, je recopie cette lettre charmante qu'a bien voulu, |
 - Jui aussi, m'écrire l'érudit et spirituel philosophe qu'est #
 M. Jacques de Boisjoslin :
-Paris-Passy, samedi 3 août 1907
-Cher monsieur {
-?
 Je vous suis bien reconnaissant de votre Alexandre
 Weill. I me rappelle un temps bien curieux, où on n'était
 pas scientifique comme aujourd'hui, ni mystique non plus, É
-65 Alexandre Weill. — 4.
 
-Alexandre Weill He N'ES
 encore comme aujourd'hui. On observait, on raisonnait. On
 expérimentait moins, on se mettait aussi moins en extase.
 Alexandre Weill mélangeait le bon sens, le sentiment, la
@@ -2149,7 +1651,6 @@ non clément. Au fond cela veut dire que les actions portent
 
 1 leurs effets, ce qui est d'un bon déterminisme. Et Victor
 Hugo ne dit pas autre chose (dans une des dernières
-œuvres) :
 
 La clémence n'est pas; tout est de la tristesse.
 
@@ -2160,13 +1661,9 @@ du sentiment. Et sur tout cela l'ombre des ailes d'Isaïe.
 Il me représente une époque du Sémitisme, hésitant entre
 Francfort et Paris. J'aurais aimé qu'il fût du Parlement de
 Franefort en 1848 et qu'en 1886 il eût pu discuter avec Drumont. Mais je m'égare, comme dit Stendhal dans ses mé-
-moires.
 
 En vraie confraternité philosophique et littéraire.
 
-; BoïsJosLIN
-
-DEUX ARTICLES
 M. André Beaunier (r) et M. Édouard Drumont (2) se
 sont récemment occupés d'Alexandre Weill; chacun,
 cela va de soi, à sa manière.
@@ -2174,7 +1671,6 @@ cela va de soi, à sa manière.
 : Et M. André Beaunier m'a fait un amical reproche,
 mais dont il a pris soin de me justifier aussitôt avec
 tant de subtilité judicieuse que j'en demeure émer-
--veillé.
 
 Voici le reproche :
 
@@ -2184,8 +1680,6 @@ voudrait le savoir.
 M. Robert Dreyfus ne nous le dit pas beaucoup; et c'est
 
 ) le défaut de son étude... Elle est, à cause de cela, un peu
-
-décevante.
 
 Et voici ma défense :
 
@@ -2205,7 +1699,6 @@ l'avenir avec plus de hardiesse et de sûre intrépidité qu'on
 n'empiète sur les âges révolus, les faits accomplis, — cette
 } tentative extravagante et magnifique honore les prophètes,
 les chiromanciennes et tous les sorciers qui nous res-
-\ tent.)
 Le principe de la prophétie à laquelle se consacra le vieux
 Weill chimérique, c'est une croyance furieuse au principe
 de causalité.
@@ -2214,7 +1707,6 @@ L'idée du pardon lui était insupportable. Il la disait immorale, absurde et in
 $ rieuse pour Dieu même... Et encore, Dieu, — on devine
 qu'Abraham-Alexandre se ferait ici une raison; mais
 dl surtout l'idée de pardon est injurieuse pour le principe de
-causalité !.…
 Pauvre vieux Weill, qui avait beaucoup lu : dangereuse :
 aventure !.… Mais il n'avait pas lu, probablement, les œuvres |
 du subtil David Hume. Elles l'eussent, je crois, averti de ce
@@ -2229,17 +1721,11 @@ cause un veu absurde.
 Hé oui! on ne saurait mieux dire : l'essentiel n'est pas |
 ce qu'on prophétise, mais le grave est de prophétiser… |
 Le don et la verve prophétiques, voilà ce qui m'avait
-paru caractéristique, exceptionnel, admirable, — voilà |
 ce que j'avais soubaïté qu'on reconnût chez Alexandre ÿ
 Weill. Mais le positif des prédictions, quelle duperie!
 Et c'est pourquoi je me suis permis (page 63) de È
 
-Di
-M
-
-‘: s t QE 24 LU \ y mn k f
 #
-(OU LE PROPHÈTE DU FAUBOURG SAINT-HONORÉ À
 renvoyer aux cinquante ou soixante volumes et brochures +
 d'Alexandre Weill le lecteur qui, sur ce point-là, se sentirait de la patience et de la curiosité.
 Maïs je ne le renverrais pas, sans lui crier gare, aux
@@ -2268,8 +1754,6 @@ arcades de la place de la Concorde et laissant errer
 pas, les imprudents, que leurs propos seraient guettés,
 mais ne seraient pas toujours compris.
 
-HE AE À LA MER TAN à Le NAT TORRES
-i h FAT
 Alexandre Weill É de
 Pour saisir dans sa simplicité vraie le sentiment
 français d'Alexandre Weill, je relis les premières lignes
@@ -2284,9 +1768,7 @@ autre guerre, fait trembler la plume dans ma main et
 rien que l'idée qu'après avoir écrit ces lignes je ne
 pourrai plus visiter la tombe de mes parents enterrés à
 Haguenau me brise le cœur et m'arrache des lar- :
-mes... » |
 
-“is RU s ; 4
 #
 Essai de Bibliographie
 Une bibliographie complète des œuvres d'Alexandre Weill
@@ -2302,22 +1784,13 @@ en vers, dans Mon Théâtre (Dentu, 1885). Alexandre Weill
 Dumas fils (dans l'Etrangère), Sardou (dans Divorçons), et
 Georges Ohnet (dans le Maître de Forges)... Plagiats peu
 croyables. Mais Alexandre Weill se jugeait dépouillé, et le
-supportait mal.
-En allemand : Zwei Jugenddramen (Zürich, 1896). — Noch É
-zwei Jugend-Theaterstücke (Zürich, 1896).
 - Souvenirs. — Ma Jeunesse. — Souvenirs intimes de Henri
 Heine (1883). — Histoire véridique et vécue de la Révolution
 de 1848. — Mes années de bohème (1888). — Nos fiangailles. — Lettres d'amour entre deux Époux (1892). — Signalons aussi l'Introduction à mes Mémoires (1890), donnée
 comme la « suite » de Ma Jeunesse. Les mémoires promis ‘
 par ce titre n'ont jamais paru. Ils eussent été terriblement
 . sévères, et voisins du diffamatoire, à en juger par cette
-« introduction ».
-En allemand : Briefe hervorragender verstorbener Männer
-Deutschlands (Zürich, 1889).
 
-SE ON AN ra |
-HA i x MTV Vé
-"APR Alexandre Weill + ‘
 (A) Hisrorre. — Vie de Schiller (Dentu, 1855). — Histoire de la
 VAR grande guerre des Paysans (Poulet-Malassis, 1862). — Histoire de la guerre des Anabaptistes (Dentu, 1874).
 un Vers. — Blasphèmes (1861). — Les Croquants finan-
@@ -2327,9 +1800,6 @@ ei d'amour et de jeunesse (1889). — Rimes alsaciennes (1889). —
 Le Nouvel Isaie (1892). — En Démence (1894). — Épopée
 ik alsacienne; Alsacien et Sémite (1895). — Rabbin et Nonne
 W (895). — Christian et Christine (1896). — Fables et Légendes
-] d'or (1897).
-En allemand : Skizsenreime meiner Jugendliebe (1883).
-— Knitltelverse eines Elsässer Propheten (1885).
 Sarxce ET Paicosopare. — La Parole Nouvelle (1872). —
 L'Athéisme déraciné (1878). — La Mission Nouvelle (1885).
 — Le Pentateuque selon Moïse (1886). — Le Centenaire de
@@ -2350,61 +1820,25 @@ que le rêve? (1872). — Lettres de vengeance d'un Alsacien
 M. Drumont (1888). — Mes Contemporains (1890). — Le faux
 ! Jésus-Christ du père Didon (1898).
 / Cette bibliographie est très imparfaite.
-k
 
 A Le RES PT ae
-RTE) SR
-CN A dde RAA AE RE RS
 
 sa due qe MC A
 MR NN sus M RARE RSS à La PEAU nes ie
 DE PAS AE TIR One RUES LASER SRE NE St Ur ie
-ue Fons D ARR SEPT EN A REA RANCE it
 
-SU RE NN td M NNTEN Se à PATES “ re a .
-er. MEANS A AUS a PE ANA D FÉÉNENRRSROESS FT
 no MAS ER EU FLE ne Ces RARE
-D D. £ “ dLRs a AN ANR TRES Eur
-Pen + Le ,
-a Re FRTUEES s. 12 NNSPAGS
-Hs l EE REMISE RAA M ETES ENS PE pe SU Ro ÿ CR
 Me EMA EE dat UE eu 1 ÈS LE AE
 Ron SE FILED ARE TIEl HSE LE At A se - di
 ee PUITS ARE E QUE (PATaEEe De RE etre (HR ENAERNSS PA ICE SU HN
 F : 2e si A MES A Lee AS et ART AIRE RE 1 AT SE LEAVE
-M Fes ; Me NEA THAT (LANDE ANT RON: DEN RM APR SES {
 (ee Jo Ésn ne RES A rend SN UE RRQ s L'AIR RAA HAL ARE
-RU PR ALTER La Re “a à
-
-FES PTE BV MATE da NAT cu RU si
-! LENS ARE PS A PE Hans
-
-FN B TON NES PRE RCE Et ARTE PR ALERT ES OI ENTRER SAN
-
-IAE AT SEE DMC AE CRU RARE eT EE
-
-SR CR
 
 DRE R Rens D SAR PAT ET NLREDT die QT ONE ARTE a ERA VUE CUVE
-Re ra em À PRO DONNE
-
-NN RM AN EE FOR ET PRtAl EN ILES SORA
-
-DRAC SR ARTANES Los RENTE PO PRO RENE Ve LT PÉNALES TS En ER En Te, CRAN A £
-
-Re A Name ee 2°
-FAURE PÉTER DR 5 ï Le y ? ER AUERE NE R LE je Dr b
 
 LÉCAEREES NA A D Vu ee |
 
 SAEN ARE EL He LATE CRETE EEE ce
-
-NES L'LONTEENEESS ER Ÿ RSR « “We AA MARS Po Ur su L RE Ut à TR RE
-
-BR
-MR ee it AT Se : UP ee LU
-
-r
 
 Il a été tiré de ce cahier vingt exemplaires sur
 whatman ainsi distribués :
@@ -2416,10 +1850,8 @@ deuxième exemplaire de souche, exemplaire de l'administrateur ;
 troisième exemplaire de souche, exemplaire de limprimeur ; è
 
 neuf exemplaires d'abonnement, numérotés de I à 9
-exemplaires d'abonnement ;
 
 et huit exemplaires d'auteur numérotés a, b, c, d,e,
-f, g, h exemplaires d'auteur.
 
 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
@@ -2431,42 +1863,18 @@ pour tous pays.
 
 Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie successeurs) 21, rue du Montparnasse, à Paris, sixième
-arrondissement.
 
-+ CRE QT"
-PRE EC A RNCS AT eR
-NRDSNNT AE PANNES LI CRE. v
-MÉSRA NAS RUN Le CT ARS CORTE ETENCE
 Ar ne D nn nn Ve FAN
 rte TES ra Re FRE le nb AE 2
-AA : Anse : né Bret GER CRE
-Mere SRE NA , MEMra ; 4 Pr ABE VERRE ARS TES
-Re | RU
 a DAYS Ce GE TRS 0 Vies HAE
-ARS NNAE £ £ GE ee AE 25 LIRE LS PA
-fs; CD LEA FEAT ER Éd
 Dane: ANNE JE
-HELP CRE ais VAL PS EREES MD
-FASO ES s ; f * £ RAR
-PLEASE » : Ê 1, CN ÉTÉ ARTE
-RM A
-MEME PEAU : ATEN SES LUE)
-ee HS He RD è RE, BAS TT AER
 je EE AE is } Ÿ STE SOIR rte
 | PA SSI, D en TP VI PT ÿ LR ANSE
 M: EU NE as NES UNE : FN re
-HERO RTS PRE a Et HR UPREE EHESS #0
-LS ETAERRe h : Ê ST RER SEA LAS
-Ru A LI AS (PM ? à EN SE Le CREER mL Gise
 CARE QE de TL ARR 70 2e > té M act DT 7 LACS
-Pa! PAPIERS EE NE 2. :
 
-"
-ft,
-(4 " |
 |
 |
-]
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il suffit d'envoyer un mandat de trois francs cinquante
 à M. André Bourgeois, administrateur des cahiers,
@@ -2480,55 +1888,18 @@ cinq francs à M. André Bourgeois, même adresse: on
 recevra en retour le catalogue analytique sommaire,
 1900-1904, de nos cinq premières séries, premier cahier
 de la sixième série, un très fort cahier de XIIH408
-pagestrès denses,in-18 grand jésus, marqué cinq francs.
 Pour s'abonner à la neuvième série des cahiers, qui
 ( est la série en cours, envoyer en un mandat à M. André
 Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinsaine en quinzaine,
 ri à leur date, les cahiers à paraître de cette neuvième
-è série.
-(
-})
 | Alexandre Weil. — 5.
 | 1
-UM
-
-VE OAN | AVOME PAT AONNENREs
-
-LP NAT HER a ra ARE BON (A à RTS NN REA pu
-
-LLUET CAL Fi AA CTATS AE AATTA VA RUTAUIre SAME AURAS NES
-
-LAN ANNEES RATE AELAME RP HARAS EPA AL PRO Ne NIET A"ES NUS PIE M Hi
-
-\NTeRONES F4) (3 RATER ( | FRA RE EM ae ERA KM EEN
 
 Ai Ne l'ARN or Wa h A EE PNR N ut HAUTE
 
-4 PAUL PUS RENE \ , RAM \E RARE D 4 AE à
-
-ANS op A TETTANE \ h Y à { ARE PE OT TER NE
-
-MARNE RE AN NAAEUR { \ 24 CES TE RAA PAL ri ETAT AR
-
-‘he + al WF » ESS RES AANAR À PARCS EEE RON \
-
-1, ON EE P Et k }  PANARE AE MAPPIRENS RERO NS SONT UE NPA
-
-WA! [SPC SN ' h û C } LA AUS } \
-
-re CAE NUS TO À PAIN TRUE ke UE 4 | ART à At
-
 | MALAREAR RUES 4 4h} {Us À tn NAN: NME SUN {
 
-NET fr PAL EE GA CE OT a RE TONER KE NE DANEEENE
-
-is “NES ON AT EQN NU ER CNP ORNE LE REA, HAE MEN
-
-SNA UE AUMRREERS LA RRMAA TE ACTE 4 PA DPA TA ATLA (347 Nue RARES AU *
-LUN RE ENS ENS
-
-Fi
 | LR ÉRNU IE BLURAE Born A PINS ER NU SAN PAC LL rt LEONE PT EAN
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
@@ -2537,7 +1908,6 @@ rez-de-chaussée, Paris, cinquième arrondissement.
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi- ñ
 naires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -2550,9 +1920,6 @@ valable pour la série en cours.
 Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série :
 
-! Paris, départements, Alsace-Lorraine,
-
-Abonnement ordi- \ Algérie, Tunisie.... vingt francs
 naire ........... 0 Autres pays de l'Union postale universelle....... vingt-cinq francs
 
 Abonnement sur whatman... cent francs pour tous pays
@@ -2573,40 +1940,11 @@ Méro d'inscription qui devient automatiquement le
 
 numéro du tirage réservé à chacun des souscripteurs ;
 l'édition sur whatman est strictement limitée au
-… nombre d'exemplaires à chaque instant souscrit.
-
-NS ELA UNE FA EAN AN SN AE
-
-RE MAUE PARENT PAR ANURES An ASS QU RATE RO
-
-LA MIN RP 4 DRE PR NA SA CANTON RASE
-
-a DU d FR Lt CU Vi D CRETE AR
-
-GET (0 EN SE A RAR UEN IR) Ent AE AR NU Va AE AU)
-
-MASTER Ye AR ANA LU AD NRUR NT Us LU DURANT AR ONU
 
 LAS nue A TE D NE DNTe UE À
 
-HALONE LEA l'ARN SPEARS AU ACTOR 1 ARE EEE En CPE ARE À
-
-“ RON ! ONE NE ju MATENRO 1 TN Mr
-
-E RÉUNIE : ? PEAR AN PR PAT AT ie NET AS
-RS AA PAR : [SE SATA AAA DATE QE
-
 Us AR (AMIE ALAN NES À Ê dE ONE IHiE is
 
-ONE RL HS | | ' HN SANS Le EH SIA NEA NA
-
-‘RTE ' den / | 6 40 RENNES À
-
-a PAS NE (ONE) \ { Mean US k
-
-ME dte Al HA LH SMRREENSENE SATA ST AUIE (AN AA |
-
-Ÿ à Text x ét EN AA 2 Ÿ + 4 AL C a E
 #1 Pour tout changement d'adresse envoyer soixante
 ji centimes, six timbres de dix centimes.
 

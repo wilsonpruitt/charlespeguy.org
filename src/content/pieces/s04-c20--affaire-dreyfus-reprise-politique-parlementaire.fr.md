@@ -7,29 +7,17 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 37554
 ---
-
-INGTIÈME CAHIER DE LA QUATRIÈME SÉRIE A
-AFFAIRE DREYFUS D |
-Cahiers {
-
 e la Quinzaine
 
-ES |1R
-PARAISSANT VINGT FOIS PAR AN 1
-PARIS 5
 , rue de la Sorbonne, au rez-de-chaussée {
-x 1
 
-N
 Ë Pour savoir ce que sont les Cahiers de la Quinzaine,
 52 il suffit d'envoyer un mandat de trois francs cinquante
 d: à M. André Bourgeois, administrateur des cahiers,
 4 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 #4 arrondissement. On recevra en spécimens six cahiers
 ë de la deuxième, de la troisième et de la quatrième '
-« 4 série.
 RSS Nous mettons ce cahier dans le commerce; nous le
-a vendons deux francs. ;
 # Nos cahiers paraissent par séries; une série paraît
 + dans le temps d'une année scolaire, d'une année”
 ne. ouvrière, d'octobre-novembre à juin-juillet. 4
@@ -45,14 +33,11 @@ x viennent pendant les vacances. 4
 GA Ces cahiers supplémentaires alourdiront encore le
 4 budget de notre quatrième série ; je prie nos souscrip54 teurs, — souscriptions mensuelles régulières et sou-
 # scriptions extraordinaires, — de vouloir bien nous en.
-s tenir compte. ve
 | Nous demandons à nos abonnés d'utiliser leurs
 déplacements de vacances pour nous trouver des.
 | abonnés nouveaux. “
 
 | x À Li % -& « 2 £ LA
-Tetra € CGR
-REPRISE POLITIQUE PARLEMENTAIRE EUR à De :
 Je savais depuis longtemps que l'on préparait un ; #4
 commencement, ou, comme on l'a nommée, une ÉQ
 prise de l'affaire Dreyfus; je pense que je le sus un £ ee.
@@ -66,7 +51,6 @@ us net, plus fait, que Jaurès n'a sorti. Car le discours à Fu
 > Jaurès était fait; mais ses preuves n'étaient pas N:
 ites. Elles étaient à construire. Elles étaient des Re
 éments de preuve, matière à travailler, démonstra- Re
-ons à élaborer. à ‘4
 Aux funérailles de Zola, aux obsèques de M. David ‘f
 adamard, beau-père de M. Dreyfus, des allusions fort B:
 aires, pour qui savait, avaient été faites au recommen- Fe
@@ -78,9 +62,7 @@ ar la loi et les congrégations, datée de Paris, 6 août Be
 902, on y trouvera plusieurs phrases qui annonçaient 4
 éjà, et non moins clairement, pour qui savait, l'inten- M à
 on du recommencement. Page 207 : Je suis convaincu “ie
-I Ne
 
-D vingtième cahier dela quatrième séris
 : RON même, disait Bernard-Lazare, je suis convaincu même
 : $ hi L que si nous constatons tant d'incohérence chez la plu
 4 C4 part de ceux, et non des moindres, qui ont participé
@@ -89,7 +71,6 @@ D vingtième cahier dela quatrième séris
 $ D : pas accompli, c'est qu'ils ont oublié ces règles et r
 | 400 principes dont je vous parlais. — Page 214 et page 21à
 ‘4 dans un paragraphe capital : : :
-34 è
 }s a — Fait notoire, si nous faisons abstraction du Comité
 ï E LIEN catholique, de ses adhérents, et de M. Goblet, tous les
 14 IX réactionnaires, de M. Drumont à M. de Mackau, dé
@@ -117,7 +98,6 @@ lb et de la démagogie antidreyfusiste. La situation €
 b Bernard-Lazare, qui était la nôtre, qui était celle de
 
 Rd D ni
-REPRISE POLITIQUE PARLEMENTAIRE Done
 us les anciens et des véritables dreyfusistes, — :
 urvu qu'ils ne fussent d'aucun État-Major, — dès ‘3 Fi
 rs était celle que nous avons exactement conservée. “a |
@@ -128,7 +108,6 @@ dicale et radicale-socialiste, le gouvernement radical 3 n ‘1
 xcialiste, l'autorité de commandement radicale et LS: ‘4
 dicale-socialisie sur la démagogie, le gouvernement, 8 È
 _ politique et l'autorité de commandement nationa- 4h |
-te, réactionnaire, catholique, méliniste, antisémi- Ki À
 que et antidreyfusiste, s'étaient disqualifiés pour le ( WA |
 commencement ou pour la continuation de laffaire. ? ‘1
 événement a montré qu'ils n'étaient pas disqualifiés À 1 4 |
@@ -211,14 +190,12 @@ pour s'accorder mutuellement.
 
 nous avons été des dreyfusistes de la toute première
 
-REPRISE POLITIQUE PARLEMENTAIRE d
 heure. Si l'on veut bien se reporter aux premières de 3
 ces fameuses listes, — pétitions, souscriptions, et en- mL
 dossements de démarches, — aux toutes premières he
 listes, à celles qui étaient dangereuses, on y trouvera DA
 non seulement mon nom, mais ceux de presque tous ny:
 les amis constants qui ont fait la force et la vie de ces \ NL
-cahiers, auteurs, collaborateurs, abonnés, souscrip- 1.4
 teurs. Nous n'en tirons nulle vanité. Nous étions parti- s À
 culièrement bien situés, pour la plupart, pour avoir les Fe
 renseignements, pour savoir les événements à mesure fe
@@ -244,8 +221,6 @@ défendons en particulier toutes nos libertés dreyfu- É
 sistes contre toutes les autorités de commandement 1
 _prétendues dreyfusistes qui ont voulu s'établir parmi *
 nous et sur nous. f Î
-LN
-"1
 
 vingtième cahier de la quatrième série
 
@@ -277,8 +252,6 @@ leur nouveau rôle et sur leur présence obsédante et sur
 
 l'autorité de commandement qu'ils veulent exercer dans
 
-leurs nouvelles attitudes.
-
 Peut-être avant Jaurès. Le grand orateur eut dès le
 ï tout premier commencement de affaire des hésitations
 F politiques. Dès lors il s'imaginait que le plus utile était
@@ -296,10 +269,7 @@ Tharaud. Vivant dans une école fermée où l'on avait
 
 installé pour Jaurès un véritable culte, on ne peut
 
-k
-
 nos AU le RE ee NN A A 114
-1 REPRISE POLITIQUE PARLEMENTAIRE | ‘4
 s'imaginer aujourd'hui de quelle innocente, affectueuse 1
 et respectueuse vénération nous l'entourions. Nous Ni
 allämes le voir dans son étroit appartement de la rue '
@@ -324,11 +294,9 @@ petit vieillard, à l'œil vif, regard vivace, front serré, he
 ménu, têtu, menton rasé, nez pincé, nez de procuréur, où is
 
 | d'avoué, favoris grisonnants où blancs, lèvres hori- ‘is
-zohtales, serrées, pincées, mauvaises, volontaires, vi
 hargneuses, minces; l'air à la fois finassier et propret, ke
 fouinassier et guilleret; marchant menu à côté de quel- F.
 qu'un. Jaurès dit: C'est Méline; il a encore de la vie, le 74
-vieux. 1
 
 Nous le conduisimes jusqu'à la Chambre par le bou-. 14
 levard Saint-Germain. Il était heureux de voir des jeunes ‘4
@@ -338,10 +306,7 @@ tains. Tout le monde les a connus ou devinés depuis. Ki: à
 
 7 4
 
-‘
 | Ÿ
-
-7 + !
 
 1 PRE vingtième cahier de ia quatrième série
 Tout le monde sait quelle était alors la situation. Il y
@@ -376,13 +341,11 @@ Quand je monte à la tribune, je suis déjà vidé, je suis
 creusé, je suis épuisé par ces dévoràtions intérieures, je
 | 8
 
-te REPRISE POLITIQUE PARLEMENTAIRE PAS #4
 suis exténué d'avance. L'autre jour, pendant que je par- "2h
 lais, contre cette Chambre lâche et hostile, c'était ke:
 comme si j'avais eu mille aiguilles qui me traversaient ni
 le cerveau. Je crois que je vais tomber malade. Je ne AU AL
 sais pas si j'aurai la force de tenir jusqu'à la fin de la 4 ë
-législature. 1
 
 Ainsi peut-être avant Jaurès. Nous n'en tirons nulle RER S4
 vanité. Nous étions peut-être mieux situés que lui pour 10
@@ -392,7 +355,6 @@ Déjà les députés n'étaient pas, à beaucoup près, les LE
 mieux renseignés des citoyens. Nous n'étions pas ÿ j.
 comme lui embarrassés dans les dificultés de parti. 14
 Nous n'étions pas retardés du retard parlementaire 54 4
-normal. £ rs
 
 Nous n'en voulons tirer aucune autorité de comman- 4
 dement. Nous avons souvent insisté auprès de Jaurès, Le
@@ -414,8 +376,6 @@ cahiers; on y entre, on en sort; et dans nos relations K.
 
 _n'interviennent jamais les sanctions économiques de ' 144
 
-9 I. ‘4
-
 ; vingiième cahier de la quatrième série
 Ÿ talions qui seraient injustes. Nous n'en voulons pas
 plus à ceux de nos anciens collaborateurs qui sont
@@ -427,7 +387,6 @@ demandé à des radicaux, à des partisans du monopole,
 de nous faire des cahiers où ils nous présenteraient leur
 doctrine. C'est curieux, ils ne veulent jamais. Ils pré-
 à fèrent travailler dans le quotidien. Le broché leur est
-À suspect. F
 Mais réciproquement nous n'admettons pas que
 : Jaurès exerce une autorité de commandement sur nous
 que nous ne demandons pas sur lui. Nous défendons
@@ -450,9 +409,6 @@ recommencement de l'affaire la méthode, l'action de
 Jaurès et de plusieurs s'est constituée, confirmée puis
 outrée dans le sens d'une autorité de commandement.
 
-rot
-
-REPRISE POLITIQUE PARLEMENTAIRE d
 C'est une pente habituelle à presque tous lés hoñimes, F
 que de glisser à exercer une autorité de commañdement. ‘
 C'est une pente habituelle à beaucoup de Méridionaux, à
@@ -486,8 +442,6 @@ saisir les seuls corps, comme une autorité de comman- 14
 dement temporelle, cette autorité du commandement F
 oratoire, comme une autorité religieuse, comme une ta
 
-‘4
-
 dl vingtième cahier de la quatrième série
 
 Fe autorité d'Église, comme la nouvelle autorité que lon
@@ -495,8 +449,6 @@ Fe autorité d'Église, comme la nouvelle autorité que lon
 ; veut nous faire d'un État seul enseignant, seul philo-
 
 14 sophe, seul savant, seul artiste, cette autorité du com-
-
-2 mandement oratoire, autorité intellectuelle, mentale,
 
 el et, beaucoup plus profondément, sentimentale, saisit
 
@@ -553,8 +505,6 @@ C'est le gouvernement dont on ne se méfie pas, le gouver-
 
 s nement à qui les simples et tant d'innocents se donnent.
 
-A Re LR RAA DR Eau A AE CANNES
-REPRISE POLITIQUE PARLEMENTAIRE De
 Un grand philosophe ne règne pas. Un grand savant ne « 4
 règne pas. Un grand artiste ne règne pas. Les grands À + 08
 comédiens seuls règnent, et les grands orateurs. Je ne 2
@@ -588,7 +538,6 @@ a peu à peu'et de plus en plus glissé dans le sens 1
 gouvernemental, dans le sens autoritaire, dans le sens he 4
 d'une autorité de commandement. Ce glissement, cet 4
 | 114
-x.
 
 K vinglième cahier de la quatrième série
 3 infléchissement s'est fait sentir peu à peu dans toute sa
@@ -598,7 +547,6 @@ De tous les sujets comme des sujets oratoïres, comme
 ; vernement, tous les publics ainsi que des auditoires,
 é toutes les actions comme des actions oratoires. C'est
 par là, en un sens, que toute son action politique est
-peu à peu devenue gouvernementale, étatiste, jacobine,
 autoritaire. Il n'est pas tant devenu autoritaire par un
 effet de son radicalisme qu'il n'est au contraire devenu
 radical par un effet de son autoritarisme. II a, comme
@@ -622,8 +570,6 @@ politiques parlementaires. Une assemblée parlementaire
 recevant de plus en plus tous les jours au moins les
 vices des réunions publiques, et des réunions publiques
 
-REPRISE POLITIQUE PARLEMENTAIRE Ec
-À : Ya
 électorales, en particulier les grandes séances de la “4
 Chambre devenant de plus en plus tous les jours des 1
 meetings, il était inévitable que l'autorité de comman- FES
@@ -651,12 +597,9 @@ autorité de commandement parlementaire. Il est évident +
 qu'il a voulu introduire, et qu'il a commencé d'intro- SE:
 duire dans le dreyfusisme, avec son autorité de com- 1e
 mandement oratoire, son autorité de commandement —.
-parlementaire. .
 Non seulement le philosophe, l'artiste, le savant ne “À
 règnent pas, mais ils ne sont pas populaires ; et plus a
 ils sont grands, plus ils ne sont pas populaires; ils ne si
-:
-+ !
 
 ‘ vingtième cahier de la quatrième série
 à sont pas envers le peuple du même ordre que sont
@@ -716,11 +659,7 @@ rieure ; inventer, c'est découvrir en soi dans une plus
 grande richesse native de combinaisons, dans plus de
 
 | 16
-É À
-d
 
-he OS RNA PTE AN 7 A GR en:
-: REPRISE POLITIQUE PARLEMENTAIRE ‘ M.
 souplesse, dans plus de variété le joint que les autres +
 chercheurs n'avaient pas déeouvert encore en eux. Mais 4
 surtout ce que le populaire aime dans quelques sciences : 3)
@@ -752,7 +691,6 @@ comme orateurs, comme comédiens, comme chanteurs, TH
 comme tribuns, comme chefs d'orchestre. ‘À
 Le prédicateur aussi règne, étant un orateur ; et il ya k À
 beaucoup plus du prédicateur dans les. autres espèces de
-“4
 
 à vingtième cahier de la quatrième série
 
@@ -803,7 +741,6 @@ l'Église introduit l'avocat du diable pour faire la contra- |
 diction, quelle que soit l'antiquité de cette habitude, si |
 traditionnelle qu'elle soit et quand même elle se rattacherait au drame et à la comédie religieuse du Moyens Age, et quand même elle rejoindrait une antiquité chré-
 
-REPRISE POLITIQUE PARLEMENTAIRE | Re
 tienne encore plus éloignée, au sens où l'Église pratique nt
 aujourd'hui cette coutume, afin de rajeunir et de popu- 2
 lariser l'éloquence de la chaire, pour stimuler latten- ; 1
@@ -837,8 +774,6 @@ adversaires n'ont plus à choisir, pour périr, qu'entre 1
 l'étouffement et lécrasement, létouffement du silence “0
 concerté, l'écrasement de l''anathème. L'orateur sacré “4
 
-" “SU
-
 vingtième cahier de la quatrième série 1
 du haut de la chaire exerce l'autorité de commande- ;
 ment la plus grande, car il parle au nom d'un Dieu toutpuissant, et sa propre autorité de commandement n'est
@@ -851,12 +786,10 @@ théologique et son autorité archiépiscopale. — C'est par
 | un jeu curieux des quatre coins que les laïques étatistes
 prétendus réformistes ou révolutionnaires, se haussant S
 à des autorités de commandement tous les jours plus
-tyranniques, se solennisent aux formes ecclésiastiques
 | de l'éloquence, fomentent la contamination, l'envahissement de toute éloquence laïque par l'éloquence de
 la chaire, et que l'Église au contraire, la grande maitresse d'antiquité, la grande maîtresse d'autorité de
 commandement, se disperse aux formes récentes et 3
 déjà vieillies, qu'en outre elle contrefait et feint, des |
-polémiques politiques parlementaires.
 À Toutes ces réunions controverses que l'on organise |
 j dans le cinquième arrondissement de Paris pour la jeu- |
 l nesse des Écoles et un peu ailleurs ne prouvent pas |
@@ -868,7 +801,6 @@ férenciers : or le talent du conférencier est tout à fait
 distinct du génie oratoire; ou bien chacun des deux ora20 È )
 
 Riu Vs SES PAIE PE D PAR ET Vs a a TAN A dE UTe EUX Pound tr 54 Ru
-REPRISE POLITIQUE PARLEMENTAIRE é
 teurs gouverne une partie, moralement cloisonnée, de ‘#2
 Vassistance; ou bien les assistants ne sont venus que 4
 pour la représentation; dans ces conférences-contro- 21
@@ -877,7 +809,6 @@ exceptions, l'assistance, quand elle échappe au gouver- 13
 nement oratoire unique, y échappe tantôt par un par- “3 |
 tage de gouvernement oratoire, tantôt par indifférence, FN ESS
 amusement et plaisir, et non pas par la véritable 10
-liberté. te 4
 Plus que tout autre grand orateur parlementaire, ‘4
 Jaurès devait incliner à spécifier en autorité de com- +2 |
 | mandement parlementaire son autorité de commande- 7
@@ -900,7 +831,6 @@ taire. Il y devient ainsi l'égal et quelquefois l'inférieur 5
 de gens qui, absolument parlant, sont loin de le valoir, 2
 comme l'honorable M. Briand ou son collègue l'hono- 0
 rable M. Ribot. Sentant naturellement son manque, 154
-3:
 
 me vingtième cahier de la quatrième série
 
@@ -964,10 +894,6 @@ F raison que c'est la seule qu'il ait, la seule dont il soit
 
 | parlementaires, il fait comme tout homme menacé, il
 
-'
-
-FA, ji ” Y'A \ AE FEES ae AE 270
-7e REPRISE POLITIQUE PARLEMENTAIRE à
 insiste dans le sens de sa force et dans le redoublement À s.
 de sa propre originalité. Il s'efforce, à la tribune parle
 mentaire, ainsi qu'il y réussissait à la tribune des M
@@ -999,11 +925,8 @@ une société restreinte. Toutes choses égales d'ailleurs, | ‘1
 dans une société nombreuse la hauteur et l'éloignement %
 du maître, la communauté, la dilution de la servitude 44
 en diminue l'intensité. Mais toutes choses égales d'ail- 4 %
-23 ê js
-ne }
 
 | vingtième cahier de la quatrième série |
-« *
 leurs, dans une société peu nombreuse la proximité du :
 maître, la restriction du champ de la servitude en :
 à accroît considérablement l'intensité. Ainsi les groupes
@@ -1021,7 +944,6 @@ cinquante hommes que d'en gouverner plus de cinq
 cents ; dans l'assemblée on se heurte à des égaux, ou
 à des équivalents, aux autres chefs, aux autres
 maîtres ; dans le groupe on ne se heurte qu'aux résistances et à l'envie des inférieurs; dans le groupe les
-autres chefs deviennent camarades, collègues, copains,
 complices, amis politiques ; on s'entend entre soi; dans
 d l'assemblée le grand nombre même des subordonnés
 À fait comme un grand flot, une grande vague d'indifté-
@@ -1029,13 +951,10 @@ d l'assemblée le grand nombre même des subordonnés
 peu nombreux, on est entre amis; et il est doux
 d'exercer une autorité de commandement sur de
 véritables amis quand ces véritables amis sont de
-véritables amis politiques.
 C'est une raison pour quoi le gouvernement parlementaire a si rapidement dégénéré en. gouvernement :
 des partis parlementaires et pourquoi le gouvernement
 des partis parlementaires s'est aussi rapidement cris24 VS
 
-L xs à + Fa EAN ME * 4
-s REPRISE POLITIQUE PARLEMENTAIRE À
 tallisé, aggloméré, en gouvernement des groupes et F 4
 des sous-groupes. Assez fortement installé pendant TR
 les anciennes législatures, le gouvernement des groupes ; Si
@@ -1069,8 +988,6 @@ groupe au contraire, le vice et le besoin d'asservisse- F À
 ment, concentré dans l'objet, culminant devant l'unité -: 108
 du maître, en reçoit toutes les sales satisfactions 2
 25 14
-re « ÿ
-:
 
 s vingtième cahier de la quatrième série 4
 , qu'il demande. Les groupes et les sous-groupes parle- |
@@ -1104,17 +1021,14 @@ députés, non contents de la formation générale en
 Chambre, à effectif de bataillon sur le pied de paix, se
 sont formés en compagnies, en sections, en escouades.
 
-REPRISE POLITIQUE PARLEMENTAIRE , Re
 Il n'y a pas seulement dans la société bourgeoise pré- ee.
 sente le militarisme dogmatique, le militarisme à objet NA 16
 militaire. Il y a aussi et surtout un militarisme inté- 548
 rieur, de mœurs, d'habitudes, de vice et de besoin. Ce 1
 n'est pas en vain que tant de civils parlent tant de 4
-discipline. 4
 
 Or Jaurès, qui n'était pas un homme de groupe dans j 2% |
 l'ancienne législature, quand le groupe socialiste était tee ‘14 À
-fortement, solidement, honnêtement, utilement constitué, ‘ 10
 quand il y avait un groupe socialiste et que ce groupe “hi |
 socialiste n'était presque pas un groupe parlementaire, :%4
 Jaurès est devenu un homme de groupe justement pen- D.
@@ -1142,7 +1056,6 @@ ces groupes; cela pour son action extérieure; et inté- 1%
 , vingtième cahier de la quatrième série
 rieurement il a donné tout son effort pour que les
 | députés dits socialistes se missent en un groupe parle-
-“ mentaire. , |
 Ce n'est pas seulement par les moyens du gouverne-
 î ment parlementaire, ce n'est pas seulement par les
 moyens du gouvernement de parti parlementaire, c'est
@@ -1152,7 +1065,6 @@ groupe parlementaire que Jaurès a voulu introduire son
 É le chef du groupe socialiste parlementaire, le chef
 incontesté, miné mais incontesté, jalousé, envié, mais
 incontesté ; délégué permanent de ce groupe auprès des
-autres groupes républicains ; représentant, porte-parole
 de ce groupe en ces comités officiels ou officieux d'entente et vraiment de gouvernement où s'exerce loin de
 ‘ toute publicité le gouvernement parlementaire du bloc,
 et ainsi tout le gouvernement parlementaire de toute la
@@ -1169,7 +1081,6 @@ Petite République, prononcé théoriquement et formellement contre la simple po
 la politique parlementaire de groupe, avec ce qu'elle à
 d'occulte et d'étroit, et, pour dire le mot, d'oligar-
 
-Ph REPRISE POLITIQUE PARLEMENTAIRE FU 4
 chique, en particulier pour la politique de groupe des NE 4
 quatre groupes républicains bloqués. Il ne pouvait pas, S d
 il ne voulut pas entamer une aussi grosse action poli- 1
@@ -1202,7 +1113,6 @@ sente, cette opinion dans le cahier entier que nous At,
 avons publié de lui, quatrième cahier de la troisième 11508
 série, Études Socialistes. I1 sait parfaitement de quoi PE
 les troupes radicales, et les chefs radicaux, sont 4
-29 I. $:
 
 | vingtième cahier _ de la quatrième série 4
 capables. Si la conversation avait été pour ainsi dire
@@ -1245,10 +1155,7 @@ politique et juridique de M. le général Andrénemeparaît “
 pas constante. Il est arrivé récemment au général André « un événement capital dans la vie d'un homme, unévénement dont les biographes et les historiens oublient sou- $
 vent l'importance : il a pris sa retraite. On n'est plusle M
 même homme après qu'avant cet événement. Les boutiquiers d'Orléans meurent six mois après qu'ils ont
-SA NS F
-Ls
 
-REPRISE POLITIQUE PARLEMENTAIRE UE
 cédé. C'est surtout un événement fondamental dans la À 42
 vié d'un militaire. Le général André a été admis dans la en,
 deuxième section, — réserve, — de l'état-major générai ) 5
@@ -1281,8 +1188,6 @@ ton de Montreuil-Vincennes, Seine. Cette circonscription vs
 est devenue vacante et à pourvoir depuis que le gou- Da.
 vernement de M. Combes a payé d'un riche consulat ‘a
 général en Amérique la démission du possesseur ; h
-31 ; De:
-x |
 
 + vingtième cahier de la quatrième série
 FN nationaliste, M. Pierre-Marie Richard. Notons que "3
@@ -1292,14 +1197,12 @@ M. Combes désobéit à ses propres circulaires. Il a À
 te même on vient de noter qu'il réserve beaucoup de ces
 faveurs à des nationalistes. Il est vrai que c'est pour
 les acheter. — Le général André candidat sera comme
-$ tousles candidats, quémandeur, prometteur, fluctueux. È
 Re: Sur la coïncidence de Jaurès et du général André, sur
 la reculade et le long silence de M. le ministre de la
 “a guerre, je rappelle que je n'ai pu saisir, dans le dix-
 | huitième cahier de la quatrième série, qu'un exemple, …
 ! parmi tant d'exemples, de la duplicité parlementaire,
 : et que j'ai tâché seulement que cet exemple fût culmi-
-; nant.]
 ; Rendons justice à Jaurès. Dans le soin qu'il eut de
 ; prévenir publiquement ses collègues les chefs de groupe, :
 il entrait beaucoup de loyauté, de constance, envers |
@@ -1315,8 +1218,6 @@ Li comme il avait dès longtemps commencé. IL évitait |
 ï Une fois qu'ils auraient laissé passer sans interrompre ;
 | et sans contredire, ils ne pourraient plus dire qu'il n'y 3
 avait jamais rien eu.
-+ 32
-W
 
 | REPRISE POLITIQUE PARLEMENTAIRE Re
 On sait ce qu'il advint de cette politique, et de cette ; 04
@@ -1344,7 +1245,6 @@ honnête, c'est qu'il prépare des machinations politiques '
 et parlementaires contre nous. Et, prenant leurs précau- 4
 tions, ils répondirent aux combinaisons, aux machina- ta 34
 tions qu'ils supposaient par des combinaisons, par des fe +
-machinations réelles. F4
 Jaurès avait voulu donner aux parlementaires politi- 4 2%
 ciens radicaux et radicaux-socialistes une impression Ki ?
 de sagesse et de fermeté politique ; il ne réussit qu'à
@@ -1352,7 +1252,6 @@ réveiller leur incurable couardise. Puisque Jaurès nous ; À
 prévient, se dirent les radicaux, les célèbres hommes ne
 de gouvernement, les hommes d'État, les hommes d'au- $ É
 33 1
-« !
 
 10e vingtième cahier de la quatrième série
 4% torité, les hommes laïques, puisqu'il fait appel à notre |
@@ -1419,7 +1318,6 @@ Dreyfus par les moyens politiques parlementaires ! Lt
 pouvait avoir, devait avoir, menace d'avoir les consé- | “ ;
 quences les plus graves pour l'affaire Dreyfus et pour le ï 4
 35 51
-. F4
 
 7 vingtième cahier de la quatrième série
 te dreyfusisme, sinon pour le parlementarisme et pour la
@@ -1454,17 +1352,11 @@ ki politiques des confidences oratoires; il adressait aux
 
 à sait aux radicaux et aux radicaux-socialistes des encou-
 
-ÿ ragements oratoires ;iladressait aux antisémitesetaux
-
 antidreyfusistes qualifiés des menaces oratoires ; il 4
 
 adressa quelque chose d'oratoire à tout le monde. Mais
 à nous il n'adressa rien. Aux dreyfusistes il n'adressa
-rien.
 
-36 ja
-
-'# _ REPRISE POLITIQUE PARLEMENTAIRE LETTRES
 C'est que toute conversation lui était plus agréable pe Fe:
 que la nôtre. Les résistances du grand publie, les” 1 AS
 machinations des politiques, les tergiversations des +0
@@ -1553,7 +1445,6 @@ F4 prouvé leur solidité, furent soigneusement laissés hors
 ‘ quelque conseil, maïs on négligea de leur faire savoir
 
 ( en temps voulu quels étaient les résultats des délibé-
-rations. Ë
 
 C'était une décision capitale, et de conséquence incal-
 
@@ -1561,10 +1452,8 @@ C'était une décision capitale, et de conséquence incal-
 parlementaires une affaire qui n'avait jamais ététraitée, M
 sommairement parlant, et en son chef, que par les
 
-BU
 |
 
-Le à dE ï 1 RU
 REPRISE POLITIQUE PARLEMENTAIRE ne
 noyens de la justice et de la révolution. Cette décision PA:
 apitale fut prise on ne sait par qui, on ne sait pour Ë
@@ -1617,8 +1506,6 @@ La négligés, et un peu méprisés, de leur chef. Jamais polias tiques parlemen
 | la décision capitale. Je suis assuré que M. Doumer |
 traite les colonialistes avec plus d'égards, avec plus de
 
-ménagements. |
-
 C'est le grand secret de la politique, de faire ou de.
 *s faire semblant de faire une action avec tout le monde,'
 ri éxcepté avec ceux qui sont naturellement, spontané-
@@ -1634,7 +1521,6 @@ de bruit, nous disaient-ils ; vous épouvantez les bonnes,
 reusement encore si vous n'existiez pas, l'affaire "4
 
 | (l Go h Ÿ 4
-CAES
 
 D bat eee RE M LRU Mir, je “Eux See \
 | REPRISE POLITIQUE PARLEMENTAIRE FR RES
@@ -1664,9 +1550,6 @@ de l'anticolonialisme avec l'ancienne infanterie de ma- 4
 rine, et préparer la révolution sociale avec les radicaux 4
 réactionnaires, c'est très compliqué, c'est très malin, ‘50
 c'est de la politique. Et c'est ainsi que l'on devient grand 4]
-homme. "5
-À
-Ron
 C'est la pente naturelle des politiques, et des politi- ‘3
 ques parlementaires, que de procéder par autorité de sa
 commandement. Quand un homme libre parle à des di:
@@ -1713,7 +1596,6 @@ inévitablement le besoin. L'autorité de commandement M
 corriger la déviation. L'autorité de commandement w
 | s'établit ainsi vraiment comme une monnaie fiduciaire. ï
 
-REPRISE POLITIQUE PARLEMENTAIRE res pt, 4
 Tout le monde en a, et en éprouve, le besoin. Elle AUS
 devient une institution de servitude mutuelle. Débar- F. LKR
 rassés de la servitude qu'ils subissent, les politiques #73
@@ -1747,10 +1629,7 @@ que nous allons sauver, ou simplement soigner les inté- £ #4
 rôts politiques de notre ministère. Car les habitués tra- | En
 duisent immédiatement; ils font immédiatement la #4
 réduction nécessaire; ce langage appris leur est devenu « i
-Bo :
-1%
 
-D RS
 ï vingtième cahier de la quatrième série è
 fi plus cher et plus familier que le langage maternel, que
 Se le patois du pays; d'abord ils entendent au sens vrai,
@@ -1783,7 +1662,6 @@ de Jaurès comme si c'était du français et non pas
 comme étant du parlementaire. Ils ne font jamais la g
 réduction, la traduction. De là vient la perpétuelle et M
 
-REPRISE POLITIQUE PARLEMENTAIRE RER
 inouïie confiance du peuple en ses mandataires. De là ne “4
 vient aussi le perpétuel et inouï abusement du peuple 74
 par ses mandataires politiques. {1 8RSS
@@ -1815,9 +1693,7 @@ les premiers prisonniers. Tout le monde en est prison- ME 4
 nier. Qui ne le parlerait pas, serait mal entendu, ou ne ee
 serait pas entendu du tout. Puisque dans ce langage x ÿ
 conventionnel par l'effet de cette surenchère et de cette ge
-À Rx
 | 45 HT, 2 1
-Re n
 
 à vingtième cahier de la quatrième série “4
 
@@ -1919,7 +1795,6 @@ inaperçu et doublé d'une sécurité fausse. 50
 _ La presse politique, si entrée de toutes parts dans la de
 47 1
 
-jones PR A Re R
 : Le vingtième cahier de la quatrième série
 fe ; politique parlementaire, a contribué pour beaucoup à À
 :d à l'établissement de cet universel faux entendu; elle en a l
@@ -1951,7 +1826,6 @@ on en vient à l'application des lois. Les meneurs par- M
 | parlementaire ; le peuple reçoit les coups en langage És
 français. Le peuple des grévistes se fait fusiller en ke
 
-PAR PE REPRISE POLITIQUE PARLEMENTAIRE tee 33
 français. Les parlementaires ont traité le recommence- 1 TN OS si
 ment de l'affaire Dreyfus en langage parlementaire; et UT 4
 le petit peuple des anciens dreyfusistes a persisté à 10
@@ -1988,9 +1862,6 @@ réduction, vaut contre le sens qui demande l'une et Ri'
 l'autre. Cette excuse est légitime, elle est valable, et Ne.
 pourtant. Il faut bien avouer que le peuple aime à \:
 
-HU
-L'UE k
-
 $ cingiième cahier - ° de la quatrième. série \\ \
 entendre en français exprès même les discours politi- 4
 ques parlementaires, parce que c'est beau, parce que 1
@@ -2024,13 +1895,11 @@ politique parlementaire, le mensonge fondamental de |
 la politique parlementaire ; c'est peut-être le phénomène le plus important de la politique parlementaire
 | dans l'histoire contemporaine; et il fait la plus impor50
 
-‘+ REPRISE POLITIQUE PARLEMENTAIRE 04
 tante explication que l'on puisse donner de la confiance 71
 entière continuée inlassablement par le peuple aux , 4
 politiques parlementaires. Cette confiance ne se meut 40
 pas dans le même ordre que les actes à qui elle est 454
 accordée. Elle est fondée sur un faux sens à qui rien En
-n'échappe. ‘2
 
 Les menus dreyfusistes sont beaucoup plus critiques, Hs, di
 beaucoup plus avisés, beaucoup plus avertis que le k he
@@ -2046,7 +1915,6 @@ qui lunissent à son état-major politique parlementaire. ; ‘a
 Il a peur, comme tout le menu peuple, de découvrir | 4
 cette vérité. Il découvrirait qu'en effet les chefs poli- F4
 tiques parlementaires prétendus dreyfusistes, que l'état- À 24
-major politique parlementaire soi-disant dreyfusiste “ci
 parle, comme tous les politiques parlementaires, le : 0
 langage politique parlementaire, et que lui, menu 4
 . peuple pourtant véritable dreyfusiste, et véritable #
@@ -2059,11 +1927,7 @@ pas les quelques-uns, anciens dreyfusistes comme lui 178
 et parmi lui, qui ne limitant pas la requête de justice gt
 et la recherche de vérité veulent que l'on sache avant 4
 
-ES
-
-F tr À
 $ vingtième cahier de la quatrième série
-“ { 24
 dl tout en quel idiome se tient la conversation recommencée
 | récemment. ; É
 ee ; La relation du langage politique parlementaire au
@@ -2106,7 +1970,6 @@ blique ont plus que les autres ministres du mal à se 4
 
 garder eux-mêmes, — ce M. Lebret avait dit à ses
 
-REPRISE POLITIQUE PARLEMENTAIRE À
 collègues : Regardez vers vos circonscriptions. L'émoi F0
 fut énorme. Que faisaient pourtant les honorables | Fi
 collègues, dès lors, que faisaient les députés, que font ts
@@ -2122,7 +1985,6 @@ Cette seule infraction rendit son nom célèbre, fit le he
 scandale, une impression si forte que le souvenir en a ï +4
 survécu à la plupart des souvenirs de l'affaire. ‘2
 
-Ve
 Cette outrance est aussi une outrance militaire; et (23
 nous rejoignons ici l'étroite parenté que nous avons ne.
 
@@ -2144,11 +2006,8 @@ menter la réalité; si les députés étaient parfaitement nm.
 honnêtes et courageux, si, parlementairement parlant, # VS
 
 53 11
-; L
-4 +
 
 | PNR vingtième cahier de la quatrième série
-J
 ils étaient parfaitement bons, leurs chefs n'auraient pas 3
 | besoin d'exercer une autorité de commandement et de
 = parler sur un ton de commandement; il n'y aurait
@@ -2179,9 +2038,7 @@ réels sont éloignés du bon soldat imaginaire. De là
 + coups de sabre en l'air, ces visages convulsés : en
 : avant ! en avant! chargez. La discipline parlementaire,
 exactement ainsi, fait la différence entre le bon député
-! 5 du
 
-REPRISE POLITIQUE PARLEMENTAIRE ADS
 imaginaire et les mauvais députés réels, pour autant, Le
 — et c'est pour beaucoup, — pour autant que les mau- 070
 vais députés réels sont éloignés du bon député imagi- ‘13
@@ -2213,13 +2070,8 @@ la panique], — ces appels répétés à la peur, —[les mili- 1:10
 taires font appel incessamment à la peur quand ils Lee
 disent: qu'en présence de l'ennemi, avec les armes (ai
 modernes, il est beaucoup plus dangereux de fuir que 4
-d'avancer]. M.
-29 #14
-À
-s.
 
 | vingtième cahier de la quatrième série :
-; 2
 Or il est notoire que Jaurès est non seulement un à
 + chef de groupe politique parlementaire, qu'il n'exerce à
 + pas seulement une autorité de commandement poli
@@ -2248,12 +2100,8 @@ collaboration d'hommes qui n'étaient à aucun degré M
 qui n'avaient à recevoir et qui ne supportaient aucune
 autorité de commandement l'avait un peu guéri de
 cette inclinaison. Anarchistes, socialistes libertaires,
-socialistes révolutionnaires, socialistes non révolution- 4
 naires, mais socialistes, — nuls radicaux-socialistes,
-K F
-+
 
-A DE VOOR 29 AU M RSA DNA ART RE
 ou REPRISE POLITIQUE PARLEMENTAIRE SEA.
 + nuls radicaux anticléricalistes, nuls radicaux de gou- (a N
 vernement, — bourgeois libéraux ou libertaires, ou- | d:
@@ -2288,11 +2136,7 @@ tique Jaurès ait fait l'amnistie surtout pour que le re- cs
 commencement de la vie politique devint possible. En ‘
 ce sens l'amnistie n'est pas seulement un acte politique ;8
 
-UE
-
-NS Ut 24 PR MORE
 ; vingtième cahier de la quatrième série Pa
-ie
 en elle-même, elle est la réintégration de la politique,
 | elle est le recommencement, la reprise de la politique ;
 me et plût aux dieux, comme dit la grammaire grecque, À
@@ -2324,9 +2168,7 @@ pouvaient demeurer dans la même cité. |
 * recouvra dans le commandement politique parlemen-
 Ë taire fut cette campagne singulière, vaine et forcenée,
 K qu'il tenta, qu'il poursuivit pour l'unité socialiste. Il ne |
-$ 58 F ,
 
-REPRISE POLITIQUE PARLEMENTAIRE Nu ; 0
 s'agit pas ici de critiquer cette campagne même. Nos à 4
 anciens abonnés se rappellent que nous en avons parlé CU
 autant que nous avons pu. Nous en reparlerons quel- $ Ne
@@ -2354,18 +2196,11 @@ jourd'hui, avant d'examiner le détail et l'événement, et Le
 parlant comme philosophes, ilest évident qu'en logique, #4
 en psychologie, en morale, en toute philosophie le x 2
 dreyfusisme et la politique sont et demeurent inconci- A
-liables. ‘4
-à
-L DA
 Cette campagne tentée par Jaurès et poursuivie pour ni
 l'unité socialiste fut une campagne politique parle- NE
 # +
-29 on.
-x
 
 ' vingtième cahier de la quatrième série
-
-4 e K
 
 : mentaire, une campagne militaire ; dans sa forme, que
 
@@ -2374,8 +2209,6 @@ x
 De le ton. Qu'on se reporte à nos anciens cahiers, ànos
 
 DC citations, à nos notes. Jaurès ne procédait que par
-
-\ ; encouragements, exhortations, assertions, assurances
 
 À risquées ou formellement trompeuses. Là où il fallait
 
@@ -2423,10 +2256,7 @@ D: faillite, vers quelle banqueroute politique parlemen-
 
 | la deuxième grande application de la politique nouvelle, un deuxième exercice de l'autorité que Jaurès à
 
-Go ;
-
 ee Nous oies
-REPRISE POLITIQUE PARLEMENTAIRE L'ÉTRSERE
 recouvrée dans le commandement politique parlemen- je
 taire. Pour nous qui avons assisté à la première cam- hé:
 pagne, tentée, poursuivie, abandonnée, pour l'unité Fes at
@@ -2459,8 +2289,6 @@ ou un discours par ces mots : Millerand a bien raison RL
 de. C'est avec beaucoup de bon sens que Rouanet…, # \
 tout fait prévoir que l'article ou que le discours est “AR
 tout fait des dissentiments les plus graves qui soient is
-
-iv rs:
 
 4 vingtième cahier de la quatrième série à
 7 A nés entre Jaurès et Millerand, Jaurès et Rouanet. Quand 34
@@ -2528,14 +2356,11 @@ n'ont rien appris, en qui les études n'ont pas pénétré, T#èl
 le grand tribun est revêtu de la vieille autorité romaine, ‘a
 de l'autorité des tribuns militaires, et de la toute par- a
 
-Lai
-
 4 vinglième cahier de la quatrième série -
 1 ticulière puissance tribunitienne. Je maiïntiens que dans
 RU » la confuse imagination du peuple, et inconsciemment
 a dans l'imagination populaire, parlementaire et poli-
 
-sa x 2 SOS
 Ms tique de plus d'un professeur agrégé d'histoire, quand
 À on dit un tribun, quand on répète un puissant tribun,
 NEA quand plus familièrement et plus communément on dit
@@ -2563,10 +2388,7 @@ j. d'oublier Danton; je ne l'oublie pas, mais peut-être
 Il est très difficile, et peut-être faux par définition, de
 vouloir éclairer un peu le sens d'un mot obscur et puissant. Mais il semble bien que dans la riche et mou-
 ; vante imagination populaire des uns et des autres le
-CERN
 
-RS A CINE MESA RE TAN AD A EEE A NE ne ROUE EE RU NULS x
-UE REPRISE POLITIQUE PARLEMENTAIRE « LÉ 4
 grand tribun ne soit pas seulement le grand orateur;
 c'est un cas particulier du grand orateur ; c'est plus et 2
 mieux que le simple grand orateur ; c'est dans l'imagi- F1 (0
@@ -2633,8 +2455,6 @@ F commandement politique parlementaire, l'autorité du 4
 s commandement militaire, où ces autorités se confon- ;
 dent sourdement, culminent et s'épanouissent. |
 
-REPRISE POLITIQUE PARLEMENTAIRE + AMEN 11
-
 Pendant la première et la grande partie de l'affaire, a 6
 Jaurès n'était pas un tribun parmi nous; il n'exerçait a
 pas l'autorité du commandement tribunitien ; il était un 1
@@ -2670,7 +2490,6 @@ aventure impossible ; car dans cet ordre si l'expérience LAN
 est indispensable pour choisir et pour déterminer la \ +0
 réalisation des possibles, au contraire avant toute 4
 
-D | A
 ï vingtième cahier de la quatrième série
 + expérience une telle contradiction acquiert l'impossiEE bilité. La possibilité n'acquiert pas l'existence, mais
 ï ni l'impossibilité acquiert l'inexistence future.
@@ -2688,8 +2507,6 @@ de qui ne marchaïent pas du tout, et menaces conditionne nelles aux radicaux-so
 radicaux qui marchaient contre, et menaces conditionde nelles aux radicaux ; entraînement contre les réactionA naires et menaces conditionnelles aux réactionnaires;
 4 tous entraînements qui étaient des entraînements de
 
-' * tribun.
-
 ; Ce ne furent que paroles d'attaque et d'assaut, en
 
 :10 avant, en avant, chargez! sans aucun renseignement, M
@@ -2704,7 +2521,6 @@ pe sement le plus important, sur les dispositions de l'ami.
 et beaucoup plus assuré de la victoire qu'il ne l'était,
 ce qui est l'enfance de l'art de la guerre, mais ce qui
 
-REPRISE POLITIQUE PARLEMENTAIRE FRERES * Ë
 est en vérité la mort de l'art de la justice et de la je . d
 science de la vérité, mais le lendemain du débat parle- ke s
 mentaire il écrivit dans son journal comme s'il était T3
@@ -2738,8 +2554,6 @@ quand il recommença, qui ont continué quand il arrèta “RS
 derechef, qui continuent et qui continueront, ont été #4
 beaucoup moins aidés de son petit recommencement à a
 
-+
-
 sh di vinglième cahier _ de la quatrième série
 : F5 qu'ils n'ont été gênés de sa grande et de sa petite
 . 3 Dre amnistie, et de son recommencement même. il
@@ -2770,10 +2584,7 @@ cite entière. Il a pu amnistier beaucoup de crimes et beau-
 4 droites et bonnes sa gloire et sa grandeur passée. d
 H Au lieu de justifier cette confiance, comme il devait, À
 ë comme on doit, et ne rien faire pour l'exciter, Jaurès 1
-2 AUX 4
-1 y à
 
-REPRISE POLITIQUE PARLEMENTAIRE \ OS 54
 fit tout pour l'exciter et malheureusement ne fit rien | at x
 pour la justifier. Mais il fit tout pour l'exciter. Tout le ME
 temps qu'il parla, entre la résolution brusque de recom- AN
@@ -2809,9 +2620,6 @@ orateur, se tournant enfin vers nous, nous adressa ces ver
 singuliers encouragements. Nous n'en avions pas besoin, ÿ si
 Jaurès. Nous n'avons pas besoin, pour être avec vous, 1 A
 
-£:
-
-“he à We SRE NA à
 a. vingtième cahier de la quatrième série
 4 $ de savoir qu'il n'y a aucun danger. Tournez-vous, de #3
 2 grâce, et parlez à vos amis. M:
@@ -2851,7 +2659,6 @@ plus fidèlement, le plus exactement l'ancien, le constant
 
 $ et le véritable personnel dreyfusiste. L'État-Major « Fa ‘ ï
 
-REPRISE POLITIQUE PARLEMENTAIRE
 reyfusiste, comme tous les États-Majors, nous a 4 SE
 aités durement ; maïs les petites gens, qui furent 4) à ï
 ime du dreyfusisme, et qui en ont seuls gardé la mé- # 4
@@ -2884,10 +2691,7 @@ nent continuée. Elle est à l'antériorité en un sens ou
 omme la durée serait à une création. L'autorité que Ne:
 antériorité ne confère pas, la constance ne la confère .° 74
 as, L'autorité que l'antériorité ne confère pas en une À je
-‘ \ * 6
 
-:5 40 LS PERS CROP ON ES
-at Û ; y +4 SR +
 es vingtième cahier de la quatrième série
 Re fois, la constance ne la confère pas continûment. Si
 PS nous prenions texte de ce que nous sommes et de ce
@@ -2917,7 +2721,6 @@ semble presque universel, d'exercer une autorité de
 commandement, il s'établit en eux comme un besoin
 mauvais d'équilibre, de rançon, de talion, d'équivaAN
 
-REPRISE POLITIQUE PARLEMENTAIRE si
 lence injuste; outre le zèle faux et l'outrance de l'in- Ë Li
 constant, les inconstants se rattrapent à chaque instant ci |
 de leur ancienne faiblesse et de leur faiblesse toujours ne
@@ -2949,8 +2752,6 @@ action morale. Nous n'avons pas eu un seul instant à x
 ous demander si nos cahiers contribueraient au recom- ë ñ
 nencement de l'affaire, pour cette bonneraison que nos E:
 cahiers, pour leur part de travail, pour leur part d'ac- 3
-75 "4
-D ;
 
 UN Us ee UPS TS NT RO EE
 F. vingtième cahier de la quatrième série
@@ -2988,9 +2789,7 @@ nuation, si les adversaires de l'amnistie contribueraient »
 
 ; à ce recommencement. Une telle question, de con-.
 à tribuer ou de ne contribuer pas, se posait pour les
-; rs
 
-pri ue REPRISE POLITIQUE PARLEMENTAIRE + pu ! nn
 autres auteurs de l'amnistie; elle ne pouvait pas 4 is
 se poser pour nous. Tout recommencement nous
 était bienvenu, nous revenait, parce que toutrecommen- si
@@ -2998,7 +2797,6 @@ cement entrait dans la continuation, dans notre conti- % ne 10
 nuation. Ce n'était pas la continuation qui avait à entrer î SUR
 ou à n'entrer pas dans le recommencement, mais le A NS
 recommencement qui avait à entrer dans la conti- ui ra NS
-nuation. 1501
 Lesintéressés en furent avertis aussitôt. Je les prévins TRS
 moi-même qu'après comme avant le recommencement. 1 ‘"s
 de l'affaire les cahiers continueraient d'être à l'entière + 5
@@ -3023,7 +2821,6 @@ du recommencement, mais si en fait les auteurs du RE n.
 .. effet se rendaient à nous, s'ils revenaient dans le vieil à! FAN ‘
 É atelier et si revenus ils nous y aidaient. Premièrement s 4
 la question n'allait pas de nous à eux; mais elle reve- j Lo.
-DAAEe 0 ; Eu.
 
 vingtième cahier de la quatrième série
 3 nait d'eux à nous ; et s'il y avait arbitrage nous étions
@@ -3062,9 +2859,7 @@ leurs ; ce qui était en cause était l'accueil que nous
 leur ferions, à eux personnellement, et la réponse qu'ils
 
 _donneraient à cet accueil.
-7 +
 
-REPRISE POLITIQUE PARLEMENTAIRE ‘0
 Quand il s'agissait d'eux, jusqu'au recommencement En
 les intentions étaient en cause, parce qu'on ne connais- ‘RE
 sait pas d'avance leurs intentions, puisqu'ils avaient Re
@@ -3086,9 +2881,7 @@ c'est ce que nous examinerons quand nous étudierons ;
 de l'intérieur le recommencement de laffaire. Ce que ‘ 54
 fut notre accueil, nous l'examinerons par suite en même 14
 temps. Et c'est ce que nous ferons dans un dernier 4
-cahier. |
 Dans ce dernier cahier nous plaçant au cœur du à
-recommencement nousexaminerons cerecommencement 4 1
 d'un regard intérieur, et comme historiens etcomme drey- - #4
 fusistes nous en esquisserons et nous en critiquerons ‘4
 l'histoire. Autant que nous le pourrons nous nous rap- A
@@ -3096,10 +2889,8 @@ pellerons le détail des faits, des événements et des 50
 situations historiques successives. Autant que nous le ‘3
 pourrons nous interpréterons ce détail du fait au regard N 3
 du droit, nous éclairerons l'obscurité de l'événement à "+
-29 a
 | 9
 
-SE Le AR RU
 | vingtième cahier de la quatrième série
 hi: la lumière, à la clarté du dreyfusisme. Autant que nous | |
 à le pourrons, pour employer l'expression la plus simple,
@@ -3128,12 +2919,8 @@ En . compromis ou perdu le recommencement que l'on avait
 de % voulu tenter de l'affaire Dreyfus par les moyens poliRe: tiques parlementaires. Aujourd'hui, et dans ce deuxième
 à k cahier, nous n'avons vu le dreyfusisme qu'autant
 A que le jeu politique et parlementaire lui-même, annon-
-\ 8 çant, entourant, embrassant, englobant, étreignant,
-‘ 20. HSE
 
-ie Re do Re due
 de mac 0
-NN aa AS A AR Te TOR
  étouffant ce recommencement de l'affaire, nous y met- ñ ft Wa
 tait en présence du faux ou du véritable dreyfusisme; 2
 _ nous n'étions pas du côté du dreyfusisme ; nous étions : il re Re.
@@ -3141,8 +2928,6 @@ pendant tout ce temps du côté politique parlementaire. 1 { Lo
 Ayant à étudier le recommencement de l'affaire parles AR
 moyens politiques parlementaires, nous avons com- $ F ‘F4
 mencé par étudier les moyens politiques parlemen- eut
-. Lea Lt à
-taires. HAL pract
 Cette méthode peut sembler inverse, mais cette inver- 1 12
 sion même était indispensable; j'ai annoncé depuis long- AE
 . Lemps que nous essaierions quelque jour de faire une
@@ -3158,22 +2943,14 @@ _ Peut-être les hommes de notre âge ne pourront-ils pro- | fa
 _ céder que par mémoires posthumes. A
 Je prévois que cette histoire du dreyfusisme en SE ji
 France ne comportera pas moins de quatre parties, qui +) 4
-‘seraient : ‘rt
-? 1110
-FRE
 a) — une histoire de la formation du dreyfusisme en ka Ne
-_ France: Ex 4 CN
 | b) — une histoire du fonctionnement, ou de l'exercice 1 ta
 du dreyfusisme en France ; > ‘2
  c)— une histoire de la décomposition du dreyfusisme 51°
-1 en France; AŸ 1 :
-RE ON | LL LX FREINS
 
-; 3 À
 “ vingtième cahier de la quatrième série
 d) — une histoire du renversement, ou de la contrefa5 çon du dreyfusisme en France.
 # Le récent recommencement serait évidemment dans la
-Br contrefaçon.
 FR : Or, dans la première partie, dans une histoire de la
 formation du dreyfusisme en France, il faudrait justement faire le contraire de ce que nous avons fait,
 | aujourd'hui et hier, dans ce fragment de la troisième
@@ -3188,7 +2965,6 @@ rieur à l'extérieur ; dans une histoire durecommencement
 ; trique dumouvement par qui s'était faitle commencement
 Et de l'affaire Dreyfus. Cette récente et presque posthume
 partie de l'affaire ne se meut pas dans l'histoire d'un
-mouvement symétrique au mouvement dont se meut
 3 pour et dans la grande histoire la grande et la première
 . , partie de cette grande affaire et de ce grand dreyfu-
 #4 sisme. Il ne faut pas que l'identité de la victime et que
@@ -3214,7 +2990,6 @@ plante non plus ne vit pas dans le miracle et dans le : 3
 vide ; la plante non plus n'est pas totalement et abso- 5
 lument indépendante et libre du milieu où elle vit, du Us
 sol et du climat. Elle en dépend même considérable- “A
-ment. 3h
 
 Mais si considérable que soit la dépendance de la La l
 plante, elle n'est pas entière; et aucune influence du 748
@@ -3234,9 +3009,6 @@ Dreyfus et que le dreyfusisme ne fonctionnèrent pas fs
 
 | 83 à:
 
-+
-
-RAR DUO TAMES BONE PR ee
 4 _ vingtième cahier _ de la quatrième série Fa
 ë À dans le miracle et dans le vide; elles trouvèrent, a
 LANET comme tout ce qui se produit à l'événement, comme À)
@@ -3271,8 +3043,6 @@ ts Dans le recommencement au contraire que l'on nous 4
 FR a fait récemment de l'affaire Dreyfus par les moyens M
 x politiques parlementaires, ce sont ces moyens politiques ;
 
-PR 0 nee es
-LS + : $ À HU YE TINES
 _ parlementaires qui ont commandé le recommencement;
 ce n'est pas l'affaire qui s'est recommencéè, qui s'est
 refaite elle-même par les moyens politiques parlementaires, ce sont les moyens politiques parlementaires qui NUS F
@@ -3292,7 +3062,6 @@ fait dernièrement, et qui promettait d'être un recom- “40
 _ tiques parlementaires n'a pas été au contraire une con- . De: |
 ünuation, un cas particulier de la politique parlemen- EU
 taire par les moyens, par l'exploitation de l'ancienne à : |
-affaire Dreyfus. ; 8 A,
 Pour le savoir nous nous mettrons à l'intérieur de ce DEONE
 recommencement, nous nous transporterons du côté du 4 ri
 dreyfusisme, et redescendant l'histoire de ce recommen- HR
@@ -3304,10 +3073,6 @@ aussi de suivre dans le détail et de redescendre l'évé- … "4 ta
 nement des faits. Si réelles que soient les institutions et 3
 _ les mœurs, les habitudes et les vices, les idées et les s
 _ intentions, les combinaisons mêmes et le langage et le no
-l a.
-RATE AAA
-
-à il : { ;
 
 : vingtième cahier de la quatrième série
 
@@ -3350,8 +3115,6 @@ La forme générale de cette méthode se ramasse en
 un cas individuel. Je sais parfaitement qu'ayant à étudier un recommencement de l'affaire Dreyfus nous |
 n'avons presque jamais parlé que de Jaurès; et que
 
-ON M RS RE LE RE ET NE SAT CAS
-REPRISE POLITIQUE PARLEMENTAIRE 3
 j'ai presque toujours prononcé le nom de Jaurès, et 4
 que je n'ai presque jamais prononcé le nom de Drey- 74
 fus. Mais c'est la réalité même qui nous y a contraints. à
@@ -3378,11 +3141,6 @@ entreprise en substitution de l'ancienne affaire Dreyfus, is
 en exploitation de l'ancienne affaire Dreyfus, par un 1
 Jaurès devenu proprement et uniquement parlementaire KW
 et politique. É =
-ñ 4
-CHARLES PÉGUY 84
-T3
-+
-172 : »
 
 Dossier de l'affaire Dreyfus depuis son recommencement. On sait que le comité catholique pour la défense
 du Droit prit parti dans la première affaire Dreyfus en
@@ -3396,12 +3154,8 @@ que nous préparons sur le recommencement de l'affaire.
 En attendant nous devons dès aujourd'hui, dans un
 dossier de l'affaire Dreyfus, publier l'importante communication que l'on va lire :
 
-4 :
-
 ANS NE (LE UA MEl ont PEN CRE VE.
-UT nn rire LM ENS
 ri Le Temps daté du lundi 20 avril publiait la commu SE
-nication suivante: se | tr)
 Le comité catholique pour la Défense du Droit qui fut
 fondé, au cours de l'affaire Dreyfus, par quelques catho bte
 liques partisans de la revision, et ayant à leur tête M. Paul TA à
@@ -3431,11 +3185,7 @@ et les infirmes. Tous les pères de famille ont le droit
 de confier leurs enfants aux maîtres de leur choix. à +45
 | En foulant aux pieds ces droits de l'homme, vous <5 Fe
 _ nous ramenez, monsieur le député, à Louis XIV etäla 2 ci
-NE 89 Re
-pl A
-LRU ME, | ARE PDA
 
-Fr affaire Dreyfus s
 k i révocation de l'édit de Nantes. Le roi enlevait aux
 à protestants leurs enfants et chassait les pasteurs. Vous
 : enlevez aux catholiques leurs enfants et vous chassez
@@ -3447,9 +3197,6 @@ méritent-elles le nom de lois ?
 L : Veuillez agréer, monsieur le député, l'assurance de
 k notre haute considération.
 Es Pour le comité :
-PauL BUREAU; LÉON CHAINE; J.-M. GROSJEAN ; ,
-ï CAMILLE PINTA, avocat; J. Quincamporx ;
-Épouarp VIOLLET, avocat; PAUL VIOLLET,
 te membre de l'Institut.
 > Sur la situation des catholiques envers l'affaire
 LL Dreyfus, l'annonce que l'on va lire devait passer dans le
@@ -3468,7 +3215,6 @@ livre honnête, et la deuxième édition va paraître bientôt.
 
 les catholiques français
 et leurs difficultés actuelles |
-sé |
 
 | Ce livre est évidemment un livre écrit par quelqu'un
 qui n'avait jamais écrit de livre ; mais les livres écrits par
@@ -3487,18 +3233,13 @@ attitude générale, et dans son livre, l'impression d'un
 fort honnête homme.
 
 A A A MER UE NAN TA € té lens l Ste
-LUE SR TEE LUS PR ur at as à RUE A EAN DURE st
-A Ru UP ee Lu oi
 Vient de paraître chez Storck, Paris, en vente à la des x
 librairie des cahiers. LP AICE CNET
 Léon CHAINE. — Les Catholiques français et leurs fe
 difficultés actuelles, un volume in-18 de 416 pages,
-trois francs cinquante RCA
-ns ' Avant-propos ARE;
 La Lettre d'un Catholique lyonnais à un Évêque (x) sur RS,
 Vattitude de la grande majorité de ses coreligionnaires ? DR |
 . dans l'affaire Dreyfus a été publiée par La Justice Sociale TE
-du 29 mars 1902. BAR
 _ Elle a été reproduite in extenso par Le Soir, le Signal, le “1
 National, le Petit National, l'Univers Israélite, le Haut- M:
 _ Rhin. Ce dernier, croyons-nous, est le seul journal dépar- PR |
@@ -3508,7 +3249,6 @@ vivement prise à partie par la Vérité Française, dans son FLE |
 . numéro du 9 avril et, de nouveau, dans celui du 19 avril. : STE
 _ La Revue Idéaliste, dans sa livraison du premier mai, a bien Et à
 voulu lui en emprunter un fragment pour l'insérer sous sa ne x
-rubrique « Opinions à recueillir ». :
 Le numéro de la Justice Sociale du 29 mars 1902 a été BE
 adressé à N.N. S.S. les Archevêques et Évêques de France # à è
 (à l'exception d'un, prélat auquel il nous a paru conve- OS
@@ -3516,16 +3256,9 @@ nable et discret de ne point le faire envoyer), à Messieurs } CO
 les Curés de Paris et de Lyon, à d'autres ecclésiastiques ES “4
 distingués, à de hautes personnalités du monde des Lettres, Tan Ÿ ;
 des Sciences, de la Politique, à quelques parents et amis. 23 RTE
-M Ce
 (1) Voir l'Appendice, À 5 ; À
-“ul 93 {2134
-: 1
-F3 r À FN PR
 AL CAR: à ca kr
-OR CPAS RE PA MERS
 
-6 Léon Chaine |
-a 7 : 4 |
 - Deux Évêques ont bien voulu nous envoyer à son sujet
 leurs félicitations les plus vives, un troisième Evêque ses
 k ES félicitations pures et simples. ,
@@ -3540,11 +3273,7 @@ t. @) Nous croyons devoir mettre sous les yeux du lecteur une partie
 fait l'honneur de nous écrire et à la publication de laquelle il a bien
 ! voulu ne pas s'opposer.
 26 ARCHEVÊCHÉ Bordeaux, le 7 juin 1902. >
-; DE
-BORDEAUX
-MOonsIEUR LÉON CHAINE, LYON
 7: « Tout ce qui s'est dit et écrit sur l'affaire Dreyfus, m'étonne et
-à m'attriste.
 « Dreyfus est-il innocent ?
 VEN « Il faut trouver le Tribunal authentique qui le proclame, et se
 Re réjouir de voir un criminel de moins dans ce monde. :
@@ -3555,27 +3284,20 @@ J dans toute l'indépendance et toute l'impartialité de la justice. .
 les évêques ? Est-ce que les questions de justice pendantes devant
 les tribunaux les regardent? Ont-ils reçu les témoignages ? Ont-ils
 Au? étudié les documents? Ont-ils les éléments indispensables pour
-+ juger ?
 “oh « Que serait le respect de la justice, s'il était permis de suspecter
 gratuitement ou la perspicacité ou la bonne foi des Tribunaux ? \
 « Veuillez recevoir, Monsieur, l'assurance de mes sentiments s
-à dévoués. » à
 4 « + CARDINAL LECOT, archevêque de Bordeaux. » ,
-d1
 + Mgr Lecot exprime ici l'opinion de la grande majorité du clergé
 ï français auquel, en effet on ne pouvait demander de faire une étude
 À spéciale de ce colossal procès dont il était impossible de prévoir
 # l'importance politique, sociale et religieuse que par la suite il pren-
-î drait. x
 l Par contre, si nos prêtres n'avaient ni le devoir strict ni la possi-
 
-NO AP ONE CURE EN BEC RETRAIT EE
-LES CATHOLIQUES FRANÇAIS 11
 Ces envois de cartes ne comportent évidemment pas une p 1
 adhésion formelle, pas même une adhésion tacite; mais, ‘14
 consentis par des membres du haut clergé, toujours si À
 résérvés et si prudents, ils n'en ont pas moins une indé- IS
-niable signification. 14
 L'an des évêques qui nous ont ainsi honoré de l'envoi de $ 20
 leur carte nous a, au surplus, écrit quelques jours plus 5 |
 tard pour préciser qu'il n'avait pas entendu par là nous L : 118
@@ -3587,13 +3309,11 @@ ténèbres accumuléés à plaisir, mais qu'ils aient, au contraire, en |
 accrédité cette opinion que l'on ne pouvait être bon catholique qu'à 18
 la condition d'être convaincu de la culpabilité de l'officier juif et Pt |
 surtout de l'impartialité bien connue de ses accusateurs si bien al |
-pensants. D |
 Un prélat, dont on comprendra que nous taisions le nom, a, de nn:
 la question qui nous préoccupe et de l'attitude prise dans l'affaire û 1
 _ par la majorité de nos coreligionnaires, une conception un peu dif- QUES |
 férente de celle de Mgr Lecot. Voici quelques lignes de la lettre 2
 qu'il nous a fait écrire par un haut dignitaire de son clergé diocé- 1
-sain : 7
 « Monsieur Léon CHAINE, Lyon . 34 l
 « Monseigneur me charge de vous dire qu'il a pris le plus vif E" (a
 intérêt à votre communication. Il est assurément regrettable que \ » 710 |
@@ -3614,16 +3334,9 @@ pas assez, mais le mieux est aujourd'hui d'y rester fidèle. vai
 « Il est plus aisé, après les événements, d'en distinguer le vrai 4
 sens et la portée que lorsque l'on y est mêlé à l'agitation et au 5 #3)
 trouble. Sa Grandeur s'abstiendra donc de tout acte qui serait de 7308
-SI
-95 f
-s.
-*
 
-APN NE CA REIN ST SPP RER QE RS RENTE MER TS TL ENSNE TIR Fr
-D NU DUO NN ere 54 TAN
 | LÉCRNDNN RAR LI St Léon Chame *} "11008 RAT
 : 5 SRE Parmi les membres de l'épiscopat français auxque sl
-PAU æ RCUr Li TH o2 2) er AE 2 L'ONU
 LE RE numéro de La Justice Sociale a été adressé il en est certaiARS nement beaucoup qui ne l'ont pas lu. Ce qui nous incite a a
 2 ÿ LU ie ÿ le croire c'est que plusieurs prélats que lon sait très libé- k
 14 RU jé raux ne figurent pas au nombre de ceux qui nous ont fait
@@ -3633,7 +3346,6 @@ A pa pies Cette manifestation qui, dans notre pensée, était destinée
 À SM : complète adhésion de religieux éminents, de prédicateurs : ï
 FFC célèbres, d'ecclésiastiques savants et du plus grand mérite.
 Mes " Des membres de l'Institut, des professeurs du Collège de
-PES ; nl . Ne s A
 L; SARUNES _ France, des maîtres de l'Université nous ont complimenté
 ARE par des missives vraiment bien cordiales.
 ! 15 LINE Notre lettre a rencontré encore le meilleur accueil auprès
@@ -3641,8 +3353,6 @@ ARE par des missives vraiment bien cordiales.
 4 ie 4 CL nature à réveiller les souvenirs de l'Affaire. Mais elle souhaïte vive- …
 k K À 2 don ment qu'une nouvelle expérience trouve FPopinion catholique plus
 ÿ « 170 préparée qu'elle ne l'a été, et elle approuvera vos efforts dans ce
-+ 0 OI sens. à
-SR « Personnellement, Monsieur, j'ai profondément regretté, à partir
 ns "1 A de l'heure où il n'a plus été possible de douter de certaines irrégu
 7 larités criminelles, que la conscience publique, en ses représentants
 13. DR AAER les plus autorisés, ne parlât pas plus haut. Il s'est constitué à Paris, 3
@@ -3650,12 +3360,10 @@ VER A sous l'impression du même sentiment, un Gomité Catholique pour la
 1 _ défense du droit, présidé par M. P. Viollet, membre de l'Institut,
 4 D: j 6, rue Cujas............ Je me permets de vous le faire connaître,
 1% si vous l'ignoriez, pour le cas où vous jugeriez bon d'unir vos
-H: À b 8
 x efforts à ceux de cette modeste association, en vue de cet avenir qui
 $ Ki: vous préoccupe à bon droit. ni)
 j 1 ! « Veuillez agréer, Monsieur, l'assurance de mes sentiments les
 RL plus dévoués en N. S. » f
-+ >. pr: ù
 u ‘Non C'est par cette lettre que nous a été révélée l'existence du Comité :
 D'udS u Cathoiïique pour la défense du droit, dont nous n'avions pas encore ,
 à à connaissance et qui, cependant, avait déjà fait entendre de si nobles,
@@ -3666,11 +3374,8 @@ AY re, lettres des évêques qui nous ont fait l'honneur de nous féliciter de 1
 pe notre attitude. Nous n'avons même pas songé un seul instant à
 Le leur demander l'autorisation de publier ces lettres dont le carac-
 É ; tère est purement confidentiel. Û Ne
-À: * 1215408
-AL 7 96 pd F: k
 
 0 DES LE ue neue Qt
-D) zx LEURS DIFFICULTÉS AGrUEuES
 très orthodoxes. Mais où elle a été Ine avec une particu- CR
 lière sympathie, c'est dans les milieux universitaires catho- FRA
 liques. aa LE
@@ -3684,7 +3389,6 @@ Son existence ne nous a été révélée que postérieurement AR “4
 au 29 mars de cette présente année. Aussi devons-nous MU:
 exprimer ici le profond regret de n'avoir pu, dans notre 5 ÉTA de
 lettre, lui rendre le témoignage d'admiration qui lui était ! 5
-dû. \ 5
 Le Comité catholique pour la Défense du Droit, composé xl #4
 exclusivement de catholiques, déclare « s'appuyer sur les Er "+ \
 principes de 1789 dont l'application loyale pourra, seule, 1 7 |
@@ -3702,7 +3406,6 @@ _ En dehors de ce Comité, bien des prêtres, tels que les LAS.
 abbés Pichot, Russacq, Brugerette et tant d'autres, furent 24
 héroïques et essayèrent inutilement de faire luire devant ra
 des yeux aveuglés la double lumière de la raison et des K
-principes évangéliques. F3
 C'est ainsi que l'abbé Frémont, théologien éminent et l'un KR
 des maîtres de la parole contemporaine, n'a pas craint, au EN
 cours de plusieurs sermons, de profiter de sa présencedans STRESS
@@ -3710,10 +3413,7 @@ la chaire de vérité pour faire comprendre, d'une façon "1408
 diserète mais très claire, quelle était, sur ce sujet, sa mâle 14
 et fière conviction. Nous nous souvenons d'avoir entendu | À 4
 tomber de ses lèvres hardies la plus éloquente des protes- 22
-4 vi |
 
-SN “
-ë Léon Chaine à
 < tations contre la violation criminelle des droits imprescriptibles d'un accusé.
 : Depuis que nous avons lu les diverses brochures éditées
 ! par le Comité catholique pour la Défense du Droit et
@@ -3723,7 +3423,6 @@ de M. l'abbé Pichot (1), et divers opuscules de M. Quincam-
 Î les partisans de la cause du prétendu traître n'aient pas eu
 l'excellente idée d'en inonder le pays catholique. Combien
 étaient dans notre cas et n'en avaient pas eu la moindre
-connaissance !
 à Ces brochures sont très bien faites; mais, le seraient44 elles beaucoup moins, qu'elles auraient tout de même
 exercé une bien plus forte influence sur la plupart des
 catholiques que les démonstrations cependant si pressantes,
@@ -3733,7 +3432,6 @@ On dit que les coreligionnaires de Dreyfus ont dépensé
 beaucoup d'or pour la défense de sa cause. N'auraient-ils
 t pas dû en employer un peu à propager ces excellents plaidoyers, faits par des catholiques et par des prêtres, en
 faveur de l'officier juif condamné dans des conditions si
-odieuses ?
 Le grand public n'a pas connu ces avocats catholiques
 de la cause de Dreyfus, parce que les journaux des deux
 À partis en présence leur refusaient obstinément et presque
@@ -3750,7 +3448,6 @@ de professeur de mathématiques qu'il occupait dans un des grands
 de Monaco, par le Prince, ami de la France, qui s'honora en prenant si noblement parti pour la cause de la Justice.
 | OURS
 
-LES CATHOLIQUES FRANÇAIS 4
 vus de sens critique et qui ont par trop la foi aveugle du i
 charbonnier, le dreyfusisme est devenu comme le huitième "4
 des péchés capitaux quand il n'a pas été érigé à la hauteur ü
@@ -3786,13 +3483,10 @@ lui ni à son défenseur. Me
 Si certains militaires avaient agi avec cette élémentaire Ÿ
 franchise que leur demandaient des civils, que de calamités, : 18
 que de hontes auraient été évitées à notre malheureux
-pays! <:
 Ne pouvoir être condamné qu'après avoir été mis à même A
 
 | > SRE
-\
 
-we Léon Chaine | TRS
 * 4 de se défendre, avait toujours été considéré comme de droit
 Ma naturel. Cela est si vraiqu'en relisant, ces jours-ci, l'acte Il
 = de Médée, nous avons constaté que Corneille lui-même
@@ -3813,7 +3507,6 @@ oe intérêt très actuel et des plus pressants.
 ‘ ti préjugés ridicules ou dégradants, des superstitions, des
 £ ; pusillanimités qui végètent en parasites et en ennemis à
 K l'ombre de l'idée religieuse, et à la disparition, à l'arrachement desquels la vérité catholique est au plus haut point
-(Hart intéressée.
 Fa C'est pourquoi nous nous sommes modestement permis
 Fe de porter la main sur ces mauvaises herbes.
 à L'affaire Dreyfus a révélé en effet chez un trop grand
@@ -3827,18 +3520,10 @@ NC soumis aux directions de la sainte Église et soucieux de
 ; indépendance de son jugement et sa fière bonne foi, en
 faveur de ce qu'il estime être la Vérité.
 Et qu'il lui soit permis par là de libérer sa pensée et son
-1 âme.
-100 ‘
-svt ' &
 
-Lt Et : "
-3 ë LL t »
-+ ET LEURS DIFFICULTÉS ACTUELLES
-Table à
 Du Militarisme : ;
 Le Nationalisme ; .
 La Ligue des Femmes françaises : a: ;
-Antisémitisme : ct
 Les Catholiques et le libre Examen politique: à
 Les catholiques et le bon vieux temps: fa
 Les Catholiques et la Liberté; À
@@ -3853,8 +3538,6 @@ La loi du premier juillet 1901 et les Dreyfusards; }
 Autour des décrets Combes; Ë
 Du clergé séculier et des congrégations; ;
 De la genèse de notre lettre et de ce livre. j
-VI.
-De
 
 Dossier de l'affaire Dreyfus depuis son recommencement. Sans attendre ce recommencement nous avons
 annoncé en leur temps les volumes successifs de l'histoire de l'affaire Dreyfus, publiée aux éditions de la
@@ -3863,15 +3546,11 @@ d'annonces, nous avons annoncé l'apparition du premier
 volume, le Procès de 1894; dans le cinquième cahier de
 
 : la quatrième série, Émile Zola, nous avons annoncé l'apparition du deuxième volume, Esterhazy. 4
-:
 
-1 ñ ? ÿ ja fl: ‘ EE Es mr VIA t Al nt EAN Fo cu A
-:. Ge ET PS Re RONA OR NE RTS
 | TRS te RO NT RO RE None Le
 te PRES ES PS ARE Rte PR AN UE | tai dE TEE À ORRERS
 Vient de paraître chez Fasquelle, en vente àl
 librairie des cahiers: TRES
-\ Pen k j à h LT T ANSS COEUR
  Josspu REINACH. — Histoire de l'Affaire Dreyfis SE
 _ IT. — la Crise. — Procès Esterhazy. — Procès nn Fabre
 Zola, un gros volume in octavo carré de 664 pages, VE sn
@@ -3887,25 +3566,14 @@ le procès de Zola; f A RES
 e procès de Zola; LR
 le jury; | MN
 _ mort de Lemercier-Picard ; 2 LÉ
-: LME? . . PR ITA
 les idées contre-révolutionnaires ; 1 TRES
 _ la chute de Méline; è c MER
-: à . . ALAIN
 _  Appendice. — Procès-verbal d'autopsie de Lemercier- AR A
-: 2 TARN
-À Picard ; SE A
 Le télégramme du 2 novembre 1894; Pr FA
 Les lettres du colonel Combe; 4 Ie NES
 | Les photographies de Carlsruhe. CRUE
-Ro PAPE LAIT
-er: ; ‘ D,
-f ‘Ten w $ n ie x = EVA?
 Lt ECS { LE Rey PUR EM RANNATEES
 
-i ASPIRE IPS APR ERUE à
-
-nl Core si PARENT PAT ER Fa DAME EE: PRES
-RDA AN Le EN L'ALCR LE CSST TERRE AE RAR PRES 1 it
 no Frein nn A 1 Le APT ININNRENNEe
 71e que Dossier de l'affaire Dre, vfus depuis son recommence- fe
 ment. Le colonel Picquart a publié dans la Ga zette de ct
@@ -3916,7 +3584,6 @@ moins important pour une histoire du dreyfusisme, que
 nous ne confondons pas avec l'histoire del'affaire DreyFC _ fus. Ace double titre il doit entrer dans le dossier que #K
 1 RES nous formons. Les journaux français qui se disent %
 DrUR tir dreyfusistes n'ont donné de cet article que des citations è
-insuffisantes. Ju
 > TR RONA RE LP
 #4 NES Gazette de Lausanne et Journal suisse, fondée en |
 AS | 1798, numéro du mardi 2 juin. a
@@ -3931,15 +3598,6 @@ Sas hé | Gazette Le laisse absolument libre des sujets à traiter. f
 ÿ a Ily a jusqu'ici parlé de questions militaires, histo- A
 |  riques, et autres. ; 50
 
-à AA V4 ‘
-ART 1 Apr
-
-ANR Net
-Hu , ‘ ce RE
-ie À 8 TLOSSS
-
-mn NOR E um :
- L'AFFAIRE HENRY-REINACH LH
 | Lausanne, le 2 juin - À non
 La première chambre de la cour d'appel de Paris ; MES
 vient de confirmer, par un arrêt fortement motivé, Ls +4
@@ -3963,8 +3621,6 @@ donnait à son accusation un caractère formel. ‘ Fa
 k. Il s'agit seulement de savoir qui sont les traîtres; or : D:
 jusqu'à présent il n'y en a que deux qui soient avérés: où
 
-lieutenant-colonel Picquart te
-
 Esterhazy et Henry. Je crois pouvoir dire de mon hypothèse
 qu'Henry fut le complice d'Esterhazy, qu'elle devient,
 
@@ -3975,7 +3631,6 @@ qu'elle est devenue une vérité.
 à dant cette année (1) que les deux traîtres et Schwarzkoppen
 firent leur plus belle récolte, Schwarzkoppen de rensei-
 .. gnements, Henry et Esterhazy d'écus, près de cent mille
-° francs.
 
 è Les assertions de M. Joseph Reinach eurent d'abord
 un grand succès dans le camp dreyfusard. Les esprits _
@@ -3992,15 +3647,10 @@ avec lequel leurs adversaires aidèrent madame veuve
 ie cour d'assises, et par l'ardeur avec laquelle ces poursuites ont été continuées jusqu'au bout, pendant si
 ù longtemps, malgré tant d'obstacles.
 Ce n'est pas Esterhazy qui, même après son acquittement par le conseil de guerre, aurait osé poursuivre
-Mathieu Dreyfus en dénonciation calomnieuse parce
 que celui-ci l'avait accusé publiquement, dans une
 lettre adressée au ministre de la guerre, d'être « lau-
-(1) 1895.
-106 1à |
 
-L'AFFAIRE HENRY-REINACH 54
 teur de la trahison » pour laquelle Alfred Dreyfus avait +
-été condamné ! ;
 Je n'ai point assisté à la genèse du système de i 3
 M. Reinach. Enfermé à la prison du Cherche-Midi et Re.
 mis au secret le 23 septembre 1898, j'ignorai totalement he
@@ -4019,23 +3669,16 @@ qu'avec plus de soin et d'attention les raisons fournies ‘4
 par M. Joseph Reinach à l'appui de ses dires. Je n'en ai
 jamais trouvé une seule qui fût de nature, je ne dis pas
 à entraîner ma conviction, mais même à donner quelque
-vraisemblance au système. 4 ;
 Cela ne tient pas debout, me disait encore dernièrement
 un haut fonctionnaire, fort au courant des détails les '
 plus secrets de l'Affaire. Cette expression est un peu n
 brutale. Je crains qu'elle ne soit tout à fait convenable, 7
 en l'occurrence. Br.
-+ Le
 Devant la justice, M. Reinach n'a pas articulé moins pe
 de dix-huit faits au sujet desquels il demandait une à
 - enquête et qui tendaient, disait-il, à prouver la vérité x
 de ses aflirmations. Fe
-107 *
-s
-Le
 
-‘à (A mn * HEAR se 1° DAS EEE
-dl lieutenant-colonel Picquart
 La cour d'appel a jugé que ces faits n'étaïent ni per-
 ; tinents ni admissibles et elle a, par conséquent, rejeté
 à l'enquête, de même que le tribunal avait écarté les faits
@@ -4058,7 +3701,6 @@ ki ait remis bénévolement à ses chefs une pièce qui pouF vait le perdre.
 : M. Reinach a senti de tout temps la valeur de l'ob-
 | jection. Au début, il nia que le bordereau eût été livré
 à à Henry. Voici ce qu'il écrivit à ce sujet dans le Siècle
-f du 26 novembre 1898 : *
 (4 Je sais aujourd'hui que le bordereau n'a pas été reçu en
 + 1894 par Henry, qui n'était ni chef ni sous-chef du bureau
 7 des renseignements. Le bordereau a été reçu par Sandherr
@@ -4067,8 +3709,6 @@ quand il était reconstitué. Il ne pouvait plus le détruire. Si
 ; l'écriture d'Esterhazy est reconnue, tout est perdu. Il faut w
 done qu'un autre soit sacrifié. Dreyfus est dénoncéet Henry, w
 devant le conseil de guerre, est le principal auteur de la
-condamnation.
-108% vi
 
 L'AFFAIRE HENRY-REINACH + : “a. px.
 Voilà donc toute l'affaire Dreyfus expliquée en deux L ‘18 k
@@ -4080,8 +3720,6 @@ qui a reçu le bordereau des mains d'un agent, hors la ce Ÿ
 présence de tout témoin, et qui l'a remis le lendemain ‘3 ‘)
 à son chef, après l'avoir montré, spontanément, à quel- a ê 4
 ques officiers du bureau des renseignements. à ‘4
-L'URSS
-« + ( de
 M. Reinach, alors, a changé de thèse. * ‘4
 * Il a soutenu que le bordereau n'avait pas été livré à de:
 Henry par l'agent ordinaire, qui était illettré (ou à peu À : |
@@ -4092,7 +3730,6 @@ bordereau serait arrivé par l'intermédiaire d'un autre is
 agent, intelligent celui-là, qui se rendait compte de la di ‘
 valeur des pièces, et qui eût dénoncé Henry si celui-ci de.
 avait négligé de transmettre à ses chefs le précieux :: à
-papier. : 2000
 Il faudrait évidemment prouver, tout d'abord, que la ÿ Ù "4 \
 . remise du bordereau s'est faite comme le certifie main- ne
 tenant M. Reïinach. Il existe, il est vrai, contre cette 0
@@ -4101,10 +3738,7 @@ foi du serment, devant la justice. Ne.
 On pourrait néanmoins l'admettre, car elle n'a rien Le
 _ d'impossible, ni d'improbable en soi. Il serait néceë- À ge
 | saire, toutefois, d'avoir, à l'appui, autre chose que ce 2
-al
-;: 109 + + À
 
-ï lieutenant-colonel Picquart
 qu'on a eu jusqu'ici, c'est-à-dire autre chose que des
 propos en l'air qui sont attribués à l'agent « intelligent »,
 . personnage sujet à caution s'il en fût, et qu'il n'aurait
@@ -4116,7 +3750,6 @@ f pour peu que l'on connaisse la manière dont les choses
 fi se passaient au bureau des renseignements et que l'on
 è veuille considérer à quel point la situation de ces
 ramasseurs de papiers était infime à côté de celle d'un -
-officier.
 Henry, dont l'imagination était fertile, — il l'a montré quand il s'est agi de faire des faux, — avait toutes
 à les facilités possibles pour faire disparaître la pièce ou
 pour y substituer un autre papier. Et d'ailleurs M. Rei-
@@ -4133,13 +3766,10 @@ K situation particulièrement délicate qui lui permettait,
 moins que jamais, d'élever la voix ou de soulever un
 conflit. Enfin, Henry avait la protection assurée du
 tout-puissant général Saussier qui n'aimait pas Sandherr, alors chef du service des renseignements, et qui
-AT)
 
 Hd L'AFFAIRE HENRY-REINACH Age HAS
 ne négligeait aucune occasion de le dire. La situation ; 8
 d'Hepry lui permettait de faire ce qu'il eût voulu. 4
-* + et:
-D'ailleurs, quel mobile eût poussé Henry à trahir? Rue 4
 Investi de la confiance de chefs tels que le général de 1
 Miribel, à la personne duquel il avait été attaché, connu d T4
 du général Saussier qu'il voyait quelquefois et qui lui 13
@@ -4166,11 +3796,8 @@ qu'il était sans éducation. Ki : à
 Son attitude au procès Dreyfus en 1894 lui valut la | vs
 croix d'officier de la Légion d'honneur. Après son faux de :
 le plus connu, il fut inscrit au tableau d'avancement Re 73
-(4 ; A
 
 > RER CARLA RAT ON NT EPA |
-“4 4 F
-$  lieutenant-colonel Picquart
 NE * dans les conditions les plus brillantes, passant par110 dessus la tête d'une quantité d'officiers instruits et
 ù méritants, et il fut investi en même temps de la direc49 tion de ce bureau de renseignements dont il était inca-
 ÿ pable de contrôler les travaux les plus importants,
@@ -4181,9 +3808,6 @@ FA On conçoit quel trouble dut se produire dans sa mal2 heureuse cervelle quand
 de maladroitement en flagrant délit de faux par le ministre
 Se Cavaignac, il sentit s'écarter brusquement de lui les
 À mains puissantes qui l'avaient porté et maintenu si
-1 baut!
-“+
-à
 “ On peut expliquer parfois la trahison par des besoins
 : L d'argent. C'est le cas d'Esterhazy.
 € Quant à Henry, son existence était fort modeste.
@@ -4202,8 +3826,6 @@ de cent mille francs, de compte à demi avec Esterhazy!
 J'ai fréquemment demandé dans les milieux dreyfu112 $
 
 D er on NOR CE Cas AVR.
-SR M AT
-re : « + L'AFFAIRÉ HENRY-REINACH ‘|
 à sards,nonsansironie, je l'avoue, sil'onavaitenfin trouvé oi
 à quoi Henry employait le prix de sa trahison. On m'a re
 toujours répondu qu'il y avait eu d'excellentes pistes,
@@ -4212,20 +3834,17 @@ sans doute par l'effet de quelque manigance. ES
 On m'avait dit exactement la même chose à l'état- ra D: K
 major en 1894 et plus tard, lorsque je m'informais de ce SET
 qu''étaient devenues les sommes énormes qu'avait dû 0 VE
-toucher Dreyfus. RATE 4
 Il y a quelque chose, cependant, qui est de nature à “A2EU
 nous éclairer sur la persistance avec laquelle certains ES.
 esprits s'obstinent à vouloir que nous acceptions comme | 408
 bonnes les raisons parfois changeantes et contradic- : 'T0
 __ toires qu'ils nous donnent pour prouver la trahison | 4 s
-d'Henry. PA +.
 Quand une affaire a acquis une notoriété semblable :4
 à celle qu'a prise l'affaire Dreyfus, bien des langues se KES
 délient, bien des gens viennent raconter ce qu'ils savent ‘50
 ou ce qu'ils ont l'air de savoir. Quelquefois ce sont les ;
 confidences d'un personnage important que l'on vous 15
 chuchote à l'oreille et il y aurait mauvaise grâce,alors, à 4
-à rester sceptique. 54
 Or tout le monde sait qu'une confidence de ce genre De
 a permis d'apprendre, que quand Esterhazy est allé
 vendre ses services à Schwarzkoppen, il lui a nommé À
@@ -4233,9 +3852,7 @@ un informateur, et que cet informateur était Henry. IL + 15
 est d'ailleurs probable qu'Esterhazy ait tenu le propos. À à
 C'est bien un tour de sa façon. Cela expliquerait pour- 145 2
 | _ quoi on disait, en 1894, dans certains milieux, que quel- ASS ; à k ;
-ge 113 QE.
 
-ë lieutenant-colonel Picquart
 . qu'un trahissait au deuxième bureau, et pourquoi le
 x nom d'Henry a été plusieurs fois mis en avant par des
 Fa agents ayant leurs attaches en Allemagne. Ravary, le
@@ -4257,17 +3874,11 @@ al Quant à Henry, s'il avait voulu faire des affaires
 Dire aucun, Car il avait à sa disposition le reliquat d'une
 à admirable collection de documents faux, fabriqués du
 Ë temps du général de Miribel pour tromper l'espionFi nage étranger ; s'en servir élait chose relativement
-s facile.
-%k
 ( Le procès Henry-Reinach a pesé lourdement sur toute
 la dernière partie de l'Affaire. C'était comme un boulet
-114 L
 
-Mb à
-L'AFFAIRE HENRY-REINACH “ Be.
 que le parti dreyfusard trainait après lui, et dont la 2
 gêne fut particulièrement sensible à l'occasion de 2
-l'amnistie. :10
 
 M. Waldeck-Rousseau affectait de traiter cette amnis- Î 24
 tie comme une mesure ayant pour effet de renvoyer 4
@@ -4301,10 +3912,6 @@ paru. Chaque volume est fort de 600 à 700 pages, et Hi
 cependant le troisième nous mène seulement jusqu'à la  ; He à
 fin de juin 1898. C'est dire combien le récit est détaillé. &s
 
-Ë
-119 was n* 4
-
-‘à lieutenant-colonel Picquart
 us Point d'incident qui ne soit l'objet d'une documentation
 4 CN toujours abondante, le plus souvent exacte.
 REA | Il est malheureusement impossible, quand on lit ce
@@ -4313,7 +3920,6 @@ Ka cette affirmation : « Henry était un traître », et de ne
 à LA point constater la somme d'efforts dépensés par l'auFe teur pour-nous faire partager son opinion à ce sujet. Il
 est impossible aussi de se dissimuler que, quand il
 ; aborde ce point délicat, qui paraît lui tenir réellement à
-" cœur, M. Joseph Reïinach s'écarte trop fréquemment
 W de la rigueur qu'on est en droit d'exiger d'un historien
 EE quand il choisit les éléments destinés à servir de base
 À à son argumentation.
@@ -4332,49 +3938,25 @@ i dépens de ce mort.
 F, risque de la voir apparaître. C'est le souci d'aider à
 1100 rétablir la stricte vérité, qui na imposé le devoir
 1 d'écrire ces lignes.
-; GEORGES PICQUART
 
-ñ lieutenant - colonel en réforme
-
-159 °°
-
-NN PR PR RTE CRE UMR 5 - F0
 Cette lettre porte non seulement contre l'hypothèse 4
 de M. Joseph Reinach, mais contre plusieurs hypo- KA |
 thèses de Jaurès, puisque Jaurès, avec son éloquence Fi
-habituelle, a adopté, soutenu, développé, proclamé D :
 l'hypothèse de M. Reinach. Cherchant dans la Petite 40%
 République, numéro daté du mardi 9 juin, des rensei- ; 5 |
 gnements sur la fin du recommencement de l'affaire, je nn
 n'y ai trouvé que cette annonce : nu |
 
-Comité Républicain Socialiste 1
-k L
-DE CLIGNANCOURT En À
 Samedi 13 juin, à 8 heures 1/2 du soir F0
-THÉATRE TRIANON De :
 80, BOULEVARD ROCHECHOUART, 80 ne:
-z. , NUE |
-GRANDE CONFERENCE be.
 Par le citoyen JEAN JAURÈS ‘8
 Député de Carmaux Fe 1
-SOUS LA PRÉSIDENCE DU CITOYEN 4 |
-GUSTAVE ROUANE'LI a
 Député de Paris ÿ
-Sujet : f
 Où en est l'Affaire Dreyfus ? 14
-PRIX DES PLACES : =
-AVERCRCÈNES |. 250%, 114,7, 0 G\franes ‘00
-LE ROTATION ER URRRE | » 1
-Va NEO MES ARE 6 0 ORNE RE 7 » 1
-Fauteuils (d'orchestre, 0, : .... 2! » 10
-Fauteuils/de balcon 2}: ! , :. . . 1 » 1 nt
 Galerie Ra EU 2. 1 ne ES 14
 On trouve des billets à l'avance.: à La Petite République ; LA
 au café de la Mairie, 115, rue Ordener; à l'Université Popu- D
 laire, 3 et 5, rue Jules-Jouy, de 9 heures à 10 heures du soir. Li
-II D
-1 + 4
 
 3 vingtième cahier de la quatrième série
 “ral Les anciens et les véritables dreyfusistes liront cette
@@ -4395,7 +3977,6 @@ Fe trale, j'entends ces mots, représentation théâtrale,
 comme on voit, au sens premier. Ce n'est point par
 f hasard que l'affaire Dreyfus, commencée hors des poli-
 ' ticiens dans des meetings révolutionnaires, a été recomVe mencée par les politiques parlementaires dans des
-théâtres bourgeois.
 : La Petite République du matin même, datée du
 4 dimanche 14, ajoutait aux renseignements déjà donnés
 4 ces détails attendrissants :
@@ -4407,19 +3988,10 @@ On peut se procurer des billets à l'avance :
 | qui lui avaient été confiés, tient aujourd'hui à la disposi-
 | tion de ses amis quelques places de loges, une vingtaine de
 fauteuils, une avant-scène et un certain nombre de places
-à 50 centimes.
-118 fe
 
-DATE SET à. RENE TE RDA SRE EH EP OR TR
-LE REPRISE POLITIQUE PARLEMENTAIRE 1 3 ‘2
 Moyens de communication: à : Fe +0
 Métropolitain : station d'Anvers; tramways : Étoile et Lx te
-Trocadéro-Villette ; Porte-Clignancourt-Bastille; omnibus : :S
-Montmartre-Porte-Rapp; Montmartre-Place - Saint-Michel, X 555
-Place-Pigalle-Halle-aux-Vins; Montmartre-Saint-Germain- + T1
-des-Prés. : : 4 : 4
 Les citoyens Battesti, Bellat, Bilanges, Boileau, Lauffen- ‘4 |
-berger, Leroux, Mauclair, Mayeur, Rannou, Sutra, Tour- + 1}
 nier, Welch, ainsi que tous les membres du bureau k :45$
 du Comité, sont très instamment priés de se trouver au 4
 théâtre Trianon au plus tard à 7 heures 1/2. ne.
@@ -4432,7 +4004,6 @@ chef repris sa reprise et en a saisi un simple comité $ 4
 Clignancourt, et si cette manifestation faisait une 4 1
 reprise de la reprise, ou au contraire, un bel enterre- y + :
 ment, c'est ce que nous examinerons dans ce dernier pe |
-cahier. M
 Les journaux du dimanche nous ont apporté le compte x:
 rendu de cette représentation. L'assistance était nom- € à 54
 breuse et enthousiaste. On a refusé du monde. Je prou- ‘4
@@ -4441,13 +4012,9 @@ Jaurès déplace aujourd'hui dans ses représentations 10
 oratoires n'a presque plus d'éléments communs avec 13
 l'ancien public d'ouvriers, d'hommes d'action qu'il ‘4
 déplaçait il y a cinq ou six ans pour l'action dreyfusiste A
-révolutionnaire. 11
 Il y avait un mot des comptes rendus que nous de- #
 vons conserver. Je ne sais plus si c'est dans /a Petite 7:
 République ou dans un journal ami de Jaurès que le + _
-è II Æ
-7 is +2
-au - 1
 
 HN vingtième cahier de la quatrième série
 du ‘journaliste, ayant à faire son compte rendu, a com-
@@ -4457,7 +4024,6 @@ ne sont féroces pour lui les journalistes amis.
 é Jaurès a déclaré qu'il avait toute confiance dans
 M. le général André. Il a de la santé. Il s'en remet aussi
 à au gouvernement, à M. Combes, et le laisse maître de
-“ l'heure.
 ie Il faut que l'on sache que Jaurès parle pour soi-même
 : et pour son recommencement de l'affaire ; il n'a nullement qualité pour parler pour toute l'affaire Dreyfus, -
 k pour tout le dreyfusisme, pour tout le personnel drey-
@@ -4473,13 +4039,11 @@ si dangereux de s'embarquer sur les prétendus aveux ou
 : révélations d'anciens espions allemands qui se disent
 À convertis au culte de la vérité. Les Esterhazys allemands
 Ï ne sont pas moins méprisables que les Esterhazys
-à français. Soyons internationalistes.
 Le Gérant : CArLes PÉauy
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 IMPRIMERIE DE SURESNES (E. re administrateur), 9, rue du Pont. — 7658
 
 D ep ve ET AN PET Ts LS
-EMPRUNT DES CAHIERS N
 Dans le seizième cahier de la troisième série j'ai 4
 lemandé à nos abonnés de vouloir bien souscrire deux 1
 “ents actions de cent francs à un emprunt que je nom- 4 |
@@ -4492,7 +4056,6 @@ vartiel de cette opération vient tout entier de ce que ; h. 4
 ious avons refusé formellement d'emboîter le pas à la 74
 lémagogie combiste. Une fois de plus notre liberté, À
 iotre justice, notre sincérité, notre vérité, notre santé %
-ous aura coûté cher. , |
 Je ne veux pas faire aujourd'hui l'histoire de cette 4 |
 quatrième série, et j'espère que nous ne la ferons Û
 jamais. Je voudrais ne pas faire aussi l'histoire de cet #4
@@ -4529,4 +4092,3 @@ donc eu pendant toute la quatrième série absence de
 rer, puisque nous avons résolu de n'entrer pas aujourd'hui dans l'histoire de nos cahiers, je répète que nous
 ne pouvons absolument compter que sur nous-mêmes.
 ; Le gérant
-Charles Péguy

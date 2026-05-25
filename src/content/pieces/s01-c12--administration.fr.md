@@ -7,15 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 757
 ---
-
-*Charles Péguy*
-
 Nous publions sur * ceaverdure tous les renseignements que l'on peut n us demänder sur le détail de
 l'administration.
 
 Ces cahiers sont édités ‘ar des souscriptions mensuelles régulières et par d: souscriptions extraordinaires ; la souscriplion ne co! ère aucune autorité sur
 la rédaction ni sur l'admin. ‘ration : ces fonctions
-demeurent libres.
 Nous servons : 218
 des abonnements de souscriptior: à cent franess L+
 des abonnements orainaires à vin, t francs; Hu te
@@ -41,9 +37,6 @@ Nos abonnés peuvent nous aider
 en souscrivant des souscriptions mensuelles régulières
 et des souscriptions extraordinaires
 en abonnant leurs amis et toutes personnes à qui ces « cahiers conviendraient :
-?2 | VERS tds
-
-DEUXIÈME SÉRIE ‘U PROVINCIAL é
 
 Si je voulais comme ‘mn le fait communément/lancer
 la deuxième série de cés cahiers, je commencerais par
@@ -55,7 +48,6 @@ récemment tenu à Paris, puisque je suis le seul éditeur,
 - officiel ou nor, qui ait en mains et puisse et veuille
 donner cette sténographie. Mais pas plus que l'année -
 dernière nois ne parlerons cette année un langage
-nouveau.
 
 La seuxième série de ces cahiers comportera vingt
 cahiers sans doute, espacés à peu près de quinzaine en
@@ -106,7 +98,5 @@ renseignements que nous pensons que l'historien doit
 avoir de l'action socialiste incluse entre les deux pren i'Hr
 miers congrès nationaux. Nous ferons en particulier
 tout ce que nous pourrons pour publier en ce
-
-NN STE PCT RENTE EN A M nn
 
 ---

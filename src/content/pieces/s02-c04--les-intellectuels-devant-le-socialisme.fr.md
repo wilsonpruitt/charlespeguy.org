@@ -7,21 +7,10 @@ author: hubert-lagardelle
 isAvertissement: false
 wordCount: 11577
 ---
-
-*Hubert Lagardelle*
-
-CAUSERIE
 faite au GROUPE DES ÉTUDIANTS COLLECTIVISTES DE PARIS
-LE 14 DÉCEMBRE 1900
-È CAHIERS DE LA QUINZAINE
-PARIS
 rue de la Sorbonne, au second
 
-GROUPE DES ETUDIANTS COLLECTIVISTES DE PARIS
-Fondé en 1893
 Siège social : 23, rue de Pontoise (près le Square Monge)
-AUX ETUDIANTS
-Camarades,
 Le socialisme est devenu dans l'évolution du monde moderne un
 facteur d'une importance trop considérable pour qu'aucun de vous
 veuille, systématiquement ou par négligence, continuer d'en ignorer
@@ -34,12 +23,10 @@ Conception scientifique, il doit salisfaire tous les esprits anxieux ?
 de vérité, puisqu'il donne la clé du devenir moderne et qu'il consti-
 tue, à l'heure actuelle, étant la conclusion naturelle de l'évolution
 industrielle et démocratique de ce siècle, la vérité historique et la
-vérilé économique :
 Parti de classe, enfin, il doit grouper tous les exploités de la
 société présente, aussi bien les intellectuels que les manuels, puisque
 le capitalisme a dégradé jusqu'à l'état de marchandise l'intelligence
 des uns, comme la force de travail des autres.
-Camarades,
 Pour ces trois raisons, vous devez connaître le socialisme et vous
 devez venir à nous. Vous trouverez dans le Groupe des Etudiants
 Collectivistes de Paris un milieu sérieux et libre d'études, de propagande et d'action, grâce auquel vous pourrez sortir de votre solitude
@@ -68,16 +55,9 @@ l'Unité.
 Paris, le 15 novembre 1900
 Le Groupe des Étudiants Collectivistes
 
-QUATÉIÈME UE DE LA DEUXIÈME SÉRIE
-HUBERT LAGARDELLE
 devant le socialisme
-CAUSERIE
 faite au GROUPE DES ÉTUDIANTS COLLECTIVINTES DE PARIS
 
-Hall
-
-CAHIERS DE LA QUINZAINE rÇ
-PARIS
 rue de la Sorbonne, au second
 
 Nous prions ceux de nos abonnés qui nous envoient
@@ -95,12 +75,10 @@ installées 16, rue de la Sorbonne, au second.
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration tous les jours de la
 semaine, le dimanche excepté, — le matin de dix
-onze heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction
 le jeudi soir de deux heures à sept heures et de
-huit heures à dix heures.
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 16, rue de la Sorbonne, Paris, la correspondance d'administration : abonnements et réabonnements,
 
@@ -125,12 +103,10 @@ Nos collections de la première série sont à peu près
 épuisées. Il ne nous en reste guère que cinq ou six
 exemplaires complets. Nous les vendons au prix d'un
 abonnement. Nous ne les vendons qu'à nos nouveaux
-abonnés.
 
 Nous avons donné le bon à tirer après correction de ce
 quatrième cahier le vendredi 18 janvier 1901.
 
-Camarades,
 La question du rôle des intellectuels dans le
 socialisme n'est qu'une partie du problème g'éné-
 ral de la situation de la classe intellectuelle dans la
@@ -148,9 +124,7 @@ Je n'ai pas besoin d'attirer spécialement votre
 attention sur ce dernier point. Vous savez que la
 Nous avons laissé à nos explications la forme de la
 causerie, sous laquelle nous les avons d'abord présen-
-} tées.
 
-Hubert Lagardelle
 crise profonde qui a bouleversé les relations de notre vie nationale a fait affluer vers le socialisme,
 pour des raisons que nous tâcherons de déterminer
 tout à l'heure, un nombre croissant d'intellectuels.
@@ -174,7 +148,6 @@ la question des appointements attribués aux & travailleurs intellectuels » qui
 tels que directeurs de journaux et de revues, jour--
 nalistes, députés, employés de toute sorte, a préoccupé beaucoup nos camarades allemands. Si le problème aujourd'hui se pose avec tant d'acuité chez
 
-LES INTELLECTUELS DEVANT LE SOCIALISME
 nous, et sous une forme générale qu'il n'a revêtue
 ainsi nulle part ailleurs, c'est précisément parce qu'il
 tient à ce problème encore plus vaste, auquel j'ai
@@ -197,7 +170,6 @@ le contact des intellectuels.
 Vous voyez donc, camarades, sous quelle forme
 en un sens nouvelle parce qu'elle est totale se pose
 
-Hubert Lagardelle
 à nous la question du rôle des intellectuels dans le
 socialisme. Vous vous rendez compte aussi que
 nos recherches, par leur nouveauté même, courent
@@ -210,14 +182,12 @@ générale de la question. Je veux dire que nous Ÿ
 essaierons de déterminer ce qu'il convient d'entendre par socialisme et par intellectuels, de suivre sé-
 parément l'évolution de ces deux facteurs sociaux,
 et de rechercher les causes et les résultats de leur
-rencontre.
 Il est nécessaire de rappeler brièvement les caractères spécifiques du mouvement socialiste, pour
 pouvoir déterminer ensuite les points de contact
 du socialisme et des intellectuels.
 
 On peut dire qu'à l'observer historiquement, le
 socialisme apparaît comme un mouvement à deux
-degrés : mouvement ouvrier, au premier degré
 mouvement humain, au second degré. Que faut-il
 entendre par là ?
 
@@ -234,8 +204,6 @@ en opposition trréductible d'intérêts avec la société
 capitaliste. Toutes les autres classes souffrantes peuvent — plus ou moins effectivement — entrer en
 composition avec l'ordre social actuel : il est orga-
 
-Hubert Lagardelle
-
 niquement impossible que la classe ouvrière y ait
 une situation stable et une place commode. Le prolé-
 tariat, considéré comme classe, est constitutivement
@@ -251,7 +219,6 @@ régime donné qui puissent le remplacer par un ré-
 
 gime supérieur. C'est pourquoi, dans la société pré-
 sente, le prolétariat seul est à l'état permanent de
-grâce révolutionnaire.
 
 Il est aussi la seule force organique capable d'élaborer l'ordre nouveau. Si la classe ouvrière, la classe
 des producteurs, poursuit en définitive l'appropriation commune des instruments de production, fin
@@ -284,7 +251,6 @@ ce fait est souvent méconnu. On considère parfois
 le socialisme comme le produit de conceptions philosophiques ou idéologiques, — ou encore comme
 le développement progressif des institutions étaliques. C'est une double erreur. Insistons d'autant
 
-Hubert Lagardelle
 plus sur ce fait qu'il est travesti : que le socialisme
 ruine les systèmes d'idées et d'institutions existants,
 parce qu'il est essentiellement constitué par un en-
@@ -333,7 +299,6 @@ ont quelque souci de comprendre leur temps, tous
 ceux qui veulent vraiment faire leur tâche d'homme
 et collaborer au mouvement des faits viennent au
 socialisme, et le socialisme les arrache au monde
-capitaliste.
 
 Qu'entend-on par intellectuels ? C'est une expression vague, dont il est difficile de préciser le contenu, parce qu'elle s'applique à des catégories
 disparates d'individus, qui ne comportent pas une
@@ -342,7 +307,6 @@ cette expression tous les gens qui ont une culture
 quelque peu développée, qui ont, si vous voulez,
 reçu un enseignement secondaire ou supérieur, et
 avant tout ceux qui exercent les professions libé-
-rales : avocats, juges, médecins, ingénieurs, professeurs, instituteurs, fonctionnaires, journalistes,
 écrivains, etc. — On y fait entrer ensuite les
 ouvriers d'art, les employés de bureau, etc., —en un j
 mot tous ceux dont l'activité pratique. est d'ordre
@@ -363,7 +327,6 @@ a donc une valeur sociale qui s'impose à nous. Et
 tout à l'heure nous la retrouverons, comme l'a
 judicieusement fait observer Sorel, dans son Avenir
 Socialiste des syndicats, à la base de la hiérarchie
-contemporaine.
 
 Vous pouvez donc apercevoir dès à présent que la
 caractéristique dominante des intellectuels, c'est
@@ -380,7 +343,6 @@ dans ces subdivisions que par une sorte de lien corporatif. Et même dans chacun
 les intérêts professionnels des individus sont loin
 d'être semblables. La situation d'un pauvre journa-
 
-Hubert Lagardelle
 liste à 150 ou 200 franes par mois n'a rien de commun
 avec la situation d'un rédacteur en chef à 1000 ou
 francs d'appointements mensuels. Vous pouvez i
@@ -417,7 +379,6 @@ instabilité. C'est une classe flottante. Elle oscille
 entre les autres classes, elle est en perpétuel tourbillonnement, et en cela elle a bien tous les caractères des classes moyennes. Ses membres sont
 rejetés tantôt vers le prolétariat, tantôt vers la
 bourgeoisie. Leur situation est particulièrement
-mobile.
 
 Comment cette classe des intellectuels s'est-elle
 développée ? Quel a été son rôle historique ? Quelle
@@ -429,8 +390,6 @@ par l'idéologie dans l'histoire. Je ne veux pas
 recommencer devant vous un débat qui pourrait durer longtemps. Engels, dans ses fameuses
 lettres sur le matérialisme historique, y a suffisamment insisté pour que tous ceux qui se réclament
 aujourd'hui plus ou moins du marxisme le reconnaissent pleinement avec lui. Les systèmes idéolo-
-
-Hubert Lagardelle
 
 giques, en tant qu'ils traduisent des réalités
 économiques et sociales, sont un moteur puissant
@@ -482,11 +441,9 @@ ingénieurs, chimistes, agronomes, etc., sont créées
 de l'évolution industrielle. L'État se développe,
 l'administration publique et privée s'accroît, l'en-
 
-Hubert Lagardelle
 seignement s'organise, le journalisme s'étend
 autant de causes d'une évocation prodigieuse de
 forces intellectuelles, qui se traduit bientôt par une
-véritable surproduction.
 Cette surproduction de capacités amène une
 baisse des salaires : traitements ou appointements. Le nombre des inoccupés, des déclassés,
 des ratés, des meurt-de-faim augmente sans cesse,
@@ -512,7 +469,6 @@ inférieures des intellectuels descendent à une position voisine de celle des p
 niveau de misère. Ce n'est plus seulement lorsqu'ils
 ne travaillent pas que ces intellectuels sont des
 prolétaires, c'est aussi — de plus en plus — lorsqu'ils
-travaillent.
 
 Mais d'où sort cette classe nouvelle, que les exigences économiques, politiques, administratives
 de la vie sociale augmentent sans cesse ? Tout en
@@ -531,7 +487,6 @@ joindre à celle que nous avons déjà indiquée, vous
 voyez avec quelle rapidité se développe la classe
 des intellectuels.
 
-j Hubert Lagardelle
 Si nous essayons donc de situer la classe intellectuelle dans le système de la production capitaliste,
 nous nous rendons compte qu'elle n'est pas liée
 directement à la division de la société en classes, .
@@ -565,7 +520,6 @@ mains. Ils ont gouverné pour le compte d'autres
 classes, mais ils ont gouverné. La puissance publique appartient en somme aux professionnels de
 la politique. Ce sont de redoutables parasites, qui
 mettent la nation en coupes réglées. L'exemple est
-engageant !
 
 Mais laissons provisoirement ces considérations
 psychologiques. Nous avons essayé de déterminer les
@@ -580,7 +534,6 @@ socialisme. Le double caractère de notre mouve-
 ment, son caractère prolétarien et son caractère
 la fois idéaliste et scientifique étaient les deux
 issues naturelles par lesquelles ils devaient forcé-
-ment passer.
 
 Une partie du prolétariat intellectuel est venue au
 mouvement socialiste parce que prolétariat. Il est
@@ -618,12 +571,9 @@ vastes espoirs de domination qu'avait fait naître en
 eux l'éducation privilégiée, l'instruction bourgeoise,
 l''émulation concurrentielle. Tels que le monde capitaliste les a vomis, tels aussi le mouvement socialiste les reçoit. Ils ne sont que des déchets.
 
-Hubert Lagardelle
 Si la conscience de classe ou l'intérêt personnel
 poussent dans le socialisme la partie des intellectuels qui tend à se prolétariser de plus en plus,
-d'autres motifs d'action déterminent à venir au
 mouvement de transformation sociale d'autres
-catégories d'intellectuels.
 
 Le sentimentalisme, la pitié pour les exploités, la
 charité, la sympathie, l'idéalisme, le sentiment ou
@@ -635,11 +585,9 @@ veulent, sans avoir bien compris la portée réelle
 de notre mouvement, lui donner la force de leur
 adhésion. Dans les rangs de la bourgeoisie officielle
 croissent en nombre chaque jour ces sympathiques
-au socialisme.
 
 Le sport, la mode ont aussi amené des recrues au
 mouvement socialiste. C'est un mouvement nouveau, curieux, qui entraîne tout le monde : on y
-court!
 
 Les cerveaux malades, les inventeurs méconnus,
 les découvreurs de plans de société, les pharmaciens
@@ -671,7 +619,6 @@ avec lui, des scories et des rebuts.
 Mais à côté de ces éléments troubles ouincertains,
 la classe lettrée a fourni et fournit au socialisme
 
-Hubert Lagardelle
 ses forces intellectuelles les plus pures. La science
 et le prolétariat se pénètrent. L'un et l'autre, par
 des voies différentes, aboutissent aux mêmes conelusions. Dans le Manifeste des Communistes, Marx
@@ -695,7 +642,6 @@ services. La conquête de ces intellectuels d'élite est
 en quelque sorte le rachat du danger de l'arrivisme.
 
 Il va sans dire que ces divers mobiles et ces
-diverses raisons d'adhérer au socialisme se mélent
 dans la réalité. Un prolétaire intellectuel peut avoir
 été déterminé par des motifs scientifiques, et il est
 possible que l'intérêt personnel ou le sentimentalisme ou la mode ou la conscience de l'évolution
@@ -738,7 +684,6 @@ pour reconstruire le monde. Leur point de vue est
 supra-social. Ils se représentent la société comme
 un objet extérieur, qu'il est possible de modifier
 selon un plan préalable ou d'approprier à une fin
-préconçue.
 
 Ges socialistes venus de la classe lettrée agissent
 sous des impulsions diverses. Les Saint-Simoniens,
@@ -753,7 +698,6 @@ désespérés par les inégalités sociales, vouent une
 haine à mort au régime bourgeois : ils annoncentles
 blanquistes. D'autres encore, plus doux et plus sen-
 
-Hubert Lagardelle
 timentaux, rappellent nos Fabiens actuels. Il y en a
 aussi qui, fatigués de toute autorité, se révoltent, et
 constituent les précurseurs de l'anarchie. Mais tous
@@ -802,7 +746,6 @@ intellectuels, pour toutes ces médiocrités bavardes
 et bruyantes, aptes à jeter de la poudre aux yeux
 des masses, capables de manier tant bien que mal
 
-Hubert Lagardelle
 un langage abstrait éblouissant, et prêts à parler de
 tout sans rien savoir. La pénétration des socialistes
 dans le Parlement, la conquête des municipalités,
@@ -826,7 +769,6 @@ desquelles se trouvent des chefs puissants. Ces
 chefs ont besoin d'une clientèle, et ce sont natu34
 
 rellement ces intellectuels déclassés qui la leur
-fournissent.
 
 Il faut dire que d'habitude les chefs valent singulièrement mieux que les parasites qui leur font cortège. Leurs hautes qualités personnelles, le rayonnement de leur action, la puissance de leur parole,
 leur dévouement au socialisme, les élèvent d'ordinaire au-dessus des courtisans qui se servent d'eux
@@ -847,11 +789,8 @@ développement autonome de la classe prolétarienne.
 Ils rêvent d'établir le socialisme par une dictature
 plus ou moins impersonnelle, qui imposerait par la
 force la conception particulière qu'ils se font du
-socialisme. f
 
 Vous vous rendez facilement compte du résultat.
-
-Hubert Lagardelle M sé
 
 Le mouvement socialiste tend à se couper en deux
 catégories d'éléments contradictoires, et à reproduire la subdivision même des classes de la société
@@ -900,8 +839,6 @@ politique en particulier. C'est l'origine du manuel-
 
 lisme et du syndicalisme antiparlementaire.
 
-Hubert Lagardelle
-
 Le manuellisme est l'exagération d'un sentiment
 de légitime défiance à l'égard d'arrivistes sans scrupules ou de chefs autoritaires. Sa forme brutale
 exclusion des intellectuels de toute représentation
@@ -928,7 +865,6 @@ mais elle est fondée.
 De toutes les observations qui précèdent, remarquez bien que je ne tire pas de condamnation
 l'égard des intellectuels. Je ne conteste pas qu'ils
 ne soient dans cette seconde période utiles en
-quelque manière au mouvement. J'indique seule-
 
 ment leur psychologie et leur rôle dans cette phase.
 
@@ -953,7 +889,6 @@ recevant son impulsion que d'elle-même.
 Un phénomène nouveau s'est produit : le prolé-
 tariat organisé a tiré de son propre milieu les capacités qui s'y sont lentement créées. Par une sorte de
 
-Hubert Lagardelle
 sélection, les ouvriers les plus capables, les plus
 conscients ont acquis une importance et une autorité décisives. Ils contrebalancent l'influence des
 intellectuels et la modèrent. Ces représentants naturels de la classe ouvrière forment une catégorie
@@ -1004,7 +939,6 @@ le groupement socialiste est ou doit être le plus
 parfait des groupements démocratiques. C'est la
 masse qui a ou doit avoir le premier et le dernier
 
-Hubert Lagardelle jy.
 mot. Dans cet organisme, le contrôle des représentants ou délégués est rigoureux. Les intellectuels
 sont ainsi sous la dépendance stricte du mouvement
 ouvrier, qu'ils ne peuvent corrompre. Journalistes,
@@ -1022,7 +956,6 @@ pas concevoir autrement le rôle des intellectuels
 dans le mouvement: il constate qu'ils sont au service
 du parti, et il trouve parfaitement inutile de se
 poser la question que nous voulons résoudre ce
-HHPISOIT.
 C'est ainsi qu'apparaît dans tout parti organisé
 le rôle des intellectuels dans le parti socialiste.
 Autant la classe ouvrière doit rester elle-même
@@ -1048,7 +981,6 @@ classe. Bien au contraire : comme le parti croît et
 se développe, il a besoin d'un personnel politique,
 journalistique, etc..…., toujours plus nombreux, et
 c'est dans les rangs des intellectuels qu'il peut le
-rencontrer.
 Ces intellectuels ainsi employés par le parti.
 
 comment le parti les traite-til, matériellement?
@@ -1056,7 +988,6 @@ comment le parti les traite-til, matériellement?
 Cela a son importance! Nous sommes dans une
 organisation démocratique, ouvrière, où les divi-
 
-Hubert Lagardelle
 sions de la hiérarchie bourgeoise, fondées sur
 la fausse supériorité des intellectuels, ne doivent
 pas se retrouver. La loi générale qui tend
@@ -1090,7 +1021,6 @@ théorie est forcée de revêtir une valeur objective.
 Elle traduit le sentiment des masses, elle « est la
 résultante du mouvement, elle se dégage des divers
 courants de la classe ouvrière mis en présence et
-combinés ensemble.
 
 Aussi le rôle du théoricien change-t-il singulièrement. Il ne s'agit plus d'imposer au prolétariat un
 plan d'action conçu en dehors de lui, mais de l'aider
@@ -1104,7 +1034,6 @@ les lignes directrices de l'action socialiste. Le prolétariat fournit les élé
 façon? L'agitateur socialiste renseigne la classe
 ouvrière sur son propre pouvoir, sur les conditions
 de la lutte ; il fait le départ de ce qui est accessoire
-Hubert Lagardelle in
 et de ce qui est essentiel, élimine le particulier et
 retient le général. En un mot, il cherche la formule
 la plus compréhensive des revendications qui
@@ -1113,7 +1042,6 @@ déterminées l'évolution économique, et il rejette
 
 toutes celles qui ne sont pas dans le sens du mouvement historique et du but socialiste. Il fournit
 au prolétariat sa propre doctrine. Il fait œuvre de
-légiste.
 
 . Je ne voudrais pas vous lasser de citations. Mais
 laïssez-moi vous rappeler que c'est ainsi que Marx
@@ -1154,12 +1082,10 @@ hypnotisé par le cataclysme final. Tant que les intellectuels sont les directeu
 nous sommes en plein dans l'utopie. Nous allons au
 contraire vers la science, c'est-à-dire vers la con-
 
-Hubert Lagardelle ue
 science des nécessités de l'action pratique, à mesure que l'influence des intellectuels de la classe
 bourgeoise devient moins personnelle et que le
 
 développement des institutions économiques de la
-classe ouvrière donne naissance aux intellectuels
 du prolétariat.
 Nous avons examiné l'aspect général de notre
 question. Mais c'est en France que le problème a
@@ -1182,8 +1108,6 @@ un organisme collectif, ne peut dégager sa pensée
 commune. Le personnalisme domine tout. Le mouvement socialiste, sous l'influence d'individualités
 en lutte, s'attarde dans un émiettement stérile.
 
-Hubert Lagardelle
-
 Le fameux prolétariat intellectuel trouve dans ce
 désordre un élément de vie. Il profite, d'abord, de
 
@@ -1197,7 +1121,6 @@ parasites, à dissimuler les agissements de cette
 clientèle, par crainte de se déconsidérer ellesmêmes dans des divulgations compromettantes. La
 division socialiste est une prime à l'envahissement
 du parti par les éléments contestables du prolétariat
-intellectuel.
 
 Mais ce qui, plus encore que le fractionnement
 du parti socialiste, favorise, en France, la péné-
@@ -1237,7 +1160,6 @@ mitisme — en recueille une notable partie.
 Le socialisme en prend d'autant plus que la dé-
 composition des vieux partis démocratiques, sur-
 
-Hubert Lagardelle
 tout du parti radical et du parti radical-socialiste,
 ont encouragé singulièrement la venue au socialisme des professionnels de la politique. Le vent est
 au socialisme : qui n'est pas socialiste ?
@@ -1255,7 +1177,6 @@ témoignage profond de la puissance d'attraction du
 socialisme, qui entraîne ainsi dans son cercle d'action les éléments les plus nobles de la classe intellectuelle. Mais ces éléments ont besoin d'être
 assimilés par le mouvement, et ils constitueraient
 un danger s'ils pouvaient prendre les premières
-places.
 Beaucoup d'entre eux ont des tendances à se
 figurer, en effet, qu'avant leur arrivée, le socialisme
 était incomplet. Leur hâte de bâtir à son usage —
@@ -1288,8 +1209,6 @@ prolétariat français et ses diverses tendances dans
 les mêmes cadres de vie, il sera livré, comme une
 proie facile, à toutes les ambitions, les plus nobles
 comme les plus basses.
-
-Hubert Lagardelle
 
 C'est donc dans l'unification du parti socialiste
 que se trouve la solution de la question que nous
@@ -1325,10 +1244,8 @@ pas entrés encore dans la vie, et ce n'est que du
 jour où ils ne seront plus étudiants que les rapports
 de classe s'imposeront à eux. Alors ils se placeront
 forcément dans les cadres sociaux : les uns —
-parmi lesquels peut-être beaucoup d'étudiants
 pauvres d'aujourd'hui — iront se souder à la bourgeoisie, les autres — parmi lesquels peut-être beaucoup d'étudiants riches ou aisés d'aujourd'hui —
 
-Hubert Lagardelle
 tomberont dans le prolétariat intellectuel. Ils n'ont
 d'intérêts de classe que dans l'avenir. non dans le
 présent. Et ces intérêts futurs sont à la vérité trop
@@ -1361,7 +1278,6 @@ oublié avec quelle vigueur il a exposé les résultats
 de sa longue expérience de professeur. Par la
 simple préparation des esprits, par la seule prédisposition des consciences, accomplies par une méthode
 d'enseignement purement scientifique, les conclusions socialistes s'imposent d'elles-mêmes aux intelligences qui veulent s'appliquer à l'étude des
-rapports sociaux.
 
 Je sais pourtant que ce sont plus souvent par des
 raisons d'ordre moral ou de simple enthousiasme
@@ -1371,7 +1287,6 @@ il n'y a rien là de contradictoire. Il faut susciter et
 nourrir ces élans de sentimentalisme, car ils sont la
 voie préparatoire aux adhésions réfléchies, le terrain qui portera les convictions raisonnées. C'est le
 point de départ, qui permettra d'atteindre au point
-d'arrivée.
 
 C'est bien ainsi d'ailleurs qu'a compris la propagande socialiste dans les milieux universitaires le
 dernier Congrès des Étudiants et Anciens Etu- .
@@ -1379,10 +1294,8 @@ diants Socialistes, en votant la déclaration dont
 vous vous souvenez : « Le Congrès considère que,
 tout en faisant appel aux intérêts de classe des
 
-Hubert Lagardelle
 futurs prolétaires intellectuels, la propagande s0cialiste dans les milieux universitaires doit s'adresser plus particulièrement à l'esprit scientifique, aux
 
-sentiments moraux etaux aspirations démocratiques
 des étudiants. »
 
 Si je rappelle cette décision, c'est parce qu'elle
@@ -1393,7 +1306,6 @@ socialistes d'aujourd'hui aient reconnu le danger de
 l'appel aux intérêts : c'est un réconfortant présage
 d'avenir. Puisse-t:il signifier que parmi les intellectuels qui pénétreront demain dans le parti, ils
 seront nombreux ceux qui auront de leur rôle une
-juste notion!
 Camarades, nous avons ainsi esquissé le rôle des
 intellectuels dans le socialisme. Pour un mouvement inorganique, ils sont un danger: pour un
 parti unifié, ils sont une force. Leur tâche consiste
@@ -1412,7 +1324,6 @@ délibérément dans l'action.
 
 Vous le voyez, il reste à poser et à résoudre bien
 
-- Hubert Lagardelle
 d'autres problèmes. La situation de la classe intellectuelle est imparfaitement connue, parce que
 difficile — ou peut-être impossible — à déterminer. Seuls les {echniciens peuvent être utilisés
 par la production moderne. Voilà ce qu'on peut
@@ -1425,7 +1336,6 @@ au socialisme de n'avoir pas résolu d'une façon
 positive le problème du prolétariat intellectuel.
 Que va-t-on faire, dit-il, de cette masse grandissante de chômeurs du travail intellectuel, de cette
 armée de réserve croissante? Qui organisera leur
-droit au travail?
 
 Je ne sais dans quelle mesure le socialisme peut
 s'occuper d'éléments aussi inutilisables par le développement économique. Que faire des avocats sans
@@ -1454,7 +1364,6 @@ Sans compter que la division artificielle entre
 travail intellectuel et travail manuel disparaîtra par
 le triomphe du socialisme ! Les parasites seront
 éliminés, il n'y aura plus que des travailleurs et du
-travail productif.
 
 Mais cela nous entrainerait trop loin. J'ai tenu
 en finissant à vous signaler la portée du problème.
@@ -1463,7 +1372,6 @@ Il est de ceux sur qui le socialisme doit se prononcer. La solution que nous avo
 au problème partiel, peut fournir une première
 contribution à la solution du problème général.
 
-Hubert Lagardelle
 Et peut-être estimerez-vous que nous sommes arrivés à un résultat, et que nous pouvons donner
 comme conclusion à nos recherches cette formule
 Dans le socialisme, les intellectuels ne peuvent

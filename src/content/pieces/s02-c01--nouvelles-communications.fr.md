@@ -7,15 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 6426
 ---
-
-*Charles Péguy*
-
 Nous publions ces communications comme elles nous
 
 sont parvenues avant et pendant les vacances.
 
 Largentière, le 19 août 1900
-Au camarade Péguy,
 J'ai reçu la collection des Cahiers de la Quinzaine,
 que vous m'avez envoyée escortée d'une traite de huit
 francs. Celle-ci a été payée. Aujourd'hui je vous envoie
@@ -50,9 +46,6 @@ qui est l'expression de la plus belle hypocrisie qui se
 } . . « puisse voir et où, entre autres, on donne comme programme : socialiser le fond des principes en radicalik sant les moyens. Lisez: se réclamer du programme
 socialiste en se faisant passer pour radical. O Zévaës,
 que de groupes pourraient se réclamer de ton nom!
-Bonnes salutations
-Marius MouTEr
-ÿ Châteaurenard, lundi 20 août 1900
 Mon cher Péguy, de ce petit pays où je suis en
 vacances, il faut que je l'envoie un mot. Qui lirait mes
 précédentes lettres s'imaginerait que je suis un mauvais coucheur qui trouve à redire à tout. Je redis à ce
@@ -75,15 +68,11 @@ République a fort bien fait de nous donner l'Égalité, de s
 Bellamy et même À Perpétuité, roman australien. Cela
 vaut toujours mieux que Borgia! de ce pauvre Michel
 Zévaco. — En attendant le Triboulet du même.
-JEAN TERRIER
 Si j'adhère jamais à la Ligue du vieux Bérenger
 contre la licence des rues, M. Octave Mirbeau pourra
 se vanter d'y avoir contribué pour une somme considérable. JEAN TERRIER .
-Châteaurenard, mardi 21 août 1900
 Je ne puis me tenir de t'envoyer cet article que je lis
 dans l'Aurore de ce matin, et qui est exactement de
-méthode dreyfusiste
-A QUI LE PROFIT?
 Nous croyons volontiers les nationalistes capables de
 tout. Nous nous refusons, jusqu'à preuve de leur respon-
 Ë sabilité, à les proclamer coupables de tout, et nous
@@ -116,7 +105,6 @@ Il y a des bandits, des faussaires et des assassins
 dans le clan nationaliste. Mais cela n'empêche pas que
 les responsables de la panique d'avant-hier sont,
 peut-être, tout simplement des pickpockets rêvant d'un
-grand coup.
 
 L'enquête a-t-elle porté de ce côté? Pour nous, chaque
 fois que nous verrons un de ces donneurs d'alarme circuler dans la foule, nous croirons qu'il en veut plutôt
@@ -131,8 +119,6 @@ qu'un commencement d'enquête ait prouvé qu'il méritait une telle épithète. 
 J'ai eu vraiment un très grand bonheur quand j'ai vu
 que nos amis revenaient aux méthodes saines. Je suis
 vos JEAN TERRIER
-
-Monsieur,
 
 Vous, et les amis dont vous vous plaisez à rapporter
 les propos, avez tous un souci évident de la propriété du
@@ -162,9 +148,7 @@ Excusez ces deux réflexions, faites en courant, par
 une personne qui, ayant peu de loisirs, a dû lire en
 deux fois la réponse brève en question.
 
-Madame Smox LeprApPieR, Elbeuf
 Perbose, par Verdun (Meuse), le 25 juillet 1900
-Citoyen,
 
 Je crois que vous faites bien de vous adresser en
 particulier aux instituteurs, — à condition de choisir,
@@ -188,11 +172,6 @@ j'espère, quelqu'un pour transposer. Ah ! qu'il est urgent
 de remplacer par cette propagande sérieuse la mauvaise propagande des journaux, j'entends des journaux
 même les meilleurs.
 
-Voici deux adresses
-M. Moutinet, instituteur à Montaire, Meuse.
-
-M. Bessancourt, instituteur à Corroyer, Meuse.
-
 Le premier de ces amis n'a parlé d'un sien voisin qui
 a eu l'idée suivante : il achète un bon livre et le prête
 à condition que l'emprunteur s'engage à prêter le livre
@@ -201,16 +180,12 @@ regrette de ne pas savoir le nom de ce bon citoyen;
 mais il vous connaîtra par l'ami dont je vous donne
 l'adresse, si vous pouvez envoyer les cahiers à ce dernier. COMBEROUGIER, instituteur
 
-Chäteaurenard, jeudi 23 août 1900
-
 La méthode gagnerait-elle de proche en proche “
 
 Dans Le Matin de ce matin, ou, comme on dit, dans ce
 
 Matin, je lis sous la rubrique On réclame cette lettre,
 qui ne reproduit ni l'opinion du Matin ni la mienne
-Opinion anglaise
-Paris, 20 août 1900
 Monsieur le directeur,
 
 Votre article de ce matin intitulé « La tactique de Dewet »
@@ -225,28 +200,20 @@ Toute votre sentimentalité déplacée — puisqu'elle doit
 forcément rester sans effet et que vous vous occupez d'affaires
 qui n'ont pas d'intérêt immédiat pour votre pays — n'y
 
-Lu fera rien.
-
 Si vous désirez tant la liberté des races opprimées, commencez done par donner l'exemple vous-même et évacuez
 1° L'Algérie
 2° Le Tonkin
-Madagascar,
 trois possessions où vous n'avez réussi qu'à implanter des
 douaniers, des fonctionnaires et des dévoyés, lie de votre
-population.
 Je vous salue bien.
-
-B. WELLS
 
 Le Matin a commencé à donner souvent, en particulier sous cette rubrique, des consultations interindivi- Û
 duelles où le pour et le contre étaient honnêtement
 
 proposés. La méthode gagnerait-elle de proche en proche ? Ton
-JEAN TERRIER
 
 ! premier cahier de la deuxième série
 rue du Lac, Ixelles Bruxelles, 16 juillet 1900
-Cher monsieur Péguy,
 Nous trouvons dans vos cahiers des parties intéressantes, les lettres des abonnés de province — instituteurs et autres jeunes gens — désireux de nous débarrasser de l'ignorance et du cléricalisme. Maïs nous sommes déçus de trouver dans ces cahiers une deuxième
 et même une troisième édition du Mouvement Socialiste.
 Le parti et l'organisation du parti et l'opinion des
@@ -254,7 +221,6 @@ Chefs du parti ne nous intéressent pas et mènent, selon nous, àune tyrannie a
 nous voulons détruire. Le militarisme civil nous fait
 peur autant que l'autre.
 Bien cordialement Dumesniz RECLUS
-Lundi 13 août 1900
 Monsieur et cher camarade
 Nous avons eu ici la conférence nationaliste dont je
 vous ai parlé, conférence privée naturellement : huis
@@ -269,7 +235,6 @@ rence (1); les militants d'ici l''aiment beaucoup pour
 () M. Gustave Leblond paraît ignorer que Jaurès néglige habituellement de donner des conférences parmi les militants qui ne
 le calomnient pas. Il réserve son temps et son éloquence pour les
 groupements et agglomérations guesdistes. — Note antérieure aux
-derniers congrès.
 
 son grand cœur et sa largeur d'idées, autant qu'ils
 détestent la raideur et l'intolérance de Guesde : malgré
@@ -277,7 +242,6 @@ tout, ils conservent à l'égard de Jaurès une certaine
 défiance, à cause de ses origines bourgeoises, et son
 évolution actuelle vers le socialisme opportuniste et
 ministériel va réveiller chez eux le préjugé qui s'affaiblissait depuis quelque temps.
-GusrAVE LEBLOND
 Ouzouer-le-Plateau, mardi 26 juin 1900
 
 Accours à mon aide à Péguy le Subtil. Je tai déjà
@@ -331,13 +295,11 @@ quatorzième fois. J'ajoute, pour l'intelligence de ce qui
 suit, que l'éclatante ignominie du commandant comte
 
 avait le plus fortement contribué à cet ébranlement de
-conscience.
 
 Or j'attendais serein le mercredi demain matin habi- ù
 tuel quand hier lundi M. Bourdieu vint me trouver
 après sa classe à la maison, triomphant. Je pressentis
 un malheur. Lisez, me disait-il, me tendant un carré de
-journal soigneusement découpé en deux morceaux
 puis recollé. Je lus, stupide, cette annonce
 — Collection Orchidée nous donne cette semaine un
 roman ultra-parisien d'Ernest La Jeunesse : Demi-Volupté.
@@ -399,13 +361,8 @@ me quitta sur ces paroles menaçantes. Je cherche
 depuis lors, mais je n'ai pu trouver une seule différence.
 Faudra-t-il que je fasse mon discours moi-même”? Aidemoi de ta subtilité. Fais appel au besoïin à notre fameux ami don Ruy le Subtil. Moi je suis vidé. (1)
 
-ANSELME LEGOURD
-
 (1) Notre ami Anselme Legourd a dû faire et prononcer lui-même
 son discours, qui fut excellent, sur le souci de la vérité dans l'histoire de la littérature française.
-
-Vendredi 13 juillet 1900
-Cher camarade,
 
 En jetant les yeux sur le Socialiste que reçoit un de
 mes amis, je viens de m'apercevoir qu'il contient une
@@ -451,7 +408,6 @@ risquer, comme les cahiers ou comme les anarchistes,
 
 à une action purement individuelle. Entre le guesdisme
 démagogique d'une part, — et, d'autre part, les indé-
-pendants aux procédés bourgeois, aux théories bou
 geoises — pour ces dernières voir les articles de Turot,
 Fournière dans la Petite République, de Rouanet dans
 la Revue Socialiste, articles que pouvait publier Le
@@ -465,8 +421,6 @@ dans l'un plutôt que dans l'autre, de telle sorte que
 notre foi socialiste elle-même risque presque de sombrer; je vous assure qu'une telle situation est fort
 pénible. Si les cahiers pouvaient nous en tirer, ils nous
 rendraient un grand service. (1)
-Louzon
-boulevard Émile Augier, Paris
 
 (1) Ces cahiers ne peuvent et ne veulent tirer personne, si intéressant soit-il, d'aucune situation, si pénible soit-elle. Nous collaborons
 seulement avec nos abonnés. Des hommes libres se tirent d'affaire eux-mêmes librement. Comme collaborateurs nous prions nos
@@ -474,7 +428,6 @@ seulement avec nos abonnés. Des hommes libres se tirent d'affaire eux-mêmes li
 î Je profite de la même occasion pour vous signaler les
 poursuites dirigées par le gouvernement contre DuboisDesaulle, et contre lesquelles La Petite République n'a
 pas protesté; — je ne crois même pas qu'elle les ait
-signalées. (1)
 
 Dans le numéro du Socialiste que je vous envoie, j'ai
 aûssi souligné un article intitulé Pleurs et Regrets, et
@@ -484,7 +437,6 @@ manière dont elle interprète souvent certains faits
 sociaux, en particulier les grèves, que certainement elle
 interpréterait de tout autre façon si le ministère n'était
 pas le même. (2) LOUAON
-. Bellegarde, lundi 13 août 1900
 
 Je lis dans l'Aurore de ce matin, memento bibliographique
 Le succès du Journal d'une Femme de Chambre, le chefd'œuvre de notre collaborateur et ami Octave Mirbeau,
@@ -532,11 +484,9 @@ Mais j'aime encore moins un livre sale qui fait semblant d'avoir une portée soc
 la tartufferie sur tout. Enfin les lecteurs de l'Aurore ne peuvent juger le roman sur le morceau
 qu'on veut bien leur en donner, parce que ce morceau
 a été habilement choisi parmi les rares morceaux
-propres.
 Mirbeau a dû faire son roman pour éprouver jusqu'où
 irait la platitude et la moutonnerie de ses bons camarades les journalistes. Il est déplorable que tu en sois
 devenu un. Au moins par le silence.
-Érenne RoxcERET
 
 Beaune-la-Rolande, lundi 23 juillet 1900
 
@@ -576,7 +526,6 @@ Enfin et surtout, il est extraordinaire qu'on ne puisse
 
 publier un volume ignoble sans qu'aussitôt un imbécile
 fasse appel au grand Flaubert, à Maupassant, et au
-grand Rabelais.
 
 Le procureur impérial qui poursuivit madame Bovary
 rendit un fameux service aux journalistes futurs. Je
@@ -588,17 +537,13 @@ aurait dans les bons auteurs des ordures authentiques,
 cela ne prouverait pas qu'il faille être ou qu'il suflise
 d'être orde pour devenir un des bons auteurs.
 
-Léon VERDIER
-
 Notre ami Bertrand Lesourd m'a envoyé de Semoy,
 le même jour, ces quelques mots au dos de sa carte de
-visite
 Si j'étais antisémite, je ferais des romans comme le
 Journal d'une Femme de chambre et je les mettrais
 dans toutes les bibliothèques populaires.
 
 Le lendemain je recevais une carte postale et une
-lettre.
 
 La carte postale portail ces simples mots
 Si j'étais candidat à la dictature, au lieu d'être un
@@ -607,19 +552,15 @@ candidat malheureux à l'agrégation, je ferais des ro-
 mans comme {le Journal d'une femme de chambre et je
 les ferais vendre sur les boulevards pour deux sous.
 DANIEL DE LA TARGE, 45, rue d'Ulm,
-Paris
 
 Bien entendu on reparle de Flaubert, on va reparler
 de Maupassant, on reparle de Rabelais. Je sais que les
 amis littéraires sont faits à seule fin de jeter des pavés.
 Mais M. Mirbeau ferait bien d'avoir des amis qui lui
 lanceraient d'une main non moins sûre des pavés un
-peu moins lourds.
 
 La lettre était plus longue
-Château-Gontier, mardi 24 juillet 1900
 Je lis dans l'Aurore d'hier matin
-REVUE DES LIVRES
 Les Mémoires d'une Femme de chambre, par Octave Mirbeau
 
 Quand parurent, dans la Revue Blanche, les premiers chapitres des Mémoires d'une femme de chambre, à côté du roman exquis d'Emile Pouvillon : Le Vœu d'être chaste, on fut
@@ -632,7 +573,6 @@ la perspicacité nécessaire et choqua énormément tous les
 néralement que de nom, et rappeler, à propos de Célestine,
 Juliette ou les bonheurs du vice, Justine ou les malheurs de
 la vertu, les tristes héroïnes de deux mauvais livres que
-personne n'a pu lire jusqu'au bout.
 
 Il est assez amusant que le monsieur journaliste se
 soit obstiné à nommer ce roman les Mémoires d'une
@@ -646,7 +586,6 @@ grand, plus historique. M. Gaston Méry n'a:t-il pas, autant
 que je me rappelle, publié les Mémoires de Vacher ?
 Bonne réclame en passant pour le roman de Pou-
 
-villon.
 Mais on ne fut pas unanime à proclamer le superbe !
 talent de l'auteur. Qu'est-ce qu'un superbe talent ?
 Qu'est-ce qu'un talent ? Je pense qu'iln'y a aucun talent
@@ -682,7 +621,6 @@ assez exclamé après Rochefort et après Drumont. .
 Notre collaborateur M. B. Guinaudeau n'est pas
 dégoûté. Mais enfin c'est son affaire. Charme puissant
 et haute pensée ne sont ici que de grosses bêtises de
-chercamaraderie.
 
 Je continue
 vrai dire, Les Mémoires d'une femme de chambre vont
@@ -724,7 +662,6 @@ les éditions, mais les comptes rendus des journalistes
 sont jésuitiquement faits pour que les salauds s'en arrachent les éditions. C'est facile à voir. Les journalistes
 présentent la défense des saletés avec insistance pour
 que l'aitention des clients qui savent lire soit fructueusement appesantie. Voir le milieu du paragraphe où nous
-en sommes.
 
 Qu'on nous laisse donc tranquille avec la pathologie
 sociale et la sociologie. M. Mirbeau seul et ses lecteurs
@@ -766,7 +703,6 @@ Je passe la suite, littérature provocante et mauvais
 - français. Je passe les citations fades ou nauséeuses.
 
 - Nous arrivons à la partie sérieuse de l'article, aux
-grandes considérations
 La corruption n'est jamais totale ; il y a partout des gens
 Tocqueville ou Pailleron, je ne sais plus lequel. Elle est to-
 
@@ -779,7 +715,6 @@ l'histoire — mettons l'histoire naturelle pour ne froisser
 
 personne — d'une classe de la société française à la fin du
 
-- dix-neuvième siècle.
 De ces attestations métahistoriques nous retombons
 
 aux citations nauséeuses. Vient la conclusion
@@ -812,15 +747,12 @@ et que nos polémiqueurs, autant que je connaisse leurs
 manies, aiment à nommer la maison Letellier, — annonce
 où M. Octave Mirbeau continue à figurer en bonne place
 parmi les rédacteurs du Journal, en seconde-place,
-immédiatement après M. Paul Adam, immédiatement
 avant M. Gustave Geffroy, accompagné de MM. Henry
 Bauer, Clovis Hugues, Lucien Descaves, et de madame
 Séverine, pour ne citer que ceux qui nous intéressent.
-Louis RoBerr
 J'oubliais : si j'étais candidat à la dictature, ou
 simple soldat de l'antisémitisme, je ferais aussi distribuer sur les boulevards des bouteilles d'absinthe
 deux sous. DANIEL DE LA TARGE
-BERTRAND LESOURD
 L'abondance des matières nous force à remettre à un
 prochain cahier les communications qui nous sont parvenues pendant et depuis les vacances.
 

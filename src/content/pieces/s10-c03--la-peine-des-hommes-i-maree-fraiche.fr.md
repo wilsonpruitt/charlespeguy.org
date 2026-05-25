@@ -7,75 +7,21 @@ author: pierre-hamp
 isAvertissement: false
 wordCount: 23589
 ---
-
 |
-TROISIÈME CAHIER DE LA DIXIÈME, SÉRIE |
-PIERRE HAMP |
-N
-$ LA PEINE DES HOMMES
-« .
-"a 1. — marée fraîche
-F b
-à ar
-LA
-k 799
-k CAHIERS DE LA QUINZAINE #
 id paraissant seize fois par an È
-Le PARIS
 È 8, rue de la Sorbonne, au rez-de-chaussée
 
-LA D AG NNA EAR A EE SE e A AR SAUTER CAT
-OARNNIAN 4 4 “ANTONIN ù
-PUMA "4 7 4 Vs CONTE
-MAL, , #1 à 22 SGPT PES
-ÿ qe 7 « \ , nat LA
 | NUE VE NRESS CEE Fed « UTC NUE CREEE
-i RE RAC) Mas re {
-ie CN HN f : PROS
-De Du | 7 \ |
-sa 7 TL A PEAR Au:
-CT # 4 / \1 47 [11 LA NRNTS
 AIS L LA [A [AK se Ÿ se
-JR AU
-( F RS A RE
-DAS il EN Si A “e
-FAR pi RÉ Fi LL OR S
-‘ | cév: |O 51
-Ê N QUES
-: Ho: 3-6 RC
-‘TURN : : 11 8 Nan
-5 s è HAT 014
-Ps, F t °F: AIRE
-nl j 4 me TNT
-Pre 4 £ LT
-d » AU:
-ca à A + RNCS
-:JAGRTPATE USE #f
-RENE DO RUE) pe Put AN HSE OTEN
-LEE ECC ET N'ES PUCES à PES M Gé ANNEE Lay ÿ i; A ÿ
-4 4 UN 4 À
 
 RE CR Ne fre PRET EP VAL Nr j LES SR
-Re DR. - 2e
 N'CAER TRES PARTS À nr QUE CES
-- Sa
-LÉ EE LÉ EN € ; FENTE
-EF IEEE js ; à à 12
-TT TN at A rt US
 | PNR] MSP
-! ALL NES sa : A
-FEAR re f ns < FE x
- 'IRERES : HR
 
 Per LA pe 20 LA à
-_ LAS : nc
-É p FAT RS VE ONE k + LA Er.
-7 sie me re = t 2 < = DES EN
 | M if Es ne marée, 7 11) EE
 | ; FN T DER Et ñ < FNTÉAIES TS EN RME EEE pes
 D OMR TEEN Vus AT De AE Rs en pes
-
-LÉ LMONTAN ER USE REA Z
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si nn
@@ -101,7 +47,6 @@ sommaire, 1900-1904, de nos cinq premières séries <
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci, æ :
 
-+ FERRARI AQU : , + pue
 ne idée, abrégée, mais complète, de nos éditions anté-
 ieures et de nos cinq premières séries ; tout y est classé #8
 
@@ -121,152 +66,58 @@ vait, par le fait même de son abonnement, en tête de la Fr
 série; nous l'envoyons contre un mandat de cinq francs 2e
 
 à toute personne qui nous en fait la demande. “ee
-HET STE
-* pa £
-RP À Ë
-l Fs EEE P “
-LS: NAS Fe
 
 | LIRE Le a s
 
-Dee NES ER ES * TOP EACS Tea ns ROSE 2
-2 CRE TO RSR AR ARE JS RTE Re
-L'LTSPTE SR NS ES ESP RE RSTE CRT FAT LIT CERTES ESS ET
 RS NE RSC NP RE ES Her AS PUEeINe 0 AR une ;
-So ELLE SR SR ET ER ES PT ES; RL = vu AE TTRÈe E
 
 ee RNA : CES eee ne
 
-Re ONU # > +@% FOR ND COPIE STARS RU a? È
-LEE TE - Lt ! È Me su 7 ? #
-SPRL Ed x HET ra: CPE PER
-LES : RIT
 #2 tk \ LAS sir Re :KEER
-PARA NI : ; & DÉS
-D : TAEISRES
-“ K CINE x . à, LÉO
-HR = » ER e Ean  L ARMES
-ÉTIENNE - ; x DR RENE 7
-SÉANERR SENS % € R Re, RE |
-LE 2 TENTE 1 ER
-D : LATTES
 k Fes Ne REA Le, LÉ ETRREONES
-TRES RATER : 4 > ee * SCIE LAS ET
-RNA SE S Le SERA TEEN
-LS RE
-SAR D
-re En Ron re 7 Sr W ét à LL. LOTS ZONES
 Pa Rav 5 74 7: ® A un TR ee ANSE
-Rs MATRA SP UE A DAT ER AT UE
-LOGS RER PNR M RS JR LL ASSURE PURES
 
-LED RER EN OA DES E y NRe MAR MM LENUE
 PR NA Tee Ve Rd ue Le FLN EEE
-De. AE PE MRC LL AE ee EE ï TR = PR
-ue es | 14 1 EE
-2% KA L : ; À ee te
-. ‘ DU MÊME AUTEUR VITRES
 __ aux Cahiers de la Quinzaine E MS
-LS 258
 Pierre Hamr. — dix contes écrits dans le Nord : pre de
-CSS ASE
-1 e
 ES un brave homme; FA
-LR DS Follette ; 5
-CS coqueleux; Ge
-Re 7 . à
 OR: un bon ouvrier; 6 EE a
 : | RSS l'estaminet du Coq à Trois Pattes; ee
 Rs - une bonne âme; d
 1e  Buvons la bière du Nord! Pa
 FRS une ville riche; é
-D Sac d''Os; #
 M la pius grande canaiïlle de la terre; Re
 euxième cahier de la dixième série; un cahier blanc Fe
 de 120 pages; in-18 grand jésus........ deux francs Eee
 | d' SECRETS 2
-1 18 SCORE) S "ES =
 nn nn rer LA LE A
 
-LR ee ES ARE EEE RE LL nee PRES RARES
-Fi D res aie PRADA
 HN RES EN TT PR te OU Le praete PET Et LP UCI É
 ORNE ist pe de "RSS AP Na Er AS CP RTS AT OR F4
-À SET NE SERA SCENE PR Tr REP Te NE RAR SUR
-LOIS SNS à RARE ET FPE CSN TITRES
-PRE S Fe ; Rs
-D. aie 1 EUR
-REA : 5h M , .
-TT ENS k EN
-HSE RSERRR Î ; Ve Ye
 Re Le ae ë a Pre
-SENS VS = : é 5 0 z
-1 Note ANSE # = a DA. SORTE E 1 LITE]
-MARNE MT 7 $ MPa 2) :L FACE
-RC Er eu : + DUREE ETES
-LAN OR TEE 4 Vr Eu 4 CT CAOPEES Fe
-EUX FAT SAT : { 3 TE 7 ER ES
-LENS STONE = s j A
-VUS À OS NES PET UN * ARE SEVEN
-; RE. DO z ds ah TÉLO PS AGE + Lu
-D
-roi LATE CEA REPRISE RE er CR : RE
 1. RÉHLMS RIRES EE Pa RAR NE al pe D.
 ER LE en rs NN D RE D ep
 
 MT AE pe. 4 SRE Ne PONT NS ST CE OR es CE eant, 211824 44 nr.
-” “CPR ES % 3 s * V1 Fa
-3% : . i è 4?
-FRS 4 SA fs ë 5 >.
 Voici la première d'une série d'enquêtes sur le tra- ae.
-2417112 + m
 Rien n'est banal. On retrouve autant de fatigue et Fe.
 — d'héroisme dans un sou de pain que dans une pierre des 3
 Pyramides. Nous vivons de la souffrance des autres. Re
-JR és À ÿ #
 Chaque homme est bourreau des hommes. Essayons e
 d'estimer ceux qui peinent pour nous. Combien gagnent 2
 leur cie par agrément? Tous dans le malaise, souvent se
 la torture. Le bonheur est d'aimer son métier, mais où ra
-ENT — h :
 { on | les métiers aimables ? |
 Sous la dureté du labeur, la révolte devient le réve 3
 des hommes, et l'oisiveté, leur recherche.
-NÉRRR SA > ï
 % mer travail où l'on ne chante plus, se fait un grand
-DAT EL":
 - œuvre d'abétissement humain. L'ouvrier n'aime plus son EE
 métier, et cela ébranle le monde.
-ECS
-Re ne ; :
-ll F2 ee i
 | #34 & & 3
 
-D + Lo. liver co
-PRE LE QUI A RC RE EEE PEER ALT ROSE ;
-ARMES DÉRRSATEES LÉ TT S re EME C RS
 ren ie do De INTENSE MENT ES SEC SE
-FT T RRES  ,
-PER CMTES x LCR RE SES
-CREER IEEE 5 D - .
 | LR 5, Z 3 - 7 ef RER ES
-st ; ; : 7 ERCRRES
-BRAS É - Er
-FT LÉ ; F
-2e LEA NES Er Ts LORS RTE €
-re. ; se M
-A Ur ee % Là SN EEE :
-nr - RE
-RE DE à x LE TERRES
 HOE SES SMS : L nes Tr ie -
-MÉRE TL” “ 14 4 Le Mr
-PERS me. Ca É 2 rs x A
-En Re R
-DRM RS 2 AA : tL ea RE
-WEAR or =T RE Z SR D s
-SRE MERS : A É TT
-à RE Y POP AS LIRE à : dé & Te D
-Li NU LES OS
 BRAS De", . DES Par LOT PR ANNEE
 F5 *720 on Re RE ER el
 MEME HAE 0 PR OR SEE A DR OC SES etes
@@ -274,194 +125,60 @@ PR, > PLèe— = = der EST Te CAS 2 Che re à AE .. à
 A NV NT, UP CE is COSTA
 
 ne A Pr 0 Se, RS SARA ER es el
-AR RM re TRE A 2 CRE
 LE 57 ANSE SENS RES A Atos PRIT RCA ELA
 | LTÉE RNENSS Se Re
-ARC Se. | Û ï SEE
-}, re . %
-s VER me
-ri ER HE
-Ur. Fe
-* Ms fe
 _ LA PEINE DES HOMMES me.
-Vire pese
-EP # 5 Se
-ACER > He
-es SE
-LR © ee
-TS w RS AU
-RS es THERE RES : RES
 
-RE SR ENS TES
-CHERS RS Et : ; 3 DÉPART RUE RTE NC ee RS
 Bis "AIT: UNE . - LEETR RETSE
-NES 2 ù a £ eS SRE EE
-à. LIVES
-EVENE te PE > | LL NOTES d'A ÉES
 SEE ne ne ce = x ; x FRE Et Me ee
-Mo KE Re 5 EN REE DRE
-ANUS AT ÉSmENSErl > É > : : Mn
-re RER Ce = £ £ : À
-HLLFONE ES = > É è PT
-Pere te e LUE SPAM ER 2ÉTS LENS
-MN ; SERRE
-SEEN AS } > = 4: 2 LE RE TERRE
-TA SÉRIE < ” ÉhR: LES
-LE RERER = Las : = 4 S 2 = ; RE ne 2 rÈE
-SEE HERO ES Rob LL ROSES ,
-EAN TRES RE À ES Ë x CAE ee €
-“GC 2 RÉ ÉD ETES r ; & + x 4" Sr Ts
-Fa Ps RAEN - RREN
 ES NES ES ER x LR s ve BILAN TES RE
 Ne LATE Le ES = er UGS LB TOE TARN Ë
-LT ISA TR Ve SC PR SET g LAS run
-re ER PE AUS
 
 a LOMRELUO ET Can A SNA CE sd CAES MS gs re +:
-M 0 5 Fe 0
-$ x | AS LA A #
-LS x AUS
-+ D'RARE : EPA
-LS . 4 ne.
-MMS à "080
-pie ve ” NORPES
-Re + La 3.
-RFA £ Rs ES
 LE pe FER
-LETTRE Le 5 NES
 à la mémoire de petit Jean François Desjardins "SAN
 À É ces
-LR ÿ y A =
 | 60e ne
-He ee F2
-DU, FL FN
-5 oi / ! RÉ
-LS ste
-M  - SRE
-1 PRÉ HT
-TASSE FRS
-Fo : LE
 SNS A Pre Je
-5 SR À 3. FUME
-ie: É MR ee
 + L'ACRSTRSS = cs rs LE
 
 Les Be ie SN EE ET RS De” Rs - Te #
 Re IR end Ni CCR
-Hs DRBL ERA RES EEE ES PE RS FR Me ete
 ET À Ë Se PSE dre e* Te ÉDITER x
-HÉNPRRRSS 2 RAR MR
-à our FÉES
 
-Re Se 3 £ RE
-4e EU
-
-À CPE ES È e . LIL ARMES
-PÉTER : : = si - 7 LAIT
-HSE < : RE
-RE Fe 2 LL AP TORRES ;
-En CCS 1 É = | LE TERRES
-re RP ‘ ” Do RS |
-FHNRESER > = 4 BUFRUE LIL RSR
-FÉES DT] À LPS ee Le : M,
-ESS 5 : RM
-
-de Er. ce = Sn. 17 » ESRI
-Rene | ; HS A , .
-SÉANCES A
 ee LES DES CD NE AU BREST ni
-En SSSR MR ARR SO ER ENTRÉE SE +4
-STORES FOR, DRE ARE LS BIREMRE UE LITE ET GNT SEE DOS
 
-re Ha fe F "ere
-FRÈRES
 TETE - Qui refuse de travailler ne P ;
-LRO pe 25
-TIC PENSER S ÊE
-HPRTRSS “ , ens. IT. 10. à
 Me, Saint Pau, Il Thessaloniciens. ur.
-t-il 10 T FE æ + L
--. L'ÉRETOERERRS = ,
 | RUES : F EE
-Re . k NT < ACTES
-‘HG ES ; Re Me
-LÉESTEERS) 13 : Are FRÉÉSRASIES
-En A UT:
 
 Mr Si Le ae NE Les A NET FPE SERA * EME) NE
-RS EEE LT STARS ONE
-LNNES FRS 1. CHE z ï r ë LH ÉDARE Ua -+
-NON MR
 
-M Ne 7 += x ê AR a
-LATTES : : 4j 0 OR RTE ;
 fe FR AE “hate oies \ , NE ï AT PTSERERE
-LITE OSSERS : PEUR SUN ENENRESS
-DRE D X S 2 ne n} PRO
 
 Re AE TE be TA : Let 5 ces r SA TER RE Le Es
 
-<% AR URERES ME Se s : A
 | HT LT Per CENDRES LIRE TES
-RS RU SR
-LORIENT SSSR s DATE TL EE LEA CT STE rs
 
-PA Me ILES nes RRSS A DESERT 17); CUITE ATEN
 AGEN pr Rem OL ENS RE NE SE a RE Le » ITR
-LA TR GET POI SEL AIO SEEN TS PT NET TERRE RES EN SEEN A j
 
-Va FER USA AR MES PET 7 = FE PES ISA CLP POANE
 les ROUE CRISE RON TR is RES VUE
 4 ar 2 Y RTS sr : Pr PAR dr A A
-DU ; : ME
-+ LÉ LAC 7
-LES v# ATEN
-LP es ASS 440)
 D raiche de
-LEVÉE a 5 PEER
-: 70H SES =
-ASS Aya ; > Pa MU CO
 | FÉTRESSEURSS : “4 Le Be
-gp Fd AA
 
 RAD Dre FU nn on
 
 LS Le LS VE ETES YA x FT LE TENG A < RTS SAS Eee er J
 
-LES RE ON A FRANS RU ER ET ARTE
-
-RATE RE TM O ES A DT AU FRA RARES Rs
-
 A 4 di RUN ce ft) INA PURE PR GTS DUT RERRE
-
-PR ee PEN I ENT RE LL ;
-
-STE 3 2 LUXE RNCS
-
-pe. — LE LES
 
 A oi à un
 
-RARE Re, 2 À ext FT AO PE FA TR SEE
-
-SR ONESR SE AR = : LEP FANS ARE ;
-
-OR ed en
-
 PR MES a es Se 2 e DIT APERONTRRRSS +
 
-Sr Pense È TE FRUITS ER SNNRRE
 M a in, on Ne AT OR
 
-TO A mn re ls 20 AG + À ÆS D 1e Eee NOR CSP RES
-
-LS ER PR
-
-LE RE REC SENTE ENT NE AE ES PR EN SR RENE AT EPR ne
-
-CAE PATRON 17 A GAS Ne NS SONT ii MORALE LT PE A
-LE £ î à ; ner
-à %.
 | 4 [y OULOGNE-SUR-MER, en novembre, le matin. Une PL
 : D transparente brume blanche naïissait à terre et TES
 . devenait opaque à fleur de toit. Pas de ciel. Les vols, FR :
@@ -473,7 +190,6 @@ _ subsistaient, foncées sur écran blanc. eÀ
 “e) De l'autre côté de la Liane, en plaine, une autre ie
 | église : Brequerecque, posait encore le dessin grandiose
 s: _ desa large façade dépassée en hauteur par des chemi- ss
-- nées d'usines aux cratères invisibles, soufflant leurs
 fumées derrière le brouillard clos. SES
 4 Autour des grandes attitudes des maisons de Dieu,
 2 #“ les maisons des gens profilaient leurs toits à cheminées. Es
@@ -485,7 +201,6 @@ route invisible, roulaient à petite allure. Sur le quai Re
 É SC anzy, le sifflet des locomotives en manœuvre, étoufté a
 pa l'épaisseur de l'atmosphère, s'entendait en mineur.
 ss er ne.
-CET FSI
 
 la peine des hommes . ;
 
@@ -525,10 +240,6 @@ placer l'amarre vers l'écartement de la poupe. Cette
 manœuvre arrête le déchargement en obligeant l'équipe
 de quai à suivre avec son attirail vers ie nouvel accostage. É
 
-2 LYS Nr 4 x
-RU
-Re MAREE FRAICHE
-À PONT
 La « Notre-Dame » de Boulogne, encore à trois mètres
 _ du bord, se coinça entre les barques voisines, têtues 3
 | 4 C'RSRERREE . :
@@ -536,7 +247,6 @@ _ du bord, se coinça entre les barques voisines, têtues 3
 ment critique, survint M. Létoile, officier de port, mé-
 _dai é colonial. Il avait le teint sale, les yeux luisants. /
 Sa moustache voilait, d'un rideau jaune, sa bouche
-furieuse. é
 ji Une casquette à liséré d'or le coiffait jusqu'aux
 0 eilles, portées loin de la tête. Accourant à une allure G
 militaire qui déployait derrière ses bottes les pans RS
@@ -548,9 +258,7 @@ _ étroit. Cela ressemblait à un grouillement de bêtes
 ‘à des bruits de cordes claquant l'eau, et de rauques voix 3
 d'hommes, simples comme des cris de bêtes, montaient
 de l'obscurité blanche.
-DT. Se : A
 _ M. Létoile attendait que la « Notre-Dame » forçât de
-RARE Ms x : À 3
 nouveau sur son amarre jusqu'à craquer les bordages,
 — pour répandre sur le bateau, sur ses voisins, sur toute |
 2 la flottille, en mer et au port, et sur la race entière des
@@ -565,9 +273,7 @@ Bic Notre-Dame » avança, comme un coin émoussé dans
 | PRES .
 NE un bois dur. Enfin, du tranchant de sa proue, elle toucha | À
 - le quaï; elle avait son dû.
-Es =.
 
-ERP EC FE APS D 0
 la peine des hommes ru Eu
 Le panneau ouvert creusait, au milieu du pont noir, ‘
 un puits de lumière. Au fond, deux hommes, les bottes É
@@ -575,7 +281,6 @@ dans la glace pilée, triaient le poisson de la cale. 14
 Gelés sous leur falot rond comme la lune, ils se ré-. TS
 chauffaient en battant des bras, selon le rite populaire
 et se claquaient dans le dos leurs rudes mains mouil- 4
-lées. P
 Un autre, penché sur leur trou, en tirait les paniers È 4
 pleins. Ils avaient de l'ouvrage. Outre sa pêche, le De
 bateau rapportait les filets pleins du « Bon Vent », un 3
@@ -588,9 +293,7 @@ pas et chavira le pêcheur sur sa pêche. La « Notre
 Dame » rencontra les flotteurs à la dérive. Il vint autant
 de poissons que de mailles. L'aubaine écumée réveillait, 5
 au rude cœur des hommes, les triomphes sinistres des L
-grands-pères armés en course. 4
 — &Vaut mieux que ce soit pour nous que pour les
-requins. »
 Tant était grande la presse des barques que pas une \
 n'accostait de flanc; elles n'avaient place que de pointe,
 sauf une insolente petite chaloupe, rentrée de bonne
@@ -601,10 +304,7 @@ k M. Létoile et l''égouttement de son parapluie furibond. nn
 Comment se mouvoir, lui petit, encogné par cette cohue De
 de grosses barques. ÿ
 Derrière la broussaille des mâtures nues, avançait k
-20 À
 
-D M TMS ere he à
-__  MARÉE FRAICHE & | re
 lentement, au milieu du port, la « Marie-Rose », chalu- He:
 tier à pétrole de M. Rouvart, armateur, conseiller na
 | géné al. Il ne faisait pas bon gêner ses bateaux. T4
@@ -622,7 +322,6 @@ _. Quand le progrès du gros bateau eut fait du jour,
 i Fhomme aux hameçons vira, d'un coup de godille, sa |
 S bar ue libérée, se mit de cap au quai, y laissant nue la 4
 = largeur de son bord où, aussitôt, l'avant du pétrolier Fe
- accosta.
 Il avait bonne pêche aussi. Son patron, un géant à
 …_ chapeau ciré, parlementait avec les charretiers du |
 | comptoir Rouvart, prévenu par sémaphore. Les :
@@ -633,7 +332,6 @@ _ voile à suivre les bancs, plus vite à regagner le port de <
 “marché, cette nouvelle flotte faisait fortune. à
 M Un chalutier à vapeur, parti sept jours, rentre pour dE
 la forte enchère du jeudi et vend sa pêche de six à huit
-Ù _ mille francs ; jusqu'à quinze mille francs en Carême. s
 N = _ Le matelot gagne cent francs par mois. La marine à
 vo ile paie les siens quatre-vingt-dix francs, plus la gai- à
 … née : un du mille; le patron de barque de deux à trois
@@ -652,7 +350,6 @@ les crustacés pris, qui reviennent, par coutume, à l'équipage.
 
 ‘Les vapeurs naviguent souvent trente heures pour
 atteindre les pêches de fond, vers l'Irlande ou l'Espagne,
-etreviennent en draguant au chalut.
 
 On le hale de quatre en quatre heures, à toutes mains.
 Celui de tribord file aussitôt celui de babord amené. I
@@ -661,24 +358,20 @@ le quart pour le raccommodage des déchirures.
 
 Plus heureux, les chauffeurs ont des repos de six
 heures et ne montent sur le pont que pour jeter les
-escarbilles. :
 
 L'équipage y reparaît, à la fantaisie du maître, aussitôt le filet lourd, et souvent y mange à la fureur du |
 temps. La rude vie de ces hommes assure la richesse |
 
 de la ville marchande de marée; ils déchargent des
-fortunes.
 
 D'un bout à l'autre du quai assiégé de bateaux, la *
 marée touchait terre. Au bord, les hommes halaïent à
 la corde, comme du fond d'un puits, les paniers pleins.
 
-0  MARÉE FRAICHE ‘
 a Re de
 Sur les planchers gluants, les matelots marchaient à
 ; _ pleines bottes parmi le poisson mêlé de glace souillée.
 Les mousses abrités par un tablier de toile raidi en
-10 _cuirasse, s'enduisaient d'écailles jusqu'aux yeux en
 be rbotant dans la marchandise.
 k Ils triaient, à la volée, les espèces par tas : les
 __soles mi-parties, collées par deux, blanc sur blanc; les
@@ -703,13 +396,9 @@ F, ja de la manne trop pleine et claquaïit le pont mouillé;
 ‘tas, brisait la perfection du monôme.
 …. La dernière main plongeait le panier dans une cuve
 d'eau trouble où le poisson trouvait la crasse des pré-
-5 cédents. St
 a U passait la sienne aux suivants. Et l'équipe de terre
 _ halait la charge ruisselante qui laissait de bas en haut
 | a u quai la trace de sa route.
-RÉ
-
-LES ATSRRS
 
 la peine des hommes ts
 
@@ -722,7 +411,6 @@ leurs métiers. Des hommes de mer et de plein vent à
 plus massifs, alourdis par le premier maniement du
 poisson, plus pénible parce que premier. re
 Les mareyeurs qui le reprennent en paniers, maintiennent propres leur pantalon bleu et leur bourgeron …
-couleur saumure. ka
 à Ils notent des chiffres sur un calepin, s'abritent quand
 A il pleut et couchent toutes les nuits dans leur lit, ce
 que montre leur teint plus frais auprès des faces travaillées de la marine qui affronte au large le temps dur
@@ -751,9 +439,6 @@ elles marchaïent, la tête vers le sol, pour combattre la |
 
 | 24 d
 
-RO RS Ed TS AN AO ET RER A 4
-Re rer
-* _  MARÉE FRAICHE : Feat
 barge qui les tirait en arrière, on voyait mal leur 4
 figure, sous la coiffe en capote, soigneusement abritée PAS
 d'an mouchoir à carreaux. Leur cri triste sortait de là- SA
@@ -762,7 +447,6 @@ leurs socques de bois accompagnait sec et vite la |
 mesure de cette musique. :
 5e Au premier poisson vendu, elles font, avec la pièce DEN
 de monnaie, un signe de croix et crachent dessus. Ça Fous
-porte bonheur. LS
 ; HS Le restait les mendiantes pillardes qui, sans le KG
 f dema nder, ramassent le poisson tombé des mesures. La GA
 mauv aise humeur des hommes les met en fuite. Elles
@@ -779,13 +463,11 @@ _ bonne prise, ils continuent les ancêtres pilleurs :
 no qui trompaient les bateaux par des feux sur :
 les roches et, de leur couteau à moules, coupaient les x
 doigts blancs des naufragées pour avoir plus tôt les
-bagues.
 Quand le patron de barque est doux au pauvre _
 monde, où que l'acquéreur de l'enchère tourne le dos,
 la grande charité des gens qui peinent atténue tout e
 cele , et le coup de botte adroit des mousses dirige un
 à' peu plus que le rebut vers la convoitise des misérables. ;
-LE :
 | ‘130 29 marée. — 2
 
 la peine des hommes Si
@@ -808,7 +490,6 @@ les voitures à bras tenaient place large, ne laissant,
 salir les gens. Dans les espaces libres, des mareyeurs
 roulaient des tonneaux pleins de marée ou traïînaient <
 de lourds paniers qui marquaient leur route à grande
-eau. |
 La porte de la salle de vente du hareng ouvrait sur
 un passage ourlé de trottoirs de cinquante centimètres.
 L'égouttement des charrettes de poisson, mouillées
@@ -819,7 +500,6 @@ Un grand registre et un encrier posaient sur la N
 rampe. Occupant toute la profondeur de la scène,
 l'homme surgissait à mi-corps. Dans sa figure soufilée ;
 
-e LE MARÉE FRAICHE QE
 de saut-du-lit, sa moustache, jaunie par le tabac, pleu-
 £ vait sur sa bouche.
 - Ses vêtements sans prestance sanglaient en saucisse à
@@ -834,7 +514,6 @@ plus entendre autre chose, ce qui lui permit de croire De
 …. que tout le monde se talsait. ;
 Alors, il annonça :
  : DE Bateau 2.309. Environ sept cent cinquante mesures. £
-=  Ha-rengs-frais! Neuf... cents. francs! »
 LE, _« Cinquante! » enchérit M. Jules Gaudry. salaisons,
 29, rue du Moulin-à-Vapeur; fier et le pied sec sur sa ;
 _ do blé semelle, le corps épais, la mine rouge. | ne
@@ -848,10 +527,8 @@ _ femmes tricotaient, la langue et l'aiguille lancées à la
 D musique de murmures.
 #4 L'une d'elles, sans perdre une maille, marquait à :
 … grands coups de bonnet la mesure de ses paroles :
-_ étouffées. -
 — Elle débitait passionnément une histoire qu'on enten- $
 Sd ait, par toute la salle, siffler entre ses dents.
-PR à +de * s
 
 la peine des hommes TÉTÉFANEES
 Sa voisine tira de sa jupe une fiole, coiffée d'un godet, = 4
@@ -867,7 +544,6 @@ Derrière les commères à tricot, des guetteurs, le nez =:
 sur la vitre brouillée par leur souflle, $'annonçaient le ” .
 
 nom des nouvelles barques approchant noires sur l'eau 7 À
-grise. “
 
 É Le vent, montant avec la marée, éclaircissait la
 brume. De l'autre côté du port, apparu plus vaste dans u
@@ -883,7 +559,6 @@ les bateaux. FOR
 L''enchère du « surmulet » restait à douze cents francs
 
 È à la maison Lamiraud, représentée par son premier. M
-commis : M. Lengagne, grand garçon brun, à longue 1%
 : barbe. Son lorgnon, mal en selle, l'obligeait à vivre le À
 | nez en l'air. Équipé pour s'aventurer dans la boue des
 quais, la glace des cales et le poisson du marché, il
@@ -896,14 +571,10 @@ jaquette aux basques incessamment agitées par son e |
 habitude de courir toujours. LES
 
 : Dans sa boîte à Guignol, le crieur braillait : | 4
-« Douze... cents... francs ! 4
-
-« Une... deux... trois !.. Vendu! » : “4
 
 | D'un seul coup, il tomba le nez sur son registre, et 4
 
 EL Gt EE VO 2 D em ta ae
-at en _ MARÉE FRAICHE ; ' gas ER
 a de Ce
 pointant son porte-plume mâché, commença d'écrire en +
 à finissant de crier ; puis annonça, après de grands coups HA
@@ -912,13 +583,10 @@ de son petit marteau : Là
 « Neuf cents caisses de harengs glacés ! » .
 4: Un matelot versait en échantillon, dans l'auge publique, se
 une poignée de barengs mâles, choisis gras et laités. é
-+R a Nr \
-_ 1 75 ie
 2 . Devant la porte roulaient les charretées pour la halle
 _… de gros, où deux chemins en croix séparent quatre à
 _ plans de bitume. On y étale la marée. : NA TE
 ; _ Ilse faisait là un grand vacarme ; les crieurs offraient
-_ deux lots à terre. î
 Un troisième vendait le poisson de voitures à bras
 ‘dont la procession attendait sa bénédiction de chiffres.
 er, Les chalands, retenus à hauteur du nombril par un
@@ -927,7 +595,6 @@ K barreau de bois et l'avis : « Il est interdit au public de É
 _ dix turbots bombant leurs glorieux ventres blancs; des
 | pal res de soles accouplées comme deux moitiés qui se 2
 | retrouvent, et vingt congres variant les postures de :
-m_ leurs cadavres flexibles.
 | Le crieur s'adossait au mur, en charmeur de serpents, 5
 les grandes anguilles aux yeux frais répandues autour
 | | de ses souliers. La réduction en faïence de ce petit ;
@@ -941,22 +608,16 @@ la peine des hommes LR
 à d'où sortaient de grands cris. Pour prendre souflle, | AEUnE
 enflait son torse en poche de biniou, écrasant ses trois 3
 mentons entre sa mâchoire baissée et son thorax Ë
-soulevé. ;.
 On ne comprenait rien à ses paroles, sinon le chiffre 4
 final de la mise à prix. Son métier étant de crier, il :
 criait, consciencieux, tant qu'il pouvait et faisait, tout )
 
 au long de l'enchère, du bruit avec sa langue. Inlassablement, il répétait, jusqu'à offre plus forte, le prix +
-atteint :
 « Nous disons cinq cents francs! cinq cents! cinq .
-cents francs ! |
 « Cinq cents francs nous disons! Cinq cents! Cinq 4
-Ÿ cents !... » |
 « Cinquante! » dit un mareyeur.
 À La voix du petit homme, à peine reposée, rebondit : |
 $ « Cinq cent cinquante !.. Nous disons cinq cent cin- Ÿ
-
-quante francs! cinquante !.. cinquante! »
 
 Par terre, un congre à la vie dure achevaïit de mourir, à
 dessinant des spasmes en $. Un matelot racontait la s
@@ -972,10 +633,7 @@ parmi les gens appuyés aux barres d'enceinte pour 3
 suivre l'enchère. =)
 Les petits télégraphistes cherchaient, comme des É
 rats, un trou pour livrer leurs télégrammes aux ma- F
-30 |
 
-50 _ MARÉE FRAICHE Nr
-LL 4h FN 0
 re) eur. s. Les siens lus, Marie Legagneux monta le prix GC.
 ç du lot de dix francs en dix francs et enleva à six cents, L
 sur un magnifique coup de gosier du crieur qui ferma <
@@ -984,7 +642,6 @@ un œil pour mieux ouvrir la bouche : « Six cents |
 . déployé en paravent de chaque côté de son nez.
 pe ui silencieux, on entendit tout le bruit de l'enchère
 — voisine, des soles de la « Marie-Rose » que M. Lengagne ù
-te nait à quatre cent soixante francs, au jugé : quatre |
 _ francs le kilo. Après deux surenchères de Marie Lega- ÿ |
 _ gn eux, il prit à cinq cents francs. SR
 Un employé du chemin de fer, venu apprendre lim- - #
@@ -996,7 +653,6 @@ _ s'échouer sur le sable des pays sans port. Dans un pli
 | curé, ils boutent leur brûle-gueule et s'en vont en mer, à
 la pipe au chapeau. |
 % 3 Ils. versaient sur les carrés vides des panerées de
-. poissons. Deux gaillards argentés d'écailles balancèrent
 une manne d'où coula un torrent de chiens de mer. De
 | vieilles femmes, rudes de tête et dures de mains, les !
 Le triaient en deux lots : pupilles et fortes pièces. Tirant
@@ -1008,7 +664,6 @@ _ le sang de leurs ouiïes.
 _ Engros, le chien de mer vaut de cinq à huit sous le :
 . kilo, poids au jugé. La première vente de onze grosses
 ‘ pièces atteignit vingt-et-un francs. ;
-APRES Se
 
 la peine des hommes Er “SRE
 a Deux femmes, bien vêtues, grandes comme des mâts, Lies
@@ -1017,14 +672,10 @@ enchérissaient, par clins d'œil au crieur, un lot de
 ; point se regarder, mais chacune ne songeait qu'à l'autre 3
 et, de leurs dents blanches, elles se caressaient les
 lèvres, ce qui les révélait capables d'acheter cher pa
-dépit. + SE
 Une petite bonne heurta du panier Marie Legagneux
 qui lui dit des insolences. Impatientée de voir sa ser
 ; vante en arrêt, sa maîtresse la tançca ds ne pas savoir TE
 | traverser un marché sans se prendre de bec avec des
-harengères. LR
-; — « Mais, Madame ! » ES
-— € Allons !.. Venez ! » ES
 Cette jolie personne, aux traits un peu grossis, A
 comme de trop dormir, descendait de la haute ville,
 _ choisir du poisson pour ses invités. 5
@@ -1039,17 +690,13 @@ chandise. ne
 - dez! Mais regardez donc! » : de. 4
 Toutes les femmes en emplettes, panier au bras où |
 servantes aux trousses, ameutaient ainsi leurs convoi M
-M0 -tises. .
 Il vint une jeune Angiaise à peau douce, ses abondants M
 cheveux pâles ordonnés derrière la tête par la résille -
-à nationale, è ‘C2 |
 
 SL een CE ei AU CN ir PL BIBERE EC T'ON A dE. LT ATP
 | LHHRDNa st Den
-…_  MARÉE FRAICHE k LASER
 Sous ses vêtements taillés en sac, vivait la grâce de :;
 son corps jeune, assoupli par les jeux où l'on cout
-_ beaucoup. te.
 À Le Derrière elle, son ombre projetée trente ans plus tard : :
 . « mother »; les dents énormes, les os saillants, chaque 2
 - chose à son extrême par la poussée du temps. Le même TES
@@ -1070,7 +717,6 @@ $ ‘e e poisson amené à la ligne, se débat dans l'eau où
 | rien _ne le heurte, meurt vite et intact. Dans le chalut, |
 | il est traîné plusieurs heures, froissé, meurtri, mordu, :
 | Gette agonie fait de son cadavre martyrisé une chose
-_ molle. È
 Un grand monsieur à petite casquette, droit comme
 | un pieu de la jetée où il venait d'accomplir son « airing »
 | U atinal, aborda sans sourire la maigre dame à lunettes
@@ -1092,18 +738,15 @@ des arrosages fréquents; les turbots en grande toilette
 portaient un gilet blanc; les chiens de mer écorchés :
 allongeaient leur corps saigneux : la peau se vend à
 part; des nielles bleues ornaïent le dos des harengs <
-d'argent. |
 
 Un domestique de grande maison souriait, entre ses L
 favoris d'étiqueite, à une cuisinière de la haute ville. <
 Complices, de même race, ils se contaient leurs potins
-d'office : ;
 
 « Figurez-vous que madame... »
 
 Ils méprisaient la plèbe des petites bonnes à tout
 faire et narguaient les ménagères de la basse ville qui Ke
-vont au marché, panier au bras. x.
 
 — « Ça n'a pas de domestiques! » Ë
 
@@ -1121,17 +764,11 @@ reculé allongeait le crâne. Elles allaient toutes de la $
 même allure, sans hâte, réglée à leur habitude d'avan- j
 cer par rangs, au bras, épaules jointes, en brochettes è
 
-d'oiseaux. Ë
-34 :
-
 D de
-_ OMARÉE FRAICHE :
-LS SES x
 … L'humidité de leur métier marquait les mareyeuses.
 aux mains gercées. « 3 _ La fumée qui dore les harengs teignait en roux les k
 | cheveux des saurières, bises de peau et sèches d'habit.
 pe Peu de beaux visages : des profils vigoureux aux
-ang es brusques.
 2 Parmi le peuple des matelotes signalées par la tradi- %
 ‘tion du costume et de la coiffure, tranchaïent les femmes Ke
 _ des métiers nouveaux qui créent la race nouvelle : les
@@ -1148,7 +785,6 @@ Ra Vers Outreau, au-dessus des usines à ciment, le tra-
 ….… vail des cheminées à fumées blanches et des cheminées
 LE. à fumées noires, illustrait l'espace de dessins imprévus.
 …—. L'horizon ouvert par le cours de la Liane s'approfon-
- dissait. à
 —_  L'ascension des bateaux sur l'eau montante variait
  Paspect du port. Quittant la vase du fond, la flotte
 | tirait sur ses amarres et dépassait de toute la coque le à
@@ -1175,13 +811,9 @@ Trois femmes firent la chaîne pour les passer à bord.
 
 Un poussier noir ombrait leurs traits rudes. Elles sem-
 
-blaient barbues. 154
-
 Aux jours évidemment rares de leur ioilette, on aurait
 
 apprécié leur âge ; aujourd'hui il aurait fallu ie leur À
-
-: demander. 3
 
 | La plus grande, maigre comme une vergue, avait ]
 
@@ -1205,8 +837,6 @@ té Un « rat de quai », fatigué de s'asseoir sur les e
 
 tonneaux, vint regarder avec fureur le travail des trois
 
-femmes. 3
-
 Ce pâle garçon, profondément coiffé d'une « cap » +
 
 vieille comme le roi d'Angleterre, était ivre et indigné : 4
@@ -1224,13 +854,9 @@ femme et ses revendications personnelles d'ouvrier
 
 assoiffé par la main-d'œuvre féminine. À
 
-36 £
-
 LT EN pe 2 QUE 4 ar PET À ALES ES SAS ARR EE
 
 Re ACT RENE ce
-
-+. À! ‘©  MARÉE FRAICHE HACXEES
 
 L'être borgne, louchant au ciel, lui laissa tomber sa 5
 
@@ -1248,8 +874,6 @@ LE Si ti reviens, min fieu, ti vas au bassin. »
 1 n'y revint pas, mais on le vit longtemps, appuyé au |
 
 mur de la halle, faire vers le port des gestes de malé- :
-
- diction. ;
 
 À Les bateaux, entrés la veille, finissaient d'armer.
 pour repartir, leurs équipages reposés par une nuit au RCI
@@ -1278,14 +902,11 @@ BE ar er Sainte Rose 2.908, onze hommes et deux mousses. -
 
 | Ass s sur le bordage, les bottes pendant vers l'eau,
 
-LS EX TIM
 | ne 5 87 marée. — 3
-Î De
 
 la peine des hommes ‘PCIe
 un maielot de dix-neuf ans tambourinaït du talon en $
 courtisant Marie Tivuinne, une mareyeuse de chez 1
-Wadoux-Lamiraud, Lamiraud successeur, Marée
 fraîche et salaisons, où elle encaissait des harengs à 4
 deux sous par colis. |
 
@@ -1323,18 +944,11 @@ leur était point méchant, même par ce temps quine
 
 met pas en humeur de rire, car tous ses enfants étaient |
 
-en mer : 4
-
 « Je suis ben vieux pour savoir, à ct'heure. Il court : 4
 trop vite pour moi. Prends garde où tu mets tes pieds, |
 
-s petit fieu! » > 200)
-. OI
-
 ir, PP à pt AN des ÉD AN ROSE À RS TL,
-er 7 k
 la 2NE Fe): MARÉE FRAICHE
-RS >
 + La matelote guettait, entre les mâtures des bateaux ;
 NS _ accostés, les gestes de son ami sur le pont de sa barque
 —…. qui filait dans l'avant-port. La fille légère allait, adossée
@@ -1356,7 +970,6 @@ _………_ Des femmes du Portel, assises menues dans leur
 —…._ giberne, priaient, le front bas, pour une barque où leurs
 | Be hommes partaient pêcher l « hèrèng » vers le Nord. La
 É= tache blanche de sa voile fondait lentement dans le gris
-__ dularge.
 | —_._  « Guette-la ! » disaient les jeunes.
 S « Je ne vois plus rien, » disaient les vieilles.
 _… Dans leur groupe clos, le vent brutal claquait des
@@ -1367,7 +980,6 @@ Mu Marie Tivuinne se signa et marcha devant elles
 Re Dès que l'avant, dépassant les musoirs, toucha l'eau
 _de la pleine mer, le patron de la « Sainte Rose » cria, PARCS
 - selon la coutume : « la Prière ». a
-PNR »
 
 : la peine des hommes s Re
 Tout l'équipage se découvrit. De chaque côté du ba
@@ -1389,17 +1001,14 @@ mes. Le vent soufflait d'une grande haleine régulière 1
 < qui maintenait, tendus raides vers le Sud, sans une à
 défaillance, les pans d'habits des gens aventurés au 4
 bout de la jetée où les paquets de mer vaporisaient de ï
-l'embrun. 5:
 L'eau brisée reétombait des maçonneries en nappes
 calmes pour rejoindre la fureur de la Manche et met- à
 tait sur la vague hurlante le contraste des sources
-plaintives. 2
 De sa bave salée, le flot insultait la forêt de poutres :
 qui posait devant sa violence la tranquillité des vieux
 arbres. Se soutenant depuis les pilotis profonds enfouis 4
 dans la vase, disparus pour l'Éternité, la légion des
 grands troncs que les oiseaux habitèrent, repoussait la
-mer ennemie. |
 Devant les musoirs, les barques, voiles ballonnées,
 quadrillaient vives sous l'air bourru, et semblaient jouer s
 40 4
@@ -1416,7 +1025,6 @@ $ Dre dessin agile de leur course plaisait comme le vol 2
 pur des mouettes circonflexes que la brise portait au
 dessus d'elles. RU
 Le rythme parfait de leurs ailes pointues cachait leur Ex -
-oo A r#
 effort sous une grande beauté. es
 #8 Penchée sur l'eau violente, une barque venait de * #
 
@@ -1424,11 +1032,9 @@ effort sous une grande beauté. es
 lim mobilité de la digue Carnot qu'elle atteignit, doubla. ns
 Vite après, trouvant le point au premier essai, elle tra- LS
 ve sa le jeu des barqués peureuses et fila ferme en plein pu
-chenal. Ft,
 Sur son pont argenté de harengs, les hommes luisants SA
 d'eau amenaient les voiles. Un tout petit mousse se cram- .
 ponnaïit seul à un câble qui le balançait comme une |
-_ marionnette. 5
 - Les barques hésitantes imitèrent la manœuvre et ESA
 suivirent le sillage. LS
 … La vague accueillait mal celles qui sortaient. Sitôt ee
@@ -1437,33 +1043,12 @@ _ passé l'abri des jetées, elle les dressait cap au ciel. On LES
 voir, à la descente de la lame, que la carène levée sur id
 Veau mouvante et le chapeau de pluie de l'homme de re
 
-PME > v SE DEL NRC RARE PERLE NAS IE
 HE SAT ES De EN ne. Re Fe
 Mare ni PR OSACN CE Deer A ee AE pes ne
-Eu re Se £ = Dre RES
-RER UEES) ES Æ LTSSTÉS
-ee LCLRITERSSSS
-RP. ï Se à ESS LRELT EL r É
-. D
-TIRE A eZ RAS & - = ARTE Pret AE à PE
-: LITRES es
-ee LH : LITE RE
-D Rte 7 Re
-RARE x a RE PE £ F re + ; LL EAÈPESS
-RE 0 5 £ RL CS Le FES ERO AUIRSES
-ou Es Sa TL NET (DNpE _ ER UE CUS #10 TEA HE
-
-y it KT ARR OT nd ETC Las s V
 
 PR ee AE ie DB eh Die on)
-LES) PRE USA HN REC ARR : 1RS = FER Re
-RSR AREA VX LENOIR
-2 0 rt CT j
-Re. c
-x. + k
 71 rare Tivuinne, éblouie de fixer la voile amie s'ense- Fa
 1V% velir dans la distance, retourna au travail. Elle La
-"a à
 rejoignit ses compagnes dans les rues de Capécure, | à
 “parcourues par l'odeur des saurets. Les milliers de ES
 harengs qui dorent, pendus sous l'ouie dans la fumée ST.
@@ -1475,8 +1060,6 @@ ma sons pauvres et tenait au linge des femmes. La ville Le
 entière, jusque dans ses dessous, puait son métier : le
 
 É “À bes matelotes gagnaient les portes à enseignes :
-ES « MARÉE FRAICHE ET SALAISONS SE
-5 EXPÉDITION. EXPORTATION » 2
 et résumaient leur besogne, bras retroussés, devant de
 de s tas de poissons et des baquets d'eau. Du couteau %
 pendu à leur ceinture, elles décousaient les chiens de DOME:
@@ -1484,16 +1067,13 @@ mer par grandes entailles sûrement conduites. Parfois, Se.
 elles réchauffaient dans leur corsage leurs doigts Sos
 engourdis par la glace pilée. Mais elles flânaient peu, ;
 Étant aux pièces : dix centimes par petite caisse de cent a
-_ EV =: à Û 2 ; ; Fe
 harengs et vingt centimes par caisse glacée; il faut S :
 ranger le poisson.
 
-HET + È Et E A M “Fa
 la peine des hommes Ma
 La mise en paniers remplis pêle-mêle vaut cinq cen- RL.
 times le cent. M: L
 ï La maison Lamiraud : 2 :
-; « MARÉE FRAICHE. HARENGS. ENGRAIS DE MER »
 occupait vingt femmes encadrées par six hommes à
 payés de vingt-cinq à trente francs la semaine. »
 
@@ -1533,9 +1113,6 @@ contre le Monopole et hurla ses injures habituelles : À
 : « Sale compagnie |... On va perdre une heure ici!
 Faut nous la payer! » FEAR
 
-D Me dl te
-D Re dde
-nu.  MARÉE FRAÎCHE % a
 - I courait, remuant en nageoires ses oreilles minces. te
 Son souflle court donnait à ses prunelles des ahurisse_ ments d'asphyxié. ; 24
 Il arrivait les bras flottants, le nez haut, comme tiré LG
@@ -1552,7 +1129,6 @@ frubes chevaux, alignés de front, se flattaient des S
 des hommes frénétiques derrière eux. So:
 “ Enfin placé, Narcisse Belleau travaillant de la y.
 Ja ngue, des bras et des oreilles, s'empara de deux
- brouettes. RE
 — Poussant l'une et tirant l'autre, il tapait de l'avant et :
 “accrochait de l'arrière les chariots concurrents, de sorte vus
 … que sa roue était comme un fleuve de blasphèmes; un Ë
@@ -1566,7 +1142,6 @@ ne. N larcisse, reprenant la cause du public, apostrophait, GES
 avec un enthousiasme furieux, les préposés aux bas- :
 _cules, désignés à la colère de la foule par l'inscription <
 | _en laine rouge de leur casquette. 1Ë
-RS Re 45 marée, — 3. L
 
 la peine des hommes ss 4
 à Sans wagons pour y vider les chariots, ils les ali x.
@@ -1600,9 +1175,7 @@ classement. Des gens criaient autour des bascules. Ils 4
 agitaient leurs feuilles d'expédition devant les guichets 4
 où, sous une ampoule électrique, un employé en sueur 4
 reluisait, fou d'agacement. l
-46 “à
 
-D MARÉE FRAICHE |
 _ Le vieil aiguilleur du poste Saxby, rabougri par l'apn. proche de la retraite, vit venir le chef et se tassa contre
 ses leviers, pour moins gêner, dans létroite loge de
 verre, les gestes qu'il prévoyait furieux de cet homme
@@ -1642,9 +1215,6 @@ _ des instructions. e
 —_ Le vieil aiguilleur à tête cuite prévenait son collègue :
 
 . « Tention, Georges. Le chef y va chez ti. Et il est :
-S. point content, sais !
-
-: Ed ; = Û
 
 Se la peine des hommes cs de 4
 — T'as ben raison, Georges, ils nous feront point à
@@ -1686,8 +1256,6 @@ rouge. Au pied, le chef, en attendant le feu blane, dis- 4
 ciplinait M. Ramblenne par un discours sec. C'était 5
 pourtant un vaillant, ce garçon. Il remuait des wagons <
 
-en plaine depuis quinze ans. ; 4
-
 Cette pratique le préparait mal à la critique inexpé- -à
 rimentale d'un homme de bureau pour qui toutes choses ‘+
 tenaient en chiffres sur un morceau de papier. "4
@@ -1696,26 +1264,19 @@ L'habitude de ne voir des réalités que leur figuration, ‘3
 : leur statistique, ôtait à celui-ci la notion de l'indocilité 4
 48 4
 
-2 GT ES An Sr PR PR
-RS F* | MARÉE FRAICHE HE
 dela matière. Il exigeait les choses faites à mesure que Gus
 . pensées, ses ordres aussi vite exécutés que donnés, Hi
 Sans apprécier la différence entre remuer la langue pour #
-RE
 _ dire : « Trente wagons », et remuer ces trente wagons, k 3
-1 LIÉE . n . =:
 de lare dix tonnes, total trois cent mille kilos. NS
 Au long du ballast, le fil relié au levier de la cabine ù
-Rire . a An . é
  frémit comme une guitare mal pincée. La tôle du voyant SE t
 . claqua sur le mât de fer. Feu blanc! a
-É #4 OR : A LP = . 2 7
 -  Aussitôt,-la lanterne à trois couleurs d'un équipe las
 …. décrivit des arcs de cercle et sa trompe mugit le coup Fi
 double du refoulement. A l'autre bout de la voie, proche À
 1 Ja machine attelée, une autre lanterne répétait Le signal. ee
 _ Le mécanicien répondit. Les essieux doucement tour- À
-_ nèrent. ;
 _  Grimpant sur un marchepied, le chef salua M. Ram- |
 _ blenne de cet adieu menaçant : :
 « Je vous enverrai une note. » “
@@ -1728,14 +1289,10 @@ EN à une explication écrite pour classer aux archives. à E
 de sa lanterne et l'âme pleine de malédictions. ë
 “à _ « Je me suis éreinté. Je n'ai pas réussi. Trois fois je \
 - viens de lui dire pourquoi. IL faut encore le lui écrire. ë
-_ Quel métier! » :
 -_ Deux mille francs par an; logé, les nuits à passer et es
 _ les attrapades.
 + Un mécanicien de débranchement cria : $ E
 mm.  « À l'eau! J'en demande depuis une heure. Mes tubes à
-_ brülent! » :
-‘10 49 :
-36 ;
 
 la peine des hommes F4
 Pour preuve, il ouvrit grand son injecteur qui râla, 4
@@ -1750,8 +1307,6 @@ demandée à coups de corne. 4
 « Sept! » dit le sous-chef qui entrait. : 1
 L'homme renversa ses leviers avec la sûreté de ma- à
 niement des longues pratiques; dix ans de service, à 1
-mille sept cent cinquante francs, non logé, quatre 4
-enfants. |
 Sous la lumière renvoyée par les poignées d'acier des Ÿ
 : manettes Saxby, la tête de M. Ramblenne penchée au 4
 téléphone, témoignait la force de son caractère et la ÿ k
@@ -1780,9 +1335,7 @@ En effet, la lumière blanche des lampes à arc mon-
 trait les voies pleines. / h
 
 Le chef lui parlant au téléphone, M. Ramblenne Ÿ
-5o À
 
-Dr. SE MARÉE FRAICHE ‘
 ôta sa casquette, comme s'il percevait la présence |
 —. « Encore du matériel? Ma machine n'est pas revenue. :
 — Servez-vous de celle qui vous reste.
@@ -1819,7 +1372,6 @@ sans lire les étiquettes. Des « Paris » tombaient dans
 les & Est via Hirson ». Ps E.
 M. Lengagne cherchait un dirigeant. 534
 = Narcisse Belleau lui ouvrait la marche en proclamant
-leurs sentiments communs : ! E
 € Il n'y a pas de chefs! Ils se cachent tous! Sale 5
 compagnie! Pas de personnel. » <2
 L'Administration eût gagné à recruter, pour sa dé
@@ -1840,16 +1392,13 @@ Marie Legagneux s'exaspérait de voir ce commis
 exiger des égards et attendait, dans la fureur de l'impatience, la fin de ses discours, pour réclamer aussi dela
 sollicitude envers sa marchandise. Se
 Également avides du respect de la Compagnie, ils la
-volaient, en revanche, ingérieusement. 4
 L'encombrement des bascules ne permettant pas la
 vérification des poids, M. Lengagne déclarait cent kilos 3
 en moins. Cette journée de débâcle permettait le trans- 3
 port gratuit d'au moins vingt tonnes de marée. ) 4
-52 “+72
 
 de se
 
-ER + MARÉE FRAICHE be *
 M. Barbès montra un instant sa casquette blanche,
 
 - trouva que ça allait mal et dit que ça allait bien, de QE
@@ -1877,19 +1426,15 @@ _ Quelque part dans l'humanité, une petite population ; =
 | _ le cricket, des pioches d'ascension, usagées à monter, By
 ù nd escendre et remonter, ainsi longtemps. Cela luisait, ra
 - fer et bois, comme loutil trop tenu d'un très vieux MATE
-“ea ntonnier. } HE
 _ Un voyageur, vêtu de laine blanche, descendait
-demander: Sd
 —. « Refreshment room, please ?.. Le bouffet?.. Time ne
 
-_ toget a drink? » Re
 “30 « On part, Monsieur. En voiture. Restaurant dans SE
 
 _ Le gentleman blanc dit: >
 ee « Its full up! » et remonta maussade dans son wagon. 73
 .… Le restaurant, en effet, était plein comme un Temple LT
 au époques de foi miraculeuse. La lenteur du démar- =
-FRS ÉS
 
 la peine des hommes : 3
 3 rage laissa le loisir de contempler les petites tables n.
@@ -1899,10 +1444,8 @@ mangeoires, mastiquaient religieusement. ï « Le pilote du train dit :
 « Tout pour leur bouche, ces Anglais; ils mangent 3
 avant de s'embarquer, ils remangent en débarquant, ils k
 dînent dans le train et ils ont des provisions dans leur
-valise. » 4
 Il gagna la guérite où il rangeait son souper : trois È
 tartines au frais dans un sac en toile et une gamelle de À
-café. à
 Sur le quai à marée, les hommes avaient faim. L'in- “4
 tensité du trafic aliongeait le service au delà de l'heure |
 du repas.
@@ -1923,14 +1466,9 @@ sitôt le dernier colis à bord : 8 heures 45. Le train à L
 former partait à neuf heures vingt devant le train 2,
 convoi poste pour Paris, qu'il ne fallait pas gêner.
 Les aiguilles de l'horloge tournaient trop vite. La 4
-54 à
-É
 
-Æ MATE. Re » , ÿ
-‘RE 3 MARÉE FRAICHE 2: : |
 ! manœuvre activait, rassemblant les wagons sur les :
 indications du sous-chef. Il courait en comptant la
-À “cha ge : 28 wagons, 295 tonnes.
 14 Une paix immense habitait l'espace où se répandait
 “la musique de la bouée chantante, à l'entrée du port.
 Sur la colline de Capécure, les rares feux de la route
@@ -1940,7 +1478,6 @@ tranquillité dépendait des signaux. Neuf heures son-
 … nèrent. Au quart, un coup de levier les mit au rouge.
 _ On ne passait plus.
 É ê Une trompe de la grande cabine signalait l'arrivée du
-pt ain d'Amiens.
 A 40, son heure exacte, le sémaphore de Calais
 … annonça le train 2. Alors, M. Triquet, instable et vif
 tant qu'il espérait gagner, mais résigné dès qu'il avait
@@ -1970,7 +1507,6 @@ lateur. Le patinage des premiers tours de roue brim- Soc
 bala les deux hommes sur la machine en furie, puis M
 le train chasse-marée partit à belle allure, dans la
 plaine d'Outreau, éclairée en bleu par des moments de ‘4
-Hé lune. “4
 Les fumées blanches des fours à ciment, distinctes la
 
 nuit, traînaient dans le ciel. Les étoiles pétries dans ces 4
@@ -1987,24 +1523,17 @@ remis les titres à l'heure du départ. Parti sans pointer, 4
 il trouvait maintenant plus de wagons que de feuilles. M
 Il s'énervait. À l'arrêt d'Étaples, dispute. Posant sa E
 lanterne sur le marchepied, un sous-chef de manœuvres M
-annonçait trois wagons à ajouter. 4
 
 « Je ne les prends pas, dit Daret, j'ai déjà quinze »
 tonnes de surcharge. 14
 — Vous ne changez pas. Toujours perdu. » 4
 Le mécanicien refusait de tirer : 53
 | € Un bis nous suit. Vous le bourrerez. Je ne veux pas À
-rester en route. » 1
 
 ë Folliette précipitait des volées de charbon dans À
 À l'abîime de flamme du foyer ronflant. : 1
 5 Repartis, il prit dans un coffre du tender un flacon où :
-56 ‘3
 
-Le MSENEERRR ES MES RTE RDS +,
-D he nes
-De: ; » l'E + }
-MEN ET) MARÉE FRAICHE $ - “
 noussait de la bière agitée par la marche et but, <
 apr ès Taillandier, dans un quart militaire désaffecté, ‘ » ASP = . . ES
 À is que la trépidation lui envoyait dans
@@ -2033,11 +1562,8 @@ rapidité des ailes d'une mouche. Dans la bouteille à |
 moitié vide, le restant de bière moussait jusqu'au bou- à
 chon. Le quart de zinc faisait, sur le couvercle sonore -
 du coffre, une musique en « furioso ».
-DES TRS 2 t
-5 À 57 2 $
 
 + la peine des hommes
-CRE
 
 Les yeux dardés du mécanicien cherchaient, au plus
 
@@ -2064,8 +1590,6 @@ ligne; l'homme caché par le rideau de la nuit, on ne
 distinguait que la silhouette du bras qui tenait le feu
 
 blanc, à hauteur du genou, et les pieds éclairés en
-
-plein. L 4
 
 Le maléfice de trois heures du matin torturait
 Taiïllandier. Des démons irrésistibles faisaient force
@@ -2095,7 +1619,6 @@ martelait les joints des plaques tournantes de la gare
 de Paris. 4
 
 Re re, are Le PRES NA ne AL LR PAR 2
-06e , 1
 7 s camions des Halles attendaient le poisson frais. |
 ES Mais la livraison se faisait mal. On ressentait le :
 $ | mauvais chargement causé par l'encombrement de Bou4 _ 4 k . . . . 0 0 .
@@ -2107,26 +1630,19 @@ _ « Montrouge-Gare de l'Est » revenaient les carrioles
 - des maraïchers de Saint-Ouen dont le cheval, tranquille
 S nrous les rênes molles, suivait la route par habitude. :
 —. Il allait être quatre heures du matin. Au carrefour
-AS EU L
 _ des grands boulevards filèrent trois fiacres en cortège.
-*æ k, K à 7
 FE: Derrière leurs glaces l'ombre entourait des plastrons ‘
 _ d'habits et de vagues choses blanches de femmes en :
-_ grande toilette. ;
 - Le geste cadencé des balayeuses au nez rouge tenait è
 . tout le trottoir désert, leur bouleau attaquant Fordure :
 … en un cercle pur tracé du pied des boutiques au ruis- S
-_ seau courant. : |
 … Un violoniste, retiré en escargot sous le mince col de a
 sa jaquette, marchait si rapetissé que ses genoux cares- .
 _saient son menton. Il changea son étui de bras afnde
-De 5 * 25
-* Fe = se” z
 
 | RTS
 la peine des hommes ST
 secourir un bout de cigare poursuivi par les grands 4
-balais. US.
 Dans la distance, les sergents de ville passaient à
 : encapuchonnés comme des moines qui renoncent au -4
 spectacle du monde. 4
@@ -2137,12 +1653,10 @@ parler avec une telle animation. Une fille en cheveux se 3
 promenait sur le trottoir. Elle reniflait de froid. 4
 On braillait dans la rue Sainte-Apolline où il y a une +
 maison publique. Des voix qui n'en pouvaient plus ê
-criaient : PE
 & A la soupe! » É
 Cette bande partit, en chantant les choses obscènes |
 des régiments en marche, vers les Halles où les clartés »
 des devantures de marchands de vin cernaient lé 2
-carreau. =
 Des odeurs de friture et de soupe en plein air faisaient 4
 - bon accueil aux gens dans ce quartier plein de mar- à
 mites et de litres de vin. Après deux heures du matin, à
@@ -2156,13 +1670,9 @@ Ils maniaient la marchandise avec la dextérité d'ou- È
 vriers vieux dans le métier. Cette verdure répandait un È
 parfum de pleine campagne, aiguisé par le piétinement
 des souliers ferrés, écrasant le déchet âcre des grosses :
-feuilles. É 1
-- |
 
-Fe : ALES _ MARÉE FRAICHE Lee LEE
 ; Les ivrognes, que la maison publique avait expulsés se
 pour sauvegarder sa réputation, arrivaient par la rue pes
-_ Rambuteau : es
  « Meunier! Meunier! Tu es...! » FAR
 … La renifleuse les suivait. Ils faisaient d'elle tout ce
 qu'ils voulaient, sous promesse d'une soupe au fro- ,
@@ -2210,7 +1720,6 @@ rudes, et leurs figures imbibées de vice marquaiïent 4
 < parmi les têtes ordinaires occupées du souci journalier à
 de payer les épinards un sou moins cher. 0)
 $ Mettant bas ses deux paniers, une vieille, bras :
-à ballants, se plaignit : Be
 | « C'est lourd. J'ai bien du mal à mon âge! » 2
 Un garçon terrible, chargé d'un formidable faix de
 poireaux, criait qu'on lui fit place. Sa charge dépassait 4
@@ -2225,8 +1734,6 @@ perdit rien et, sitôt éveillée, elle le couvrit d'ignominies:
 Content du chemin libre, il passa, indifférent, On
 rest pas poli aux Halles. À
 
-: HER MARÉE FRAICHE :
-LT RE PRO :
 = Les porteurs du pavillon de marée patientaient et és
 | buvaient chaud.
 “ La peau rouge de vivre à l'air de grand matin et
@@ -2259,10 +1766,6 @@ Let l'haleine forte. Le vacarme du premier cri des ven- |
 —…_ deurs au gosier frais les accueillit :
 M. -« Du beau merlan ! Du beau merlan ?
 FA — Par ici, les raies.
-LA 63
-Eu
-
-A PM nr ee ST ARR
 
 la peine des hommes THEN
 — Des fins turbots. Des blancs turbots! » ra
@@ -2291,13 +1794,11 @@ un turbot et quelques paires de soles « pour la famille »
 ; et s'en alla en rendant des saluts à tout le marché. 4
 Le commis de M. Turine avait à peine eu le temps de ‘4
 
-Crier: “à
 « du merlan! » E
 
 : qu'il dut baisser le ton pour souhaiter le bonjour à A
 
 - M. Rousseau et sa fille : des fruitiers du faubourg 3
-Saint-Germain. “À
 
 M. Rousseau tenait les mains jointes sous la bavette 4
 
@@ -2342,10 +1843,8 @@ de souriantes disputes que celle-ci en mettait à les lui
 de la haute diplomatie. j
 | k Mademoiselle Rousseau, se couchant de bonne heure en
 | et se levant tôt, comme toute la race des femmes de re
-? EE. Res O0 marée. — 4. |
 | TIRE x
 
-UN RENE ES ARR NRC RSS CENTRO Re PRE QN RE
 la peine des hommes Te
 marché, attirait par ia fraîcheur de son teint et l'éciat D.
 de ses yeux. Les hommes, retournés vers elle, regar- LR
@@ -2364,9 +1863,7 @@ Des plongeurs de restaurant, en veste bleue, le tor- É
 chon noué au cou en La Vallière, processionnaient du à
 marché à leur fourgon. £ ne
 _ Devant l'étal de madame veuve Maintenant, mar- me
-chande au détail, musaient, manne au pied, deux pâtis- 4
 siers de Saint-Philippe-du-Roule : 4
-« Paton, 212, faubourg Saint-Honoré » 4
 recommandé pour ses timbales de filets de soles. Les
 apprentis concurrents se témoignaient du dédain, chaque
 maison étant la première de Paris. Le
@@ -2376,11 +1873,8 @@ tionné en face le banc de madame Foulon. La rivalité
 des pâtisseries voisines excitait les apprentis à se battre. À
 « Eh ben! mon vieux, ça va chez toi? On fait toujours à
 des turbans de filets de soles avec des escalopes de
-cabillaud ? , |
 — Ferme! » dit Je petit Truquelin qui leur tourna le |
 
-RTE :
-Ro: . MARÉE FRAICHE :
 …_ dos et s'assit sur le bord de sa manne déjà pleine de -
 
 légumes et de viande. L'arrivée du patron lui fit ôter
@@ -2407,7 +1901,6 @@ de sa longue chevelure blanche, à l'académicienne.
 La raideur de ses jambes nuisait à la rapidité de son
 "3 ; ; allure maïs ajoutait à la majesté de sa démarche.
 —_._ Comme il ne pliait les genoux ni le cou, son approche
-_  évoquait :
 …._  « Messieurs, le Roy! »
  Penchant son front plissé de soucis, il médita devant
 … létal de M. Turine.
@@ -2420,20 +1913,16 @@ D de CS à EE
 la peine des hommes
 | HSE
 : On lui gardait les plus fines pièces pêchées par la
-« Marie-Rose ». ETS
 Les gens de province venaient à Paris pour mange
 s son plat célèbre : le filet de sole Ouvrard et, au retour, … 5
 : s'en vantaient dans leurs familles. .
 | De Moulins à Carcassonne, des messieurs disaient au
-café : "TS
 « Pendant l'Exposition, quand nous avons dîné chez É.
-Ouvrard. » : 2
 Et on les regardait avec intérêt. F2)
 L'arrivée de nouveaux camions renouvelait la vente.
 Les crieurs s'enrouaient. ù 54
 Entre le pavillon de gros et celui de détail, tenait, sur Re: 4
 la chaussée, la grande animation des foules de
-marché. È ETATS
 Un courant direct de public, coupant de la rue Ram- :
 ï buteau à la rue de la Cossonnerie, heurtait le remous 4
 des acheteurs et des porteurs signalant qu'ils étaient
@@ -2444,7 +1933,6 @@ M. Ouvrard perdit dans la cohue la solennité desa
 démarche, mais il retrouva l'équilibre de son chapeau
 et la raideur de ses genoux, sous le pavillon moins
 peuplé des dames détaillantes où sa belle allure le ren- e
-dait populaire. ; #
 Elles avaient peu changé depuis la mère Angot. Le 4
 =. grand air colorait leur visage et il était difficile de
 Ë passer entre leurs bancs, sans subir l'offre faite à plein. ê
@@ -2485,35 +1973,17 @@ _ Depuis les siècles des siècles, les deux corporations e
 parait et reçoit le pourboire. ITA
 _ L'homme graisseux de faire à manger et l'homme 2
 bien lavé pour servir à table ne pourront jamais SE
-D
-"# é 8 ; à F8 $
 
 SES PR ARS RE EPA ER ie Mots CR ere NS LTD RS
 PR SR te TR Le JOSÉ De Cle ETAPE CCI NT ER
 
-Der a LE RS TES CIE Pr Dr En, GS F RS, :
-
 Ce SR PT SR AS SE ce
-
-LÉ ES EE RAR nn LR ENPSS
 
 : PA EE nr de G Ë ne A ee ü
 
 ere rl < De ar De
-AURES - = SE Te, e ;
-175 RE
 
-7 IE L | MT MCC TN
-ARTE _ ; L; = LL CES) PET CRÉES
-LEFT PA 3 DRE =
-45 FER CN DR
-MR Es < 27 FTTRRIESRSSSS
-DA LEE ERA
-Lt ERRESS 3 * eus; Lac Dee
 AE ET 773 & Voé Vito Pr
-A te FRS } LÉ ET GIE RE. #
-LATE AS Es ESPTLUE KES *
-M. : : L È FL LANCE
 
 j' [NN parvenait aux cuisines du restaurant Ouvrard $
 16 19 par un couloir contigu à un théâtre : « Entrée des À
@@ -2534,7 +2004,6 @@ corps en allégresse. Sur les timbres, dont la glace frap-
 — « Marie-Rose ». Des aides en levaient les filets. Fort $
 æ. habiles à cette besogne, qu'ils accomplissaient du matin 54
 —_au soir, ils ne s'en reposaient qu'en épluchant des À
-_ moules. |
 La monotonie de l'œuvre attristait leur vie, A l'âge \
 des hautes ambitions, ils songeaient à devenir rap
 
@@ -2549,10 +2018,8 @@ Ils arrivaient de province, d'où leurs parents, patrons M
 à d'hôtels « des Voyageurs », « du Commerce » ou « de la :4
 Gare », les envoyaient chez Ouvrard, calculant pour
 leurs héritiers le bienfait d'un apprentissage dans cette 3 Ë
-maison célèbre. GE
 Un garçon de dix-sept ans dit, sur un ton de Gascogne: 4
 È « J'en savais plus quand je suis entré ici que mein- 708
-ù teneint. » ee.
 Il développait le regret de sa science perdue, mais un CN
 ancien, qui ne pouvait admettre une capacité supérieure LR
 | chez ce nouveau, le coupa : à 4 4
@@ -2565,14 +2032,11 @@ galette ; le personnel subalterne étriquait ses toques en à
 moule à charlotte. Les traditions corporatives se maintenaient ici tenacement : l'ouvrier principal coiffait le. 2703
 plus gros bonnet. D'accord en tout avec l'esprit des. 4
 & ancêtres, M. Nivois gueulait abondamment et se saou S
-à, lait à profusion. "à
 Venant de vomir son vin dans un coin de la plonge,
 il en ressortait la bouche pleine de cris, impatient de “4
 eu montrer, pour le salut de son autorité, que sa déchéance
 ne le rendait pas moins redoutable. Il manifestait alors 4
 
-TR Ne ET AR EE Ca RAGE.
-AR. F3  MARÉE FRAICHE . ; ve 24
 … sa toute puissance par des exclamations immenses et DT
 vagues : « Allons là !.. Voyons !... N. de D..! Ça
 n'a vance pas ! » — d'autant plus salutaires que personne ae
@@ -2622,21 +2086,18 @@ manger envoyait la cadence d'un fouet en laiton contre 4 à
 un bassin de cuivre. = | 3
 X — & Vingt-deux! » dit Samson, l'aide saucier. LT
 4 Signalé par le chiffre d'alarme, M. Ouvrard le patron
-parut en habit. 4
 Ses longs cheveux, son large plastron et la serviette
 dans sa main gauche mettaient trois vastes notes … S
 | e blanches sur le noir du drap, où étincelait l'étoffe rouge … 4
 de la Légion d'honneur, comme une étoile de sang dans
 : un ciel de ténèbres. E:
 Il portait, à droite, un des glorieux filets de soles sur à
-plat d'argent. ‘4
 A voir venir cet homme solennel, le saucier trembla, 4
 car il pressentait l'apostrophe. Elle fut impétueuse : À
 j « Saligaud! Tâtez! C'est froid! » 14
 | M. Ouvrard employait, envers ses propres ouvriers, M
 
 VU er dre
-OO _  maRÉE FRAIGNE BA
 in genre oraloire différent de celui sur lequel il célé-
 brait les ouvriers en général, dans les solennités dont |
 il é it président :
@@ -2673,11 +2134,9 @@ et Ro oo
 la peine des hommes 0 ;
 
 : Au fond, à gauche, un monsieur déclarait, dans un ee
-grand soupir :- TRES
 
 « Excellent diner! » ce
 ï M. Ouvrard posa son filet de sole sur une table à M
-deux couverts. + 770
 D'un ton de politesse inattendue chez un homme
 
 aussi récemment furieux, il demanda : 0)
@@ -2688,13 +2147,11 @@ Le jeune homme à barbe blonde, objet de cette cour-
 
 toisie, répondit que sa famille était au mieux ét re
 
-£ mercia. “à
 : Fils de M. Antoine Hardet, grand fabricant de sar- de
 : dines à l'huile, en relation avec M. Ouvrard par la
 : filière des syndicats de la Nourriture Parisienne, il. à
 suivait à Paris les cours de l'École des Hautes Études
 Commerciales et dinait ce soir en compagnie de made- o
-moiselle Rose Chamoïne, surnommée Chameau rose 4
 par les anciennes camarades, à cause de sa hauteur, A
 depuis qu'elle s'était découvert la bosse de la noblesse, . 4
 
@@ -2779,7 +2236,6 @@ Tu sais bien que ça me donne de l'urticaire. Tu vien- ;
 
 dras me gratter après, toi, hein ?.. 3 Vera)
 
-x es PR ED PTE CA ot FR AN DURS EEE ARTS
 la peine des hommes AE 2.
 
 « Réponds donc, malhonnête. » ; SE 4
@@ -2821,13 +2277,11 @@ elle riait. E
 Joseph précisait la suite : D.
 
 — « Monsieur a commandé pour entrée un poulet
-sauté chasseur. » 2 se
 
 Il plaça, dans un coin particulier de l'oflice, l'assiettée M
 
 la peine des hommes = à
 encore qu'il faut choisir entre la douceur d'aimer ou la ë.
-gloire d'être fort. Be
 A dix pas des tables, de l'autre côté de la cloison |
 épaisse, les cuisiniers ruisselants écartaient enfin du 4
 fourneau leur visage aux yeux rôtis et buvaient la con- |
@@ -2838,42 +2292,6 @@ nuit noire, passait en pleine mer, draguant dans l'eau
 froide son lourd chalut où mouraient les soles des dîners
 de demain :
 « Deux filets de soles! deux! »
-f
-
-ñ ? LORS à ne
-nc. & |
-M F ;
-ie #NR +. x
-LR
-“PSS ; HS
-“+ 5 ; î . 2
-Re È ;- : È
-FR > k : L
-PAS ARR
-: 7: É A
- — É À |
-DR a
-D, 7
-‘4 5
-FRE re,
-LS , à
-+ 5 AN =. à
-<. "+ 200
- . Ps
-z re &> 4 : 3 <
-D * 1 3
-« 0 TEE : e ; AE ;
-De. s *
-Rs ns
-RS, Ù
-= : 8 ; à re
-BR ; AC
-TECPÉTSES 2 > Fe
-d 7* LIRES Fa : A
-FRS marée. — 5. LT HE
-FES ; s ide
-a : ; Le
-L'ERCT PARIS Le", £
 
 ME tient M SE D RPQN NT UN ES Le 2 ne a re Yo "+
 RE LE SIT er ae D NA Te A LE Re CE ENS is ce
@@ -2882,38 +2300,12 @@ pr: DR TA TR OR OT SRE: Chut ARE SL 202 ES PRES Fa US à
 
 NS Ce M RS ME r EPS LT NE Dia FU Pet CRE PS RÉ RE Er:
 LCR - NE DRE ET SE ER A er UE MES
-CA Ps SP É ñ & PR Pr LES IT ST EE ERNESS ES è
 Ne DES dr Es © £ ERA Re OT RS pi ss
-CF MERE LE RSR EE
-Re x, = D,
-Res < > a RE + -
-re. à RE: - RE T :.
-ESS . LORS
-D Ar ie 4 - DR
-FLE j : - : LE
 PRICE ee La NUS
-RTE , Es ï EE
-LAISSES £ à = RE 5
-Rp Po RS
-L'ART RES a 2: = p = = > = E
-EYE Es È j - Cd STE 2 x
-HS: Te 2 è _ Rd - 3
-Ta = ; 5 PR
-STE = NS 22 IF
-LR TER é Lys ; LPS M
-RUN Eur - : + Mr LITE
-ME FE ; 2 À RSS . LEE
-Mr S < M
-
-Ro TS een
 
 caise AU Je re TRE arr RATES TS a RE PE La NS UE ER 0 LS HA M
-FRS , : Se RENE
-CES MAR A
-Ru Le 4 SE
 La peine des hommes est publiée conjointement par Re se
 
-1 T6 5 x À 5 CR ut
 Les Cahiers de la Quinzaine et par nos amis de l'Union He
 - pour la vérité. Nous avons entretenu souvent nos abon- de
 nés de l'ancienne Union pour l'action morale et de la RENE
@@ -2923,151 +2315,69 @@ tout particulièrement heureux que la bonne confrater- me Te
 nistration de cette publication commune, une nouvelle
 Dec à Les
 et aussi importante sanction. dE
-EN: me — MRC
 Ce A mr. ee
-FFE FREE
-Dre : CPR
-"As 2 *. È >
-RNA PL +
 
 PEN eT RNRS er RE A EUR &
 LE MURAT MSc TRETe TS RU td ES
 AG AR HÉREr ae PR UNE TES PO
-SMS ES RAR TE HSE NP AU EN Si Re a
-VAR ES ee M SNRERD ie A
-VAT 0 CPAS RER F. EE 2 CIRE PRES PT
-TRS LEZ * . s ' 233 PCR E SU FÉES SRE
-AT SAE AEE > s k - hPa MATERS - MCSSURE
-RCD Re = “ _ 1 HV ke
-À ALERT M - LES RDERS VS :
-es Mo eye ER 5 EN TE PERS IN pe
-ROUE Ra 3 0 œe Mie à < g DT HE ” ra À: 1
-TK è FEiCRe E 2 - t È mS à CE PURE À :
-* + RE SPC à PRET EI  ÉSIS CES EL :
-Je T2 APRES ARE
 
-2 + is ; g Le si
-‘47 x °32 SEE the. 4 :
 On nous demande souvent de quoi se compose Ps
 officiellement une collection complète des ee,
-5 cahiers. | : ;
 — À la date du premier novembre 1908, une
 collection complète des cahiers se compose
 _ officiellement de : CAE:
 ; HA. — une collection complète de nos éditions +
-_ antérieures ; à
-Mere 2 cs
 …. B. — une collection complète de nos neuf
-_ premières séries ; |
 : C. — un abonnement à la dixième série; L à
 D. — une inscription pour un exemplaire du
-_ Polyeucte.
 —_ Ces quatre éléments sont également indis- SSS
 _ pensables et nulle collection ne peut, dans le 2
 … commerce de la librairie, être tenue pour
 … complète si elle manque, en tout ou en partie,
 _ de l'un quelconque de ces quatre éléments. -
-M'RETORA :
 À. — nos éditions antérieures sont énumérées ;
 à la fin du premier cahier de la présente série; a
 —. B. — nos neuf premières séries sont énumérées
 … à la fin du premier cahier de la présente série; Ÿ
-DR
 “—…. C. — Les conditions de l'abonnement à la
 … dixième série, qui est la série en cours, sont
-_é noncées ci-après;
 _ D. — es conditions de l'inscription pour un
 exemplaire du Polyeucte ont été énoncées en
 “tête du premier cahier de la présente série.
-re
 
 Fe nn rie Se RE 2 SAT AM LEE RE LONIetE EST £
-SRE DANS La DRE PL EP nEr TEE A CR
 Be SE Ut A rs RE ES CE RER ER ME LE
-LP DATE M 0 ST RU RUE EM CEE SNS ET QU ÉCRIRE
-PRÉSENT 22 LS = RARE LVL<KE SORTE
-RS 2 RES, = = ES, PAGE TT ET RE ant
-PLEINS : ITS
-cs pe SRE à ROBE se 3 3ÛRSSS Eee
-RS : D
 PPS & de L? SERA LTÉE Ë
-GE AN E . MA ES
 AO NS 0 ne + 5 » NE sa ë = LE SOON
-= FD OST =£ £ LT DUR EE SRE
 LPS TSRORES ce Es ARE LL DORE
-LTÉE ; ä 3 - +23 ER ERER
-Le 3 : - RE .
 MAIRE re DR D NE SNE
-En Pie & æ 2 AR =. FE Fr L
-D LENS
-4 ESS NULLE NUE Ve IR
-tds | < TS
-2e IP MER ONE À Pres È + “CSP
-"LI TORERMPET RER à À * d RE a
 
-Te te Se
-LA 6 LA 164
-ME: : Te Fe
 — la été tiré de ce cahier treize exemplaires sur $
  whatman ainsi distribués : +
 ee à ”à le
-A 0 . . » .
 ‘je premier exemplaire de souche, exemplaire du gérant; ee
 4 ‘deuxième exemplaire de souche, exemplaire de l'ad- URSS
-mi nistrateur ; ae
 nm troisième exemplaire de souche, exemplaire de Lim
 DE dix exemplaires d'abonnement, numérotés de 1 à 10 Le
-À NE. D a
-exemplaires d'abonnement.
 -… Tous nos exemplaires sur whatman sont numérotés 5
 à la presse et imprimés au nom du souscripteur ; nos D »
 . tirages d'exemplaires sur whatman sont rigoureuse- À
-ment limités au nombre d'abonnements à chaque in- ;
 F _stant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement |
 sur whatman à cette dixième série est de deux cents
 A dy ses F
 _ francs pour tous pays. -
-: KE E. n …
-MR
 É . Les Cahiers de la Quinzaine sont composés à la main, j
 el _ caractères fin dix-huitième siècle (Didot) de la fon- $
 . derie Mayeur (Allainguillaume et compagnie succes- >
 Le seurs), 21, rue du Montparnasse, à Paris, sixième
-arrondissement.
-Re
-QU F
-® ‘4 L
-LS .
 
-ST RSE AE er ser AA RER LR ARE
-FR P EE ERP Fe cu Top #0 Ai
-RÉ ANES Re SAR ANNE LINE TS
-=. DES “ES AMEN ÉNRUS RÉRAT SRE ÉMIS + ETES
 Ch nn A ARR ne Por RE a AT RQ ss
-y LE PR A ARR RER EURE F3 PRE RE 4
-A [FSI
-À Es -3 NE ER rES. RENTE Se
-Æ IEC Es
-Ne « LL HONTE " Rs
-FESSES ESS
-LE ; z EPA Ces
-4 AE LE
-STATS
-es TESTS res
-K È £ RSR) LE
 NANTES ce * EL 0 FAIR KES
-{ ee ñ : a ee PERES 2e PE
-ts v a À CHA »
-LCA
-LE ANS
 
 | LC NERARE ROM PARC RER ETS PU RP MERE PME
 
-PA vu x) AC PE : Fe PT PR PERS
-
 …_ Pour savoir ce que sont les Cahiers de la Quinzaine Dee
-UT DR à , 745
 il suffit d'envoyer un mandat de trois francs cinquante ETAT
 
 — à M. André Bourgeois, administrateur des cahiers, VASE
@@ -3075,12 +2385,9 @@ il suffit d'envoyer un mandat de trois francs cinquante ETAT
 - arrondissement. On recevra en spécimens six cahiers one
 s, de la deuxième, de la troisième, de la quatrième, de la à
 - cinquième, de la sixième, de la septième ou de la Po
-_ huitième série. HS
-7 TRES È À NL ©
 
 Pour savoir ce qui a paru dans les cinq premières
 … séries des cahiers, 1900-1904, envoyer un mandat de ee
-RSS x . ï De
 cinq francs à M. André Bourgeois, méme adresse; on
 - recevra en retour le catalogue analytique sommaire, 5
 49 00-1904, de nos cinq premières séries, premier cahier ÊGE
@@ -3088,15 +2395,11 @@ cinq francs à M. André Bourgeois, méme adresse; on
 pages très denses, in-18 grand jésus,marqué cinq francs.
 Pour s'abonner à la neuvième série des cahiers, qui k $
 
-A D ar Ê
 …_ est la dernière série, envoyer en un mandat à St
-ATEN . .
 
 — M. André Bourgeois, même adresse, le prix de l'abon- rs
 ges nement; on recevra en retour les onze cahiers non CR
-our. ". a 4
 _ épuisés de cette neuvième série. Se
-Msn? À
 . … Pour s'abonner à la dixième série des cahiers, qui à
 _ est la série en cours, envoyer en un mandat à M. André ; :
 
@@ -3106,30 +2409,12 @@ _ est la série en cours, envoyer en un mandat à M. André ; :
 à leur date, les cahiers à paraître de cetté dixième 2
 | a  <1 ; el
 
-RER RAGE AS ER ARTS are FETES o
-RSS : 3 ” rs CR ne |
-CERN Feu LFTLRÈRESS
-FE D
-Last SE - - F LUE
-LE RES - S | TORRES
-SRE D 7
-LEE Rs
-Re 2 CRETE
-Ft LÉCREEE à LES
-FTTBEN FT EUR
-Se FEES
-Se at: PDA su se
-ES DE T £ : | Tex KE A : “SE
-= TE AO e 1 ee
-
 | = CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, AS
 Ë . rez-de-chaussée, Paris, cinquième arrondissement. ?
-ri &
 — Nos Cahiers sont édités par des souscriptions men- ;
 …. suelles régulières et par des souscriptions extraordi-
 ; +04 naires; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration: ces fonctions
-_ demeurent libres.
 —_ Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
 … ouvrière, d'octobre-novembre à juin-juillet; l'abonne-
@@ -3139,10 +2424,7 @@ dans le temps d'une année scolaire, d'une année
 … valable pour la série en cours.
 —_ Prix de l'abonnement, pour chaque série annuelle : à
 pendant le cours de cette série :
-3 / Paris, départements, Alsace-Lorraine,
-_ Abonnement or- Algérie, Tunisie..... vingt francs
 1 à dinaire ....... Autres pays de l'Union postale uni- 4
-28 \ verselle........ vingt-cinq francs
 - Abonnement sur whatman........... deux cents francs
 5 pour tous pays
 à Les exemplaires sur whatman, tirage non réimposé,
@@ -3157,47 +2439,17 @@ _ dans l'ordre de l'arrivée, les numéros les plus bas venant s
 … méro d'inscription qui devient automatiquement le ve
 — numéro du tirage réservé à chacun des souscripteurs ; L
 Re l'édition sur whatman est strictement limitée au À
-nombre d'exemplaires à chaque instant souscrit.
 
 SRE Sr RS DU re PIE
-HR CT se Rte NN
 PR RE PA RAR DE ARE Re RE Les FTANT RER
 Rte RES ROUE + EE Le AS ASE) SRE PEL CES nt
 RE ee rue bo ln tie ee pee MU vs SA CIN ee ES
 LS PR ET RE D I de ne PS à RUE EL 0
 IEEE LS EE LE Pr um mn
-TEE DE: F4; DATES : : LAS à PME + EC ORSCRER #
-is : + T- ; 1.2 TT REINE
-TE c: : : k TITRES Res 3=
-£ $ 3 ë = - L LT TRES L
-Ras 5 , Re
-BE ALTER
-! 2 4 2° es Pres :
-dE = Er: 11 TNT
-SE : : TITRES
 cese - de
 > le
-A LE " TL ESS
-CES > es
-RS 17 ÈS
-ETES : 3 STEEL
-Des 2 D + - À LTÉRESSE
-2 « 2 " Re
-SE 3 ; è | LISE
-= à = M.
-ae É ‘ 5 & PRE
-RES = 22 AA ANTENNES
-PRET £ Y ART Le
-TÉL 5 + À 2 SRE PERS É
-) À : # É 2.1 LITRES
-Hs. ; . LÉ TÈSSESS
-à É ï 1 LTÉE
-. PR D
-F7 SEEN . ST 3 : è D.
-CAC an 24 RP EE A 0
 
 NC PAS TREAE l SH ne ARR à
-ND Res Cri Lee ÿ . à $ = à
 1 our tout changement d adresse envoyer soixante HE
 LOIS, six timbres de dix centimes. +
 ne Nous engageons nos abonnés de certains pays à nous :
@@ -3219,4 +2471,3 @@ SA partir du premier janvier qui suit l'achèvement
 - d'une série, le prix de cette série est porté au moins
 - au total des prix marqués; ainsi à dater du premier i
 __ janvier 1909 la neuvième série incomplète se vendra 4
-_ vingt-huit francs. :

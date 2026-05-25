@@ -7,8 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 172485
 ---
-
-Gabriel Séailles $
 à ce qu'il y a d'original et comme d'inédit dans la société
 moderne ; il est sans théorie, il n'a d'enseignement que ,
 celui du travail et de la vie ; le sentiment direct des maux,
@@ -47,15 +45,12 @@ l'histoire, une théorie de la nécessité, qui permet d'attendre « le bien au 
 lois de l'évolution sociale ; s'il passe de la phase théorique #
 et mystique à la phase réaliste, positive et pratique ; s'il ne a.
 se borne plus à la constitution de partis politiques, de sectes 1
-136 à E:
 
-LES UNIVERSITÉS POPULAIRES
 qui se divisent, s'opposent et se déchirent; s'il se résout en $
 œuvres multiples, reliées les unes aux autres, qui fassent
 l'éducation morale et sociale de tous ceux qui y collaborent,
 commençant tout à la fois la société future et préparant
 des hommes capables et dignes de la réaliser.
-Gabriel Séailles
 
 Toute la copie de ce cahier nous a été fournie par la
 Société des Universités Populaires.
@@ -68,7 +63,6 @@ Les U. P. de Paris et banlieue diffèrent beaucoup entre
 elles; elles présentent cependant de grandes analogies
 aussi, étant nées et s'étant développées dans un milieu
 défini sous l'influence de préoccupations intellectuelles
-presque identiques.
 
 On ne trouvera pas ci-après des renseignements spéciaux
 sur toutes les U. P. La Société des Universités Populaires
@@ -78,40 +72,24 @@ publiées ici ont toutes été rédigées en avril-mai 1901; elles
 
 _ n'indiquent donc pas la situation actuelle, elles montrent
 les résultats de l'hiver 1900-1907.
-Notices :
 
 La Fraternelle, troisième arrondissement, datée d'avril
-1901, signée B.;
 
 Union Mouffetard, cinquième arrondissement, signé les
 secrétaires; lu et approuvé én séance du comité d'administration, le 20 avril 19071;
 
-Voltaire, onzième arrondissement, avril 1901;
-
-Diderot, douzième arrondissement, mai 1901;
-
 Le Contrat Social, Université Populaire des quartiers de
 Chaillot et de la Porte Dauphine, seizième arrondissement, :
-avril 1901, signée F. I. ;
-
-137 VUL.
-
-catalogue analytique sommaire
 
 L'Éducation sociale de Montmartre, dix-huitième arrondissement, avril 1901, signée madame W.;
 
 La Maison commune, dix-neuvième arrondissement, mai
-1901, signée madame T.;
 
 Fondation Universitaire de Belleville, dix-neuvième arron-
-
-o dissement, signée A. I.;
 
 La Semaille, vingtième arrondissement, avril 1901; )
 
 L'Emancipation de Vincennes, Vincennes, mai 1901; e
-
-Germinal, Nanterre, mai 1901; É
 
 L'Idée, Puteaux, mai 1901; :
 
@@ -122,7 +100,6 @@ L'Avenir, Colombes, avril 1901; É.
 Les principales difficultés que rencontrent les U. P. de =
 Paris sont d'ordre budgétaire. Ces mêmes diflicultés sont À
 moindres dans la banlieue, et beaucoup moindres dans les 4
-départements.
 
 Il est utile de les signaler en publiant la note ci-après È
 d'Édouard Dujardin, qui a rempli les fonctions de secré- u |
@@ -144,11 +121,7 @@ théâtre de la Renaissance-Gémier, le 21 mars 1902; LI
 dédiée au peuple de Paris; la scène à Paris, du 12 au M,
 14 juillet 1789; en épigraphe : Pour qu'une nation soit |
 
-138 = |
-
-PERSONNALITÉS
 libre, il suffit qu'elle le veuille, la Fayette, 11 juillet 1789;
-fini d'écrire à Paris en juin 1901;
 
 L'auteur a cherché ici la vérité morale plus que la vérité
 anecdotique. Il a cru devoir user, dans cette action qu'enveloppe une poésie légendaire, de plus de libertés avec
@@ -186,24 +159,17 @@ de 72 pages, bon à tirer du samedi 5 avril 1902;
 
 un franc
 
-Monographies. — Personnalités;
-
 Dernière page et couverture; A. Lavy; l'œuvre de
-Millerand;
 
-catalogue analytique sommaire Ë
 Treizième cahier de la troisième série, un cahier
 blanc de 88 pages, bon à tirer du samedi 12, fini d'im- 1
 primer du mardi 15 avril1902; un franc 4
 JÉROME ET JEAN THARAUD. — Dingley, l'illustre écrivain; — dédié à la mémoire de Mr. Cecil Rhodes, mort ne
 avant la consommation de son injustice; fini d'écrire à :
-Paris en mars 1902; Ki |
 Partout où l'on parle anglais, personne n'ignore le nom # |
 de l'illustre écrivain Dingley. Les enfants eux-mêmes le /°®
-. : , Foi À
 connaissent : maint d'entre eux apprend à lire dans ses n |
 livres. C'était un homme d'une gaieté, d'une fantaisie, d'une EC
-fraîcheur d'imagination incomparable, Ik semblait né à 4
 l'aurore du monde, dans un temps où les sens des hommes *
 rivalisaient avec ceux des bêtes. Qu'il décrivit une forêt 4
 vierge de l'Inde, un office de commerce dans la cité de 5 4
@@ -227,9 +193,7 @@ concret, des hommes de race anglaise à l'âme insatisfaite
 de la vie et passionnée pour le rêve d'un Hindou : il avait 4
 lardeur d'un pirate normand et le goût des interminables ;
 siestes, à l'ombre, les yeux clos, tandis que dans le champ ;
-140 Ë n.
 
-QUATORZIÈME CAHIER DE LA TROISIÈME SÉRIE |
 de la vision intérieure passent comme des visions d'une autre
 existence, la vie mouvementée d'hommes ayant appartenu
 à d'autres âges. D'une de ces rêveries de l'après-midi était -
@@ -263,16 +227,11 @@ Quand la guerre du Transvaal fut déclarée
 Quatorzième cahier de la troisième série, un cahier
 jaune de 72 pages, bon à tirer du mardi 22 avril 1902 ;
 un franc
-I4T,
 
-catalogue analytique sommaire
 Une citation; du Mouvement Socialiste, numéro 59, |
 du samedi 15 février 1902, sous la signature de
-M. W.-H. Vliegen, Amsterdam, premier février 1902,
 Étranger, Hollande, le Ministère et le militarisme ;
 commentaires; citations de Jaurès, Action Socialiste; -
-G£zorces Sorez, Socialismes nationaux; daté novem- ?
-bre 1901; 4
 Il y a dans le monde beaucoup de thèses qui se maintiennent par la force de la routine et qui ne sont plus fondées |
 sur les faits : c'est ainsi qu'il n'est pas exact de dire aujourd'hui que les partis socialistes nationaux ne sont que > » |
 des fractions d'une grande armée prolétarienne, répandue j |
@@ -281,7 +240,6 @@ vant un but identique pour tous. Lorsque l'on veut faire
 ressortir les ressemblances qui existent entre les divers so- É
 cialismes, on est obligé de se contenter de formules dé- ;
 nuées de portée pratique ou d'en revenir aux déclarations à
-purement démocratiques. Ë
 En réalité, il y a au moins autant de socialismes qu'il F
 y a de grandes nations ; pour les étudier, il ne faut pas ‘à
 seulement connaître le développement industriel de chaque
@@ -298,9 +256,6 @@ l'histoire, dépend des sentiments des gens du monde. |
 On admet, comme une chose évidente, que les idées
 socialistes se rattachent étroitement à l'organisation du É
 travail ; mais cela ne signifie rien tant que l'on ne spécifie ,
-142 '
-
-LA RUSSIE VUE DE VLADIVOSTOCK
 
 point ce qu'on entend par ce terme. Dans un premier sens,
 on peut dire que la manière de vivre et d'agir des ouvriers
@@ -336,7 +291,6 @@ J'arrive devant Vladivostock, venant du Japon, et voulant traverser la Sibérie 
 France. Envoyé en mission d'études pour l'Université de
 Paris, muni de lettres d'introduction officielles du Recteur
 
-catalogue analytique sommaire
 de l'Université de Paris et du Ministre des Affaires étrangères de la République française, je suis bien sùr de
 pouvoir voyager sans difficulté dans l'empire ami et allié.
 Cependant, pour être tout à fait correct, je me suis muni
@@ -370,9 +324,7 @@ Couverture ; Papeterie des cahiers ; .
 ANATOLE FRANCE. — Cahiers de la Quinzaine: b |
 La liberté par l'étude, discours prononcé par Anatole 4 |
 France à l'inauguration de l'Émancipation, université |
-144 ; 4
 
-CAHIERS DE LA QUINZAINE
 populaire du quinzième arrondissement, texte reproduit d'après les journaux du jeudi 23 novembre 1899 ;
 Citoyennes et citoyens,
 
@@ -407,14 +359,10 @@ interprétation des phénomènes de la nature, a pus'imposer
 à la masse des hommes et les soumettre à des pratiques
 imbéciles et cruelles. É
 Croyez-vous, par exemple, citoyens,
-Histoire contemporaine :
 La loi est morte, mais le juge est vivant ;
-
-IX
 
 | catalogue analytique sommaire
 
-= Vol domestique ;
 : : Les juges intègres ;
 
 Pensées de Riquet;
@@ -423,11 +371,9 @@ Pensées de Riquet;
 France, membre de l'Académie française, Président de
 la Section du quartier de la Porte-Dauphine (seizième
 arrondissement), à l'assemblée générale extraordinaire,
-du 20 avril 1902, de la
 
 Ligue française pour la défense
 des Droits de l'Homme et du Citoyen ;
-Citoyens,
 
 Il y a un petit conte de nourrice qu'on retrouve chez :
 
@@ -444,7 +390,6 @@ narines. Dragons épouvantables, ils déployaient leurs ailes
 et leurs griffes horribles. Pourtant ils furent vaincus, et
 voici qu'ils renaissent, pour une autre lutte, avec des
 plumes lisses, un air de familiarité, une voix domestique et
-paisible. /Rires prolongés) Quelle merveilleuse transformation !
 
 Sous leur première figure, il vous en souvient, citoyens,
 c'étaient des Hippogriffes et des Tarasques; c'étaient des
@@ -455,8 +400,6 @@ résolution votée à la même assemblée générale ;
 Du même, second tirage, deuxième édition, bon à
 tirer du mardi 13, fini d'imprimer du jeudi 15 mai
 1902; un franc
-
-CAHIER DE COURRIERS
 
 Seizième cahier de la troisième série, un cahier jaune
 
@@ -486,8 +429,6 @@ sur le Japon : beaucoup de ceux qui connaissent le Japon
 le voient ainsi ; mais non pas tous ; — par exemple sur le
 sens de la vie religieuse au Japon les opinions et les impressions sont très diverses.
 
-; Félicien Challaye
-
 Trois mois de voyage au Japon: c'est comme si on avait
 vécu, pendant cent jours trop rapides, une succession
 cohérente de rêves étranges et charmants. Un pays d'Utopie,
@@ -497,7 +438,6 @@ générale que m'a laissée le Japon. Quand on a été là-bas,
 on garde toute la vie quelque regret de n'y plus être. Chez
 
 | °2
-1 catalogue analytique sommaire
 L certains la nostalgie est telle qu'ils se décident à changer
 | leur existence, pour y retourner. Je ne crois pas qu'on
 : puisse échapper à cette séduction, quand on a vu le Japon
@@ -520,7 +460,6 @@ ja 11 faut adopter une autre méthode de vie pour acquérir
 assez de japonais pour pouvoir voyager sans guide dans
 l'intérieur du pays; on descend partout dans les auberges
 : indigènes ; on vit exactement la vie quotidienne de tous les
-Japonais.
 
 Le premier caractère de la vie japonaise,
 
@@ -539,7 +478,6 @@ j'ai passés en Russie. Je n'ai pas ici les notes que jai écrites
 
 |
 
-CAHIER DE COURRIERS
 immédiatement après mon voyage. Mais les faits sont
 restés gravés dans ma mémoire. Voici done mon récit :
 En 1895, j'étais étudiant à l'Université de Berlin.
@@ -573,7 +511,6 @@ sur les troubles des 17 et 18 avril 1902;
 particulier à Helsingfors les 17 et 18 avril. Ces démonstrations constituent le dernier chapitre — le dernier jus-
 | 149
 
-catalogue analytique sommaire
 qu'à ce jour — de la lutte soutenue par la Finlande contre
 le despotisme russe. J'avais pensé d'abord les décrire à leur
 place, c'est-à-dire dans l'exposé de la question finlandaise
@@ -610,7 +547,6 @@ n'enrégimenterait que ce qu'il fallait d'hommes pour compléter le bataillon re
 un total de 20.000 à 25.000 conscrits — : Le Sénat et les gouverneurs avaient agi de leur côté pour briser ou rendre
 inutiles les oppositions. Les communes refusant d'élire des
 
-MONOGRAPHIES
 délégués aux commissions de recrutement, les gouverneurs
 leur imposaient des amendes — 30.000 francs pour Helsingfors, 1.000 à 2.000 francs pour des communes rurales — et
 le Sénat décidait que la présence des délégués communaux
@@ -639,18 +575,12 @@ jaune de 72 pages, bon à tirer du mardi 10 juin 1902;
 
 un franc
 
-Personnalités. — Monographies :
-
-M. Urbain Gohier, dossier; M. Urbain Gohier quitte
 l'Aurore; Consultation électorale, article de M. Vaughan
 dans l'Aurore du vendredi 11 avril 1902 ; dans l'Aurore du
 dimanche 13 avril, du même un article, intitulé Le départ
 d'Urbain Gohier, où inclus une lettre d'Urbain Gohier,
 datée de Paris, 11 avril 1902, adressée mon cher Vaughan,
 
-IÔI
-
-k catalogue analytique sommaire
 . portant départ et démission ; ensuite inclus la démission
 4 de M. B. Guinaudeau, datée de Paris, le 12 avril 1902, adres-
 î sée mon cher Vaughan ; dans la Raison datée du dimanche
@@ -663,7 +593,6 @@ du dimanche 25 mai, M. Gohier a publié un article intitulé
 Ligue française pour la défense des Droits de l'Homme
 et du Citoyen, rue Jacob, 1, Paris, sixième arrondissement,
 manifeste ; le comité central; commentaires ;
-; >
 N Élection Beauregard, dossier préparé par M. Émile
 ; Terquem : Paul Beauregard, à ses électeurs, mes chers concitoyens, signé Paul Beauregard, député sortant, texte
 F emprunté à l'Union du seisième arrondissement, journal
@@ -686,7 +615,6 @@ Du Mouvement Socialiste; une lettre de M. André Morizet,
 à Péguy, signée ton bien cordial, André Morizet ;
 Au Mouvement Socialiste ; citation de M. André Morizet;
 
-COURRIER DE BELGIQUE
 numéro 73, du samedi 4 janvier 1902; numéro 75, du
 samedi 18 janvier 1902, au Comité Général ; numéro 98, du
 samedi 8 février 1902 ; numéro 80, du samedi 22 février 1902;
@@ -699,8 +627,6 @@ Socialiste de France, Unité Socialiste Révolutionnaire,
 31 mai, même en-tête que la première, intitulée fiche rectificative à joindre au dossier du Mouvement Socialiste (lettre
 de l'inculpé Moriset}; commentaires ;
 à René Salomé, — courrier de Belgique ; — grève dite
-générale d'avril dernier ; choses vues, documents ; daté
-jeudi 10 avril, vendredi 11, samedi 12, dimanche 13,
 où inclus le fameux article 47, constitution revisée de la
 Belgique, lundi 14, mardi 15, du mercredi 16 au vendredi
 18 ; un envoi du 3 juin ; commentaires.
@@ -727,7 +653,6 @@ Jeudi 10 avril. — J'entends à la Monnaie le Crépuscule
 |
 | $
 
-catalogue analytique sommaire
 Une soixantaine de manifestants sont groupés devant
 la Grande Poste, sifflant et braillant. Je distingue dans
 ; le nombre beaucoup de gamins. Cinq ou six agents, les
@@ -744,13 +669,10 @@ L — Ils ont démoli la vitrine à coups de revolver pour forcer
 le patron à fermer boutique. de
 Je vais constater les dégâts : la vitrine est trouée de cinq
 ‘ trous ; les glaces des Mille Colonnes ont également reçu
-deux balles.
 L'affolement règne parmi les badauds, et les esprits bat-
 ! tent la campagne.
 " — Les balles sifflaient dans toutes les directions,
 dit un vieux monsieur ; on a tiré au moins vingt coups de
-
-N feu.
 
 — Beaucoup plus, corrigent d'autres badauds.
 
@@ -763,12 +685,7 @@ voyageur de commerce.
 allant de la rue d'Aremberg à la rue de la Madeleine quand
 je vis s'approcher
 
-Éditions d'art Édouard Pelletan, 125, boulevard SaintGermain, Paris; t
 Couverture ; Reliures des Cahiers ;
-(1) Fiacres bruxellois.
-154 ; |
-
-) POUR L'ARMÉNIE
 
 | Dix-neuvième cahier de la troisième série, un cahier
 jaune de 168 pages, bon à tirer du mardi 24, fini
@@ -776,10 +693,6 @@ jaune de 168 pages, bon à tirer du mardi 24, fini
 d'imprimer du jeudi 26 juin 1902; trois francs;
 
 É PIERRE QuiccaArD. — Pour l'Arménie, mémoire et
-
-4 dossier :
-
-à Introduction :
 
 F Le traité de San Stefano, conclu le 3 mars 1878, contenait
 
@@ -822,7 +735,6 @@ ARTICLE LxI, — La Sublime Porte s'engage à mettre à
 
 |
 
-Pierre Quillard
 ! nécessitées par les besoins locaux dans les provinces habitées par les Arméniens et à garantir leur sécurité contre les
 | Circassiens et les Kurdes. Elle fera péribdiquement conj naître les mesures prises à cet effet aux Puissances qui veilleront à leur application.
 1 Ainsi pour le peuple arménien dont l'histoire tout entière
@@ -835,11 +747,9 @@ pourraient dès lors se développer librement. De grandes
 espérances s'éveillèrent : dans les écoles de Constantinople ,
 et d'Asie toute une génération se forma qui rêvait d'un
 sort meilleur, tandis qu'en Allemagne, en France, en Angleterre, comme au temps des hétairies grecques, des étudiants et des commerçants s'initiaient à la culture occiden-
-\ tale.
 Le rêve dura peu. En guise de réformes, le sultan Abdul-Hamid II prépara et exécuta de 1893 à 1896 les plus épou-
 | vantables massacres qu'ait enregistrés l'histoire des souverains illustres : en temps de paix, avec la complicité des
 Puissances signataires du traité de Berlin, il fit pendre,
-écarteler, brüler vifs trois cent mille Arméniens.
 Bien qu'il ait négligé de notifier aux Puissances ces mesures de définitif apaisement, les tueries furent connues en
 Europe et dénoncées, mais vainement, aux ministres des
 divers États. Il dut renoncer cependant, par pudeur provisoire, aux égorgements en masse à partir du mois de
@@ -849,11 +759,6 @@ l'absence de Livres Jaunes, les documents utilisés n'ont pas 4
 ï un caractère d'authenticité diplomatique. Toutefois, de
 l'aveu même du ministre des affaires étrangères français,
 , qui n'a rectifié ou nié aucun des faits apportés à la tribune
-; 156 ù |
-
-à
-
-; POUR L'ARMÉNIE
 
 4 par M. Gustave Rouanet, ces documents, qui ont été
 publiés dans Pro Armenia depuis le mois de novembre
@@ -901,13 +806,11 @@ recueillis dans les Blue Books.
 
 J'indiquerai ensuite par quels moyens il serait encore
 possible de sauver la race arménienne d'une disparition
-totale.
 
 Interdiction de circuler ; perception des impôts; police
 et prisons; installation d'émigrés sur les terres armé-
 
 #
-Pierre Quillard
 niennes ; évictions brutales, assassinats et brigandages,
 complicité des beys kurdes et des autorités ottomanes ;
 massacres proprement dits : Zeïtoun et Sassoun;
@@ -924,8 +827,6 @@ ou par les Russes ; d) au reste les Arméniens selaissent
 Ÿ sible et amènerait la guerre européenne ; réfutation de
 $ ces arguments ; où inclus expédition de Khannazor, coup
 É de main d'Antranik, pendaison d'Andrinople ;
-‘
-Documents annexes :
 |
 Mémorandum du 11 mai 1895 ; réduction éventuelle du
 ; nombre des vilayets; nomination des valis, garanties;
@@ -935,20 +836,11 @@ des prisons; haut commissaire de surveillance pour l'appliL cation des peines; c
 maintien des privilèges des Arméniens; situation des
 Arméniens dans les autres vilayets de la Turquie d'Asie;
 1 Projet de réformes administratives à introduire dans les
-1 provinces arméniennes, vilayets actuels d'Erzeroum, Bitlis,
-Van, Sivas, Mamouret-ul-Aziz, Diarbékir; valis; mutesk sarifs ; kaïmakams ; cercles communaux (nahiés); police ;
-\ gendarmerie; prisons; comité d'enquête préliminaire;
 ' contrôle des Kurdes ; cavalerie hamidié ; question destitres
 de propriété; la perception des dîmes; justice; deux
 ' dépêches : Sir Philipp Currie au comte de Kimberley,
 À Constantinople, 9 mai 1895, du Blue Book, numéro 1,
 février 1896, numéro 42; le comte de Montebello à M. Ha158 Ÿ
-
-mo
-
-Ë
-
-POUR L'ARMÉNIE F
 
 fi notaux, Saint-Pétersbourg, le 10 mai 1895, Livre Jaune, 1897,
 
@@ -972,30 +864,22 @@ l péens, datée de Constantinople, le 16/28 septembre 1895,
 
 \ adressée Excellence, signée Comité organisateur (sceau de la
 
-A Société Hentchakiste), Blue Book, pièce annexe numéro 1
-
 4 au numéro 50; pétition du comité hentchakiste, datée de
 
 $ Constantinople, le 30 septembre 1895, Blue Book, pièce
 
 à annexe numéro 2 au numéro 50; note des ambassades,
-Blue Book, pièce annexe numéro 3 au numéro 50 ;
 
 Y À ffaire de la banque ottomane, mercredi 14/26 août 1896;
 récit d'un témoin, signé Manaskitch; lettre circulaire du
-comité droschakiste aux ambassadeurs européens, datée
 Constantinople,le  août1896,adressée Excellences, signée
 le peuple arménien ; manifeste du comité droschakiste (le
 Comité Central de Constantinople de la Fédération des
-Révolutionnaires Arméniens dite « Dachnaktzoutioun »),
-Blue Book, Turkey, numéro 1, 1897, pièce annexe numéro 1
 (lettre circulaire) et pièce annexe numéro 2 (manifeste) au
 numéro 25 ; déclaration des droschakistes enfermés dans la
 Banque, le comité révolutionnaire arménien au chargé
 d'affaires français, (les représentants du Comité Central de
 Constantinople de la Fédération Révolutionnaire Armé-
-nienne dite « Dachnakizoutioun »), cinq signatures armé-
-niennes, Blue Book, Turkey, numéro 1, 1897, pièce annexe
 numéro 3 au numéro 25; manifeste de Tigrane Yergate,
 
 Ÿ copie conforme à l'original du manifeste de Tigrane Yergate,
@@ -1003,16 +887,11 @@ transmis à monsieur Paul Cambon, ambassadeur de France,
 et à tous les ambassadeurs accrédités auprès du gouvernement ottoman à Constantinople,au lendemain des massacres
 
 - survenus dans la capitale les 26 et 27 août 1896, signé la
-nation arménienne, daté deConstantinople, 7 septembre 1896;
 note collective des Ambassades, présentée le 27 août par le
 
-catalogue analytique sommaire
 premier drogman de l'ambassade d'Autriche au nom des
 représentants des Grandes Puissances, Blue Book, Turkey,
-numéro 1, 1897, pièce annexe numéro 1 au numéro 2%;
 deuxième note collective des Ambassades, le 31 août 1896,
-Blue Book, Turkey, numéro 1, 1897, pièce annexe au
-numéro 28;
 Annonces du Pro Armenia; comité de rédaction; rédacteur en chef Pierre Quillard; secrétaire de la rédaction
 Jean Longuet ; paraît le 10 et le 25 de chaque mais; administration, 10, rue Monsieur-le-Prince; rédaction, 10, rue
 Nollet; sommaire du numéro du 10 juin 1902; une circulaire
@@ -1022,15 +901,11 @@ congrès; citations du Pro Armenia, numéro 1, première
 À année, 25 novembre 1900; numéro 2, première année,
 10 décembre 1900; numéro 3, première année, 25 décembre
 1900; la presse des opprimés, liste des principaux journaux
-Ÿ arméniens, jeunes-turcs, macédoniens, arabes, albanais,
 kurde; bibliographie sommaire des principaux ouvrages
 à concernant la question arménienne ;
 Vingtième cahier de la troisième série, un cahier
 jaune de 156 pages, bon à tirer du mardi 22 juillet 1902;
-deux francs
 | Les Universités populaires 1900-1901. — II.
-Départements : î
-Charles Guieysse, annonce, préface;
 Ce cahier, notices d'U. P. départementales pour 1900-1901,
 le dixième cahier de la troisième série, notices d'U. P.
 parisiennes pour 1900-1901, le Bulletin numéro 2 de la
@@ -1039,14 +914,11 @@ Société des U. P. — qu'il suffit de demander au secrétariat
 | un ensemble de documents nécessaires sur la période de
 naissance (1899-1901) des Universités Populaires.
 
-é
-d LES UNIVERSITÉS POPULAIRES 1900-IQOI
 6 Je ne crois pas qu'il y ait lieu de publier les années pro-
 } chaines de nouvelles notices, d'enregistrer par exemple
 2 l'état où en sont arrivées les U. P. en 1901-1902. Nous savons
 | d'où sont parties les U. P., quelles ont été leurs tendances
 "3 à l'origine. Attendons quelques années avant d'entrex prendre aucune publication d'ensemble sur elles.
-NS Charles Guieysse
 ee Les tendances que l'on trouve à l'origine des U. P. sont
 diverses; j'en vois au moins deux tout à fait opposées.
 X La première — qui n'apparaît guère à Paris — dérive de
@@ -1078,7 +950,6 @@ n'aient commis une grave erreur, qu'ils n'aient confondu
 la lutte et la haine, la force et la brutalité, l'énergie et la
 violence, Et parce que le mouvement ouvrier se manifeste
 
-Charles Guieysse
 parfois avec des cris de haine et par des actes brutaux,
 ( parce que l'énergie ouvrière parfois est violente, ils se laissent aller à détruire l'énergie, à condamner la force, à
 | blämer la lutte, comme si en France il y avait trop d'indi-
@@ -1114,11 +985,8 @@ reste du monde; il me semble qu'elles doivent être des
 La neutralité, voilà je crois la cause principale de la fai1 blesse de l'auditoire ouvrier dans bon nombre d'U. P. dépar-
 à tementales. Mais il est une autre cause : il ne faut pas
 k seulement rendre responsables les bourgeois de l'éloigne-
-ÿ 162 ; M
 |
 
-}
-LES UNIVERSITÉS POPULAIRES 1900-1901
 ment des ouvriers, mais aussi les universitaires, les confé-
 renciers de toute sorte.
 
@@ -1162,23 +1030,17 @@ les énergies se développent fait que je regrette profondé-
 ment que des efforts se dépensent en tant d'endroits sans
 produire les résultats qu'on pouvait attendre; et je crois
 
-\l
 | . .
-catalogue analytique sommaire
 | devoir donner l'impression que m'a laissée la lecture des
 ( notices d'U. P. départementales, impression renforcée par
 les conversations que j'ai eues dans plusieurs U. P. visitées.
 Par ce cahier l'on apercevra facilement que certaines U. P.
 } font de bonne besogne : il faudrait que toutes fissent de
-À: même.
 | CHARLES GUIEYSSE
 | Notices :
-k
-PS Alais, 20 avril 1901, signée F. Dugas ; continué pendant
 d l'hiver 1900-1901 l'œuvre commencée l'année précédente ;
 
 | Angers, 3 septembre 1901, Mercier, fondée du mois de
-L mai 1901; ÿ
 12 Angoulême, 7 avril 1901, Jules Delvaille, président du
 F x comité de l'U. P., professeur de philosophie au lycée, fondée
 14 et organisée dans le courant du mois de novembre 1900 ;
@@ -1188,24 +1050,14 @@ fs Annecy, la Solidarité, 6 avril 1901, G. Martin;
 1e Beauvais, le Cercle laïque d'éducation morale de Beauvais
 | était dans sa troisième année d'existence ;
 x Besançon, fondée aux débuts de l'année 1900, Georges
-‘ Drouhard ;
 | Bourg, Cercle Edgar Quinet, 17 avril 1901, cher mon-
 | sieur, Martin, inspecteur d'académie ;
 | Bourges, l'Éducation mutuelle, avait été fondée l'été
-3 d'avant, 20 avril 1901, C. Siméon, secrétaire-trésorier ;
 rl Brest, assemblée constitutive le premier décembre 1900,
 | prit plus tard le nom de la Solidarité, René Litalien, secré-
 taire de VU. P.
-Calais, en germe depuis novembre 1899, a pris forme au
 % mois de février dernier, le président Ledoux, le secrétaire
-Gustave Brullé ;
-Clermont-Ferrand, 19 avril 1901, fondée en septembre
 dernier, a inauguré ses conférences le 19 novembre suivant,
-Demay ;
-104 Le
-
-Fe
-LES UNIVERSITÉS POPULAIRES 1900-1901
 
 Épernay, l''Émancipation intellectuelle, C. Lœwenguth,
 secrétaire général de l'U. P. d''Épernay (Marne);
@@ -1218,7 +1070,6 @@ Le Cateau, réunion en décembre dernier, cours ouverts le
 | 10 janvier ;
 : Le Mans, inaugurée le 31 octobre 1900;
 k. Lisieux, fondée le 20 novembre 1900;
-Lorient ;
 | Lyon, Société de l''U. P. L., créée en décembre 1899, sous
 le nom de Société lyonnaise d'instruction et d'éducation
 populaire, déclarée comme Société d'enseignement supérieur
@@ -1227,7 +1078,6 @@ L libre ; section de la Croix-Rousse ; section de la Guillotière ;
 mois de février 1901, Emile Roubaud, secrétaire général du
 Foyer du Peuple ;
 
-Montauban, 24 avril 19071, fin juin 1900 extension, statuts
 adoptés par l'autorité administrative le 22 décembre 1900,
 alors intitulé La Solidarité, association laïque d'éducation
 populaire, pour la Solidarité de Montauban le secrétairegénéral ; »
@@ -1240,8 +1090,6 @@ en 1898, Bouniol; du 4 août 1901 détails complémentaires
 Reims, 3 mai 1901, séance d'inauguration le 7 juillet 1900, Ê
 le secrétaire général E. Lesourd ;
 
-Rennes, Victor Basch ;
-
 Rochefort-sur-Mer, 11 avril 1901, les Veillées du Peuple,
 fondées à la date du premier janvier 1901, séance d'ouverture le 8 février, L. Poitevin;
 
@@ -1253,41 +1101,24 @@ avant un mois, A. du Bouays;
 
 Saint-Quentin, la Mutualité intellectuelle ;
 
-catalogue analytique sommaire
-
 4 Tarbes, 9 septembre 1go1, née vers la fin de 1900,
 
 k E. Récéjac, professeur de philosophie au lycée ;
-
-Toulon, 30 avril 19071, vœu émis en septembre 1900, comité
 
 # formé, première conférence quelques jours après, l'Aurore,
 
 É au début de 1901 l'Union, l'Émancipation sociale se forme
 au Mourillon, vu Le président Henri Guinard, ancien con-
 
-è seiller municipal, ouvrier mécanicien ;
-
 : Tours, comité d'initiative au mois de juin 1899, l'Union
-
-t populaire ;
 
 Troyes, 26 août 1901, l'Éducation sociale, fondée depuis
 
 1 deux mois; compte ouvrir son local au mois d'octobre, le
 
-À vice-secrétaire Maurice Gerson ;
-
 Tulle, 8 avril 1901, les Veillées populaires, fondées en ©
-septembre dernier, Louis André, professeur au lycée,
 
 k trésorier de l'U. P. à Tulle;
-
-É. Valréas, avril 1901, Société d'éducation populaire
-
-À mutuelle, Léo Cherfils secrétaire adjoint;
-
-Vannes, 12 mars 1901, monsieur el cher collègue, concours
 
 ; assurés dans le courant de l'année 1900, intention annoncée
 
@@ -1299,7 +1130,6 @@ le 29 juillet dernier, conférences commencées du 15 novembre 1900, Toureng, in
 
 j arrêté préfectoral portant la date du premier août même
 
-‘1e année ;
 je Deux-Sèvres :
 
 4 Brioux-sur-Boutonne, Société d'instruction et d'éducation
@@ -1311,13 +1141,9 @@ de fonder une Université Populaire, non encore défini3 tivement organisée, ma
 . Chey, Coopération démocratique des idées et des bonnes
 ft volontés, seconde année d'existence, Edouard Soulier; statuts; la Mutualité scolaire de Chey la première année;
 l'Université poitevine la seconde année; fondé à Chey le
-(8 166 7
 
-POUR LA FINLANDE
 13 octobre 1899, le secrétaire C. Coynault, le président
-Edouard Soulier ;
 
-Circulaire, Chey, 4 octobre 1900, monsieur, Édouard
 Soulier, préparatoire à la fondation d'une Université
 générale poitevine ; projet de statuts définitifs, dans l'arrondissement de Melle Université poitevine; statuts provisoires ; cercle poitevin d'études et d'éducation sociales, dit
 Université poitevine, ses raisons d'être, son organisation et
@@ -1335,7 +1161,6 @@ séminaire; Hippolyte Taine, sa vie et sa correspondance; Gustave Canton, Napol�
 
 Dans le même cahier une rectification de notre collaborateur mademoiselle Louise Lévi, une lettre Paris,
 le 19 juin 1902, citoyen Péguy ;: une deuxième lettre
-Paris, premier juillet 1902 ;
 
 Ving'-et-unième cahier, cahier supplémentaire, de la
 troisième série, un cahier jaune de xnr+2/2 pages, bon à
@@ -1344,8 +1169,6 @@ tirer du samedi 16 août 1902; trois francs cinquante
 JEAN DECK. — Pour la Finlande, mémoire et documents :
 
 Notes bibliographiques ; généralités ; le conflit finlandais ;
-
-Jean Deck
 
 # Introduction :
 
@@ -1383,7 +1206,6 @@ e conquête, la colonisation suédoise et la conversion au
 brs siècle, le gouverneur général Per Brahe fondait l'Univer-
 
 sité d'Abo (1640), et déployait dans son administration une
-activité bienfaisante.
 
 ; En ce temps, du reste, les guerres avec la Russie avaient
 
@@ -1408,7 +1230,6 @@ pas la sienne. Il avait remis l'administration suprême du
 
 168 ,
 
-POUR LA FINLANDE
 pays à un Conseil de Régence. En 1816, il transforma ce
 conseil en un Sénat Impérial, par une ordonnance datée
 du 9/21 février, dont le préambule rappelait la garantie
@@ -1425,7 +1246,6 @@ paraît pas avoir beaucoup employé son crédit personnel
 en faveur d'une convocation de la diète. Le tsar semble
 La question finlandaise :
 De 1890 à 1898; les premières tentatives contre la
-constitution finlandaise ;
 * Le régime sous lequel vivait la Finlande depuis 1809, et
 surtout depuis 1863, avait eu d'heureux résultats, à la fois
 pour le pays et pour les souverains. Le loyalisme n'a peut-
@@ -1445,10 +1265,7 @@ presse panslaviste, surtout les Moskovskja Vjedomosti,
 | saient dans cette campagne étaient multiples. D'abord la
 | tendance à la centralisation unitaire, commune aux grands
 | 169
-x
 |
-
-catalogue analytique sommaire
 
 f États, mais plus forte en Russie, qui désignait la Finlande
 au même sort que la Pologne et que les provinces baltiques ;
@@ -1490,15 +1307,11 @@ a). — La restriction de la liberté de la presse et de
 
 b). — La russification des administrations finlan-
 
-k daises;
-
 c). — Réorganisation de la police;
 
 à d). — La suppression des timbres-poste finlandais;
 
 À La résistance à la loi militaire; l'appel de 1902;
-
-F
 
 } Les derniers événements; les questions prochaines;
 
@@ -1511,12 +1324,6 @@ b) la question douanière;
 | c) la réforme de la diète;
 
 | d) autres questions;
-
-; xpoM if
-
-VINGT-ET-UNIÈME CAHIER DE LA TROISIÈME SÉRIE
-
-Conclusion;
 
 Si quelque chose ressort nettement des derniers événements en Finlande, c'est la volonté bien arrêtée, chez le
 gouvernement russe, de poursuivre jusqu'au bout l'œuvre
@@ -1550,7 +1357,6 @@ l'Inquisition au Moyen-Age ; traduction Salomon Reinach;
 
 Dans le même cahier, Le Livre pour tous, Émile Boivin, secrétaire administrateur, 8, rue de la Sorbonne,
 
-; ! catalogue analytique sommaire
 L Paris, cinquième arrondissement, une circulaire datée
 "3 du jeudi 31 juillet 1902;un commentaire à cette cir-
 | culaire ;
@@ -1581,10 +1387,7 @@ Petite République du dimanche 3 août, un article de
 Buisson, Le rôle de M. Combes, lettre ouverte à M. Gabriel Monod; la première phrase de cet article; Aurore
 du jeudi 14 août, lettre de M. Guieysse, député du Mor172 ,
 
-bs x
-TROISIÈME SÉRIE
 bihan, citation; même lettre de M. Buisson, citation ;
-commentaires;
 
 De la troisième série, nous avons, à la date d'aujourd'hui, ur nombre de collections complètes restreint ;
 depuis le premier janvier 1903 nous vendons ces troisièmes séries complètes un prix sensiblement égal au
@@ -1597,27 +1400,16 @@ leur prix sera porté l'une à cent francs
 De la troisième série nous avons formé des collections
 incomplètes mais continues, complètes depuis le huitième cahier de la troisième série, inclus, comprenant
 Par conséquent les huitième, neuvième, dixième, onzième, douzième, treizième, quatorzième, quinzième,
-seisième, dix-septième, dix-huitième, dix-neuvième,
 vingtième et vingt-et-unième cahiers de la troisième
 série, collections en nombre restreint, chacune de ces collections vingt-deux francs
 
-(4
-
-1 id + 22
-
-i3 QUATRIEME SERIE
-là
-
 13 1902-1903
-
-ll
 
 14 Premier cahier de la quatrième série, un cahier blanc °
 ‘4 de 80 pages, bon à tirer du mardi 7, fini d'imprimer
 LA du jeudi 9 octobre 1902 ;
 
 1 ANATOLE FRANCE. — L'affaire Crainquebille, —
-; à édition complète ;
 
 } % Avant que l'on commence à relire l'histoire de CrainqueLa bille, Anatole France me pardonnera d'y épingler une
 HR / citation, parce que cette citation jette une lumière sur les
@@ -1632,17 +1424,11 @@ a du mardi 23 septembre 1902)
 
 Hi Je m'en voudrais de commenter ce texte.
 
-12 Charles Péguy
-
-LI . » .
-
 1 De la majesté des lois;
 
 1à La majesté de la justice réside tout entière dans chaque
 44 sentence rendue par le juge au nom du peuple souverain.
 rl Jérôme Crainquebille, marchand ambulant, connut comHE bien la loi est auguste, quand il fut traduit en police cor4 174
-
-CRAINQUEBILLE
 
 rectionnelle pour outrage à un agent de la force publique.
 Ayant pris place, dans la salle magnifique et sombre, sur le
@@ -1666,7 +1452,6 @@ pas relever de la puissance pontificale. Crainquebille pouvait dire avec quelque
 — Messieurs les juges, le Président Loubet n'étant pas
 oint, ce Christ, pendu sur vos têtes, vous récuse par l'organe des Conciles et des Papes. Ou il est ici pour vous rappeler les droits de l'Église, qui infirment les vôtres, ou sa
 
-présence n'a aucune signification raisonnable.
 A quoi le président Bourriche aurait peut-être répondu :
 — Inculpé Crainquebille, les rois de France ont toujours
 été brouillés avec le Pape. Guillaume de Nogaret fut excommunié et ne se démit pas de ses charges pour si peu. Le
@@ -1678,15 +1463,9 @@ soumission de Crainquebille aux lois de la République ;
 
 |
 
-IE $
-(|
 | catalogue analytique sommaire
-fi pr
 h l Crainquebille devant l'opinion ; les conséquences ; les
 | + dernières conséquences ;
-ji Éditions d'art Édouard Pelletan; plusieurs an-
-Î nonces ;
-Î
 | marqué un franc, ce cahier est aujourd'hui retiré du
 k commerce ; il n'est donc mis en vente que dans les colF _ lections complètes de la quatrième série ;
 4 Deuxième cahier, cahier de la Toussaint de la quaFE trième série, un cahier jaune de 96 pages, fini d'im- -
@@ -1702,7 +1481,6 @@ F Il y a deux mois, on amenait dans mon service à l'hô-
 À. par un temps assez dur, il avait contracté une pneumonie,
 qui, dans une constitution appauvrie par le surmenage
 intellectuel, et déjà entamée par suite d'hérédités fâcheuses,
-se transforma bientôt en phtisie galopante.
 Il faut vous dire que dans les hôpitaux, notre attitude
 | à nous, médecins, est assez différente de la hauteur voulue
 Î des majors de corps de troupe. Tout en faisant la part des
@@ -1713,7 +1491,6 @@ nous aimons à nous relâcher de notre brusquerie et d'aucuns, dont je suis, cau
 Le mien m'intéressa tout de suite. ;
 C'était un grand garçon, maigre, aux traits rudes, mais »
 
-L'AUBE FRATERNELLE
 dont la physionomie rude s'éclairait d'un regard profond
 Il y avait tant de douceur intelligente dans son visage
 amenuisé par la maladie, ses yeux bleus brillaient d'une
@@ -1733,13 +1510,11 @@ il était au collège, il ne lui restait qu'un vieil oncle, dans
 
 . le midi, célibataire indifférent et médiocre, propriétaire de
 vignobles et grand chasseur, avec qui il n'avait pas deux
-idées en commun.
 
 Il ne se faisait pas d'illusion sur son cas. Je ne vous
 dirai pas qu'il attendit la mort avec la sérénité des sages
 antiques, discutant avec moi de l'immortalité de l'âme. IL
 était trop simple pour vouloir se hausser jusqu'à ce
-stoïcisme.
 
 Les premiers moments où il vit nettement l'anéantissement prochain furent pénibles et même terribles. Il était
 pris d'un grand frisson à la pensée de la destruction totale
@@ -1755,9 +1530,6 @@ coiffés d'un bonnet de coton blanc, se promenaient sans
 bruit. Il y avait tant de tiédeurs molles dans l'air, dans le
 soleil, sur la terre et sur les eaux, qu'il s'effarait devant
 elles, et qu'un immense désespoir passait dans ses yeux
-vitreux.
-
-catalogue analytique sommaire
 
 Puis cela même s'apaisa. À mesure que la maladie le
 minait plus profondément, les forces de résistance s'usaient
@@ -1792,8 +1564,6 @@ l ils étaient logés sous la tente, leurs effets placés sous le
 
 C'est une sincérité de plus, parmi tant d'autres.
 
-2:35,
-
 Médecin-major de deuxième classe
 | L'arrivée; au camp; au fort;
 
@@ -1804,11 +1574,8 @@ exemplaire; il n'est donc mis en vente que dans les
 collections, complètes, de la quatrième série;
 | mur
 
-DE JEAN COSTE
-
 Troisième cahier de la quatrième série, un cahier
 jaune de 72 pages, bon à tirer du mardi 4 novembre
-1902 ; un franc
 
 De Jean Coste ; conclusion :
 
@@ -1823,7 +1590,6 @@ des savants, des hommes qui ont fait et qui maintiennent
 l'humanité. Il doit assurer la représentation de la culture.
 C'est pour cela qu'il ne peut pas assumer la représentation
 de la politique, parce qu'il ne peut pas cumuler les deux
-représentations.
 
 Mais pour cela, et nous devons avoir le courage de le
 répéter aux instituteurs, il est indispensable qu'ils se cultivent eux-mêmes ; il ne s'agit pas d'enseigner à tort et à
@@ -1846,47 +1612,34 @@ en lisant, en regardant, en écoutant. Qu'on lise Rabelais ou
 | ou Corneille, Rousseau ou Voltaire, Vigny ou Lamartine,
 |
 
-(|
-
-l
 | | catalogue analytique sommaire
 |A
 ; f c'est en lisant qu'un homme se forme, et non pas en
 0e récitant des manuels. Et c'est, aussi, en travaillant, modestement.
-À CHARLES PÉGUY
 4 fl dans le même cahier :
 le Flétri, par L. Maillard; et une bonne réponse de
-F Clément Marot;
 F | Quatrième cahier de la quatrième série, un cahier
 l jaune de 112 pages, fini d'imprimer du jeudi 20 no-
 | | vembre 1902; un franc
 ANTONIN LAVERGNE. — La médaille ; — la lettre de
-% ; * convocation ;
 | |A Cahiers de la Quinzaine ; subventionné ; où inclus un
 M: article de M. Henry Bérenger, l'équivoque, publié dans :
 | Le la Raison du dimanche 19 octobre 1902; le Mouvement
 
-Lt
 : $ Socialiste ; M. André Morizet, une enquête sur l'anticlé-
 { ricalisme et le socialisme, avant-propos ; M. Buré, Le
 4 second Congrès du Parti Radical; M. Emile Terquem,
 Ë | une lettre datée de Versailles, 31 août 1902, adressée
 EE mon cher Péguy; commentaires; questionnaire Ter-
-À quem ; M. Georges Colomb ; désabonnements ;
 
 j Cinquième cahier de la quatrième série, un cahier
 #3 jaune de 144 pages, fini d'imprimer du jeudi 4 dé-
 | cembre 1902; deux francs
-7° -
 ai Textes et commentaires. — Émile Zola ;
 | Émile Zola est mort le lundi 29 septembre 1902. Ses funé-
 
 railles ont eu lieu le dimanche 5 octobre au cimetière
-: Monimartre.
 | ‘
-
-4 è
-ÉMILE ZOLA
 
 Trois discours ont été prononcés :
 
@@ -1904,16 +1657,12 @@ Discours de M. Abel Hermant ;
 
 Discours de M. Anatole France :
 
-Messieurs,
-
 Appelé par les amis d'Émile Zola à parler sur cette tombe,
 j'apporterai d'abord l'hommage de leur respect et de leur
 douleur à celle qui fut durant quarante années la compagne
 de sa vie, qui partagea, allégea les fatigues des débuts,
 égaya les jours de gloire et le soutint de son infatigable
 dévouement aux heures agitées et cruelles.
-
-Messieurs,
 
 Rendant à Émile Zola au nom de ses amis les honneurs
 qui lui sont dus, je ferai taire ma douleur et la leur. Ce
@@ -1936,7 +1685,6 @@ blämes étaient poussés avec une égale véhémence. On fit
 parfois au puissant écrivain — je le sais par moi-même — des
 reproches sincères, et pourtant injustes. Les invectives et
 les apologies s'entremélaient. Et l'œuvre allait grandissant.
-: 181
 
 | XI
 
@@ -1976,7 +1724,6 @@ l donner que des signes de calme et d'harmonie. Mais vous
 A savez, messieurs, qu'il n'y a de calme que dans la justice,
 À de repos que dans la vérité. Je ne parle pas de la vérité phise : 182 ù
 
-i ÉMILE ZOLA |
 losophique, objet de nos éternelles disputes, mais de cette
 
 1 vérité morale que nous pouvons tous saisir parce qu'elle
@@ -2023,9 +1770,6 @@ caressaient l'erreur, qu'ils désespéraient de détruire. Les
 De quelles fureurs il fut alors assailli par les criminels,
 par leurs défenseurs intéressés, par leurs complices invo-
 
-A: 2 É
-FE |
-Î ; ‘à catalogue analytique sommaire
 id it lontaires, par les partis coalisés de toutes les réactions, par
 | F ‘4 la foule trompée, vous le savez et vous avez vu des âmes
 PE innocentes se joindre avec une sainte simplicité au hideux
@@ -2060,9 +1804,6 @@ il | Messieurs,
 L) I n'y a qu'un pays au monde dans lequel ces grandes
 4 Ne choses pouvaient s'accomplir. Qu'il est admirable le génie
 EN de notre patrie! Qu'elle est belle cette âme de la France,
-ja/2
-
-ÉMILE ZOLA, HOMME D'ACTION j
 
 qui, dans les siècles passés, enseigna le droit à l'Europe et s
 au monde ! La France est le pays de la raison ornée et des
@@ -2078,8 +1819,6 @@ gloire atteint une hauteur inaccessible.
 Envions-le : il a honoré sa patrie et le monde par une
 œuvre immense et par un grand acte. Envions-le, sa destinée et son cœur lui firent le sort le plus grand: il fut un
 moment de la conscience humaine.
-
-ANATOLE FRANCE
 
 texte définitif, remis par Anatole France à M. Maurice Kahn; emprunté à Pages libres, numéro 94,
 deuxième année, du 18 octobre 1902 ;
@@ -2108,7 +1847,6 @@ i L Gabriel Trarieux
 ll né peu morne. On fait halte soudain avec délices en de charAL: 4 mantes oasis: la Faute de l'Abbé Mouret, une Page
 FM d'Amour font pendant aux visions sinistres de l'Assommoir
 n' et de La Débâcle. Plus souvent on ahanne avec peine. ParN'} JUS fois on s'arrête, rebuté. On admire, on subit, plus qu'on
-113 n'aime...
 Je S'il faut préciser ce qui manque à cette œuvre rude et
 | # À à massive, ce sera sans doute un soupir, le pressentiment
 5 Han F d'autre chose, une revanche à tant de défaites, à tant de
@@ -2127,7 +1865,6 @@ HN de Paris, les relents de l'Assommoir, les houilles de la,
 à ‘a quelques lignes, plus tard est sorti ce chef-d'œuvre unique :
 4 ni Résurrection. On les chercherait vainement dans les trente
 {1 romans de Zola. Je n'indique pas un regret. Je constate une
-à lacune immense.
 ‘5 C'est que la tâche de l'Artiste, c'est de dénombrer, il me
 “fhe semble, non point les mille reflets des choses, mais les
 | 1 d. mille forces de l'esprit. Ce. n'est pas « Nature » qu'il suffit
@@ -2136,7 +1873,6 @@ HN de Paris, les relents de l'Assommoir, les houilles de la,
 FRE pas réaliste, il est, en ce sens précis, humaniste. Car
 } 19 l'Homme enferme la Nature — qui est l'humanité passée —
 a 2 et aussi l'avenir humain, dont nul ne peut entrevoir le
-sf terme.
 
 {| ï Je sais bien que Zola ne l'eût pas nié. Telle phrase de ses
 Fo essais va étrangement loin dans ce sens. Je sais bien que |
@@ -2145,9 +1881,7 @@ Fo essais va étrangement loin dans ce sens. Je sais bien que |
 
 : giles », s'efforcent vers des synthèses plus hautes, abordent
 #4 186, |
-} d et 4
 
-; ÉMILE ZOLA, HOMME D'ACTION 1
 des notions plus complexes, les conflits de la vie et de la
 foi, l'ébauche des rénovations sociales. IL est sans doute
 permis de dire qu'il s'y montre moins à son aise que dans
@@ -2188,11 +1922,8 @@ l'espoir, toutes les chaleurs d'enthousiasme qu'il déniait à
 lindividu. C'est assez pour beaucoup de gloire, et pour
 survivre dans le temps. Enfin son effort, plus haut que son
 œuvre, commande la stupeur et le respect.
-F4
-x %
 Et nous arrivons à son Acte. Rien de plus logique, en un
 sens, que cette éclosion finale. Les études quotidiennes de
-; 187
 
 | 0 Gabriel Trarieux
 Ï 2 Zola le prédisposaient à se passionner pour tous les conflits
@@ -2214,7 +1945,6 @@ Re. goût de Balzac pour les aventures de police. — Ce drame,
 4 touchait à l'âge où l'artiste le plus obstiné entend sonner
 | “4 un glas intime qui lui conseille une action plus humble, un
 4 4 dévouement plus immédiat : Byron a eu Missolonghi,
-% R: x Lamartine a eu 48, Victor Hugo a eu Jersey, Tolstoi a
 - #4 croisé Soutaieff... On dirait qu'une fatalité les pousse, pour
 4 être bien sûrs d'épuiser leur force, à tâter toutes les issues.
 + ON Émile Zola écrivit J'accuse!… Ici, pour la première fois, son
@@ -2235,7 +1965,6 @@ E: l'espoir n'était plus possible, toujours plus lucide et plus
 s à À affermi. A suivre la Vérité en Marche, on peut comparer
 (1 ‘4 les divers articles qu'il jeta au vent des tempêtes. On y
 
-ÉMILE ZOLA, HOMME D'ACTION
 constate un progrès constant, on y discerne un son qui
 monte et qui chante toujours plus haut. Je me rappelle, au
 lendemain de Rennes, l'admirable impression vécue à lire
@@ -2275,8 +2004,6 @@ cabinet de travail, une couverture grise sur ses genoux, le
 cou protégé d'un foulard blanc. Une lampe brülait sur la
 table, éclairant le grand front découvert, la face tour-
 
-189 XI.
-
 | va catalogue analytique sommaire
 i ä mentée, indécise, l'intense regard d'amertume. IL me
 ie semble, à distance, que ce visage sort des ténèbres où
@@ -2305,24 +2032,17 @@ A fl pu rendu la vie, l'espace. Chute au plus haut point symbolique.
 A putrides, pour ouvrir la haute fenêtre au delà de laquelle
 à: M est l'air pur. C'est la mort qu'il a rencontrée. Qui oserait
 À Lo dire avec certitude qu'elle a terminé sa Recherche ?
-(ER
-à 2 GABRIEL TRARIEUX
 À | À Charles Péguy, les récentes œuvres de Zola;
 f | 4 On me permettra de reproduire ici un article qui fut
 gl Ni publié pour la première fois dans le Mouvement Socialiste,
 ‘4 ‘h numéros 20, du premier novembre, et 21, du 15 novembre
-‘6 4
 
-ÿ
-LES RÉCENTES ŒUVRES DE ZOLA à
-* [ui
 1899. Sauf de très rares exceptions nous ne reproduisons +
 pas les articles publiés dans les cahiers. Nous reproduisons L
 cet article précédemment publié dans le Mouvement Socia- ï
 liste parce que la région de nos abonnés actuels a, — mal- #
 heureusement, — gardé peu d'éléments communs avee la if
 région des socialistes qui en novembre 1899 lisaient le Mou- È
-vement.
 Nous reproduisons cet article exactement tel qu'il fut ï
 publié la première fois. Puisqu'il porte sa date, je n'ai pas
 le droit de le modifier. D'ailleurs il vaut mieux, pour K
@@ -2351,7 +2071,6 @@ maison de bourgeois cossu, de grand bourgeois honnête.
 Je ne l'avais jamais vu. L'heure était redoutable et je voulais avoir, de l'homme qui prenait l'affaire sur son dos,
 cette impression du face à face que rien ne peut remplacer.
 L'homme que je trouvai n'était pas un bourgeois, mais un
-; 191
 
 | catalogue analytique sommaire ;
 | % $ paysan noir, vieilli, gris, aux traits tirés, et retirés vers le
@@ -2388,18 +2107,13 @@ M: Zola lui-même l'a fort bien jugée à son retour : (Et voilà que
 | N: ma pauvre Lettre n'est plus au point, apparaît comme tout
 à fait enfantine, une simple
 li (1) De l'esprit géométrique.
-l “# 192 ;
 
-ge A PAP r nn bi FA
 |
-INVENTAIRE DES CAHIERS ;
-Émile Zola, lettre à monsieur Félix Faure, Président 14
 de la République, publiée pour la première fois dans +
 l'Aurore du 13 janvier 1898, J'Accuse...! lettre au
 Président de la République, adressée Monsieur le Pré- 4
 sident, signée Émile Zola ; texte critique, d'après l'Aurore, la brochure, et la Vérité en marche ; déclaration ‘
 de Zola qui précède cette lettre dans la Vérité en
-marche ;
 Bibliographie; les œuvres de Zola; énumération de
 librairie complète; les Rougon-Macquart; les trois
 villes ; les quatre Évangiles ; romans et nouvelles ;
@@ -2407,13 +2121,10 @@ villes ; les quatre Évangiles ; romans et nouvelles ;
 dates, préfaces et notes, texte; tables des matières
 toutes les fois qu'il y en a; statistique ; théâtre ; en
 collaboration ; brochures ; l'affaire Dreyfus ; éditions de
-luxe ; petite bibliothèque Charpentier;
 dans le même cahier: ‘
-Éditions d'art, Édouard Pelletan, 125, boulevard SaintGermain, Paris ; deux éditions d'Anatole France ;
 dans le même cahier, une rectification de M. Urbain
 Gohier, datée de Paris, 23 novembre 1902, adressée
 Monsieur le rédacteur des Cahiers de la Quinzaine,
-signée Urbain Gohier ;
 Sixième cahier de la quatrième série, un cahier jaune
 de 72 pages, bon à tirer du jeudi 18 décembre 1902;
 un franc
@@ -2430,10 +2141,6 @@ he. antérieures à la fondation des cahiers ; première série;
 
 à deuxième série; troisième série; librairie des cahiers ;
 
-Fe. total général ;
-
-“14 RE de A  S
-
 à Septième cahier de la quatrième série, un cahier blanc
 
 à de 88 pages, bon à tirer du samedi 20 décembre 1902,
@@ -2444,15 +2151,11 @@ Fe. total général ;
 
 É le Grant Testament de maistre Françoys Villon, —
 
-à T46E, — LXXIX ;
-
 Item, donne à ma poure mere
 
 # Pour saluer nostre Maistresse,
 
 ba: Qui pour moy ot douleur amere,
-
-À . . .
 
 ne Dieu le scet, et mainte tristesse ;
 
@@ -2463,11 +2166,9 @@ ne Autre chastel n'ay, ne fortresse,
 ‘4 Quand sur moy court malle destresse,
 
 174 Ne ma mere, la poure femme! 1
-É: Ballade |
 
 7 gve Villon feit a la reqveste de sa mere povr prier
 
-: ; ! Nostre Dame : |
 4 4 Trois lettres de Tolstoi ; 4
 be: Ces lettres ont été publiées dans l'Athenaeum du 4 oc- {
 Re. tobre 1902, avec la permission de M. Aylmer Maude.
@@ -2479,19 +2180,11 @@ De. avait refusé, au nom de ce comité, l'argent offert par ji
 
 ‘4 rection. U avait écrit à Tolstoi pour lui reprocher l'immo-
 
-‘4 194 € é
-
-TROIS LETTRES DE TOLSTOI
 ralité de son livre, se plaignant surtout du chapitre xvir du
 livre I. Les deux autres lettres sont en russe.
 
 Traduction établie pour les cahiers par les soins de j
 Romain Rolland.
-
-Première lettre ;
-
-7 décembre 1gor
-A John Bellows
 
 Cher ami, j'ai reçu votre lettre et je voulais y répondre,
 mais j'ai été si faible depuis deux mois que je n'ai pu le
@@ -2533,11 +2226,7 @@ que d'avoir une indigestion d'éducation et d'en venir à la
 
 |
 
-ji]: Sn È
-
 |: cahier de Noël de la quatrième série
-
-HAE
 
 |. détester : — ce qui arrive à presque tous, surtout à ceux
 
@@ -2556,8 +2245,6 @@ il mon avis, soyez sûre que je ne vous écrirais pas à ce sujet,
 | # si ce n'était pas une affaire d'une aussi énorme importance.
 
 | 20 Surtout, croyez votre mari qui voit les choses tout à fait
-
-i à raisonnablement.
 
 |. Mais alors, vient l'objection habituelle. Si l'on n'enseigne
 
@@ -2606,10 +2293,6 @@ M. À légué la légende l'avaient faite, la faisaient et la refaisaient
 
 | 08 après et parmi tant de conteurs. J
 
-&. 196 z k
-
-LA LÉGENDE DE LA VIERGE 1 s
-$
 Les cinq contes que l'on va lire sont les premiers d'une |
 série qui sera intitulée la légende de la Vierge. ; |
 Du moine qui voulut voir Notre Dame ;
@@ -2624,7 +2307,6 @@ nom de Notre Dame en lettres d'or, d'azur et de blanc, de à
 vermillon et de safran.
 Nul moine, du couvent, n'était plus chaste de corps et de
 cœur. Nul n'avait une âme plus candide, filée du lin de plus
-blanches vertus.
 Mais son âme se consumait d'un grand désir.
 Ne verrait-il qu'après sa mort celle qu'il aimait, la douce
 dame sur toutes choses précieuse, entre toutes femmes élue,
@@ -2632,12 +2314,10 @@ entre toutes bénie, la gloire du monde, la joie du ciel, le
 trésor de toute merci, l'espérance de tout salut, la gemme,
 la fleur de lys et d'églantier, Notre Dame Sainte Marie. Il
 aurait voulu la voir, ne füt-ce qu'une fois, des yeux de son
-corps.
 Exact à chanter chaque jour ses Heures, il la priait très
 humblement, à la fin de chaque office, de lui faire, à lui
 très indigne, la grâce accordée à quelques saints hommes
 de jadis, de lui apparaître seule ou dans la Compagnie des
-Anges.
 Pour tromper un désir que les jours, les semaines, les
 années exaltaient sans le satisfaire, il peignit sur les parchemins les plus précieux des images de celle qu'il n'avait
 jamais vue et qui emplissait son cœur.
@@ -2646,9 +2326,7 @@ de la Reine d'amour étaient changeantes comme le ciel.
 Même il s'était essayé à ne pas représenter Notre Dame
 sous une forme et une apparence de femme : les perles, les
 
-!
 1500 Jérôme et Jean Tharaud
-ï
 # sources, les fleurs devinrent sous son pinceau les figures de
 ‘à Celle qui éclaire toutes les belles choses du monde d'un
 “ reflet de sa beauté.
@@ -2668,14 +2346,12 @@ que tu pouvais, ton nom sera écrit au livre de vie.
 ki dites, emportez-moi tout de suite au royaume de votre fils;
 : que je meure sur l'heure et vous voie non plus sous les
 2 traits de cette image imparfaite, mais telle que vous êtes
-\ en vérité.
 À — Beau fils, répondit l'image, tes jours ne sont pas à
 {4 moi : ils appartiennent à mon fils. Je n'annonce l'heure de
 ; mourir à personne. Mais si tu tiens tant à me voir, tu me ! $
 F verras. Apprends seulement que nul homme vivant ne
 ‘1 m'a vue sans devenir aveugle.
 N. Le moine se mit à trembler de tout son corps, de joie et
-1h d'espoir : f
 ge — Qui ne consentirait pour vous voir, Impératrice des
 k 4 Anges, à perdre la lumière de ses yeux? 6
 (1 Mais vivement le moine couvrit de sa main son autre
@@ -2686,10 +2362,6 @@ k 4 Anges, à perdre la lumière de ses yeux? 6
 dl robe couleur de nuit de mai, semée de toutes les planètes
 à} et les étoiles du ciel. Si clair était son visage que près de
 1 sa splendeur paraîtrait noir un jour d'été. ‘
-4 15 CANONS \
-
-4 :
-DU MOINE QUI VOULUT VOIR NOTRE DAME
 
 La Vierge et son cortège passèrent devant l'œil du moine
 ébloui comme une silencieuse tempête, laissant dans son
@@ -2708,7 +2380,6 @@ fois je vous voie.
 tout ce que je possède et ma vie.
 
 — Regarde-moi donc encore une fois si ma vue test si
-délectable.
 
 Et le moine vit, dans une immense plaine nue, sur un
 
@@ -2725,7 +2396,6 @@ visage d'éternité où toute la douleur du monde était empreinte.
 pour retenir une seconde, devant lui, sur le chemin cette
 apparition désolée, — reine de pitié, vous êtes plus belle
 encore dans votre tristesse que dans votre gloire et votre
-joie.
 
 Notre Dame allait disparaître dans le lointain de la
 route, elle se retourna pour dire au moine en extase :
@@ -2763,15 +2433,9 @@ al du cierge qui vint se poser sur la viole de Pierre de-
 
 Et Syglar; du clerc qui priait Notre Dame pour sa luxure ;
 
-e
-
 \ Louis Gillet, — la tour d'Armor, — gwerz de Cor-
 
 2% ; nouailles ; datée de Lesneven, octobre 1901;
-
-14 NOTE
-
-Ù
 
 4 Le poème suivant n'est que la traduction d'une gwerz en
 
@@ -2790,27 +2454,20 @@ Re sans doute si javais écrit d'invention; j'en ai rendu de mon
 FE: idiotismes, tout ce que j'en ai pu distinguer dans la version
 > française. Je ne me suis permis qu'un seul changement
 h dans l'ordre des vers, au cinquième morceau, dont voici la
-ire première strophe :
 
 4 Re" « Qu'as-tu vu, marin, sur la mer?
 
 “2 « — Une barque sans rames et sans voiles ; et sur l'arrière, 1
 +5 pour pilote, un ange debout les ailes étendues. » j
 1 J'ai cru mieux faire de réserver les vers 3 et 4 pour le M
-d dernier trait.
 
 Le Quand j'écrivis cette pièce, dans le premier mois d'un
-À À D
-‘à : 200 ;
-
-LA TOUR D'ARMOR :
 
 long séjour en Bretagne, je crus avoir affaire à une œuvre
 populaire. Je l'ai trouvée à la suite de la légende de saint
 Budoc, publiée par Albert Le Grand, de Morlaix, en 1640,
 dans la nouvelle édition que les chanoines de Quimper ont
 donnée de son grand ouvrage /La vie des Saints de la
-Bretagne Armorique, in quarto, cinquième édition, 1901,
 page 645). Ils l'y donnent pour l' « œuvre d'un poète |
 anonyme », et l'ont extraite du Barzaz-Breiz, où elle se lit
 en effet (neuvième édition, page 490). J'ignorais alors tout
@@ -2819,7 +2476,6 @@ le travail de critique qui s'est fait depuis trente ans sur le
 lire sur la composition de ces pastiches ce qu'en écrit
 M. Luzel /Gwerziou Breiz-Izeil, volume I, page 284), et le
 petit travail qu'il a consacré au Barzaz-Breiz (Bouillon,
-éditeur).
 
 Je ne saurais toutefois déterminer dans quelle mesure
 mon original breton est un faux, et jusqu'à quel point la
@@ -2839,18 +2495,14 @@ sans trouver des vers moins bons pour manquer à cette
 règle, je ne travaille de tout mon cœur à y conformer les
 vers que j'écris aujourd'hui.
 
-15 décembre 1902
-
 du même cahier, dix exemplaires sans couverture ;
 après l'épuisement prochain des autres exemplaires,
 seront vendus l'un cinq francs
 
-nt
 # René Salomé
 ne Huitième cahier, premier janvier de la quatrième
 N. série, un cahier blanc de 96 pages, bon à tirer du
 “+ samedi 27, fini d'imprimer du mardi 30 décembre 1902;
-3 deux francs
 ‘+ René Salomé. — Monsieur Matou et les circona stances de sa vie ; — écrit à Bruxelles en 1902 ;
 ‘4 avec les bons souhaits des cahiers pour cette nouvelle
 4 année de travail ; :#
@@ -2859,7 +2511,6 @@ F un portrait de monsieur Matou, par la photographie,
 Le reproduit par la photographie, Photo-Bromure, 39, rue
 ke de Châteaudun, Paris, par les soins de notre collabohe rateur M. Georges Bellais ;
 à dédié pour nos petits: pour nos petites; pour Ma-
-‘s rianne Mayer;
 5 L'armoire à linge et la salamandre;
 ‘4 + Monsieur Matou est dans la dixième année de son âge.
 PE C'est dire qu'il devrait être un chat sérieux. Neuf ans pour
@@ -2874,17 +2525,12 @@ Ni langue rose qui gratte en léchant. Ce faisant, monsieur »
 ne Matou avale des poils de gilet et des poils de pantalon : il !
 18 s'en suit qu'il tousse et qu'il a mal au cœur. à
 114 — Ce monsieur Matou est stupide, déclare la vieille
-14 F j
-Ho - 202 4
-di
 
-MONSIEUR MATOU ET LES CIRCONSTANCES DE SA VIE 4
 armoire normande à ses protégés, les draps, les serviettes
 et les essuie-mains. S'il ne noircissait pas chaque jour son
 gilet et ses pantalons à la turque, il n'aurait pas à les nettoyer avec sa langue. S'il n'avait pas à les nettoyer avec sa
 langue, il n'avalerait point les poils qui sont dessus. Et
 s'il n'avalait pas les poils qui sont dessus, il n'aurait pas k
-mal au cœur.
 
 — Ce raisonnement est admirable, murmurent les draps,
 les serviettes et les essuie-mains. Et la vieille armoire normande est flattée qu'on l'approuve. Car elle met sa gloire à
@@ -2911,7 +2557,6 @@ y a bien des poêles et des calorifères qui devraient lui ressembler.
 
 La table à ouvrage; le peloton de laine grise; monsieur Matou amateur de musique; monsieur Matou et
 l'araucaria ; histoire de monsieur Mouton, racontée à
-monsieur Matou; monsieur Matou propriétaire; sagesse
 de monsieur Matou; un voyage de monsieur Matou;
 monsieur Matou à la fontaine; caprices; circonstances
 de sa vie; lettre à monsieur Matou, datée de Bruxelles,
@@ -2919,13 +2564,8 @@ de sa vie; lettre à monsieur Matou, datée de Bruxelles,
 | 203
 |
 
-4 catalogue analytique sommaire
-1 û premier novembre 1902, adressée cher monsieur
-44 Matou;
 ‘1e du même cahier, vingt-six exemplaires sans la photol'A . . # .
 14 graphie de monsieur Matou; après l'épuisement pro1 chain des autres exemplaires, seront vendus l'un
-:14 cinq francs
-Va
 | Neuvième cahier de la quatrième série, un cahier
 D: jaune de 72 pages, bon à tirer du mardi 13 janvier 1903;
 ris un franc
@@ -2934,11 +2574,9 @@ ris un franc
 ia Le printemps commence le samedi 21 mars, à 7 heures
 7 °, minutes du soir;
 5 l'été commence le lundi 22 juin, à 3 heures 14 minutes du
-® soir ; \
 14 lautomne commence le jeudi 24 septembre, à 5 heures
 10 53 minutes du matin;
 d. l'hiver commence le mercredi 23 décembre, à minuit
-a 29 minutes.
 4 À Les douze mois; le milieu de l'année; le jour le plus
 à Ë long de l'année ; les éclipses pour 1903; soleil; lune;
 |
@@ -2948,22 +2586,18 @@ a 29 minutes.
 | 4 décembre 1902
 110 Mon cher Péguy
 É { Le Bulletin de l'Office du travail de novembre 1902 confe tient un compte rendu de la grève générale des mineurs.
-hé . . :
 
 142 Je vous l'envoie par ce courrier. C'est du fait tout nu et
 ‘4 moins amusant qu'un feuilleton de Zévaco. Peut-être juge-
 \ÿ rez-vous cependant que ce fait intéresserait vos lecteurs
-si 204 4
 | 4
 
-: ALMANACH DES CAHIERS POUR L'AN 1903 ;
 puisque — selon la couleur de leur journal — ils n'ont ù
 entendu parler que des bons mineurs et des méchantes 4
 compagnies, — ou inversement des affreux grévistes et du |
 généreux Comité des houillères.
 Jean le Clerc +
 Bulletin de l'Office du travail, décembre 1902, sommaire; suite et fin du même article; |
-Félicien Challaye, — Second courrier d'Indo-Chine ; |
 Aux Français de bonne volonté il faut rappeler de temps
 à autre les souffrances lointaines de nos sujets annamites.
 Dans un premier Courrier d'Indo-Chine paru dans le
@@ -2974,7 +2608,6 @@ les indigènes. D'un paquet de journaux tonkinois récemment reçus, je détache
 Le premier découvre assez bien quels sentiments ont pour
 les Annamites les colons français.
 Indépendance Tonkinoise du 10 août 1902 : Chronique
-locale /Hanoi) :
 Vendredi soir, vers deux heures, des cris de douleur, des
 hurlements déchirants partaient d'une maison sise à l'angle s
 de l'avenue Henri d'Orléans et d'une petite impasse voisine.
@@ -2988,11 +2621,7 @@ patron indigène! Les lambeaux de chair voltigeaient en
 courrier de barbarie; Laurent Tailhade, lettre familière à M. Joseph Viollet, ratichon, dans la Raison
 du dimanche 21 décembre 1902 ;
 
-XII
-
 1% Romain Rolland
-
-LUE | 6
 
 14 Dixième cahier de la quatrième série, un cahier vert
 
@@ -3001,7 +2630,6 @@ LUE | 6
 À AA samedi 24, fini d'imprimer du mardi 27 janvier 1903;
 
 | À Romain RoLLanp. — Vies des hommes illustres, —
-1: Beethoven;
 
 * L'air est lourd autour de nous. La vieille Europe s'enM. gourdit dans une atmosphère pesante et viciée. Un maté-
 LH=" rialisme sans grandeur pèse sur la pensée, et entrave
@@ -3042,17 +2670,12 @@ RH près de nous, nous venons de voir briller deux des plus
 A ss pures flammes, la flamme de la Justice et celle de la
 :4 Liberté : le colonel Picquart et le peuple des Boers. S'ils
 1 206 4
-Me
 
-» Li DS NE NOR F * +
-Lé res ER
 #
-BEETHOVEN :
 n'ont pas réussi à brüler les ténèbres épaisses, ils nous ont .
 montré la route, dans un éclair. Marchons-y à leur suite, à
 la suite de tous ceux qui lutièrent comme eux, isolés, disséminés dans tous les pays et dans tous les siècles. Sup- à
 primons les barrières du temps. Ressuscitons le peuple des h
-héros. È
 Je n'appelle pas héros ceux qui ont triomphé par la 2
 pensée ou par la force. J'appelle héros, seuls ceux qui furent a
 grands par le cœur. Comme l'a dit un des plus grands 1
@@ -3080,12 +2703,9 @@ puissante. Sans même qu'il soit besoin d'interroger leurs
 œuvres, et d'écouter leur voix, nous lirons dans leurs yeux,
 dans l'histoire de leur vie, que jamais la vie n'est plus grande,
 plus féconde, — et plus heureuse, — que dans la peine.
-*
-LE
 En tête de cette légion héroïque, donnons la première
 place au fort et pur Beethoven. Lui-même souhaitait, au
 
-: LS à te ER re LOS UT RER MSC
 ie Romain Rolland
 
 ‘ji milieu de ses souffrances, que son exemple pût être un
@@ -3098,18 +2718,14 @@ HA ce nom ». Parvenu par des années de luttes et d'efforts
 ‘1 était, comme il disait, de soufller un peu de courage à la
 Ê Le pauvre humanité, ce Prométhée vainqueur répondait à un
 \ 20 ami qui invoquait Dieu : « O homme, aide-toi toi-même! »
-DS
 “$ Inspirons-nous de sa fière parole. Ranimons à son
 4 exemple la foi de l'homme dans la vie et dans l'homme. >
-‘40 É RomMaIN ROLLAND
 1188 ci-contre le masque de Beethoven, moulé par Franz
 à Klein en 1812; photographie du masque, sur fond
 ‘0 noir, sur cliché de M. Édouard Château, reproduite par
 nu la photographie, Photo-Bromure, 39, rue de Châteaudun,
 > . . Ë
 | Fa Paris, par les soins de notre collaborateur M. Georges
-F: Bellais ; |
-2: Ë
 # BEETHOVEN |
 1 11 était petit et trapu, de forte encolure, de charpente
 0 3 athlétique. Une large figure, de couleur rouge brique, sauf ÿ
@@ -3120,16 +2736,9 @@ Rega front puissant et bosselé. Des cheveux extrêmement noirs, \
 |: -  n'eût jamais passé, hérissés de toutes parts, « les serpents
 3 S de Méduse ». (1) Les yeux brülaient d'une force prodigieuse, $
 (à qui saisit tous ceux qui le virent; mais la plupart se trom- à
-HAS
 ME (1) J. Russel (1822). — Charles Czerny, enfant, qui le vit en 1801, ,
 Re avec une barbe de plusieurs jours et une crinière sauvage, vêtu 4
 va d'un veston et d'un pantalon en poil de chèvre, crut rencontrer À
-fà \ Robinson Crusoé. F
-112) Ë #
-À
-( RC: 208
-
-BEETHOVEN é'
 
 pèrent sur leur nuance. Comme ils flambaient d'un éclat Ê
 sauvage dans une figure brune et tragique, on les vit géné- À
@@ -3164,19 +2773,11 @@ de sa face saillaient, ses veines gonflaient ; les yeux sauvages devenaient deux
 
 (2) « Ses beaux yeux parlants », dit le docteur W.-C. Mueller,
 « tantôt gracieux et tendres, tantôt égarés, menaçants et terribles ».
-(1820)
 
-209 XHI,
-
-pit
-F
 à Romain Rolland
 (1 blait ; il avait l'air d'un enchanteur vaincu par les démons
 Le qu'il avait évoqués. » Telle une figure de Shakespeare; (1)
 he. Julius Benedict dit : « Le roi Lear ».
-sl
-su
-D à + *
 ‘à Ludwig van Beethoven naquit le 16 décembre 1770, à
 4 Bonn, près de Cologne, dans une misérable soupente d'une
 Le pauvre maison. Il était d'origine flamande. (2) Son père:
@@ -3195,48 +2796,26 @@ DE: souci de gagner son pain, les tâches trop précoces. À onze
 4 . « Elle m'était si bonne, si digne d'amour, ma meilleure
 pi amie! Oh! qui était plus heureux que moi, quand je pou-
 ‘1 vais prononcer le doux nom de mère, et qu'elle pouvait
-hi: "
-Fi |
 Là (1) Kloeber dit: « d'Ossian ». Tous ces détails sont empruntés aux À
 ik 4 notes d'amis de Beethoven, ou de voyageurs qui le virent, — tels ;
 fl : que Czerny, Moscheles, Kloeber, Daniel Amadeus Atterbohm, W.-C.
 an: Mueller, J. Russel, Julius Benedict, Rochlitz, etc. L
 il (2) Le grand-père Ludwig, l'homme le plus remarquable dela
 ES famille, celui à qui Beethoven ressemblait le plus, était né à Anvers
-q P |
 4 et ne s'établit que vers sa vingtième année à Bonn, où il devint
 HR maître de chapelle du prince-électeur. — Il ne faut pas oublier ce
 1 ; fait, si l'on veut comprendre l'indépendance fougueuse de la nature
 ji) , de Beethoven, et tant de traits de son caractère qui ne sont pas
-& î : proprement allemands.
-\y ts
-LL mA GRO,
 
-i À
-BEETHOVEN :
-"l
 l'entendre? » (1) Elle était morte phtisique;et Beethoven se ù à
 croyait atteint de la même maladie; il souffrait À
-FA
-Beethoven, — textes ; ét
 testament d'Heiligenstadt, pour mes frères Carl et A
 (Johann) Beethoven, Heiligenstadt, le 6 octobre 1802; ‘
 — testament d'Heiligenstadt, pour mes frères Carl et |
 (Johann). A lire et à exécuter après ma mort; Heiligenstadt,
-le 10 octobre 1802 ; . \
-Lettres “
-au pasteur Amenda, en Courlande, probablement écrit en
-I801I;
-au docteur Franz Gerhard Wegeler, Vienne, 29 juin (1801);
-à Wegeler, Vienne, 16 novembre 1801;
 lettre de Wegeler et d'Éléonore (von Breuning) à Beethoven;
 lettre de Wegeler, Coblentz, 28 décembre 1825, adressée
 mon cher vieux Louis;
-lettre d'Éléonore Wegeler, Coblentz, 29 décembre 1825;
-Beethoven à Wegeler, Vienne, 7 octobre 1826 ;
-à Wegeler, Vienne, 17 février 1827;
-à Moscheles, Vienne, 14 mars 1827;
-Bibliographie
 pour les lettres de Beethoven ; !
 pour la vie de Beethoven;
 pour l'œuvre de Beethoven;
@@ -3245,18 +2824,14 @@ marqué deux francs, ce cahier est complètement
 épuisé ; même dans les collections complètes, il n'en reste
 aucun exemplaire; il n'est donc pas mis en vente dans
 les collections, complètes, de la quatrième série ;
-(1) Lettre au docteur Schade, à Augsbourg, 15 septembre 1787.
 (No! : Lettres de Beethoven, IL.)
-ATL
 
-catalogue analytique sommaire
 l à mais en septembre 1903 nous avons fait établir du
 hi même cahier et nous avons mis en vente une deuxième
 ; 3h édition, un cahier de 104 pages, bon à tirer du mardi
 1 22, fini d'imprimer du jeudi 24 septembre 1903; édition
 : 0 identique à la première; bibliographie mise au cou-
 | rant; quelques corrections ou additions; une table;
-3 - deux francs
 # La photographie du masque moulé par Franz Klein ;
 | en 1812 n'a été reproduite pour la deuxième édition
 D qu'à quatre cents exemplaires; ces quatre cents exem- -
@@ -3267,7 +2842,6 @@ RE: La photographie du masque moulé par Franz Klein Ë
 % en 1812 a été reproduite en outre à cent exemplaires Ë »] 5 pour grand papier ; ces exemplaires portent reproduite 1
 à par la photographie la signature de Beethoven; ces \
 4 exemplaires, collés sur feutre, se vendent l'un
-cinq francs &
 | Onzième cahier de la quatrième série, un cahier jaune #
 |. de 72 pages, bon à tirer du mardi 3 février 1903; }
 un franc ÿ
@@ -3279,9 +2853,6 @@ F8 bre 1902. On doit noter à l'avantage de Gustave Rouanet, F4
 "à député, directeur de la Revue Socialiste, qu'il a justement et ù
 
 $ libéralement, comme directeur de La Revue, accueilli et mis l
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME É
-F
 
 en bonne place un article fortement contraire à la politique
 de gouvernement qu'il soutient comme député. Non seule- ÿ:
@@ -3313,18 +2884,12 @@ tous les députés, de tous les conseillers généraux, de tous ÿ
 les conseillers municipaux, de tous les conseillers d'arron- |
 dissement, et dans les articles de tous les journalistes, sur =
 les conflits primordiaux qui font l'objet de ces importants
-débats.
-
-Charles Péguy
 
 Edouard Berth, — Za politique anticléricale et le
-socialisme ;
 
 Les beaux temps de l'anticléricalisme sont revenus.
 Toute la politique actuelle gravite autour du péril clérical,
 et la lutte contre l'Église reprend plus vigoureuse que
-
-QE catalogue analytique sommaire
 
 4 jamais. L'affaire Dreyfus a mis à nu le travail souterrain
 1e Ex accompli par le catholicisme pour reconquérir la société
@@ -3349,7 +2914,6 @@ ts: aurait peut-être des chances de triompher, — et le minis-
 | | 200 sailles et de « défense républicaine » qui s'appelle la loi
 114 sur les associations ou plutôt la loi contre les congréga-
 
-‘hi tions. |
 |1: 10 A cette lutte contre le cléricalisme, les socialistes s'asso-
 
 140 cient pleinement, sans réserves et sans réticences d'aucune
@@ -3370,11 +2934,7 @@ LL: Démocratie, l'Esprit moderne. Et cet état d'esprit est presque M
 je protestations, un article de Briquet dans le Mouvement 4
 il socialiste, (1) déplorant les excès d'anticléricalisme où
 HU versent de propos délibéré les socialistes actuels, -faisant
-{28 (1) Numéro du 15 août 1902. J
-ir aus
-fl
 
-COURRIER DE BRETAGNE ER
 voir combien la loi sur les associations contient de dispo- +4
 sitions inquiétantes pour le socialisme, s'étonnant des pro- FR
 positions jacobines que Breton, Allemane et d'autres À
@@ -3395,10 +2955,7 @@ principes socialistes et si, dans la lutte contre l'Église,
 d'autres moyens ne seraient pas plus réellement efficaces,
 en même temps que plus respectueux de la liberté.
 
-ÉpouarD BERTH
-
 dans le même cahier, Edmond Lebret, courrier de
-Bretagne;
 
 Le courrier que l'on va lire laisse une impression pé-
 nible ; mais nous savons de longtemps que la misère n'est
@@ -3417,7 +2974,6 @@ des radicaux, entre la stupidité des foules nationalistes
 
 (1) Vingt-et-unième cahier de la troisième série.
 
-\]
 | ? catalogue analytique sommaire
 réactionnaires et la stupidité des foules radicales nationaa listes, les petites gens ne publient pas impunément ce
 qu'ils savent de vérité; nos cahiers s'en aperçoivent; mais
@@ -3427,9 +2983,6 @@ L il est juste, la prospérité de nos cahiers ; nous n'avons pas
 ; aux politiciens ce jeu redoutable.
 Ê Nous prions notre correspondant de vouloir bien nous
 continuer ses courriers.
-È Charles Péguy
-D Samedi 24 janvier 1903
-F3 Cher Monsieur,
 7 C'est avec plaisir que je m'empresse de vous donner les « \ renseignements que vous demandez sur la question à
 * l'ordre du jour dans la presse : la misère de nos pêcheurs « sardiniers et des ouvriers de friterie.
 ; Comme vous l'avez deviné, il y a dans toutes les histoires
@@ -3452,24 +3005,18 @@ i été entièrement perdue pour les sardiniers.
 Î crustacés et causent souvent des dégâts
 ( annonce du Vieux Cordelier par Urbain Gohier, 64,
 le rue Claude-Bernard, Paris cinquième ; k
-{ 2100
 | CA
 
-à
-INTRODUCTION A LA MÉTAPHYSIQUE k
-b.
 Douzième cahier de la quatrième série, un cahier
 jaune de 8o pages, bon à tirer du mardi 17 février 1903;
 un franc
 Vient de paraître ;
 Henri BERGSON.— Introduction à la métaphysique, —
-conclusion ;
 Travaillons. La Revue de Métaphysique et de Morale,
 dans son numéro de janvier, publiait de M. Henri Bergson :
 Introduction à la métaphysique, un article dont il ne suffit
 pas de dire, ce que je ne dis presque jamais, qu'il est très
 admirable, mais dont on peut dire, je crois, qu'il est c
-capital.
 Je ne me retiens pas de reproduire dans ces cahiers le
 dernier tiers de cet article; je regrette seulement de n'être
 pas en mesure de reproduire l'article tout entier; je
@@ -3487,12 +3034,9 @@ mutuellement indispensable, et pour ces hommes, et pour
 ces œuvres.
 Sachons nous limiter, pour aujourd'hui :
 Henri Bergson, — introduction à la métaphysique, —
-conclusion :
 Il en est tout autrement si l'on s'installe d'emblée, par
 un effort d'intuition, dans l'écoulement concret de la durée.
 Certes, nous ne trouverons alors aueune raison logique de
-
-\ XIII
 
 4 vient de paraître
 é poser des durées multiples et diverses. A la rigueur il
@@ -3523,8 +3067,6 @@ dans la lumière, et qui serait la concrétion de toute durée
 ù comme la matérialité en est l''éparpillement. Entre ces deux
 limites extrêmes l'intuition se meut, et ce mouvement est
 la métaphysique même.
-FA
-4%
 Il ne peut être question de parcourir ici les diverses
 j étapes de ce mouvement. Mais après avoir présenté une vue
 générale de la méthode et en avoir fait une première application, il ne sera peut-être pas inutile de formuler, en
@@ -3532,18 +3074,15 @@ termes aussi précis qu'il nous sera possible, les principes
 ; sur lesquels elle repose. Des propositions que nous allons
 218 44
 
-LA DÉMOCRATIE ET LES PARTIS POLITIQUES
 énoncer, la plupart ont reçu, dans le présent travail, un
 commencement de preuve. Nous espérons les démontrer
 plus complètement quand nous aborderons d'autres problèmes. |
 
 Revue de Métaphysique et de Morale, numéro de
 janvier 1903, première page de la couverture, où
-sommaire ;
 
 Bulletin de la Société française de Philosophie;
 annonce; Bibliothèque du Congrès international de
-Philosophie ;
 
 un article de Perrin, annonce, le principe d''équivalence et la notion d'énergie, extrait d'un livre alors à
 paraître chez Gauthier-Villars, les Principes; et,
@@ -3564,19 +3103,15 @@ Il m'a été donné de lire de très près ce livre et j'en fus
 vraiment le premier lecteur; c'est une œuvre capitale, et
 qui dépasse de beaucoup son intention première.
 
-‘ Ha
-
 L'auteur, historien, nous a voulu donner l'histoire des
 partis politiques, nous énoncer, nous exposer le jeu des
 partis dans les deux pays du monde où l'exercice de la politique parlementaire et démocratique a pris la plus longue
 et la principale importance ; il pouvait nous faire ainsi, et
 
-\\ 1 M. Ostrogorski
 | 788
 $ il nous a fait une œuvre capitale d'histoire moderne et
 -S contemporaine ; il a fait beaucoup plus.
 à Car son livre, si longtemps, si patiemment, si constam-
-% ment élaboré, si purement historique, si proprement scien-
 ‘4 tifique paraît à l'heure même où le fonctionnement du
 n gouvernement démocratique inspire à l'humanité les plus
 4 vives inquiétudes, au moment où nous nous demandons
@@ -3585,7 +3120,6 @@ k vernement parlementaire, si c'est l'exercice ou si c'est
 | #4 l'abus du gouvernement démocratique, si c'est l'exercice ou
 | si c'est l'abus de tout gouvernement qui pousse inévita14 blement les foules dans l'injustice et dans le mensonge,
 14 dans la brutalité, dans l'erreur, dans le vice, et dans toute
-D barbarie. 5
 $ L'historien n'avait pas à se poser ce problème formidable;
 x c'est parce qu'il n'avait pas à se le poser, c'est parce qu'ilne
 d se l'est pas posé, au moins formellement ainsi, que ces deux
@@ -3598,7 +3132,6 @@ d'universités populaires ; plus il y aura de vrai peuple qui
 ‘3 Contribuons tant que nous pouvons, s'il en est temps
 ! encore, à l'éducation de la démocratie; et d'abord, sincè- x
 (1 rement, par l'histoire de la démocratie. Ÿ
-ci AVANT-PROPOS
 ÿ} ( 11 faut une science politique nouvelle à un
 | monde tout nouveau. :
 1 Mais c'est à quoi nous ne songeons guère;
@@ -3607,20 +3140,13 @@ ci AVANT-PROPOS
 1 débris qu'on aperçoit encore sur le rivage;
 l tandis que le courant nous entraîne et nous
 ul 1 = pousse à reculons vers les abîmes. Ë
-F TOCQUEVILLE
 V4 (De la Démocratie en Amérique,
-{4 Introduction)
-HR: A . . .
 LE J'étudie dans ce livre le fonctionnement du gouvernement
-Lt : . : !
 4 démocratique. Mais ce ne sont pas les institutions qui sont
-Li
 | 220 , |
-{ ; #
 | 6
 
 # £
-LA DÉMOCRATIE ET LES PARTIS POLITIQUES 14
 ‘objet de cet ouvrage : ce n'est pas aux formes politiques, 1f
 est aux forces politiques que je m'attache. Jusqu'ici on Ge.
 était trop exclusivement appliqué à l'étude des formes ni
@@ -3644,7 +3170,6 @@ politique plus complexe, se développait aussi et se compli- |
 quait le libre jeu des forces politiques, et il devint de plus
 en plus nécessaire, pour la réalisation la meilleure des fins
 de la cité, d'acquérir une connaissance exacte du jeu de ces
-forces.
 Comment acquérir cette connaissance des forces poli- :
 tiques ? De la même manière dont on connaît les forces de
 la nature ; les unes aussi bien que les autres ne se per-
@@ -3667,7 +3192,6 @@ faut en étudier les modes à la lumière du caractère de ceux
 qui les mettent en œuvre, et des conditions sociales et
 1 politiques où leurs volontés se forment et se manifestent.
 C'est seulement ainsi comprise que l'étude des méthodes
-P q
 $ politiques aura, en même temps qu'une portée philosophique, une véritable portée pratique. C'est une étude des j
 K méthodes du gouvernement démocratique conçue dans cet,
 esprit, étude de psychologie sociale et politique, fondée sur }
@@ -3676,13 +3200,11 @@ fait l'objet de ce livre.
 ,
 À avant-propos signé de Paris, mars 1902; à défaut
 des deux tables des matières, titres des chapitres, tome |
-premier, Angleterre, tome second, États-Unis d'Amé-
 1 rique ; bilan de l'Angleterre, bilan des Américains, |
 conclusion, qui est pour ainsi dire un bilan général ;
 | table des matières de ces trois chapitres;
 |
 | Cahiers de la Quinzaine:
-ï
 ; Il est dit que nous ne sortirons pas de la politique. Dans
 | ce cahier même où nous avons marqué l'éloignement que
 | nous avons d'elle, où nous avons indiqué l'éloignement que
@@ -3694,9 +3216,7 @@ d les séances des jours suivants, toutes attribuées aux bouil-
 / leurs de cru, furent et demeurent les séances les plus
 importantes, les seules séances sincères que nous ayons
 eues depuis le commencement de cette législature, peut-
-: Dhbp'E
 
-CAHIERS DE LA QUINZAINE
 être depuis le commencement de la troisième République, 4
 j'irais jusqu'à dire depuis le commencement du gouvernement parlementaire en France.
 
@@ -3707,7 +3227,6 @@ Pour la première fois depuis que nos pères ont institué,
 depuis que nous subissons le gouvernement des parlementaires, les députés élus au scrutin d'arrondissement ont
 parlé strictement comme ils pensaient, ont agi exactement
 comme ils étaient, furent très rigoureusement comme ils
-représentaient.
 
 Non pas que les députés d'arrondissement n'aient souvent sacrifié les intérêts généraux aux intérêts individuels
 et particuliers, les intérêts du pays aux intérêts de leur
@@ -3734,15 +3253,11 @@ intérêts mal entendus; pour la première fois ils ont à
 séance ouverte sacrifié les intérêts féconds aux intérêts sté-
 riles; pour la première fois ils ont avec une sorte d'appa-
 
-4 Charles Péguy
 | rat, une solennelle unanimité, sacrifié le droit aux intérêts,
 la justice aux faveurs, la raison, la sagesse aux fureurs et
-Ve aux insanités.
 On sait de quoi il s'agissait. Il ne s'agissait nullement,
 comme on pourrait le croire,
-L
 # conclusion ; )
-s
 li En face de l'empoisonnement alcoolique l'honnête
 20 homme, le simple citoyen ne se pose qu'une question :
 ‘ comment résister à l'envahissement de ce mal. Deux
@@ -3772,10 +3287,6 @@ l citoyens. Et l'État lui-même, comment se conduira-t-il
 L comment l'État policier, comment l'État judiciaire traitera-
 : t-il cet État empoisonneur ? Comment les instituteurs
 : d'État parleront-ils aux enfants des distilleries natio-
-: nales ? ,
-L 224
-
-CAHIERS DE LA QUINZAINE #
 
 En d'autres termes, est-ce pour exterminer l'alcoolisme, ÿ
 ou est-ce au contraire pour l'exploiter que vous établirez le k
@@ -3810,10 +3321,6 @@ qu'importe que le résultat soit acquis plus ou moins par
 un travail de laboratoire ou par un travail de prédication
 morale, ces deux formes hautement respectables du respectable travail humain. :
 
-CHARLES PÉGUY
-225 XUIL.
-
-< Félicien Challaye
 Je voulais traiter d'ensemble ces grosses questions; mais
 e pour les traiter même utilement, il fallait s'inscrire en temps
 J utile. Par exemple notons dès à présent les efforts faits par
@@ -3828,11 +3335,8 @@ Treizsième cahier de la quatrième série, un cahier
 jaune de 84 pages, bon à tirer du mardi 24 février 1903; |
 un franc |
 | Cahier de courriers ;
-: à
 Félicien Challaye, — impressions sur Java, — fragments de journal; |
 
-È BATAVIA
-Mercredi 8 novembre 1900
 Premières impressions sur la ville, les habitants, l'hôtel, |
 le club. |
 1 Batavia est une immense ville, ou plutôt un immense -
@@ -3845,10 +3349,6 @@ voyageur se trouvent assis dos à dos : d'où, — paraît-il, —
 leur nom de sado! — Des canaux, pleins d'une eau jau- '
 nâtre, traversent la ville de tous côtés, se coupant à angle
 À droit : nous sommes ici en Hollande, en une Hollande tro- ?
-picale.
-226 '
-
-IMPRESSIONS SUR JAVA
 
 Quelques quartiers aperçus ce matin ont laissé en ma
 mémoire une image plus distincte : le vieux Batavia, aux
@@ -3884,22 +3384,15 @@ et Hollandaises sortent de chez eux; tous se promènent
 tête nue ; beaucoup de jeunes femmes ont les bras nus, la -
 robe à demi décolletée. Quelques personnes, devant leur
 maison, sont en pijamas, en sarongs indigènes, en camisoles, les pieds nus dans des pantoufles. Les métis sont
-aisément
 
 Buitenzorg, lundi 3 décembre; Garoet et le Papandayan, mardi { décembre ; mercredi 5 décembre ; jeudi
 6 décembre; les ruines du Boro Boedoer, dimanche |
 
-: 227
-L
 |
 
 | 1
-François Dagen |
 9 décembre; Tosari et le Bromo, mardi 11 décembre; Î
-mercredi 12 décembre ; jeudi 13 décembre ; quelques |
 remarques sur la colonisation hollandaise, Batavia, g
-mercredi 19 décembre; conclusion; ;
-; François Dagen, — courrier d'Algérie, — considéra- Ë
 tions sur les causes de la grandeur et de la décadence L
 de l'antisémitisme en Algérie ; 4
 : Avant 1898 les six députés algériens sont républicains.
@@ -3919,10 +3412,8 @@ que grâce au prestige de M. Dominique Bertagna, maire de
 tine, M. Morinaud battait M. Cuttoli, qui avait essayé de $
 prendre la succession de M. Thomson; à Oran, M. Firmin à
 ; Faure l'emportait sur M. Saint-Germain, député sortant; à j
-Alger (deuxième circonscription), M. Marchal triomphait \
 ( de M. Mauguin, ancien sénateur, qui se présentait à la =
 place de M. Bourlier, député sortant; et dans la première M
-4 circonscription M. Édouard Drumont écrasait M. Samary,
 k député sortant de nuance antisémite modérée, et M. Ber- |
 trand, candidat officiel de M. Lépine, par plus de 7.000 voix
 F: de majorité. Ainsi en 1898 l'antisémitisme souffle en temfr pête; on eût dit un ouragan, une manière de cyclone, ren-
@@ -3932,7 +3423,6 @@ L Et voici qu'en 1902 le calme apparaît de nouveau, les ;
 | 228
 ,
 
-COURRIER D'ALGÉRIE L
 forte, plus rayonnante, plus sereinement lumineuse : c'est ;
 l'apothéose après les ténèbres. M. Étienne est réélu ,
 sans concurrent; M. Thomson remporte sur M. Rasteil une ;,
@@ -3950,8 +3440,6 @@ forces républicaines en 1898, et de montrer, — dans une
 deuxième partie, — comment les premières se sont disloquées, dispersées, émiettées, tandis que les secondes grossissaient sans cesse des défections ennemies, se groupaient,
 se rassemblaient, se disciplinaient, prêtes enfin pour l'as-
 
-saut.
-
 Les Antijuifs; français et naturalisés ; Français ; raisons
 politiques ; royalistes et bonapartistes ; cléricaux ; l'élé-
 ment clérical ne compte pour ainsi dire pas en Algérie ;
@@ -3960,15 +3448,12 @@ républicaine; opportunistes et radicaux; le gouverneur
 général et le gouvernement général; les socialistes; la
 classe ouvrière; les raisons économiques; les commerçants;
 le colon; les naturalisés ; Italiens, Maltais, Espagnols ;
-scrupules religieux ; intérêt personnel; catholicisme ; lès
 manifestations de l'antisémitisme; les Judaïsants ; “es
 Juifs, un petit nombre de Français ; quelques naturalisés ;
 deux çofs; défaite subite des antijuifs trois ordres de
 causes; les dissensions du parti, qui s'émiette ; la lutte
 habile et acharnée des républicains judaïsants ; enfin, certaines circonstances qu'on ne pouvait prévoir; dissentiments politiques entre républicains et réactionnaires;
-dissensions d'intérêts ; M. Régis ; action gouvernementale,
 
-1 catalogue analytique sommaire
 ‘4 préfectorale ; défendaient la République, l'Algérie, la
 De France ; raisons économiques retournées ; les hiverneurs
 Lt et touristes ; les faveurs gouvernementales ; le péril sépara-
@@ -3982,8 +3467,6 @@ f' mévente des vins; des naturalisés; le rapport Périllier,
 : question étrangère ; éventualités et interrogations;
 je Bernard-Lazare, — Juifs de Roumanie, — une lettre
 | à monsieur Anatole Leroy-Beaulieu ; <
-k
-1 Grasse, 18 février 1903
 L Monsieur,
 + C'est non seulement parce que vous avez rédigé et pré- l
 senté l'ordre du jour de la réunion du Château-d'Eau, en
@@ -3992,7 +3475,6 @@ faveur des Macédoniens et des Arméniens, mais encore
 L juifs de Roumanie, que je vous adresse les quelques obser- à
 À vations d'ordre particulier et général que me suggèrent
 r les manifestations diverses faites contre le gouvernement
-1 ottoman. *
 À J'ai toujours été de ceux qui ont protesté contre l'oppression subie par l'Arménie et qui ont réprouvé les massacres.
 J A côté de Jaurès, de Pressensé, j'ai pris part au congrès de
 Bruxelles en faveur des Arméniens. La barbarie turque, :
@@ -4004,11 +3486,7 @@ ne hier applaudissaient quand on insultait les juifs dans les
 ! rues de Paris, quand on les massacrait et qu'on fouettait
 { publiquement leurs femmes sur les places d'Alger; ces
 | coloniaux qui ont approuvé la création des tribunaux
-j 230 4,
 
-ï
-
-LA CHANSON DU ROI DAGOBERT À
 répressifs oppresseurs des Arabes algériens, qui acceptent *
 la spoliation des Canaques par les colons, celle des Tonki- :
 nois par les missionnaires. K
@@ -4017,7 +3495,6 @@ français à faire exécuter par le sultan le traité de Berlin
 couverture ; annonce de librairie; docteur Oyon,
 précis de l'affaire Dreyfus, lettre à un ami qui ne sait L
 pas, préface d'Anatole France ;
-EE ———  — — —— — ——
 Quatorzième cahier de la quatrième série, un cahier
 blanc de 152 pages, bon à tirer du mardi 10, fini d'im- / k
 primer du jeudi 12 mars 1903 ; trois francs
@@ -4026,15 +3503,12 @@ Romain Rolland; février 1902; daté de Paris, 1902;
 Le drame que l'on va lire fut écrit dans le même temps
 que le Dingley de Jérôme et Jean Tharaud, treizième cahier
 de la troisième série. Romain Rolland et les Tharaud ont
-travaillé séparément.
 La scène, en 1902, à Christburg, en Afrique ;
 Quinsième cahier, pour le premier avril de la quatrième série, un cahier blanc de 72 pages, bon à tirer
 du mardi 24, fini d'imprimer du jeudi 26 mars 1903;
 un franc
 PIERRE BaupouI.— La chanson du roi Dagobert;
-— première chansonnée ;
 
-{ .} \]
 ne catalogue analytique sommaire
 s Orsay en Hurepoix, Ile de France, inclus aujourd'hui
 eee dans le département de Seine-et-Oise, pour les élections
@@ -4042,7 +3516,6 @@ eee dans le département de Seine-et-Oise, pour les élections
 ct: Versailles, à moins que ce ne soit dans la quatrième, s'il y
 : en a une quatrième,
 3 le dixième jour avant les calendes d'avril de l'an
-748 mil neuf cent trois,
 # û Mon cher Péguy, |
 4 Voici le premier traité où je mets mon système du monde.
 12 Les vingt premiers couplets sont les couplets traditionnels,
@@ -4050,55 +3523,36 @@ ct: Versailles, à moins que ce ne soit dans la quatrième, s'il y
 1 ; me suis permis de faire les couplets suivants. Je ne suis |
 hi \ pas celui qui fait la leçon à nos anciens auteurs. Je suis
 13 tout comme celui qui fit ou ceux qui firent les couplets ;
-NW: traditionnels. 4
 4 Ces couplets nouveaux se meuvent entre le rythme des ;
 je: couplets traditionnels et deux bases qui sont la prose et
 ‘à l'alexandrin ; les couplets traditionnels et les couplets 3
 14 nouveaux construits sur le rythme traditionnel se chante- |
 mn ront sur l'air traditionnel; des deux bases, la prose est à
 : . dire, et l'alexandrin se déclame ; les airs des autres cou1:88 plets nouveaux se meuvent entre cet axe et les deux
-1 bases. :
 A “ Il fallait arrêter les airs nouveaux dérivés de l'air ancien,
 114 les airs seconds dérivés de l'air premier. En ce sens, il
 ‘à fallait écrire la musique de cette chanson. J'ai demandéà
 À Romain Rolland de vouloir bien l'écrire. Il m'a fait l'amitié :
-% d'accepter. a
 il Pierre Baudouin ‘4
 Que dédicace ; 4
 % à la mémoire de ma grand mère, 4
-‘1 paysanne,
 40 qui ne savait pas lire,
 à et qui première m'enseigna e
 le langage français, 5 ;
-' Pierre Baudouin
-Î k
-ns: 232 : 1
-Û ï
 
-r:
-JOSEPH D'ARIMATHÉE = » Q 4
-épigraphe ; ,
 Le roi faisait des vers 100
 Mais il les faisait de travers; À
 Le grand saint Éloi
 Lui dit à mon roi, L;
-Laissez aux oisons E
 Faire des chansons; ;
 — C'est vrai, lui dit le roi, a
 C'est toi qui les feras pour moi. Æ
 dans le même cahier: 2
-Éditions d'art Édouard Pelletan, 125, boulevard Saint- ï
-Germain, Paris ; plusieurs annonces d'Anatole France ; %
 l'affaire Crainquebille, administration; :
-En EP te D 7 A A by 5 ie MR En A)
 Seizième cahier, cahier de Pâques de la quatrième
 série, un cahier blanc de 108 pages, bon à tirer du
 mardi 7, fini d'imprimer du jeudi 9 avril 1903 ; È
-trois francs
 GABRIEL TRARIEUX. — Les Vaincus, — Joseph Ë
-d''Arimathée, — trois actes ;
-A monsieur Édouard Schuré
-Monsieur, |
 Je vous prie d'accueillir ce drame, dont l'idée, en ce soir #
 d'hiver où je vous l'avais exposée, vous avait plu, je me le .
 rappelle, car j'en ai été fortifié. Incertain de ce que le sort
@@ -4109,7 +3563,6 @@ bien que ces raisons de défaveur ne compteront pour rien
 à vos yeux. Maintes pages de vos beaux livres en témoignent avec assez de force. Et je serai heureux si vous
 jugez, malgré la défaite de l'effort devant l'Idéal implacable,
 
-catalogue analytique sommaire Î
 que j'ai bien mérité de ces deux grandes causes, où Von
 n'en devrait voir qu'une seule, du Drame et de la Poésie,
 
@@ -4133,37 +3586,23 @@ nous serons plus nombreux, à qui les prophéties nouvelles
 et les croyances anciennes semblent sacrées au même M |
 titre, et qui se sentent le cœur assez large pour embrasser
 dans 5a plénitude le patrimoine de l'humanité, |
-5 Gabriel Trarieux |
-épigraphe
 O vraiment tu es un Dieu caché,
 Dieu d'Israël qui sauves ! !
-x Cantique hébreu :
 
 Le drame se passe à Jérusalem, les 14, 15 et 16 de
 Nisan, il y a dix-huit siècles;
 
 La pièce que l'on va lire a été lue à la Bodiniére, par
 M. Coquelin aîné, les 15 et 20 avril 1897 et jouée au théâtre
-Antoine lé 8 avril 1898; f
 
 reprise au Théâtre Antoine pour le spectacle du
 Vendredi-Saint, notamment l'année où paraissait Le
 cahier, pour le vendredi 10 avril 1903;
 
-23% É à
-
-DÉBATS PARLEMENTAIRES
-
 Dix-septième cahier de la quatrième série, un cahier ,
 jaune de vin+260 pages, bon à tirer du mardi 28 avril
-1903 : trois francs cinquante
 
-Affaire Dreyfus, — Débats parlementaires, —
-Intervention Jaurès ;
-
-Intervention Jaurès ; — invalidation Syveton; —
 Chambre des Députés ; — Séances du lundi 6 et du
-mardi 7 avril 1903; — compte rendu sténographique in
 extenso d'après le Journal officiel ; — édition complète ;
 
 affaire Dreyfus, — textes et documents ;
@@ -4178,13 +3617,10 @@ Discussion des conclusions du rapport de la commission
 chargée de procéder à une enquête sur les opérations
 électorales du deuxième arrondissement de Paris et
 tendant à la validation de ces opérations : MM. Jaurès,
-Lucien Millevoye, Henri Brisson, Godefroy Cavaignae,
 Syveton, Massabuau, Paul Beauregard, rapporteur. Renvoi, au scrutin, de la suite de la discussion au lendemain.
 Annexe au procès-verbal de la séance du lundi 6 avril;
 
 scrutin sur le renvoi de la séance à demain; détail du
-
-scrutin ;
 
 Chambre des Députés, huitième législature, session
 ordinaire de 1903, compte rendu in extenso, soixantesixième séance, séance du mardi 7 avril. — Journal
@@ -4197,8 +3633,6 @@ Suite de la discussion des conclusions du rapport de la
 commission chargée de procéder à une enquête sur les
 
 J de
-& affaire Dreyfus si
-N #
 3 opérations électorales du deuxième arrondissement de ;
 a Paris et tendant à la validation de ces opérations : #
 à MM. Jaurès, Syveton, Georges Grosjean, le ministre de la |
@@ -4234,10 +3668,7 @@ deuxième arrondissement de Paris, résultat du pointage; #
 ; du scrutin; ° % k
 1 scrutin sur la priorité en faveur de l'ordre du jour de 2
 M. Chapuis ; détail du scrutin; Le
-f, è
-236 : Fr
 
-CAHIERS DE LA QUINZAINE à
 scrutin sur la première partie de l'ordre du jour de M. Cha- E
 puis ; détail du scrutin ; ?
 scrutin sur la seconde partie de l'ordre du jour de #
@@ -4254,7 +3685,6 @@ Dix-huitième cahier de la quatrième série, un cahier
 jaune de 72 pages, bon à tirer du mardi 12 mai 1903;
 un franc
 Affaire Dreyfus. — Cahiers de la Quinzaine ; —
-Débats parlementaires ;
 L'avertissement qui suit devait passer en tête du cahier F
 précédent, dix-septième cahier de la quatrième série,
 compte rendu sténographique in extenso, d'après le Journal officiel, de l'intervention Jaurès dans l'invalidation
@@ -4271,8 +3701,6 @@ texte paraisse quelque part et que le commentaire paraisse
 quelque autre part après; nos abonnés sont des hommes
 libres, qui savent lire un texte, et se former eux-mêmes,
 
-catalogue analytique sommaire
-
 librement, une opinion, personnelle ; nous avons toujours
 évité rigoureusement, dans ces cahiers, ce qu'on nomme
 communément de la pédagogie et qui est devenu vraiment
@@ -4285,18 +3713,15 @@ du jeudi 33 avril, l'afjaire Dreyfus, demande d'enquête,
 lettre adressée au ministre de la guerre par M. Alfred
 Dreyfus ; datée de Paris, le 21 avril 1903, adressée
 monsieur le ministre; trois paragraphes; brefs commen- -
-taires;
 
 dans la Dépêche de Toulouse, datée du samedi |
 11 avril, un article, opinions, clôture! de M. Henry
-Bérenger ;
 
 La clôture de la session a été en même temps la clôture
 de la « reprise » de l'affaire Dreyfus.
 
 Cette « reprise » avait été annoncée, non sans fracas,
 comme un des événements sensationnels de la politique de s
-demain.
 
 Sans doute beaucoup d'excellents républicains se demandaient quelle utilité pouvait bien avoir, quelques jours
 avant l'application difficile et délicate de la loi de 1901, la
@@ -4307,13 +3732,10 @@ Politiquement, il était à craindre qu'une pareille reprise
 ne tendît à séparer de nouveau l'Armée et la République, è
 dans un moment où la République doit compter sur
 l'Armée pour exécuter les lois contre les Congrégations
-Romaines.
 
 Socialement, l'on pouvait aussi se demander si la
 « reprise » n'aurait pas pour conséquence de retarder indé-
 finiment l'examen des problèmes économiques, tels que
-
-4 LE RHIN ALLEMAND
 
 s l'impôt sur le revenu et les retraites ouvrières, qui pas-
 
@@ -4325,13 +3747,9 @@ de notre collaborateur Bernard-Lazare, Nice, mer-
 
 4 credi 4 mars 1903, mon cher Péguy, plusieurs, cinq
 
-brèves rectifications au courrier d'Algérie;
-
 | Dix-neuvième cahier, pour le premier mai de la quatrième série, un cahier blanc de 80 pages, bon à tirer
 
 5 du mardi 26 mai 1903 ; un franc
-
-ü
 
 R Gaston RAPHAEL. — Le Rhin aillemand; — Becker;
 Lamartine; Musset; tous autres; la Marseillaise de la
@@ -4348,15 +3766,12 @@ avait reconstitué des forces suffisantes pour vaincre le
 pacha et annuler la convention. Ses troupes envahirent la
 Syrie. Ibrahim-pacha, un fils de Méhémet-Ali, détruisit
 l'armée turque à Nézib le 24 juin 1839. De nouveau l''Europe s'interposa. Pour sauver la Turquie, les cinq grandes
-Puissances, — Angleterre, Autriche, France, Prusse, Rus-
 
 sie, — se mettent d'accord. Le 27 juillet, le prince de Metternich remet en leur nom une note à la Sublime-Porte.
 Elles l'engageaient à « s'abstenir de toute délibération définitive sans leur concours et à attendre l'effet de l'intérêt
 qu'elles lui portaient ».
 
-ï 1
 |
-Gaston Raphaël
 . Les représentants des cinq Puissances et celui de la Turquie ouvrirent des négociations à Londres. Personne ne Ê
 montrait de disposition à les presser. Il apparut bientôt
 | qu'elles n'aboutiraient pas et cela par la faute de la France.
@@ -4378,7 +3793,6 @@ l'insu de la France. Le 15 juillet 1840 il signa avec elles la |
 convention de Londres. L'intégrité de l'empire ottoman
 devait être maintenue et Méhémet-Ali devait rappeler ses
 troupes. La France était exclue du concert européen.
-*
 # %
 Vers la fin de juillet le traité fut connu en France. Il causa
 une émotion violente.
@@ -4394,10 +3808,8 @@ Soult; Edgar Quinet; les revendications se précisent ;
 Edgar Quinet; la guerre serait révolutionnaire ; Le National
 d''Armand Carrel; le Temps; le Journal des Débats ; Louis240 ;
 
-LE RHIN ALLEMAND
 Philippe ; Thiers ; plans de campagne ; armements ; dans le
 public; Heine; le 28 juillet 1840 la colonne de juillet;
-M. Guizot ; :
 
 Les Allemands; stupéfaits; effrayés; menaces; comme
 en 1813 ; dans le fond ils désiraient la paix ; le roi de Prusse
@@ -4416,15 +3828,12 @@ une, en prose, dans le Journal de Belgique, dès novembre
 dès novembre une traduction anglaise en vers signée
 Charles White; une traduction flamande de Theodor van
 Ryswyck; Wamich une ode à la manière d'Horace,
-Rhenodia Beckeriana ; imitations; satire; Arndt, lorsque
 Thiers avait soulevé les Welches; sur la table du prince de
 Prusse, futur empereur Guillaume premier; le roi de
 Bavière, aux Allemands depuis 1840 ; Georges Herwegh, Le
 vin du Rhin ; Max Schneckenburger, en novembre 1840, die
 Wacht am Rhein; musique de Karl Wilhelm; texte allemand ; traduction; Hoffmann von Fallersleben, das Lied aller
-Deutschen ; parodies ; Becker chansonné ; Henri Heine, en
 184%; répliques des libéraux allemands; Robert Prutz, le
-Rhin; poésies nettement internationalistes; Rudolph Gottschall, au Rhin ;
 
 Lorsque la poésie de Becker fut connue en France au
 printemps de 1841, l'opinion publique avait tourné à la
@@ -4433,9 +3842,6 @@ les bourgeois eurent peur des révolutionnaires ; démission
 de Thiers; ministère Soult; Guizot; aboutissement pacifique; 13 juillet 1841, Convention des Détroits ; dès octobre
 1840, crise virtuellement résolue ; à la Chambre politique
 
-XIV
-
-catalogue analytique sommaire
 intérieure, ministérielle ou antiministérielle; hors la
 Chambre, polémiques « littéraires » ; le National; la Revue
 des Deux Mondes ; le Charivari ;
@@ -4452,9 +3858,7 @@ la Marseillaise de la Paix;
 Notice introductive; le Rhin allemand, traduction; La À
 Marseillaise de la Paix, — réponse à M. Becker, — texte,
 daté de Saint-Point, 28 mai 1841; dans les éditions de
-Lamartine ;
 
-Mal reçue; ouvriers; traductions allemandes, dont poète
 Freiligrath ; Edgar Quinet ; la Gazette de Cologne ; le comte
 Le Noble Aubert du Bayet, capitaine de l'Empire; Le
 National; le Charivari ; une parodie, La politique de M. de }
@@ -4466,7 +3870,6 @@ Launay (madame Émile de Girardin) raconte l'origine de la
 poésie de Musset ; le texte; dans la Revue de Paris, du
 15 juin 1841, intitulée Le Rhin allemand ; annonce; bien
 accueillie; fureur allemande; une réponse, en français, d'un
-Allemand, Kessels, à Cologne;
 
 Conclusion; en France; en Allemagne; la paix armée;
 mouvement allemand national ; unité allemande ; le prince
@@ -4474,14 +3877,9 @@ de Metternich; le prince de Bismarck;
 
 Sommaire bibliographique; ouvrages généraux; documents, articles et mémoires; Becker et le Rheinlied; Lamartine et Musset;
 
-À
-; CAHIERS DE LA QUINZAINE
-:
 L Vingtième cahier de la quatrième série, un cahier
 jaune de 120 pages, bon à tirer du mardi 16 juin 1903;
-& deux francs
 ù Affaire Dreyfus. — Cahiers de la Quinzaine ; —
-i reprise politique parlementaire ;
 ji Je savais depuis longtemps que l'on préparait un recom-
 ; mencement, ou, comme on l'a nommée, une reprise de l'af-
 —._ faire Dreyfus; je pense que je le sus un des premiers,
@@ -4540,20 +3938,12 @@ de la vérité. Nous avons publié en leur temps plusieurs
 manifestations importantes de ce comité. Elles sont à
 confronter avec les manifestations contraires de M. Henry L
 Bérenger et de tous les radicaux anticatholiques anti- à
-dreyfusistes.
 dans le même cahier, dossier de l'affaire Dreyfus
 depuis son recommencement, d'après le Temps du lundi
 20 avril une communication; le comité catholique pour
 la Défense du Droit, lettre à Jaurès, datée de Paris, le
-244 4 (4
-
-kil
-
-He.
 
 de
-
-£ LES CATHOLIQUES FRANÇAIS
 
 ; 17 avril 1903, adressée monsieur le député ; ainsi
 présentée dans le Temps :
@@ -4562,19 +3952,14 @@ présentée dans le Temps :
 à fondé, au cours de l'affaire Dreyfus, par qutiques catho-
 ë liques partisans de la revision, et ayant à leur tête M. Paul
 4 Viollet, membre de l'Institut, adresse à M. Jean Jaurès la
-$ n
-$ lettre suivante :
 
-LE
 l la lettre ; signatures ;
 
-£
 FR Vient de paraître chez Storck, Paris et Lyon, en vente
 _ à la librairie des cahiers :
 
 ; Léon CHAINE. — Les Catholiques français et leurs
 difficultés actuelles, — un volume in-18 de 416 pages;
-trois francs cinquante
 
 Ce livre n'a pas été fait pour les besoins du moment, et
 quand l'auteur envisageait un recommencement de l'affaire
@@ -4588,7 +3973,6 @@ x que l'auteur attendait, un accueil nombreux ; la presse en
 
 nombre d'exemplaires, cinq mille, nous écrit l'auteur, ce
 qui est énorme en France pour la première édition d'un
-: livre honnête.
 
 Ce livre est évidemment un livre écrit par quelqu'un qui
 n'avait jamais écrit de livre; mais les livres écrits par de
@@ -4601,18 +3985,14 @@ situation dreyfusiste et de l'action dreyfusiste, en face de
 l'antidreyfusisme radical. Dans l'amoncellement des documents et des renseignements produits par l'auteur, quelques
 erreurs se sont glissées, qui seront sans doute réparées
 
-245 XIV.
-
 vingtième cahier de la quatrième série
 dans la deuxième édition. L'auteur, maître Léon Chaine,
 avoué près le tribunal civil, go, rue de l'Hôtel-de-Ville,
 Lyon, donne et par son attitude générale, et dans son livre,
 l'impression d'un fort honnête homme.
-Avant-propos |
 
 La Lettre d'un Catholique lyonnais à un Évêque sur l'attitude de la grande majorité de ses coreligionnaires dans
 l'affaire Dreyfus a été publiée par La Justice Sociale du
-23 Mars 1902.
 
 Elle a été reproduite in extenso par Le Soir, le Signal, le
 
@@ -4622,7 +4002,6 @@ vivement prise à partie par la Vérité Française, dans son
 numéro du 9 avril et, de nouveau, dans celui du 19 avril. (
 La Revue Idéaliste, dans sa livraison du premier mai, a bien
 voulu lui en emprunter un fragment pour l'insérer sous sa
-rubrique « Opinions à recueillir ».
 
 Le numéro de la Justice Sociale du 29 mars 1902 a été
 adressé à NN. SS. les Archevêques et Évêques de France
@@ -4645,12 +4024,6 @@ l'article important que nous reproduisons ci-après. En tout
 l'histoire de l'affaire Dreyfus, et non moins important pour
 une histoire du dreyfusisme, que nous ne confondons pas
 
-246 ; Ï
-
-: !
-
-) L'AFFAIRE HENRY-REINACH
-k
 È avec l'histoire de l'affaire Dreyfus. À ce double titre il doit
 ê entrer dans le dossier que nous formons. Les journaux
 ua français qui se disent dreyfusistes n'ont donné de cet article
@@ -4672,7 +4045,6 @@ du tribunal civil de la Seine, qui, le 12 juin 1902, dans
 : l'instance introduite par madame veuve Henry, avait
 À condamné M. Joseph Reinach et le gérant du journal Le
 Siècle, à 500 francs de dommages-intérêts chacun, pour
-pri diffamation.
 Ce procès remonte à plus de quatre ans. Madame Henry
 Ç avait poursuivi d'abord M. Reinach devant la cour d'assises,
 mais l'amnistie arrêta l'action pénale dans cette affaire,
@@ -4683,25 +4055,17 @@ un traître, complice d'Esterhazy. Dès le mois de novembre
 1898, dans le journal Le Siècle, il avait émis cette allégation
 sous forme d'hypothèse. Mais bientôt, jugeant que l'opinion
 était suffisamment préparée, il donnait à son accusation un
-caractère formel.
 Dans Le Siècle du 6 décembre 1898, il écrit en effet :
 une annonce ; quelques commentaires ; '
 Couverture : emprunt des cahiers ;
-\ 247
 
 vingt-et-unième cahier de la quatrième série
 Vingt-et-unième cahier, premier cahier supplémen- ;
 
 taire, de la quatrième série, un cahier jaune de 96 pages, -
 bon à tirer du mardi 21 juillet 1903; deux francs ,
-Edgar Quinet; x
-
-+
 
 Edgar Quinet — 1831; portrait au crayon par Flora
-Géraldy ; À
-
-Henry Michel, Edgar Quinet ; È
 
 Nous reproduisons ci-après la leçon d'ouverture, — ° . ÿ
 9 décembre 1902, — du cours professé en Sorbonne par n
@@ -4732,14 +4096,6 @@ jour sur la question de la liberté d'enseignement, historiquement ; c'est une p
 M. Henry Michel a bien voulu relire pour les cahiers les
 épreuves de cette leçon.
 
-248 j
-
-À 0
-
-EDGAR QUINET
-
-Henry Michel, — Edgar Quinet;
-
 | La démocratie a célébré, en 1898, le centenaire de Mi- :
 chelet, poète, historien, moraliste, àme plébéienne et fran- À
 caise, qui, mieux qu'aucune autre, a su parler du peuple de
@@ -4752,8 +4108,6 @@ fidèle et intègre, au républicain exemplaire, qui a poussé
 s cœur, au vaste et puissant esprit, à l'intrépide confesseur
 
 Ê de l'idée laïque que fut Edgar Quinet, même récompense,
-
-mêmes honneurs.
 
 | Michelet est plus populaire. Quinet a exercé sur la marche
 
@@ -4787,7 +4141,6 @@ Versailles le 27 mars 1875.
 (2) Ces détails sont empruntés à l'autobiographie que Quinet nous
 a laissée sous ce titre : Histoire de mes idées. Cette autobiographie,
 
-Daniel Haléoy 4
 rempli de soldats. C'étaient des cavaliers qui revenaient
 d'Austerlitz. Ils prirent l'enfant en affection. L'enfant, de
 son côté, ne voulait pas les quitter. Il mangeait à la
@@ -4795,11 +4148,6 @@ gamelle. Il allait au fourrage sur un grand mouton, bridé,
 harnaché. Il revenait en ville avec le régiment, au son de )
 la trompette. Puis il faisait la litière, garnissait le râtelier Ÿ
 de sa bête, 4
-
-trois paragraphes; À
-
-4:
-. # . . &
 
 Daniel Halévy, — Michelet et Quinet: n F1
 
@@ -4811,7 +4159,6 @@ grand, fort, magnifique, l'air plus militaire que professoral. À
 Ils s'intéressèrent l'un l'autre et sortirent ensemble. Ils 1
 avaient un penchant commun pour la philosophie de l'his- '
 toire, où tous deux reconnaissaient un merveilleux progrès %
-depuis Démosthènes jusqu'à Royer-Collard. Michelet tra- |
 duisait Vico, et Quinet, Herder. Ils causèrent de leurs k
 grands hommes, puis de maints sujets. Michelet projetait F3
 de longues suites d'études: une histoire romaine, puis toute Ë
@@ -4819,30 +4166,19 @@ une histoire de France: Quinet avait des voyages en tête, n
 — entre autres une certaine excursion en Angleterre dont ù
 « l'idée seule, écrit-il, lui faisait aimer la vie ». Avant de i
 
-à
 écrite en 1858, ne concerne que la jeunesse de Quinet, et s'arrête à F4
 sa dix-septième année. L'Histoire de mes idées forme le tome XV° 4
 des Œuvres complètes d'Edgar Quinet dans l'édition Hachette, C'est ÿ
 à cette édition que je renvoie, sauf pour les Lettres d'Exil (4 volumes
-Calmann-Lévy).
 
 Tous les éléments d'une biographie complète se trouvent dans les "1
 ouvrages de madame Edgar Quinet : Mémoires d'Exil (première et 4e
 deuxième séries), Paris : journal du Siège, Sentiers de France, Edgar
 Quinet depuis l''Exil, Cinquante ans d'amitié (avec les lettres de
-Quinet à Michelet). M. Valés, professeur d'histoire au lycée Voltaire,
 prépare une vie d'Edgar Quinet qui va paraître incessamment, et
 où il utilise, outre les pièces imprimées, des manuscrits encore iné- 1
 dits de madame Quinet.
 
-250 {
-ù F3
-
-‘|
-
-N
-
-MICHELET ET QUINET
 se quitter ils prirent rendez-vous pour les jours suivants,
 et leurs vies étaient liées.
 
@@ -4881,8 +4217,6 @@ Michelet qui, mal portant et casanier, sortait peu. « Si je
 ne te dis rien de lui,
 
 | | <
-È Gabriel Trarieux
-Gabriel Trarieux, — Edgar Quinet ;
 ( © « J'ai choisi le silence, le monde a choisi le tumulte. J'ai |
 k ' « choisi la justice, et le monde, l'iniquité. J'ai préféré la
 : « liberté, et le monde a préféré l'esclavage. J'ai aimé la |
@@ -4891,7 +4225,6 @@ k ' « choisi la justice, et le monde, l'iniquité. J'ai préféré la
 À « nous habitions aux deux bords opposés, lui dans ce qu'il
 « appelle la fête, moi dans ce qu'il appelle le deuil; lui
 \ « dans ce qu'il nomme la vie, moi dans ce qu'il nomme la
-« mort. »
 À Par ce chant de Merlin au sépulcre, Edgar Quinet a
 4 résumé le sens général de sa destinée, le secret de sa force
 E et de sa douleur. 7 ;
@@ -4918,14 +4251,10 @@ re juste, qui, dansles temps les plus obscurs, prédit les retours
 de l'Idéal, la résurrection partielle qu'il mérite, qu'il eût
 souhaitée. Comme une source souterraine, sa pensée jaillit
 devant nous. On s'étonne de sa vertu fraîche, de sa puissance régénératrice. Après trente ans de vie orageuse, mais j
-252 É Î
 
-EDGAR QUINET f
 soutenue d'un salubre espoir, la France républicaine, en 1
 Quinet, se plaît à saluer son prophète, annonciateur dans le
 passé et messager pour l'avenir. |
-*
-+
 Approchons-nous de cette rare figure et voyons comme £
 elle s'est formée. Dans le plus vivant de ses livres, où la
 grâce enjouée du récit colore l'amertume du sage, Quinet
@@ -4938,8 +4267,6 @@ Quelques textes, choisis et présentés par Daniel Halévy ;
 | Edgar Quinet, — Quelle est la raison d'être de l'enseignement laïque;
 [passage extrait de l'Enseignement du peuple, petit ouvrage
 publié en 1850; Edgar Quinet y détermine l'idée d'un service
-public d'éducation laïque ; Œuvres complètes, tome XI,
-page 118;]
 Répondez donc une fois clairement à ceci : Sur quelle
 base repose l'enseignement laïque en France? Vous ne
 pouvez espérer ni grandeur, ni puissance, ni ordre, aussi
@@ -4956,11 +4283,6 @@ moyen de respecter, tout ensemble, la liberté de conscience
 et la liberté des cultes.
 La grande prétention du sacerdoce est qu'il n'a
 
-XV
-
-n %
-
-‘ Edgar Quinet
 Ù Edgar Quinet, — une lettre à monsieur Henri Mar-
 
 : tin, à Paris, datée de Bruxelles, janvier 1854 ;
@@ -4988,7 +4310,6 @@ bonne fortune et le bon esprit de ne pas porter de système y:
 dans l'Histoire de France et par là vous avez À
 Edgar Quinet, — Un peuple peut-il vivre sans religion Ÿ
 ; et sans philosophie? Profession de foi du Vicaire 3
-savoy-ard ; :
 chapitre II du Livre cinquième de la Révolution; a
 Tous les changements qui avaient éclaté chez d'autres |
 peuples étaient le développement d'une certaine institution 1
@@ -5000,13 +4321,8 @@ peut être le développement ni de la royauté ni de l'Église.
 Ne pouvant adapter l'édifice nouveau à aucune des pièces Ê
 importantes de l'édifice ancien, il s'agit de chercher une
 base qui n'ait rien de commun avec la tradition. Là est la hi
-SR NE À
-F3
-FA
 
-BIBLIOGRAPHIE
 grandeur, la sublimité, et en même temps le péril de la
-Révolution française.
 
 Comme l'ancienne Église ne fournissait la base d'aucune
 des innovations, on se trouva par la force des choses contraint de chercher ce fondement dans la philosophie. Pour
@@ -5019,16 +4335,11 @@ qu'elle devint l'âme même, ou plutôt l'Égérie d'un peuple.
 
 Par ce peu de mots, on voit déjà combien tout était nouveau, et quelle expérience inouïe allait se faire sur une
 
-nation.
-
 Il fallait que la philosophie transformât l'ancienne religion ou que la philosophie devint
-
-Albert Valès, — Bibliographie ;
 
 La bibliographie suivante a été relue sur épreuves et
 établie pour la deuxième partie par M. Albert Valès.
 
-M. Albert Valès, professeur d'histoire au lycée Voltaire,
 a, pendant les quinze dernières années de la vie de madame
 
 __ Edgar Quinet, revu en manuscrit ou en épreuves, ou à ces
@@ -5038,12 +4349,10 @@ deux titres, soit les œuvres d'Edgar Quinet que madame
 d'Exil, — soit les propres ouvrages de madame Edgar Quinet.
 C'est à M. Valès que madame Edgar Quinet a laissé le soin
 de ses papiers et des papiers de Quinet qui ne sont pas à la
-Bibliothèque nationale. M. Valès a collaboré au volume :
 Edgar Quinet, extraits de ses œuvres, publiés à l'occasion
 du centenaire, 17 février 1903, par la Société Edgar Quinet,
 propriétaire des œuvres, dont M. Valès fait partie. Cette
 collaboration a consisté à participer, avec quelques personnes, au choix et aux coupures, et à rédiger la notice
-biographique.
 
 La Société publiera très prochainement, chez Hachette,
 une biographie de Quinet en deux cents pages environ, que
@@ -5051,32 +4360,19 @@ M. Valès a presque fini de rédiger. Le ton est celui d'une
 œuvre de vulgarisation adressée au grand public, mais elle
 est faite exclusivement d'après les sources.
 
-255 /
-
-;
-À Maurice Kahn
 |
-L
 . Enfin, M. Valès a entrepris une thèse sur Edgar Quinet,
 k sa vie et son œuvre, qui sera terminée dans deux ou trois |
 Re ans, et pour laquelle il compte tirer parti des documents : ;
 ï inédits qu'il a à sa disposition, et qui ne sont pas encore |
 # entièrement recensés. 1
-cf Œuvres complètes ; œuvres inédites ; travaux relatifs 3
-Ô es
-À: à Quinet ; À À
 } de la reproduction publiée en tête de ce cahier, Edgar {
 N Quinet 1831, portrait au crayon par Flora Géraldy, un ;
-à tirage à part, surgrand papier, deux francs
-N ï
-D
-à | Vingt-deuxième cahier, deuxième cahier supplé- à
 | mentaire, de la quatrième série, un cahier jaune de L
 | 120 pages, bon à tirer du mardi 25 août 1903; .
 | deux francs 14%
 Cahiers de courriers, — Maurice KAHN, — courriers
 à) de Macédoine;
-à Paris, samedi 22 août 1903
 x Ce cahier de courriers n'est pas un livre, mais un recueil î
 À d'articles (1) écrits au cours d'un voyage hâtif et inconfor- ‘à
 table. Leur premier défaut est d'avoir été écrits au jour le è
@@ -5087,16 +4383,11 @@ mois de séjour dans un pays aussi vague (2) que la Turquie, f
 donienne. Un volume d'ailleurs ne suflirait pas. Plusieurs F
 volumes seraient nécessaires. Mais il faudrait posséder la
 question à fond. Ce n'est pas encore mon cas. é
-di
 () Ils ont paru dans le Temps, de mars à mai, sous le titre peu ;
 adéquat, et que je n'avais pas choisi, de à travers la Macédoine. 4
 (2) La Turquie est un pays où « deux et deux font environ h.
 ; quatre ». Moravirz, les Finances de la Turquie. — Définition admi- . 4
 rable de justesse, \
-256 ; 4
-NA
-
-COURRIERS DE MACÉDOINE
 
 Je sais toute mon ignorance. Je l'ai souvent bénie. Elle
 m'a rendu le plus grand service. Elle m'a permis de voir à
@@ -5112,7 +4403,6 @@ Je connaissais le Livre jaune (3) publié par M. Delcassé.
 Enfin j'avais entendu à Athènes, pendant près d'un mois, la
 critique ardente de ce même Livre jaune, auquel les Grecs
 ne reprochaient rien moins que mauvaise foi, mensonges,
-faux …
 
 Donc je ne savais rien. Mais j'étais averti. Le Livre jaune
 et les politiciens grecs m'avaient présenté deux thèses contradictoires. Je me méfiais, et des uns et de l'autre. Ignorant
@@ -5133,14 +4423,10 @@ affaires comme de l'affaire d'Ichtip, que j'ai choisie pour
 exemple : deux versions contradictoires circulaient, toutes
 deux « officielles », émanant la première des autorités
 
-(4) Numéro 109, du 31 janvier 1903.
-
 (2) Revue de Paris, du premier novembre 1902.
 
 () Documents diplomatiques, Affaires de Macédoine.
 
-; É
-Maurice Kahn
 ; turques, la seconde du consulat ou de l'évêché bulgares, et
 entre lesquelles on ne pouvait discerner la vérité.
 4 J'ai concentré mon attention sur ce que je pouvais voir
@@ -5156,7 +4442,6 @@ douce des satisfactions: les Turcs m'ont trouvé bulgaro- CURE
 Ki phile; les Bulgares, encore indulgent aux Turcs ; les Russes,
 peu aimable pour les Slaves ; les Grecs, trop favorable au
 à panslavisme. Cette unanimité m'assure du moins que je suis |
-‘ resté impartial.
 La sincérité que j'ai apportée à mon travail, la conscience |
 | avec laquelle j'ai mené mes différentes enquêtes, me don- |
 nent à penser que ces documents pris sur le vif sont à leur À
@@ -5174,28 +4459,19 @@ sans être absolument erronée, cependant ne laisse pas de :
 au plaisir, de remercier tous ceux — fonctionnaires, publiFL: cistes, diplomates et consuls, Turcs et Européens — qui
 | m'ont aidé à me reconnaître dans l'inextricable confusion
 | d'intérêts qu'est la Macédoine. Nos consuls français me permettront de leur consacrer un souvenir particulier : c'est
-La 258 À |
-; É
-
-COURRIERS DE MACÉDOINE |
 
 une rare fortune pour le voyageur que de rencontrer le
 concours efficace et l'accueil réconfortant de M. Steeg à :
 Salonique, de M. Choublier à Uskub, de M. Gautier à
-Monastir.
 
 Je tiens enfin à dire ici un mot personnel de reconnaissance à M. Georges Gaulis, qui fut longtemps correspondant du Temps à Constantinople, et qui a accompli avant
 moi plusieurs voyages dans les pays balkaniques. Jai £
 trouvé partout les traces de son passage; et les souvenirs
 qu'il avait laissés n'ont pas peu contribué à faciliter mon
 séjour et mon travail sur cette terre lointaine et si atroce- L
-ment malheureuse.
-
-MAURICE KAHN
 
 Les réformes à Monastir. — L'opinion et les réformes.
 — Les bandes et l'action des comités. — Lenteurs administratives. — Conversation avec Riza pacha. — Monastir,
-vendredi 6 mars; 4
 
 Le mouvement de l'opinion publique, quant aux réformes,
 n'est pas encore absolument net. On attend. En dépit de
@@ -5217,7 +4493,6 @@ Mais la population grecque de Macédoine est satisfaite. Elle
 pense que, si la Porte tient ses promesses, l'agitation
 bulgare cessera, et elle espère être enfin débarrassée des
 
-f. Maurice Kahn
 à comités, dont elle souffre autant que de la mauvaise admi- \
 1 nistration turque. La population bulgare serait également {
 1 4 satisfaite. Elle est très malheureuse: le peu qu'elle obtiendra ;
@@ -5250,8 +4525,6 @@ ty les habitants de Prototchina avaient abandonné leurs
 . aurait donc sensiblement accru la force. Le chef de la Ê
 | bande, Kotté, a été blessé; un homme tué. On dit
 
-k
-
 1 L'œuvre de Hilmipacha à Uskub.— Uskub, lundi 16 mars;
 une note additionnelle ; quatre objections de Hilmi pacha; À
 k sur le déplacement des fonctionnaires ; sur la réforme ;
@@ -5265,20 +4538,11 @@ h Chez les révolutionnaires bulgares.— L'Organisation inté- à
 
 | — Trois dangereux personnages : Mikhaïlowski, Tatar-
 
-FL 260
-
-En ; »
-
 .
-COURRIERS DE MACÉDOINE
-j \
 teheff, Radeff. — Y aura-t-il une insurrection? — Des
-garanties, s. v. p.— Sofia, samedi 28 mars ; : 08
 L'affaire d'Ichtip. — Uskub, mercredi premier avril ; ‘
-En wagon. — Uskub, dimanche 5 avril ; k
 Une après-midi à Mitrovitza. — Doux pays. — M. Chtcherbina. — Mitrovitza. — La troisième commission. — Un tour
 dans le quartier serbe. — L'hôtel Risto. — Uskub, mercredi
-8 avril;
 Les bandes. — Uskub, dimanche 12 avril;
 Le fond de la question. — Insécurité et misère. — Une
 maison à une heure d'Uskub. — Le marché de Sofia. —
@@ -5288,9 +4552,7 @@ et ouvriers, Monastir. — Concurrence et émigration. —
 Transformation de la propriété. — Travaux nécessaires. —
 Améliorations projetées. — Les charges d'un village. — Le
 budget d'une famille. — Conclusion. — Uskub, mercredi
-15 avril;
 Les attentats de Salonique. — Les responsabilités. — La
-répression. — Salonique, vendredi 15 mai;
 Note bibliographique ; documents; études; revues; ouvrages de propagande;
 De la quatrième série nous avons, à la date d'auJourd'hui, un nombre de collections complètes restreint :
 depuis le premier janvier 1904 nous vendons ces quatrièmes séries complètes un prix sensiblement égal au
@@ -5298,21 +4560,14 @@ total des prix marqués, soit l'une trente-cinq francs
 Aussitôt que ces collections complètes de la
 quatrième série seront en voie d'épuisement,
 leur prix sera porté l'une à cent francs
-XV.
-
-t L "
-CINQUIEME SERIE
-19083-190<
 
 |
 | Premier cahier de la cinquième série, un cahier jaune |
 
 de 120 pages, bon à tirer du mardi 13 octobre 1903;
-È deux francs |
 4 Henri DaGan. — L''Oppression des juifs dans l'Europe |
 orientale, — les massacres de Kichinef et la situation i
 : , « __. . 2 122 , « 4 des prolétaires juifs en Russie; dédié à la mémoire de k
-; Bernard-Lazare ; ;
 
 ; l'oppression des juifs dans l'Europe orientale ;
 Pendant que les chrétiens orthodoxes célébraient leurs L
@@ -5332,22 +4587,13 @@ J La gravité de ces faits, leur répercussion dans l'Europe :
 précises que les idées courantes, — sur la nature des déchi-
 ; rements sociaux, présents ou futurs.
 
-Henri Dagan
-
-262 ‘
-
-LES MASSACRES DE KICHINEF t
 les massacres de Kichinef et la situation des prolé- k
-taires juifs en Russie ; #
-LES PERSÉCUTIONS ET MASSACRES ANTÉRIEURS j k
 1881-1882
 A l'avènement d'Alexandre III, le parti vieux-russe i
 aggrava la politique de réaction qu'il avait entreprise sous
-Alexandre II, lequel inclinait à concéder quelques réformes. è
 Sans doute, il serait inexact de dire que ce parti fut l'auteur e
 exclusif des persécutions qui marquèrent la fin de l'année 1881 et le commencement de 1882. Mais on peut affirmer
 qu'il les encourageait, directement, par son attitude et son
-système législatif.
 Un grand nombre de juifs furent égorgés, plusieurs
 centaines de milliers furent ruinés. Et l'on vit d'Ekatérinoslaf
 à Vilna la terreur et la panique s'emparer des populations,
@@ -5355,7 +4601,6 @@ qui fuyaient en masse au delà des frontières. Quand on
 demandait aux émeutiers pourquoi ils couraient ainsi sus
 aux juifs, ils répondaient : on dit que notre petit père le
 tsar le veut ainsi. (1) La suggestion administrative était
-manifeste.
 Les maux qu'ils avaient soufferts attirèrent aux juifs les
 calamités des lois d'exception.
 Ce fureni les célèbres Lois de mai 1882, dont le général
@@ -5366,23 +4611,17 @@ eurent lieu du mois de décembre 1881 au mois de
 juin 1882 ; mouvement de protestation en Europe; grand
 meeting du premier février 1882 convoqué par le Lord
 Maire de Londres au Mansion-House; appel du comité
-parisien, Victor Hugo président.
 (1) Les Juifs russes, par Léo Errera, professeur à l'Université de
-Bruxelles; Falk éditeur, Bruxelles.
 
-A \ je
 ‘ Henri Dagan L
-\! Les persécutions de 1890, 1891, 1892 et 1893 ; k
 | | Ordonnance du 22 avril 1890; les effets, lettre publiée
 ; par le Times du 5 mai; circulaire de M. Jurkovski, 4
 1) directeur de la police ; nouvelles instructions du même; à
-e instructions exécutées; Kief, expulsions ; autres expul- 4
 4 sions; Kalouga, expulsions, d'après le correspondant }
 ik du Times du 5 mai; circulaire du gouverneur de Saint- À
 12 Pétersbourg, datée du 15 mars 1891, portant sur les 4
 je enseignes des magasins juifs; troubles à Elisabethgrad; 1
 jh émeutes à Charaïevo; circulaire du commissaire M. Iva- %
-i chenko; graves émeutes à Starodoub; autres persécu- A
 ê tions; le tribunal de Kief, Kievlamin du 23 janvier; K-
 À autres émeutes, dans les gouvernements de Saratof et - k
 À de Pensa, Neuseit du 15 janvier 1892, à Samozansk et à 4
@@ -5397,7 +4636,6 @@ lettre d'un correspondant des Novosti, numéro des 4
 à 14-27 avril; récit d'un témoin oculaire; récit du journal À
 i\ Viedomosti, numéro du 15-28 avril, correspondance de #
 \ Kichinef; extraits d'une lettre particulière; détails À
-. empruntés au Peterbourgskia Viedomosti; renseigne-
 À ments fournis aux Novosti, 23 avril-6 mai; la version u
 : de Bessarabetz; appréciation du Drapeau; récit du he
 journal Voskhod, numéro du 24 avril-7 mai, interdit ‘À
@@ -5411,16 +4649,6 @@ L'opinion en Europe; #
 Ordre du jour de la plupart des grands écrivains et “
 
 publicistes russes; télégrammes des chrétiens de Moscou à |
-
-: 264 : '
-
-‘ LES PROLÉTAIRES JUIFS EX RUSSIE LE
-
-L
-
-a
-
-s =
 
 au maire de Kichinef; extrait d'une lettre adressée par
 
@@ -5446,7 +4674,6 @@ Prétextes des troubles;
 L'accusation de meurtre rituel; résumé très sommaire
 de la question; Thomas de Cantimprey; accusations
 contre les chrétiens dans l'antiquité ; apologie des chré-
-tiens; exemples d'accusations politiques; interdiction
 biblique de consommer le sang; interdiction talmudique; autres protestations ;
 
 Les causes de l'antisémitisme en Russie. — La situation juridique des juifs ;
@@ -5462,17 +4689,13 @@ Territoire; les artisans ; les habiles; villes, bourgades,
 villages; une circulaire du préfet de police de Kief;
 exécutions; les écoles; professions libérales; interdictions; les juifs et l'agriculture; essais de colonisation;
 
-catalogue analytique sommaire |
-k
 j une attestation officielle; commerce; interdiction de É
-circuler ; impôts spéciaux; résumé; conclusion; ;
 f Nous n'avons pas la prétention d'avoir épuisé tout le
 | sujet. Mais ce qui précède peut suflire pour éclairer les
 
 gens de bonne foi, dissiper des préventions et renseigner !
 sur la cause des événements tragiques auxquels nous 'assis-
 | tons et qui ne semblent pas devoir finir de sitôt.
-En résumé : 4
 L'antisémitisme russe, comme l'antisémitisme français, 4
 — et, l'on peut dire, comme toute espèce connue d'antisé- 4
 | mitisme, — est une expression particulière de la concur- à
@@ -5509,7 +4732,6 @@ avec la même énergie l'influence des Polonais, des Finlandais, ;
 | des Allemands; il poursuit sans distinction toutes les commu-
 | 266 ,
 
-LA VIE D'ÉVARISTE GALOIS 4
 lite. D'abord, elles jettent un discrédit moral sur cette |
 population et, par là-même, donnent une apparence de justice à l''animosité latente qui se manifeste contre elle et
 dont elle est victime. Ensuite, en reléguant les juifs dans |
@@ -5523,11 +4745,8 @@ tous. D'où aggravation de l'animosité, persécutions, massacres, pogromes.
 Cet état de choses ne pourrait s'améliorer que par l'application aux juifs de la législation commune. Ce ne serait :
 pas seulement une mesure d'équité, — ce langage n'est pas
 entendu des gouvernements, — mais une mesure de bonne
-politique.
-HENRI DAGAN
 Deuxième cahier de la cinquième série, un cahier vert
 de 108 pages, bon à tirer du mardi 27 octobre 1903;
-deux francs
 Pauz Duruy. — La vie d'Évariste Galois:;
 M. Jules Tannery, sous-directeur de l'École normale
 supérieure, a écrit pour ce cahier l'avertissement suivant :
@@ -5565,7 +4784,6 @@ plus abstraites de l'Algèbre et de l'Analyse; mais la pensée |
 Û y est si profonde qu'elle dépasse le plus souvent son objet,
 # et les doctrines de Galois ont pénétré dans presque M
 de toutes les parties des mathématiques, qu'elles dominént
-aujourd'hui. n
 Les travaux comme ceux de Galois sont regardés comme
 | inutiles par les philosophes à vue courte, qui ne veulent
 ÿ regarder dans la science que ses applications immédiates : ‘4
@@ -5578,19 +4796,11 @@ un ordre et un enchaînement logique qui leur sont propres,
 Que dire du génie de Galois, qui, peut-être, a été unique? 1
 | Combien de semaines de sa vie brève et agitée, cet enfant Ft
 de vingt ans a-t-il données à la science, qui lui doit tant?
-K
-JuLes TANNERY is
-268 + 4
-
-h
-
-ÉVARISTE GALOIS à
 
 Paul Dupuy, — La vie d'Évariste Galois ; de
 
 en tête un très beau portrait de Galois, héliogravure ÿ
 
-Dujardin ; fi
 Les premiers éléments de cette étude ont été réunis au
 
 cours de recherches relatives à l'histoire de l'École normale. Je m'étais proposé de les utiliser en rédigeant une
@@ -5626,10 +4836,8 @@ croquis que l'on en possédait ; mais j'avoue que ce serait
 aussi pour moi une vive satisfaction, si l'on jugeait qu'en
 racontant la vie de Galois j'ai pu éclairer d'un jour curieux
 
-î Paul Dupuy à
 quelques coins de la Révolution de 1830, et des années ?
 ë troublées et si vivantes entre lesquelles elle s'insère. |
-D: I 3
 | Évariste Galois est né le 25 octobre 1811, au Bourg-la- |
 Reine, dans une maison qui porte aujourd'hui le numéro 20 3
 , de la Grand Rue. Avant d'être peinte en vert et en saumon Ë
@@ -5648,8 +4856,6 @@ son succès aux sentiments ardents avec lesquels la famille
 f Galois s'était ralliée d'abord à la Révolution, puis à l'ordre 4
 de choses qui en était issu. Pendant que son fils aîné, 3
 officier dans la garde 4
-deux parties ; 3
-conclusion ; ‘4
 de
 Telle a été cette vie si courte et si extraordinaire. Il n'est ra
 pas rare d'entendre les mathématiciens en déplorer la ‘à
@@ -5662,9 +4868,7 @@ comme il avait raison, deux ans plus tard, en regrettant :
 de mourir « pour quelque chose d'aussi méprisable »; car ;
 s'il n'avait pas péri dans son duel, c'eût été certainement je
 aux journées de juin 1832, et il aurait pu croire alors qu'il à
-270 é
 
-LA VIE D'ÉVARISTE GALOIS
 mourait pour son pays. Mais la mort avait marqué sa jeunesse, et il le savait bien lui-même, lui qui écrivait au }
 milieu de ses calculs :
 L'éternel cyprès m''environne :
@@ -5686,7 +4890,6 @@ tourmenté et misérable, et de dresser enfin, à côté de
 ce nom qui ne représentait que des idées, la figure vivante
 d'un homme.
 | Pauz Duruy
-PIÈCES JUSTIFICATIVES
 I. — Acte de naissance d'Évariste Galois ;
 Il. —- Lettre de M. Laborie, proviseur du collège Louisle-Grand, au père de Galois;
 III. — Notes trimestrielles de Galois, au collège Louis-leGrand, de 1826 à 1829; 4
@@ -5696,7 +4899,6 @@ Galois, qui motiva son renvoi de l'École normale;
 V. — Lettres de M. Guigniault au Ministre sur l'expulsion de Galois;
 Inclus, dans la deuxième, lettre de Bach;
 
-« NS SNS
 A troisième cahier de la cinquième série Le:
 ÿ VI. — Extrait d'une lettre d'un camarade de Galois relaA tive à son expulsion ; e
 É: $ VII. — Arrêté d'expulsion de Galois, relevé sur les re- …
@@ -5704,13 +4906,11 @@ A troisième cahier de la cinquième série Le:
 à VIII. — Dernier écrou de Galois à Sainte-Pélagie; N
 Ÿ IX. — Acte de décès de Galois; %
 à X. — Procès-verbal de l'autopsie de Galois;
-Gi SRE ES EL
 N Le portrait de Galois, héliogravure Dujardin, a été “
 à tiré en outre à trente exemplaires sur grand papier ;”
 ni: chacun de ces exemplaires deux francs
 ‘ Troisième cahier de la cinquième série, un cahier .
 Ÿ jaune de 108 pages, bon à tirer du mardi 10 novembre …
-À: 1903; deux francs …
 4 1
 Fe Textes et commentaires. — Le monument de.
 Renan, — cahier de l'inauguration du monument de
@@ -5728,11 +4928,9 @@ dent du conseil, monsieur le ministre; n
 | AN h
 
 TU ve M LM l'aue
-LE MONUMENT DE RENAN f
 M. Guillerm, maire de Tréguier, répond; monsieur 4
 le ministre, mesdames, messieurs; il
 discours de M. CHAUMÉ, ministre de l'instruction is
-publique ; messieurs ; À
 discours de M. BERTHELOT, sénateur, membre de
 l'Académie française, secrétaire perpétuel de l'Aca- \
 démie des sciences; messieurs; cinq parties;
@@ -5753,30 +4951,25 @@ vous rameniez les énergies chimiques aux conditions de la
 mécanique rationnelle. Ainsi tous deux, portant la lumière
 dans des régions inconnues, vous avez gagné à la raison
 humaine, sur les larves et les fantômes, un immense ter- P
-ritoire.
 Cette réflexion, messieurs, m'a mis au cœur de mon
-sujet. Ë
 Renan avait l'esprit fait pour sentir très vite la difficulté
 de croire. Tout jeune, au séminaire, il esquissa dans son
 esprit une philosophie des sciences. Il n'avait pas entendu
 parler de Lamarck, ni de Geoffroy Saint-Hilaire. Darwin
 n'avait pas encore publié son livre sur l'Origine des
 
-ALT f\ AU TA MENT
 Le le monument de Renan 120
 # espèces. Écartant, comme enfantine et fabuleuse, l'idée de …
 ï la création telle qu'elle est exposée dans les vieilles cosmo-
 } gonies, sans initiateur et sans guide, il conçut une théorie d
 74 du transformisme universel, une doctrine de la perpétuelle
 A évolution des êtres et des métamorphoses de la nature. Ses
-9 ” . = a : #
 D croyances fondamentales étaient dès lors établies. En
 N réalité, Renan, dans le cours de sa vie, changea peu. Ceux
 ER qui le croyaient flottant et mobile n'avaient pas pris la M
 +1 peine d'observer son monde de pensées. Il ressemblait à sa M
 ñ terre natale; les nuées y couraient dans un ciel agité, mais M
 44 le sol en était de granit et des chênes y plongeaient leurs M
-. . . x A . » . !
 Er racines. À vingt-six ans, après cette révolution de février, M
 de source pour lui de grandes espérances, de grandes illu-
 ' sions, il déposa toute sa philosophie dans ce livre de M
@@ -5794,23 +4987,16 @@ s salut du monde par la science. 4
 Histoire générale des langues sémitiques, dont l'esquisse M
 date de 1847. Messieurs, je n'étalerai pas devant vous les M
 titres des nombreux ouvrages de 1
-à
 { M. Psichari, gendre d'Ernest Renan, parle au nom de
 | la famille ; 4
-' k
 | $ F$ . . « 1
 } après les discours, mademoiselle Moreno a dit la
-À #2 pin E
 44 Réponse de la déesse, poésie de M. Anatole Le Braz; M
 HA la musique des équipages de la flotte s'est fait entendre
 4 à la fin de la cérémonie ; à
-t . ‘À
 V Cahiers de la Quinzaine; jf
-Là 274 1
 
 ce À
-LA CRISE RELIGIEUSE DE RENAN à
-he:
 RENÉ LirALIEN, professeur au lycée de Brest, — La FL
 crise religieuse de Renan, — une étude; %
 De 1842 à 1845, toute la vie de Renan se décide. Avant Le
@@ -5839,11 +5025,9 @@ qui ont agi sur l'âme de Renan. Elles permettent de substituer au tableau un pe
 pourrait presque s'intituler: « Pourquoi un critique mo- 7
 derne ne peut pas être catholique », une description plus
 particulière où l'on voit se révéler les tendances personnelles de Renan, et l'action dominante de sa sœur.
-conclusion ;
 Ainsi se dénoua la crise religieuse de Renan, par un de
 ces actes de volonté comme cet irrésolu sut en accomplir
 
-\ catalogue analytique sommaire 26
 # toutes les fois que l'exigèrent de lui la science ou la con- 71
 e science; cet acte prend peut-être plus de valeur encore quand 4
 3 on sait ce qu'il lui en a coûté d'angoisses et de faiblesses; ,
@@ -5874,33 +5058,23 @@ doctrines, mais comme « un point historique impor- ‘3
 tant » ; (2) et ce n'est pas quarante ans après qu'il l'a écrit, ‘4 À
 pour se composer une attitude devant la postérité; c'est au Be
 À moment même où la crise venait de se dénouer. (3) Son E':
-LE 0 SENS \
 (1) Renan devait être beaucoup plus précis dans ses lettres à Liart, )
 son ancien condisciple de Tréguier et de Saint-Nicolas, depuis 1€
 élève du séminaire de Saint-Brieuc, qui prit les ordres, et mourut [A
 à Tréguier dans les derniers jours de mars 1845. Cf. Souvenirs, page 306, 4
 note : « Sa famille me fit rendre, après sa mort, les lettres que je 22
 lui avais écrites ; je les ai toutes. » Elles sont encore inédites. M
-(2) Lettres intimes, page 350. 41
-(3) 31 octobre 1845. 1
-276 k 4
-hi:
 
-LE THEATRE DU PEUPLE 4
 « éloignement de l'orthodoxie » (1) n'est pas le dernier acte “
 de son éducation théologique, mais le premier, et le plus PE
 décisif, de sa carrière d'historien. ‘
-RENÉ LITALIEN en
-couverture ; ;
 dans l'Action, numéro daté du vendredi 11 septembre
 1903, programme ofliciel des fêtes qui entouraient et
 comprenaient cette inauguration ;
 Quatrième cahier de la cinquième série, un cahier
 jaune de 216 pages, bon à tirer du mardi 24 novembre
-1903; trois francs cinquante
 Roman RoLzLAND. — Le Théâtre du Peuple;
 épigraphe : le nouveau est venu, l'ancien a passé,
-Schiller à Goethe, 1804; dédié à Maurice Pottecher,
 premier fondateur en France du Théâtre du Peuple ;
 Au moment où paraît ce cahier, se font les premiers
 efforts sérieux pour fonder à Paris le Théâtre du Peuple.
@@ -5915,12 +5089,8 @@ s'emparer du beau nom de Théâtre du Peuple, pour le
 dénaturer. IL importe de distinguer impitoyablement la ù
 plante populaire des parasites qui s'efforcent de vivre à
 ses dépens. Le Théâtre du Peuple n'est pas un article de
-(1) Lettres intimes, page 350. :
-
-XVI
 
 À Ù Romain Rolland L
-+ “4
 Fes mode et un jeu de dilettantes. C'est l'expression impé- \
 54 rieuse d'une société nouvelle, sa pensée et sa voix; et
 À à c'est, par la force des choses, en cette heure de crise, sa E
@@ -5934,14 +5104,11 @@ Ds disant populaires. Il s'agit d'élever Le Théâtre par et pour
 ne le Peuple. Il s'agit de fonder un art nouveau pour un M
 monde nouveau.
 1 1 Romain Rolland - …
-Fr 15 novembre 1903 É
-4 Introduction ; 1
 jà LE PEUPLE ET LE THÉATRE 1
 
 F Il s'est produit un fait remarquable depuis dix ans. L'art « M français, le plus aristocratique de tous les arts, s'est
 n. aperçu que le Peuple existait. — Il le connaissait bien
 % comme matière à discours, à roman, à drame, ou à
-té tableau, … (ll
 é Admirable sujet à mettre en vers latins !… A
 ÊY" Mais il ne comptait pas avec lui, comme avec un être
 vivant, un public et un juge. (1) Les progrès du socialisme
@@ -5950,13 +5117,9 @@ souverain nouveau dont les politiciens étaient jusqu'à pré- ». sent les inte
 110 ensemble. Ils ont découvert le peuple à leur tour, — découvert, si j'ose dire, un peu à la façon dont les explorateurs À
 | d'aujourd'hui découvrent une terre inconnue : comme un
 débouché pour leurs produits. Les auteurs y veulent intro-
-À ‘2
 (1) Alors le poète belge Rodenbach écrivait : « L'art n'est pas fait M
 pour le peuple. Pour qu'il soit compris par le peuple, il faudrait È
 à l'abaisser à son niveau. » \
-278 , E
-
-LE PEUPLE ET LE THÉATRE 5
 
 duire leurs œuvres, l'État son répertoire, ses acteurs, et ses L
 fonctionnaires. C'est toute une comédie, où chacun joué i
@@ -5974,7 +5137,6 @@ aux soucis personnels, je ne veux retenir que deux faits :
 art, — ou plutôt, l'importance prêtée au Peuple; car le
 Peuple, comme d'habitude, ne parle guère, et chacun parle
 pour lui. — Et c'est, en second lieu, l'extraordinaire diversité des opinions qui s'abritent sous le nom général d'art
-populaire.
 
 En réalité, il y a, parmi ceux qui se disent les représentants du Théâtre du Peuple, deux partis absolument opposés : les uns veulent donner au peuple le théâtre tel qu'il
 est, le théâtre quel qu'il soit. Les autres veulent faire sortir
@@ -5991,44 +5153,18 @@ idéal vivant un idéal bureaucratique.
 
 Cet idéal a été représenté, dans l'occasion, par l'Œuvre des
 Trente ans de Théâtre. Grâce à son intelligent promoteur,
-M. Adrien Bernheim, quelques représentations classiques
 ont été données dans les faubourgs parisiens par les acteurs
 des grands théâtres subventionnés, Aussitôt M. Bernheim à
 et ses amis de s'écrier : « Le théâtre du Peuple est fondé! »
 
-fl
-H'h
-À
-
-hi
-fi
-{a
-pe
-‘Hi
-fil
-Ut
-k }
 |
 |
 |
-îh mp
 1 ue : comme un
 #4 veulent introfi
 É péch est pas fait
-f ster faudrait
-fi
-BOURE
-" » Ÿ L
-NPA RE
 
-Ce ” { 4 L % J , d
-J s . j *à À . 4
-‘ ne
 4 4
-— ù
-À
-ché
-LE PEL
 duire leurs œuvres, l'É
 fonctionnaires. C'est
 on rôle ; mais il n'y
@@ -6036,24 +5172,19 @@ ver là un sujet d'ir
 oit tout à fait à l'a
 les hommes com
 Particulier de cher
-naivement, à
 profite. Or il en est
 s'étend avec trop
 n'y soit pas mélé a
-aux soucis }
 — c'est d'abord l'imp
 art, — ou plutôt
 Peuple, comme d
 pour lui. — Et
 sité des opinions q
-populaire
-En réalité, j à
 tants du Théâtre d
 sés : les uns veulez
 est, le théâtre qnel q
 de cette force now
 velle, un théâtre n
-autres espèrent da F
 Champions du passé. (
 Je n'ai pas besoin de
 L'État, par définition
@@ -6064,17 +5195,11 @@ de l'État de Pétrifier tou
 idéal vivant un idéal bureau
 Cet idéal a été représenté, dar
 Trente ans de Théâtre. Grâce à
-°n Bernheim, quelques
 nées dans les faubous.
-‘héètres subventions,
 le s'écrier : « Le thés
-d W
 ne
-cd SAS Ds,
 
-* : “4
 À Romain Rolland TUEUR
-1] >
 he — Voilà une belle invention ! On baptise le théâtre bourgeois 4
 } théâtre populaire, et le tour est joué! Donc, rien ne changera, S:
 j et, dans la société en transformation incessante, l'art seul
@@ -6114,10 +5239,7 @@ il nous est difficile de nous en dégager. Une poésie les L
 ; les autres, ont gardé jusqu'à nous une partie de leur puis- À
 | sance, il n'est pas sûr que cette puissance soit bonne | )
 aujourd'hui. Rien n'est bien qu'à sa place et en son temps. ;
-b 280 ' di
 
-:
-LE PEUPLE ET LE THÉATRE D
 On peut croire que le bien et le beau existent de façon &;
 absolue, qu'ils sont d'éternelles idées. Mais leurs expres- |
 sions varient selon les formes des esprits humains; et telles je
@@ -6152,14 +5274,8 @@ les restes du théâtre bourgeois. Nous ne tenons pas à
 étendre la clientèle des théâtres actuels : ce n'est pas pour
 eux que nous travaillons; nous n'avons à prendre en
 considération que le bien de l'art ou le bien du peuple. IL
-(1) Cennino Cennini, en 1437.
-(2) Fénelon.
-(G) Gluck.
-(4) Michel-Ange.
-281 XVI.
 
 Û Romain Rolland 4
-É
 f faudrait un fier optimisme pour croire que l'un ou l'autre
 È soit intéressé à la diffusion de notre culture artistique, prise
 A: dans son ensemble. j
@@ -6167,11 +5283,7 @@ A: dans son ensemble. j
 À cieux art, dont nous sommes si fiers. Examinons fran1 chement s'il y a rien pour le peuple dans le bagage |
 * dramatique du passé. — Et s'il n'y a rien, disons-le, sans $
 souci des préjugés. |
-É. PREMIÈRE PARTIE |
-* LE THÉATRE DU PASSÉ É
 4 1
-4 ‘ “1
-L Ë MOLIÈRE |
 Je commencerai par convenir qu'il semble que nous |
 L ayons les éléments d'un théâtre comique populaire : ;
 1 Molière en est la pierre angulaire. Par certains côtés, il
@@ -6189,27 +5301,20 @@ L Scapins et aux Sbriganis, aux coups de bâton et aux clys- |
 F: aux faibles et aux forts, et ne ménage ni l'âge, ni les infir-
 ù mités, ni tout ce qu'il y a ;
 ni II. — La tragédie classique ;
-FE Racine, Corneille;
 R (1) L'échec tout récent du Bourgeois gentilhomme, à la représen-
 é tation de gala donnée à l'Opéra, en octobre dernier, pour le roi et !
 ‘ la reine d'Italie, en est un indice frappant. ;
-282 '
 
 f ne
-LE THÉATRE DU PEUPLE .
 II. — Le drame romantique ; b
 V. — Le théâtre bourgeois ;
 V. — Le répertoire étranger ; les tragiques grecs ; É
-Shakespeare ; Schiller ; Wagner ;
 Sophocle ; Lope et Calderon ; Shakespeare ; Henri de
 Kleist ; Schiller; Raimund, Anzengruber ; Tolstoy et
-Gorki ; Hauptmann ; Wagner ;
 JI. — Il n'existe dans le passé qu'un répertoire de
 lectures populaires, non de théâtre populaire ; — les
 lectures ne suffisent point ; le théâtre est nécessaire ;
 TI. — L''Œuvre des Trente ans de Théâtre et les galas
-populaires ;
-DEUXIÈME PARTIE
 Le théâtre nouveau;
 . — Les précurseurs du théâtre du peuple : Rousseau,
 Diderot, la Révolution française, Michelet; — les premières tentatives de théâtres du peuple ; — le théâtre
@@ -6217,11 +5322,9 @@ de Bussang ;
 Rousseau, Lettre à d'Alembert sur les spectacles ;
 Diderot, paradoxe sur le comédien, deuxième entretien
 sur le Fils naturel ; les Shakespeariens allemands de la
-Sturm und Drangperiode, Gerstenberg, Herder, Goethe
 adolescent ; Louis-Sébastien Mercier, nouvel essai sur
 l'Art dramatique, nouvel examen de la Tragédie fran-
 çaise ; Bernardin de Saint-Pierre, treizième Etude de la
-Nature ; Marie-Joseph Chénier, Charles IX ; Schiller; |
 La Révolution française : le théâtre du peuple préco- |
 nisé par tous les partis; rapport de David, 11 juillet 1793, |
 pour la fête du 10 août; 2 août 1793, proposition du |
@@ -6230,12 +5333,10 @@ après un discours de Couthon; décret de la Convention; |
 novembre 1793, après discours de Marie-Joseph Chénier
 
 |
-!
 
 à Romain Rolland
 à sur les fêtes populaires, Fabre d'Églantine fait adopter
 1 l'idée de créer des théâtres nationaux ; commission
-j spéciale ; Bouquier, plan général d'Instruction publique ;
 à 4 pluviôse an II, la Convention répartit cent mille
 k livres; 12 pluviôse an II, recommandation du comité de
 4 Sûreté générale ; 25 pluviôse an II, demande de Boissy
@@ -6248,7 +5349,6 @@ jà an Il, appel du comité de Salut public; 25 floréal,
 ÿ commission de l'Instruction publique ; 5 messidor, cir-,
 à culaire de cette commission ; Joseph Payan; 11 messidor,
 | un arrêté de la commission ; résultats dérisoires;
-Û Michelet, lecons aux étudiants;
 à Le Votkstheater à Vienne; à Berlin le Schiller Thea-
 # ter; deuxième théâtre Schiller ; à Bruxelles, section
 Re d'art de la Maison du Peuple; s'unit au Toekomst; à
@@ -6270,17 +5370,13 @@ beaux-arts en 1902, et dans son discours du 5 mars 1902;
 | La Coopération des Idées ; le Théâtre populaire de
 j M. Berny à Belleville ; le Théâtre du Peuple de M. Beaulieu à Clichy; M. Camille de Sainte-Croix propose de
 | former un groupe de quatre grands théâtres populaires
-Ÿ és
-Î
 
-: LE THÉATRE DU PEUPLE
 parisiens, projet qui sera présenté au Conseil municipal
 par M. Turot et à la Chambre par M. Sembat;
 
 Les campagnes de presse ; }
 
 II. — Le théâtre nouveau. — Conditions matérielles et
-morales ;
 
 Le projet d'Eugène Morel; la première condition d'un
 théâtre populaire, c'est d'être un délassement; que le
@@ -6293,13 +5389,11 @@ masique; le théâtre du peuple pour et par le peuple.
 Ebauche d'un art dramatique nouveau ;
 
 III. — Quelques genres de théâtre populaire; — le
-mélodrame ;
 
 Souci d'émotions variées; souci de réalisme vrai;
 | souci de moralité simple; souci de probité commerciale ;
 | IV. — L'épopée historique ;
 
-Shakespeare; — épopées françaises vécues; Vitet;
 histoire nationale et histoire universelle;
 
 __  V. — De quelques autres genres; — drame social; —
@@ -6313,8 +5407,6 @@ k Rousseau ; Mirabeau, discours de l'organisation des
 
 1793, David, rapport et décret sur la fête de la réunion
 
-À
-
 Romain Rolland
 républicaine du 10 août; du même, autres projets de
 fêtes; Marie-Joseph Chénier, discours à la Convention,
@@ -6327,7 +5419,6 @@ nationales ; décrets; 20 prairial, fête de l'Être Suprême ;
 S arrêté de la commission d'Instruction publique et du
 111008 comité de Salut public interdisant aux théâtres la
 reproduction de ces fêtes ; les Fédérations;
-Conclusion;
 Cette heure inoubliable, nous voulons qu'elle revive. -
 Nous voulons que le peuple puisse encore une fois goù-
 ter cette ivresse fraternelle, ce réveil de la liberté.
@@ -6352,12 +5443,10 @@ k et dont la Belgique et la Suisse ont encore conservé, ou
 (1) Le 14 Juillet. — Scène Finale (Fête du Peuple).
 | 286 ;
 
-LE THÉATRE DU PEUPLE
 absent, — l'autre surtout, par ses fêtes dramatiques en
 plein air, où des milliers d'hommes prennent part, soutenus par l'orgueil et l'amour de la petite patrie : — repré-
 sentations vraiment monumentales, qui sont peut-être à
 l'heure actuelle ce qui donne le mieux l'idée des spectacles
-antiques.
 
 Mais il est des fêtes plus simples; et nous n'avons pas à
 besoin, comme dit Rousseau,
@@ -6370,7 +5459,6 @@ utiles et si agréables; on ne peut trop avoir de semblables rois.
 
 Les plus simples de ces fêtes sont peut-être les meilleures. Et Morel, qui reprend, sans s'en douter, une idée
 de Rousseau, — Morel a bien raison d'ouvrir son théâtre
-idéal aux bals populaires.
 
 La danse se perd en France, et, surtout à Paris, réservée à des
 établissements louches, elle n'est plus que prétexte à des obscé-
@@ -6380,7 +5468,6 @@ et sans que l'endroit couvert soit dangereux; enfin, la danse, c'est
 un plaisir réel, vif, et l'un des plaisirs les plus sains à tout point
 de vue, elle est un grand excitant à la gaîté et ne dégénère guère
 en vice. — Mais le peuple ne sait plus danser? Il faut donc lui .
-apprendre. (1) à
 
 « Est-ce donc à ce bel objet que doit aboutir l'effort grandiose de notre civilisation ? », diront dédaigneusement les
 artistes ; « et le terme du théâtre et de l'art populaire est-il
@@ -6428,12 +5515,7 @@ fs Dante et Shakespeare même échapperaient-ils à la loi comIE; mune ? Pourquo
 és - hommes ? Ce qui importe, ce n'est pas ce qui fut, c'est ce
 \l qui sera; ce n'est pas que la mort s'arrête, mais que la vie
 fl éternellement renaisse. Et vive Ja mort, si elle est néces1 k saire à fonder la vie nouvelle! Loin de la retarder, hâtonsK la plutôt. Puisse l'art populaire s'élever sur les ruines du
-fi passé !
-! () Lettres à Uhlig.
-À 288
 | '
-
-LE THÉATRE DU PEUPLE
 
 Mais pour que cet art populaire triomphe, ce n'est pas
 assez des seuls efforts de l'art. — « Un jour », raconte |
@@ -6450,13 +5532,10 @@ de droite et de gauche, un peuple maître de soi, et vainqueur du combat qui se 
 
 Au commencement, est l'Action.
 
-RomaIx ROLLAND
-DOCUMENTS
 I. — Textes de la Révolution relatifs aux théâtres et
 aux fêtes du peuple ;
 
 Séance de la Convention nationale du 2 août 1793,
-président Danton ; décret;
 
 Discours prononcé à la Convention nationale par
 Marie-Joseph Chénier, député du département de Seineet-Oise, le 15 brumaire an II, — 5 novembre 1793;
@@ -6464,9 +5543,7 @@ Marie-Joseph Chénier, député du département de Seineet-Oise, le 15 brumaire 
 Rapport et projet de décret formant un plan général
 d'instruction publique, par G. Bouquier, membre de la ;
 Convention nationale et du Comité d'instruction, —
-11 frimaire an II, — premier décembre 1793 ; — plan
 général d'instruction publique; section IV, du dernier
-degré d'instruction ;
 
 Écrit d'Anacharsis Cloots, cultivateur et député du
 département de l'Oise, — nivôse an II, — décembre 179;
@@ -6474,13 +5551,9 @@ département de l'Oise, — nivôse an II, — décembre 179;
 Séance de la Convention nationale, du 4 pluviôse
 an Il, — 33 janvier 1794, — président Vadier ; décret ;
 
-XVII
-
-QE catalogue analytique sommaire
 74 Affiche des spectacles du même jour ;
 
 an ; Comité de Salut public. — 20 ventôse an II, — 10 mars
-RE 1994 ;
 114 Comité de Salut public. — 5 floréal an II, — 24 avril
 | à 1794 ;
 
@@ -6493,20 +5566,16 @@ NE. populaires ;
 “4 Comité de Salut public. — 21 floréal an II, — 10 mai
 |: 26 17943
 4 Comité de Salut public. — 25 floréal an II, — 14 mai ‘
-j 483 1794 ;
 
 1% Comité de Salut public. — 27 floréal an II, — 16 mai
-he 1794 ;
 4: Comité de Salut public. — 18 prairial an Il, — 6 juin
 | 23 1794 ; — arrêté ;
 Ni Commission d'instruction publique. — 5 messidor
-(4 an I, — 93 juin 1794 ; — Spectacles ;
 | 2° Commission d'instruction publique. — 11 messidor
 h: ë an II, — 29 juin 1594; — Fêtes à l'Être Suprême; pièces
 Me dramatiques ; rapport et arrêté (approuvé par le Comité
 |: de Salut public, le 13 messidor);
 
-Fi F . Commission d'instruction publique. — 19 messidor
 RE an Il, — 9 juillet 17994, — Rapport et projet d'arrêté au
 He: Comité de Salut public pour la fête du 26 messidor,
 | époque anniversaire du 14 Juillet ;
@@ -6515,11 +5584,8 @@ He: Comité de Salut public pour la fête du 26 messidor,
 2 1. — Rapport et décret sur la fête de la réunion répu4 - blicaine du 10 août, présenté à la Convention nationale,
 #3 le 11 juillet 1793 ;
 RE | II, — Rapport sur la fête de la reprise de Toulon. —
-à 5 nivôse an II, — 25 décembre 93 ;
 | III. — Rapport sur la Fête de l'Être Suprême. —
 | ja : 19 prairial an II, — 7 juin 94; k
-
-DISCOURS POUR LA LIBERTÉ
 
 IV. — Rapport sur la fête de Bara et Viala. — 23 messidor an II, — 11 juillet 94;
 
@@ -6529,21 +5595,17 @@ IV. — Le Théâtre du Peuple de Bussang ;
 
 V. — Textes relatifs aux travaux de la Revue d'art
 dramatique pour fonder à Paris un théâtre du
-peuple ;
 
 Projet de circulaire rédigé en mars-avril 1899, pour
 provoquer la réunion d'un Congrès international de
-théâtre populaire;
 
 Projet de théâtre populaire à Paris;
 
 Le Théâtre populaire de Belleville;
 . Le Théâtre du Peuple de Clichy ;
 Le Théâtre du Peuple de Neuvy-sur-Loire (Nièvre) ;
-Bibliographie ;
 Cinquième cahier de la cinquième série, un cahier
 jaune de 168 pages, bon à tirer du mardi 8 décembre
-BRr003 ; deux francs
 GEORGES CLEMENCEAU. — Discours pour la liberté ;
 Un des événements les plus intéressants des récentes :
 opérations politiques parlementaires est la remontée
@@ -6558,12 +5620,8 @@ discours prononcé par lui au Sénat dans la séance du
 mardi 17 novembre dernier pour la défense des libertés
 communes contre les usurpations de l'État ;
 
-k' Georges Clemenceau
-
-4] a
 LE. Georges Clemenceau, — discours pour la liberté, —
 Fe prononcé au Sénat dans la séance du mardi 17
-‘a novembre 1903 ;
 
 ‘#4 Sénat, session extraordinaire de 1903, compte rendu in
 ) 4 extenso, neuvième séance, séance du mardi 17 novembre.
@@ -6575,11 +5633,9 @@ de Suite de la première délibération : 1° sur la proposition
 114 4 15 mars 1850 sur l'enseignement ; »° sur le projet de loi sur
 } l'enseignement secondaire libre : M. le président. — Article 2,
 n texte nouveau, à titre d'amendement proposé par M. Louis
-4 Legrand : MM. Louis Legrand, Thézard, rapporteur;
 % Chaumié, ministre de l'instruction publique et des beauxarts. — Retrait de l'amendement par son auteur.— Article 2
 #4 de la commission : MM. de Lamarzelle, Clemenceau. —
 X Renvoi de la suite de la discussion à la prochaine
-É séance ;
 
 4 discours de M. Clemenceau d'après le Journal offi14 ciel ;
 
@@ -6601,13 +5657,7 @@ générale va se rencontrer avec le bulletin d'hommes qui
 À n'est pas leur tyrannie. /Très bien! à gauche)
 
 J Lorsque nous examinerons la question des garanties de
-: ap :
 
-(À
-
-JF .
-
-DISCOURS POUR LA LIBERTÉ
 la liberté, je me trouverai en désaccord absolu avec eux et
 j'aurai la joie de me retrouver avec mes amis.
 
@@ -6653,16 +5703,9 @@ Dans la monarchie, l'autorité vient d'en haut; c'est
 une délégation du pouvoir divin; la liberté, je serais bien
 embarrassé de la définir ; elle n'existe pas; mettons que,
 de temps à autre, le souverain peut avoir des accès de
-tolérance.
 
 Dans la République, la liberté c'est le droit commun de
 chacun ; et l'autorité, — ici je me tourne du côté de mes
-
-1 Pa VERRE Le a.
-112 74 S V & 4
-RE Georges Clemenceau
-
-as
 
 14 amis, — ne peut être que la garantie de la liberté de chaRE cun. /Très bien ! à gauche)
 
@@ -6693,7 +5736,6 @@ LE plus loin :
 ‘1 Oui! nous avons guillotiné le roi, vive l'État-roi ! Nous
 1% avons détrôné le pape, vive l'EÉtat-pape ! Nous chassons
 M. Dieu, comme disent ces messieurs de la droite, vive l'État-
-à Dieu ! Ù
 PRE Messieurs, je ne suis pas de cette monarchie, je ne suis
 FA. pas de ce pontificat. /Très bien ! très bien!)
 
@@ -6709,16 +5751,12 @@ Hi à dans le monde, les massacres, les guerres, les manquements
 ‘3 : Je ne dirai pas, par principe républicain, qu'il y a eu de
 1h bons rois, — cela ferait trop plaisir à ces messieurs de la
 PE. droite, {Rires) — mais cependant je dirai qu'il y a eu des
-4 rois bons.
 
 à M. Victor Leydet. — L'exception confirme la règle.
 
 ; M. Clemenceau. — Il y a eu des papes religieux ; /Voujé veaux rires) il se peut qu'il y en ait eu qui se soient essayés
 4 0 à la tolérance. L'État est de sa nature implacable, il n'a ‘
 
-1 294 d
-
-DISCOURS POUR LA LIBERTÉ
 pas d'âme, il n'a pas d'entrailles, il est sourd au cri de la
 pitié; on n'émeut pas l'État, on ne peut pas l'apitoyer.
 | Parce que je suis l'ennemi du roi, de l'empereur et du
@@ -6736,8 +5774,6 @@ gémit encore l'humanité ?
 Hier ne nous disait-on pas que l'État était supérieur à la
 justice ? Je ne suis pas le sujet de cet État; et si vous
 regardez les chrétiens, les catholiques, quelle leçon pour
-
-$ vous !
 
 Vous êtes-vous jamais demandé pourquoi et comment les
 chrétiens, qui furent une liberté dans le cirque, en étaient
@@ -6757,7 +5793,6 @@ domination par le fer et le feu : il a été la pire tyrannie
 que le monde ait connue, et aujourd'hui, bien que murmurant encore les paroles qui leur vienrient de la tradition,
 les catholiques n'aspirent à rien qu'à reconquérir le pouvoir politique pour refuser les libertés qu'ils nous demandent aujourd'hui, c'est-à-dire pour continuer contre vous
 l'oppression d'autrefois. /Protestations à droite. — Applaudissements à l'extrême gauche et sur plusieurs bancs à
-gauche)
 
 | 1 cinquième cahier de la cinquième série
 : et ainsi de suite, il faudrait tout citer ; la forme même
@@ -6796,12 +5831,7 @@ de C'est pourquoi le mot d'ordre de cette civilisation moderne
 k que la Révolution a fondée et que le Syllabus maudit, ne
 peut être, à travers toutes les incertitudes d'une si longue
 1 44 bataille, que de libérer, de grandir, d'accroître l'homme
-‘1 KA |
-s b 4
-ét
-FN
 
-GEORGES CLEMENCEAU
 toujours. /Très bien! très bien! et applaudissements. —
 L'orateur, en retournant à sa place, reçoit les félicitations
 d'un grand nombre de ses collègues.)
@@ -6829,7 +5859,6 @@ numéro du samedi 16 mai 1903;
 
 Cahiers de la Quinzaine. — Jeudi 3 décembre 1903,
 une note de l'Aurore sur le rappel de MM. Buret et
-Desemblanc;
 
 Les libertés internationales ;
 
@@ -6840,7 +5869,6 @@ libertés nationales et internationales ; nous réunissons
 aujourd'hui les premières pièces de ce nouveau dossier :
 
 ! conformément à notre institution, nous publions, après
-297 XVIL.
 
 he: cinquième cahier de la cinquième série
 
@@ -6850,47 +5878,31 @@ FA le premier article de M. Clemenceau, la réponse de
 
 4 Georges Clemenceau. — D'abord, il faut étre, — un
 1 à article paru dans l'Aurore du mercredi 25 novembre
-ke 1903;
 
 L. Dossier. — Francis de Pressensé. — Une réponse, —
 À parue dans l'Aurore du jeudi 26 novembre; nous
 4 avons reçu de M. Francis de Pressensé la lettre sui14 vante, que nous insérons avec empressement ; datée de
 Et Paris, le 25 novembre 1903; adressée mon cher
 ; 24 Clemenceau; signée Francis de Pressensé, député du
-ï Rhône :
 
 4 ; Georges Clemenceau. — Contre la résignation, — un
 sf article paru dans l'Aurore du vendredi 27 novembre;
 il Georges Clemenceau. — La paix, — un article paru
 $ dans l'Aurore du samedi 28 novembre; dont un post-
-Ÿ. scriptum ;
 
 { où inclus, un passage du discours de M. Berthelot à la
 a réception des parlementaires anglais;
 
-*
-
 b GEORGES CLEMENCEAU. — Pro domo, — un article du
 k Bloc, première année, numéro 47, dimanche
-Ë 15 décembre 1901;
-
-F
 
 is Le rapprochement de la France et de l'Allemagne. — :
 : Socialistes de gouvernement et radicaux. — La politique
 F) coloniale et ses conséquences. — La question de la
-revanche;
 4 tout cet article est un article de polémique avec Jaurès
 sur les matières indiquées à ce sommaire, et originelL lement sur l'attitude, critiquée par Jaurès, de Clemen-
-Ÿ
-! 298 à
-!
-!
 
-n L
-GEORGES CLEMENCEAU
 ceau et des anciens radicaux envers Jules Ferry et sa
-politique;
 
 Jaurès ne me répond pas sur les trente millions des
 moines. En revanche, bien qu'il ait notablement évolué
@@ -6920,8 +5932,6 @@ donne véritablement le contenu de la collection;
 
 Louis Lamaud. — Relevé numérique, catalogue anabrtique sommaire du Bloc; numéros et collections;
 
-à. ©
-
 Nous nous sommes rendus acquéreurs de ces collections et de ces numéros; nous sommes assurés que les
 unes et les autres ont une grande valeur, et que cette
 valeur ne pourra que s'accroître à mesure que les
@@ -6935,13 +5945,8 @@ mettons en vente au bureau des cahiers aux conditions
 suivantes, qui sont des conditions économiquement
 L justes; ces conditions;
 
-%
-
-; Complément;
-
 | Georges Clemenceau. — À propos de l'arbitrage, —
 un article publié dans l'Aurore du vendredi 4 dé-
-cembre.
 
 | Cahiers de la Quinzaine ;
 
@@ -6949,9 +5954,6 @@ Bernard-Lazare et Trarieux, — une communication
 de M. Clemenceau dans /'Aurore du jeudi 3 décembre ;
 : où inclus une lettre de M. Fernand Bernard datée de
 ( Paris, premier décembre, adressée Monsieur le Séna-
-\ teur; commentaires ;
-
-À
 
 À Nous ne saurions trop engag'er nos abonnés, — parti-
 
@@ -6970,41 +5972,21 @@ k thèque, — à nous commander, pendant qu'il en est temps
 
 à n'ont pas des collections complètes, à compléter leurs
 
-1 | collections J
-
 {l Sixième cahier, almanach des cahiers pour La cin-
 
 | quième série, un cahier blanc de 152 pages, bon à tirer
 
 du mardi 22, fini d'imprimer du jeudi 24 décembre 1903 ;
 
-à deux francs
-
 J DANIEL HALÉvY. — Histoire de quatre ans, 1997-
 
-2001 ;
-
-300 À
-
-à
-
-k
-
-HISTOIRE DE QUATRE ANS
-
-épigraphe :
-Alles regt sich, als wollte die Welt, die gestaltete,rückwärts
-Lôsen in Chaos und Nacht sich auf, und neu sich gestalten.
-
 Hermann et Dorothée, IX.
-première partie ;
 
 En 1925, l'allemand Ziegler avait réussi à fabriquer de
 lalbumine, matière organique admirable pour l'alimentation des hommes; les procédés qu'il avait découverts
 étaient fort coûteux et sans applications industrielles possibles. Mais les chercheurs des deux mondes, animés par
 l'espoir d'une invention extraordinaire et prodigieusement
 lucrative, s'appliquèrent au problème, et, très vite, ils trouvxèrent non pas une, mais trois ou quatre solutions pratiques. En 1929, le kilo d'albumine fut vendu 1 franc; en
-1951, o franc 55; en 1952, o franc 45.
 
 C'avait d'abord été une clameur enthousiaste. L'humanite
 avait donc vaincu les servitudes de la terre et de l'usine,
@@ -7015,7 +5997,6 @@ _ gagner sa vie en travaillant quatre, trois ou deux heures
 … au lieu de huit, dix ou onze. Mais ce fut bientôt un cri de
 
 _ désarroi : la plus soudaine des révolutions ruinait la
-société.
 
 Le pain, les pommes de terre devinrent en trois années
 des aliments de luxe, des amusements de table, et deux
@@ -7034,10 +6015,6 @@ les premiers partis.
 Il y eut des émeutes dans toutes les grandes villes. On
 incendia des usines, on massacra des ingénieurs. Incendies
 
-k 1 à: : er e
-110 Daniel Haléey
-
-É
 J et massacres ne rendaient pas au paysan l'antique travail
 RL: de la terre. Les sociétés humaines étaient troublées dans
 ( { leur vie traditionnelle par la propagation foudroyante d'une
@@ -7086,13 +6063,6 @@ qu projet de loi que la Chambre et le Sénat votèrent aussitôt.
 \ & @) Telles étaient les abréviations courantes. Le premier chiffre
 } désignait le nombre des heures occupées, le deuxième le taux du
 
-salaire.
-
-‘£
-
-‘à SO
-
-HISTOIRE DE QUATRE ANS |
 force et certains d'entre eux obtinrent les cinq-six ou les ;
 quatre-six. La situation économique retrouva un peu de :
 stabilité, et la vie devint tolérable. 108
@@ -7113,14 +6083,9 @@ timistes qui affirmaient : Nous touchons au but. Le paupé-
 risme est vaincu. L'émancipation réelle est proche.
 Mais on pressentit bientôt que cette paix était un répit,
 et qu'on vivait sur des abîimes. Des maux nouveaux naissaient dans cette humanité nouvelle. L'attention fut d'abord ù
-attirée
-deuxième partie;
-à tabs araëlav due.
 L'ordre poursuit le désordre.
-troisième partie ;
 — Qui est celui qui vient d'Edom, ayant les
 vêtements leints en rouge ; cet homme magnifiquement vêtu, et qui marche avec tant de
-force ?
 L — C'est moi qui parle avec justice, et qui ai
 tout pouvoir de sauver.
 — Pourquoi y a-t-il du rouge dans ton vête- k
@@ -7131,12 +6096,9 @@ aucun homme d'entre les peuples n'a été
 avec moi; et j'ai marché sur eux dans ma
 colère, et je les ai foulés dans mon indignation ; leur sang a rejailli sur mes vêtements,
 et j'ai souillé tous mes habits.
-IsaïE, LXIII, versets 1, 2, 3.
 
-4 Henri Michel
 ‘1 Septième cahier de la cinquième série, un cahier
 14 jaune de 144 pages, bon à tirer du mardi 5 janvier 1904 ;
-1. deux francs
 { 5 cahier de courriers ;
 |
 18 Henri Micuer. — Notes sur la Hollande et sur
@@ -7148,8 +6110,6 @@ fe leçon d'ouverture, Edgar Quinet, en tête de notre cahier
 11 Edgar Quinet, vingt-et-unième cahier, premier cahier supplé-
 11 mentaire de la quatrième série, — notre nouveau collabo-
 | K: rateur M. Henri Michel, conservateur de la bibliothèque
-fr d'Amiens.
-}: 10
 F Le goût de l'aventure et celui de l'intimité sont peut-être
 : les deux sentiments primitifs dont les alternances et les
 E conflits expliqueraient le mieux le rythme de la sensibilité
@@ -7169,12 +6129,7 @@ di Je viens de passer quelques semaines en Hollande. Jy
 hs suis allé voir cette nature hollandaise dont le charme est
 “1 si spécial et si rare. Promeneur oisif dégagé de toute préocdi cupation d'affaires ou d'étude, je m'y suis simplement mêlé
 1h dans les villes à la vie des rues, autant qu'on le peut en
-i 304 '
-{ n
 
-:
-l
-NOTES SUR LA HOLLANDE ET SUR L'INTIMITÉ fi
 des courses hâtives ; j'y ai parcouru, comme il convient, les à
 musées admirables de la Haye et d'Amsterdam. Mais je à
 m'étais promis à l'avance de ne pas tenter de tout voir. La “+
@@ -7217,7 +6172,6 @@ y est sérieux, recueilli, profond, et cependant heureux et
 13 des choses, et que la nature y a été vue par des yeux
 { D et réfléchie par une pensée. C'est un pays fidèle fait pour y
 152 méditer ou pour y aimer longuement.
-+
 | 2 ; « Si, passant de Belgique en Hollande, dit Michelet dans
 | 1 ses notes de voyage, vous voulez avoir du premier regard
 | 1 # une impression vraie des Pays-Bas, prenez-les par leur
@@ -7232,9 +6186,7 @@ LS avec leurs mâts et leur voilure y traversent des prairies
 | 4 dans les étroites rainures de canaux qu'on ne voit pas, et
 | ‘1 © parfois des troupeaux de bœufs, les pieds dans l'eau basse
 53 où le ciel se reflète, y paraissent brouter une pâture de
-[20 nuages.
 : La traversée d'Anvers à Rotterdam dure une douzaine
-D d'heures.
 | # 4 Henri LEBEAU, JÉROME ET JEAN THARAUD. — Moines
 14 de l'Athos ;
 S ce Constantinople, 21 juin 1902
@@ -7249,12 +6201,7 @@ Qt. Karyès. Depuis l'époque où les empereurs d'Orient ont
 1410 orthodoxe est la seule autorité que reconnaissent les moines
 tt 14 grecs de l'Athos. Mais à côté des couvents grecs, les plus
 M: nombreux et les plus vénérables par l'antiquité de leurs
-D. Da at
-{
 
-" SR RUN ‘42
-:
-' pe
 MOINES DE L'ATHOS le
 traditions, de riches monastères russes, peuplés d'une véri- é ze
 table armée de moines, se sont établis dans la presqu'île. 54
@@ -7295,14 +6242,12 @@ ouvertes toute la splendeur de la Corne d'Or, un jour d'été
 gigantesque, d'une grande beauté, dans la force de l'âge. Au
 mont Athos nous vimes des barbes merveilleuses : nous
 
-ÿ
 # quatre courriers
 4 ne devions pas en voir de plus belles. Une simple croix
 [:s0 d'or brille sur sa poitrine. Il nous reçoit debout ; son secré-
 N. taire lui chuchote d'où nous venons. Alors il s'écrie d'une
 ‘# voix retentissante qui remplirait Sainte-Sophie, — si
 D. Sainte-Sophie, hélas, n'était devenue mahométane :
-4 — Ah! ah!Sie kommen von Pest!
 F Nous acquiesçcons de la tête. La conversation se serait
 ‘É ainsi poursuivie quelques minutes en allemand, — Sa SainLe teté Joachim a étudié dans des universités allemandes, —
 4 Ù si des roulements de voiture ne s'étaient fait entendre dans
@@ -7328,15 +6273,8 @@ ph: Hommes et femmes sont étendus sur le pont, si serrés que
 (4 en bottes et en blouse, barbes incultes, odeurs douteuses.
 :1S Sur le pont de ce navire, c'est tout un morceau de la sainte
 ‘4 Russie. Beaucoup de ces pèlerins
-1 22 juin; Daphni 23 juin; Karyès 23 juin; 24 juin;
-j 25 juin ; 26 juin ; 28 juin; 29 juin ; premier juillet; 3 juillet;
-1 4 juillet ; 5 juillet ;
-Le 308 :
 
-GRÈVE D'ARMENTIÈRES 1
-$
 Butletin de l'Office du Travail, — grèves d'Armen- 2
-tières ; 4
 Dans le neuvième cahier de la quatrième série, almanach ,
 des cahiers pour l'an 1903, nous avons publié, d'après le
 Bulletin de l'Office du travail de novembre 1902, et sous le
@@ -7346,7 +6284,6 @@ grève générale des mineurs ; ce compte rendu nous avait
 nous le lui avons alors demandé, notre collaborateur a continué depuis à dépouiller pour nous le Bulletin de l'Office :
 du travail; il nous a indiqué récemment ce nouveau
 compte rendu. Le rédacteur en chef du bulletin, gérant, est
-M. Charles Picquenard.
 Le Bulletin de l'Office du travail de novembre 1903
 publiait le compte rendu suivant, sous le titre : la grève des
 tisseurs d'Armentières et de la région :
@@ -7358,7 +6295,6 @@ les prix de façon avaient été réduits et la rétribution d'articles nouveaux
 compenser les réductions opérées d'autre part. En septembre, se produisirent à Armentières trois grèves partielles, intéressant 320 ouvriers ; deux de ces conflits aboutirent à la consolidation du tarif de 1889 avec maintien des
 prix consentis pour les articlesnouveaux; la troisième grève,
 commencée le 21 septembre, durait encore au moment où le
-conflit se généralisa.
 Le 30 septembre, dans un établissement, les ouvriers de
 la « préparation » (dont les salaires, ainsi que ceux des
 ouvriers de filature, n'avaient pas été fixés par le tarif de
@@ -7366,7 +6302,6 @@ ouvriers de filature, n'avaient pas été fixés par le tarif de
 augmentation de salaire et, ayant essuyé un refus, cessèrent
 le travail. Le lendemain, le mouvement s'étendit à deux
 
-:
 | | à Charles Péguy
 
 h. autres tissages d'Armentières; le 2 octobre, les tisseurs
@@ -7382,13 +6317,7 @@ h. autres tissages d'Armentières; le 2 octobre, les tisseurs
 
 | CuaRLes PÉGUY. — Cahiers de la Quinzaine ;
 
-(h.. ;
-
-NE
-
 | Nos cahiers sont édités par des souscriptions men-
-
-1% D P
 
 ‘24 suelles régulières et par des souscriptions extraordi-
 
@@ -7396,14 +6325,11 @@ NE
 
 114 la rédaction ni sur l'administration : ces fonctions
 
-‘4 demeurent libres ; souscriptions mensuelles régulières;
-
 14 souscriptions extraordinaires ; emprunt des cahiers; du
 me. socialiste de l'espèce dite universitaire ; du collectivisme
 
 normalien ; de l'entraînement ;
 
-TN
 Re Le monde est plein d'hommes qui pratiquent l'entrai-
 
 Ya nement; il est encore plus plein d'hommes qui le subis-
@@ -7414,15 +6340,12 @@ AU mauvaises qualités, du dévouement, de la bonté, du sacri-
 KES aussi de l'abandon ; mais que dirons-nous de ceux qui font
 dl profession d'exercer un entraînement; le monde est plein
 qu d'hommes qui d'un cœur léger exercent les ravages des
-1h entraînements politiques, parlementaires, démagogiques,
 LL démocratiques, populaires; quand je vois des orateurs, des
 1 tribuns, des conférenciers, des députés, des sénateurs, le
 dé grand tribun, des congressistes, des conseillers, muni-
 ‘sh cipaux, généraux, des commissaires, des officiers de gou-
 (0 vernement ou de révolution, révolutionnaires ou non
-vai Fi : . . .
 he d'étiquette, presque tous bourgeois de vie, quand je les vois
-M 310
 
 DE L'ENTRAINEMENT pu
 prendre le train, arriver sur un champ de grève, parler, ne
@@ -7489,7 +6412,6 @@ ue k acte délictueux ou criminel est devenu en usage commun,
 3% quand il est commis par tout un monde, par toute une
 A classe, par tout un corps de métier, quand même on devient
 4 ridicule de ne le pas commettre, si l'acte est intrinsèque-
-* ment, intérieurement, unitairement injuste, aucune répé-
 tition, sociale, aucun usage ne fait qu'il est juste; voilà ce
 que devraient méditer nos entraîneurs professionnels; si
 
@@ -7507,27 +6429,15 @@ sait bafouiller quelquefois, qui ne connaît pas toujours la
 fin de sa phrase, et qui n'est pas le maître impeccable de
 
 sa péroraison.
-CuarLes PÉGUY
-STAR
 
 | .
-MAXIMILIEN ROBESPIERRE
 Huitième cahier de la cinquième série, un cahier
 jaune de 160 pages, bon à tirer du mardi 19 janvier |
-1904 ; deux francs
-Dr.KarzBRUNNEMANN.— Maximilien Robespierre;
 — traduction et notes de L. Lévi;
 En même temps que ce cahier paraît chez Schleicher :
-Dr. KArL BRUNNEMANN. — Maximilien Robespierre,
 traduction et notes de L. Lévi, premier volume, un volume
 in-16 à trois francs cinquante, en vente à la librairie des
-cahiers.
 Le livre allemand, que j'ai en mains, porte le titre
-suivant :
-Maximilian Robespierre, ein Lebensbild, nach zum
-Theil noch unbenutzten Quellen, von Dr. KARL BRUNNEMANN,
-[zweite Auflage], Leipzig und Berlin, Verlag von Wilhelm
-Friedrich, K. Hofbuchhandler.
 Il fait un volume in-octavo de 220 pages.
 Il a eu deux éditions ; la préface de la première édition
 est datée de l'été de 1879 ; la préface de la deuxième édition
@@ -7540,13 +6450,8 @@ engagé lui-même depuis longtemps dans des études personnelles sur la Révolut
 Maximilien Robespierre, ne se contentait pas d'effectuer
 une transcription littérale ; il a voulu nous donner une
 traduction annotée ; et ces annotations soigneuses, consciencieuses, ne forment pas la partie la moins importante du
-volume.
 Les recherches nécessitées par ce travail personnel ont
 
-XVIII
-
-LS FRUITS SE RER
-We
 (l Dr. Karl Brunnemann
 #4 ainsi demandé au traducteur un très long temps; ce n'est
 da pas en quelques années que l'on acquiert de la compétence
@@ -7579,22 +6484,15 @@ LE sentons donc un texte net.
 se volume que nous ne reproduisons pas que dans celle que
 k nous reproduisons ; elles seront sans doute plus importantes
 [ encore dans le deuxième volume. ù
-Fa ; Charles Péguy
 Nous publions ci-après la préface de la première édition
-f allemande :
-f
 | Si quelque chose peut fournir la preuve de la faiblesse
 humaine, c'est la triste expérience, faite chaque jour
-pa SrANÈE
-
-MAXIMILIEN ROBESPIERRE 5
 
 même à toute heure du jour, que le succès est la seule base À
 du jugement chez la plupart des individus. L'homme qui, :
 après le coup d'État heureux du 2 décembre, fut encensé
 dans presque toute l'Europe comme le sauveur de lasociété; k
 vers lequel se rendaient en foule les potentats d'Europe qui
-venaient processionnellement déposer leurs hommages à î
 ses pieds; cet homme, dis-je, n'avait recueilli, à la suite des
 affaires de Strasbourg et de Boulogne, que des haussements
 d'épaule universels, des sourires compatissants et moqueurs,
@@ -7621,7 +6519,6 @@ pour ne pas dire plus, par les jeunes comme par les vieux,
 par les humbles comme par les puissants? Et son monarque
 ne l'a-t-il pas fait comte et prince, sans parler d'une dotation de deux millions? C'est que le succès décide précisé-
 ment, sur notre pauvre globe, de ce qui doit être blanc ou
-noir.
 
 Et il est de même du grand homme qui fait l'objet de
 
@@ -7674,20 +6571,6 @@ LU tirions plus que dédommagé de notre peine; car c'est
 
 à blir dans ses droits le mérite méconnu ou insuffisamment
 
-4 à apprécié.
-
-4 Dr. KARL BRUNNEMANN
-
-4: Elbing, été 1879
-
-1 Maximilien Robespierre
-
-à I |
-
-à JUSQU'A SON ENTRÉE DANS L'ASSEMBLÉE NATIONALE
-
-L (1758-1789) |
-
 | Maximilien-Marie-Isidore Robespierre ou, plus exacte-
 
 ment, Derobespierre, — car tel était le nom de la famille, :
@@ -7702,7 +6585,6 @@ f sans que cette dernière ait appartenu cependant à la
 
 | 316 f
 
-MAXIMILIEN ROBESPIERRE k
 milien-Barthélémy-François Derobespierre, exerçait la pro- Fa
 fession d'avocat au conseil provincial d'Arras, comme le :
 grand-père l'avait été avant lui. La famille, originaire
@@ -7741,9 +6623,6 @@ Maximilien quelque chose des races septentrionales, comme l'avait
 déjà remarqué Louis Blanc. — Note du traducteur.
 (2) D'après M. E. Hamel, il serait revenu à Arras, après un pre
 mier voyage en Angleterre et en Allemagne, et il aurait essayé de
-317 XVII.
-
-‘4
 
 L | ‘4 catalogue analytique sommaire
 mo Maximilien avait hérité quelque peu de la mélancolie
@@ -7767,7 +6646,6 @@ il a de la province. Le grand-père maternel prit les fils dans sa
 (AN élève modèle. A ses heures de loisir, au lieu de se distraire
 
 À re par le jeu, comme les autres petits garçons, il élevait des
-Li À . . s
 
 HR | ‘ oiseaux et en particulier des pigeons.
 
@@ -7813,8 +6691,6 @@ F d'un discours de Robespierre aux Jacobins, le premier frimaire-
 
 | k 318
 
-CA
-CAHIERS DE LA QUINZAINE Le
 Nous ne pouvons naturellement établir un sommaire ;
 d'un livre qui est une narration biographique poussée ï
 et même, au delà, un livre, une narration d'histoire "
@@ -7851,31 +6727,17 @@ avec l'abbé Proyart, comme avec tous ses anciens professeurs.
 L'abbé Proyart, fervent royaliste, émigra sous la Révolution. C'est
 un an après la mort de Robespierre qu'il écrivit contre ce dernier
 le livre très violent dont nous avons détaché une page. — Note du
-traducteur.
 
-‘ # PA
 À Romain Rolland
-es
 #44 RomaIN RozLaND. — Jean-Christophe. — I. —
-PE:
-F0 L'aube ;
 à ‘4 Ce roman, sans que je veuille le limiter en le défi14 nissant d'un mot, est essentiellement, éminemment, le
 a roman d'un musicien; — Charles Péguy; — épigraphe :
-a À
-15 Dianzi, nell' alba che precede al giorno,
 4 % quando l'anima tua dentro dormia …
-à 28 »
-1 ‘4 Purg. IX
 #2 première partie ;
-a É Come, quando i vapori umidi e spessi
 3 & a diradar cominciansi, la spera
 # del sol debilemente entra per essi. 4
-o 2 Purg. XVII
-11 deuxième partie ;
 iù #4 L'alba vinceva l'ora mattutina
-à] che fuggia innanzi, si che di lontano
 $ N conobbi il tremolar della marina.
-ê 4 Ë Purg. I
 À 4 C'est au milieu des lourdes ténèbres de cette vie, dans
 n À la nuït étouffante qui semblait s'épaissir d'heure en heure
 À 4 autour de lui, que commença de briller, comme une étoile
@@ -7894,9 +6756,7 @@ S pourquoi. 11 lui semblait que c'était une boïte magique,
 Ï contes, — un volume des Mille et une Nuits, — dont
 NE grand-père lui lisait de temps en temps quelques pages,
 k qui les enchantaient tous deux. Il avait entendu, le premier
-dE, 320 :
 
-JEAN-CHRISTOPHE {
 jour, son père, pour essayer les notes, en faire sortir une
 petite pluie d'arpèges, pareille à celle qu'un souffle de vent Se
 tiède fait tomber, après une averse, des branches mouillées +4
@@ -7937,7 +6797,6 @@ le vent les apporte et les éloigne tour à tour ; puis, quand
 on prête l'oreille, on entend dans le lointain d'autres voix
 différentes, qui se mêlent et tournent, comme des vols
 
-‘1 AL LPES PNR PARTONS
 ee Romain Rolland
 
 |. 0 d'insectes; elles ont l'air de vous appeler, de vous attirer
@@ -7953,8 +6812,6 @@ ee Romain Rolland
 s comme des esprits. Qu'ils obéissent ainsi, qu'ils soient
 
 D. tenus captifs dans cette vieille caisse, voilà qui ne s'explique
-
-1. point !
 
 3 4 Mais le plus beau de tout, c'est quand on met deux doigts
 
@@ -8005,8 +6862,6 @@ nn: coffrets arabes sous le sceau de Salomon. — D'autres vous
 Ë sent autour de lui des milliers de forces inconnues, qui |
 ‘à le guettent et l'appellent, pour le caresser, ou pour le ,
 
-à 0 dévorer.
-
 4 Un jour, Melchior le surprit ainsi. Il le fit tressauter de
 
 : : peur avec sa grosse voix. Christophe, se croyant en faute, à
@@ -8016,12 +6871,8 @@ nn: coffrets arabes sous le sceau de Salomon. — D'autres vous
 
 l'es pas, par extraordinaire ; il était de bonne humeur, il riait.
 
-n 11 « D 392 ' Ù ;
-
-JEAN-CHRISTOPHE #
 — Cela t'intéresse donc, gamin ? demanda-t-il, en lui di
 tapant amicalement la tête. Veux-lu que je t'apprenne à te
-jouer ? 4e
 S'il le voulait !.. Il murmura que oui, ravi. Ils s'assirent ii
 tous deux devant le piano, Christophe juché, cette fois, sur #1
 une pile de gros livres ; et, très attentif, il prit sa première 1}
@@ -8049,24 +6900,16 @@ de son père. Melchior ne se lassait point; il lui faisait
 répéter la même chose dix fois. Christophe ne s'expliquait
 pas qu'il se donnäât tant de peine : son père l'aimait donc?
 Qu'il était bon! L'enfant travaillait, le cœur plein de É
-reconnaissance.
 11 eût été moins docile, s'il avait su ce qui se passait dans
 la tête de son maître.
-troisième partie ;
 e la faccia del sol nascere ombrata
-Purg. XXX
-Christofori faciem die quacumque lueris,
-Illa nempe die non morte mala morieris.
 
 t | Romain Rolland
-{ \ (8 ———auauapa
 | in
 F1 Dixième cahier de la cinquième série, un cahier blanc
 : de 188 pages, bon à tirer du mardi 16, fini d'imprimer
 a du jeudi 18 février 1904 ; deux francs
-£
 | Romain RoLLAND. — Jean-Christophe.— II. — Le
-Se matin ;
 ; h première partie; la mort de Jean-Michel;
 1 4 Quelques années ont passé. Christophe va avoir onze
 Mn :. ans. Il continue son éducation musicale. IL apprend l'har5 monie avec Florian Holzer, l''organiste de Saint-Martin, un -
@@ -8095,9 +6938,6 @@ d été nommé officiellement second violon du Hof Musik |
 4 trop tôt; car les affaires se gâtent de plus en plus à la ‘
 : maison. L'intempérance de Melchior a empiré, et le grand-
 à père vieillit. É
-Æ ME
-
-JEAN-CHRISTOPHE
 
 Christophe se rend compte des tristesses de la situation ;
 il a déjà l'air sérieux et soucieux d'un petit homme. IL
@@ -8137,14 +6977,7 @@ n'était pas fini. Les domestiques, habitués à le voir, lui parlaient familiè
 plein de glaces et de lumières, où des personnes gourmées
 le dévisageaient avec une curiosité blessante. Il devait traverser la pièce trop cirée, pour aller baiser la main de
 
-325 $
-XIX
-
 ni RRRRCLEE D ere e  .
-à
-re
-ù M. M. Mangasarian
-È
 É Leurs Altesses ; et plus il grandissait, plus il devenait
 L4N gauche ; car il se trouvait ridicule, et son orgueil souffrait.
 F Ensuite, il se mettait au piano, et il devait jouer pour ces
@@ -8161,25 +6994,14 @@ $ qu'il jouait, qu'il était sur le point de s'arrêter net au milieu
 + susceptibilité maladive, dont il souffrait d'autant plus,
 ES qu'il n'osait pas la montrer. Il voyait une offense dans les.
 s façons d'agir les plus simples : si l'on riait dans un coin du
-ie salon,
-?
-; deuxième partie; Otto;
-‘4 | troisième partie ; Minna ;
-à Christofori faciem die quacumque tueris, |
-Illa nempe die non morte mala morieris.
 À dans le même cahier, une rectification typographique. -
 au cahier précédent, à la page 42, dans le bas de la
 d page, où l'on avait composé Taurus pour Taunus ;
 x Onsième cahier de la cinquième série, un cahier
 jaune de zu + 144 pages, bon à tirer du mardi premier
-mars 1904 ; L
-M. M. ManGasariAn, lecturer of the Independent
 Religious Society of Chicago. — Le monde sans Dieu;
-; — a new catechism ;
 | 216 03
 
-LE MONDE SANS DIEU
-Charles Péguy ; — avertissement ;
 J'ai dit plusieurs fois dans ces cahiers, je redirai autant
 , que je le pourrai, autant qu'il sera nécessaire, autant qu'il
 
@@ -8219,19 +7041,13 @@ monde moderne au moins aussi catégoriquement, au moins
 aussi merveilleusement, au moins aussi miraculeusement
 que les vieux catéchismes enseignaient de l'Église et de la
 
-t ‘A # Ls
-
-É: Charles Péguy
-
 ‘A chrétienté ; ils ne sont pas moins mystiques; ils ne sont
 ‘à pas moins autoritaires ; ils ne sont pas même une réplique
 1 ; aux catéchismes religieux ; ils sont de leur droite filiation ;
 4 ils sont des catéchismes religieux plus particulièrement
 d affectés au culte rituel d'un nouveau Dieu qui est l'État
-$ moderne.
 \ Le nouveau catéchisme de M. M. Mangasarian n'est nulle-
 ; ment un catéchisme religieux, un catéchisme catholique
-;À retourné.
 : 28 C'est ce que l'on verra dès la première page : le baptême
 ka liminaïre du vingtième siècle au nom de la Paix, de la
 / Liberté et du Progrès n'est nullement un de ces baptêmes
@@ -8241,7 +7057,6 @@ F catholique; cette invocation, cette réclamation, cette
 L forme, symboliques et voulues, elle est profondément
 ‘4 originale ; pareillement les épigraphes ne sont pas deux
 À citations, produites superstitieusement, de nouveaux livres
-saints.
 % Par l'introduction anglaise on connaîtra qui est l'auteur
 n: américain, et comment le livre est né; l'auteur du livre,
 F M. M. Mangasarian, est Arménien d'origine, et pour nous
@@ -8260,10 +7075,7 @@ W première vue, pourraient nous déplaire un peu ; pour ce \
 À penseurs n'ont su rien imaginer que de manger gras,
 ! rituellement, tous les vendredis ; et, véritables libres pen-
 | seurs, nous nous représentons malaisément ces sortes de
-i 328 ,
-Ê Ë
 
-LE MONDE SANS DIEU
 sermons laïques américains ; mais nous sommes internationalistes; nous admettons en notre entendement les mœurs
 des peuples étrangers, pourvu qu'elles soient honnêtes; il
 ne nous suflit pas qu'une coutume s'établisse, qu'une institution naisse et fonctionne en dehors de cette nation
@@ -8298,13 +7110,8 @@ la seule aussi qui soit en vente à la librairie des cahiers ;
 l'auteur, le traducteur, les éditeurs ont entendu en faire
 une édition de propagande ; ils ont done marqué le volume
 
-+ mn ;
-La
-Lu . .
-te. catalogue analytique sommaire
 Me. un franc cinquante, ce qui est un prix de propagande, un
 ‘2 prix réduit, un prix inférieur au prix de revient stricte-
-: (08 ment économique, au prix commercial, au prix marchand.
 je Le traducteur et les éditeurs, considérant que le mot de
 {> catéchisme avait subi en français une dépréciation que le
 Le mot de catechism n'avait pas subie dans l'anglais et dans
@@ -8320,41 +7127,27 @@ l'E à . le présentent au public particulier de leur maison, historiM. quement 
 es peut-être comme un modèle de ce que, une fois le genre
 x. admis, on peut se proposer de faire en France.
 : 10 A ce titre, comme specimen, et peut-être comme
-:
 ne Cet avertissement se continue, et il ne se finit pas, à
 . la quatrième page de la couverture ;
 1 à traduction de l'américain
 S ne avec l'autorisation de l'auteur
 De par
 M: le Clerc de Pulligny
-Ex
 à de
-ï À a new catechism
 LH par M. M. Mangasarian ;
-1 adresse linéaire ;
-fi
 à Nous baptisons le vingtième siècle au nom de la Paix, de …
 à. ‘2 la Liberté et du Progrès. Nous le nommons — Le Siècle du
 Peuple. Nous demandons à ce siècle nouveau une Religion
 4. sans surnaturel; une Politique sans guerre ; une Science et
-+1 330
-A,
 
-LE MONDE SANS DIEU
 un Art sans grossièreté; et de la Richesse sans misère ni
-injustice !
-
-épigraphes ; |
 
 Notre pensée grandissante nous
 est une révélation grandissante.
-GEORGE ELI0T
 Q Croyez-le, mes bons amis, aimer
 la vérité pour l'amour de la vérité
 est la partie principale de la perfection humaine dans ce monde.
 De là découlent toutes les autres
-vertus.
-LOoCkE
 
 George Jacob Holyoake ; — introduction ; « L'auteur de ce livre, M. M. Mangasarian, Arménien d'origine, a l'honneur d'être le conférencier de la Société de
 Religion indépendante de Chicago, et chaque semaine, sa
@@ -8375,14 +7168,10 @@ La forme la plus difficile de composition littéraire, qui
 ait la qualité d'intéresser le lecteur, est sans aucun doute
 le catéchisme.
 
-(1) Sociélé américaine d'édition.
-
 (2) L'association d'édition rationaliste (de Londres). La préface
 de M. George Jacob Holyoake a été écrite pour l'édition de 4 new
 catechism publiée par cette société.
 
-en |
-ÿ George Jacob Holyoake
 Dr L'auteur doit être expert à plonger dans l'océan profond
 à des polémiques pour y retrouver les faits essentiels cachés
 \ « dans ces profondeurs. Un catéchisme est une méthode
@@ -8417,10 +7206,7 @@ D il n'est pas de réponse.
 f L'auteur du catéchisme a montré beaucoup de jugement
 1 î dans le choix des questions. Les réponses sont simples et
 % À ù sans prétention; elles arrivent avec promptitude et déci1 à
-+1 ‘ 33210
 
-MIT INQE RéR AS TEST TRES EPS * V 7} #
-LE MONDE SANS DIEU Ë
 sion, apportant souvent une documentation inédite qui a
 l'attrait de la surprise. Ces réponses ne se traînent pas
 comme un attelage surchargé, mais elles volent comme un
@@ -8434,9 +7220,6 @@ de ceux qui les acceptent.
 M. Mangasarian, comme Phocion, conquiert avec peu de
 soldats et convainc avec peu de paroles. Il n'est pas de
 meilleure définition, dit Landor, d'un capitaine ou d'un
-maître vraiment grands.
-
-Eastern Lodge, Brighton. — 20 octobre 1902
 
 Note du traducteur français. — Tout dans ce volume,
 textes et notes, appartient à l'auteur américain. Si le
@@ -8444,8 +7227,6 @@ traducteur avait écrit ce livre pour exprimer sa pensée
 propre, il l'aurait fait différent sur quelques points. Tel
 quel, il a jugé utile de le faire connaître au public
 français. Il n'y a rien ajouté. — Jean le Clerc.
-
-PRÉFACE DE L'AUTEUR
 
 Les vieux catéchismes qui furent imposés à notre jeunesse — quand notre intelligence ne pouvait pas encore
 se défendre — ne commandent plus notre respect.
@@ -8459,23 +7240,13 @@ les temps nouveaux.
 
 Ce livre est un modeste effort dans cette direction.
 
-!
-
-table ;
-
 Chapitre premier. — Raison et Révélation;
 
 Chapitre II. — La Révélation chrétienne;
 
-333 ssr #
-
-ES ae
-Fe M. M. Mangasarian
 - Chapitre II. — Le canon de la Bible;
-[1 Chapitre IV.— Dieu;
 i Chapitre  V. — La Terre;
 3 Chapitre VI. — L'homme;
-* Chapitre VII. — Jésus;
 4 Chapitre VIII. — Les enseignements de Jésus;
 es Chapitre IX. — L'Église;
 : ‘ Chapitre  X.— L'Église libérale;
@@ -8483,17 +7254,14 @@ de Chapitre XI. — Les « credo »;
 E Chapitre XII. — Le Clergé;
 # Chapitre XIIL — Prière et Salut;
 1 Chapitre XIV. — La mort; /
-54 Chapitre XV.— Immortalité;
 4 Chapitre XVI. — La fin suprême de l'homme;
 4 marqué deux francs, ce cahier n'est pas mis dans le
 4 commerce; il n'est donc mis en vente que dans les col-
 ‘f lections complètes de la cinquième série; nous mettons
 ‘4 en vente à la librairie des cahiers :
-‘à M. M. ManGasarian, lecturer of the Independent
 _ 6 Religious Society of Chicago. — Le Monde sans
 Fe Dieu, — a new catechism, — traduit avec l'autorisation
 A de l'auteur par Leclerc de Pulligny, préface par Émile
-4 Vandervelde, député au Parlement Belge; Paris;
 à Édouard Cornély et Compagnie, éditeurs, 101, rue de
 ee Vaugirard, 101 ; 1904 ; tous droits réservés ; un volume
 L blanc de xu + 144 pages; un franc cinquante
@@ -8501,13 +7269,10 @@ Ce volume est identique au cahier précité, sauf qu'il
 cu contient à la fin quelques annonces de Cornély éditeurs
 4 et que l'avertissement que l'on a pu lire en téte du
 1 cahier a été remplacé dans le volume par une préface
-f Spies
 
-LE MONDE SANS DIEU ï
 de Vandervelde ; cette préface est ainsi introduite dans
 l'édition Cornély :
 
-Émile Vandervelde, député socialiste au Parlement belge,
 ayant lu le Monde sans Dieu dans les Cahiers de la
 Quinzaine parus le 6 mars, a écrit le 9 mars dans le Peuple
 de Bruxelles la noble page qu'on lira ci-après.
@@ -8518,7 +7283,6 @@ respectueux remerciements. Au moment où il écrivait ces
 lignes, Vandervelde ne connaissait ni l'auteur, ni le
 traducteur de À New Catechism.
 
-LECLERG DE PULLIGNY
 : Nous lisons dans la préface de Vandervelde :
 
 Le Parti ouvrier et la libre pensée sont des organisations
@@ -8543,14 +7307,10 @@ des croyances sincères, quand elle a pour but et pour
 résultat de faire l'éducation scientifique et morale des travailleurs, c'est pour nous un précieux adjuvant. Par contre,
 quand elle se réduit à des attaques grossières, des facéties
 ‘outrageantes, de véritables attentats à la conscience individuelle, elle est de nature à nous causer un très grave
-préjudice.
 
-\
-s Emile Vandervelde
 Or, on ne saurait méconnaître que trop souvent la pro-
 ‘1 pagande rationaliste laisse fortement à désirer, au point de
 4 vue du fond, aussi bien que de la forme, du choix des argui ments, aussi bien que de la manière dont ils sont pré-
-sentés.
 6 Au lieu de s'inspirer des travaux récents de la critique,
 de montrer les contradictions et les incompatibilités qui
 . existent entre la conception théologique et la conception
@@ -8558,7 +7318,6 @@ scientifique du monde, de mettre en lumière la subordination croissante de l'É
 \ taliste, on s'en va chercher, dans l'arsenal de la bourgeoisie voltairienne, des facéties pesantes, des plaisanteries
 ï. qui sentent le moisi, des pamphlets surannés, qui ont eu,
 3 sans doute, leur raison d'être, à l'époque où ils furent pu5 bliés, mais qui ne peuvent plus avoir d'autre effet, aujourd'hui, que de nous rendre ridicules, aux yeux des catholiques éclairés, ou de nous rendre odieux, auprès des âmes
-; simples.
 Ÿ Nous nous plaignons souvent, avec raison, de la stupidité des libelles que les cléricaux éditent contre le socia-
 } lisme. Ils auraient le droit de nous répondre que certains
 numéros des collections rationalistes ne valent pas
@@ -8577,10 +7336,8 @@ U ater-closet, pour proclamer son affranchissement intelLS lectuel!
 É: charge d'âmes, fassent des sacrifices de temps et d'argent,
 | pour répandre de telles élucubrations, alors qu'il existe
 ë tant de belles et bonnes œuvres, qui permettraient de
-hi 336
 
 RUE d Préc. rx * de N
-LE MONDE SANS DIEU
 mettre les travailleurs au courant des derniers résultats
 de la critique ou de la science expérimentale.
 
@@ -8596,13 +7353,11 @@ L'auteur de ce dernier livre, Arménien d'origine, s'intitule
 lecturer de la « Société de Religion indépendante » de
 Chicago. Il serait plus exact de dire « Société indépendante
 de toute Religion », car les quelques pages que M. Mangasarian nous donne, pourraient être signées par n'importe
-quel positiviste.
 
 Peut-être ceux qui liront le Nouveau Catéchisme trouveront-ils un peu longues certaines pages se rattachant à des
 préoccupations courantes en Amérique, mais inconnues en
 Europe. Néanmoins, dans son ensemble, l'œuvre de Mangasarian mérite à tous égards les éloges que lui accordent
 son traducteur, Leclerc de Pulligny, et son éditeur, Charles
-Péguy.
 
 Je ne connais aucune publication de ce genre qui soit
 aussi claire, aussi loyale, aussi accessible à tous, en même
@@ -8616,15 +7371,9 @@ du cléricalisme à rebours, du catholicisme retourné, qui à
 trop souvent cours dans les milieux rationalistes. On n'op-
 
 (1) Errera. Une leçon élémentaire sur le Darwinisme, 85 pages avec
-22 figures. Bruxelles, Lamertin, 1904.
 
 (2) Goblet d'Alviella. Les Origines du Christianisme. Bruxelles,
-Lamertin, 1904, 75 centimes.
 
-dd 1 TRE tax:
-4 “
-N à
-catalogue analytique sommaire
 S pose pas de dogmes scientifiques à des dogmes religieux, la ;
 Science avec un grand S à la Religion avec un grand R. On
 ne se donne pas le ridicule de prétendre que tous les catho- |
@@ -8645,24 +7394,15 @@ en se bornant à des plaisanteries faciles, en se contentant :
 de chausser les vieilles savates de l'anticléricalisme bour- î
 geois que la libre pensée sera ce qu'elle doit être : le
 prolongement philosophique de l'action sociale du prolé- Ë
-tariat. ;
 Et maintenant, que mes amis des groupes rationalistes $
 me pardonnent la brutalité de ma franchise. $
 En écrivant ces lignes, qui les froisseront peut-être, je n'ai 4
 pas eu d'autre but que de rendre notre propagande com- 4
 mune plus efficace, et plus digne de la grande cause qu'ensemble nous défendons !
-ÉMILE VANDERVELDE ï
 Douzième cahier de la cinquième série, un cahier ;
 jaune de 188 pages, bon à tirer du mardi 15 mars 1904; $
-deux francs î
 Cahier de courriers: — petites garnisons ; — 4
-Laval, — Orléans, — Paris; #
 la France vue de Laval;
-DID
-à
-
-PETITES GARNISONS
-Charles Péguy, — avertissement ;
 
 | Dans le quatorzième cahier de la troisième série, bon à
 tirer du mardi 22 avril 1902, nous avons publié de notre
@@ -8700,10 +7440,7 @@ et puis on est habitué à ce que les socialistes critiquent;
 c'est même un peu devenu leur fonction sociale, dans le
 monde bourgeois, par entente mutuelle; et s'ils ne critiquaient pas, ils auraient l'air de vouloir être des révolu-
 
-tr
-
 |
-petites garnisons
 tionnaires; de vouloir changer les habitudes; un certain
 instinct conservateur des bourgeois républicains et réactionnaires est flatté quand ils voient que les socialistes critiquent; c'est signe, évidemment, que rien n'est changé
 encore; s'ils ne critiquaient pas, c'est alors qu'on s'inquiéterait; enfin les bourgeois sont contents d'eux-mêmes, de
@@ -8732,14 +7469,10 @@ devant tel ou tel, qui l'avait entendu aussi, d'avoir été à
 une conférence où on avait prononcé, entendu ce mot; en
 public; devant tout le monde; et en sortant Challaye vit |
 bien que les gens se regardaient, encore, et qu'il y avait
-quelque chose.
 Rentré à Paris, il reçut une lettre de ses amis d'Évreux,
 lui demandant, au nom de leur amitié même, et dans
 l'intérêt supérieur de la République, de ne pas faire sa
-340 :
 
-Le À D
-} LA FRANCE VUE DE LAVAL
 quatrième conférence; les élections municipales appro1 chaïent; et de telles conférences enlèveraient énormément
 À de voix à la liste républicaine.
 Dédié aux quelques socialistes sincères qui s'imaginent,
@@ -8752,7 +7485,6 @@ j aujourd'hui encore, après tant d'expériences malheureuses,
 17 les voix des électeurs; hâtons-nous, républicains, de faire
 & de la réaction, pour que ce ne soient pas les réaction-
 ; naires qui en fassent.
-i Charles Péguy
 î FéLicIEN CHALLAYE. — La France vue de Laval;
 É Faire la psychologie d'une petite ville de 30.000 habi1 tants, située à l'ouest de la France ; décrire sa vie morale,
 religieuse, politique, sociale, en étudiant les événements
@@ -8762,7 +7494,6 @@ forces de résistance et quelles forces de progrès s'y comFa battent ; tel est 
 Stendhal disait que pour connaître la France il faut
 passer huit à dix mois dans une petite ville de province,
 peu accoutumée à voir des étrangers : Laval répond à cette
-définition.
 
 Il serait faux de dire que toute la France subisse,
 comme Laval, la tyrannie d'un état d'esprit catholique et
@@ -8777,7 +7508,6 @@ des tyrannies occultes limitent la liberté des individus.
 écraser les initiatives intéressantes. Les hommes qui osent
 vouloir sont rares partout. Ce qu'il faut aux petites villes
 
-Le Ce À
 | petites garnisons
 È pour qu'elles s'éveillent, à la nation pour qu'elle prospère,
 | à l'humanité pour qu'elle progresse, au socialisme pour
@@ -8814,11 +7544,7 @@ zième et du seizième siècle; le nouveau château des comtes 1
 de Laval, seizième et dix-septième siècles, servant de Palais ‘
 de Justice; la Halle aux toiles, élevée au dix-huitième siècle ë
 par le comte de la Trémouille. Parfois, en se promenant
-342 Ë
 
-jai ° 1 AGE TURS ” Ÿ
-i ;
-ORLÉANS VU DE MONTARGIS
 dans les rues, on a le sentiment précieux d'un contact
 direct avec les siècles lointains ; l'imagination du passé
 enrichit l'âme presque autant que la vision d'un pays nouveau : c'est comme un voyage autour de l'histoire.
@@ -8831,12 +7557,10 @@ rayons. — Dans l'obscurité de la ville, des grincheux verraient un symbole. L
 | Aux environs de Laval la campagne est charmante. Les
 £ rives de la Mayenne sont exquises, en automne surtout,
 | au coucher du soleil, quand la lune rose s'élève parmi les
-F peupliers jaunis.
 les habitants
 ï A qui cherche à faire la psychologie d'une petite ville, les
 | q psy 8 P
 PA monographies anciennes sont précieuses. Car
-F2
 | les groupes sociaux ; les journaux ; la vie religieuse ;
 | la vie administrative, l'enseignement ; la vie politique,
 | les élections ; la classe ouvrière, le mouvement syndi-
@@ -8844,16 +7568,12 @@ F2
 Populaire; l'action ouvrière depuis 1902 ; conclusion, —
 le socialisme à Laval ;
 Orléans vu de Montargis;
-Charles Péguy; — avertissement ; — trois comptes
-rendus ;
 Obsèques du docteur Gebaüer, — dans Le Progrès du
 Loiret, — numéro daté du vendredi 29 janvier 1904 ;
 (1) On me dit que depuis 1903 les rues sont beaucoup mieux
 éclairées. Serait-ce aussi un symbole ?
 
-el
 |
-petites garnisons
 | Obsèques de M. Amédée Bonhaume, — dans le Proel grès du Loiret, — numéro daté du jeudi 21 janvier
 | 1904, nouvelles du département, arrondissement d'Orléans ; Sandillon, obsèques de M. Amédée Bonhaume ;
 Cérémonie laïque et républicaine, — dans le Progrès
@@ -8882,16 +7602,10 @@ nous ont rapporté tous ceux de nos abonnés qui avaient
 assisté à la séance; beaucoup d'entre eux n'étaient pas des |:
 habitués des séances parlementaires ; habitués et non À
 à habitués rapportaient cette impression à peu près unanime : À
-j
-Ait
 
-dt li rio LIVRE { #7 sSÉ es
-CAHIERS DE LA QUINZAINE
 que dans sa plus grande part cette séance ne fut vraiment
-pas ]
 
 Cahiers de la Quinzaine.— Souscriptions mensuelles:
-Souscriptions extraordinaires; Bernard-Lazare; conclusion;
 
 Nous avons reçu, nous, ce contact immédiat et glacial de
 la tyrannie; j'ai vu la poste française, qui est libre, sommairement, nous rapporter des cahiers que la censure tsariste avait refusés; nous avons vu revenir des cahiers
@@ -8921,7 +7635,6 @@ je connus que la vieille liberté a du bon; que la respiration de la liberté a 
 bon pays, et Paris une bonne ville; qu'il ne fallait pas que
 l'effort de tant de générations füt perdu; car nos aïeux
 
-catalogue analytique sommaire
 n'ont pas tant souffert et tant lutté, tant vécu et ils ne sont x
 pas morts seulement pour assurer la multiplication des
 À palmes académiques; mais ils ont peiné, lutté, souffert
@@ -8929,32 +7642,24 @@ leur vie et leur mort pour que ce peuple devint un peuple
 libre, pour que ce coin de terre devint le chaud foyer de la
 liberté dans le monde, pour que Paris devint ce qu'il est,
 littéralement la capitale de la liberté dans le monde.
-CHARLES PÉGUY
 Treizième cahier, cahier de Pâques de la cinquième
 série, un cahier blanc de 152 pages, bon à tirer du
-mardi 29 mars 1904; trois francs ,
 GABRIEL TRARIEUX. — Les Vaincus. — Hypatie;
 | — quatre actes;
 du même auteur, en vente à la librairie des cahiers ;
-Charles Péguy, — avertissement;
 | Nous avons publié, formant le seisième cahier, cahier de |
 Pâques, de la quatrième série, de M. Gabriel Trarieux, les
 s Vaincus, — Joseph d''Arimathée, — trois actes; Les Ë
 Vaincus forment une trilogie; nous publions aujourd'hui,
 formant le treizième cahier, cahier de Pâques, de la cin-
 : quième série, la seconde pièce de cette trilogie, — Hypatie, è
-— quatre actes. k
 Nos cahiers et nos séries mêmes sont préparées longtemps à l'avance et la plupart de nos cahiers sont indépla-
 çables dans nos séries; ce cahier en particulier était tout
 | prêt quand nous est parvenue la nouvelle de la mort de
 M. Ludovic Trarieux, décédé le dimanche 13 mars, dans la
-matinée.
 Retenu par son deuil, M. Gabriel Trarieux, fils du séna- \
 teur, n'a pu relire en seconde ses épreuves, qu'il avait corrigées en première; nous les avons relues pour lui; pa- |
-É 346 3
 
-LA
-F HYPATIE
 reillement nous avons lu et corrigé les épreuves de M. Clemenceau,
 
 M. Gabriel Trarieux nous avait proposé dès le principe,
@@ -8965,8 +7670,6 @@ avait jadis écrits sur les Vaincus dans la Dépêche de Toulouse et que lui, Tr
 ; gérant je ne pouvais qu'accueillir cette proposition, puisque
 tout auteur est libre dans son cahier; mais personnellement j'étais très heureux de l'accueillir, parce que, ainsi
 que je le disais dans le dernier cahier, les articles non politiques de M. Clemenceau me paraissent présenter beaucoup
-
-è d'intérêt.
 
 Nous publions les trois articles de M. Clemenceau exactement tels qu'ils parurent dans la Dépêche; nous n'avons
 fait dans ces trois articles que quelques corrections pour
@@ -8981,7 +7684,6 @@ de l'année 1900 et des années immédiatement précédentes,
 replaceront ces articles à leur date, feront d'eux-mêmes la
 
 mise au point, le peu de rajeunissement nécessaire, les
-quelques transpositions indispensables.
 
 Nous publions aujourd'hui et dès aujourd'hui ces trois
 articles formant avant-propos pour une raison typographique et pour une raison toute organique; pour une
@@ -9007,11 +7709,6 @@ et en outre il ne faut pas commenter des commentaires ;
 mais je ne puis m'empêcher de noter, dans les trois
 articles de M. Clemenceau, des jugements sur la politique, en général, qui me paraissent particulièrement
 
-: précieux, étant particulièrement pertinents.
-Charles Péguy
-
-Georges Clemenceau ; — avant-propos ; |
-
 Georges Clemenceau, — les Vaincus, — Joseph d'Arimathée, — article publié dans la Dépéche de Toulouse,
 numéro daté du mardi 31 juillet 1900;
 
@@ -9030,8 +7727,6 @@ demandé. Toujours une trahison surgit du fond de la bassesse humaine. Toujours 
 cruellement le crime d'avoir pensé. Toujours de l'injuste
 supplice naît l'espérance d'une justice future. Toujours le
 
-348 x
-
 #4 HYPATIE
 F parti de la justice, triomphant après de longs efforts, de-
 É. vient, — parce qu'il est d'hommes, — injuste à son tour.
@@ -9039,15 +7734,11 @@ F parti de la justice, triomphant après de longs efforts, de-
 k bouche du vaincu, la haine de l'idéal au cœur farouche du
 A. maître dans sa victoire.
 FA Georges Clemenceau, — les Vaincus, — Hypatie, —
-L
 4 article publié dans la Dépêche de Toulouse, numéro
-E- # .
 4 daté du vendredi 3 août 1900 ;
-[ \
 Hd Georges Clemenceau, — les Vaincus, — Savonarole,
 ‘ — article publié dans la Dépéche de Toulouse, numéro
 L daté du mardi 3 août 1900 ; conclusion ;
-hi
 4 Restons-en là. Sur cette parole d'espérance, je veux
 fermer le beau livre de M. Trarieux. C'est une grande
 Li pensée de ce jeune homme de nous avoir offert, à l'heure
@@ -9059,24 +7750,11 @@ x grands vaincus de l'Histoire. D'autres s'offraient en foule.
 1 suffit d'avoir fait entrevoir que toutes ces accumulations de
 hu, défaites sont des victoires en devenir et qu'il n'y a jamais
 À de vaincus historiquement que ceux qui ont tort. Que
-a : . . . 2
 h M. Trarieux, surtout, soit remercié de nous avoir donné la
 _ forte joie de sa poésie, de sa pensée. Il y a encore une jeun_ nesse en France. Espérons.
-ÿ GEORGES CLEMENCEAU
-: Gabriel Trarieux; — Hypatie ;
-7 épigraphe ;
 j Je suis née, non pour une haine
 : mutuelle, mais pour un mutuel
-amour.
-SoPHOCLE. — Antigone
 
-soc
-
-À + - +2 à:
-
-: catalogue analytique sommaire
-(4 dédicace ;
-A MADAME SEGOND-WEBER
 s Nos songes sont pareils aux fantômes d'Homère
 A qui manquent la force et la chaleur du sang,
 Peuple obscur et silencieux et frémissant
@@ -9091,25 +7769,14 @@ Dont le Galiléen renversa les idoles,
 L'animant, pour un soir, du geste et de la voix ?..
 Je vous offre, endormie en ces pages de livre,
 Madame, l'Ombre en deuil qui sans vous ne peut vivre.
-Gabriel Trarieux |
 Cette pièce a été reçue et répétée au Théâtre-Antoine. |
 Elle n'a pas été jouée par suite de l'entrée de madame |
 Segond- Weber à la Comédie-Française.
 Le drame se passe à Alexandrie, en 415 de l'ère
-chrétienne ; :
-ACTE PREMIER if
 Premier tableau. — La fin d'un monde;
 Deuxième tableau. — La montée au temple ; 4
-ACTE II |
-Troisième tableau. — Athëêné Polias ; ;
 Quatrième tableau. — Le Caesareum; F
-ACTE II
 Cinquième tableau. — Hypatie et Krysès;
-SAONE î
-+ à
-
-GASTON PARIS
-ACTE IV
 
 Sixième tableau. — Les moines de Nitrik ;
 
@@ -9118,17 +7785,11 @@ Septième tableau. — La mort d'Hypatie;
 Quatorzième cahier de la cinquième série, un cahier
 jaune de 116 pages, bon à tirer du mardi 12, fini d'imprimer du jeudi 14 avril 1904; deux francs
 
-Gaston Paris;
-
-épigraphe ;
-
 Tu m'hai di servo tratto a libertate
 Per tutte quelle vie, per tutt'i modi,
 Che di ciù fare avean la potestate.
 La tua magnificenza in me custodi
 Si, che l'anima mia che fatta haï sana,
-Piacente a te dal corpo si disnodi.
-DATE, Paradis, XXXI, 85.
 en tête Le portrait de Gaston Paris, photographie ;
 
 Né à Avenay, — Marne, — le 9 août 1839, Gaston
@@ -9141,18 +7802,13 @@ Paris, nous avons demandé à M. Joseph Bédier , qui a
 succédé à Gaston Paris dans sa chaire du Collège de
 France, de bien vouloir nous donner saleçon d'ouverture,
 sur l'œuvre de Gaston Paris, prononcée le mercredi
-3 février 1904.
 
 JosePH BÉDIER ; — sur l'œuvre de Gaston Paris;
-
-Messieurs,
 
 Gaston Paris me comprendrait, lui qui comprenait tant de
 
 choses dans l'ordre du cœur comme dans l'ordre de l'esprit,
 
-R: ïe #
-11 Joseph Bédier
 1e si je vous disais: « Souffrez que je rompe avec l'usage qui
 ; m'impose de consacrer à mon maître cette leçon d'ouver12 ture. Souffrez que je m'en tienne à ces quelques paroles,
 l simples et vraies: il fut grand, il fut bon; je l'ai ten-
@@ -9170,8 +7826,6 @@ cette chaire, Gaston Paris consacra à Paulin Paris. Il savait,
 ‘4 lui, comment, « continuant l'œuvre de son père, il la modite - fierait » ; il pouvait en marquer à la fois l'importance et les
 | limites ; il pouvait l'analyser et la juger, en critique; je ne
 + puis que méditer sur la sienne, en disciple fervent.
-$f I
-T4
 k Et d'abord, je veux qu'elles soient de lui, les premières
 la paroles que je prononcerai dans cette chaire. Avant de
 + retracer sa biographie, je veux redire les rares passages de
@@ -9188,10 +7842,8 @@ de monument, l'histoire de l'esprit humain. » Cette pensée
 | créait pour lui la sainteté de toute besogne d'érudition. En
 h des vers datés du 20 novembre 1856, qui fut le dixième jour |
 L après son arrivée à l'Université de Bonn, cet écolier de dix4 sept ans déclarait que l'avidité de savoir, la libido sciendi,
-; 352 À
 
 ANT TPE TA A Ja. À va
-GASTON PARIS
 
 serait pour lui religion. Et, dès qu'une vocation héréditaire
 lui eut désigné pour son domaine propre les études romanes,
@@ -9232,7 +7884,6 @@ plume d'un tout jeune homme :
 vention comme sans arrière-pensée ; elle ne cherche qu'en
 | 353 xx.
 
-qu f
 il Joseph Bédier
 
 ia cet objet même les raisons de la sentence qu'elle va rendre
@@ -9271,17 +7922,13 @@ Fi transparaître pendant cette heure. Mais j'ai été contraint
 4, aujourd'hui, comme lui-même l'avait fait pour son père, à
 fl « ne rien dire ici qui ne dût être dit par tout autre à ma
 si place ». Je dirai donc seulement : si la meilleure leçon que
-À 354
 
-GASTON PARIS j
 j'ai apprise de lui est qu'il faut travailler de toute son hon- à
 nêteté intellectuelle, de tout son cœur aussi, selon ce que
 l'on est, selon ce que l'on peut, à chercher la vérité et à en
 répandre le culte, cette leçon, je l'ai bien retenue, et par
 là, par là seulement, mais par là du moins, sa chaire du
 Collège de France ne sera pas diminuée.
-
-JosEPH BÉDIER
 
 Nous proposant de publier ensuite, conformément au
 plan que nous suivons dans ces biographies, un ou plusieurs exemples de notre auteur, il nous fallait, si j'ai
@@ -9295,30 +7942,20 @@ Paris, qui a bien voulu approuver le projet de ce cahier,
 nous a permis d'extraire de l'œuvre de Gaston Paris et
 de reproduire les deux études suivantes :
 
-travaux ;
-
 Le travail que l'on va lire est extrait de la Revue
 historique, tome LIIT, année 1893; il porte, comme on
 le verra, sur le texte même d'où nous est venue la
 légende de la Princesse lointaine.
 
-Gaston Paris ; — Jaufré Rudel ;
-
 Jaufré Rudel est moins connu par les six poésies qu'il
 nous a laissées que par la touchante et romanesque histoire
 que raconte en tête de ces poésies son antique biographe
 provençal. Voici dans sa concise élégance le texte de cette
-histoire :
 
 Jaufres Rudels de Blaia si fo mout gentils hom, princes
 de Blaia, et enamoret se de la comtessa de Tripol ses vezer,
 per lo gran bon qu'el n'auzi dir als pelegrins que vengron
 
-l
-
-\r s ? Le CORAN A TANT
-; - +
-catalogue analytique sommaire
 d'Antiochia, e fetz de lieis mains vers, ab bons sons, ab
 ) paubres motz. E per voluntat de lieis vezer el se crozet,
 e mes se en mar; e pres lo malautia en la nau, e fo condutz a Tripol en un alberc per mort. E fo fait a saber a la
@@ -9327,7 +7964,6 @@ braz. Et el saup qu'ella era la comtessa, si recobret lo
 j vezer e l'auzir el flairar; e lauzet Dieu que l'avia la vida
 sostenguda tro qu'el l'agues vista. Et enaissi el mori entre
 sos braz ; et ella lo fetz a gran honor sepellir en la maison
-del Temple. E pois en aquel dia ella si rendet monga per |
 la dolor que ella ac de la mort de lui. (1) ;
 L'aventure de Jaufré Rudel devait inspirer la poésie, et |
 depuis le temps du premier romantisme jusqu'à nos jours $ |
@@ -9344,9 +7980,7 @@ pour l'époque où florissait notre héros, mais un témoignage
 : contemporain nous en donne une fort précise. Le troubadour
 Marcabrun termine ainsi une pièce composée en 1148 :
 Lo vers el so vuelh enviar ;
-An Jaufre Rudelh oltra mar,
 E vuelh que l'aion li Frances
-Per lor coratges alegrar. (2)
 (1) Cette biographie a été souvent imprimée ; voyez Chabaneau, (
 les Biographies des troubadours (Toulouse, 1885), page 10. Je donne,
 avec quelques très légères variantes, le texte de MM. Paul Meyer L
@@ -9357,8 +7991,6 @@ ment le plus ancien. ; |
 distraction que M. Chabaneau (Biographies, page 10, note 4) attribue
 cet envoi à la pièce bien connue : À la fontana del vergier. Le vers
 qu'il accompagne n'a en lui-même aucun rapport avec la croisade.
-
-JEAN DES BREBIS
 
 Jaufré avait donc pris part à la deuxième croisade,
 dirigée par Louis VII, et où les Français étaient de beaucoup les plus nombreux ; il était déjà connu comme poète,
@@ -9397,10 +8029,6 @@ lorrain, tu ne sais pas lire, — à dire vrai, je n'ai guère eu
 le moyen de m'en assurer, au cours des longues conversations que nous avons ensemble, par les plaines de chaumes
 grisâtres et décolorés, pareils à des cheveux d'aïeule, sous
 
-X} Ë
-
-ie Emile Moselly »
-
 Le l'averse frissonnante des pluies d'automne. — Aussi tu
 
 | prieras le maître de chez nous, de te raconter cette simple
@@ -9419,7 +8047,6 @@ Jean des Brebis;
 
 44 Cette année-là, la fête du Comice agricole devait se célé-
 J ! brer à Sexey-aux-Groseilles et le paisible village était en
-révolution. Ê /
 AUS C'était un grand honneur pour le petit bourg, joliment
 ; situé au bord de la Meuse claire, au bas d'un coteau planté
 É de vignes, parmi les prairies dont le velours tendre s'éten-
@@ -9448,17 +8075,12 @@ certains termes du style administratif.
 localité la réunion du Comice agricole de l'arrondissement
 de Colombey. Il compte sur le bon esprit des habitants,
 
-358 i
-
-;
-JEAN DES BREBIS
 dont il a su maintes fois apprécier l'empressement, pour
 donner à cette solennité toute l'importance qu'elle comporte. En conséquence, lesdits habitants devront enlever
 les fumiers devant lès maisons, parer, par tous les moyens
 qui sont à leur disposition, les édifices publics et privés,
 | pavoiser leurs chaumières, à seule fin que les étrangers de
 passage dans la localité et les autorités compétentes remportent un bon souvenir de l'accueil qui leur aura été fait. »
-* À
 | Debout sur leurs portes basses, qui semblaient trop
 petites pour leur haute stature, les paysans écoutaient en
 | hochant la tête d'un air entendu et connaisseur. Pour sûr
@@ -9479,7 +8101,6 @@ ni des bouquets d'arbres dormaient dans la lumière argentée
 £ notes, joyeuses, arrivaient au bord de la rivière, on eût dit
 bn qu'elles recevaient une force nouvelle, et elles s'en allaient
 fi au loin, portées sur les eaux éclaboussées de soleil, jusqu'aux petits villages blottis dans les tournants de la
-es vallée.
 
 Comme si cette musique d'allégresse eût ragaillardi les
 1e êtres et les choses, le petit village, sortant de sa longue
@@ -9493,7 +8114,6 @@ plus cuivré. Prise d'une sorte de folie, une troupe d'oies,
 
 qui revenaient en jacassant de la mare voisine, partit sou359
 
-SERRE F2 te MS
 l catalogue analytique sommaire
 a dain d'un vol lourd, tandis qu'elles emplissaient la rue du
 À rauque claironnement de leurs voix. Puis elles allèrent
@@ -9514,22 +8134,16 @@ cérémonie qui se préparait était chose d'importance et
 le revenant ;
 la mort du Bouif ;
 le Trompion ;
-Cri-cri ;
 Seizième cahier de la cinquième série, un cahier
 jaune de 1v + 260 pages, bon à tirer du mardi 24 mai
-1904 ; quatre francs
 Textes et documents ; — le congrès de Dresde ; —
-septembre 1903 ;
-Charles Péguy, — avant-propos ;
 
 - Je n'oublie pas que je dois à mon vieux grand cousin, à
 mon ami Pierre Baudouin le philosophe, et à mon ami
 l'historien Pierre Deloire, un compte rendu des congrès où
 
 |
-360 K |
 
-LE CONGRÈS DE DRESDE
 j'ai assisté pendant les années de mon apprentissage ;
 voici que je le leur dois depuis plusieurs années ; d'anciens
 abonnés veulent bien de loin en loin me rappeler ces
@@ -9574,10 +8188,7 @@ p, surlendemain matin nous lisons dans les journaux que les
 un vice-président parlementaire qui aille à la cour en habit
 R de cour; il faut donc que ces innombrables socialistes
 | 367
-XXI
 
-D:
-Fr Charles Péguy
 1 électeurs allemands soient comme trop de socialistes
 à français que nous connaissons, et ne soient pas comme
 35 certains socialistes français, révolutionnaires, que nous
@@ -9599,15 +8210,7 @@ see pays du monde; l'intelligence du texte en est facilitée
 k Le compte rendu offciel allemand du congrès de Dresde
 x forme un épais volume in-octavo de 448 pages très denses ;.
 É gris ; la première page de la couverture porte ce titre :
-f Protokoll
 ueber die Verhandlungen des Parteitages der Sozial--
-£ demokratischen Partei Deutschlands '
-} abgehalten zu Dresden
-vom 13. bis 20. September 1903
-è Preis 55 Pfennig
-3 Berlin 1903
-Verlag : Expedition der Buchhandlung Vorwaerts
-(Th. Glocke in Berlin)
 Le dimanche 14 août prochain doit s'ouvrir, à Amsterdam, le sixième congrès socialiste international; ce sixième M
 congrès socialiste international sera le deuxième de notre .
 connaissance ; le premier, cinquième du nom, et que nos
@@ -9615,8 +8218,6 @@ abonnés n'ont pas oublié, fut ce grand congrès de Paris
 1900, l'un de ceux, le principal de ceux dont je dois le
 } compte rendu ; en attendant ce compte rendu direct, nous200 4e |
 
-D 4 Ba LEUR FAN or ; FRE
-LE CONGRÈS DE DRESDE
 avons eu la bonne fortune de publier de ce cinquième ou
 premier congrès un compte rendu qui avait le double
 avantage d'être sténographique et de n'être pas officiel: ù
@@ -9656,11 +8257,6 @@ dois ajouter qu'en dehors des collections complètes il ne
 # par eux-mêmes et par nos cahiers, ce que sont les congrès
 K français et ce qu'est devenu le socialisme français ; il est
 | 363
-à
-
-N°
-
-4 Gaston Raphaël
 
 À bon, au moment où va s'ouvrir le deuxième grand congrès
 
@@ -9697,18 +8293,13 @@ Nous avons mis en sept, c'est-à-dire en plus petits carac- )
 tères, les parties sténographiques traduites sténographi- F
 quement; nous avons mis en huit, c'est-à-dire en plus gros
 caractères, les parties sténographiques traduites analytiquement ; j'ai, sur le texte de Raphaël, établi une {able ana- ÿ
-lyrtique sommaire. é
 
-CHARLES PÉGUY 4
 le congrès de Dresde, — édition Raphaël; ‘
 Réunion préparatoire tenue le dimanche 13 septembre 4
 1903 à sept heures du soir; î
 L'ordre du jour du congrès est fixé définitivement
 ainsi; ordre du jour;
-364 x
 
-‘à . k
-; LE CONGRÈS DE DRESDE
 | Première journée. — Lundi 14 septembre. — Séance du
 | matin ;
 î I. — Rapport du comité directeur; a) Généralités;
@@ -9728,7 +8319,6 @@ Kautsky ; sur l'article de Bernhard, Morale de parti; la
 nù journaux bourgeois; Stadthagen; contre la Zukunft;
 1 pour la Neue Zeit; contre la collaboration; Victor
 L Adler; une rectification de détail sur Liebknecht:
-‘4 Deuxième journée. — Mardi 15 septembre. — Séance
 k du matin;
 4 Vérification des mandats; collaboration des cama-
 ÿ rades aux organes bourgeois; Ulrich; contre la collaLA boration; contre l'abus des intellectuels ; Quarck ;
@@ -9739,15 +8329,8 @@ M contre la résolution du comité; ne pas diviser les cama-
 de hommes de confiance;
 # Séance de l'après-midi;
 EU { Grand discours de Bebel ; opération chirurgicale iné-
-fe vitable; indispensable; question non secondaire; grave;
-h 365
-FEU
 
 TT | SR ES Vo 2 ne es 0
-ps FAT
-‘à Ç
-D
-4 Gaston Raphaël
 n, formule de résolution non parfaite; dans la pratique, il
 48 faut examiner chaque cas; distinguer la Berliner MorK genpost de la Zukunft; contre la Zukunft; contre Har-
 < : den; souvenirs personnels; boutades; histoire apoloEp gétique de Mehring ; souvenirs; Braun et Mehring; et
@@ -9771,7 +8354,6 @@ comme il veut; objurgations; il faut voter la rédaction }
 du comité; enthousiasmes; Michels; où se séparent la à
 | seience et la politique; conversion des intellectuels ; que À
 la défiance ne soit pas le premier de nos principes; 1
-Troisième journée. — Mercredi 15 septembre. —
 Séance du matin; É
 Ledebour; Werner; Heine; un mot, personnel, au h
 camarade Hoffmann; votera contre la résolution du +
@@ -9783,14 +8365,10 @@ son histoire apologétique; pasteur des ouvriers; dis- Ph
 cours et brochure comment il devint socialiste; vi- 4
 gueurs; nulle propagande religieuse dans le parti; #
 : coopératives de consommation; gravités; péroraison; Fi
-366 . #
-‘4
 
-10 ; LE CONGRÈS DE DRESDE
 à Hoffmann; Seger ; Goehre a fait de la propagande reli- x
 "4 gieuse; ce congrès augmentera notre dégoût des intel-
 É lectuels; Braun ; explications personnelles; Bebel: l'af4 faire Mehring; pourquoi introduit Mehring à la Neue
-“4 Zeit ; agitation; dialogue Singer; camarades peinés édi- |
 % tion œuvres complètes de Marx confiée à Mehring;
 Mehring au pilori; conclusion ; les différends sont dans
 ; l'essentiel effacés ; Singer; Krueger ; Katzenstein ; contre
@@ -9810,17 +8388,9 @@ clos; Eisner; demande qu'on travaille; Auer; person4 nellement nulle action dans
 4 très prudents votes sur la tactique du parti qui enga-
 | gent l'avenir; explication personnelle; Gerisch; expliA cations personnelles: Heine; Bebel à Kuessnacht; hoj nore Bebel; interruption Stadthagen; Stadthagen ;
 “4 Heine ; e) question polonaise; Gerisch, nouveau rappor4 teur; pour entente avec l'organisation spéciale polo-
-‘à naise, négociations échoué; propositions faites; presse;
-‘4 candidatures au Reichstag ; Winter; procès-verbal ;
-ù. erreur; malentendu; cireulaire confidentielle aux cama-
 €. rades de la Haute-Silésie; dernière conférence; second
 Re procès-verbal; questions de nationalité; Haenisch; re1% vendications polonaises aussi légitimes que toutes
-4 autres; Katzenstein; deux observations; autonomies
 ; 4 locales et nationales; question des langues; Ledebour;
-
-*
-
-à Gaston Raphaël
 
 4 la camarade Rosa Luxembourg; ennemie déclarée de
 
@@ -9830,29 +8400,21 @@ $ l'organisation polonaise; mauvaise conseillère du co-
 Gazetta Ludowa; Rosa Luxembourg ; candidats polomais contre les candidats socialistes; les Polonais n'ont
 
 ' pas d'autres véritables défenseurs que les socialistes;
-question nationale au premier plan; conception maté-
 
 + rialiste de l'histoire; incidents; personnalités ; Ledebour; Loebe; Pfannkuch, nouveau rapporteur; con-
 
-; clusion ; scrutin ; résolution Luxembourg adoptée ;
-
-Quatrième journée. — Jeudi 17 septembre. — Séance.
 du matin ; 7
 
 Rapport sur l'activité parlementaire; le rapporteur
 Stadthagen; parlementarisme; nouveaux traités de
 commerce ; tarif; questions ouvrières; droit de coalition; journée de huit heures; service d'un an; armée
 de milices; justice et code militaires; mode de vote;
-autres motions; plusieurs orateurs; Stadthagen ;
 
 Le congrès international d'Amsterdam; Singer; la
 question du droit de vote pour les femmes; assurances
 ouvrières; Clara Zetkin; suffrages des femmes; parmi
 les autres réformes électorales et au même titre;
-Molkenbuhr ; assurances ouvrières ; protection ouvrière;
 le camarade Millerand; Braun ; féministes et libéraux ;
-Niemeyer; Clara Zetkin; Singer; scrutins; Kaden ;
-Peuss ;
 
 Séance de l'après-midi;
 Singer ;les tarifs usuraires; obstruction au Reichstag ;
@@ -9861,15 +8423,7 @@ gains électoraux du parti, voix, députés; partis de ù
 droite unis; électeurs non socialistes ont voté pour can- ;
 didats socialistes; pourquoi; la politique impériale;
 intérieure, extérieure; la situation financière; nouvelles &
-dépenses, armée, marine, pensions aux invalides,
 dettes; soutiens de l'État déjà minés; devons-nous
-5 AR ï
-V3
-
-mu! 4 s 4 .
-mr - A ‘
-À
-À LE CONGRÈS DE DRESDE
 
 changer notre tactique; tactique et principes; tactique
 È victorieuse; tactique suffisante; l'action parlementaire;
@@ -9907,12 +8461,7 @@ EL Mayence; une union des chemins de fer du Sud; le revije sionnisme se distingu
 ER droits électoraux en Bavière et les ouvriers catholiques;
 Ÿ plus nous serons modestes, moins nous obtiendrons;
 À on ne peut sauter une phase, mais on peut l'abréger;
-Le 01
-k 369 est
 
-AU . DATI b
-10 Gaston Raphaël
-D |
 Ne force intellectuelle du prolétariat; syndicats, conseils
 | ‘2e de prud'hommes, parlements; boutades; revisionnistes
 Re. grands hommes d'État; au milieu le marais; reviF ‘4 sionnistes soutenus par nos adversaires; la Hilfe de
@@ -9923,7 +8472,6 @@ Ne aurait un bel État-Major, mais l'armée derrière lui
 fi: serait fort petite; péroraison; nous serons obligés plus
 4 qu'auparavant de nous adresser au parti afin qu'il
 | 10 décide de la tactique du groupe; approbation enthouA ÿ siaste et prolongée;
-th Cinquième journée. — Vendredi 18 septembre. — ,
 He: Séance du matin;
 i 0 Grand discours de Vollmar ; qui répond à Bebel; non |
 LA è aussi grand talent d'orateur; appel non au sentiment et
@@ -9945,15 +8493,11 @@ HE l'organisation sociale est plus importante; conception
 ne sont à leur aise que lorsqu'ils voient le parti dans
 1 un danger, afin de pouvoir l'en sauver; ce que serait
 { une histoire de la tactique; une histoire de la décaFi dence du parti; hilarités; historique; Liebknecht et la |
-ï participation aux débats parlementaires; participation À
 | 370 c ,
-Î k
 
-LE CONGRÈS DE DRESDE
 “à la réunion des anciens; la lettre de Marx sur le programme d'union de Gotha; les bureaux de placement
 mixtes; les syndicats et l'unification des tarifs ; les lois
 d'assurance et de protection ouvrière; participation
-aux élections municipales ; berlinoises; participation
 aux élections pour les Landtags; en Bavière en 1886;
 à Cologne en 1893; à Mayence en 1900; depuis; évolution non terminée ; ne s'achèvera jamais; prudents; le
 discours de Munich; variations des opinions de Bebel
@@ -9971,7 +8515,6 @@ diverses qualités ; duché de Bade; Munich; vin et bière;
 le Sud économiquement arriéré; tout le monde ne
 peut pas être Prussien; congrès de Munich; élections
 | au Landtag bavarois; les je de Bebel; c'est ainsi que le
-lord protecteur Cromwell a parlé au Long Parlement;
 au congrès d'Erfurt; après le congrès de Cologne ; Bebel
 plus souvent dans la minorité qu'autrefois; le parti est
 devenu trop grand; n'est-ce pas la masse qui élit les
@@ -9985,11 +8528,6 @@ K allemand devenu parti; laisserait plutôt périr le monde
 : demander dans le parti la même liberté de pensée que
 nous réclamons de l'État »; parlera contre interrup-
 , teurs; Singer; Vollmar; Bernstein et Kautsky; discours
-; 371
-à
-À
-
-4 Gaston Raphaël
 
 y ; de Munich; leçons de catéchisme; liberté de critique;
 
@@ -10014,10 +8552,7 @@ F sition; atteindre certains individus; union et unité
 
 dans le parti soient plus grandes que jamais: péro-
 
-4 raison; moyens adaptés aux milieux; repousser autori-
-
 4 taire; contre l'ennemi pour le combat commun; Lede- -
-2 bour; Singer ;
 Bis Séance de l'après-midi ;
 Kolb; Jaeckh ; revisionnistes; vice-présidence; tac4 ( tique, en tous pays; catastrophes ou évolution; conde quérir ; contre l'amendement ; réponse à Bebel; Allemands du Sud ; ouvriers parvenus; c'est Bebel qui a
 perdu le contact avec les masses ; les réunions ; syndicats
@@ -10028,22 +8563,15 @@ EA liberté d'opinion ; Meist; revisionnisme et sentiment
 k : des masses; liberté d'opinion ; Bebel ; un chef; Kautsky ;
 | péroraison ; montrer la porte aux éléments nouveaux;
 
-: Katzsenstein ; débats théoriques réconfortants ; imites à À
 la liberté, mais libre à l'intérieur de ces limites; évo- |
 lution et révolution, intelligence prolétarienne ; syn- |
 ü dicats, coopératives, institutions de culture des ou- 3
-< vriers; grève générale; reviser programme; travail à
 pratique ; la plupart des camarades ne veulent plus se :
-rattacher à aucune aile ; intellectuels ; Timm; Vollmar à
 F à Munich; Bebel intermittent; la vice-présidence ; É
 
 personnalités ; exemples de participation à des céré- Ë
-ÿ monies officielles ; réceptions bourgeoises ; non obliga- pi.
-372 ; $
 
-? LE CONGRÈS DE DRESDE
 toires ; Bebel démagogue; Kautsky ne bouge pas de.
-Friedenau; Bebel orateur ; dictateur génial ; Bernstein ;
 incident Auer; agitation; chef et démocratie ; Auer ;
 deux affaires personnelles ; une lettre de Bebel ; éloges
 des adversaires; Mehring n'est pas en possession de
@@ -10055,10 +8583,7 @@ deux anciens exemples d'évolution; en 1874-75 une
 lettre de Bebel; élections au Landtag prussien ;
 Liebknecht; — observations pour fait personnel;
 Hoffmann ; incident Auer; Bebel; Badois et lac de
-Constance ; Fischer ; incident Auer; Hoffmann; Taeterow; Singer ; Fischer ; Liepmann ; Stadthagen ; Bebel;
-Hoffmann ; Fischer; Stadthagen ; Auer ; Fischer ;
 | Singer; une déclaration apologétique de Mebring ;
-Sixième journée. — Samedi 19 septembre. — Séance
 du matin ;
 
 Singer; une lettre du camarade Borchardt; il con-
@@ -10080,19 +8605,13 @@ Auer ; contre entrée d'un socialiste dans un ministère
 ' bourgeois ; un cas Millerand n'est pas possible chez
 k + nous ; nul espoir d'une grande gauche libérale ; former
 N avec les partis de gauche une majorité de gouvernement;
-Û
 
-4e , VS OPEL NA CU EYE
-h /
-sp Gaston Raphaël
-l
 = Bernstein; un parti démocrate-socialiste de réformes;
 “$ les ouvriers anglais ; Broadhurst et Burt; revisionnisme
 ; allemand n'en est qu'à ses débuts; antagonismes de
 ‘4 classe; la politique coloniale; en montrant que la
 | masse nous approuve, nous ferons passer aux revisionJ nistes le goût de la revision; péroraison historique ;
 V grand discours de Bernstein; discussion théorique;
-revisionnisme ; défense personnelle; action personnelle;
 | le socialisme considère la forme de gouvernement
 ; À comme secondaire, mais il est un parti démocratique
 £ donc républicains la question de la vice-présidence ;
@@ -10114,7 +8633,6 @@ de pensée ; principes politiques ; évolution ; Millerand ; Ÿ
 les ouvriers anglais; opinion de Hyndman ; Burt et ]
 ; ; Broadhurst; la résolution de Hanovre; la politique colo- Ë
 k niale; la lutte contre le libéralisme; résolution d'hu- }
-meur ; péroraison ; Singer ; incident Auer ; |
 Séance du soir; ;
 Lettre de quatre camarades polonais regrettant le ÿ
 vote de la motion Luxembourg; Molkenbuhr; article 1
@@ -10123,17 +8641,11 @@ mentaire; le parti est plus uni que jamais; aller à la 6
 cour; un précédent; faire partie de la majorité gouver- A
 nementale; Singer; une déclaration de Rosa Luxem- &
 bourg; Bebel; incident Eisner; bureaux de placement à
-nf. ' k #
-374 F
-d
 
 | LE CONGRÈS DE DRESDE
-mixtes ; autres explications personnelles ; Heine ; répond
 à Kautsky; les revisionnistes sont libres entre eux et
 envers Bernstein; — scrutins; texte de la résolution
 ; votée; — Heine; incident de Gerlach; explications personnelles; Michels; — V. — Fête du Premier Mai;
-Pfannkuch; Friedeberg; Weidner ;
-Septième journée. — Dimanche 20 septembre. — Séance
 du matin ;
 | Premier Mai; Eitzerodt ; Krueger; Bushold; Gewekhr ;
 | Loebe; — VII.— Résolutions touchant le programme et
@@ -10147,16 +8659,11 @@ les masses conservent leur point de vue révolutionnaire
 1 de la lutte de classe; c'est ce qu'a montré notre résoL lution, que tout le monde devra suivre et respecter;
 nous pouvons être contents du résultat de ce congrès;
 4 que la volonté du parti se soit aussi
-L
-i ANNEXES ;
 L Motions; texte des 144 motions; rapport du comité direc- 1
-; teur; tactique; organisation; propagande; presse; Meue
 k Welt, journaux de mars et de mai; publications pour la
 4 jeunesse; agenda ouvrier ; annonces; brochures et feuilles
 …_ volantes; fête du Premier Mai; programme; parlement;
-congrès; résolutions; motions parvenues ultérieurement
 | - ou présentées pendant les débats;
-5 députés au Reichstag ;
 (3 situation financière des journaux et revues ;
 ë situation de la caisse du parti;
 fi librairie du Vorwaerts; les comptes rendus des Congrès
@@ -10165,11 +8672,7 @@ FE comptes rendus des congrès internationaux; lieux et dates;
 ÿ énoncé très sommaire; prix; ï
 3 375
 
-à François Porché
-
 x dans le même cahier;
-
-5 table analytique sommaire, — Études Socialistes, —
 
 : paraissant tous les deux mois, G. Jacques éditeur; pre-
 
@@ -10181,20 +8684,13 @@ de M. le chanoine Dissard, portant demande en recti-
 
 s fication au courrier de Challaye, La France vue de
 
-À Laval ;
-
-“ Couverture ;
-& ; G. Jacques, éditeur, Études Socialistes: annonce:
 | administration; notre collaborateur M. Sorel était
 \ un des principaux collaborateurs des Études SociaK listes ;
-é
-1% , . .
 ! conditions auxquelles nous publions de la copie ;
 + Dix-septième cahier de la cinquième série, un cahier
 : blanc de 144 pages, bon à tirer du mardi 7, fini
 à d'imprimer du jeudi 9 juin 1904; deux francs
 { FRANÇOIS PORCHÉ; — à chaque jour; — poèmes;
-; dédié à Lucie ;
 Le Visiteur du jardin ;
 i Visiteur du jardin, prends garde que les roses
 à Ne s'effeuillent au cri des grilles longtemps closes. J
@@ -10203,10 +8699,6 @@ i Visiteur du jardin, prends garde que les roses
 Que des abeilles dans sa gueule ont fait leur nid. É
 à Vole, rends tes talons plus légers que les astres |
 k Qui glissent dans les nuits chaudes, silencieux...
-4 ue À
-376 ; j
-
-A CHAQUE JOUR
 
 Ami, nos grands parents vécurent là très vieux.
 C'étaient de bonnes gens dont, en nous, la mémoire
@@ -10238,7 +8730,6 @@ J'entends crier l'osier fléchissant des corbeilles…
 O charme du passé qui s'évade le soir,
 Et rôde, et fait craquer les feuilles des allées!
 Un caillou sous des pas a roulé; l'arrosoir
-Retentit invisible aux citernes dallées ;
 Le jet d'eau se réveille ; une voix, qu'on dirait
 
 : Du fond des temps venue, entonne une ariette,
@@ -10251,11 +8742,6 @@ Ont saigné, rougissant l'herbe dure que broute
 
 | 377
 
-Re
-
-x Ke > F
-
-: , François Porché
 3 L'âne veuf de Silène errant et détrôné,
 4 Siton cœur, fastueux et misérable, est né
 ri Poète, apte à souffrir du mal visionnaire,
@@ -10274,9 +8760,7 @@ EX Caresse, au cœur, d'un vieux soleil de Saint-Martin; $
 à Vécue, et qui n'est plus, au bord du ciel lointain, 1
 | Comme Paris, le soir, vu des tristes banlieues, 4
 M Qu'un peu d'or qui palpite au fond des cendres bleues.
-3 François Porché ;
 L enfance;
-à fumées ; ;
 | imagerie ;
 à G. de Soria 1
 4 : Province, soleil d'août, maisons blanches et mortes, 1
@@ -10291,12 +8775,8 @@ l Province, langueur des cloches dominicales. 3
 Derrière les rideaux d'une croisée, on voit
 Des jeunes filles souriant, le buste droit
 f Sur leur chaise... O récréations monacales ! j {
-;
-378 À
 
 D AE 7 ee un
-” 1 Li ‘ 4 Le
-A CHAQUE JOUR
 Ainsi vous souriiez, en nos après-midis, |
 Lorsque j'avais douze ans, ma cousine, et vous seize,
 Et que, la joue en feu, plein d'étrange malaise, ;
@@ -10310,7 +8790,6 @@ Des vols claquants de fouets, amour, hasard et guerre,
 Et les vitres tremblaient de tout leur corps de verre,
 Au vacarme roulant des coches vers Paris.
 |
-;
 Maintenant, poussière tombée et vie éteinte.
 ‘ Morte l'auberge où les postillons haut bottés,
 1 Prêts à partir, jouaient un coup de vin aux dés,
@@ -10319,53 +8798,22 @@ Fini le drame des grand routes, épuisé
 L Le merveilleux trésor de belle imagerie,,
 À Et la Province aux vitres pleure, endolorie.…..
 +  Puissent ces vers aller jusqu'à son cœur brisé.
-4 François Porché
-+4 l'Autre;
-‘4
-EX:
 | JE
-f
 de IT;
-‘4 I] ;
 1 derrière la porte; F
-(a volets tirés;
 4 pose ta chère tête ;
-à fugitifs ;
-départ;
-‘à promenades ;
-À 379
 
 11 ARRETE TRE RE nn fe SNQa DEA ee Li NS Bite LEUR ; $
-DUR UE: 17 ETS RTE EAN A ARR CARO SNL): se =
-HE S PA ER TE MA A DES REMOTE OVNI Fe
-‘LPS catalogue analytique sommaire
-CO : = er Ce DM ET Le RE 23
 L 49 RÉ ere y FOIE NRNERENS E
 LÉ AERS à madame Simone Le Bargy HR AG LE 3
-Bon. à M. Pierre Quillard; 14
 SEE des soirs; ï
-RASE à Alfred Porché; ad
-JS Il; "à
-HÉROS PAUL ALPHANDERY ; l'ENS
-L'ASAUA 4
-PURE 5 TE fr
-SR PRES après-midi s. à
 D Ne notre amitié; À
-HYERES revenir; à 4
 RS A aube de Juillet; J
 LS APR à Jérôme et Jean Tharaud; E.
 For est dans le soir; 1 508
-LFRRNE errants; 1e
-ae s à Henry Goussé; 4
-dE banlieue; ” 4
 # SN Le Le F À
-VE : I]; Tr
 Re pour Verlaine; à & |
-ne! 4 FR
 ae l; ua
-WE | 4
-
-PROLOGUE D''UNE RÉVOLUTION :
 
 Dix-huitième cahier, cahier de Juin de la cinquième
 série, un cahier jaune de xvi+288 pages, bon à tirer
@@ -10410,12 +8858,10 @@ Ménard, mais comme un texte afférent aux journées de
 :4 février et surtout aux journées de juin 1848, comme un
 document par lequel nous contribuons à l'histoire de la i
 
-Charles Péguy
 double revolution de 1848, comme un témoignage du temps,
 L un monument de la perpétuelle utilisation du peuple par
 ÿ la bourgeoisie, de la perpétuelle déception du peuple par
 ; \ la bourgeoisie, du perpétuel massacre du peuple par la
-bourgeoisie.
 
 É Cette réimpression d'un livre témoin est la réimpression
 d'un témoignage, non d'une œuvre.
@@ -10425,7 +8871,6 @@ d'un témoignage, non d'une œuvre.
 Ê Révolution est aujourd'hui et depuis longtemps complète- |
 ment épuisé; l'exemplaire sur lequel nous avons composé
 a été prêté à Buré par M. Maxime Vuillaume, aujourd'hui
-rédacteur au Radical.
 
 16 M. Vuillaume a connu un deuxième exemplaire de cette,
 
@@ -10467,10 +8912,7 @@ présente; nous avons suivi le texte un peu servilement
 
 | 382 , |
 
-{ * k 4
-PROLOGUE D'UNE RÉVOLUTION
 peut-être, un peu puérilement ; mais en matière de réimpression il vaut mieux pécher par excès de fidélité que par
-excès d'indépendance.
 
 Sur Louis Ménard et son œuvre on trouvera des renseignements circonstanciés dans Philippe Berthelot, Louis
 Ménard et son œuvre, étude précédée du portrait et d'un F
@@ -10480,7 +8922,6 @@ l'œuvre, pages choisies, poésie, variétés littéraires, dialogues
 philosophiques, rêveries historiques, symbolique des religions, problèmes sociaux, état actuel des croyances, chez
 
 . Juven, trois franes cinquante, en vente à la librairie des
-cahiers.
 
 Si nous présentons ce Prologue d'une Révolution comme
 un témoignage de Louis Ménard historien, non comme une
@@ -10506,15 +8947,11 @@ Heureuse et juste liberté de travail ; parce que ce cahier
 | est un cahier de juin 1848, et non pas encore un cahier de
 Louis Ménard, la notice de Halévy est brève ; mais parce
 
-:
 |
 
-Daniel Haléoy
 è qu'elle est une notice biographique de Louis Ménard,
 & elle marche un peu contre l'avertissement que j'ai fait pour
 le cahier. :
-
-Daniel Halévy ; — Louis Ménard;
 
 Chacun sait que Louis Ménard mérite une renommée qu'il
 n'a pas, et le respecte infiniment sans cesser de l'ignorer.
@@ -10537,8 +8974,6 @@ mythes, divinateur de tous les mystères ; qu'il célébra les
 ; rites de Vénus et révéra dévotement la chaste sœur de cette |
 déesse, Marie, vierge et mère de Jésus.
 
-k
-
 Fleur du paradis, Vierge immaculée, .
 
 } Puisque ton chaste sein conçut le dernier Dieu, 4
@@ -10559,17 +8994,11 @@ niosité l'avait bientôt mené à d'importantes trouvailles. Il )
 avait découvert le collodion, et un puissant explosif, la
 nitro-mannite. Mais la justice lui parut plus désirable que î
 
-{ 384 !
-
-r
-
 | LOUIS MÉNARD
 le rythme d'une phrase ou le secret d'une substance, et la
 Révolution le prit tout entier. Assidu au club de Blanqui,
 
 4 il préconisait l'action la plus rapide et la plus révolu-
-
-; tionnaire. 4
 
 Il assista aux batailles de juin, et eut le rare courage de
 
@@ -10581,11 +9010,9 @@ La résolution était courageuse, car il s'était fait dans
 l'opinion lassée une sorte d'accord pour affaiblir, voiler,
 excuser ou se dissimuler entre soi la réalité de la catastrophe. Louis Ménard écrivitle Prologue d'une Révolution,
 qui reste un des plus forts témoignages sur les journées de
-Juin.
 
 Poursuivi, Louis Ménard s'en réjouit et rassembla ses
 preuves pour un débat public. Mais les magistrats refusèrent de connaître ces preuves et le condamnèrent sans
-débats.
 
 Il dut quitter la France, traîna trois années d'exil, et
 revint brisé par cette vie qu'il avait menée. La pièce intitulée Cremutius Cordus, datée de 1852, est une des plus
@@ -10601,23 +9028,15 @@ Ce n'était pas l'art, l'amour, la richesse,
 C'était la justice; et je n'y crois plus.
 Mais je suis bien las de ces tyrannies
 Qu'adore en tremblant le monde à genoux:
-Peuples énervés, races accroupies,
 Nous léchons les pieds qui marchent sur nous,
 Le présent est plein d'odieuses choses,
 L'avenir est morne et désespéré :
 Si l'on peut choisir ses métempsycoses,
 Ce n'est pas ici que je renaitrai.
 
-à 385
-
-XXII
-
-A. 3 4 l'E re EI ET ler y f 2
 #2 ï MAL
 # Daniel Haléey
-É e
 18 Quand la mort, brisant la dernière fibre,
-DS Au limon natal viendra m'arracher,
 Ÿ S'il est quelque part un astre encor libre,
 6 Là-haut, dans l'éther, je l'irai chercher.
 ke Louis Ménard avait trente années d'âge, et toute sa vie
@@ -10631,7 +9050,6 @@ ke Louis Ménard avait trente années d'âge, et toute sa vie
 à sont qu'éléments et rouages, la notion d'un monde discon-,
 $ tinu où se heurtent et se concertent des forces indépen4 dantes. Cette idée porte loin. Louis Ménard la conçoit,
 3 d'autres la développeront, un Renouvier, un William
-ee James.
 ; Louis Ménard écrivit peu. La joie, qui est le ressort des
 | grandes productions, lui manqua. Il parla de la Grèce même
 avec un accent de tristesse. Elle lui apparut comme une
@@ -10651,7 +9069,6 @@ ne peuvent plus donner à l'idéal une forme nouvelle, peuvent du moins comparer
 au passé. La vieillesse du monde serait trop triste, s'il ne u
 restait aux races fatiguées la consolation suprême du souvenir. Quand le présent n'a plus d'espérances, l'avenir plus M
 
-PR LOUIS MÉNARD ,
 __ de promesses, la société des morts vaut mieux que celle ‘
 _ des vivants. » + A
 F Que ce langage est mélancolique, et, malgré les appa__ rences de la profondeur et de la sérénité, comme il est is
@@ -10683,11 +9100,7 @@ anciens massacres, si l'on n'essaie pas de se représenter la
 1 présent ; dans une ville moderne on se représenterait plus
 …_ facilement la ville plus moderne encore, qu'on ne se repré-
 sente la ville ancienn®; on se représente plus facilement
-L - 387
 
-à
-Louis Ménard
-‘1
 ) un pâté de maisons coupé par une avenue non ouverte
 DNS encore que l'on ne se représente tout un quartier plein non
 ; fendu encore par le boulevard Saint-Germain, le boulevard
@@ -10706,7 +9119,6 @@ es qu'on lira au cours du texte, à restituer des aspects topo-
 ! but d'améliorer profondément le
 sort du peuple n'est qu'un crime
 remplaçant un autre crime.
-1 MAXIMILIEN ROBESPIERRE
 
 Paris; au Bureau du Peuple; 3, rue Coq-Héron;
 | 1849;
@@ -10721,12 +9133,8 @@ bureaux de la Réforme. :
 Journée du 22 février. — Rassemblements populaires. — |
 | Préparatifs du pouvoir. — Hésitation des troupes et de .
 la garde nationale. — Premières barricades. l
-CHAPITRE Il. |
 Journée du 23. — Neutralité de la garde nationale. — Progrès de l'Insurrection. — Le peuple crie partout : Vive la
 Ligne ! il évite une lutte générale. ;
-388 ‘
-
-PROLOGUE D'UNE RÉVOLUTION
 
 Séance de la chambre. — Ministère Molé. — Joie de la bourgeoisie. — Pétition du comité électoral démocratique. —
 Le peuple veut compléter sa victoire.
@@ -10740,8 +9148,6 @@ roi. — Sa fuite.
 Combat du Château-d'Eau. — Prise des Tuileries. — Probité
 du Peuple. 4
 
-CHAPITRE II.
-
 Efforts suprêmes de la royauté. — La duchesse d'Orléans
 à la chambre. — Dupin parle en faveur de la régence. —
 Marie et Crémieux demandent un gouvernement provisoire. — Discours d'Odilon Barrot. — Impuissance de
@@ -10750,8 +9156,6 @@ l'opposition.
 Envahissement de la chambre. — Discours de Ledru-Rollin
 contre la régence. — Discours de Lamartine. — Essai de
 formation d'un gouvernement provisoire.
-
-CHAPITRE IV.
 
 Première proclamation. — Distribution des Ministères. —
 Le Peuple impose la République au Gouvernement provisoire.
@@ -10763,21 +9167,17 @@ Création de la garde mobile. — Proscription des emblêmes
 républicains. — Clémence du Peuple. — Abolition de
 l'échafaud politique.
 
-CHAPITRE V.
-
 La curée des places. — Inquiétude du Peuple. — Proclamation socialiste dictée au Gouvernement provisoire. — La
 question sociale posée par le Peuple à l'Hôtel-de-Ville. —
 Création de la commission du Luxembourg. — Ses services. — Son premier décret.
 
 Manœuvres du Gouvernement contre les journaux. —
 
-389 XXI.
 1 3
 
 | Louis Ménard
 no Développement de la presse républicaine. — Ouverture
 des clubs. — Initiation du Peuple à la vie démocratique.
-k CHAPITRE VI.
 f Établissement de la République dans les départements. —
 j Les Commissaires de Ledru-Rollin.
 À La circulaire de Lamartine. — Mouvement général des
@@ -10790,15 +9190,11 @@ FA Indécision du Gouvernement. — Fausses mesures finan-
 
 La circulaire de Ledru-Rollin. — Conspiration des bonnets
 
-: à poil.
-CHAPITRE VII.
-
 Journée du 17 mars. — Marche du Peuple vers l''Hôtel-de-
 
 ; Ville. — Conférence des délégués du Peuple avec le Gouvernement provisoire. — Lamartine promet l'ajourne-
 
 > ment des élections et l'éloignement de l'armée. — Le
-Peuple se retire.
 
 4 Le Gouvernement provisoire écarte l'influence de Blanqui,
 
@@ -10806,7 +9202,6 @@ Peuple se retire.
 
 Intrigues de la réaction dans les provinces. — Torpeur des
 ouvriers au moment des élections. — Centralisation des
-clubs. ‘
 
 | CHAPITRE VIIL.
 
@@ -10817,15 +9212,9 @@ ouvriers reçus par Louis Blanc à l'Hôtel-de-Ville.
 
 Menace d'assassinat contre Cabet. — Nouvelles parades de
 la garde nationale. — Rappel de l'armée. — Toute-puissance de la réaction. — Ses manœuvres électorales. — Le
-suffrage universel faussé partout. 1
 
 Troubles en province à l'occasion des élections. — Victoire ;
 pacifique du peuple de Limoges. — Massacres de Rouen.
-
-390 k
-
-PROLOGUE D'UNE RÉVOLUTION
-CHAPITRE IX.
 
 Réunion de l'Assemblée nationale. — Acclamation una-
 
@@ -10836,8 +9225,6 @@ Protestation de Barbès.
 Création d'une commission exécutive. — Exclusion des
 socialistes. — Précautions prises par l'Assemblée contre
 le Peuple. — Impuissance de la Montagne.
-
-CHAPITRE X.
 
 Défaite générale de la révolution en Europe. — Massacre
 des Insurgés Polonais. — Huber organise une manifestation en faveur de la Pologne.
@@ -10851,8 +9238,6 @@ Efforts de Louis Blanc pour contenir le Peuple. — Raspail
 lit une pétition en faveur de la Pologne. — Barbès engage
 l'Assemblée à délibérer et le Peuple à se retirer. :
 
-CHAPITRE XI. %
-
 Blanqui demande au nom du Peuple le rétablissement de la
 Pologne, une enquête sur les massacres de Rouen et des
 lois en faveur du travail. — Ledru-Rollin promet satisfaction au Peuple. — Les délégués des clubs cherchent à
@@ -10861,35 +9246,27 @@ cesser le rappel. — Derniers efforts de Barbès et de Louis
 Blanc pour faire sortir le Peuple. — Huber prononce la
 
 dissolution de l'Assemblée nationale.
-CHAPITRE XII.
 
 . Les Représentants quittent la salle des séances. — On pro-
 | pose un gouvernement provisoire. — Barbès et Albert
 3 sont entraînés à l'Hôtel-de-Ville par le Peuple. — La .
 £ garde nationale ne leur oppose aucun obstacle.
 
-* 391
-Fe
-
 #f < ñ 1 PSS ee SEP EN UNS
-s Louis Ménard
 4 L'Hôtel-de-Ville est envahi par la garde nationale. —
 L'EGTR Barbès et Albert sont trainés en prison.
 É: Les Représentants rentrent à l'Assemblée, — Tentatives
 “ d'assassinat contre Courtais et Louis Blanc. — Louis
 : Blanc à la tribune. — Clameurs des Représentants. —
 ; L'Assemblée essaie en vain de délibérer.
-CHAPITRE XI.
 ui Arrestation de Sobrier. — Pillage de sa maison et de celle
 | de Cabet. — Quatre cents arrestations. — Les chefs de la
 | démocratie enfermés à Vincennes. — Fête de la Concorde
 ÿ _et de la Fraternité. — Fureur contre les clubs. — Les
 " gardes nationaux tirent les uns sur les autres au passage
-4 Molière. 7
 La Commission exécutive se met aux ordres de la réaction.
 — Ses insinuations contre Caussidière. — Rapport contre
 | Louis Blanc.
-CHAPITRE XIV.
 : Loi contre les attroupements. — Nouvelles élections. —
 Importance donnée à M. Louis Bonaparte par les mala-
 / dresses de la Commission exécutive.
@@ -10900,16 +9277,11 @@ k Mauvaise organisation des ateliers nationaux. — Attaques
 continuelles de lAssemblée contre les ouvriers. — La
 Commission exécutive, par une mesure violente, donne
 à le signal de l'insurrection.
-CHAPITRE XV.
 Conférence entre Marie et les délégués des ateliers natio- 4
 naux. — Préparatifs de la Commission exécutive. —
 Résistance de Cavaignac. — Ressources du pouvoir.
 Journée du 93 juin. — Étendue de l'insurrection. — Modéra- J
 tion du Peuple. — Premiers combats à la porte SaintDenis, au faubourg Poissonnière, et aux abords de la k
-Cité.
-
-PROLOGUE D'UNE RÉVOLUTION
-CHAPITRE XVI.
 
 Journée du 24 juin. — Proclamation de l'état de siége et de
 la dictature militaire, — Suppression des journaux.
@@ -10919,8 +9291,6 @@ insurgés. — Calomnies répandues contre eux. — Acharnement de leurs adversa
 
 Attaque et prise du Panthéon. — Prisonniers fusillés au
 Luxembourg, etc. — Prise de la place Maubert. — Prisonniers fusillés à l'Hôtel de Cluny, etc.
-
-CHAPITRE XVII.
 
 Proclamations promettant l'amnistie. — Massacres des prisonniers rendus sur ces promesses.
 
@@ -10933,8 +9303,6 @@ Attaque du Marais et du faubourg du Temple. — Massacres
 pendant et après la victoire. — Fusillades en masse dans
 le quartier de l'Hôtel-de-Ville.
 
-CHAPITRE XVIII.
-
 Attaque et prise du clos Saint-Lazare. — Attaque du faubourg Saint-Antoine. — Probité du Peuple. — La caserne
 de Reuilly prise par le Peuple et reprise par les troupes.
 — Fusillade des prisonniers.
@@ -10946,18 +9314,14 @@ Propositions de paix faites par les ouvriers. — Mort de
 l'Archevêque. — Proclamation du Peuple. — Journée du
 26. — Capitulation du faubourg. — Massacre des prisonniers. — Adieu des insurgés à leurs frères morts.
 
-CHAPITRE XIX.
 Suites de l'insurrection. — Récompenses données aux vainqueurs. — Dénonciations, perquisitions et arrestations.
 
 |
 
-k catalogue analytique sommaire
 #8 . — Prisonniers fusillés dans les maisons, les rues et les
-ÿ: casernes.
 4 Le fédéralisme. — Invasion des gardes nationaux de proFe. vince. — Les prisonniers des caveaux des Tuileries, —
 % Massacre du Carrousel. — Translation des prisonniers
 É. dans les forts. — Leurs souffrances. — Derniers masPA. .  sacres.
-CHAPITRE XX. :
 é É Punition des vaincus. — Anéantissement de la Montagne.
 à — Pierre Leroux et Caussidière parlent de clémence. —
 } 6 Article de Lamennais contre la terreur. — Article de
@@ -10969,7 +9333,6 @@ $ 1 — Commissions militaires. — Conseils de guerre. —
 de siège. — Contre-coup des journées de juin en Europe.
 D: — Élection du Président. — Promesses d'amnistie. — État
 # de la France.
-DANIEL HALÉVY. — Annexes;
 ; I. — Adrastée; poème de Louis Ménard, écrit après l'in-
 Û surrection de Juin 1848; II. — Le procès; en feuilleton dans
 NS : le Peuple, de Proudhon; samedi 3 mars 1849, Ménard et le
@@ -10982,12 +9345,6 @@ nt rédaction, mon cher ami; dans le supplément au Peuple du
 ; Bibliothèque de l'Institut, une lettre, manuscrite, du père
 Î de Louis Ménard; procès appelé devant la Cour d'assises 4
 de la Seine à l'audience du 7 avril 1849; prévenus deman- |
-k dent audition certain nombre témoins; avocat-général Mey394
-L:
-
-Li à
-
-F y
 
 de LES HOBEREAUX £
 nard de Franc fait opposition; conclusions de la défense;
@@ -10996,7 +9353,6 @@ répondu par la Cour; plaidoirie Madier de Montjau; protestation de Louis Ménar
 dans le même cahier ;
 
 | L'an mil neuf cent quatre, le vingt-cinq juin: assignation de M. l'abbé Dissard, chanoiïne de la Cathédrale
-demeurant à Laval, à monsieur Charles Péguy, à comparaître
 
 Couverture; vacances; distributions de prix ;
 
@@ -11007,11 +9363,8 @@ JÉROME ET JEAN THARAUD ; — les hobereaux, — histoire vraie ;
 
 dédié à notre ami Pierre Baudouin ;
 
-LA
 les hobereaux;
 | à la mémoire de monsieur Jean de Monéis;
-
-— À table, messieurs, à table!
 
 La table du curé de Villefaignes était célèbre dans le
 pays : quatre fois par an, aux grandes foires, il rendait aux
@@ -11027,12 +9380,8 @@ cet eunuque !
 Les bêtes, ouvertes en un tour de main, épandirent dans
 les assiettes les truffes qui tendaient à crever leurs peaux
 
-: dorées.
 |
 
-b
-Ë catalogue analytique sommaire
-Û
 Ê Les hobereaux étaient partis le matin, de bonne heure,
 F à cheval; ils avaient bataillé dans les auberges avec les
 F bouchers; il était plus de deux heures : les chapons étaient
@@ -11044,7 +9393,6 @@ Prussiens méritaient une leçon... Vous avez lu le Conser3 vateur ?.…
 ‘ Du Landier s'étonna d'entendre parler de guerre. Il
 | vivait à trente kilomètres du bourg, comme un loup, dans
 ; une bicoque où n'arrivait jamais ni un journal, ni une
-à lettre. 3
 — Vraiment... l'Empereur ?
 | Il agitait sa tête couverte de cheveux grisonnants, bien
 Ë qu'il fût jeune, d'un mouvement nerveux pour chasser les
@@ -11069,10 +9417,7 @@ une fille? |
 aurais une avant lui. à
 — Le Sourd m'avait prêté des terriers.. Je passe chez la
 Sicotière. Nous lächons les terriers dans sa garenne... Un |
-396 s
-LE.
 
-CONGRÈS DES U. P. MAI 1904
 coup de fusil... La Sicotière lève son chapeau... « Nom d'un
 chien, c'est une fille !.. » Le diable m'emporte si je savais
 ce qu'il voulait dire. Sa femme accouchait quand nous
@@ -11089,7 +9434,6 @@ quitte. Il monte à cheval, court à Bergerac, joue toute la
 nuit, perd tout ce qu'il a, remonte à cheval. La pluie tombaïit. La goutte le prend. La douleur le tord. Il enfonce,
 long comme ça, ses éperons dans Péchard... la bête s'effare, le jette la tête la première dans un bourbier. On l'a
 retrouvé le lendemain, planté dans la tourbe comme un
-pieu.
 
 | — Sacré Léonard ! dit Montcharmin.
 
@@ -11104,14 +9448,10 @@ la barre de la neuvième chambre correctionnelle ; désistement de M. l'abbé Di
 | Vingtième cahier de la cinquième série, un cahier
 jaune de 160 pages, bon à tirer du mardi 13 septem-
 
-bre 1904 ; deux francs
-
 Textes et documents ; —_ congrès des U.P.mair904 ;
 
 Le cahier que l'on va lire a été établi par la Fédération
 des Universités populaires de Paris et banlieue; il est le
-
-4 XXII
 
 | vinglième cahier de la cinquième série
 compte rendu officiel du congrès tenu à Paris les dimanche
@@ -11121,9 +9461,7 @@ Fe 22 et lundi 23 mai, — Pentecôte, — 1904, par les Universités
 © lues, entre autres, par M. Maurice Kahn, et par M. Paul
 Kastor, secrétaire de la Fédération des U. P. ; M. Gaston
 4 Rabaud, notamment, a relu sur épreuves son important
-troisième rapport.
 > »
-1 ORGANISATION DU CONGRÈS
 ; Réunion mensuelle de la Fédération des Universités
 } populaires de Paris le 13 décembre 1903, proposition d'un
 ( délégué; adoptée à l'unanimité; décision; commission d'or ‘
@@ -11138,24 +9476,17 @@ Secrétaire de la Fédération des U. P., Paul Kastor; réunion du 13 mars; adh�
 | signée pour le Comité, Le Secrétaire, H. Ablonet; liste des à
 Universités populaires qui ont envoyé leur adhésion;
 départements; villes; titres des Universités populaires;
-délégués; fédérations régionales; Universités populaires;
-PROCÈS-VERBAL DES SÉANCES
 | Séance du Dimanche 22 Mai, matin;
 Ouverture de la séance; souhaits de bienvenue;
 appel nominal; nomination du bureau; allocution de è
 ; M. Gabriel Séailles, nommé président; quelques renseignements sur l'organisation du Congrès; le déjeuner; L
-, 398 | |
-i
 | 4
 
-E CONGRÈS DES U. P. MAI 1904
 un bureau par commission ; nomination de ces bureaux;
 cinq commissions; réunion de ces commissions; cinq
-À rapports généraux;
 4 Séance du Dimanche 22 Mai, après-midi:
 ; Rapport de la deuxième commission, institutions
 F annexes; lecture par le camarade Clair, rapporteur;
-4 syndicats; coopératives; groupes politiques; patro-
 | nages; mutualités; conclusions; avant discussion du ;
 1 rapport, discussion sur mode de votation; non vote;
 k. surtout congrès d'études; utile de se compter; ne
@@ -11163,10 +9494,8 @@ k. surtout congrès d'études; utile de se compter; ne
 | laires et de Fédérations; discussion ; rapports des
 ; Universités populaires avec les syndicats; avec les
 3 Coopératives: avec les Groupes politiques; avec les
-; Patronages:
 , Rapport de la première commission, organisation
 générale; lecture par madame Wathier, rapporteur;
-à organisation générale, statuts; question financière;
 À annexes ; statuts; questions financières; où inclus rapL port du camarade Casevitz, trésorier de la Fédération
 de Paris et de la banlieue, président de la commission;
 É ce rapport est sur le budget de cette Fédération; une
@@ -11176,14 +9505,9 @@ Rù des cotisations; projet de constitution d'une caisse cen3 trale de subventio
 4 financière et administrative; tableaux synoptiques ;
 4 désignation des Universités populaires; moyens finanKa ciers ; cotisations; membres actifs; membres adhérents
 K. ou participants; membres honoraires; dons, subven-
-ÿ tions, allocations; organisation; fédération parisienne
 4 des Universités populaires, nombre d'Universités popu-
 | laires adhérentes et recouvrements; compte des disponi-
 : bilités de la fédération parisienne des Universités popu-
-" laires; 1902, 1903, 1904; disponible, monument Zola,
-fêtes, matinées, Saint-Louis, totaux;
-
-Ut
 
 . vingtième cahier de la cinquième série
 
@@ -11195,25 +9519,13 @@ ME Plusieurs lettres et télégrammes d'excuses; rapport
 
 ÿ lecture par le camarade Rabaud, rapporteur; confé-
 
-rences isolées; cours; séries; causeries; lectures; dis-
-
 3 eussions ; la Politique; enseignement professionnel;
 
-115 bibliothèque ; publications; matériel d'enseignement ;
-
 0 l'Art et les Universités populaires, l'Art pour tous, les
-
-\ Musées cantonaux; personnel enseignant; conclusion;
-
-4. discussion; Marseille, Montpellier, Brioude, Bourges,
-
-cà Rouen, Montpellier ;
 
 TA Rapport de la quatrième commission, fêtes et distrac-
 
 L. tions ; lecture par le camarade Georges Baër, rappor- ,
-
-ja teur; consultations; consultations médicales ; trois
 
 2. vœux; demandes et offres de renseignements; consul-
 
@@ -11233,15 +9545,11 @@ f: de musique, de chant et de déclamation; promenades,
 
 excursions, visites; caisse de voyages; cercles de lec-
 
-É ture; trois vœux; bibliothèque, publications officielles;
-
 } acquisition de livres; échange régulier de livres ;
 
 FR discussion ; le Mans, Lyon; la Fraternelle; banquet,
 
 : simple et substantiel; amicale présidence de Gabriel
-
-, Séailles; 65 convives ; Maurice Bouchor;
 
 | Séance du Lundi 23 Mai, après-midi;
 
@@ -11257,9 +9565,6 @@ les moyens d'entretenir entre elles des rapports aussi
 ; fréquents que possible ; elles reconnaissent la puissance |
 d'action des groupements et loin de repousser la for-
 
-400 ;
-
-CONGRÈS DES U. P. MAI 1904 ;
 mation de Fédérations, quelques-unes concluent logiquement à créer, après la Fédération Nationale, une
 Fédération Internationale des Universités populaires
 ou organisations similaires; Auvers-sur-Oise; Fontenay-en-Vendée; Fédération post-scolaire des DeuxSèvres ; le Mans; Montreuil; la Fraternelle rejette
@@ -11267,7 +9572,6 @@ la création d'une fédération nationale ; discussion,
 réponse, d'accord avec la majorité; l'Effort de Montrouge; un Bulletin des Universités populaires; une
 mutualité des Universités populaires de France; rapports entre Universités populaires voisines fédérées ou
 non; rôle des fédérations départementales et régionales ; fédération nationale; une bibliothèque documentaire ; une bibliothèque circulante ; conclusion; annexe ;
-Limoges, affiliation aux Jeunesses laïques ; discussion ;
 Bayonne, Tarbes, Bar-le-Duc ;
 
 le prochain congrès ; à mains levées, une seule voix
@@ -11284,22 +9588,16 @@ des Universités populaires; mais simples propositions
 annexées à la suite des travaux du Congrès; dix vœux
 acceptés; cinq vœux renvoyés pour examen jusqu'après
 la fondation de la Fédération nationale des Universités :
-populaires ;
 
 une communication Jeunesses laïques; une commu- \
 nication Exposition de Saint-Louis ;
 
 remerciements de Maurice Bouchor président aux
 congressistes ; un souvenir ému à la mémoire d'Emile
-Duclaux ;
 
 clôture du Congrès ;
 
-401 XXII.
-
-*, . COPIES Re
 | vingtième cahier de la cinquième série
-‘à FÊTE DE CLOTURE
 | à -
 x Fête de clôture;
 À Le lundi soir 23 mai, à huit heures et demie, au
@@ -11327,140 +9625,41 @@ série, le prix de ceite série est porté au moins au total
 | . » 0 . 1 . “ .
 des prix marqués: ainsi à dater du premier janvier
 1905 la cinquième série sera vendue un prix sensiblement égal au total des prix marqués, soit
-quarante-sept francs |
 |
-1 "+2 |
 : Aussitôt que ces collections complètes de la J
 | cinquième série seront en voie d''épuisement,
 | leur prix sera porté l'une à cent francs |
 | %
-4 F
 
 ST AA LE DE E ue, 4 PALE HPET Mas Li
 RET a : de SIL EIRE LACS ME dt % HAT
-ï > 0 4 IA ED 4 Me jt REA Rat pit LAS A HA AR à
-AS CPU FA PNA RE SARA, CB APS TL PA L DCS FN qu É
-m2) + ie (PR t, Lu: L TR ‘ : LCR LA 5
-PET RER) NA C PASS PE 11 FOR
-hr SU der 16 X 7: 40 ,
-Rs) Ph # ï }4 44
-MAP rat û « ES
-COTES : È ÿ è # STE
-‘LIT Li ' pl [in rs ui
 ne He REX ; AA i THE
-: « PA A : L LE
-4% OR 4" É “ 4 É De
-fi NA RES C
-LME 5 F0
-L 4 NOTA DO
-LT ITE HS
-RTS - UT ‘ SEE
 # ‘ 'HASAIRE é 0e EN cr
-MN : : k > : M :
-XL NEIREESS AE LT
-LEP M £ ONE
-RO 5 | Mur
 in eue :: * \ L'EHESR
-4 [AG ue . ; AL |
-ARE Eh |
-L RAS 1 (|! RSR
-ht CHR - ‘34 %
-: AÉRERS pre
-\ NS % 4 2. FRS
-FT f ' dei 4 À Fé, à
-QUE RATE = LP
-h MS Mt,
-EL Ge É À Te
-' . re CE He
-ÿ AÛ AVES
-DIEMEE "
-
-L
-
-Fi
-
-è
-
-4 TABLE
-
-"|
-
-*
-
-é: PAGES
-
-Charles Péguy. — Quelques mots . . . . . . .. ÿ
 
 ï Éditions des cahiers antérieures à la fondation }
 
-À. desicahiers. 4. RAS SU URONAOIENSERE I
-
-x : A
-
-À Hnémibne série à 11.101 RENTE RAS 6
-
 ; Denième,série 1.7. NIMES ER TES
-
-13 HIROiSIEMENSÉT IE. 21e ee lle PO RPANNENSS
 
 | Ounaimème série... 21410000 VON NRA TRES
 
-1 Crguieme série... 1.421 NO EN HENERENES
-
-Î
-
 Nous avons donné le bon à tirer après corrections
 pour dix mille exemplaires de ce premier cahier le |
-mardi 27 septembre 190%.
-RAT CU ps ;
 
 Le Gérant : CHARLES PÉGUY
-PR A MR NP 40 UN A REINE RES À
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués. k
 IMPRIMERIE DE SURESNES (Ep. GRENIER, directeur), 9, rue du Pont. — 9092
 
 PR ETS TA TT DS LEE ie NOT OS) TES EURl
-25 ris ÉRIC RL =.
-M A Ms Pa bp SE 1, APR TE 0
-8 MAIRES RCE x 418
 f F° DT Es Nr SAT en | RE à * L Le e. Les
-teen UE, 4 nn PARTS Li ECS A
-; D UT 5 pee 2e ES Le * Le Æ
-A me en A rar a pe
 at 2 NÉ RE ER Le ee à te
-nn A nr HrÉ ; Ra
-: PER ne a LE à LU IT FAP i 34
-RES PR TE D Ex 34 à rs
-NE SPACE F3 + é, CN ANT ARAT RTS ss A + 44
-5 QE + rie à, salt Æ lANBELLAEC +
-24e tar MEN à. ne: AE É : 1e, 14
-154 RUE D Au, | Ce ER ei
-TES Rs RUE ER: STE Tr CR
-AS ARR OM PER: a TT e 2, Le TE
-SN OR RER ñ =
-F r *LINVEOR à À +:+t "00
-_: 2 PSS RREE 0
-- L' LENOIR ne + 0
-DR. “ar j A] TM EE " , [LIU
-/ CS" MERE à À TE
-er bn hi mt: 2. M2: 2119800
 en on Free M OR ORAN AC È ; ERA
-XP VS Ex LOL PIE Er LATE VE Mer.
-TG DT à: Lt AE : TC
 M Ces As ts ds Les F | ARR. : à
-Dee. Nr Te NE A { ; s :
-7 D, 110 à 4 AT
 
-k
-
-c'
-! EE
 ï CAHIERS DE LA QUINZAINE, 8, rue de la Sorl bonne, rez-de-chaussée, Paris, cinquième arrondisse-
-à ment.
 4 Nos Cahiers sont édités par des souscriptions men-
 î suelles régulières et par des souscriptions extraordiR à naires ; la souscription ne confère aucune autorité sur
 ; la rédaction ni sur l'administration; ces fonctions
-demeurent libres. :
 A Nos Cahiers paraissent par séries; une série parait
 4 dans le temps d'une année scolaire, d'une année
 À ouvrière, d'octobre-novembre à juin-juillet; l'abonne- :
@@ -11483,13 +9682,10 @@ j l'achèvement de cette série ; ainsi du 2 octobre au
 J 31 décembre 1904 on peut encore avoir pour vingt francs
 les vingt cahiers de la cinquième série complète.
 ! A partir du premier janvier qui suit l'achèvement
-s
-\ &c L |
 
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués ; ainsi à dater du premier
 janvier 1905 la cinquième série complète, s'il en reste,
-se vendra quarante-sept francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
@@ -11498,7 +9694,6 @@ heures à onze heures et de une heure à sept heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures.
 
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
@@ -11525,68 +9720,24 @@ sans autre signification ni contrat.
 
 te PAS LÉ AR MR:
 
-RARE IS PR OT SENe ep AND ASE ENTER TUE IS POS
-
 4 Le } ÿE 19 La LE gr re ES e ST PET FEAT
 
 à LS à Rare RES ty SRE ut dE CRT 278 IH CEE ;
-
-M At rs Sore tas RUN RE
 
 re 1 me A ANT AR Re TES 0 PA PET ANOL EE SN NE
 
 CIS SSP RER e PTE NPA AE EUR PAR AE de an 2 ce NC
 
 2 FE 0 SE Pete ë, AHADE Er LA OUT OR Dal LE NE RAR CNE AN AA
-HN SR AE MRRSNERSES j d 7 ACCRO RAIN TE
 
 | AROSES APTE VA A ae
 
-STI A
-
-D, RAT . 1 TRES
 “ ROMANE nr : tous î 214 LUS SF ARE
-LT be SRE 4 RNPARS A à ) 2 VU MR
-Xe POESIE TER 5 » PES < 2] +" 111178) Re VETS(PTREENERRR
-LE RS RIRE MA EC d Fi OA
-LR as + DR EU |
-MT A En | kg; x {, Y'in; LOI FRRCSIEE
 
-RASE HSE DAS 0 IX DORE ARE RAA OP À >
-RP DST tete ds ARMOR Re PA M ee
-Let PRESS AE RUN RER LACET NEC ES RACE
-PR Dr 4 FDA N te SISTER RENE VUE
 . mo PER Re dns EE se ES SRE ne
 
-nc: EE SR TS DOC 2e APT REC
 AN One: EUX LHC NE CEE Pere
-Due ? , he 2h
-47 7 APT E FCO
-DULE. La.” * è ; | È .
 ti DES LES
-SC Re ce i #2
-: AIT ÿ ;
-LS FU ê | ; :
-
-LS het Le .
-£: LE S
-
-. TEINTE É
-
-+ Fr = L 1
-1: LOIS , *
-LASER Ÿ
-
-£ TE =
-D”. Re : 5 ; À
-
-! 9 SES pr E Ù à
-DR, RTE re |
-
-2 TERESA ao 2
-
-ENT RCA RRERSS Fes J Ê
-NT me 7 7 s %
 
 RE Se ST TR AE on te PE EN Te 0° Se SORT ARTE
 eu ART = Ÿ RP ER dr RS PRE AVANT NE FRE: ARR SFAGES DAS LEE ARS
@@ -11597,73 +9748,19 @@ SA 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième ae |
 50 arrondissement. On recevra en spécimens six cahiers
 “à de la deuxième, de la troisième et de la quatrième À
 F série. LES TRS
-4 : à es s NE
-CRE D |
 re Nous mettons ce cahier dans le commerce; premier …  "
 cahier de la sixième série; nous le vendons cinq
-Bas) francs. |
 
-DEUXIÈME CAHIER DE LA SIXIÈME SÉRIE
-
-N/  ALEXIS BERTRAND He
-Fe L'ÉGALIT
-es dé x 7 =
 devant l'instruction
-_ CRISE DE L'ENSEIGNEMENT ,
-- CAHIERS DE LA QUINZAINE
 
 5 paraissant vingt fois par an
 
-Mn PARIS
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-NON LR:
-LS RE Re HE
-Mrs RATE ut es ; : LRTHESEN
-LS RE PEUEES En | À LES —
-LTÉE ter x LAVER
-CSP ‘' F, FE TIGER
-Re n  7 es LE
-È ri. - NE S 4 ss. LT TES “
-04 DRE P (Let “ di
-; LPS . : KLRSTES
-LE MS É £ RER or
-MAR €S 7 Te ER
-[LUS
-3 SRE ra RAS :
-DR 0 re : ME >
-FESSES np 3 ER! RE
-Cor: Lee PJ “PSE
-Ne: FE LE N LÉ NES :
-Re + Le re
-1 $ $ 4 2 Ke CFE 4
-nn DO LATTES
-
-TN PME TAB DS Se RES ER AE RER EE
 RS Ti TR ve IR CE
 RU rt Ph eue SSP NEl TNT S PR SNA Ce
 RE Pan "a ARS tn R 2 L Div:
-RACE .. 2 < Sr *
-D |
-RMS - Ver ARE
-UE ; ñ è : ; Fa +
-+5 AE rues] e E ; ? eur?
-ER nue : : ; Û CR
-RCA EE à. 5 À 7 à . LAS
-LL PERTE CE ; : : 77
-CF FR 7 se SRE à
-ET 3 es s: n ul È à = Ur: L2 7 be
-Us VE 2
-re à » : ES HS
-LT CR si 3e
-PPT SONT | SE À: E
-LATE Eee
-= Fais | : ae, a LR
-Due Me Er j PR
-£ [2e = ; _ do Le
 FE LOER NE on 4 Cp
-à ïs < £ F PE
-LANeRE FF 4 :LAMER
 
 4 Nous avons publié dans nos cing premières séries,
 ; 1900-1904, un si grand nombre de textes et comF mentaires, de documents et renseignements, de contri- ë
@@ -11674,7 +9771,6 @@ Eu gnement, sur les méthodes, en particulier sur l''ensei-
 sur les instituteurs et le péril primaire, sur le monopole <a
 # de l'enseignement, sur les trois ordres d'enseignement,
 sur toutes les questions annexes, et ces textes, com-
-; mentaires, documents, renseignements, contributions, à
 % dossiers, travaux étaient si considérables que nous #
 : ne pouvons pas songer à en donner ici l'énoncé même 4
 # - le plus succinct; pour savoir ce qui a paru dans les F
@@ -11688,9 +9784,6 @@ F Ce catalogue a été justement établi pour donner,
 | autant qu'il se pouvait, une image en bref, un rac- |
 courci, une idée, abrégée, mais complète, de nos édi- L
 
-hge RPC ESA RE Tr E PS SE
-: SR NÉS OT MR TE ESS der
-_ CATALOGUE ANALYTIQUE SOMMAIRE
 _ tions antérieures et de nos cinq premières séries; louty CL $
 _ est classé dans l'ordre; il suffit de le lire pour trouver, De
 _ à leur place, les références demandées. 5 .
@@ -11699,93 +9792,28 @@ _ Ce catalogue forme un cahier très épais de 5
 _ cahier comptait comme premier cahier de la sixième ee
 série et nos abonnés l'ont reçu à sa date, le 2 octobre, =
 ._ comme premier cahier de la sixième série; toute per_ sonne qui s'abonne à la sixième série le reçoit. par le è
-Ft 7"
 _ fait même en tête de la série; nous l'envoyons contre
 un mandat de cinq francs à toute personne qui nousen
 _ fait la demande.
-.. "
-ne: 4 : F
-LÉ
-+ ; N
-A à
-CR ‘
-S: nn. x
-£. LENS
-RARE Aime y
 
-PE NT ES ST POUND 1, RJA RE a ir anal OR ED.
 MAR NU IS ne RE A RS CE RES
 
-0 URLS RE nd CR RE VO MS CORRE
-
-_ SSSR Dh AN RENE CE RTE SRE RSR PRE PES
-SSP ; 14 PA LU CS Ÿ PAF SRE
-LÉ ; AVS FRS
-M : - JS SN SNS
-
-Er à . ir RL « e
-
-Re: 2 LD NS CNRS
-AMEN 4 + Fi RaËr SUR (+92
-HR EUR D " Le Dre.
-STATS 4 5 #2, 2 SR ENRE
-2 : LT. FREE
-
-+ & = x 7 VOST
-
 ë DAT ES DRE Tee ET LIRE ad VF
-À GER LT MS AE ST RAR Dies ME Re TS
-AR RE me Re LU CIE ARR SORA
-‘ARE RES PE PCSI EME Res rer AU FESSES RNCS
-FFE EE SPC TEE] f “4 the LÉ EE ue
-DC. rs " 43 — - ART #
-ER 0. 4 3 1PÉSICEENR
-PRE 2. + e : “ Re SE
-A c ; = Fra
-ON" ST ; “ à = LE
-RES M ARE *# ir : PNR
-RIT s : HE
-PA RAT ET ie £ È DS:
-Les AL : } : ; +75
-na SE Æ “À = s 2 "Be
-As 3 } È p : sé LASER
-: T'es ; as |‘:
-2.7 ACAEHENERSE € ER
-
-DR 2 ee,
-
-: 2 | 4
-1: AFTER EEE
-SR Fe 5 < ; a
-5 Re rares nt.
-
-4 | ANNE + | > « - YO
-SE: F ñ ee 3 > 20
-
-OT : Me FRE ES . Eau:
-< RE d: de ” à . . ee Ne
 
 D ne ne.
 
-ne - FRA 6 a 5
-\
-DU MÊME AUTEUR
 Chez STORCK |
 ; Mes vieux Médecins : Le Corps et l'Esprit, in-12 |
 (vient de paraître en octobre 1904).
-:
 Chez ALCAN ;
 (Bibliothèque de philosophie contemporaine) % |
 L'Aperception du corps humain par la conscience, ;
-in-8° (épuisé). ; Ë
 La Psychologie de l'Effort et les doctrines contempo- j
-raines, in-12. À
 k L'Enseignement intégral, in-8. Ë
 | Les Études dans la Démocratie, in-8&.
 Le Pessimisme : Histoire et Critique, traduit de l'an- $
 glais de James Sully, in-8. É
 : L'Immortalité chez les Panthéistes : Plotin, Spinoza, F:
-in-8° (épuisé). É
 Chez LEROUX 7
 Science et Psychologie; Nouvelles Œuvres inédites |
 ; de Maine de Biran, in-8&.
@@ -11794,74 +9822,35 @@ Science et Psychologie; Nouvelles Œuvres inédites |
 Principes de Philosophie scientifique et de Philosophie
 | morale, in-8.
 
-PES RES POSE CS SRE CENTRE rt per RARE +
-0 © æ DU MÊME AUTEUR : $ FSU
 |: FOSSES Librairie de l'ART RSS
-ES si
 _ François Rude, in-#4°, avec gravures. & #
-2e Chez E. BELIN A » i1 — UT
 #5 L'Éducation intellectuelle, morale, physique, traduit Fe
 
 _ de l'anglais de Herbert Spencer, in-12. à
 Se Ë La Monadologie; les Nouveaux Essais sur l'Entende- >
-E= #
 ment humain, de Leibniz (édition classique). Mr
 5 Chez DELAGRAVE he
 ee. Le De Vità beatà de Sénèque (édition classique). ‘
 _ La Déclaration des Droits de l'homme et du citoyen :
-_ (Origines, Discussions parlementaires, Critiques), in-8°.
 1 Chez PICARD É
 _ Extraits des « Séances et Travaux de l'Académie des Sciences
 Lie morales et politiques »
-=
 _  L'Effort musculaire; le Texte primitif du Contrat f&
 _ social; P.-J. Proudhon et les Lyonnais.
-FE < . L
 _ En vente à la librairie des cahiers.
-L ne MT CRE » \
 
 AT £ VER CAE DR ARS GRR EEE SENS Son
 54 ne LS RSS ee SEE
-A SENTA RESRES Or Er Te RARES US à
 1 Beer, + os OL AE PSE D EAN + 2 0 NE RSR
-Re | } RE 5 = $ ‘63 CE RE
-M É etl ER, PAC : AR
-É RER :- LP < ; \ < RS
-Ke RER = : = û 4 NZ SR R: ES no
-D HAT
-SEE LE : + EPST
-A TERRES
-nue pe AVE se "E
-ACNCNES $ Ne  — sd RER Re:
-LE : ' * 2 FOR
-éd,” Lt à 4 + € _ Le == 2 e < 2e hi
 
 M ET LME DO MP SRE Me M Ce nr à
 
-a SR cs £ te FRS PE MEUEX q 3 1074 LR INR VA
-D j a
-Mn SE N PPETN
-Me S ; Er Li r Er: £' 1 HREASAARESNES 7
-LISTES e 5 APE LES RES
-LX AS SPAS ; 2 LL TSETSES
-à : * ÿ & RTE TA SCORE
-D ‘ Pres s É " 7x TR SNS
-Ne. Er a < SITES AID APE
-
-. La LT RENE
-
-e + 14 CS ATTEEEEER
-& | - s, Le A
-
 PR RE NET RS RM et Ve Un DA CA
-_  CHarzes PÉGUY
 | £
-POUR LA RENTRÉE
 : Pour la rentrée des classes, petites et grandes, un
 cahier de l'enseignement; ce cahier rejoint tant de
 cahiers, et de tant d'enseignements, que nous avons
 publiés dans nos éditions antérieures et dans nos cinq
-premières séries. > \
 Les trois études que l'on va lire sont unies entre elles
 et forment un ensemble beaucoup plus par la répétition
 obstinée des mêmes soucis, par l'insistance des mêmes
@@ -11873,9 +9862,7 @@ compléteraient l'une l'autre, ni exactement complémentaires en ce sens qu'elle
 l'autre ; d'une part elles sont fort loin d'épuiser tout le
 : sujet, qui est immense; elles sont des études, simplement, honnêtement; l'auteur y répète partout qu'elles
 ne sont que des contributions; d'autre part elles chevauchent, elles se recouvrent souvent; il en résulte,
-XI
 
-\ Charles Péguy
 À ) dans l'ensemble du cahier, des répétitions nombreuses;
 ‘34 nous n'avons rien fait pour éliminer ces répétitions.
 É Il vaut toujours mieux donner les études exactement
@@ -11905,9 +9892,6 @@ LE de combien ce discours dépassait l'auditoire auquel il
 1 radical-socialiste, au lieu de courir les aventures
 | politiques, au lieu de s'abandonner aux combinaisons
 
-Re RS Ce
-POUR LA RENTRÉE
-
 de ses politiciens parlementaires, n'ait pas donné toute
 son attention aux problèmes de l'enseignement; car
 donner toute son attention aux problèmes de l'enseignement, ce n'est point penser à supprimer, par un effet
@@ -11915,7 +9899,6 @@ de l'autorité de commandement, par un exercice du
 gouvernement d'État, l'enseignement du voisin; c'est
 au contraire penser à organiser, à fonder dans la justice,
 dans la vérité, dans le travail et dans la liberté, son
-propre enseignement.
 
 Quelques-unes des idées proposées dans cette première étude nous sont depuis devenues familières ; le
 retour à Proudhon s'est si accentué récemment que nous
@@ -11936,9 +9919,6 @@ compte rendu sténographique ofliciel, séance du
 22 mars 1899 ; nous l'avons sortie des volumes immenses
 où tout est enterré ; cette sténographie est précédée
 
-XUI
-
-fe Charles Péguy
 ï d'une introduction où l'auteur parle fort justement, et
 e fort modestement, de la Commission, de l'Enquête, et
 ge de l'Enseignement ; elle est accompagnée d'un commen-
@@ -11946,7 +9926,6 @@ ge de l'Enseignement ; elle est accompagnée d'un commen-
 constitution du Lycée, comme au temps heureux où l'on
 faisait encore des constitutions, comme au temps où les
 : grands débats de la pensée aboutissaient toujours à
-£ formuler dix-huit propositions. :
 È La déposition elle-même donne le spectacle amusant
 d'un dialogue monologué ; on ne saurait imaginer, dans
 % d'aussi graves matières, un contraste plus comique, ;
@@ -11969,11 +9948,7 @@ congrès de la Ligue française de l'Enseignement, en un
 elle était un peu moins une Ligue; vingt-deuxième con- |
 grès national, tenu à Lyon du 25 au 28 septembre 1902; |
 elle forme une intéressante monographie d'une institu- |
-: XIV :
-:
 
-17 PC ire » È
-ES POUR LA RENTRÉE
 _tion lyonnaise ; on sait combien Lyon a une vie locale, |
 personnelle, intense, une mémoire de ville, une histoire
 autonome, une existence; combien cette ville est un
@@ -11990,18 +9965,14 @@ dit quelque part que la répétition est un grand moyen
 d'enseignement; ceux qui n'ont jamais fait une classe
 “en leur vie seront seuls à le lui reprocher; pour nous,
 -allons en classe, aujourd'hui, puisqu'aussi bien voici la
-rentrée.
 A ce cahier universitaire, j'ai failli mettre un titre
 _sensationnel; je le disposais ainsi :
 deuxième cahier de la sixième série
-ù ALEXIS BERTRAND
 408 un enseignement court
 | le lycée de quatre ans;
 Évidemment on se serait jeté dessus; il s'en serait
 vendu un beaucoup plus grand nombre d'exemplaires ;
 - mais ce titre, le Lycée de quatre ans, appartient à un
-
-Ë Charles Péguy :
 
 : autre travail du même auteur; et il ne recouvrait pas
 
@@ -12022,7 +9993,6 @@ pourquoi cette inégalité sociale ; pourquoi cette iné-
 quité; pourquoi cette injustice; pourquoi le haut ensei-
 
 ; gnement à peu près fermé, pourquoi la haute culture à #
-peu près interdite aux pauvres, aux misérables, aux
 enfants du peuple ; s'il n'y avait d'interdit que l'ensei- « gnement secondaire, il n'y aurait peut-être que demi-
 
 j mal, et demi-faute ; mais en France et dans la société « moderne l'enseignement secondaire est le presque iné-
@@ -12035,11 +10005,6 @@ des conditions ; il s'agit, on le verra dès les premiers
 mots, d'un souci très réaliste, très réel, modeste et
 utile; comme il s'agit de remèdes honnêtes, modestes,
 utiles ; nulle déclamation; nulle démagogie; un plan
-simple, innocent, modeste, pratique, usager.
-
-XVI ) .
-
-POUR LA RENTRÉE
 
 Débarbouiller l'enseignement secondaire des superfétations qui le dénaturent et le chargent; débarbouiller l'enseignement primaire dit supérieur des
 pauvretés qui l'amaigrissent ; faire un enseignement
@@ -12060,7 +10025,6 @@ il poursuit un plan dans le détail des pensées et des
 faits; il poursuit la confrontation des programmes
 mêmes ; il additionne des heures ; il dresse des tableaux ; et conformément aux méthodes scientifiques
 expérimentales il nous apporte les résultats d'une expérience poursuivie pendant quarante ans par une
-institution populaire lyonnaise.
 
 Pour la rentrée, ce cahier n'est pas seulement un
 cahier de l'enseignement ; c'est un cahier de professeur ;
@@ -12068,10 +10032,6 @@ M. Bertrand est un professeur; on a lu plus haut
 l'énoncé de ses nombreux ouvrages, travaux, brochures, études et contributions ; en ce moment même j'ai
 en mains une étude de lui, un essai de cosmologie
 
-XVII
-
-3 ARR TM du SC Le
-4 Charles Péguy 2:34
 : sociale, les Thèses Monadolog'iques de G. Tarde; et son |
 Mi > P.-J. Proudhon et les Lyonnais, (lettres inédites), par 4
 ? A. Bertrand, professeur à l'Université de Lyon, corres- |
@@ -12098,19 +10058,14 @@ cation, » m'écrivait-il récemment en me renvoyant ses
 Gaillarde !), sans parler d'Annecy où je n'ai fait que
 - passer; 2°, d'autant de Lycées, Auch, Carcassonne, 3
 Dijon; et de deux Universités, Dijon, Lyon.
-« En outre j'ai mis quelque coquetterie à me rendre
 compte de tous les examens : baccalauréats, licence, -
 | doctorat, que j'ai fait passer; plus brevets simples et
-3 XVI. : 4
 
-JE ? POUR LA RENTRÉE
 complets, même certificat d'études primaires comme -
-délégué cantonal.
 
 . « Ceci pour qu'on ne m'accuse pas d'édifier une
 théorie en philosophe. Personne plus que moi n'a misla
 main à la pâte et vu les choses de près, par l'expé-
-rience.
 
 « Voilà, je crois, ce qui peut donner quelque autorité
 à ce que j'écris sur la Crise. Je vous avoue... » :
@@ -12142,10 +10097,6 @@ _ entre nous, » nr'écrivait-il en fin de cette même lettre.
 - « Je vous avoue, entre nous, que ce qui n'a peut-
 
 - être le plus monté contre la réforme Leygues, c'est que
-
-XIX
-
-Charles Péguy
 
 “& j'ai un fils qui a été obligé d'opter, (à treize ans !),
 
@@ -12180,7 +10131,6 @@ ayant obtenu le plus grand nombre de points pour
 l'ensemble de ses compositions latines, discours ou
 dissertation, ne saura jamais ce qu'était celui qu'à « Lakanal nous nommions familièrement, et familia-
 
-POUR LA RENTRÉE
 lement, et filialement le père Édet; je le dis à ce jeune
 rhétoricien, si jamais ces lignes lui tombent sous les
 yeux; ce jeune rhétoricien croira que ce vieux père
@@ -12212,8 +10162,6 @@ expédition coloniale; honneur à ces vieilles gens; de
 tels hommes raisonnaient plus pour classer une copie
 que nos gouvernements ne déraisonnent pour déclasser
 
-XXI
-
 | Charles Péguy “ 4
 tout un peuple; honneur à eux; ils n'avaient point x.
 
@@ -12237,8 +10185,6 @@ pain de froment de tout un peuple; ils n'avaient point
 
 L jeunes pleins de zèle ne mettent dans la circulation
 
-Ù - beaucoup d'ambitieux.
-
 Ô Ils ne défendaient point la République dans les mee-
 
 tings républicains ; ils n'étaient point révolutionnaires
@@ -12257,8 +10203,6 @@ F leur enseignement, de tout leur exemple, de toute leur $
 
 : lendam esse virtutem, qui seule fait la force des Répu-
 
-î bliques. “
-
 Heureux temps : ni la pourriture politique parlemen- *
 ee taire, ni l'effroyable tartufferie bourgeoise, politicienne,
 
@@ -12268,9 +10212,6 @@ congrégations industrielles et les agrégations universitaires ; le mal était 
 
 Dans les tristesses du temps présent, et particulièrement dans les tristesses de mon métier, c'est une des =
 
-; XXII /
-
-Fe POUR LA RENTRÉE
 _ plus grandes consolations que j'aie conservées que la 3
 _ consolation et l'encouragement que je reçois de la :
 paternelle bienveillance de mes vieux maîtres; la plu- D:
@@ -12288,7 +10229,6 @@ de la Sorbonne, devant la neuve Sorbonne, et paternellement ils me donnent des c
 _ me tiennent des propos qui reviennent à ceci : Votre
 dernier cahier ne valait pas plus de 12; mais au pré-
 cédent, — ici la voix baisse un peu, — au précédent
-j'ai donné 19. 3
 F Nos jeunes gens ne connaîtront jamais ces puits de
 véritable science, et de tels abîimes de probité; l'autre
 jour un de ces maîtres qui me sont le plus chers était
@@ -12302,13 +10242,10 @@ _ Je l'ai vu grand comme ça; etil me tapait sur le genou;
 et l'instant d'après il me grondait effroyablement; et il
  metapait toujours sur le genou ; et quand il est parti
 _ nous nous sommes quittés heureux comme tout l'un de
-4 XXII
 
-Charles Péguy
 l'autre ; et je n'ai jamais serré d'aussi bonne main ;
 ne quel abîme entre la profonde bonté de ces objurgations
 abominables et l'aigre férocité frôïde de nos petits normaliens arrivistes, de nos Sorbonnards secs, de nos
-À bons camarades.
 
 Je retrouve dans ce cahier le ton de nos vieux maîtres;
 ce qui vaut mieux, ce qui porte plus que la teneur et
@@ -12340,9 +10277,6 @@ crises de l'enseignement ne sont pas des crises de
 l'enseignement; elles sont des crises de vie; elles
 dénoncent, elles représentent des crises de vie et sont
 
-: XXIV
-
-F POUR LA RENTRÉE
 .
 4 _ des crises de vie elles-mêmes; elles sont des crises de
 $ vie partielles, éminentes, qui annoncent et accusent
@@ -12376,7 +10310,6 @@ Les parasites politiques parlementaires de tout le
 | une culture ; comment enseigner, quand tout le monde
 ment; je sais que l'on ment beaucoup dans l'enseignement ; mais tout de même l'enseignement répugne plus
 … au mensonge que les autres opérations sociales; l'enXXV
-b
 
 à Charles Péguy Le
 
@@ -12391,8 +10324,6 @@ b
 pe formes de la démagogie; et c'est pour cela que les mala-
 
 à dies sociales venues du mensonge apparaissent d'abord
-
-58 en symptômes pédagogiques. S
 
 + Les exagérations mêmes des nouveaux prédicateurs
 
@@ -12434,8 +10365,6 @@ F- . ticiens ; comme si ce n'était pas ce manque même, cette
 | du véritable savant, comme si cette impuissance impo-
 
 F litique de la science n'était pas, aux yeux du véritable |
-
-ES POUR LA RENTRÉE
 
 ; savant, sa marque même, la cause de sa grandeur émi- . :
 __  nente, la condition de sa dignité.
@@ -12480,10 +10409,7 @@ les consciences universitaires mêmes, quand le favoritisme, quand le népotisme
 neveux, les gendres et les arrière-cousins des grands
 - maîtres franchissent les degrés de la hiérarchie à une
 - vitesse uniformément accélérée, quand enfin tous les
-hs: XXVII
-Ë |
 
-à Charles Péguy
 F 23 jeunes professeurs éprouvent simultanément le même
 Ro coup de foudre automatique pour toutes les filles de
 : 1500 tous les inspecteurs généraux.
@@ -12502,11 +10428,8 @@ Hs, mensonges; elles retombent toujours sur la même
 $ humanité ; comment enseigner quand toute la société
 aps est pourrie de mensonge; en France même le grand
 mouvement démocratique, si plein de promesses, formulées, trahi par son État-Major politique parlemen-
-$ taire, vendu, retourné en usurpations démagogiques ;
 2 l'immense mouvement socialiste, si plein de promesses,
 À presque réalisées, trahi par son État-Major politique
-É parlementaire, vendu au capitalisme, retourné en usur-
-ÿ pations capitalistes ; etle violentmouvement dreyfusiste,
 à que nous n'avons pas à renier, au moment même qu'il
 Î ouvrait une ère de révolution pour la justice, envahi
 4 de la corruption politique, trahi par son État-Major
@@ -12514,9 +10437,7 @@ $ taire, vendu, retourné en usurpations démagogiques ;
 i 4 donner de l'antidreyfusisme une réplique exacte, une
 F contrefaçon parfaite; au lieu de se glorifier dans la
 F! vanité des cérémonies, dans la grandeur des majus4 cules, que le monde moderne commence par faire son
-E XXVIII A
 
-k CATALOGUE ANALYTIQUE SOMMAIRE ae
 examen de conscience; que la science, que l'art, que
 : la philosophie se débarrasse des politiciens, que le
 socialisme, que le monde ouvrier se débarrasse des
@@ -12526,11 +10447,9 @@ pureté première, se débarrasse des politiciens ; peut-
 quelque droit de parler à la jeunesse ; et n'y ayant plus
 cette crise de vie, peut-être alors n'y aura-t-il plus de
 crise de l'enseignement.
-; CHARLES PÉGUY
 Je garde ici les mots de socialisme et de dreyfusisme,
 quelques ignominies que les politiciens aient commises
 en leur nom, parce qu'il est puéril de renier des mots.
-/
 Catalogue analytique sommaire. — Je puis dire ici,
 : dans ce cahier d'abonnement, ordinaire, ce que je n'ai
 point osé dire dans la grosse majesté du récent catalogue analytique sommaire.
@@ -12541,8 +10460,6 @@ nous disposons, le personnel que nous sommes, la
 j mille, représente pour nous un effort considérable ; nous
 x sommes assurés qu'à cet effort considérable de fabri7 cation nos amis, nos abonnés répondront par un effort,
 | XXIX d.
-di.
-:
 
 | Charles Péguy Fi
 à au moins égal, de propagande; je dis au moins égal,
@@ -12599,10 +10516,7 @@ Fe puis dans la fabrication d'un aussi énorme cahier, tenu
 >. en même temps d'assurer le fonctionnement, la fabrica-
 
 5 tion de cette fin de la cinquième série, qui fut énorme
-KXX : |
 
-220 CATALOGUE ANALYTIQUE SOMMAIRE
-“
 # _ aussi, comme je suis dès aujourd'hui tenu d'assurer le
 * commencement de cette sixième série, qui ne sera pas
 E. moins considérable, j'ai presque totalement négligé ma à
@@ -12628,13 +10542,10 @@ e sont dévoués; depuis les dernières élections munici-
 : pales plusieurs sont devenus, de conseillers municipaux,
 _ adjoints aux maires; je me demande avec épouvante,
 étant donnée l'idée qu'ils ont du travail industriel, comment ils peuvent assurer les services municipaux d'une
-_ grande ville.
 à Je ne veux point leur en faire un reproche, et je ne
 veux point commencer incidemment ici d'étudier le
 - gouvernement des intellectuels, plus envahissant tous
-14 XXXI
 
-Ë Charles Péguy
 $ les jours; je veux noter seulement que ce manque est
 4 particulièrement grave pour ceux de nos camarades qui
 s'intitulent socialistes ; qu'est-ce en effet que le socialisme, s'il n'est pas la bonne administration du travail
@@ -12665,8 +10576,6 @@ même au cours de la quatrième, — et hier encore on
 me l'a dit une fois, mais c'était avec bonté, — il n'était
 | point rare qu'un bon camarade, me rencontrant remonXXXIT :
 
-:
-
 | CATALOGUE ANALYTIQUE SOMMAIRE
 tant la rue de la Sorbonne, me dit amicalement, serrant
 ma main loyale: Eh bien, qu'est-ce que tu fais, avec les
@@ -12678,7 +10587,6 @@ cahiers, mais innocemment, cordialement, il me demandait ce que je faisais en ou
 - immenses loisirs qui évidemment me restaient ; depuis,
 devant les écrasantes révélations de la quatrième et de
 la cinquième série, ces interrogations formidables ont
-à peu près disparu; quelques correspondants seuls
 s'émeuvent, s'imaginant qu'ils ne sont point dépouillés
 à leur tour.
 
@@ -12700,247 +10608,49 @@ lui assurer la publicité, l'audience, la fortune honnête
 Le - Je reviendrai dans un prochain cahier, si je le puis,
 sur les moyens de cette publicité.
 
-:
-
 ù Le gérant,
-
-; a, Charles Péguy
-
-; AxXxi
-
-ë, eee
-
-à 3
 
 $ ren PA La DE. De RAA AE NT CRE LIRE
 2e EST - FER Rest * VEIOSSER EN
-HSE Tee FROT GOT NT RTE" * Ÿ pee HPTALESEON
-Re HAT ; : es ‘ 4 A EE SPIP
-Mn <> 2 CR TRUE
-PCR AT T EE =. + ; « #21 LS
-La POMSINEe + HF ATS
 ne $ se LRprRr
-ST é Re
-RSR RS £ PRE ns
-TIRER : sen : SN
-F “à ut g 5 . SARA
-2 RE RESEE PA: e
-Die Te à ; fi RErRt
-FUME OR 4 : 18 EPS
-+5 10 LES £ ‘4 \'É ET
 A Le a rs
-Res : Rs
-;: LÉO 2 # à PRE US
-LOUE ë > ti
-L'ELT NES * LA © D TR
-TUNER & KR
-SE = Re à
 VERS ” NAN ant
 
-L RES DES Re EE RO MR PORN Cr +
 A nn a: = VE nn GE LE SRE PRES
-Le DRE RS De - HE re, Fe t5 5 EE:
-RE fa MS : à F ré FICtESS
-ET RS EREES LR MARÉES 7 Fa MAR
-En TL , : » Te "54
-Tes 5 = RE + 4 © Le 5e
-Le OS S | Fe
-ETES NBE = . À Lo ÈS
-SR TER TES
-RTE LE ENÈTE
-Rs 7 Res |
-4 ee £ As :
-* T Ë _ Te ER
-D D $ PR
-É LE LA ELURE : RS ET
-NON: - , + DR >
-DE = . n ; 2 ; 4385
-": S Es a 280
-_ LÉNES ER
-nr”, > à SR
-2 Y= ze, TS
-DE ; DRE.
-Rte : = Ti
-Ce n 4 = L x ‘a
-ST < DER.
-A : FE
-‘# k k en” # Ÿ
-Es per.
-= TEE ; Es;
-A RER |
-M - - Fa +
-LR: - »
-LR Re:
-A ro N RS
 
 D our RER ET RE Se FN MR en <
-A = s Q j RS nl
 ERA 2 x FER SNR de
-FPE > ES
 PAS Lars
-EX PRE 3 : 51
-pare” S'HPER
-À S-PERRRS Se CA
-= KT CRE nl Free
-nn. ï ; UT.
-LÉ; CPE F : #61
-LP URRTEN SEA Ree
-RS PE FREE s FF LEE
-LEA AS ER x A LT TER
 nn Ve SA Re
-TS NE x SE ARE D
-20 0 ES * EE x
-F2 À RS à
-+ HET à ; y,
-mt Ë 5 Fe M4 te 7
 
-EDR NAME SN rie
-PE UNS, à tr € ti RUES DER Satan PME ARE SMS ME
-ue \ FL TASER
-MR ns | ; SR
-5 PS, AE = E Seal
-: SRE RER F 4 VS NE
-& Sc (= TEE CES Fe
-IA Pose k É D:
-ES m2 " ; ? - 14% ES Ru
-F, ACTES s - LS RÈ LS OR
 _ l'égalité devant l'instruction
-De | ‘ Ke
-ACASS $ TRES
-% E : x éd TES
-KT Dre
 | #4 = < je TER
-Le € « 4 LA # La 1 .
-MERE .? D ::
-es AT: *« #x% à L » | vil A
-pa IT TRS À « Le A.
 
-ES ES CR En
-. CRISE DE L'ENSEIGNEMENT
-ITS - FRE
-L'ÉSR PS #G
 KW “+ Les À er ?
-PACA a ë Se
-CAE SRE 1 = à # L'ERERt re
-LACS 1 : * CES
-ne | FE
-AE FÉES
-RE: Fe : "à =
 ne ESA. AYr È RU
-s'8E ET € KES
-+ ie
-DR À te :e
-PERS È Là
-TEEN RES LES FEES F
-ST EE 3 RE
-PNR S = RSR
-D, È 45 ie
-DA ds re. *-HRNE AN
 
-+ PANNE Em) ss 5 ONE Se SO EL USERS à RTE LE
-SRE AS SAONE EC UT à RER M IT ET mA CU ETS
-ITS MN ER S 26 LOT EUR RE ET ER tie ARR RS TRE SITE ES
 RE D RE UE Ce Un et moe AS) 10 ROLE TE
-LCA NES : s AT 2 PTT SE
-LL : à FLD
-TS > ‘ LRU |
-"NOR VE = Ce (9) à 2%
-Se DRE à Ù À
-MRrT ur > E RICE
-A . - G $ : S Le
-7 RÉ RANTINER : æ AE D D
-RSR LE = Se 4 « CUS:
-COS TR ORRMAPENNEE Le À 4 à £
-k. FANS LS > : Eee =}
-PS Ta Lo El À N =
-Me Ci Er. De : ART : L -
-= LL SRE ee 0 Se 5 - s
-PR EE = | ; È #
-MR : 3 Ÿ
-f EVE RS *
-M d ; ei
-Re : | À
-a DCE FT - à à ‘4
-JL RPCESRESS $ |
-nn, + EX. Re
-1 PARCS sal
-: ASE rs es AS re Gear ="
-ir à Mi tis : er AV
-ES, Ne: ia .
 ne LE SE TRES *« tu
 
 PR CRUE VIA et cg SRE NON ie
-pe HHENSAM SAVE CRE FEU ETAT CT CREER î
-2 ARS à MÉTAMRE EEE SRE Œ LMGER SIP NRRRE Ke
-PATTES ; 1 S 21 NEO
-Fo SÆASNE
-Pr OR ENS Mo LU
-LA PRES RL “1/7 SCENE
-Ro IE a : x à 2 VA 4 HZ |
-3 'ANRCERES Fe ee
 : je TOUR 5 : on PERTE
-l'r 8e k Aix
-Fr TE * É % à
-E “HS Re > _ L 5 PAR :
-2e 2 12
-va En 2 MI - * Eu. TU RARES: :
-PA RUEES Dan Ù ES à
-LS SORTE < Se 2 ETRME
-- à
-É NES AT ÿ < S ae
-Re DRE à
-4 Se 7 pe Le RSR ARE)
-Lys Po LR Eee)
-ÉOTINLERCRES ) LE 0
 
-D 2
-3 :, 208
-SE AE Cp < CRE
-Re: IRÈESS
-D LA GRATUITÉ 1 LÉ TER
-CE : ê : + TM
-DANS L'ENSEIGNEMENT “À
-_ SECONDAIRE 7 FES
-$ RC AL. * Mar
-à 1400 SA k LES
-we more : F
-Rs ps Me
-EURO Fe
 DE es Le Ne
 
 de es CSN ONE ARRET OS LE VE Es Re LIST
 
-D RE PEAR Rem
 RS de Discours prononcé devant la Commission d'enseigness 52 ment du Congrès des républicains radicaux et radicauxLÉ ÉTESRREE A > 4 Ps NE <
 | socialistes, le rx octobre 1902. $ FESSES
 DORE on © LL LR EIRE
 pee, " L'AVGTENSES
-Sen ; = < 7 SSSR
-CRE è Le
-A. CR:  : VF UTERS RER ENEES
-
-1 y TETE = AT
-
-ST CR Re
 
 #2 CO o de, spl
-HER ; $ x EN
-ke LR : = EUR
-ue ©
-
-+ LR TERRES , 2 % Fe
-Deer FE £ ee PTE
-Tr + et
 
 if ce: RS <br RE RSS RSR) RSS
 
 a RE DES dt ae LE
 
-' ; -
-
 #4
-
-è PREMIÈRE PARTIE
 
 - La gratuité dans l'enseignement secondaire (1)
 
@@ -12970,9 +10680,7 @@ $ bien c'est simple : j'affecte à ma réforme la totalité du
 
 “ (1) Discours prononcé devant la Commission d'enseignement du
 Congrès des républicains radicaux et radicaux-socialistes, le
-11 octobre 1902.
 
-Alexis Bertrand
 budget des cultes, les trois quarts du budget de la
 guerre et les deux tiers du budget de la marine. Par ce
 temps d'anticléricalisme et de pacifisme, qui donc oserait faire des objections ? »
@@ -12998,9 +10706,6 @@ rieures qui leur permettront, sans l'aumône toujours |
 un peu humiliante et aléatoire des bourses, d'aspirer à
 légalité par en haut, égalité dans la haute culture
 intellectuelle, égalité pour les hauts emplois qui
-8 |
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 
 * devraient être départis, selon l'esprit de notre Déclaration, aux « vertus et aux talents » et qui fatalement
 _ sont plus ou moins réservés, dans la situation actuelle
@@ -13010,8 +10715,6 @@ dans son principe, vous parût insignifiante : par ses
 
 conséquences, c'est presque une révolution.
 
-I
-
 Êtes-vous donc, direz-vous, un admirateur de la
 réforme à laquelle M. Georges Leygues a attaché son
 nom, puisque vous semblez la prendre pour point de
@@ -13020,7 +10723,6 @@ outre que les réformes définitives durent en France,
 l'expérience le prouve, environ cinq ans, celle-ci est
 déjà si discutée, si décriée que vous pourriez bien
 construire votre édifice sur une base ruineuse, ruinée
-d'avance.
 
 J'admire si peu le régime des cycles que j'en avais
 d'avance signalé les vices presque irrémédiables. Je
@@ -13033,8 +10735,6 @@ l'autre; je les veux souples jusqu'à la fluidité, éclectiques jusqu'à l'indi
 | rieure ou, si j'ose le dire, le squelette ? Il affecte même
 de l'ignorer; les os, les muscles, les nerfs, la chair, il
 
-a : set
-Fe Alexis Bertrand
 É ne voit tout cela qu'en gros et ne distingue vaguement
 ces éléments dissemblables que comme un profane qui
 Fe n'aurait fait ni anatomie ni physiologie. J'estime qu'il
@@ -13065,9 +10765,7 @@ H : qu'avec sa quadrifurcation, il restaurait tout simple-
 4 ne se contente pas de la restaurer, il l'aggrave prodigieusement. Les pères de famille mettront trois ans à
 s'en apercevoir, mais quand ils s'en seront aperçus, ce
 seront de beaux cris de protestation. Remarquez, en
-È 10
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 effet, que des quatre sections du second cycle A, B,
 C, D, c'est-à-dire latin-grec, latin-langues vivantes, E
 latin-sciences, sciences-langues vivantes, les deux premières sont littéraires, les deux dernières scientifiques.
@@ -13095,9 +10793,7 @@ de l'enfant naturellement peu réfléchi et qui se déci-
 | bryonnaires, par l'entraînement de l'exemple, pour des
 | motifs encore plus légers, parce que.le nez de tel pro-
 è fesseur lui aura déplu. C'est plus qu'un crime, c'est une
-II
 
-Alexis Bertrand
 | faute d'avoir condamné un innocent à chercher à tâtons,
 fatalement exposé à être écrasé par Le lourd quadricycle.
 | Et qui le guidera, qui pourra le conseiller avec compétence et certitude ? Personne; et c'est là mon troi1 sième grief : il n'a plus à proprement parler de profesf seur attitré, il a des répétiteurs, des maîtres de confé-
@@ -13159,7 +10855,6 @@ même, qui dit université, dit au fond la même chose
 qu'enseignement intégral. Rien donc de paradoxal et
 de trop ambitieux dans cette dénomination : l'ensei-
 
-Ë Alexis Bertrand
 Î gnement primaire doit lui-même être un enseignement
 É intégral, le résumé mis à la portée des enfants de tout
 l'essentiel de la science de notre siècle.
@@ -13190,8 +10885,6 @@ s: développer méthodiquement toutes les facultés ou puisre sances des esprits
 à sciences classées et hiérarchisées.
 ï @) Voir l'Enseignement intégral, Paris, Alcan.
 | 14 ;
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 
 Loin de moi la pensée de vous exposer par le menu
 le régime d'éducation intégrale qui remplacera certai-
@@ -13224,9 +10917,7 @@ moindre velléité, en exposant la thèse de l'enseignement
 intégral, de briller par étalage d'un paradoxe, quelle
 déception! Le paradoxe était depuis près de cinquante ans singulièrement dépassé : il est vrai que
 
-P. Alexis Bertrand
 à depuis cinquante ans aussi la thèse proudhonienne était
-à totalement oubliée.
 EL ; Il faut donc l'exposer brièvement. Trois lois succesk" sives ont régi, selon Proudhon, le travail humain et
 ee . gouverné la classe des travailleurs : loi d'égoïsme, dans
 # l'antiquité, qui ne voyait dans l'ouvrier que l'esclave,
@@ -13257,10 +10948,8 @@ humiliations, aussi bien de la mystique pitié que de
 | 16
 #11
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 çoit qu'il est devenu, en fin de compte, le grand dispensateur des biens que la civilisation donne ou promet.
 Et dès lors surgit dans sa conscience réfléchie cette
-autre vérité : servilité, peine, condamnation, réproba- :
 tion, flétrissure, le travail n'est rien de tout cela. Il est
 temps de fouler aux pieds les vieux préjugés et de se
 redresser contre le blasphème. Que me parlez-vous du
@@ -13286,8 +10975,6 @@ méchant ». Et les malédictions sur les abus du machinisme industriel, broyeur
 « tombent comme un torrent vomi par l'Etna du bec de
 sa plume ». Nous n'avons su organiser ni l'apprentissage
 ni l'atelier : à chaque révolution, 89 ou 48, nous nous
-
-s Alexis Bertrand
 
 à sommes endormis dans un beau rêve, pour nous
 réveiller dans une réalité plus affreuse par le contraste.
@@ -13315,7 +11002,6 @@ e ont semé dans l'enthousiasme, il recueillerait dans la
 | plus compliquées. Et Proudhon se demande pourquoi
 1: le travail de l'ouvrier, compagnon du maître, ne serait
 pas « une réjouissance perpétuelle, une procession
-î triomphale ».
 | : Et voici la réalité : un homme exténué, pâle et hâve
 ï de privations et de souffrances, suant et peinant douze
 t heures par jour afin d'enrichir le capitaliste, le maïtre,
@@ -13362,7 +11048,6 @@ de l'intervention du pouvoir, en dépit même des asso-
 
 | ciations ouvrières. Il faut donc changer de tactique. Il
 | faut, pour relever la condition de l'ouvrier, commencer
-i
 
 | Alexis Bertrand
 par relever sa valeur. « Hors de là point de salut, que
@@ -13396,11 +11081,7 @@ L. assez fort pour ramener les faits à leurs lois, les vérités
 démontrées à leurs principes, n'échouera pas éternellefl ment dans la tâche, plus ardue peut-être, &e ramener à
 leurs instruments essentiels les métiers. IL accorde
 | d'ailleurs, nous l'avons vu, toutes les transitions que
-Î 20 ,
-{
-Ë
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 l'on voudra. De ces instruments essentiels enseignez le
 fonctionnement et l'usage, puis dites à l'apprenti: choisis
 maintenant ta spécialité pour la posséder en perfection ;
@@ -13421,9 +11102,6 @@ poulie et le chronomètre compliqué. On peut esquisser
 une sorte d'alphabet du travailleur :
 
 a) BARRE OU LEVIER (Pieu, tige, colonne, pal, piquet).
-
-b) Croc (crochet, agrafe, clef, sergent, valet, ancre,
-tenon, harpon, etc.).
 
 Chacun lachèvera à sa guise. L'idée neuve et
 féconde c'est que le travail manuel, vraiment éducatif
@@ -13469,11 +11147,7 @@ fait de la propriété un privilège, de l'aumône une vertu,
 : de la science un orgueil, de la richesse une tentation,
 de la justice une fiction, de l'égalité un blasphème et de
 1 la liberté une révolte ».
-È 22 ;
-Î
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
-II '
 La longueur de ce préambule se justifie par de fortes
 raisons que vous avez certainement devinées, car je
 n'ai pas oublié un instant que je m'adresse à la Commission d'enseignement d'un Congrès politique. Votre
@@ -13494,8 +11168,6 @@ rations rationnelles les plus sûres et les autorités philosophiques les moins 
 l'aboutissement inévitable de ce mémorable débat
 pédagogique qui vient, pendant quatre années, de pas23
 
-el: Alexis Bertrand
-Ce
 + : sionner en France tous ceux qui s'occupent de l'avenir
 EU du pays et qui pensent.
 48 C'est pour vaincre les préventions de ceux que le
@@ -13528,7 +11200,6 @@ prolétariennes : cet enseignement secondaire gratuit,
 qu'il soit entendu avant tout qu'il sera l'égal de l'autre ;
 je ne demande aucune faveur pour la classe populaire,
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 je ne fais que revendiquer son droit strict, l'égalité et
 la justice.
 
@@ -13552,9 +11223,7 @@ au développement intellectuel et moral et celles qui ort » le caractère profe
 _ l'enseignement général, s'imposeraient à tous nos
 élèves ; les autres s'offriraient à leur choix. Ainsi, au
 … lieu d'avoir de vagues connaissances, difficilement uti25
-IL
 
-c Fe Alexis Bertrand
 É FA lisables, l'adolescent, ayant l'intelligence ouverte et le
 f jugement formé, quitterait l'école après y avoir puisé
 f: les seules connaissances pratiques qui conviennent à sa
@@ -13582,7 +11251,6 @@ sais bien qu'entre la note supérieure bémolisée et la
 note inférieure diézée, les musiciens reconnaissent une
 : différence qu'ils désignent par le nom de comma. Mais
 
-; LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE :
 cette minime différence sufit-elle vraiment pour altérer ,
 léquivalence du certificat de l'école gratuite et du
 certificat de l'école payante? J'ajoute que si vous ne à
@@ -13615,9 +11283,6 @@ avec les écoles élémentaires ». Il inclinait pour « instruction intermédia
 
 _ d'honneur à son imagination. Mais on comprend son
 
-à 27
-
-ë Alexis Bertrand
 Le Ô embarras à une époque où personne ne pouvait supLe k poser qu'on püût, sans sacrilège, concevoir un enseiKi gnement secondaire sans grec ni latin : les « Collèges
 4 royaux », c'est-à-dire nos Lycées d'aujourd'hui, eussent
 k protesté par des clameurs d'indignation.
@@ -13647,15 +11312,9 @@ ce aux établissements où s'enseignent le grec et le latin,
 | i en dépit même de la langue française et de l'Aca-
 ë démie qui définissait le Collège « un établissement où
 ÿ l'on enseigne les lettres, les sciences, les langues et
-1]
-
-M nn Me à CAS #.
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE ë.
 
 où demeurent d'ordinaire plusieurs professeurs ou
 
-régents ». :
 Conséquence bizarre du mauvais choix d'un nom;
 
 dès le début, un puéril artifice typographique faisait °
@@ -13708,19 +11367,13 @@ ture sans pouvoir la forcer à fournir une appellation
 
 adéquate et de tout point satisfaisante. Guizot eût aimé
 
-écoles supérieures municipales; Villemain préférait
-
 écoles supérieures universitaires. Ce fut Salvandy qui
 
 inventa enseignement spécial; ce fut Duruy qui fit un
 
 sort à cette dénomination en l'appliquant à la section
 
-: 29 Il.
-
-Fi Alexis Bertrand
 4 moderne de l'enseignement des lycées et collèges.
-À à Carnot proposa collèges industriels; Fortoul, collèges
 ES 1 scientifiques; Rouland, collèges français. J'en passe, et
 k des meilleures! Cette énumération est instructive au
 +3 moins en ce qu'elle nous apprend que le mot collège fut
@@ -13751,9 +11404,7 @@ ra ; se meurt, le grec est mort.
 Je me serais bien gardé d''insister si longuement sur
 une simple question de nom si d'une part elle n'enve-
 | loppait une question de définition, puisque les mots ne
-Jon |
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE ù
 sont que les étiquettes des choses ; si, d'autre part, la K
 désignation vicieuse qui a été choisie, et qui s'est maintenue contre toute raison, n'exposait périodiquement k
 nos écoles primaires supérieures à un double danger $
@@ -13782,7 +11433,6 @@ quand il restait, la fiole remplie, quelques gouttes d'une é
 potion préparée : « Versez cela dans la thériaque ! Ce
 sera bon pour la thériaque ! » disait l'apothicaire à son
 
-Alexis Bertrand
 apprenti. La thériaque, vous le savez, c'était le grand ;
 bocal à panacée: un mélange de tous les remèdes
 % n'est-il pas un spécifique propre à guérir toutes les
@@ -13799,7 +11449,6 @@ actif, la quinine, afin qu'ils ne soient pas réduits à forcer
 : le doubler? Un enseignement supérieur, pourquoi le
 | parodier ? Le mieux n'est-il pas de supprimer purement
 Æ et simplement nos écoles primaires supérieures par
-8 transformation radicale en écoles professionnelles, en
 % écoles techniques? Le ministère de l'Instruction pu-
 : Ÿ blique, qui devrait s'appeler ministère de l'éducation
 ; nationale, est tous les jours invité à abdiquer entre les
@@ -13812,9 +11461,7 @@ secondaire, disait-il, est appelée à préparer des hommes
 à le programme, tout ce monde-là est oublié. L'omission
 à est un peu forte; car enfin, le travail industriel, dans
 f ses diverses formes, l'agriculture, le commerce, ce n'est,
-il 32
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 dans l'État, ni un accessoire ni un accident: c'est le Ne
 principal. Si l'Université veut justifier son nom, il faut 5
 qu'elle prenne parti dans ce sens, sinon elle verra se
@@ -13829,7 +11476,6 @@ d'élèves. Mais rien ne serait plus aveugle que de les
 multiplier au détriment de la culture générale, au
 moment surtout où nous voyons, par l'essor même du
 machinisme, l'ouvrier devenir ingénieur, ingénieur-
-électricien, ingénieur-chimiste, ingénieur-agricole. Ingé-
 nieur c'est le mot à la mode, dans le langage usuel
 comme dans les comédies et dans les romans ; mais ce
 mot implique une culture générale, suppose des connaissances théoriques. Et je n'entends pas dire simplement que notre premier métier c'est notre métier
@@ -13847,13 +11493,7 @@ ne sont pas leurs succédanées : si elles se réduisaient à
 ce rôle ce serait un suicide partiel de l'intelligence
 française, une brèche irréparable à notre capital intel-
 
-15 na SR
-AS
-
-1 Alexis Bertrand
-
 1 lectuel, réserve énorme mais non pas inépuisable de
-{ force vive. ;
 
 4! 3 Où donc ai-je lu cet apologue ? Minerve et Gribouille
 : voyageaient un jour de compagnie. Ils arrivèrent à un
@@ -13868,10 +11508,6 @@ i: Quand elle eut achevé ses croquis et ses calculs, elle
 à de son voyage. A vouloir persuader son compagnon,
 Mte Minerve avait perdu son grec.
 
-+
-
-Je =
-
 41 Voici donc à quelle conclusion aboutit toute cette
 4 suite d'arguments à la fois pédagogiques et politiques.
 e. Nous voyons distinctement, quoique encore dans le
@@ -13883,10 +11519,8 @@ $ lement par la complète liberté d'option au sujet de
 fu l'étude des langues soit anciennes, soit modernes, étude
 js considérée non comme un accessoire, mais comme un
 2 indispensable complément, au double point de vue de
-ÿ 34 À
 
 ER + PONT je Fe aie DOME Le RO re
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE 4
 
 la culture de l'esprit et de l'utilité pratique, de l'étude ss 5
 des sciences. Nous reconnaissons, convaincus par un “à
@@ -13894,7 +11528,6 @@ examen attentif de leur origine et de leur évolution, a
 par l'analyse exacte de leurs conditions d'existence M
 dans notre système d'enseignement général et profes- 3
 _ sionnel, que nos Écoles primaires supérieures sont de SA
-véritables Collèges modernes, français, gratuits. D'autre +
 part, nous nous heurtons à ce dilemme : l'opinion ré-
 clame impérieusement, au nom de l'égalité et de la à
 justice, la gratuité des études secondaires; tandis que |
@@ -13919,8 +11552,6 @@ supérieur, des Universités, ouvert aux fils de paysans
 et d'ouvriers. Ne me dites pas : voilà précisément le
 
 LE À e Pi Are FRS
-L D
-Alexis Bertrand
 nn: danger; votre réforme produira non pas un grand bien,
 1h comme vous paraissez le croire, mais un grand mal, la
 a: course aux emplois, la curée des places, dont nous souf-
@@ -13949,15 +11580,11 @@ se douze millions qu'exigerait la gratuité de l'externat des
 Le nient de ne profiter qu'à un petit nombre, mais encore
 * - celui d'enrichir les riches en mettant à la charge de
 k l'État une dépense qui ne leur est nullement oné-
-: reuse.
 Quant au progrès politique et au gain social qui
 } résulteraient de cette réforme si minime en apparence,
 : 3 si grosse de conséquences en réalité, j'ai à peine besoin
 : . de vous l'indiquer. Vous avez, comme moi, entendu
-k 36
-D:
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE Fi
 hier vos plus vibrants orateurs s'élever avec une véhé- é
 mence presque inquiétante et contre l'inamovibilité de BR
 nos magistrats et contre la constitution de nos conseils Fée
@@ -13983,7 +11610,6 @@ nation, c'est la fin, du moins théoriquement, d'une
 situation anti-sociale et pleine de périls. Il ne faut pas
 simplement l'octroyer au peuple, il faut le déclarer un
 droit du peuple, le rachat et la rédemption de la pau- À
-vreté.
 
 Je plaïdais un jour la cause de l'instruction, et parti- :
 culièrement des études secondaires, dans un milieu
@@ -13992,9 +11618,6 @@ tants » me firent des objections qui me donnèrent beau- .
 coup à réfléchir. — L'instruction ! disait le premier, ;
 c'est fort beau; mais aux yeux du parti ouvrier, c'est
 
-III
-
-< à é Alexis Bertrand
 # s un leurre, une duperie : le temps qu'on use à s'instruire,
 4 . c'est du temps volé à la lutte de classes. — Redoutable
 nil argument et irréfutable, car il se rattache à une quesMi tion mystérieuse de tactique des partis : je me contentai
@@ -14025,8 +11648,6 @@ id d'oublier ceux qui luttent encore. Qu'il se sente non
 Le plus isolé, supporté et dédaigné, mais entouré de com58 0
 
 SPP RS RTE RER Et SP er nd US OUT) a pi ER
-_ LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE “à
-Ne:
 pagnons de sa trempe et de sa classe, il relèvera la s
 tête et, avec la fierté, vous le verrez reprendre la volonté É
 etl'audace. Qu'un seul puisse s'élever, avantage indivi- 4
@@ -14034,7 +11655,6 @@ duel socialement insignifiant ; que tous le puissent, à la ?
 seule condition d'en avoir les capacités et le talent, sans à
 autres privilèges, sans aumône et sans charité, voilà |
 l'avenir, renouvellement de forces, entretien de sève, :
-rajeunissement social.
 Décléricaliser l'enseignement secondaire par l'abro- F0
 gation de la loi Falloux, c'est bien; démocratiser l'enseignement secondaire par la gratuité, c'est mieux. La
 seule originalité que je revendique pour le plan que je
@@ -14056,10 +11676,6 @@ sur la surface du pays, éveillant partout les aptitudes
 et échauffant partout les vocations. En un mot, l'échelle
 de la connaissance humaine dressée fermement par la
 
-fe
-
-4 Alexis Bertrand
-
 # main de l'État, posée dans l'ombre des masses les plus
 M profondes et les plus obscures, et aboutissant à la
 1 Ÿ lumière. Aucune solution de continuité. Le cœur du
@@ -14073,7 +11689,6 @@ ja bien étonné et, en dépit de cette tirade immense,
 % légèrement sceptique, si on lui avait affirmé avec
 dl certitude que moins de cinquante ans plus tard l'en- 9
 F1 seignement primaire gratuit et laïque seraït instauré
-4 en France.
 
 À Notre époque positive n'est plus d'humeur à se
 rl : leurrer d'un idéal inaccessible, à s'hypnotiser d'un
@@ -14087,18 +11702,13 @@ ri à la constater qu'à la créer : elle existe virtuellement
 " sement le capitaliste généreux qu'il avait invité à lui
 É fournir le million nécessaire pour organiser son preLS mier phalanstère ; pareille attente ne nous sera pas
 } infligée, puisque nos pères ont créé les phalanstères des
-% études gratuites.
 
 1 Les objections sont plutôt de l'ordre idéal que de
 À: l'ordre réel, sans être pour cela moins redoutables.
 # Elles sont de deux sortes, les unes pédagogiques, les
-pi
 
-1 ; F « #7 * ci - : 4
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 autres sociales et politiques. Les unes et les autres ce
 s'évanouissent devant un examen impartial et appro- à
-fondi. É
 Me plaçant d'abord au point de vue pédagogique, n
 je mettrai sans hésiter en pleine évidence ce qui +
 pourrait sembler le point faible et ruineux de mon :
@@ -14124,8 +11734,6 @@ siècles de l'âge d'or dont parle Joseph Bertrand dans
 son éloge de Poinsot. Pour être admis dans la première
 École polytechnique, « les jeunes citoyens devaient
 donner des preuves d'intelligence, en subissant un exa-
-{
-4x |
 
 | Alexis Bertrand
 men sur les éléments des mathématiques ». La méthode
@@ -14141,9 +11749,6 @@ Voulez-vous une brève et sèche énumération des matières que l'on enseigne d
 remplacera, autant que possible, le parallèle minutieux
 que j'ai fait personnellement des programmes et que je
 suis bien forcé de vous épargner. (1) Je copie: « Morale,
-français, histoire, géographie, droit usuel, arithmétique,
-algèbre, géométrie, arpentage, nivellement, trigonomé- |
-trie, physique, chimie, histoire naturelle, anglais, allemand, comptabilité, dessin linéaire, dessin d'ornement,
 
 : écriture, travaux manuels, gymnastique, chant, agriculture. » S'il n'y a pas dans cette masse encyclopédique
 l'étoffe suffisante pour faire un bachelier, il faut en con- |
@@ -14160,11 +11765,6 @@ qui veut paraître sans être, qui emmagasine sans s'as-
 
 (4) Voir les annexes, à la fin du cahier.
 
-TRS
-
-2: 20 :
-F LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
-É
 | similer, est en raison directe de l'ampleur des pro1 grammes. Quand ils croissent en progression arithmé-
 : - tique, elle s'accroît en progression géométrique. On
 ; avait promis d'instituer dans les Collèges et les Lycées
@@ -14193,13 +11793,8 @@ ni laiin, est du secondaire authentique ? N'y apprend-on
 le primaire ? Puis, croyez-vous que vos fils de bourgeois
 . déploient pendant sept ans le même effort tendu et
 [ énergique que déploieront pendant quatre années les
-“à
-
-=
-F0 “ 3
 
 Fe AS g ” Rte: ee + OU AFTER RE
-î Alexis Bertrand
 '' mieux doués et les plus laborieux des fils de prolé-
 D - taires ? Encore une fois, je m'en réfère à l'expérience :
 che elle nous a donné cent fois la démonstration que l'ancien
@@ -14230,11 +11825,8 @@ brutalement, mais qui se glissent entre les lignes des
 1 l'une primaire, l'autre secondaire, mais il est très vrai
 ‘ qu'à égalité de savoir, il y a la science des bons et
 "k solides esprits et la science des autres, des esprits boije teux et mal conformés : ce ne sont pas les mots de
-à:
-v :
 je
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 primaire et de secondaire qui en décident, c'est le
 métal même de l'esprit.
 
@@ -14267,10 +11859,6 @@ places et de la course aux emplois.
 
 Ce fléau proprement français, vous avez sans doute à
 
-45 ur.
-
-4 Alexis Bertrand
-
 ja cœur de l'enrayer et vous devez craindre que l'extencs sion et la gratuité des études secondaires n'en redouble
 ï. les menaces et les ravages. Telle n'est pas mon opi-
 |. nion : l'enseignement que j'appelle intégral « et qui emde brasse tout l'homme et tout le peuple, porte en lui un
@@ -14299,10 +11887,7 @@ ht lobéissance. Surtout n'oubliez pas qu'intégral veut dire
 à bourgeois nous sommes, il faut bien avouer l'évidence;
 à et je plains nos fils qui auront à lutter contre la plus
 A redoutable des concurrences. Croyez-le, ceux qui se
-Fe
 
-LES 3 RTE »-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE se
 montrent si réfractaires à la vraie réforme et s'efforcent ;
 tant qu'ils peuvent de la retarder, sentent confusément F
 ce péril de leur classe et de leur caste:; ils se refusent +
@@ -14331,8 +11916,6 @@ proie. La fonction, disent les physiologistes, crée l'organe : ici, c'est l'org
 réclame impérieusement, la dent qui ne peut que
 
 FE à RU Ne ue
-:
-4 Alexis Bertrand
 
 ï broyer, la griffe qui ne peut que saisir et déchirer. Ma
 
@@ -14350,7 +11933,6 @@ division de cavalerie de monter à cheval et d'exécuter
 f: mais l'hypothèse ? — Comment, l'hypothèse; que vou-
 À lez-vous dire ? — Eh oui, dans quels cas, à la guerre,
 ù exécuteriez-vous ces mouvements ? » Les manœuvres
-\ continuèrent ; formations irréprochables en colonnes
 É serrées, à allure vive, et toujours Grant de demander :
 à " « Et l'hypothèse? » Et Forey de répondre : & Il n'y a
 à pas d'hypothèse. » On nous assure que dans notre
@@ -14366,11 +11948,8 @@ passive et simplement réceptive de la théorie figée et
 | Tant que notre enseignement secondaire a oublié l'hy2: pothèse, il n'a pu produire que le factice et Le stérile.
 É L'hypothèse, dans l'armée, c'est la guerre; l'hypothèse,
 
-at
-
 | LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE
 dans l'enseignement, c'est la vie, la vie sociale avec ses
-innombrables activités.
 
 Activités, dis-je, innombrables, et par conséquent
 
@@ -14395,8 +11974,6 @@ d'être », et que les jeunes gens des campagnes, loin de
 se ruer aux places, vont nous laisser manquer d'instituteurs. Cette rupture d'équilibre entre l'offre et la
 demande, cette grève curieuse des coureurs de places,
 
-4 : AUS
-; Alexis Bertrand
 ; méritent d'être analysées de près; je n'en retiens que
 % cette remarque : plus il y a de jeunes gens, semble-t-il,
 4 capables de remplir un emploi, moins il se rencontre
@@ -14424,7 +12001,6 @@ fe de pères de famille demain, ne cessent de déclamer
 Fi choisi; mais qu'est-ce qu'un monopole qui coûte des
 H millions ? En quoi mérite-t-il le même nom que le mo-
 
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE |:
 nopole des tabacs, qui remplit les caisses de l'État ?
 Dites au moins : service public, comme l'administration de la justice ou l'entretien d'une force publique ;
 permanente, et reconnaissez que ce prétendu monopole,
@@ -14451,8 +12027,6 @@ exagérée, peut-être, de détails pédagogiques. Je vous
 invite, au nom des intérêts politiques permanents du
 pays, qui résident dans l'éducation des citoyens, au
 nom des intérêts électoraux d'une politique à larges
-
-‘à Alexis Bertrand
 
 ! vues et à longue échéance, à base de justice distribus tive, d'équité et d'égalité sociales, à adopter d'abord,
 ° puis à m'autoriser à proposer et à défendre demain, en
@@ -14482,10 +12056,6 @@ ji primaire et primaire supérieur, sans que les ressources
 Al quentent ces écoles gratuites, fils de paysans, d'oun. vriers, de petits commerçants, des avantages et des
 5 droits que confèrent, à leurs camarades des lycées et
 1 des collèges payants, les certificats et diplômes de
-: 52 :
-“14
-
-LA GRATUITÉ DANS L'ENSEIGNEMENT SECONDAIRE À
 
 l'enseignement secondaire, alors qu'il y a identité d''ef- 4
 forts, de culture et de talents; ee
@@ -14510,65 +12080,24 @@ emplois que leurs camarades de la section D du second
 cycle des lycées et des collèges. (1)
 (1) Le vœu a été adopté à l'unanimité dans la séance du 12 octobre 1902.
 
-Re SU OR LUN PT AREA
 Dr NRA te LE « à SR Er. LA PEOMEATE je
 ALFA el s LOT CN ME ENT VU 1 0CE po RS LE
-LE SLR « À r LU LIN ST STE A
-LR ENS : È À Et FRERE PSE
-ne : à SRE PNR s ;
-a Tu 2e AE * *- k L 1
-F4 + ATRaE Se s: à La us
-FES £ ; al à FSC ; ") ra s
-LES : We” ET
-RTE ) RE
-2 FES à: # - rs EN RS ;
-Si FH lan F RTE
-LE 4 | ER +" , c Ke 54
-LIRE LT. E
-NC > He ‘4308
-a RAD.
 
 ce 5 bn Sig pet RÉETsE Re 4 Lee BE 36 Des L FRSNE
-LITRES D.
-Re ÉCENSEIGNEMENT: INTEGRAL =
 ni: ‘ ET:BES : me
-__ HUMANITES SCIENTIFIQUES É.
-3 é der ”
-= : rs
-ee x D s 26
 3 À br dl L 2 LR
-+ res
-à + 7
 dE : té we AY
-ù UP: :
-PERS D. |
 
 pi 4 Le ht À RP
-; Me Dr ot.
-VE }
-LS
-L'ENSEIGNEMENT INTÉGRAL
-ERLÈES
-HUMANITÉS SCIENTIFIQUES
-1e
 
-SSSR RS
-2 LS TM EE ai Pen ART LAS RE SRE ER
-ARE A | D
-LS Re
 Contribution à la grande Enquête parlementaire su
 # ne l'Enseignement secondaire, de 1899; introduction;
 Lo ai ss . . Tu M:
 _  déposition devant la Commission d'enquête, compte
 rendu sténographique officiel, séance du 22 mars 1899;
-commentaires. S LEE:
 #3 RAR $ En
-$ 2 Le Pal
 
-DEUXIÈME PARTIE
 L'Enseignement intégral et les Humanités
-scientifiques
-I
 
 « Testament politique de l'impuissance universitaire
 au dix-neuvième siècle » : c'est en ces termes plutôt
@@ -14590,7 +12119,6 @@ k Ô résultats? — J'estime qu'il faut, à ses risques et périls,
 al dire ce qu'on croit être la vérité, surtout ne pas regretter
 L de l'avoir dite. Quant à l'Enquête elle-même, on doit
 ‘4 désormais la juger comme un fait objectif et histo-
-î ; rique.
 | Elle eut le tort d'être plutôt une vaste interview
 à qu'une véritable enquête. C'était pourtant, méthode et
 3 résultats à part, un curieux et réconfortant spectacle
@@ -14617,9 +12145,7 @@ u pour les dimensions, une tour de Babel pour la confusion
 ï Égypte il y avait autant de médecins que l'on peut
 2 dénombrer de parties dans le corps humain, l'un pour
 ë le nez, l'autre pour les oreilles, celui-ci pour l'estomac,
-: 58
 
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES 5
 celui-là pour le ventre; chacun soignait la partie du À 4
 corps qui lui était dévolue, s'y bornait scrupuleusement, s
 et si, chaque membre guéri, l'homme mourait, c'était #
@@ -14649,9 +12175,7 @@ désespoir de cause, suivre le conseil de Platon. Dans sa
 République Platon, pour faire des mariages assortis et
 assurer l'avenir de la race, charge les magistrats de
 tirer au sort les conjoints, mais il leur permet, il leur
-59 $
 
-à Alexis Bertrand
 ' recommande même de tricher un peu et de guider disLe crètement le sort, innocente supercherie qu'il croit
 ME nécessaire au bien de l'État. On pouvait aussi recourir
 à à la pratique du Moyen-Age des Sorts Virgiliens. On
@@ -14678,12 +12202,9 @@ hi désordre. Sériez les questions, disait Gambetta. Le ha5 sard, la fatalité 
 de procéder logiquement, qu'il eût fallu choisir. La loi
 ue Falloux dominait, pédagogiquement parlant, tout le
 4 débat, à cause de la question du baccalauréat qui terje mine les études et qu'il était extraordinairement difi4 cile de supprimer ou de réformer, parce que l'enseigne-
-(
 4. 60
 4 0
-:f
 
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES na
 ment congréganiste était alors une pierre d'achoppe- 4
 ment. Un décret ministériel avait antérieurement réor- ÿ
 ganisé l'enseignement des langues vivantes. Je me ë
@@ -14696,7 +12217,6 @@ pour les hôtels cosmopolites. Si elles étaient destinées
 leur enseignement à ce rôle nouveau et les faire servir
 le plus possible à la culture littéraire. Elles pouvaient
 peut-être devenir éducatives sans que leur caractère
-d'utilité pratique fût compromis.
 
 Le Conseil supérieur de l'Instruction publique souffrit
 lui-même de ces errements, je n'ose dire de ces erreurs,
@@ -14715,11 +12235,6 @@ précisément à cause de son caractère syncrétique, trop
 de coins et de recoins obscurs et inquiétants. Je n'ai
 rencontré, pour l'approuver sans restriction, que ces
 
-6x
-IV
-
-No. Alexis Bertrand
-“
 : Pandores de la pédagogie dont le veule éclectisme,
 230 l'optimisme béat dit à chaque système : Brigadier, vous
 Mi avez raison! s'inclinent avec onction et componction
@@ -14748,12 +12263,9 @@ i broute : voilà l'élève embrigadé et ensectionné; pas un
 : clopédies reliées en veau. Trop de connaissances et
 É pas assez de science. On oublie trop que dans la science
 Ë même il ne faut estimer que ce qui nourrit et fortifie
-Î G2
 |
-h
 
 Shen HI ENS ee NE
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES a
 lesprit; que les sciences ont des coins et des recoins x
 ténébreux où il est inutile de s'égarer et dangereux de “a
 se perdre; qu'à vouloir saisir toutes les branches, même 4
@@ -14784,8 +12296,6 @@ sciences, en C et en D, beaucoup trop chargés, mais on
 a mis le professeur de philosophie dans la plus bizarre
 situation : en À et en B, il a dans son programme « Dieu
 
-Él,
-D Alexis Bertrand
 L et l'Ame »; en C et en D, il n'a plus ni dieu ni âme.
 li Forte distraction, car enfin, si Dieu est une quantité
 négligeable il semblait qu'il fallût l'éliminer totalea ment; mais, pour alléger le programme philosophique
@@ -14817,8 +12327,6 @@ prouvé dans mon Enseignement intégral, à René Des-
 j tradition française et aux plus hautes autorités scienti-
 \ fiques et humaines.
 
-ENSEIGNEMENT INTÉGRAL HUMANITÉS SCIENTIFIQUES
-
 Je n'éprouverais de déception et de regret que si le 5
 lecteur condamnait mon projet comme ayant l'appa- S
 
@@ -14829,7 +12337,6 @@ science des d'Alembert et des Joseph Bertrand était,
 par elle-même et en tant que science, anti-littéraire ;
 comme si la Béotie, de mauvais renom artistique et
 littéraire, était justement la terre de prédilection des
-savants ?
 
 Si Renan vivait encore, je suppose qu'il nous conseillerait de faire avec lui une fervente prière sur l'Acropole et de réciter, pour obtenir qu'elle nous éclaire et
 chasse les ténèbres de notre esprit, les litanies de
@@ -14847,13 +12354,6 @@ cycles dans l'éducation des jeunes Athéniens, la gymnastique et la musique, la
 parole, c'est-à-dire les Sciences auxquelles obéissent les
 Arts, que président les Muses. Vous me demandez
 quelle est la meilleure éducation : c'est la Science transformée en Sagesse.
-
-65 IV.
-
-Alexis Bertrand
-N
-IT
-DEVANT LA COMMISSION PARLEMENTAIRE (1)
 
 M. le Président. — Monsieur Bertrand, vous êtes
 professeur de philosophie à la faculté des lettres de
@@ -14879,10 +12379,6 @@ crise des lycées. Je crois que le baccalauréat, — il a du
 moins l'utilité d'une enquête, — donne la preuve trop
 
 (1) Compte rendu sténographique, séance du 22 mars 1899.
-
-66 j
-
-. “4ù DEVANT LA COMMISSION PARLEMENTAIRE
 
 L décisive du contraire. La crise n'est pas localisée aux
 | É établissements de l'État : elle sévit partout, si l'on n'en4 tend parler ni de l'enseignement primaire ni de l'ensei-
@@ -14910,10 +12406,6 @@ k qui ne répond plus à rien de réel, cette continuité vague
 # Ë condamnerait les jurys d'examens de passage à un iné-
 # vitable arbitraire, singulièrement aggravé par la crainte
 Re : toujours plus grande, partout ressentie, de perdre des
-el « unités ».
-FA 4 67
-
-Alexis Bertrand
 
 La cause de cette déformation est facile à reconnaître : c'est l'invasion des sciences ; elles se sont pré-
 cipitées toutes ensemble dans un système préparé uniquement pour l'enseignement des lettres et l'ont brisé.
@@ -14945,9 +12437,6 @@ celle de Kant, qui déclare avoir imité Copernic.
 Voyant qu'il fallait imaginer orbe sur orbe, épicycle
 sur épicycle, pour expliquer tant bien que mal le mou-
 
-68 ;
-
-DEVANT LA COMMISSION PARLEMENTAIRE
 vement du soleil autour de la terre, Copernic se dit :
 Supposons que les choses se passent autrement et que
 ce soit la terre qui tourne autour du soleil. Je demande
@@ -14960,7 +12449,6 @@ $ la méthode de Copernic et de Kant dans l'ordre péda-
 ù gogique. Ce n'est d'abord qu'une hypothèse; elle sera
 “ _ ensuite légitimée par ses conséquences; le procédé est
 à régulier et scientifique. Examinons l'hypothèse et ses
-FA conséquences.
 LA Ce qui a manqué aux grands pédagogues de la RévoLi lution, à Condorcet par exemple, pour fonder sur le roc
 $ l'enseignement secondaire national, — (à mon avis, l'enrs seignement secondaire est en décadence depuis cette
 % époque), — c'est une bonne classification des sciences.
@@ -14982,9 +12470,7 @@ insiste, je ne demande pas moins de lettres ; mais si
 
 ‘ sature intérieure des études, le noyau, le centre, je
 ‘à constate que tout devient intelligible et qu'il n'est plus
-À 69 -
 
-Alexis Bertrand :
 besoin de tous ces orbes et épicycles pédagogiques. Ce
 “serait le terme d'une évolution ou l'achèvement d'une
 révolution qui se fait actuellement sans nous, sinon
@@ -15001,7 +12487,6 @@ intentions ; elles ont eu, au moment précis où on les
 réalisait, leur nécessité, partant leur utilité; je cherche
 donc la logique de ces réformes, leur ligne de convergence, et je trouve qu'il y a au fond unité de direction
 . en dépit des tâtonnements, des hésitations, même des
-retours en arrière.
 Cette orientation des réformes, c'est, pour la définir
 en un mot, l'introduction progressive, mais peu méthodique, des sciences dans l'enseignement secondaire : ce
 fut l'esprit de l'enseignement « spécial » de Victor Duruy
@@ -15016,14 +12501,11 @@ Je vais essayer d'adapter à la réforme de l'enseigne-
 à ment la classification des sciences d'Auguste Comte.
 Non que je prône ou que je prêche le positivisme, mais
 
-% DEVANT LA COMMISSION PARLEMENTAIRE
 | parce que la classification de Comte, détachée du
 système, me semble éminemment propre à guider la |
 pédagogie de l'enseignement secondaire. Tout le monde
 sait qu'elle échelonne et hiérarchise les sciences de la
 - mathématique à la morale : 1° mathématiques; 2° astro-
-…_  nomie ; 3° physique; 4° chimie; 5° biologie; 6° sociologie ;
-7° morale.
 ; Cest l'ordre du développement historique des
 à sciences, Avec Comte, je crois que chaque esprit indi-
 ë. viduelse développe comme s'est développée l'humanité :
@@ -15049,10 +12531,8 @@ ___ dix-huit ou de treize à dix-sept ans.
 ia 1 Je me hâte de répondre à plusieurs objections ; et
 F d'abord le mot « sociologie » va paraître insolite : il est
 M; . pourtant déjà consacré par un usage européen, uni-
-+ ii
 #
 
-Alexis Bertrand
 versel. La sociologie de l'enseignement secondaire ne
 sera guère autre chose que ce que nous avons étudié en
 philosophie sous le nom de morale sociale en y ajoutant
@@ -15065,7 +12545,6 @@ classification à laquelle je ne crois pas nécessaire de
 rien changer; la sociologie classique, c'est donc au fond
 l'ensemble des problèmes de la morale sociale traditionnelle, avec les compléments historiques et économiques
 indispensables. C'est la plus nécessaire de toutes les
-études.
 M. Henri Blanc. — Vous dites que la première
 année serait consacrée à l'étude des mathématiques ;
 mais, par mathématiques, vous entendez les mathématiques élémentaires ; dans une année vous ne feriez pas Ë
@@ -15081,10 +12560,6 @@ jamais, chez quelques-uns.
 Voici ma réponse : je débute, il est vrai, par les
 mathématiques ; seulement, la remarque est d'importance capitale, l'élève a quatorze ans; il a appris par !
 une solide initiation primaire tout ce qui, dans les Ï
-72 |
-ns t
-
-; DEVANT LA COMMISSION PARLEMENTAIRE
 
 | mathématiques, est empirique et pratique; il sait
 
@@ -15098,7 +12573,6 @@ M. le Président. — Enfin vous faites deux séries
 d'études : une forte assise d'études primaires, et ensuite
 
 | un enseignement plus complet qui se rapproche d'un
-enseignement secondaire supérieur ?
 M. Bertrand. — Je le voudrais élémentaire, simplement élémentaire. Mais, à la différence des mathéma-
 | tiques de l'enseignement primaire, celles de l'enseignement secondaire sont essentiellement théoriques, ce
 | qui ne veut pas dire supérieures ou transcendantes.
@@ -15109,7 +12583,6 @@ M. Bertrand. — Je le voudrais élémentaire, simplement élémentaire. Mais, �
 | « supérieur » et l'enseignement « supérieur » ou des
 | universités.
 | M. le Président. — Mais la sociologie est déjà une
-étude supérieure ?
 
 M. Bertrand. — Je demande grâce pour son nom et
 sa jeunesse ; au fond, elle est presque familière à l'instituteur, sous le nom d'enseignement civique; au
@@ -15118,9 +12591,6 @@ professeur de philosophie, sous le nom de morale
 sociale; il n'y a sur ce point qu'à compléter et à systé-
 matiser un enseignement qui n'est pas à créer de toutes
 
-à:
-
-2 : Alexis Bertrand
 ‘ pièces. Un bon enseignement sociologique est de
 première nécessité pour notre pays à tous les degrés
 G des études.
@@ -15146,12 +12616,10 @@ pêlerin qui avait fait vœu d'aller à Rome en faisant
 scrupuleusement trois pas en avant et deux pas en
 arrière : il arriva, mais c'est miracle.
 M. le Président. — Et vous êtes d'avis d'avoir un
-seul genre d'enseignement ?
 M. Bertrand. — Oui; un seul type de lycées ; mais
 je serais enchanté que l'expérience fût faite d'abord,
 
 ions ja dy ha on Fe Me MNtet PE PAT OR PE a:
-Re DEVANT LA COMMISSION PARLEMENTAIRE 3
 _ comme sont conduites les expériences scientifiques,
 …_ sous la formeprudente d'une expérimentation restreinte.
 . _ Voici mes raisons : Je tiens beaucoup à ce que l'ensei4 è gnement secondaire soit ramené à l'unité ; je dis comme
@@ -15185,10 +12653,6 @@ liberté absolue à l'élève de résoudre pour son compte
 personnel, à ses risques et périls, ce qu'on a appelé la
 |
 15 7
-à
-
-D k M LD dt RE dd à
-Alexis Bertrand
 
 « question du latin ». L'élève, loin de se borner à son
 bagage scientifique, doit, outre le français, étudier à
@@ -15222,8 +12686,6 @@ faut opter. L'art d'enseigner a cela de commun avec
 l'art d'écrire qu'il consiste à choisir et vit de perpétuels
 sacrifices. M. Fouillée, le grand interprète de Socrate et
 de Platon, qui connaît le « divin Platon » mieux qu'il
-
-ARE
 
 | DEVANT LA COMMISSION PARLEMENTAIRE
 
@@ -15272,74 +12734,19 @@ Pour résumer, je dresse ce tableau, qui représente,
 par le nombre d'heures dévolues à chaque professeur,
 l'importance relative des enseignements et toute l'économie du lycée ou du collège de demain :
 
-À
-Alexis Bertrand
 env | mm NNm a N Om ON mm Ni
-2 ©
-2 26 E &
 tolO Le SE mme HE Me E Eh tete
-= $ © = Si
 
 ENE Te DER Dee DU
-4 PE -.#= 4 |, 1 QU CHERE
 sis: | CES al Cor ler
-ÉA DET : ES - me OL Free | 14
-[al OR H . CRT © © ® 282:
 
-© eZ © … © AE Oo e
-1 . SET Lee Sue - ua Oo:
-[a] dr RENE 2,3 Rx DR
-x ca CSA BF 28. 222 . don
-Z SERRE SR Le RENE CREME
-Q 5 ® © à 5 & 9 2 5 É% 3 4% © 9
-
-© D An 27 3 3 D—- a SE dei
-SA ET S EL = Oo © 2 &À ©
-L655 | SSES |'ÉS es 5 & © à
-SRE S FHE S SRE Gex Es
-Lost | S6s | Less | 5%
 2 DE ok 2 à on En ÉtTos
-20 esEes S s 02 S 20 's
-D 2 Fan LE na = »% 2
-S228 LEZ CS £ © s « © ©
-AUVEA AñOA é£zkA £AAA
-saua | + + << SN Zee co =# « © ©
-E à A © 2 © FA « n
-CEST DE © EP 9,119
-2-1 Q = 9 — -
-ARE ER Len NUE
-2 ER S'en sis © & .5S
-Ti ex + Ë A pet Bic
-2 a DE? EREF RUE # De ?
-< 2SS « 2 2ES eu 2 S a £Ÿ SE "2
-à 5 © © = © © . 2 2 = en
-= | Sr ie Et Ge mes = — =
-© 5 © © © © © © . © © © o © © ©
-EN EE DE n £ 49v$é
-gsas | Ssés |-28as leRas
-Bosnul: 3 0 Suilroe Polo
-L = & a = CORTE T2 x DS
-ES: À © mi = © min à © oO: A ©
-Æ © & À REEA ATEA AEERA
 RP ST Con en CE SR ET Re 6
-éà| a > © 2 2 2
-£, 2 OMS Fo À Ee à £e ©
 ES SD de En SU 2C" LOTS so 9
-2 = ESISS 8Sl% BSI< ESIS
-5 À SS Sa IS >? 56.4 S3 ©
-D & HOT CRE: £S à = o
-© R& Ê [= Cx E s) A
 
-'
-É
-78 à
-
-” x VZ%
-DEVANT LA COMMISSION PARLEMENTAIRE
 M. le Président. — Voulez-vous nous dire, en terminant, quelques mots du baccalauréat? Vous êtes à #
 Lyon dans une grande faculté, vous faites passer des ;
 examens; croyez-vous qu'il y ait utilité à toucher au
-mode d'examen?
 M. Bertrand. — Si on touche au baccalauréat,
 comme on ne détruit que ce qu'on remplace, il faut le
 remplacer, et par quoi le remplacer, si ce n'est par les
@@ -15352,7 +12759,6 @@ aux élèves des matières de vers latins. » Or on ne fait
 plus de vers latins, la caractéristique de cette classe a
 disparu. La caractéristique de la deuxième était la
 | narration latine; celle de la rhétorique, le discours
-latin…
 M. le Président. — Vous êtes d'avis de maintenir
 le baccalauréat?
 M. Bertrand. — Je le regarde comme un furoncle ou
@@ -15364,8 +12770,6 @@ l'opération qui l'extirpera.
 Je compare le baccalauréat à une course de bicy_ clettes ou d'automobiles de Lyon à Grenoble, par
 _ exemple, où iln'y aurait qu'un seul contrôle, à l'arrivée.
 S'il n'y a pas de contrôle sur la route, de distance en
-
-Alexis Bertrand
 
 distance, beaucoup de coureurs, j'allais dire de frau- |
 deurs,' mettront tout simplement leur machine au |
@@ -15381,7 +12785,6 @@ rien ou presque rien. Je voudrais des contrôles en cours
 de route.
 
 M. le Président. — Cela s'appelle les examens de
-passage. 4
 
 M. Bertrand. — Encore faut-il qu'il y ait au passage
 des postes, des stades, des points de repère nettement
@@ -15396,18 +12799,12 @@ jusqu'à ce que nous ayons accepté vos idées d'organisation ?
 
 M. Bertrand. — C'est peut-être le maintenir jusqu'aux calendes grecques; j'espère pourtant le contraire; en attendant nous tâcherons d'atténuer quelques-uns de ses innombrables inconvénients sans
 espérer y parvenir. Il nous tient enfermés dans un
-cercle vicieux.
 
 M. le Président. — Vous avez le temps, à Lyon, de
 faire passer les examens convenablement ?
 
 M. Bertrand. — Le temps est mesuré; je ne dirai
 pas que le temps ne fait rien à l'affaire, mais que le
-
-80 ke
-
-< r4
-DEVANT LA COMMISSION PARLEMENTAIRE
 
 temps, même doublé ou triplé, ne changerait guère à la
 
@@ -15417,8 +12814,6 @@ examen, superficiel et encyclopédique, n'existe pas. Il
 sera toujours vain de prétendre, par un examen unique
 
 et même doublé, contrôler loyalement huit longues
-
-années d'enseignement secondaire.
 
 Le baccalauréat sera toujours un détestable « psychomètre » : il prend la mesure non des esprits, mais
 des mémoires; non de la force intellectuelle acquise,
@@ -15433,7 +12828,6 @@ Mauvais, il l'est surtout parce que les études secon-
 | et j'ajoute qu'il est difficile de s'en passer actuellement
 | parce que le désarroi du système des classes ne laisse
 guère d'espoir d'organiser efficacement les examens de
-* passage.
 | M. le Président. — Enfin vous préféreriez l'examen
 de passage et provisoirement vous considérez le baccalauréat comme devant être gardé, quoique suffisant
 médiocrement à sa fonction?
@@ -15444,11 +12838,7 @@ ce sens qu'il est en parfait accord avec les études
 mêmes, qu'il leur est adéquat. Tant que nous n'aurons
 pas réformé les études, nous pourrons bouleverser,nous
 ne pourrons ni réformer sérieusement ni supprimer le
-‘baccalauréat.
 
-81 Ye
-
-Ée Alexis Bertrand ;
 ; Le principal avantage de mon plan, et je tiens à le
 faire ressortir, c'est que, notre enseignement secondaire
 ê étant réorganisé sur la base scientifique, ce serait
@@ -15480,7 +12870,6 @@ sont pas les promesses de son intelligence, c'est simplement la situation de sa 
 
 82 4
 
-DEVANT LA COMMISSION PARLEMENTAIRE
 réclame pas contre ce « privilège », mais je voudrais à
 qu'on étendiît le champ de la sélection. h
 
@@ -15514,11 +12903,6 @@ de la culture de l'esprit; c'est ensuite parce que la
 Et tout à l'heure je n'ai pas complètement répondu à
 une objection très forte et qui reviendra sous toutes
 
-à 83
-
-“AJ
-
-Alexis Bertrand
 les formes : à quatorze ans l'élève est-il apte à comprendre les mathématiques? Je n'introduis pas les
 mathématiques dans une seule année; le professeur
 de mathématiques enseigne en première année, mais il
@@ -15526,7 +12910,6 @@ continue son enseignement jusqu'à la fin. Réciproquement le professeur de mora
 
 - Si les mathématiques éloignaient dès l'entrée quelques
 incapables, j'avoue que je n'en serais pas autrement
-désolé. ;
 
 Il a paru un livre excellent de M. Laisant sur l'enseignement des mathématiques : l'auteur reconnaît que
 les mathématiques sont devenues encombrantes parce
@@ -15548,9 +12931,6 @@ Je crois donc qu'à quatorze ans, muni d'un bon enseignement primaire, — ajout
 complété par une année complémentaire d'enseignement
 primaire supérieur, — l'élève est apte à entrer dans le
 
-84 :
-
-DEVANT LA COMMISSION PARLEMENTAIRE
 cycle secondaire par la porte des mathématiques. Au
 surplus, il n'y a pas, disait Euler, de route royale en
 mathématiques; je ne puis changer l'ordre naturel des
@@ -15584,9 +12964,6 @@ que tous nos enfants sont dauphins en France.
 
 | 85
 
-: :
-Alexis Bertrand
-
 Comment a-t-il mis la dernière main à cette éducation
 royale, qui réussit médiocrement, il est vrai, mais par
 la faute de l'élève, irrémédiablement médiocre, non
@@ -15608,7 +12985,6 @@ C'est, selon Comte, le premier en date et en éloquence
 À des traités de sociologie, admirable ébauche, esquisse
 grandiose d'une science bien française et qui n'a plus
 guère qu'en France des détracteurs et des sceptiques
-obstinés.
 
 Donc Bossuet, le dernier des Pères de l'Église, déclare
 implicitement, par sa pratique d'éducateur plus encore
@@ -15621,7 +12997,6 @@ de rénovation pédagogique que ni la Constituante ni
 
 | 86 |
 
-DEVANT LA COMMISSION PARLEMENTAIRE
 la Convention n'ont pu mener à bonne fin, faute d'une
 classification des sciences qui leur servit de base
 d'appui, classification qu'il était impossible d'édifier à f
@@ -15636,7 +13011,6 @@ grande lumière qu'il a fait briller aux yeux des savants
 et des pédagogues.
 
 M. le Président. — Avez-vous un autre point à
-traiter ?
 
 M. Bertrand. — Le chapitre des objections et des
 difficultés ; mais cela demande tout un livre, que j'écrirai,
@@ -15647,7 +13021,6 @@ séance ou scientifique ou littéraire.
 
 M. le Président. — Nous sommes à un moment de
 l'enquête où nous sommes absolument obligés de
-serrer.
 
 M. Bertrand. — Je n'ai apporté qu'une idée, une
 seule, mais que je crois essentielle. Je termine donc
@@ -15655,14 +13028,11 @@ comme j'ai commencé : je pressens une grande révolu-
 
 G) Voir les Études dans la Démocratie, Paris, Alcan.
 
-4 Alexis Bertrand
-
 tion pédagogique que je caractérise d'un mot, une révolution semblable à celle de Copernic en astronomie, de
 Kant en philosophie : les sciences placées systématiquement au centre des études, les lettres devenant leurs
 éclatants satellites. Qu'un seul lycée de ce type nouveau soit créé demain et je suis convaincu que cette
 expérimentation pédagogique, qui n'offre aucun danger,
 changera promptement la face de notre éducation
-nationale.
 
 Au point de vue budgétaire, je tiens à faireremarquer ,
 que les innovations que je propose ne consistent pas en
@@ -15673,8 +13043,6 @@ aggravées. Nous avons, Dieu merci, un corps de professeurs à la hauteur de tou
 M. le Président. — Nous vous remercions, monsieur
 Bertrand, de votre déposition.
 
-III Û
-
 Le tableau des études réorganisées en un planintégral,
 c'est-à-dire la partie essentielle de cette déposition,
 paraîtra sans doute un peu obscur et énigmatique.
@@ -15683,13 +13051,7 @@ l'esprit et la portée, quelques pages explicatives d'une
 courte brochure, intitulée Le Lycée de quatre ans. Cette
 brochure fut écrite sous la forme d'un article de la
 
-88 :
-
-D à e : .
-APRÈS LA COMMISSION PARLEMENTAIRE
-
 Revue Occidentale. Je devais bien ce témoignage de 3
-reconnaissance aux positivistes, puisque j'empruntais |
 à leur maître Auguste Comte le principe et les dispositifs
 
 de la classification des sciences. Toutefois, je dois aussi
@@ -15760,10 +13122,7 @@ réformer la Chine ! » Il résume en deux mots la portée
 négative de son programme : « Allégez les programmes,
 abrégez les études » ; en deux mots également la partie
 
-90 ÿ
-
 |
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 positive : « Tous les petits Français devraient passer à
 des degrés divers par cet enseignement primaire élargi
@@ -15799,7 +13158,6 @@ la fortune a plutôt favorisée? A cette objection, fondée,
 
 | je l'avoue, je ne puis faire qu'une réponse: je prends la
 
-Alexis Bertrand
 question telle qu'elle se pose ». A quoi je répondrai que
 ces adolescences dont il parlait tout à l'heure sont des
 adolescences plutôt démocratiques et prolétariennes
@@ -15823,10 +13181,6 @@ surtout et Sociologie « grands mots que Pradon croit |
 : des termes de Chimie ! » font que les académiciens,
 par délicatesse, et le vulgaire, par ignorance, froncent
 les sourcils en s'éloignant, vaguement inquiets. Je m'accuse donc d'avoir négligé, dans l'intérêt de la précision,
-
-92 ‘
-
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 le grand art de la périphrase : je m'en accuse, dis-je,
 sans la moindre nuance de réticence ironique, car je
@@ -15867,8 +13221,6 @@ déclarer que par conviction scientifique, par respect
 
 j pour Comte, et, j'ose ajouter, par respect de moi-même, CARE
 
-\ Alexis Bertrand
-
 je n'y ai pas songé un instant. Je ne me targue d'aucune
 13 orthodoxie. Il est telle opinion de Comte à laquelle je
 ! ne me rallierais pas : par exemple, et pour le dire en
@@ -15903,9 +13255,6 @@ aisément du monde : c'est l'invasion des sciences dans
 | langues anciennes et c'est aussi l'invasion de la démo-
 | 94
 
-PROPOS | ; f
-; i
-APRÈS LA COMMISSION PARLEMENTAIRE 1
 cratie dans une institution qui avait pour but principal F
 de former ce qu'on a très bien nommé « des hommes de É
 luxe ». Rien ne sert de déplorer cette double invasion 4
@@ -15934,10 +13283,7 @@ autour de la Terre, et il fallait imaginer orbes sur orbes,
 inventer épicycles sur épicycles, pour rendre compte
 des apparences, tout en se méprenant grossièrement
 sur les réalités. Replacez le Soleil au centre et faites
-9ù
 
-À Alexis Bertrand
-h
 ‘| graviter autour de lui la Terre et les planètes, tout s'é-
 ! claircit, tout devient intelligible et lumineux. SemblaL. blement, dans le système des études, on a placé au
 EI centre les lettres, surtout gréco-latines ; les sciences
@@ -15968,14 +13314,11 @@ avec du désordre, réintroduire l'harmonie dans les
 lieu de ce système de contradictions pédagogiques qui
 | 96 } |
 
-APRÈS LA COMMISSION PARLEMENTAIRE
-
 nous réduit à l'impuissance, ramener la foi et la confiance sans lesquelles maîtres et élèves ne peuvent rien. %
 C'est enfin procéder en pédagogie comme on procède À
 en science ; déduire d'une théorie les conséquences
 qu'elle renferme et la juger sur ces conséquences ;
 mêmes. Voyons ce qui résulterait de ce copernicisme
-pédagogique.
 
 Tout d'abord, le grec et le latin cessant d'être le trait
 caractéristique de l'enseignement secondaire, cet enseignement deviendrait la suite naturelle de l'enseignement primaire, sans hiatus, sans solution de continuité.
@@ -15998,14 +13341,10 @@ mêmes choses, mais on les y enseigne généralisées et
 systématisées : on ne se contente pas d'y introduire des
 vérités toutes faites en vue des applications immé-
 
-VI
-
-* Alexis Bertrand ;
 k diates; avec la chose, on y enseigne la raison de la
 qd. chose, en vue, sans aucun doute, des applications, mais
 he en vue surtout du développement et de la fécondité de
 : l'esprit. Tout cela est compris dans ce mot : enseigne-
-Ê ment théorique.
 Hi! « Point de régénération nationale sans une régéné-
 1 ration morale; point de régénération morale sans une
 DE culture énergique, s'occupant à la fois de tout l'homme
@@ -16030,10 +13369,7 @@ fl. Minerve ou de la raison. C'est pourquoi je tiens tant à
 fe ce mot d' « intégral » que l'on affecte assez sottement
 je de confondre avec « encyclopédique », dont il est
 4 (1) Voir l'Enseignement intégral, librairie Alcan, Paris.
-' 1 los No ;
 
-HU |
-APRÈS LA COMMISSION PARLEMENTAIRE "à
 presque l'opposé, car il implique qu'on enseignera Le A
 tout, et exclut conséquemment que l'on enseigne tout. 4
 Coupez la série des sciences en haut ou en bas, mutilez N:
@@ -16047,7 +13383,6 @@ tout entière ». Et par parenthèse, je ne sais rien de plus
 platonicien que le plan d'éducation de Comte. On m'a
 accusé d'un rapprochement forcé; un rapprochement
 forcé, c'est souvent celui dont on ne s'est pas avisé soimême. Je le maintiens, l'éducation positiviste est une
-éducation platonicienne.
 On s'effraye parfois de ces grands mots de Biologie
 et de Sociologie. C'est encore la faute du grec et du
 latin. Dans les auditoires populaires et même devant la
@@ -16062,7 +13397,6 @@ ne me sépare de la routine que pour me rattacher à
 nos plus hautes traditions. La Biologie n'est-elle pas
 enseignée sous le nom d'histoire naturelle et de physiologie dans nos lycées ? Mettez bout à bout et reliez É
 
-ë Alexis Bertrand
 | par une idée dominante d'unité l'histoire des institu-
 : tions, la morale sociale, les éléments d'économie polib tique, toutes études qui figurent déjà dans nos pro-
 : grammes, n'aurez-vous pas toute la matière de la
@@ -16088,10 +13422,8 @@ l'exemple et s'y rallient avant nous? Je suis extrêmement frappé de trouver da
 un plan d'éducation qui semble calqué mot pour mot
 sur le plan d'Auguste Comte : même hiérarchie de
 sciences et d'études, qu'il couronne, il est vrai, par la
-100 |
 
 |
-APRÈS LA COMMISSION PARLEMENTAIRE
 théologie; mais dont le ciment, ou plutôt la sève et le |
 sang, est la Morale, à qui seule appartient selon Comte |
 (et c'est la grande pensée qui le met dans la famille de 4
@@ -16117,11 +13449,8 @@ trop élevé encore, des études, les Collèges une fois réorganisés seraient 
 fléaux qui nous assiègent : la concurrence cléricale et
 linternat. Au lieu d'en transformer inutilement un
 grand nombre en lycées onéreux, que ne les a-t-on multipliés en transformant au contraire en collèges les
-écoles mal définies d'enseignement primaire supérieur
 qui donnent un enseignement presque secondaire, quoiI0I VI. À
 
-' |
-F Alexis Bertrand |
 4 que actuellement mutilé et déguisé? Mettez donc un
 À collège à la portée de toute famille où naît cette espé-
 QC rance, un enfant; n'essayez pas, craignez au contraire
@@ -16129,12 +13458,10 @@ QC rance, un enfant; n'essayez pas, craignez au contraire
 | L stème tutorial : pension chez les professeurs, pension
 1} dans les familles des petites villes. Voilà le salut; mais
 % le système est trop simple pour séduire et se faire
-) accepter.
 | Je remercie M. le docteur Jabely de m'avoir suggéré
 È cette excellente désignation : le Lycée ou le Collège de,
 È quatre ans. Abréger les études secondaires est une né-
 Ÿ cessité du temps présent. La division triennale (sciences
-à mathématico-astronomiques, physico-chimiques, bio-
 ü logico-sociologiques) s'adapterait mieux, je le sais,
 à la classification positiviste, mais j'ai consulté avant
 : tout ma vieille expérience de professeur de lycées
@@ -16153,8 +13480,6 @@ premier : on ne comprend pas le principe positiviste de
 | qu'aux yeux de Comte, tout le savoir humain se ramène
 | en dernière analyse aux mathématiques, et que la philosophie, selon le mot très injuste, mais excusable à
 j cette date, de Guizot, est un « matérialisme mathéma102
-
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 ticien »; interprétation absolument fausse que la plu- ;
 part de nos historiens de la philosophie répètent encore À
@@ -16176,13 +13501,11 @@ les objections.
 I. L'enseignement secondaire, lycée ou collège, ramené à son type rationnel et fondamental, est essentiellement l'étude théorique des sciences envisagées dans
 leur filiation et leur interdépendance, en vue de la
 culture générale de l'esprit individuel et des utilités
-sociales.
 
 IT. Il n'y a qu'un seul enseignement secondaire. L'opposition du classique et du moderne est une division de
 
 @) Voir les Etudes dans la Démocratie, librairie Alcan, Paris.
 
-Alexis Bertrand
 Ù l'esprit contre lui-même; une plus exacte notion du
 savoir fait cesser cette dualité et ramène dans les
 études secondaires l'unité de vie et d'esprit. Il est contraire à une bonne pédagogie et à l'intérêt social de
@@ -16209,9 +13532,6 @@ distinctifs assignés à chaque année des études, de
 sérieux examens de passage d'une classe à l'autre, et
 c'est ce qui explique le maintien obstiné de l'examen
 factice et fictif du baccalauréat, en dépit de l'avis contraire des meilleurs esprits.
-104 ;
-
-APRÈS LA COMMISSION PARLEMENTAIRE
 
 IV. Les études secondaires nouvelles sont réparties en
 quatre années d'enseignement : première année, Mathé-
@@ -16232,7 +13552,6 @@ V. Nul n'est admis aux études secondaires qu'après
 de solides études primaires; les études théoriques supposent, en effet, des connaissances empiriques du même
 ordre qui sont proprement l'objet de l'enseignement
 primaire, complété, s'il est nécessaire, par une ou deux
-années préparatoires d'enseignement primaire supé-
 rieur. L'examen d'admission est subi devant un jury
 composé des professeurs du lycée ou du collège. Le
 candidat doit prouver par cet examén qu'il possède la
@@ -16240,14 +13559,6 @@ netteté et la sagacité d'esprit nécessaires pour entreprendre les études th�
 que celui de lécole primaire : notions pratiques ou
 empiriques sur les éléments des sciences, habitude des
 opérations de l'arithmétique et des problèmes élémentaires, connaissance pratique du français et premiers
-
-: 105
-
-Î
-
-1f Alexis Bertrand
-
-‘a
 
 1e rudiments (mais cette dernière condition n'est pas absoD lument obligatoire) d'une langue étrangère.
 
@@ -16275,13 +13586,10 @@ i4 groupe de vérités essentielles doit être, non pas laissé
 is la solidarité humaine et la piété du passé. La pensée
 a habituelle des fondateurs de la science, invisible, mais
 4! présente à son enseignement, lui confère un surcroît de
-‘+1
 
 vu
-APRÈS LA COMMISSION PARLEMENTAIRE \
 #
 vie et de vertu éducative. — 2 La science allant tou- 5 4
-jours s'accroissant, s'enrichissant d'acquisitions nou- es
 velles, il faut que chaque professeur comprenne que 4
 l'art d'enseigner, comme l'art d'écrire, vit de perpétuels Ke:
 sacrifices, que l'élève et surtout le maître se garde de %
@@ -16307,7 +13615,6 @@ seules le but ultime et la cause finale de toutes les à
 autres études. Il y à partout pénétration et action réciproque. L'isolement pour chaque science serait mortel ;
 
 L Alexis Bertrand
-W'
 à une science isolée, en dehors de son utilité pratique, ne
 F vaut pas une heure de peine. C'est le sentiment confus
 4 de cette vérité qui a donné cours et crédit, à toutes les
@@ -16338,9 +13645,7 @@ scientifiques et littéraires. Les lettres, par rapport aux
 sciences, ne seront donc pas considérées comme un
 simple complément: elles sont élément intégrant et
 inséparable des études et n'en peuvent pas plus être
-108 Ï ,
 
-APRÈS LA COMMISSION PARLEMENTAIRE :
 éliminées que la forme extérieure du corps ne peut se :
 séparer de son organisation interne. Entre les études | "
 scientifiques placées au centre du système, mais qu'il À
@@ -16356,13 +13661,11 @@ lité, instruments des relations internationales, véhicules
 des sciences, seront le fond des études littéraires.
 Outre la connaissance approfondie de la langue et de
 la littérature françaises, l'élève sera tenu d'apprendre
-deux langues au moins : soit deux langues modernes,
 soit une langue moderne et le latin.
 
 XI. Chaque élève résoudra individuellement et à ses
 risques et périls la question du latin. Les études secondaires ont théoriquement la même valeur, que l'élève
 ait choisi le latin ou qu'il lui ait préféré une seconde
-langue moderne.
 
 XII. Que le latin ne soit nullement délaissé, qu'il soit
 au contraire mieux étudié, étant choisi librement, nous
@@ -16372,11 +13675,6 @@ pour les professeurs qui deviendra persuasion pour les
 familles, que le latin est la clef non seulement du fran-
 çais, mais de presque toutes les langues modernes,
 
-VII
-
-BU + UE AR : MU 4
-
-ï
 | Alexis Bertrand
 | dont il abrège et féconde l'étude; le désir soigneu-
 
@@ -16400,7 +13698,6 @@ a+ qu'on ne sait une langue vivante que quand on est
 $ capable d'écrire et de parler en cette langue, tâche
 î difficile, tandis qu'on sait assez une langue morte
 ; quand on est capable de comprendre et de goûter ses
-ù grands écrivains.
 # XIII. Pour appuyer d'un trait décisif ce caractère
 3 de l'Université qui demeuré le Conservatoire du latin;
 pour marquer fortement que l'Université n'entend pas
@@ -16411,7 +13708,6 @@ l renoncer pour elle-même à ses propres traditions, nul
 : pas besoin de savoir ce qu'on n'est pas obligé d'en-
 | 110 é
 
-APRÈS LA COMMISSION PARLEMENTAIRE AU
 seigner soi-même : le professeur qui ne sait que ce qu'il - “
 enseigne n'est qu'un médiocre professeur. Admettre
 qu'on puisse enseigner le français ou les langues vi- À
@@ -16441,9 +13737,6 @@ histoire du commerce et de l'industrie. Ces indications
 sommaires n'ont d'autre portée que de signifier clai-
 
  rement que l'enseignement de l'histoire et de la géographie doit être synthétique et scientifique.
-III
-
-" Alexis Bertrand
 
 XV. Pendant toute la durée des études secondaires,
 
@@ -16488,7 +13781,6 @@ aujourd'hui, encouragée par cet examen; licence voulait dire permission d'ensei
 
 112 1
 
-APRÈS LA COMMISSION PARLEMENTAIRE
 permission d'ignorer la philosophie ; pour la licence
 littéraire, permission d'ignorer à la fois l'histoire et la
 philosophie, etc. ; 2° Les diverses agrégations prendront un caractère plus strictement professionnel. Elles
@@ -16504,71 +13796,19 @@ des classes préparatoires qui ont un caractère primaire
 et des classes de préparation aux grandes Écoles, qui
 sont en dehors du cycle des études secondaires.
 
-LP ENTER e RUES ES PU ETC NCMENT LENS Neu E CRETE
-(EPS CRE Le : F4 LL KA ER RAS,
 Nnr aa ce Fe ! % : ne PA AIT EE
-LRO “4 $ TN nt)
-LCI SRE UM JRMRNER
-11 4 DR i VrE “ee
-NAT) SEP ‘1:44 | a ie |
-de AA 4 k RUN TLC 2252
 FER L NORD se FER
 FAN à ie l'US AIERES
 | PRISES RP D 4 :
-« a Éhty FREE
-PEN SO 1 60 © “5
-"PAIE TENRS Le 4224
-ART - ; Fr NE
-EU MACL NS A" |
-LÉNVTE CRE |
-M), ; Ni
-QE: SR 2e ARCS À Dr.
-FAT. Phrires ï RTE:
-2: UE À Pr à:
-MALE Fe
-le: 41 } ;” + FRE Ne.
-4288 ET. es °]
-
-En HL'x Us ES a Fee A Mure | PARTONS tel FT
-3.‘ ST RER F4 M2 tr
-Sri | LR
-pi 112
-_ L'ORGANISATION RATIONNELLE
-\ “LYS EN
-& UNIVERSITES POPULAIRES F0
-; 4 Fe k » vi
-Le ; 10e KS
 
 A, 2 CRAN TS EEE SUR paie Re +} Eee Li L DURS : !
-EN MARS QE GP Part Na ARE ENT « à
-LRU TASER TT 1 *: ER OTEE FERREN RE SES USER AC: LS
 tr ke L k LEUR TO ORRNRRR FA TR EE
-MS ee à FÉES CENT
 Communication au congrès de la Li fr der:
-i E (ia ALES
 te ne l'Enseignement. (XXII° congrès national, tenu à Lyon.
-SN TO SENS F FSC
-Re di LEE
 du 25 au 28 septembre 1902) FAR
-OEM ts | CA
-114, VOLE PE.
-RER ed : ATRE
-à d' LIST MAR US. (6.
-RAC ELN AREA
-CRE Cat LAS
-EE HA * L 39 # Per >
-Pr LA A OU:
-NN EL L v. Ca R
-"28 Pb TS: :
-Rte js : Fos. per
-68 ent |
-+ UT PRES t NOR |
 
-TROISIÈME PARTIE
 L'organisation rationnelle des Universités
-populaires (1)
 
-Quarante années d'expérimentation pédagoique, tel
 pourrait être le titre de cette brève étude de l'enseignement supérieur municipal que le nouveau maire de Lyon,
 M. le docteur V. Augagneur, a organisé dès le lendemain
 de son élection. C'est une Université populaire officielle,
@@ -16585,11 +13825,6 @@ services et sa popularité n'ont fait que s'accroître, je
 
 (1) Communication au congrès de la Ligue française de l'Enseignement. (XXII: congrès national, tenu à Lyon du 25 au 28 septembre 1902)
 
-117 VILS NS
-
-1 ‘ .
-REX | Alexis Bertrand
-
 Li resterai toujours personnellement reconnaissant au
 1 maire de Lyon, dont le suffrage universel vient de
 + renouveler le mandat, et à la municipalité lyonnaise, de
@@ -16600,9 +13835,7 @@ fl # soustrayait pas totalement notre Lycée, partiellement
 il nos Écoles primaires supérieures à la juridiction munira ‘ cipale, une réforme analogue les aurait déjà mis en
 ‘4 harmonie avec les données certaines de la science
 1 Û moderne et les légitimes revendications de la démo- ,
-s 4 cratie.
 
-PA
 L : De ce paradoxe, un enseignement à la fois supérieur
 ‘4 et populaire, en prenant ces deux mots dans la plénitude
 de leur sens et de leur force, il a fallu bien des essais ï
@@ -16620,7 +13853,6 @@ qi par le mode d'exposition plus oratoire que scientifique,
 1. Tel de ces cours a laissé de vivaces souvenirs chez les
 L auditeurs, par exemple le cours de géographie de
 
-L'ORGANISATION RATIONNELLE DES U. P. ‘4
 Berlioux ; tel autre s'est survécu, condensé dans un (2
 livre de valeur, Nos devoirs et nos droits, de Ferraz. Le ts
 talent des professeurs faisait presque oublier le défaut 4
@@ -16655,10 +13887,6 @@ organisés, puisque chaque professeur choisissait son de
 sujet au gré de ses préférences, selon son goût particu- 1%
 lier et ses études personnelles, du moins c'étaient des Le
 
-119 #
-
-à Me ;
-Alexis Bertrand
 : cours, une suite de leçons se rapportant à un même
 £ sujet. Que dire des conférences et de leur bigarrure
 invraisemblable ? Je me souviens d'une semaine ainsi
@@ -16688,7 +13916,6 @@ publique, M. Léon Bourgeois parla d'un cours de sociologie à M. l'adjoint Lavi
 publique, et ce cours fut fondé l'année même; ce fut le
 centre de gravité de l'organisation nouvelle. La substi120 x $
 
-L'ORGANISATION RATIONNELLE DES U. P.
 tution de la traction mécanique à la traction animale et ;
 l'établissement de nombreuses usines électriques décida
 l'adjoint Clavel, un ferme défenseur des cours, quoique
@@ -16701,7 +13928,6 @@ en exceptant toutefois le samedi, réservé aux confé-
 rences isolées, qui se survécurent ainsi partiellement.
 Voilà donc les cours rétablis : d'idée maîtresse et directrice, pas la moindre trace: il restait à faire de l'ordre
 avec ce désordre, à prononcer sur ce chaos un énergique et efficace : « Que la lumière soit ! »
-II
 
 Il fallait avoir une bonne fois la claire vision du but
 à atteindre; les moyens s'offriraient d'eux-mêmes et par
@@ -16714,10 +13940,6 @@ comme le club, ou de convertir, comme le sermon ? De
 vulgariser les connaissances utiles aux arts et métiers,
 comme l'enseignement professionnel? Dans ces trois
 
-: 121
-
-:
-EC Alexis Bertrand
 ! alternatives, il est bien inutile de se donner l'air d'in5 nover, on n'aboutira sûrement qu'au double emploi et
 À à la superfétation.
 ÿ Mais au peuple, tel que nous l'ont fait l'enseignement
@@ -16754,7 +13976,6 @@ dénature en le brisant. Il nous faut donc tout d'abord
 | 122
 |
 
-L'ORGANISATION RATIONNELLE DES U. P. ; '
 est-il capable de ce grand œuvre. Il en est une qui a 4
 la prétention justifiée, semble-t-il, de se conformer : 4
 1° à l'ordre historique de l'évolution des sciences; 2° à pe
@@ -16772,7 +13993,6 @@ des étapes par où tous les esprits, s'ils en sont capables, doivent également
 de vous conduire aux sciences supérieures en vous
 dispensant entièrement des sciences inférieures qui les
 préparent et les soutiennent, défiez-vous de lui, c'est un
-charlatan.
 Tout le monde connaît aujourd'hui cette classification : les sciences de l'étendue nous donnent la mathé-
 matique et l'astronomie; les sciences de la matière, la
 physique et la chimie; la vie organique est l'objet de
@@ -16786,7 +14006,6 @@ est accessible à un auditoire populaire, ce sera l'affaire
 de nos professeurs. Chacun d'eux devra mériter, toute
 proportion gardée, un peu de l'éloge qu'on a fait de
 
-Alexis Bertrand j
 Montesquieu : il abrégeait tout, parce qu'il voyait tout.
 > Choisissez-les surtout très savants, afin qu'ils ne soient
 point tentés de faire parade de leur science. Je définis
@@ -16815,8 +14034,6 @@ par Comte. Ajoutons que nulle science n'est plus propre
 scientifique et le sentiment non moins important de la
 continuité et de l'efficacité de l'effort humain dans la
 124 4
-
-L'ORGANISATION RATIONNELLE DES U. P.
 
 conquête du vrai. Elle a en outre l'incontestable mérite |
 d'avoir la première chassé de l'univers les interventions |
@@ -16849,7 +14066,6 @@ sujets traités sont eux-mêmes très généraux, mais très
 précis dans leur généralité même : une année, les transformations de la matière, l'année suivante, l'air et l'eau.
 Les menus faits soutiennent l'intérêt, les grandes géné-
 
-Alexis Bertrand ' |
 ralisations élargissent la pensée : la physique et la |
 chimie ainsi enseignées deviennent le plus fécond et
 le plus philosophique des enseignements.
@@ -16875,16 +14091,11 @@ constituent la série animale. La zoologie nous fait
 assister à l'évolution ascendante de la vie et nous révèle ;
 ces premiers rudiments de solidarité et de sociabilité
 où l'on sent déjà l'approche et le voisinage de l'homme
-« animal social ».
 
 N'est-ce pas aussi la meilleure préparation, linitiation nécessaire à l'enseignement de la sociologie ?
 De ce cours, je ne dirai rien, et pour cause (j'en suis 4
 chargé), sinon qu'il faudrait, pour qu'il fat dénué d'in- 1
 térêt et de large utilité, une ignorance du sujet, une
-
-126 F k
-
-L'ORGANISATION RATIONNELLE DES U. P.
 
 absence de méthode ou une indigence de talent vrai- |
 semblablement introuvables. Qu'il me soit permis seulement de noter un trait significatif : mon cours de
@@ -16917,8 +14128,6 @@ autres de quatre ou cinq mois. Ainsi l'histoire de l'art
 et l'histoire des religions sont respectivement traitées
 en demi-cours. Cette remarque est d'ordre pratique,
 
-d Li tas
-Alexis Bertrand |
 car ces enseignements eussent aisément donné lieu à
 des cours entiers. Celle qui suit est d'ordre théorique
 et a plus de portée que l'exigence d'une ingénieuse
@@ -16940,16 +14149,13 @@ Voltaire ou Victor Hugo, ne craignez pas qu'il limite
 son exposition aux formes littéraires, à l'évolution des |
 F genres, aux révolutions du goût : c'est l'esprit d'une F
 époque, l'âme d'une civilisation, c'est un fragment d'humanité, dont il montre dans son auteur l'ineffaçableet
-éclatant reflet.
 On en peut dire autant de l'histoire de l'art : une
 œuvre d'art est, en effet, un signe révélateur de la vie
 intime d'un homme ou d'une race, un témoin ou un
 symbole des aspirations d'un peuple ou d'un siècle.
 Rien de plus expressif que ce signe, de plus éloquent
 que ce témoin; partant, rien de plus intéressant que
-128 !
 
-L'ORGANISATION RATIONNELLE DES U. P.
 l'analyse historique et esthétique d'un temple grec,
 d'une cathédrale gothique, d'un siècle d'art à Venise,
 quand elle est présentée avec la science impeccable i
@@ -16966,8 +14172,6 @@ comme un fait divin,'mais comme un phénomène tout
 psychologique, même purement verbal, en tout cas simplement humain, est pour les auditeurs une vraie révé-
 lation, destruction infaillible des révélations. (1)
 
-IV
-
 Si le vieux Bacon a dit vrai, si pour faire une bonne
 expérience il faut la varier, l'étendre, la renverser, nul
 ne contestera la valeur démonstrative de l'expérience
@@ -16981,10 +14185,6 @@ cours et le nom des professeurs chargés des parties d'enseignement, quatre de l
 peuvent changer, mais le plan général est invariable et le public le
 reconnaît toujours.
 
-Tao
-
-À $ #
-; Alexis Bertrand |
 | suspendue, reprise pendant quarante ans. Étendre
 l l'expérience : on l'a essayée successivement sur tous
 les publics et sur toutes les matières enseignables,
@@ -17015,10 +14215,7 @@ empiriques, il est tout heureux de voir succéder une
 organisation rationnelle, peut-être parce qu'il sent
 d'instinct ou comprend clairement qu'à partir de ce
 | jour on ne le réduit plus, si j'ose dire, à la portion
-à 130 ï
 
-te LE / ' à
-L'ORGANISATION RATIONNELLE DES U. P. 10
 congrue et qu'en fait descience, on socialise résolument *}
 le patrimoine entier de l'esprit humain. Le même au- à
 diteur ne suivra pas tous les cours : n'importe; il sait cÙ
@@ -17080,10 +14277,7 @@ tâtonnements et d'empirisme. Serait-il présomptueux
 de leur proposer un plan d'enseignement préparé et
 éprouvé? Il répond parfaitement à l'idée d'Université
 puisqu'il a pour caractère d'être non pas encyclopédique, mais ce qui est le contraire, intégral : j'ai
-132 ‘
 
-5 à
-L'ORGANISATION RATIONNELLE DES U. P. n:
 cent fois répété qu'en se proposant d'enseigner Le tout à
 on s'interdit par là même de tout enseigner. IL a toute ;
 la souplesse et toute la consistance qu'on peut désirer :
@@ -17113,9 +14307,7 @@ notions positives. Justement, la nature a voulu que le
 vieillard fût aussi avide de se raconter que le jeune
 homme est ardent à s'épancher. « Dans une société
 supérieure à la nôtre et telle qu'elle sera un jour, l'en133 !
-VIII
 
-c Alexis Bertrand
 À seignement intermittent sera, je n'en fais pas doute, un
 a puissant moyen d'action. On saura profiter de ces puis4 sances diverses, de l'élan du jeune homme, du recueil-
 $ lement du vieillard, de la flamme de l'un, de la lumière
@@ -17131,64 +14323,16 @@ donner un exemple définitif ou un modèle immuable, |
 ; pensée qui a pris corps et dont on peut dire, comme de
 | toutes les grandes pensées, qu'elle vient du cœur, d'un
 ' amour sincère de la démocratie.
-FA
-K
 
-A 6 SPACE INR 5 LAS TE MOTTE
-+ LE Les F 1 #: (1 3 . 4 1 L Re - CRE CFE
-Xe: CRE LA ë 398 PSE
-12 AN, PRE Je À EAN
-NT" JE #7
 ÈS wa je des
-4 , PA 0 5 ne d' Va
-Fe Jr” FA
-IRIS ETS HE NACRE
-ct
-Ë CHEN
-4, F TR
 | +TÉ F0
-, . | LNORA
-0 “Hit
-SC TR LA à pe?
-HA. 7
-6 MP
-: Éd
-\ RER
-ja : n “ FN
-“ee
-FR ‘ 3. F4
 
-AR NE MRC MON MIAT LCR à EMI ZONRI APS Liebe
-NN AE Fr AS EUPINOS HR A RENE à
-1. A PRET RTS PEN RS RS nr ur US ©
-(TNT t * "es Ab Cl EL: Ar TA
-fr Re UE STE TROT ER KL TITRES STRESS CAT
-AU Sn te . FN TEURE TRES Qt Prat
-SE Re 4" TRES
-RUE RE EAGES , ; É ve SEE
-LES à D
 et A CO ; z “ee Ale, 2
-Rene, g * à
-3 ARC RE
 #4 LS NES g. LME
 ATEN CR ne
-+ STE : + ; x
-: 1 RANRTE : $ È L D 1
-SE PAR : Se UV ÉLEMR 54
-- LR OT “ %Æ US SANTE
-D. | M
-Ki: 2 UN ES FL RAT
 FAUNE le LENS
-57e STE ALES ë à pou
-LES 20 ‘43 ES
-FN PEAU, ES
-“AIRE < s We ‘à
-22 F0 pal RE |
-= NE , s Sc AS, NPAIQUEES
 MP à ‘ À ds Tete je ‘VO
 RAR ER Ti tree LUN Le L'h1 Jret. PIERRE
-
-ANNEXES
 
 A l'endroit des pièces justificatives, je donne ici un petit
 tableau qu'un directeur d'École primaire supérieure a bien
@@ -17220,13 +14364,10 @@ présentement aucune conclusion, premièrement, parce qu'il
 est incomplet; et, deuxièmement, parce que nul n'est plus
 convaineu que moi de la vanité des programmes, du mensonge de leurs rubriques.
 
-(a. À VIII.
-
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement. |
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions à
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année p
@@ -17249,7 +14390,6 @@ l'abonnement recommandé est de vingt-cinq francs
 : mandé sont empaquetés à part et recommandés à la Rs
 poste ; la recommandation postale, comportant une 5 4
 transmission de signature, garantit le destinataire
-contre certains abus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit j
@@ -17259,37 +14399,18 @@ les vingt cahiers de la cinquième série complète. ‘+
 
 A partir du premier janvier qui suit l'achèvement Î
 
-LICE SF AO. 1 due TR LPUFM 220
 TER EE ht ET de, ESA 4 $ ft AN à
-Fe RUE 3 } 20 CDS ” ÿ 4 VE
-SC ARR M | 2 LÉ SRRERR
-N'a. LT ; [a Ne
-44 Ÿ S al RUE
-FPE k * REE à 5 Fu
-APT. : , L' 2 EST
-Dr Sr - brie ti
-M 1
-SR a à a AS
-+, "A *; *. K " + 5 k
-PSC 4 + S. à 428 %
-FE 4 HE ref 4 n ' 41000
-FUI LAS 3 & 1:10
-CIRE | 4 A 1 U CL ‘4 2. È
-à ; VO,
 VE EME SF ris NE ae t14
 
-LI Fr \ VE
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués ; ainsi à dater du premier
 janvier 1905 la cinquième série complète, s'il en reste, à
-se vendra quarante-sept francs.
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
 les jours de la semaine, le dimanche excepté, — de huit
 heures à onze heures et de une heure à sept heures.
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures. )
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 cinquième arrondissement, toute la correspondance
@@ -17312,159 +14433,60 @@ en toute propriété littéraire, sans aucune réserve, et à
 sans autre signification ni contrat.
 
 ARR ee 0 Se Le IM ANT RARES de FAT LR ACATANENNNETet IE
-RE LL - on LES AN ; k à
-Pr OETA fr FAUNE PRRRNE £ “te Dee FUN
-CERN Rec Ro Re / Fe {RS £
-2 FM AS REA È TES
-ve we RS He K
 gi pi NEO ne:
-À # ‘ Pr 5
-; | ie
-è REUT
-k PRE:
-! Li mes.
-* 1100
-FT
-4 AN =
-$ M
 | KES
-; 4
-pe a
-L \ pl “4
-ra
-à Fo Ai ds v
 #23 ait
-DA + QU LE RE
-7 OT N {RTS à FN
 
 RER AMENER NPC SR AA E TE TS ne
 ME ! à LATE DE Pet Fe A Op Fc
-pere su", ÿ 1 4 à
-FRE %) CT PEN
-MC: 4 | “
-+ SES ait,
-À Pr KT
-MA Lo x ‘ ce 1
-: LA RME CSRS TER |
-PESRRYE “ "+
-A LME x bé » AE OR s1È »20}
-‘T4 Les #
 de SRE te
-+ LRO . PA ,
-TE RES LE
-F ‘A Et, 5 5 te
-HÉSSRRE RUE
-RES
-‘S0rEe x ï à
-e t 1% |
-ÿ ie ca ;
-Et e. |
-EX : : 52
-Es J + A
 
 \A jh, a 41 RAA ITS ee De À APT j AU FAT if ; TE EU à OU
-5 Se ANNEES NAS LS ANA DA ob aan
-È RUE ST
-TRY DÉS
-TABLE DE CE CAHIER A) 2
-PAGES FR SA
 Notre catalogue analytique sommaire. . . . .. Il As É
 Du même auteur, en vente à la librairie des ‘te
-SIC RE LUE TRANDERRS TIR ARE ETES ARE RUES FRS art VE à CRE
 CHARLES PÉGUY. — Pour la rentrée. . . . . . . IX "RES
-Catalogue analytique som- it per
 IMGiRE. ne te ei nt EX ECS NES
 ALEXxIS BERTRAND. — L'égalité devant l'instruc- SONT
 tion; — crise de l'ensei- FC
-gnement ; È “5
 La gratuité dans l'enseignement secon- HR
-= Ÿ 4,008
-daire; 1
 Première partie. — La gratuité dans l'enseigne- E 148
-TER AUD ON ARE IORT ARR ER ARE } : ACT
 Discours prononcé devant la Commission de re.
 l'enseignement du Congrès des républicains PA + x
 radicaux et radicaux-socialistes, le 11 octobre EX ve
-1902. : AND
-ERNST ARS AR NRA Le CAC E RUN RU 23 LE LE
-145 es Lu
 
-A UE ON R
 deuxième cahier de la sixième série
 _  L'Enseignement intégral et les Humanités
-ÿ à mn scientifiques ; ;
-4 CA! } '
 | Deuxième partie. — L'Enseignement intégral et
-Fee | &
-À - 00 les Humanités scientifiques. . . . . . . . . . 55
 de
 : GRR Déposition devant la Commission d'enquête -
-SLA P q
 AR parlementaire sur l'Enseignement secondaire,
-à NRA compte rendu sténographique officiel, séance
 TEA du 22 mars 1899; où inclus un tableau des ?
-6 fi? quatre années; classes; conférences;
 | 1 RE RAR le re te SNS
 a (11H ; où inclus, à la fin, les dix-huit propositions ;
-434 { L . . . : 242
 ‘. “10 L'organisation rationnelle des Universités
-En populaires:
-1 ne 1 +
-+ en . , « « .
 : NN Troisième partie. — L'organisation rationnelle
 \ UOTE des Universités populaires.) 27.100 WENORIErr
 | UN Communication au congrès de la Ligue fran-
 | | S'AR çaise de l'Enseignement, vingt-deuxième conAU 72; n » = =
 Es grès national, tenu à Lyon du 25 au 28 sep3 pue < tembre 1902;
-A:
-2 (ce
-ER.
-M Annexes 2 V0 M Na ee
 1 où inclus un tableau de la correspondance
 Dur: partielle entre l'enseignement des Lycées et
 20 celui des Ecoles primaires supérieures.
 
-D 0 Prius
 Nos cahiers sont CE AAA CAROL AS AE Mia ee ME rio | 10
-Pl M FOUTU (MA Ua | a of]
 LENS QUE AE AO AR ER A A LS ur
 CuarLes PÉGUY. — Avis important de l'adminis- PAR MOUS Là
 ; ; tration, portant sur les frais ME 1 A “HS
 d'envoi de notre catalogue Ne
-analytique sommaire. . . 149 Re
-à 1 NE
-NS ein |
-KA ; } D CHU #
-AMEN
-TP
-à ÿ po ÿe
 
 Nous avons donné le bon à tirer après corrections Fr
 pour trois mille exemplaires de ce deuxième cahier le
-mardi 11 octobre 1904. ‘44
 : Le Gérant : CHARLES PÉGUY Beau
-COARONE
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués. DA En pi
 IMPRIMERIE DE SURESNES (Ep. GRENIER, directeur), 9, rue du Pont. — 9339 À fi Us Far
-UE *'HE R
 
-ACHATS PEARL DONS
-UNS AL:
-Huy eg 10
-RE SES } ML
 À de HORS: ai
-Ru, -
-rue À
-‘4780 2
-ne € ; RC
-ie : ; # | à
-pose “4 |
-Met à
 pre il
-HA k ‘4 f
-pt ‘ 15 à
-TS Ki
-PE x A
 
 Avis important de l'administration. — Bourgeois nous à
 rend compte que nous sommes en litige avec l'administration des postes ; l'administration des postes n'a pas t K.
@@ -17493,7 +14515,6 @@ est présentement inutile que je les donne ici; ce ne sont -
 pas nos abonnés qui jugeront, mais les hiérarchies |
 administratives et au besoin judiciaires successivement
 saisies ; nous tiendrons nos abonnés au courant de cette :
-aventure imprévue.
 
 En attendant, et jusqu'à ce qu'une juridiction administrative ou judiciaire nous ait rendu justice, nous
 sommes, provisoirement, contraints de payer le tarif
@@ -17501,7 +14522,6 @@ sommes, provisoirement, contraints de payer le tarif
 A deuxième cahier de la sixième série £
 id: plein pour les exemplaires isolés du catalogue analy- 1
 j tique sommaire que nous envoyons directement de nos Re. 14
-A bureaux. DS
 j Pour que notre budget ordinaire ne soitpoint détraqué he
 | par cet accroissement imprévu de dépenses, nous de- ‘4
 T2 mandons à tous ceux de nos abonnés qui nous deman- 4
@@ -17515,88 +14535,22 @@ ni timbres, une somme de soixante centimes par exem- T4
 | et le prix commercial, n'ont évidemment pas à se P:
 à préoccuper des frais d'envoi; le prix marqué, enlibrairie, 14
 Re est justement établi de manière à incorporer les frais ni.
-d'envoi. 4
-? *@
 ù Le gérant 4
 | Charles Péguy 4
 | #2
-4/0 ;
-he | :
 
-RARE €: PE TTr FRA Ba NL ET VUS 0 v708e + ds He 48, r
 PAT EN te rh AR to re cr ur CMNTR 7 FEU hi LE ES ACIER
 ci NEC AE AS Poe (er Eee RUE LOT 2e RTL DÉTIENT RTS Ne NAN
-(NS TERRE RS EE AO AO A EI DR AE FUURE MONT MONT TEEN
-A LATE LU: Fi CAIA TE EMEUeR pr 'j) jé RG AT:
-AE in | 47 + SAUTER
-PRE Dir 20" an TM
-dde \ 10 1! AIR TRE
-ne Am A 5 N EE
-(NS An LEA PUS
-FA (3 , LUE FSU TS
-5% À 7 jé Fa
-STE , 1} 1 Dr
-FA ÿ} { 1 te)
-17 à U MEL
-Pat a j it « CHAN
-Ÿ 4 7 nor.
-VrSE Pa Ne 4
-ÿ LT HAT
 | À H x. Eu}
-ss \ LS
-4 k RTE
-1 À IX VON
-RAT
-l | /PEUNE
-SATA
-À « 4 {41
-ha À À
-FA À
-He. 0
 is tra (NATH | Vi} WE de f\
 
-A SR tn
-ARRETE. Cf ER EAU CTP VAR UNE CAN DEA
-; A PENTIER DE PR en TA AT AURA ACT ETES AM ERTS CHE TE
 +55) RE RATES ENS TEST SENTE Pas TRS Re te s
-FENRASE RAT UN SSSR RASE MO TNS 2 NES SERRES
 Me: RAR A à on - « KR + "aa ARTIRESAS RE
-HNATRG EN ns re. 6 VA TRES
-ASE BIS YU TAN
-Fee RE 1" PE RDA
-a PA ‘ F3 DOME SATO
-ny TR RE 1} CANNES *
-Rs È FAABTEURS
-5 CAS) 114 pe JA
-1, SGEN OR « ‘#38
-TERRA 272
-FRE É ; We
-Fr Cr Œr,
-RES L'ÉAR i ‘ 4
-n SE (12 VA
-LITE at
-SHC À : Fe
-RUE FA
-RURALE ge HART :
-4, She : TS
 
-; PR RUN ES He L TU TV #4 MR QE 3
 PR MR AA Ne cine ne ASE TUE ARE ARMES
-TR DE à LA AR HEAR 3 FACE RSS
-MATE RCE SEE " ACER rs
-NA NE et VS Tr F | 2200 En
-FU® PET : ; SENS ;
 re DS ON s L is 4 + Ne RE
 PER É LA A "1 pe hi Ve:
-: EVANS PAT LUS
-LAS CPE ; Men |
 |; STAPS ‘1,60
-fre Li 1 NES
-A SERRE Ÿ è 2 CCE
-nr MES CES CNT 3 | TRE
-0 UE
-Le A BUT
-CL ORNE UE res 1e, OPA
 
 : Il est impossible de suivre honnêtement le mouve- A
 : ment littéraire, le mouvement d'art, le mouvement : 0
@@ -17608,7 +14562,6 @@ il suffit d'envoyer un mandat de trois francs cinquante %
 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième
 arrondissement. On recevra en spécimens six cahiers
 de la deuxième, de la troisième et de la quatrième
-série. É
 : Pour savoir ce qui a paru dans les cinq premières
 séries des cahiers, 1900-1904, envoyer un mandat de
 &e cinq francs à M. André Bourgeois, méme adresse; on
@@ -17629,61 +14582,12 @@ sixième série reçoit donc automatiquement le premier
 deuxième cahier de la sixième série ; un cahier jaune de
 xxxy1 + 152 pages; nous le vendons deux francs.
 
-TROISIÈME CAHIER DE LA SIXIÈME SÉRIE
-Ps
-PA ISRAËL ZANGWILL
-K
-\
-Chad Gadyal!
-TRADUIT DE L'ANGLAIS
-PAR MATHILDE SALOMON
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-MARTEL FEV T detre ee RUE TE CU NUE
-5e a + +: LT
-gi * “ Le À NE æ
-3 “HIER
-e
-
-; 5
-
-: - : * EE
-4 - UE L
-ré ë el
-4 ï è
-LE .
-
-; d
-
-4 ; Le
-
-à 250)
-É ; hi
-E Dr
-‘#3 M x
-3 br Ce
-
-MN AR SL RACE RUE AN te EE
-À 2 4 À L'As RE DT AT O a ü 4 a ieh Fr De
-PL Tea: at ah PSE RER MEUTE die so} HET PRET
 ” x! #4 [ea Ke AMEN EIRE Des Le Me TAC M: Pie bé As Rss. dt UE
-it HE NES fais 2 . | IN TM AU
 : je * VE oran
-Me © + F0
-Fe : \ ; LEO UER
-4 AUX?
-tai i ) "1 à
-k à MU.
-« î : 7] 4
-+ ds
-CAD Ads
-a Rx:
 
-& LA
-di
 Nous avons publié dans nos éditions antérieures et L
 dans nos cinq premières séries, 1900-1904,unsigrand
 nombre de cahiers de lettres, — nouvelles, romans,
@@ -17703,7 +14607,6 @@ cinq premières séries des cahiers, il suffit d'envoyer
 un mandat de cinq francs à M. André Bourgeois, |
 administrateur des cahiers, 8, rue de la Sorbonne, rezde-chaussée, Paris, cinquième arrondissement ; on
 
-CATALOGUE ANALYTIQUE SOMMAIRE 5e
 recevra en retour le catalogue analytique sommaire, 3
 1900-1904, de nos cinq premières séries. 1
 Ce catalogue a été justement établi pour donner, 5
@@ -17721,85 +14624,22 @@ série; toute personne qui s'abonne à la sixième sérte
 le reçoit, par le fait même de son abonnement, en tête
 de la série; nous l'envoyons contre un mandat de
 cinq francs à toute personne qui nous en fait la k
-demande. :
 
-PT LENS NN RD EC MED
-; SRE Vans nt LENS PREUT RM EUR ? DAS {
-f À MONS (: MERE Y BL NAME TE de 1. HT
-HS (TSH QE } 4 Le ‘ « JA FAR 11 î F4 vi (Se ros
 ne INR
-A te ; . : ‘4
-EU 4 \ à dr,
-[RER “a
-4: Ù a
-17 "À 1 À
-we Re ; 208
-+6 RE pa'
-ARE ds 4 x ki 0
-che UE ! À e
-SR F0 e ERP. :
-:\ AR 1
-k GE As) j
-F TA ; À ke
-CAP ” y;
-EF “in Et:
-HE À ÿ L + or:
-Li CRE F
 Des hi
-We170s , ‘44
-à pi |
 
-il (l k à |. \
-EMTRTA A v* NUE UT ET / ININ RON TAN
-v Ve 20 Gi U #1} JE 5) PANEN
-128 fe: GRAS CR ARC)
-: FE re + SANTIAERS
 AIN UN AE Xe eo si AUTRE
 pee LA ra { avé A ie 14
-A Cd Ga: NRAVI
-Aie K RAT :
-i ï À 4) ROME
-Li SU
-1 RE L'ONU
-‘ \ th
-s7 : ER
-ne | 4 A0
-Ne è ME
 
-NAT, TO0R AI RENNES LD 4 Fe 1 ER DNA E RPR ENTRE ENS tn LUE c
-a sx D vaine ‘4 Ÿ ? pe ik RULES he RAT 0)
-STAR REA dl lur
-: KR qu,
-L'ORRE À
-M at \ e ; 44
-JF VENIR * de.
-LAS AIRE Di:
-Hd ï 10
-k 4
-DM re ÿ :
-(REUE (fi 1 ‘ N:
-NUEATANE fL
 ta ir ve 4 à
-QE PAT s 3 ‘ÿ
-ie 4 ; 3
-M4 ë à
 ae ï ne |
 # M À ê |
-5 L HR É
-He Û : VIEN
-sie “ Dr di:
-Dean 2:36 }
-s: f Î }
 
-font ANT Cain En ns PRIE LV Mae "ARE
-CHARLES PÉGUY
-ZANGWIEL
 Le cahier que l'on va lire nous a été apporté tel que
 par le traducteur, mademoiselle Mathilde Salomon,
 directrice du Collège Sévigné, 10, rue de Condé, Paris
 sixième ; le nom du traducteur et sa qualité recommandaient amplement le cahier; le nom de l'auteur <
 n'est point connu encore du public français ; il m'était
-totalement inconnu.
 Quand nous ne connaissons pas le nom d'un auteur,
 nous commençons par nous méfier ; et par nous affoler; c
 nous nous inquiétons; nous Ccourons aux renseignements; nous nous trouvons ignorants; nous sommes
@@ -17809,20 +14649,14 @@ aux manuels, ou à ces hommes qui sont eux-mêmes des À
 dictionnaires et des manuels, ambulants; et nous ne
 retrouvons la paix de l'âme qu'après que nous avons
 établi de l'auteur, dans le plus grand détail, une bonne -
-biographie cataloguée analytique sommaire.
 C'est là une idée moderne; c'est là une méthode toute
 contemporaine, toute récente ; elle ne peut nous paraître ancienne, et acquise, et déjà traditionnelle, à
 nous normaliens et universitaires du temps présent, que
 parce que nous avons contracté la mauvaise habitude,
-vIL
-
-{ Charles Péguy .
 
 scolaire, de ne pas considérer un assez vaste espace de |
 
 #4 temps quand nous réfléchissons sur l'histoire de l'hu- À
-
-4 manité.
 
 $ Beaucoup plus que nous ne le voulons, beaucoup plus f
 
@@ -17836,8 +14670,6 @@ $ Beaucoup plus que nous ne le voulons, beaucoup plus f
 tous plus ou moins obscurément que l'humanité com- |
 
 mence au monde moderne, que l'intelligence de l'huma- |
-
-à nité commence aux méthodes modernes; heureux ,
 
 % quand nous ne croyons pas, avec tous les laïques, avec
 
@@ -17881,9 +14713,6 @@ par le chemin le plus long possible au point de connais-
 
 # sance ayant quelque rapport au texte qui est le plus
 
-à ; VUI ‘
-
-: ZANGWILL Ua 11
 éloigné du texte, alors nous obtenons le couronnement ai
 même de la méthode scientifique, nous fabriquons un 4
 chef-d'œuvre de l'esprit moderne ; et tant plus le point À. ‘|
@@ -17891,7 +14720,6 @@ de départ du commencement du commencement du tra- 1
 vail sera éloigné, si possible étranger, tant plus l'ache- 00
 minement sera venu de loin, et bizarre ; — de tant plus 1
 nous serons des scientifiques, des historiens, et des sa- "
-vants modernes. d
 
 Avons-nous à étudier, nous proposons-nous d'étudier : 100
 La Fontaine; au lieu de commencer par la première il 1
@@ -17917,9 +14745,6 @@ sentiment religieux au dix-septième siècle et dans La ‘4
 Fontaine ; de la faculté poétique; enfin troisième partie, ÿ
 l'art, qui ne se confond ni avec les deux premières 3
 ensemble, ni avec chacune des deux premières sépa- à]
-
-IX a. je
-r
 
 | ; Charles Péguy
 
@@ -17962,16 +14787,13 @@ pour parler exactement, tout cela serait fort bien si
 nous étions Dieu ; car si nous voulons évaluer les qualités, les capacités, les amplitudes que de telles méthodes
 nous demandent pour nous conduire à l'acquisition de
 quelque connaissance, nous reconnaissons immédiatement queles qualités, capacités, amplitudes attribuées
-aux anciens dieux parles peuples mythologues seraient
 absolument insuffisantes aujourd'hui pour constituer le
 
-ZANGWILL ei
 véritable historien, l'homme scientifique, — vir scien- '
 tificus, — le savant moderne; il ne suffit pas que le 0
 savant moderne soit un dieu; il faut qu'il soit Dieu; 1
 puisque l'on veut commencer par la série indéfinie, 4
 infinie du détail; puisque l'on veut partir d'un point M
-indéfiniment, infiniment éloigné, étranger, puisqu'avant À
 d'arriver au texte même on veut parcourir un chemin Ei
 indéfini, infini, pour épuiser tout cet indéfini, tout cet | il
 infini, l'infinité de Dieu même est requise, d'un Dieu |
@@ -18000,10 +14822,6 @@ nemment le sens du parfait, du fini, de la limite,
 l'avaient en particulier dans l'ordre de l'humanité ; h:
 ajouterai-je que ces humanités étaient généralement
 
-XI
-{
-
-4 Charles Péguy
 k | intelligentes, et qu'elles ne vivaient point sur des contra- |
 W riétés intérieures sans les avoir enregistrées; dans ces
 L humanités l'homme était reconnu limité aux limites
@@ -18035,10 +14853,7 @@ de l'humanité; ajouterai-je que généralement ces |
 humanités étaient à la fois intelligentes et profondes, et
 que la constatation même des contrariétés intérieures, |
 de la grandeur et de la misère, faisait peut-être le prin- |
-ï
-À
 
-ZANGWILL | ‘
 cipal objet de leurs méditations; dans ces humanités ‘à
 l'homme était reconnu créature et limité aux limites ‘4
 humaines ; l'historien demeurait un homme. ‘ee
@@ -18071,10 +14886,6 @@ populaire de nos démagogues anticatholiques ; ils ont 1e
 eux-mêmes absorbé beaucoup plus de bons Dieux, et ah
 de mauvais Dieux, qu'ils ne le croient. 44
 En face des dieux de l'Olympe, en face d'un Dieu ft
-XUI 1
-
-te
-Charles Péguy
 
 | Tout, en face du Dieu chrétien, l'historien était un
 
@@ -18107,16 +14918,10 @@ J tier, par méthode, nous n'avons ni vanité ni orgueil, ni ;
 présomption, ni cupidité de la domination; l'invention
 des méthodes historiques modernes a été proprement
 l'introduction de la modestie dans le domaine histo- î
-; rique.
 d C'est exactement là que réside la grande erreur |
 
 | moderne.
 Les prêtres aussi étaient de petits abbés et de petits
-XIV '
-
-AL à,
-
-ZANGWILL è ) 1
 
 curés; de modestes et d'honnêtes ecclésiastiques ; ils à
 n'occupaient aucune situation dans l'État, car les petits nel
@@ -18135,7 +14940,6 @@ devant sa table de travail, » nous dit le journaliste, L)
 « au milieu de ses livres et de ses carnets, M. Gabriel à
 Séailles me disait, en une causerie aimable et sympa- À
 thique, les mêmes choses à peu près dans les mêmes À
-termes. » À!
 |
 
 — Aimable, dans ces graves questions ; enfin. F
@@ -18148,16 +14952,12 @@ Jésus-Christ, qui avait des disciples ; M. Séailles forme t
 des élèves, tout simplement. j
 « M. Gabriel Séailles aime ces entretiens familiers où ÿ
 se plaît sa bonne humeur charmante. {
-a?
 
-: . : Charles Péguy CV
 À « Et vous la connaïssez bien, amis des universités LE
 # populaires; car le maître qui consacra tant de belles 13
 14 pages à la « biographie psychologique » d'ErnestRenan |
 L et qui, par ses discours et ses écrits, nous a fait mieux |
 \ connaître les pinceaux enchanteurs de l'immortel Wat- }
-+ teau, »..
-À f
 \ On dit Le pinceau, d'habitude; il est vrai qu'il en !
 avait plusieurs. 1
 ; « descend pour vous de sa chaire trop haute, à
@@ -18174,7 +14974,6 @@ FA bristol, le regard riant à travers le double verre du lor-
 ( gnon bien posé sur le nez fort, le front large, la barbe *
 cascadante grisonnante au menton, et les pieds chau- ;
 | dement fourrés dans les pantoufles, M. Gabriel Séailles
-poursuivit : » À
 Je suis assuré qu'un tel ton, de telles expressions |
 désobligent beaucoup M. Gabriel Séailles ; je n'insis- j
 terai point sur ce que la description détaillée de toutes É.
@@ -18182,10 +14981,8 @@ terai point sur ce que la description détaillée de toutes É.
 | A , .
 bligeant quand on s'installe pour traiter d'un débat qui
 divise douloureusement les consciences; je suis assuré
-; XVI
 
 Ne M x Eau 1 " j Ya L ton F Û Fat
-6 ZANGWILL rs
 que M. Séaïîlles sent beaucoup plus vivement que moi ‘43
 combien ces expressions sont inconvénientes ; pour moi R:
 elles me paraissent tout simplement insupportables; (4
@@ -18207,7 +15004,6 @@ contrefaçons des cérémonies religieuses; et pour la a
 commémoration de Zola, pour l'anniversaire de sa ‘4 4
 mort, ne nous a-t-on pas fait une semaine sainte, une 4
 neuvaine; sentiment religieux et naissance de la déma- , n
-gogie. ‘4
 Les prêtres aussi, les petits prêtres, en ce sens, n'oc- “ À
 cupaient aucune situation dans l'État, n'avaient aucun 3 fl
 pouvoir dans l'État; les prêtres aussi étaient assez mal- |
@@ -18218,15 +15014,11 @@ quand ils ne seront plus des fonctionnaires mal rétri- - 3 À
 bués d'Etat, ils seront des fonctionnaires mal rétribués 4 ;
 d'Église; et nul ne les entendra; ils poursuivent modes- Re Ho
 tement leur prédication de la vie future; par situation, @l
-XVII 184 # }
-M
 
-Charles Péguy
 4 par métier, par humilité chrétienne ils n'ont ni vanité
 | ni orgueil, ni présomption ni cupidité de la domina- A
 Î tion ; un curé de campagne est un petit seigneur; l'exer-
 | cice du ministère ecclésiastique est essentiellement un À
-k exercice d'humilité chrétienne.
 ! Je ne dis pas que cela soit vrai des prêtres; je dis
 que, autant et dans le sens que cela est vrai des
 ; universitaires, si l'on veut, autant et dans le même
@@ -18250,11 +15042,7 @@ passé. — Il entendait railler ainsi, doucement, les historiens antérieurs. �
 
 il, c'était quand le professeur d'histoire, assis devant
 son bureau, refaisait à loisir toutes les opérations du
-XVI ;
 
-A a
-:
-ZANGWILL k
 monde; il parlait de tout; il écrivait de tout; il était L;
 ministre, et refaisait l'administration de Colbert, qui, ï
 entre nous, n'était pas fort; il était général ou amiral, {
@@ -18282,9 +15070,7 @@ et peut-être a-t-il raison; peut-être les historiens, personnellement et comme
 modestes; mais je me demande justement si tout l'ancien orgueil ne s'est pas réfugié dans la méthode,
 agrandi, porté à la limite, à l'infini; je demande s'il
 n'est pas vrai que les méthodes scientifiques modernes,
-XIX
 
-* 4 Charles Péguy
 ; long ». Ce chemin-là lui a toujours plus agréé que les
 Et autres. Volontiers il citerait Platon et remonterait au
 
@@ -18304,10 +15090,8 @@ l tort. Laissez-nous prendre comme lui le chemin des |
 | ï L comme il faisait à l'endroit de ses bêtes, alléguer l'his-
 £ toire et le reste. C'est le plus long si vous voulez : au
 | demeurant, c'est peut-être le plus court.
-Î I.
 | « Me voici donc à l'aise, libre de rechercher toutes
 H les causes qui ont pu former mon personnage et sa
-poésie; »...
 | Toutes les causes qui ont pu former son personnage et
 | sa poésie, quelle prodigieuse audace métaphysique
 sous les modestes espèces d'un programme littéraire;
@@ -18317,9 +15101,6 @@ mais pour aujourd'hui passons.
 | J'en ai fait un l'an dernier par la mer et le Rhin, pour
 revenir par la Champagne. » …
 
-XXII
-
-ZANGWILL ;
 #
 Pour revenir est admirable, dans sa docte naïveté. IL 4
 fallait commencer par y aller. #
@@ -18349,9 +15130,6 @@ ici mon exemplaire, et je cite au long, pour que l'on ]
 voie, pour que l'on mesure, sur cet exemple éminent, ;
 toute la longueur du circuit : « Au nord, l'Océan bat
 les falaises blanchâtres ou noie les terres plates: les
-XXIU
-
-à } Charles Péguy
 
 " 5 coups de ce bélier monotone qui heurte obstinément la
 | k grève, l'entassement de ces eaux stériles qui assiégent
@@ -18380,7 +15158,6 @@ LA rassemble autour de lui les plis dorés de son manteau.
 FRS Des deux côtés les versants qui le nourrissent se re1 dressent avec un aspect énergique ou austère; les pins
 | XXIV
 
-ZANGWILL : " 48
 couvrent les sommets de leurs draperies silencieuses, 5e
 et descendent par bandes jusqu'au fond des gorges; le “4 ;
 puissant élan qui les dresse, leur roide attitude donne :5e8
@@ -18415,10 +15192,6 @@ l'éclair passager d'un ruisseau à travers les lentilles F.
 d'eau qui Pobstruent, la teinte délicate dont l'éloigne- Nix
 ment revêt quelque bois écarté, voilà les beautés de 1
 
-xXÉV ï f
-NE à
-
-is Charles Péguy
 de i9 notre paysage; il paraît plat aux yeux qui se sont
 ( reposés sur la noble architecture des montagnes mérif é dionales, ou qui se sont nourris de la verdure surabon-
 à é dante et de la végétation héroïque du nord; les grandes
@@ -18447,10 +15220,7 @@ en toute saison, vivre dehors sans trop pâtir ; les im-
 sens ou concentrer la sensibilité ; l'homme n'est point
 alourdi ni exalté; pour sentir, il n'a pas besoin de violentes secousses et il n'est pas propre aux grandes
 émotions. Tout est moyen ici, tempéré, plutôt tourné
-XXVI ;
 
-ZANGWILL ë
-s KL
 vers la délicatesse que vers la force. La nature qui est g:
 clémente n'est point prodigue; elle n'empâte pas ses a
 nourrissons d'une abondance brutale ; ils mangent so- À
@@ -18465,7 +15235,6 @@ grossier, pour porter dans leur cerveau la stupeur ou
 la violence; on les voit à la porte de leur chaumière,
 qui mangent debout un peu de pain et leur soupe ; leur LES
 vin ne met dans leurs têtes que la vivacité et la belle “
-humeur. <
 « Plus on les regarde, plus on trouve que leurs gestes,
 les formes de leurs visages annoncent une race à part.
 Il y a un mois, en Flandre, surtout en Hollande, ce
@@ -18483,10 +15252,7 @@ hommes, la vaillante pousse des corps superbes annon-
 mais l'intelligence brille, non pas la verve pétulante et
 la gaieté bavarde des méridionaux, mais l'esprit leste, k
 juste, avisé, malin, prompt à l'ironie, qui trouve son
-XXVII
 
-a Charles Péguy
-: |
 A. amusement dans les mécomptes d'autrui. Ces bourHs Ë geois, sur le pas de leur porte, clignent de l'œil derrière
 ‘à } vous; ces apprentis derrière l'établise montrent du doigt
 É votre ridicule et vont gloser. On n'entre jamais icidans
@@ -18538,11 +15304,6 @@ F soins de plusieurs anatomistes et physiologistes éminents, |
 
 L MM. Brown-Sequard, Béclard, Broca, Follin, Verneuil. — Note de
 
-À Taine. c |
-
-XXVIU $
-
-ZANGWILL à
 causes ; un cheval de Hollande est aussi peu semblable
 à un cheval de Provence qu'un homme d'Amsterdam à de
 un homme de Marseille. Je crois même que l'homme, :
@@ -18570,14 +15331,11 @@ les objets et la poésie du dehors deviennent les images w
 et la poésie du dedans. Il ne faut pas trop se hasarder Ÿ
 en conjectures, mais enfin c'est parce qu'il y a une
 France, ce me semble, qu'il y a eu un La Fontaine et des k
-Français. »
 
 Mon Dieu oui; seulement il y a une France pour tout
 le monde, la France luit pour tout le monde, et tous les
 Français, s'ils seront toujours français, ne sont pas
-FAX
 
-pe Charles Péguy
 } La Fontaine ; je n'insiste pas sur toutes ces difficultés,
 & Ré sur toutes ces contrariétés ; je m'en tiens pour aujourJE: d'hui à la forme même du connaissement ; la méthode
 \. ne se révèle pas dans toutes les œuvres modernes
@@ -18596,7 +15354,6 @@ F tour du pays, il commence l'autre tour, afin de ne point
 | k tomber par mégarde au cœur de son sujet, il commence
 4 le tour le plus cher à tout historien bien né, le tour des
 Ÿ livres et des bibliothèques ; avec ce tour commencera le
-me, paragraphe deux.
 « En tous cas, il y a un moyen de s'assurer de ce carac-
 Ê tère que nous prêtons à la race. La première bibliothèque
 Ë va vous montrer s'il est en effet primitif et naturel. II
@@ -18611,12 +15368,6 @@ Sans s'en douter vaut un certain prix. « Quelle oppo-
 Ê sition entre notre littérature du douzième siècle et celle
 À des nations voisines. » :
 
-F
-
-ë XXX :
-
-set,
-ZANGWILL . 4
 J'arrète ici pour aujourd'hui la citation ; la méthode | È
 est bien ce que nous avons dit; elle est doublement ce 7
 que nous avons dit; quand par malheur l'historien #3
@@ -18647,9 +15398,7 @@ auteur; cela fera autant de chapitres ; nous nous garderons surtout de nous occu
 pitre de l'art et de l'artiste; cela ferait un chapitre
 de perdu ; et si d'aventure, de male aventure nous parvenons à parcourir toutes les indéfinités, toutes les
 infinités de détail de tous ces chapitres, de toutes ces
-XXXI « |
 
-Dm À Charles Péguy
 É sections, il nous reste une ressource suprême, un dernier
 c. E moyen de nous rattraper; ayant étudié séparément
 ! l'homme, l'écrivain, l'artiste, et ainsi de suite, nous
@@ -18665,7 +15414,6 @@ NU aurons fini, si jamais nous finissons, le diable soit du
 ] bonhomme s'il peut seulement ramasser ses morceaux ;
 . que de les rassembler, il ne faut point qu'il y songe:
 l'auteur a fait un jeu de patience où nulle patience ne
-Fi 2e se retrouverait.
 
 Le bonhomme avait prévu tout cela ; il en avait prévu
 bien d'autres; il avait, croyons-le, nommément prévu
@@ -18685,9 +15433,7 @@ l les entendre, les interpréter, les représenter; on me
 É Mes chers enfants, dit-il, (à ses fils il parloit),
 
 k Voyez si vous romprez ces dards liés ensemble.
-Di) XXXII
 
-ZANGWILL À
 Je vous expliquerai le nœud qui les assemble. F
 L'aîné les ayant pris, et fait tous ses efforts, ;
 Les rendit, en disant : Je le donne aux plus forts. Le
@@ -18717,12 +15463,8 @@ travaux; mais ce que je dis, si vous assistez à une i
 soutenance de thèse et que vous entendiez bien, que #
 vous interprétiez les critiques du jury, c'est qu'elles je
 reviennent généralement à cela ; il faut avoir épuisé à
-XXXIII b. 6
-ul
 
 il
-
-47 Charles Péguy
 
 si l'infinité du détail pour arriver au sujet; et dans le
 ; sujet même il faut, par multipartition, avoir épuisé une
@@ -18735,8 +15477,6 @@ i détaillé, comme un circuit lui-même, à faire en défi-
 (4 soit pas le sujet.
 
 3 Avant de commencer, une infinité du détail par cirs culation ; au moment de commencer, une infinité d'infif nité du détail par multipartition.
-
-;
 
 Épuiser l'indéfinité, l'infinité du détail dans la connaissance de tout le réel, c'est la haute, c'est la divine,
 1 c'est la folle ambition, et qu'on le veuille ou non c'est
@@ -18755,9 +15495,7 @@ surhumaine, orgueilleuse, mystérieuse, agnosticiste ; et
 au contraire, un jour que nous essaierons d'éprouver
 plus profondément nos méthodes, qu'en histoire c'est
 la méthode discursive qui est surhumaine, orgueilleuse,
-XXXIV
 
-ZANGWILL ‘x
 mystérieuse, agnosticiste ; et que c'est la méthode {
 intuitive qui est humaine, modeste, claire et distincte à
 autant que nous le pouvons, scientifique. \
@@ -18790,8 +15528,6 @@ rien ayant conçu sa science selon une méthode qui ;
 requiert de lui exactement les qualités d'un Dieu. j
 Telle est bien la pensée de derrière la tête de tous :
 ceux qui ont fondé la science historique moderne, k
-‘
-à
 
 L Charles Péguy
 f introduit les méthodes historiques modernes, c'est-
@@ -18803,7 +15539,6 @@ F toute son histoire, ayant donc parcouru toute une
 PA: ayant donc littéralement épuisé tout un univers indéfini,
 Va infini, de détail; une humanité Dieu, ayant acquis,
 5 englobé toute connaissance dans l'univers de sa totale,
-F4 mémoire.
 F1 Une humanité devenue Dieu par la totale infinité de
 sa connaissance, par l'amplitude infinie de sa mémoire
 totale, cette idée est partout dans Renan; elle fut vrai-
@@ -18825,7 +15560,6 @@ limitation je trouve dans la préface même, écrite au
 ï sciences philologiques, ont fait d'immenses conquêtes
 |
 
-ZANGWILL à &
 depuis que je les embrassai avec tant d'amour, il y a 4
 quarante ans. Mais on en voit le bout. Dans un siècle, 4
 l'humanité saura à peu près ce qu'elle peut savoir sur 4
@@ -18854,12 +15588,9 @@ mentions plus ou moins honorables dans l'histoire du 1
 progrès sont à peu près déterminés. Et cette singulière À
 et inquiétante affirmation, ce jugement implacable,
 hautain, désabusé : Le propre de ces études est, aussitôt
-XXXVII
 
 | RUES Pc Lo NL |
-! Charles Péguy
 qu'elles ont atteint leur perfection relative, de com-
-. mencer à se démolir.
 Quel historien contemporain, quel petit-fils, quel
 ? petit-neveu du vieil homme ne reculera de saisissement
 | devant de telles affirmations, devant de telles présompf tions, devant cet admirable et tranquille orgueil, devant
@@ -18888,12 +15619,10 @@ reconnaissent pas toujours les grands ancêtres ; ce ne
 reçu de rudes avertissements ; pour deux raisons, l'une |
 recouvrant l'autre, nul aujourd'hui n'avancerait que Ë
 toute l'histoire du monde est sur le point d'aboutir, nul k
-XXX VIN |
 
 | ZANGWILL
 
 | aujourd'hui, de tous les historiens, ne souscrirait aux
-anticipations aventurées, aux grandes ambitions pleines
 de Renan.
 
 Premièrement pour des raisons d'histoire même; il
@@ -18926,7 +15655,6 @@ b. l'histoire tout court, on a tant surélevé l'histoire que l'on
 k. a quelque peu oublié que ce mot tout seul ne veut rien
 
 ||
-Charles Péguy .
 
 d dire, qu'il y faut un complément de détermination, que
 | l'histoire n'est rien si elle n'est pas l'histoire de quelque
@@ -18954,14 +15682,9 @@ FE l'on n'a jamais rien fait de mieux, dans le genre,
 14 que l'on ne fera jamais rien de mieux, qu'il est inutile
 ï d'insister, que le monde moderne est le dernier des
 \ mondes, que l'homme et quela nature a dit son dernier
-; | mot.
 lé Incroyable naïveté savante, orgueil enfantin des
 13 doctes et des avertis; l'humanité a presque toujours
 | cru qu'elle venait justement de dire son dernier mot;
-TS à
-
-CS
-ZANGWILL
 
 l'humanité a toujours pensé qu'elle était la dernière et
 la meilleure humanité, qu'elle avait atteint sa forme,
@@ -18991,11 +15714,7 @@ allait se figer dans la béatitude éternelle d'une humanité Dieu.
 Si je voulais chercher dans l'Avenir de la science
 tout cet orgueil, toute cette assurance et cette naïve
 
-XLI
-
 1. nl T F FRANS EE FES NET ss A tu
-k tt Charles Péguy {
-1e :
 4! certitude, ilme faudrait citer tout {Avenir de la science,
 
 | et une aussi énorme citation m'attirerait encore des
@@ -19043,10 +15762,6 @@ L: qui nous donne vraiment le fond et l'origine de sa
 j soit malheureusement presque toujours qu'une maturité
 persévérante réalisée, brusquement révélée dans un
 
-1: XLIL
-
-ZANGWILL
-
 éclair de jeunesse ; Renan lui-même en a beaucoup plus
 vécu, encore beaucoup plus qu'il ne l'a dit dans sa pré-
 face ; et le vieux Pourana de l'auteur est vraiment
@@ -19078,12 +15793,8 @@ passe les passages où ce Théoctiste rêve de la Terreur
 intellectuelle ; nous y reviendrons quelque jour; car
 ils sont extrêmement importants, et graves; et je
 
-XLIII "
-
-4 Charles Péguy
 1 m'en tiens à ceux où il rêve de la Déification intellec-
 | tuelle :
-‘4
 E « Je vous ai dit que l'ordre d'idées où je metiens en ce
 (1 moment ne se rapporte qu'imparfaitement à la planète
 14 Terre, et qu'il faut entendre de pareilles spéculations
@@ -19112,9 +15823,7 @@ nature l'a laissée. La botanique fait vivre artificiellement
 | actions lentes, les sélections laborieuses, l'éducation
 | compliquée et la conservation pénible d'un pareil être
 | contre nature. Une fabrique d'Ases, un Asg'aard, pourra
-Î XLIV ÿ
 
-ZANGWILL
 être reconstitué au centre de l'Asie, et, si l'on répugne
 à ces sortes de mythes, que l'on veuille bien remarquer
 le procédé qu'emploient les fourmis et les abeilles pour
@@ -19144,9 +15853,6 @@ Ces rêves, ces imaginations nous paraissent aujourd'hui monstrueuses, peut-êtr
 toutes parts nous avons reçu de la réalité de rudes
 
 avertissements ; nul aujourd'hui, de tous les historiens
-XLV
-
-É Charles Pégur
 
 fl : modernes, et de tous les savants, neles'endosserait ; et
 1l 4 non seulement il n'est personne aujourd'hui qui ne les
@@ -19179,13 +15885,9 @@ C'est alors peut-être que l'homme s'apercevrait que
 { « L'homme ne s'ar4 rête guère à cette pensée qu'un pas, un mouvement
 
 de lui écrase des myriades d'animalcules. Maïs, je le
-à 6 XLVI ;
 
-1" PS si . » 4
-ZANGWILL
 répète, la supériorité intellectuelle entraîne la supériorité religieuse; ces futurs maîtres, nous devons les
 rêver comme des incarnations du bien et du vrai; il y
-aurait joie à se subordonner à eux. »
 
 J'arrête ici ma citation, parce qu'il est très long de
 copier, et parce qu'ici, comme dans l'Avenir de la
@@ -19196,7 +15898,6 @@ je recommence : ‘
 « L'univers serait ainsi consommé en un seul être
 organisé, dans l'infini duquel se résumeraient des dé-
 cillions de décillions de vies, passées et présentes à la
-fois. »
 
 Or il est évident qu'un tel résumé ne pourrait s'obtenir que par une totalisation de la mémoire universelle, donc par une globalisation, par un achèvement,
 et par un arrêt de l'histoire.
@@ -19243,10 +15944,8 @@ s# qui s'est haussé en Dieu, qui a culminé en Dieu, qui
 | Ï if incarné en historien.
 
 « 4 « Déjà nous participons à la vie de l'univers (vie
-LE
 
 1 Voire il faut que je me résolve à découper ici mon
-R: exemplaire :
 
 | « (vie
 | “ bien imparfaite encore) par la morale, la science et
@@ -19257,7 +15956,6 @@ R: exemplaire :
 1 à quand il y aura un être actuellement parfait. Un tel
 ; j être n'existe pas encore, puisque nous n'avons que
 
-ZANGWILL à | F
 trois façons de constater l'existence d'un être, le voir, x
 entendre parler de lui, voir son action, et qu'un être (4
 comme celui dont nous parlons n'est connu d'aucune ,
@@ -19284,7 +15982,6 @@ faisons autant. La nature, à tous les degrés, a pour
 soin unique d'obtenir un résultat supérieur par le sacri- "
 fice d'individualités inférieures. Est-ce qu'un général,
 un chef d'État tient compte des pauvres gens qu'il fait
-tuer ?
 
 « Un seul être résumant toute la jouissance de
 l'univers, l'infinité des êtres particuliers joyeux d'y
@@ -19292,11 +15989,7 @@ contribuer, il n'y a là de contradiction que pour notre
 individualisme superficiel. Le monde n'est qu'une série
 de sacrifices humains ; on les adoucirait par la joie et
 
-XLIX
-À
-
 | es
-I] ; Charles Péguy ;
 |: la résignation. Les compagnons d'Alexandre vécurent
 f k d'Alexandre, jouirent d'Alexandre. Il y a des états
 he: sociaux où le peuple jouit des plaisirs de ses nobles, se
@@ -19328,11 +16021,7 @@ ph sacrifié a sa petite place dans l'œuvre éternelle, ce que
 4 des guirlandes et une cérémonie.
 fi « Le grand nombre doit penser et jouir par procu-
 ï ration. L'idée du moyen âge, de gens priant pour ceux
-H
 
-'
-
-È e ZANGWILL :
 qui n'ont pas le temps de prier, est très-vraie. La masse
 travaille ; quelques-uns remplissent pour elle les hautes
 fonctions de la vie; voilà l'humanité. Le résultat du
@@ -19364,12 +16053,8 @@ jouissent. Il meurt volontiers pour la gloire d'un chef,
 c'est-à-dire pour quelque chose où il n'a aucun profit
 direct. Je parle du vrai peuple, de la masse inconsciente, livrée à ses instincts de race, à qui la réflexion
 
-LI
-
-1 Charles Péguy
 És n'a pas encore appris que la plus grande sottise qu'on
 puisse commettre est de se faire tuer pour quoi que ce
-$ soit.
 4 « Parfois, je conçois ainsi Dieu comme la grande fête
 4 intérieure de l'univers, comme la vaste conscience où
 ÿ tout se réfléchit et se répercute. Chaque classe de la
@@ -19395,9 +16080,7 @@ des voluptés du voluptueux, des débauches du dé-
 f bauché, de la mondanité du mondain, de la sainteté de
 l'homme vertueux, des méditations du savant, de l'austérité de l'ascète. Par une sorte de sympathie douce, je |
 | me figure que je suis leur conscience. Les découvertes
-LIL s
 
-ZANGWILL
 du savant sont mon bien; les triomphes de l'ambitieux
 me sont une fête. Je serais fâché que quelque chose
 manquât au monde; car j'ai conscience de tout ce qu'il
@@ -19408,8 +16091,6 @@ tout ce qui a été beau, aimable, juste, noble me fait
 comme un paradis. Je défie avec cela le malheur de
 m'atteindre; je porte avec moi le parterre charmant de
 la variété de mes pensées.
-
-PHILALÈTHE.
 
 « Vous avez cherché à montrer sous quelles formes on
 peut rêver une conscience de l'univers plus avancée
@@ -19428,8 +16109,6 @@ totale; nous y voyons dès les premiers mots qu'elle ne
 l'obtient point par une réelle résurrection des individus
 réels, qu'elle ne l'obtient point proprement par ce que
 
-AR LIT c.
-
 || 1
 | É Charles Péguy
 L° nous nommons tous la résurrection des morts, mais
@@ -19438,7 +16117,6 @@ L° nous nommons tous la résurrection des morts, mais
 | 1174 reconstitution historique, par une totalisation de l'his-
 || 24 toire, par la résurrection des historiens, par le règne et
 1 par l'éternité de l'Historien.
-(| à THÉOCTISTE.
 | is « Dites mieux, la résurrection des individus. Sur ce
 1 “S point, je m'écarte des conceptions, merveilleuses du
 | 108 reste de poésie et d'idéal, où s'éleva le génie grec.
@@ -19460,7 +16138,6 @@ Do. passé, pour en réparer les innombrables iniquités. Dieu
 # existera de plus en plus; plus il existera, plus il sera
 | 14 juste. Il le sera pleinement le jour où quiconque aura
 
-ZANGWILL |
 travaillé pour l'œuvre divine sentira l'œuvre divine accomplie, et verra la part qu'il y a eue. Alors l'éternelle
 inégalité des êtres sera scellée pour jamais. Celui qui
 n'a fait aucun sacrifice au bien, au vrai retrouvera ce
@@ -19493,8 +16170,6 @@ Chéphrem dont nous parlions tout à l'heureexiste encore
 par la pierre qu'il a posée; ainsi sera-t-il de l'homme
 qui aura collaboré à l'œuvre d'éternité. Nous vivons en
 
-LV
-
 | à Charles Péguy
 
 (1 4 proportion de la part que nous avons prise à l'édification
@@ -19507,18 +16182,11 @@ Ex serons ce qu'est la coquille géologique dans le bloc des-
 #4 tiné à bâtir un temple. Ce pauvretrilobite dont la trace
 2 est écrite dans l'épaisseur de nos murs y vit encore un
 | +5 peu ; il fait encore un peu partie de notre maison.
-h : EUDOXE. £
 4 « Votre immortalité n'est qu'apparente; elle ne va
 F pas au delà de l'éternité de l'action; elle n'implique pas
 à l'éternité de la personne. Jésus aujourd'hui agit bien
 © plus que quand il était un Galiléen obscur; mais il ne
 h vit plus.
-
-À
-
-hr. THÉOCTISTE.
-
-ra
 
 Fe « Il vit encore. Sa personne subsiste et est même aughi mentée. L'homme vit où il agit. Cette vie nous est plus
 & chère que la vie du corps, puisque nous sacrifions vo-
@@ -19532,9 +16200,7 @@ jf fuient. Tamerlan est plus célèbre que tel juste ignoré.
 (É fluence vraie est l'influence cachée; non que l'opinion
 À définitive de l'histoire soit en somme très fausse; mais
 4 elle pèche tout à fait par la proportion. Tel innomé a
-}
 
-ZANGWILL
 été peut-être plus grand qu'Alexandre; tel cœur de
 femme qui n'a dit mot de sa vie a mieux senti que le
 poëte le plus harmonieux. — Je parle de la vie par
@@ -19552,12 +16218,8 @@ il n'a pas plus d'inconvénient que l'emploi de toute autre
 figure ou métaphore. Le langage devient impossible, si
 l'on pousse à l'excès le purisme à cet égard.
 
-EUDOXE.
-
 « C'est entendu; mais vous ne nous avez pas expliqué
 comment on peut parler de réelle existence sans conscience.
-
-THÉOCTISTE. ,
 
 « La conscience est peut-être une forme secondaire
 de l'existence. Un tel mot n'a plus de sens quand on
@@ -19566,11 +16228,7 @@ suppose une limitation, une opposition du moi et du
 non-moi, qui est la négation même de l'infini. Ce qui
 est éternel, c'est l'idée. La matière est chose toute relative ; elle n'est pas réellement ce qui est; elle est la cou-
 
-LVII
-
-MAN 0 s A OT URL PR OSSI RE
 | ë
-4 Charles Péguy
 | à
 |A leur qui sert à peindre, le marbre qui sert à sculpter, :
 l 2 la laine qui sert à broder. La possibilité de faire exister
@@ -19595,14 +16253,11 @@ payé ; mais je désire que cela serve à quelque chose :
 } ‘ que quelqu'un le sût; je veux l'estime de Dieu, rien de
 Dé : plus; ce n'est pas exorbitant, n'est-ce pas? Reproche1 t-on au soldat mourant de s'intéresser au gain de la É
 | bataille et de désirer savoir si son chef est content de
-1 lui?
 | l « La sensation cesse avec l'organe qui la produit,
 | l'effet disparaît avec la cause. Le cerveau se décomposant, nulle conscience dans le sens ordinaire du mot ne
 f peut persister. Mais la vie de l'homme dans le tout, la
 À place qu'il y tient, sa part à la conscience générale,
 | voilà ce qui n'a aucun lien avec un organisme, voilà ce
-LL $ LVI :
-ÿ 12
 
 | ZANGWILL |
 _ qui est éternel. La conscience a un rapport avec :
@@ -19614,7 +16269,6 @@ qui y sert.
 « Consolons-nous, pauvres victimes; un Dieu se fait
 
 avec nos pleurs.
-EUTHYPHRON.
 
 « Les savants positivistes auront toujours une difficulté capitale contre ce que vous venez de dire, et aussi
 contre plusieurs des vues que nous ont développées
@@ -19624,9 +16278,6 @@ l'idéal des volontés, des actes qu'on n'a remarqués jusqu'ici que chez des ê
 la manière du dernier zoophyte. Où sont ses nerfs? Où
 est son cerveau? Or, sans nerfs ni cerveau, ou pour
 mieux dire sans matière organisée, on n'a jamais constaté jusqu'ici de conscience ni de sentiment à un degré
-quelconque.
-
-THÉOCTISTE. >
 
 « Votre objection, décisive contre l'existence des
 àmes séparées et des anges, n'est pas décisive contre
@@ -19635,9 +16286,6 @@ impulsion instinctive serait quelque chose de sui
 generis, un principe premier comme le mouvement luimême. Ce n'est jamais que par métaphore que nous
 avons pu présenter l'univers comme un animal. Animal
 
-LIX
-
-LÀ * Charles Péguy
 É. suppose espèce, pluralité d'individus; il y aurait donc
 4 plusieurs univers! Mais que la masse infinie produise
 é une sorte d'exsudation générale, à laquelle, faute de
@@ -19647,7 +16295,6 @@ LÀ * Charles Péguy
 5 nature se réduit au mouvement. Oui certes; mais le
 ee mouvement a une cause et un but. La cause c'est l'idéal;
 ‘a le but, c'est la conscience. à :
-“2 \ PHILALÈTHE.
 
 i * « Je me dis souvent que si le but du monde était une
 ‘1 course aussi haletante que vous le supposez vers la
@@ -19655,7 +16302,6 @@ i * « Je me dis souvent que si le but du monde était une
 à lants, pas de joie, pas de printemps. Tout cela suppose
 ‘3 un Dieu moins affairé que vous ne croyez, un Dieu déjà
 ‘à arrivé, qui s'amuse et jouit d'un état acquis définiti4 vement.
-À EUDOXE.
 : « J'irai plus loin que vous, et je réclamerai au centre ,
 | de l'univers un immotum quid, un lieu des idées, comme |
 4 le voulait Malebranche. On revient toujours aux formules
@@ -19666,9 +16312,7 @@ Dieu sera et Dieu est. En tant que réalité, il sera ; en !
 tant qu'idéal, il est. Deus est simul in esse et in fieri.
 Cela seul peut se développer qui est déjà. Comment, |
 d'ailleurs, imaginer un développement ayant pour point |
-1 Le
 
-ZANGWILL
 de départ le néant? L'abiîme initial fût resté à tout S
 jamais en repos, si le Père éternel ne l'eût fécondé. A
 côté du jieri, il faut donc conserver l'esse; à côté du
@@ -19685,8 +16329,6 @@ d'expliquer comment l'équilibre s'est rompu. Si le tireur
 dont nous parlions hier tire depuis l'éternité, il a déjà
 dû atteindre le but.
 
-EUTHYPHRON.
-
 « Nous touchons ici aux antinomies de Kant, à ces
 goufires de l'esprit humain, où l'on est ballotté d'une
 contradiction à une autre. Arrivé là, on doit s'arrêter.
@@ -19699,18 +16341,11 @@ paysage ; nous commettons la même erreur que celle à
 laquelle on est exposé en déchiffrant les papyrus
 d'Herculanum. Les différents feuillets se pénètrent réci-
 
-LXI
-d
-
-4 Charles Péguy
-(
 ti PA proquement, et l'on rapporte à une page des lettres qui
 F viennent de dix pages plus loin.
-ù
 de.
 | % n
 | 2 EUDOXE.
-1 2 a
 | 12 « Remercions Théoctiste de nous avoir dit tous ses
 | rêves. « C'est bien à peu près ainsi que parlent les
 | 108 prêtres; mais les mots sont différents. » Les esprits
@@ -19718,8 +16353,6 @@ F superficiels échappent seuls à l'obsession de ces proon blèmes. Ils se renf
 Hé Ces gens-là eussent dit à Colomb regardant l'horizon
 | de la mer vers l'Occident: « Pauvre fou, tu vois bien
 ‘à qu'il n'y a rien au delà. »
-'
-} PHILALÈTHE.
 3 « Dans quelques années, si nous existons et si quelque
 chose existe, nous pourrons reprendre ces questions et
 à voir en quoi se sera modifiée notre manière d'envisager
@@ -19728,17 +16361,13 @@ F l'univers. Quel dommage que nous ne puissions, comme
 il donner rendez-vous à ceux d'entre nous qui seront
 | morts, pour qu'ils viennent nous rendre compte de la
 k. réalité des choses de l'autre vie !
-‘te
 | \ EUDOXE.
-h.
 « Je crois qu'en pareille matière le témoignage des
 f morts est peu de chose. Comme dit la parabole: Neque }
 (à si quis mortuorum resurrexerit credent. En fait de
 vertu, chacun trouve la certitude en consultant son
-propre cœur. »
 | LXI
 
-ZANGWILL
 On ne me pardonnera pas une aussi longue citation;
 mais on m'en louera ; et on la portera sans doute à mon /
 actif; car c'est un plaisir toujours nouveau que de
@@ -19799,10 +16428,6 @@ que de commencer par discerner ces trois plans ; mais
 ‘à comme on en serait récompensé; comme la partie qui
 : reste est pleine et lourde ; comme la domination de
 | l'arrière-pensée est impérieuse.
-A LXIV |
-
-1 Ÿ *
-ZANGWILL
 
 Je n'ignore pas, je le répète, que la plupart de ces K
 rêves soulèvent en nous des indignations légitimes, et
@@ -19833,10 +16458,6 @@ cité aujourd'hui, tout au long, sans l'interrompre, et sans
 le troubler de commentaires, parce que s'il porte en
 même temps sur une infinité d'autres immenses questions, il porte aussi, tout entier et à plein, sur la grosse
 
-LXV
-
-: EAU S it CERN LRO RAT ent RER ERS
-(1 Charles Péguy
 À. question qui s'est soulevée devant nous; et sur cette
 H question nous ne l'avons pas interrompu, parce qu'il est
 
@@ -19845,8 +16466,6 @@ H question nous ne l'avons pas interrompu, parce qu'il est
 l: l'interprète; il est formellement un texte de métaphy-
 
 d sique, et j'irai jusqu'à dire qu'il est un texte de théo-
-
-là logie.
 
 Les textes de Taïne, et sur ces textes reportons-nous
 
@@ -19879,7 +16498,6 @@ Car c'est un avantage capital de Taïine, et que nul de
 | ses prétentions ; brutal et dur, souvent grossier, et
 | LXVI
 
-ZANGWILL
 mesurant les grandeurs les plus subtiles par des unités *
 qui ne sont point du même ordre, il a au moins les
 vertus de ses vices, les avantages de ses défauts, les
@@ -19907,10 +16525,8 @@ près aussi bien réussi; je tiens ce tour de France pour
 un symbole unique; oui c'est bien là le voyage antérieur
 que nous faisons tous, avant toute étude, avant tout
 travail, nous tous les héritiers, les tenants, la monnaie
-LXVII
 
 66 18% LE VA bte Eesti Cala 2 ER Lo
-! Charles Péguy
 | € de la pensée moderne; tous nous le faisons toujours,
 || “ ce tour de France-là ; et combien de vies perdues à faire
 d le tour des bibliothèques ; et pareillement nous devons
@@ -19941,7 +16557,6 @@ fi pleine vie, en pleine élaboration, du génie vivant; et
 | ries particulières, quelle ne sera pas la totale atteinte
 1] obtenue par la conclusion, où se ramassent et cul1 LXVIIL
 
-ZANGWILL
 minent toutes les ambitions des théories particulières ;
 je ne puis citer les théories particulières; il faudrait
 remonter de la fin du volume au commencement, il fau- :
@@ -19963,7 +16578,6 @@ que de corriger sur épreuves un texte de Renan, et se
 fait-on un devoir de corriger sur épreuves un texte de
 Taine; telle est la différence que je vois entre les héritages laissés par ces deux grands maîtres de la pensée ‘
 moderne. « J'ai voulu montrer », dit Taine en forme de
-conclusion : à
 
 « J'ai voulu montrer la formation complète d'une
 œuvre poétique et chercher par un exemple en quoi consisté le beau et comment il naît.
@@ -19973,17 +16587,13 @@ climat, du sol, des aliments, et des grands événements
 qu'elle a subis à son origine. Ce caractère l'approprie
 et la réduit à la culture d'un certain esprit comme à la
 
-LXIX d.
-
 il URI N
-By © Charles Péguy
 Ê conception d'une certaine beauté. C'est là le terrain
 À 1 national, très-bon pour certaines plantes, mais trèsD: mauvais pour d'autres, incapable de mener à bien les
 | 1 graines du pays voisin, mais capable de donner aux
 | siennes une séve exquise et une floraison parfaite,
 | lorsque le cours des siècles amène la température dont
 : 14 elles ont besoin. Ainsi sont nés La Fontaine en France
-; au dix-septième siècle, Shakspeare en Angleterre pen-
 | . dant la Renaissance, Gœthe en Allemagne de nos jours.
 À « Car le génie n'est rien qu'une puissance développée,
 4 et nulle puissance ne peut se développer tout entière, :
@@ -20007,8 +16617,6 @@ H c l'œuvre, le pays et le siècle, un grand artiste est un :
 homme public. C'est par elle qu'on peut le mesurer et
 te lui donner son rang. C'est par elle qu'il plaît à plus ou
 { moins d'hommes et que son œuvre reste vivante pen-
-
-ZANGWILL
 
 dant un temps plus ou moins long. En sorte qu'on doit
 le considérer comme le représentant et l'abrégé d'un
@@ -20040,8 +16648,6 @@ générales sans les petits faits sensibles qui les manifestent, ni les petits f
 générales qui les ont produits. Son œuvre nous tient |
 lieu des expériences personnelles et sensibles qui seules
 peuvent imprimer en notre esprit le trait précis et la
-
-EXXT
 
 | 0 ne :
 
@@ -20080,9 +16686,7 @@ te arbres immenses qui croissent autour d'elle; on l'oublie,
 k leur ombre; on la décompose plus aisément ; on la met
 4 4 mieux en expérience ; et l'on peut découvrir en elle les
 ÿ lois générales, selon lesquelles toute plante végète et se
-\! soutient. »
 
-ZANGWILL
 Je me garderai de mettre un commentaire de détail à |
 ce texte ; il faudrait écrire un volume; il faudrait mettre,
 à chacun des mots, plusieurs pages de commentaires,
@@ -20102,18 +16706,15 @@ net, que n'étaient les anticipations de Renan; ne nous
 laissons pas tromper à la modestie professorale; ne
 nous laissons d'ailleurs pas soulever à toutes les indignations qui nous montent; je sais qu'il n'y a pas un
 mot dans tout ce Taine qui aujourd'hui ne nous soulève
-d'indignation ; attribuer, limiter Racine au seul dix- ;
 septième siècle, enfermer Racine dans le siècle de
 Louis XIV, quand aujourd'hui, ayant pris toute la reculée nécessaire, nous savons qu'il estune des colonnes
 de l'humanité éternelle, quelle inintelligence et quelle
-hérésie, quelle grossièreté, quelle présomption, au fond
 quelle ignorance ; mais ni naïveté, ni indignation ; il ne
 s'agit point ici de savoir ce que vaut Taine; il ne s'agit
 point ici de son inintelligence et de son hérésie, de sa
 grossièreté, de son ignorance ; il s'agit de sa présompLXXIU
 
 | de: < ,
-4 Charles Péguy
 
 h tion ; il s'agit de savoir ce qu'il veut, ce qu'il pense
 48 avoir fait, enfin ce que nous voyons qu'ila fait, peut-être
@@ -20155,7 +16756,6 @@ fl même des phénomènes ; pareillement en histoire, si nous
 {l connaissons exactement, entièrement les conditions
 gi physiques, chimiques, naturelles, sociales qui détermi-
 
-ZANGWILL ;
 nent les peuples, les cultures, les talents, les génies,
 toutes les créations humaines, et les humanités mêmes,
 et si vraiment d'abord ces conditions extérieures, anté-
@@ -20183,12 +16783,7 @@ adversaires, de ses contradicteurs, de ses critiques
 éventuels; toute sa forme de pensée, toute sa méthode,
 tous ses goûts, tout son passé, toute sa vie de travail, C
 de mesure, de goût, de sagesse le gardaient contre de
-LXXV
 
-Î h - 4
-l
-b Charles Péguy
-LE -
 * telles exagérations; il n'a jamais aimé Les outrances, et,
 h juste distributeur, autant et plus averti sur lui-même
 il que sur les autres encore, il ne les aimait pas plus chez
@@ -20218,9 +16813,6 @@ f illustre contemporain, qu'enfin nous connaissons, dans
 | À sance audacieuse, que de constituer une lointaine <
 | : surhumanité en un Dieu tout connaissant par une totali lisation de la mémoire historique; avec Taine au conl traire, ou plutôt au delà, nous avons épuisé nettement
 | LXXVI :
-:
-
-ZANGWILL
 
 des indéfinités, des infinités, et des infinités d'infinités
 du détail dans l'ordre de la connaïissance, et de la connaissance présente ; désormais transportés dans l'ordre
@@ -20256,11 +16848,6 @@ ce que nous nommons orgueil était en lui un défi à l'infortune, à la paresse
 malheur, non une insulte à l'humilité, parce que ce que
 nous croyons être un sentiment de l'orgueil était pour
 
-LXXVII
-
-$
-M: Charles Péguy
-‘4
 1° lui le sentiment de la conscience même, du devoir le
 [oi plus sévère, de la méthode la plus stricte; et c'est pour
 4 cela que nous lui devons, à lui et non à son illustre
@@ -20291,10 +16878,7 @@ UE: puissance, les qualités; enfin l'accomplissement de
 | : dont on l'entoure, justement par ce qu'elles ont de
 minutieux, par tout le soin qu'elles exigent, peuvent si k
 bien se retourner, s'entendre en précautions prises |
-: LXX VIII É
 
-« 1
-ZANGWILL '
 pour qu'il n'arrive pas; une opération si lointaine, si ;
 délicate, si minutieuse, ne va point sans un nombre ;
 incalculable de risques; Renan, grand artiste, a évidemment compté sur la sourde impression que l'attente
@@ -20311,17 +16895,13 @@ Renan n'est point engagé au delà des convenances intellectuelles et morales ; 
 « mais ne pensez-vous pas, » dit Eudoxe:
 « Mais ne pensez-vous pas que le peuple, qui sentira
 grandir son maître, devinera le danger et se mettra en
-garde ?
-THÉOCTISTE. -
 « Assurément. Si l'ordre d'idées que nous venons de
 suivre arrive à quelque réalité, il y aura contre la
 science, surtout contre la physiologie et la chimie, des
 persécutions auprès desquelles celles de l'inquisition
 auront été modérées. La foule des simples gens devinera
 son ennemi avec un instinct profond. La science se |
-LXXIX
 
-d' « : Charles Péguy
 | réfugiera de nouveau dans les cachettes. Il pourra
 ; venir tel temps où un livre de chimie compromettra
 autant son propriétaire que le faisait un livre d'alchimie au moyen âge. Il est probable que les moments les
@@ -20353,8 +16933,6 @@ grossier; mais elle éclatera, toute évidente, le langage 1
 étant donné, pour le lecteur insidieux ; dans la préface à
 ,
 
-ZANGWILL
-
 même de ces dialogues redoutables et censémient consolateurs, de ces rêves redoutablement consolateurs, le
 sage nous met en garde contre les épouvantements :
 « Bien assis sur ces principes, livrons-nous doucement à
@@ -20379,17 +16957,12 @@ comme on dit, éminemment représentatif, c'est que
 dans sa grande honnêteté universitaire il usurpe nette- ù
 ment les fonctions de création, et qu'il usurpe ces
 fonctions pour l'humanité présente avec une brutalité
-nette.
 
 La seule garantie qu'on nous donne à présent est
 qu' « une société d'anthropologie vient de se fonder à
 Paris, par les soins de plusieurs anatomistes et physiologistes éminents »; nous qui aujourd'hui savons ce que
 c'est, dans le domaine de Fhistoire,que l'anthropologie,
 
-LXXXI
-
-ho ee Fr OR AR LU |
-Ê. ; Charles Péguy
 ‘8 et ce que c'est, dans la république des sciences, que la
 société d'anthropologie, une telle garantie nous effraye
 | plus qu'elle ne nous rassure ; c'est bien sensiblement à
@@ -20419,9 +16992,7 @@ LE Ainsi les propositions de Taine ont l'air moins audacieuses que les propositi
 fi revêtent un simple langage professoral, modeste, qu'à
 1h son insu elles nous trompent et que, nous donnant le
 1! dernier mot de la pensée moderne en tout ce qui tient è
-l LXXXIL
 
-ZANGWILL e |
 à l'histoire, elles nous dissimulent tout ce qu'elles contiennent et admettent de surhumanité.
 
 Ce dernier mot de la pensée moderne en tout ce qui
@@ -20447,13 +17018,7 @@ les pessimismes sont des arrêts comme les optimismes,
 et que c'est l'arrêt même qui nous paraît vain; qui aujourd'hui se flatterait d'arrêter l'humanité, ou dans le
 bon, ou dans le mauvais sens, pour une halte de béati-
 
-‘
-LXXXII
-'
-
 | 4
-% Charles Péguy
-A:
 .°1e tude, ou pour une halte de damnation ; l'idée que nous
 # recevons au contraire de toutes parts, du progrès et de
 4 l'éclaircissement des sciences concrètes, physiques,
@@ -20481,12 +17046,7 @@ D anciens, inattendues, nouvelles perpétueitement; que
 | sans doute il en recevra éternellement ; que l'avance- |
 ‘4 ment que nous croyons voir se dessiner revient peutEn être à n'avancer que dans l'approfondissement de cette « formule antique, à lui trouver tous les jours des sens
 (à nouveaux, des sens plus profonds; qu'il reste immen-
-; LXXXIV
-È
 
-F L
-
-ZANGWILL
 sément à faire, et encore plus immensément à connaître; que tout est immense, le savoir excepté;
 surtout qu'il faut s'attendre à tout ; que {out arrive;
 qu'il suffit d'avoir un bon estomac; que nous sommes
@@ -20515,11 +17075,6 @@ deux peuples se sont affrontés, avec un fanatisme de
 rage dont il ne faut pas dire seulement qu'il est barbare,
 qu'il fait un retour à la barbarie, mais dont il faut
 
-LXXXV
-e
-
-n. Charles Pégur
-
 ‘4 ‘avouer ceci, qu'il paraît prouver que l'humanité n'a rien
 
 M gagné peut-être, depuis le commencement des cultures,
@@ -20539,7 +17094,6 @@ courir au bout du monde, parmi nos Français mêmes, ‘
 14 quels rudes avertissements n'avons-nous pas reçus, et
 \ en quelques années ; qui prévoyait qu'en pleine France
 | toute la haine et toute la barbarie des anciennes
-Ë guerres civiles religieuses en pleine période moderne
 É. serait sur le point d'exercer les mêmes anciens ravages ;
 ‘4 derechef qui prévoyait, qui pouvait prévoir inverseik ment que les mêmes hommes, qui alors combattaient
 È l'injustice d'État, seraient exactement les mêmes qui,
@@ -20559,9 +17113,7 @@ j de crise, et de tant de crise tant d'indifférence; qui fa
 ! aujourd'hui répondrait de l'humanité, qui répondrait \
 ! d'un peuple, qui répondrait d'un homme.
 à Qui répondra de demain ; comme dit ce gigantesque |
-LXXXVI k
 
-ZANGWILL
 Hugo, si éternel toutes les fois qu'il n'essaie pas d'avoir (
 une idée à lui :
 Non, si puissant qu'on soit, non, qu'on rie ou qu'on pleure, ;
@@ -20592,12 +17144,7 @@ Et ce n'était pas la peine de tant mépriser Michelet.
 
 Les vieux eux-mêmes, Taine, Renan, les autres, quand
 ils travaillaient, oubliaient, étaient contraints d'oublier
-leurs propres enseignements ; leurs propres ambitions ;
 toutes les fois qu'un volume de Taine paraissait, c'était
-
-LXXXVII
-
-1 Charles Pégury
 
 18 que Taine avait, pour la pratique de son travail, pour
 | [1 la réalisation du résultat, oublié de poursuivre l'indéfi-
@@ -20605,7 +17152,6 @@ LXXXVII
 t de Renan, c'était que Renan avait, pour cette fois,
 |: renoncé à la totalisation du savoir; ils avaient choisi;
 À ; comme tout le monde, comme les anciens, comme Hérodl dote, comme Plutarque, et comme Platon, ils avaient
-choisi.
 É Choisi, le grand mot est là; choisir est un moyen
 L d'art; comment choisir, si l'on ne veut absolument pas
 a. employer les moyens d'art; choisir, c'est faire un rac- -
@@ -20629,11 +17175,7 @@ l poursuite indéfinie du détail, qu'il fait œuvre d'artiste,
 débat de toute la pensée moderne; au cœur de la plus
 pi grande contrariété moderne ; et c'est sur ce seuil que
 bi} nous nous arrêterons, pour aujourd'hui, car il est éviAl LXXX VIII k
-l
 
-5 L
-:
-ZANGWILL |
 “dent que ce simple avant-propos ne peut devenir ni un |
 traité, ni même un essai de la manière d'écrire l'histoire;
 c'est déjà beaucoup, peut-être, que d'avoir commencé
@@ -20660,8 +17202,6 @@ nous arrêterons, pour aujourd'hui, au seuil de ce débat;
 c'est assez écrit pour un cahier, pour l'avant-propos d'un
 cahier; gardons-nous quelque travail pour les veillées de
 cet hiver; en outre, je parviens au point de nos recherLXXKIC
-
-‘à Charles Péguy |
 
 ches où il me serait presque impossible de continuer 1
 
@@ -20700,10 +17240,6 @@ nuée permet aux considérations d'apparaître sans pa-
 
 raître trop misérables en comparaison du texte. $
 
-L
-
-CHARLES PÉGUY É
-
 Nous n'avons pas coutume ici de remercier nos col
 
 laborateurs, puisque nous travaillons tous d'un même M
@@ -20720,107 +17256,23 @@ thousiasme ce beau poème, totalement inconnu de nous; $
 
 d'enthousiasme nous l'apporta. À
 
-è
-
 Le ae . sf: LES DE CPP TRE A Tens-n aa es ©
 : jSIRSINES CE REIT Eau AT 0e MEET ou ee : 3
-2 Nr. À 0 à. FT RER AVE Far (ee Er TE 08)
-: CRE FOR : LEE VA 2210 PE L'TURRE 1 0
 | LUE F À + EST RS Tree A PNR
-FRS 7% x È % r ,] Lie + 48) ren
-FL x Ÿ "00
-me: Lo: : : à 1800
 SL Les Fer FE LL
-ane | + A COR à vs
-HA es : 70
-ad a re 4 ss . 2 ï
-1e 4 ie A
-4 RUN :
-t: ut - 3 : Ni! Pat:
-dr TP : 3400
-AL ;
-5 ue Eh
-ft ‘NES
-A \ a
-re pt: 15
-A x |
-ir x fa
 # CYR
 | ÿ, 124 #4 eu
-. s'- APRES
-AT) LA en 4 à
-Mo HIER
-irait ù 2
-ie 4 4 F $ à hi On.
-FANS f À d k
-3 ANT - À n us
 
 À RACE AT tt ES AL nn PASS GANTS LES
-PR LL MOTS ME ARE ee ht ÉRRre j te AREREN
-LISE CELA
-“ RTE à FR F F0 A
 NE wi à pu : $ “ER
-Gs LUE Re
-44 LALI À Le
 er sa
-Ra: d : 242
-12 1 FA
-DE :, &
-Je
-PEL È
-5e 4
-“ie :4
-VERS “ à FA
-3 TR
-PA ae
-11% = ‘
-HR S
-“es Li -
-ER ji
 
 Et c LAS dx Ve ue F e s + v : r
-4% AR CE MEN PART ER RTE DURS She EN APPEL ET)
 ÿ 5 Tale LA TES HS y LE ER on SALE 5548 Ve D ÉRRMTRNTS RTES
-RER re 15 é LR NN SEE
-M ARE ver
-LL HRSETESEE F SES TIR
-Der SX RAS À R A TRIER ere
-LPS EE 20e
-DPRRANE rer u LEE
 Tr RER : ei ce se
-5 CÉSTeS È = CE « Ts
-DS : LS
-its enr s = C2
-É : LOS
-DR à + #, Ke Ur
 ce TITES x rs
-LÉCAEE , CRE |:
-He Rens re NA Er ARE :
-MRC: E 72
-É, MIRE ‘ LATE
 
-FRERE TE SE M RE HE NUR Sen
-D UT Re Nero FF Rte 22
--. SEC Ç En e re | & : à SSTTTNRESSS
-5. ES à L Fe ey = RAR CE.
-TS 14 PE” < RES ES
-De — = (+ FT LS
-LÉ > der te
-Re + = A É " Et Le ne
-EC . DE CSES
-28 É Suns Vr f 4
-D - LAIT TE
-LS RSS TUE
-Ts a Fi RE L'AIR
-« 3% TESTS
-Ne < RAR RU TEE
-LEE : SAPIN
 | TRES = EU Fo
-Tr = b mr
-ae - PERS
-
-MATHILDE SALOMON
-ZANGWILL
 
 Chad Gadya! est la dernière d'une série d'études
 publiées il y a quelques années par M. Israël Zangwill
@@ -20828,7 +17280,6 @@ sous le titre : Les Réveurs du Ghetto.
 
 Quelques-uns de ces rêveurs ne se sont pas confinés
 dans les limites étroites du cercle juif. Le monde connaît leur nom et leur action : ils s'appellent Spinoza,
-Henri Heine, Lord Beaconsfield, Ferdinand Lassalle,
 pour ne citer que ceux-là. ;
 
 En nous exposant certains traits de leur vie et de
@@ -20844,7 +17295,6 @@ Chad Gadya/! nous présente le juif moderne à l'intelligence façonnée par l'�
 v Mathilde Salomon à LEUR
 LE chrétienne. Lui aussi est possédé des mêmes besoins
 e: : de vérité, de certitude, de justice, résumés sous un seul 4
-En À È £
 ca mot : Dieu! Et un drame poignant se déroule dans sa
 
 ne conscience entre les données de sa raison et les mysté- ;
@@ -20859,83 +17309,20 @@ ne conscience entre les données de sa raison et les mysté- ;
 
 " justice visible, immédiate, non pas future et chimé-
 
-j rique.
-
 k , Un monde qui n'est pas régi par elle ne lui paraît pas 3
 
 Re un monde habitable. Si la vie n'est qu'un jeu de forces
 
 & brutales, inconscientes, l'idéal, c'est la délivrance de la
 
-. vie. ë |
-
-é 4
-
-a Mathilde Salomon
-
-}
-
-$
-
-3)
-
-x
-
-ù -
-
 | v#|
 
 Û La ARE RER ja je RER AIR
 D ee TS CE
-É Te re RP US RD EURE re
 
 à BARRE Pipe #ÿe à: : NT TES
-LTÉRÉCARRESS Dee 2 4 RER
-a PR RS
-DE RE Re : ; STE
-S MR 2: PE
-RES ES x F Dan:
-RENE RS L'ÉNOETEE À è Ne:
-RE ME nd de % * î à +.
-SET RATE F : Kb É PEU, à
-A en A À: RTE
-AÉRP AN Æ SNS PÈRE
 Dire AC ARE Al s & A5 Ces
-APFARTENS 4 < RPM
-RES Ve | : | LE HP
 GA "ET Le à er Ze « 4 Rare Ÿ ce
-RE PES ER ps à RARES Le RER * :
-
-DER Æ = DES TUE
-1:80 3 Si SIMCA UR
-Et 4 S CIN Re
-Me ”.. è ER
-FA {  SCPEECNESS
-LES Ê 7 VÉOPSR RSS
-F4: : : ESF
-er es à D
-_ 2 È ï : x 750)
-Bou PU $ £ FR SRE RAR :
-34 MAT EDS
-” = HARAS FTIORS €
-Ru. - LUE RES
-“20 HG SENTIERS
-
-ES 2 : MORTE
-NE. $ See:
-D. 5
-HS - 1h60
-MAR 2 ; MRC EE,
-ee ? L Ex :
-es : = a) 2€
-
-d * + ea : Tr)
-
-é . 6 PTE
-te * < ER
-
-ISRAËL ZANGWILL
-CHAD GADYA !
 
 Et il arrivera, quand ton fils te questionnera,
 dans les temps à venir, disant : « Qu'est ceci ? » que
@@ -20947,16 +17334,13 @@ nés de mes enfants, je les ai sauvés. » Exode, XIIT,
 Chad Gadya! Chad Gadya ! un seul chevreau de
 la chèvre!
 
-Israël Zangwill
 ë Le service familial de Pâques tirait à sa fin. Son
 père avait commencé le curieux récitatif chaldéen
 à qui le termine : is
 Un seul chevreau, un seul chevreau que mon
 ; père acheta pour deux zuzim. Chad Gadya! Chad
-à Gadyaà!
 | Le jeune homme eut un léger sourire devant
 | l'étrangeté du vieux monsieur en habit, un directeur de la Compagnie des bateaux à vapeur dela mo-
-£ derne Venise, parlant chaldéen, absolument incon- ;
 scient de cette singularité, faisant rouler avec |
 onction les syllabes sonores, accoudé sur les cous- 4
 ;. sins prescrits par le rite.
@@ -20967,10 +17351,7 @@ onction les syllabes sonores, accoudé sur les cous- 4
 | père, le service fini. Il n'était entré que pendant la È
 | seconde partie, arrivant de Vienne, inattendu k.
 | ‘à
-L +
 
-LA
-CHAD GADYA !
 comme d'habitude, et tout surpris que ce fût justement la nuit de Pâques, avec La cérémonie immé-
 moriale célébrée exactement comme au temps de
 son enfance. La rareté de ses visites à ses.vieux :
@@ -20992,11 +17373,7 @@ escalier, — et puis, la transition brusque vers
 (1) En français dans le texte.
 9 1.
 
-Fe SNS
-3 , TR
 | Israël Zangwill "
-È
-Be à : ;
 Ê l'Orient, vers les siècles éteints ; Jehovah faisant 3
 Eu DE ici 1or
 à sortir d'Egypte son peuple choisi, lui ordonnant de à
@@ -21004,7 +17381,6 @@ k célébrer avec du pain sans levain, à travers les :
 Es générations, son voyage précipité au désert !
 : Son père souffrait sans doute de voir le fils aussi
 = indifférent aux traditions qui lui étaient si chères à :
-Lo À : 72
 lui-même, bien que depuis longtemps il fût con- à
 ù vaincu de cette vérité amère que ses voies n'étaient 4
 pas celles de son fils, que leurs pensées étaient dif- É
@@ -21014,17 +17390,12 @@ pas celles de son fils, que leurs pensées étaient dif- É
 3 adepte des choses défendues ; — le fils se regardait à
 lui-même avec les yeux de son père, et le léger sou- 4
 Ë rire qui se jouait sur ses lèvres mobiles devenait
-3 Be.
 à plus amer. Ses longs doigts blancs s'agitaient fié-
-: vreusement. 4
 Et pourtant il aimait son père; il admirait la
 & persévérance qui l'avait conduit à la fortune, la E
 | = 9
 à générosité avec laquelle il dépensait cette fortune,
 
-S 10 ‘3
-
-CHAD GADYA ! s
 la fidélité qui résistait aux tentations et faisait ce
 service du Seder, cette réunion de famille aussi
 simplement pieuse que dans le passé, alors que le
@@ -21040,7 +17411,6 @@ la salle.
 
 Et le chien vint et mordit le chat qui avait dévoré
 le chevreau que mon père avait acheté pour deux
-zuzim. Chad Gadya! Chad Gady a !
 
 Et tout à coup le contraste de cette sérénité avec
 sa propre vie si agitée le frappa comme une grande
@@ -21049,9 +17419,6 @@ larmes amères. Ce n'est pas lui qui s'asseoirait
 jamais à sa propre table perpétuant la chaîne de
 piété qui unit les générations l'une à l'autre; jamais
 
-Il
-
-à Israël Zangwill
 F- son âme ne se reposera dans cette atmosphère de
 paisible confiance ; .aucun amour de femme ne sera
 : son partage, aucun enfant ne placera sa petite main
@@ -21066,16 +17433,12 @@ J que le jour de sa naissance. » — Vraiment voici
 bien une preuve ironique de la maxime du sage :
 Rien n'est nouveau sous le soleil. Et il se rappela
 les grandes paroles :
-À
 « Vanité des vanités, dit l'Ecclésiaste ; vanité des ;
 vanités ; tout est vanité. » $
-ÿ
 « Une génération passe et une autre génération L
 arrive ; mais la terre dure éternellement. Toutes les
 rivières se perdent dans la mer; pourtant la mer
-12 L
 
-CHAD GADYA |
 n'est pas remplie et la place d'où les rivières viennent, c'est à celle-là qu'elles retournent. »
 
 « Ce qui a été, sera; l'action qui est faite sera
@@ -21099,9 +17462,7 @@ rien que la réalité. Et il avait cru jadis préférer les
 Grecs; il avait soupiré depuis son enfance vers les
 Dieux défendus, enivré par cette solitaire Vierge
 
-ss Israël Zangwill
 à de marbre, regardant le Ghetto, d'un mur limi- à
-trophe. |
 É S Oui, il avait apporté ses adorations à l'Autel de
 ë. la Beauté; il avait prôné la Renaissance. Il avait
 écrit, — avec cette faculté d'adaptation multiple de
@@ -21116,11 +17477,9 @@ trophe. |
 ; Et un bâton vint qui frappa le chien qui avait 4
 | mordu le chat, qui avait dévoré le chevreau que : 3
 mon père avait acheté pour deux zuzim. Chad e
-Gadya! Chad Gadya! EF
 À Oui, il était juif de cœur. Son enfance dans le À
 Ghetto, la longue hérédité l'avaient enchaîné dans |
 
-CHAD GADYA !
 des émotions, dans des impulsions comme avec des
 phylactères. Chad Gadya! Chad Gadya! Cette
 mélodie même éveillait d'innombrables associations <
@@ -21144,9 +17503,7 @@ Ghetto? Son imagination le lui montra tel qu'il
 était avant sa naissance : un camp bordé d'arcades
 de boutiques, les marchands hébreux à barbes
 noires dans leurs longues robes, les portes de fer
-à 15
 
-; Israël Zangwill
 fermées à minuit, les gardiens ramant autour de la
 : partie libre du canal. — Le bonnet jaune? l'O jaune
 sur la poitrine? — Des signes d'honneur, car il est
@@ -21167,14 +17524,11 @@ trop dures, leur subtil refus passif de vivre à Mestre,
 leur relégation finale au Ghetto. Quelles sources |
 d'énergie bouillonnaient dans ces extraordinaires
 ancêtres, qui unissaient le calme de l'Orient avec la
-16 :
 
-CHAD GADYA !
 fièvre de l'Occident, ces idéalistes occupés seulement de‘choses pratiques, ces amoureux de l'idée,
 ces princes de l'abstraction, dominant ce qui les
 entourait parce qu'ils ne tenaient compte que
 d'idées représentées par des réalités concrètes. Réalité! Réalité !
-ANSE:
 
 C'est là la note du génie juif, qui a cette aflinité du
 moins avec le génie grec. Et lui, bien que le vrai
@@ -21196,13 +17550,11 @@ ces strozzaroli, à ces revendeurs forcés de mar-
 , 17
 
 | É Israël Zangwill
-j D
 
 : chandises d'occasion, arrivés à acheter toutes
 les draperies de pourpre fanée de la gloire vénitienne !
 
 Il se rappelait ces résultats d'un recensement
-ancien : Hommes, femmes, enfants, moines, nonnes,
 — et juifs! — Eh bien, les Doges avaient vécu;
 Venise était une ruine mélancolique, et Le Juif, — le SJ
 Juif vivait somptueusement dans les palais de ces
@@ -21219,9 +17571,6 @@ Juifs, après tout, avaient enseigné quelque chose ;
 aux Vénitiens, — c'est que la seule richesse durable, É..
 c'est l'énergie humaine. Toutes les autres nations :
 avaient eu leur temps de prospérité et s'étaient
-éteintes. ;
-
-CHAD GADYA !
 
 Mais Israël poursuit son chemin avec une
 vigueur et un courage invaincus. C'est extraordinaire, ou plutôt, n'est-ce pas miraculeux? Peut- :
@@ -21246,7 +17595,6 @@ entre les modernes au dehors, — un lettré et un
 saint à la maison ! Ah ! que ne peut-il, lui aussi,
 s'appuyer sur cette foi solide! Oui, son âme sym-
 
-Israël Zangwill
 4 pathise avec le mélancolique, l'immuable Orient,
 avec le mysticisme des cabbalistes, avec l'enivrement des ascètes, la fantastique et frénétique
 extase des derviches qu'il avait vus danser dans les
@@ -21266,24 +17614,19 @@ Science, qui classifie tout, et n'explique rien.
 Expliquer, que ce mot est futile! Les choses sont. :
 Les expliquer, c'est énoncer A en termes de B, et
 B en termes de A. Qui expliquera l'explication ? ;
-%
 Peut-être par l'extase seulement peut-on com- 4
 . prendre ce qui demeure derrière les phénomènes. à
 Mais même ainsi l'essence ne peut être jugée que
-20 '
 
-CHAD GADYA!
 par ses manifestations, et les manifestations sont
 souvent absurdes, injustes et sans aucun sens. Non,
 
 il ne peut croire. Son intelligence est sans remords.
-Qu'importe qu'Israël ait été préservé ? Pourquoi
 lempire de Venise a-til été détruit ?
 
 Et il vint un feu, qui brûla le bâton, qui avait
 frappé le chien, qui avait mordu le chat, qui avait
 dévoré le chevreau, que mon père avait acheté pour -
-deux zuzim. Chad Gadya! Chad Gadya !
 
 Il pensa à l'énergie dépensée pour bâtir cette
 étonnante cité, aux piles de bois profondément
@@ -21306,7 +17649,6 @@ je m'en retournai et considérai toutes les oppres-
 | sions qui ont lieu sous le soleil; et je vis les larmes
 | de ceux qui sont opprimés, et ils n'ont pas de con-
 
-solateur. »
 Il se rappela un tableau moderne représentant |
 
 | une belle femme nue: ce tableau avait coûté le |
@@ -21324,8 +17666,6 @@ homme de tout le travail qu'il a accompli sous le À
 
 soleil ? l
 
-;
-
 Non, tout n'est que le flot qui passe, rien que le ;
 
 | flot. Ilévra ge. Les plus sages l'ont toujours vu. à
@@ -21336,14 +17676,9 @@ mord le chat, et le bâton qui frappe le chien, etle
 
 feu qui brûle le bâton, et ainsi éternellement. Les <
 
-22 à
-
-CHAD GADYA ! .
-
 commentateurs ne disent-ils pas que c'est là le sens
 
 : de cette parabole même, — la succession des anciens
-empires, Égypte, Assyrie, Perse, Grèce, Rome ?
 Les commentateurs, quelles singulières gens ! Dans
 quel désert perdu de dialectique l'esprit juif a
 voyagé pendant des siècles ! Les volumes infinis
@@ -21363,7 +17698,6 @@ doit vouloir mourir. Et en lui peut-être est née cette
 volonté. — Il prévoyait le désespoir de ce peuple,
 l'Israël des jours futurs, toujours porté aux extrêmes, qui ayant été le premier dans la foi, est
 
-) Israël Zangwill
 aussi le premier dans le scepticisme, le plus prompt
 e à pénétrer dans le cœur vide des choses, semblable
 à un vent perdu, gémissant autour des terres disparues de l'univers. Savoir que tout est illusion,
@@ -21385,12 +17719,10 @@ la mer qui agissaient ainsi sur son esprit. Tourgue- |
 nief a raison : ce sont les jeunes seuls qui doivent
 | venir ici, non ceux qui ont vu, comme Virgile, les 3
 
-ji CHAD GADYA ! :
 larmes” des choses. Et il se rappela les vers de
 Catulle, la triste et majestueuse plainte classique,
 pareille au sanglot contenu d'un homme fort :
 Soles occidere et redire possunt
-Nobis cum semel occidit brevis lux
 £ Nox est perpetuo una dormienda.
 
 Puis il pensa encore à Virgile évoquant un
@@ -21405,8 +17737,6 @@ des vertes collines ensoleillées, des blanches villas
 nichées dans la verdure, des oliviers gris. Qui avait
 
 -  foulé ces terrasses aux légères colonnettes? Des
-
-Il
 
 (l Israël Zangwill
 ( princesses du Moyen-Age, dédaigneuses et pas-
@@ -21428,10 +17758,6 @@ Et une eau vint qui éteignit le feu, qui avait brûlé
 le bâton, qui avait frappé le chien, qui avait mordu
 if le chat, qui apait dévoré le chevreau, que mon père
 avait acheté pour deux zuzim. Chad Gadya! Chad
-Gadya!
-26 À
-
-CHAD GADYA ! à
 
 Mais la chaleur s'éteignit. Il redevint triste et s
 désespéré. Car maintenant il savait ce qui lui man-
@@ -21455,10 +17781,6 @@ Oh! la cruelle tragédie que cette culture occidentale
 greffée sur le tronc d'Orient, faussant les cordes de
 la vie, séparant le cœur du cerveau! Mais la nature
 est cruelle par essence. Il pensa aux vendanges de
-
-“+ S
-
-4 Israël Zangwill
 
 Fe l'an dernier, ruinées par un orage, à l'effrayante
 
@@ -21486,15 +17808,6 @@ tout à son image, transportant dans le grand mécanisme inconscient l'idéal qu
 d'homme à homme. La religion, comme l'art, fait
 de l'homme, produit accidentel sans importance,
 le foyer de l'univers; c'est de la mauvaise science
-changée en art.
-
-28 :
-
-Se CE F#
-
-< ; *
-
-CHAD GADYA ! à
 
 Et c'est sa propre race qui a créé et propagé cette é
 
@@ -21522,9 +17835,6 @@ Par elle-même, la vie est assez simple : un phénomène biologique qui a son d�
 maturité, son déclin. La mort n'est pas un mystère ;
 la douleur n'est pas un châtiment; le péché n'est
 
-29 Ir.
-
-Israël Zangwill
 e autre chose que la survivance d'attributs inférieurs,
 E restes d'une phase plus reculée d'évolution, ou assez
 ë souvent la protestation du moi naturel, contre la
@@ -21549,9 +17859,7 @@ artistes, des savants allemands, contents d'eux- 4
 mêmes, comme celles des prédicateurs de conven- 4
 tion; elle demandait justice pour l'individu, jus- ‘
 ne
-30 ? F
 
-CHAD GADYA !
 qu'aux moineaux qui se vendent deux sous la paire
 au marché ; elle voulait un sens, un but à la marche £
 séculaire de la destinée, et savait cependant qu'un
@@ -21576,7 +17884,6 @@ aux faces infinies, dont tous les infinis étoilés ne
 sont qu'une pauvre expression, et dont l'amour
 n'implique pas être aimé en retour. S'élever par
 
-Israël Zangwill
 l'adoration de cette splendeur, cela est beau ; mais
 = cette splendeur se glace, et l'ardent besoin de Dieu
 revient. Ce qu'il lui fallait, c'est que l'Être éternel
@@ -21600,11 +17907,7 @@ Et un bœuf vint, qui but l'eau, qui avait éteint le
 feu, qui avait brûlé le bâton, qui avait frappé le
 chien, qui avait mordu le chat, qui avait dévoré le
 
-o2
-
-CHAD GADYA !
 chevreau, que mon père avait acheté pour deux
-zuzim. Chad Gadya! Chad Gadya !
 
 ; A Vienne, où il avait passé, un Israélite rêvait le
 vieux rêve d'un État juif, — un État moderne, incarnation de tous les grands principes acquis par le
@@ -21626,7 +17929,6 @@ au Prater, s'étalantavec arrogance, dans de brillants
 équipages, aux laquais d'une correction parfaite, —
 race étrange, qui savait bâtir des villes pour les
 
-1 Israël Zangwill
 il à
 fl. autres, jamais pour elle-même, qui professait d'être
 | 1 à la fois une religion et une nationalité, et n'était
@@ -21641,7 +17943,6 @@ L. Et supposons même qu'un autre anneau miraculeux
 ) À s'ajoute à cette chaîne merveilleuse, les Juifs plus
 | heureux du nouvel État y naïîtraient comme les enL fants d'un enrichi, inconscients des luttes, acceptant
 ‘4 le bien-être, devenus épais de corps et d'âme
-‘4 étroite.
 L On rebâtirait le Temple? Et après? L'architecte
 g. enverrait sa note. Les gens dineraient en ville, se
 f taperaient sur le ventre en se racontant de vieilles
@@ -21675,10 +17976,8 @@ Et le boucher vint et tua le bœuf qui avait bu
 l'eau, qui avait éteint le feu, qui avait brûlé le
 bâton, qui avait frappé le chien, qui avait mordu le
 
-124 Israël Zangwill
 ‘à chat, qui avait dévoré le chevreau, que mon père
 à avait acheté pour deux zuzim. Chad Gadya!
-à Chad Gadya!
 | Chad Gadya! Chad Gadya! Jamais il ne s'était
 ù demandé le sens de ces mots, toujours associés
 r à la fin de la cérémonie. Tout est fini, tout est fini,
@@ -21688,7 +17987,6 @@ r à la fin de la cérémonie. Tout est fini, tout est fini,
 Ë nées et laissées là, une fièvre tombée, un travail
 | achevé, une clameur apaisée, un son de cloche
 $ d'adieu, des mains croisées pour dormir.
-ë
 5 Chad Gadya! Chad Gadya! C'était une lamen1 tation sur la lutte pour l'existence, la succession
 5 sans but des siècles, le passage des anciens empires,
 1 — selon les commentateurs, — et des empires mo-
@@ -21697,17 +17995,11 @@ $ d'adieu, des mains croisées pour dormir.
 j finisse à son tour, dans le froid et les ténèbres. Flux
 et reflux ! le feu et l'eau, l'eau et le feu ! Il pensa aux |
 immobiles squelettes qui attendent encore l'exhu-
-È 36 :
 
-DR RE EME EE NT ANNEE + die 11
-CHAD GADYA ! 4
-1%
 mation à Pompéi ; aux momies emmaillotées des #
-D Ÿ
 Pharaons, aux cendres d'amants oubliées dans les ra
 vieilles tombes étrusques. Il eut le sens soudain de ;
 la grande procession du Moyen-Age, — papes, rois, F::
-croisés, frères mendiants, paysans, flagellants, nt:
 étudiants ; de la vie moderne variée à l'infini, à î
 #
 Paris, Vienne, Rome, Londres, Berlin, New-York, LE
@@ -21725,12 +18017,7 @@ problème pour les Etats-Unis, — et chacun de ces |
 peuples, bien mieux, chaque individu se regardant #
 comme le centre et le souci de l'univers; la destinée
 des races aussi obscure que celle des individus et ‘4
-£
-: 37 à
-IL
 
-Re pe FAN NA RO EUR dd
-4 Israël Zangwill
 toute l'immense étendue de l'histoire n'étant rien
 ‘4 à qu'une convulsion de vie sur le plus misérable d'un
 ‘4 obscur groupe de mondes, perdu dans un infini de
@@ -21754,9 +18041,7 @@ L- imposants qu'un seul. Géologie, chimie, astronomie,
 insignifiance. La race humaine ? D''étranges mons-
 “à tres marins se traînant sur le lit d'un océan d'air,
 incapables de s'élever dans cet air, bizarrement
-ë 38 4
 
-CHAD GADYA ! à
 déguisés sous Les peaux volées à d'autres créatures, |
 aussi absurdes, à les regarder impartialement, que |
 les êtres baroques adaptés au curieux milieu d'un
@@ -21778,8 +18063,6 @@ se demanderont tout à coup ce que signifie tout
 cela, et comprenant qu'elles étaient entraînées par
 des forces aveugles au travail, à l'effort, à la lutte ;
 
-: M Israël Zangwill
-f: : 1 4AFt
 h. elles aussi passeront. Les grossières races nouvelles
 +4 : les balayeront comme la poussière, la nature faisant
 Ne jaillir des énergies sans cesse renaissantes de sa
@@ -21803,7 +18086,6 @@ ciel, perpendiculaire et basse, semblant un objet
 : terrestre en comparaison des étoiles dispersées
 | k. Go '
 
-CHAD GADYA ! 2 4
 au-dessus et lui donnant l'impression, dans cette + #1
 lumineuse nuititalienne, d'appartenir à leur rayon- 1 À
 nante compagnie, qui tourbillonne à travers le 3
@@ -21826,33 +18108,24 @@ la voix de la passion même, l'aspiration du moucheron vers l'étoile, de l'homm
 mort, la mort à tout prix pour en finir de ramper
 sinistrement à travers les confins de la vie ! La vie
 
-4x UL.
-
-E Israël Zangwill
 | même un instant de plus, la vie sans Dieu, semblait
 ‘à intolérable. Il trouverait la paix dans cette eau
-de : : ; :
 3 noire. Il se glisserait dans l'escalier sans un mot.
 L Et l'ange de la mort vint et tua le boucher, qui
 Î avait tué le bœuf, qui avait bu l'eau, qui avait
-Fo) Q o 4 A . .
 éteint le feu, qui avait brûlé le bâton, qui avait
 F frappé le chien, qui avait mordu le chat, qui avait
 # dévoré le chevreau que mon père avait acheté pour *
-' deux zuzim. Chad Gadya! Chad Gadya!
 | Quand on le trouverait noyé par accident, — car
 ÿ comment le monde comprendrait-il, ce monde tou-
 À jours si prompt à le juger, — qu'un homme ayant
-jeunesse, santé, richesse, quelque célébrité, ait mis
 fin à sa vie, ses parents penseraient peut-être que
 c'était un fantôme qui avait pris place à la table du
 ; Seder, silencieux etimmobile. Et vraiment n'était-ce
 pas un fantôme ? Il n'est pas nécessaire de mourir
 pour planer en dehors du cercle animé de la vie, les
-bras étendus.
 Un fantôme ? Il avait toujours été un fantôme. |
 Depuis l'enfance des gens singulièrement robustes
-H 42 :
 
 | CHAD GADYA !
 étaient venus, lui avaient parlé, avaient marché
@@ -21876,200 +18149,92 @@ statues de vieux Vénitiens revêtus d'armures, descendit du grand escalier dans
 sépulcrale à la lueur d'une allumette lui permettant
 
 ee: Ne * Israël Zangwill Pr fée
-* à :
-k "4 HE2
 1:10 de trouver la porte sur l'eau et de voir son ombre
 4 monstrueusement courbée le long du toit qui surRU." »
-\ 0 . FER :
 1 plombait les profondes ténèbres. Il ouvrit lasporte
 : RS avec précaution et goûta la douceur de la nuit prinLT ‘4: 13
 | LIEU tanière. Tout était silencieux. L'étroit canal reflétait
 ‘M le clair de lune ;le palais opposé était noir avec une
 16 tache de lumière à une fenêtre ; au dessus de sa tête,
 D. dans la petite échancrure de ciel bleu foncé, ,
-+ Nan) ». . . :
 4 un groupe d'étoiles rayonnaient, comme de bril-
 ‘08 lants oiseaux, dans les ténèbres veloutées. L'eau
 FR - battait tristement les marches de marbre; une
 ne. gondole attachée aux poteaux semblait se balancer
-3 ten
-Hi °
 Re doucement vers son ombre noire dans le canal.
 
-6 3 : : 4 ; 2 4
 13 I1 marcha vers l'endroit où l'avenue d'eau était
 # S . .
 | # plus profonde et se laissa glisser doucement. Il se |
 | Te retrouva luttant, mais vainquit l'instinctive volonté
-AIR
 45 de vivre. -
 TR Comme il plongeait pour la dernière fois, le
 4 mystère de la nuit, des étoiles, de la mort se con-
 ; fondit avec un tourbillon étrange de souvenirs d'en- |
-*
 3 fance, et les paroles immémoriales du Juif agoni-
-À
-, Fr
-Fe.
 
-D 'HMLES PANNE hr à FN TRE, LCL PTS AUS LEURES * NUS: 4 Mani,
-Spas  CHAD GADYA! SR BNATyE P RENTE ATOS
 | sant jaillirent violemment de sa gorge étranglée:
-. 3 ; 2 A
 _ « Écoute, 6 Israël, l'Éternel, notre Dieu, l'Éternel ni
-k LR
 _ est Un! » A5R Bts
-SEP
 _ Par la porte ouverte flottaient les derniers mots ViUrE
 de l'hymne et du service : Sa ‘A
 #40
-3 : . . . F . 4.04
 El le Saint des Saints vint, que son nom soit béni, . CE
 ÿ L sl RC
 * ettua l'ange de la mort, qui avait tué le boucher, ‘ne
 qui avait tué le bœuf, qui avait bu l'eau, qui avait LL
 éteint le feu, qui avait brûlé le bâton, qui avait Tea
 _ frappé le chien, qui avait mordu le chat, qui avait Ta
-We
 | » x . » ‘1e
 dévoré le chevreau que mon père avait acheté pour PA
-_ deux susim. Chad Gadya! Chad Gadya! Ra
-î RE
-; “à a?
 | ISRAËL ZANGWILL 1:10
-sas 1
 
-44e AR
-
-LT EUR AA
 "| “MES * | id HR PANE Pr RITES Lo Dar pat Havre
 : OS RANCE PARU Dis el Palo Le
-LS ET MOTRMES CE LIRCPARES rt NRA AE HATES TRS PAIE LES ?
-2; 300 LA Gr k à LR RARES RNA
-OR à #4 À Le NN INTER Hal
-NAS MR ©
-Me aus à À 24 RU !; ‘ ASE 4 e r<
-4e MONNIER
-F 1e > ! f # RUE Lo tax a
-T'AS ee D gl:
-eue: pu ; AE RON ER
-S : 1 LEE
-ÿ \ ‘AT
 
 traduit de l'anglais par Mathilde Salomon
 #7
 
-YA ES ee, HR à
 A PE UN aX FA ARE PAR ENT TONER mi ONE
-LENS ATARI
-EPSON 4 À 1 SÉPARÉ
-4 ACER : IP RRRAES AUS
-ie Len : ï é Lt TR SUP MEE
-LUN PP : (AL ÉRELTEEN Nu,
-{ f VE 4;
 
-nn MACLAN ! { : RNA 44 4
-M. + “es Mel D.
-AE, $ \ en LRRUREI ESS
-
-EN (Ar ; FR 4 20
-
-vf # pus *
-
-4 16e À ' \ AA AE" 2 ï
 FALL! 4 te vw te Le
-ua 21 UE UT EONRRS
-A{TAETES) COR te "à
 
-HN \ NT TT FAST ES HR
 on PRE L \ je RAR AR VAE
 
-: 1008) f Ÿ A. 11600
-FSU | \ Niro AN \
-+48 Ke ni ; 4 MATE D
-
-?:
-TABLE DE CE CAHIER :
-PAGES .
 Notre catalogue analytique sommaire... . . . .. Il
-CHARLES PÉGUY. — Zangwill. . . . . . . . . . vu
-Mathilde Salomon. — Zangwill.. . . . . . . .. 3
 ISRAËL ZanGwizz. — Chad Gadya! — traduit de
 l'anglais par Mathilde Salomon... . . . . . . . 7
 Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce troisième cahier le
-mardi 25 octobre 1904.
 Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 IMPRIMERIE DE SURESNES (ED. GRENIER, directeur), 9, rue du Pont. — 9340
 #1 Ll IV
 
-» PNR CNE CH
 eu in it ro RE: LU % RG OR RAS Z DE
-1:28 MER PAT): Up dr PUR ES ACER RFTE BAS à
-ARR OM ee NN (ARE TOR AN
-Fe “À A a A Mets [NV FAN FINE LEAOENTES
 Etes re Pet RE LES ETS RATE N ER aUt HAL 0% À s
-Fe AS Re " : nn HE
-TE Lan TITI 15, (TRES
-He CPS # Ç LH TER RE
 #,Fsets À ‘ e \ HAS TMNCENE
-He AR |: MEANS!
 | ES 4 \ M ' AL OT TPE D
-es ; AR
-RE he: 7. LIT ÉPRSRES
 | FAN + ICRA RUES
-LES 224 J n Sa met LS
-EL 2 PAU re
 M ae : : el EL: FAC 7 fi des
-DRerar : < +4 al l'AS
 Fa au r sa Nr 4 ‘
-VHBTNRES " È 4 PRET ORPI
-HEC : : s MODE 124
-VEHU di J FE 5
-É + | FINS TAN
 L VS À dl: tu dure
-BAT REX ‘ D Eee
-L Ê 4 | ASSET ORNE
-EE 4727
 
 Fini d'imprimer trois mille exemplaires de ce
 troisième cahier le jeudi 27 octobre 1904
 à l'Imprimerie de Suresnes
-(Ep. GRENIER, directeur)
 9, rue du Pont
 
-IV.
-
 Noer 1 dE Rs ane ORAN PRE Yo h At
-ë U LUE AD 4 SN LA LAN HP LE HIS EUR
-Ps MR EE" RE DA RE ARE OM té A "ri
-3 EI ENSERREPAr % RE NE PANIER CAC ARR À
 ” ee) on A PR TAUNAS ÉS SON Er" CUVE E M ue
 4 NEA SAS Pat RTS à è Tes SES
-LR sal LORS
-+555 k SES
-10 i FAT EE
-a) DRE 0
-s \; ENT NU on H WE A
-33 | LEON RSS
-Le È
-1790 < ae LRO
-2 SRE EN : RÈRSR Een
-Re fn J & # di 4
 Ch et ÿ T on ; LE
-Ru TOP
-she à EN re ETES
 ses Cr Eà
-RS k AS AA
-EY LME
-Le ARE NT
 
 CAHIERS DE LA QUINZAI 8, rue de la Sorbonne, rez-de-chaussée, Paris, chquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -22090,7 +18255,6 @@ pour la série: tous les cahiers de l'abonnement recommandé sont empaquetés à
 
 poste ; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
-contre certains abus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
@@ -22101,36 +18265,12 @@ les vingt cahiers de la cinquième série complète.
 
 A partir du premier janvier qui suit l'achèvement
 
-SUP
-
-ie LAS ENS RE EN Er AL FAURE
-SNS Lee ! EAP EEE TÉRRT TS ui
-TANT Ÿ SENTE Sr
-4 CAN s RES HI
-1 LE |
-<t ARNO OPE ; 3 2 VE Vin TE ONE
-: MAS éc r À RS Us F
 TOUR ÿ ; LE “Nes EIÈTS
-Ktreed 3 \ AA 44 RARE
 ROSE Je Pros ACTES
-5 7 * Ne D 140
-AP à, WA 1 EM
-NT ï ie) Re A.
-- NF “ ee MAC
-ae 2 RNCS TN nt
-ed È h EAU PL,
-5 nu /ix 2 US AUS
-Re È sn FC « Nu L 1 AA HE:
-o Ht + x De EPA
-* Le ” . he rs Î
-". Deer LR |
-LAISSES
-À CHARTE |
 
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués ; ainsi à dater du premier
 janvier 1905 la cinquième série complète, s'il en reste,
-se vendra quarante-sept francs.
 
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration et pour la librairie tous
@@ -22139,4 +18279,3 @@ heures à onze heures et de une heure à sept heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures.

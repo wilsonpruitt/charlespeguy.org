@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 28957
 ---
-
-*Charles Péguy*
-
 Le mardi 5 décembre au soir, le Congrès tenait sa
 sixième séance. Guesde, qui avait conduit les mouvements de masse de plus de cinq cents mandats sans
 quitter son banc de simple délégué, au pied de la tribune, Guesde, que l'on devinait depuis trois jours, aux
@@ -27,7 +24,6 @@ provocations démagogiques. Il en vint à parler de la
 consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand. Il prononça done les noms de Schoenlank, de Bebel, de
 Liebknecht. Ici une rumeur, et dans la rumeur confuse
 un cri, pas très haut, plutôt une affirmation qu'une
-provocation : À bas Liebknecht !
 Je sursautai, tant cela était imprévu. Cette exclamation, prononcée sans éclat, fut instantanément et di- f
 stinctement entendue dans toute la salle. Immédiatement
 une formidable clameur de réprobation et d'horreur
@@ -56,10 +52,7 @@ caressé, commandé par certains tacticiens. Toute la
 gauche debout huait la droite et la rendait responsable.
 Peu à peu le soulèvement gagnait le centre et, par
 
-ù ( * ASS RES
-
 complaisance, plusieurs délégués de la droite ellemême. — C'était bien Joindy, mon camarade avait c
-raison.
 
 Joindy à la tribune. Paroles sages. Assemblée frémissante, prête à bondir. Guesde s'était assis, la figure
 bouleversée, immuable d'horreur. Joindy, très digne, en
@@ -101,38 +94,30 @@ L'opinion publique se ressaisissait. Beaucoup de délé-
 gués blâmaient l'intolérance du congrès.
 Voici le compte rendu officiel de cet incident:
 question fut posée au prolétariat démocrate-socialiste allemand, qui par l'intermédiaire de Schoenlank, de Bebel, de
-Liebknecht.. (Rumeur) 4
-cITOYEN Jompyx. — A bas Liebknecht!
 Une violente clameur se produit alors. La plus grande partie des
 délégués s'agitent et protestent avec véhémence; on s'indigne, on
 - siffle, des cris nombreux de : « Vive Liebknecht! À la porte! L'exclusion! » se font entendre, une partie de la salle entonne
 Internationale. Un grand nombre de délégués, à la tête desquels se
 trouve le citoyen Lafargue, se précipitent à la tribune, qui est aussitôt envahie. Un tumulte des plus violents se continue pendant plusieurs minutes. Quand le silence est à peu près rétabli, le citoyen
-président se lève.
 LE CITOYEN PRÉSIDENT (1). — Au nom du bureau tout entier, et je puis dire au nom de l'unanimité du congrès, nous
 protestons contre l'odieuse interruption que nous avons entendue tout à l'heure. (Vifs applaudissements sur un grand
 nombre de bancs)
 Au nom du bureau, nous vous proposons de voter une
 adresse de félicitations et de sympathie à la démocratie allemande et en particulier à son vénéré doyen Liebknecht.
 (Vifs et unanimes applaudissements.— Nouveaux cris : Vive
-Liebknecht!)
 J'ai reçu la proposition suivante du citoyen Delory et de
 plusieurs de ses collègues : « Nous demandons l'expulsion
-(1) Groussier.
 
 de l'insulteur de Liebknecht. » (Applaudissements prolongés) k
 — Je pense qu'avant de voter cette proposition, comme vous
 allez être des juges, vous voudrez entendre celui que vous
-voulez expulser. (Mouvements divers. — Cris : Oui! Oui
 Le citoyen Joindy se présente aussitôt à la tribune. Nouveau et
-violent tumulte. ,
 
 LE CITOYEN PRÉSIDENT. — Puisque vous avez à juger sur
 une question aussi grave que celle de l'expulsion d'un délé-
 
 { gué, je vous demande de l'écouter dans le plus grand silence,
 de ne faire aucune interruption, et de laisser le citoyen
-Joindy s'expliquer. (Long mouvement)
 
 LE GIToyEN Joxpy. — J'affirme, dans les circonstances
 graves qui m'amènent à cette tribune, j'aflirme les plus purs
@@ -156,19 +141,15 @@ Je suis prêt à m''incliner devant la décision du congrès; ce
 que j'ai dit est suffisant. Maintenant, jugez-moi et jugezvous vous-mêmes! (Mouvements et bruits divers.)
 
 LE GITOYEN PRÉSIDENT. — Je mets aux voix l'exclusion du
-citoyen Joindy.
 
 L'exclusion du citoyen Joindy est votée à une forte majorité.
 nouveau une partie de la salle entonne l'Internationale. Nouveau
-tumulte.
 
 cITOYEN FABEROT. — Permettez-moi de vous dire quelques mots seulement. Je vous assure que les paroles que
 j'ai à prononcer ne sont pas en contradiction avec l'union
 
-À L'AFFAIRE LIEBKNECHT
 de tous les socialistes, quels qu'ils soient, quand ils sont des
 purs. (Bruit) IL serait bien extraordinaire que pour une
-simple interruption (Vives protestations).
 
 Voilà bien où on reconnaît certains d'entre vous:ils ne
 veulent à aucun prix trouver un moyen de nous accorder
@@ -177,13 +158,11 @@ la réaction cléricale. (Rumeur) Laissez-moi vous dire ma
 pensée en quelques mots, citoyens, j'aiaussi, moi, passé par
 cette épreuve de l'expulsion. (Nouvelle rumeur) J'ai vu un
 homme sincère prononçant une parole un peu ardente...
-(Bruyantes interruptions)
 
 Je renvoie au Compte rendu sténographique officiel
 complet pour les fortes et dures paroles prononcées
 encore par le citoyen Fabérot. Je renvoie au même
 compte rendu pour les allusions à cet incident faites
-aux séances suivantes.
 
 Guesde reprit son discours. Il y eut encore un moment
 poignant quand, recommençant à peu près dans les
@@ -202,9 +181,6 @@ Liebknecht me fait le plaisir de se déclarer dans ma
 feuille sur l'affaire Dreyfus, avec la franchise sans ré-
 serve qui lui a toujours été propre.
 Lettre adressée par Liebknecht au directeur de la revue
-die Fackel.
-I
-Charlottenbourg près Berlin, 25 septembre 1899.
 Je dois vous envoyer un article au sujet de l'Affaire, et
 j'ai été assez étourdi pour vous le promettre, sans songer
 qu'en ce moment même, immédiatement après mes vacances
@@ -215,14 +191,12 @@ engagé par une parole en passant ou par écrit, il n'importe, — et je veux do
 aujourd'hui mener à bien.
 Tout d'abord une déclaration qui me donnera une attitude
 nette aux yeux du lecteur : Je ne crois pas à l'innocence du ‘
-capitaine français Dreyfus.
 On comprendra du même coup pourquoi je me suis montré si réservé avant la fin du procès de Rennes. Pas un
 honnête homme ne voudrait, à moins d'y être forcé, déposer contre un accusé dont la culpabilité est mise en doute.
 Etje ne voulais pas préparer un triomphe à la canaille qui,
 en France et hors de France, souhaitait avidement la
 @) Trois articles parus dans die Fackel (la Torche) (Vienne)
 éditée par Karl Kraus. N°' 18, 19 et 21, fin septembre, commencement
-octobre, fin octobre 1899.
 Ces trois articles ont été ensuite réunis en une brochure spé-
 ciale, de 20 pfennigs, intitulée : Nachtraegliches zur « Affaire ». La
 traduction est faite d'après cette brochure.
@@ -240,7 +214,6 @@ ces débauchées que la Commune avait chassées de Paris
 vers les Versaillais, héros de l'ordre, — un spectacle qui
 secouàt un peu les nerfs, — ces gens-là ne valent pas mieux,
 assurément, que la compagnie des Henry, Mercier et
-consorts.
 En ce qui concerne ces derniers, je veux tout d'abord relever une circonstance atténuante, que les meneurs de la
 campagne dreyfusiste ont tenue cachée à bon escient; c'est f
 que le procès Dreyfus était un procès d'espionnage, et que
@@ -280,7 +253,6 @@ haïne de MM. Liebermann de Sonnenberg, Bockel, Ahlwardt
 et compagnie contre les juifs, je ne puis supposer qu'ils
 seraient capables, siégeant sur le banc des juges, de condamner un juif seulement parce qu'il est juif, de le déclarer -
 passible d'une peine capitale et de l'envoyer à la guillotine
-sèche.
 
 Je le sais, il y aura des patriotes pour supposer que c'est
 en qualité de sans patrie que je m''enthousiasme pour les
@@ -309,13 +281,11 @@ mentionne-t-elle pas?
 
 Donc, je ne crois point à l'innocence de Dreyfus. Et je
 veux dire maintenant comment j'en suis venu à n'y pas
-croire.
 
 Je n'avais prêté que peu d'attention au procès de 1894.
 Sous le règne de la paix armée l'espionnage international
 fleurit avec tant de luxuriance, particulièrement entre la
 France et l'Allemagne, que les arrestations d'espions et les
-procès d'espionnage appartiennent aux faits divers, sinon
 même aux petites distractions de la vie. Ce fut seulement
 dans l'automne de 1897, lorsque la campagne fut ouverte
 par la brochure fameuse de Bernard Lazare, que je commençai à m'occuper sérieusement de la chose. La brochure
@@ -354,7 +324,6 @@ directes, soit indirectes avec l'espion.
 Cette pratique, comme je l'ai déjà dit, est internationale.
 Mais il y a dans ce droit des gens non écrit une autre
 clause, internationale, elle aussi, en vertu de laquelle un
-innocent accusé d'espionnage doit être aussitôt relâché, si
 le gouvernement en faveur de qui la trahison a été commise donne officieusement sa parole qu'en ce qui le concerne l'individu mis en cause est innocent.
 
 Or, dans le cas du capitaine Dreyfus, cette déclaration officieuse n'a point été faite, sans quoi on ne l'aurait pas envoyé passer cinq ans à l'île du Diable. Et ainsi je me suis
@@ -377,9 +346,6 @@ recevait de Paris des renseignements absolument faux. Par
 (1) Gazette de la Croix.
 
 (2) Gazette de Voss.
-
-MAX
-L'AFFAIRE LIEBKNECHT l
 
 exemple ce que les journaux allemands écrivaient au sujet
 du procès Zola, où le héros principal a joué un rôle purement ridicule, était en contradiction grotesque avec les
@@ -444,7 +410,6 @@ si pleinement conscience de sa faiblesse, qu'à la dernière
 heure elle a subitement changé tout son système de défense,
 ce qui, naturellement, eut des effets aussi désastreux qu'un
 changement subit du plan de bataille au milieu même du
-combat.
 
 l Sans doute je dois remarquer que la culpabilité de Dreyfus n'a pas été démontrée; mais son innocence ne l'a pas
 été non plus. Avec cela, il faut se rappeler que dans les
@@ -457,8 +422,6 @@ généralement aux mains de l'ennemi.
 
 — Mais l'ennemi — dans le cas actuel, le gouvernement
 allemand—a proclamé officiellement l'innocence de Dreyfus.
-
-— Vraiment?
 
 Le matin du jour où le jugement devait être rendu
 Rennes — j'étais précisément en voyage — un ami vint me
@@ -493,7 +456,6 @@ trième coin. Il est visiblement très agité, ce qui s'explique
 par sa hâte et son arrivée précipitée.
 L'étranger ne dit mot, et tint sa casquette à demi baissée
 sur son visage, de telle sorte qu'on eût pu le croire endormi, si des mouvements nerveux n'avaient démenti cette
-supposition.
 Quand on annonça la première station belge, l'étranger
 se dressa d'un bond comme une balle élastique, ouvrit la
 fenêtre, et demanda d'une voix étouffée, oppressée : « Sommesnous en Belgique? » — « Oui! » Ce oui fit l'effet d'une
@@ -512,7 +474,6 @@ trer plus profondément certains secrets militaires, et il
 qui remplissaient un emploi analogue aux dépens de l'Allemagne. Dans sa confession une chose me frappa particulièrement : le récit d'un entretien qu'il avait eu en Allemagne avec un... supérieur. On l'avait averti: « Ce que vous
 faites, vous le faites à vos risques et périls. Si vous êtes
 pris, — nous n'avons avec vous aucune relation, soit directe
-soit indirecte. — »
 
 Or, maintenant, le gouvernement français a gracié Dreyfus.
 Ce n'était pas logique, mais c'était raisonnable. Et si quelqu'un de ceux de la grande campagne a encore en réserve un
@@ -524,7 +485,6 @@ prononcer, ou bien qu'il songe au malheureux Ziethen,
 sans aucun doute possible innocent, et qui depuis quinze
 ans— je dis: quinze — est enfermé dans la maison de
 force (Zuchthaus), où le séjour est encore beaucoup, beaucoup moins agréable qu'à l'île du Diable.
-octobre 1899.
 
 Et d'abord, pour commencer, un motsur la fin du procès.
 On a voulu considérer le verdict du conseil de guerre « coupable avec circonstances atténuantes » comme la preuve
@@ -552,11 +512,9 @@ Ce qui ne peut laisser aucun doute, c'est que l'acceptation
 immédiate de la grâce par Dreyfus ne montre pas qu'il ait
 été lui-même bien convaincu de son innocence. La presse
 dreyfusiste a passé rapidement sur ce point, et pour cause.
-f LE PAS
 Qu'un homme condamné deux fois accepte sa grâce, cela
 n'est certainement pas à blämer. Cela n'est pas héroïque,
 mais c'est humain. Mais pourquoi avoir retiré la demande
-en revision ?
 
 La presse dreyfusiste répond tout sec : « Parce qu'autrement la grâce ne pouvait pas être accordée, »
 
@@ -585,7 +543,6 @@ prison fut plus fort que le désir de prouver son innocence.
 Il a volontairement renoncé à la meilleure chance et à la
 plus immédiate qu'il eût d'établir la vérité. Et cela ne parle
 décidément pas en faveur de l'innocence du capitaine
-Dreyfus.
 
 Maintenant quelques mots sur la campagne. Les initiés
 l'ont chantée en hymnes de louanges inépuisables. Et au
@@ -669,7 +626,6 @@ campagne. Espérons que la leçon ne sera pas perdue.
 
 Et maintenant, poursuivons.
 
-PRE PET
 Au commencement de mon premier article, je disais : je
 ne crois pas à l'innocence du capitaine Dreyfus. J'ai dit
 ensuite au cours de mes déductions : il n'y a aucune certitude absolue de la culpabilité de Dreyfus. Mais c'est décidément une injustice criante, que de prétendre que les cinq
@@ -735,7 +691,6 @@ lon conçut des doutes sur la propreté de la cause. Et par
 une conséquence naturelle de cette identification du
 judaïsme et de Dreyfus, la seconde condamnation de
 Dreyfus devait prendre les apparences d'une défaite du
-judaïsme.
 
 Tu l'as voulu, Georges Dandin!
 
@@ -743,7 +698,6 @@ Néanmoins, cela est relativement peu important. En
 France, l'éducation politique est trop avancée et le sentiment de l'égalité trop fort pour que l'agitation antisémitique devienne jamais dangereuse et soit de longue durée.
 
 Bien plus dangereux sont les effets de la campagne sur le
-militarisme en France.
 
 Après la guerre de 1870-71, les Français. vaincus adoptèrent le système militaire des Allemands leurs vainqueurs,
 et c'est alors que commença cette course folle, cette concurrence de militarismes qui depuis a doublé pour l'Allemagne,
@@ -887,7 +841,6 @@ filles — un Alphonse à peu de chose près — Louis-Philippe
 semble incarner en sa triste personne toute la décadence
 monarchique, — ce ne sont vraiment pas là des hommes de
 
-cr FÉES PT TER M
 coup d'État. Et quand ils en seraient, où trouveraient-ils
 des complices ou des instruments ? L'armée d'aujourd'hui
 n'est plus l'armée avec laquelle Napoléon le Petit, il y a
@@ -917,7 +870,6 @@ son trou de souris, n'était pas un homme à sauver la République. Il lui aurai
 grand fracas dans le style emphatique et bariolé du J'aceuse
 — sur le papier et loin du coup de feu.
 
-octobre 1899.
 Que l'on prenne l'Affaire comme l'on voudra, il n'en reste
 pas moins que la campagne devait de toutes façons avoir
 pour but de provoquer la reprise de la procédure. Pour
@@ -1029,7 +981,6 @@ France ! Le petit paysan hessois, qui, en 1848, voulait avoir
 à la fois « la République et le grand-duc », n'était rien en
 comparaison d'eux. Voyez un peu ce personnel : WaldeckRousseau, bourgeois et mangeur de socialistes « comme
 il faut » — le roi Stumm et Eugène Richter en une seule
-personne, — Millerand, socialiste, — Galliffet, monarchiste
 et militariste : Capitalisme, Socialisme, Militarisme, —
 Républicanisme et Monarchisme voisinant dans un même
 ministère. Assurément cela ne s'est encore jamais vu. Les
@@ -1076,7 +1027,6 @@ sorte, sans laisser éclater sa colère et son dégoût.
 La seule chose qui, dans la folie hystérique de cette tactique demeure une énigme pour moi, c'est qu'en dehors des
 maisons d'aliénés il y ait eu des gens pour prendre part
 une pareille ineptie, pour l'approuver et même pour l'ad-
-mirer.
 Pourtant, ce qu'il y a de plus laïd, de plus repoussant dans
 l'A ffaire et dans le truquage de l'Affaire, c'est l'insincérité
 Jondamentale, la mensongère apparence de sainteté donnée
@@ -1143,7 +1093,6 @@ a, des années durant, épandu de par le monde les lamentations ardentes du droi
 pour les victimes de la justice de classe de notre propre
 pays ? — et cette justice de classe, assurément, et même si
 l'on admet l'innocence de Dreyfus, n'a rien à envier à la justice des conseils de guerre français. Qu'a-t-elle fait? Rien,
-absolument rien !
 
 Charity begins at home. C'est dans sa propre maison
 qu'il faut commencer à aimer les hommes, dit le proverbe
@@ -1176,9 +1125,7 @@ brutale. Aussi mon jugement avait-il au moins autant d'importance que celui des 
 on a attribué un si grand poids. Pourquoi ce silence de
 mort? Je ne trouve à cela qu'une explication : on se tait,
 parce qu'on n'a rien à dire. On ne répond rien, parce qu'on
-n'a rien à me répliquer.
 
-1 2255, PO ER MORE AUOT TARN
 Contre tous les arguments des entrepreneurs de Affaire
 je demeure invulnérable et ferme comme un roc, un prai
 Siegfried « à la peau de corne », un Siegfried à qui aucune
@@ -1253,7 +1200,6 @@ avant d'avoir terminé sa pièce, la nouvelle que l'enfant
 
 d'employer leurs sentiments d'humanité et de justice; il leur
 faut créer une opinion publique favorable à M. Chamberlain et aux autres actionnaires des mines d'or, pour permettre à ces gens de bien d'enlever avec l'aide des balles
-dum-dum quelques sots préjugés aux derniers Boers, sottes
 gens, qui croient encore à l'existence d'intérêts supérieurs
 à ceux des actions des mines d'or. Quant à la presse dreyfusiste allemande, autrichienne et française, elle a aussi des
 choses plus importantes à faire. Encore quelques semaines
@@ -1270,14 +1216,12 @@ héros ayant pris part à cette mémorable campagne, comme
 le gage d'un éternel renom. Aiïnsi du moins la postérité
 connaîtra quelque chose de la campagne et pourra lui assigner la place qu'elle mérite à côté des croisades enfantines
 pour la chasse aux rats, des processions dansantes de SaintGuy, et des émigrations en masse des derviches tourneurs.
-W. LIEBKNECHT
 
 Traduction préparée par Ernest Tonnelat
 
 L'Action française, dans son numéro 10, du 1° dé-
 cembre 1899, donna en supplément une traduction de
 ces articles ainsi présentée
-W. LIEBKNECHT ET L'AFFAIRE DREYFUS (1)
 
 On va lire ci-dessous la traduction de trois lettres de
 W. Liebknecht, parues dans un pamphlet socialiste édité
@@ -1298,13 +1242,10 @@ violents contre les « Nationalistes » et les « Antisémites ».
 Nous n'avons pas songé, bien entendu, à les atténuer : ils
 sont comme la marque authentique de l'auteur.
 
-H. V. (Henri Vaugeois)
-
 La traduction de l'Action française est fidèle. Souvent le traducteur, pour imiter sans doute la vivacité,
 la brusquerie du texte, a simplifié la phrase, mais les
 modifications et les suppressions qu'il a faites ne sont
 nullement tendancieuses. Par exception il a supprimé le
-passage suivant
 Les deux pitres Drumont et Déroulède, le crétin chasseur
 
 de filles — un Alphonse à peu de choses près — LouisPhilippe (à moins qu'on ne veuille l'appeler Henri) d'Or-
@@ -1317,7 +1258,6 @@ pas nous comprendre.
 {Note du Gérant}
 
 léans, qui semble incarner en sa triste personne toute la
-décadence monarchique, —
 et l'a remplacé par cette déclaration
 (Ici des injures à l'adresse de M. Déroulède, de M. Drumont et de M. le duc d'Orléans. Bien qu'il n'y ait là que
 des épithètes, ACTION FRANÇAISE ne salit pas son papier
@@ -1329,7 +1269,6 @@ pour la campagne antisémitique. La Libre Parole —
 numéro du mardi 5 décembre — qui fut affichée au
 Congrès après l'incident Joindy, le mercredi soir, por-
 tait l'article suivant :
-W. LIEBKNECHT ET L'AFFAIRE DREYFUS
 Le Congrès socialiste, annoncé depuis plusieurs mois
 grand orchestre, a tenu hier sa séance d'inauguration.
 faut espérer que Jaurès et Viviani vont profiter de la circonstance pour nous dire ce qu'ils pensent des trois lettres
@@ -1340,7 +1279,6 @@ parle pas de Millerand que sa grandeur attache au rivage
 auprès de Gallifret.
 Elles sont vraiment intéressantes, ces trois lettres. Je n'ai
 qu'un regret: c'est que la traduction en ait paru dans l'Action française et non dans la Petile République ou dans la
-Lanterne.
 M. Henri Vaugeois — par une attention fort aimable,
 d'ailleurs, — a cru devoir, en effet, supprimer quelques épithètes injurieuses à l'adresse des Antisémites et des Nationalistes, et la consultation de Liebknecht perd ainsi quelque
 chose de sa saveur de terroir.
@@ -1375,7 +1313,6 @@ traître ne valait pas mieux, aux yeux de Liebknecht, que
 les hommes qui en étaient les promoteurs ou les meneurs.
 L'hypothèse d'après laquelle « l'État-Major français aurait
 condamné sciemment un innocent » lui paraissait être « une
-ineplie vraiment monstrueuse ».
 
 L'État-Major ne pouvait avoir qu'un intérêt : découvrir le coupable et l'empoigner.
 
@@ -1426,7 +1363,6 @@ responsabilités et l''amour-propre des Gouvernements dont
 les agents ont eu la sottise de se laisser pincer ; l'autre ofjicieuse qui est la bonne ci la vraie. Dans le cas de Dreyfus,
 la première seule a été donnée, et non la seconde, sans quoi
 Dreyfus n'aurait pas été envoyé pour cinq ans à l'ile du
-Diable.
 
 La formule conventionnelle couvrait le Gouvernement allemand,
 non pas Dreyfus. Et comme Hohenlohe, comme Bülow ont dû rire
@@ -1434,7 +1370,6 @@ quand ils ont lu dans les journaux, qu'en présence de la déclaration
 du Moniteur de l'Empire, la condamnation devenait une insulte au
 Gouvernement allemand, à l'empereur, à l'Empire! Si la déclaration
 avait été prise en France pour autre chose qu'une formule conventionnelle, les juges du conseil de guerre et autorités françaises auraient donné une bien fâcheuse idée de leur intelligence et de leur
-Savoir.
 
 — Mais il y a le faux Henry?
 
@@ -1459,11 +1394,8 @@ impossible de surprendre la main du Père Dulac dans le
 complot militariste. « Je n'ai pu arriver, déclare-t-il, à découvrir ce que le jésuitisme avait à voir avec l'Affaire, ni
 quel profit il pourrait tirer de la condamnation d'un innocent... »
 
-RE NN TROT ST en AIS NERO
-
 Voulez-vous maintenant un tableau de ce qu'aurait été
 l'Affaire, d'après Liebknecht, si elle s'était produite en
-Allemagne ?
 
 Ce qu'il y a de plus laid, de plus répugnant dans l'Affaire,
 dans le truc de l'Affaire, c'est l'insincérité intérieure, la menson-
@@ -1472,7 +1404,6 @@ gère apparence de sainteté donnée à cette comédie de l'indignation,
 à la plus mensongère des comédies d'indignation.
 
 Vraiment, jamais la sentence biblique sur les Pharisiens orgueilleux n'a été plus vigoureusement illustrée ; jamais l'hypocrisie nationale et internationale ne s'est exprimée et étalée de plus dégoù-
-tante facon.
 
 Je sens bien qu'il faut borner là les citations, et qu'il est
 temps de conclure. Ces fragments ne donnent pourtant
@@ -1485,7 +1416,6 @@ Pour faire éclater complètement la vérité sur cette immense imposture qu'a �
 lumière jusqu'au bout les dessous de cette farce gigantesque
 dont un moment le monde entier put être dupe, il n'a manqué à Liebknecht que d'être un peu plus informé sur la ques-
 
-, — tion juive.
 Malheureusement, Liebknecht ressemble sur ce point
 beaucoup d'idéologues que le fanatisme de leur idée transforme en aveugles volontaires: il s'est mis des œillères pour
 ne rien voir de ce qui se passe à côté de lui, pour ne pas
@@ -1525,12 +1455,7 @@ en rangeant votre « campagne » à côté des croisades pour la
 chasse aux rats, des processions dansantes des frères de
 Saint-Guy et des émigrations en masse des derviches tourneurs. »
 
-ÉpouarD DRUMONT
-
 La Petite République du lundi 11 décembre a publié
-
-Particle suivant:
-L'ARTICLE DE LIEBKNECHT
 
 S'il connaissait tous ses nouveaux amis de France,
 Liebknecht en serait sans doute bien embarrassé. Le Moine
@@ -1539,8 +1464,6 @@ Libre Parole et M. Judet du Petit Journal, vantent tour
 tour sa clairvoyance politique et sa sincérité.
 
 n'y a pas six mois nous le défendions contre les stupides
-
-? , on LETTRE
 
 calomnies de ces mêmes feuilles qui, maintenant, se font de
 
@@ -1564,7 +1487,6 @@ tout le socialisme international, il tient pour coupable la
 victime des faussaires de l'État-Major.
 
 Il en est, sur ce point, à réclamer des preuves de l'innocence, comme si ce n'était pas la culpabilité qui dût être
-prouvée.
 
 se refuse à admettre la forfaiture de Mercier, des juges
 du Conseil de guerre. Les faux de Henry, les manœuvres
@@ -1597,11 +1519,8 @@ coupables de coquinerie ou frappés d'imbécillité.
 Il faudrait déjà regretter qu'il se fût exposé à être traduit
 et utilisé de cette façon.
 
-GÉRAULT-RICHARD
-
 J'emprunte à la Petite République du mardi 12 dé-
 cembre le compte rendu suivant
-LE PUNCH DE SAINT-MANDÉ
 Les délégués au Congrès. — Un incident. — Protestation
 
 Le punch socialiste organisé à l'issue du Congrès au salon
@@ -1625,8 +1544,6 @@ une provocation et se sont retirés.
 
 Tour à tour, les citoyens Labusquière, conseiller municipal
 
-(1) Le dimanche 10.
-
 de Paris, Martinet, de la Fédération des travailleurs sociane listes de France, Faberot, du Parti ouvrier socialiste révolutionnaire, Lauche, secrétaire du syndicat des mécaniciens,
 Kosciusko, Andrieu et la citoyenne Chevalier se sont fait
 applaudir en préconisant l'union socialiste.
@@ -1641,22 +1558,16 @@ aux délégués des départements, regrettent qu'on les ait mis
 dans l'impossibilité d'aflirmer l'union socialiste sous une
 présidence qui rappelait une injure adressée au doyen du
 socialisme international et réprimée par le Congrès, » Paris, le 10 décembre 1899. » Marcel SEMBAT, EBERS, BLUM, LEMELLE, du Parti
-socialiste révolutionnaire ; — Jules GUESDE,
 A. ZÉvAËs, du Parti ouvrier français; — Georges
 DEVRAIGXE, Fédération du Nord; —GErvAUXx, de la
 à Fédération socialiste révolutionnaire de la 5° circonscription de Saint-Denis (P. O. F.); — VIOLETTE,
 du groupe socialiste révolutionnaire de Cahors; —
 Desassy, du groupe socialdémocrate israélite de
 Paris; — LE WINKELL, du groupe socialiste de la
-Garenne-Colombe (P. O. F.); — Henry Niver,
 groupe socialiste agricole de Frenay, Comité socia-
 liste de Versailles, secrétaire du groupe d'étudiants
 
-â collectivistes, adhérent au Parti ouvrier français;
-
-— Georges MaiLLerT, Auguste BRIANÇON, Paul
 Peprow, Paazrppou, de la Fédération de la région
-parisienne (P. ©. F.); — Paul Quxcr, conseiller
 municipal, Marseille; — BRAKE et BoURDALEXx, du
 Comité de Montreuil (Alliance communiste). »
 
@@ -1668,7 +1579,6 @@ côtés. » Mes salutations fraternelles ! » Tout à vous, » W. LiEBKNECHT »
 Nous avions bien raison de suspecter la sincérité de la
 traduction française des articles de la Fackel, telle que l'ont
 publiée La Libre Parole, l'Intransigeant, la Croix, le Petit
-Journal, etc.
 
 Liebknecht n'a fait aucune allusion blessante aux socialistes français qui prirent parti contre les bandits de l'ÉtatMajor, en faveur de l'Innocent. Il est faux qu'il nous ait
 enfermés dans le dilemme de coquinerie ou d'imbécillité.
@@ -1718,13 +1628,8 @@ de la République se fâchent, c'est bon signe. Quand ils nous
 flattent, nous prenons peur.
 
 Actuellement, à qui réservent-ils leurs flatteries, à qui
-leurs violences ?
-GÉRAULT-RICHARD
 
 L'Écho de Paris a publié dans son numéro du ven-
-
-dredi 22 décembre larticle suivant
-CHEZ LIEBKNECHT
 
 Après les articles retentissants du chef du parti socialiste allemand Liebknecht sur l'affaire Dreyfus, nous avons envoyé notre
 collaborateur, M. Marcel Hutin, l'interviewer à Berlin.
@@ -1732,9 +1637,7 @@ collaborateur, M. Marcel Hutin, l'interviewer à Berlin.
 Nous publions aujourd'hui un premier article sur l'affaire en ellemême.
 
 Nous en publierons un autre demain sur l'organisation du parti
-socialiste.
 
-Berlin (Central-Hôtel),
 le 18 décembre 1899,
 
 L'Écho de Paris m'a chargé d'aller rendre visite à Liebknecht dont l'attitude dans l'affaire Dreyfus a fait l'objet en
@@ -1746,7 +1649,6 @@ tiens à vous rendre compte en interviewer fidèle, désireux
 
 de s'abstenir de tout commentaire, se contentant de faire
 tenir aux personnages le langage dans lequel ils se sont
-réellement exprimés.
 Point n'est besoin de se faire annoncer d'avance pour être
 reçu par le doyen vénérable de la Social-Démocratie allemande.
 
@@ -1806,7 +1708,6 @@ L'affaire Dreyfus et l'opinion allemande
 Mon entrée en matière était tout indiquée. Je me suis
 empressé de demander à Liebknecht s'il savait que ses articles avaient été reproduits dans un si grand nombre de
 journaux français et avaient été l'objet de commentaires
-passionnés.
 
 — Ah ! vous me faites plaisir en m'apprenant cela! Mais
 je connais des journaux qui se sont abstenus de parler de
@@ -1841,7 +1742,6 @@ tout, ces gens-là ont osé traiter le peuple français de peuple
 pourri jusqu'à la moelle! Ils ajoutaient sans vergogne
 que Dreyfus avait été condamné uniquement parce que
 
-juif!
 » Et demandez à tous ces journaux allemands qui chaque
 jour insultaient la France, sous prétexte de libéralisme et
 de justice, demandez-leur où ils en sont en Allemagne à ce
@@ -1864,7 +1764,6 @@ Si Liebkrecht avait été à la place de M. Méline
 
 — Vous avez dit dans une de vos lettres que jamais en
 Allemagne on n'aurait pu obtenir la revision dans les mêmes
-conditions qu'en France.
 
 — J'ai dit cela, et je le maintiens. J'ai rapporté dans un
 article l'opinion d'un de nos jurisconsultes les plus estimés,
@@ -1894,7 +1793,6 @@ heureux qui pût lui arriver. De même que je n'ai nullement
 — mais uniquement à la campagne telle qu'elle a été organisée en France et à l'étranger pour y arriver, de même je
 suis satisfait de voir la fin de l'affaire par la grâce, Je sou-
 
-è LAINE VEGAS LEE SR ARTE
 haite pour tous les hommes, quèlle que soit leur condition,
 d'être traités Le plus humainement possible, et je suis toujours pour la revision du procès, quand des hommes sérieux
 
@@ -1905,7 +1803,6 @@ douce tiédeur les partisans qui ont risqué pour lui — ou
 
 pour la cause qu'ils servaient en dessous — leur réputation
 et leur honneur. Ses amis ont dù lui suggérer l'idée de sa
-déclaration.
 
 — Alors vous croyez toujours à sa culpabilité ?
 
@@ -1957,7 +1854,6 @@ il n'avait plus à compter sur le gouvernement allemand qui,
 par avance, n'était « ni directement, ni indirectement, »
 mêlé à son affaire. » Les procès d'espionnage ne sont pas des procès ordinaires. Et, de tous les Allemands qui ont jeté les hauts cris
 pour Dreyfus, pas un n'aurait osé bouger si Dreyfus avait
-été Allemand !
 
 Seul contre tous
 — Sont-ils nombreux ceux qui, en Allemagne, pensent
@@ -1972,15 +1868,11 @@ jours été d'avis que c'était une faute de faire du cas de
 Dreyfus une affaire de parti. Aussi mon organe, le
 Vorwaerts, n'a-t-il rien tenté de défavorable à la revision.
 
-MARCEL HuTIN
-
 L'Écho de Paris a publié dans son numéro du samedi
 
 décembre l'article et la lettre suivants
-CHEZ LIEBKNECHT
 Berlin (Central-Hôtel), le 18 décembre 1899,
 Le parti socialiste français et l'Affaire. — Le cas de
-M. Millerand
 Et Liebknecht poursuit:
 
 — Les socialistes avaient une attitude neutre à observer
@@ -1992,7 +1884,6 @@ d'être une chose palpable puisqu'elle ne s'impose pas à nos
 yeux encore aujourd'hui, n'avait rien à voir avec la cause
 socialiste. » J'ai la vive satisfaction, sauf la légère critique de tout
 à l'heure, d'avoir vu des hommes de grande valeur, de
-vrais démocrates au moins ceux-là, se séparer nettement
 dans l'affaire de ceux, parmi nos amis d'autrefois, par qui
 le dreyfusisme était devenu la marque de fabrique socialiste ! J'ai nommé Jules Guesde, Lafargue et bien d'autres.
 Il est évident que s'il s'était agi d'un innocent, le devoir
@@ -2088,11 +1979,8 @@ le socialisme doit se fortifier par sa propre action, et ne
 chercher sa puissance qu'en lui-même. Toute puissance en
 dehors de nous, à laquelle nous serions tentés de nous
 appuyer, serait pour nous un affaiblissement. Notre succès
-extraordinaire, presque miraculeux, réside uniquement
 dans la conscience de notre force, dans la croyance en notre
 destinée : la conquête sociale du monde. »
-
-Marcez Hu
 
 Nous recevons la lettre suivante :
 Monsieur le directeur,
@@ -2125,10 +2013,8 @@ Au reste, qu'on le vérifie! Nous tenons les exemplaires de Die
 Fackel à la disposition de qui voudra les lire. Notons, seulement,
 que M. Gérault-Richard n'a point relevé le défi qui lui était porté, à
 cet égard, dans notre numéro du 15 décembre, par M. Charles
-Maurras.
 
 Veuillez agréer, Monsieur le directeur, l'expression de mes sentiments les meilleurs.
-HENRI VAUGEO!IS,
 Directeur de l'Action française
 La Petite République du dimanche 24 décembre a
 publié la note suivante
@@ -2136,7 +2022,6 @@ Dans le numéro du 15 décembre de l'Action française,
 M. Charles Maurras m'avait offert de vérifier l'exactitude
 de la traduction française des articles de Liebknecht publiée
 par cette revue. Il y mettait cette condition que je la publierais à mon tour dans la Petite République une fois son
-exactitude reconnue.
 Les panégyristes du colonel Henry sont comme les montreurs de phénomènes, ils n'exhibent point gratis les
 preuves de leur bonne foi. La proposition de M. Charles
 Maurras m'avait paru si étrange, que j'avais omis d'y
@@ -2165,8 +2050,6 @@ pour confident les Nouvelles de Hambourg ou quelque
 autre organe de la presse bismarckienne et impériale.
 
 L'Écho de Paris a publié dans son numéro du
-dimanche 24 décembre larticle suivant
-CHEZ LIEBKNECHT
 Berlin (Central-Hôtel), le 18 décembre 1899,
 Le général Mercier sénateur
 
@@ -2192,7 +2075,6 @@ pas comprendre ou feignent de ne pas voir. Avec une armée
 comme l'armée française, les coups d'État ne sont pas
 craindre! Qu'une partie des officiers français soit aussi réactionnaire qu'elle le veuille, la masse des soldats est trop
 intimement liée avec le peuple pour se prêter à un coup
-d'État.
 
 En France et en Allemagne » Dites-leur ça, à MM. les rédacteurs des journaux libéraux
 en Allemagne qui se vengent de leur impuissance à faire
@@ -2226,13 +2108,11 @@ le peuple sans armes (das Volk ohne Waffen), bon à servir
 de cible à l'autre; en tout cas, il est l'objet du mépris du
 peuple armé. » Eh bien! il me semble que des paysans se chargent de
 nous démontrer en ce moment l'inutilité des grosses armées
-permanentes!
 
 La situation en Allemagne
 — Comment appréciez-vous la situation dans votre pays?
 — Je trouve les dernières séances du Reïichstag caracté-
 
-PANNES l
 ristiques au point de vue de la marche en avant d'idées
 plus appropriées au siècle sous lequel nous vivons. Le
 principe de la monarchie de droit divin peut dire qu'il est
@@ -2254,8 +2134,6 @@ et il en cuit de critiquer avec une ironie même aimable certains actes gouverne
 temps. La démocratie fait son chemin; ce n'est pas avee de
 la prison qu'on empêche la marche des idées.
 
-Liebknecht à Paris
-
 — Allez-vous venir à Paris bientôt?
 
 — Certainement, je compte m'y rendre avec ma femme et
@@ -2266,8 +2144,6 @@ congrès international de socialistes qui doit se tenir au milieu de 1900.
 
 — Ils auront oublié ma franchise comme j'aurai oublié
 sans doute la cause déterminante de mon intervention ; tout
-
-cela se tassera.
 
 » Nous sommes une armée où chacun agit isolément selon
 
@@ -2299,15 +2175,12 @@ contre votre pays, vous le trouverez tout au plus chez les
 militaristes à outrance; dans le peuple, point. Et cela me
 cause beaucoup de joie... »
 
-Marcez Hurix
-
 Quand j'eus recueilli ces renseignements, j'allaitrouver
 le docteur socialiste révolutionnaire moraliste internationaliste et je lui dis : « Citoyen docteur, mon ami le
 
 citoyen provincial voudrait bien savoir ce que c'est que
 cet internationalisme qui n'empêche pas de crier : à bas
 Liebknecht! que cet internationalisme qui demande ensuite que l'on envoie une adresse de félicitations au vé-
-néré doyen. »
 
 Le citoyen docteur lut très attentivement les différentes
 pièces du procès et me répondit
@@ -2331,7 +2204,6 @@ nous entendons inversement que les citoyens allemands
 qui préparent la Révolution sociale en Allemagne sont
 les amis des citoyens français qui préparent la Révolu-
 
-tion sociale en France.
 — Mais, citoyen docteur, si les citoyens camarades
 
 allemands sont les amis des citoyens camarades français, E
@@ -2360,14 +2232,12 @@ Sinon, citoyen, nous remplacerions le nationalisme
 direct et respectif par un nationalisme inverse et réciproque. Ce n'est évidemment pas ainsi que l'Internationale peut devenir le genre humain.
 — Cependant, citoyen docteur, la Petite République
 a ouvert une consultation internationale sur ces deux
-questions
 Le prolétariat socialiste peut-il, sans manquer au
 principe de la lutte desvlasses, intervenir dans les con116
 Jlits des diverses fractions bourgeoises, soit pour sauver
 la liberté politique, soit, comme dans l'affaire Dreyfus,
 pour défendre l'humanité?
 
-Deuxième question
 Dans quelle mesure le prolétariat socialiste peut-il
 participer au pouvoir bourgeois; et le principe de la
 lutte de classes S''oppose-t-il absolument et dans tous les
@@ -2394,8 +2264,6 @@ avez lu les consultations obtenues des meilleurs théori-
 ciens et militants socialistes internationaux? Je me
 suis arrêté après les premières : ceux qui avaient rai-
 Ÿ son ne faisaient pas que nous eussions plus raison, et
-
-Vile
 
 ceux qui avaient tort ne faisaient pas que nous n'eussions raison. En gros, parmi ceux que j'ai lus, jai
 remarqué deux tendances : les uns traitaient les questions par propositions théoriques abstraites indémontrées, on ne voyait pas comment ces propositions
@@ -2478,16 +2346,11 @@ morceau. Comme c'est commode ! Vous, par exemple,
 qui aimez la socialdémocratie allemande et qui n'aimez
 pas Liebknecht, comment avez-vous voté ?
 
-— J'ai voté contre.
-
-L'AFFAIRE LIEBKNECHT Ù
-
 — Je ne me rappelle pas s'il y a eu les deux épreuves.
 Il y avait un brouhaha extraordinaire, une émotion
 intense et de celles qui nuisent plutôt à la mémoire. Je
 crois me rappeler que le citoyen président annonça la
 motion de la réparation. Aussitôt la plupart des délé-
-gués, surtout à gauche, levèrent frénétiquement leurs
 cartes rouges au bout de leurs bras, comme des petits
 enfants tendent leurs mains vers un grand-père mena-
 çant. Ils ne pensaient pas que cette fois c'était le grandpère qui avait commencé par jeter aux loups ses petitsenfants. Quand je dis que j'ai voté contre, je veux dire
@@ -2507,7 +2370,6 @@ doyen. — Cela est plus facile que d'aller en Arménie.
 — Ne vous semble-t-il pas, citoyen docteur, que cet
 engagement du parti dans la personne et dans le nom
 de son doyen vénérable impose à celui-ci au moins
-quelque modération?
 
 — Nous allons y venir, citoyen; mais si vous trouvez
 que je suis trop long, vous n'aviez pas qu'à venir consulter. — Donc, est-il vrai que le citoyen Liebknecht
@@ -2523,7 +2385,6 @@ de n'estimer pas à leur valeur les travaux du citoyen
 Liebknecht. Maïs, comme le disaient les anciens, tant
 qu'un homme n'est pas mort, nul ne peut dire qu'il est
 celui qui a le plus souffert et le plus longtemps pour la
-révolution sociale.
 
 Je suppose que lorsque l'on vénère en Liebknecht le
 doyen du socialisme universel, on entend par là qu'il est
@@ -2563,7 +2424,6 @@ cultivés en pays étrangers n'aient ni connu ni entendu
 l'affaire Dreyfus. Mais il est immoral de traiter les
 sujets que l'on ne connaît pas. Cette immoralité devient
 luxueuse quand rien n'engageait l'auteur à traiter le
-sujet.
 
 Je remarque dans ces articles un peu de ce que nous
 nommons mauvaise foi quand nous l'apercevons, — ce
@@ -2598,12 +2458,10 @@ toute la socialdémocratie allemande. — Je nomme
 élite intellectuelle d'un pays ou du monde l'ensemble de
 ceux qui travaillent bien dans la partie intellectuelle,
 comme l'élite manuelle se compose de tous les travailleurs manuels qui travaillent bien, chacun dans sa
-partie.
 Réagissant contre les passions par quoi les mauvais
 
 dreyfusards étrangers haïssaient la France, Liebknecht j
 l'a aimée comme jamais les bons Français, ne fussentils pas encore devenus socialistes, n'ont consenti qu'on
-l'aimät.
 
 Plus profondément il me semble que je vois dans ces
 articles une étrangeté plus grave encore et plus étrangère : celle de la mentalité. II me semble bien que
@@ -2630,7 +2488,6 @@ et la violence du doyen. Nous sommes si bien prévenus
 et nous nous gardons si bien en France contre une cer-
 taine hypocrisie, contre un certain aspect de la duplicité, souple, catholique, jésuite, que nous sommes assez
 
-SÉPARER
 portés à nous imaginer que la brusquerie et la brutalité
 sont la marque nécessaire de la franchise.
 
@@ -2666,7 +2523,6 @@ lemagne à Paris avec sa femme et ses enfants, comme
 il dit, quand il sera là, dans la salle et à la tribune, et
 qu'il voudra parler, faudra-t-il qu'on lui crie : à bas
 
-L'AFFAIRE LIEBKNECHT Ë
 Liebknecht! et qu'on l'empêche de parler? J'ai entendu
 quelques citoyens, fort en colère après l'expulsion de
 Joindy, qui disaient : « Nous empêcherons Liebknecht,
@@ -2688,7 +2544,6 @@ donne un prétexte à des manifestations antisémitiques,
 nous devons l'empêcher d'outrepasser.
 
 — Comment le faire, citoyen, sans crier : A bas
-Liebkinecht !
 
 — 11 me semble que la valeur d'un cri varie avec la
 personne ainsi acclamée ou réprouvée. Les incrédules
@@ -2749,10 +2604,7 @@ pas.
 Je m'en allai sentant combien l'ironie un peu lourde
 de ce dernier docteur était excessive.
 
-AVANT LA PREMIÈRE QUINZAINE
-L' « AURORE »
 Numéro du samedi 2 décembre
-Chronique Financière
 Dans le rapport du 26 septembre, publié dans notre
 numéro du 21 octobre dernier, j'écrivais ceci : « L'Aurore n'a pas de Bulletin financier et beaucoup d'amis
 bienveillants s'en étonnent. » Depuis la publicaion de
@@ -2767,19 +2619,14 @@ d'en lire deux. » Le raisonnement est juste. Va donc
 pour un Bulletin financier de l'Aurore! Il sera fait le
 ! mieux et le plus scrupuleusement possible; mais il est
 bien entendu qu'il n'engage en quoi que ce soit la rédaction politique du journal et laisse entière son indépendance. ERNEST VAUGHAN
-Samedi 16 décembre
 P. S. —M. de Boissandré écrit dans La Libre Parole
 « On prétend que M. Clemenceau va se résigner à entrer
 au Figaro. » J'informe M. de Boissandré que cette nouvelle
 est de pure invention. Aucune proposition ne m'a été faite
 du Figaro ou de tout autre journal, et je n'ai jamais envisagé cette éventualité.
-PAPER ADR LS CAN DS PRES ELe TRE FRA RE (et) ET CO CE GE 4 A ES
-lundi 18 décembre
 
 Notre directeur E. Vaughan a reçu, hier, la lettre sui-
 
-vante
-Paris, 17 décembre 1899 -
 Mon cher Vaughan,
 Je vous prie de recevoir ma démission de rédacteur
 de l'Aurore, motivée, comme vous le Savez, par un dissentiment de rédaction que je juge grave.
@@ -2790,7 +2637,6 @@ la commune campagne de justice dont j'ai la fierté de
 
 revendiquer ma part.
 ï Croyez, je vous prie, à mes sentiments affectueux.
-G. CLEMENCEAU
 Notre directeur a répondu
 Mon cher Clemenceau,
 
@@ -2807,15 +2653,9 @@ talent, depuis la création du journal.
 J'ajouterai que je considère et considérerai toujours
 la maison comme étant la vôtre et que la place qui vous
 est due, la place d'honneur, vous y sera toujours ré-
-servée.
 
 Croyez, mon cher Clemenceau, à mes plus affectueux
-sentiments.
 
-ERNEST VAUGHAN
-
-À AVANT LA PREMIÈRE QUINZAINE
-mardi 19 décembre
 des Amis de l'Aurore
 Des amis de l'Aurore, émus par le départ de Clemenceau,
 me font part de leurs inquiétudes et sollicitent de moi quelques éclaircissements.
@@ -2828,8 +2668,6 @@ et d'estime que nous avons l'un pour l'autre et que l'Aurore
 continuera, sans rien changer à son programme, à com- ?
 battre pour la Justice et pour la Liberté.
 
-ERNEST VAUGHAN
-Vendredi 22 décembre
 Un des meilleurs articles que Gohier ait écrit contre pe
 l'argent, intitulé : De l'argent, conclu ainsi:
 Tout mal vient de l'argent.
@@ -2838,8 +2676,6 @@ pour oracles, quelquefois pour idoles, les plus vils sectateurs de l'argent. Nou
 life exercer dans notre prétendue démocratie une stupéfiante
 influence. L'un, marquis dont les ancêtres étaient déjà fameux
 par leurs malheurs conjugaux sous Louis XIV ou par leurs
-
-F VIII
 
 trahisons sous Louis XVI, insatiable de luxe, tirant des.
 sommes énormes de la bêtise populaire et des affaires
@@ -2880,9 +2716,6 @@ ne soient ni cupides ni jouisseurs — ou du moins qui se
 contentent des fortes jouissances de la colère et des âpres
 jouissances du mépris.
 
-j URBAIN GomtERr
-
-L'AFFAIRE ZOLA
 « L'Aurore » du mardi 19 décembre
 Lettres au général de Galliffet et à M. Waldeck-Rousseau
 
@@ -2964,18 +2797,9 @@ père, salie bassement pour éviter le bagne à une bande de
 menteurs et de faussaires.
 
 Veuillez, monsieur le Ministre, agréer l'assurance de ma
-haute considération.
-Paris, 9 décembre 1899.
-
-EMice ZoLa
-
-MINISTÈRE RÉPUBLIQUE FRANÇAISE
-DE LA GUERRE
 
 Cabinet Paris, le 14 décembre 1899.
 du Ministre
-
-Monsieur,
 
 J'ai l'honneur de vous accuser réception de votre lettre du
 décembre courant par laquelle vous demandez
@@ -2998,14 +2822,8 @@ communiqués à des tiers, même aux familles des intéressés.
 Recevez, monsieur, l'assurance de ma considération la
 plus distinguée.
 
-GALLIFFET
-
-MINISTÈRE RÉPUBLIQUE FRANÇAISE
-DE LA GUERRE
 Cabinet Paris, le 16 décembre 1899.
 du Ministre
-
-Monsieur,
 
 Pour faire suite à ma lettre du 14 décembre courant, j'ai
 l'honneur de porter à votre connaissance les résultats de l'enquête à laquelle j'ai fait procéder, conformément à la demande que vous m'avez adressée, le 9 décembre, pour dé-
@@ -3042,9 +2860,6 @@ interdisant la communication d'aucun dossier déposé aux
 archives administratives, sans un ordre écrit signé du Ministre.
 
 Recevez, monsieur, l'assurance de mes sentiments les plus
-distingués.
-
-GALLIFFET
 
 A Monsieur Waldeck-Rousseau, ministre de l'intérieur,
 président du conseil des ministres.
@@ -3076,8 +2891,6 @@ Cette réponse me ferait sourire, si je n'avais pas le cœur
 si atrocement serré. Naturellement, les dossiers secrets sont
 secrets, et si j'ai demandé que le dossier secret de mon père
 me fût communiqué, c'est justement parce qu'il n'est plus se-
-
-Fer PANNES
 
 cret, qu'il a été lächement, bassement communiqué en partie à un journal, pour la plus immonde des besognes. On
 l'a communiqué à un adversaire, et on ne me le communiquerait pas à moi, le fils de Fhomme diffamé! On a fait publier des lettres d'accusation, et on ne me fournirait pas la
@@ -3125,13 +2938,9 @@ dénonciation calomnieuse le juste effort de faire un peu de
 lumière dans ces honteuses ténèbres.
 
 Veuillez agréer, monsieur le président, l'assurance de ma
-haute considération.
-
-EÉmice ZoLA
 
 J'attends la réponse de M. Waldeck-Rousseau, président
 du conseil des ministres. k
-Emize ZoLa
 « L'Aurore » du jeudi 21 décembre
 
 La Réponse de M. Waldeck-Rousseau
@@ -3140,14 +2949,8 @@ Voici la réponse que j'ai reçue hier matin de M. Wal-
 deck-Rousseau, président du conseil des ministres, à la
 lettre dans laquelle je lui demandais que le dossier administratif de mon père me fùt communiqué.
 
-PRÉSIDENCE RÉPUBLIQUE FRANÇAISE
-
-DU CONSEIL
-MINISTÈRE
 DE L'INTÉRIEUR Paris, le 20 décembre 1899.
-Cabinet
 du Ministre
-Monsieur,
 
 J'ai l'honneur de vous informer que le conseil des
 ministres a, d'accord avec le ministre de la guerre,
@@ -3164,7 +2967,6 @@ très distinguée.
 
 Le président du conseil,
 ministre de l'intérieur et des cultes,
-WALDECK-ROUSSEAU
 
 Je remercie M. Waldeck-Rousseau, et je remercie le gouvernement tout entier, de la décision juste et loyale qu'il a
 bien voulu prendre.
@@ -3177,8 +2979,6 @@ de la vérité.
 C'est la vérité seule que j'ai toujours voulue, et je suis
 convaincu que tous les hommes de bonne foi m'aideront
 dans mon enquête.
-Emice ZoLA
-LA LIGUE DES DROITS DE L'HOMME
 « L'Aurore » du samedi 1 6 décembre
 
 La section clermontoise de la Ligue, après avoir pris
@@ -3197,13 +2997,11 @@ sections de la Ligue.
 La section clermontoise de la Ligue a décidé également
 de protester contre le projet d'amnistie et d'envoyer au
 chef de l'État et au gouvernement une adresse ainsi ‘
-conçue
 « La section clermontoise de la Ligue adresse un respec- à
 
 tueux hommage à M. Loubet, président de la République
 française, » Exprime sa confiance au ministère de défense républicaine et l'invite à poursuivre son œuvre pour assurer le
 triomphe de la justice et la consolidation des principes de
-solidarité républicaine. »
 
 « Le Siècle » du vendredi 22 décembre
 La grâce de Liard-Courtois
@@ -3211,7 +3009,6 @@ La grâce de Liard-Courtois
 le président de la République avait déjà gracié Monod,
 l'un des cinq détenus de l'île Royale, qui avaient été recommandés à sa haute clémence par la Ligue des Droits de
 l'homme et du citoyen, sur le rapport de M. Joseph
-Reinach.
 
 Par décret en date du 10 décembre et sur la proposition
 de M. le ministre de la justice, le président de la République vient de gracier un autre de ces malheureux, Courtois, condamné à la transportation par le jury de la
@@ -3224,7 +3021,6 @@ des droits de l'homme et du citoyen, ému des récentes et
 graves nouvelles venues d'Arménie, exprime le vœu que le
 gouvernement de la République avise à empêcher le renouvellement des massacres qui ont décimé, en 1896, une population sans défense et désolé l'humanité tout entière.
 
-DE L'AFFAIRE DREYFUS
 « L'Aurore » du samedi 1 6 décembre
 
 Le colonel Picquart vient d'assigner le greffier de la Cour
@@ -3233,7 +3029,6 @@ chez Jui, il y a bientôt dix-huit mois, lors de l'ouverture de
 l'instruction Fabre.
 
 « L'Aurore » du lundi 18 décembre
-Kis-Jenoë, 6 décembre, 9 heures matin
 Duc de Luynes, Dampierre,
 
 Je lis dans les journaux votre dépêche. Je regrette profondément que vous ayez choisi cet incident futile pour
@@ -3245,14 +3040,10 @@ l'attitude dans cette triste affaire Dreyfus une pure affaire
 digne de sa race.
 
 Il ose encore parler de duel et d'honneur, oubliant sa
-fameuse parade !
 
 Je trouvais qu'il était temps de rompre définitivement
 avec lui, et j'espère que cela sera fait.
 
-Amitiés. PricrPpe
-
-CONTRE LES BARBARES
 « L'Aurore » du samedi 16 décembre
 
 Une ligue vient de se former sous ce titre : Union populaire contre les courses de taureaux.
@@ -3276,7 +3067,6 @@ l'abonnement payé, — qui paye l'abonnement reçu.
 Nous publierons sur feuille rose les souscriptions que
 nous aurons reçues par la poste; nous prions nos correspondants d'adopter pour ces insertions un signe
 reproduire dans leurs lettres de souscription, sur le
-modèle uniforme : 1. A. B. à Orléans.
 
 Ce premier cahier vaut 1 fr. 50.
 
@@ -3285,18 +3075,13 @@ Nous vendons l'exemplaire au prix marqué: nous
 vendons pour la propagande
 
 Administration et rédaction le lundi et le jeudi, de
-heures à 7 heures.
 
 Nous publierons vraiment notre état de situation
 nous avons tiré ce premier cahier à 1,300 exemplaires:
 outre les 211 exemplaires des abonnements annuels
-gratuits,
 
 nous l'envoyons à 3 services d'échange.
 
-— à 30 abonnés ferme,
-
-— à 172 abonnés éventuels
 Nous publierons dans le prochain cahier les princetid paux documents commentés de la préparation du
 Congrès socialiste national et en partie la discussion,
 à la Chambre, de la proposition de loi, adoptée par le

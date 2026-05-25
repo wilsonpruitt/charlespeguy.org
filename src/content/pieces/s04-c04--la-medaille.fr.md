@@ -7,87 +7,30 @@ author: antonin-lavergne
 isAvertissement: false
 wordCount: 28987
 ---
-
--  TDIÈME- À À UICDr @: FA La ARE a à Tr 5 :
-
-UATRIÈME CAHIER DE LA QUATRIÈME SÉRIE
-D. ANTONIN LAVERGNE TES
-TL AMEL " x DRE
-
 _ la médaille LS
 
-_ Ja lettre d ti à.
 _ da lettre de convocation
-LAISSES ‘ 524
-Mo. 8
-RARES ES © À AE
-PATRON SRE é pt |
 
-D. CAHIERS DE LA QUINZAINE
 D 7 paraissant vingt fois par an.
-D PARIS #3
 : 8, rue de la Sorbonne, au rez-de-chaussée 2
 
-SP SR RE RE EE AE NT :
-
-ÿ: re à Dore TS = ;
-
-S És Rer à : PS |
 Pour savoir ce que sont les Cahiers de la Quinzane,
 ” il suffit d'envoyer un mandat de trois francs cù quar . Le
 : à M. André Bourgeois, administrateur des core "a
 Fi 8, rue de la Sorbonne, Paris. On recevra en spécü ens Fa |
 Dr six cahiers de la deuxième et de la troisième SÉTLE Rte LPS
-vi INTER
 
-= #4 . £
 Æ Nous mettons ce cahier dans le commerce; nous le |
-k à AT SENS OEM EE
 
 ANA vendons un franc A Sn cu |
 
-PE F FTP PES A |
-F MR
-: - NL DPÉRENSSS
-
-: = F7 AN CARe
-
-! : LE " 3 METEO à
-:-. NES
-1 , NRC
-SE g _ Five re D
-
-‘t ‘ É ere |
-; 3 A > ||
-
 a Ar t jt Ye nie “4 Le édite Re VENT ER PAC ONTE
-lie ct TRUE XP NEA à, d'A EE ee SALES NL
-ÿ HA 4 PAR VEN L ge Re * CARS
-FINE 4, Ÿ 124)
-{ 9e ÉLAOE ' Dh ie pot
 { NE RES j , fh vi
-Re MA 1 1
-à 4, LISE RARES * t va nl fr
 je CARO RL e ES ÿ Ÿ sf f RL.
-4 17% HSE 5 [4 À a
-Mn: 6 LATE
-' 1477 OUEN 84
-PE NOIR À à 60e
 
-JOIE NP TR d ; f rs
-Lu “ANS À os
-ee 3 NOR à # HET
-WIRE ! ie
-w- 5 ‘pr FRIVER | AR
-En 2 04 el k te ÿ + A,
-à 1 ON EME ER Q RE LE DR TSNERSS
-pret 11: "AT OMVRRNEN NUE PO N K CUT ae \:: Vi
-1! 8 PE NRE rt LOUE 14 PAIN NE JEU
 SU SP SE RNE TES Li 4 RUE ae
 
 | AIQNTESS
-
-\
 
 Les Cahiers ont publié du même auteur : \
 
@@ -104,71 +47,14 @@ tion, Société d'éditions littéraires et artistiques, —
 librairie Ollendorff, — un beau volume de 314 pages,
 couverture reliée toile illustrée de H. Goussé,
 
-trois francs cinquante.
 |
 |
 |
-
-PAT DES RE RC REUTERS OR RE RE ES EN A ONE: TP ANRE TON
-
-Hire LEE a US
-
-RM. ; Te AR " Le
-
-U 7: nor #7 c + CS
-
-L PA 26 2, ! 418
-
-DE: - < 7#È8
-
-Ê FIRE Ps r . 7x
-
-MN UNETE :
-
-D LA MEDAILLE | 2
-
-La Ten \#4 = * 1
-
-Î { + NRA . F A APE
-
-+ 154 ÿ à « a Nos , D LL à è de UE
 
 ra Re SUR Re t À sh
 
-à 4 14,2") PRROREETSES ‘ Fe L 2428
-
-{LS aNETES : 122 SR
-
-7 ENP SRE RREE paie RAR
-
-MR; Le & RARE
-
-Li, 1 MAX CERTES ta 7
-Un D 1 Ê if CN
-
-: + SAP LP 10 LRO RE We CA a TA NN
-
-PP NERO à VAT care ANNEE rie ER RIVER
-N : fic TONTE ÿ LR Te CRE
-Ve LOUE ; d , TN EE
 1 4 à gd 0 Ÿ ed CN ARVAE Ce _
-AIDE ' = Us a
-ta } NO Se
 F : MO ina on.
-$, ; = + LISE
-HA, ) MAEMRE TE 7 LOS
-” { ; LS
-ARS
-PE - NT"
-< | ‘ € TU
-x 5 E 11, 2x MERS e
-Rx, Die k : ÉRANETNE FES
-à e ù CS à :
-: M i
-EM : l : T1 APR PATES 10 por,
-7. ' " LEP ur Pet UMTS
-
-LA MÉDAILLE
 
 Je relisais dernièrement la savoureuse préface que
 Daudet a écrite pour Vie d'enfant, ce beau et simple
@@ -181,7 +67,6 @@ jour terne d'un hiver du Nord, ce jour maussade, ce :
 jour d'agonie qui, par contraste, me rappelle, plus
 vivement et non sans nostalgie, les clairs matins, les
 tièdes après-midi, les soirs transparents de mon pays
-ensoleillé.
 
 L'âme plus chaude à cette évocation, je glissai dans
 le rêve et je revécus les années heureuses où, comme la
@@ -200,16 +85,11 @@ brusque soleillée, apparurent soudain dans tout leur
 belles images coloriées et dorées. Alors du fuseau où
 sont emmêlées les heures du passé se dévidèrent et
 
-F
-
-” Li LR
-Antonin Lavergne
 resplendirent, sous mes yeux, quelques-uns des jours
 lointains, si lointains, qui précédèrent mon adolescence
 et dont je veux vous conter les incidents évoqués par
 la phrase magicienne de Daudet et ayant trait à la
 sonore et chère langue de la Terre d'Oc.
-I
 
 J'avais alors de huit à dix ans, je crois. Aniane, ce s
 vieux bourg du Bas-Languedoc, fondé par saint Benoît
@@ -236,9 +116,6 @@ rendre l'étude attrayante, s'il ne bavardait pas tout le
 long du jour pour mâcher la besogne à des élèves
 inattentifs, s'il recourait plus volontiers à notre mémoire
 qu'à notre jugement, il avait cependant une certaine
-
-« ! A 1% ' ê x
-LA MÉDAILLE
 
 expérience, savait nous faire travailler dur et nous
 obligeait à apprendre par cœur nos leçons sans escamoter une seule syllabe. Bronchaït-on seulement trois
@@ -274,8 +151,6 @@ occasions nous le faisaient redouter au point de ne pas
 
 | oser même bouger en sa présence.
 | Or, M. Lassalle avait une haine, haine qui aurait
-
-Antonin Lavergne
 
 paru étrange, absurde, chez un instituteur d'origine
 paysanne, mais qui s'expliquait chez lui, fils, frère,
@@ -314,11 +189,6 @@ trémulations de pitié faisaient chevroter sa voix
 blanche, — petits malheureux que vous êtes! pourquoi
 vous obstiner à user de cet horrible, de cet infâme -
 
-L & ati 4
-PONT CS ,
-rh
-LA MÉDAILLE
-
 patois! Mais c'est ainsi que parlent les charretiers,
 
 les voyous, les pas grand chose. Voyez les gens comme
@@ -349,16 +219,10 @@ même d'une vieille famille sortie de la glèbe ! Quelle
 que fût la peur respectueuse que m'inspirait M. Lassalle,
 toutes mes affections protestaient contre ses paroles
 
-: injurieuses.
-
 Mais, par ailleurs, je savais aussi fort bien que les
 enfants des riches parlaient français — un français souvent douteux, certes! — et que certains parvenus
 villageois, très désireux de voir leur progéniture leur
 faire honneur, professaient, devant leurs fils et leurs
-
-9 ee
-
-Antonin Lavergne
 
 filles, l'étrange mépris, le dédaïin, comique parfois,
 ridicule toujours, de cette langue déchue, dont pourtant
@@ -396,8 +260,6 @@ de ses élèves et même, dans l'avenir, celles du bourg
 entier, de ce grossier langage qui — M. Lassalle
 lignorait — avait été la langue d'une civilisation bril-
 
-AR
-LA MÉDAILLE
 lante et délicate, dans le passé, et qui, récemment
 restauré, avait servi, aux grands poètes des bords du
 Rhône, Mistral et Aubanel, à écrire déjà leurs premiers
@@ -434,10 +296,6 @@ Mais cette idée-là n'habitait pas la cervelle étroite de
 M. Lassalle et c'est pourquoi il ne se lassait pas de
 prodiguer ses conseils et ses adjurations qui faisaient,
 
-II
-
-Antonin Lavergne
-
 sur moi, une très vive impression, en dépit des quelques
 réserves dictées par mon affection pour les miens.
 
@@ -445,7 +303,6 @@ Aussi, durant mes courts accès de zèle, j'en venais
 parfois à être ennuyé d'entendre mes parents continuer
 à s'exprimer comme des gens grossiers, comme les
 voyous. J'osai même, selon le désir de M. Lassalle, en
-manifester quelque surprise.
 
 Je m''attirai par là des réponses péremptoires qui
 firent sur l'ardeur de mon prosélytisme enfantin leffet Ÿ
@@ -479,15 +336,11 @@ où revenaient ces mots : « Entêtement. obstination
 déplorable. il est difficile de bien faire... nous verrons
 bien... etc., etc. » En proie à son idée fixe, il avait juré
 
-LA MÉDAILLE
 de trouver un moyen de nous obliger à faire ce qu'il
 voulait, même en dehors de l'école, même les jours de
-congé, à n'importe quel moment enfin.
 
 Qui cherche, trouve, dit le proverbe. M. Lassalle, à
 force de chercher, finit par trouver.
-
-Il
 
 Un matin, en arrivant dans la cour de l'école, nous le
 vimes se promener dans une allée de son jardinet, l'air
@@ -517,8 +370,6 @@ Nous n'en revenions pas et la classe fut moins silen-
 |
 |
 
-Antonin Lapergne
-
 cieuse que de coutume. Nous aussi, nous avions des
 envies folles de crier, de nous poursuivre comme les 1
 moineaux, de chanter comme notre maître. C'était
@@ -532,8 +383,6 @@ avait pris quelque chose d'équivoque, de troublant, de
 gouailleur, qui, à la longue, nous donnait froid au dos.
 Le vague et étrange malaise! A maintes reprises, on
 l'entendit marmonner :
-
-— Patience, patience, ça va finir, Iroquois ! |
 
 Nos cœurs avaient, toute la matinée, joui d'une parfaite et si douce quiétude, mais quel sombre réveil !
 
@@ -553,8 +402,6 @@ encore un petit mot à vous dire... ce ne sera pas long.
 On fait silence, oh ! un silence gros de l'appréhension
 d'un péril inconnu et d'autant plus redoutable. Tous
 nous devinons qu'il va se passer une chose extraordipaire, menaçante pour notre tranquillité.
-
-LA MÉDAILLE
 
 Debout sur son estrade, M. Lassalle vient d'introduire ses doigts longs et osseux dans la poche de son
 gilet. Puis d'un geste sec et triomphant, il lève la main
@@ -580,7 +427,6 @@ cette « médaille »!
 
 C'est, en effet, par ce mot que nous avions l'habitude
 de désigner tous ces vieux sous avec lesquels nous
-jouions au bouchon.
 
 — Hé!hé! avec ça, je vous tiens, mes amis... Ah!
 ah! on s'obstine à parler cet odieux patois. Eh bien!
@@ -593,9 +439,7 @@ qui transgressent mes ordres, qui font fi de mes con-
 
 |
 
-À Antonin Lavergne
 seils et patoisent constamment seront bel et bien pincés. Une trouvaille, n'est-ce pas ? un trait de génie,
-hé! hé!
 
 Les yeux grands ouverts, nous comprenons de moins
 en moins. Est-ce un talisman, une médaille-fée ? L'air
@@ -630,10 +474,6 @@ l'autre, jusqu'au jour où le maître la réclamerait et distribuerait force pun
 elle aurait passé. L'élève choisi par le maître devrait
 d'ailleurs se débarrasser à tout prix de la médaille, s'il 1
 
-*
-&
-
-LA MÉDAILLE s
 ne voulait être puni lui-même comme « ayant trahi la
 confiance mise en lui ».
 
@@ -668,8 +508,6 @@ chose de plus grave, car, comme je l'ai déjà dit, la
 combinaison de M. Lassalle était vraiment machiavé-
 lique et infaillible.
 
-Antonin Lavergne |
-
 Pour éviter toute entente entre nous, toute faiblesse
 ou toute négligence coupable, il avait été décidé que
 celui qui, le dernier, aurait la médaille en sa possession, non seulement serait gratifié d'un double pensum,
@@ -692,7 +530,6 @@ déjà, des groupes hostiles.
 Et les suppositions d'aller bon train. Est-ce Jacques ?
 est-ce Paul ? autant d'interrogations obsédantes et sans
 réponse. Le détenteur du terrible vieux sou ne se :
-trahissait point.
 
 Dès lors, on s'observa, on se regarda de travers. Il
 
@@ -703,7 +540,6 @@ avait beau se surveiller, l'habitude l''emportait et, involontairement, dans la 
 remettre aussitôt au coupable ahuri. Lors même que
 le condisciple ennemi n'était pas là, on n'en éprouvait
 
-LA MÉDAILLE
 pas moins un vif saisissement, à peine le mot prononcé.
 Anxieusement on regardait autour de soi, quitte à
 pousser un cri de bonheur, si rien ne sortait des
@@ -724,7 +560,6 @@ tinssent compagnie à l'école.
 Les peureux, les timides tremblaient sans cesse et,
 de peur d'un oubli, refusaient de jouer, ne parlaient
 presque plus, se cloîtraient la plupart du temps dans
-leurs maisons.
 
 Au bout d'un mois, cela devint intolérable. Ne plus
 avoir la liberté de communiquer entre nous, dans notre
@@ -736,12 +571,10 @@ Bientôt on se réunit par groupe de quatre ou cinq et,
 après s'être juré solennellement qu'aucun n'avait la
 médaille, confiants en la parole donnée, on s'enfuyait
 au loin, dans un.endroit écarté, afin d'y jouer dans une
-sécurité complète.
 
 Tantôt, c'était à La Brèche, un petit chemin creux, sis
 en dehors du bourg et longeant le ruisseau qui, après
 
-Antonin Lavergne
 ‘ avoir côtoyé des prés et des jardins potagers, traverse 4
 Aniane et le divise en deux parties inégales, le bourg
 proprement dit et le quartier de Régagnas. La Brèche
@@ -753,7 +586,6 @@ grands arbres, appelé le Bosquet, elle est bien exposée,
 fraîche et verte à cause des arbres en été, abritée des è
 vents en hiver, et devenant alors un tiède cagnard où ;
 les vieillards vont lézarder au soleil et deviser du |
-passé. 1
 Souvent, pour être plus en sûreté, nous escaladions {
 la pente raide et argileuse du monticule, érodé par les !
 crues du ruisseau, et nous nous réfugiions dans les allées
@@ -771,10 +603,6 @@ jours de voir brusquement émerger d'un massif le mu- 4
 seau narquois d'un camarade à l'affût et d'entendre sa 1
 voix guignonnante nous crier : 1
 — Voilà la médaille pour toi. à
-4]
-
-. > FRERES . ÿ . \ + RH
-LA MÉDAILLE
 
 Ce n'était donc qu'après un moment d'anxieuse
 attente que nous revenions à nos jeux et que nous
@@ -794,7 +622,6 @@ guère aux sentiments bas et peu éducateurs qu'il encourageait ainsi en nos jeu
 que le respect de la parole jurée était tel, parmi nous,
 qu'après plusieurs mises en quarantaine et maintes
 bourrades, on ne chercha plus à tromper. Non, on n'aimait pas les traîtres. Ruser, soit; trahir nous semblait
-monstrueux.
 
 Le jour où la médaille circulait, circulait sans
 relâche et faisait le plus de victimes, c'était sans
@@ -805,8 +632,6 @@ appelle ainsi une rue déclive et très large, située sur
 le derrière des maisons dont la principale est le café
 Alphonse, et bordée de l'autre côté par un parapet audessous duquel coule, dans un lit vaste, le ruisseau ou
 
-L.
-Antonin Lavergne |
 plutôt un filet d'eau nauséabond, servant de déversoir
 aux tanneries qui se trouvent en amont; sur l'autre
 rive s'étend le faubourg de Régagnas.
@@ -824,7 +649,6 @@ main en main, s'insinuait de poche en poche, agile,
 capricieuse, vivante, fléau de notre insouciance heureuse, distributrice de retenues et de pensums pour le |
 lendemain. Et pas moyen de la refuser, de se gen- |
 darmer contre elle, car, dans ce cas, on écopait double |
-punition. |
 
 Tout, vous dis-je, avait été prévu, archi-prévu, par |
 l'adversaire acharné du patois, par limpitoyable |
@@ -840,8 +664,6 @@ demeurer chez soi, à l'abri. D'aucuns même, au |
 moment de franchir le seuil de l'école, perdaient tout |
 courage et, dans un besoin âpre de liberté, s'en allaient
 étudier parmi les buissons accueillants, dans la compagnie des merles et pinsons fraternels.
-
-LA MÉDAILLE
 
 Oui, toute ma vie, je me rappellerai ces tristes réveils
 du lundi, après l'adorable tranquillité du dimanche.
@@ -876,14 +698,9 @@ dur, la voix impérieuse :
 — Jacques, c'est à vous que j'ai confié la médaille.
 à qui l'avez-vous remise ?
 
-— À Louis, m'sieur.
-
 — Bien. Louis, quatre fois le verbe parler patois et
 
-D |
-Antonin Lavergne
 au pain sec pour avoir récidivé... Et vous, vous l'avez
-remise ?
 
 — A Jean, — pleurniche le gamin.
 
@@ -896,10 +713,8 @@ blanc cru du mur badigeonné de frais, — prend soudain à nos yeux des airs de
 de tortures.
 
 Pourtant des protestations, des discussions s'élèvent
-parfois.
 
 — Non, m'sieur, c'est pas vrai, ze parlais pas en |
-patois. |
 
 — En tous cas, — riposte le maître, — vous vous |
 exprimez, à cette heure, en fort mauvais français.
@@ -919,10 +734,6 @@ Le gamin qui a évité, cette fois, la punition, se rassied l'air triomphant.
 Mais, d'autres fois, le cas est plus délicat. M. Lassalle l'envisage et le discute gravement, cherche à
 s'assurer s'il y a négligence, mauvais vouloir, ou ignorance réelle. C'est lorsqu'il nous est arrivé d'affubler
 certains mots patois d'un habit à la française.
-
-PART EUR e ve ;
-; Mr 5
-LA MÉDAILLE
 
 — M'sieur, il a dit l'ourgeau.
 
@@ -958,11 +769,6 @@ bras, prend une attitude d'homme soucieux et, le menton dans sa main droite, ré
 grave que Salomon en présence des deux mères. Puis,
 tout pesé, il glapit au milieu du silence général :
 
-Il
-rs
-
-Antonin Lavergne
-
 — Ze baiïs cercer! tu parles, toi, comme un Marseillais. Hum ! hum! de l'orte pour « de la poirée », —
 poursuit-il en secouant la tête, et les sourcils presque
 dressés en l'air. — Hum ! hum! oui, il se peut que ce
@@ -982,7 +788,6 @@ taines expressions ou tournures étranges embarrassaient, faisaient hésiter l'i
 alors que plus impitoyable.
 
 Mais combien l'école et le maître nous paraissaient
-haïssables !
 
 — Ah! quand je serai grand, — se disait-on, — je
 parlerai toujours patois, toujours, toujours.
@@ -997,11 +802,8 @@ lui aussi, à détester, lorsque, méchamment, sournoise-
 
 D'aucuns, se voyant pris, avaient des colères violentes, se battaient, se haïssaient désormais, pour la
 vie peut-être. Sans s'en douter, M. Lassalle semait de la
-haine à pleines poignées.
 
 Ce n'était pourtant pas un méchant homme ; mais il
-
-LA MÉDAILLE
 
 aurait dû se dire que le mieux est l'ennemi du bien et
 comprendre que, par sa sévérité outrée, il compromettait le succès de son plan. En effet, dès que ses élèves
@@ -1014,7 +816,6 @@ donnaient la joie malicieuse de s'exprimer en languedocien au passage ou sous le
 
 — Ah! vaurien, — leur criait-il, — que ne viens-tu
 encore à l'école, je te mettrais au pain sec toute une
-semaine.
 
 On ricanait alors derrière son dos et, dans les
 réflexions bougonnes qu'on marmottait, il reconnaissait
@@ -1037,9 +838,6 @@ si on allait être le dernier à avoir la médaille! Aussi
 celui qui la détenait recourait, pour s'en débarrasser,
 à des ruses d'Apache : il s'embusquait dans les portes
 
-L
-
-Antonin Lavergne
 sombres, se dissimulait derrière les tas de cailloux
 pour mieux surprendre la conversation des camarades
 passant sans défiance. Ce soir-là, chaque coin, chaque
@@ -1047,7 +845,6 @@ borne pouvait cacher l'ennemi.
 
 Par crainte, on ne quittait pas la maison ou l'on se
 promenait bouche close, épiant les ténèbres et le
-silence.
 
 En été, lorsqu'on était assis à causer avec les parents
 et les voisins au seuil de sa demeure, on voyait une
@@ -1077,8 +874,6 @@ Tout à son idée fixe, M. Lassalle ne se formalisait
 pas de ce manque de discrétion ; il nous y encourageait
 presque, car il nous répétait sans cesse que pour don-
 
-Gr
-LA MÉDAILLE
 ner le bon exemple aux parents encroûtés dans leurs
 mauvaises habitudes, nous devions surtout parler
 français, chez nous, lors des réunions du soir.
@@ -1111,11 +906,8 @@ mère et où j'allais souvent demeurer une semaine
 entière. Là, débarrassé de mon souci obsédant, ivre de
 liberté, j'errais le long du ru, bordé de prairies et de
 
-29 Il.
 |
 
-ur ; di
-Antonin Lavergne
 vignes, qui coule, au bas du mas, dans une étroite
 vallée entre deux collines boisées et pierreuses. Je m'enfonçais tantôt dans les touffes de roseaux, tantôt dans
 les cépées de chênes-verts, allant du Pesquié (le bassin),
@@ -1142,16 +934,13 @@ se prendre sottement au piège tendu. Et au matin, sous
 les aubes fraîches et indécises, nous refaisions le même
 chemin, bavardant sans trêve, alléchés par l'espoir
 d'une bonne prise, morte ou clapissant encore dans le
-piège.
 Mais ces jours heureux s'envolaient rapidement. Et
 quel gros crève-cœur que d'abandonner cette vie de
 liberté au grand air pour revenir à Aniane et, derechef,
 
-LA MÉDAILLE
 réintégrer l'école maussade, retrouver le regard sévère
 et glacial du maître, le visage méfiant et anxieux de
 mes condisciples ! }
-IN
 
 Cependant, après environ un an de ce régime, on en
 eut assez. Aux craintes veules, à la soumission lâche et
@@ -1178,7 +967,6 @@ obstinés à n'user que du patois, fut condamné à rester
 près d'un mois à l'école, de huit heures du matin à sept
 heures du soir, sans récréations, n'ayant pour déjeuner,
 
-Antonin Lavergne
 à midi, qu'un morceau de pain et quelques amandes
 et, de plus, obligé de griffonner je ne sais combien de
 fois par jour la conjugaison de ce verbe incommensurable : Je m'entéte à parler charabia et à jeter la
@@ -1219,9 +1007,6 @@ une journée M. Lassalle distribua punition sur punition.
 Holocauste et martyrologe! Pas un jour d'octobre,
 sans des légions de punis; plus de récréations, plus de
 
-à
-
-LA MÉDAILLE k
 sorties normales : du matin au soir, chacun avait tant
 de pensums sur la planche qu'on noircissait des montagnes de cahiers. Voilà ce que nous avaient rapporté
 nos distractions des vacances. Ah ! misère !
@@ -1252,7 +1037,6 @@ les boutiques de marchands de bric-à-brac. De rage, on
 s'obstina à jeter les médailles sur les toits, au fond des
 égouts, dans les gouffres de l'Hérault ; et le lendemain,
 
-Antonin Lavergne |
 |
 malgré les verbes: étre négligent, tromper la confiance |
 de son maître, que nous récoltions, nous soutenions mordicus que nous les avions égarées en jouant. Mais va- |
@@ -1288,11 +1072,6 @@ ne lui disaient rien qui vaille. Il branlait la tête, craignant qu'il n'y eût 
 tous les tyrans qui croient avoir par la force imposé
 l'obéissance aux lois répressives et injustes et qui, dans
 
-3%
-
-; . LS æ 3
-LA MÉDAILLE
-
 leur sécurité trompeuse, n'entendent plus bouillonner Jes
 colères populaires sous l'apparente tranquillité de la
 surface, il s'endormit peu à peu sur l'oreiller de la confiance. Pourquoi, en effet, n'aurait-il pas purgé nos
@@ -1323,9 +1102,6 @@ de nos saluts par de bonnes paroles. On se rendit posé-
 ment au Roc et de là, en bande tumultueuse, en poussant des cris de joie, on s'engagea dans le chemin dela
 Brèche. Comme à l'assaut, on grimpa la pente abrupte
 
-: /
-
-Antonin Lavergne
 du Bosquet qu'on traversa de part en part et bientôt
 tous « les grands », après avoir descendu une large
 allée, se trouvèrent réunis dans une prairie, en contrebas, qu'entourent des massifs d'arbres élevés. Là, au
@@ -1336,35 +1112,13 @@ De ce jour, la confiance, la cordialité et l'entrain reparurent dans nos rappor
 belle, entre soi, on parla avec délice cette chère langue
 d'oc proscrite, car on n'aime que davantage les êtres et
 les choses pour lesquels on a souffert.
-ANTONIN LAVERGNE -
-
-LA LETTRE DE CONVOCATION
 
 EPP OURS ee Li D AR MEET T0 PRET EN NT EE EAN TEEN A Tong je
-- « F : ;
-À Ë : TEA É
-' NS à
-: = Fe TR
-ï = TEE Det + SR ESS
 | 2 DE ?
-4 L j : 18700
-: 2 dE x
-Ed 2 "EE
-« Ÿ à À 34 4 Ie D
-3 TES Es
-- É r . VA ne?
-d { Ê b US: "4 « LI
-' F es A : Lt
-+ Met sh È :
-: : APE GER cr. Fa 1
 # * 0 +48 ; +
-a bar à sé é LH
 LUS : PER ne RAT LS Tue HE
 po ve 2 SR NE SUR TER ES
-FES ; F 2 AE TA Pi Rs
 De s AM STAR dl HT
-
-LA, LETTRE DE CONVOCATION
 
 Ce mercredi-là, comme à l'accoutumée d'ailleurs,
 M. Bastoul, l'instituteur de Sallèles, ouvrit sa porte
@@ -1374,14 +1128,12 @@ veston, puis, après avoir humé une prise, il s'ébroua
 fortement. Enfin, à pas lents, d'une allure musarde,
 
 il pénétra dans le jardinet attenant à la maison
-d'école.
 
 Le village semble dormir ; pas un bruit humain. Cependant, au fond des cours, les poules caquettent déjà
 et des coqs claironnent la diane, à plein gosier. Bientôt,
 des écuries closes s'élèvent les hennissements saccadés
 des chevaux et des mules qui, voyant, à ces premières
 lueurs diffuses, la mangeoire vide, réclament la provende matinale et frappent du sabot le sol de terre
-battue.
 
 Une aube de mai nacre le bord oriental du ciel où,
 seule, palpite encore, d'un éclat vif mais de plus en plus
@@ -1391,11 +1143,7 @@ rougeâtre du terrain ferrugineux, teinte qui, sans doute,
 a valu, à tout le haut pays environnant, son nom significatif : las Rufas. À voir les collines voisines, les gué-
 rets, toute la campagne couleur de pourpre s'illuminer
 
-î
-
 |
-ï |
-Antonin Lavergne
 maintenant, on dirait d'un champ de bataille dont la
 terre est détrempée et rougie par le sang, mais dont on
 a enlevé les morts et les blessés pendant la nuit.
@@ -1405,7 +1153,6 @@ s'épandent. Dans les chênes-verts du mont au flanc
 duquel est collé Sallèles, parmi les buissons et les bouquets d'arbres du ruisseau qui coule, en-dessous, dans
 un val, rouge aussi, vibrent les cris, battent les ailes du
 père et de la mère voletant près de chaque nid où des
-oisillons goulus tendent leurs becs largement ouverts
 par la faim du réveil.
 
 De son jardin, M. Bastoul pouvait apercevoir, là-bas,
@@ -1424,8 +1171,6 @@ propriétaires de la commune ; il vivait à Sallèles tranquille et très estim�
 tendre la main à ses patoches.
 
 En ce moment, il n'avait d'yeux, il n'avait de pensée
-
-LA LETTRE DE CONVOCATION
 
 que pour ses fleurs aux corolles éclatantes et variées,
 que pour ses arbustes mouillés d'aiguail. Très fier de
@@ -1455,11 +1200,9 @@ Cependant la matinée devenait radieuse. Déjà, les
 laboureurs étaient partis un à un du village et l'on entendait, par les chemins caiïllouteux, s'éloigner leurs
 cris gutturaux et le grincement strident des roues de
 
-Antonin Lavergne.
 fer dans l'essieu desquelles s'emboîte le soc long et
 aigu des araires. Le soleil était haut dans le ciel très
 bleu et commençait à chauffer. L'heure de la classe
-allait sonner.
 
 Avant de rentrer, M. Bastoul voulut jeter un coup
 d'œil sur son rucher, situé au fond du jardin, derrière
@@ -1472,8 +1215,6 @@ Loin de s'effaroucher à l'approche de l'instituteur, elles
 voletèrent autour de lui et d'aucunes se posèrent, presque caressantes et reconnaissantes, sur l'ami qui prenait d'elles tant de soin. Et lui, doucement, leur chantait ce mot qui charme, dit-on, les abeilles, sensibles
 comme les femmes à toute louange : |
 
-— Bélas! bélas! bélas!.… (Belles ! belles ! belles !...)
-
 Après quoi, M. Bastoul remonta lentement vers la
 eour de l'école, où piaillaient des voix aiguës d'enfanis.
 Inconsciemment, il subissait le charme paisible de ces
@@ -1484,8 +1225,6 @@ toute une grande journée de congé ! — une bonne promenade à travers les com
 
 M. Bastoul avait encore bon pied et bon œil. Les i
 
-*
-LA LETTRE DE CONVOCATION
 fatigues de sa profession ne l'avaient point du tout
 vieilli. Ses élèves étaient peu nombreux; d'ailleurs sa
 vie s'était écoulée à l'air vif et balsamique des Rufes,
@@ -1496,16 +1235,11 @@ robustesse à toute épreuve et n'avait jamais eu de bien
 grands soucis. Aussi, sur sa face large et rose, dans |
 ses yeux clairs et bruns, se lisait une satisfaction complète, la paix que donnent aux humbles la santé de
 l'âme et la santé du corps.
-ë x
-ÆICE
-
-— M'sieu! m'sieu!
 
 M. Bastoul cessa d'éplucher les brindilles sèches
 d'un superbe rosier, tout fleuri de la chair blonde de
 ses roses-thé. Il se retourna. Vers lui accourait un de
 ses élèves, brandissant un pli blanchâtre, sans doute
-quelque prospectus.
 
 Il interrogea l'enfant :
 
@@ -1525,9 +1259,6 @@ vingt! Je me suis oublié... Comme le temps passe
 vite! Zou! va dire à tes camarades de rentrer en
 classe et de commencer la page d'écriture dont le mo-
 
-L
-
-Antonin Lavergne
 dèle est au tableau noir... Et surtout pas de bruit, #
 surveilleras. Le temps d'avaler mon bol de lait et je
 suis à vous.
@@ -1548,7 +1279,6 @@ en croix. M. Bastoul jeta les yeux sur l'adresse et brusquement il murmura, en p
 
 — Fichtre ! ça vient de l'inspection académique. Et
 très urgent !.… Mon Dieu! qu'est-ce que cela peut bien
-Étrepre
 
 Il n'ose déchirer les bandes, pris de peur et tremblant
 comme, autour de lui, les feuilles à la brise.
@@ -1559,18 +1289,13 @@ j Jamais, dans sa longue carrière, il n'a reçu aucun pli
 de l'inspection académique. Toutes les lettres administratives lui arrivent par l'inspecteur primaire de
 Lodève, son chef immédiat. Pour qu'on lui écrive ainsi
 directement, il s'agit donc de quelque chose de bien
-grave ?
 
-Plein d'appréhension, M. Bastoul reste planté au
 beau mitan de son jardin si tranquille, si frais, si
 embaumé. Il tourne etretourne le malencontreux papier.
 Sur un coin de la bande grise, qu'il ne peut se décider
 à briser, flamboient ces mots : l'Inspecteur d' Académie,
 puis, au-dessous, une signature illisible.
 
-4%
-
-4 LA LETTRE DE CONVOCATION
 1 Finalement, d'une main nerveuse, il rompt la bande,
 déplie le papier et lit, de plus en plus ému:
 Monsieur l'Instituteur,
@@ -1579,8 +1304,6 @@ Vous étes prié de vous rendre jeudi matin, de neuf à
 onze heures, dans le cabinet de M. l'Inspecteur d'Académie, pour une communication très urgente.
 
 Et, au-dessous de la même signature illisible, flanquée d'un timbre à l'encre bleue, cette adresse :
-
-A M. Bastoul, instituteur à Sallèles.
 
 C'est tout. Pas d'erreur. C'est bien lui que l'on convoque pour le lendemain. Et cette interrogation se pose
 soudain : que lui veut-on ? qu'a done à lui communiquer
@@ -1603,10 +1326,6 @@ d'autre indication. La foudre tombant à son côté lui
 — Que me veut-on?.… Que se passe-t-il ?..
 
 En vain les abeilles, ses abeilles tant aimées vont et
-45 ur.
-k
-
-Antonin Lavergne
 
 viennent sur les rosiers, bourdonnent joyeusement, puis
 filent en sifflant, telles de petites balles d'or, dans un |
@@ -1639,16 +1358,13 @@ ses élèves, chevauchant les bancs et les tables, riaient,
 chantaient, tapageaient à qui mieux mieux dans la
 classe, dont les fenêtres s'ouvrent sur la rue à l'opposé
 
-4 LA LETTRE DE CONVOCATION
 | du jardin où le maître se tourmentait en lancinantes
-interrogations.
 
 — Hé! dis, Arsène, que fiches-tu là droit comme un ê
 piquet ?.… Tu contemples les nuages ? Ce n'est guère le
 moment... Allons, nigaudas, laisse tes fleurs et viens
 boire ton lait. Oh! Jésus! écoute-moi ces enfants,
 en font-ils du bacchanal! Que de bonnes calottes
-perdues ! À
 
 A la voix de sa femme, l'instituteur tressaille comme
 au sortir d'un mauvais rêve et passe la main sur son
@@ -1662,7 +1378,6 @@ Elle s'approche, impatientée :
 — Hé! Arsène ! — crie-t-elle, — es-tu sourd ?.…
 Espèce de Jean-de-la-Lune, tu couches toujours avec
 tes herbes !.. Dépêche et viens-t'en boire ton lait... il |
-va être neuf heures.
 
 Elle secoue maintenant son mari par le bras:
 
@@ -1671,19 +1386,15 @@ diables d'enfants! Qu'est-ce que ce papier que tu
 regardes d'un air éberlué ?..
 
 | — C'est l'inspecteur d'académie qui me mande d'aller
-dès demain à Montpellier.
 
 — Mais il est à Lodève, ton inspecteur !.…
 
 — Pas l'inspecteur primaire, je te dis : M. l'inspecteur
-d'académie !
 
 — Ah! est-ce que je m'y connais, à tous ces gens !.…
 Et alors, qu'est-ce qu'il te veut, celui-là 2...
 
 c — Ma foi ! je l'ignore, et c'est ce qui me tracasse.
-
-Antonin Lavergne
 
 — Est-il permis, Jésus! de déranger les gens sans
 leur dire pourquoi! Un joli merle que cet inspecteur !
@@ -1697,7 +1408,6 @@ porter préjudice. c'est peut-être pour me changer.
 — Quitter Sallèles!.… Ah! ça, non, jamais! — se |
 récria la petite madame Bastoul, levant les bras et s'ef- |
 frayant, à son tour, devant la mine abattue de son
-mari.
 
 Fébrilement, elle l'interroge sur cet inspecteur qui,
 d'un mot, peut les arracher au pays natal etles envoyer
@@ -1716,8 +1426,6 @@ Toute la journée se passa pour M. Bastoul en des
 transes jusqu'alors inconnues. Lui, d'ordinaire si rassis
 d'esprit, cherchait. Il en avait mal à la tête. Son imagination, s'éveillant soudain, après le long sommeil de
 
-LA LETTRE DE CONVOCATION
-
 tant de paisibles années, s'agitait sous le crâne, comme
 une bête captive, et cognait dur aux parois. Comme il
 se tourmentait le pauvre homme ! Ce qu'il échafaudait
@@ -1726,7 +1434,6 @@ Est-ce que sa tranquillité allait être en jeu? Serait-il
 déplacé et, par suite, acculé à demander sa retraite
 proportionnelle? — car sa femme ne consentirait jamais
 à quitter Sallèles ! — mais encore il fallait une cause...
-Laquelle ?.…
 
 L'inspecteur primaire, venu un mois auparavant, se
 serait-il plaint de lui? C'était un jeune, un débutant,
@@ -1745,14 +1452,12 @@ ou telle des idées ou des méthodes de « ces éminents
 pédagogues ». Puis il avait critiqué certaines leçons du
 vieil instituteur, donné un tas de conseils sur l'enseignement de la morale, des sciences, etc... — toutes
 choses dont on ne s'occupait guère autrefois, car on se
-contentait simplement d'apprendre aux enfants à lire,
 à écrire et à calculer.
 
 M. Bastoul, abasourdi, n'y avait vu goutte, fort
 penaud d'entendre ainsi critiquer ce qu'il faisait depuis
 vingt ans et plus, sensible surtout au reproche de ne
 
-Antonin Lavergne
 pas suivre et respecter « l'emploi du temps » collé sur
 un carton, où étaient piqués des insectes.
 
@@ -1769,7 +1474,6 @@ de bonnes paroles, un : « Au revoir, à l'an prochain, »
 très cordial et une franche poignée de main, après qu'il
 l'eut accompagné respectueusement sur la route, branlant sa vieille tête grise, d'un air convaincu, aux conseils verbeux de son nouveau chef. Non, réflexion faite
 et tout examiné, ce n'était pas de ce côté qu'il y avait à
-craindre.
 
 Mais alors, quoi? Et, de supposition en supposition, ses craintes augmentaient. Et dire qu'il se promettait une si bonne journée à travers bois et combes,
 pour le lendemain !.…
@@ -1784,8 +1488,6 @@ réflexions avec sa femme qui, à l'entendre, « se mangeait les sangs », elle 
 serait-ce pas ce becque-cornu de Froucandou qui me
 jouerait un tour et aurait écrit à Montpellier ?.. Il est
 si sournois et si rancunier qu'il en est capable !.…
-
-LA LETTRE DE CONVOCATION
 
 « Froucandou », ou « Froucand », n'était autre que le
 maire, M. Fulcrand Servel, un jeune propriétaire,
@@ -1833,17 +1535,13 @@ coup ses yeux dans les yeux du maire et lui dit :
 
 — Moi aussi, monsieur Bastoul... En tout cas, je vous
 
-Antonin Lavergne
 donnerai une commission pour un marchand de |
-meubles.
 
 Cela est dit sans aucun embarras. La conversation se
 poursuivant, l'instituteur s'aperçoit que Froucandou ne
 sait pas très bien ce qu'est l'inspecteur d'académie : —
 comme madame Bastoul, il le confond presque avec
 l'inspecteur primaire.
-
-++
 
 Ainsi, de ce côté encore, buisson creux! M. Bastoul
 était au martyre. Lui, si débonnaire, il fut d'une humeur
@@ -1859,7 +1557,6 @@ enfants s'interrogeaient du regard comme pour se dire :
 « Tiens, quelle mouche l'a donc piqué, notre maître ?..
 On ne le reconnaît plus... »
 
-— Ah! j'y suis! — murmura soudain M. Bastoul ; —
 quelque lettre anonyme... Il y a des gens qui ont tant
 de vilenie et de boue dans l'âme, qu'ils se plaisent à
 faire du mal en se cachant, pour leur plaisir... Oui, un
@@ -1867,9 +1564,6 @@ sale oiseau de ce genre, un de ces êtres plus visqueux
 qu'un crapaud, aura essayé de me nuire...
 
 Aussitôt, sachant, en effet, que des lettres anonymes
-
-À
-LA LETTRE DE CONVOCATION
 
 sont souvent envoyées aux chefs, qui ne jettent pas toujours au panier ces lâches dénonciations, il se demande
 s'il n'a pas autour de lui des antipathies sourdes, des
@@ -1905,7 +1599,6 @@ l'hiver, en revanche, alors qu'il se sent le cœur à la
 besogne, il ne regarde jamais la pendule et consacre à
 ses élèves, parfois, une heure de plus par jour... Ça fait
 
-Antonin Lavergne
 la balance, au bout de l'an. Soit ! mais il outrepasse ses
 droits, il est en faute. |
 
@@ -1940,8 +1633,6 @@ sera plaint, sans rien dire, histoire de se venger ?
 Et puis, et puis, tant d'autres peccadilles, fort excusables sans doute, mais répréhensibles, oui, très
 répréhensibles ! constate avec peine M. Bastoul.
 
-LA LETTRE DE CONVOCATION |
-
 Hélas ! avec l'âge, durant les après-midi suffocants
 de juin et de juillet, que de fois il lui arrive, pendant
 sa digestion, d'avoir des somnolences et d'y aller
@@ -1952,7 +1643,6 @@ sur les nouvelles à sensation ! — son journal en classe,
 travaille — rarement, dans les moments de presse —
 aux choses de la mairie dont il est secrétaire, néglige
 certaines parties du programme, entre autres la gymnastique, — parce que Ça l'ennuie et que ses élèves
-font assez d'exercice, témoin leurs grosses joues rouges
 et leurs membres vigoureux de montagnards, — et la
 musique, parce qu'il ne l'aime pas et qu'il n'a jamais
 eu la voix ni l'oreille justes, etc.
@@ -1973,9 +1663,6 @@ instituteur qui en prenait par trop à son aise.
 M. Bastoul se sentit très malheureux. Que dirait-il ?
 Quelles charges accablantes contre lui et quelle honte!
 Ses yeux s'humectèrent. Oui, il était coupable, très
-coupable.
-
-Antonin Lavergne
 
 Eh bien! ce serait tant pis pour lui! Parce que tout
 le village avait passé sous sa férule, appris à lire, à
@@ -1992,7 +1679,6 @@ mots, mais enclins à ruminer un tas de mauvaisetés et
 un Judas parmi les douze apôtres du Christ, il y avait,
 parmi ses anciens élèves, un envieux, un sacripant, un
 traître se cachant dans l'ombre pour mieux frapper en
-plein cœur.
 
 C'est pourquoi, le soir, après le baisser du soleil, —
 une soirée délicieuse pourtant, et fine, et transparente,
@@ -2008,7 +1694,6 @@ Il en fut de même tout le long de la nuit. L'idée que,
 dans quelques heures, il comparaïîtrait devant l'inspecteur d'académie, juge souverain et implacable, qu'à ;
 
 |: 0e ri
-LA LETTRE DE CONVOCATION
 
 son âge il allait recevoir une réprimande, être tancé
 vertement, « savonné » dur, enfiévrait le pauvre
@@ -2021,7 +1706,6 @@ tonnerre et frapper sans pitié.
 M. Bastoul se tournait et se retournait si bien dans
 son lit que sa femme agacée, car elle avait pris, elle,
 son parti de la chose, se mit à le rabrouer de belle
-facon.
 
 — Ah ça ! tu m'ennuies, — lui fit-elle. — Il ne te
 mangera pas tout cru, à la fin des fins, ton inspecteur.
@@ -2043,13 +1727,8 @@ les voit une fois ou deux par an aux conférences pédagogiques qui se tiennent 
 sont des jeunes, des débutants presque; et ils lui ressemblent si peu! Et Sallèles, d'ailleurs, n'est pas un
 poste à leur faire envie !
 
-Antonin Lavergne s
-
 Alors quoi ?.. alors qui? Et son esprit ne se calme
 point : une vraie tempête sous un crâne si paisible
-jusqu'ici.
-
-SU
 
 A trois heures, tandis qu'à l'horizon s'étend une
 frange d'opale, M. Bastoul est debout. Il enfile son
@@ -2078,9 +1757,6 @@ moulin au bord de la Lergue. Plus d'une demi-heure à
 attendre. Sans entrain, M. Bastoul cause un instant
 avec le garde-barrière. Puis, comme il est seul, il
 époussète avec son mouchoir ses souliers et son chapeau, essuie le bas de son pantalon et sa lévite qu'il a
-ôtée.
-
-É LA LETTRE DE CONVOCATION
 
 Le sol trépide, le train sifile, s'arrête une minute et
 repart. Dans le wagon, où il se rencogne sans rien dire
@@ -2109,12 +1785,8 @@ sur lui des yeux durs, lui fera de vifs reproches et lui
 imposera peut-être un déplacement.
 
 Neuf heures... neuf heures et demie... Il faut se
-décider.
 
 Le voilà dans le couloir qui sert d'antichambre. Des
-
-'
-Antonin Lavergne
 
 instituteurs, des professeurs sont là, qui causent, discutent et rient. L'inspecteur d'académie n'est pas arrivé.
 Très gêné, M. Bastoul se faufile dans un coin; les yeux
@@ -2154,7 +1826,6 @@ Soudain un commis paraît et dit :
 
 Le pauvre homme tressaille; il se dresse et, bé-
 
-LA LETTRE DE CONVOCATION
 ; gayant, les jambes flageolantes, il avance, sous les
 regards qui le dévisagent, aussi blème qu'un condamné
 marchant à l'échafaud.
@@ -2163,7 +1834,6 @@ marchant à l'échafaud.
 vous faire attendre.
 
 Mon Dieu !.… c'est donc bien grave, qu'on l'appelle le
-premier !
 
 Gauche, la vue brouillée, il se cogne aux chaises, il
 se cogne aux meubles et pénètre dans le cabinet qu'on
@@ -2173,7 +1843,6 @@ Mais, aussitôt, il voit l'inspecteur d'académie se lever
 en souriant, la voix accueillante, la main tendue. Tout
 
 en lui offrant un siège, l'inspecteur s'excuse de l'avoir
-dérangé.
 
 — Je vais, dit-il, publier une flore du département,
 et M. X..., professeur à l'École de pharmacie, que vous
@@ -2188,57 +1857,21 @@ pouvez me rendre, quand vous serez rentré à Sallèles,
 j'espère, mon cher monsieur Bastoul, que vous me ferez
 le plaisir de déjeuner avec moi...
 
-ANTONIN LAVERGNE
 | IV
 |
 | \
 
 TS Pan it des VB Le
 Qt ATX Ÿ sv US NE A TO
-RERAUE Ne We SLA CHE CAR ? RRSURE LRO MSN 2 A PP as CRT +
-ARE _ M un Sp
-5 AH RSR AR nl. | .
-4% * FETE Pie Ÿ Ÿ} En MAS ©
-É ” LR: L |
-:; V1 Dre LERCE
-3 j RU D |
-4 U Mur
-5 ; 4 2 Fe é -
-Al à È Na $ DRE 1 € En 11 1
-08 0008 PR AT FAN ON SON NTI FOUR
-“a ne PAT 1 TES
-1200 Ke MAT In AN EEE ES ns
-+
 
 Fini d'imprimer deux mille exemplaires de ce
 quatrième cahier le jeudi 20 novembre 1902
 à l''Imprimerie de Suresnes
-(E. PAYEN, administrateur)
 9, rue du Pont
 |
 
 Re … … es Re LUI IT ETES PAG ere d
-RTE RE TE PTT
-HS > k 1 FAT |
-ï É É LEURS
-ns e Firii à SEEN
-K MA. |
-Di: pere 13#7 AUOR
-È F > NhIRS ei 'Ée
-+ } 12 D doi A
-x EE Je |
-EAN
-Ml à
-d ee COR PR à
-" ù À Vt Le ES * 44
-he E # : r 1e Se NS ait
-4 . MR F< P, L
-à | PURE 214 : 4870
-; û ? 4 DEV: D; À
 ni ' AFTER 5 p NN TRANS
-is! ñ : ESS RTE ATTVRES AN:
-fà t > À DA EST REEUE SEM A" à
-(20
 
 Un certain nombre de nos abonnés nous ont demandé
 comment ils pouvaient se procurer notre édition du
@@ -2258,41 +1891,19 @@ série — se vendent seize francs. Ces prix pourront
 augmenter à mesure que les collections deviendront
 plus rares. Ils ne peuvent en aucun cas diminuer.
 
-IV.
-
-PE M NT EN en RAIN RÉEL MIS DOTE AC MELLE AURA RET EME FENER
 en EN OP aber DE DNA NEC AE ratée Re an FAST AT } ;
-MORTE FRS STI PIRNE LR PORN ES ERNEST NT ENNNNI PERS TS ASE
-P: 2 STE K
-j S pe FI 1 Ÿ + à Las Pl ÿ
-2 1 t RATER Mt
-% i ; 4 DRE RAA RUERS |
-ñ L < x f À LS FA ax SFR |
-L'EST ER STRESS |
-4 Lx JG TETE EU \
 | HONRSRRAR Duo. |
-) EN Re à
-1 1 Ace . AY 3 "CONS URES
 L a ne Jr xt ec | 2 a: Û
-s 4 7 L PU : Te y a ja # v. RUULs
-
-me 1p Er se
-{ CAHIERS DE LA QUINZAINE
-SUBVENTIONNÉ
 
 Dans son numéro daté du dimanche 19 octobre 1902,
 la Raison, journal international hebdomadaire de philosophie, de sociologie, de littérature, publiait l'article
 suivant de M. Henry Bérenger : |
 
-L'ÉQUIVOQUE
-
 Je viens de lire avec un réel intérêt, et je vous engage à
 lire le dernier numéro de Pages libres sur les décrets
-Combes.
 
 Pages libres est, on le sait, une publication hebdoma- Ê fi
 daire qui tire à 2.300 environ, et dont la plupart des rédacteurs sont d'anciens polytechniciens, d'anciens norma- :
-liens : Charles Guieysse, G. Sorel, D. Halévy, C. Bouglé, |
 Maurice Kahn, André Bourgeois, L. Brunschwig, ete. Ces
 « intellectuels » prétendent penser et écrire, librement,
 pour les « manuels ». Ils mettent à cet apostolat une
@@ -2342,17 +1953,12 @@ Au nom de ces principes, Charles Guieysse a condamné
 dans Pages libres, et à plusieurs reprises, l'action anticléricale du ministère Combes. Il fait cause commune avec
 Gabriel Monod, René Goblet, Bernard Lazare. Il a invoqué,
 en faveur des Congrégations menacées, le Droit et la
-Liberté.
 
 Cette attitude de Pages libres a profondément choqué
 nombre de ses abonnés et lecteurs. Ils n'ont pas compris
 qu'une revue anticléricale depuis sa fondation, fit cause
 commune, au moment du danger, avec ses pires ennemis.
 
-68 |
-
-À
-SUBVENTIONNÉ
 Certains même, et non des moins autorisés, ont appelé
 « désertion » et « trahison » ce qui était pourtant un acte
 de courage. Acte condamnable, je l'accorde, mais acte fier,
@@ -2365,7 +1971,6 @@ ferons grâce à nos lecteurs de redites sur ce sujet.
 
 Mais ce qui nous importe aujourd'hui, c'est de signaler
 aux lecteurs et abonnés de Pages libres, voire à ses rédacteurs, l'équivoque où s'engage et menace de s'empêtrer leur
-périodique. ,
 
 On ne fait pas de la politique à coups d'absolu. La politique n'est ni une philosophie, ni une science, ni un art.
 C'est mieux que cela : un acte de vie, une création perpé-
@@ -2394,11 +1999,9 @@ Ils crient : « Vive la Liberté », et tendent le col aux
 tyrans. Ils lèvent les bras vers les étoiles, et mettent leurs
 piéds dans le trou des puits. Ils résolvent la question reli-
 
-Fo. re 7 ç L -
 quatrième cahier de la quatrième série
 gieuse en un binôme et la question sociale en un syllogisme,
 mais leurs données sont incomplètes et leurs prémisses
-irréelles.
 
 Qu'on les nomme seulement instituteurs adjoints au fond
 de la Bretagne pendant dix-huit mois, ou inspecteurs du
@@ -2409,8 +2012,6 @@ D'ici là, fions-nous-en plutôt à ceux qui, sachant l'histoire
 de France, continuent la lutte de l'Etat laïque contre
 l'Église romaine. Ceux-là, du moins, ne feront pas de
 lAbsolu une équivoque mortelle au Relatif!
-
-Henry Bérenger
 
 Je m'en voudrais de commenter ce texte. Cet article
 amusera beaucoup ceux qui connaissent M. Bérenger.
@@ -2432,9 +2033,6 @@ Et dans ce paragraphe sincère il y a un mot terrible:
 c'est le mot subventionné. Tout est là. On nous demande
 parfois pourquoi nous sommes si résolument opposés
 
-F
-
-rÉ SUBVENTIONNÉ
 au monopole d'État dans l'organisation de l'enseignement. Je répondrai aussitôt que je le pourrai. Je traiterai du monopole. Mais, dès aujourd'hui, comment ne
 voit-on pas tous les dangers, toute la tyrannie de ce
 subventionné. Non, monsieur, le personnel enseignant
@@ -2455,7 +2053,6 @@ sil avait, dans l'État, tourné cette activité à des ambitions malsaines, il 
 - tion financière brillante, supérieure de beaucoup à la
 modestie où il vit; il serait un gros bourgeois, comme
 M. Henry Bérenger; il serait un gros seigneur de politique, de journalisme et de littérature, comme M. Henry
-Bérenger. |
 Subventionné! Ainsi quand un instituteur, quand un
 répétiteur, quand un modeste professeur a trimé tout le
 mois et qu'il se présente au guichet du percepteur ou
@@ -2465,7 +2062,6 @@ Le traitement défectueux qu'il reçoit pour le travail à
 
 quatrième cahier de la quatrième série
 qu'il a fourni dans le mois, ce traitement serait une
-subvention !
 
 Si les socialistes nationalement et régionalement ôrganisés n'étaient pas aveuglés par l'abus de la politique |
 parlementaire, jamais ils ne laisseraient passer de
@@ -2490,16 +2086,12 @@ avait ce parti si bizarrement nommé parti radical |
 socialiste; ils verraient qu'il n'y a peut-être pas un
 homme en France à qui les sentiments d'un véritable
 socialisme soient aussi inconnus qu'à M. Henry Bé-
-renger.
 
 Subventionné. Tout peut passer par là. Toute servitude passera par là si les hommes libres n'y prennent
 garde. Si M. Bouglé est un rémunéré, il est un homme
 libre, il travaille librement, il enseigne librement; ül
 apporte aux élèves les résultats sincères de ses
 
-LP
-
-SUBVENTIONNÉ
 recherches libres. Si M. Bouglé est un subventionné,
 il n'est plus libre; je te subventionne, il faut que tu
 enseignes ce que je veux. Le jour où M. Bérenger sera
@@ -2521,7 +2113,6 @@ c'est parce qu'il travaille beaucoup. Les gros fonctionpaires sont grassement pa
 de rares exceptions, ils ne font rien. Leur traitement
 n'est si considérable que parce qu'il n'est pas une
 rémunération, mais en effet une subvention affectée aux
-faveurs d'autorité.
 
 Ce mot subventionné, échappé à M. Bérenger, constitue un aveu caractéristique. Nous y reviendrons.
 
@@ -2531,8 +2122,6 @@ un mot dans cet article qui ne soulèverait des pages
 de rectification. Je ne me laisserai pas détourner de
 mon travail par ces futilités. Quand nous étudierons
 les questions si difficiles de l'enseignement, nous essaierons de discuter avec des adversaires, avec des collaborateurs sérieux.
-
-:
 
 quatrième cahier de la quatrième série
 
@@ -2551,13 +2140,6 @@ un titre un peu différent : Quatre jours à Montceau.
 
 Les autres informations de M. Henry Bérenger valent
 celle-ci. Ainsi travaillent ces grands hommes.
-
-NL SOIR TE LT LA act r Li 1! Ÿ [4 >
-
-F
-
-; <
-« LE MOUVEMENT SOCIALISTE »
 
 Dans le Mouvement Socialiste, revue bi-mensuelle
 internationale, 10, rue Monsieur-le-Prince, Paris Ë
@@ -2585,7 +2167,6 @@ France à se jeter ainsi dans l'anticléricalisme vulgaire ? » Ê
 
 { Et, peu à peu, en étudiant avec plus d'attention l'attitude
 
-LE ‘À Sent 0 a
 guatrième cahier de la quatrième série |
 qu'a toujours observée la social-démocratie allemande dans
 la lutte contre l'Église et contre l'esprit religieux, il me
@@ -2614,23 +2195,17 @@ sur les rapports de l'Anticléricalisme et du Socialisme, des
 sentiments raisonnés des représentants essentiels de toutes
 les tendances. Tous auront été interrogés, et s'il en est
 dont nous ne publions point de réponse, c'est que nous
-n'en aurons point reçue. ë
 
 Nous voulons espérer que cette enquête contribuera à
 jeter un jour plus vif sur une question redoutable, qu'on
 résout trop volontiers par des affirmations d'une tranchante et brutale simplicité.
-
-André Morizet
 
 Les véritables amis du Mouvement Socialiste seraient
 heureux que cette revue revint ainsi à son ancienne
 forme, qu'au lieu de nous donner une politique elle
 recommençât à nous apporter du travail et des renseignements. P
 
-76 J
-
 | 4 ke MES
-D: 3 {LE MOUVEMENT SOCIALISTE }
 Dans ce premier numéro de l'enquête, le Mouvement
 publie les réponses de MM.
 Émile Vandervelde, membre de la Chambre des
@@ -2638,10 +2213,8 @@ Représentants de Belgique ;
 Édouard Vaillant, député de Paris ;
 Jules Destrée, membre de la Chambre des Représentants de Belgique ;
 G. von Vollmar, membre du Reïichstag d'Allemagne ;
-Enrico Ferri, député au Parlement italien.
 La réponse de Vollmar est suivie des observations
 qu'il a présentées au Congrès de Munich, d'après le
-compte rendu officiel. 3
 Cette publication continuera dans les prochains nu-
 | méros du Mouvement.
 Dans ce même numéro 107, à noter un compte rendu
@@ -2656,10 +2229,7 @@ lon puisse utilement ni valablement remplacer une
 politique par une politique. De toutes les politiques, la
 | meilleure ne vaut rien.
 
-- RER D
 ,
-UNE ( RECTIFICATION } » DE |
-M. ÉMILE TERQUEM
 Je voulais épargner à Lavergne le voisinage de ces
 polémiques ingrates; je voulais compléter ce cakïer en
 publiant le courrier supplémentaire d'Indo-Chine que
@@ -2671,7 +2241,6 @@ inutile ; à quelques exceptions près, nos abonnés savent
 lire ; nous n'avons pas coutume ici de souligner tous les
 mots de nos textes; nous écrivons le plus attentivement que nous pouvons; nos abonnés nous lisent le
 plus attentivement qu'ils peuvent.
-Versailles, 31 août 1902
 Mon cher Péguy,
 Je viens de lire dans votre dernier cahier, l'article que
 vous avez consacré aux « Journaux pour tous » et j'en ai
@@ -2680,12 +2249,9 @@ manière de voir dans le différend des « journaux » et de
 Boivin est secondaire. Mais ce que je regrette c'est que
 vous vous soyez laissé emporter par la passion jusqu'à
 l'injure, à propos d'une affaire d'ordre presque purement
-privée.
 Ce que je vous reproche c'est d'avoir abandonné, dans un :
-k 8
 
 Fr à De jet ot cie [ETS fu MENT A He " « f R.
-L' M. ÉMILE TERQUEM |
 débat qui vous touche de fort près par vos affections, cette k
 méthode seientifique des exposés impartiaux et documen- l
 taires qui est la force et la raison d'être de votre œuvre,
@@ -2728,13 +2294,11 @@ hommes vous appartiennent. Mais cela ne saurait être le
 cas des administrateurs des Journaux pour tous.
 
 | Votre virulente attaque contre ces derniers, venant à
-j 29
 
 quatrième cahier de la quatrième série
 propos de la naissance de l'œuvre du Livre pour tous, je
 crois qu'il est nécessaire, pour éviter tout malentendu, que
 je vous demande la permission d'exprimer, par la voie des
-Cahiers, à quels sentiments j'ai personnellement obéi en
 participant activement-à la genêse même de l'idée de
 l'œuvre nouvelle.
 
@@ -2765,7 +2329,6 @@ mais encore personnellement j'entends conserver mon
 amitié à des frères ennemis, dont, pour moi, les seuls torts.
 aient été d'avoir apporté au début du débat, des points de
 vue peut-être trop subjectifs et certaines tendances de
-caractères inconciliables.
 
 Si vous m'en croyez, mon cher Péguy, vous laisserez là
 cette histoire de griefs personnels qui n'a rien à faire non
@@ -2774,8 +2337,6 @@ conjure, au nom de l'attachement que j'aitoujours témoigné
 pour vous et pour les Cahiers, abandonnez le terrain des
 procès de personnes.
 
-de 4 4 1 gs 2 *
-M. ÉMILE TERQUEM à
 ; Entre gens épris d'œuvres positives, sachons nous tolérer ;
 tels que nous sommes, c'est-à-dire comme des êtres si complexes que nous n'avons pas le droit de caresser la chimère
 ; d'avoir jamais des amis qui réagiront comme nous, sous le
@@ -2784,11 +2345,8 @@ intellectuelle et sociale.
 Je désire vivement que vous insériez cette lettre, que je
 erois nécessaire, dans votre prochain Cahier. Je vous
 connais assez pour être sûr que vous le ferez de grand
-cœur.
 4 A vous. se
-Emile Terquem
 Il va de soi que je n'accepte pas une syllabe de cette
-rectification.
 M. Terquem est le seul de nos 1.395 abonnés fermes
 qui n'ait pas su lire le commentaire que j'ai ajouté à la
 circulaire que nous avons publiée du Livre pour tous
@@ -2797,7 +2355,6 @@ M. Terquem est le seul de nos abonnés qui ait pensé, e
 quand j'ai dit et publié d'un homme, sous ma signature, qu'il s'était conduit comme un escroc vulgaire, (1)
 que par ce mot je voulais dire que je ne suis pas du
 même avis que cet homme sur le sens des derniers
-votes parlementaires.
 Je ne puis recommencer indéfiniment les cahiers pour
 un abonné qui ne suit pas. Je ne puis qu'engager
 (1) M. Maillard prétend que j'ai nommé M. Colomb « vulgaire
@@ -2806,9 +2363,6 @@ escroc ». Or premièrement je n'ai pas nommé M. Colomb; je sais
 pas écrit vulgaire escroc, mais escroc vulgaire. M. Simiand, qui est
 un écrivain laborieux et un savant sociologue, devait faire la difré- "
 rence et me faire citer mon texte exactement.
-; 81 1 é
-V.
-à,
 
 quatrième cahier de la quatrième série
 M. Terquem à relire patiemment les cahiers précédemment publiés.
@@ -2837,13 +2391,9 @@ M. Terquem veut rester bien avec M. Colomb : libre
 à lui; mais je n'accepte pas que cet accommodement 1
 soit conclu sur mon dos; les cahiers sont trop misé- %
 rables pour payer les rançons, pour faire les frais de 4
-tels arrangements. #
 Quand je reçus la lettre de M. Terquem je lui promis, »
 |
 
-D”
-
-F M. ÉMILE TERQUEM “a
 sans la lire, que les cahiers la publieraient le plus tôt
 que nous pourrions; je croyais qu'il était mon ami; je ;
 croyais que sa lettre intéressait le débat; je l''acceptais
@@ -2908,15 +2458,12 @@ pour l'un et pour l'autre. i
 A peine le cahier était-il tombé que je reçus de
 M. Terquem une lettre de rupture d'une incroyable vio84
 
-M. ÉMILE TERQUEM
-
 lenee et d'une insolence que je ne supporterai pas. Je |
 ne suis pas un sous-oflicier d'artillerie qu'un lieutenant
 fait marcher à coups d'engueulades, à coups de pied
 dans le derrière. Et encore le coup de pied au derrière
 est-il interdit par les règlements de l'armée. Je suis
 trop misérable aussi pour endurer les insolences des
-riches.
 
 M. Terquem, collaborateur des cahiers, a voulu
 rompre insolemment. C'est fait. M. Terquem témoin me
@@ -2926,8 +2473,6 @@ publiquement aux questions suivantes. Je les classe,
 pour la bonne administration du débat, et je classe le
 questionnaire lui-même, afin de le distinguer parmi les
 nombreux questionnaires qu'il faut que je dresse. |
-
-QUESTIONNAIRE TERQUEM
 
 A. — M. Terquem connaît-il la question? S'il ne la
 connaît pas toute, qu'est-ce qu'il en connaît ?
@@ -2944,10 +2489,8 @@ E. — M. Terquem est-il entré comme membre dans
 l'ancien comité des Journaux pour tous?
 
 quatrième cahier de la quatrième série
-L
 
 F. — S'il y est entré, à quelle date, comment et
-pourquoi ? É |
 
 G. — De qui tenait-il ses pouvoirs? Qui l'avait élu ou }
 désigné? Faut-il nommé par l'initiateur, ou invité par 4
@@ -2982,20 +2525,13 @@ M.— M. Terquem connaissait-il le registre où étaient
 consignés les comptes rendus des séances et les délibé- j
 rations ? — J'offre de publier ces comptes rendus dans
 
-L
-
-11, Ur SON CRETSES
 | MOEE TA ; ; ;
-Ci ‘
-è M. ÉMILE TERQUEM
 les cahiers aux frais de M. Terquem. 1! peut ainsi laver
 la mémoire de M. Colomb.
 N. — Quand M. Terquem avait à travailler aux Journaux pour tous, à qui s'adressait-il; à Boivin ou à
-M. Colomb?
 O.— M. Terquem, qui faisait partie du comité, fut-il
 convoqué régulièrement aux dernières séances, qui pré-
 cédèrent la rupture, et que je nomme les séances de
-conspiration ?
 S P.— S'il ne fut pas convoqué, pourquoi?
 Q. — N'envoya-t-il pas alors au moins une lettre de
 protestation; en fut-il tenu compte; pourquoi ne protesta-t-il pas juridiquement, comme c'était son devoir?
@@ -3014,7 +2550,6 @@ s'est conduit honnétement dans cette affaire?
 U. — M. Terquem a-t-il ou n'a-t-il pas dit, presque
 aussitôt après la rupture, 8, rue de la Sorbonne, à
 madame Émile Boivin, qui était venue au bureau de
-87 ;
 
 quatrième cahier de la quatrième série
 Jean Pierre, et parlant de M. Émile Boivin : Nous en
@@ -3023,7 +2558,6 @@ méme, el que nous avons interprétée ainsi : Nous en
 ferons un gérant libre; cette phrase était-elle une vague |
 formule de politesse mondaine ou, au contraire, ainsi |
 que nous l'avons pensé, une promesse ferme, un eng'a- |
-gement moral ? |
 V.— Est-ce ou n'est-ce pas en conséquence de cette
 phrase, d'autres phrases, analogues, de toute son attitude, analogue, et de ses démarches même que M. Terquem fut appelé au contrôle administratif de l Œuvré
 du Livre pour tous ?
@@ -3045,7 +2579,6 @@ Y. — Pourtant Boivin et Bernard Lazare lui ont-ils
 ou ne lui ont-ils pas laissé la prérogative d'établir pour
 la nouvelle œuvre les premières listes de volumes; lui 4
 
-M. ÉMILE TERQUEM à
 ont-ils ou ne lui ont-ils pas laissé la prérogative et |
 n'a-t-il pas accepté la responsabilité d'établir le bulletin
 numéro 2, — bulletin qui fut contrefait presque aussitôt
@@ -3078,7 +2611,6 @@ intérêts de M. Colomb; ou au contraire considère-t-il
 cette œuvre comme une œuvre de travail où il travaille
 de bon cœur, où il est heureux de trouver les moyens
 
-PRET
 quatrième cahier de la quatrième série :
 d'utiliser au maximum une activité indéniable, et que À
 
@@ -3089,12 +2621,7 @@ l'on parle de services, M. Terquem pense-t-il que ce
 ; soient les hommes qui rendent service aux œuvres, ou
 au contraire les œuvres instituées qui rendent service à
 aux hommes, en leur permettant d'utiliser au mieux |
-leurs qualités ? |
 |
-:
-
-- Me:
-M. GEORGES COLOMB
 
 Je n'établis pas seulement des questionnaires ; j'apporte moi-même les premiers éléments de réponses.
 
@@ -3122,10 +2649,6 @@ mandant de corps d'armée. De fait le général est à
 côté, derrière, à cheval, barbiche blanche, il regarde la
 bataille, il a tout son état-major à cheval derrière lui.
 
-; 91
-
-‘4
-
 quatrième cahier de la quatrième série :
 
 Or dans aucune armée du monde, monsieur Lalauze, |
@@ -3139,7 +2662,6 @@ ses ordres ; il fait faire les reconnaissances par ses officiers de cavalerie ; 
 urgence, il peut faire faire une reconnaissance par un |
 officier d'ordonnance ou par un officier de son état- \
 major; il. peut envoyer tout le monde, excepté son
-porte-fanion.
 
 Et puis quelle idée d'aller en reconnaissance, — voir ê
 et ne pas être vu, — avec un appendice fabriqué pour
@@ -3160,10 +2682,6 @@ Mazé de la Roche, d'après un croquis d2 A. Bianchini ; i
 cette image est si évidemment étalée en belle place que ‘4
 ce journal-ci est un journal catholique ; du Lavedan; 3
 
-92 Ë
-
-LANTERNE ‘ d
-M. GEORGES COLOMB
 puis larticle signé de M. G. Colomb, à travers la
 science, le pendule de Foucault, sur l'expérience du Panthéon ; puisque M. Colomb fait du latin pour amuser le |
 | populo, comment ne sait-il pas que vulgum pecus est g
@@ -3194,7 +2712,6 @@ un amas des vulgarités les plus communes, les plus
 de la littérature.
 Comment se fait-il que M. Georges Colomb, nouveau
 
-: 27"
 quatrième cahier de la quatrième série 1
 président du nouveau Comité des nouveaux Journaux Ê
 pour tous, 17, rue Cujas, Paris, soit rédacteur habituel,
@@ -3215,7 +2732,6 @@ quente au Soleil du Dimanche.
 
 On me dit que M. Georges Colomb a collaboré, pour À
 cette année seulement, 1902, à neuf numéros du Soleil ;
-du Dimanche, les numéros 1, 3, 6, 10, 15, 21, 27, 37, 42, 4
 sans compter le numéro que je viens d'analyser, le Ë
 numéro 45 ; j'achèterai ces numéros, et nous les analyserons à leur tour ; pour les années précédentes je n'ai 1
 pas les moyens d'acheter la collection complète de la
@@ -3229,18 +2745,11 @@ le Soleil du Dimanche et le Soleil de tous les jours, 3
 < journal réactionnaire, catholique et royaliste, clérical; 4
 nous le saurons à mesure que nous poursuivrons cette à
 
-k:
-
-EP à
-
-x M. GEORGES COLOMB
-
 $ enquête ; mais déjà Le numéro que nous avons analysé
 se suffit à lui-même ; ce numéro est bêtement mais résolument réactionnaire, militariste, catholique et surtout
 clérical. Comment se fait-il que M. Georges Colomb,
 nouveau président du nouveau comité des nouveaux
 Journaux pour tous tienne, dans ce numéro, une
-rubrique importante ?
 
 Je demande qu'il n'y ait pas de malentendu sur ma
 
@@ -3250,7 +2759,6 @@ botanique en Sorbonne, soit rédacteur habituel, régulier, attitré au Soleil d
 pas. En droit public je crois que M. Georges Colomb,
 sous-directeur du laboratoire de botanique en Sorbonne, a parfaitement le droit de publier sous son nom
 dans le Soleil du Dimanche, comme je croyais que
-M. Gustave Hervé, professeur agrégé d'histoire au lycée
 
 _ de Sens, avait parfaitement le droit de publier, sous un
 pseudonyme et même sous son nom, dans le Pioupiou
@@ -3263,7 +2771,6 @@ rubrique dans le Soleil du Dimanche, comme je croyais
 que M. Gustave Hervé avait parfaitement le droit,
 parce qu'il était sincèrement républicain, antimilitariste, socialiste et révolutionnaire, d'apporter au Pioupiou de l'Yonne et au Travailleur Socialiste une abon-
 
-à dante collaboration.
 Mais si M. Georges Colomb est sincèrement réactionnaire, militariste, catholique et surtout clérical, s'il
 
 quatrième cahier de la quatrième série ”
@@ -3318,15 +2825,10 @@ qui sera la conclusion de ce premier entretien.
 Par le statut si large de cetteinstitution, une quantité
 innombrable de journalistes passaient, républicains K
 modérés, même républicains conservateurs, tradi- l
-tionnalistes, républicains opportunistes, républicains
 
 | AE
 
-ke M. GEORGES COLOMB
-
 ; radicaux, républicains de gouvernement, républicains
-radicaux socialistes, socialistes radicaux, socialistes
-révolutionnaires, communistes, collectivistes, anar-
 
 | chistes, républicains hors classe et hors parti, tout le
 monde passait, tout le monde excepté M. Colomb. Par
@@ -3342,7 +2844,6 @@ Je demande s'il est juste, je demande s'il est sage et
 raisonnable, si même il est prudent que ce soit précisé-
 ment un rédacteur au Soleil du Dimanche qui soit
 devenu le maître fantaisiste, despotique, et douteux, des
-Journaux républicains.
 
 J'ai vu cet homme, ce journaliste réactionnaire, en
 trois mois désorganiser une institution républicaine qui
@@ -3355,9 +2856,6 @@ pitreries faites sur des matières scientifiques. Or j'affirme ici que rien n'es
 l'esprit scientifique, au progrès de la science, à la distribution de la science dans le peuple, que les pitreries
 dansées autour de la science. Aujourd'hui je ne puis
 entrer dans ce débat important. Nous y reviendrons
-
-k 97
-FR VI
 
 quatrième cahier de la quatrième série
 aussitôt que nous le pourrons. Je ne veux pas comparer
@@ -3390,11 +2888,6 @@ la vertu est toujours beaucoup plus amusante que le |
 vice. Ce n'est pas parce qu'elle est amusante que la vertu ;
 estrecommandée. Ce n'est pas parce que l'enseignement
 est amusant que nous devons nous cultiver. L'ensei98
-à
-
-sr HAT
-
-à M. GEORGES COLOMB
 
 | gnement et l''amusement ne sont pas ennemis; mais ils
 ne sont pas du même ordre. Ils peuvent coïncider; ils
@@ -3403,7 +2896,6 @@ l''amusement ne commande pas l'enseignement. Si l'on
 parle de présenter aux élèves les résultats'sérieux d'un
 travail honnête, on court la chance que ce travail et
 que ces résultats, par surcroît, paraissent et deviennent
-amusants, intéressants, passionnants. Si au contraire
 on parle d'amusements, le moyen de rivaliser avec les
 nombreux établissements de plaisir, comme on les
 nomme. Si l'on parle enseignement, on court la chance
@@ -3429,10 +2921,6 @@ de la foi, je veux dire celles des manifestations de la
 foi qui sont bêtes. Nous respectons les expressions sincères de la foi religieuse ; nous n'en respectons pas les
 k manifestations bêtes. Or ce sont justement ces manifestations bêtes que nous avons trouvées dans le Soleil
 
-ñ
-
-4 PNR.
-
 quatrième cahier de la quatrième série L
 du Dimanche. M. Colomb a résolument assumé la À
 charge et la responsabilité de représenter en face de |
@@ -3446,7 +2934,6 @@ aux lecteurs du Soleil toute la grande science, la grande
 science des libérations et de la culture, la grande science il
 dangereuse, mère des révoltes et des libertés, la science
 des méthodes, la science du libre examen, la science
-laborieuse, humaine, inlassablement patiente ?
 
 Non. M. Colomb a trouvé le joint, comme il dirait.
 Pour ne pas entrer en confit, pour se mettre bien avec
@@ -3466,9 +2953,6 @@ les collaborateurs de M. Colomb. ;
 C'est exactement ici, dans cet avilissement de la ;
 science aux pieds d'un public abêti, qu'est le crime. ]
 
-A
-2 M. GEORGES COLOMB
-à ,
 me Qui joue-t-il? Joue-t-il ses patrons, son public, ses
 collaborateurs, les plus récents de nos contre-torpilleurs
 et le pèlerinage des enfants de Marie pour faire parmi
@@ -3501,9 +2985,6 @@ de cette œuvre les patrons avaient gardé pour eux tout
 4 l'argent gagné patiemment par les ouvriers, qu'ils
 avaient laissé les ouvriers sans un outil et sans un sou,
 vont assigner M. Georges Colomb en répétition de
-fonds.
-
-VI
 
 quatrième cahier de la quatrième série
 Au moment où nous mettons sous presse, On nous
@@ -3522,16 +3003,8 @@ Au dernier moment, on m'apporte les neuf numéros
 du Soleil où M. Colomb a collaboré cette année. Je
 supplie qu'on les achète. On ne s'ennuiera pas. Il ya |
 un pape en couleurs près de qui le sous-lieutenant
-s'efface.
-k
-*
-: L
 
 |
-
-4 DÉSABONNEMENTS bé
-
-K
 
 ÿ ne
 
@@ -3571,12 +3044,10 @@ f Boivin même ne sait pas tout. Il n'y a donc que
 M. Colomb et moi qui puissions conter ce conte.
 
 à M. Colomb voudrait bien le conter, dans le Soleil du
-À : 103 ù
 
 quatrième cahier de la quatrième série
 Dimanche. Maïs ses patrons ne veulent pas. C'est
 encore moi qui serai forcé de le conter, dans ces
-cahiers.
 
 M. Rey croit que j'attaque les Journaux. J'essaie au
 contraire de les sauver. M. Rey confond {es Journaux
@@ -3593,10 +3064,7 @@ Weulersse, aujourd'hui professeur agrégé d'histoire au L
 lycée d'Orléans, m'écrit. Naturellement je ne publie î
 que les passages publics : :
 
-ÿ
-
 Je me désabonne aujourd'hui pour deux raisons. Ta cri- à
-tique impitoyable, ?
 
 Impitoyable, mon cher camarade : je ne dis pas le
 sixième de ce qu'il faudrait dire pour sauver le socia- |
@@ -3612,10 +3080,6 @@ signifient : d'un moyen, par un moyen ou par un autre, Ë
 quel que soit le moyen, par n'importe quel moyen. Ou a
 ces mots n'ont aucun sens, ou ils signifient que la fin ;
 
-104 ;
-
-M UT l |
-De : DÉSABONNEMENTS
 __ justifie les moyens, que la fin socialiste justifie les
 3 moyens politiques. Je me sépare absolument ici de mon
 “ camarade. Credo. Je crois que jamais la fin ne justifie
@@ -3632,7 +3096,6 @@ notre effort ici tend justement à ne pas travailler d'une
 manière, qui est la manière juste et la manière vraie.
 Si encore elle se fût attaquée seulement aux doctrines, à
 Ÿ la tactique, mais elle s'en est prise sans nécessité aux
-ms personnes.
 c Encore un qui n'a pas su lire les cahiers. J'ai assez
 | traité des personnalités.
 ; Si encore elle ne s'en était prise qu'aux personnalités en
@@ -3648,10 +3111,7 @@ grave conflit s'est élevé entre M. Simiand et moi. Un
 | totalement qu'il y eût derrière M. Colomb toute une
 à machination de M. Simiand et de la Société Nouvelle,
 | 105
-ge.
-4 ;
 
-i
 quatrième cahier de la quatrième série |
 Je ne m'en suis aperçu qu'en recevant par derrière |
 cette flétrissure inattendue.
@@ -3683,11 +3143,7 @@ Ce paragraphe de Weulersse est triplement précieux.
 Quand je dis qu'il y a des hommes qui suivent aveuglément Simiand comme un chef militaire, j'ai des amis
 qui d'un air entendu me répondent : Mais non, cela a
 n'est pas possible; cela n'est pas de notre temps, nide 2
-î
-:
 
-Fo : 5
-FE. DÉSABONNEMENTS
 _ notre milieu. J'en avais depuis longtemps les preuves.
 à Pourquoi je ne les publiais pas, je le dirai dans un in-
 « Stant. Cette lettre de Weulersse m'apporte une preuve
@@ -3696,7 +3152,6 @@ LE Weulersse, qui, à Orléans, ne voit pas. Il a de Weulersse un blanc-seing, u
 : ration. Et cette procuration s'étend à l'opération la plus
 
 - redoutable, qui est la condamnation sans preuve d'un
-ami commun.
 
 / Ce paragraphe de Weulersse est quadruplement pré-
 cieux. Quand je dis que nos cahiers sont l'objet d'un
@@ -3725,8 +3180,6 @@ _ demande à M. Raub, je le demande aux dix ou douze
 ne - maîtres, que je respecte, qui m'ont prié, demandé,
 8 recommandé ou voulu commander, il y a deux ans, de
 4 cesser la défense que j'avais commencé d'opposer aux
-e 207
-L
 
 quatrième cahier de la qualrième série
 hostilités de la Société Nouvelle, je le leur demande:
@@ -3761,8 +3214,6 @@ técédence fut acquise par des procédés si particuliers.
 Non seulement je me suis tu, mais tout récemment, dans
 une importante négociation commerciale et statutaire,
 
-ee: D 4 DESABONNEMENTS
-:. 118 £
 _ je fus envers la Société Nouvelle d'une bonne volonté
 Fe vraiment amicale, dont les preuves restent. Le 12 août
 _ dernier si j'avais voulu causer à la Société Nouvelle, .
@@ -3774,30 +3225,17 @@ négocier avec moi. Il m'accabla de tant de sourires,
 | que je devais me méfier. Naïvement, je ne me méfiais
 pas. J'avais autre chose à faire, que de me méfier. J'eus
 1 la faiblesse de montrer une extrême complaisance. On
-me récompense aujourd'hui.
 fl M. Simiand m'écrivait le 15 juillet la lettre suivante :
-; É n \( . here: $
 % SOCIÈTE NOUVELLE Paris, le 15 juillet 1902
-_…_ DELIBRAIRIE ET D'ÉDITION
-SRE (Librairie GEORGES BELLAIS)
-4 17, RUE Cuyas, 17, PARIS
-A : : TÉLÉPHONE 801-04
-NOTES CRITIQUES « + SCIENCES SOCIALES
-4 ‘ RÉDACTION
-re
 Mon cher Péguy,
 Je crois qu'un quart d'heure de conservation suflira à
 nous mettre d'accord sur la difficulté qui a frappé ton :
 attention. Peux-tu repasser à la librairie jeudi à la même
 À heure que jeudi dernier (cinq heures et demie) : jy serai à
 L la même heure, à quelques minutes près. (1)
-4 À toi
-F François Simiand
 dt (1) Notre scrupuleux correcteur, M. Mahlmann, exige que je mette
 à: ici que, s'il y a des fautes grossières dans les lettres que nous .
 % citons ou que nous publions, c'est qu'elles étaient dans la copie.
-‘à 109
-tit ; ù
 Le et
 
 quatrième cahier de la quatrième série M
@@ -3834,10 +3272,6 @@ depuis ; un seul de ceux qui s'étaient désabonnés, par +
 entente, s'est-il réabonné depuis; uu seul des calomnia- D
 
 ST CR NUE RE 2 Le ee AT Pre Ce a Me te MTL DAT
-“É
-LÉ cs , é
-PA 4 à ÿ
-5 DÉSABONNEMENTS
 ré teurs s'est-il reposé de calomnier; la Société Nouvelle /
 S a-t-elle cessé un seul instant d'être l'asile des calomnia-
 à Ê teurs et le réduit d'hostiiités; la lettre de Weulersse
@@ -3862,41 +3296,16 @@ jamais qu'en supplément. C'est tout ce qu'elles valent.
 ù 6734 Le gérant : CHARLES PÉGUY
 Fr Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
-M TS CET SR CE NES
 A RE LEP NE er ÉCART TER SNED SMS IEP
-ES £ a Ho
-GLEN) 1 = “A8
-Ce 116 SENS
-es UE ic:
-f: : NE
 | À ts
-Te : LE
-à. É j eo F
 me L: LITE RECETTES
-te ». _ + À ZE L
-Fe T'ATANR LEE
-PTE RÉ
-e LS
-DS = T'ALTNEEN
-ur ÉD
-Ne: £ i NE PRET
-HE RAT
-& < fa #2 DIN #4
 4 20
-À À 1 #
-1 Sa 7
-f AU 20 AVES
-É à CT :
 
 DR > | H vies Ge ist RE ET RER UE PE NUE É
-
-- : CR ME REC
 
 Un certain nombre de nos abonnés nous ont demandé < Rs
 
 : . à qui s'adresser pour faire passer le Jean Coste en feuil- AU ne
-
-s—" 2 je : 0 r ee LA
 
 _ leton dans les journaux. Pour simplifier les démarches, ur
 
@@ -3904,119 +3313,27 @@ _ La vergne s'est mis de la Société des Gens de Lettres.
 
 __ Iisufit donc de s'adresser à cette Société, en la forme RS:
 
-habituelle. MT.
-
 De même pour la Médaille et la lettre de Convocation,
 qui réussiront en feuilleton bref ou en variétés à suivre.
 
 _ Je suis heureux de noter le Progrès du Loiret, d'Or |
-MU : à : : D.
 
 __  léans, parmi les journaux qui ont reproduit le Jean de,
 Coste en feuilleton. 7 De
 
-LR L û De: Fe
-
-LC À! LT ENS
-
-va >” de # 2
-
-. SEE ; Le k cs
-
-Mn £< ST
-VS PR
-
 A SAN do ce |
-te DS RD à D Sn ER |
 < Gollège de France. — Premiér semestre 1902-1903. |
  — MM. les lecteurs et professeurs ouvriront leurs ours ve |
 le premier décembre 1902. ECTS NES |
 Philosophie grecque et latine. — M. Bergson étudie a 2 |
 | le vendredi à quatre heures trois quarts, _. = |
-DR es 447 s
 a l'Histoire de l'idée de temps; TER |
 ES le samedi à trois heures trois quarts il expliquere re : |
 second livre de la Physique d'Aristote. a |
-:; SR
 : è z re De: de.
-à Eu IEEE
 
-: Life ES MP: re Fe RATT ENT Lu 4 PER EE
-THE À Ar DE
-ve hic ,
-FE È
-M >
-Lx 4
-re
-LE AR è
-LT K
-Vi »
-
-_ 28 ÿ
-DCR NS
-Bu
-RE - =
-+27 Fe
-AE F
-LATE 4
-ee. | LL,
-LE 5
-Pas !
-De ;
-44 ñ
-+ +7
- « FPE
-D:
-Are
-REA <<
-Die À!
-She SR
-ar
-A d
-LES
-5 ATPARE 3
-
-2 NT 5: RE à TUE
-ù RER Lande Re 1 ER + BTE
-PRES à SP Pa he eue PS AO. AE
-è ER SAME CS TS NE * FR
-; RÉ E Late, TT. OR = +
-MAN CE FT ENS Se « AE £.. mu
 $ e CASE DE à 5 Ris ART r "he 1 RE
-ve È < en he
-ad PRESS" RP: :
-EP ci rh À
-: x À ae Fa
-, 5 LS |
-É E j "8 |
-j 3 DE:
-& il) Pr
-PSE
-2 Den: - L
 1 20
-= Ms. PR.
-à 3 TAN
-De K
-T'ON L
-he C NÉ:
-* r DT, » « | k L. J = 4
-“A à _. it Pat
-Een s # = # 4e
-L J A)
 > ee ' "12
-à =
-4 % D.
-UK” #« ER
-we 4 Un
-D L 2
-FE
-‘#3
-À dt.
-LUS
-TT 1400
-le T4 LC:
 
 AP Cahiers de la quinzaine . |
-es
-CL ULA
-sér.A

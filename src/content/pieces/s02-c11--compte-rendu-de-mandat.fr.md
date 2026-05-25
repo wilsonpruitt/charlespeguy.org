@@ -7,10 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 19532
 ---
-
 ## Compte rendu de mandat
-
-*Charles Péguy
 
 Nos anciens abonnés n'ont pas oublié que mon grand cousin de province devait venir me voir avant le commencement de l'Exposition. Pourquoi il ne vint pas, cela ne vous regarde pas. Et si vous n'êtes pas contents, vous aurez affaire à lui. — Bonjour, mon petit cousin, bonjour. Je viens te demander le compte rendu que tu me dois depuis quatorze mois passés. — Bonjour, mon grand cousin. Mais je n'ai guère le temps. — Tais-toi, tu n'as pas besoin de réclamer. Tu es mon délégué. Tu dois m'obéir comme un qui va les pieds devant. — Mais oui, mais oui mon grand cousin. Seulement j'ai eu la grippe. J'ai du rhume. J'ai des abonnés. : — Je m'en fous. Je suis le public, le peuple, enfin, les citoyens, le peuple souverain. Je ne t'avais pas commandé d'avoir la grippe. Rends-moi mon compte. — J'y consens, mais encore faut-il que le compte soit régulièrement rendu. Où est l'assistance des citoyens, où le bureau, où les assesseurs, et le verre d'eau, et la carafe ? À — Où est l'assistance des citoyens électeurs, pour fumer, boire et chanter pendant le compte rendu : Vive k la Sociale ! Vive la Révolution sociale ! Vivent les Syndicats !
 
@@ -33,8 +30,6 @@ _ gues ! Edwards en manches de chemise. Delory aussi. D A bas les intellectuels 
 Je suis bon prince. Et puis je n'ai apporté aucun citoyen dans ma valise.
 
 A deux heures sonnantes, heure fixée, mes amis Pierres Baudouin et Deloire passaient le seuil de la
-
-\ porte.
 
 — Je suis patient, dit mon grand cousin. Mais il me déplaît qu'on me fasse poser. Tes amis ne se pressent pas. Je vois les deux premiers qui arrivent en se balançant comme deux gendarmes en retraite. Quand les autres vont-ils nous arriver ? quand nous arrivera la foule de tes amis ? — Les deux que tu vois sont les seuls que j'ai demandés. — Les deux que je vois ? Tu n'as donc pas une foule d'amis ? — J'en ai moins depuis que je suis malheureux. Mais ils sont meilleurs. Les deux qui nous attendent sous le gros poirier sont les seuls qui demeurent dans mon pays. — Descendons. Je me contenterai de cette assistance, Nous ferons une réunion réduite. Et nous ajournerons le grand cérémonial, que l'on ne doit pas profaner. Le philosophe Pierre Baudouin et l'historien Pierre Deloire se taisaient ensemble au pied du vieux poirier. Pierre Deloire salua d'un geste sobre. Mais Pierre Baudouin, qui avait une espérance intérieure d'événement heureux, manifestait un commencement d'exubérance. Il s'avança droit sur mon cousin, le dévisagea, le toisa
 
@@ -114,11 +109,7 @@ montant de gros traitements au montant de grosses ‘0 rentes. Nous avons eu des
 
 — Je vous vois venir, avec vos gros sabots. Vous voulez à présent me faire parler.
 
-— Oui.
-
 — Vous voulez me faire causer ?
-
-— Oui.
 
 — Sachez donc ce qui en est. C'est mon petit cousin qui m'a fait entrer dans le groupe d'études sociales d'Orléans. Il en était avant moi.
 
@@ -138,13 +129,7 @@ de nous donner tous les samedis sa grande salle sans “+ nous demander seulemen
 
 — Oui, on consommait.
 
-— Combien ?
-
 — Ça dépend, trois francs, cent sous. Quelquefois plus.
-
-— En combien ?
-
-— Ça dépend, huit, dix, douze, quinze personnes.
 
 — Sur combien ? )
 
@@ -217,8 +202,6 @@ Seulement ce qu'il y a de roulant, c'est que Millerand 1 s'en fout autant que no
 Moi, voyez-vous, il me faut de l'unité. J'aime l'unité.
 
 Je suis partisan de l'unité. J'aime l'alignement, l'ensemble. Si on laissait les provinces lointaines imaginer des manifestations disparates, non seulement ça manquerait de littérature, mais on n'obtiendrait pas ces admirables concerts, ces puissantes symphonies.
-
-— Antiphoniques. ;
 
 — Laissez-moi la paix. Quand j'emploie un mot savant, pour faire de l'effet, je vous défends d'employer s un mot plus savant. J'en étais à symphonies. Et je maintiens que nous en avons donné une admirable. Infanticide, infanticide, infanticide, ça roulait de Quimper à Barcelonnette comme l'immense flot du son de la voix de la clameur du reproche et du remords de la conscience du peuple des citoyens du monde socialiste. Vous voyez bien que je réussis à faire des phrases longues. C'est pour cela que nous fûmes heureux de constater que le grand Conseil national de Paris du Parti ouvrier français avait bien voulu penser à nous. Il témoignait ainsi de la singulière estime où il nous tient. Qu'ils sont beaux les pieds de celui qui vient au nom du gouvernement. Car enfin qui forçait le grand
 
@@ -338,8 +321,6 @@ Pierre Deloire tira de sa poche le numéro ; dela bibliothèque socialiste réce
 
 Cependant les délégués du Parti ouvrier, réunis salle du Globe, puis salle Vantier, j :
 
-Parlé : ;
-
 Il s'agit de la grande scission des guesdistes aurécent. congrès de Paris. Je continue : puis salle Vantier, sous la présidence du citoyen Delory, votaient à l'unanimité les résolutions suivantes « appelées à réaliser à bref délai l'unité socialiste révolutionnaire ». ÿ.
 
 Ils expliquaient tout d'abord qu'en rompant « avec de …
@@ -349,8 +330,6 @@ j 38 ; prétendus camarades qui, après avoir piétiné sur les 4 K décisions d
 — Vous voyez bien, s'écria mon cousin triomphant,
 
 ‘2 ça y est. Non seulement l'union, mais l'unité. Il y a des à militants qui s'imaginent en province que nous man- re 7 ? Le À Fr sé a 4 LA U gt en H. £" 1 G 4 s ; à Î r , s j L F 1 F n: Hit] "v2 A H Oonstémme cahier de U A Notre attitude enve ité est 1 la combattons en nou rant Î cumbattons, plus nous ous réels s Î 4 : démolissons de toutes 3s forces, il ! 4 l'accapa mais nou ns ref Ë inq d pt où ne cl faible poar s'appropr ité, mi laisse apf c] : n. À ontre la pa ité, 1 unité at ‘ Ceq L Pic d k en quelq l c lobe, puisiet i -
-
-Fi ” sant = Ê£croisement ? taire j met Lars Mat 8780
 
 quons d'unités. Nous en avons plusieurs. Nous en avons i : de trop. Pendant que mon petit cousin attaquait sottément le Comité général, nous les guesdistes nous en réclamons un deuxième. Quand on prend du Comité général — — Oui le citoyen Zola disait éloquemment: M l'unité est en marche, et rien ne l'arrétera. ;= Nu ‘+ — Monsieur, fit remarquer Pierre Deloire, le citoyen Zola n'a pas parlé de l'unité, mais de la vérité. Il a dit 21 ‘1- la vérité est en marche, et rien ne l'arrétera: Quand ce grand citoyen prononçait ces paroles mémorables, il ne ji. prévoyait pas que d'ingénieux dreyfusards jetteraient M l'amnistie dans les jambes de la vérité. k à — Oui, dit mon cousin, ça retarde la marche, une amnistie. OANIVES — Ce n'est pas le citoyen Zola, c'est le citoyen Léon Blum qui a écrit en manière de conclusion — 4 — L'un vaut l'autre, tous les citoyens se valent. à — Tous les citoyens se valent. C'est le citoyen Léon : L Blum qui a écrit en manière de conclusion. Reprenant Ÿ le livre : : Malgré toutes les réserves incluses dans cette phrase, le Parti ouvrier, lui aussi, parlait donc nonplus d'union, mais d'unité. En dépit des fautes, des rancunes, des 1 violences, l'unité socialiste était en marche. à Monsieur, j'ai un renseignement à vous demander.
 
@@ -458,8 +437,6 @@ CM ORNE Paie FRERE ONLL EU ET NA DAT d 45 COLLÈGE LIBRE DES SCIENCES SOCIALES �
 
 ; Przcer, professeur agrégé à la Faculté de Droit de l'Univer- sité de Paris.
 
-FRANGIS DE PRESSENSÉ.
-
 L Révern, professeur au éollège Sainte-Barbe. !
 
 Eve RiGoLAGE, agrégé de l'Université. Bo
@@ -514,13 +491,9 @@ Fe. detitres. Obligations. — 6. Fonds publics français. — 7. Actions et
 
 —_ obligations de chemins de fer. — 8. Obligations diverses. — Emis-
 
-FA s ÿ “
-
 La réglementation du travail industriel. L'inspection du
 
 Re AR travail. — M. BRETON, directeur de l'Industrie.. La législation de la presse. — M. J. Crurri, député de la "TER Haute-Garonne.
-
-! Questions financières. — M. DELOMBRE, ancien ministre.
 
 ‘ _ La musique plébéienne. — M. Emmaxuet, docteur es lettres. …. Les résultats de la conférence de la Paix. — M. v'EsrourFe ezzes pk Consranr, député de la Sarthe.
 
@@ -563,8 +536,6 @@ ARTICLE 9. — Recevront le titre de membres fondateurs :
 (1) Cette inscription donne droit à l'usage gratuit de la bibliothèque et de la salle de lecture (journaux, revues), premières années de la fondation du Collège; 2° toute perx à sonne ayant fait au Collège un don de 500 francs au moins. ra. Les membres fondateurs ont droit d'assister en tout temps aux cours, conférences et visites, et reçoivent toutes les pu. blications du Collège. : Recevront le titre de membres donateurs, les personnes ayant versé une somme de 100 franes au moins ; elles pour ront assister en tout temps aux cours, conférences et vi Mer. sites.. ARTICLE 10. — Des modifications peuvent être apportées + 1 aux présents statuts par un vote du comité de direction, ÎFS sous réserve de l'approbation du comité de perfection. nement. A : +74-
 
 Je saisis cette occasion de rappeler à nos abonnés qu'il y a une école socialiste. Il est scandaleux que les 103 leçons souvent admirables de M. Andler et les leçons "à parfaitement probes de Lagardelle aient un public aussi "+ peu nombreux. Il est particulièrement regrettable que les sociétaires de la Société Nouvelle de librairie et d'édition, d'où provient cette école, en soient aussi ponctuellement absents. Assister à des leçons bien faites est plus utile ne” que de participer à des condamnations téméraires. Ce cahier a été composé par des ouvriers syndiqués :: SERU “ LuPnMERE DE Suuesnes (G. RicHanp, administrateur), 9, rue du Pont—42%0
-
-_:siis
 
 : Nous prions instamment ceux de nos abonnés qui demeurent à Paris de vouloir bien venir nous voir, quand ils ont affaire à nous. La correspondance écrité
 

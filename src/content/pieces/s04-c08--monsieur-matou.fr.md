@@ -7,172 +7,56 @@ author: rene-salome
 isAvertissement: false
 wordCount: 18475
 ---
-
-Re
-PREMIER JANVIER DE LA QUATRIÈME SÉRIE
-RENÉ SALOMÉ
-. MONSIEUR
-ET LES CIRCONSTANCES
-DE SA VIE
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-RE RS A UE MR La SAS DEN (EYE È
-: ; SAR RE Vs
-RARES AA PURE
-‘ad ONMEES Te
 | | Ménn 4
 ‘ dans le comm TR
 4 ns ce JTE TER Aa
-ous metto ns deux HSRE ES ve
 , Nous vendo MAR RS
-LR FX ns ET 33
-Al eu K “He 2: v Ÿ
-« i rs ES ARR
-HER MST aern
-: Pis CEE ‘ FORM
-$ HÉFa DE LINE
-LA Pr
 
 Ne) PATES E ARS AE 7e EU De Re LE ee RAA
-à AN AOL ES Ji 34 2 < RARE APTENI ES à Ja
-Hi} SPORE AMENER x + 2 SNS
-AR Re 1 DEAN HAN So 654 ‘ UE fete
-{13 (AA NME ENRNRRE À Ÿ LATNTE “RE re
 ROUE EN f fus Un PSP
-£ M 1 ANSE 7 1 RAIN
-j DA 5 À ls ; ÿ , 4 Le
-Dre AT U j E % HAN
-1 RATES RAR : * : a *,
-MP CLRTON A RCLE 2 E À CHE
-M Le AU UOQN Er EE , 4 og | NY
-‘HN SRE / mon
-De * PO ANR , à 4 ‘ 4 » Fee
-AU NE MEN LME DTAREES i $ A a RAR
 | SARA JT Fa ML:
-‘NA FPE 6? ee \ Le x M ) : LR re
 Là nr SUR ru ÿ age ù de
-As AH RAA MR VOL HR d 1 F 4!
-DRE) AS SU: DE | V *
-PERS EME IONES MRC UT Le
 ne AL to “Os Lys W na , #1 } ACIER
-PACS: CN RER 72 | El
-Se CNT NAN TA 1116 J LE
-DA RREMNEREOE Ee  7te NT
-Le NPA EE ; 1 1] : VE
-, P à (Er SRE "
-AE NE TO L f En à ] pic Ç
 
 AUTRE NEO ne ot pl RENE \
-1 RAIN NA ) , ATOM FAR AN AE AN UNE \ sein %
-MAIRE k A OC ESS RE Re ar
 l pi Hi At qe y : L } AA (0e LAS RU
 EN CQU EAIRE L APENT p YTEN tre À Hat | ARNCAEN NENNE EI | ARCS
 NPA MN RAS ni FOR PEAEN
-(AN pu Be ÿ ÿ AN PIERRE M à RES A AM
-EUR NC à LUE DEN D OS A TE RE
-JS FORTS ê AV 0 DO PE IN rINans PAT Mit
 A | ji NN ne AN ane
-AA A ART { PAU late ROUX al EE AUS ere Ha
 LA CNORE IP RON EN x x k 1 RE AE VTSUR KA NO ns À oh AS
 VUE SAULT (EU qe NU ne june EU à RCA
 RO ATANIAnnte | ' nent, RAR EE ne
-NN HER RE RAI AE At LD PE ER
 tu HAT ] LU Ne NN ART nan
 (IE RONA di 4 jh LEA AA Ann de PA EVE)
-VU NES NAN AN RAA DIN DUREE { MAO
-nn EE
 Le NOTA AIO : DR AE AE de dr RAA ERA
-DAMARNE TANTEE ; 100 TANIA A
-RNA NN Wi IN PAT UNIUR ENeITI ONE AA DOTE : #
-MERE NRENN j A AA ES AUATe 1 4 il RNA UDELN
-dE ES Ne EN RE
 
 JT (4e Ne CT ns e S PS ER ké. 4 rt
 À ie Hire mA TR LHSETA MTS RÉRMPETE 1e 6 À pa 1
 1 5e (AFIN nt (à ne mnt jus FX %s DRE C#E x es rh? k FAUTe
-00 4 PUESAEN LE AUS SRE
-fe DIE NT ERA RENE RS S'188) l'A
 RE PAR hace LIL À : FE
-CRETE PER d Hi REA rs Æ Are |
-MEAURS OUT h d |
-AREA (74e
-MARRAINE #
-AR ER TE" + ñ
-ve LENS ï d
-CNE du . n
 4 He De avec les bons souhaits des cahiers LT
 D REPRe SE, pour cette nouvelle année de travail ;
-LPS NE \ k
-MR TA URT À z
-CU û : qu
-LES Pat r :
 RER "A di = on
-47 EAU # ” 4
-à A D nd: k
-FAR ARMOR NE L
-ME eve :)
-Ro EX LEE TR Fa
-REIN RARON 0
 APR 0 de. On re
-14 pass BCE k d f
-HARSOAUCR ES SENTE SOLE
-“NUE TO “UE
-AA HART | Hé
-Rs 464 cl HE sr + : À ne
-k pat ERA d LS
-Ca) RME UM
-:04et OS Re x Me
-4 MEN AR 5h
-HAUT RES i di"
-‘CN CNE æ à
-NI T 4e . +
-+ FF OT #
 
-7 Eu RATER re TRE RO D SAS PA OR 4
-RATE Sr EEE AN D a DANS SAN NES (NT TER
-Cr) M NT DURANT RME TROT A TOME DRE Date
 Te QUR N LAN (se # SES ne AE NAS AE etc D
 MAS pri 1 ï + p y 4, . de a As, NEA ARE [M } dei
 |: SNA EEE : Se ee ar
-DU (AR k d dr X ! FE LA RATE AR De h SE (Ve Ÿ
-PRE E f 4 SRE FRA Cents SL TUTER
-REA % : : RUES RER LS
-MERE ‘ FPT a UP
 FAR cs sara HAN S LA TRUE UE TN ds AE
-4 EMMA 1) * 102 ere HE ‘| UNS
 OR TT ni € ù To Le Pau Ne
-FA Fee ANT A?) OR En) Ve LP DS
-0e M ie fie
 LORIE < A te te ET HAE LE A
-Pau | PR NE
-tn 9 A Ci À % SENTE MS 6
 RU f Ne ee Er DRE. ARS NE re
-‘SES DL Ne
-LINE MATE : RAHRE NE RE EE Ce AA
-TEE PAUSE ï Ÿ kr ES ANRT LÉ 28 CRE LRO CAT
 
-RER fn Pan « Se Nat Dr te ;
-
-AU Pare DR As A Ÿ
-
-NAT. L AN ATE AAA ARNO [3% Ÿ
-SA LA AC Re LA
 h SEA NC RENTE i 4 RE HIATE HOT de ma wa A US
-Se Lo SAT EM è ï & AU THE nou ei AU QAAX
 ERA gp PAU | à à À au vi it Ne AN LAN
-Re 4 { ( ES HS RAR PLU
-PE PATENTS UE EE PAT A 4
-VA NN AUS k l ! Ÿ Ne A RL ae? PART TN
 CNRS HAINE : te (in Ne RACUE Mi
-‘ap j AA AS RATS
 
 Late PROS TRE L à à St aile WA Ln Ke a Ke Rene EN ‘g
 RUE) Wan | A L'ANPE te ei FALL NES RARE
 
-: CR ANEES " MA AoU v SM A AURRe NN AUD
 y FO AU ï ) We 1 NCA Ke Lee FA } de È
 
 Robe] É AN AVR UT HAS Mr De no
@@ -182,182 +66,50 @@ sn na Du À ÿ qu ME NU HAE DANS AE
 MES DRE ru RC ONE tt 44 KE ;
 LEE HE RE pan ET ART ARE (y AE AR
 
-ju M AR Pa à À
 2 LÉ CN En CPAM NE LE ns er
 | L'ART A sf) Qt MN NE PPT Er TARA 0 ET F
 | qu à ire Le ALCS PAR E \P 48 Fan œ. B (rire f . A Ni 4 We
-TA LEN FA ‘ , : F4 ed
 MA EN De “ al Ait
-TER : bte
-HR VOYEZ CI pan?
 AU un APRÈS L''IMAGE ‘2
-As Ati) \ +
-4 Re VÉRITABLE DE Qu
-ARE 54 ( PAIE
-REINE MONSIEUR MATOU KO 4
-LE Î + É
-1e à 4 d à | Re
 se De D K Rxee AE k
-NAT ; “+ Pa
-SM TRE FE
-Re : VS
-Fe | ; ,
-CAD VESTE , \ , CM |.
-13 CRE ‘ . s L Le
 |'AXVIIE EEE moi" À TON TE
 
 AO sh W Ê HAS \o vin LE RATE QU OAI
-qe “El j4 ARE 5 MNT
 VU NARNIA) RENNES 19 A ire AE NTOE
-HAN ARRETE LORS HER Ne A BÉAONODA NA FASHReSLaE ;
-; VAS \ ES }
-1 NA 2 NN QI AENE nn 1 AE TEEN LRU
-ARE NE FA EN ï Fi : AR AA SET CN AS DRE ENT, # AU
 nn on (EN EE Rat
-Re ras | à Fa AR GNS PAPE AN TOP
-LH TONEE NE) f ANT ROTIR MUST APTE CAN
-! JURA à TN La ELU UE RUN ORNE OU RAR ETE Re
-HP dE (LE MARAIS ENS AA POC ARE 1
-Deux : 1 OENESR eE DR RL
-1e ANDRE ( ) PA FLN R ANNEE 1 deu FAO
 ES UNE Fa 4 us 4 han RU SAN ï # ï es
-7448 ARS Gui DER SNON FR tas DRE AL
-RES POS TAN ANNE nu AT A LIN
-: CH NNANONS ; ÿ ADP RAR (NA Lil ANA RER NTE) RMS AU
-A ee PNR A EN a PACE CU
-NAN PATTES à ï PA AL Le DATES MANQUE
-2. PRE] SALON AA DRE Le AA ré j LU PA
-FOR RE dE Yi Na ; SR ITU RUN
 
-ER,
-D) 1
-£ f cf Â Ÿ L [es TT ; - é
-PR
-À (h M
-Fa A
-NE
-
-sin ei ER dan à ds A cr à Là LEA
-RU MT ÉSÉRALRETs ANR OUR SANT LA FAR OER “ATV PA TÉPU ILE
-Enr ACER Pie GANTS A STI RE Qu?
-? " pau ER 4 ; AU, Lin: | MA LU x “€ à
-f 4 TE ; Le AQU te,
-È " RE
-: CREER
-FE TR 0 2YV
 | | CE
-É à ES RU, TE
-LEE SOON RTE
-N ; LES RON OI EEE
 | S' OS
-, % Ê =. (LATE
-D AE RS
-M  .
-MANU CT
-PA PATEUNES
-ar Ê FÉCUU He
-ie AE
-‘ : ue HEURE
-É à 2 ES PRE CIRE
-.: LANCE
 ” LT de DT ou
-4 MR CE LATE
-. MMS SS
-; FRERE
-* te , LT CR
-, ÿ 351 31 OA
-at SALES « à
-es ty (SAR
-5 h aF LA
-+ x DES +
-d N dE Lt
-' ï * … th r j
-EE PA . e or: ol
-Te SAT | RE
 
 d NE ue res es CU PA dat K As Le Ée M : CA \
 MEET re ADS SOL ONE 3 ne ah) RS L
 : A nl Tete « ‘y ÉPA SUR
-Has > 24 ‘ | QE
-Retz Tai < |
-ee L, f
-M, 3
-QE ÿ « Len |
 }ÉEPNER Pour nos petits +.
 \ 488 Pour nos petites Eu
 Di M ru Pour Marianne Mayer iv
 pt Le (4 ON TE EP 1 ie L
-PU AT PA
-ox, Le #
-FL , . ? F #
 | RE oo 2 x Pie)
-fa DER A ë
-US ans PL L +1
-M da à v
-ANS AE ALU ., Ph
-LR LOS RENE h
-LR PAT ETERRIR ir
-Lie : à. ,
-or N AD UE ; cu
-Diane CHR AN 1%
-L'N | AG dd k rte ;  :
-Re Ce # IT ' » M
 l'HTEATE nt 1 k
-SENPÉENTES ki "
-11408 APOIRER d L JE OS
-Mont Llsy CN a “AL
 
-; Û ENTRER EEE HE GADARNTNS 1 |
-NEA EE AUAU TE ES BEEN LE CA RUE NE AAC À
 D RE RNA EU NE (A HALL Lu pe RAT EU
-; ANT DEUX ÿ f À DA TRN EN pee tas ETS A
 fi HQE Ni ñ £ AC q re OA ee A MIO
 4 LAS Fe £ 4 FN , sa Ne nes fe PE
 ci de sy HR \ | LR a '
 ji RE LA ON de ne METRE
-1 LU à NET AL Le NA IE |
-RARE Len PEN MENT D he pue LANDE
-nent y " £ Len FNTOASNEE AD AREA AA CAE
-jo Lu D U à DS HA ( a Tee
 NEA 4 nr OR Le RE SA
-AUOT AURA \ A ANS COL ae à
-Nr j RAD EURE IS TRACE PP
-‘ARE AN ue rt
-ra EN } Met) ARENA à CRT (RNA rit
-Fe 10 pa | se ( us pag ‘. Qu RETIRE Q ui AS 11)
-Us) , ja NEA ET RAS
-LA 4 ANS PTS SNONETARERES 1 à
-1 PR UREN + } 4 UE PA fe JS ARE AE ÿ
-
-MONSIEUR MATOU
-ET LES CIRCONSTANCES
-DEÉPSA:VIE
 
 PARTOUT LU be VAN TOME AU La
-AR UE î CAE JUS APR EE ARR AE LHC RAR":
-v) fr puy: $ : Cha PNA een SL TS
 AS eur LE “ ARE PLATE MON
-MAUR { AE NAN T RENE à. à
-ANSE à Nr Mr rRUSS er (h
 | 1 MR EUR Re
-ERA | 4 MDN RO
-ACT Rt D TEL 6 Ra AT
-MOMIE a + =) RMI RE PEN TENUTS
-1 RATE J EN Ur RNSEE PT PRE UE A ESS
 h RAA Ki: à ui JE NT A UARES Me RS St ARE Aer
-"CRT CREER \ fie LA 4 APR ANR f
-n'a NCAA n é VOS ET DE OT NT RSR
 A Ne | is xt ' È JP RTE TA “4 î x
-HR AND OA TE LNLPTEUE AT AM AS FAT
-SR TE Re ANS ANA PAT PRE ON A TA 7 Ne M
-
-L''ARMOIRE A LINGE ET LA SALAMANDRE
 
 Monsieur Matou est dans la dixième année de son
 âge. C'est dire qu'il devrait être un chat sérieux.
 Neuf ans pour un chat, c'est quarante ans pour un
 homme. Or, monsieur Matou n'est pas un chat
-sérieux.
 
 Il aime à se rouler dans le coke et dans le charbon
 de terre. Le coke et le charbon de terre noircissent
@@ -378,10 +130,8 @@ pas chaque jour son gilet et ses pantalons à la turque,
 il n'aurait pas à les nettoyer avec sa langue. S'il
 n'avait pas à les nettoyer avec sa langue, il n'ava-
 
-monsieur Matou
 lerait point les poils qui sont dessus. Et s'il n'avalait
 point les poils qui sont dessus, il n'aurait pas mal
-au cœur.
 
 — Ce raisonnement est admirable, murmurent
 les draps, les serviettes et les essuie-mains. Et la
@@ -396,7 +146,6 @@ Ce matin, voilà qu'il s'est accroupi auprès de la
 salamandre qui chauffe et qui rougeoie. Il s'est mis
 en boule, le nez dans son gilet, les pattes et la queue
 repliées dans la fourrure de son ventre. Monsieur
-Matou se sent indisposé.
 
 — Ne restez pas aussi près de moi, monsieur
 Matou, conseille la salamandre. Mieux vaudrait
@@ -411,8 +160,6 @@ Matou et comme elle parle poliment. Vraiment, c'est
 une excellente personne. Il y a bien des poêles et
 
 des calorifères qui devraient lui ressembler.
-
-L'ARMOIRE À LINGE ET LA SALAMANDRE
 
 Monsieur Matou qui n'a ni cœur, ni éducation,
 ni sagesse, n'est pas ému par tant de bonté, fait
@@ -429,7 +176,6 @@ monsieur Matou ne suit jamais les bons conseils.
 — La remarque est vraie et le raisonnement est
 juste, murmurent les draps, les serviettes et les
 essuie-mains. Et, dans son coin, un vieux tablier de
-cuisine ajoute en maugréant :
 
 — C'estsûr qu'il ne suit jamais les bons conseils.
 L'autre fois, madame l'armoire, la porte de votre
@@ -442,11 +188,6 @@ arrondies et griflues. Même qu'il ose venir se vautrer sur moi, qui suis un vie
 diable ! Sinon, Noémi, sans vous voir, poussera la
 porte, tournera la clef dans la serrure, et vous serez
 
-1 »
-
-À
-
-monsieur Matou
 en prison, privé de l'air et de la lumière qui sont
 indispensables aux gens de votre espèce. Mais monsieur Matou fait la sourde oreille et continue à
 m'étouffer. Qu'arrive-t-il? Précisément ce que j'avais
@@ -475,7 +216,6 @@ est une grande dame, et fort susceptible.
 
 — On ne me répond jamais quand je parle, ron-
 
-, L'ARMOIRE A LINGE ET LA SALAMANDRE
 chonne le tablier. Quel affront pour moi qui suis un
 vieux, utile et honorable serviteur de la maison.
 
@@ -483,12 +223,6 @@ Cependant monsieur Matou somnole ou sommeille
 tout près de la salamandre qui le chauffe bien à regret. Mais ne faut-il pas que bon gré mal gré, la salamandre agisse en salamandre ? Et dans sa somnolence ou son sommeil, comme il arrive quand on a
 mal au cœur, et qu'on a trop chaud, monsieur Matou
 a de très vilains cauchemars et des rêves tout à fait
-stupides.
-
-Li
-É
-À
-LA TABLE À OUVRAGE
 
 Sur le palier d'en haut, il est une table à ouvrage
 en acajou. A cette table s'ajuste et s'articule un couvercle, au moyen de deux charnières. Quand le
@@ -510,8 +244,6 @@ avec sa petite langue rose qui gratte en léchant.
 Puis avec ses pattes mouillées, il s'est installé à la
 manière d'un phoque sur le fil, le coton, les boîtes |
 et les délicats outils d'acier.
-
-LA TABLE A OUVRAGE
 
 Ce sont les aiguilles qui ne sont pas contentes. IL
 y a là également des ciseaux qui ne sont pas contents non plus.
@@ -536,7 +268,6 @@ les ciseaux faire œuvre d'aiguilles et les ciseaux
 aimeraient à voir les aiguilles faire œuvre de
 ciseaux. En vérité, ces gens-là ont des idées bien
 impertinentes, — et sans doute ils n'ont pas appris
-à raisonner.
 
 Mais qu'importe à monsieur Matou la querelle des
 aiguilles et des ciseaux. Monsieur Matou continue à
@@ -544,8 +275,6 @@ friper ses fourrures café au lait contre le faîte des
 cloisons et les angles des boîtes. Il relève son nez
 couleur d'anémone vers la lucarne qui bâille audessus de l'escalier, et de ses yeux mi-clos, il regarde
 
-TS
-monsieur Matou 1
 le troupeau des nuages se mouvoir dans le ciel. La
 brise du dehors entre et joue parmi les poils de son
 beau gilet blanc et de ses beaux pantalons blanes à
@@ -565,7 +294,6 @@ de temps en temps, il fait pchtt!!! pchtt!!! Car
 monsieur Matou a les oreilles fort sensibles.
 
 Cependant la table à ouvrage, qui est un peu boîiteuse, — c'est une vieille table à ouvrage : elle a
-souvent déménagé; avant d'habiter en province,
 elle a longtemps habité Paris, — la table, ébranlée
 par les secousses de monsieur Matou, bat une
 mesure en trois temps sur les carreaux du palier :
@@ -575,8 +303,6 @@ Par, pan, pan — pan, pan, pan.
 pitié, soupire la table à ouvrage, ainsi contrainte à
 battre la mesure. — Le fait est que ce n'est point
 
-HAE CRUE
-LA TABLE A OUVRAGE
 une occupation convenable pour une personne de
 son âge et de sa condition.
 
@@ -598,20 +324,15 @@ aussi impotente : moi aussi j'ai eu ma jeunesse.
 
 — Bon, bon, interrompent les ciseaux. Vous
 n'allez pas nous raconter une fois de plus vos aventures. Que de fois déjà nous avons baillé en les
-écoutant !
 
 Les ciseaux parlent pour eux, car les aiguilles ne
 savent pas bâiller : leur bouche est beaucoup trop
-petite,
 
 Pendant ce dialogue, monsieur Matou s'est
 recouché, non plus à la manière d'un phoque, mais
 à la manière des grosses bêtes en pierre qu'on
 nomme des sphinx. Son ventre blanc s'adapte au
 
-è
-
-monsieur Matou 1
 faîte des cloisons et aux angles des boîtes; ses reins
 s'élargissent et se dressent royalement; ses pattes |
 antérieures s'allongènt bien devant lui; son nez et
@@ -632,7 +353,6 @@ grise à tricoter. Oh! il ne s'agit que de le pousser
 un tout petit peu, seulement pour voir si ça bougera.
 
 Et monsieur Matou saute à bas de la table à
-ouvrage. |
 
 — Enfin! disent les ciseaux, |
 
@@ -645,13 +365,11 @@ courts, des pas bien prudents, bien avisés, comme
 s'il craignait de poser ses petites semelles arrondies
 et griffues sur quelque chose de brûlant et de coupant. À chaque pas bien court, bien prudent, bien
 
-LA TABLE A OUVRAGE
 avisé, il jette brusquement, soit à droite, soit à
 gauche, le panache de sa queue.
 
 Arrivé au pied de la console empire, il s'arrête,
 s'assied, tend le cou, érige son museau dans le prolongement de son gilet, comme s'il examinait une
-étoile.
 
 — Il vase passer des événements singuliers, chuchote la table à ouvrage.
 
@@ -662,7 +380,6 @@ conçoivent quelque dépit. Et comme ils n'ont rien à
 se dire que de désagréable, ils observent un silence
 rageur en se lançant des regards aigus.
 
-LE PELOTON DE LAINE GRISE
 D'un bond calculé, nerveux et précis, monsieur
 Matou quitte le sol et retombe sur la console empire,
 juste à côté du gros peloton de laine grise.
@@ -670,7 +387,6 @@ Monsieur Matou repose sur ses quatre semelles
 arrondies et griffues ; le panache de sa queue s'érige
 vers le plafond, tel un cierge ; son dos fourré qui se
 cambre par dehors, a l'air d'un dos bossu; son
-petit nez couleur d'anémone s'approche timidement
 du gros peloton de laine grise, et les pointes de ses
 oreilles se rabattent vers les touffes de ses favoris.
 Ii apparaît que l'aventure où s'est lancé monsieur
@@ -683,8 +399,6 @@ flairer le peloton de laine grise avec son petit nez
 couleur d'anémone, et rabattre vers les touffes de
 ses favoris la pointe de ses oreilles.
 24 1
-
-LE PELOTON DE LAINE GRISE
 
 La table à ouvrage qui est une personne d'expé-
 rience — elle a tant déménagé ! — voit bien qu'il
@@ -712,7 +426,6 @@ je poussais jadis à l'état de toison drue et huileuse.
 Je ne me sens point rassuré du tout qu'il me flaire
 et qu'il m'observe. Eh, messieurs les crochets, de
 grâce, protégez-moi contre ce personnage poilu et
-moustachu.
 
 Or, les deux crochets en boïs sont deux lourdauds
 qui n'ont point l'âme chevaleresque. Ils n'ont même
@@ -720,9 +433,6 @@ d'autre vie que la vie des Doigts agiles et spirituels,
 quand les Doigts tricotent. Mais ils ne sont point
 là, les Doigts agiles et spirituels. Et les deux
 
-Il
-
-monsieur Matou
 crochets en bois, livrés à eux-mêmes, ont l'air tout
 à fait imbécile.
 
@@ -757,11 +467,6 @@ et prudence, il ramène en avant la petite semelle
 arrondie et griffue jusqu'à ce qu'elle ait touché le
 bon gros peloton de laine.
 
-d
-
-Win chi Ts RS
-LE PELOTON DE LAINE GRISE
-
 — Je suis perdu, songe le bon gros peloton de
 laine, tout en glissant un peu sur le marbre de la
 console empire. Quelle horreur ! J'ai senti les
@@ -769,7 +474,6 @@ piquants de ce personnage poilu et moustachu ; car
 ses pieds ont des piquants ni plus ni moins que les
 églantiers de la haïe. Il va me déchirer; ou bien,
 s'il me heurte encore, il va me faire choir dans le
-précipice.
 
 Car le peloton de laine, dans sa simplicité, se
 figure qu'il repose au bord d'un précipice.
@@ -790,7 +494,6 @@ il attaque le premier. D'un coup de patte rapide et
 bien ajusté, il frappe son partenaire, ou du moins
 celui qu'il tient pour son partenaire. Le peloton de
 
-monsieur Matou
 laine disparaît soudain, et le crâne plat des crochets ;
 en bois sonne contre les carreaux du palier.
 
@@ -820,7 +523,6 @@ lui a sans doute apprise à l'école des Moiïneaux.
 Monsieur Matou a repris brusquement une position horizontale. Ses pantalons blancs à la turque
 se tendent comme s'ils voulaient devenir des pantalons à l'anglaise ; le panache de sa queue bat
 
-LE PELOTON DE LAINE GRISE
 d'une façon préméditée, mais surprenante, ses
 fourrures café au lait ; ses yeux fixes ont des lueurs
 de lampes Édison. L
@@ -838,10 +540,6 @@ Monsieur Matou s'assied sur la console, se gratte
 les oreilles, s'humecte les pattes avec sa petite
 langue rose qui gratte en léchant. Puis il se lisse
 les moustaches.
-
-LE
-
-MONSIEUR MATOU AMATEUR DE MUSIQUE
 
 La petite fenêtre de la chambre où je vais, soit
 lire, soit écrire, ouvre sur une gouttière. Dans la
@@ -862,15 +560,10 @@ gouttière serve exclusivement à recevoir les eaux
 lorsqu'elles glissent sur la pente brune et moussue
 du toit, ni que la tablette n'ait d'autre fonction que
 de soutenir mes coudes lorsque je regarde venir la
-grosse branche d'acacia.
 
 Sans doute la gouttière reçoit volontiers les eaux, |
 et la tablette recoit volontiers mes coudes. Mais
 
-k
-K:
-
-MONSIEUR MATOU AMATEUR DE MUSIQUE
 chacune d'elles exerce une autre fonction, infiniment plus noble. Car la gouttière est la promenade
 favorite de monsieur Matou, quand monsieur
 Matou éprouve le besoin de respirer un air pur
@@ -895,8 +588,6 @@ rencontré l'image d'un gros livre.
 
 Ce gros livre est étendu sur une chaise. Lui aussi
 est grand ouvert. Aux deux pages visibles, mon-
-
-monsieur Matou
 
 sieur Matou aperçoit des sortes d'espaliers, et sur ces
 sortes d'espaliers de gentilles taches noires aux
@@ -929,7 +620,6 @@ Matou se lisse les moustaches.
 
 Donc, hypnotisé parles petits êtres elliptiques, les
 
-MONSIEUR MATOU AMATEUR DE MUSIQUE
 petites queues et les petits doigts, monsieur Matou
 fait un bond, deux bonds, trois bonds, et voilà que
 les quatre semelles arrondies et griffues sont en contact avec la Valkyrie, drame musical en trois actes
@@ -957,18 +647,14 @@ déchaïînaient dans des tuyaux de cuivre et sur des
 cordes bien tendues, monsieur Matou deviendrait
 certainement sourd et, les gens du logis se trouveraient en réel péril de devenir idiots.
 
-monsieur Matou
-
 — Entendez-vous ces cris discordants, confus et
 aigus? demande la Grammaire comparée de
 l'anglais et de l'allemand à son collègue le gros
-Dictionnaire grec.
 
 Et le gros Dictionnaire grec lui répond ces
 paroles, qu'il mesure et qu'il cadence suivant les
 règles difficiles de l'art oratoire.
 
-— O Grammaire savante en idiomes barbares,
 certes, tu parles avec sagesse et la clameur de ces
 petits êtres elliptiques ferait fuir les Muses aux
 
@@ -986,13 +672,9 @@ le contact de sa robe de poils, le frottement de ses f
 semelles arrondies et griffues et les attouchements |
 de son nez pâle. Vainement je lui ai fait observer
 
-EN PE PT
-MONSIEUR MATOU AMATEUR DE MUSIQUE
-
 que j'étais une grammaire savante, bien renseignée,
 bien documentée, purgée des rêveries étymologiques qui sévissaient dans les anciennes grammaires, exacte en mes définitions et méthodique en
 mes divisions, informée enfin des découvertes grammaticales qui se firent tout dernièrement dans les
-Universités allemandes. Monsieur Matou n'a rien
 écouté et j'ai dû souffrir qu'il éraillât les endroits
 de mes feuillets où se montrent le mieux mon esprit
 critique et mon perpétuel souci d'exactitude.
@@ -1012,15 +694,12 @@ Aussi ne saurais-je peindre l'indignation des eroches, des doubles croches et de
 leur clameur est de moins en moins conforme aux
 lois éternelles de l'harmonie. Et c'est en vain que
 
-monsieur Matou
-
 leurs gouvernantes, les clés de sol — dames arrondies — et les clés de fa — intellectuelles au front
 lourd — les exhortent au sang-froid et les rappellent
 à la dignité. De la dignité, certes, elles en ont. Mais
 du sang-froid, allez donc en exiger des croches, des
 doubles croches et des triples croches, surtout dans
 la musique de Richard Wagner, poète et musicien
-allemand!
 
 Cependant la mouche bleue est partie. Monsieur
 Matou a-t-il l'intention de se concilier les croches,
@@ -1035,7 +714,6 @@ Après tout, comme dit Noémi avec beaucoup |
 de sagesse, chacun a sa façon de Lire la musique. |
 
 de AE at ON PEER
-MONSIEUR MATOU ET L'ARAUCARIA
 
 : Le Dictionnaire grec entretient la Grammaire
 comparée de l'anglais et de l'allemand. L'entretien roule sur la civilisation dite mycénienne. Le
@@ -1046,7 +724,6 @@ de Cnossos. Ces petites dames sont peintes sur un
 mur ; bien qu'elles aient vécu, je pense, il y a plus
 de quatre mille ans, elles portent déjà des robes
 à volants, des manches à gigot et des coiffures
-enrubannées.
 
 — Voilà qui est extraordinaire, déclare la Grammaire comparée de l'anglais et de l'allemand.
 Mais ces frivolités sont d'intérêt médiocre au prix
@@ -1059,9 +736,6 @@ va continuer entre le Dictionnaire grec et la Grammaire comparée de l'anglais e
 lorsque apparaît soudain monsieur Matou, dont il
 est superflu d'aflirmer l'indifférence en matière de
 
-ui
-
-monsieur Matou
 civilisation mycénienne, qu'il s'agisse du costume
 féminin ou des archives en terre cuite.
 
@@ -1074,7 +748,6 @@ une attitude majestueuse quand ils se sentent menacés par l'ignorance et la bar
 Mais monsieur Matou ne daigne remarquer ni la
 Grammaire comparée, personne exigeante et bourrue, ni son collègue le gros Dictionnaire grec, qui
 sait dire tant de choses jolies, avec des mots si
-doux!
 
 Monsieur Matou n'est attentif qu'à un petit arbuste en forme de sapin. Ce petit arbuste, droit
 comme un f, sort d'un pot en vieille porcelaine qui
@@ -1088,10 +761,6 @@ baïgnent, drus et robustes, là-bas, parmi la pénombre moite et chaude des for
 Personne au logis n'aime l'araucaria sauf mon- |
 sieur Matou. En quoi monsieur Matou montre qu'il |
 n'est pas tout à fait impitoyable, car l'araucaria est |
-
-38 |
-
-MONSIEUR MATOU ET L'ARAUCARIA
 
 un pauvre arbuste étiolé, souffreteux et débile.
 Monsieur Matou, de sa petite langue rose qui gratte
@@ -1111,14 +780,11 @@ attitudes de sphinx ou de phoque sans paraître rien
 apercevoir des êtres et des choses d''alentour,
 comme s'il se trouvait isolé dans une chambre de
 verdure, sous une opaque feuillée d'arbres tropi- |
-Caux.
 
 Il est évident qu'au prix de monsieur Matou,
 mon ami le poète a très peu d'imagination.
 
 Aujourd'hui, monsieur Matou s'est encore insinué sous les rameaux de la zone inférieure, et il
-
-monsieur Maiou €
 
 s'est couché sur la tablette à la manière d'un phoque.
 Son nez couleur d'anémone se frotte légèrement aux
@@ -1149,10 +815,6 @@ le langage du Dictionnaire grec.
 — J'admets à la rigueur que cette nymphe soit
 une figure poétique exprimant l'attrait que l'arau-
 
-go
-
-MONSIEUR MATOU ET L'ARAUCARIA
-
 _ caria exerce sur monsieur Matou, mais si vous
 croyez qu'elle existe comme vous ou moi nous existons, je dirai, mon cher collègue, que sans doute
 vous extravaguez, et qu'ayant mérité jadis, pour le
@@ -1181,10 +843,7 @@ fait curieux, qui est l'admirable accord du vilain
 petit arbre avec monsieur Matou. Et ce fait curieux
 
 . lui suggère une explication rationnelle.
-A
-L
 
-monsieur Matou
 — L''attrait qu'exerce le vilain petit arbre sur
 monsieur Matou n'a rien de mystérieux. Les ancêtres lointains de monsieur Matou vivaient librement dans d'épaisses forêts ; ils faisaient partie de
 ces épaisses forêts ; ils se coulaïent et se vautraïent
@@ -1205,7 +864,6 @@ mouvements furent jadis exécutés. Et il y eut des
 messieurs Matous qui vinrent dans les villes : là ils
 aimèrent à frôler les fleurs des tout petits jardins
 
-MONSIEUR MATOU ET L'ARAUCARIA
 qu'étouffent de hautes maisons, à se serrer contre
 les pots de géraniums ou à s'abriter sous les araucarias malades. Monsieur Matou continue à faire ce
 qu'ont fait ses ancêtres. Mais, chat dégénéré, il se
@@ -1223,9 +881,6 @@ Quant au Dictionnaire grec, il pense qu'elle a
 peut-être raison. Mais il pense aussi qu'il est dommage que monsieur Matou ne soit pas pitoyable et
 que l'araucaria ne soit pas habité par une nympbhe.
 
-HISTOIRE DE MONSIEUR MOUTON
-RACONTÉE À MONSIEUR MATOU
-
 Devant la fenêtre de la salle à manger, sur une
 petite table vêtue d'un vieux tapis de laine aux
 teintes feuille morte, se tient en permanence une
@@ -1239,17 +894,14 @@ contemporain des grosses besicles à monture d'argent, qui cachent dans sa gaine
 ancienne et vénérable. Il aime les choses et les
 usages d'autrefois ; il est hostile aux innovations;
 sa mémoire est un musée de figures honnêtes et
-d'événements domestiques.
 
 C'est la nuit : les volets sont clos et les rideaux
 tirés. Dehors, les branches d'acacia gémissent et
 
-HISTOIRE DE MONSIEUR MOUTON
 la pluie tapote les gouttières. Dans la salle à manger, madame la Salamandre rougeoie, et de la lampe
 familiale partent des écheveaux de lueurs blanches
 qui vont doucement caresser la corbeille, l'étui à
 lunettes, les journaux, et la Revue des Deux
-Mondes, périodique bi-mensuel.
 
 Monsieur Matou s'est fourré sous la petite table
 vêtue d'un vieux tapis de laine aux teintes feuille
@@ -1274,9 +926,6 @@ bonnes manières ni fin langage.
 — Parbleu! chacun sait que monsieur Matou n'a
 ni mœurs, ni usage du monde, ni sens commun,
 
-6] Le
-
-monsieur Matou
 toussote l'étui à lunettes. Le voilà-t-il pas en train
 de heurter les pieds de la table au risque de nous
 faire choir dans les abîmes!
@@ -1305,8 +954,6 @@ suite et une logique admirables.
 — Ta, ta, ta, ma chère, toussote l'étui à lunettes.
 Si l'on n'y mettait bon ordre, vous tiendriez le crachoir jusqu'à demain : or, vos commérages sont
 
-+ put A MEME)
-HISTOIRE DE MONSIEUR MOUTON
 parfaitement oiseux. Vous ne vîtes ni ne verrez
 jamais que le petit côté des choses, en sorte que vos
 discours n'évoquent d'ordinaire que des images
@@ -1333,8 +980,6 @@ Mondes, ne dites-vous pas que ce monsieur Mouton
 avait le génie du vol? Comment croire après cela
 qu'il ait été respectueux de l'ordre public et qu'il
 ait pratiqué la plupart des vertus privées ?
-
-monsieur Matou
 
 — Attendez, réplique un peu sèchement l'étui à
 lunettes, — car il n'aime pas les objections. Les vols
@@ -1364,7 +1009,6 @@ Mouton volait avec une audace admirable. Il se
 coulait dans les maisons voisines d'où souvent il
 rapporta des fragments de gigot, des andouilles et
 
-HISTOIRE DE MONSIEUR MOUTON l
 de notables morceaux de lard fumé. Il allait braconner dans la garenne, nonobstant les gardeschasse, les assommoirs, les collets et les pièges tendus. Où d'autres auraient péri sans même entrevoir
 une chance de salut, monsieur Mouton se tirait gaillardement d'affaire. Des fois, il revint au logis le
 cou serré dans un collet, d'autres fois les oreilles
@@ -1390,7 +1034,6 @@ chant pour dire des choses pareilles ! gémit la corbeille. Monsieur Mouton un b
 s'adresse à la Revue des Deux Mondes, — que monsieur Mouton, outre qu'il était fort soigneux de
 son habit blanc, avait pour un chacun les atten-
 
-monsieur Matou \
 tions les plus délicates. Ce n'est pas lui qui, par
 malice ou désœuvrement, eût jamais bousculé
 ou culbuté les doctes étuis à lunettes et les pauvres
@@ -1415,8 +1058,6 @@ _ qu'en dise cette Revue acariâtre et mal polie, en
 dépit de son âge avancé, monsieur Mouton fut
 quelqu'un de considérable, et je tiens pour acquis
 
-HISTOIRE DE MONSIEUR MOUTON
-
 qu'avec monsieur Guizot et ce monsieur Thiers,
 dont le portrait pend là-bas au-dessus du bureau
 empire, il honora grandement la bourgeoisie fran-
@@ -1440,8 +1081,6 @@ par les pans verticaux du vieux tapis de laine aux
 teintes feuille morte. Il n'aurait garde assurément
 de rien penser de tout cela : pendant qu'on racontait l'histoire de monsieur Mouton, monsieur Matou
 s'est endormi d'un profond sommeil.
-
-MONSIEUR MATOU PROPRIÉTAIRE
 
 J'ignore si la Grammaire comparée de l'anglais
 et de l'allemand, personne exigeante et bourrue
@@ -1471,8 +1110,6 @@ Voyez-vous, les murs lui auront dit:
 
 |
 
-MONSIEUR MATOU PROPRIÉTAIRE
-
 les chats du dehors, s'ils entraient ici, ne seraient
 pas chez eux, mais chez vous. Qu'ils viennent par
 invitation, passe encore, bien que nous n'aimions
@@ -1490,7 +1127,6 @@ de domicile.
 Un qui a dû rire en oyant les murs parler ainsi,
 c'est notre ami le jeune moineau — celui qui apprend
 des petites chansons légères à l'école des Moineaux, — car s'il entend le langage des murs, il a
-certainement pensé :
 
 — Jamais aucune loi divine et humaine ne m'empêcha de venir dans l'acacia du jardin aiguiser mes
 petites chansons légères sur deux fausses notes, —
@@ -1499,7 +1135,6 @@ disposé. Aucune loi divine et humaine, jamais au
 grand jamais, ne m'empêcha de picoter du bec, sur
 le sable des allées, les petits vers onctueux et succulents, les petits insectes si plaisants à déchi-
 
-monsieur Matou
 queter, et les bouts de mie de pain — nourriture
 honnête — et les graines menues — la santé au
 corps — : il n'y a propriétaire si jaloux de ses droits
@@ -1517,7 +1152,6 @@ pour mettre une vie embaumée, délicate et verte
 sur les pelouses, sur l'écorce des arbres, sur les
 pierres stériles, et la lumière, et la fraîcheur du
 matin et du soir, et la chaleur de midi — et tant
-d'autres !
 
 Mais au gré de monsieur Matou ces gens-là font :
 partie du jardin. Ce ne sont pas des intrus, ce sont
@@ -1528,9 +1162,7 @@ moelleuses, des joujoux et des ustensiles délicats,
 tout un ensemble de choses ingénieusement disposées là pour faire naître des désirs et pour
 les satisfaire. — Et les chats du dehors, qu'en
 
-MONSIEUR MATOU PROPRIÉTAIRE
 fait monsieur Matou? Cela dépend, comme vous
-verrez.
 
 Parfois, au bord d'un toit voisin s''avance timidement le museau moustachu d'un chat du dehors. Du
 haut de son mur ou de la pelouse de son jardin,
@@ -1558,11 +1190,8 @@ comme un être qu'on aurait mis là pour amuser
 
 ses regards de propriétaire : oui, pour amuser ses
 regards. Les yeux sont comme les pattes : il faut que
-ça joue.
 
 où
-
-monsieur Matou
 
 Le chat du dehors est un pauvre chat maigre qui
 ne porte ni fourrures, ni pantalons à la turque, mais
@@ -1590,7 +1219,6 @@ qui pointe au bord d'un toit.
 
 Devant ces regards persistants de monsieur Matou, propriétaire, le chat du dehors retire peu à peu
 
-MONSIEUR MATOU PROPRIÉTAIRE
 son museau, et sa queue mince traînant dans la
 
 _ gouttière, ses os saillant sous sa simple robe de poils
@@ -1599,7 +1227,6 @@ ras, il s'éloigne lentement vers le monde si compliqué des cheminées, des gre
 C'est un chat du dehors qui respecte les droits
 acquis, — réels ou imaginaires. Il serait dangereux
 de lui abandonner la conduite d'une expédition
-coloniale.
 
 Je sais des chats du dehors qui sont plus entreprenants. J'en ai surtout connu jadis, — est-ce que
 décidément tout dégénère ? — quand nous habitions
@@ -1619,16 +1246,13 @@ Ces chats du dehors s'installaient sur les murs
 mitoyens, descendaient dans la cour de monsieur
 Matou, prenaient le frais à l'ombre de ses tilleuls,
 
-monsieur Matou
 se frottaient à ses pots de fleurs et guettaient son
-gibier.
 
 Or, souvent, pendant qu'un intrus se complaisait
 ainsi à jouir des biens de monsieur Matou, monsieur
 Matou lent et solennel, grave comme la justice, impénétrable en ses desseins, apparaissait au seuil du
 vestibule. Et monsieur Matou, interminablement,
 contemplait le chat du dehors; et le chat du dehors,
-interminablement, contemplait monsieur Matou.
 Mais c'était là, je vous assure, des contemplations
 terribles. Monsieur Matou avec des vivacités inattendues, détendait le panache de sa queue successivement vers les quatre points cardinaux. Le chat du
 dehors, avec sa mâchoire effilée, faisait le bruit
@@ -1639,14 +1263,12 @@ Il y avait échange de gifles, des corps poilus roulés et boulés, des museaux 
 d'oreilles. Maïs chaque bataille aboutissait à la victoire de monsieur Matou, lequel se sentait fort
 parce qu'il avait de son côté toutes les lois divines
 et humaines, ce qui est assurément un appoint con- |
-sidérable.
 
 Et le chat du dehors s'enfuyait éperdu vers le
 quartier de cavalerie ou vers les écuries du marchand de vins en gros.
 
 Ces temps sont déjà lointains. Aujourd'hui, mon-
 
-: MONSIEUR MATOU PROPRIÉTAIRE
 sieur Matou jouit à peu près paisiblement de son
 domaine herbu et feuillu. N'étant plus menacé d'intrusions nouvelles, il s'assoupit dans la mollesse et
 se désintéresse des questions sociales. Quand il
@@ -1659,8 +1281,6 @@ Les chats du dehors sont-ils plus timides qu'autrefois ? Je pense qu'en nos para
 vient de ce qu'ils ne hantent pas le quartier de cavalerie ou les écuries des marchands de vins en
 gros, lieux redoutables où l'on s'habitue à toutes
 sortes d'excès délictueux ou criminels.
-
-SAGESSE DE MONSIEUR MATOU
 
 Il faut être juste. Pour la Grammaire comparée
 de l'anglais et de l'allemand, monsieur Matou
@@ -1675,7 +1295,6 @@ sentiment de la Grammaire comparée, laquelle est
 un répertoire imposant de phénomènes linguistiques
 et qui n'ignore rien des grandes hypothèses biologiques non plus que des bonnes méthodes expérimentales. Mais, de ce qu'on est fermé aux choses
 de la linguistique, de la biologie et de la méthodologie, s'ensuit-il qu'on est un ignorant et un
-barbare ?
 
 Comment monsieur Matou n'aurait-il pas acquis
 des connaïissances utiles ou même superflues, lui
@@ -1683,9 +1302,6 @@ qui a le goût et la patience d'observer ? Car vous
 saurez que monsieur Matou est très observateur.
 Et ses observations portent également sur les
 
-6o
-
-SAGESSE DE MONSIEUR MATOU |
 circonstances qui pourraient lui devenir avantageuses et sur celles où il n'a rien à gagner.
 
 Or, je sais gré à monsieur Matou d'observer
@@ -1704,7 +1320,6 @@ demande qu'elle s'ouvre, qu'au moins elle s'entrebâille ; et comme elle tarde �
 plus courte, plus grêle, plus pitoyable. Monsieur
 Matou sait attendrir nos cœurs endurcis.
 
-Enfin, deux mains bienfaisantes interviennent
 sur la tête de monsieur Matou, et la croisée s'entrebâille, et monsieur Matou se coule dehors, d'abord
 sur l'appui de la fenêtre, ensuite sur le toit de la
 petite serre adossée à la maison. A qui appartiennent les deux mains bienfaisantes qui sont
@@ -1712,12 +1327,7 @@ intervenues ? C'est une question que monsieur
 Matou ne se pose pas. Il lui paraît tout simple que
 la ferveur de sa détresse et l'humble douceur de ses
 
-Gr
-IV
-
-monsieur Matou
 plaintes réitérées aient eu raison d'une fenêtre
-close.
 
 Maintenant, il siège gravement sur le mur, le mur
 à l'âme égoïste et glacée qui ne parle que du mien
@@ -1744,13 +1354,10 @@ retrouveraient dans un vol d'oiseau, dans la quête
 aérienne d'un insecte. Maïs de ce que monsieur
 Matou ne remarque pas précisément Les choses que
 
-SAGESSE DE MONSIEUR MATOU
 remarqueraient vous, moi et la Grammaire comparée, faut-il en conclure qu'il est incapable
 d'acquérir des connaissances utiles ou même
-superflues ?
 
 — Que fait monsieur Matou ? chuchotent les
-feuilles d'acacia.
 
 Vous savez comme les feuilles aiment à chuchoter.
 
@@ -1765,7 +1372,6 @@ fausses notes de sa voix qui crisse et qui grésille.
 Jeu très grave et très immobile, coupé d'étonnemenis et enveloppé de rêveries. Où finit le jeu d'une
 âme qui s'amuse à sentir et où commence l'examen
 curieux des choses pour leur vérité ou pour leur
-beauté ?
 
 — Enfin, que fait monsieur Matou sur ce mur à
 l'âme égoïste et glacée? murmurenit les brins d'herbe
@@ -1779,19 +1385,16 @@ Mais comment les brins d'herbe et les petites
 plantes du jardin comprendraient-ils ce que cela
 veut dire ? Pour les petites plantes et pour les brins
 
-monsieur Matou
 d'herbe, le monde ne va pas plus loin que le mur à
 l'âme égoïste et glacée.
 
 Pourtant notre ami le jeune moineau a raison. Il
 n'a pas tout à fait perdu son temps à l'école des
 Moïneaux. Monsieur Matou étudie les choses du
-dehors.
 
 Les choses du dehors sont très considérables et
 vont bien au delà des murs à l'âme égoïste et glacée.
 Les choses du dehors consistent en tours et détours
-étranges, en enfants mal intentionnés, en bruits
 redoutables, en chiens qui aboïent et en véhicules
 qui écrasent. Il s'y rencontre aussi nombre de soupiraux entr'ouverts sur des caves où il est bien
 chanceux de s'engoufirer, car beaucoup s'y aventurèrent qui jamais plus n'en sortirent. Monsieur
@@ -1810,7 +1413,6 @@ Pénélope et ses troupeaux de cochons.
 Et maintenant, monsieur Matou reste sagement
 au bord de ce monde plein de mystère et d'effroi.
 
-SAGESSE DE MONSIEUR MATOU
 Sous son petit nez couleur d'anémone, se meuvent
 des gens, des chiens, des véhicules. Vers lui montent
 les rumeurs de la rue, et desenvirons proches et des
@@ -1823,11 +1425,6 @@ jolis, d'obscure malveillance et d'appareils bruyants,
 vers le faîte du mur à l'âme égoïste et glacée où
 monsieur Matou surgit du bourrelet circulaire de
 poils que forme autour de lui le panache de sa
-queue.
-
-IV.
-
-UN VOYAGE DE MONSIEUR MATOU
 
 Monsieur Matou a fait dans sa vie trois grands
 voyages. Trois fois il a erré pendant dix longs
@@ -1850,10 +1447,8 @@ notamment le poisson et les bains de pieds.
 Mais il fut un temps où toutes ces sortes de nonchalance et d'activité ne suffisaient pas, celles-là à
 calmer, celles-ci à fatiguer les inquiétudes singu-
 
-VOYAGE DE MONSIEUR MATOU
 lières d'une âme encore neuve que sollicitait l'inconnu tout proche, — cet inconnu qui bruissait,
 murmurait, chantait ou miaulait de l'autre côté des
-murs.
 
 Monsieur Matou commença par de courtes expé-
 ditions. Ils'en fut chez le marchand de vins en gros,
@@ -1876,9 +1471,6 @@ exprimèrent la crainte que dans ces vilains endroits
 monsieur Matou n'abimât ses fourrures café au lait,
 son gilet blanc, ses pantalons à la turque, et que
 d'autre part il ne devint un chat de mauvaise compagnie ainsi qu'il en est tant parmi les chats du
-dehors.
-
-monsieur Matou
 
 La vérité est que monsieur Matou, dans ces contrées aux apparences nouvelles et diverses, parmi
 ces chats du dehors qui différaient entre eux quant
@@ -1905,9 +1497,7 @@ ont pâli. Tant d'actes se jouent et tant de visions |
 se dressent entre mon désir de narrer le premier
 voyage de monsieur Matou et la réalité lointaine
 
-: __ VOYAGE DE MONSIEUR MATOU
 de ce voyage, que j'ai grand peine à rétrograder
-jusque-là.
 
 Pourquoi n'ai-je pas, au temps même où monsieur
 Matou disparut, fut absent, puis revint, noté au
@@ -1932,8 +1522,6 @@ les tilleuls de la cour et dans les corridors du logis.
 A la table de famille, chacun de nous exprima, en
 conjectures plus ou moins subtiles, pourquoi, comment et vers quels lieux monsieur Matou s'en était
 allé. Au commencement des repas, on émettait des
-
-monsieur Matou
 
 jugements sévères, affûtés aux rigueurs de la morale
 bourgeoise, laquelle est dure pour les tentatives
@@ -1966,8 +1554,6 @@ que monsieur Matou ne revint pas.
 introduirait dans cette honorable cour et dans cet
 | Le
 
-ah TR NRA
-VOYAGE DE MONSIEUR MATOU 4
 honorable logis la mauvaise tenue, les mauvaises
 _ manières et le mauvais esprit des chats du dehors.
 
@@ -1987,17 +1573,14 @@ leurs feuilles dentelées et nuancées :
 
 — Eh! que monsieur Matou introduise ici tout ce
 qu'il voudra, pourvu qu'il revienne ici nous tenir
-compagnie.
 
 Car ces bons géraniums, comme tant de citoyens
-paisibles, aimaient leurs petites habitudes.
 
 Cependant, Louis allait de porte en porte interroger les voisins. N'avaient-ils pas vu monsieur
 Matou? Et à ceux qui ne connaissaient pas monsieur
 Matou, Louis fournissait le signalement du voyageur. Mais ces démarches n'aboutirent à rien. Louis
 ne nous rapporta que les condoléances de trois voisines éminemment respectables : la femme du mar-
 
-monsieur Matou
 chand de vins en gros, la blanchisseuse borgne et la
 sage-femme. Car ces trois dames aïmaient les animaux.
 
@@ -2006,18 +1589,15 @@ choses familières qu'avait égayées la présence de
 monsieur Matou. Chacun se dit à sa manière: Il
 ne reviendra plus. Et sauf les orangers, qui ont
 des sentiments délicats, chacun souffrit à cette
-pensée.
 
 Le pire, c'est que nos imaginations travaillaient
 sur le cas de monsieur Matou avec un zèle extrême
 à forger des hypothèses terrifiantes. Nous nous figurions tour à tour monsieur Matou perdu dans la
 forêt, monsieur Matou devenu chat savant dans un
 cirque forain, monsieur Matou emprisonné par une
-vieille demoiselle indélicate, monsieur Matou mué
 en gibelotte de lapin dans un restaurant à prix
 modiques. Et ces hypothèses, la dernière surtout,
 nous donnaient à réfléchir sur les conséquences des
-expéditions lointaines.
 
 Pourtant, de même qu'Odysseus, après avoir erré
 dix ans de mer en mer et d'île en île, revit enfin
@@ -2028,10 +1608,6 @@ famille, sa cuisine, sa cour et ses géraniums.
 
 Un sauveur se présenta.— Était-ce un garçon bou-
 
-\4
-
-)
-VOYAGE DE MONSIEUR MATOU
 langer ou un garçon marchand de vins? A quelle
 corporation appartenait ce personnage oflicieux et
 sympathique ? Hélas! beaucoup de circonstances
@@ -2062,9 +1638,6 @@ après tout, monsieur Matou, de la sorte amenuisé
 par le jeûne et les fatigues du voyage, paraissait
 bien comme il faut.
 
-à
-
-monsieur Matou
 — Eh! venez donc, monsieur Matou, dirent les
 bons géraniums; venez vous mettre sous nos feuilles.
 Pourquoi donc nous aviez-vous quittés ?
@@ -2074,17 +1647,9 @@ sédentaire qu'elles ne saisissent pas du tout la
 nécessité des déplacements.
 -
 |
-!
-À
-
-'
-in
-
-MONSIEUR MATOU A LA FONTAINE
 
 IL pleut ennuyeusement, d'une pluie dense et
 menue qui brouille les lointains. Voici que les maisons ne sont plus que des taches grises, les bonshommes des ombres grises, les arbres des silhouettes
-grises.
 
 La fenêtre de la petite chambre où je travaille est
 ouverte: car l'air s'est fait rare et pesant. Sur la
@@ -2092,7 +1657,6 @@ tablette que vous savez, monsieur Matou s'est installé à la manière d'un phoq
 fourrures, son museau couleur d'anémone. Mais
 monsieur Matou n'est pas de ces chats qui craignent
 l'eau : tout au contraire, monsieur Matou est un chat
-aquatique.
 
 Je voulais vous dire ses deux derniers voyages :
 mais le récit vous en serait monotone. Pour le premier voyage, je n'ai pu que hasarder timidement
@@ -2100,14 +1664,12 @@ quelques conjectures et relater ce qui se passa chez
 nous entre le départ et le retour du voyageur. Pour
 les deux derniers, je ne saurais procéder différemment, puisque, pas plus la seconde et la troisième
 
-monsieur Matou
 fois que la première, je ne suivis monsieur Matou
 dans ses tours et dans ses détours.
 
 N''est-il pas plus opportun, puisque la pluie, dense
 et menue, tombe et que monsieur Matou s'en réjouit,
 de dire en quoi monsieur Matou s'est révélé chat
-aquatique.
 
 Monsieur Matou naquit au Pecq, au bord de la
 Seine, fleuve paisible et sinueux. Du père de monsieur Matou, je n'ai rien su ni ne saurai jamais rien.
@@ -2130,14 +1692,9 @@ l'atmosphère humide.
 
 La fontaine en grès, personne d'âge qui occupeun
 coin de la cuisine, répand, à ce sujet, des propos
-intarissables.
 
 — Monsieur Matou, m'a-t-elle dit, s'installe volon-
 
-76 ;
-
-es 08 … L'ART A
-à MONSIEUR MATOU A LA FONTAINE
 tiers sur mon couvercle. Il aime la fraîcheur de ce
 contact. Le chant des eaux qui coulent de mon robinet dans les carafes plaît à son âme musicale. Ce
 monsieur Matou est vraiment bien sympathique.
@@ -2161,8 +1718,6 @@ porteur montait l'eau de la cour au second étage. A
 présent, dans le nouveau logis, l'eau vient d'ellemême là où il est bon qu'elle vienne, de sorte que
 les seaux ne servent plus guère. C'est pourquoi
 
-* F
-monsieur Maiou
 monsieur Matou a reporté ses affections de chat
 aquatique des seaux à la fontaine de grès, personne
 d'âge, qui occupe un coin de la cuisine.
@@ -2171,9 +1726,6 @@ Aux beaux jours, il la vient trouver, s'installe sur
 son couvercle : là il trône et préside aux agissements
 culinaires. Et cependant, la fraicheur du grès l'imprègne d'agréables sensations ; le chant des eaux qui
 coulent du robinet dans les carafes plaît à son âme
-musicale.
-
-CAPRICES
 
 Monsieur Matou aime à varier les circonstances
 de sa vie. C'est pourquoi il couche rarement huit
@@ -2202,12 +1754,10 @@ mousseline, et jen'apercevais plus dans la pénombre,
 à travers le réseau des fils ramagés, qu'une boule
 de poils ronde et immobile.
 
-monsieur Matou
 Au bout d'une huitaine, monsieur Matou décida
 qu'il passerait ses nuits ailleurs. Il nous laisse, nous
 autres, à la routine de nos habitudes, et il suit ses
 petits caprices, que gouvernent de petites causes
-généralement inaperçues.
 Donc après avoir gravi l'escalier en galopant,
 t comme s'il chassait à courre, au lieu de s'élancer
 dans ma chambre, monsieur Matou s'élança dans la
@@ -2227,15 +1777,12 @@ Subitement, monsieur Matou fit cette découverte
 admirable que rien n'était plus pittoresque, ni plus
 sûr, ni plus doux que de se vautrer sur le palier du
 premier étage, dans l'embrasure d'une porte close.
-Done monsieur Matou coucha durant quelques |
 nuits sur le palier du premier étage dans l'embra- |
 sure de la porte close. En vain le marbre froid de
 
-CAPRICES
 la console lui offrait l'hospitalité. Monsieur Matou
 É attendit pour se coucher sur le marbre froid de la
 console que les nuits fussent un peu moins chaudes.
-En agissant à contre-sens monsieur Matou dut se
 prouver à lui-même l'indépendance de son moi.
 
 Je prétends que si monsieur Matou avait ses
@@ -2291,15 +1838,11 @@ pousser avec sa patte pour les rendre mobiles.
 
 Rien de tout cela n'est drôle. :
 
-À
-
 Monsieur Matou ne connaît pas les inconvénients
 du langage verbal. Nommer un sentiment n'est pas
 expressif : Le mot qu'on fait sonner en l'articulant
 éveille chez autrui des sensations étrangères à nos
 sensations et des images lointaines de nos images.
-
-ET LES CIRCONSTANCES DE SA VIE
 
 Crier un sentiment est expressif. C'est le procédé
 ordinaire de monsieur Matou. Ses cris sont une
@@ -2332,7 +1875,6 @@ s'offenser de ces réflexions et observations.
 
 Il continue.
 
-Surune marche del'escalier siège monsieur Matou
 entre deux barreaux. Il regarde bien devant lui.
 Comme l'escalier tourne, il y a devant lui un mur
 et, en baïssant la tête, il voit d'autres marches,
@@ -2349,16 +1891,13 @@ mais la fuite. Or ici, il n'y a point matière à
 frayeur. Ces gens qui montent au premier étage ou
 qui en descendent, monsieur Matou ne les craint
 pas, puisqu'il est plus haut qu'eux dans l'escalier.
-*
 Jadis vivait chez nous mademoiselle Fédora, dite
 Petit Loup, chienne griffonne de menue taille qui |
 ayant ioujours été rageuse, criarde et vindicative, |
 devint en sus obèse et sourde avant l'âge, par l'effet |
 de l'inaction et de la goinfrerie. 1
 Monsieur Matou et mademoiselle Petit Loup se
-84 |
 
-ET LES CIRCONSTANCES DE SA VIE
 souffraient l'un l'autre. Après quelques rares conflits où mademoiselle Petit Loup eut tous les torts,
 ils vécurent en paix sous le même toit.
 
@@ -2414,7 +1953,6 @@ jusqu'à la tombée de la nuit.
 Monsieur Matou n'aime pas le croquet. Le croquet
 amène dans le jardin que monsieur Matou considère comme sa propriété des dames en toilettes
 
-ET LES CIRCONSTANCES DE SA VIE
 . claires, des messieurs bruns très moustachus, des
 enfants qui font des courses sans but et des gestes
 inutiles. Le croquet ne va pas sans boules de bois
@@ -2434,17 +1972,13 @@ dans sa cage.
 
 La maison est pleine de choses qui jouissent d'un
 pouvoir merveilleux soit pour le bien, soit pour le
-mal.
 
 Parmi les choses bienfaisantes, le panier à provisions tient la place d'honneur. Ce panier à provisions joue dans la vie matinale de monsieur Matou
 un rôle fort important. Dès neuf heures, monsieur
 Maiou se poste auprès du panier vide. La présence
 de monsieur Matou rappelle au dit panier que l'heure
-s'approche d'aller aux provisions.
 
 Le panier s'en va au marché. Monsieur Matou
-
-monsieur Matou
 
 attend son retour. Pendant une bonne heure, monsieur Matou, assis et tassé en boule sur une chaise
 de l'antichambre, attend avec impatience et gravité.
@@ -2452,7 +1986,6 @@ Les gens qui entrent ou qui sortent caressent monsieur Matou de la main ou lui a
 paroles. Ni les caresses, ni les bonnes paroles
 n'arrivent à distraire monsieur Matou de sa tâche
 silencieuse et immobile qui est d'attendre le panier
-à provisions.
 
 Quoi qu'en dise une critique superficielle, monsieur Matou a beaucoup de suite dans les idées.
 
@@ -2474,10 +2007,6 @@ est évident — n'est-ce pas? — que c'est le panier
 qui gouverne la personne et non la personne qui
 gouverne le panier.
 
-LETTRE A MONSIEUR MATOU
-Bruxelles, premier novembre 1902
-Cher monsieur Matou
-
 Pourquoi ne vous écrirais-je pas? Vous m''envoyâtes bien jadis votre carte de visite au jour de
 lan. Sans doute ce n'était pas vous-même qui vous
 étiez fait faire des cartes de visite ni qui, ayant
@@ -2486,7 +2015,6 @@ rectangles, me l'aviez fait tenir en temps voulu, pour
 ma surprise et pour ma joie. La surprise passée,
 et la joie rassise, j'avais facilement deviné qu'on
 avait agi pour vous et quiavaitagi pour vous. L'idée
-imprévue, singulière, gravement comique venait
 d'une âme charmante que nous aimons tous deux.
 
 Mais, croyez-le bien, monsieur Matou, si vous
@@ -2502,9 +2030,6 @@ celle dont tous les vivants seront les citoyens.
 Or vous étiez un chat remarquable à plusieurs
 égards. Bien que d'humeur toujours indépendante
 
-VI
-
-monsieur Matou
 et fantasque, vous considériez d'un œil indulgent
 la conduite des actions humaines. Vous assistiez |
 attentivement à la pratique de nos usages, au travail
@@ -2533,10 +2058,6 @@ fortuites, vos manies héréditaires et vos fantaisies
 soudaines, le désordre parfois bizarre de vos actes,
 la loi souvent cruelle de vos appétits. Les plus belles
 
-90 n
-
-Re
-; LETTRE A MONSIEUR MATOU
 qualités, même chez l'homme, n'existent pas à l'état
 pur. Les meilleurs d'entre nous obéissent à des dé-
 sirs pernicieux et absurdes dont l'origine fort ancienne échappe encore aux recherches des savants.
@@ -2566,7 +2087,6 @@ palpés, consultés, examinés, ou qui les ai vu
 manier, palper, consulter et examiner, je sais ce
 qu'ils penseraient, voudraient et diraient, si la
 
-monsieur Matou
 conscience leur venait soudain. J'ai fait comme si
 la conscience leur était venue. Je l'ai fait sans pré-
 méditation, sans étude, sans effort, comme si de
@@ -2594,43 +2114,7 @@ besoin d'un nouveau portrait se fait sentir, car
 monsieur Matou a maintenant plus d'ampleur qu'autrefois, et sa physionomie est moins distraite.
 
 Malheureusement, monsieur Matou a peur des
-appareils photographiques. ;
 
-A. :
-
-us Jia ie PTE -
-Le DUREE FE) FR TO à “# it
-RURENES ee TER LEVÉ MORTE IT Or 2 T6 SACS
-Mate SE MENT NO ETES ARE RS PU
-4 LE AR MIR ATURET DEEP SRE" AT AL Eu à POVNET
-9 a ME AC BAR EN RS \ var 04 SRE
-} FLAN ee RASE Ua Date 2 EC CEE
 t AR | ax MoN ; D MER UE la Pet 1 ; PA AT. lt
-\ KANEÉ NE DES 15) ï CR v \d DER
-0 RENTE) ; k vi ER
-+ LCD TRCA ER Eavie : s ‘ : TE
-SAUTER ' F A Fe
-y RE AM à "T0
-CE Die 1e, ; + +‘ NEURR
-1 TEE RTE SR ONU RUN
-Écrit à Bruxelles en 1902 EC
-- Hg SFA EX A LR CPE / Pa £ r4"
-+ Da } [HUE 44 : us
-Lx JA es V2) ,
-14. 1.20 4.24" APNEREESS NEA te.
-REMACAUALLE 2 [AL OR é à Fra
-RAA DEMETIDIPS CE, à D
-RE 7€ FAR ri + L'ELLA Na
-ADR CPU ATX + S - MUR
-f HAL { > FO ARE 7 ; ve {
-ÿ D : È L'EAU pe 2 2-0
-LP CORRE , RER CT
-PAL cu he rs » « Ve: . LME
-MALE at : LOL
-FORM Mi : L $ de
-x y) EUX … 5
-D, ui LS
-LL AU A PT Qu, |
 
 |
-SN NN UE POSE" PRIS en

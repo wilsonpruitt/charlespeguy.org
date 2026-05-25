@@ -7,9 +7,6 @@ author: lionel-landry
 isAvertissement: false
 wordCount: 3083
 ---
-
-*Lionel Landry*
-
 Quand notre ami Lionel Landry partit volontaire pour
 tenir dans le corps expéditionnaire un emploi de non
 belligérant, il vint rapidement nous dire adieu. On pouvait croire alors que l'expédition ne serait pas ce qu'elle
@@ -34,9 +31,6 @@ l'absence de boutique où l'on puisse acheter à peu près
 honnêtement, je ne rapporterai rien de Chine.
 
 Je tâcherai de vous écrire à chaque courrier.
-Lionel Landry
-à Lionel Landry
-Tien-Tsin, 13 novembre 1900
 Mon cher Péguy
 Ramené à Tien-Tsin par l'hivernage, je puis enfin
 vous envoyer ces notes depuis longtemps promises.
@@ -55,7 +49,6 @@ peut-être dix mille kilomètres carrés, tous les habitants ont fui, les villag
 
 Tong-Kou, port de Tien-Tsin, en face de Ta-Kou,
 est en ruine. Il n'y reste que les Européens et leurs
-coolies.
 
 De Tong-Kou à Tien-Tsin, le pays est désert.
 
@@ -81,12 +74,10 @@ pillés et abandonnés — excepté quelques vieillards
 qui n'ont pu fuir et meurent sur place.
 
 Toung-Tchéou, ville considérable, centre de l'industrie des porcelaines, à qui l'on donnait 2 ou
-300.000 habitants, en abrite peut-être maintenant
 10.000. C'est, au dire de tous, la vue la plus tragique
 qu'on puisse rencontrer en Chine et, au dire de
 quelques officiers revenus du Soudan ou du Tonkin,
 cela dépasse les horreurs ordinaires des guerres Ni
-coloniales.
 
 Cette ville malheureuse a accueilli amicalement
 les troupes alliées; elles l'ont laissée intacte en partant pour Pékin. Les détachements suivants, les
@@ -96,11 +87,9 @@ nations l'ont ensuite massacrée et pillée jusqu'à
 l'anéantissement. On a là, sans conteste, tué des
 femmes et des enfants — autre part aussi probablement. Les Russes ont brûlé et saccagé d'immenses
 
-Lionel Landry
 magasins de thé et de porcelaine. La ville est
 déserte, mais les chiens sont revenus aux foyers
 qu'ils gardaïent, et maintenant y meurent de faim,
-résignés.
 Pékin est à demi-désert : on n'y fait plus commerce que d'objets pillés ou volés.
 
 Les étrangers ont fait autant et pis que nous.
@@ -115,12 +104,10 @@ se communiqua aux corps qui suivirent.
 Il ne se rencontra pas dans le haut commandement, lorsqu'il fut assumé par le général Frey,
 cette prédication d'exemple qui est nécessaire aux
 chefs pour maintenir leurs subordonnés dans le
-devoir.
 
 Après Tien-Tsin on ne se battit plus; une armée
 de pillards ne peut plus se battre. Ce sont les soldats de Dupont entre Cordoue et Baylen. Il n'y eut
 pas de résistance sur la route; Pékin, défendu, eût
-été imprenable.
 
 Le pillage de Pékin fut complet et l'exemple vint
 de haut. Ce ne sont pas des accusations que j'apporte ici: car je n'ai pas de preuve absolue, mais
@@ -134,7 +121,6 @@ dernière; elles n'y resteront pas.
 
 Beaucoup de visiteurs militaires et civils se
 ceignaient d'étuis de jumelles ou d'appareils photographiques qui peu à peu se remplissaient de
-bibelots.
 
 Il semble que M. Pichon ait reconstitué et au delà
 le mobilier détruit dans la légation française pendant qu'il était en sûreté à la légation anglaise. On
@@ -154,7 +140,6 @@ dessus à Rome, où l'on dit qu'il va.
 Les religieuses se firent donner des corvées d'infirmiers, qu'elles menaient aux bons endroits; elles
 ont retrouvé sous les ruines des objets de haute
 
-Lionel Landry :
 valeur, fourrures, meubles, etc. D'ailleurs elles n'en
 tiennent pas boutique et en font bénéficier libéra- Ê
 lement les malades; inutile de dire que les infir- û
@@ -184,7 +169,6 @@ Au début le massacre était général; on tuait les
 Chinois pour le plaisir, ou bien parce qu'on ne
 voyait pas leurs mains. Plus tard, on ne tirait plus
 que sur ceux qui n'avaient pas le drapeau d'une des
-puissances.
 
 Actuellement on brûle les villages ; des missionnaires, notamment le père D., à Toung-Tchéou,
 guident les colonnes, indiquent les endroits à piller,
@@ -206,11 +190,9 @@ cheveux. L''oflicier qui a vu le fait a d'ailleurs fait
 
 saisir cette brute et aura soin de son avenir. Des
 soldats volent les guenilles des coolies pour les
-revendre à d'autres coolies.
 
 J'ai entendu un médecin de la marine dire à des
 soldats qui embarquaient sur des jonques : « Ne
-Lionel Landry
 
 prenez pas de bois, vous prendrez celui des coolies ; À
 ce n'est pas la peine d'installer un fourneau; vous
@@ -230,7 +212,6 @@ rêver de conseils de guerre.
 
 L'indignation générale de tout ce qui réfléchit, la
 direction honnête du général Voyron ont maintenant à peu près arrêté le pillage. Mais le mal est
-irréparable.
 
 Les Russes ont partout donné l'exemple du pillage et du massacre. Ce sont eux surtout qui ont
 détruit Toung-Tchéou. Leur brutalité, leur duplicité
@@ -241,7 +222,6 @@ Des gens bien informés m'ont dit que les articles
 
 publiés par la Dépêche de Toulouse sur l'attitude
 de la Russie étaient l'exacte vérité. Je n'ai pu encore les lire; ils annonçaient ce que nous voyons
-ici.
 
 Il y a beaucoup à dire sur ce que nous voyons
 ici. Je vais tâcher de vous écrire à chaque courrier.
@@ -252,8 +232,6 @@ donnent l'air d'avoir tout fait; que vos lecteurs
 rectifient d'eux-mêmes les exploits anglais accomplis par les journaux.
 
 Amitiés à nos camarades et à vous.
-Ë Lionel Landry
-Tien-Tsin, 27 novembre 1900
 Mon cher Péguy
 
 Je reviens un peu sur le sujet dont je vous ai
@@ -263,8 +241,6 @@ Depuis l'arrivée du général Voyron, de grands
 progrès ont été faits. Dans les colonnes du lieutenant-colonel Drude, du lieutenant-colonel Chirlonchon, du général Bailloud, il n'y a pas eu de pillage, excepté des villages qui avaient résisté. Le
 général Baïlloud a su faire complètement respecter,
 du moins des témoins sérieux et honnêtes me l'ont
-
-Lionel Landry
 
 dit, la partie de la ville occupée par les troupes
 françaises. Il a refusé un présent assez considérable
@@ -329,7 +305,6 @@ qui ne leur ont pas coûté cher. En fait, tel lieute-
 nant allemand a six mille francs d'économies ; nous
 n'en avons pas encore. »
 « Le général Baïlloud s'est honoré et nous a hono-
-rés à Pao-Ting-Fou. »
 « Militairement parlant, les seules forces sérieuses
 ici sont les forces françaises, allemandes et japo-
 naises. Les Américains sont une jolie bande d'aven-
@@ -362,13 +337,10 @@ savez que je vous laisse toute liberté.
 
 Votre dévoué,
 
-Lionel Landry
-
 Irrévocablement le huitième cahier sera le Bacchus,
 drame en trois actes, dont notre ami Landry nous
 remis la copie avant de partir en Chine. ,
 
-N SALE LA
 Je me suis abonné avec empressement et je me permets !
 de recommander que l'on s'abonne avec empressement
 à la Bibliothèque Socialiste récemment inaugurée par
@@ -379,17 +351,12 @@ personne. Jamais on ne doit boycotter un travail sérieux.
 Quand un article de revue ou de journal, quand un
 livre parait mauvais, on doit écrire dans une revue, ï
 dans un journal ou dans un livre que cela paraît
-mauvais.
 La Bibliothèque Socialiste, que nous annoncerons
 bientôt plus en détail, a déjà publié
 de Maurice Lauzel : Manuel du Coopérateur socia-
-liste
 Émile Vandervelde : le Collectivisme et l'évolution
-industrielle
-Hubert Bourgin : Proudhon.
 Elle promet :
 de Léon Blum : les Congrès ouvriers et socialistes
-français : : À
 Lucien Herr : la Révolution sociale;
 Charles Andler : traduction nouvelle du Manifeste
 communiste, préface et notes.
@@ -416,13 +383,11 @@ installées 16, rue de la Sorbonne, au second.
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration tous les jours de la
 semaine, le dimanche excepté, — le matin de dix
-onze heures.
 
 M. Charles Péguy, gérant des cahiers, recoit pour
 la rédaction
 
 le jeudi soir de deux heures à sept heures et de
-huit heures à dix heures.
 
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 16, rue de la Sorbonne, Paris, la correspondance d'administration : abonnements et réabonnements,

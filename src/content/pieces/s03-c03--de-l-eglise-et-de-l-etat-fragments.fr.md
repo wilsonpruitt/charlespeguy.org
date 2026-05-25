@@ -7,10 +7,6 @@ author: georges-sorel
 isAvertissement: false
 wordCount: 20338
 ---
-
-À BRU RS
-
-Eu 5 L'AVENIR DES U. P.
 ont été cités ici. On sait l'état lamentable du
 Parti socialiste aujourd'hui, sa poursuite d'une
 unité étroite, pour laquelle les individus les meilË leurs comme les pires dépensent leurs forces,
@@ -24,7 +20,6 @@ manifeste là entre la centralisation et le fédéralisme,
 les vilenies des centralisateurs et les gaucheries et
 maladresses des fédéralistes, auront une influence
 considérable sur le développement et l'évolution
-É des U. P.
 Vouloir en effet soustraire les U. P.aux influences
 1 diverses qui se manifestent dans le mouvement
 ouvrier, ce serait folie. Ce serait aussi une
@@ -77,10 +72,8 @@ Ni car fédérer un aussi grand nombre d'organisations
 Seine); on conçoit les U. P. de villes voisines
 TR s''unissant utilement, travaillant ensemble à des
 
-É L'AVENIR DES U. P.
 fondations d'U. P. dans les centres intermédiaires,
 ï organisant des tournées dans les campagnes, se
-Ë prêtant leurs conférenciers, se rendant visite.
 f A Paris, la fédération pourra se faire assez rapidement, dès que chaque U. P. aura résolu pour
 Ô elle-même la question budgétaire. Dans certaine
 région provinciale, elle se prépare.
@@ -103,7 +96,6 @@ toutes les manières utiles : qu'elle réunisse les forces
 J ouvrière, tout en laissant celle-ci maîtresse de ses
 destinées et de ses institutions. Voilà ce qu'elle peut
 
-Charles Guieysse * Fe bé &.
 et doit faire, sans réunir autour d'elle, étroitement,
 È organiquement, les U. P. institutions ouvrières,
 Quant aux liens qui pourront et devront exister
@@ -139,7 +131,6 @@ E x # JMPRIMERIE DE SURESNES (G. guar| administrateur), 9, rue du Pont. — 5028
 Ve || Guieys$ë me pardonnera d'employer à ce témoignage
 personnel quelques morceaux d'un cahier'qui lui reve- Re.
 _ naittout entier, d'une couverture que je voulais attribuer
-à Pages libres. B.
 critiqué très durement dans ces cahiers mêmes, Je “3
 recommencerai aussitôt qu'on pourra le faire honné-- : K:
 …._ tement. Je suis l'adversaire le plus résolu*de son minis- EE.
@@ -172,7 +163,6 @@ brutes et des rageurs, des ennemis et des faux amis se
 soit un peu apaisée.
 Enlin je m'inscris pour ceci : J'admire plus que personne l''ardeur de M. Gohier. Je déclare qu'il a eu un
 talent presque unique. J'ajoute qu'il a eu très souvent
-DOER »
 
 À raison. Il peut redevenir un des soutiens de la Répue
 blique. Mais s'il se met sur le pied de nous mener dans”
@@ -183,7 +173,6 @@ déclaration personnelle. Mais on admettra qu'ayant
 sauvegardé ici autant que j'ai pu toutes les libertés,
 et la parfaite liberté de tous nos collaborateurs, je
 sauvegarde aussi la mienne.
-Charles Péguy
 Nous mettons ce cahier dans le commerce: nous le
 vendons un franc. ‘
 Nous en fournissons huit cents exemplaires à. la
@@ -198,13 +187,11 @@ complet : ainsi ses numéros sur la Grève de Montceau,
 4 contre la guerre de Chine, sur la Russie en révolte,
 avant le congrès de Lyon.
 Pages libres est administré par Édouard Dujardin,
-N Charles Guieysse, Maurice Kahn, Georges Moreau.
 Demander un specimen à M. Georges Moreau, 8, rue
 de la Sorbonne.
 L'abonnement normal à Pages libres est de huit francs
 par an.
 
-SR REC
 Je prie ceux de nos abonnés qui connaîtraïent à Paris
 des leçons de' sciences — mathématiques; physiques,
 chimiques — à donner dès la rentrée de novembre,
@@ -213,19 +200,7 @@ TE ne SANT PP EE ES
 
 É Nous avons donné le bon à tirer après corrections
 pour trois mille exemplaires de ce deuxième cahier le
-Jeudi 17 octobre 1901.
 LVL et
-
-10008 GEORGES SOREL
-
-JE L'ÉGLISE ET DE L'ÉTAT
-
-4 Lo FRAGMENTS
-À CR « A 4 ; .
-
-…_._ CAHIERS DE LA QUINZAINE
-
-ES ED. PARIS
 
 rue de la Sorbonne, au rez-de-chaussée
 
@@ -238,7 +213,6 @@ Ceux de nos abonnés qui voudront le lire en entier le
 trouveront dans la Revue Socialiste, numéros de août,
 septembre et octobre 1901. Ou bien ils pourront nous
 demander le tirage à part édité par la librairie Jacques,
-rue Casimir-Delavigne, Paris. È
 
 Les trois numéros de la Revue Socialiste coûtent
 quatre francs pris à la librairie des cahiers. Le tirage
@@ -253,34 +227,21 @@ qu'il se souscrit à la librairie des cahiers.
 La librairie Jacques a déjà publié du même auteur
 l'Avenir socialiste des Syndicats, un volume à
 
-1 franc;
 la Valeur sociale de l'art, un volume à 1 franc.
 
 Elle va publier du même auteur
 la Ruine du monde antique, un volume à
 
-, 3 francs 50.
-
 Elle a publié
 Karz Marx. — La Commune de Paris, traduction nouvelle et préface de Charles Longuet, un volume
 
-2 francs. 50.
-
 Épouarp BerrH. — Dialogues socialistes, un volume
-
-3 francs 50.
 
 Juces GuEspe. — Quatre ans de lutte de classe, deux volumes, chaque 3 francs.
 
-Josepn SARRAUTE. — Socialisme d'opposition,
 socialisme de gouvernement et lutte de classe,
 un volume 2 francs.
 
-jen Rai
-_ "GEORGES SOREL
-
-Ê DE L'ÉGLISE ET DE L'ÉTAT
-Re Fragments
 4 4 Beaucoup d'obscurités sont jetées sur la question
 ï du domaine ecclésiastique par suite de l'habitude
 —. que l'on a prise de le confondre avec le domaine
@@ -304,29 +265,24 @@ faire exécuter les jugements. La question est de
 
 ‘os « hr Sos 2 RE À de
 24 nous. (1) Nous sommes exposés à étre quelquefois
-L 4 . RATES
 44 trompés par nos hommes de confiance ; mais nous
 2 nous contentons de cette situation. »
 Fa Pourquoi donc fait-on des lois sur les associations
 religieuses, si celles-ci se contentent du régime du
-droit commun ? . i
 Avant la Révolution le problème de la main-
 ‘4 morte se posait surtout au point de vue agronoci mique ; on observait que les vastes domaines des
 abbayes étaient souvent négligés, parce que les
 moines ne voulaient pas se priver d'une partie de
 “4 leurs revenus pour faire des améliorations ; les
 à papes, eux-mêmes, (2) ont vainement lutté pendant
-‘124 4 < . -
 ne des siècles pour tâcher de faire cultiver la cam11 pagne romaine. On pensait que des familles atta-
 “408 chées au sol cultiveraient mieux que des corpo-
 “8 rations, qui avaient tous les vices des latifundistes
 vivant loin de la terre et ne s'y intéressant pas.
 11 L'expérience a prouvé que l'on ne s'était pas
-ee trompé.
 744 On trouvait qu'il était absurde, en un temps où
 à RE (1) Il est à noter que la loi de 1884 sur les syndicats profesNES sionnels n'a pas beaucoup tenu compte de cette considération, car À
 le syndicat peut disparaître sans qu'on ait de recours contre ses a
-‘1€ membres. À
 Ten) (2) Sabatier. :'Église et le travail manuel, pages 144-205. Les papes
 VE autorisèrent à cultiver les latifundia incultes en payant aux pro- !
 OR priétaires des redevances en nature déterminée — du cinquième au
@@ -335,9 +291,6 @@ For terres que les propriétaires laisseraient incultes, alors qu'elles
 un étaient comprises dans l'assolement obligatoire qu'il avait imposé à
 Dust la campagne romaine.
 
-‘CE 2 À
-ie AAC té
-:; "FEES Ve NE ME RES
 le pays était pauvre, de prélever sur le revenu total
 une somme énorme destinée à entretenir une grosse
 armée de gens qui restaient inoccupés. Il est assez
@@ -348,7 +301,6 @@ pour leurs enfants.
 On sait, enfin, combien la question de la population préoccupait nos pères; ils pensaient que la
 propriété est surtout faite pour les familles, pour
 permettre d'élever les enfants ; ainsi les monastères devaient leur paraître ne pas mériter le droit d'être
-propriétaires. (1)
 Aujourd'hui les considérations économiques n'ont
 —_ plus autant de valeur qu'au dix-huitième siècle.
 — Dans l'Église s'est formé un parti militant; sa
@@ -363,20 +315,15 @@ propriété, au point de vue de la philosophie de l'histoire, quand on
 ne la rattache pas à la famille. Beaucoup de théoriciens ont comrprtal négligé ce point de vue, faute d'avoir considéré les
 
 ‘4 * poursuivre librement des fins particulières; il faudra
-on. “ LS . .
 mo, _ plutôt les comparer aux séminaires, chapitres de
 PAS cathédrales, fabriques d'église ; elles ne seront pas
 He assimilées aux associations ayant acquis la person120 nalité civile par une déclaration d'utilité publique
 ‘584 elles deviennent des corps auxiliaires, presque des
-1 0Pe $ . .
-é We établissements publics. (1)
 L IL est bien remarquable que d'après la théorie de
 ‘4 M. Waldeck-Rousseau ces associations religieuses
 14 officielles ne seront jamais propriétaires ; elles
 ne auront seulement l'administration de certains biens,
-ER : É:
 11 affectés aux usages en vue desquels l'État les autoÀ #4 3 rise à fonctionner. Mais si elles viennent à être disFa , soutes, les donateurs pourront revendiquer les
-A :] es
 ‘4 biens, sans qu'on puisse leur opposer la prescrip_ tion; et ce qui n'aura pas été vendu deviendra bien
 #4 te sans maître. (2) Je crois que cette doctrine est celle
 1070 qui correspond le plus exactement à la vraie nature
@@ -389,8 +336,6 @@ vel et qu'il faut faire appel, le plus qu'ilest possible, à
 RUB. | une préparation de l'abolition du Concordat; elle me semble être
 ‘13 un renforcement du régime concordataire. M. Waldeck-Rousseau ne
 à 078 lui a pas, d'ailleurs, attribué un autre caractère. au
-10 (2) Journal officiel, 29 juin 1901, pages 1660-1661.
-4 Me: YA
 
 j l'expérimentation. Le régime parlementaire est
 fondé sur le même principe que le régime économique capitaliste ; il ne fonctionne convenablement
@@ -421,8 +366,6 @@ accordé par Dieu à l'homme, son idée d'une communauté humaine régie par la 
 
 *i de raisons qui lui rendent difficile de saisir cette déchirure complète pratiquée par l'homme dans
 
-A5 . »
-
 la nature, cette indépendance de chaque produc- teur qui essaie ce qu'il invente en n''exposant que
 
 40 lui-même, cette rage de destruction des aspects
@@ -436,8 +379,6 @@ la nature, cette indépendance de chaque produc- teur qui essaie ce qu'il invent
 :, Les auteurs catholiques ont assez généralement bien vu que l'anarchie religieuse, l'anarchie poli-
 
 4 tique et l'anarchie économique se tiennent très
-
-Re 2 ‘ 1: : Û
 
 étroitement dans l'histoire moderne; ils ont cru que
 
@@ -454,12 +395,9 @@ D : dont le protestantisme devrait porter la principale responsabilité. (1) « 
 V 4 semblable que c'est l'inverse qui est vrai; le protesà tantisme est devenu libre quand il a pénétré dans
 4 (1) Charles Antoine, Cours d'économie sociale, pages 190-191. L'auPal teur est jésuite.
 
-LISTE USSR
-
 des classes qui pratiquaient la liberté industrielle,
 et ce sont ces classes qui ont amené les anciennes
 constitutions représentatives à revêtir la forme
-parlementaire.
 
 Nous avons relevé ailleurs que le christianisme
 avait laissé de côté la considération des droits pour
@@ -481,10 +419,8 @@ remarquable dans l'Église.
 
 @) Waltzing. Étude historique sur les corporations professionnelles
 chez les Romains, depuis les origines jusqu'à la chute de l'Empire,
-tome II, pages 481-482.
 
 ne | L'un des plus grands efforts de la lés islation | À
-A a P gr sd |; ACER ER
 k . moderne a eu pour but de séparer, autant que pos- ti
 D sible, l'administration et la justice, afin que les
 Re habitudes d'esprit que prend l'administrateur ne
@@ -500,7 +436,6 @@ h | Les formalités du droit civil ont acquis une telle
 110 _ importance que pour assurer des garanties aux
 accusés, on n'a pas trouvé de meilleur moyen que
 711 _ de copier, en matière criminelle, la procédure
-ve | civile. f.
 4 Contre ce procédé, les criminologistes contem_ porains ont élevé beaucoup d'objections: illeurest
 ‘à 44 n facile, évidemment, de montrer que le procès civil
 h : 112 et le procès criminel ne se ressemblent en aucune
@@ -511,7 +446,6 @@ l'autorité qui le poursuit. Suivant les criminolo
 gistes, il aurait fallu remettre l'accusé à des experts
 : 53e _ chargés d'examiner quelles sont les mesures les
 rs plus efficaces à prendre pour le mettre hors d'état ) 5 û
-Pr LM Pi ‘ tr "4
 _ de nuire, ou même pour le ramener dans le bon + T4
 Fa chemin ; — par analogie avec ce qui se passe pour
 _ lesaliénés, les experts auraient pu garder leurswjet
@@ -519,7 +453,6 @@ _ aussi longtemps qu'ils l'auraient jugé utile. Ces 154
 _ grands progrès de la science nous auraient rame- ARR
 _ nés tout simplement aux conceptions ecclésiastiques
 î et à l'arbitraire de la pénitence. L'accusé n'auraiteu
-An EN ©
 d'autre garantie que celle qu'il pouvaittrouver dans An:
 _ la conscience des experts; et ce n'est pas beaucoup. De.
 __ ‘ Bien loin d'entrer dans cette voie on a fait un pas ‘1e
@@ -532,17 +465,13 @@ _ ne pouvait être admis à faire la preuve que sur les
 … faits justificatifs choisis par le juge : la conscience
 … du magistrat était souveraine. (1) Un dernier reste %
 _ de cette doctrine se retrouve dans une disposition
-1e P "
 …_ célèbre de la loi du 22 prairial, an II : « La loi donne pour défenseurs aux patriotes calomniés des
-ML 2 . . . 1%
 jurés patriotes ; elle n'en accorde point aux conspif —————— Ds:
 ‘A (1) On prétendait ainsi rechercher la vérité par les moyens les FA
 _ plus simples et se mettre à l'abri des faux témoignages combinés y.
 entre les amis de l'accusé; ainsi quand un fait était déjà considéré
 4 comme prouvé (par deux témoins ou autre moyen de preuve fs:
 ._ légale) il n'était pas admis qu'il y eût une preuve contraire à cs £
-tenter. N 1e
-49 CR è
 
 :# rateurs » (article 6); comme dans beaucoup de
 238 mesures prises par le gouvernement révolution-
@@ -550,7 +479,6 @@ tenter. N 1e
 E. 4 Régime si puissant chez Robespierre.
 730 L'Église —comme les modernes criminologistes —
 4 ne comprend pas que l'accusé puisse prétendre se
-‘444 , 4 2 ch? e
 mesurer, à armes égales, avec l'autorité, qui repré110 sente l'intérêt général. Ses tribunaux sont des conTa seils administratifs qui cherchent à prendre des
 
 En mesures propres à faire prospérer l'Eglise, à assurer
@@ -560,18 +488,15 @@ Lt Toutes les personnes qui ont pu étudier le fonctionNi: nement des oflicialit
 is avaient fait donner tant d'extension à l'appel comme
 1 d'abus, au moyen duquel on finit par enlever
 UN presque toutes les affaires aux tribunaux ecclésias-
-°F308
 …_ tiques pour les porter devant les Parlements : les
 _ officialités étaient une caricature de la justice.
 RE L'Église a toujours réclamé avec insistance le
-g . . .
 | 2x _ jugement des testaments et celui des mariages,
 ru N* _ parce qu'à ses yeux la question principale est ici
 _ une question morale et que les intérêts matériels en
 ae jeu devraient être subordonnés à des considérations
 RUE %. de conscience.
 (Eos Le testament est, pour l'Église, un acte qui na
-DV é 3 d : k
 74 aucune raison économique ; il a pour objet des
 :04) _ œuvres satisfactoires destinées à permettre la puri54
 fication de l'âme du moribond. (1) Tandis que, pour 1e
@@ -594,7 +519,6 @@ _ disciplines du sacrement de pénitence; elle seule
 _ prenait la défense du malheureux absent contre des ,
 *: Fe héritiers avides ; elle faisait œuvre de protection et FA
 de charité — en même temps qu'elle augmentait ses ‘4 Ê
-revenus. ‘#24
 4 * Le mariage a des fins très multiples; mais ce qui 44 ‘4
 est surtout important, ce qui a justifié, d'après le
 A catéchisme romain, la dignité de sacrement qu'on EUA:
@@ -602,18 +526,14 @@ lui reconnaît, c'est qu'il sert à procréer des sujets # ci
 
 : () « La confession à l'article de la mort et les legs pieux étaient ‘4
 ik au Moyen-Age deux idées conjointes et, pour ainsi dire, insépa4 rables. » (Viollet. Précis de l'histoire du droit français, page 744) 4 a
-Letbles :à
 our l'Église ; (1) en second lieu il sert à combattre le libertinage. Les tribunaux ecclésiastiques sont
 __ des bureaux de police chargés de surveiller les
-14H00
 18 mœurs et d'assurer la complète exécution des fins
-re: . : x L SET
 14 matrimoniales : de là résultent tant de décisions
 _ bizarres et parfois scandaleuses selon les idées
 42 modernes. La séparation de corps offre un double
 20 inconvénient : elle prive l'Église de sujets et elle
 4 expose les époux à tomber dans l'incontinence
-He . Q . . » 02 “
 ‘Va aussi les canonistes se sont-ils ingéniés à forcer les
 14 époux à se rapprocher : un homme qui s'est séparé
 RE de sa femme convaincue d'adulière et qui tombe, à
@@ -623,12 +543,10 @@ conjugale. Il nous semblerait qu'il y ait double
 F3 motif pour rendre ici l'union conjugale impossible,
 _ mais l'Église juge les choses tout autrement; les
 _ deux fautes se compensent; Fourier dira plus tard
-4 La He ÿ À . c
 Re que deux négations valent une affirmation.
 1400 Il ne paraît pas que les docteurs ecclésiastiques
 soient parvenus à comprendre, encore à l'heure
 actuelle, les raisons qui ont rendu le divorce néces-
-“ THANAR
 : 2 saire. L'Église a raison quand elle dit que le
 1 à mariage n'est pas un contrat de louage de services
 A A: ou un contrat de société et qu'ainsi il ne saurait être
@@ -636,11 +554,7 @@ rompu pour les motifs qui amènent la rupture
 _ d'obligations civiles; mais elle ne voit pas que,
 —
 à (@) Ut populus ad veri Dei et Salvatoris nostri cultum et religionem
-pe R procrearetur atque educaretur.
-UNIS j
-14 UOTE RU
 
-Ds . .
 dans l'État moderne, ce qui est essentiel dans le
 mariagé est l'autorité déléguée au chef de famille
 par le magistrat. C'est à cause de cette délégation que les législateurs modernes ont retiré au prêtre le droit de rendre le mariage légitime; cette autorité
@@ -671,7 +585,6 @@ mariages dans la partie qui s'occupe des choses /de rebus] avec les
 bénéfices, l'administration des biens et tous les intérêts temporels
 de l'Église.
 
-DU ARE SE A AE
 que l'autorité puisse faire à peu près toutce qu'elle
 juge convenable ; il n'y a guère de cas où les canoRU . . -%
 408 nistes ne fournissent le moyen de donner un décor
@@ -684,7 +597,6 @@ de passer par-dessus les règles, en réservant au pon-
 _ Cette intervention, qui donne tant de liberté à
 LR l'administration, supprime à peu près totalement le
 D droit : pour employer le langage des philosophes
-Re \# É . . = » »
 _ grecs, l'Église substitue le régime des décrets au
 …. régime des lois. (1)
 72 Le droit ecclésiastique est un droit tout à fait ana-
@@ -694,14 +606,12 @@ _ pour délit politique n'ont jamais été assimilées aux
 _ condamnations ordinaires. Le type le plus parfait
 de cette législation se trouve dans la loi du 22 prai_ rial an IL, que j'ai déjà citée : « La règle des juge_ ments est la conscience des jurés éclairés par d
 l'amour de la patrie; leur but, le triomphe de la j
-PT 2 . . . .
 NT _ République et la ruine de ses ennemis » (article 8).
 3 (Doll n'y a de constitution, dit Aristote, qu'à la condition de la î
 souveraineté des lois. Si donc la démocratie est une des deux
 JA Fa espèces principales de gouvernement, l'État où tout se fait à coup
 _ de décrets populaires n'est pas une démocratie, » {Politique, o
 _ livre VI, chapitre 1v, 7) de
-DAEA) 4 1 À ORUT.
 
 En changeant patrie et République en Église, on
 aurait la règle du droit ecclésiastique.
@@ -732,7 +642,6 @@ ie sont pas tenus de respecter les contrats qu'ils passent avec les particuliers
 
 D - Appliquée au domaine économique, elle cond uità fa
 des résultats absurdes; elle suppose une servitude
-nu _ universelle : défense aux producteurs d'innover
 sans la permission de la police, obligation pour les
 ‘ai 2 consommateurs de se contenter de ce que veulent
 #0 bien leur offrir les corporations réglementées. Cette
@@ -747,7 +656,6 @@ que cela est insuffisant et qu'il faut faire dériver
 _ cette opposition des théories que la société moderne
 à ‘" et l'Église se font sur la science. Taine a soutenu
 #4 _ cette opinion et il est nécessaire d'en dire quelques
-mots.
 64 _ Pendant très longtemps les représentants des
 _ idées libérales ont prétendu que le monde est gou14 _ verné par des principes; mais dans ces dernières
 5 années il s'est produit un grand changement dans
@@ -755,8 +663,6 @@ _ leur manière de penser; on pourrait dire que
 ; _ d'idéalistes ils sont devenus matérialistes. La pra-
 “ tique du gouvernement leur a montré que les choses
 “2 ne se passent point aussi simplement qu'ils le
-
-LE SO
 
 croyaient autrefois et ils proclament maintenant
 que les contradictions idéologiques importent assez
@@ -795,15 +701,11 @@ D ‘1 contradiction qui apparaît comme grave, évidente
 4 mêmes caractères pour tout esprit éclairé; ce que
 4 Taine juge troublant, doit troubler les catholiques.
 L'expérience ne nous montre pas que les savants
-d P q
 catholiques actuels soient gênés plus sérieusement
 par la théologie traditionnelle que les savants
-DAS e. 4 PES à
 _ libres ne le sont par leurs hypothèses générales sur
 Fi _ le monde. Je reconnais volontiers qu'en matière
-OL ; + . . 2 . . »
 _ historique les écrivains ecclésiastiques n'ont pas
-124 : 2 . Ari
 5 _ une liberté d'esprit absolue; mais il en est de même
 
 ‘8 pour tous les historiens qui s'occupent à la fois de
@@ -813,8 +715,6 @@ __ d'accumuler des hérésies dans ses publications sur
 _ l'archéologie chrétienne; ces attaques ne l'ont pas
 100 empêché de faire une œuvre utile et considérable,
 “12 _ qui ne comporte, en définitive, aucune conclusion
-Det :
-théologique.
 gr nd (1) J'emprunte ce renseignement à une notice de l'abbé Duchesne,
 MY ‘40 publiée dans le Bulletin de l'Institut catholique de Paris, juin 1892.
 
@@ -845,7 +745,6 @@ Taine croyait certaines, devaient être complétées k pour tenir compte de l'ob
 40 _ théologiens ne sont-ils Leu Lis aire faire
 _ bon ménage à des théories bien opposées (= VAS
 Es | apparence — comme celles de la liberté et de la
-nn grâce?
 Bien loin que les conflits de la science et de la foi
 : 4 augmentent d'intensité, il semble qu'ils aient été
 4 ” beaucoup plus graves autrefois qu'aujourd'hui: il
@@ -869,11 +768,8 @@ Vs près les seuls qui fussent destinés à faire des lettrés
 5 à en France; Descartes s'efforçait de créer une
 at philosophie à l'usage des gens du monde ; il devait
 Pa _ donc désirer se concilier la faveur des directeurs l
-PAR ‘ 20 Û
 
-jé SU pan
 des seuls établissements qui pouvaient accepter sa
-philosophie. (1)
 
 L'explication de Taïine, en tout cas, ne pourrait
 s'appliquer qu'aux professionnels de la science ; et
@@ -896,9 +792,6 @@ sont des motifs politiques qui dirigent les esprits.
 Quand l'État républicain résolut d'établir l'éduca-
 
 (1) Galilée avait été dénoncé par des jésuites. Th.-H. Martin,
-Galilée, page 171.
-
-(2) Taine. Op. cit, page 151.
 
 tion populaire laïque, il n'était pas sousl'impression
 de mobiles métaphysiques: le but à atteindre était
@@ -908,10 +801,8 @@ __ qu'il était nécessaire, pour assurer la durée de la
 à République, d'habituer les nouvelles générations à
 -20à identifier République, Patrie et France. Ils ont
 R;: réussi dans leur entreprise et plus, peut-être, qu'ils
-3 J Q # 2 La #2 .
 _ n'avaient espéré, car ils ont engendré des passions
 __ chauvines qui ne sont pas sans les avoir beaucoup
-te gênés. (1)
 
 “54 La force des formules abstraites et leur perma10 S . .
 __ nence dépassent tout ce qu'on peut imaginer; de
@@ -919,7 +810,6 @@ __ même que nous ne savons bien exprimer nos
 NY 4 pensées que dans notre langue maternelle, (2) nous
 
 __ finissons par nous attacher, d'une manière particu_ lière, aux idées que nous manifestons en nous
-A F sers .
 _ servant des acquisitions les plus anciennes de
 …_ notre mémoire. Les hommes qui ont reçu l'ensei-
 | gnement primaire dans les écoles publiques créées
@@ -927,16 +817,13 @@ _ depuis la guerre ne peuvent parler d'histoire et de
 Date si Et 4
 12e politique sans utiliser le vocabulaire extrêmement
 2°106 restreint qu'on leur a appris à manier, et ce voca_ bulaire est républicain et nationaliste. Ils sont
-À CRTIC PM
 + (1) M. Buisson a pu s'en apercevoir quand les patriotes l'ont honni à
 - à cause de son rôle dans l'affaire Dreyfus. à
 ir (2) Sur la grande importance de la langue, lire le chapitre
 _ Nationalité dans les Paradoxes sociologiques de M. Max Nordau. ‘2
 Au \ « Des millions d'êtres repensent ce qui a été pensé pour eux et ce
 54 _ quileur est devenu seulement accessible par la langue » (page 143).
-NE € ‘
 
-nl à Aya pt
 devenus “républicains parce qu'ils ne peuvent
 arriver à se représenter un autre gouvernement
 ayant le sens commun à leurs yeux que le gouvernement républicain; ils sont nationalistes parce
@@ -963,7 +850,6 @@ d'intérêt immédiat et matériel ; c'est par son impru-
 …_ Quand il a vu que la République était bien assise,
 il a faussé compagnie aux monarchistes et a haute23
 114 * ment proclamé son attachement à! a Constitution
-actuelle. d'OMQYES LP OPEN
 1 e Les prêtres ont vu que l'enseignement laïque
 ‘1h avait si fort attaché les nouvelles générations à la
 4 te formule républicaine qu'il était dangereux de ne
@@ -981,7 +867,6 @@ Re _ païenne; elles ont été un accident au milieu de nos
 ‘à Quand l'œuvre scolaire a été terminée, le calme a
 : 10 reparu et l'on s'est demandé, avec une certaine
 k hs, naïveté, comment le pays était devenu, tout d'un
-:4 f coup, si indifférent aux questions philosophiques
 } 118 et religieuses; il ne l'était pas devenu, il l'avait
 54 toujours été; il ne s'était passionné que pour la
 __ défense de la République par l'enseignement pri
@@ -1001,7 +886,6 @@ abstraite: il faut, pour la déterminer, préciser le
 genre de questions que l'on prétend aborder; la
 nature est quelque chose d''essentiellement relatif.
 Il est bien clair que l'Église n'est pas une association comme tant de sociétés créées pour un but
-moralisateur, philanthropique, éducateur, etc.
 discussion qui a eu lieu à la Chambre française a
 beaucoup servi à dissiper des sophismes répandus :
 les défenseurs les plus éclairés des congrégations
@@ -1015,8 +899,6 @@ Pour comprendre le rôle de l'Église dans le monde
 grande place occupée aujourd'hui par ce que Hegel
 appelait l'état pensant, c'est-à-dire par l'ensemble
 …. des hommes qui vivent en dehors de la production
-PA PR PARU Det ENS POP
-Ra RE
 et s'occupent des intérêts généraux et idéaux pre
 11 fesseurs, légistes, etc.). Les prêtres forment un
 RL groupement de théologiens qui raisonnent sur des
@@ -1034,13 +916,10 @@ De peu de gens s'occupèrent de se former une opinion
 ::0 sur ces dogmes, qui furent acceptés sans diflicultés.
 LA Le catholicisme donna ainsi la preuve qu'en
 LAN devenant beaucoup plus ardent, il était devenu
-LCA à, 4 . .
 _ beaucoup plus étranger à la philosophie qu'autre-
 “4x fois; la philosophie ne comporte pas de division de
 _ la société en classe pensante et en classes dégagées
 4 40 de la faculté de raisonner; la philosophie est toute
-D) | liberté.
-Le (at PEU n » . . CRC,
 | _ L'art, la religion, la philosophie sont considérés
 ï ‘1 _ par Hegel et par Marx comme étant des produits de
 e l'esprit, à peu près complètement étrangers aux
@@ -1053,14 +932,12 @@ indépendant de la police, voilà une des œuvres les
 plus importantes de la législation dans les démocraties modernes. Rien ne nous semble plus bouffon À
 que l'idée d'avoir un art officiel et cependant l'art a
 bien plus d'attaches avec l'économie que n'en a la s
-philosophie.
 
 Les théoriciens ecclésiastiques soutiennent que
 l'Église devrait jouir, dans un pays démocratique,
 de la plus grande liberté, parce qu'elle est essentiellement une école de théologie et que la théologie
 est une scrte de philosophie. Ils revendiquent, en
 conséquence, pour leur corps, le droit à l'activité
-libre.
 L'Église est bien autre chose qu'une école de théologie; elle est aussi un corps de prêtres distribuant des sacrements sous certaines conditions qu'il
 détermine. Les sacrements ont été parfois assimilés » à des rites magiques ; mais ce n'est là qu'une assi-
 
@@ -1097,14 +974,11 @@ LU et s'en servir pour interpréter l'action de l'Église.
 :Net Son but essentiel est de faire la police du sentiment
 130 _ religieux : rien de pareil n'avait existé dans le
 MTS ï passé et par suite on ne saurait comparer l'Égliseà
-Ÿ Ê 4 (1) Débats, 17 février 1897.
-2€ 28
 aucune des associations historiques. Il me semble
 aujourd'hui acquis à la science que le catholicisme
 est un phénomène qui n'a pas d'analogues dans le
 cours des siècles ; dès lors il est impossible de le
 traiter suivant un droit commun, puisqu'il est
-unique.
 
 L'Église se présente sous un double aspect : école
 de théologie et corps de police religieuse : l'unité
@@ -1127,11 +1001,9 @@ avait laissés la société du Moyen-Age, plus elle s'est
 s pages 104-105. — Il est à noter que durant les derniers siècles
 ‘ du paganisme il se produisit une sorte de concentration des magies,
 mais sans que les païens pussent parvenir àd'unité.
-* 29 Ir.
 
 NS dégagée des intérêts politiques de ses dignitaires,
 24 pour acquérir la claire conscience de ses principes,
-1 1N0R fs . PT
 :HÉGE plus aussi elle a compris que son essence était
 _ 4#e l'obéissance au pontife romain. Il n'y a aucune
 : 00 raison pour que cette constitution, si sévèrement
@@ -1142,27 +1014,20 @@ nn : l'ont rêvé quelques personnes il y a un demi-siècle
 144 raison d'être, puisqu'il est fondé sur une conception
 
 ‘6 de la recherche du mieux par une voie tout opposée
-aux voies catholiques.
-:-#104 es
 Dre Il semble bien que l'Église soit destinée mainte5 nant à suivre ses destinées assez librement pour
 2e que des forces extérieures ne viennent plus agir
 sur sa constitution propre ; elle est etrestera ponti-
-\s HER nEIS .
 1 ficale ; mais il y a une si grande opposition entre ce
-VMS re NA
 régimeet le régime des Etats modernes que beauAE à
 _ coup de personnes se demandent si une pareille
 FOR coexistence pourra durer. Il y a quelques années,
 le professeur Labriola a émis sur l'avenir du catho1 “e lcisme une opinion originale : « Ce que je vois très
 ASS _ clairement, dit-il, (2)c'est ceci: que le christianisme,
-LCA x YA
 “3 js qui est en substance la religion des peuples les plus
 Fur Fe (1) Le professeur Labriola s'étonne que la différenciation hiérarNA fe chique ait pu se produire en deux siècles /Socialisme et philosophie, À
 _ * page 177). Le problème est, au contraire, de trouver les raisons qui
 __ ont relativementdissous la force pontificale dans les temps modernes
 RE jusqu'à la renaissance ultramontaine actuelle.
-Fe (2) Labriola. Op. cit., page 181.
-mn Nid à ‘à
 
 Lao NE ÉRNEL AT ü
 civilisés, ne laissera après lui aucune religion nouvelle. Ceux qui, désormais, ne seront pas chrétiens,
@@ -1172,7 +1037,6 @@ renonceront très probablement à toute explication
 transcendante des problèmes pratiques de la vie de
 tous les jours, parce que Primus in orbe deos fecit
 timor ! La formule est ancienne, mais sa valeur est
-éternelle. »
 Il est très regrettable que le professeur italien
 n'ait donné aucun argument à l'appui de ces aflirmations et, notamment, n'ait pas cru devoir explil quer en quoi sa croyance à la disparition des
 religions dépend du matérialisme historique ; la
@@ -1186,7 +1050,6 @@ importantes dans la genèse religieuse.
 J'estime, pour ma part, que le christianisme ne
 4 périra pas; la faculté mystique est chose très réelle
 (1) Ribot. Psychologie des sentiments, page 302.
-G (2) Ribot. Op. cit., page 307,
 
 5 dans l'homme, et l'expérience nous montre qu'elle
 ne diminue pas d'intensité au travers des âges ; elle
@@ -1213,9 +1076,7 @@ Lx de dire qu'il ne sera pas remplacé ; mais pourquoi
 ET périrait-il ? Je ne puis parvenir à le comprendre.
 Ne Il y aurait ici à se demander si les destinées du
 y in christianisme sont identifiables avec celles du
-ke (1) Taine. Op. cit., page 116. +74 ms
 +40 (2) Cf. Labriola. Essais sur la conception matérialiste de l'histoire,
-page 279.
 1 F 32 î catholicisme; mais il est certain qu'à l'heure j
 _ actuelle il y a une certaine concentration des
 croyants autour du pontificat et que les communautés protestantes semblent plutôt perdre que
@@ -1242,7 +1103,6 @@ m…. plaindre, des mesures contre lesquelles elle élève-
 à que M. Nordau dit de la disparition des différences de langues
 1 (Paradoxes sociologiques, page 156). L'hypothèse comporte un laps de
 temps si grand pour se réaliser qu'il est inutile de s'en préoccuper.
-:$ (2) Taine. Op. cit., page 10.
 
 prises en Allemagne ou en Italie ; au lieu d'en gager CE
 les catholiques français à s'agiter pour revendiquer
@@ -1270,12 +1130,10 @@ Er ra Pape des paroles d'encouragement, (1) capables de à
 4, (1) C'est du moins une opinion généralement répandue en Jialie. Il
 LE y eut, il y a quelques années, une assez vive polémique parce que À
 
-ÿ Do AE
 ê&* lui faire croire que la Fille aînée de l'Église défen-
 “ drait le Vatican en cas de conflit avec l'Italie.
 Depuis le Concordat, la cour de Rome a toujours
 considéré les intérêts particuliers des catholiques
-à . A 2 L
 français comme pouvant être négligés et devant
 être subordonnés aux siens; le gouvernement français pourra faire tout ce qu'il voudra aux moinesen
 France, pourvu qu'il protège l'Église à l'étranger,
@@ -1293,44 +1151,32 @@ if puisse être regardée comme] la citadelle de l'influence française dans le 
 discussion de la loi sur les congrégations, par neuf membres de
 Institut et divers professeurs, l'État était une personne se vant en présence
 d'une autre personne qui serait l'Église ; mais la
-NC : 2 : "+ : :
-: _ difficulté disparaît (au moins en grande partie)
 _ lorsqu'on examine de quels éléments multiples se
 
 % _ compose l'Etat.
-1103 . . « À
 ‘UE Les anciens philosophes, se plaçant à un point de
 _ vue très abstrait, réduisaient l'État à quelque chose
-pe #5 d'infiniment simple : à! aurait dû être, d'après leurs
 _ définitions, l'expression de la volonté générale qui À
 Dr fait des lois conformes à la raison et ils croyaient
 qu'il était réellement semblable à cette image; ils en e faisaient un être possédant des qualités empruntées
 à la psychologie individuelle ; il y a encore même
-+ 4 ; :
 des philosophes parlant de conscience sociale, de Ï
 | #4] ; Ê
 |__ pensée sociale, etc.
 Ce qu'il y a de vrai dans cette fantasmagorie di,
 __ philosophique c'est que certaines ‘ressemblances
-F w È c
 existent entre les hommes d'une même nation à un À
-ss . . « ”
 _ degré tel que les lois puissent être regardées, dans
 _ une assez large mesure, comme étant la manifesRE, x +
 __ tation d'une communauté de pensée juridique ; mais
 
 * _ ilne faut pas aller trop loin dans cette voie. Cette
 communauté a pour base des similitudes instine
-nt s 2 ne :
 | tives, très mal déterminées dans la conscience de
 
 _ chacun; — dans le Parlement se forment des
-D of . sn : . ke
 "01 groupes qui participent aux instincts des masses,
 _ mais dont les tendances sont beaucoup plus intelVE L lectualisées que celles des hommes qu'ils sont
-
-FIST A ‘ ee ve
-PACE DE LA: BEN
 
 d': a ensé s représenter (1) — ce ne sont pas encore ces “4
 À Ve rou p es qui font les lois, mais un très petit nombre
@@ -1413,7 +1259,6 @@ F Les institutions de guerre, fondées sur les tradi- h, _ tions de l'armée et 
 
 J — par beaucoup de médiations — des instincts popu- laires à la doctrine des juristes ; il y a un processus
 complet d'intellectualisation. Ici, au contraire, nous sommes en présence de tendances très élémentaires,
-11 = jose SE lé
 assez voisines de celles des primitifs et dominées
 par des superstitions. Tandis que la classe des h
 juristes représente ce qu'il y a de plus intellectuel À
@@ -1440,15 +1285,12 @@ qui fonctionnent beaucoup par routine, mais qui cherchent à se
 donner le plus d'ampleur et d'indépendance possible, Leur rôle est
 devenu considérable ; elles sont généralement en opposition avec la
 classe des juristes.
-TT ‘4
 
 ÿ traduite seu ement par des maladresses insigneset
 parle désastre de Khartoum. pe 15500
 Aufuretà mesure que le régime parlementaire
 ARC développe dans un pays, que les problèmes NU
-et Cr . : » + . y SRE FES
 __ d'administration intérieure deviennent plus com
-ia P ‘SAT
 54 _plexes et exigent la constitution de corps plus mas- KE
 … sif,ilse produit une séparation de plus enplus
 “ marquée entre la politique intérieure et l'extérieure ;
@@ -1458,30 +1300,23 @@ _ parlementaires. Cette séparation est extrêmement ‘4h
 _ nette en France; mais elle existe partout, d'une
 - manière plus ou moins complète; dans presque a
 _ toutes les monarchies constitutionnelles, le roise
-- à; ARR
 __ considère commeayant le droit d'exerceruneaction
-70 . DE:
 _ personnelle sur les affaires de la guerre et de la ‘20
-‘ diplomatie. « FT
 74 Si l'Église recherche, chez nous, avec tant d'obs- e À
 12 , tination, à s'attacher la classe militaire, ce n'est pas (3
 _ Seulement — comme on le lui a reproché souvent —
 
-As : F . FT
 parc qu'elle cherche -à trouver un appui dans
 l'armée contre le peuple, mais c'est bien plutôt parce
 | quelletient à entretenir un courant de politique Ë
 _ extérieure conforme aux intérêts catholiques. Ses efforts portent sur la marine plus encore que sur
 à l'armée de terre, parce que la marine met continuel_ lement la force du pays en contact avec des adver__ saires du catholicisme.
 
-or 1h 50e
-
 Depuis trente ans, cette alliance de l'Église et de
 la classe militaire a pu développer ses résultats en ES
 toute liberté et produire une fièvre nationaliste ;
 cette propagande n'était génée par personne etelle
 profitait de la préparation patriotique faite par les
-écoles primaires. o
 
 Les prêtres forment dans la société une classe
 bien déterminée, qui présente peut-être un développement plus parfait qu'aucune autre classe;
@@ -1489,7 +1324,6 @@ nulle part on ne trouve une pareille unité de
 vues. Longtemps, en France, l'Église à vécu à
 l'ombre des partis conservateurs; maintenant elle
 cherche à s'émanciper de cette tutelle et il est souvent question de la formation d'un parti purement
-catholique.
 Quand il existe un parti catholique, ce n'est
 pas un parti comme les autres; alors que les éléments des partis sont généralement très mobiles,
 ici ils sont soudés en un bloc; le parti catholique ne
@@ -1581,7 +1415,6 @@ de faire de l'anticléricalisme en France et du cléricalisme en Orient, lorsque
 (1) Bismarck a essayé, plusieurs fois, sans grand succès, d'opposer
 Ÿ la cour de Rome et le Centre catholique; ce parti était trop fort
 pour être facilement entamé.
-45 nr.
 
 aurait un fort parti clérical luttant contre les partis
 républicains. La politique catholique actuelle î
@@ -1607,7 +1440,6 @@ sentiments patriotiques d'un pays récemment
 1 unifié. À l'origine il a conseillé aux catholiques
 4 l'abstention dans les élections politiques; il avait l
 l'espoir de gêner le gouvernement; aujourd'hui il À
-(1) Taine. Op. cit., page 151.
 
 ER maintient cel te tactique, par nécessité, bien qu'elle
 ne gêne pas du tout la marche des affaires de
@@ -1634,7 +1466,6 @@ _ qu'ils peuvent; il y a des marchandages plus ou
 1 _ moins cyniques, mais pas de vrais compromis à
 4 comme dans un régime parlementaire réel. Chaque
 ‘3 fois qu'il s'agit de voter une loi militaire, le
-4 (1) Critica sociale, premier avril 1897, page 103, colonne 2; — ‘10
 5 16 juin et premier juillet 1900. k
 gouvernement négocie avec les partis; généralement le vote de la loi dépend des catholiques,
 et ceux-ci exigent qu'on rapporte quelques-unes des mesures prises jadis contre l'Église.
@@ -1659,18 +1490,14 @@ k () I1 serait impossible, par exemple, de comprendre en France
 
 et ei)
 _ Une grande difficulté pratique pour la formation
-Div : Ds 2 2 Lie Fan
 _ d'un parti clérical en France résultera désormais
 _ de la nouvelle législation sur les congrégations; le D.
 _ contrôle que l'État est en train d'organiser surleu ik
 _ fortune et leur gestion ne pourra manquer dese
-Las à ji ENV UR
 à développer; il aura pour effet d'empêcher qu'une
 _ partie notable des ressources accumulées par la
 4 piété des fidèles ne soit détournée de leur destination pieuse pour être affectée à la propagande
 __ politique. Il semble que la papauté ait tacitement
-ne. ; MORE
-À 2 A : , : . STE
 hi accepté ce contrôle et compris qu'il y avait pour LE
 - elle un certain danger à laisser se développerun
 … état d'esprit trop militant dans le clergé français. “4
@@ -1679,17 +1506,14 @@ Le l'État en France est dominée par les souvenirs
 
 _ de la Révolution; jamais l'Église n'a fait son deuil ‘1
 - de sa prépondérance; elle ne réclame point ses |
-t 4 : APS
 - anciens domaines et ses dîmes; elle veut de la DA
 - domination et elle fera tout ce qu'elle pourra pour
-34 7 » + 2 :
 _ en acquérir. Napoléon n'avait pas restauré le culte
 que déjà il se plaignait d'un nouvel esprit qui (4)
 - animait l'Église et qu'il n'avait pas prévu. (1) « On wi,
 _ élève les nouveaux prêtres dans une doctrine L,
 …. sombre, fanatique; il n'y a rien de gallican dans le
 __ nouveau clergé. » Le clergé se discipline; l'esprit ni k (1) Taine, Op. cit., page 63. ; f.
-4 49 UE
 
 de solidarité augmente en lui; les anciens intérêts
 mondains s'effacent devant les grands intérêts de
@@ -1719,7 +1543,6 @@ A4 roits du peuple foulés aux pieds par la bourgeoisie
 
 _ orléaniste; en 1848, ils se signalent parmi les plus
 
-'. 1020 4 FAN JE RS
 _ ardents républicains et prononcent des sermons au SO
 Hi _ pied des arbres de la liberté; mais l'expédition de +210
 _ Rome vient bientôt les brouiller avec les démo- FE
@@ -1734,22 +1557,17 @@ pensée philosophique; en 1858, elle obtient contre 1 de
 
 …__ Proudhon des poursuites pour des motifs les plus A.
 
-_ absurdes. (3)
 …_ La guerre d'Italie amena un grand changement ET
 
 dans les relations de l'Empire avec l'Église; mais le
 gouvernement n'adopta pas une attitude nette
-he : 4 é ST: a
 
 … durant les dix années qui précédèrent sa chute:
-LUS si.
 
 _ (1) Marx. La Lutte des classes, page 361. f à jé
 
 - (2) Elle essaye d'empêcher les Juifs d'entrer à l'École normale ;
 Michel Bréal eut quelque peine à être admis, en dépit de ses STARS
-
-examens. LR
 
 # (3) On reprochait notamment à Proudhon d'avoir écrit que
 _ l'Église ne distingua pas le mariage et le concubinat (Œuvres PaUÉ
@@ -1760,10 +1578,6 @@ _ couronné par l'Académie française et honoré d'une lettre du pape,
 _ dit que « la distinction entre l'uxor et la concubina était purement \1
 
 ÿ ù civile ». {Les Esclaves chrétiens, troisième édition, page 286) “
-
-2° vit
-
-12 5x ne
 
 % ‘ ét se, cette période fut presque totalement dominée par
 la question romaine; il s'agissait de savoir si la
@@ -1788,7 +1602,6 @@ l'antisémitisme était né depuis quelques années
 mais son succès avait été médiocre avant la fondaà tion de la Libre Parole (x); les cléricaux hésitaient,
 dans beaucoup de villes, à se mêler à ce mouvement
 qui leur paraissait dangereux à cause de ses allures
-démagogiques.
 Les discussions soulevées par les socialistes au È
 N () Dans un livre publié en 1896, M. Chirac revendique ses Ÿ
 droits à l'invention de l'antisémitisme : « Les colères avaient entassé ?
@@ -1823,7 +1636,6 @@ prétend même que le langage employé est inintelligible. /Le
 Congrès général du parti socialiste français, page 66)
 
 de comptes, pourraient permettre à l'Etat d'entreprendre de grandes choses sans qu'il en coutât
-rien aux contribuables.
 Je ne crois pas que l'antisémitisme soit un accident passager, une aberration due à l'influence
 perverse de quelques hommes; je crois qu'il durera
 tant que le socialisme n'aura pas vaincu bien nettement la démagogie, tant qu'il ne se sera pas attaché
@@ -1838,7 +1650,6 @@ l'écart, à peu près complètement; on lui avait même
 _ plusieurs fois reproché de ne pas avoir donné son
 appui à une œuvre si nationale; mais quelques
 6 agents d'affaires israélites avaient été mêlés aux à
-négociations véreuses; Panama devint, grâce à £
 4 M. Drumont, une affaire juive. Les légendes conci centrent toujours les crimes et les hauts faits sur
 un petit nombre de personnages représentatifs : cl
 ï Arton, Hertz, Reinach devinrent les héros du ê
@@ -1856,7 +1667,6 @@ e l'appui des antisémites que le jour où ils virent le 5 #4
 i procès Dreyfus : il devint clair alors que les clé- VS
 23 ricaux et les conservateurs pourraient entraîner les 124
 esprits en faisant usage de l'argument patriotique. 0)
-4 P 8 8 à qu ‘4
 Je crois que l'Église n'a pas commis de plus Ne.
 -_ grande faute, depuis l'expédition de Rome, que î ge
 ‘4 d'avoir pris parti contre la revision du procès
@@ -1891,7 +1701,6 @@ contrôle des citoyens; or, cela paraissait inadmis- ?
 J sible aux militaires habitués à se considérer comme
 k formant une classe isolée, faite pour la lutte contre ï
 1 le dehors et vivant en dehors du régime parlemen- l
-È taire; — cela paraissait extraordinaire à beaucoup
 4 d'hommes politiques qui avaient longtemps prêché à
 A le respect de l'armée. Les radicaux hésitaient p:
 ne beaucoup à prendre la défense d'un officier riche,
@@ -1954,7 +1763,6 @@ Allemagne /Manifeste communiste, page 73). Dans l'Allemagne en û
 : 1848 (traduction Rémy, page 45), il dit que la révolution prussienne
 était certaine, et (page 63) que le caractère inattendu que prit le À
 mouvement parisien changea tout le cours des événements en
-ñ Allemagne.
 
 L'Église ne se représente pas les choses de cette
 manière; elle se croit attaquée par une secte qui,
@@ -1989,7 +1797,6 @@ demander s'il ne se trouverait pas aujourd'hui un
 parti dans l'état pensant qui chercherait à disputer
 la domination à l'Église. Celle-ci depuis longtemps
 cherche à se créer une grande influence par l'enseignement et par la presse; les anciens. moyens
-d'action — prédication paroissiale, missions, ordres
 religieux — ne suffisent plus pour atteindre le but de
 domination que l'Église poursuit aujourd'hui; elle
 a perdu les moyens légaux de suprématie, elle n'est
@@ -2012,7 +1819,6 @@ obligés de compter avec elle.
 La grande presse n'est pas, en général, hostile à
 l'Église : les journaux sont de puissantes entreMP PRET #4
 # { K nt
-ALL) : : d d
 _ prises qui sont conduites en vue de procurer des
 bénéfices à leurs actionnaires; les directeurs
 cherchent quels sont les courants de la mode et ils
@@ -2026,7 +1832,6 @@ Il existe cependant une petite fraction anticléricale dans la presse; cette fra
 alliances anciennes et étroites avec le personnel
 enseignant, et elle réagit sur l'Université, de même
 que la presse cléricale réagit sur les collèges
-ecclésiastiques.
 Lorsqu''après la Révolution l'enseignement public
 fut réorganisé, on se proposa de former des
 jeunes gens cultivés; rien dans les programmes ou
@@ -2042,7 +1847,6 @@ leur éducation est plus distinguée; ils ont tué l'enseignement libre
 laïque ; une réforme se fera, un jour ou l'autre, dans la presse
 religieuse, qui pourrait bien tuer aussi le journalisme conservateur.
 
-ON EN EN
 et l'Université; si l'on fait une enquête sur les
 opinions de la plupart des professeurs de l'État on
 trouve qu'ils seraient en majorité plutôt favorables
@@ -2053,7 +1857,6 @@ neutralité serait pour elle l'abdication; ce qu'elle
 veut, comme je l'ai dit, c'est de former des militants qui lui soient dévoués. C'est pour atteindre
 cette fin qu'elle mène depuis trois quarts de siècle
 une si ardente campagne contre l'enseignement
-universitaire.
 Contre l'Église s'est constitué, sous l'influence de
 la presse anticléricale, un parti politico-scolastique,
 qui prétend représenter l'Université, ou plutôt la
@@ -2066,7 +1869,6 @@ quand on parle de la lutte de l'État et de l'Église,
 À pour l'enseignement, on parle, en réalité, du conflit
 né entre ce parti et le parti clérical. À
 Beaucoup de nos professeurs se soft mis en tête
-(2 ENTIER NREE
 (1) Beaucoup de professeurs ont adhéré à la Patrie Française et À
 beaucoup plus encore auraient adhéré s'ils n'avaient craint de
 compromettre leur situation. ‘à
@@ -2074,12 +1876,10 @@ compromettre leur situation. ‘à
 Ma que leur profession serait chose assez méprisable A0
 s'ils n'avaient charge d'âmes, s'ils n'étaient destinés
 _ à former les hommes de l'avenir, si leur pédagogie Fe:
-su . ,- . see ;
 à 1} ne devait avoir pour effet de produire une société Le
 _ régénérée. Dans leur chaire ils se considèrent FAR
 ‘#1 _ comme étant des journalistes en disponibilité et ils \344
 4 se croient des militants chargés de défendre l'esprit * a
-moderne. AP
 Les résultats obtenus par l'action de ce parti HE
 à politico-scolastique ne semblent pas être fort encou- ‘ji
 . rageants; une polémique très vive s'est engagée, :
@@ -2099,9 +1899,6 @@ presque toujours, d'assez mauvais résultats ; on a
 voulu mettre beaucoup plus en évidence l'action du
 F professeur sur les élèves et, quel que soit le mérite s
 (1) Voir dans la Revue politique et parlementaire les articles de
-Darlu, Fouillée, Torau Bayle (juillet, août, décembre 1900).
-
-d de,
 
 5 des maîtres actuels, il est difficile de croire qu'ils
 vaillent Cicéron et Sénèque, qui avaient été les
@@ -2130,12 +1927,9 @@ ve le monde à son gré. IL a toutes les ambitions des à
 FA anciens saint-simoniens qui prétendaient tout conse stituer sous la forme hiérarchique.
 É | La bataille que se livrent le parti clérical et ce hr
 4 parti politico-scolastique n'a pas un très grand f:
-; # i
-Ua HT
 
 _ intérêt direct pour la démocratie; quel que fût le
 es vainqueur, le peuple trouverait des maîtres impi- rt
-ie toyables. AU
 Re Ce quinous apparaît comme étant la plus haute j
 4 mission de l'État, c'est de défendre la liberté de
 k penser, aussi bien contre la caste des prêtres que «
@@ -2187,12 +1981,9 @@ j dans la lettre sur le programme de Gotha.
 À: Les socialistes votent, en quelquesorte d'instinct, hi
 toutes les mesures anticléricales que propose le
 ; () Marx. À propos d'unité, Lettre sur le programme de Gotha,
-î traduction française, pages 39-41.
 (2) Bernstein. Socialisme théorique et socialdémocratie pratique,
-traduction française, page 227.
 1% () Dans l'adresse de l'Internationale, traduite sous le titre :
 Commune de Paris, pages 36-43.
-l 66 i3
 
 il vieux parti radical, lorsque celui-ci se trouve, par
 hasard, porté au pouvoir, Mais dans ces derniers FR
@@ -2210,18 +2001,15 @@ _ aient été parfaitement comprises. Pour ma part,
 ti j'avoue que je ne comprends pas les explications
 _ que les officiels allemands donnent de la doctrine SA
 du maître ; je crois que je ne suis pas leseuläne
-4 RAA
 pas comprendre. Fa r
 _ Et d'abord est-il vrai que les partis soient sim_ plement le décalque des classes économiques ? Marx QE
 _ s'exprime très souvent comme s'il en était ainsi; PA
 4 mais on relèverait facilement dans ses écrits des NE
 contradictions, si on admettait qu'il ait vraiment
 _ identifié les partis et les classes. Kautsky lui-même
-_ reconnaît (1) qu'en Angleterre, au dix-huitième à
 _ siècle, la différenciation économique existant entre
 _ whigs et tories allait toujours en décroissant et que % ï
 à _ (@Kautsky. Parlementarisme et socialisme, page 130. |
-D, 67
 finalement elle devint inutile à considérer pour dis- .
 tinguer les partis. Il semble que le progrès de l'économie capitaliste ait pour effet de produire un plus
 grand mélange des couches sociales et d'effacer les
@@ -2232,7 +2020,6 @@ de la division du travail.
 Il ne faut pas oublier que dans les pays modernes, les partis s'efforcent, de plus en plus, de dissimuler les intérêts matériels sous des aspects idéologiques. Les disputes d'ordre purement matériel
 qui se produisirent dans les républiques grecques
 et italiennes nous semblent aujourd'hui tout à fait
-méprisables ; chaque parti prétend maintenant ù
 défendre le Droit et la Vérité. Les anciennes factions démagogiques étaient fondées sur la simple
 division de la Cité en riches et en pauvres; elles
 amenèrent la ruine de tous les pays où elles se pro- ‘
@@ -2300,7 +2087,6 @@ W Par suite de la rencontre de beaucoup de hasards, ê
 des hommes appartenant à toutes les classes de la Ÿ
 société et à des partis très opposés s'étaient réunis
 4 en vue de poursuivre une œuvre qui pouvait produire de très grands résultats pratiques et démocratiques. Les socialistes qui ont cru que le dogme de
-7 : j
 
 _ Jalutte de classe s'opposait à leur participation à ce ï:
 5 _ grand combat se sont montrés plus scrupuleux sur de
@@ -2347,11 +2133,9 @@ d'action plus importante pour activer la propagation
 du socialisme dans les campagnes que l'action anti- fil
 eléricale ; qu'on lise, d'ailleurs, les journaux socialistes de province, on verra que leur principal moyen
 d'influence est la guerre contre les curés.
-GEORGES SOREL
 eut Le Gérant : CuArRLEs PÉGUY \
 Ce cahier a été composé et tiré au tarif des ouvriers syndiqués ‘4
 j IMPRIMERIE DE SURESNES (G. RicmAr », administrateur), 9, rue du Pont. — 5056 $ pi
-xs °., x
 Nos Cahiers sont édités par des souscriptions men_ suelles régulières et par des souscriptions extraordi-
 
 _ naires; la souscription ne confère aucune autorité sur
@@ -2372,11 +2156,8 @@ propagande est donc très sensiblement inférieur au prix -
 
 Le _de revient.
 _ Nousne consentons des abonnements de propagande que pour la France et pour la Belgique. - he Nos cahiers étant très pauvres, nous ne servons plus
-- d'abonnements gratuits.
 — Nous envoyons éventuellement nos cahiers à qui nous
 … les demande. — Nous envoyons pour soixante centimes
-
-… renseignements nécessaires.
 
 _ Nous acceptons que nos abonnés paient leur abonneE ment par mensualités de un ou deux francs.
 

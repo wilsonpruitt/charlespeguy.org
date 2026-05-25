@@ -7,9 +7,6 @@ author: jean-jaures
 isAvertissement: false
 wordCount: 5051
 ---
-
-*Jean Jaurès*
-
 Citoyennes et citoyens,
 
 En annonçant une conférence sur le Théâtre
@@ -25,12 +22,10 @@ l'avènement d'une société nouvelle. C'est dans cet
 esprit qu'est conçue l'œuvre brève et forte de Marsolleau, que vous allez, que nous allons entendre
 tout à l'heure. Vous y trouverez la révolte, l'avertissement de ceux qui souffrent et qui signifient à la
 société d'aujourd'hui que l'heure de l'iniquité devra
-bientôt passer.
 
 Eh bien, le jour où le théâtre à tendance socialiste
 s'acclimatera, le jour où il se répandra, le jour où
 
-Jean Jaurès
 il s'imposera au pouvoir lui-même et où ce ne seront
 plus seulement des allégories sociales comme celles
 de Marsolleau qui seront représentées à la scène, 4
@@ -44,7 +39,6 @@ proclamées ailleurs, dans le livre; et il ne proclame
 les idées que lorsqu'elles sont arrivées déjà par le
 livre, par la parole, par le roman, par la science
 un degré de maturité sociale où ces idées s'imposent
-au vaste public.
 Et pourquoi en est-il ainsi? Pourquoi le théâtre
 est-il destiné beaucoup moins à inaugurer des idées
 nouvelles qu'à constater la croissance et annoncer
@@ -77,12 +71,9 @@ comme la Révolution, il met les foules en mouvement.
 Citoyens, ce que je vous dis se vérifie par ce que
 l'on peut appeler l'histoire sociale du théâtre. Depuis un siècle et demi, depuis la seconde moitié du
 dix-huitième siècle jusqu'à aujourd'hui, nous pouvons, au point de vue social, distinguer dans le
-théâtre trois moments principaux, trois périodes
 principales : d'abord, dans la deuxième moitié du
 dix-huitième siècle, il contribue à la préparation de
 la Révolution Française et à l'avènement de la société bourgeoise ; — puis, dans la première moitié
-
-Jean Jaurès
 
 et presque dans toute l'étendue du dix-neuvième
 siècle, il apparaît comme une critique partielle que
@@ -99,7 +90,6 @@ terdit de Zola... (Applaudissements. — Cris de
 Vive Zola!) nous entrons dans la période où ce
 n'est plus la société bourgeoise qui se critique timidement elle-même, où c'est le prolétariat, où c'est la
 masse ouvrière qui commence à monter sur la ,
-scène.
 
 Je disais que dans ia deuxième moitié du siècle
 dernier, le théâtre avait contribué à l'avènement, à
@@ -131,7 +121,6 @@ profondeurs ignorées de misère et de souffrance, et
 il aurait voulu appeler sur ces profondeurs ignorées
 de souffrance l'attention de ses contemporains,
 
-Jean Jaurès ;.
 même l'attention des grands, des puissants. C'est
 ainsi que dans sa dédicace du Père de Famille,
 adressée à Son Altesse Sérénissime madame la
@@ -144,7 +133,6 @@ toucheront moins qu'un amas de fumier sur lequel ils
 verront jouer des enfants tout nus, tandis qu'une paysanne assise sur le seuil de sa chaumière en tiendra un
 plüs jeune attaché à sa mamelle et que des hommes
 basanés s'occuperont en cent manières diverses de la
-subsistance commune.
 
 Ils seront moins délicieusement émus à l'aspect d'une
 colonnade que si, traversant un hameau, ils remarquent
@@ -167,7 +155,6 @@ Rappelez-vous souvent à vous-même qu'il ne faut qu'un
 
 seul homme méchant et puissant pour que cent mille
 autres hommes pleurent, gémissent et maudissent leur
-existence.
 
 Citoyens, c'est en ces termes que le grand ency-
 clopédiste, le grand ouvrier de la pensée révolu-
@@ -191,13 +178,11 @@ Et voyez dans l'œuvre de Beaumarchaïs, si éblouis- .
 sante, si étincelante qu'elle soit : quelle disproportion avec l'énorme mouvement révolutionnaire qui
 se préparait. Eh oui, Figaro critique les choix des
 
-Jean Jaurès
 dirigeants, les choix qu'ils font de leurs fonctionnaires : Q Il fallait un calculateur, ce fut un danseur
 qui l'obtint. » Eh oui, il dit aux gentilshommes
 « Vous vous êtes donné, Monseigneur, la peine de
 naître... » Mais que sont ces courtes flèches, que
 sont ces brèves étincelles, aussitôt éteintes qu''allumées, à côté de l'énorme mouvement social qui
-se produisait !
 
 J'ai donc le droit de dire que le théâtre ne peut
 que traduire imparfaitement, insuffisamment, le
@@ -207,12 +192,10 @@ qu'il y ait une bien forte maturité de l'idée nouvelle,
 pour qu'elle commence à prendre la forme théâtrale.
 
 Une des œuvres les plus curieuses de cette première période, une de celles dans lesquelles le
-problème social bourgeois commence à être posé
 d'une façon saisissante, c'est le drame célèbre de
 Schiller joué en Allemagne, en 1782, sous le titre
 les Brigands. On peut dire que c'est la première
 manifestation de ce qu'on peut appeler la pensée
-anarchiste bourgeoise.
 
 Vous savez, citoyens, ce qu'est le drame de Schiller : le fils d'un bourgeois, faisant ses études
 Leipzig, a fait des dettes ; mais ila le cœur généreux
@@ -241,7 +224,6 @@ dans les esprits, de la fermentation révolutionnaire
 de la jeune bourgeoisie allemande, qu'elle ait pu
 acclamer, admirer même, sous cette forme du brigandage, la poussée révolutionnaire nouvelle. Mais,
 
-Jean Jaurès
 remarquez-le bien, et c'est la caractéristique de ce
 temps : parmi ces révoltés, parmi ces anarchistes
 de la fin du dix-huitième siècle, il n'y a pas un
@@ -293,7 +275,6 @@ ne peut pas méconpaître que cette constitution de
 la famille réglée par le Code civil, que cette propriété individuelle se heurte bien souvent aux affections, aux sentiments les plus naturels et les plus
 profonds de l'humanité; il ne peut pas méconnaître
 
-Jean Jaurès o
 que, parfois, rarement, suivant lui, la femme tombée, la courtisane, comme dit son théâtre, a gardé
 une noblesse d'âme qui devrait lui permettre de
 reprendre sa place dans les cadres de la société ré-
@@ -305,7 +286,6 @@ _rel; ilne peut pas méconnaître, non plus, com-
 bien de fois la perpétuité, l'ancienne perpétuité
 du mariage avant le divorce, faisait obstacle à la
 loyauté, à la sincérité des sentiments naturels. Et
-voilà pourquoi Dumas a plaidé, en quelques-unes
 de ses œuvres, pas en toutes, a plaidé pour la femme
 tombée; voilà pourquoi il a plaidé en faveur du
 divorce; voilà pourquoi il a plaidé pour l'enfant
@@ -314,7 +294,6 @@ révolutionnaire, car il voulait, en corrigeant les
 pires excès, les vices essentiels de la famille légale
 fondée sur la propriété individuelle, il voulait, en
 la réformant, la maintenir et c'était, au fond, une
-critique à tendance conservatrice.
 Il y a eu, au point de vue moral, une critique plus
 
 étendue et plus profonde, dirigée contre toutes les
@@ -343,11 +322,8 @@ la société, ou vers la forme nouvelle du capitalisme,
 il ne voyait partout que déguisement, hypocrisie,
 la considération attachée à ce qui grandit par n'importe quel moyen, et dans cette sorte de bagarre
 des intérêts aveugles, la petite bourgeoisie routinière, moutonnière, aveugle, s'entretenant de cancans misérables, suivant au hasard ceux qui diffament ou ceux qui imaginent, mais incapable de
-Jean Jaurès (à
 
 discerner la vérité. Et Ibsen cria : partout déguise-
-
-ment, partout hypocrisie, partout mensonge ! Rendez
 
 la liberté aux individus! (Vifs applaudissements)
 
@@ -399,7 +375,6 @@ une autre classe, — dans Ibsen, c'est la lutte d'un
 individu, de l'individu qui veut la vérité, qui veut
 la pensée, qui la trouve et qui la dit contre toute
 une société de convention, d'oppression et de men-
-songe.
 
 Il semble donc qu'il y ait antagonisme entre le
 point de vue d'Ibsen et le point de vue de Marx. Et
@@ -420,7 +395,6 @@ journaux, la presse, mais qui infecte tous ces morceaux de papier des mensonges 
 
 Donc, nous avons le droit de protester contre la
 
-Jean Jaurès
 société d'aujourd'hui, non seulement avec Marx, î
 
 au nom du prolétariat qui souffre, maïs encore avec
@@ -467,7 +441,6 @@ bien la vérification de la loi que je traduisais au
 début, car la classe, ouvrière, comme classe consciente, dénommée, existe au moins depuis un demisiècle ; elle existe au moins depuis les journées de
 juin 1848 ; à cette époque, elle s'est nettement séparée, nettement distinguée des autres classes et nettement séparée de la démocratie bourgeoise, pour
 
-Jean Jaurès
 constituer une classe nouvelle. Il y a donc au moins
 un demi-siècle que le prolétariat est dans l'histoire
 un personnage avec sa figure distincte.
@@ -489,7 +462,6 @@ nous allons entendre ce soir un de ses premiers
 cris, qui probablement en présage d'autres.
 
 Une voix. — Et la Clairière, et les Mauvais
-Bergers ?.…
 
 Le citoyen JaurÈs. — J'y vais venir, je vous
 remercie; il était dans mon plan d'en parler, de
@@ -524,7 +496,6 @@ ce sens l'œuvre de Descaves, l'œuvre de Mirbeau
 ne sont pas les seuls symptômes; il y a bien des
 œuvres d'apparence bourgeoise — j'entends par là
 
-Jean Jaurès
 qui n'ont pas de conclusion révolutionnaire explicite — qui aujourd'hui, par le seul fait que l'atmosphère est saturée de socialisme révolutionnaire
 prennent, peut-être sans la volonté de leur auteur,
 des conclusions révolutionnaires.
@@ -551,8 +522,6 @@ J'ai donc le droit de dire que sous cette forme
 variée, multiple, se prépare, en effet, une sorte de
 renouvellement socialiste du théâtre, et c'est ainsi
 
-ÿ LE THÉATRE SOCIAL
-
 que par une poussée simultanée de toutes les forces,
 par le progrès de la classe ouvrière organisée, par
 l'orientation nouvelle de l'art, c'est ainsi que peu
@@ -578,7 +547,6 @@ aux hommes, où la résignation était en quelque
 sorte une nécessité physiologique; mais aujourd'hui, la résignation est chez ceux qui souffrent une
 survivance de cette période, car la terre pourrait
 
-Jean Jaurès
 nourrir tous ceux qui vivent si la société était
 mieux organisée ; et, dès demain, il y a des plaies
 sociales, comme le chômage, qui pourraient disparaître, si la classe ouvrière était unanime dans sa
@@ -601,7 +569,6 @@ puissent s'arrêter à regarder la marche de l'humanité en travail et se réjou
 mais celle-là, œuvre vivante, multiple, immense,
 qui se confondra avec l'humanité affranchie. (Longs
 et vifs applaudissements. Cris répétés de : Vive
-Jaurès !)
 
 Le Gérant : CnArLEs PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
@@ -613,13 +580,11 @@ installées 16, rue de la Sorbonne, au second.
 M. André Bourgeois, administrateur des cahiers,
 recoit pour l'administration tous les jours de la
 semaine, le dimanche excepté, — le matin de dix
-onze heures.
 
 M. Charles Péguy, gérant des cahiers, recoit pour
 la rédaction
 
 le jeudi soir de deux heures à sept heures et de
-huit heures à dix heures.
 
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 16, rue de la Sorbonne, Paris, la correspondance d'administration : abonnements et réabonnements,
@@ -643,7 +608,6 @@ Nos collections de la première série sont à peu près
 épuisées. Il ne nous en reste guère que cinq ou six
 exemplaires complets. Nous les vendons au prix d'un
 abonnement. Nous ne les vendons qu'à nos nouveaux
-abonnés.
 
 Nous tenons gratuitement à la disposition de nos abonnés la « Jeanne d'Arc » de Marcel et Pierre Baudouin.
 Ajouter un franc pour les frais d'envoi. Nous devons

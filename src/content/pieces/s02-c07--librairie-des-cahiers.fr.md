@@ -7,23 +7,16 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3495
 ---
-
-*Charles Péguy*
-
 Étant donné qu'à partir du quatrième cahier inclus
 nous avons cessé d'envoyer nos cahiers à tous ceux de
 nos nouveaux abonnés éventuels qui n'avaient pas
 accepté nos reçus, André Bourgeois a fait depuis les
-envois suivants
-Quatrième Cinquième Sixième
-cahier (1) cahier cahier (2) a
 
 Belgique et autres pays. 187 177 67
 
 La baisse brusque de la Belgique et autres pays pour
 le sixième cahier vient de ce que nos reçus ne nous
 sont revenus de ces pays qu'après l'envoi du cinquième
-cahier.
 
 Dans les nombres que nous donnons ci-dessus comptent quelques abonnés éventuels. Nous continuons en
 effet à recenser les citoyens qui dans l'Aurore font
@@ -34,8 +27,6 @@ nous manifester sans retard leurs intentions.
 
 (1) Les Intellectuels devant le socialisme.
 
-(2) Danton.
-
 septième cahier de la deuxième série
 Nous supprimons rigoureusement l'envoi des cahiers
 à tous ceux de nos anciens abonnés qui, n'ayant pas
@@ -44,7 +35,6 @@ moins écrit pour nous manifester leurs intentions.
 Nos finances restent lourdes. Je ne puis en donner
 l'état aujourd'hui. Le mouvement des fonds, entrées et Ÿ
 sorties, est si considérable qu'un état de situation,
-arbitrairement daté, n'aurait aucun sens. Au moment
 où nous avons commencé la deuxième série, deux
 méthodes se présentaient : la méthode petite-bourgeoïse ,
 et la méthode révolutionnaire. Sur les quatre cents
@@ -66,7 +56,6 @@ différents publics répondirent, comment ce lancement
 devint une enquête véritable.
 Nous avons donc dépensé beaucoup d'argent, tout en
 réduisant nos frais au minimum strict. Nous avons ainsi
-res sx
 répartis ainsi à peu près : LE
 cinq à six cents abonnés de propagande
 %. Dès à présent nos cahiers se suffiraïent à eaxmêmes Fe
@@ -83,7 +72,6 @@ vont pas aux instituteurs. Nos abonnements gratuits ne ee,
 “ abonnements ordinaires aux professeurs. Dans Fétat
 “ présent des institutions et des esprits, nos cahiers ne de
 à deux ou trois cents personnes, à des instituteurs, à
-g- + Pas
 
 septième cahier de la deuxième série
 écrites soit à nous soit à M. Émile Boivin, secrétaire .
@@ -93,7 +81,6 @@ par de sérieuses références. La plupart de nos abonnés
 gratuits nous assurent que nos cahiers sont beaucoup
 lus autour d'eux et voyagent en pays abandonnés.
 Sur demandes fortement motivées, nous avons gardé
-quelques abonnements entièrement gratuits.
 Décidés que nous sommes à garder toutes nos char- î
 ges, nous demandons que nos abonnés nous procurent
 les moyens d'équilibrer nos budgets.
@@ -106,16 +93,12 @@ pas devenir pour huit francs abonnés de propagande.
 Nous maintenons à deux francs l'abonnement gratuit.
 Nos anciens abonnés gratuits nous doivent ces deux
 francs depuis le commencement de janvier, pour la
-deuxième série.
 Nos abonnés de propagande n'ont pas tous payé leur
 abonnement à la deuxième série. Nous prions ceux qui
 sont en retard de vouloir bien s'acquitter. Un tiers environ de nos abonnés de propagande pourraient souscrire un abonnement ordinaire. Nous nous permettons
 d'attirer leur attention sur cette situation. Nous les
 prions d'examiner, chacun sous sa responsabilité, s'ils
 peuvent ou s'ils ne peuvent pas devenir pour vingt
-francs abonnés ordinaires.
-
-ÉÉPSOOIT RAR !
 
 Cependant nous attirons l'attention de tous nos amis
 sur l'avantage que nous avons à ce que de nouveaux
@@ -161,7 +144,6 @@ abonnés. Mais quelques amis anciens et anciens camarades m'ont dit : Mon cher P
 d'ignorer tout à fait tes cahiers. Nous ne t'en gardons
 pas moins notre vieille amitié. — Cette vieille amitié
 me sembla de même qualité que la vieille gaieté fran-
-çaise.
 
 Nous savons que beaucoup de personnes lisent nos
 cahiers de mains en mains, sans s'abonner. Nous nous
@@ -171,7 +153,6 @@ que cet usage a de parasitaire.
 Mais l'expérience et le calcul ont démontré que la
 principale force de nos cahiers leur viendrait des souscriptions mensuelles. Nous avons tous des budgets
 mensuels. Nous devons constituer aux cahiers un budget mensuel régulier.
-f Cab, A .
 Quand je fondai les cahiers, plusieurs amis anciens
 me dirent : Mon cher Péguy nous refusons formellement de t'accorder aucuns subsides, car ce serait encourager une institution qui ne peut durer. Ce serait
 mal administrer nos finances, et te servir de mauvaise
@@ -234,7 +215,6 @@ ainsi de suite. Il est indispensable que chaque institution libre ait un entoura
 ces amis soient assurés qu'une souscription mensuelle
 régulière à une publication soignée est d'une action
 plus efficace à beaucoup près qu'une accumulation de
-parlements.
 
 ceux de nos abonnés qui nous ont demandé comment se partager entre les institutions libres nous donnerons dans le neuvième cahier des indications utiles.
 
@@ -269,7 +249,6 @@ de deux ou trois francs, et que nos abonnés ordinaires
 paient le leur en quatre mensualités de huit, quatre, 4
 quatre et quatre francs. Nous ne faisons d'exceptions
 que pour ceux de nos abonnés que nous connaissons
-- personnellement.
 Enfin nous fondons La librairie des cahiers, c'est-à-dire
 que nous faisons pour nos abonnés la commission de
 tous les livres. Nous réservons rigoureusement ce service à nos abonnés.
@@ -291,7 +270,6 @@ De grosses difficultés d'orthographe se présentaient
 pour les noms propres. Il fallait passer des noms grecs
 aux noms français par des variations voulues. Nous
 avons fait pour le mieux. -
-"EUR
 
 Un des beaux livres du monde est le roman de
 Tristan et Iseut comme l'a reconstitué M. Joseph
@@ -305,47 +283,27 @@ et ceux qui sont heureux, les mécontents et les désireux, ceux qui sont joyeux
 tous les amants. Puissent-ils trouver ici consola- .
 tion contre l'inconstance, contre l'injustice, contre
 le dépit, contre la peine, contre tous les maux
-d'amour !
 
 Pris dans nos bureaux ou franco
-domicile à Paris 3 francs
 Franco à domicile en province ou à l'étranger
 Seul ou dans une commande inférieure
-à onze francs 3 francs
 Dans une commande égale ou supérieure
-à onze francs 3 francs
 
 Vient de paraitre chez Calmann Lévy, éditeur
-HISTOIRE CONTEMPORAINE
 
-MONSIEUR BERGERET .
-
-A PARIS
-ANATOLE FRANCE
 Pris dans nos bureaux ou franco
-domicile à Paris 3 francs
 Franco à domicile en province ou à l'étranger
 Seul ou dans une commande inférieure
-à onze francs 3 francs
 Dans une commande égale ou supérieure
-à onze francs 3 francs
 La série de l'histoire contemporaine est ainsi
-portée à quatre volumes
 I. — L'Orme du Mail.
 II. — Le Mannequin d'Osier.
 III. — L'Anneau d'Améthyste.
-IV. — Monsieur Bergeret à Paris.
 Les quatre volumes, dans nos bureaux ou franco
-à domicile, 12 francs.
 
 Vient de paraître chez Fasquelle, éditeur, dans la
-Bibliothèque Charpentier
-LA VÉRITÉ EN MARCHE
-PAR
-EMILE ZOLA
 La vérité est en marche
 et rien ne l'arrêtera.
-PRÉFACE
 
 Je crois nécessaire de recueillir, dans ce volume, les
 quelques articles que j'ai publiés sur l'affaire Dreyfus,
@@ -374,7 +332,6 @@ l'homme de lettres, l'homme de métier tenait absolument
 n'ai écrit ni romans ni drames, et peut-être voudra-t-on
 bien ne pas m'accuser d'avoir battu monnaie avec cette
 histoire si poignante, dont l'humanité entière a été
-bouleversée.
 
 Pour plus tard, mon intention est d'utiliser, en deux
 œuvres, les notes que j'ai prises. Je voudrais, sous le
@@ -422,11 +379,9 @@ Dreyfus, les quelques documents de mon action personnelle, dont j'ai tenu à lai
 à la Justice de demain.
 
 Paris, le premier février 1901
-Emice ZoLa
 
 Ce volume contient
 M. Scheurer-Kestner, article paru dans le Figaro du
-novembre 1897;
 
 Le Syndicat, dans le Figaro du premier décembre
 
@@ -440,7 +395,6 @@ Lettre à M. Félix Faure, président de la République,
 publiée dans l'Aurore du 13 janvier 1898;
 Déclaration au jury, lue le 21 février 1898 devant la
 cour d'assises de la Seine, et publiée dans l'Aurore du
-lendemain 22; :
 Lettre à M. Brisson, président du conseil des ministres,
 publiée dans l'Aurore du 16 juillet 1808;
 Justice, article publié dans l'Aurore du 5 juin 1899;
@@ -461,12 +415,9 @@ La préface du volume a été publiée dans l'Aurore
 du samedi 16 février 1901.
 
 Pris dans nos bureaux ou franco
-domicile à Paris 3 francs
 Franco à domicile en province ou à l'étranger : .
 Seul ou dans une commande inférieure
-à onze francs 3 francs
 Dans une commande égale ou supérieure
-à onze francs 3 francs
 
 Cette confrontation devait passer dans la première
 série. Nos anciens abonnés la placeront avec les discours

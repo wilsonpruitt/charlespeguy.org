@@ -7,68 +7,28 @@ author: leon-tolstoi
 isAvertissement: false
 wordCount: 13712
 ---
-
-t € T rRezèmE CAHIER DE LA SIXIÈME SÉRIE
-NQ TOLSTOI
 l'Église et l'État
 les événements actuels en Russie
-HARAADUGTION JW BIENSTOCK
 1393895
-A.[C LE
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-RE AT RAA EPS MONTE #
-0 ut eRy SCIE ER ra DEAN (UOTE A TRES (A ÉRES qAes JR NN a HS RUTANES GE EN A
-LP NOR ELA AROSQ PRE HS SANT UC ANS D En AE RE NAN ENS
-he HN A ARS TT Re nue
-1e EE CR AA Pt à PARA D PA HAT
-CHAT EU ET TRS UME NA VRA NORME RE EC Pa EEE NEA EN PRIT TR
 Re RNA EENEINE ne PRET So tes #7 LOU OA ARR UNE CRT
-PRICE MES RAA) NRA A AE UE SP Sp MTL TONRNES En CE DO NOR
 AD ANA TE des: dr A APS CE DAC AN TS PE UE ES re
-RE, AAA ANT MANN ARTE MERE nn He (Er CNe PAAEL Ave ROUTE
 7 ra le JE ARENA ENAUIE Lex Cr VA Ar D Par ARR EEE AE NL LES CET LPS
-HT ASE PANNE CRM À RE SEA CS ANAL Rd
-5 8 RESTE LES ER RU LE CURE MR À PER PA TE à SRE LNH (AA RENE
 Rte CR ne UC
 | MIE ft SANS LE ) PAR Or QE ELU tre FRA E 4 fe 12 0e AITIRN Fes
-D res  :
 AU SE VAS CA Ut ÉTAPES te L'INCNUES
-LP ONE RE | UE EUR RENNES :j GNa
-ARR AN PNR FAC DARNRE GENE IG FOURS A ES A RES ANT
-RUN f AU 4 à MATE CAPE M + LT@ Ve MAR Er d'inre,
-SA RE HN AR w LE Vi PER AS LME HO TNAUN FAR e a ANA ;
 MR CE IIS Pioer bt Moir SP EN Cp APN NO E ME ER AV + KIA
-RC SAN PA APE EAU € AR RE NOR ES RUPITENT REUNLLE NT DOME AAA US ER pa 1 FSI
 MA AS Lu tu OR AO RARE LA UT NE ARNO UNE Nes ARTS M | ? HARAS
-PQ OUTRE USE SDAGE EDR A rm EU NT EME
-TA LA EC SPPANENRE
 
-4 CE
 A ER SA NAN PES fe
 RATER CA MORE A AT rt ii AU Fu MA tbe À
-a AN ITS
-('ANSAE SAONE RES APCE AE ET AN Te
-CRCADO TS Ts TC NU YEUN TT ARS RES AE VTT j: qua MeAANC
-À PALIN ENTER +: EU AE UT GES A VEN CAEN XÉAT TS # CÉRAER enE En
-fl ARS FL DSTA TOR À MMS [URATS (4 144 { RAD UE ‘10
 ca FEES HU CRUE au PANNE AS ol \® fe AUS LA LA NITER à
 1 ‘10 PEU AUS 28 REA | HA NIENC mes: PAL NI AA Av Dre HE) NAS ir!
-DC APTE PRE VE GNU ETES [Rte ÉD NAT EEE PALIER QUE) 1:
-APS ART IAR RARES EU Ne ROUE NES Ha Ted (MERE De
-V5 LES NV AUS HAT PANTIN MAS SARA HN
 DR | Or NU LEA (TA RES A D LV dd ul LPS st
 127 LENS at ji À (AA Cie REA EAE HR EU NU \ fé OU Ce
 ; “NAS x 4 He he n dora IAA AN RE MY AUDE MU Ni QU a)
-AU DURANT EN AA F7 CA NPA LA La NA Jar RS
-Et MT EN (ÉMIS NA n AE RU NA NN ut AAANNeE
-2. ERR se ONE " M QU NRA ENT HET NA
-D
-LENOIR HA NAS PEAU
-A e A AT
 
 Nous avons publié dans nos éditions antérieures et Le
 dans nos cinq premières séries, 1900-1904, un Si
@@ -86,7 +46,6 @@ M. André Bourgeois, administrateur des cahiers, 8, rue
 de la Sorbonne, rez-de-chaussée, Paris, cinquième - +
 arrondissement; on recevra en retour le catalogue
 analytique sommaire, 1900-1904, de nos cinq pre- l
-} mières séries.
 
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
@@ -106,31 +65,13 @@ reçoit, par le fait méme de son abonnement, en tête de
 la série; nous l'envoyons contre un mandat de cinq francs
 à toute personne qui nous en fait la demande.
 
-;
-
 "#7" Je Fer EE sil RATE NE TES JUAN PUITTE AT ru Pr, nt »
-A ET Li F AE LRO PR à F- eV Le DETTES
-j FREE AUS pre NAN PUMA TEE RAA: % ARR AAC AIR Ne
-+ 15 TER OR A RAVSHMNBSAT LR A NT AU AU à
 re ï ta HAUTS pe j À 24" 3 TAK TENUE ARE
-Her AS RTS F\0n À s prie Ro A)
 ‘LES SORNNER $ MES set
-AT AE Er 0 NS
-ils 80 AA
-fat ter
 À pi ALAN 1 k ne
-1 FN f 4 | RS
-ACROSS NOR A | PES
-1 ARE À « û : LS RE
 #,. > PONS se 1 LR NUL
 > ADR RIT ù A A AE RRR
 #4 V0 CUS ERA RS LT NPA PAR Le
-Jr LNON ANRT MES ICE PRE ER ÿ \ V7 He VASTE EE SAINS
-u LUNA 14 PO RNA Se NT QUE Ÿ U 4 É PEN EN ; 4: Fur
-ARS (EUR EMMEa CEA E 4 DV OL a NE NON LS ANA
-
-HER ARR PAIE ARBRE AG EN BAR D A BE OS
-je A ANA TAN FN ASNTRROE RACE M ITS FEU DEPART ALT Ur
 
 4 Nous avons eu par les soins de Léon Deshairs une
 Me ‘ photographie de Tolstoi et Gorki se Promerteile ss :
@@ -139,16 +80,8 @@ Me ‘ photographie de Tolstoi et Gorki se Promerteile ss :
 
 ,  Deshairs par le docteur Schlepianoff; nous l'avons Jait
 it _ reproduire à trois cents exemplaires ; nous la ie A)
-: INRA deux francs
-Fe VS UNE
-
-k RAP
 
 | 2 : (AS LA Ke
-nn No i
-
-k \ ÿ z) 34} RARES
-fs LAPS
 
 Notre vieil abonné M. J.-W. Bienstock nous avait apporté il y a plusieurs années le premier des deux fragments que l'on va lire; on verra ci-après pourquoi ce
 fragment présente un intérêt véritablement unique ; le
@@ -163,7 +96,6 @@ ces cahiers, au moins de sitôt et jusqu'à sa publication
 dans les éditions définitives ; il n'est point compris en
 effet dans le volume que M. Bienstock prépare en méme
 temps que nous préparons ce cahier, et qui va paraître
-incessamment.
 
 Sous ce titre : Dernières paroles, M. Bienstock réunit
 en un corpus les diverses manifestations que nous avons
@@ -175,29 +107,13 @@ _ et rassemblés forment un volume de trois francs cin-
 quante aux éditions du Mercure de France; on peut le
 
 . commander dès aujourd'hui à la librairie des cahiers.
-C4
 
-LR,
-ï LU ATEN
-k Eva j AMEL T ! 4
-
-f.1 CRE #1! ALES “ ra: Aa D A” Her Pt AU 1
 MAL bit Me AR DE PEN Le Reid AE TER US (A
-
-FAGEAIS F3 EN SA DS Lu (i Us: NUS le 48 FETE ETES
-
-PUS 4% 12 ‘ f ÿ eu MUR, A NC E AN LP “ ru “4
 
 | AAA RO A ra ENS 5 Ge % GOT 2  : _ 16e P (
 
-"Le EN 0 F ÿ L FN LRU PRE WIR IEEE FE
-
-h au AE Ji RARTS Re fe MEN RQ DATE RATER “DA LP cie
-
 “ AS Heu me È 29 \E4 ' B É AT er Et RENE "ts
 Un Ar EE 14 Edit) a *f È 5 NH ot FE {ARLES {
-
-“HR 5 00e Ne nee TRS MANS LÉO Qi
 
 AS ré ce Lare PA RDE à 2 tt 7e M:
 
@@ -205,51 +121,26 @@ Fe TR 1 PRG. NT RAA SA Ia un HV bi RU Ki td VALUE A ES M #4 PES
 
 SUR C pat REX t A fc gt APE ‘ a AE TAN MOTTE mx
 
-LERIDE as FAN ACL EN DENT HIER HLERE Le. NU |
-
-PTT : . ? : RE ARE SMALL : RUE AS '
-
 AFRO bé ART AU (qe LE Ma # AT e CA vŸ: RUE
 Set + Ë hs AUS RENE HN De YA EE VD Wt HET LISE
 
 ACT, Nes Le ar LEA MA PU FOR NN ner
 Led dit LE NAN MANU EU HN LUE NY À
-Rene 1671 NE PA + RE “RU AATTOR PAT. |
-APE RICE IGN Dre He f: SHAUE AN
-ES US LL NUE
-
-MALE PAT A AC He CS NE SAS
 
 Li LE AUS NE a D A A A A A IN Een W ty
-À AR ACER * } Ha) NL 10)
-nv. A RTE
-dix (NSP EU 1 ml 4 {51} UT ANNE
-FAN MEANS { ! (M t RAMLRANIIAR LUE
-
-À (y RAS | Vi ; : ( DA ÿ NAS At ù dl
-\ AIS NL En
 
 | 1 CNRS HAUT PE Ï } 4 A. à A EE \l Ns
-\ NE Ni PE PA AAC NP EAN JAH Aer ARE LE l FA
 
-ja D DO
 Joue We UN DRE QUE d; ee 45: We £ NE
 ne tt LES ET Hs RARES papa
-1e Ne, din An a.
 | di en ARTE do RMONtE DATE 1% EU Ce NE % Ra ) UNE Ne
 RCA ‘HS tes 1 RANTA he re NES sn: As DE Ÿ NA A MH Det qe
 su rx è ROUE à Le el txt RCA) VE CU iN Ps TE LA AN RARE HER HU +
-Es FREE SAN RENE DER RON ! RU NOR A RENE FE VE HAE 4 l
 JTE il MES Pc ja FPE f AUS PDUAT TN (AM AU: Do “AI #
-2e ‘NA dé MANS VIN ve Fa af # GE ' TEA SU ue au
-fl “HET Hi Er ! L ( RARE Ve ER RyUR NUIEN M EMA LS AN FO vL
 AU RAS Le | fe te MAIN ALT RTS FEU EU É
-ù A NS Re A | » LES UE SA 7e 4k (24 LES
 Au EAN “HAE tea ta, 8 AT ME RE HAN fi AIM Nr, fil Et Ms RE tar +
 NE LE LP TR Aa tEt NUE Lion î ris d DAUVe) AU f
 Die Un à Éon HAE AS D ANT HU QU AE ee Sp 4 Li '
-“VASTES Ai a nt Lol Lite Te Wie
-Al ANONAE con PACS CAN AA AY
 1 oo ni ti ne van
 et MA DSi HE IN) RE El
 A A NEA a ni Fig |
@@ -280,88 +171,49 @@ sommes fait scrupule de le publier; nous nous le permettons maintenant que nous 
 . inséré nulle part, sauf dans une éphémère revue anglaise, The New Order. Jai raconté ceci pour ôter à
 Tolstoï la responsabilité de la forme de ces pages.
 
-pi BIRUKOV
-
 ne) nn dites
-LU ; ANR )
 à Ne na RU jou LE AO
-Ru HN NA AU AS PET
 ta Au A cs (Pr FN ACTES FX LD hat ae CAPES ï
 ne (pet mi PT à D NY fi PIN In Are
 ER DEN NÉE er m4 (hp ul LA REIN Fo du
-1 ea M'A Role ets PLIS fn PARA TOM AU A ES
-A QE SPORE EU 1 DTA LA HA HE ï ï je :
 NE AE Le U FRA SNL nat QUE Wir FRA el es 1 | jh : . |
 4 ss Re “L A HAE RASE ik
 ' : 16 ) put URI aol AN cg: LUE MA ER , +0 no e KE RE Le JA SRE PTE |
-14 ar da" gant LAON PAPAS HRREE ARR APS SR rar RT LM Re 4
 À. . . à \ Aer (A pv Puit SA LU NeR FRE NS es us + A ne AE
 1 ‘i . Î je " ‘ ji pu rat A LAN À ar San ET Born Fnhe 13510 ,
 are PAS A (0 AD *« 4 d NITÉE y V+ SEA UD Le (y Ke LAS WA pe Lo eu
-fie ‘1008 He AS Dr IC Fa ATEN A EE 2e ‘ 4
 | | k + ' } £ 11 (ar) AA Win (HE F2 \'o L FAR, APE eu: AE €
-“ (res Fe RE LP UE EN LU NU RES AE SAS Mens AN 114
-: 4 ; : : à ou WA Ad 1 (4: ! MIRE Fa UNS
 010 F7 VE PAT Ë FSU TE NES DS ee NEA ere De 1 AA
 ‘es pr ty Fe (HA ifle A Win [Vue PT: La LATE FAR "
 u ol 4 RENE f Hat Ur Ÿ (ii PAR ro AE LEURS fs
-5 DT: ù A En Ha TAN #1 ER A AQUE 1) l'E her \ LS
 NA (in N Do di AE La ti (L 1 SA A { Lau fl “ à -
 EM HO Fe us jun RES" Al HAN a Vi ; de ‘5 | ;
 ou. Je ÉRIE ke se RE?) AU Lis a ASE 1 LM “à : à
-MA TRUE Qe FAN # \iy AAA AT FAT RE DATES 44 à : 5 | ù à
 PS UN Le j CEA els SEA OUTRE SIA AN F2 Ni ui, ‘ ui 1 | :
 q in ELA CR EE AA BTE AUS je ST PS HE TRE Aie
 MAS DCE nu AA AA LUN tes Aa? UE CI LEA 4 MA |
 ke . a AA f AO LA et A NtE it | Net Na Re 44
-. . s "4 AA LA ENS LUE: FA LR AM EU Vu qu LE
 Ÿ A RE f je SAUT ASE ml CU Star g SEM #3 RAT RAT SET
-4 da . in js joe Rep ANR AT MEET ai qL Pres D AE AE ar YA:
 ROMA K. RE * A M Mr HI LOD ge ae Shots de de di \ 4
 FA TARN D pri 10 EN ROLE AA 1 Car MATE hu ar di ï ‘ - n |
-AL 1 an RUAPCU: HAINE x b den FUME Var AATATE AU A a A 4e cu 4
 LE nt À) ÉATAU MTS UN Lens dx HAINE UE RS RTE) Hi PAR
 HRNAES lat QE MR Wie ne We
-Are LAS 1 Rise el ail tro PA
-PE nn. l'AS j 1
-(HA ANNEES 1 à 1
 
-HA NI GNES
-‘4 FAN RS
-a Dr A DR a An JADE) AUDE 13
 PH A AT ARTE YOUR #14 Dora que or PINS ni y" "y
 AN PNR ANNE (AA un Al H'N21 14 Ma fn CASA pee et CT
-u NN AG CARE AA HANES ATEN MAN ONE EU AU ‘Fan LIN
-(pe N St A TT AAA | NN) An AU RU REC 4 se FOTMEN \
-LE AS : ! Ÿ D ENHSNS RAR 2 TT
-IN CAN A a No Rae M ju DANCE Aa EE HAE RARE Se FAT ‘a AN :
 OT (PEUT AERNE UEFA IRL Jin LA AITUER LE AA LAON DE Fil PR D RAT UE
 an 14 VA ( EVER MA MS k DAV) : Sun + ANS
-) RATE RE } ÿ RUN (EM | ARTE Ft ANE Fee AU CASA
-} ON $ H Ne AU SEM NANTAIS je SA PH SOU HP IE 4 PAANIE ENTRE
-io MIE Ra FN GhnoUr PARU das À ins CARE ur » ire He M a
 | RU Ve YA SEA ARE HS Le FA DATE PARA LU et NT Ki À sf î
 6 ARR LAINE) \T RER De ji A Al a RNA NA de es se #7 A
 NE NE) GR SEEN Lire UIEE ur ee RNA Las AE 4 16 ar JAQRE FES
 Du ONG Fe fn CAR He A A TR 4, #| ape || RTS  SODENE
-k ARTE EAN TN AL FRE ae D NES D CRIME AL ARE
-AN FALSE AUS CE UE A UTAN ON NP FOERI QE To JON os NET k
 At FAR AA ru ANA A Le APTE ER HUE DRE
-1 ES A EAU #3 NAN AD AE ES SUR DÉRR ANNE TDR a
 SUITE mes FAN EE He Aa AN AANÉNUESS A1 AE ANT LP At PS Pia
 “ot Ati Nota 4 dus au ROUE AU ( ji NA Ne BE à
 NPA Va 8 TN JR DEAN ÿ At (ARE ne RES LE 413 e PAM SLR dif j
 À Re i MA otar ÿ ie) M tre At pro
-AUS DT APM } ADUT ri niet HOUR PCR TNENT FRS Fi ARRET Pin (Er) | peut CHER PE POCPRTEN | 11 ME
-1 PPT Mann ct RUN NAN
-LT RAANTE NU yet NN AD Ne {Al DAS NA AREA *: SARA j
 AN A AE ne RAR nr AUS it? Gas DAS PRIE DAY y AI AIR Pie ti
 ARLES ARTE SAUNA RU CLR M an Hi) eut NEA il
-FAN dd EE 5 rss
-AAC RE (AA te AN A NA AU LL |
-
-Léox Tozsror ,
-L'EGLISE ET L'ETAT
 
 La foi c'est le sens donné à la vie, c'est ce qui
 imprime à la vie sa force et sa direction. Chaque
@@ -379,7 +231,6 @@ paraissent qui font tout pour que d'autres hommes
 profitent exclusivement d'une forme de la révélation
 et non d'une autre; ils ne peuvent rester indifférents
 
-Léon Tolstoi
 tant que les autres n'acceptent pas leur forme de
 révélation. Ils maudissent, ils supplicient, ils tuent
 tous ceux des dissidents qu'ils peuvent atteindre.
@@ -406,8 +257,6 @@ de la tromperie, toute l'humanité s'y soumet, me
 sembla la preuve qu'au fond de cette tromperie il
 y a quelque chose de vrai: Autrement tout cela est
 
-L'ÉGLISE ET L'ÉTAT
-
 si sot, qu'on ne pourrait s'y laisser prendre. Cette
 soumission générale de l'humanité à la tromperie,
 m'a même fait reconnaître l'importance du phénomène qui en est cause; et ainsi convaincu, je me
@@ -431,11 +280,9 @@ et moi aussi je la connais. Leurs expressions doivent
 tous deux des hommes.
 
 Comment, pourquoi, puis-je être contraint d'exiger de n'importe qui qu'il exprime sa vérité comme
-moi ? î
 
 ‘Je ne puis ni par la violence, ni par la ruse, ni
 
-. Léon Tolstoi
 par la tromperie (le faux miracle), forcer un homme
 à changer sa foi.
 
@@ -463,7 +310,6 @@ foi, — c'est-à-dire la tromperie religieuse.
 La foi ne peut être imposée, de même qu'elle ne
 peut être acceptée ni par la violence, ni par la tromperie, ni par l'intérêt; il ne s'agit donc pas de la foi, : ,
 
-L'ÉGLISE ET L'ÉTAT
 mais de la tromperie de la foi, et cette tromperie
 de la foi est l'ancienne condition de la vie de l'hu- » "manité.
 
@@ -490,9 +336,6 @@ n'y en a pas de plus contraire à la doctrine du
 Christ. En réalité, le mot ÆZcclesias signifie réunion
 et pas plus, et c'est ainsi qu'il est employé dans les
 
-à
-
-Léon Tolstoi o
 .  évangiles. Dans les langues de tous les peuples nou-
 
 veaux, le mot ecclesias signifie lieu de prières.
@@ -524,10 +367,8 @@ proprement parler, on ne dit rien, parce que si je
 disais que la chapelle est la réunion de tous les
 vrais musiciens, je n'aurais rien dit tant que je
 
-L'ÉGLISE ET L'ÉTAT
 n'aurais pas défini les vrais musiciens. Selon la théologie, les vrais croyants sont ceux qui suivent la
 doctrine de l'Église, c'est-à-dire qui font partie de
-TÉglise.
 
 Sans répéter iei qu'il y a des centaines de vraies
 croyances pareilles, cette définition ne dit rien et
@@ -539,13 +380,11 @@ et les pasteurs, établis par Dieu, enseignent cette
 doctrine vraie et unique, c'est-à-dire : « Nous jurons
 
 .. que tout ce que nous vous disons est la vraie vé-
-rité. »
 
 I n'y a rien de plus. Toute la tromperie est là :
 dans la définition et la conception de l'Église. Et
 l'essentiel de cette tromperie c'est qu'il y a des gens
 qui veulent, coûte que coûte, inculquer leur foi
-aux autres. :
 
 Pourquoi done veulent-ils tant faire accepter leur
 foi aux autres hommes ? S'ils avaient la vraie reli-
@@ -555,7 +394,6 @@ vie, le rapport envers Dieuétabli par chaque homme
 et qu'ainsi on ne peut enseigner la foi, mais la
 tromperie de la foi. Mais ils la veulent enseigner.
 
-Léon Tolstoi +1
 Pourquoi ? La raison la plus simple serait que
 la galette et les œufs sont nécessaires aux pré-
 tres, et qu'il faut aux archevêques, les palais, les :
@@ -582,7 +420,6 @@ tuer l'homme ; on a supplicié depuis que le monde
 existe; si ce n'est moi ce sera un autre; j'espère,
 avec l'aide de Dieu, le faire mieux qu'un autre ! »
 
-L'ÉGLISE ET L'ÉTAT
 De même le Métropolite dira : « L'adoration exté-
 rieure de Dieu est nécessaire; depuis que le monde
 existe on a adoré les reliques des saints ; on respecte
@@ -608,7 +445,6 @@ celte adoration extérieure de Dieu et son enseignement, si fortement déniés p
 premiers temps du christianisme, la conception de
 l'Église sert seulement à définir tous ceux qui partagent cette croyance, et que je considère comme
 
-Léon Tolstoi
 É vraie. Cette conception est absolument juste, si elle
 s'applique non à la croyance par les paroles mais
 par toute la vie, car la croyance ne peut être expri- |
@@ -633,12 +469,10 @@ plus grand : l'union des chrétiens avec le pouvoir.
 
 Le pouvoir, c'est Constantin, qui, selon la conception
 
-L'ÉGLISE ET L'ÉTAT
 païenne, est au sommet de la grandeur humaine (il est
 considéré comme un Saint), qui accepte le christianisme, donne l'exemple à tout le peuple, le convertit,
 prête main forte contre les hérétiques, établit par un
 concile universel la seule religion vraie, chré-
-tienne.
 
 La religion catholique, chrétienne estétablie pour
 toujours. Il était si naturel de se laisser prendre à-
@@ -662,12 +496,10 @@ c'est un sacrilège, c'est la perte du christianisme.
 Après avoir vécu quinze cents ans dans cette
 alliance sacrilège du pseudo-christianisme et de
 
-Léon Tolstoi
 l'État, il faut faire un grand effort pour oublier tous
 les sophismes compliqués à l'aide desquels, pendant
 quinze cents ans, partout la doctrine chrétienne fut
 défigurée pour la concilier avec l'État, pour expliquer la sainteté, la légitimité de l'État et sa possi- :
-bilité d'être chrétien.
 
 En réalité ces mots : l'État chrétien », c'est la
 même chose que la glace chaude ou tiède. Ou il
@@ -689,10 +521,6 @@ tous les peuples. Les brigands et leurs descendants,
 avec des chefs appelés ou César ou Auguste, pillaient et torturaient les peuples pour la satisfaction
 de leurs plaisirs. Un des héritiers de ces chefs de
 brigands, Constantin, après avoir lu beaucoup de
-
-24 à
-
-L'ÉGLISE ET L'ÉTAT
 
 livres et s'être rassasié de la vie de débauches, pré-
 féra quelques dogmes du christianisme aux anciennes croyances : aux victimes humaines il préféra la
@@ -724,7 +552,6 @@ sans se gêner, vivre en païen, comme avant. D'un
 mort; c'est pourquoi Constantin peut vivre comme
 25 2
 
-Léon Tolstoi
 il veut. Ce n'est pas tout : on peut se repentir et
 avec un peu de pain et de vin, ce sera le salut et
 _ tout sera pardonné.
@@ -753,7 +580,6 @@ Et quand un empereur, c'est-à-dire un chef de
 brigands, voudra étrangler son peuple ou ur peuple
 étranger, on lui donnera aussitôt de l'eau bénite. |
 
-L'ÉGLISE ÊT L'ÉTAT
 On y trempera la croix (cette même croix sur laquelle
 mourut Christ parce qu'il dénonçait ces mêmes brigands), et l'on bénira pour l'étranglement, la pendaison, la décapitation.
 Tout irait bien, mais même ici, ils ne peuvent
@@ -774,9 +600,7 @@ de l'Église vraie, non fantaisiste, c'est-à-dire l'his-
 - toire de la hiérarchie sous le pouvoir des souve-
 - rains, n'est qu'une série de tentatives vaines de la
 part de cette hiérarchie malheureuse pour conserver
-se 27
 
-Léon Tolstoi
 la vérité de la doctrine en la propageant par le mensonge, et en s'écartant d'elle en réalité.
 
 L'importance de la hiérarchie n'est basée que sur
@@ -801,18 +625,12 @@ La vraic religion peut exister partout sauf là où
 elle est clairement mensongère, c'est-à-dire violente,
 pas dans la religion d'État. La vraie religion
 
-28 |
-
-L'ÉGLISE ET L'ÉTAT
-
 peut être dans tout ce qu'on nomme hérésie, mais
 assurément elle ne peut être là où elle s'est unie à
 l'État. C'est étrange à dire mais les appellations (re- }
-ligions orthodoxe, catholique, protestante), telles
 qu'elles sont établies dans le langage habituel, ne
 signifient rien d'autre que la « religion unie au
 pouvoir », la religion d'État et, par suite, la religion
-mensongère.
 
 La conception de l'Église, c'est-à-dire l'unité de
 pensée de plusieurs, de la majorité, et, en même '
@@ -833,12 +651,10 @@ l'empereur, qu'a commencé, pour ceux qui professent la même doctrine, la tromp
 non seulement un mauvais argument, mais, pour
 certains, le pouvoir, Elle s'unissait au pouvoir et
 
-* Léon Tolstoi |
 commençait à agir comme pouvoir, et tous ceux qui
 s'unissaient au pouvoir et se soumettaient à lui,
 cessaient d'être religieux et s'adonnaient à la trom-
 
-HNDOrE: ;
 Qu'est-ce qu'enseigne le christianisme en le
 comprenant comme la doctrine de n'importe quelle à
 
@@ -860,9 +676,6 @@ claire pour chacun, et chacun peut voir le résultat
 de l'un et de l'autre dans la vie des peuples, et par
 ces résultats, il peut conclure quel côté est plus im-
 
-30 |
-
-L'ÉGLISE ET L'ÉTAT
 portant et si l'on peut s'exprimer ainsi, « plus
 vrai ». Quand on regarde d'un côté l'histoire du
 christianisme, on estsaisi d'horreur. Sans exception,
@@ -887,9 +700,7 @@ point ne pas se tromper. Ceux qui étaient sincèrement entraînés dans les dis
 sans remarquer que grâce à ces dogmes ils servent
 
 | Satan et non Dieu, sans remarquer que Christ di31
-;
 
-Léon Tolstoi
 sait clairement qu'il est venu pour détruire tous les ;
 dogmes, ceux-là pouvaient aussi se tromper; de
 même ceux qui, après avoir hérité de la tradition
@@ -902,7 +713,6 @@ voilé le sens primitif de l'évangile qui nie tous les
 dogmes, nous qui avons devant les yeux les résultats de ces dogmes dans l'histoire, nous ne pouvons
 nous tromper. Pour nous, l'histoire est le contrôle
 5 : de la véracité de lk doctrine, contrôle même mé-
-cahique.
 
 Le dogme de l'Immaculée Conception est-il nécessaire ou non ? Qu'en résulte-t-il ? La colère, les injures, les railleries. Présente-t-il quelque utilité ?
 Aucune. La doctrine qui défend de tuer la fornicatrice est-elle nécessaire ou non ? Qu'en résultera-t-il?
@@ -913,8 +723,6 @@ Autre chose. Dans n'importe quel dogme, tous
 étaient-ils d'accord? Non. Pour donner à celui qui
 demande tous étaient-ils d'accord? Oui.
 
-L'ÉGLISE ET L'ÉTAT
-
 Voilà donc un premier fait : les dogmes sur
 lesquels personne n'est d'accord, qui ne sont nécessaires à personne, qui perdent les hommes, c'est ce
 que la hiérarchie donnait et donne pour religion,
@@ -924,69 +732,25 @@ cela, la hiérarchie, bien qu'elle n'ose le nier, n'ose
 aussi le donner comme doctrine, car cette doctrine
 la renierait elle-même.
 
-Léon Tozsrot |
-
 Pur SAN re DEAR NO EN PEU UN 4
 réing le | ARBRES AE PACE Ne ur de POS AR et \
-CE Jass PA ES En UN SE ST TE SES ESS ARRETE
-D CCM CRE MER OT ARC
-NS r A IE EL = l'AS :  - T'ARFONEMENSS
 LE e rt è APE CPL AT ARE KE, h SAR re
 # 1 ART à Ne j RL
-ve l 7 PRET 0 à
 % Le ‘ FAT re on NN NES
 Vie Ê PART RE T KART PRES pe
 AE de : RE Re Ton on
-4 É Y x « LES STORE HAPANCE 4
-: VER AR Pre dre LATTES
 ; 1 STE NE CARE Chr PE Le STORE RE
-® 51% es LE ARE PT te À ‘Æ 5394 DELA
-é ER Er : ORDER LEUR ANT ERRE LME
 | PLU TR CVS RSR ARR MIO TETE NES
 
-À LISE D j ‘à Vas
-LORS PA, PASS RES Ce De ART RE CT TER
 MEL ee res FA pts SRE SRE PU VALereg el DE 20e a NE à LR 20
 Ra NE EE yes + sa CHAT AT i g. 13; RENE
-“ LCUECR VAT AE AP IE DE À h: AR
-+ “#4 ner f Phasi fs vi 52 * pi + ù Fat
 7 0
-Re 0 * Le
-. “0 k à , peur ai
-À RARE He ++.
-T* 100 re Re
 les événements actuels en Russie
 les événements actuels en RUSSIE : RÈR
-: “48m , : TRE
-IE #2.| FL 18
-; L be | a
-CAT RE. +
-Men 71 \ sn
-1 1 RE, SE « (1870 »
-: # 1x N 2 À { #
-PE ! 4 #
-ei 14 1 L F i HAL:
-" get LITE Poe . LUE
-À : M L PR L - È î ART Fe. di
-LI 5! : Ur:
-
-PANNES  AUAT A) PP UAL PNA PEL EE MEN CNP ETREUR AI EN IR IPN PR FAO NN RS REENr
-
-HAN A NO ? HS LR ARE NH TAPANT A FAN APR PRIE TRANS L RAR LUN ARTOT STRE
-
-EAN En te PO NS
-
-“a AA LOT k LORS ANS RUN AE" LEE QI AU REUT APS PCI
 
 FASIORT EE Ë LA 4} DD es Ra k LS RME
-“AP q RUE AU +5 À d'OS MERS F
-
-NAT te : “ f ÿ LUN RARE LOTS x
 
 Rent e : ie # 5 { H'APEMHENA ?S PES DE PELLE
-
-MOUS k SÉNARE 7 MANN LET Tas LV SEE TEA NE UE à ÉTEINT S
-M NA UeS LE :
 
 re: CEE D'ART SET HT) 726 LA PE Ar DA Li dr HT: LUS But 1# ?
 
@@ -1002,25 +766,10 @@ M. Bienstock a relu sur épreuves l'édition que nous
 donnons ici de cette lettre.
 
 LU 0 (x il ul PTE FRE LD Da ati Es AUS \
-ik) | ADAM ANS Ne ! RE NEO
 (A, AN NS AR a rs aun Es UM PAUN ARTE 1 EEE SEEN on
-COUR É FE € DA RS LAN PACE APRES JEAN LE CAE REA SE EE AE SR RAR Ne: 1, e
-D 7 PA OS AE NE
-TNA BRON | ; MONET EN TE RE M EN UE nie RQ
-AS TE | suite Van RON RE RM A Ra SRE ER è
 ri PR ! in y PS EEE dE AN NASA EN (Er A ARE T0
-: RES CAP ON LEA AE AA PQ A LATE SEAT TE PES CRT RSE ANA
 
-NU CAE Alf ÿ Ù Ü PASS PEAIOREAUIE RER AT SE lu NTRTE AE Lo
-
-Hi UM | ï / RE NA CEA DATE EEE AN CASINOS
-
-ENTRE LANDE ONE TAC AREA CU es DIN PE HAN 1 I CU NAN l
-PAU CE EE LR RAR AAA ANG LEA 4 SP RUES ANPAIARE LE NE NE RENTREE 1
 MAUR DAS AMEN EVE Re Den AO STAR ES PE LÉ RP DER AA PNA fee Le
-
-Léon Tozsror
-LES EVENEMENTS ACTUELS EN RUSSIE
 
 Il y a deux mois, je reçus d'un journal de l'Amé-
 rique du Nord, un cäblogramme, avec réponse
@@ -1042,12 +791,9 @@ que par le perfectionnement religieux et moral de l'individu. Tandis que l'agita
 Œ 5 il que, p'aç
 les individus l'illusion pernicieuse de l'amélioration
 
-Léon Tolstoi ;
-È
 sociale par le changement des formes extérieures, |
 arrête, ordinairement, le vrai progrès, ce qu'on peut
 remarquer dans tous les États constitutionnels : France,
-Angleterre, Amérique.
 
 Le contenu de ce télégramme parut dans les
 -Moskovskia Viédomosti, avec quelques inexactitudes ; et, aussitôt après, je commençai à recevoir,
@@ -1062,7 +808,6 @@ de peur, de colère et de haine qu'il a provoqués
 dans la société, j'ai cru de mon devoir d'exprimer
 avec plus de détails et de netteté ce que j'avais
 exposé brièvement dans les cent mots du journal
-américain. |
 
 Ce que j'ai à dire aidera peut-être quelques |
 hommes à s'affranchir de ces sentiments pénibles
@@ -1071,9 +816,6 @@ de la lutte, de vengeance et de conscience de son
 impuissance qu'éprouvent maintenant la plupart des
 Russes ; peut-être cela les aidera-t-il à reporter leur
 
-4o
-
-, LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 énergie sur cette activité intérieure, morale, qui
 seule procure le vrai bien aux individus ainsi qu'à
 la société et qui, maintenant, est d'autant plus
@@ -1099,9 +841,6 @@ religieux et moral, plus les formes sociales dans lesquelles ils se grouperont s
 gouvernement commettra de violence et de mal. Et
 au contraire, plus les hommes d'une certaine société
 
-4x
-
-Léon Tolstoi
 seront inférieurs, au point de vue religieux etmoral, * \
 plus le gouvernement sera puissant et plus le mal - |
 qu'il commettra sera grand. R
@@ -1129,7 +868,6 @@ Je trouve cette activité ineflicace, parce que la
 lutte par la force, et, en général, par les manifestations extérieures (et non par la seule force morale),
 
 de
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 
 - * d'uupetit groupe de gens contre un gouvernement
 ‘2. puissant qui défend sa vie, et qui dispose pour cela
@@ -1138,8 +876,6 @@ de millions d'hommes armés et disciplinés et de
 du-succès possible, n'est que ridicule, et elle est
 pénible au point de vue du sort de ces malheureux
 hommes entraînés qui perdent leur vie dans cette
-
-lutte inégale.
 
 Cette activité me semble déraisonnable, parce
 que, même dans l'hypothèse la plus improbable, —le
@@ -1160,7 +896,6 @@ façon et sous quelque forme que se groupent ces
 hommes, il en résultera toujours un gouvernement
 pareil et aussi violent.
 
-Léon Tolstoi 44
 Je trouve cette activité irrégulière, parce que les
 hommes, qui actuellement, en Russie, luttent contre
 le gouvernement, — les membres libéraux des
@@ -1169,7 +904,6 @@ les étudiants, les révolutionnaires et quelques mil- É
 liers d'ouvriers détachés du peuple et influencés par
 la propagande, — bien qu'ils se croient et s'intitulent
 les représentants du peuple, n'ont aucun droitàce.  !
-titre. |
 Ces hommes, au nom du peuple, réclament du ‘
 gouvernement la liberté: liberté de la presse,
 liberté de conscience, liberté de réunion, la sépara- |
@@ -1187,7 +921,6 @@ depuis longtemps, ce à quoi ils pensent et dont ils À
 parlent sans cesse, — et dont il n'y a pas un mot
 dans toutes les adresses libérales et les discours, et » 44 }
 
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 qu'on mentionne à peine, en passant, dans les programmes révolutionnaires et socialistes, — ce que le
 peuple attend et désire, c'est l'affranchissement de
 la terre du droit de propriété, la socialisation de la
@@ -1214,12 +947,7 @@ déraisonnable et irrégulière. De plus, elle est nuisible, parce qu'elle déto
 activité unique, — le perfectionnement moral de
 l'individu, — par laquelle, et exclusivement par
 
-45 Sr
-
-Léon Tolstoi |
 laquelle, peuvent être atteints les buts que se proposent les hommes qui luttent contre Le gouvernement.
-
-Mie
 
 « L'un n'empêche pas l'autre », dira-t-on. Mais
 ce n'est pas vrai. On ne peut faire deux choses à la
@@ -1240,7 +968,6 @@ ne soit pas, chaque individu doit faire un effort
 moral sur lui-même. Les hommes sentent cela, au
 fond de leur âme, mais ils veulent atteindre d'une
 
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 façon quelconque, sans efforts, ce qui ne s'atteint
 que par l'effort.
 
@@ -1267,8 +994,6 @@ est.
 Et alors, voilà une théorie d'après laquelle on
 tâche de prouver que les hommes peuvent, sans
 
-Léon Tolstoi
-
 efforts, obtenir les résultats de l'effort. Cette théorie
 est semblable à celle d'après laquelle, la prière pour
 son propre perfectionnement, la foi en la rédemption
@@ -1290,7 +1015,6 @@ le changement ne peut pas plus améliorer la situation des hommes que le transva
 peut changer ses qualités. Et voilà que commence
 une activité : 1° stérile; 2° nuisible, orgueilleuse,
 
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 (nous corrigeons les autres), méchante (on peut tuer
 ceux qui font obstacle au bien commun), et dépravante.
 
@@ -1311,15 +1035,9 @@ politiques, rois, ministres, membres du parlement,
 révolutionnaires de toutes sortes, libéraux, — cèdent
 à cette erreur pernicieuse.
 
-% à
-* *
-
 Les hommes qui jugent superficiellement, les
 hommes légers, émus particulièrement par la boucherie fratricide commise récemment à Saint-Péters-
 
-{ ke
-Léon Tolstoi |
-: L
 bourg, et par tous les événements qui accompagnè-
 rent ce crime, pensent que la cause principale de {
 ces événements est dans le despotisme du gouverne- L
@@ -1346,7 +1064,6 @@ qu'il n'en a péri le 9 janvier, à Saint-Pétersbourg. Ë
 Et la perte de ces hommes, là-bas, non seulement
 ne révolte pas la société, comme les massacres
 
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 | de Saint-Pétersbourg, mais la plupart envisagent
 avec indifférence, d'autres avec compassion, ce
 fait que des milliers d'hommes sont de nouveau
@@ -1371,9 +1088,6 @@ toutes guerres menées par les gouvernements les
 plus constitutionnels et les plus républicains; et de
 même tous ces gouvernements, quand ils le trouvent
 
-I
-
-Léon Tolstoi
 nécessaire, répriment, avec la force armée, les
 révoltes et les manifestations de la volonté du
 peuple quand ils les considèrent comme la violation à
@@ -1386,7 +1100,6 @@ moyens quelconques, quelle qu'en soit la forme, |
 il y aura toujours la possibilité des mêmes évé- À
 nements que ceux qui se produisent maintenant ;,
 en Russie, — la guerre et la répression des ré- |
-volites. à
 
 De sorte que l'importance des événements qui se ‘4
 passent à Saint-Pétersbourg n'est pas du tout ce 3
@@ -1426,7 +1139,6 @@ Sous ce rapport notre situation, à nous, Russes,
 d'une part est plus pénible, (en ce sens que les violences commises sont plus grossières), et d'autre
 part, meilleure, parce qu'il nous est plus facile de
 
-Léon Tolstoi |
 comprendre de quoi il s'agit; et le voici : chaque
 gouvernement soutenu par la force, est, par essence
 même, un grand fléau inutile, et c'est pourquoi le
@@ -1454,7 +1166,6 @@ point participer, ne pas les soutenir, et alors, ils
 seront anéantis. Et pour ne pas participer aux gouvernements et ne les pas soutenir, il faut être
 affranchi des faiblesses qui entraînent les hommes
 
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 dans les pièges des gouvernements et les rendent
 leurs esclaves ou leurs participants.
 
@@ -1479,18 +1190,12 @@ selon nos opinions bornées, garantirait le bien
 général, mais qui exige de nous une seule chose : le
 perfectionnement moral, c'est-à-dire notre affranchissement de toutes les faiblesses, de tous les vices
 
-( 55
-
-Léon Tolstoi #4
-
 qui font de nous les esclaves des gouvernements et À
 les complices de leurs crimes. ï
-* * 4
 
 J'avais terminé cet article et me demandais s'il :
 
 fallait le publier ou non, quand je reçus une remar- 4
-quable lettre, non signée. 1
 La voici :
 
 \ Depuis déjà plusieurs jours, je ne puis me ressaisir.
@@ -1515,7 +1220,6 @@ ne veulent qu'une chose, des frissons d'horreur.
 Je ne puis définir ce qui est le plus terrible. C'est, il
 me semble, ce fait qu'ils ne comprennent pas et que
 
-LES ÉVÉNEMENTS ACTUELS EN RUSSIE
 leurs visages sont ordinaires, bien qu'une heure plus
 tard ils iront tuer, et que le sang rougira les pavés. Le
 plus épouvantable, il me semble, c'est de sentir qu'entre
@@ -1548,7 +1252,6 @@ que tu sois près. Ce sentiment est épouvantable !
 Cinq fois j'ai pris et laissé cette lettre, à la fin je me
 suis décidé à l'écrire. Peut-être parce qu'il est pénible
 
-Léon Tolstoi ï
 de se taire toujours. Tous parlent de la nécessité d'aider |
 aux ouvriers et paraissent compatir à leur sort. Mais
 ce n'est pas la situation des ouvriers qui est terrible, ce
@@ -1556,7 +1259,6 @@ ce n'est pas la situation des ouvriers qui est terrible, ce
 | n'est pas eux qui ont besoin d'aide, mais ceux qui attirent les gens et les piétinent, et ceux qui, le lendemain,
 regardent les vitres brisées, les réverbères renversés, {
 les traces des balles, et, sans voir le sang glacé sur le 1
-trottoir, marchent dessus.
 Oui, le principal c'est que quelque chose désunit :
 les hommes, qu'il n'y a pas de lien entre eux. L'important est donc d'écarter ce qui désunit les hommes |
 et de le remplacer par ce qui les unit. C'est toute
@@ -1568,32 +1270,15 @@ des hommes envers Dieu est un. |
 Que les hommes le veuillent reconnaître ou non,
 devant nous tous, se dresse le même idéal de perfectionnement supérieur et seule l'aspiration vers cet
 idéal anéantit la désunion et rapproche les hommes.
-Léon ToLsror
-Tasnaïa-Poliana, février 1905
 
-1 LEUR
-LE NES
-CENT RAR pi
-RE
-NEA Un 1
-AA PU A jte
 PARA AT RENE AS pie MA xl
-EDP ms LRU \ D RS ji GA 11
-2 DA NA) ns pre or A
 ANT 1 AU AQU NTI tes AN AUS w
-ous dde
-AGENT NU ji Na tn ns
 LU AE LS 4 JAN AMEN HAN UE MU fe ( (eau Ne Ni NA De
 M SANS AE A SATA RATE EU) RO PURE FRS si Rqua pr JF
-‘ge Natun FANS ee Li AAA RER NL EU TEE RULES (LAND ER
 DUR à A ie NE) We AOELES VAN if HER DE ENT 1e NU HUE ets) (HAOS 100 NO k
-hs EL HE EU en AR NL A MN AU ji ASS IE We EU RAC AU \
-Jo is a ph NA tn AU AE RL 4
 na 1 A Ni HA sl do LAN t : QU
 a ME fui PAU LVAORE a FRA At Ne AN Le nf EAN W
 a LAS AAA ps on Fa An PAT UN AU 10
-nu “u re 0 Nr a An oe ! pe) EE ul au LU "0 Ex
-ae MPa NN DAS voa AD NU INC ant PDT E & rt se
 (ps { AA DANS EL LAN VAL OUUE DA tn NANTES NE AU
 |A RAA X AR ( EE vu PAU ti MAINS { (UNE RARES A ARNN RU \'URE
 JUN AN ANS UN AR | JU NA AR IN ii VI AU CI st Re He RE 1! | ANR de ti
@@ -1606,47 +1291,18 @@ at ON (re An qua NES An RUE LA) NU il Al AE Ne AVE
 in AU j et 1) ANS x ose US 1 TE A a où TS
 1 DE, oo dont 10 Al
 ) ii PA ji on ns no \ “e al A qu 1 (ll Hi lee
-4 np ii k EU AA) CNE Us EU NO WATT MTS
 1 Au je \ Li on laut
-A NP 1 GAY NE k FRS
-(Ar QUE VU
-AQU At MEN
-( pra \ ia
 
-L'HEURE L
 | RAR OR ON ONE di MOULE ET OPETR
-ARE + Li TA PEN EEE EU rire ©:
-ic Te fe LÉSRD TN AMEN ag FILE re EAU PAT LUE 23 AU
 4 Pal CE } UNE NASA MEUNIER LE VELO ds
-Rires . 84 ê SA N 4 RE
-Re A : RAT 0 L
-PES À {FT RNRNRE
-2 Les ; Ut 591 C RES 5 A
-Ts f À ; CHAR ñ "2 AY # $ J
 #0 : EN es ga | HPLC INT Li NE
-1 ; y D cn. :
-ur - | cu FT TS :
-Na. HT UE ARE PS r MURS Der
-4 ‘ RENTE ot à , Le
-ARTE. ‘US RUE aie : U
-PR AR! : £ PURE FL AN
-10 ; FA REA RNE ES Li
 N:, L à RON ut si
-o , À je 2e NE UER APR 4
-: 8 A 4 4) (HORS HS Dot A
-à hi ; D KE 4 , L FE LA ET À
-LR ti SET \
-DAT" : : $ 4. LNISERNERERER |
-1 UE: K é 21 ty RE FRS
-Ë "SAS ï , ‘ FSU PTE Enr
-TER < LPS NX d ÿ MED L MARS
 
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 rez-de-chaussée, Paris, cinquième arrondissement.
 
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration ; ces fonctions
-demeurent libres.
 
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
@@ -1665,7 +1321,6 @@ l'abonnement recommandé est de vingt-cinq francs
 pour la série ; tous les cahiers de l'abonnement recommandé sont empaquetés à part et recommandés à la
 poste ; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
-contre certains abus.
 
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit
@@ -1679,28 +1334,12 @@ d'une série, le prix de cette série est porté au moins
 
 ce 1% RANCE AA pe AA MER An AA EE
 Lu AU ste DUT ALAN Let NUS des ART fi ‘
-EDS : PAU AE L'E8 Ra AU MA Le AN AL Je EN EE RETURN
-1) FANS x} dr A RTE MENT NAN EITEE PU ANUS NEO (RME :
-A à AAA MEA L NON A PTT AE" PO PAAT MU)
-NYSE His AREA EE AN RM ALU AÉRAPNT AT UE ANR ARE k
-HA 1: W EH D NE AL PRO a) FE Ne “tx
-a NAN PO ANRT RAS EN a LA FRA AO EAN a AE LA ù Nb
-STE A NX AN CEN LS AAA se AU LS VA Le WF ON f ARR SUR Mn)
-D vi Pen Ur RQ ea PAPA EI 1 AN UNNEN MNT
-(NH TRES rEk j FE) ï ! AY EN LAPORENE RUE x ANR AUS SC TS
-RAA UT Pa ! AO SE EURE fe L'ART NN à Le A AO S \
-SUTUR DAT MAUR AUS UNE FT AIT RU RNA dr (AA PERS
 LE) { SATA ARR DATA frs AI SAN Had en 1 qe " Art AA À
 INSEE RON PO UT deg A0) ADAM QE A AMAMEE a D MTS EN la D AU \
-UNE PEN: (KE MST TE LEN PALIN NET RARES LA IA AU ï
 fa : ( NE NE ACER PA VARIE SUN ROUTES it DUAL
-NN DIR ASE TELLE D dd 11180 DRE 4
-CAVE Se AN Me. qu j Ho UV \
-A VOICE ER (NU G
 
 au total des prix marqués; ainsi depuis le premier
 janvier 190 la cinquième série complète se vend
-quarante-sept francs.
 
 M. André Bourgeois, administrateur des cahiers,
 recoit pour l'administration et pour la librairie tous
@@ -1709,7 +1348,6 @@ heures à onze heures et de une heure à sept heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures
-à quatre heures.
 
 Adresser à M. André Bourgeois, administrateur des
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,

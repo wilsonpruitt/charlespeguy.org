@@ -7,9 +7,6 @@ author: leon-deshairs
 isAvertissement: false
 wordCount: 2195
 ---
-
-*Léon Deshairs*
-
 Pour justifier le reproche d'exclusivisme qu'il nous
 adresse, d'indifférence à l'égard des manifestations
 artistiques qui se produisent en dehors de nos frontières, Bjoernson cite l'exemple de Boecklin. L'exemple
@@ -47,7 +44,6 @@ wen sommes que plus reconnaissants à M. Sarrasin
 
 Thurneysen de l'exquise bonne grâce avec laquelle il a
 
-Léon Deshairs
 mis à notre disposition la photographie des trois s4
 fresques dont Boecklin, en 1869, décora un pavillon de
 son hôtel et que les connaisseurs les plus délicats F3 34
@@ -65,7 +61,6 @@ connaître, il faudrait avoir fait plusieurs séjours dans
 la Suisse allemande et en Allemagne. Dire que nous
 les ignorons, c'est répéter sous une autre forme que
 les Français voyagent peu, — vérité de jour en jour ‘à
-moins vraie.
 La reproduction des peintures de Boecklin serait fort
 onéreuse pour les revues d'art, qui s'adressant à un
 public restreint, font déjà péniblement leurs frais. Le
@@ -108,13 +103,10 @@ ne connaissions Boecklin que de nom. Mais ne le connaissons-nous que de nom? Les
 à faites pourraient en faire douter. En voici d'autres
 Dès le premier mai 1867, dans une Correspondance de
 l'Allemagne (Gazette des Beaux-Arts, première période,
-tome XXII, pages 511-512), Alfred Woltmann, rendant
 compte d'une visite à la galerie du comte Schack, citait
 Arnold Boecklin à côté de Feuerbach, Lenbach, et du
 sculpteur Begas parmi les rénovateurs de l'art allemand
 et résumait son impression en ces termes : « Parfois
-“Dre
-Léon Deshairs
 
 bizarre, toujours intéressant, souvent grand et admirable. » Notons qu'à cette date, les Bâlois eux-mêmes
 étaient loin de rendre justice au génie de leur compatriote. En 1893 (avril et juillet) la Gazette des Beaux-
@@ -146,7 +138,6 @@ David, les Pèlerins d'Emmaüs —; dans la Nouvelle.
 Revue des pages aussi enthousiastes que prétentieuses
 de Robert de Montesquiou. Le marquis de la Maze- .
 lière, étudiant d'une façon rapide la Peinture allemande
-à BOECKLIN CHEZ LES FRANÇAIS
 
 contemporaine (Revue de Paris — 15 mars 1900) consacre
 cinq pages sur vingt-sept à Boecklin. Enfin, depuis un
@@ -165,7 +156,6 @@ des Français que le croit Bjoernson. Je connais pour ma
 
 part bien des admirateurs de ses Sirènes, de ses Cen-
 taures, de ses Paysages idéaux, et Romain Rolland
-m'écrivait
 « Pour Boecklin, il y a quinze ans que j'en entends parler
 
 - et je n'ai même jamais eu l'impression de le découvrir
@@ -183,7 +173,6 @@ faut peut-être pas exagérer l'importance de cette décla-
 ration d'auteur heureux d'apporter une révélation et -
 d'entrer en pays neuf. De plus, la remarque qu'elle
 
-Léon Deshairs
 accuse, loin de se fortifier par la répétition, perd une
 chance de vérité à chaque fois nouvelle qu'on l'exprime.
 Je sais aussi que ces articles représentent quelques  « gouttelettes dans les flots d'encre dépensés chaque
@@ -213,8 +202,6 @@ sont pas des mots; les figures ne sont pas des hiéro-
 glyphes ; et je tiens qu'il y a plus de pensée dans deux
 pages des manuels que nos petits grimauds portent dans
 
-È BOECKLIN CHEZ LES FRANÇAIS
-
 leurs cartables en allant à l'école que dans tous les tableaux du plus grand peintre du monde. L'école allemande eût sans doute gagné à compter moins de penseurs et plus de peintres. Puis cette façon de décerner
 le premier prix à Boecklin me paraît mal convenir
 l'appréciation des œuvres d'art. Boecklinest-il plus grand
@@ -243,7 +230,6 @@ et sa verve restent incontestées. Ce Germain charmé par
 FItalie a fait une alliance merveilleuse de la poésie allemande et du paganisme antique. Tantôt il s'abandonne
 à une robuste bouffonnerie : des satyres pêchent des
 
-Léon Deshairs
 sirènes dans leurs filets ; un Centaure présente son sabot
 à un maréchal ferrant de village ahuri. D'autres fois il
 retrouve si profondément le sens des mythes abolis,
@@ -261,7 +247,6 @@ chaïrs roses et les profondeurs glauques de l'eau, dans
 l'agitation tumultueuse des vagues autour des récifs, À
 des motifs où contenter son amour de la couleur, du
 mouvement, de la vie.
-Léon Deshairs
 Au moment où nous mettons sous presse, NOUS rece-
 vons de M. Urbain Gohier une rectification. Nous la
 publierons, conformément à la méthode historique,

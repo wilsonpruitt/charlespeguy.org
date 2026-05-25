@@ -7,73 +7,22 @@ author: pierre-hamp
 isAvertissement: false
 wordCount: 41990
 ---
-
-:  RN
-_ QUATRIÈME CAHIER DE LA DIXIÈME SÉRIE
-L'EST EÉREE
-"10 PIERRE HAMP
-; D si ë
-_ LA PEINE DES HOMMES
-à he
 — vin de Champag!
 | camERs DE LA QUINZAINE ;
 Fo se _ paraissant seize fois par an
 rue de la Sorbonne, au rez-de-chaussée
 
-REA A AP RUN CITE HEUN RAR Ar LE Ft HONSPAE ÿ \
-ART MR k RAD NPA ANIONE AMEN NT RE
-RTE LEE LEA PE PR PO PLANTE RE HA na :
-:T { 1 ÿ ? 1 FRA ATEN 1 ROOMS
-14 # LAVUNX A
-Eu ) ; HAT INR
-\ \ RPELNEA AT
-& Ve MITA a
-un U (+ DTA
-{ Ÿ ï +22 EN RRRNSSEE
-SRE ' 1 VV TORRENT
-ÿ" } « AL TES PT ACTOR
-{! Û AU TA MIRE al
 ù qi (° H y, ri LA F M res Ye
-+ NC) SR RAT 7: ) »e ANR Nu Lu
-NOR ‘4 fi } av MAREAULTEN 4 IF ONE
-NAS £ EYE 7, O0 2e LS RRCAUO AT ANUS (UD ARR REES Là 4 \
 LL AFNTAALS En BA { il MS à Pet EE M Rent ul 50 À
-
-v APRES 1, } A 161508
-
-AU CT ) / RU AUAES
-
-RET A TRE 5 : : :
-: PRISES ; CET
-
-+, LEA TAN 6 . SAT
-
-!. TARN F 77
-RENE eo » } "4 CN CPE A+
-
-1 RITES D TA ETAPE 4 ve à : HAE
-
-} TES MR 2 ) € PRE à
-ET, 4 0 $ e er,
 
 #3 FRE FRS \ ch S SAUT re
 
-2 1 AINPUYRE. — 1 à VTT
-
-For e UE TER EN À ï n° j +} PRIS DD C0 EST VERRE
-
 RE SI PAU EN ATANE EE og LCR 4 Ve ET REA En NE EE AGE A far Me DA) ES RE dE an LE AIM
-AL } : se LR Lee NOM hi
-ADS:
-ù 14040
-= PDF PS
 Nous avons publié dans nos éditions antérieures et
-à Ma : NOTA
 ie dans nos cinq premières séries, 1900-1904, un si
 grand nombre de documents, de textes formant dos
 siers, de renseignements et de commentaires; — un “M
 si grand nombre de cahiers de lettres, — nouvelles, |
-LRRL SIN
 romans, drames, dialogues, poèmes et contes; — un 1 14
 si grand nombre de cahiers d'histoire et de philo
 sophie; et ces documents, renseignements, textes, De
@@ -81,23 +30,16 @@ sophie; et ces documents, renseignements, textes, De
 d'histoire et de philosophie étaient si considérables
 que nous ne pouvons pas songer à en donner ici
 l'énoncé même le plus succinct; pour savoir ce qui & un
-4 sé PES É : 149 dt
 paru dans les cinq premières séries des cuhiers, il M 110
 suffit d'envoyer un mandat de cinq francs à M. André
 \ Bourgeois, administrateur des cahiers, 8, rue de la Sor- n 4
 bonne, rez-de-chaussée, Paris, cinquième arrondisse- 5A
 ment: on recevra en retour le catalogue analytique
 sommaire, 1900-1904, de nos cinq premières séries. \
-ÿ 14008 à
 Ce catalogue a été justement établi pour ce
-, AU
-x? . . n + YEN
 \ autant qu'il se pouvait, une image en bref, un raccourcis) Ki
-2 pu gl
 
-A NA A PE Gare PRE ARS, RSS ART RS REV RS es
 une idée , ab rég'ée, mais complète, de nos éditions anté-
-RER > + x Fe rs ù RAT AIT px te VAI
 rieures € de nos cinq premières séries ; tout y'est classé
 + dans ordre ; il suffit de le lire pour trouver, à leur à
 place, les références demandées. CNE
@@ -106,61 +48,26 @@ trè épais de XI1+408 pages très denses, marqué cinq AE
 francs ; ce cahier comptait comme premier cahier de la FA *
 sixième série et nos abonnés l'ont recu à sa date, le [HÉSES
 20 tobre 1904, comme premier cahier de la sixième UHR
-EE, * A "AR
 série ; toute personne qui jusqu'au 31 décembre 1905 si
 s'abonnait rétrospectivement à la sixième série le rece- D
 " kit, par le fait même de son abonnement, en tête de la TR
 série; nous l'envoyons contre un mandat de cinq francs Re
 à tout e personne qui nous en fait la demande. ES
-HR a + ; d , 4
-Fe É #3
-Xe « T0 (a
-HIER SERRES
-PER FAUX €
-LS j F ia
-2 WPAIERS é Enr,
-% der CY #. ,
 
-AE AN ANT AMT ES De Ne ENT AD PRE VAS 2 ON CO A PPS CNET EE SO
 LAON TN D ee PAPER ETAPE A OÉPS  NE TS
-A ea UT ONU RE ONU IEC DATA EEE GPL LA A COS PA SUR
-SN PR AP OT PNR tes ER EPST ANR TR NE STE ONE
-D SON 18 CE AE Pa IR 2 EPA NU CC PR ES PE À 2
-Ph REA LE RO LE AE EE er LE DAC A RAR PACE MATIUEU HN ANCIEN Lo
-RS GPS QU SRE] N , LEP CE NT NT ER SIT RE
-n 10 TE ke Ç L. L 22 at: NA.
-72e i ver TTL SONORE
-pi « f | 7" L'ANPE
 
-ADR à _ y s SHTES ET
-ARE Ë 7 \ DA |
-SORA VERS
-40 KA a 1, TASER
 VER si +: ae RAA CE
-* LT M PERS
-Do. :  :
-AR :. 79 RS E
 PR CNRC { Ë e MN PE € NU dr ce
-FA x NURE A RE ; 0 EE
 VEN re LE UT A HO
-MAT ER es | Re 4 PTE CUS VA SNS s
-LE NT AU BAT f A) MASTER FALL
 SOLE OO ANSE GA 4 “ Las Le ee Pre ON EEE
 LE A 1 V0 HN ra ne En LEE 7 out UT PET NNIEAEETEES
 
-4 NY INA NET ï + } SCT 25e GT PEER AT À
-
 AE A Rs DER AO AR an RO T MA
 LA qua
-à 1 20 ARS SRE \ 0
 L NT der
-+4 è saut k f Fe ï
 ; PME ' aux Cahiers de la Quinzaine } À |
-4H RE] 2 NUE x
-a GI | LA AS |
 ) ‘is LEE Le présent pelit index donne automati- FA 2
 y 48e d quement pour tout volume et pour tout he 1 s
-LCR { cahier indiqué : à DRE
 ‘3 L MANS a) le numéro d'ordre de ce cahier dans sn
 RATIO \ le classement général de nos collections N! Ÿ
 TR ea y, complètes, le numéro d'ordre de la série k Vue
@@ -170,8 +77,6 @@ M: « du cahier lui-même, dans la série ainsi Y H/F
 IR y déterminée, en chiffres arabes, de sorte Pr
 AL re À que V-17 par exemple doit évidemment se % W
 4% hé (y lire dix-septième cahier de la cinquième RAS
-CPC série ; RCA
-NS LE]
 AU. DAEUE b) la date du bon à tirer, ou, à son dé- RO
 * Lea PAU faut, la date du fini d'imprimer, ou, à son Gé
 FE Het y défaut, la date du cahier même; Ù DATS cu
@@ -180,176 +85,37 @@ a ; c) le prix actuel; LE is
 LEE à éditions antérieures et pour nos cinq pre- k Vars
 CAN | mières séries, la page du catalogue ana- ii
 uit LCI Ua lytique sommaire où ce cahier se trouve re Ve
-« 4 API 4, Ven catalogué. PA
-1 Net NU
 DACE ierre Hamp; — dix contes écrits dans le Nord; un brave à À
 _ homme; Follette; eoqueleux; un bon ouvrier; l'estaminet TA
 _d a Coq à Trois Pattes; une bonne âme; Buvons la bière du 8
 … Nord; une ville riche; Sac d'Os; la plus grande canaille de 1
 la terre (X-2, mardi 27 octobre 1908........... deux francs NS
-DES NAS di J ÿ 2$
 NE 4 2 la peine des hommes; — marée fraiche (X-3, di
-* mardi 10 novembre 1908..................... deux francs
 
-Y “e AL Mie & # RIRE
 ; er RE ne STE PARU FRA PREND HAE DTA nt HR PERTE
-I PRO TRE RON VE Rare CAE A AE D té SET CO CEE
-FAR Q ‘ & PEU NAME
-leg DARNET a x
-HAE î \ f |: ROSES
-, À £ : 1 fe
-2241080 F P#7- RAT it
-PTE : i de DES
 | FANS < x + ECS
-APE En S = TRES
-LUCE k A
-4088 CCR ii RAA
-ANS VIE 1 RE : | 1% LATTES IS HLÉSCIOR
-ASE ù . ! , LIEU
-AMAR: # 1 | Ç PARC CRT ES | LR Ce LAURE 78 :
 
-1x 11 SOON < j "r
-à { LENS alé De”
-1: RAR en ° hi
-RE LU, PARA
-_ 201 | SA
-ci p: LAB \ } LIT 4
-_ LA PEINE DES HOMMES | 00
-VE 1 En Fa À (4 :
 Le ROEMONER Gent
-LATE 10
-HD: AIR AA LT
 ‘Ar je FN 4 Fat
-: LAC s PAIE
-1°" THEN tr
-1 3 F'ÉNETSER Les
-RE 1e * UE
-1 0 STE F4 TAN An pt 1%
-W ane. “d EL \ ù te 14
-ANT CAUL rat ; + NE
-Eu 2 4 + PAL NU
-
-111 ORNE RER FAR dc RÉ U ON ;
-
-ré GARS PAL ER SNERE AAA SNS ES NO TRES
-
-mat ù AL ue “ Hs " RUE 11 US 1008
-
-SAN ON Ÿ 1 < { À ED EN NS (
-
-NAT E NS : ï Â ie: LP 2e (re Sn NIV
-
-Ÿ # ÿ, En Ur Fr
-
-RAD f VE A RES ONE NES
-
-ARC EN # \i v MTL A AU % os. 1. RES
-
-APR TEA AUTEUR . \ 1 K 3} L'LMANSEEN
-
-AR PARNEE TENTE qe ; 1 F Fu RAA
-
-A MALE SA AE + û CS ÉNTDET UE NU US EE re
 
 SES CE NMER) te) AU ST Wa! HR ANA Eee sn 1 PA A A (HAS ÿ
-ER ERA REA MER LEO AU
 
-20 re  HURP “ 4 Ÿ il t ? MD if
-2} {NL SRE è H 1 US
-+ RL, Ù ; de
-0 1 nt Ve ; der
-DPAAMODR-AS Tr) € } 40
-RATES" È TA
-LR He P: QE \ À ya
-6 RENE 4
-A x 2
-(à Le: RENTE s
-PR AT T 2 ;
 RAS on k ë fs ÿ
-D PGO € 11
-2 CRC 2 £ de F
 D On 0b ampagne ei
-i Hu FT 2 ; & À 47118
-D ne.
-DUT — #2 te
-Me RS ë AP
-DR et à f z.
-DUR ARE 4
-LS mir: 5 |
-LAEERS wo f FTIANE
-: VIONTEESS na “AUCUN
-RARE ë PRIENESUE SDL LR AUT
-PAPERS re G AAA
 
-di ee ER
-Ar fa POSTE ae bat CINE
-1 ST A ANUS MA RASE A EN ARENA ie AN TE EST
-LAVER EE) DA At A AT RES NES CA PAU
-
-HE RNA RAC LEN FAURE ETS \ 4h ê -
-AU ET 5 à À ME DTA OA FES RANE
-as A ; : ANR 10 “EU NME
-
-AE 4 : { 7 NAT RM e 4
-EAU MES 1] : : F rer Pete 0) Aie Hi 130 ù
 HUE SC (Er f pr NE Wan: EE ner.
-SPLIT SMS À Al RE EE NE D
-LAS VAE Rat à LH (EN RO RARES
-75 are FAO LAN NU An ve LS Sue
-
-ASIMAIRRNS 2 rt FR A
 
 LE SEM AE { ae at, FA nat e :
 
 AA il 4 (ni f î A APPITR
-LI ANUS ÿ f VEN
 
-\ | “LEE AU x VE INAUEE
-2 PATEAL LME FS NR fr (EL
-\iEA D NS \ MEUERR
-‘ARMOR À HAN ET
-AE EAN ÿ & JA
 | ATEN « Buvez-en tous; car ceci est
-; ‘ie fr) mon sang... » (US
-:: TRS Évangile selon saint MATTHEU. |
-ee LAON Chapitre xxvi. HER
 
-0 24 PTANIE y AT Ï We
-K HU AN TRANS : Fr NE
-X4/1P 4 NTIC EAST "4 Qi ANNE
-DANS EE EE ST LANTA
-RE 7 V x GTA
-RAR Le ï ÿ SRE
-
-M EE
-An PA
-ï 1 ÿ Cou D'AMIENS
 4e a EME SE AN DATA ANNEES AA Ne done
-SA He PANNE A RE LA RA DNS ‘ A RUSSE D one
-FRS (MAN AMOURA SPAM AE SRRLR a a PANAIUE Ad AN ñ
 etat Ke ATEN CES DATA AE AR HN AE je VE 14 CAEN
-LU CINE RH ; F ; k AA EDS RE | UN
-Un te ! } 4 NT Si HS \ SES VA à GA TE
-AE AA ; aCUrS RUE Un a] NAN TRNE
-CAT NE x È SA LA RS 4 NON CONS Le
-SAN SSI LAN \ CAEN NI ARERS LETTRES
-RARES ANG ET NP) | He AEN MENU ANA) AR NES 7 OUTrASIMl
 on AT tt F APE CnN MAT AR AD EE LR ATEN RASE
 (es 1 {HER PUAAN HENES k 4 à HN ARTS ADM ne HN
-RUE LU DATE { : 4 PER LEE à HP
-RATÉ ONONE TUE JE \L4 RE) Ne a SEEN DA nn u
-à TA ART LAN ANTNS E4 (AS UNE $ AE A MEANS dE PNA TE AE ne k
-RC TURN 1 PAR HU ANNEES Aa DE A CAPE RDA LNES TRI NAN RNTES
-k TUE tn @ AURAS RTE Ÿ AFP au Rp NL IRNR UE HE fee A LEnN
 
-A A APE CTANETTER RATS FNAC HAN al AA 6
-
-A NT OR AR MON NS
-mu um ane
-NA ROME \ y 110 En
-Re y ox BY
-Je LISE
-\\pr i Û Chu
 À sept heures du soir, en juillet, les commerçants dela CE 1
 ZA ruede Charleville sortaient s'asseoir sur le pas des CPR
 “ portes, car le jour baissait dans leurs boutiques et, sauf NEO
@@ -357,30 +123,22 @@ STAR ÿ ä EP: he ne
 f a es estaminets, personne, dans Hornis en Thiérache, ne de 4
 vendait à la lumière. Accroupis sur leur marche de (a
 … pierre ou assis devant leur vitrine, les boutiquiers dirent MePeoe
-se SÉRIE . : PU
 bonsoir aux gens qui passaient. Hi
 La rue de Charleville, route nationale n° 39 de HA
-Mann. = » : . a Ye
  Montreuil-sur-Mer à Mézières, descendait vers l'Oise. NL
 Le maire d'Hornis, marchand de vins et liqueurs, la (
 d _remontait, gagnant son entrepôt signalé par une grappe &
-RTE. | fs . » . , Ne
 Cul de raisin dorée sous verre. Les vestiges des élections “
 ; 2 lent aux murs des maisons, en titres d'affiches n :
-RTE 164 avr
-à nur o UE es : Ç INFAMIE }. € CALOMNIES }). ji 1
 Ce M: Crissot, vins et spiritueux en gros, jouissait dela +
-que PU PS à 4 » . : u
 … faveur des fonctionnaires et des gens établis. La Saiïnte- Le
 | Église le jugeait détestable et les ouvriers se méfiaient PR
 de ce bourgeois anticlérical. Il se tenait très droit, la Ft
 TA t ête haute; la maturité de son ventre indiquait quarante- we
-HS dr ë e ms À AR
 gen q ans et convenait à ses fonctions. Vêtu de flanelle … (u
 b anche à raies bleues, le panama en bataille, il allait
 { àp etits pas marqués du talon, le pied fier de ses sou- He
 …liers aussi jaunes que des pattes d'oie. A WA
-L'ANIMAL #
 |, TEURSANNES \ re
 
 la peine des hommes % es Fa |
@@ -415,19 +173,14 @@ poids de cuivre et les plateaux de balance luisaient
 Une automobile montant la côte donnait de la trompe. EN
 M. Brizet, directeur de la verrerie d''Hornis, la condui- ‘7
 sait. Il salua le maire et M. Abellé-Dusart qui parlèrent
-14 ‘s ne
 
 D po ta
 D AN NI VIN DE, CHAMPAGNE AE te FA
 de ses affai es. Ils changèrent de conversation au pas ss
-LENCO RUN # U ÿ è rs g' } VAE
 sage de M. Flapont, notaire, principal actionnaire de Fe jf;
-PATES LE . . « | Net
 cette fabrique de bouteilles champenoises. Il recevait A A
 Ad e nombreuses marques de l'estime publique. M. Tri 4
 card, le coiffeur, chauve, le salua avec des manières Nu,
-EN ' LEARN
-(Sen gluées. : à
 DEA. Le charcutier Lafont y mit plus de simplicité. Sans 12
 0 uitter de l'épaule droite le coin de sa porte, il souleva AR
 | sa casquette de la main gauche. Il ne faisait pas les
@@ -435,30 +188,22 @@ REG frais de la tenue traditionnelle et servait ses clients tête à
 | couverte, en bras de chemise. Li
 - M: Flapont gagnait sa demeure parmi cette déférence
 Lines gens établis que la fraîcheur gardait au pas des #0 ‘
-_ portes. ‘ EE
 Ÿ … Les forêts profondes autour de la ville chassaient une
-a P : 18)
 brise humide. L'haleine divine des nymphes craïntives ne |
 — venait, du lointain mystérieux, caresser les boutiquiers
-au repos. os
 “ Trois couleurs enluminaient le paysage : le rougedes
 murs en briques, le bleu des toits d'ardoises et le vert
 _ perdu des arbres lointains. ANAL
 Se Le pays disparaissaïit sous la tempête de verdure \ 4
 qui lassaillait de sa beauté, de sa fraîcheur, de ses Ê
 A l'horizon, les bois semblaient, au bord du ciel de
-M h / 7 . . +2 [) nn
 satin, une frange de dentelle noire. Dans le ciel bordé dés à
 de deuil commençaient les illustrations en couleur du CRIE
-LA F0 . + DER . CARS
 … crépuscule, mais un voile gris tiré par la brise cacha les N AE
 … belles images que le vent qui dessine et le soleil qui à
-CSS A À Ë f Fe ut nue
 Les peint recopient chaque soir depuis le commencement 14
 _ du monde. DL 1
-24 1 Ent ‘ 4 ds Fter
 ÿ A1} ne resta plus que, là-bas, derrière la masse d'arbres Fly
-A FTRTENRE ARS
 
 À la peine des hommes HT SET EL.
 noire sur la terre noire, une clarté de lac limpide. La pe E
@@ -499,9 +244,6 @@ Perds ta fortune; perds ton travail; perds ton espoir; 71
 * il te reste encore la joie de dormir. Perds ton sommeil, à
 tu es maudit, 4
 
-16 "EU
-
-Dee 1. LIN
 | Mere a) | VIN DE CHAMPAGNE n
 “7 Je la nuit massive, une allumette flamba à un Ë pi
 Yi mètre du sol, éclairant deux faces d'enfants séparées va
@@ -511,7 +253,6 @@ La braise de leur tabac dansait en luciole près de terre. K
 1 Apprentis de treize ans, ils réveillaient les verriers de } N
 # l'équipe de minuit. LT
 _ . Au coin de la rue de la République ils crièrent : 1
-« Hé! Bourru! En route! » ki à
 40 Tournant par la rue Henri-Martin, ils appelèrent 2
 | Leboin, puis Charlet dans la rue de Vervins. D'autres UN
 0 appels d'enfants : « En route! » bien distincts dans le | a
@@ -558,7 +299,6 @@ Serrer les mâchoires leur est une fatigue. Ils simplifient ‘1
 et donnent leur figure nue à la caresse des flammes. "4
 Les pommettes brûlent, une croûte rouge les cicatrise. 11
 De la viande au même point — « à point » — serait M
-bonne à manger. ‘4
 A six mètres du four, au bord de la « place » tra
 vaillent les deux autres hommes de l'équipe : le souf uw
 fleur et son aide, le « grand garçon ». L'espace réduit "4
@@ -571,9 +311,7 @@ porte. Cependant des brûlures terribles couchent parfois "M
 à les hommes. C'est le risque normal du métier. La canne 1
 rafraîchie au-dessus d'un bassin de fer, passe au grand 4)
 garçon qui « marbre » le verre sur une pierre polie, on
-KE
 
-LAON . VIN DE CHAMPAGNE Wa 4503
 scellé en plan incliné au niveau de ses pieds. Vêtu 1e
 
 d'un pantalon de toile et d'un tricot sans manches D
@@ -635,7 +373,6 @@ pour les porteurs. É
 La Direction donne une prime d'assiduité de vingt À
 francs pour vingt-neuf jours de présence, de dix francs ÿ
 pour vingt-huit jours. ‘4
-mms 54
 
 Devant l'incandescence du four durait toujours lapo- D:
 théose des trente-six hommes en lutte contre le feu
@@ -646,13 +383,6 @@ Sur l'horizon en face du four des astres clignaient. # F
 
 Les cueïlleurs tenant hautes les flammes de verre, sem2 +0
 
-20 f 4
-
-:
-
-MR Fa
-…" ‘ VIN DE CHAMPAGNE +R
-SO y AU
  blaïent venir, du bout de leur canne, de décrocher des pe
 mon des. à je
 200 Bourru soufflait à la place numéro quatre. Un tricot Re 1
@@ -680,7 +410,6 @@ Pisi tait à l'offrir aux ménagères pour faire la soupe. Bon |
 ouvrier, la poitrine creusée par quinze ans de métier,
 on comprenait chez cet homme desséché par le vent ÿ
 … éternel de ses poumons, le besoin de la pluie de. |
-_ boisson. ca |
 …. Elle passait en lui comme en un filtre; avalée fraîche, GE
 elle ressortait tiède par tous les pores. ê
 _  Onhi reprochait de porter plusieurs jours son tricot
@@ -689,9 +418,6 @@ _  Onhi reprochait de porter plusieurs jours son tricot
 Ki jours de paye, le caissier, peu accoutumé aux relents de j
 
 « toute cette chair humaine cuite, recuite et brûlée — :
-Es < 21 \f
-
-5 DER < 4
 
 la peine des hommes
 # peau de sueur, peau de senteur — reniflait son approche
@@ -726,7 +452,6 @@ des souflleurs jusqu'aux fours à recuire, ils battaient la … ;
 terre de leurs pieds nus, rapides. #4
 Sur leur front plissé pat la résistance contre le som- M
 meil siégeait une gravité d'ancêtres. °°
-\ 22 ee” ai
 
 _ Enfants bien bordés, enfants bercés, enfants qui
 avez di : le « Notre-Père », dormez, beaux enfants, dor- ‘se vu
@@ -741,7 +466,6 @@ _ four, le directeur s'assurait de l'activité du travail au “20 1 xN 1
 en bataille avec le feu prisonnier. FA Ne
 = Sur les têtes des trente-six hommes mouillés à grande À ju hi
 sueur gravitait l'univers des planètes élevé par les por- FU
-_ teurs d'astres. ie F
 A travers les claires-voies, la campagne humide Ti
 We oufflait sur les hommes épuisés la fraîcheur d'un beau Ni
 matin. Les enfants aux pieds usés accéléraient encore A
@@ -761,7 +485,6 @@ _ dans sa bouche un litre où la boisson soulevée battait Root
 . daient dans leurs tartines à trottoir : sans beurre sur LA x
 _ les bords. NU
 
-ue 2 FAR nee
 FPT la peine des hommes “ere 4
 
 A l'entrée du couloir des fours à recuire, un tout petit “
@@ -770,7 +493,6 @@ comme s'il cherchait un creux d'oreiller. Des poignes É
 dures le mirent debout : « En route! » É
 
 ‘ Les trente-six hommes retournèrent à la flamme. Les
-douze souffleurs, dos au feu, bombèrent ensemble leurs É
 joues rouges de force. Et les petits va-nu-pieds reprirent 3
 le pas de charge vers le fournier qui montait sur la
 braise rouge ses piles de bouteilles chaudes. Le char- |
@@ -797,10 +519,6 @@ saute du lit.
 Les ouvriers de cour, entrant à six heures, déposaient :
 dans des coins familiers des gourdes en terre et des
 
-24 l
-
-Re RE 2
-10 A : Wu ? VIN DE CHAMPAGNE d es ÿ
 | bidons émaillés de bleu. Payés quatre francs par jour, ‘#4
 48 _ ils accomplissaient les travaux accessoires de la verre- fe
 : 50 rie : cribler le sable, décharger le charbon, emballer - fn
@@ -812,7 +530,6 @@ R: pour plusieurs jours. -
 
 Re. M. Berteaux, le chef de cour, distribuait du travail Î
 
-_ aux autres. 4
 ê p. La porte du directeur claqua. M. Brizet, maître ver- ù
 Ps … rier, frais levé, bouclait la ceinture de son veston de
 NS: … chasse en haut du perron de quatre marches. Les embalDe leurs le saluèrent. Il toucha sa casquette de drap ornée
@@ -826,16 +543,12 @@ Si, au bas du pantalon. Il était d'une activité bien récom-
 4 -_ augmenter la clientèle. M. Tavaux parla d'embaucher
 des relais. La forte chaleur abatiait les équipes de jour:
 à va la veille, la coupe de plein soleil, décimée, avaït laissé
-À. six places blanches. |
 1 Huit heures. Les mêmes ouvriers arrivaient, sans joie :
 "À . devant la tâche redoutable de travailler à un feu de
 |: . douze cents degrés sous le midi de juillet. y
 +18 Deux hommes les suivaient sans assurance, le pas
 We. craintif dans la maison dont l'inconnu les repoussait. \
 … M. Tavaux leur fit signe. Ils approchèrent : « On em- ;
-© bauche ici? »
-
-hui ! 29 Champagne. — 2 j 5
 
 NE la. peine des'hommes "PP NN
 ne | — « Qu'est-ce que vous savez'faire? » à EURE
@@ -861,7 +574,6 @@ Ho, une grande place clôturée par les corons de briques, … À ti
 F semblables à des haillons de maisons. De pauvres Pl
 Va arbres poussaient mal dans la rude camaraderie Ve
 de durs enfants lanceurs de cailloux qui cassaient | ‘4
-w tout. 1104
 à M. Berteaux mena Lecat aux habitations longeant le * (4
 . talus du chemin de fer, les moins recherchées. ‘5
 La trépidation des trains secouait les murs minces ét
@@ -875,12 +587,6 @@ fils de fer. ; | à
 
 ; La marmaille, passant par les brèches de l'emprise, ” ‘3
 
-‘ 26 ù
-
-à 00
-
-% | VIN DE CHAMPAGNE
-
 à se poursuivait le long du caniveau d'assèchement dont
 9 lherbe folle cachait le filet d'eau noire.
 
@@ -890,13 +596,11 @@ fils de fer. ; | à
 noire et dure comme une route des mines sortaient
 À les choux malingres : quatre feuilles sur un bâton.
 ; Un parc de jeunes carottes en retard étendait son tapis
-b frisé.
 
 k, La trace du pied des marmaiïlles, égalant le cheval
 . d'Aitila, se voyait aux places où plus rien ne poussait.
 à Lecat regardait un lopin dont le précédent locataire
 ù avait arraché tout. La mauvaise herbe ne voulait pas y
-renaître.
 1 — « C'est votre jardin », dit M. Berteaux.
 
 à — « Oh! Verat ! dit Lecat, un jardin! »
@@ -922,7 +626,6 @@ h — CEh ! Lecat ! C'est-y ta place! »
 D tranquille, il regardait tout, la bouche ouverte et les
 1 … sourcils tellement hissés qu'on craignait de les voir
 se boucler en O majuscule. Madame Lecat lächa
-vai \ 27
 
 la peine des hommes lt URSS
 les brancards et respira, grandie par la pose du fardeau. (à
@@ -934,7 +637,6 @@ quant sa supériorité d'homme muni d'armoires dont 4
 une à glace.
 La coutume des verreries crée l'incurie du ménage. |
 Elles garnissent le logement de l'ouvrier. Il vient les
-mains vides.
 Il fallait tout renouveler, l'ancien locataire laissait la
 maison dévastée comme le jardin.
 + — « Verat! dit Lecat, en ouvrant le buffet de la cuisine ; il se chauffait au bois. »
@@ -955,14 +657,11 @@ ils se privent, souffrent et s'abîment.
 A côté du désordre des nomades, les ouvriers séden- :
 taires capitalisent. Paillier, le concierge, qui souffle à
 depuis vingt ans à Hornis, possède deux maisons à un é
-28 à
 
-4: ETES VIN DE CHAMPAGNE È “a
 D étage. Ii les loue chacune dix-sept francs par mois. Il $ 4
 …._ travaille encore pour que ses deux garçons ne soient a
 +0 pas verriers. LE
  _—« lis ne feront pas de bouteilles, ditil, j'y ai eu a
-(à trop de mal. » | ;
 11 Certaines verreries renoncent à loger les ouvriers ;
 nm ïls abiment les maisons; on est à leur merci. Les Ë
 fr 14 congédiés refusent de quitter les lieux; ils ne savent )
@@ -973,7 +672,6 @@ _ bouge plus? à
 5 . deux brouettées de charbon par mois, trois en hiver, à L
 vingt sous l'hectolitre. Si vous en prenez plus, c'est au 1534
 —.… prix de revient: trente-cinq francs la tonne. Vous en #
-__ faut-il? » *
 …_ Des femmes guettaient son passage; la plus hardie
 vint droit lui parler; les autres jalouses accoururent et ;
 È - toutes en même temps réclamèrent des réparations. :
@@ -990,8 +688,6 @@ trop petits encore pour s'embaucher comme porteurs. 4
 … Accroupis sur le calvaire de cendres, ils cherchaïent F
 leur vie du bout de leurs doigts écorchés. :
 Ke Le chef de cour passa par la chaufferie où il salua F8
-x ;
-HS 29 Champagne: — 2. ;
 
 | : LE RSS
 Yo la peine des hommes Re A
@@ -1029,9 +725,6 @@ le chavira au milieu du four. à
 — & Voyez, disait M. Brizet, la réverbération du gaz
 au-dessus de la masse en fusion est établie pour obte-
 
-À
-€
-
 US ph” VIN DE CHAMPAGNE St à 0e
 nir quatorz e cents degrés au milieu du four et douze 1 50
 j cents aux bouches de travail. Le four mesure seize
@@ -1060,12 +753,8 @@ qe oup plus sur sa mine d'homme au métier terrible. Ces " fi
 … reux, Trois petits camarades le portèrent sous le han- KR
 #4 »gar où l'on criblaït le sable. Le sang d'une écorchure 1480e
 _ coulait sur sa figure noircie dans la chute. Il dit : \ \ à
-__ « J'ai soué! » LUE
 _ Ji le firent boire, puis coururent vite rattraper leur NE
-. besogne en retard. +:
 De Le soleil brüûlait le toit au-dessus des ouvriers. Pris L
-A1 TE OR AP DRAC er
-NUS lg ”
 
 la peine des hommes LT
 entre le feu du ciel et le feu du four, ils étouffaient.
@@ -1084,7 +773,6 @@ quèrre dix sous de genièvre, l'en auras une goutte. »
 Pourquoi Mondrot était verrier? Parce que son père
 était soufleur. Quel enfant choisit son métier? On leur
 en donne un, le plus proche de la maison et où l'on w
-gagne en entrant.
 
 Un relais prenait la place de Ronsin. La nécessité de
 ces ouvriers de réserve prouve la grande dureté du
@@ -1101,7 +789,6 @@ feu les abat après les souffleurs ; il faut des relais de
 | relais.
 
 Appelés, ils ajoutent à leurs deux francs le prix des
-pièces.
 
 Un porteur s'agenouilla devant le receveur de l'enregistrement et de sa casquette lui brossa les souliers.
 C'est la manière traditionnelle de demander le pourboire.
@@ -1111,8 +798,6 @@ la cour chauffée à quarante degrés. Elle semblait si
 fraîche au sortir du four qu'ils ne cherchèrent pas
 
 cer AURONT AE LE PT PS Van PEU EL SE SE RAR RP LVOTVSS OS TER
-:} Re à RS cn RE AU PE RP : .
-- VIN DE CHAMPAGNE MN
 l'ombre du bord des hangars. Ils évitèrent les wagons ‘
 de charbon d'où les déchargeurs faisaient sortir des É
 | poussières. . ol
@@ -1138,7 +823,6 @@ Ja les hommes dès la fusion prête et ils souflaient tant |
 à ouze heures. quinze heures. Il fallait marcher. On ne
 …_sait pas trop ce qui se passait. Quand les soufileurs
 finissaient, les fourniers revenaient et recommençaient Fu
-_ à fondre. 24
 1 « Encore, il y a trente ans, on réveillait aussi bien les ; :
 + ouvriers à dix heures du soir qu'à trois heures du matin. É
 L'homme venait prendre la canne pour un temps dont \ ER
@@ -1154,7 +838,6 @@ sible. Et l'ouvrier gagne. » le
 — « Mais la fabrication n'a pas beaucoup changé. |
 C'est toujours l'homme qui souffle. » de
 
-M. Brizet rit : À
 — « Le soufflage mécanique est trouvé. Il faut en dire à
 du mal. La machine mettrait la fabrication à la portée
 de tous les capitalistes. Les ouvriers n'en veulent pas 4
@@ -1176,16 +859,10 @@ par un tournis de délirium, se mit à faire des culbutes.
 } On plaça Mondrot de garde pour lui garantir la tête: à
 l L'enfant effrayé se garait des coups de pied et tendait, M
 à bout de bras, des sacs vides sous le crâne de Bi
-; Jhomme fou.
 La fatigue, menant sa lourde charrue sur le visage du
 
 petit, traçait dans la plaine de ses joues maigres un M
 
-long sillon.
-
-AU" :
-
-M 0
 | Au fo il ,les équipes brisées sans cesse par la demande À 4
 de relais n'avançaient pas le travail. L'air manquait \ 1
 aux poumons des hommes. On ne pouvait plus respirer, AE
@@ -1210,7 +887,6 @@ bien sur la chair suante. L'homme touché ruait au ; 1
 hasard, envoyant haut son pied nu. 4 d
 … Les six équipes demeurées entières se déboîtaient : X à
 l'une après l'autre. Les ouvriers vaincus quittaient le Li
-feu. A midi, onze places blanches. Paillier restait seul. pi à
 L'effort de soufiler tendait sa ceinture. On sentait en di.
 lui la puissance d'animer un feu de forge. Sobre, il AC A
 tre mpait ses lèvres dans le coco fourni par la maison et 1
@@ -1218,7 +894,6 @@ avalait très peu de boisson, qu'il filtrait lentement entre à "
 ses dents serrées. 1
 Ke midi, il prit ses vingt minutes de repos. Des ouvriers ju :
 ne : ss
-tn ‘Y
 
 la peine des hommes er
 entraient à l'estaminet du Bout du Monde tenu en |
@@ -1233,7 +908,6 @@ pied de plomb. La chaleur de leur corps attirait les M
 mouches. Ils se taisaient et léchaient sur leurs lèvres, à
 coups lents de leur langue épaisse, le sel de leur transpiration.
 Charlier rangeait ses litres multicolores derrière son
-: comptoir d'étain. |
 A quatre heures, les hommes de la coupe fraîche
 prirent la besogne. IL ne restait devant le four que
 quatorze ouvriers sur trente-six pour la leur céder. M
@@ -1252,7 +926,6 @@ mise en train de la coupe fraîche. Il alluma sa cigarette M
 à une bouteille chaude et fit le tour du chantier, souf- ;
 flant sa fumée à grosses joues par habitude de verrier.
 36 24
-Lie
 
 ae ASS 4: VIN DE CHAMPAGNE 3
 4 | Vieux routier habile, plein d'expérience directe, il 5
@@ -1261,7 +934,6 @@ con naissait l'augmentation de force des hommes qui ES
 | assortis. Il n'assemblaït jamais à un souffleur le fils de %
 - son voisin, car de porte en porte les femmes aiment il
 - nourrir des querelles que parfois les hommes sou- ù
-Fe ennent. 3 1708
 IL entretint M. Brizet et M. Tavaux de la répa- *:
 ration annuelle du four, arrêtant huit jours la fabri_ cation. :
  —« Le moment est bon. Le travail ne rend pas. Il FER
@@ -1271,7 +943,6 @@ eu quarante-deux au soleil, la température maxima de
 ne Un ouvrier le cherchaït pour ouvrir un four à recuire. “
 Ho n les fermait au cadenas, une aération maladroite ou tr
 a malveillante avant les sept jours de recuisson perdant la 2
-_ fournée refroidie.
 “ES Chauffés à neuf cents degrés, leur température éga- ‘
 lait celle de la bouteille apportée du soufllage et cueillie
 _ à douze cents degrés. Il reste trois cents degrés dans >
@@ -1286,9 +957,7 @@ _ parfois respirer au bord de la trappe noire. 5
 “taille, les genoux et la tête appelés vers son ventre. Il 1.
 LE e contractait pendant des heures dans le malaise de PET
 _ l'air empoisonné. :
-le: Ë 35 Champagne. — 3 % |
 
-A |
 FA à la peine des hommes Mes +
 Fi Hors du four, un homme prenant les boutitiée |
 dues les mettait en brouettes roulées au magasin où DS |
@@ -1296,7 +965,6 @@ a M. Rambaud vérifiait le poids et la contenance : trente- 2 |
 | deux onces pour quatre-vingt-deux centilitres. |
 Des ouvriers les miraient, mettant au premier choix : é 4 |
 trente-six francs le cent, celles sans bulles ni plis; les
-autres aux choix inférieurs : quinze francs, douze
 francs, selon l'importance des défauts. a D 4
 | Le prix de revient étant le même, ie maître verrier
 ER cherche d'abord à vendre le stock de bouteilles riches 2
@@ -1311,19 +979,16 @@ nay où il se rendait deux fois par semaine placer lui- 226
 presse hydraulique, la fournée alla au stock empilé tout
 autour de la verrerie sous des hangars de briques dont
 le mur d'enceinte formait le fond. Les hommes de
-M. Berteaux remplissaient là leurs brouettes, maniant à
 FREE les bouteilles quatre par quatre avec la grande habi
 pes leté des gens accoutumés à tenir toujours un objet de.”
 même forme. Puis l'équipe de huit emballeurs à quatre. © |
 francs par jour plaçaient sur du foin de marais douze. S:
 cent cinquante bouteilles dans chacune des harasses de : 3 |
 __ bois peint en vert dont les barres portaient en jaune: + |
--  « Verrerie d'Hornis ». 4
 M. Berteaux jura en découvrant une champenoise |
 se premier choix mouillée de bière. Les maisons de cham- De |
 pagne, très vigilantes à n'utiliser que des bouteilles |
 
-M ee peu
 Pr ER vin DE CHAMPAGNE. Fes CET “a
 vierges, re nvoyaient celles empruntées par les ouvriers Me
 pour leur boisson. ARE 1
@@ -1345,7 +1010,6 @@ année cinq cent mille bouteilles. A
 IS couchaient, en attendant d'éveiller les soufileurs, RSR
 dans un logis de briques meublé d'une planche inclinée. AN és
 On y étalait des païllasses garnies de foin et de puces. À “4
-Cinq marmots entrèrent poser leurs gamelles d'émail Sr
 D eu et leur litre de boisson, puis jouèrent au bouchon 4 ss
 à un sou la partie. CR
 —. Derrière les claires-voies, l'éclat du four augmentait- Ka É
@@ -1357,51 +1021,29 @@ dormir. Celui qui les gagnait les noua dans son mou- & à
 choir. La lampe, épuisée, s'éteignit. Ne pouvant plus (re
 jouer, ils se couchèrent. AU
 
-es A ra RL MT RSR Se
-
-No 0 le FOR RO
 Pa ES Trois autres vinrent de Sougland par le train de neuf |
 heures. Génés pour poser leurs affaires, ils deman- |
-Pres RON } Fa L'URSS |
-he __ daient: es ie: te |
 ces — « Qui c'est le vérat qu'a éteint l'électricité? » |
 es A onze heures, le concierge Paillier mettait tout ce |
 CAES monde debout, en le tirant par les pieds. Les enfants |
-1) VE RERERRS à : +8 TE NER
 
 Æ 2 dorment bien. ‘RES Fa |
 LEE Il les poussait dans Hornis chercher leurs hommes : > |
-Nr __  — GCHé! Bourru ! En route! » ee |
 _ Le bruit du travail de l'équipe de quatre beures,
-ARS “ ‘ < # ed |
 1 _  ardente devant le four ardent, ne troublait pas leur
-ste pe . . . NÉ ARR
 sommeil. Aussi tranquilles que les blonds enfants sous
 _ les rideaux de dentelle, ils dormaient durement, ss |
 “A _ la fatigue profonde qui ne quitterait plus qu'à la mort |
 ne _ leur corps martyrisé. * PECEONTE
-Rd ) LEA
-RAA rer “ FI :
-2 D KE » & A4 sd |
 
 Fes * Ce A REON HRRGPRE TAN € RE ere M NOEL CNE CIE PS CAES
 
-PRPE ARS Lee PT 1e) DÉS ER Pa Ur NEA Pt Natte
-
-SRE A RATE He RU EM TRE
-
-L Lra be Le « ‘ à: LC 7 +
-DE MP PM TE 7e
-
-& + » 2 T4 4 s SAT SEE
-ANR # UN AA
 CNE même jour, Minouflet, vigneron de Berny en Re
 | V4 Champagne, sulfatait ses deux arpents de vigne
 | ne ? B Le] isa
 attaqués par le mildiou. De.
 M Les manches de sa chemise retroussées sur ses bras … RE
 bruns, il vaporisait sur les plantes souffrantes la liqueur LAS
-Le - . : . DSC UES
 
 de cuivre qui le patinaït en statue de bronze. RU Te
 Sous le bord baissé de son grand chapeau de paille, Re.
@@ -1412,13 +1054,11 @@ ouvriers : quatre points blancs dans la touffe verte.
 Li # L'ouvrage fait se voyait derrière eux à la couleur du
 - feuillage vert-de-gris sur l'espace sulfaté. Ils marchaient
 “dans le vert frais des plants sans cuivre, devant eux.
-FR à d : < VERT OS
 
 | Des taches de rouille plumetaient les endroïts où le- LD
 Mn mildiou ne lächait plus. Minouflet claquaïit sa langue en Ho
 | clignant de l'œïl, car moins de feuilles grillées marquaient SAT
 M son bien et il n'aimait pas Posier, un républicain. 5502
-Ê e.. # » . . . . Pr TN
  Minouflet, son réservoir vide, gagnait le chemin où,
 | sur sa charrette à deux roues, chauffait au soleil le ton-
 | TS Se ° z . Ë RE Re
@@ -1446,7 +1086,6 @@ les siennes dans le chemin de craie creusé de deux or- L Eu.
 
 nières blanches. Il élargissait le bâillement de sa che- 3
 mise ouverte comme une vallée sur une forêt de poils. 3
-noirs. 2 “34
 ‘ Un chemineau venait, ceinturé de rouge. Par une bre-
 
 | telle de cuir tenait à son épaule un carnier de chasse, LE
@@ -1471,8 +1110,6 @@ _ dépend où vous allez, » a
 
 . année. Le miidiou mange tout. A Villiers, on dépique & æ
 
-ee |
-
 a. ai FR VIN DE CHAMPAGNE
 | les vignes. Le bois est perdu. On tirera pas dix litres
 de vin de quatre arpents. Il y en a qui travaillent encore
@@ -1495,7 +1132,6 @@ _« Cestil vrai que Hartmann prend du monde? »
 NS — « Vous pouvez toujours aller voir. Il a déjà sulfaté
 “quatre fois. Passez par les chemins des vignes; on a le
 - pied moins leste que sur la route, mais c'est plus
-.. court. »
 0 1 Le trimardeur repartit à longues enjambées.
 Sur les collines piquées d'échalas, les bras de che4 mises des hommes épars, blancs au plein soleil,
  tachaient l'immensité de verdure.
@@ -1504,7 +1140,6 @@ le mildiou brusquement favorisé par le temps froid et
 les pluies d'orage. Maintenant, la chaleur humide cou-
 —vée sous les plants bas distants de soixante centimètres
 
-e LÉ
 la peine des hommes LES
 
 — quarante mille à l'hectare — forçait le développe- % |
@@ -1546,22 +1181,17 @@ année; regardez Ça. » 4
 
 Elle fit pleuvoir, en les touchant, les grains d'une i
 
-grappe morte. K
-
 « C'est venu en une nuit. Au matin, tout était blanc, à
 
 et depuis Cest la misère. On n'ose pas réclamer sa à
 
 paie au maître. Et quoi lui dire quand il vous demande : +
 es « Y at-il du regain dans ma vigne? » On est maiheu- 2
-reux. » ki:
 
 À — « L'année prochaine, ce sera meilleur. » 4
 
 — « Faut bien se dire ça. L'espoir fait vivre. Ça
 n'empêchera pas que beaucoup cet hiver vendront leurs à
-
-A AUS LE PR RE CE Le DAV
 
 | DENT VIN DE CHAMPAGNE 0 HE
 £ | vignes. La culture vaut mieux que le vignoble, aujour- mi
@@ -1570,8 +1200,6 @@ A AUS LE PR RE CE Le DAV
 . … — « Bon courage! » dit-il en se levani. Le AL
 SRE a et
  … Elle dit: ARTS
-
--  — « Bonne chance! » ACER
 
 —_ Des hommes sortant d'un domaine grillagé emplis- :
 
@@ -1591,7 +1219,6 @@ de sulfate porté par une charrette barrant la route. FRS
 | “ tard, souffrent plus que le grand domaine. FT
 | 70 . Le chemineau enrôlé rejoignit les hommes de bronze Se
 | qui criblaient de cuivre le mildiou tenace. RS
-D « € 2 À Ke]
 
 | 4e Après la journée trop chaude, une barre de nuages +
 | _ noirs tachait l'horizon proche, fermé par les collines ee
@@ -1603,14 +1230,8 @@ M Sulfater coûtait à Minouflet cinq francs l'arpent; il Re 1
 perdait dix francs et sa peine. 5 50
 ‘4 de Pour se consoler, il alla comme tous les soirs, jouer +
 …. son apéritif à la manille chez Maréchal avec Neveux et se ;
-TRE . . . . , . X va
 
 ë %à uvigneaut qui prenaient de l''absinthe gommée, lui un de S
-
-_ amer citron. x,
-
-L DES 45 Champagne. — 3. He
-Î : ENTER < E RE
 
 e la peine des hommes |
 Le chemineau tenait sous ses coudes les gravures du |
@@ -1644,9 +1265,6 @@ achètent déjà les réserves, par peur de la hausse après 5
 la vendange. Faut bien que je leur cède, sinon ils ne 4
 m'achèteraient plus rien. On ne gagne pas à garder si
 5 son vin. Ça fraye trop. On soutire, on remplit. De vingt
-46 7"
-
-à 2 AVES VIN DE CHAMPAGNE
 
 | pièces de quatre ans, il m'en reste dix-huit; du vin  ‘!
 —. blondi, qui perd son bouquet. »
@@ -1654,11 +1272,8 @@ m'achèteraient plus rien. On ne gagne pas à garder si
 nn. — « Combien on te l'a payé? »
 
 « Pas cher. J'aurais plus gagné à le vendre aux
-. Allemands. »
 
 \ ‘® Lain et Moreau s'assirent à sa table et burent de
-
-2e l'amer.
 
 . — « Eh, Minouflet, dit Tain, demande au curé qu'il
 nous fasse un miracle. »
@@ -1681,8 +1296,6 @@ bas. En revenant, a serait aussi bête qu'avant de partir
 et si al avait eune bosse sur le dos, a serait point
 | passée, mais al en aurait peut-êt' ben eune autre sur le
 
-… , ventre. »
-
  —« T'as une langue de garce », dit Minouflet.
 
 È 3 Les rouges riaient haut et renouvelaient leurs apé-
@@ -1700,7 +1313,6 @@ feuille demeure belle maïs la grappe est marquée. Fait
 
 | FT
 la peine des hommes AS 4
-Re.
 
 — « On sauvera peut-être ce qui reste, dit Maréchal, |
 et ça se vendra cher. » à |
@@ -1726,7 +1338,6 @@ un dimanche après-midi. |
 Il vint des vignerons de toute la montagne de Reims. |
 Le maire présidant la réunion proposa comme assesseurs i
 Minouflet et Neveux, mais les gens de Berny crièrent :
-« Posier ! »
 
 La foule des hommes tranquilles et curieux regar- 4
 daient l'estrade où le député remuait des papiers. Il 4
@@ -1735,15 +1346,12 @@ parla : « la délimitation avait été retardée par les récla-
 .  mations des vignerons de l'Aube demandant à y être i
 compris. Malgré les démarches des délégués de la Fédé- 2
 ration des Syndicats de la Marne, le Conseil d'État se
-dérobait. :
 
 « La Commission enfin réunie à Châlons le 12 mai à
 repoussait les vignerons de l'Aube et bornaït la délimi- 4
 tation au département de la Marne, plus le canton de |
 Condé-en-Brie et quelques communes du canton de À |
-Château-Thierry. We:
 
-Er lie re RRNAES Re 2: CR TE ae
 > HAS VIN DE CHAMPAGNE Far à
 . _« Après transmission du rapport au Conseil d'État, 4
 | aucune décision ne fut prise, à cause des vacances, L ;
@@ -1777,7 +1385,6 @@ petit fabricant qui livre des mousseux à trente sous conti- :
 _. vendra plus cher la sienne.
 « La délimitation ne servira qu'à l'augmentation de ete
 “_ l'énorme richesse des négociants. “ee
-4 524 e
 
 ; la peine desthommes WU
 « Quand on aura tracé un rond par terre autour de
@@ -1807,14 +1414,10 @@ j « Je men mets le premier, moi, du syndicat, si ne:
 Minouflet s'en met avec moi. Tope. » ne:
 a Il lui tendit la main. Minouflet ne bougea pas et à
 répliqua quelque chose que les sifileis et les bravos M
-é empéchèrent d'entendre. ? ù 4
 Le maire réclama le silence. Un vigneron, candidat "M
 contre lui aux élections municipales, le nargua: ; E
 « Vous n'êtes pas digne de porter l'écharpe. Vous :1*0
-50 ne
-+ NS
 
-D VIN ok quarante : ©
 ayez fait mettre des journaux barbouillés d'excréments PE
 dans ma boîte aux lettres. » LATEX
 # /Un autre lui reprocha : prie. “
@@ -1827,7 +1430,6 @@ pou nos charrettes, n'est pas fait. » F4
 | Enfin, le député put lire l'ordre du jour « exprimant à +
 le regret du retard inexplicable apporté par le Conseil
 d'État à fixer la délimitation de la Champagne et 3
-demandant aux pouvoirs publics d'accorder aux vigne & Fa
 rons ruinés par le mildiou l'exonération de l'impôt re
 foncier et les plus larges indemnités. » Le PES
 t _ Les discussions reprirent dehors. Posier, gris d'avoir
@@ -1845,7 +1447,6 @@ manquera de pain. Pourtant, c'est nous qui le faisons le Re
 
 | Ÿ Les « blancs » ne se compromettaient pas à écouter. < pas a
 
-Mn Is entraient aux auberges. 208
 .. — « Tiens ta langue, dit le vieux Moreau, tu vendras 2
 
 point ton vin. Te faudra le boire, mon gars! » : =
@@ -1865,7 +1466,6 @@ Cette évocation des puissances redoutées de tous |
 mettait les prudents en fuite. Les gens reprenaïent la |
 route de leurs terroirs. |
 De loin, des hommes à l'âme basse injuriaient le |
-républicain :
 « Eh ! le fou... Anarchiste! » k |
 L'heure de l'apéritif réjouissait l'âme simple des
 aubergistes, heureux de l'entrée de tout ce monde. 3
@@ -1886,9 +1486,6 @@ c'est leur revanche : ils font le bas prix. C'est à prendre ‘
 ou à laisser. Ils sont riches ; nous, nous empruntons. Si +
 on ne peut pas rendre, ün vend sa vigne. Le négociant
 l'achète. Quand nous serons tous devenus ouvriers chez À
-52 À
-
-EU UN VIN DE CHAMPAGNE He
 
 * | eux, ce sera encore une fois notre tour de mettre les Æ
 
@@ -1903,11 +1500,8 @@ mêmes; ils se mangent la laine sur le dos. »
 ù : Cependant, par suite de la propagande de la Fédéra- -
 _ tion des Syndicats de la Marne, des essais de libération $ Es
 F furent tentés dans plusieurs communes jusque-là sou- pe
-… mises aux négociants. :
 
 Le Is répondirent dans un grand journal par une 7
-
-_ menace droite : D
 
 | ES …. « Qu'arrivera-t-il; si en face du syndicat des vigne- À
 | | rons, plus exigeant et plus acerbe que jamais, se dresse ‘
@@ -1945,7 +1539,6 @@ priétaire n'y mette assez de soin et fraude sur les con
 ae ditions exigées pour les cuvées : pressurage de quatre … 4
 ÿ cents kilogrammes de raisin trié par pièce de deux M
 À cents litres; les tailles issues de la seconde foulée 4
-"à logées à part. D:
 Les pressoirs employés tiennent quatre mille kilo- Re
 grammes de raisin. Les quinze mille petits vignerons “1
 ; de Champagne possédant entre un et trois arpents
@@ -1954,7 +1547,6 @@ ne 6 entretenir ces grandes machines pour leur petite
 : ! récolte. Acheter des tonneaux, construire pour les Be |
 __ loger, travailler les moûts, coûte cher. |
 à Le pressoir et le cellier en commun libéreraient les #
-“hs vignerons. 2,50 5
 ie Ils préfèrent se débarrasser du raisin même en n'y 11
 PES trouvant que le prix de leur vie. Trop individualistes 4
 LE pour s'associer, ces hommes de « chacun son bien ». 12
@@ -1964,18 +1556,14 @@ vigneron qui doit céder au marché ou laisser pourrir
 sa récolte. : 5318
 Le 25 septembre la vendange commença dans la mon- N. Ÿ
 
-FT SAVRTS PAS NO RTL CPAM AE RET ARE R APT por VIRE
 DEN 0VX VIN DE CHAMPAGNE ue
 -tagne d'Épernay. Elle précédait de quinze jours celle de
 L la montagne de Reims. Le prix de la première cueillette.
 . établissait une échelle de valeur pour les récoltes sui- LORS
-LEURS DE à L LES ES
 _vantes. Le kilogramme de raisins noirs d''Ay, fixé à a
 1 franc 25 par le syndicat des négociants, on achèterait es
-1 otre # AMIE 00
 “au même taux dans les grands terroirs : Cramant, _
 | -Avize, Verzenay pour descendre à un franc à Avenay, NÉE
-é… Bowzy, à quatre-vingts centimes à Berny, Cumières, à
 | ; ‘cinquante centimes MERS petits RÉOÇUNE Rae ‘es
 Les gens de Verzy, outrés de ne recevoir que soixante
 dix francs pour la caque de soixante kilogrammes li
@@ -1985,7 +1573,6 @@ li aient sur place pour soixante-quinze francs, écri- Mn
 Ki" Le cochylis ambiguella, le « ver coquin », mangeaïit ra
 les raisins mûrs. Des orages, activant sur la grappe la QE
 pourriture du rot brun, gäièrent le commencement dela RS
-HAE x . à EDP
 me On manquait de bras, car le triage des grains perdus LT
 niriplait la besogne. Les herbagers, les vanniers, les 2
  laboureurs qui venaient chaque automne après la mois- : si
@@ -1999,14 +1586,10 @@ Lis grappillaïent ou cherchaïent lembauchage pour se “HO
 cinquante les cueilleurs, trois francs sans le repas du ie
 … soir; les porteurs trois francs, nourris. a
 | TEA vigne « montrait » beau; le mildiou laissant la ne
-PERS Se : RUES
 feuille, vivait sur la grappe; sous les pampres touffus Re or.
-LS A
-DRE : - DEAR
 
 la peine des hommes SUR
 des ceps bas, les grains pauvres cachaïent leur laideur La
-honteuse. Fa)
 Au lieu des beaux fruits en pommes de pin du pineau |
 noir, on trouvait des chapelets rongés, pourris par le |
 mildiou et le cochylis repu remuant sa tête rouge. i
@@ -2041,7 +1624,6 @@ une Qt _ VIN DE CHAMPAGNE : %
 D Sa « petite sœur » baissait vers les ceps sa tête aux %
 . cheveux coupés ras dans quelque hôpital. Elle rôdait Ro à
 | avec délices dans les vignes du seigneur, du seigneur LA
-_ Hartmamn. d
 ci Son front piqué de taches rousses se plissait par la S
 volonté de chercher les plus belles grappes pour ses ;
 *S vilaines denis. le:
@@ -2070,7 +1652,6 @@ et la voiture roulait de guingois. ë
 …__ M. Maiberg goûta le grain dans une caque d'osier où ë
 … Rostchild vidait son panier puis examina le bois jaune Me
 n° de la vigne, tiqueté de noir. Ne
-DER ; #
 
 _ la peine des hommes D. |
 à Les gouttes vertes du dernier sulfatage grélaient la
@@ -2085,12 +1666,10 @@ la tige verte tombait sexl dans le panier de choix.
 Le vin de Champagne est soigné de la grappe à la
 coupe. LA
 Des parapluies liés par un mouchoir au plus proche 4
-RE, échalas, portaient ombre aux trieuses. E 3
 Deux vendangeurs soutenant une caque de soixante
 kilos par une perche glissée dans les deux anses, afin & 4
 de passer le lourd panier haut sur les ceps, sortirent de 4 |
 la vigne et atterrirent leur charge auprès des femmes n
--_  bavardes. é ; 4
 — « Reposez vos langues, donc, dit le plus vieux. - “3%
 À Vous aviez bien besoin de dire à c't homme ce que |
 vous lui avez dit hier. Il en a pleuré. » D
@@ -2102,10 +1681,8 @@ Es d'avoir trop parlé la veille. de
 pleins. Le vin blanc de raisins noirs exige le pressurage
 du fruit très frais, car l'échauffement des grappes :
 entassées communique à la pulpe le colorant de la
-peau. a
 | En fortes vendanges, les pressoirs fonctionnent la
 nuit, pour venir à bout de la cueillette du jour.
-$ 58 Es
 
 D et ue ere
 | re eh He ee enlevant les dernières NE 18
@@ -2162,7 +1739,6 @@ Une sirène sonnaït l'approche d'une automobile. La |
 machine puissante frôla son sommeil, emportant à cent |
 kilomètres à l'heure, la vision d'un homme à barbe
 blanche qui clignaït les yeux contre le vent de la
-marche. À
 Les voitures de vendange roulaient vers les pressoirs À
 de M. Hartmann pour qui M.Dumesnil commissionnaire
 achetait la récolte du terroir de Berny à quatre-vingts
@@ -2202,10 +1778,8 @@ de vin de première et de seconde taille. Le dernier coup ‘
 —_ Acre, bu sur les comptoirs de Reims. Des vignerons G
 ne propriétaires de petits pressoirs reprenaient le marc
 — des tailles et le rebèchaient avec le « détour » des à
-- clayettes. :
 . M. Dumesnil venait contrôler, avec M. Maïberg, les Fe
 — poids reçus. Ces messieurs gagnaient bien leur vie con- ee
-‘ex 61 Champagne. — 4 É
 
 3 la peine des hommes a |
 fortable à écluser les opérations entre le négociant et " &
@@ -2222,10 +1796,8 @@ les caves des négociants étant pleines, on achetait la. ‘à
 vendange par miséricorde. Dans ces conditions on ne “
 pouvait pas la payer bien cher. à
 Sa commission variait entre cing et dix francs par 4
-+ pièce. 4
 Les vignerons le redoutaient, mais lui devaient bonne
 mine cer, à ne pas lui plaire, on risquait de mourir de del
-faim. ‘46
 F Grâce à lui, le vin des républicains, répudié par les
 négociants, partait par trains complets pour l'Alle- 4
 magne. Il plaçait, dans les années heureuses, deux
@@ -2235,16 +1807,11 @@ On lui demandait tellement de vin de Berny qu'il
 Berny du vin de n'importe où à quatre-vingt-dix francs 4
 la pièce et de le réexpédier à trois cent vingt francs 1
 avec Berny comme lieu d'origine. Mais cette opération
-commençait à devenir difficile. "4
 Cette année il manquait à gagner viogt-cinq mille + % |
 ee francs, ayant à grand peine trouvé mille pièces dans le u |
 terroir. L'hiver le dédommagerait. Des vignerons ruinés |
 - lui vendraient pour peu leurs vignes dépréciées par le M
-mildiou. nn |
-£ 1
-62 Ne |
 
-_ ‘VIN DE CHAMPAGNE SA PS
 Les pièces de cuvée gagnaient les celliers de M. Hart- RATE De
 _ mann, par charroi; le transport sur route exigeait sr
 … moins de temps que la double manutention pour mettre .
@@ -2253,7 +1820,6 @@ de chargement, exposés au grand soleil, pressait trop FEU
 _ la fermentation. MR rs
 & Une galopade d'hommes vint se briser sur l'obstacle nes Se
 - des charrettes préparées devant le pressoir. RE ETS
- - e Fine
 … Les gens qui retournaient le marc mirent dans le RES
 | | cadre de la porte le tableau de leur groupe en deux er :
 É:c ouleurs : les blouses bleues et les tabliers blancs. É RS
@@ -2289,14 +1855,12 @@ astiqués des deux gendarmes. 1e
 Un colporteur posait sa balle : : "al
 < « Journée perdue, dit-il. L'année dernière, dans la à
 même tournée, aux vendanges, j'ai vendu pour cent 1
-francs. » #
 L'arrivée du train coupa les répliques. Les femmes,
 sollicitées vers le quai par le poids de leur arrière-train,
 se hissaient vilainement sur le marchepied des wagons
 construits en pigeonniers : la porte étroite et haut à 3
 — « C'est une perte pour tout le monde », dit une k.
 vieille dame qui gênait ses voisins par un grand panier :
-d'osier blanc. #
 « Le commerce de Reims va perdre. Après la ven- 3
 ; dange, les vignerons allaient se rhabiller, chercher ce à
 qui manque et s'amuser un peu... » %
@@ -2311,14 +1875,12 @@ l'Angelus de Millet. 5
 A l'horizon, l'apparition blanche de la cathédrale
 surgissait sur les fumées de Reims.
 
-ke 7 P. K. Hartmann arriva à Reims en 1870 parmi GR
 C4 M. les dragons qui entrèrent le 4 septembre par la
 4 porte de Cérès, devant l'armée allemande du général |
 _ La vendange de l'année de l'invasion fut fameuse. si
 … Obligés de partir du riche pays qu'ils avaient espéré CR
 … garder, les Prussiens volèrent tout le vin qu'ils purent, <
 . mais ainsi en prirent le goût et le répandirent en Alle- ;
-Ê magne. TETE
 | à Des ‘employés ailemands devinrent nécessaires aux
 | maisons de Reims pour la correspondance avec cette ;
 Ë 5 nouvelle clientèle. Hartmann entra chez Couvreur. Don-
@@ -2337,7 +1899,6 @@ i Cette année, on logeait en celliers quatre mille pièces : ï
 —…. huit cent mille litres, petite provision pour une firme i
 - vendant trois millions de bouteilles par an. 4
 où Les fûts de Berny, gerbés sur trois de hauteur, tenaient :
-D 65 Champagne. — 4. a
 
 ne : la peine des hommes FA “TS
 entre ceux d'Ay et de Bouzy dans le bas cellier, à Fe
@@ -2352,7 +1913,6 @@ par l'hiver: charpentiers, couvreurs, maçons, venaient À]
 abreuver et rouler les fûts. de]
 On recherchait, pour renforcer le personnel fixe, ces |
 hommes durs à l'ouvrage, disciplinés par l'habitude du
-travail régulier. #
 Après le dernier soutirage, « sur colle », M. Neumann, -
 chimiste œnologue appointé huit mille francs par an, | 4
 vérifia combien le vin gardait de sucre, calcul capital: Ha
@@ -2360,7 +1920,6 @@ une trop grande quantité créant un excès d'acide car- 4
 bonique supérieur à la résistance des bouteilles. : ‘4
 Ces recherches précédaient l'assemblage des crus : s}
 _ Ay donne la force, Cramant la mousse, Verzenay le à
-bouquet. qu |
 M. P.K. Hartmann recoupait pour sa clientèle anglaise 4 |
 des vins parfaits. La dégustation décidaiït du mélange. … 4
 En cela, M. Pérignon, chef de cave, passait M. Neumann
@@ -2372,12 +1931,8 @@ placer ses lunettes à verres de télescope. à
 — « Pour faire une bonne bouteille, disait M. Péri- 4
 -  gnon, il faut mettre du bon vin dedans. » e
 11 aimait boire. Des veinules bleues striaient sa figure #4
-ÿ
-F0
 
 PR LA ie aie 1
-
-A  nuumacnet LAURE
 
 ; RUE DR VIN DE CHAMPAGNE te
 ue yeux clairs se troublaient vite, car il était 4 » facile à la colère. M. P. K. Hartmann l'appréciait haute- ne
@@ -2403,7 +1958,6 @@ nain à Pérignon. C'était le cas. Le vieux praticien dit
 may vieux de trois ans, on obtiendrait un excellent 2 2
 _ & goût anglais ». L HS
 Ke M. Neumann l'expérimenta dans une éprouvette gra- te
-Syduée. PTE
 14 Le mélange se faisait dans un foudre de quatre-vingts cs Se
 … héctolitres, placé au fond de la Rincerie, un grand hall <
 _ cimenté. Uné percée du plafond au-dessus du foudre 1
@@ -2441,11 +1995,7 @@ encore que pour les petits vins à trois ou quatre atmosphères vendus en France
 possédait trois millions en réserve dans deux grands 3
 hangars d'où venaient en file, du fond de la cour, ÿ
 les rouleurs de brouettes qui approvisionnaient les
-rinceuses. k
-68 à
-*2
 
-D Fa VIN DE CHAMPAGNE ë
 La pauvreté de la vendange arrétait les commandes ; *
 aux verreries et M. Brizet, maître verrier d'Hornis, -
 “ licenciait les relais. Lecat, de Quiquengrogne, remettait
@@ -2467,18 +2017,15 @@ le dégagement explosif d'acide carbonique.
 _  Rostchild, embauché, éprouvait des convoitises ter-
 - ribles à l'odeur capiteuse du vin fin. Sa face maigre
 « s'ornait maintenant d'une cicatrice sur la pommette
-_ gauche.
 On l'employait à porter les paniers pour lui éviter la ;
 k. peine de se sucer les doigts. Il lui restait la consolation pa
 des deux litres de rebèche distribués par la maison à ne
-chaque ouvrier. ÿ
 Auprès de chaque remplisseur, un boucheur manœu- =
 vraît la machine à mouton dont la broche appuyée pa :
 ia descente d'un poids de neuf kilogrammes enfonçait
 dans le goulot de seize millimètres de diamètre, un
 bouchon de irente-deux millimètres valant cinquante 6
 francs le mille. La tête mordue serrée par la bague F3
-& 69
 de
 
 & - la peine des hommes  "
@@ -2509,7 +2056,6 @@ leur fermentation sous verre les vins de petite carte. La. 4
 plus tôt. Les champenoises empilées sur lattes traçaient
 d'un bout à l'autre du cellier l'alignement parfait des
 cubes de goulots ei de tessons montés impeecablement
-1 droits. =
 Les grandes cuvées prenaient leur mousse en cave, la 3
 température basse créait le grain plus fin et l'échappe- …
 ment plus long; les vins activés détonnent, éclaboussent, puis meureni. 3
@@ -2589,10 +2135,7 @@ P. K. Hartmann possédait un palais de pierre blanche « orné de dorures. ; :
 Sa richesse était grande; ses caves contenaient sept
 millions de bouteïlles. Une réserve de soixante mille :
 72 4
-x
 
-EURO) CS Le PANNES N .
-% Hs ss * VIN DE CHAMPAGNE .
 “hectolitres en cercles garnissait les galeries extrêmes NAN
 de sa baronnie souterraine. : 1
 _ Deux cavistes poussaient un nettoyeur de treize ans”
@@ -2608,7 +2151,6 @@ de Berny. Les commerçants dépourvus d'avance livrent À
 le vin de l'année, trop jeune, qui mousse jusqu'au pla- 4
 fond et manque de velours. M. Hartmann relevait les DER
 cuvées pauvres par son trésor, de crus des grandes
-époques : 1893, 1904. -
 Le grattement de l'enfant dans le foudre vide cessa; À
 le petit, incommodé par l'acide carbonique, se reposait.
 Le bruit du travail d'entreillage des cuvées nouvelles
@@ -2623,8 +2165,6 @@ La fermentation finie, on déplace le tas pour l'épurer
 des brisées ou des « recouleuses » dont le bouchon vi- ;
 cieux a laissé fuir le vin forcené On le reconstruit dans
 une galerie plus froide en portant les bouteilles cou- |
-* 5e) Champagne. — 5
-\
 
 la peine des hommes $ “
 chées sur le même côté, afin de ne pas remêler au vm
@@ -2642,13 +2182,11 @@ secoue rapidement, d'un mouvement très court — ses
 poignets seuls travaillent — et la laisse retomber,
 écartée d'un sixième ou d'un huitième de tour de sa po-
 
- sition première.
 Certains vins se remuent tous les jours, d'autres tous
 : les deux ou trois jours. Aucune règle n'est possible;
 l'ouvrier s'instruit sans cesse; des cuvées lui apprennent
 des difficultés qu'il ne connaissait pas après dix ans de
 pratique. Le remueur ne mène pas le vin, le vin le
-mène.
 Sur dix hommes cinq renoncent au métier, leurs poignets surmenés enflent; des contractions nerveuses dé-
 truisent la régularité nécessaire. On les emploie à
 d'autres besognes. Le remueur touche la plus haute
@@ -2658,11 +2196,7 @@ ne s'entend que le bruit des bouteilles secouées par le l
 
 . mouvement d'horlogerie de ses poignets. La chan74 |
 
-4 ot + VIN DE CHAMPAGNE e. |
-
 “ delle éclaire sa figure grave d'homme qui vit dans le M;
-
-è noir.
 
 “ Toujours sur pied, il se fatigue plus que les bou- | |
 
@@ -2727,7 +2261,6 @@ ailleurs, ce qui crée des inégalités. L'année précédente,
 AN ‘Le précédent des ouvriers vieillis dans la maison” #13
 donne une garantie d'avenir aux camarades jeunes, cé
 mais ces vieux, satisfaits, rebutent tout groupement à:
-libre. (el
 L' « Association des tonneliers et ouvriérs de caves » 1
 n'est qu'une société d'agrément docile aux négociants. ;
 Moins pénétrés de servilité, les travailleurs calculeraïent |
@@ -2745,22 +2278,16 @@ grandes maisons accordaient la liberté du dimanche et
 des fêtes religieuses. .
 ' L'obligation votée, elles ne donnèrent plus à leurs
 ouvriers, lésés par le gouvernement, qu'un jour par
-semaine.
 « Ma maison, affirma un grand patron, ne sera pas
-conduite. » '
 Ce négoce n'aime pas la République. Cela s'explique  \
 par les sentiments naturels aux ducs, comtes et mar-
 | quis, possesseurs des marques françaises ; par l'habi- |
 tude de P. K. Hartmann sujet d'empereur, et aussi par
-raison économique :
 La Cour, lieu de gala et de magnificence, entretient
 le goût des produits de luxe. Le champagne est boisson M
 
-£Ê AV POS 7 OR RCE TR re ie LH AIT A)" 79? 14
-En À VIN DE CHAMPAGNE | 5
 MX, e princes. Ses étiquettes portent : Impérial, Royal. Pl
 “ Républicain Mousseux ferait rire. Royal Mousseux, on ‘4e
-_ achète. AE
 M: Hartmann fournissait la cour d'Angleterre et PA
 . l'aristocratie anglaise. Mr. W. N. Balcombe représentait Ne
 sa marque à Londres. Il achetait ferme chaque année ire 1
@@ -2772,7 +2299,6 @@ _ monde. ti
 Re bronzes : des chevaux cabrés, des guerriers brandis- “
 sant leur glaive, des femmes sérieuses, nues. Devant ie
 … une tenture de gros velours rouge luisait le buste du EE
-à FA kaïiser moustachu, en métal massif. PE) 4
 _ On appréciait la discrétion de ce culte du Fétiche à
 à après avoir vu, dans Reims, un monstrueux aigle impé- si
 … rial sur la porte — « goût allemand » — en bronze et à
@@ -2784,12 +2310,10 @@ un plaisir apparent. Ils conversèrent en anglais. F
 - de vendre le vin cher. » L NE
 “ Il cita des maisons de Reims et d'Épernay qui livraient D
 k. Panco, Londres du champagne à quinze shillings la LE
-ls douzaine. ï
 à . « Il va falloir baisser vos prix. » d
 _  —« J'allais vous parler de les hausser, dit M. Hart- s 6
 LS -mann. La délimitation de la Champagne donne à ma !
 li marque une consécration qui vaut cher. » *#
-bi. ‘ :
 
 .. la peine des hommes S 11
 
@@ -2835,12 +2359,8 @@ gare de Reims. (4
 Leurs affaires conclues, les deux commerçants se 4
 promenèrent avant de dîner ensemble. 4
 
-78 FE
-LR II
-
 de ES VIN DE CHAMPAGNE
 ; — « Placez-vous maintenant beaucoup en France? »
-. demanda W. N. Balcombe.
 — « Non. Le Français n'apprécie que le champagne
 vendu par un duc, un comte ou une.veuve. Il ne sait N
 pas boire. Le mousseux l'amuse; il veut que le bouchon :
@@ -2861,11 +2381,9 @@ toits clôturaient les cours vastes où les cavistes en ta-
 maître. Les toits jumelés des hangars à bouteilles sui- |
 vaient ceux des écuries pour quarante chevaux. Le |
 bruit des maïllets assénés montait de l'atelier des tra-
-._ vaux accessoires.
 L'été, les amoureux gravaient leurs prénoms au canif
 sur le long mur en moellons de craie qui fermait le domaine sur la route de Châlons, puis tournait pour dé-
 … fendre sur le coteau la terre dont Hartmann disait, le
-doigt tendu :
 « Ceci est à moi. »
 Une cavalcade du 16° dragons longeait la clôture, au
 
@@ -2893,7 +2411,6 @@ Une ampoule électrique pendaït entre eux, éclairant
 leurs gestes en relief sur l'épaisse obscurité du bercéau
 
 aux voûtes basses, noircies des végétations de Phumi- … È
-dité. 4
 La transparence du vin limpide dans les bouteilles
 
 vertes les faisait paraître vides. Le dépôt, formé en ‘4
@@ -2908,8 +2425,6 @@ ment installé dans une cave cimentée. Le fonctionne- B
 3 ment des machines y produisait un cliquetis de métal M
 dominé par la détonation des champenoises débou-
 
-chées. u
-
 Depuis les berceaux lointains, les porteurs amenaient M
 
 , sur des poussettes les vins à travailler, parcourant de ‘%
@@ -2919,10 +2434,6 @@ galeries noires où ils se guidaient aussi sûrement qu'un
 
 passant dans une rue familière. 4
 
-80 ‘4
-
-LR | VIN DE CHAMPAGNE ÿ
-MID aq FA | W
 | Un homme plaçait le col des bouteilles renversées 1
 + dans les cases d'un appareil frigorifique. En trois minu- sa
 _ tes, le dépôt se formait en glaçon. Ki
@@ -2953,10 +2464,8 @@ fre dégorge par jour. HALLE
 F Il est armé contre les éclatements, d'une grille de fer €
 Ée dont il couvre le corps de la champenoise; rien ne
 Ha garantit ses mains nues contre la fente en long du é
-& goulot.
 ss Un peu de mousse suit le glaçon; il l'égoutte sur un
 “_ ionneau où se recueille tout le déchet. Les grandes
-à ; Ÿ 81 Champagne. — 5.
 
 la peine des hommes he: |
 maisons se défendent de l'utiliser dans les cuvées nou- 1
@@ -2986,14 +2495,11 @@ e les machines à mouton sur des lièges d'Espagne valant M
 trente centimes pièce, enfoncés d'un tiers pour le conti
 nent, plus profondément pour l'exportation. La solidité À
 de la fermeture prévoit les tribulations de la bou- 1
-teille. f
 Les bouchons marqués au feu Hartmann et Compagnie à
 entraient en trois coups de broche, de leur demi-lon- 4
 gueur dans les goulots de la cuvée W. N. Balcombe. Un
 ficeleur les ployait sous la croix de deux brins de corde
 82 3
-
-F:
 
 ès 1e VIN DE CHAMPAGNE À
 (il blanche qu'il nouaïit de ses mains rapides. Sa machine:
@@ -3007,10 +2513,8 @@ Un chantier rend mille bouteilles par jour. Cent bouteilles passent en une heure
 “ Gette activité fatigue peu les hommes; ils travaillent
 assis devant la machine, répétant mille fois par jour le
 même geste. L'usure vient de l'atmosphère. La saturation aqueuse de l'air des souterrains détruit leur |
-appétit.
 Les maisons sans installation frigorifique distribuent
 - les chantiers volants à pied d'œuvre, dans toute l'étendue des caves. Les cinq hommes : dégorgeur, doseur,
-* boucheur, ficeleur, museleur, installent leurs machines
 portatives devant la masse à finir. L'appareil à froid
 ne pouvant être déplacé groupe tous les chantiers, +5
 | Trente hommes vivaient assis dans la fraîcheur du
@@ -3022,9 +2526,7 @@ quatre-vingts marches de l'escalier de sortie aux arêtes
 usées à chaque extrémité par le piétinement des
 hommes qui se tenaient aux rampes. Il ne passait
 au milieu que les apprentis encore amoureux de
-courir.
 Les remueurs, arrivant des galeries lointaines, sortaïent les derniers. Le personnel monté des caves ren-
-À 83
 
 a peine des hommes EUR
 contrait dans la cour celui des celliers et les femmes. . 1
@@ -3036,7 +2538,6 @@ foule en habits pauvres déparaïit le décor magnifique
 des bâtiments luxueux. Aucun vêtement corporatif ‘4
 
 | ne signalaït les cavistes. La casquette seule leur était 4
-commune. 1
 
 | Les femmes gagnaient deux francs cinquante à trois
 
@@ -3049,7 +2550,6 @@ Mr. W. N. Baicombe demanda au mois de juin dix à
 “à mille Berny. Droites dans les paniers à six cases, elles +
 arrivaient au jour, salies par cinq ans de ténèbres. M
 Deux femmes les appropriaient à l'éponge. Les « babil- ï
-leuses » travaillaient à califourchon, à deux en vis-à- M
 vis, la colle et les feuilles d'étain à trente-deux francs (}
 
 le mille posées entre elles. ÿ
@@ -3077,19 +2577,9 @@ laque par des capsules de métal à quatre-vingt dix francs M
 
 le mille. ne.
 
-84 ‘4
-
-URSS HE LA ROMANS
-La . i de A à , [l / rl C { eu AU 4 F 1 #
 | AU La cuvée de W. N. Balcombe portait en or sur blanc: A |
 
-AN At SPECIAL CUVÉE YANN al
-Mer. P.K. HARTMANN ap Co. TONI
-
-Ron: RAR: à
-
 Pr La collerette tenait la devise : « Passe avant li meil- a ù ca A |
-_ lor ». ‘ “TUE
 
 . M: Hartmann avait dû défendre sa marque contreles ni
 | imitateurs. ve de Ko
@@ -3100,7 +2590,6 @@ ou franc cinquante à des chimistes d'Épernay qui ha- ÿ Ar
 | Quelques centaines de petits négociants exploitent A x 148
 
 _ ainsi en chambre une raison sociale déposée qui n'existe ae 5 î
-_ qu'en publicité. ROUE
 _  Hartman ne connaissait ni vignes, ni caves: il ven- Po À
 | dait deux syllabes sur du papier doré. À ie
 
@@ -3122,8 +2611,6 @@ _ times sous la capsule et de confier le secret aux gar- |. .
 
 . teilles. Il n'en voyait pas une. La maison d'Épernay Fo AVE
 
-é | Ver directement. [à 4
-
 pre M. P.-K. Hartmann conduisait plus sérieusement sa ie Fi
 
 la peine des hommes SCI
@@ -3137,32 +2624,23 @@ bouteilles chemisées de papier rouge. j |
 Ils les couchaient par deux rangs de six dans des fl
 caisses sur lesquelles ils appuyaïent à pieds joints ||
 avant de clouer le couvercle inscrit au feu W. N. Bal
-combe. London. |
 D'autres portaient des noms de pays lointains : |
-Mexico. New-York. Johannesburg. 1
 Des vanniers, maniant une alène d'acier, épaisse |
 comme une corne de bœuf, liaient d'osier rouge les 1!
 paniers blancs pour l'expédition continentale. 1!
 L'odeur du bois roussi venait du fourneau où un 1!
 — homme guidait sous la presse les planches à marquer à
-chaud. ‘à
 M. Erwing, employé à deux mille francs par an, |
 contrôlait le départ de l'envoi Balcombe. Des ouvriers 4
 aux manches retroussées posaient les caisses, adresse
 en dessus, par cinq de hauteur, sur les camions à deux ©
-chevaux. à ‘à
 Les lourdes voitures, sortant par la porte monumen- {
 tale, gagnaïent au trot de leur fort attelage, la gare ‘h
 petite vitesse où la marchandise prenait le rail, par À
-wagons complets, adressés à M. Desvides, transitaire à A.
 Calais, pour Mr. W. N. Balcombe, 10, Saint Edwards "#
-lane. Londres. û |
-1}
-Na !
 
 | } 10 ; ; ÿ
 | à Fr Es wagons étiquetés via Laon Tergnier, Amiens \
-“ À arrivèrent en deux jours à quatre heures cinquante, MS
 | matin, à Calais Triage par train 5.799. Débranchés en &
 ra mpe, ils repartirent, attelés à la rame du quai ouest, ‘426
 pi otée sur les voies du port par le surveillant Martin, ts
@@ -3183,29 +2661,21 @@ et deux arrivages de carottes. Si mon cargo manque la
 | LA Cet armateur se flattait de diriger la plus grosse +
 ï af aire du port. Tous les autres transitaires ayant d'eux |
 la même opinion, le surveillant Martin fut abordé avec ;
-É Er, 8; ;
-Î Mass
 
 la peine des hommes on
-iv * MINES
 une semblable importance par M. Darraidou qui lui -
 : demanda s'il se moquait du monde et pourquoi ses À
 \ wagons de vins et de fruits confits, arrivés la veille, | 4
 n'étaient pas encore placés : , 1
 \ « Une maison comme la maison Darraïdou n'attend
-pas. » 0)
 Le vieux Martin, sifflani sa manœuvre, ainsi qu'un
-bon chien répondait doucement : 1 1 |
-— « Tout à l'heure! » ou bien : 113
 « Chacun son tour. » FL 4
 et continuait méthodiquement ses aiguillages. 30 (|
 L'approche de la retraite lui donnait une grande M]
 Ni force. Les gens pressés usaient leur fougue sur sa séré- M |
-nité. D
 A hauteur du magasin où M. Darraïdou logeait son M |
 stock de vins en attente, deux grues travaillaient sur le M |
 ù vapeur « Cairnstrath » chargé de charbon pour le Gaz M 11
-Parisien. 1
 Derrière lui, un petit voilier de Norvège amenait de M}
 la pâte de bois aux papeteries de Blendecques. Le M)
 bateau de M. Merlin le touchait. On y embarquait à M}
@@ -3221,7 +2691,6 @@ face du bateau de M. Merlin. no)
 Les déchargeurs, payés à forfait, ne se dérangeaient uw)
 pas à cœur content. Courant, une planche à l'épaule,” |
 
-TE SOINS ; (ia HONNO
 sur le urs Dit flexibles, ils narguaient le surveillant En 1
 … heurté à un entêtement frère du sien. Il refoula sa rame “:
 F jusqu'à toucher la première passerelle. Les hommes lui pi
@@ -3235,7 +2704,6 @@ nr ke Martin ravitailla de wagons vides les bateaux pleins ul
 | et de wagons pleins les bateaux vides. |
 “Puis il accueillit sans amertume M. Leroux, entrepre- LICE
 neur du « Caiïirnstrath », homme aimable, arrangeant, HER Eh
-. élu récemment conseiller municipal. a
 4 Il offrit un rafraîchissement à Martin qui le pria de le &
 _ faire verser à l'estaminet ordinaire, en face le bassin if Le
 … du Petit Paradis. Il l'y prendrait plus tard, après avoir HAE
@@ -3245,7 +2713,6 @@ au pas derrière le pilote, il retourna à Calais Triage, P
 Les champagnes embarquaient dans l'avant-port, en NES
 | face le hangar Paul Devot où s'effectuaient toutes les = ua
 opérations et écritures de cette marchandise voyageant MA)
-en régie. d 4e
 12 Le bureau de la douane touchait celui du chemin de VS
 N fer. M. Desvides entra prendre livraison de trois ‘4
 _ wagons de vin. nn
@@ -3254,14 +2721,11 @@ _ wagons de vin. nn
 S | commencèrent à se dire des choses déplaisantes, car. nr
 D. M. Desvides ne retirait pas un colis de soixante cen- eh
 times sans rugir contre la Compagnie dont il fut 5j
-_ employé. | An
-t 41 x °ORER L :
 
 | la peine des hommes ANS |
 Il confondait les gens du chemin de fer par sa grande Î
 connaissance des tarifs. M. Bélard subissait ses apo- |
 strophes avec la résignation d'un homme qui les saït |
-inévitables. 4
 Son caractère, affaibli par dix-sept ans de discipline |
 administrative, ne lui permettait pas la réplique vigou-
 -reuse. Maïs, aussitôt M. Desvides parti, il se soulageait ll
@@ -3275,10 +2739,8 @@ en emmurant six personnes, épargné à la Compagnie
 une construction neuve. ï
 M. Desvides dit, à sa manière habituelle, lentement Ni
 et la tête en arrière, offrant la vue sombre de ses n'
-narines : |
 « Mes wagons encore en retard... mes avis non hi!
 remis... ma marchandise avariée… Comment expliquer  “@
-vous ça ? ! |
 L'homme du guichet est tenu de donner du sourire ï |
 . aux gens les plus déterminés à le pousser à bout, sous |
 peine de se voir noter : « manque de souplesse ». 7 |
@@ -3290,13 +2752,9 @@ trait moins la noirceur de ses fosses nasales, car mes- À |
 possédaient réglementairement, le moyen de lui faire : |
 baisser le nez. 14 |
 Le receveur justement de service : M. Labarre, se k
-,:48 R
-
-0 “7 VIN DE CHAMPAGNE
 
 : aisait craindre même de ses collègues pour sa férocité
 } au métier. Ancien préposé, il en connaissait tous les
-1 ‘à tours. |
 Fe M. Vidal, son jeune commis, doué d'un plus heureux
 
 | caractère, tenait la douane pour un petit jeu innocent ;
@@ -3330,7 +2788,6 @@ La Société des Rouleurs de Calais le déchargeait de
 
 M. Desvides retirait un bénéfice net de trois francs par
 
-_ mille kilogrammes.
 “Sur les trois wagons Hartmann chargés à dix tonnes,
 
 “ce vigilant intermédiaire encaissait quatre-vingt-dix
@@ -3344,13 +2801,8 @@ ls embauchaient un nombre égal d'hommes « à la
 
 semaine » et se répartissaient en équipes de jour et de
 
-1 nuit.
 Eh . On reconnaissait leurs maisons dans le Minck, au fil é
 … d'appel tiré de la rue par le réveilleur. Astreints, par le
-
-be
-
-:510 ; 91
 
 ia peine des hommes LR
 service régulier des paquebots, de marcher 0
@@ -3363,14 +2815,11 @@ Pour le moment, les bras croisés, ils se morfondaient, 4}
 : dans l'attente du bateau de Douvres en retard. : ni
 « Est-ce qu'il vient ? » demanda un brigadier rouleur M
 au manœuvrier de la grue, haut perché dans son logis | |
-de fer. 4 |
-— « Rien. » ni |
 La mer, très calme, coulait lisse depuis le bas du .}
 quai jusqu'à l'horizon vu du fond du port comme un fil ü. |
 tendu entre les bras des jetées. 4 4h
 Le brigadier Lambert, agacé par l'attente, demanda ° 1
 . au surveillant Martin si oui ou non on travaillerait M}
-aujourd'hui : ï 1
 — « Voilà tous mes hommes à rien faire. Si vous M
 nous donniez des wagons, nous pourrions toujours |
 charger les paniers. » ‘4
@@ -3383,7 +2832,6 @@ Petit et gros, il rougissait en parlant, car tout effort %
 le congestionnait. 4
 — « Chacun son tour », dit Martin. à
 — « Ce n'est pas souvent le nôtre. » 118 à
-— « Tout à l'heure. » 4 |
 Le surveillant ôta sa casquette et obéit au üc. #
 
 | te Ont % VIN DÉ CHAMPAGNE à à 7
@@ -3394,7 +2842,6 @@ Le surveillant ôta sa casquette et obéit au üc. #
 mai s rien qu'en apparence, car il était brave homme, Mit À
 toujours de bonne volonté au coup de main. a f
 I entra dans les bureaux du « South Eastern and Fe “
-“Chatham Railway » (S. E. & C. R.) représenté à Calais TL
 par M. Jim Batter, capitaine, qui recevait par câble l'an- Ù 14
 nonce du départ de Douvres du cargo de sa compagnie. Ne
 .— « Voilà la dépêche, dit-il, le « Maidstone » va être AT \
@@ -3415,12 +2862,10 @@ tude de passer à côté des gens sans rien leur dire 4
 ‘augmentait à son égard le respect et un peu l'inquiétude l Vi
 CL s esprits simples. Homme de la plus haute « respec- je à
 HE 1 souleva son long bras pour prendre la main de É de }
-$ M . Harry Pimple, capitaine, consul d'Angieterre. À
 j Ce diplomate représentait magnifiquement son pays, Ÿ ï
 moins par sa laide figure et son corps vieilli que par ni
 
 . la s belles manières. x
-; MAT A4
 
 : la peine des hommes Fe
 
@@ -3439,8 +2884,6 @@ coula un regard luisant vers les colis de champagne |
 que les rouleurs sortaient des wagons. Il lisait les M
 noms allemands, pyrogravés sur les caisses de bon vin 4
 de France : 4
-Heïidsieck. Walbaum. Giesler. Roederer. Wachter.
-Piper. Hartmann. î
 Il en tenait peu en cave, son budget alourdi par l'en- À
 tretien de trop de filles, toutes vêtues de bleu marin.
 On ignorait leur nombre exact. Il en cachait. 1
@@ -3451,24 +2894,14 @@ faux-col affinait son maintien. Sa pâle figure sortait M
 F comme une vapeur de ce tuyau blanc. À |
 
 Il appréciait le Hartmann Impérial, dégusté dans les M
-solennités officielles. : ‘4
 Les trois captains goûtèrent encore un moment la À
 forte joie de se regarder sans rien dire, puis Mr. Harry M
 Pimple et son secrétaire continuèrent leur route vers le :
 bout de la jetée d'où ils pêchaïent leur repas dans le. s A
-« Canal anglais ». %
 Un chien aurait sauté sous leur bras arrondi en cer- M
 ceau, car ils marchaient à la manière « smart » de M
-% $
 
-"a
-
-tot:
-
-APS VIN DE CHAMPAGNE
-RAT
 Londres, semblant porter sous chaque aisselle un très
-È ; gros paquet.
 … Le jeune Stieven s'écartant de l'axe du captain
  Pimple, démasqua le fond du pantalon noir de ce diplo-
 … mate, ravaudé d'un bout de jupe bleu marin. {
@@ -3498,9 +2931,6 @@ facilitait les craquements contre les fonctionnaires secs
 … de sorte que ces messieurs s'abordaient par le nombril.
 - La grue descendait dans le panneau d'avant les
 K caisses Darraïdou. Le préposé de douane traînait,
-a
-: 95
-AVE
 
 la peine des hommes | J'SSERERE
 
@@ -3526,8 +2956,6 @@ permis pour leur embarquement et on les remit à bord. 4 |
 Ces prouesses le grandissaient. Il pouvait tout : appré- M
 
 hender les gens, les interroger, les déshabiller, après la. É |
-
-question réglementaire : # |
 
 « Vous n'avez rien à déclarer? » nn
 
@@ -3564,7 +2992,6 @@ le mortier d'intérêt qui unit aussi fortement les hommes. h
 |
 
 | D NE CAMPAGNE | i DNA
-713 4 À " V à pl re , 4 LW Lx
 | La prob é de leur main-d'œuvre profitait aux transi- fi 1
 | ‘3 taires qui gagnaient leur vie à ne même pas regarder Hu 1
 #6 _ mettre à bord la marchandise. Ce travail consciencieux PA
@@ -3597,11 +3024,9 @@ Rice messieurs discutèrent les moyens de canaliser 1 ;
 …_ M: Lévêque tira de sa serviette des fiches de statisti- WA
 di que honnêtement établies. Ingénieur des Arts et Manu- aa {
 Diftiures, il ne plaisantait pas avec la science en papier. 4
-f A Re 97 Champagne. — 6 | is
 
 a la peine des hommes RER ÈS |
 ... « Nous avons transité en mars 9.567 caisses prove- "si
-nance Épernay, 5.759 caisses provenance Reims. Cela
 fait donc 15.326 caisses, soit 494 virgule 39 par jour, 4
 chiffre minime auprès de ceux de Boulogne. Or... » {|
 Il prit une attitude démonstrative, les sourcils écar- M
@@ -3631,10 +3056,7 @@ se charger de chiffres comme une locomotive de houille. -"}
 le besoin de signaler sa présence à l'aide de paroles 3
 inutiles. Nouveau venu dans le métier, il n'y connaissait
 rien et brûlait de se distinguer sans fatigue. 4 |
-98 fs |
-. WE
 
-A a CN UE AESYER
 | 0 VIN DE CHAMPAGNE (72
 bits M. Lévêque raidit son index droit sur sa tempe éclair- |
 | cie ‘et continua l'enchaînement des raisons devant k L
@@ -3642,7 +3064,6 @@ bits M. Lévêque raidit son index droit sur sa tempe éclair- |
 Ge visionnaire bavard, détaché de l'existence immé- AE
 … diate par vingt irréparables années d'école, ne voyait Fe
 Lula vie que comme un tableau noir où inscrire des for- A
-_ mules. re)
 10 « Le transport par wagons complets de la tonne de vai
 a champagne ‘d'Épernay à Calais est de 19 francs 50, Ve
 Re et de 21,85 plus 2,50 de droit fixe de Calais à Londres. #
@@ -3650,7 +3071,6 @@ Re et de 21,85 plus 2,50 de droit fixe de Calais à Londres. #
 caisses, virgule 34 par tonne, les droits de statistique :
 de 3,334, le connaissement 2,50 et le prélèvement du do
 4 ‘transitaire 3,50, nous disons donc que cela met la tonne |
-à 53,19 rendue franco Londres... Or... » } A
 " Il accentua la pose rituelle du démonstrateur, les yeux RÉ
 perdus, l'index pointé : 1
 « Or, je sais que certains industriels transportent les rl
@@ -3660,11 +3080,9 @@ _ français, embarquement à Boulogne, transport par ba- À
 Ë “. teau et par fer anglais, tout compris. Cela, sans leur À
 _ bénéfice, met la tonne à 41 francs 67, soit 11 franes 52 ;
 … meilleur marché qu'au tarif régulier. Messieurs, je n'y
-Ê comprends rien. »
 —…. Cette roublardise confondait son jugement. Elle n'était SN
 3 . point mathématique, homologuée, mais maligne et bien HE
 … rivante. Cela se passait dans la vie, de Fautre côté du je
-“4 tableau noir. - |
 PA M. Alphonse Sirop zézaya des lieux communs : *
 … « Les gros transitaires se tiennent à Boulogne et y Fe
 a _ attirent le trafic. Le port de Calais n'a pas d'avenir.
@@ -3735,7 +3153,6 @@ trafic, non pas qu'il fût propre à rien, mais il savait se
 ê La collaboration de cet homme de peu de foi et de
 DM. Lévêque, esprit rigoureux, ardent, créait des situa4 tions gaies. M. Sirop ricanaiïit de tout, M. Lévêque ne
 riait de rien. Ils se tenaient mutuellement pour complè-
-$ tement fous.
 …_ M. Alphonse parcourait par sautillements de saltimbanque les divers chantiers du port où des hommes
 durs et graves regardaient, sans comprendre, parader
 _ ce figurant d'opéra-comique. ù
@@ -3743,16 +3160,12 @@ L M. Lévêque le poursuivait à petits pas rapides,
 “ tortillant son arrière-train.
 Il affûtait son index pointu sur ses durs raisonne-
 
-menis :
 | « Or... donc. »
 | Ces messieurs ne portaient pas grand soulagement
 
 au port de Boulogne, mais ils passaient le temps, si long
-- en province.
-à 101 . Champagne. — 6.
 
 la peine des hommes 17 1 TNA
-El
 M. Blanc les quitta pour diriger le service des vieux |
 bateaux à roues de la Compagnie du Nord. La surveil- {|
 lance de ces deux épaves convenait à ce déchet
@@ -3785,10 +3198,7 @@ taquiner entre eux. La douane mettait une barrière i |
 devant n'importe quoi sans importance pour obliger les À
 officiers de port et les agents du chemin de fer à faire î |
 - le tour. Le fonctionnaire qui parvenait à marquer au È
-102 |
 
-y NFRE | BOAT 1
-Mn VIN DE CHAMPAGNE A
 | fonctionnaire : « Je suis plus que vous » comptait un \
 - beau jour dans son existence. RAS .
 Les _ Les torpilleurs entraient, en file, coupant l'eau bleue Lie
@@ -3815,18 +3225,15 @@ Foi pleine mer aussi calme que le port. Le travail de l'hélice fa
 et l'eau bleue, variait les dessins de son ombre sur la in
 mer ensoleillée, où l'écume laissait une grande route :
 
-+ blanche. ('HARSERE
 | 2 Quittant le relent âcre du port vaseux, on aspirait, 0
 ne: hors de l'étreinte des jetées, l'haleine pure de la mer Ke
 fraîche. L'homme de quart retiraità l'avant le bastingage er
 de toile qui abrite, par gros temps, des paquets de mer. Aer
 
 « Le vapeur dépassa des barques de pêche : « Cal. 4
-243 » et « Cal. 219 », puis la drague, la « Suceuse », Si
 “reportant à la mer le sable que la mer apportait au port, 2.
 Fa nr Le « mate » descendu par l'échelle de fer dans le
 F | carré de l'équipage, ramena deux matelots qui jouaient j
-Fr “4 g 103 ne
 
 la peine des hommes Re
 aux cartes une bouteille de « Bass' stout ». Le plus |
@@ -3842,7 +3249,6 @@ noires du Minck. On l'enduisait, chaque année, au beau ;
 temps, de couleur fraîche. La jeunesse de sa teinte Fe
 accusait la noirceur des autres ‘édifices dominant à |
 la ville : l'ancien phare et le beffroi bâti en pelote |
-d'épingles. ; jh |
 Le cou des canons, tendu sur le talus vert des batte- J |
 ries de la côte, visait la mer. À |
 Entre l'eau et les cabines de la plage, l'éparpillement 1 |
@@ -3857,11 +3263,9 @@ laient. Sur la couleur grise du bordage de fer éclataient M |
 . les cicatrices rouges des retouches au minium. l.
 Deux poules d'eau semblaient des perles noïres sur M
 le satin bleu de Feau calme qu'elles trouèrent en plon- Mk
-geant. ‘4
 Les navires, nombreux à ce carrefour d'océans, des- M
 sinaient sur l'horizon la géométrie de leurs voilures ou u |
 leur paraphe de fumée. he |
-104 à
 
 | D VAN DE CHAMPAGNE } 0 104, On
 
@@ -3907,10 +3311,6 @@ blan c les pentes vertes. SUP
 
 an 1 eur badine de parade, la mesure de leur marche À AA
 
-étudiée. t A
-
-… « Public Bar », « Saloon Bar ». à PUR
-
 Ge grand peuple redoutait la soif. Presque toutes les ne
 
 petites maisons bâties en briques jaunes autour du A
@@ -3927,15 +3327,10 @@ Room » pancartée : ‘21 TON
 
 p « Salon de lecture pour marins de l'État et du Com 4 |
 
-merce. » 1 RENTE
-
-. TES : | 105 A He
-
 la peine des hommes PA à h: |
 Dans le « Cinque Port Bar », mieux achalandé, mais
 plus triste, on buvait en silence. |
 Chez le clergyman, on prenait soif en chantant des |
-cantiques. <
 La mélancolie des bars « Wines and Spirits » gran- »
 dissait à l'heure grise du jour mourant. |
 Un matelot du « H. M. $S. Valiant », souple dans le |
@@ -3945,23 +3340,17 @@ cachaient les vilaines dents. Une plume d'autruche |
 parait le trop grand chapeau épinglé sur ses beaux |
 cheveux. Les mains aux poches, elle de son manteau, |
 lui de sa culotte, ils entrèrent sans rien se dire dans le ; |
-« Cinque Port Saloon » « Ales and Stout ». | |
 Un grand policeman vêtu de bleu sombre, rôdait |
 silencieux sur ses semelles de caoutchouc. Il passait  W
 par-dessus le rideau des devantures sa bonne tête cas- |
 { quée de noir et enviait l'intérieur des bars où les matelots des malles belges, anglaises et françaises utilisaient 4]
 les pourboires de la traversée. Ses boutons de métal 4
-tiquetèrent aux carreaux. :
 Par le bâillement de la porte sortit un pot bien plein.
 Très vite l'homme le rendit vide et, grandi de bien- à
 être, continua, imposant, sa ronde silencieuse. 4
 On entendait les grues rouges dérouler leurs chaînes j
 au fond des panneaux du « Mzidstone ». Le chargement |
 des wagons pour Londres s'achevait. | |
-:%
-
-: SR : Î } A EN
-Eu
 
 K : Es livreurs de la firme W. N. Balcombe and Co.
 BL Vins et Spiritueux en gros, 10, Saint-Edward's
@@ -4001,13 +3390,10 @@ Y sins de Corinthe noirs piquaient de mouches la blan- |
 
 FA Les bars vernis, nickels et glaces, donnaient froid.
 
-ja ï 107
-
 la peine des hommes ‘a Ma |
 Sur les bancs d'impériale des omnibus placés face ala
 ô marche, les employés en route vers la cité marquaient, |
 ! par le faux-col et la pipe, la régularité de leur position be À |
-NU sociale. 2 RSS ÿ |
 Ÿ Porter du linge et ne pas manquer de tabac distinguait “4 |
 . du besogneux en redingote et chapeau melon, mais un. (à |
 foulard au cou et rien aux lèvres. L # À
@@ -4027,7 +3413,6 @@ de mariés pour la cathédrale de Saint-Paul, toute M
 proche. Mais le chapeau à plumes de la « lady »ne
 laissait aucune illusion ; il ne tenait plus à elle que par À
 un cheveu et lui tombait sur la figure, puis dans 1
-le dos. * ‘#4
 Tom Sheperd prit la file dans la cité. Une discipline
 plus sévère régularisait le trafic énorme. Les voitures
 ne se dépassaient pas. F
@@ -4036,24 +3421,20 @@ marquée au col des initiales L. C. (London City), …
 raflaient de leur pelle de bois ies ordures fumantes D:
 _ sur le pavé sec. Parmi les cabs vernis et les camions w
 de transport passait une voiture postale aux armoi- M
-108 ‘es 4
 |
 
-. HR ES VIN DE CHAMPAGNE , k
 | ries du « Royal Mail E. R. » peintes en jaune sur fond }
 | noir.
 Une musique de fifres siffla dans East Cheap et un
 b policeman déblayeur parut, précédant la garde mon-
 Ë tante de la tour de Londres.
 Hi Le tambour-major rouge écaillé d'or balançait sa
-“canne à boule d'argent devant deux rangs detambours .
 “ ettrois rangs de fifres jouant la marche des « Coldstream
 — Guards » en tuniques écarlates. Le bonnet à poil, noir,
 K ensanglanté d'un plumet pourpre, aggravait la figure -
 k. jeune des hommes coupée par la jugulaire massive en
 * cuivre fourbi. Les soldats rouges marchaïent raides, ÿ
 Fée grandis par la masse sombre de leur coiffure en poil de
-É _ bête.
 fi Un enfant de troupe, le bugle au flanc, portait, sur le PA
 bras gauche, le manteau de l'officier, qui tenait aussi
 _ droit qu'un cierge égouttant la cire chaude, la lame
@@ -4070,12 +3451,10 @@ d'enfer à remonter la pente pavée de grès, l'encombrement eflila la colonne. 
 « … sergent le répéta à voix rauque. L'effort de crier fit
 vaciller son bonnet à poil.
 ÿ Derrière la garde, Tom Sheperd arrivait dans Saint Ï
-; ke 109 Champagne. — 7
 
 l la peine des hommes du Hat ‘4
 
 __ Edward's lane (E. C.), la rue des boissons: « Wines |
-and Spirits ».. ITS
 W. N. Balcombe and Co. Ld. y occupait une maison À
 | à la façade ornée de colonnes de marbre noir veiné 34 |
 - de rose, soutenant les chapiteaux des fenêtres ogivales. 4 |
@@ -4084,18 +3463,13 @@ ouvragée, torse, noir et or. Aux deux angles du toit, = |
 des gargouilles ouvraient leurs gueules acharnées. n.
 Derrière les glaces à inscription d'émail blanc : 1 |
 
-« W. N. BazcomMBE AND Co Ln à
-AGENTS FOR HARTMANN AND Co REIMS CHAMPAGNE » M
 ê les ampoules électriques éteintes, au bout de leurs |
 longs fils, pendaient en araignées sur la tête penchée "…h
 des gens de bureau. ni |
 Cinq directeurs soignaient les intérêts de la firme |
 fondée au capital de cent cinquante mille livres sterling: |
-trois millions sept cent cinquante mille francs : Sn |
-W. N. Balcombe. H. W. Balcombe. W. F. Balcombe M}
 junior. T. P. Richards et J. Morton. à |
 Le nombre des dirigeants permettait à la maison un ; |
-rayonnement illimité. 4
 Cinq patrons voyageaient pour les affaires et y À |
 réussissaient mieux, par la force du gros intérêt person M
 nel, que des employés délégués par un directeur unique. 4 |
@@ -4106,9 +3480,7 @@ boire dans le monde entier. 5%
 L'office de Saint-Edward's lane voyait les grosses car- "MY
 gaisons venues par Anvers, les affrétements pour les M
 colonies britanniques et l'entreposage aux docks. Les
-110 4 |
 
-A AE A At
 | 14 VIN DE CHAMPAGNE F0
 | 4 caves ouvrant au ras du trottoir leur grille ouvragée ne Ne
 
@@ -4122,7 +3494,6 @@ les murs dans le bureau du « clerk » réceptionnant le ‘0
 ê a reine! » de je |
 …_ Les vins d'Australie signalaient leur infériorité pa 140 |
 pi des appels au sentiment national : « Support the Colo- R ' ne
-_nies ». | rare sl
 _ La banderole de Hartmann : RE 9
 | Bille Passe avant li meïllor » enrubannaït une bouteille Ds
 en émail d'or sur laque blanche. APE
@@ -4147,10 +3518,8 @@ dans l'intérieur de l'Angleterre. à “à
 la peine des hommes à OS |
 Tom Sheperd reprit la direction de Saint-Pacl, mais |
 il s'arrêta au « Tower bar », car il n'avait rien bu depuis |
-fi deux heures. “1h
 Un racoleur de grill-room invitait les passants à !|
 manger de la viande : |
-« Steack! Sir! » ? |
 Des concombres vert poli et des tomates luisantes
 séparaient dans la vitrine les tranches suifeuses de selle 7 #]
 de mouton et les coupes de bœuf rouges sur une den- L |
@@ -4161,14 +3530,10 @@ velure huilée fendue par une raie parfaite, à gauche. s
 Dans l'échancrure de leur smoking blanc luisait la M
 glace du plastron de chemise. Ils maniaient de leur ;
 poigne brusque la batterie des quatre leviers de pompe M
-à bière patinés d'usage : ; Ë
-Stout. Bitter. Mild. Ale. ML |
-‘Uh
 < — « Mild and bitter », demanda Tom Sheperd. Le 4
 barman mêla un jet de bière douce à un jet de bière. 4 |
 . amère et posa devant le livreur la chope de nickel où M
 s la mousse bombaiït, puis il asséna la monnaie à rendre « ' d'un coup de plat de main comme s'il tuait une
-mouche. 1 |
 Des tonnelets en verre tendaient leurs robinets d'étain M}
 où il tira du « scotch whisky » pour deux femmes his- "
 sées sur le perchoir des tabourets. . 4 |
@@ -4176,8 +3541,6 @@ Un portier de banque, raide encore de ses années de M
 loyal service, entra, dit : « Bitter », paya, but d'une 0
 ‘ seule haleine et partit, le torse bombé, en torchant du ‘4 |
 revers de la main sa moustache grise. 4 |
-
-iHiT 4 SRE VIN DE CHAMPAGNE à 1
 
 ie Les deux femmes, à voix très douce, redemandaient UE
 - du « scotch whisky ». À
@@ -4200,7 +3563,6 @@ Nr La porte des caves de W. N. Balcombe and Company
 …— diées aux cuisines proches du restaurant Gatti.
 …. Ils se portaient de préférence au bout du souterrain 3
 “vers « Crow Street » à cause des onze marches où l'on ‘
-Ex peut s'asseoir.
 
 Un homme à longue barbe grise vêtu d'une redingote
 
@@ -4248,10 +3610,7 @@ que le trafic d'alimentation. À
 Le déchargement du charbon marquait le trottoir re.
 d'une lèpre noire. h.
 | 114 à |
-F ‘12 |
 
-RE PEER ess es
-u# VIN DE CHAMPAGNE | CR Ne:
 AR ar les soupiraux des sous-sols, on voyait les vestes 1
 _ bla açhes des cuisiniers intercepter le flamboiïement des # ni À
 fourneaux. Un volant de machine électrique décrivait 1 pue
@@ -4259,8 +3618,6 @@ fourneaux. Un volant de machine électrique décrivait 1 pue
 mi er. Un mécanicien aux mains huileuses pencha sur Le 200
 1 la rue sa tête aux cheveux ras. f 210
 La puanteur des cuissons rencontrait le relent des nur.
-+ USER SP SUPT CEE
-_ machines lubrifiées. FA va
 M H Ce « côté service » des grands hôtels-usines nourris- ‘4 JL
 f sait le « côté client » sur Parliament Avenue (W.). VAT 4
 Entre les deux grands Gordon's Limited la façade
@@ -4282,7 +3639,6 @@ re le pourboire en secret et appréciaient d'un coup d'œil A 4
 de h Le piqueur en redingote rouge d'un drag soufflait Ë The
 b dans sa longue trompette de cuivre éclatant. L'attelage 1
 ME. à quatre chevaux claquait ses sabots sur le pavé de À ‘4
-AUbois. Vu
 “Le cocher à monocle salua les membres du dub
 _ debout en haut des six marches du perron fleuri. ho
 
@@ -4304,12 +3660,8 @@ La barbare Belgique fusillait encore des nègres, alors
 à ces répressions mesquines pour apaiser les popula
 ‘ tions par la prédication de l'Évangile, les exécutions à al
 la bouche du canon et l'usage exclusif des balles dum
-+ dum. 4 |
-$ ° 19
 |
-He |
 
-2 de , x $
 È huit heures et demie du soir, Lord Pimkins sortit
 "a À après-diner de son hôtel d'Albermarle Street (W.).
 
@@ -4346,7 +3698,6 @@ LU Il aimait parcourir lentement le marché aux femmes
 
 re de Piccadilly, une des plus grandes foires de la prosti- û
 La tution européenne. ND) LS
-F $ | 117 Champagne. — 7.
 
 la peine des hommes fr D |
 Aucune formalité ne filtrant l'admission des étrangers
@@ -4381,19 +3732,12 @@ bête où, autour de l'énorme pupille noire, des veinules ! |
 rouges cloisonnaient l'émail du blanc. nn ||
 Elle comprenait cela très bien; à son geste, un cab, à 1 |
 
-USA MEET Mo Rés ANA A UE
-
 | .} os VIN DE CHAMPAGNE $ Se ae
 | en quatre coups de sabots de son cheval docile appro
 : cha sur ses roues silencieuses. rs ? WA
 
-: HOMME A 4 ï RES.
 ‘4 Les Anglaises offraient leurs grands yeux candides, je el
-à te ï 4 A : N
 leur peau fine et leur corps maigre, vêtu à dessein RE a
-
-_ d'étoffes flottantes. te Me M
-Æ Eh » pit. LUE RO
 
 . Les Luxembourgeoïises, plus exactement moulées, LR
 
@@ -4407,20 +3751,14 @@ M Un vieux gentleman, vêtu, sur l'habit, d'une sorte de en
 … couverture de cheval verte, flottant jusqu'à ses souliers ARTE
 . vernis, suivit l'adroite enfant. ta 1
 … Les conducteurs d'omnibus criaient : MAL
-“_ « Oxford Street! Hampstead Road! King's Cross!
-_ King's Cross ! » 1 ‘it
 …_ Le yacarme des autobus empestant le pétrole cho- NE
 …quait dans la douceur de roulement des cabs. | Re
 Entre la foule du trottoir et le trafic de la chaussée, ) rose |
 un salutiste en casquette rouge brodée de l'inscriptiono à
-‘5 SALVATION ARMY … TRE
 EE élevait une pancarte tenue à ses épaules par deux pe Ne
 é montants de fer: s ne A
 …_ I donnait des prospectus et criait des phrases AREAMES
-Day qe Parnre
-. bibliques : Eur
 _  « Des morts à l'infini... : Pi) Ke
-RE  - LP: à
 
 | la peine des hommes à Fe |
 « On tombe sur les morts. | 4 |
@@ -4430,7 +3768,6 @@ Une très jolie anglaise, couverte d'un long manteau E |
 blanc galonné de soie bleue, fixa sur l'homme lugubre « 1
 le regard aîtirant de ses grands yeux verts. Un cha |
 peau de bleuets augmentait la lumière de ses cheveux |
-blonds. à
 A voix basse, par crainte des policemen, elle lui dit: À
 « F... le camp ! Sanglant cochon ! » à
 Une brune française, finement vêtue de noir, son Et
@@ -4450,14 +3787,11 @@ colère de Dieu : ;
 « J'en veux à toi. dit l'Éternel des armées... Je F.
 relèverai tes pans sur ton visage... Je montrerai ta
 nudité aux nations. et ta honte aux royaumes ! » 4
-: Lord Pimkins entrait au « Ye Old Prince Bar ». Miss
 Mabel causait à deux jeunes gens qui biberonnaient
 les païlles d'un « lemon squash ». Un col garçon pré- j
 sentait le visage frais de cette fine anglaise souriante,
 vêtue de noir. F à
-120 À
 
-nt vi __ VIN DFE CHAMPAGNE ie
 Ni pas un cheveu fou ne rompait la discipline de sa ÿ
 | coiffure châtain clair, variée par deux mèches blondes do
 * nouées en catogan avec un ruban bleu. at
@@ -4465,7 +3799,6 @@ Ni pas un cheveu fou ne rompait la discipline de sa ÿ
 ses mains blanches, sans bagues, mais une grosse JA
 | gourmette d'or au poignet gauche, et s'enquit, à
 
-_ douce :
 —_ « Vous êtes bien ? » LUE
 h L — « Tout à fait bien. Merci ! » dit Lord Pimkins, qui
 
@@ -4473,8 +3806,6 @@ h L — « Tout à fait bien. Merci ! » dit Lord Pimkins, qui
 
 du comptoir d'acajou, puis entreprit l'ascension d'un
 
-ë _ haut tabouret. |
-…_ Miss Mabel demandait : è }
 2 — « Que voulez-vous avoir ? » x
 . — « Champagne, doux ange. Voulez-vous avoir un F
 - verre avec moi ? »
@@ -4500,17 +3831,12 @@ be Elle but et demanda : pe
 
 ._ — « Et où irez-vous, ce soir ? »
 
-À ‘4 DT « Club, chérie. » À
-
-NUE |
-
 HE la peine des hommes nl De |
 Les deux jeunes gens réclamaient des pailles à sucer. | |
 Elle leur tendit les mains : tés LA
 : « Oh ! je demande votre pardon de vous laisser seuls. Û
 Je suis si occupée! » 0
 | L'un d'eux lui ayant baisé le poignet, elle l''appela: 4]
-— « Méchant garçon ! » D |
 Lord Pimkins offrait de nouveau : D |
 — « Voulez-vous avoir un verre avec moi ? » |
 nf — « Je veux. » Al
@@ -4526,21 +3852,15 @@ Dans ce bar de luxe où ne venaient que des palefre M
 niers et des lords, on estimait peu les boissons 4
 nationales : gin et bière. ‘2
 — « Voulez-vous avoir un verre avec moi ? » D |
-— « Oh ! certainement. » 4 | |
 Elle prit une bouteille de « Hartmann brut » et 4 |!
 retrouva le même joli cri de frayeur au départ du |
 bouchon, puis le ramassa : six pence. : Î
 Le gentleman crottin buvait le champagne comme F. |
 eau minérale avec du brandy, dans une chope à
-bière. n |
 | Elle lui versa le quart de la bouteille en demandant : "M$
 « Avez-vous le gagnant, cher ? » no!
 Il s'abreuva puis lui parla à l'oreille pendant qu'elle. 4 |
 le servait à nouveau. 1% |
-122 . | |
-: f ‘0m |
-
-Rx xls
 
 pe VIN DE CHAMPAGNE
 fi — COh ! merci, dit-elle; sept contre un ?.. Je mettrai
@@ -4555,8 +3875,6 @@ des tonnelets à robinet d'argent, des liqueurs, des
 “les grands mousseux dont les marques illusionnaient
 les Anglais sur la nationalité de la Champagne. Ils la
 croyaient annexée en 1870 à l'empire allemand : G.-H.
-…Müumm. Geldermann. Krug. Deutz. Luling. Goulden.
-; Ayala. Bollinger. Hartmann. Schuler.
 Un Moët et Chandon surprenait.
 La cloison de glace multipliait la lumière des appli-
 
@@ -4564,14 +3882,11 @@ ques. Lord Pimkins approcha du visage frais de Miss
 … Mabel sa figure un peu tirée.
 AU — « Quand viendrez-vous, douce fille ? » Il la tenait
 “d'un doigt croché dans la gourmette de son bras
-gauche.
 Les yeux agrandis, aussi clairs que la glace derrière
 À elle, elle le regarda avec une douceur d'enfant :
 « Oh ! Monsieur ! Je suis une respectable fille. Que
 dirait ma mère ? Elle aurait son cœur brisé ! »
 + — « Chamm.…. pègne ! » réclamait le gentleman
-
-crottin.
 
 — « Bonne nuit ! », dit Lord Pimkins.
 
@@ -4579,7 +3894,6 @@ Il traversa Piccadilly Circus.
 “ Assises sur les sept marches entourant la fontaine du
 . milieu de la place, les marchandes de fleurs offraient
 * des boutonnières.
-Ê
 
 ; la peine des hommes à Fr |
 Leur aspect navre. Elles font un peu le dernier des |
@@ -4592,7 +3906,6 @@ Les marchands de journaux : « Papers ! » étalaient M
 s sur la chaussée des affiches de grandes majuscules a |
 faciles à lire en marchant : ne ||
 « MEURTRE A HAMMERSMITH il
-LE MYSTÈRE DE DUBLIN » HA |
 Des hommes trop vieux pour s'agenouiller devant les ni ||
 souliers à cirer vendaient des allumettes. Tous ces
 pauvres gens semblaient, au centre de la place animée, 4 | |
@@ -4602,8 +3915,6 @@ sombre des cabs capitonnés de cuir luisant. 4 |
 Lord Pimkins leva sa canne. Un cocher répondit du. 4 |
 fouet et approcha, rapide. | ‘à |
 — « Où mylord ? » demanda-t-il, par la tabatière du M
-plafond. 4
-— « London Club. » ‘4
 Le cheval au poil luisant, martelant du sabot le 4 |
 pavage uni, enleva la voiture légère qui fila douce sur #
 ses roues larges et ses longs ressorts. 4
@@ -4611,15 +3922,10 @@ Dans une rue tranquille, des chanteurs de cantiques
 entouraient un missionnaire battant la mesure. Sa |
 femme touchait l'harmonium. Deux fortes lanternes « ||
 éclairaient le cercle des figures aux bouches grandes
-ouvertes. 14 |
 Lord Pimkins craignait Dieu. Il ôta son chapeau 4 |!
-: + 6
 
-a 1. |
 | VRDIIRES 1 4 VIN DE CHAMPAGNE j
-DELANE 7
 …haute-forme, prit sa figure dans sa main droite et se
-_ recueillit. 1
 14 Le cab borda le London Club. La fraîcheur de la ;
 … Tamise et le parfum des jardins du quai Victoria K
 n: régnaient dans Parliament Avenue. |
@@ -4633,13 +3939,11 @@ F4 “ On ne s'entendait pas marcher sur l'épaisseur du tapis '
 + pourpre, sans dessin.
  … Les tambours des portes à frein pneumatique retom-
 à 1 baient sans bruit. Saufles froissements de papier, silence ÿ \
-3 parfait.
 ; —_… Au-dessus des tables, deux lustres en bronze doré
 Fa tenaient, parmi leurs ornements compliqués, des grappes à
 — d'ampoules électriques dans des tulipes de cristal. à
 A un bout de la salle, sur la boiserie brune, le por4 trait encadré d'or du roi en uniforme militaire, grandeur
 naturelle. En vis-à-vis, la reine dans la robe du couron- sh)
-_ nement.
 Li “ Sur la haute cheminée en marbre veiné, le buste en
 “ bronze de Napoléon, seul.
 . Lord Pimkins cherchait quelqu'un. Les gens assis de
@@ -4649,7 +3953,6 @@ _ Ilvoyait, de ceux posés de dos, les deux mains et les
 à … marges du journal dépassant de chaque côté du dossier.
 n Il dut demander à l'huissier : ,
 j « Le révérend Humdrura ? »
-ANNEE He
 
 la peine des hommes D. WE 14]
 L'homme indiqua un New-York Herald, édition euro = |
@@ -4658,7 +3961,6 @@ Lord Pimkins reconnut le révérend à ses souliers bas; "#}
 à boucles d'acier, très épais de semelle. ‘#0 (1
 AT T1 alla lui toucher l'épaule. Le liseur posa son journal | |
 l grand ouvert par terre et suivit Lord Pimkins dans le MI}
-salon. 50
 : Le révérend John Humdrum, Membre de la Société de E. .
 Propagation de la Doctrine Chrétienne (M. S. P. C. K)4 |
 était creux de poitrine et long de figure. | S. |
@@ -4670,7 +3972,6 @@ au coin des lèvres. ; 0
 11 fixa les pieds de Lord Pimkins puis remonta lente. "}
 ment vers lui ses yeux tristes et le regarda de travers" S
 4, — « Je suis joyeux, dit-il, de vous voir. » “EU
-\ Angelo Bozzoni, maître d'hôtel, s'inclina, grimaçant |
 un sourire de ballerine : \ Ne
 « Sir John Elsbooth attend ces messieurs. » "7
 | Derrière un grand paravent à six panneaux de soie M
@@ -4683,15 +3984,11 @@ dit la main. Brusquement levé, il raidit sa haute taille 210 q
 | > comme pour voler quelque chose, laissa fondre ses 14
 doigts mous ‘dans la rude étreinte de Sir. John. |
 Grands amis. Sir John Elsbooth, marchand de thé,
-is A Pa 126 | D.
 
 AS Er PR EAN ROLE PEN AUS DENT EAN Br DAC RN CE jet RENE ee
 
 | NE MN LEE HP (TU M
-Li DD NN DE cHémmacne|  : }5 "0 AIN
 n conduisait ses affaires en Chine dans l'esprit de la. foi AU
-5. P FAQ PR D A Sr" oh
-MN ! ÿ : 00/2 0e POS
 
 A leur habitude des samedis, ces messieurs s'assirent 4
 
@@ -4703,11 +4000,7 @@ pages de parchemin, sous couverture verte, aux armes
 du London Club frappées en or. AN
 dr rente marques de champagne y énonçaient en six : AU
 
-ABRA TE ) A A z (ARE NS TENL :
-
 | pages leurs cuvées réservées, dry, brut, nature, extra Co
-'ERINEME f PTE 1
-superior, extra dry. mure x
 “— « Nous ne changerons pas, » dit le révérend se
 Humdrum. Ces messieurs exécraient la fantaisie qui |! : 144
 
@@ -4721,27 +4014,22 @@ Hartmann and Co Private Cuvee. Extra sec 19. vendue CE « y 1e
 ui2 francs 20 par bouteille, les grands hôtels allant 1,34
 jusqu'à doubler ce profit. NU
 
-. Angelo Bozzoni apportait deux champenoises émer- “ 4
 geant leurs têtes blondes de la blancheur de la glace NT
 pilée dans le seau de nickel. CT
 
 … Hanz Becker, garçon de salle, posait des coupes de. L ou
-LL ER 2 . . . # HONTE
 cristal ornées en taille de croix et d'olives. Le maître AA
 d l'hôtel tira de son gousset un couteau gravé en rouge AEY nu
 “sur nacre « Hartmann et Compagnie » et fabriqué à QU (1
 
-… W. N. Balcombe distribuait au personnel cosmopolite “ (is
 des grands hôtels et des clubs cet objet de poche alleLe brin de ficelle claqua sous la lame forte qui péné- “ %
 | tra un peu dans le liège coiffé d'or. Aidant du pouce le if "
 | RENTE 127 AE
-AE VF VA
 
 la peine des hommes nr 0 (1
 bouchon libéré, le maître d'hôtel en pointa le tir vers
 la porte de service. L'expansion du gaz retenu par la |
 température basse de la bouteille frappée réduisit ne |
-l'explosion. 4 |
 
 La mousse fine vivait dans la liberté des coupes, M |
 montait blanche, bruissait, fondait en un vin aussi pur 4)
@@ -4749,7 +4037,6 @@ que le cristal taillé. “4
 Angelo Bozzoni remit dans la glace la bouteille dont SA |
 le goulot bavait doucement, en escargot, et laissant |
 Hanz Becker en attente, alla surveiller le service d'au- n |
-tres garçons allemands. D |
 ; Lord Pimkins fit reculer la table et mit sa jambe
 droite sur sa jambe gauche. Ils burent.…. 4 |
 — « Connaissez-vous, dit Sir John Elsbooth, l'histoire 1 |
@@ -4759,7 +4046,6 @@ dans le palais d'un roi parce qu'on dit : Heureux M
 comme un roi. Mais ce roi tremblait que son fils ne ‘4 |
 le fit tuer pour prendre sa place. Il n'était pas heu- À 1!
 reux. Le fils du roi craignait que son père ne le fit M cr
-enfermer. fe A |
 « L'homme au spleen quitta le palais. Il rencontra 4
 l'évêque qui se désolait de vieillir sans passer cardinal, “4
 le lieutenant disait qu'à son âge il devait être au moins MM}
@@ -4771,12 +4057,6 @@ primer la police. RL a:
 « Il rencontra un mendiant et lui demanda, parce qu'il
 avait pris l'habitude de le demander à tout le monde : D: |
 — « Êtes-vous heureux? » ne |
-128 ji |
-ê 110 |
-
-1 ET IENR \
-
-‘À : #41 ne VIN DE CHAMPAGNE
 
 4 _ « Et le méndiant répondit :
 
@@ -4808,7 +4088,6 @@ is … Lord Pimkins plissa son visage pâle. Ils écoutaient ce
 4 — « Chérie, que manque-t-il à votre bonheur? »
 * « Elle dit:
 … — « de voudrais une bague comme celle de mon |
-. amie Maud. »
 
 …_  « Quand elle eut la bague, il demanda :
 
@@ -4825,19 +4104,15 @@ May, puis un bracelet comme celui de son amie Ethel,
 AD Sea la peine des hommes 41
 ||} MONA + ENMAESS
 AS Galles, puis une couronne comme celle de la reine d'An: M |
-4 gleterre. | 4 |
 ER « Et alors, il lui demanda : D |
 noue — « J'espère que vous êtes tout à fait heureuse, | il
-maintenant, chérie? » ‘1 |
 fu « Elle pleura et dit : ec ||
 — « Non. Je voudrais vendre mes bijoux et sauver | |
 des âmes comme la maréchale Booth. » : 1 |
 « Quand elle eut bien sauvé des âmes, il lui de- 4
-ë manda : ‘5 |
 — « Maintenant, chérie, votre bonheur est complet? » |
 | « Elle soupira : me
 :) — « Hélas! Je regrette la bague comme avait mon M
-f amie Maud. ».… Li
 De Sir John Elsbooth riait très fort. Ils burent. ‘3 1
 — « Temptation! Temptetcheunne! » prêcha le Révé-
 | | rend : ‘10 1!
@@ -4852,27 +4127,19 @@ a : Redressés sur leurs sièges, ils se saluèrent de 140
 Fa Tirant aussi un couteau de Solingen offert par Hart |
 mann, Karl Becker démuselait la seconde bouteilles M
 kr — « Aimeriez-vous avoir des toasts ? » demanda sir
-x John Elsbooth. ue |
 — « Toasts aux champignons feraient bien », dit Lord |
 NA  Pimkins. Ils burent. à ds
 Ve  —« Vous mettez de très fortes bottines », remarqua
-; 130 LS “4
-
-PUB ANTA TNT RSR NE DES MG ONE A
 
 ji ed MA I ERS (A NEO OT PAS GE AIT EEE Ne {4 DO
-
-._ _ VIN DE CHAMPAGNE AT CRE CEE
 
 | (He Le 1 De k | KA A HR A
 | Dauts DS . CET . o À
 | l  Joh n, au révérend qui éleva, pour mieux la montrer, 1
 sa semell e d'une épaisseur de planche : À à MBA
-1 ETS 1 É ! AE
 
 | — « Très confortable. Les chemins de la vie sont À RE PANITS
 | durs. Quand je portais en Chine la parole du Christ, je
-JET f jh 1 LArAR
 ch qussais des bottes en veau. Elles serrent la cheville, K in
 
 | mais cèdent à la marche, quand le pied gonfle. » Put
@@ -4881,26 +4148,20 @@ M aussi dans les Indes. » oi
 | … IL indiqua sa bottine vernie : PDU
 | « Très bon, pour aller dans Londres. Aussi doux (ia
 M qu'une pantoufle. » (A ART
-RE : . . PARLE LA
 “Angelo Bozzoni renouvelait les bouteilles. La légère Ro
 torsion de sa bouche inquiétante, aux lèvres épaisses, ND AE
 | ap paraissait bien dans sa figure rasée. Rien ne le dis- h pk
 | tingu ait d'un clubman que la flexibilité de son échine D
-ENR à F CRE
 et la serviette de service. FES
 “Il gagnait deux livres par semaine. Ses pourboires 1 2
-
-32 . Ê . . de
 
 dépassaient, en saison, cinquante francs par jour. NA
 M arié à une Anglaise, il possédait une maison à Ham- ï dr
 mersmith. Vingt-cinq garçons de salle, dont dix-neuf SUR :
 allemands, cinq anglais marchaient sous ses ordres. Un LE
 
-ïs 1e. s . . . . . ! L pr
 Ital en faisait sa police et convoitait sa place. Angelo ‘1
 Bozzoni ne favorisait pas ses nationaux. ESA
-! Sie ï
 M Au lieu de pratiquer le pas de parade dans un régi- je A8
 | n eni du kaiser, Hanz Becker préféra se priver de cette EN 1
 distraction en venant gagner sa vie à Londres et s'y . # 1
@@ -4909,7 +4170,6 @@ Ripréentai les toasts : un champignon pre posé ne e
 prune croûte au beurre doublée d'une mince feuille de PRE) |
 ard L assaisonnés au cayenne. pan
 “Ces messieurs mangeaient ces délicatesses sur des AR St
-Yan ji
 | assiettes à dessert de porcelaine blanche, au chiffre :'2
 | | ORAN À" 47A0S PAU
 
@@ -4944,127 +4204,61 @@ Hanz Becker alignaïit au bord du tapis les bouteilles …
 Lord Pimkins allongeant le bras pour prendre sam
 coupe, tomba court. Il croyait la table plus près. Hanz :
 Becker la rapprocha. 4
-132 4 |
 
-ARC ( ÿ F AAA HILL
-à 116 _ VIN DE CHAMPAGNE AE NE
 M M. Elsbooth, Humdrum et Pimkins ne s'amusaient in nl.
 | pas. Ils se soignaient. Ils éprouvaient l'horreur du ja
 pal see ndale de l'ivresse. Sir Elsbooth, grand marchand de HA
 St hé, subventionnait les ligues d'abstinence où le révé- Ne Fa
 | < re ad Humdrum portait la bonne parole et stigmatisait à ie
-sm. A 2 : . KE
 - linfamie des hommes désordonnés qui ne tiennent plus UE
 droit quand ils ont bu. Fe. kà
 … À la sixième bouteille, près de minuit, le monocle de ty
 Lord Pimkins tomba. Il ne put le replacer, malgré les RU
  allongements prodigieux de sa figure et le jeu de ses NAS
-MERS : LATIN
 . mâchoires mordant le vide. USE
 … —« Oh! vous avez perdu votre monocle, dit Sir John MOT
 
-+ Ciel
-k ee « Réellement ? » 2
-ee an Réellement, cher. » A
 Woo « Alors, nous devons aller, dit le révérend Hum- cn
-. drum. Garçon! Chapeaux! Cabs! » ÿ Ÿ
-744 " ne
-we AS Champagne. — S He
 
-ÉRTRIn ie A DL ASUTP ACTU ER AMEN ES RUN
 MNaaR Au Nl Wan (NA AA A He PAM LEE RAR AEE A « je AAA TER MAT Ne ne RNA he AS RU NO
-ARC: 4 L À 440 Ver
-< | TAC } 24 ES LEE ORNE
-NT \ | : VIe Sata
-(UE ' DA PAU AR VAE
-ANS ; ÿ ie Mt LE NT |
-st AN
-KE AN Re ‘4 |
 din He À NE ‘oi |
-nel ï LUE |
-EU + Nc E SES |
-(ni DO, |
-Nour \ à Na UNS |
-Vas qe ; 2 NL RONPIEN |
-SA ERP SES
-SULUTRE ere | UHR |
 | RANANNE  ROTAESSS
-4 AA NS GE f : |! Pate
 PANNE AATR et OS |
-AA ET ; Mn
 
-A AIN NES
-
-1 4 VY4É {ee |
 | INR
-LE ;
 “Il a été tiré de ce cahier treize exemplaires sur
  whatman ainsi distribués :
-0 ur
 premier exemplaire de souche, exemplaire du gérant; {
 +2 deuxième exemplaire de souche, exemplaire de l'ad_  ministrateur;
 4 troisième exemplaire de souche, exemplaire de l'im34 primeur ;
-si Vge « ; » 3
 dix exemplaires d'abonnement, numérotés de I à 10
-"ÈR “ È
-… exemplaires d'abonnement.
 Tous nos exemplaires sur whatman sont numérotés
-ETS « a A .
 “à la presse et imprimés au nom du souscripteur ; nos
 … tirages d'exemplaires sur œhatman sont rigoureusement limités au nombre d'abonnements à chaque in-
 ‘Stant souscrits; nous ne vendons point d'exemplaires
 sur whatman en dehors de l'abonnement; l'abonnement
 sur whatman à cette dixième série est de deux cents
 …_ francs pour tous pays.
-ve
 
-D:
 1 ÿ … Les Cahiers de la Quinzaine sont composés à la main.
 en caractères fin dix-huitième siècle (Didot) de la fonRE " " “ .
  derie Mayeur (Allainguillaume et compagnie succes-
 | seurs), 21, rue du Montparnasse, à Paris, sixième
-arrondissement.
-
-ALAN UE PU PO A A A PR ae nn AOROUTENEINNS
-TR A A
 
 PS et $ & RUE GS: Url |
 
-OPA RL ” HSE FE, US
-
-FAN DNS Ke * 5 MARS CE
 ais NS Le ENNNeR ES |
-0 “in ra NESARSE
-CRAN ES De |
-MEN AE . SpA
-NEO RENEE : PR ETATS )
-RENE RENTRER
-Re LUE M 4
 on RENE Nec RE (ae |
 
-NANTES it - { 1 7 NA CFA R
-PS RU ONCE 2 “4 VASTES ph
-RL EE HN ESS |
 RAR UT LA) pe Vi
-D | {US
-DA re TO LAN
-MRANTA y À Ÿ ï É. PAROEN Ne AT |
-SAN MATOS h = $ J VESTE |
-UM SAR) ÿ | LA ERREN
-‘A CSSS ve nn, |
 
-« 1 EN RNE HAS
 |  Pou * savoir ce que sont les Cahiers de la Quinzaine, fa
 | il suffit d'envoyer un mandat de trois francs cinquante Ha
 [Re d M. André Bourgeois, administrateur des cahiers, A4,
 M6, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième js:
 { arrondissement. On recevra en spécimens six cahiers ï
 [de la deuxième, de la troisième, de la quatrième, de la 8
-} « . ls A FL
 j cinquième, de la sixième, de la septième ou de la RPM
-huitième série. 1e
-
-Die 54
 
 Pour savoir ce qui a paru dans les cinq premières 53
 
@@ -5083,42 +4277,17 @@ MuuM. André Bourgeois, même adresse, le prix de l'abon-
 | nement; on recevra en retour les onze cahiers non
 | épuisés de cette neuvième série.
 
-TRE) à
 | _ Pour s'abonner à la dixième série des cahiers, qui Sn
 est la série en cours, envoyer en un mandat à M. André fe
 
 Bourgeois, même adresse, le prix de l'abonnement; on, fon
 M recevra les cahiers parus, et de quinzaine en quinzaine, 12
-k FEI . ALES « De) 6
 Muuà leur date, les cahiers à paraître de cette dixième és
 | we je Y:
 
-LOR ï Champagne. — 8.
-
-D NAN CAARSEEN
-SUPRSE Peu SNL TAUE \ 4 ARE? SNS RASene,.
-
-(US FES
-js Ann.
-APT +17 MORESES
 HO tk {13 et
-Se 9 À Me À
-
-RES AGE SES ORNE
-
-PRET ef Ste ar E |
-Se, Tee
-PR SE AS |
-LE 10e GRR LU ENTER |
-EE à MI É ù FANS
-
-eh TER #} Er AU
 
 | VA SRUMIN PAR LS 3 NES
-
-ot, QE EE \ - MR Le
-
-Re EAU & à 21 ANNEES
 
 | CAHI RS DE LA QUINZAINE, 8, rue de la Sorbonne, NA
 | rez de-cl aussée, Paris, cinquième arrondissement. IRON 4
@@ -5126,7 +4295,6 @@ Re EAU & à 21 ANNEES
 Ki suelles régulières et par des souscriptions extraordi- La th
 | “naires; la souscription re confère aucune autorité sur | Fit
 la rédaction ni sur l'administration; ces fonctions #4 LCA
-demeurent libres. EN
 | Nos Cahiers paraissent par séries; une série paraît Lx 4
 dans le temps d'une année scolaire, d'une année An
 | _ ouvrière, d'octobre-novembre à juin-juillet: l'abonne- Qu E
@@ -5137,7 +4305,6 @@ LA valable pour la série en cours. À
 | Prix de l'abonnement, pour chaque série annuelle LR
 pendant le cours de cette série : fr 12
 | 0 Paris, départements, Alsace-Lorraine, É ee
-À bonnement or- Algérie, Tunisie..... vingt francs ? ï
 | _ dinaire nesses | Autres pays de l'Union postale uni- - À
 | “JR verselle........ vingt-cinq francs d
 | Abonnement sur whatman........... deux cents francs AR {
@@ -5155,35 +4322,12 @@ M naturellement aux premières inscriptions; c'est ce nu- pen
 | nu n \éro du tirage réservé à chacun des souscripteurs; li #
 | l'édi ion sur whatman est strictement limitée au N Ta
 l ombre d'exemplaires à chaque instant souscrit. UN
-Î "PCR ar £ e MANE
 
 QU LR NN SRE AND € UN (PE LPS ESP AE VA ASE, 2 Ages SHARE PPT RSR er i
-SFR ASIA GET A NON NE pe LU FARINE A EN NS EUERS
-& RU. FRAC AE
-4 ï ANT SINNR
-W 4 NTIC
 tn te a NE
-x STE
-"44
-} y PAS |
-L 1 CAES |
-- FAR, |
-“LUE |
-Ë F3 |
-À ve Re |
-D |
-LL A NE |
-Ale |
-73, NN |
-si RL |
-+ à = : AISNE
-(3 ” 1 s Re LAS 40
-ÿ A 10 r af Th
-ANS É\ D SFA
 
 | ; our out changement d'adresse envoyer soixante 1
 | eT j imes, six timbres de dix centimes. “10
-a Ê
 | _ Nous engageons nos abonnés de certains pays à nous ii
 demander un abonnement recommandé ; tous les cahiers E
 de l'abonnement recommandé sont empaquetés à part et |
@@ -5194,7 +4338,6 @@ iv dation, pour tous pays, en sus, cinq francs. ,
 ‘4 _ Automatiquement et sans augmentation de prix les ï
 “exemplaires sur whatman sont tous recommandés et
 e voyés aux souscripteurs dans des enveloppes-sacs.
-ASE
 pv fabonnement ordinaire cesse de fonctionner pour 7
 ‘chaque série au plus tard le 31 décembre qui suit {
 Va chèvement de cette série ; ainsi jusqu'au 31 décembre
@@ -5204,7 +4347,6 @@ A partir du premier janvier qui suit l'achèvement |
 d' ne série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi à dater du premier :
 $ janvier 1909 la neuvième série incomplète se vendra
-vin ot-huit francs. 5
 | +0 À dresser à M. André Bourgeois, administrateur des |
 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris,
 Cinquième arrondissement, toute la correspondance ?
@@ -5219,49 +4361,24 @@ appe iennent aux cahiers, du seul fait de cette publi- |
 et sans autre signification ni contrat; les manuscrits 15
 non insérés ne sont pas rendus.
 
-PNR 3 ATP EIRE
-k vi < TS M0
-Peut RARE
-AN PV RCE
-KI MAUE ! 4 211: NAT
-MON EME ‘OT
-mi INR) 4 LD ENT ÿ
-
-A AU CS RE 20 I CN
 | We TES { À | £ # LR 10
 | TABLE DE CE CAHIER UE
 
-(250 te PEUR
 | “Yu x PAGES EU CAN
-FFC 5 . PAR CEE VU
 M Notre catalogue analytique sommaire............ 2 ra
 | pu MÊME AUTEUR aux Cahiers de la Quinzaine ..…. 5 RUE
-ARE À ait 9 AE O8 A fl
 | AAC) PACA:
 | Mine des hommes .......................... gun EE
-Mn 0e Champagne... ..................... ANR
 | se ai
 
-L y, 0e x LU
 | RE AE COCHON es e nent II sut
 |: 10 I. — A sept heures du soir, en juillet....... 13 UE
 
-‘FI ANS
-
-‘1 HI. — Ce même jour, Minouflet............. 4x RAA
 SN MP KR Harimann!:21.4/2/10.Ve Mmes je '
-MN NII: — Les wagons étiquetés................ 87 \
 | ‘HS Les livreurs de la firme.............. 107 PA
 
-f . . . 4 a
 | ‘108 A huït heures et demie du soir....... 117 tà
-TON PRE
-+ MONNIER # R Are
 
 | Il a été MA delcecahiers 4. ii UML, ones je
 | M7 0/mICéque sont... 10.000. 00187 | (A
 | Ms sontéditést .......!...!.. 1.114 NN
-Der À... rennes HAT
-
-TRUE RARE à
-HE ARS

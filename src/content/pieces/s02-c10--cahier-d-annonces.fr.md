@@ -7,13 +7,8 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 16854
 ---
-
 ## Cahier d'annonces
 
-*Charles Péguy*
-
-EURE 1f
-Ne PROCÈS-VERBAUX
 D. Mon cher Péguy
 Nous n'eussions jamais pensé à nous assembler pour
 condamner la Société nouvelle de librairie et d'édition.
@@ -23,21 +18,14 @@ assemblée générale de la même Société.
 . Georges Bellais, co-fondateur démissionnaire de
 la Société nouvelle
 Daniel Delafarge, ancien élève de l'École Normale Supérieure ; À
-Henri Delafarge, étudiant en droit
-Jules Isaac, licencié es lettres, démissionnaire
 de la Société nouvelle;
 René Lavaud, ancien élève de l'École Normale
-É Supérieure
-Edmond Marix, étudiant en droit
-André Poisson, licencié es lettres ;
 L Charles Tharaud
 Ernest Tharaud, ancien élève de l'École Normale
-“4 Supérieure.
 4 $ Je suis profondément heureux que des amis éprouvés
 garantissent ma défense. Ils me laissent ainsi le loisir
 de travailler. Nos abonnés trouveront annoncés dans ce
 cahier plusieurs moyens de travailler eflicacement. Nos
-- abonnés universitaires trouveront en particulier, page 5 ÿ
 Fe et suivantes, les éléments d'une action urgente. ” a+
 
 Depuis plus de deux semaines le duel atroce engagé
@@ -63,7 +51,6 @@ est lamentable que la plupart des allemanistes et des
 
 indépendants aient aussi longtemps mangé son pain et
 bu son champagne. Il est lamentable que vingt députés,
-trois cents délégués, neuf cents mandats soient aux
 mains de cet homme, dupes ou complices.
 Mais il est déplorable que la Petite République ait au
 moins commis une erreur de deux mille et des cents.
@@ -72,7 +59,6 @@ déplorable que l'on ait pu démontrer que toute l'instal-
 
 lation de ce journal reposait en définitive sur un commerce déloyal de paletots, sur une atroce exploitation
 du travail à domicile, sur une implacable application du
-sweating system.
 
 Ce duel est sans issue. Que M. Edwards ait ou n'ait pas
 quarante ou soixante millions, il est assez riche pour
@@ -92,7 +78,6 @@ e la Petite République. ,
 
 s Il est encore permis de supposer que Jaurès lit la
 
-LE CAT d IT) 74 OTESRRNER NOTES UP PENSE APT Le F4 TETE F
 Petite République. Il doit donc savoir comme cette campagne est grave. Elle disloque le parti socialiste officiel
 dans ses fondements économiques. Elle est sans aucun
 doute la plus grave atteinte que l'on ait jamais portée
@@ -107,10 +92,7 @@ complaisance, et la vérité pour l'unité factice, quand il ”
 abandonne la réalité des mœurs pour la vanité des
 phrases, quand il renie son idéal pour des manies politiques, il est inévitable que des empestements pour- M
 rissent les organes.
-Travaillons
 La révolution sociale sera morale, ou elle ne sera pas.
-
-POUR LES ÉTUDIANTS RUSSES
 
 Nous attirons instamment l'attention de nos amis
 universitaires sur la campagne universitaire commencée
@@ -137,8 +119,6 @@ d'hommes les plus éloignés figurent individuellement et
 les signatures sont purement universitaires.
 
 Pour les Étudiants Russes
-APPEL AUX ÉTUDIANTS FRANÇAIS
-- Camarades,
 Nous vous convions à venir témoigner à la fois votre
 sympathie pour les Étudiants Russes et votre attachement aux libertés universitaires.
 
@@ -147,7 +127,6 @@ d'Étudiants de Kiev ont été, monstruosité juridique,
 condamnés au service militaire par une commission
 spéciale où siégeaient côte à côte gendarmes et professeurs et envoyés dans des régiments. Les Étudiants
 de la Russie toute entière, indignés, se sont solidarisés avec leurs camarades et ont cessé de suivre les
-cours.
 C'est la question de la juridiction universitaire qui se
 trouve ainsi posée à l'état aigu. Les professeurs fran-
 çais, sans distinction d'opinion politique, s'accordent
@@ -162,32 +141,18 @@ purement universitaire qui est l'origine des troubles,
 nous avons le devoir d'affirmer notre sympathie pour
 nos camarades de Russie.
 
-APPEL AUX ÉTUDIANTS FRANÇAIS
 La Science est internationale, les Universités du
 monde entier sont solidaires, nous voulons envoyer
 aux Étudiants Russes le témoignage de notre admiration pour le courage avec lequel ils défendent les principes essentiels de tout enseignement supérieur.
 Camarades, faisant abstraction pour un moment de
 nos opinions politiques, unissons-nous pour exprimer
 aux Etudiants Russes notre unanime sentiment de
-fraternité. k
 MEETINCSALLE D'ARRAS, 3, rue d'Arras, le mercredi 27 mars
 à huit heures et demie du soir
-VOTE D'UNE ADRESSE AUX CAMARADES RUSSES
-LA CARTE D'ÉTUDIANT SERA RIGOUREUSEMENT EXIGÉE
 Il sera perçu 0 franc 25 pour les frais
-BELLEMÈRE (Droit), BENAZET (Médecine), Boucer
-(Lettres), BourGIN (Chartes), Bouysson (Médecine),
-. Crémru (Lettres), Dezmas (Médecine), E. Decmas
-(Chartes), DEesAGHErR (Droit), DesPerir (Institut
-Agronomique), DieuzaibEe (Médecine), FLEUROT
-(Médecine), GarzLArD (Droit), GAzANION (Droit),
-Gizarpoxt (Sciences), GoMPEL (Sciences), GOUFFIER
-(Droit), HARTMANN (P. C. N.), V. Herr (Sciences),
 Hesse (Lettres), Dantez Le Hire (Docteur en droit),
-JEAN Lonœuer (Droit), Lunpovic Marcxanp (Lettres),
 MariraIN (Sciences), EpGarp MiznauDp (Agrégé de
 philosophie), CHarLes PÉGuy (Lettres), DE LA PORTE
-(Lettres), RarmBAuzr (Hautes Etudes), MArG SANGNIER-LACHAUD (Droit), TERROINE (Sciences), TÉRY
 (Agrégé de philosophie), Wersxopr (Lettres).
 
 dixième cahier de la deuxième série “#
@@ -201,24 +166,20 @@ excepté, de deux heures à six heures, dans nos bureaux
 On n'a préparé aucun texte pour les maîtres. Les
 professeurs, maîtres de conférences, répétiteurs, chargés
 de cours, instituteurs qui veulent manifester leur soldarité aux étudiants russes écrivent des lettres personnelles à
-Monsieur Louis Lapicque
 aux soins de M. André Bourgeois,
 administrateur des cahiers,
 rue de la Sorbonne, au second
-Paris cinquième
 
 Is doivent spécifier s'ils autorisent ou non M. La- À
 picque à faire un usage public de leur lettre. Hi
 
 Ceux de nos abonnés qui ont à écrire à M. André
 Bourgeois n'ont qu'à introduire dans leur lettre une
-feuille adressée à M. Lapicque.
 
 Le comité d'initiative a préparé un texte pour les
 élèves, étudiants de toutes écoles et facultés. Des feuilles
 imprimées circulent pendant les cours et conférences et
 recueillent les signatures. Ces feuilles sont ainsi
-disposées
 En faveur des Étudiants russes (1)
 Ç Camarades des Universités Russes,
 ) C'est avec indignation que nous apprenons les mesures
@@ -241,26 +202,18 @@ la liberté des études et de la pensée. Mais recevez tout au
 moins notre encouragement fraternel ; soyez sûrs de l'admi- Ï
 ration et de l'ardente amitié des Etudiants de France.
 
-NOMS FACULTÉS NOMS FACULTÉS
-
 Î (1) Permanence, 16, rue de la Sorbonne, au second, de deux
 
 heures à six heures, tous les jours, excepté le dimanche.
 
-L.
-
 dixième cahier de la deuxième série Es
 Les étudiants qui veulent envoyer leur nom écrivent
-Monsieur Jacques Maritain
 aux soins de M. André Bourgeois,
 administrateur des cahiers,
 rue de la Sorbonne, au second
-Paris cinquième
 
 Adresser les souscriptions pour cette propagande
 
-spéciale
-Monsieur Coulon
 aux soins de M. André Bourgeois.
 Ceux de nos abonnés qui ont à écrire à M. André
 Bourgeois n'ont qu'à introduire dans leur lettre une
@@ -280,7 +233,6 @@ M. Lapicque a bien voulu nous donner par écrit des ”
 renseignements généraux. Il a remis à jour pour les
 cahiers un double feuillet que l'on avait fait circuler,
 imprimé, au premier moment. Voici la nouvelle version, plus complète, arrêtée au 24 mars
-LA CRISE DES UNIVERSITÉS RUSSES
 
 Les journaux nous ont apporté, il y a quelques semaines, des nouvelles vraiment étranges de l'Université de
 Kiev. A la suite de désordres universitaires, des centaines d'étudiants étaient condamnés au service miülitaire par une commission spéciale où siégeaient côte
@@ -305,16 +257,11 @@ qu'on les prenne à une source ou à une autre, ils sont
 toujours les mêmes ; seule varie la couleur sous laquelle
 ils sont présentés.
 
-“VAE
-
-Louis Lapicque Ei
-
 Les voici aussi objectivement que possible. On suivra
 facilement, j'espère, comment des événements minuscules ont entraîné le monde universitaire russe dans
 une grave et douloureuse crise dont nous ne pouvons
 encore prévoir l'issue.
 
-1. — LES TROUBLES DE KIEV
 Les étudiants de l'Université de Kiev ayant manifesté.
 contre un professeur qu'ils accusaient d'ignorance, ie Re
 général gouverneur de la ville intervint pour révoquer
@@ -341,9 +288,6 @@ universitaire, punition tout à fait anodine. Maïs comme:
 ils voulaient que l'on prit au sérieux l'objet de leur
 réunion et que leurs doléances parvinssent au recteur
 
-Nes
-
-AE LA CRISE DES UNIVERSITÉS RUSSES
 par une autre voie que par un rapport de police, les
 punis eurent recours à la tactique très employée en
 Russie sous le nom de résistance passive: ils ne se
@@ -365,7 +309,6 @@ continuèrent à attendre leur recteur. Ils avaient déjeuné
 d'un peu de pain et de charcuterie ; comme ils étouffaient dans la salle trop petite, aux doubles fenêtres
 clouées et calfeutrées, ils brisèrent quelques vitres et
 
-*_- continuèrent à attendre.
 Ce fut le chef de la gendarmerie, le général Novitzky,
 qui perdit le premier patience.
 
@@ -385,7 +328,6 @@ ordre est exécuté sans résistance.
 Le lendemain, les trois cent quatre-vingt-douze étudiants dont on avait ainsi constaté la présence étaient
 déférés à une commission mixte, convoquée spécialement, par le ministre de l'instruction publique (x).
 C'allait être la première application de l'oukase du
-juillet 1899.
 Voici, textuellement traduits, les articles 1 et 2 de cet
 oukase, intitulé : Règlement provisoire concernant le
 service militaire des élèves des écoles supérieures exclus
@@ -406,13 +348,10 @@ un conseil composé du curateur du district scolaire, président; des membres du
 du pouvoir disciplinaire ; des représentants des ministères
 (1) On m'a assuré que les professeurs de Kiev avaient demandé
 se réunir pour examiner l'affaire et que la permission leur avait été
-refusée, .
 
-à LA CRISE DES UNIVERSITÉS RUSSES
 Dès sa promulgation, les ministres de la guerre et de
 la justice firent, chacun en ce qui le concernait, les
 réserves les plus expresses sur la légalité de ce règle-
-ment.
 Quant à la nécessité de cette juridiction d'exception,
 voici sur quoi elle était établie.
 
@@ -438,9 +377,6 @@ plus sage comme la plus juste était une large indulgence.
 
 Mais les mesures étaient déjà prises indépendamment de ce rapport; l''oukase du 29 juillet avait été promulgué.
 
-Louis Lapicque
-Il, — LA RÉPRESSION
-
 Cet oukase n'avait pas encore été appliqué ; on le
 considérait généralement en Russie comme devant res- j
 ter à l'état d'épouvantail. Le Ministre de l'Instruction
@@ -452,7 +388,6 @@ membres de l'Université désignés pour en faire partie
 étaient le recteur et les quatre doyens de Kief; les”
 autres membres, outre le curateur, étaient le général de
 gendarmerie Novitzky, un procureur militaire et un
-procureur civil.
 
 Aux termes du rapport officiel : « La commission tint
 quinze séances du 11-24 décembre au 31 décembre- (
@@ -471,8 +406,6 @@ partagées : pour l'incorporation, le curateur du district scolaire, le
 recteur, deux doyens, et le général Novitzky ; contre, deux doyens,
 le procureur militaire et le procureur civil.
 
-LE | LA CRISE DES UNIVERSITÉS RUSSES
-
 1.4 _ Le ministre confirma le jugement pour les 2 étudiants de la première catégorie et les 5 étudiants de la
 deuxième ; de plus, pour 176 étudiants de la troisième ;
 les 209 autres eurent leur peine commuée. l
@@ -482,8 +415,6 @@ On dit que huit d'entre eux, à l'arrivée au régiment,
 Suivant le système de la résistance passive, ont refusé
 de prêter le serment de fidélité, ont été condamnés
 mort, puis leur peine aurait été commuée en celle des
-travaux forcés à perpétuité.
-LES RÉPERCUSSIONS (1)
 
 Ces condamnations eurent tout de suite un retentissement énorme. Non pas tant pour leur sévérité (en
 Russie, on a là-dessus un autre standard que nous) qu'à
@@ -512,8 +443,6 @@ une série de nouvelles fragmentaires, dans les journaux, déjà suffi- »  sant
 communication de lettres privées, tout à fait dignes de confiance,
 qui éclairent ces nouvelles.
 
-Eur
-Louis Lapicque .
 fermées officiellement, ou bien les amphithéâtres sont
 vides à l'heure des cours.
 Les manifestations paraissent dans les rues.
@@ -544,7 +473,6 @@ France elle-même, dont c'est l'honneur traditionnel de
 répondre à l'appel de la justice. Mais la France vaut
 
 ses te ANA ENES ÿ j
-LA CRISE DES UNIVERSITES RUSSES
 mieux que ce que sa presse et son gouvernement voudraient faire croire. ,
 L'Université française, du moins, a prouvé qu'elle a
 une conscience.
@@ -552,7 +480,6 @@ une conscience.
 J'ai été trouver les professeurs et les étudiants, je leur
 aiexposé ce qui se passe, et je leur ai demandé:
 Qu'est-ce que vous pensez de cette juridiction pour un
-enseignement supérieur ?
 
 Modéré, socialiste, ou conservateur — athée, catholique ou protestant — j'ai trouvé en chacun une même
 révolte, une même explosion de sympathie attristée
@@ -565,7 +492,6 @@ l'envoyer à leurs collègues de Russie,avec des nuances
 diverses, avec une réprobation exprimée ou implicite;
 tous ont dit :« Ce qui se passe en Russie est abominable ; une juridiction purement universitaire peut seule
 assurer à la fois l'ordre et la dignité nécessaires aux
-études. »
 
 Les étudiants n'ont pas été moins unanimes : le
 cercle catholique est indigné comme la Ligue démocratique des écoles. Les groupes n'ont pas pu se décider
@@ -577,14 +503,12 @@ ont subi loyalement la poussée de leur conscience.
 Marc Sangnier, du Sillon, à signé l'affiche commune
 côté de Ludovic Marchand, des Socialistes Révolutionnaires internationalistes. L'officielle et timorée Asso1 19
 
-Louis Lapicque
 ciation générale des étudiants avait, elle, courageusement, pour une fois, décidé en Comité de prendre part
 au meeting; ce n'est que devant le refus des groupes
 
 extrêmes qu'elle a renoncé à paraître en nom; le pré-
 sident et plusieurs membres de son comité ont signé.
 Mercredi, donc, tous les étudiants enverront leur
-encouragement aux camarades russes.
 
 L'ex-professeur Milukov, un historien qui compte
 Paris beaucoup d'amis, avait rédigé une supplique
@@ -603,7 +527,6 @@ je crois, organiser un meeting dans la cour même de
 l'Université.
 C'est donc une large manifestation universitaire qui
 se prépare et qui fera éclater la sympathie des intellectuels de l'Europe occidentale pour les émeutiers de
-Russie.
 
 Si violents que soient les mouvements là-bas, ce sont
 en effet des mouvements universitaires. Le gouverne-!
@@ -612,7 +535,6 @@ pas le reconnaître; il nie la pensée libre, parce qu'il la
 redoute. Pierre Karpovitch a tué d'un coup de revolver
 le ministre de l'instruction publique, ce Bogoliepov qui
 avait fait prendre en 1899 l'oukase qu'il a faitappliqueren
-SEE LA CRISE DES UNIVERSITÉS RUSSES
 janvier 1901. Le gouvernement russe fait dire que ce n'est
 pas un crime politique. Karpovitch, qui est un « petit
 bourgeois » etnullement un étudiant, sera déféré à la jus-
@@ -627,8 +549,6 @@ Voici ce qui me paraît caractériser la situation en
 Russie : à Moscou on a promené le drapeau rouge;
 sur le drapeau était écrit : Abolition de l''Oukase de
 
-Paris, 24 mars 1901
-Louis LAPICQUE,
 Maitre de conférences à la Faculté des Sciences
 de l'Université de Paris
 Nous lisons dans la Petite République datée du
@@ -655,15 +575,12 @@ mit à frapper avec une brutalité et une férocité sans
 chant de circuler, chargèrent sans sommation la
 masse compacte, pour la plupart de curieux, frappant avec leurs fouets et écrasant littéralement
 les malheureux qui tombaient sous la poussée des
-chevaux.
 
 Les policiers-saisissaient au hasard les gens qui
 leur tombaient sous la main, les frappaient sans
 merci, à coups de poing ou de sabre. Ceux du
 public, même des officiers en uniforme, qui imploraient la cessation du carnage, étaient brutalisés ou
 même arrêtés.
-
-À LA CRISE DES UNIVERSITÉS RUSSES
 
 Tels sont les faits dont plusieurs d'entre nous ont
 été les témoins oculaires. Des atrocités analogues
@@ -686,31 +603,21 @@ passe chez nous,
 
 Nous faisons appel à la presse du monde entier
 pour donner le plus de publicité possible à la constatation des faits lamentables dont nous avons été
-témoins.
 
-Nicoras ANNENSKY, publiciste; ALEXANDRE
 Bocpanovsxky, homme de lettres; ArYE BocDANOVITCH, S. et R. BRAGUINSKY, ALEXANDRE
-BraouD, VLADIMIR BERENSTAM, avocat;
 Marie WATSON, PIERRE WEINBERG, exprofesseur à l'Université de Pétersbourg; G.
 
-ÿ HALINE, PIERRE GAY, critique d'art; EUGÈNE
-
 dixième cahier de la deuxième série ‘4
-HANHEISER, VLADIMIR HESSENE, professeur
 l'Université de Pétersbourg; Gorky (ALExXIS
-PECHKOY); ALEXANDRE GouKovsky, Mic
 YERMOLAYEV, directeur de la revue la Vie;
-ALEXANDRE JIVANTCOHINE-PISSAREv, N. ]J.
 KaArEeyEv, professeur à l'Université de Pétersbourg; A. KamiINKA, A. Kazmyrov, A. KorNILOV, N. KoïTLIAREvVSKY, professeur d'histoire
 à l'Université de Pétersbourg ; VLaprmim
 Lessevrrcn, professeur de philosophie
 l'Université de Pétersbourg ; MARIE LETKOv,
 femme de lettres; D. Manixe-Sipirrak,
-Pauz Moxievsky, A. MErTvAGOo, NicoLas
 MixnaiLovsky, directeur de la revue
 Richesse de la Russie ; BeNEpicr MrAKOTINE, 1
 professeur d'histoire à l'Université de Pétersbourg ; N. MoGxiILANSKY, SERAPHINE PANTELEYEV, LONGUINE PANTELEYEV, GRÉGOIRE
-POTANINE, V. Possé, A. PETCHEKONOW, V.
 RosENBERG, N. ROUBAKINE, NADINE RouBAKINE, MARIE SLEPTZOV, A. YAROTZKY, professeur d'économie politique à l'Université de
 Pétersbourg ; P. LesHAFT, professeur d'anatomie à l'Université de Pétersbourg.
 
@@ -721,10 +628,8 @@ de Milukov, la nouvelle protestation russe, le compte
 rendu des réunions tenues au quartier.
 
 Vient de paraître à la librairie Armand Colin
-HISTOIRE POLITIQUE
 Origines et Développement
 
-A. AULARD
 Professeur à la Faculté des lettres de l'Université de Paris
 Ce livre est le premier en date qui mérite le nom
 d'histoire de la Révolution française. Extrait de l'avertissement
@@ -759,7 +664,6 @@ confié à un empereur. Mais la démocratie fut supprimée
 en 1795, par la constitution de l'an III, ou du moins
 altérée profondément par une combinaison du suffrage
 
-HISTOIRE POLITIQUE DE LA RÉVOLUTION FRANÇAISE
 universel et du suffrage censitaire. On demanda d'abord
 à tout le peuple d'abdiquer ses droits en faveur d'une
 classe, la classe bourgeoise, et ce régime bourgeois,
@@ -770,7 +674,6 @@ c'est la période du Consulat.
 Cette histoire de la démocratie et de la république
 
 pendant la Révolution se divise donc naturellement en
-quaire parties
 la république, c'est-à-dire la formation des partis démocratique et républicain sous le régime censitaire, sous
 la monarchie constitutionnelle
 
@@ -791,7 +694,6 @@ leurs querelles, les grands courants d'opinion, les révo-
 - la lutte de l'esprit nouveau contre l'esprit du passé, des
 —. forces nouvelles contre les forces de l'ancien régime, de
 
-Aulard
 l'esprit laïque contre l'esprit clérical, du principe rationnel de libre examen contre le principe catholique
 d'autorité, voilà surtout en quoi consista la vie politique
 de la France.
@@ -813,7 +715,6 @@ de la France, et, dans la Révolution, de ne parler que
 de la politique. — — Il n'est pas, en histoire, de livre
 qui se suffise à lui-même, qui suffise au lecteur. Le
 mien, comme les autres, suppose et exige d'autres lec-
-tures.
 Voilà comment j'ai choisi les faits. Voici dans quel
 ordre je les ai exposés.
 
@@ -824,8 +725,6 @@ qu'à exposer, à mesure qu'elles se rencontrent, les
 manifestations des idées démocratiques et républicaines, en les plaçant dans le cadre de la monarchie
 constitutionnelle et du régime bourgeois. Pour les trois
 
-HISTOIRE POLITIQUE DE LA RÉVOLUTION FRANÇAISE
-autres périodes, république démocratique, république
 bourgeoise, république plébiscitaire, il eût été difficile
 d'exposer à la fois, dans la même suite chronologique,
 les institutions, la lutte des partis, les vicissitudes de ‘
@@ -855,7 +754,6 @@ approfondir que quelques parties et n'aboutirait, dans
 ! lensemble, qu'à une esquisse superficielle, tracée de
 { seconde ou de troisième main. Pour l'histoire politique,
 
-Aulard Ut
 si on la réduit aux faits que j'ai choisis, il est possible di
 à un homme, en une vingtaine d'années, de lire les lois
 de la Révolution, les journaux influents, les correspondances, les délibérations, les discours, les procèsverbaux d'élection, la biographie des personnages qui
@@ -877,26 +775,15 @@ pas plaider une thèse. J'ai l'ambition que mon travail
 puisse être considéré comme un exemple d'application
 de la méthode historique à l'étude d'une époque défigurée par la passion et par la légende.
 Pris dans nos bureaux ou franco
-domicile à Paris 10 francs
 Franco à domicile en province ou à l'étranger
 Seul ou dans une commande inférieure
-à onze francs
 par exception, au lieu de 12 francs 10 francs
 Dans une commande égale ou supérieure
-à onze francs 10 francs
 Vient de paraître dans les éditions de la revue
-blanche, collection in 8° carré à 7 francs
-JOSEPH REINACH
-HISTOIRE
-L'AFFAIRE DREYFUS
-LE PROCÈS DE 1894
 Pris dans nos bureaux ou franco
-Re domicile à Paris 6 francs
 Franco à domicile en province ou à l'étranger
 Seul ou dans une commande inférieure
-à onze francs 7 francs
 Dans une commande égale ou supérieure
-à onze francs 6 francs
 Livre indispensable. Des gens bien informés assurent
 que les deux principaux intéressés ont eux-mêmes établi
 deux ou trois cents pages du livre. Table des matières
@@ -906,7 +793,6 @@ l'arrestation. le procès.
 à l'enquête. . la dégradation.
 la Libre Parole. la chute de Mercier.
 be. la capitulation de Mercier.
-- v linstruction. Appendice.
 
 dixième cahier de la deuxième série de
 Une bibliothèque monumentaire de l'affaire Dreyfus ji
@@ -920,7 +806,6 @@ sténographique in extenso. Un volume 2 francs; 5
 l'Affaire Dreyfus. — La revision du procès. Enquéte s
 de la Cour de cassation. Instruction de la Chambre cri- Fe
 minelle. Instruction des Chambres réunies. Pièces an-
-nexes. Deux gros volumes 7 francs; à
 l'Affaire Dreyfus. — La revision du procès. Débats
 de la Cour de cassation. Rapport de M. Ballot-Beaupré,
 conclusions de M. le procureur général Manau, mémoire ie
@@ -928,54 +813,31 @@ et plaidoirie de maître Mornard, arrêt de la cour (29,30
 et 31 mai, premier juin 1899). Compte rendu sténogra- i
 phique in extenso. Un gros volume 3 francs 50; ù
 l''Affaire Dreyfus. — Le procès de Rennes (7 août- di
-septembre 1899). Compte rendu sténographique in F3
-extenso. Trois gros volumes, ensemble 15 francs
 les Preuves, de l'ancien Jaurès 1 franc 50; k
 Histoire des Variations de l'État-Major, par quatre
-anciens dreyfusards 1 franc; 1
 Joseph Reinach. Histoire de l'affaire Dreyfus
-francs
 Les douze volumes, dans nos bureaux ou franco
-domicile, 40 francs.
 
 Vient de paraître à la Société nouvelle de librairie
 et d'édition, 17, rue Cujas, Paris
-COMPTE RENDU ANALYTIQUE OFFICIEL
-Cinquième congrès socialiste
-INTERNATIONAL
 
 Pris dans nos bureaux ou franco
-domicile à Paris 1 franc
 Franco à domicile en province ou à l'étranger :
 Seul ou dans une commande inférieure
-à onze francs 1 franc
 Dans une commande égale ou supérieure
-à onze francs 1 franc
 Ce compte rendu a d'autres qualités et rendra d'autres
 services que le compte rendu sténographique non officiel
 de la version française en préparation aux cahiers.
 
 Vient de paraître à la Société nouvelle de librairieet
-d'édition .
-DEUXIÈME CONGRÈS GÉNÉRAL
-DES .
-Organisations Socialistes
-FRANÇAISES me
-Compte rendu sténographique
-OFFICIEL
 . Pris dans nos bureaux ou franco à n
-domicile à Paris 2 francs 75 À
 Franco à domicile en province ou à l'étranger : -
 Seul ou dans une commande inférieure
-à onze francs 3 francs
 Dans une commande égale ou supérieure
-à onze francs 2 francs 75.
 Il est indispensable que les véritables militants aient
 ce livre. Ils y verront, sur une expérience déterminée,
 en quoi consiste l'unité formelle que l'on voulait nous
 faire.
-
-NOS ANNONCES
 
 Plusieurs désabonnés dédaignaient nos annonces,
 Nous annonçons les institutions où un honnête homme
@@ -1004,8 +866,6 @@ L'action des Journaux pour tous est moléculaire, en
 
 ce sens qu'elle attaque un par un les citoyens qu'on lui ,
 
-a signalés. 4.
-
 L'action des Journaux pour tous est d'éducation, en
 ce sens qu'elle fait lire aux personnes signalées des
 journaux et des publications qu'elles n'auraient pas
@@ -1020,7 +880,6 @@ des citoyens libres.
 Le seul défaut de l'œuvre n'est pas de sa faute. Les f
 journaux qu'elle envoie ne sont pas parfaits. Mais ils
 valent beaucoup mieux que les journaux qu'ils sup- : ù
-plantent.
 
 L'œuvre des Journaux pour tous présente l'occasion
 d'un exercice exact aux républicains sincères qui
@@ -1028,11 +887,8 @@ envoient les journaux. Dépenser régulièrement deux
 centimes une ou plusieurs fois par jour, copier régulièrement soi-même sur des bandes une ou plusieurs adresses
 par jour et mettre à la poste régulièrement constitue
 un traitement que l'on peut recommander contre la frivolité habituelle, contre la propension au bafouillage
-hâbleur.
 
 Nous reproduisons d'abord l'affiche récemment composée pour cette institution
-“ JOURNAUX POUR TOUS ”
-CITOYENS,
 
 VOUS SAVEZ TOUS que la Croix estdistribuée gratuitement tous les dimanches dans tous les villages
 Que Le Petit Journal est le seul journal de Paris qui
@@ -1040,7 +896,6 @@ soit mis en vente régulièrement dans toutes les communes de France
 Que ces deux feuilles se valent et que la lecture en
 est dangereuse et funeste parce qu'elles répandent
 partout des renseignements incomplets, erronés ou
-faux.
 
 VOUS DÉSIREZ TOUS que la presse républicaine
 pénètre enfin partout pour dissiper l'ignorance et l'erreur, pour instituer la libre discussion.
@@ -1061,12 +916,10 @@ TOUS”, 17, rue CUJAS (cinquième arrondissement). Il ,
 
 (1) Si des camarades de bonne volonté se voyaient forcés de renoncer à cette
 d légère dépense, qu'ils nous demandent des bandes toutes timbrées : nous les leur
-fournirons.
 
 M. Émile Boivin, l'infatigable secrétaire des Journaux
 pour tous, a bien voulu rédiger pour nous la notice que
 l'on va lire : SAENDES
-TOUS LES JOURNAUX POUR TOUS
 L'œuvre des Journaux pour tous est une œuvre dreyfu- »
 siste : elle a été entreprise au mois de mai 1809, alors.
 que M. Ballot-Beaupré préparait son rapport à la Cour .
@@ -1089,12 +942,10 @@ sonnes; elle donne la communication entre ceux qui
 veulent envoyer leurs journaux après lecture et ceux
 qui veulent ou peuvent lire autre chose que le Petit ÿ
 Journal et la Croix. Elle a donc deux clientèles qu'elle
-met en relation : ,
 A Paris et dans quelques villes de province, elle a
 recruté jusqu'ici 2.300 adhérents. Ces adhérents n'ont
 pas donné leur collaboration par complaisance ou par j
 
-CE ; TOUS LES JOURNAUX POUR TOUS
 _‘ enthousiasme momentané : ce sont des adhérents con__ vaincus et, sauf quelques rares exceptions, opiniâtres
 chaque jour ils font œuvre efficace de collaboration en
 écrivant une ou plusieurs bandes pour leur journal, en
@@ -1115,9 +966,7 @@ sont des instituteurs qui ont créé des associations amicales d'anciens élève
 rien à faire lire aux adhérents ainsi groupés. Il advient
 souvent que les journaux et les brochures envoyés à ces
 adresses passent dans tout le village. Que s'il y a
-(1) Avant-projet rédigé en avril 1899
 (2) Une lettre entre mille
-« Monsieur,
 « J'ai vu que vous envoyez des journaux gratuits pour tous. Si je
 vous écris, c'est que je ne suis pas riche et cependant je voudrais
 en lire pour savoir ce qui se es dans notre pays et ailleurs,
@@ -1128,7 +977,6 @@ d je suis un ouvrier journalier, et cependant j'aimerais à lire, — Pas
 autre chose à vous ge er le moment,
 … « Agréez donc mes salutations. »
 
-Émile Boivin
 parmi ces demandeurs des avares qui ne sollicitent
 l'envoi que parce qu'il sera gratuit, l'œuvre ne peutni
 ne veut le savoir : mieux vaut donner en vain que de bi
@@ -1150,7 +998,6 @@ presque toujours le journal est accepté ; de là à le lire
 il n'y a qu'un pas; quelquefois on réussit tout à fait : j
 nous avons reçu des lettres d'où il apparaissait que la s
 lecture des journaux républicains avait été une révé-
-lation.
 Autant que possible, l'œuvre engage ses collaborateurs à entrer en relations avec leurs correspondants
 c'est le meilleur moyen de rendre agréable et significa- à
 tive la tâche quotidienne. Elle y réussit très souvent
@@ -1159,8 +1006,6 @@ véritables entre des hommes qui sans elle ne se seraient
 jamais connus.
 Aux bureaux de l'Œuvre même on reçoit chaque jour
 un courrier intéressant, plein d'une sympathie sincère,
-
-LAN SENS
 
 te TOUS LES JOURNAUX POUR TOUS
 
@@ -1171,7 +1016,6 @@ redoute; un instituteur nous écrit de la lutte qu'il
 soutient contre le curé; si l'on vient à ne plus recevoir
 de journaux, on a tellement pris l'habitude qu'on
 réclame purement et simplement, sans fausse honte
-Monsieur,
 
 Ça m'étonne beaucoup de ne plus recevoir vos journaux
 voilà le dixième jour que j'en ai point reçu. Je ne comprends pas s'ils passent ailleurs ou si vous ne m'envoyez
@@ -1181,7 +1025,6 @@ voisins : tous mes camarades venaient me voir pour
 s'instruire sur vos journaux, et maintenant que j'en reçois
 plus, personne vient me voir.
 
-Actuellement, après vingt-deux mois d'existence,
 l'Œuvre compte environ 2.300 expéditeurs. Un très
 petit nombre de nos collaborateurs se fatiguent et
 renoncent. Plus de 7.000 personnes ont été ou sont
@@ -1189,14 +1032,10 @@ encore desservies : 2.000 au moins attendent leur tour.
 
 L'Œuvre a fait de très nombreuses distributions de
 livres ou de brochures, grâce à des donateurs
-exemplaires
 Tolstoi. . Les temps sont proches . . . .
 Déclaration des Droits de l'Homme, . . . .
 Environ 20.000 brochures de Bouglé, Duclaux, Reinach,
 Havet, André Léo, Yves Guyot, Le Pic, Baggio, Fournière,
-J.-B. Clément, Charbonnel, Dazet, Réveillère, Jacob, Gohier.
-
-Emile Boivin 17100 1O0TRANE
 
 Elle a pris des abonnements de propagande au “à
 Rappel, à la Paix, à la Fronde, à la Lanterne, au
@@ -1215,7 +1054,6 @@ lentement, régulièrement; elle a marché pas à pas.
 Nous avons plus de confiance dans cette méthode, — N:
 que les circonstances nous ont d'ailleurs imposée, —que
 dans un essor impétueux et sans lendemain.
-Émice Borvin
 La création du comité la Propagande socialiste est
 une application partielle du principe des Journaux pour
 tous. Le comité sera collaborateur des Journaux pour
@@ -1226,8 +1064,6 @@ d'action de chacune des deux œuvres à l'égard de
 l'autre, et leur complète solidarité. F À
 Nous reproduisons d'après les journaux le programme ‘
 de la Propagande socialiste. k
-LA PROPAGANDE SOCIALISTE
-ENVOI DE BROCHURES
 Il importe de faire connaître les principes et la doctrine
 du socialisme, au moment où la lutte économique devient de
 plus en plus äâpre, et où le socialisme grandissant, s'il ne
@@ -1235,7 +1071,6 @@ peut plus être nié, est calomnié. Il importe, avant tout, de
 les propager là où le Parti n'a pas d'adhérents, et on doiït
 dire qu'il n'y a pas moins de vingt départements qui, aux
 dernières élections législatives, n'ont pas rallié mille voïx
-socialistes.
 
 Voilà pourquoi un certain nombre de socialistes, ouvriers,
 étudiants, employés, se sont réunis, sans distinction d'organisation, et ont créé le comité « la Propagande socialiste », qui enverra des brochures de propagande dans toute
@@ -1308,11 +1143,9 @@ de fabrique trop fine qui ont besoin de l'amitié de ce quiles
 entoure. Il mourut de chagrin le »5 octobre 1900, âgé de
 trente et un ans.
 Un ami nous avait communiqué cette annonce
-SOCIÉTÉ DES VISITEURS
 
 rue de Lille
 Autorisée par Arrêtés du Préfet de Police en date des 19 février 1896 et 11 mars 1898
-PRÉSIDENT D'HONNEUR
 M. SULLY - PRUDHOMME, de l'Académie Française
 
 But. — L'objet de la Société est de préserver de la
@@ -1343,9 +1176,6 @@ adoptées après enquête, ils apportent à chacune d'elles
 l'appui moral ou matériel reconnu le plus efficace, sans
 se cantonner dans un mode unique d'assistance : pla-
 
-L
-
-M DRE
 dixième cahier de la deuxième série
 cement, avances d'argent, dons de vêtements, recom- ‘1
 mandations aux œuvres spéciales et aux diverses administrations, etc. Taie
@@ -1356,43 +1186,25 @@ accordé en vue d'un besoïn déterminé, et remboursable
 par acomptes. ‘2
 Les Visiteurs se réunissent en groupes de quartiers; “4
 un bureau central relie les groupes et gère les services
-généraux.
 Situation et résultats. — 1896-1900 : La Société
-comprenait : ‘#
-Groupes. — Cinq.
-Services généraux. — Vestiaire.
 Caisse de prêts gratuits.
-Bulletin périodique.
 Ù Placement. De
-Renseignements médicaux,
-juridiques, professionnels.
-Budget. — Année 1806 : 7.030 francs. ne
 Familles adoptées depuis l'origine, . . . .
-— relevées  — — AMEL ON SRE
-— reconnues non relevables . . . .
 Remboursements des prêts en 1899 : 1.234 fr.
 
-RE SOCIÉTÉ DES VISITEURS
-STATUTS ï
-APPROUVÉS PAR ARRÊTÉ EN DATE DU II MARS 1898
--_ TITRE PRÉLIMINAIRE
 ARTICLE PREMIER. — La Société a pour but de venir en
 aide à des familles qui, se trouvant dans l'impossibilité momentanée de subvenir à leurs besoins, sont reconnues susceptibles d'échapper, grâce à un appui temporaire, à la
-misère définitive.
 ARTICLE 2. — La Société fait appel à toutes les bonnes
 volontés. Elle se tient en dehors de toutes questions et de
 toutes opinions politiques ou religieuses.
 ARTICLE 3. — La Société se compose de membres d'hon-
 neur, de membres actifs ou visiteurs, de membres bienfaiteurs.
-TITRE I
-Fonctionnement
 ARTICLE 4. — Le fonctionnement de la Société repose
 essentiellement sur l'initiative et sur l'activité des Visiteurs.
 Chaque Visiteur se tient en relations amicales et suivies
 avec la famille qui lui est confiée ; il la voit à domicile, se
 rend compte de ses besoins et lui prête :
 1° Un appui moral, sous forme de conseils, encouragements, renseignements, démarches et recommandations,
-notamment auprès d'autres Sociétés ; .
 2° Un appui matériel, en lui procurant des ressources et
 du travail, et en provoquant en sa faveur des avances d'argent.
 Il est aidé dans sa tâche par le Groupe dont il fait partie,
@@ -1431,17 +1243,14 @@ d'un Groupe et membre du Bureau de la Société. ‘5
 Nul ne peut faire partie de ce Bureau s'il n'est Français, “2 j
 
 majeur, et s'il ne jouit de ses droits civiques, civils et de
-famille.
 ARTICLE 9. — Le Bureau de la Société, avec l'aide d'ad- “l
 joints choisis par lui, organise et dirige un certain nombre
 de services généraux mis à la disposition de tous les Visi- nn
 teurs en faveur des familles admises et qui sont notam- ‘4
 
-ment : « 23
 Un service de relations avec les institutions d'assistance
 Un service médical ; Me
 Un service de renseignements pratiques. 4 v:
-TITRE II QUAS
 
 Ressources de la Société ps
 ARTICLE 10. — Les ressources de la Société sont : (Lu
@@ -1450,7 +1259,6 @@ ARTICLE 10. — Les ressources de la Société sont : (Lu
 i SOCIÉTÉ DES VISITEURS » Les souscriptions des Bienfaiteurs
 3° Les subventions, dons et affectations spéciales
 4° Le produit des ressources créées à titre exceptionnel
-(loteries, quêtes, etc.)
 
 ARTICLE 11. — Les Visiteurs fixent eux-mêmes l'importance de leurs cotisations. Ils versent au moins 2 francs
 par an.
@@ -1464,7 +1272,6 @@ qu'elles soient, ou à lui rendre des services équivalents.
 ARTICLE 13. — Peuvent recevoir le titre de Dames patronnesses les Dames qui prêtent leur concours à la Société
 pour les quêtes, loteries, ventes de charité, etc.
 
-TITRE II
 Assemblée générale. — Revision des Statuts
 
 ARTICLE 14. — L'assemblée générale des membres de la
@@ -1476,9 +1283,6 @@ ceux de l'exercice courant.
 ARTICLE 15. — Les statuts sont votés par l'Assemblée gé-
 nérale. Ils ne peuvent être modifiés que sur la proposition
 du Comité central, ou du dixième des membres de la Société.
-
-TITRE IV
-Dispositions générales
 
 ARTICLE 16. — Les mineurs ne peuvent faire partie de la
 Société sans l'assentiment de leurs parents.
@@ -1503,12 +1307,10 @@ Il se tient au siège social tous les jours, de dix heures & M
 midi et de deux heures à sept heures, à la disposition des
 personnes qui seraient désireuses d'obtenir des renseigne
 ments oraux sur le fonctionnement de la Société. ne
-ÿ À VER
 Un visiteur a bien voulu rédiger pour nous la notice
 que l'on va lire. Il nous a promis pour plus tard de Si
 nouveaux renseignements et un bref historique.
 
-LA SOCIÉTÉ DES VISITEURS
 Sous la présidence de M. Louis Havet, professeur au
 Collège de France, la société des visiteurs a tenu le
 dimanche 10 février son assemblée générale.
@@ -1535,7 +1337,6 @@ aumônes des œuvres cléricales, à la déchéance défini-
 
 tive. Elle veut conserver à l'homme sa: dignité d'homme
 
-André Voisin
 et avant qu'il ne soit tombé elle l'aide comme un ami 4 3
 aide son ami. Ne.
 Mais, dira-t-on : pourquoi ajouter une œuvre nouvelle
@@ -1568,7 +1369,6 @@ malheureux. Mais ils s'y donnèrent beaucoup de peine,
 car ils avaient rarement dans leurs relations la relation “À y
 utile. Alors ils se syndiquèrent, et quand ils eurent mis
 leurs relations en commun ils réussirent quelquefois ; F
-À LA SOCIÉTÉ DES VISITEURS
 et quand au lieu de dix ils furent cent, ils furent deux
 cents, ils réussirent presque toujours. Leur tâche est
 donc analogue à celle des syndicats et des coopératives. Ils s'efforcent de tirer, grâce à l'association, le
@@ -1604,7 +1404,6 @@ le giron des Églises ; certes, la Société des Visiteurs
 peut se vanter d'avoir conservé à la République bien
 des jeunes gens qui jadis s'en fussent détournés faute
 de pouvoir dépenser leur sensibilité dans une œuvre
-républicaine. ‘ie
 Mais elle fait mieux que de les conserver à la Républi- M
 que. Beaucoup en arrivant à la Société des Visiteurs
 croient à la souveraine efficacité de la philantropie. Ils
@@ -1626,18 +1425,14 @@ la Société des. Visiteurs ; vous y trouverez le moyen
 d'aider vos amis malheureux; envoyez-nous surtout
 ceux de vos amis que vous n'aurez pu convaincre par fe:
 vos plus habiles arguments: Nous en ferons des … M
-ANDRÉ VolsiN\. ?
 
 Le Mouvement Socialiste
-REVUE BI-MENSUELLE INTERNATIONALE
 Paraissant le premier et le 15 de chaque mois Ÿ
-FRANCE : Paris, 17, rue Cujas. — Téléphone : 801.04 à
 BELGIQUE : Bruxelles, 14, rue du Béguinage
 Le Mouvement Socialiste paraît deux fois par mois,
 en une forte livraison de 64 pages. Il est avant tout une
 revue concrète et d'actualité, indispensable à tous les
 militants socialistes, qui peuvent y trouver les renseirue d'ordre théorique et pratique nécessaires
-a lutte quotidienne.
 Le Mouvement Socialiste publie : 1° des articles
 d'exposition et de discussion théoriques, et des études
 sur l'évolution et la constitution du socialisme dans les
@@ -1655,117 +1450,29 @@ compte rendu, succinct mais suflisamment complet, des
 livres et des revues de France et de l'étranger.
 Le prix minime du Mouvement le rend accessible
 toutes les bourses, et il se recommande aussi par son
-format commode.
 Pour faciliter la propagande, l'Administration fait de
 notables réductions aux groupes ouvriers qui s'enpre à prendre régulièrement un nombre déterminé
-‘exemplaires.
-PRIX DE L'ABONNEMENT
 Envoyer un mandat postal à la Société Nouvelle de Librairie et d'Édition,
-rue Cujas, Paris. y
 
-DIRECTION - ADMINISTRATION - REDACTION
-DIRECTION
-HUBERT LAGARDELLE !
 Secrétaire de la Direction: Émile
-ADMINISTRATION
 Société nouvelle de Librairie et d'Édition De
-PARIS — 17, rue Cujas
-RÉDACTION
-(FRANCE — BELGIQUE) “2
-COMITÉ POUR LA FRANCE : ‘1 4
-Paul FAUCONNET, Georges FAUQUET, Marcel LANDRIEU
-Philippe LANDRIEU D
-Marcel MAUSS, Louis RÉVELIN, J. RIVIÈRE f
 Secrétaire de rédaction : Jean LONGUET
-COMITÉ POUR L4 BELGIQUE : P 193 à
-Charles GHEUDE, Max HALLET, Edmond HASEN ù
-Émile VANDERVELDE ! “à
-Secrétaire : Gaston VANDERMEEREN ES À
-CORRESPONDANTS POUR LES AUTRES PAYS : D
-Adolf BRAUN (Nuremberg) cago) EU
-Angleterre : Mary MACPHERSON; Finlande : J. DECK (Helsingfors) RAS À
-H. QUELCH (Londres) Hollande : W.-H. VLIEGEN (Ams- ER:
-Autriche : Rudolf HILFERDING:; terdam) 750
-Léon SZÉMÉRÉ (Vienne) Italie : A. SCHIAVI (Rome) RUE
-Danemark: Nina BANG (Copenha- Russie : NIKTO ER k s
-gue) Serbie : POPOVITCH (Belgrade) m2
-Espagne:PabloIGLESIAS(Madrid) | Suisse : Otto LANG (Zurich) ) 5) }.
 
-PRINCIPAUX COLLABORATEURS
-MOUVEMENT SOCIALISTE
 depuis sa Fondation
 
-FRANCE. — Max Albert (Paris). — E. Alibert (Albi). —
 René Arot (la Martinique). — Docteur V. Augagneur
-(Lyon). — Henry Bauer (Paris). — Edouard Berth (Lille). —
-Th. Bock (Suresnes). — Marie Bonnevial (Paris). — Joseph
-Boucher (Paris). — Hubert Bourgin (Paris). — E. Briat
-(Paris). — Paul Brousse (Paris). — Charles Brunellière
-(Nantes). — Emile Buré (Dreux). — F. Chabrouillaud.
-(Roubaix).— Victor Charbonnel (Paris).— Maurice Charnay
-(Paris). — C. Cornelissen (Paris). — P. Coupat (Paris). —
-V. Dalle (Paris). — Léon Deshairs (Paris). — Paul Dramas
-(Paris). — Paul Fauconnet (Paris). — Docteur Georges
-Fauquet [Louis Bosquet] (Paris). — Anatole France (Paris).
-— Henri Ghesquière (Lille). — Lucien Graux (Paris). —
-Eugène Guérard (Paris). — Xavier Guillemin (Paris). —
-A.-Ferdinand Hérold (Paris). — A. Hamelin (Paris). —
 H. Hanriot (Le Havre). — Jean Jaurès (Paris). — Hubert
-Lagardelle (Paris). — Georges Laporte (Paris). — Marcel
-Landrieu (Paris). — Philippe Landrieu (Paris). — Maurice
-Lauzel (Paris). — Marius-Ary Leblond (Paris). — Albert
-Lévy (Paris). — Jean Longuet (Paris). — A. Marpaux
-Dijon). — Is. Marx (Paris). — Maurice Magre (Paris). —
-Marcel Mauss (Paris). — Octave Mirbeau (Paris). — Bernard
 Monod (Paris). — Anatole de Monzie (Paris). — A. Morizet
-(Paris). — Marius Moutet (Lyon). — Charles Péguy (Paris).
 — Fernand Pelloutier (Bruyères-de-Sèvres). — Eugène Petit
 (Paris). — Francis de Pressensé (Paris). — Ponard (SaintClaude). — P. Poux (Paris). — Docteur Rappoport (Paris).
-— Louis Révelin (Paris). — Albert Richard (Paris). — Jules
-Rivière (Paris). — S. A. (Paris). — Anna Chapiré (Paris).
-— P. Salley (Paris), — Anthelme Simond (Lyon).— G. Som-
 
 dixième cahier de la deuxième série
 bart (Paris).— Georges Sorel (Boulogne-sur-Seine). — Sopgue j
-(Paris). — André Spire (Paris). — Ernest Tharaud (Paris).
-— Ivo van Vaerebeke (Roubaix). — Désiré Verhaeghe
-(Lille). — A. Verhaert (Paris). — Jean Vignaud (Paris).
-BELGIQUE. — A. Anseele (Gand). — Louis Bertrand
 (Bruxelles). — Louis de Brouckère (Bruxelles). — Auguste
-Dewinne (Bruxelles). — Emilio (Charleroi). — Max Hallet
-(Bruxelles). — Lalla Kufferath (Bruxelles). — A. Octors
 (Bruxelles). — Emile Vandervelde (La Hulpe). — Gaston a
-Vandermeeren (Bruxelles). — E. Vinck (Bruxelles).
-ALLEMAGNE. — August Bebel (Berlin). — Eduard
-Bernstein. — Adolf Braun (Nuremberg). — Karl Kautsky ra
-(Friedenau). — Wilhelm Liebknecht (Charlottenburg). — À
-Rosa Luxemburg (Friedenau). — Karl Meyer (Berlin). — ?
 Max Quark (Francfort-sur-le-Mein). — Paul Singer (Berlin).
-— A. Südekum(Nuremberg).— Georges Weill (Strasbourg).
-— Von Vollmar (Munich). pe.
-ANGLETERRE. — E. Belfort Bax (Londres).— R. Brandt me
-(Londres). — H. Quelch (Londres). — Mary Macpherson ‘4
-(Londres).
-AUTRICHE.— Docteur V. Adler (Vienne).— Docteur Ellen-
-bogen (Vienne). — R. Hilferding (Vienne). — Otto Pohl
 (Vienne). ne
-DANEMARK. — Nina Bang (Copenhague). — Borgbjerg.
-ESPAGNE. — Pablo Iglesias (Madrid). — P. Dinero
-(Madrid).
-ÉTATS-UNIS. — A.-M. Simons (Chicago).
-FINLANDE. — Jean Deck (Helsingfors).
-HOLLANDE. — H. Vliegen. — Troelstra (Amsterdam).
 ITALIE. — L. Bissolati (Rome). — Ettore Ciccotti (Milan).
-— Enrico Ferri (Rome). — A. Graziadei. — Antonio
-Labriola (Rome). — G. Pinardi. — Q. Nofri. — A. Schiavi
-(Rome).
-RUSSIE. — Professeur Issayev (Saint-Pétersbourg). —
-Nikto.
-SERBIE. — Popovitch. — P. Théodorov.
-SUISSE. — J. Goldstein (Zurich).
-.__ - PRINCIPAUX ARTICLES
-” , à PUBLIÉS PAR
-._ LE MOUVEMENT SOCIALISTE -
 Articles de théorie ou de tactique
 ADLER : Théorie et tactique d'après Bernstein. — BELFORT
 À Bax : Bernstein et la théorie socialiste de l'histoire. —
@@ -1790,7 +1497,6 @@ Marx : La Commune. —Marcez Mauss : L'action socialiste.
 VAXDERVELDE : La décadence de la propriété personnelle.
 Histoire et organisation des partis socialistes
 Enquête sur l'organisation intérieure des partis socialistes
-uniliés
 Braux. — Le parti socialiste allemand.
 BissozATI. — Le parti socialiste italien,
 IGzesras. — Le parti socialiste espagnol.
@@ -1811,7 +1517,6 @@ CorneLissex : Le socialisme en Hollande (réponse à Vliegen).…
 LaLzLa KurreRATH : L'Angleterre et le socialisme. —
 L'unité du parti ouvrier anglais. — QueLcu : L'organisation ]
 unitaire du socialisme anglais. — A propos de l'unité du
-parti ouvrier anglais.
 
 XAvIER DE CARVALHO : Le socialisme au Brésil.
 
@@ -1846,12 +1551,9 @@ Jean Deck : La situation en Finlande. — Issayey « Les
 finances russes. — PABLo IGzesras : Les élections législatives
 en Espagne. — Marcez Mauss : La guerre du Transvaal.
 
-PA ED LE MOUVEMENT SOCIALISTE
 . — FRANCIS DE PRESSENSÉ : L'Angleterre et le Transvaal. —
 - Supexum: La justice de classe en Allemagne. — PoPoviTcx
 Situation économique de la Serbie. — Rivière : Les Trusts
-en Amérique.
-Législation ouvrière
 
 Max ALBERT : L'Inspection du travail en France. —
 ADpozpx BRAUN : L'état et l'évolution de la législation
@@ -1866,8 +1568,6 @@ en Belgique. — Les conseils du travail en France. — MARIUS
 Mourter : La réforme de la loi sur les syndicats : le projet
 Waldeck-Rousseau-Millerand.— Rivière : La législation du
 travail en Australie. — L'industrie à domicile.
-
-Mouvement syndical. — Grèves, etc.
 
 RENÉ AROT : A la Martinique. — Nina BaAwG : Lockout en
 Danemark. — La fin du lockout danois. — Brrar : La
@@ -1898,7 +1598,6 @@ Rozpess : Les grèves du Creusot et de Montceau-les-Mines:
 — VAN VAERBBERE : La grève de Saint-Amand. — H. Ver:
 HAERT : La fédération des ouvriers gantiers et ses congrès.
 
-Mouvement coopératif
 Émize Aumerr : La verrerie ouvrière d'Albi. — ANSRELE
 La coopération et le socialisme. — Bocx : La coopérative
 « l''Abeïlle suresnoiïise ». — DEewinne : La coopération en
@@ -1909,37 +1608,30 @@ Socialisme et militarisme
 BzpeL : Le militarisme et le socialisme. — PAUL BROUSSE
 Le désarmement. — EnGeLs : La puissance militaire de la
 Russie. — Pauz Fauconwer : La réforme militaire. — GaAsTON VANDERMEEREN : La propagande antimilitariste en Belgique.
-Questions agraires
 BRuNELLIÈRE : L'agriculture dans l'ouest de la France. —
 EnceLs : Critique du programme agraire du P. O0. F:="
 Huserr LAGARDELLE : Le programme agraire du P.O:F:
 jugé par le P. O.F. lui-même. — VANDERVELDE : Influence
 des villes sur les campagnes : le Limbourg et Anvers, la
 province de Liège. — Les villes tentaculaires. — Le recensement agricole en Belgique. — VLmGEn : La question
-agraire en Hollande.
 
-LE MOUVEMENT SOCIALISTE
-Socialisme municipal
 CraBrouIzLAUD : L'œuvre de la municipalité socialiste de
 Roubaix. — Maurice CHARNAY : L'action socialiste au conseil municipal de Paris. — Le gaz à Paris. — GHESQUIÈRE
 La municipalité de Lille. — HuBerT LAGARDELLE : Les élections municipales et le parti socialiste. — MARPAUx
 L'œuvre de la municipalité socialiste de Dijon. — SINGER
 L'action socialiste au conseil municipal de Berlin. — EMILE
 VINcr : Le socialisme municipal en Belgique.
-Hygiène sociale .
 Docteur V. AuGAGneuR : Les vraies causes et les vrais
 remèdes de l'alcoolisme. — L. GraAux : Les habitations
 ouvrières. — Maurice LAUZzEL : L'alcoolisme. — ANDRÉ
 SPrRE : Le budget d'un alcoolique. — Docteur VERHAEGHE
 Le parti socialiste et la lutte contre l'alcool. — La lutte
 contre l'alcool.
-Revue critique * j
 E. Berru : Le socialisme et M. Faguet. — MARCEL LANDRIEU : La concentration des forces ouvrières dans l'Amé-
 rique du Nord.— A. Lévy : Réponse de Kautsky à Bernstein.
 — G. Son : Le socialisme et la Révolution française. —
 Les industries monopolisées aux États-Unis. — La Pré-
 voyance sociale en Italie. — La participation aux béné-
-fices.
 Arts et littérature
 Henry BAUER : Critique littéraire. — Bouran : L'Anneau
 d'améthyste, d'Anatole France. — DE BrouckèrE : Le socialisme et les intellectuels. — Emize Buré : Chroniques dramatiques : En Paix. — Le Ressort. — La Robe rouge. — La
@@ -1956,7 +1648,6 @@ pule (nouvelle). — Wiczram Morris : Une lecon de roi és
 (nouvelle). — CHaRLes PÉGux : Les récentes œuvres de Zola. j
 GxAUD : De la constitution d'un théâtre populaire. — Hymne
 au jour (vers).
-Informations — Variétés, etc.
 
 Mar BoxnevraL : Le congrès de la condition des droïts
 de la femme. — Cu. Boorx : Les clubs ouvriers à Londres.
@@ -1971,59 +1662,39 @@ politiques en Angleterre. — SoreL : L'économie politique
 nous avons déclaré dès le commencement : que nous.
 n'avons pas institué nos cahiers pour donner sur le.
 mouvement socialiste les nouvelles simultanées complètes et les renseignements rigoureusement contemporains. Pour se tenir au courant du mouvement sotialiste à mesure qu'il se meut, on doit s'abonner au
-Mouvement Socialiste.
 
 Paraît le 10 de chaque mois
 La Revue
-d'Art dramatique
-Directeur : Eugène Morel.
 Éditeur : Société d'éditions artistiques et littéraires,
-librairie Ollendorff, 50, chaussée d'Antin, Paris.
 s Extrait des collections
 1887 TOURGUENIEY. — Une Source à Sorrente.
 1888 ALBERT VANDAL. — Molière et le Cérémonial
-turc.
-1889 Madame Seconp-WEBEr. — Lady Macbeth.
 1890 MARIE LAURENT. — L'Art du Comédien.
 — Henri HENE. — Les Femmes de Shakespeare.
 1891 HENRY BECQUE. — Hamlet et les chroniques de
-Belleforest..
 1892 BJORNSTIERNE BJoRNsoN. — Le Gant.
 — Taéopore REINAcCH. — L'Hymne d'Apollon.
-1896 JEAN JULLIEN. — Brieux.
 1897 Maurice PoTtEcHER. — Le Drame populaire.
 1898 ROBERT DE FLERS. — Alphonse Daudet.
-— GABRIEL TRARIEUX. — Sanctuaires d'Orient.
-— Jean ViGnauD. — Stéphane Mallarmé.
 1899 Tozsror. — Le premier Bouilleur.
-— SuARÈS. — Wagner.
 — RoBErT BRUSSEL. — Emmanuel Chabrier et le Rire
-musical.
 — J.-G. PRODHOMME. — La Prise de Troie, de Berlioz. k
 1900 LucIEN BesnArRD. — Les Chiens du Maître.
 — GÉRARD HAUPTMANN. — Avant le Lever du Soleil.
 — Ep. Scauré. — Le Drame de l'Ame.
-—  WEINGARTNER. — Bayreuth.
 
 dixième cahier de la deuxième série
 1900 LuGné Por. — L'Art du Machiniste.
 — Eucène Morer. — Projet de Théâtres populaires.
-— Romain RozcanD. — Danton
 Récemment réorganisée, la Revue d'Art dramatique
-a publié :
-Février 1901 -
 JEAN JuLLIEN et LucIEN BEsNARD. — Campagne contre la
-Décadence.
 RogerT BRUSSEL. — La Schola Cantorum.
 Hexry Lyonner. — Le Théâtre hors de France. Italie. ‘
-Mars 1901
 Henry Lyonner. — Lettres inédites de Verdi.
 SuarÈs. — L'Amour et la Volupté au théâtre.
 Théâtres. Compte rendu et analyse des pièces jouées sur
 les théâtres du monde entier.
 Elle publiera
-En Mai
-LE THÉATRE POÉTIQUE ç
 Nous ne pouvons demander à nos amis de s'abonner
 cette Revue comme nous leur demandons de s'abonner
 au Mouvement Socialiste. Mais nous leur demandons
@@ -2032,10 +1703,6 @@ Revue d'Art dramatique a beaucoup à faire. Le retentissement d'une pauvreté mi
 voir que le public des représentations théâtrales est au
 moins aussi abruti que les autres publics bourgeois.
 Un camarade nous communique cette annonce
-TÉLÉPHONE : 801-04
-SOCIETE NOUVELLE DE LIBRAIRIE ET D'EDITION
-(Librairie GEORGES BELLAIS)
-rue Cujas, PARIS (cinquième arrondissement)
 Libraires de l'Institut Pasieur de Paris, de l'Institut Pasteur de Lille,
 de l'École Normale supérieure, du Ministère du Commerce,
 du Laboratoire d'Évolution des Êtres organisés, des Laboratoires de Botanique
@@ -2069,16 +1736,13 @@ plémentaires de commission, le port seul étant à la
 charge du destinataire, sauf pour les commandes supé- Fe
 rieures à 30 francs, qui sont expédiées franco à Paris
 et en province. Elle exécute sans frais les abonnements
-aux périodiques.
 Les agents que la Société possède aujourd'hui à
-Londres, à Leipzig, à Saint-Pétersbourg, à Rome, à
 Madrid, à Bruxelles, à Amsterdam et à New-York, la
 mettent en mesure d'exécuter promptement et au meilleur compte toutes les commandes de livres étrangers.
 Sauf pour les livres américains, russes et espagnols,
 qu'il est impossible de vendre au-dessous des prix marqués, tous les livres étrangers sont vendus avec des remises qui varient selon le pays d'origine et selon
 l'importance de la commande. Port à la charge du destinataire, sauf pour les commandes supérieures
 francs, qui sont expédiées franco à Paris et en province. Abonnements aux périodiques exécutés sans
-frais.
 La Société met à la disposition du public, pour tous
 les ordres de recherches, pour la constitution de bibliothèques, pour tous travaux bibliographiques, un
 service gratuit de renseignements. “ES
@@ -2088,17 +1752,12 @@ service délicat de la fourniture d'office des nouveautés.
 Sur leur demande et dans les limites des ressources
 régulières qu'ils pourront y affecter, elle fera pour ses
 
-SOCIÉTÉ NOUVELLE DE LIBRAIRIE ET D'ÉDITION
 clients un choix hebdomadaire ou mensuel des nouveautés les plus importantes de la production littéraire
 ouscientifique. Les services de cette nature qu'elle rend
 déjà à des bibliothèques étrangères sont un garant du
 soin scrupuleux qu'elle apportera à cette mission de
-confiance.
 Les commandes et demandes de renseignements
-doivent être adressées
-M. FÉLIX MALTERRE
 Directeur de la Société Nouvelle de Librairie et d'Édition
-rue Cujas, PARIS (cinquième arrondissement)
 Aucun dissentiment, si profond qu'il soit, ne nous
 empéchera d'annoncer les institutions voisines. Jamais
 nous ne boycotterons des camarades. Jamais nous
@@ -2109,109 +1768,67 @@ et je me permets de recommander que l'on suive assidû-
 - ment les cours de l'école socialiste instituée récemment
 par les actionnaires de la Société nouvelle.
 
-ÉCOLE SOCIALISTE
 installée à l'Union Moufjetard, université pop re du.
 
-cinquième arrondissement, 76, rue Mouffetard, Paris
-VUE
 LES LEÇONS SONT FAITES PAR: ii
-CHARLES ANDrEr, docteur es lettres; LÉON BLUM;M
 HusErT BoURGIN, agrégé de l'Université; PAUL
 connET, agrégé de l'Université; LucIEN HERR, agrégé
 de l'Université; HuBerr LAGARDELLE, directeur dus
-Mouvement Socialiste; MARCEL LANDRIEU; JEAN
 LonquEr; Marcez Mauss, agrégé de l''Univer sité;
 Encarp MicnAu », agrégé de l'Université; EUGÈNE
 Penir, docteur en droit; ABEL REY, agrégé de EU ni-
 versité; FRANÇOIS Smmranp, agrégé de l'Université.
 Les cours de l'École socialiste s'adressent à tous ce ux ï]
 qui veulent entreprendre ou poursuivre leur éducation
-socialiste. FAURE
 Ils ne sont pas faits pour satisfaire des curios tés
 vaines ou pour entretenir de vagues sympathies; is)
 veulent préparer à une action socialiste effective et
-réfléchie. mu
 L'enseignement aura un caractère scientifique. #4 Hé
 Le programme de la première année comporte q natre
 séries de leçons ayant pour objet : “URSS
 1° L'Histoire des doctrines socialistes; LR
 L'Organisation des partis socialistes français et
-étrangers
 L'Organisation économique (coopératives, SYndEN
-cats, socialisme communal) ; LL
 La Législation sociale. TA he
 Le Le programme sera, d'année en année, él A bte
 complété. La
-SALON EUR
-ap NN MERS
 
-RATE ÉCOLE SOCIALISTE
 nt 1. — L'ORGANISATION ÉCONOMIQUE
 Le Lundi à 9 heures du soir
 s COOPÉRATIVES ra » 111 février  L Histoire du mouvement coopératif.
 . > » 925 février I. Nature des diverses institutions coopé-
-ratives.
 - 3 4 mars II. Le fonctionnement des coopératives de
-consommation.
 mars IV. L'organisation fédérale. — Coopérative
 et socialisme.
-
-SYNDICATS
 
 5° 18 mars I. Les formes d'organisation économique
 et le syndicat professionnel.
 6° 25 mars IL. Structure syndicale et fonction syn-
-à dicale.
 
 7° 15 avril III. Les buts syndicaux.
 nu 822 avril IV. Les méthodes syndicales.
 9° 29 avril V. La fonction syndicale dans la démocratie d
-x sociale.
 
-À ! SOCIALISME COMMUNAL
-à 10° 6 mai I. Services publics.
-11° 13 mai II. Entreprises.
 12° 20 mai IL. Budget communal.
 
-Il. — ORGANISATION DES PARTIS SOCIALISTES
-? PARTI ALLEMAND
 février I. La formation historique du Parti.
 2 21 février IL. Les éléments d'organisation et les di-
 ü verses formes d'action et de propa-
-Ë gande.
-février JL. Idem (suite)
 ka 4 7 mars IV. Le mouvement politique dans ses rapports
 à avec le mouvement syndical et coopé-
-ratif.
 
 dixième cahier de la deuxième série
-PARTI BELGE
 5° 21 mars I. Histoire et programme du Parti.
 6° 26 mars Il. Les diverses formes d'organisation et de
-propagande.
-PARTIS ANGLAIS
-7° 28 mars
-PARTI AUTRICHIEN È
-8° 18 avril
-PARTIS FRANÇAIS
 9° 25 avril I. Depuis la Commune jusqu'en 1889.
 10° 2 mai IL. Depuis 1889 jusqu'au Congrès de Paris.
 11° 9 mai II. Le Congrès de Paris et l'Unité socialiste.
 Les CONGRÈS INTERNATIONAUX
-12° 23 mai
-II. — LES DOCTRINES SOCIALISTES
-1° 16 février SAINT-SIMON ET LE SAINT-SIMONISME.
 février FOURIER ET LE FOURIÉRISME.
 3° 2 mars LE MANIFESTE COMMUNISTE.
 4 9 mars LE SOCIALISME FRANÇAIS EN 1848.
-5° 16 mars FERDINAND LASSALLE.
-6° 93 mars  PROUDHON.
 7° 30 mars  Karz Marx : I. La plus-value.
 9° 27 avril — II. La rente foncière.
-10° 4 mai DoGTRINES ALLEMANDES CONTEMPORAINES.
-11° 11 mai DOCTRINES ANGLAISES CONTEMPORAINES.
-12° 18 mai DocTRINES FRANÇAISES CONTEMPORAINES.
-IV. — LA LÉGISLATION SOCIALE ET LE SOCIALISME
 Les Samedi 25 et Jeudi 30 mai à 5 heures 1/2.
 Les cartes d'entrée sont délivrées à la Société NouVELLE DE LIBRAIRIE ET D'ÉDITION, 17, RUE Cuyas. Elles
 peuvent étre demandées par correspondance. Elles sont
@@ -2221,7 +1838,6 @@ Le Gérant : CHARLES PÉGUY
 Ce cahier a été composé par des ouvriers syndiqués
 IMPRIMERIE DE SURESNES (G. RICHARD, administrateur), 9, rue du Pont.—4168
 
-s nur :
 ra Nous prions ceux de nos abonnés qui nous envoient ]
 s des documents et des renseignements de vouloir bien
 écrire très lisiblement et d'un seul côté de la page.
@@ -2258,16 +1874,11 @@ d'un abonnement ordinaire. Nous ne les vendons qu'à
 nos abonnés.
 Nous avons donné le bon à tirer après correction pour
 seize cents exemplaires de ce dixième cahier le jeudi
-D /ravril 1901.
 
-LES ANNONCES DES CAHIERS SONT GRATUITES
-Annonces
 des Cahi
-es Cahiers
 Nos anciens abonnés savent et nos nouveaux abonnés
 noteront qu'avec le tirage où nous avons atteint nous
 pourrions vendre un assez bon prix la publicité de nos
-cahiers.
 Mais nous sommes résolus à ne nous vendre sous aucune forme.
 Aussi annonçons-nous les publications, les institutions “4
 et Les œuvres qui nous paraissent bonnes, sans demander

@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 8182
 ---
-
-*Charles Péguy*
-
 geois, en acceptant le pouvoir dans un gouvernement dans
 lequel l'élément bourgeois serait tout puissant.
 
@@ -21,10 +18,7 @@ dont aucun ne peut être engagé par ces réponses.
 En vous adressant mes saluts fraternels et mes meilleurs
 vœux, je suis, chers camarades, bien cordialement vôtre.
 
-Kerr HARDIE
 La Petite République du samedi 28 octobre publiait
-deux réponses
-HERMANN GREULICH
 
 Un des chefs du socialisme en Suisse. Ancien ouvrier relieur, il
 s'est fait par son infatigable labeur et son intelligence un nom estimé
@@ -33,9 +27,6 @@ prolétariat suisse, notamment en qualité de chef du Secrétariat ouvrier suiss
 France et dont il a été, à proprement parler, le créateur. Depuis
 quelques années il est membre du Conseil cantonal et du Conseil
 municipal de Zurich.
-
-Zurich, septembre 1899,
-Chers camarades,
 
 Je réponds très volontiers à vos deux questions, heureux
 de me mettre à la disposition des camarades français, ainsi
@@ -106,11 +97,6 @@ morcellement du parti nuit beaucoup plus à la cause du
 prolétariat que ne le ferait même un ministre socialiste qui
 renierait les principes du parti.
 
-Salutations fraternelles,
-
-HERMANN GREULICH
-ROBERT BLATCHFORD
-
 Robert Blatchford est un littérateur de grand talent, qui fait, à
 côté de l'action nettement définie des organisations socialistes
 anglaises, une propagande individuelle spéciale avec ses moyens et
@@ -124,21 +110,17 @@ colossal. Plus de 800,000 exemplaires en furent vendus tant en Angleterre qu'aux
 Robert Blatchford est le directeur du journal le Clarion qui a lui
 aussi une physionomie bien particulière et dont le tirage, élevé
 surtout dans les comtés du Nord de l'Angleterre et en Écosse, atteint
-60,000 exemplaires.
 
 Cowes, Hilston Newford Road (Ile de Wight)
-Citoyens,
 
 Quoique ce soit vous qui me le demandiez, j'hésite
 m'immiscer dans vos affaires intérieures et à donner une k
-que . = Le
 
 opinion sur des questions que nos frères de France sont
 
 mieux à même de résoudre que moi.
 
 Si je ne me trompe, vous me posez dans votre lettre ces
-deux questions
 1° Les socialistes ont-ils le droit de se mêler des luttes
 politiques en dehors de la sphère immédiate du socialisme?
 
@@ -191,19 +173,14 @@ tel est mon fervent espoir.
 
 Votre camarade de lutte,
 
-RoBeRT BLATCHFORD
-
-CONSULTATION INTERNATIONALE À
 La Petite République du dimanche 29 octobre publiait ee
 cette réponse : ‘2
-VOLLMAR tj
 Le chef le plus en vue du parti social-démocrate en Bavière. Dé-
 puté de Munich au Parlement allemand depuis une vingtaine d'années, il a été élu aussi député au Landtag bavaroïis aux élections de
 1893. Son talent d'organisateur et de tacticien parlementaire est re- » Ÿ
 connu par tous, même par ceux des socialistes allemands qui com- ”
 battent ses tendances modérées. Il est, en effet, à la tête de ce qu'on
 peut nommer l'aile droite du parti socialiste de l'Allemagne.
-Chers camarades,
 Si je peux juger d'après les socialistes allemands, il n'y ra x
 aura des divergences d'opinion importantes qu'au sujet de 3;
 votre deuxième question.
@@ -230,7 +207,6 @@ mation organique de l'état social et la conquête du pouvoir
 politique par étapes successives /die stueckweise Eroberung ‘
 der politischen Macht) sont reconnues de plus en plus
 comme la règle imposée par la réalité /als das regelmaessig
-Gegebene).
 
 Il existe certainement des différences entre les mandataires qui sont élus directement par le peuple et ceux qui
 
@@ -239,7 +215,6 @@ mandataires à responsabilité générale. Mais, en fin de
 compte, toute désignation ou élective ou des socialistes est
 bien le résultat de la force croissante du socialisme. On ne.
 trouve donc là que des différences de degré et non pas de
-fond.
 
 Par conséquent, je ne vois aucune raison pour le socialisme de maintenir précisément à l'égard de la prise de
 possession partielle du pouvoir ministériel le dernier reste
@@ -267,7 +242,6 @@ le gouvernement est désirable ou non.
 Pour en décider dans le cas du citoyen Millerand, les
 socialistes français peuvent seuls porter à cet égard un jugement définitif, ayant une connaissance approfondie des
 
-CONSULTATION INTERNATIONALE VOLLMAR 267R
 choses et des personnes : et leur vif sens politique saura À ‘à
 assurément voir juste. Quant à moi, observateur du dehors, ti
 qu'il me soit seulement permis de dire que je considérerais He
@@ -307,7 +281,6 @@ abord et que des hommes perspicaces et courageux mul-
 tiplient leurs efforts pour rattraper le temps perdu et
 mettre le socialisme à la place qui lui convient, ils méritent
 bien de la cause socialiste, de leur nation et de l'humanité et les socialistes de tous les pays ont toutes les raisons
-d'en être fiers.
 
 En exprimant le vœu que votre congrès général puisse
 créer l'unité si longtemps désirée du socialisme français,
@@ -315,20 +288,13 @@ je vous salue cordialement. Vote
 
 Bien à vous,
 
-VOLLMAR
-
-Solensass am Walchensee, août 1899
-
 La Petite République du mercredi 15 novembre publiait cette réponse
-BRUNO SCHOENLANK
 
 Député au Reichstag. Écrivain remarquable. Dirige le Journal du
 Peuple, de Leipzig, (1) un grand quotidien. Dans ces derniers temps,
 
 ñ il s'est fait remarquer en combattant les tendances d'une fraction du
 parti, dont Bernstein est le plus remarquable porte-parole.
-
-Chers citoyens,
 
 Voici ma réponse à votre première question
 Le parti qui représente le prolétariat conscient doit né-
@@ -348,9 +314,6 @@ résulte que le peuple ouvrier a pour devoir suprême de
 grouper tous les éléments prolétariens sans distinction de
 parti pour former un bloc de résistance contre le danger
 
-() Die Eeipziger Volkszeitung.
-
-CONSULTATION INTERNATIONALE SCHOENLANK i
 réactionnaire. La seule considération qu'il y va d'une ques-
 tion vitale pour le développement politique et social du
 
@@ -384,7 +347,6 @@ tout crédit dans le pays est hors d'état de mener le peuple à ‘
 la bataille sans les représentants de la classe ouvrière. tu
 Alors, dans ce cas spécial, la participation de la classe ou- w
 vrière au gouvernement serait peut-être désirable pour une De:
-tâche déterminée.
 
 En tous cas, cette décision ne pourrait être prise par les
 intéressés sous leur responsabilité individuelle. Le parti fl
@@ -397,11 +359,9 @@ En ce qui concerne Millerand, je crois que ni la situation 16)
 politique en France, ni la façon dont il est entré dans le
 gouvernement ne correspondent aux conditions spéciales
 qui viennent d'être exposées par moi.
-BRUNO SCHOENLANK
 Leipzig, le 21 août 1899
 La Petite République du dimanche 19 et celle du
 dimanche 26 novembre publiaient cette réponse : ARE
-P. J. TROELSTRA
 Troelstra est un des membres les plus jeunes mais les plus actifs
 et les plus éminents du parti démocrate socialiste hollandais. Avec
 Van Kol et quelques autres militants il a arraché le prolétariat
@@ -415,29 +375,24 @@ camarades de son parti et en général de toutes les justes causes.
 ï C'est ainsi que dernièrement il comparaissait lui-même devant le
 tribunal de La Haye sous l'inculpation d'avoir accusé publiquement
 les magistrats de Leeuwarden de n'avoir pas conduit avec impartialité l'enquête concernant les frères Hogerhuis, victimes d'une
-erreur judiciaire.
 ‘ Le prolétariat socialiste peut-il sans manquer au principe
 de la lutte de classes intervenir dans les conflits des diverses
 fractions bourgeoises, soit pour sauver la liberté politique,
 soit, comme dans l'affaire Dreyfus, pour défendre l'hu-
-manité?
 
 La lutte de classes a pour but la conquête du pouvoir
 politique par le prolétariat en ce sens que non seulement il
 arrache à la bourgeoisie autant que possible le pouvoir public, mais encore qu'il organise des unions ouvrières politiques syndicales et coopératives, au moyen desquelles il
 devient une personnalité sociale qui peut prendre en mains
 la direction de l'évolution historique de la Société vers la
-période socialiste.
 
 Il n'est pas nécessaire de démontrer qu'en vue de cette
 
-CONSULTATION INTERNATIONALE TROELSTRA
 tâche grandiose, la liberté politique est pour le prolétariat
 une des premières nécessités. Conséquemment, nous voyons
 partout la classe prolétarienne devenir l'héritière du tiers-
 état, qui, après avoir conquis le pouvoir pour lui-même, a
 cessé toute lutte pour les droits politiques de la masse ouvrière (comme cela s'est vu en Hollande) ou bien comme en
-Allemagne, après quelques velléités révolutionnaires en
 est redevenue l'esclave de l'absolutisme. Même en
 Allemagne, le prolétariat n'a jamais hésité à soutenir dans
 le Reichstag les classes moyennes là où celles-ci défendaient
@@ -456,7 +411,6 @@ la bourgeoisie des autres pays. Dans toutes ces luttes, elle
 se voit obligée de recourir à l'appui du prolétariat et de le
 faire participer au mouvement politique. » — Quelle est la
 signification de cette intervention du prolétariat dans la
-politique bourgeoise?
 « La bourgeoisie elle-même, dit Marx, fournit ainsi au
 prolétariat ses éléments de civilisation, c'est-à-dire les meil- .
 leures armes contre elle-même. Et tous ces conflits dans la
@@ -534,7 +488,6 @@ matiques. Si on l'y force néanmoins, on sera bien souvent, F
 devant les surprises du moment, obligé de méconnaître la #.
 nature de l'homme, au lieu de tenir compte de toutes ses
 complications, de ses replis profonds, de ses beaux élans
-humanitaires. ‘ À
 Voyons maintenant le côté pratique de la tactique de ca
 notre parti dans l'affaire Dreyfus : ce qui remue un monde
 entier ne peut pas laisser insensible un des partis politiques en France. Si les antisémites veulent assassiner le “a
@@ -576,11 +529,9 @@ quer l'injustice. En agissant de la sorte, elle démasque aussi
 
 ‘ le système qui rendit ces crimes possibles et la classe qui
 s'en rendait coupable. Si d'un autre côté elle se résignait, elle
-deviendrait complice.
 
 { Voilà les motifs qui m'obligent à donner à la première
 question, que vous avez bien voulu me poser, une réponse
-aflirmative.
 
 Dans quelle mesure le prolétariat socialiste peut-il participer au pouvoir bourgeois ; et le principe de la lutte des
 classes s'oppose-t-il absolument, et dans tous les cas, à la
@@ -696,7 +647,6 @@ Et là où dans la lutte des classes, comme dans chaque
 lutte, plusieurs victoires partielles sont nécessaires en vue
 du triomphe définitif, il est évident que le parti socialiste,
 plus son autorité s'accroît, plus il se trouvera placé dans
-ART CNE ? ONE RTE RAM ANNE ET UE
 
 l'alternative : de laisser gouverner les partis bourgeois
 leur guise, ou bien de prendre la place qui, en raison de la ,
@@ -754,26 +704,19 @@ ce qu'il faut avant tout, c'est de la vérité, de la clarté, des
 notions justes de la situation, ce qui veut dire un gouvernement reflétant l'évolution économique, qui forme la base
 inébranlable de toute question politique.
 
-P. J. TROELSTRA
-
 La Petite République du samedi 9 décembre publiait
 
 cette réponse :
-PAUL SINGER
 
-Paul Singer, député socialiste au Reichstag depuis 1884, représente
 la sixième circonscription de Berlin. Singer est un des porteparole les plus remarquables de la Social-Démocratie allemande,
 un de ses membres les plus influents. Il préside régulièrement tous
 les Congrès du parti avec un tact et une impartialité reconnus par
 tous, Ses discours au Reichstag sont toujours très remarqués par les
 coups adroits et décisifs qu'il porte à la réaction des Junkers et des
-bourgeois allemands.
 
 Appartenant par sa situation à la classe des riches commerçants,
 il a épousé la cause ouvrière à laquelle il consacre une activité i
 constante et extrêmement féconde.
-
-Chers camarades,
 
 Vos questions du 29août m'offrent l'occasion voulue de vous
 exprimer ma profonde sympathie pour votre attitude énergique et courageuse dans l'affaire Dreyfus pour le triomphe
@@ -846,11 +789,8 @@ au ministère soit nécessaire pour cela.
 De par les considérations que je viens d'exposer, on peut
 dire que dans la société bourgeoise le principe de la lutte
 de classes est radicalement et dans tous les cas opposé à la
-participation au pouvoir ministériel.
 Recevez, chers camarades, des saluts fraternels de votre
-ss PAUL SINGER
 La Petite République du dimanche 31 décembre publiait ces deux réponses
-BELFORT BAX
 Le citoyen Belfort Bax est un des représentants les plus célèbres l
 de la Social Democratic Federation et un des théoriciens les plus en
 vue du socialisme international.
@@ -864,7 +804,6 @@ philosophiques de Belfort Bax. Nous nous bornerons donc à rappeler celles de se
 socialisme, notamment ses retentissantes polémiques avec Karl
 Kautsky sur le matérialisme historique, et tout récemment une
 série d'articles dans lesquels il réfutait les théories de Bernstein.
-Chers camarades,
 J'ai eu l'honneur de recevoir votre invitation et je réponds
 volontiers à votre désir.
 
@@ -893,12 +832,10 @@ erreurs. La vérité concrète ne se trouve que dans une synthèse, et cela est 
 pour toute autre chose. Dans les limites de la lutte de
 classes, nous restons quand même des hommes, quoique
 plus ou moins modifiés par la lutte, et dans ce sens la citation très connue de Térence: Homo sum, etc., garde sa
-pleine signification.
 
 La lutte de classes, quelle que soit sa puissance, ne suffit
 pas à la longue, n'arrive pas à nous dépouiller complètement de nos qualités humaines. Une participation dans
 
-Ë CONSULTATION INTERNATIONALE
 des questions de ce genre ne peut être, dans certains cas, L
 qu'utile au parti, elle ne peut nullement lui nuire.
 
@@ -908,7 +845,6 @@ parti se trouvent lésés si on consent à devenir membre
 d'un gouvernement dont le but, quelque caché qu'il soit,
 est de maintenir le système capitaliste ; en d'autres termes,
 si on accorde une collaboration active à un pouvoir de
-classe non socialiste.
 Mais, quelque arrêtées que soient mes opinions à ce
 sujet, je ne voudrais pas être taxé de juger sévèrement un
 camarade qui, dans cette question, a agi contrairement
@@ -918,8 +854,6 @@ une époque où le parti, n'ayant jamais songé à l'examiner,
 n'avait naturellement pu la trancher.
 
 Avec mes salutations fraternelles.
-BELFORT BAx
-LUDWIG MEYER
 
 Quoique de date récente, le mouvement socialiste dans les pays
 scandinaves a su acquérir une importance telle qu'il y est devenu
@@ -934,8 +868,6 @@ qualité de rédacteur en chef de l'organe central et de membre du
 Comité directeur, est un des représentants les plus actifs, les plus
 dévoués et les plus éclairés.
 
-Chers citoyens,
-
 Des circonstances imprévues et malencontreuses ont
 retardé cette réponse aux questions que vous m'avez fait
 l'honneur de me poser.
@@ -945,7 +877,6 @@ des pouvoirs publics est pour le parti socialiste d'une haute
 importance, encore qu'elle ne puisse être aujourd'hui que
 partielle. D'après moi, cette prise de possession partielle
 
-r etre
 est donc en principe parfaitement admissible. Seulement,
 la question de savoir s'il faut profiter de l'occasion quand
 elle se présente est à trancher chaque fois selon les circonstances.
@@ -983,7 +914,6 @@ Dreyfus. Ce qui aurait surpris dans un tel combat, ç'aurait
 l'énergie vitale du mouvement socialiste repose dans cette
 idée que nous combattons partout et toujours pour la justice.
 Recevez, chers citoyens, mes salutations fraternelles.
-LunwiG Meyer
 Le Gérant : CnarLes PÉGuy
 Ce cahier a été composé par des ouvriers syndiqués
 Le pue

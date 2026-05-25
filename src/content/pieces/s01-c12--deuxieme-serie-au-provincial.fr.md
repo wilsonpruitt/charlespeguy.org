@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3806
 ---
-
-*Charles Péguy*
-
 comptes rendus des séances tenues par le singulier
 comité général que nos lecteurs n'ont pas oublié.
 Cependant que nous réunirons et que nous publierons
@@ -96,7 +93,6 @@ ouverte aux Congrès sur les meilleurs moyens de con- Mes i
 stituer le parti socialiste français.
 Enfin sous ce titre le ministère de Millerand nouspu
 
-DEUXIÈME SÉRIE AU PROVINCIAL
 4e blierons autant que nous le pourrons le recensement
 textuel des arrêtés ministériels signés, des décrets pré-
 sidentiels contresignés, et des lois votées dans les questions ouvrières par M. Millerand ou sur sa proposition
@@ -123,7 +119,6 @@ Les toute contamination. Et alors le cahier sera pour le trart . vail un recueil
 douzième et dernier cahier de la première série
 aurons un cahier qui sera tout entier de la consultation
 nationale, des cahiers qui seront tout entiers du congrès
-socialiste international.
 Pareïllement toutes les fois que des collaborateurs F ‘
 libres nous feront l'amitié de nous apporter des cahiers,
 nous ferons tout ce que nous pourrons pour que l'auteur
@@ -134,7 +129,6 @@ liberté morale de l'auteur. Et le cahier sera pour le tra
 vail et pour l'action vraiment un livre indépendant et
 libre. Et en ce sens il ne sera plus un cahier que pour # É
 l'administration. Il n'y aura jamais parmi nous aucune « 1
-relation d'auteur à directeur, d'employé à employeur, À
 aucune subordination, mais corrélation d'homme libre … ‘14
 à homme libre, d'auteur à gérant sans intermission com- sa ss
 merciale d'autorité bourgeoise. L'auteur écrira sous sa 2°
@@ -150,11 +144,8 @@ que dans le courant de l'année il nous en donnerait “
 deux ou trois, mais il nous a promis qu'il aurait prêt
 pour cet automne un cahier d'ensemble sur la politique … 105
 internationale du socialisme, sujet auquel il pensait lui: re
-Pneme LÉ TRNNCEFORS
 C'est aussi à ces conditions que nous avons demandé
-6 ‘USA FC
 
-LR SRNERE DEUXIÈME SÉRIE AU PROVINCIAL
 ee _ à Hubert Lagardelle des cahiers de théorie et d'action
 socialiste. Il nous donnera dans un mois tout un cahier
 es _ intitulé : Les intellectuels devant le socialisme. — le
@@ -162,7 +153,6 @@ problème de la petite bourgeoisie. Deux mois plus tard il
 nr. nous donnera tout un cahier au moins sur Le socialisme
 F2 ._ municipal en France. Les cahiers de Lagardelle entre-
 
-Ch VERRE L ?
  ront en brochures en série dans la bibliothèque du Mou-
 
 ne 44 vement Socialiste.
@@ -196,12 +186,10 @@ nous publierons des mêmes Tharaud Orphée en Frioul “4
 mains des auteurs. : di
 n''A ces conditions nous publierons avant le premier ser
 cahier de Lagardelle un roman, si nous pouvons lenom5 EN ER S'RANX
-TERMES s vd HA TDR
 
 douzième et dernier cahier de la première série id 1"
 mer ainsi, la première œuvre publiée de René Salomé:
 vers l'action sera le deuxième cahier de la deuxième
-série.
 ces conditions nous publierons bientôt un drame Re.
 satyrique : le Bacchus de notre ami Lionel Landry. Note
 ami est récemment parti pour la Chine. Il a obtenu a
@@ -265,7 +253,6 @@ veaux noms. Nous les avons acceptés. Si lourd que soit
 financièrement pour nous un tel service, nous enverrons
 donc régulièrement les cahiers de la deuxième série
 plus de huit cents abonnés gratuits, pour la plupart
-instituteurs, choisis pertinemment.
 Nous prions instamment nos amis non seulement de
 vouloir bien eux-mêmes s'abonner, mais de vouloir
 bien aussi nous présenter et honnêtement nous procurer
@@ -277,7 +264,6 @@ les ont lus par communication. Nous nous permettons t
 à user indirectement de cette publication sans participer
 aux frais de son établissement.
 Nous envoyons éventuellement ces cahiers à plus de 3 ë
-deux mille huit cents personnes automatiquement Choi-
 sies parmi celles qui peuvent s'y intéresser.
 Nous les envoyons d'abord éventuellement aux
 abonnés du Mouvement Socialiste. La direction de cette Rs:
@@ -288,7 +274,6 @@ l'action socialiste internationale pendant qu'elle se meut
 ils demanderont à nos cahiers cette indispensable con- i
 naissance historique de l'action que l'on ne peut donner
 qu'un peu après que se sont dessinés les temps de eue
-repos. 5 ) me
 
 e ; Vas Nous envoyons éventuellement nos cahiers à tous les
 ._ abonnés du bulletin del' Union pour l'action morale. L'ad-
@@ -301,7 +286,6 @@ Ne: d'un côté nous ne croyons pas que l'on puisse opérer
 Rs morale de l'humanité sans opérer toute la révolution de
 de. x . son habitat social, et qu'inversement nous croyons que
 …_ toute révolution formelle serait vaine si elle ne compor_ ait pas le labourage éi la profonde éversion des con- ÿ
-sciences?
 Nous envoyons éventuellement nos cahiers à tous les
 sa correspondants de la Ligue française pour la défense
 “… des droits de l'homme et du citoyen. L'administration
@@ -349,9 +333,7 @@ syndicalistes. Nous envoyons éventuellement nos
 cahiers aux citoyens secrétaires et délégués des
 groupes adhérents à la Fédération Socialiste Révo- ca
 lutionnaire, et aux Fédérations départementales et. fs
-LE DEUXIÈME SÉRIE AU PROVINCIAL
 régionales. Nous les envoyons éventuellement aux
-. Coopératives socialistes.
 Autant que nous l'avons,pu nous envoyons éventuel-
 lement nos cahiers aux universités populaires, aux
 sociétés sérieuses d'enseignement laïque et de culture
@@ -369,7 +351,6 @@ faire des pauvres et de la pauvreté.
 Quand nous aurons fini de publier la deuxième série
 de nos cahiers, nous publierons un index, devenu indisHN pensable, de ces deux séries.
 
-der PNUD pre MR CN ER PS POTTER NEC a Er MEL ie IT EN
 Notre ami Charles Amey, professeur d'anglais au
 collège de Bonneville, est mort le mardi 11 septembre,
 dans sa vingt-sixième année.
@@ -381,14 +362,12 @@ Aimant surtout le travail d'enseignement, éloigné en
 province, il attendait beaucoup de l'enseignement populaire.
 Il pensait avec beaucoup de nos amis que ces cahiers
 ne sont pas assez commodément composés pour un en
-seignement directement populaire.
 Mais sachant pour l'avoir éprouvé comme il est difficile de faire quoi que ce soit il me présentait ses critiques mêmes comme un encouragement, une aide, et
 vraiment comme. une indispensable collaboration.
 Il vint me voir au commencement des vacances, comme
 ilen avait l'habitude. Rien dans son robuste aspect ne fai-
 sait pressentir le malheur qui déjà le menaçait. Il était
 seulement resté accablé d'un épouvantable deuil de
-famille, récent. ax)
 Il vint me voir. Il m'exposa très fortement et minu- s
 tieusement ses critiques. Je lui présentai ma défense.
 Puis nous discutâmes nos raisons. Il finit par me donner cette preuve : Moi-méme, dit-il, qui te connais pourtant bien, et qui sais lire ce que tu écris, moi-même je
@@ -396,13 +375,11 @@ ne lis pas commodément tes cahiers. Ils me forcent
 travailler. — Puis s'apercevant soudain que cette cri-.
 tique redoutable était si l'on voulait un élog'e incompa- Ur
 rable il retrouva pour un instant son large sourire
-ancien. €
 Je ne le revis pas. Une angine de poitrine le ter- LEO
 rassa en une demi-heure. Il en avait déjà subi les pre-
 mières atteintes en Savoie, maïs il se croyait rhumati
 sant et n'y prenait pas autrement garde. { =
 de” 7 f Par Pere
-VS ADMINISTRATION
 TRE Nos anciens abonnés savent qu'outre les abonnements
 gratuits annoncés ci dessus nous servons:
 ï des abonnements de souscription à cent francs
@@ -414,7 +391,6 @@ service entre ces différents abonnements. Nous voulons
 monde également. L'abonnement ordinaire est à peu
 e rès égal au prix de revient; l'abonnement de propaPoe prop
 - gande est donc sensiblement inférieur au prix de re-
-” Pvient, :.
 mx Nous prions instamment nos nouveaux abonnés de
 Ke _ vouloir bien nous dire sans aucun retard dans quelle
 en _ catégorie nous devons les compter. Il nous importe en
@@ -423,7 +399,6 @@ ee _ solidement au commencement de cette nouvelle série.
 Nous prions instamment nos nouveaux abonnés de vou- è
 Ge. loir bien nous envoyer par le même courrier, s'il y a
 - lieu, la rectification de leur adresse. IL nous importe
-ANSE ; p
 Fa | que nos fiches et que le répertoire soient exactement
 ae _ jour avant le commencement de la deuxième série.
 AE La même liberté que nous laissons entière à tous nos
@@ -445,7 +420,6 @@ Sorbonne, où réside l'École des Hautes études sociales
 — école de morale — école sociale — école de journa.
 lisme, nous aurons le bonheur de demeurer porte
 porte avec le secrétariat de la société des universités Ÿ É
-populaires.
 Usant de la même liberté, agissant, moi aussi,
 comme un collaborateur libre, je me permettrai, au
 seuil de la deuxième série, de donner quelques rensei=.
@@ -459,6 +433,5 @@ mençais pas par présenter la défense de l'institution Mr €
 commune, Je suis comptable envers ces honnêtes gens … ce
 etenversle public. Il est inévitable qu'au début du
 prochain cahier je parle un peu pour ma maison.  « Ki ; j : La 137 6 TINMOENNER
-“2 RENAN LE CARE Te ERP LT d'A RS COST
 
 ---

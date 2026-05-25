@@ -7,20 +7,11 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 13625
 ---
-
-*Charles Péguy*
-
-CINQUIÈME CAHIER DE LA DEUXIÈME SÉRIE
-
 et des avis de l'administration
-Cahiers
 
 de la Quinzaine
 
-ÉDITIONS DES CAHIERS
-PARIS
 rue de la Sorbonne, au second
-POUR MOI
 
 Mon ami Pierre Baudouin et mon ami Pierre Deloire
 vinrent me souhaiter la bonne année. Ils étaient soucieux. Ils marchaient de conserve. Ils me trouvèrent en
@@ -56,8 +47,6 @@ tant de reproches que l'on doit te faire. Je n'eusse pas
 dépensé huit quarts d'heure de mon temps, si ce n'était
 la profonde amitié que j'ai toujours eue pour toi. Je
 n'ai pas le temps d'écouter ta défense. Mon temps est
-cher. Certains devoirs laïques me rappellent ailleurs.
-Adieu.
 
 Il s'en alla sans me donner la main.
 
@@ -87,7 +76,6 @@ beaucoup d'honnêtes gens t'apportent beaucoup de bonne
 
 copie, que les compositeurs ne te fassent aucune coquille et que les imprimeurs ne t'impriment aucune
 bourde; enfin je te souhaite que les abonnés croissent
-etse multiplient.
 
 — Mais, dit Pierre Deloire, comme l'histoire des évé-
 nements nous fait voir que Les souhaits ne suffisent pas,
@@ -114,7 +102,6 @@ te souhaiter la bonne année.
 C'est une grande souffrance que de savoir qu'il yen a
 plusieurs qui me souhaitent que la copie soit mauvaise
 et le tirage raté, que l'abonnement décroisse et que les
-cahicrs meurent.
 
 — Et comme l'histoire des événements nous fait voir
 que les souhaïts ne suffisent pas, ils travaillent consciencieusement à la démolition des cahiers. Ils commencent par se désabonner. Ils se désabonnent.
@@ -125,7 +112,6 @@ cinquième cahier de la deuxième série
 reçu le premier désabonnement.
 — Nous vous requérons de nous lire cette lettre.
 
-Paris, mercredi matin 12 décembre 1900
 Mon cher Péguy
 
 La lecture de ton dernier cahier m'a révolté.
@@ -161,7 +147,6 @@ des insinuations peu dignes de toi. —
 
 — Nous sommes ici venus, dit Pierre Baudouin, pour
 te forcer à n'insinuer pas. Nous te requérons de conti- ,
-nuer.
 
 —Je regrette d'y trouver des insinuations peu dignes de
 toi; par exemple, quand tu dis : L'admiration mutuelle
@@ -180,7 +165,6 @@ pas ce soir que tu t'amuses. Nous te requérons de continuer.
 — pour que tut'amuses ainsi à frapper sur nos amis?
 Ou veux-tu propager le scepticisme et le découragement
 dans notre parti ? Si c'est cela, il m'est impossible de
-te suivre.
 
 2° Quel besoin as-tu de renseigner bénévolement les
 journaux bourgeoïs et les gros bonnets universitaires
@@ -207,7 +191,6 @@ que pour toi, puisqu'elles ne contiennent que des réserves à ton adresse ou de
 A quoi bon revenir longuementsur le Journal d'une
 femme de chambre et donner à cette ordure les propor-
 tions d'un événement ? Tout ce que tu publies aujourd'hui a déjà été dit la dernière fois. Ce n'est que du
-réchaufté.
 
 5° Les annonces de l'école des hautes études sociales
 occupent 15 pages de ton cahier! k
@@ -255,8 +238,6 @@ annonces que tu vas publier des romans ! des romans,
 comme si la réalité n'était pas assez tragique et que
 nous avions —
 
-— Ayons ?
-
 — avions le temps de nous intéresser à des fioritures
 de phrases et à des divertissements d'esthètes !
 
@@ -291,7 +272,6 @@ laisserons tout passer sans interruption.
 
 — Elle est plus courte.
 
-Paris, vendredi 14 décembre 1900
 Mon cher Péguy
 
 Je ne veux plus recevoir les Cahiers de la Quinzaine,
@@ -329,7 +309,6 @@ tu diminues même la sympathie qui allait à ta personne.
 Tout ce que j'espère, c'est que tu ne continueras pas
 dans cette voie, et que nous te retrouverons avec nous,
 contre l'ennemi commun, que tu sers aujourd'hui indirectement. CE JOUR-LA JE SERAI HEUREUX DE TE REVOIR
-TEL QUE JE CROIS T'AVOIR CONNU.
 
 Vous permettez que je passe la signature ?
 
@@ -350,10 +329,8 @@ bonnes années mon ami le plus proche m'a écrit deux
 lettres qui m'ont fait beaucoup plus de peine.
 
 — Cela s'entend. Nous vous requérons de nous les
-lire.
 
 — La première est brève
-Toulouse, lundi matin 26 novembre 1900
 Mon cher Péguy
 
 — Pour fixer les idées, je maintiens que si tu avais été
@@ -361,11 +338,9 @@ au comité général pour soutenir Jaurès et le père Longuet, tu eusses dit à
 maintiens qu'il eût mieux valu changer par une intervention active et réelle la scène historique, que de
 l'idéaliser et de la conserver par une reproduction
 typique et dramatique. Quoi qu'il en soit, je n'ai pas
-renoncé.
 
 Je passe le nom. Vous le connaissez. La deuxième
 lettre est plus longue
-Mardi 4 décembre 1900
 Mon cher Péguy
 
 Je me permets de te répéter que l'action me paraît
@@ -400,7 +375,6 @@ de la maison Bellais; en annonçant du Pressensé et du
 Duclaux, tu fais concurrence au Mouvement. En d'autres
 termes, ton Cahier de la Quinzaine devient à la fois
 une revue semi-mouvement semi-historique, et une
-Bibliothèque d'éditions semi-socialiste semi-littéraire.
 Tu refais en abrégé la tentative de la librairie.
 
 Tu y perds — ou tu y consacres, c'est la même chose
@@ -417,7 +391,6 @@ Je te prie de croire d'ailleurs que je ne demande qu'à
 ton ami.
 
 La même enveloppe contenait une feuille simple
-Mercredi 5, soir
 Mon cher Péguy
 
 Hier matin j'ai écrit d'un jet la lettre ci-jointe; à la
@@ -428,7 +401,6 @@ Il me paraît que tu dogmatises trop en ce sens que
 tu ériges en types des individus souvent très particuliers, et surtout insignifiants. Je crains que cela ne
 
 tienne à ce que connaissant bien certains individus en
-nombre limité, — vivant peu d'autre part en terrain varié
 soit dans les livres soit dans la société, — tu as tendance à approfondir et à généraliser à la fois. Par
 exemple je —
 
@@ -456,7 +428,6 @@ Crois-moi ton ami. .
 cinquième cahier de la deuxième série
 
 — Cette lettre, dit Pierre Deloire, me paraît d'un ami
-véritable.
 
 — Est-ce tout? demanda Pierre Baudouin.
 — C'est tout. J'ai un désabonnemeni sans explication.
@@ -528,7 +499,6 @@ cinq sociétaires pour qu'ils devinssent les administrateurs de la commune Soci�
 hommes exerçaient une autorité, une autorité anonyme,
 le cinquième de l'autorité totale dans un monde clos, le
 seul fait qu'ils étaient un conseil, un comité, qu'ils délibéraient et votaient, qu'ils siégeaient, les avait faits
-méconnaissables.
 
 L'exécution fut rapide. Ils démentaient leur langage
 de la veille et leur pensée intime, ils démentaient toute
@@ -564,7 +534,6 @@ anarchiste : nous marcherons contre vous de toutes nos
 forces. Mario Roques a bien voulu n'assurer depuis que
 Herr était trop bon pour avoir tenu parole, et que sa
 déclaration de guerre lui avait coûté beaucoup à prononcer. Mais elle me coûta beaucoup plus à recevoir. Je
-me retirai abruti.
 
 Je rédigeai le premier cahier dans cette angoisse et
 dans cette amertume. Résolu quand même à travailler
@@ -574,7 +543,6 @@ rappelai soigneusement le Prince de Bismarck, de
 Charles Andler. J'y rappelai l'Histoire des Variations
 de l'État-Major. J'y annonçai l'édition du « Compte
 rendu sténographique officiel du Congrès général des
-Organisations Socialistes Françaises tenu à Paris en
 Décembre 1899 ». Vous êtes mes anciens abonnés. Vous
 avez chez vous ce cahier du 5 janvier 1900. Vous avez
 lu ces rappels studieux et ces annonces. Enfin, et
@@ -582,11 +550,7 @@ surtout, voulant donner à la maison que j'ai fondée, à
 un livre que j'ai fait, la quatrième page de ma couverture je la disposai comme suit. Permettez que je la
 remette exactement sous vos yeux
 SOCIÉTÉ NOUVELLE DE LIBRAIRIE ET D'ÉDITION, 17, rue Cujas
-troisième édition
-PREMIÈRE SÉRIE
-LE SOCIALISME ET L'ENSEIGNEMENT | LE SOCIALISME ET LES PEUPLES
 
-Instruction - Éducation - Culture
 La guerre = Les alliances - La pai
 
 l'enseignement ; ' Mae
@@ -605,7 +569,6 @@ La bee religieuse ; Léon France et l'Allemagne
 et le catholicisme social
 Les libertés du parane en- La France et la Russie; la
 seignant; interpellation Thierry | double alliance »; le Tsar
-Cazes ; Paris
 L'enseignement laïque et l'en- ï
 seignement clérical ; réponse à La France en Orient; les masM. d'Hulst; sacres d'Arménie; la guerre de
 
@@ -628,10 +591,6 @@ copie de lettres. J'omets les passages privés.
 
 — Provisoirement nous vous permettons de les garder
 pour vous.
-
-— Société Nouvelle, — 17, rue Cujas, —
-
-janvier 1900
 
 — — Il nous paraît impossible, aujourd'hui que vous
 êtes résolu à entreprendre une œuvre que nous sommes
@@ -665,7 +624,6 @@ articles déjà publiés dans un journal soient donnés une
 seconde fois dans un périodique avant leur réunion en
 brochure, sous peine de rendre la brochure elle-même
 superflue. Il nous paraît donc que votre proposition ne
-peut être admise.
 
 ce propos, et pour que l'indépendance de votre
 périodique ne fasse doute pour personne, nous vous
@@ -678,7 +636,6 @@ Société, ou se publie d'accord avec la Société.
 Croyez à tous mes sentiments dévoués.
 
 Pour le Conseil d'administration
-Lucien Herr
 
 Quand se tint l'assemblée générale de la Société, en
 janvier, Herr lut au nom du Conseil d'administration
@@ -687,12 +644,10 @@ comme employé démissionnaire, mais comme sociétaire
 infidèle, comme auteur des cahiers.
 
 — Nous vous demandons communication de ce
-rapport.
 
 — Demandez-le. Vous nous dites que vous y êtes mis
 en cause. Réclamez-le. ‘
 
-Paris, samedi 20 octobre
 Mon cher ami,
 
 La partie du rapport de Janvier qui vous concerne
@@ -708,9 +663,7 @@ Je passe un paragraphe personnel et privé.
 — Provisoirement nous vous permettons de le passer.
 
 Votre affectueusement dévoué
-Lucien Herr
 Sur une redemande un peu motivée il me répondit
-Paris, lundi
 Mon cher ami,
 
 Je crains de m'être mal exprimé. Vous paraissez
@@ -730,10 +683,8 @@ répète, que ces documents vous seront donc toujours
 communiqués selon votre désir, et que vous pourrez
 prendre copie des parties que vous jugerez bon, mais
 nous sommes obligés de vous demander l'engagement
-deneles communiquer à aucune personne étrangère
 la société, ni de les publier.
 Votre affectueusement dévoué
-Lucien Herr
 Le jeudi matin j'allaien conseil expliquer pourquoi je
 tenais à ce que la communication des pages qui n'intéressaient me fût donnée sans condition ni réserve.
 L'entretien fut assez cordial, mais le conseil s'en tint
@@ -748,14 +699,12 @@ mais un de ces réquisitoires mouillés de tendresse qui
 fondé une revue ayant le caractère et le format du
 Mouvement Socialiste. Je fus imbibé, liquidé. Je ne me
 défendis pas. Quand lauteur eut fini sa lecture je
-répondis textuellement
 — Je ne veux pas dépenser le temps de l'assemblée
 
 générale pour un cas individuel. Ceux de vous qui
 après avoir entendu l'accusation voudront m'entendre
 en ma défense me trouveront au siège des cahiers, 19,
 rue des Fossés-Saint-Jacques, le lundi et le jeudi, de
-deux heures à sept heures.
 
 — Y allèrent-ils ?
 
@@ -770,7 +719,6 @@ taires la partie du rapport qui me maltraitait.
 
 Je répondis à cette accusation en publiant dans le
 deuxième cahier, à la page trois de la couverture, cet
-avis
 Nous annonçons ici les publications que nous voulons
 signaler à nos lecteurs, sans demander aux éditeurs
 ni leur avis ni leur finance. Aucun éditeur ne peut
@@ -809,7 +757,6 @@ m'en demandait le tirage à part. Je le lui refusai. Je
 proposai à la Société Nouvelle de faire une édition commune avec les cahiers. On en demanda l'autorisation
 Dejean. C'était vouloir que l'édition ne se fit pas. Dejean,
 me dit-on, réclama des droits d'auteur. Les imprimeurs
-distribuèrent.
 
 Dans le septième cahier, page 53, éenue du congrès
 national, j'annonçais encore le Compte rendu sténo-
@@ -833,12 +780,10 @@ de 752 pages très peu denses, pour dix francs.
 — Rassure-toi : on ne l'a pas demandé.
 
 — Taiïs-toi, dit Pierre Deloire, écoute la lecture des
-textes.
 
 — J'avais annoncé déjà, et j'ai annoncé plusieurs
 fois le Coltineur débile. Septième cahier, de la grippe,
 je dis au docteur socialiste révolutionnaire moraliste
-internationaliste
 j'achèterai un petit Sophocle. La première fois —
 
 cinquième cahier de la deuxième série
@@ -866,7 +811,6 @@ manifesté sa courtoisie. La lumière ne pourrait sans
 doute recevoir l'hospitalité de la librairie.
 
 Au demeurant, vous avez les cahiers de la deuxième
-série.
 
 — Oui, mais nous vous requérons de nous énoncer
 les faits de la nouvelle année scolaire.
@@ -932,7 +876,6 @@ ces textes et ces faits.
 Il avait pris des notes à mesure que j'avais lu. Il y jeta
 les yeux.
 
-PREMIER CHEF D'ACCUSATION
 — Pardon, dit Pierre Baudouin, je demande à savoir
 qui sont les accusateurs. J'en ai assez des anonymais et
 des pseudonymats. Je n'en veux plus.
@@ -996,9 +939,7 @@ un propagandeur et des propagandables; un propagandeur est quelqu'un qui sait; l
 tout le monde qui ne sait pas, les imbéciles, comme
 Simiand dit. Celui qui sait enseigne ceux qui ne savent
 pas. Pour les enseigner il transforme, — sans les déformer, — les réalités. Il masque certains faits, certains
-hommes, certains événements, certaines idées, certaines
 images. Il fait valoir certains faits, certains hommes,
-certains événements, certaines idées, certaines images.
 Il introduit certains jeux de lumière. Il dispose, propose
 et compose les plans. Il ordonne les perspectives. Il
 distribue, produit et contribue les couleurs. Il obtient
@@ -1058,11 +999,8 @@ coup bien intentionné.
 
 — Assez causé, dit Pierre Deloire.
 
-‘ DEUXIÈME CHEF D'ACCUSATION
-
 Péguy est accusé d'avoir accueilli ou mis dans les
 cahiers de la copie qui nuit à la propagande. Qu'il s'en
-défende.
 
 — Il est trop bête. Je le défendrai. Péguy trahit la
 République. Si jeune ! Et qu'ont-ils fait pour la République ceux qui l'accusent de trahir la République. Je
@@ -1113,10 +1051,8 @@ que des tyrans. Il fallait que le suffrage universel fût
 un seul degré, le double degré ne pouvant qu'éliminer
 les meilleurs candidats. La consigne était que M. Léon
 Bourgeois préparait infailliblement la voie du seigneur
-socialisme révolutionnaire, moins résolument toutefois
 que M. Doumer. La consigne était que l'impôt pro- ‘
 gressif sur le revenu constituait la réforme la plus
-profonde, immédiatement après laquelle adviendraient
 les premiers décrets de la Révolution sociale. Et cependant que M. Léon Bourgeois était le précurseur et
 M. Doumer le sous-saint-Jean-Baptiste, ou l'aide-saintJean-Baptiste, la consigne était que M. Trarieux, un
 sénateur ! était la plus réactionnaire des canailles ou le
@@ -1228,7 +1164,6 @@ de soldats et d'ofliciers, quand ils sont honnêtes et bons
 citoyens. Mais je ne consens pas qu'il advienne au socialisme révolutionnaire la contamination qui est advenue à la nation française. La nation française avait
 une armée. Il était inévitable que la nation française
 eût une armée. Il était inévitable, dans la situation de
-concurrence internationale bourgeoise indéfiniment
 surexcitée où l'Europe se crève, il était inévitable que
 la nation française eût une armée, c'est-à-dire que pendant certaines années certains citoyens fissent leur mé-
 tier de la préparation technique aux travaux de la
@@ -1388,7 +1323,6 @@ cinquième cahier de la deuxième série
 rité infime. Et pour longtemps nous sommes en infimité.
 Pourquoi dès lors introduire dans nos relations mutuelles comme le seul régulateur cette loi bourgeoise immorale et dérationnelle que les bourgeoïs eux-mêmes
 ont soin de ne pas utiliser contre nous jusqu'en sa
-rigueur extrême.
 
 .. Pourquoi ? Parce que nos censeurs ne sont pas moins
 contaminés de l'insincérité bourgeoise qu'ils ne sont contaminés de lautorité bourgeoise. Tout cela se tient.
@@ -1468,7 +1402,6 @@ quelque humilité à la génération que nous sommes, au
 socialisme que nous sommes. Loin de là : nos chefs
 s'enrouent à chanter les hymnes et les actions de
 
-grâces. Confondant en eux deux fonctions militaires,
 ils font à la fois la fanfare et le commandement. Quand
 les corps expéditionnaires de Chine sont partis, on a
 osé invoquer ce premier essai de confédération européenne. Et quand les chefs sont réunis en congrès, tout
@@ -1532,7 +1465,6 @@ les censeurs qui n'en font pas Ce sera le premier point
 de ma défense. Fi
 
 s'arrêta pour souffler un peu, parce qu'il était
-essoufflé.
 
 — Nous en resterons donc au premier point, dit
 Pierre Deloire, parce que c'est assez causé pour aujourd'hui. Tu as de la chance que je ne sois pas un président
@@ -1556,7 +1488,6 @@ gars! ou un compte rendu historique sur ce plan: J'ai
 ou ceci et entendu ceci. Alors j'ai fait ceci.
 
 — Ce sera, dis-je, autant que je le pourrai, un compte
-rendu historique.
 
 Au moment où nous mettons sous presse, Bourgeois
 me rend compte que le lancement administratif de la
@@ -1578,7 +1509,6 @@ certains prétendus socialistes nous refusent parce que
 nous entendons rester libres, justes, et vrais, du moins
 autant que nous le pourrons.
 Le dépouillement de tout ce courrier financier et d'un
-nombreux courrier administratif spontané a demandé
 à l'administration un travail incroyable et qui n'est pas
 fini. Ce travail a seul retardé l'envoi du quatrième
 cahier. Nous ne voulions pas en effet envoyer le beau
@@ -1669,7 +1599,6 @@ part, qui est à peu près épuisé en librairie. Nous en
 publions donc la seconde édition, revue par l'auteur,
 qui a refondu tout le jeu de la foule au troisième acte.
 Ce très gros cahier sera mis dans le commerce et
-vendu trois francs.
 
 Nos abonnés ont lu dans le premier cahier de la
 deuxième série que M. Charles Guieysse, ancien ofjicier d'artillerie, ferait à l'école des hautes études
@@ -1686,11 +1615,8 @@ postale à M. André Bourgeois. Le recouvrement par la
 poste belge des reçus français est ainsi organisé que
 les mandats des reçus acceptés nous reviennent sans
 
-référence nominative.
-
 Nous prions nos souscripteurs et nos abonnés de vouloir bien nous envoyer des mandats de poste plutôt que
 des bons : le mandat est une pièce d''administration-plus
-complète.
 
 En résumé nous demandons à tous nos abonnés de
 vouloir bien nous manifester leurs intentions fermes,

@@ -7,9 +7,4 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 3
 ---
-
-*Charles Péguy*
-
-
-
 ---

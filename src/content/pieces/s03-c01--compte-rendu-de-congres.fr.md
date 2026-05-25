@@ -7,10 +7,7 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 18629
 ---
-
 ## Compte rendu de congrès
-
-*Charles Péguy*
 
 A và £ ee : KES __ Pendant les loisirs des vacances, — Il est temps, dit RE Pierre Baudouin, que vous nous rendiez compte ainsi Ce: À. Ut EN EE _ que vous nous l'avez promis. CARE. —Et même il est plus que temps, dit brutalement mon cousin. PER 1 …_ —JIlest toujours temps, dit posément Pierre Deloire. 5 SE à. 38 NW -. s Et x ; ‘4 Pierre Deloire paraissait soucieux. — Oui, dit-il à Na. mon cousin, j'ai un ami qui dépérit. On le voit blanc de g …_ peau, l'œil cave, les yeux cernés, les joues creuses, … ne. décharné, fiévreux, sans appétit, mal osseux. IL rentre ue …_ à minuit, une heure, deux heures, trois heures dumatin. ‘4 J'ai peur que des bandits l'attaquent en passant les se __ —Scrait-ce, demanda Pierre Baudouin, qu'ilvadire _ bonsoir à son amie. : st — Vous nous conterez son histoire, dit mon cousin, ‘4 _.._ aussitôt — me montrant d'un coup d'épaule — qu'il … aura fini son compte rendu. £ 53 __ — Je ne sais comment procéder. Le premier congrès ft _ général des Organisations socialistes françaises a été “# …_ tenu à Paris du 3 au 8 décembre 1899; le deuxième = congrès général des Organisations socialistes françaises nn: _ à été tenu à Paris du 28 au 30 septembre 1900; le \ cinq uième congrès socialiste international avait été "el à tenu à Paris du 23 au 27 septembre 1900. Je ne suis pas 4. ; D core de Lyon. Se dei ap: LA RER ER CRE PAST à pi RÉ À: 27 PIE I. OEM
 
@@ -21,8 +18,6 @@ Me, dE eu
 I. — Congrès général des Organisations socialistes françaises, tenu à Paris du 3 au 8 décembre 1899, — compte rendu sténographique officiel, — édité par la Société nouvelle de librairie et d'édition, 17, rue Cujas, Paris.
 
 Je continuai, comme libraire : < un volume in-1 6 de VIII-502 pages francs
-
-Pierre Deloire :
 
 II. — Deuxième congrès général des Organisations socialistes françaises, tenu à Paris du 23 au 30 sep- tembre 1900, — compte rendu sténographique officiel, — édité par la Société nouvelle de librairie et d'édition, 17, rue Cujas, Paris.
 
@@ -85,8 +80,6 @@ L qui ont marqué les étapes de l'humanité n'ont presque jamais été désiré
 ceux qui étaient les hommes les meilleurs, les hommes i ayant la mémoire la meilleure, mais les hommes au 1
 
 contraire qui avaient la mémoire la plus conservante, 4
-
-10 e J Vo 12
 
 A dE 1154 c'est-à-dire la moins vivante, enfin les hommes qui ï 1501) étaient le plus commodes, le plus commodément “ utiles aux historiens. Ils aimaient qui leur servait. ; 1700 Et ils aimaient à croire qu'on leur servait parfai-. tement. Les documents, monuments et témoignages ni leur, paraissaient volontiers inattaquables, quand ‘ ils avaient satisfait à certaines règles, résisté à 4 ‘4 certaines épreuves, quand les témoins étaient impar4 tiaux et qu'ils s'accordaient. Mais voici que nous 4 F. reconnaissons de toute évidence que ces témoins même, À 4 impartiaux et concordants, leurs témoignages n'étaient c 4 pas des monuments de pierre, mais des actes vivants, he. des effets vivants, des monuments vivants, au sens où. + un homme est le monument de sa race, les éléments 4 ‘# vivants d'une conscience vivante, d'une mémoire 4 vivante. Et dominant, mais ne les annulant pas, domiÀ. nant les anciennes règles des méthodes scientifiques, et À commandant aux anciennes prudences, et se les subor2 donnant, apparaît aux historiens cette loi capitale de ne modestie : que le témoignage initial est fait, que tant ? #4 à soit honnête homme le témoin, et si probe qu'on le fé LL. veuille, son témoignage est fait. Que si nous voulions : descendre un peu plus profond, non seulement son : ES: j témoignage est fait au moment où il vous le donne, He historiens, mais le témoin fait l'image première dont il à _ témoiïgnera quand vous le citerez. Non seulement le 1 témoignage est fait, mais le modèle du témoignage, Da l'origine, le fait est fait. Le témoin ne l'a pas fait tout, J _ maisily a contribué, principalement sans doute. Il a 35 de toute sa vie antérieure préparé, entouré, fomenté le f l Re fait où vous vous jetez, vous historiens, comme sur un ne. morceau de pain sec. On vous rappelle ainsi à la modestie indispensable. On vous présente la contrariété qui est pour vous. Ne niez pas. Elle est fondamentale et je vais vous le montrer sur cet exemple.
 
@@ -164,8 +157,6 @@ F enthousiasme était mal justifié, que nous voulions le ressentir, j'ai peur q
 
 pensons — : le meilleur historien est tout de même celui qui aime le mieux la belle histoire. Michelet.
 
-— Michelet.
-
 — Michelet, répéta mon cousin pour se moquer d'eux.
 
 — Mais je ne saurai jamais conter aussi bien que ma : grand mère. Je ne crois pas qu'il soit immoral de se débarrasser momentanément du présent, füt-ce du devoir présent, et du travail présent, pour se représenter du passé. Pas plus que ma grand mère ne péchait, pas plus que je ne péchais, l'humanité ne pèche quand elle se complaît à l'histoire. L'histoire est à elle, enfin. C'est elle qui l'a faite. Et quand même elle aurait une jouissance à recouvrer un passé que le temps lui dérobe automatiquement, ne lui ; dérobons pas, nous hommes, la joie de cette recou- vrance. Quand j'étais en cinquième, et que je commençai à lire dans le grec les histoires du temps que l'humanité gardait les vaches, avec une singulière impression d'agrandissement, c'est-à-dire de libération, je connus, pour ma part d'humanité, cette unique joie : de savoir que j'entendais ces poètes irréparablement morts et depuis la mort de qui tant de poètes étaient morts par couches. N'en doutez pas : la popularité de Priam et d'Astyanax, et d'Andromaque, d'OEdipe et Antigone, et de Prométhée parmi nous vient de là, et d'ailleurs aussi, de causes fortes, et non pas du
@@ -173,8 +164,6 @@ pensons — : le meilleur historien est tout de même celui qui aime le mieux la
 \ baccalauréat, comme on voudrait nous le faire croire, comme nous le veulent faire croire ceux qui substitueraient des cuistreries modernes aux cuistreries des modernes sur l'antique, au lieu d'exterminer de la cité
 
 { la cuistrerie et les cuistres. Et naguère enfin, quand th ; 20
-
-de :
 
 7e ve En EEE FR notre ancien maître, M. Joseph Bédier, nous eut restitué à l'unique, le parfait, l'admirable roman de Tristan et ÿ Iseut, outre toute la beauté du poème, n'avons-nous' pas senti la singulière joie de recevoir comme un contemporain cette impérissable beauté ? Que l'humanité aime les histoires de trois mille ou de six cent cinquante ans et que j'aime une histoire de deux ans qui nous est devenue si lointaine, je ne consens pas qu'on nous le reproche. La saine ivresse du souvenir et du rajeunissement vaut mieux que l'ivresse fumeuse du scrupule catholique. ê Réjouissons-nous donc dans la jeunesse de l'humanité. Réjouissons-nous, retrempons-nous dans la jeunesse du socialisme. Et c'est ici que je vous reprends au demi-tour, c'est ici que je ferme le circuit que vous FE avez si imprudemment ouvert. Au commencement vous avez bravé parce que la perpétuelle opération de Ë la vie interdisait au chroniqueur une exacte narration. Mais c'est aussi l'opération de la vie qui exige que cependant il y ait des narrations. L'histoire est la ! mémoire de l'humanité. Autant la mémoire individuelle est indispensable non seulement pour les travaux, mais pour les actes les plus simples, pour manger, boire À et marcher, pour dormir, autant l'histoire est indispen_ sable à la commune humanité. L'acte commun le plus ; simple, comme d'acheter et de payer, de chanter en chœur ou de parler à des enfants suppose beaucoup à d'histoire. La vie et l'action commune exige l'histoire. \ L'histoire est donc plus vieille que nous, monsieur le l philosophe, et plus forte que vous. Et si nous les 4 historiens ne lui contons pas des histoires bien faites, ( Ke lhumanité se contera des histoires mal faites. Si nous 21 4
 
@@ -208,8 +197,6 @@ Mais de cette somme on doit retrancher pour l'inventaire la valeur des cahiers q
 
 F environ 900 exemplaires du Jean Coste, au moins
 
-\ 1800 francs
-
 ! environ 200 exemplaires du Danton, au moins
 
 4 500 francs quelques exemplaires de Vers l'action, au plus
@@ -233,8 +220,6 @@ Nous aurons cette année à payer un loyer. La très libérale hospitalité que 
 À gré d'avoir ainsi conservé une situation centrale.
 
 Nos dépenses varieront donc selon ce que nous publierons.
-
-L 29 IL.
 
 ù M. Charles Guieysse, le secrétaire général de la Société
 
@@ -285,8 +270,6 @@ F nous attendons impatiemment qu'il nous l'apporte.
 È Romain Rolland nous donnera le 1% Juillet que à Gémier jouera cette saison.
 
 : Nous avons depuis longtemps le second roman
-
-J d'Antonin Lavergne, Tantoune.
 
 À Nous avons depuis le commencement de la deuxième l série la Grève de Jean Hugues.
 
@@ -352,8 +335,6 @@ Nous avons eu cinq ou six abonnements de souscription à la deuxième série. No
 
 : Nous pouvons avoir au moins huit cents abonnements ordinaires. Je me permets de rappeler à nos abonnés que l'abonnement ordinaire, et c'est pour cela que nous le nommons ainsi, estle seul qui soit commer-
 
-4o :
-
 +.. cialement égal au prix de revient. Que l'on aligne sur ; la planche de sa bibliothèque les seize cahiers de la vingt francs d'éditions. A plus forte raison la troisième série si nos abonnés nous fournissent les moyens de la y publier complète. Je me permets d'y insister parce qu'un examen de nos livres nous montre que si plusieurs abonnés n'ont pas souscrit un abonnement ordinaire, c'est évidemment pour la seule raison qu'ils n'y ont pas pensé. Toutes les fois que nos abonnés ont pensé à la valeur commerciale de leur abonnement, ils se sont eux-mêmes classés avec une exactitude admirable dans la région budgé taire qui leur convenait. Quand nous avons décidé que pour huit francs, ou pour vingt francs, ou pour cent francs nos abonnés de propagande, nos abonnés ordinaires, et nos abonnés de souscription recevraient ' les mêmes cahiers, les malins disaient en riant : Parbleu, tout le monde s'abonnera pour huit francs. Les malins se trompaient. Les malins se trompent toumr. jours. De là leur vient leur assurance, et la réputation qu'ils ont. Je le répète, et cela est conforme à ce que Ke nous avions prévu : toutes les fois que nos abonnés se 4 sont posé la question, ils se sont eux-mêmes situés dans 5 la classe où ils devaient. Et si nous insistons aujourFe d'hui, c'est pour que tous veuillent bien se poser la _ question. "( Puisque nous en sommes aux compliments je dirai 4 sans plus tarder combien nous avons été profondément Lheureux de la libéralité humaine avec laquelle nos abonnés ont accueilli le quinzième cahier de la série e ‘ précédente : Mémoires et dossiers pour les libertés du personnel enseignant en France. Comme les précédents ce cahier a soulevé du mouvement, de la pensée, du travail. Mais pas une seule menace. Un abonné, toulousain, nous a fait dire par un ami qu'il n'admettait pas que l'on défendit Jaurès. Comme il nous envoyait par le même courrier le montant de son abonnement, nous sommes rassurés sur sa mentalité. Nous recevons dans notre courrier des sentiments affectueux et parfois des sentiments sévères. Mais depuis six mois l'expression Je me désabonne a complètement disparu de notre vocabulaire. Ayant reçu le quinzième cahier, Gustave Téry ! a négligé de se désabonner. Il en a même acheté un second exemplaire. Si les mœurs de la véritable liberté intellectuelle peuvent s'introduire, se maintenir et s'élargir parmi nous, je le déclare à nouveau, c'est un commencement de révolution beaucoup plus important que tous les parlementarismes que l'on nous fait.
 
 Nous pouvons avoir au moins mille abonnements de dit naguère, que l'abonnement de propagande nous est onéreux, mais que, justement à cause de cela, nous avons un gros intérêt à multiplier les abonnements de propagande. Ceux de nos abonnés qui ont administré quelque affaire nous entendent. Les frais généraux demeurant les mêmes, la composition, la mise en pages, l'imposition, la mise en train demeurant les mêmes, le prix de revient de chaque exemplaire diminue à mesure que le tirage monte. Ainsi un abonnement de propagande nous est onéreux, maïs zéro
@@ -373,8 +354,6 @@ Plusieurs de nos abonnés, plus pauvres encore, ont formé des abonnements colle
 \ plusieurs et souscrivent un abonnement de propagande que l'un d'eux, titulaire de l'abonnement, paie régulièrement par souscriptions mensuelles de un ou deux francs. Nous ne saurions trop encourager à procéder ainsi. Autant les groupes sont odieux quand ils sont constitués pour bavarder et commander, autant il est indispensable que des solidarités se forment sans aucune formalité pour lire, étudier, travailler.
 
 Non seulement nous prions nos abonnés de vouloir bien nous envoyer sans retard le premier mandat, mais
-
-; 44
 
 nous les prions de vouloir bien nous envoyer toujours spontanément les mandats qu'ils veulent nous envoyer. Les recouvrements par la poste nous sont très onéreux.
 
@@ -448,8 +427,6 @@ De quelle passion d'éditeur, de typographe, de correcteur, de gérant, d'auteur
 
 = vont émouvoir les populations. Laissons-leur cette éloquence.
 
-Travaillons. : à
-
 ; Tous nos abonnés doivent avoir le quinsième cahier libertés du personnel enseignant en France, où sous ce titre : attentats dans l'Yonne, nous avons commencé à publier l'histoire de M. Hervé. Nous en publions la suite “A. aujourd'hui, en plein chapitre, comme elle nous a été ( rédigée avant le commencement des vacances par quelJe qu'un de singulièrement bien informé.
 
 Il serait exagéré de prétendre que le Pioupiou fût une feuille militariste et patriotique, mais, en vérité, elle ne contenait guère que ce qu'on trouve couramment dans k les feuilles anarchistes, ce qu'on trouvait dans les feuilles socialistes il y a dix ans, au temps où le socia- lisme s'occupait moins de politicaillerie et davantage de ne propagande de principes. Mais ce qui sembla intolé-
@@ -493,8 +470,6 @@ On appela M. Hervé d'abord comme témoin, puis on l'interrogea comme inculpé ;
 comme inculpé, il refusa de donner aucun éclaircissei ment à la justice de son pays.
 
 On fit venir au parquet M. l'abbé Olivier, qui avait clairement désigné M. Hervé comme le Sans-Patrie ; M. l'abbé Olivier prétendit qu'il tenait le fait d'un +5 M. N*****#* ancien commensal de M. Hervé ; M. N****** fut appelé, confronté avec M. l'abbé Olivier, mais nia formellement avoir tenu le propos que lui attribuait l'homme d'église ; le chevaleresque abbé, qui s'efforçait À si généreusement de découvrir un adversaire courtois et doctrinaire, dut reconnaître que sa mémoire l'avait sans doute mal servi. Il dut battre en retraite, en déclarant que la rumeur publique tout au moins accusait
-
-M. Hervé.
 
 Le proviseur du lycée, M. Germain, fut ensuite entendu. Il n'avait jamais entretenu que des rapports courtois et cordiaux avec le professeur d'histoire inculpé, mais en bon fonctionnaire non seulement il déclara que la rumeur publique accusait M. Hervé: il ajouta qu'il croyait bien reconnaître dans les articles de SansPatrie la tournure d'esprit et jusqu'aux expressions mêmes de son subordonné.
 
@@ -566,8 +541,6 @@ M. Hervé a été frappé pour des actes politiques qu'on lui impute en dehors d
 
 Eh bien ! il s'agit de savoir si les fonctionnaires sont privés d'une partie de leurs droits de citoyens, en parti culier du droit d'exprimer et de propager leurs opinions politiques ; il s'agit de savoir si les éducateurs de la jeunesse de ce pays, qui se flatte d'être en république, si les maîtres qui ont pour mission de façonner des citoyens libres doivent être eux-mêmes, en matière politique, des esclaves.
 
-C 64
-
 La question est nettement posée dans un article récent, paru dans le Travailleur socialiste sous la signature de Sans-Patrie :
 
 La plupart de nos contemporains ont une singulière idée des droits des fonctionnaires : d'après la sagesse des nations, cette bonne vieille sagesse qui, il y a deux siècles, refusait là liberté de conscience aux minorités, il y a cinquante ans le droit de suffrage à ceux qui n'avaient pas de fortune, le fonctionnaire est un citoyen châtré de la moitié de ses droits politiques. On ne va pas jusqu'à lui refuser le droit de vote (le fonctionnaire. soldat seul en est privé pour des raisons toutes spé, ciales) ; on lui concède même le droit de penser dans “ a son for intérieur autrement que le gouvernement — et à f je voudrais bien savoir comment on pourrait l'en 1 empêcher. — Mais ce qu'on lui dénie énergiquement, M c'est le droit de dire en public ou d'écrire dans des …. journaux, même sous un pseudonyme, des choses a 4 désagréables au gouvernement ou à la majorité du À moment; car, bien entendu, si le fonctionnaire est gouk vernemental, il peut tout dire et tout écrire : il peut ? chanter en vers et en prose les beautés du régime 4 existant, flagorner les ministres, exalter le désintéA ressement d'un Monis ou la haute moralité d'un 4 Leygues, prouver par raisons démonstratives que le régime régnant est éternel, calomnier les doctrines ou à les hommes de l'opposition, aucun de ses chefs n'y 1 trouvera à redire. Dans son service, il pourra être L maladroit, négligent, inintelligent ; personne n'osera y
@@ -579,8 +552,6 @@ Li mémoires et dossiers personnel enseignant ! toucher, s'il est couvert par un
 É Qui n'a entendu ces belles raisons ? Le plus lamen4. table c'est que cette imbécile rengaine ce ne sont pas 1. seulement les nationalistes et les cléricaux qui nous la ne servent. Combien de fois ai-je dù relever de bons 4 républicains, même des socialistes, qui devant moi ; s'étonnaient que le gouvernement gardât à son service des fonctionnaires notoirement cléricaux. Tant il est 4 vrai que dans notre pays, qui porte le poids de dix dore siècles de monarchie, même les partis d'avant-garde ( ont dans le sang le virus monarchique et l'esprit autok. ritaire des anciens gouvernements despotiques ; quant 9 au gouvernement de la République, à l'exemple des anciennes monarchies, il ne voudrait dans ses administrations qu'un personnel de larbins.
 
 ji Vous dites, braves gens, que le gouvernement peut se débarrasser des fonctionnaires qui le combattent, ble puisqu'il les paye ? Mais votre gouvernement lui-même à: qui est-ce qui le paye ? Est-ce qu'il n'est pas entretenu, s payé par tous les contribuables ? Est-ce que les contri- , buables des partis de la majorité sont les seuls à payer ‘4 l'impôt ? Est-ce qu'il n'est pas payé par les réaction44 naires et les révolutionnaires, tout comme par les 4 républicains de gouvernement ? Est-ce que les fonctionKe _ naires ne contribuent pas, eux aussi, à entretenir le à gouvernement ?Si je suisfonctionnaire, le gouvernement
-
-\ÿy. a ; “a à à ;
 
 A me paye, mais moi aussi je le paye, en tant que contri buable. d ul D'ailleurs, si l'État me paye, il ne me paye pas pour
 
@@ -601,8 +572,6 @@ Fe Mais nous devrions tous être d'accord, à quelque
 “4 E parti que nous appartenions, pour réclamer une liberté k politique entière pour les fonctionnaires ! Tous les répu-
 
 —_ blicains dignes de ce nom, par principe libéral et
-
-(à 6
 
 mémoires et dossiers personnel enseignant démocratique; les autres, les réactionnaires de droite et les socialistes d'extrême-gauche par intérêt personnel, puisque tous les ministères républicains, qui pratiquent la politique de bascule, frappent, tantôt à droite, tantôt à gauche, les fonctionnaires des partis d'opposition. ;
 
@@ -639,7 +608,5 @@ de il se trouve que ce fonctionnaire appartient à un corps ï qui jouit de gara
 4 de fonctionnaires : M.'Hervé, en qualité d'agrégé de
 
 Ë l'Université, ne peut être privé de son traitement qu'avec l'agrément des tribunaux universitaires, le j: conseil académique et le conseil supérieur de l'Instruc- fé tion publique, et chacun sait que, depuis le beau réveil
-
-69 :
 
 : C4 4 mémoires et dossiers personnel enseignant des consciences et des énergies produit dans l'UniverEU.sité par l'affaire Dreyfus, il n'y a peut-être pas en France, à l'heure actuelle, de juridiction offrant autant de garanties d'indépendance, d'intelligence et de haute moralité. ; Or, en cas de non-lieu général en faveur des collaborateurs du Pioupiou ou en cas d'acquittement par la cour d'assises, M. Hervé est décidé à exiger sa réintégration à Sens, et à refuser tout autre poste : il faudra bien alors qu'on le traduise devant les tribunaux univer#4 sitaires, et la question de droit, la question du droit ni des fonctionnaires à l'indépendance politique, y sera 4 posée, que le ministre le veuille ou non. ‘à ns Nous avons tenu à reproduire la narration que l'on a ; lue exactement comme l'avait rédigée avant le commenM cement des vacances un auteur parfaitement renseigné. On sait que M. Hervé a depuis tenu ce qu'il avait à promis. On sait que la chambre des mises en accusa: tion rendit un arrêt de non-lieu en sa faveur, mais “ que l'accusation était retenue contre ses camarades, / ÿ ; qu'aussitôt il se dénonça lui-même au parquet par une i£ lettre que nous publierons. Comment M. Hervé fut Var alors impliqué dans les poursuites, comment l'affaire 4 fut renvoyée à une autre session d'assises, comment elle 14 sera jugée, quelles seront les conséquences universitaires du verdict, combien l'interpellation Pastre sera 4 remise encore de fois avant qu'elle vienne, et comment A à la distribution des prix du Concours général nn M. Leygues défendit éloquemment contre nous les d libertés du personnel enseignant, c'est là ce que nous ‘4 conterons à mesure que notre collaborateur nous ds enverra de sa copie.

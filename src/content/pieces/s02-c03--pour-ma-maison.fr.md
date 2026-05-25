@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 1967
 ---
-
-*Charles Péguy*
-
 En janvier 1898 mon ami l'éminent historien Pierre
 Deloire publiait dans la Revue Socialiste, sous la rubrique ordinaire littérature et philosophie, un article que
 je lui demande la permission de reproduire en entier
@@ -23,22 +20,16 @@ Envisageons la presse au point de vue industriel. Sa matière première est le p
 feuilles imprimées. Souvent, les frais de la transformation
 dépassent le prix de vente du produit fabrique, et le béné-
 fice ne vient que des sous-produits, ainsi qu'il arrive pour
-beaucoup d'industries.
 En journalisme, le sous-produit, c'est la publicité.
 .… Contrairement à l'opinion courante, ce ne sont pas les
 journaux à bon marché qui ont le plus besoin des annonces
 pour équilibrer leur budget. Le Petit Journal, le Petit \ J
 Parisien, journaux à un sou, gagnent sur leur papier. Par \ e
-Wara
 
 troisième cahier de la deuxième série
 contre, voici le compte d'exploitation du Figaro pour l'exercice 1896
-RECETTES
 Total des recettes. Irma 4.543.468 56
-DÉPENSES
 Fabrication du journal : rédaction, papier, impression, affranchissement, ete. : + . : 2.503.526 29
-nine
-Bénéfice eee MASenEIMS 1.492.643 97
 Ainsi, Le Figaro, journal à trois sous, ne réalise même
 pas, sur la vente et l'abonnement, de quoi subvenir à la
 moitié de ses frais généraux. Le surplus, et la totalité du
@@ -52,7 +43,6 @@ dimanche qui, pour cing sous, donnent soixante-qualre
 pages de grand format dont chacune contient autant de
 matières que: les quatre pages d'un journal parisien!
 
-Voilà done en France, en Angleterre, aux États-Unis,
 trois journaux en pleine prospérité, ne vivant que de la
 publicité. IL n'y à pas là, comme on le croit, un mal résultant du bas prix des journaux: j
 
@@ -108,7 +98,6 @@ détruit la cohésion de la société française, s'applaudissant de tout ce qui
 patrie. » À ces paroles ignorantes ou menteuses,
 opposons la réalité des vouloirs socialistes
 M. Georges Renard propose, entre autres, le
-remède suivant
 « 1° Fonder des journaux qui ne seraient plus
 aux mains d'un financier ou d'actionnaires anonymes, mais qui, soutenus par les cotisations régu-
 
@@ -140,7 +129,6 @@ doit donner l'enseignement.
 Ce journal serait nourri par les socialistes ; ceux-
 
 @) C'est-à-dire : tout article mercantile, et non, bien entendu, tout
-article rémunéré.
 
 (2) On pardonnera cette expression à l'inadvertance de notre ami.
 
@@ -168,7 +156,6 @@ complets et les pronostics des mêmes courses ; on
 n'y verrait pas en première page des articles exacts
 contre les théâtres de passe et en quatrième page,
 fidèlement insérées, les communications de ces
-mêmes théâtres.
 
 Ce journal ne serait pas rédigé par des journalistes professionnels, mais par les hommes de chaque
 métier; les moissonneurs y parleraient du blé, les
@@ -178,7 +165,6 @@ de l'enseignement et les philosophes de la philosophie ; on ne serait pas journa
 on disait, un honnête homme qui aurait un métier
 
 et qui, au besoin, écrirait de ce métier dans le
-journal.
 
 Ce journal serait exactement sincère, il n'embellirait jamais les faits, il n'embellirait jamais les
 espérances même.
@@ -240,7 +226,6 @@ mais un raccourci commode. Il publia ce raccourci dans
 la même Revue Socialiste, le 15 août 1897. Si imparfait
 que ce raccourci me paraisse à présent, il convient que
 je le reproduise en entier
-DE EA CITÉ SOCIALISTE
 
 Dans la cité socialiste les biens sociaux seront
 bien administrés.
@@ -256,6 +241,5 @@ la plupart des difficultés, des souffrances qui
 paraissent tenir au mauvais gouvernement des
 troisième cahier de la deuxième série
 hommes tiennent à la mauvaise administration des
-biens.
 
 ---

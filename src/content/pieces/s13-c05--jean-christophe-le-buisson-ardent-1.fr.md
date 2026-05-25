@@ -7,11 +7,6 @@ author: romain-rolland
 isAvertissement: false
 wordCount: 74416
 ---
-
-150 DE LA DEUXIÈME VERTU
-
-4 * RS te on.
-
 …. Pour éternellement liant les bras de ma justice, pour
 —_O éternellement déliant les bras de ma miséricorde.
 n_ Et contre ma justice inventant une justice même. ;
@@ -40,11 +35,8 @@ Or tout homme a le droit d'ensevelir son fils.
 d Tout homme sur terre, s'il a ce grand malheur
 De ne pas être mort avant son fils. Et moi seul, moi.
 
-10 Dieu,
 | Les bras liés par cette aventure,
 1 d. Moi seul à cette minute père après tant de pères,
-
-Le : 223
 
 2 74 le porche : RE MES
 | Moi seul je ne pouvais pas ensevelir mon fils. S
@@ -60,7 +52,6 @@ Le Centenier et ses hommes romains,
 La Vierge et les saintes femmes, :
 
 Et cette montagne et cette vallée, sur qui le soir 3
-descendait,
 
 Et mon peuple d'Israël et les pécheurs et ensemble ;
 
@@ -81,18 +72,10 @@ JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 6100
 
 EL SE er RE TE "AEr IS UNE RD A LR nn :
 
-Fou A71A à > NET
-240 _ JEAN-CHRISTOPHE RCE
-40 : CSC OR
-mere : Lane te”
 "Jean-Christophe, PREMIÈRE PARTIE. € ÉGE
-_ IL — L'Aube (V-9, mardi 2 février 1904). ÿ à RS
 
-…. II. — Le Matin (V-10, mardi 16 février 1904). : L424
 III. — L'Adolescent (VL-8, mardi 10 janvier 1905). Da avt
 - IV. — La Révolte. ÈS ss
-. el 1. SABLES MOUVANTS (VIII-4, mardi 13 novembre RS S
-Mr LE
 | - 1906); ‘à
 2 2. L'ENLISEMENT (VIII-6, mardi 11 décembre ER
 | 2e 3. LA DéLIrvRANCE (VIIl-9, mercredi 2 janvier Es
@@ -100,122 +83,41 @@ Mr LE
 Jean-Christophe à Paris, DEUXIÈME PARTIE. ‘1
 - I. — La Foire sur la Place (IX-13, mardi 17 mars me.
 
-:: LR - À 2
-un. 1908; IX-14, mardi 24 mars 1908). 7
 | II. — Antoinette (IX-15, mardi 31 mars 1908). de Ê
 | AI. — Dans la Maison (X-9, mardi 16 février 1909; V4
-ss Fe. _  X-10, mardi 23 février 1909). Ë
-vol 52
 {2 a Fin du Voyage, TROISIÈME PARTIE. .
 |“ I. — Les Amies (XI-7, mardi 25 janvier 1910; Xi-8 FR
-Fo 340 mardi 8 février 1910). LS
 | IL — Le Buisson Ardent. fs
 
 ensemble de Jean-Christophe sera complet en dix volumes 4 ;
-NA 2. eo uiSsON, — 1 A? - (ea
 
-x RES EQ
 ve TA
-x
-4: 1
 | À
-}e78
-à y SR
 
-TE Me RUES AR hu Pen NASA MEANS
-EE MT rRS ki FRERE PRES SR TANT NPD CS RER AS FAR
-PRTESTONER GPA : à LTEAMEREC LAS
-Pa | LITRES
-Da ÉTÉ
-KA . - ù 9 F4 FOUNRES He 1
 2: ne TRES nr RAT AE
 | 2 ANNE TIR ë SA £ je AUTRE au Là
-RER CEE ch y ACTOR Br + QE"
-PLAN" " 13 LÉ EETES
-“ US les a 2 PU => Re
-LMP en , AM MERE en: Due
 S NE LT k ZA FER EN SAME fr, à
-FPT" ES a 2 Se À GEL
-1e | LT
-ASS RE - er A. AA F:
 Ta : N NUE TE HET Eve
-‘TURN EL SNS
-y. MORT FC DR ES 458 ten %
-ER 7. MAGIE SSI
-HA C HS A ARE
-Din Ms: i LS 19 das. RME AE:
-RP 4 rt GRR À <
-Das" 4 L'7.HÉARE 2° PS
-7. HOT TN AUTRE OUTRRS
-
-LUS
 
 #
 
 #à
 
-pe.
-
-- “2
-
-LA
-me.
-
 ne
 
 #
 
-À L
-
-. Eu -srenepenos ur]
 Ÿ & d-a5 ma dur Æ Jus.
-{
-dia dr fus | d ] BP AE È
-He, _ D 2 CRE wc ;
 1e tom de ue vf ou CRÉES LE Re ‘
-D, y La eg Ea dE F P
-In filgue 1M%0uA0", | 1
-d — — = l
-M nas Er.
-SERRE Pa pe 0. RIN
 de Ja cendre. noxfta Fiache, fa- pe, fa pe mor ,
 Mie ie, Me mo l 7
-EE — —
-à (es te iihe Rs
-Del | CA ae à vue n 4e met A dy nuire murs
- e——
-?
-
-0e taf SAP A ER TER S RD CU 28 PURE MR EUR 0 RC DERTENRT A He
-En DAME ES PERS RES AL ES CAS 4 se : RE NE
-
-ES » ; NI S AREAS TE
 
 PAL Ee Ars ï AA L'ERES
-Dents 2 LS RE ER
-CE : É v@ ñ û AE DA “e LISE
-Lx ÉTAT NENRS : > ÿ DS L LFSUX PA ASS OR 10
 "LIN TES dt HCFR 6 RTE
-Re ral ga É | 2e PODNER ee
-se es f +. RS RÉ RS
-Re : NE ENTIER
 HE " 4 ni GPA st LORIE
-{DER | ET
-Li DEC T: L : SEE CANNES ENNE
-AT ÉTE Ré ; 4 A TE
-ES " \ : à SF TE Ent S ROIS
-2 PRES É ; CLR AMAR D el
-
-L $ Q - ee Rte %
-
-LR à 7 SEMAINES
-\RULAN = 4 AN DES. * HORS S
-1 Te e F4 4
 
 ER A RS ON ST me ct L- MT.
-2 “ L
 4 Calme du cœur. Les vents suspendus. L'air immo-
-ê bile…
 & Christophe était tranquille; la paix était en lui. Il 2
 FÆ éprouvait quelque fierté de l'avoir conquise. — Et
 F secrètement, il en était contrit. Il s''étonnait du silence.
@@ -240,7 +142,6 @@ en virtuose. Il se sentait, avec honte, devenir dilettante.
 ne autre chose et plus qu'un génie naturel : des passions,
 pe des douleurs qui remplissent la vie et lui donnent un
 Fe: sens. Sinon, l'on ne crée pas, on écrit des livres. »
-Fe 9 buisson. — x.
 
 | D
 la fin du voyage : à
@@ -256,13 +157,6 @@ que c'était là, sans doute, le terme inévitable; il se
 flattait d'être sorti de la tourmente, d'être devenu son ‘
 maître. Ce n'était pas beaucoup dire... Enfin! On règne à
 sur ce qu'on a, on est ce qu'on peut être... Il se croyait 4
-arrivé au port.
-
-j .
-a
-e
-
-;
 
 Les deux amis n'habitaient pas ensemble. Quand
 Jacqueline était partie, Christophe avait pensé qu'Olivier reviendrait s'installer chez lui. Mais Olivier ne
@@ -291,9 +185,6 @@ Tous deux causaïent peu, absorbés, l'un dans son art,
 l'autre dans ses souvenirs. La peine d'Olivier s'atté-
 nuaït; mais il ne faisait rien pour cela, il s'y complaisait presque : ce fut pendant longtemps sa seule raison
 
-II
-y
-
 la fin du voyage NS Re.
 de vivre. Il aimait son enfant; mais son enfant—un
 bébé vagissant — ne pouvait tenir grand place dans sa 7
@@ -305,7 +196,6 @@ imposer à tous les mêmes lois du cœur. Nul n'a le LA
 faut reconnaître au cœur le droit de n'être pas heureux, es
 en faisant son devoir. Ce qu'Olivier aimait le plus peut- À
 être en son enfant, c'était celle dont la chair l'avait E.
-formé.
 | : Jusqu'à ces derniers temps, il avait peu fait attention ;
 aux souffrances des autres. Il était un intellectuel, qui |
 vit trop enfermé en soi. Ce n'était pas égoïsme, c'était À
@@ -317,11 +207,9 @@ _ était, de tempérament, un petit aristocrate. Depuis
 l'enfance, en dépit de son cœur tendre, il s'était tenu À
 s éloigné de la foule, pour des raisons de délicatesse de À
 corps et d'âme. L'odeur et les pensées de ces gens lui 4
-répugnaient. ï 1
 Mais tout avait changé, à la suite d'un fait-divers 4
 . banal, dont il venait d'être le témoin. <
 
-‘4 ?
 Et _ Ilavait loué un appartement très modeste, dans le
 Æ $ haut Montrouge, non loin de Christophe et de Cécile.
 4 _ Le quartier était populaire, et la maison habitée par de :-
@@ -350,7 +238,6 @@ L… les saisir. Trop tard.
 nn. Un jour, en sortant de chez lui, il vit un rassemble-
 È ment devant la porte de la maison, autour de la
 im concierge qui pérorait. Il était si peu curieux qu'il eût
-: 4 13 À
 
 la fin du voyage |
 continué son chemin sans s'informer; mais la concierge, # |
@@ -386,7 +273,6 @@ apparition : ils étaient nés, le mois passé.
 — Le jour de leur naissance, racontait une voisine,
 l'aînée des cinq, la petite de onze ans, Justine— pauvre
 
-De LE BUISSON ARDENT
 . gosse! — s'est mise à sangloter, en demandant comment
 . elle viendrait à bout de les porter, tous les deux.
 Olivier revit sur-le-champ l'image de la fillette, — un
@@ -397,7 +283,6 @@ ou bien elle tenait par la main le frère de sept ans, un
 “garçon au minois fin et chétif, qui avait un œil perdu.
 —._ Quand ils se croisaient dans l'escalier, Olivier disait,
 . avec sa politesse distraite : ”
-. — Pardon, mademoiselle.
 
 Elle, ne disait rien; elle passait, raide, s'effaçant à
 peine; mais cette courtoisie illusoire lui faisait un
@@ -421,7 +306,6 @@ seau trop lourd la mort, comme une délivrance, — les
 - rentra dans sa chambre. Mais là, sentir ces morts près
 de lui. quelques cloisons l'en séparaient.. Penser qu'il
 … avait vécu à côté de ces angoisses!
-ët 15
 
 |: - la fin du voyage TR |
 Il alla voir Christophe. Il avait le cœur serré; il se
@@ -440,7 +324,6 @@ le suicide, à ce moment de sa vie où il se sentait en É-
 pleine force et ne concevait pas qu'on pût, pour quelque
 souffrance que ce fût, renoncer à la lutte. La souffrance M
 et la lutte, qu'y a-t-il de plus normal? C'est l'échine de Fi
-l'univers. { 4
 ? Olivier avait aussi passé par des épreuves semblables;
 mais jamais il n'avait pu en prendre son parti, ni pour « lui, ni pour les autres. Il avait l'horreur de cette misère, « où la vie de sa chère Antoinette s'était consumée. « Après qu'il avait épousé Jacqueline, quand il s'était
 laissé amollir par la richesse et l'amour, il avait eu
@@ -470,7 +353,6 @@ Le la Russie martyrisée, l'Afrique livrée en curée aux
 M humain. Il en fut suffoqué; il l'entendait partout, il ne
 He pouvait plus ne plus l'entendre, il ne pouvait plus conFa cevoir qu'il y eût des gens qui pensassent à autre chose.
 ÉÉ Il en parlait sans cesse à Christophe. Christophe, trou-
-“à blé, disait : PILE
 “ — Tais-toi! laisse-moi travailler. ;
 1 4 Et comme il avait peine à reprendre son équilibre, il
 fe: s''irritait, jurait : » — Au diable! Voilà ma journée perduel. Te voilà
@@ -479,7 +361,6 @@ F3 Olivier s'excusait :
 F6 — Mon petit, disait Christophe, il ne faut pas tou-
 —. jours regarder dans le gouffre. On ne peut plus vivre.
 
-v EME AIN VERRE .
 la fin du voyage F4
 
 — Il faut tendre la main à ceux qui sont dans le gouffre. À
@@ -516,8 +397,6 @@ moins frelaté. — Mon premier devoir, c'est de faire bien |
 ce que je fais, et de vous fabriquer une musique saine, À
 qui vous refasse du sang et mette en vous du soleil. LP
 
-;
-
 : Pour répandre le soleil sur les autres, il faut l'avoir
 en soi. Olivier en manquait. Comme les meilleurs d'aujourd''hui, il n'était pas assez fort pour rayonner la
 force, à lui tout seul. Il ne l'eût pu qu'en s'unissant avec
@@ -546,8 +425,6 @@ a peine à se satisfaire de la charité toute simple : elle
 arrose une si petite province du pays de misère! Son
 
 - action est presque toujours morcelée, fragmentaire ; elle
-
-; ”
 
 la fin du voyage SEE
 semble aller au hasard, et panser les blessures, au fur 4
@@ -584,10 +461,6 @@ comme des chiens aux écoutes : on les voit frémir et.
 aboyer au vent. Une injustice commise, à l'autre bout
 du monde, les faisait délirer.
 
-20 al
-
-12 )
-
 | % Ys LE BUISSON ARDENT
 — Aboiements dans la nuit. D'une ferme à l'autre, au
 milieu des grands bois, ils se répondaient sans répit. ë
@@ -603,7 +476,6 @@ M. c'est l'avenir étouffé, la liberté en danger. Pour le
 L_ peuple, c'est l'inégalité ; et pour l'élite, c'est l'égalité. Il
 By. a tant d'injustices différentes que chaque époque
 | choisit la sienne, — celle qu'elle combat, et celle qu'elle ”
-_ favorise.
 “. A ce moment,-le plus gros des efforts du monde
 E: étaient tournés contre les injustices sociales, — et
 “visaient inconsciemment à en produire de nouvelles.
@@ -628,13 +500,10 @@ la fin du voyage sh
 
 cette masse énorme de forces élémentaires, que des .
 
-chefs depuis peu tâchaient d'organiser, se dégageait
-
 une chaleur de brasier, des ondes électriques qui par-
 
 couraient, de proche en proche, le corps de la société
 
-humaine. À
 < Ce n'était pas par sa justice, ou par la nouveauté et |
 
 la force de ses idées que la cause de ce peuple remuait « la bourgeoisie intelligente, bien qu'ils voulussent le
@@ -664,10 +533,7 @@ transfusent leur sang. Alors la plante desséchée, la « rose de Jéricho, soud
 l'air de son arome violent. — Telles de ces pensées,
 
 dont l'éclatant drapeau menait les masses ouvrières à
-Ÿ 22
 
-QUY
-; LE BUISSON ARDENT
 3 l'assaut de la citadelle bourgeoise, étaient sorties du
 j cerveau de rêveurs bourgeois. Tant qu'elles étaient
 restées dans les livres des bourgeois, elles étaient
@@ -699,10 +565,7 @@ On admire l'abnégation des privilégiés français qui
 abdiquèrent leurs droits, dans la nuit du 4 Août. Ce
 qui est le plus admirable sans doute, c'est qu'ils n'ont
 pu faire autrement. J'imagine que bon nombre d'entre
-Ÿ 23
 
-Ne RP A LR
-s £Z RAR +22
 5 la fin du voyage LES
 ? | eux, rentrés dans leur hôtel, se sont dit: « Qu'ai-je fait?
 J'étais ivre. » La magnifique ivresse! Loué soitlebon À
@@ -721,14 +584,7 @@ souviendront encore que leurs arrière-grands-pères en à
 montait au cerveau des jeunes bourgeois de la généra- ‘1
 tion d'Olivier. Ils offraient leur classe en sacrifice au 44
 ÿ dieu nouveau, Deo ignoto : — le peuple. n°
-£ =
-1 !
-DNS | à
-i Di
 1 4
-* 4 Fos.
-: "#4
-nt 8e
 
 Certes ils n'étaient pas tous également sincères. s
 _ Beaucoup ne voyaient là qu'une occasion de se distin- ?
@@ -757,7 +613,6 @@ _ villes conquises, tandis que la mer se retire. La passe
 | & Cette canaïlle-là est de tous les partis; grâce à Dieu,
 Æ aucun parti n'en est responsable. Mais le dégoût que ces
 & aventuriers inspiraient aux sincères et aux convaincus
-L 5 25 buisson, — 2
 
 la fin du voyage "+
 avait conduit certains d'entre eux à désespérer de leur ‘M
@@ -791,15 +646,11 @@ de tout, sauf d'aimer. — D'autres satisfaisaient là un
 plaisir de raison, une logique impérieuse ; ils se sacrifiaient non aux hommes, mais aux idées. C'étaient les
 plus intrépides. Ils éprouvaient une joie orgueilleuse à
 
-fh
-
-LE BUISSON ARDENT
 déduire de leurs raisonnements la fin fatale de leur
 classe. Il leur eût été plus pénible de voir leurs prédictions démenties que d'être écrasés sous le poids. Dans
 leur ivresse intellectuelle, ils criaient à ceux du dehors:
 « Plus fort! Frappez plus fort! Qu'il ne reste plus rien
 de nous! » — Ils s'étaient faits les théoriciens de la
-violence.
 De la violence des autres. Car, suivant l'habitude,
 ces apôtres de l'énergie brutale étaient presque toujours des gens distingués et débiles. Plus d'un était
 fonctionnaire de cet État qu'il parlait de détruire, —
@@ -823,8 +674,6 @@ béat qui avait cru aux saintes majorités et qui en attendait le progrès humai
 … l'incapacité des majorités à se gouverner elles-mêmes,
 
 leur vénalité, leur veulerie, leur basse et peureuse aver-
-: à |
-5 L y
 
 la fin du voyage Mer SA
 sion de toute supériorité, leur lächeté oppressive; sou- Ee
@@ -835,7 +684,6 @@ royalistes de l'Action Française et les syndicalistes de 3
 la C. G. T. Balzac parle, quelque part, de ces hommes à
 de son temps, « aristocrates par inclination, qui se 4
 faisaient républicains par dépit, uniquement pour
-trouver beaucoup d'inférieurs parmi leurs égaux. »
 Maiïgre plaisir. Il faut contraindre ces inférieurs à se
 reconnaître tels; et pour cela, nul moyen qu'une autorité qui impose la suprématie de l'élite — ouvrière ou i |
 bourgeoise — au nombre qui l'opprime. Les jeunes ‘à
@@ -843,7 +691,6 @@ bourgeoise — au nombre qui l'opprime. Les jeunes ‘à
 royalistes, ou révolutionnaires, par amour-propre froissé é ï
 et par haine de l'égalité démocratique. Et les théori- 3
 _ ciens désintéressés, les philosophes de la violence, en x
-bonnes girouettes, se dressaient au-dessus d'eux, ori- A
 flammes de la tempête. se À
 Et il y avait enfin la bande des littérateurs en
 quête d'inspiration, — de ceux qui savent écrire, mais $
@@ -858,9 +705,6 @@ initiateurs. Une foule de littérateurs s'occupaient maintenant de politique, et
 | de l'État; tout leur était prétexte à former des ligues,
 brandir des manifestes, sauver le Capitole. Après les »
 28 0
-Le
-
-1e : LE BUISSON ARDENT
 
 4 intellectuels de l'avant-garde, les intellectuels de larrière : les uns valaient les autres. Chacun des deux
 
@@ -909,9 +753,6 @@ F mode littéraire qu'ils avaient contribué à fonder.
 
 E. fut le révolutionnaire par timidité.
 
-« 29 buisson. — 2, À
-:
-
 la fin du voyage “
 L'échantillon qu'il en avait sous les yeux se nommait #
 Pierre Canet. De très riche bourgeoisie, et de famille 4
@@ -942,10 +783,6 @@ cachent, ou se teignent en l'une des couleurs politiques ;
 l'ascendant de ses amis. a
 Suivant l'habitude, il s'était attaché surtout à celui
 qui était le plus différent de lui. Ce Français, bourgeois ;
-30 r
-$
-
-* | LE BUISSON ARDENT
 
 français et provincial dans l'âme, s'était fait le fidèle
 
@@ -1014,7 +851,6 @@ de la propriété, sa pusillanimité bourgeoise. Il n'osait « pas demander : «
 tout bas contre le sans-gêne de ces gens qui n'aiment
 rien tant qu'à se casser le cou, sans s'inquiéter de « savoir s'ils ne risquent pas de casser en même temps le À
 #
-32 À
 
 ze ; LE BUISSON ARDENT
 | cou des autres. — Qui l'obligeait à les suivre ? N'était-il
@@ -1072,15 +908,7 @@ blanches, et qui annoncent que la bourrasque vient.
 
 |
 
-À
-
-}
-
-F
-
 |
-
-ï
 
 $ Olivier et Christophe regardaient venir le vent. Tous
 deux avaient de bons yeux. Mais ils ne voyaient pas,
@@ -1121,7 +949,6 @@ ne sais pas si le droit du plus faible n'est pas plus odieux
 la fin du voyage Es
 4 encore; il énerve la pensée d'aujourd'hui, il tyrannise |
 et exploite les forts. On dirait que ce soit devenu un E
-mérite d'être maladif, pauvre, inintelligent, vaincu, — Ë
 -un vice d'être fort, bien portant, heureux dans la |
 bataille, aristocrate de sang et d'esprit. Et le plus ;
 ridicule, c'est que les forts sont les premiers à le à
@@ -1146,13 +973,11 @@ toujours tenus en dehors de la politique. Olivier avouait, ;
 non sans un peu de honte, qu'il ne se souvenait pas
 d'avoir usé de ses droits d'électeur; depuis dix ans, il ;
 n'avait même pas retiré sa carte d'inscription à la |
-mairie. à
 — Pourquoi m''associer, disait-il, à une comédie que }
 | je sais inutile? Voter? Pour qui voter? Je n'ai pas de | ñ
 préférence entre des candidats qui me sont également 3
 inconnus, et qui, j'ai trop de raisons de l'attendre, 4
 
-Er LE BUISSON ARDENT
 _ dès le lendemain de l'élection, trahiront également leur
 . profession de foi. Les surveiller? Les rappeler au
 devoir ? Ma vie s'y passerait, sans fruit. Je n'ai ni le
@@ -1175,7 +1000,6 @@ pour mieux recommencer le jeu, et pour enjeu verse
 …_ héréditaire. Il était trop germanique pour bien goûter
 … l'idée d'une révolution. Il pensait qu'on ne change pas
 le monde. Que de théories, que de mots, quel fracas
-inutile ! ï
 — Je n'ai pas besoin, disait-il, de faire une révolution
 — ou des palabres sur la révolution — pour me prouver
 ma force. Surtout, je n'ai pas besoin, comme ces
@@ -1185,7 +1009,6 @@ Singulière preuve de force! Je sais me défendre moi_ même. Je ne suis pas un 
 … nécessaire, et je vénère les Lois qui gouvernent
 — l'univers. Mais entre elles et moi, je me passe d'inter4 4 PS 7 buisson. — 3
 
-+ FRA T7 À
 la fin du voyage a
 médiaire. Ma volonté sait commander, et elle sait aussi
 se soumettre. Vous qui avez la bouche pleine de vos
@@ -1218,16 +1041,7 @@ idées; la plupart étaient distraits par d'autres intérêts
 mondains, habitués à se disperser entre des occupations multiples, dont aucune n'était « nécessaire ». Il
 leur était à peu près impossible de pénétrer sous « l'écorce de l'art, de sentir son cœur caché; l'art n'était
 pas pour eux de la chair et du sang : c'était de la litté- ;
-rature. Leurs critiques érigeaient en théorie, d'ailleurs
 
-38 |
-x
-
-LI
-
-à
-
-É LE BUISSON ARDENT
 F intolérante, leur impuissance à sortir du dilettantisme.
 “ Quand par hasard quelques-uns étaient assez vibrants
 pour résonner à la voix de l'art, ils n'avaient pas la force à
@@ -1260,7 +1074,6 @@ généreux et naïfs, il caressait de grands projets d'art
 — mouvement social. Mais il se donnait le change : il
 £ était trop vivant pour ne pas être attiré, aspiré par
 Fr Je spectacle de l'action la plus vivante qui fût alors.
-Br
 
 la fin du voyage IE
 Ce qui l'intéressait le moins dans le spectacle, 4
@@ -1287,16 +1100,12 @@ avec un intérêt affectueux et moqueur; il se croyait $
 dégagé de la pièce qu'ils jouaient; et il ne s'apercevait
 pas que peu à peu il s'y laissait prendre. Il pensait « n'être qu'un spectateur, qui voit passer le vent. Déjà le
 vent l'avait touché et l'entrainait dans son remous de
-poussière. À
-À
-È 4
 
 A D RES A DA ARS apnée Ni CO e
 La pièce sociale était double. Celle que jouaient les *
 intellectuels était la comédie dans la comédie : le peuple
 _ ne l'écoutait guère. La vraie pièce était la sienne. Il » n'était pas facile de la suivre; lui-même n'arrivait pas x
 __ très bien à s'y reconnaître. Elle n'en avait que plus
-_  d'imprévu. . : ;
 É Ce n'était pas qu'on n'y parlât beaucoup plus qu'on A
 À: _ n'agissait. Bourgeois ou peuple, tout Français est grand
 0% mangeur de parole, autant que de pain. Mais tous ne
@@ -1318,9 +1127,7 @@ ADS. ramassées au décrochez-moi-ça de la rhétorique bour-
 .… geoise. Olivier s'étonnait surtout du manque de
 _ simplicité. Il oubliait que la simplicité littéraire n'est
 4 “pas chose naturelle, mais acquise : c'est la conquête
-: h:. a
 
-‘ à 2 e: Ge à É:
 la fin du voyage 3
 d'une élite. Le peuple des villes ne peut pas être simple; |
 il va toujours chercher, de préférence, les expressions À
@@ -1353,8 +1160,6 @@ unique tout son petit avoir et qui même n'avait pu,
 faute de ressources, lui permettre de la poursuivre LS
 jusqu'au bout, il avait obtenu, très jeune, dans une |
 administration de l'État, un de ces postes qui semblent
-
-‘4 LE BUISSON ARDENT
 
 “ à la bourgeoïsie pauvre le port, et qui sont la mort, —
 la mort vivante. Une fois entré là, il n'avait plus eu la
@@ -1396,7 +1201,6 @@ Me Pour oublier, il avait recours, depuis peu, comme bien
 — Christophe, qui avait lié connaissance avec lui, fat
 
 4 43
-A;
 
 la fin du voyage ri
 É frappé du tragique de cette destinée : une nature incom- À
@@ -1410,7 +1214,6 @@ l'entraîna dans des réunions populaires et lui fit voir À
 quelques chefs du parti syndicaliste, auquel il ne s'unis- |
 sait que par rancune contre la société. Car il était un |
 aristocrate manqué. Il souffrait amèrement d'être mêlé |
-au peuple. | |
 Christophe, beaucoup plus peuple que lui, — d'autant
 plus qu'il n'était pas forcé de l'être, — prit plaisir à ces ÿ
 meetings. Les discours l'amusaient. IL ne partageait ]
@@ -1430,10 +1233,7 @@ rares, la barbe en pointe. Son pouvoir tenait moins à
 sa mimique, qui était pauvre, saccadée, rarement
 d'accord avec sa parole, — il tenait moins à sa parole,
 qui était rauque et sifflante, avec des aspirations
-44 3 |
 
-Le RE _ LE BUISSON ARDENT
-Be. ; : è
 | is emphatiques, — qu'à sa personne même, à la violence
 _ de certitude et de volonté qui en émanait. Il ne semblait
 | …._ pas permettre qu'on püût penser autrement que lui; et
@@ -1462,7 +1262,6 @@ F: sociologie, de ses divers métiers ; il savait très mal
 Mes beaucoup d'autres ; et il était aussi sûr des unes que des
 RE: autres ; il avait des utopies, des idées justes, des ignok É rances, un esprit pratique, des préjugés, de l'expérience,
 5% une haine soupçonneuse pour la société bourgeoise.
-2 4 buisson. — 3,
 
 la fin du voyage F7 2
 Cela ne l'empêcha point d'accueillir bien Christophe; 4
@@ -1498,10 +1297,6 @@ Gautier, Simon, employé des chemins-de fer, révoqué :
 pour faits de grève. La maison était fréquentée par les
 syndicalistes. Ils étaient cinq ou six, dans une salle du
 
-46 |
-à
-
-25 LE BUISSON ARDENT
 _ fond qui donnait sur une courette intérieure, d'où
 montait éperdument le chant intarissable de deux
 canaris en cage vers la lumière. Joussier venait avec sa
@@ -1534,8 +1329,6 @@ fleuve, le cou et la voix de taureau. Excellent ouvrier,
 - comme Joussier, mais aimant rire et boire. Le malingre
 4 Joussier regardait eette santé indiscrète, avec des
 2 47
-
-Le.
 
 la fin du voyage HA 1
 yeux d'envie; et bien qu'ils fussent amis, une hostilité _
@@ -1574,12 +1367,6 @@ temps scrupuleusement économisé; et àil n'aimait pas à
 à perdre ainsi tant d'heures. Au reste, il ne savait ni î
 causer, ni boire. Enfin, la gêne physique, l'antipathie ë
 secrète qui sépare les corps des races d'hommes difté- |
-48 ‘il
-hi
-
-RŸ
-
-TER LE BUISSON ARDENT #
 
 F rentes, l'hostilité de leurs sens qui s'oppose à la com- ;
 
@@ -1673,7 +1460,6 @@ connaissait la férocité par sa propre expérience, était |
 50 4
 
 cs de: cree ne NS 1 tv
-Fe LE BUISSON ARDENT
 plein de pitié pour Joussier, en voyant sa faiblesse.
 Mais Joussier devinait qu'Olivier lisait en lui; et il était
 loïn de lui en savoir gré.
@@ -1704,7 +1490,6 @@ _ pas vivre. » à
 Et elle n'y pensait plus. Ce n'était pas égoïsme. Elle
 : ne pouvait pas faire autrement; sa vitalité était trop
 ÿ forte; le présent l'absorbaïit : impossible de s'attarder
-: 51
 
 au passé. Elle s'accommodait de ce qui était, elle s'ac- Ë
 commoderait de ce qui serait. Si la révolution venaitet
@@ -1736,7 +1521,6 @@ tandis que les autres discouraient et criaient. Mais
 plus souvent, elle riait toute seule, en regardant Chris- « tophe qui se laissait à son tour entraîner dans ces
 discussions, où il apportait aussitôt plus de passion
 que tous les autres, À
-À
 
 Christophe ne remarquait pas l'isolement et la gêne
 d'Olivier. Il ne cherchait pas à lire ce qui se passait au
@@ -1764,9 +1548,6 @@ se ligoter ensemble pour marcher au combat; et s'il
 admettait qu'ils se soumissent à cette loi, il déclarait
 qu'elle n'était pas pour lui. Ajoutez que si les faibles
 ( »  opprimés sont sympathiques, ils cessent de l'être, quand é
-: 53
-é
-É Hi
 
 la fin du voyage
 ils deviennent oppresseurs. Christophe, qui criait naguère
@@ -1796,14 +1577,10 @@ révolutionnaires prêchaient et pratiquaient, révoltaient :
 Christophe et Olivier. Ils avaient peu d'estime pour
 les ouvriers jaunes qui refusent de souffrir pour la :
 cause commune. Mais ils trouvaient abominable qu'on
-54 |
-F
 
-LE BUISSON ARDENT
 prétendit les y contraindre par la force. — Cependant, +
 il faut prendre parti. Dans la réalité, le choix n'est
 pas aujourd'hui entre un impérialisme et la liberté, E« mais entre un impérialisme et un impérialisme. Olivier
-disait :
 — Ni l'un ni l'autre. Je suis pour les opprimés.
 Christophe ne haïssait pas moins la tyrannie des
 oppresseurs ; mais il était entraîné dans le sillage de la
@@ -1829,8 +1606,6 @@ travailleurs occupés à entretenir le feu de la machine,
 tandis qu'on se bat sur le pont du navire. Tout comprendre, ne rien haïr. L'artiste est la boussole qui,
 pendant la tempête, marque toujours le Nord.
 Ils le traitaient de phraseur, ils disaient qu'en fait de
-: 55
-ù
 
 la fin du voyage Le
 boussole, il avait perdu la sienne; et ils se donnaient é
@@ -1866,9 +1641,7 @@ serez tous. Il n'y a pas un de vous qui résiste à 4
 l'appât. Comment le pourriez-vous ? Il n'y a pas un de ]
 vous qui croie à l'âme immortelle, Vous êtes des ven-
 
-1 LE BUISSON ARDENT |
 ÿ tres, je vous dis. Des ventres vides qui ne pensent qu'à
-se remplir. è
  Là-dessus, ils se fâchaient et ils parlaient tous à la
 fois. Et tout en se disputant, il arrivait que Christophe, ‘
 } emporté par sa passion, fût plus révolutionnaire que
@@ -1898,8 +1671,6 @@ s du travailleur. A l'artiste, au savant, à l'inventeur qui W
 22 suffisante pour lui garantir le temps et les moyens de
 4 l'honorer davantage. Rien de plus. La Joconde ne vaut
 | 4 pas un million. Il n'y a aucun rapport entre une somme
-°4 57
-y.
 
 la fin du voyage 58
 d'argent et une œuvre d'art; l'œuvre n'est pas au-dessus, Ÿ
@@ -1932,12 +1703,7 @@ jamais à nier : « Vous avez trop pour vivre. Nous 3
 n'avons pas assez. Et nous valons autant que vous. Et 4
 ‘tels de nous valent mieux que vous tous réunis. » 1
 Ainsi, la griserie des passions qui l'entouraient se 3
-58 À
-+
 
-Me re ile‘ D) CORRE,
-
-LE BUISSON ARDENT
 communiquait à Christophe. Ensuite, il s'étonnait de
 ces accès d'éloquence. Mais il n'y attachait pas d'importance. Il s''amusait de cette excitation légère, qu'il attribuait à la bouteille. Il regrettait seulement que la
 - bouteille ne fût pas meilleure; et il vantait ses vins 4
@@ -1963,8 +1729,6 @@ de ses principes. Mais il passait d'accès de foi têtue à
 des accès de pessimisme ironique où il jugeait cruellement le mensonge des idéologies et l'inutilité de tous :
 les efforts.
 La plupart des ouvriers étaient de même. Ils passaient, en un moment, de la soûlerie des paroles au
-
-+
 
 , la fin du voyage F' RVITES 30
 découragement. Ils avaient des illusions immenses; È "à
@@ -1998,10 +1762,8 @@ mettre, au milieu de vastes projets, des actes incohé-
 rents, ou brusquement tout jeter là, les affaires en A
 cours, leur patrie ou leur cause, pour se reposer et
 jouir. Ils étaient assez braves pour se faire tuer dans 2
-60 ‘24
 18 57
 
-LEA LE BUISSON ARDENT
 une bataille; mais bien peu de ces chefs eussent été
 capables de mourir à la tâche, à leur poste, immobiles,
 le poing au gouvernail et les yeux immuablement fixés
@@ -2039,12 +1801,6 @@ insu, suivait le fil de l'eau. Pour lui, qui n'eût demandé
 
 Jui. Il restait au rivage et regardait l'eau passer.
 
-61 buisson. — 4
-
-É:
-
-b.
-
 la fin du voyage 75
 C'était un fort courant : il soulevait une masse
 ; énorme de passions, d'intérêts et de foi, qui se poussaient, se heurtaient, se fondaient, avec des bouillon- F4
@@ -2073,10 +1829,7 @@ drait pas moins ses fins par la défaite que par la victoire : car les oppresseu
 des opprimés que lorsque ces opprimés leur inspirent
 la peur. Ainsi, la violence des révolutionnaires ne ser- E
 vait pas moins à leur cause que la justice de cette
-62 k
 
-er à
-; LE BUISSON ARDENT
 cause. L'une et l'autre faisaient partie du plan de la
 force aveugle et sûre qui mène le troupeau humain. È
 « Car considérez ce que vous êtes, vous que le Maître
@@ -2106,9 +1859,6 @@ ceux qui portent le feu. Et le devoir sacré, c'est de
 veiller à ce que le feu ne s'éteigne pas dans leurs mains.
 Olivier avait déjà fait son choix.
 
-PUR NE PNR SRE
-: 14 TT
-- 1 ñ F4
 À quelques maisons de la sienne, était une échoppe À
 de savetier, un peu en contrebas de la rue, — quelques …
 planches clouées ensemble, avec des vitres sales et des k.
@@ -2135,7 +1885,6 @@ interlocuteur au milieu d'une phrase, et d'une aile et “2
 > d'un aileron s'envolait en cahotant sur le dossier d'un …
 banc, d'où elle narguait les chiens du quartier. Alors ei
 le gniaf se remettait à battre ses empeignes; et la
-EEE Ke k 148
 
 F Vus LE BUISSON ARDENT
 __ fuite de son auditrice ne l'empêéchait pas de continuer
@@ -2168,13 +1917,9 @@ les faisait lire et calottait l'apprenti, quand il sautait
 une ligne. Aussi, n'était-il pas toujours exact à livrer <
 l'ouvrage, aux dates promises; en revanche, c'était
 de l'ouvrage solide : il usaiït les pieds, mais il était imu- ;
-sable. : re 6
-65: buisson. — 4:
 ,
-+
 
 la fin du voyage ne ‘ee à
-L PS 1
 Le vieux avait avec lui un petit-fils de treize ans, 54
 bossu, malingre et rachitique, qui lui faisait ses. F8
 courses, et lui servait d'apprenti. La mère, à dix.
@@ -2207,8 +1952,6 @@ les gifles : le vieux lui faisait peur, surtout les soirs de 9
 ribote. Car le père La Feuillette n'avait pas volé son
 surnom : il se pochardait deux ou trois fois par mois; 3
 alors, il parlait à tort et à travers, il riait, il faisait le pe
-Le.
-né L:
 #8 we
 
 | LE BUISSON ARDENT
@@ -2244,9 +1987,6 @@ déclamations révolutionnaires, ses yeux de velours
 marron rayonner de l'extase chimérique du bonheur
 futur, — ce bonheur qui, même s'il devait se réaliser
 
-x
-
-- TE AE
 jamais, ne changeraïit pas grand chose à sa hé
 E. destinée. A ces instants, son regard illuminait son
 visage ingrat, le faisait oublier. La belle Berthe elle …—
@@ -2279,11 +2019,7 @@ L'ouvrage terminé, Emmanuel alla le porter chez
 Olivier; il avait guetté son retour à la maison, afin
 d'être sûr de le trouver. Olivier, absorbé, fit peu Hs.
 attention à lui, paya, ne disait rien; l'enfant semblait
-. 68 er”
-: » SE
-re.
 
-VA LE BUISSON ARDENT
 attendre, regardait à droite et à gauche, il s'en allait à
 regret. Olivier, avec sa bonté, devina ce qui se
 passait en lui; il sourit, et essaya de lier conversation, malgré la gêne qu'il avait toujours à causer
@@ -2314,12 +2050,6 @@ progrès moral? Mais toute foi est belle; et quand
 pâlissent les autres, il faut saluer celles qui s'allument :
 
 il n'y en aura jamais trop. Olivier regardait avec
-
-$ F
-
-à
-
-bu
 
 la fin du voyage RE:
 une curiosité attendrie la lueur incertaine qui brû- 728
@@ -2355,8 +2085,6 @@ quoi bon tant d'explications? Quand on a trouvé
 quelque chose, on n'a pas besoin de dire comment on
 70 2.
 
-; LE BUISSON ARDENT
-
 Va trouvé, mais ce qu'on a trouvé. L'analyse artistique
 et scientifique est du luxe bourgeois. Ce qu'il faut aux à
 âmes du peuple, c'est la synthèse, ce sont des idées toutes
@@ -2388,7 +2116,6 @@ passions troubles qui grondaient dans le cœur et dans
 le cerveau de son petit ami. Notre atavisme bourgeois
 nous a trop assagis. Nous n'osons même pas regarder
 
-nn.
 la fin du voyage
 : en nous. Si nous disions le centième des rêves que fait ( :
 un honnête homme, ou des désirs qui passent sous À s
@@ -2404,7 +2131,6 @@ Emmanuel avait honte. Il subissait la contagion de î
 cette paix et de cette pureté. L'exemple d'une telle vie |
 était un dompteur pour lui. L'enfant ressentait pour S
 Olivier un amour violent. Et ses passions comprimées
-se ruaient en rêves tumultueux : bonheur humain, fra- À
 ternité sociale, miracles de la science, aviation fantastique, poésie sauvage et barbare, — tout un monde
 héroïque, érotique, enfantin, splendide, et vulgaire, où |
 son intelligence et sa volonté cahotaient, dans la flänerie |
@@ -2420,19 +2146,14 @@ effort de volonté, une chaîne un peu longue de raison- ÿ s
 nements serrés; s'il parvient à le faire, il y manque : d
 toujours, çà et là, quelques mailles; mais dans les Fi
 intervalles des mouvements rythmés, les idées s'inter- | Û
-: 72
-F
-N d
 |
 
-Ë LE BUISSON ARDENT |
 1 calent, les images surgissent; les gestes réguliers du
 corps les font jaillir, comme le soufilet de forge. Pensée l
 du peuple! Gerbe de fumée et de feu, plnie d'étincelles |
 qui s'éteignent, s'allument et s'éteignent! Mais parfois |
 l'une d'elles, emportée par le vent, va mettre l'incendie | h
 aux forêts desséchées et aux riches meules bour- [14 %
-geoises… |
 Olivier réussit à faire entrer Emmanuel dans une |: k.
 imprimerie. C'était le vœu de l'enfant; et le grand-père A8
 ne s'y opposa point : il voyait volontiers son petit-fils Ë
@@ -2458,10 +2179,7 @@ des voitures, la mer bruissante des pas, les cris familiers | EX
 de la rue, le lointain fläteau rieur d'un raccommodeur de Dh 4: N
 faïences, un marteau de terrassier tintant sur les pavés, | MATE
 la noble musique d'une fontaine, — toute l'enveloppe L2
-Le (FI | 1.
-Vs] uisson. — 5 ll
 | 8
-& |
 
 _ la fin du voyage RE : 20
 en nous. Si nous disions le centième des rêves que fait 77
@@ -2478,7 +2196,6 @@ Emmanuel avait honte. Il subissait la contagion de de
 : cette paix et de cette pureté. L'exemple d'une telle vie ee
 était un dompteur pour lui. L'enfant ressentait pour …
 Olivier un amour violent. Et ses passions comprimées
-se ruaient en rêves tumultueux : bonheur humain, fra- 5
 ternité sociale, miracles de la science, aviation fantas- 24
 tique, poésie sauvage et barbare, — tout un monde 4
 héroïque, érotique, enfantin, splendide, et vulgaire, où & 4
@@ -2495,8 +2212,6 @@ nements serrés; s'il parvient à le faire, il y manque Re.
 toujours, çà et là, quelques mailles; mais dans les AL
 intervalles des mouvements rythmés, les idées s'inter- d
 2 152
-
-Ur £ LE BUISSON ARDENT
 
 | calent, les images surgissent; les gestes réguliers du 1%
 corps les font jaillir, comme le soufflet de forge. Pensée
@@ -2532,7 +2247,6 @@ U des voitures, la mer bruissante des pas, les cris familiers
 de la rue, le lointain flûteau rieur d'un raccommodeur de
 faïences, un marteau de terrassier tintant sur les pavés, è
 la noble musique d'une fontaine, — toute l'enveloppe
-73 buisson. — 5°
 
 A la Jin du voyage ae CP
 Me fiévreuse et dorée du rêve parisien. — Et le petit bossu,
@@ -2540,7 +2254,6 @@ Me fiévreuse et dorée du rêve parisien. — Et le petit bossu,
 pas d'avaler, s'alanguissait dans une délicieuse torpeur, 4 :
 -__où il ne sentait plus son échine douloureuse et son âme
 chétive; il était tout baigné d'un bonheur imprécis et
-grisant : D:
 — « ... Tiède lumière, soleil de la justice qui lüira F4
 Ê demain pour nous, ne luis-tu pas déjà? Tout est si bon, À
 si beau! On est riche, on est fort, on se porte bien, on
@@ -2554,8 +2267,6 @@ FER sa place à l'imprimerie, devant les casiers aux lettres … æ
 Fa 4 magiques, qui écriraient un jour le Mane Thecel Pharès < A.
 La de la Révolution. :38) °
 # +14
-
-; ms
 
 Le père Feuillet avait un vieil ami, Trouillot, le pape-
 üier, de l'autre côté de la rue. Une papeterie-bazar, où
@@ -2602,7 +2313,6 @@ fermes croyants l'un que l'autre dans la révolution he à
 à aurait voulu dire, et peut-être de ce qu'il aurait voulu « être. La Feuillette était pour Coquard, et Trouillot pour M
 Joussier. Ils discutaient interminablement sur ce qui les
 divisait, estimant que leurs pensées communes étaient
-assurées; — (peu s'en fallait, à force d'en être sûrs,
 
 | qu'entre deux rasades ils ne les crussent réalisées). —
 D Des deux, le plus raisonneur était le savetier. Ilcroyait,
@@ -2624,8 +2334,6 @@ x .. — Tous deux étaient de vieux enfants romanesques, qui …
 
 n'avaient pas le sens de la réalité, et pour qui la révo76 n
 
-RME = RE LD QUES à UD, UP Se Rte 3 * cs
-Dr LE BUISSON ARDENT
 lution, dont le nom seul les grisait, était une belle
 histoire qu'on se raconte et dont on ne sait plus très É
 bien si elle arrivera jamais, ou si elle est arrivée. Et ,
@@ -2657,7 +2365,6 @@ elle s'en donnait à cœur-joie de tremper le diable dans
 l'eau bénite. Elle épinglait aux murs des images de
 Notre-Dame de Lourdes et de saint Antoine de Padoue;
 __ elle ornaït la cheminée de petits fétiches peinturlurés
-V 27
 
 | la fin du voyage CEE
 sous des globes de verre; et, la saison venue, ele
@@ -2692,8 +2399,6 @@ La dévotion de la mère avait pris chez l'enfant souf- 4
 frante et désœuvrée un caractère exalté. Elle passait
 78 1
 
-is
-2 LE BUISSON ARDENT
 des heures à réciter son chapelet, un petit chapelet de
 corail, que le pape avait bénit; et elle s'interrompait
 pour le baiser avec emportement. Elle ne faisait presque
@@ -2745,7 +2450,6 @@ la maison. Madame Alexandrine le regardait d'un de 4
 mauvais œil, comme petit-fils d'un mécréant et comme 1°
 sale petit gniaf. Mais Rainette passait ses journées : =
 | sur une chaise longue près de la fenêtre, au rez-de- É-
-chaussée. Emmanuel tambourinait aux carreaux, en 54
 passant ; et, le nez écrasé contre la vitre, il grimaçait
 d un bonjour. En été, quand la fenêtre restait ouverte, il |
 | s'arrêtait, les bras appuyés un peu haut sur la barre de | 4
@@ -2757,9 +2461,6 @@ les visites, ne songeait plus à remarquer qu'Emma-
 | peur et dégoût, faisait exception pour Rainette. Cette
 petite malade, à demi pétrifiée, était pour lui quelque È:
 
-: LTÉSSRSS _ F EE
-Pa ; .
-_ HR LE BUISSON ARDENT
 à _ chose d'intangible, de lointain, de pas très existant. 14
 -_. Seulement le soir du jour où la belle Berthe lui baisa <
 É la bouche, et encore le jour suivant, il s'écarta de Raï- ù
@@ -2785,12 +2486,10 @@ lores qui remplissaient les deux bocaux, à la devan- $
 ture ; et ils regardaient ensemble les cartes postales le
 illustrées. C'étaient d'heureux moments ; ils oubliaient ë
 tous deux le triste corps qui tenait en cage leur âme
-d'enfants. ;
 Mais il arrivait aussi qu'ils se missent à parler,
 . comme les grands, des choses politiques et de la religion. Alors, ils devenaient aussi stupides que les
 4 grands. La bonne entente cessait. Elle, parlait de mira__ cles, de neuvaines, ou de pieuses images bordées de
 Fe dentelles en papier et de jours d'indulgences. Lui, disait
-: 81 buisson. — 5.
 ce
 
 la fin du voyage Le ÿ.
@@ -2817,7 +2516,6 @@ le détestait ; et elle se cachait la figure dans ses mains. i
 11 partait, pas fier de sa victoire. Il avait grandeenvie $
 d'écarter les petites mains maigres, de dire que ce #
 n'était pas vrai. Mais il se forçait, par orgueil, à ne pas Ç
-revenir. ?
 Un jour, Rainette fut vengée. — Il était avec ses ;
 camarades d'atelier. Ils ne l'aimaient guère, parce qu'il :
 se tenait le plus possible en dehors d'eux et qu'il ne 4
@@ -2825,10 +2523,7 @@ parlait pas, ou qu'il parlait trop bien, d'une façon naïve- 4
 ment prétentieuse, comme un livre, ou plutôt comme un 4
 article de journal — (il en était farci). — Ce jour-là, ils à
 s'étaient mis à causer de la révolution et des temps 4
-82 à
-F
 
-De LE BUISSON ARDENT
 futurs. I! s'exaltait, et il était ridicule. Un camarade
 | l'apostropha brutalement : |
 — D'abord, toi, n'en faut plus, tu es trop laid. Dans
@@ -2850,7 +2545,6 @@ maladie cette répulsion instinctive et cruelle qu'ont
 ceux qui ne sont pas nés avec des âmes de sœurs de
 charité, il n'en laissait rien voir. i
 — On ta fait de la peine ? -
-— Oui.
 —- Qu'est-ce qu'on a fait ?
 Le petit débonda son cœur. Il dit qu'il était laid. Il ?
 dit que ses camarades avaient dit que leur révolution
@@ -2860,8 +2554,6 @@ pour nous. Ce n'est pas l'affaire d'un jour. On travaille
 pour ceux qui viendront après nous.
 Le petit était déçu que ce fût pour si tard.
 — Est-ce que cela ne te fait pas plaisir de penser ;
-
-z
 
 CPP PARTS ne EL OR T2 OR RP LOS OR Pet ELITE ALORS Ve 1 ‘eg
 
@@ -2909,9 +2601,6 @@ antiques légendes, les imaginations matérielles et proj fondes des vieilles co
 : moitié riant, moitié sérieux, il parlait de la métempsycose et de la série des formes innombrables où l'âme
 coule et se filtre, comme une source qui passe de Es
 
-8 È
-r F”
-
 E" ; É LE BUISSON ARDENT au
 % bassins en bassins. Il y mêlait des ressouvenirs chré-
 À tiens et les images du soir d'été qui les baignait tous
@@ -2944,10 +2633,8 @@ sons qui buvaient l'ombre du crépuscule, et le ciel
 pâlissant où mourait la lumière, — tout ce monde exté-
 Ë rieur s'imprima brusquement en lui comme un baiser.
 85 5
-LR.
 
 ; la fin du voyage LES
-4 LKR
 Ce ne fut qu'un éclair. Puis, cela s'éteignit. Il pensa à. É 4
 Rainette, et dit : Ë ke |
 — Mais ceux qui vont à la messe, ceux qui croyent
@@ -2968,7 +2655,6 @@ qu'il les avait fait pleurer. Cela lui fut insupportable. Il ‘4
 revint sur ses pas, il alla à la maison du papetier. La +
 fenêtre était encore entr'ouverte ; il y coula doucement de)
 la tête et appela à voix basse : : Pe KA
-— Rainette. Ée.
 Elle ne répondit pas. %
 — Rainette. Je te dis pardon. #
 La voix de Rainette, dans l'ombre, dit : A
@@ -2979,9 +2665,7 @@ encore, troublé, un peu honteux : ‘=
 — Rainette, tu sais, je crois aussi à des bons Dieux, 70
 comme toi. ‘à
 
-1408 LE BUISSON ARDENT
 — C'est vrai? ;
-— Cest vrai.
 Il le disait surtout, par générosité. Mais, après l'avoir k
 dit, il y croyait un peu.
 j Ils restèrent sans parler. Ils ne se voyaient pas. La
@@ -2995,10 +2679,7 @@ Il partit, allégé. IL était content que Raïnette lui eût
 pardonné. Et, tout au fond de lui-même, il ne déplaisait
 pas au petit souffre-douleur qu'une autre eût souffert
 par lui.
-d 9
 
-SRE ie Sr QE
-US
 Olivier était rentré dans sa retraite. Christophe nc … *
 ! tarda pas à l'y rejoindre. Décidément, leur place n'était &
 pas dans le mouvement syndicaliste. Olivier ne pouvait
@@ -3027,7 +2708,6 @@ GE. du début. L'artiste se laissait griser par l'ivresse des
 | il lui arriva d'improviser, dans l'arrière-boutique
 | d'Aurélie, un chant révolutionnaire qui, aussitôt essayé, … »
 
-D LE BUISSON ARDENT |
 _ répété, dès le lendemain se répandait parmi les
 groupes ouvriers. Il se compromettait. La police le :
 surveillait. Manousse Heimann, qui avait des intelligences au cœur de la place, fut averti, par un de %
@@ -3036,7 +2716,6 @@ préfecture de police, qui se mélait de littérature et se
 disait toqué de la musique de Christophe : — (car le
 dilettantisme et l'esprit anarchique s'étaient glissés
 jusque parmi les chiens de garde de la troisième £
-République).
 — Votre Krafft est en train de jouer un vilain jeu,
 lui avait dit Bernard. Nous avons l'œil sur lui. Il fait
 le fier-à-bras. Nous savons ce qu'il en faut penser;
@@ -3046,7 +2725,6 @@ mais on ne serait pas fâché, en haut lieu, de pincer un ÿ
 | de l'arrêter. C'est ennuyeux. Avertissez-le. ;
 4 Manousse avertit Christophe ; Olivier le supplia
 d'être prudent. Christophe ne prit pas leurs avis au
-sérieux. 9
 — Bah! ditil, on sait que je ne suis pas dangereux.
 / J'ai bien le droit de m'amuser un peu. J'aime ces gens, :
 ils travaillent comme moi, ils ont une foi comme moi.
@@ -3056,9 +2734,7 @@ n'est pas pour me déplaire... Que veux-tu ? Je ne peux
 pas rester, comme toi, recroquevillé dans ma coquille.
 J'ai besoin de respirer. J'étouffe chez les bourgeois.
 | Olivier, qui n'avait pas des poumons aussi exigeants,
-‘ 3 |
 
-. * RAS
 la fin du voyage SE
 se trouvait bien de son logis étroit et de la calme
 société de ses deux amies, encore que l'une d'elles,
@@ -3068,7 +2744,6 @@ avec lui, sur ce ton gazouillant et bêtifiant qui tâche 1
 de se modeler sur celui de l'oiselet et de muer sa SA
 chanson informe en un parler humain. Fe,
 De son passage dans les milieux ouvriers, il lui était à
-resté deux connaissances. Deux indépendants, commelui.
 L'un, Guérin, était tapissier. Il travaillait à sa fantaisie,
 d'une façon capricieuse, mais avec beaucoup d'adresse. ;
 Il aimait son métier, il avait pour les objets d'art un 2
@@ -3091,26 +2766,21 @@ gentes de la nation : car elle réalise un bel équilibre F
 entre le travail manuel et l'activité saine de l'esprit. Es
 L'autre connaissance d'Olivier était d'une espèce plus 3
 originale. C'était un facteur, qui se nommait Hurteloup. F5
-90 ;
 
-LE LE BUISSON ARDENT
 Bel homme, grand, les yeux clairs, petite barbe et
 moustache blondes, l'air ouvert et gai. Un jour qu'il
 apportait une lettre recommandée, il était entré dans la
 chambre d'Olivier. Pendant qu'Olivier signait, il faisait
 le tour de la bibliothèque, le nez sur les titres des
-volumes :
 — Ha ! ha! fit-il, vous avez les classiques. :
 Il ajouta :
 — Moi, je collectionne les bouquins d'histoire. Et tous
 sur la Bourgogne. .
 _— Vous êtes Bourguignon ? demanda Olivier.
-— « Bourguignon salé,
 L'épée au côté,
 La barbe au menton,
 | Saute Bourguignon. »
 | répondit, en riant, le facteur. Je suis du côté d'Avallon. J'ai des papiers de famille qui datent de 1200 et
-quelque. ;
 Olivier, intrigué, voulut en savoir davantage. Hurteloup ne demandait qu'à parler. I appartenait en effet à
 une des plus vieilles familles de Bourgogne. Un de ses
 ancêtres était à la croisade de Philippe-Auguste; un « autre avait été secrétaire d'État sous Henri II. La décadence avait commencé dès le dix-septième siècle. Au
@@ -3120,7 +2790,6 @@ vigueur physique et morale du facteur Hurteloup, et sa
 fidélité à sa race. Son meilleur passe-temps était de réunir des documents historiques et généalogiques, se rapportant aux siens ou à leur pays d'origine. A ses heures
 
 SR la fin du voyagé, .: TES
-- x M.
 de congé, il allait aux Archives copier de vieux papi à
 Quand il ne comprenait pas, il demandait l'explication
 à un deses clients, Chartiste ou Sorbonnard. Son illustre
@@ -3154,7 +2823,6 @@ formidable d'incubation fiévreuse, qui s'opérait dans 54
 pédagogue, plus capable de jeter au hasard dans les.
 | 92 $
 
-Fe = 2 à LE BUISSON ARDENT ET
 # | champs les poignées de bon grain que de sarclerlaterre
 ct de creuser les sillons. La présence de Christophe
 “a  ajoutait encore au trouble. Olivier éprouvait une gêne D 32
@@ -3172,16 +2840,8 @@ Le reconnaissait pas en cet être, qui était d'un autre métal LE #4
 _ que le sien. En cet amalgame obscur d'hérédités >? 2 TA
 _ malsaines, tout, l'amour et la haine et le génie latent, -
 É rendait un autre son. Ÿ Re
-Ne. :
-
-ARE
-
-De:
-
-1 D 5%
 
 , . 15
-LE.
 Le premier Mai approchait. Une rumeur inquiète parcourait Paris. Les matamores de la C. G. T. contr
 buaient à la répandre. Leurs journaux annonçaient le
 grand jour arrivé, convoquaient les milices ouvrières, et à
@@ -3205,10 +2865,7 @@ Christophe riait de cette universelle poltronnerie. IL
 de la Révolution. È
 — Allons donc! disait Christophe, tu peux dormir K
 tranquille. Elle n'est pas pour demain, ta Révolution.
-9% x
-« 4 re
 
-ra IR D es Ten
 ns LE BUISSON ARDENT
 _ Vous en avez tous peur. La peur des coups. Elle est
 partout. Chez les bourgeois, dans le peuple, dans toute
@@ -3241,16 +2898,12 @@ ancienne. Christophe s'installa chez lui, pour deux ou
 trois jours. Le mal fut assez léger et passa rapidement.
 Mais il amena, comme à l'ordinaire, chez Olivier, une
 
-4 $ —
-L
-
 DE la fin du voyage STE
 , fatigue morale et physique qui persista quelque temps 4 $
 après que la fièvre fut tombée. Il restait au lit, étendu,
 pendant des heures, et il n'avait pas envie de se lever, de.
 il n'avait pas envie de bouger; il était là, regardant
 Christophe qui lui tournait le dos, assis à sa table, et 3
-travaillant. #4
 É Christophe s'absorbait dans son travail. Parfois, :
 quand il était las d'écrire, il se levait brusquement et ‘a
 à allait au piano; il jouait, non pas ce qu'il avait écrit,
@@ -3278,14 +2931,11 @@ encore troubles, se mit à rire, et retourna à sa table.
 >; Olivier lui demanda : :
 — Qu'est-ce que c'était, Christophe ? É
 
-oder PR ET QE EE ARE à D Se CE SE Sr EN RES
-
 pe _ LE BUISSON ARDENT {
 __ — Rien du tout, dit Christophe. Je remue l'eau, 10
 pour attirer le poisson. | 5
 
 — Est-ce que tu vas écrire cela ? 2 RSS
-— Cela? Quoi, cela? #15; 7200
 
 — Ce que tu as dit. :
 
@@ -3302,7 +2952,6 @@ chambre des deux amis. Olivier continuait de regarder Fr
 Christophe. Christophe sentait son regard; et il se $
 
 | retourna. Les yeux d'Olivier le couvaient, avec tant Œ
-d'affection ! :
 | — Paresseux! dit-il gaiement. à
 Olivier soupira. x
 . — Qu''as-tu ? demanda Christophe.
@@ -3326,17 +2975,12 @@ même si tu le voulais, je te laisserais en route?
 É Christophe se leva, et alla s'asseoir sur le lit, près
 | d'Olivier ; il lui prit les poignets, moites d'une sueur de na
 … faiblesse. Le col de la chemise s'était ouvert; on voyait D
-À € 97 buisson. — 6
-Ke
-
-Con"
 
 la fin du voyage re à. de
 la maigre poitrine, la peau trop transparente, frêle et 0
 tendue comme une voile qu'un souffle de vent gonfle et #7
 qui va se déchirer. Les robustes doigts de Christophe 4
 reboutonnèrent maladroitement le col. Olivier se laissait NN
-: faire. 5
 — Cher Christophe! dit-il tendrement, j'ai eu pour- Pa.
 tant un grand bonheur dans ma vie! RS
 — Ah! çà, qu'est-ce que ces idées? dit Christophe, 3
@@ -3364,10 +3008,6 @@ d'eux-mêmes agencer leurs syllabes et leurs rythmes 4
 visions poétiques. Mais la volonté lui manquait; il était
 las ; il savait que le parfum de ses rêves s'évaporerait
 dès qu'il voudrait les fixer. C'était toujours aïnsi : le 14
-
-NE LE BUISSON ARDENT
-
-Er
 
 __ meilleur de lui-même ne pouvait s'exprimer; son esprit
 
@@ -3411,16 +3051,11 @@ sa beauté, et demanda à Olivier de recommencer l'histoire. Olivier s'y refusa 
 — Je suis comme toi, dit-il, je ne la sais déjà plus.
 1 — Ce n'est pas vrai, dit Christophe; toi, tu es un
 
-Éd
-à
-
 Pere d 5 24378 Arr migrer RSR TS NE 2, D  *
-D _ lafinduogage
 FR at diable de Français qui sait toujours tout ce € " ilditet
 TE fait, tu n'oublies jamais rien. ÉLIRE) 4
 HR — Hélas! fit Olivier. En LES Fe
 SA — Recommence, alors. ET CNE FU
-er : A “y FE ES
 Le _— Cela me fatigue. A quoi bon? TE
 DA. Christophe était fâché. GENE
 : CE — Ce n'est pas bien, dit-il. A quoi te sert ta pensée?
@@ -3430,18 +3065,15 @@ ue Le — Rien n'est perdu, dit Olivier. ‘10
 pendant le récit d'Olivier, — tourné vers la fenêtre, les
 & yeux vagues, la figure froncée, l'air hostile, sans qu'on ‘3
 __ pût deviner ce qu'il pensait. Il se leva et dit : “#3
-_  —1 fera beau, demain. 24
 __ . —Je parie, dit Christophe à Olivier, qu'il n'a même 34
 AT 5 _ — Demain, le premier Mai, continua Emmanuel, dont
 É 4 la figure ingrate s'illuminait. ‘#
 CRE — C'est son histoire à lui, dit Olivier. Tu melacon- |
-_ teras demain. I TRES
 ‘à — Balivernes! dit Christophe. ME
 7 ne Ç tee
 
 Lip Le Et GP de OR RAT 25 ART PSP RES LES ES PNR LE
 ; LAN Creer LE HA RES UE: es STE " {
-TE SN el . = .#
 Ë Le lendemain, Christophe vint prendre Olivier, pour #
 _ faire une promenade dans Paris. Olivier était guéri; + EE
 _ mais il éprouvait toujours son étrange lassitude ; il ne |
@@ -3464,7 +3096,6 @@ jour. Christophe le semonça, le railla, voulut à tout
 És dix jours, il n'avait pas pris l'air. Olivier faisait mine :
 …__ de ne pas entendre. Christophe dit :
 La — C'est bon, je m'en vais sans toi. Je vais voir leur
-É a 1017 buisson. — 6, #
 
 la fin du voyage Ye
 
@@ -3503,17 +3134,9 @@ bienveillant et optimiste, qui se satisfaisait des moïndres occasions de bonheu
 reconnaissants... ils ne savaient trop à qui... à tout ce
 qui les entourait. Ils allaient sans se presser, épanouis,
 
-an
-
-St LE BUISSON ARDENT ;
-
-e.
-
 1 admirant les bourgeons des arbres, les jolies toilettes
 
 À des petites filles qui passaient; ils disaient avec
-
-orgueil :
 
 — Il n'y a qu'à Paris qu'on peut voir des enfants
 
@@ -3558,9 +3181,6 @@ même. Mais peu à peu, elle s'énervait. Ceux qui venaient
 
 par derrière, impatientés de ne rien voir, étaient d'au-
 
-É 103
-
-PT do 10 0e Me D Ce OS
 À la fin du voyage. ER
 tant plus provocants qu'ils avaient moins à risquer, h. 3
 sous le couvert de ce bouclier humain. Ceux qui étaient
@@ -3592,9 +3212,7 @@ ke niait la possibilité d'un mouvement populaire. A peine
 happé : étranger à cette foule française et à ses reven- :
 ; dications, il s'y était subitement fondu; peu lui importait ce qu'elle voulait : il voulait; peu lui importait où
 il allait : il allait, respirant ce souflle de démence. >
-a À
 
-D LE BUISSON ARDENT : è
 1 Olivier suivait, entraîné, mais sans joie, lucide, ne
 & perdant jamais la conscience de soi, mille fois plus ss
 … étranger que Christophe aux passions de ce peuple qui :
@@ -3609,8 +3227,6 @@ regardait avec délices la nuque dorée d'une fille devant fé
 ve — Christophe! supplia-t-il.
 à Christophe n'écoutait pas.
 4 — Christophe!
-— Hé?
-4 — Rentrons.
 — Tu as peur? dit Christophe.
 . Ïl continua son chemin. Olivier, avec un sourire
 triste, le suivit. ;
@@ -3626,12 +3242,9 @@ adressa un salut rayonnant; puis, il se mit de nouveau
 élargis d'espoir, attendant... Quoi donc? — Ce qui
 devait venir. Il n'était pas le seul. Tant d'autres, Â
 4 autour de lui, attendaient le miracle! Et Olivier, s
-FAR 7
-de: 105 |
 
 | la fin du voyage S 70 pe
 regardant Christophe, vit que Christophe attendait “3
-aussi. 4
 IL appela l'enfant, lui cria de descendre. Emmanuel de 4
 fit mine de ne pas entendre, et ne le regarda plus. IL
 avait vu Christophe. Il était bien aise de s'exposer
@@ -3663,10 +3276,8 @@ longtemps. Pour se dédommager de leur déroute, les
 fuyards furieux huaient ceux qui les poursuivaient, et
 criaient : « Assassins! » avant que le premier coup eût
 
-106 J
 |
 
-4 \ LE BUISSON ARDENT -
 _ été porté. Berthe filait entre les rangs, comme une
 anguille, et poussait des cris aigus. Elle rejoignit ses
 amis ; et à l'abri derrière le vaste dos de Coquard, elle
@@ -3674,7 +3285,6 @@ reprit haleine, se serra contre Christophe, lui pinça le
 bras, par peur ou pour toute autre raison, décocha une
 * œillade à Olivier, et montra le poing à l'ennemi, en
 | glapissant. Coquard prit Christophe par le bras et lui
-dit : ER
 — Allons chez Aurélie.
 à Ils n'avaient que quelques pas à faire. Avec Graiïllot
 - et quelques ouvriers, Berthe les y avait précédés. 6
@@ -3725,14 +3335,11 @@ poussait avec allégresse, comme dans une foire de. $
 village. Il pensait si peu à la gravité des choses qu'il id
 eut l'idée bouffonne, empoigné par un agent à la 4
 carrure énorme et l'empoignant à bras le corps, de lui (+
-dire : à
 — Un tour de valse, mademoiselle ? |
 Mais un second agent lui ayant sauté sur le dos, il se è
 secouait comme un sanglier, et il les bourrait de coups |
 de poing tous les deux : il n'entendait pas se laisser
 
-, 1t1
-408 LE BUISSON ARDENT
 5 06
 #4 _ prendre. L'un de ses adversaires, celui qui l'avait
 | saisi par derrière, roula sur les pavés. L'autre, furieux,
@@ -3760,16 +3367,13 @@ __. ouverte depuis des mois pour les travaux du MétropoE litain. Les grilles de
 “. sortaient des poches et du fond des maisons. En moins /
 | d'une heure, ce fut l'insurrection : tout le quartier en
 état de siège. Et sur la barricade, Christophe, méconnaissable, burlait son chant révolutionnaire, que vingt
-- voix répétaient.
 Êv Olivier avait été porté chez Aurélie. Il était sans
 Ke connaissance. On l'avait déposé dans l'arrière-boutique
-Ke , 109 buisson. — 7
 
 la fin du voyage ve
 | sombre, sur un lit. Au pied, le petit bossu se tenait, É
 2 atterré. Berthe avait eu d'abord une grosse émotion :'elle avait cru, de loin, que Graïillot était blessé,
 et son premier cri, en reconnaissant Olivier, avait \
-été :
 — Quel bonheur! Je croyais que c'était Léopold.
 Maintenant apitoyée, elle embrassait Olivier, et lui
 soutenait la tête sur l'oreiller. Avec sa tranquillité ordiL paire, Aurélie avait défait les vêtements et appliquait
@@ -3795,9 +3399,7 @@ sottises, mais aussi celles des autres. Xavier Bernard, ‘1
 que Manousse venait de rencontrer, rêdant parmi la 48
 foule, autant par amusement que par devoir profes- F.
 3 5
-110 d
 
-A 0" U'LE BUISSON ARDENT
  sionnel, lui avait fait signe en passant, et lui avait
 Le — Votre Krafft est idiot. Croiriez-vous qu'il est en |
 * train de faire le joli cœur sur la barricade! Nous ne le AN
@@ -3805,9 +3407,7 @@ _ raterons pas, cette fois. Nom de Dieu! Faites-le filer.
 4 _ Plus facile à dire qu'à faire. Si Christophe venait à À
 - savoir qu'Olivier était mourant, il deviendrait fou à
 ‘4 furieux, il tuerait, il serait tué. Manousse dit à ra
-Bernard : pi
 F — S'il ne part pas sur-le-champ, il est perdu. Je vais je
-hu lenlever. | À
 | >. — Comment?
 “4 NES — Dans l'auto de Canet, qui est là, au coin de la rue.
 TM — Mais pardon, pardon... dit Canet, suffoqué.
@@ -3830,14 +3430,11 @@ F4 3. _ tourbe de Paris, vomie des pavés, avait grossi comme
 | 5 l'eau sale d'un égout, après une forte pluie. Les
 4 | premiers combattants étaient noyés par elle. Manousse k
 
-2 CONS
 la fin du voyage 3
 héla Christophe, qui lui tournait le dos. Christophe 4
 n'entendit pas. Manousse grimpa vers lui, le tira par la
 ma nche. Christophe le repoussa, faillit le faire tomber.
 Manousse, tenace, se hissa de nouveau, et cria...
-
-— Jeannin.…
 
 Dans le vacarme, le reste de la phrase se perdit.
 
@@ -3874,8 +3471,6 @@ m'envoie vous prévenir. Filez.
 
 — En Suisse. Canet vous enlève, dans son auto.
 
-— Et Olivier ?
-
 — Nous n'avons pas le temps de causer...
 
 — Je ne pars pas sans le voir. :
@@ -3886,8 +3481,6 @@ Il prend le premier train. Vite! Je vous expliquerai..
 
 Il empoigna Christophe. Christophe, étourdi par le
 
-PRIE AR RONA ET RE NT REA AA AUS PAPE RUE LE TE UE,
-APP NET EM /U/LE BUISSON ARDENT À
 Oo bruit et par le vent de folie qui venait de soufler en
 Mi, incapable de bien comprendre ce qu'il venait de
 _ faire et ce qu'on demandait de lui, se laissa entrainer.
@@ -3901,10 +3494,6 @@ lui inspiraït quelque doute, sur le point de les quitter, -
 LS au moment où l'auto s'ébrouait pour partir, il se ravisa +
 _ soudain, et monta auprès d'eux.
 0 2
-por
-2° 2 \12
-WA ù
-QU d ÿ à Î
 
 Olivier n'avait pas repris connaissance. IL n'y avait
 plus dans la chambre qu'Aurélie et le petit bossu. La
@@ -3926,10 +3515,7 @@ au mur; un jardin, où un enfant jouait : il était couché
 sur une pelouse ; un jet d'eau s'égrenait dans la vasque
 de pierre. Une petite fille riait…
 
-à
-
 Ou aan
-ÿ
 ‘ Is sortirent de Paris. Ils traversèrent les vastes
 - plaines ensevelies dans le brouillard. C'était par un ALES
 É soir semblable que Christophe, huit ans avant, était }
@@ -3955,13 +3541,9 @@ rejoindre, le matin suivant. On le lui avait promis. k
 -  quittèrent point qu'ils ne l'eussent vu dans letrain qui
 4 partait. Christophe se fit répéter l'endroit où il devait
 —_ descendre, et le nom de l'hôtel, et la poste où il trouvebe _ rait des nouvelles. Malgré eux, en le quittant, ils avaient
-Du: 115
-ne {
-LUN
 
 la fin du voyage gui |
 des mines funèbres. Christophe leur serra gaiement la *
-main. és
 — Allons, leur cria-t-il, ne faites pas ces figures d'enterrement. On se reverra, que diable! Ce n'est pas une
 affaire ! Nous vous écrirons demain.
 Le train partit. Ils le regardèrent s'éloigner.
@@ -3971,7 +3553,6 @@ de quelque temps, Canet dit à Manousse :
 — Je crois que nous venons de commettre un crime.
 Manousse ne répondit rien d'abord, puis il dit : È
 — Bah! les morts sont morts. IL faut sauver les
-vivants.
 Avec la nuit qui était venue, l'excitation de Christophe
 tomba tout à fait. Rencogné dans un angle de son
 compartiment, il méditait, dégrisé et glacé. En regardant ses mains, il y vit du sang qui n'était pas le sien.
@@ -3991,8 +3572,6 @@ lui, ce n'était pas lui! Éclipse totale de sa volonté!..
 Il en était stupéfait et honteux. Il n'était donc pas son
 maître ? Et qui était son maître? Il était emporté par
 
-MR Te ei V
- iqREs ; LE BUISSON ARDENT
 E l'express dans la nuit; et la nuit intérieure où il était
 
 : emporté n'était pas moins sombre, ni la force inconnu e
@@ -4036,16 +3615,13 @@ Va sa table, le dos tourné à la porte. Il n'avait rien pour
 nee son attention était ailleurs : il écoutait le bruit des pas
 È dans le couloir. Tous ses sens étaient surexcités par la
 % fatigue d'une journée d'attente et d'une nuit sans
-tà sommeil.
 | L Brusquement, il entendit qu'on ouvrait la porte. Un
-me. 117
 
 Aë la fin du voyage 7 RE Re
 l sentiment indéfinissable fit qu'il ne se retourna pas Ge
 d'abord. Il sentit une main s'appuyer sur son épaule. :
 Alors il se retourna et vit Olivier, qui souriait. Il ne
 s'en étonna pas, et dit :
-— Ah! te voilà enfin! :
 Le mirage s'effaça.
 ë Christophe se leva violemment, repoussant la table 4
 d. et sa chaise qui tomba. Ses cheveux se hérissaient. IL rs
@@ -4068,11 +3644,9 @@ lui fallait se conserver pour la mémoire de son ami, et V
 pour ses autres amis, et pour sa propre gloire. etc.,ete…. 1
 Aurélie avait ajouté trois lignes de sa grosse écriture ;
 L tremblée, pour dire qu'elle prendrait bien soin du pauvre cf
-ÿ petit monsieur. 1
 Quand Christophe revint à lui, il eut une crise de ue
 | fureur. Il voulait tuer Manousse. IL courut à la gare. ; \
 
-k 118 Ni
 | ) di ut:
 
 cd un jé ARE | LE BUISSON ARDENT + di F1
@@ -4105,9 +3679,7 @@ campagne déserte, — des prairies, coupées çà et là de |
 bouquets de sapins, avant-garde d'une forêt. Il s'y
 Li: enfonça. A peine y eut-il fait quelques pas qu'il se jeta
 ; à par terre, et cria :
-D. — Olivier!
 pa Il se coucha en travers de la route, et sanglota. y
-LLC
 
 x MGR io HER TA ROUE
 : la fin du voyage 1
@@ -4143,11 +3715,7 @@ Son portrait en première page.
 Christophe se leva. L'homme lui fit signe de le suivre.
 Ils passèrent derrière la grange, prirent un sentier qui
 
-20"
-
 | Sex ee , 4 i à £ : ,
-“te AGE
-Ne ù LE BUISSON ARDENT
 tournait, au milieu des arbres fruitiers. Arrivés à une
 croix, le fermier montra un chemin à Christophe, et
 lui dit :
@@ -4186,66 +3754,27 @@ pour aller tomber chez quelqu'un qui ne fût pas tout à
 | #4
 ne
 
-« ot à LME sut ÉPRCAETEUT + É# « Re AREAS FX PA MATE AT EN S CIE
-2 - EN PES Us STAR UE ee ME FINS SA UE Hi EVA NE FETE
-AR OES EE URRs RE CE SAS TT SE AR 1 OS \ CRT “
 Hole 4468 CES) FU RPLTRE ar, DER ARE (4 tot Et Fe A ETES
 DRE : Fe dE PERS Fate Mu] AAA L'ÉNALEX : te SE ‘ NYC
 AT LR L PANNE es
-LITE | RAT Cm es {HITS NAT RE
 TR ta Î 17% À Ai Te LA te
-2 IHEN é ! 12 + DOTE Ge
-à " Al EN à # | } Û TARRE À PIN n
-4 AS: Toi Ç DR RAS L 2 SRE =]
-LEUR # [ \ ë Te OUT TT A Ur à 4e
-1 MT, je} À VU IAT D #
-Mr) . ! 1 LIEGE
-LT ER A? de l'E 01 PMR
-RS SE C4 AE PURES) | MAROPATIE,;
-- FF EN OREER *% TA TTANI AU IRNE
 A T4 LA 13 RS. À ra NN EAU ia 1 jus!
 cc: #TR re PER CE à UE NE APARTRS LES.
 |} SÉFA À: LL TUE
 
-: Àÿ
-
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce cinquième cahier
 et pour quatorze exemplaires sur whatman le mardi
-31 octobre I9I1.
-EEEEEEEEEEEEEEEEE—————————…—
 
 Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
 ————————————— ——————
 JULIEN CRÉMIEU, imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes. — 6171
-; “A « nt Re \ LEURS Ê
-/ LEUR AS PT PPT ER RICO IR x
-PAR ETS CT PEUT ASE LE RONMENRRPURR
 LRO 3 CES CIS ARS AE ee LATE RU : NME à
-RS ‘ Ë NE Re MR à #
-08. Fi Le r 1. we
-DIS. 4 a : $ Ë EEE + it
 # 1 FO 2 ep 15-401 TRE cr
-a Br , - ere Ë « « 74 NEO F
-ù Le dE: e Lé: ‘ : . #48 187 PT + ÉURE
-3, 1ERT RES 7 LR Le LEE Av
 N'a: apte ce ET LP PEL?
-Be," | M :
-5 AN “ RENE D'ue
-RE | di) Sr 1 Lite 4
-17 PTS _ 2: RAT CT:
-: 4. TRE è : AU Anis CA ,
-Dee: là ' CU x AT:
-AR: : DE OSPRINENSS
-nu 06 REMOTE
-ment w At V L BETA EE Fe © î
-M C0
 +. PR pui Ha Ft AS AE te M de
-‘03 ARE X DV EC CRE TL Dar. |
-THERE LAURENT RS RENTE) %3 POSTE
 dun Cr Bis ARE SE LE ï [S
-; FEAQ CLEA PER Ma es (2 ROM
 
 Sous le voile de fumées et de pluie, il entra dans la
 ville grise et rouge. IL marcha au travers, sans rien
@@ -4289,9 +3818,6 @@ peine de sa gorge. Il était épuisé de fatigue, de soif et
 
 _ de faim. Sans un mot, la femme rentra; et Christophe p &
 
-L 125 ardent. — 1 a CA
-
-2. 1 ie SN Res Dai: "4 rrt FAN
 A | la fin du voyage FFC RS
 ES la suivit dans une pièce, aux volets clos. Dans l'obscu-
 è rité, il se heurta contre elle ; ses genoux et son ventre
@@ -4323,15 +3849,12 @@ laid; mais Christophe éprouvait un bien-être à le
 sa surprise.
 — Bon Dieu! qu'il est changé! Dans quel état!
 — Je viens de Paris, dit Christophe. Je me suis
-c sauvé... ti
 — Je sais, je sais, nous avons vu dans le journal, on
-; \ 1 £
 
 ‘2 _ disait que vous étiez pris. Dieu soit loué ! Nous avons ‘
 bien pensé à vous, Anna et moi. 7 2
 « 04 Il s'interrompit, et montrant à Christophe la figure #
 2 silencieuse qui l'avait accueilli d'abord dans la maison : 272
-‘298 — Ma femme. Fe
 ee : Elle était restée à l'entrée de la chambre, une lampe
 & à la main. Un visage taciturne, au fort menton. La k 4
 _ lumière tombait sur ses cheveux bruns aux reflets roux æ
@@ -4361,8 +3884,6 @@ Quand il rouvrit les yeux, il était couché dans un 4
 7 grand lit. Une odeur de terre humide montait par la 4
 ÿ fenêtre. Braun était penché sur lui. !
 4 — Pardon, balbutia Christophe, en tâchant de se
-…._ relever. Ne
-Se 12 4
 
 la fin du voyage |
 — Mais il meurt de faim, cria Braun.
@@ -4393,12 +3914,9 @@ ses jambes étaient lourds comme de la pierre. Il était
 dans un tombeau. Lumière blafarde. Quelques gouttes
 de pluie frappaient les carreaux. Un oïseau dans le
 jardin poussait de petits cris plaintifs. O misère de
-vivre ! Inutilité cruelle. \
 Les heures s'écoulèrent. Braun entra. Christophe ne |
-128 |
 
 ETAT MN A nl. di AE sa? à
-E LE BUISSON ARDENT :
 
 tourna pas la tête. Braun, lui voyant les yeux ouverts,
 linterpella joyeusement; et comme Christophe continuait de fixer le plafond, d'un regard morne, il entreprit de secouer sa mélancolie : il s'assit sur le lit et
@@ -4412,7 +3930,6 @@ Le brave homme changea de ton, aussitôt.
 
 — Vous voulez être seul? Comment donc! Certainement. Restez bien tranquillement. Reposez-vous, ne
 parlez pas, on vous montera les repas, personne ne '
-dira rien.
 
 Mais il lui était impossible d'être bref. Après d'interminables explications, il quitta la chambre sur la .
 pointe de ses gros souliers qui faisaient craquer le :
@@ -4428,11 +3945,8 @@ race disparue, sans qu'il en reste aucune trace. On ne
 sait ce qui l'emporte, de l'odieux ou du grotesque. Il
 lui venait un rire mauvais, rire de haïne et de désespoir. Son impuissance d'une telle douleur, sa douleur
 d'une telle impuissance, le tuaient. Il avait le cœur
-broyé.…
 
-ARE 7 PRIT ET, MA SR DEA CR LP eR. VEINE 11e METRE
 $ ‘> la fin da voyage Re ET
-LEST IT AN ER
 Nul bruit dans la maison, que les pas du docteur,
 sortant pour ses visites. Christophe avait perdu toute ke
 notion du temps, lorsque Anna parut. Elle portait le #
@@ -4466,10 +3980,7 @@ d'instinct, pour s'adresser à un malade. Il semblait
 que Christophe n'existât pas pour elle, ou qu'elle
 même existât à peine. Christophe éprouvait une sourde
 130 1
-- : à
 
-nat AE AAA TS : ES & $
-Lx BUISSON ARDENT
 se hostilité, en suivant avec impatience, cette fois, ses +
 LS mouvements gauches et guindés. Pourtant, il lui était
 4 _ reconnaissant de ne pas essayer de parler. — Il le fut ste
@@ -4500,10 +4011,7 @@ autre voix, il eût voulu s'enfuir. É
 | Christophe avec ses démonstrations d'amitié ordi- À
 2 naires. Tout de suite, il se mit à l'interroger sur 1
 LS les événements parisiens. Christophe lui saisit le
-a bras : :
 D - Non, dit-il, ne me demandez rien. Plus tard. Il ne
-“4 131 de:
-ï k
 
 la fin du voyage ë “à
 faut pas m'en vouloir. Je ne puis pas. Je suis las à
@@ -4542,8 +4050,6 @@ parler. Braun lui montra, un jour, dans le salon, un
 piano ; Christophe s'en détourna avec terreur. Tout bruit
 lui était odieux. Le silence, le silence, et la nuit! Il
 
-+ AM RENTREE Cha he Rs À. -
-0 LE BUISSON ARDENT
 ; n'y avait plus en lui qu'un vide immense et le besoin du
 # vide. Fini de sa joie de vivre, de ce puissant oiseau de
 4 - joie qui jadis s'élevait, par élans emportés, en chantant.
@@ -4575,10 +4081,7 @@ affaibli, une tristesse vague le travaille, une satiété des
 & choses, un détachement de ce qu'on a fait, une incapa3 cité de voir encore ce qu'on pourra faire d'autre. Aux
 ù. âges où se produisent ces crises, la plupart des hommes
 16 sont liés par les devoirs domestiques : sauvegarde pour
-é :
-1 133 ardent. — 1.
 
-- SR à
 ; la fin du voyage : LS
 eux, qui leur enlève, il est vrai, la liberté d'espritnéces- Ë
 saire pour se juger, s'orienter, se refaire une forte vie 3
@@ -4594,10 +4097,6 @@ blées, sa conscience obscurcie. Malheur à lui si, dans F
 ce moment où il est assoupi, un coup de tonnerre ;
 vient interrompre sa marche de somnambule ! Il risque  -
 de s'écrouler.
-L
-E
-:
-;
 
 ee Quelques lettres de Paris, qui avaient fini par le join- + É Ë
 _ dre, arrachèrent pour un instant Christophe à son Op
@@ -4626,7 +4125,6 @@ Re. - dans ce tombeau de l'âme. Christophe commença par y À
 ‘# porte s'ouvrait et se fermait, combien de fois dans la A
 4 FA ; journée, et de quelles façons diverses, suivant les wisi- pe
 
-3 Û > RETSS re
 la fin du voyage TAC
 : teurs. Il connut le pas de Braun; il s'imaginait voir le :
 docteur, au retour de ses visites, arrêté dans le vesti- È
@@ -4660,9 +4158,7 @@ de la médiocrité de certaines âmes sur lesquelles on Ë
 comptait — (aussi bien des artistes qu'on aimait, que
 des amis dans la vie). — Qui surnage? Comme la :
 beauté du monde sonne creux sous le doigt de la 4
-douleur! \
 
-F a LE BUISSON ARDENT |
 È “3 Mais la douleur se lasse, et sa main s'engourdit. Les
 nerfs de Christophe se détendaient. Il dormait, dormait
 - sans cesse. On eût dit qu'il ne parviendrait jamais à
@@ -4690,10 +4186,7 @@ s'effeuilla, expira; la neige de ses pétales se répandit
 | mourait. Si simplement! Dans l'esprit de Christophe,
 | cela prit une signification d'une douceur déchirante. Il
 : suffoqua; et, se cachant la figure dans ses mains, il
-4 -  sanglota..
 # Les cloches de la tour sonnèrent. D'une église à
-L 137 à
-5e
 
 5 la fin du voyage ‘2 TONER
 l'autre d'autres voix répondirent... Christophe n'eut pas
@@ -4729,7 +4222,6 @@ tristesse normale, qui ne l'empêchait plus de vivre. F
 Revivre, il le fallait bien! Cet homme qui venait de &
 138 4
 
-3e LE BUISSON ARDENT
 _ perdre ce qu'il aimait le plus au monde, cet homme que
 - Son chagrin minait, qui portait la mort en lui, avait une "ta
 _ telle force de vie, abondante, tyrannique, qu'elle écla- È
@@ -4744,7 +4236,6 @@ sant. Une fois, il était au piano, il jouait une page de :
 …_ Beethoven, avec sa fougue d'autrefois.. Tout à coup, il ÿ
 _ se jetait par terre, et se cachant la figure dans les À
 : * coussins d'un fauteuil, il criait : :
-—..  — Mon petit! |
 s Le pire était l'impression de « déjà vécu » : il l'avait, é
 _ à chaque pas. Incessamment il retrouvait les mêmes
 | gestes, les mêmes mots, le retour perpétuel des mêmes
@@ -4758,7 +4249,6 @@ recommencement de l'amour », combien plus ce recommencement de tout! C'était h
 à: n'y pas penser pour vivre, et puisqu'il voulait vivre.
 .  Hypocrisie douloureuse, qui ne veut point se connaître, k
 … par honte, par piété même, invincible besoin de vivre
-fé 139
 
 la fin du voyage ÉERE,
 qui se cache! Sachant qu'il n'est pas de consolations,
@@ -4774,7 +4264,6 @@ l'ancienne assurance; sur sa douleur la porte du cœur
 se referma ; il n'en parlait jamais aux autres; lui-même,
 
 il évitait de se trouver seul avec elle : il paraissait
-calme. ”
 
 « Les peines vraies, dit Balzac, sont en apparence
 tranquilles dans le lit profond qu'elles se sont fait, où
@@ -4786,9 +4275,6 @@ venant, causant, faisant de la musique, riant même — |
 Gil riait maintenant!) — eût senti qu'il y avait danscet
 homme vigoureux, aux yeux brûülants de vie, quelque :
 chose de détruit, au plus profond de la vie. 4
-
-J
-&
 
 Du moment qu'il était rivé à la vie, il devait s'assurer
 les moyens de vivre. Il ne pouvait être question pour
@@ -4815,9 +4301,7 @@ La vie s'arrangea chez Braun sur un plan méthodiquement réglé. Le matin, chac
 le docteur à ses visites, Christophe à ses leçons,
 
 madame Braun au marché et à ses œuvres édifiantes.
-: 141
 
-PRE UD An TE ER ER ES RS
 Christophe rentrait vers une heure, d'habitude avant 3 "1
 Braun, qui défendait qu'on l'attendit; et il se mettait & |
 à table avec la jeune femme. Cela lui était peu ;
@@ -4849,13 +4333,8 @@ voix sourde ; elle laissait tomber chaque mot; chaque
 par lui parler le moins possible ; et elle lui en sut gré.
 C'était un soulagement pour tous deux, quand le doc- 4
 teur rentrait. Il était toujours de bonne humeur, bruyant, Le
-142 à
-
-RER à : ; A
 
 00e À : LE BUISSON ARDENT fa
-
-ee
 
 _ afairé, vulgaire, excellent homme. Il mangeaït, buvait,
 
@@ -4938,11 +4417,6 @@ Braun, Christophe avait consenti à se remettre au 2
 piano ; et il jouait parfois jusqu'à une heure avancée, …
 dans le grand salon mal éclairé qui donnait sur le jardin. Braun était dans l'extase... Qui ne connaît de ces « gens passionnés pour des œuvres qu'ils ne comprennent :
 point, ou qu'ils comprennent à rebours! — (c'est
-144 À
-
-SU
-
-d ÿ LE BUISSON ARDENT
 
 _ bien pour cela qu'ils les aiment!) — Christophe ne se
 fâchait plus : il avait rencontré déjà tant d'imbéciles
@@ -4960,12 +4434,7 @@ bruit au milieu du morceau, et on ne la revoyait plus.
 
 |
 
-à
-
-Ee
-
 |
-;
 ; ; Ainsi se passaient les journées. Christophe reprenait :
 à ses forces. La bonté lourde, mais affectueuse de Braun,
 “4 le calme de la maison, la régularité reposante de cette À
@@ -4976,7 +4445,6 @@ robuste tempérament. Sa santé physique était rétablie;
 : vigueur renaissante ne faisait qu'accentuer le désarroi
 Fe de l'esprit qui ne parvenait pas à retrouver son équi- à
 libre, comme une barque mal lestée qui sursaute, au
-moindre choc. Si
 Son isolement était profond. Il ne pouvait avoir …
 d'intimité intellectuelle avec Braun. Ses rapports avec É
 Anna se réduisaient, à peu de chose près, aux saluts |
@@ -4986,14 +4454,10 @@ ses élèves étaient plutôt hostiles : car il leur cachait %
 de ne plus faire de musique. Il ne connaissait personne. f
 La faute n'en était pas uniquement à lui, qui depuis
 son deuil se terrait dans son coin. On le tenait à“
-l'écart. 00
 Il était dans une vieille ville, pleine d'intelligence et”
 de force, mais d'orgueil patricien, renfermé en soi et
 satisfait de soi. Une aristocratie bourgeoise, qui avait.
 | 146 Ne.
-FE x
-
-3€) 0 TE _ LE BUISSON ARDENT
 
 4 le goût du travail et de la haute culture, mais étroite,
 
@@ -5003,7 +4467,6 @@ FE x
 familial. De vastes familles aux vastes ramifications. He
 Chaque famille avait son jour de réunion pour la famille. $
 Pour le reste, elle s'entr'ouvrait à peine. Ces puissantes à ;
-maisons, aux fortunes séculaires, n'éprouvaient nul
 besoïn de montrer leur richesse. Elles se connaissaient: +
 c'était assez; l'opinion des autres ne comptait point. On \
 voyait des millionnaires, mis comme de petits bour- DES
@@ -5045,10 +4508,6 @@ elle s'était fait accueillir et reconnaître par lui, — exer-
 
 3 çait sur lui-même la plus rigoureuse des disciplines,
 
-Es 147 à
-
-= RE g
-
 é la fin du voyage (=
 Tous se tenaient, et tous se surveillaient. Il en était
 résulté une conscience collective qui recouvrait les différences individuelles, (plus accusées qu'ailleurs entre
@@ -5088,8 +4547,6 @@ Il y en avait pour toutes choses : pour la philanthropie,
 d pour les œuvres pieuses, pour les œuvres commerciales, pour les œuvres pieuses et commerciales à la
 fois, pour les arts, pour les sciences, pour le chant, la
 
-F LE BUISSON ARDENT
-
 4 _ musique, pour les exercices spirituels, pour les exer-
 
 .  cices physiques, pour se réunir, tout simplement, pour
@@ -5123,8 +4580,6 @@ K bibliothèques. Il avait beau s'époumonner à dire des
 vain protestait-il de son indépendance : ils se l'incorpoL raient. Ainsi, l'effet du poison était neutralisé : c'était
 $ le traitement par l'homéopathie. — Mais ces cas
 #4 étaient rares, la plupart des révoltes n'arrivaient pas
-è, 149 d ardent. — a
-U
 
 la fin du voyage SE RE
 au jour. Ces paisibles maisons renfermaient des tragé-
@@ -5157,9 +4612,7 @@ d'origine et comme incroyant de fait. De son côté, il y :
 trouvait beaucoup de choses qui le choquaïent. Il avait …
 Ÿ beau ne plus croire, il portait en lui la marque sécu:
 | 150 1
-‘ L'or
 
-LA He _ LE BUISSON ARDENT
 “4 laire de son catholicisme, plus poétique que raisonné,
 _ plus indulgent à la nature, et qui ne se tourmentait pas |
 ET tant d'expliquer ni de comprendre que d'aimer ou de
@@ -5190,11 +4643,7 @@ L et des êtres enfantins, simplifiés, schématiques. Cer__  tains d'entre eux 
 É, suprême. Leur pureté de cœur, très réelle souvent,
 noble et naïve, parfois comique, devenait malheureu- é
 É sement, en certains cas, tragique; elle les menait à une
-De, 151
-é
-{pe
 
-- ‘ ti |
 la fin du voyage
 dureté vis-à-vis des autres, à une inhumanité tranquille,
 sans colère, sûre de soi, qui effarait. Comment eussentils hésité? N'avaient-ils pas la vérité, le droit, la vertu
@@ -5228,11 +4677,7 @@ connaître ; mais, à ce moment de sa vie, toute curiosité
 artistique et humaine était émoussée en lui; il sentait
 152 1
 
-54 LE BUISSON ARDENT
-
 “4 plus ce qui le séparait des hommes que ce qui l'unissait
-
-à à eux.
 
 4 . Son seul ami, le confident de ses pensées, était le
 fleuve qui traversait la ville, — le même fleuve puissant et paternel qui là-haut, dans le nord, baïgnait sa
@@ -5274,21 +4719,12 @@ aux marches d'escalier rouges, usées dans le milieu;
 
 —_ fer, scellées au mur, qui luisaient, éclairées par le
 
-a
-
-Fe. 153 ardent. — 2.
-
-k £
-
-s Rte &
 la fin du voyage SFR
 réverbère d'en haut sur la place déserte devant l'église
-<4 8 vêtue de nuit... :
 | Il ne comprenait plus pourquoi les hommes vivaient.
 Quand il lui arrivait de se rappeler les luttes dont il
 avait été le témoin, il admirait amèrement cette humanité avec sa foi chevillée au corps. Les idées succédaient
 é aux idées opposées, les réactions- aux actions : —
-4 démocratie, aristocratie; socialisme, individualisme:; |
 EF romantisme, classicisme ; progrès, tradition; — et ainsi,
 | pour l'éternité. Chaque génération nouvelle, brûlée en
 ” moins de dix ans, croyait avec le même entrain être,
@@ -5314,7 +4750,6 @@ avec le reste de l'humanité. Il lui semblait aujourd'hui
 sociale reposait sur un immense malentendu, dont le
 F langage était la source. On croit que la pensée peut
 
-LS | LE.BUISSON ARDENT
 + communiquer avec les autres pensées. En réalité, il n'y
 a de rapports qu'entre des mots. On dit et on écoute
 À des mots. On se sert des mêmes mots; mais pas un mot ;
@@ -5347,8 +4782,6 @@ entiers dans aucune passion. Ils s'économisent, avec
 ; uve ladrerie prudente. Ils sont de tout, un peu, et ne
 2 sont tout à fait de rien. Celui qui se donne sans
 4 compter, à tous les moments de sa vie, dans tout ce |
-7 r.
-à
 
 la fin du voyage À F
 qu'il fait, dans tout ce qu'il souffre, dans tout ce qu'il
@@ -5362,8 +4795,6 @@ Ainsi pensait Christophe; et la vie s'apprêtait à lui
 le feu dans la pierre : un choc le fait jaillir. Nous ne
 soupçonnons pas les démons qui dorment en nous.
 L Pero non mi destar, deh! parla basso…
-
-D:
 
 : Un soir que Christophe improvisait, au piano, Anna
 ; se leva et sortit, comme elle faisait souvent, lorsqu'il ?
@@ -5388,8 +4819,6 @@ s qu'elle ne l'avait point dit. Il lui parut singulier qu'elle
 sf se promenât sans lumière, pour chercher quelque chose.
 s: Mais il était si habitué aux allures bizarres d'Anna
 —_ qu'il n'y prêta pas attention.
-
-É 157
 
 | la fin du voyage Fois ä
 Une heure après, il était revenu dans le petit salon, |
@@ -5425,7 +4854,6 @@ sous l'ombre impénétrable des paupières bleuâtres, aux
 Û cils courts et serrés. Si Christophe n'avait été sûr de j
 lui-même, il aurait cru qu'il avait été le jouet d'une
 
-2408 : & LE BUISSON ARDENT
 _ illusion. Mais il savait qu'il avait vu, et il ne parvenait
 pas à comprendre. :
 * Cependant, comme son esprit était absorbé par le
@@ -5457,17 +4885,12 @@ k et elle s'éleva à une violence de passion qui fit frémir
 Nef sourire voluptueux, un peu lourd et cruel, de ses dents
 de . saines et blanches, ses belles et fortes mains, dont
 F4 l'une s'appuyait sur le pupitre du piano, et la robuste
-h ;
-+8 t
-sv PO
 
-: 7 Fes ; FRET
 la fin du voyage s
 charpente d'un corps étriqué par sa toilette, amaigri
 
 ÿ par une vie trop réduite et trop pauvre, mais qu'on
 devinait jeune, vigoureux, et harmonieux, sous la
-robe.
 
 Elle cessa de chanter, et alla se rasseoir, les mains
 
@@ -5516,7 +4939,6 @@ _ chambre voisine. Christophe admira son calme; mais
 il n'aurait pu dire si ce calme prouvait plus son courage, ;
 | 3 ÿ 161 ardent. — 3 RES
 
-Mad LÉ S : FL LS R,. TET CR ANONE PR LEE UT, LS SO SLT TER
 la fin du voyage
 ou son insensibilité. Il penchaït vers la dernière explication. En vérité, cette femme semblait ne s'intéresser
 à rien, ni aux autres, ni à elle. Christophe doutait
@@ -5618,7 +5040,6 @@ comprenait pas, non plus.
 dans un hospice d'aliénés. Ah! les mâtines!.… Je
 comprends qu'on se tue par amour. Je comprends Ë
 même qu'on tue l'être qu'on aime et qui vous trompe... :
-164 #7
 
 | LE BUISSON ARDENT > Fo
 
@@ -5643,7 +5064,6 @@ _  _. — Où at-elle été pêcher cela? Comment! il faut
 
 he que tu dises ton mot, toi aussi? Qu'est-ce que diable tu
 
-_ ensais? ;
 —_ Anna rougit légèrement, et se tut. Braun reprit : ss :
 .— Quand on aime, on veut détruire ?.. Voilà une
 *  monstrueuse sottise! Détruire ce qui vous est cher, LEA
@@ -5655,11 +5075,6 @@ _ ensais? ;
 4 Anna, les yeux fixés dans l'ombre, le laissa parler, $
 4 et, secouant la tête, elle dit froidement : j Rue
 144 — On n'est pas bon quand on aime. :
-Re
-
-4 à 4
-
-TR
 
 .
 Christophe ne renouvelait pas l'épreuve d'entendre
@@ -5674,7 +5089,6 @@ vide, et Christophe crut voir passer dans son regard Eedes lueurs de l'ardeur é
 è son livre. Elle se sentit observée, et se remit à coudre. k
 Sous ses paupières baissées, elle voyait toujours tout. 4
 Il se leva, et dit : : 8
-— Venez. 4
 Elle fixa sur lui ses yeux où flottait encore un peu ;
 de trouble, comprit, et le suivit. .
 — Où allez-vous? demanda Braun.
@@ -5686,18 +5100,12 @@ de plain-pied dans ce monde héroïque, comme s'il 4
 morceau, puis un troisième plus emporté, déchaînant 5
 en elle le troupeau des passions, l'exaltant, s'exaltant; |
 
-x JE
-. +
-
-3 80e LE BUISSON ARDENT
-
 B puis, arrivés au paroxysme, il s'arrêta net et lui
 
 st demanda, les yeux dans les yeux :
 
 | À — Mais enfin, qui donc êtes-vous?
 
-; Anna répondit : |
 4 — Je ne sais pas.
 
 : Il dit brutalement : à
@@ -5741,9 +5149,6 @@ ensemble. Ils en firent même bientôt dans l'après-midi ;
 
 | et chaque jour, davantage. Toujours la même passion
 Ê incompréhensible s'emparait d'elle, dès les premiers
-; Fe ; ; 167
-
-PES Men ART rt ANR eu Re AN ge LU AE DOC es ESPACE + ‘VE SUMM 2 3 Æ
 
 | de - LC D Et - (S
 
@@ -5807,12 +5212,9 @@ F elle s'appelait Anna-Maria Senfl. Son père, Martin Senfl,
 
 RS: appartenait à une vieille maison de marchands, sécu
 
-LF : r' da
-
 515 ds LE BUISSON ARDENT é
 à | aire et millionnaire, où l'orgueil de caste et le rigo5 _ risme religieux étaient montés en graine. D'esprit ;
 aventureux, il avait, comme beaucoup de ses conci-
-à ; toyens, passé plusieurs années au loin, en Orient, en :
 3 Amérique du Sud ; il avait même fait des explorations RAR
 2 hardies au centre de l'Asie, où le poussaient à la fois
 
@@ -5848,8 +5250,6 @@ lui était fermé. Il s'usa en colères inutiles contre les
 
 —_._ excès et par les fièvres, ne put y résister. IL mourut
 
-. = 169 ardent, — 3.
-
 la fin du voyage à
 d'un coup de sang, cinq mois après le mariage. Quatre |
 mois plus tard, sa femme, bonne personne, mais faible |
@@ -5882,7 +5282,6 @@ destes et contorsionnées qu'un feu brûle entre les
 crapauds et des serpents. Elle s'accoutuma à refouler ;
 ses instincts, à se mentir à elle-même, Dès qu'elle fut
 
-210 LE BUISSON ARDENT |
 % d'âge à aider sa grand mère, elle fut employée, du
 8 matin au soir, dans le triste et obscur magasin. Elle
 ; prit les habitudes qui régnaient autour d'elle, cet esprit
@@ -5913,9 +5312,6 @@ au mal qu'elle se faisait, Par une exception singulière,
 cet esprit dur et froid, comme celui de l'aïeule, s'ouvrait
 à la musique, sans qu'elle sût elle-même jusqu'à quelle
 3 profondeur, Elle était fermée aux antres arts; elle
-4 ;
-
-Re RC omi nnn LUS ee RE DS CASE ES ES UC PSS RE
 
 é la fin du voyage SE ae .
 
@@ -5980,10 +5376,6 @@ voisine; il avait admiré son bon sens et son calme; il |
 
 4 A aucun moment, la jeune femme n'avait eu le moindre
 
-ÿ 172
-
-: 10 à LE BUISSON ARDENT , : Se
-
 1 Fe _ amour pour son mari : C'était là une pensée, dont il ne
 ‘ lui semblait pas qu'il dût être question dans une vie
 4e _ honnête, et qu'il fallait plutôt écarter comme coupable.
@@ -6016,10 +5408,6 @@ ke dans le monde, et ne se plaignaïit pas qu'on l'oubliât.
 rien ne venait plus troubler le rève qu'elle ruminait et 3
 | le bourdonnement obscur de sa chair. à
 
-Re
-
-£ E \ À
-Cependant, depuis quelques semaines, Anna semblait
 souffrante. Son visage se creusait, blémissait. Elle
 ; fuyait la présence de Christophe et de Braun. Elle
 passait ses journées dans sa chambre ; elle s'enfonçait
@@ -6049,7 +5437,6 @@ voyait rien; tous les pays étaient pour elle de l'herbe et :
 des pierres; son insensibilité glaçait. Christophe avait
 tâché de lui faire admirer un beau site. Elle regarda,
 sourit froidement, et dit, faisant effort pour lui être
-agréable : €
 
 — Oh! oui, c'est mystique.
 
@@ -6086,11 +5473,6 @@ lointaine auréole, Leur compartiment était plein; ils
 furent séparés l'un de l'autre. Ils ne se parlaient pas,
 
 | Anna était sombre; la veille, elle avait déclaré, à la
-d 295
-
-A"
-
-à.
 
 la fin du voyage : Rue 1
 surprise de Braun, qu'elle n'irait pas au culte du se
@@ -6155,9 +5537,7 @@ dont l'enseigne portait l'image d'un « homme sauvage »
 À (Im Frülling), autre patriotique : la bataille de Saint_ Jacques, et d'un crucifix avec un crâne au pied de la
 1 croix. Anna avait un appétit vorace, que Christophe ne
 ; lui connaissait pas. Ils burent allègrement du petit vin
-4 192 ; |
 
-2 *< 3%
 la fin du voyage +24
 blanc. Après le repas, ils repartirent à travers champs,
 comme deux bons compagnons. Nulle pensée équivoque.
@@ -6181,26 +5561,17 @@ sur la terre, ou dans les fentes des murs). — Ensuite,
 : elle parla de la maison où elle vivait, de sa chambre
 sans soleil; elle s'en souvenait avec plaisir; elle y pas-
 ; sait des nuits sans dormir, à se raconter des choses.
-— Quelles choses? :
 — Des choses folles. |
-— Racontez. é
 Elle secoua la tête, pour dire que non. :
-— Pourquoi?
 Elle rougit, puis rit, et ajouta : 4
 — Et aussi le jour, pendant que je travaillais.
 Elle y pensa un moment, rit de nouveau, et conclut : |
 — C'étaient des choses folles, des choses mauvaises. |
-OR LL
 |
-‘
-
-. LE BUISSON ARDENT
 
 Il dit, en plaisantant :
 
 ; — Vous n'aviez donc pas peur?
-— De quoi?
-— D'être damnée?
 < Sa figure se glaça.
 
 — Il ne faut pas parler de cela, dit-elle.
@@ -6223,10 +5594,8 @@ même de le faire : elle eut la chance d'en être quitte,
 avec une entorse. Elle inventait des exercices bizarres
 et dangereux, quand on la laissait seule à la maison;
 elle soumettait son corps à des épreuves étranges et
-variées.
 
 — Qui croirait cela de vous, dit-il, quand on vous
-voit si grave!
 
 — Oh! dit-elle, si l'on me voyait parfois dans ma
 chambre, quand je suis seule!
@@ -6264,20 +5633,13 @@ Fe sentez cette parenté avec les bêtes, comment pouvez-
 Fa font du mal; je fais du mal à d'autres. C'est dans l'ordre.
 Je ne me plains pas. Il ne faut pas être si douillet, dans
 É la vie! Je me fais bien du mal à moi-même, par plaisir!
-4 — A vous? :
 J — A moi. Regardez. Un jour, avec un marteau, je me
 , suis enfoncé un clou dans cette main. É
-É — Pourquoi? d
 — Pour rien. É
-180 ;
-5 À
-ne -
 
-5 LS LE BUISSON ARDENT
 E (Elle ne disait pas qu'elle avait voulu se crucifier).
 #2 — Donnez-moi la main, dit-elle.
 É: — Qu'en voulez-vous faire? k
-__ — Donnez. $
 F< Il lui donna la main. Elle la saisit et la serra, à le
 faire crier. Ils jouèrent, comme deux paysans, à se
 faire le plus de mal possible. Ils étaient heureux, sans
@@ -6337,7 +5699,6 @@ tenait debout, tendant les bras. Répondant à son geste,
 
 |
 
-LE BUISSON ARDENT <
 - Anna, d'un mouvement instinctif, lui tendit ses bras
 aussi, et, montant sur la margelle, elle remplit les
 mains de la jolie déesse avec des branches de houx et #
@@ -6346,7 +5707,6 @@ des oiseaux et le gel avaient épargnées. :
 Ils croisaient sur la route des groupes de paysans et :
 de paysannes endimanchés. Des femmes à la peau très
 brure, aux joues très colorées, avec d'épais chignons,
-enroulés en coquille; robes claires, chapeaux fleuris.
 Elles avaient des gants blancs et des poignets rouges.
 Elles chantaient des chants honnêtes, avec des voix
 aiguës, placides, pas très justes. A l'intérieur d'une
@@ -6369,8 +5729,6 @@ se mit à tracer des barres et des points : il écrivait des
 $ danses. La feuille fut bientôt remplie ; il en demanda
 d'autres, qu'il couvrit, comme la première, de sa grosse
 écriture impatiente et maladroïite. Anna, la joue près
-; 183
-:
 
 : la fin du voyage TARA
 & # de la sienne, lisait par-dessus son épaule, chanton- *
@@ -6404,7 +5762,6 @@ musiciens, à l'hôte, aux garçons du village, à côté de
 Ils se retrouvèrent seuls, sous le ciel brillant et -
 glacé, refaisant à travers champs le chemin qu'ils
 f avaient suivi, le matin. Anna était encore tout animée.
-b , 184 »|
 
 5 gs Re Et de LE BUISSON ARDENT 4 ‘3
 Peu à peu, elle parla moins, puis elle cessa de parler, ne
@@ -6432,10 +5789,6 @@ __ qu'on se rapprochait de la ville, il voyait le visage SIC"
 _ la grâce sauvage rentrer dans sa gaine de pierre. Elle. LR
 _ ne s'appuya pas sur la main qu'il lui tendait, en des-. .
 _ cendant de wagon. Ils revinrent, en silence. 2 D
-4 TS
-%
-La 2 £ ardent. — 4 ' , à
-de :
 
 . Quelques jours après, vers quatre heures du soir, ils
 étaient seuls ensemble. Braun était sorti. Depuis la
@@ -6466,8 +5819,6 @@ se levait en lents tourbillons. Il tournait le dos à
 Anna ; ellé ne le voyait pas, elle s'absorbaïit dans sa
 tâche; mais un léger frisson lui passait par le corps;
 
-72 = ù
-LE BUISSON ARDENT
 elle se piqua plusieurs fois avec son aiguille, elle ne .
 le sentit point. Ils étaient tous deux fascinés par
 l'approche du danger.
@@ -6506,10 +5857,6 @@ que vibre sa voix ensorcelante, le dompteur tient
 
 sous son regard les fauves. La puissante raison d'un
 
-Li
-
-PA ed MO 0 CO
-PL à D ou 0 OS
 De © la fin du'hoyage © ONCE
 Se grand musicien fascine les passions qu'il déchaîne. % +
 Le Mais quand la musique s'est tue, quand le dompteur :2
@@ -6542,13 +5889,9 @@ L , lique, qui sortait de la terre et des toits vêtus de blan- ë
 " imperceptible le fit tressaillir. Il fallait son oreille
 76 fiévreuse pour l'entendre. Un frôlement très doux sur “1
 È le plancher du couloir. Christophe se dressa dans son
-T4 188 %
-PMP RON
 
-LORS LE BUISSON ARDENT a . :
 La Ti Le bruit léger se rapprocha, s'arrêta ; une planche 5 &.
 _  craqua. On était derrière la porte; on attendait... Une #
-_ immobilité complète, pendant plusieurs secondes, plu- Te.
 _ sieurs minutes peut-être. Christophe ne respiraïit plus, ;
 il était baigné de sueur. Des flocons de neïge, au PERS
 … dehors, effleuraient la vitre, comme une aile. Une main É
@@ -6562,8 +5905,6 @@ guait rien; mais il l'entendait respirer; et il entendait 3
 son propre cœur qui battait. Elle vint près du lit. “
 
 Elle s'arrêta encore. Leurs visages étaient si près que à
-
-à leurs haleines se mélaient. Leurs regards se cherchaïent, =
 
 - sans se trouver, dans l'ombre... Elle tomba sur lui. Ils ,
 
@@ -6593,7 +5934,6 @@ le lit étroit, près de Braun endormi. Que de nuits elle FES
 - au mariage un sérieux tragique. Il haïssait la légèreté { »…. de ces écrivains, dont l'art se fait un piment de
 … J'adultère. L'adultère lui inspirait une répulsion, où 1 È
 “. se combinaient sa brutalité populaire et sa hauteur ne
-DE, } 189 ardent. — 4. Fe
 
 la fin du voyage ee.
 morale. Il éprouvait tout ensemble un respect religieux et un dégoût physique pour la femme qui appar- 5
@@ -6677,7 +6017,6 @@ SE Anna le regardait; ses yeux, obstinément baissés,
 id feu dévorant. Christophe reçut le choc dans ses yeux,
 HR et chancela; tout ce qu'il voulait dire fut raturé, d'un
 À trait. Ils allèrent l'un à l'autre, et de nouveau ils se
-ti saisirent.…
 S L'ombre du soir se répandait. Leur sang grondait
 
 ; encore. Elle était allongée sur le lit, sa robe arrachée, <
@@ -6699,10 +6038,8 @@ er à parler de la lâcheté de leur acte. À peine eut-elle |
 Le compris qu'elle lui ferma violemment la bouche avec la
 À main. Elle s'écarta de lui, les sourcils contractés, les
 + lèvres serrées, avec une expression mauvaise, Il conti-
-& 192 |
 
 A ne de ne eu ui
-_HÉES LE BUISSON ARDENT ï £ 4
 ua. Elle jeta par terre l'ouvrage qu'elle avait dans les - #3
 mains, et ouvrit la porte, voulut sortir. Il lui empoigna 5 +
 . _ les mains, il referma la porte, il dit amèrement qu'elle OR
@@ -6734,7 +6071,6 @@ C4 . dimanche suivant, elle refusa encore d'aller au temple. |
 Mn Mais le dimanche d'après, elle y retourna, et elle ne le Ke
 Le E quitta plus. Elle était vaincue, non soumise. Dieu était Ë
 M. l'ennemi, — un ennemi dont elle ne pouvait se délivrer. ‘ -
-- 193 Cie
 
 la fin du voyage
 
@@ -6803,44 +6139,27 @@ pour ses qualités de cœur ou d'esprit. Il n'en manquait
 pas d'autres plus intelligentes et meilleures. Ce n'était
 " pas pour sa chair. Il avait eu d'autres maîtresses, que
 ses sens préféraient. Qu'était-ce donc? — « On aime,
-fs 195
-Fe
-KL:
 
 ANT ne D TS NOMESN TS NIERRES
-Hit, 2 CC MERE
 ie Fe _ parce qu'on aime. » — Oui, mais il y a “une raison,
 _ même si elle dépasse la raison ordinaire, Folie? Cest
 SES _ ne rien dire. Pourquoi cette folie? RSR EURE
-<e ? . A | Se ETS F4
 CSN Parce qu'il y a une âme cachée, des PSE LE.
 575 aveugles, des démons, que chacun porte emprisonnés É
 se EE en soi. Tout notre effort, depuis que l'humanité existe, 5
 __ a été d'opposer à cette mer intérieure les digues d…_
 notre raison et de nos religions. Mais que vienne une
-Re | É I AT »
 ue __ tempête (et les âmes plus riches sont plus sujéttes aux
 _ tempêtes), que les digues aient cédé, que les démons …
 _ aient le champ libre, qu'ils se trouvent en présence Ré à
 _ d'autres âmes que soulèvent des puissances sembla-
 - “720 _ bles... Ils se jettent l'un sur l'autre. Haine, ou amour?
 __ Fureur de destruction mutuelle? — La passion, c'est 1
-Se, Pa : K
 oi, +25; lame de proie. k ; SE E
 5 se La mer est déchainée. Qui la remettra dans son lit?
 à HER - — Alors, il faut faire appel à plus puissant que soi. A E)
 LEE Neptune, dieu des flots. is ca
-RP : J 2
-276 < D
-Rte: à , DUR
-D api ù RE
-HR ? * 15
-5 + … # ; res 2
-TS ; sde Faut SORTE PIRE
-1 46070 En. RL
-Deer. = PAT UNS |
 
-_ : ;
 Après quinze jours d'efforts inutiles pour fuir, Christophe revint dans la maison d'Anna. Il ne pouvait plus
 vivre loin d'elle. Il étouffait.
 Cependant, il continuait de lutter. Le soir de son
@@ -6865,8 +6184,6 @@ du lit. Le lit était étroit. Malgré leurs efforts pour
 Christophe et tremblait de rage et de douleur. Elle
 … le haïssait, jusqu'à la mort. Christophe se taisait,
 —._ atterré. Dans le silence, Anna l'entendit soupirer;
-LA
-$ 197 ardent. — 5
 
 ë la fin du voyage SRE PE
 elle se retourna brusquement, lui mit ses bras autour É 1
@@ -6875,10 +6192,8 @@ du cou : ;
 — Pauvre Christophe! dit-elle, je te fais souffrir.
 
 Pour la première fois, il lui entendait cette voix de
-pitié.
 
 | — Pardonne-moi, dit-elle. - ‘
-n Il dit : ) |
 | — Pardonnons-nous. 5
 Elle se souleva, comme si elle ne pouvait plus ress pirer. Assise dans le lit, courbant le dos, accablée, elle <
 | dit : r 4
@@ -6891,12 +6206,7 @@ demi-jour, il vit le douloureux visage qui touchait le
 
 : sien. IL murmura :
 
-: — Le jour.
-
 Elle ne fit pas un mouvement.
-
-‘ Jdit:
-— Soit. Qu'importe ?
 
 Elle rouvrit les yeux, sortit du lit, avec une expression de lassitude mortelle. Assise sur le bord, elle
 regardait le plancher. D'une voix sans couleur, elle dit :
@@ -6917,10 +6227,7 @@ Elle répéta : x
 — Pas lui. Oui. #
 
 | 198
-rt |
 
-nd AE Sedo ue à £ ge
-Nr & LE BUISSON ARDENT à
 Ils se regardèrent. VS
 IL y avait longtemps qu'ils le savaient. Ils savaient “
 quelle était la seule issue. Ils ne pouvaient supporter N
@@ -6943,7 +6250,6 @@ conclusion piteuse et écourtée d'une grande vie. Quant >.
 _ à Anna, comment eût-elle accepté sans y être contrainte È
 l'idée d'une mort qui menait à la mort éternelle ? Maïs
 la nécessité meurtrière Les traquait, et le cercle se |
-resserrait peu à peu autour d'eux.
 Ce matin, pour la première fois depuis sa trahison, a
 Christophe se trouva avec Braun. Jusque là, il avait
 réussi à l'éviter. Cette rencontre lui était intolérable. Il
@@ -6981,7 +6287,6 @@ sur la table, et sortit. Les deux hommes achevèrent en
 silence de diner, ou ils firent semblant; ils n'osaient
 lever les yeux. Quand ce fut fini, Christophe allait
 partir, Braun lui prit brusquement le bras avec les
-deux mains.
 
 — Christophe! dit-il.
 
@@ -6996,8 +6301,6 @@ vite, il s'excusait :
 
 — Tu la vois souvent, elle a confiance en toi...
 
-LE BUISSON ARDENT
-
 Christophe fut sur le point d'embrasser les mains de
 Braun, de lui demander pardon. Braun vit le visage
 bouleversé de Christophe; et aussitôt, terrifié, il ne
@@ -7007,8 +6310,6 @@ précipitamment, il lui soufila : ;
 — Non, n'est-ce pas? tu ne sais rien?
 
 Christophe, accablé, dit :
-
-— Non.
 
 O douleur de ne pouvoir s'accuser, s'humilier, puisque
 ce serait déchirer le cœur de celui qu'on a outragé!
@@ -7034,8 +6335,6 @@ morne, et dit :
 — Comment pouvez-vous parler ainsi? cria Christophe.
 C'est affreux. À aucun prix, à aucun prix, je ne veux
 qu'il souffre.
-
-Anna s'emporta.
 
 — Et quand il souffrirait? Est-ce que je ne souffre
 pas, moi? Qu'il souffre aussi!
@@ -7068,10 +6367,7 @@ mérite à le cacher à Christophe, soit qu'elle ne voulüt
 pas ajouter à son trouble, soit plutôt par fierté, ;
 
 |
-É
-+
 
-: |
 Si fermée que fût la maison de Braun, si secrète que ñ
 restât la tragédie bourgeoise qui s'y jouait, quelque '
 chose en avait déjà transpiré, au dehors. e
@@ -7088,7 +6384,6 @@ perdu : on sait ce que vous'avez fait, ce que vous avez ;
 dit, ce que vous avez vu, ce que vous avez mabgé; on
 sait même, on se flatte de savoir ce que vous avez
 pensé. Une surveillance occulte, universelle, vous a.
-enveloppe. Domestiques, fournisseurs, parents, amis,
 indifférents, passants inconnus, tous collaborent, d'un
 consentement tacite, à cet espionnage instinctif dont les PR
 * éléments dispersés se centralisent, on ne sait comment. È
@@ -7096,14 +6391,12 @@ On n'observe pas seulement vos actes, on scrute votre
 cœur. Dans cette ville, nul n'a le droit de réserver le
 ? secret de sa conscience; et chacun a le droit de se
 - pencher sur vous, de fouiller dans vos pensées intimes,
-ë 203 : 2
 
 la fin du voyage RE
 et, si elles choquent l'opinion, de vous en demander
 compte. L'invisible despotisme de l'âme collective pèse |
 sur l'individu; il est, toute sa vie, comme un enfant |
 en tutelle; rien de lui n'est à lui : il appartient à la |
-ville.
 Il avait suffi qu'Anna s'abstint, deux dimanches de
 suite, de paraître à l'église pour éveiller les soupçons.
 En temps ordinaire, nul ne semblait remarquer sa
@@ -7132,9 +6425,6 @@ Leur regard se promenait autour d'elles, dans la
 chambre, fouillait, notait, enregistrait. Elles ne se
 départaient pas de leur bonhomie froide, au débit
 
-La
-
-LE BUISSON ARDENT
 bruyant et affecté; mais on voyait dans leurs yeux la
 curiosité indiscrète qui les dévorait. Deux ou trois
 . demandèrent, avec une indifférence exagérée, des
@@ -7166,8 +6456,6 @@ signalement avait été donné ; et, comme tout se répète,
 le bruit en était venu en ville, où la malveillance
 éveillée n'avait pas manqué de reconnaître Anna. Sans
 
-205 ardent. — 5,
-
 __ la fin du voyage. Lo
 3 doute, ce n'était encore là qu'un soupçon, mais singu- =
 lièrement attirant, et auquel s'ajoutaient les renseigne-
@@ -7189,7 +6477,6 @@ de l'opinion : elle la respectait; elle souscrivait à ses
 | le mépris de la ville lui eût été impossible à supporter.
 Or, le moment venait où l'occasion allait s'offrir à la 4
 médisance publique de s'épancher. Le carnaval appro-_
-; chait. à
 Le carnaval, dans cette ville, avait gardé jusqu'au
 temps où se déroule cette histoire — (il a bien changé,
 depuis) — un caractère de licence et d'âpreté archaïque.
@@ -7201,7 +6488,6 @@ ment ou non, au joug de la raison, nulle part il n'eut
 diennes de la raison. Aussi la ville d'Anna devait-elle
 vel L RE Fe
 
-Le
 # À : LE BUISSON ARDENT
 ; rester une de ses terres d'élection. Plus le rigorisme |
 moral y paralysaït les gestes, y bâillonnait les voix,
@@ -7230,14 +6516,10 @@ geait les citoyens contre les citoyens; et cette |
 appréhension de l'outrage public, constamment sus- ;
 pendue, ne devait pas peu contribuer à maintenir dans |
 les mœurs l'apparence impeccable dont la ville
-s'honorait.
 Anna était sous le poids de cette peur, — d'ailleurs
 injustifiée, Elle avait bien peu de raisons de craindre, L à
-: 207 ;
 
-e \ LR CT
 la fin du voyage 1
-%
 Elle tenait trop peu de place dans l'opinion de la ville %
 pour qu'on eût seulement l'idée de l'attaquer. Mais dans |
 l'isolement absolu où elle se muraït, dans l'état 9
@@ -7259,7 +6541,6 @@ faire pour l'empêcher, rien faire même pour savoir ce :
 - qui allaït arriver. Le doute était plus affolant encore
 que la certitude. Anna jetait autour d'elle des yeux de
 bête aux abois. Dans sa propre maison, elle se savait 4
-cernée. 4
 La domestique d'Anna avait passé la quarantaine.
 Elle se nommaït Bäbi : grande, forte, la face rétrécie et .
 décharnée aux tempes et au front, large et longue à la
@@ -7269,9 +6550,7 @@ comme des vrilles, enfoncés, sucés en dedans, sous
 des paupières rouges aux cils invisibles. Elle ne se
 départait pas d'une expression de gaieté mignarde :
 toujours enchantée des maîtres, toujours de leur avis, ,
-208 |
 
-g LE BUISSON ARDENT
 s'inquiétant de leur santé avec un intérêt attendri; de
 souriant, quand on lui donnait des ordres; souriant,
 quand on lui faisait des reproches. Braun la croyait d'un
@@ -7301,8 +6580,6 @@ Frocin pour surprendre Tristan se rendant au lit
 d'Yseut : tant il est vrai qu'un nombre restreint de types,
 dans le bien comme dans le mal, servent pour tous les
 
-FE.
-
 la fin du voyage RARE
 ; siècles. Grande preuve en faveur de la sage économie ÿ
 | de l'univers! — Anna n'hésita point; elle n'en continua
@@ -7312,7 +6589,6 @@ la fin du voyage RARE
 É la trace de ses pas, après qu'elle eut passé. — Quand
 : Anna et Bäbi se retrouvèrent, dans la matinée, ce :
 | - fut, l'une avec sa froideur, l'autre avec son sourire #
-accoutumés. ÿ
 : Bäbi recevait parfois la visite d'un parent un peu plus
 k âgé qu'elle; il remplissait au temple les fonctions de
 gardien ; on le voyait, à l'heure du Gottesdienst (du “à
@@ -7334,9 +6610,7 @@ vitrée elle apercevait Sami assis près du fourneau, et
 | Bäbi à quelques pas, cousant. Ils avaient beau parler, J
 : on r'entendait aucun bruit. On voyait la figure épanouie ù
 de Bäbi et ses lèvres qui remuaient; la grande bouché
-f 210
 |
-‘lès FAT
 
 ee LE BUISSON ARDENT TER
 
@@ -7357,8 +6631,6 @@ indifférent, et tournait vers Anna un sourire obséquieux, e
 en attendant ses ordres. Anna pensait qu'ils parlaient i
 
 d'elle ; mais ellé les méprisaït trop pour s'abaisser à les “
-
-écouter en cachette. 2
 
 Le jour après qu'Anna eut déjoué le piège ingénieux T4
 
@@ -7403,8 +6675,6 @@ de recourir à de pareils moyens; mais la peur la :
 
 à domptait), — Un gloussement de rire très bref, Puis, un É
 
-À 1
-
 la fin du voyage ,
 chuchotement, si bas qu'on ne pouvait rien distinguer.
 
@@ -7420,10 +6690,8 @@ s'arrêta même pas à considérer l'incertain comme
 possible ; elle le regarda comme certain.
 
 Dès lors, sa décision fut prise.
-e
 |
 
-HN GE Re
 Le soir du même jour — (c'était le mercredi qui pré- ;
 cède les jours gras), — Braun fut appelé en consultation, .
 à une vingtaine de kilomètres de la ville : il ne devait
@@ -7432,7 +6700,6 @@ dîner, et resta dans sa chambre. Elle avait choisi cette
 nuit pour exécuter l'engagement tacite qu'elle avait
 souscrit. Mais elle avait décidé de l'exécuter seule, |
 sans rien dire à Christophe. Elle le méprisait. Elle
-pensait amèrement : £
 — 1l a promis. Mais il est homme, il est égoïste et
 menteur, il a son art, il aura vite oublié.
 Et puis, il y avait peut-être, dans ce cœur violent qui |
@@ -7453,9 +6720,6 @@ différer davantage. Il n'avait pas oublié l'engagement
 qu'ils avaient pris ensemble, à l'aube de cette triste journée. Il était prêt à le tenir, si Anna l'exigeait.Maisilvoyait Ù
 l'absurdité de cette double mort, qui ne résolvait rien, à
 
-È :
-
-À L ” à | DLFP RSS ET RAS 0 ge
 | la fin du voyage 4
 : et dont la douleur et le scandale devaient retomber sur 7
 Braun. Il pensait que le mieux était qu'ils s'arrachassent
@@ -7464,7 +6728,6 @@ si du moins il avait la force de rester éloigné d'elle : il
 en doutait, après l'épreuve inutile qu'il venait de faire;
 mais il se disait qu'au cas où il ne pourrait le supporter,
 il auraït toujours le temps de recourir, seul, sans que
-< personne en sût rien, au suprême moyen.
 ; Il espéra qu'après le souper il pourrait s'échapper un ÿ
 moment pour monter dans la chambre d'Anna. Mais k
 | Bäbi ne quittait point ses pas. D'habitude, elle terminait
@@ -7488,8 +6751,6 @@ se promettant de veiller ; elle eut la précaution de laisser sa porte entr'ouve
 elle ne pouvait se mettre au lit sans s'endormir aussitôt, 4
 et d'un sommeil si puissant que ni le tonnerre, ni sa
 curiosité même, n'eussent été capables de l'éveiller, avant
-; 214
-À
 
 SR LE BUISSON ARDENT he.
 _ qu'il fût jour. Ce sommeil n'était un secret pour per- 4
@@ -7527,8 +6788,6 @@ son couteau dans la tête d'une vis, puis d'une autre, q
 
 | cassant les lames, se coupant; il lui semblait que les LOS
 
-ÿ A
-
 la fin du voyage
 vis étaient d'une longueur diabolique, qu'il ne finirait
 jamais de les arracher; et en même temps, dans sa
@@ -7545,7 +6804,6 @@ draps les jambes immobiles, remonta jusqu'à la taille :
 Anna était assise sur son lit, et tremblait. Elle n'avait
 pas eu le temps d'éprouver les premiers effets de l'asphyxie: la chambre était haute de plafond; l'air circulait par les fentes de la fenêtre et des portes mal jointes.
 Christophe la prit dans ses bras. Elle se dégagea avec
-fureur, criant :
 — Allez-vous-en !.… Ah! qu'est-ce que vous avez fait ?
 Elle leva les bras pour le frapper; mais elle était brisée
 Ÿ d'émotion; elle retomba sur l'oreiller; elle sanglotait :
@@ -7560,8 +6818,6 @@ Il la rudoya, il voulut violenter sa volonté.
 — Folle! ditil, tu ne sais donc pas que tu pouvais
 faire sauter la maison! F
 
-1 NES SE :
-LE BUISSON ARDENT |
 — C'était ce que je voulais, fit-elle avec rage. 5
 Il tâcha de réveiller ses craintes religieuses : c'était é
 la corde juste. A peine y eut-il touché qu'elle commença
@@ -7576,9 +6832,7 @@ Tu as achevé de me désespérer. Et maintenant, qu'estce que je vais faire ? 1
 — Vivre! cria-t-elle, mais tu ne sais denc pas que :
 c'est impossible ! Tu ne sais rien! Tu ne sais rien!
 Il demanda :
-— Qu'y at-il ? |
 Elle haussa les épaules :
-a Écoute.
 Elle lui raconta, en phrases brèves, hachées, tout ce 1
 qu'elle lui avait caché jusqu'à présent : l'espionnage
 de Bäbi, les cendres, la scène avec Sami, le carnaval, |
@@ -7591,13 +6845,10 @@ il était désarmé. Il sentait seulement une fureur aveugle,
 le désir de frapper. Il dit :
 — Pourquoi n'as-tu pas chassé Bäbi?
 Elle dédaigna de répondre : Bäbi chassée eût été plus
-217 |
-F2
 
 PR et er D
 
 la fin du voyage TS
-Her
 
 TR venimeuse encore que Bäbi tolérée; et Christophe com-
 
@@ -7661,13 +6912,6 @@ pe — Qu''allons-nous faire ? À
 
 " Il la regarda, et dit: +:
 
-— Mourir: +
-
-: L 218
-
-4 Ps ;
-
-M 7 Leroumson ARnëke 0 0 +
 LAC ne à CR
 Elle eut un cri de joie: DIPMTRE ne:
 SE — Oh! tu veux bien? tu veux aussi? Je ne serai He
@@ -7687,7 +6931,6 @@ _ tophe trouva quelques cartouches. Il les rapporta vers F 4
 _  lelit. Anna regarda, et détourna aussitôt les yeux vers nn.
 _ la ruelle. Christophe attendit, puis il demanda: #5
 __ — Tu ne veux plus? ‘8
-Anna se retourna vivement : A É
 — Je veux... Vite! : Ne
 Elle pensait : ES VO
 — Rien ne peut plus me sauver maintenant de | -%
@@ -7697,17 +6940,12 @@ Christophe chargea maladroitement le revolver. j pr s:
 — Anna, dit-il d'une voix tremblante, l'un des deux Re
 verra mourir l'autre. À re
 Elle lui arracha larme des mains, et dit avec u
-égoïsme : : 4 TS
 — Moi, d'abord. LIRE ACEREESS
 Ils se regardèrent encore... Hélas! dans ce moment À
 * même où ils allaient mourir l'un pour l'autre, ils se >
-; 219 LS
-je 54
-NET ST 4 Lx
 
 la fin du voyage
 sentaient si loin l'un de l'autre! Chacun pensait, avec
-terreur :
 ° — Mais, qu'est-ce que je fais ? Qu'est-ce que je fais?
 
 Et chacun le lisait dans les yeux de l'autre. L'absurdité de l'acte frappait surtout Christophe. Toute sa vie,
@@ -7735,7 +6973,6 @@ s'accrochait à ces sensations, comme un naufragé à
 l'épave qui s'enfonce avec lui. Après, tout était terreur. F
 Pourquoi ne pas prolonger l'attente? Mais elle se répéta : .
 
-: — Il faut.
 Elle dit adieu à Christophe, sans tendresse, avec la
 hâte d'un voyageur pressé qui craint de manquer le
 | train; elle ouvrit sa chemise, tâta le cœur, et y appuya
@@ -7744,8 +6981,6 @@ la figure dans les draps. Au moment de tirer, elle posa
 sa main gauche sur la main de Christophe. Le geste
 d'un enfant qui a peur de marcher dans la nuit... |
 220 4
-
-LE BUISSON ARDENT
 
 i Alors s'écoulèrent quelques secondes effroyables…
 
@@ -7791,12 +7026,6 @@ une morte.
 Christophe refit le lit bouleversé, ramassa le revolver,
 remit la serrure arrachée, rangea tout dans la chambre,
 et partit : car il était sept heures, et Bäbi allait
-venir.
-
-x ardent. — 6
-À
-
-s RE Dh De
 
 Quand Braun revint, le matin, il trouva Anna dans le ;
 S même état de prostration. Il vit bien qu'il s'était passé ,
@@ -7822,10 +7051,8 @@ l'écouter. Bäbi, que la maladie d'Anna ne troublait
 guère, mais qui était la femme du devoir, refusa de ©
 .__ se coucher, et veilla avec Braun. :
 222 1
-r
 
 _ « ii LE BUISSON ARDENT ;
-DCE | 2 7
 1e _ Le vendredi, Anna ouvrit les yeux. Braun lui parla; FRS
 - elle ne prit pas garde à sa présence. Elle restait
 immobile, les yeux fixés sur un point de la muraille. ?
@@ -7859,9 +7086,6 @@ Elle dit d'une voix âpre : <
 … mains sur le front, et gémit :
 5 — Ah! mon Dieu! oublier !... ;
 
-Fe r:
-be,
-
 la fin du voyage
 
 Le sommeil la reprit. Elle fut calme jusqu'au jour.
@@ -7870,15 +7094,12 @@ Vers l'aube, elle fit quelque mouvement ; Braun lui
 souleva la tête, pour lui donner à boire; elle avala
 docilement quelques gorgées, et, se penchant vers les
 mains de Braun, elle les embrassa. Elle s'assoupit de
-nouveau. :
 
 Le samedi matin, elle s'éveilla vers neuf heures. Sans
 dire un mot, elle sortit les jambes du lit, et voulut
 descendre. Braun se précipita vers elle et essaya de la
 recoucher. Elle s'obstina. Il lui demanda ce qu'elle
 voulait faire. Elle répondit :
-
-— Aller au culte.
 
 Il essaya de la raisonner, de lui rappeler que ce
 n'était pas dimanche, que le temple était fermé. Elle se
@@ -7900,7 +7121,6 @@ lui avait dit, ils trouvèrent porte close. Anna s'assit
 sur un banc, près de l'entrée, et resta, frissonnante,
 jusqu'à ce que midi sonnât. Puis, elle reprit le bras de
 
-Ê- LE BUISSON ARDENT
 Braun, et ils revinrent en silence. Mais le soir, elle
 3 voulut retourner à l'église. Les supplications de Braun e
 furent vaines. Il fallut repartir.
@@ -7909,7 +7129,6 @@ seule fois, le matin du samedi, cherchant à détourner
 Anna de son idée fixe de sortir, il lui avait demandé si
 elle voulait voir Christophe. Elle avait eu une expression d'épouvante et de répulsion si forte qu'il en avait
 été frappé; le nom de Christophe n'avait plus été
-prononcé.
 Christophe s'était enfermé dans sa chambre. Inquié-
 tude, amour, remords, tout un chaos de douleurs s'en-
 | trechoquaient en lui. Il s'accusait de tout. Il était
@@ -7929,11 +7148,9 @@ voûté, la tête courbée, le teint jaune; elle était vieillie,
 couverte : elle était laide. Mais Christophe ne vit pas sa
 laideur, il ne vit que sa misère; et son cœur déborda
 de pitié et d'amour. Il eût voulu courir à elle, se pro4 sterner dans la boue, baiser ces pieds, ce corps ravagé
-; 225 ardent. — 6.
 
 la fin du voyage DR Es 2
 par la passion, implorer son pardon. Et il pensait,-la %
-regardant : rh :
 
 R ; — Mon ouvrage... Le voici!
 = Mais son regard, dans la glace, rencontra sa propre
@@ -7964,7 +7181,6 @@ Christophe rasait le mur des maisons, craignant de
 rencontrer une figure connue. Il alla à la gare. Il monta A
 dans un train qui partait pour Lucerne. A la première
 station, il écrivit à Braun. Il disait qu'une affaire
-+ ;
 
 nu. a LE BUISSON ARDENT 3 :
 5 urgente l'appelait, pour quelques jours, hors de la ville ?
@@ -8001,7 +7217,6 @@ _ les soupçons, Christophe terminait sa lettre par quel227
 
 la fin du voyage ÿ
 ques mots très froids sur Braun et sur la maladie
-d'Anna.
 
 Il passa le reste de la nuit et la journée suivante,
 incrusté dans son idée fixe... Anna... Anna. Il revivait
@@ -8033,12 +7248,6 @@ Braun. Il se trouvait devant la maison. Tout était dans \
 le noir, sauf une lueur de veilleuse qui teintait d'un
 reflet jaune pâle une fenêtre, — la fenêtre d'Anna. Anna +
 
-\
-
-LE BUISSON ARDENT
-
-L
-
 _ était là. Elle souffrait là. Il n'avait plus qu'un pas à faire
 
 pour entrer. Il avança la main vers la poignée de la
@@ -8055,102 +7264,28 @@ de montagne, sous des rafales de neige. — Ensevelir
 
 son cœur, endormir sa pensée, oublier, oublier!
 4 55
-;
-“
-3 ;
 
 WT Fo EU SH | M 2 # PRE FER ds" RAS - QU ne. tr)
 
-BP TN ct ALLO PARENT IH Tri EOPETE HAUe j.
 TE de NET ET 4 ail AE ENS Hire LPRDVE E LP CLEO UE
-TRE wa + ; 7 ? F 4 Len, y vu PERS F +
-THE à : a TE
 
-ER 4 | ÿ RUES J À ; - Sat PPT
-CRE à di.
-Ls * e L TA 7 ER
-ro g Te à Der :
-LOUE 3 L 9 A, 55 ATV CE :
-DPY 3 cl EE Mr"
-VOLS - 5 FPS CS CE SRE A
-à ue, NME Se à
-Ê % , PRO
-M « ; Soi NE <} #3 Hs
-Lo e C4 e ES TARSTRE
-MER T à PANNE.
-ACTES . CAE
-CPR , z d: verifie à
-de. 7 4 2 < 0 k
-RES »" Y Le LR AR
 121 TRS Méctr Fa rl dr. PO #2 j »1Y WE VERS
 
-MER CRE NON N, Pie SUN Rd RAR is
-PORC ENS RTC RER SR ARTS AQU EE re 247 0 Re
-LE ES Se En ne RE &
-RE # ÉLRO CLS RES
-LES ENLTSERESS | 1 US DRASS ERIENEE
-NP ENERES BH LOTERIE
-MERE # à ci dé RUE MR nn
-RL : Des Re : LÉ NER
-SR, SFR ee DEV : 2 SUEDE EN DUR
-LPS < or FISRTO SIRET
-_. TAROT Ste :£ à TARDE F4
-TUE STARS NOR à 3 s'TR LAAS ESS
 et ASS
-Re 0 ET NCMPE : & : LCL LORSNESANSS
-De HRISNEISESS : : FER ES Hs 3
-Ra tre Peu és AA : EN ARE TRAIT AS
 F4 LEA RTE TES sf à : NAS PTE
 à É AC REES à LæÆt ki HSE NE F8 AS
 Mens. LE CES = ; £ f À Ter: 4e LT CUN ES \
 RS LAN _ 4 Le he S qu,
-Tin, : ” ” < "FER EURE
-Rs e “ : ‘1 RES PARUS SE :
-se ; a | | L MARINES
-Re nn Le LPS # + RTE SR TEE
-RARES CS Le = 211 LE ER RNEERSS
 D on Hat
-DR Ti A 0. £ ka PET ST PETER
-Re REC CET ENT DL ER A SR
-FR TES APS |
 
-D re Lim: DL OR US. Re HS SEC
 LES D ne Re ue
-nee RS da Pure
 | NES ae FE PRE ESS TE
 | RCE d y k LS 4 PR OR De û
 Fe os yes 1e ne
-MRCLE à, = 2 ACTE REE
-Rue à : ? LAS De
-TETE - * z 5 7 LATTSAARE
-5° 7 FESSES
-Ru À l: 4 750 PR
-DL s. PL IR PASNEl + D:
 +... RDA RES ALT ad ne ES
-De PR
-PANIVSRER ESS : j OE >
-Br :.: EST CORTE
 | AY AUS x Ç À Un RSS
-D ANS EC
-NS : SUN à SR
-PNY : d'A
-aks AE , . ENTER PS
-ARE: EN cf
-UV - n FR A0 "!
 ne, + r HAN Ke es
-Er: RE:
-ME ' ne UE Ai
-7 TRE .+ 1488 RATES
-1° CIRONEES DNA TL
-RUE ) RAT
-:: SR * NV ast  18 ER :
-« SRE N ne
-: CORRE oo
-RES, j ; jte ‘TRE ;
-LIENS Las PE
-FA AT ATERER y + da id . AP 4 RON re
 
-È
 Mon Dieu, que t'ai-je fait? Pourquoi m'accables-tu ? 1 ê
 Dès l'enfance, tu m'as donné pour lot la misère, la lutte. à
 _ J'ai lutté sans me plaindre. J'ai aimé ma misère. J'ai 4
@@ -8173,10 +7308,8 @@ as choisi cette heure pour me frapper. Tu es venu, |
 - poignardé; tu as lâché sur moi ton chien féroce, la pas-
 ; sion; j'étais sans force, tu le savais, et je ne pouvais ;
 À lutter ; elle m'a terrassé, elle a tout saccagé en moi, tout $
-233 ardent, — 7 :
 
 la fin du voyage
-Î
 
 sali, tout détruit... J'ai le dégoût de moi-même. Si je
 
@@ -8194,8 +7327,6 @@ terre, ne me laisse pas me débattre dans la fosse,
 
 ne me laisse pas agoniser sans fin! Je crie grâce.
 Achève-moi! |
-L ;
-é.
 
 tr Ps DE int OMR). | DEN dd ;. 3
 Ainsi, la douleur de Christophe appelait un Dieu, à ;
@@ -8207,7 +7338,6 @@ de terrain la protégeaient des vents du Nord. Par
 devant, dévalaient des prairies, de longues pentes boi- à
 sées ; la roche brusquement s'arrêtait, tombait à pic;
 des sapiüs contorsionnés s'accrochaïent sur le bord; des
-hêtres aux larges bras se rejetaient en arrière. Ciel
 éteint, Vie disparue. Une étendue abstraite, aux lignes
 effacées. Tout dormait sous la neige. Seuls, la nuit,
 dans la forêt, les renards glapissaient. C'était la fin de
@@ -8221,13 +7351,10 @@ fils d'herbe d'un vert tendre pointaient; autour de leurs
 fines aiguilles, par les déchirures de la neige, comme
 par de petites bouches, le sol humide et noir respiraït.
 | Quelques heures par jour, la voix de l'eau endormie
-? 235 L
-à
 
 | la fin du voyage Fe Ÿ
 s dans sa robe de glace, de nouveau murmurait. Dans le :
 squelette des bois, quelques oiseaux sifflaient de clairs |
-à chants aigrelets.
 Christophe ne remarquait rien. Tout était le même
 F pour lui. Il tournait indéfiniment dans sa chambre. Ou :
 il marchaït, dehors. Impossible de rester en repos. Son
@@ -8257,10 +7384,7 @@ cerveau ne cessait d'être occupé. Bien des fois, Olivier, F 4
 moins riche et plus réfléchi, l'avait averti : s
 — Prends garde. Tu te fies trop à ta force. Elle est $ r
 un torrent des montagnes. Plein aujourd'hui, demain
-É 236 4
-4 À n
 
-2e LE BUISSON ARDENT .
 | peut-être à sec. Un artiste doit capter son génie: il ne
 | lui permet pas de s'éparpiller, au hasard. Canalise ta ;
 ; force. Contrains-toi à des habitudes, à une hygiène de :
@@ -8269,7 +7393,6 @@ militaires _à l'homme qui doit se battre. Viennent les !
 moments de crise — (et il en vient toujours) — cette
 armature de fer empêche l'âme de tomber. Je le sais ?
 bien, moi. Si je ne suis pas mort, c'est qu'elle m'a
-sauvé.
 Mais Christophe riait, et disait :
 — Bon pour toi, mon petit. Pas de danger que je
 _ perde jamais le goût de vivre. J'ai trop bon appétit.
@@ -8292,7 +7415,6 @@ refusait d'obéir. Il ne pouvait pas évoquer l'aide de
 l'Habitude, l'alliée fidèle, qui, lorsque toutes les raisons
 de vivre nous ont fuis, seule tenace et constante, demeure
 à nos côtés, et ne dit pas un mot, et ne fait pas un geste,
-J 237
 
 la fin du voyage
 les yeuxifixes, les lèvres muettes,|mais, de sa!main très
@@ -8332,8 +7454,6 @@ tence : un vieux chien Saint-Bernard, qui venait poser ;
 sa grosse tête aux yeux sanglants sur les genoux de L
 Christophe, lorsque celui-ci était assis sur le banc S.
 
-238 ]
-
 # LE BUISSON ARDENT
 
 | devant la maison. Ils se regardaient longuement,
@@ -8342,7 +7462,6 @@ Gæthe, ces yeux ne l'inquiétaient point. Il n'avait pas
 envie de leur crier, comme lui :
 
 — Va-t-en!... Tu auras beau faire, larve, tu ne me
-bhapperas point!
 
 Il ne demandait qu'à se laisser prendre par ces yeux
 suppliants et somnolents, à leur venir en aide; il sentait là une âme emprisonnée, qui l'implorait.
@@ -8370,7 +7489,6 @@ la fin du voyage À TAN
 Un misérable, tout de même. L'effort perpétuel de
 “+ l'homme doit être de diminuer la somme de la souf- à
 france et de la cruauté : c'est le premier devoir È
-humain.
 ; Ces pensées, dans la vie ordinaire, restaient ensevelies au fond du cœur de Christophe. Il ne voulait pas y .
 k ‘songer. À quoi bon? Qu'y pouvait-il? II lui fallait être
 < Christophe, il lui fallait accomplir son œuvre, vivre à i &
@@ -8400,7 +7518,6 @@ violet, ses genoux cagneux; — un agneau qu'un paysan | à
 | emportait par les quatre pattes liées ensemble, tête
 | 240 Er
 
-a : LE BUISSON ARDENT
 pes pendante, tâchant de se relever, gémissant comme
 un enfant, et bélant et tendant sa langue grise; À
 — des poules empilées dans un panier; — au loin,
@@ -8430,8 +7547,6 @@ il n'y a pas de justice. 4
 Hélas ! Les carnages accomplis par l'homme sont si
 peu de chose, eux-mêmes, dans la tuerie de l'univers!
 Les animaux s'entre-dévorent. Les plantes paisibles,
-: 241 3 ardent. — 7.
-k
 
 la fin du voyage ù
 les arbres muets sont entre eux des bêtes féroces. *
@@ -8461,7 +7576,6 @@ perforaient, réduisaient en poussière ce qui avait été à
 la vie... Et le silence de ces combats !... O paix de la
 nature, masque tragique qui recouvre le visage dou- 4
 loureux et cruel de la Vie! 8
-€
 
 Christophe coulait à pic. Mais il n'était pas homme à
 se laisser noyer sans lutte, les bras collés au corps. Il
@@ -8480,7 +7594,6 @@ avait la garde de l'enfant. Il attendit fiévreusement la
 réponse. Tout son être se tendait vers cette unique
 pensée. Il se forçait au calme : une raison d'espérer lui
 restait. Il avait confiance, il connaissait la bonté de
-Cécile. |
 
 La réponse vint. Cécile disait que, trois mois après 4
 la mort d'Olivier, une dame en deuil s'était présentée
@@ -8525,8 +7638,6 @@ plie sous le faix et qui craque. Il se disait : 4
 — Maintenant, tout est fini. % +
 | 244 ”
 
-Ke
-LE BUISSON ARDENT :
 La nuit passa, le jour revint; l'arbre ne s'était pas
 rompu. Toute la journée nouvelle, et la nuit qui suivit,
 et les jours et les nuits d'après, l'arbre continua de plier
@@ -8547,7 +7658,6 @@ père et du granä père portaient le corps du fils, tout
 prêt à s'écrouler; la poussée des robustes ancêtres
 
 soulevait l'âme brisée : tel le cavalier mort, que son
-cheval emporte.
 
 Il allait, par un chemin de crête, entre deux ravins; il
 descendait l'étroit sentier aux pierres aiguës, entre
@@ -8571,7 +7681,6 @@ autre, invisible, sur l'autre versant du mont. Puis,
 d'autres dans la plaine, au delà d'une rivière. Et le
 bourdon, très loin, d'une ville qui se perdait dans la …
 
-‘à : LE BUISSON ARDENT
 brume. Christophe s'arrêta. Son cœur était près de
 défaillir. Ces voix semblaient lui dire :
 
@@ -8608,12 +7717,8 @@ deux peupliers. Un autre homme était assis, auprès ; ils
 se taisaient, tous deux. Christophe les dépassa. Mais 6
 Ô après quatre pas, il s'arrêta : ces yeux lui étaient
 connus. Il se retourna. L'homme n'avait pas bougé, il
-‘4 247
-É
-‘à x
 | :
 
-: RL TPE NE ITS RU RES EN EN EEREREe
 k la fin du voyage | OSEO
 ) continuait de fixer, immobile, un objet devant lui. Mais |
 - son compagnon regardait Christophe, qui lui fit signe.
@@ -8623,7 +7728,6 @@ Le — C'est un pensionnaire de la maison de santé, dit 2
 4 lhomme, montrant l'habitation. ; 3
 be — Je crois le connaître, dit Christophe. ë.
 — C'est possible, fit l'autre. Il était un écrivain très sa
-connu en Allemagne. #
 Christophe dit un nom. — Oui, c'était bien ce nom:-là. *
 : — Il l'avait vu jadis, au temps où il écrivait dans *
 2 la revue de Mannheim. Alors, ils étaient ennemis; 1
@@ -8656,7 +7760,6 @@ chavirés, puis se remit à regarder devant lui, avec son
 : sourire hébété. Christophe demanda :
 F — Qu'est-ce que vous regardez?
 | L'homme, immobile, dit, à mi-voix :
-— J'attends. ;
 | — Quoi? $
 — La Résurrection.
 Christophe tressauta. Il partit précipitamment. La
@@ -8722,9 +7825,7 @@ glas de la terre. Christophe se coucha, avec la fièvre.
 
 250 4
 
-F 4 LE BUISSON ARDENT
 Dans l'étable voisine, les bêtes, inquiètes comme lui,
-s'agitaient…
 La nuit. Il s'était assoupi... Dans le silence, la houle
 _ lointaine de nouveau se leva. Le vent revenait, en
 ouragan cette fois, — le fæhn du printemps qui réchauffe
@@ -8753,12 +7854,9 @@ Il s'abattit, au milieu de la chambre, en criant :
 — © toi, toi! Tu es enfin revenu!
 -
 
-SES à RS PTE ALLUPTAUTE Te ENTAEL SENTE
 à = — Tu es revenu, tu es revenu! O toi, que j'avais |
 Me perdu! Pourquoi m'as-tu abandonné ? AY
 SE: — Pour accomplir ma tâche, que tu as abandonnée.
-ï. — Quelle tâche ? .
-NY © — Combattre. à
 La — Qu'as-tu besoin de combattre? N'estu pas le
 Le maître de tout ? £
 AR — Je ne suis pas le maître. j ne.
@@ -8773,15 +7871,12 @@ RE — Je suis vaincu. Je ne suis plus bon à rien. ER -
 ë — Tu es vaincu? Tout te semble perdu? D'autres
 
 : seront vainqueurs. Ne pense pas à toi, pense à ton …
-, armée. 5
 À — Je suis seul, je n'ai que moi, et je n'ai pas.
-à d'armée, +
 4 — Tu n'es pas seul, et tu n'es pas à toi. Tu es une de”
 4 mes voix, tu es un de mes bras. Parle et frappe pour.
 | “A
 4 252 4
 
-Re ; LE BUISSON ARDENT
 moi. Mais si le bras est rompu, si la voix est brisée,
 moi, je reste debout; je combats par d'autres voix,
 d'autres bras que le tien. Vaincu, tu fais partie de k
@@ -8803,7 +7898,6 @@ qu'elle existe. Fais ton devoir en paix, et laisse faire :
 — Je n'ai plus de forces.
 À — Chante pour ceux qui sont forts.
 — Ma voix est brisée.
-— Prie.
 — Mon cœur est souillé.
 — Arrache-le. Prends le mien.
 — Seigneur, ce n'est rien de s'oublier soi-même, :
@@ -8814,45 +7908,23 @@ retrouveras, vivants, avec mon âme vivante.
 — O toi qui m'as laissé, me laisseras-tu encore ? :
 — Je te laisserai encore. N'en doute point. C'est à toi ï
 de ne me plus laisser.
-, É 253
 .
 
 RNPEE nn DUR OU ES
 a “UE DR te ‘ RCE WEST SUTEN LE Re 3e à pee: RS
-Æ me Paie S CP TE Ve DUT cer RE IAA Ê , ” Êr
  — Mais si ma vies'éteint? FA fa 3 te ee ;
 LES — Allumes-en d'autres! 2, I RS ETES ES
 _ —Sila mort est en moi? ; + PORTER OR
 EF: FA FRS — La vie est ailleurs. Va, ouvre-luites portes. Insensé, |
-FAR EEES È # ° . ñ, 1
 qui t'enfermes dans ta maison en ruines! Sors de toi. j
 SECEQR est d'autres demeures. SOS
 ue : — O vie, Ô vie! Je vois. Je te cherchais en moi, |
 EE dans mon âme vide et close. Mon âme se brise; par les | à
 LV fenêtres de mes blessures, l'air afflue; je respire, je te
-D retrouve, 6 viel Gt RS
 0 — Je te retrouve. Tais-toi, et écoute. : ETS
-A. ESS
 ," ÉÇNSEUR D'un
-Re £ SU
-“FT ‘rc
-RAR D: ? TT ER
-Fa 10 & ja ner
 ‘Pélies PS : sa
-: LEP x
-Lo. 5
 ne he F D:
-"FAR :
-ee {Vs 4
-Se: +) sl
-TER 1119410
-"0 x A
-= C4 D
-RC :- D.
-KL 5208 à." 7
-TRS % Ag
-
-F
 
 Et Christophe entendit, comme un murmure de source,
 le chant de la vie qui revenait en lui. Penché sur le
@@ -8866,7 +7938,6 @@ venait d'y rentrer, en même temps que l'amour dans le
 cœur de Christophe. Miracle de l'âme que la grâce a
 touchée! Tout revit autour d'elle. Le cœur se remet à
 battre. L'œil de l'esprit s'est rouvert. Les fontaines
-taries recommencent à couler.
 
 Et Christophe rentra dans la bataille divine... Comme
 ses propres combats, comme les combats humains se
@@ -8912,10 +7983,7 @@ la lumière. Elle chantait la nuit. Et la vie. Et la mort.
 È Elle chantait pour ceux qui étaient vainqueurs dans la É
 bataille. Elle chantait pour lui-même, vaincu et terrassé. 4
 Elle chantait. Tout était chant. Elle n'était plus que chant,
-À 256 ?
-PR i
 
-- 27702 LE BUISSON ARDENT
 Ca ; Son ivresse était telle qu'il ne s'entendaïit pas chanter.
 k Comme les pluies de printemps, les torrents de musique
 & s'engouffraient dans ce sol crevassé par l'hiver. Hontes, h
@@ -8945,8 +8013,6 @@ c'était un tourbillon de sang... il n'avait pas envie de
 parler, ni de penser, il n'avait plus envie que de rire et
 de pleurer et de se fondre dans cette merveille vivante.
 Écrire, pourquoi écrire ? Est-ce qu'on peut écrire l'indicible? Mais que cela fût possible ou non, il fallait
-' 257 ardent, — 8
-É
 
 la fin du voyage TS
 qu'il écrivit. C'était sa loi. Les idées le frappaient, par
@@ -8981,14 +8047,10 @@ partie de ses phrases et le menait docilement, par les
 | chemins frayés, au terme convenu où le public l'atten- 4
 dait. A présent, plus de route, c'était au sentiment de la 1
 frayer lui-même; l'esprit n'avait qu'à suivre. Son rôle
-à 8 |
-
-QE LE BUISSON ARDENT
 
 n'était même plus de décrire la passion, ou de l'analyser; à
 
 _ il devait faire corps avec elle, il tâchait d'en épouser la
-loi intérieure.
 
 Du même coup, tombaient les contradictions où
 Christophe se débattait depuis longtemps, sans vouloir
@@ -9019,8 +8081,6 @@ choses pratiques; mais elle est la force, elle est le
 mouvement et le feu; elle est l'éclair jailli du ciel ; et
 par là, elle est sacrée, par là elle est bienfaisante. Ses
 bienfaits peuvent être même de l'ordre pratique; mais
-
-BP
 
 ; _La fin du voyage RES
 ses vrais, ses divins bienfaits sont, comme la foi, de :

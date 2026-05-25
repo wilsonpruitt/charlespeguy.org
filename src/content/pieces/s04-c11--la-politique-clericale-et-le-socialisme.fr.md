@@ -7,15 +7,9 @@ author: edouard-berth
 isAvertissement: false
 wordCount: 15595
 ---
-
-ONZIÈME CAHIER DE LA QUATRIÈME SÉRIE
 #0  ÉDOUARD BERTH |
-a nt u
-War 0 » ns =: , :
 _ la politique anticléricale
 _ et le socialisme |
-MR SR RE N. :
-CAHIERS DE LA QUINZAINE
 ne po PARIS
 rue de la Sorbonne, au rez-de-chaussée
 
@@ -28,20 +22,8 @@ Nous mettons ce cahier dans le commerce; nous le
 
 vendons un franc
 
-=
-
-y . te PAIE it 425 * SOCOURE AA
 er NE er EURE à ; CEA:
-AA Ve 12 AR FRE ñ . AS:
-_ da politique antictéricale V4
-PEER » } F i A re, 4 Tr
-HÉPMRION CE LR ER - Ç
-ns ee ee ‘454 | VE
-de HA +. ï =
-a: , \ 0 SES
-L'HYES NPA f - \ \ La RE
 À TRE GA Ro pa le MAT à FE
-A 5 6 1 NAT Se OL EUUS se
 
 L'essai que l'on va lire a été publié pour la première
 fois dans la Revue Socialiste, numéro de novembre,
@@ -77,13 +59,6 @@ ministres, de tous les sénateurs, de tous les députés, de
 tous les conseillers généraux, de tous les conseillers
 municipaux, de tous les conseillers d'arrondissement,
 et dans les articles de tous les journalistes, sur les conflits primordiaux qui font l'objet de ces importants
-débats.
-
-Charles Péguy
-
-ÉvouarD Berru
-LA POLITIQUE ANTICLÉRICALE
-ET LE SOCIALISME
 
 Les beaux temps de l'anticléricalisme sont revenus. Toute la politique actuelle gravite autour du
 péril clérical, et la lutte contre l'Église reprend plus
@@ -98,12 +73,10 @@ de front la religion patriotique, cette religion que
 la Troisième République, pour sa part, a si diligemment cultivée. Mais si le pays est ardemment
 patriote, il est non moins ardemment anticlérical,
 — M. Jules Lemaïître, qui a dû se séparer de
-M. François Coppée, en sait quelque chose : seul
 én France un nationalisme radical et anticlérical
 aurait peut-être des chances de triompher, — et le
 ministère Waldeck-Rousseau a pu faire voter cette
 
-Édouard Berth
 loi de représailles et de « défense républicaine »
 qui s'appelle la loi sur les associations ou plutôt la .
 loi contre les congrégations.
@@ -128,11 +101,6 @@ comme protestations, un article de Briquet dans Le
 Mouvement socialiste, (x) déplorant les excès d'anticléricalisme où versent de propos délibéré les
 socialistes actuels, faisant voir combien la loi sur
 
-(1) Numéro du 15 août 1902.
-
-B ;
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 les associations contient de dispositions inquié-
 tantes pour le' socialisme, s'étonnant des propositions jacobines que Breton, Allemane et d'autres
 osèrent déposer à la Chambre; je relève aussi la
@@ -154,14 +122,11 @@ bien conforme aux principes socialistes et si, dans
 la lutte contre l'Église, d'autres moyens ne seraient
 pas plus réellement efficaces, en même temps que
 plus respectueux de la liberté.
-PE"
 
 Il est évident, certes, que le socialisme doit lutter
 contre l'Église, puisque l'Église représente par ex-
 
 (1) Vingt-et-unième cahier de la troisième série.
-
-Édouard Berth
 
 cellence l'esprit de domination et l'opposition au
 libre examen. Mais le socialisme doit dans cette
@@ -215,7 +180,6 @@ général, puisque le droit n'a rien d'absolu, mais se
 réfère toujours au système dominant des relations
 économiques. Or, c'est là une évolution toute objec7
 
-Édouard Berth
 tive, toute réaliste, où l'idéologie n'a rien à faire et
 par où se concilient pratiquement des antagonismes
 théoriquement irréductibles. Et la révolution, qui en
@@ -238,7 +202,6 @@ des institutions modernes. Sans doute, à cette vie,
 des rapports sociaux et pour tout dire, si l'on veut,
 une métaphysique originale ; car, selon les principes
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 marxistes, ce n'est pas la théorie qui domine la
 pratique, mais la pratique qui détermine la théorie ;
 et, en dernière analyse, si le socialisme implique
@@ -264,9 +227,6 @@ puissance de l'Idée, ou plutôt y croit si peu, malgré
 l'idéalisme professé, qu'elle veut mettre à son service la force très positive, très matérialiste et très
 brutale, de l'État centralisé, — et ce n'est pas la
 
-9 I.
-
-Édouard Berth
 moindre ironie des choses que de voir nos idéalistes
 se réclamer du très réaliste droit des Majorités,
 alors que nous, marxistes, qui soi-disant nous soucions fort peu de morale, nous sommes au contraire
@@ -293,7 +253,6 @@ ingénument avec la Raison et la Liberté et pour
 dire : je suis la Liberté; donc, si mon parti triomphe,
 c'est la Liberté qui l'emporte sur la servitude et le
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 dogme! Mais vraiment, est-ce nous, socialistes, qui
 pouvons adopter une semblable façon de raisonner,
 nous à qui l'on reproche de créer un État socialiste
@@ -316,10 +275,7 @@ est permis de pratiquer une politique aveugle et
 imprudente, hypnotisée par le moment présent ;
 parti d'avenir, nous devons avoir au plus haut degré
 cette prévoyance, sauvegarde contre l'arbitraire,
-II
 
-î
-Édouard Berth
 qui doit caractériser toute grande et large politique.
 A voir l'esprit dont républicains et socialistes sont
 animés aujourd'hui, ne dirait-on pas que les ministères sont soudain devenus éternels et les réactions
@@ -343,8 +299,6 @@ semble aux socialistes actuels que rien ne doive
 échapper à l'action miraculeuse de l'État : sa puissance mystique doit violenter le corps social, précipiter l'évolution, créer de toutes pièces une bienheureuse unité dogmatique. Il suffirait, par exemple,
 que l'État reprit le monopole de l'enseignement
 
-pe SNS
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 pour que, par dessus les antagonismes sociaux et
 par dessus tes classes, l'unité intellectuelle et morale
 de la nation fût rétablie : préjugé que de simples
@@ -367,8 +321,6 @@ centralisation gouvernementale, en matière d'instruction publique, est impossib
 (1) Idée générale de la Révolution, pages 290-291.
 | 13
 
-L
-Édouard Berth AA
 gime industriel, par la raison décisive que l'instruction est inséparable de l'apprentissage, l'éducation scientifique de l'éducation professionnelle.
 Il répugne que l'école soit séparée de l'atelier,
 et sous prétexte de perfectionnement, qu'elle
@@ -392,7 +344,6 @@ n'est pas pour le peuple qu'ont été fondées les écoles
 Polytechnique, Normale, Saint-Cyr, de Droit, etc. ;
 c'est pour entretenir, fortifier, augmenter la distinc14
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 tion des classes, pour consommer et rendre irrévocable la scission entre la bourgeoisie et le prolétariat. » — Ces paroles de Proudhon sont bien remarquables : non seulement elles indiquent, avec une
 admirable netteté, quel est en matière d'éducation
 l'idéal socialiste, mais elle font voir quelle valeur
@@ -415,9 +366,7 @@ fait de devenir socialiste il est peu d'autorités plus
 indiscutables. Oui, que les syndicats ouvriers éten-
 
 @) Voir: Marx, à propos d'unité (lettre sur le programme de
-Gotha). Jacques, éditeur.
 
-Édouard Berth
 dent leurs attributions, créent tout un réseau
 d'œuvres sociales intéressant l'ensemble de la classe
 ouvrière et l'enveloppant, que les syndicats et coopératives de la ville donnent la main aux syndicats
@@ -441,19 +390,15 @@ fût-ce celui des Droits de l'Homme, qui fait les
 hommes libres et les producteurs sérieux dont la
 classe ouvrière a besoin pour parvenir à s'émanci16
 
-LE Mi: F
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 per : ce qu'elle doit acquérir, c'est la capacité technique et l'aptitude à se diriger dans l'atelier auto-
 -nome, débarrassé de la tutelle capitaliste, afin de
 pouvoir démontrer l'inutilité du patronat et de
 résorber en elle, devenue majeure, l'État pensant,
 produit actuellement aussi bien par l'enseignement
 universitaire que par celui de l'Église.
-t "x
 
 .. Mais, dira-t-on, vous n'envisagez que la classe
 ouvrière ; or, en France surtout, où, à côté de la
-classe ouvrière,subsistentune bourgeoisiemoyenne,
 une petite bourgeoisie et une petite paysannerie
 très considérables, — et l'on ne peut plus compter,
 pour amener leur réduction, sur la fameuse loi de
@@ -466,8 +411,6 @@ sentants des parties avancées de la bourgeoisie pour
 travailler au développement des institutions républicaines ? N'est-ce pas l'opinion de Bernstein que
 la pleine et mûre démocratie est une condition
 nécessaire à la réalisation du socialisme, et Sorel
-
-Édouard Berth
 
 lui-même n'a-t-il pas reconnu qu'au moins sur le
 côté spirituel de la vie sociale, il y avait accord
@@ -487,14 +430,10 @@ même plan l'enseignement universitaire et l'enseignement congréganiste : c'est
 guesdiste de a masse réaclionnaire, renvoyant dos
 à dos monarchie et république, réactionnaires et
 bourgeois. Que les syndicats ouvriers créent un
-enseignement spécifiquement ouvrier, destiné à
 compléter dans un sens nettement socialiste l'éducation ébauchée à l'école primaire, fort bien: mais
 cette ébauche n'est-elle pas meilleure à l'école primaire laïque qu'à l'école des Frères? C'est ici où
 vraiment la démocratie prépare le terrain au socia-
 
-18 à
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 lisme. D'autre part, n'est-ce pas l'intérêt du socialisme que la bourgeoisie soit à la hauteur de sa
 mission historique, et développe au plus haut
 degré les forces productives du pays? Une bourgeoisie hardiment révolutionnaire au point de vue
@@ -519,7 +458,6 @@ rieux les objections d'un libéralisme abstrait ?
 On ne peut pas assimiler la liberté d'enseigner
 aux autres libertés : celles-ci concernent des majeurs, celle-là des mineurs. On conçoit un ensei19
 
-Édouard Berth
 gnement supérieur libre; un enseignementprimaire,
 un enseignement secondaire libres, non.Ilne s'agit
 nullement de faire violence à des croyances; quoi
@@ -542,10 +480,6 @@ des intérêts purement capitalistes, une force qui se
 pénètre et se charge de plus en plus de préoccupations morales, scientifiques, hygiéniques. Comprendrait-on, autrement, toute la législation sociale contemporaine ? Et Marx, lui-même, ne faisait-il pas
 appel, entre autres mobiles, aux motifs d'ordre
 
-20 ;
-
-À ï
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 élevé, qui devaient guider la bourgeoisie dans sa
 conduite vis-à-vis de la classe ouvrière ? Sans doute
 l'État actuel n'enseigne pas la morale, ni la politique, ni l'économie socialistes ; mais sont-ce là matières entrées définitivement dans la science ? ‘Au
@@ -568,7 +502,6 @@ de l'esprit? L'État ne saurait donc le supporter,
 pas plus qu'il ne saurait supporter une justice catholique, une justice protestante, une justice maçonnique, une justice, en un mot, livrée à l'arbitraire et
 au subjectivisme des croyances individuelles. Son
 
-Édouard Berth
 rôle est de défendre la liberté de penser, de dire le
 Vrai impersonnel, comme il dit le Droit. II serait
 assurément incapable de remplir ce rôle, s'ilétait la
@@ -594,7 +527,6 @@ la Révolution se subordonne le spirituel chrétien.
 I n'est nullement question de ravir aux catholiques
 les libertés essentielles: liberté de la presse, de réunion, d'association, liberté d'enseignement supé-
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 rieur, toutes libertés, encore une fois, qui concernent des majeurs: ce qu'ils ne sauraient garder,
 c'est la liberté de l'enseignement primaire et secondaire : ici l'enseignement requiert, en définitive, La
 même sorte d'unité que la justice: on a aboli les
@@ -604,7 +536,6 @@ atteinte à la liberté; il n'y aurait là aucun jacobinisme; mais simplement l'
 _ civilisation moderne issue de 1789, le mysticisme et
 le subjectivisme chrétiens, dont l'essence est antijuridique et antisociale, doivent enfin s'incliner.
 
-+
 ; Telle est, résumée mais, croyons-nous, non affaiblie, l'argumentation que l'on pourrait nous opposer. Le problème, au fond, revient à déterminer
 quels rapports exacts le socialisme soutient avec la
 démocratie. La démocratie ignore les antagonismes
@@ -614,9 +545,6 @@ Sans doute, démocrates et socialistes sont d'accord
 pour réclamer le maximum de liberté, de droit égal
 pour tous, etc.; mais cet accord finaliste cesse dès
 
-Er
-
-Édouard Berth
 qu'on en vient aux moyens. La démocratie, par
 cela même qu'elle ignore la distinction des classes,
 se fait une conception mystique et surnaturelle de
@@ -644,8 +572,6 @@ toute tutelle, capitaliste ou administrative. La
 liberté socialiste possède un contenu plus concret,
 plus riche; sa notion est celle d'une capacité, d'un
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
-
 pouvoir réel, qui touche aux racines mêmes de la
 vie etne s'embarrasse pas de formes mensongères.
 Le démocrate croit avoir tout conquis avec la
@@ -656,7 +582,6 @@ lui, ce n'est pas l'Ariel descendant des cieux supé-
 rieurs pour tomber dans la prison terrestre, c'est le
 prisonnier qui, d'un rude effort, rompt les barreaux
 de sa cage et conquiert du même coup la liberté du
-ciel.
 
 Une semblable opposition de principes, et pour
 ainsi dire de tempérament politique, ne peut, on le
@@ -673,11 +598,6 @@ oublier qu'il est surtout cela, encore aujourd'hui.
 Et les influences, étrangères aux intérêts strictement
 capitalistes, qu'il peut subir, sont des influences
 
-LL
-L
-
-Édouard Berth :
-petites-bourgeoises, peu favorables, en somme, au
 socialisme. La démocratie radicale, en France, a de
 telles traditions, est animée d'un tel esprit, que le
 concours du socialisme à une politique dite de
@@ -703,9 +623,6 @@ Le général André et Pelletan n'ont-ils pas prononcé dernièrement d'assez é
 chefs du radical-socialisme, dans la lettre que la
 Dépêche a publiée, (x) ne voit qu'un moyen de
 
-; (1) 19 août 1902.
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 . lutter contre le nationalisme, c'est d'être plus nationaliste que lui.
 
 Mais ce n'est pas seulement sur le terrain du
@@ -727,7 +644,6 @@ socialistes est l'extension des attributions syndicales
 et la résorption de l'organisme politique gouvernemental dans l'organisme prolétarien. Dira-t-on que
 le socialisme, en France surtout, ne peut rester
 
-Édouard Berth
 exclusivement ouvrier et qu'on ne peut attendre du
 prolétariat seul la transformation totale de la
 société ? Opposera-t-on à la formule de Marx, selon
@@ -753,7 +669,6 @@ français, mais qui n'est nullement « socialiste ».
 L'État, en France, a toujours traité les associations
 comme les parents français traitent leurs enfanis,
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 en mineurs éternels. Que l'on ait peu, chez nous, le
 sens de la liberté, que l'esprit public soit peu développé, que l'individualisme français soit un individualisme puéril, fait plutôt de caprice, d'arbitraire,
 d'un amour de l'indépendance animale, mesquinement égoïste, bien différent en cela de l'individualisme anglo-saxon, qui unit, lui, si fortement
@@ -779,9 +694,6 @@ devait pas être brisée, mais au contraire organisée
 d'après la constitution communale et devenir une
 réalité par la destruction du pouvoir central qui
 
-29 un.
-
-Édouard Berth
 prétendait être le corps même de cette unité, indé-
 pendant de la nation, — dont il n'était qu'une
 excroissance parasite, — et supérieur à elle. En
@@ -806,13 +718,8 @@ tous cas, le devoir des socialistes est de travailler à
 combattre cette tradition, et c'est ce qui rend, encore
 
 (1) La Commune de Paris, traduction Charles Longuet, Jacques
-éditeur, pages 40-42.
 
-“té
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 une fois, le concours du socialisme et de la simple
-démocratie si périlleux, si délicat, si aventureux.
 
 | Mais examinons le problème de plus près. L'avenir du socialisme, dit-on, est suspendu à deux conditions : il faut, d'une part, que la bourgeoisie soit
 au point de vue économique hardiment révolutionnaire, qu'elle développe à leur plus haut degré les
@@ -835,9 +742,6 @@ timorée et si réactionnaire, de cette vigueur industrielle et de ce large espr
 Nous savons tout le mal qu'on peut dire de l'enseignement clérical, mais nous demanderons, à
 notre tour, si ce n'est pas se bercer d'étranges illusions que de compter sur le monopole universitaire
 
-3x
-
-Édouard Berth
 pour redonner à la bourgeoisie cette hardiesse et
 cette liberté d'esprit dont l'enseignement de l'Église
 l'aurait soi-disant châtrée. Sans doute, nous n'irons
@@ -861,9 +765,6 @@ les mêmes âmes sans ressort ni direction. D'aucuns
 affirment que la réforme actuelle ne fera qu'augmenter encore le nombre des aspirants fonction- :
 naires. Et il faudrait compter sur le monopole
 universitaire pour infuser à la bourgeoisie française,
-
-IE 2: > ?
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 
 fatiguée et craintive, une vigueur, une hardiesse
 nouvelles ! Il nous donnera, assure-t-on, des esprits
@@ -894,7 +795,6 @@ pu parler d'un « enseignement de la liberté ». La
 
 (1) Voir à ce sujet l'essai de Sorel sur l'Église et l'État, page 56.
 
-Édouard Berth
 liberté se conquiert par un contact incessant avec le
 réel, la vie, le mouvement des choses et des idées;
 seule la participation effective et pratique à des
@@ -919,14 +819,10 @@ mais c'est savoir s'organiser avec le réel pour le
 dominer. Et le réel, c'est la complexité et la variété :
 plus donc il y aura d'écoles diverses, avec des
 
-tirs Ÿ DCE RS 4
-: LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
-
 méthodes diverses et des enseignements divers, et
 plus il y aura de chances pour que les esprits soient
 libres. Le malheur, en France, c'est qu'il n'y a
 guère, pour distribuer l'enseignement, que deux
-grandes corporations, deux lourdes machineries,
 qui d'ailleurs se copient l'une l'autre : l'Église et
 l'Université. Prise ainsi entre ces deux énormes
 marteaux-pilons, qui brisent tous les cerveaux,
@@ -935,7 +831,6 @@ l L'Université, seule, vaudra-t-elle mieux ? On soutient
 quelquefois que c'est la concurrence de l'Église qui
 * déprime l'enseignement de l'État. Mais l'Université
 a été seule pendant un demi-siècle : était-elle alors
-moins administrative, moins centralisée ? M. Faguet
 soutient au contraire que si l'Université s'est réformée, quelque peu, depuis 1850, c'est sous l'aiguillon
 de la concurrence congréganiste. (1) Il n'a peut-être
 pas tort. Dira-t-on que, débarrassée de sa rivale,
@@ -947,10 +842,6 @@ rentrerait dans la coulisse et laisserait la liberté
 s'avancer librement sur la scène. Cette hypothèse
 nous paraît bien peu probable. Ce n'est pas à l'heure
 (1) Problèmes politiques, voir article sur la Liberté de l'enseigne-
-
-ment.
-
-Édouard Berth
 
 où les républicains songent à rétablir le serment
 politique, à surveiller de près tous les fonctionnaires; ce n'est pas à l'heure où le vent politique
@@ -974,9 +865,6 @@ et assurer à ses professeurs toute la liberté intellectuelle dont ils ont beso
 à la justice et donner pour fonction à l'enseignement public de proclamer le Vrai comme les tribunaux déclarent le Droit; et vouloir supprimer
 l'enseignement privé, comme on a aboli les juridictions ecclésiastiques, c'est là une théorie très sédui-
 
-j }
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 sante, mais un peu spécieuse, il nous semble.
 L'impartialité de la justice, nous la connaissons,
 nous socialistes, pour qui la justice n'est encore le
@@ -1002,11 +890,6 @@ l'État choisirait-il? Pratiquement, un État de classe
 le fait, et l'État bourgeois actuel enseigne sa morale,
 son économie, son histoire. Mais nous tombons en
 pleine partialité, en pleine tyrannie : que devient la
-
-Lune
-
-L RAA | net
-Édouard Berth
 
 liberté ? que devient le vrai impersonnel ? Soutiendra-t-on qu'il y a, soustraites déjà à la controverse,
 un certain nombre de vérités morales, historiques,
@@ -1034,7 +917,6 @@ liberté de l'enfant; mais on pourrait tout aussi bien,
 avec un tel argument, limiter la liberté de la presse,
 par exemple, que la liberté d'enseignement. A voir |
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 comment la presse arrive à façonner l'esprit des
 foules, à créer d'étranges fanatismes, on pourrait,
 au nom de la liberté de ces mineurs que sont encore
@@ -1065,7 +947,6 @@ et Paul de Rousiers, sont catholiques : ont-ils
 
 #
 
-Édouard Berth
 l'esprit moins moderne que n'importe quel député
 du « Bloc républicain » ? La vie religieuse, c'est la
 vie intérieure, domaine complexe et mystérieux, —
@@ -1091,9 +972,6 @@ M. Le Bon, les Anglo-Saxons et les Latins ? Les
 peuples imprègnent beaucoup plus une religion de
 leur esprit que la religion ne les imprègne euxmêmes du sien. Sans doute, il y a réaction de la
 
-40 |
-
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 religion sur l'homme, et renforcement par elle des
 qualités ou défauts naturels d'un peuple. Mais en
 gros, il reste plutôt vrai de dire avec Marx que
@@ -1118,11 +996,6 @@ C'est un exemple de la facilité d'adaptation de
 
 () Voir op. cit., page 40.
 
-a,
-
-NN TENUE 1)
-
-Édouard Berth
 l'Église à la civilisation moderne. On a beau dire :
 l'initiative individuelle est plus souple, plus inventive, qu'une administration, une bureaucratie. Et
 les vraies racines de l'esprit de liberté qui nous
@@ -1147,7 +1020,6 @@ responsabilité, que leur autorité morale puisse
 s'imposer aux patrons et à la masse ouvrière, — ei,
 en conquérant de hauts salaires et de courtes journées, ils forceront la bourgeoisie à renouveler son
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 outillage industriel, à sortir de sa quiétude, à devenir hardiment progressiste ; ils la contraindront
 aussi à renoncer à tout paternalisme, à toute fausse
 philanthrophie, à tout gouvernement patronal, et à
@@ -1173,10 +1045,6 @@ Angleterre même le mouvement ouvrier a dû passer
 
 par cette phase de faiblesse inorganique ; et s'il y a
 
-AW
-Ad os
-
-Édouard Berth
 incontestablement des différences de race et de traditions historiques qui créent entre la classe ouvrière
 anglaise et la classe ouvrière française de notables
 différences psychologiques, il ne faut pas oublier
@@ -1197,7 +1065,6 @@ d'une idée assez haute de leur mission et de leur
 responsabilité dans le devenir moderne, en négligeant de leur dire que leur émancipation dépendra
 autant de leur élévation morale que de leur élépa-
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 tion politique. Nous n'avons pas encore essayé, en
 définitive, les voies de la liberté : pourquoi désespérer d'elle ? Ou le socialisme se dégagera, lui et la
 société française, du bourbier où l'étatisme, combiné avec la démagogie, risque de les enlizer l'un
@@ -1207,7 +1074,6 @@ que le socialisme n'a aucun avenir en France, et
 que, forcé de s'adapter à de séculaires et désastreuses traditions, il laissera notre pays achever sa
 décadence et tomber, à l'instar de l'Espagne, au
 dernier rang des nations européennes.
-* x *x°
 Ce n'est pas dans cette voie, il faut l'avouer, que
 l'on semble s'engager, et la politique actuelle, suivie
 par le « Bloc républicain » et soutenue sans réserve
@@ -1218,7 +1084,6 @@ de cet événement tragique, qui a secoué si violemment la société française
 apparu et qu'on a vu la nécessité de reprendre
 l'offensive contre l'Église. Cependant, de quoi s'agissait-il, dans cette fameuse affaire ? — De droit indi45 ni.
 
-Édouard Berth
 viduel, supérieur à toute raison d'État; le dreyfusisme, c'est lanégation intrépide, héroïque, obstinée,
 farouche, de toute raison d'État. Or aujourd'hui,
 © — et Bernard-Lazare l'a parfaitement marqué dans
@@ -1235,7 +1100,6 @@ au pouvoir et qu'ils ont la force, voici que l'éternel sophisme, voici que l'an
 obscurcit leur conscience, et la fait trébucher dans
 ”. l'éternel mépris du Droit. La passion anticléricale,
 égale à la passion nationaliste, aboutit, comme toute
-passior violente etsectaire, au retranchement brutal
 de la liberté pour l'ennemi, le non-conformiste.
 On ne raisonne plus, on frappe; on ne discute
 plus, on court sus à l'Infâme. L'arrêt critique est |
@@ -1243,12 +1107,9 @@ complet : la haine domine, furieuse, grossière, impérieuse, terrible à tout e
 rond. Nous avons connu les débordements sauvages
 (4) Voir le vingt-et-unième Cahier de la troisième série (août 1902). s
 
-PAR Ne
-ne LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 de la rage nationaliste : nous connaissons aujourd'hui ceux de la rage anticléricale; ils ne nous
 changent guère : dent pour dent, œil pour œil; pour
 Jaurès lui-même, la justice, c'est le talion! Il semblait que, d'une lutte comme l'affaire Dreyfus, la
-conscience humaine dût sortir incapable désormais
 d'autre lumière que celle de la Vérité et du Droit, et
 c'est à cela que nous aboutissons! IL n'y a pas
 d'exemple d'une telle banqueroute. Il est vrai
@@ -1268,7 +1129,6 @@ cisément la révolte de la liberté contre tout patropat, collectif autant qu'i
 appels à l'arbitraire administratif contre des professeurs nationalistes, dans le même temps où l'on
 
 |
-Édouard Berth
 proteste au nom de la liberté des professeurs socialistes. On y approuve l'idée monstrueuse du serment
 politique, renouvelée de l'Empire, et que M. Combes
 veut remettre en honneur. Nous enfin, qui journellement protestons contre l'emploi de l'armée dans
@@ -1319,9 +1179,6 @@ accroître la nôtre, nous ne ferons, sans grand profit,
 que nous mentir à nous-mêmes; car, s'il est au
 moins étrange d'entendre les cléricaux crier : vive
 
-() Mouvement socialiste, 15 août 1902.
-
-Édouard Berth
 la liberté, il ne l'est pas moins que des libéraux se
 réclament d'elle pour la ravir à leurs adversaires.
 Il ne faudrait pas justifier la spirituelle boutade de
@@ -1346,9 +1203,7 @@ valeur intrinsèque de son idéal. Trois mesures
 générales, à notre sens, s'imposeraient :
 1° Une mesure négative : la séparation de l'Église
 et de l'État; plus de budget des cultes; une législa- |
-bo |
 
-$ LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 tion précise et sévère sur la mainmorte territoriale
 et foncière; car, sans vouloir enlever à l'Église la
 possibilité économique de vivre, et faire de la
@@ -1370,13 +1225,9 @@ l'on a la politique double d'un anticléricalisme
 intérieur et d'un cléricalisme extérieur.  Gette
 situation fausse cesserait; et, si un parti catholique
 pur se constituait, comme en Allemagne, les questions n'en seraient posées qu'avec plus de précision. (1) » Une mesure déjà plus positive : une large
-SIA NERINNERS
 (t) Voir à ce sujet ce que dit Sorel, Essai sur l'Église et l'Etat,
 pages 41-42 et suivantes.
 
-Re
-
-Édouard Berth
 décentralisation politique et administrative qui
 redonnerait la vie, avec l'autonomie, à la société
 française, assurerait un franc et large essor à toutes
@@ -1400,7 +1251,6 @@ saint Paul fabriquait des tentes pour vivre, le prêtre
 fera du commerce, de l'industrie, de l'enseignement, de la politique enfin, et de l'économie politique avec tous les citoyens et vous verrez bien
 () Du Principe fédératif, chapitre VII, pages 120-122-123.
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 autre chose. Pour moi, si l'on me demande comment je pense sortir de cet effrayant cercle vicieux
 qui nous montre dans les éventualités de l'avenir,
 parmi les suggestions d'une société redevenue
@@ -1424,7 +1274,6 @@ en cas de conflit, l'intérêt politique et économique,
 c'est-à-dire temporel, anticlérical, l'emportera sur
 l'intérêt ecclésiastique... Contre un cataclysme des
 
-Édouard Berth
 consciences, je ne connais, je le répète, de remède
 que la division des masses, non seulement par États,
 communes et corporations, mais par églises, synaj gogues, consistoires, associations, sectes, écoles.
@@ -1440,14 +1289,11 @@ puissance du siècle, mais vous tenez l'Église tout
 entière, révolutionnée dans son chef et forcée de
 marcher avec la liberté, et vous échappez à
 l'inconvénient de soulever contre vous l'univers
-catholique. »
 3° Proudhon nous indique aussi la troisième mesure générale à prendre, mesure, celle-là, tout à fait
 positive et décisive : joindre à la fédération politique la fédération industrielle, pratiquer une politique hardiment sociale. De quoi, en effet, s'agit-il |
 en définitive ? D'arracher le peuple à la domination
 de l'Église. Après tout, quela bourgeoisie s'encapu- |
-54 |
 
-; | LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 cine, c'est son affaire, il n'y a que demi-mal; l'essentiel, c'est de tirer le peuple ouvrier et paysan, qui
 forme l'immense majorité du pays. hors du joug
 clérical. Mais, en fait, le peuple est déjà, spirituellement, détaché de l'Église ; l'ouvrier, le paysan ne
@@ -1473,7 +1319,6 @@ pour le prolétariat est transcendante ; la solidarité
 oficielle et laïque, si elle est moins humiliante que
 la charité chrétienne, fait encore l'effet d'une au-
 
-Édouard Berth
 mône et le peuple. à l'hôpital comme à l'école,
 quoique laïcisés, ne se sent pas encore tout à fait
 chez lui. Ce qui donc serait tout à fait décisif, ce
@@ -1496,8 +1341,6 @@ assure que si l'État ne venait mettre sa force au service de la démocratie, l'
 les meilleures lois sociales, si la classe ouvrière
 est trop faiblement organisée pour en assurer elle56
 
-LL 1 RIRE
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 même l'exacte application, sont, on le sait bien, la
 chose la plus vaine du monde. Rien ne saurait dispenser le prolétariat de défendre lui-même tous ses
 *_ droits, y compris sa liberté de conscience. Le paternalisme clérical d'un Schneider ou d'un Chagot
@@ -1517,7 +1360,6 @@ académiques ? C'est un exemple saisissant du carac-
 etouvrière où se plaisent les démocrates. On pré-
 tend créer la paix sociale, atténuer les conflits entre
 
-Édouard Berth
 les classes: on aboutit à susciter des embarras au
 mouvement ouvrier et à favoriser la dispersion
 syndicale. Les ouvriers, en général, regardent avec
@@ -1544,7 +1386,6 @@ contre la domination de la caste ecclésiastique et |
 sont prêts à s'associer à toute politique anticléricale. j
 Mais ils pensent avec Proudhon que, pour s'opposer ÿ
 
-LA POLITIQUE ANTICLÉRICALE ET LE SOCIALISME
 véritablement aux intérêts cléricaux, il faut développer l'intérêt politique et économique, c'est-à-dire
 anticlérical, et que par conséquent la véritable politique anticléricale, ce n'est pas une politique jacobine et pseudo-démocratique, mais une politique
 libérale et socialiste. L'État, lui aussi, incarne
@@ -1562,12 +1403,9 @@ jamais passer à celles d'une autorité centrale », (1) et
 qui, par conséquent, ajouterons-nous, constitue la
 décisive résorption dans le corps même de la société de ces deux oppresseurs de la conscience et de
 la liberté, l'Église et l'État.
-ÉnouarD Bert
 (1) Du Principe fédératif, page 121.
-DR:
 
 |
-\
 
 Sur les documents, renseignements, contributions et
 
@@ -1582,8 +1420,6 @@ Sixième cahier de la quatrième série, cahier de
 à courrier, inventaire des cahiers, en forme de catalogue,
 
 un cahier de 72 pages, un franc
-
-=
 
 Le courrier que l'on va lire laisse une impression
 
@@ -1607,8 +1443,6 @@ gérant de lŒuvre du Livre pour tous, 8, rue de la
 
 Sorbonne, rez-de-chaussée, Paris, cinquième arrondis-
 
-sement.
-
 A peine ai-je besoin d'avertir que nous n'avons main-
 
 tenu ni le nom de cet instituteur, ni le nom de sa À
@@ -1631,21 +1465,11 @@ cahiers; nous n'avons pas le droit de jouer la vie d'un
 
 homme pauvre; nous laissons aux politiciens ce jeu
 
-redoutable. |
-
 Nous prions notre correspondant de vouloir bien nous |
 
 continuer ses courriers.
 
-Charles Péguy !
-
 |
-
-: de PP ] Fi "
-À Epmoxp LEBrer
-COURRIER DE BRETAGNE
-Samedi 2/4 janvier 1903
-Cher Monsieur,
 
 C'est avec plaisir que je m'empresse de vous donner
 
@@ -1659,7 +1483,6 @@ ration. La pêche de la sardine est surtout localisée dans
 le Finistère, aux ports de Douarnenez, Audierne, Penmarch, Guilvinec, Lesconil, l'Ile-Tudy et Concarneau.
 
 Elle a lieu pendant l'été, de mai en octobre généralement, époque de l'année où le poisson apparaît sur nos
-côtes.
 
 Depuis quelques années, cette pêche devenait de
 moins en moins rémunératrice, par suite de la rareté
@@ -1676,14 +1499,10 @@ Toutefois, la concurrence faite de cette façon aux
 pècheurs de langoustes a été fâcheuse pour ces derniers.
 Les bateaux sardiniers se servent, en effet, de filets
 
-APR à
-
-is Edmond Lebret
 pour capturer les crustacés et causent souvent des
 dégâts aux engins des langoustiers, nasses ou casiers.
 De plus, la pêche se faisant sur une plus grande
 échelle, il est tout naturel que les profits soient
-moindres. |
 
 Le manque de sardines a donc eu une répercussion
 malheureuse sur tout le littoral.
@@ -1696,7 +1515,6 @@ leur influence politique. Avec la décision qui caractérise
 tous leurs actes, ils ont eu vite fait d'organiser des
 souscriptions, dans leurs journaux et dans les sacristies.
 Ils sont arrivés des premiers à fournir des secours aux
-marins.
 
 La Commission instituée à la Préfecture a également
 réparti 100.000 francs entre un certain nombre de commûnes. La nôtre n'a rien reçu et, naturellement, nos
@@ -1710,13 +1528,9 @@ leur attirera de sympathies.
 Vous avez sans doute dû vous demander ce qu'il
 pouvait y avoir de vrai dans les descriptions émouvantes
 de la misère de nos populations maritimes, descriptions faites de visu par les reporters des journaux
-parisiens.
 
 Pour moi, je tiens pour certain que les auteurs de ces
 
-64 Î
-
-< COURRIER DE BRETAGNE
 articles n'ont pu trouver partout la situation vraiment
 navrante qu'ils dépeignent.
 
@@ -1732,7 +1546,6 @@ Donc, il y a une certaine misère, mais pas la détresse
 absolue qu'on se plaît à répéter sur tous les tons. Et
 
 * les plus à plaindre ne sont pas surtout ceux qu'on
-pense.
 
 Nous étions bien calmes, bien tranquilles au pays
 breton avant que cet état. de famine fût officiellement décrété. Il y avait, certes, dans nos ports et sur le
@@ -1758,9 +1571,6 @@ millier de francs, en moyenne.
 Les soudeurs-boîtiers se font de 900 à 1.000 francs
 pendant le même temps (j'en connais qui se font 1.500
 
-65 IV.
-
-Edmond Lebret Ss:
 et 1.500 francs par an); les femmes employées aux
 usines atteignent 200 ou 250 francs.
 
@@ -1779,7 +1589,6 @@ Malheureusement, et vous le savez peut-être, nos
 marins sont loin d'être des modèles de tempérance.
 Quand la pêche donne, leurs stations aux cabarets sont |
 longues et fréquentes. L'alcoolisme est le fléau des
-populations maritimes.
 
 D'autre part, sans vouloir calomnier les femmes de
 
@@ -1799,12 +1608,6 @@ le comporte leur condition et leur état de fortune, 4
 chaussées et gantées comme des personnes très riches, Fe
 on peut affirmer qu'elles prodiguent inutilement le petit É
 
-66 LA
-L !
-LS SES TE
-
-M en À À
-COURRIER DE BRETAGNE
 pécule de la famille, sans souci de la misère qui les
 ‘ attend pendant les mauvais jours.
 
@@ -1846,17 +1649,12 @@ leur passage, soignaient les malades, etc.
 
 En somme, la question politique reparaît avec l'entrée en scène des robes noires et de leur chef.
 
-Edmond Lebret
-
 Que vous dirai-je encore? Ici, la question des ‘:
 secours et de la misère fait l'objet de toutes les conversations. Les uns exultent, les autres récriminent. C'est
 certes un événement qui fera époque dans la vie des
-marins.
 
 Si j'apprends quelques faits de nature à vous inté-
 resser, je vous écrirai encore bientôt.
-
-Edmond Lebret
 
 Vous seriez bien aimable de m'adresser, dès que
 vous le pourrez, un journal quelconque de l'Œuvre des
@@ -1870,8 +1668,6 @@ cette nouvelle institution. Je n'ai rien reçu.
 Mais vous pouvez compter sur moi si vous pensez
 que je puisse vous être utile.
 
-ÿ; Edmond Lebret
-
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce onzième cahier
 le mardi 3 février 1903.
@@ -1882,14 +1678,11 @@ Ce cahier a été composé et tiré au tarif des ouvriers syndiqués
 
 [IMPRIMER DE SURESNES (E. PAYEN, administrateur), 9, rue du Pont. — 7087.
 
-CHER CEE .
-
 Sur les courriers des cahiers, courriers de Chine,
 courriers d'Indo-Chine, courriers du Japon, courriers
 de Finlande, cahier de Finlande, courrier de Russie,
 cahier d'Arménie, cahier de Roumanie, courriers de
 France, publiés dans les trois premières séries des
-cahiers, se référer au
 
 Sixième cahier de la quatrième série, cahier de
 courrier, inventaire des cahiers, en forme de catalogue,
@@ -1899,15 +1692,11 @@ courrier, inventaire des cahiers, en forme de catalogue,
 Nous avons reçu de M. Urbain Gohier la circulaire
 
 suivante : L
-&\
 
 Le Vieux Corde
-PAR
-URBAIN GOHIER
 La première série du Vieux Cordelier s'est arrêtée au
 septième numéro, le 3 février 1794. Le premier rédacteur,
 Camille Desmoulins, est monté sur l'échafaud le 5 avril
-suivant (19 germinal An I).
 La seconde série commencera dès que vous le voudrez.
 à Le nouveau rédacteur, URBAIN GOHIER, n'est pas
 encore disposé à se laisser couper la tête.
@@ -1916,8 +1705,6 @@ temps et pour les mêmes raisons, prêtera au Vieux Cordelier ressuscité le con
 Le Vieux Cordelier n'aura ni commanditaires, ni action- ;
 naires. Il restera seul maître chez lui.
 Le Vieux Cordelier sera ce que les fripons appellent un
-pamphlet.
-= « 1: : ON
 Il dira ce qu'il jugera bon de dire en toute matière et sur « toute personne. Il dira particulièrement ce que les autres
 feuilles ne voudraient ou ne pourraient pas dire.
 __ Il criera les vérités que les « hommes d'ordre et de gouvernement » s'efforcent d'étouffer. £
@@ -1928,15 +1715,12 @@ Ils savent aussi combien de parasites politiciens ont ;
 gagné des places en exploitant ses idées, ou ramassé des ve
 mandats en récitant ses écrits. On le pille, on le gruge, on
 l'excommunie, on l'insulte. Maïs il a quelquefois son
-heure.
 Le Vieux Cordelier se moque des pharisiens et des tar- :
 70 5
 
-' LE VIEUX CORDELIER
 tufes. Il suit les avis de sa sensibilité, les élans de sa passion, plus sage que la sagesse des pleutres.
 
 Le Vieux Cordelier paraîtra chaque semaine sur 16 ou
-24 pages.
 
 Il se vendra 15 centimes le numéro, 6 francs par an.
 
@@ -1969,50 +1753,29 @@ journaux ; il ne peut faire les frais d'un aflichage; sa résur-
 
 . rection ou sa mort définitive dépend uniquement de la
 | réponse qu'il va recevoir.
-URBAIN GOHIER,
-64, rue Claude-Bernard, Paris, V.
-T
-L L
 
-MR AUS NASA 1 OA ES
-qu HSE ANN | ( j'ARA RATES A th
-NA (A ALES PATENT EN ; À {UNIS MEME |
 2 I tin d'NE \ VAR Ho MEL + NDS nt
-MAN AURESSAMENIRS a VE
-TRUE j ÿ PU ; A CR A Ar EE)
-Mn CE NAUENE à RIVE D TE AT AE
-{1 CANNES ÿ LOU LEA TC TN
 dés j' NME 3 HS TRE ANR ED VEN PALAU Pret et
 Dur EUR LA TAN SAN ANTRNES ANAL AMEN Mae
-He, re
-LAON NP RRNIS NAN PCA
-1 ue # RNA UNS : j 1 RUN TS en Fe MARNE
-AREA AE à à LE ea TT A NPA | 2 RM
 M 4 La Y ‘ * es à PR EN ANR ONE Éi a sil
 DU PACA a RARE SA nt Nat
 I à à an Nr MON Dents
-+ {RME rs EEE Ha MEN 1k
 HR NE ARR AS RENE de
 
 suelles ‘régulières et par des souscriptions extraordi-
 | naires; La souscription ne confère aucune autorité sur
 . la rédaction ni sur l'administration : ces fonctions ;
-_ demeurent libres.
 54 Nous servons : ?
 a 4 _ des abonnements de souscription à cent francs;
 DE des abonnements ordinaires à vingt francs; j
 LL et des abonnements de propagande à douze francs.
-CEE
-à PAR » x “>
 1 ER Il va de soi qu'il n'y a pas une seule différence de ; » rs ASS 2. F
 _ service entre ces différents abonnements. Nous vouJ 1 lons seulement que nos cahiers soient accessibles à tout
 4. le monde également.
-RER +
 mr Le prix de nos abonnements ordinaires est à peu près
 Le égal au prix de revient; le prix de nos abonnements de
 Der “propagande est donc sensiblement inférieur au prix
 _ de revient. Nous ne consentons des abonnements de
-tee Ph
 propagande que pour la France.
 Nous acceptons que nos abonnés paient leur abonne-
 “ ment par mensualités de un ou deux francs.
@@ -2028,7 +1791,6 @@ _ chaque série au plus tard le 31 décembre qui suit
 … l'achèvement de cette série ; ainsi du premier août au
 _ 31 décembre 1902 on pouvait encore avoir pour
 . vingt francs les vingt et un cahiers de la troisième série.
-Th: :,
 
 t A partir du premier janvier qui suit l'achèvement NAN:
 d'une série, le prix de cette série est porté au moins au . |

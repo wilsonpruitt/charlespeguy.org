@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 10820
 ---
-
-*Charles Péguy*
-
 les socialistes veulent socialiser le travail social,
 c'est-à-dire l'ensemble du travail qui est nécessaire
 pour que la cité continue à vivre.
@@ -36,7 +33,6 @@ duelles des citoyens comme travailleurs, et en ce
 sens que ces inévitables différences de qualité, d'in-
 
 tensité, de durée, seront, autant que possible, compensées par d'autres différences de qualité, d'intensité, de durée, de manière que les parts individuelles du travail social soient, autant que possible,
-égales en quantité.
 
 En échange ia cité assurera aux citoyens une
 éducation vraiment humaine, et l'assistance exacte
@@ -60,7 +56,6 @@ l'égard de la cité et à l'égard des citoyens.
 l'égard de la cité, ce régime épargnera letra-
 vail humain, dont le gaspillage est immoral. Cette
 épargne sera réalisée par plusieurs causes, dont les
-trois suivantes
 La concurrence sera supprimée. Or elle est mau-
 
 troisième cahier de la deuxième série
@@ -157,7 +152,6 @@ les difficultés, toutes les souffrances y seront au pis-
 aller égales à ce qu'il faut qu'elles soient dans toute €
 société individualiste. Soient les difficultés, par
 exemple, qui tiennent au choix du métier et à la
-paresse
 Comment pourrez-vous, nous dira-t-on,
 assurer dans la cité socialiste le service des métiers
 les plus pénibles, ou les plus ennuyeux, en un mot
@@ -219,7 +213,6 @@ troisième cahier _ de la deuxième série
 hôpitaux, ses prisons, ses colonies de relégation, ou
 dans ses plus somptueux hôtels, parasites mendiants
 ou parasites luxueux, ou bien ouvriers des mauvais
-métiers.
 
 Selon cette méthode d'analyse exacte et de comparaison, toujours on verra que ce sont justement
 les pis-allers de la cité socialiste, supposés, qui sont
@@ -250,7 +243,6 @@ une évidence autonome, automatique et antérieure.
 n'a besoin d'aucun avocat. Il ne demande qu'un démonstrateur. Il suffit qu'on le fasse voir. Si un journal exactement et moralement socialiste paraissait, la simple
 démonstration, la simple proposition du socialisme introduirait au socialisme les générations montantes. Il
 n'y avait plus qu'à faire un journal socialiste, le journal
-socialiste. Cela serait facile.
 
 Car ces jeunes gens ignoraient à peu près tout du
 personnel qui sévissait déjà sous le nom de socialiste. dl
@@ -326,7 +318,6 @@ premiers adhérents. Je donnais la communication. Je
 n'exerçais aucune autorité. Je n'avais rien de commandement. J'étais le citoyen téléphoniste. Il était d'ailleurs
 entendu que l'on se passerait de moi le plus que l'on
 pourrait, que l'activité de la compagnie serait spontanée, qu'il n'y aurait pas congestion centrale et refroidissement aux extrémités, mais que tout marcherait tout
-seul.
 
 troisième cahier de la deuxième série
 Admettant que cinq cents personnes souscrivent dix
@@ -339,14 +330,12 @@ des souscriptions mensuelles continuerait inépuisable.
 Et quand le public aurait en mains pour la première
 fois de sa vie un journal honnête, un journal bien fait,
 il nous ferait un accueil tel que le journal serait indéra- ‘
-cinable.
 J'adminisirais la comptabilité. Je fabriquai des registres, simples cahiers scolaires. Je tins une comptabilité
 mystérieuse. A la fois scrupuleuse et mystérieuse. Les
 mouvements des fonds étaient marqués par la valeur,
 par la date, et par les seules initiales. Au cas où la
 police y eût mis le nez, elle n'y eût appris que les nombres et l'alphabet. Ces précautions sont devenues amusantes. Elles étaient sérieuses. M. Méline et M. Dupuy,
 non pas M. Waldeck-Rousseau, trahissaient alors la
-République.
 Cette institution de jeunesse ne prospéra pas. Je
 ferais plaisir à beaucoup de personnes si j'attribuais
 la faiblesse humaine l'étiolement de cette institution.
@@ -359,7 +348,6 @@ mes nouveaux amis de Lakanal et de Sainte Barbe
 
 accueillirent l'idée commune et souscrivirent. Ils n'ont
 pas cessé depuis de souscrire leur mensualité, sans ?
-fatigue.
 
 La seconde croissance fut assez rapide. J'étais
 l'école normale. C'était un lieu favorable, malgré d'apparentes résistances. Une compagnie de jeunes gens,
@@ -379,7 +367,6 @@ l'institution. « Ce qui paraissait devenir impraticable
 était la simple communication de l'intention première.
 
 Et les gens ne donneraient pas d'argent pour dans dix
-ans.
 
 Le remède vint. Pour donner à l'institution commune
 la surface de base qui lui manquait, il fallait un comité. j
@@ -426,7 +413,6 @@ intacts, et si ces cahiers avaient publié pendant les
 trente mois de l'affaire l'équivalent de ce qu'ils ont
 publié depuis, je suis assuré qu'ils auraient à présent
 un solide fonds de réserve et une solide clientèle
-d'abonnés.
 
 Mais je me défiai de moi. Un peu épaté par le redoutable aspect de science que la plupart des sociologues
 savent distribuer autour d'eux, je me semblai encore
@@ -456,7 +442,6 @@ j'attribuais à ma témérité ou à ma stupidité, à mon
 troisième cahier de la deuxième série
 incurie, à mon ineptie un insuccès aussi notoire. Mais
 je distingue des causes. La principale est encore l'affaire
-Dreyfus.
 Elle passionnait le monde quand la librairie put commencer à fonctionner, à travailler. Elle fit au commerce ‘3
 un tort considérable, au commerce parisien. En particulier elle nuisit au commerce des livres, parce que les .
 gens gardaient tout leur temps et toute leur finance pour
@@ -523,7 +508,6 @@ cité avant moi, parce que cette signature a été imprimée
 jadis dans /a Volonté, parce que ce nom figure aux
 Notes Critiques, parce que la Société Nouvelle de li- È
 brairie et d'édition annonce de M. Herr un volume
-Révolution sociale.
 
 Je ne cacherai pas la grosse et souvent la profonde
 impression que me fit M. Herr quand enfin je le connus
@@ -558,7 +542,6 @@ balançaient. A plus forte raison les initiateurs de ces
 listes exerçaient-ils une extraordinaire poussée. Un nom
 mis au commencement de la première liste avait aussitôt une survaleur immense. Or il suffit que l'on se reporte aux premières listes Zola pour y lire le nom de
 M. Herr et les noms de la plupart de ses amis, dont
-j'étais.
 
 mesure que l'affaire s'avançait deux tendances,
 deux mentalités se dessinèrent puis se manifestèrent
@@ -600,8 +583,6 @@ Ce compte sera rendu dans le cinquième cahier. Fa
 Le quatrième cahier sera tout entier de Lagardelle.
 Nous nous reposerons pendant les vacances du premier
 de l'an. Nous publierons huit cahiers de janvier à !
-Pâques.
-ADMINISTRATION
 
 Nous avons supprimé nos services. Nous prions nos
 abonnés de vouloir bien accepter Les reçus que nous
@@ -660,11 +641,9 @@ tion. C'est tout ce que nous pouvons dire. L'établissement de quatre mille abon
 tout le temps et toutes les forces de l'administration. k
 Bourgeois a fourni douze heures par jour depuis trois
 mois, sans repos hebdomadaire. Nous sommes en contravention à la loi Millerand-Colliard.
-PAGES LIBRES
 
 Charles Guieysse me dit dès longtemps que ses amis
 et lui avaient l'intention de fonder ce qui est devenu les
-prochaines Pages libres.
 
 — Je vous en parle un des premiers, me dit-il à peu
 près, parce que j'ai peur de faire du tort aux cahiers.
@@ -672,7 +651,6 @@ Ce que nous voulons faire sera dans le même sens que
 les cahiers, à un autre étage.
 
 — Allez toujours, nous verrons après
-AVIS ET RENSEIGNEMENTS D''ADMINISTRATION
 
 Les pages de la couverture seront toujours consacrées
 des avis et des renseignements d'administration.
@@ -701,7 +679,6 @@ et marchands de journaux : cela nous forcerait à faire des
 remises que notre situation financière ne peut supporter; 4
 5° Nous ne voulons avoir que des abonnés.
 Tout cela fait que nos frais sont réduits au minimum. Par
-contre
 6° Nous ne publierons pas d'annonces payées : il n'est pas
 correct de donner des annonces commerciales dans une “4
 publication qui n'est pas un journal d'informations, mais
@@ -710,22 +687,16 @@ bien une revue d'idées ; À
 dépenser beaucoup d'argent en frais de publicité, et d'at-
 tendre plusieurs années avant de joindre les deux bouts. IL ‘4
 faut que tout de suite nous joignions les deux bouts.
-PRIX DE L'ABONNEMEMENT
 Tarif B. — Quand l'abonnement est versé directement en
 nos mains, aux mains d'un camarade qui nous l'apporte, LE
 ou bien quand il nous est envoyé en mandat ou en timbresposte : ÿ
-Unimois etre 4e 2Er 25066
-LPOIS MOIS EMI PN NACRE ENT 0 re
 Adresser le montant de l'abonnement à M. Charles
-Guieysse, 46, boulevard Saint-Michel, Paris, sixième arrondissement.
 Les abonnements que nous préférons sont ceux de trois
 mois et de six mois.
 Remarque pour les abonnés d'un an
 L'abonnement normal d'un an est de 8 francs, selon le
 tarif À, ou de 7 francs 80, selon le tarif B. Mais, ainsi ?
 fixé, ilest un minimum. « à
-
-PAGES LIBRES J
 
 Ceux qui peuvent payer sans gêne l'abonnement annuel
 
@@ -745,7 +716,6 @@ Nous n'aurons pas pour eux une reconnaissance proportionnelle au prix de leur ab
 Il ÿ aura dans le premier numéro des Pages libres une
 consultation de ce Jean Prolète, ouvrier ciseleur.
 Guieysse veut bien me communiquer la copie de cette
-consultation
 Je contai, dit-il, à Jean Prolète comme quoi, avec quelques camarades de toutes conditions, nous voulions fonder une petite Revue populaire, indépendante de toute
 
 puissance d'argent; je lui dis que nous étions sûrs de
@@ -789,9 +759,7 @@ libres, comment nous avions reçu des noms et adresses de
 camarades, comment nous avions aussi dépouillé des annuaires; — à tous ceux dont nous avons les noms et
 adresses, nous allons envoyer gratuitement plusieurs nu- s
 méros, ét ils verront alors eux-mêmes s'ils doivent
-s'abonner.
 — Et tu penses, Charles Gé, que ceux qui recevront plu-
-sieurs numéros gratuits s'abonneront ensuite ?
 Moi, je crois qu'ils liront ce que tu leur enverras, mais
 qu'après ils ne s'ahbonneront pas. Je suis très sceptique.
 — Moi je crois que si nous pouvons leur envoyer assez
@@ -799,9 +767,7 @@ de numéros pour qu'ils nous connaissent, tous ceux qui
 peuvent dépenser quelques sous s'abonneront. Ce que je
 crains seulement, c'est que nous ne puissions pas nous k
 
-PAGES LIBRES
 faire connaître assez, parce que nous n'avons pas assez
-d'argent.
 
 — Oui, toujours la même chose ; les riches réussissent et
 les pauvres ne réussissent pas!
@@ -829,17 +795,7 @@ la copie de la pièce de Jean Hugues, la Grève, repré-
 n sentée pour la première fois à l'Émancipation, univer-
 sité populaire du quinzième arrondissement. À première » vue cette pièce peut faire un beau cahier.
 
-TIX
-
-RECTIFICATIONS
 J'ai reçu de Gérault-Richard la lettre suivante
-25° Année
-LA PETITE RÉPUBLIQUE
-SOCIALISTE
-111, RUE RÉAUMUR
-Téléphone 101.92 4, Rue PAuL-LELONG, 4
-
-Rédaction
 
 Paris, le 6 décembre 1900
 Mon cher Péguy,
@@ -869,12 +825,10 @@ d'autrui pour être sùr d'en trouver.
 
 Vous seriez bien aimable de publier cette lettre et de
 croire à mon dévouement.
-GÉRAULT-RICHARD
 
 J'ai chez moi pour faire ces cahiers plusieurs collections de journaux complètes, en particulier celle de la
 Petite République. Je me reportai à la Petite République
 datée du lundi 11 juin
-LE ÇGRIME MILITAIRE DE CHALON
 En correctionnelle. — Condamnations des manifestants
 {De notre correspondant)
 Chalon-sur-Saône, 9 juin
@@ -904,11 +858,7 @@ qui était devant lui... Oh! logique de Pandore.
 Mais les juges ne s'arrêtent pas à ces détails, ils con-
 
 damnent : Marinier, à un mois de prison; Lanacq, à deux
-mois; Bonnardot, à trois mois; Genty, à quatre mois;
-Denis Gros, à six mois; Marius Gros, à six mois; Caillet, à
-trois mois; Bague, à deux mois; Matron, à six jours ; Merle
 est acquitté. Plusieurs des condamnés bénéficient de la loi
-Bérenger.
 
 troisième cahier de la deuxième série
 Je répondis à peu près à Gérault-Richard : >. je n'ai
@@ -925,13 +875,11 @@ Je ne vous reproche pas de communiquer à M. Louzon
 ma rectification. Mais je suis en droit de vous reprocher de
 n'avoir pas usé à mon égard du même procédé. Vous auriez
 pu, vous auriez dù vérifier l'assertion mensongère de votre
-correspondant.
 On n'accuse pas des militants comme nous de duperie
 sans preuves. — Vous trouverez bon que je me réserve la e
 faculté de publier notre correspondance si M. Louzon ne
 me donne pas satisfaction.
 Bien à vous.
-Gérault-Richard
 Voici ce qui s'était passé.
 La Petite République n'est pas parfaite. Quand
 M. Waldeck-Rousseau eut appelé M. Millerand au ministère du commerce, elle pouvait adopter envers le
@@ -1005,7 +953,6 @@ représentative. Ces deux raisons se composant, je lui
 fis dire ou je lui écrivis que je désirais publier sa lettre
 et lui demandai si je pouvais aussi publier sa signature. N'ayant plus alors un souvenir ferme dela teneur,
 il me répondit que je pouvais publier et la lettre et la
-signature.
 Sur l'espèce de mutation, de virement, qui consiste
 publier en communication un avertissement d'abonné,
 je demande à plaider coupable. Je l'ai fait plusieurs
@@ -1045,7 +992,6 @@ n'a jamais passé. Enfin je me fiais au recensement total
 
 troisième cahier de la deuxième série
 que je ferai des journaux quand je ferai les cahiers du .
-premier congrès au deuxième.
 Comme simple lecteur j'ai beaucoup à dire pour ma
 défense. Intituler un crime militaire le crime de Chalon,
 c'est déjà détourner l'attention. Les gendarmes sont des
@@ -1073,7 +1019,6 @@ militaires qu'un tel titre attirait peu l'attention publique sur le crime de Cha
 suivants : Le mouvement gréviste de Chalon-sur-Saône.
 — La journée d'hier. — Obsèques des victimes. Dans
 le numéro du jeudi le titre couvre ces sous-titres :
-L RECTIFICATIONS
 
 A Chalon-sur-Saône. — Nouveau mort. — Les obsèques
 de Geoffray. Dans le numéro du vendredi 8 un très gros
@@ -1109,7 +1054,6 @@ grévistes. Un lecteur pressé peut s'imaginer qu'il s'agit
 des quelques jours de prison et des quelques francs
 
 troisième cahier de la deuxième série
-d'amende habituellement distribués aux manifestants
 arrêtés dans les bagarres. Le sous-titre ne fait pas pré-
 voir un total de plus de vingt-sept mois de prison. Le
 ton de l'article n'annonce pas la gravité judiciaire et
@@ -1202,17 +1146,14 @@ de cotisations ? qu'ils ne trouveront pas dans leur bourse
 de quoi payer l'abonnement à la revue
 — Voilà, Jean Prolète, la véritable objection à notre pro-
 jet. Mais que veux-tu ? nous ne pouvons pas distribuer notre
-revue gratis ?
 — Vous devriez la vendre meilleur marché... Si tu crois
 que ce n'est pas horriblement cher que trente-neuf sous par
-trimestre.
 — C'est exactement ce que coûte la Revue. Et encore ne
 paierons-nous pas ceux qui nous feront les articles ! Et encore toute l'administration est-elle assurée par des camarades qui viennent tenir les registres et écrire les adresses
 après avoir terminé leur journée.
 
 Il y a donc déjà beaucoup de travail gratuit dans les
 Pages Libres, nous ne pouvons pas y mettre de l'argent en
-surplus.
 
 — Oui, mais les annonces ?
 
@@ -1223,7 +1164,6 @@ ou de la liqueur des Capucins ?
 Crois-tu convenable aussi de vendre la couverture des
 Pages libres à Monsiel qui attirera les petits ménages
 ouvriers dans ses grands magasins et les ruinera en leur
-vendant à crédit ?
 
 Veux-tu aussi par hasard, Jean Prolète, que nous ayons
 des primes, que nous vendions dans nos bureaux des
@@ -1251,7 +1191,6 @@ troisième cahier de la deuxième série
 Il y a une autre lettre de Louzon publiée où d'autres
 faits sont allégués. Je prie qu'on attende les cahiers du
 premier congrès au deuxième, où tous ces faits seront
-rapidement recensés.
 Au moment où nous mettons sous presse, il me vient
 un second désabonnement d'un second ancien cama- À
 rade, motivé par quatre moyens numérotés. L'un de
@@ -1263,7 +1202,6 @@ en franc-tireur, c'était bien. Mais à présent qu'on a fait -
 l'unité sosialiste, il ne faut plus les attaquer. — Pardon, Û
 ce que je dis de Guesde est-il moins vrai aujourd'hui
 qu'hier. — Il ne s'agit pas de cela. Il faut laisser tout ça k
-tranquille.
 
 Je refusai de marcher. Tout est venu de là. Je refu- ï
 sai de faire marcher les quelques amis que j'ai. Cette
@@ -1279,10 +1217,6 @@ Au moment où nous mettons sous presse, on me Communique le dernier numéro de l
 où M. G. Deherme a bien voulu m'envoyer un article de
 deux colonnes et demie. Cet envoi m'accable, et m'inquiète. Mais je ne puis le laisser sans réponse.
 
-Hoi
-
-MATINÉE-CONFÉRENCE
-
 L'ancien Comité Général, n'ayant pas reçu des souscripteurs assez d'argent pour l'organisation du Congrès
 international, résolut un jour de donner une matinéeconférence.
 
@@ -1295,7 +1229,6 @@ Pour aujourd'hui nous commençons par publier le
 programme, ainsi que nous l'avons eu dans la Petite
 République. Nos abonnés remarqueront combien ce
 programme est composite, mêlé. Il est difficile de composer un spectacle pour le peuple ou pour le peuple-etdemi qui peut à Paris se payer une après-midi de repré-
-sentation.
 
 On voit que les deux gros morceaux de ce programme
 étaient la conférence de Jaurès et la représentation de
@@ -1313,14 +1246,11 @@ donner l'image, l'écho de la parole même.
 
 y aurait à redire à ce qu'a dit Jaurès. Nous le ferons si nous le pouvons après que nous aurons donné
 pleine réponse à la conférence antérieure sur l'art et le
-socialisme.
 La Revue d'Art dramatique a eu l'heureuse idée de
 publier cette seconde conférence au commencement de
 son numéro de décembre, consacré au théâtre populaire.
 
 Nous reviendrons sans doute sur ce numéro, sur l'article
 de Romain Rolland, sur le projet d'Eugène Morel.
-
-JEAN JAURES j
 
 ---

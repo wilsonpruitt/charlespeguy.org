@@ -7,75 +7,26 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 42405
 ---
-
-1234 RD 4
-
-:  VINGTIÈME CAHIER DE LA CINQUIÈME SÉRIE
-
-} TEXTES ET DOCUMENTS
-
 | "
 
-(
-
 congrès des U. P
-È
 
 | MAI 1904 :
-
-e | CAHIERS DE LA QUINZAINE
 
 7 paraissant vingt fois par an
 
 # PARIS
 PE _8, rue de la Sorbonne, au rez-de-chaussée
 
-k re Le : Le 3 : :
-
 A te Re RS ae PEN QUE
-Len ADR RAA EE TRE LS ES A
 RARE A EAN ER PS PT AU ES ARE EN SRE TN À re Be ne D PARLE Li
-CRÉES FAIM DR RD RTE NO RE EN SNS RATS RES EN
-An, RNA see tante ER 4 RTE Mer
-LS
-AMEN TE S : 3 D
-500 | Ê
-LP APT Ep s À à LÉ TIR PRE
 ne oo ) : sa AN pre
-EUR HSE 3
-HR R RES NE ot 5
-ee
-SEA "ne , > ; IE HUE
-LRO Y _ RAR,
-LT ICE MU +.
-Mer) - KE: { LACET
-LAS LE RME : à (CRC N A RENE VOTE SEE
-si C SE CT D UE À CARE PE 2 A TCUCIE Us
 
-ENS À AP) A LR \ AE A
-Fa, WE. 4 WA mer MAN SEAT N PIB MEN EU AT He AAA An
 + M4 ” TARA UN RUE GAL PO ALU Phi 5 ab ANR »
 AA ja SUR CHARÉANEN 29] AN, 44 va DANS DRAC FLAT TETE EEE 2h, me
-à NASA AR Re Ge Ag pl NOR POP La MONTOU SU AAA
-EE: à £ Te TNT
-TE MER Ge
-134 4e ESF RE # ? * 4 EU
 Die 1 Va ne
-:.SOREENR RONA
-: RHET EN } PRG:
-ARE LP k ‘ RU
-À RAY nl Fe * + 4, LAS x fe X
-OT A ACT : . : : MR ten
-RAMÈNE £ à SOMMES
 EM Cul a € ël , (a POUR
-{ONCE CURE PAYER
-MU) , MATE > :
 ne ”| EN TAC IRANR
-LT RE A LE ET
-1 TRAINS RQ |
-VA PE f x ARE « o UM
-Dir 09 % 7 à LR di IAE
-(PAC AINNE RER SR EN A REP ACEL A Re PR RES DPATE AUX CPS ù
 
 ne NON OU D
 “ 3 Nous prévoyons que le premier cahier de la sixième
@@ -104,137 +55,37 @@ L catalogue analytique sommaire. 4
 à Nous demandons particulièrement à nos abonnés
 | d'utiliser les déplacements des vacances pour nous”
 chercher des abonnés nouveaux. $ 4
-D EN AN Nuit MNT À AROUND PNA AIRE RSS SES
-‘4
 
 HOT Lie ANA, à LA MT MES de RL PTT, GTER #
 M ARUte AR AS. HOUR GAUS Mot ' AE gi LES 4 PLATE
 :Jyre 4 * DT ER UE VE Len 4 n F FX 1 FR OU
-AL \ À F4 144 RARE i RE"
-{CENTER NA | Le ù À UV
-Me Le VAR * ch DL:
-1 AS NE È À  NRSTANEERS
-) 13 ROAT Pb à + F4 tps Re
-% TA E * & \ | NA L AP MIN CNRS AR MER
-
-Le TNT NAME 7 ERP E VO LEA RDV RAA ON Fe LAN EN LR NSRERES
-
-ET IRANEE RAS M TRE ME TR AIEENT ANR NES sat USE
-
-ET RAT Us; AS A ATEN RATS AA SON IN PARENTS OS a FA
-
-LR EAN PLAT ve HAVE ARENA ANA ARR LISTER
 
 CRE PAR ASE ER QE PE cp AE Sc ReS SSSSS
-
-DAME EN LR PUT ape ns Rate Fr OA A RTE
 
 | HE Le cahier que l'on va lire a été établi par la Fédération He
 MR des Universités populaires de Paris et banlieue; il est 14
 MN. le compte rendu officiel du congrès tenu à Paris les
 178 _ dimanche 22 et lundi 23 mai, — Pentecôte, — 1904 D
-LB ë DE) : LE CR
 PS re par les Universités populaires de tout le pays. “ARE
 
-V ANT, de > Le ER
 EN La copie a été refondue par M. Maurice Kahn, les
 AGE épreuves lues, entre autres, par M. Maurice Kahn, et Fa
 mt par M. Paul Kastor, secrétaire de la Fédération dés
-UE 101 + î EU
 te Er U. P.; M. Gaston Rabaud, notamment, a relu sur :
 A0 À épreuves son important troisième rapport. TAN ‘
 
-Gr 4 S 2 UR
-nu: 1
-: RO AU :
-none ‘ À x 2
-CE AU A |
-AL NE À F {INT RSR
-
-n RTS ”
-à LU DURE, HIER PA NS ER
 ‘ FHARRE ARRETE EEE VA? fe À NE dure ©
-à ÿ 5 : ANT EN C 4 f j {F2 PEN
-5 40 . <_ 1 VTENR
-ne APT ' l HE
-ST CRE EP sn
-Fi AE : 14 1
-De 1150
-FSSTRE HP EE ÿ hi? 1
-Er) AS er |
-‘# 6 4 + v
-TR HAS
-Do: ès des U. P. 1904
-De. _ Congres Q6S U, F, 400
-Mt { FX LES
-LP 7 SRE
-[A D + ET ‘ #? PURE à ‘
-FL SES LA
-1e Pa à j s 4 “iT ENR
-DL k c; LC ENS
-: 0 r LCD
-PART, Fn . PSE :
-Sos hat}
-Fe RE : À à ES
-4 MEN. 27 x] 4 be 1 PSE è
-0 L 1 ) SPEARS
-+ RNORER RAR : L * LAURE
 
-Au a FAN LA AE MA A AT TRE ARS EME ALU APR AE PR NE A A
 Ke A CCC set EA he La 7 RU SRE EME LE A NE RO LR SOUS PATATE
 NE hot?) DR AR A TOR
-1 RS CTP NN ARE SAR EN PA ASE ESA AU ER CE NT ERA
-RS 1 : TIRE Pare
-LT A PÉRMES ) À IR MDP VU
-“AU ‘ 140 7 AC AINNANTISEn
-PAU # HE NUNARS AA ee
-Re À |'HUSntes PA
-Mr. h (é Mr Ho No
 | RATER J > AT À pra
-LE FORTE LCA PRES
-ei d Le A RU EUR WA + UE
-INA f * VAE 1 RUE PL:
-11 |
-AU. Ÿ ÿ « [LUE < Man AE, 1
-MR A } rt f FA LS ALAN L
-NES \ é AN rh
-ARE ñ AE TUE
-RCE j 2 Le , on SE
-24 # y! LL F VUE
-ré ji jipue
-LORS ARE ÿ | \d 40e PI MERE
-6 PET À te NS LAURE
 
-1 À F y
 hs ADN Per AN NUE Pas CPR HART ESS MR €
-HR ARE PAPE ES NE a a QE HET He NS
-HORS ï 4 FLE)
-‘+; | NT RSR ; G 144 20 APRES
-RUE 5 ' 15 CORRE
-RAALE 2 k à $ DA A
-__ ORGANISATION DU CONGRÈS
-PAR. ‘5
-fi “EE DUT Xe 5 : L' HOME CPR
-LS RME HA FL AVE k
 FR Re PLUS 7 x r Chr RENE
-FL SRETÉRE RR RÉ it é 3 f ['HVESNNNLSSENENSES
-RENE AR ERES * : #, ; : à É YA EAN
 DR RTE at ln) i LEUR AIS 7x0 A Ce 2e
 À IQ AB à Le EMA T EN La Dre r: DCR MAIRE PE Pers A
 
-Fe EN DEN A AA SANTE a DRE RE FE CEE NS CAT ANT
-A ARS OR SE RNA DRE AS OA PA à ARC do Jr LE
-{0 DA ù RNA | ET: Up
 no Ne
-49 Ra EN SARL
-Ar Dr HAS LCA
-RU L EE TONI
-74 ; Re
-: ARR NME TAN
-LT ! > SD CURE cr
-He EN à Lo ‘& vie
- FANANTA { ù ee FHADAUPES 78 4
-Rs 1 \ ù LP LEUR TR:
 
 | ORGANISATION DU CONGRÈS
 D'où et comment est venue l'idée de réunir en un
@@ -251,14 +102,6 @@ gués décidaient de mettre une somme de 100 francs à
 la disposition de la commission d'organisation, pour
 | lui permettre de faire face aux premiers frais.
 La commission se réunissait aussitôt et, le 10 janvier 1904, la circulaire suivante était envoyée à toutes
-9 1e
-Bi
-
-RARE à A EP AREAS ARE HAE SE RO IUT SE
-RL NS
-x ÿ £
-
-‘5 congrès des U. P. 1904 I
 
 #4 Dr
 
@@ -268,15 +111,7 @@ x ÿ £
 
 EN eu ie FEDERATION DES UNIVERSITÉS POPULAIRES
 
-x 28, rue Serpente, PARIS (6° arrond.)
-
-ba
-
-“ Paris, 10 janvier 1904 à
-
 4 Monsieur et cher camarade, |
-
-4:
 
 fi J'ai le plaisir de vous communiquer la circulaire sui-
 
@@ -294,8 +129,6 @@ Le membres de votre Université populaire : ;
 
 ÿ émis l'avis qu'un Congrès national des Universités popu- M
 
-à laires pourrait se tenir à Paris en 1904. “i
-
 Le but de ce Congrès serait d'étudier, d'après l'expérience
 acquise, les meilleurs moyens de développer par les Universités populaires l'instruction populaire et de rechercher M
 
@@ -308,8 +141,6 @@ y aurait intérêt pour les Universités populaires et les Fédé-
 tution d'une Fédération Nationale, sans cependant porter …
 atteinte d'aucune manière à l'autonomie des diverses orga-
 
-: nisations. 1
-
 12 La Fédération a nommé une Commission provisoire
 d'organisation, chargée d'entrer en relations avec les
 
@@ -319,12 +150,6 @@ Fédérations régionales pour leur demander leur avis à CC.
 
 { sujet et leur soumettre un avant-projet qui servirait de M |
 base de discussion. j Ni |
-
-\ Hi
-41000 |
-
-É..  2S CNES # : 42)
-‘ ORGANISATION DU CONGRÈS
 
 Cette Commission a dressé l'avant-projet suivant :
 
@@ -349,7 +174,6 @@ serviraient de bases aux discussions du Congrès; ils
 seraient ensuite réunis en volume, accompagnés d'un
 résumé des discussions.
 
-— Chaque Université populaire adhérente au Congrès
 paierait une somme de cinq francs et aurait droit à deux Ÿ
 délégués. Chaque Fédération paierait une somme de dix /
 francs et aurait droit à quatre délégués. (Les dames peu-
@@ -365,14 +189,9 @@ présentés au Congrès qu'il y a de chapitres dans les rapports particuliers.
 | — Rapports avecles organisations syndicales, coopératives,
 | politiques.
 2° Enseignement et éducation
-Conférences, lecons. — Enseignement professionnel. —
 | Fêtes, soirées artistiques et récréatives. — Personnei
-enseignant,
-3 II
 
 Dit congrès des U. P. 1904 Ho +
-AUS 3° Institutions annexes Det
-% RAUE
 f x Ke Chorales, cercles de lecture et de déclamation. — Excur- L
 CNRS sions et sports. — Patronages. — Mutualités, etc. 4
 Ru ; 4° Fédérations départementales et régionales x
@@ -391,35 +210,23 @@ on sités populaires de votre région, pour que nous puissions
 $. ba) pas l'adresse. ÿ
 +HEat Le programme du Congrès sera arrêté définitivement
 
-NOR! DURE . > #4 . #4 à
 va vers le 15 février et envoyé de suite aux Universités popuGr …  laires adhérentes. 4
-FU + . . . . 4
 ch Pour les Membres de la Commission provisoire
-ei d'organisation : 14
-" H. AgLoner, Charles GUIEYSSE @
 il En vous communiquant cette circulaire, j'ajoute que
 12 des démarches seront faites pour obtenir la réduction
 À de 50 o/o sur les chemins de fer, et pour obtenir les M
 120 x meilleures conditions de logement. Ni
 
-VAN à 4 4 2
 : Persuadé que vous enverrez votre réponse le plus
 
 Fi rapidement possible, je vous prie d'agréer, monsieur et
 HUE cher camarade, mes bien cordiales salutations. k
 
-\ ;
-
 W Le Secrétaire de la Fédération des U. P.
 
-mn Paul Kasror (2
-
-ÿ 3
 Ai A la réunion du 13 mars, le secrétaire de la Com- 4
 
-no . . . . . p: 2 “
 st mission annonçait qu'il avait reçu les adhésions provi
-ù UN 4
 
 AM Ti Ne ner MAO
 de ORGANISATION DU CONGRÈS
@@ -431,18 +238,13 @@ qu'il y avait lieu d'organiser le Congrès, et la Commission envoyait à toutes 
 Sur l'initiative de la Fédération des Universités popu- {
 R- laires de Paris et de la banlieue, un Congrès National des
 Universités populaires aura lieu à Paris les dimanche 22 et
-. lundi 23 mai 1994 (Pentecôte).
 Ce Congrès se tiendra dans les locaux de l'Union Mouf-
--fetard, 56, rue Moufretard (5° arr.).
-COMITÉ
 | Comité d'organisation a été constitué sous la prési-
 | dence de M. Gabriel SÉAILLESs, professeur à la Sorbonne,
 ; résident de la Société des Amis des Universités popuP pop
 . laires ; il comprend en outre :
 Secrétaire : H. ABLoNET, ouvrier ciseleur (de l'Union Mouf- ;
-fetard) ;
 Secrétaire-adjoint : HAULTECŒUR, employé (de l'Université
-populaire Emile Zola) ;
 M Trésorier : G. Paire, employé (de l'Université populaire la Fraternelle) ; -
 Membres : H. CAzEviTz, ingénieur E. C. P., trésorier de la k
 Fédération des Universités populaires de Paris (de l'Université populaire Germinal, de Nanterre);
@@ -454,14 +256,9 @@ Paul Kasror, employé, secrétaire de la Fédération des
 le Foyer du Peuple);
 |: - Ed. Marx, voyageur de commerce (de l'Université populaire du X:); £
 
-FM +
-
-At ea A Gt Dee
-ROUES NN A ANR ANNE
 DANE congrès, des' U) \P})190/011) MIMINNANES
 PSN Moreaux, employé (de l'Université populaire l'Égalité);
 nl Tavu, employé (de l'Université populaire la Semaille).
-L'NTES BUT DU CONGRÈS : L
 14 % Le but du Congrès est d'étudier, d'après l'expérience
 F0 acquise, les meilleurs moyens de développer par les Uni- $
 HAN versités populaires l'instruction populaire et de rechercher F
@@ -471,97 +268,59 @@ NA rences, cours, leçons et fêtes. Il aura à examiner aussi s'il ;
 A Fédérations régionales à coordonner leurs efforts par la
 à Pa constitution d'une Fédération Nationale, sans cependant
 mo porter atteinte d'aucune manière à l'autonomie des diverses
-AU organisations. à
 4 1
-"HMAE PLAN DES TRAVAUX 1
-« à
 1 Les travaux du congrès sont divisés en cinq sections : M
-! "4
-REUS 1° Organisation générale 140
 Fe Statuts, moyens financiers, normaux et extraordinaires. ‘à
-MAN ‘Us
-14 2° Institutions annexes vi
 4 Rapports avec les organisations syndicales, coopératives, M
-PRICE CPE CPS à
-! olitiques. — Patronages, mutualités. 4
-14 q ' Li
 "1 3° Enseignement et éducation 4)
-ui Conférences, leçons. — Enseignement professionnel. =
-Us Personnel enseignant. 1
 ‘à y 4° Fêtes et distractions M
 ‘A Fêtes, soirées artistiques et récréatives. — Chorales. TA
 gs Cercles de lecture. — Déclamation. — Excursions et sports. à
 Qu: ne
 1 5° Fédérations départementales et régionales qe
-ie 4 UNE
 LE Rapports avec les Universités populaires voisines. =
 4 Organisation de la Fédération Nationale s'il y a lieu. pol
-12 LP
 9 Les Universités populaires et les Fédérations devront
-fai envoyer leurs rapports divisés en chapitres correspondant
-x 1) OR
 | Has SAT 1
 
-é SE à LM de 4x PA y Ÿ ;
-A I ADUR
-ORGANISATION DU CONGRÈS
 aux sections ci-dessus; ces rapports devront être précis,
 aussi résumés que possible et écrits sur un seul côté des
-feuilles.
 Il sera établi, à l'aide de ces documents, un rapport général
 pour chaque section; ces rapports, imprimés et distribués F
 aux délégués dès l'ouverture du Congrès, serviront de base
-aux discussions.
 Il est donc absolument nécessaire que les rapports des
 Universités populaires et des Fédérations parviennent au
 - secrétaire avant le 20 avril, dernier délai, afin qu'il reste le
 temps matériel de rédiger les rapports généraux et de les
 faire imprimer.
-' PROGRAMME DU CONGRÈS
-Dimanche 22 mai \
 Matin : 8 h. 30. — Réception des délégués à l'Union
 Mouffetard, 56, rue Mouffetard. — Allocution du président.
 — Vérification des pouvoirs. — Nomination des commissions. À
 À 10 heures. — Réunion des commissions.
 Après-midi : 2 heures. — Séance plénière et discussion des d
-rapports généraux.
-Lundi 23 mai
-Matin : 8 h. 30. — Séance plénière.
 Après-midi : 2 heures. — Réunion des commissions pour
 | l'examen des vœux.
 | A 4 heures. — Séance plénière.
 Le soir. — Banquet et fête de clôture. l
-Mardi 24 mai
 Organisation de promenades et excursions pour les
 délégués qui pourront disposer de cette journée.
-ADHÉSIONS
 Les Universités populaires ou Fédérations d'Universités
 : populaires qui veulent adhérer au Congrès (même celles
 à qui ont déjà envoyé une adhésion provisoire) sont priées |
-k
 | 15 <
 
-D Ua RM OPEN
 0 A à congrès des Ur \P."T90%4 IPN
-DR ; AA 1e AE
 Dee de remplir la formule ci-jointe et de la renvoyer le plus tôt He
 ‘Re w possible au secrétaire, accompagnée d'un mandat ou bonM4) poste de : haie L
 ._ 5 francs pour les Universités populaires; bi:
 ‘NRA 10 francs pour les Fédérations. È
-AMIS PR : . ie . . A 242 A st.
-0e Chaque Université populaire a droit à deux délégués, |
 MEPE chaque Fédération à quaire délégués. (Les dames peuvent ÿl
-LB être déléguées.) 4
 1407 Les camarades d'Universités populaires s'intéressant au 14
-ee à = +
 ‘1e Congrès peuvent adhérer personnellement moyennant une 04
-Ü À 2 L
 ‘ cotisation de 3 francs. 4
-FER
 :: SES Il est désirable que le plus grand nombre d'Universités .
 150 populaires adhèrent au Congrès et y envoient leurs délé- L:
 __  gués personnels. Cependant, pour faciliter l'adhésion des
-4-7 ! 232 : au .
 A } Universités populaires que leurs moyens financiers ou
 mu toute autre cause empêcheraient de déléguer un de leurs ‘4
 00 membres, il a été décidé que les Universités populaires '
@@ -570,414 +329,86 @@ te d'une autre Université populaire ou par un camarade !
 182 parisien, étant toutefois bien entendu qu'aucun déléguéne
 ne fé } pourra cumuler plus de deux mandats. 14
 18 NE En aucun cas, les décisions du Congrès ne pourront porter M
-PRET . a . : sa : . de
 A atteinte à l'autonomie des Universités populaires, qui resD ï tent complètement libres et indépendantes. Re.
 #0 1 Recevez, monsieur et cher camarade, mes bien cordiales
-ue salutations. Hi
 #0 Pour le Comité: Te
-D: \ Le Secrétaire, (18
-48 H. ABLONET 1%
-HA fl
 152 Toute la correspondance doit être adressée à H. Ablonet,
-\4 96, rue Mouffetard, Paris (5°). x 1
 QUE Voici la liste des Universités populaires qui, à la
 100 suite de cette circulaire, ont envoyé leur adhésion au M
-1720 x ne
-(Era r ° Le
-11 congrès : 11
-204 À 16 508
-Re 44 ri ra
 
-à PT ; 4 :
-A LIRRE hs ra + :
-à è .
-RGANISATION DU CONGRES
-rs FE g
-2 © A
-A à 5
-x =
-… = É=
-é ce 2
-8 SOIR LA =
-= AN = ä ;
-= _
-à © 2 a 2
-3 = ; ©
-& SA EN 5 É
-el £ 12 n £
-A ci pi 4 BA EE
 je CONS Kate Es +
-= ES NS = 4 : rs
-= RE 23 = AISNE: eSS > » ©
 | = D SL ES BASS 2%
-© ANS BP 0 Sa
-& A © 2 P200. Et is dl 6
-e : 5 ao rm Èr AR
-A Sn SA ACER
-—rhis ADO SO 1
-FREE COTE SCT PR ENREN NE TE SR PNA PEN CN EETNE
-: n SD 28 TS TS
-n ÈS à £ PANETTIERE
-E DOS NL © 24 7 © © !. È
-Ah ASS ESS à ARR EUR
-3 « 4 EG HT = 41 HS S SN URI
-2 SR SN = E SES [SRE
-no Z Do 988 £ ARE SR NE
-mel SSSÉSSS si DBSSs se
-l'E z CRE RE DE EX:0 077 LT
-& ENS ST » = Rp + AUS de
-ES LME ERA © SANS LE
-HIS SSRSeS SE A LLÉLÉSS
-2 BROSSE 89 MOSS RSS
-A n SRRSES BA 32 SRSSS
-a] Z PÈ NS © S & m'£ ? SOS 7
-A = > à re LR IE, SOCIETES
-=) © SerR 2er SL ES SSSR
-© FSSSSE SÈ H SSD 2
-A RER + Se H SRA TE ER
-= DATES Re DOS URSS ESS
-4 & é DD NRNRNDA
-« Ze “ Es Si E
-Are “ à Li
-& 2 2 A PÉNRE
-5] . . © Ù :
-= : ; DE gr Ale
-à É PE
-£ ©" pd © He
-£ < + HS nm © © 5
-E > Ë er Sie
-5 3 £ a Hat QUES
-En un € E À M'A À
 | — . . . PP a .
-& = 5 k OLIS NIUE
-< S ñ e 2 =)
-S cs El 4 OR CRE
-F. = £ £ 9 À © à © A
-A £ = — n PA
-S =. £ RP
-4 LSAOAE:
-:
 
-k
-
-RL OÙ LT 0 RACE NEA NT PR QU AE VTC PO OL NEO SAR PA DATENT UT NAS MUR D OR ON
-PU RASE LES 4 PM el MN NE Fe AE RNA GTS SET SEE
-0 Ve FA è c \ Re PAU RO OP EE rue CEA
-Lt À NEUTRE
 fr : congrès des U. P. r90 11
 | gr 904 ji
 SANS PEN A AU EN te te
-À
 th QUE
-1 0 } a © .
 | SUNSS ñ
-j\ A ï £ =
-ne 2 2] à A
-à 1 El a >
-J (a) Ci 75) Ce « > F4
-Nes = x = 5 « © E
 | RANCE ho LEP
-‘2 2 - LES Da =
-à la| A gs: D en k : =
-de = © © : © © N/8
 S Amel nee EUR er ENS le
-y 4 © & © © FE HOMO
-H TR og e CRC RS
-f © RATES AT 0 PP OME
-' sue 1H BE 0e ESS 0CuEsEs
-LIN "5 Sin O0 0 0 a A SA GS
 je AM MS AAANLAHAOUMOURHA |
 ns RTE PSS CS one 0 de UN
 # Ê = 5 4 > d À % D . © SJ ]
-E OUEN Sein DOME SAME ART A
-“ & v à RUNoTEe È 5 È ESS SMILE -È 4
-=! RS RS SSL S SIC SAS s
-ASS :S.SÉDDe RES ES SUCRE
-: © SE ACTES SN EN ee Eee F
-fn à Î & à a . à
 ê EN LÉ J'PÉRSS SSs 0 Her de :
-à cm $ SSL 2 RISIR RU RS REINE
-; É = 28 -&: So Dour So 20 0 0188 ;
 | caler SS-9 8 . LME OS NS IS RE RTE RS
-MS 2% :635 2828 5 8 RS RSS
 Eu UE 0 SUN o SNS LE ns ESS RS Des Je Û
-ï VS NC Dre QUE < à
 | SSSSeR RSS SSSS ESS Sos |
-PU ÉSXRSSeS0RÉSReSsES ESS SELS
 k RS tes ete R fr
-31 2 ARR Su SSSR Sub À
-© 1
-. FRS St. eee OO LETTRES ‘h
-à| . . . she . . . . . . . . . . Nec
-a = SRI GS Re nr DESIRE hi
-= S \dm 2 © d2 -uw 2... .A ad 4
 « eo TS SES rm es A Eu LEO ONE |
 j D 018) ete NET SANS SE Des TEE 8 10
 À = vd D 4 A6 o ma Ê és La lEE i
-1 m 20 CO <EWA SO gs sv 4
-; OO OU HA COndiO ra » <a 14
 js 2 RIT 14 EN AL TSNENNSS Ne
-Ë SENS +10 S 1 NIMES D.
-s ‘ Ce As PSE LE SR RP D ‘4
-À À b 20000 à 17 SAT ONE HN ENS ES 18
-; [es] eZ 754" © 4 a D
-a : : tite 1,80 0 1: ol PEER ‘4
-CA . sai ils = =) + 20 © . CRUE QE ‘148
-< L d'A UOTE Neo AS OT 18 4
-4 Le] © à n 18  PLA OU)ENS ENS “1
-al # lee BASE NN SAR nu
-A ä S 0) lo SNS NON ER pts
 (de) OT FdHa AAA AR ji
-+6
 | Ur
 
 LA fé ÿ L
-« ORGANISATION DU CONGRES
-5 =
-© El = a
-= s an 4 À
-A : 2 d © À
-4 G; Le ©). AE
-=) CURE g © © © APE RE
-(Z} A er Un n LEE à 4 = © © -
 2 = D AO ne D A UN Die
-s] a a A M ASE, ne © > =
-La) 2 à 0325075 £
-Fe) Æ S À ANR Dee gd £E,.r
 ER APRES NP 3 D :5< A elles » An AA Dm M inend os l'A 0
 ARS is ei AO PA o De De
-© ALES RoOo= Er Sr # £
-= S D O0 4 d > A DO À 0 De h =
 2 a ARE ee ET | CRE: gs ©
-DOTE D ROC =
-< AA ONAUOUZRAE AN
-n =, ,1 . . . . . . . . . . . Q . - € . .
-rs g 2e % © + RE
 ee RS SRE M vs, <et Fe) 0e 7e PS OS Ne
-< = S QE. . % : ere pee
-A DÉSRENSRE EP ST US MS
-£, TE ATHONSS RE SR UE PRE "PePES E
 me SEE SNS DU cs; 0 She ES Se IR
 sise SR CE ES Cr D Cas y nie
-TEA STONES RE S F0 S =
-He RERO OST OS. :e)50 TNT EI CES
-= 2 SSL PRESBOS LE 0 = 5 £ DD RE Ere
-E = = DS 2 à à v > SSSR 2e > : ©
-2 D SC S, S:5 ,0 © D, + RSR D. à
 > RTS LRO SO Sa te EL
-2 SUBIT D OUR S10 ROSES SIC S SD a ;
-NS SR SSE À EN "O © 0 sn
-DD ESSS A et gs 0 20588 0 88,
-2 Se PR
-5 Dm IRSC SSD ED
-a 5 tre -R Da A :
-a he 2 A +. & + (AT ALES .
-= A = © nr ©
-= Rs Len M7: D
-= AE Oo allume + : . - É
-E Le HR 0 50 BU OUEIE Ce) NN |
-y & 3 = RE ON PR Ti RS
-HAS sed nee
-a © 9 © n RES AE
-Se) H<ON HAZZA
-FA
-= = LAC
 |
-© & £ >
-£ S 4 Eee
-= à 2 SABRE RP ERPETA ET
-A > = & ©
-_ A nd
-à à un n
 
 |
 
-ORAN LR ARE APR SE NOUORA E AS SA PA AT TNRNETRSES D AE La
-La An ARLON À KE RNA ANS NOT DATANT ATEN RU OROTL OAV a tn
 Ho  : congrès des U. P. 1904 RACE 1
-BOT ; © HE ES : © !
-HIT : © = Le À
-nn : LS AE SANS Æ A 4
-NUS È a DEN | ete ‘à
-260 ee En A à < n AGE
-5,40 nl LUE £ 00 0 5 TOR
-STATS D MEME RENTE S 508 ER
-re a ABS Sie rpi Sms !
-1 Nes] OA le < > £ me en ha
-Tee Æ | EU Sr RS © DE LE NON |
-HS 10 3 5 & <= 3 EU PANIQUE LR . à
-1 19 À Hair Es 5 = E © B qe | £ à
-TV See US ME TEeNe nyror se |
 De. HS Sri S CESSE S
-I ÉRÉE ANS À MONA IE © à F
-‘RME SSSR ONU M EnOCA FE 1
-cn BrAE À À à ©OAE =
-ni MOSS) LOIR MERE 18 EN RO RE 5,
-TIRER Æ MP RNCS LUS Ê 1
-L 20 4 3 SD ER ASE ES 107$ SEE
-FRE A SES à, AS = CISRS 2% +2
-ar = LS HR 8 DES HMS NS © EU à Ci
-"LS EVE SNS OUR OS RE S SES EURE (
-AIRES fa] S ns © © e&s & SAS PS TE ns ® à
 HAE AN RUES SSID IS Sels e lES IE AO) MS
-404 È ANS R\LIDS SISeS £ S © & à
 #3) Ex RS SSSR SSD SP Se S Ë
-4 4 na Sn So Se. SR £ Ë © S É
 1 ES Se lee So See ie SUR SUR, 44
-130 B| ES SSÈPÉSSÉTERÈR AA R SE pi
-M = DS SR TS el RUSSE : SOUS 4
-:NeS D NS & DE UE OS S 5 A NS © Le:
-028 SsS & Q S & CE 2 = a j
 : HAa So nn eu LA
-* A = 5 : ° ETS OCR
-} } # 4 : . . 2% F Qc
-A # “Me à re É OR if4
-SN : A À ÉRNNTRES - : Fe 5 © > + je 0
-M Fa SAN CR RO SNS S ISERE
-Rues Æ . È k - . 115 0 06e &,
-AA las} 4 SUR TE : 3 SL 1 € =D) 14
-A0 = RELELES "
-eau à | SAISONS
-File : A ü 100
-Fam EM TT FC
-QUE STE : . ® A0 LE TER
-4 4 54 , oreue À j +: RAC RER 4
-(RAP É A RE ne d+ 100
-VIRE ï FOIE RNCS TRS ® è PAT
-MUR, < © |: | TES
-"En à | fn] F
 GR al EE TA EPP ERAR hnaieà & il À
-Shen kr
-pau PA pE A
 
-Û
-ORGANISATION DU CONGRES
-©
 > A
-5: s
-A 2 at = © : SE
-LS His D Eire 4
-= SSD: 00% fe
 Le HR OT TES 2 Lay
 #2 LS oo AA,
-à 257.4, Mon. 20m
-= 27.8 LNCHPEE m
-EUR SOLE NO NN Me MR METRE
-AO ES 0. DM
-DROLE 2 M STE RS
-SARSSE ébeod
-Sd 5 do d 1 © 'EeSR IS
-Fr A r* 2 = + + led
-OORXOUND ANOURUAZ
-4 Q'HiO rs 00 :: SES OS S
-= 9. EE HS DAS EN EUR
-E SSe À à S S À À « 3 =
-£ Rs ALES DRE DE
-- = SS S = > S 9 2.9 © 85 |
 Aro me GS de D Do avoue
-LUN RE RSR RE EE
-me) SSSSSS Sesssss
-E SDS EVA LES S 2
-= £ » D'> à à DS I EeL >>> Pat
-Et © DEN S Se D à SR 9 ©, 9 a
-na SSSR 5082 DE =
-Gi] MER DS SE Sent ere
-1 RES EEE =
-LA ROME ER RERO S
-2% | DO SNS DUR DDR È
-D
-Es = &
-© Ê= =
-A 7 1 à Ar
 A TS UT ES MO TA rs des 5e
 = ERP SO mi. ne ts
-7 AR LAR LUÉ 4 D Sons
-980 9680.20. APE HAS
 Hniab ne 0 d'a dd à < So f
-Jedi rr << JA DIR
-a
-E 2 Ca $ » S > 2
-5 A Dale | 2 LE eut s66 1 RE S S 9 S
-FA = £ 2 o = & à
-és se 2 -. 7". .
 = = bc Dre nf. DES
-= E | ++ TPS TL LIENS S
-© © [3] © a cs
-< n AE = © # © © Se
-es Diop SATA © a
 La! JURA BASSES Robes Mirtrnr
-Fe D AR SAPERA
-
-à
 
 QUE n ee UNE RU te PEUT PE SX EEE
 tte RE YA ELU LUE VA DUT ne (AS SRE ES
 po SMS HAN CA PAU CRT LA rit (EU ANT D'ER Fe Rs
-M UORES è ÿ 2 ASE A 4 À Ne: 10 2248 RAA: RE
-DU: ! \ ST NES RAA
-Sal À £ RAT EE
-20 À RAC
-DEP i 4% Ha
-NT SUR TERRES
-“4 | 1 PA LE x ADES
-MAX € fe ; ‘ ACTES
-1 | : LAS
-Res > AUEN rs SAT ERS
-NAN ) té À WE RES KA
-OEM ie Wie \ SE TE 14
 048 so j NAN nous de
-RNPAN EE : 4 | 2 AE -\ TOR ESS
-te GPA PSE ATE | j UE MEN Po ns :
 
-er PR A CL SENTE PE RE
-1 . À us À FT SA TER ON ER L'ORDRE H
 | EE RO ENS RO PA AVS CUIR CO AE A PUR
-PDA PEINTRE OSEO Rex a 6 Ve) ver: # Lutte
-LT CPR EPL NT NE ÿ 4 1h; DRM GALENES ES 17 YO
-REC x À 1 SA
-Û F ; s 28
-er * N: LT ER
-ë Le: à - ! Ne:
-1008 B ÉANCES
-_ PROCÈS-VERBAL DES SÉANCES
-"TC » à | I 4
-CRE c Nc LENS
 RCE à ; ; Rage ce
-V ÉSIS TE É : à SCENE
-FT NAT FIVE 1k t LPS TR
-: F2 : : LACS
-TUE { Per.
-d. 4 EUR ? : > NES FE
-d f' à à vs 4 re
-Ua: air 5 RES
 RER diras RL : re NEA NE Se qe sl
 
 RAT EST NE TE ï His th A DA RDENEA MA ou PAU
-it (AA ! PAR | ANNE He
-A UUIE AN AIR NAT DRAC
-DUR pi) à ANS | 1140
-Ha) NP US ; FRUS LE
-DS 116 : Ar I Re Fa
 Lips \ À qe ss ET
-D à CUT
-MA 1 y v 3801 AS Fi
-(2e F. SF a …
-Mn » RENE
 #1 Et 4 f jte 11e
-, 'ATOUARE MAT LU RL I Lee EEE Reel
-LUE ENS $ PA D PRANTN
-D A
-À 7 AS % ÿ ARR HAS 5 R
-FIN OENA me Rap ts NA Q
 RAT L AAC ra à
 | CFE DYTAUES à [ LUN NCIS td
-à ANSE) me CN A
-TI RES
 
-PROCÈS-VERBAL
-DES SÉANCES DU CONGRÈS
 Séance du Dimanche 22 Mai
-(matin)
 
 Ouverture de la séance à 9 heures.
 
@@ -987,7 +418,6 @@ Souhaits de bienvenue aux camarades des départements par le camarade Kastor, se
 | Appel nominal des délégués d''Universités populaires
 
 et de Fédérations, ainsi que des membres adhérents
-individuels.
 
 Nomination du bureau :
 Président : M. GApriez SÉAILLES, Président de la Société
@@ -1002,14 +432,9 @@ Kasror, de Paris.
 Picipre, de Paris.
 Vocr, de Persan-Beaumont.
 
-Il
-
 D M one De
 ie : congrès des U. P. 1904 HU
-4 |
-li En prenant place au bureau, M. Gabriel Séailles
 j : prononce l'allocution suivante :
-jù Mesdames, Messieurs,
 à Nous ouvrons le premier Congrès des Universités
 ÿ populaires : je vous remercie de l'honneur que vous
 li : me faites en m'appelant à en présider les débats. Je me
@@ -1036,9 +461,6 @@ délégués des diverses Universités populaires nous
 disent ce que chacune a tenté de faire, les résultats de
 telle ou telle méthode, les succès, les échecs. Rien ne
 
-/, RUE
-
-PROCÈS-VERBAL DES SÉANCES
 saurait valoir pour nous cette leçon directe des choses,
 que notre réunion même nous permet de nous donner.
 Je crois que nous n'aurions pas perdu notre temps, si
@@ -1071,59 +493,33 @@ un rapporteur ; et que les délégués se rendront, à leur
 choix, dans le bureau dont les travaux les intéresseront U
 le plus.
 
-j ART MAUR FINE LR AOC UT DR DER AU ER LA A EYE AND UENET PE IMNRRE
-
-à RO ANNEES qe MRUTTTUN DE LCL ARS AN TOME RE
 ne ne Ru Lh À À NUE ! DAC Un si TOMATE PURE À
-NE à gt QUE à u è } k NES
 16 congrès des UP; /1004 NN
 re Le Congrès procède ensuite à la nomination de ces
 ‘1 FLRUES bureaux, qui sont constitués comme suit :
 
-fee , À
-ao " Première Commission : ORGANISATION GÉNÉRALE
 Le Président : CAsevirz (Fédération de Paris); Assesseur : -
 RAS À: ExerTiIER (Troyes); Secrétaire : Mars (Albi); RapporLB teur : Madame Warmer (Université populaire du
-De Ë dixième). |
-‘4 ‘4 Deuxième Commission : INSTITUTIONS ANNEXES
-A d 4} TR Président : MERCIER (Angers); Assesseur : PERNET (Mouffe-
 
 RAS tard); Secrétaire : CHALLAYE (Evreux et Laval); Rappor-
 
-al 4 | teur : CLAIR (Fraternelle),
-
 15 Troisième Commission : ENSEIGNEMENT ET ÉDUCATION |
-Mr, Président : Bounior (Montpellier) ; Assesseur : André
-2140 GiRARD (Montrouge); Secrétaire : Madame Maria VÉRONE !
 pr (Egalité du neuvième); Rapporteur : Gaston RABaup
 de (Paris).
-‘4 Quatrième Commission : FÊTES Er DisTRACTIONS
-à 4 Président : Maurice Boucuor (Paris); Assesseur : MERTz |
-ae (Meaux); Secrétaire : Courer (Marseille); Rapporteur :
 M: Georges BAER (Foyer du Peuple).
-
-48 | Cinquième Commission : FÉDÉRATIONS
 
 Rae Président : Fcor (Châlons-sur-Marne); Assesseur : SCHAYA cner (Le Mans); Secrétaire : DAuDiIN (Bayonne); Rapporteur : Kasror (Fédération de Paris).
 
 DR A 10 heures un quart, les Commissions se réunissent
 ie dans les bureaux pour lecture et examen détaillé des \
-MCE . ,. » [2 0 Et
 IX cinq rapports généraux établis d'après les rapports par-
 
-ÿ 4 . . . » . CFA " V
 100 ticuliers envoyés par chaque Université populaire. ;
-La NT RL
 
-D n: A ALES HG tt Pie A]
-SRE TS
-Ne :
 Séance du Dimanche 22 Mai ‘
-(après-midi)
 Ouverture de la séance à 2 heures trois quarts. k
 Î Lecture du rapport de la deuxième Commission par
 le camarade Clair, rapporteur. (1)
-RAPPORT DE LA DEUXIÈME COMMISSION
 Les rapports qui doivent exister entre les Universités
 populaires et les syndicats, coopératives, groupes
 politiques, patronages et sociétés de secours mutuels,
@@ -1135,14 +531,10 @@ après l'autre ces différentes organisations et de rechercher quels profits pou
 populaires de leur fréquentation sans que pour cela,
 bien entendu, elles sacrifient rien ni de leur but, ni de
 leur indépendance.
-SYNDICATS
 Si nous examinons les rapports qui nous ont été
 adressés par différentes Universités populaires adhé-
 (1) La première Commission n'avait pas achevé son travail.
-; 29 IL. à
-ra
 
-M AAA M PP NE MI MEN ARANTA ER OUEN RO ere St
 4 procès-verbal des séances l
 4 rentes à ce congrès, nous constatons que la majorité
 4 vivent en excellents termes avec les syndicats; plu-
@@ -1161,7 +553,6 @@ du travail, en un mot qui commence à avoir souci de
 / est nécessaire pour arriver à conquérir ses droits,
 À l'instruction, qui en le rendant conscient lui permettra
 d'arriver à son émancipation tant rêvée, mais jamais
-a obtenue.
 be Si nous envisageons la question à un autre point de
 ï vue, les Universités populaires peuvent trouver dans
 les syndicats, dans les bourses du travail, un local ù
@@ -1180,13 +571,10 @@ qi peuvent être données en commun et les Universités 4
 
 les membres des deux organisations, familiarité quine M
 
-: (uen - Pon'in DEA SN PA DONNE « 1 0. ae à ke RNA us
-RAPPORT DE LA DEUXIÈME COMMISSION
 | peut que profiter aussi bien à l'une qu'à l'autre. Cette
 entente est d'autant plus facile que, dans plus de la
 moitié des Universités populaires, une grande partie
 de leurs membres font partie d'un syndicat.
-COOPÉRATIVES
 Dans les coopératives, les Universités populaires
 - devraient toujours rencontrer un bon accueil, car ne
 visent-elles pas le même but ? Tandis que les coopéra- k
@@ -1203,12 +591,10 @@ qui, en échange, pourraient organiser un certain nombre
 de conférences dans les coopératives, ce qui leur per-
 | mettrait de travailler ensemble à l'affranchissement du
 prolétariat, tout en gardant leur indépendance absolue.
-GROUPES POLITIQUES
 |
 Est-il utile pour les Universités populaires d'avoir
 4 des rapports avec les groupes politiques ? j
 Pour notre compte nous ne le croyons pas; nous |
-31 Es
 
 procès-verbal des séances ‘4
 he allons même plus loin, nous croyons que cela ne
@@ -1218,8 +604,6 @@ he allons même plus loin, nous croyons que cela ne
 po : staté que la plupart des Universités populaires qui
 
 ie nous ont adressé des rapports sont unanimes sur ce
-
-i point.
 
 ñ En effet, dans nos conférences nous faisons appel à
 
@@ -1246,8 +630,6 @@ dans les Universités populaires, rien de mieux, au con-
 traire; mais nous ne devons pas entrer, en tant qu'Uni-
 
 è versités populaires, dans un groupement politique
-£ quelconque.
-; PATRONAGES
 Pour les patronages, nous pensons que les Univer- Ë
 x sités populaires ne doivent pas hésiter à leur apporter
 ci le concours le plus grand, car il ne faut pas oublier que ;
@@ -1258,10 +640,7 @@ j Université populaire enfantine. Or, comme nous avons 1
 1 éprouvons pour amener l'adulte à écouter une confé-
 : rence, nous avons certainement tous compris que le
 : seul moyen d'y réussir était d'habituer dès l'enfance
-da 4
 
-RAPPORT DE LA DEUXIÈME COMMISSION
-\
 nos futurs adhérents à suivre des cours ou des confé-
 rences en dehors de l'école, en un mot de les habituer
 à éprouver le besoin d'augmenter continuellement la
@@ -1273,7 +652,6 @@ petites fêtes enfantines, chercher, par tous les moyens,
 ; pagner dans leurs promenades par des membres des FE
 Universités populaires, lorsque cela pourra se faire +
 sans trop de difficultés.
-MUTUALITÉS
 La deuxième commission estime qu'en raison des
 divergences de vues qui existent entre les membres des
 Universités populaires eux-mêmes, il n'y a pas lieu de s
@@ -1292,14 +670,10 @@ ce serait aussi un moyen d'attirer aux Universités
 populaires la clientèle des mutualités. RG)
 . Il est bien entendu que les questions de mutualité |
 pourront faire l'objet de conférences et de discussions
-; 33
-rÆ
 
 FE ta du procès-verbal des séances LOF
 ï au sein des Universités populaires, comme rentrant
 à à dans le programme d'éducation qu'elles se proposent.
-
-1 > CONCLUSIONS
 
 1 De tout ce qui précède, nous pouvons donc conclure
 
@@ -1329,12 +703,8 @@ sé ‘ Prenons donc, camarades, la résolution de faire tous 4
 1 nos efforts pour amener le plus tôt possible ces rapES ports si désirables. La tâche, nous en sommes certains,
 3 nous sera facilitée par les militants des différentes
 À organisations en cause. L
-és î
 à Le rapporteur, ni
-î À EucèxE CLAIR !
-a HE
 
-à Re j s RAPPORT DE LA DEUXIÈME COMMISSION \
 nr Avant de passer à la discussion du rapport, le Con- te
 grès discute sur le mode de votation. Plusieurs cama- à
 rades sont d'avis qu'il n'y a lieu d'émettre aucun vote Ne
@@ -1353,8 +723,6 @@ s'ils font seulement double emploi avec les délégués À!
 d'Universités populaires, faisant partie des dites Fédé- ;
 rations, déjà représentées.
 ; La discussion s'engage sur le rapport de la deuxième
-commission.
-DISCUSSION
 Rapports des Universités populaires avec les syndicats. —
 Des Universités populaires /Agen, Béziers, Montpellier, 1
 Le Mans, etc.) indiquent qu'elles ont d'excellents rapports :
@@ -1369,7 +737,6 @@ syndiqués à suivre les travaux de l'Université populaire.
 : à la suite d'une grève, à Lyon, par la création d'un groupe 5
 4 féministe, les rapports sont devenus plus étroits entre è
 syndicats et Universités populaires. É
-\ 35 Ù
 
 A CÉ Hé A ns % a BAne, ia: à é, PT TNT ARR Un (PEAR Fe FERA béni
 FT procès-verbal des séances FRE
@@ -1382,7 +749,6 @@ hs. : méfiance des syndicats s'atténue et on espère arriver à
 ha une cordiale entente. Des Universités populaires fondées
 Pa par l'élément bourgeois sont peu à peu devenues ouvrières,
 1 i mais alors l'élément bourgeois diminue et tend à dispa- :
-8 raître.
 de Des camarades émettent l'opinion que les Universités
 hé populaires créées par les bourgeois ne peuvent être
 3 d'aucune utilité : les Universités populaires doivent être
@@ -1408,14 +774,9 @@ de pour créer les Universités populaires, mais que ceux-ci ne
 À Des camarades protestent. Un camarade dit que seules les
 4 Universités populaires qui s'appuient sur les organisations
 ouvrières sont réellement solides, pour si misérables qu'elles
-Fo paraissent actuellement.
 À Saint-Quentin répond que sans le concours de bourgeois
 | 36
 | LENS
-
-CPR ET RU UE PRO LR TUE TE TRS CE PRIT ec | APT
-do RO SR
-Ro: *  RAPPORT DE LA DEUXIÈME COMMISSION « fe
 
 intellectuels, leur U. P. n'aurait pu se créer et vivre; pour- Fo
 ” tant, il constate qu'aux conférences faites paies ouvriers, Ne
@@ -1442,7 +803,6 @@ tionnée par une coopérative, mais il semble mauvais que
 l'Université populaire dépende absolument et soit gérée 4
 effectivement par la coopérative. ME
 
-, *
 | Rapports des Universités populaires avec les Groupes *
 | politiques. — Le Congrès constate qu'une expérience toujours confirmée prouve que les Universités populaires vont %
 à leur perte lorsqu'elles s'associent à un groupe politique. g
@@ -1458,8 +818,6 @@ populaires et les patronages, et de donner de l'extension ÿ
 É aux rapports déjà existants. LAS
 ï Des Universités populaires ont organisé des après-midi
 | récréatives du dimanche, des promenades, des fêtes à ». Noël, à Pâques, etc., soit exclusivemert pour les enfants ÿ
-k 37
-E us 47
 
 RAA PO MM MB De PARU 2 de VAN AO EN
 ‘1 procès-verbal des séances ane a
@@ -1469,7 +827,6 @@ Late Ÿ Nancy donne chaque dimanche une causerie sur un
 fs mais il faut beaucoup de patience et de dévouement pour
 44 # organiser ces réunions enfantines. Un camarade désirerait
 1 qu'il fût fait un choix d'œuvres facilement assimilables
-\# . aux enfants : rondes, fables, récits, petites pièces théà-
 ii trales, etc., cela faciliterait beaucoup la besogne des orga-
 “il nisateurs.
 h Nanterre a pu obtenir l'autorisation de faire une loterie
@@ -1499,19 +856,12 @@ l'esprit de méthode et de camaraderie. Cette action, lente
 future si la nôtre sait l'y bien préparer. Si certains se sont
 trop tôt découragés, c'est qu'ils avaient cru la récolte mûre;
 nous n'en sommes cncore qu'au labour et aux semailles.
-38 :
-fi
-
-à RAPPORT DE LA PREMIÈRE COMMISSION
 
 Lecture du rapport de la première Commission par
-madame Wathier, rapporteur.
 
-RAPPORT DE LA PREMIÈRE COMMISSION
 | La première commission a reçu communication de
 vingt et un rapports, dont seize provenant de la banlieue
 + et de la province et cinq d'Universités populaires
-parisiennes.
 | Pour faciliter notre tâche, nous avons annexé à notre
 : rapport un tableau présentant l'aspect général de l'organisation de chacune des Universités populaires qui
 ont répondu à nos questions.
@@ -1548,7 +898,6 @@ un grand nombre d'organisations attirent les travail-
 |
 
 à procès-verbal des séances PERS ol
-a,
 L part, les partis qui avaient intérêt à entraver le progrès
 ; des Universités populaires ont exploité, contre les
 NA à : intellectuels, cette lutte sourde qui divise les classes
@@ -1580,10 +929,7 @@ mobile et d'esprit peu persévérant, où nous vivons,
 semble être la cause primordiale de cet échec, plus
 è apparent que réel. Notre population, sollicitée par des
 | distractions sans nombre, se fixe difficilement; et pour- 3
-fo $
-till
 
-RAPPORT DE LA PREMIÈRE COMMISSION "
 tant c'est avec une joie profonde que nous constatons, ra
 dans les rapports, un mouvement progressif général |
 dans les premiers mois de 1904. R
@@ -1595,7 +941,6 @@ emballement, parce qu'ils ont constaté l'utilité de notre 6
 
 propagande, ils grouperont, autour de leurs organisations, les éléments d'un succès prochain et durable, Ê
 auquel nous croyons sincèrement.
-ORGANISATION GÉNÉRALE, STATUTS
 
 La première question : Organisation générale, sta- x
 tuts, offre beaucoup de points de contact entre les difé- |
@@ -1623,11 +968,7 @@ quatre membres choisis parmi les organisations
 
 .
 
-D NT ME RL PNR PEN RP EPA eee Le MN PNEU PE TIME PTT
-
 | procès-verbal des séances
-
-bres d'autres organisations ouvrières, quatre membres
 
 1 du corps enseignant de l'Université populaire, et deux.
 autres membres actifs. Il reflète ainsi l'avis de la
@@ -1661,9 +1002,6 @@ suivante. Le but de la Société est ainsi défini : « Développer l'éducation
 et préparer par leur émancipation intellectuelle leur
 émancipation matérielle et sociale. 1 »
 
-{Ab
-
-RAPPORT DE LA PREMIÈRE COMMISSION
 | Nous croyons qu'il y aurait un grand intérêt à créer
 le plus grand nombre possible de sociétés similaires
 dans les campagnes, et nous rappelons aux militants
@@ -1677,8 +1015,6 @@ région, il réunissait ses disciples qui étaient venus là
 pour leurs affaires; on organisait une causerie, une
 ‘réunion, en déjeunant à l'auberge : c'était lenoyau d'une
 
-Fédération.
-
 Pour créer ces foyers agricoles, on trouverait,
 croyons-nous, des concours précieux auprès des Petites
 Amicales, et des renseignements utiles à l'œuvre des
@@ -1687,7 +1023,6 @@ qui groupent autour d'eux, pour ces lectures, quelques
 auditeurs, et parmi ces correspondants des instituteurs ;
 il y a là des éléments au moyen desquels on pourrait,
 avec un peu de dévouement, obtenir des résultats
-inappréciables.
 
 L'Université populaire de Limoges comprend cinq
 sections; chacune est une Université populaire ayant
@@ -1698,9 +1033,6 @@ dans les petites villes du département. Son rapport
 nous apprend que l'Université populaire a retiré de
 grands avantages de la création de ses sections, et tout
 
-Fi
-
-RO AT OR LAN EU I ANEREE ES OA Et IR
 ue ! procès-verbal des séances Lo.
 “ d'abord un plus grand nombre d'adhérents, parce qu'on
 1 est allé chercher les ouvriers au centre de leurs habiL à *  tations ; ensuite des liens étroits de bonne camaraderie
@@ -1712,7 +1044,6 @@ We devient plus fécond; tandis qu'assistant à une conférence
 4 a dans un local central, au milieu d'inconnus, l'ouvrier
 r'oserait pas interroger et perdrait ainsi le fruit de son
 
-k * audition.
 l Cette organisation pourrait suggérer aux Universités
 {Se populaires dont les adhérents sont un peu disséminés,
 ? la pensée d'organiser des conférences périodiques dans
@@ -1744,13 +1075,8 @@ fi nement de la municipalité socialiste qu'elle obtint, en plein
 fi partie désaffecté ; la municipalité fit les réparations, fournit
 
 ÿ des meubles, des vitrines, des bibliothèques, et ainsi put
-Qt
 
-k JEU
-
-RAPPORT DE LA PREMIÈRE COMMISSION
 être créé le premier Foyer populaire, dit Maison du Peuple,
-assez semblable aux Universités populaires parisiennes.
 Les membres auditeurs qualifiés de participants paient une
 . cotisation de 3 francs par an; on accepte aussi 0 franc 50
 par mois. Cette Maison du Peuple est dirigée par la Société
@@ -1786,9 +1112,6 @@ l'aïeule des Universités populaires.
 Nous nous inclinons devant le dévouement et la
 persévérance de ces vaillants ouvriers. Au début, ily a
 
-45 IL.
-lé
-
 CA PRE PAS PA AE PE AE ds
 114 4 Le ie pre PACE PRESSE
 fi procès-verbal des séances 1
@@ -1806,7 +1129,6 @@ comblent le déficit au moyen d'une cotisation de
 o franc 5o par semaine, plus quand il le faut... Ce sont
 tous des ouvriers. :
 Il ne nous paraît pas que la commission puisse
-conclure, en proposant aux Universités populaires
 existantes ou à créer, telle ou telle formule de statuts,
 telle organisation plutôt que telle autre; les milieux, les
 circonstances obligent à bien des diversités ; notre tâche
@@ -1819,13 +1141,7 @@ e Deux considérations semblent dominer cette étude :
 2° celui d'éviter à tout prix de devenir l'instrument
 d'une coterie ou de se voir annihiler par des adversaires hypocrites. Presque toutes, par la composition
 de leurs conseils et leur fonctionnement, ont obvié à cet
-inconvénient.
 
-{
-
-LL PNEU EN AE + RSS EL Qi
-RAPPORT DE LA PREMIÈRE COMMISSION
-QUESTION FINANCIÈRE
 En abordant la question purement financière, nous
 <onstatons, ce qui est connu, que surtout dans la région
 parisienne, en raison du prix excessif des loyers et
@@ -1855,16 +1171,11 @@ système du recouvrement à domicile. Depuis cette |
 époque, sa situation, qui n'était pas mauvaise, s'est
 améliorée sensiblement, — 600 francs de réserve en un
 | 47
-l j
-É
-k ;
 
-RE ÿ s Ÿ SE rs ui Fi k
 procès-verbal des séances 1
 LP} an. — Elle est la plus prospère de celles qui nous ont +
 AR envoyé leurs rapports. Le montant des cotisations
 . perçues indique au moins 400 membres. Son dernier
-compte rendu annuel, — novembre 1902-1903, — indique
 1.500 francs en caisse, une bibliothèque de 1.010 voArs lumes qu'elle enrichit constamment. Ce résultat est
 atteint presque sans aide (87 francs de dons). Son loyer
 ; est peu élevé : 333 francs, le local étant seulement destiné aux services et aux bibliothèques; les conférences
@@ -1893,10 +1204,7 @@ future, celle qui résulte de l'estime de ses camarades, nous
 avons décidé que tout retardataire de plus de trois mois,
 sans excuse valable, et après avis préalable, aurait son
 su nom affiché dans l'intérieur de l'Université populaire. ,
-48 A
 
-Re
-$ voler:
 | RAPPORT DE LA PREMIÈRE COMMISSION
 | L'application récente de cette méthode ne nous permet pas
 encore d'en apprécier les résultats, mais, du principe d'où
@@ -1909,7 +1217,6 @@ En ce qui concerne les dons et subventions, presque
 d'administration; d'autres n'acceptent que les dons
 | anonymes ; en général toutes se prémunissent contre
 tout ce qui pourrait les faire dévier de la voie qu'elles
-entendent suivre.
 Un rapporteur se montre très sévère sur cette question ; il ne nous paraît pas que le mot servilisme, dont « il se sert, soit applicable en cette occurrence. Chaque
 Université populaire doit rester juge de ce qu'elle peut
 accepter ou solliciter, elle seule connaissant les per-
@@ -1921,7 +1228,6 @@ sans scrupules. Étant prélevées sur un budget auquel
 tous les citoyens apportent leur part contributive, toutes
 les organisations ayant une utilité réelle doivent pouvoir
 bénéficier d'une partie des sommes attribuées aux:
-subventions diverses. -
 Un autre moyen d'augmenter les ressources des Universités populaires a été préconisé, je crois, par
 M. Guieysse; il est basé sur la puissance de consommation des adhérents de chaque Université populaire.
 Il peut recevoir des applications diverses, selon les cas,
@@ -1934,12 +1240,10 @@ s4S de la commission, vous expliquera les diverses applications qui ont été te
 Nous terminerons cette étude par la lecture d'une
 
 ï proposition émanant du Foyer du Peuple, dix-septième
-arrondissement :
 
 Considérant la situation précaire d'un grand nombre
 d'Universités populaires, pour assurer leur existence et
 faciliter leur développement, le Foyer du Peuple propose
-au Congrès :
 
 la nomination d'une délégation chargée de s'entremettre
 auprès des directeurs de journaux favorables aux Universités populaires, afin d'obtenir que, pendant un certain
@@ -1967,12 +1271,7 @@ nouveaux collègues et forme les vœux les plus sincères
 pour la pleine réussite du congrès.
 
 Le rapporteur, À
-MARIE WATHIER
-50 '
 
-RAPPORT DE LA PREMIÈRE COMMISSION
-ANNEXES
-STATUTS
 Après lecture du rapport provisoire, la commission,
 après examen et discussion approfondis, recommande aux
 Universités populaires d'introduire dans leurs statuts un
@@ -1983,29 +1282,22 @@ Les membres des Universités populaires comprennent :
 tous les avantages, conférences, fêtes, etc.; ils verseront
 t ou non des cotisations; : |
 | 2 des membres actifs versant la même cotisation que les }
-membres adhérents.
 1 Les membres actifs participent à la nomination d'un
-! conseil d'administration.
 | Les membres adhérents deviendront membres actifs en
 È satisfaisant à une ou plusieurs des conditions suivantes :
 l a) avoir trois ou six mois de présence;
 f b} être présenté par deux ou trois membres actifs; £
 k c) être agréé par le conseil d'administration;
 d) être agréé par l'assemblée générale des membres
-; actifs; 5
 3° des membres honoraires payant une cotisation comprise entre certaines limites, de 5 à 20 francs par an, par
-exemple.
 | Le principe de l'anonymat pour les dons dépassant une
 certaine somme étant d'ailleurs maintenu, de manière à
 ÿ éviter la mainmise sur l'Université populaire par certains
 donateurs trop généreux, toute somme dépassant les
 20 francs de cotisation maxima étant considérée comme
-don anonyme. (1)
 (1) Ce vœu ayant été présenté à la réunion plénière du congrès,
 il n'a pas été décidé de le comprendre dans la liste des vœux
-publiés.
 
-4 EE PORN VER AE OU ER SUR DEEE A SU
 procès-verbal des séances
 La première commission a également proposé à la réunion
 | plénière du Congrès le vœu suivant :
@@ -2013,7 +1305,6 @@ La première commission a également proposé à la réunion
 + déclaration prescrite par la loi de 1901 sur les associations;
 cette déclaration a pour but de donner à l'Université populaire la capacité juridique et de lui éviter de se voir dénier
 | la propriété de son matériel et de son mobilier. (1)
-QUESTIONS FINANCIÈRES
 : La commission prend connaissance du rapport du cama4 rade Casevitz, trésorier de la Fédération de Paris et de la
 banlieue, président de la commission :
 La Fédération des Universités populaires de Paris et
@@ -2031,33 +1322,21 @@ oscillé et être parvenu, de février à mai 1903, jusqu'au
 £ Nous n'avons compris dans ces chiffres que les Uni-
 ÿ versités populaires payant régulièrement leur cotisation
 * et ayant participé réellement aux travaux de la Fédé-
-: ration.
 Le nombre d'Universités populaires ayant actuelle-
 ; ment fait acte d'adhésion, et n'ayant pas signalé leur
 disparition, est, non pas de 34, mais de 4o.
 (1) La publication de ce vœu a été décidée. ÿ
-52 ne.
 
-À ;
-k RAPPORT DE LA PREMIÈRE COMMISSION
 Le budget mensuel ordinaire de la Fédération s'établit
 actuellement comme suit:
-1° Recettes
 Subvention de la Société des Universités Popu1 RS Mi URPE LR ES MUR francs 100
 l <omSanons (ioyenne)y tit. Lau NT me, 104
 k Recettes diverses des services commerciaux
-E | AE rames etc.) 55.20 RE PRE 3
-k Total Sale francs 7 207
-f 2 » Dépenses
 ( : Appointements de l'employé. . . . . . . francs 125 15
-k ae issements: 7), 20 PR SECRET 35
 1 ne D SENS Per. ESS Set eee 9
-Hi Divers, matériel, frais généraux . . - . . . . - 13 |
-É Total fre) francs | 182 ;
 Le loyer est payé par la Société des Universités popu-
 | laires. '
 Ce budget laisse donc mensuellement un boni de
-1 25 francs environ.
 | Dans ce budget ne sont pas comprises, évidemment,
 |. les recettes et les dépenses exceptionnelles, telles que
 deux dons se montant au total de 261 francs 65 et versés
@@ -2071,14 +1350,11 @@ L œuvres et organisations. C'est ainsi qu'elle a organisé
 monument Zola,souscription qui a rapporté 91 francs 50. |
 Elle a également organisé diverses fêtes etréceptions,
 | 53
-Fe
-(4 A
 
 procès-verbal des séances
 ) notamment la réception des camarades des Universités
 populaires belges du mois d'août 1903, laquelle réception
 | a occasionné un mouvement de fonds de près de
-1.200 francs.
 La Fédération put d'ailleurs, grâce aux ressources
 spéciales créées par des fêtes antérieures à l'organid sation de la Fédération, contribuer pour une somme de
 426 francs 65 à ces fêtes ; notons également la matinée
@@ -2093,13 +1369,10 @@ de voyage à l'exposition de Saint-Louis, pour laquelle
 il a été recueilli 143 francs 30.
 
 L'encaisse de la Fédération était, fin avril, de
-1.356 francs 05, savoir:
 
 243 francs 95 affectés spécialement au fonds de fêtes ;
 
 143 francs 30 affectés spécialement au fonds de l'exposition de Saint-Louis ;
-
-968 francs 80 disponibles.
 
 La cotisation mensuelle des Universités populaires
 adhérentes fixée dès le début à 3 francs est donc suffi-
@@ -2117,30 +1390,23 @@ Université populaire avait à s'assurer elle-même du …
 plusieurs fois à chacun d'eux pour obtenir un certain
 nombre seulement de réponses affirmatives et discuter
 
-A DR, Dr Er
-RAPPORT DE LA PREMIÈRE COMMISSION
 avec eux les dates des conférences. Pour chacun des
 neuf conférenciers nécessaires mensuellement, il fallait
 | donc compter: :
 + Environ 3 lettres pour une réponse aflirRAR CET ee lait Rte late Nr RUN eu TN DID TES
 Environ 1 lettre pour discuterles dates,ci 7 —
 Environ 1 lettre pour mise d'accord, ci 1 —
-Total! 0e 7 S)tmbees
 | Soit 5 timbres par conférencier ou 45 timbres en tout
 par mois, soit une dépense de. . . . . francs 6,7.
 Il fallait ajouter les frais de programme, se
-MOMAUMENVIFONA 0, ARTE CNRS 6 »
-Total"; NV francs fr
 La Fédération assurant la correspondance avec les
 conférenciers, il ne reste plus guère de frais de correspondance aux Universités populaires.
-Cependant, certaines Universités populaires désirant
 s'attacher certains conférenciers ou leur demander des
 | modifications à des dates précédemment fixées, il faut
 | compter encore pour chacune environ. . francs 2 »
 De plus, l''Emancipatrice, imprimerie communiste, 3, rue de Pondichéry, imprime les programmes des Universités populaires par l'intermédiaire de la Fédération à 2 francs le mille, soit 2 »
 Il convient d'ajouter à ces frais le montant de
 la cotisation à la Fédération, soit . . . . . . . 3 »
-Soit au total. . .francs 7 »
 d'où une économie de 12,75 — 7 = 5 francs 75 par mois
 et par Université populaire.
 
@@ -2178,21 +1444,17 @@ lieu de 3 francs qu'elle devait précédemment.
 
 : Enfin, le nombre d''Universités populaires en retard de
 ÿ à leurs cotisations, qui avait été nul jusqu'en février 1903,
-1 atteignait 2 Universités populaires en mars; 5 en avril;
 4 8 en mai; et 15 en juin, sur 41 Universités populaires en
 L ce moment. ÿ
 4 Cet état de choses pouvait devenir dangereux pour ;
 l'existence même de la Fédération; aussi le 7 juin 1903, ;
 si l'assemblée générale modifia comme suit l'article VII des
-Ü statuts : : 1
 AT La cotisation mensuelle est fixée à 3 francs par mois et 1
 fe par Université populaire. Les cotisations qui n'auraient #
 
-+ HP ÿ » J RAPPORT DE LA PREMIÈRE COMMISSION J
 | pas été acquittées dans les cinq jours suivant l'assemblée
 générale mensuelle, seraient recouvrées par la poste et le ,
 | montant en sera augmenté de 50 centimesspour frais de
-recouvrement.
 . Toute Université populaire en retard de ses cotisations
 ne pourra plus jouir des avantages de la Fédération jus- |
 qu'à ce qu'elle se soit remise à jour. Toutefois, dans ce cas, k
@@ -2211,7 +1473,6 @@ ke rades de province sur l'urgence qu'il y a tant pour une 4
 laisser se créer des arriérés de cotisations.
 Beaucoup d'Universités populaires parisiennes ont
 disparu parce qu'elles ne surent pas encaisser réguliè-
-rement leurs cotisations. +
 \ Alors que le nombre d'inscrits aurait largement sufi
 à subvenir aux besoins de l'Université populaire si
 chacun avait payé la cotisation annuelle de 6 francs,
@@ -2221,19 +1482,15 @@ F beaucoup profitaient de la faculté qui leur était laissée 4
 ou une autre absents de l'Université populaire pendant
 ï un temps plus ou moins long, cessant d'y retourner à
 \ parce que l'arriéré de cotisations se trouvait être trop ;
-È considérable. 4
-3 à 57
 
 EL | procès-verbal des séances
 F k C'est ainsi que nous avons vu des Universités popuji laires de cinq à six cents adhérents recouvrer à grand
 a : peine 30 à 40 francs par mois, et ainsi, non seulement
 M se débattre dans des difficultés financières, mais encore
-fr perdre peu à peu leurs adhérents trop endettés vis-à-
 vis d'elles pour revenir.
 À À La vraie solution, à notre avis, est d'exiger dès leur
 D. échéance le règlement régulier de toutes les cotisa-
 ; tions; le versement de petites sommes ne gêne personne et nous recommandons même le recouvrement à
-f domicile.
 
 L'Université populaire a l'avantage ainsi, non seu-
 
@@ -2253,14 +1510,12 @@ de faire crédit, font payer même le pain d'avance à
 Ce leurs adhérents; elles accordent d'ailleurs la gratuité
 absolue à tout adhérent malade ou sans travail pendant
 À six mois, mais seulement après délibération du Conseil
-à d'administration.
 4 C'est ce que nous voudrions voir adopter par les |
 j Universités populaires; et nous voudrions que les adhé- |
 A rents fissent consister la solidarité non pas dans une |
 timidité mal placée à l'égard d'un camarade débiteur, Ë
 ; mais dans le sentiment de chacun de s'acquitter régu- À
 lièrement de ses dettes envers le fonds commun. j
-58 "
 
 Dee RAPPORT DE LA PREMIÈRE COMMISSION
 Après cette lecture, la première Commission recommande
@@ -2281,7 +1536,6 @@ k Tout camarade en retard de sa cotisation ne pourrait pas
 la main au paiement très exact des cotisations, même pour
 les camarades n'ayant pas fréquenté l'Université populaire, et également de profiter de toutes les fêtes, promenades ou séances extraordinaires, pour faire rentrer les
 cotisations en interdisant absolument l'entrée aux membres
-en retard.
 La fermeté des organisations, sur ce point particulier,
 ? est le plus souvent une question de vie ou de mort pour
 les organisations. Le recouvrement à domicile ne peut
@@ -2295,14 +1549,8 @@ habituera à ce procédé dès l'origine seront beaucoup
 les non-paiements, comme y a réussi la Fédération parisienne.
 Il serait bon de réserver au Conseil d'administration de
 Ë chaque Université populaire les exonérations de cotisations, momentanées, pour les camarades malades ou en
-chômage.
 
-Bi.
-
-DA ANN TA AURA ARERE M 2 APA A DR ES
-APTE Y JUS F a" NS IL DELL FACE A TARA ROSES
 SR [is procès-verbal des séances.
-La “k PROJET DE CONSTITUTION D'UNE CAISSE CENTRALE à À
 DORE : DE SUBVENTIONS le
 v La première Commission, après avoir pris connaissance
 nr de la proposition du Foyer du Peuple concernant la création
@@ -2312,7 +1560,6 @@ te ' caisse d'après les bases suivantes : ;
 ä \ 1° Il est créé dans chaque région une caisse centrale de |
 Gi subventions destinée à subventionner tel ou tel groupement
 tn ; dans un but déterminé. |
-Ra \
 HV 2° Dans aucun cas les demandes de subvention ne pour-
 ï ront être agréées si elles ont pour but de payer une
 dépense déjà engagée. )
@@ -2322,88 +1569,37 @@ dépense déjà engagée. )
 l'organisation centrale de la caisse.
 3° La caisse sera gérée par des délégués spéciaux à raison
 # de un ou deux par groupement; les délégués nommeront
-DR parmi eux :
 ; a) Un trésorier, un trésorier-adjoint, chargés de la gestion
 me: de la caisse; ï
 FE b} Une commission de contrôle chargée de l'examen des
-à 8 demandes. ;
 re £° Cette caisse serait alimentée par des dons personnels,
 d des subventions municipales ou autres, des fêtes spéciales, :
-por loteries, etc., etc. (x)
-in 4
 Le < (1) Ce vœu a été renvoyé par le Congrès à la Commission d'orga- 7
 U nisation de la Fédération nationale. h
 | Re)
-RS % 1
 
-k "
 à CIRE Mu Si RARE de He Hrigs ss 74 RNA:
 | AE MANN ARTE GER OL NE FE TRUE a La nt EUR 04
-RE 3 U j : ERA, e
-Got < ss PE:
-Ra ; 5 PONTS
-02 AÏE - Dep.
-€ REA re 14 Fe TM
-44e x + Mer: #( k
-: FE ORGANISATION FINANCIÈRE ET ADMINISTRATIVE 2" 128 2
-x ; 6 ANSE z ë
-RE TABLEAUX SYNOPTIQUES A.
-LS o \ QT
-. KA 6 Re ENS: te
-KG d É Me
-“4 5 L SITE
-PES É LS TR
-er ITR
-3 At . " ; : APE à
-Ta HASEUER DA AE 7 A TRS 1,520 ei
-RE 2 | La + L à il MNT : À
 
 organisation financière et administrative
-, MOYENS
-DÉSIGNATION CUT MT ET
-COTISATIONS
 à des TR IT les co COINS
-. Membres
-UNIVERSITÉS POPULAIRES Membres adhérents Membres
 actifs ou honoraires
-participants |
 | |
 |
 |
 L'Éducation o franc 50 |
 ANGERS par mois |
-s A À
-À LE
 |
-h
 | |
 |
-ll
 |
-_ à
-A * o franc 25 o franc 25 |
 L'Éducation mutuelle ANT me: |
-oi ar
-AUVERS-SUR-OISE P AL P
-(minimum)
-ÿ
-POP NAT EN TOR ER EST RES
 |
-Université populaire 0 franc 50
 Brestoise par mois ;
 Société de Lecture et Le 1
-: 0 franc 50 Û
-d'Instruction FR |
-r an « Ne:
-CAVEIRAG (Gard) P 4.
 62 -
 
-no: TABLEAUX SYNOPTIQUES
-; FINANCIERS
-j DONS À :
 | SUEVENTIONS ORGANISATION
-1 ALLOCATIONS
-È etc., etc.
 L'Éducation d'Angers est administrée
 È _par un conseil de sociétaires, se réu-
 | nissant mensuellement; le nombre
@@ -2416,7 +1612,6 @@ eo ri ge des concerts avec d'autres organisa-
 ' tions. Elle pense qu'il lui serait favorable de pouvoir diminuer le
 montant de la cotisation pour |
 attirer un plus grand nombre |
-d'adhérents.
 
  ——
 | | L'Université populaire è
@@ -2429,69 +1624,32 @@ augmenter ses res- sident. Un administrateur-délégué. à
 | sources. Jusqu'à pré- Les camarades font l'effort néces-
 | sent elles n'ont pas saire à l'équilibre du budget.
 
-réussi.
-
 Administrée par les membres fondateurs ou admis comme tels.
 La Mairie fournit le
 | local, le chauffage, | Conseil de 4 membres. L'instituteur
 l'éclairage et 20 fr. est président de droit.
 par an.
-63 À
 
 organisation financière et administrative à
-MOYENS |
-DÉSIGNATION CRE ANS © | |
-Ç COTISATIONS |
-des TP OUT MN PR 2 NON IS |
-Membres |
-UNIVERSITÉS POPULAIRES Membres adhérents Membres |
 actifs ou honoraires |
-participants |
-RARE CD A D LTD | CCE EEE | CE RECU |
 L'Éducation mutuelle | o franc 50 | |
 . Cnoïsy-Le-Ror par mois 1H
 La Fontenaisienne 0 franc 50 | o france 50 | |
 Fontenay (Vendée) par mois par mois | |
 |
-2 |
 |
-5 : o franc 50 |
-Éducation mutuelle ch 5 francs
 Le Mans g P par an
-trimestre |
 |
-pe 02 . 2 À
-Université populaire | o franc 10 5 francs .]
 LAvaAL par mois par an Ë
-w
-*
-os À mn
-Foyer d'Instruction 3 francs
 L populaire par an [E
 dit Maison du Peuple o franc 50 HA
 Lyon par mois » à
-Î
-64 é |
-Fe: |
-M
 
 ,
 
 | TABLEAUX SYNOPTIQUES
 
-‘
-
-FINANCIERS
-
 | DONS ; \
-PNEU ORGANISATION
-ALLOCATIONS
-
-etc., etc.
-
-——————_—————— | —
-Situation précaire. Composée exclusivement d'ouvriers.
-Subvention 100 francs
 
 par la Municipalité.
 Conseil de 12 membres composé de
@@ -2505,7 +1663,6 @@ L'Université populaire y a son siège,
 ce qui la dispense de frais de loyer.
 Conseil de 12 membres. 4 membres
 d'organisations ouvrières de la
-Bourse. 4 professeurs enseignant à
 l'Université populaire. 4 membres
 actifs. Les statuts assurent l'influence des ouvriers syndiqués.
 Dirigé par la Société Lyonnaise d'in-
@@ -2513,45 +1670,21 @@ Dirigé par la Société Lyonnaise d'in-
 ciers extraordinai- qui l'a fondée. Dans le Conseil de
 res. 4 membres élus, il n'entre pas de
 membres de la Maison du Peuple.
-65 IV.
 
 ee À LA RES OU FNAC CUERT ENS AE
-nr . . . 9 rs "po D SACS:
 ; organisation financière et administrative _ |
 | : MOYENS |
-DÉSIGNATION É RE, |
-; COTISATIONS | ÿ |
 des Tir mer
-Membres 4
-UNIVERSITÉS POPULAIRES Membres adhérents Membres wi] |
 actifs ou honoraires |
 | participants nu |
-Progrès Social o franc 50 | o franc 25 ‘ ;
 Les Lizas (Seine) par mois par mois
-%
-Université populaire | o franc 50 14
 ES LIMoGEs par mois 218
-Ÿ à 11
-k à : | ]
-Université populaire o franc 50 | o franc 50 3H
 MEAUx par mois par mois . Te
-É: M:
-Soirées Ouvrières o franc 50 #1 |
 MoxrreuiL-sous-Bois | par semaine is |
 66 4
-: 0
 
-PPT LT ON) i
-TABLEAUX SYNOPTIQUES |
 |
 
-FINANCIERS
-F —  " ]Ù]
-< DONS 22 # £
-SUBVENTIONS ORGANISATION
-ALLOCATIONS
-etc:, etc.
-nimes | meer emmener
 Fêtes et représenta- | Conseil de 9 membres actifs élus à
 tions. À reçu 200 fr. l'assemblée générale pour deux ans,
 de la Société des renouvelable par moitié. CommisUniversités  popu- sion de contrôle 3 membres élus.
@@ -2565,80 +1698,38 @@ nale. À reçu à titre conseil de 20 membres, à raison de
 , exceptionnel 400 fr. 4 membres par section. Assemblée
 | des Conseils Munici- semestrielle.
 pal et Général.
-À
-F. j : Conseil élu en assemblée générale
 ; Do pps pour deux ans. Renouvelable par
 D come des moitié. 33 membres choisis parmi
 ! dons ou Mar oi membres actifs. Assemblée semesmi trielle.
 Reçoivent environ | Sans statuts, ni conseil, La cotisation
 600 francs par an des n'est versée que par les membres
 300 personnes avec organisateurs (15 ou 20) responsalesquelles ils sont bles personnellement des frais gé-
-en rapports. | néraux. 6
 
-$ : o 4 PÉMUNUONEE RNA à: Mes 7 #
 organisation financière et administrative |
-MOYENS | |
-à DÉSIGNATION mn) |
-6 COTISATIONS a |
 des ET Trot |
-Membres nl |
-UNIVERSITÉS POPULAIRES Membres adhérents | Membres |}
 actifs ou honoraires |}
-participants | |
-Re — 1 -
-hi |
-Université populaire | 0h |
-SENS | . |
 
 | |
-\ di": | e
 
-È ph à 1 franc : ; [Al |
-Université Populaire 1 franc 50 Ji
-par : 8
 SAINT-QUENTIN ; par famille D
-trimestre 5%
-en
-Fraternell nul
-raternelle { ah
 des 0 franc 60 KR 11
-(troisième arrond') ) or |
 par mois “|
-Paris CR. hi | |
-(=
-mt 1 |
-\ nil
 La Solidarité o france 75 : ji: 1
-one se 0 franc 50 (LR
 (treizième arrond') 4 pour A
-mois EN |
 Paris PASSE une famille AN à |
-sh A
-68 * |
-N”. 74
 
-UE A PT er OT 0 "1 bof 27 rix k , ”
-TABLEAUX SYNOPTIQUES
 |
-FINANCIERS
 | DONS : U +
-ro ORGANISATION
-ALLOCATIONS
-etc. etc.
 |
 A manqué d'organisation au début et
 s'en ressent toujours, ce qui est
 d'autant plus regrettable que ses
-F gr .q
 , cours avaient un réel succès.
 Administrée par un Conseil de 13mems : :
-DS dolenereaition a bres. Depuis qu cie a Acoe pee
 a Conseil ses conférences, à la Bourse du
 E Travail, elle reçoit les auditeurs
 Municipal pour achat : Élèy E
 ÉTÉ gratuitement et ne prélève la cotisation que sur les membres qui la
-paient volontairement.
-EE
 Conseil d'administration de 15 memDonateurs : son tréso- bres, élus pour trois ans, renouverier, 500 francs par lable par tiers. Assemblée générale
 an; son président annuelle. Sont électeurs les mem-
 | l'aide également. bres ayant payé régulièrement leur
@@ -2646,160 +1737,54 @@ an; son président annuelle. Sont électeurs les mem-
 | :
 
 organisation financière et administrative Dhs
-MOYENS | Î
-ë » | À
-DÉSIGNATION #
-à COTISATIONS à.
-des :
-Membres D |
-UNIVERSITÉS POPULAIRES Membres adhérents Membres |
 actifs ou honoraires |
-participants ‘4
-Union populaire ÿ ù vs |
 (quatorzième arrond') de + sr |
 "Re par mois par an | |
-nl |
 |
-3 . (n
 |
-vi]
-: vi
 Foyer du Peuple 6 francs 4
-LA LD | |
-dix-septième arrond' ar an ||
-P P |
-Paris minimum |
-Den |
-% |
-} L
-! |
-4 |
-: EE. {l
-Re ||
 La Semaille : pi. |
 és Ce : 0 franc 50 0 franc 95 Dur
-(vingtième arrond') À Û au à
 te par mois | par famille 17 |
-In:
-70 à |
 
-TABLEAUX SYNOPTIQUES
-FINANCIERS
-DONS
-PP ORGANISATION
-ALLOCATIONS
-etc., etc.
-nl
 Compte 120 membres Conseil de 12 membres actifs, nomnt et énviron més en assemblée générale pour
 PP embees Hong. dix-huit mois, renouvelable par
 A ne cube tiers tous les six mois. 5 membres
 ER Holaran rares suppléants renouvelables tous les
 d'une coopérâtive et six mois. Une commission de
 50 francs de la Caisse contrôle de 3 membres, ROUES
-He Déled lée à chaque assemblée. Assemblée
-générale trimestrielle.
 De re RE RO RE SRE LE RTE À
 Les membres peuvent devenir actifs
 au bout de six mois. Conseil administratif : 9 membres actifs élus pour
 trois ans, renouvelable par tiers
 tous les ans; 5 suppléants ayant
-voix consultative. Conseil général
 composé du conseil précédent et de
 15 membres actifs, élus pour cinq
 ans, renouvelable 2 par an. Ce con-
 ; seil est chargé de la direction d'ensemble. Les groupes sportif et draFA matique sont autonomes, sous le
 contrôle du conseil, qui fixe leur
-budget.
-a"
 Conseil de 73 membres élus pour un
 an en assemblée générale. Les adhé-
 Composée d'ouvriers rents votent au bout de six mois.
 et employés. Son budget est équilibré par une
 allocation de la coopérative La Bel- “
-levilloise.
 
 | FÉDÉRATION PARISIENNE DES UNIVERSITÉS POPULAIRES 4
-Nombre d'Universités populaires adhérentes ; 4
 et Recouvrements
-RECOUVREMENTS ee,
-CPR EAN . infructueux ‘à
-= E EE 5 = Ve
-a |Z |OollS 12] a
-2H RIRE 2 ;
-4 | || El © 2 2 1e
-A à | EVE ITEUMNEeNS
-& à |slé
-a
-1902 — Septembre . .| 13 | 14 | 27 || » »/11% || nee |
-Octobre. . . .| 12 | 14 | 26 || » » |- » 1 » 01 » 0 » |
-Novembre . .| 13 | 19 | 32 || » » |: » ]Hp#| See f |
-Décembre . .| 14 | 19 | 33 || » | » | » | » | y » |
-1903 — Janvier. . . .| 16 | 20 | 36 || » | » | » || » | » | » |
-Février. : . .| 17 | 24 | 41 || » » » || 1 > » 41 L
-Mars. ....|17| 24/4), | 2| 21 1,0% |
-ANTILLES el 7 AA )02 3 5 || » » » |
-Mai, 20] 474| 24 Fu 2| 6| 8|l » | » | »
-Juin, 160282118911) 04 SATA ASIE 1 L
-Juillet 507 17164022 | 2 6.1<'8)|l >
-AOÛT 442215 + NET 1022 1 2 4 6 || » » »
-Septembre . .| 17 | 21 “| 2 | 71] 9e
-Octobre. . . .| 16 | 22 | 38 || 1 5-|. 64| »° Pme )
-Novembre . .| 16 | 21 s | 2:50" 7180 |
-Décembre . .| 16 | 20 | 36 || 2 5°}. 7 |A |
-“à
-190% — Janvier. . . .| 17 | 20 | 37 || 1 3 4 || » 1 1 |
-Février. ... .| 16.|°19:| 35.|| 2 :| V3 |) MANMOIN2 J
-; Mars . . . . .| 16 | 18 | 34 || 3 5 8 || » 2 2 ‘4
-Avril... 4/1 16 18 | 2420 Art :
-Mai, A] AGYIEIS PORTE 4 | 5|| »°| » » ÿ
 |
 
-nm Ron TOR ; 7%
-ERA T [2 L ç
-g : COMPTE DES DISPONIBILITÉS
 de la Fédération Parisienne des Universités Populaires
-Z É = En Z = <
-© D'or Ê a =
-= Z N E < Z 2
-Ê2} © = > | © <
-A À A UD
-DESRER BENUES CR MR) RANER EN LE ARS OL \
-1902 | | | “
-a 021-108 40/1 86:50 RIRES | 164 90 ce
-112......114260| 5 » > SIENS baton FA
 | | | | | s$
-1903 Ë | | | #Q
-Fan PSE ENS CI ES » te NTM DS J
-PU ss PAU LES | ». | » |38455
-LA US FRERE 46 55 | L'AES QOE PAS ES AO LE | 496 55 | |
-14 ......|4985 | 100 D DUR PORN DE A EC Cr
-Dre: c| 468 85: | » » | » | » | 468 85 |
-M6... .| 538 20 | ; PR NS, | 538 30
-A -odio0:| + » 61235 | » | / » |120685
-18... ...| 583 65 | » |58555 |. » » [1169 20 >
-19 ......|ss78s | » Rare: » | »  |81855
-1h10. .....|6065| » |26070! » | » |scs5|
-im... 68 »| » |1857| » | » |sss7o
-R HAN M0 62f 630.55: |: » | 185 70 | 47250 | » |1288 75
 | EE |
-1904 | | | | | |
 | 1... ..|c520| » |18570 | 1695 | » | d7s5|
-2. .....| 7710) slam | 56 » (1017 05 |
-k 18). ....|8650 | » |24395| » | 9405 |1214 so |
-À 14). : - [95050 | » |24395| »  |13705 |1331 50 |
-AB. N 958 80 | » | 24395 | : » 1 | 143 30 1346 05 | |
-‘ OU LT SE © ‘| » | » | » | » | » | » |
 | |
 (1) En février : don du Réveil des I*" et Il, 211 fr. 65; subvention j |
 au congrès, 100 francs. — (2) En mars: don de Voltaire, 50 francs.
 
-Ê {2
 Séance du Lundi 23 Mai
-(matin) ;
 La séance est ouverte à neuf heures.
 Après la lecture de plusieurs lettres et télégrammes
 l d'excuses, on passe à la lecture du rapport de la troisième commission par le camarade Rabaud, rapporteur. \
-RAPPORT DE LA TROISIÈME COMMISSION
 L'enseignement dans les Universités populaires (x) a
 pour but de compléter l'instruction que donnent l'école
 et les œuvres post-scolaires ; il ne doit pas seulement
@@ -2815,16 +1800,12 @@ Auvers-sur-Oise, Les Lilas, Choisy-le-Roï, Meaux, Nancy, Le Mans,
 Montreuil, la Société d'enseignement populaire de l'Hérault, la
 Fédération post-scolaire de Saint-Gilles, les Universités populaires
 parisiennes du Grand-Montrouge, des troisième, sixième, treizième, 4
-quatorzième, dix-septième, vingtième arrondissements.
 
-:7 Neal |
-; RAPPORT DE LA TROISIÈME COMMISSION
 | tous les emplois de leur activité ; il habitue à penser et
 à raisonner, à rechercher librement la justice et la
 vérité; il sert enfin à former et afliner le goût.
 | Tout en restant populaire, accessible à tous ceux qui
 n'ont fait que des études primaires, il est toujours
-scientifique, rationnel, social.
 î Conférences isolées. — Un des plus commodes
 | moyens d'enseignement est la conférence.
 C'est le seul que quelques Universités de la banlieue
@@ -2843,23 +1824,18 @@ compense pas l'inévitable danger de la confusion qui se
 produira dans les cerveaux.
 D. Or c'est de clarté qu'ils ont besoin. La plupart des
 Universités où ce défaut de logique et de suite dans l'enL seignement a été imposé par les circonstances ne de-
-î mandent qu'à s'en affranchir.
 Il a été très nettement marqué et condamné par cer-
 (G) Deherme: Une tentative d'éducation et d'organisation populaires.
 
 tri Li f 2 . CE CHE A A de:
 PASS _ séance du lundi 23 mai PVO
-y Ê
-mal . . FMI à . 4
 (No taines Universités populaires. Celle de Montrouge :
 qu s'exprime ainsi : 4
 ( On -pourrait reprocher à l'enseignement reçu dans les 4
 ne Universités populaires d'être quelque peu chaotique. Les
 conférences s'y suivent sans méthode, sans gradation à
-FACE % : « :
 er ï aucune. Telle conférence, par exemple, traitant des prin-
 # cipes élémentaires d'un sujet, viendra après telle autre,
-CLÉ à . : 2 /
 1e) commentant au contraire les conclusions, les conséquences
 ï ou les applications de ce même sujet. Telle conférence qui
 | eüt eu besoin de telle autre pour être intelligible vient
@@ -2887,17 +1863,10 @@ conviction soit prématurée, soit fondée sur des appréciations incomplètes o
 
 a que nos causeries et conférences, tout en étant variées,
 
-} puissent devenir chronologiques, coordonnées. » 4
 Il conviendra toujours de traiter en des conférences.
 
 Fu isolées certains sujets particuliers, notamment des ques-
 
-1} s (Li
-
-L.| Fr 1# s
-
-di, PAR CSSS RTS € 3 ; }
-; RAPPORT DE LA TROISIÈME COMMISSION
 tions d'intérêt actuel, mais nous pensons, nous aussi, x
 | qu'il faut, dans l'enseignement, de la cohésion.
 Cours. — Faut-il créer des cours proprement dits ?
@@ -2905,7 +1874,6 @@ Il ne semble pas que ce soit nécessaire là où fonctionnent des associations s
 technique, la Polymathique, la Polytechnique, l'Union
 | française de la jeunesse, la Société républicaine des £
 conférences populaires, le Cercle populaire d'enseignej ë
-ment laïque, etc. É
 | Il est loisible, à la vérité, d'organiser tel ou tel cours
 qui n'existe pas dans les sections de ces diverses
 ) sociétés ou qui peut être utilement doublé. 1108)
@@ -2929,14 +1897,11 @@ ressources et les nécessités locales ; mais en général l'enseignement |
 dans les Universités populaires doit compléter, plutôt que rempla- ;
 cer, les institutions scolaires ou post-scolaires. |
 
-L 77
-
 séance du lundi 23 mai è
 | A Paris, la Solidarité du FE es, après une expé- *
 NE rience de trois ans, a abandonné les leçons.
 L''U. P. Fontenaisienne a fait aussi l'épreuve que le
 développement d'un long programme rend « les salles
-désertes ».
 À Nous estimons donc que, sauf exception, le système |
 Fe de grands cours n'est pas à préconiser.
 
@@ -2951,7 +1916,6 @@ rences sur la situation des ouvriers dans différents
 pays, la législation ouvrière, la médecine et l'hygiène, %
 
 l l'astronomie, l'histoire naturelle, ia musique, la coopé-
-ration. 1
 
 Et la meilleure preuve de l'utilité de ces séries et de
 leur valeur pratique, c'est le résultat qui les a suivies :
@@ -2970,10 +1934,6 @@ accidents du travail.
 
 A la Fraternelle du troisième arrondissement, il faut !
 noter des études sur les divers systèmes socialistes et %
-
-Yi
-
-FA RAPPORT DE LA TROISIÈME COMMISSION
 
 sur l'évolution de la propriété, des leçons d'histoire,
 | de littérature sur le dix-neuvième siècle, des confé-
@@ -3022,7 +1982,6 @@ L choix des sujets; on s'assurerait dès lors de la collabo-
 
 | 79
 
-PSN NE Qu Ur ORNE EU A A MENCE SON RO OR
 séance du lundi 23 mai | ?
 ration de conférenciers qui fussent surtout des spécialistes prêts et propres à vulgariser leurs connaissances, et on prierait un d'entre eux d'exposer en une
 > | leçon préliminaire le cadre et l'ensemble de la série; ;
@@ -3039,13 +1998,11 @@ VP'Union populaire du quatorzième arrondissement, par |
 exemple, le lundi est attribué aux questions sociales et L
 contemporaines ; le mercredi, à l'histoire et à la littéra- L
 ture ; le vendredi, aux sciences, à l'hygiène, à la philo- À 1
-sophie. |
 
 C'est donc le système des séries, d'un petit nombre |
 de conférences bien choisies, coordonnées et clairement |
 
 . exposées, qui nous semble le meilleur à recommander |
-‘aux Universités populaires. |
 
 Causeries. — Avec ou sans séries, l'enseignement !
 dans les Universités populaires comporte des cause- Ml
@@ -3057,11 +2014,6 @@ populaires doit être réciproque. C'est une erreur grave et
 
 (1) L'enseignement populaire dans les départements de l'Hérault et F4
 du Gard. Montpellier 1903, page 28. ?
-
-80 |
-
-TS nés RER ÿ HE
-+ RAPPORT DE LA TROISIÈME COMMISSION ñ
 
 ; un sot orgueil de penser que seuls les intellectuels sont à
 même d'instruire, tandis que les manuels n'ont qu'à s'instruire.
@@ -3080,7 +2032,6 @@ Montpellier, invite à tenir compte des bonnes volontés à
 de tous les camarades : « On n'encourage pas assez se
 les hésitants, ceux dont l'instruction et la facilité d'élo- }
 cution laissent quelque peu à désirer, mais qui peuvent F
-avoir d'excellentes idées à développer. » (1)
 
 Celui qui juge une conférence uniquement par le talent
 
@@ -3108,12 +2059,8 @@ Il serait bon qu'il s'organisät des sortes de causeries au
 4 _ rôle... exposer ses idées personnelles sur tel ou tel sujet à
 4 qui lui serait familier, avec le pourquoi de ces idées. Peut-
 
-\ ‘
-(1) Angers. Rapport.
 (2) Montpellier, brochure citée, pages 28 et 29.
-81 ve
 
-Po D en OS OO
 Fi séance du lundi 23 mai RE ‘
 être y aurait-il beaucoup de bêtises débitées, peut-être y k
 RAC aurait-il beaucoup d'orateurs fastidieux. Mais, ne l'oublions È
@@ -3147,7 +2094,6 @@ raient être invitées à la séance et la conversation bien M l
 J dirigée et soutenue ne s'égarerait pas en propos oiseux ; b.
 il se ferait un fructueux échange d'idées et même si on L
 
-à RAPPORT DE LA TROISIÈME COMMISSION
 n'aboutissait pas à une conclusion ferme on n'aurait
 pas perdu sa soirée.
 Les causeries ne seraient pas seulement animées,
@@ -3165,7 +2111,6 @@ une analyse du reste du livre les précède, les accom-
 | pagne ou les suit; on y joint parfois une explication,
 - comme entre parenthèses, ou un commentaire plus dé- x
 | veloppé de manière à tirer de cet exercice tout l'effet
-désirable.
 Dans les petites localités où des conférences ne peu-
 | vent être organisées, les personnes qui se chargent des
 lectures publiques imiteront avec profit l'Université
@@ -3173,10 +2118,8 @@ lectures publiques imiteront avec profit l'Université
 un même sujet pour le faire connaître sous tous ses
 | aspects, par exemple sur l'hygiène et l'économie domestique. On évite ainsi l'incohérence et l'on obtient quelques-uns des avantages des conférences en séries. 4
 (1) V. Article de Sainte-Beuve, Causeries du Lundi (21 janvier 1850).
-83 + 2
 
 séance du lundi 23 mai
-% (3
 , Des programmes de lectures méthodiques devraient L
 A être préparés par la Fédération des Universités popu- 4
 laires et mis à la disposition des camarades qui en è
@@ -3194,7 +2137,6 @@ Discussions. — Après conférences, causeries ou lectures, des discussions doi
 pas le moindre moyen d'enseignement et d'éducation.
 D'heureux essais en ce sens ont eu lieu déjà dans plu- ;
 sieurs Universités populaires. Deux conférenciers, par
-exemple, exposent successivement leurs idées contra- #
 dictoires ; puis la discussion, tout en restant courtoise, {
 n'est que plus ardente. (1) Parfois les auditeurs, après la
 séance, notent par écrit leurs observations : le terrain L
@@ -3202,11 +2144,6 @@ estainsi déblayé pour la prochaine réunion. Ailleurs, (2) À
 16 un adhérent donne un bref aperçu du sujet, pose la .
 question, ensuite les débats sont ouverts.
 La tentative de Persan-Beaumont est particulièrement
-() Montpellier. Ë |
-(2) Versailles. ; 1e
-84 Ÿ
-
-. RAPPORT DE LA TROISIÈME COMMISSION
 
 originale : les membres de FUniversité populaire in- *
 
@@ -3240,13 +2177,10 @@ bien que sur les conférences. Elles développeront les
 , points de vue, feront jaillir plus de lumière et condui- |
 ront à plus de vérité. Elles seront du moins une mer-
 | veilleuse gymnastique pour l'esprit. ;
-(1) Chartier (Rouen). 4
-$ 85
 
 48 séance du lundi 23 mai TL
 Ni On y gagnera encore de devenir plus justes les uns \
 î pour les autres et plus sociables.
-Ve à 4
 nr _ L'homme, dit l'Université populaire de Montrouge, ne se
 Être -  perfectionnera moralement qu'autant qu'il aura la force Ë
 £ de traiter avec indulgence les imperfections de ses sem- ;
@@ -3263,7 +2197,6 @@ sur les mœurs publiques. 4
 doute, mais sans grossièreté, sans violence ; on laissera définitivement de côté les huées et les injures À
 pour les remplacer par des faits bien observés, par des
 arguments bien déduits. F.
-F:
 La Politique. — Ce n'est pas que l'Université popue M
 1 laire doive s'occuper de politique électorale, au cop- ;
 traire. Quand elle est ainsi sortie de sa voie, elle s'est #
@@ -3275,10 +2208,6 @@ relles de partis, pour s'instruire de la politique géné- 4
 2 rale, pour connaître les doctrines, en saisir les consé- de al
 quences, en juger la valeur, voilà ce que doivent se : 4
 proposer les membres des Universités populaires. Tous. 4
-£ es #4
-4 J
-
-RAPPORT DE LA TROISIÈME COMMISSION
 
 assurément appartiennent aux diverses fractions de la
 
@@ -3292,8 +2221,6 @@ démocratique et social.
 L Tels sont les rapports très généraux, mais impor-
 
 . tants et bienfaisants de la politique et des Universités
-
-; populaires.
 
 Enseignement professionnel. — De l'enseignement
 
@@ -3312,8 +2239,6 @@ toute sa vie à l'incertaine et précaire situation d'homme de
 
 peine parce que ses parents n'ont pas eu le moyen d'attendre, avant qu'il arrive à gagner, qu'il ait appris un
 
-: métier.
-
 |
 
 | ? Est-ce l'Université populaire qui remédiera à ce
@@ -3328,7 +2253,6 @@ Mais l'Université populaire de Montrouge propose une x
 solution à cette difficulté : 3
 
 N'y a-til pas parmi les adhérents des ouvriers travaillant à leur compte ou même des petits patrons, — je n'ose .
-k ;
 
 ne séance du lundi 23 mai 1°
 | espérer des grands, — qui puissent réunir chez eux des : |
@@ -3338,12 +2262,10 @@ Cela ne semble pas impossible à réaliser, surtout si L
 f les grands patrons s'en mêlaient; cela leur ferait
 ï honneur et tournerait à leur profit, leurs futurs |
 ouvriers devant être plus habiles dès l'entrée dans leur À
-maison. ÿ
 Ë Il est vrai qu'en DTisouEe localités l'enseignement 4 |
 professionnel a déjà une place et il dépend des muni- à
 : cipalités, de particuliers ou de groupes disposant de
 fonds suffisants de le créer là où il rendrait des ser- À
-vices.
 À Limoges par exemple, il est admirablement organisé par la Bourse du travail. Des cours de peinture, 4
 é de modelage, de coupe, de dessin y sont professés.
 Au Mans, il est donné aussi à la Bourse du travail
@@ -3361,9 +2283,7 @@ spécialisation ; le premier relève de l'Université popu- "4
 laire ; le second, de l'atelier. » A
 Cela est vrai en théorie; mais la distinction de $
 
-à RAPPORT DE LA TROISIÈME. COMMISSION
 l'homme et de l'ouvrier dans le travailleur est un peu
-factice.
 Si telle Université populaire, dans une ville dépourvue
 d'enseignement professionnel, est en mesure de faciliter
 la tâche à l'ouvrier ou au futur ouvrier, pourquoi se
@@ -3377,7 +2297,6 @@ populaire de Choisy-le-Roi, peut exister quand une
 Des cours susceptibles d'être utiles dans plusieurs
 professions, par exemple, la sténographie et la compta-
 . bilité, les langues vivantes, ont été faits dans plusieurs
-Universités populaires. :
 É Laissons donc chaque groupe étendre ou réduire son
 | champ d'activité suivant ses ressources, les désirs de ;
 | ses adhérents, et les besoins locaux. à
@@ -3390,7 +2309,6 @@ rences. A leur disposition il faudrait, plutôt que des
 E livres de critique, le texte même des grands écrivains,
 des ouvrages de science sûre, d'économie sociale,
 d'histoire, des récits de voyage, des atlas, des cartes
-géographiques. &
 Il est nécessaire encore, dit avec raison la Fraternelle du
 If, qu'un certain nombre de revues soient reçues réguliè-
 | S9
@@ -3430,14 +2348,12 @@ la question traitée. Partout les auditeurs, surtout lors- ni
 ; qu'ils ont eu quelque peine à suivre le développement És
 | 90 . 4
 
-RAPPORT DE LA TROISIÈME COMMISSION
 d'un sujet, en garderaient un souvenir plus net et plus
 durable, si, comme à Auvers-sur-Oise, le résumé des
 causeries les plus importantes était reproduit à l'autocopiste et distribué au siège social.
 Ce résumé serait rédigé par le conférencier lui-même,
 par un membre du comité ou par un adhérent de bonne
 L: volonté, et revu, en ce cas, par le conférencier.
-Telles fédérations (Universités populaires Pyré-
 r néennes, — Hérault et Gard), telles Universités popu-
 | Ÿ laires (Amiens, Lyon, Meaux, Nancy) ont en caisse
 : assez d'argent pour faire imprimer des bulletins ou des
@@ -3450,7 +2366,6 @@ Séduisante est toujours pour une société la tentation
 | d'avoir son bulletin : mais l'impression est cher, la
 à publicité insuffisante le plus souvent à couvrir les frais,
 | et les abonnés sont rares, parce qu'ils ont d'autres
-charges.
 Matériel d'enseignement. — Une des dépenses de
 première nécessité, c'est l'achat d'un matériel d'ensei-
 : gnement, cartes de géographie, tableaux noirs, surtout
@@ -3460,23 +2375,17 @@ est excellent de se procurer tout ce qui peut servir à
 l'enseignement par l'aspect; ce que les yeux voient, A
 l'esprit le saisit plus vite et le retient mieux.
 Aussi les conférences scientifiques accompagnées
-OI
 
-nt DS IE
 È séance du lundi 23 mai ‘TS
-SET "CE
 s d'expériences ne sont-elles pas seulement plus goûtées, 4
 L le profit en est plus complet, plus immédiat et plus ‘
-À durable.
 Une petite réserve de fonds à cet usage n'est-elle pas À
-à: à conseiller ? ‘4
 : L'Art et les Universités populaires. — « Le peuple a 4
 droit à la beauté », fait dire l'auteur des Mauvais ber- ;
 gers à l'un de ses personnages. Les Universités popu-
 , laires ne doivent pas négliger l'éducation artistique. 1
 Certaines d'entre elles (Coopération des idées, Union * « Mouffetard, Union populaire du quatorzième) se sont
 préoccupées d'orner leurs locaux de reproductions ;
-d'œuvres d'art, gravures, photographies, moulages. |
 En attendant qu'il ait été ouvert, comme il en a été
 question, des musées du soir où l'ouvrier puisse passer |
 : quelquefois un moment de loisir, plusieurs Universités |
@@ -3495,9 +2404,7 @@ visite tous les dimanches soit un petit musée comme la É:
 maison de Victor Hugo, soit une salle d'un grand +
 musée, soit dans ce musée une école de peinture ou de #1
 sculpture, soit les œuvres de tel ou tel artiste. Par ci
-92 en!
 
-(2 MESSE « par RAPPORT DE LA TROISIÈME COMMISSION ;
 exemple, le programme portera une fois : la sculpture &
 grecque; une autre fois, les figurines de Tanagra; les
 . vases peints; la sculpture à la Renaissance; ou encore :
@@ -3507,11 +2414,8 @@ Velasquez, des frères Le Nain, de Valentin, de Chardin,
 Ë ; d'Ingres, de Delacroix, de Géricault, etc.
 3 On ne se borne pas aux galeries publiques; on se |
 met en peine d'avoir accès dans de belles galeries pri4 vées, telles que celles de MM. de Camondo, Chéramy, à
-4 Pellerin, etc.
-Beaucoup d'artistes : Carrière, Chéret, Steinlen, ï
 Alexandre Charpentier, ont ouvert aussi leurs ateliers ;
 s à l'Art pour tous et par conséquent aux Universités 5#
-à populaires.
 | Pas une manifestation de l'art qui laisse cette société
 . indifférente : salons annuels, exposition de photogra- :
 É. phie, exposition de dentelles, exposition de l'ivoire, etc.
@@ -3529,10 +2433,7 @@ Saint-Denis, aux ateliers du maître forgeron Robert, à
 ; part des Universités populaires de Paris de profiter à
 aisément de toutes les richesses artistiques de la ville
 et de la banlieue.
-93 à
 
-QE ae Co APS LT EE SE PR PS Dan A Rd
-A a PS « Eu Hit Fat BUS a hr FINE "S
 pa séance du lundi 23 mai 3, € F0
 On a même organisé des excursions et des voyages 4
 en lointain pays. Si les membres de telle Université |
@@ -3541,10 +2442,8 @@ sième, l'Union du quatorzième, sont allés par groupe à ù
 Bellevue, à Saint-Germain, à Versailles, l'Art pour tous ê
 et la Fédération des Universités populaires ont poussé ‘2
 jusqu'à Dieppe, à Rouen, à Bruxelles : on se propose :
-d'aller à Londres en juillet. |
 Ces récréations esthétiques ou ces promenades in- I
 structives complètent fort heureusement les leçons ou . 1
-conférences. |
 A chaque Université populaire, si elle le veut et le |
 peut, d'organiser telle visite particulière qui s'ajuste |
 mieux à son enseignement ; exemple : à la suite d'une |
@@ -3554,7 +2453,6 @@ Dans les départements, ces moyens d'action ont été |
 employés avec succès à Montpellier, à Nimes, à 4
 Caveirac (promenades à Arles, au Pont-du-Gard, à hi
 - Aigues-Mortes). Ils sont à recommander et à généra- |
-liser. ,
 Partout on peut rendre ces courses fructueuses : chacun ï
 doit y parler, s'informer, interroger, expliquer ce qu'il sait, ‘Al
 et bien souvent les intellectuels sont les premiers à retirer E \
@@ -3564,9 +2462,6 @@ nouent entre les camarades pour le plus grand bien de tous. À
 Il est rare qu'on en revienne les uns et les autres sans se je)
 , rendre compte qu'on avait mal apprécié ou superficielle- sl
 (1) Ainsi a fait l'Université populaire de Choisy-le-Roi.
-
-11/60 pe ER « ‘ + j X
-RAPPORT DE LA TROISIÈME COMMISSION
 
 4 ment jugé tel ou tel, et sans se féliciter de le mieux
 | connaître. Dans certaines villes il est possible de visiter en
@@ -3595,24 +2490,16 @@ M Si l'on peut, comme on l'a fait à Montpellier, trouver un
 
 * hebdomadaires tout au moins ces réunions si heureuses, on
 
-$ n'aura garde d'y manquer.
-
-v
-
 É Quand on est curieux d'aller au loin, puissent les
 
 compagnies de transports en commun accorder à ces
 compagnies laïques d'ouvriers autant de faveur qu'aux
-
-pèlerinages !
 
 4 Il n'est pas de région où les bonnes volontés ne puis-
 
 k sent trouver matière à l'éducation esthétique.
 
 4 Il faut signaler tout spécialement l'institution des
-
-hs !
 
 6 Musées cantonaux, dont le fondateur est M. Edmond
 Groult, d'Ouilly-le-Vicomte, près Lisieux. 4
@@ -3649,18 +2536,14 @@ Dans plusieurs Universités populaires ont été faits
 régulièrement des cours de solfège.
 Dans d'autres, on a fondé une chorale.
 1 Dans les mêmes ou dans d'autres, il y a des cours de
-si diction.
 | Il appartient aussi à chaque Université populaire
 À d'instituer, suivant le vœu d'une d'elles, « des fêtes
 ide éducatives mensuelles »;: on y ferait entendre les chefsd'œuvre des génies dramatiques ou des grands maîtres
 ‘4 de la musique. l
 f Cette tentative a très bien réussi déjà dans quelques
 | arrondissements : au troisième, au treizième, au qua- |
-torzième en particulier, à Villeneuve-Saint-Georges, etc.
 () M. Groult a fait tenir au Congrès des Universités populaires
 une très intéressante communication sur ce sujet. À
-ñ 96
-PUR ? NF:
 
 (te RAPPORT DE LA TROISIÈME COMMISSION
 
@@ -3672,7 +2555,6 @@ DAT bien placée, un commentaire sobre et clair, et surtout
 | le caractère de l'œuvre présentée au public, donnent à
 ces exercices qui plaisent entre tous et qui sont à
 encourager et multiplier, un véritable caractère d'en-
-' seignement. ;
 Personnel enseignant. — Des instituteurs, des professeurs républicains de l'enseignement secondaire ou p
 supérieur, des élèves de l'École Normale supérieure à
 Paris, des professeurs d'École normale dans les départements, des secrétaires ou des membres des syndicats, des militants ouvriers, des industriels et des
@@ -3691,8 +2573,6 @@ quatorzième, puisse presque, par sa composition, se
 Fa Les secrétaires, et ce n'est pas leur moindre besogne,
 À doivent chercher des collaborateurs au dehors et de « f bien des côtés.
 È Por simplifier ce recrutement et rendre plus métho- Ë
-97 UE
-à VI j
 
 JS séance du lundi 23 mai 1
 
@@ -3737,8 +2617,6 @@ Les collaborations étant bénévoles, les conférenciers
 n'en doivent être que plus consciencieux, soit pour
 tenir leurs promesses et être exacts aux rendé-vous :
 
-ME 0 CNRS
-É RAPPORT DE LA TROISIÈME COMMISSION /
 pris, soit pour ne traiter que des sujets qu'ils con-
 
 naissent bien ou qu'ils ont préparés avec soin :
@@ -3755,7 +2633,6 @@ pas les laisser inactives; il importe de montrer que
 | beaucoup de gens sont attachés à notre œuvre ; mais
 gardons-nous d'un écueil très joliment signalé par
 1 l'Université populaire de Montpellier, que j'ai plaisir
-à citer :
 | Les organisateurs doivent mettre de côté leur désir si
 naturel de politesse et ne pas faire parler (quitte à lui
 1 déplaire) un orateur qui risque de faire le vide dans la
@@ -3764,15 +2641,12 @@ salle. N'épargnez pas à votre public les sujets sévères et
 | épargnez-lui la conférence eénnuyeuse, car il ne l'a pas
 | méritée. (1)
 À La collaboration des ouvriers eux-mêmes, pour les
-L . . #
 ( questions techniques, pour les sujets concernant leur
 + métier, leur corporation, leur syndicat, leurs grou-
 | pements particuliers, les conseils des prud'hommes
 ' serait des plus précieuses. Certains ne l'ont pas marchandée et les séances où on les a entendus ont été :
 ; souvent les plus intéressantes par le mouvement d'idées
-(x) Page 25. ;
 
-ASC i GR 6 ge US REPARTI
 BA 14 ï séance du lundi 23 mai A UNE +0
 k 44 qui s'y est produit. Les camarades entrent plus volontiers \
 Ne #7 en propos, la discussion est plus animée, plus féconde, |
@@ -3782,7 +2656,6 @@ Fr d'un tour plus pratique.
 A Il y a toujours plus de chaleur communicative, quand :
 Ne: ceux qui parlent et ceux qui écoutent ne sont pas des :
 étrangers les uns pour les autres.
-Lu $ 4
 F Il serait excellent, note la Fraternelle du troisième, que |
 4 chaque Université populaire eût à sa disposition un certain
 \ nombre de conférenciers attitrés ; la fréquence des rencontres CM
@@ -3805,33 +2678,20 @@ PAU concours ne nous fit jamais défaut depuis notre fondation ; -4
 é le public leur fut constamment fidèle. Ceux-là ont mérité le 4 |
 titre de camarades et nous savons bien ne pouvoir leur |
 à faire de plus grand plaisir que de leur décerner ici ce 4
-k vocable.
 ce L'Université populaire du quatorzième, d'autres 4
 encore, pourraient avancer des faits analogues et D:
 s'associer à ces paroles comme à ces sentiments. De
-©
 
-Fr SS |. L TANT 4 4 2
-Ru RAPPORT DE LA TROISIÈME COMMISSION G 4
 \ C'est ainsi qu'est réalisée dans l'Université populaire ri
-É . À Q 4
 Ë la suppression des classes. ra
 | le
 _ * Conclusion. — Enrésumé, voilà comment nos œuvres, #q
 
 par leurs formes si variées d'enseignement, par le mou- ; %
 vement qu'elles suscitent et entretiennent dans les are
-. A + sp
 - esprits, par la fraternité qui unit leurs adhérents, tra- + HER
 vaillent chaque jour avec une virile sagesse et un Us
 intelligent civisme à la révolution sociale. , Ge
-ALTS
-ef
-5 Le rapporteur, #4
-! Gasrox RABAUD *
-% Le 104
-6 |. F0
-ë DISCUSSION L a à
 ‘ Un camarade soulève une discussion sur le droit de %
 | réponse dans les Universités populaires et notamment sur 1
 _ le cas particulier d'un prêtre qui n'a pu répondre à une à i
@@ -3841,26 +2701,20 @@ conférence de M. Maurice Vernes. Le congrès ne peut s'oc- QE
 É Un camarade appelle l'attention des Universités popu- | #12
 F laires sur l'organisation des « Journaux pour tous ». 2
 à Marseille fait une communication sur la Société 4
-À Lakanal. £ AT
-r #
 4 Montpellier rend compte de visites faites dans une 8
 $ grande imprimerie pendant le tirage d'un journal, d'une Des
 _ autre visite faite dans les coulisses d'un théâtre pendant k NM
 ï la représentation d'une féerie. LE pe
 a Brioude dit que le ministère de l'instruction publique, à 14
 d qui on avait demandé des livres, a envoyé des ouvrages î
-ke I0I VE. 5 4
-ee. AT en :
 
 RAA OMAN sas PPS ARRET SEA tue on DSC AATE NE CEE x
-\ eu sp ROSE
 I séance du lundi 23 mai PARA CO
 U cléricaux; puis, ensuite, sur réclamation, a envoyé des 1
 Ja romans d'une littérature inférieure. à ; 1
 ! eu Un camarade dit qu'il serait désirable que les Universités 4
 mi populaires soient sur le même pied que les bibliothèques u.
 À A municipales etla Ligue de l'Enseignement. s.
-4 “ fl
 ge Une camarade pense, au sujet des conférences, que celles :
 à À ; qui traitent de sujets scientifiques doivent être des confé-
 LR rences séries, tandis que celles sur la morale de la vie pra- 14
@@ -3875,10 +2729,7 @@ fu Les instituteurs, dans les campagnes, donnent peu. ‘à
 Bourges a fait des conférences dans vingt-sept communes |
 fi importantes, a créé trois sections rurales, s'est associé aux
 groupes post-scolaires et a créé des cours d'adultes où trois
-à cent cinquante-sept soldats, dont cent soixante illettrés, —
 AE des Bretons, — sont venus, avec l'autorisation des autorités
-4 militaires.
-K
 Rouen est d'avis qu'on n'applaudisse ni ne murmure pen- M
 N dant les discussions : cela excite les conférenciers à recher- 4
 4 : cher les succès oratoires; il est d'avis qu'il faut que les 1
@@ -3891,15 +2742,10 @@ rt le village se réunit les mardi soirs pour écouter une confé- M
 DE rence, un chœur chanté par les élèves de l'école, échanger À
 ( ue les livres en lecture, et décider les achats à faire. C'estun M
 ni milieu protestant. À
-f | LH ton 1
-(a - 100
 
-“) RAPPORT DE LA QUATRIÈME COMMISSION (ee
-èe f
 | On procède ensuite à la lecture du rapport de la qua- f: À
 | trième commission par le camarade Georges Baër, rap- al
 | porteur. à
-RAPPORT DE LA QUATRIÈME COMMISSION
 Les organisateurs du premier congrès des Universités "
 populaires ont chargé votre quatrième section d'exa- Ÿ
 
@@ -3916,7 +2762,6 @@ Nous commencerons par elles. |
 Nous examinerons ensuite ce qui est relatif aux fêtes É s
 
 et aux distractions. +
-CONSULTATIONS S
 
 Si l'Université populaire est un centre d'instruction et 1
 d'éducation mutuelles, elle doit être en même temps Me
@@ -3927,17 +2772,10 @@ Or, dans toute Université populaire se rencontrent À
 des compétences d'ordres très divers,pouvant bénéficier, 4
 
 suivant les instants et les circonstances, à tous les 4
-adhérents. É
 Chacun de nous peut avoir besoin par exemple de Fa
 
 3 l'avis technique d'un professionnel de tel métier qu'il à de
-ignore. *:
 
-103 %
-
-+ 5% (36
-
-DONC ONE AUS A RAS Va Ai SR EE AOMPRERN HAN
 M UN ON 1 > An ANTON AE NT ARS CSN put ! jf Ta d:
 le nr séance du lundi 23 mai TN Aro
 4 Nous souhaiterions que dans chacune de nos associa- 4
@@ -3952,13 +2790,11 @@ Al — et même nous serions heureux si, au siège de la |
 è les compétences désirées, ferait en sorte de les leur ‘
 Is découvrir chez des voisins plus favorisés. Ce n'est là LS
 1 qu'un vœu, il sera loisible au congrès de le rejeter ou ;
-d'y applaudir. |
 Parmi les renseignements qui peuvent être recherchés 8
 à dans nos associations, il en est que beaucoup ne sau- 4
 | raient assurer à leurs membres. Combien d'Universités 1
 populaires où il n'y a ni médecin ni avocat qui puisse 1
 donner un conseil d'hygiène ou une consultation de L
-droit!
 A la vérité, le besoin d''instituer dans toutes nos
 ‘4 sociétés une consultation médicale ne se fait pas sentir
 1 d'une manière impérative. Il n'est guère de ville qui L
@@ -3972,7 +2808,6 @@ D'autre part, l'examen d'un malade n'étant point très 4
 À pour tous nos camarades, en quelque circonstance que É
 pr ce soit. Il ne nous a point paru convenable d'y songer, 1
 h d'autant que, s'il ne s'agit que d'un avis, — et il ne peut À "
-; 104 4 Ai
 
 sue rt nat di il ne M SAME LE ES VTT pic fa DE 4
 pe RAPPORT DE LA QUATRIÈME COMMISSION Var
@@ -4003,17 +2838,12 @@ encore une demi-journée à attendre son tour. L'heure 1
 _ sage de leur profession, — un conseil imparfait, l'avocat
 ayant le devoir d'écouter mais n'ayant pas le droit
 _  d'examiner les documents qui sont l'occasion d'une 1
-difficulté. #
 De telle sorte que le solliciteur aura laissé son travail QUE
 et perdu son temps, pour obtenir un avis incomplet et ? 1$
 peut-être inexact. ni
 Aussi l'ouvrier, l'employé, le petit commerçant, ou- : :
-105 À
-Hors,
 
-M tp + \ "4
 1 | séance du lundi 23 mai 1
-ÿ {
 | blient-ils bien vite le chemin du Palais. Ils courent au
 de « contentieux » du coin, chez un individu qui se dit D
 Hi jurisconsulte et qui n'a parfois appris le droit que dans 1
@@ -4022,7 +2852,6 @@ Go l'ont entraîné pour son compte personnel. Ils lui versent |
 4 deux ou cinq francs pour une consultation qui ne les {
 72 vaut pas, et qui souvent leur coûte infiniment plus, une À
 signature donnée à la légère, une procédure mal introduite, conduisant facilement à la ruine un plaideur mal :
-éclairé.
 Des consultations sérieuses s'imposaient donc et la |
 Fédération des Universités populaires de la Seine s'est |
 | préoccupée d'en instituer. 1
@@ -4034,7 +2863,6 @@ chez eux, les explications des intéressés nécessitant k
 | d''Université populaire largement ouvert à tous; enfin |
 | et surtout, parce que le consulté n'y a pas à sa
 disposition les textes de lois et les décisions de jurisprudence, innombrables, que peut nécessiter un avis À
-consciencieux. <
 La Fédération a donc informé en janvier dernier les 4
 ; Universités populaires de son ressort qu'à des heures à
 choisies en considération du travail même de nos L
@@ -4044,11 +2872,7 @@ ER que même ils répondraient par lettre à toute demande 1
 k ‘ de consultation qui leur serait adressée par la poste. À
 Il faut le reconnaître, ce service de consultations n'a
 point donné encore tous les résultats qu'on en espérait. h:
-ÿ 106 [ À
-à
 
-; % Lau it ANR ke # ? Es | A : LUE
-; RAPPORT DE LA QUATRIÈME COMMISSION o
 C'est tout au plus si chaque consulté a reçu deux ou *x
 trois demandes de renseignements, par mois, — en Ÿ
 : dehors des avis que les Universités populaires elles- “
@@ -4071,15 +2895,12 @@ F et solutionne toutes les difficultés de droit qui pour- (
 raient intéresser les Universités populaires en tant que :
 sociétés, notamment au point de vue des statuts, des e
 cotisations, des rapports entre associations et sociétés |
-d'auteurs, etc.
 3° que le service de consultations juridiques, tel qu'il
 fonctionne à Paris, soit désormais un service de la
 Fédération auquel nos camarades de province qui
 n'auraient point une organisation locale de cette nature,
 pourront adresser leurs demandes de conseils dans les .
 conditions mêmes que nous avons rapportées précé-
-demment. |
-É 107
 |
 .
 
@@ -4097,7 +2918,6 @@ Pl esthétique en même temps qu'un instrument de lutte
 A Seule, la Fraternelle, du troisième arrondissement de
 ER Paris, a émis une opinion diamétralement opposée, que ;
 qu limpartialité de notre travail nous fait un devoir de 4
-! "1 rapporter. s À
 us Dans les Universités populaires, dit-elle, les délasse- 4
 \ ments artistiques sont trop imparfaits et, comme
 ; moyens d'éducation, avantageusement remplacés par
@@ -4107,16 +2927,13 @@ f qui y assistent ne vont pas aux conférences. En vain
 ‘k les multiplie-t-on : avec leur développement semble
 | coïncider ce que l'on a appelé la « crise des Universités W
 {| À populaires ». Au surplus, cette façon de faire des …
-f adeptes a quelque chose d'humiliant : 1
 Hat Attirer les gens sous prétexte de distraction pour leur
 faire de la morale et leur représenter entre deux couplets }
 que, si on les assemble ainsi, c'est pour tàcher de les ame- ;
 f ner, par un chemin détourné, à s'associer à l'œuvre pour.
 pa suivie, apparaît plutôt comme un subterfuge amoindrissant. j
 Les individus susceptibles de fréquenter les Universités l|
-108 |
 
-RAPPORT DE LA QUATRIÈME COMMISSION
 populaires n'attendent pas les effets d'une pareille réclame
 pour s'y rendre, et c'est avoir une bien mauvaise opinion
 .d'eux que de recourir à pareil procédé.
@@ -4125,11 +2942,9 @@ est inutile ; qu'il n'y a pas d'associations aussi favori- |
 sées au point de vue publicité que les Universités popu-
 .  laires et que, si l'on n'y va point, ce n'est pas par igno-
 À rance, mais par apathie. Seule une attitude hautaine et
-sévère convient aux Universités populaires :
 . Nous ne devons pas dire que l'on s'occupe d'y passer le
 temps agréablement, qu'on y chante et même que quelquefois on y danse. Nous devons proclamer fièrement que si ï
 nous nous réunissons ainsi, c'est pour travailler, étudier, Ses
-discuter. HS
 Telle est la thèse. Ÿ
 Nous estimons, — et le congrès nous dira si c'est à 4
 tort, — que toutes ces raisons ne sont pas solides.
@@ -4151,7 +2966,6 @@ gratuites, comme trop rarement il en est donné aux
 | 109 é
 | VII
 
-at A D
 A séance du lundi 23 mai |
 4 Français, à l'Opéra ou à l'Opéra-Comique, par rapport
 EF. aux modestes spectacles qu'une Université populaire
@@ -4172,7 +2986,6 @@ crise des Universités populaires aient ou n'aient pas |
 concordé avec la multiplicité des représentations, il
 nous paraît puéril de le rechercher et nous ne voyons
 pas aisément le lien qui peut rattacher deux ordres de
-questions si différents.
 Qu'y a-t-il d'humiliant, d'amoindrissant, à attirer par
 des distractions des adeptes qui, à l'heure présente,
 nous ignorent ou se méprennent sur ce que nous, 4
@@ -4186,7 +2999,6 @@ estimons, quant à nous, que la fin poursuivie justifie les
 
 PNR te PLIS CE U PU DR RER AT en Te EE
 
-RAPPORT DE LA QUATRIÈME COMMISSION
 moyens que nous employons, qu'il faut y persister sans
 hésitation. Cela n'implique aucune mauvaise opinion de
 ceux que nous voulons voir venir à nous, mais nous
@@ -4204,7 +3016,6 @@ on les ignore, où, en tous cas, on ne sait ce qu'elles sont;
 où la maison de réunion de nos camarades est, par
 ignorance, considérée comme un repaire d'anarchistes )
 violents, qui veulent la destruction de toute société
-civilisée. |
 Le jour où chaque Université populaire pourra, une
 fois par mois, lancer des invitations, ceux qui lui rendront visite se rendront compte, reviendront peut-être
 pour les soirées seulement, non pour les conférences ;
@@ -4215,10 +3026,7 @@ Insensiblement, nos nouveaux camarades s'intéresseront à notre œuvre ; ils di
 exprimées dans les spectacles donnés, puis celles des 2
 conférences qui les accompagnent et peu à peu, luttant
 contre leur apathie, dominant la fatigue résultant de ;
-III
-1 :
 
-A NU OR D OO CE
 k séance du lundi 253 mai | 1
 , leur travail de la journée, ils apporteront leur contribu- É
 | tion d'idées à la discussion contradictoire des cause- ï
@@ -4250,11 +3058,7 @@ Mais tout cela est peut-être bien complexe et la Fédé-
 ration de la Seine a estimé qu'une situation nette était
 encore préférable ; à l'heure présente son avocat con- À
 seil, qui a l'honneur d'être en même temps le rapporteur #
-112 al
 
-ig:)
-
-Ë 3 RAPPORT DE LA QUATRIÈME COMMISSION
 ' qui présente ce travail, est en pourparlers avec les
 sociétés des auteurs dramatiques et des auteurs compositeurs et éditeurs de musique et il peut affirmer au
 congrès que d'ici peu une solution favorable aux Universités populaires interviendra. Il n'en peut guère être
@@ -4315,12 +3119,8 @@ teurs, un théâtre, dont un camarade, à ses moments de |
 loisir, a brossé les décors, et où, une fois tous les deux L;
 mois, elle donne des représentations pleines d'entrain. 4
 Que nos amis persistent donc; qu'ils s'organisent : 1
-114 À
-mi
 #1
 
-nd Lu PT RIT
-RAPPORT DE LA QUATRIÈME COMMISSION
 \ avec beaucoup de bonne volonté et un peu d'indul-
 | gence réciproque, ils arriveront au but. Nous ne pensons pas qu'ils doivent, en général, — encore qu'ils en À
 | aient formulé le vœu, — compter, quant à présent, sur
@@ -4350,11 +3150,8 @@ et prêtes à s'aider les unes les autres, son rôle serait
 justifié. L'exemple donné le 10 avril au lac Saint- à
 Fargeau par trois Universités populaires de la région
 parisienne, — l'Université populaire Zola, la Semaille,
-115 |
 
-MAO PA 0e à VERRA CO PE) NS MS SERRES
 séance du lundi 23 mai ÿ
-à
 et le Progrès Social des Lilas, — n'est pas seulement 1
 à retenir; il est à imiter. :
 Un tel accord sera fertile en résultats lorsque, réunies
@@ -4363,7 +3160,6 @@ grand événement et d'un grand penseur, plusieurs Universités populaires voudr
 Et c'est ici le moment de signaler un vœu qui nous à :
 été transmis par le Foyer du Peuple du dix-septième
 arrondissement. Nos camarades ne se contentent pas |
-seulement d'applaudir au succès d'Universités popu- |
 laires qui, comme celles du Mans, ont fêté les cente- |
 naires d'Hugo et d'Edgar Quinet. Ils voudraient que le |
 congrès prit l'initiative, en désignant une commission
@@ -4379,13 +3175,11 @@ par lesquelles nous affirmerons notre élan vers le vrai,
 le beau, le bien. » Votre Commission, favorable en
 principe à l'adoption de cette motion, est d'avis de la
 renvoyer à l'examen de la deuxième commission du
-Congrès. ;
 Résumant cette partie de notre exposé, nous proposerons au congrès, comme conclusions : |
 1° d'affirmer la nécessité des fêtes et des soirées dans |
 un but d'éducation et de propagande;
 2° de créer un service, commun à toutes les Univer- 1
 
-gl
 | k RAPPORT DE LA QUATRIÈME COMMISSION
 sités populaires, chargé de s'occuper de tout ce qui peut
 intéresser les représentations que nous prétendons
@@ -4415,11 +3209,6 @@ Le succès de nos efforts à ces divers points de vue
 sera facilité par les cours de musique, de chant et de
 déclamation qui existent dans presque toutes les Universités populaires, et dont nous n'avons ici qu'à con- ;
 stater l'existence en leur souhaitant le plus de prospérité "552
-possible.
-re 117 VII.
-F3
-
-é LA: K
 
 Fe) séance du lundi 23 mai
 , Ces cours spéciaux, comme toutes ces distractions, 4
@@ -4439,7 +3228,6 @@ leurs associations comme l'Université populaire du
 
 dixième, mais aussi à des réunions qui sont, en même À
 temps qu'une distraction, une occasion et un moyen de À
-s'instruire. 1
 De Saint-Quentin, ils organisent une promenade à À
 Pierrefonds et à Chantilly où ils rencontrent leurs 4
 camarades du Foyer du Peuple parisien, retour de À
@@ -4455,7 +3243,6 @@ d'Angers organisent des promenades à travers champs |
 et bois, demandant à la nature même des leçons d'his- "4
 toire naturelle. Ceux de Bruxelles reçoivent sur le 4
 champ de bataille de Waterloo les enseignements du |
-passé. 4
 Constatons tous ces résultats; efforçons-nous de nous *|
 118 4
 
@@ -4492,26 +3279,20 @@ un regret à exprimer, ce serait qu'elles aient été parfois
 trop brèves. Sur d'innombrables questions nous avons
 cherché en vain le résultat de leur expérience. Ceci î
 excusera l'imperfection de l'œuvre que nous vous pré-
-sentons.
-
-119 |
 
 NE) séance du lundi 23 mai (FA ARNE Te
 A De même s'expliquera notre silence sur « les cercles 4
 bou de lecture » qu'aux termes mêmes des conditions de N
-{ « 3 . # . 2 Fa . D:
 pi ce congrès, notre commission était chargée d'étudier. |
 jt — Il ne nous en a été rien dit. fi
 AA Aussi à défaut de base de discussion votre commis- 4
 sion s'est-elle contentée de vous présenter les vœux de ‘4
 # plusieurs de ses membres, tendant : 1
 |
-4 d
 .1° à ce que toute Université populaire s'efforce d'ob- Le
 tenir de chaque ministère pour sa bibliothèque les |
 publications officielles de la nature de celles qui sont - M
 publiées par l'Office du travail ou le ministère des 1
-finances ; 10
 
 2 à ce qu'il soit créé à la Fédération un service
 
@@ -4524,8 +3305,6 @@ ouvrages que le ministère de l'instruction publique met K
 assure l''échange régulier de livres entre les diverses hi
 | bibliothèques d'Universités populaires. |
 Le rapporteur, Ne
-GEORGES BAËR #
-DISCUSSION
 
 Sur la première partie : consultations médicales et juri-
 
@@ -4534,9 +3313,7 @@ diques, l'Université populaire du Mans indique qu'elle a À
 organisé des consultations juridiques gratuites, données ;
 par un premier clerc de notaire et un avocat; ces consulta- ‘hi
 tions fonctionnent très bien. 3% |
-120 F A
 
-RAPPORT DE LA QUATRIÈME COMMISSION 1
 L'Université populaire de Lyon a de même organisé des
 consultations, mais à deux degrés : la cause est d'abord
 examinée par un comité spécial qui déblaie le terrain et
@@ -4559,7 +3336,6 @@ De nombreux camarades protestent, affirmant que les
 fêtes ont produit d'excellents résultats dans de nom- F
 breuses Universités populaires et l'un d'eux fait observer À
 qu'il a assisté, à La Fraternelle même, à des fêtes très bien ps
-réussies. |
 Il est midi. Le Congrès suspend ses travaux et un
 grand nombre de camarades se dirigent vers le restaurant, où un banquet simple et substantiel a été préparé.
 Sous l'amicale présidence de Gabriel Séailles, 65 con__ vives causent joyeusement et échangent leurs impressions
@@ -4571,15 +3347,10 @@ frais et si populaire de la Carmagnole que tous reprennent au refrain.
 { TANT à du is do 1 sta ET à CE Can CAN ï RRAN RES ÿ EN
 A RAR AE de "ANRT EN TN RES
 y Séance du Lundi 23 Mai Sur
-pm 4
-(a (après-midi) a
 j La séance est ouverte à deux heures et demie. 4
 | On reprend la discussion du matin sur l'utilité ou 4
 l'inutilité des fêtes et représentations théâtrales. f 10
-“ 1
-DISCUSSION ‘4
 | suite n
-n
 ; Rouen dit qu'il n'y a qu'un moyen de faire comprendre ‘4 |
 -la musique : c'est d'enseigner le chant choral. D |
 Maurice Bouchor développe par quel choix méthodique |
@@ -4598,16 +3369,11 @@ tations de pièces organisées avec des moyens insuflisants. e |
 fl former l'oreille et le goût. El. ||
 122 14
 
-$ RAPPORT DE LA CINQUIÈME COMMISSION
-
 On passe ensuite à la lecture du rapport de la
-cinquième commission.
 
 Le rapport, qui a été fait par madame Wathier,
 rapporteur de la première commission, est lu par le
-camarade Kastor.
 
-RAPPORT DE LA CINQUIÈME COMMISSION
 La cinquième commission a reçu communication de
 dix-neuf rapports, — quatorze de banlieue et province
 et cinq d'Universités populaires parisiennes. j
@@ -4618,9 +3384,7 @@ d'entretenir entre elles des rapports aussi fréquents que
 possible; elles reconnaissent la puissance d'action des
 groupements et loin de repousser la formation de Fédé-
 
-rations, quelques-unes concluent logiquement à créer, j
 après la Fédération Nationale, une Fédération Internationale des Universités populaires ou organisations
-similaires.
 
 Quant à celles qui n'ont pas de rapports avec leurs
 voisines, c'est que, comme Auvers-sur-Oise, elles
@@ -4634,15 +3398,11 @@ Deux-Sèvres qui vient de se fonder. :
 Le Mans, favorable au principe d'une Fédération
 Nationale, croit que l'organisation des fédérations
 
-123 ï
-
 séance du lundi 23 mai RS
 régionales doit précéder la création de l'organisme En
-central. 4 |
 Nous répondons : faut-il donc attendre que toutes k
 “Me les régions soient pourvues d'un assez grand nombre A
 | d'Universités populaires organisées en fédérations 1
-régionales ? 4 |
 ; N'est-il pas vrai plutôt que les Universités populaires 4
 : isolées tireraient de grands avantages de leurs rapports h.
 avec la Fédération Nationale qui pourrait, par des f
@@ -4655,7 +3415,6 @@ condition qu'elle ne diminue en rien l'eflort que chaque 4
 libre-penseur doit faire dans sa localité. 4
 La Fraternelle du troisième arrondissement, Paris, 4
 seule, rejette la création d'une fédération nationale. A
-Voici en quels termes : à
 Les rapports des Universités populaires entre elles sont
 peu étendus ; on peut même dire qu'en dehors de la Fédéra- x]
 tion, lien purement administratif, elles n'en ont vraiment n'
@@ -4671,7 +3430,6 @@ Paris, où les Universités populaires ont pourtant infiniment nn
 Fédération Nationale n'apparaît pas du reste comme une D
 nécessité; rien n'en fait sentir le besoin et rien n'en * ‘à
 demande la formation. A notre avis, cette nouvelle institu- e.
-OT |
 
 re rt À Pat L ; LE
 | RAPPORT DE LA CINQUIÈME COMMISSION
@@ -4712,13 +3470,11 @@ RE séance du lundi 23 mai ARE
 té sommes d'accord avec la majorité et nous citons, à “1
 ra . l'appui, un extrait du rapport de l'Effort de Montrouge, |
 reflétant fort bien les avis épars dans les autres rap- .
-" ports : D:
 Fe L'œuvre des Fédérations doit être une œuvre d'adju- {
 vance, comme on disait autrefois, et non une œuvre de 0
 direction. Si les Universités populaires se pénètrent bien "1
 Dh de ce principe, elles estimeront qu'il importe en effet que ER
 ; des fédérations départementales et régionales soient fon- 04
-î dées. 4
 Paris et sa banlieue ont leur Fédération; nous ignorons 1
 s'il en existe en province, mais nous serions fort étonnés 4
 ‘ si, dans un bref délai, il ne s'en fondait pas. L'esprit de À
@@ -4728,7 +3484,6 @@ développe l'Université populaire, tend de plus en plus à 4)
 ment le besoin de fédérer les Universités populaires voisines. <
 Outre la raison de sentiment, la raison d'intérêt impose à
 cette tactique. Les fédérations, soit départementales, soit ‘4
-régionales, peuvent rendre d'importants services aux Uni- . 0
 versités populaires. C'est ainsi qu'elles devraient servir de à |
 lien entre les Universités populaires pour leur facilite M |
 nombre de tâches, leur éviter nombre de frais. N'est-ce pas à 4 {|
@@ -4745,12 +3500,7 @@ Elles devraient s'efforcer de réaliser les mêmes avan- 4
 tages, pour ce qui concerne le matériel des cours, séances ‘4
 k récréatives, lanternes à projections, matériel pour séances 4
 dramatiques. Ne |
-126 ne. |
-d ne |!
-nn |
 
-PART ET %
-RAPPORT DE LA CINQUIÈME COMMISSION
 Elles devraient en outre prendre l'initiative d'organiser |
 des fêtes dont les bénéfices pourraient être répartis entre d
 les Universités populaires adhérentes.Disposant de moyens |
@@ -4765,7 +3515,6 @@ populaires. Quant à l'organisation d'une Fédération natio- Ÿ
 nale, nous la croyons utile pour achever de relier entre
 elles les diverses Universités populaires et Fédérations « : d''Universités populaires de France; après elle, peut-être y ;
 aura-t-il lieu d'examiner l'organisation d'une Fédération ff
-internationale. 4
 
 : Le rapporteur ajoute que, dès le début, il serait
 important de créer à la Fédération nationale une {
@@ -4777,20 +3526,13 @@ calculées en vertu du principe de « chacun selon ses d
 forces », et d'après le nombre d'adhérents.
 La commission, unanime sur l'utilité des groupe- À
 ments fédératifs, a résumé à grands traits les avantages qu'ils peuvent offrir :
-1° RAPPORTS ENTRE UNIVERSITÉS POPULAIRES VOISINES
-FÉDÉRÉES OU NON
 Visites de l'une à l'autre, de localité à localité. —
 Voyages, excursions en commun. — Groupement de plu- .
 sieurs Universités populaires pour les grandes confé-
 rences, telles que celles du docteur Poirrier sur la télé-
-127 ;
 
 FA séance du lundi 23 mai + i
 ds graphie sans fil, qui nécessite un matériel d'expéri- : \
-NEA mentation. ÿ+ 120
-2° RÔLE DES FÉDÉRATIONS DÉPARTEMENTALES D.
-AE ET RÉGIONALES 4
-) ‘1
 di Groupement et répartition des conférences. — Entente 4
 f avec les conférenciers. — Matériel roulant pour projec- D:
 tions. — Collections de vues. — Bibliothèque circu- 4
@@ -4800,24 +3542,17 @@ Avantages pécuniaires résultant des économies réa- L
 k lisées sur les impressions, telles que cartes d'adhérents, M
 statuts, programmes, etc.., les achats de livres, maté- « riel, reliure, rabais obtenus en raison de la quantité, et 4
 tout ce que l'expérience journalière peut suggérer. 2
-3° FÉDÉRATION NATIONALE L.
 La Fédération nationale serait surtout une grande ; hi
 force morale vis-à-vis des pouvoirs publics; agissant. 3 |
 au nom d'un certain nombre de collectivités, elle aurait +22 |
 plus de poids pour obtenir des subventions, des locaux, LL:
 s des livres, du matériel, tout ce qui dépend des services 4
-administratifs. 4
 Elle aurait la gérance du fonds de réserve créé 4 ;
 : d'après le vœu du Foyer du Peuple, vœu déposé à la À
-première commission. *
 à Elle offrirait les mêmes avantages d'économie que les ‘4
 Fédérations régionales et pour les mêmes motifs. Elle 0
 | pourrait créer des séries de clichés pour projections/ h:
 de vues pour lanternes magiques à l'usage des Univer- De
-; |
-L +4 Î
-
-RAPPORT DE LA CINQUIÈME COMMISSION ;
 
 sités populaires enfantines. Chargée de centraliser .
 tous les renseignements concernant les Universités
@@ -4829,8 +3564,6 @@ toutes les Universités populaires et les personnes qui
 
 s'y intéressent, les conférenciers, etc. j
 Enfin, elle créerait une bibliothèque sur le plan
-
-- suivant : 1 os
 
 1° Une bibliothèque documentaire, composée d'ou- ‘
 vrages spéciaux à consulter sur place au local de la
@@ -4858,11 +3591,8 @@ volumes dans n'importe quelle Université populaire en
 La cinquième commission conclut donc à la création, :
 par le congrès, de la Fédération Nationale des Univer-
 
-129 g
-
 BC NT PUIS GAS Ten AMD A AAEUR LS se UT LES PA NE (iQ VEneLS VERRE
 LEA séance du lundi 23 mai FE AE
-tr ? At
 ns _ sités populaires, persuadée qu'elle est appelée à rendre 51
 Hs de grands services à la cause de l'émancipation intel
 # lectuelle du peuple.
@@ -4871,15 +3601,11 @@ sr La cinquième commission adresse son salut fraternel À
 1 pleine réussite du congrès. ‘4
 je Al
 à Le rapporteur, 4
-MARIE WATHIER 4
-ANNEXE k 4
 J Le comité de Limoges, fondateur de cinq sections ou Si
 Universités populaires, sur le point d'en créer d'autres È
 dans les petites villes du département, pose la question à
-suivante : 4
 En dehors de ces fédérations, croyez-vous que notre “4
 affiliation aux Jeunesses laïques n'aurait pas de précieux 4
-résultats ? 4
 Notre but n'a-t-il pas en effet quelque analogie? Comme E:
 nous, ne rêvent-elles pas une humanité meilleure? Ne “4
 cherchent-elles pas à faire disparaître la mentalité qu'ont J |
@@ -4894,21 +3620,14 @@ le citoyen Antarieu, secrétaire, en informera la Fédération 0
 des Universités populaires, qui préviendra celles de la {
 région, afin qu'elles puissent, si elles le désirent, s'entendre 2
 À avec lui pour l'organisation d'une conférence sous leurs "1
-auspices. nn |
 Ayant à peu près les mêmes parrains que les Universités nn |
 populaires, les Jeunesses laïques ne recherchent pas dans … à |
 leurs rapports avec elles l'appoint d'une cotisation fort D.
-{ D |
-fl 130 T° |
-L4
-À Mi
 
-= RAPPORT DE LA CINQUIÈME COMMISSION
 minime en soi; elles recherchent l'entente et l'appui moral |
 que doivent se prêter les organisations qui poursuivent le x
 même but : l'émancipation intellectuelle et économique |
 : des travailleurs.
-DISCUSSION
 
 Bayonne donne le compte rendu d'une organisation de ;
 Fédération régionale. Dans le sud-ouest, l'Université popu- #
@@ -4943,10 +3662,8 @@ projet général et des statuts; ce premier travail sera im- 3
 primé et envoyé à toutes les Universités populaires de
 
 \ France avec un questionnaire. Au retour de ce questionnaire
-131 |
 
 séance du lundi 23 mai He:
-R L
 : le projet sera modifié selon les vues des Universités popu
 : laires et leur sera retourné avec un second questionnaire. fu
 i Cette même méthode sera employée une troisième fois si Ni
@@ -4963,30 +3680,18 @@ le prochain Congrès accord suffisant entre les Universités |
 intéressées, leur adhésion pourrait se faire par correspon- l
 dance, et le Congrès de 1905 serait alors ouvert par la 4
 Fédération nationale elle-même réellement constituée. 3 |
-A
-* ; ù
-x *% “]
-L
 ; L'assemblée décide que le prochain Congrès aura lieu ‘|
 à Paris. La date est fixée à Pâques, 23 avril 1905. |
 Le texte suivant est adopté à mains levées par tous les 4
 délégués présents, sauf un : 1
-:
 Le Congrès charge le bureau de la Fédération parisienne il
 de préparer la constitution de la Fédération nationale des 4
 Universités populaires dans le plus bref délai et d'en pro- 4
 poser la fondation au prochain Congrès qui aura lieu le ne
-23 avril 1905, à Paris. |
-VŒUX
 On passe ensuite à l'examen des vœux. À
 Étant bien entendu que ces vœux, même s'ils sont :
 adoptés à une grande majorité, ne sauraient eng'ag'er D
-à |
-132 À |
 
-Ne [
-
-; VŒUX EA
 en quoi que ce soit les Universités populaires qui n'en 1
 admettraient pas la teneur, plusieurs camarades pro- Fa
 posent soit que l'on supprime les vœux, soit qu'on ne ‘4
@@ -5000,10 +3705,7 @@ seront acceptés ne seront pas l'expression des volontés da.
 obligation pour la totalité des Universités populaires, " 1
 mais seulement des proposilions, qui seront annexées à ; LA
 
-. EI . . A
-
 j la suite des travaux du Congrès lors de l'impression de Fe
-ceux-ci. A
 
 ik Voici les vœux acceptés par les délégués dans ces 28
 
@@ -5015,9 +3717,6 @@ déclaration, conformément à la loi de 1901 sur les asso- AE.
 
 | ciations, afin de pouvoir jouir de la capacité juridique et Re.
 de ne pas se voir dénier la propriété de leur matériel et #3
-mobilier. BE
-
-: IL mr.
 
 | Le Congrès est d'avis de conseiller aux Universités popu- - |
 | laires de se rendre dans les Bourses du Travail faire des ce
@@ -5032,13 +3731,8 @@ militants des syndicats corporatifs. }
 
 Le Congrès : JS
 Attendu que les Universités populaires n'ont d'intérêt que 6
-. : sv : !: x : 1
 si elles contribuent à l'œuvre de justice et de progrès social; ee
-1 ss VIII ; |
-L A IE
 
-OR ad SE TR RSR TE DEPUIS TS AR ETUI MERS DES
-PEUT D 2e e 1 2 ID LATINE Ê 7 ‘RTE Er
 14 séance du lundi 23 mai | ;
 t Attendu qu'elles ne peuvent vivre que par la confiance
 des ouvriers ou employés, ainsi que l'expérience l'a prouvé;
@@ -5048,14 +3742,11 @@ représentants des institutions ouvrières : Bourses du Tra- . 4
 vail, Syndicats, ou Coopératives ; ?
 a Souhaite que les Congrès syndicaux et coopératifs
 x mettent à leur ordre du jour la question des Universités |
-populaires. |
 | IV
 Le Congrès des Universités populaires exprime sa sym- A
 pathie en faveur de la campagne antialcoolique. À
-A
 Le Congrès émet le vœu que les Universités populaires
 ayant des buvettes n'y admettent aucune boisson aleoolique distillée. Ù
-VI |
 |
 Considérant que la femme, — cette éternelle esclave, — Êl
 n'est pas toujours émancipée et se trouve par suite adver- |
@@ -5074,12 +3765,8 @@ arrive presque toujours que l'élément féminin domine dans
 l'auditoire. |
 
 ‘ ! Le déoigiiad MU. vus RL PU PVPE re NU
-ÿ VŒUX
-4 ; VII ;
 Le Congrès émet le vœu que la journée de huit heures
-soit instituée. '
 | VIII
-&
 Au moment où le conflit russo-japonais multiplie, en ë,
 - Extrême-Orient, les souffrances, les massacres et les cala- N
 mités de toutes sortes ; |
@@ -5090,19 +3777,15 @@ dans les Universités populaires on développe le plus f 4
 | souvent possible cette belle et utile maxime: « Si tu veux la :
 paix, prépare la paix », qui peut seule conduire à l'établis- 3 4
 sement des Etats-Unis du monde. 2
-Hs 1}
 Comme corollaire du vœu précédent, un camarade pro- fe
 pose que l'on vulgarise le plus possible la bonne et saine FU
 Histoire de France du camarade Gustave Hervé. 2
-ÿ
 Le congrès des Universités Populaires émet un vœu en ;
 faveur de la séparation des Églises et de l'Etat. ;
 Sont renvoyés pour examen jusqu''après la fondation + à
 de la Fédération Nationale des Universités populaires, 5
 les vœux suivants, demandant : 6
-à ).
 — La création d'une commission permanente des fêtes "
-laïques ; x
 — L'adoption de fêtes éducatives ; j f
 — Qu'il soit établi une liste des pièces de théâtre suscep- “à
 tibles d'être jouées dans les Universités populaires ; à
@@ -5112,7 +3795,6 @@ aq séance du lundi 23 mai SE ENTER
 $ — L'étude d'une caisse centrale de subventions; ‘ft À
 \ — Qué le prochain Congrès étudie l'organisation et le :
 fonctionnement des Universités populaires dans les cam- à
-4 pagnes. EC
 Une communication est faite relativement aux Jeu- 1
 î nesses laïques dont a parlé le rapport de la cinquième : 4]
 commission; une autre communication est relative à il
@@ -5123,73 +3805,32 @@ des départements. ;
 présidé la deuxième partie de cette séance, remercie les .
 congressistes de leur assiduité au travail et adresse un À
 souvenir ému à la mémoire d'Emile Duclaux, qui fut un î
-\
 ami sincère et dévoué de l'éducation populaire. } |
 Le Congrès est clos à six heures et quart. : |
 
-nn
-
-\ 2
-D.
-
-: VIN
-FACE
-FH L
-<
-
-D:
-21 à |
-
 |
-De
-HE
-: |
-FE
 
 £ ie LE ot A Ne FAR ge Fa da Le LAS « re FER TER
-FÊTE DE CLOTURE
 La fête de clôture du Congrès a eu lieu le lundi $
 Ê soir 23 mai, à 8 heures et demie, au Nouveau-Théâtre, F
 
 . 15, rue Blanche. Le programme comportait une repré- F
 sentation de Liberté, drame en 3 parties avec prologue #
 et intermèdes de Maurice Pottecher, musique de Lucien È
-c Marcelot. ;
 | La distribution était la suivante : CRT
 | Ha
 
-Jacques Souhaït. . . . . .. MM. Gaston Brou Fe
-François Souhaït. . . . . .. JEAN KERMALL NA
-Le Colporteur . ....... SOUVENAY 4
-Bé Représentant: ./ | 3: LAUZIÈRES é
-Fouillette, cordonnier . . . . PAUL ARDOT 5
-Toussaint, drapier. . . . . . Fcor %
-Clément Élophe . . . . . .. GÉMEAU à
-LE DUR EX CSN A PART REIN SRE DugourG NN
-LÉ RS CAMES SRB REA X M=* Cauu A
 | Eamère Élophe:-1. 4.1; MARTHE BELLU |
 
-? ORELÉE RATE TUTLS SAMY
-
-J MERS ONE LUN MAUT BrarD A
 Hommes et Femmes du Peuple, Soldats, etc. ni
 Prologue et intermèdes :
 La Liberté. ... M” Camm | Le Passé. . M. LAUZIÈRES AR
 Récitants, solistes et chœurs par les camarades des Uni- $
-versités populaires. Ë
 
-. :
-
-Sy J 1 PHEL à FRS 1 STAR ep |
-' Maurice Kahn TENUE
 Après une allocution de Paul Kastor, secrétaire de
 la Fédération des Universités populaires de Paris et 4
 | de la Banlieue, qui avait organisé la représentation, DE
 Maurice Kahn fit la causerie d'introduction suivante :
-!
-Mesdames, |
-Messieurs, . ie
-Camarades, 1 |
 La fête qui nous réunit ce soir a été organisée à l'occa- |
 sion du premier congrès des Universités populaires de 4
 France, par la Fédération des Universités populaires de
@@ -5197,7 +3838,6 @@ Paris et de la banlieue. …
 La pièce que vous allez entendre, — et dont, rassurez- ‘A
 vous, je ne retarderai pas bien longtemps la représenta- ;
 tion, — appartient au répertoire du Théâtre du Peuple de ;
-Bussang. : ;
 Un certain hasard, sans doute, n'est pas étranger à cette b |
 rencontre, si l'on appelle hasard le rapprochement invo- |
 lontaire d'hommes attelés à des besognes différentes et qui, b |
@@ -5220,12 +3860,7 @@ gagner. Et les récentes représentations de Liberté données À
 en province, par le Théâtre du Peuple, ont permis de con- ne :
 stater les heureux effets de cet accord : en certaines villes & 4
 140 2
-à Il
-ÿ |
 
-+ gt Dre Ads CPS . à. dt a AE ONU RE RSR DTA
-jt te Ve
-CAUSERIE SUR ( LIBERTÉ }
 le Théâtre du Peuple a aidé l'Université populaire à grou- d
 per des auditoires de 2.000 personnes ; — et, d'autre part,
 l'Université populaire a fourni au Théâtre du Peuple
@@ -5238,7 +3873,6 @@ montrer, en quelques mots, combien, à mon sens, ces
 conséquences sont heureuses, et combien le hasard, qu'on à,
 dit souvent aveugle, a fail preuve cette fois de clairvoyance ;
 . et de sagesse,
-I À
 Les Universités populaires vous sont assez connues, et ÿ
 ceux d'entre vous qui ont assisité au congrès ne me par- : MER
 donneraient pas d'apporter ici, après les conversations qui :
@@ -5261,10 +3895,7 @@ propres, dans le détail desquels je n'ai pas à entrer, des
 écoles de liberté. |
 Le Théâtre du Peuple, tel que l'a conçu M. Maurice Pot- L
 141 1
-à Ki
 
-NT nt + FACE HS |
-£ Dr
 ; Maurice Kahn PE SUR
 
 à techer et tel qu'il l'a réalisé à Bussang, atteint, avec des
@@ -5273,7 +3904,6 @@ NT nt + FACE HS |
 
 Maurice Pottecher et une équipe de collaborateurs ano-
 
-; nymes. L.|
 fr Il est construit en plein air, sur le penchant d'une prairie |
 | souriante, adossée à une colline. La salle est d'un carac- » |
 tère rustique : toute en bois; bancs de bois, analogues à |
@@ -5297,7 +3927,6 @@ sont bussenets et bussenettes, habitants des villages voi- il
 sins, touristes en villégiature à Bussang et dans les autres |
 stations des Vosges : on vient même de fort loin et un D
 train spécial amène chaque année des spectateurs, de |
-Remiremont, Épinal, Naney, etc. à
 Le spectacle enfin est hautement éducatif. L'auteur ma 4
 aucune prétention à « moraliser ». On lui a attribué ces in- il
 tentions moralisatrices, et, à la vérité, la première de ses À
@@ -5308,10 +3937,7 @@ antialcoolique. Et pourtant l'auteur s'était borné à repré- À
 senter sous les traits du diable les empoisonneurs publics D :
 dont les noms sont bien connus.
 En aflirmant qu'il n'y a, dans le théâtre dè Maurice R |
-D |
 
-" 1, Là | F x ; ‘ 4
-CAUSERIE SUR (LIBERTÉ } »
 Pottecher, aucune intention de moraliser, je n'exprime
 point mon idée personnelle et je ne fais que répéter ce que
 lui-même disait récemment encore, dans une conférence
@@ -5332,7 +3958,6 @@ répertoire oblige le public à passer par des émotions :
 en année, — sans que jamais soient flattées ses passions, F
 sans que jamais l'auteur ait fait sa pièce en vue d'un j 08
 public déterminé, sans que jamais la manière soit de parti- “
-pris « populaire ». 5
 D'ailleurs, la définition que Maurice Pottecher donne du
 Théâtre du Peuple est significative : « J'entends par |
 Théâtre populaire, celui où les divers éléments dont >
@@ -5346,12 +3971,9 @@ diaire des êtres qui rattachent l'extrême richesse matérielle
 ou intellectuelle à l'extrême pauvreté. » (1)
 Une telle assistance est réunie à Bussang. Des hommes
 divers s'intéressent également à l'œuvre représentée, sym- ;
-“ A —————
 (1) Le Théâtre du Peuple, renaissance et destinée du théâtre populaire, Paris, 1899, in-18; Ollendorff, éditeur. |
-143 |
 
 # Maurice Kahn FAT UE
-AP pathisent aux sentiments exprimés, — « fraternisent au 4 É
 12 théâtre », comme dit Michelet. — Et lorsqu'ils ne poussent 4 Ë
 x pas jusque-là teur sympathie, lorsqu'ils ne vont pas jusqu'à nl 1
 + fraterniser, — ce qui à mon sens n'est pas nécessaire et dans "
@@ -5364,7 +3986,6 @@ f et bien plus difficile, les préjugés qui s'évanouissent et la "\
 j liberté de l'esprit qui est conquise. — Et c'est un art sain, DIS
 sans outrances, sans flatteries, sans mensonges, qui a rem- nil }
 É 1 porté cette victoire. : ; |
-Et
 AUS La pièce qui sera jouée ici ce soir, Liberté, est une œuvre M
 très différente, par sa forme, de celles auxquelles le théâtre |
 contemporain nous a accoutumés. Elle se rapproche plutôt i |
@@ -5388,13 +4009,6 @@ tait dans la Révolution. La Bastille avait été prise, les pri |
 vilèges abolis, la Déclaration des Droits de l'Homme et du M
 Citoyen proclamée; le peuple avait chassé son roi : le peuple …
 faisait les lois et régnait au nom de la justice et de la liberté. |
-KE *
-144 s |
-Î
-AA :
-
-1-71 LC RSR D TRES DER TE PET, NERO EE NEO
-CAUSERIE SUR € LIBERTÉ }
 
 Il y avait en France et dans le monde un grand bouleversement.
 
@@ -5445,9 +4059,7 @@ proclamation de la République et réclamant des défenseurs pour
 
 | dans un transport d'enthousiasme patriotique. » |
 | 145
-IX
 
-Maurice Kahn te 2
 # Ce patriotisme, d'ailleurs, avait un caractère bien parti- 3
 73 culier. En nous le faisant saisir, le drame de Maurice.
 ; Pottecher nous donne une excellente leçon, tout à fait 4
@@ -5461,8 +4073,6 @@ de nos préjugés, de nos préférences. 4
 : Vous voyez que je n'avais pas tort de vous annoncer en 74
 commençant que le Théâtre du Peuple rejoignait iei les à
 _ Universités populaires et que toutes deux étaient des écoles 4
-. deliberté. $
-JII - à
 En 1792, donc, patriotisme et révolution se confondaient. ;
 « La patrie était en danger ». C'est-à-dire que la liberté
 était menacée.
@@ -5472,11 +4082,8 @@ d'émotion. Mais les rois, naturellement, tremblaient et sen- ;
 taient chanceler leurs trônes. Leur intervention, crurent-ils, 4
 pourrait rétablir la tyrannie et mettre à la raison la France
 révolutionnaire. Cependant, les officiers français, tous d'ori- À
-gine noble, trahissaient, apportant aux souverains étrangers È
 leur épée, quelquefois entraînant leurs troupes. La France %
-révolutionnaire environnée d'ennemis, bientôt envahie, 4
 n'avait pas le choix. De toutes parts les volontaires accoürurent, en bandes, en famille : frères, enfants, parents, amis, 4
-voulaient combattre côte à côte. 1
 | Il ne s'agissait point alors de conquête, ni de gloire militaire ; il s'agissait de sauvegarder le plus précieux des e
 biens : la liberté. C'est pour soi-même qu'on portait les
 armes. Ce n'était point pour le caprice d'un monarque, ni
@@ -5484,11 +4091,7 @@ pour les intérêts d'un groupe de financiers. On ne masquait à
 point des tripotages sous le prétexte de porter la civilisa- L
 tion à des peuples paisibles, qui vivent heureux sans 2
 4 connaître l'Evangile ni les agréments inappréciables de 4
-146 :
 
-De PES *. Fr. _ ?
-x rÆ h
-CAUSERIE SUR ( LIBERTÉ »
 l'occupation européenne. On n'ambitionnait ni accroissement territorial, ni décorations, ni avancement; on
 - défendait la Révolution, « l'âme sans épouvante », comme
 a dit superbement Hugo, « et les pieds sans souliers ».
@@ -5520,50 +4123,24 @@ bien respectueusement, dans les fêtes officielles et les banquets, à la même 
 # emprisonnés pour l'avoir chantée.
 } Si nos ancêtres ne l'avaient pas chantée et vécue jadis,
 nous n'aurions même pas le droit, nous, de chanter l'Internationale.
-Maurice KAHN
 
 DE ERIC EEE LRO LR FR Dee PRES ra Le NEC es
-ae Se Pre à à FORMES En PCA CA
-SANTO SR RS AE RO CN d'AMD Ne Cr à
-15 PNR 5 RGP RENE PU CAEN ee DRE
-+ NN IE ” … Vas 1e PA  ? ere Le 4 2 >
-MT ot , KT : n
-ARE ë e 12.121 AN EN
-RCA A F 1 D'IDTMES Lee
-7e É Abry M:
-es VAN COINS
-RE : RL
-Fe + 4° PL :
-Er CCR :2 LJTFNRIORSESS :
-À 150 4 dy RE A
-. . URSS
-1: 80 113 SN VOS INR
 L'AREONE , ; he. mn: FU NS ;
-+ FOR LESC 1
-T6 ONE à 15 ONE
 
-Me *
-TABLE
-PAGES
 ‘ Notre catalogue analytique sommaire. . . . .. 2
 Préparation de ce cahier . ........,... 4
 Fédération des Universités populaires de Paris Ce
-el banlieue; M. Maurice Kahn ; M. Paul Kastor, ,
 secrétaire de la Fédération des U. P.; M. Gaston “E
 Rabaud, rapporteur de la troisième commission ; 2
 congrès des U. P: 1904 ,
-ORGANISATION DU CONGRÈS
 Organisation du Congrès. . . .. ........ 9
 Réunion mensuelle de la Fédération des Uni- |
 versités populaires de Paris le 13 décembre 1903,
 proposition d'un délégué; adoptée à l'unanimité;
-décision ; commission d'organisation; circulaire :
 du 10 janvier 1904; où inclus circulaire numéro 1
 sur un congrès national des Universités populaires; organisation générale; enseignement et
-, - éducation; institutions annexes; fédérations Si
 départementales et régionales; signée pour les £
 Membres de la Commission provisoire d'organisation, H. Ablonet, Charles Guieysse; Le Secré-
-ï 149
 
 : congrès des U. P. 1904 LUE
 “ taire de la Fédération des U. P., Paul Kastor. :24
@@ -5577,11 +4154,8 @@ adhésions; signée pour le Comité, Le Secrétaire, É
 ér H. Ablonet; liste des Universités populaires qui ne.
 ont envoyé leur adhésion; départements; “5
 villes; titres des Universités populaires ; délé- É
-6 gués ; fédérations régionales ; Universités popu- 4
 | laires ; -
 
-PROCÈS-VERBAL DES SÉANCES Ra
-Séance du Dimanche 22 Mai, matin. . . . . . . 25 3
 Ouverture de la séance; souhaits de bien- \
 venue; appel nominal; nomination du bureau; S
 allocution de M. Gabriel-Séailles, nommé pré- | Res
@@ -5589,13 +4163,9 @@ sident; quelques renseignements sur l'organi- &
 sation du Congrès; le déjeuner; un bureau par ‘à
 commission ; nomination de ces bureaux; cinq à
 commissions; réunion de ces commissions; k
-cinq rapports généraux ; ‘2
 Séance du Dimanche 22 Mai, après-midi. . . . 29 4
-i
 Rapport de la deuxième commission, énsti- D
 tutions annexes; lecture par le camarade Clair, F Fe.
-rapporteur; syndicats; coopératives; groupes 4
-politiques ; patronages ; mutualités ; conclusions; È
 avant discussion du rapport, discussion sur %
 mode de votation; non vote; surtout congrès 4
 d'études; utile de se compter; ne pourront
@@ -5605,26 +4175,19 @@ Universités populaires avec les syndicats; avec Ke
 
 150 2
 
-TABLE
 les Coopératives; avec les Groupes politiques ;
 avec les Patronages;
 Rapport de la première commission, organisation générale ; lecture par madame Wathier,
-rapporteur; organisation générale, statuts;
-question financière ; annexes ; statuts; questions
 financières ; où inclus rapport du camarade CaL sevitz, trésorier de la Fédération de Paris et de
 la banlieue, président de la commission; ce rapport est sur le budget de cette Fédération; une
-recommandation dela première Commission, aux
 s Universités populaires, d'insérer dans leurs statuts une clause analogue à la suivante, fermeté
 dans le recouvrement des cotisations ; projet de
 constitution d'une caisse centrale de sub- :
 ventions; dans chaque région; organisation
 financière et administrative; tableaux synoptiques; désignation des Universités populaires;
-moyens financiers ; cotisations ; membres actifs ;
 membres adhérents ou participants; membres
 honoraires; dons, subventions, allocations; organisation ; fédération parisienne des Universités
-populaires, nombre d'Universités populaires ad- À
 hérentes et recouvrements; compte des disponibilités de la fédération parisienne des Universités
-populaires ; 1902, 1903, 1904; disponible, monument Zola, fêtes, matinées, Saint-Louis, totaux ;
 Séance du Lundi 23 Mai, matin... ...... 74
 Plusieurs lettres et télégrammes d'excuses;
 rapport de la troisième commission, enseignement et éducation ; lecture par le camarade Rabaud, rapporteur; conférences isolées; cours;
@@ -5635,10 +4198,7 @@ tous, les Musées cantonaux; personnel ensei151
 
 Re ni ne MN 0 SOS
 
-DRE A A
 à ER congres-des US P./T9047 000
-2 Ê gnant; conclusion; discussion ; Marseille, Mont- ! FE
-= pellier, Brioude, Bourges, Rouen, Montpellier FL OS J
 Rapport de la quatrième commission, fêtes et #3
 : distractions ; lecture par le camarade Georges 3 mr
 
@@ -5653,24 +4213,19 @@ très opposée ; discussion de cette opinion; droits De,
 ; d'auteur; sociétés des auteurs dramatiques et 44
 
 des auteurs, compositeurs et éditeurs de mu- 4
-F sique; programmes; interprétation; fêtes laï- is
 f. ques ; conclusions ; chorales; cours de musique, 0
 de chant et de déclamation; promenades, excur- De.
 
 | signs,visites; caisse de voyages; cercles de lec- “55
-È ture; trois vœux; bibliothèque, publications 4
 officielles ; acquisition de livres; échange régu- £ ESS
 lier de livres; discuësion ; le Mans, Lyon; {a 5
 
 Fraternelle; banquet, simple et substantiel; 4
 amicale présidence de Gabriel Séailles; 65 conyi- 1e
-ves ; Maurice Bouchor; Se
 Séance du Lundi 23 Mai, après-midi. . . . . . . 122 si
 Même discussion, suite; Rouen ; Maurice Bou- “i
 
-à chor; 4
 : Rapport de la cinquième commission, fédéra- 1e
-tions; madame Wathier rapporteur; lecture “4
 
 par le camarade Kastor; toutes les Universités É
 
@@ -5689,8 +4244,6 @@ concluent logiquement à créer, après la Fédé- Me
 | ration Nationale, une Fédération Internatio- 1%
 5 152 4
 
-1? a 115
-"À
 nale des Universités populaires ou organi- £
 ? sations similaires ; Auvers-sur-Oise ; Fontenayen-Vendée; Fédération post-scolaire des DeuxSèvres ; le Mans; Montreuil; la Fraternelle ;
 rejette la création d'une fédération nationale;
@@ -5701,7 +4254,6 @@ l'Effort de Montrouge ; un Bulletin des Universités populaires ; une mutualité
 des fédérations départementales et régionales ;
 fédération nationale ; une bibliothèque documen- ;
 5 taire ; une bibliothèque circulante ; conclusion; 4
-annexe ; Limoges, affiliation aux Jeunesses laï- ge
 ques ; discussion ; Bayonne, Tarbes, Bar-le-Duc; ÿ
 | le prochain congrès; à mains levées, une Fe
 seule voix contre, le bureau de la Fédération
@@ -5722,15 +4274,9 @@ une communication Jeunesses laïques; une
 = communication Exposition de Saint-Louis ; 3
 remerciements de Maurice Bouchor président >
 aux congressistes; un souvenir ému à la mé- |
-moire d''Émile Duclaux ; .
 2 clôture du Congrès ;
-;
 
-Se. ES
-
-nn congrès des U. P.' 190417 00
 su FÊTE DE CLOTURE FES
-214 pété descloture 74045502, A QUE AC ANTON 139" 7%
 ne : mu,
 re A Le lundi soir 23 mai, à huit heures et demie, LE
 ; Da au Nouveau-Théâtre, une représentation de RES »
@@ -5744,64 +4290,28 @@ de L la représentation, une causerie d'introduction TES 54
 # ù de Maurice Kahn: Er
 Fe Maurice KAun, — causerie sur Liberté . . . . . 140
 à Nous avons donné le bon à tirer après corrections …
-2 A AR « DES 24
 " pour trois mille deux cents exemplaires de ce vingtième
 % cahier le mardi 13 septembre 1904. 4
 Ér3 TER Le Gérant : CHARLES PÉGUY F0
-5 CE
 # Ce cahier a été composé et tiré au tarif des ouvriers syndiqués.
 
 : IMPRIMERIE DE SURESNES (ED. GRENIER, directeur), 9, rue du Pont. — 9091 Pie *
 
-à Pate
-ae 50
-
-ITR IR CAT NE, TA ITR RS RS ARE PES APRES re
-Û PTE RES LA RE NES TE DER TE EE dr 22: €
-Re DE DST ESRSSRRES
 |. : LS ÿ ï SE ARS
-RUES ES Le
-MR Ze 25 CRUE.
-Re - à RE
-PRE 5 "FER
-Ce SN J SES j
-D 1e
 LAS “4 Rire et
-F bé TETE ge ; Fa
-J'EN ARS OA EST
-ESP LA < 4 FA hs
-rt RAta, ER
-2, + 7. gr des
-RS LHC 5 NPA ES =
-ES NE ; 3 Re: 7.
 ee si FC x , PA BÉORE Le,
 se PALM fe-o7., NE
-À en - se %E F &. ES CEE a
 
 AR Re Ver RUE Ne OA ES MRC TA
-% “ RE Tu A
-PAIE F s LT PSFERERS
-LAPRTEM + RSA à:
 NE Len PS
-:& à = “KHAN
 ce Re UC
-Re AIRES
-l'AS LUN MIE
 SATA Que . Re
-LENS . XPH
-- À 00 DÉS RAEP 11:40 Tin
-À; ere CA \ À RARE
-CÉÉRREE a - 21: HAN TNONEI
 LI TTMNEDR TPE è & L'RANET Hal
-1 (Rae KE , « Son at « +
 dt, CT, TARN PEN, TRE LE k AUS LA TER
 
-A en ere é pi:
-Bus
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, rez-de-chaussée, Paris, cinquième arrondissement.
 Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur
 la rédaction ni sur l'administration: ces fonctions
-- demeurent libres. 33
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année RE
 ouvrière, d'octobre-novembre à juin-juillet; l'abonne- “
@@ -5817,30 +4327,9 @@ l'abonnement recommandé est de vingt-cinq francs
 pour la série; tous les cahiers de l'abonnement recommandé sont empaquetés à part et recommandés à La
 poste ; la recommandation postale, comportant une
 transmission de signature, garantit le destinataire
-contre certains abus.
 L'abonnement ordinaire cesse de fonctionner pour
 chaque série au plus tard le 31 décembre qui suit ;
 É l'achèvement de cette série ; ainsi du premier juillet au
-(57:
-
-RE RTE AE DS LOI DR DEC EN PO RS A
-
-TATRE K ” i é 5 45 re LTÉRRE
-
-D  . A
-
-% LS EoNe à ATEN CRUE
-5 SR .:
-
-k ” : ‘ CR | + 2
-
-MP. . ». nn |
-
-CINE ? + AIRE AS
-
-FRE | SEXES
-
-mn ANT dé} nd Tr US ER
 
 31 décembre 1903 on pouvait avoir pour vingt francs
 les vingt-deux cahiers de la quatrième série complète.
@@ -5849,7 +4338,6 @@ A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi depuis le premier
 janvier 1904 la quatrième série se vend trente-cinq
-francs.
 
 M. André Bourgeois, administrateur des cahiers,
 
@@ -5859,4 +4347,3 @@ heures à onze heures et de une heure à sept heures.
 
 ‘ M: Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le premier mercredi du mois de trois heures |
-à quatre heures. ;

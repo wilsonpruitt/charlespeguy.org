@@ -7,108 +7,36 @@ author: daniel-halevy
 isAvertissement: false
 wordCount: 28638
 ---
-
-4 . 2 r k
-ET <
-ÉE E É
-NZ L
-L R
-re |
-: à Ex
-+ at 5.7 = Cp nE
-ai l |
-ES k
-= Digitized by the Internet Archive À
-D qe with funding from ù
-Fe _ University of Ottawa \
-4 Fa : ;
 | 7 3
-h, TEE 5 L
-NV RES. ; 4
-hit D ormdeniserl cahiersdelaquit0pg
-ÿ LINTS ro
 
-J : # * % à OESE
-: SEP !
-; : 2-7 CM
-/ RP
-4 UNE £
-310 (ne “ à
-É AIS
-k UT < PRES #
-. nr" g à
-Ê 4 EEE
-C4 re di ee D
-D
-A 3 VERRE
-‘4 k je è
-4 Re.
-F RAR :
-Er, VER 2
-= L':42 0012
-c s
-; RS TE ie
-run 2 F7 RAS
-ji: RP
-
-PO PEN à APP RTE TE CERF OR SE ARE DT SRI
-(7 DIXIÈME CAHIER DE LA ONZIÈME SÉRIE
 apologie pour notre passé.
-: 0 - 3
-‘0 : À. 106./0 .
 FACE 15e GAHIERS DE LA QUINZAINE xt
 Eye pél riodique paraissant tous les deux dimanches Fi:
-PR et, Ÿ Re
-PAT | PARIS ;
 pe 8, rue de la Sorbonne, au rez-de-chaussée
-£ Na AN €" 3 4 ' $
-TR AA 0 #4
 
-MER LUE A Re x 4 PES A LGAS LAUPS À
-. DH ARE AE 15 : FL AM NERES ren GMAARTIENE,
 Meter (Sa Le AN EE RRRAEE û
-1008 2,0. 1") FSI
-er UNS 29 | RE AE IAET Sr è NUS 1 {
-LAFTINR % Fa ESS USER TR HAT LU
 De CE: k Q LA D RARE ae ARE SAT EE
-RUN A \ LEE POUSSE Res M
-LUNA d: ” K 2e TOR E 4 ?
 ‘is MA NC ; PE RAA RE ir Fe S
 1 aus ! fur d FE SE LE SOA L:4
 ne ol FR RER te Mn ae
-M Dee ; (LT INT ENTER J'RuE A ÿ
 que NA WE : À 2 GE CNP ARSESS
-Éper “ATP IN NNISREE ‘
 RS PEAU") "Une EU FAURE nr M
-AFS: Ÿ PRES ‘ SN RO Ed EIRE
 | PLIS AUX ALAN Ù EN ERA ES FRET 7410 1
 
 EST AT RUE Une ue NE 29 SRE EN 7
-5 / Ne ER AA TRI 6e NRRREE ES j FS 10
 | PR ; ; Bi
-\ Re ; à À
-4 s 10 2e Ne PE ; x , HITS
-9 2e 64 ves À = : = : ve
-À Le DU MÊME AUTEUR . #2
-L: es . . . : É-
 M aux Cahiers de la Quinzaine Êe
-4 Re Fr
-M ÿ < 3
 À ÿ 20 2, * Le présent petit index donne automati- 2
 x: 12 F quement pour tout volume et pour tout no
-1 LR cahier indiqué : 13e
 > 1 7 |! est TES,
 Ÿ Re "# a) le numéro d'ordre de ce cahier dans 3 :
 ns VA le classement général de nos collections ë Sr
 b 18% complètes, le numéro d'ordre de la série AE
-A ONCE - étant naturellement composé en grandes NL
 RS capitales de romain et le numéro d'ordre Fa
-e. x
 . LS du cahier lui-même, dans la série ainsi Dr
 EAU < déterminée, en chiffres arabes, de sorte HE
 Ÿ Fe que V-r7 par exemple doit évidemment se #
 LE lire dix-septième cahier de la cinquième Le
-fi Pre série; dre
 "FRE a b) la date du bon à lirer, ou, à son dé- a
 SE , faut, la date du fini d'imprimer, ou, à son 2
 f RS ‘ & défaut, la date du cahier même; PR |
@@ -117,214 +45,69 @@ f RS ‘ & défaut, la date du cahier même; PR |
 € LP éditions antérieures et pour nos cinq pre- 4
 <a M mières séries, la page du catalogue àna- Re
 4 DER Ve lytique sommaire où ce cahier se trouve À
-‘4 Br. - catalogué. 4
 4 ES laniel Halévy, — Michelet et Quinet; — et dans le même “4
 c“uier présentation des quelques textes (IV-21, mardi ne
-à — » es
-4 _ 21 juillet 1903..................... deux francs 250 et 253 ‘+
 z. — — Histoire de quatre ans, 1997-2001 (V-6, mardi FPE ;
-n D eembre MOT nus eoecessecssce. OUX fPANCS 000 : A
 x . — — Louis Ménard, une étude préliminaire à la réim- 76
 3 pression de Louis Ménard, Prologue d'une Révolution Æ
-4 =  (W-18, mardi 28 juin 190/............. quatre francs 384 PSS
 : _ — — un épisode (IX-6, mardi 10 décembre 1907. ÉPUISÉ : te
 _— — le travail du Zarathoustra (X-12, mardi 20 avril W nn.
-4 5  .. .,............:.... deux francs és fi
-x 008 # > d Pa ©
-ai CAT SNS dé ASSé. — I :
-à PART : à
-D \ -
 
-LILAS ER DRE" SIN NPA NEC ESE SE ES
-RÉREO  A TANES LE SOREN NTER Ars F'ÉRNETTE ER ,
-‘ 23 SI SE PE NU RER RIRES PR
 | LÉERSSSS a
-LRRTTETS À PÉAPPESNNT PETER
-LS ÉROCSMERSR Rs 7. FRANS PUR Le
-RTS (2 0 POSER MS De
-HS RO À
-NS | ; ES SR ARE Aer ns
 en PAR COR ADE PR RE ES 1
-_'ATÉ a ÉRRREIeSE RTE NOUS a Le PRÉ SEREREE EL
-Me" ANTENNES HEURES :
-D Rs HORS À
-LENS x à 8) 7 0 dt RE SO SD SE APRe 0 Re EE: |
-RTS DL HN RIRE PRET LAS RE D AU ES
-EUC . LÉO PASNEER GALL INIST À
- L'RTPÈÉRES È : 1408 ES EH VER SE SETIRER DÉS. ?
 MR. : ne Riou El AE * HORS
-LATTES APR TASER RUN TR EIEEN
-“ERIC EN RER SD RES tre .: Ve DAME NES -
-D Se. S 4 $ 27 NOSETMTRRRESES 2 ei t D: |
--RÉIAESS D Cu BR à
-: FAT LRQ 4e MATE) x? Ar M Li
-Me: NN
-Re A
-: TT ÉCRCSERE LIN SAME IEEE PRE.
-4 RÉSYAER NES LES ETAIENT ES Hi > IST EN RS 5 d
-LARMES ONE D Re nn Mr. ‘à
 STRESS ss ne : 4 GE A, RÉ PEIOIER ITS MER ER RES a) de MAIRE.
 | LINE RAI LISA EX; ARE nt 24
-RTS #54 De P3 È 7e Cry TENTE EE ' +
-HER D  : RS or “LP :
 
-dÈ RTE) PEER CAN MAO MUST POP AUOT PUS CEE NP OS ARRET ERRIEN
-DATES Nr Rare È Mare res CPE
-mie À
-a à F
 ‘5 DU MEME AUTEUR ‘es
 Fra en vente à la librairie des cahiers fe
 FR sa
-a ns
 AR ce
 _  DanrEL HALÉvy ET RoBERT DREYFUS. — une traduc- FE
-D. . 2 22 Lo
 _ tion française (1893) de FRÉDÉRIC NiETzSCHE. — le Cas N
 _ Wagner, un problème musical............... ÉPUISÉ <
 __  Danxez HALÉvy. — Vénétie et Toscane, Paris, à
-0... "unfrane &.
-pe. ES
 _  Danxez HALÉvy. — Essai sur le mouvement ou- Re.
-RE À 5 ss £
 _ vrier en France. — Société Nouvelle de Librairie et ;
-“  d'Édition. 1901................. trois francs cinquante Be
-78 $ 2 Z . ct ;
-' rs  DanEL HALÉvy. — Emile Duclaux (1840-1904) 4
 t _ d'après un travail inédit de madame Duclaux. Librairie EN
 | ide Pages Libres. 1907............. cinquante centimes 1
 _  Danxz HALÉvy. — la Vie de Frédéric Nietzsche; sa
 _ avec un portrait. Calmann-Lévy, éditeur. 1909......... PE
-A + trois francs cinquante n
-FL HAS FT
-LETTRE : Re
-AC Co tx
-TPE COLE.
-ea Ts 4
-
-MR TR Er LRU à EN ICIEDE É
-DRE NP Et AVS RAS er PTS TS ONE ITNR URSS
 
 PRET A de See re PAU Een PES PEER L RARE V2 ee é:
-nie RU RCD CR DR Re: Re res LR
-D RS en ti
-RARE NE ES LT re « 4 LA SE RPM ECS TRES SES PRE RCE
-LACS 5 A IL CU ou
-PASSE ; A AL HO
-HR = 0e FORTS RSS
-17 A CRERES LIRE RENTRER
-CRE £ Re Ni Ce
 
- : PA RENE ENST DR ENT
-PP < CR er Eo : BEEN A
 LISTER A ni FPLDENES LKR
-RE Te état FR FRET MAC D DRE ET à Ye PRESS OUU
-Mr : : RE Nue RTE
-RUES a] AAA Viet RES : Sea rai nas Xe HN
-D. SE ; hs
-_ LÉO en
-LFP EE TRE Ê à LEARN 1 BST ERTES RARE De
-: EE PRIE + ci 2H PE Me RAS BAPE NIET CAPES
 
-FFC ES Ps 1 nn
-Re Lu Fu RTE ESA PERTE AE :
-Sa - SP: ET TRS PTE EE NS
-j2 SE 21 RTE NE AE VAR ARE | { L
 CHORR ns Ne ve LRO ;
-: L ARSRRS, HAT NT AE RARE TI TUPACEEIEE
-
-RE
-
-PE ii AUCUN) nu ee
-D CL, at 7 er RENTREE se CREER
-
-A w + Æ ge Se 2: x
 
 LES PATES ES ; Care TA RME,
-R: - : h = Aû ES
-LT ù IE ñ:
-sl + AE
-K s 5 À Ÿ CRE
 
-D fes
-“RG ES
 _  apologie pour notre passé Frs
 
-" En 4
-A n £ Le c x x x
-PR “ _ SA a < s
-EN T4 s À
-
-FER Dr à
-Re È
-7 SEM Qu”:
-
-ÉCE s] à PR
-DRE « 3%
-RES 1° te
-2 A HSE 2 à S RMS
-
 2 Lan, DNS ER PEN SRE RER. CENT PRES 7, on 2:
-Ur NOR gs
 D Ur gels ra" RE NE LE 25 {.: KT SOON
-SONT EN BB DEEE 40 AT LIU D À AFNOR RES RACE; à MY RRRNEUEt
-ARE ve * LS RER NN ENS OR EEE DS
-FA ME RTE + 4 à DE 2e 1 kr:
-TR EE 1 : LU RE FPS SRE OR RES
 PORTES ce s re ‘et + Rene SANTE
 AR NUE je | RS LE AAA EN CRAN à.
-FFSA / É 1 ANSE Dr ur PROT  à
 ETES L ÿ pure ty DIRE ue log Pr FA SOIPAEESS
-CÉSE K RE AT RTE
-ER |, ; ; « LPS. ON RE DT LEA Si SN
-LÉGER > La Re MEN DONC QE
- RSUARE L M LR TE
-RS | RU R TN PCR PAR OT RTS
-* FAN AE EU
-Dunes (PT PSS ENS LC RONN ES a rs
-. FRS Ë M 0
-Rs |” É m7, 1 115 EE SE TRS TRES UE 4
-RENE ee RER EN nn
-KT ; RL Un
-NE Ie « d K SET EN ISERE HE EEE
-An | af PRE LENS ES VE ENTRER ETES AE
-KT PNNSEE : A 077 PNEU GREAT RTE
-MT RE rs HER SRE re
 D sn Le ER
-FÉERIES >: LUE NP ERARE AR
-RS LT RE
 
 RS >. CE ns Tres Se ST RS AG ne ré +
-per D. NN TE
-RE
-F2 ä +:
-:AE
-FC « à £ > »
--___  APOLOGIE POUR NOTRE PASSE
-LU
-res r
-77". Re
 | _ Dix années ont passé depuis celle-là qui nous a |
 F : 2 _ divisés, dix courtes années, longues en nos vies. |
 ._ Nous avons connu jeunes le combat et la victoire. :
 __ Cesont de beaux souvenirs : ils nous laissent sans |
 …_ joie. Voici quelques années, nous ne pouvions nous
 _ . rencontrer sans causer de nos luttes, comme de :
-Me: :
 _  : vieux soldats causent de leurs campagnes. C'est un -
-Tes . RE . . É:
 Re sujet que nous négligeons aujourd'hui, et peut-être
 . nous l'évitons. D'où vient cela? d'où vient qu'ayant :
-Fe 232 : . . 4
 . été si heureux de notre dreyfusisme, et mieux
 _ -  qu'heureux, si fiers, d'où vient qu'il nous inspire k
-M = e & > s
 EE aujourd'hui un mouvement si faible? Cette année $
 TES 1898, qu'ignorent les jeunes gens d'aujourd'hui, 5
 _. nous aura sans doute marqués pour la vie; nous
 __ la considérons avec une sorte de lassitude, et ee:
 
-$ RÉ ne. Cp SR
-: apologie
 nos esprits ne sont pas entièrement satisfaits par le
 souvenir de ces passions qui, soulevées d'un seul |
 coup, mais survivant à leurs causes même, persistent après un temps si long, et nous gênent toujours. Ë
@@ -343,28 +126,22 @@ nos pensées. Une seule et redoutable crise nous |
 a pris et marqués. |
 Vainqueurs, que nos voix sont discrètes! mais |
 voici qui est singulier : ceux-là même que nous É
-vainquîimes, aujourd'hui parlent haut. D'abord
 ils furent humbles, ils s'abstinrent d'écrire; on
 entendait nous seuls. Puis (l'affaire marocaine en 4
 fut cause peut-être), nous baissâmes la voix, tûmes
 nos souvenirs, et pendant trois ou quatre années, 4
-vainqueurs trop vainqueurs, vaincus trop vaincus, F
 tous humbles, semblèrent gênés d'avoir dû faire 1
-£ *Y
 
-POUR NOTRE PASSÉ ë
 ] ur s choix irrévocables, et gènés à bon droit : car |
 ils s'étaient engagés à fond, et de telle sorte qu'ils à
 1 estaient, en cas d'erreur, disqualifiés. Mais voici j
 | que depuis deux ans les attitudes se sont modi- |
 | fiées. Le silence est de nouveau rompu, et ce S
 _ sont nos vaincus qui parlent seuls, qui nous ;
-: k _insultent.
 [ 2 _ Quels anniversaires sont les nôtres ! Tout est pré- #3
 | _ texte à réunions, banquets, excepté nos souvenirs.
 | _ Voyez nos adversaires : ils commémorent ce qu'ils $
 | appellent (comme ils sont humbles!) des victoires :
-‘4 nationales : Dreyfus condamné, Dreyfus dégradé,
 J Dreyfus une deuxième fois condamné. Paradoxe,
 sans doute; reste à expliquer pourquoi un tel para7 _doxe, il y a cinq ans impossible, réussit aujour- ;
  d'hui; reste à expliquer pourquoi nous laissons e
@@ -379,17 +156,13 @@ Psion té. Demeurons, s'il se peut, tels que nous #
 HE _ fûmes, et célébrons nos anniversaires en définis- :
 FE sant nos pensées, malgré notre ennui et nos pu- ;
 __ deurs même. É 5%
-M 9 ‘ passé. — 1. À : :
 
-4 apologie
-I
 Donc, nous aurions eu quelque tort. La nouveauté
 d'un tel doute nous étonne; jamais nous ne fûmes
 si sûrs de notre droit qu'aux jours dont nous parlons. Maïs cet obscurcissement de nos souvenirs,
 qu'est-ce donc enfin, sinon le signe d'un regret
 inavoué, l'effet du sentiment d'un tort? Acceptons le problème : bientôt il nous surprendra
 moins. Car nous le reconnaissons et il nous est
-familier. Ë
 Que de fois nous l'entendîmes, cette question des
 armées défaites, des peuples malheureux : qui est
 fautif? Tous les libéraux français, de madame de
@@ -404,15 +177,11 @@ Nous devions mieux défendre la vieille monarchie,
 disent madame de Staël, La Fayette, Camille Jor- |
 dan. Nous ne devions pas renverser M. de Marti- |
 gnac, disent Guizot, Barante, le duc Victor de j
-10 x
 
-F + POUR NOTRE PASSÉ
 .- Broglie, serviteurs mal rassurés de Louis-Philippe.
-s Louis-Philippe tombe; Renan s'accuse d'avoir été
 4 heureux au lendemain de ce désastre. 1848 est la
 F4 date d'un crime, dit-il; nos châtiments ne s'arrête-
 ë ront plus... Prévost-Paradol compare la France
-4 libérale, « touchante créature remplie d'instincts
 É- sublimes », au Sisyphe de Virgile,
 & .… Et semper victus tristisque recedit.
 ; « C'est cette tristesse, dit-il, que nous respirons
@@ -433,14 +202,9 @@ ee. qui régit nos pensées, consentantes ou non con-
 qui ne peut s'éteindre, un incessant murmure |
 dont la mélancolie nous rend incertains de nous-
 # Il
-: |
 
-: apologie SR |
 mêmes, nous incline à tous les regrets. Écoutons e
 cette voix triste et sûre, quittons pour elle nos
-pâles certitudes.
-
-Ill
 
 Soit! mais la séparation est malaisée. Dès le premier instant, nous sommes tentés d'écrire : le cas
 Dreyfus n'est pas un cas politique; c'est une question particulière, et de fait. L'homme était-il innocent, coupable ? Telle était la question qui se posait
@@ -458,10 +222,7 @@ apportée contre lui; pourtant il fut condamné,
 voici quelque dix ans. Qui s'en inquiéta ? Un
 membre de la Ligue des Droits de l'Homme, non
 bouleversé mais surpris, écrivit à un personnage
-: 12
 
-: R POUR NOTRE PASSÉ
-ie
 EUR _ considérable dans la Ligue pour lui demander une
 De étude de l'affaire et une intervention. « Sans doute,
 
@@ -493,8 +254,6 @@ s : quelqu'un travaille et s'entremet pour lui. Qui? Nous
 È à sardes. C'est probable, ce n'est pas sûr. L'homme |
 ee [est toujours au bagne, et nous n'y pensons pas. Fr
 
-apologie ER 2
-
 Retenons de cet incident que nous ne sommes ni à
 assez justes, ni assez bons, ni assez pourvus de |
 loisirs, pour nous laisser bouleverser par l'idée |
@@ -523,11 +282,6 @@ ponse est trop simple, et la question, telle que
 nous l'avions posée, trop simple aussi. L'Affaire
 Dreyfus, sitôt on l'étudie, paraît immense et péril- |
 
-14 3 É
-
-k
-
-IL A 53 | POUR NOTRE PASSÉ
 +  leuse. Elle n'est comparable à nulle autre. Dreyfus
 ee est un condamné d'exception, et ce qu'il y a d'excep-
 É tionnel en lui justifie l'intérêt exceptionnel qu'il
@@ -555,7 +309,6 @@ FA PE nous négligeons la pitié, rare en nos vies pressées,
 #4 de la guerre, la volonté passionnée du peuple.
 | É: Réhabiliter Dreyfus, c'est frapper la société franSAR
 
-: apologie “cie ê
 çaise, c'est peut-être diminuer son patrimoine
 d'honneur. Ainsi, dans tel cas ordinaire, les motifs :
 pour agir sont moins forts, les motifs pour ne pas
@@ -580,11 +333,7 @@ par la société française. » Soit, nous entendons À
 ces paroles, elles indiquent un devoir de sagesse ?
 que nous voudrions ne pas ignorer. — Qu'est-ce ?
 à dire et qu'avons-nous fait?
-16 : 0
 
-à ee = | ESS c
-3 L: | POUR NOTRE PASSÉ
-ge #;
 De ; Repassons cette histoire. Absorbés que nous
 _ étions par la peine de la produire, nous l'avons très
 _ fortement vécue ; il n'est pas sûr que nous l'ayons
@@ -597,7 +346,6 @@ F- À préjuge en sa faveur), a grandi nos meilleurs écribe .  vains. Les Histo
 4 _ Lettres de Zola, son chef-d'œuvre encore; et le style
 - nu, beau dans sa hâte, des Scènes et doctrines du
 E _ nationalisme, l'un des meilleurs que M. Barrès ait
-D _ trouvés. P
 3 = Nous possédons deux histoires : l'une, par
 34 _ M. Joseph Reïnach, en six volumes. C'est une rare ;
 : fortune qu'un tel instrument pour étudier des
@@ -607,8 +355,6 @@ F De. années proches. Elle est remarquable par l'esprit ;
 LA F4 _ la masse des faits clairement ordonnés. L'autre est ë
 7 l'œuvre de M. Dutrait-Crozon, toute opposée par :
 ___ l'esprit, par le style. M. Reinach composait une his- ®
-
-apologie '
 
 toire, M. Dutrait-Crozon écrit un précis, et il préfère,
 à la manière un peu ample de son adversaire, celle <
@@ -621,22 +367,14 @@ il est suivi, indispensable.
 
 Cette bibliothèque, qui n'est pas accablante, suffira. Ajoutons-y pourtant les brochures de Bernard
 Lazare, et disons qu'il faut au moins feuilleter les
-journaux, Aurore, Débats, Libre Parole, chroniques
 de la Revue des Deux-Mondes; le Temps (premier
 trimestre 1898) est un admirable recueil de conversations et de lettres ouvertes.
-
-V
 
 Qu'est-ce à dire et qu'avons-nous fait ? — N''entreprenons pas de raconter l'Affaire en ses détails,
 multipliés à l'infini, jusqu'à l'absurde, par deux
 années de polémiques; n'entreprenons pas de
 prouver l'innocence du capitaine Dreyfus, la ques-
 
-18 :
-
-cnrs .
-à POUR NOTRE PASSÉ
-a “
 É tion ne se pose plus. Bornons notre essai à préciser
 la manière dont se présentèrent à nous, aux divers
 3 instants de la crise, les doutes et les problèmes, et |
@@ -662,11 +400,7 @@ cembre 1894. C'est alors que le nom de Dreyfus fut
 À fête pour beaucoup. Il décrivit avec une verve
 é féroce le beau spectacle militaire, l'homme raidi, Ë
 8 protestant d'une voix blanche; la foule, derrière
-1 (1) Ceci d'après M. Joseph Reinach, II, page 680.
-: ;
-FÉEMP 3
 
-apologie ee
 les grilles, bousculant la police, hurlant : (A mort! » È
 Zola rentrait de la campagne et l'air de Paris était ;
 nouveau pour lui. Il croyait Dreyfus coupable, mais ?
@@ -682,15 +416,10 @@ la guerre par ses révélations ». — Retenons ceci :
 quand Zola s'inquiéta d'abord, la cruauté certaine ?
 d'un jeune homme et d'une foule, non l'erreur possible des juges, en fut cause. Nous pensons qu'en os
 nos esprits moins prompts des sentiments pareils |
-tendaient à se produire.
 Laissons Émile Zola. Il ignorait l'action révisionniste qu'engageaient, dès ces premières semaines,
 les mêmes hommes qui la dirigèrent jusqu'au 3 à
 bout. Notre objet est de la connaître, d'analyser
-leurs initiatives.
 ? Voici le frère, Mathieu Dreyfus. Son cas est trop
-20 #
-
-Lt POUR NOTRE PASSÉ
 
 clair pour que nous nous arrêtions à l'analyser.
 ke « Vous faites votre devoir », lui dit M. Judet, qui
@@ -711,11 +440,9 @@ L par une impulsion dont la suite prouva la jus-
 À ensemble, à certains jours. Joseph Reinach rencon4 trait ainsi Ranc et Scheurer-Kestner. Rance, vieux |
 4 conspirateur, seul radical du parti dénommé ra- |
 4 dical, croyait Dreyfus innocent et voulait énergi3 quement travailler pour lui. Ranc et Reinach :
-: ensemble parlèrent à Scheurer-Kestner. Scheurer- £
 É Kestner avait été mal impressionné par la conduite j
 ÈS de l'instruction, rassuré par la condamnation; pourFe tant il restait accessible au doute. Mulhousien, der-
 
-- apologie 3
 nier représentant de l'Alsace au parlement français,
 accoutumé à suivre et servir toutes les causes
 alsaciennes, il se sentait lié au capitaine Dreyfus |
@@ -741,7 +468,6 @@ Il veut d'abord qu'on le renseigne sur cette affaire. |
 On lui dit que M° Demange n'a pas vu les pièces décisives, que les juges ont jugé sur documents secrets.
 Il accepte, comme Scheurer, ces affirmations. — J
 
-< POUR NOTRE PASSÉ
 D'autres hommes, renseignés sur la politique, mais
 distants d'elle, croyaient Dreyfus innocent et le |
 disaient à l'occasion : Léon Say, écrit M. Joseph
@@ -767,7 +493,6 @@ curieux, tout silencieux accord, de ces conversations à
 parisiennes qui n'excluent rien. Ceci surprendra |
 A davantage encore : Rochefort et Drumont favori-
 à saient un tel silence. Dès janvier 1805, ils surent — ÿ
-à 23
 
 apologie ne
 comment, on ne sait, mais le fait est certain — que
@@ -791,11 +516,9 @@ suivait dès lors son pieux et cruel dessein, pressant 1
 à Scheurer-Kestner, travaillant à faire voter par les à
 deux Chambres la loi très large qui facilita la revi- |
 sion du procès Dreyfus : il était seul avec son ami ;
-Ranc. ë
 Continuons notre recherche : les secrets furent }
 (1) Madame Séverine, croyons-nous. L
 
-F POUR NOTRE PASSÉ
 enfin divulgués; sachons par qui. Le colonel Sand- $
 _herr, chef du bureau des renseignements en 1895,
 avait dit à Mathieu Dreyfus : « Vous voulez être
@@ -820,9 +543,7 @@ peu Venise! On choisit mal : un homme indépendant, humain et véridique, antis�
 d'âme, l'opposé d'un fanatique : Picquart. Et on lui i
 passa la consigne en termes inintelligibles : « L'affaire
 Dreyfus n'est pas finie, lui dit Boisdeffre, elle com- Ë
-25 passé, — 2
 
-à apologie :
 mence, il faut corser le dossier... » Le colonel Picquart ne comprit pas très bien ce que son chef lui
 signifiait par ces mots. Il s'occupa de son service, et
 ignora l'affaire Dreyfus jusqu'au jour où elle lui fut
@@ -831,7 +552,6 @@ imposée par une circonstance de son travail.
 circonstance ? Ce petit bleu déchiré, non timbré par
 la poste, dérobé à l'ambassade d'Allemagne par
 une servante que soldaient nos agents et qui, adressé
-au commandant Esterhazy, dénonçait en termes
 clairs, comme à plaisir, son commerce de trahison, |
 qu'est-ce donc, cet étrange papier? Une pièce sin-
 à cère, véritablement dérobée, ou une pièce truquée,
@@ -846,9 +566,7 @@ flottement et de l'inintelligible en tout ceci. Nous :
 inclinerions à penser que le commandant Schwarzkoppen, sachant à quel jeu de petit papier il jouait À
 avec son camarade français, lui fit ce très mauvais E }
 
-RES à POUR NOTRE PASSÉ
 tour de le mettre bon gré mal gré sur une piste non
-Pie désirée.
 : Maïs toutes les légèretés sont possibles, et nous
 | n'écririons pas cela, si un deuxième fait, plus clair,
 - ne nous déterminait en un même sens. Et en effet,
@@ -873,7 +591,6 @@ fait répondre : « Nous avons, en temps opportun,
 { reur ne peut s'élever contre une sentence régu-
 \ lière. » Sans doute, il ne pouvait le faire par des
 
-apologie :
 procédés réguliers. Mais il pouvait, en suivant les
 voies irrégulières, contenter une facile humanité ;
 qui ne desservait pas les intérêts de son peuple.
@@ -899,22 +616,15 @@ l'armée alliée. Déconsidérer les chefs à la veille
 
 d'un tel jour, c'était un beau coup de parti. , 4
 
-PR DR ed 0e ..,
-2 : … FOUR NOTRE PASSÉ
-FREE RES |
 _ Le colonel Picquart découvrit aussitôt toute
 rs l'étendue de cette affaire, avec une promptitude, un
-A4 Fe
 Ée calme admirable de l'esprit et du cœur. Il ressentit
 _ l'injustice, il prévit le désordre, et il lui sembla que
-FRE 54 Ë s = PR
 E _ le plus sûr, qui se trouvait le plus honnête, était de
-2408 : : . |
 gagner de vitesse tous les agitateurs, et d'agir. Il le ;
 __ dit à ses chefs. |
 ni: Je crois avoir fait le nécessaire pour que l'initiative : x,
 vienne de nous,
-Dec! 2 hs
 “+ leur écrit-il.
 Es | mi Si l'on perd trop de temps, l'initiative viendra d'ailleurs,
 de _ ce qui, faisant abstraction de considérations plus élevées, 1
@@ -924,7 +634,6 @@ de _ ce qui, faisant abstraction de considérations plus élevées, 1
 aboutir à un gâchis, un scandale, un gros bruit, qui n'amè- Sn
 _  nera pas la clarté.
 _ Ce sera une crise fâcheuse, inutile, et que l'on pourrait
-:s éviter en faisant justice à {emps.
 _ Jamais chefs ne furent mieux servis que les géné- :
 “e raux de Boisdeffre et Gonse, le jour où ils reçurent
 _ cette lettre. Ils disgracièrent, pour toute réponse,
@@ -933,8 +642,6 @@ celui qui l'avait écrite. |
 leurs actes. Leur unique ressource, s'ils ne veulent 5
 { pas tout éclaircir eux-mêmes, c'est un obstiné
 | silence. Mais ils ont peur, sachant, ou soupçonnant 7
-29 passé: — 2.
-ES
 
 | apologie Free |
 le vrai des choses, et cette peur les agite. Ils m sue
@@ -979,9 +686,6 @@ $ male et due, si ces peuples, jugeant d'après une
 
 ï autre morale, qui est simple, qui recommande en F
 
-+ 30 Pr
-
-. Re b, d 7 r -
 pre La : POUR NOTRE PASSÉ
 to ute occasion la véracité, la justice, s'indignent
 - eo ntre ces chefs, s'insurgent et les abattent ?
@@ -990,7 +694,6 @@ to ute occasion la véracité, la justice, s'indignent
 | _ Jaissâmes rassurer par l'allégation d'une pièce se- a
 L | crète. M. Reinach ne mentionne pas une seule pro:
 fl * Lestation contre la procédure illégale dont un pre- |
-_ mier aveu venait d'être donné. Zola, Mirbeau
 F6 . même, dès lors sollicités, se refusèrent. Nos dispo-
 ‘4 sitions prudentes n'étaient pas ébranlées.
 Fe - Cependant, Mathieu Dreyfus, désespéré par l'at_ tente, voulut agir. Il publia enfin, il répandit la
@@ -1008,9 +711,6 @@ Nous nous détournions en vain : nous étions, “#
 à notre insu, encerclés par l'Affaire. Les directeurs £
 _ de journaux, moins inertes que leurs publics, 4
 _ avaient été rendus curieux de documents par l'ar- \
-si
-
-apologie FPE
 
 ticle de l'Éclair. Le 10 novembre un fac-simile du -
 bordereau parut dans le Matin. De cette indiscré- |
@@ -1027,7 +727,6 @@ L'écriture du bordereau était celle d'Esterhazy,
 familière à bien des gens. Le jour même où elle fut ;
 publiée, deux personnes, dont on sait les noms
 (sans nul doute, beaucoup d'autres), l'identifièrent,
-etse turent. Comment expliquer, comment qualifier,
 
 une réticence si grave? n'est-ce pas le signe évi-
 
@@ -1043,11 +742,7 @@ de ces déserts tripolitains où Morès avait été
 assassiné, il devine quel destin on désire pour
 lui. Sa situation est poignante et délicate. Deux :
 
-CNY I NAS: re
-
-RP UT ‘e Le
 al : POUR NOTRE PASSÉ
-ER ee
 #4 ; devoirs le réclament, l'un humain et personnel,
 : l'autre social et professionnel. « Je n'emporterai
 A _ pas ce secret dans ma tombe! » avaitil dit au gé-
@@ -1106,9 +801,7 @@ depuis plus de trente ans son camarade et son ami. |
 Ë pas cet honnête homme. Sut-il les perspectives
 immenses qui s'ouvraient devant lui? mesura-t-il à
 4 les ébranlements que son initiative allait déter-
-À 3 ñ à
 
-, il | POUR NOTRE PASSÉ ,
 _  miner? Cela est douteux. Scheurer était un bon |
 esprit, non pas un grand esprit; son instinct poli4 tique était faible, ses vues, à cet égard, très limitées.
 à Qu'envisageait-il? Un acte sans doute malaisé de
@@ -1123,7 +816,6 @@ D joie avec laquelle je pense aux bonheurs à recon-
 cœur, quand les autres n'en ont pas, que d'avoir un
 | cœur supérieur à celui des hommes qui en ont. Je
 _ ne suis que dans le cas des premiers ». (26 juil- |
-let 1897)
 4 Citons au contraire une lettre de M° Leblois, |
 5 écrite au même moment (14 août 1897) : « Il ne faut ‘
 =: frapper qu'à coup sûr, écrit ce militant, après avoir |
@@ -1133,11 +825,9 @@ A réuni toutes les armes, s'être assuré de toutes les
 Le À jour où notre affaire aura reçu sa solution. » C'est
 + à Scheurer que Leblois écrit ainsi. Ne semble-t-il
 Ë fe: | pas que deux affaires différentes occupent ces deux ss
-‘4 hommes ? « Ici, écrit M. Joseph Reïinach, Leblois 3
 4 7 pénètre au fond des choses. » Quel est, au 5 :
 | à
 
-apologie AR
 vrai, le fond des choses ? s'agit-il de sauver
 un homme, ou de travailler à la destruction d'un
 monde ?
@@ -1163,10 +853,7 @@ nous l'ignorer ? Nous pressentions qu'il était temps,
 grand temps, d'interrompre une suite de méfaits |
 inconnus que notre longue, trop longue réserve,
 avait si bien, trop bien favorisée. L'aide de camp
-è x
 
-RER Re , N
-É : ; POUR NOTRE PASSÉ :
 | du général de Boisdeffre demandait rescousse à |
 4 Rochefort. Les démagogues appelaient les foules.
 ù « Jamais, écrivait M. Millevoye dans la Patrie,
@@ -1192,9 +879,7 @@ _ jour ils frappaient nos yeux. L'écriture du borde- |
 furent suspendues par l'opinion publique en folie. |
 + Nous dûmes nous laisser excommunier, ou nous
 Ë ; humilier devant les fanatiques et professer avec eux
-rs | | 37 passé. — 3
 
-rs apologie PES à F3
 Ë la religion d'un patriotisme sauvage dont Dreyfus |
 # : coupable symbolisait la foi.
 à Alors une cinquième affaire nous apparut, et de |
@@ -1208,7 +893,6 @@ we Les chefs de l'EÉtat-major, qui n'avaient su tenir ;
 “ faste entreprise! L'erreur et l'injustice divulguées, 3
 Ë . produisant leurs effets, entraînaient le pays entier 4
 # vers la bêtise ou la méchanceté, vers la bêtise et la |
-D. méchanceté. E
 4 Car en toute injustice il y a deux victimes à consi-
 
 n ; dérer : L'une, celle qui subit, on l'aperçoit d'abord; :
@@ -1225,22 +909,14 @@ De Une autre victime réclamait nos soins : c'était la).
 
 . - France, qu'un petit nombre d'hommes empoison 3
 
-de 38 Pose 15
-
-D
 RÉ ESE POUR NOTRE PASSÉ ee
-RME LT à à
-2 VAE EE + . . ve
 _  maït de peur, de haine, perdait d'honneur; la !
 France innocente par leur faute meurtrie. :
-LES À É : ;
 . Le dilemme de M. Charles Maurras, qui pouvait 3
 être exact en 1895, en novembre 1897 n'était plus
-js , ë - s so 4
 qu'un sophisme. Il ne s'agissait plus de choisir entre ;
 le repos de Dreyfus, le repos de la France, car un ;
 …_  prodigieux ébranlement existait déjà, en un instant 3
-TS N'a . e HE ne
 . déterminé par le geste humain d'un vieillard. Il
 —._ s'agissait de tout autre chose, du salut de l'esprit à
 _ français. La cause de son altération était, nous le |
@@ -1252,7 +928,6 @@ _ français. La cause de son altération était, nous le |
 “ là qui ne fût colère, fanatisme, haine, ivresse ou
 fureur. Quel remède à ce mal? Nous en voyionsun .
 .  seul:aller à la source, assainir les fonds mêmes. On
-ME - . * . .
 "ne savait pas : de là toutes les violences. Il fallait :
 A _ savoir : non pour se venger ni punir, mais pour |
 _ restaurer la clarté, et, par elle, dans les masses :
@@ -1261,8 +936,6 @@ L'ren d Remettons-nous, par la considération d'un exem- SF
 _ ‘ple, dans la réalité de ces temps. Voici Émile
 . Duclaux, qui avait si grand cœur, si grand esprit. |
 
-Ü db “1 à 2@ ÉINRRARERES
-apologie
 Dès novembre 1897, il éprouve une émotion dont il
 saisit à peine les mobiles. « Ce doit être bien grave,
 dit-il à un ami, car je ne dors plus. » ScheurerKestner lui demande aide : ne pourrait-il exprimer,
@@ -1276,7 +949,6 @@ comme elle semble l'avoir été dans cette affaire, ce
 serait bien par hasard que nous arriverions à la
 vérité. » Duclaux a raconté dans une lettre familière
 l'instant de sa décision. Transcrivons ces détails à
-intimes :
 : Je me vois encore remontant vers l'heure de midi la rue
 d'Assas, avec à la main ma lettre à Scheurer-Kestner, qui
 m'a mêlé à l'affaire, et me disant tout le long du chemin :
@@ -1290,15 +962,11 @@ l'épuisement et la mort. — Ainsi commença, en
 (1) Vie d'Émile Duclaux, par madame Duclaux, page 240. Ce:
 ouvrage n'a pas été mis dans le commerce.
 
-\
-
-POUR NOTRE PASSÉ
 mainte maison paisible, par une lettre expédiée,
 une invitation déclinée, une main tendue et non
 serrée, cette révolution singulière, la plus exactement religieuse, peut-être, de toutes les guerres de
 religion, où tant d'hommes, sans verser leur sang,
 donnèrent leur vie.
-VI
 Et disons-le, car on l'oublie si bien que nous risquerions de l'oublier nous-mêmes; répétons, protes_ tons, que nous fûmes surpris au plus doux de notre
 jeunesse, nos vies détournées, sans doute à jamais
 altérées, dérobées de ce calme que tout pays civilisé
@@ -1306,15 +974,12 @@ doit à ses enfants, tandis que nous reposions, écoutions, travaillions, dans d
 dans la plus entière sagesse, tolérance et bonne volonté de pensée.
 De cet attentat dont la France avec nous est vic- |
 time, nous tenons responsable la haute bourgeoisie
-._  complaisante aux jésuites, indulgente aux fauteurs |
 de la démagogie antisémite; et, quels que soient |
 ) les torts dont nous puissions, à l'examen, nous |
 avouer coupables, nous n'oublierons pas celui-là. |
 Il n'est pas nôtre, il vient d'abord. |
 Tâchons de retracer ces dispositions évanouies. |
-? 41
 
-apologie AS HU GE
 M. Charles Maurras, lorsqu'il parle de ces temps
 déjà mal saisissables, dénonce un trouble grave,
 E que suscitaient Tolstoï, Ibsen, Maeterlinck. Sans
@@ -1342,45 +1007,32 @@ e dentes et symbolistes. Charles Guérin méditait ses :
 < avec quelques amis, que fut commencée, en 1892, l'étude et la À
 Es traduction des œuvres de Frédéric Nietzsche. 1
 
-dope au ae.
 A Du Co ess FARSE VA SS
-= RRQ EEE NE POUE Le Re Re PE MT 3 x <
-DAT" POUR NOTRE PASSÉ $ é É-
 De qui nous aimions à nous laisser mener derrière les E
-LE TE <a s D 1
-45 Er NE: . u “1 ah
 _ murailles d'Antibes. Et n'est-ce pas alors, à la veille 28
 ue de notre crise, que nous récitions entre nous, ou ir
 __  copiions l'un pour l'autre, les vers de deux jeunes PT:
-- filles aujourd'hui illustres? : F2
-NICE & t
 Ne. Le ane qui m'a pris l'obole du passage “& » Et qui jamais ne parle aux ombres qu'il conduit.
 
 _  Cen'étaient pas des temps barbares que ceux oùse Sa
 __  rencontrait une jeune fille pour écrire d'un tel style, &
-Si v Du
 
 - et tant de jeunes gens pour l'admirer. Quelles pa- #1
-LES z +
 roles écoutions-nous ? Celle d'un Degas, véhémente, 2
 Re sage; celle d'un France, ailée, robuste. La renais- 4
 2 _ sance du goût français, aujourd'hui manifeste, s'an- a
 _ nongçait dès lors, non gâtée par un pernicieux roïidis- ss
-ESS " . . E
 sement des formules. Toute rumeur de guerre civile :&
 étant absente, nous nous préparions à collaborer D.
 5 au maintien d'une culture qui était notre héritage, #4
 _ notre passion, notre honneur; et nous nous croyions x =
 Le sûrs de vivre sans haine. 5
 De: la séparation se fit en un instant. A l'intérieur 4e
-MERE À = ‘si
 _ dela bourgeoisie parisienne, seule capable de saisir 2
-TE Er 233 . . » . . <
 -  promptement une affaire si nombreuse en ses détails,
 subtile en ses nuances, chaque famille fut en peu de 24
 _ jours à son poste, sûre de ses manœuvres et retran- d=
 5, _chée derrière ses portes closes. Car Paris a ses À
-LS # 4
 
 apologie Pas
 
@@ -1406,13 +1058,9 @@ exacte n'aurait su produire des gestes si prompts,
 
 si justes. Hommes de droite, hommes de gauche,
 
-leurs mouvements semblaient devancer leurs pen-
-
 sées. Ils se levaient, se retrouvaient, se connais-
 
 saient pour la première fois et vivaient sans un
-
-doute.
 
 Cette résurrection de tous les passés d'un peuple
 
@@ -1437,9 +1085,6 @@ avec eux, la critique. Ils ne furent pas en peine
 à F d'arguments; formules, lieux communs, rien ne leur :
 | 44 :
 
-a RTE LÉO ÉOS
-iii
-POUR NOTRE PASSÉ
 manqua pour confondre cette petite bande de gens ‘
 de lettres, de protestants, de juifs et d'anarchistes
 tout à coup insurgés contre un arrêt de conseil de
@@ -1463,7 +1108,6 @@ rien des hommes. Renan, au contraire, s'était laissé
 s toucher par l'espérance d'une humanité régie par la
 | raison, éclairée sur ses destinées. Il put modifier ses
 pensées, mais son cœur ne changea pas. Des Essais
-43 passé. — 3. |
 
 D oo “AL ADOlOLTE NI PIRE LA ne
 de critique jusqu'aux derniers discours, son œuvre ï
@@ -1491,7 +1135,6 @@ k ne s'effraye pas; Taine éprouve à la fois la tristesse È
 À pas, d'où la force plus grande, la direction mieux | ”
 ï assurée, mais l'autorité à notre gré inférieure des
 5 avertissements qu'il donne. ; 4
-+4 KE HAE PRE
 
 F. ce” Si Renan veut réformer cette France en désordre,
 + s'il veut ranger ce peuple malheureux, c'est afin :
@@ -1522,7 +1165,6 @@ _ commune — lui montre le fond tragique, peut-être
 “  irréformable, qui porte le travail des hommes, il ne 4
 =. _ résiste pas à la leçon. Méprisant ses rêves, il parle À
 
-apologie
 avec sévérité. Que l'événement s'éloigne : un autre
 homme paraît, tout indulgent à ses désirs. Il laisse
 aller les choses, il couronne Caliban.
@@ -1554,8 +1196,6 @@ vingt ans, la France est toujours à l'état de crise, anéantie ; À
 une faute politique, que ces audacieux novateurs, pour qui $
 48 1
 
-“ai À
-POUR NOTRE PASSÉ
 nous avons eu des faiblesses, eurent absolument tort. La
 Révolution, dans ce cas, serait vaincue pour plus d'un siècle.
 En guerre, un capitaine toujours battu ne saurait être un
@@ -1571,7 +1211,6 @@ des erreurs intellectuelles.
 Qu'on juge molle cette manière de penser, soit;
 nous disons seulement qu'elle était, à cette époque,
 la manière de beaucoup, et la nôtre. à
-"s ë
 Ainsi armés par un tel maître, chargés de tant de
 doutes et si faiblement armés de doctrine, que
 ferions-nous dans la bagarre ?
@@ -1582,8 +1221,6 @@ Accord, alliance, ligue, rencontre de hasard, amitié
 nécessaire? Nous ne le savions pas, et le moment
 n'était pas favorable aux analyses. Qu'est-ce que
 . nouscombattions ? Nous le savions à peine. L'armée ?
-
-Re *
 
 apologie De
 Ce n'était pas notre désir. L'illégalité d'un jugement?
@@ -1611,7 +1248,6 @@ es disparut dans un dreyfusisme plus vaste, plus
 d'entre nous une véritable souffrance. Les puérils
 mensonges que des généraux importants, des
 ministres graves, propageaient ou laissaient pro- F
-F 50 :
 
 É; a à = os POUR NOTRE PASSÉ
 < | pager pour sauver l'honneur d'une caste, nous
@@ -1621,13 +1257,11 @@ les expressions traditionnelles de la Révolution
 française, du rationalisme humanitaire qui est aussi
 ancien que la pensée humaine : le vrai détermine
 le juste, dit la maxime socratique; nous la suivions
-après vingt-quatre siècles. :
 Le mouvement était puissant, nous ne lui opposämes aucune résistance. Fut-ce faiblesse, égarement? nous trompions-nous en cet instant où nous
 _ nous donnions avec certitude et joie? Il n'y a pas
 apparence. Si nous étions là, c'est que nous devions
 y être, et le repos de la veille était l'illusion. La
 Révolution est vaste, ses traditions nombreuses.
-Voici Rousseau, Voltaire; Montesquieu, Condorcet;
 La Fayette, Danton; quelle est, parmi tant de é
 ë familles, la nôtre? N'en doutons pas, c'est l'une : |
 d'elles. Mais nous la chercherons plus tard. La ;
@@ -1639,8 +1273,6 @@ d'elles. Mais nous la chercherons plus tard. La ;
 É leur audace, Juifs frémissants sur leur race, logi- 2
 ; ciens révoltés contre tant de paralogismes, sceptiques
 -_ exaspérés contre tant de croyances, anticléricaux é
-
-apologie
 
 sentant l'odeur du prêtre, anarchistes l'odeur du
 soldat, hommes de goût honnête refusant leur concours à trop de malhonnêtetés. Et comment, et
@@ -1670,9 +1302,7 @@ la France, et le théâtre le monde. Vrai, mon amie,
 à ce drame d'une grandeur héroïque, car, suivant la
 fin qu'il aura, nous serons grandis ou écrasés. »
 (1) Vie d'Émile Duclaux, par madame Duclaux, page 247.
-ï 52
 
-POUR NOTRE PASSÉ
 L'ardeur, la fierté qu'expriment ces fortes lignes,
 nous les sentions aussi. C'était une ivresse : tout ce
 qui n'était pas notre cause était sorti de nos pensées.
@@ -1689,7 +1319,6 @@ su.) Il s'expliqua : nous l'entendimes, nous avouâmes
 qu'il disait vrai. Ce ne fut qu'une lueur. Nous
 oubliâmes, il oublia lui-même un souhait d'ailleurs
 oiseux dans la pratique, et nous continuâmes d'être
-heureux.
 
 La confusion des idéologies aurait dû nous mettre
 en méfiance. Mais nous n'avions pas le temps d'être
@@ -1705,9 +1334,6 @@ riaient en nous contant leur escarmouche, et nous
 
 -
 
-Re PEU D HAUT IS CON MRE.
-
-apologie CN TRE nt
 riions aussi, loin, très loin de songer qu'un jour,
 douze ans plus tard, en partie à cause de cet exploit
 À dont nous triomphions et de nos rires, un soldat
@@ -1721,25 +1347,18 @@ oppriment; on peut les traverser, rosser et disper-
 appelé, beau chef de bande, toujours si gai, riait, et
 : son rire était plus jeune encore que les nôtres.
 
-VII
-
 $ É L'audace irréfléchie passa pour cou- |
 Ce rage et dévouement à ses amis; la lenteur e
 < prudente pour une Jlàächeté déguisée; la
 * modération pour un prétexte de la timi- |
 dité; la grande intelligence pour une À
-; grande inertie. s
-A TaucyDiDE, III, 82.
 
 FE Quoi donc enfin devions-nous faire? Nous étions 4
 jeunes : il fallait nous guider dans cette soudaine .
-à bagarre. Quels guides s'offraient ? ;
 5 Je pense à un groupe de très sages Français 4
 F que nous avions l'habitude d'écouter avec atten- É
-$ tion : Gaston Paris, Émile Faguet, Vogüé, Sully-
 
 : Prudhomme, le duc de Broglie, le comte d'Haussonis ville, Boutroux, Anatole Leroy-Beaulieu. Ils conti- $
-Ÿ ,
 
 L Qu L Lot à
 
@@ -1765,13 +1384,10 @@ souvenirs, des lettres familières permettront un 3
 ; jour de mieux pénétrer le secret de ces délibéra- 220
 tions intimes qui sont l'essentiel de l'Affaire Drey- |
 fus. Contentons-nous aujourd'hui de ce qui nous est
-_ donné.
 | L'occasion fut celle-ci. En décembre 1899, la Cour =
 de Cassation, enfin saisie, instruisait, et l'opinion s
 semblait prête à subir une solution qu'elle n'aimait
 pas. Alors, quelques professeurs nationalistes fon- à
-
-apologie
 
 dèrent la Ligue de la Patrie Française. L'instigateur
 véritable, écrit M. Reinach, (1) était M. Maurras.
@@ -1803,12 +1419,9 @@ suivait pas.
 
 Paul Bourget, José-Maria de Heredia, le duc de
 Broglie, le vicomtede Vogüé,lecomted'Haussonville,
-Albert Sorel, Ferdinand Brunetière, Émile Faguet,
 
 | (1) IV, page 500.
-56 ;
 
-POUR NOTRE PASSÉ
 Gaston Boissier, secrétaire perpétuel, dont le nom
 semblait engager la compagnie entière; d'autres,
 moindres, donnèrent leurs noms. — La direction
@@ -1838,8 +1451,6 @@ différait peu de celle qu'exprime son neveu le comte
 d'Haussonville, qui lui ressemble à maints égards,
 réactionnaire par les instincts et les habitudes de
 
-apologie |
-
 vie, libéral par tradition familiale, volonté de cœur |
 
 _ et d'esprit. « Ce manifeste était, dans ma pensée, |
@@ -1849,7 +1460,6 @@ pas avoir été entendu. »
 
 Émile Faguet s'explique davantage. Dans l'appel
 publié par la Ligue, il n'y a pas un mot sur le res- |
-pect dû au droit, aux magistratures. Émile Faguet :
 
 connaît ces lacunes, pourtant il a signé. « Raffermir
 
@@ -1881,10 +1491,6 @@ M. de Vogüé ne s'explique pas : tout à l'heure 4
 : pourtant son attitude. Radicalement hostile aux À
 idéologies habituelles du dreyfusisme, mais répu- ë
 
-58 ST
-
-É + POUR NOTRE PASSÉ
-€
 _ gnant à tout entrainement démagogique, il trouvait
 légitime la contestation d'une sentence suspecte
 FE d'illégalité, et continuait à Émile Zola une estime et
@@ -1898,7 +1504,6 @@ la veuve du colonel Henry; un certain Bourget
 inserivit son nom sur ces listes; M. Paul Bourget
 fit imprimer, par le Temps mème, qu'aucune
 confusion ne devait être faite entre ce nom et sa
-personne.
 Mais l'appel de la Ligue avait déterminé un
 trouble extraordinaire, et ceux qui refusaient leur £
 signature, plus encore que ceux qui la donnaient, :
@@ -1909,9 +1514,6 @@ voulaient expliquer un refus qui semblait les con4 stituer étrangers aux tradit
 à pour lui sans déchirement de cœur, nous lui savions 3
 gré de sa peine. « Paris, écrit madame Duclaux, (1) à
 ù était, par ses affinités naturelles, du côté du passé |
-x (1) À French procession, page 335. | |
-
-apologie
 
 glorieux de la France; sa nature, qu'il surveillait
 d'ailleurs avec tant de maîtrise et d'ironie, était
@@ -1940,7 +1542,6 @@ l'accable des injures à la fois les plus odieuses
 et les plus ridicules, n'est pas la seule qui me
 frappe. Il n'est point question de la justice ellemême, de la recherche impartiale de la vérité.
 
-POUR NOTRE PASSÉ
 Cependant l'amour de la justice est le signe à la
 fois le plus noble et le plus essentiel de la civilisation. »
 Albert Sorel ne put moins faire que répondre :
@@ -1964,9 +1565,6 @@ absolu. Il était urgent de débarrasser le pays de
 cette affaire indûment élargie. Mais non : elle avait
 été « mal prise », comme disait l'un des signataires
 k de l'appel, et qui d'abord s'était déclaré pour la
-61 passé. — 4
-
-. apologie PROS
 
 révision ; (1) et ces messieurs ne voulaient plus s'en
 
@@ -2011,8 +1609,6 @@ F nécessaire ? Il leur répugnaït sans doute d'armer les :
 révolutionnaires en découvrant eux-mêmes les
 (1) Nous n'avons pas imprimé son nom. À
 
-e AS T0
-
 ed POUR NOTRE PASSÉ :
 Le _vilenies dont certains chefs de l'armée s'étaient ï
 __ rendus coupables. On admet cette répugnance; F
@@ -2036,15 +1632,11 @@ _  Decazes, qui résolut d'aller rendre visite au vieil Ne .
 ; _ causa de mainte chose. Après une heure assez labo- :
 ï. rieusement passée, il se leva ; le sujet délicat n'avait
 3 _ pas été abordé. Et, comme il prenait congé : è
-Es _ — Louis, fit sévèrement M. Guizot, Louis! 4
 / _ Le duc Decazes attendit. 4
 E — J'ai lu votre brochure. Si j'avais fait ce que ‘
 LE: vous avez dit, si j'avais concédé la réforme électo- - ;
 Fe _ rale, savez-vous ce qui serait arrivé ? %
-Re 63
-+ FN à
 
-apologie
 Le duc Decazes signifia, par son silence et une
 inclination légère, qu'il ignorait.
 — Eh bien, nous aurions eu une révolution !
@@ -2056,9 +1648,7 @@ Nous le répéterons aux modérés qui nous blâmeraient : vous auriez mauvaise 
 vous-mêmes la défection de votre sagesse. Nous
 suivions enfin les guides qui s'offraient : un Zola,
 un France, un Duclaux, un Pressensé, un Louis
-Havet.
 L'apaisement,
-écrivait celui-ci,
 je le désire comme
 M. Brunetière, mais l'apaisement vrai, celui que donnerait
 au pays une lumière implacable et une sévérité inflexible.
@@ -2070,12 +1660,7 @@ beaux mots que pour les belles choses, et enfin, — car c'est
 la question qu'il faut le moins esquiver et ici, c'est moi 4
 qui parle de nos institutions militaires avec amour et
 respect, — une haute armée composée d'ofliciers sans .
-tache. (1)
-ÈS LI E PENEE NES Fe J
-;
-(@) Temps, 3 janvier 1899. 1
 
-CRE POUR NOTRE PASSÉ
 Disons, à dix ans d'intervalle, que du moins ce
 langage était beau, cette véhémence pure.
 Revenons à Gaston Paris. On a beaucoup parlé
@@ -2101,12 +1686,9 @@ décidément : ceux qui avaient adhéré à la Ligue de
 L Bourget, cessèrent de paraître aux « dimanches ».
 À Un seul resta : M. de Vogüé. Sans doute, il
 Ë n'avait pas voulu refuser la présence de son nom au
-FE 65 passé. — 4.
  .
 
 | Bern L'.- ds
-* 2 NT rar FT + Le F
-à apologie Fe DS
 parti que, nonobstant toutes circonstances, il reconnaissait pour sien; il avait donc signé, Mais, d'autre
 part, il témoigna, par sa présence immüable aux
 | salons du Collège de France qu'une amitié, du moins,
@@ -2114,7 +1696,6 @@ part, il témoigna, par sa présence immüable aux
 alors la société française. M. de Vogüé a parlé de
 : ces jours dans un article qu'imprimèrent les
 Débats (1) au lendemain de la mort de Gaston
-* Paris:
 Je l'ai vu souffrir plus qu'aucun homme de France,
 écrivit-il,
 et ce n'est pas peu dire, de la crise meurtrière
@@ -2133,14 +1714,8 @@ dans les sentiments qu'exaspérait leur effroyable conflit. ss
 de notre ami... Ÿ
 Oui, sur le bord de cette tombe, il était touchant k
 de parler ainsi; mais c'était ailleurs, et cinq ans É
-Fe:
-(1) 8 mars 1903. i
-66 $
-
-RER ES POUR NOTRE PASSÉ
 
 _ plus tôt, qu'il eût été bienfaisant de le faire; nous
-CRE a > . Æ 1 :
 
 ._ voulons dire, en cette nuit même où se portaient
 
@@ -2148,8 +1723,6 @@ les coups cruels.
 
 à : Un effort fut tenté. Le 24 janvier parut un Appel
 LS à l'union que Sully-Prudhomme, et MM. Émile
-
-5 : cree
 
 F- . Boutroux, Ernest Lavisse, signèrent avec Gaston -
 
@@ -2168,7 +1741,6 @@ Pr tendus, les irritations les plus pénibles. On se
 nn Temps, le dit expressément : « Nous ne formons pas
 
 - une ligue... Nous signons un appel ensemble, nous |
-‘#4 2 . g- fs
 _ nous séparons ensuite... Nous ne nous constituons Le
 
 “ pas pour suivre les événements... » En vérité, la S
@@ -2177,8 +1749,6 @@ _ nous séparons ensuite... Nous ne nous constituons Le
 
 es plan! N'est-ce pas une chose concevable, un groupe
 
-me “es ; :
-
 …_ d'hommes tels que ceux que nous avons nommés,
 
 E s'unissant pour parler au pays, pour lui dire,
@@ -2186,33 +1756,20 @@ E s'unissant pour parler au pays, pour lui dire,
 
 4 occasion, sans le sacrifice d'une nuance, la
 
-‘2 vérité ? .
-
-“5 à ER A AE ES
-
 e Du moins cela pouvait être essayé. Le bénéfice,
 
 “5 non immédiat sans doute, eût ensuite été grand.
 
-Se ; 67 ÿ
-BA F5 en, 7e
-
-apologie
 _ Et dès lors, il n'eût pas été possible d'appeler, une
 fois de plus, la grande intelligence une grande
-inertie — 70 rpûs ärav Evverov xt nav &pyov. ‘
-VIII
 
 Les abonnés de ces Cahiers ont lu la Visite à
 Pascal, de Suarès. (1) Peut-être ils n'ont pas remarqué la date finale : mai 1899. Elle a pourtant de
 l'importance; la solitude de Suarès s'oppose à la
-discordante Affaire.
 
 Un jour que le tumulte de la calomnie et des invectives
 s'était répandu le plus insolemment dans Paris, et troublait
 le plus cette ville injurieuse,
-
-écrit Suarès au début
 
 de son essai, ; j
 M. de Séipse, incapable de le subir plus
@@ -2229,11 +1786,9 @@ plus retiré qui soit aux portes de Paris : il s'en fut à Port-
 Royal-des-Champs.
 (1) Premier cahier de la onzième série.
 
-a POUR NOTRE PASSÉ
 Il est probable que d'ici un demi-siècle, quelques
 mémoires donneront aux historiens des notations
 de cette qualité, intimes et essentielles.
-IX
 Il arriva ceci, que nous fûmes vainqueurs. Le
 ministère Brisson admit la révision en principe;
 une commission commença l'enquête; la chambre
@@ -2241,7 +1796,6 @@ criminelle de la Cour de Cassation fut saisie; puis,
 ladite chambre ayant été dessaisie par loi spéciale
 pour le simple motif qu'elle inclinait vers la solution qui prévalut enfin, la Cour, toutes chambres
 assemblées, acheva d'examiner l'affaire. Ainsi, de
-ministère en commission, en chambre, en cour,
 d'une allure cahotée mais constante, nous allions
 vers la victoire.
 La direction était certaine; mais que le but semblait encore difficile d'atteinte ! Une suite de décisions
@@ -2251,8 +1805,6 @@ Cour avaient jugé selon la justice, mais la justice
 n'est rien sans l'étai d'une force, et comme nous
 nous sentions faibles, ayant pour toute arme contre
 un peuple hostile cette sentence lue par M. BallotBeaupré!
-
-apologie ans Fe
 
 Madame Gyp était puissante alors. Elle inspirait è
 Lemaître et Guérin. Félix Faure mourait, Loubet était élu; Dupuy, premier ministre, le laissait huer dans Paris. Déroulède essayait son coup ;
@@ -2283,30 +1835,23 @@ absinthes, annonçait l'avenir. J'éprouvais un saisis- 4 4
 sement non tout à fait désagréable. Un mensonge, :
 enfin, pensais-je confusément, un mensonge pour j
 
-70 È : à
-
 Meta POUR NOTRE PASSÉ
 _ nous! Une force immense nous venait donc, la force
 -  dessensibilités instinctives orientées par les mythes;
 . _et celle de la stupidité même.
 =: Nos adversaires s'aperçurent bientôt que l'air du
 “ temps avait changé. Exaspérés de sentir leur proie
-1 P & P P
 -  glissante entre leurs mains, mal contenus par des
 “ autorités qui désiraient trahir, ils tentèrent leurs
 Fe _ derniers coups. Au pesage d'Auteuil, ils insultèrent
 : endant deux heures le président Loubet. Un instant
-É à P
 —_ * de faiblesse pouvait déterminer la plus pénible
 _  anarchie démagogique et militaire. Il était urgent,
 ‘4 dans cette vacance des lois, d'opposer force à force, .
-14 PP
 “4 _ foule à foule. Les chefs socialistes, d'accord avec les
-_ chefs dreyfusards, convoquèrent à Longchamp,
 … pour le jour du Grand Prix, le peuple de Paris. La
 forme des appels est curieuse à considérer. Gérault-
 —_ Richard, journaliste excellent, tint la plume. Il ne
-A 1 P
 …_  parla pas de Dreyfus, dont la cause ne fut jamais :
 “ populaire; il évita toute excitation révolutionnaire, ï
 + on voulait une journée calme; il appela les ouvriers
@@ -2317,9 +1862,7 @@ r_ que le succès prouva, les plus anciennes passions.
 à - petites églantines rouges, qui furent populaires
 _ pendant quelques années, et donnèrent aux sombres
 __ masses socialistes un air de grâce et de gaieté,
-Fu 7
 
-apologie ;
 furent alors portées pour la première fois. Sauf une
 bagarre, qui ne fut d'ailleurs pas sanglante, il n'y
 eut aucun trouble. Les ouvriers, satisfaits de leur
@@ -2374,12 +1917,7 @@ temps des instincts et des masses.
 5 réunions publiques, les groupes, les congrès, avec
 : à ces militants révolutionnaires, ces hommes supé-
 + _rieurement trempés, qui, travaillant le jour pour
-vs
-ge À 73 passé. — 5
-Le
-Si: »
 
-As D =
 F4 gagner leur vie, prennent sur leurs nuits le temps
 Fa d'un travail civique, et trop souvent s'épuisent en
 
@@ -2423,21 +1961,15 @@ Fr nous soustraire à cette évidence, et nous ne le É.
 
 ‘4 désirions pas. Le vrai détermine le juste — la 4
 4 redoutable maxime, brève et difficile comme un E.
-;. 74 -
-& > ET.
 
-d: N QE LS. HA Er Nes NOFIE a FE É
-LÉ OREERES EUX +5
 PE __. POUR NOTRE PASSÉ des F:
 _ oracle, impérieuse, énigmatique, nous obligeait ; 4
 _ toujours. Nous discernions les différences : le vrai, #
 _en matière juridique, est presque simple! Mais le E
-ne 7 D + Le 1m
 _ vrai des sociétés humaines, sommes-nous armés n
 . pour le saisir? Le juste, en matière juridique, à la ee.
 _ rigueur on peut le dire. Mais le juste des sociétés &
 _ humaines, c'est-à-dire, la fin qui les ordonne, ou ee
-LS A F É $
 . les fins, s'il en est plusieurs, saurons-nous les défi- ;
 nir? Pourtant ces différences, si profondes soient- RS
 _ elles, ne vont jamais jusqu'à détruire l'identité fon- Rs
@@ -2451,17 +1983,13 @@ _sibles. La Cour ayant ordonné la révision, le minis- . ES
 - tère Dupuy. qui l'avait combatiue, se trouva sans 4
 . force, et tomba. Qui lui succéderait? Les officiers à
  s'agitaient; ils exhortaient, ils agitaient leurs “A4
-NTSC . . . .
 _ hom mes. Qui leur imposerait silence? Dreyfus $
 revenait, un cuirassé le ramenaïit en France; trou- à
 verait-il, au débarqué, Guérin et ses bandes mai- 2
 ü esses ? Ceût été absurde. IL fallait maintenir :
 lo dre pendani la durée du procès, assurer une fin
 rapide à l'affaire par nous engagée; il fallait gou_ verne: r enfin. Qui le pouvait? ë
-ss #
-2 > Ÿ
 
-: apologie
 Tous les partis, sauf le socialiste, ayant combattu
 la révision, tous, sauf lui, se trouvaient, par la
 révision, déconfits. Le petit groupe dreyfusard
@@ -2486,12 +2014,7 @@ ils avaient raison, car ces tâtonnements faisaient
 |
 (1) Nous suivons le récit excellent de M. Joseph Reïnach. |
 
-o à # A A Ce 0 F0 À 7 CT À Po IVe APTE
-LD CESSE >
-DUO ” PQUR NOTRE PASSÉ
-LATE SSE ve . : A 4 An
 durer la crise qui devenait, par la durée, très péril-
-: * Jeuse.
 _ Poincaré renonca. Waldeck-Rousseau fut appelé.
 _ Il avait prononcé au Sénat un discours admirable
 10 contre la loi de dessaisissement, et cet acte lui avait
@@ -2505,8 +2028,6 @@ _ donné autorité sur nous. Waldeck-Rousseau comprenait parfaitement que la cri
 -_ jours à sa suite, se mirent à réclamer, exclure. Ils
 -  exclurent Millerand. M. Joseph Reinach cite une
 _ lettre qu'il reçut de Waldeck-Rousseau :
-LE 4
-Ne.
 - Mon cher ami, l'ère des diflicullés commence. Tous
 a. acceptent d'aller avec moi, mais celui-ci croyait qu'il y
 4 _ aurait celui-là ou qu'il n'y auraït pas celui-ci. Ce soir, à
@@ -2521,10 +2042,6 @@ que G... non seulement me couvre devant l'armée, mais
 . couvre tout le cabinet et la République, et cela même ÿ
 …_ devant l'Europe. S'ils sont sages, ils feront, hélas ! comme e
 
-FEVSRER
-PT ES
-
-; apologie js #
 | le dit Jaurès, la République « leur ». Mais si G... doit être
 1 vilipendé, ce dégoût, s'ajoutant aux autres venus des points
 opposés, me permet, à moi aussi, de passer la main... à
@@ -2543,7 +2060,6 @@ $ leurs, qu'ils désignèrent : un antidreyfusard déclaré,
 à se Rousseau se réservait d'occuper, ayant à ses côtés,
 6 comme chef de cabinet, le général de Galliffet. Les
 k , modérés contredisant à toutes ses vues, il arrêta les
-: pourparlers. ? |
 ? La crise devenait tout à fait sérieuse. IL s'agissait
 à de savoir si la République réussirait à constituer un |
 | dernier ministère, ou s'abandonnerait aux initia- 4
@@ -2554,13 +2070,7 @@ ie pressé, le temps de s'excuser et de se dérober; et ..
 repartit bien vite, pour assurer en Hollande, loin de
 la France déchirée, la paix et le repos du monde. ;
 
-;
-
-Mn 7 LAC RUES DSC TDR
-al ee à be) EN NS +: 14
-MN 2 POUR NOTRE.PASSÉ 2 1 £ AE.
 - Qu'allait-on faire ? Jaurès, Reinach, Millerand : “
-_ pérsistaient à n'espérer qu'en Waldeck-Rousseau. AR -
 _ Loubet lui redemanda son concours. Mais il avait SRE
 _ quitté Paris. Il avait été chez le général de Galliffet, + Se.
 à Clairefontaine, dans la forêt de Rambouillet, pour É:
@@ -2568,7 +2078,6 @@ _ le remercier de son aide inutilement offerte. C'est là Ÿ
 _ que Millerand alla le relancer. Les trois hommes 55
 A _s'accordèrent pour agir. Le ministère, à vrai dire,  :
 _ était constitué par eux seuls. RARE
-Re © LES A ‘ ne
 _ Quel assemblage imprévu, symbole exact du A.
 .  dreyfusisme ! Un progressiste renié par les progres- :#
 -_ sistes, un gentilhomme soldat renié par ceux desa F0
@@ -2577,10 +2086,8 @@ _ parla moitié de son parti, allaient instituer un gou 4
 5 _ vernement, restaurer un régime. Réfléchissons 2 15
 28 davantage, et nous trouverons que cet assemblage, ..
 _ différemment observé, cesse de paraître disparate; DE:
-PET . : A : A . SLA #
 “que ce gouvernement, institué avec un entier dédain :
 _ des usages parlementaires, respecte les traditions “3
-IS $ , 54
 réelles de notre République. Le
 -  Waldeck-Rousseau et Galliffet s'étaient connus #
 _ dans l'entourage de Gambetta; ils se retrouvaient 1
@@ -2590,10 +2097,7 @@ _ dans l'entourage de Gambetta; ils se retrouvaient 1
 “venir. M. Joseph Reinach, si écouté par eux, faisait TR
 _ partie du même groupe. Mais il parlait encore au ire
 | ESA : ne.
-CF 79 LR
-FT € FES res e
 
-apologie ,
 nom d'un autre groupe, cette ligue des trois bourgeoisies, universitaire, juive et protestante, dont
 
 l'Affaire n'a pas fondé, mais extrêmement accru
@@ -2642,13 +2146,10 @@ violence. La démocratie reparut en 1870 comme en 4
 fut le contraire d'une révolution, ce fut une restau- 4
 ; ration. Et, en même temps que cette République,
 | parurent les formules, les chants, les hommes; un :S)
-ë esprit national, insuflisant à vaincre, suffisant à. 4
-sauver quelque honneur. 74
 Et quand, la guerre terminée, il fallut refaire une Ê
 France, n'était-ce pas l'un de ces instants où les F
 traditions les plus anciennes, les plus sûres, revien.
 
-DR r0uR NOrRE assé. à
 nent et s'exercent? L'idée de la vieille monarchie
 k 1 revin Len effet, mais pâle comme une réminiscence,
 une ombre levée du fond des souvenirs. Le comte
@@ -2676,11 +2177,7 @@ Les républicains qui se croient volontiers des intel rt
 | force est leur tradition, que souvent ils ignorent.
 | Lacrise de 1897-1900 rappelle à maïnt égard la crise ;
 eu : 1871-1874. Voici les trois tronçons de la vieille À
-D Se)
-*t HOT 11
 
-rs 5 “ ÿ +8
-apologie : |
 tradition, tristement dégradés par une désuétude
 de trente années. En 1873, les bonapartistes avaient
 un jeune prince : ils l'ont perdu. Les légitimistes,
@@ -2704,14 +2201,9 @@ injustice en symbole? Non. Nous suivimes Scheurer
 
 | et Picquart, nous fimes bien. Le printemps 1899,
 ensuite; ne devions-nous pas soutenir ceux qui
-s'offraient à rétablir, après vingt mois d'anarchie,
 quelque légalité? Oui. Nous suivimes WaldeckRousseau, le général de Galliffet et Millerand, nous
 fimes bien. É
 
-” _L'
-
-ER POUR NOTRE PASSÉ
-X |
 Souvenons-nous de cet automne qui suivit la libération du capitaine Dreyfus. Paris, trois mois auparavant soulevé contre nous autour du Fort Chabrol,
 -dansa plusieurs soirées en l'honneur de notre victoire, et deux cent mille ouvriers, déployant leurs À
 | drapeaux rouges interdits jusqu'alors, allèrent saluer
@@ -2728,14 +2220,10 @@ S mais à notre plaisir se mêlait un peu d'étonnement.
 Nous lisions les mots écrits sur les bannières : |
 : Liberté; Égalité; Travail; Solidarité. Nous écoutions les cris qui alternaïent avec les chants : Vive |
 la sociale ! Paul Desjardins était l'un des nôtres; il -$
-observa :
 : — Quand ces hommes lisent ou prononcent ces
 mots que nous lisons, écoutons, qu'éprouvent-ils ?
 à 11 faudrait le savoir, nous ne le savons pas.
 3 85
-CR 1
-
-apologie us Lo ê
 
 En effet, nous ne le savions pas. Si notre étonne- |
 
@@ -2752,7 +2240,6 @@ trainte, dix années d'opposition, c'est-à-dire de
 travail; dix années pour examiner nos pensées,
 7 pour préparer patiemment, non la conquête d'une
 autorité vaine, mais des institutions vraiment républicaines, populaires et pourtant distinctes de la
-. foule, restreintes quant au nombre, organisées enfin,
 
 à c'est-à-dire (les mots ont même sens) aristocratique- |
 
@@ -2778,9 +2265,6 @@ k ses libertés. « La démopédie, non la démocratie, est Ê
 
 È sa maîtrise, et nous aimions à nous dire avec lui 2
 
-démopédistes, non démocrates. à 3
-
-D
 © POUR NOTRE PASSÉ dl
 _ Ce dénouement, si commode d'apparence, comme 4
 _ il nous gênait enfin! Nous considérions avec sur- à
@@ -2792,35 +2276,23 @@ EN I ne s'agissait plus, comme en juin 1899, d'insti- à
 _ tuer un pouvoir de fortune pour résoudre un pro- $ ë
 5 _  blème défini, mais d'orienter pour longtemps ce Se:
 _ terrible Etat français, qui par sa nature légifère î
-5e $ ee.
 +5 partout et sur tout.
-Se: 4
 É- Cependant que nous nous étonnions ainsi, d'au- 2 ;
 = tres s'étonnaient moins, et nombre d'hommes, Qui
 _ n'avaient guère aimé le dreyfusisme, s'offraient à KE
 - diriger la politique dont il fut l'origine (un Pelletan, 48
 - un Berteaux, et, généralement, la masse radicale). ee.
-2e LE *
 _ Quelles avaient été, pendant l'Affaire, nos craintes? nee
 2 Nous craignions l'avènement d'un bloc démago- 4
 _  gique, ruinant sous son autorité bête les quelques É:
 - libertés restantes au pays. Et nous voyions précisé- Fe
-SCRAI É KE
 3 _ ment, au terme de notre lutte, au lendemain de notre %
 Le _ victoire, un bloc analogue s'élever près de nous, se à
 -_ former de nous-mêmes, et profiter de nos efforts. SG.
-- & : 0%
 Qu'allions-nous faire, nous dreyfusards? On ne LS FES
 _ peut le dire à moins de définir d'abord, à l'intérieur * 04
-VER 2 » . ne
 “ES de ce « nous » trop vaste, des séparations. Notre É
-LT A:
-LI : 4
-Met 87 : Là
-SA PES À 5
 
-à jure * “ D
-k apologie s 5
 troupe étant devenue une armée, notre nom, plus
 ù encore qu'aux premiers temps, recouvrait des manières très différentes de sentir.
 Les uns (par exemple, un Picquart), étaient des
@@ -2846,9 +2318,6 @@ de goût des dreyfusards de la première sorte ne
 nous était pas tout à fait étrangère, nous voulons
 l'espérer; mais nous ne nous flattons pas d'avoir été k.
 
-Lx + a. L
-Re -
- : ; | POUR NOTRE PASSÉ
 N- exempts de haines. Éliminons ce qui n'est pas |
 E ; essentiel; disons que tous nous étions jeunes,
 4 curieux de pensée, sans vocation pour le pouvoir;
@@ -2875,7 +2344,6 @@ L. Qu''aurions-nous répondu ? C'est délicat à dire, car
 À tuer en secte contre sectes. Et nous espérons ne :
 | 89
 
-apologie rs Ed %
 trabir les intentions d'aucun de nous en supposant 713
 cette réponse, qui n'est pas doctrinaire : « Ces con- "À
 séquences, nous les ignorons. Nous travaillons pour n
@@ -2903,10 +2371,6 @@ Chacun de ces petits organes avait son bureau, *
 . ses heures de conversation. Le soir, nous nous re- 4
 trouvions dans les Universités populaires, nous y 4
 $ rencontrions les militants révolutionnaires. Chaque 4
-
-A rt METE.
-à
-"+ =" Re À “ POUR NOTRE PASSÉ É
 
 Li fau b ourg de Paris, chaque ville de province, avait
 Re a sienne. Ces petites institutions, tant qu'elles R
@@ -2937,7 +2401,6 @@ __ que signifiait, que valait notre foi récente? MR
 ._  faisions, d'une manière intime, avec des ouvriers "+.
 | Ps . qu'aucun avertissement de culture ne prémunissait :
 
-apologie |
 contre leurs passions. Fallait-il nous détourner
 d'eux, et, parce qu'ils ne pensaient pas toujours
 correctement, les mépriser? Quel pédantisme! Ces
@@ -2962,10 +2425,6 @@ vous vous liez au vieil humanitarisme, vous vous
 perdez. Nous ne contredisions pas à ces critiques,
 nous persistions pourtant. Car nous suivions une k 4
 92 4
-
-; : POUR NOTRE PASSÉ
-
-:
 
 S manière, non de penser, mais de sentir, c'est-à-
 dire indifférente aux réfutations. Nous avions agi
@@ -3000,10 +2459,6 @@ je mentale qu'on diffame aujourd'hui, que certains 3
 
 4 gens (ils sont nombreux), qui, par la condamnation
 
-è à CNET ET ANS Ca PR RES RE
-£ n'É Et ER T à Rae LEUR
-: PRE, QU à LÉ rs
-- apoiogie SN NES
 . d'un mot sommaire, Aumanitarisme, s'emploient à
 réprimer toute générosité de cœur, toute aspiration
 vers la paix et l'harmonie, répriment l'une des
@@ -3022,29 +2477,17 @@ seront peut-être un jour les formes de l'enthousiasme A
 humanitaire, son ordre conservateur. 9
 Gœthe, considérant sans haine là Révolution 4
 Française, l'avait dit en deux vers que nous aimions PE.
-_ à répéter : Fe
-Alles regt sich, als wollte die Welt, die gestaltete, rückwärts 2%)
-; Lôsen in Chaos und Nacht sich auf, und neu sich gestalten. 74
-+ * 7
 Cependant que nous vivions ainsi dans nos “À
 ; groupes, bureaux de rédaction, Universités popu- +
 
-ee OR, ENS ee ALES ment:
-PR NN 0 POUR NOTRE PASSÉ Re
-__ laires, d'autres hommes, soi disant dreyfusards #
-RES EPA Ce . 2 5e ee 2
 Fe. la plupart ne l'avaient pas été quand sévissait 5308
-À Ro OS 50
 _ l'Affaire), gouvernaient. ù É
 à Dirons-nous que nous restämes sans accointances É
-Be
 avec eux, que nos relations furent hostiles ? Nous ee
 - pourrions le soutenir. Qui, mieux que Péguy, a PE
 | combattu le bloc? Aucun lecteur des Cahiers nou
 blie ses pamphlets d'alors. Qui, plus bravement SE
 ; que Guieysse, s'est attaqué aux Jacobins que menait 4
-M: 04 Û , 2 &
-<a M. Combes ? Indifférent aux centaines d'abonnés n.
 * qui le quittaient, il persévéra dans un combat sans 4
 _ = gloire où sa petite revue faillit être brisée. Il réussit ER:
 # enfin, et grâce à lui nous avons longtemps eu le ee
@@ -3053,21 +2496,16 @@ bénéfice d'un papier honnête, populaire et à peu 2
 _ plus vigoureusement que Péguy, fit son devoir? -$
 __  Reprenant un mot dont nous avions désappris +"
 E l'usage, (1) il écrivit son cahier, Notre Patrie, et il se R
-5 RES : 4
 __ prouva, par la maîtrise de l'emploi, que le mot 3
 He. était sien. ; .
 | Ces faits semblent probants. Pourtant ils n'ont #4
 __ pas tant de force. Ils ne valent pas également pour Li
 …_ nous tous. Il serait commode de se faire ainsi juger #4
-FR 5
 à re (:) Cest un usage qui va, comme une mode, de la droite à la à
 —_._ gauche, de la gauche à la droite. Les réactionnaires, observait ke
 —_  Quinet en 1872, ne disent jamais la patrie, mais le pays. Après ; 108
 “Ese 1897, ce fut à notre tour de préférer pays à patrie. +
-2° V1
-788 Be
 
-; apologie
 __ sur la conduite d'amis choisis exprès, et nous
 n'userons pas de cette commodité. Entre les combistes et nous, les affinités étaient nulles ou négatives, cela est sûr. Mais il existait, à défaut d'un
 partage d'amour, un partage de haine, qui suffit en
@@ -3094,8 +2532,6 @@ Reinach répudièrent violemment les socialistes,
 beaucoup d'entre nous éprouvèrent une impression é
 désagréable. Que pouvions-nous leur reprocher ? +
 
-1e ; POUR NOTRE PASSÉ |
-RL,
 _  n'avaient-ils pas dit leur pensée? Assurément. :
 É Mais leur passé, qu'en faisaient-ils ? Ils le frap1 paient. Cela est grave. En juin 1899, quand
 -  Waldeck-Rousseau écrivait à M. Reinach : « Vos
@@ -3121,9 +2557,7 @@ _ milice ouvrière d'où sortent nos syndicalistes; et
 4 Ë quatre années d'éloquence, de manifestations, de
 æ à grèves et de fêtes, humanitaires lecteurs de Jaurès,
 4 anticléricaux lecteurs de l'Action, démopédistes et 3
-de: 97 passé. — 6
 
-à apologie PA US
 libertaires lecteurs des Pages Libres, fondateurs de
 coopératives et d'Universités populaires — la géné-
 ration de l'églantine rouge. Quelle pensée commune
@@ -3191,7 +2625,6 @@ ie _ la raison ornée et des pensées bienveillantes, la terre des “#
 È . magistrats équitables et des philosophes humains, la patrie ; *
 Ë | de Turgot, de Montesquieu, de Voltaire et de Malesherbes. : L.
 F2, _ Zola a bien mérité de la patrie en ne désespérant pas de la 3
-“a | justice en France. "4
 1e Ne le plaignons pas d'avoir enduré et souffert. Envions- ; #
 7 _ le. Dressée sur le plus prodigieux amas d'outrages que la $
 . sottise, l'ignorance et la méchanceté ait jamais élevé, sa 2 4
@@ -3203,13 +2636,9 @@ F2, _ Zola a bien mérité de la patrie en ne désespérant pas de la 3
 
 _ un moment de la conscience humaine. ÿ
 
-ne: 99 * » Te - : ‘4
-
-apologie Fa
 Anatole France se tut. Un immense appel, triompbal et guerrier, convenable au mort que nous
 honorions, confirma sa parole.
 Nous sortimes, nous avions tous crié.
-Pie
 Ah, méfions-nous de nos alliés, méfions-nous de
 nos fidélités, tout est piège et ruine pour l'esprit.
 Nous nous sommes unis à telles personnes, à tel
@@ -3230,9 +2659,6 @@ jour, telle lutte a cessé d'être active. Elle est un ?
 souvenir, vénérable ou glorieux, tant qu'on voudra; |
 qu'on lui tresse des couronnes, qu'on lui dédie des E
 hymnes — mais qu'il n'intervienne plus dans la vie, 4
-“ + - Es |
-
-2 > POUR NOTRE PASSÉ
 
 Re où il n'a que faire, si ce n'est gêner les luttes nou-
 
@@ -3256,8 +2682,6 @@ moins nous posséderons la jouissance des idées, des S
 
 | fumée d'orgueil qui, si l'on n'y veille, dégénère vite
 
-4 en sottise. |
-
 4 La fin que nous poursuivons, qui est, si nous ne {
 
 à nous trompons, la culture des qualités humaines, le
@@ -3279,9 +2703,7 @@ _ en notre siècle, de l'argent; c'est un désir désespéré |
 ._ sionneles cultes. Telles sont les aspirations les plus |
 —_ communes, et, si nous voulons accroître l'action ;
 E _ de nos désirs, sans doute nous devrons conspirer |
-“4 : 101 PASSE. — 6. ‘ |
 
-< apologie DR
 avec telle d'entre elles, ou telle autre; mais savoir
 où nous allons, ignorer le plaisir d'aller vite, etne
 jamais lâcher le gouvernail. ;
@@ -3294,7 +2716,6 @@ La politique est une bagarre où tous les sentiments
 alliés; et l'alliance, ne l'oublions pas, n'implique
 2 aucunement l'amitié, elle n'est parfois qu'une forme x
 très subtile de la guerre. l
-* £ #74
 | Ces funérailles de Zola furent-elles l'occasion de
 : notre dernier accord? Non sans doute. Il semble
 que tous les dreyfusards ressentirent une joie |
@@ -3308,9 +2729,7 @@ féerie nous rendit heureux pendant quelques jours, É
 peu de jours. C'était moins sérieux que charmant; =
 c'était un divertissement bien réglé par un vieux F
 | parisien amateur de théâtre. Ces lois nominatives, .
-102 ; 54
 
-e ee.
 |. POUR NOTRE PASSÉ | À
 & cé antun commandant, un général, étaientsuspectes ; | Ë
 Le _ etle verdict de la Cour de Cassation, cassant le ver- ne
@@ -3326,7 +2745,6 @@ Er procès de 1894; irrégulière, l'instruction simulée à
 Ée Cavaignac lisant un dossier secret à la tribune et. à
 EE: faisant la Chambre juge d'un procès; irrégulière, 4
 “à _ l'intervention des parlementaires en faveur de Pic- | :
--  quart(novembre 1898): Waldeck-Rousseau demanda ; .
 A 3 au Sénat le vote d'une loi qui eût interrompu l'action & à
 7 _ des juges militaires; irrégulière, cette deuxième $
 … intervention parlementaire, que sans douteinspirala d
@@ -3339,11 +2757,7 @@ N. _sur elle de juger au fond une affaire dont elle ne à
 ES devait connaître que la forme... Nous en passons. 4
 “on semble que la cause de ce continuel désordre soit $ 4
 à le caractère ambigu de l'Affaire elle-même, qui est F.
-“STE DES
-. PL. à - 103 “4
 
-FE 2x ES
-: ; apologie
 privée et qui est publique, qui est un procès et qui
 est une guerre civile. « On peut dire, d'une manière
 générale, que les grands procès politiques sont tous
@@ -3369,14 +2783,10 @@ au terme du combat.
 (1) Le Procès de Socrate, page 242. 2
 (2) Pages Libres du 21 décembre 1907. F &
 
-TE ES y FREE
-Re # ÿ
-: Li SN ENEe POUR NOTRE PASSÉ
 _ Reprenons ce livre ancien dont une fois déjà nous
 < sentimes l'appui, la France nouvelle de PrévostParadol, et citons cette page. Ne donne-t-elle pas,
 en ses traits essentiels, l'exacte analyse de ces
 dégradations qui fatiguent le pays depuis cent vingt
-années ? î
 Plusieurs personnes éclairées qui ont vu sans intérêt
 personnel et sans passion le passage du gouvernement de
 la Restauration au gouvernement de Juillet m'ont souvent
@@ -3403,9 +2813,7 @@ comme si le rang et la dignité de tous s'étaient trouvés à
 £ veille; ils valaient même davantage, si l'on tient compte
 & de lhabileté pratique, de la jeunesse d'esprit, du désir
 ? " patriotique de bien faire, de l''ardeur au travail; mais le
-n 105
 
-Fi # RÉ RAS En. 0. | RU EU yr A
 | apologie + ER dust 12 7
 sol tremblant de nouveau avait tout ébranlé, la Révolution
 avait repris son cours, et la démocratie, de plus en
@@ -3428,14 +2836,11 @@ nous l'avouons ; cette maîtrise, l'avions-nous à
 désirée? Nous ne demandions qu'être libres. Nos !
 : adversaires nous ont tout imposé, d'abord le :
 * . combat, ensuite, le pouvoir. Qu'ils répondent des |
-À catastrophes ! À
 & Mais nous nous discuipons en vain : nos protes- a
 | * tations ne nous persuadent pas. Quel méconten- . $
 ; tement subsiste, accusant un tort inconnu ? Tout ce à
-; à 106 = 7%
 
 "OO ‘pour NOTRE PASSÉ s
-L'as ; LS
 Fe + que nous avons dit semble exact. Nos écrits, nos #
 Ne amitiés, nos actes, furent tels. Nos paroles, n'en É
 $ parlons pas. Si on devait pendre les gens pour si $
@@ -3462,10 +2867,7 @@ volonté naïve. Ce peuple semblait heureux, heureux ee
 E nous le ressentimes. Quelle en était la source? “4
 _ C'était l'espérance révolutionnaire. Réprimons l'en- 4
 -_  nui d'avouer que nous l'avons, si peu que ce soit, û
-É= 107 4
 
-‘# à AT FREE:
-apologie ‘ :
 suivie. Nous avons écouté ses chants, c'est beaucoup. Les plus antiques institutions s'étaient brisées
 sous nos coups, tous les partis, discrédités, et
 quelques centaines de militants volontaires, unis
@@ -3489,19 +2891,15 @@ l'armée, telle qu'elle était, en janvier 1899. Para- 1
 doxal, et. pourtant recommandable. Nous ne le 3
 comprîmes pas, et nous nous écartämes d'un mouvement si brusque, si déchirant, que nous pouvons
 nous rapprocher aujourd'hui, non nous unir; sur- 4
-108 ;
 
 Mo Sri POUR NOTRE PASSÉ 1
 | veiller, corriger nos méfiances, non restaurer ce qui fl
 blessé ne guérit pas, la confiance. C'est fini. La per- )
 turbation est irrémédiable, nous portons en nous 4
 ces ruptures qui rompent notre pays même. 1
-k
-xI
 Mais c'est assez, c'est trop nous accuser. La
 colère nous revient avec les souvenirs, cette colère S
 que votre injustice a fait entrer en nous, et qui nous É
-rend si difficile d'être justes. *#
 Hommes de la droite et du centre, quand vint ce ;
 décisif automne de 1897, vous étiez maîtres du pays, À
 et vous pouviez, en la servant, faire la République M:
@@ -3518,10 +2916,7 @@ _ © L'occasion d'ordre correspond à l'occasion de liberté s
 4 que Charles X offrit, et n'est pas mieux saisie. Les “4
 k: gauches, en 1829, renversèrent Martignac. Les 4
 4 3
-4 109 Passé. — 7 #
-Su :
 
-apologie 3
 droites, en 1808, débordèrent et trahirent Méline,
 pourtant si faible devant elles. Belle aventure et
 beau succès! Les gauches réussirent en 1829, cela
@@ -3533,7 +2928,6 @@ délibérément à la défaite ignoble. O les guerriers !
 campagne, avec tous leurs drapeaux, par cinquante
 ouvriers, dix pasteurs, trente agrégés de grammaire ou de philosophie, et les juifs. — On n'a pas
 revu l'année de Martignac; reverra-t-on celle de
-Méline ?
 
 L'instinct conservateur a été faible en nous, soit !
 Était-ce donc à nous, libéraux par choix, tradition,
@@ -3550,40 +2944,28 @@ aux chefs, la foi aux symboles, tels étaient les sen-
 | timents commis à votre charge, et nous aussi les
 respectons : vous les avez évoqués pour couvrir
 À des crimes. Vous nous avez laissé le pays sans maî- 4
-110 : :
 
-DR eo : ; ,
-ri RON RENE ;
 | AA __ POUR NOTRE PASSÉ Ë
 | tre, pis encore, par vous dégoûté de tous maîtres, dé-
-FE |
 __ sabusé de tout respect, de toute croyance. Ce fut le ;
-*
 _ premier tort, et il est vôtre; le connaissez-vous ? à
 4 Vous reprochez aux républicains leurs fautes $
 | accumulées depuis dix ans. Vous avez la partie Fe
 belle. L'état du pays est malsain, dites-vous, soit ! ;
-À Le
 _  Serait-il meilleur, si nous avions toléré votre ÿ
 _ triomphe? Il vous est arrivé de vaincre, nous n'ou- 4
-L: . . *
 É blions pas les suites de vos victoires. k
-, ; 2 $
 à Prenons cette année 1848, parente de notre année ÿ
 __ 1898; supposons que les républicains d'alors, plus G
-L : : à e k
 - heureux qu'ils ne furent, aient su affermir leur À
 “ pouvoir. Qu'arrive-t-il? Nous concevons une lente b
 be anarchie, un état semblable à l'état actuel, une | "
 “ France inglorieuse, incapable de faire la guerre, Fr:
 - d'ailleurs ne l'aimant pas et pour mainte raison la 2
-3 , “7: . dl
 …. craignant; impuissante à arrêter l'effort militaire ‘à
-“A z 2
 - de la Prusse (observons toutefois que si la France ü
 … était restée républicaine, la réaction européenne &
 eût été moins nette, et Bismarck en Allemagne plus À
-‘# Que: # ” : se ; ë
 #à gêné qu'il ne fut), mais ne l'inquiétant pas, s'effaçant “3
 _ devant elle, s'humiliant il est possible, et peut-être à
 | gardant, au prix de cette humilité, l'Alsace et Metz. .
@@ -3620,7 +3002,6 @@ vous avez fait suflit, car vous n'êtes jamais las ]
 È > soldats l'indiscipline : cependant vous la prêchiez É
 és aux officiers. Ils refusaient d'obéir à leurs chefs, et À
 S vous les approuviez. Quelle est la corvée la plus :
-à 112 F
 
 ce Mr POUR NOTRE PASSÉ a
 dure, pour un officier catholique forcer la porte Pa
@@ -3663,18 +3044,8 @@ k. Nous savons qu'un pays est menacé s'il ne possède ï
 
 15e qui le retienne, l'étaie, garantisse ses allures. Ce à
 
-Ge 1
-Het
-He F à 4
-
-c lé *IQ0 PRMENRR ER 7:
-MAR TU, LS NES
-ES - apologie it: HSE
-. . + L ni.
-fi
 parti, le vôtre, est détruit : nous en souffrons fs
 ; comme vous-mêmes. Mais d'où vient cette destruc- 4
-À À
 tion? De votre faute. IL y a dix ans vous étiez :
 Ÿ forts, nous étions faibles, mais nous disions la
 ; vérité. Vous mentiez, pourquoi mentiez-vous ? Nous $
@@ -3682,7 +3053,6 @@ vous avons déshonorés, fut-ce à tort, fût-ce un ;
 tort? C'était à vous de garder votre honneur, et
 | vous l'avez livré. Vous vous êtes disqualifiés, vous
 ; êtes fautifs même de nos fautes.
-* À
 
 Nous avions dessein d'écrire une apologie pour il
 nous-mêmes, un réquisitoire contre autrui nous . 4
@@ -3698,32 +3068,20 @@ serait empoisonnée ; il habite le quartier Monceau, D.
 c'est bien. Si Picquart était au bagne, quel scandale! 10
 On l'y envoyait pourtant. C'est aujourd'hui un : à |
 général de division, commandant bientôt un corps … |
-V . . . RU
 d'armée. Soit, c'est le niveau des vies. Hi DA
-114 RER
 Vers F1 à
-(: PANNES
-LE TN
-
-EE RE VER D
-2 DR AT à S EN
 
 I à MEN R re POUR NOTRE PASSÉ "x
-PTT at à F
-MEET ie j
 Re La victime est reprise, les iniques châtiés. C'est Ê
 ï terminé, tant mieux. Gardons nos souvenirs, qui 4
 à presque tous nous honorent, qui jamais ne nous ï
 déshonorent; honorons cette crise même, brutale $
 
-: . : . x : 14
 mais non malsaine, et qui nous obligea à travailler 4
 
-0 PE 1
 si fort; et ne chantons pas d'avoir été vainqueurs, À
 car la mêlée était confuse. 3
 Mais si nous consentons à ne plus triompher, que Fi
-ë
 personne du moins ne triomphe sur nous; qu'on È
 | _ cesse d'appeler traître un innocent dont la vie est 4
 brisée, malfaiteurs ceux qui le délivrèrent; s'il 4
@@ -3736,13 +3094,5 @@ _ qu'on ne nous replace jamais dans une situation >
 É: analogue à celle où nous nous trouvâmes en dé- me
 & cembre 1897. Car, il le faudrait bien : plus soucieux, 3
 4 non moins résolus, nous recommencerions nos cam- 5
-% pagnes. Quel moyen d'agir autrement? . !
 14 Cependant, travaillons tous; nos enfants sau- d
-EL: : à 1
 _ ront ce que nous avons fait. Re
-;
-58 Octobre 1907-janvier 1910. Res.
-154 $
-FA #
-
-L

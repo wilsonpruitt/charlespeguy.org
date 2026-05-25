@@ -7,56 +7,19 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 22743
 ---
-
-14 CA = & 4 ME à
 |: 420 CAHIER DE LA HUITIÈME SÉRIE
 _ de la situation faite
-_ au parti intellectuel
 . dans le monde moderne
-É 159922
-he 410.16
-Be: CAHIERS DE LA QUINZAINE
 F4 paraissant seize fois par an
-2 _ PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
-LFP PAR PSUDIE VENT OVER A 2
 TR RS EC UD pere PA nt pat PSN MA En NE EE  e
 OR LR ne ET re Le RP ET NET EC PRE COTE PE F4 TUE
 DR RE ne ie PARETEN PRE SR SERRES FR
-ET PTE PN à + ARE Ë D RER
-LÉ ERTERERE Fi Re HER ATOM PTS PCR %
-1 775 1 TORRENT PRESS ? a Ve SEE SAR x
-LOÉBINSSNE . SRE A  .
-HAE Ser à. | LATE
-ASE ÿ VIT RS TRES
-NÉE À Se CNE
-LD : VF RE ARE
 | SPEARS , ; HR
-RON ES 1 F F, ‘ PAU RS en nu 27
-RE M 0, , # Fe PL er SEP ER
-1) ANT ATSE ; CARO PEER OR Ar
 
-ONE PIECE PE CN jufe s'  TRRE ARE RE ME A FTP ET IS ARS
-jade RES SL
-, RQ à #7 PR
-EC F T4
-ARR AN IE , ina
-RL }1 et
-F! LEO VE ÿ :4
-‘20 At . ie
-Un: cd 4
-YU ns
-D. nu!
-_ 1 VORREES F4
-: De TS
-A à :
 hi: Ms de AS
-OR } ] $ iM
-ie d « f US
-DA: : 4 : * ART
 
-x VUL ER
 « Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-1904, un Si
 grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un
@@ -80,12 +43,8 @@ dans l'ordre ; il suffit de le lire pour trouver, à leur
 place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de XI1+-408 pages très denses, marqué cinq
-2 ;
-h
 
-Nés RP Ten NL NL ME
 francs; ce cahier comptait comme premier cahier de la SE:
-PLU ses . > : 1100
 
 . sixième série et nos abonnés l'ont reçu à sa date, le DU.
 2 octobre 1904, comme premier cahier de la sixième 154 À
@@ -103,16 +62,10 @@ PU. Pour la septième série, année ouvrière 1905-1906, et . 46
 De attendant que paraïsse le catalogue analytique som- 30
 Ne: maire de nos deuxièmes cinq séries, 1904-1909, on 40
 
-ou - DH s ‘CS
-
 _ peut consulter, — provisoirement, — la petite table + 0
 _ analytique très sommaire que nous en avons établie et 16
 
 _ que nous avons publiée en fin du premier cahier de la “NE
-
--_ huitième série. xl "4
-
-FAP A:
 
 L- Pour amorcer tout travail que l'on aurait à commencer ER
 
@@ -125,68 +78,17 @@ __ tique sommaire dans l'index total de nos éditions anté- He.
 _ rieures et de nos sept premières séries, même premier $ na.
 cahier de la huitième série. # a
 
-V2 À }, "SES
-
-r: A
-
-Nc LA
-
-. El
-
-ie :. FRERE
-
-RON : à LE ‘ LENS t
-FU +7 TER
-} . | 3 \ 14 PACE
-: SCT ER |
-*TRETIRI ; : : FAN ‘4h
-40 a . LOIS
-En: " : VITE
-ES + At ! 121 CANNES
-5708 | re ve * LUN 1
-110 ; LUE DR
-+ + Ÿ . (sy LSHAA
-qu k (+, 27 M0 NSP
-EN LT
-.:°'APRES 4 5 AN ]
-h Fa 1] Loi MU, g
 |! TNT ' À L ou INR ne
 
-At D PET PNA INR AIR RAR ES TATTEE STE)
 jé 0 EN PQ à LEE Ness ie MM IL TS Rainer
 nr DA p ARE EL cu dc EE EE SEE ES 0 Ed QE Le
-FRÈRE 112 : TRPR
-4 7} VE JE
-1" STE $ ‘00e
 |! AE | ÿ et)
-AT er cl È 4
 | ANR ! CHERE
 fu té Le Là L : à A
-2 SES SU
-‘es pe VE
-1708 - b 21%
-7 Dur 24 4 : &
-au parti intel ‘1
 Mes A
-Do u parti intellectuel Re
-Der #8 +; 1 PRET)
-SE Pr de 70
-j ÉORPRE Le UN
-R É 3) Fa]
-D se t È cs £
-1 VTT 118
-: 44 Fr {00
-: FC ; ns
 
-DE LA SITUATION FAÎTE
-AU PARTI INTELLECTUEL
-DANS LE MONDE MODERNE
-
-À DE LA SITUATION FAITE 4
-4 au parti intellectuel È
 FL dans le monde moderne LE
 #% be
-‘4 4 ch
 À Renan n'ignorait pas tout cela. J'entends qu'il n'igno- fi ë fs
 L. rait pas ce que c'est que l'appareil scientifique des \2732
 É: sanctions modernes. Il avait connu sans doute ces À PS
@@ -206,10 +108,7 @@ H. ménagé, le ménagea pour ainsi dire constamment, au è F0
 : ménager, à parler d'eux honorablement, quelquefois à ne
 nr: les traiter presque favorablement. Ils sont encore ses 158
 À ‘4 enfants, bien qu'ils se soient faits prodigues. Ils sont 7e 4
-De: 125
-‘4 ASE
 
-ee Charles Péguy NA AG LENS PRE dia Fi
 __ ses anciens enfants. Elle a pour eux les sentiments je 1)
 YA d'une sorte d'ancienne et honoraire maternité. Une Ra |:
 DE _ maternité un peu sèche, les maternités lactées ayant ÿ pe +1 |
@@ -232,7 +131,6 @@ Re hautement les partisans, les protecteurs, les intronisa- :7
 15 teurs improvisés du déporté dans sa nouvelle religion. A
 1:10 A quel point l'Église a ménagé Renan, j'entends natu- ‘FR |
 ‘ rellement la vraie Église, la seule qui soit qualifiée, la D:
-:70èl hiérarchie ecclésiastique, pontificale, épiscopale, sacer- pe. ‘3
 2 dotale, enfin la seule qui soit autorisée, et non point 51
 ‘à naturellement toutes ces bandes démagogiques de Du:
 0 journalistes cléricaux, qui sont encore pire, s'il était ‘à
@@ -241,7 +139,6 @@ D: possible, que les bandes symétriquement démagogiques ne
 Br liques, — à quel point la seule vraie Église a ménagé de 4
 ‘44 Renan, la sortie de Renan, l'évacuation de Renan, la 304
 1 transition et l'aménagement de Renan, les premiers pas #0
-N'ES é LAYU 40) DER à
 
 4 AU PARTI INTELLECTUEL | » et les premiers établissements de Renan dans la vie ;
 ; laïque, toute son installation dans la vie de tout le
@@ -283,16 +180,10 @@ hi: au contraire chez les ennemis apparents et officiels et
 " naissent au cœur des apparentes amitiés, ni les corres-
 
 2 pondances profondes qui lient par en-dessous des ini- 4
-12 mitiés apparentes.
 
 0 En quoi faisant l'Église n'avait d'ailleurs aucun |
 A: mérite particulier à l'égard de Renan, car elle ne faisait
 
-4 9 parti intellectuel. — 1. :
-
-Vel . 4
-
-£ id Charles Pégay US
 1 que suivre à son égard, et à cet égard, sa politique À
 AR générale, au moins sa politique générale comme elle 4
 a nous apparaît dans les temps modernes, peut-être sa à
@@ -314,7 +205,6 @@ he, affaire arrangée, et que l'on n'en parlera plus, une poli- ÿ
 1 tique de mutuel honneur et de modestie et de silence, 1
 Ÿ avec le minimum de foudres et d'excommunications, À
 ñ mineures, de fulminations, comme les nommait Clemen- }
-ï ceau : romaines. pi
 di De sorte que l'on pourrait bien plutôt lui reprocher
 ee de manquer de dignité, que de bonté, de bonté _
 Ï humaine, comme on bêle aujourd'hui, lui reprocher de mi
@@ -326,10 +216,8 @@ prement la politique de Néarque. Tel est en effet le FA
 retentissement de ces grandes œuvres du génie fran- Ke]
 ï çais, à toutes distances, à des distances infinies, que |
 mu l'on n'a rien de mieux à faire, et de plus évocateur, et se
-) 10 2 |
 
 PE PE A et io
-tÜ Ÿ AU PARTI INTELLECTUEL
 ù de plus juste, que de reprendre, aujourd'hui comme
 ÿ hier comme demain comme toujours, que de simpled , ment reprendre un nom propre de l'un de ces personj nages éternels. Et même et autant de l'un des moindres
 74 personnages, de l'un des personnages mineurs. î
@@ -344,20 +232,16 @@ pour parler ainsi, et l'on me pardonnera ce que je vais
 ; du scandale individuel et de l'individuelle apostasie, au
 D. moins moderne, l'Église, au moins moderne, aujourd'hui
 ï ne procède évidemment plus que par la politique de
-! Néarque : ;
 Il ne commande point que l'on s'y précipite.
 On ne peut évidemment dire qu'elle s'y précipite. Et
 | encore :
 Il suffit, sans chercher, d'attendre et de souffrir.
-5 Et encore : :
 | Mais dans ce temple enfin la mort est assurée. F
 Et encore :
 | Par une sainte vie il faut la mériter.
 | Et la politique très précisément mise en méthode :
 Ménagez votre vie, à Dieu même elle importe:
 Vivez pour protéger les chrétiens en ces lieux,
-II Xi
-Y
 
 ; Er . La politique religieuse. La peur de la persécution : \aie de see
 (3 ÿ Je ne puis déguiser que j'ai peine à vous suivre. # 1e
@@ -376,7 +260,6 @@ _ les devoirs extraordinaires ou d'élection : 1
 -W° Le théologie; argument culminant, particulièrement ne di
 _ bien situé, à la culmination du débat : ia de
 4 ‘À 5 ° Dieu même a craint la mort. a ‘à
-UN f:120
 DA Pour l'effacement du scandale au moins individuel au 4
 ‘4 moins moderne l'Église aujourd'hui ne procède plus que S Va
 _ par la politique de Néarque. Nous le voyons par tous “PR
@@ -390,7 +273,6 @@ M il Agrémentés de quelques semis de véritables escrocs. à ds à
 ne Je dis sous-gouvernement parce que tout le monde 1
 _ Sait que toutes ces machinations grossières de scandales à
 
-F ds % Lis (4 ft To 1 el PARTI INTELLECTUEL FrAUR Fe dé
 1 ne viennent point tant du gouvernement, surtout de celui à )
 4 que nous avons failli avoir, que d'un sous-entourage, à
 4 d'un gouvernement occulte, qui travaille en-dessous, #0
@@ -423,7 +305,6 @@ D, Il y avait bien journalisme, feuilleton, reportage, inter- DE
 Ne tout cela était pieux, très exactement édifiant, la faute hi
 ‘4 et le repentir, le péché puis la contrition, le désolement HAS
 
-AUS Charles Péguy A PTE ANNE RENE Mises
 et le désarroi du pécheur, la détresse, les consolations
 durite, enfin tout à fait une histoire pour pensionnats. ‘1
 ‘1 6 Et le repentir jusqu'au sein de la fente CREME un peu | 4
@@ -454,9 +335,7 @@ qur conduite immédiate, et même anticipée, antérieure, je 1
 118 veux dire sa conduite au moment de la séparation et #
 # même dans les lentes préparations de l'éloignement, #]
 | k que toute cette conduite suppose admise une hypothèse, A
-SPP ” #2 CF)
 
-id AU PARTI INTELLECTUEL
 : accordé un postulat, qui par un singulier retournement
 ; se trouve être précisément celui-ci : que l'histoire,
 laïque, moderne, a une importance, une vérité, absolue,
@@ -466,7 +345,6 @@ He comme prince des historiens toute une principauté de
 fu gouvernement absolu que dans nos recherches pré-
 é sentes et ultérieures nous verrons justement qu'ils n'ont
 
-point.
 Et ce n'est peut-être pas la première, mais assuré- $
 | ment ce ne sera pas la seule fois que nous rencontrerons, tout au courant de ces longues recherches, que x Ë
 l'Église moderne a dans ces débats une situation beaucoup plus moderne que chrétienne, quelquefois toute
@@ -487,11 +365,7 @@ au moins, et peut-être dans tous les temps, elle n'a #1
 Ou plutôt et ensemble et sans même les séparer beau- ‘4
 coup, Renan était pour elle et une puissance intellec- !
 tuelle, et une puissance temporelle; et une principauté À
-k Ur
 3 4
-
-. 4 E21
-Charles Péguy ‘
 
 intellectuelle, et une principauté temporelle; tout cela
 se résumait, se ramassait, se recoupait dans la chaire J
@@ -518,14 +392,9 @@ quelques années diminué sa mémoire les manifestations
 saugrenues organisées autour de son nom par les politiciens de l'anticatholicisme.
 
 L'Église, elle, n'avait point, au fond, cessé de le traiter
-respectueusement. :
 
 Parce que l'Église et lui, au fond, continuaient à tra-
 
-16 l
-
-4e bn ' _ AU PARTI INTELLECTUEL MR
-DE + AND
 …  vailler dans la même partie. Et eux au contraire étaient Le 4
 D - si étrangers à tout cela. :UR
 ‘4 Tu es christianus in aeternum : Renan le lui a bien 4
@@ -559,7 +428,6 @@ L: même, dans ces histoires, combien de précautions, #34
 ‘44 combien de sous-entendus, combien d'avertissements, as
 ‘4 combien de regards d'intelligence adressés aux autres, 11
 
-41 SATÉER EM D |:
 : 10 < aux catholiques, et aux anciens catholiques, générale- ‘3 à 11
 ds à ment aux chrétiens. Comme il semble leur dire : Vous : 1
 fe 7 voyez ce que j'écris, parce qu'il faut bien écrire pr HAS | ‘
@@ -572,7 +440,6 @@ no de la vie intérieure ne me sont point devenues insoup- À j
 10 le siècle. Il faut bien que chacun mange le pain tempo- 4
 « 10 rel. Maïs vous qui me connaissez et qui savez me lire, 4
 FE vous ne vous y trompez point. Je ne vous y trompe 4
-Hi. “ point. #
 4 Nous ne nous y sommes pas trompés: les Panbéotiens 4 :
 fi redoutables de la Prière que je fis sur l'Acropole, nous on
 (AP les avons reconnus : ce sont très exactement les Li
@@ -591,7 +458,6 @@ k généralement chrétiens. Juifs aussi, premièrement Juifs, 4
 A. loi. Serviteurs de la première et de la deuxième Alliance, |
 s de l'ancienne et de la Loi nouvelle, voilà pour qui juste- & |
 
-j AU PARTI INTELLECTUEL ? Fe
 14 ment il écrivait. Nullement pour les modernes, comme s.
 N tels, et faisant leur fonction de modernes. Là est le |
 FA secret de sa vie et le secret de son œuvre, si inquié-
@@ -623,9 +489,7 @@ exception, il court tout au-dessous de l'œuvre comme li
 : sont ces points d'apparition comme involontaire qui se Re
 1 reconnaissent aussitôt comme des points essentiels, capi- } 4
 | 19 à
-ÿ pose
 
-is Charles Pégay 4 bb
 ‘à ù | taux, comme étant, eux seuls, ces points de discernement. He k
 où un lecteur averti attend une œuvre et un homme. os
 21 Combien tout cela n'est-il pas plus vrai encore, et DR
@@ -650,17 +514,13 @@ AU sont les certitudes qui croissent de certitudes en proba- 116
 4 non juif, d'entendre rien, d'intercepter quoi que ce soit, … LR
 Le comme moderne, lisant comme moderne, enfin ne oi
 Fe recueillant qu'au titre de moderne, à ces œuvres confes- ‘a
-à É “ sionnelles. “RUES a ;
 a Et, d'ailleurs, comme on reconnaît aisément que ces
 4 œuvres véritablement confessionnelles sont en fin les YU
 ‘440 œuvres de la confession propre de Renan. 00
 ue Le style même : il y a dans toute l'œuvre de Renan À
 À hf des ‘phrases, des mots, des formes de phrases, des 5
-DU 20 + RUE
-RABRES 2e _ LUNA ENRRES
 
 ei ll fl ji Sa AE NÉS a al déc PROS
-ASS AU PARTI INTELLECTUEL " "à
 dE. expressions qui courent en-dessous et qui parfois 78 ;
 h  affleurent, qui sont du langage catholique même et 1208
 | À généralement chrétien, qui ne peuvent s'adresser qu'à 4 4
@@ -699,7 +559,6 @@ scientifique, d'un mépris, füt-il justifié, dont on est Rs.
 lc enfin où son inventeur l'a tenue. Nos modernes, qui ne sr
 4 ÿ fe sont naturellement point clairvoyants, ont tout fait ici, 24 N
 Fi tout ce qu'ils ont pu, pour aveugler encore ici leur ts
-‘10 inclairvoyance naturelle. va à
 ' d à Nos modernes ne pouvaient naturellement point ne à
 1 ÿ ignorer ces œuvres de Renan, compromettantes, et 450
 10 dans tous ses autres ouvrages ces passages compromet- D.
@@ -716,18 +575,13 @@ nt naturellement très malins, ils n'eurent point de peine à « Ni
 0 des explications modernes. C'est-à-dire grossières, pri- | a
 4 maires, notoirement, grossièrement insuffisantes. Ils * Da
 ne ont dit. ne.
-« 8 L \. ‘4
 u À Tantôt ils ont dit que c'était par habitude; et cette Ë 41
 0 Ë explication par l'habitude serait parfaitement recevable, 1 )
 ï \ ges au moins pour une partie, et pour une bonne partie, si Pia
 ‘40 ce mot même d'habitude ils ne l'avaient entendu en un 3
 4 grossier sens moderne, au sens d'une habitude scolaire, ! 34
 0 d'un pli intellectuel, d'une sorte de manie, profession- 2:40
-4 TOR 22 41
-Pr TNTER PA AC |
 
-à RU due AE sui Te Re Sc ho
-4 AIO AU PARTI INTELLECTUEL | EL
 À nelle, plus que professionnelle, professorale, univer- ‘
 pe sitaire, à l'extrême limite, et en lui faisant, à lui ‘4
 À } Renan, beaucoup d'honneur, d'une manie d'homme de ï
@@ -756,17 +610,11 @@ s une certaine habitude, aujourd'hui, depuis le commence- ; Le \
 À ment de leur triomphe, et à cette heure, depuis le com- °:04
 4 mencement de la grande misère temporelle de leur Fe
 { ; ennemie l'Église, d'avoir avec eux, parmi eux, aspirant il ie
-FE aux premières places, aux meilleures places, aux places « ke
 1 = de gouvernement, obtenant les places de commande- : 1
 4 ment, un contingent croissant de ceux qu'ils nomment ES
 4 communément, et grossièrement, des défroqués. RE.
-1 33 à #4
-À » 2°
 
-Charles Péguy
 Renan, dans cette hypothèse, comme on dit, serait un |
-défroqué. ë
-Ÿ
 Non seulement un défroqué, mais il serait le prince j
 et l'ordonnateur, l'ordinateur des défroqués, le premier ô
 de tous, le premier en date et le premier en dignité, |
@@ -796,7 +644,6 @@ puissances politiques et parlementaires, qui sont à leurs î
 yeux les puissances essentielles, qu'ils croient au
 conträire avoir grandement augmenté Renan quand ils
 
-: 0 D AU PARTI INTELLECTUEL DÉS
 “ ont fait à ce grand historien l'honneur de le considérer “4
 ; comme l'auteur et comme l'initiateur, comme le père et a
 À l'éditeur de cette engeance. L'éditeur étant, bien entendu, # to
@@ -829,8 +676,6 @@ F moderne et de la Science: infaillible et définitivement 10
 | . auprès des Trônes et des Puissances, auprès des Vertus, te À
 | auprès des Intuitions, Domajnes et toutes Royautés que KO
 | de droit de toute la Vie intérieure. Il sera reçu encore b
-29 parti intellectuel. — 2 Ris
-à Len
 
 is à dans le monde des Principautés, mais au titre étranger, ; FE
 ne 4 au titre de représentant du peuple et de délégué de la "4
@@ -865,18 +710,15 @@ Wi, sé une fortune qui fût la première dans l'ordre des fortunes A
 14 ses élèves, comme ses simples imitateurs. M
 ! À On se rattrapait sur sa mémoire et sur la glorification on |
 
-D : AU PARTI INTELLECTUEL De.
 É' N de sa mémoire, puisqu'il était malheureusement mort “4 %
 L: de sa personne avant le triomphe et avant la fête. 1 Hi
 À C'était d'ailleurs plus sûr, car on pouvait lui faire, à sa ‘140
 ‘4 mémoire, de ces apothéoses que, vivant, il n'eût peut- 6%
 1 être pas laissé passer tout de mème. On pouvait lui h
 4 attribuer des propos et des sens que vivant il n'eût sans EN
-ù doute point laissé passer. $ ‘hi
 4 On pouvait lui dire, et lui faire dire, ce que l'on vou- 4 À
 4 lait. On était sûr, au moins, qu'il ne répondrait pas, 4)
 4 ni ne protesterait. : 11
-‘à #4
 ‘4 Cette idée, particulièrement, était celle de ces imita- ‘14
 1 teurs eux-mêmes, qui souvent, — et très souvent en M:
 1 toute conscience, en toute sincérité, — s'autorisaient de sue
@@ -897,10 +739,6 @@ F clergé français, toutes les fois qu'un clerc sortira du F8
 D4 méme chose que Renan. V À
 ee À Et pourtant il y a aujourd'hui deux raisons pour-qu'ils We ”
 ‘4 { ne fassent pas la même chose : la première, l'ancienne, É. é
-(8e RICE:
-EN : 3. LU RHNÉIR
-
-Re lu Charles Péguy pi nn Gé;
 
 i ‘ est qu'ils ne sont point Renan; la deuxième, la nontt Of
 RE Rue velle et récente, est que Renan ni les hommes deson pi
@@ -936,9 +774,6 @@ dé. singulière continuation, ce sont ces anciens légers dé- RUE
 À th les trouver dans les heureux successeurs, ils ne cessent }: 0
 “40 . point non plus de les retrouver dans Renan le père; et A à
 100 ils ne manquent pas de les lui pardonner, car ils sont ni :A
-AUX | “#4
-
-LME TE , dt 1 RAR LA
 
 @ _ bons enfants, gais, joviaux, et ils sont secrètement ‘4 k
 _  honorés d'avoir dans leur monde des personnes aussi 5540
@@ -964,7 +799,6 @@ k opération, mais qui dut à cette opération de devenir un L EX
 É de l'Église, avait quelque droit de rester un prélat. Re: de
 g Telle est leur explication que l'on peut nommer l'expli- D;
 4 cation par l'habitude. C'est une excuse autant qu'une : 1e
-_ explication. ‘
 
 ; Ils ont dit tantôt, ils ont dit aussi, —et ce sera là l'excuse % :
 _ et l'explication par l'intérêt, — que si Renan avait con- ‘18e
@@ -975,12 +809,8 @@ unes deses œuvres ces certaines formes ecclésiastiques, En 0
 
 _ taire, d'une sagesse filleule de celle du vieil Ulysse, cet 14 é
 ne. autre navigateur, ce Grec Breton mâtiné de Normand, D
-EN 29 parti intellectuel. — 2. ; 04 ;
-
-Fi Hi ; C0
 
 ‘ai A Charles Pépay UN OUR 4 Nr h
-4 HE ASP AE
 18 Rs que c'était en somme pour sauvegarder ses plus simples  « 15 intérêts. Ils savent leurs dates. Ils savent leurs filia- “4
 ft PL: tions. Ils n'oublient point que si Renan est leur initia- 4
 ni A teur, cela veut dire par définition qu'il avait commencé
@@ -1003,7 +833,6 @@ ne ment pendant le temps où elles coururent un véritable ‘1
 ri aussitôt que nous eûmes acquis l'assurance que quelques tu
 104 sots les avaient définitivement tirées d'affaire, il n'est ÿ)
 1 pas étonnant que notre maître, en des temps moins î
-“4 gouvernementaux, ait pris quelques précautions. Ia »
 ‘A conservé certaines formes qui plaisaient aux anciennes :
 ÿ clientèles, en un temps où il était indispensable à sa À
 à gloire, à sa puissance, à sa réussite, à sa sécurité 4
@@ -1012,10 +841,8 @@ ri aussitôt que nous eûmes acquis l'assurance que quelques tu
 bi réactionnaires, mais il faut bien vivre, — le cou- ñ
 10 vrissent au moins de leur indifférence et presque d'un 4
 | f reste de fidélité. en
-bee CAPN
 
 à ie ii PR EUUR ji Fr $ NE gk: FD PRE AU di à PE A : | oi
-LAURE _ AU PARTI INTELLECTUEL CO A
 É à Ils parlaient ainsi, méconnaissant leur maître. Ils "4
 ‘4 peuvent croire qu'ils font la même chose que Renan, 20
 ‘À mais nous avons, nous aussi, une assurance; nous ne
@@ -1049,7 +876,6 @@ j3 par ailleurs, en vérité. En réalité. Car en un sens il est D
 E: aient raison, qu'ils disent vrai. Ils ont raison, quand ; Be
 4 même ils auraient tort. Ils disent vrai, quand même ils #4
 
-11405 ! CRAN" Fe ap VERS NNNNEEEEE
 ÿ n ‘3 mentiraient, ou quand même ils feraient erreur, quand ji nn
 1 même ils se tromperaient, et quand même ils trompe- nt A
 4 b, raient. C'est une question qui a été fort agitée que de NO
@@ -1083,7 +909,6 @@ ne il que notamment ses fils et que ses produits eussent de
 ‘4 ‘4 il a véritablement commis ce crime, d'avoir une descen- ;
 ns : dance qui en viendrait à parler mal, à penser mal de k
 
-DO AU PARTI INTELLECTUEL qu
 Le _Ini. En ce sens toute accusation portée contre un père Du.
 À par ses fils porte, car il est coupable au moins de ce "A
 _ crime le plus grave, le plus essentiel de tous : préci- 4h
@@ -1127,7 +952,6 @@ LV. dans l'ascendance, au cœur de l'ascendance, et vaut. 160
 ‘4 pour qui sait, plus redoutable. Elle a une valeur délé- C0
 guée, qui remonte à l'auteur de sa délégation. Rien “00
 
-0 | Charles Péguy (POS AU
 ‘4 n'est mortel pour une ascendance comme ces témoi-
 ï ‘10e gnages de tare intérieure qui sortant pour ainsi dire de À
 ne l'intérieur même de la race remontent vers le passé des
@@ -1138,7 +962,6 @@ me. rapidement le présent. Car on vieillit, vite. Rien n'est À
 Va du bourgeon censément le plus éloigné ressortent, M
 BR ayant remonté par un cheminement intérieur à rebours,
 ‘4ù jusque sous l'écorce du tronc. Singulière, mystérieuse 4
-Hi répercussion végétale, retentissement mystérieux, re
 à broussement de l'arborescence qui par la canalisation 4
 il ï de la sève remonte obscure du plus petit bourgeon le” 1
 1 plus éloigné, le plus inaperçu, jusqu'aux artères maïi- \ 4
@@ -1160,9 +983,7 @@ Fa ment, temporel, qui puisse atteindre un auteur, véreux; À
 ‘a par le fait posthume ultérieur, qu'il est véreux, en effet, Di
 A qu'il avait une tare secrète intérieure, qu'il avait réussi l
 il jai à masquer aux regards de ses contemporains, qu'il ‘4
-10008 K
 
-4 k AU PARTI INTELLECTUEL Re
 De. î VE » n'avait peut-être pas vue, qu'il ne connaissait peut-être Ai
 
 D pas lui-même, que ses proches les plus proches ne con- 1
@@ -1213,21 +1034,14 @@ sances extérieures. Symétriquement cette nouvelle malé- hs
 .  réprouve, contre le père, et avec une autorité d'autant 4
 + plus poignante et d'autant plus monstrueuse que c'est 14
 
-e 11138 Pa
-
 LyeNT el AAA (a Al M à Eu id Hi ee ; A4 NE 8e EAU
 EEE Gharles-Pégay SUR
-ti AE k : HT an MAS
 40 celui-là est son propre père et ten
 | ii PRE Pr UE enversement du respect F4 40
-! à NT : UX ET AU
 di) la fait un monstrue Ê KEANE
 RAS cela : à des puissances 11,70
 Pate : traire, à des p: AU EN
-LAS filial, en faisant appel, au con ane es, pré |
-ca î c puissances intérieures communes, pré- sl
 M: intérieures, aux pu TU ui lui sont com-
-à fl AE puissances intérieures q t
 > YU cisément aux pul: nas MS 1 profonde ‘4
 1 à Oil pan ou ce DS intérieures 14
 ù Fi communauté, puisqu'il ni génération, et cesont elles … Ra
@@ -1236,35 +1050,24 @@ M: intérieures, aux pu TU ui lui sont com-
 11 qu'il retourne contre lui, par un lonté,sansinten
 HA: ise volon! ni
 À ne sans effort pourtant, sans mauvais sq suffit qu'il
-‘it 4 A ême ;
 ii tion, sans volonté peut-être Ho di des puissances À
 #10 5 esta À
 1 min agisse par une simple mani Hipas tion 4
 du s IAE Et c'est ce qui fait cette ac ; : 4
-QE Ut ommunes intérieures. , nt b
 Ut " : trueuse si redoutable, qu'on se de.
-4 tte réaction monstru j io CU
 fe 4 ce Û ne qu'elle na pas beso 1
 1 ‘à qu'elle n'est point ni aître pour triom- A.
 11e : lue. Qu'elle n'a qu'à par 4
 1 d'être voulue. là, de l'ancien au moderne, un Ÿ
-1e 1 7 aiment là, | ‘i
 MU pher. Il Via vr s où che- 4
 LUM : ement du sen }
 ne retournement, tout un xhperS est plus le sang des .
 4 .  minent les responsabilités. Ce 7 es, qui retombe sur %
 né ne pee M en : sang des ebfante MR Â
 : 0 les enfants; c'est Dr e éinés: rémonté SR
-70 ! : is dans les v n 4
-21 1 transmis j Ÿ
 DA versé, qu à iginelles, et qui avoue, qui RS
-140 source, aux artères, orig ' do 44 SOC
-10 k : i secre à $
 di dénonce sa source, qui) trahit je réprouvé dans ses |
-1 PAUSE È A A
-\i PUUNARNIPNUeUe Aa ns ingtième
 ‘1 LR isième et jusqu'à la ving
-‘110 tte bi à Fe. ingtième génération au
 1 (1 génération. Mais c'est la vi sh jusque eds 1e UE
 1 contraire qui remonte et bg fi ji À cette MO ation ne
 à NA de l'auteur cette contre-malé N ie contre-indication {
@@ -1273,10 +1076,7 @@ SI formelle du moderne à l'ancien. AR D
 D: à ère, je suis blessé dans mes sentim +4
 118 de ses père et mère, j AU
 rai on s 43
-MeV: k ji 1.1 CARRE
 
-NN
-AU PARTI INTELLECTUEL a
 les plus profonds, j'ai l'impression d'une impudeur, 33
 peut-être la plus grave de toutes, et d'une indécence ;
 | mais moderne je l'en crois : car ils sont coupables,
@@ -1306,15 +1106,9 @@ dedans du ver d'ingratitude, au moment originaire
 , sabilité générale que nous avons rencontrée sur notre
 chemin, car le bienfaiteur, l'auteur d'un bienfait, est ;
 k aussi, est en cela même l'auteur de celui qui recoit le
-à
-4 37 au parti intellectuel. — 3
-re *
 
-me. Gharles Péguy "Fr Li
-4 è bienfait, au sens étymologique, au sens véritable dece 4
 11% mot d'auteur, que je crois que j'ai reconnu dans un
 
-‘10e travail précédent. . si
 ‘14 Ils sont coupables, d'avoir eu ce fils, qui parlerai
 710 ainsi. En ce sens et dans cette mesure quand les mo-
 
@@ -1347,7 +1141,6 @@ CONS ait commis cette grossièreté beaucoup plus profonde, ni
 . cette grossièreté essentielle, cette grossièreté mère k
 ‘4 i d'avoir donné la naissance à ce peuple de grossiers qui $
 
-4 AU PARTI INTELLÉCTUEL 108
 - Jui attribueraient un jour ces grossièretés, qui seraient A He)
 _ assez grossiers pour les lui attribuer; en ce sens et dans | ne. ;
 - cette mesure la cérémonie de l'inauguration du monu- ES
@@ -1371,7 +1164,6 @@ _ point d'aboutissement d'un cheminement continu dont le L. a
 - pas un seul instant perdre de vue les explications, les U à F4
 kb. lectures, les interprétations, fussent-elles grossières, ‘ Eee
 _ qui nous assaillent montant de toutes parts de ces M
-_ innombrables postérités. "2
 ne LR
 * Nous ne devons pas perdre de vue l'explication par jé Ra:
 _ l'intérêt. D'une part c'est une explication qui est vraie De:
@@ -1379,7 +1171,6 @@ _ l'intérêt. D'une part c'est une explication qui est vraie De:
 F intéressant, c'est une explication qui est vraie comme . ‘va
 représentation d'une tare ancestrale intérieure. Ainsi 1:10
 
-Charles Péguy i
 entendue, en ces deux sens, au sens intrinsèque, et au À
 , sens d'une représentation de la responsabilité, cette À
 
@@ -1412,7 +1203,6 @@ puisque c'est une explication par l'intérêt, une explication étroite et infer
 organique et particulièrement psychologique, ouvre, à
 | 40
 
-AU PARTI INTELLECTUEL
 _ qui veut remonter à sa source, tout un courant, tout un |
 … fleuve d'explication beaucoup plus intéressante et beau-
 À coup plus profonde.
@@ -1449,7 +1239,6 @@ RU ‘Charles Pég ON
 à é 14 ? son propre deuxième commencement en luimême avaît | ‘4
 1 : 1 reçu, avait conçu cette habitude indélébile de parler, de 4
 “10 , penser un certain langage de la vie spirituelle; non pas
-dr $ . seulement depuis Saint-Sulpice, depuis quelque petit
 4 Fe séminaire breton, depuis quelque petite cure de village 1
 :52 départemental, depuis son baptême et depuis quelque
 tr, destination à l'état ecclésiastique, mais de beaucoup
@@ -1480,7 +1269,6 @@ l de 4 il n'avait point un tel goût de l'injustice qu'il eût î
 51 consenti à faire du tort à Renan. Qui était un si bon
 M À homme, et si intéressant. Cette opération aussi fait mal, L
 
-Mn av PARTIE INTELLECTUEL M.
 F1 beaucoup de mal. Et n'ayant point l'âme insensible, il 7400
 La eût fait beaucoup d'autres choses, plutôt que du mal k ;
 . à M. Renan. Renan n'avait nulle envie de couper  :
@@ -1514,20 +1302,12 @@ RH. par habitude elle-même et par naissance, né, demeuré Es 4 4
 … aimait, il conservait les siennes. Et quand même il ne ni 5%
 . les eût pas aimées et conservées naturellement et 400
 ._ par habitude, il était trop intelligent pour ne pas 1 318
-+ savoir quelle nourriture substantielle, quelle pâture ï #0
-; 3 4e
-
-aisé MRC EURO RES |
-
-Li Charles Péguy 4
 
 ne alimentaire cette religion, qu'il allait quitter ou qu'il 1
 
 “ venait de quitter, continuerait à fournir à la consom- ÿ
 
 fe mation de son talent et ainsi à la préparation de sa 4
-
-as - gloire. k
 
 4 Les soldats, disait sensiblement l'ancienne théorie, +
 
@@ -1584,13 +1364,7 @@ ja aussi pour savoir qu'à lui plus qu'à personne il était
 
 ii écriture, dans son arrière-langage, lui donnerait sur ses
 
-EL e ‘nl
-
-A CPR ee om
-LA AU PARTI INTELLECTUEL e
 | nouveaux amis, Sur ses nouveaux partisans, sur ses
-; nouveaux élèves. ;
-b
 à Et il n'est point certain, le malicieux vieillard qu'il
 ! avait toujours été, que de toutes les supériorités qu'il
 À prétendait obtenir ce ne fût point celle-là, cette*supé-
@@ -1602,7 +1376,6 @@ de la continuation des autres. Je me disais que le vieux
 L manuscrit serait publié après ma mort. et que de là
 ; peut-être viendrait pour moi un de ces rappels à l'attenx tion du monde dont les pauvres morts ont besoin dans
 la concurrence inégale que leur font, à cet égard, les
-$ vivants. ;
 û Il y a deux sortes d'amis: ceux qui veulent l'em-
 È porter sur leurs amis, se faire supérieurs à leurs amis,
 commander à leurs amis, primer, dominer, exercer sur
@@ -1615,9 +1388,6 @@ car ils sont ennemis au contraire, infiniment plus >
 # les autres ne pensent pas même à se comparer à leurs
 amis, parce qu'ils savent que l'émulation même est mau- |
 id vaise et que ce que l'on nomme de ce nom d'émulation |
-45 parti intellectuel. — 3. j
-
-ÿ
 
 0 ë n'est jamais que le déguisement de l'envie originelle et #4
 4 de de la vieille jalousie ; ceux-ci ne pensent pas à se faire :1
@@ -1680,9 +1450,6 @@ e et de la domination que de la gloire politique, — ou 14
 B Science : que ce livre est un livre de parti, un livre Le.
 4 d'homme de parti, et, sourdement, un livre d'homme de 48
 | : É LE
-"FOSC 14: URE Vi
-
-Pr Charles Péguy WU
 
 il parti qui ne demandaït lui-même qu'à se faire des par- 1
 
@@ -1734,7 +1501,6 @@ po de nous. Car c'est pour cela, c'est par un effet de cette
 
 Ù parenté, de cette unité, de cette continuité, de cette
 
-Kiss AU PARTI INTELLECTUEL “1
 identité, entre l'autorité de commandement intellectuel |
 ' et l'autorité de commandement politique parlementaire F
 j et gouvernemental, que tant de jeunes gens autour de
@@ -1748,7 +1514,6 @@ premièrement pour ne pas faire leur classe, dans un
 I département, deuxièmement pour exercer, pour chiper
 une parcelle de pouvoir politique sur les serviles Fran-
 ; çais. Il faut croire qu'il y a dans l'exercice de la domination politique une jouissance, une sorte de délice
-: inconnue, inaccessible aux véritables hommes d'études,
 aux hommes de travail et d'œuvre. La preuve en
 serait encore dans la facilité, dans la continuité avec
 laquelle nous voyons que partout autour de nous les
@@ -1794,10 +1559,7 @@ hi De cette connexité de la domination intellectuelle et 4
 “4 h mentale, venue de leur profonde unité, manifestation
 # à extérieure, déjà grossière, et un peu superficielle, de 4
 14 leur identité même, de leur communauté de source pro- À |
-hi, 50 À
 
-:1 si AU PARTI INTELLECTUEL nc:
-x +2
 Î fonde comme étant une communauté de vice, nous à 7
 venons justement d'avoir une illustration la plus écla- 4
 | tante. Il avait été mille fois entendu, promis, juré, mis Di
@@ -1817,7 +1579,6 @@ Il faut à ce titre considérer comme un des plus grands LR
 événements du temps présent non point le discours de N: #
 M. Viviani, le nouveau ministre du travail, récemment “5
 . : affiché sur nos murs, mais tout un passage de ce 4
-discours. 1
 | Un peu déshabitué de la tribune après, je crois, huit LS
 A années d'absence, demeuré juvénile, très allant, et ami : 3
 5 de la période oratoire et de la littérature éloquente Due
@@ -1829,7 +1590,6 @@ amis, politiques ou amicaux, ce que n'eût point fait un ner
 . ! llnstruction publique et des cultes, un homme ïinfF niment plus délié comme son collègue de l'Intérieur et 4
 président du conseil. ‘is
 à Ce que ni Briand ni Clemenceau n'eussent fait jamais, 4
-FU
 
 Fe \ Charles Péguy MA
 û : c'est précisément cela que M. Viviani a commencé par É
@@ -1838,7 +1598,6 @@ f de ministère, pour son installation, et aussi pour sa }
 $ rentrée à la tribune : démasquer ses batteries, parlant 1
 au nom du parti intellectuel, révéler, dénoncer, victo- {
 { rieusement annoncer l'arrière-pensée du parti intel- à
-Fi lectuel. É À
 1 Un très grand nombre d'intellectuels avaient déjà
 h mangé le morceau. Maïs aucun d'eux n'avait jamais
 NE encore parlé au nom du gouvernement, officiellement et L.
@@ -1865,10 +1624,8 @@ Chambre, aux applaudissements d'une immense majo-
 première fois un membre du Gouvernement est monté
 à la tribune et a déclaré, officiellement et en titre, a
 
-si AU PARTI INTELLECTUEL 1e
 k : proclamé, solennellement, non seulement que le parti £
 ‘] intellectuel se proposait d'asseoir sur le monde une 4
-É domination philosophique, religieuse, métaphysique,
 û mais même qu'il y avait réussi pleinement. é
 sl Cette déclaration, officielle, cette solennelle procla- 1
 : mation est d'autant plus intéressante, si elle n'était pas
@@ -1878,7 +1635,6 @@ l d'autant plus imprévue, que M. Viviani n'étant point à
 à comme le manifeste d'un ralliement, d'autant plus signi- ,
 ficative. M. Viviani a vraiment porté la parole pour le |
 parti intellectuel, s'est vraiment fait le porte-parole du “
-! parti intellectuel.
 Cela n'a pas suffi, a dit le nouveau ministre, et alors
 
 nous nous sommes attachés à une œuvre d'anticléri-
@@ -1901,9 +1657,7 @@ ministre qui l'a dite, même après la loi de séparation. »
 ‘# ministre du travail, ô courriériste parlementaire, simple l
 journaliste officieux. Oui je vous crois, Ô journal et jourh naliste, que ce fut formidable, même et surtout après la |
 loi de séparation. Car cette annonce fait tout le contraire F
-Î dé - {00
 
-\ « D HE ÿ CRAN j Pégwy dub di à RER
 d'une séparation. Nous ne saurionstropnous applaudir
 ; ‘à ici que le grand journal du matin ait été plus perspicace à ne 1
 +30 que nos députés parlementaires. Qui ne semblent point ë ‘4
@@ -1912,7 +1666,6 @@ LS s'être alors aperçus, alors ni depuis, que ce fût formi-
 ; fs _ par habitude fatiguée, sans conviction. Ils sont telle- À
 i ‘4 ment gauches et mal habitués de n'avoir plus le gou- 1
 __  vernement qu'ils ne savent plus rien reprocher au gou
-à 4 _  vernement. 4
 { 1 Une déclaration ministérielle aussi officiellement, aussi }
 108 souverainement faite à la tribune, dans une séance À
 __ aussi pleine, aussi attentivement attendue et suivie, une 1
@@ -1925,7 +1678,6 @@ _ d'un ministère, dans toute la pleine et solennelle inau- k
 Li | guration d'un ministère, d'un département ministériel
 _ nouveau, a comme une deuxième solennité, une deuxième Ÿ
 :30 valeur de solennité. Parce qu'elle marque un com- À
-‘à _ mencement. }
 ja Qu Une déclaration ministérielle aussi solennellement N.
 1008 affichée, — si prodigue d'affichages que la Chambre se È
 fée Fa soit montrée en ces derniers temps, et qu'ordinairement | 1
@@ -1949,7 +1701,6 @@ L, lui avons dit qu'il n'y avait, derrière les nuages que +.
 À poursuit son regard douloureux, que des chimères à À à
 À célestes, et d'un geste magnifique nous avons éteint, 1e
 dans le ciel, des lumières qu'on ne rallumera plus. ne
-à (Applaudissements prolongés à gauche) 210
 on « Maintenant, l'œuvre commence aujourd'hui; car que à ie
 
 4 répondrez-vous à l'homme, à qui nous avons arraché sa # 4 1%
@@ -1958,8 +1709,6 @@ on « Maintenant, l'œuvre commence aujourd'hui; car que à ie
 Ë tous les jours par le contraste qui fait de lui à la fois +0
 
 L un misérable et un souverain? » 50
-
-1 RES
 
 4 Je ne le lui fais pas dire. Et enfin plus loin : Ô 4
 
@@ -1983,10 +1732,7 @@ L un misérable et un souverain? » 50
 À pect d'avoir voulu jouer un mauvais tour au nouveau F. De
 
 . _ ministre. Il ne tend au contraire, tout son effort ne tend, #4
-+ ‘TT
 
-RS Charles Péguy ; VE
-ire } k 4
 4 dans ce numéro et dans les numéros environnants, tout s
 Ji son effort, toute sa combinaison, toute sa présentation, 5
 1 t ne tendent qu'à le faire mousser, comme ils disent. Ils 1
@@ -2022,10 +1768,7 @@ iS existe qu'un romantique nous présente comme étant F
 NT dans le ciel, des lumières qu'on ne rallumera plus. |
 ji Ceci est nouveau, dans le verbe, et cette nouveauté {
 dans le verbe ne fait que souligner, représenter,
-EN # “ À LALA
 
-1 É
-AU PARTI INTELLECTUEL “
 comme il arrive toujours, une correspondante nou-
 | veauté, dans le geste, une innovation du geste lui- : à
 même. Le vieux père Hugo et à sa suite un nombre 4
@@ -2034,12 +1777,9 @@ de tirer pour la joie de nos regards et pour l'éblouisse- +
 ment de nos yeux un nombre incalculable de métaphores
 du pacifique métier d'allumeur de réverbères, devenu
 avéc le temps et par le progrès de la civilisation le mé- +
-tier municipal d'ouvrier demi fonctionnaire d'allumeur
 de becs de gaz. Hugo menant la grande bande et “4
 sarabande des romantiques nous avait bien habitués t |
 à cette spécialité de métaphores. Et dans la grande
-boutique \
-Romantique
 il en avait tout un rayon. Mais ils nous avaient .
 habitués aussi à distinguer nettement entre les deux 158
 parties également honorables de cet honorable métier.
@@ -2058,8 +1798,6 @@ de ces mêmes becs, pour les rois, les prêtres, les papes, 22
 et autres princes de la nuit. C'est alors que Hugo 9
 faisait rimer ombre avec sombre, et ensuite ombres k
 avec sombres, et quelquefois, plus heureusement, avec k
-57 é
-à
 
 io ne 1 : Charles Péguy NN “à
 40 décombres, car il n'était pas comme nos jeunes hommes, 1 j
@@ -2129,11 +1867,6 @@ le ministre. On doit aussi l'en remercier. Avec Lui
 4 au moins nous savons je ne dis pas seulement même 3%
 U où nous allons, car lui-même il ne parle qu'au “ré
 passé, mais où nous sommes allés, où nous sommes F&
-D arrivés : ï 1
-+ 59 RES
-+ : ; : ii
-
-AT, SARA AL a Ki À 1e ANR ANPAORNE j
 
 1 : Charles Péguy | MON PNSENERES
 1324 Fi Cela n'a pas suffi. Tous ensemble, par nos pères, par Ë
@@ -2151,7 +1884,6 @@ ns Les applaudissements sont devenus vifs, de prolongés “
 on: qu'ils étaient, et ils se sont étendus à l'extrême gauche; ÿ
 1108 mais les vives réclamations à droite sont tombées, à
 50 comme dans la version du Matin. C'est une compen- |
-040 sation. |
 4 Quw'est-ce que vous voulez répondre, je vous le deM; mande, à l'enfant devenu un homme qui a profité de
 De. l'instruction primaire complétée d'ailleurs par les
 
@@ -2172,10 +1904,6 @@ quand il cherche la justice ici-bas?
 04 _ M. le ministre du travail. — — — ARépondez à
 
 1 ceux qui disent que la hardiesse dans les réformes
-
-A fn RC AH A D Ps AG
-
-4 AU PARTI INTELLECTUEL 1
 
 sociales précipite un pays dans la décadence économique “
 
@@ -2198,8 +1926,6 @@ soit entré dans les vues du parti intellectuel. On com- à
 prend que M. Lasies ait trouvé que c'était Très bien! L
 
 très bien! 3
-
-St
 
 Dans le grand grand discours du lendemain, même
 
@@ -2238,10 +1964,6 @@ fortunes parlementaires les plus hautes, et peut-être,
 
 | comme l'auteur, au moins général, au point qu'on dira È
 
-; 61 parti intellectuel. — 4 +4
-
-40 dur : Charles Péguy NON “
-
 Le peut-être la loi Briand comme on dit la loi Waldeck153 Rousseau, un homme qui d'ailleurs mesurait ainsi, lui
 138 Pa aussi, sa propre responsabilité, un homme qui ménage Oo
 10 it : l'avenir, qui mesure l'avenir, qui escompte l'avenir, un
@@ -2275,7 +1997,6 @@ VS immédiat, il a sensiblement réussi à dégager le gouver- |
 ‘10 dans son mouvement, procédant comme un simple |
 0 62 4
 
-D AU PARTI INTELLECTUEL . Lo
 4 à congréganiste et comme un Vendéen, avait, somme +4
 “ toute, foulée aux pieds. Décrochée de l'autre côté, foulée ‘4 \
 ‘4 du pied gauche, mais enfin décrochée aussi, foulée +18
@@ -2306,9 +2027,6 @@ culière d'affirmations métaphysiques : les affirmations 5
 % les affirmations métaphysiques proprement dites, affir- 1150
 “  matives, affirmantes. Positives. de à
 ;. Ainsi faut-il rappeler pêle-mêle et en bref, pour ‘#20
-‘1 63 î A
-
-e Charles Péguy ‘ ki
 
 f\ mi prendre date, encore une fois, que la croyance en Dieu 1
 ? “a est une opération, une opinion métaphysique, religieuse ; 1
@@ -2348,9 +2066,7 @@ qu'il peut être une religion, une superstition même, et f
 ; qu'il peut devenir ce qu'il y a de plus misérable au
 
 (P monde, un système, ou plutôt, et pour parler exacte- !
-pi À |
 
-: 140 AU PARTI INTELLECTUEL D: à
 ment, qu'il est ou qu'il peut être plusieurs et beaucoup ji
 
 de tout cela, au même titre et ni plus ni moins que à:
@@ -2367,14 +2083,12 @@ Pareillement de la croyance à la vie éternelle. Croire F3
 à une vie future, de justice réparatoire ou de béatitude, À
 
 ou de toute autre indication, c'est faire une opération #
-métaphysique, religieuse. Croire à plusieurs vies ulté- 148
 rieures, comme tant d'humanités y ont cru, et aussi à ;
 
 : plusieurs vies antérieures, ce qui en est le complément ;
 naturel, et ce qui en fait comme l'équilibre attendu, NA
 croire à une indéfinité d'autres vies, antérieures et We
 ultérieures, c'est faire une autre, c'est faire d'innom- ;
-brables autres opérations métaphysiques, religieuses. jé
 
 Mais croire au contraire que cette mort temporelle fr
 
@@ -2393,10 +2107,7 @@ losophie et que la religion intellectuelle et que la super- is 4
 stition du parti intellectuel moderne est une métaphy- À
 à sique, une religion, une superstition de plus, comme À p.
 4 4
-65 parti intellectuel. — &. } F.
-À . 114
 
-is Charles Pégay "NN
 n. tant d'autres, après tant d'autres, — avant tant d'autres, ‘4
 A ï — dans l'histoire de tant d'humanités. À
 Dar Je ne dis pas seulement et globalement dans l'histoire É
@@ -2409,7 +2120,6 @@ ML V Faut-il ici rappeler tant de métaphysiques et tant
 Me tions, faut-il citer tant d'humanités abolies ou vivantes, l
 1e faut-il prévoir tant d'humanités éventuelles, ou quel- 1
 a si ques-unes de ces humanités, faut-il redemander à un '
-1 auteur admirablement averti quelques nouvelles His- k
 140 toires de quatre ans? È
 141 Pour moi je lui en redemanderais bien deux ou trois,
 "10 pour commencer, parce que c'est bien agréable à lire 4
@@ -2428,9 +2138,7 @@ Ve sommaire et arriérée à Thalès le Milésien, comme à 4
 si tous ces premiers Joniens, pour ne point me référer à #
 | É ces Pythagoriciens admirables. On peut penser, comme i
 je je le pense personnellement, que les auteurs et que les 4 |
-aa ui
 
-MT | AU PARTI INTELLECTUEL A Fi
 4 sectateurs de cette basse et grossière métaphysique +4
 5 du parti intellectuel moderne, inintelligente, eussent été 3 Al
 14 dénoncés, méprisés comme barbares, comme n'ayant “ à:
@@ -2465,7 +2173,6 @@ moderne a infiniment le droit d'avoir une métaphy- = 74008
 À mêmes. Mais ce qui est en cause et ce dont il s'agit, ce FR
 qui est le débat, c'est de savoir si l'État, moderne, a le
 ; droit et si c'est son métier, son devoir, sa fonction, son + 3
-ï 67 10
 
 | EEE Charles Péguy 7
 Phil office d'adopter cette métaphysique, de se l'assimiler, 4
@@ -2501,7 +2208,6 @@ ne sont pas des peuples, allant également contre :
 À les platoniciens, contre les cartésiens, el, contre les À
 | 68
 
-L AU PARTI INTELLECTUEL a
 fi *  kantiens; sans compter la philosophie que l'on voit pe
 | venir. 2h
 Dans le langage de l'école allant également contre 1
@@ -2534,8 +2240,6 @@ $ sique et cette religion. Il ne s'agit pas de le savoir ici. MES
 | — quand même, ce qui est impossible, cette métaphy- É #
 4 sique serait excellente, ce qui est impossible de toute ;
 
-NE SSSR
-
 ne impossibilité, de droit et de fait, à cet égard, etence 4
 1100 sens, — quand même alors l'État n'aurait absolument
 ‘314 aucun droit ni de se l'assimiler, ni de se l'incorporer, He
@@ -2543,7 +2247,6 @@ Ar ni de nous l'imposer par les moyens qui lui sont 4
 CE propres. \
 710 Ni d'en faire une partie intégrante et constitutive de ;
 _ l'État, ni de s'en faire le ministre exécutif et le bras ÿ
-13 1) /séculier. 1
 ‘14 Quand,donc aurons-nous enfin la séparation de la h
 ui _ Métaphysique et de l'État ; mais pour de bon, cette fois ; 4
 198 la vraie, la bonne séparation; non pas toujours la
@@ -2568,7 +2271,6 @@ f qe et aux conditions de son métier.
 \ Ho Quand donc notre État, qui a déjà tant de métiers, qui Al
 
 | LAN ASE AU PARTI INTELLECTUEL +48
-: 4 * d 5 ARR
 114 fabrique des allumettes et qui fabrique des lois, qui ‘5
 ‘44 fabrique du transport par chemins de fer.et des règle- $ Le
 D. ments d'administration publique, non sans peine et FE
@@ -2580,19 +2282,14 @@ __ souvent sans quelque embarras, qui s'aperçoivent, æ.
 à Quand donc l'État, fabricant d'allumettes et de contra3 ventions, comprendra-t-il que ce n'est point son affaire
 que de se faire philosophe et métaphysicien. CR
 4 Il y en a déjà bien assez, qui sommes métaphy- Se
-; siciens. | 11e
-ee, » w te i
 i Nous avons le désétablissement des Eglises. Quand PAU.
 < aurons-nous le désétablissement de la métaphysique. ‘54
-« . : "08
 À Quel onze ou douze décembre, puisqu'on nous parle Ç ; us
 À - toujours de ce onze décembre, le onze ou douze dé- RE Gi
 cembre de quelle année du temps nous apportera le "ei
 ‘4 désétablissement de la métaphysique. 5 FN
-\A 1:40)
 he. Quand un ministre à la tribune enfin comprendra-t-il re
 que ce n'est pas son affaire, comme ministre, de nous x L
-2% : : : : sue 2 : JTE
 1 faire un enseignement ni une imposition de métaphy- BRAUN
 hi HAue; et quil a tant d'autres choses, utiles, à nous FE '#
 ‘à dire et à faire. 7
@@ -2606,21 +2303,10 @@ DEA LRO EN NE AU AGAIN NE cn er Rent
 
 DU chats Pégay NON
 vous traducteur parce que telles étaient sensiblement ji à
-T0 x à FAC . 2 . . 4: td VASE He.
 _ vos opinions, moi éditeur comme l'essai le plus inté- AANE %
 _!  ressant dû dans ce genre à l'initiativeprivée,faudrat-il
 7 que ce Monde sans Dieu, par un retournement que saut ü
 He 14 sans doute vous n'escomptiez pas, devienne à son tour AT
-"14 i sas WARS.
 te. < un nouveau catéchisme gouvernemental, enseigné par 4
 0 Fe les gendarmes, avec la bienveillante collaboration de
-te 4 À * ÿ LT
 2 7 F" messieurs les gardiens de la paix ? SR
-04 : nr
-0e CHARLES PÉGUY 14
-8 À ‘1
-PANEAl 34
-
-AT “#
-RU 44
-Au

@@ -7,19 +7,10 @@ author: rene-salome
 isAvertissement: false
 wordCount: 21070
 ---
-
 ## Vers l'action
 
-*René Salomé*
-
-DEUXIÈME CAHIER DE LA DEUXIÈME SÉRIE
-RENÉ SALOMÉ
-Ve PActi
 ers l'Action
 Un idéal n'est qu'un pion
-Max STIRNER
-ÉDITIONS DES CAHIERS
-PARIS
 rue de la Sorbonne, au second
 
 M. André Bourgeois, administrateur des cahiers, reçoit
@@ -29,21 +20,12 @@ heures, le dimanche excepté.
 M. Charles Péguy, gérant des cahiers, reçoit pour la
 rédaction le jeudi soir de deux heures à sept heures et de
 huit heures à dix heures et le vendredi matin de huit heures
-à onse heures.
 
 le Gérant : Charles Péguy
 
-DEUXIÈME CAHIER DE LA DEUXIÈME SÉRIE
-RENÉ SALOMÉ
 Vers l'Action
 Un idéal n'est qu'un pion
-Max SriRXER
-jar
-ÉDITIONS DES CAHIERS
-PARIS
 rue de la Sorbonne, au second
-
-INTRODUCTION
 
 Rencontrée à Versailles, chez M. Amédée Violet,
 vieillard sceptique et bienveillant, érudit sans gourme,
@@ -54,7 +36,6 @@ détachée du moi, ne m'apprit rien de son histoire. Quant
 à M. Violet, je n'osais l'interroger, suffisamment heureux qu'il me laissât, moi chétif, ouvrir ses cartons et
 feuilleter ses albums, pour compléter la documentation
 d'un article sur Jacques Callot, — un ramassis de formules que je destinais à une jeune et déjà mourante
-Revue.
 
 Il > a quatre ans, vers la fin de janvier, je retrouvais
 M. Violet à la Bibliothèque nationale. Le teint marron, la démarche veule, il avait l'air de ne plus vivre
@@ -77,7 +58,6 @@ Les noms propres de personnes sont des noms fictifs
 que j'ai dû substituer aux noms véritables.
 
 Extrait du journal d' Aurélia
-Lières, août 1883 ,
 Pas une lettre depuis dix jours. Il ne me répond
 
 ‘ plus. J'ai dans l'esprit, malgré mes efforts pour repousser de telles images, les raisonnements sophistiques qu'il suivait interminablement, les gestes
@@ -87,7 +67,6 @@ nous deux, à notre avenir rêvé! Que vient faire,
 dans celle que j'ai sous les yeux, cette longue dissertation sur la géométrie, laquelle s'achève en aperçus
 vagues, presque incohérents, où flottent, comme
 des falots sur une mer de brume, des visions
-d'halluciné ?
 Et rien de ce que je lui demandais. Lui si tendre!
 
 si préoccupé de moi à l'exclusion de tout le reste!
@@ -105,7 +84,6 @@ la mobilité de son regard allégeait un peu son silence — incapable du moindr
 
 le va-et-vient machinal des paupières, n'a-t-elle pas
 besoin à chaque heure de ma présence et de mes
-soins ?
 
 Je n'ai plus le cœur à rien. L'attente anxieuse
 m'engourdit et me stérilise. Je ne lis plus, je n'écris
@@ -124,13 +102,8 @@ nagé, là-bas, sa maison familiale, pour notre existence conçue laborieusement
 existence qui veut être de bonté active, de recueillement grave aux heures propices, d'abandon à l'enthousiasme qui naît des sens ou de la pensée, — si
 tout cela est réalisable, malgré l'égoïsme ambiant,
 la ribambelle criarde des petits intérêts et des mesquines passions orthodoxes, la déchéance qui menace toute émotion naïve dans la sécheresse et le
-mensonge universels.
 
 De maître Napoléon Houlet,
-notaire à Saint-Saug'e, Nièvre,
-à mademoiselle Aurélia Collins
-août 1883
-Mademoiselle,
 M. Maurice Dubreuil, votre fiancé, vient d'être,
 à la suite d'un accès de fièvre chaude, interné, conformément à l'avis des médecins, dans une maison
 de santé sise près Nancy (Meurthe-et-Moselle), où
@@ -139,10 +112,8 @@ germains et seuls héritiers, lesquels ont bien voulu
 m'accorder leur confiance pour administrer et gérer
 les biens meubles ou immeubles de M. Maurice,
 légalement interdit, c'est-à-dire assimilé à un
-mineur.
 Vous avez licence de visiter le malade dans la
 maison où il reçoit les soins éclairés de médecins
-spéciaux.
 Son père et lui-même ont été mes clients. Je con_ nais assez M. Maurice pour être édifié sur les causes
 de sa folie. Ce sont les mathématiques, les délices
 dela capitale, l'art wagnérien et les doctrines socia-
@@ -150,22 +121,16 @@ listes qui l'ont empoisonné. Ajoutez qu'en agriculture il avait un faible marqu
 fabrication allemande ! La divine Providence, made_  moiïselle, ne vous a pas laissé le temps de l'assagir
 recevez les sincères compliments de condoléance
 de votre respectueux serviteur
-Naroréon Hourer
 
 Extrait du journal
-Lières, 18 août 1883
 
 Je l'ai revu ; Ô ces traits relâchés, ce corps aveuli,
 celte physionomie lourde et stagnante, ce mâchon-
 
 à nement de mots incohérents, ces yeux vitrifiés, cette
 absorbante animalité ! Plus rien de l'être nerveux,
-inquiet, travaillé d'intuitions soudaines, perméable
 aux impressions les plus diverses, plus rien de l'âme
 que sans cesse l'enthousiasme faisait fermenter et
-jeillir en discours généreux, en paroles tendres, en
-
-« , caresses, en démarches.
 
 Et je me suis enfuie, le cerveau soudain vidé, le
 cœur comprimé, la gorge sèche, sans raison pour
@@ -181,11 +146,9 @@ chambre sans savoir comment. La vieille Annette
 défaisait la malle et la valise, tout en rabâchant
 pour me consoler des histoires de mariages rompus.
 Extrait du journal
-Fin août 1883
 
 Seule mon intelligence est malade. Il me semble
 que, moi aussi, je ne tiens plus que par un fil à la
-réalité.
 
 Parfois, sans penser, sans agir, je reste assise
 pendant des heures auprès de grand mère, qui, les
@@ -215,7 +178,6 @@ Et à tour de rôle, ils ont entassé des montagnes
 de sentences. Alors, j'ai pensé à la lettre de maître
 Napoléon Houlet, notaire; j'ai dû m'enfoncer les
 ongles dans la peau pour réprimer un accès de rire
-nerveux.
 
 Cependant, n'écoutant point parler ses parents,
 Nicole, assise au bord d'une chaïse basse, meregardait avec une bonté timide.
@@ -249,13 +211,11 @@ Et je me revois installée, toute petite, devant ce
 même clavier, cependant que mon père, assis à ma
 droite, s'indignait violemment de mes fausses notes,
 lui d'ailleurs très réservé en paroles, très affable,
-presque timide.
 
 Hélas‘! à présent, ces souvenirs ne m'émeuvent
 plus : je me les récite plutôt que je ne les vois.
 
 Extrait du journal
-septembre 1883
 
 Hier,comme j'étaisassise au jardin, versdix heures
 du soir et que la lumière dela lune tombait d'aplomb
@@ -296,7 +256,6 @@ humbles de la vie.
 Dans le monde tel que je le vois, dans les autres
 tels qu'ils m'apparaissent, en moi telle que je me
 connais, je chercherai les raisons d'agir et les
-méthodes d'action.
 
 Cependant, j'hésite à faire le premier pas vers ma
 sagesse, A l'instant décisif où je vais devenir autre,
@@ -306,7 +265,6 @@ chien qui veut qu'on s'occupe de lui, le passé me
 surprend sans cesse par une obséquieuse intervention,
 
 Extrait du journal
-Lières, 20 octobre 1883
 
 Me voici désormais toute seule, et je reporte, pour
 la dernière fois, mais pour longtemps, ces vêtements
@@ -327,7 +285,6 @@ flamme de la cheminée. Ces lueurs et cette forme de
 à bête me sont encore présentes. Annette allait et
 venait, sans volonté, proposant de vieux remèdes.
 Et grand maman agonisait, les yeux écarquillés, la
-figure tordue.
 
 Je n'ai pas pleuré: j'ai machinalement enseveli la
 morte. Le docteur Michelot m'a épargné les démarches au prix desquelles on peut offrir aux morts le
@@ -337,7 +294,6 @@ même songé à critiquer les exigences de la loi, les
 tracasseries banales de la coutume, ainsi qu'il m'était
 arrivé déjà en pareille conjoncture. Car jesens grandir en moi le raisonnable mépris des contraintes
 sociales, en sorte que j'y cède sans que ma docilité
-tire à conséquence.
 
 Étrange que je sois calme et comme reposée. Les
 souvenirs ne viennent pas me disputer à l'amitié
@@ -358,7 +314,6 @@ Après des heures tragiques, quelle nonchalance
 lucide et presque délicieuse.
 
 Extrait du journal
-Lières, 20 novembre
 Nicole Suréda est venue s'asseoir au coin de mon
 feu, sa mère l'ayant chargée de m'inviter à dîner
 pour demain. Une jolie tête brune, frisée, des yeux
@@ -390,12 +345,10 @@ canot, est un maître plus impérieux que les divins
 commandements. Je le recherche parce qu'il est le
 plaisir, j'y tiens parce qu'il naît de moi. Soyez persuadée que j'aime beaucoup la vie et que je suis
 fort en état de donner des conseils sur l'art de vivre
-heureuse.
 
 — Nicole, il y a en vous je ne sais quoi d'épicurien. Vous saurez qu'Épicure le Sage mettait le Bien
 dans les plaisirs honnêtes et modérés. Tous les
 autres sont à fuir parce qu'ils se changent en douleurs. Craignez surtout les plaisirs où l'instinct vous
-porte aveuglément.
 
 Je lui parlais ainsi pour exercer mon àâme en
 agissant sur la sienne. Je me sentais soudain vouée
@@ -406,7 +359,6 @@ suis : voilà l'essentiel. — Et puis je crois qu'une
 fois émancipée, je ne déplairai pas aux autres. Se
 
 plaire et plaire : au moins ma morale n'est-elle pas
-exclusivement égoïste.
 
 Sur quoi, sans me permettre de répondre, elle se
 leva, et s'en fut retrouver madame Suréda, qui ne
@@ -418,7 +370,6 @@ depuis longtemps retiré du sacerdoce, vieillard
 aveugle et quasi sourd qui vit avec sa sœur, personne aphone.
 
 Extrait du journal
-Lières, premier décembre 1883
 
 De la gelée blanche au gazon, telle une couche
 mince de sel pulvérisé, et aussi sur les tuiles et les
@@ -451,7 +402,6 @@ sur un effort : point de repos, mais l'esprit tendu,
 les sens en éveil, le corps alerte. Je n'alimenterai
 plus ce feu qui dispose au far niente. Je ne bois que
 de l'eau, je dors peu, je mange tout juste l'essentiel : est-ce assez? Je voudrais mon ascétisme plus
-complet.
 Le passé est encore bien proche, malgré tout. Tant
 d'habitudes chez moi et chez les autres par rapport
 a moi subsistent dans la vie nouvelle! Je songe
@@ -461,13 +411,11 @@ sur le mail à la fraîche avec mon gros chien; et je
 sens encore trop de brume en moi, autour de moi.
 
 Extrait du journal
-Lières, 11 décembre 1883
 
 Dans la campagne, au bord du canal gelé, sur le
 chemin de halage que, du côté des prairies, borde
 une double rangée de tilleuls sans feuilles, je me
 suis promenée cet après-midi avec Nicole. Car
-depuis quelques jours madame Suréda me témoigne
 
 beaucoup de confiance. Cette matrone catholique
 m'estime sans doute pour l'attitude expectante et
@@ -514,8 +462,6 @@ pourrait-il de sang-froid savourer comme tant
 d'autres la vie opulente que paie le travail d'une
 humanité miséreuse et flétrie? Non : j'attends de
 
-lui —
-
 — Franchement, interrompit Nicole avec un éclat
 de rire, vous délirez, Aurélia. Êtes-vous sa mère ou
 sa tante, à ce garcon? — Et puis d'où vient ce beau
@@ -528,7 +474,6 @@ problèmes ennuyeux. Il me semble que nous, on a
 mieux à faire.
 
 Je m'indignai; Nicole ricana ; je la quittai presque
-brutalement.
 
 Mes méditations de ces jours-ci m'inclinent
 considérer les luttes sociales. O la joie saine d'y
@@ -546,7 +491,6 @@ tiges naines limitent l'horizon.
 Il gèle fort, je grelotte : il va falloir tout de même
 rallumer du feu.
 
-M. Amédée Violet à mademoiselle Aurélia Collins
 l Versailles, 17 décembre
 Votre lettre, chère enfant, me réjouit et m'inquiète. Je vois avec plaisir que vous vous souvenez
 de moi, mais avec appréhension que vous deveuez
@@ -570,7 +514,6 @@ point pour des doctrines qui tueraient en vous le
 sentiment de la réalité vivante. Ne iyrannisez pas
 les naïfs, ne troublez pas les convaincus.
 
-Chère petite, j'ai soixante-trois ans : j'ai eu jadis
 mes heures d'intransigeance : mais je suis devenu
 accommodant. Ce que j'ai gagné de plus sûr au mal
 de vivre, æ'est la résignée certitude que les paroles
@@ -583,12 +526,10 @@ Hélas ! Aurélia, je sais le désastre des sentiments
 qui remplissaient voire vie d'il y a trois mois.
 Songez-y : pour se libérer la douleur prend parfois des détours inattendus; parfois les natures
 volontaires, plutôt que de languir sur un souvenir
-dolent, s'éveriuent en travaux héroïques. Soyez
 sincère envers vous-même.
 
 Extrait du journal
 Lières, nuit du 31 décembre 1883
-au premier janvier 1884
 
 Minuit va sonner, et ce sera la première fois que
 je n'aurai ici personne à embrasser en murmurant
@@ -632,8 +573,6 @@ Mes regrets de ce soir ne me sont point personnels ; ce sont les regrets des gé
 dont je clos la série : l'antique habitude des souhaïts du nouvel an proteste contre mon esseulement de toute la force acquise au cours des siècles.
 
 Extrait du journal
-Lières, 8 janvier 1884
-Nicole m'a déclaré : j'aime beaucoup Paris : j'ai
 pu enfin m'y vêtir proprement ; j'y ai réussi comme
 danseuse ; mon verbiage y a paru spirituel ; le tumulte m'en a grisée ineffablement. Mais voilà : je
 préfère encore nos campagnes et notre ville morte
@@ -682,7 +621,6 @@ le thé ; mais toutes ces horreurs-là, vois-tu,
 monsieur Suréda, viennent bien sûr de ce qu'on
 n'a plus de religion.
 
-M. Valentin Latour s'inclina respectueusement,
 car il sait que tous les esprits ne sont pas constitués de même sorte et que la discussion devient
 confuse dès qu'on ne s'entend pas sur les principes.
 
@@ -715,17 +653,14 @@ comme on n'en voit pas (sic).
 Sur quoi, M. de Chapemont, marguillier, qui
 venait de gagner une partie de piquet, se leva, toussota, prisa, se moucha, ets'adressant à madame Suréda mère, il dit : madame Suréda, vous parlez
 comme une digne femme, et comme une bonne chré-
-tienne.
 
 Nicole, penchée sur sa broderie, somnolait,.
 
 Extrait du journal
-Lières, 24 janvier 1884
 M. Valentin Latour nous a fait visiter, à Nicole ]
 et à moi, l'usine paternelle. M. et madame Suréda
 étaient restés avec M. Latour père qui leur disait
 son chagrin de voir son fils unique égaré dans des
-recherches peu lucratives.
 Cependant la monstruosité des machines indo-
 lentes et méthodiques m'intimida ; je défaillis au-
 près des fours ; je me sentis choir sous des marteaux
@@ -759,7 +694,6 @@ souris. Nicole juge que M. Latour père est très
 humain et son fils très spirituel.
 
 Extrait du journal
-Lières, 29 janvier 1884
 : L'occasion d'agir est donc venue. Tantôt, chez les
 Suréda, M. Valentin Latour, avec des phrases entortillées, a loué mon corps et mon âme. Sous les
 phrases, d'ailleurs, aucune émotion. Ses yeux luisent davantage quand il parle à Nicole.
@@ -783,14 +717,12 @@ l'autre, unis par moi, se laissent guider vers des
 actes doux et fraternels, et là-bas, à Givreux, ils
 cessent peu à peu d'être les dominateurs solitaires
 et méfiants, pour devenir des égaux vénérés.
-Lières, 30 janvier 1884
 Les prunelles émeraude de M. Chat sont énigmatiques. Get animal impassible se plaît à contem:
 pler les jeux de lumière sur les murs. Un blanc
 soleil de gelée crible les tentures, baigne la cheminée, les meubles lourds, la tristesse des vieux portraits et des eaux-fortes. Rien qui ne soit bien sage
 et bien à sa place. Je me sens encline à tout diseipliner.
 
 Extrait du journal
-ï Lières, 10 février 1884
 
 Je me rappelle une promenade avec Lui, dans les
 bois de la Chevrée, il n'y a pas deux ans. Alors des
@@ -831,11 +763,9 @@ tantes, arrière-cousins et cousines, les messieurs
 glabres avec des toupets sur le front, des cravates
 montantes et des habits puce sur des pantalons de
 nankin ; les dames à demi masquées par des bandeaux et le corps truqué par des entonnoirs de
-faille.
 
 Cependant M. Suréda plaide la cause de l'industrie : les baguettes qui lui servent de bras scandent
 ses périodes ; les sons qu'émet son gosier râclent les
-oreilles.
 
 M. Valentin Latour porte une jaquette de drap
 beige et un gilet de velours vert; sa cravate offre
@@ -844,10 +774,7 @@ une baie reculée entre deux promontoires mena-
 d'avoir levé les yeux, il se tortille la barbe entre
 le pouce et l'index.
 
-Béatement, madame Suréda glousse.
-
 Extrait du journal
-Lières, 25 février 1884 4
 
 Aux lueurs malades du jour finissant, je jouais
 une fugue de Bach. J'en aimais le calme et la bonté.
@@ -856,15 +783,12 @@ pris de loyale science, fait à la longue vivre dans les
 âmes une tendresse grave et sûre de soi.
 
 Des plaques verdâtres, des filaments ocrés se po-  « saient un peu partout. Les objets perdaient tout
-point d'appui; leurs dimensions s'exagéraient en
 grandeur et en petitesse ; ils offraient des lacunes
 bizarres : dans cette buée mauve, on ne sait plus ce
 qui les tient ni ce qui les limite, ni s'ils ne vont pas
 se confondre et s''évanouir.
 Extrait du journal
-Lières, 28 février 1884
 
-Décidément, M. Valentin Latour devient usinier,
 et il épouse Nicole. Les Suréda répètent : C'est un
 caractère : il a su quitter des occupations frivoles
 il s'estrangé tout d'un coup ; le voici sérieux et solide : bien sûr, ilira loin.
@@ -881,19 +805,15 @@ Treilhard-Latouche (Velours et Rubans).
 je demeure stupéfiée devant ma conscience.
 
 Extrait du journal
-Lières, 2 mars 1884
 Retrouvé une lettre que je croyais perdue. Elle
 date de deux ans. Pourquoi tant d'émoi ?
 Nous transcrivons ci-dessous la lettre dont parle
-Aurélia : j
-Paris, 2 juin 1882
 J'ai reçu votre lettre, mon Aurélia aimée. Elle fait
 durer en moi les moments de cette promenadeà
 deux que nous avons faite au jardin, la veille de
 mon départ, sous un ciel laiteux. Le jet d'eau gré-
 sillait sur le bassin. Nos voix n'osaient pas troubler l
 le demi-silence; nos idées se voilaient d'expressions
-gauches. o
 Pourquoi me remercier des cahiers de Grieg que
 vous avez reçus de Paris? Cette musique de folie r
 gracieuse, de rêves mi-souriants, de nuances fugaces, quand elle vivra dans votre effort, me charmera
@@ -906,17 +826,13 @@ C'est alors qu'un écho de Peer Gynt m'a frôlé la
 pensée ; et j'ai désiré qu'émue aux sursauts tour
 à tour audacieux et mourants de ces rythmes,
 vous puissiez comprendre votre charme de l'autre
-soir.
 
 Car vous avez trouvé là une minute d'inquiétude
 ‘étrange, que je n'attendais pas. Votre affection sûre
 de soi me semblait ignorer les implorations délicates. Et vous qui motivez tout, ne sauriez me dire
 pourquoi cet acte d'oubli. Je vous aime.
 
-Maurice
-
 Extrait du journal
-Lières, 15 mars 188/
 
 Nicole ébat ses doigts agiles parmi des envolements d'étoffes. Une lumière lavée de pluie poudroie
 sur les soies et les gazes. M. Valentin Latour, hiératique, traite avec sérénité une question de métal-
@@ -962,8 +878,6 @@ Suréda remuent les alentours. Qu'espérer de l'en-
 
 ._. nuiqu'il fait?
 Lettre de M. Amédée Violet
-à mademoiselle Aurélia Collins
-Versailles, 4 mars 1884
 vos dernières lettres, si émues, si pleines de
 choses senties et pensées, je n'ai pu répondre
 comme il fallait. Pendant deux mois, j'ai vécu en
@@ -1007,14 +921,9 @@ Telle est l'esquisse qu'on m'a faite. Prenez garde
 votre âme revoit et corrige tout ce qui s'y reflète.
 Redevenez, de grâce, plus réaliste.
 
-Amédée Violet
-
 P: 8.— Quand venez-vous me demander l'hospi-
 
-talité ?
-
 Extrait du journal
-Lières, 20 mars 1884
 Celui-là connut mon père, que si peu connurent.
 Nous parlerons tous deux de mon père, si vraiment
 il est possible de parler des morts que l'on continue
@@ -1030,7 +939,6 @@ Alors j'ai constaté qu'il avait gardé, jusqu'au moment suprême, la même phys
 fait de visions reposées, de voix légères, de suaves
 tristesses, — et nous y figurions sans doute, nous
 qu'il aima, exempts des âpretés qui blessaient nos
-propres consciences.
 Je fus au cimetière, voulant me rapprocher encore
 de lui. J'avais un gros bouquet de violettes pour
 mettre sur la tombe. Le long du chemin qui borde
@@ -1046,11 +954,9 @@ cimetière, parmi des tombeaux plus récents, je
 défaillis de tristesse dans l'air un peu tiède qui fleurait les herbes mouillées.
 
 Extrait du journal
-Lières, fin mars?
 Le mariage de Nicole aura lieu vers le 20 avril.
 J'accompagne souvent les Suréda à Givreux. Les
 grandes iniquités règnent toujours là, avec une
-inconscience tranquille. À défaut d'enthousiasme (
 belliqueux, je retrouve le goût de critiquer et de
 discuter. J'ai causé plusieurs fois avec M. Valentin
 Latour, m'efforçant de l'amener à formuler ses idées
@@ -1063,12 +969,10 @@ s'en tient à des lieux communs jusqu'au moment
 où, par une transition bien ménagée, il glisse
 d'autres sujets. Sa résistance dissimulée est une
 résistance de femme têtue qui joue coquettement la
-docilité.
 D'autres fois, il manifeste, au moyen d'allusions
 imperceptibles, par des développements d'un carac
 tère général sur la forme des intelligences, quelques
 vagues regrets à l'endroit de la philologie. Il a,
-PTT) 4
 
 quand il effleure ce sujet, de brusques réticences, des
 hochements de tête, des regards coulés en dessous,
@@ -1079,7 +983,6 @@ compte faire ou non quelques pas, vers la justice,
 s'il ne voit pas dans ses ouvriers d'aujourd'hui des
 associés de demain. Ce que je sais de lui me commande la réserve. Malgré moi je lui estompe des
 dessous d'âme assez louches. Pourquoi diable s'ingénie-t-il à me frôler les hanches et à me flairer les
-cheveux ?
 
 Hier au soir, je songeais à tout cela assise au coin
 d'un feu de bois vert. M. Matou me contemplait du
@@ -1150,12 +1053,10 @@ du bourg. Alors, ses gros yeux de bœuf tout larmoyant, il fit craquer ma main d
 il s'en fut dans la nuit.
 
 Extrait du journal
-Lières, 15 avril
 Retour de la Frette où j'ai voulu revoir, avant de
 partir pour Versailles, des parents que je n'ai pas
 vus depuis bien longtemps — un troupeau de
 cousins et de cousines plus câlins les uns que les
-autres.
 Dans la sécurité fraiche et cossue d'une grande
 masure provinciale, rapiécée de-ci de-là, flanquée de
 pavillons moins vieux, et tout habillée de lierre
@@ -1195,7 +1096,6 @@ actes sont d'ailleurs et d'autrefois; et la trame en
 est si serrée que je ne vois guère par où se faufilerait l'inattendu.
 
 Extrait du journal
-Lières, 23 avril 1884
 
 Vu mon deuil, je n'ai assisté qu'à la cérémonie
 religieuse. Pendant la messe, j'ai surtout pensé
@@ -1208,7 +1108,6 @@ sacerdotal qui prétend imposer des formes repoussantes à l'adoration des fidè
 Le cortège nuptial, les invités et les curieux s'en- à
 tassaient dans ce décor ambigu : figures vagues,
 dont l'ensemble avait des allures de troupeau. Je
-distinguais madame Suréda, en soie noire, piquant
 des têtes méthodiquement pour être plus humble en
 ses prières, aux risques et périls de son chapeau,
 lequel était une sorte de tiare emperlée. J'entrevoyais aussi M. Valentin Latour, dont l'habit était
@@ -1252,10 +1151,7 @@ maisons: l'innocence du monde riait à la lumière
 des cieux, tandis que je laissais derrière moi dans
 la nef aux teintes de boue, aux ornements de musée 1710
 forain, l'effroi des dominations haineuses.
-CRE PR
 Lettre de madame Valentin Latour
-à mademoiselle Aurélia Collins
-Givreux, 5 mai 1884
 
 Je n'oublie pas vos conseils, ma chère Aurélia
 croyez qu'ils seront suivis. Nous ferons de bonne
@@ -1271,7 +1167,6 @@ c'est le dernier cri du confort,
 Ah, mon Aurélia, c'est fini de rire! maintenant,
 j'ai le sentiment d'une responsabilité très lourde
 ça me change : domestiques à surveiller, composition des menus, hôtes ou convives à bien héberger,
-à nourrir copieusement, deux hommes à blanchir
 et à raccommoder. Il y a également les conserves,
 
 les confitures et les liqueurs de ménage. Tant de
@@ -1284,12 +1179,8 @@ philanthropiques du papa Latour. La misère laborieuse, c'est bien plus effrayan
 j'en ai le dos gelé.
 
 Mais nous réformerons tout ça, pas vrai? Je vous
-embrasse.
-
-NICOLE
 
 Extrait du journal
-Lières, 6 mai 1884
 
 Elle vérifie les comptes de sa cuisinière et passe
 en revue des gilets de flanelle. Un tel présent, c'est
@@ -1338,7 +1229,6 @@ d'encre sous une chevelure d'or mat; vêtue, quoique
 en deuil, avec élégance, — uneélégancetrès simple.
 J'ai su qu'elle faisait de Lières à Paris d'assez fré-
 quents voyages pour sa toilette. Pourtant elle affectait, sur le chapitre chiffons, une indifférence
-morne.
 
 Auprès d'elle, ma sœur Laurence paraissait encore
 plus disgraciée, plus malingre, plus terreuse. Mais
@@ -1416,7 +1306,6 @@ couper : il agira en hygiéniste qui, pour assainir
 un local, met en œuvre des procédés exclusivement
 scientifiques. Qu'il s'en rende compte ou non, tout
 un passé d'expérience réfléchie pèsera sur ses
-arrêts.
 
 Et non sans grâce, avec des gestes lents, Aurélia
 reconstruisit Robespierre, qu'elle admirait fort : le
@@ -1429,7 +1318,6 @@ ses manches pendait au bout de son geste oratoire.
 La lumière jeune, filtrée aux rideaux blanes, la
 sculptait. Je l'aimais beaucoup dans ce rigorisme
 laborieux, qui la mettait en beauté. Mais je la
-sentais vivre ailleurs.
 
 Oui, elle vivait ailleurs, et sans y prendre garde.
 
@@ -1469,9 +1357,7 @@ sommes livrés à une minutieuse enquête, et maintenant, nous ne pouvons plus d
 bilité. Vous avez abusé de notre confiance; telle un
 serpent, vous avez empoisonné notre fille de votre
 venin. Puisse la tristesse de deux vieillards en cheveux blancs ne pas vous porter bonheur.
-CHRISTOPHE SURÉDA,
 
-Ancien juge d'instruction
 Cette lettre de fantoche assombrit Aurélia. Elle
 devinttaciturne ; elle ne fit plus chanter et frissonner
 ma vieille maison. Elle cessa de m'expliquer le
@@ -1479,7 +1365,6 @@ Capital de Karl Marx ou d'écouter mes dissertations
 sur Callot, Nanteuil et Aliamet. Ayant écrit aux
 Suréda, puis à Nicole, elle ne reçut point de
 réponse. Alors elle s'abîima dans une sorte de
-torpeur animale.
 
 Laurence, un soir, lui prit la main, et de sa voix
 éteinte, lui dit : Aurélia, ne pourrais-je savoir tout
@@ -1513,7 +1398,6 @@ erreurs de la réalité; sans tenir compte des caractères ni des circonstances.
 nement se dresse contre ma raison humiliée, que
 reste-t-il de moi? Je me cherche sans me trouver, et
 de fatigue, je ne songe plus à rien, je ne désire plus
-rien.
 
 Il y eut un silence. Une paix de tombeau régnait
 
@@ -1542,7 +1426,6 @@ ouvrit machinalement un carton d'estampes et de
 gravures non classées, et parut examiner longuement un spécimen curieux de taille en losange : le
 Descartes de Hals gravé par Edelinck, un exem-
 plaire très rare, mais par malheur en fort mauvais
-état.
 Le visage sortait de la nuit, lippu, la bouche
 longue, le nez busqué et large du bas, les yeux
 pareils à des loupes, les paupières lourdes, — un
@@ -1576,12 +1459,10 @@ Le mal d'amour était devenu intolérable pour ce
 garcon de mœurs très simples, d'un tempérament
 athlétique, artiste sincère et probe, assez lent
 sentir, mais qui gardait toujours les impressions
-reçues.
 
 Il me demanda conseil : Parlez-lui et mariez-vous
 si elle veut, répondis-je; mais n'espérez rien de
 bon, pauvre ami. — Il me regarda en dilatant ses
-gros yeux ronds.
 
 Au fond du parce, vers Trianon, point de monde
 ce jour là ; je m'assis pour lire une Revue, laissant
@@ -1595,7 +1476,6 @@ mots, je relevai la tête et vis que Delbove gesticulait violemment, les muscles
 cesse projetés en avant, comme pour écarter d'invisibles agresseurs. Aurélia, tête basse, devait
 écouter sans dire mot : sa démarche s'était alentie,
 ses bras ballaïient, une étrange faiblesse brisait son
-allure.
 
 Ils marchèrent autour des chaumières. Un instant
 je ne les vis plus. Quand ils revinrent vers moi, les
@@ -1616,7 +1496,6 @@ nature aussi joliment attifée. Leur art d'aimer consistait, chez elle à cultiv
 chez lui à suivre des impulsions brutales. L'ingé-
 nuité réfléchie des canaux, des petites prairies, des
 chaumières bien coiffées encadrait mal ce drame
-mi-romantique mi-réaliste.
 
 Delbove ne resta pas à dîner, alléguant un travail
 pressé. Ce garçon n'a. point la souffrance délicate
@@ -1654,7 +1533,6 @@ nous revint. Le 10 septembre je partis pour Utrecht,
 où m'attirait une vente d'objets d'art. Ce voyage
 dura une quinzaine. À mon retour, plus d'Aurélia!
 Elle était retournée à Lières. Voici ce qui s'était
-passé
 Maurice Dubreuil étant mort à Nancy (Meurtheet-Moselle) dans une maison de santé, maître Napoléon Houlet, notaire à Saint-Sauge (Nièvre), avisa
 Aurélia que le défunt laissait un fils non reconnu,
 nommé Jacques, et âgé de onze ans. — C'était là,
@@ -1674,7 +1552,6 @@ de ce bâtard. Philanthrope avant tout et naturellement porté à secourir l'enf
 Napoléon Houlet, notaire, signalait l'existence du
 petit Jacques à mademoiselle Aurélia Collins, dans
 l'espoir qu'elle s'intéresserait au sort de l'innocente
-créature.
 Aurélia n'avait même pas réfléchi : cette occasion
 d'agir était trop belle. Mademoiselle Claudine Berthier, artiste lyrique, s'était empressée de céder ses
 droits de tante. Cette jeune personne ne connaissait
@@ -1699,8 +1576,6 @@ Elle loua une maison à Marly-le-Roy pour ne pas
 s'éloigner de nous ni de Paris. Puis elle s'en fut
 Lières chercher ses meubles, son chat et sa vieille
 bonne. Voici la lettre qu'elle m'écrivit de là: .
-Aurélia Collins à monsieur Amédée Violet
-Lières, 27 septembre 1884 à
 Ah, mon vieil ami, modeler cette âme que je sens
 un peu mienne, quelle joie! mon vieil ami. Oui, un
 peu mienne, est-ce drôle? Comme si j'étais pour »
@@ -1708,7 +1583,6 @@ quelque chose dans la genèse misérable de ce petit!
 Pourquoi mon allégresse devant ces yeux retrouvés,
 ces cheveux noirs du même noir? C'est bizarre dans
 un cœur aussi méthodiquement desséché que le ”
-mien.
 Je veux que par mes soins Jacques devienne « alerte d'esprit, robuste de corps, qu'il se mette
 vivre d'une vie prenante et large.
 Déjà, autour de moi, les formes se précisent et à
@@ -1718,7 +1592,6 @@ d'autres regards encore gauches. Mes souvenirs « affluent, triés et simplifié
 mes leçons et mes conseils quotidiens. Que dire
 encore? je me surprends sans cesse à m'expliquer,
 en termes extrêmement familiers, des vérités ex-…
-trêmement banales.
 Après-demain, départ pour Marly. Nous avons
 
 enfoncé les derniers clous dans les caisses. Annette,
@@ -1732,10 +1605,8 @@ qui captive et qui heurte : je n'avais jamais conçu
 la possibilité d'une expression aussi complète avec
 ce minimum de matière. Mais chaque coup de
 crayon accuse un geste violent, un soubresaut de
-fureur. 4 Ô
 
 Extrait du journal d''Aurélia
-Marly, premier octobre 1884
 J'ai attendu près des acacias, qu'un vent mouillé
 berçait et faisait bruire. Sylvie m'a amené Jacques
 et Jacques m'a souri. Le pauvre enfant n'avait guère
@@ -1745,7 +1616,6 @@ doléances suprèmes de la bonne femme. Elle partie, w
 j'ai, du jardin, vu Jacques à la fenêtre de sa chambre : il s'extasiait devant la vallée du fleuve, large
 ouverte sous lui, cernée.à gauche d'une ligne raide
 et violette, embruinée au fond sur les mamelons
-chauves d'Argenteuil, brusquement coupée à droite
 par la colline que surmonte l'aqueduc.
 Jacques avait l'air d'un petit roi trop jeune pour !
 l'ampleur de son domaine, attristé soudain devant
@@ -1823,7 +1693,6 @@ s'aiguisait et s'aflilait, glaciale. Ah! Je pouvais m'ingénier à ce rôle de m
 ma joie de ce mignon dormeur ; je pouvais organiser à mon aise notre vie, mélée d'entretiens graves
 et de rires éperdus. Toujours, je devais m'aheurter
 aux angles des faits persistants : chasteté froide,
-bonheur aussitôt dissipé qu'entrevu, tentatives
 d'insensibilité, misères de la solitude, tout l'inconnu
 de la vie menée par Maurice, et, dans cette âme
 d'enfant, tout ce qui revivrait des instincts maternels.
@@ -1836,15 +1705,12 @@ lèvres. Les douces larmes ! Je n'avais pas pleuré
 depuis bien longtemps.
 
 Extrait du journal
-Marly, 2 octobre 1884
 — Et ton père, Jacques, tu t'en souviens, dis?
 Tu devais le voir souvent. — Oh! papa, il y en
 avait beaucoup. C'étaient des messieurs très gentils.
 Ils m'ont tous embrassé. M. Isidore me donnait des
-jujubes,
 
 Extrait du journal
-Marly, 3 octobre 1884
 Trop fait marcher cet enfant hier dans la forêt;
 abusé de sa petite attention têtue pour lui surcharger la mémoire d'explications sur les arbres, les
 saisons, la bise, les fleuves, et la chaleur. Je parcou-
@@ -1913,9 +1779,6 @@ je perds la force de m''accuser, et mon angoisse
 envieuse va s'allégeant. Si faible, tu dissipes les
 inquiétudes, tu inspires les bons espoirs, — et surtout, tu refoules au néant les menaces du passé.
 
-À MEUT UT
-Madame V. Latour à mademoiselle Aurélia Collins
-Givreux, 6 octobre 1884
 Chère Aurélia, on me dit que vous travaillez
 maintenant dans la pédagogie. C'est encore une
 manière d'agir et de créer du bonheur. Craignez
@@ -1933,11 +1796,9 @@ d'écarter des souvenirs toujours cruels.
 Le malheur me tient à présent. L'homme que je
 devrais aimer, chaque jour je le déteste un peu l
 plus que la veille. Il a fallu auprès de moi tant
-d'égoïsme prétentieux, maniéré, savamment impi- à
 toyable, pour me rendre, moi, la toquée d'hier,
 curieuse des choses morales : observer et réfléchir,
 voilà où mon âme asservie trouve un peu d'indé-
-pendance.
 
 J'ai rompu tout commerce avec mes parents, dont
 la morale bête m'exaspérait. Pour avoir pesté contre
@@ -1951,7 +1812,6 @@ Quant à mon mari, après des scènes navrantes,
 où nous avons dépensé, lui, des trésors d'ironie
 blessante, de loquacité docte et d'obstination glaciale, moi tout un stock de colère injurieuse, il a
 pris le parti d'ignorer ou de paraître ignorer ma ‘
-présence.
 
 Ainsi, je ne connais plus le dégoût d'être un instrument de jouissance et la fureur de me voir eritiquée, censurée, raillée, traitée en chose inconsciente ou en bête perverse par ce despote ennuyeux
 et vain.
@@ -1969,8 +1829,6 @@ croire que les affaires vont bon train. Mais il y a des k
 bruits de grève qui circulent. On parle de salaires
 rognés, d'heures supplémentaires, de renvois inhu-
 
-mains.
-
 Quand je sors, les gens se détournent pour ne
 pas me saluer, et l'on chuchote derrière moi. Dans
 quelques intérieurs où il y avait des malades, j'ai
@@ -1987,7 +1845,6 @@ pensée s'envole et il me passe des besoins violents
 de m'envoler comme elle. Je ne réponds pas de ce i
 que je ferai demain.
 Extrait du journal
-Marly, 15 octobre 1884
 
 Des rideaux de ouate tombent çà et là sur les arbres
 déteints, tachés de rouille et d'ocre, qui s'éplorent
@@ -1997,7 +1854,6 @@ excuses clochaient, toutes mes exhortations semblaient détachées d'un Manuel d
 n'y ai vu, ou plutôt senti, au fond des mots, que ma
 douleur vaine, accablée sous le poids des faits, ma
 douleur lamentablement résignée comme cette végé-
-tation d'automne.
 
 Jacques remarque tout. IL est venu me frôler et
 m'a dit: Tu boudes ; est-ce que tu es malade? Il
@@ -2020,7 +1876,6 @@ Mais est-ce possible de faire du bonheur, en ce
 monde égoïste et vorace ? Aider autrui, n'est-ce pas
 l'armer pour la lutte mauvaise, afin qu'il devienne
 ravisseur ou proie ? enveloppé de haïne ou féru de
-haine ?
 
 Cependant, comme je me tais, Jacques me croit
 soit malade soit mécontente de lui. Il ne sait quelle
@@ -2055,7 +1910,6 @@ elles sont contentes avec les hommes qui mangent
 bien, parce qu'ils sont plus forts: et alors, ils tuent
 
 mieux les loups et les méchants et tout ce qui fait
-mal aux femmes.
 
 Et j'étais fière qu'il eût, sans vanité ni amertume, une sorte d'idée noble et cruelle. J'étais sûre
 de lui comme disciple et sûre de moi comme éducatrice.
@@ -2085,7 +1939,6 @@ gence est brouillée, j'ai perdu tout courage, je n'ai
 plus confiance en moi, et tout autant que cet enfant,
 j'aurais besoin d'un guide.
 
-Minuit
 Des rafales sur les bois. Au jardin le grésillement
 des feuilles sèches. Et dans les recoins du grenier,
 les miaulements de la bise. L'âme rythmée encore
@@ -2096,7 +1949,6 @@ draps blancs. Poor little thing! Mon cœur est enclin
 je ne me connais pas.
 
 Extrait du journal
-Marly, 28 octobre 1884
 
 Le docteur Michelot, qui passe trois jours à Paris,
 est venu à Marly déjeuner avec nous.
@@ -2111,7 +1963,6 @@ l'homme devient un chiffre vivant ou une sorte de
 dictionnaire indigeste ou bien encore une pompe
 dignités. Nous oublions de plus en plus les bêtes
 que nous sommes, et nous périrons victimes d'un
-cerveau trop perfectionné.
 
 Vers une heure, visite de Delbove. Nous ne
 sommes plus gênés l'un près de l'autre. Je me rappelle sans être émue ses aveux violents et mon refus
@@ -2119,7 +1970,6 @@ décidé. Ce jour-là, quand il m'eut proposé de devemir sa femme, j'eus l'intu
 me liait déjà, d'un devoir mal défini qui me commandait de rester libre. Sans chercher un sotmoyen
 
 d'ajourner la réponse, je refusai net, alléguant mon
-humeur indépendante.
 
 Vous en aimez un autre, gronda Delbove. Cet
 autre ne vous sera pour sûr jamais rien. Malgré tout,
@@ -2137,7 +1987,6 @@ croire, le principe de toutes vos démarches. Mais ce
 n'est là qu'une attitude soit constamment voulue,
 soit conquise. Vous traversez des crises d'enthousiasme et des heures d'afiliction dont vous ne
 sauriez ni marquer les causes, ni analyser le contenu. C'est l'inconnu de la passion qui reprend ses
-droits.
 
 Puis, avec une humilité touchante chez un être
 robuste et sanguin, de volonté rigide et d'imagination hautaine, il me contait ses souffrances d'aimer.
@@ -2180,7 +2029,6 @@ sur Jacques, bougonna-t-il. Le p'tiot marque mal.
 Le sang est faible et les nerfs inquiets. Je crains
 qu'il ne pense : à son âge, on ne doit pas penser.
 Sinon, gare aux méninges! Ah, l'hérédité, l'héré-
-dité ! — Sale invention.
 
 Devant mon saisissement, il se fit violence pour
 me rassurer, car il n'est point maître de sa brutale
@@ -2211,7 +2059,6 @@ doigts sur sa paume. Je le priai de me laisser seule
 il s'en alla d'un pas lourd, en zigzaguant un peu.
 
 Extrait du journal
-Marly, 5 décembre 1884
 
 Les jours passent, gris ou clairs, taciturnes ou
 
@@ -2232,11 +2079,9 @@ Ce perpétuel contact serait délicieux, si j'osais
 répondre à sa tendresse. Maïs je me rappelle les
 paroles mauvaises de Delbove. Dans mes rapports
 avec Jacques, je m'étudie de près, je réprime tout
-affectueux élan. Jacques me demande s'ilm'a fâchée
 
 ou bien si j'ai de la peine. J'écarte ces deux hypothèses. Alors il ne sait quoi conjecturer et tombe
 dans une rêverie maussade. Il faut bien pour l'en
-tirer recourir aux caresses, aux parolés douces.
 Mais le fin velours de sa peau, l'allégresse allumée
 
 dans ses yeux, les mouvements simples et vifs qui
@@ -2287,7 +2132,6 @@ moins que lui j'étais émue : car le mystère des bois
 flottait dans l'atmosphère et dans mes histoires.
 
 Extrait du journal
-Marly, 18 décembre 1884
 Veillée d'hiver, courte pour Jacques, longue pour
 moi. D'abord, le coin du feu après diner, moi assise
 devant la cheminée qui flambe, lui à mes pieds sur
@@ -2353,7 +2197,6 @@ froisser des consciences, aiguiser des convoitises,
 opposer des intérêts. En laissant faire sans me
 mêler de rien, aux autres j'assurais quelques
 satisfactions bourgeoises, et à moi de précieux loisirs pour les méditations agréables et les plaisirs
-honnêtes.
 
 Décidément, j'étais dans l'erreur et j'en dois
 sortir, quand bien même je croirais déchoir pour
@@ -2367,14 +2210,12 @@ cet être impressionnable et déjà réfléchi mille occa:
 sions d'émoi, de rêve, de pensée : car bien des privations matérielles ne vont pas sans jeûne moral.
 Non, devant cette existence frêle, mais bien péné-
 trée de soi, je me trouve étrangement timide et
-désarmée.
 Minuit tinte à mon horloge flamande et dehors
 à l'église paroissiale. On dirait que les choses respirent doucement; mon corps reposé, allégé, ne
 pèse plus. Et je sens tomber sur moi un sommeil
 de Sybarite.
 
 Extrait du journal
-Marly, 25 janvier 1885
 
 C'est tout au plus si on sarcle le passé, on ne le
 déracine pas, et toujours il repousse : il grimpe
@@ -2399,7 +2240,6 @@ déesse des maisons ; ma grande sœur est Minerve,
 qui aime les fables et le calcul. Et Annette, qui ne
 
 connaît point ces gens là, levait au ciel des bras
- éplorés.
 
 À Christmas, vinrent chez moi des cousins d'Angleterre, le respectable M. Kimble, industriel du
 comté de Glamorgan, et ses filles, deux petites -
@@ -2423,7 +2263,6 @@ dans la cheminée, et la flamme tressautait passionnément. Toute chose avait l'
 moi, même la pendule en Saxe, et même le portrait
 de M. Gladstone.
 
-Quelques jours après, promenade à Versailles.
 M. Violet et Delbove sortirent avec nous. Je trouvai pour la première fois déplaisant cet effort de
 rectitude et de symétrie dans la pierre et dans la
 verdure. M. Violet m'expliqua mon impression.
@@ -2446,7 +2285,6 @@ pétrifié d''étonnement, m'occupait à lui seul les sens
 et l'esprit. Bientôt ce fut un déluge de questions sur
 les messieurs glisseurs, sur l'eau gelée, sur le bonhomme à cheval qui avait fait ces grosses maisons
 et ces jardins. Et comme je composais des réponses
-naïves, j'entendis Delbove chuchoter à M. Violet
 Décidément le bonheur rend les gens idiots. — Et
 ce propos m'égaya jusqu'au soir.
 
@@ -2473,9 +2311,7 @@ d'un divorce probable. M. Suréda avait tenté de
 réconcilier les deux époux, mais en vain. Alors, il
 avait voué Nicole à l'action vengeresse des lois.
 Quant à madame Suréda, toute jaunissante et en
-h pédi > Lières à Paris, presque chaque
 jour, des extraits d'homélies onctueuses et de
-biographies édifiantes.
 
 Nicole s'était gîtée avenue Kléber, dans un appartement coquet : Vous viendrez m'y voir, Aurélia.
 J'ai des amis charmants que je vous présenterai,
@@ -2487,12 +2323,10 @@ Ils logent à côté de chez moi et l'on ne se quitte pas.
 de déclassée, d'aventurière, qu'importe ? Maintenant, je me connais : je ne suis pas une créature
 domestique : je suis faite pour la vie libre, pour
 les surprises du hasard. Que puis-je contre ma
-destinée ?
 
 Je ne savais quoi répondre. Elle m'étourdissait.
 Elle montrait, en affirmant son droit à l'anarchie,
 la même assurance que jadis, lorsqu'elle bêtifiait
-gaîment.
 
 — Vous ne pouviez donc plus vivre là-bas, Nicole?
 
@@ -2522,7 +2356,6 @@ sonore fusa dans la maison.
 Dans le petit hall, Nicole embrassa Jacques, lequel
 fut très digne et demanda : Est-ce que vous connaissez ma tante ? Elle s'habille comme vous. Nicole,
 amusée, lança des sottises et mangea comme une
-jeune louve.
 
 Vers la fin du repas, Jacques s'en fut courir au
 jardin. — Où donc est passée votre belle assurance,
@@ -2639,7 +2472,6 @@ Carmélite. J'ai l'esprit moins prompt, moins
 curieux et plus enclin à la langueur des rêveries.
 J'ai la gorge déchirée, des frissons de fièvre, des
 sueurs froides, les mains très chaudes, les jambes
-molles.
 
 Les tisanes et les remèdes innocents d''Annette
 n'y font rien. Une angoisse sans nom m'enlève
@@ -2697,7 +2529,6 @@ exigeante, des petits qui mendient l'attention rieuse
 et des caresses.
 
 Extrait du journal
-Marly, 18 février 1885
 
 Delbove me disait une fois : Agir pour le mieux
 des êtres, ce n'est pas possible. S'improviser dé-
@@ -2714,7 +2545,6 @@ passion aveugle, non pour l'application d'une idée
 banale qu'on veut réaliser.
 
 Extrait du journal ;
-Marly, 25 février '
 est au lit là haut, ses mains cachées sous les
 draps. Les yeux mi-clos regardent en dedans. Il
 répond des oui et des non si bas qu'on les entend
@@ -2754,30 +2584,7 @@ yeux se dilatèrent. Alors Delbove la prit dans ses
 bras et elle y mourut. Il rapporta ce fardeau lamentable sans roïdir les muscles : elle était devenue si
 légère qu'un enfant l'eût mise au cercueil.
 
-Mars 1897 — Janvier 1898
-Saint Germain en Laye
-
 Fini d'imprimer le 17 décembre 1900
 à l'Imprimerie de Suresnes
-(G. RicHARD, administrateur)
 rue du Pont
 par Louis Ango,
-Claude Briand,
-Désiré Charret,
-Alexandre Collet,
-Émile Daviot,
-Jules Desportes,
-Marius Drouard,
-Gustave Lucas,
-Auguste Mahlmann,
-ŒEusèbe Mancel,
-Georges Moine,
-Charles Moge,
-César Petit,
-Ernest Payen,
-Élie Peyla,
-Auguste Princhette,
-Jacques Rétif,
-Camille Richard,
-Charles Robert,
-Louis Trioreau.

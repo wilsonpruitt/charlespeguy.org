@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 14233
 ---
-
-*Charles Péguy*
-
 Nos anciens abonnés savent quelles annonces nous
 publions habituellement. Nous ne nous vantons pas
 d'annoncer tout ce qui se fait à Paris et dans le monde,
@@ -25,19 +22,16 @@ Peu nous importe que ces institutions, ces publications ou ces œuvres soient ou
 officiellement ou officieusement comme étant socialistes.
 Nous savons de longtemps que l'étiquette importe peu.
 Nous connaissons de jour en jour que l'étiquette socialiste, aliénée par les partis, a de moins en moins de
-sens.
 
 Nous annonçons impartialement. Nous ignorons les
 commérages de quartier. Nous voulons espérer que les
 rivalités renaissantes ne seront jamais de misérables
-concurrences bourgeoises.
 
 Nous annonçons les institutions, les publications et les
 œuvres qui nous paraissent devoir intéresser nos
 abonnés, sans demander aux auteurs, aux éditeurs, aux
 initiateurs ni leur avis ni leur finance. Nos annonces
 n'engagent donc pas la responsabilité de ceux que nous
-annonçons.
 
 Au commencement de cette année scolaire nous aurons
 beaucoup d'annonces à publier. Nous annonçons aujourd'hui l'école des hautes études sociales. Nous continuerons nos annonces dans le troisième cahier de la
@@ -52,18 +46,10 @@ toutes faites qui nous sont communiquées où que nous
 obtenons. D'ailleurs nos cahiers deviendraient inabordables s'ils' étaient un amas de documents, de programmes et d'affiches typographiquement tumultueux.
 Les personnes amies du travail bien fait remarqueront
 l'art avec lequel nos collaborateurs les ouvriers compositeurs, le metteur en pages et le prote ont résolu la
-difficulté.
 
-ÉCOLE DES HAUTES ÉTUDES SOCIALES
-ÉCOLE
-DES
 École de Morale, École sociale, École de Journalisme
 
 rue de la Sorbonne, à Paris
-LES COURS ONT OUVERT LE 12 NOVEMBRE 1900
-ADMINISTRATEURS
-Fézix ALCAN. — CHARLES GUIEYSSE. — GEORGES SOREL
-CONSEIL DE DIRECTION
 Président : Émize Bourroux, de l'Institut
 FéLIx ALCAN, éditeur. — AuLARD, professeur à la Faculté
 des lettres de l'Université de Paris. — G. Bezor, membre
@@ -93,7 +79,6 @@ FouxLée, de l'Institut. — Henry Fouquier, journaliste.
 — EUGÈNE FoURNIÈRE, député. — CHARLES GIE, professeur à l'Université de Montpellier, chargé de cours à la
 Faculté de droit de Paris. — Enmonp Goupcraux, membre
 du Conseil de surveillance de l'Assistance publique
-Paris. — CHARLES GuIEYSsE, ancien officier d'artillerie,
 secrétaire général de la Société des Universités populaires. — PAUL GuIEYSSE, député. — ÉTIENNE JACQUIN,
 conseiller d'État, président de la Ligue de l'Enseignement.
 — Gusrave LANsoN, maître de conférences à l'École normale supérieure. — GusrAve LArRoUMET, de l'Institut. —
@@ -111,8 +96,6 @@ GABRIEL SÉAILLES, professeur à la Faculté des lettres de
 l'Université de Paris. — CHARLES SEIGNOBOS, maître de
 conférences à la Faculté des lettres de l'Université de
 
-Paris. — Léon pe Senna, publiciste. — GRORGES SOREL,
-
 ancien ingénieur en chef des Ponts-et-Chaussées. — PAUL
 
 SrrAUSS, sénateur, — Tarpe, professeur au Collège de
@@ -121,28 +104,10 @@ France. — TramIN, recteur de l'Académie de Rennes. —
 
 ADRIEN VEBER, conseiller municipal. — Le pasteur
 
-WAGNER.
-
-DIRECTION
-Directeur : ÉMILE DucLAux
-
-Trésorier : À. Rose. — Secrétaire général : Dicx Max
 Secrétaire : ANTOINE VACGHER, ancien élève de l'École nor-
 
 male supérieure, agrégé d'histoire et de géographie (1)
 
-ÉCOLE DE MORALE
-CONSEIL D'ENSEIGNEMENT s
-Président : M. ALFRED CROISET
-
-G. Bezor. — MARCEL BERNÈS. — Emice BouTRoux. — FERDINAND BUISSON. — DARLU. — CHARLES GIDE. — ANATOLE
-LERoY-BEAULIEU, — MALAPERT. — MARILLIER. — CHARLES
-RICHET. — SÉAILLES. — TARDE. — THAMIN.
-
-Cours
-HISTOIRE DE LA MORALE GRECQUE
-M. ALFRED CROISET
-L'ÉDUCATION MORALE DANS LES LYCÉES
 Série de leçons suivies de discussions ouvertes
 Introduction par M. ALFRED CROISET
 
@@ -153,13 +118,10 @@ membres des Conseils d'enseignement, sont nommés par le Conseil
 
 (1) Depuis le 15 novembre le secrétaire est M. Paul Mantoux,
 ancien élève de l'école normale supérieure, agrégé d'histoire et de .
-géographie.
 
 premier cahier de la deuxième série
-RÉPARTITION DES LEÇONS
 
 1. Éducation morale : traditions et tendances de l'Univer-
-sité : M. (x), professeur.
 
 2, Conditions et moyens de l'éducation morale : M. DarLu,
 maître de conférences à l'École normale de Sèvres.
@@ -174,10 +136,6 @@ sciences : M. Brocue, professeur de lycée. —f) En philosophie : M. MArAPERT, 
 
 5. Ÿ a-t-il lieu de faire des conférences spéciales de
 morale en dehors de la classe ? : M. BeLor, professeur de
-lycée.
-
-LA MORALE ET L'ARMÉE, ROLE DE L''OFFICIER fe
-M. CHarLes Guigysse, ancien officier d'artillerie
 
 Du commandement militaire; autorité répressive et autorité morale ; le Règlement. Le sentiment religieux et la guerre. L'esprit
 civique et l'esprit militaire. — L'officier, le sous-officier, le dispensé
@@ -188,7 +146,6 @@ La vie militaire du soldat, la caserne, la garnison ; réformes. Cercles
 - de compagnie, conférences à la troupe, etc. — Patronage dans
 l'armée, par l'armée. — La lutte antialcoolique dans l'armée et par
 l'armée.
-LA VIE DE FICHTE
 M. Xavier Léon, directeur de la Revue de métaphysique
 et de morale
 
@@ -215,7 +172,6 @@ Kant; le premier écrit philosophique : la critique de toute révélation. — c
 
 V. Le retour en Suisse, 1793. — a) Mariage de Fichte et voyage de
 noces. — b) Les écrits sur la liberté de penser et sur la Révolution
-française.
 
 VI. La chaire d''Iéna, 1794-1795. — a) Appel de Fichte à la succession de Reïnhold,à Iéna; les relations de Fichte; ses premiers
 succès. — b) Le cours sur la théorie de la science et les conférences
@@ -240,60 +196,27 @@ X. Ee deuxième séjour à Berlin, 1808-1814. — a) Le plan de l'Université id
 professorat. — b) La guerre de 1812. Les derniers actes du penseur.
 Sa maladie et sa mort.
 
-LES DOCTRINES DE HAINE
 M. Axaroze Leroy-BEAULIEU, de l'Institut
 Introduction. — L'antisémitisme. — L'antiprotestantisme. — L'anticléricalisme, — Conclusion.
-L'OBLIGATION MORALE ET LA COUTUME
 M. L. MariLiier, maître de conférences à l'École des
-Hautes Etudes
 I. L'habitude et la tradition. — II. La loi et Ta contrainte sociale.
 — II. La suggestion et l'imitation sociales. — IV. La morale obligas
 toire et la morale idéale.
 
 premier cahier de la deuxième série
-LA DOULEUR
 le pasteur WAGNER
 La douleur. Ses sources. Ses formes. Ses manifestations dans la
 religion, la morale, l'art et la poésie. La lutte contre la douleur.
 L'exploitation de la douleur. Les fruits de la douleur.
 Cours et conférences du soir sous la direction
 de M. FERDINAND BuIssoN
-L'ÉDUCATION MORALE A L'ÉCOLE
 Série de leçons, suivies de discussions ouvertes, par des maîtres ,
 et des administrateurs de l'enseignement primaire.
-Conférences
-MORALE ET CIVILISATION
 M. Émixe Bourroux, président du Conseil de direction de
 l'Ecole des Hautes Etudes sociales
-L'IDÉE DU DEVOIR EN MORALE D'APRÈS KANT
 Exposilion et critique
-Deux Conférences
 M. DarLu, maître de conférences à l'École normale de
-Sèvres
-MORALE ET SOCIALISME
-M. Euaène FouRNIÈRE, député -
-FRÉDÉRIC NIETZSCHE, SA MORALE, SES DISCIPLES
-Trois conférences
-M. E. pe Rogerry, publiciste
-LA VALEUR MORALE DE L'ART
-M. GEORGES SOREL
-LA MORALE CAFRE
-Trois conférences
 M. Louis Vicouroux, député, professeur d'économie politique à l'École spéciale d'architecture, chargé de plusieurs
-missions en Afrique, en Amérique, en Australie.
-
-ÉCOLE SOCIALE
-CONSEIL D'ENSEIGNEMENT
-Président : M. Émix Ducraux
-BerTaéLemy. — Émire BourGrois. — FERDINAND Buisson.
-
-— ALFRED CROISET. — DuMAy. — ARTHUR FONTAINE. —
-
-EUGÈNE FOURNIÈRE. — CHARLES GIDE. — PAUL GuIEYSSE.
-
-ERNEST LAVISSE. — GABRIEL SÉAILLES. — LÉON DE
-
-SEILHAC. — PAUL STRAUSS.
 
 I. Préparation à l'enseignement des Universités populaires
 Conférences et exercices dirigés par les présidents de section
@@ -302,8 +225,6 @@ des Lettres de l'Université de Paris.
 
 Sciences physiques et naturelles. — M. Émire DucrAUx,
 directeur de l'École des Hautes Études sociales.
-
-Lectures dramatiques.— M. Pauz Duruy, surveillant géné-
 
 ral de l'École normale supérieure.
 
@@ -316,26 +237,18 @@ secrétaire général de la Société des Universités populaires.
 Enseignement littéraire.— M. GusTAve LANSON, maître de
 conférences à l'École normale supérieure.
 
-“Enseignement artistique.— M. H: LEMONNIER, professeur
 la Faculté des Lettres de l'Université de Paris.
 
 Histoire. — MM. Gasrrez Moxo », de l'Institut; maître de
 conférences à l'École normale supérieure, HexRri HAUSER,
 professeur à la Faculté des Lettres de l'Université de Clezmont, et Émice BourG£ois, maître de conférences à l'École x
-normale supérieure.
 
 Pédagogie.— M. CuarLes Ricugr, professeur à la Faculté
 de Médecine de l'Université de Paris.
 
-Philosophie sociale. — M. GABrieL SéAILLes, professeur
 la Faculté des Lettres de l'Université de Paris.
 
-Lit
-
 premier cahier de la deuxième série
-IT. Cours
-LE CONTRAT DE SALAIRE, LE ROLE DES SYNDICATS
-PROFESSIONNELS
 M. Pauz Bureau, professeur à la Faculté libre de droit
 de Paris
 I. La fonction de l'ouvrier dans la production industrielle : en
@@ -350,14 +263,10 @@ collectif du travail. — VI. A quelles conditions l'action des syndi- g
 cats est efficace. — VII. Relations des syndiqués avec les patrons,
 avec les non-syndiqués et avec les consommateurs.
 N. B. — Ces études seront strictement conduites d'après la méthode
-d'observation. ÿ
-HYGIÈNE SOCIALE
-M. Éme Ducraux
 La maladie eonsidérée au point de vue social. — Affaiblissement
 de la race et de l'individu. — Lutte sociale contre les maladies
 évitables. — Histoire des associations animales au point de vue de
 la résistance aux maladies. k
-LES ORIGINES DU POSITIVISME J
 M. GrorGes Dumas, professeur de philosophie au collège j
 Rollin, chef du laboratoire de psychologie de la Faculté
 de médecine de Paris.
@@ -365,14 +274,11 @@ A. Plan général du positivisme. — Partie scientifique et partie
 sociale. — Rapport de ces deux parties. — B. Origines scientifiques
 du positivisme : Descartes, Turgot, Condorcet, Saint-Simon, Burdin. — C. Origines politiques : Saint-Simon, de Maistre. Le catholi-
 cisme. — D. La science et l'esprit catholique associés dans le positivisme.
-L'ORGANISATION OUVRIÈRE
 Série de leçons par des administrateurs des sociétés ouvrières
-Directeur d'études : M. ARTHUR FONTAINE
 directeur du Travail
 1. Discours d'ouverture par M. ARTHUR FONTAINE.
 Coalitions : conciliation, arbitrage, grève et lock-out. — M. Keü- à
 secrétaire de la Fédération française des Travailleurs du
-livre.
 
 2. Rôle des syndicats : placement, chômage, conflits, contrat collectif, contréle de l'application des lois, enseignement technique, etc.
 — M. Coupar, secrétaire de l'Union corporative des mécaniciens.
@@ -395,7 +301,6 @@ supérieur du travail. — M. BRiAT.
 prud'hommes. — M. QuiLLenT, conseiller prud'homme ouvrier.
 
 8. Rôle des Associations ouvrières de production. — M. ViLa, secrétaire de la Chambre consultative des Associations ouvrières de
-production.
 
 9. Rôle des associations ouvrières de consommation. — M. GuicLEMIN, secrétaire de la Bourse coopérative des Sociétés de consommation.
 
@@ -407,7 +312,6 @@ populaires. — M. JACQuIOT, secrétaire de la Solidarité, université
 populaire du treizième arrondissement.
 
 12. Rôle des Associations politiques. — M. Nrcoras, ouvrier typographe, membre de la Commission administrative de la Bourse du
-travail.
 
 13. Conférences sur l'organisation des employés. — Difficultés
 rencontrées dans la création des syndicats d'employés. — Nécessité
@@ -415,9 +319,6 @@ du groupement syndical pour les employés, etc. — M. MARTINET,
 secrétaire de la Chambre syndicale des employés.
 
 14. Synthèse. — M. ARTHUR FoNTAINs, directeur du Travail.
-
-LES THÉORIES SOCIALES EN FRANCE DE 1830 À 1848
-M. Eucèxe FournièRE, député
 
 SAINT-SIMON. — Sa doctrine. La propagande du père Enfantin
 (831). La communauté de Ménilmontant. Les procès. Conséquences
@@ -451,7 +352,6 @@ Les BABOUVISTES. — Buonarroti, Blanqui. Leur doctrine communiste. Leur action 
 
 ProupHON. — Sa critique sociale économique. — Le mutuellisme.
 
-L'ASSOCIATION COOPÉRATIVE
 M. CuARLes GIDE, professeur à l'Université de Montpellier,
 chargé d'un cours à la Faculté des lettres de l'Université
 de Paris.
@@ -462,19 +362,12 @@ pays, qui y ont fait prédominer telle ou telle forme. — Si la coopé-
 ration peut s'adapter à l'évolution industrielle, commerciale ou agricole. — En quoi le coopératisme se rapproche ou se différencie du
 capitalisme, du collectivisme, de l'anarchisme.
 
-LA MUTUALITÉ
-M. Pauz Guixysse, député
-
 Définition des risques divers courus par les individus; leur réparation par les groupements. — Règles générales qui doivent pré-
 sider aux groupements sociaux. — Etude des questions : maladies,
-accidents, invalidité, vieillesse, chômage, incendie, etc. — Sociétés
 de secours mutuels, générales, professionnelles. — Unions de
-sociétés.
 
-LES ORIGINES DU CAPITALISME MODERNE EN FRANCE
 Conférences par M. Henri HaAuUser, professeur à l'Université
 de Clermont
-LA RÉFORME DES LOIS SUCCESSORALES
 M. Pauz LAcomsr, inspecteur général des Archives
 et Bibliothèques
 
@@ -486,10 +379,7 @@ plus communes de la coutume et de la loi. Critique de ces dispositions. — Disp
 idées du législateur ? — Réformes à proposer pour mettre la loi sur
 les successions en accord avec les tendances de notre époque, avec
 la logique et avec le principe fondamental de la responsabilité individuelle. — Concordance à établir entre la réforme du droit successoral et la réforme de l'éducation.
-DOCTRINES SOCIALES CATHOLIQUES
 Le R. P. Maumus
-L'ÉVOLUTION VERS LA PAIX
-M. Gasron Mocu, ancien capitaine d'artillerie
 1. La guerre à travers les âges. Sa prétendue nécessité (point de
 vue moral et point de vue politique). — 2. Première phase de l'évolution : la pacification par extension de l'aire de sécurité (formation
 des nations actuelles). Aboutissant : la paix armée (ou anarchie internationale). — 3. Situation actuelle. — Coût de la paix armée et d'une
@@ -501,19 +391,11 @@ l'intérieur comme à l'extérieur) par la justice. — 5. Étapes à parcourir 
 internationale permanente. Aboutissant : la fédération européenne
 (état juridique international). — 6. La Conférence de la Haye. —
 7. But final : L'ère sans violence. L'éducation pacifique. Le temps
-nécessaire.
-LES SYNDICATS OUVRIERS EN ANGLETERRE ET EN AMÉRIQUE
-M. Pau pe Roustrers, publiciste
-LES IDÉES SOCIALES EN ALLEMAGNE
-M. SARRAUTE, docteur en droit
 Les divergences théoriques et pratiques dans, le socialisme all emand.
-L'ASSISTANCE SOCIALE
-M. PAUL STRAUSS, sénateur
 I. L'assistance communale. — II. Les bureaux de charité sous
 l'ancien régime. — III. Les secours publics pendant la Révolution.
 — IV. Les bureaux de bienfaisance en France. — V. Les secours
 premier cahier de la deuxième série
-domicile à Paris : indigents, nécessiteux, malades. — VI. Réparti-
 
 tion, localisation et distribution des secours ; enquêtes, visites, etc.
 
@@ -523,23 +405,8 @@ Angleterre et aux Etats-Unis. — IX. La curatelle des pauvres du
 
 troisième arrondissement de Paris. — X. Ce que doit être la bien-
 
-faisance méthodique à Paris.
-
-Visites annexées aux cours suivants : Hygiène sociale,
-Organisation ouvrière, Association coopérative, Mutualité,
 Assistance sociale, sous la direction de MM. Ducraux,
 FONTAINE, GIDE, GUIEYSSE et STRAUSS.
-ÉCOLE DE JOURNALISME
-CONSEIL D'ENSEIGNEMENT
-Président : M. J. CorNÉLY
-
-AULARD. — ADOLPHE BRISSON. — JuLEs CLARETIE. — HENRY
-FouqQuIER. — GUSTAVE LARROUMET. — GAsroN Mocx. —
-ARMAND SCHILLER. — CHARLES SEIGNOBOS.
-
-1. — COURS PROFESSIONNELS DE RÉDACTION
-
-1. — Cours professionnel. — M. J. Corxézy.
 
 2. — La grande actualité, le reportage et l'interview. —
 M. JEAN BERNARD, rédacteur à l'Indépendance belge.
@@ -568,10 +435,8 @@ teur au Temps.
 rédacteur au Temps.
 
 2. — La Presse sous la Restauration. — M. Lucrex Maury,
-publiciste.
 
 3. — Histoire de la Presse sous le règne de Louis-Philippe
-(trois lecons). — M. FéLrx LÉveILLÉ, publiciste.
 
 Situation de la presse au moment de la révolution de juillet. — 1
 Modifications apportées par la Charte. — Les lois de septembre
@@ -580,7 +445,6 @@ leurs conséquences. — Le journal à bon marché; le roman-feuilleton.
 presse religieuse. — La presse socialiste.
 
 4. — Histoire de la Presse sous le Second Empire (sept
-lecons). — M. Féuix LéveiLcé, publiciste.
 
 Situation de la presse, lors de l'élection du prince Louis-Napoléon
 — Coup d'Etat du 2 décembre 1851: ses conséquences. — Journaux
@@ -592,21 +456,15 @@ libertés. — Mécontentement des journaux ultramontains. — Sadowa.
 évolution ; l'Empire libéral. — Ministère Émile Ollivier. — La déclaration de guerre. — Progrès de la presse socialiste durant les dernières années de l'Empire.
 
 5. — Histoire contemporaine traitée au point de vue du
-journalisme politique. — M. CHARLES SrIGNO80s, maître
 de conférences à la Faculté des Lettres de l'Université de
-Paris.
-Il. — LES PRESSES ÉTRANGÈRES
 
 1. — La Presse russe. —M. AxDrÉé TripoN, attaché à l'agence
-Havas.
 
 1. Caractères généraux et législation de la presse russe. — 2 et 3.
 Ses principaux journaux.
 
 2. — La Pres$e américaine. — M. Louis Vraouroux, député.
 Leçon d'ouverture : Interview du professeur John French
-
-Johnson.
 
 premier cahier de la deuxième série
 Comment se rédige un journal américain. — L'information à outrance. — Reportage et coup de télégraphe. — Une conséquence de
@@ -650,8 +508,6 @@ vraisemblance a été atteinte. Ce n'est pas tout : on pourrait exa-
 
 miner dans quelle mesure une œuvre musicale est ou n'est pas co-
 
-hérente.
-
 IV. Caractère actuel de la chronique musicale : elle n'arrive pas
 à se distinguer de la chronique, malgré de louables efforts pour s'en
 dégager. Comment faire aboutir les efforts ? Retour sur les résultats
@@ -659,20 +515,14 @@ dégager. Comment faire aboutir les efforts ? Retour sur les résultats
 des analyses précédentes.
 
 Conférences professionnelles annexées au Cours de
-rédaction.
 
 Travaux pratiques, sous le patronage du Conseil
 de lÉcole, dans les ateliers des grands journaux de
-Paris.
-
-"à ÉCOLE DES HAUTES ÉTUDES SOCIALES
-EXTRAITS DES STATUTS
 
 ARTICLE PREMIER. — Un établissement libre d'enseignement supérieur est organisé à Paris sous ce titre
 École des Hautes Études sociales.
 
 AnRricze 2. — L'École des Hautes Études sociales comprend trois sections, dont voici les noms : École de morale, École sociale, École de journalisme. D'autres sections pourront être ouvertes au fur et à mesure des
-besoins.
 
 ARTICLE 3. — L'enseignement comprend des cours et
 des conférences. Chaque professeur garde la liberté et
@@ -681,8 +531,6 @@ dans l'association volontaire au travail de l'École.
 
 ARTICLE 10.— Sont admises aux cours de l'École
 toutes les personnes qui en font la demande, sous les
-conditions suivantes
-1° Inscription au secrétariat;
 
 Versement d'un droit d'inscription général de
 francs, et d'un droit d'inscription spécial de 10 francs
@@ -706,8 +554,6 @@ Recevront le titre de membres donateurs les per-
 sonnes ayant versé une somme de 100 francs au moins;
 _elles pourront assister en tout temps aux cours, confé-
 rences et visites.
-DIPLOME
-DE L'ÉCOLE DES HAUTES ÉTUDES SOCIALES
 
 ArricLe PREMIER. — L'École des Hautes Études sociales délivre deux sortes de diplômes : un diplôme de
 section et un diplôme d'École.
@@ -730,8 +576,6 @@ toujours celui de l'École sociale.
 
 ARTICLE 4. — Une réduction de la durée des études
 pourra être accordée aux étudiants étrangers, sur demande appuyée par les présidents de section.
-
-NOS COMPTES RENDUS j
 
 Nos anciens abonnés savent comment nous rendons
 compte. Nous allons voir pour eux, quand nous le pouvons, les cérémonies, séances et manifestations qu'ils
@@ -791,9 +635,6 @@ sociale et son évolutionnisme non révolutionnaire. Mais
 cela même avait un autre accent, dit honnêtement par
 lui, que répété commodément par M. Millerand.
 
-DISCOURS DE M. BOUTROUX
-Mesdames, messieurs,
-
 L'école des hautes études sociales est l'expression
 d'une idée très conforme à l'esprit général de notre
 temps : celle du groupement et de l'organisation
@@ -811,7 +652,6 @@ suppose la politique comme science. Or, toute
 science comporte et appelle, avec la multiplicité
 et la spécialité, la coordination rationnelle des
 recherches, Toute science est, par nature, œuvre
-collective.
 
 Nous avons relu nos épreuves sur le texte écrit de M. Boutroux.
 
@@ -879,7 +719,6 @@ les plus sûrs et les plus efficaces. C'est là une
 troisième tâche impliquée, comme les deux premières, dans l'objet que nous avons défini.
 
 Pour satisfaire à ce triple besoin, l'École des
-Hautes Études sociales comprend trois écoles
 distinctes : École de Morale, École sociale proprement dite, École de Journalisme.
 
 L'École de Morale étudie, par rapport au temps
@@ -1081,7 +920,6 @@ les individus, livrés à eux-mêmes, seraient incapables d'accomplir, mais enco
 mence, par son influence sur les âmes et les volon-
 tés, la réalisation des harmonies morales. Apprendre
 ensemble, et les uns des autres, c'est déjà s'aimer.
-(Vifs applaudissements) ‘
 Au moment où nous mettons sous presse, nous ne pou- À
 vons qu'annoncer en bref à nos abonnés que M. Duclaux
 a fait mardi soir à l'école des hautes études sociales une
@@ -1089,13 +927,8 @@ leçon très rare et très forte pour l'inauguration du . ,
 cours préparatoire à l'enseignement des universités
 populaires, que nous avons fait sténographier cette
 leçon, et que nous la publierons dans un prochain +]
-cahier. ?
-
-ALLOCUTION DE M. DUCLAUX
 
 M. Duclaux n'a pas revu la sténographie.
-
-Mesdames, messieurs,
 
 Vous reconnaîtrez qu'il y a quelque témérité à prendre
 la parole après M. Boutroux et à courir les hasards de
@@ -1194,7 +1027,6 @@ son examen, à peu près aussi importantes que le théorème
 ‘ du carré de l'hypoténuse ou la règle de trois. Ce qu'il devrait
 avoir en entrant dans la vie comme élément fondamental,
 ce qui est destiné à faire l'homme que sera cet élève, est
-peu près négligé.
 
 Vous comprendrez, dans ces conditions, qu'un certain
 nombre de professeurs de l'enseignement secondaire, émus
@@ -1292,7 +1124,6 @@ travers, tant pis, les hommes seront balayés, et qui ne
 s'en préoccupent pas davantage; — il y a des écoles
 qui disent qu'il est dans la loi naturelle que les faibles
 disparaissent et que si les pauvres sont faibles, ils n'ont
-qu'à disparaître. — D'autres écoles, au contraire, disent
 si les riches font obstacle au progrès, qu'ils disparaissent
 aussi.
 Eh bien, nous sommes entre ces deux écoles rivales; nous
@@ -1617,7 +1448,6 @@ ce qu'est le classement des partis. Tous ceux qui connaissent
 M. Seignobos savent ceci : c'est que s'il y a quelqu'un qui
 peut jouer, dans le monde politique actuel, le rôle que Le
 Sage a donné dans le Diable boiteux à Asmodée, c'est cer-
-tainement M. Seignobos.
 
 L'histoire des presses étrangères sera partagée entre
 M. Pierre Mille, qui a fait ses preuves sur ce point, et qui
@@ -1675,7 +1505,6 @@ rale plus approfondie des hommes et des choses. Voilà un ÿ
 buttrès noble, très louable, auquel nous nous associons.
 Nous avons aussi l'appui de la Bibliothèque des sciences e
 sociales ; de sorte que notre action à l'extérieur est déjà un
-peu commencée.
 En somme, il n'est pas nécessaire de commencer grandement pour aboutir à de grandes conséquences; il suflit
 d'avoir du courage; il suflit aussi — et c'est peut-être le
 secret de ma présence ici — de songer que ce qu'on veut pro- ÿ
@@ -1735,13 +1564,11 @@ transférées 16, rue de la Sorbonne, au second.
 M. André Bourgeois, administrateur des cahiers,
 reçoit pour l'administration tous les jours de la
 semaine, le dimanche excepté, — le matin de dix
-onze heures.
 
 M. Charles Péguy, gérant des cahiers, reçoit pour
 la rédaction
 
 le jeudi soir de deux heures à sept heures et de
-huit heures à dix heures,
 le vendredi matin de huit heures à onze heures.
 
 Adresser à M. André Bourgeois, administrateur des
@@ -1787,6 +1614,5 @@ aura installé nos nouveaux envois.
 Nous prions nos souscripteurs et nos abonnés de vou-
 loir bien nous envoyer des mandats de poste plutôt que
 des bons : le mandat est une pièce d'administration plus
-complète.
 Nous avons donné le bon à tirer après correction de ce
 premier cahier le jeudi 29 novembre 1900.

@@ -7,14 +7,10 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 800
 ---
-
-“ É4 ER a È
-
 # | CAHIERS NIVERNAIS
 
 où Mon cher Péguy,
 44 J'ai le plaisir de vous annoncer la naissance des Cahiers
-e Nivernais.
 La politique est une belle chose. IL est noble et beau
 - d'être radical socialiste, d'organiser des réunions éleetorales, de rédiger des programmes, de fonder des comités
 pour soutenir une candidature. De bonnes polémiques
@@ -36,7 +32,6 @@ gi Il s'est trouvé un homme qui les a mis en rapport, qui
 _._ appelées je crois convocations, et nous a réunis.
 HR Cet homme, c'est le commandant de recrutement de
 Ke Nevers, qui convoqua ses réservistes pour leur faire faire
-…._ vymgt-huit jours.
 M Ce fut donc à la caserne, à la table de la cantinière,
 1 madame Garnier, que huit ou dix Nivernais, hommes
 —_ d'études et de bonne volonté, firent connaissance. Ils
@@ -46,7 +41,6 @@ K plus tôt, mais convinrent du moins de ne pas se perdre de
 th vue, et d'essayer d'agir ensemble.
 ‘(ah Pendant une marche-manœuvre dans laquelle je remplissais avec honneur et fidélité les importantes fonctions
 ee d'homme de communication, l'idée me vint de fonder ici
-quelque chose d'analogue aux cahiers.
 
 1 Deux amis qui à l'école de section se trouvaient être file
 de base réfléchirent à l'idée, l'approuvèrent, et ce fut placés
@@ -77,10 +71,6 @@ rue de Paris, à Nevers, secrétaire de la rédaction.
 È M. Emmanuel Defert, 45, boulevard des Batignolles, va
 se mettre en relations avec le Groupe des Nivernais de
 
-Paris.
-
-V4 André Lucien Dalluy
-
 5 Nous souhaitons que les cahiers nivernais naissent et se vivent justes, vrais, utiles, prospères, libres, qu'ils travaillent solidairement avec nous, mais qu'ils soient libres de nous aussi.
 fo Le Gérant : CHARLES PÉGUY
 
@@ -95,12 +85,9 @@ DENT: Nous envoyons éventuellement nos cahiers à qui nous
 
 _ Nous acceptons que nos abonnés paient leur abonne- ee.
 —_ mentpar mensualités de un ou deux francs. À
-4 Men e
 Fat M. André Bourgeois, administrateur des cahiers,
 FE reçoit pour l'administration et pour la librairie tous
 5 les jours de la semaine, le dimanche excepté, — de ù
 ÉE huit heures à onze heures et de une heure à sept À
-‘à heures.
 M. Charles Péguy, gérant des cahiers, reçoit pour
 … La rédaction le jeudi soir de deux heures à cinq heures. à
-—_

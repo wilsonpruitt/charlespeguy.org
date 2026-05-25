@@ -7,326 +7,110 @@ author: paul-milliet
 isAvertissement: false
 wordCount: 39700
 ---
-
-5 CUGE TONS LOT SANS SAjérs cu ‘ A CT AE 2
-DR RE PT EN AD ONE Va RE RE: SRE En LEA
-à STE SR ER RE TER A EEE
-4 AL Tel er ES LgX PU ESS , 4 Let s
-D PAUL LE PRÉ R ARE ERS : DE, ;
-PO A tn e à 4 x FAX j
-20008 LES RAS ré . ; > F
-; AS SRE , EP ; :
-A LEA PANE 3 F ;
 F F1 FETES AAA Sec De er x
-À {40 ENCRES 4 - ET J
-MR D PS x PLU, G = NES
-4 * LE # OR Gi , À k
-LR 2 ARRET P3 Er « Le a. #3 + VE 5 53 > : ù
-D 1 ARMES a - : LAIT RES
-ER CERRRES 7 : Re TP ME
-M, 77 PRIE rÉFCRES :. f 24% i* d. ER.
 | ri CR RM 2 ko. LE PTE k TS
-LA LIRE En" Ne # . PE ÿ x,
 | A ae Re.
 | CLR NIEE CU DEEE LS ir < ; L SÉCRTES +
-M aa SEE 7% ect RU AUS : # re, CREER à 5
 | FL ECNT POINRENEES El ae à , NET EE } Hs SP 2
 AR: PT PIE Te CANNES SRE RU ET te ; RE Ur pe
 | TER ANNEE ER CAPE ANLT | d Re Co
 | : 2NB: NT RE TEEN ONE ES ARE Fe ES IE
-‘3 FR SR DURE CHE à 1 : LINE FR | ee MES Fe Un CAPE
 
 | | »: Le
-RL -
-là
-à
-D
 
 _ Dans les vingt cahiers de leur cinquième série, année pe ©
 scolaire 1903-1904, nos cahiers ont publié : M.
 V-1. — Henri DAGAN.— les massacres de Kichinef. 5 » :
 V-2. — Pauz Duruy.— la vie d'Évariste Galois .. 2 » 4
-V-3. — le monument de Renan................... 2 » LE
 V-4. — Romain RozLan ».— Le Théâtre du Peuple. ÉPUISÉ à 4 be
 V-5. — Grorces CLEMENCEAU. — Discours pour la k di
 V-6. — Danrez HaLévy. — Histoire de quatre ans, =.
 V-7. — Henri Michel.— Notes sur la Hollande et sur L 3 er
 l'intimité. — Henri Lebeau, Jérôme et Jean Tharaud. — ‘4
 Moines\de lAthos.:.5: ETES TE PENSE TONNERRE 3 À
-V-8. — Dr. KarL BRUNNEMANN. — Maximilien 4 al
 Robespierre“... MAMIE Ne SEE F4
 V-9. — RomaIx RoLLanr. — Jean-Christophe. — 2 # [|
-Le laube:. 120. OL EN Na NS RNB | |
 V-10. — Romain RoLLanD. — Jean-Christophe. — |
 "le matin... 2%, provactuel 30 |
 V-11. — M.M.MaAnGasARIAN.— Le monde sans Dieu 2 » 4
-V-12. — FÉLICIEN CHALLAYE. — CHARLES PÉGUY. —
 petites RArRISONB ue once ARR NI
 V-13.— GABRIEL TRARIEUX.— (les Vaincus.— Hypatie 3 » |
-V-14. — Josepn BÉDrEr. — Gaston Paris........... 2 » Ë 4
 V-15. — Émize Moseicy. — Jean des Brebis ou le 2 |
 Gore dela misère. nr eee du crier SHARE à |
 V-16. — le congrès de Dresde, — édition GASTON |
 RARARRE Dee des sd US ANS Ge AU NE ARR PNA SCIE |
-V-17. — FRANÇOIS PoRCHÉ. — à chaque jour....... 2 » | |
 V-18. — Louis MÉNARD. — Prologue d'une Révo- ati
-AUOT 0e tn SNS Étude 20e II É |
 V-19. — JÉRÔME ET JEAN THARAUD.— les hobereaux 1 » 1: |
-V-20. — congrès des U. P. mai 1904.............. 2 » k a
 Voir en fin des autres cahiers les conditions et le F | 4
 prix de l'abonnement. Fi
 # Nous mettons le présent cahier dans le commerce; à.
 septième cahier de la douzième série; un cahier vert 1:
 de 188 pages; in-18 grand jésus; nous le vendons à
-trois francs cinquante. ti
 
-i HUITIÈME CAHIER DE LA DOUZIÈME SÉRIE
-? UNE FAMILLE DE RÉPUBLICAINS FOURIÉRISTES
-LES MILLIET
 VI.— mes maîtres et mes am
-CAHIERS DE LA QUINZAINE
 périodique paraissant tous les deux dimanches
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée |
 
-ul D IH ANT A AVS \ÉRNEE Lu TP RC ACTES À
-AN RL UE CPR EEE MA CPE ER SU PO 7 A] 5)
 Abba L/NT ARE ; U Fr " NES * TE DATE SAP Deer eo C4 JE:
 LEE ; t k VIE An QU le FAT NN
-2 \ ï RAA ER SE
-* * LT AN EURENUDES NES 4
-3 3 ( RAR US
-{ x k a y 5 SALONS RTE ERRERNER
-À Ps CAT RUTSS SONNEEEES
-à X à uw FA he SAR
-À MS Le
-k ER ARS
 # RTE
-va. jai pay à 4\
 
-UNE FAMILLE
-DE RÉPUBLICAINS
-FOURIÉRISTES
-LA
-AR
-Li
-
-NS AN ANR
-A SERRE >
 sa Li Ra à PAR ET ge SOCTR 0e he BCE AT ER 1
-DENT PT ATE MA ELA SARRNIS ESS PR AN
 | | | ) RO
-tai à
-1 NSP
-6 ‘Qi
-ë 174 (TP
-s à 0 #6
-VE - ANNE
 | °È CR
-LES LA
-2e FES
-Deus C4
-à É x VA
-f ». ù se & *
-Se
 | $ De À
 | TANT |
-MOT :
-ë Es }
-; YEN
-= ASAIENS
-SR
-mr NE :
-+: 30
-0 2 Fe: {
-
-RE M RSA LT A AE LEE A EE
-
-PEN NANTES NES + ARENA } RAR AT SR OES
-eee) SAN AGAIN AN ARE
-
-FPT A M CEE # EMEA
-
-1% LR 1 Î D
 
 | ANUS WE
 
-b M ENS PE + \ 3
-
-COR Sn. à j À £ : \ R
-
-OR F5 EE
 D les Millet - nt
-8 “QE FE ANA A ; i LE SELS
 
-M AAA NA: à K Û PATATE
 DR: N'0bPR de ss PROC ! ; NS nl
 
-M: 1; CN PEER 6 ; (A LEA
 | NN 2 ON 2URS
 
 | ‘4 Re HU Mie Er : ; ; LAS rie Es:
 | } D STATE ARTE à ÿ DR D CRD
-DRE. F REC
 
 | MER VE MARENAPEER A ÿ SU
 ete LE A si DA
-7, ETES 14
 
 | MEN) | ji ? \ VE RRTANENS
 
 | SES % CE RO RES
 
 | ; on, Es +1 Ne EN PEEN QUES più L È PARENT A vi)
-NN PES è : { PS CNT PEUR
 
-RARE AU EE TRe MAN DT UP A OS TN PATES Pa PO D MEET NN
 D 4 M SU AUS AN ANGL AS OA ARTE ND PAGE D NRA ES AU A rad (te CAQNEN Ta Wie vet
-(IC HR A EENETEN EEE EN Bee 00e CAL À ALU A En Ge D RO A gt
-RRY r : 4 Pr De +0 -
-Se ! % 4 LATTES ENRS
-rl (4, A ; l LEE
-; > ; 2° #
-F x j e* nee, .
-: A : J (1 ÈS
-j TMS
-üie « 1/7 NMERER
-; Re n
-? KL LATE
-% NET
-r- A,
-L fa * FINS “
-: CNE
-TC LKR
-‘s LTÉE
 # \1 PA RENNES
-LENS
-FANERS
 en FAT ‘Le x
-CA +
-f RNCS
-LS
 { ne “he
-û 1 4000 :
-: 1m + LES
-M . CRUE TT A -
-ñ x UE 2:
 
 VI. — mes maitres et mes amis
 
 M APT Je) Aux AU
 MPAAT PIRE AY RONA PAR NT) ré
-NP AA NS AE AU
-A TS eUe NEC MALE NOR M av AR AI À MU 18e
-M "HARRAN ps FRE
-LL x Ki ï Gare 1% NEA PEU RUN PART ARe LS Ne  :
 LS ENT EL LES PA CR GNT HO Et ap
 RARE dE Re US } ue rues NEA Les Fe PUA
-É APE ‘ QE ‘RS rate
-U CARS 1 VE
-4 Ô D Rs pi N AN re
-\ ET CR L
-Et 55
-« DRSAErn SAYS É
-ï er 42 EP k
-} P (RSC ê
-; ë LES EN à
-d * 4 M!
-s D
-mie
 
-F “ral à AS PRIO ERE- CRC R SE SR D EN ER RAS he
 | F: RUES RE VE SC RTL AP Pet 2 POULE NÈTE AROT RE À
 FSU ER Ce ANNE CRC rt REA LA ïe
-à TNT SS Re STE EMA EE Se ea, 4 me MERE ia Ra
-Ga Rs ie “A PÉMDT DA SR er Rene" PARENT En:
-7 PAPBAREN PLU ER CNE
-à 1e PEN Lys Rd LU, : 3 PA é 2 r A
 
 DL Mie, Por * L
 # FSI UESTESS 1: sd À RS
-D 1863-1868 : 100
-4 127 TRES FF : RES É
-AN à - Pr
-Dr « 52 PURES LE: F 1 EUX
 
-F MU p
-
-+ HE OR Le
-MN : SUR EIERE F Te VA
 : FÉES N'ORR et De ra
-Free FE ñ | ee 4e
 
 RENE RUMEUR A ÈS UN pete NUE | UT Des
-FULL ANTON ASS AT N À CU HR PAIE NS
 AE LES si FRE AA RENE Ne 1e ne VENT ven
 IQ ne NE a 1 Nr HT à RE Met be HS *
-SEC PA RON AUS RE APTE FOR 0 OMS DR ATVERT OA Ve Jin 2 VAR non, 4
-RATES ANNUAETS RAR TRAITENT RAR PAR LAN EURE CURE WAUELS ER LA
 ni Ne UT RENAN ANT AN UE ue AT A PANNE PALIN 0 A
-CHARTE AE] { | } ; : | (RUE DA
-CAVE ENS jf
-4 RO EL LEM M
-\ 177 Re À
-re À Kit 4° INTER
-1 TOR %s k
-‘EEE RE DAT
-ÿ “ MAN PART 1
-sS \ ACER ÉTE
-! ù RARE 1
-LOIRE
-+) Î
-1) ” + PRES ATANE.
-AE
-SAUCE
-} d + HAUT
-(RUN 1)" 1NreNeR (A :
-VeRs JU 1 LRO
-) | 14 UNE TER
 
-I
-MES AMIS DE GENÈVE
-maitres, — 1.
-
-Nr NT LEE 4 117 das CR RREE: "E @ Le VA AR SP EURE à y
-? Le M BR TT Lo 2 De EN re OR ST EME UN RER PRE Ê
 NS ARENA SEE ET AN DAT nat ed
-RL FCO RE NT MT Me RS RTE SRE PENRRE
-ANNEES CORP EUR NE UE PR TEE EN RSR OR < TL NS PEIRSES
-CUT CORRE OM CE EEE AS et Ve PARA 7 SAT LA LRO Ne "NN ERR
-“HHANE RE ES LAIT UE ES RARE re) LA CMS AR ONER MONET NE
 | ANS : : É 2 ME EN
-À " A e 1: NOIRS
-Sa : 57 FORTE
-x k M:
-A 2 D:
-$ A AIRES
-À F ,. à 3 N,
-e AU
-6 er SERRES à
-5 DR : }
-x ME ©:
-Aie : PSE
-MATIERE
-3 À |: LES
-à : = TELE
 L : ME Eee FESESS k
-(F T'ES
-AS RAR k
-0 , LA à > IAE Ly "1
-Fa 2 +30 x
-; ; MA $
-MB à STORE \
-k ; ae 4
-F " JRCERS
-EC
-r à Û PRE
-“ ‘ A 2 TES :
-è ; : PE
 
-Hi
 | & F
-À
 |
 | MES AMIS DE GENÈVE
 Rœhrich.— Balavoine.— Doret.— les Darier.— Jules Nicole.
@@ -342,21 +126,14 @@ j ont connus. Je voudrais donner aux jeunes Parisiens
 6 une idée de ce qu'étaient les jeunes Genevois de mon
 temps. Je ne crois pas me tromper en disant que mes
 amis représentaient excellemment ce milieu protestant,
-composé d'étudiants consciencieux, naturellement hon:-
 nêtes, et dont le sens moral était tous les jours affiné par
 la culture.
 Quel contraste entre les grossiers rapins de Paris, au
 milieu desquels j'allais me trouver transplanté, et mes
-chers théologiens genevois!
 L'austérité puritaine des mœurs calvinistes n'empé-
-D: 11
 
-MAMA E EG L OCT NT MORE AN ET M ET ACT TA ROME "2
-* se HT RE ARE NE, PAL
 Fer LA 1 NT NT SERRE ral
-N Ÿ Las 221) à D
 mes maîtres et mes amis ÉS M: :
-ÿ To ,
 chait nullement mes amis de plaisanter avec esprit, n11 4 ER
 de se divertir avec toute l'exubérance de leur âge. Leur " « enjouement et leur saine gaîté avaient cette heureuse
 franchise de gens qui n'ont rien à cacher. Les âmes k
@@ -378,17 +155,14 @@ filles du pays, accompagnées de leurs mamans. (1) ê
 Il fallait voir Charles et Albert Darier, les deux plus M
 beaux garçons de la Société, le front couronné de nn
 mousse, diriger le cortège, à la façon des bacchanales ä
-. cr) = . . » ET F
 antiques. On s'arrêtait sur la place publique pour exé- NU
 cuter le picoulet, danse bellétrienne qui a plus de rap- e
 port avec celles des sauvages qu'avec aucune autre
-danse connue. | RS
 (1) C'est pour une de ces fêtes que Marc Doret composa une ;
 chanson dont la vogue dure encore et dont le refrain était cent À
 fois repris en chœur dans un allegro plein d'entrain : ë à.
 Du petit blanc (bis), N
 La ville de Rolle, Qu
-Ma parole, 1 E >
 A du fameux petit blanc! fi
 12 5
 
@@ -398,7 +172,6 @@ A du fameux petit blanc! fi
 ‘ camarades occupés des mêmes études. Déjà avant de
 4 nous connaître personnellement, nous éprouvions les
 É uns pour les autres cette sympathie et cette bienL 2 veillance affectueuse qui devraient exister entre tous les
-hommes.
 + En France, à Paris surtout, les étudiants semblent
 , manquer un peu de cet esprit d'union, qui seul donne
 la vie aux associations. Peut-être n'entretiennent-ils pas
@@ -410,7 +183,6 @@ i n'auraient voulu le faire croire; je m'aperçus bientôt que
 3 ces fanfarons de vice posaient pour les mauvais sujets
 D + qui ne respectent rien. Mais leur gaîté factice et forcée
 4 n'en était pas moins celle de gens blasés avant l'âge; ils
-. - se complaisaient aux plaisanteries sales, aux brimades
 méchantes et bêtes. Je me sentais déraciné.
 
 C'est seulement chez mes amis de Genève que j'ai
@@ -430,8 +202,6 @@ constant effort vers le perfectionnement de soi-même et
 
 De « 1 des autres. Mes amis m'ont appris par leur exemple la
 
-r4 ,
-
 1 13
 
 mes maîtres el mes amis IS
@@ -439,7 +209,6 @@ tolérance, la sympathie même pour ceux qui, par des ‘9e.
 chemins divers, marchent comme nous les yeux fixés  #ù M
 sur un idéal de bonté et de justice. Qu'on l'appelle Dieu LE ©
 ou Humanité, cet idéal reste le même pour tous les 2
-honnêtes gens. | 4
 Sans avoir la prétention d'égaler de pareils modèles, 4
 je souhaite pourtant qu'on veuille bien m'appliquer un # 4
 peu le proverbe : « Dis-moi qui tu hantes, je te dirai 4
@@ -459,16 +228,10 @@ général Klapka. La Société de Zofingue mit au concours 6 \
 un chant patriotique sur l'air du « Rufst du mein Vater- … « land », et ce fut le jeune bellétrien Henri Rœhrich, étu- L 1
 diant en philosophie, qui obtint le prix. Voici quelques s
 verside ce chant qui est devenu l'hymne national de la f
-Suisse française : Î À
-O monts indépendants, rs
 Répétez nos accents |... 10
-div.
 
-pe FRE
-.Fn MES AMIS DE GENÈVE
 na Nos libres chants !
 à À toi, patrie,
-È ‘ Suisse chérie,
 à ; Le sang, la vie
 ï De tes enfants.
 | Gardons avec fierté
@@ -477,7 +240,6 @@ f L'arbre au Grütli planté
 E 2 Que d'âge en âge,
 \ Malgré l'orage,
 ! Cet héritage
-i Soit respecté.
 Rœbhrich, à l'époque où il était encore simple étudiant en théologie, manifestait déjà brillamment ses
 qualités de musicien, de poète et de philosophe. (1)
 . Nous l'avions nommé président de la Société de BellesD Lettres, parce que cet honneur lui revenait de droit. Il
@@ -485,19 +247,13 @@ qualités de musicien, de poète et de philosophe. (1)
 4: tout naturellement leur niveau. Les camarades de
 Rœbhrich acceptaient volontiers cette autorité légitime
 _ que donnent l'élévation de l'esprit et la droiture du
-caractère.
 
 Balavoine, aujourd'hui pasteur et professeur de philosophie morale à la Faculté de Théologie de Genève,
 terminait ses études. C'était un grand jeune homme à la
 tête bien construite, à la physionomie ouverte, au sourire :
 (à) « Notre cher Rœæhrich est plus qu'un philosophe, c'est une
 âme parfaitement belle, un cœur généreux et bon,un vrai serviteur de Dieu. La part est assez magnifique comme cela, » Note de
-K Jules Nicole,
-jh 19
-BR 2
 
-AP LAN EU ES à DE A NE NOTE D'OR SEQUES x {! :
-at : fe CAO 1fE,, | 1 YF ACTA
 ; mes maîtres et mes amis ERA } #
 spirituel et quelque peu moqueur, à la parole facile, à
 = l'esprit délié et subtil. Dans nos discussions, sa tendance
@@ -506,26 +262,19 @@ spirituel et quelque peu moqueur, à la parole facile, à
 coup de verve. Ses convictions religieuses n'ont jamais  e…
 ‘rien eu d'étroitement dogmatique. Je me trompe sans SL
 doute, mais j'ai souvent eu l'idée que, s'il eût été élevé
-À LV
 dans un autre milieu, sa nature peu mystique leût eu
 peut-être incliné vers le scepticisme. (1) Quoi qu'ilen De.
 soit, ses jolies lettres de jeunesse montreront la précoce
 gravité de son esprit philosophique. Vs
-H. Balavoine à Paul ; 1
 ; Carouge, le 10 octobre 63. 4 PAR
 … Je ne te dirai pas que tu as été nommé membre hono- à
 raire de la Société de Belles-Lettres et qu'on t'a décerné le fa
 Ruban d'honneur ; Nicole doit t'avoir raconté tout cela en N an
-ARE . RUN
 tannonçant son départ. Et moi je pars dans un mois. 5:
 Tout le monde part ici-bas, la vie n'est qu'une série de th
 départs, l'homme est un oiseau qui va de branche en F4
-. « . . = x CN
 branche, jusqu'à ce qu'il arrive à celle d'où le vent l'em- m4
-2. ‘à
-{ “0
 (1) Une lettre récente de mon ami semble confirmer ma suppo- k: A
-sition : &
 « Assurément, j'ai toujours joui ou souffert d'une activité de Sn :*
 pensée propre à me faire voir partout les difficultés, les objections, LA
 le pour et le contre. Vaincus sous une forme, les problèmes renais- # De :
@@ -538,14 +287,9 @@ autres du scepticisme, j'y ai toujours échappé moi-même. Sur &°
 Véchelon dernier gravi, je vois au-dessous les brouillards où Me
 d'autres grimpeurs s'entretiennent, rient ou se lamentent. Au- 1
 dessus le brouillard reprend, mais je sais que l'échelle monte. 4
-jusqu'au soleil. » A
-16 à HA ©
 VE Les
-, # D FA
 
-D
 | 148 Der MES AMIS DE GENÈVE
-ic
 W porte vers l'Éternité. Fais-tu de ces réflexions tristes dans
 N cette grande ville, où tout distrait et dissipe la pensée ?
 À N'en fais-tu pas de plus tristes encore ?
@@ -559,7 +303,6 @@ des siècles, il faut toujours recommencer, et ceux qui
 la moindre erreur les conduit à l'abîime, et leur âme se
 dessèche à ces travaux fatigants et sans fin. Mais tu n'y
 comprends rien probablement, soit dit sans te fàcher,
-passons à autre chose.
 Sais-tu que j'ai été réélu censeur au mois de septembre,
 À faute de mieux et parce que Nicole ne pouvait pas accepter.
 Suit le récit d'une malheureuse altercation entre deux
@@ -583,11 +326,8 @@ cela pour pouvoir serrer la main à mes amis d'études, pour
 4 apprentissage de la vie publique. ]
 | <”
 | À ‘
-Li LE
 
-k “ : 5 | RE ‘d
 | mes maîtres et mes amis LEE ‘#4 NS 1
-ÿ a 5 CRIE, ut Æ
 rechanter avec eux le Gaudeamus, pour réciter avec eux
 Othello ou Britannicus, pour les aimer et en jouir dans le 20 :
 _ passé et laisser retentir à mon oreille ces vieux refrains
@@ -601,10 +341,6 @@ parfait, le mal au bien, le passager à l'Éternel, le monde à
 Dieu, pour l'aimer et te donner à lui, et tu seras heureux,
 et tu vivras dans le temps et dans l'Éternité. :
 Salut fraternel et serrement de main. NE
-Adieu, c M:
-H. E. BALAVOINE ‘+
-Balavoine à Paul st
-Strasbourg, 3 décembre 1863. à À
 Mon cher Milliet, Ji
 Je suis entre l'enclume et le marteau; je viens de Cha- ar
  rybde et je cours à Scylla; j'ai fini, mes examens et je 4 à
@@ -620,13 +356,11 @@ agréablement sillonnée de rivières dormantes et de canaux où +
 bourbeux. On dit que le pays fait l'homme, c'est possible, 52
 dans ce cas, je dois être devenu passablement plat, ou ça k
 ne tardera guère. Malheureusement, l'homme ne fait pas le re
-PR AEN EE ! À
 () Fort heureusement le vilain épisode est depuis longtemps ï
 oublié, tandis que le souvenir de nos douces années d'études et j
 d'amitié subsiste toujours vivace. 2
 (2) On sait combien les habitants des régions montagneuses
 restent attachés à leur pays. Re
-18 | %k
 
 Ms ee. À MES AMIS DE GENÈVE
 
@@ -675,21 +409,12 @@ cultivée dans de certaines limites, est un délassement nécessaire pour conser
 4 j'en fais l'expérience. À force d'être tendu, inquiet, travaillé,
 je perds tout ce que j'avais et je ne trouve pas ce que je
 
-” 19 à
-
-À
-
-*
-
-sg sit MTS A FRA GA à OR PA EME PAUSE
 ne mes maîtres et mes amis GITE He &
 cherche. (1) Il ne faut abuser ni de son corps, ni de son "
 esprit, ni de son cœur, sous peine de les étioler et de les du dr ur
-abêtir. D +
 Tu vois que je prêche la distraction aujourd'hui, et c'est
 probablement parce que je n'en puis plus prendre. L'homme È
 a du penchant pour porter aux nues les biens qui lui
-manquent. %
 Tu me demandais, mon cher Milliet, de te donner des .
 nouvelles de nos amis bellétriens. Je ne sais rien de dl
 Nicole, pas même son adresse. Doret a commencé sa N
@@ -700,8 +425,6 @@ toujours ton ancien et affectionné co-bellétrien, un vieil : “
 ami, qui pense toujours avec plaisir à ces amusantes! LE
 soirées que tout concourait à rendre intéressantes et qui 14
 sont déjà si loin de nous. — Écris-moi, ce sera une bonne ei
-action. A.
-Dresde, 9 mars 64. :
 .… J'ai visité la galerie de tableaux; tu sais combien il y É £ &
 a là de chefs-d'œuvre. J'y suis allé six ou sept fois. Je n'ai EF
 pas encore tout vu et tout ce que j'ai vu je ne l'ai pas ‘8
@@ -720,10 +443,7 @@ Je voudrais que tu fusses ici cependant pour disserter F
 avec moi sur tous ces tableaux et pour m'aider à les com- F
 (1) On remarquera dans toutes ces lettres les effets du surme- e à
 nage intellectuel rendu nécessaire par les examens. , À :
-20 ee à
 
-D |
-Hu y HN de (
 | ss MES AMIS DE GENÈVE
 À prendre en me disant : Voilà où est la difficulté surmontée;
 ; là, ce n'est qu'un cliché, mais le trait de génie est ici.
@@ -739,7 +459,6 @@ F4 Tant pis, ou tant mieux!
 l'Eternel et vous vivrez. J'ai prêché dimanche sur ce texte,
 { mais je ne puis te faire jouir du sermon, ce serait trop
 N long et, quand on est si loin l'un de l'autre, il faut savoir
-1 se restreindre.
 
 Restreignons-nous donc, mais ne nous oublions pas.
 Donne-moi bientôt de tes nouvelles. Parle-moi de Nicole,
@@ -751,19 +470,14 @@ connaître cet esprit aimable et enjoué, ce cœur excellent. La douceur et la b
 lheureux père d'une nombreuse et belle famille, la
 droiture de son jugement, la sagesse de ses conseils
 ont créé autour du vénéré pasteur une atmosphère d'un
-charme bienfaisant. (1)
 La lettre suivante nous révèle un sentiment tendre et
 R (1) Marc Doret a publié un excellent livre intitulé Les Convictions
-proteslantes (H. Robert, éditeur, 1908).
-
-k 21
 
 ARR OR SE TA PACA AREA TRE ic CAIN Mai. NN Net MERS re RO AN UE AR M UT at ein x rs
 mes maîtres et mes amis VOTE | C3ÈeR |
 
 profond de la nature, qui me rappeile celui de saint |
 François d'Assise, et me séduit par ses affinités avec le
-panthéisme. Li
 
 .. Eh oui! j'avais levé l'ancre pour Rheiïinfelden quandtu LE
 abordais à Genève. À Rheïinfelden on a pour cultiver son BE
@@ -804,9 +518,7 @@ C'est grand, c'est calme, c'est fort; on ne se lasse pas de S | #
 
 22 1
 
-LES SNS LOGE Re
 Fans rar MES AMIS DE GENÈVE
-.#ets VA PER
 _ regarder passer et d'écouter chanter. El l'on fait toutes
 - sortes deréflexions conscientes ou inconscientes, que domine
 à _ une impression particulière, celle de l'entrainement. — On
@@ -830,7 +542,6 @@ d sentiment est tout au fond. On le laisse dans une demi-
 « inconscience pour éprouver mieux le sentiment rare de la
 , jouissance contradictoire de l'absorption par la matière.
 s C'est comme un plaisir de dilettantisme matérialiste très
-délicat.
 E À C'est ce qu'on éprouve aussi devant le Rhin. Il faut en
 … être près, il faut en sentir le souffle; il vous entraine. Les é
 -…. Allemands ont exprimé cela par des poésies idylliques qui
@@ -846,13 +557,10 @@ sans précision, mais un mouvement. On a des besoins de
 } entraîne et vous endort, le fleuve vous entraine et vous
 fait vivre.
 : Comprends-tu ? Je te parle peut-être suisse allemand. Que
-À « ' 23
 
 mes maîtres et mes amis DEA
-: Peu
 veux-tu ? Chacun parle son langage et les bons |
 n'en méprisent aucun, pas même celui des singes, FA
-existe. p:
 
 Tu sauras du moins l'influence du Rhin sur ton vieux
 camarade, et tu apprendras, je pense, avec plaisir, que sa
@@ -877,8 +585,6 @@ a toujours eu l'œil et la main d'un maître. — C'est aussi Ê
 de leurs parents que les frères Darier avaient hérité, ;
 avec le goût et le talent artistiques, un autre don pré- À
 cieux et rare, une extrême bonté. à
-Aibert Darier à Paul M. J
-LE Paris, 22 mars 1863.
 
 .… Je n'ai qu'à me féliciter d'être entré chez M. Gleyre et '
 j'espère que bientôt tu viendras grossir le nombre de ses Ï
@@ -887,11 +593,6 @@ j'espère que bientôt tu viendras grossir le nombre de ses Ï
 (r) Ces pages étaient déjà chez l'imprimeur quand la mort m'a :
 enlevé ce cher ami. { | 4
 
-24 ] 1
-é À
-
-RAP NAN MES AMIS DE GENÈVE
-: ANGERS s
 di cieux, sévère dans sa critique et peu encourageant, mais
 À c'est, je crois, une qualité pour un professeur et, sur ce
 4 point, tu penseras comme moi. Il est très artiste et son
@@ -922,13 +623,9 @@ des nouvelles de Richard; il est rédacteur d'un nouveau
 journal, le Charivari provincial, et me demande à grands
 cris une chronique charge des Beaux-Arts. C'est toujours :
 laimable railleur que nous connaissons.
-Albert Darier à Paul M.
-Paris, 19 juin 1863.
 .… Tu me fais plusieurs questions sur la vie d'un rapin à
 Paris, je vais Le répondre : En été il n'y a modèle à l'atelier
-: 25 maîtres. — 2
 
-5 TR SEE
 mes maîtres et mes amis ARE 2
 que de 7 heures à midi. Le travail à l'École a lieu de
 4 heures à 6 heures. Vers 11 heures nous prenons une +
@@ -963,9 +660,7 @@ J'ai été reçu, comme toujours, de la façon la plus cordiale
 par la famille Darier. Je me sentais entouré d'une atmosphère de bienveillance qui fait grand bien au cœur. Albert
 et Charles m'ont mené aux bords du Rhône et nous nous
 sommes baignés dans une sorte de salle de bains naturelle,
-26 |: 74
 
-h MES AMIS DE GENÈVE É
 d formée par le fleuve bleu, si pur, sous les ombrages d'arbres
 centenaires, dont les rameaux retombent dans ‘l'eau. Je ne
 connais rien de plus ravissant que ces campagnes ver-
@@ -990,20 +685,15 @@ cruellement mutilés, dont il a su deviner et révéler le :
 ont assuré à mon ami une renommée durable parmi les
 hellénistes et les philologues, l'intérêt sera d'autant
 plus vif de suivre à ses débuts cette belle carrière de
-savant.
 A côté de jugements pénétrants et personnels sur des
 | œuvres de littérature et d'art, ses lettres témoignent
 d'une rare délicatesse de conscience, et racontent des
 luttes morales dont le haut exemple mérite d'être
-signalé.
 
-, \ 4 APT A ET ER ET RTE +
 mes maîtres et mes amis SAT
 .. Comme beaucoup de jeunes gens très travailleurs, 4
 mon ami éprouva, à la suite de ses examens, les déplo- À
 rables effets physiques du surmenage intellectuel. « ) 4
-Jules Nicole à Paul M:
-25 août 1863. “4
 
 Voici un mois bientôt que tu m'as quitté. Je préparais
 alors mes examens, quand le mauvais sang, dont les sciences 5
@@ -1035,16 +725,10 @@ dormir, mais on dirait toul à fait que c'est du dévouement. ‘4
 Viendra aussi pour moi l'heure où je verrai fuir mon pays,
 les montagnesique je n'ai jamais quitiées… à
 
-Pâquis, 7 septembre 63. ;
-
 Cher ami, j'ai trouvé, j'ai trouvé! Je pars à la fin de ce ;
 mois pour l'Allemagne. Tout est au-delà de mes plus auda- 104
 cieuses espérances. Mon élève n'est pas un de ces bambins LA
 
-28 { "à
-V0
-
-He MES AMIS DE GENÈVE
 *  desept ans auxquels on me proposait de remémorer l'alphabet, c'est un jeune homme de quinze ans, un compagnon
 | . d'études et d'idées. Je vais en Allemagne; c'est une bien
 L grande bénédiction, car après avoir eu ce beau pays en
@@ -1081,11 +765,7 @@ plaide la cause de la dame, et voilà commencée une charmante comédie : Mais, 
 | parti pour moins, et j'avais ma mère à soutenir, ete...— Je pris
 courage et je répondis : « Monsieur, je ne suis pas obligé de
 partir, je puis attendre chez moi, et si Madame maintient
-k 29 maîtres. — 2,
-‘4
 
-SN A AE PE 5 NE SR LEUR NEA RSS CUT STORES
-\ , ï « À 7 CPE ANR 17 L
 | D CTEN ECTS
 mes maîtres et mes amis % ‘4
 ses propositions, je répondrai d'emblée que je ne puis
@@ -1105,9 +785,6 @@ comme ses inférieurs les pauvres et les simples citoyens : 114
 sition, » — Je crois que de ce côté-là, elle a bien trouvé son É
 homme. À
 
-Paul à Jules Nicole a
-10 septembre 1863. js
-Cher ami, à
 Ta dernière lettre, je V'assure, a été une bien grande joie 4
 pour moi,un vrai rayon de soleil. Je me représentais si bien à
 toute la scène : le sourire de la dame en voyant ta figure si À
@@ -1116,7 +793,6 @@ comiquement contre toi, et ta fermeté qui m'étonne et que ‘4
 j'admire. Je suivais toutes tes impressions. Va, j'étais aussi |
 heureux que toi, et quand je t'ai vu délivré de tes inquié- _
 tudes, moi aussi j'ai respiré et crié : enfin! — Un vieux ‘
-professeur, M. Chassevant, me disait hier : « J'ai connu
 deux grandes joies dans ma vie : apprendre et enseigner, \
 enseigner surtout. » Il avait raison, c'est là une belle mission, un noble but. Une seule chose m'inquiète encore; c'est » 0
 ion élève lui-même. Parle-moi de lui, quand tu l'auras bien ;
@@ -1125,10 +801,6 @@ tu pourras le diriger à ton gré. Tu lui feras aimer l'étude, e
 tu élèveras ses idées... Je vois déjà accompli tout le bien que !
 tu vas faire, J
 
-SR PE DA 0 ùe: + LA
-y 4#} d =
-( S \
-_ MES AMIS DE GENÈVE
 - J'aime beaucoup ton étonnement républicain de trouver
 des idées élevées chez de grands personnages. Il ne faut
 È pourtant pas juger d'avance la moralité des gens avec un
@@ -1182,9 +854,7 @@ venait se montrer une pauvre fille en haïllons, gauche et
 
 () En ce temps-là les bibliophiles trouvaient encore quelques
 
-occasions,
 | 31
-k
 
 mes maîtres et mes amis CL ie
 rougissante, réduite par la faim à ce triste métier, Hier, elle "M
@@ -1225,13 +895,8 @@ ment. Je ne respire plus dans cette atmosphère souillée de ;
 vice. (2) Vois-tu, je le sens bien, j'ai laissé mon cœur à
 (1) Je croyais alors à un auteur unique des poèmes homériques. { jt
 (2) Cette impression me semble aujourd'hui très exagérée. ps
-32 | ‘A
 
-- (Ra (5 NT Un sf { Â REA
-À pi & # RC AE k }
 Heroes MES AMIS DE GENÈVE
-
-A
 
 1 Genève. C'est là que j'ai vécu ces douces années où j'étais
 
@@ -1282,14 +947,12 @@ pas la première place qui lui fut offerte. Les avantages :
 (2) Lorsque mes croyances spiritualistes se modifièrent, dans un
 sens moins anthropomorphique, cette évolution constitua lévénement le plus grave de ma vie. (Voir mes Remarques sur la Monadologie)
 
-LUTTER UV SE QAR NN EE TOR RE er AT 7 PR CT ON TORRES
 mes maîtres et mes anus Mn
 pécuniaires comptaient peu dans sa décision. Il ne sera
 pas inutile de montrer à quels sentiments délicats il Yi)
 ù obéissait, car ce sont là des exemples qu'on peut qu
 souhaiter de voir plus souvent suivis. FS.
 Mon ami m'écrivait le 19 septembre 1863 :
-LA
 .… Cette place que j'avais obtenue et qui faisait mon si 1 à
 grand bonheur, cher ami, elle s'en est allée. ï 14
 J'étais revenu à Genève, enchanté de madame X... Mes D
@@ -1326,11 +989,6 @@ pénétrer dans votre famille et votre vie. Les conditions ÿ #4
 pécuniaires sont très avantageuses, mais ce n'est pas pour 1: 10
 moi la grande affaire. Mon élève a dix ans et demi, c'est bien ce
 
-34 f 4
-;
-} AR
-
-Di A TR MES AMIS DE GENEVE
 À enfant, bien idiot. Il se peut que j'accepte et que j'essaie
 É quelques mois (elle passe l'hiver en Suisse), au bout desf quels toute la principauté retournera en Russie et moi à
 À + Genève, où je continuerai à chercher.
@@ -1353,7 +1011,6 @@ déchirées, le tout pour l'édification de Zofingiens (1) pré-
 
 Jules Nicole accepta une place de précepteur en
 Espagne. Il m'écrivait de Madrid le 29 janvier, puis le :
-4 février 1864 :
 .… Je demandais un jour à l'un de mes élèves : Qu'arrivat-il à Jésus-Christ six semaines après sa Résurrection? —
 Il y eut un profond silence et de grandes méditations.
 Enfin le plus intelligent des deux me répondit : « Le
@@ -1362,10 +1019,8 @@ comprendras, cher ami, si ma journée est prise et s'il doit
 me rester beaucoup de temps pour ma correspondance,
 même celle qui m'est le plus chère. Enfin c'est aujourd'hui
 (1) Étudiants de la Société de Zofingue.
-! 35
 
 iQ Ines: maires et Mmes \amus PEN ONE |
-Ms £ * T'AVAT SEEN ÉTESS *
 dimanche, jour de repos; j'ai promené mes élèves et je. du)
 puis m'occuper un peu de moi, pendant qu'ils jouent à “Na
 cache-cache. (N. Fe L'aîné a seize ans, le cadet quatorze)
@@ -1402,12 +1057,8 @@ française », où nous fabriquions des passages de vieux -
 chroniqueurs, en mettant de la naïveté dans notre ortho- 1
 graphe? Et ces lectures d'Homère, à tout moment interrompues par un silence d'admiration, ou bien encore par £
 \ des commentaires très éloignés du texte, et qui nous rame- TR
-36 Ë
 
-nn PL 1 |
-. Ro AAA # |
 | LE AU _ MES AMIS DE GENÈVE
-Pie
 h naient à la Société de Belles-Lettres, aux intrigues électorales et à la chasse au candidat. Quelquefois ne comprenant
 pas bien le grec, nous imaginions un sens ei nous faisions
 :dire à Homère des choses magnifiques. Quel génie! disionsnous, et quels étaient nos rires, quand la traduction latine
@@ -1418,8 +1069,6 @@ j'ai soif d'amitié, de souvenirs, de poésie. Fais mes amitiés
 aux Darier. Adieu, mon cher ami, pense toutes les fois que
 
 tu pourras à y
-! J. Nicoze
-À Madrid, 5 mai 64. :
 .… Le comte d'A..., grand-père de mes élèves étant mort,
 ! tous les projets d'un prompt retour en Suisse et d'une petite
 station à Paris sont renversés. Il faut que je dise adieu aux
@@ -1446,7 +1095,6 @@ avec l'Enfant Jésus; elle montre au religieux le sein nu qui
 a nourri le Fils de Dieu.
 | Quant à Vélasquez, le musée renferme une foule de ses
 | 37 maîtres. — 3
-M
 
 mes maîtres et mes amis SR à
 portraits équestres de princes et de grands personnages -
@@ -1485,12 +1133,7 @@ faire part de mes impressions, et puis il me semble que je
 suis encore au beau temps où, après les séances (de la
 Société de Belles-Lettres) nous faisions passer et repasser
 sur les ponts, sur les quais, le fil d'une interminable et
-délicieuse conversation.
-38 Î
-{
 |
-
-ne: ! ; MES AMIS DE GENÈVE $
 
 Bien souvent, cher ami, j'envie ton sort. Quelle vocation
 
@@ -1511,7 +1154,6 @@ je grossis et que je prends du ventre. Il y a des moments
 où, m'arrêtant sur le chemin de la vie, pour regarder ces
 deux bambins qui sont toujours à ma suite pour écouter
 les sages conseils que je leur donne, il me semble que je
-suis papa.
 
 ÿ J'ai eu pourtant, il y a deux mois, quelques heures de
 joie et de poésie. Nous avons été voir l'Escurial le VendrediSaint. Je connaissais l'Escurial par la géographie, par
@@ -1565,18 +1207,10 @@ ronde et voûütée, dont les parois sont garnies de niches en |
 pierre: La plupart des cercueils portent des noms de rois
 en lettres noires. Charles-Quint, Philippe II, et tous les sou- È
 verains d'Espagne, sont placés d'après l'ordre de leurs
-+ règnes. Quelques cercueils attendent leurs noms. Isabelle II
 peut déjà voir et toucher la place où elle sera. C'est pour
 cela quelle n'aime pas l'Escurial et qu'elle y séjourne le
-moins possible.
 Avant d'être mis dans le caveau, le cadavre d'un roi
 d'Espagne est déposé au pourrissoir. On appelle ainsi une
-
-RME ET
-
-à MES AMIS DE GENÈVE ê
-
-} .
 
 : grille qu'un fort courant d'eau lave intarissablement et où
 le corps mort reste, jusqu'à ce que toutes les chairs aient
@@ -1590,7 +1224,6 @@ il n'y a rien à faire là pour un homme que prier. Telle était
 cette impression chez moi que lorsque, en parcourant de
 nouvelles galeries, je vis par des fenêtres ouvertes une cour
 éclairée du soleil, je fus étonné et presque indigné de cette
-éclatante lumière.
 
 Après avoir donné un coup d'œil aux sept mille reliques
 de saints que l'on a eu la patience de compter, nous fûmes
@@ -1625,15 +1258,11 @@ s'ouvrit et qu'une voix basse vint dire à Philippe II :
 
 Pardonne-moi, cher ami, cette longue histoire, Mais
 
-4x
-
-PES
 mes maîtres et mes amis
 quand je suis revenu de l'Escurial, l'imagination remplie de ;
 tristesse et de grandeur, j'ai jeté pêle-mêle sur le papier ces .
 impressions que je t'envoie, car c'est là le seul moment de
 joie vraiment poétique, de grand bonheur que j'aie passé
-en Espagne.
 Mes deux enfants aussi me donnent toute la joie qu'ils 1
 peuvent; je n'ai jamais vu d'enfants aussi arriérés, ni conçu
 tâche aussi diflicile que leur éducation, mais je n'ai jamais
@@ -1654,7 +1283,6 @@ les tragédies de Sophocle ! Mais non, je m'appelle Nicoie, je 1
 porte un chapeau noir, un frac les dimanches, et j'enseigne
 le système décimal à deux bambins tondus à la malcontent. 4
 
-Septembre 64.
 .. À peine de retour à Genève, je me suis lancé dans la Ÿ
 politique. J'étais de ce cortège d'électeurs qui, — tu en as
 N (1) Toreno, né en 1786, mort en 1843, défendit son pays contre les
@@ -1663,11 +1291,9 @@ reprises, il vint résider à Paris. En 1834, il fut nommé ministre des
 finances par la reine Christine, puis Président du Conseil. IL
 supprima l'ordre des Jésuites, mais dut donner sa démission en
 1835. Son Histoire de la Révolution d'Espagne a été traduite par
-L. Viardot. ;
 (2) « Don Quichotte est autre chose que la poésie grecque,
 quelque chose qui n'est pas inférieur. » (Note de J. Nicole)
 
-HN ARE MS w ANT OMAN St 4 <
 bi ù MES AMIS DE GENÈVE
 l entendu vaguement parler, — a été reçu à coups de fusil
 par des gens de Saint-Gervais.
@@ -1687,12 +1313,9 @@ sont les endroits remarquables que tu vois dans tes lec5 tures, je les lirai, je
 
 continuerons, quoique bien éloignés, ces temps si heureux
 à où toutes mes idées et tous mes travaux portaient deux
-à noms.
 
 Me sera-t-il donné d'aller vivre à Paris ? C'est trop beau
 pour être possible. (1)
-
-Madrid, 11 décembre 64.
 
 .… Me voici de nouveau en Espagne pour une année.
 Mon cher ami, dans les premiers temps de ta vie
@@ -1710,7 +1333,6 @@ de licence à la Sorbonne. Ses professeurs le nommèrent aussitôt
 répétiteur à l'Ecole des Hautes Etudes.
 
 {AE De PARLER Ab) Are DR SANTE À Aa à ip ft Que re "AU UOME LAU MN RATES MU: SU
-k } : A TUE drS4
 mes maîtres et mes amis CNP Ee IS AN
 coteau de Prégny ? Ce souvenir m'est revenu ces derniers il
 jours avec une force singulière. Nous repassions du Taeite |
@@ -1751,14 +1373,11 @@ mariage et la famille, en perpétuant la vie, font oublier la fin de
 l'être individuel. Le célibat doit être compté au nombre des causes
 principales de l'hypocondrie.
 
-$ _ Ÿ | MES AMIS DE GENÈVE ï
 ' un nègre; je ne me sens pas digne d'eux. Oh! si je demeu-
 (9 rais à Paris, si nous pouvions reprendre le soir notre
 
 Homère, chant II de l'Odyssée, où nous en sommes restés
 la dernière fois ; il me semblerait avoir encore dix-neuf ans.
-
-Genève, 5 juillet 65.
 
 .… Je ne sais pas encore ce que je deviendrai. J'ai envoyé
 solennellement ma démission à Madrid, et je suis ici me
@@ -1771,8 +1390,6 @@ tirer la valeur.
 J'ai acheté dernièrement une belle édition de l'Odyssée,
 j'espère que nous ferons le chant II.
 
-ñ Genève, 12 août 65.
-
 É Hier a été signé un contrat qui me lie auprès d'une
 
 î famille russe... en qualité de précepteur. J'irai d'abord en
@@ -1780,12 +1397,10 @@ j'espère que nous ferons le chant II.
 à Autriche, à Ischl, où. mes nouveaux élèves m''attendent.
 
 1 De là, la grande locomotive du Destin me conduira jusqu'à
-Saint-Pétersbourg.
 
 Au moment de m'éloigner tellement et pour bien iongtemps peut-être, tu comprends si je désire te voir et lavoir.
 Viens donc, cher ami, le plus tôt possible, si tu veux que
 nous finissions le deuxième chant. Je pense que tu m'accompagneras un peu, au moins jusqu'à Munich, où il y a de si
-belies peintures.
 
 A bientôt n'est-ce pas?
 
@@ -1794,13 +1409,8 @@ Munich, où mon ami vint me reprendre à son retour
 d'Ischl. J'admirai à loisir les marbres d'Egine, la belle
 collection de vases grecs, les chefs-d'œuvre de la Pinacothèque et de la Glyptothèque.
 
-Jules Nicole passa six années en Russie.
-
-4 maîtres. — 3. ‘
-
 # ER T VI (0 D PO ROUES 1 DR ATSD ENTREE
 mes maîtres et mes amis PA)
-Saint-Pétersbourg, 12 novembre 65. 3
 .… J'ai dans une jolie chambre ceux de mes Grecs, f
 Romains et Espagnols dont je n'ai pu décidément pas me h
 séparer; et pourtant il me semble, quand je les fais causer, À
@@ -1827,15 +1437,10 @@ Mais la personnalité de l'homme avec ses amours et ses
 haines, avec ses tristesses et ses joies, ne peut survivre
 à la destruction du corps. C'est là ce que les Grecs
 avaient deviné.
-Jules Nicole à Paul
-Saint-Pétersbourg, février 66.
-Température — 10° Réaumur.
-Cher ami,
 Sérieusement, n'exagères-tu pas la part, que je crois très
 grande, du sujet? (Je te parle comme Balavoine, lors des
 fameuses discussions sur l'objectif). Ne crois-tu pas que
 
-Ë MES AMIS DE GENÈVE
 ; cette fièvre, cette exaspération que tu décris si bien, doivent
 fatiguer et à la longue tuer l'imagination? crois-tu enfin
 _ qu'il faille faire de tels efforts au devant des idées, et qu'il
@@ -1853,7 +1458,6 @@ aux montagnes,aux prairies, aux arbres, ce qu'ils voulaient
 Et puis, il me semble que tu exagères aussi ce qui peut
 te manquer, tu ne seras jamais une pauvre grenouille, et
 je ne me vois pas du tout tallant chercher dans une ?
-carpière.
 
 Et puis tu parles de goût blasé, de poussière de nos sou-
 
@@ -1869,8 +1473,6 @@ la connaissance pratique du mal.
 choses, mais tout cela ne m'a pas fait plus d'impression
 qu'un rêve ridicule, et je me trouve aussi naïf que
 lorsque je ne voulais pas X... à la Société de BellesLettres, parce qu'il allait très souvent au café, sans demander la permission à son oncle.
-
-Pétersbourg, 15 octobre 67.
 
 Me voici de retour dans mes quartiers d'hiver, à cinq
 cents lieues de Paris et sans aucune espérance probable d'y
@@ -1894,7 +1496,6 @@ remarquables, souvenir du temps où nous en faisions collection, des mots à che
 adresses, un horaire du Collège de France et de la Sorbonne,
 enfin rien ne s'y trouve pas. Voilà qu'en tournant le :
 cinquième feuillet, je lis l'inscription suivante : h
-« M. P. Milliet, Hôtel der blauen Traube, Dieners gasse, à
 11. » Et tout notre joli voyage s'est retracé, si net, si
 détaillé devant mes yeux que je me suis trouvé transplanté
 bien loin de cet affreux village de Smela où la scène se
@@ -1914,14 +1515,11 @@ noms des professeurs que tu as eu le plaisir d'entendre ne
 dans la Revue des Deux Mondes, et de M. Caro un livre,
 l'Zdée de Dieu, qui m'a beaucoup intéressé et plu. Mais
 autre chose est de lire un livre, autre chose d'entendre un
-orateur.
 C'est ce que j'éprouve encore pour Hernani. Je suis sûr
 que si j'avais été avec toi le voir jouer au ThéâtreFrançais, (1) j'aurais su apprécier cette œuvre qui est après
 (1) Par Sarah-Bernhardt et Mounet-Sully, jeunes tous les deux
 alors.
 
-À : \ MES AMIS DE GENÈVE
-À f .
 | tout celle d'un grand poète, mais la lecture ne m'a pas
 ému : la pièce me paraît froide et les personnages manquer
 tout à fait de personnalité. Ils déclament, ils disent de très
@@ -1930,8 +1528,6 @@ figure et le même son de voix. C'est un reproche que j'ai
 souvent entendu faire au théâtre de Victor Hugo, et en y
 É réfléchissant ce reproche me paraît fondé. (1)
 
-Paul M. à J. Nicole ;
-4 Paris, 23 février 68.
 Nous espérions passer ensemble cet hiver à Rome. Le
 principal motif qui m'a retenu ici, c'est l'éducation de ma
 sœur; elle montre pour le dessin des dispositions remarquables et je suis naturellement son professeur. En outre,
@@ -1953,14 +1549,10 @@ les Bacchantes et M. Egger prête à Andromaque des grâces
 académiques bien démodées. Néanmoins, leurs cours m''intéressent et j'ai beaucoup à y gagner. — M. Ch. Lévèque
 ( ») A la scène, de grands artistes ajoutent aux personnages créés
 par le poète cette personnalité qui, à la lecture, leur manque un
-peu.
 
-)e PO TS PART EN DUMAS
-Re
 mes maîtres et mes amis A
 
 est une sorte de Trissotin doublé de Vadius, au débit *:
-prétentieux, aux gestes frénétiques, soulignant chaque ï
 parole d'un sourire fin et d'un clignement d'yeux plein de ‘
 sous-entendus. Je tâche de ne pas le regarder; il faudrait
 presque aussi ne pas l'entendre. Malgré cela, il a du savoir y
@@ -1981,7 +1573,6 @@ moins le monument admirable d'une science qui se posséde.
 Malheureusement je le lis dans une traduction, la plus
 mauvaise qu'on puisse voir. Le traître qui l'a écrite ne
 savait ni l'allemand, ni le français, ni le grec, ni l'archéo- 4
-logie.
 
 Je ne t'ai parlé que de l'emploi de mes moments perdus. ”
 C'est seulement entre deux coups de pinceau que j'attrape
@@ -2001,7 +1592,6 @@ et l'architecture comme trois vieilles édentées, à la tête
 branlante, qui rabächent d'une voix éteinte les souvenirs
 de leur jeunesse. Accablées sous le poids de leur propre
 
-L' à MES AMIS DE GENÈVE
 histoire, elles ont perdu toute liberté d'allure, et n'ont
 plus la force de digérer leur érudition. — Heureusement
 un rayon de soleil suffit pour dissiper ces vapeurs mélancoliques. 1
@@ -2021,75 +1611,14 @@ dignes de Pascal, des scènes dramatiques, dignes de
 Corneille, une fantaisie, digne d'Aristophane, une observation pénétrante de la vie, digne de Shakespeare. Et tout
 cela si fortement marqué à son empreinte personnelle!
 Quelle merveille! Il faudra qu'un jour ou lautre nous
-voyions cela ensemble. :
-
-jt LU AA He LE NAN A AA PRO NTI SR LEA LACS
-
-SAUNA TAN NAS ES LEE HOMMES URE u k “4 AUS fi DE NON TES D ARC EE
 
 al nl DM HU CE cs LAS (ANTENNES
 
-RUE RAR IE EN ii OU MOT A UN AD RNA ARESEeES
-
-LA et AANNEN TENTE CEMEUR 4 LI LP) CU MAN MURS
-
-RO EM OU EN à . 1 K à 1002 1) (NE DESERT SN }
-
-J HN AA 4 ATEN
-NAS TER | LORS
-
-SARA EAU I RUN.
-
-ME b Vin NN OA INSEE
-AAA) É 1 fi “a
-
-“HR f * et ï |: : {MAIN
-
-SAME War 118 KO
-
-"CRAN d + 1 NUITS
-LEE à : VE NN TROME
-
-RAI, n - 10) TRE
-
-fi NHCANT À PAT Ki *
-
-HN ANNE
-SARL | AE NT |
-
-$ Lo gr
-
-t}4 TA (LAN * ONE
-
-DURE f wa 11 'AUFENTNESS
-
-IT
-MON PREMIER MAITRE
-
-À
-Ù ü
-
-i
 #,
-+
-) \
-(ii -
-:
-R ITRI
 
-Cor Rœl b
-rich, I ; l
 Chez € S rig
-mais € s t
 sa lerve T e l'Anti
 quité et d
-vénéré 1a Ilissant
-nirs. (1)
-Quelle es enseignement f
-
-II
-MON PREMIER MAITRE
-s 1
 
 Comme mes amis Nicole, Doret, Balavoine et Rœhrich, Léonard Lugardon (1801-1884) était: un Genevois
 de la vieille roche. Ces nobles âmes ont la pureté des
@@ -2103,7 +1632,6 @@ sa fervente admiration pour les chefs-d'œuvre de l'Antiquité et de la Renaissa
 
 Voici quelques notes sur l'enseignement de mon
 vénéré maître, je regrette que ma mémoire vieillissante
-ait laissé échapper bon nombre d'intéressants souvenirs. (1)
 
 Quelle est la meilleure méthode pour l'enseignement
 du dessin ? Question bien controversée : les uns, fidèles
@@ -2111,9 +1639,6 @@ du dessin ? Question bien controversée : les uns, fidèles
 (:) Certaines considérations paraîtront peu! tre un peu trop
 techniques, mais la question des méthodes wenseignement est
 posée aujourd'hui et la discussion ne porte pas seulement sur le
-dessin.
-
-dits sn D NES
 
 mes maîtres et mes amis RATES
 à d'anciennes traditions, affirment l'hégémonie de la
@@ -2128,7 +1653,6 @@ même ses erreurs, qu'ils acceptent résolument. Un À
 grand artiste, il est vrai, n'a pas à nous représenter les .
 choses telles qu'elles sont, — ce qui d'ailleurs est impossible, — mais telles qu'elles lui apparaissent à telle
 heure du jour, en telle saison de l'année, à lui, qui se
-trouve aujourd'hui en telle disposition d'esprit, en tel
 état de santé. On le voit, nous sommes loin de la 4
 recherche du Beau absolu. ;
 
@@ -2152,8 +1676,6 @@ portions, et en :'égligeant systématiquement les détails.
 A quoi bon étudier un œil ou une bouche, si l'on n'est
 
 pas encore certain de la place et des dimensions de la
-
-RP, LÉONARD LUGARDON
 
 11 tête? Si les grandes lignes sont exactes, les détails
 viendront d'eux-mêmes, ce sera un plaisir et presque
@@ -2190,7 +1712,6 @@ naïve de la vérité. Les plus belles œuvres des grands
 idéalistes sont à base de réalisme.
 
 0 4 13 4
-is
 mes maîtres et mes amis 5
 
 Afin de donner à ses élèves une certaine sûreté de
@@ -2199,7 +1720,6 @@ une ligne, Lugardon nous faisait dessiner sur une
 feuille de papier collée sur une planche, à la façon des .
 architectes. Nous dessinions directement au crayon :
 noir ou à la sanguine, sans esquisse préalable au
-fusain.
 
 Lugardon retouchait peu nos dessins, il préférait
 tracer en marge quelques traits qui, mieux que des ;
@@ -2228,11 +1748,9 @@ parade de sa virtuosité; il a un coup de pinceau magistral, « à la Vélasquez
 moins qu'il ne se perde dans les virgules ou dans un
 pointillé monotone et papillotant. Le public a raison de
 
-à Le | LÉONARD LUGARDON
 à ne pas apprécier beaucoup ces tours de force. Les procédés très simples qui furent employés par les primitifs
 et aussi par Léonard, par Michel-Ange, Raphaël, Titien,.
 Corrège et bien d'autres, sont plus modestes et conservent peut-être quelque mérite, bien qu'aujourd'hui
-démodés.
 
 Avec une rare conscience, Lugardon a fait d'admirables £opies. Il choisissait, parmi les chefs-d'œuvre, non
 pas ceux qui auraient pu développer ses défauts natifs,
@@ -2292,7 +1810,6 @@ patiente qui viendront compléter cette première impression n'y ajoutent pas gr
 
 Les dessins que Lugardon a exécutés d'après nature,
 sont fortement caractérisés, étonnamment vibrants et |
-vivants.
 
 De tout temps la jeune école s'est montrée quelque
 peu injuste envers ses précurseurs. C'est l'éternelle
@@ -2303,12 +1820,6 @@ de Léopold Robert, il se rangea résolument dans cette |
 traditions de science sérieuse et de gravité convaincue
 que David avait remises en honneur, il repoussait
 l''emphase théâtrale, la froideur figée du mauvais classicisme, ses formules servilement calquées sur les médiocres statues de la décadence romaine. Mais il ne se
-
-60 À
-
-oo,
-
-4 “ (AA
 
 à de LÉONARD LUGARDON
 
@@ -2348,8 +1859,6 @@ Je voudrais dire la noblesse et l'élévation de son caractère, son inépuisabl
 belles actions et les belles pensées. Quelle inaltérable
 bienveillance ! quel dévouement à ses convictions artis-
 
-61 maitres. — 4
-
 mes maîtres et mes amis PERS]
 tiques et religieuses, quelle abnégation! Près de Lugardon, à le voir, à l'entendre, on se sentait devenir meilleur.
 De temps en temps, il invitait ses élèves à passer chez
@@ -2368,25 +1877,17 @@ grand esprit et d'un grand cœur. Semblable à ces
 flambeaux dont parle Lucrèce, il transmet la lumière et
 la vie de génération en génération. De telles causeries
 valent mieux que tous les préceptes et que tous les
-systèmes.
 Je garde une profonde reconnaissance au noble artiste
 dont l'admiration communicative m'a enseigné le respect pieux des grands maîtres italiens de la Renaissance.
 Je souhaite que cette courte étude attire l'attention
 des amis des arts sur un maître presque ignoré en dehors
 de son pays, et dont la Suisse a le droit d'être fière.
-:
 Lettres de J. L. Lugardon à Paul |
-23 septembre 65. |
-Cher Monsieur Milliet, |
 J'ai été touché de votre bien aimable lettre et de tous les |
 sentiments affectueux que vous conservez pour moi. |
-62 |
-l
 |
 |
 
-: #à RES AT ARE Ç “
-LÉONARD LUGARDON
 J'aurais voulu vous répondre plus tôt, mais voilà bientôt
 six semaines que je suis au lit, souffrant beaucoup. On me
 cautérise avec le fer rouge mon pauvre genou. C'est
@@ -2403,7 +1904,6 @@ le Louvre avec lui; cette visite faite avec un artiste d'un
 goût aussi pur sera pour vous et pour longtemps bien
 précieuse, car elle vous aura signalé les ouvrages plus
 particulièrement dignes de votre admiration et de vos
-études.
 
 N'oubliez jamais que pour réussir dans l'art, il faut
 prendre la porte étroite. Le chemin large, brillant, facile,
@@ -2418,7 +1918,6 @@ Raphaël y sont dans toute leur gloire. — Je me suis retrouvé
 en compagnie avec cette bonne société. Je vous félicite de
 ne plus être entouré de mauvais goùt comme nous le
 sommes ici. La peinture est devenue un commerce, une
-industrie.
 
 Je joins à la présente une épreuve de mon portrait, parce
 que je pense que cela vous fera plaisir. Je vous prie de
@@ -2431,15 +1930,12 @@ que vous réussirez, si vous êtes vigilant et attentif dans
 (1) Le fidèle ami d'Orsel et l'auteur des peintures qui décorent
 une des chapelles de l'église Notre-Dame de Lorette.
 
-La LS NE NOR ATARI OPA TERRE
 .. mes maîtres et mes amis
 le choix de vos études. Voyez quelquefois M. Perrin,
 vous conseillera. ï
 
 Adieu, mon cher élève, rappelez-vous quelquefois votre
 vieux professeur et croyez à son amitié constante.
-
-‘ LucARDON
 
 P.-S. — Je croyais trouver encore un de mes portraits
 photographiés, on me les a tous pris. J'écris à M. Carrier,
@@ -2448,7 +1944,6 @@ photographiés, on me les a tous pris. J'écris à M. Carrier,
 envoyer un. M. Carrier, quoique un bon ami, a des idées
 tout autres que les nôtres en peinture, ainsi prenez garde
 : si vous le voyez.
-30 juillet 64.
 Mon cher Monsieur Milliet, 1
 
 Voilà bien longtemps qu'une bonne et affectueuse lettre ‘4
@@ -2481,10 +1976,6 @@ ce qui est tout ce qu'il y a de plus triste.
 
 |
 
-: 10 Fe LÉONARD LUGARDON
-
-h
-
 à Comparer les ouvrages des grands maîtres entre eux,
 pour les analyser, apprendre à les connaître. Rechercher la
 
@@ -2498,7 +1989,6 @@ Voici, mon cher Milliet, une bien petite lettre. Forcé de
 
 . m'arrêter par la fatigue que me cause la plume... Adieu,
 croyez-moi votre bien dévoué ami.
-LUGARDON
 
 Encore quelques réflexions de mon maître :
 
@@ -2506,7 +1996,6 @@ La beauté, disait M. Lugardon, est répandue à profusion dans la nature. Chaqu
 son caractère particulier, a aussi sa beauté propre. Il
 n'y a point de genre inférieur en peinture : paysages, 3
 marines, animaux, natures mortes, tout a son genre de
-beauté. )
 
 ; Mais pour découvrir cette beauté, il ne sera pas inu-
 
@@ -2525,26 +2014,12 @@ inepte et stupide. Elle passe sur les hommes et sur les
 choses le même niveau, rabaissant tout ce qu'il y a de
 noble et d'élevé dans l'être. À travers son miroir, la
 
-65 maitres, — 4.
-
-l' né
-:
-“
 ,
-l }
-Fa
-ÿ es »
 | 4
-FE
-k
 
-Ve ,
 La beaut and prof
 | sion dans la bjet aya BE
-n'y à point r E ag |
-marines, an genre d Î
 Mais pour d ne sera pas int Ë
-tile d'étudier s. } >piant H
 avec respect t 1 rez à COIN A
 prendre que, dans pas exprimé
 seulement ce q mis l'essence
@@ -2553,10 +2028,8 @@ entière d'étud par un homme |
 de génie. Vous t vous admirerez il
 4 cette modestie a ché, sous une 1}
 Lise furésimple et s sors de science |
-EL : l
 in s mmes et sur les |
 
-e RUE
 mes maîtres et mes amis
 nature semble laide, parce qu'elle supprime tout ce qui
 fait la véritable gloire de l'homme et son légitime orgueil. Avec une brutalité cynique, elle étale la verrue ;
@@ -2591,8 +2064,6 @@ Aujourd'hui certains photographes sont devenus de véritables
 artistes, manifestant leur goût par le choix des motifs et des effets de
 lumière, Quant aux verrues ou aux rides, ils ne les effacent que trop,
 
-ANNEXE AU CHAPITRE II
-
 Je dois à l'obligeance de mademoiselle Danielle Plan la
 notice suivante, extraite d'un article qu'elle a publié dans
 le Schweizerisches Künstler-Lexikon (6° fascicule) :
@@ -2611,17 +2082,14 @@ des fresques du palais de Fontainebleau (une partie de la
 salle de François I“). De retour à Genève, il y professa
 pendant huit années comme directeur de l'École de la figure.
 Il forma de nombreux élèves et mourut à Genève le
-16 août 1884.
 
 Parmi ses œuvres principales nous citerons : La Délivrance de Bonivard par les Bernois. 1824 (musée de Genève).
 — Prise du château de Rossberg. 1827 (au docteur Cordès).
 — Le Serment du Grütli. 1836 (exposé à Paris. — Musée de
 Genève).— Agar dans le désert (à mademoiselle A. Colladon).
-— Guillaume Tell sauvant Baumgarten. 1835 (Palais Fédé-
 ral). — Arnold de Melchtal. 1841 (musée de Genève). — Le
 Christ expirant sur la croix. 1843 (église de Gex), — Ruth
 
-s MTL € AC)
 mes maîtres et mes amis RAT
 et Booz (à M. Dufour, banquier à Paris). — Calvin refuse
 la Cène aux Libertins. — Portraits de madame Bernard,
@@ -2639,19 +2107,8 @@ Genève possède Le Triomphe de la Vertu, d'après le pastel
 du Corrège au Louvre, et M. Étienne Duval une réduction
 de l'Antiope. ÿ
 
-À
-(|
-)
-\
-
-III
-PREMIER SÉJOUR A PARIS
-
 l:3 1 der tiens
-Ne
 | à
-III
-PREMIER SEJOUR A PARIS
 Gleyre. — L'École des Beaux-Arts. — Taine. — M. Heuzey.—
 M. de Nieuwerkerke.
 
@@ -2661,7 +2118,6 @@ Notre maître avait formé déjà de nombreux et brillants
 élèves, tels que Hamon et Gérôme dont le succès
 grandissait chaque année, et l'école néo-grecque avait
 choisi pour guide l'auteur de l'Æercule aux pieds
-d'Omphale.
 
 Peintres de genre, comme Toulmouche, Anker,
 Hirsch, etc., décorateurs de style, comme Monchablon
@@ -2704,13 +2160,7 @@ exprimer mieux que la littérature. |
 unes des autres que par la couleur des cheveux ; pas une n'a un \
 nez long ou court, pas une n'est grande ou petite, pas une grasse {
 . où maigre, et leurs mouvements sont un peu trop sagement |
-pondérés.
-72 |
-\
-fl
 
-TR AR SM TER PEAR D AE CE EC
-‘PREMIER SÉJOUR A PARIS 1
 É | « Les idées des peintres, disait:il, ce sont des formes
 | À et des couleurs. » — Je me souvenais de cette formule
 \. profondément juste, lorsque, jouant un peu sur les mots,
@@ -2741,9 +2191,6 @@ D'autres professeurs, comme M. Carolus Duran, par
 exemple, profitent au contraire de toute occasion pour
 | faire une leçon de théorie générale, et cette méthode,
 À moins modeste, est assurément plus profitable pour les
-élèves. i
-! 73 maitres, — 5
-(94 (1
 
 mes maîtres et mes amis. LE ‘4
 Gleyre fut longtemps membre du jury du Salon où
@@ -2776,7 +2223,6 @@ semblait dater de l'époque quaternaire. Ces maîtres,
 respectables pour les œuvres qu'ils avaient produites
 dans leur bon temps, étaient peu respectés. Leurs per74
 
-SORA PREMIER SÉJOUR À PARIS
 ruques et leurs doctrines surannées excitaient la verve
 __  moqueuse des jéunes rapins.
 
@@ -2829,11 +2275,8 @@ l œuvres, les anciens maîtres nous parlent encore; il est
 l facile de deviner ce qu'ils ont voulu dire, et un peu de
 
 ; complaisance suflit, pour qu'on en vienne à confondre
-À 75
 
-D A d É
 . mes maîtres et mes amis l'AS #0
-(is
 leurs copies émues avec la nature elle-même qu'elles
 reproduisent si fidèlement. Le réalisme des grands
 artistes m'a toujours beaucoup frappé. ;
@@ -2845,12 +2288,10 @@ vieux mendiant qui me demandait l'aumône, avait I
 gardé sur son visage bien construit la majesté des à
 anciens consuls. Ici, un marchand de poissons semblait à
 un moulage en chaïr et en os du premier Brutus; là, un
-forgeron au regard farouche faisait penser à Caracalla. 4
 Plus d'une fois la Fornarina ou la Psyché de Raphaël
 sont venues poser dans mon atelier; et le soir dans mes
 promenades solitaires, j'apercevais parfois, assises dans
 l'ombre mystérieuse de quelque portique, ces femmes L
-aux nobles traits, aux silhouettes grandioses, aux atti- 4
 tudes lasses et profondément attristées, sublimes dans É
 leur familiarité, qui poursuivent leur rêve douloureux
 dans les pendentifs de la Chapelle Sixtine. — Si les \
@@ -2859,15 +2300,11 @@ transformistes ne se trompent pas, ils exagèrent peut- L
 avoir beaucoup changé. Depuis de longs siècles, ils ont
 conservé les mêmes traits, les mêmes passions, les
 mêmes vices, les mêmes angoisses et les mêmes douleurs.
-J 3
 A l'École des Beaux-Arts, je suivis avec beaucoup
 d'intérêt les leçons d'anatomie et de perspective. Nous
 recevions seulement des notions élémentaires de ces
 deux sciences indispensables pour un peintre, et sans
-6 È ;
 
-D ua Ben A EE Gt en A AN En RO LS AN A Lin
-k. PREMIER SÉJOUR À PARIS
 } ÿ en avoir Jamais su bien long, j'obtins pourtant quelques
 médailles dans ce royaume des aveugles. J'ai toujours
 été étonné de voir que certains artistes de grand talent
@@ -2902,9 +2339,6 @@ connaisseur et qu'au fond l'art ne l'intéressait qu'à
 publiquement comme on sy est pris. » La création artistique a en
 effet sa pudeur.
 | A] 77
-A
-
-Le PROSPER PONS POSE ECM RER ANSE
 
 é mes maîtres et mes amis HU
 
@@ -2929,7 +2363,6 @@ dant, à peine M. Heuzey était-il entré dans la salle,
 qu'un religieux silence se faisait instantanément. On
 eût entendu voler une mouche, quand le jeune et
 sympathique professeur, un peu timide au début,
-commençait à parler.
 
 Rien en lui ne rappelait l'acteur, ni même l'orateur.
 Il avait souvent recours à ses notes, mais il lisaït très
@@ -2940,9 +2373,6 @@ gante pureté du style attique.
 
 Les nombreux élèves qui ont profité de l'enseigne-
 
-78 |
-
-NES PREMIER SÉJOUR A PARIS
 . ment de M. Heuzey lui gardent une vive reconnaissance. j
 Chaque année c'est un vrai régal pour les artistes et
 ! _ pour les connaisseurs d'assister aux séances qu'il consacre à l'étude pratique des costumes anciens, assyriens,
@@ -3034,10 +2464,7 @@ il est question seulement d'un petit croquis que je voudrais
 | collections du Louvre viennent de s'enrichir, étaient exposés }
 | afin d'être vus, admirés, étudiés, copiés même. Je me tromk pais. Muni de ma carte d'entrée (n° 2000), je m'étais installé
 L' en toute simplicité d'âme devant un des plus beaux vases
-ù 81 maîtres. — 5.
 
-BA LA
-0 ARR.
 mes maîtres et mes amis FRS
 grecs de la collection, je travaillais avec ardeur, je puis 4
 même dire avec enthousiasme, quand, par haïne sans doute À
@@ -3072,17 +2499,10 @@ comme une faveur le simple droit de travailler. ;
 J'ose espérer, Monsieur le Directeur, que vous accueillerez
 favorablement ma demande et qu'avec votre permission, je k
 ne verrai plus mettre honteusement à la porte votre très Ë
-: humble serviteur. À 4
-P. Mrezrer, {|
-Bachelier ès lettres, |
 Elève de M. Gleyre et de l'Ecole Impériale
 et Spéciale des Beaux-Arts.
-6 janvier 1864
-
-{ 4
 
 | Re | PREMIER SÉJOUR A PARIS
-F4
 F4 Le lendemain une estafette, en brillante livrée et cara-
 | _colant sur un superbe cheval, entraïit dans la cour de la
 maison que j'habite encore. Confiant sa monture au
@@ -3096,88 +2516,35 @@ M. de Nieuwerkerke vint à moi, affable, souriant, et
 ci me reçut avec la simplicité d'un grand seigneur. Ce fut
 û lui qui me fit presque des excuses pour la maladresse
 1 du gardien, et il m'accorda aussitôt la permission tant
-() souhaitée.
 ss Dans mes études d'archéologie, j'ai eu depuis l'heuLe reuse fortune de recevoir les leçons de MM. Homolle,
 ' Pottier et Collignon, maîtres éminents qui m'ont toujours témoigné beaucoup de bienveillance et auxquels
 je conserve une bien sincère gratitude.
-{|
 
-NEA AIT ADN j'te UNE UE TR QUE AA AE Re L'ART
-1 ARMES ER NRA ES An \ VOL RER EN RAS ARTE HARETAGU NS SJ 2
-Faut ET NURE LUE n 4 À f 1 : ARE PY DOC
 CHA AU y MAR | x VUS TE fu LE Line 77 "ANNALES
-ke VINS ait j | | {SELS Ar
-de AR AES UE k 4$ MAT (12
-PAU ERS s DU | LRU
-AIN AREAS 4 ; à RHONE
-PRET j ; 1 +11 PES
-HAL A ” { À Le 4 CORRE
-SATA té: (fr E MATE"
-EU A A el + (EN HO iLUIE
 AT TS l LATE (ft APRMEVR
 PSS TA x : PAM Le RU RTE one
-As % À : À fa be MX ee TEA
 LES VEN i] (4 + LEE lp Las DS
-LANCER #1 d ; LUS 1 ( OA
 AQU D i Î si AT Mes A
-fn MT *AEMUNE NÉ VERIERS \
-, ! ; d LHAEUNE ARR.
-PR ST SL ONES CIRE
 
-(ÊTt LUE #1 qur \ -
-RAR tr d .
-: Fa
 |
-À à] T
-DEUX MOIS A FLORENCE
-RD
 | 1866 |
-À
 # EN VOYAGE. — FLORENCE. — € LE MARIAGE DE LA VIERGE ) ET
 |!
-(LE PARADIS }, PAR FRA ANGELICO. — ( L'ANNONCIATION },
 | PAR SIMONE MARTINI. — M. BIN ET JOSEPH BLANC. — ANDREA
-DEL SARTO. — DESSINS D'INGRES, — M. MORO. — SIENNE. —
-PISE.
-L]
 |
-Mae |
-En. :
 
 din ess (5 RU ii dépit dass PRO PES A NT RTE EE e et PIE
 D A LUN AN se L'HRPARE
-d'A NT PA ER RATER A AR A ASS ES
-FLOU RC k Rae k ANT ER vi 1 ORPI
-DS \ 0 ar \ AUS { J'ex \ DURS 22 Ur Pre
-à i # $ FAIRE
 | à "NIUE
-Het g 11 LITRES
-J J ? ï VAL 1} SAS My A
-ÿ F Fe TESTER D 1.
-ps % 1 + 10 £
-GAME d : V4 Le. :
-MU Û : ï 2575 STONES
 Ar f mA its JR
-2 MAL ; ; TU 2 AESNEN
 | ï At ae. PA TEE
 RATER P à ï Ps bi LEA LA
-ÿ ri K ; 3520 T0 EL
 # 4 ? ns REEAS SAIT
-l é # 641 PESTE
-1 FPE NUE He L'ART 7
-M ? MR
-7 LR } LEA AO
-
-AE DA Lip IR FAR ;
-LRO NE ES $
-
-DEUX MOIS A FLORENCE
 
 g En voyage. — Florence. — Le Mariage de la Vierge et le
 è Paradis, par Fra Angelico. — L'Annonciation, par Simone
 ñ Martini. — M. Bin et Joseph Blanc. — Andrea del Sarto. —
 L Dessins d'Ingres. — M. Moro. — Sienne. — Pise.
-h
 L « Quand ma jeunesse en fleur roulait son gai prin-
 è temps », j'ai fait à Florence un premier voyage qui m'a
 . laissé des souvenirs charmants. Les photographies des
@@ -3188,13 +2555,11 @@ avec un véritable ravissement. Les fragments de lettres
 que je transcris ici témoignent d'un enthousiasme qui
 manque DEntPiRe de mesure, mais non de sincérité.
 Paul M. à sa mère
-Genève, 29 juillet 66.
 Jamais le trajet de Paris à Genève ne m'a paru moins long.
 J'avais pour compagnon de route un jeune abbé, précepteur des enfants de M. de Nicolaï. Nous avons discuté théologie, morale, littérature, philosophie, métaphysique, etc.
 J'étais étonné de voir combien, avec de l'instruction et de
 
 mes maîtres et mes amis MA 12
-2%
 l'intelligence, on peut conserver des idées étroites et fausses, RE
 * quand on vit dans un certain milieu. Les événements poli- NE
 tiques n'arrivent qu'à travers la Gazette de France; les A À
@@ -3228,13 +2593,9 @@ gonflées, se donne beaucoup de peine pour en tirer un son
 harmonieux. Les Grâces se moquent de ses vains efforts et
 de sa grimace. Gleyre a voulu dire, je crois, que la Sagesse !
 et la Raison n'ont pas grand'chose à voir dans les choses k
-d'art.
 (1) L'année dernière, l'exposition de son Hercule aux pieds
 d''Omphale a rapporté quatre mille francs, somme énorme pour
 une ville alors petite. ï
-
-cri 6 SL MO 6 ÿ 5 (77 . eS
-HN EN DEUX MOIS A FLORENCE
 
 RES de Florence, 8 août 1866.
 Le . Que vous dirai-je du Simplon? Rochers, cascades,
@@ -3277,11 +2638,8 @@ Ajoute encore les souvenirs historiques, la prison de
 | Côme, les luttes populaires, le supplice de Savonarole, etc.,
 et tu comprendras que cette place laisse une impression
 ; qu'on n'oublie pas.
-be 89
 
-PU SR NT PRO Re PTT TE ENOTENREN PERRET NP EN TETE :
 mes maîtres et mes amis ARE
-« + LE
 Madame Milliet à, son fils À
 La Colonie, 8 août 66. ÿe
 .… Tu ne t'es pas arrêté à Arona et au lac Majeur ! Quand } | 4
@@ -3293,9 +2651,7 @@ La Colonie est en hausse pour le moment, nous avons %
 plus de demandes que de places. Il semble que cet endroit me
 ait un charme particulier qui attire les originaux et les D
 femmes de lettres. D
-Li Pa
 Lettres de Paul M. à sa sœur Louise ‘
-Florence, 9 août 66. ;
 .… Écoute ma leçon : Au quinzième siècle, l'architecture
 gothique était devenue flamboyante et les grandes lignes
 des monuments disparaissaient sous la surcharge d'une
@@ -3317,14 +2673,8 @@ de forteresses qui défient les assauts. Mais, lève les yeux
 vers le premier étage, le piano nobile : d'élégantes fenêtres
 cintrées sont séparées en deux baies par une mince colonnette. Les proportions sont sveltes et légères, les moulures |
 nerveuses, les ornements fins, délicats et d'une exquise
-go #)
-D |
 |
 
-SLR CA à
-‘JPA ICERS ]
-Arr a) (à ges
-ie DEUX MOIS À FLORENCE
 * sobriété. — Au-dessus de la corniche, de larges toits débordants donnent au passant, en été, la fraîcheur de l'ombre,
 en hiver, un abri contre la pluie. Pourquoi, chez nous, des
 * règlements trop sévères interdisent-ils à nos architectes
@@ -3397,23 +2747,15 @@ fait l'effet d'une éponge : tout d'abord elle remonte sur l'eau
 , à peine humectée, mais je l'ai si bien plongée et replongée
 que maintenant les souvenirs débordent, je regorge à
 d'admiration. À mon retour, je compte prendre un petit
-atelier. À
 Je ne fais pas grands progrès en italien, mais que veux-tu ?
 Je ne pouvais pas me priver de l'agrément d'une pension
 suisse. — Nous avons à table un Parisien pur sang, qui
 demande à grands cris les frontières du Rhin, et un Prussien,
 qui réclame l'Alsace. Tu vois qu'ils ne sont pas près de
-s'entendre. (1)
 (r) C'était en 1866. Le Prussien s'amusait beaucoup de l'indigna- à
 tion des Suisses quand il leur prédisait avec un grand sérieux
 que leur pays serait bientôt partagé entre la Prusse, la France et
-VItalie. :
-se
 
-!
-
-7 E. : RAA PO ARR EUX * } à
-HAE À . DEUX MOIS À FLORENCE
 | Les vieilles haïnes contre les Anglais, la rivalité militaire
 ! entre l'Allemagne et la France sont des sentiments d'un
 ; _ autre âge. J'aime autant Albert Dürer que Poussin, Gœthe
@@ -3422,7 +2764,6 @@ Si l'on voyait les choses d'un peu plus haut, si l'on avait
 | le sentiment de l'unité européenne, en attendant celui de
 ÿ l'unité humaine, les guerres entre nations civilisées seraient
 | considérées comme des guerres civiles.
-15 août 1866.
 J'ai si bien l'habitude de te donner des leçons que, devant
 chaque tableau, c'est à toi que j'adresse intérieurement mes
 ; réflexions. « Ceci est de bon goût, ou du moins de mon
@@ -3441,7 +2782,6 @@ quelque chose de sa douceur angélique ; ses petits bourreaux
 eux-mêmes sont d'une élégance bien florentine et tuent les
 gens de la façon la plus aimable. Ainsi me voilà, pour
 quelques jours encore, plongé dans la béatitude.
-20 août 66.
 .… Tu le sais, j'ai une prédilection pour les anciens maîtres
 et c'est iei qu'il faut les étudier. J'admire chez eux l'union
 si rare de l'observation la plus sincère avec une vision
@@ -3455,14 +2795,12 @@ bles miracles, mais ils y croient, et ils ont raison d'y croire, Leo
 puisqu'ils les ont vus. Si les apôtres avaient été peintres, ils 74
 auraient peint ainsi. &4
 Le vocabulaire des épithètes admiratives est vite fe :
-épuisé : gracieux, charmant, beau, sublime, délicieux, Fe
 ” merveilleux, il me faudrait beaucoup mieux que tout :
 cela. Tu vois bien qu'on ne peut pas décrire une À
 œuvre d'art. Cependant, comme je ne me pique pas d'être É
 logique, je te dirai quelques mots du Mariage de la À
 Vierge, par Fra Angelico, un de mes maîtres préférés; 1
 c'est de la pensée si clairement exprimée qu'on oublie la î
-peinture : ‘
 Au centre du tableau, le prêtre, vu de face, entre Marie ;
 et Joseph, prend leurs mains pour les unir. Sans tourner la
 tête, il ne peut s'empêcher de jeter un regard de côté vers
@@ -3480,17 +2818,12 @@ cortège de jeunes femmes accompagne la Vierge. Tout cela
 est dit simplement, sans l'ombre de malice, sans la moindre
 prétention à l'esprit, et c'est délicieux.
 Paul M. à sa mère
-Août 1866.
 .… Dante a décrit, avec la sombre puissance de son génie,
 toutes les horreurs de l'Enfer, mais l'homme qui a le mieux
 connu le Paradis, c'est assurément Fra Angelico. Il se sent
 là chez lui, c'est un habitué de la maison.
 Souvent le charmant visionnaire nous montre de jeunes
 moines, doux comme lui et comme lui pleins de ferveur,
-
-1 19 SOIT
-Re : DEUX MOIS A FLORENCE
- ÉFRC |
 
 qui se laissent guider par les anges vers le séjour des bienheureux. Là ils vont retrouver, épurées et ennoblies, toutes :
 
@@ -3516,7 +2849,6 @@ deviennent légers et immatériels. Miracle! Ils flottent
 maintenant dans l'air, ils s'envolent comme des oiseaux;
 ils s'élèvent plus haut, toujours plus haut, dans un rayon
 de soleil, ils montent vers les splendeurs glorieuses, vers le
-séjour d'éternelle félicité.
 
 é Oh! quel rêve délicieux et pur! Heureux celui qui a de
 pareilles visions et qui sait les peindre avec tant de charme,
@@ -3539,7 +2871,6 @@ humain qu'elle conserve, par ce qui lui reste d'un peu
 païen, d'un peu sensuel, bien qu'elle soit infiniment délicate
 dans sa naïve pureté ?
 
-UP RENOM SR A AA ENNNNe CESSE ES
 mes maîtres et mes amis ni on
 Paul M. à son père - 4
 | Florence, août 1866. JE
@@ -3579,7 +2910,6 @@ et par-dessus l'auréole, d'une seconde couronne à pointes
 d'or, insigne du haut grade qu'il occupe dans les bureaux
 
 |; MTS
-EEE DEUX MOIS A FLORENCE
 
 è du Paradis. Naïvement les mots hébreux de la Salutation
 
@@ -3593,8 +2923,6 @@ Certains Florentins n'ont pas toujours échappé complètement à cette recherch
 s'inspirant de la réalité, avait su trouver un style plus
 simple, plus robuste et plus sain.
 
-Paul à Alix Payen
-Florence, 4 septembre 66.
 Chère sœur. J'ai reçu ta bonne lettre qui contenait un
 mot de maman et un dessin de Louise. Il me semblait vrai-
 
@@ -3626,15 +2954,11 @@ promènent, qui discutent, des enfants qui jouent. — Sans
 doute, elle qui s'est déjà lancée dans les sujets bibliques,
 elle va dédaigner ces scènes familières, mais quand vous
 
-97 maîtres. — 6
-
-be
 mes maîtres et mes amis Ra
 viendrez à Milan, je vous montrerai une fresque du plus
 beau style, peinte par Luini, et représentant trois jeunes
 filles qui jouent à la main chaude. Les anciens ont peint
 et sculpté des joueuses d'osselets. Elle a donc de grands
-exemples.
 
 J'ai fait hier une agréable rencontre :
 
@@ -3643,7 +2967,6 @@ C'était par une matinée pluvieuse.. Huit heures sonnaïent
 jusqu'à l'église voisine de sa demeure... Notre héros s'arrêta
 devant une fresque de Ghirlandajo, tira de sa poche un de
 ces albums-blocs que vous connaissez, et se mit à faire un
-croquis. ;
 
 CrapiTRE II. — Cependant deux voyageurs, par une coïncidence évidemment providentielle, arrivaient au même
 instant dans la même chapelle. Le jeune artiste, que ses
@@ -3670,14 +2993,12 @@ me semblent maintenant au-dessous de la réalité. J'ai vu à
 
 (@) Sociétaire de la Colonie et traducteur de Spinoza.
 
-AU DEUX MOIS A FLORENCE
 _ Santa Annunziata les fresques d'Andrea del Sarto. Il avait
 bien raison de me les recommander; c'est beau et simple
 | . au delà de toute expression. Qui n'a pas vu cela ne sait pas
 ce que c'est qu'Andrea del Sarto. Ses fresques sont supé-
 rieures à ses meilleurs tableaux.
 Paul M. à sa mère
-Florence, 11 septembre 66.
 … Dimanche dernier, je suis allé à la chapelle protestante
 pour entendre prêcher Boissonnas, un ancien bellétrien,
 actuellement pasteur à Livourne. La sincérité des convic-
@@ -3691,9 +3012,7 @@ comme si le passé pouvait ne pas changer.
 
 : J'irai toucher l'argent qui me reste chez MM. Fenzi, banquiers, qui habitent sur la place de la Seigneurie un admirable palais, attribué à Raphaël. Je crois qu'à Florence, les
 banquiers et les épiciers eux-mêmes sont forcés de devenir
-artistes.
 
-16 septembre 66.
 J'ai vu chez M. Gonin quelques dessins d'Ingres, ce sont
 de délicieux portraits au crayon. Au temps où il était prix
 de Rome, Ingres avait un caractère un peu difficile. Ses
@@ -3704,37 +3023,16 @@ plus d'autres ressources que son crayon. C'est alors qu'il
 fit cette admirable collection de portraits.
 M. Gonin possède une maison de campagne près de Flo-
 è rence. Vendredi l'on y faisait les vendanges, toute la colonie
-\ 99
 
 | « | | ‘
-ë
-ë Fr.
-PR | 4
-dy
-à ré
-e qu Ÿ
 Dim Et
-me s
-rable palais, attril ;
 banquiers et les épicier
-artistes.
 J'aivu chez M. Gonin q ques dessins d'Invre Ë
 de délicieux portraits A ait Î
 de Rome, Ing (|
-camarades ( È " |
-mer # seu |
-8 de - i
 F F n'avait j
 s f SPalors qu'il |
-- F d Faits. 14
-fampagne prè Î
-LA
-€ |
-; M
-" L
-d
 
-ri À DECITRE Dre VOLE UM OL RENE A NO PPT er CN SE TT PRO EAN AS
 mes maîtres et mes amis, EN MONO
 suisse était là. J'étais invité et j'ai vu cueillir les dernières 3
 grappes. Un grand chariot peint en rouge dans le goùt N
@@ -3746,7 +3044,6 @@ prenaient sans s'en douter des poses de statues.
 Nous avons dîné en plein air : les toasts ont été d'une }
 éloquence médiocre, mais le petit vin du cru est excellent. |
 Paul M. à sa mère L
-Florence, 18 septembre 66.
 Depuis huit jours, je vis à Santa Annunziata, au milieu
 des fresques d'Andrea del Sarto, et mon enthousiasme va
 toujours croissant. J'ai fait d'abord des croquis, puis je me
@@ -3758,7 +3055,6 @@ expressions vivantes, science sans pédanterie, élévation
 native et noblesse du style mêlée de familiarité, j''admire L
 tout cela, et par-dessus tout une grâce jeune, un charme qui
 vous pénètre.
-20 septembre 66.
 : Si j'allais voir toutes les personnes pour lesquelles tu
 m'as procuré des lettres de recommandation, il ne me resterait plus de temps pour les maîtres qui sont mes meilleurs
 amis. Je me suis pourtant décidé à faire une visite à ce
@@ -3769,8 +3065,6 @@ Quelques messieurs, vêtus d'élégants vestons de flanelle
 blanche, fument en savourant une tasse de café, et les vieux
 souvenirs se pressent en foule sur les lèvres de notre hôte.
 
-AOL NES DE
-EP PAS DEUX MOIS A FLORENCE
 | Tu le sais, il a toujours quelque intéressante histoire à
 raconter, ou à conter. « Ces collines, aujourd'hui cultivées,
 nous dit M. Moro, étaient en friche, il y a trente ans.
@@ -3807,16 +3101,10 @@ s'éloigna... Je ne l'ai jamais revu.
 semaine il devait faire constater à la police sa présence. »
 Nous fûmes tous d'accord pour blâmer le brigadier. Tout
 crime doit être effacé par l'expiation. N'est-ce pas votre
-avis ?
-; 101 maitres. — 6.
-{à
-WA
 
 mes maîtres et mes amis à
-5 É
 
 Paul M. à son père |
-Sienne, 26 septembre 66. |
 
 Je suis arrivé de nuit à Sienne et j'ai parcouru la ville au
 clair de lune; rien de plus fantastique : les rues montent, |
@@ -3824,7 +3112,6 @@ descendent, tournent sur elles-mêmes, se perdent dans de
 mystérieuses profondeurs. Sombres palais, avec leurs
 étroites fenêtres grillées, leurs énormes anneaux de fer et +
 leurs tours crénelées; seul le premier étage s'éclaire d'élé-
-gantes ogives. Ici, rien n'a changé depuis quatre cents ans, #
 tout rappelle les haïnes des partis et leurs luttes sanglantes. 2
 — La place est en amphithéâtre et couronnée par un
 immense demi-cercle de palais. Au bas, une fontaine en
@@ -3854,9 +3141,6 @@ bariolage des marbres. L'intérieur est d'un aspect grandiose.
 (1) Cette fontaine, un des chefs-d'œuvre de l'art italien au début
 du quinzième siècle, a été remplacée depuis par une froide et
 banale copie. Quelques débris des bas-reliefs originaux sont
-heureusement conservés au Musée.
-
-ï DEUX MOIS A FLORENCE
 
 * Le pavé est formé d'immenses gravures sur marbre du
 
@@ -3881,7 +3165,6 @@ pour les ornements somptueux, pour les colorations vives
 
 et harmonieuses, rehaussées de dorures.
 fé Paul M. à sa mère
-À Sienne, 28 septembre 66.
 
 Je suis encore tout ému de ce que j'ai vu hier. La nuit
 tombait. J'errais au hasard dans les rues désertes, rêvant
@@ -3900,10 +3183,8 @@ d'une jeune femme morte, étendue sur un grabat.
 
 (1) N'est-il pas admirable de voir un maître célèbre et dans toute
 la maturité de son talent, s'incliner devant la supériorité d'un
-génie naissant?
 
 mes maîtres et mes amis 1100
-DA
 
 La grand'mère est vieille, très vieille, brisée par l'âge et ps
 par la douleur; cependant, avec une infinie tendresse, ses h
@@ -3943,14 +3224,10 @@ de poing sur le pauvre vieux piano de M. Pouliquen et l'a
 tout détraqué.
 
 Paul à sa mère
-Turin, 3 octobre 66.
 © J'arrive à Turin passablement fatigué. Parti hier de Pise
 à 4 heures 1/2 du soir, je suis arrivé à Parme à une heure
 du matin. J'ai attendu le jour au café de la gare, étendu
-104 \
-\
 
-LR SE DEUX MOIS A FLORENCE
 sur une table, à l'exemple de plusieurs garibaldiens. De
 î six heures du matin à neuf heures, grâce à de généreux
 _ pourboires, j'ai pu contempler tout à mon aise les Corrège
@@ -3959,7 +3236,6 @@ trouve de pareilles facilités. IL suffit de donner la mancia
 à Cerbère pour qu'il ferme complaisamment les yeux. Ce
 0 laisser-aller a du bon, dans certains cas. — J'aurais souhaité
 de prolonger mon voyage encore quelques jours, mais des
-- raisons majeures m'en empêchent. J'ai d'ailleurs grand désir
 
 de vous revoir.
 
@@ -3992,76 +3268,27 @@ et à bientôt. )
 neo ME ML Le
 RAS EN Son pe A à APT Cv RACONTENT DAS PAU Ce DRM ta)
 (a hp | NE EU EL AE RO ANS AE MAMIE net rie
-nt RAT AE AT RO A PA ae PRE
 
 Hi te) RURALE de AE TAN ÉNOAONS
 ANA ee He IAA ED EN RNA PAS ARE RES PA =
-DRE RARES REA 62 AI RENTE TMRE TE ETS we MEET INS AU ap PR
-Lérta PSSIOON DSR RUN ES PRE MELLE ACTE PET
-@ tie RCA MUNN  E' ï te à à Da V1 TP ANORES
-CAE ! à LINE Pal] :
-POTRAT ANSSE NI Fe *, We 4 CNRS
 Win Herr r ' De, 1 ° er
-AA 5 MZ 4e : ; y " Sr DÉS AENR
-à PCT à ÿ : NEVER
-AGREE A (SE: = , à :' ICT TRS
-1: PAT LoRIe MR
-(SANT 1 vo ! v À } 2 a PPT) 71
 
 AU LE 'et LUS ‘es v? An
 AT x} Ù € è ä bal HUNATSSS on,
-CHR Va D { He ss | IR MER !' ROUTES \
-MES EE VAR Le FINE "2 Ê
 MER D'Un NU he MATE | L'ART
-
-4 HUTON Este RSS
-
-MADAME PAPE-CARPANTIER
-ENFANCE. — € PRÉLUDES }. — € CONSEILS SUR LA DIRECTION
-DES SALLES D'ASILE D. — PENSÉES. — LA SOCIÉTÉ DE L'AUBÉPINE. — DESTITUTION.
 
 F4 ads fl VU A St LS ALL ANT) L'ART
 se jo FR X CE {La RUE TA HA mA FÉRCON NE VUS NET
-4 SE À Mt e A AA, Vo AUDE A HR PCI AMEN
-A Ne RU NS NET UE AL AN
-MANU TE NN AE NET cs Me RATE 17 | (SUD RER
-ANA APS TE APRES ere ETES ADN EN PME MEN ty
-A TES SP IH ' e AA MATS RACE (SRE NES EAP EN Fan ABS
 NUE IE # (FRA EN ALNE ne ER 20 TES Here œ
-RAA PT LAS TNS ME PAL ESP L' 0 TUE STONES
-AU Pal HE el ER s Sas s Ç À ki } aa es FE
 SE ru Un se VAE { VE OST Fra | HAINE
-ORAN A EE : l 21, LCI CRIE
-AU é s 1 ASTON ATOME RER
-RU - } ! VU ETAENS
-ASE L % S NAR : FR
-HG NI ; $ à NAS FE .
-DEN AAA h : L L À AE ALU 4
-D RS
-v Re | AIR : es
-L'AIR D ñ AS CCE :
-HCTNE 2 LV RSEER TAN
-TES k :' FIGE
-MAY F RAR. 00e
-ES É ; + SANTE
-"A SUR À Fe 1x1, OÈRRE
-DRAC 2 : . ANS ESS 1&
-TL TOR 1200 4
-MIE
 
-SLR CAES 4
 .
-MADAME PAPE-CARPANTIER
 Enfance. — Préludes. — Conseils sur la direction des
 4 Salles d'asile. — Pensées. — La Société de l'Aubépine.
-— Destitution.
-ù 1
-}
 | Dès leur arrivée à Paris, mes parents avaient été
 heureux de renouer connaissance avec madame Pape
 qu'ils avaient connue au Mans, et qui était restée en
 . relations avec la famille Chassevant. Ses filles devin_ rent les amies de mes sœurs; une de ses élèves épousa
-Jules Nicole.
 
 Au moment de la guerre, madame Pape adressa à
 ma mère et à moi des lettres émues dont on appréciera
@@ -4069,7 +3296,6 @@ mieux la valeur, si je rappelle ici brièvement l'histoire
 de cette femme supérieure. Ce sera pour moi accomplir
 
 _ un devoir de reconnaissance.
-MARIE PAPE-CARPANTIER (1)
 
 Encore une belle vie toute consacrée au bien, encore
 une belle âme où fleurirent la bonté, la pitié et le
@@ -4078,8 +3304,6 @@ une belle âme où fleurirent la bonté, la pitié et le
 des renseignements biographiques qui suivent sont puisés dans
 
 _ les livres de deux fidèles amis, M. Loubens et M. Emile Gossot
-(Hachette 1890).
-1 109 maîtres. — 7
 
 mes maîtres et mes amis | Fa
 dévouement; encore une victime de la méchanceté et
@@ -4106,7 +3330,6 @@ triple galop de cheval retentit dans la rue muette. Ma mère
 se précipite à la fenêtre; le cavalier était déjà loin, mais
 elle l'a reconnu, c'est le docteur L..…. C'est vers l'Est qu'il
 court. « Oh! mon Dieu, s'écrie ma mère, il y a du
-malheur. »
 
 M. Carpantier était entré sans défiance avec sa petite
 troupe dans la forêt de Courcelles, une haute futaie de
@@ -4121,8 +3344,6 @@ chaque fois que je l'entendais retentir? »
 
 M. Carpantier était porteur de dépêches importantes
 adressées au maréchal Moncey. Transporté dans une
-
-- MADAME PAPE-CARPANTIER
 
 _ maison voisine et sentant qu'il allait mourir, il fit
 
@@ -4162,10 +3383,7 @@ servis d'un tire-balle. Par une fatalité terrible, l'un des
 
 | ( ») L'odieuse exploitation de la misère n'a pas cessé. C'est l'une
 des tares les plus révoltantes de notre organisation sociale.
-III
 
-, ‘ ; ; j 1e The f J
-Û \ uNape CHAT
 À mes maîtres et mes amis LEE
 pistolets contenait deux charges superposées, et la. ;
 charge inférieure resta au fond du canon. Fi
@@ -4199,14 +3417,12 @@ L'enfance de Marie Carpantier fut triste. Les travaux
 domestiques ne lui permettaient guère de se mêler aux
 jeux des autres enfants, et la solitude développa en
 elle l'habitude de la réflexion. Ses premiers vers traduisent d'une façon touchante les émotions de la petite
-abandonnée :
 
 Mère, le jour finit, ta main doit être lasse ;
 Laisse enfin ton travail ; laisse que je embrasse !
 Je ne sais quoi me pèse et m'attriste aujourd'hui,
 : Viens, j'ai peur de la vie! O mère quel ennui !
 
-ï ere MADAME PAPE-CARPANTIER t
 4 Tantôt j'ai vu partir mes petites compagnes….
 1 . Joyeuses en passant elles m'ont appelée :
 4 Accours, m'ont-elles dit...
@@ -4229,7 +3445,6 @@ Gravement malade, Marie Carpantier fut pendant
 La peur de laisser sa mère seule en ce monde lui
 inspira des vers profondément pathétiques. L'image
 . de la mort la hantaït : Dans sa fièvre, elle croit voir de
-lugubres fantômes
 .… couverts d'un long suaire,
 Que soulève à regret Le souflle de la nuit.
 Je crois entendre au loin leur voix mystérieuse
@@ -4237,7 +3452,6 @@ Gémir en m'appelant au pied d'un noir cyprès,
 Et malgré moi revient cette pensée affreuse :
 Si je mourais, si je mourais !
 Elle invoque les amis qui ont protégé sa jeunesse,
-ie 113
 
 mes maîtres et mes amis
 elle rêve de s'en aller sur la colline s'enivrer de parfums,
@@ -4273,14 +3487,12 @@ La Justice et l'Humanité.
 Pour moi, timide enfant, dans la foule perdue,
 Une tâche moins fière est donnée à mes jours;
 Moins fière, mais plus douce :
-… Deux mères à chérir, deux amours à confondre,
 Des pleurs à partager, d'amers chagrins à fondre,
 Quelques tardives fleurs à faire épanouir;
 Protéger de mes mains une chère vieillesse,
 Et puis, dépôt sacré commis à ma tendresse,
 Un cœur souffrant à réjouir.
 
-a k | 00 Lee j ie î F .
 | à SAN MADAME PAPE-CARPANTIER
 1 Les plus illustres écrivains du temps, Lamartine et
 < bien d'autres, envoyèrent à mademoiselle Carpantier j
@@ -4319,7 +3531,6 @@ Vous me dites, ma chère enfant, qu'on vous presse de
 publier; (les Préludes ne parurent que deux ans plus
 tard) — c'est ce qu'on dit à toutes les débutantes. Mais
 
-4 { TU f " NL AN NI Ci
 mes maîtres et mes amis FE
 si vous me demandez conseil, je vous engagerai à
 à attendre encore... Travaillez, et ne coupez pas votre blé
@@ -4348,10 +3559,7 @@ et aimés. » Ë
 Lorsque, en 1842, M. et madame Pape, administrateurs de la Salle d'Asile du Mans, se retirèrent, Marie
 Carpantier fut appelée à les remplacer. (1)
 (1) C'est leur fils qu'elle épousa en 1849. M. Pape, officier de la
-Garde Républicaine, mourut en 1858.
 
-CAR UD PAT AIRDILEE NA TC EE ANS TE NTT vR L vDES EC Eu à 2
-of ns MADAME PAPE-CARPANTIER
 | . En 1846, Marie Carpantier travaillait à un ouvrage
 intitulé : Conseils sur la direction des Salles d'asile, et
 madame Tastu, qui s'était elle-même occupée d'éduca- :
@@ -4362,7 +3570,6 @@ dire; marchez droit au but; évitez les digressions et les
 } hors-d'œuvre, enfin, pensez toujours, non à être éloquente,
 mais à être utile. té
 Une autre fois madame Tastu relève le courage de sa
-jeune amie :
 Il n'y a que les sots qui ne doutent pas d'eux-mêmes.
 Tâàchons de faire bien, avant tout; pensons à l'œuvre, non
 aux succès, j'entends les succès tels que les rêve une jeune
@@ -4373,16 +3580,12 @@ et ardente imagination. Courage ! donc. Ne vous tourmentez
 | accueilli avec faveur, adopté par le Conseil royal de
 … l'Université et par plusieurs Sociétés d'instruction primaire en France et à l'étranger. L'Académie française,
 sur le rapport de M. Villemain, lui décerna un prix de
-3.000 francs en 1847.
-Villemain écrivait :
 Premiers instincts de dignité morale, et pour ainsi
 dire, premier point d'honneur de l'âme excité dès l'en-
  fance, habitude et goût de l'obéissance sortis du développement même de l'être moral, et destinés non pas à
 détruire la volonté, mais à la rendre judicieuse et ferme,
 répression plus assortie aux caractères qu'aux actes
 pour améliorer toujours au lieu de punir, voilà ce que le
-[h ” 117 maitres. — 7,
-174 *
 
 mes maîtres et mes amis
 dévouement au devoir et la sagacité du cœur découvrent
@@ -4420,8 +3623,6 @@ Toutefois, aux heures de liberté, rimez encore quelquesuns de ces morceaux qui 
 trop de poésie dans un cœur comme le vôtre pour
 l'étouffer en vous.
 
-. TRS a :
-_ Hu MADAME PAPE-CARPANTIER
 : _ Madame Desbordes-Valmore, dont la vie fut traversée
 
 4 de si douloureuses épreuves, écrivait le 25 novembre « | MEUXÉ
@@ -4481,7 +3682,6 @@ Veuillez, madame, agréer mes respects.
 « Quand on a lu ces lettres signées de noms illustres, :
 ajoute M. Gossot, on ne peut se défendre d'une profonde
 et sympathique estime pour l'auteur qui mérita de tels
-suffrages. »
 
 L'ouvrage de madame Pape marque, d'autre part, une
 date importante dans l'histoire des progrès de l'enseignement.
@@ -4500,7 +3700,6 @@ la science moderne à l'enseignement dogmatique et erroné de
 l'Eglise.
 
 D PR PL PRE EM RE PRE CE NER ‘ fs
-SÉRIE MADAME PAPE-CARPANTIER
 RT _ l'enseignement, grâce à l'initiative généreuse et hardie
 pe d'un homme de cœur qui fut un célèbre historien et un
 1 grand ministre de l'Instruction publique (de 1863 à 1869),
@@ -4520,7 +3719,6 @@ R: nuer dans les familles le regrettable désaccord qui
 _ danger de la concurrence. Il attaqua violemment le
 ministre et s'efforca de réserver à l'Église le monopole de l'éducation des filles, afin de conserver dans
 chaque famille quelques agents dévoués à la cause du
-clergé.
 
 j Duruy trouva en madame Pape un précieux auxiliaire
 pour l'exécution de ses projets. Il lui demanda de faire
@@ -4530,13 +3728,8 @@ eurent un grand succès. Ces remarquables discours (2)
 ) ont pour titres : La leçon de Choses. — Le Pain. — Le
 Vêtement. — La Locomotion. — Le Bâtiment.
 
-(1) Moniteur officiel, février 1865.
 (2) Publiés par Delagrave.
-j 121
 
-Y ÿ ' \ 4
-EAU | "
-AR
 mes maîtres et mes amis Ti
 Ce n'est pas, il est vrai, à madame Pape que revient 1.
 l'honneur d'avoir organisé la première Salle d'asile, (1)
@@ -4571,10 +3764,6 @@ Louise Schæppler avait créé dans les Vosges une Salle d'asile, En
 ouvriers de sa manufacture, mais notre Comité de l'Œuvre Maternelle des Salles d'asile ne fut fondé qu'en 1855.
 (2) Le Progrès de l'enseignement, avril 1887.
 
-: SRE MADAME PAPE-CARPANTIER
-
-: LAS
-
 - initiative que la France doit l'adoption de ces méthodes
 
 -_ excellentes, aujourd'hui pratiquées chez toutes les
@@ -4586,7 +3775,6 @@ parle à l'enfant.
 
 . Ce fut une grande joïe pour Victor Considérant de
 voir réalisées quelques-unes des conceptions de son
-maitre.
 
 f J'ai vu, dit-il, dans la cour de la Salle d'asile de la rue
 
@@ -4613,7 +3801,6 @@ Mieux que cela! quand de nouveaux enfants arrivent à
 VAsile, sitôt qu'ils s'approchent du petit jardin, ce sont les
 autres qui leur apprennent qu'on ny touche pas, et aucun
 n'y touche. Il n'y a jamais eu une gronderie à faire, une
-punition à infliger.
 
 Quand tous ces petits enfants sont à s'amuser dans la
 cour, où ils s'amusent tant, qu'ils oublieraient de manger, si
@@ -4629,10 +3816,6 @@ sifflet, le maître battant la mesure avec un livre en bois, les
 e deux régiments de petites filles et de petits garçons se
 
 | 123
-
-7%
-
-nr
 
 A ES A ae PS A Gel ON Qi rt ee
 % mes maîtres et mes amis AGE gs Aa.
@@ -4655,7 +3838,6 @@ comprendrez ce que l'on peut sur des masses aussi jeunes ré
 avec le chant, avec le pas régulier, avec le mouvement re
 cadencé, avec un emploi, encore si faible et si confus
 cependant, du mode mesuré. À
-5 2;
 
 Je ne puis donner ici que quelques courts spécimens E
 des Pensées de madame Pape. Ces pensées, elle les 7
@@ -4663,7 +3845,6 @@ avait trouvées dans son cœur et, grâce à son ardeuà
 
 ; prêcher la vérité, elles prenaient dans sa bouche un
 accent personnel qui leur donnait une autorité plus !
-grande :
 
 — La Bonté est la lumière par excellence. Si l'in- |
 struction n'avait pas pour résultat de nous rendre plus fr:
@@ -4673,15 +3854,9 @@ qu'un vain plaisir, une curiosité dispendieuse. S
 — Il n'est pas un enfant qui ne se laisse prendre à 4
 
 124 2
-NI
-"4
 
-; ral LE LA VAS TD AL A A A
-VUE 1,452 4 MINE ESRR Tr A n À 4 É
-à 154 5300 x H à VE n
 > tie A _ MADAME PAPE-CARPANTIER ‘
 … ‘l'affection qu'on lui témoigne. Aimez chacun de ceux
-% VI Ps A. | e
 1 _… qui sont confiés à vos soins.
 ‘ Ÿ — Tâchez qu'on vous aime, et ce sera facile si vous
 1:50 aimez véritablement vous-mêmes; l'amour c'est la
@@ -4724,18 +3899,9 @@ ligne droite, c'est la rigueur. L'une représente le fours
 4 madame Pape a su faire de cet usage une méthode suivie d'in-
 
 y struction et d'éducation.
-ps 125
 
-(/
-
-at
-
-? 15 "
-
-: EN TN RO
 mes maîtres et mes amis MODE
 de la vie pratique, toute de nécessités, de rapports avec 0
-Ÿ Ÿ
 nos proches, nos semblables ; vie pleine de ménagements ;
 pour autrui, de concessions réciproques, de sacrifices Æ
 mutuels. L'autre représente la vie théorique, l'idéal,
@@ -4744,7 +3910,6 @@ l'idée hardie, indépendante, absolue. (x) 1
 Dans un charmant récit intitulé : Les portes et fené- bé
 tres de notre maison, madame Pape étudie les cinq sens; à
 ainsi la science pénètre, habilement dissimulée dans ces pe
-aimables pages :
 
 Tout ce que nous apprenons avec le secours de nos 4
 yeux est incalculable. Nous pouvons quelquefois nous
@@ -4774,10 +3939,6 @@ Fourier qui montre le rôle important de l'analogie dans les découvertes de la 
 (2) Cette ignorance, ni les métaphysiciens ni les dévots wont le $
 courage de la confesser.
 
-Q.
-
-INA 1 ré ns ait É Y !
-Ie MADAME PAPE-CARPANTIER
 AE (J'extrais d'une lettre le passage suivant :
 ' Hier nous avons conduit marraine (mademoiselle
 ps Drulin) aux gorges d'Apremont. C'est un désordre
@@ -4792,15 +3953,11 @@ b les flots de la mer, ont perdu leurs pointes, leurs aspé-
 We rités, et se sont adoucis sous les coups répétés des vagues,
 # comme s'adoucissent les âmes bien trempées sous les
 11 coups répétés des épreuves.
-k
 te Je terminerai ces citations trop brèves par une pensée
 qui résume toutes les autres :
 Û Ce qui importe, c'est que les enfants apprennent à
-RESPECTER LA VIE.
 : Cette idée prendra dans l'avenir une importance de
 plus en plus grande. Elle suffira pour fonder la vraie
-morale humaine. (1)
-(e]
 Lorsque j'entrai pour la première fois dans la Salle
 d'asile modèle dirigée par madame Pape, je fus,
 (1) Le respect de la vie est une règle dontles conséquences logiques
@@ -4810,10 +3967,8 @@ Deux exceptions pourtant : la première naît des nécessités de
 détruire les animaux nuisibles.
 
 | mes maîtres et mes amis |. 40m
-,\ 9 7 mn:
 
 comme tous ceux qui la visitaient, émerveillé des 14
-résultats obtenus. HU
 
 C'est que, à sa méthode excellente, elle ajoutait ce ui?
 charme personnel que rien ne saurait remplacer. La AU
@@ -4849,9 +4004,7 @@ maître peintre dont j'étais l'élève. | à)
 
 La physionomie de madame Pape exprimait l'intelli- À
 gence, la douceur et la bonté,. bien que la bouche n
-L #
 
-1 | MADAME PAPE-CARPANTIER
 D _ ferme marquât l'énergie d'une volonté forte. C'était
 jt __ en effet une nature passionnée pour le bien et qui
 1 j 1 savait rester maîtresse d'elle-même. Son visage tout
@@ -4881,18 +4034,8 @@ critiques à nos essais littéraires; on récitait, on jouait
 quelques scènes de comédies, parfois une pièce tout
 entière; la musique et la danse faisaient partie du programme, et ce fut avec regret que je dus renoncer
 à ces agréables réunions, lorsque je partis pour un
-second voyage en Italie.
-à 129
-
-A RE OU LA PE TE MN AT Le PNR A ESS
-
-AR REUR M
-
-QUE à ; ë Li PRE PU LA
 
 mes maîtres et mes amis Re
-
-Madame Pape-Carpantier à madame Milliet Pa
 
 Paris, 17 juillet 69 Le
 
@@ -4915,8 +4058,6 @@ Au revoir, chère dame, faites mes plus sincères amitiés
 à votre excellent fils, embrassez Louisette pour moi, rappe- |
 lez-moi au souvenir de monsieur Milliet, et croyez-moi, chère |
 dame et amie, votre bien vivement affectionnée
-MARIE PAPE-CARPANTIER |
-F. F |
 La modération extrême, j'allais dire excessive, de |
 madame Pape, dans son langage et dans ses écrits, ne
 |
@@ -4931,21 +4072,11 @@ telles autorités n'aient pas suffi pour la protéger contre
 les insinuations calomnieuses. :
 Mais les Jésuites ne lui pardonnaient pas ses opinions |
 républicaines, ni cette religion très haute, qui refusait ‘à
-130 : 4
-ï
-L
-
-è 2080 API :% - i
-
-MASON?
-
-Fab _. MADAME PAPE-CARPANTIER
 
 at à de s'enfermer dans les formules figées d'une étroite
 LHr orthodoxie. On lui pardonnaït encore moins sa respec-
 | tueuse affection pour un grand poète, madame AckerFe mann, muse douloureuse du pessimisme, qui a chanté
 6: en vers admirables sa révolte contre le Dieu cruel des
-Catholiques.
 
 De ténébreuses intrigues amenèrent la destitution de
 | madame Pape, de cette noble femme à laquelle sa vie
@@ -4981,10 +4112,6 @@ et réactionnaires. Cependant, sur les représentations de maître
 (2) M. de Cumont.
 (3) Madame Pape mourut le 31 juillet 1878.
 
-M
-ENEN
-
-PNR RTE FE HAN EME PORT SR EE RE
 mes maîtres et mes anus ( en BA
 cette criante injustice, manifestèrent à la fois l'admira- 4
 tion, la reconnaissance des anciennes élèves et l'indi … 4
@@ -5000,20 +4127,11 @@ actif et personnel. La maison où elle avait si longtemps Me
 enseigné ne lui fut pas rendue, et ce fut pour elle un
 chagrin profond. Elle disait à madame Milliet : « Ne le
 répétez pas à mes filles, mais ces misérables m'ont
-tuée! » \
 .
 |
-à
 
-be ATEN
-É
-LAS
-FES ANNEXE AU CHAPITRE V (1)
 |
 Madame la maréchale de Mac-Mahon à madame Pape
-b
-É
-j 5 Versailles, 13 décembre 1874.
 ' J'ai été si péniblement affectée de ce que vous m'avez dit,
 hà et si touchée de votre dignité dans cette disgräce que je me
 “4 suis employée auprès du Ministère. Je puis vous assurer
@@ -5036,14 +4154,10 @@ avant le premier octobre dernier : nommée Inspectrice
 l'Académie des Sciences morales et politiques, sur un rap-
 Ÿ (1) Je suis reconnaissant à la fille de madame Pape, madame
 Brigitte Gelle, qui a bien voulu me communiquer les lettres suili. vantes.
-1h 7 133 maitres. — 8
-pie VOS { d
 
-LA ve £ L
 mes maîtres et mes amis : |
 port de M. Drouin de Lhuys, je restai à la direction du .
 Cours pratique des Salles d'asile organisé par moi en
-1847 et 18/48. ,
 Pendant le cours de ces 27 années, mon traitement avait
 | été progressivement élevé de 3.000 à 5.000 francs. Je jouissais en outre du logement, chauffage et éclairage.
 Permettez-moi, madame la Maréchale, de m'en remettre à
@@ -5054,7 +4168,6 @@ sort, que je laisse avec confiance ma dignité et mes intérêts
 dans vos mains.
 Veuillez agréer, madame la Maréchale, avec ma vive
 gratitude, ma plus haute et respectueuse considération.
-MARIE PAPE-CARPANTIER
 Le 24 décembre 1874 la maréchale de Mac-Mahon .
 écrivit à madame Pape pour lui demander si elle
 accepterait d'être envoyée en mission, comme déléguée
@@ -5074,13 +4187,9 @@ coup qui m'a été porté ne font que donner plus de force
 aux motifs que j'avais en 1868.
 Et puis, madame la Maréchale, cette position d'une Inspectrice générale en inactivité venant remplir des missions
 à la suite des déléguées générales en activité lui enlèverait
-134 ï
 
-117 ARE MADAME PAPE-CARPANTIER j
-AIO 2 J: . La . ”
 ‘ia d'avance tout crédit, toute considération dans ses tournées.
 - Ge serait pour moi une aggravation plutôt qu'une répaEU: :
-no ration.
 ( Et pourtant, madame la Maréchale, une réparation au
 Le moins morale m'est devenue plus désirable que jamais. On ‘
 a répand le bruit dans l'Université que c'est pour mauvaise
@@ -5089,7 +4198,6 @@ F administration que j'ai été remplacée. Je ne puis croire que
 ; se justifier par une telle calomnie. D'où qu'elle vienne
 | cependant j'ai à cœur de la voir démentie, et ce n'est pas
 10 en acceptant mon amoindrissement que je parviendrais à
-4 ce but. à ;
 110 Croyez, madame la Maréchale, que j'apprécie vos généreux
 \4 efforts comme ils le méritent et que je voudrais pouvoir |
 MR. accepter quoi que ce fût qui me vint par vous, mais
@@ -5098,40 +4206,12 @@ A 14 lPhonneur d'une vie comme la mienne a ses exigences.
 ‘4 agréer l'assurance de mon respect et de ma plus profonde
 LA gratitude.
 le MARIE PAPE-CARPANTIER
-SA
-J \
 
 |
-L
-; :
-ke
-MN .
-
-MY LR IA LE MONTE) ds RAS ANON TA PNR PEU
-
-À tr GER LC ET AL PARU DER LEURS BE AR FHHRUUAE IH AAUE
-
-: Ro LÉO TN dal MCE PRIE F do an HARAS
-
-‘LE LT AMEN IE DATE OMS de LA SE Le MN AQUEErT
 
 DU DATA st Me LE PU Se A RTS TE it 4 10 FH
 
-NN RE | RAR ELEUS L LUE URI ANENSS
-
-LEUT/AR OA A (SA Ï ; | Ê 1: 314 NOIRS
-
-AT NON PA \ LA ; $ RAS EL AM
-
-LA A RNA ! | À f y Wir EURO) à
-
-j'Y OUEN hat) \ 6 1 HE PANIT
-AN ALU SU 27 À { JA | TRES ;
-20 eve k IQ ® l'U1 |GHNRNENESS SAN
 DAS NAME LE RME \ l j Jens EH Mi
 Val 4 (RRQ l L He 4 PE AORRE (er “
-MCE APS ( | i \# w LAN ! a :
-(OURS RE \ A US 1 MS RU A RON À: VAS
 
 VO LIN NE Qu fa ni PAS l'O : A4 TAPANT |A HUE ;
-“El à IRAN NIMES Le NU AU MA TL La APM LATE

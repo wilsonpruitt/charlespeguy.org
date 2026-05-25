@@ -7,9 +7,6 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 4135
 ---
-
-*Charles Péguy*
-
 Ils sont pour la plupart beaucoup plus actifs, travailleurs, énergiques, eflicaces que leurs noms ne sont
 spécifiques. Mais tout de même comme c'est beau, un
 nom qui désigne les hommes et les groupe sans contestation, sans hésitation, par le travail quotidien. On sait
@@ -34,9 +31,7 @@ rouges défilaient. L'ordonnance de police du 15 février
 est ainsi conçue en son article premier
 Sont interdits, dans le ressort de la Préfecture de police,
 l'exposition et le port de drapeaux, soit sur la voie publique, soit dans les édifices, emplacements et locaux
-librement ouverts au public.
 Mais heureusement qu'elle est ainsi conçue en son
-article deuxième
 Sont exemptés de cette mesure les drapeaux aux couleurs
 nationales françaises ou étrangères, et ceux servant d'insignes aux Sociétés autorisées ou approuvées.
 
@@ -74,7 +69,6 @@ Les ouvriers l'aiment comme un simple et grand ouvrier
 d'éloquence, de pensée, d'action. L'acclamation au nom
 de Jaurès était pour ainsi dire de plain pied avec les
 dispositions des assistants. Continuant dans le même
-sens, plusieurs commencèrent à chanter : Vive Zola!
 Ce cri eut un écho immédiat et puissant dans le cortège,
 composé de professionnels habitués dès longtemps
 se rallier autour du nom protagoniste. Mais la foule
@@ -126,8 +120,6 @@ justice et la vérité. Ceux qui ont fait cela ont bien
 ( ») Cité dans le Matin du dimanche. Il vaut mieux ne pas
 lire l'Intransigeant dans le texte.
 
-ges DT OAI Rd
-
 fait ce qu'ils ont fait. Mais ceux qui ont voulu cela n'ont
 pas prévu au delà de ce qu'ils voulaient. Ils n'ont pas
 prévu la résistance désespérée de quelques-uns, la
@@ -135,7 +127,6 @@ fidélité d'une famille s'élargissant peu à peu jusqu'à
 devenir la fidélité en pèlerinage de trois cent mille
 républicains. — Le Vive Dreyfus ne dure que quelques
 minutes. On en use peu, comme d'un cordial trop
-concentré.
 
 mesure que l'on approche de la place de la Nation
 les stations deviennent plus fréquentes, comme lorsqu'on approche, pour un défilé, d'un rassemblement
@@ -207,11 +198,9 @@ station devenait une véritable pause, quand on commençait à s'impatienter un 
 se mit à chanter, au lieu de : Ah! Déroulède à Charenton, ton, taine, sur le même air, ces paroles ingénues
 Allons vite à la place de la Nation, ton taine. Ayant dix
 syllabes à caser au lieu de huit, il courait pour se
-rattraper. Cela réussit beaucoup.
 Alerte. Sursaut. Scandale. Un cri court au long de
 la colonne : A bas la patrie ! Grand émoi, car un tel cri
 n'est poussé que par un agent provocateur ou par des
-internationalistes excessivement prononcés. Soudain
 on comprend. Et on rit. Des camelots harcelaïent les
 manifestants et la foule en criant: La Patrée. Les manifestants avaient répondu en criant : À bas la Patrie,
 et non pas à bas la patrie. Pour dissiper le malentendu,
@@ -243,7 +232,6 @@ quence, une autre habitude que nous, comme ils devaient
 
 s'étonner de ne pas se trouver automatiquement trans-
 portés sur nos épaules ! Mais ils ne bougeaient pas,
-droits, encapuchonnés d'obéissance passive. Au long
 du boulevard nous les considérions comme on regarderait si une locomotive oubliait de partir au coup de
 corne du conducteur. Ils négligeaient de partir. Le
 peuple était d'ailleurs d'une correction parfaite. Sans
@@ -341,7 +329,6 @@ passions au pas accéléré, car il fallait que le fleuve de
 peuple coulât. Quand nous voudrons regarder à loisir
 le monument de Dalou, nous retournerons à quelquesuns place de la Nation, et nous emporterons dans nos
 poches le numéro du Mouvement où est l'article de
-Deshairs.
 
 Il est bien peu de citoyens qui n'aient alors donné un
 souvenir, une rapide pensée à Déroulède, qui était venu
@@ -389,7 +376,6 @@ Ceux de la rive gauche s'en allèrent par le boulevard
 Henri IV. Groupés en gros bouquets aux lueurs de la
 nuit, les drapeaux rouges regagnaient de compagnie
 leurs quartiers et leurs maisons. Les bals commençaient
-bientôt.
 
 Avec la fatigue de la journée, des inquiétudes et des
 scrupules me venaient. Je sais bien qu'il n'y a plus de
@@ -441,7 +427,6 @@ Suit l'histoire de M. Marinoni et du Sultan.
 
 L'auteur procède comme il faut. Une brochure bien
 faite ressemble à une histoire de grand-père contée à la
-veillée
 Il y avait une fois, au pays des Infidèles, un méchant
 roi qui fit massacrer, dans les supplices les plus
 effroyables, trois cent mille de ses sujets chrétiens. —
@@ -467,19 +452,13 @@ chez l'épicier ?
 
 — Oui mon garçon.
 
-— Ah vrai!
-
 . La brochure de Le Pic invite à cette imagination.
 
 Je lus passionnément cette brochure bien faite. Et
 quand je revis contre quelles sournoiseries, contre quelles
-sauvageries, contre quelles atrocités, contre quelles
 barbaries ce peuple révolutionnaire avait conduit dans
 Paris ce triomphe de la République, cette inoubliable
 manifestation me sembla toute saine et toute bonne,
 et les scrupules de détail que j'avais eus me semblèrent
-vains.
-
-ÿ Ê NCUR HAT MERE +1 PMR
 
 ---

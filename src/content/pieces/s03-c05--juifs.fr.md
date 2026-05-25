@@ -7,83 +7,22 @@ author: georges-delahache
 isAvertissement: false
 wordCount: 18828
 ---
-
-4° ù A
-MOTS LATE ?
-… HER ; :
-set RE
-1h + s “ b
-
-4 ; JURA
-fes e if 5 FF : À
-
 re. ot: l
-*,: VA -5i RE
-Don : ;
-Fe br
-+, NE ;
-+4 08 Ê
-1 LES, VOIES
 
-ue DR te ï , a
-. D HD: % de
-ri A k pe, ns ES
-* CRT
 slt dires EF Eu Per left Base. ” Le
 2 pa TR = Né e"E E. în vs »7 be. br Dit à
-1 | : : Nec g
-= L ue :
-. _ j 1 AR F
-pee R" | . M
-. FT ñ : LOUE
-- ne = A
-td nu u
 “ “wrip 4 je SR
-Cr. . à -
-Hi r PP - CR
-: É gs
-Le j". ' *
-=" 4 Le
 
-44 à 154
-
-me ; 15 DD
-
-h ps | Ji -
-É R . ,
-fr} . “
-EL ” ‘ , l
-me 1 ù
-Me - ; EL à .
-Le © : 14 “
-
-, - sr
-7 j : L
-112 mé l Eh à
 he L Re nr 1e
-" de L 3-42 $
-Wa 4 =.
-n [ns ' | DE -
 Sat 0 LL. M Le ee fe
-Fe es
-DR si * NUE A
 Lu. nl ET
-kg ER" s +2 "DR à Ale
-FRET PRET
-PP ALOE
 
-- GEORGES DELAHACHE
 | 13983); à .
-
-É CAHIERS DE LA QUINZAINE
 
 À paraissant vingt fois par an ”
 
-D: PARIS
-
 _ 8, rue de la Sorbonne, au rez-de-chaussée
 
-* De Ce F4" q
 Nous ne publierons pas /e roman de Tristan et Iseut.
 La première édition, tirée à deux mille, étant épuisée,
 les éditeurs en préparaient eux-mêmes une seconde,
@@ -97,14 +36,11 @@ de la première édition. Nous mettons en vente la
 
 Comme rien ne peut remplacer un aussi beau poème,
 il n'y aura pas de cahier de Noël dans la troisième
-série,
 
 Nous mettrons en vente le 10 janvier, jour de sa
-publication
 | JEAN Jaurès. — Études Socialistes, un volume de
 LXXVI + 276 pages, édité par la Société d'Editions
 liltéraires et artistiques, librairie Paul Ollendorff, un
-volume à trois francs cinquante.
 
 L'avertissement que l'on a pu lire dans le quatrième l'édition Ollendorfr.
 
@@ -121,7 +57,6 @@ René Salomé : la Clairvoyance automatique.
 Le sixième cahier sera la Grève, de Jean Hugues.
 | Nous avons reçu de Félicien Challaye deux courriers
 d'Indo-Chine que nous publierons le plus tôt que nous
-pourrons.
 | Pour savoir ce que sont les cahiers, on peut envoyer
 soixante centimes à M. André Bourgeois, administrateur des cahiers, 8, rue de la Sorbonne. On recevra en
 
@@ -132,13 +67,11 @@ Le trois francs cinquante on recevra six cahiers spécimens.
 heure à sept heures et le vendredi 3 de huit heures à
 ; onse heures. ; j sa. ER
 
-JUIFS
 Le mémoire que l'on va lire a été publié pour la pre-
 : mière fois chez Ollendorff, en 1901. L'auteur l'avait à
 écrit en 1900, quand l'affaire battait son plein, quand c
 A elle finissait en effet. L'auteur est un Juif. Il a même un
 _ beau nom juif. Mais il a dû garder ici un pseudonyme
-4 habituel.
 4 Cette seconde édition est complètement refondue.
 _ Mais nous n'avons pas pu lui enlever cette marque par- b,
 ticulière d'une affaire qui reste ineffaçable, et qui dans
@@ -188,9 +121,7 @@ ne l'Europe orientale.
 ne Mais il n'a pas lui-même un caractère historique. Iln'a
 f % jamais été que polémique.
 | GEorGEs DELAHACHE
-JUIFS
 Après dix-neuf cents années, malgré les Révolu4 tions, le peuple errant poursuit sa course in- : °
-quiète…
 Sur le quai de la gare presque désert, ils attendent. Le train qui va les emporter, à la nuit tom- s bante, les jettera demain matin, après huit heures F
 de roulis monotone à travers les petites stations
 interminablement échelonnées sur la ligne, dans
@@ -205,12 +136,9 @@ Juifs, facilement grotesque. Au bout du quai, trois malles vieillottes, qui depu
 sans serrures dans la poussière du grenier, et qu'on
 a fait sortir en hâte, ficelées à la diable, pour le
 
-_ triste exil.
-
 Voici le train... La dernière fois qu'ils avaient
 
 | : EN)
-: Georges Delahache
 ainsi transporté leur foyer, c'était quelque temps
 à après la guerre. L'aîné venait de naître, là-bas, à
 : 1 dans la Ville-Pucelle, à deux pas de cette Esplanade
@@ -235,9 +163,7 @@ e des mélodrames et des pièces militaires, n'est pas
 4 . après, la France tressaille à la voix de quelques
 te hommes d'énergie et de cœur qui lui crient son
 pr erreur, La foule, hélas! continue d'aboyer au mi- &
-NT ul F
 
-JUIFS
 | sérable : soit qu'elle se refuse, par paresse d'esprit
 ou par diabolique entêtement, à examiner même la
 question, soit que, comme il arrive à chacun dans
@@ -285,7 +211,6 @@ Il ést vrai que ces hommes sont les maîtres du monde. Voyez! Regardez! Ils se 
 
 | Je regarde.
 
-à _ JUIFS
 : Au Parlement. — Parmi les députés, il y en a
 | deux, dont l'un est un vieux philanthrope qui vote
 quelquefois et ne parle jamais, et l'autre, un jeune
@@ -312,7 +237,6 @@ seul israélite; parmi les colonels, un seul également.
 4 deux maîtres des requêtes sur trente-deux, — à la
 4 Cour de Cassation, d'un conseiller sur quaranteLe.
 
-Fr Georges Delahache t
 4 cinq, — à la Cour d'Appel de Paris, de deux conseil-
 | , lers sur soixante-deux, — pour rendre la haute jus4 tice en France boiïteuse et vénale. — A la Cour des
 1 Comptes, pas un. — Aux Affaires Étrangères, par » principe, personne. — A l'Instruction Publique
@@ -321,7 +245,6 @@ Fr Georges Delahache t
 4 : constatations partout : on peut dire, d'une façon
 Le presque absolue, qu'il n'y a pas de Juifs parmi
 01 les « grands chefs », ni même immédiatement
-*à au-dessous d'eux. — Si vraiment trente-huit
 ie millions de Français catholiques et protestants
 Le: étaient gouvernés par quatre-vingt mille Français
 4 israélites, on pourrait se demander par l'effet de
@@ -337,7 +260,6 @@ F2 camaraderies politiques ou par le fonctionnement
 ci __ paresseux des hiérarchies automatiques, et personne
 da : encore dans ce pays ne reprocherait sérieusement à
 
-ES - JUIFS
 un Darmesteter son traitement de Professeur à la. è
 Faculté des Lettres, à M. Henri Weil ou à M. Salomon Reinach leurs jetons de présence à l'Académie
 des Inscriptions. — Et je n'oublie pas non plus les
@@ -368,9 +290,6 @@ poètes, d'artistes, d'humanistes, de philosophes. Or,
 
 | cette invasion gigantesque se produit fatalement
 
-4 9 ke
-
-3 Georges Delahache
 chaque fois que se présentent des circonstances
 analogues à celles qui ont provoqué le mouvement
 de la Renaissance. Les Juifs de France avaient vécu,
@@ -394,11 +313,9 @@ la sève devait couler d'autant plus vigoureuse et
 jeunes gens israélites vers les professions libérales
 | s'est accentué, s'ils sont chaque jour plus nombreux
 ' ceux qui, fils de drapiefs, de banquiers et de colpor-
-; teurs, veulent devenir ofliciers, médecins, avocats,
 soit que cette autre vie leur apparaisse comme plus
 | 10 j
 
-RE JUIFS
 élevée intellectuellement que celle de leurs pères,
 ee soit pour échapper par une « carrière sûre » aux ha- F.
 : sards et aux tracas des affaires, ce n'est pas à notre
@@ -423,10 +340,8 @@ encore, s'avisaient de jeter dans les traditions
 | de cette arme, où l'on a pour essentielle mission
 | d'être chics, un peu de leur esprit sérieux, de
 leur application constante, de leur ténacité au
-travail.
 | Reste le monde des affaires. Je ne voudrais pas
 
-Georges Delahache
 rappeler l'argument trop banal : les Juifs, installés
 | partout d'une façon précaire, à la merci d'un caprice
 princier, écartés de la propriété territoriale, écartés
@@ -452,7 +367,6 @@ blämaient autour d'eux, jusque chez ceux dont la .
 | volonté de « gagner de l'argent » leur avait assuré
 44 les moyens d'être des mandarins. Ils ont dû s'aper-
 
-JUIFS
 cevoir que l'argent est indispensable pour vivre, Ç
 qu'il faut en acquérir par sa propre activité sil'on : Ç
 veut un jour donner à ses enfants la même vie qu'on S
@@ -477,9 +391,7 @@ tirer d'affaire » entretient merveilleusement le jeu
 de leurs organes, c'est par une loi toute naturelle.
 Leurs adversaires n'ont pas à s'étonner de leur
 souplesse, de leur énergie et de leur ténacité, et,
-Georges Delahache
 partant, de leur richesse même : c'est eux qui les
-condamnent à être riches.
 Douce condamnation sans doute, si elle avait
 À toujours son plein effet! Mais de ce que les Rothschild sont juifs, et les Cahen d'Anvers, et les Furtado, il serait d'un raisonnement trop simpliste ou
 | trop perfide de conclure au « millionnariat » de
@@ -502,7 +414,6 @@ k n'en est pas moins vrai que là comme partout les de
 à De JE nn
 E : (1) Revue socialiste, numéro 173, de mai 1899, ua DORE sf
 
-: | rurrs
 gagnent leur vie à la force du poignet, la majorité.
 Les Juifs ne sont pas un bloc. Il ÿ a autant de
 différences de fortune, d'habitudes, d'âme entre
@@ -528,7 +439,6 @@ places soient prises par des Savoyards? — J'ajoute
 enfin que, quand même tous les Juifs de France
 seraient rentiers dodus et puissants financiers,
 quand il n'y aurait parmi eux ni ces petits employés qui ont tout simplement besoin de gagner
-À Georges Delahache
 leur vie, ni « ces ofliciers de fortune » qui n'ont
 d'autre fortune que leur solde, ni ces tristes mé-
 
@@ -581,7 +491,6 @@ même ville et le même métier un autre Juif de Bor-
 J deaux. Je ne crois pas que personne songe à s'étonner que les « Terre-Neuviens » se connaissent entre ñ eux, ni que les « Barcelonnettes » constituent une à
 | colonie française à Mexico.
 
-Georges Delahache
 Mais croire qu'ils se prêtent un mutuel appui,
 sacrifiant chacun ses petits intérêts pour le plus
 grand succès des ambitions communes d'un groupe,
@@ -609,7 +518,6 @@ suspicion générale, de se détacher le plus nettement
 L intimement possible au groupe où l'on était fier
 ; d'entrer, de rompre les ponts derrière soi ; et les cas
 
-JUIFS
 que je pourrais citer sont nombreux, où, au lieu
 d'accueillir aimablement le jeune homme qui s'efforçait d'être jugé dignus intrare à son tour, on le
 | recevait avec une froideur volontiers hostile : peutêtre mal dégrossi, encore imprégné sans doute des
@@ -635,7 +543,6 @@ que le roi. L
 | autre qui repose sur une connaissance trop superficielle des faits. On se représente la société juive
 comme formant un tout dont l'étroite cohésion
 
-Georges Delahache
 serait due à une communauté absolue d'origine, de
 goûts et d''habitudes. Rien'n'est moins exact.
 
@@ -659,11 +566,8 @@ TRE dans les hasards et les périls, avant de revenir en À
 France, d'y établir la « maison de commission »,
 à d'y vieillir dans le contentement du pays retrouvé
 “4 Rè et de l'aisance conquise. Ils se nomment Lévy, À
-s D: Cahn, Dreyfus.
 5 L'autre catégorie est beaucoup moins autochtone.
 É 4 Originaires d'au delà du Rhin et du Danube, nés
-: K à 20
-: ji & $ JUIFS
 | de familles qui avaient pour la plupart acquis
 déjà quelque fortune dans les Bourses de Francfort
 ou de Vienne, ils ne sont venus en France qu'assez
@@ -674,7 +578,6 @@ répandus dans la haute société, beaucoup portaient
 des noms plus étrangers peut-être, mais moins
 spécialement juifs, et ainsi, quoique étrangers,
 ils ont parfois rencontré moins d'obstacles que les
-autres.
 Entre ces deux éléments de la société israélite
 parisienne, Les relations étaient plutôt correctes que
 vraiment cordiales, on se classait réciproquement,
@@ -691,7 +594,6 @@ celui-là, un de ceux dont se défie toujours votre
 patriotisme étroit : pas de mélange chez ce Dreyfus,
 il est de chez vous tout à fait, c'est un vieux Fran- è
 
-Georges Delahache
 çais sans alliances et sans origines suspectes, un
 À bourgeois, un Mulhousien.. »
 Quatre ans plus tard, tout était changé. IL avait
@@ -719,7 +621,6 @@ et ceux du négoce, ceux de la rue Laflitte et ceux de
 + la rue de la Lyre, ceux de Francfort et ceux de
 Strasbourg, ils étaient rejetés les uns vers les autres,
 
-L JUIFS L
 par la faute de leurs ennemis, pêle-mêle, en foule
 | misérable et désemparée, cohue de parias, comme
 au temps des exodes dont le souvenir, jusque-là
@@ -743,7 +644,6 @@ campagne. La France aux Français! formule admirable parce qu'elle est sonore et
 signifier quelque chose... Et ce sont — suprême
 logique — les mêmes gens qui accusent les Juifs
 
-‘a Georges Delahache RE
 de « se faufiler » partout, d'occuper dans toutes les
 É branches de l'activité française des places émi-
 | 1 nentes, qui leur reprochent aussi de se tenir à
@@ -772,10 +672,6 @@ Dr de Lévy... Lisez les avis mondains du Gaulois, du "
 54 Figaro, de l'Écho de Paris : vous y trouverez les î
 Litres les plus éclatants de la vieille noblesse fran-
 
-Ron “1
-+ OEM 7.
-LL : ; 288
-: JUIFS
 | çaise accolés aux blasons les plus hétéroclites de ù
 _ l'étranger. On parle très haut de sang français, de
 race pure, et, parmi les plus acharnés nationalistes,
@@ -830,7 +726,6 @@ Français qu'eux. Remarquez même que les habi- tants des villes sont certaineme
 | montrent, dans l'ardeur de la dispute, les plus injustes et les plus acharnés, et que c'est eux préci- à sément que le doute rendrait plus circonspects s'ils
 + songeaient un seul instant combien leur « natio-
 
-F JUIFS
 | nalité » est précaire, étant le produit d'éléments
 _ hétérogènes que le hasard de la vie sociale a accouplés sans se demander d'où ils venaient...
 Sans doute, il y a centans, les Juifs ne comptaient
@@ -856,7 +751,6 @@ k. au monde et qu'elle marche à l'avant-garde de
 x si la démocratie française, au milieu des parfums
 4 de gloriole dont on l'encense, vient faire comme un
 
-Georges Delahache
 | reproche de cette émancipation généreuse à ceux
 mêmes qu'elle a affranchis.
 I1 semblerait, d'après les discours et les actes de
@@ -880,11 +774,9 @@ contre lui, celui-là a quelque chance d'être aussi L
 ! Français qu'homme de France. J'imagine, après
 6 tout, que les royalistes, qui forment une moitié È
 
-t ÿ JUIFS
 du nationalisme militant, ne vont pas jusqu'à
 renier le cardinal Giulio Mazarini, et que les impérialistes qui en forment l'autre moitié ne refusent
 pas la qualité de Français au lieutenant d'artillerie
-Napoleone Buonaparte…
 
 L'illustre compositeur à propos duquel on a usé
 les épithètes les plus « françaises », esprit mousseux
@@ -949,10 +841,8 @@ Car c'est une observation qui n'a pas été faite : ces
 Juifs qu'on vilipende représentaient un peu parmi
 ; nous cet esprit anglo-saxon qu'on exalte. Et M. Jules
 | Lemaître, qui a « lancé » le livre de Demolins et le
--_ comité Bonvalot, M. Jules Lemaître n'y voit rien!
 Les Juifs de France, dont le sens naturel s'avivait
 ; encore sous les piqûres d'épingle de l'injure quoti- s
-Georges, Delahache À
 dienne, devaient souffrir péniblement de tant
 d'inconséquences. Mais c'était pour eux autre
 chose qu'une souffrance intellectuelle et théorique
@@ -976,7 +866,6 @@ d'âme de nos concitoyens perdus, à mettre en scène
 _ quatre personnages importants de petite ville (x), À
 (1) J.-J. Weiss, Au Pays du Rhin, Charpentier, 1886.
 
-e _ JUIFS
 | qui, réunis au frais dans le jardin de la brasserie,
 bavardent en vidant des chopes. Le notaire, fils de
 l'ancien juge de paix, n'aime pas les Allemands,
@@ -1005,7 +894,6 @@ baïssant la voix, il s'exprima de la sorte : « Et moi,
 « France! Vous m'amusez, monsieur Mathias, avec
 | « la justice du juge de paix, C'est une politique
 
-Georges Delahache
 « qu'ils ont pour nous amadouer.. J'ai trimé long-
 « temps; j'ai maintenant du bien; je voudrais faire
 « quelque chose de mes fils... Comment? Si mon
@@ -1029,11 +917,9 @@ Georges Delahache
 « pour aller travailler à Nancy, à Épinal, à Paris. —
 « Eh bien! après? Ces jeunes gens font bien de
 « s'en aller... A Paris, le Juif est l'égal de tout le
-- « monde... »
 5 Et en fait, je sais de ces Israélites d'Alsace des
 t traits de délicatesse patriotique et de fidélité tenace
 
-2 JUIFS
 qui mériteraient d'être contés. Et je sais quelle
 amertume les vieux sentent remonter au cœur
 quand ils repassent aujourd'hui, aux vacances, la
@@ -1065,8 +951,6 @@ k constituées un peu partout après la guerre, et demandez à Dérou-
 * lède s'ils ne s'étaient pas enrôlés en foule, lors de la fondation, dans
 sa Ligue des Patrioles.
 
-a ; M
-. L: . À er
 | Georges Delahache Q
 
 s des raisons analogues et avec autant de sincérité.
@@ -1101,8 +985,6 @@ ne loyaux, ils se donnèrent corps et âme à leur nou- ‘4
 4 À sorte d'amertume à l'égard des frères d'autrefois qui
 n'avaient plus voulu d'eux, et peut-être un âpre
 
-SE JUIFS
-
 désir, très humain, de mettre en valeur avec plus
 d'énergie chaque jour toutes leurs qualités
 d'hommes et de citoyens, pour provoquer chez leurs
@@ -1128,7 +1010,6 @@ que les massacreurs des tramways d'Alger...
 J'ai pu montrer que la « suprématie des Juifs »
 n'est qu'un mot, qu'on exagère en parlant de leur $
 
-Georges Delahache È
 solidarité, qu'on calomnie en niant leur patriotisme, — et je n'ai peut-être convaincu personne,
 j'entends de ceux qui ont une opinion contraire.
 Même si leur conviction est ébranlée par ces raisonnements, nos adversaires n'acquiesceront que
@@ -1153,7 +1034,6 @@ L une vieille discipline intellectuelle, morale et
 a sociale, contre celui qui, plus indépendant, plus
 É. ‘capable d'initiative et d'énergie, plus désireux
 
-AS JUIFS
 d'arriver à quelque chose sur cette terre, cherche à
 « réussir » avec plus de persévérance et d'ingéniosité ; la haine aussi de celui qui mène péniblement
 une vie médiocre contre un groupe d'hommes, dont
@@ -1176,7 +1056,6 @@ Augustin Thierry, Taine, Michelet l'ont répété
 en ce pays plus peut-être qu'en tout autre subsiste
 l'antagonisme entre les conquérants et les conquis,
 
-_ Georges Delahache
 entre les seigneurs qui pendant des siècles furent
 1 les maîtres, et les humbles qui pendant des siècles
 ne vécurent que par et pour les seigneurs. Brisés ,
@@ -1204,8 +1083,6 @@ rois », l'éclat du titre ne leur assurent plus qu'une
 + supériorité très vaine et très illusoire. Ils étaient les
 35 premiers jadis, même pauvres; aujourd'hui, même
 " riches, ils ne sont plus les premiers de droit. Dans
-à | go
-1 5 |
 _ la vie ordinaire, les nécessités politiques et sociales,
 … les relations mondaines, la communauté des habi_ tudes et des opinions, ont pu, entre catholiques,
 _ atténuer certaines aversions — quoique le feu couve
@@ -1231,7 +1108,6 @@ k. siècles inculqua la nécessité aux âmes des fidèles,
 traduisant ainsi dans le langage social l'idée sublime
 Ë de résignation pour en faire un procédé très pratique de gouvernement. Enfin l'antisémitisme con-
 
-Georges Delahache
 stituait pour eux un moyen facile de se refaire une
 vertu en rejetant sur un bouc émissaire la responsabilité de tous les crimes et de toutes les hontes,
 de diminuer leur impopularité en spéculant sur celle
@@ -1257,9 +1133,7 @@ louis par mois. Et si l'on a été obligé, pour subsis-
 k. mais qui n'était pour rien dans la débâcle, une
 À chasse, un domaine, des collections précieuses,
 
-E JUIFS
 avouez que l'injure est trop tentante, et qu'il faudrait, pour observer la dignité du silence, une trop
-belle âme.
 
 " Voilà par quel processus psychologique et quelles
 modifications sociales les « aristocrates » ont été
@@ -1284,7 +1158,6 @@ une séance d'inspection générale, ce n'était rien
 qu'une mauvaise petite querelle de bureaucrates
 jaloux, — ce n'était que les deux moitiés de la
 
-Georges Delahache
 France qui se détachaient l'une de l'autre, le réveil
 furieux, au grand jour, de deux intérêts et de deux
 esprits éternellement en lutte sourde, et le « beau
@@ -1329,8 +1202,6 @@ Les Juifs sont et demeurent citoyens français.
 ont commis, par le seul fait d'avoir raison, une
 faute qu'on ne pardonne jamais; qu'ils ne peuvent
 pas plus compter qu'auparavant sur l'équité bien- ‘
-ap 4 mr.
-Georges Delahache
 veillante de leurs concitoyens, qu'ils doivent être
 | plus rigoristes envers eux-mêmes que leurs plus
 âpres adversaires, et qu'enfin ils sont condamnés
@@ -1356,7 +1227,6 @@ tenu dans l'humanité? Les Juifs sont les Armé-
 1 Ils représentent, en face de la Force et du Nombre,
 ge l'inéluctable Droit.
 
-L'AFFAIRE HERVÉ
 On peut à présent publier qu'il y a longtemps que
 l'affaire Hervé est finie. Elle est finie du jour où
 M. Gustave Hervé, qui était professeur, mit les pieds
@@ -1371,7 +1241,6 @@ sûreté, quittant la séance, rencontra M. Gustave Téry.
 — Eh bien il est condamné, et vous pouvez vous .
 vanter d'y avoir contribué pour beaucoup.
 — Tant mieux, répondit Téry, c'est ce que nous
-voulions.
 | Puisque nos États-Majors continuent à nous faire ù
 battre d'un cœur léger, puisque dans cette affaire, où
 à tant et de si grosses libertés se jouaient, M. Gustave
@@ -1382,10 +1251,6 @@ demanderons le compte qu'il nous doit. Quand la
 $ nous dirons tout ce que nous savons de l'affaire Téry.
 Nous publions ci-après les articles de Hervé qui nous
 restaient sur le marbre.
-
-“ + : É E + D: é à
-GusTAVE HERVÉ
-ÿ A BAS LA GUERRE
 
 Une délégation d'ouvriers anglais, représentant
 plusieurs centaines de syndicats et de coopératives,
@@ -1426,15 +1291,12 @@ e Un jour viendra où quand des troupes de soudards à è partiront pour aller �
 
 . à de fer, jusque sur le quai du port d'embarquement, les à travailleurs organisés et conscients leur crieront à la
 
-Re NOS INTÉRÊTS EN CHINE
 _ face: « A bas la guerre! Vivent les Chinois! Vivent les
-S Boers ! »
 F Un jour viendra où les travailleurs, au lieu de faire
 | seulement la grève pour défendre leurs salaires, la proclameront pour entraver le départ de ces expéditions
 de flibustiers, et où les chauffeurs et mécaniciens des
 à paquebots refuseront de conduire sur les champs de
 bataille asiatiques ou africains cette triste chair à
-canon.
 Un jour viendra où, à la menace d'une déclaration de
 - guerre en Europe, dans tous les pays le prolétariat se
 dressera et criera à la face de ses maîtres : « Si vous
@@ -1448,18 +1310,13 @@ Et quand ce jour arrivera-t-il ?
 Il arrivera, prolétaires des champs et des villes,
 quand vous le voudrez, quand une minorité énergique c
 se trouvera parmi vous qui le voudra résolument.
-NOS INTÉRÊTS EN CHINE
 Ouvrier français, les journaux et les gens bien pen- é
-sants te diront
 | — Allons en Chine; obligeons les Chinois à nous
 ji - laisser construire chez eux des voies ferrées, et exploi- À
 { ter leurs mines. Plus nous introduirons en Chine de à
 | matériel de chemins de fer, plus nous importerons de
 . rails, de locomotives, de machines de toutes sortes,
 
-MR ; ; RO ES
-+ ls , “ = à
-RS Gustave Hervé
 ; plus tu auras de travail à l'usine, plus tes salaires s'élèveront.
 1 Et moi je te dis
 | — Il y a là-bas, en Chine, 400 millions d'habitants
@@ -1475,7 +1332,6 @@ s les chômages commenceront pour toi et les maigres
 | salaires. Ouvrier français, veux-tu que la France fasse
 | la guerre aux Chinois ?
 5 Paysan français, les journaux et les gens bien pen-
-; sants te diront
 | — C'est ton intérêt aussi que la France se crée des
 # débouchés en Chine; plus les gros financiers français
 n et les gros manufacturiers français seront riches, plus
@@ -1491,8 +1347,6 @@ x - toi : toutes les guerres coûtent cher, toutes finissent
 rx trouves-tu pas déjà assez chargé? Paysan français,
 5 veux-tu que la France fasse la guerre aux Chinois ?
 
-72, En” 2-
-
 # EMBARQUEMENT POUR LA CHINE
 En Ouvrier français, paysan français, les journaux et les
 gens bien pensants te diront
@@ -1500,7 +1354,6 @@ gens bien pensants te diront
 se désintéresser de la question de Chine; si les autres
 s'agrandissent là-bas, elle doit aussi réclamer sa part;
 la France doit tenir son rang dans le monde : noblesse
-oblige.
 Et moi je vous dis : À
 — Quand les troupes européennes auront vaincu les
 Chinois, les gouvernements anglais, russe, allemand,
@@ -1511,7 +1364,6 @@ sûrs, peut-être bientôt, ces affaires de Chine amèneront
 de terribles guerres en Europe, et c'est vous qui, à votre
 tour, serez conduits à la boucherie? Ouvrier français,
 paysan français, voulez-vous que la France fasse la
-guerre aux Chinois ?
 Donc, dimanche, on embarquait à Marseille de la
 chair à canon pour l'abattoir chinois. Ils étaient là
 quatre cents malheureux à qui, dès leur bas âge, dès
@@ -1552,12 +1404,8 @@ D. exemplaire. » Seul, au milieu de tous ces égarés,le
 FX à maire socialiste de Marseille, le citoyen Flaissières, est
 +10 venu faire entendre quelques paroles de vérité et d'huP à manité, mais avec quelle discrétion et quelle timidité
 Dur encore! , +4
-: Dr & 4 V
-
-à EMBARQUEMENT POUR LA CHINE e
 
 Avec la candeur immense et la grosse naïveté que nos
-lecteurs doivent commencer à me connaître, j'avais
 | rêvé autre chose, j'avais rêvé, dans la bouche du premier magistrat de la République française, un langage
 autre que celui de l'empereur allemand. J'avais rêvé
 _ qu'il tiendrait aux troupes à peu près celangage: « Mes
@@ -1590,8 +1438,6 @@ qui nous avons de graves torts. »
 A défaut du chef attitré de la bourgeoisie, je rêvais
 que ce serait le maire de Marseille, l'élu du parti socia-
 
-Jeupe ? “: Re. À, SR
-, TURN,
 | Gustave Hervé
 liste, qui donnerait à la France et au monde entier une
 | grande leçon de morale internationale. Je rêévais qu'il
@@ -1612,7 +1458,6 @@ lequel de vos camarades en grève.
 s paraître dans le cortège officiel.
 | « Elle invite les socialistes marseillais à crier sur le
 F5 passage des soudards : « Vivent les Chinois ! A bas la
-« guerre ! »
 | Hélas! ce n'était que desrêves ! J'oubliais que M. Flais-
 | sières, qui est un homme arrivé, devait parler et agir
 $ avec toute la réserve et toute la prudence des gens
@@ -1624,9 +1469,6 @@ J à Marseille que pour leur faire sa cour, pour obtenir du
 =) baron Christiani qu'il respecte désormais son chapeau,
 Xe pour obtenir surtout des officiers de Montélimar qu'ils
 3 ne recommencent pas à pisser en corps contre sa
-! 4 maison.
-
-AU CONSEIL GÉNÉRAL DE L'YONNE
 
 Notre Conseil général est composé de radicaux pour
 qui toute la question sociale se confond avec la question cléricale. Un radical, par le temps qui court, c'est
@@ -1652,7 +1494,6 @@ très braves gens et des gens très braves que je respecte
 malgré leur crédulité, aillent dans les pays lointains à À
 leur corps défendant. Ils prétendent — et beaucoup
 
-3 Gustave Hervé LR,
 disent vrai — qu'ils ne craignent pas le martyre: si
 dans leur apostolat ils le rencontrent, eh bien! qu'ils
 & aillent au ciel tout droit, nous n'y voyons aucun inconko vénient, mais de grâce, qu'ils meurent en paix et ne
@@ -1673,7 +1514,6 @@ __ parfois martyrisés, sans que jamais l'ancienne monar-
 LA que c'est en notre siècle d'incrédulité croissante que les ns. gouvernements modernes auraient volé au secours des
 
 # pauvres martyrs! Allons donc! c'est une mauvaise
-plaisanterie.
 
 # La protection des missionnaires n'a été pour eux
 
@@ -1689,10 +1529,6 @@ plaisanterie.
 à nos maîtres des débouchés lointains pour leurs pro- à
 
 ‘LE duits manufacturés, créés à vil prix par le machinisme
-. 56 è
-
-[ L 4 .
-: AU CONSEIL GÉNÉRAL DE L'YONNE
 
 - moderne; il leur faut de la matière première à vil prix
 pour fabriquer à bon marché et soutenir la concurrence
@@ -1759,8 +1595,6 @@ Ch. à Pékin l'expression de son affection et de son admi-
 
 LE ration. Pouah!
 
-CA A QUOI SERVENT LES ARMÉES PERMANENTES
-
 Fr Nous connaissions déjà bien des façons d'employer
 
 #4 l'armée
@@ -1772,7 +1606,6 @@ te leur voler leur pays, quand ils ont besoin de se créer
 N. de nouveaux débouchés ou de nouveaux marchés pour
 TE leur commerce
 
-A QUOI SERVENT LES ARMÉES PERMANENTES
 Nous connaïissions l'armée, école de discipline et
 . d'abrutissement, étouffant l'esprit d'initiative, de libre
 examen et de révolte par une discipline de fer et des
@@ -1799,8 +1632,6 @@ _ mieux que ne l'ont fait nos professionnels en 1814,
 en 1815, en 1870, mais impossibles à utiliser contre les
 travailleurs, soit pour les fusiller, soit pour les affamer ?
 
-DEUX CAS DE REFUS DE SERVICE MILITAIRE
-EN HOLLANDE ..
 Le journal anarchiste Les Temps Nouveaux conte
 à l'histoire de deux conscrits hollandais qui refusèrent
 d'entrer à la caserne et de servir la patrie.
@@ -1854,8 +1685,6 @@ révoltés contre la sottise et l'iniquité de l'organisation
 actuelle, et qui croient, comme les socialistes, que le
 vrai remède à la douleur ou à la gène presque universelle, c'est une organisation nouvelle du travail qui
 
-Fe - Cor AOL ||. #ÉR
-£ Gustave Hervé : à
 mettrait le capital-terre, le capital-machines, et, en un
 f mot, tous les instruments de travail aux mains des proË ducteurs associés ; mais à la différence des socialistes
 è proprement dits, ils comptent pour opérer cette révolu-
@@ -1879,13 +1708,11 @@ Se souffert dans leur chair ou dans leur cerveau, des vices
 1" les portes et en brisant les vitres. Mais les procédés
 L terroristes ne sont pas spéciaux aux anarchistes : tous
 . les partis, les catholiques, les royalistes, les républicains ont eu des exaltés qui y ont eu recours à l'occa-
-“ sion,
 = . Ce qui est propre à l'anarchie, c'est la confiance
 : qu'ont ses adeptes dans l'action individuelle, c'est leur
 * passion à conformer leurs actes à leur idéal : « N'atten-
 , dez pas votre salut, disent les théoriciens de l'anarchie,
 
-DEUX CAS DE REFUS DE SERVICE MILITAIRE
 ni d'un tribun éloquent, ni d'un politique habile, ni d'un $
 Parlement; le salut est en vous. » Dans ce journal-ci,
 qui n'est pas anarchiste, je ne crains pas de dire que
@@ -1914,7 +1741,6 @@ antimilitaristes en vue d'un mouvement d'ensemble; À
 enfin, à donner de tels conseils, on risque le bagne,
 dans la République française, et je désire y aller le plus
 tard possible. C'est le souhait que je me suis présenté re bn: HS t has as "4
-M = . Gustave Herpé” #17"
 15 à moi-même le premier janvier dernier, de bon matin,
 
 2 $ avant d'aller présenter mes vœux aux amis.
@@ -1933,16 +1759,11 @@ $ < à la face de la bourgeoisie, -que loin de le renier, nous
 Es socialiste, et que son acte sublime exprime exactement
 les sentiments que tous les vrais socialistes professent
 te pour les patries actuelles.
-5 Ux SANs-PATRIE
 
 LS Ces articles donnent exactement la mesure de ce que
 faisait Hervé quand il travaillait dans l'Yonne. nl
 
-AS E.
-
-dur s
 16e Un professeur dans une école normale primaire du
-me . 0 2 Q , Q D
 
 _ Sud-Ouest nous écrivait récemment qu'il ne s'abonnerait
 +: _ pas à la troisième série de nos cahiers parce que ces
@@ -1954,9 +1775,7 @@ M. Charles Guieysse au commencement de l'année
 CS scolaire et que lui-même a fort libéralement publiée _
 
 _ dans “ Pages libres ”.
-Re. |
 Cahiers de la Quinzaine, 8, rue de la Sorbonne
-Samedi 12 octobre 1901
 Mon cher Guieysse £
 : Nous avons des abonnés communs. L'un d'eux hésite
 à s'abonner à la troisième série des cahiers, qu'il aime ;
@@ -1972,7 +1791,6 @@ Est-ce une raison pour qu'il interrompe un abonne- *
 _ ment commencé au cours de la deuxième série? J'ai
 peur qu'il ne s'abuse, comme la plupart de nos amis
 communs, sur l'extension possible de la véritable
-: propagande.
 Que dans un petit village il y ait un homme à qui les
 cahiers profitent, c'est un résultat que ma modestie
 trouve déjà considérable. Et s'il y avait beaucoup de
@@ -1980,7 +1798,6 @@ _ villages où les cahiers profiteraient même à un seul
 - homme, un tel résultat passerait nos espérances
 4 d'aujourd'hui. Enfin si nos cahiers étaient brusque-
 - ment lus dans tous les villages de France, nous com_ mencerions à nous méfier, nous serions les premiers à
-6 IV.
 | Charles Péguy
 nous méfier, parce que ce serait sans doute que nous
 aurions dit des bêtises. Et non seulement nous aurions
@@ -2001,7 +1818,6 @@ former un seul esprit dans le monde est un résultat
 D capitalistes d'esprits et de consciences. Nous ne sommes
 pas des grands propriétaires d'hommes. Sachons procéder par élaboration laborieusement lente. Sachons
 nous adresser aux esprits individuels, aux consciences
-personnelles. Soyons modestes.
 ; Notre abonné commun ne peut donner ses cahiers
 "WA à lire aux paysans. D'abord il peut, il doit leur donner
 à lire le Jean Coste. I-a pu leur donner à lire les
@@ -2014,7 +1830,6 @@ beaucoup. Il peut leur donner à lire nos Mémoires et
 sais qu'en effet la plupart de nos cahiers ne lui servent
 k qu'à lui, en ce sens que seul dans son village il peut
 
-LETTRE À M. CHARLES GUIEYSSE
 les lire. Et je maintiens que ces cahiers à extension
 limitée ne sont pas moins indispensables.
 S Quand un instituteur a mis son brevet supérieur par
@@ -2047,10 +1862,6 @@ ne puisse pas échapper aux lois générales de l'esprit,
 c'est bien cet enseignement dont la matière est la
 variable humanité. Qu'un professeur de mathématiques
 
-RS RG Ne
-
-À * = * +: FT CPP ct al
-Fe Charles Péguy #4
 Es se tienne assez mal au courant, c'est moins grave. Fe
 
 | Mais qu'un instituteur d'action ne se renouvelle pas
@@ -2085,7 +1896,6 @@ L M. Gustave Lanson ne parlerait de Corneille, ni M. Ga-
 L 2e dans n'importe quelle Université populaire, sans y avoir
 1 ‘4 pensé. Nous savons tous comme est désagréable, dans
 
-PAU LETTRE A M. CHARLES GUIEYSSE
 une leçon qu'on écoute, la lecture de vieilles notes, et
 comme elles y font l'effet d'un poids mort.
 La réparation organique, la reconstitution mentale
@@ -2117,7 +1927,6 @@ je vous le dirai en route. Ce qu'il y a d'urgent, c'est
 de prendre son temps, c'est de ne pas bafouiller, de
 _ réfléchir, de penser, de voir, de prévoir. Ce qu'ily a
 
-Charles Péguy « E
 d'urgent, c'est de faire une heure de métaphysique et
 deux heures de morale par semaine. C'est de faire des
 retraites sur soi-même, avant et après de parler aux
@@ -2151,7 +1960,6 @@ DB Monod avec lenteur et gravité, M. Duclaux, s'il parle
 
 -
 
-LETTRE À M. CHARLES GUIEYSSE À
 un peu vite, c'est son débit naturel, et non pour se
 . dispenser de penser à ce qu'il dit.
 
@@ -2185,7 +1993,6 @@ en son esprit des connaissances d'art, de philosophie ou
 de science, et qu'on les transvase, toutes crues, dans
 l'esprit du paysan. Ni les opérations de la vie corporelle, ni à plus forte raison les opérations de la vie
 mentale ne sont aussi grossières. Un élément reçu ne agi f “4 ver ro ÉPREUVE ES
-: Charles Péguy : 2° RCE
 ressortira que dans quinze ans, et quand il ressortira,
 qui le reconnaîtrait? L'esprit l'a décanté, analysé, com-
 : posé, travaillé, filtré, parce que l'esprit vit.
@@ -2195,10 +2002,8 @@ faits pour traiter, autant qu'on traite les questions.
 Mais nous serions peinés, vous et nous, que l'entente
 amicale si heureusement instituée entre nos deux
 administrations n'eût pas comme un reflet parmi nos
-amis communs.
 Je demeure
 , : Votre abonné
-4 CuarLes PÉGUY À
 : Nous publierons dans un prochain cahier la réponse
 L ouverte que j'ai reçue de M. Gharles Guieysse à la
 3 » distinction que j'ai reconnue entre l'enseignement
@@ -2209,7 +2014,6 @@ Es. à Iasnaia Poliana. Cette photographie a été prise par
 Ë *. une des filles de Tolstoi. Elle a été communiquée à
 4 Deshairs par le docteur Schlepianoff. Nous l'avons fait —
 ‘4 reproduire à trois cents exemplaires. Nous la vendons
-‘4 * deux francs.
 Lu Nous publierons bientôt une lettre inédite de Tolstoi,
 Fe. adressée à Romain Rolland.
 ? x Le Gérant : CnanLes Péouy J

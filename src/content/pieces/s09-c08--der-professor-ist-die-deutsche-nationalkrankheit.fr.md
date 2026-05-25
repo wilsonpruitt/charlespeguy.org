@@ -7,52 +7,21 @@ author: gaston-raphael
 isAvertissement: false
 wordCount: 30096
 ---
-
-M D M No cure
 F' : + ets MTL rot De AE +, L re \E:
 rs Los FRERE LR Que Re re. 27 led
 4 ENCRES REA RS TR LE ne RAT MAT NES ETC
-(RER ALERTE VAT DM CT re VIS D 3 EE
 A PP Ne NA Sen VUS RE re, PA »
 #  FXDÉ Te Re 47 / we LT Me TUE Rp MEL LE
-Ju 2 TE ISERE ES DR ÉORAARE PE TS SAN
-À 12  æ ; À PAC SE + LA 11 ts 7
-Fr 4 0er er 4 ‘ + AA
 À Me je MASSE <
-RM IS 0 à * Re AE RUE NU
-CE V4 ENTRE
-44 76H es A x
-6: ar | L < A4
-Fe AIDES RUES
-LR ERA Fes Fe 4
-LENEA CELUI
-ARMES LT
-Ÿ F3 LA: UP AE
-RMERPINE" HALEINE
-; dt se à ' ù À PHP
-NE, ‘ nee ,: CAES
-+] RÉAL [se
 va À De LA
 TRE à FAR de
-128 A à k NATÉ..
-MOTOR Ars MER.
-‘ RC res A 12°
-GS qe
-+ « et EN, 3 j de 4 */ CIE
-lp RTE à es PULL NCLS
 Nr ts L
-; RS PASSE EE
 LE TAN ex 7 EHESS
-Re en: à AL 5 PER 4
-1! ÈS NE RATE H ui :
-Me 5: LAURE
-TA TA 4 ER ELERSS
 
 Dans les vingt cahiers de leur cinquième série, année ‘à
 scolaire 1903-1904, nos cahiers ont publié :- |
 V-1. — HENRI DAGAN. — les massacres de Kichinef. 2 »
 V-o. — Pauz Duruy.— la vie d'Évariste Galois .. 2 » Ÿ
-V-3. — le monument de Renan................... 2 »
 V-4. — Romain RozLanD. — Le Théâtre du Peuple. 3 50 Rs)
 V-5. — GEORGES CLEMENCEAU. — Discours pour la
 hberte: #55. Ne laure PU TRE NES
@@ -60,102 +29,44 @@ V-6. — DANIEL HALÉvy. — Histoire de quatre ans,
 ; V-7. — Henri Michel.— Notes sur la Hollande et sur L
 l'intimité. — Henri Lebeau, Jérôme et Jean Tharaud.—
 Moines'de V'ALROS 552.10. LR RER EME EEE :
-V-8. — Dr. KarzL BRUNNEMANN. — Maximilien RoDespierre..::12 007. De EE UD
 V-9.— Romain RoLLanp. — Jean-Christophe. — CRT Ca
-la seule édition complète. — I. —l'aube.............. 350 4
 V-10. — RomaIN RoLLAND. — Jean-Ghristophe. — *
 la seule édition complète. — II. — le matin......... 3 50 4
 + V-11. — M.M.MaAnGAsARIAN. — Le monde sans Dieu 2 » Sail
-V19. — petites garnisonS..... 6 2 CU en | É
-V-13. — GABRIEL TRARIEUX. — Hypatie............. 3 » 43
-V-14. — Jossen Bépier. — Gaston Paris........,.. 2 » sa
 V-15. — Émrze Mosezcy. — Jean des Brebis ou le Fa
-: livre de la misère........203. NIMES E : 18
 V-16. — le congrès de Dresde, — édition GASTON . Rte
 RAPHAËL . . 2.0/0 ce nue Ste MC RE ME)
 V-17. — FRANÇOIS PorRcHÉ. — à chaque jour....... 2 » ae
 V-18. — Lours MéÉnaRD ». — Prologue d'une Révo- TEA
-lution: 2:21 NES TR NE : %
 V-19. — JÉRÔME ET JEAN THARAUD.— les hobereaux 1 » À
-V-20. — oongrès des U. P. mai 1904..:..........: 2 » “5
-BA Cu
 Voir à l'intérieur en fin de ce cahier les conditions $ 4
 et le prix de l'abonnement. A
 Nous mettons le présent cahier dans le commerce; |
 septième cahier de la neuvième série; un cahier vert NIK
 de 120 pages; in-18 grand jésus; nous le vendons SE
-deux francs. ROME D
-Fe Lhtee ge Top
 
-: HUITIÈME CAHIER DE LA NEUVIÈME SÉRIE
-GASTON RAPHAËL |
-der Professor
-ist die deutsche
-Nationalkrankheït
-EINE ART
-VON BETHLEMITISCHEM
-KINDERMORD
-CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-- PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 REP ie” TS Dee à REA DTA DA CES QE ER PPS OLA Pr MRAExE Ÿ
-RAA PREND A RS PR ee &s
 Se M A EEE DEN Ne E Ml ae LAN RENE Le
 Ca SA RL A SERRE FORMES res
-ps Le 5 27 OA CNE AR ES
-PU Me Hi
 ne ÉRREece
-$ HER Eu ARE EN El Î
-AU NS Epeer ; , ù 2e) HER VO SAN 4
-VEtrS 5 RP » PRES Nr
 ui à « à Ni A ru Les
-, de À b > L'ANETL ER
 ne L DAS sa | 7 RO
-3 ? W LT LE RATS RERO De » _ ë. Ps DEAR E 207 ca 5 LR LR à
 ne PRE AIRE TAPORES
-gi à x LAS TEE
-G pes 3 C G DA SEE AE MES &
-F4 SNEEPE ra 0e x AP RES CCERS 4
 
-A DR RD MC | AA ee PE
-A A Ne MORE
 ; A NOR 1 cure PARUS: NAME Te NE TE LEE | ER le GS EUR CA
 WC te ET OCR ND SE O0 PE NERNARRE te EG FAQ
 ÿ A CAT A PA AS Re et NT CP Ce Ge AT
 Aer Ft Qt. 0 TRANS Et Eros Len ERP) AT AVES ER IT ER HE)  { %
 SUIS ARTS di (ads ue AU dat FL RS s AU NE Fe CR A RATE y
-A A ME NO EE PA OUEN Leg CESR TRES RESTE
-A RON RO OMC PT TAN VE
 FREE CET NAS Ch) y Tu, b LOT te ie SERRES
 | FIRE ” FANS PAM MERE CE RENAN ÿ, MAUR 1: Le
-LAPFTNRES ANNE A : ; ! q HU TN TTRE
-2 RET SEEN sai AAA ; à Ke ONU 1 TRE
-0 sé
 li ne : .LYRNIESENS AL? / - 1ÿ e 17
-072, MONOORE NON a.
-: si bre re y “ er 130 “+ | À:
-Re A (ai MAR | ATEN "IAE
-Ds nr, SALUE.
 L CET AS oo AS w rs , . L
-gel "ATEN 163 SAN OR RSA T PC
 sa RL D nee SUPORRES TIRE $ } LA er
-at PT RATE PÈRE : 11 6
-Es cl 42 D ER LES NAME) TOR { EP
 | AVE ER # Ü ED HR PAS TRS ; FO À { ,
-:: FORM TISERRS « '# t52 NS TRE MR : F pes « Œ "INTER WA FE RE Re LS An 1 LENS
-AL TEE re t
-MACON + ARS CR DIRES LA CAST TER ERNST EN N à l L AXE
-k 3 ARTS io. 1. TO SN ; \ ms. Mr 7
-7 LR ENERS NE a ES L g L l Ent 4
-\ ASPIRE 4 TELE . ‘ LT 1 PONS
-DR (EE A SE PAT 4 1N} 4€ LIEN .
-RP NT A Le à . VW VAR
-(ALTO FAUNE ET À APN DEV AR . Ÿ L Te
-EN NS ; PANNE EE |" vi eu ke th
-HR fo , FM 4 Hi 4 F1 Du & + V4 RG À.
-"tr rer "1 4 4. n EF dd
 
 Nous avons publié dans nos éditions antérieures et
 dans nos cinq premières séries, 1900-190f, un si
@@ -179,8 +90,6 @@ sommaire, 1900-1904, de nos cinq premières séries.
 Ce catalogue a été justement établi pour donner,
 autant qu'il se pouvait, une image en bref, un raccourci,
 
-2 *
-
 ce ù une idée, abrégée, mais complète, de nos éditions anté-
 _ rieures et de nos cinq premières séries ; tout y est classé
 dans l'ordre; il suffit de le lire pour trouver, à leur
@@ -194,48 +103,25 @@ _ 2 octobre 1904, comme premier cahier de la sixième
 s'abonnait rétrospectivement à la sixième série le recevait, par le fait même de son abonnement, en tête de la i
 \ série; nous l'envoyons contre un mandat de cinq francs à
 à toute personne qui nous en fait la demande.
-NE
 
-SIG A AN
-+ PU Pa ARS AN HA
-eh US oies NAN gr AAENTEU PAU
-ARS AT Hu At Re DA nb ANA AR
 CA CU AT PA A LA RE ct ANNE CA AUTRE |
-LU Ne RATE AU EN LA ( ) ie
 | MEME ar RAM HOT LATE he RUN Ko M OP AE NS HUFE GAS EN (4 Fa |
-(HSE AY ENT APN) A te AUS K no RAA YA ra di; 2
-DAT PA ALAN EN CRCAUTER RAY MAD NU #1 AR RUN AT RAS He) ij, nt “1
 21 UE TA AMEN Pr al Nat it, “ty
-FN AY PATATE NARNIA TE RARES gi EL 4. ï ae is
-. | LA Li
-Up RE AO ANS AV PRE HA PQ 1 : 1 ne : .
-FN 3 DEN DA Fans CPE van As
 Heat } HS « ! 0e de EN SUR LAS THRRe Aa a MS 0
 vue ER : LA AI 4 PEU rte Li HE 4 s PCA ju TA À se 4 Me o F4 Le |
-AE Ut D LEA LU AAA HAN AA LAN
-1 Pt Lo Ro HA CRUE PU mi AE û EAU M
 | A au 4 AN Fo LA PQ VAR HUE EAU FA ne AA non: é
 fr pus VAUT ne k Ag RANCE fl | FND | NES PACS 0
 EU ADS Lo , CAN AC IAE Wa Met st LAN ET MAR EN A MINE "1200
-dt dre * TRS RNERT ES Eat ANNEE Las He 1e NAN 1
-non GRR NA FRANS 16. 0 late : 5
 100 : FA tn RER NUS a Fils HGU ke NOR, LU AU A |; ME PAS
 AT ENT un État AE y
-he EN 1 Re nn Denon #
 LISA, ds a tt A CUS L'ENNS Ÿ
 
-$ ER MTL LR Ci EU {
-PAM TE TC ARRINES
 : AS aux Cahiers de la Quinzaine
-À ,
 4 ; Le présent petit index donne automati-
 “1 quement pour tout volume et pour tout ;
-m1) er cahier indiqué :
-ie
 y a) le numéro d'ordre de ce cahier dans
 Hat le classement général de nos collections
 Eh complètes, le numéro d'ordre de la série
-AE étant naturellement composé en grandes
 capitales de romain et le numéro d'ordre
 — du cahier lui-même, dans la série ainsi
 déterminée, en chiffres arabes, de sorte *
@@ -248,86 +134,38 @@ ne défaut, la date du cahier même;
 Le c) le prix actuel;
 ER é d) quand il y a lieu, c'est-à-dire pour nos
 LU > éditions antérieures et pour nos cinq preEME: mières séries, la page du catalogue anaf $. ytique sommaire où ce cahier se trouve
-(EX AL catalogué.
-œ
 Gaston Raphaël, — le Rhin allemand (IV-19, mardi 26 mai
 je FE — — édition du congrès de Dresde, — textes et docuNE . :
 #4 … ments, — septembre 1903 (V-16, mardi 24 mai 1904........
 ot Le k quatre franes 360
-ww” ES \,
-2 JO D Te ONE
-UN à CR ER
 
 45 AE LOU ARE Ph Je vel Ve Va ME gtx j
-LAN M etre LRRAENT VAE ATEN A Ur Hs 14 I dt ATH NEe ù
-7 A EE UE LU. ARTE UN (Da A LR UE f
 DES 4 MEL RES UE ne ne es (2 Ra vhs
 di ei | OA LCR ANA pe el * MA a
-RAT RAR TEA SELS ETES AN s FE LA DSP) LASAAUNE NA
-AA, 13) LL OR ENets RACINE Os
-NEO pat CAE U PR UEN HT RATE LAS RAA TR
-MEN DNS na } ANUS MAT Ge ANT DA
 ce iii PR n An Rae
-FRE NAME Es NS ar FAN MAN 121) LES 70
-AAA A HER Fin < 4 PAU TN D AE AOR he
 
 SUN a PAR NAg \ S ji HAN DOTE TROUS
-FA nus AN / é } ; RME RAS A NBI JS UN HAL: >
 AA L OPA none RARES PA Ne RER NA QUES
-de RUE) 7 : f 14 4e 14e \ SA ELA ENTRE A
-PTE VS Hi s h { RUE ET à d'eP AE HER CU
-2 Nr UN ROETS KA NES CAT
 
 Non LUE deg MA à; ! Pr 144 DNA RUN FD VE TAN AE ANS
 
 HUE MERE # ne « à HAE EME ar Ne HO M7 ta LA NA LA
-WATER ATOME 140 LAVE AE ARNO ;
 RNÉES NA PaR APE: LT RP RE AA S AAA. “Net pes
-LUN Là (eo El 0 7 SANTE NAT ER LOT EX HOME RE
-A ANT A ATV A 1e OR \
 
-der Professor
-()
-De 0 | Le
-H
-
-A AN ME TEEN rEE RAGE
-LENS D TE QE CADRE VAE NRA ANR
 ARE A EAP A he EE SA MO
 M nt PTT LOIS MAT EMA PAR
 DA MN LITE CE ON SOA RNA AE ANNE ï ja à
 CEE Eur LE LORS te GPS TAN RARE REA 2 Len Ne nn
-AE TS ALAN MM PAIE LA AE CAR SRG HAE UE RAR SEAT à
-AUOT AT ARS AL 41 MORE ARUNAT A NATN EL AT RES UAVE LE a M fie
 4 241 NE ra AU: ASE pare: pue FO
-1 NMENENSEEE ea Pen Aires
 ND ANT A D A ne fé HA A
 #4 (PAT } ANT VASE SES PAC SARS LC ee PERS NULS
 4 SEINE LE ARS HE Vins es
 rues JANEUNR AEMe ui AT ANAL M RENAN ES il AA Gore TR tra (ere pre
-ORNE à HAE AIRES TA ES CAPAULRINA DS AA Cr pe HET
-: | AQU ESA A LINE y HUM AS
-°c Pr NES ALU à | ons Ju NS RUE Fa
-RM Er Reel e MANS Nan AU en 1 DAAONEAN PE
 APTE AN à AU AS ED DA EUR CR ER qe k APTE SE PE DE Ta na it
 NAATNAIU RE MATE 1 LUS un Ne
 
-ist die deutsche
-\ SSOT. — I,
-
-Er rh} po DAV ï 44 /\ 4 dere HAT à VER EIRE Lu ARE He MAN A di À
-‘ OE D pa RCA DA
-put AR WE ST CRAN VE FD D * mr Ant
-. . | SANTE CAVE, et RUE ÉTAT
-see CS TN \} pi OA ANR TPE is
-AE EN . F 38 RE en ans SRI RARE
-RU a VA A ATRE LORS (NE \ CERN PE AE FAT ES en UN 1
 CAPE Si hPa EU : [KA FAN RE DE nn à
-ei y nr aa LUS vi SH MER JAP
-LEN Me LRONAU : J ï VAN NU SET) HN Re
 NEA fr eu 4 M L PA A ARE HERO er he
-3 \ x PAU CRUE ; \ pre en D'ACTE Aa, ‘.
-JUS APTE pet f 4) PAR RE 10) De
 
 HAS se TP CAE l LAURE es OR ANERTNEE :
 
@@ -337,67 +175,31 @@ ar EN Né 4) \ { TEE VU KA ne ta
 
 # HONTE ni [at HUE Ÿ ; MEN A s \l pal ARE
 
-CETTE AA UE M MAS SOA
 + RON PAR ; CEA ni se RO
-[IVe Gi RAA ae TRS TER
-(FA NHRENS Pa pt
 
-TEL
 nn Hire AUS to ne AR
 4 he We H ni DE s'A UHEn peu Qu A Tr fu 404 FA
 Qu: Te A ee Née M kÿ HAS ELLE le LA (è
 ARMES PAS SAN) A A AAA M AN LT EPR A PARU FATIS ur ah AA AUS
-nn We: Ha ride (a RU AE a no) , TE RAR gas AE
-ANT FANS ù , ; HAUT qe Fo, és MU Fab #) Hi Lie à
 VA DR # 1e 7, Us de « AA 2 UE w nt DU | LS A AT de PQ LE MAN jo qui OUR
-HER DNS tel En LIÉE “UM HART AUS 9 HUE JET
 . PANIERS |: f ; ; {Ng 1 Si Data) BV \ HO ARS 4 À LM A NE que
 RE AE PEN AS LME Se A) ne HAS MA
-) Le L À 2 # PnEA ht DA 1/0 VASTE 114 j DONNE
 { SUPUE one , GE: PATUX AT MEL LE « le if SPL On DAT fl AN (Nas ie
-CR "DEEE AU Lo a LEEDS M HV | CA A ATTN VA
-Ÿ CH TP 41 À VA LA Es MAN à (Fete Ua Fe En AH NRA PA M, 00e DA 9 Vs 4
 LA SUR DTA AU ' Rd si + A ne fe
-PAU 16 te RO : HT NA AUS A CP FEU PO a 13
 a BEL UE EPA RE NL AA AE ie AU US sa FE 4
 AT RL DS { NA: 4 7 Ve quart Rare At ; UNE RATES
 LA NA ME * AG x d'a) « il À } FRA À 14 Gun SP pes RAR LR Et / AUS
-k se 4 AE HA 14 FA ELA) NS ht Von nes A A al fil % SAUIL UUN AE }
 
-EINE ART
-VON BETHLEMITISCHEM
-KINDERMORD
-
-NV ART RES NN HQE RONAIMEST OR OMAN AUT AUOT ge RAPAEE AO CIM AU 1x
-AI AAA PAU AE k AURAS 41) ML PA Us) “4 PNR AAA LT
-Qu EE CARS ARE NES D pe EE
-VAR EMMA } (pe SPIP RAR rt te ea
-4 NA ES ee en S { AAA D ORPR AUS PNA x
-PAC FRE ARR AEA PE as NV EE AU
-LE RANCE ME è ÿ 4 " PDA. AOL NC AUS EN
-F RAGE - à PET dE) AS
-JTE fl k HU MOTS RER ATANET RAM A AAMARE
-Le PAU LE PANTIN y ( . Ne IR M SONDE MEET Fu EAP FAREUEE
-
-ie Peut 5 x 4 TAN n'a Nr TENTE I ASE
 LE NA | 4 ) LUN Ent EN PA ee
-SR LTEER 2 NU AN PA! : à ï AE AP aa FAR Tee K
 AH) 4 RTE War Dr ns TNA U SRE EL HNpELS UN TRE
 # Pay 4 à Ki LA AR x 1 éAN SA AAA : (UC RARE Nr
 14 be A id 1 Î L'CUNT ON RAT TPS WE
 LA ET U EAN j A AUX OATPENN Yeti
-, HARAS j Ar | LEMG #4 (eaTN NAN fs AE dt
 
 A NA Deus M Er NN ARE ee "Le
 
 in Past Ps ANS AH PAT NE ART DA VE es NH
 
-NE LENS MAMAN ARE
-
-at tt ICONE EU ES A , "
-1 {ANSE
-RES A C2 #
-L *
 Il y a quelques années parut en Allemagne un livre
 dont le retentissement fut très grand. Ur auteur
 anonyme publia sous le titre de Rembrandt, comme
@@ -411,21 +213,13 @@ bien l'entendre. Il répétait sans cesse son leitmotiv : « Le
 professeur est la maladie nationale de l'Allemagne...
 L'éducation actuelle de la jeunesse allemande est une
 sorte de nouveau massacre <les innocents de Beth- ,
-Jléem. » (1)
 | _Ges avertissements furent entendus. Depuis l'appari-
 . tion du livre les critiques adressées à l'école allemande
 _ se multiplièrent. A vrai dire on en avait toujours fait.
 Car du jour où un esclave instruit, ou bien un professeur, fut chargé de l'éducation d'un enfant, l'enfant et
 | (1) Rembrandt ais Ersieher, page 94. L'ouvrage parut en 1890 sans
 .. nom d'auteur. On apprit depuis qu'il avait été écrit par M. Julius
-Langbehn. Der Professor ist die deutsche Nationalkrankheit… Die
-… jetsige deutsche Jugendersichung ist eine Art von bethlemitischem
-_ Kindermord.
-: } 15
-C0 RER ñ
-EU de 0 à
 
-der Professor ist die deutsche Nationalkrankheit
 ses parents se plaignirent de l'éducateur. L'Allemagne
 ne fit pas exception à cette règle. On pourrait écrire
 l'histoire des critiques adressées à toutes les époques à
@@ -453,17 +247,11 @@ qu'on retire de l'eau les cadavres de malheureux M
 Dans leur haine les adversaires de l'école ne recu- ‘4
 lèrent pas devant les solutions les plus féroces. « Le
 moyen le plus simple et le plus radical serait de ras- ‘4
-(1) F. Paulsen. Väter und Sühne. Deutsche Rundschau. Maï 1907. 14
 Page 235. — Il est à noter que de la traduction allemande du livre M
 d'Ellen Key : Le siècle de l'enfant, qui est une apologie des droits ‘4
 de l'enfant, il a été vendu pius de vingt mille exemplaires en
-4 quelques années. 14
 16 10
 
-b, D /Ub ANR EN
-
-A M LE ne. 4:
-4 LA EINE ART VON BETHLEMITISCHEM KINDERMORD
 MUR sembler tous nos Altphilologen (1) sur quelque mont
 | Carmel pédagogique, et là de les abattre tous comme
 a _ fit Élias des prêtres des dieux morts. » (:) Ou bien, ren-
@@ -495,10 +283,7 @@ ww et latine.
 “is (2) Arthur Bonus. Cité par Münch : Æltern, Lehrer und Schalen.
 | ‘Pages 86,et 87.
 < Fr 6) L. Gurlitt : Der Deutsche und seine Schule. Page 153.
-NCA 17
-NE) Ce,
 
-der Professor ist die deutsche Nationalkrankheit
 pas davantage une attention sérieuse. Mais les exagérations mises à part, un fait important reste acquis : les
 Allemands sont peu satisfaits de l'enseignement donné
 dans leurs écoles. Qu'il s'agisse des écoles primaires ou
@@ -529,98 +314,54 @@ inspiratrice d'un pamphlet ou d'un roman. 4
 Il va de soi aussi que dans la plupart des cas les cri- |
 tiques adressées à l'école s'accompagnent de proposi- hi.
 
-M EN A 4e AR
-ET Es dé EU Te, ”
-URL LACS RHONE à /
-
-_ EINE ART VON BETHLEMITISCHEM KINDERMORD
-ee |
 : | tions positives en vue de créer une organisation meil- LE
-LU ARE D . . # . . « L
 _ leure. Après avoir signalé le mal on indique le remède.
 Chacun arrive en apportant une solution vraie et le
-
-CAE ÿ . » : 4
 
 _ salut, ce qui représente à peu près autant de médecines
 Hess providentielles que d'écrivains. |
 
 _ Nous n'entrerons pas dans le détail des raisons qui
 
-5 ei À “
 | décidèrent chacun des auteurs. Nous laisserons aussi de
 
-2 ee el . . »
 | côté les diverses solutions proposées. Nous voulons seulement noter une heure intéressante et grave dans l'his- |
-EVE FA RTE .,. .
 _ toire de l'école allemande. De toutes ces critiques vigou- :
-F0) ! À . .
 _ reuses nous voulons dégager et reproduire celles qui se
 _ répètent avec le plus de fréquence et semblent résumer
 le plus nettement l'opinion de nombreux Allemands sur
 _ l'école allemande. ;
-OM ï
-Ho
-de * :
-W *
-ERUIN
-td
-Et ne À '
-RARE ‘
 ni
-4 ‘
-
-CR
-
-ot NU j
 
 A YT ne AU
 pe re rl du PRE AEn A EN P IE d
-1e ï À ARE LE LUE tal 04 LAN MAIL à RAT TONI
-MP TR LAON il 4 DE AUTANT ER TANT RESTES PNA LEE EE ‘
 | pis A oo
-D voue 1 ANT
-PAROLE ARE VERS ECO NN GNT TRUE PAT CRIE VRErA TE ia HAS \
 MONS ARR E ÿc AO PA es PAP AR RONA AR ET al AU
-DV! CUT PRE RER PAGE EN AT VER NN EAT DENT ARNENNEN 1 LAN
-MA ALUE \ HA TE NE ORAN OS TRE NT
-M ee Li ‘ASS nus aus ND 4,
 |, NES / RÉ RU LES CAPE CE MH 1 NN NT INTE Le ta
 Lis ri RO RAT PP ON ANT Sr NA LA NNE HPREET HUE DATE
 FUI fin CE (LA SN PAT EN A RM
-
-A AR LUE
-* 4 \
-4 DU
-æ e <
 
 ANA le travail
 La quantité de travail exigée des élèves est considé-
 _ rable. Le nombre d'heures de classes par semaine varie
 entre vingt-cinq et trente-deux. Les matières accessoires
 ne sont pas comprises dans ce chiffre. Cela fait en
-SAINS
 moyenne de cinq à sept heures de classe dans une
 _… journée, abrégées à vrai dire toutes par les récréations
 _ de dix à quinze minutes. Néanmoins les emplois du
 temps exigent une présence effective à l'établissement
 … de quatre ou cinq heures consécutives, les études non
-_ comprises. |
 La répartition de ces heures est moins heureuse:
 qu'on ne l'a parfois prétendu. En principe les classes ont
 lieu de huit à une heure ou de sept heures à midi en
 it été. L'après-midi est réservée aux exercices exigeant un
-_ effort moindre : musique, chant, gymnastique, ete.
 Souvent elle est entièrement libre. Le travail essentiel
 … | est donc fait dans la matinée. Cela ne va point sans in_ convénients : « Que des profanes ou même des méde_ cins affirment mille fois, que l'enseignement de l'aprèsW £ 32 . 2 . L]
 midi reste sans valeur et sans résultats, il était en tout
 "à cas, surtout pour de jeunes élèves, beaucoup moins
 _  antinaturel que cette file bien trop longue des heures de
 14 Ja matinée; qui se termine souvent par des maux de
-Re 21
-Ru: LT À
 
-der Professor ist die deutsche Nationalkrankheit
 tête, des maux de cœur et autres symptômes analogues. » (1)
 
 La succession même des classes ne contribue pas
@@ -650,12 +391,9 @@ de se consacrer à fond à aucun? » (2) NS
 À ce travail de la classe s'ajoute celui de la maison. à
 Il n'est guère possible que tant d'heures de classe ne …
 représentent pas trois ou quatre heures de travail à
-(x) Münch : Æltern, Lehrer und Schulen. Page 48. ;
 
 (2) L. Gurlitt: Der Deutsche und seine Schule. Page 166. ! ?
-É
 
-4 _ EINE ART VON BETHLEMITISCHEM KINDERMORD
 effectuer pour faire les devoirs et apprendre les leçons.
 GR » * qui implique une journée de travail de dix à douze .
 _ heuïes. Est-il nécessaire d'insister sur les effets funestes ;
@@ -667,7 +405,6 @@ grosses lunettes mélancoliques qui écrasent la figure
 _ des enfants et leur donnent un aspect de petits vieux.
 | Et dire que les pédagogues n'ont pu être retenus sur
 cette pente que par les avertissements des hygié-
-nistes !
 Ils n'ont pas vu le double danger que ce travail forcé,
 _ ce travail de coolies, comme disent les Allemands
 aujourd'hui, faisait courir aux études. Est-il possible |
@@ -688,7 +425,6 @@ réservée au travail personnel des élèves, s'ils ne veulent à
 f _pas se priver de toute liberté ou mal faire la tâche im- |
 1 posée? À quel moment pourraient-ils rêver ou gamba- #
 
-der Professor ist die deutsche Nationalkrankheit |
 der ? La flânerie et la détente sont pourtant indispensables. Les efforts personnels activent plus les progrès
 que les meilleures imitations et révisions. Or « jamais,
 écrit un professeur, nos élèves n'ont eu moiïns de loisir
@@ -718,9 +454,6 @@ toute l'année, toute la durée des étudeslles élèves vivent
 sous le régime de la zensur, qu'elle soit exercée par des
 paroles, où par l'encre rouge ». (2) Finie dès le début
 dès lors, toute velléité de négliger telle partie des études
-
-(1) A. Kollmann. Zeitschrift für das hôhere Gymnasialwesen. Dé- *
-cembre 1902. Page 758.
 
 (2) L. Gurlitt : Der Deutsche und seine Schule. Page 191.
 
@@ -755,11 +488,7 @@ leur attribuent une telle valeur, les font miroiter à tel -
 point que leurs élèves n'en peuvent plus détacher leurs
 | yeux et sont envahis par une excitation incompara-
 | blement. plus vive que celle causée par nos composiN 2 Professor. — à :
-jan d
 
-der Professor ist die deutsche Nationalkrankheit ,
-
-NN ON }
 tions si décriées. Et surtout comment corrige-t-on ces
 Extemporalien ? Il sembie dans de nombreux cas que
 ce soit d'un point de vue négatif. On place premier
@@ -784,12 +513,7 @@ Des examens terminent naturellement le cours des
 seize à dix-sept ans environ. Souvent les élèves quittent
 l'établissement après l'avoir passé, et il sert ainsi de
 premier certificat d'études secondaires. Mais on le
-(:) Doctor Rhenius : Wo bleibt die Schulreform ? Page 21. {
-(2) W. Münch : Eltern, Lehrer und Schulen. Page 103.
 
-+ %
-
-BINE ART VON BETHLEMITISCHEM KINDERMORD ;
 © recherche surtout pour sa valeur pratique et sociale. Ne
 4 servir qu'un an est utile et de bon ton. Aussi les can- 3
 .  didats sont nombreux et ils encombrent parfois les
@@ -818,9 +542,7 @@ exige. Les jeunes gens de dix-neuf ans en moyenne qui
 subissent l'examen doivent faire montre de connaissances énormes dans toutes les branches du savoir
 humain. Or ces notions considérables, si vraiment elles
 - peuvent être acquises à force de veilles et de peines, il :
-(1) H. Gôring : Die neue Schule. Page 119.
 
-der Professor ist die deutsche Nationalkrankheit
 est matériellement impossible qu'elles puissent être :
 assimilées. La mémoire est appelée à jouer le premier
 rôle. On juge les candidats moins sur ce qu'ils peuvent,
@@ -834,7 +556,6 @@ fixée toujours plus considérable. Point de repos si bienfaisant pi de digressi
 au bout du pensum annuel si l'on veut être en forme
 pour affronter l'épreuve finale. Et comme une adroite
 direction est un gros appoint, les maîtres doivent non
-seulement insiruire, guider, développer leurs élèves, "a
 mais les « chauffer » sans cesse. Les plus réputés — car
 on ne peut les appeler les meilleurs — seront ceux qui
 entasseront dans le plus de cerveaux, la plus grande
@@ -851,10 +572,7 @@ plaît à esquisser, ne manque pas de comique à cet
 
 (1) L. Gurlitt : Der Deutsche und seine Schule. Page 118.
 
-jé
-
 un
-i eu d E rt ‘VON  BETHLEMITISCHEM KINDERMORD
 | égard. Profondément pénétré de la valeur des études,
 A der l'étendue de ses connaissances, de la sagesse qu'il
 _ doit aux nombreux exemples des anciens dont il s'est
@@ -885,10 +603,7 @@ passer vite et bien son examen, est plus important que À
 ” compatissant, ou bien un gars frais, gai et franc. Plus
 tard on dira : faire son chemin ! peu importe de quelle
 à manière, en rampant, ou en enjambant des cadavres,
-(ae 2) Professor. — 2,
-NL 4: *
 
-der Professor ist die deutsche Nationalkrankheit
 ou bien en exagérant à la folie le travail et Le respect
 du devoir — point de scrupules, voilà le mot d'ordre.
 Pourvu qu'on tienne le succès, qu'on satisfasse les
@@ -922,9 +637,7 @@ ont été fixés avec soin. Pour s'assurer que les prescriptions sont suivies le
 nous semble plus utile de grouper ici toutes les plaintes relatives
 à la discipline.
 
-d ; | ŒINE ART VON BETHLEMITISCHEM KINDERMORD
 rendus bien puissants. Et cela ne va pas sans inconvé-
-,  nients. \
 Dans l'enseignement primaire on regrette que cette
 . surveillance soit trop constante et gêne les classes. On \
 regrette qu'elle ne soit pas toujours exercée par une ppersonne compétente. Dans les campagnes en effet
@@ -952,10 +665,7 @@ circulaires de façon à étouffer toute initiative, à détruire
 (à) Seyfert : Schulpraxis. Page 12 et dans d'innombrables articles
 j de journaux ou revues.
 (2) L. Gurlitt : Der Deutsche und seine Schule, Page 145.
-3x
-A ]
 
-der Professor ist die deutsche Nationalkrankheit
 toute personnalité chez le maître... Il semble que l'idéal
 de nos autorités scolaires soit celui de ce ministre fran-
 çais du second Empire qui se félicitait en pensant qu'à
@@ -972,7 +682,6 @@ libres, donner au talent les moyens de s'exercer librement, en toute sécurité,
 principal de ceux qui ont pour charge d'imprimer une
 direction à l'école. » (2) Ce vœu est encore resté trop "
 platonique et les professeurs estiment en grande majorité que les règlements demeurent trop nombreux et
-mesqrins.
 
 Les supérieurs ne leur semblent pas non plus user
 toujours de leur autorité dans un bon sens. Ils pourraient en guidant les professeurs, en les soutenant
@@ -984,13 +693,8 @@ exemple, les établissements secondaires soumis aux
 autorités provinciales sont devenus si nombreux et si
 importants, qu'on a jugé nécessaire de créer toujours
 
-(1) Pädagogische Zeitung. 2 novembre 1905.
-
 (2) Cité par M. Pellisson. Revue Pédagogique, 15 août 1906. Page 141.
 
-32 \ <
-
-Muse NE ART VON BETHLEMITISCHEM KINDERMORD
 mA NPA Art rils : ,
 ‘de nouveaux inspecteurs à côté des anciens, et tandis
 _ que dans les décades précédentes un seul homme de
@@ -999,7 +703,6 @@ _ que dans les décades précédentes un seul homme de
 jinle chéf, maintenant les tétrarques ou les hexarques
 n'ont guère d'influence sur la vie du tout, d'autant plus À
 _ qu'ils perdent une grande partie de leur temps à des |
-_ occupations administratives d'ordre purement exté-
 * rieur, » (1) S'attachant surtout aux détails, les supérieurs
 _ surveillent et admonestent trop souvent les maîtres. Ils
 . accumulent les recommandations et restreignent l'espace
@@ -1021,14 +724,8 @@ professeur de pédagogie à l'Université de Berlin et seflorce de
 déméler, parmi les critiques et les réformes utopiques proposées,
 quels sont les changements qui peuvent et doivent être apportés |
 _ à l'école allemande.
-:… @) à, page 147. :
-pare '
-PAST ù
-\ be TNT
 
-der Professor ist die deutsche Nationalkrankheit
 plante trop délicate pour bien venir sous une semblable
-discipline.
 
 On a pu en dire autant de la discipline à laquelle sont
 soumis les élèves. Elle part des mêmes principes et
@@ -1058,15 +755,10 @@ durant le surveillent, le corrigent ou le raillent, vraiment il ne cessera de re
 il est menacé, sans que personne ait besoin de les
 l (1) Cf. L. Gurlitt: Der Deutsche und seine Schule. Pages 48-50.
 Schultze. Deutsche Erziehung, passim et d'autres.
-e
-n AN.
 
-An Rs.
-ue VON BETHLEMITISCHEM KINDERMORD
 4 appliquer. L'épée plane au-dessus des têtes. L'at_ mosphère est pesante. Il en va un peu de l'école comme |
 _ d'une maison où la crainte suflit souvent à prévenir
 des infractions qu'on ne manquerait pas de lourde-
-. ment punir.
 Et les maîtres usent-ils bien de cette arme redoutable
 dont ils disposent ? Pas toujours, a-t-on répondu. Il se
 3 peut que dans certains cas l'intelligence unie à la bonté
@@ -1092,9 +784,7 @@ Mais ce bel exemplaire n'est peut-être pas conforme
 désespoir un enfant sentant sainement, Lorsque par
 dessus le marché l'école et la maison se tendent la
 À main, pour apprivoiser l'enfant et le rendre vertueux,
-N J 35
 
-der Professor ist die deuische Nationalkrankheit
 _ alors je ne m'étonne plus qu'on entende parler de temps
 en temps de suicides d'enfants. » (1) Sans envisager
 $ d'aussi graves conséquences on en signale d'autres singulièrement fâcheuses. C'est porter une atteinte durable
@@ -1119,9 +809,7 @@ ne signifie pas dresser. Parce que ‘ces vieux principes
 (à) L. Gurlitt : Der Deutsche und seine Schule. Page 219. On cite À
 en effet quelques cas Ge suicides d'élèves; maïs il peut être exagéré d'en rendre l'école seule responsable. Les raisons qui déterminent au suicide sont si complexes. Il faudrait pouvoir examiner |
 chaque cas particulier. ) ne
-36 ï
 
-PRE EINE ART VON BETHLEMITISCHEM KINDERMORD L
 ont été négligés, bien des élèves ont quitté l'école
 5 amertume ou la haine dans le cœur.
 __ D'assez nombreuses raisons expliquent cette concep- re
@@ -1150,9 +838,7 @@ qui révoltent ces jeunes gens qui ont déjà cessé d'être
 . des enfants. Je crois qu'à cet égard aussi les Anglais et k
 _ les Américains nous sont supérieurs. Sans doute nous
 nes en train de jeter bas de vieilles coutumes et
-Ste > 37 Professor. — 3
 
-der Professor ist die deutsche Nationalkrankheit
 d'édifier de nouvelles mœurs ;- maïs on trouve des
 restes, il se produit des rechutes, dont L'effet destructif
 anéantit rapidement les premières et lentes constructions. Le système constitutionnel ne nous est pas encore
@@ -1180,7 +866,6 @@ meilleurs discours ne valent pas des exercices constants j
 et des exemples sains. (2) On l'a méconnu, et « c'est
 ainsi que la contrainte et la privation de liberté vont
 
-(:) F. Paulsen : Väter und Sühne. Deutsche Rundschau. Mai 1907.
 Page 236. M. Paulsen, professeur d'histoire de l'enseignement à |
 PUniversité de Berlin, cherche également à réfuter les critiques
 exagérées et à proposer les réformes possibles et indispensables.
@@ -1188,10 +873,6 @@ exagérées et à proposer les réformes possibles et indispensables.
 (2) Cf. sur ce dernier point H. Güring : Die neue Schule. Pages 47 ” |
 et suivantes.
 
-38 Cie
-
-++. BNÈER / fe FER FM Me PE 4 Le À JS ARS Le “
-Rs BINE ART VON BETHLEMITISCHEM KINDERMORD
 Aer croissant et pèsent comme un lourd cauchemar sur toute
 5 notre éducation, L'État a peur de chasser l'Église de
 Fe son dernier fief, l'école primaire, pour ne pas se
@@ -1218,9 +899,7 @@ _ Ja nécessité et la valeur de l'école et des maitres, on les
 wi - aux yeux d'une grande partie de notre peuple un mal La
 EL inévitable. Et la plus grande part des efforts qu'ils ré-
 Ne _& W. Rein : Xirche, Slaat und Sthule. Page 929.
-SARA 39
 
-der Professor ist die deutsche Nationalkrankheit
 clament ou des notions qu'ils inculquent, les familles |
 aussi bien que les élèves envisagent tout cela comme un
 mal. » (1) Au moment même de l'apothéose, instituteurs
@@ -1247,13 +926,7 @@ second (dédain des professeurs) on se plaisait à jeter |
 une lumière toujours plus crue.
 On se moque de leur physique et de leurs manières. |
 Ces lourdauds mal vêtus, d'allures risibles, d'une gau- |
-PAT EAN di
-() W. Münch : Æliern, Lehrer und Schulen. Pages 42-45. 0
-Cf. F. Paulsen : Die hüheren Schulen. Pages 31-32. 3
-40 o ; "|
 
-D di, un. :
-me ART VON BETHLEMITISCHEM KINDERMORD
 cn _ cherie indicible, d'une distraction sans bornes, fournissent aux journaux satiriques un filon inépuisable. On
 3 ; représente ces vieux types de professeurs se promenant
 
@@ -1305,13 +978,8 @@ plutôt que des personnalités, des matériaux à mani-
 
 _ faire sentir sa supériorité, la distance est courte. Et
 
-ù > (1) F. Schultze : Die deutsche Ersiehung. Page 294.
-
 18 (2) L. Gurlitt : Der Deutsche und seine Schule. Page 76.
 
-SEE &
-
-der Professor ist die deutsche Nat'onalkrankheit |
 c'est alors à l'égard des élèves une morgue insolente, |
 une raillerie froide, à moins que ce ne soit une humeur
 de tyran capricieux et cruel. À moins encore que le ré-
@@ -1331,7 +999,6 @@ passés et continuent à partager les erreurs de leurs
 contemporains. Ils détaillent la décadence des anciennes
 corporations et ils croient encore à la supériorité de leur
 3 propre caste. Leur esprit n'est libre qu'en deçà de cer- l
-taines frontières. {
 Aussi en arrivent-ils à se laisser imposer des tâches
 presque indignes d'eux. Trop préoccupés des intérêts et
 des jouissances communes ils s'inclinent devant les ù
@@ -1340,9 +1007,7 @@ l'heure fait place à la plus respectueuse soumission. à
 « Triste, triste de songer combien le professeur allemand a été sur tous les domaines intellectuellement mis à
 en tutelle ! Il est honteux qu'il se soit laissé mettre ces *
 chaînes sans mot dire! Par là nous avons totalement
-G2
 
-FT NE ART VON BETALEMITISCHEM KINDERMORD
 > LÉ “* :
 A apprie de travailler à l'œuvre morale de notre
 _ époque. Cela ne nous regarde plus. Nous sommes dece venus la trompette du loyalisme, toujours prête, iné-
@@ -1369,16 +1034,9 @@ animés d'un esprit bureaucratique, qu'ils enseignent,
 leur profession, parce qu'ils sont payés pour cette
 : besogne et non pas parce que c'est leur vocation
 ñ _ intime, leur devoir d'enseigner, parce qu'ils sont épris
-M ©
 ri () L. Gurlitt : Der Deutsche und seine Schale. Pages 137138.
-* nt 63
 | Yp $ ù
-PT À
-% 4 $ x :
-ner 2
 
-PSE EE NT ARR RERTANNRE SRE?
-der Professor ist die deutsche Nationalkrankheit
 de leur profession. Voilà ce qui pour ainsi dire, gèle les
 élèves, cette indifférence de professeur qui ne s'élève
 
@@ -1407,8 +1065,6 @@ avoir de pensées personnelles, mais seulement repenser
 les idées des autres. Voilà où doivent tendre vos plus
 vifs efforts. » Il oubliait, cet excellent homme, que le E
 
-(1) H. Pudor : Die neue Erziehung. Page 39.
-
 (2) L. Gurlitt : Der Deutsche und seine Schule. Page 193.
 
 (3) Autrefois Cétait encore pis. L'historien Curtius disait un ÿ
@@ -1417,17 +1073,11 @@ genre en latin comme pour un inceste. » Heine cite deux élèves de
 cinquième qui fuyaient un de leurs camarades parce qu'il ignorait î
 le génitif de mensa. fl ;
 
-4% :
-
-à ETES & Ras ie 4 SIC FA e
-Lo Le “EINE ART VON BETHLEMITISCHEM KINDERMORD
 grand poète allemand Schiller était mort à quarante-six
-_ -ans d'âge.
 | On s'est préoccupé de trouver les causes de ces phé-
 se ‘nomènes inquiétants. Elles sont évidemment multiples.
 Chaque critique peut en indiquer une autre. Il en est
 fe toutefois quelques-unes sur lesquelles l'opinion est
-presque unanime.
 ne _ Il semble certain que le travail scolaire exigé des
 a professeurs est beaucoup trop considérable. Sans
 S s'arrêter à certaines localités invraisemblables où l'on =
@@ -1452,11 +1102,7 @@ Ke 389 devoirs. Au total il dut venir à bout de 2.112 dictées
 EE et 1.352 devoirs, soit 3.464 copies. Pour chacune des à
 x : (1) Par exemple : religion, allemand, latin; ou bien grec, alleLa. mand, histoire; ou bien religion, français, anglais; ou bien géoTE métrie, géologie, etc.
 
-a ée ad 45 Professor. — 3. | | |
-
-7 3 Pot
 | der Professor ist die deutsche Nationalkrankheit
-à
 trente-deux semaines de véritable travail cela donnait Ë
 une moyenne de 42 devoirs et 66 dictées. » (@) Et si
 malgré ce labeur, certains professeurs, assez nombreux
@@ -1486,11 +1132,7 @@ plit, c'est qu_ sur un point au moins, il ait fait lui-même À
 ce travail, qu'il ait suivi quelques problèmes jusque
 daris ces dernières conséquences, jusqu'au terme où il
 (1) Cité par L. Gurlitt: Der Deutsche und seine Schule. Page 156. £
-Cf. F. Paulsen : Die hüheren Schulen. Page 33. STE
-46 ;
-. : L'ES
 
-us _ EINE ART VON BETHLEMITISCHEM KINDERMORD
 à +: puisse se dire : il n'y a maintenant personne au monde
 qui puisse m'apprendre quelque chose là-dessus ! » (1)
 __  Foyt bien, disent d'autres. Mais tout cela ne va pas |
@@ -1523,15 +1165,9 @@ _  entassér, à la sueur de leur front, des matériaux, qu'ils |
 …_ d'un vulgaire travail de charretier et de manœuvre,
 ou d'un travail de patiente statistique, qui après un
 Æ  labeur.de nombreux mois, leur donnera un résultat de
-EX
 
 - a (x) Cité par Blondel : Recue Internationale de l'Enseignement.
-_ 15 novembre 1906. Page 433.
 
-She
-
-“ à LPS SN RARE PES
-der Professor ist die deutsche Nationalkrankheit
 valeur infime et au total sert plutôt à les paralyser qu'à
 les cultiver. » (1)
 
@@ -1561,11 +1197,6 @@ qu'ils étudient leur spécialité et deviennent des réper- ÿ
 toires ambulants. Ils peuvent instruire peut-être mais
 non pas vivifier. » (3)
 
-@) W. Münch : Zukunftspädagogik. Page 253.
-(2) W. Münch : Eltern, Lehrer und Schulen. Page 64.
-(3) Rembrandt als Erzieher. Page 194. ee:
-
-“F 7 EINE ART VON BETHLEMITISCHEM KINDERMORD
 CARS Pour parachever sans doute l'œuvre de l'Université
 5 les futurs professeurs sont soumis à une préparation
 PRE professionnelle. Une chaire ne leur est pas immédiateme ment confiée. Ils sont pendant plusieurs années sta__ giaires et professeurs-adjoints avant d'être titularisés.
@@ -1592,10 +1223,8 @@ _ … dont ils redouteraient la liberté de pensée et l'indépendance de caract
 ET Même dans les circonstances plus ordinaires, le stage
 ra _ peut encore nuire. Il est utile de faire gagner du temps
 ‘Eea aux jeunes professeurs en leur montrant certains procé-
-Fa 49
 ne:
 
-der Professor ist die deutsche Nationalkrankheit
 dés qu'ils auraient peut-être eu quelque peine à décou- |
 vrir. Mais la possession de tous ces moyens est encore
 loin de faire le bon professeur. Dans un congrès tenu en
@@ -1625,13 +1254,7 @@ plus à l'art de servir le morceau, qu'au mets lui-même.
 « Souvent le soin excessif apporté à la technique de
 l'enseignement empêche le fond même d'exercer toute
 (1) Cité par L. Weill. Reoue..Internationale de l'Enseignement. __
-15 octobre 1906. Page 306.
-(2) W. Münch : Eltern, Lehrer und Schulen. Page 43.
-5o
-L
 
-__ EINE ART VON BETHLEMITISCHEM KINDERMORD
-10. à
 _ l'action spontanée, immédiate, dont il est suscep_ tible. » (1)
 | Au ftal ces maîtres produisent l'effet de pédagogues
 - au sens défavorable du mot. Ils ne conservent pas cette
@@ -1656,15 +1279,9 @@ fortifier la volonté, d'inculquer des principes que d'ou-
 …  seigner que de former les caractères. De là cette
 impression qui se grave dans la conscience des enfants
 « que l'école et la vie dans ses manifestations les plus
-<re (@) Üver Rembrandt als Erzieher, von einem Erzieher. Page 15.
 L (2) W. Münch : Æltern, Lehrer und Schulen. Page 47.
-À (3) Natorp : Soxalpädagogik. Page 233.
 ter (@ F. Holländer : Der Weg des Thomas Truck. I. 31.
-4 » (5) Doctor Pastor Kalthoff : Srhule und Kulturslaat. Page 15.
-a 51
-Te |
 
-der Professor ist die deutsche Nationalkrankheit
 naturelles sont deux mondes différents ». (1) De là cette
 aflirmation : « Éducation et enseignement sont deux i:
 choses distinctes; le peuple allemand est déjà beaucoup
@@ -1689,21 +1306,13 @@ s'adonner aux arts, aux lettres ou bien aux sciences. Au =
 point de vue de la civilisation celles-ci passent donc, à
 tort ou à raison, pour avoir la plus grande importance.
 
-(1) Über Rembrandt als Erzieher, von einem Erzieher. Page 37.
-
-(2) Rembrandt als Erzieher. Page 251.
-
 (3) On leur a reproché toutefois de délaisser un peu trop vite la
 culture générale et de former des « spécialistes » tandis que d'autre
 part elles wéveillent pas assez l'initiative individuelle et forment
 surtout de bons sous-ordres.
 
-52 : È
-
-1 É de EINE ART VON BETHLEMITISCHEM KINDERMORD
 | 27 Cest à leur propos et sur leurs programmes que se sont
 À livrés durant ces dernières années les plus acharnés
-combats. F
 + NM Ces écoles de culture générale se subdivisent à leur
 me tour. On trouve le gymnase (gymnasium) avec une
 e variante dénommée gymnase réformé (Reformgymna_  sium) (r) et dont le latin et le grec sont les matières
@@ -1727,9 +1336,7 @@ LS pluie d'encre, est de tous les pays et de vieille date.
 M « Nous retiendrons seulement les critiques qui visent
 Fée (:) L'étude du latin et du grec est commencée beaucoup plus
 tre tard. Les langues modernes disposent de plus d'heures.
-à 2
 
-der Professor ist die deutsche Nationalkrankheit :
 l'organisation des programmes du gymnase et la valeur
 de son enseignement pour la nation. Remarquons d'ailleurs que nombre de ces critiques valent pour les autres
 écoles, soit par la nature même de ces critiques, soit
@@ -1758,13 +1365,6 @@ place aux nouveautés. Au latin et au grec on accola les
 mathématiques d'abord, l'histoire, les langues modernes
 et les sciences naturelles elles-mêmes. Que de choses
 
-\
-r 1 1
-
-+. > L'L .
-
-0 mé ART VON BETHLEMITISCHEM KINDERMORD
-
 Æ | diverses dans un même sac et que de têtes sous un
 
 même bonnet. (1)
@@ -1788,7 +1388,6 @@ non multa! Maintenant on dit: multa, non multum !
 plus utiles à l'élève pour toute sa vie, que beaucoup
 
 .  parcourues rapidement, peu approfondies et aussitôt
-* oubliées ! » (2) :
 
 - = Cette succession d'innombrables impressions d'inten-
 
@@ -1809,12 +1408,9 @@ _… élèves sont bourrés intellectuellement, ils ne peuvent
 ; mieux leur raconter moins de choses, mais en échange
 les rendre plus curieux et plus désireux de savoir. » (3)
 
-(r) Cf. Schultze : Deutsche Ersiehung. Page 30. A
 (2) Schultze : Deutsche Ersiehung. Pages 302 et 335.
 s (3) L. Gurlitt : Der Deutsche und séin Vaterland. Page 105.
-ïe 4
 
-der Professor ist die deutsche Nationalkrankheit
 : C'était également l'avis d'un grand médecin, von
 Esmarch, qui disait déjà le 20 novembre 1885 : « Peu
 de nos étudiants sont capables de saisir vite et bien les
@@ -1829,7 +1425,6 @@ toutes ces règles avec d'innombrables exceptions, tandis que l'activité observ
 cherche tellement à se satisfaire, a disparu sous l'amas
 des matières enseignées, qui ne peuvent avoir que peu
 d'intérêt pour la jeunesse et ne reposent pas sur l'en- Fe
-seignement visuel. » ;
 Donc trop de choses sont enseignées au gymnase. Et
 pourtant d'autres gens surviennent qui lui adressent le
 reproche tout justement contraire. Comment, voilà des
@@ -1846,9 +1441,6 @@ est nécessaire d'élaguer il ne l'est pas moins de planter
 de nouvelles pousses. :
 * Troublante antinomie. Est-elle insoluble ? Non, car la
 
-"eg
-
-: mn ART VON BETHLEMITISCHEM KINDERMORD
 44 | réalité complexe offre des solutions d'apparence incom_ patibles dans la théorie abstraite. Par bonheur il est pos-
 -  sible dé pratiquer delarges coupes dans ces programmes
 | encombrés par la suite des siècles, et de faire place
@@ -1878,7 +1470,6 @@ recherche de cet idéalisme dit classique qui a son ori-
 les auteurs romains, surtout chez Cicéron et son bavar_  dage plutôt superficiel sur la valeur idéale de toute ac-
 % _tivité purement intellectuelle, par quoi il s'opposait au
 
-der Professor ist die deutsche Nationalkrankheit
 matérialisme obtus des Romains embourbés dans toutes
 les jouissances et tous les vices ». (1) De là la prépondérance de l'esprit sur le corps, de l'abstraït sur le concret, de la forme sur la matière, en un mot de l'idéal !
 sur la réalité. ñ
@@ -1897,15 +1488,9 @@ tisait déjà Lichtenberg. Le développemeni de l'intellect
 seul ne suflit pas. Car : « le savoir en soi a un effet à
 peu près nul sur la formation du caractère, et à peu :
 près insignifiant sur l'activité qu'on déploiera dans la |
-vie ». (3)
 Au fond cet enseignement a été inventé par les professeurs pour former de futurs professeurs. Jamais ilne
 (1) L. Gurlitt : Der Deutsche und seine Schule. Page 69.
-(2) H. Gôring : Die neue Schule. Page 4.
-(3) Lietz : £mlohstobba. Page 120.
-58 |
 
-RES .__ EINE ART VON BETHLEMITISCHEM KINDERMORD
-CRUE LE è;
 produira des hommes semblables à ceux qui seraient
 sortis de la province pédagogique conçue par Goethe,
 nie deshommes capables de créer une nouvelle vie d'acti_ vité utile, de vérité et de beauté. (1) .
@@ -1935,14 +1520,9 @@ et lé vouloir est incontestable. Il suflit de cultiver l'intelligence qui
 commande tout, pour développer en même temps le cœur, la
 à _ volonté, en un mot toute la personnalité. Pour la discussion et la
 « K réfutation de cette thèse, voir : W. Münch. Zukunftspädagogik,
-: page 166; Natorp : Sosialpädagogik, pages 299-302; Dereux :
 FE Herbart. La psychologie appliquée à l'éducation. Revue Pédagogique,
-fr premier semestre 1891 (trois articles).
-3 (2) Emil Strauss : Freund Hein. « 7 PR
 | À Je
-TROP =
 
-der Professor ist die deuische Nationalkrankheit
 et moral, sur leur signification historique, sur les renseignements ou les comparaisons qu'on en peut tirer.
 Non, c'est tout bonnement sur l'écorce extérieure, sur
 la grammaire, sur la prosodie. « Non scholae sed vitae :
@@ -1974,12 +1554,7 @@ jusqu'à l'œuvre elle-même, sans parler de la comprendre
 l'analyse se sont montrées trop étroitement apparentées,
 et après qu'à la poésie antique seule choyée jadis, on
 
-(1) Emil Strauss : Freund Hein. #
-
-60 :
-
 # ge Do PR OC PETER TE UT T Les : LT " , ea
-cu E ART VON  BETHLEMITISCHEM KINDERMORD :
 LS eût ajouté la poésie moderne comme susceptible de
 | cultiver les esprits, de nouveau on s'est plu toujours
 davantage dans l'analyse. Les protestations qui s'élèvent
@@ -1995,7 +1570,6 @@ __ artistique tenu à Weimar en 1903 un délégué du mi- ENT
 < nistre, plus prévoyant que maint professeur, signala
 5 ‘tous les dangers de cette façon de faire et conclut à la
 -. nécessité de « sauver la poésie des mains des pé-
-__ dants ». ; Ë
 _ A ces dangers s'en ajoute un autre. La plupart des
 Re exercices oraux et écrits — et cela non seulement au
 Ra gymnase — dérivent du même esprit et se conforment ‘
@@ -2007,11 +1581,7 @@ _ difficilés pour la majorité des élèves. Ils les font cepenbe dant — au p
 EX à ne considérer que l'extérieur s'aggrave. Ils répètent
 - ce qu'ils ont lu ou entendu. Ils tombent sous l'esclavage
 À ke du mot. On ne les habitue pas à observer, on attire sans
-à & se Q@) W. Münch : Æltern, Lehrer und Schalen. Page 5a.
-_ (2) Rembrandt als Ersieher. Page 3.
-4 Me Professor, — 4
 
-der Professor ist die deutsche Nationalkrankheit
 cesse leur attention sur les textes, on les amène à se
 leurrer de mots. « Rien ne caractérise mieux le marasme
 de notre soi-disant culture moderne, que ce fait qu'on
@@ -2039,10 +1609,7 @@ de force et de vie des grandes œuvres antiques, aient
 réussi à le faire contribuer au développement d'un ro- È
 mantisme maladif. Peu importe. Ce fut pour l'Alle-
 ; (:) L. Gurlitt : Der Deutsche-und seine Schule. Page 120. G
-(2) Schultze : Deutsche Ersiehung. Page 132. Conférez Gurlitt.
-Page 68.
 
-pe À mine ART VON BETHLEMITISCHEM KINDERMORD
 ee magne une erreur funeste, « Pendant des siècles notre
 RER enseignement secondaire a été anti-allemand. Nos an-
 + cêtres faisaient de leurs garçons des jeunes gens vigou-
@@ -2053,7 +1620,6 @@ _ rêveurs sans contact avec la vie. » (1) Il est grand -
 t ® témps aujourd'hui de revenir de cette erreur et de
 ; remplacer l'école anti-allemande et romantique par i
 une école qui soit faite pour la vie et vraiment alle_. mande. |
-t
 ; la méthode
 Dans la majorité des pays il serait difficile sinon
 impossible de parler de la méthode usitée dans l'en-
@@ -2068,10 +1634,7 @@ les suivantes. Le maître a pour tâche de faire pénétrer
 . certaines connaissances dans la tête de l'élève. Mais il
 ; ne saurait considérer celui-ci comme une substance inerte
 < sur laquelle on imprime à volonté. L'élève au contraire
-Fe (1) H. Gôring : Die neue Schule. Page 3. Conférez P. Gussfeldt,
-fl Schultze, Gurlitt, Münch, ete.
 
-der Professor ist die deutsche Nationalkrankheit
 est susceptible d'une activité qui facilitera la besogne.
 Donc le maître devra metire en branle cette activité,
 l'occuper et la soutenir sans cesse. Le moyen qui
@@ -2100,8 +1663,6 @@ rale, et montre par des applications soit à des matières
 
 # : |
 
-RUE EINE ART VON BETHLEMITISCHEM KINDERMORD |
-ep a
 at du même ordre, soit à d'autres, quelles peuvent être
 les conséquences et partant l'importance des nouvelles
 * notions acquises. Enfin de constantes répétitions et révisions doivent servir à les graver définitivement dans
@@ -2126,10 +1687,8 @@ d'accumuler est considérable. Sur toute la terre les
 _ instruits. Aussi est-ce sa méthode qui longtemps valut
 _ à l'école allemande les plus vifs éloges.
 à _ Mais toute médaille ayant son revers, de graves « Na Se 65 Professor. — 4.
-Fe |
 
 | RAR LL Le
-= *! | v k « der Professor ist die deutsche Nationalkrankheit |
 réserves ont été exprimées, ayant trait tant à l'emploi
 qu'à la valeur éducative de cette méthode.
 
@@ -2164,11 +1723,6 @@ maitres pourront profiter des règles établies et de l'ex »
 périence des autres. Ils pourront même acquérir une
 certaine virtuosité. N'empêche.que le don de trouver la s
 
-66 ti
-
-PIUNE e) CCRTEE L
-Rs \ EINE ART VON BETHLEMITISCHEM KINDERMORD
-ARE
 question qui convient à tel élève, où qui, au moment
 _ ® voulu, fera jaillir la lumière aux yeux de tous est chose
 j infiniment délicate et rare.
@@ -2197,13 +1751,8 @@ Ge vérité, si les interrogations n'avaient point d'autre
 + nement le psittacisme. Aussi faut-il reconnaître que l'on
 exige encore autre chose des enfants. On réclame d'eux
 une réponse exprimée en une phrase complète et con__  struite par eux-mêmes. Mais en fuyant un éeueil on *
-RE SAP ;
 ——
-Tr (1) Rembrandt als Ersieher, von einem Erzieher. Page 3r. n"
-à 4
-LT A TS SNS 4
 
-der Professor ist die deutsche Nationaikrankheït
 tombe dans un autre. On exige que cette phrase personnelle soit correcte. Dès lors, l'attention de l'élève se
 porte sur la réponse à construire plutôt que sur la chose
 elle-même. A vouloir bien traduire sa pensée, il oublie
@@ -2215,7 +1764,6 @@ comme les sciences à des exercices de grammaire et de
 langage et de constater que la fin dernière de tout l'enseignement serait d'apprendre à parler en bon allemand. (1)
 
 Considérée en elle-même, cette méthode peut sembler.
-dangereuse. 5
 
 Elle l'est d'abord par le souci de trop bien faire. Elle F
 veut tout expliquer et ne négliger rien. Mais le chemin
@@ -2239,9 +1787,7 @@ bien que pour cet objet ce ne soit pas le meilleur, maïs ce n'est
 pas un progrès en connaissances... Ce sont des exercices pour
 apprendre à parler correctement, et par accident seulement des
 leçons d'observation. » — Winch. Notes on German Schools. Pages 39
-et 20/4.
 
-_ ÆINE ART VON BETHLEMITISCHEM KINDERMORD
 | tacles de la route défilent avec la même rapidité. Et les
 * élèves n'ont plus cette sensation de jouissance calme
 qui fait un dés grands charmes de l'étude. « Que rien ne
@@ -2251,7 +1797,6 @@ d'une autre du pourquoi et du comment. On est bien
 loin de l'idéal du calme épique, et de la jouissance que
 __ procure un certain laisser-aller familial et on se consume
 dans le souci de faire s'écouler sans accroc le travail
-_ intellectuel. » (1)
 Dangereuse elle l'est aussi par cette sorte de dissec- È
 tion qu'on fait subir aux élèves. Afin d'obtenir de meilleurs résultats on a pour ainsi dire pratiqué sur eux la
 _ division du travail. On sépare leurs diverses facultés et
@@ -2269,10 +1814,7 @@ est trompeuse. Regardez attentivement en effet une
 classe et recherchez d'où vient cette animation et cetté :
 vie dont on tire vanité. Mais presque uniquement du
 professeur. C'est lui qui toujours en scène conduit la
-FL (@) Über Rembrandt als Erzieher, von einem Erzieher. Page 5r.
-La 69
 
-der Professor ist die deutsche Nationalkrankheit
 pièce et sous couleur de faire causer les autres parle
 sans interruption. C'est lui qui amène les réponses sur
 les lèvres de ses élèves par les questions mêmes qu'il
@@ -2291,7 +1833,6 @@ questions aux élèves, cette collaboration apparente ou
 réellement constante des élèves, tout cela est une
 activité de degré inférieur. Il ne reste à faire que des
 pas ou des demi-pas qui sont déjà presque tous bien
-préparés. » (1)
 . Qu'est-ce à dire sinon que cette méthode peut décevoir et cache un défaut capital? Les élèves entraînés
 selon ses principes rappellent un peu ces articles que
 : l'on vend à bas prix. À première vue ils ont la belle et
@@ -2300,14 +1841,8 @@ regardant mieux on remarque leur qualité inférieure.
 Made in Germany, disent les Anglais. De mêmerle
 vaste savoir des élèves est incontestable. Mais il
 manque peut-être de solidité. Il leur a été insufñilé plutôt
-(x) W. Münch : Zukunftspädagogik. Page 192. !
 | 70 ;
 
-D A RL TA nn A in 7, à: à L - 4
-“p Ant ; 7 EE ; 5
-07e opte À d $ "2
-Een î ÆEINE ART VON BETHLEMITISCHEM KINDERMORD
-LS ” À . ns as ©
 Le qu'ils ne l'ont acquis. Trop rarement ils ont été aban-
 . * donnés à leurs propres forces. Ils savent beaucoup de
 | choses mais ils n'ont pas appris à apprendre. Leurs fa-
@@ -2316,7 +1851,6 @@ mais leur sens critique a été négligé sinon même
 _ étouffé par ces exercices si prudemment calculés. En un
 * mot cette méthode est impuissante à développer en
 eux une force pourtant primordiale et essentielle : la 5
-_ personnalité. (1) y
 Aussi n'est-il point surprenant que des craintes sé-
 __ rieuses aient été exprimées au sujet des conséquences |
 : de cette méthode d'instruction.
@@ -2325,7 +1859,6 @@ _ — que les résultats obtenus soient aussi durables qu'on
 -  lespérait. L'inspecieur Kerchensteiner de Münich a +
 trouvé à la suite d'une enquête que, deux ou trois ans a
 après la sortie de l'école primaire, le savoir des enfants |
-LAFSREUFONS
 < () Conférez encore une observation du même professeur anglais. :
 | Ik rapporte en même temps les paroles d'instituteurs allemands t
 qui signalent les rapports existants entre cette méthode et le s
@@ -2346,15 +1879,12 @@ d étranger cerlains principes ou procédés pédagogiques. À supposer ,
 x . qu'ils fussent bons pour de jeunes Allemands, il ne s'en stit pas
 ; nécessairement qu'ils le soient aussi pour de jeunes Français ou }
 de jeunes Anglais. SRE
-Rs « 71 ‘
 
-der Professor ist die deutsche Nationalkrankheit
 était infime et « que le cerveau des jeunes gens de dix-
 
 sept et dix-huit ans ressemblait à un chaudron récuré
 
 à neuf ». (1) À quoi avaient donc servi ces leçons si A
-parfaites ?
 
 Alors même que chez d'autres les connaissances acquises ne disparaissaient pas aussi vite on a regretté
 qu'ils aient conservé l'empreinte de l'école et fussent
@@ -2385,10 +1915,8 @@ pensés de pensée personnelle. Elle leur a planté dans
 
 (1) Cité par Gurlitt. Page 117.
 
-(2) F. Naumann : Die Brzichung der Persônlichkeit im Zeitalter
 des Grossbetriebs. Page 11.
 
-; re . EINE ART VON BETHLEMITISCHEM KINDERMORD
 _ la tête des règles et des indications, qu'ils conservent
 toute leur vie avec une constance rigide. Et toutes ces
 9 règles sont données sous forme théorique, les exercices -
@@ -2396,7 +1924,6 @@ n'ont lieu que sur le papier dans les salles fermées, |
 alors que dehors fermente la vie. Le genre des études
 actuelles produit une subalternité de l'activité intellec- |
 _ tuelle qui ne peut manquer d'inspirer les plus sérieuses ‘
-inquiétudes. » (1)
 L'armée elle-même se plaint, non pas que l'école sape
 _ les fondements de la discipline, mais au contraire ne
 développe pas assez la personnalité. « Où se trouve
@@ -2418,11 +1945,8 @@ Par le fait même qu'elle est impuissante à développer
 les individualités. Son but est de donner à tous les élèves
 À Q) IL. Muthesius : Die Bedingungen und die Anlage des modernen
 Landhauses. Cité par Gurlitt. Page m5.
-(2) E. Goldbeck : Xrieg in Sicht. Page {o.
 à ta FO 73 Professor. — 5
-NES
 
-der Professor ist die deutsche Nationalkrankheit
 les mêmes connaissances par les mêmes procédés. Pour
 y parvenir on a imaginé en quelque sorte un type sché-
 
@@ -2459,7 +1983,6 @@ aussi que l'intransigeance de Nietzsche, proclamant les droits
 
 ÿ absolus de l'individu, a été provoquée en partie par cette supré-
 matie de la médiocrité qu'il constatait en Allémagne. #
-$ 74 1
 
 #  EINE ART VON BETHLEMITISCHEM KINDERMORD
 k _ individualités spirituelles. » (1) Et son commentateur en |
@@ -2485,12 +2008,7 @@ gymnase en arrive de plus en plus à produire des em44 ployés subalternes, des 
 ponctuellement leurs heures de bureau et se conforment “4
 _ en toute déférence à l'opinion de Son Excellence l'omniscient conseiller privé. » (4)
 Et l'on conclut ainsi sur ce point : « Au total l'évolu-
-À (n) Page 36.
-‘0e (2) Über Rembrandt als Ersieher, von einem Erzieher. Page 35. |
-10 …. (3) W. Münch : Zukunftspädagogik. Page 172.
-. (@ Rudolf Lehmann : Ærsiehung und Brsieher. Page 904.
 
-der Professor ist die deutsche Nationalkrankheït
 Ÿ tion effectuée dans le domaine de l'instruction fait songer à une chose bien différente : au sort de la chevalerie
 au moyen-âge. Armes offensives et défensives, technique du maniement des armes, tactique des armées
 de chevaliers, tout cela se perfectionnait de jour en
@@ -2517,13 +2035,8 @@ passé par les écoles, eh bien! on peut avoir à l'heure
 actuelle le sentiment d'une défaite totale ou du moins
 d'un échec visible, au moment où le succès semblait le
 mieux préparé et le plus certain. » (1)
-(x) W. Münch : Zukunftspädagogik. Pages 174-175.
-, ; 6 |
 
-ji
-© BINE ART VON BETHLEMITISCHEM KINDERMORD
 NX les tendances |
-we. ‘ is
 Non seulement l'école allemande tend à former des
 élèves moyens identiques, mais elle s'efforce aussi de
 . . leur inculquer les mêmes principes. Non seulement elle
@@ -2545,19 +2058,14 @@ secondaires suivront deux ou trois heures d'enseigne-
 | ment religieux par semaine durant toutes leurs classes.
 Aux examens de sortie il existe des épreuves spéciales
 et obligatoires pour la religion. Les élèves sont invités
-à prendre part aux exercices religieux. Aucune fête
 (1) Instructions ministérielles prussiennes de 1901. Dans : Documents relatifs à La réforme de l'enseignement secondaire en Prusse
-1900-1902. Paris 1902. Delagrave. Page 56.
 
-à 2 KT TONER EN SRE AP AE
-der Professor ist die deutsche Nationalkrankheit
 n'est célébrée à l'école sans qu'il soit prononcé une sorte
 
 À de sermon ou chanté un cantique. Les œuvres pieuses
 de toute nature sont autorisées à recruter des adhérents
 ou faire des quêtes dans les écoles. Au village, le prêtre
 est presque partout l'inspecteur. Aïlleurs, il a le droit de :
-contrôle. (1)
 Il y a plus. Non seulement les élèves sont instruits de
 la Bible et des choses religieuses, mais les autres enseignements — en particulier l'histoire et la littérature —
 doivent concourir à l'affermissement du sentiment religieux. « Il faut qu'à côté du récit des.événements euxmêmes, léclaircissement des circonstances intimes
@@ -2580,11 +2088,7 @@ f deux religions étaient parallèlement représentées. Un projet de ï
 loi fut déposé à ce sujet devant le Landtag prussien et souleva les
 polémiques les plus passionnées. Il fut adopté. En Bavière les |
 : intransigeants ont déjà obtenu satisfaction dans la pratique, ;
-(2) Instructions. Page 47. i À
-78 \
 
-A nue. |
-Um ART VON BETHLEMITISCHEM KINDERMORD |
 | D directs, du met à profit toutes les fêtes, (1) ou bien on
 ASE Set des autres enseignements, littérature, histoire “
 | ou gymnastique. « Le devoir tout particulier de l'ensei- MAL
@@ -2611,17 +2115,10 @@ l'emporte sur toute autre forme de gouvernement et, |
 . sans leur cacher les difficultés sociales de l'ère actuelle,
 les mettre vivement en garde contre les théories malsaines. « L'enseignement relatif à des questions écono- LR
  miques et sociales qui ont trait à notre époque (réservé À
-W Û
 ) (1) I est à noter que les fêtes ne sont pas pour les élèves uni- |
 …_  quement des jours de congé. Au contraire, ils sont réunis à Pécole |
 NA pour célébrer dignement Ja fète en commun,
-"4 (2) Znstructions. Page 18. :
-MEL (3) Id. Page 91. |
-Fa 79
-FA
 
-, Ph Re 1e Ans s
-der Professor ist die deutsche Nationalkrankheit
 aux classes de seconde, première division, et de première, seconde division) exige un tact particulièrement
 sûr et une grande circonspection dans le choix des
 sujets et dans l'exposition. Porté par un esprit moral
@@ -2648,11 +2145,8 @@ dans une école quelconque d'Allemagne, ou de feuilleter,
 
 un livre d'histoire, de littérature pour constater le zèle
 qu'apporte l'école à l'accomplissement de son « devoir
-moral »,
 
 Et cela suffit sans doute aussi à expliquer le mécon-
-
-(1) Znstructions. Page 48.
 
 (2) Paragraphe premier du projet de loi pour l'instruction primaire en Prusse. Stôtzner. Page 9.
 
@@ -2663,9 +2157,7 @@ de ces tendances et en expose la genèse philosophique et pédagogique. Notre po
 et relevons les principales critiques qui se sont fait entendre en
 
 , Allemagne à ce sujet.
-d
 
-EINE ART VON BETHLEMITISCHEM KINDERMORD
 ss tentement provoqué en maint endroit par ces pratiques,
 __ et les objections qu'elles ont soulevées.
 On se plaint que cette immixtion incessante et ME
@@ -2692,13 +2184,8 @@ une forme concrète ». (3)
 à tendances patriotiques ou religieuses occupent dans
 les heures de classe est incroyable. A mettre en lumière
 trop vive la valeur patriotique ou religieuse d'une |
-() Zakunft. 10 juin 1905.
 (2) L. Gurlitt : Der Deutsche und seine Schule. Pages 214-215.
-\ 6) W. Münch : Zukunftspädagogik. Page 3%.
-81 Professor. — 5.
 
-He Re
-der Professor ist die deutsche Nationalkrankheit
 œuvre, on laisse trop dans l'ombre sa valeur esthétique.
 
 Et même il ne serait pas malaisé de relever mainte
@@ -2729,11 +2216,7 @@ maintenir l'enseignement de l'histoire à un niveau infé- ?
 rieur. Vous rayez l'histoire du nombre des matières
 susceptibles de former l'intelligence. Vous l'empêchez, }l
 d'accomplir son œuvre la plus utile, qui est de dévelop-
-(1) Natorp : Sosialpädagogik. Page 308. ; |
-[211.88 é
 
-EINE ART VON BETHLEMITISCHEM KINDERMORD
-“aa L
 per le sens critique, si rare chez les élèves et chez les ]
 . hommes. Ou si vous préférez, vous détournez lhistoire L
 « de son véritable but qui est simplement d'habituer les
@@ -2763,10 +2246,7 @@ _ Est-il bien d'enseigner le loyalisme par une déloyauté ? 3
 D'autre part toute tendance est hostile par définition jh
 S _ à la tendance contraire. La force ascensionnelle du er 1
 ONCE) L. Gurlitt : Der Deutsche und seine Schule, Page 130. À
-do 83 |
-L'OAYEA “à
 
-der Professor ist die deutsche Nationalkrankheit
 ballon s'oppose à l'attraction terrestre. Le bon haiït le
 méchant. Il est bien diflicile, pour ne pas dire impossible, dé glorifier comme on le fait, la nationalité alle-
 ,  mande sans dauber sur les voisines. Qui dit tendance
@@ -2779,10 +2259,8 @@ notre jeunesse plus brave et plus patriotique, mais bien
 plus vantarde et injuste. » (1) Ou bien encore : « La diffusion de certaines idées politiques et historiques qu'on
 pratique aujourd'hui sous le nom de patriotisme, est
 littéralement un empoisonnement des jeunes âmes; car
-. . . . . 4 Le
 tout parti pris est un poison, puisqu'il tue la faculté
 d'être vrai et consciencieux, et crée une mentalité d'esclave ou — si l'on veut de valet. » (2)
-(1) F. Naumann : Die Zeit, 1902, numéro 6. }
 Conférez ce que dit un homme de théâtre allemand, sous le
 pseudonyme de W. Ulrich, de la classe intellectuelle allemande, L
 c'est-à-dire de celle qui a surtout passé par les écoles : « La classe
@@ -2800,14 +2278,8 @@ Tout lui devient matière à enseignement. Or le cerveau des Allemands dont je p
 périphrases, est heurté, choqué, froissé de la clarté, de la rapidité
 intellectuelle des Français ; de là naissance d'une'jalousie haineuse
 et féroce envers tout ce qui est beau et grand chez vous. » — Le
-Temps, du 26 août 1907.
 V (2) P. de Lagarde : Deutsche Schriften. Page 179.
 
-53 0 LUN RC NET NES LA
-HE DAC NN AU | x
-POUTINE NE à:
-à! ‘ ; fl
-___  ŒEINE ART VON BETHLEMITISCHEM KINDERMORD
 Il en va de même pour la religion. Naturellement les
 professeurs chargés de cet enseignement — et il faut se
 rappeler que ce sont tous les professeurs à tour de rôle
@@ -2827,7 +2299,6 @@ Mais en matière religieuse ce système a un autre in- ;
 voyez ce qui se produit. Vous exigez que les maîtres
 soient de parfaits chrétiens, aussi experts que le pasteur ou le curé en théologie. Mais pourrez-vous exiger
 d'eux qu'ils soient des croyants? Si certains d'entre \
-& + 2, L_+ 21:
 eux, prenant leur métier au sérieux, « délibèrent en
 _ conférences spéciales sur les versets de la Bible et les
 
@@ -2840,15 +2311,8 @@ __ joyeuses et humides années d'Université, monte dans la
 < gens parlent du haut d'une chaire d'église ou d'école, non seule-
 \ ment dans les Universités, mais encore dans les Gymnases et les
 k écoles primaires ». Zägliche Rundschau, 4 mai 1905, Cité par Gurlitt,
-Page 54.
-KE 85
-2 \ 4
-La
-Ronytn
 
-LA } ML MALE QE + DL ORNE ADNCE PRE
 LT L UE na ei F
-der Professor ist die deutsche Nationalkrankheït
 chaire de l'aula de l'école, pour faire un véritable
 sermon » pourrez-vous espérer qu'ils sont touchés de la
 foi, pourrez-vous empêcher que ce stagiaire ne prêche
@@ -2878,16 +2342,8 @@ piquant : « Les parents qui veulent échapper à la tyrannie de la
 droite et de la gauche, mais qui sont obligés par l'Etat de faire 7
 donner à leurs enfants un enseignement religieux, en sont réduits
 à leur faire suivre les cours de la religion juive. » ;
-(3) FE. Paulsen : Väter und Sühne. Deutsche Rundschau, mai 1907. F
-Page 23. L
-RON 4
-; 4 Lit 00
 
 RE TE ARS RE NI T2 Tr À tre
-LL ANR ANR TRE
-ÿ $ + CA ne TS eV 1 &ù HOGCUE" MORE PRE A LE 0 5 i
-ENST ART VON BETHLEMITISCHEM KINDERMORD | )
-Lu UGS nt AE { \ ) 5
 1 a colonne vertébrale passé à l'état endémique depuis
 _ une vingtaine d'années » (1) dont on a parlé. C'est ini 4
 qui explique encore l'attitude antipathique de nombreux Re
@@ -2899,7 +2355,6 @@ _ peuples et les autres croyances. 4 i
 En même temps cela explique le découragement, le Ex
 _ pessimisme dont se plaignait il n'y a pas longtemps 4
 . l'empereur Guillaume II. (2) Car ce triple culte de la ; FE
-L 4 F3 , - . : 1
 _ patrie, de l'empereur et de Dieu qu'on impose aux s'MT :
 . . élèves pèse sur eux comme un cauchemar dont ils souf- che se
 _ frent et s'efforcent de se débarrasser très vite, lorsqu'ils Le 3
@@ -2907,9 +2362,7 @@ ont percé à jour sa vanité. Et cela se produit dès qu'ils À
 prennent contact avec la vie réelle. Il leur suffit de com- is
 parer les éloges enthousiastes et livresques de l'école F :
 _ avec les difficultés présentes, l'idéal philosophique et ve
-LNS 7 r Le
 | TA ES
-(1) Th. Suse : Zukunft, 6 mai 1905. ES
 … (2) La contradiction apparente entre ces deux états d'esprit peut 0
 # ‘être levée. D'abord ces deux états ne se montrent pas en général Ti
 | dans les mêmes classes sociales ni dans les mêmes individus. Et 35
@@ -2926,13 +2379,7 @@ _ pour elle qu'un concept. Elle est nationale sinon nationaliste de TE
 Ÿ nands à obéir à leur empereur. Ce n'est pas sans quelque raison |
 —… que maître Hervé a pu parler du kaiser Bebel au récent congrès j H » international de Stuttgart. C'est dans le même sens que certains 2 A a PU
 ._ Allemands peuvent être souples et arrogants, ardents et abattus, < ve
-HF QE 87 3
-LAN + ;
-A NF NYSE
 
-: L
-
-der Professor ist die deutsche Nationalkrankheit
 moral qu'on leur a vanté avec le spectacle qui se
 déroule à leurs yeux enfin ouverts, pour que la plus
 vive désillusion les pénètre et les ronge. Ceux à qui la
@@ -2960,15 +2407,8 @@ des conceptions athéistes ». (2) « La contrainte morale
 exercée par l'État et l'école est en réalité cause du
 succès et de l'influence de la social-démocratie. » (3)
 
-(1) Natorp : Sozialpädagogik. Page 255.
-
-(2) W. Münch : Zukunftspädagogik. Page x10.
-
 (3) L. Gurlitt : Der Deutsche und seine Schule. Page 133.
 
-1 ÿ
-j = +
-Conclusion
 Il ne rentre pas dans le cadre de cet exposé de dis_ cuter les critiques faites à l'école allemande. Cela fut
 fait en surabondance là-bas, où pas une de ces critiques
 pour ainsi dire ne resta sans réponse. Constatons que
@@ -2991,10 +2431,7 @@ or seigner aux hommes à lever les yeux vers le ciel et à
 _ ne pas les baïsser toujours sur la réalité. Mais votre
 ciel n'est qu'un amas de nuages et votre élève n'aura
 4 pas fait vingt pas dans la vie qu'il donnera du nez
-ë
-URI ,
 
-der Professor ist die deutsche Nationalkrankheit
 contre un obstacle. Assez de rêveurs. Ce que la lutte
 moderne exige ce sont des esprits habitués à considérer
 le réel, à l'empoigner à pleines mains, des hommes
@@ -3022,11 +2459,8 @@ théories. Ils estiment que tout être, voire tout homme a
 le droit de se développer librement et qu'un homme même
 isolé a d'autres propriétés que la pierre brute. Ils pensent aussi que l'État allemand gagnera infiniment en
 solidité et en puissance si, loin de rogner et &égaliser
-} œ
-4 } 4
 
 FA PENR TRE TER et Let FT de RAR SN PEN Emme s 90
-de E ART VON BETHLEMITISCHEM KINDERMORD 1
 ‘les individus on laisse libre jeu à leur activité et met à |
 _ profit toutes leurs aptitudes spéciales. Er!
 Mais que signifient ces conflits? Ne sont-ils pas
@@ -3063,11 +2497,7 @@ travail de la maison... Partout on prescrit aux maîtres |
 de considérer les aptitudes spéciales et différentes des 4
 _ élèves, et souvent ces prescriptions sont suivies avec | L
 joie et amour. » (1) Les derniers programmes prussiens ù
-Û (à) F. Paulsen : Väter und Sühne. Deutsche Randschau, mai 1907. |
-\® pes xt <: #
-NA RPER | es 2 4
 
-der Professor ist die deutsche Nationalkrankheit
 de 1900 s'efforcent de mettre l'école mieux en harmonie
 avec l'évolution contemporaine. ÿ
 
@@ -3098,175 +2528,57 @@ en Allemagne, et qu'elles aient été entendues même en
 faible partie, ne peut-il réjouir ceux qui ont foi dans le
 triomphe de la véritable éducation ?
 
-GASTON RAPHAËL
-
 | £: RQ T:) ; « DE ee TEA à }
-3 SOMMAIRE BIBLIOGRAPHIQUE (
 ie A. — Ouvrages généraux et documents ,
 =. F: PAULSEN. — Geschichté" des gelehrten Unterrichts. Leip- Ê
-zig, 1885.
-W. Lexis. — Das Unterrichtswesen im Deutschen Reich.
 
 -_ Berlin. Asher. (6 volumes in-8° formant un total de plus |
 
-de 2.500 pages)
-
-. Zur Reform der Lehrerbildung im Kôünigreich Sachsen.
 | Eine Denkschrift herausgegeben vom sächsischen Lehrer- |
 
-vereine. Dresden, 1900.
-P. Fricx. — Die Lehrerbildung im Würtemberg. Stuttgart,
-À 1902.
 * H. Grorry. — Bestimmungen des Kôniglichen preussischen
-F Ministeriums vom 1. Juli, betreffend das Præparanden —
-und Seminarwesen, Berlin-Leipzig, 1902.
-..  Zentralblatt für die gesamte Unterrichtsverwaltung in
-Preussen.
 ._  Fræpgz. — Documents relatifs à la Réforme de l'enseigne1e _. ment secondaire en Prusse, 1900-1902. Paris, Delagrave,
 : _ B.— Études oritiques (ouvrages ou brochures)
-X..... — Rembrandt als Erzieher.
 
-.  X.... — Uber Rembrandt als Ersieher. Leipzig, 1891. Fe
-_ P. Gussegzpr. — Die Ersiehung der deutschen Jugend. :
-à Berlin, 1890.
-
-_  :H. GürmwG. — Die neue deutsche Schule. Ein: Weg zur Ver- q
 # wirklichung vaterländischer Erziehung. Leipzig, 1890.
- K: Sauurrz. — Deutsche Ersiehung. Leipzig, 1805.
-t J. BAUMANN. — Volksschulen, hôhere Schulen und Universime
-jf LÉ
 
 #
-eine Art von bethlemitischem Kindermord
-tälen, wie sie heutzutage eingerichtet sein sollten. Gôttingen. 1893.
-A. DôüriNG. — System der Pädagogik im Umriss. Berlin,
-à 1894. {
-H. Lisrz.— Emlohstobba. Roman oder Wirklichkeit ? Bilder
-aus dem Schulleben der Vergangenheiït, Gegenwart oder
-Zukunft ? Berlin, 1897.
-P. NarorP. — Sozialpädagogik. Stuttgart, 1899.
-P. BERGEMANN. — Sosiale Pädagogik. Gera, 1900. *  !
-G. KERSCHENSTEINER. — Sfaatsbürgerliche Erzsiehung der.
-deutschen Jugend. Erfurt, 1901.
-F. PAuLSsEN. — Die hôheren Schulen und das Universitätsstudium im 20. Jahrhundert. Braunschweig, 1901.
-ï R. LenmMANN. — Ersiehung und Erzieher. Berlin, 1901.
-E. Scmicrer. — Über die Schulreform 1890-91. Wiesbaden, 1902.
 L. Gurrirr. — Der Deutsche und sein Vaterland. Berlin,
-1902. ï
-H. Pupor. — Die neue Ersiehung. Leïpzig, 1903. ‘
-A. von WALDBERG. — Schulgedanken eines Gymnasialabiturienten von 1903.
-W. Müncu. — Zukunftspädagogik. Berlin, 1904.
-Doctor Ruenius. — Wo bleibt die Schutreform ? Leipzig,
 
-E. von SCHENKENDORFF. — Wehrkraft und ÆErsiehung.
-Leipzig, 1904.
-G. KERSCHENSTEINER. — Zwischen Schule und Wafjendienst.
 L. Guruirr. — Der Deutsche und seine Schule. Berlin, 1905.
-Professor PREYER. — Unser Kaiser und die Schutreform.
-Dresden, 1905.
-A. KALTHOrF. — Schule und Kulturstaat. Leipzig, 1905.
-Professor REIN. — Kirche, Staat und Schule. Moderne
-Streitfragen. Berlin, 1905. k
-Doctor Marruras. — Die soziale und rpolitische Bedeutung
-der Schulreform vom Jahre 1900. Berlin, 1909.
 A. von WaALpBErc. — Schlaglichter aus der Sphäre: des
-Gymnasiums. Dresden, 1905.
-P. MacuuLs. — Zur preussischen Schulpolitik. Breslau, 1905.
-E. Gozngecx. — Xrieg in Sicht. Leipzig, 1906. No
 
-kr SOMMAIRE BIBLIOGRAPHIQUE
-W. Müncu. — ÆEllern, Lehrer und Schulen in der Gegenwart. Berlin, 1906.
 Conférez les articles et brochures de Johannes Müller,
-Stendel, Paul Fürster, Graevell, F, Hueppe. s
-C. — Revues pédagogiques
-Pädagogische Zeitung.
-Bayerische Lehrerzeitung.
-Schweiserische Lehrerseitung.
-Deutsche Blätter für den erziehenden Unterricht.
-Der Säemann. '
-Blätter für deutsche Erziehung. 6
-4 Allgemeine Tage für deutsche Erziehung. (1)
-Kunsterziehungstage. (1)
-Zeitschrift für das hôühere Gymnasialwesen.
-Korrespondensblatt für den akademisch gebildeten Lehrerstand.
-Das humanistische Gymnasium.
-Die neue Schule.
-Neue Bahnen.
 Zeitschrift für die Reform der hôheren Schulen. Organ des
-Vereins für Schulreform.
-Revue pédagogique.
 Revue internationale de l'enseignement.
-. Revue Bleue.
-Revue Universitaire.
 . D. — Œuvres littéraires ayant trait à l'école
-H. Hussk. — Unterm Rad.
-E. SrRAUSS. — Freund Hein.
 R. Musis. — Die Verwirrungen des Züglings Türless.
-H. Hanr.— Was zur Sonne will,
-(1) Comptes rendus.
 
-% Ÿ 19 ET
-RON PR ;
-eine Art von bethlemitischem Kindermord À
-R. SanDex. — Eine Gymnasiastentragüdie. FOX 2
 G. NAUMANN. — Otto der Ausreisser. Po ie L:
-F. WepEekINp. — Frühlings Erwachen. (1) AE 4
-R. Misc. — Kinder. Fi 13
 J. BERBAUM. — Stilpe. l je :
-Ÿ H. SuDERMANN. — Sturmgeselle Sokrates. \
-A. Hozz. — Traumulus. < ‘4
-; H. MANN. — Professor Unrat. à
-H. HorFMANN. — Das Gymnasium zu Stolpenburg. x %
 F. Hozzänper. — Der Weg des Thomas Truck. &
 ñ Conférez les œuvres de T. Mann, A. Holtermann, O.Schmitz, *
 | A. Geiger, F. Pistorius, W. Schwaner, H. Scharrelmann, |
 H. Krüger, L. Thoma, ©. Jerschke, F. Huch. ra ‘1
 | ? ME | 4
-à NE.
 | rs |
-ù |
-< i
 | è |
-« |
-VE |
-" 1
-20n° >: 14
-{ 4 FL] | 1
 { (1) Signalons à propos de cet ouvrage que de nombreuses questions autres que celle de l'éducation proprement dite sont traitées
 dans ces œuvres littéraires. En particulier ici, et dans certains
 romans, celle de la puberté. qi
-FA ne ï x,
 
-DEN QU 1 É T A hi
-mue 104 LR DAME AP ‘à Are MEURT Hits ft As
 REA en tin WU DA À L ni 1 279 à 4 int nt
-ANS (our c'e LA RAT 2 % 4 44 DO À
 DRE les ir À ANS it ÿ
-8 44 NE a IVe A Paré HAUTE : SP UTERS FAATEAE :
-110 1e RE À Pt Er A AA RUE + 1° Va 133
-4 Dr HAE A À Lo x Va. Ir AT 4
-AE th 14 Ait à à LIRCIRE » aa 5 2
-4 DA RACE OST LR
 18 Que mn Ml ip HN" PAL NL g 4 | en L'TES
 re QU 1 FE LE ' j : LU FA Let RER À EN:
 NEA An 10 eut AIT A , are 4 NE TA.
-Mau ATEN JEAN CARD n j ” k RL Fr K Kb Ts 8
 ne D Re \ NA : L NE en MR
 ta RAR MENU nd 4 RE. a ONE! vs . era Ÿ Mur à
-LE DT ju RAA Le :} \ PLUS ROUE LE Le
 AR "ar ET “A0 ti NE +1
 Fu dis Pet ÿ DANET HAT EM 4 Ê RU + L "CR
 DUR (ARTE je {ue ATEN 1 D L HUE # NC
 Aa y (VAN ES DEN ri {L Ata AT #9 0 “;
-AN 1k FA ATES 184 ? ais C4 tive
-* TE é dr Vi x9) À ' » ) LE UE ERA M
 At re) Eitée la SAN TC | QE T An PLAN
-EN d'u Ft AVE PA JOUE ul! « te, ‘À FPrLE 0 ul nr.
-MAP ANAL Ye a AU à De 2 rt 16
-‘AA LT : te AUS Nu Ne JAI
-NAS RU ILES ‘HAT TES
-ol ste NANTES ME 4 ME: | 4478
-LS “HT FRAME RD UT
 
 MANU EE on A Les PA 4 10
 bete RUN MEN MAP Ne
@@ -3276,27 +2588,15 @@ AE AE dei ARR NAN NE AAA pe Re pe AU
 l 0) Due nl je PARA RE NN qu TS da 4
 AN ARE ‘#4 JAY CR AT RU (7 NE he AU je LA NL y UP
 Ha AFAE AE ÿ PAU NA AN ve 11 UNE f, 1e de MALO
-PONS RE ie À Ve AE ! d { NEA REA si (V4 a MER ÿ re GATE
 GENE DA je MAR A DEC HAN" FA
-Le) NPA Ve Ü 4x LOUE EX NE A0 A An 4 ERA
 AE LA Al ju" di { * “us PACA NE PTS Not MAS CEUE W/ PR T 114
-SA WE f ( 0 % D AE era HR AN DIE
-(1082 | RUE NE An ARVA Fa 0 (OS A
-ER / ANAL a ee AM , El
-NL A QU cf À MU URS UT FA NAEER su NL N'ES
-ART RAONN 10 } RE (AE PAT DOTE NAT 10
-MOD : AA 14 s SO DATE NPENT (EX AA. “APRES x SNA
 UN Vtt 1 Tera AS ; AA TEL éd JA DV dE NRORAT LS
 AN IX METVUN \ RAI YTRANT ré DA ap) de G AA STE AO AO VEUX aps NI
-*ARUA DA | ‘ } M à PAT a is RUE RES va
 Fu AU RUN k JR faut ane RUE Qu ANT EE j'a VS ne
-EAU ET “4 t GATE AA LUE Va MOT A SUN A Su A
 SAR He un k 4 Ù À À RME YOANN K 1 Rent RUE RME HEIN He 6
-FASO NAN | ALES Fou Re
 PAU MG D ‘1 APN os AT af ta A (0e PANE A GR NEE
 ta FrAAN AR 9) AY \ÈS ; ANT AN ARR DA nie LOL DEVRA RENNES
 
-RERES
 joie JON NE
 Il a été tiré de ce cahier douze exemplaires sur
 whatman ainsi distribués :
@@ -3304,7 +2604,6 @@ premier exemplaire de souche, exernplaire du gérant;
 deuxième exemplaire de souche, exemplaire de Vadministrateur ;
 troisième exemplaire de souche, exemplaire de l'imprimeur ;
 neuf exemplaires d'abonnement, numérotés de 1 à 9
-exemplaires d'abonnement. -
 4 Tous nos exemplaires sur whatman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque in- k
@@ -3314,39 +2613,17 @@ sur whatman à cette neuvième série est de cent francs
 pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main, |
 …_ en caractères fin dix-huilième siècle (Didot) de Ja fon- »  derie Mayeur (Allainguillaume et compagnie successeurs) 21, rue du Montparnasse, à Paris, sixième |
-arrondissement.
 
-APT SEE VRAI . SEE AUTO UE ere SO CATRREN RE PNA Ve
 LATE fes ne Ta \ { AE TUE 1 NE ps 4
 2 su BYPRAUES À à AÉENAURE AMEN CARE SS je
 ASS MeRTE L'TUDE à } eus] age Hiva RAGE fn
-LR PV CIRE ere pris LEP he ee VEN
 CNE DA RE ou + ! as A SAS
-M A A TER rue (NTI
 
-jx ÉS RUNIEE À £ 2 us DATA US fa
-NX T's CAT : : RENE Fee PARIS
-AAC SIN ; EURE amino LAVE
-PL TS ; k HEAR LE
 NE MUT HSE | À Rouen
-AUX Hs UE à SH TERS PAIE Are
-LEE FÉES “ ct (HART Ad PAT En re)
-NU Pr APE LE f = PAL PATES AD E) Lt
-40e { A EE CAT Serre OAI RE LS
-ANR AE (4 À RAS ant DR
-COMENT 1e 2 ‘ ASE SEA MERE t4
 ne, ce AE ar Et TN His Le AN DOS
-Or a US SO C4 ? b DEA s Are HA FH TL LAUA À
-EE PARTS TN NL à . ANSE HAS SRE
 
 | Me ur à IA Fe # Ü x SAYEUVEEÉ DE À
 
-(Te 2% Qi ANNE AAA 13 re. Q k { 5) GR: à
-DRE HART RL DACEEN ER DR EN
-
-à CARNET Bts + és REA Ve É
-pe Re pra pe
-- Ar TAPER AE RS 4e KMS
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 ils } ifit d'envoyer un mandat de trois francs cinquante — A ee
 a. André Bourgeois, administrateur des cahiers,
@@ -3354,59 +2631,28 @@ _ &. rue de la Sorbonne, rez-de-chaussée, Paris, cinquième f WU.
 a rondissement. On recevra en spécimens six cahiers
 de la deuxième, de la troisième, de la quatrième, de la AE À
 5 ing uième, de la sixième ou de la septième série. % EU)
-‘+ Ve: : ; POUR k
-1 VAE 7 : * s = É St ‘
 VE Pour savoir ce qui a paru dans les cinq premières Nes
 | séries des cahiers, 1900-1904, envoyer un mdndat de RUE
-Ë: “+ A AN €
 al francs à M. André Bourgeois, méme adresse; on 2 Ÿ
 | recevra en retour le catalogue analytique sommaire, 4e
 1900 -1904, de nos cinq premières séries, premier cahier C3 fs r x
 {della sixième série, un très fort cahier de XI1H408
-{ Ai À Ê à p+0552 WP CEA
 pas | Li dette in-18 grand jésus, marqué cinq francs. est RE
 * Pour s'abonner à la neuvième série des cahiers, qui GPA in À
 J dirt en cours, envoyer en un mandat à M. André PSS LU
 RES eois, même adresse, le prix de l'abonnement; on
 … recevra les cahiers parus, et de quinzaine en quinsaine, ds .
 . à leur date, les cahiers à paraître degcette neuvième A Où
-GT Necties AA": 2
-STI ANS SE
-eh LU2 "1: VA (UE #9
 vi: SONT EN
-È ; LEE AS
-A ot: 4 x Ne $ VRP à
-RAA: VA UME US
-4 STE | d és
-LOTS \0 \ + Professor. = 86 2000 ne à
-T0 \ À NULT SE pi
-7 HITS LTLUF EIRE
 
-FLOU ji ph M EN MAIRE ñ j'a
-A X OU ENTRE JA NUE CUT fa RE RP NOR CRE LES
 FA Fi D LE Pr PANNES de ni ia EC MU PNA A CA RUN
 sn) MR A NPA I AA RE ce Ga a TARN AA ANNEE GA (pare SAN %
-AP 5 RAILS LS ANSE ARENA MURPON RS SC UE AQU An
-JANINE AUANR Wa EN PEU AU ANA REY
-L'ERNSN ANEES Le A LE NT SAME NS Na ATTENTION
-10 HAS K ‘9 a VAL SO Re Ne HEUUXE 540 EU R
-1 LS NADINE RAM RE CENT
-ADN AT ‘ Î i Hire Le AD MATE PR RU TEA RER
 RARE Lun | ù î ? LC NA AT PANNE QUE DEN.
-GC UE fa QU PE PANAE EE ANA CVS TEE
-4 PT SONT TO À ‘ LA PAPER) CERNEURE RENNES EAN AA
-ANNE : v AE TN NAN UE SES à A NAN
 LM UE jeu TA CAES ir CINE AE pd
-ST AREAS AL à AU RTS ÿ 4 A4 ET Men
-PANNES LES Ode (45e URIAEN à 8 ARTE LE NOT ÿ! LUE À
 SO PAU \ PARA LA sn Ne tr Fe NN NN TE EE
 MR NUE VF LE 8 pu TUE à, {9 NUIT OERENSS HAN RUE TE N'a oi
-FAN (A6 AV 4 { MAP AAUTIE D ST PANNES ERRNEE RARE
-1 VOA EM AAA ! “ PATES ? DS NU 2,20 ORNE TETE AR
 RE TA AE ve Autie LAINE
-d ns SA 1 RENE AE (:# CURE RU TE DATANT MONA ÿ 4 RAM AVR EN
 
-A ee RAP RE
 A UT on in PANNES
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
 ni | rez-de-chaussée, Paris, cinquième arrondissement. TR
@@ -3424,10 +2670,7 @@ h? … l'année, mais l'abonnement ainsi souscrit est, de droit, és ‘à ï
 ji valable pour la série en cours. où ne.
 nr Prix de l'abonnement, pour chaque série annuelle nt).
 … pendant le cours de cette série : A
-É: 4 ! Paris, départements, Alsace-Lorraine, 4
-' … Abonnement ordi- \ Algérie, Tunisie.... vingt francs ‘
 (8 1 202 LE DANONE ( Autres pays de l'Union postale uni- we:
-Ÿ Cu verseile....... vingt-cinq francs
 é Me . Abonnement sur whatman... cent franos pour tous pays" 0
 è | Les exemplaires sur whatman, tirage non réimposé, | À
 SAND sont numérotés à la presse et imprimés au nom du
@@ -3441,30 +2684,15 @@ Ut naturellement aux premières inscriptions; c'est cecnmæ ne
 _ méro d'inscription qui devient automatiquement le
 A numéro du tirage réservé à chacun des souscripteurs: *E
 _ l'édition sur whatman est strictement limitée au
-re . nombre d'exemplaires à chaque instant souscrit. fai,
 
 Vi LT (2 Las RENE PRE Or pe te M CIE SAT et AE Re Da
-AU MEN h 4 [INR AMATS ESS ee
-ENT PU L PORES PE RE
 er au PAIE Da £ F RC ENMORURS SUR 138
 ROUES Gran 1 ET PRCIAr ‘38
-Eu) FAD ANNEE 4 ; e HUE PES 70)
 pa MES ÿ è A TR AL piNUGrS FN
-LS LA VEN Er LAC As LR Or a TEE Cr:
-5 RENOM UE Ve 48 Ar NT TO
-er) ENS Li, 44 % ANSE IQ PÉEMRA CE Ph.
-FARINE : F RENE N' Ne
 LME FN OR EURE + se re soe hr Le PRE LA
-AURAS 1 LEE IT ADR
-Lin 1} RER) RP 7 Ce ? SON PAS VAt 1
-NES NAT , PAU LEE at é>} nr Re 4
 LE 0 Pen , 4 (Una MERE RES nef
 
-y L'ERe WU | Fr AE Es
-
 PAT. sa FUN CR | NEC PER pe REA 0
-
-ER Mrs YO A FO + POS PERAN TIQUE AE
 
 _ Pour tout changement d'adresse envoyer soixante
 centimes, six limbres de dix centimes. g
@@ -3491,5 +2719,3 @@ _ d'une série, le prix de cette série est porté au moins £
 
 au total des prix marqués; ainsi à dater du premier }
 . janvier 1908 la huitième série complète se vend He
-_ trente-six francs. ‘1
-ne _

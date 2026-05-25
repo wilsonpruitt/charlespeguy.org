@@ -7,15 +7,10 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 39751
 ---
-
 ## Pour ou contre le socialisme. La préparation du congrès socialiste national
 
-*Charles Péguy*
-
-POUR ET CONTRE LE SOCIALISME
 Les journaux du jeudi 23 novembre publiaient le discours prononcé par Anatole France à l'inauguration de
 l'Emancipation, université populaire du quinzième arrondissement
-LA LIBERTÉ PAR L'ÉTUDE (1)
 Citoyennes et citoyens,
 L'association que nous inaugurons aujourd'hui
 est formée pour l'étude. C'est un groupe d'hommes
@@ -81,11 +76,9 @@ un passé récent l'origine de l'état actuel de la société. Là encore, là s
 grand profit. En recherchant comment s'est formée
 et accrue la force capitaliste, vous jugerez mieux
 
-Li . , D RER SAPIN PRET
 des moyens qu'il faut employer pour la maîtriser, à
 l'exemple de ces grands inventeurs qui n'ont
 asservi la nature qu'après l'avoir parfaitement
-observée.
 
 Vous étudierez les faits de bonne foi, sans parti
 pris ni système préconçu. Les vrais savants — et
@@ -118,7 +111,6 @@ le point où finit l'utile et où commence l'agréable ?
 Une chanson, est-ce que cela ne sert à rien? La
 Marseillaise et la Carmagnole ont renversé les armées des rois et des empereurs. Est-ce qu'un sourire
 est inutile? Est-ce donc si peu de plaire et de
-charmer?
 
 Vous entendez parfois des moralistes vous dire
 qu'il ne faut rien accorder à l'agrément dans la vie.
@@ -142,7 +134,6 @@ et lorsqu'une forme heureuse ou une pensée riante
 nous offre du plaisir, ne le refusons pas. Votre association est de cet avis. Elle est prête à vous offrir,
 avec des pensées utiles, des pensées agréables, qui
 sont utiles aussi. Elle vous fera connaître les grands
-poètes: Racine, Corneille, Molière, Victor Hugo,
 Shakespeare. Aïnsi nourris, vos esprits croîtront
 en force et en beauté.
 Et il est temps, citoyens, qu'on sente votre force,
@@ -164,9 +155,6 @@ par l'étude et la réflexion, de préparer l'avènement
 de la justice sociale et de la paix universelle.
 
 Le Figaro du mercredi 3 janvier publiait l'article
-suivant
-HISTOIRE CONTEMPORAINE
-CLOPINEL
 
 C'était le premier jour de l'an. Par les rues blondes d'une boue fraîche, entre deux averses, M. Bergeret et sa fille Pauline allaient porter leurs souhaits
 à une tante maternelle qui vivait encore, mais pour
@@ -205,7 +193,6 @@ au fort sa puissance et au faible sa faiblesse, j'ai
 scellé de mon sceau l'antique iniquité, j'ai contribué
 à ce que cet homme n'eût qu'une moitié d'âme.
 — Tu as fait tout cela, papa ? demanda Pauline
-incrédule.
 — Presque tout cela, répondit M. Bergeret. J'ai
 vendu à mon frère Clopinel de la fraternité à faux
 poids. Je me suis humilié en l'humiliant. Car l'aumône avilit également celui qui la reçoit et celui qui
@@ -308,7 +295,6 @@ qu'il n'a pas assez reçu.
 î ment ferons-nous, mon Dieu, pour qu'il n'y ait plus
 de pauvres, plus de faibles ni de paresseux ? Est-ce
 que tu ne crois pas que les hommes sont bons naturellement et que c'est la société qui les rend mé-
-chants?
 
 — Non. Je ne crois pas que les hommes sont bons
 naturellement, répondit M. Bergeret. Je vois plutôt
@@ -327,7 +313,6 @@ moins féroces quand ils sont moins misérables, que
 les progrès de l'industrie déterminent à la longue
 quelque adoucissement dans les mœurs, et je tiens
 d'un botaniste que l'aubépine transportée d'un terrain sec en un sol gras y change ses épines en
-fleurs.
 — Vois-tu? tu es optimiste, papa! Je le savais
 bien, s'écria Pauline en s'arrêtant au milieu du
 trottoir pour fixer un moment sur son père le
@@ -336,10 +321,8 @@ douce et de fraîcheur matinale. Tu es optimiste.
 Tu travailles de bon cœur à bâtir la maison
 future. C'est bien! cela. C'est beau de construire
 avec les hommes de bonne volonté la république
-nouvelle.
 
 M. Bergeret sourit à cette parole d'espoir et à ces
-yeux d'aurore.
 
 — Oui, dit-il, ce serait beau d'établir la société
 nouvelle, où chacun recevrait le prix de son travail.
@@ -347,7 +330,6 @@ nouvelle, où chacun recevrait le prix de son travail.
 — Est-ce que cela ne sera pas fait bientôt? demanda Pauline avec candeur.
 
 Et M. Bergeret répondit, non sans douceur ni
-tristesse
 — Ne me demande pas de prophétiser, mon enfant. Ce n'est pas sans raison que les anciens ont
 considéré le pouvoir de percer l'avenir comme
 le don le plus funeste que puisse recevoir un
@@ -360,7 +342,6 @@ sans le voir.
 
 Ainsi conversaient en cheminant le père et la
 fille. Devant le square de la rue de Sèvres, ils rencontrèrent un mendigot solidement implanté sur le
-trottoir.
 
 — Je n'ai plus de monnaie, dit M. Bergeret.
 As-tu une pièce de dix sous à me donner,
@@ -372,14 +353,8 @@ rable est une barrière que je ne saurais franchir.
 C'est une faiblesse que je ne puis vaincre. Donne
 à ce truand. C'est pardonnable. Il ne faut pas
 s'exagérer le mal qu'on fait.
-ANATOLE FRANCE
-
-L
 
 Le Figaro du mercredi 10 janvier publiait l'article
-suivant
-HISTOIRE CONTEMPORAINE
-APRÈS CLOPINEL
 
 — Papa, je suis inquiète de savoir ce que tu feras
 de Clopinel, dans ta république. Car tu ne penses
@@ -390,7 +365,6 @@ consentira à disparaître. Il est déjà très diminué.
 La paresse, le goût du repos le dispose à l''évanouissement final. Il rentrera dans le néant avec facilité.
 
 — Je crois au contraire qu'il est très content de
-vivre.
 
 — Il est vrai qu'il a des joies. Il lui est délicieux
 sans doute d'avaler le vitriol de l'assommoir. Il
@@ -478,7 +452,6 @@ riches d'entre nous sont encore peu de chose en
 comparaison de ceux qui appartiennent indistinetement à tous les hommes. Et dans notre société
 même, ne vois-tu pas que les biens les plus doux ou
 les plus splendides, routes, fleuves, forêts autrefois
-royales, bibliothèques, musées, appartiennent
 tous ? Aucun riche ne possède plus que moi ce vieux
 chène de Fontainebleau ou ce tableau du Louvre.
 Et ils sont plus à moi qu'au riche si je sais mieux
@@ -497,7 +470,6 @@ l'État dont elle dépend nécessairement. Et qu'est-ce
 que l'État ?..
 
 Mlle Bergeret s'empressa de répondre à cette
-question
 — L'État, mon père, c'est un monsieur piteux et
 
 malgracieux assis derrière un guichet.Tu comprends
@@ -580,7 +552,6 @@ qui y assistèrent. Les transformations sociales
 L'homme timide redoute, comme un cataclysme
 futur, un changement commencé avant sa naissance, qui s'opère sous ses yeux, sans qu'il le voie,
 et qui ne deviendra sensible que dans un siècle. »
-ANATOLE FRANCE
 
 Le Figaro du vendredi 12 janvier publiaït un article
 de M. Jules Roche, intitulé : Contre le Socialisme. — I.
@@ -613,7 +584,6 @@ pour cette œuvre, tant de persévérance et d'audace
 que l'historien anglais, s'il assistait à ce spectacle,
 éprouverait de plus vives angoisses encore que
 celles qu'il exprima si éloquemment il y a plus d'un
-demi-siècle.
 
 Tout le monde, pourtant, n'est pas de son avis.
 
@@ -644,7 +614,6 @@ de sa vie, — plus les principes et les conditions
 nécessaires de cette civilisation se trouvent violemment attaqués et mis en péril par le socialisme.
 
 Le Figaro du mercredi 17 janvier publiait sous ce
-titre : Histoire contemporaine. — Spectacle consolant,
 un article d'Anatole France dont nous donnons la conclusion
 .… En écoutant notre ami Paulin Ligier, je
 croyais lire un article de Maxime Du Camp sur le
@@ -679,13 +648,6 @@ contre ses ennemis. Aux universités populaires
 opposons des universités. J'ai trouvé un bon nom
 pour les nôtres.
 
-— Lequel ?
-
-— Universités populaires. »
-
-LA PRÉPARATION
-DU CONGRÈS SOCIALISTE NATIONAL
-
 J'étais si attristé des confidences que l'homme socialiste révolutionnaire moraliste internationaliste m'avait
 faites que je n'eus pas de cesse et que je désirais douloureusement le revoir. Un ami voulut bien corriger les
 dernières épreuves du second cahier. Je pris dans ma
@@ -695,7 +657,6 @@ le docteur.
 — Pourquoi, me dit-il, ne vous êtes-vous pas donné
 le loisir de recueillir de nouveaux renseignements et de
 nouveaux documents sur la préparation du Congrès
-socialiste national ?
 
 — Je les recueillerai demain, citoyen docteur, et je
 les mettrai aussi bien dans mon troisième cahier. Mais
@@ -711,13 +672,11 @@ et vers ceux qui vous en font. Cela n'est pas sain.
 Prenez garde : c'est ainsi que l'on passe immanquablement de la connaissance à l'action, et que l'on devient
 socialiste charitable, ce qui n'est pas une variété pure
 
-PRÉPARATION DU CONGRÈS
 du socialisme. C'est ainsi que vous vous affaiblirez pour
 l'action même et que vous vous atténuerez. La peine
 subie en face des adversaires qui agissent cause un
 affaiblissement, mais la peine subie avec les camarades
 et les amis qui pâtissent cause parfois une irrémédiable
-désespérance.
 — Docteur, commençons par le commencement.
 Puisque nous pouvons et devons faire des personnalités,
 dans l'ordre de la connaïssance, voulez-vous que nous
@@ -759,7 +718,6 @@ la gravité des circonstances réclamait tous ses instants
 et toute sa force pour l'action publique.
 
 Universitaire, ayant régulièrement suivi la carrière
-universitaire, y ayant avancé régulièrement, professeur
 de philosophie, docteur en philosophie, comment et
 pourquoi Jaurès est-il devenu socialiste? Il a donné
 lui-même cette simple réponse dans l'Avant-Propos
@@ -822,7 +780,6 @@ la science, de la culture humaine était la plus intéressante, la plus pressée
 Et dans la séance du 1°" décembre 1888 il insistait fortement sur cette idée que l'on ne doit pas considérer l'enseignement primaire comme un enseignement petit,
 fermé, arrêté, immobilisé dans les utilités immédiates
 « Je ne sais pas en vertu de quel préjugé nous refuserions aux enfants du peuple une culture équivalente » (1)
-() Action Socialiste, première série, page 24.
 
 à celle que reçoivent les enfants de la bourgeoisie.
 « Lorsqu'on voit que l'éducation des enfants de la bourgeoisie est conduite dès les premiers pas en vue d'une
@@ -845,11 +802,7 @@ tous les ordres d'enseignement pour élever peu à peu
 l'enseignement primaire, alors vous aurez assuré à la
 démocratie française un enseignement digne d'elle, vous
 
-(1) Action Socialiste, première série, page 25.
-
 (2) Action Socialiste, première série, pages 26 et 27.
-
-(3) Action Socialiste, première série, page 31.
 
 aurez préparé par la coordination et la coopération de
 tous les enseignements, d'un bout à l'autre de l'échelle,
@@ -874,8 +827,6 @@ est bourgeoise, car la guerre est fondée sur la compétition, sur la rivalité,
 bourgeoise, et la lutte des classes est bourgeoise comme
 les autres luttes. Elle est une concession du socialisme
 à la bourgeoisie, comme les armements d'un peuple pacifique sont, en un sens, une concession faite à ses voisins belliqueux. De même qu'il n'est pas du tout certain
-
-(1) Action Socialiste, première série, page 32.
 
 que la paix militaire internationale soit jamais établie
 par l'écrasement militaire des peuples belliqueux sous
@@ -925,8 +876,6 @@ facteur de la révolution sociale. En ce sens-il pouvait,
 dans la fièvre du combat, crier la joie amère qu'il avait
 à voir la société ennemie s'enfoncer ainsi dans sa pourriture et précipiter sa propre ruine. Mais comme on sentait bien que cette joie de fièvre et d'amère indignation
 
-SA KCE hÉ" Vof EPS RCI A AÉN EEE RS ÊCEr x
-
 m'était pas entière, n'était pas son habituelle et innocente joie de convertisseur ! Cette même culture géné-
 rale, cette même philosophie qui l'avaient conduit au
 socialisme l'avaient heureusement prémuni contre toute
@@ -966,7 +915,6 @@ et cette universalité affaiblit sa force révolutionnaire, il
 y puisait au contraire les éléments premiers de sa conviction, il y trouvait les puissantes bases de son assurance, de sa robustesse, de sa solidité vigoureuse, montrant ainsi que l'étroitesse de la pensée n'est nullement
 nécessaire à la vigueur de l'action, que la petitesse des
 vues n'est pas le gage nécessaire de la solidité. Des
-haïines vigoureuses
 Que doit donner le vice aux âmes vertueuses,
 il n'avait gardé que la vigueur. Quoi qu'il en ait dit
 parfois, et quoi qu'il en ait voulu croire, il ignorait
@@ -994,14 +942,12 @@ monte et fond la bourgeoisie capitaliste, Jaurès avait
 redemandé à l'antiquité grecque la comparaison homé-
 rique de la mer qui monte et fond la neige; quelquesuns trouvèrent la comparaison déplacée, la croyant
 solennelle, n'interrompirent pas, mais firent du bruit.
-Jaurès brusquement s'arrêta
 — (Et c'est nous! » s'écria-t-il,« c'est nous qui sommes
 les barbares ! »
 Ce mot barbares, ainsi improvisé, ainsi jeté, à la fois
 exact au sens ancien, puisqu'ils avaient fait du bruit
 Homère, et au sens moderne, puisqu'ils avaient fait du ,
 bruit au socialisme, ce mot qui rattachait la Révolution
-sociale aux premiers essais d'humanité harmonieuse
 eut un retentissement extraordinaire, et les barbares se
 le tinrent pour dit.
 
@@ -1032,7 +978,6 @@ vent, et qui laisse aux notaires le soin d'enregistrer la
 
 moisson. Nous retrouverons ce discours quand nous
 aurons la deuxième et la troisième série de l'Action
-Socialiste.
 
 Le docteur ne dit mot et continua sa lecture
 Dans le groupe alors constitué à la Chambre, les différents orateurs s'étaient volontiers spécialisés. Vaillant,
@@ -1100,9 +1045,6 @@ parti de la paix. » (2) Il posait et résolvait la question
 d'Alsace-Lorraine sans aucune faiblesse: « Nous n'oublions pas la blessure profonde reçue par la pairie, parce
 qu'elle est en même temps une blessure profonde reçue
 
-(1) Action Socialiste, première série, page 401.
-(2) Action Socialiste, première série, page 403.
-
 par le droit universel des peuples. Mais si nous ne nous
 reconnaissons pas le droit d'oublier, nous ne nous
 reconnaissons pas et nous ne reconnaissons à personne
@@ -1129,9 +1071,7 @@ ou pour leurs combinaisons parlementaires, sont obligés de caresser à la fois 
 lorsqu'ils ressuscitent ainsi, par la simultanéité forcée
 et étrange de leur démarche, l'unité visible du peuple
 qu'ils s'étaient partagé, j'ai le droit de dire que la jus-
-(1) Action Socialiste, première série, page 404.
 
-tice immanente a aujourd'hui en Europe d'autres moyens
 et d'autres voies que la guerre. La nation conquérante
 ne peut développer ses propres libertés qu'en les communiquant aux conquis, aux vaincus eux-mêmes ; et
 comme ceux-ci sont un peuple par les idées, par les sentiments, par les traditions et par les espérances, par les
@@ -1158,7 +1098,6 @@ humaine qui, après avoir échappé à l'esclavage et au
 
 servage, veut et doit échapper au salariat. » (1)
 Mais, pour les raisons que nous avons données, une
-() Action Socialiste, première série, page 409.
 
 véritable prédilection le ramenait aux questions d'enseignement. Il défendait les libertés du personnel enseignant, non pas seulement les libertés étroitement professionnelles, mais encore et surtout la liberté de penser
 et la liberté d'enseigner, qui sont aussi, en un sens
@@ -1211,7 +1150,6 @@ domaines gallo-romains, sous la hiérarchie de la pro-
 
 (2) Action Socialiste, première série, pages 227 et 228.
 
-k PRÉPARATION DU CONGRÈS
 priété féodale, sous l'égoïsme de la propriété bourgeoise
 et financière, toujours ils ont laissé couler vers d'autres,
 vers une minorité oisive, les sources du blé et du vin,
@@ -1236,7 +1174,6 @@ bon que pendant des années, sur leurs champs étroits, les
 paysans aient pâti par l'effet de phénomènes écono-
 
 () Discours prononcé à la Chambre des Députés sur la crise agricole, ses causes et ses remèdes; première partie, prononcée le
-juin 1897 : Détresse paysanne.
 
 miques lointains et vastes; trop longtemps le paysan
 s'était enfermé dans un individualisme étroit et aveugle;
@@ -1302,7 +1239,6 @@ relevant les épis; c'est un souffle d'humanité, désordonné encore et brutal,
 l'égoïste et l'isolé, c'est par la longue souffrance des
 crises qu'il est entré en vivante communion avec la race
 humaine. Non! toutes ses souffrances n'ont pas été
-perdues ! » (1)
 
 Jaurès atteignait ainsi à la suprême éloquence; et
 l'admiration de ses adversaires mêmes lui faisait cortège
@@ -1310,8 +1246,6 @@ avec l'assentiment de tous ses camarades et l'amitié de
 tous ses amis, quand l'affaire Dreyfus vint lui proposer
 un devoir plus rare et plus difficile, et révéler en lui
 vraiment un homme nouveau.
-
-Ête
 
 L'affaire Dreyfus, qui devait modifier si profondé-
 ment la situation et l'aspect des partis politiques en
@@ -1327,8 +1261,6 @@ de l'affaire Dreyfus, ou-plutôt depuis qu'ils ont com-
 
 () Même discours; deuxième partie, prononcée le 26 juin 1897
 Faillite bourgeoise. La troisième partie: la Solution socialiste fut prononcée le 3 juillet.
-
-à PRÉPARATION DU CONGRÈS
 
 mencé l'affaire Dreyfus, le colonel Picquart, Zola, Clemenceau, Francis de Pressensé, tant d'autres, sont
 devenus des hommes nouveaux, non pas nouveaux en
@@ -1363,7 +1295,6 @@ asile et du pain aux militants qui avaient si opiniàtré- ‘
 ment, si admirablement combattu pour sauvegarder
 leurs libertés politiques et syndicales et ainsi les libertés -
 
-A N PNEU) DÉMARRER
 politiques et syndicales de tout le prolétariat français,
 on avait institué une verrerie ouvrière, propriété commune de tous les syndicats et groupes corporatifs de
 
@@ -1410,7 +1341,6 @@ sociale exigeait rigoureusement que le monde socialiste
 laissât impunément et froidement tourmenter et massacrer tout un peuple de martyrs, la révolution sociale
 ne serait pas seulement une opération bourgeoise; elle
 serait sans aucun doute la plus ignominieuse des opérations bourgeoises que l'histoire du monde ait jusqu'à
-présent enregistrée.
 
 Je ne sais si toutes ces raisons apparurent dès lors
 clairement à Jaurès, ou bien s'il n'eut pas plutôt comme
@@ -1485,8 +1415,6 @@ thode incomparablement sûre. Ces articles resteront
 comme un des plus beaux monuments scientifiques, un
 triomphe de la méthode, un monument de la raison, un
 
-() Action Socialiste, première série, page 497.
-
 modèle de méthode appliquée, un modèle de preuve.
 Les conclusions auxquelles Jaurès était parvenu, ne
 connaissant qu'une partie des éléments, furent presque
@@ -1531,7 +1459,6 @@ communiquée à l'accusé et à la défense, est-ce que ce
 n'était pas le premier devoir des législateurs et des
 gouvernants de s'assurer si, en effet, cette violation de
 la loi républicaine et des droits humains avait été commise? » (1) Et il avait terminé sa déposition par ces
-paroles
 « Eh bien, messieurs les jurés, il résulte. non-seulement que la communication (de la pièce secrète) (2) a
 été illégale, mais qu'un homme, un seul, sans consulter
 officieusement ses amis, a pris sur lui de jeter dans la
@@ -1540,8 +1467,6 @@ services et des galons, malgré la superbe du pouvoir,
 cet homme est un homme, c'est-à-dire un être méprisable et fragile, fait de ténèbres et d'orgueil, de faiblesses et d'erreurs, et je ne comprends pas que, dans
 ce pays républicain, un homme, un seul, ose assumer
 sur sa seule conscience, sur sa seule raison, sur sa
-
-(1) Procès Zola, sixième audience (12 février 1898).
 
 (2) On croyait alors qu'il n'y en avait qu'une.
 
@@ -1617,7 +1542,6 @@ je crois que ce pays aura encore la franchise de la
 lumière et de la vérité. Mais si la vérité devait être
 vaincue, il vaut mieux être vaincu avec elle que de se
 faire le complice de toutes ces équivoques et de tous ces
-abaissements! » (1)
 
 Les camarades parlementaires de Jaurès avaient en
 effet suivi avec les plus grandes hésitations le commencement de sa campagne dreyfusiste. Sur une cinquantaine au moins de socialistes et de soi-disant tels, inscrits ou non au groupe socialiste de la Chambre, une
@@ -1658,7 +1582,6 @@ pas seulement ici les compromissions formelles comme
 
 était l'alliance louche conclue à Bordeaux entre les
 guesdistes et les représentants des anciens partis
-monarchistes réactionnaires, si fâcheusement devenue
 célèbre sous le nom de pacte de Bordeaux, et récemment dénoncée par les intéressés eux-mêmes. Ce scandale fut à peu près unique en son genre, tandis que les
 compromissions dont nous voulons parler furent géné-
 rales. On s'était imaginé que l'on pouvait impunément
@@ -1677,7 +1600,6 @@ avait aggloméré artificiellement des hommes de deux
 sortes. Les premiers, à qui les théoriciens socialistes
 ont un peu trop exclusivement réservé leurs critiques,
 étaient en réalité des petits bourgeoïs, mais de bons
-bourgeois, honnêtes, sincères, intelligents, foncièrement
 républicains, depuis longtemps libres penseurs, partisans du progrès, comme ils disent commodément ; en un
 mot ils correspondaïent assez exactement au sens conventionnel de l'expression radicaux-socialistes, expression parfaitement inintelligible en soi. Les seconds au
 contraire étaient de mauvais bourgeois, faussement
@@ -1706,7 +1628,6 @@ et du nationalisme.
 On conçoit que la considération qu'ils avaient pour de
 tels électeurs aït bien mal inspiré la plupart des députés socialistes. Les élections approchaient. Les élections
 vinrent. On sait quelle Chambre Introuvable fut élue.
-part quelques circonscriptions vraiment socialistes,
 ou bien les candidats évitèrent de se prononcer sur laffaire Dreyfus, ou bien ils échouèrent. Je ne suis pas
 bien certain que quelques-uns ne se soient pas prononcés contre Dreyfus.— Jaurès lui-même, qui avait cependant une des circonscriptions les mieux cultivées, les
 mieux socialistes de France, n'y put trouver une majorité. Il ne fut pas élu.
@@ -1736,8 +1657,6 @@ inouïes qui déshonorent la France et l'armée, nous
 sommes les ennemis de l'armée et de la France! » Et le député Bourrat (1), élu comme socialiste,
 
 (1) M. Bourrat est devenu depuis, comme M. Mirman, une épave
-
-politique.
 
 demande au conseil général des Pyrénées-Orientales
 qu'on nous ferme la bouche et qu'on nous brutalise! » Honte et défi à ceux qui s'imaginent nous faire
@@ -1773,7 +1692,6 @@ et la France réveillée demandera sans doute des comptes
 aux adorateurs d'Esterhazy qui veulent aujourd'hui
 exterminer à son profit tous les hommes libres. L » En attendant, acte est donné à Bourrat de sa requête
 aux pouvoirs publics pour nous faire interner ou dé-
-porter. » (1)
 
 Ce fut le caractère définitif de la bataille qui recommença dès le lendemain, et sans aucune hésitation, pour
 la justice et pour la vérité : une révolte, un soulèvement,
@@ -1821,7 +1739,6 @@ sens, inexact que Jaurès ait rendu socialistes les universitaires par l'exemple
 
 (1) Procès Zola, audience déjà citée. ÿ
 
-FAGTE STE
 justement devenus par ce même mouvement par lequel
 nous avons expliqué, au commencement de cet article,
 que Jaurès avait développé un socialisme intérieur et
@@ -1880,7 +1797,6 @@ serait la première, et la plus grave, des trahisons envers
 elle; mieux vaudrait encore la brutale persécution.
 Jaurès redevenu simple citoyen prit part au travail de
 science en publiant les Preuves et un grand nombre
-d'autres articles.
 
 Mais, cette réserve étant faite, l'autorité absolue du
 droit sur le fait étant ainsi sauvegardée, il est certain
@@ -1964,7 +1880,6 @@ avant le commencement de l'affaire Dreyfus, quand on
 voulut instituer un grade supérieur à celui de général
 
 de division, Jaurès fut des premiers à crier gare à la
-démocratie.
 Depuis longtemps il avait signalé le grand danger, le
 danger clérical, jésuite. Le jour où M. d'Hulst, recteur
 de l'Institut catholique de Paris, avait affirmé devant
@@ -2021,8 +1936,6 @@ explications mécanistes n'épuisent pas le sens de l'univers, et que le réseau
 théorèmes abstraits que nous jetons sur le monde laisse
 passer la réalité comme les mailles du filet laissent passer le fleuve. » Je n'ai jamais cru que les grandes religions hu-
 
-(1) Action Socialiste, première série, page 275.
-
 maines fussent l'œuvre d'un calcul ou du charlatanisme.
 Elles ont été assurément exploitées dans leur développement par les classes et par les castes; mais elles sont
 sorties du fond même de l'humanité, et non seulement
@@ -2043,7 +1956,6 @@ monde, c'est la liberté souveraine de l'esprit, c'est cette
 idée qu'aucune puissance ou intérieure ou extérieure,
 aucun pouvoir et aucun dogme ne doit limiter le perpé-
 tuel effort et la perpétuelle recherche de la raison humaine ; cette idée que l'humanité dans l'univers est une
-grande commission d'enquête (1) dont aucune interven-
 
 (1) Les esprits étaient alors attentifs à une commission d'enquête,
 sans doute à la grande commission d'enquête parlementaire
@@ -2096,7 +2008,6 @@ résignation religieuse ; il y avait une échelle de la création, au sommet de 
 rieures et Dieu, comme il y avait une échelle de la
 société, au sommet de laquelle étaient le noble, le
 prêtre et le roi; et il n'y avait ni tromperie ni équi-
-() Aetion Socialiste, première série, pages 277 à 281.
 
 voque : le serf savait qu'il était devant Dieu l'égal du
 
@@ -2123,7 +2034,6 @@ dans une de ses pensées révolutionnaires : « Avoir » des esclaves n'est rien
 demande bien pardon à M. Barrès — ne peut pas être
 un principe universel d'éducation. Méphistophélès ne
 
-E PRÉPARATION DU CONGRÈS
 peut pas recommencer pour tous les écoliers de France
 la haute leçon ironique qu'il donnait au jeune étudiant
 naïf de l'œuvre de Gœæthe. » (1)
@@ -2153,10 +2063,6 @@ maturités, de ce présent soucieux. Vous m'avez rappelé,
 mon ami, sans l'avoir fait exprès, cet âge d'espoir et de
 bercement où, quand nous voulions nous faire sincèrement pessimistes, nous poussions la sincérité de la tristesse et de la libéralité jusqu'à nous accorder un espace
 
-(1) Action Socialiste, première série, pages 282 à 284,
-
-(2) Action Socialiste, première série, page 285.
-
 de trente ans pour avoir parfait la révolution sociale.
 Qui nous eût dit alors qu'un jour viendrait où les con-
 quêtes préalables de la simple Révolution française
@@ -2168,7 +2074,6 @@ et les généraux ne nous étranglent pas sous le regard
 indifférent des chefs d'école et pour la plus grande jus-
 tification de la lutte de classes, nous nous dirons, à
 l'heure du printemps, l'histoire de nos rêves et de nos
-espérances.
 Vous m'avez rappelé, mon ami, ces batailles anciennes
 et si bien passées. Je me sers pour cette fois sans aucun
 scrupule de ce mot conquétes et de ce mot batailles, qui
@@ -2190,7 +2095,6 @@ France révolutionnaire debout, marchant comme un
 
 seul homme, animée d'une seule volonté, unie d'une
 intérieure unité, sans compromis, sans règle et sans
-Directoire.
 
 — Docteur, il y aurait beaucoup à dire, sans doute,
 sur cet âge heureux. Fut-il vraiment un âge d'or, ou
@@ -2245,7 +2149,6 @@ on y a de goût, et parce que plus j'allais, plus je me
 rendais compte que mon portrait devenait infidèle. Je
 l'avais commencé sincèrement; je le continuais infidè-
 lement. La trahison s'accroissait insensiblement. Je
-m'arrétai.
 
 — Voilà une étrange aventure. Il est incontestable
 que Jaurès refuserait de s'avouer dans l'image que vous
@@ -2264,7 +2167,6 @@ contraire au génie de son éloquence. Les renseignements que vous donnez tout a
 pas moins utiles.
 
 — Un ami à moi les a copiés pour nous dans la Grande
-Encyclopédie.
 
 — Votre ami a bien fait. Je ne crois nullement escalader le mur non mitoyen de la vie privée en me demandant à quel métier travaillaient les citoyens qui
 ensuite ou cependant ont travaillé publiquement
@@ -2338,7 +2240,6 @@ suivantes : & La lutte de classe est le principe, la base,
 la loi même de notre parti. Ceux qui n'admettent pas la
 lutte de classe peuvent être républicains, démocrates,
 radicaux ou même radicaux-socialistes : ils ne sont pas
-socialistes. »
 
 — Je ne sais pas, citoyen docteur, si nous devons entendre aussi rigoureusement quelques lignes éerites sans
 doute à la hâte et dans la stupeur douloureuse du manifeste. L'auteur continue ainsi : « Reconnaître la lutte
@@ -2438,14 +2339,12 @@ ne suis pas plus étonné que vous que Jaurès nous ait
 laissé là-dessus des ouvertures de liberté, car je
 remarque la place considérable que la considération de k
 la liberté tient dans son livre : liberté de l'enseigne- »
-ment, libertés universitaires, libertés politiques, libertés k
 
 syndicales et coopératives, libertés nationales, de
 pensée, de parole, de conscience. Il y a dans ces articles
 et dans ces discours un certain goût de la liberté
 qui n'a pas dû passer à l'auteur. Il est même intéressant
 que le mot de liberté revienne aussi souvent dans ce
-livre. -
 
 — J'espère, docteur, que nous ne serons pas longtemps seuls parmi les socialistes révolutionnaires
 défendre officiellement la liberté, toutes les saines
@@ -2461,12 +2360,9 @@ partis et des hommes. C'était une imagination. Voyezvous comme les partis et le
 
 — Nous en causerons, docteur, quand je vous aurai
 apporté les documents et les renseignements que j'aurai recueillis sur la décomposition du dreyfusisme en
-France.
 
 — Vous avez raison: le dreyfusisme, qui s'était composé rapidement, péniblement, volontairement, se dé-
-compose rapidement, aisément, naturellement. Se
 recomposera-t-il plus tard? On voit d'anciens dreyfusards qui prêchent bonnement l'abstention. Les bourgeois ont commencé à pardonner à Mercier. Les socialistes ont fini de pardonner à Guesde, qui fut beaucoup
-moins coupable.
 
 — Nous en causerons, docteur, quand j'aurai recueilli
 les documents et les renseignements que je pourrai pour
@@ -2541,7 +2437,6 @@ disais ce que je pensais, ce que nous pensions tous alors
 de plusieurs personnalités ; j'allai jusqu'à faire des personnalités contre une personnalité amie qui, à mon
 sens, n'avait pas attaqué assez vivement les personnalités dangereuses, sans doute surtout pour ne pas faire
 de personnalités. Tout le monde alors trouvait que j'avais
-raison.
 
 — Cela ne prouve pas que vous eussiez raison en effet.
 
@@ -2563,7 +2458,6 @@ Mais je ne crois pas qu'ils en aient produit aucune. Ce
 sont eux au contraire qui ont bien voulu pardonner
 leurs accusateurs, et à leurs accusés : ce sont eux qui
 ont pardonné à tout le monde. Ils ont amnistié. Ils sont
-cléments.
 
 — Ce que vous m'avez répondu sur la question des
 personnalités, dans l'ordre de l'action, ne me paraît pas
@@ -2658,11 +2552,9 @@ avais conté un peu complaisamment mon histoire. Et
 notre loi générale des personnalités est ainsi vérifiée
 dans le cas particulier où c'est nous qui sommes la personnalité. Même alors nous pouvons et nous devons
 agir envers toutes les personnalités que le réel nous
-présente.
 
 De retour à la maison, je recommençai à recueillir des
 documents et des renseignements sur la préparation du
-récent congrès.
 
 La lutte avait eu au commencement un caractère
 personnel : Jaurès parlait pour les socialistes indépendants et pour les hommes libres; le manifeste se dé-
@@ -2679,7 +2571,6 @@ nous ne retiendrons que les documents principaux.
 La Petite République du mardi 18 publiait les protestations suivantes
 Lettre du citoyen Camelle
 
-MAIRIE DE BORDEAUX
 Cabinet de l'adjoint
 
 Mon cher citoyen Jaurès,
@@ -2705,9 +2596,7 @@ Courage, et comptez sur nous tous.
 
 De tout cœur,
 
-CALIXTE CAMELLE
 Lettre du citoyen Delesalle
-HOTEL DE VILLE
 Lille, le 15 juillet 1899,
 Cabinet des adjoints
 Mon cher Jaurès,
@@ -2750,11 +2639,9 @@ avant sa réunion de voir disparaître le triste malentendu
 dont se réjouissent nos adversaires.
 
 Croyez, mon cher Jaurès, à mes meilleurs sentiments de
-confraternité socialiste. DELESALLE,
 
 Adjoint au maire de Lille
 Démission de Henri Turot
-Saint-Briac, 16 juillet, 2 h. 10 soir.
 
 Prière d'insérer la déclaration suivante
 « En désaccord avec les signataires du manifeste et ne
@@ -2763,7 +2650,6 @@ amis que j'aime, que j'estime, et dont je partage les opinions, je crois de mon 
 membre du Parti socialiste révolutionnaire, » HENRI TUROT »
 
 Dans /a Petite République du mercredi 19, Jaurès continuait sa réponse
-LES RESPONSABILITÉS
 
 C'était prévu. Rochefort tire parti du manifeste déplorable qui a soudainement éclaté. Comme nous l'avons
 dit le jour même, Guesde et Vaillant, sans le vouloir,
@@ -2780,7 +2666,6 @@ laissera les stigmates de son passage aux affaires sur tous
 ceux qui, par complaisance ou par faiblesse, auront obéi
 ses ordres. Jaurès comptait bien terroriser les juges militaires en leur répétant tous les matins : « Ce n'est pas seulement le gouvernement, c'est le peuple qui est avec nous. »
 Or le gouvernement n'existe plus et le peuple vient de se
-déclarer ouvertement contre eux.
 
 Voilà qui est clair et vraiment Vaillant et Guesde auraient dû le prévoir. Toutes les puissances du mensonge
 pèsent sur les juges de Rennes. On les presse, on les
@@ -2819,7 +2704,6 @@ instinct révolutionnaire par le grand drame où se jouent
 l'honneur de notre pays et la liberté républicaine. Guesde
 et Vaillant eux-mêmes regretteront d'avoir fourni des
 armes à cet État-Major scélérat acharné sur sa proie
-humaine.
 
 Je les attends au lendemain de l'arrêt. Je les défie de
 maintenir leur manifeste. Ou bien Dreyfus sera proclamé innocent et je demande à Vaillant et à Guesde s'ils
@@ -2869,15 +2753,10 @@ Lettre du citoyen Ferroul
 Mon cher Gérault-Richard,
 
 Je vous envoie une copie de la lettre que j'adresse à mon
-ami Guesde.
 
 Les explications qu'elle contient sont, je crois, nécessaires.
 
 vous,
-
-D' FERROUL
-
-Narbonne, 16 juillet 1899.
 
 Mon cher Guesde,
 
@@ -2892,7 +2771,6 @@ funeste tactique des excommunications.
 Je crois que le parti socialiste ne doit proscrire aucun j
 effort loyal, aucune énergie, aucune valeur, si ces efforts, ces
 énergies et ces valeurs peuvent accroître son action et son
-influence.
 
 Il ne faut pas plus renoncer aux services que Jaurès lui
 rendra demain qu'à ceux, puissants, qu'il lui rendit hier, et
@@ -2920,10 +2798,8 @@ c'est aussi leur impression que je vous communique.
 
 Recevez, mon cher Guesde, l'assurance de mon dévouement,
 
-D FERROUL,
 Député de l'Aude
 Les démissions
-Paris, 17 juillet 1899,
 Mon cher Landrin,
 
 Je vous prie de transmettre au Comité révolutionnaire
@@ -2938,9 +2814,6 @@ regret que je me sépare d'amis auxquels me liaient plus de
 ! dix années de communs combats pour le socialisme.
 
 Recevez, mon cher Landrin, l'assurance de ma meilleure
-
-amitié, -
-E. DEGAy
 
 Mon cher Landrin,
 
@@ -2959,11 +2832,8 @@ et moi avons maintes fois fait appel.
 membre de la commission administrative.
 
 Recevez, mon cher Landrin, une cordiale poignée de
-main,
 
-Louis PARASSOLS,
 Conseiller municipal de Sainte-Florine
-Cher citoyen Jaurès,
 
 Plusieurs camarades m'écrivent au sujet du papier récemment publié par deux « organisations » et demie. Les uns
 me demandent comment il se fait que, pour la première
@@ -3051,11 +2921,7 @@ Bien entendu, je n'ai point voulu dans cet article attaquer
 personne, je ne fais que répondre aux articles de ceux avec
 lesquels j'ai mené jusqu'alors le bon combat.
 
-CouTANT
 Et la Petite République publiait cette réponse de
-Gérault-Richard à Coutant : À
-
-ÉMANCIPONS-NOUS
 
 Coutant répond copieusement à la courte ligne de l'article de Jaurès qui le concernait. On verra par sa lettre
 qu'il ramène tout le débat à l'entrée de Millerand dans le
@@ -3103,7 +2969,6 @@ Le citoyen Vaiilant prévenu nous fit dire par Turot que,
 si nous donnions cette conférence qui eùt pris les allures
 d'une sorte de Congrès de l'ensemble du Parti, il lancerait
 contre nous un manifeste. Il fallut nous ineliner. Le manifeste est venu tout de même. Il devait venir, quoi que nous
-fissions.
 
 Ce qu'il vise, en réalité, ce n'est pas Millerand, mais bien
 
@@ -3198,7 +3063,6 @@ Il y a là un anachronisme que le prochain congrès effacera. Militants socialis
 La Petite République du jeudi 20 publiait de Gustave
 Rouanet cette Lettre ouverte au Citoyen Bénézech, dé-
 puté de l'Hérault
-Citoyen,
 
 Je n'ai pas été peu surpris de trouver votre nom au bas
 du bref d'excommunication lancé par Guesde et Vaillant
@@ -3223,7 +3087,6 @@ la rigueur, sa sévérité, mêlée d'indulgence protectrice, nous
 surprend moins qu'elle ne nous afllige. Mais vous! condamner sans discussion et sans appel, sans même les entendre, des camarades comme Fournière, Calvinhac; vous
 élever contre la politique ardemment socialiste, autant
 qu'inflexiblement républicaine de Jaurès, Gérault-Richard,
-Millerand, Viviani!
 
 Citoyen Bénézech, en signant le document qui a la pré-
 tention de nous mettre au ban du socialisme, vous avez
@@ -3249,7 +3112,6 @@ Les socialistes vous ont envoyé au groupe d'Union pour
 continuer et étendre l'œuvre commencée en 1893, poursuivie cinq ans durant avec tant de vaillance, de maîtrise
 et d'éclat par Jaurès, Millerand, Viviani, que vous accusez
 aujourd'hui d'avoir « dupé » le peuple. Comment justifierezvous, devant vos commettantis, la rupture violente avec
-eux ?
 
 Je laisse de côté le grief tiré contre nous de notre attitude
 dans l'affaire Dreyfus par quelques-uns de vos co-signataires. En effet, malgré les objurgations de certains membres
@@ -3322,12 +3184,9 @@ Je désapprouve toutes les critiques qui ont été faites ÿ
 contre certains membres du parti socialiste, puisque l'ancienne tactique de la lutte de classe, qui consistait à ne
 jamais contracter d'alliance avec les partis bourgeois, a été
 abandonnée depuis bien longtemps déjà par tous les signataires de ce manifeste, sans qu'aucun d'eux ait jamais
-protesté.
 
 Cordiale poignée de mains, ‘
 
-BERNARD CADENAT,
-Député
 Déclaration du citoyen Pastre et de son comité
 Le Vigan, 18 juillet, 5 h. 35, soir,
 
@@ -3337,11 +3196,9 @@ explications du citoyen Pastre, qui regrette les termes
 agressifs du manifeste, s'associe à son député pour hâter la
 convocation d'un Congrès national de toutes les fractions
 socialistes et résoudre la crise par l'Unité socialiste.
-PASTRE,
 Député du Gard
 Déclaration de Maxence Roldes
 Montceau-les-Mines, 18 juillet, 3 h. 55, soir,
-Au citoyen Jean Jaurès,
 
 Oui, merci pour l'avoir aflirmé : Je suis, comme aux premiers jours de la glorieuse « déviation », avec vous en communauté absolue de conscience et de pensée.
 
@@ -3350,14 +3207,10 @@ qui me libère de la torture morale qui m'était infligée par
 un sentiment de discipline.
 
 vous, respectueusement et bien affectueusement dé-
-voué.
-
-MAXxENCE ROLDES
 
 La Petite République du vendredi 21 publiait les
 
 protestations et communications suivantes
-PARLONS NET
 
 Par les batailles du Creusot et de Montceau-les-Mines éloigné de
 Paris, où je n'ai fait, en juin et juillet, que de très courtes apparitions, je n'ai pu assister à aucune des réunions au cours desquelles
@@ -3373,7 +3226,6 @@ et féconde dont notre Jaurès — stupéfiant d'activité — se fit par la
 plume, par la parole l'entraînant et infatigable champion, tactique
 que dans la mesure de mes forces — et je remercie Jaurès de l'avoir
 rappelé — à ses côtés, et dès la première heure, j'ai résolument
-défendue.
 
 Ce fut, je l'avoue, l'une des heures les plus angoissantes de ma vie
 de militant que celle où se posa pour moi le dilemme : ou me
@@ -3397,7 +3249,6 @@ jour inévitable où tout le prolétariat socialiste serait appelé à se
 prononcer entre deux conceptions de combat de classe, l'une
 étriquée, inexacte, l'autre — telle que Jaurès l'a si remarquablement définie dans l'article « La lutte de classe » — plus haute,
 plus vivante, plus vraie, la minorité d'aujourd'hui se changerait en
-puissante majorité.
 
 Ce jour est venu.
 
@@ -3406,9 +3257,6 @@ l'heure du débat; par elle le huis clos des organisations se trouve
 brisé; par elle chacun de nous, libéré de l'étroite discipline de
 groupe, a l'impérieux devoir de se prononcer hardiment. En ce qui
 me concerne, voilà qui est fait.
-
-MaxENCE ROLDES
-COURTOISE RÉPONSE
 
 Le citoyen Carnaud nous adresse la lettre suivante, en
 réponse à l'article du citoyen Rouanet paru hier matin :
@@ -3422,7 +3270,6 @@ d'olivier.
 
 Je ne me suis pas arrogé le droit de penser — ainsi que vous l'af-
 firmez — que vous avez dû accepter ma doctrine pour venir au
-socialisme.
 
 C'est moi, au contraire, qui suis un disciple obscur mais fidèle de
 la doctrine que Guesde a répandue sans compter, autour de lui,
@@ -3458,7 +3305,6 @@ Recevez, mon cher Rouanet, les amiliés d'un jeune homme, un
 peu âgé déjà, qui a toujours eu la plus grande estime pour votre
 caractère et pour votre talent.
 
-CARNAUD
 Lettre du citoyen Légitimus
 Paris, ce 18 juillet 1899,
 Mon cher Gérault,
@@ -3470,12 +3316,8 @@ chapelle, je conserve entières pour vous, pour Jaurès et
 pour Millerand, ma sympathie, mon admiration et ma considération, qui sont celles de tous nos camarades de la Guadeloupe et des Antilles.
 
 Agréez, mon cher Gérault, ma plus cordiale poignée de
-main.
-
-À LÉGITIMUS,
 
 Membre du Conseil national du Parti
-ouvrier français, député, président
 du conseil général de la Guadeloupe
 
 Lettre du citoyen Brunellière
@@ -3540,9 +3382,7 @@ je le suis comme tous ceux qui ont une foi absolue dans
 notre cause.
 
 Je vous serre, cher citoyen Jaurès, confraternellement la
-main,
 
-E. BRUNELLIÈRE
 Lettre du citoyen Raymond Lavigne
 Mon cher Jaurès,
 
@@ -3555,7 +3395,6 @@ pouvait être que le fait d'une erreur.
 malgré ses protestations », disait Camelle! Je ne peux pas m'expliquer comment Camelle a pu écrire cette affirmation, qui ne tend
 à rien moins qu'à accuser Jules Guesde d'une malhonnéteté, et qui
 est une inexactitude. Camelle s'est trompé, et il sera le premier à le
-reconnaître.
 
 J'affirme, moi, que lorsque Guesde s'est servi de ma signature il
 en avait pleinement le droit, en vertu de l'usage consacré par tous
@@ -3568,8 +3407,6 @@ Que cet usage n'offre pas d'inconvénients dans la pratique, ceci
 est une question à examiner, et l'incident du manifeste est de nature ,
 à y faire réfléchir. Mais jusqu'à ce que le Congrès national ait décidé
 
-LP ATOFIRE
-
 d'y apporter une modification, l'usage persiste ; et quel que soit mon
 sentiment sur le manifeste lui-même, ce serait déloyal de ma part
 de reprocher à Guesde d'y avoir mis ma signature alors qu'il en
@@ -3577,7 +3414,6 @@ avait le droit.
 
 J'ajoute que ni moi, ni vous-même, ni personne ne peut se laisser
 aller à croire Guesde capable d'abuser d'une signature malgré une
-protestation contraire.
 
 J'ai, il est vrai, écrit une lettre à Guesde le jour même où paraissait
 le manifeste. Dans cette lettre je lui exprimai mes craintes que ce
@@ -3667,12 +3503,9 @@ Je fais des vœux pour que de cette agitation des esprits, à mon
 avis salutaire, sorte pour le socialisme une nouvelle force d'expansion en même temps qu'une sécurité plus grande, et je vous prie
 
 -  d'agréer, mon cher Jaurès, mes affectueuses salutations.
-Raymond LAVIGNE
 
 La Petite République du dimanche 23 publiait la
-lettre suivante
 Lettre du citoyen Ferrero, député
-Toulon, 20 juillet 1899,
 Mon cher Gérault-Richard,
 
 Je viens d'adresser à Guesde la lettre ci-jointe. Les travailleurs qui nous ont donné mission de défendre leurs
@@ -3682,8 +3515,6 @@ réalité des faits.
 
 Bien cordialement à vous, Prosper FERRERO
 
-Cher citoyen Guesde,
-
 Ma lettre vient un peu tard, mais je la crois nécessaire.
 
 Je ne puis laisser passer sans observations l'apposition de
@@ -3691,7 +3522,6 @@ mon nom en bas d'un manifeste dans lequel sont excommuniés des militants que je
 comme de vieux et solides amis avec lesquels je suis en
 relations depuis que j'ai l'âge d'homme, qui ont lutté à nos
 côtés et qui se retrouveront avec nous dans les batailles de
-demain.
 
 Dans notre région les groupements socialistes ont éprouvé
 un pénible sentiment en lisant le document que vous avez
@@ -3699,7 +3529,6 @@ livré à l'opinion.
 
 Votre nom, celui de Lafargue, sont associés dans la masse
 socialiste à ceux de Millerand, de Viviani, de Fournière, de
-Rouanet.
 
 Dans nos agglomérations ouvrières, les questions de
 tactique, de doctrine, d'école, passent au second plan; on
@@ -3714,12 +3543,10 @@ voulu voir surgir.
 
 Bien affectueusement à vous,
 
-Prosper FERRERO,
 Député de Toulon
 La Petite République du lundi 24 publiait la communication suivante
 Lettre du citoyen Dufour, député
 Issoudun, le 21 juillet 1899,
-Citoyen Jaurès,
 
 Signataire du manifeste publié par le Parti ouvrier fran-
 çais et le Parti socialiste révolutionnaire, permettez-moi de
@@ -3735,7 +3562,6 @@ aucune compromission avec le fusilleur de mai.
 Le sang de nos pères, de nos sœurs, de nos frères, non
 encore refroidi, est toujours là pour nous obliger à avoir la
 plus grande répulsion à l'égard de l'auteur de la semaine
-sanglante.
 
 Applaudissant à l'organisation d'un grand congrès socialiste, seul moyen à mon avis de trancher les différends existants, j'ose espérer qu'après discussion l'entente se fera
 entre les diverses écoles, et que le parti socialiste tout
@@ -3743,21 +3569,14 @@ entier, uni dans une même pensée, fondera une organisation symbolisant l'unit�
 le triomphe de la classe prolétarienne.
 
 Agréez, mon cher Jaurès, mes fraternelles salutations.
-Dvrour,
 Conseiller général, député de l'Indre
-finir
-
-tie
-TRAVAIL DES ENFANTS
 
 Suite de la discussion, à la Chambre, de la proposition
 de loi, adoptée par le Sénat, portant modification de la
 loi du 2 novembre 1892 sur le travail des enfants, des
 filles mineures et des femmes dans les établissements
 
-- industriels.
 Suite de la séance du jeudi 21 décembre
-SUITE SUR L'ARTICLE PREMIER
 
 M. MEsurREUR. — Monsieur Cadenat, voulez-vous me permettre un mot ?.. Lorsque j'ai eu l'honneur d'être ministre
 du commerce, j'ai fait appliquer la loi. /Très bien! très
@@ -3785,7 +3604,6 @@ M. Louis Ricarp (Seine-Inférieure). — Le ministre dont
 ù parle M. Cadenat n'est pas un ancien ministre du commerce,
 c'est un ancien ministre de la justice.
 M. CADENAT. — Qu'importe? Le résultat est le même. /On
-ril)
 M. Louis Ricarp (Seine-Inférieure). — Hier, en effet, dans
 la salle des Pas-Perdus, parlant de la loi de 1892, je soutenais
 la thèse qui a été brillamment défendue à la tribune par le
@@ -3804,8 +3622,6 @@ M. Louis Ricarp (Seine-Inférieure). — Je n'étais plus ministre lorsque je l'
 M. CaneNAT. — Messieurs, il se peut que j'aie mal entendu,
 mais il me semble bien, mon cher collègue, que vous avez
 prononcé le mot de « préfet ». Admettons que je me sois
-trompé.
-M. Louis Ricar » (Seine-Inférieure). — Monsieur Cadenat,
 je n'ai pas l'habitude dé contredire en public ce que j'ai dit
 dans une conversation, bien qu'elle ne fût pas destinée
 être rapportée à la tribune /Très bien ! très bien!)
@@ -3830,7 +3646,6 @@ je ne l'ai prise dans le passé. J'ai dit hier et je le répète que
 j'avais prescrit de poursuivre et qu'un fonctionnaire administratif, un préfet, est intervenu pour contredire les ordres
 que j'avais donnés. Ce préfet a obtenu qu'un industriel ne
 füt pas poursuivi, comme je l'avais voulu, et ne füt condamné que beaucoup plus tard. Je ne veux pas dire autre
-chose.
 
 le ministre du commerce, je le sais, est au courant des
 faits auxquels vous venez de faire allusion; je n'ai pas
@@ -3842,7 +3657,6 @@ M. CapenaT. — Messieurs, j'aurais commis, paraît-il, une
 indiscrétion parce que j'ai fait allusion à des propos qui ont
 été tenus devant vingt ou trente collègues dans les couloirs.
 Ah! si vous ne l'aviez dit qu'à moi seul, c'eût été bien
-différent !….
 
 M. Louis Ricarp (Seine-Inférieure). — Je n'avais pas
 l'honneur de vous connaître.
@@ -3854,9 +3668,6 @@ tribune. Mais, par le raisonnement que vous avez tenu, vos
 paroles ont pu convaincre une vingtaine de collègues qui
 les ont entendues. Dans tous les cas, je ne vous avais pas
 nommé, vous pouviez ne pas vous nommer vous-même,
-{Rires) j
-M. Louis RicaArp (Seine-Inférieure). — Ah si! /Nouveaux
-rires)
 M. CADENAT. — Ou plutôt, si vous voulez, vous n'étiez $
 pas visé, puisque je parlais d'un ancien ministre du commerce et que vous étiez ministre de la justice. /On rit)
 M. Louis RicArpD (Seine-Inférieure). — Jamais je ne contredis en public ce que j'ai pu dire en particulier.
@@ -3885,7 +3696,6 @@ des patrons”? /Dénégations au centre)
 
 Nous l'avons bien vu pour la loi sur les accidents ! Si nous
 avions écouté MM. les industriels, elle ne serait pas encore
-appliquée.
 
 Plusieurs membres au centre. — Les patrons ne se sont
 pas plaints.
@@ -3899,7 +3709,6 @@ arracher à leurs ouvriers des signatures qui sont contraires
 Je n'ai pas à m'arrêter à toutes les pétitions que vous
 pourriez faire, et qui porteraient des signatures d'ouvriers
 demandant qu'on n'applique pas une loi qui est conforme
-leurs intérêts.
 
 Je dis, messieurs, que lorsqu'il s'agit d'une loi inté-
 
@@ -3910,7 +3719,6 @@ rappelait tout à l'heure, des lois qualifiées à juste titre de
 « scélérates » dans la Chambre, vous n'avez pas attendu
 longtemps pour les appliquer ; et encore de quelle façon !..
 {Applaudissements à l'extrême gauche. — Interruptions au
-centre)
 
 Est-ce que quelqu'un en douterait? Faudrait-il vous
 donner quelques exemples? Je ne vous en citerai qu'un,
@@ -3950,8 +3758,6 @@ très bien! à l'extrême gauche et sur divers bancs à gauche)
 
 M. LE PRÉSIDENT. — L'amendement de M. Cadenat s'applique au $ 2 de l'article.
 
-AMENDEMENT VAILLANT
-
 M. Vaillant a déposé un amendement qui vise le $ 1°.
 
 « $ 1°. — Les enfants ne peuvent être employés par les
@@ -3959,9 +3765,6 @@ patrons ni être admis dans les établissements énumérés
 dans l'article 1° avant l'âge de seize ans révolus. »
 
 Cet amendement porte les signatures de MM. Édouard
-Vaillant, Allard, Jules-Louis Breton (Cher), Chauvière,
-Coutant, Dejeante, Jacques Dufour (Indre), Arthur Groussier, Létang, Marcel Sembat, Walter, Zévaès, Bénézech,
-Rendu.
 
 La parole est à M. Vaillant.
 
@@ -4010,11 +3813,8 @@ au minimum les effets nuisibles de cette disjonction.
 
 M. LE PRÉSIDENT DE LA COMMISSION. — J'en appelle à vous-
 même, monsieur Vaillant. Il faut respecter la décision de la
-Chambre.
 M. Wazrer. — Respectez aussi le droit de l'orateur,
-monsieur Ferry.
 M. ÉpouarD VAILLANT. — Je respecte la décision de la
-Chambre.
 Vous voulez maintenant porter la durée de la journée de
 travail de l'enfant de dix à onze heures. Pour que ce travail
 ne soit pas nuisible à sa santé, pour qu'il n'ait pas un effet
@@ -4082,7 +3882,6 @@ Dans ces conditions, j'espère que vous ne voudrez pas
 compléter les effets menaçants de la proposition faite par
 
 la commission du travail, et que vous les éviterez en décidant que l'âge d'admission ne pourra pas être inférieur
-seize ans.
 
 Je dépose entre les mains de M. le président une demande
 de scrutin. /Très bien! très bien! à l'extrême gauche)
@@ -4093,24 +3892,15 @@ Gouvernement, repousse l'amendement.
 M. LE PRÉSIDENT. — Je mets aux voix le premier paragraphe de l'amendement de M. Vaillant et ses collègues.
 
 Il y a une demande de scrutin, signée de MM. Villejean,
-Raymond Leygue, Desfarges, Bussière, Vazeïille, Pajot, Baulard, Delarue, Louis Jourdan, Palix, Bachimont, Merlou,
-Gallot, Puech, Delon-Soubeiran, Maurice-Faure, Gallot, Louis
-Blanc, Chamerlat, etc.
 
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
 Nombre des votants.1/7 71.1. 4 CRC
-Majorité absolue. : 1. 1.7. MICNNNENSES
 Pour Ladophons ART CU NRRE LE !
 La Chambre des députés n'a pas adopté.
-SCRUTIN RECTIFIÉ
-Nombreldes votants 0 4 CEE EENR
 Ê Majorité absolue:.,....: 2.1.7, .0 L'OPSESE
 Pour ladophon rer
-Contre sr PAT ONCREN EN C IE TRE
 La Chambre des députés n'a pas adopté.
 Ont voté contre les citoyens Colliard, Jourde, Labussière et Pierre
-Vaux.
 
 N'ont pas pris part au vote les citoyens Chassaing et Narbonne.
 
@@ -4150,7 +3940,6 @@ l'après-midi. La séparation du repos et du repas de midi
 
 équipes du matin avec celles du soir; il n'y aura plus d'alternance ni de chevauchement; il ne sera plus possible
 d'avoir des équipes volantes qu'avec la commission nous
-voulons supprimer.
 
 Je rappellerai que dans le pays industriel par excellence,
 en Angleterre, la loi qui règle les conditions du travail, la
@@ -4185,11 +3974,8 @@ adulte. /Très bien! très bien! à l'extrême gauche)
 M. LE PRÉSIDENT. — Je mets aux voix le second paragraphe de l'amendement de M. Vaillant et ses collègues.
 
 Il y a une demande de scrutin signée de MM. Walter,
-Vaillant, Bourrat, Poulain, Lamendin, Sembat, Breton, Baulard, Calvinhac, Renou, Vaux, Lassalle, Cère, Andrieu, .
-Palix, Berthelot, etc.
 
 M. Le PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
 Nombre des votants. .".,.11 0101. AN ONENNNNSES
 Majorité absolue: 2,2 140.0 CES
 
@@ -4198,10 +3984,6 @@ Pour adoption: eee MO OUEIERE 97
 Contre: Deere NE EU PROS
 
 La Chambre des députés n'a pas adopté.
-
-SCRUTIN RECTIFIÉ
-Nombre'tes votants. "25042" 100 042479
-RREN Sac Mira re, ra .
 
 La Chambre des députés n'a pas adopté.
 
@@ -4229,12 +4011,10 @@ quelque nature qu'il soit, sera interdit. » Le travail hebdomadaire cessera le 
 Sur divers bancs. — A demain!
 
 M. LE PRÉSIDENT. — On demande le renvoi à demain.
-(Oui! oui! — Non!)
 
 Vous allez décider, messieurs.
 
 Je consulte la Chambre sur le renvoi de la suite de la
-discussion à demain.
 
 (La Chambre, consultée, décide que la discussion continue.)
 
@@ -4335,7 +4115,6 @@ Dans tous les cas, il est certain qu'on réaliserait déjà un
 progrès très considérable si on réduisait le travail en durée, à
 ei nous vous demandons — sans insister aujourd'hui sur la
 question d'intensité de travail — de réduire la journée de
-travail à huit heures.
 La démonstration qui a été faite dans les ateliers publics
 de l'État anglais et de l'État américain, en Australie, dans
 des ateliers privés en Angleterre, dans certains ateliers Fe
@@ -4354,12 +4133,10 @@ avantages à ses ouvriers, sans aucun dommage pour lui.
 Mais ce qu'il nous faut, ce n'est pas une réforme locale et
 individuelle, mais la réforme, la journée de huit heures
 généralisée par la loi et capable alors de produire tous ses
-effets utiles.
 Si l'expérience faite dans les ateliers publics et privés
 montre que la journée de huit heures est avantageuse à la n
 production, elle montre aussi qu'elle est pour les ouvriers
 plus avantageuse encore.
-TRAVAIL DES ENFANTS N
 Le fait est indéniable, et du moment qu'il est reconnu
 par les États voisins monarchiques, ilme semble qu'il serait
 
@@ -4413,7 +4190,6 @@ fera tous ses efforts pour réaliser dans les faits les pres-
 criptions que vous aurez édictées ; vous pouvez être assurés
 que, soutenus par elles, vous vaincrez les résistances du
 Sénat, les résistances patronales et les résistances gouver- à
-nementales.
 Cette réforme est la plus importante que nous puissions
 faire ; c'est une réforme sociale, politique et ouvrière: ce
 sera l'affermissement définitif de la République, et an
@@ -4424,30 +4200,20 @@ la fois et pour elleet pour la République /Très bien! très
 bien! sur divers bancs à l'extrême gauche) à
 M. LE PRÉSIDENT. — Je mets aux voix les deux derniers
 paragraphes de l'amendement de M. Vaillant et ses
-collègues.
 M. LE RAPPORTEUR, — La commission etle Gouvernement
 les repoussent.
 M. LE PRÉSIDENT. — Il y a une demandede scrutin, signée
 de MM. Walter, Vaillant, Bourrat, Poulain, Lamendin,
-Vaux, Breton, Sembat, Berthelot, Baulard, Calvinhac, Renou, Cère, Palix, Andrieu, Bonard, etc.
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin
 Nombre! des votants 41. 04 cute EONENTS F
 Majorité absolue. le. CREUSER 44
 Pour ladoption (97 #90 2100 TUE
-CON MO APE ANR EE EE Es
 La Chambre des députés n'a pas adopté.
-SCRUTIN RECTIFIÉ
-Nombre des Votants.) 1420. 11%, 221,500
-MAO ADS OIUE ST PETER ENS tr
 Pour ladophon rip
-COMENT SNS Ne TE EVE RAR REA 380)
 
 La Chambre des députés n'a pas adopté.
 
 Tous les citoyens ont voté pour.
-
-AMENDEMENT GROUSSIER
 
 M. LE PRÉSIDENT. — MM. Groussier, Dejeante, Vaillant,
 Breton, Bénézech, Walter, Marcel Sembat et Létang ont
@@ -4471,7 +4237,6 @@ Sur d'autres bancs. — Non ! non!
 M. LE PRÉSIDENT. — Vous allez statuer, messieurs.
 
 Je consulte la Chambre sur le renvoi de la discussion
-demain.
 
 (La Chambre, consultée, décide que la discussion continue.) i
 
@@ -4530,7 +4295,6 @@ c'est qu'il opère un recul pour le travail des enfants. Nous
 i demandons précisément qu'on conserve le bénéfice de la
 loi de 1892 au point de vue du travail des enfants, et qu'on
 détermine le temps de onze heures seulement pour les
-adultes.
 
 Il est certain qu'ici on se préoccupe purement el simplement des patrons qui ont résisté à la loi de 1892, jusqu'à ce
 jour, mais onnese préoccupe pas des patrons qui ont appliqué
@@ -4558,29 +4322,21 @@ C'est pourquoi j'insiste d'une façon toute particulière pour
 
 l'adoption de l'amendement de mon collègue et ami
 M. Groussier. /Applaudissements à l'extrême gauche) J
-L
 M. LE PRÉSIDENT. — Je mets aux voix l'amendement de
 M. Groussier et ses collègues.
 M. CuaRLes Ferry, président de la commission. — La com- À
 mission, d'accord avec le Gouvernement, repousse l'amendement.
 M. LE PRÉSIDENT. — Il y a une demande de scrutin, signée
 de MM. Groussier, Walter, Vaillant, Renou, Poulain, Paschal Grousset, Lamendin, Laloge, Fournière, Florent,
-Chauvière, Cornet, Bordier, Palix, Cère, Andrieu, etc.
 M. LE PRÉSIDENT. — Voici le résultat du dépouillement du
-scrutin : s
-Nomibreides votants J40. 42 iNCP RER “À
-Majoritéabsolue: "15.07.02 004 0 CON NRER ÿ
 Pour ladopaon 2 NE RICE Re
 Contre RL NS RAR CE
 La Chambre des députés n'a pas adopté.
-SCRUTIN RECTIFIÉ l
 Nombre des votants," IE CENTRE ASS
 Majorité absolue “ia 04h L'ONU À
-Pogriladophon. tif /4r. 20e Cr
 CONTRE ER NT ere dE Leu
 La Chambre des députés n'a pas adopté. d
 Tous les citoyens ont voté pour.
-finir
 Le Gérant : CnarLes PÉGuy
 Ce cahier est composé par des ouvriers syndiqués
 Suresnes. — Imprimerie G.-A. RicHarD & C!*, 9, rue du Pont. — 1950 14
@@ -4605,11 +4361,9 @@ heures à 7 heures. — Envoyer toute la correspondance à M. Charles Péguy. 19
 Nous publions vraiment notre état de situation : nous
 avons tiré ce troisième cahier à Soo exemplaires
 outre 198 exemplaires d'abonnements annuels gratuits et 17 exemplaires d'abonnements annuels gratuits
-payés d'ailleurs,
 
 nous l'envoyons à 86 abonnés ferme.
 
-à 235 abonnés éventuels
 nous faisons 8 services d'échange
 et 5 services aux imprimeurs.
 
@@ -4619,7 +4373,6 @@ publier. dans le prochain cahier, les principaux do:uments commentés de la pré
 liste national et la discussion, à la Chambre, de la
 proposition de loi sur le travail des enfants, des filles Fe
 mineures et des femmes dans les établissements indus
-triels. 7 TE
 Nous publions le 5 de chaque mois l'état de notre
 situation Jinancière à la fin du mois précédent.
 Au 31 janvier les souscriptions mensuelles régu=
@@ -4630,7 +4383,6 @@ ment et l'établissement des deux pré- £ Emiers cahiers nous avaient coûté .
 Nos recettes montaient donc à 73 °|, 4
 de nos dépenses.
 . Nous avions donc à cette date un “+
-NÉS PRE CESR LEE 6 60 Fr:13510
 égal environ à 27 °|, de nos -dépenses.
 Pour établir l'équilibre, il ne dépend plus de nous de
 faire baisser les dépenses, car nous les avons réduites

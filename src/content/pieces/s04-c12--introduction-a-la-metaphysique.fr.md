@@ -7,13 +7,9 @@ author: henri-bergson
 isAvertissement: false
 wordCount: 20686
 ---
-
-F  DOUZIÈME CAHIER DE LA QUATRIÈME SÉRIE
-Vient
 de paraître
 | CAHIERS DE LA QUINZAINE
 | paraissant vingt fois par an
-à PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Pour savoir ce que sont les Cahiers de la Quinzaine, *
@@ -32,10 +28,6 @@ vendons un franc
 1 7
 
 introduction à la métaphysique
-n 4
-À #
-
-à
 
 Travaillons. La Revue de Métaphysique et de Morale,
 dans son numéro de janvier, publiait de M. Henri
@@ -65,12 +57,8 @@ indispensable, et pour ces hommes, et pour ces œuvres.
 
 Sachons nous limiter, pour aujourd'hui :
 
-/
 |
 
-Henri BERGSON
-INTRODUCTION A LA MÉTAPHYSIQUE
-à Conclusion
 Il en est tout autrement si l'on s'installe d'emblée,
 par un effort d'intuition, dans l'écoulement concret
 de la durée. Certes, nous ne trouverons alors aucune
@@ -91,7 +79,6 @@ le bas, soit vers le haut : dans les deux cas nous
 pouvons nous dilater indéfiniment par un effort de
 plus en plus violent, dans les deux cas nous nous
 
-Henri Bergson
 transcendons nous-mêmes. Dans le premier, nous
 marchons à une durée de plus en plus éparpillée,
 dont les palpitations plus rapides que les nôtres,
@@ -107,7 +94,6 @@ la lumière, et qui serait la concrétion de toute
 durée comme la matérialité en est l''éparpillement.
 Entre ces deux limites extrêmes l'intuition se meut,
 = et ce mouvement est la métaphysique même.
-Se
 Il ne peut être question de parcourir ici les
 diverses étapes de ce mouvement. Mais après avoir
 présenté une vue générale de la méthode et en avoir
@@ -116,9 +102,7 @@ pas inutile de formuler, en termes aussi précis
 qu'il nous sera possible, les principes sur lesquels
 elle repose. Des propositions que nous allons
 énoncer, la plupart ont reçu, dans le présent
-:
 
-INTRODUCTION A LA MÉTAPHYSIQUE
 travail, un commencement de preuve.Nous espérons
 les démontrer plus complètement quand nous aborderons d'autres problèmes.
 
@@ -148,12 +132,6 @@ substitue au continu le discontinu, à la mobilité la
 stabilité, à la tendance en voie de changement les
 points fixes qui marquent une direction du change-
 
-o
-À [+
-FO
-
-CAM PA
-Henri Bergson
 ment et de la tendance. Cette substitution est
 nécessaire au sens commun, au langage, à la vie
 pratique, et même, dans une certaine mesure que
@@ -180,7 +158,6 @@ les oppositions irréductibles entre systèmes, viennent en grande partie de ce 
 la connaissance désintéressée du réel les procédés 4
 dont nous nous servons couramment dans un bui
 
-INTRODUCTION A LA MÉTAPHYSIQUE
 d'utilité pratique. Elles viennent de ce que nous
 nous installons dans l'immobile pour guetter le
 mouvant au passage, au lieu de nous replacer dans
@@ -209,14 +186,10 @@ concepts raides et tout faits, il ne suit pas que nous
 ne puissions la saisir de quelque autre manière. Les
 démonstrations qui ont été données de la relativité
 
-LL
-
-Henri Bergson
 de notre connaissance sont donc entachées d'un
 pice originel : elles supposent, comme le dogmatisme qu'elles attaquent, que toute connaissance
 doit nécessairement partir de concepts aux contours
 arrêtés pour étreindre avec eux la réalité qui
-s'écoule. ï
 VI. Mais la vérité est que notre intelligence peut
 suivre la marche inverse. Elle peut s'installer dans
 la réalité mobile, en adopter la direction sans cesse
@@ -232,9 +205,7 @@ des termes artificiels en fonction desquels les
 problèmes sont posés. Philosopher consiste à invertir la direction habituelle du travail de la pensée.
 VII. Cette inversion n'a jamais été pratiquée
 d'une manière méthodique; mais une histoire
-È
 
-INTRODUCTION A LA MÉTAPHYSIQUE
 approfondie de la pensée humaine montrerait que
 nous lui devons ce qui s'est fait de plus grand dans
 les sciences, tout aussi bien que ce qu'il y a de
@@ -259,11 +230,6 @@ résultats pratiquement utilisables, elle agrandira
 indéfiniment le domaine de ses investigations. Ce
 qu'elle aura perdu, par rapport à la science, en
 utilité et en rigueur, elle le regagnera en portée
-
-9 L
-
-' : MAN Ans AY AR
-Henri Bergson
 
 et en étendue. Si la mathématique n'est que la
 science des grandeurs, si les procédés mathéma-
@@ -290,11 +256,7 @@ donc, ayant atténué par avance ce que la formule
 aurait à la fois de trop modeste et de trop ambitieux, que l'objet de la métaphysique est d'opérer
 des différenciations et des intégrations qualitatives.
 
-10 |
-
 |
-
-INTRODUCTION À LA MÉTAPHYSIQUE
 
 VIII. Ce qui a fait perdre de vue cet objet, et ce
 qui a trompé la science elle-même sur l'origine des
@@ -307,7 +269,6 @@ __ nous avons un si grand besoin. Là est la condition
 de ce que nous appelons rigueur, précision, et aussi
 extension indéfinie d'une méthode générale à des
 cas particuliers. Or, cette extension et ce travail de
-perfectionnement logique peuvent se poursuivre
 pendant des siècles, tandis que l'acte générateur de
 la méthode ne dure qu'un instant. C'est pourquoi
 nous prenons si souvent l'appareil logique de la
@@ -324,10 +285,6 @@ des choses. Cette intuition atteint l'absolu.
 
 La science et la métaphysique se rejoignent donc
 dans l'intuition. Une philosophie véritablement in-
-
-II
-
-Henri Bergson
 
 tuitive réaliserait l'union tant désirée de la métaphysique et de la science. En même temps qu'elle
 constituerait la métaphysique en science positive,
@@ -355,7 +312,6 @@ immobile, l'Ame une chute de l'Idée. Toute cette
 philosophie qui commence à Platon pour aboutir
 à Plotin est le développement d'un principe que
 
-INTRODUCTION 4 LA MÉTAPHYSIQUE
 nous formulerions ainsi : Q IL y a plus dans l'immuable que dans le mouvant, et l'on passe du
 stable à l'instable par une simple diminution. » Or,
 c'est le contraire qui est la vérité.
@@ -383,7 +339,6 @@ figés, distinets, immobiles. Dans la vivante mobilité
 des choses l'entendement s'attache à marquer des
 stations réelles ou virtuelles, il note des départs et
 
-Henri Bergson
 des arrivées : c'est tout ce qui importe à la pensée .
 de l'homme en tant que simplement humaine. Il est
 plus qu'humain de saisir ce qui se passe dans l'intervalle. Mais la philosophie ne peut être qu'un
@@ -406,7 +361,6 @@ le sentiment de la continuité mobile du réel? Commeni ne se seraient-ils pas p
 appelons la durée concrète? Ils l'ont fait plus qu'ils
 ne l'ont cru, beaucoup plus surtout; qu'ils ne l'ont
 
-INTRODUCTION A LA MÉTAPHYSIQUE
 dit. Si l'on s'efforce de relier par des traits continus
 les intuitions autour desquelles se sont organisés
 ‘les systèmes, on trouve, à côté de plusieurs autres
@@ -431,7 +385,6 @@ division, de reconstruction. Il l'a poursuivi, il est
 vrai, sous une forme assez différente. Sans insister
 sur un point que nous nous proposons de développer ailleurs, bornons-nous à dire que l'entendement,
 
-Henri Bergson
 dont le rôle est d'opérer sur des éléments stables,
 peut chercher la stabilité soit dans des relations,
 soit dans des choses. En tant qu'il travaille sur des
@@ -460,7 +413,6 @@ pourraient aller, et où d'ailleurs elles s'acheminent
 d'elles-mêmes dès que l'entendement revendique
 une indépendance pleine de périls. Une fois mécon-
 
-INTRODUCTION À LA MÉTAPHYSIQUE
 nues les attaches de la science et de la métaphysique
 avec l'intuition intellectuelle, Kant n'a pas de peine
 à montrer que notre science est toute relative et
@@ -489,7 +441,6 @@ prétend nous donner un système unique et tout
 ni
 de:
 
-Henri Bergson
 fait de choses, contre une science qui serait un
 système unique de relations, enfin contre une
 science et une métaphysique qui se présenteraient avec la simplicité architecturale de la
@@ -512,10 +463,6 @@ multiples, diverses, qui s'insèrent dans le mouvement propre de chaque réalit�
 pas toujours les unes dans les autres, elle prétend
 être une immense mathématique, un système unique de relations qui emprisonne la totalité du réel
 dans un filet monté d'avance, elle devient une connaissance purement relative à l'entendement humain. Qu'on lise de près la Critique de la Raison
-18 |
-k
-
-INTRODUCTION À LA MÉTAPHYSIQUE
 
 pure, on verra que c'est cette espèce de mathématique universelle qui est pour Kant la science, et ce
 platonisme à peine remanié qui est pour Jui la
@@ -538,7 +485,6 @@ que notre entendement organise lui-même la nature
 et s'y retrouve comme dans un miroir. D'où la
 possibilité de la science, qui devra toute son eflicacité à sa relativité, et l'impossibilité de la métaphysique, puisque celle-ci ne trouvera plus rien à
 
-Henri Bergson
 faire qu'à parodier, sur des fantômes de choses, le
 travail d'arrangement conceptuel que la science
 poursuit sérieusement sur des rapports. Bref, toute
@@ -564,10 +510,7 @@ connaissance métaphysique est bien ce qu'a voulu
 Kant, elle se réduit à l'égale possibilité de deux atiitudes opposées de l'esprit devant tous les grands
 problèmes; ses manifestations sont autant d'options
 
-20 |
-
 PP les LU 1." tel : LR à She nt EE:
-INTRODUCTION A LA MÉTAPHYSIQUE
 arbitraires, toujours éphémères, entre deux solutions formulées virtuellement de toute éternité :
 elle vit et elle meurt d'antinomies. Mais la vérité
 est que ni la science des modernes ne présente cette
@@ -593,9 +536,7 @@ Les idées vraies et fécondes sont autant de prises
 de contact avec des courants de réalité qui ne convergent pas nécessairement sur un même point. Il
 est vrai que les concepts où elles se logent arrivent
 toujours, en arrondissant leurs angles par un frot21
-Cr
 
-Henri Bergson
 tement réciproque, à s'arranger tant bien que mal
 entre eux.
 
@@ -623,7 +564,6 @@ philosophes. Gertes, les divergences sont frappantes entre les écoles, c'est-à
 entre les groupes de disciples qui se sont formés
 autour de quelques grands maîtres. Mais les trouverait-on aussi tranchées entre les maîtres eux-
 
-INTRODUCTION A LA MÉTAPHYSIQUE
 mêmes? Quelque chose domine ici la diversité des
 systèmes, quelque chose, nous le répétons, de
 simple et de net comme un coup de sonde dont on
@@ -651,9 +591,6 @@ plus, un effort, souvent très pénible, pour se placer
 tout d'un coup au cœur même du sujet et pour aller
 chercher aussi profondément que possible une impulsion à laquelle il n'y aura plus ensuite qu'à se
 
-Lu :
-
-Ÿ Henri Bergson
 laisser aller. Cette impulsion, une fois reçue, lance
 l'esprit sur un chemin où il retrouve et les renseignements qu'il avait recueillis et mille autres
 détails encore: elle se développe, elle s'analyse
@@ -677,7 +614,6 @@ masse qu'on soit assuré, dans cette fusion, de neutraliser les unes par les aut
 préconçues et prématurées que les observateurs
 ont pu déposer, à leur insu, au fond de leurs obser24
 
-INTRODUCTION A LA MÉTAPHYSIQUE
 vations. Ainsi seulement se dégage la matérialité
 brute des faits connus. Même dans le cas simple et
 privilégié qui nous a servi d'exemple, même pour
@@ -702,51 +638,32 @@ visibles dans la pendule. En ce sens, la métaphysique n'a rien de commun avec u
 de l'expérience, et néanmoins elle pourrait se dé-
 finir l'expérience intégrale.
 
-HExrt BERGSON
 il
 
 11e Année, No1 Janvier 1903
 Revue de Métaphysique
 et de
-Morale
 Secrétaire de la Rédaction : M. XAVIER LÉON
-SOMMAIRE
 H. Berason . Introduction à la métaphysique . . 1-36
 E. Durkueim. Pédagogie et sociologie . . . . . . 37-04
 J. PERRIN. . . Le CL d'équivalence et la
-notion (d'énergie. "NISPNEE 55-82
-ÉTUDES CRITIQUES
 L. CoururaAT. Le système de Leibniz d'après
-M'Gassirer ON IPN OR 83-99
-l QUESTIONS PRATIQUES
-“P. JAcoB. . . La crise du libéralisme . , . . . . 100-120
 A. LAnpry., . La superstition des principes . . . 121-137
-Supplément : Livres nouveaux. — Revues. — Thèses
 de doctorat.
-Librairie Armand Colin
 5, rue de Mézières, Paris
 Publication paraissant tous les deux mois. — Le
 numéro : 8 fr. — Un an (6 numéros) : France : 12 îr.;
 Colonies et Union postale, 15 fr.
 Pour l'envoi de toute correspondance, valeurs, mandatsposte, libeller ainsi l'adresse : Librairie Armand Colin,
 5, rue de Mézières, Paris, 6°.
-à
 #
 
-BULLETIN
-DE LA
-LI L L 1e
-i
 Société française de Philosophie
-Administrateur : Secrétaire général :
-M. XAVIER LÉON M. ANDRÉ LALANDE
-; TROISIÈME ANNÉE
 
 Chaque année du Bulletin de la Société française de Philosophie comprendra huit numéros, paraissant de Janvier à Août, à
 raison de un numéro par mois.
 
 ABONNEMENT ANNUEL {du 1° janvier)
-ReANeR 070.0 8 fr. || UNION rosTALE 120 fr.
 Le numéro : 1 fr. 50
 
 La Première Année (1901), commencée en mai, s'est terminée en
@@ -764,25 +681,17 @@ Leibniz ie M. uni. — Mai : Le matérialisme historique
 (thèse, M. SorEL). — Juin : Le luxe (thèse, M. BELOT). — Juillet et
 Août: Constitution d'un vocabulaire philosophique (thèse, MM. BeLOT, COUTURAT, DELBOS, LALANDE).
 
-BIBLIOTHEQUE
 du
 
 Congrès international de Philosophie
 
-& VOLUMES IN-8° correspondant aux quatre sections Qu Congrès
-
 L Philosophie générale et Métaphysique
 
-A 12 fr. 59
-II. Morale /en préparation). . . . . . . . . . . 12fr. 50
 II. Logique et Histoire des Sciences /paru). 25 fr.
 IV. Histoire de la Philosophie /paru/. . . . 42fr. 50
 
 Envoi franco, sur demande, d'une circulaire donnant les titres des
 Mémoires communiqués au Congrès et dont la réunion formera les
-quatre volumes annoncés.
-
-he,
 
 11 faut que tous ceux qui le peuvent lire utilement
 achètent ce numéro de la Revue.
@@ -795,7 +704,6 @@ librairie Gauthier-Villars. Nous suivrons autant que
 nous le pourrons dans ces cahiers mêmes les travaux
 si considérables de Perrin, à mesure que nous laisserons à elles-mêmes les vanités et les fureurs politiques
 pour les solidités, les constances et les modesties du
-travail.
 
 Dans le même numéro, un article notable de notre
 camarade Adolphe Landry : la superstition des principes.
@@ -804,11 +712,9 @@ Je rappelle que les deux livres de M. Bergson, en
 vente à la librairie des cahiers, sont :
 
 Essai sur les données immédiates de la conscience, un volume in octavo de 184 pages, Alcan
-éditeur, 3 francs 75
 
 Matière et mémoire, essai sur la relation du corps
 à l'esprit, un volume in octavo de 280 pages, Alcan
-éditeur, 5 francs
 et que le cours du Collège de France est ainsi distribué :
 
 Philosophie grecque et latine. — M. Bergson étudie,
@@ -819,11 +725,9 @@ le samedi à trois heures trois quarts il explique le
 second livre de la Physique d'Aristote.
 
 Enfin des articles de revue assez espacés, mais assez =
-réguliers.
 
 la démocratie et l'organisation
 des partis politiques
-TR
 
 Il m'a été donné de lire de très près ce livre et j'en
 fus vraiment le premier lecteur; c'est une œuvre capitale, et qui dépasse de beaucoup son intention première.
@@ -851,10 +755,8 @@ dans l'erreur, dans le vice, et dans toute barbarie.
 L'historien n'avait pas à se poser ce problème
 formidable ; c'est parce qu'il n'avait pas à se le poser,
 c'est parce qu'il ne se l'est pas posé, au moins formellement ainsi, que ces deux volumes laissent une
-impression si amère.
 
 C'est un livre à mettre dans toutes les bibliothèques
-publiques, bibliothèques municipales, bibliothèques
 
 populaires, bibliothèques scolaires, bibliothèques de
 groupes et d'universités populaires; plus il y aura de
@@ -871,7 +773,6 @@ M. Osrrocorski. — La Démocratie et l'organisation des partis politiques, deux
 in octavo, le premier de xrv +610, le second de
 760 pages, les deux volumes vingt francs
 
-Avant-propos
 Il faut une science politique nouvelle à un monde tout nouveau.
 Mais c'est à quoi nous ne songeons
 guère; placés au milieu d'un fleuve
@@ -880,9 +781,7 @@ yeux vers quelques débris qu'on
 aperçoit encore sur le rivage; tandis
 que le courant nous entraîne et nous
 pousse à reculons vers les abimes.
-TOCQUEVILLE
 {De la Démocratie en Amérique,
-Introduction)
 
 J'étudie dans ce livre le fonctionnement du gouvernement
 démocratique. Mais ce ne sont pas les institutions qui sont
@@ -897,8 +796,6 @@ des forces politiques distinctes des formes politiques n'était
 pas assez manifeste aux esprits. Masquée d'abord par la
 simplicité relative de la vie politique, où les formes et les
 forces paraissaient se confondre, elle eut de la peine à se
-
-M. Ostrogorski
 
 dégager même après le grand essor de la pensée politique
 et l'avènement de la liberté au dix-huitième siècle : ce siècle
@@ -937,9 +834,7 @@ qui les mettent en œuvre, et des conditions sociales et
 politiques où leurs volontés se forment et se manifestent. K
 C'est seulement ainsi comprise que l'étude des méthodes
 politiques aura, en même temps qu'une portée philoso32
-L
 
-LA DÉMOCRATIE ET L'ORGANISATION
 phique, une véritable portée pratique. C'est une étude des
 méthodes du gouvernement démocratique conçue dans cet
 esprit, étude de psychologie sociale et politique, fondée sur
@@ -980,7 +875,6 @@ forment à la veille des élections et se désagrègent bientôt
 après, les contingents des partis ne présentent souvent que
 des masses flottantes. Deux pays se trouvent à ce point de
 
-M. Ostrogorski 4
 vue en avance sur tous les autres. Ce sont l'Angleterre et
 les États-Unis, que le développement plus grand de la
 liberté eût déjà placés à la tête de l'humanité politique à
@@ -1003,7 +897,6 @@ institutions politiques sont taillées sur le même patron, où
 les conditions sociales amenées par l'évolution économique
 se ressemblent, et où par conséquent les hommes subissent
 des influences semblables et se dirigent par des voies
-parallèles.
 ‘La nature de l'étude que j'ai entreprise a fait que la plus
 * grande partie de ses éléments a dû être recueillie dans la
 vie et non pas dans les bibliothèques. Si l'organisation des
@@ -1019,8 +912,6 @@ ils étaient relégués aux petites nouvelles sans importance,
 politiques. Les travaux d'ensemble sur le sujet manquaient
 complètement. Les informations qu'on aurait pu découvrir
 dans les collections d'anciens journaux, dans des articles
-
-DES PARTIS POLITIQUES
 
 de revue, brochures, ou même dans des ouvrages plus ou
 moins importants ou des documents ofliciels, attendaient
@@ -1041,7 +932,6 @@ dans la revue finissait, parut l'ouvrage monumental de
 M. Bryce : The American Commonwealth, où fut donnée
 pour la première fois une description méthodique du
 système actuel des partis, qui fut une révélation, non seulement pour les lecteurs de l'ancien monde, mais pour les
-Américains eux-mêmes.
 
 En Angleterre, l'organisation des partis fondée sur une
 base populaire était de création très récente, et l'étude en
@@ -1057,7 +947,6 @@ ville, m'y livrer à des enquêtes contradictoires, pour dégager
 la vérité, obseurcie par Les compétitions politiques ou simplement par les rivalités locales, Les faits et les impressions aussi bien que les rares documents que je recueillais
 me conduisaient à des généralisations que je vérifiais
 
-M. Ostrogorski
 constamment, en me mettant en contact avec les hommes
 et les choses. Je décomposais mes généralisations en des
 questions concrètes et souvent de nature très terre à terre
@@ -1090,16 +979,11 @@ j'ai entreprise après avoir épuisé mon sujet en Angleterre. F:
 Maître de la méthode que j'avais éprouvée au cours de mes
 investigations anglaises, j'ai repris sur nouveaux frais 3
 l'enquête américaine, et je l'ai poursuivie selon cette
-méthode aux États-Unis. |
 Ainsi je suis arrivé à élever un ensemble qui, sous la :
 forme d'une étude scientifique, historique et critique du
 régime des partis organisés, est en réalité une étude du ;
 fonctionnement du gouvernement de la démocratie et des
 problèmes vitaux qu'il pose devant la société actuelle et
-
-e “| Pal 4 re
-ji i} fe
-LA DÉMOCRATIE ET L'ORGANISATION
 
 qui engagent tout l'avenir de notre civilisation politique.
 Les faits divers, qui ont été jusqu'ici dédaigneusement jetés
@@ -1136,27 +1020,16 @@ m'approprie la parole d'un célèbre écrivain qui fut aussi
 un homme d'action : « J'envoie ce livre dans le monde avec
 l'espoir qu'il déplaira à toutes les sectes politiques. » (1)
 
-() « Ich schicke ihn mit der Hoffnung in die Welt, dass er allen
-politischen Secten missfallen werde. » (F. C. Dahlmann, Die Politik,
-Erster Band. 1835.)
-
 de: mi
-FAO
 
-v. 4
-M. Ostrogorski
 Pendant que je rédigeais les derniers chapitres de ce
 livre et qu'il s'imprimait, il s'est produit dans l'ordre politique et dans le domaine de la législation des événements
 qui n'ont pu être naturellement ni appréciés ici ni mentionnés. Mais comme ces faits nouveaux ne modifient pas
 les conclusions auxquelles je suis arrivé, il n'y a pas lieu,
 ni pour le lecteur ni pour moi, de s'en préoccuper.
-Paris, mars 1902
-M. O.
 Il nous faudrait quatre-vingts pages, que je n'ai
 pas, pour publier ici les 43 pages des deux tables des
 matières ; nous ne pouvons donner que les titres des
-chapitres :
-TOME PREMIER (Angleterre)
 L'ancienne unité;
 Désagrégation de l'ancienne société ;
 —  Tentatives de contre-révolution;
@@ -1168,19 +1041,13 @@ Le développement du Caucus ;
 Le Caucus au pouvoir ;
 L'organisation conservatrice ;
 La crise de 1886 et les dernières phases de l'organi- ‘4
-sation ;
 Le mécanisme du Caucus;
 L'action du Caucus; . |
-38 +1
-Î
 
-4 AN tt Téeax MS :
-" DES PARTIS POLITIQUES
 Candidats et campagne électorale ;
 Le gouvernement suprême dans le Caucus ;
 Organisations auxiliaires et rivales ;
 Le bilan.
-TOME SECOND (États-Unis d'Amérique)
 Les premières organisations de partis aux ÉtatsUnis ;
 L'établissement du système des conventions ;
 L'évolution du système des conventions ;
@@ -1198,11 +1065,7 @@ d'abord, sincèrement, par l'histoire de la démocratie.
 Aussi est-il profondément regrettable que la masse
 et que le prix de ces deux volumes les empêchent de
 | devenir un livre de circulation, de communication, un
-:
-%
-£ +
 
-M. Ostrogorski
 livre de bibliothèque pauvre. IL ne suffit pas que ce
 livre ‘soit lu par les professionnels de la politique et
 même des sciences politiques.
@@ -1224,10 +1087,7 @@ serait heureux, de faire de ces trois chapitres trois
 gros cahiers ; ces trois chapitres sont le bilan de
 l'Angleterre, le bilan des Américains, et la conclusion.
 
-<
-
 Voici, d'après la table des matières, la teneur de ces
-trois chapitres :
 tome premier, livre troisième, chapitre VIIL, le biian :
 
 I, Vue d'ensemble sur le rôle du Caucus. Son entreprise
@@ -1236,11 +1096,6 @@ et qui porte plutôt sur la forme que sur l'essence. |
 Comment l'application, tentée par le Caucus, du |
 principe démocratique dans toute sa rigueur, jusqu'aux conditions politiques extraconstitutionnelles, |
 n'a fait qu'accentuer l'écart fatal entre les institutions et les mœurs produit par la réforme électorale ;
-
-ri n)
-
-Re ist te
-LA DÉMOCRATIE ET L'ORGANISATION
 
 de 1867, et n'a offert, pour les rapprocher, que le :
 procédé mécanique de l'organisation. Théoriquement
@@ -1277,10 +1132,6 @@ la raison ou de démonstrations du sentiment politique, — d'une manière méca
 
 IV. Comment la diminution de la personnalité et le développement du formalisme dans les rapports politiques se sont fait sentir au plus haut degré dans la
 
-4x
-P'EVENES
-
-M. Ostrogorski s
 sphère du leadership; comment l'application trop
 rigide du principe de l'autonomie dans l'organisation
 du parti a morcelé le leadership au profit de la
@@ -1346,11 +1197,6 @@ des membres et des leaders des partis; de plus, ils
 peuvent, selon leurs convenances, se servir du Caucus pour forcer la main aux députés à la Chambre,
 sans se compromettre personnellement. Le concours
 . prêté par le Caucus aux chefs parlementaires ne
-À 4
-
-os” k
-
-M. Ostrogorski
 
 laisse pas de leur imposer des obligations, parfois
 lourdes. Comment le pouvoir arbitral de l'opinion a
@@ -1381,7 +1227,6 @@ aussi bien que par les qualités de son propre per-
 sonnel. En somme, le Caucus est encore loin de
 
 « régner en souverain sur les ruines de la Constitution
-britannique ».
 
 VIII. Toutefois, les forces vives qui tiennent en échec le
 Caucus baissent plutôt. Les influences personnelles
@@ -1392,7 +1237,6 @@ les uns des autres, et surtout les riches des pauvres,
 sans parler des obstacles suscités par le Caucus, qui
 exige invariablement le mot de passe du parti politique, et, par son organisation, favorise plutôt l'éclosion des médiocrités locales. Le « respect » baïsse et
 
-LA DÉMOCRATIE ET L'ORGANISATION
 continuera de baisser, le Caucus aidant, même du
 côté tory. Avec la solidarité des grands groupements
 religieux, qui faiblit à la faveur de la liberté, s'évanouit une autre force vive ancienne. En même temps
@@ -1430,10 +1274,6 @@ l'individu, membre du Souverain, et assurer le fonctionnement de plus en plus co
 gouvernemental. Succès relatif remporté dans la
 seconde tâche et échec complet dans la première.
 
-4 TL.
-"1
-
-M. Ostrogorski
 Affaiblissement de la prise du citoyen sur le gouvernement. Énervement des grands pouvoirs publics
 tombés sous la dépendance de l'Organisation de
 parti. L'autorité de l'exécutif frappée dans la manière dont le président est choisi. L'exercice de son
@@ -1445,7 +1285,6 @@ y introduit; empiétements du Sénat sur les attributions de la Chambre ainsi qu
 l'exécutif ; irresponsabilité que le Caucus lui
 assure. La Chambre devenue une place forte des
 intérêts privés. Le budget mis au pillage. Plus de
-discussion parlementaire au Congrès ; stérilité légis-
 
 - lative; déchéance générale. Comment le caractère
 des hommes installés au Congrès, grâce au Caucus,
@@ -1472,12 +1311,6 @@ du patronage fédéral. Comment l'énervement de la
 vie publique locale amené par le Caucus n'a pas été
 
 atténué par le fait que son œuvre centralisatrice a
-
-46 |
-
-L
-
-Fr
 
 Sa le: NORMES Pts
 be DES PARTIS POLITIQUES
@@ -1521,12 +1354,6 @@ irrégulière et spasmodique. Comment la responsa-
 
 | 47
 
-L
-
-À Li
-
-M. Ostrogorski
-
 bilité des hommes publics est d'autant moins réelle
 que la sanction d'un contrôle lui fait défaut; indifférence du public; le mérite n'est pas plus remarqué
 que le démérite. Comment l'action des hommes
@@ -1559,18 +1386,11 @@ s'afirmer, d'autre moyen que la révolte ouverte
 contre les partis. Victorieuse, l'opinion ne pouvait
 toutefois s'affirmer que dans la répression, elle
 restait dépouillée de son pouvoir le plus essentiel, le
-pouvoir préventif.
 
 VI. Comment le parti, ayant failli à ses fonctions légitimes,
 servit de levier aux intérêts privés dans leurs entre-
 
-48 "0
-
-à
-
 .
-
-LA DÉMOCRATIE ET L'ORGANISATION
 
 prises sur la chose publique. Comment il favorisa
 l'avènement de la ploutocratie. Comment le pouvoir
@@ -1584,7 +1404,6 @@ la puissance de l'argent dans l'État, apparaissant
 comme une force irrésistible, aida à l'affaiblissement
 du sentiment civique. Comment l'alliance de la ploutocratie avec la Machine a fortifié le pouvoir de
 celle-ci et a contribué à avilir le gouvernement
-populaire.
 
 VII. Comment expliquer le fait que le peuple américain
 laissa échapper de ses mains le gouvernement ? Il
@@ -1600,7 +1419,6 @@ présents; il est maintenu dans ces sentiments par
 
 : l'optimisme sans limites qui est la foi nationale, et
 sans cesse stimulé par lui dans ses aspirations maté-
-rialistes.
 
 VII. Comment l'esprit matérialiste assoupit la conscience
 civique à la faveur de l'idéalisme lui-même qui ne
@@ -1612,15 +1430,12 @@ nature du continent et des efforts de l'homme qui le
 mettait en valeur nourrissaient sa sensibilité patriotique. Comment le troisième facteur dont fut créé le
 nouveau monde, la liberté, qui s'y manifesta « mys-
 
-M. Ostrogorski
-
 tique etindéfinie », devint aussi un élément du culte
 patriotique et consacra l'orgueil national qu'inspiraient les succès matériels. Comment l'adoration de
 la patrie /our country, right or wrong}, et le patriotisme de deuxième degré, non moins fétichiste, celui
 du parti, tinrent lieu de conscience civique au citoyen
 et lui permirent de servir l'idéal et de se libérer de
 ses devoirs civiques, dans la vie de tous les jours, à
-bon compte.
 
 IX. Comment le culte du parti, qui convenait à la piété
 civique de l'Américain affairé, répondait aussi
@@ -1652,9 +1467,6 @@ les droits individuels sont entourés par la constitution, à l'organisation fé
 peu favorable à l'éclosion d'une autocratie ou d'une
 oligarchie politique, et enfin grâce aux facilités matérielles pour échapper à l'oppression qu'offrait un
 continent vaste et peu peuplé. L'envahissement de
-50 ÿ
-
-DES PARTIS POLITIQUES
 
 l'État par la ploutocratie n'a pas eu non plus pour
 objectif les libertés populaires, et n'a pas entravé,
@@ -1677,8 +1489,6 @@ politique qui envahissent son âme. L'œuvre destructive du Caucus ne pourra plu
 par le jeu spontané des forces naturelles ; il faudra
 lui opposer une résistance active sur toute la
 
-, ligne.
-
 XII. La tâche qui consisterait à remonter le courant du
 Ê régime du Caucus est immense mais point désespérée. Promesses que donnent les progrès déjà réalisés dans ces vingt dernières années ; réveil de la
 conscience publique, intérêt grandissant pour la
@@ -1693,11 +1503,6 @@ succès relatif de celles qui ont fait abstraction complète des partis. Les nou
 
 politique et l'avenir de la démocratie.
 
-5r
-” ns LA ”.
-
-M. Ostrogorski
-Tome second, livre sixième, conclusion :
 1. La vue d'ensemble des phénomènes observés ne révèle
 d'abord que confusion et contradiction : le triomphe
 de l'individu autonome, victorieux sur toute la ligne
@@ -1729,15 +1534,8 @@ d'assumer également, en dehors de ces opérations, la
 tâche de former et de coordonner les opinions des
 citoyens, et elles la remplirent de manière à faire
 échouer le régime électif et le gouvernement démo- |
-cratique.
 Ë III. Les organisations extra-légales cherchent à asseoir le
 gouvernement démocratique sur le vieux système de |
-52 :
-
-; x, |
-
-10 pu "fe
-: LA DÉMOCRATIE ET L'ORGANISATION
 
 partis, suranné, artificiel et irrationnel. Caractère
 théologique et ecclésiastique de ses conceptions.
@@ -1772,12 +1570,6 @@ lout cas, l'opinion, même soulevée, n'aflirmait son
 pouvoir que par intervalles et d'une manière répressive, son pouvoir préventif restait en souffrance.
 Comment d'autre part la notion conventionnelle de
 parti a accentué la faiblesse que le pouvoir d''intimi-
-
-, 53 ÿ
-
-2e
-
-M. Ostrogorski ‘
 
 dation sociale recèle, en laissant la pression brutale
 de l'opinion s'appesantir sur tout le monde. Comment
@@ -1818,9 +1610,6 @@ sable et gouvernement mécanique, et comment le |
 système de partis tendait à développer le second aux |
 dépens du premier. Comment en affaiblissant le ;
 
-RE PNA Et
-RS
-DES PARTIS POLITIQUES
 caractère responsable du gouvernement, le conformisme de parti a laissé la corruption rentrer dans
 la place.
 
@@ -1836,8 +1625,6 @@ rend particulièrement dangereux et malfaisant; les
 partis ne pouvant se maintenir que par une forte
 organisation, la société politique est enfermée par
 le système comme dans un cercle. Comment en
-
-; sortir ?
 
 IX. Les partis groupant les citoyens pour l'action commune sont indispensables sous un gouvernement
 libre, mais doivent être limités à leur fonction
@@ -1857,9 +1644,6 @@ portant le citoyen à prendre une part moins passive
 au gouvernement; en favorisant chez lui l'indépendance d'esprit, tout en renforçant la discipline nécessaire dans l'action commune; en relevant sa fermeté
 d'âme en face de la multitude.
 
-dr - L
-
-M. Ostrogorski
 XI. Comment la nouvelle méthode d'action publique,
 poursuivant son œuvre d'affranchissement moral,
 opérera la décentralisation du pouvoir absolu de
@@ -1893,12 +1677,9 @@ siècle sous la forme métaphysique de l'unité, et
 comment il annule les inconséquences auxquelles |
 ces doctrines aboutissent chez Rousseau aussi bien
 que celles que leurs critiques ont cherché à leur ÿ
-imputer.
 56 4
 
 de È s A pe QUers:
-
-LIT LA DÉMOCRATIE ET L'ORGANISATION
 
 XIII. Examen des principales objections contre la nouvelle
 méthode d'action politique : l'existence de plusieurs
@@ -1937,19 +1718,9 @@ sentation. La « théorie organique » et la représentation des intérêts. Com
 qu'il est erroné dans sa conception. Pour autant que
 le manque aux Chambres des porte-parole autorisés des « intérêts » est réel, on pourrait y remédier
 
-È 57
-
-be.
-
-Tr
-TR \
-
-Li à | pu! 4 P PU NOTE! dt '
 A TR ei je
-M. Ostrogorski
 par l'introduction dans le Parlement, à titre accessoire, d'un certain nombre de représentants des
 grandes organisations économiques et des corps
-constitués.
 
 XVI. La représentation proportionnelle n'est pas capable
 davantage de résoudre le problème entier de l'organisation du sufirage universel, Les résultats que
@@ -1981,7 +1752,6 @@ et des députés, et à la paralysie de l'activité gouvernementale ou du contr�
 est dans la suppression du système de cabinet, mais
 avec le maintien des ministres dans les Chambres ;
 
-Lu DES PARTIS POLITIQUES
 la séparation du législatif et de l'exécutif doit être |
 repoussée. Comment la responsabilité individuelle
 des ministres, substituée à leur responsabilité collective, renouvellera le régime parlementaire, établira
@@ -2020,9 +1790,6 @@ dans le sens de l'action libre, fondée sur la respon-
 | 59
 de
 
-10 PNA OET ON RTL TROY:
-M. Ostrogorski
-
 sabilité individuelle. Comment ces trois facteurs individualistes de la rénovation politique se présentent
 
 aussi sous un aspect social, au point de vue de l'insuffisance flagrante de l'éducation politique non seu-
@@ -2057,13 +1824,9 @@ hypothèse d'une issue fatale. Ce qu'il faut penser à
 ce sujet de l'avenir de la démocratie, et quelle doit
 
 à être, en tout cas, la ligne de conduite à suivre ?
-LT
 Je le répète : il y a dans ce livre vingt ans de travail;
 est-il impossible que le peuple intéressé profite un peu
 de ce' travail ?
-
-LE
-CAHIERS DE LA QUINZAINE
 
 Il est dit que nous ne sortirons pas de la politique.
 Dans ce cahier même où nous avons marqué l'éloignement que nous avons d'elle, où nous avons indiqué
@@ -2087,12 +1850,6 @@ agi exactement comme ils étaient, furent très rigoureusement comme ils représ
 Non pas que les députés d'arrondissement n'aient
 souvent sacrifié les intérêts généraux aux intérêts individuels et particuliers, les intérêts du pays aux intérêts
 
-6x
-LA
-TE"
-Mr:
-
-« ÿ +
 douzième cahier de la quatrième série
 de leur circonscription, les intérêts de la France et du
 monde aux intérêts de leurs électeurs; non qu'ils n'aient
@@ -2123,11 +1880,7 @@ intérêts, la justice aux faveurs, la raison, la sagesse
 aux fureurs et aux insanités. 1
 On sait de quoiil s'agissait. Il ne s'agissait nullement, |
 comme on pourrait le croire, d'un grand débat ouvert,
-62 :
 
-A PAR ET ET ñ .
-$
-CAHIERS DE LA QUINZAINE c
 à la Chambre, devant les pouvofrs publics, pour et
 contre l'empoisonnement alcoolique ; de tels débats se
 poursuivent dans le pays.
@@ -2160,11 +1913,8 @@ folie et dans le crime.
 Ainsi dans le pays nous luttons. Nous luttons et les
 
 _  empoisonneurs n'auront pas la bataille aussi aisée qu'ils
-_ s'en flattent.
 4 Dans le pays nous simples citoyens nous luttons pour
 et contre l'envahissement et le maintien de l'empoison63
-ft:
-ft: s ,
 
 douzième cahier de la quatrième série
 nement alcoolique ; nous en sommes au régime de la
@@ -2182,7 +1932,6 @@ parlementaires étaient vraiment la représentation du
 pays, si l'État était vraiment le représentant de la
 nation, cette bataille capitale engagée dans le pays
 pour et contre l'envahissement de l'empoisonnement
-alcoolique se représenterait en bataille parlementaire;
 il y aurait des députés qui seraient pour et il y aurait
 des députés qui seraient contre l'envahissement de
 “J'empoisonnement alcoolique. Il n'en est rien.
@@ -2198,9 +1947,7 @@ Fait inouï et fait vraiment nouveau : à la Chambre
 c'étaient les empoisonneurs qui se battaient entre eux
 pour savoir qui nous empoisonnerait le plus avantageusement, qui aurait le privilège de nous empoisonner,
 64 -
-l
 
-CAHIERS DE LA QUINZAINE
 qui recevrait de l'État français le privilège d'empoisonner la France; la question qui se traitait furieusement n'était absolument pas la question de savoir
 comment on arracherait la France à l'empoisonnement
 alcoolique ; c'était la question de savoir si nous serions
@@ -2229,8 +1976,6 @@ légitimistes : il n'y eut plus que des bouilleurs et des
 anti-bouilleurs; les bouilleurs et les anti-bouilleurs
 
 _ venaient de partout, se joignirent étroitement, comme
-6ù IV.
-uv
 
 douzième cahier de la quatrième série
 jamais les hommes d'un même parti ne s'étaient joints
@@ -2238,7 +1983,6 @@ depuis le commencement de la législature.
 Il n'y eut plus rien; tous les prétendus partis, brisés;
 deux grands partis seulement, mais deux grands partis
 vrais, disons-le, deux grands partis sincères, deux ;
-grands partis profonds, deux grands partis réels :
 bouilleurs et anti-bouilleurs. Il n'y eut pas un seul antialcooliste. Quelle haute leçon d'histoire, de morale et
 de philosophie un antialcooliste, éloquent ou non, eût
 donnée à cette assemblée d'empoisonneurs ; quelle
@@ -2258,13 +2002,10 @@ troisième, qui fut l'espoir des honnêtes gens, faisait
 récemment une démarche en commun avec M. Godefroy
 Cavaignac auprès de M. le général André, pour cette
 seule raison que M. Godefroy Cavaignac et lui sont
-deux anciens polytechniciens. |
 Être ancien élève de l'École Polytechnique, être bouil- |
 leur ou anti-bouilleur, cela compte plus, cela compte ]
 seul dans la réalité des relations parlementaires ; dès
-66 |
 
-CAHIERS DE LA QUINZAINE
 que le débat fut ouvert sur le meilleur moyen d'empoisonner, rien ne fut; tous les partis brisés; le socialiste
 anti-bouilleur était le plus mortel ennemi du socialiste
 bouilleur; mais le socialiste bouilleur était l'ami le plus
@@ -2279,7 +2020,6 @@ siège d'une perturbation passagère, d'un trouble inattendu; on a dit qu'un ven
 au contraire la situation de ces jours qui était la situation vraie, la situation sincère, la situation réelle, exactement la situation normale, et c'est la situation habituelle qui est la situation feinte. C'est la situation de
 tous les autres jours qui est la situation trouble. La
 situation de trouble n'est nullement la situation
-trouble.
 
 Comme les jeux et les amusements des partis ont
 crevé sous l'impérieuse poussée de cette question :
@@ -2325,9 +2065,6 @@ pourront tout le reste de la nation contre les députés
 des autres circonscriptions; comment tant de paix a
 donné tant de guerre; comment tant de solidarité a
 
-68 (
-
-CAHIERS DE LA QUINZAINE
 donné tant d'inimitié ; comment le fonctionnement de la
 représentation parlementaire est devenu dans la réakité
 l'exercice d'une guerre civile perpétuelle, comment, loin
@@ -2391,12 +2128,9 @@ Une fois de plus la France est le laboratoire du monde. »
 Je lui répondis que je ne tenais nullement à ce que la |
 France devint un perpétuel cobaye. « Voyez, me dit-il, |
 cette admirable séance où un député de la plus radicale |
-défense républicaine aflirma solennellement qu'aux 1
 dernières élections législatives les paysans n'avaient
 voté pour les candidats républicains et ne les avaient
 élus que parce que les candidats républicains avaient ;
-
-70 ;
 
 F te CAHIERS DE LA QUINZAINE
 _ solennellement juré que la République maintiendrait
@@ -2427,7 +2161,6 @@ _ République, et loin par delà cette République troi_ sième, l'attachement d
 Fi _ Je lui répondis que moi aussi je ferais état de ces
 lé mémorables séances pour le travail beaucoup plus
 % modeste que je prépare et que j'intitulerai sous la domiAE
-A4
 
 douzième cahier: de la quatrième série
 nation des radicaux. Je lui confiai que je pensais que je
@@ -2442,7 +2175,6 @@ d'eux-mêmes comme pour que mon travail fût bien
 fait, bien composé. Mais j'ajoutai que j'y travaillais
 sans aucune joie, et que j'eusse aimé mieux que la
 matière füt moins prête et que la réalité fût moins
-laide.
 Je ne veux pas aujourd'hui anticiper sur le travail
 que je prépare. Pour dire comme ces messieurs, je
 ne veux parler que sur la date, et non pas sur le fond.
@@ -2463,15 +2195,12 @@ allant de soi, tout aussitôt que l'on eut connu qu'il
 s'agissait en effet de l'empoisonnement électoral. |
 72 1
 
-CAHIERS DE LA QUINZAINE
-
 Je veux noter encore en bref un exemple éclatant
 de la distinction que je reconnais entre l'État et nous
 le peuple, nous la nation, nous le pays.
 
 Dans le pays, nous nous battons pour et contre l'en- $
 vahissement et le maintien de l'empoisonnement alcoolique ; et nous voyons dans cet empoisonnement un
-événement social, moral, historique, ethnique, biologique, anthropologique, philosophique, scientifique
 vraiment capital. Nous considérons cet énorme événement avec effroi, avec du courage, avec résolution.
 L'État, lui, se demande combien que ça lui rapporte.
 Où nous voyons effroyablement en jeu la vie ou la
@@ -2492,8 +2221,6 @@ de partager le rendement, ignorants du mécanisme et
 
 dela mécanique, se partageraient la machine même en
 
-v
-
 douzième cahier de la quatrième série
 pleine marche, en plein rendement, pendant qu'elle produit, dérobant l'un la bielle et l'autre le piston, pour
 être sûr que ce n'est pas le concurrent de l'arrondissement d'en face qui les dérobera, et, les ayant dérobés,
@@ -2512,7 +2239,6 @@ gros empoisonneurs des Charentes, aux moyens empoisonneurs du Midi, aux petits e
 
 « de la Normandie. Et c'est pour équilibrer le budget bourgeois de l'État bourgeois que Jaurès veut introduire en
 substitution ce qu'il croit être un commencement de
-réalisation socialiste.
 
 On sait comme il comptait introduire le monopole de |
 l''empoisonnement; il escomptait le mécontentement |
@@ -2525,8 +2251,6 @@ distillateurs du Nord et votons le monopole de M. Jaurès.
 
 74 4
 
-PS % 0 GS 4
-CAHIERS DE LA QUINZAINE
 Et par cet anéantissement mutuel et volontaire, par
 ce beau coup de suicide à la tribune, le monopole
 passait. Ainsi non seulement en général Jaurès compte
@@ -2561,10 +2285,6 @@ entières, que des provinces de paysans vont se soulever
 table, pour que vous fassiez un beau coup parlementaire.
 
 & Il est devenu évident que les hommes qui nous van-
-
-Te 7
-
-D.
 
 douzième cahier de la quatrième série
 
@@ -2631,8 +2351,6 @@ monopoles avantageux. Les étatistes sont si pénétrés à
 
 de l'État qu'ils en sont à le sous-entendre dans leur dis- 4
 
-ÉUE
-GAHIERS DE LA QUINZAINE
 cours même; quand ils ne parlent de rien, c'est de
 _ VÉtat qu'ils parlent; quand ils ne parlent de personne,
 c'est de l'État qu'ils parlent; ils disent un monopole
@@ -2655,8 +2373,6 @@ En face de l'empoisonnement alcoolique l'honnête
 homme, le simple citoyen ne se pose qu'une question :
 __ comment résister à l'envahissement de ce mal. Deux
 
-remèdes apparaissent.
-
 Premièrement une infatigable propagande morale. Infatigable, énergique, résolue, mais libertaire. Il ne s'agit
 pas de s'attaquer aux libertés individuelles respec-
 
@@ -2672,11 +2388,6 @@ _  blement et rationnellement à la raison; éliminons le
 
 " poison par les moyens rationnels ; exterminons de la
 
-CN
-
-Le +
-
-P+ Fe
 douzième cahier de la quatrième série
 cité l'intoxication. Mais ici apparaît, brusquement,
 toute la formidable vanité du monopole.
@@ -2705,10 +2416,7 @@ c'est pour exploiter l'alcoolisme, vous êtes des finan- 1
 ciers sérieux, mais ne nous dites pas que vous êtes î
 antialcoolistes, et ne nous parlez pas de morale. Et ne 4
 nous parlant pas de morale, ne nous parlez pas de justice. Et ne nous parlant pas de justice, ne nous parlez £
-78 #
-Pet
 
-$ CAHIERS DE LA QUINZAINE
 pas de justice sociale, et de révolution sociale, et ne
 . nous parlez pas de socialisme.
 Cette propagande morale est ce que quelques-uns
@@ -2735,10 +2443,7 @@ sauve de l'aventure, qu'importe que le résultat soit
 à acquis plus ou moins par un travail de laboratoire ou
 L par un travail de prédication morale, ces deux formes
 k. hautement respectables du respectable travail humain.
-& CHARLES PÉGUY
 |
-: À 79
-Si
 
 douzième cahier de la quatrième série
 Je voulais traiter d'ensemble ces grosses questions;
@@ -2754,11 +2459,8 @@ Les annonces des cahiers sont gratuites. Nous annon-
 çons à nos abonnés les articles de journaux et de revues
 et les volumes qui peuvent devenir pour eux, ou pour
 certains d'entre eux, des moyens de travail et de culture, sans demander aux éditeurs ni leur avis, ni leur {
-Jinance. |
 — Sur les annonces des cahiers publiées dans les trois ;
 premières séries des cahiers, se référer au i
-À
 Sixième cahier de la quatrième série, cahier de É
 courrier, inventaire des cahiers, en forme de cata- 4
 logue, un cahier de 72 pages, un franc ie
-k

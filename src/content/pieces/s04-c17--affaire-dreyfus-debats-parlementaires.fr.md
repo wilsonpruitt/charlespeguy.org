@@ -7,67 +7,22 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 76926
 ---
-
 | SEPTIÈME CAHIER DE LA QUATRIÈME SÉRIE
-De PNR 0" |
-MEN AFFAIRE DREYFUS DS
-…_PARLEMENTAIRES. +,
-FR DNA MENTION JAURÈS. — INVALIDATION
-_ : SYVETON. — CHAMBRE CES DÉPUTÉS.
-LA — SÉANCES DU LUNDI 6 ET DU MARDI 7 PUS
 | AVRIL 1903. — COMPTE RENDU À
-…  STÉNOGRAPHIQUE IN EXTENSO D'APRÈS ‘À
-Fo _ LE JOURNAL OFFICIEL. — ÉDITION COMPLÈTE
-! LIENS
-
-._ CAHIERS DE LA QUINZAINE. RCE
 
 | NSSSS paraissant vingt fois par an UE
 
 8, rue de la Sorbonne, au rez-de-chaussée
 
-Net Vad FROM Fe RTS 1
 | HENTAI ‘ie LES
 SRE IS SANS Dee rit
-: 1 À à 1 + PERmEUS à
-US | ni L 1 Re DOTE
 | Fan ; | 22 1 2 NV ASE
-: AAC ; it EAU
 | HAMERCAN PRE à d ee SUCER PRE a
 RARES x HAE rase #3; FL SES
-Rx L $ À LE LE A TA CENTS
-10 MR ET A EES SET
-HSE MERS tE JU ho RARE à DST SRE FRERE
-, RÉURNRE RU ENS ACER ELA Fe RS
-Pt à ARE NAN ET EEE AN EVE VE Che: PURE Du
 
-ET Re 2 RM dE LT RS
-LORPALEE ESA ë à CMS NL à ae PR AT IR FPE
-DR TE
-ACIER .
-10 ONE ES &
-: RAR Se ve $
-RITES |
-ML. :
-e Fa ; co y 0
-RC ÿ LA
-FAUNE +
-1 ECS me.
 gr. ne. L es
-ne > “+ |
-: LÉËÈRRS :
 | APRES à |
-En |
-[ANS PRE LS | À
-x RATE = à.
-l TN ER
-Br. £
-A ETES i 5
-A 1% &
 | QT, € :
-TT UERES ds à és
-
-LR re PA
 
 RS Sur les documents, renseignements, contributions, |
 
@@ -75,17 +30,11 @@ Ro Use les travaux et les œuvres concernant l'affaire Drey fus |
 
 3 publiés dans les trois premières séries des ca iers, se |
 
-5 référer au à LIL EEE
-
 : Sixième cahier de la quatrième série, cahier de cour- … |
 
 rier, courrier de Paris, invéntaire des cahiers, en forme
 
 de catalogue, un cahier de 72 pages, un franc
-
-3 J 1 = re
-
-= AS
 
 + tes sr
 
@@ -104,136 +53,36 @@ ae Docreur Oxo. — Précis de l'Aîfaire Dreyius,
 Ps Nous reviendrons sur cette brochure. — Adresser LE |
 
 * commandes à M. André Bourgeois, administrateur des
-= ze ni + SR :
 
 ‘3 cahiers, 8, rue de la Sorbonne, rez-de-chaussée, Paris, …
 
-cinquième arrondissement. PR
-
-47 MOREL FAST CHE hp,
-[AY RER ARR PC At à Nr PR IL EE AE 4 PS D'RUNIARE ;
-LS RAS NS Fer “ C'EE PO Tet y ù
-:s ; WE ENEE ARR TL Nue > Dee di EP e  à ANSE
-: JR Yt TEEN LE ER FE PER
-É ‘| ss y. NYNEn Ne RE, :
-Rae" UE
-; « ue HER At -
-LICE ET
-ha LT à M EE dv à
-‘ FREE + SPAS OS
-, RU 0" sn #
-ACTA # ARR
--H' NOTES k ay
-ARE : SEE
-1 LS ee 4 £ PH
-T5 A Set,
 | LT RSR a AR BL
 DR ne" NES ” de LES TEE
 Ne OR A Hu ep RE CS
-PA Der, Ars OT
 
-AE RS LR TER RTL VEN RES
-NN RE ACTA CAREn ET 1e NA RARE He de RÉ SEUER MEN RAR >
-PASSE S : Re É
 le k : TERRIER
-© SNA : PAR
-NN DER SA
 
-“ DEPENTS ls P F
-a Le
-6 TE ET $ < PRRPAL E
-PO PQ LE Û x
-RL Er :
-PR " =
-L $ ÿ 5 RS + L
-Ge .
-LEE 4
-MOUSE
-L TRÈS AFFAIRE DREYFUS :
-EST
-Te CA
-52€ VRP
 D textes et documents
-ee ARE
-+ à 20 rt .
-z Se Fi <
-e FA v. L VA
-TON :
-; LR: Pi A
-LICE * 3 2%
 
-2e A e REP Re A0 MP te
-RAD Er # x à LIRE
-
-ui LENS
 Mae Le ; LES
 
 | ANGES _ TES 5
-LR : RE
 
 |) SFR $ ; en 84e
 
 et HErISre Eee FLE ENS IENRE A CA a
-MAT, à = 3 LPS ASE Êe ù
 AE à ro j È PM de 135
 
-DÉBATS
-
-PARLEMENTAIRES
-INTERVENTION JAURÈS. — INVALIDATION
-SYVETON. — CHAMBRE DES DÉPUTÉS.
-— SÉANCES DU LUNDI 6 ET DU MARDI 7
-AVRIL 1903. — COMPTE RENDU
-STÉNOGRAPHIQUE IN EXTENSO D'APRÈS
-LE JOURNAL OFFICIEL. — ÉDITION COMPLÈTE
-
 ER ARE ARR RS ER ee Le à PARTNERS
-Ré
-a DR
-Rue è dr : à S STE 3
-MR Rs. 5 LISE
-Me D
-FRA ü DR :
-NE RS à c Oo
-MR e en
 MAMAN Lt 5 ne
-Len DE dE É ï PA SE 7 ï
 REMISES Fe ep LE PE Ce AP TASSE SES
 
-15 010700 EN ENT APR EN ART CE SE MON FEAT
-\: FAYAN Aie } APE EE A EAU NOM AT TT CA DATE DRO A TER AU TN
 DUT" 22 OUR R ENT NE NE vw AA NE TRRE TPE YEN DATA er
-:F 8 * : FRERE CN ACHATS | Li \ Pa
-À AN L:
-ART TPE î à
-4 AN: Tr ‘ La
-si PACE AU D.
 | is TL
-'ompte rendu sténographi 1,10
-compet phique WU
-j MS: L:
-Her 14 AE 5
-‘ 1 CEE 30
-RL
 | Den. : 1
-D,” fe. ‘LC ER ÿ
-"ER AT
-1/0 STORE :
-PSS k |
-LU
-Le Livré } :
-1 RTER ge À
-Pie. Ra.
-! LS ESRI
-L
 
-2 PAIE To
-A Te
-
-“AA TNES NN DRE NS AA TE Lt
 a à nu. ARCALE LA SNA ; K A We NET EN NL
 | GER RCA mL CASE LA RUT RENE UT Re RON TNT
-16 GES UE, FUTUR HN M a RD EM Fe
 
 DAUA 54 NE A è ÿ hrs Foy
 
@@ -241,47 +90,23 @@ ni a al De de y
 Det Net qui k AE
 URSS Dao e TR LA ETT ee ere î
 
-hScAS) NAN 2 el HSE US £
-
-OL ALES AE À EU. ER
-
-A A QE { res DEAN
-
-ES RUN ' SA RAS TRES
-
-11 TRS " 5 PRE AUS
-
 | NES { El 6 À Ds LINE N LS de
-1/0 : de AAC LATE
 | pe TA 80 HS s UE £ #4 Sete sr ÿ Î
 He TN LE NES RP ; ‘ do Lie
 
-AN TRS CATLEE A fe À r # Le. SLR:
-
-À CD MERE } ARTS À 152 Ve Aovh, 15
-
-AUS {SHC ;
-
-RARE OR AT RCA nn RE 4 2 ABS NA IP LANAEE ARG ) GCG
-JT SRE MATE UN RUN LA AUEAT l V
 | Fe Nu HR tE RENE { 4
 |: Char nb: e des Députés, huitième législature, session
 | _ordir aire de 1903, compte rendu in extenso, soixantecinqui ème séance, séance du lundi 6 avril. — Journal 2
-PE à : : ,
 officiel du mardi 7 avril 1903 :
-FU ny ; W PA
 mm Présidence de M. ÉmENNE, vice-président. (
-RM] ,
 | sen SAS ant ;
 | À Discuss ion des conclusions du rapport de la commission ;
-7. Vas F0 ; L » L A. Là .
 char gée de procéder à une enquéte sur les opérations
 ù électo rales du deuxième arrondissement de Paris et
 ten dant à la validation de ces opérations : MM. Jaurès,
 | Nbuelen Millevoye, Henri Brisson, Godefroy Cavaig'nac,
 | _ Syveton, Massabuau, Paul Beauregard, rapporteur. h
 _ Renvoi, au scrutin, de la suite de la discussion au y
-LEE OR k .
 M. LE PRÉSIDENT. — L'ordre du jour appelle la disiSsion des conclusions du rapport de la commission
 | rargée de procéder à une enquête sur les opérations MAC
 Ur él pos du deuxième arrondissement de Paris.
@@ -290,9 +115,7 @@ La parole est à M. Jaurès.
 | I. J URÈS. — Messieurs, c'est contre les conclusions
 ; rapport, c'est plus encore contre la façon dont la
 
-Invalidation Syveton OP
 ÿ commission a conduit l'enquête, que j'ai demandé la 7
-parole. M?
 Dans la période électorale, M. Syveton s'est appro- ,
 prié l'afliche de la Patrie française dénonçant aux bons '
 citoyens le ministère de l'étranger ; il l'a faite sienne, il
@@ -321,8 +144,6 @@ C'est d'abord cette démonstration d'authenticité que,
 par ses témoins, MM. Lemaître, Judet et Cochin, il à à |
 apportée devant la commission. FA
 Messieurs, je ne conteste en aucune manière l'authen-…
-4 ;
-DMEUTR |
 
 | #4 LA INTERVENTION JAURES
 & ticité de la phrase attribuée à M. le général de Galliffet ; |
@@ -355,13 +176,10 @@ une longue carrière à parcourir je vous prie de réserver
 vos réponses et vos rectifications pour la tribune. (Très
 bien! très bien! à gauche)
 … Les témoins de M. Syveton et M. Syveton lui-même
-MN à
 
-4 HIT ERP |
 JE Invalidation Syveton 7
 53 ne s'en sont pas tenus là, et voici d'abord ce que dit k
 M. Judet, commentant la phrase du général de ! ak ï
-% liffet : | HUF NEESES
 pee Je lui demandai — [à M. de Galliffet| — un entretien. Il M
 | savait quel en serait l'objet et s'empressa de m'indiquer mt \
 à rendez-vous. Je m'en réjouis, car j'avais pris trop ardemment parti contre l'agitation Dreyfus pour ne pas souhaiter ME
@@ -394,12 +212,9 @@ témoignage consigné aux annexes de son rapport, M: Sy va
 veton et ses témoins ensuite — celui de qualifier tout le …
 parti républicain de parti qui subit la direction de
 
-A A AU A RE Le TT
 es l'étran ger. (Applaudissements à gauche.— Dénégations ) 4
 …_  Moilà la flétrissure; et à la flétrissure, on ajoute la Fa |
 | menace : ke
-* Ve LEAr L < #
-TES L” K
 Ç Je M: de Galliffet est assurément armé. Son trésor intact de È
 constatations, de notes et de pièces précieuses n'est pas de ‘ ù LE
 À _ ceux qui se vident en quelques conversations improvisées. DRE.
@@ -409,13 +224,9 @@ constatations, de notes et de pièces précieuses n'est pas de ‘ ù LE
 SR juni diction qui lui convienne, qu'il appelle de tous ses vœux, À!
 … devant la Haute Cour, pour laquelle ila la sagesse et le cou- “SE
 rage de faire patienter les secrets redoutables dont il est le 4 e
-143 *8 CREER SC
 M. Syveton, à son tour, a pris la responsabilité de it
-RÉ TISUTA fa Ho P He
 ces conclusions; il a dit qué la démonstration faite à
-HUM ER CRT 74 A È . : (v:
 dE A contre le ministère de l'étranger lui donnait le droit de , DS
-RENTREE = . ns Sn ;
 Re dire que M. Mesureur, qui avait soutenu ce ministère, La
 à _ était le candidat de l'étranger. st
 “C'est dans ces termes que l'enquête a été conduite. Et is
@@ -424,22 +235,14 @@ DEA que! jug
 _ porte sur ces procédés de diffamation à l'égard de tout
 _noti e parti, de tout le parti républicain? ({nterruptions :
 … au centre. — Applaudissements à gauche et à l'extrême
-posuche) '
 Ÿ M.re COMTE DU PÉRIER DE LARSAN. — Il n'y a pas ;
 que vous dans le parti républicain. En
 M: Jaurès. — Je vous remercie de protester et de N
 | rectifier, et je m'empresse de vous donner satisfaction :
-DE RS :
 | je vous mets en dehors des injures de M. Judet. (Nou-
 |" oeaux applaudissements à gauche et à l'extrême
-£ ‘au he)
-& 1, de SAT » +
-
-+) TUE
-Invalidation Syveton re
 
 M. Jures-Louis BRETON. — Et en dehors du parti SÉ
-républicain. (Exclamations au centre) 12
 
 M. Jaurès. — Je n'exclus personne, je ne juge per- …
 sonne, j'essaye de continuer ma démonstration. Je dis 3
@@ -463,7 +266,6 @@ tème de calomnies, et, lorsque nous élevons ici la parole
 pour répondre et pour protester, il y a des hommes, s
 même dans le parti dont je suis, qui nous disent:
 « Prenez garde, il ne faut pas rouvrir une agitation qui
-a été close! »
 
 Et moi, je dis qu'il ne faut pas être dupes de la tactique perfide de l'ennemi. (Très bien! très bien! à
 l'extrême gauche et à gauche) Il prétend clore lagita=
@@ -477,13 +279,11 @@ ches eg es et lui, il ne laisse passer aucune occa- (07e
 | sion 2 contre nous ce qui a pu rester encore Ne {
 | k obscuri dans les esprits. Ne
 | 2008 Ce sont les élections : ministère de l'étranger, parti 5
-. VC PSE 4 : j. CE
 | _ de l'étranger; c'est l'affaire Humbert qui s'ouvre. On 4:
 …. essaye, par la déposition de M. du Paty de Clam, d'y Ge
 _ cssaye, par la déposition de M. du Paty de Clam, d'; }
 ) ra tacher l'affaire Dreyfus et de nous noyer, nous tous, ; v
 _ da ns la fange de l'affaire Humbert. (Applaudissements s À
-A4 VS TENR rx a VE
 « ..… à gauche et à l'extrême gauche. — Rumeurs au centre so à
 | A Voi à comment on entend l'amnistie, voilà comment AUS 4
 on pi ‘atique l'apaisement. 6 À
@@ -494,7 +294,6 @@ Be calomnies par une vigoureuse offensive. Û %
 ee imprimés dans le rapport, que l'intervention présu- FE
 _ mée du gouvernement, après le procès de Rennes, É &
 . n'était qu'un épisode dans une longue série d'opérations : F4
-TERRE NE
 …_louches — ce sont les paroles mêmes de M. Judet, xt
 : “témoin de M. Syveton. — On a dit, dans les déposi- È
 tions mêmes que cette action louche s'était exercée th
@@ -504,16 +303,10 @@ tions mêmes que cette action louche s'était exercée th
 2 apu,au procès de Rennes, étonner et scandaliser, c'est - F0
 _ ke faiblesse de ce gouvernement dont vous dénoncez 32
 [les violences prétendues. (Exclamations à droite et au 3
-centre) Æ
--.. : SE a
 ? lyaeu ce fait sans précédent que l'arrêt de la cour !
 -de cassation proclamant, toutes Chambres réunies, que 3
 tout : l'écriture, le papier, indiquaient que le bordereau à à
-LETTRE 9 y: di
-FAR 33
 
-à Invalidation Syveton a S
-‘ à: MRC
 140 sur lequel Dreyfus fut condamné... (Nouvelles rumeurs LE
 au centre et à droite. — Applaudissements à gauche et SE
 à l'extrême gauche) 5 ne
@@ -544,12 +337,8 @@ aussi, recourir après vous à ces violences de vocabu- ss
 laire, je dirais que le vrai parti de l'étranger, c'est celui ea
 qui pendant quatre ans, dans l'intérêt de ses combi- ie |
 naisons, a fait appel par le faux à la signature d'un
-souverain étranger. (Nouveaux applaudissements) FA |
 Je veux démontrer devant cette Chambre et devant È J
 
-TT IRAN Fa M \ k PS ET AE RTEA É $ "UE
-? PATES Un” CAIN =, | pe \ À ê
-LES INTERVENTION JAURÈS : ï
 n_ Je pays que, en effet, pendant quatre ans, toute la ”
 | presse nationaliste, plusieurs des orateurs du parti W
 | nationaliste, toute la grande presse catholique ont de
@@ -559,14 +348,12 @@ Guillaume II lui-même et accablante pour l'accusé. 4
 k LE Messieurs, c'est l'histoire de la légende monstrueuse PES
 créée autour de ce faux et c'est l'histoire de ce faux ,
 lui-même, centre de la légende, que je veux suivre pas Ke:
-NE É . . # . . = d
 NA SF Je serai obligé d'infliger à la Chambre, contre d
 k, os gré, de trop nombreuses et trop longues lectures. F
 AN QJespère que je pourrai la dédommager, au cours de ;
 ‘0 mon exposé, par la communication d'un document iné- (à
 ÿ Det et bref. (Interruptions sur divers bancs. — Mouve- \
 LE | ments divers)
-* KIÉR TOUR . . , .
 Je prie nos amis de ne pas s'émouvoir de quelques 4
 re interruptions et je prie mes adversaires eux-mêmes de “
 . ne pas se hâter ; car s'ils protestaient trop vite ce n'est
@@ -574,21 +361,16 @@ re interruptions et je prie mes adversaires eux-mêmes de “
 DA c'est contre les affirmations multipliées et prolongées \
 ‘PE “où leurs amis politiques ont engagé leur respon-
 .  sabilité et leur honneur qu'ils se trouveraient avoir
-HuMeprotesté. |
 D iGéicurs, le texte de la note prétendue de l'empe- A
 ‘44e reur d'Allemagne est en allemand, mais la traduction
 À en a été donnée et certifiée par des garants que nos
-EURE . 2 : s
 “adversaires ne récuseront pas, et vous verrez qu'à traie | vers de très légères variantes dans la traduction, le
 here est identique. M. Millevoye, dans une réunion
 ‘4 _ publique du 15 février 1898 à Suresnes, affirme qu'il y
 | aala charge du condamné une lettre de l'empereur
 … d'Allemagne, dont il donne le texte : « Que cette ca-
-“10e IL
 PAR ee L
 
-1 00 0e PMR
-Invalidation Syveton \ es
 naille de Dreyfus envoie au plus tôt les pièces promises. sSigné : Guillaume. » DA
 M. Lucien Mie voye. — J'ai fait allusion à cette ou
 lettre, mais je n'en ai pas donné le texte. i. MERS
@@ -607,9 +389,7 @@ de constater que M. Millevoye ne dément pas — etilne ‘
 saurait le démentir — qu'il a fait allusion à Suresnes, ;
 devant des milliers de citoyens, à l'existence de cette ù
 lettre, et qu'il en a indiqué le sens et le texte approxi- 4
-matif.
 La Libre Parole du 6 septembre 1899 donne le texte Re
-suivant : |
 Envoyez le plus vite possible les pièces mentionnées. é
 Faites en sorte que la canaiïlle de Dreyfus se hâte. HN
 M. Rochefort, sous sa propre signature et sa propre ‘ :
@@ -621,7 +401,6 @@ M. Ferlet de Bourbonne, un de ceux qui ont été les l
 propagateurs les plus actifs de la légende, a donné à ne
 #
 
-A as INTERVENTION, JAURÈS
 “ | madame Séverine, qui l'a reproduit dans l'article du
 è _ 20 décembre 1900, et tout récemment au journaliste |
 } russe, correspondant des Novosti, M. Séménof, qui a
@@ -639,25 +418,18 @@ Le La Croix du 20 septembre 1899 :
 3 Envoyez-moi le plus vite possible les pièces indiquées. :
 Faites en sorte que cette canaille de Dreyfus se dépêche.
 Et la Vérité du 17 octobre 1899 la confirme d'une ma- -
-nière absolue.
 A quel moment cette pièce, dont toute la grande presse
 nationaliste et catholique aflirme l'existence et donne
 té le texte, est-elle apparue ? Est-ce dès 1894 ?
 ia Il y a eu dans la presse antisémite, dès le mois de
 - décembre 1894, des notes obscures et ambiguës. La .
 ; France du 10 décembre 1894 affirme que les deux pièces
-principales.
 M. Le MARQUIS DE DioN. — On pourrait parler de ;
 _ l'élection Syveton! Ce que vous dites n'a rien à voir
 ; … avec l'élection. (Réclamations à l'extrême gauche)
 M. LE PRÉSIDENT. — Pardon, c'est la discussion du :
-rapport. |
 M: ze MARQUIS DE Dion. — Nous ne voulons pas qu'on F1
-Le
-fi é : 13
-(3 ‘
 
-Inoalidation Syveton AT Pt
 reprenne l'affaire Dreyfus! Le pays n'en veut plus en- : |
 tendre parler. (Bruit) | LA, 4
 
@@ -672,7 +444,6 @@ M. LE MARQUIS DE Dion. — On a parlé pendant trois *
 ans de l'affaire Dreyfus. Cela suffit ! Il n'est pas admis- È
 sible qu'on la prolonge indéfiniment ! L'affaire est clas- à
 sée. Qu'on nous laisse tranquilles, maintenant! (Bruit (4
-à gauche) Ë
 M. Jaurès. — Je réponds à ceux qui croient devoir f
 me rappeler à la question que lorsque les témoins de
 M. Syveton ont porté devant la commission d'enquête LE
@@ -691,8 +462,6 @@ J'ai donné, d'après tous nos adversaires, le texte de +
 la lettre prétendue de l'empereur d'Allemagne. Vous ê
 constatez qu'elle est une réponse présumée à un envoi ne
 de documents annoncé. Elle est donc une réponse pré- #
-
-INTERVENTION JAURÈS
 
 ; sumée au bordereau sur lequel l'accusé de 1894 avait
 été condamné; et tout le système qui va se développer
@@ -714,7 +483,6 @@ prendre copie sur du papier mince, où on l'a décalqué.
 C'est ce décalque, fait peut-être de la main d'Esterhazy,
 qui a été soumis aux juges de 1894. Le bordereau original envoyé à Berlin était un bordereau sur papier
 épais où l'empereur Guillaume a inscrit la note ainsi
-citée. (Interruptions à droite)
 
 Ce n'est pas ma faute si ce système vous paraît
 
@@ -730,9 +498,6 @@ $ M. ze MARQUIS DE Dion. — Nous avons lu cela pen-
 
 M. Le PRÉSIDENT. — Veuillez garder le silence, mon-
 ; sieur de Dion.
-
-52 TA
-Invalidation Syveton TEE
 
 M. JAuURÈS. — Je crains que ce système n'ait été celui ‘4 ÿ
 de vos juges. 5 PIS
@@ -750,7 +515,6 @@ duite. Elle est apparue officiellement, en quelque sorte, Che à
 pour la première fois en novembre 1897 ; et c'est dans 44
 une déposition de M. Paléologue, représentant du k
 ministère des affaires étrangères, que j'en trouve la 3e
-première trace. |
 
 M. Paléologue était chargé officiellement desrelations : f
 du ministère des affaires étrangères avec le service des 4
@@ -772,12 +536,10 @@ ment de la date, l'agent B... n'ayant pu savoir, le 2 no- :
 vembre, lendemain du jour de l'arrestation de Dreyfus, si
 l'inculpé avait fait des aveux. Henry me répondit que le
 
-RCE INTERVENTION JAURÈS
 Ne document lui semblait de peu d'importance, étant données
 be les preuves accablantes d'autre part, contre Dreyfus. Il me
 _  signala ce jour-là l'existence au dossier d'une lettre de l'a-
 - gent B…. dans laquelle Dreyfus serait nominativement
-; désigné. :
 C'est la pièce, messieurs, qui est maintenant connue,
 [2 | età jamais, dans l'histoire sous le nom de faux Henry.
 Ê Mais Henry ne s'en tint pas là avec M. Paléologue ;
@@ -801,14 +563,8 @@ Ainsi, messieurs, dans les conversations officielles
 engagées pour la constitution et la mise en ordre du
 dossier entre le ministère des affaires étrangères,
 . représenté par M. Paléologue, et le service des rensei- !
-728 ES La « 4 - 5 l
 : gneménts, dirigé en fait à cette époque par le lieutenant- ë
 + k colonel Henry, le lieutenant-colonel Henry se risque à |
-4 17 p
-re) |
-
-Invalidation Syveton ee “424
-* 1
 
 opposer aux arguments de M. Paléologue l'existence de. Ne #1
 la lettre prétendue de l'empereur Guillaume. C'est la >
@@ -825,7 +581,6 @@ patrie, ce qui se passe ici! (Exclamations à gauche) 3 :
 M. LE PRÉSIDENT. — Vous n'avez pas la parole, mon- 5e
 sieur de Dion. à
 M. LE MARQUIS DE Dion. — J'ai bien le droit de pro- à
-tester. 4 À
 M. JAURÈS.— … et de même que lelieutenant-colonel E
 ' Henry était prêt à produire matériellement à M. Paléo- pa
 logue la pièce qu'il lui avait récitée et qui s'appellera 5 $
@@ -842,14 +597,7 @@ M. Lasres. — Qui l'a découvert? HR
 M. JAuURÈS. — M. Drumont nous a dit que nous étions à
 étranges de contester a priori l'authenticité d'une pièce ‘
 écrite ainsi par un souverain étranger; il nous a rappelé D .
-8 <
-+2
-à LS
-ATR -
 
-Dre A # 2 d k
-ADP +
-LEE ‘TR INTERVENTION JAURÈS
 6 dans un puissant article de la Libre Parole que tous les |
 grands souverains laborieux entraient dans le détail des 1
 f _ affaires, que Louis XIV se faisait communiquer jour-
@@ -883,9 +631,7 @@ dr: oublie ces précautions élémentaires, il n'y a qu'un +
 — compromettant qu'il renvoie à Paris, tout à la fois le ‘
 We nom du traître et le nom de l'empereur, c'est Guil4 19 il
 
-: Invalidation Syveton 1
 laume IT! (Applaudissements à gauche et à l'extréme A
-gauche. — Interruptions à droite) va
 
 J'ajoute, messieurs, que si une pièce pareille avait ÿ
 existé, elle se rattache aux événements de 1894, au ni
@@ -896,14 +642,11 @@ le véritable nom du coupable. Or, il résulte de tous les
 |: documents officiels et judiciaires que, pendant trois
 semaines, on a été obligé de faire une enquête à |
 tâtons avant de faire porter le soupçon sur tel ou tel |
-homme. |
 
 Donc, la pièce n'était pas arrivée alors; donc c'est à
 une pièce fausse; donc le colonel Henry ajoutait au
 faux que le général de Pellieux a produit plus tard en
 cour d'assises le faux le plus monstrueux, le plus colossal, d'une prétendue lettre de l'empereur allemand. |
-(Applaudissements à gauche. — Interruptions à |
-droite) |
 
 Comment le colonel Henry a-t-il pu se risquer à pro- |
 duire une pièce aussi monstrueusement fausse ? Il y :
@@ -917,13 +660,9 @@ l'a inscrit dans ses mémoires dont une page m'a été
 communiquée, il savait que la communication de ce
 premier faux n'avait pas suffi à arrêter M. ScheurerKestner qui en avait démêlé tout de suite le caractère
 frauduleux, et alors ïil fallait aller plus loin et plus
-haut.
 
 Au lieu d'imaginer une pièce fausse, attribuée seule-
 
-20 £
-
-HER AES ;
 # je INTERVENTION JAURÈS
 * ent à des attachés militaires et qu'on pouvait disLà cuter, il fallait imaginer une pièce fausse attribuée à un
 $= souverain étranger, de sorte qu'on pût tout ensemble |
@@ -934,38 +673,30 @@ ee gauche et à gauche)
 En sorte que si ce faux a été imaginé, s'il a été
 É construit, c'est à raison même de sa monstruosité et
 À de son énormité, qui le mettaient au-dessus des dé-
-Fr bats.
 Ë Et puis on savait très bien que lorsque le bordereau |
 & serait publié, que lorsque les fac-similé d'écriture apparaîtraient, l'Allemagne, s'apercevant de l'erreur commise en 1894, ferait parvenir une communication ofli-
 .  cielle. Et en effet, dès le 17 novembre 1897, l'ambassade
 | allemande faisait parvenir l'affirmation solennelle
 ( qu'elle n'avait jamais connu le condamné de 1894.
-(Mouvements divers) 1 d
 = M. Gaston GazpiN. — C'était son devoir.
 M. DE L'EstouRBEILLON. — Elle ne pouvait pas dire
 #s autrement.
 G M. Jaurès. — Et le colonel Henry voulait être en état
 à d'opposer à cette affirmation de l'Allemagne une preuve
-: écrite en sens contraire. \
 à Il fallait pour la production de ce faux que le colonel
 Henry comptât, et c'est là ce qui est grave, c'est là ce
 #4 qui, politiquement, est grave, il fallait qu'il comptât sur
 ; la complaisance, je dirai presque sur la complicité du 4
 ÿ:. haut état-major de cette époque. (Interruptions et bruit i
-‘4 à droite. — Applaudissements à gauche) |
 4 Lee M. Lasres. — Je demande la parole.
-TR Lé
-M è
 
 NU ee ne LG SN Se M HS |
-es  Invalidation Syveton 10 fi |
 : M. Jaurès. — De quel droit, messieurs, prétendrait. DERX |
 | on que la politique du faux se serait nécessairemen PATES
 À arrêtée à un certain grade et qu'elle n'a pas pu s'élever me 74
 au-dessus du grade de lieutenant-colonel ? (Rires et 4
 applaudissements à gauche et à l'extrême gauche) : fe Qi “ |
 M. LE LIEUTENANT-COLONEL Rousser. — C'est une in ne. 4
-sinuation. SS |
 M. Jaurès. — Je vous ai dit tout à l'heure que je vous La, CA
 communiquerais un document inédit et vrai. pas: SU !
 M. ze MARQUIS DE Dion. — Montrez-le-nous ! FT
@@ -988,33 +719,24 @@ colonel Henry peut dire à ses chefs, au général Gonse, EE | ‘si
 été apporté par le service des renseignements », et le” : Ve
 général de Boisdeffre peut, à la rigueur, logiquement, 1100 |
 être trompé lui-même le premier par l'aflirmation du Mu
-lieutenant-colonel Henry. (Bruit à droite) di me
 Mais, pour la fausse lettre de Guillaume I, il ne peut. CAS
 
 | pas en être ainsi. Cette fausse lettre n'a pas serviaupro- … à | ; b à
 cès de 1894, c'est-à-dire à sa vraie date; elle n'apparaît | LE } 2 “t
 Ÿ qu'en 1897, et, pour que le lieutenant-colonel Henry puisse " Le À
 | k la produire, il faut qu'il en ait fait accepter l'hypothèse, | TRÈS É
-22 ï ; A
 
 k NP ENRE /R-er FR le MBA SUR 1743
-INTERVENTION JAURÉS NEC ETAT À T7
-17 4 C4 Lui } Ÿ 4 V
-ts *, 184 À : < tt # #4
 per € eux qui dirigèrent le Drpees en 1894... (Exclama- ds.
 tions à droite) Écoutez, messieurs.…., par le général de 1
 _ Boisdeff e et par le général Mercier. t É À 3 4
 Cette lettre, qui est affirmée en 1897, est supposée re- "rt
-LME ‘ ! 504 8
 Ke monter par sa date à 1894. IL faut donc que les hommes LATE
 But qui ont conduit le procès de 1894, et qui savent que 12
 | cette pièce n'y a pas figuré, acceptent du lieutenant- LENS
-CALE . . . . TT,
 colonel Henry une explication qui rend plausible l'appa- ; LEE
-‘Arage P q P PP ‘#
 rit on tardive, en 1897, d'une lettre qui, par sa date, sa 4
 tu nature et son objet, remonte à 1894. (Applaudissements AU
- àlextr tréme gauche) RQ E.
 Autrement, il eût été trop facile au général de Bois- # 5
 RE: ee . , » . A . + 2 » _deffre de dire comme chef d'état-major, en 1894 : je n'ai 1e
 > | pas connu ce document, j'aurais dû le connaître alors, UE
@@ -1033,14 +755,9 @@ Re aume II remontant à 1894, le premier cri du général de : 0
 _ Boisdefre, le premier cri du général Mercier devait être: AU :
 C'est une pièce fausse ; à moins que Henry n'ait obtenu ke
 d'eux le silence complaisant qui a tout couvert. (ApplauPRE dissemenis à gauche et à l'extrême gauche) a:
-ER ET € “ È . . r
 Et ainsi, bien assuré qu'il avait affermi le terrain sous
 DATE ta ses pas, bien assuré qu'il ne serait pas désavoué par :
-STE RNA à
-pare
-7 Net va à “4
 
-Invalidation Syveton ‘180
 des chefs auxquels, depuis 1894, le liait je ne sais quel
 pacte mystérieux de l'erreur commune, ayant ainsi
 assuré le terrain, le lieutenant-colonel Henry pouvait
@@ -1061,7 +778,6 @@ devant la violence et l''énormité de certaines affirma- |
 tions; mais cette campagne n'est que le prolongement, |
 à travers ce pays, du mensonge et du faux organisés |
 par le lieutenant-colonel Henry au centre de l'état- ne
-major.
 
 La Libre Parole du 4 dit : 1
 
@@ -1076,16 +792,11 @@ Voilà le premier décalque, dans la presse, du faux
 imaginé à l'état-major. Et c'est par un contre-couv, par À
 un choc en retour vraiment extraordinaire, le lende- 4
 
-24 j
-
-À A < | Ÿ
-0" INTERVENTION JAURÈS ki
 : main 5 novembre, qu'Esterhazy écrit à M. le Président
 de la République Félix Faure : ;
 Fe La femme qui m'a mis au courant de l'horrible machina- b
 … Lion ourdie contre moi m'a remis une pièce qui est une pro- Li
 | tection pour moi, puisqu'elle prouve la canaillerie de ae
-Rébreyfus.  : w
 … Vous reconnaissez là une partie même du texte de LA
 w: nie de Guillaume II. 4
 puisqu'elle prouve la canaillerie de Dreyfus et un
@@ -1112,14 +823,9 @@ de l'empereur d'Allemagne, Esterhazy le patriote pou- ‘a
 “vait faire chanter le Président de la République, le 1
 | Gouvernement et la Chambre! (Applaudissements à #
 l'extrême gauche) ‘4
-ÊRs are Æ< É &
-NN ORELS F VW:
-
-Invalidation Syveton PU i
 
 Voilà l'usage qui était fait du bordereau annoté, voilà EY. nn
 l'usage qui était fait de la lettre de Guillaume IL. 1
-Lorsque Mathieu Dreyfus dénonça Esterhazy, lors. M
 qu'il le nomma comme l'auteur du bordereau le;
 16 novembre, il fallut redoubler d'efforts, et l'état-major. 13
 songea à s'assurer non plus seulement le concours de 1
@@ -1129,7 +835,6 @@ Pauffin de Saint-Morel, chef de cabinet du général de |
 Boisdeftre, fut envoyé chez M. Rochefort lui-même: Za hi
 Patrie du 18 novembre publiait sous ce titre : La vérité 4]
 sur l'affaire Dreyfus, une interview de M. Rochefort : 3
-LR
 
 Je ne vois aucun inconvénient à vous répéter les paroles \ po
 de cet officier. Il m'a dit presque mot pour mot : Non seulement nous possédons la preuve indubitable que le commandant Esterhazy est la victime d'un infâme complot; "|
@@ -1151,7 +856,6 @@ pereur d'Allemagne lui-même. Elle fut dérobée, photogra- ni
 phiée et replacée où elle avait été prise. Dans cette lettre
 adressée à M. de Münster, Guillaume II nommait tout aù 1
 
-__ INTERVENTION JAURÈS AVE
 long le capitaine Dreyfus, commentait certains renseigne-
 . ments et chargeait l'agent de l'ambassade communiquant
 ù avec lui d'indiquer au traître les autres renseignements
@@ -1169,18 +873,14 @@ c'est évidemment le commandant qui avait fait une
 | Â AÇIE AE, IE à FE
 Guillaume IL. Vous voyez, messieurs, qu'elle a fait du
 M... Le gouvernement de M. Méline s'émeut et, par un
-ra LASER “ À :
 .- communiqué de l'agence Havas, il déclare qu'il »'y a
 WE en de fondé dans des allégations relatives à de pré-
-TER Li 1 . 2
 tendues lettres d'un souverain étranger. M. Rochefort
-ee o . » . » .
 lui ré pond sous ce titre : Démenti négligeable :
 ;  Billot avait sous les yeux la pièce secrète avec laquelle il
 lui é Lai si facile de moucher Scheurer-Kestner, quand ce
 vieil imbécile venait dans son cabinet lui étaler les pape- |
 rasses incohérentes de son prétendu dossier.
-jt
 EL Do rmrie dit :
 La naturedes révélations de notre confrère oblige le Gou-
 …vernement à un démenti officiel. Déjà, lors de laffaire
@@ -1189,10 +889,8 @@ faits restent les faits.
 _ La France dit :
 tue M. Rochefort est bien et sûrement renseigné.
 | Ce ne sont pas des hypothèses, ce sont des faits et le
-CREER
 | " RENNES à 27
 
-Invalidation Syveton HAS EN
 démenti embarrassé, et en quelque sorte nécessaire, de ss
 l'agence Havas, n'y changera rien. A y
 
@@ -1211,7 +909,6 @@ n'allez pas, j'imagine, désavouer brutalement aujour- |
 d'hui, toute la presse nationaliste prend prétexte du |
 démenti officiel du gouvernement, pour aflirmer denou- 4
 veau la vérité de la légende et la réalité de la pièce 4
-fausse. à
 M. Méline fait annoncer par une nouvelle note que le :
 gouvernement allait demander, s'il le fallait, au Parlement, les moyens nécessaires de mettre un terme à
 cette campagne de presse. Mais, laissez-moi le dire, |
@@ -1221,15 +918,11 @@ D'abord, lorsque le commandant Esterhazy prétendait
 avoir en mains des documents capables de jeter l'émoi en
 Europe et lorsqu'il venait rapporter ce document ou un À
 autre au ministère de la guerre, il fallait au moins Pin- 4
-terroger. ‘à
 M. Juces MÉLINE. — Je demande la parole. à
 M. Jaurès. — Il fallait au moins demander à l'état
 major, qui avait communiqué à M. Paléoiogue l'exis- M
-28 À
-DE |
 
 PE ON NO A PR RO CR RE cu CE En EU
-NS 0 fre INTERVENTION JAURES
 | tence de cette lettre, d'où provenait cette campagne. IL
 est prodigieux que vous ayez songé à menacer la presse j
 L: qui ne faisait que reproduire les affirmations de l'état-
@@ -1243,7 +936,6 @@ ne “en Russie, un officier qui est le chef de cabinet de votre
 chef d'état-major : il va porter dans les journaux la
 . légende qui, peu à peu, se répand, se communique,
 ik ébranle toute la presse, et, en même temps, ébranle
-+  lepays.
 mi - Vous demandez compte à la presse irresponsable et
 - … dispersée que vous ne pouvez pas saisir, mais cet ofli-
 | cier que vous avez là, sous vos ordres, que vous pourLM … riez sommer de vous dire quelle communication il est
@@ -1261,13 +953,10 @@ su de trente jours d'arrêts de rigueur par le ministre.
 à £ Il y a un problème qui émeut le pays et voilà un off-
 |: cier qui se fait, dans la presse nationaliste, le véhicule
 
-+ ._ Invalidation Syveton 14 FRPARNSSE
 d'une pièce fausse, d'une pièce redoutable ; oh! onle D
 consigne chez lui ; mais on ne le questionne pas! Qu'il 1
 reste bien enfermé, mais qu'il se taise et que le monde #00 $
-l'oublie! | Ro : s 44 >
 C'est ce que demandaït à cette heure le général %:
-Billot. : FONSS
 M. LE LIEUTENANT-COLONEL Rousser. — Rien ne dit. 4 |
 qu'il n'a pas été questionné. ER
 Ë M. Lasres. — Monsieur Jaurès, le commandant Cu
@@ -1294,10 +983,7 @@ Eh bien ! allons-y! Il faut vous dire que, lorsque le colo 3 | |
 nel Sandherr m'a remis ce dossier le 16 décembre 1894, je 1
 lui ai dit : « Mais comment se fait-il que vous n'ayez Le { |
 besoin de ce dossier ? » Il m'a répondu : « J'en ai ue US |
-20 ns : 14
 
-k " # 24 « J'Es (a ;
-“41 1000 INTERVENTION JAURÈS l
 | 4 important, et je vais vous montrer une lettre de ce dos10 sier. » Il m'a fait voir une lettre, en me faisant jurer de n'en
 …_ jamais parler. J'ai juré; il m'a montré une lettre plus
 …__ importante encore que celle du dossier. IL m'a dit : « J'ai
@@ -1329,7 +1015,6 @@ Eur … bordereau papier pelure, au nouveau système d'accu1 _ sation fondé sur
 4 ® de Guillaume If, suggérer au général Mercier une
 R N D. hypothèse plausible qui lui permit d'accepter lexis-
 
-Inoalidation Syveton . RS 1
 tence de cette pièce fausse dont il n'avait pas été “#)
 fait état au procès de 1894. (Applaudissements à l'ex- TM
 trême gauche et à gauche) - PR
@@ -1346,7 +1031,6 @@ Voici le compte rendu publié alors dans le journal 2
 le Temps. FA |
 M. Lucren Mizcevoye. — La question a déjà été |
 portée à la tribune par notre collègue, M. Breton. J'ai 24
-répondu. 41
 M. Jures-Louis BRETON. — Vous n'avez pas répondu. |
 M. Lucx Micrevoxe. — Maintenant je dis que la +9
 tribune n'est pas un confessionnal, et que si j'avais à pi
@@ -1358,14 +1042,10 @@ Vous n'êtes pas non plus un juge d'instruction, et ce Ê7ANE
 n'est qu'à un juge d'instruction seul, et saisi légalement, 4
 qu'il n'appartiendra de répondre. ‘ U
 M. Jaurès. — M. Millevoye demande une enquête.
-(Rires à gauche) à
 Je reconnais que M. Millevoye l'avait demandée déjà, ‘]
 par voie d'interruption, d'une façon formelle lorsqu'en ;
 effet mon ami M. Breton porta pour la première fois une ñ je
 partie de ce débat à la tribune. Que M. Millevoye me a
-
-SC Ÿ INTERVENTION JAURÈS
-NON TE
 
 300 a permette de le lui dire, nous ne sommes pas ici dans
 
@@ -1396,12 +1076,9 @@ L gauche) Mais je veux lire le compte rendu du Temps,
 &' RS Voulez-vous en connaître la teneur, citoyens! — Oui!
 à | oui! — Eh bien! la voici. Elle dit: « Que cette canaille de
 wi) Dreyfus envoie au plus tôt les pièces promises: signé Guil- .
-ds laume. »
 
 4 À . Cette révélation est accueillie par un rire général. Ce sont
 ge pendant cinq minutes des clameurs étourdissantes.
-
-(24
 
 Invalidation Syveton FA on
 L'orateur termine en disant que vu les déclarations de è ni
@@ -1434,12 +1111,8 @@ je dis même que, dans l'erreur que vous avez commise,
 il y a deux traits qui vous font honneur. Le premier,
 c'est qu'à une heure trouble où la calomnie se répan_daïit impersonnelle, anonyme, inavouée, vous avez eu
 
-; a
-
 | :.. RER PAS) ! SL NAS ne En |
 | LA EUT QuS EN in k gi AN ; 4 (SALES
-4 ER INTERVENTION JAURÈS |
-2,447 0 ES OMC ! .
 “+ hi e co urage de prendre la responsabilité individuelle, la
 40 responsabilité personnelle d'une accusation précise et
 | ‘# x redoutable ; vous vous trompiez, mais C'était un acte
@@ -1468,7 +1141,6 @@ Mar: -le condamné Dreyfus, cette pièce était importante, elle
 b ïe | aucune pièce mystérieuse sans en avoir vérifié l'authenq A ticité et l'origine. Vous étiez donc couvert à coup sûr
 à 4 par des hommes qui vous avaient garanti de haut l'au-
 
-Invalidation Syveton
 thenticité de cette pièce. Vous vous devrez un jour
 devant l'histoire de les nommer, pour vous justifier
 vous-même. (Vifs anplaudissements prolong'és à gauche
@@ -1505,8 +1177,6 @@ M. ArisTiDE Brranp.— Nous n'avons jamais commis de
 faux, nous ! Nous n'avons pas dit de mensonges ! (Bruit)
 M. Lucxex Micevoye. — Je parle de ceux qui pen36
 
-‘ PTS à 2 SP AO OA Eu Dt epars REELAER PEcET TES LL Le
-RON Re INTERVENTION JAURÉS
 , une ans sont allés chercher dans les journaux
 directement inspirés par l'étranger des flots de boue Ê
 … sous lesquels ils ontessayé de salir l'uniforme et le dra-
@@ -1537,10 +1207,8 @@ EN aussi formidable, à l'heure où il apparaît, à d'innom-
 tions de cette sorte.
 1018 Quoi qu'il en soit, messieurs, vous voyez la légende
 _ se développer, s'affirmer, s'étaler de plus en plus; de
-FOUR 37
 
 (he A SGA is à FA PAROI MOI STAR PAR ENS ER
-Inpvalidation Syveton ju É. Ac :
 l'état-major, elle passe dans le prétoire, du prétoire
 dans les journaux, des journaux dans les réunions F 4
 publiques et le système monstrueux qui a été imaginé 74
@@ -1572,25 +1240,17 @@ qui a été cachée au pays, une lettre qui n'a été montrée
 ni aux juges de la cour de cassation ni aux juges du
 conseil de Rennes. do |
 M. Massanuau. — On vous l'a montrée depuis, à « . vous ? (Bruit à gauche) À
-A 4
 
-Cal ue
-È £ 146 Pas de “ nee LS en as » K : #} n
-is INTERVENTION JAURÈS pe à,
 … M: Jaurès. —… Une lettre dont lestermes appelaient
 une enq u ète nécessaire. Cette lettre, des personnes qui PT
 ont vécu dans l'entourage du général de Pellieux et qui FE
 [ner ses confidences désespérées m'en ont
-RÉEL Te 7 . . x k
 
 ? Fe onné le texte que je communique à la Chambre : RE
 
 A Hentai de brigade adjoint au général de division ne
 sr dRandant Paris, à M. le ministre de la guerre
 
-fe MEN 4
-. LR 7 .
-en 5 PE Paris, le 31 août 1898 £
 _ Dupe de gens sans honneur, ne pouvant plus espérer
 compter sur la confiance des subordonnés sans laquelle le A,
 commandement est impossible, et, de mon côté, ne pouvant {
@@ -1601,24 +1261,19 @@ OM Sex: Brisson. — Je demande la parole. ;
 | _… M:1eE PrRésipenr. — La parole est à M. Brisson, avec ï
 “  l'assentiment de M. Jaurès. F)
 
-CRETE : : N %
 | … M: Henri Brisson. — Monsieur Jaurès, pardonnez à : » mon émotion de vous interrompre. (Rumeurs à droite. Ge |
 — 4 Pplaudissements à gauche et à l'extrême gauche) |
 Vous avez dit, si je vous ai bien entendu — et je vous
 ; prè le, vous pouvez le croire, toute mon attention — que
 
 cette lettre du général de Pellieux était datée du
-M. Jaurès. — Oui. ;
 > M. Henrt Brisso. — Président du conseil d'alors, je :
-7Æ 51]
 dé lare que le gouvernement dont je faisais partie n'en
 | a pas eu connaissance. (Nouveaux applaudissements à
 : gau che et à l'extrême gauche) |
 es GEORGES Berry. — Elle a paru dans tous les
 | AE à :
-en z
 
-Invalidation Syveton :: LENS
 M. RouLaxp. — C'estun effetd'audience ; un scénario 27.200
 préparé. (Bruit) SEX ne L|
 M. Gonerroy CAVAIGNAC. — Je demande la parole. _ 4
@@ -1642,7 +1297,6 @@ insinuations ou accusations dont on n'ose même pas on:
 prendre la responsabilité complète, le témoignage de 10
 ma confiance entière dans leur loyauté et dans leur.” 0
 bonne foi. (Applaudissements à droite et sur divers
-bancs au centre) $ a
 M. Her: Brisson. — Messieurs, je ne veux faire ici ü
 qu'une constatation. Je savais déjà par la déposition de |
 M. le capitaine Cuignet devant la cour de cassation, que ‘4
@@ -1652,9 +1306,6 @@ Cuignet — convaincu que ce que lon a appelé « le faux 1}
 Henry » était un faux. Or, il n'en a averti le président 4
 du conseil que le 30 août, et j'apprends maintenant que 4 |
 
-+
-à AK: a W? INTERVENTION JAURÈS
-À E
 H: le 3x août, le jour où le colonel Henry mourait sous vos
 _._  verroux, vous aviez cette lettre du général de Pellieux!
 n; M. GrorGes BErRTHOULAT. — Elle a été publiée dans
@@ -1683,8 +1334,6 @@ a vous faisiez partie et dont la loyauté se reposait sur
 Fe Voilà ce que vous avez fait, monsieur Cavaignac. Le
 * voilà! (Nouveaux applaudissements à gauche et à l'ex-
 
-tréme gauche)
-
 k Eh bien! bénissez l'amnistie, car si elle n'avait pas
 … … été votée, vous mériteriez d'être mis en accusation.
 (Vifs applaudissements à gauche et à l'extrême gauche.
@@ -1692,7 +1341,6 @@ k Eh bien! bénissez l'amnistie, car si elle n'avait pas
 
 £ Mais que serait-il besoin d'un châtiment matériel en
 
-_ Invalidation Syveton + FA
 présence du châtiment moral qui pèse sur vous et vous 4
 atteint? (Applaudissements à gauche et à l'extrême L KA Ê |
 gauche) Ce parti qui vous couvrait de ses acclamations … #4 |
@@ -1707,7 +1355,6 @@ tion de réforme fiscale et sociale, de réforme démocra- DE
 tique, et je vous ai félicité de marcher sur les traces de RE |
 celui dont vous portiez le nom et le prénom, de ce L
 Godefroy Cavaignac dont vous sembliez suivre la tradi "
-tion. 3 14%
 Depuis de longs jours, hélas ! je passe au cimetière
 Montmartre devant sa statue et je salue tristement ce M)
 ‘ bronze. Eh bien! je me demande à cette heure où reten- 4
@@ -1720,17 +1367,13 @@ demande s'il ne va pas se dresser devant vous et Vous
 crier : « Vous n'êtes plus dans la République; vous n'êtes Te 1
 plus de notre lignée! » (Vifs applaudissements à gauche  « 4
 et à l'extrême gauche. — Bruit sur divers bancs au -« centre et à droite) DR. |
-M. Goperroy CAVAIGNAC. — J'ai trois choses à :4
-répondre à M. Henri Brisson.… ({nterruptions) ;, 5. |
 A droite. — Des Bouches-du-Rhône. (Æxclamations | M}
-à gauche) Lure 5. |
 
 # M. Knauss. — Paris vous a répondu hier! :
 me M. Goprrroy CAvAIGNAG. — Il n'a pas craint de
 : _ dire que sur la question du faux Henry ma conviction
 était faite le 14 août ; cela n'est pas vrai.
 …_ M. Cnanes Bos. — était fait avant. (Bruit au :
-_ centre)
 _ M: Gopgrroy CavaIGNAC. — Ma conviction n'a été
 2 faite sur le faux Henry que le jour où, après être sorti
 volontairement des procédures régulières, j'ai fait venir
@@ -1755,7 +1398,6 @@ fe à droite. — Exclamations à l'extrême gauche)
 | un rasoir. (Bruit)
 T E . GODEFROY CAvAIGNAC. — Peut-être aussi, monj* ra ur Henri Brisson, à quelqu'une de ces enquêtes parvu NE IOERERRNSE
 
-Invalidation Syveton a 4
 lementaires dont on nous parle aujourd'hui, dont vous # 4
 avez dirigé l'une et où vous savez si bien combien la S 1
 vérité échappe facilement à ceux qui la cherchent.
@@ -1789,7 +1431,6 @@ n'en aviez pas tenu compte !
 M. Goperroy CAvAIGNAC. — Je croyais que M. Henri
 Brisson faisait allusion à la prétendue lettre de l'empe4%
 
-HT SE INTERVENTION JAURÈS
 Ne : : reur d'Allemagne, sur laquelle M. Jaurès a appuyé son
 | argumentation.
 ‘4 M. Jaurès. — Mais vous ne contestez pas la lettre du
@@ -1812,12 +1453,10 @@ le la politique et les excommunications de parti. (ZxclaLAS mations ironiques su
 fee des jugements au nom de la conscience universelle, (
 Fe comme si notre conscience, à nous, ne valait pas au
 € moins la sienne. (Applaudissements au centre et à
-k droite. — Bruit à gauche)
 ét ; Vous n'êtes pas des juges; vous êtes des adversaires
 politiques, et des adversaires politiques que nous comh battrons sans relâche.
 de M: Henri Brisson évoquait ici le souvenir des républiRe _ cains d'autrefois, des républicains dont nous nous honoPMP ALU
 
-Invalidation Syveton NS "IN |
 rons de revendiquer les traditions, et faisait appela À
 leurs témoignages. Oui, je voudrais bien qu'on les appe 17°
 lât ici, les hommes qui ont fondé autrefois la Répu. |
@@ -1833,25 +1472,19 @@ République autrefois en face des monarchies et qui ont %: 0
 créé ce parti d'honnêteté politique et de fierté nationale 4
 qu'était le parti républicain. Je voudrais bien qu'on rap- xl
 pelât ici... ({nterruptions et bruit à l'extrême gauche et nn M
-à gauche) : 4
 M. Juces-Louis Breton. — Si nous étions la Conven- |
 tion, il y à longtemps que vous seriez guillotiné |! ‘A
-(Bruit) ÿ 7 |
 M. Le PRÉSIDENT. — Monsieur Breton,je vous rappelle aan
-à l'ordre. ; SHOT {|
 M. Gonsrroy CAVAIGNAC. — … ceux qui ont fondé le
 parti républicain en face de la monarchie parlementaire à
 de Juillet, je voudrais qu'on püt leur demander si le :
 régime d'aujourd'hui ressemble plus à celui qu'ils à
 avaient rêvé qu'à ceux qu'ils ont combattus et renver- pt
-sés. (Applaudissements au centre) É
 M. LE PRÉSIDENT. — La parole est à M. Jaurès. ‘4
 M. JAURèS. — Je n'ai qu'un mot à ajouter sur cet inci 4
-dent. s
 Je n'ai jamais dit que M. Cavaignac ait eu connais- k
 sance de la lettre de Guillaume IL; mais je prends acte FA
 
-RAT MR SE UD PRE NE PEL ARTE PRE VEAUS Pre EU PS
 ta 5 _ INTERVENTION JAURÈS ï
 de sa déclaration relativement à la lettre du général de
 - | Pellieux : il l'a reconnue authentique et il reconnaît
@@ -1859,7 +1492,6 @@ de sa déclaration relativement à la lettre du général de
 etce quiest vraiment étrange, c'est que vous n'ayez
 n | pas remarqué...
 Hit M. Gopsrroy CAVAIGNAG. — Voulez-vous me perA _ mettre un mot? (Exclamations à gauche)
-no M. Jaurès. — Soit ! parlez!
 sh #: Je crois, messieurs, que les documents que j'apporte
 peuvent soutenir la contradiction, et je n'ai qu'un regret,
 c'est qu'on n'ait pas soumis à la même épreuve ceux
@@ -1884,7 +1516,6 @@ ts A s'agira de savoir qui a pris la responsabilité, dans
 “selon nous, pouvait éclairer le problème d'un jour déci-
 * sif . Ge qui paraît avoir échappé, à moins qu'ils ne l'aient
 
-Invalidation Syveton THIERS
 trop bien vu, à ceux qui ont gardé pour eux cette pièce, : 4
 c'est qu'elle est grave, particulièrement grave, en ce 1
 que le général de Pellieux, qui avait conduit l'enquête 4)
@@ -1904,7 +1535,6 @@ au centre et à droite) N
 Et notez qu'il dit qu'on l'a « fait travailler sur des #
 faux » c'est-à-dire qu'on a égaré sur des pièces fausses î
 l'enquête d'où devait résulter pour ce pays la lumière et  “}
-l'apaisement. } |
 Voilà ce qui était grave au moment où Henry avouait
 . le crime commis par lui, et où il importait de savoir si
 c'était un crime isolé ou bien s'il se rattachait à tout un 4
@@ -1917,11 +1547,6 @@ responsable qui avait à prendre solidairement des déci- .
 | sions et des responsabilités. C'est ce devoir qui n'a pas k
 été rempli : et lorsque vous dites que vous ne savez pas |
 si le général de Pellieux n'a pas en partie retiré la pen- }
-À
-
-A | = INTERVENTION JAURÈS
-
-pe &
 
 K ot sée exprimée par lui dans cette lettre, j'ai des raisons
 4 de croire qu'il l'a maintenue, j'ai des raisons de croire
@@ -1940,7 +1565,6 @@ La parti du faux, au parti du mensonge de se recueillir,
 | de recommencer autour d'un autre faux, la lettre de
 ie Guillaume Il, la même campagne plus audacieuse
 té encore et plus cynique. (Applaudissements à l'extrême
-ss) gauche)
 
 M M. GErorGEs GROSJEAN. — Le témoignage du général
 È … de Pellieux n'a pas manqué à Dreyfus, puisqu'il a été
@@ -1957,7 +1581,6 @@ o (Vifs applaudissements à l'extrême gauche et sur divers
 
 Le M. GABRIEL SYVETON. — Si la Chambre veut conti-
 
-Invalidation Syveton 4 ROUE.
 nuer à s'occuper demain de l'affaire Dreyfus, je ny M |
 d vois pour ma part aucun inconvénient, mais il me |
 semble que nous ne devons point oublier le point de Ml
@@ -1967,9 +1590,7 @@ Interruptions à l'extrême gauche) 4
 Vous pourriez peut-être, messieurs, en jugeant tout À 6
 de suite le cas électoral donner satisfaction au suffrage “4
 universel, qui, après tout, m'a envoyé ici. (Bruit à À ; x
-gauche) 4
 M. MassaBuau. — Je demande la parole. (Æxclama- 4
-tions à gauche) A
 M. LE PRÉSIDENT. — Il est d'usage que la Chambre 3]
 accorde à l'orateur qui le demande la remise au lende- 0
 main. (Très bien! très bien!) 1
@@ -1981,23 +1602,17 @@ remise à demain de la suite du discours de M. Jaurès, L |
 mais à la condition qu'il sera bien entendu qu'une fois M
 que M. Jaurès aura parlé, la Chambre ne prononcera 4
 pas la clôture du débat et qu'elle nous permettra de lui 4
-répondre. (Bruit à gauche) F
 M. PAUL BEAUREGARD, rapporteur. — Je demande la ë
-parole. 1 |
 M. LE PRÉSIDENT. — La parole est à M. le rappor- 4 |
-teur. ‘|
 M. PAUL BEAUREGARD, rapporteur. — Au nom de la ‘ |
 commission, permettez-moi de dire, messieurs, qu'il est ñ
 incompréhensible qu'on s'oppose à ce que nous propo- |
 sons. Il est tout naturel que M. Jaurès demande le ren- | 4 |
-PAU à |
 
 | dt » LAS “ ter Li Ron
 | rende REA “ ET A ÉD EEE à
 CN Ce ep! ee RON en AS NP re EEE 2 ORAN POULE ,
-ru ORNE RU : TE PA COLE NAN SU EME Xe REA 1
 | INTERVENTION JAURÈS Do Eat COOR EE
-De: « A. # si N Ft ! VE + y dé
 voi à demain, et que ce renvoi soit voté, mais rien
 # n'empêche que nous achevions ce soir l'examen des Jr Le
 * _ opérations électorales ‘du deuxième arrondissement. F:
@@ -2014,7 +1629,6 @@ L52 … M-ze rréspenr. — Je consulte la Chambre sur la
 “remise à demain de la suite de la discussion. +
 | 1 fAè IL y a une demande de scrutin signée de MM. Féron,
 | _ Bagnol, Aristide Briand, de Pressensé, Desfarges, Genet, 7
-ME Colliard, Levraud, Lafferre, Raymond Leygue, Basly, t
 | _ Baudon, Rouby, Dubief, Pajot, Lesage, Dasque, etc. 4
 | _ Le scrutin est ouvert.
 | 150 (Les votes sont recueillis. — MM. les secrétaires en ‘
@@ -2022,161 +1636,62 @@ ME Colliard, Levraud, Lafferre, Raymond Leygue, Basly, t
 | RE se » s
 | 24 … M2 Présipenr. — Voici le résultat du dépouillek NT .
 _ ment du scrutin : PE
-} AUS PA < 4
 | "Nombre des votants. . ........ 529 J
-RE  Mjorité absolue . . . . . ...... 265 ,
-E- Ee : Pour l'adoption. . . . . . 325 |
-[ "SAT MiPéonire.". in 202 :
 È Fe La Chambre des députés a adopté.
 VER En conséquence, la suite de la discussion est ren- \
-2 ME ,
-j'T EP RSTEER S '
 
 Invalidation Syveton ne
 
 Annexe au procès-verbal de la séance ï 1
 
 à du lundi 6 avril 4
-SCRUTIN SR
-
-ke.
 
 Sur le renvoi de la séance à demain à |
 
-Nombre des votants. . . . . . . . .. 473 N
-Majorité absolre rep ete Nan 235 a
-
-Pour l'adoption. . . . . . 309 18
-
-Gone ARRETE NN MOUEENETON |
 La Chambre des députés a adopté. 4
 |
 
-ONT VOTÉ POUR : À
-
-MM. Abel-Bernard. Albert-Poulain. Aldy. Allard. Andrieu. .)
-Antoine Gras. Arbouin. Arène (Emmanuel). Aristide 1]
-Briand. Astier. Aubry. Augé. Authier. x « |
-Bachimont. Bagnol. Balandreau. Baron (Gabriel) (Bou- « |
 ches-du-Rhône). Barthou. Basly. Baudet (Charles) (Côtes- |
 
 du-Nord). Baudet (Louis) (Eure-et-Loir). Baudin (Pierre). {
-Baudon (Oise). Beauquier. Begey. Bellier. Bénézech. )
 
-Bepmale. Bersez. Berteaux. Berthet. Bertrand (Lucien)
-
-(Drôme). Bertrand (Paul) (Marne). Bichon. Bizot. Bony- "
-Cisternes. Bouhey-Allex. Bourrat. Boutard. Braud. Breton ii
 (Jules-Louis). Brisson (Henri) (Bouches-du-Rhône). Brunard. 4
-Brunet. Buisson (Ferdinand) (Seine). Bussière. Buyat. 1
-Cadenat. Camuzet. Capéran. Cardet. Carnaud. Carnot ù
 (François). Carpot. Castellane (comte Stanislas de). "
-Catalogne. Cazauvieilh. Caze (Edmond). Cazeaux-Cazalet, \
-Cazeneuve. Cère (Emile). Chaigne. Chambige. Chambon. s|
-Chanal. Chandioux. Chapuis. Charles Bos. Charles Chabert ;
-(Prème). Charonnat. Charpentier. Charruyer. Chastenet ÿ
-(Guillaume). Chaumet. Chaussier. Chautemps (Alphonse) f
 
 a ab NE M CT ES An rs LS 2 ENG DE SEE LS CEE
-AE 5° +1 SIREN
-5e Lan INTERVENTION JAURÈS
 Fr Re ne dre-et-Loire). Chautemps (Émile) (Haute-Savoie). ChauEt Le vière. Chavoix. Chenavaz. Clament (Clément) (Dordogne).
-Clément (Martinique). Clémentel. Cloarec. Cochery (Geor1 ges). Codet (Jean). Colin. Colliard. Compayré (Émile).
-"  Constans (Paul) (Allier). Constant (Emile) (Gironde).
-_  Corderoy. Cornet (Lucien). Coulondre. Coutant (Jules)
-(Seine). Cruppi.
 
-ee: Dasque. Dauzon. David (Alban) (Indre). David (Fernand)
-08 (Haute-Savoie). Debaune (Louis). Debève (François).
-_  Debiève (Anatole). Debussy. Decker-David. Defontaine.
-—_. Defumade. Dejeante. Delarue. Delaune (Marcel). Delbet.
-_ Deléglise. Delmas. Delombre (Paul). Delory. Denécheau.
-SCC Denis (Théodore). Déribéré-Desgardes. Desfarges (Antoine).
-À 1% Deshayes. Devèze. Dormoy. Doumer (Paul). Dron. Dubief.
-Dubois (Émile). Dufour (Jacques). Dumont (Charles).”
-“ Dunaime. Dupuy (Pierre). Durand. Dussuel.
-EAN » a A
-“_ Éliez-Evrard. Émile Chauvin. Empereur. Escanyé.
-ip en  Euzière.
 |. 44 .  Fernand-Brun. Féron. Ferrero. Ferrier. Fiquet. Fitte.
 | Es Fleury-Ravarin. Fournier (François). }
-< 5. __ Gabriel Denis. Gabrielli. Galy-Gasparrou. Gauvin. Genet.
-…_ Gentil. Gérault-Richard. Gervais (Seine). Gerville-Réache.
 DS Girod. Godet (Frédéric). Gontaut-Biron (comte Joseph de).
-__ Goujat. Gouzy. Grosdidier. Grousset (Paschal). Guieysse.
-. va  Guingand. Guyot-Dessaigne.
-40 _ Harriague Saint-Martin. Henrique-Duluc. Herbet. Hub-
 | Lr « bard. Hubert. Hugon. Hugues (Clovis) (Seine).
-…_ Jriart d'Etchepare (d'). Isambard. Isnard.
-FA - Janet (Léon) (Doubs). Jaurès. Jeanneney. Jehanin.
-_ Jourdan (Louis). Judet. Jules Legrand (Basses-Pyrénées).
-PA Numel.
-er: _ Krauss.
-one. À 5
 17 _ La Batut (de). Labussière. Lachaud. Lacombe (Louis).
 748) tire. Lamendin. Lanessan (de). Lannes de Montebello.
-à È Lassalle. Lauraine. Laurençon. Lebrun. Lechevallier.
 F: Lefret. Lepez. Lesage. Le Troadec. Levet (Georges).
-Ec F
-2 SPERE »
 
-Invalidation Syveton  RÉPEEES
 | Levraud. Leygue (Honoré) (Haute-Garonne). Leygue À
-(Raymond) (Haute-Garonne). Lhopiteau. Lockroy. Loque. 4}
-Loup. AUS
-Magniaudé. Malaspina. Malizard. Mando. Maret (Henry). 4
-Martin (Bienvenu) (Yonne). Martin (Louis) (Var). Mas \ "#|
-Massé. Maujan. Maure. Menier (Gaston). Merlou. Meslier.
 Messimy. Michel (Henri) (Bouches-du-Rhône). Mil (Louis): |
-Minier (Albert). Mirman. Monfeuillart. Morel. Morlot.
-Mulac. Muteau. Re |
-Ozun. (en |
-Pajot. Pams. Pasqual. Pastre. Paul Meunier. Pavie. 7
-Périer (Germain). Péronneau. Perrin. Perroche. Petit,
-Petitjean. Peureux. Pichery. Pierre Poisson. Piger. Pradet- “4
 ; Balade. Pressensé (Francis de). Puech. : LI
-Rabier (Fernand). Ragot. Rajon (Claude). Razimbaud. à 4]
-Régnier. Renault-Morlière. René Renoult. Réveillaud ‘4 |
-(Eugène). Rey (Emile). Ridouard. Rivet (Gustave). Rouanet. ol
-Rouby. Rougier. Rousé. Rozet (Albin). Ruau. # |
-Sabaterie. Salis. Sandrique. Sarraut (Albert). Sarrazin. eu
-Saumande. Sauzède. Schneider (Charles) (Haut-Rhin).
 Selle. Sembat. Sénac. Serres (Honoré). Sibille. Siegfried. « il
 Simonet. Simyan. Sireyjol. ET
-Tavé. Théron. Thierry-Delanoue. Thivrier. Thomson. F
-Tiphaine. Tourgnol. Tournier (Albert). À
-Ursleur. ra Hi.
-Vacherie. Vaillant. Vazeïlle. Veber (Adrien). Vialis. Fe
-Vigne (Octave) (Var). Vigné (Paul) (Hérault). Vigouroux. 4
-Villault-Duchesnois. Villejean. Viollette. Vival. k:
-Walter. }
-ONT VOTÉ CONTRE : À. |
 | MM. Adam (Achille). Alsace (comte d'), prince d'Hénin. Ms |
 Amodru. Anthime-Ménard. Archdeacon. Argeliès. Arnal. NE
-Audiffred. Audigier. Auffray (Jules). si |
-51 NI 0URE
 
 | 1 NES DU A DE RENE ONE to hd
 | Ë 2 1 CRE NN RES 7e LES \ AT LA ve ;
-. 24e INTERVENTION JAURÈS | cn
-HAUTES ; # 13.
 Ru Bar sard de Bois. Baron (Jules) (Maine-et-Loire). Baudry
 A _ d'Asson (de). Beauregard (Paul) (Seine). Beauregard (de)
 5 (ind re). Benoist (de) (Meuse). Berger (Georges). Berry |
 —_ (Georges). Bignon (Paul). Boissieu (baron de). Bonnevay. f
-‘10 Bonvalot. Borgnet. Bouctot. Bougère (Ferdinand). Bougère |
-“6 Laurent). Bourgeois (Paul) (Vendée). Brice (Jules) (Meur- [ua
 _  the-et-Moselle). Brindeau. Brisson (Joseph) (Gironde).
 ne Broglie (due de).
 
 _ Cache. Caffarelli (comte). Caraman (comte de). Castelnau 3)
 Un (de) Cavaignac (Godefroy). Chambrun (marquis de). ;
-« Charles Benoist (Seine). Cibiel. Cochin (Henry) (Nord).
 
 _ Cornudet (vicomte). Corrart des Essarts. Coutant (Paul)
 | Mar n e).
 | »  Dansette (Jules). Darblay. Daudé. Dèche. Delafosse
-(Jules). Delarbre. Derrien. Desjardins (Jules). Dion fi
 “…_ (marquis de). Drake (Jacques). Dubuisson. Duquesnel.
 
 ne: Elva (comte d'). Engerand (Fernand). Ermant. j
@@ -2187,7 +1702,6 @@ ne: Elva (comte d'). Engerand (Fernand). Ermant. j
 | _ Fouquet (Camille). +
 | …_ Gaïlhard-Bancel (de). Gaillard (Jules). Galot (Jules).
 | _ Galpin (Gaston). Gauthier (de Clagny). Gautier (Léon) 5
-“_… (Mosges).. Gayraud. Gérard (baron Maurice) (Calvados).
 | _ Gé ard (Edmond) (Vosges). Gervaize (Meurthe-et-Moselle).
 | | Gévelot. Ginoux-Defermon. Gonidec de Traissan (comte NU
 M“ Ie): Goujon (Julien). Gourd. Grandmaison (de). Grosjean.
@@ -2202,7 +1716,6 @@ ue el jégu (I. de). Krantz (Camille). è
 . (marquis de). Lamy. Laniel (Henri). Lanjuinais (comte de).
 
 | Larpentaye (Rioust de). Laroche-Joubert. La Rochethulon
-YA OUEN
 
 Inoalidation Syveton SANS
 (comte de). Lasies. Laville. Lebaudy (Paul). Lefas. Me
@@ -2211,111 +1724,46 @@ Lerolle. Lespinay (marquis de). Lévis-Mirepoix (comte de). MA
 Limon. Ludre (comte Ferri de). ; EN:
 Mackau (baron de). Marot (Félix). Maurice Binder. 4 à
 Maurice Spronck. Maussabré (marquis de). Michel ‘4 |
-(Adrien) (Haute-Loire). Millevoye. Miossec. Montaigu … |
 (comte de). Montalembert (comte de). Montjou (de).
 Moustier (marquis de). Mun (comte Albert de). LLC
-Ollivier. Ornano (Cuneo d'). Osmoy (comte d'). 4 |
-Pain. Passy (Louis). Paulmier. Pichat, Pins (marquis @e). $ :
 Plichon. Pomereu (comte de). Prache. Proust. Pugliesi- 4
-Conti. ch
 Ramel (de). Rauline. Reille (baron Amédée). Reille (baron
-Xavier). Ripert. Roche (Ernest) (Seine). Roche (Jules) "4
 (Ardèche). Roger-Bailu. Rohan (duc de). Roscoat (vicomte “
 du). Rouland. Rouvre (Bourlon de). Rudelle. ne |
 Saint-Martin (de). Saint-Pol (de). Savary de Beauregard. Fe
 Schneider (Eugène) (Saône-et-Loire). Suchetet. k
-Tailliandier. Tournade. . ER
-Li 1.150
-Villiers. 53
 
-N'ONT PAS PRIS PART AU VOTE : {TS
-MM. Arago (François). Astima (colonel). Aynard 1%
-(Edouard). j
-Ballande. Barrois. Bartissol. Bérard (Alexandre). Ber- nn
-thoulat (Georges). Bischoffsheim. Bonte. Boucher (Henry). 4h
 Bourgeois (Léon) (Marne). Boury (de). Brice (René) (Ille- ‘3h
 et-Vilaine). -}
-Cardon. Coache. . 1
-Delcassé. Delelis. Deloncle (François). Doumergue pe:
-(Gaston). Duclaux-Monteil. Dujardin-Beaumetz. Dulau ÿ
-(Constant). No:
-RE, ni!
-Étienne. " |
-: "Rs
-: 4
 
 D A ne Co OS Le DTA À
-D: A pold). Flourens. Fruchier. \ UE ï AUS
 Gaflier. Gellé. Guillain. FAR ET
-À QU TNT TRS { i », FA
-Han dricourt. Holtz. ARR
 er hièze. Laurens-Castelet (marquis de). Léglise. Lozé.
 _  Mahy (de). Maruéjouls. Massabuau. Méline. Motte. LS
-1e Né ; J
-à RNSE + rc ?
 "Un 10 (Camille). Périer de Larsan (comte du). VERS
-£ _ Raïberti. Ribot. Riotteau. Rose. Rousset (lieutenant- & 3
-e Thierry. Trannoy. Trouillot (Georges). Trouin. Turigny. :
-k ‘ie fe re
 re Hs ES fi N'ONT PAS PRIS PART AU VOTE A
 | HU tes députés dont l'élection est soumise à l'enquête : 1
 _ Syvelon. NE
-S | _  ABSENTS PAR CONGÉ : PAR
-MP Ur: KA} Eee
-MM. Ancel-Seitz. Armez. 116
-….  Babaud-Lacroze. Balitrand. Beharelle. Bouveri. Boyer
-(Antide). FE
 …_… Caïllaux. Castellane (comte Boni de). Castillard. Cauvin dE » (nest). Chabert (Justin) (Rhône). Chamerlat. Chanoz. "ù
-Chevalier. Cochin (Denys) (Seine). Couyba. ë,
-2: LRU ‘ V4
 … David (Henri) (Loir-et-Cher). Decrais. Derveloy. Des- |
-k Chanel (Paul). Devins. Disleau. } EN
-__ Estournelles (d'). |
-… Flandin (Etienne) (Yonne). : A
-ERE Gérald (Georges). 4 ‘
  Hugu Les (François) (Aisne). }
-AMAR LIT" À: K ?
-2 dotz. À
 
-Ai A die GARE ÉNONE
-PARLES {a « Fee GR My » ue RH EU AS f RU TS #4 Nid 4% Pr EUR Lau es
 MA Larquier. Le Bail. Le Mare. Le Moigne. Leroy (Modeste). |
 x: _ Leygues (Georges) (Lot-et-Garonne). HE ES di: |
-_ Mercier (Jules). Millerand. Mollard. , Ts 180 A |
 
 | FCO EES
 
 Noulens. 2 és ; De. se. |
-ETES Péret. Plissonnier. Poullan. Pourteyron. “JSTOR |
-* Onilbeut. Ro
-Richard (Pierre). Robert Surcouf. Roch. 5e Re"
-PAM USarrien, + ‘ACER ES » Thierry-Cazes. Torchut. 4 {& °F |
-HAMAAVallée, Vogeli. À 13 710
 
-EN nl 3 L'ANCIEN |
-Aie Es CAES |
 Les nombres annoncés en séance avaient été de:
 
-ER cesel
-
-ni Nombre des votants . . . ...... 529 NN |
-4 Mejorité absolue. . . . . . . . . . Ne 260
 de Pour l'adoption... "1327 Re
-ve Contre . . . ... .-. . 1. 0000 MONS
 Lie Mais, après vérification, ces nombres ont été rectifiés
 | conformément à la liste de scrutin ci-dessus. ne ES
 [Les rectifications au scrutin de ce jour sont port “Eu |
 dans le numéro suivant de l'Oficiel, après les scrutins nn M
-_ ! dulendemain.] M
-y FOR
-à: CREER out 1) |
-$ k JR À
-De : ‘TS
 
-PE AL ANT M Enr UT U EA CUT RE AT RRRETR EN APE : Vi PE RE
 | 10 NE he RU GS } AMEN LE 0e CAT sus #
-ÿ MES RENE it À 4
-+ :. 1 CI ENTERRNERS ? (Fa
 _ Chambre des Députés, huitième législature, session AS
 dé À ordinaire de 1903, compte rendu in extlenso, soixante- sal
 À _ sixième séance, séance du mardi 7 avril. — Journal Hour
@@ -2324,27 +1772,19 @@ Ar Su ite de la discussion des conclusions du rapport de la k
 A commission chargée de procéder à une enquéte sur é
 …. les opérations électorales du deuxième arrondisse- Von
 | ment de Paris et tendant à la validation de ces SA
-opérations : MM. Jaurès, Syveton, Georges Grosjean, LG
-MAN AHT. . #
 le ministre de la guerre, Camille Krantz, Godefroy Ne
 “ _ Cavaignac, Henri Brisson, Lasies, de Pressensé, LAN
 14 Paul Beauregard, rapporteur. Scrutin. Pointage. NE
 Rejet. — Annulation des opérations électorales. ve
 | Projets de résolution : 1° de M. Jaurès et plusieurs Î
-Re ch f ÿ è
 … de ses collègues; 2° de M. Paul Constans et plusieurs
 mA e ses collègues: 3° de M. Magniaudé. — Demande pe
 de priorité en faveur de l'ordre du jour de M. Jau- es À
 “ rès — Demande de l'ordre du jour pur et- 10 TA
-PAR : 3 . PR 4
 | simple : MM. Ribot, Chapuis, Cavaignac, le prési- '
 . deni du conseil, ministre de l'intérieur et des cultes : ee
-… Walter, Magniaudé, Charles Bos, Émile Chautemps,
-Ta 4 NE f ÿ) 3 : }
 | Astiei De Projets de résolution : 1° de M. Astier;
-RNARE FEU caue
 
-É£s OR EN A RE PR RE PPT CORRE
 Invalidation Syveton A LA 2
 2° de M. Ghapuis et plusieurs de ses collègues. _— À
 Demande de l'ordre du jour pur et simple : MM. le À
@@ -2353,7 +1793,6 @@ président du conseil, Ribot, Chapuis, Vaseille. Retrait. A
 projet de résolution de M. Jaurès et plusieurs de ses ‘à |
 collègues. — Sur la priorité en faveur du projet de à |
 résolution de M. Chapuis et plusieurs de ses collègues : 1 |
-MM. Magniaudé, Massabuau. Adoption, au scrutin. |
 — Adoption, au scrutin, au fond, de la première 7
 partie de ce projet de résolution. — Adoption, au | |
 scrutin, de la seconde partie. — Adoption, au scrutin,
@@ -2374,22 +1813,14 @@ Je réponds à cela trois choses : il n'y à aucun rap- |
 port entre une interview dont l'authenticité ne peut être 3
 assurée, où les termes ne peuvent pas être contrôlés et 3;
 une lettre authentique, oflicielle, signée par un homme K]
-60 |
 
-MO CAR LEONE PS j $ ü j
-:. RSS RARES EP
-LE RUN DENER 4 . À k : L )
-LL ANT ANRT ERREE ù À ,
-5e He _ INTERVENTION JAURÈS |
 Has -omme le général de Pellieux. (Très bien! très bien! à Ÿ
 4 En second lieu, entre les termes de l'interview et » ceux de la lettre, il y a de notables différences. Les
-+ ER PE RE
 D Fe expressions les plus fortes de la lettre ne se retrouvent.
 ” pas dans l'interview, et enfin on cherche inutilement à
 comment une interview publiée le 3 septembre pouvait
 ‘à S dispenser le ministre de la guerre, s'il a reçu la lettre, J
 Fa de la communiquer au président du conseil et au Gou- !
- vernement responsable. (Applaudissements à gauche)
 He x … M: FERNAND ENGERAND. — L'a-t-il reçue?
 —…_ A l'extréme gauche. — Il l'a reconnu!
 …_ M. Gagnez Syveron. — Permettez-moi de fixer ce
@@ -2397,12 +1828,9 @@ He x … M: FERNAND ENGERAND. — L'a-t-il reçue?
 Je crois que la presse non seulement a donné une ;
 interview du général de Pellieux, mais encore elle a
 _ signalé sa lettre en en donnant le sens général et même 3
-ai AE . . »}:'e) . 4
 … une des phrases principales. Car voici ce que Le Gaulois
-RE ., É
 … du 2 septembre 1898 a publié :
 “ Le document dont le général de Pellieux a été appelé à \
-5, se servir.
 é à Il s'agit du faux Henry È
 “nest aujourdhui reconnu faux. Il est constant que le
 …_ … général de Pellieux a été trompé indignement. Il s'en est
@@ -2415,13 +1843,11 @@ lettre était adressée au ministre; mais, suivant la voie
 —_ Ce texte établit que l'existence de la lettre, son sens k
 à général, une des phrases principales étaient connus dès
 
-Invalidation Syveton ‘ACIER
 | TETE
 le 2 septembre 1898. (Très bien! très bien! à droite et
 sur divers bancs au centre. — Bruit à gauche) Re ET
 M. Jaurès. — Mon observation demeure tout entière. | ES.
 Je maiïntiens de la façon la plus netie qu'il y a un. SR
-abime.. (Bruit à droite) PE |
 M. LE MARQUIS DE DioN. — Il est mort! 7 °° |
 M. LE PRÉSIDENT. — Tout le monde le sait, mais 4 |
 laissez, je vous prie, l'orateur s'expliquer. RE
@@ -2438,69 +1864,44 @@ mon sentiment. US
 M. ze PRÉSIDENT. — Je vous rappelle à l'ordre et je : 4
 vous prie encore une fois de garder le silence. ; à k
 M. LE MARQUIS DE Dion. — Je répète que si M. Jaurès... ‘4
-(Bruit à gauche) PU 9
 M. LE PRÉSIDENT. — Monsieur de Dion. ne me forcez +
 pas à vous rappeler à l'ordre avec inscription au S à
-procès-verbal. |
 M. LE MARQUIS DE Dion. — M. Jaurès a déjà dit que "}
 la triple alliance était un contrepoids nécessaire au 3
 patriotisme français et il essaye de démontrer que : @
 l'affaire Dreyfus doit jouer le même rôle. (Æxclama- :. |
 tions et rumeurs à l'extrême gauche) à |
 M. LE PRÉSIDENT. — Je vous rappelle à l'ordre avec “4 |
-62 Ke “ |
 
-* pis va œaté ‘pt TE IE ARE “iles e à 4
- R RRÉITR ANR PAS DOSSIER CARRE IE AP
-AS AS RAT 3 ACER Re eV £ Sri, DRE
-nn | 4 « D : è À
 _inscri ption au procès-verbal. (Très bien! très bien! à
 _ l'extrême gauche) \
-bre JS \ L s
 2 M: LE MARQUIS DE Dion. — Oui! vous pouvez m'exRES  - on + . . « 2 €4
 À ja pulser de votre Parlement, je me sentirai très honoré we
 _ quand j'aurai été mis à la porte par vous tous. (Bruit)
 ‘4 RAM JAURÈS. — Quand l'adversaire crie, c'est qu'il se
 2 _sent touché. (Applaudissements à gauche et à l'extrême
-_ gauche) 4
 -_ Je maintiens qu'il y a une différence décisive, au :
 . point de vue de l'effet sur l'opinion et au point de vue |
 … des décisions immédiates que le Gouvernement devait
 … prendre, entre une interview où même il serait fait siR
-DATE à rue : .
 allusion à la lettre du général de Pellieux et Le texte si :
 | vigoureux de cette lettre. L
-à Pa M: GABRIEL SYvVETON. — Pardon, monsieur Jaurès!.. F
 | 2 . Jaurès. — Oh! monsieur Syveton! je vous en sx
-DATE. à ja
 M: x1E PRÉSIDENT. — L'orateur préfère continuer. A ir
 12 L M. ze marQuIS DE Dion. — C'est une manœuvre pour
 S _ Paralyser et détruire notre pays.
-LR = = 2 . Tax
 _ M. Pracne. — Enfin, est-ce qu'il s'agit de l'élection
-+0
 _ de Dreyfus?
 " M.1E comre DE LA RocHETHULON. — Que l'orateur
-3 E grue . .
 dise tout ce qu'il voudra. Tout cela n'a aucune impor-
 . M. 1E marquis DE Dion. — C'est un défi porté au
 M. Jaurès. — Laissez-moi vous dire que ces mani- c
 %. M tions concertées, tapageuses et injurieuses viennent
 __ un peu tard... (Bruit à droite) |
-ge à $ si :
 re vous m'avez écouté en silence, parce que vous 2
 … nimaginiez pas que je vous porterais les coups que je -
-EACH Fr.
-RAS:
-QE à LPS Sani
-A en :
-
-er Qt
-
-Invalidation Syveton ADR
 
 vous porte. (Applaudissemenis à gauche. — Exclama- ë
-tions à droite) _
 
 Vous vous êtes donné le mot d'ordre pour essayer de
 couvrir ma voix aujourd'hui; je vous assure... (Bruit) ÿ
@@ -2522,8 +1923,6 @@ c'est celle du pays que nous servons.
 M. Lasies. — Monsieur Jaurès, voulez-vous me per- ë
 mettre une observation ?.…
 
-M. Jaurès. — Volontiers. ;
-
 M. Lasres. — Aujourd'hui, M. Jaurès veut bien faire |
 échange de bons procédés avec moi, et je en remercie. 4
 
@@ -2538,17 +1937,11 @@ portez. Je vous le prouverai tout à l'heure en essayant à
 de vous en porter qui vous gêneront beaucoup plus que
 les vôtres ne nous gênent. (Applaudissemenis à droite.
 
-— Rumeurs à gauche)
-
 M. LE PRÉSIDENT. — J'espère que maintenant on
 écoutera vos bons conseils, monsieur Lasies, et que
-chacun fera silence. !
 
 M. JAuRÈS. — Il est donc entendu que les amis de
 
-64 j
-
-F AO INTERVENTION JAURÈS à
 4 M. Lasies ne retarderont pas le moment où il pourra
 KL nous porter des coups décisifs.
 ; M. Massapuau. — On ne le laissera pas parler.
@@ -2582,10 +1975,7 @@ M. Grorces GrossEan. — L'intérêt qu'avait la cham-
 ral de Peliieux consistait à savoir de lui ce qui s'était
 È ‘passé au cours de l'enquête Esterhazy, qu'il avait con-
 | 65 iv.
-‘y
-à.
 
-Inpvalidation Syveton es
 duite. Il n'était point nécessaire, pour faire appeläce L
 témoignage, de connaître la lettre dont M. Jaurès vous
 a lu hier le texte à cette tribune. J'ajoute que si cette ; 4
@@ -2597,7 +1987,6 @@ considérable. Eh bien! je vous rappelle que arrêt de la 1
 cour a écarté, comme fait nouveau, le faux, les aveux À
 et la mort d'Henry. 3 ;
 M. Jaurès. —Vous ne contestez pas vous être trompé
-matériellement hier ? À
 M. GEORGES GROSJEAN. — Je le reconnais. à
 M. Jaurès. — Nous discuterons ensuite sur les con D
 séquences de votre erreur. (Bruit à droite) 4
@@ -2616,7 +2005,6 @@ qui avaient soutenu jusque-là la culpabilité du condamné de 1894 devaient rec
 lité devenait plus que douteuse, puisqu'il avait fallu
 lappuyer de pièces fausses ; ou bien ils devaient expli- |
 quer que si le lieutenant-colonel Henry avait fabriqué :
-66 “
 
 Res ‘une pièce fausse, ce n'était pas pour appuyer une accu__ sation fausse, c'était pour suppléer devant l'opinion par
 ÉE une pièce qui pût être produite, une autre pièce plus
@@ -2647,15 +2035,8 @@ d. “x les mouvements, M. le général Mercier, ne s'y est pas
 —_  laveu d'Henry aussitôt que le parti nationaliste, d'a-
 :4 bord accablé, se ressaisit et se retrouve, c'est la lettre j
 _ de Guillaume II qui devient son moyen suprême de
-; M <e défense.
 pe: Que dit M. Rochefort le 1° septembre? Il n'a pas eu
-50 1 si 67
-FÉen !
 
-RE are 4 à
-ANS NES
-s ue à en #
-Invalidation Syveton £ 4
 encore, lui, à ce moment, le temps de se ressaisir tout <
 à fait ; il fait des réserves, mais il commence à indiquer “A
 le système : |
@@ -2664,7 +2045,6 @@ pide. A quel sentiment misérable ou à quelle idée biscor- T0)
 nue a pu obéir le chef du service des renseignements ? Je à
 le cherche vainement. Peut-être, s'il ne s'était suicidé hier,
 aurait-il essayé d'expliquer qu'il avait fabriqué un docu- 4
-ment apocryphe afin d'éviter d'en fournir d'authentiques ë
 dont la divulgation eùt pu compromettre la sûreté de VE- 3
 tat. Ce serait là en tout cas une excuse étrange attendu
 que ce témoignage ne pourrait servir qu'à infirmer la sincé- F
@@ -2672,9 +2052,7 @@ rité des autres. 1
 M. Rochefort est traversé par le doute ; mais le doute 4
 n'habitera pas longtemps en lui. (Sourires à gauche) $
 La Patrie du 3 septembre précise le système et elle -
-“ |
 le met en quelque sorte sous le patronage d'Henry lui- 4
-même : k
 Nous devons à une indiscrétion de connaître la déclara- |
 tion suivante qu'aurait faite le colonel Henry : à
 « J'étais obsédé par l'impossibilité de rendre publiques
@@ -2686,23 +2064,18 @@ en vue de prouver l'innocence du traître. Devant cette
 impérieuse nécessité, j'ai fabriqué une pièce, j'ai fait un
 faux, je l'ai fait en mon âme et conscience 25 #
 (ÆExclamations ironiques à l'extrême gauche et sur
-plusieurs bancs à æauche)
 dans l'intérêt
 de la justice, acculé par l'impossibilité où nous nous trouvons de livrer à la publicité des documents secrets. »
 
-æ : NE ï INTERVENTION JAURÈS
 …_ ]l pouvait, sans péril, livrer à la publicité les docu-
 « ments secrets émanés de Schwarzkoppen ou de PanizES . » . . . »
 … zardi. Quel était donc, sinon la lettre impériale, le
-ee . # . EN
 - document secret qu'on ne pouvait sans péril livrer à la
 4 publicité ? (Applaudissements sur les mêmes bancs)
 _ M:zrE marquis DE Dion. — Il n'y a que les morts qui
-_ parlent!
 M: Jaurës. — C'est pour cela que vous parlez! (Rires
 … à l'extrême gauche. — Interruptions à droite)
 ; _ M:1e marquis DE Dion. — Ce n'est pas très spiri-
-à tuel !
 . … M. Jaurès. — Le 3 septembre, dans le Petit Journal,
 « M. Judet qui est venu dans l'enquête formuler le sys-
 . ième de défense de M. Syveton, dit :
@@ -2716,7 +2089,6 @@ Dreyfus renfermait des documents capables, par leur divul4 gation, d'entraîner 
 “… graves, sortes de billets de banque dont la valeur fidu-
 —. ciaire reposait à ses yeux sur l'existence de pièces authenH tiques maintenues prudemment dans l'ombre.
 ne … M: ne Boury. — C'est l'Argus de la presse! (Rires
-_ à droite)
 
 M: JAURÈS. — La Libre Parole du 3 septembre repro-
  duit l'article de M. Judet, et ajoute :
@@ -2725,10 +2097,6 @@ ue Je ne crois pas qu'on ait encore formulé aussi heureuse-
 di: Et la Patrie du 3 annonce que, pour faire valoir ce
 …— système, pour faire accepter au pays l'idée d'une pièce
 1 69
-
-ge VA
-
-1 1 RES SSERRE
 
 Invalidation Syveton Re FE de,
 
@@ -2771,10 +2139,6 @@ Nous pouvons attendre iei avec un grand calme ces :
 publications. Car, il est à peine nécessaire de le dire, ilme
 peut s'agir que de faux, un empereur allemand ne corres-
 
-5230 Lee ;
-" 2%
-
-a & EE ji j dar JAURÈS \ K (
 AR AS avec les espions au service de l'Allemagne. Si 6
 F quelque agent subalterne ou même un officier supérieur a
 
@@ -2802,7 +2166,6 @@ que professe sur votre compte Liebknecht.
 DEUM. Lasres. — Vous trouvez cela très bien, monsieur À
 : le ministre de la guerre; pour moi, je trouve cela écœu- 1
 rant. (Applaudissements à droite. — Interruptions et
-bruit)
 1 . M: Jaurès. — Mais, messieurs, c'est le journal la }
 
 : Groix qui a formulé le système avec le plus de suite,
@@ -2825,9 +2188,6 @@ _ L'ambassade allemande avait pris, à propos d'une :
 
 4 Ness de l'ambassade ne continuerait à se livrer
 
-x N, “APE ;
-
-: Inpalidation Syveton ri 2
 à Paris à cette sorte d'opération. L'engagement fut. que
 oublié, ou bien un des attachés militaires se livra à « 3
 quelqu'une de ces opérations sans avoir prévenu lam- 5
@@ -2856,11 +2216,7 @@ pêche de dire toute la vérité », le parti clérical essaya M
 de profiter de cette réticence et de l'obscurité qui res- M
 tait dans le pays sur les incidents diplomatiques de $
 1894 pour y glisser la légende de la fausse lettre de
-Guillaume IT. ;
 I! fut entendu que si, à cette époque, des communi- à
-7 |
-
-“4 Gage ‘ds INTERVENTION JAURÈS |
 
 ….  qués furent échangés, s'il y eut visite de l'ambassadeur
 : _ d'Allemagne au président de la République, c'est parce
@@ -2896,16 +2252,8 @@ s'est fâché. Perier a reconnu qu'en effet il y a une pièce,
 & mais qu'on pourrait s'en passer au procès. Soit, mais je |
 “ demande absolument qu'elle soit rendue.
 
-x Et,
-
 KE _ ajoutait l'ancien président :
 £ _ Elie fut restituée.
-
-ë. È]
-
-2e =
-
-Invalidation Syveton D AE 10
 
 Ce document a été photographié. Il contient, paraît-il, + :
 des instructions détaillées, peut-être de la maïn de lempereur lui-même, instructions dont l'ensemble donne toute
@@ -2913,8 +2261,6 @@ authenticité et, incidemment, il nomme en toutes lettres le
 traître Dreyfus. Bon nombre de personnes l'ont vu. Quel |
 qu'un qui a vu ce dossier a déclaré qu'avec une/seule pièce pl
 on convaincrait les plus aveugles. 3
-
-({nterruptions à droite) À
 
 Messieurs, c'est à l'aide de ce système que, pendant
 tout le mois de septembre et tout le mois d'octobre, la à
@@ -2931,7 +2277,6 @@ la production de documents redoutables, c'est au “
 moyen de ce système que, pendant tout le mois de sep- ;.
 . tembre et tout le mois d'octobre, le parti clérical a 1
 combattu le ministère Brisson, le ministère de la revi- à
-sion. |
 
 Si vous lisez la Croix de cette époque, vous y verrez |
 la haïne implacable, (Rumeurs à droite. — Applaudisse- h.
@@ -2946,12 +2291,8 @@ brèche la conviction de vérité et de bon sens qui avait
 commencé à se produire dans le pays. C'est avec ce :
 système qu'on battait en brèche le Gouvernement qui L
 
-1, re ARR A ER a TEA gr OS SR RM MIAE O
-l {04 ANRT ONE MIE Ta F 4
-it LS a INTERVENTION JAURÈS |
 L rs LE LEA ÿ fe à C
 1e _voulai donner à la révélation du faux Henry, par la
-HOME LEA | CT N F4 LA dy
 64 revision, sa sanction nécessaire. fi
 Aujourd'hui, messieurs, il vous est facile de désaAn _vouer cette presse. ({nterruptions à droite. — Applau- 4
 …  dissements à l'extrême gauche et à gauche) Aujour- PAUNE
@@ -2960,16 +2301,11 @@ journaux, quand je saisis, que je dénonce votre sys- 14
 _ tème non pas d'après les imaginations de vos adver-
 | saires, mais d'après les publications permanentes de Rn
 . vos propres amis, il vous est facile de railler et de
-SEE i 2 . “HP
 A parler d'une sorte de revue rétrospective et d'Argus de Ho
 | VOOR A A :
 die presse ! C'est la vôtre, c'est celle dont vous vous êtes
-—…. servis! (Protestations à droite. — Vifs applaudisse- Ÿ
 ler FE l'extrême gauche et à gauche) ;
-5e M. Pueusr-Conrr. — Non ! non!
-À? APT + À À
 . M:Gasron GazriN. — Non, non, je ne connais pas
-2 RE . . “ ete .
 % … cette presse, je ne connais pas la Croix! Je n'ai jamais
 ouvert un numéro de la Croix. Er
 M. 1e PRÉSIDENT. — Monsieur Galpin, M. Jaurès ne ù
@@ -2986,14 +2322,10 @@ agréable de la connaître. (Bruit)
 ee à: M. LE PRÉSIDENT. — Monsieur Pugliesi-Conti, je vous
 de rappelle à l'ordre.
 PTE rte L
-Sn. 2% 75
-1 063 SAC IRENERS
 
-Invalidation Syveton AFTER CS
 M. Jaurès. — Vous donnez ici, messieurs, un spec- PA
 tacle singulier ! (Applaudissements à l'extrême gauche « et à gauche. — Interruptions à droite) Ê ss
 Divers membres à droite. — C'est vous qui le don
-nez.
 M. LE comTE DE LANJuinaIs. — Et c'est un spectacle
 bien attristant que vous nous donnez. (Très bien! très 6
 bien ! à droite. — Interruptions à gauche) à
@@ -3004,7 +2336,6 @@ M. Puezxæsr-Coxrr. — Vous êtes les pires ennemis de <
 la patrie. à
 M. LE PRÉSIDENT. — Je serai obligé de vous rappeler
 à l'ordre, avec inscription au procès-verbal, si vous à
-persistez à interrompre. |
 M. Jaurès. — Dans les citations que j'ai faites, dans Æ
 les extraits que j'ai apportés à cette tribune depuis 2
 l'origine du débat, je n'ai pas pris, par une sorte de :
@@ -3017,12 +2348,9 @@ emprunté des citations décisives à la France, à la ;
 Presse, au Jour, à la Patrie, à l'Intransigeant, à la
 Libre Parole, à la Croix, à la Vérité, à tous vos journaux. à
 M.LE COMTE DE LA RoCcHETHULON. — A la Gasette de Ë
-Cologne ? $
 M. JaAuRËs. — Et maintenant, je dis que c'est un sn
 spectacle étrange, lorsque dans tous vos journaux je 4
-76 2)
 
-av INTERVENTION JAURÈS
 \ retrouve et je dénonce le même système, lorsqu'il est
 -# apparu qu'il n'ÿ a pas chez eux l'inspiration ou la fan4 taisie de tel ou tel individu, mais que c'est un plan d'ensemble, un plan commun où se résument les procédés
 ù de bataille de toutes les fractions de votre parti, (Bruit
@@ -3034,7 +2362,6 @@ $ que vous avez tiré de cette presse, de ses affirmations,
 " tout le parti électoral et politique. ({nterruptions à
 é droite et sur divers bancs)
 3 M. Anraime-MÉNARD. — Mais c'est vous qui en avez
-tiré parti.
 M. Caarces DuMonr s'adressant à la droite. — Il
 f fallait désavouer dans la période électorale. Vous êtes
 les élus de ces faux. (Bruit. — Exclamations à droite)
@@ -3043,7 +2370,6 @@ A vous en pouviez tirer, lorsque l'heure est venue de rendre des comptes... (ÆE
 Applaudissements à l'extrême gauche et à gauche)
 - M. pe L'EsrourBeIzLon. — Le pays vous en demandera des comptes!
 M. Borcner. — Vous vivez de pourriture, voilà la
-vérité !
 M. Pracxe. — Qui a ouvert les écluses du syndicat?
 …._ M. 1e PRÉSIDENT. — Messieurs, je vous en prie...
 M. Jaurès. — … lorsque je fais défiler devant vous une
@@ -3052,42 +2378,30 @@ désavoués maintenant parce qu'ils ne peuvent plus
 | servir... (Applaudissements sur les mêmes bancs)
 4 77
 
-Invalidation Syveton MONS 18 T0
 M. Louis Orrrvier. — Nous ne désavouons rien du A
 M. Jaurès. — … il est étrange de voirtout un partise : M
 renier lui-même en reniant.. (Interruptions à droüe. — ns Fe
 Applaudissements à l'extrême gauche et à gauche) Ts
 M. Louis Ocuivier. — Nous ne sommes pas des rené 4
-gats! 2
 M. Lucrex Micevoye.—Nous ne renions absolument -
 rien, rien, rien! (Applaudissements à droite. — Hxcla  "« mations à gauche) Ë De
 M. Massaguau. — Nous ne désavouons rien! (Nou
-velles exclamations à gauche) ee. à.
 M. Jaurès. — Je dis qu'ilest prodigieux de voir tout 3
 un parti se renier lui-même en reniant aujourd'hui. ï "4
-(Vives dénégations à droite. — Applaudissements & 2
-gauche) se 2 |
 M. Cacuer. — Ce n'est pas vrai! "#6 |
 M. LE BARON Xavier Ree. — Nous ne renions … 74 |
-rien ! ee |
 M. Savary DE BEAUREGARD. — Nous protestons |
 contre vos paroles. SR
 M. FERNAND DE RAMEL. — Il n'est pas possible de |
 prêter à un parti de la Chambre une telle attitude. 59
-Divers membres à droite.—Renégat! (Bruit à gauche) …
 M. GEorGEs BERRY. — C'est une inexactitude de plus 4 |
 que vous portez à la tribune. Fa |
-M. Jaurès. — Quel triomphe. (Bruit à droite) 4
 M. LE PRÉSIDENT. — Je fais appel à tous nos collè- +
 gues pour qu'ils laissent la discussion se poursuivre de |
 dans le calme. - 4
 M. Lucren MirevoyE. — Je demande la parole. di. |
 M. Jaurès. — Vous l'aurez: pour le moment, je l'ai. 2514
-78 DRRRE
-ë4 n
-“SI
 
-e Eu # INTERVENTION JAURÈS
 Quel triomphe, pour moi, de vous faire hurler en
 À _ vous citant votre presse ! (Vives réclamations à droite
 4 et au centre. — Applaudissements à gauche)
@@ -3119,11 +2433,7 @@ W : tribune, je leur maintiendrai la liberté de la parole.
 _ bien! très tien!)
 M. Jaurès. — Messieurs, je m'étais borné à des lec-
 & tures, non pas à des lectures de journaux de la majo-
-&
-RS 79
 
-DAV
-Invalidation Syveton ee S
 rité, mais à des lectures de journaux de la minorité et ; 1
 on me disait sans cesse d'un ton railleur : Mais qu'est-ce ‘4
 que cela ? "4
@@ -3140,7 +2450,6 @@ M. JaAurÈs. — C'est M. Drumont, c'est Za Libre |
 Parole. Tout cela n'est rien ? D
 M. LAstEs. — Qui a dit cela ? à
 M. Jaurès. — Expliquons-nous bien alors ! 14
-A droite. — Oui! oui! ‘144
 M. JaAuURÈS. — Oui, expliquons-nous ! À Ë
 Je me suis efforcé de démontrer, hier et aujourd'hui, 1
 que votre presse, toute votre presse, dès 189% a affirmé 1
@@ -3151,11 +2460,8 @@ pliées de toute votre presse et de plusieurs de vos N
 orateurs, que c'est avec ce système que vous prétendiez ‘4
 maintenir votre opinion dans l'affaire Dreyfus. Tout à 1
 l'heure, M. Millevoye me disait : non, nous ne désa- 1
-vouons rien ! £
-M. Luce Mie voye. — Rien! Ÿ
 M. JAuRÈSs. — Eh bien! j'en prends acte. Il est À
 entendu par conséquent, que vous maintenez aujour- 4
-d'hui… n
 
 ji La INTERVENTION JAURÈS
 ne M. Luce Mizevoye. — J'attends le résultat de
@@ -3165,9 +2471,7 @@ ei M. Jaurès. — Il est entendu, dis-je, que vous main-
 k Suresnes sur la lettre de Guillaume II. Ni les uns, ni les
 | autres vous ne désavouez rien.
 # M. Cacner. — Nous maintenons le jugement de
-Rennes !
 M. Le MARQUIS DE Dion. — Parlez-nous de lélection
-Syveton. (Æxclamations à gauche)
 M. Jaurès. — Vous pourrez, en m'obligeant à lutter
 84 contre des interruptions continues, essayer de briser
 { mes forces, (Dénégations à gauche) je vous avertis que
@@ -3185,14 +2489,12 @@ responsabilité des affirmations de M. Gohier ?
 | M. Jaurès. — Il faut savoir s'il sera permis à un
 ? parti quel qu'il soit, de produire toutun système d'accusations par sa presse, à l'heure où ce système d'accusations peut servir ses intérêts politiques, il faut savoir
 s'il lui sera permis pendant quatre ans. ({nterruptions
-à droite)
 M. Puezxæsi-Conri. — Nous répondons de l'enquête
 ; de nos juges militaires, voilà de quoi nous répon_ dons.
 M. ze Marquis DE Dion. — Mais quel rapport cela
 , at-il avec l'élection de M. Syveton ?
 | 81 V.
 
-é La FAR "LE
 Invalidation Syveton }'ET COR F0 ES
 M. ze président. — Monsieur de Dion, laissez-moi K. à
 diriger le débat ou venez prendre ma place. (On rit.) E
@@ -3208,7 +2510,6 @@ ou de vous solidariser avec le mensonge collectif et 4
 permanent de votre presse pendant quatre ans, ou de 4
 la désavouer, il faut savoir si vous allez renier votre ‘4
 presse et vous renier vous-mêmes. (Applaudissements 1
-à gauche) i
 A droite. — Nous ne renions rien. È
 M. JAUuRÈs. — Eh bien ! c'est entendu, vous prenez à 4
 votre compte ces affirmations. 7 :
@@ -3225,7 +2526,6 @@ affirmations de M. Millevoye surla lettre de Guillaume IE, 4
 la Patrie, de la Croix, de La Libre Parole sur la lettre ÿ
 de Guillame II. Il est entendu que cette presse est avec 1
 vous. (Applaudissements à l'extrême gauche) +4
-82. ù À
 
 Par A ET INTERVENTION JAURÈS
 *à M. Pucuæsi-Conri. — Parlez-nous donc de l'opinion
@@ -3269,7 +2569,6 @@ inventait tous les jours une nouvelle histoire.
 Ê nouvel échantillon de la fécondité d'esprit de nos grands
 | 83
 
--  Inpalidation Syveton HE 0
 chefs. Il y a eu un incendie, racontait donc le général 7 1
 de Saney, à l'ambassade d'Allemagne. C'est pendant cet
 incendie qu'on a dérobé le bordereau, accompagné de
@@ -3287,9 +2586,7 @@ Cette photographie du bordereau annoté, le général 4
 Mercier, avec ses amis, l'ont pendant deux ans colpor- \
 tée ; et, ici encore, nous allons voir si vous désavouerez pe
 les affirmations de votre presse. (/nterruptions à (
-droite) pré
 Mais il y a mieux ici que les affirmations des jour- L |
-naux... à
 © M. pe L'EsTouRBEILLoN. — Il y a l'élection de M. Sy>-
 veton qui est en discussion. ;
 M. Jaurès. — Il y a des hommes qui témoignent que F]
@@ -3302,9 +2599,7 @@ annoté par l'empereur d'Allemagne et restitué par Casimir- :
 Perier à l'ambassadeur de Münster, mais qu'un de nos És
 amis, absolument digne de confiance, a vu une des huit !
 photographies qui en avaient été tirées avant la restitu- Le :
-tion. 3
 
-A INTERVENTION JAURÈS
 . Un des efforts principaux, l'un des plus habiles fait
 ke par les faussaires, a été de convaincre de l'authenticité
 | de la pièce un homme qui avait, pendant des années,
@@ -3316,7 +2611,6 @@ On avait su que le général Schneegans avait parlé de
 ces photographies du bordereau ; il a été interviewé par
 le journal Le Temps et il a répondu le 3 février 1899 en
 termes volontairement estompés, mais où la vérité
-perce.
 
 Je n'ai pas vu le général de Boisdeffre depuis près de
 vingt ans, il n'a donc pas pu me prendre pour confident.
@@ -3344,8 +2638,6 @@ Mon cher confrère, vous me rappelez fort à propos que,
 sur le boulevard, en face du Crédit Lyonnais, je vous ai
 | Fs
 
-Re PR NAUR i ue: ‘1 à :
-Invalidation Syveton Ge.
 parlé, sans vous demander le secret, d'une lettre de lempereur d'Allemagne où se trouvait affirmée la culpabilité
 de Dreyfus. Votre mémoire vous a bien servi. Il est exact,  ""
 en effet, que le colonel Stoffel m'a révélé l'existence de ce F8)
@@ -3355,14 +2647,12 @@ esclafté, selon votre familière expression ; mais il est vrai
 que j'ai montré quelque surprise. J'avais tort, car la lettre … ‘4
 existe ; elle n'émane pas, ilest vrai, de l'empereur allemand, B.
 mais je crois qu'on n'aurait pas grand'peine à retrouver ses 4
-origines. 0
 Elle arrivait juste à point pour jeter le trouble dans les "4
 esprits non prévenus « et créer une présomption contre le 10
 bureau des renseignements militaires ; is fecit cui prodest ».. | k +
 C'est entendu, messieurs, c'est nous qui avons fabri- k 4
 qué le faux bordereau annoté. (Applaudissements à ‘: ‘à |
 l'extrême gauche et à gauche. — Interruptions et rires ne
-à droite) n :
 Mais je retiens — vous pouvez sourire et les beaux FE. |
 esprits en peuvent railler; mais cela demeure, cela aura ne |
 ses conséquences ; cela portera ses fruits — je retiens où
@@ -3379,9 +2669,7 @@ cette tribune cette sorte de propagande occulte et mon- À
 daine ; mais elle est dans vos habitudes, elle est un des È
 secrets de votre action; (Applaudissements à gauche et à
 à l'extrême gauche) elle est un des moyens subtils par ‘4
-86 F.
 
-4 cl di INTERVENTION JAURÈS
 lesquels on fausse l'opinion des salons, qui fausse, peu
 . à peu, l'opinion d'un monde plus étendu; et comme les
 2 officiers fréquentent le monde où vous faites colporter
@@ -3422,20 +2710,15 @@ _ de ces lettres.
 
 Ÿ: Le soir dont il s'agit, M. de Münster m'ayant pris à part,
 
-; PTE
-Inpalidation Syveton 145
 me parla des bruits courant sur l'existence de ces lettres. IL d
 comprit aussitôt à ma réponse que je n'y croyais pas; Fe
 il me dit qu'il en était très heureux et il ajouta qu'il
 était très satisfait de pouvoir me confirmer dans mom
-opinion. À
 Quelques jours après, je rencontrai M. Hanotaux, je crus J
 devoir lui faire connaître l'impression qui résultait pour |
 moi de ma conversation avec M. de Münster. 4 9
 M. Hanotaux ne parut pas surpris et me remercia simple- À
-ment. î
 M. LE MARQUIS DE Dion, ironiquement. — C'est très
-grave !
 M. JaAuRÈS. — Ce n'est pas grave, mais c'est un indice
 plus sérieux que vous n'imaginez. Lorsque leffort
 occulte et obscur que vous avez fait pour tromper l'opinion, lorsque cet effort est surpris, vous haussez les  "#
@@ -3456,9 +2739,7 @@ demande de mise en accusation devant la Haute Cour | |
 avait été déposée contre lui par un ministère qui |
 s'étonna peut-être lui-même le lendemain de l'avoir
 risquée, par l'honorable M. Charles Dupuy, mais la r
-fe Es
 
-VE LEA +
 4 (ES ne INTERVENTION JAURÈS
 re Chambre statua qu'il serait sursis au vote sur le renvoi
 É: du général Mercier devant la Haute Cour, jusqu'à ce
@@ -3486,17 +2767,11 @@ la Libre Parole en juillet. Elle lui était adressée
 -_ par M. Déroulède dans une lettre écrite par lui à
 _ M. Galli le 7 août 1899, quelques jours avant l'ouverture du procès. M. Déroulède le suppliait, le sommait
 presque de ne réserver aucun des secrets d'État qu'il
-détenait.
 Quelqu'un porta au journal Le Petit Caporal, le
 3 août 1899, un article qui résumait tout le système du
 bordereau annoté qui devait être dans le procès de
 | Rennes le système du général Mercier. Il l'annonça, le
-Del #9
-dE
 
-: LHNPRRSES + lo
-Invalidation Syveton CARAIEREES
-: - 1 45 RU RAE CSN
 3 août, sous le titre : L'Empereur d'Allemagne et |
 l'affaire Dreyfus. — La pièce secrète. FFT SEC |
 Demain, nous publierons une communication des plus
@@ -3508,10 +2783,8 @@ va se dérouler à Rennes un jour nouveau. D |
 Au témoignage qu'il en a rendu ces jours-ci etquia
 été publié, c'est M. Ferlet de Bourbonne qui avait porté |
 cette communication au Petit Caporal. Je suis sûr qu'il
-2e Z - At |
 en prendra la responsabilité. |
 Le lendemain, 4 août, le journal disait sous le même ch |
-titre : nn |
 Nous annoncions hier que nous publierions aujourd'hui
 une communication des plus graves sur la pièce secrète du
 procès Dreyfus. Cette note nous a valu la visite d'un per- M
@@ -3532,7 +2805,6 @@ jugeant en leur âme et conscience, ne se laisseront ‘4
 influencer par aucune cause étrangère à la justice, c'est 4
 avec confiance que nous attendons le verdict. “+
 
-(ot Mer: _ INTERVENTION JAURÈS
 : ME 1 à résulterait de l'article que ce serait le général
 - Mercier lui-même qui aurait demandé au Petit Caporal
 de ne pas publier un système qui devait être soutenu
@@ -3564,13 +2836,8 @@ il voulait se réserver un moyen d'agir d'une façon plus
 it discrète et plus occulte en créant autour des juges un
 … état d'opinion qui déterminât leur verdict sans l'expa poser à la discussion directe et contradictoire du
 _ système qui, depuis des années, s'aflirmait sans qu'il le
-A 91
 
-A D
-
-.  Ænoalidation Syveton KP APRES 4
 démentit. (Applaudissements à gauche et à l'extrême 1
-gauche. — Rumeurs à droite) : 21
 Voilà pourquoi avant le procès de Rennes le Petit 4
 Caporal fut prié de ne pas produire le système qui ‘4
 avait fait jusque-là le fond même de l'accusation. :
@@ -3583,7 +2850,6 @@ publiquement le système qui était le sien et celui de
 ses amis, il a tout fait, dans sa déposition même, 4
 pour en suggérer l'hypothèse à l'esprit des juges et M
 pour jeter ainsi la confusion et le trouble dans iles con- |
-sciences. 4 À
 Il a affirmé que l'empereur Guillaume lui-même était 4 1
 en correspondance directe avec ses chefs d'espionnage.
 Il a affirmé que, dans la nuit du 5 janvier 1895, la |
@@ -3601,14 +2867,9 @@ Je laisse de côté toutes ces considérations relatives aux f
 tance, attendu que, quelle que soit la personne qui a fait |
 
 92 4
-Mu |
-
-Se INTERVENTION JAURÈS
 
 ‘ C bordereau, quelle que soit la personne qui l'a écrit, je {
 “persiste à croire qu'il est du capitaine Dreyfus.
-
-4 (Exclamations à gauche)
 
 ‘4 Et dans le texte revisé par lui, qu'il a fait ensuite
 distribuer aux juges, on lit:
@@ -3617,7 +2878,6 @@ distribuer aux juges, on lit:
 ni le capitaine Dreyfus ! mais je n'attache pas grande importance à cette question parce que même si le bordereau a
 . été écrit par un autre, son examen cryptographique va
 ..… démontrer qu'il n'a pu l'être que sous l'inspiration du
-‘à capitaine Dreyfus.
 
 1 M. Maurice Viozcerre. — C'est un joli misérable !
 
@@ -3641,26 +2901,21 @@ intervenu, si une copie en a été faite, si, dans cette
 …. copie, se rétrouve la trace d'une autre main, qu'importe?
 L'auteur original, le véritable inspirateur, c'est le capi-
 …_ taine Dreyfus, et c'est ainsi que M. le général Mercier
-_  suggérait aux juges... (Réclamations à droite. — ApAAMALIES
 
-Invalidation Syveton 4 “PASS TE f
 plaudissements à l'extréme gauche)... par toutes les si |
 indications de son témoignage, le système qu'on n'osait ES. |
 pas produire directement. C'est toujours le même pro- 4
 cédé, le procédé occulte, le procédé insinuant, le procédé À
-d'hypothèses corruptrices. (Applaudissements à gauche M]
 et à l'extrême gauche) : a ”. |
 
 Il faut bien que dès lors l'esprit des juges soit hanté |
 de cette hypothèse. L'un d'eux lui demande : EN
 Mon général, a-t-on jamais fait l'hypothèse que le bor |
 dereau sur papier calque pouvait bien être la copie d'un. RU |
-bordereau original ? NL |
 Voilà des années que ce système est propagé, qu'on - 4 |
 y a mêlé le général Mercier, voilà la première fois que 4
 ce système fait, par une question des juges, son appa- “é 4
 rition officielle dans le procès. Que va faire le général" "4
-Mercier ? 3 ; 4 $
 Si ce système est faux, s'il veut le désavouer, il va nn
 saisir l'occasion qui lui est donnée de protester publi- q à
 quement contre une invention qui est compromettante 1
@@ -3675,10 +2930,6 @@ de faire juger un homme sur un document dont il n'aurait pas révélé aux juges
 Le général Mercier va protester ? Écoutez : (10
 J'ai vu — dit le général Mercier d'un air détaché — j'ai ‘4
 vu cette hypothèse dans les journaux, mais elle n'a jamais | 3
-94 ÿ F4
-Ne RU
-
-ESS INTERVENTION JAURÈS
 
 À ne à ce moment-là au ministère de la guerre. Nous à
 avons toujours admis que le document sur papier pelure
@@ -3722,8 +2973,6 @@ _ à l'extrême gauche)
 
 à A Monsieur le général Mercier
 
-ds Général, î
-
 . Dans votre déposition vaillante, loyale, irrésistible, vous
 
 … avez dit une grande partie de la vérité ; mais l'avez-vous
@@ -3741,10 +2990,6 @@ _ dite tout entière? J'en doute et voici pourquoi : vous
 
 ge ce qui a org irrité l'empereur au point de menaces de
 
-Invalidation Syveton MN
-
-r, vs
-
 guerre et ce qui l'a ensuite calmé. Votre silence, sur ce.
 point, laisse planer, sur votre déposition, et sur toute 4
 l'affaire une obscurité redoutable. et que je sens dans les
@@ -3753,14 +2998,12 @@ qu'il suit le drame dont vous n'avez soulevé qu'un coin. ÿ
 
 Le bordereau avait été écrit par Dreyfus sur papier fort |
 et envoyé au chef de l'espionnage allemand, de l'empereur
-Guillaume. *
 
 En face de chaque pièce se trouvait indiqué le prix exigé.
 L'empereur renvoya le bordereau à Paris avec une note ‘4
 de sa main, en allemand, dont le sens était que décidé-
 ment cette canaille de Dreyfus était bien exigeant, qu'il |
 fallait veiller à ce qu'il livràt le plus tôt possible les docu- |
-ments annoncés. k À
 
 Ce bordereau ainsi annoté fut remis au colonel Henry. |
 On comprend l'émoi de l'ambassade d'Allemagne quand on À
@@ -3773,7 +3016,6 @@ l'incident; mais avant de communiquer aux ministres ‘À
 ï politiques le bordereau, le ministre de la guerre en a fait 201
 faire une photographie ; vous possédez un des exemplaires F
 de cette photographie et vous l'avez apportée sur vous à ni
-Rennes. D
 
 Ces faits expliquent le quiproquo d'Esterhazy; pour ‘1
 motiver les poursuites sans découvrir l'empereur d'Alle- D
@@ -3782,7 +3024,6 @@ pelure la photographie du bordereau en omettant l'anno- }
 tation de l'empereur d'Allemagne. Ainsi, Esterhazy a pu
 dire avec vérité que le bordereau avait été écrit par lui;
 vous avez pu soutenir avec vérité qu'il était l'œuvre de \
-Dreyfus.
 
 Si cette affirmation est très sérieuse et très exacte, confirmez-la : si elle est en partie erronée, rectifiez-la. Quoi s
 que vous disiez, la France honnête et patriote l'acceptera ê
@@ -3791,11 +3032,7 @@ comme l'expression définitive de la vérité. À
 Mais le général Mercier se taisait. L'article du Gaulois ù
 était distribué à Rennes dans les cercles militaires, À
 
-‘E
-
-Sn INTERVENTION JAURÈS
 |: * envoyé directement aux juges, il faisait l'objet de leurs
-commentaires constants.
 hr Et représentez-vous l'impression que produisaient de
 4 pareilles affirmations sur l'esprit de ces officiers habi-
 À _ tués à voir dans le général Mercier, ancien ministre de
@@ -3804,7 +3041,6 @@ s le défenseur de l'honneur de l'armée. :
 ; Ses amis, les journaux qui le soutenaient et le glorifiaient lui disaient par lettre ouverte : « Vous avez sur
 vous une photographie du bordereau annoté. » Et il ne
 | démentait pas, il gardait le silence ! Les ofliciers juges
-se disaient:
 S'il ne parle pas, c'est parce qu'il ne veut pas compromettre la patrie, /
 | _  (Vifs applaudissements à l'extréme gauche et à gauche)
 18% c'est parce qu'il ne veut pas jouer la France
@@ -3824,41 +3060,27 @@ atmosphère de légende dont on les enveloppait, je la
 5 trouve dans des détails en apparence minuscules, mais
 | qui révèlent à ceux qui veulent observer de bonne foi
 ê …. la réalité profonde des choses comme des symptômes
-û 97
-A YI
-y, ci
 
-k L: AE; De $ G ur HAS RS À | |
-_ Anpalidation Syveton \
 superficiels révèlent au médecin la lésion profonde de FA
-l'organisme. | IE EE 3
-TRE PRÉETAES
 Quand madame veuve Henry, le 16 août 1899, vient. 64 L<
 déposer devant.les juges de Rennes, écoutez les ques- 4
-tions d'abord déconcertantes, bizarres, plaisantes si 724
 vous voulez, que posent les juges. Elle vient de raconter :
 que le soir où le bordereau accusateur avait été remis M
 à son mari, le jour où il l'avait trouvé parmi les papiers  "}
 débrouillés et reconstitués par lui, il lui avait dit :
- tristement : Dee
-ï nt.
 « J'ai bien peur qu'un officier français ne soit compromis à
 dans une aventure de trahison, » et il était, dit-elle, resté à Nic.
 veiller préoccupé et anxieux jusque vers minuit. LEUR
-: si . » . . . < À
 Ce papier que votre mari dépouillait, le soir, tard, vous
 rappelez-vous si c'était du papier épais? 3 3 kr:
 (Exclamations et rires à droite) DT
 M. LE PRÉSIDENT. — Ïl n'y a pas de quoi rire! (Très
 bien! très bien!) hi] |
-M. JaAURÈS. — 1 S \
 #1 }
 Madame veuve Henry.— Je n'ai pas vu le bordereau de 3 x
-_ près. Re. f
 > « Es Ai É
 C'est entendu ! J'ai perçu quelques ricanements dont .. 4!
 | je ne m'émeuspas, et je dis : Pour tous les hommes qui |
-, + 4 D
 ont le courage de chercher de bonne foi, même à des | É |
 indices qui peuvent paraître légers d'abord mais qui à 46
 la réflexion sont décisifs, je leur demande si ce n'est
@@ -3867,10 +3089,7 @@ juges de Rennes. Voici un autre détail qui pourra
 . exciter la verve de certains de nos collègues. 2 \
 Le même membre du conseil de guerre. — Mais vous … k
 l'avez vu travailler sur ce papier? à ER 1
-Lx LS À À
 
-2 AN AN UPS ET A RE ei AS EP AS AE © SG 6 a EU D D GAME NE AN
-ONU t INTERVENTION JAURÈS | ;
  Mada me veuve Henry. — Il avait des papiers de toutes, !
 _ sortes. Il était onze heures du soir. Je n'ai pas vu. DER
 + Un autre membre du conseil. — Voulez-vous nous dire, è
@@ -3880,13 +3099,9 @@ le Madame veuve Henry. — C'était dans la salle à manger. . l
 … Le même membre du conseil. — Il y avait une table, quand
 vous y étiez, vers onze heures du soir, et que le colonel
 …_Henry était occupé à travailler? Ce papier était sur la
-table?
 _ Madame veuve Henry. — Sur la table, tous les papiers
 …étaientépars ; il y avait une toile cirée qui couvrait toute
 . — N'y avait-il pas une partie de la table qui était dégarnie
-dela toile? ru
-Aa 4 ë es .
-… A droite. — Singulière question!
 …. M: JAURÈS. — Oui, messieurs, la question est bizarre,
 f  déconcertante, si on ne se rappelle pas pour avoir ai
 à consulté les hommes qui font du décalcage, que pour \
@@ -3899,21 +3114,14 @@ se préoccuper d'en prendre des décalques, qu'il demanda
 w S'il y avait sur la table où il travaillait, une toile cirée,
 ‘et il demanda à madame veuve Henry si un coin de la
 toile cirée n'était pas relevé de façon à mettre la table
-à nu. (Mouvements divers) |
 ÿ _ Messieurs, après tout ce travail de suggestion produit
 sur l'esprit des juges et qui se révèle par les questions
 en apparence étranges que je viens de commenter rapi4 dement devant vous, de même que dans la première
-AN 99
 
-$ LL
-RUN AT ARE
-Invalidation Syveton RU
 semaine du procès le journal le Gaulois était venu afir- M
-= z AR
 mer le système du bordereau annoté, dans la dernière M
 semaine, le 6 septembre 1899, c'est la Libre Parole, trois #4 6
 jours avant le verdict, qui reproduit, elle aussi, pour M
-0 Es « . . . P 4
 les juges le même système et quiles avertit — messieurs,
 vous allez souligner de voire attention ce passage — M
 que le général Mercier lui-même avait dans sa déposi- « 4
@@ -3943,13 +3151,6 @@ pouvait être pénétré que par de très rares initiés. 4)
 L'annotation. — Qu'était maintenant ce véritable borde- ai ;
 reau ? Dans sa teneur, il ne différait en rien du bordereau « Éxi ET 00 .:
 
-je |
-
-" ti w of TT 7 }
-\ Et “ \ t :
-SR INTERVENTION JAURÈS
-Le AT TPAS
-N AE ra z à
 1% qui fut au procès de Rennes et qui, selon toute vraisemL 0 212 . o .
 « blance, n'est qu'un fac-similé, une photographie, mais le
 . bordereau initial, le vrai, portait quelque chose de plus,
@@ -3978,15 +3179,10 @@ Messieurs, quel effet toutes ces déclarations, toutes
 … pas douteux que dans le milieu même qui les envelop-
 .  pait on essayait de les diriger vers une solution particulière.
 … Je n'ai pas besoin de rappeler à M. Syveton.. (Ah !
-_ ah! à droite)
 
 M. ze puc De Roax. — Enfin ! on va parler de l'élection. C'est la première fois depuis l'ouverture de la
-discussion.
 
 M. Jaurès. — Je n'ai pas besoin de rappeler à
-
-FA 101 VI.
-Fe
 
 Invalidation Syveton &e de
 M. Syveton l'article qu'à la mort du colonel de Villebois- ‘à
@@ -4006,12 +3202,10 @@ Villebois-Mareuil sur le canapé vert d'un hôtel de
 Rennes, assis côte à côte d'un officier qu'il n'a pas
 nommé — mais qui est, à n'en pas douter, M. de
 Bréon — tout employé, disait-il, à le disputer à son “0
-confesseur. 14
 Non, on ne disputait pas M. de Bréon à son confes- M
 seur, on essayait de le disputer à sa conscience : il fal- 4
 lait plier cet homme. 4
 Un membre à droite. — Êtes-vous sûr de cela, mon
-sieur Jaurès ? H
 M. GEorGEs BERTHOULAT. — Vous n'avez pas le droit ne
 de faire parler ce grand mort! (Exclamations à l'ex- 5
 \ trêéme gauche. — Applaudissements au centre et à
@@ -4023,12 +3217,10 @@ idéal de patriotisme l'animait, idéal que vous êtes peut- #4
 ments au centre et à droite. — Bruit à gauche) }, ;
 102 1
 
-AS * à INTERVENTION JAURÈS .
 : 12 M. Jaurès. — Je ne veux pas qu'il y ait de malener tendu et je ne veux forcer en rien le sens des déclara-
 ‘14 tions de M. Syveton. Je constate seulement, d'après
 ci M. GaBrteL Syveron. — Voulez-vous me permettre
 : un mot ?
-K M. Jaurès. — Volontiers !
 À 3 M. Gagriez Syveron. — J'ajoute un détail qui était,
 - je crois, dans mon article, mais je n'en suis pas tout à
 “. faitsûr: M. de Villebois-Mareuil était le cousin de M. de *
@@ -4041,34 +3233,27 @@ _ campagne de catéchisation sur M. de Bréon, mais il
 madit: « C'est étonnant comme mon cousin de Bréon \
 4 est orienté vers le dreyfusisme par son propre confes-
 ‘ seur, et nous discutons là-dessus ensemble. » (Mouve-
-. ments divers. — Bruit) ,
 | M. Jaurès. — C'est entendu, et je suis heureux de
 } prendre acte des précisions de M. Syveton. |
 _ Me core DE LA RocerHuLox. — Il n'y a pas de
-_ quoi!
 Fa M. Jaurès. — Ainsi lorsqu'on croit remarquer que
 _ sous l'inspiration, dit-on, de son confesseur….
 25, M. ze comte DE LA ROCHETHULON, ironiquement. —
 * … À bas la calotte ! (On rit.) -
 fi M. JauRÈs. — … Un des juges du procès de Rennes
 - semblait incliner vers l'acquittement de l'accusé, un
-_ autre oflicier..
 M. Gasrez Syveron. — C'était son cousin!
-à é 103
 
-Invalidation Syveton SET ER
 M. Jaurès. — Un autre officier, son cousin — je ne. “
 conteste pas que ce fût son droit — mais un autre M
 officier, non muni de documents spéciaux, essayait de
 faire dériver dans un autre sens la conviction du É:
-juge. T4
 M. LE COMTE DE LA RoCHETHULON. — Ce n'est pas | s
 digne de vous, monsieur Jaurès. à
 M. Jaurès. — Messieurs, presque tout le clergé régu- 2
 lier ou séculier avait pris parti dans l'affaire... (Vives ;
 réclamations au centre et à droite) k.
 M. Aynarp. — Ce n'est pas exact! (Si! sil à 4
-gauche) 0
 M. JAURÈS. — J'ai dit: presque tout le clergé; je ne 4
 prétends pas qu'il n'y ait eu de nombreuses et nobles 4 |
 exceptions. Mais l'immense majorité du clergé régulier h
@@ -4089,12 +3274,6 @@ s'abandonner au vertige de l'esprit d'autorité et de |
 caste, cet homme, par hasard, rappelle son devoir à À
 celui qui demain sera juge et quine doit en effet être |
 qu'un juge cherchant la vérité, on s'inquiète, on s'émeut :
-%
--104 L |
-
-à AN INTERVENTION JAURÈS
-
-En
 
 & (Applaudissements à l'extrême gauche et à gauche) et
 
@@ -4106,7 +3285,6 @@ envers la vérité et envers l'Église, il a des devoirs
 envers une corporation armée qui exige quand même le
 
 : sacrifice d'un homme! (Applaudissements à l'extrême
-gauche. — Bruit à droite)
 
 M. Jures AurFrAy. — Vous n'avez pas le droit de
 dire cela du colonel de Villebois-Mareuil.
@@ -4115,7 +3293,6 @@ M. Puczxæsr-Conri. — Parlez-nous donc de l'ingérence
 . des rabbins juifs et des pasteurs protestants dans cette
 
 _ affaire. Vous oubliez le rôle qu'a joué notamment
-M. Zadoc-Kahn ! (Bruit à gauche)
 
 M. GayraAup. — Je demande la parole.
 
@@ -4148,16 +3325,13 @@ le programme politique et social resterait, la respon- 4
 sabilité politique et sociale resterait, et nous, hommes À 4
 politiques, nous, parti républicain, nous aurions le <
 devoir de chercher comment, du service des renseigne- #
-ments, a pu se propager pendant trois années üne nn |
 aussi monstrueuse légende. (Très bien! très bien! à M
-gauche) e: |
 Mais il y a eu déjà quelques balbutiements de confi- a h |
 . dences, le trouble de l'un au moins des juges a com- D |
 mencé à se laisser deviner; je ne ferais ici qu'une allu- D |
 sion, si je ne craignais de forcer le sens du récit que
 j'ai entre les mains, et c'est par un scrupule de loyauté Ne
 que je veux en donner une lecture complète à la #
-Chambre : 14
 Monsieur, je crois de mon devoir de vous faire connaître +
 dans l'intérêt de la vérité, les diverses conversations que e
 j'ai eues au courant du mois d'octobre dernier, avec le 21
@@ -4167,7 +3341,6 @@ C'est le témoignage d'un médecin, M. Dumas, qui À :
 s'offre à certifier devant toute juridiction, sous la foi du 5
 serment, l'exactitude de son récit. Vous allez voir qu'il 4
 
-He ETAT + # bras Lars PR RTÉL a HA + EUE +: Fr
 | __ INTERVENTION JAURÈS PEN AE FERNENES
 ne convient pas d'en forcer le sens. Ce n'est qu'une: -: » indication, mais je crois de mon devoir de la donner à
 RE Chambre dans sa teneur littérale. MA À
@@ -4181,12 +3354,10 @@ __  — Souvent, m'a-t-il répondu. PAS
 FA _ — Jamais. Pour ma part, j'ai toujours suivi ce que me 12 One
 _  dictait ma conscience. ge
 -_  — Et vous n'avez jamais eu de doute après condamna- RS
-Rouon? | 14
 M .— Cependant pour le capitaine Dreyfus, il me paraît qu'à LU
 “> _ votre place, je serais ravagé de doutes. RC ÿ
 _…_. — Non, oh! non; là, la certitude était absolue. : à 7
 ….  — Absolue? une certitude; vous voulez dire votre con- tas
-_  viction?
 —__ _ — Oui, certainement, mais elle était absolue. ce
 à ._ — Et cependant, moi qui ai suivi chaque ligne de ce ES
 … … procès, j'aurais acquitté sans l'ombre d'un doute. A7
@@ -4196,7 +3367,6 @@ _ … — Pourquoi? puisque tout se passait au grand jour ? ;
 — Non! non! pas tout. En
 et _— Mais alors enlevez-moi toute angoisse à ce sujet. C'est
 ‘5 une véritable souffrance pour moi que de croire à l'inno- ï
-Ps T : # : ” . . ” 4 +
 _ cence d'un homme deux fois condamné. Citez-moi la dépo-
 ….  sition qui vous a convaincu. Est-ce celle de Mercier ? d
 A LE Non, non. Mais nous parlons de l'affaire Dreyfus, et
@@ -4204,13 +3374,9 @@ ee n'en parle jamais. Il ne faut pas en parler, vous ne
 % À | pouvez pas savoir. se
  — C'est donc le dossier secret qui vous a édifié ?
 _  — Non, non, ne m'en parlez plus.
-RE £ PE FA se l
 _—_ — Cest donc la déposition secrète de ce misérable CzerHE Ge 107
 |: £ ve z: 44 :
 
-ARS QU
-LÉ NET
-Invalidation Syveton ane %
 — Non, d'aucune façon. Ne vous occupez pas des déposi- 5
 tions, on ne peut pas se faire une impression sur elles. ne
 Nous avons eu des éléments que vous ne pouviez pas con- 4
@@ -4231,7 +3397,6 @@ en parler, cette affaire pourrait remonter sur l'eau. de
 — Mais elle y est remontée, commandant. ; .
 Une enquête va être demandée par la famille auprès des à
 juges, pour savoir s'ils ont subi une pareille pression, une 4
-telle illégalité. k
 — Ne parlez pas de cela, je ne veux pas en parler. b
 Il fuyait, marchaït vite, agité. ‘4
 — Pourquoi, si vous êtes sùr de vous ? Pourquoi, si vous h:
@@ -4242,18 +3407,13 @@ fausse ? L
 — Non, non, je ne veux pas parler. : 4
 — Mais vous pensez bien que je n'ai pas deviné cela. Si
 je le sais, c'est qu'on a parlé. 4
-— Et qui? |
 — Mais Mercier lui-même en a parlé. I en a parlé à
 Emile Ollivier, à la princesse Mathilde. D'autres enfin ont ,
-parlé.
 — En tout cas, ce n'est pas moi, non ce n'est pas moi qui à
 ai parlé. Si quelqu'un a parlé, ce n'est pas moi. \
 Je vous ai résumé là, monsieur, cette première conver- A |
 sation en tâchant de reproduire jusqu'aux termes précis À
-108 #4
-;
 
-\ MT LEE INTERVENTION JAURÈS
 eè Mébnlèyés par le commandant Merle. Si j'ai dù, comme pour
 En _ tout récit de conversation, émonder bien des détails, je n'ai
 pas écrit un seul mot qui n'ait été prononcé.
@@ -4269,13 +3429,11 @@ S chez son frère.
 à _ — Écoutez, docteur, m'a-t-il dit, vous croyez bien que
 … … tout le monde peut être trompé ? (A Avignon, j'avais tâché
 de lui démontrer nettement la fausseté de la pièce en
-: _ question.)
 “4 — Certes, et je ne doute pas de votre sincérité.
 jf — Eh bien ! si l'on m'a trompé, je ne demande pas mieux, Fa
 14 en cas d'enquête, que de le reconnaître.
 \ L'arrivée d'un tiers a changé la conversation. Mais je \
 me suis cru, deux jours après, autorisé par cette déclara-
-'] tion à adresser, en quittant momentanément Montpellier,
 une lettre au commandant sur ce sujet. Je lui ai répété
 Me: notre conversation d'Avignon et de Saint-Georges, j'ai
 tâché de lui démontrer l'évidence de l'inauthenticité de la
@@ -4290,8 +3448,6 @@ je ne pouvais m'associer à son silence, et lui demandais de
 me laisser libre de parler à sa place, il m'a répondu :
 … … « Faites ce que vous voudrez, mais pour ma part, formellek ment, je n'ai rien dit. »
 
-Invalidation Syveton "FAC
-FAO
 Dans ma conversation à Saint-Georges, avec le comman- % A
 dant Merle, j'ai négligé un point important. i #3
 Quand je lui demandais ce qu'il comptait faire au sujet ‘10
@@ -4299,7 +3455,6 @@ du bordereau annoté, il hésita. Je lui dis alors : « Enfin,
 voyons, commandant, cette pièce est fausse. » E à
 C'est alors qu'il me dit : « Écoutez, docteur, vous admet- M"
 tez bien qu'on peut être trompé de bonne foi! » ‘&
-(Mouvements divers) ‘4
 Je ne veux exagérer en rien la valeur de cette pre- 5
 mière confidence. Mais pour quiconque sait avec quelle
 réserve étroite les juges se sont toujours défendus contre 4
@@ -4314,16 +3469,12 @@ l'élection dont vous avez à juger le caractère et la 4
 moralité, ({nterruptions) à ceux qui ont apporté ici E
 contre le parti républicain l'accusation formelle d'être | ‘4
 le parti de l'étranger, à ceux qui ont apporté contre la ‘4
-majorité républicaine. ‘4 |
 A droite. — Pas contre tout le parti républicain. ‘4
 M. Jaurès. — Messieurs, vous aggravez l'injure en la
 précisant. (Applaudissements à l'extrême gauche et à. : 4
-gauche)
-M. LE BARON DE BolssiEu. — Parfaitement ! 1
 M. Jaurès. — J'ai le droit de dire à ceux qui ont M
 apporté ici contre le Gouvernement dela majorité répu- : M
 blicaïine, celui d'hier continué par celui d'aujourd'hui, j
-110 d
 
 À À a ATEN He INTERVENTION JAURES ? » l'accusation d'être le Gouvernement de l'étranger, j'ai
 le droit de leur dire qu'après la campagne menée autour
@@ -4337,7 +3488,6 @@ _ gauche et à gauche. — Interruptions et bruit à droite)
 ‘4 M. xx coMTE DE LANJUINAIS. — Ce n'est pas poli, mais
 _ cela n'a pas d'importance. à
 #: M. JAURÈS. — … ou bien il n'y a pas cru. (Nouvelles .
-k interruptions à droite)
 de … Vous serez toujours libres, messieurs, d'échapper
 “à un des termes de l'alternative en vous réfugiant
 … dans l'autre. (Rires à gauche)
@@ -4355,7 +3505,6 @@ nos collègues de droite.
 M. ze Baron Xavier Reizze. — Nous ne sommes pas
 irrités, mais écœurés.
 
-:  Tnvalidation Syveton UE “4
 M: Jaurès. — M. Rochefort, sous le titre : Les Mys- :.
 tères du Mont-Valérien, raconte toute l'histoire du bor- À
 dereau annoté, et il s'offre à en témoigner soit devant le M
@@ -4371,13 +3520,10 @@ pièce de Guillaume IT. Oui, l'état-major l'a converti. d
 Il l'a converti le premier afin de se servir de lui |
 comme d'une caution envers les autres; il en a fait, 1
 dans cette affaire, la dupe fondamentale. (Rires. à
-gauche) ‘à
 Messieurs, je n'espère pas que M. Rochefort s'ex- 1
 plique, tout en ayant déclaré que le patriotisme faisait
 maintenant une loi de s'expliquer ; c'est un patriotisme
-aux obligations variables ! |
 M. FiRMIN FAURE. — Il n'a jamais varié comme ë
-vous! ‘
 M. JaAuURÈSs. — Et maintenant, j'imagine que la prudence viendra corrigerles élans de ce patriotisme. Non!
 ils ne parleront pas; non! ils ne s'expliqueront pas,
 même après les affirmations d'eux que j'ai produites à
@@ -4385,12 +3531,8 @@ cette tribune et dont ils devraient prendre la responsa=
 bilité en indiquant les origines du système allégué par.
 eux. Ils garderont le silence pour continuer à s'abriter
 dans l'équivoque. Mais il est démontré maïntenant — et ÿ
-112 k
-)
 
 ST On NN A SP ls AS EEE hi A2 TO ES ar La
-! sai _ “ei INTERVENTION JAURÈS
-: SAS
 _« ela suflirait — qu'on peut parler à cette tribune de ces
 … choses, (/Znterruptions à droite) qu'on peut parler du
 … bordereau annoté, de la fausse lettre de Guillaume I,
@@ -4418,15 +3560,11 @@ ral de Pellieux, apparaissant au moment où elle pou-
 “ ce Gouvernement comment il a été possible à notre
 : service des renseignements d'accréditer une légende
 dangereuse et scélérate. (7rès bien ! très bien! à
-_ gauche)
 _ M:pe Bourx. — C'est l'affaire de la justice !
 Pia M Jaurès. — Non; ce n'est pas empiéter sur l'ordre
 — judiciaire; ce sont des questions d'ordre exclusivement
-F + ST ONPIEES
 
-; Invalidation Syveton PME PA.
 politique et gouvernemental. ré Applaudissemenis Le “5
-gauche) FES
 
 Nous avons le droit et le devoir de le connaître, et M
 nous avons en même temps le devoir de condamner
@@ -4437,8 +3575,6 @@ parti républicain dans ia conscience même de la patrie. 144
 Nous avons le devoir d'y mettre un terme et de prouver 2.
 au parti nationaliste déclinant que son impuissance É À
 d'aujourd'hui ne doit pas être une excuse à ses méfaits
-
-i d'hier. (Vifs applaudissements à gauche. — Inierruptions à droite) 4
 
 M. Fin FauRE. — Si vous n'aviez pas eu la candidature officielle vous ne seriez pas ici. 4
 
@@ -4461,8 +3597,6 @@ la guerre. Li |
 
 M. LE GÉNÉRAL ANDRÉ, ministre de la guerre. — 4
 Messieurs, le Gouvernement entend faciliter dans ia
-
-- HAT Y RSS INTERVENTION JAURÈS
 
 plus large mesure, la recherche et la mise en évidence
 “. de la vérité dans l'affaire dont il s'agit aujourd'hui.
@@ -4499,8 +3633,6 @@ Ki a fait de cette affaire. Je m'en tiens au jugement du
 
 d: dernier conseil de guerre. (Vifs applaudissements au
 
-be, _ centre el à droite)
-
 _ M.LE MINISTRE DE LA GUERRE. — Mais j'estime que
 
 “ la conscience de ce pays a singulièrement été inquiétée
@@ -4520,21 +3652,14 @@ crime de cette nature. (Mouvements divers)
 EX - Pour apporter en ce moment une contribution à la: Ë
 — vérité, j'apporte la lettre du général de Pellieux, dont
 
-EE 115
-
-Inpalidation Syveton 71, LR RTE
 il a été question. (Applaudissements à gauche. — Mou
-vements à droite) FÉVR
 RU Les secrets dont j'ai la garde et que je conserve, je
 les communique au Parlement. (Applaudissements à M
 gauche. — Exclamations et rires à droite) FE
 M. Gayraup. — C'est un étrange moyen de les con ‘3
-server. ES
 M. LE MINISTRE DE LA GUERRE. — Permettez! je les”
 communique dans la limite où je le crois possible. ‘2
-Le,
 Il y a d'abord une lettre du 31 août 1898 : 4
-PRE:
 Le général de brigade de Pellieux, commandant le Gépar- he
 tement de la Seine, adjoint au général de division comman- 4
 dant la place de Paris. 14 1e
@@ -4542,24 +3667,16 @@ Mon général, ©1170
 J'ai l'honneur de vous prier de vouloir bien transmettre M
 à M. le ministre de la guerre la demande ci-jointe que je
 lui adresse, : 14
-DE PELLIEUX 44
-Paris, 31 août ; 1 ‘1e
 Vu et transmis : :Ui
 « Le général commandant la place de Paris, À
-Borrus 4
 Il n'y a rien avec cette pièce. Pourquoi n'y a-til
-"T0
-rien ? 1
 Mais voici une note : ti
 J'ai l'honneur de retourner cette demande au général 4
 commandant la place de Paris. Le général de Pellieux a bien ne:
 voulu consentir à la retirer. ‘#
 2 septembre 1898 ne.
 Le gouverneur militaire de Paris, er,
-ZURLINDEN 0
 | 13
-
-nu": INTERVENTION JAURES
 
 + Donc une pièce est arrivée au ministre.
 
@@ -4570,41 +3687,24 @@ _ retournée à son tour.
 k _  Continuons l'historique. Ceci est du 31 août 1898.
 0 Le 4 juin 1899, le général Zurlinden, gouverneur de ‘
 “ Paris, écrit au ministre de la guerre :
-E
 k Monsieur le ministre,
 # J'ai l'honneur de vous adresser ci-joint une lettre du
 —…._ général de Pellieux du 31 août 1898, dont je vous ai parlé
-Hblhier.
-‘4 (Mouvements divers)
 —_ Gette lettre est écrite Le 4 juin 1890.
-À
 # Je crois que, pour fixer complètement votre opinion sur
-à, U que; p P P
 , ” cet officier général, il serait utile que vous le fissiez venir
 { dans votre cabinet. En quelques minutes de conversation
 , vous verriez certainement plus clair dans son intervention
 | et son rôle qu'à la suite de longues recherches.
-M Général ZURLINDEN
-M Post-Scriptum. —
 We: C'est à la suite d'un entretien avec
 So M. Cavaignac, alors ministre de la guerre, que le général -
 2 de Pellieux a retiré sa demande du 31 août 1898.
-; _  (Exclamations à gauche)
 à … (M. Godefroy Cavaignac fait un signe Ge dénéga-
-, tion.)
 | M. re PRÉSIDENT. — Le silence convient dans la circonstance.
 s M. LE MINISTRE DE LA GUERRE. — C'est là une lettre
 - _ d'envoi adressée au ministre de la guerre ; elle est du +
 RER juin 1899 et voici la lettre d'envoi qui accompagne la
-A première.
-ñ 117 VII.
 
-wi
-
-F En “ n ADN PRESS
-RE
-. . LR SE AUS
-Invalidation Syveton FAIEES
 C'est le général de Pellieux qui renvoie sa lettre. -:
 À Monsieur le gouverneur militaire de Paris ; : F0
 C'est la voie hiérarchique. 2
@@ -4623,7 +3723,6 @@ de commandement possible, ayant perdu de mon côté la f: |
 confiance de ceux de mes chefs qui m'ont fait travailler
 sur des faux...
 A l'extrême gauche. — Voilà! à ;
-M. LE MINISTRE DE LA GUERRE. — A
 .… J'ai l'honneur de
 d vous prier de vouloir bien liquider ma retraite pour ancien …
 neté de services.
@@ -4637,19 +3736,15 @@ tièrement d'être chargé de procéder administrativement 4
 à une enquête. ( Vifs applaudissements à l'extrême gauche et à gauche) 4
 118 9
 
-; Den Pa Ve INTERVENTION JAURÈS
 F. J'ajoute que, pour sauvegarder ma responsabilité, je
 me propose, d'accord avec le Gouvernement qui en a
 j _ ainsi décidé, de me faire assister par un certain nombre
 . de magistrats dans le dépouillement des pièces auquel
 û . il sera procédé. (Applaudissements répétés sur les
-À mêmes bancs)
 A M. Goperroy CAvVAIGNAC. — Je demande la parole.
 “, M. 1e PRÉSIDENT. — La parole serait à M. Lasies.
 à M. Lasres. — Je cède mon tour de parole à M Ca-
-È vaignac.
 M. Camizre KRANTZ. — Je demande la parole pour !
-_ unfait personnel.
 FA Sur plusieurs bancs. — Parlez !
 k _ M. 1e PRÉSIDENT. — Je donne la parole à M. Krantz
 …__ pour un fait personnel.
@@ -4662,7 +3757,6 @@ bi: 4 juin 1899, l'arrêt de revision était rendu. Le Gouverne-
 … ment, dont j'avais l'honneur de faire partie, avait décidé
 -_ de rechercher, après le prononcé de l'arrêt de revision,
 N toutes les responsabilités qui pouvaient être enga-
-À gées…
 s M. Pauz DecomBre. — Très bien!
 M. Camizze KRANTZ. — . dans l'affaire Dreyfus et
 - que cette revision avait révélées. Ayant succédé
@@ -4671,8 +3765,6 @@ ment à l'engagement qu'il avait pris dans le conseil, je
 …  meésuis occupé de rechercher ces responsabilités et 'ai
 eu notamment à m'occuper du général de Pellieux.
 
-Inpalidation Syveton DR
-ee LC |
 C'est à cette occasion qu'ayant appris par M. le général ss e
 Zurlinden, gouverneur de Paris, que le général de Pek >
 lieux, le 31 août 1898, à la suite de la découverte du
@@ -4705,11 +3797,6 @@ compte. (Exclamations ironiques à l'extrême gauche et 4 |
 à gauche. — Applaudissements à droite et au centre) |
 Cette première déclaration faite, afin que personne ne |
 ne puisse supposer que dans l'examen des faïts je 4
-120 À
-
-RC INTERVENTION JAURÈS
-
-268 à s A
 
 ‘3e cherche à dégager ma responsabilité, j'en arrive à la
 …. précision sur des faits qui n'ont, à mes yeux d'ailleurs,
@@ -4734,12 +3821,10 @@ retrouver le général Zurlinden et il a repris sa lettre;
 ceci confirme et explique notamment les pièces mêmes
 
 apportées tout à l'heure par M. le ministre de la
-di euerre.
 Sur plusieurs bancs à gauche. — Mais non!
 A droite. — Mais si!
 
 Ni M. Goperroy CAvAIGNAc. — Je vous demande
-_ pardon!
 
 ; Ceci concorde absolument avec les deux pièces qu'a
 … apportées M. le ministre de la guerre, la lettre de
@@ -4752,11 +3837,7 @@ de Pellieux.
 | Donc à ce moment je tire de là, s'il vous plaît de
 
 - tirer des conclusions, je tire cette première conclusion
-k 121
-M:
 
-a A
-+ { AS r ee Le
 Invalidation Syveton RER HET L.
 que, contrairement à ce que M. Jaurès a dit hier, le” FR
 général de Pellieux n'a pas maintenu ce qu'il avait dit 3
@@ -4787,17 +3868,10 @@ droite. — Vives exclamations et protestations à l'ex- i
 tréme gauche) Vous imaginez-vous, messieurs, par NA
 hasard, que je suis ici pour subir vos volontés ?
 M. LE PRÉSIDENT. — Parlez en face, monsieur Cavai- ;
-gnac. 4
 M. GopEFroy CAVAIGNAC. — Je parlerai comme il ]
-"122 2
 | ' #æ s
 
-AS V0 ANSE
-
-AI ES INTERVENTION JAURÈS
-
 à me convient, et puisqu'on nrinterrompt de ce côté, » (l'extrême gauche) je parlerai aux gens qui m'inter3 rompent. (Rumeurs et protestations à l'extréme gauche.
-_ — Bruit)
 
 M. 2e PRÉSIDENT. — Messieurs, vous ne pouvez pas
 empêcher M. Cavaignac de s'expliquer. Il a été appelé
@@ -4834,12 +3908,8 @@ des faits, et je dis qu'il y a un premier point établi,
 (Bruit à gauche) sur lequel, malgré la diversion de
 
 M. le ministre de la guerre, je rappellerai l'attention de
-à. 123
-h
 
-AUD J ; ÿ FE
 Invalidation Syveton ne
-Ë FRITES
 la Chambre : c'est que la lettre adressée par M. le. MS :
 général de Pellieux à M. le général Zurlinden lui a été.
 remise par celui-ci trois jours après; c'est la raison. Ë 2
@@ -4849,9 +3919,7 @@ tant d'importance à ce que cette pièce du dossier, B.
 comme on disait, eût été entre les mains du ministre M
 de la guerre et qu'il l'eût gardée et dissimulée à ‘4
 M. Brisson, ce que M. Brisson n'a pas craint de venir 14
-affirmer faussement ici hier... (Vives protestations à 214
 gauche et à l'extrême gauche. — Applaudissements & 4
-droite. — Bruit) 4
 M. LE PRÉSIDENT. — Vous vous servez d'un mot,
 monsieur Cavaignac, que je ne puis tolérer. 1%
 M. Hexrr Brisson. — Je demande la parole. (Æu- 4
@@ -4869,18 +3937,11 @@ M. le général Zurlinden à dire ici qu'il a gardé cette M
 pièce et qu'elle n'a jamais été au ministère de la guérre. M
 Voilà une déclaration positive et nette. (Applaudisse-
 
-; ments à droite)
 M. CrarLes Bos. — Et le post-scriptum? 4
 M. Goperrox CAVAIGNAc. — J'en viens à la phrase M
 
 qu'a citée M. le ministre de la guerre, à cette phrase
-- 1% Art
 
-A:
-
-di
-
-fie * | INTERVENTION JAURÈS
 dans laquelle M. le général Zurlinden explique que
 … c'est à la suite d'un entretien avec moi que M. le gé-
 « néral de Pellieux aurait retiré sa lettre. M. le général
@@ -4893,7 +3954,6 @@ sa lettre. Mais j'ajoute, pour vous mettre tout à fait à
 …_ M. Jures-Louis Breron. — Vous l'y avez engagée ;
 | tout seul.
  M.1e PRÉSIDENT. — Monsieur Breton, je vous rappelle
-_ à l'ordre.
 M. Gopgrroy CAVAIGNAC. — Je vous dis : ne vous
 … inquiétez pas de la voir vous échapper; ma responsabi-
 … lité, je l'engage devant vous. Je déclare d'abord que je
@@ -4911,9 +3971,7 @@ M: Goperroy CAvVAIGNAC. — Je prends donc nette-
 .… ment aujourd'hui, comme je l'ai prise hier, la responsa- |
 … bilité de tout ce qui a été fait dans cette affaire. (Très
 … bien! très bien ! à droite)
-PAT
 
-Invalidation Syveton & Pa. ‘1
 Et maintenant, messieurs, je réponds à M. J AA, F |
 M. Jaurès a mis ici le parti nationaliste en cause. Il
 a parlé de ces accusations qui ont été portées contrela 4]
@@ -4926,13 +3984,11 @@ Eh bien ! oui, nous nous sommes trouvés au cours de 4
 la dernière campagne électorale, en face de M. Jaurès; 0
 et nous avons dit au pays qu'on l'entraiînait à son insu
 dans une entreprise de désorganisation nationale. F ‘à
-(nterruptions à gauche. — Applaudissements à droite % 4
 et sur divers bancs au centre) Ne |
 M. Jaurès et la majorité nous ont répondu à ce « R::
 moment que la question n'était pas là; que le débat, : 1
 entire nous était purement politique, qu'il s'agissait seu- 1
 _ lement de la défense de la République et du progrès 1
-démocratique. 4 4
 Eh bien! je dis qu'aujourd'hui en engageant, en
 imposant à la Chambre le débat qu'il a apporté ici,
 M. Jaurès s'est chargé de prouver lui-même que c'est 4
@@ -4985,11 +4041,8 @@ entreprise contre l'organisation militaire elle-même.
 3 M. Jures-Lours Breron. — Ce n'est pas clair. (Æxcla_ mations à droite)
 
 _. M. Goperrox CAVAIGNAC. — Puis il a prononcé ici
-à Ë 127
 
-7 x , ee x
 Invalidation Syveton L'ENEEE
-ÉVY AAC Dee
 ï même, à cette tribune, au mois de juin dernier, des
 paroles de reniement national, (Applaudissements sur LS
 divers bancs au centre et à droite) lorsqu'il a dit que ; #
@@ -5007,39 +4060,27 @@ M. Goperroy CAvaiGNAc. — Messieurs, j'entends une 4
 interruption que je relève. %
 Vous voulez, vous, un débat personnel... 2
 M. LE PRÉSIDENT. — Je ne le tolérerai pas, monsieur 4
-Cavaignac… ° #
 M. GopErroy CAvAIGNAC. — Vous n'en avez pas 4
 l'air. (Exclamations et bruit à l'extrême gauche) ‘4
 M. LE PRÉSIDENT. — Je laisse à la Chambre le soin de n
 juger si j'ai défendu le droit de parole de M. Cavaignac.
-(Applaudissements)
 M. GopErroy CAVAIGNAC. — J'ai demandé tout à ‘
 . l'heure — et je répète mes paroles pour qu'elles soient $
 entendues — si vous étiez tous des lâches comme E
 M. Jaurès. (Vives protestations à gauche et à l'extrême
 gauche. — Cris: A l'ordre. — Applaudissements à 2
-droite) D
 M. LE PRÉSIDENT. — Il appartient au président. À
 M. Jaurès. — Je demande la parole... (Très bien! |
 très bien ! à l'extrême gauche) 4
-128 s. |
-
-F PR FF &
-
-Lo DNOUN INTERVENTION JAURÈS
-
-4 HR SN TOR
 
 Laissez-moi dire que je n'ai pas été, que je ne suis
 “ pas et que je ne serai pas dupe de la diversion grossière
 Ÿ de. Cavaignac. Cette provocation préméditée et per-
 | 3 sonnelle que rien dans mes paroles n'avait justifiée,
-k (Applaudissements à gauche. — Exclamations à droite)
 _ et qui est simplement la convulsion désespérée d'un
 (l homme aux abois, ne relève que de mon dédain. (Vifs
 F applaudissements à l'extrême gauche et sur divers bancs
 , à gauche. — Rumeurs à droite et sur divers bancs au
-Î centre)
 j M. LE PRÉSIDENT. — Après la réponse de M. Jaurès,
 —._ je crois que le règlement n'a plus à intervenir. (Mar_ ques d'assentiment)
 | La parole est à M. Cavaignac.
@@ -5047,12 +4088,10 @@ j M. LE PRÉSIDENT. — Après la réponse de M. Jaurès,
 M. Jaurès. — La parole est à M. Cavaignac. (Applau-
 #à dissements à l'extrême gauche. — Exclamations et rires
 
-à droite. — Mouvements divers)
 | A droite. — C'est M. Jaurès qui est dictateur.
 
 M. Le PRÉSIDENT. — J'occupe encore le fauteuil,
 messieurs, et j'ai moi-même donné la parole à
-M. Cavaignac.
 
 M. Goperroy CAvAIGNAc. — Je reviens à ma discus-
 
@@ -5063,8 +4102,6 @@ M. Goperroy CAvAIGNAc. — Je reviens à ma discus-
 d présence d'une entreprise de désorganisation nationale.
 (Applaudissements sur divers bancs au centre et à
 
-droite. — Vives réclamations à gauche)
-
 1 Et lorsque vous prétendez que ce n'est pas l'institu-
 
 4 tion militaire elle-même que vous attaquez, et que vous
@@ -5074,12 +4111,8 @@ briser entre les mains de la France l'instrument qui est
 
 < la garantie de sa grandeur et de sa sécurité, je vous
 
-À 129
-
-Invalidation Syveton DAME. |
 réponds parles paroles mêmes que vous avez pronon- #4
 cées à cette tribune. (Bruit à gauche. — Applaudisse- A]
-È ments à droite) |
 Vous avez dit, il y a quelques jours : ü |
 Et lorsque le pays tout entier, lorsque les honnètes gens. É. |
 du pays tout entier ont vu la profondeur de corruption,
@@ -5087,8 +4120,6 @@ de parjure, de faux, de trahison, et lorsque le pays a pu se 54 |
 dire que cette politique de faux... avait empoisonné la 26
 conscience de l'armée elle-même... ñ
 (Applaudissements à l'extréme gauche et sur divers ‘4
-bancs à gauche) 4
-Applaudissez, messieurs, j'en prends argument. 1
 Ainsi il est bien établi par votre aveu même et par les £.
 applaudissements que la phrase de M. Jaurès vient de |
 recueillir, il est bien entendu que ce n'est pas telle où À
@@ -5109,10 +4140,7 @@ l'extrême gauche.— Applaudissements sur divers bancs î
 à droite et au centre). forte de ce qui a été autrefois
 la grandeur et l'honneur du parti républicain et du parti ÿ
 socialiste lui-même. à
-130 S $
 
-Fi INTERVENTION JAURÈS dE
-… M: Jures-Lours Brerox (Cher). — Vousosez prétendre
 î que votre parti est un parti républicain !
 . A l'extrême gauche. — Vous pouvezlui parler d'honhi À Paurz Consraws (Allier). — Le parti socialiste est
 _ de bonne foi, lui! ide
@@ -5139,9 +4167,7 @@ K m ot « faussement » à l'assertion que j'ai produite hier,
 pa pplaudissements à gauche et à l'extrême gauche)
 Fe A droite. — Il ne l'avait pas.
 £ M. Gopernoy Cavaicnac. — J'applique cette afürM ie + N
-LSREENN
 
-Inovalidation Syveton “FRE
 mation à la phrase dans laquelle vous avez dit que vous
 appreniez — en feignant d'ailleurs de l'apprendre au M
 cours de la séance... (Applaudissements à droite. —
@@ -5154,7 +4180,6 @@ M. Henri Brisson. — Donc il reste acquis que M: Ca- M
 vaignac n'a pas communiqué au Gouvernement dont il 4
 faisait partie la lettre de M. le général de Pellieux. M
 (Applaudissements à l'extrême gauche et à gauche. — 4
-Bruit à droite) ‘14
 
 A droite. — Puisqu'il ne l'a pas eue! 4
 
@@ -5163,7 +4188,6 @@ parole écrite de M. le général Zurlinden, que c'est après à
 une conversation entre M. le général de Pellieux et” :
 M. Cavaignac que M. le général de Pellieux a retiré M
 cette lettre. (Vifs applaudissements à gauche et à l'ex- à
-tréme gauche) 4
 
 M. Gonerroy CAvaAIGNAc. — Je demande la parole.
 (Rumeurs à l'extrême gauche) à à
@@ -5182,7 +4206,6 @@ jamais été au ministère de la guerre. (Applaudissements
 à droite et au centre. — Exclamations à gauche et à ÿ
 l'extréme gauche) 4
 
-FA SES INTERVENTION JAURÈS
 E. M LE GÉNÉRAL ANDRÉ, ministre de la guerre. — Je
 demande la parole. (Applaudissements à gauche et à
 _ l'extrême gauche)
@@ -5200,7 +4223,6 @@ D octuun — C'est à la suite d'un entretien avec M.
 Le Pellieux a retiré sa demande du 3r août 1898.
 nur applaudissements à l'extréme gauche et à gauche)
 pe M. LE PRÉSIDENT. — La parole est à M. Cavaignac.
-(Bruit)
 $ M. GopErroy CAVAIGNAC. — Messieurs, je commence
 par préciser bien exactement ce que j'ai dit hier, parce
 pi j'aicru comprendre parlesinterruptions de quelques-
@@ -5213,26 +4235,19 @@ pi j'aicru comprendre parlesinterruptions de quelques-
 & .M: Gopgrroy Cavarcnac. — Je ne l'ai pas dit du
 tout! (Bruit à l'extrême gauche) J'ai même, afin qu'il
 Le eût aucune équivoque, interrompu M. Jaurès après :
-li 133
-Fo FETES VII
 
-Invalidation Syveton be +744
 qu'il avait repris la parole — et chacun s'en souvient.
 Pour bien préciser quel était le sens de mes déclara- « tions, j'ai dit : « J'ai pris et je prends, je le répète, 1
 responsabilité de tout ce qui a pu être fait au sujet de ”
 la lettre du général de Pellieux. » (Exclamations à l'ex- Ÿ 3
-tréme gauche) ;
 
 Mais, messieurs, je donne lecture du Journal officiel. :
 
 ] ({nterruptions et bruit à l'extrême gauche et à gauche)
 Si vous voulez, nous allons nous reporter à la sténo-
-, graphie. à
 
 M. FRANCIS DE PRESSENSÉ. — Reproduisez-nous votre
-première déclaration. ‘ à
 
-M. Goperroy CAVAIGNAC. — J'irai jusqu'au bout. Si 1
 vous prétendez créer ici une équivoque. ; ë
 
 A l'extrême gauche. — Ne renversez pas les rôles ! l
@@ -5246,10 +4261,8 @@ dire cela ! 4
 M. GoDEFRoY CAVAIGNAC. — Si vous prétendez
 prendre une partie de la pensée d'un homme sans en
 prendre le reste... (Applaudissements au centre et sur
-divers bancs)
 
 M. Gusrave ROUANET. — Il y a simplement deux pas-"
-sages contradictoires.
 
 M. LE PRÉSIDENT. — La tâche des interrupteurs est
 vraiment facile! (Très bien ! — On rit.) f
@@ -5258,14 +4271,11 @@ M. Goperroy CAVAIGNAG. — J'ai dit — et ma déclaration ne pouvait avoir qu'u
 la responsabilité de tout ce qui avait été fait; mais
 comme mes souvenirs remontaient à cinq années, je ne
 
-r 1110 DR RACE NE VU PAR eU EP LAN PET PRO DRE NARNIA CAPOT LEE
 ane, PAR it INTERVENTION JAURES
-RME AS
 _ pouvais pas savoir et je ne savais pas effectivement à
 “re moment-là, si la lettre était parvenue au ministère
 _de la guerre avant ou après mon arrivée.
 —. Voilà les paroles que toute la Chambre a entendues
-LS] P q
 et vous pouvez, messieurs, si cela convient à vos passions politiques, fouiller toute la sténographie ; je vous
 La éfie de trouver une parole de moi par laquelle je
 _ déclare avoir reçu la lettre. (Bruit à gauche) à
@@ -5283,31 +4293,21 @@ M. Maurice Viozcerre. — C'est vous qui...
 —_M. Gonxrroy CAvaIGNAC. — Je répète donc ici quel
 à été hier le sens de mes déclarations et pour répondre
 à ce que vient de dire M. le général André, qui essaie
-4 . . » +
 de tirer une conclusion d'une note de M. le général
 “Zurlinden et qui a reproduit cette note après la déclaration que j'avais apportée, je vais vous lire la lettre
 ton ème que m'a adressée le général Zurlinden:.
 & Monsieur le député.
-À PA
 …_ M. CHarces Bos. — La signature est-elle légalisée ?
-(Æxclamations au centre)
-DS. ‘ Le
 A l'extrême gauche. — Quelle estla date de cettelettre?
-ÿ: & LA RU:
-bre LS
 
-Invalidation Syveton 3
-; à
 M. Goperroy CAvAIGNAC. — Elle est du 7 avril 1903.
 M. ARISnIDE BrrAND, — C'est une lettre de complaisance. (Bruit)
-M. Goperroy CAVAIGNAC. — F
 Monsieur le député, toutes réflexions faites, voici comme
 à mon avis, doit être rétablie l'affaire de la lettre du géné- F.
 ral de Pellieux, demandant sa mise à la retraite, dont on
 a parlé hier lundi, à la Chambre des députés. de
 Aussitôt après la découverte du faux Henry, le général.
 Borius, alors commandant de la place de Paris, le chef :
-. » Je PLES . ÿ
 immédiat du général de Pellieux, est venu me trouver
 dans mon cabinet, aux Invalides, pour m'apporter cette
 lettre du général de Pellieux et appeler mon attention sur M
@@ -5320,7 +4320,6 @@ Zola ; douloureusement préoccupé surtout de la pensée que
 ses enfants pourraient un jour lui reprocher de n'avoir pas
 assez défendu l'honneur de leur nom.
 (Vifs applaudissements sur un grand nombre de
-bancs) ;
 J'essayai de le calmer, de lui demander des explications
 sur les accusations qu'il formulait; mais je ne pus rien en
 obtenir ; et je restai convaincu, — je le suis encore aujourd'hui, — que le général de Pellieux avait cédé ce jour-là à
@@ -5328,23 +4327,16 @@ un premier mouvement de colère et de révolte bien compréhensibles ; et qu'il 
 le calme se fût fait dans l'esprit de cet excellent oflcier,
 qu'il importait d'essayer de maintenir dans l'armée...
 Au centre. — Voilà la vérité !
-M. Goperroy CAVAIGNAC. —
 .… Je conclus en lui disant que je désirais lui donner le
 temps de réfléchir avant de transmettre sa demande ; que
 
-PMR CE ; |
-HÉSCTES F
-HR INTERVENTION JAURES
 _ je garderais sa lettre pendant deux ou trois jours; et
 à qu'ensuite je la lui renverrais par le général Borius, afin
 qu'il puisse agir à tête reposée.
 Ë M. Rmor. — Cette lettre est très honorable pour le
-- général Zurlinden. (Applaudissements)
-d M. Goperroy CAvAIGNAC. — Parfaitement.
 | M. Maurice Durrerz. — C'est ainsi qu'un chef soucieux de ses devoirs doit agir. (Très bien! très bien!)
 . M: Jures-Lours Breton. — Est-ce que vous trouvez
 que cette lettre est honorable pour M. Cavaignac ?
-(Bruit au centre)
 M. Pauz Gureysse. — Alors, monsieur Cavaignac,
 … ce que M. le ministre de la guerre a lu du général Zurlinden serait d'après vous un faux ?
 _ M. Gonrrroy CavalGnac. — Ainsi que vient de le
@@ -5355,18 +4347,13 @@ et si j'avais été saisi de la lettre, j'eusse agi comme lui.
 …  (Interruptions à l'extrême gauche.— Applaudissements
 . au centre et sur divers bancs)
 ÿ M. Arisripe Brranp. — C'est vous qui avez besoin
-d'être couvert ! (Bruit) :
-M. GopErroy CAVAIGNAC. —
 .… Le général Borius fut prévenu, la lettre fut retournée
 … quelques jours après. Depuis, je n'en ai plus entendu
 …. parler, quoique j'aie vu plusieurs fois le général de Pellieux. C'était un homme énergique ; s'il avait voulu main-
 “._ tenir sa demande, rien ne l'en aurait empêché; et régle-
 “  mentairement rien ne s'y opposait.
 H Les états-majors du gouvernement militaire de Paris
-k s 137 VIIL.
-ko
 
-3 4 :
 Inovalidation Syveton He Le
 n'ont pas été mêlés à cette affaire. Il est probable qu'on ne é
 trouvera rien dans les archives. es
@@ -5405,24 +4392,14 @@ J'ai cru hier vous en avoir parlé à vous-même, mon
 ancien ministre; mais j'ai fait une confusion; c'est pour
 une autre affaire, concernant aussi le général de Pellieux...
 
-({nterruptions à gauche)
-
 Mais enfin, messieurs, vous êtes véritablement bien
 extraordinaires ! Vous êtes véritablement bien assurés
-
-2238 é
-
-PEN APE \
-
-‘EAU INTERVENTION JAURÈS
 
 _ devotre mémoire, si vous essayez de tirer argument,
 
 à _ cinq ans après, de ce qu'un homme... (Nouvelles inter-
 
  ruptions sur les mêmes bancs).
-
-À M. Gusrave RouaAneT. — Dix mois après.
 
 | M. Gopgrroy CAvarGnac. — De quelle date est la
 
@@ -5443,11 +4420,7 @@ que cela prouve ? Cela prouve que M. le général Zurlin-
 
 . aujourd'hui que cette interprétation a donné lieu à une
 
-- confusion. (Bruit à gauche)
-
 À M. Ursceur. — Ses souvenirs étaient plus exacts il
-
-_ yaquatre ans.
 
 M. GopErroY CAVAIGNAC. — Je termine la lettre.
 
@@ -5456,8 +4429,6 @@ L C'est pour une autre affaire concernant aussi le géné-
 … ral de Pellieux, que j'ai prié un autre ministre, peut-être
 
 . M. Krantz, de faire venir cet officier général dans son
-
-cabinet.
 
 # Je vous autorise à faire de cette lettre à la tribune de
 
@@ -5479,16 +4450,10 @@ choses se sont passées. Quel intérêt cela a-til puisque
 
 L venu me trouver, j'aurais fait précisément ce que vous
 
-à
-
-k 139
-
-Invalidation Syveton ‘7
 pensez pouvoir me reprocher d'avoir fait ? (Applaudis- É
 sements à droite et sur divers bancs) Quel est done Pin- 7
 térêt de ce débat ? Que cherchez-vous à faire? Vous -°
 cherchez ici à créer des équivoques. ({nterruptions à È
-gauche) 4
 Quel intérêt cela a-t-il que les choses se soient pas M
 sées d'une façon ou d'une autre, que M. le général Zur- k
 linden ait fait iui-même ce qu'il's'honore d'avoir fait, à
@@ -5504,7 +4469,6 @@ celle de M. le général Zurlinden. (Vifs applaudissements j
 à droite et sur divers bancs) 4
 M. LE PRÉSIDENT. — La parole est à M. Lasies pour
 une demande d'ajournement de la discussion. {
-M. Lasres. — Messieurs, j'aurais peut-être renoncé à
 prendre la parole dans ce débat malgré ce que je pourrais appeler, sans avoir d'intention blessante contre
 lui, les provocations de M. Jaurès ; jusqu'au dernier
 moment j'avais pensé que le Gouvernement, soit par
@@ -5514,18 +4478,10 @@ pour le repos du pays de réveiller cette affaire qui Pa
 si longtemps divisé... ({nterruptions à gauche) et qu'un
 gouvernement soucieux de ses devoirs n'aurait pas dû
 permettre de réveiller ici. (Applaudissemenis à droite.
-— Interruptions à gauche)
-‘+ 140
 
-+ 9 hi 0 ESS ” 11 CS
-UNE |
-H” : Es LES
-
-( CE a RASE INTERVENTION JAURES
 “ M. Gustave Rouaxer. — C'est la commission d'en_ quête qui a commencé !
 4 M. Riomreau, président de la commission d'enquête.—
 __ Je demande la parole.
-% M. Gustave Rouaner. — Trop tard!
 4 M. Maurice Viozretre. — C'est M. Beauregard qui Û
 $ a réveillé l'affaire.
 ; M. Gusrave Rouaner. — Il ne fallait pas accepter le
@@ -5552,12 +4508,8 @@ iG M. Lasres.— … et déclarer qu'il allait se faire l'auxi-
 …  … liaire, je ne veux pas dire le complice, de ceux qui veu-
 -_ lent renouvelerl'agitation de l'affaire Dreyfus. (Applaudissements à droite et au centre. — Bruit à gauche et à
 ï l'extrême gauche)
-À 141
-
-(NS FA
 
 | l'ANPE
-Invalidaticn Syveton TS
 M. Henrr Micez (Bouches-du-Rhône). — De ceux à
 qui veulent la lumière et la vérité. 5h
 M. LAMENDIN. — Ce n'est pas un ministre qui dit des 4
@@ -5575,24 +4527,16 @@ M. LE MINISTRE DE LA GUERRE. — Vous allez sans
 doute nous lire une correspondance qui vient de Paris.
 (Applaudissements et rires à gauche)
 M. Lasres. — Je ne comprends pas la portée de votre
-interruption.
 Écoutez cet article du Reichswehr, de Vienne, n° 1834,
 en date du 14 mars 1899. Je ne sais si c'est une correspondance de Paris; c'est l'écho de l'étranger que j'apporte ici pour qu'il reste dans votre conscience et que
 vous preniez vos responsabilités. (Très bien ! très bien! :
-à droite)
 Le rempart de la patrie élevé par un patriotisme ardent
 et grâce à d'immenses sacrifices pécuniaires s'effondre
-lamentablement.
 Grâce à l'Affaire, l'organisme de l'armée française est
 atteint de consomption incurable, un abîme s'est creusé
 entre l'armée et la nation où se sont engloutis avec d'innombrables milliards l'orgueil et l'espérance de ia France
 — sa foi dans sa puissance militaire. |
-‘142 ÿ
 
-L 0 in { VF s
-60e VAS
-RARES A :
-Dr ER ME INTERVENTION JAURÈS
 M Chacun est maintenant libre de couvrir de boue et d'injure l'armée française qui seule maintient ce pays au rang
 _ de grande puissance.
 % En face de ces maux, un gouvernement qui n'est jamais sûr
@@ -5604,38 +4548,27 @@ Aucune armée au monde ne saurait demeurer saine et
 : vigoureuse dans de telles conditions. Et une armée aussi
 | foncièrement nationale que l'est l'armée française, ne peut
 _ que succomber à la contagion. :
-4 . . . NE
 ; L'armée française a subi un Sedan intérieur dont la
 # répercussion sera plus profonde et plus durable que celle
 E de la catastrophe du premier septembre 1870, car une défaite
 | sur le champ de bataille peut bien être le plus terrible
 | coup de la fatalité, mais ce n'est point une honte indélé-
-bile.
 ; Mais le Sedan intérieur que la campagne dreyfusarde a
 infligé à La France est une défaite sans espoir ni ressource.
 _ ny a plus de relèvement possible, car vous avez volon-
 É tairement détruit la seule chose qui l'eût permis : la disei__  pline.
-“ : (Applaudissements à droite.— Interruptions à gauche
 L: et à l'extrême gauche)
 # Voilà l'œuvre à laquelle vous voulez coopérer, mon_ sieur le ministre de la guerre.
 À M. LE MINISTRE DE LA GUERRE. — Pas le moins du 1
-€ monde !
 : M. Lasres. — Il aurait suffi d'un mot, lorsque M. Jau-
 Ë .  rès est venu dire ici — et il était dans son rôle — que
 4 Vétat-major prussien avait rappelé l'état-major fran-
 à çais au devoir et à la conscience. Vous n'auriez pas dû
-à à .
 …. laisser passer une pareille parole sans protester. (4p-
-È plaudissements à droite)
 
 4 - 143
-INSEE
-(24 F "3
 
-{ THERE
-Invalidation Syveton Mb.
 M. GusrAve RouUANET. — Il n'a pas dit cela! C'est à
-inexact! (Si! si! à droite) Gt A
 M. Lasres. — Je sais bien, monsieur le ministre, que 4
 vous avez dit qu'avant tout vous vouliez la lumière et 4
 la vérité. :
@@ -5644,7 +4577,6 @@ applaudissent et vous soutiennent. La lumière et ia
 vérité ce sont de bien belles choses, mais la France, $
 qu'en faites-vous dans tout cela, monsieur le ministre? à
 (Applaudissements à droite et sur divers bancs. —
-Bruit à gauche) é
 La lumière ! La vérité! Vous osez venir dire quevous . ;
 allez marcher avec ceux qui les réclament! Eh bien,
 moi, je veux me défendre contre les accusations portées contre tout mon parti par M. Jaurès. M. Jaurès |
@@ -5660,22 +4592,17 @@ ils sont chez vous. (Applaudissements à droite) 4
 M. Jures-Louis BRETON. — Vous l'avez dit, mais àl
 fallait le démontrer.
 M. Lasies. — J'avoue que j'ai eu un moment d'inquié-
-tude.
 M. Henri Micuez (Bouches-du-Rhône). — Monsieur
 Lasies, vous avez raison si par « faussaires » on entend
 ceux qui dénoncent les faux.
 M. Lasres. — Monsieur Michel, je vous remercie de
 
-à + ‘ | |
-HN E D 1
-CM ENaER INTERVENTION JAURÈS
 « l'interruption que vous m'adressez, avec l'autorité qui
 _ s'attache à votre nom dans votre parti. Vous venez nous
 . dire que vous êtes le parti de la vérité parce que vous
 _ êtes ceux qui dénoncent les faux. Mais qui donc a
 dénoncé le faux que vous nous reprochez, si ce n'est
 _ celui que vous attaquez si violemment aujourd'hui?
-. (Applaudissemenis à droite)
 … M. Gusrave RouaANer.— Il était dénoncé avant.
 _ M. Lasws. — Permettez-moi de préciser, monsieur
 Rouanet, les faits que j'apporte à cette tribune ; je n'en
@@ -5696,8 +4623,6 @@ k acquitter. Vous n'en parlez pas de celui-là? Je viens
 
 vous rafraîchir la mémoire. { Applaudissements à
 
-droite)
-
 M. Vazerze. — De quel faux parlez-vous ?
 
 M. Lases. — M. Jaurès, pour étayer sa discus-
@@ -5709,12 +4634,6 @@ une parole prononcée par notre honorable collègue
 
 M. Millevoye, dans une réunion publique à Suresnes.
 
-‘ i, IX
-
-FRA
-
-pe ‘FER
-Invalidation Syveton Frs CR
 Eh bien, je dis à M. Jaurès : MCE.
 Il y avait d'autres documents que vous pouviez cor- “4
 sulter; il y avait d'autres documents que les journaux
@@ -5724,7 +4643,6 @@ cours de l'affaire Dreyfus. Et vous, qui êtes si soucieux 3
 de la lumière et de la vérité, vous auriez vu, en lisant « ces débats, qu'il subsiste des points obscurs sur lesquels,
 nous, nous avions voulu porter la lumière. Cette M
 lumière, vous l'avez étouffée, de complicité avec le
-Gouvernement. (Applaudissements à droite) 4
 M. Henri Micuez (Bouches-du-Rhône). — Faitesla;
 nous ne demandons pas mieux. 4
 M. Lasies. — Certes, nous n'aurions point parlé de
@@ -5745,8 +4663,6 @@ vous ne la voulez pas et vous la redoutez, je vais vous
 le prouver. Et votre ministre qui se met à votre dévotion
 
 + jrs Vie INTERVENTION JAURES
-
-713 : RE vi
 
 | pour accomplir cette triste besogne ne la veut pas
 
@@ -5796,8 +4712,6 @@ S RS commandant Cuignet, M. Jaurès aurait vu que vous
 
 me vouliez pas de la lumière que le commandant Cui-
 
-rt re PAST SNL EURE D LT OMS UT PR ONE PERS +
-Inovalidation Syveton MAS EL
 gnet vous proposait de faire. Sa franchise vous fit peur, ne
 et vous avez reculé devant elle. RU 8
 M. Jaurès est venu nous lire un document qu'il déclarait inédit et qui devait nous écraser, c'est cette lettre M
@@ -5808,14 +4722,12 @@ dans aucune rédaction, qui était mon secret à moi tout ï
 seulet dont je n'ai point jusqu'ici voulu parler. C'est
 vous qui ny avez obligé. Oui, pour me défendre, je
 veux vous attaquer. J'en ai assez! (Applaudissements à |
-droite) : È
 Ce document, il faut que ce ministre l'entende; ce )
 ministre qui a dit à la tribune, pour vous flatter, qu'il F
 voulait favoriser la découverte de la lumière, (Applau M
 dissements sur les mêmes bancs) ce ministre qui songe ,
 bien plus à son rôle de politicien qu'à son devoir de
 soldat. (Nouveaux applaudissements sur les mêmes
-bancs. — Vives réclamations à gauche) s
 M. LE PRÉSIDENT. — Monsieur Lasies, je vous invite É
 à surveiller vos paroles. ÿ
 M. MaRrcEL Sempar. — C'est un système de provoca- ÿ
@@ -5823,7 +4735,6 @@ tions calculées et que vous ne pouvez pas laisser conti- M
 nuer, monsieur le président. û
 M. LE PRÉSIDENT. — J'avertis monsieur Lasies qu'il
 s'engage dans une voie où je ne pourrai pas le laisser
-continuer. à
 M. Lasres. — Monsieur Sembat, je vous afiirme qu'il
 n'y a rien là de calculé. Je veux arriver à la fin de ma
 discussion. Je viens de dire toute ma façon de penser. Si
@@ -5831,7 +4742,6 @@ ma pensée a revêtu une forme trop vive, je le regrette,
 et je tâcherai à l'avenir de modérer mes expressions.
 |. 148
 
-4 0 INTERVENTION JAURÈS
 4 IA fant que ce ministre entende comment il vous
 … aidera à faire la vérité; il faut que vous sachiez ce qu'il
 F a fait lorsqu'il pouvait la découvrir.
@@ -5843,7 +4753,6 @@ F a fait lorsqu'il pouvait la découvrir.
 k Qu'a fait ce ministre de la guerre ? Comme je le
 disais, il a jeté cet officier dans des oubliettes, il l'a mis
 Y au Mont-Valérien pour le bâillonner, l'empêcher de
-_ parler.
 Mais il s'est trouvé qu'à travers les grilles de la prison une parcelle de vérité a pu m'arriver. Je n'ai pas
 voulu la publier alors ; mais maintenant vous m'y obli-
 . gez; vous en porterez la responsabilité. (Applaudisse_ ments à droite)
@@ -5860,9 +4769,7 @@ eût été plus intéressant que le récit de la réunion pu-
 « . blique donnée par M. Millevoye à Suresnes ou que la
 lettre du général de Pellieux. Il aurait dû consulter les
 à comptes rendus de nos débats ; il y aurait vu qu'il est
-1e 149
 
-Invalidation Syveton ‘1/00 ss
 des points où il fallait porter la lumière; et peut-être
 < alors M. Jaurès, homme indépendant, aurait été avec 4
 nous pour vous demander de la faire. ray T TER
@@ -5883,7 +4790,6 @@ cette lettre : 4
 Mon cher ami, l: :
 Je lis dans la presse de ce matin que des efforts sont 4
 faits en vue de faire croire qu'il n'y a rien dans l'affaire BE.
-Cuignet. À
 En réponse à cette insinuation, voulez-vous simplement
 faire connaître ce qui suit : À
 La dépêche Panizzardi contient l'aveu formel de la culpa |
@@ -5893,20 +4799,13 @@ j'ai été le premier et le seul à le faire, il s'est produit un
 véritable affolement dans le camp des défenseurs de Dreyfus. On s'est adressé à l'étranger pour obtenir des argu- M
 ments : et le concours de l'étranger a été payé par un acte #
 de trahison commis par des Français contre la France. 4
-(Mouvements divers) 3
-PPT, ex d à J
 
-Cr 1 ANUS
-NN | | INTERVENTION JAURÈS
-ACTE FAST
 | ORDRE A'ARS
 he Mais on s'est efforcé de me faire revenir sur mon témoi-
 …_ gnage et on a employé successivement à cet effet la tenta-
 ‘tive de subornation, la menace sous condition et enfin le
-_ faux. :
 ÿ M. FERNAND ENGERAND. — Il est indispensable que
 - lé commandant Cuignet soit entendu; un gouvernement
-ÿ 1 2
 - ne peut rester sous le coup d'aussi graves accusations.
 : M: Lasres. — Vous me direz : Mais le conseil de
 - _ guerre de Rennes a eu lieu, la cour de cassation, toutes
@@ -5928,16 +4827,12 @@ et maintenant on recommence à agir sur moi; des essais
 Rennes et pourquoi je veux parler maintenant. Qu'on ne
 dise pas qu'il n'y a rien dans l'affaire ; il y a crime de faux,
 crime de forfaiture, crime de trahison, sans compter le
-reste.
 Ah ! s'il n'y a rien dans l'affaire Cuignet, pourquoi ne pas
 me confondre ? Ce serait si facile! On me jette en prison,
 . onme traite, par ordre du Gouvernement, de façon humi-
 … liante; on m'a appliqué le régimeréservé aux officiers punis h
-a
-À 151
 #
 
-Invalidation Syveton NS
 d'arrêts de forteresse pour dettes. Il a fallu mes protesta- ‘4
 tions pour faire cesser ce régime. 4
 
@@ -5946,10 +4841,6 @@ arraché le bâillon que depuis deux ans on tient serré sur M
 ma bouche. Je parlerai et les honnêtes gens de toute opi- 1:
 nion et de tous les partis jugeront et, j'en suis sûr, parta- à
 geront mes conclusions. 120
-
-Signé : CUIGNET 4 :
-
-(Applaudissements prolongés à droite) F 4
 
 M. FERNAND ENGERAND.— Voilà le langage d'un Fran-
 çais : le pays l'entendra! Le ministre de la guerre lais- 1
@@ -5965,7 +4856,6 @@ a signé un procès-verbal par lequel il a déclaré recon-, f
 naître l'authenticité absolue de la dépêche Panizzardi 1
 et retiré toutes les articulations qu'il avait proférées à
 contre elle. (Applaudissements à l'extréme gauche et à ï
-gauche)
 
 M. Lasres. — Messieurs, ne vous hâtez pas d'applaudir. M. de Pressensé, avec une bonne foi à laquelle je é
 rends hommage, vient de commettre une bien grande
@@ -5976,12 +4866,7 @@ sur l'affaire Panizzardi; mais ce procès-verbal n'était
 pas seul; j'ai redemandé la parole et j'ai dit à M. Del
 cassé : Pourquoi lisez-vous des pièces tronquées, vous,
 
-‘TD
-k
-
 |
-
-- HT ENS INTERVENTION JAURÉS
 
 ‘4 ministre des affaires étrangères? Ah! vous venez nous
 
@@ -6034,27 +4919,15 @@ de Panizzardi? (Vifs applaudissements et rires à l'ex-
 
 _ trême gauche et à gauche)
 
-; 153 5e
-
-Riasn
-
 4 ‘a té Hi. ati ee 2 MAUE 6 Pa Née jan on à PE ALAN ne 5. fn. PRAALN EC L
-ù > LE 1} 24 Va ROSE
-LES RER ENS
-Inpalidation Syveton LISE
-e LEE 0
-‘ RUE.
 M. Jures-Lours BreroN. — Vous avez tort de parler.
 de l'affaire Dreyfus, monsieur Lasies, vous n'en con
 naissez pas le premier mot. 4
 M. Lasres. — Il y aici une question debonnefoipour
-. . nm:
 nous tous et il faut que les explications soient claires 4
 et nettement données. Voici les pièces auxquelles je
-fais allusion. é ns S #
 Voici le premier procès-verbal signé par M. le général M
 Chamoin, M. Paléologue et M. le commandant Cuignet:
-Paris, le 27 avril 1899 "
 Par ordre de M. le premier président de la cour de cassa= M
 tion, les soussignés : | 4
 MM. le général Chamoin et le commandant Cuignet, délé- à
@@ -6062,7 +4935,6 @@ gués du ministre de la guerre, ,
 D'une part,
 M. Paléologue, secrétaire d'ambassade, délégué du ministre
 des affaires étrangères,
-D'autre part, 4
 se sont réunis le 27 avril 1899, dans le cabinet de M. le premier président, à l'effet de procéder au déchiffrement du M
 ù décalque du télégramme du 2 novembre 1894, signé Pa- ;
 nizzardi, tel qu'il a été remis à M. le premier président de
@@ -6075,13 +4947,8 @@ fait ressortir le texte suivant :
 il serait bon de charger l'ambassadeur de publier un démenti
 officiel, afin d'éviter les commentaires de la presse. » #
 En foi de quoi, lesdits délégués ont signé le présent procès-verbal.
-Signé : Général CHAMoOIN.
-Commandant CuIGNer.
-PFALÉOLOGUE.
 
-DU ATS 30 INTERVENTION JAURÈS
 ALT le, WG RES à
-EUR UT DATE x “ ï }
 fs à Mais lorsqu'on a communiqué aux deux premiers
 - signataires de ce procès-verbal, ce décalque...
 ._ M. FraNars DE Pressensé. — En chiffres!
@@ -6089,11 +4956,9 @@ fs à Mais lorsqu'on a communiqué aux deux premiers
 —_ n'était pas en chiffres; on n'envoie pas de télégrammes
 avec une adresse en chiffres. (Très bien! très bien! sur
 …. divers bancs. — Interruptions à gauche et à l'extrême
-À _ gauche)
 4 _ Veuillez me laisser achever ma discussion qui n'est
 pas aisée; donnez-moi toute facilité à cet égard.
 Vous nous dites que ce n'était que des chiffres; mais
-È
 les réserves portent sur Le texte de l'adresse et sur la
 . signature, non sur les chifires.
 À Voici d'ailleurs le procès-verbal qu'a refusé de signer
@@ -6106,20 +4971,13 @@ _ ontopéré le déchiffrement du télégramme du 2 novembre
 1894 en présence de M. Paléologue, sur une copie conforme
 … au calque de l'original déposé au bureau de la rue Mon-
 - taigne par le lieutenant-colonel Panizzardi, ou par son
-_ ordre.
 a Ce calque a été remis à la cour par l'administration des
 _ postes et télégraphes. Il est signé: Panizzardi.
 k, L'examen de l'écriture, texte et signature, a permis de
 _ reconnaître que ladite écriture n'est pas de la main de Pa-
 | nizzardi.
 … Les soussignés ont fait part de cette constatation à M. Paléologue.
-“4 ; Signé : Général CHAMoIN.
-= Commandant CuIGner.
-FR 155
-CT
-CT a MON
 
-- Invalidation Syveton LFAE
 Non! nous ne voulons pas nous laisser traiter departi M
 des faussaires. Lorsqu'il y a eu un faux commis parmi
 les nôtres, il a été immédiatement dénoncé et puni. Il a % 4
@@ -6139,22 +4997,16 @@ la guerre d'alors: La pièce que vous avez lue à la tri Ê
 bune est un faux, le ministre de la guerre qui, prévoyant 4
 cependant tous les tracas que cette découverte provo- $
 querait, sans hésiter un seul instant. 4
-M. Jures-Louis BRETON. — Quinze jours après. ù
 M. Lasres. — … A puni le coupable, tandis que lorsque le commandant Cuignet a découvert le faux Panizzardi, qu'a fait le ministre de la guerre, général André ?
 I1la fait enfermer au Mont-Valérien. La voilà, votre |
 justice! Le voilà, votre amour dela vérité ! (Applaudissements prolongés à droite et sur divers bancs)
 M. Mausaw.— Le ministre de la guerre d'alors n'était
 pas le général André.
 M. Ferxaxp EnGEranD. — Mais si! ces faits se sont
-passés en décembre 1900.
 à M. Lasres. — Monsieur Maujan, quand vous serez
-:$ 150
 
-: WE INTERVENTION JAURÈS
-+ E, DUMP
 4 © ministr e de la guerre et que je vous interpellerai, vous
 “à TA mn e ré pondrez. (Très bien ! très bien! à droite. — Inter- !
-.  ruptions à gauche)
 n_ En attendant, laissez-moi continuer.
 “ Autre fait plus grave, monsieur le ministre de la
 1 + guerre : lorsque le commandant Cuignet est sorti du j
@@ -6167,7 +5019,6 @@ bien ! très bien ! à droite)
 18 tairez : si vous ne vous taisez pas, je trouverai bien le
 j 4 moyen de vous empêcher de parler.
 ‘4 Voilà ce que vous avez dit au commandant Cuignet!
-…  (Applaudissements à droite)
 L.- - M. FernanD ENGErRAND. — Monsieur le ministre de la
 |_ guerre dément-il ce fait?
 1 de _ M. LE MINISTRE DE LA GUERRE. — Messieurs, il est abso-
@@ -6181,11 +5032,6 @@ Ne bancs au centre) Je ne me rappelle pas si la peine dont
 x Le _ M. FernanD ENGERAND. — Je vous répète qu'elle a
 : 0 été infligée par vous, monsieur le‘ministre !
 5 M. Camuze KRANTz. — Je demande la parole. (Bruit
-Ù prolongé ;)
-w À;
-
-Invalidation Syveton M.
-. s NT
 
 M. Lasres. — Je ne puis pas suivre la discussion au : “4
 milieu de toutes ces interruptions. 210
@@ -6199,7 +5045,6 @@ bien me la laisser achever sans m'interrompre, j'ai fini L
 dans quelques instants. ‘à
 
 M. LE PRÉSIDENT. — Monsieur Krantz, M. Lasies de- F
-mande à continuer. c |
 
 M. Lasres.— M. le ministre de la guerre me reproche ‘
 de lui adresser une interpellation. Mais depuis deux
@@ -6220,15 +5065,10 @@ neur de l'armée, vous n'auriez jamais dû, vous, leur h
 tendre la main. (Applaudissements sur les mêmes bancs) Le
 Ils ont jeté l'accusation contre nous tous ; nous nous
 défendons. Vous êtes de leur côté; c'est votre affaire, s
-général André.
 
 M. Jaurès nous a dit que nous renïions les nationalistes ; non, nous ne les avons pas reniés; et il faui lui
 rendre à lui-même cette justice qu'il ne renie pas les
 
-158 À
-
-? PCM * LAN à l pr 4 Qu
-à d'A INTERVENTION JAURÈS
 | éer ts de ses amis. Quand, à la tribune, nous avons lu
 | des libelles disant aux jeunes soldats qu'il n'y avait
 D: plus de patrie, plus de drapeau, qu'il fallait déserter la
@@ -6249,7 +5089,6 @@ k idée de patriotisme ? (Protestations à gauche et à l'ex-
 … trême gauche) Je n'irai pas jusque-là, convaincu du
 3 - reste, que le patriotisme est au-dessus de leurs attaD ques.
 M. Marcez SEMBAT, ironiquement. — Vous êtes trop
-modéré.
 % M. Lasres. — Je n'ai posé qu'un point d'interrogation. ({nterruptions à l'extrême gauche) Laissez-moi
 3 achever. Si vous ne voulez pas aller jusque-là, il est
 facile de démasquer votre but caché: il y a une ques3 tion qui est liquidée, c'est la question des congrégations.
@@ -6257,10 +5096,7 @@ facile de démasquer votre but caché: il y a une ques3 tion qui est liquidée, 
 accompli la première partie de votre programme, mais
 É É: à présent vous vous trouvez en face de votre programme
 Re économique et comme vous ne voulez pas l'exécuter,
-EPS
-$ mate:
 
-Invalidation Syveton PE < 1 |
 vous cherchez une diversion dans l'affaire Dreyfus. j 4
 (Applaudissements à droite et sur plusieurs bancs au ‘4
 centre. — Exclamations et interruptions à gauche)  :
@@ -6274,7 +5110,6 @@ n'en voulait pas et alors pour faire diversion, commeül 4
 n'y a plus de moines et qu'il n'y aura bientôt plus de |
 curés, vous avez tenté Ge ressusciter l'affaire Dreyfus;
 voilà la vérité. (Exclamations à gauche et à l'extrême À
-gauche. — Applaudissements à droite) Ê
 Et je dis à M. Jaurès: Vous et vos amis, de compli- i
 cité avec le Gouvernement actuel, vous trompez les à
 masses ouvrières ; vous ne voulez pas exécuter le pro: “|
@@ -6291,18 +5126,15 @@ Non, vous ne voulez pas qu'on se trouve en face de
 vos programmes économiques parce que le Gouvernement que vous soutenez, qui vous tient, ne veut pas de L
 ces réformes économiques... à
 M. Pauz Consraxs. — Nous verrons si vous les vo- s
-terez. À
 
 | LEA
 
-LUS 7 En INTERVENTION JAURÈS
 5 ta HAT LLases. — …ettoutes ces forces vives du socialisme,
 
 | que vous égarez, vous voulez les jeter aux pieds du
 4 veau d'or et les enchaïîner derrière un juif millionnaire.
 
 k: | (Applaudissements à droite. — Interruptions à l'ex-
-“4 _ trême gauche)
 
 is Moilà ce que j'ai voulu dénoncer et je le résume d'un
 mot. Le parti des faussaires, dites-vous ? Quand il y a
@@ -6343,7 +5175,6 @@ D. ce n'est pas un élève des jésuites cependant; c'est un
 
 De fils du peuple, un élève de l'Université. (Vifs applaudis-
 
-Invalidation Syveton RER
 sements à droite et sur divers bancs) Vous avezété sans T4
 pitié pour lui, monsieur le ministre de la guerre, parce
 qu'il a découvert que les faussaires étaient du côté de D.
@@ -6353,14 +5184,12 @@ ques à l'extrême gauche) 1540
 On a accusé vos prédécesseurs d'être les chefs des. ‘7
 faussaires de l'état-major ; vous, monsieur le général 4
 André, vous êtes le chef des faussaires de je ne sais 4
-quel groupe politique. (Rumeurs à gauche) "4
 
 M. LE PRÉSIDENT. — Monsieur Lasies, je ne peux pas #
 laisser passer un pareil langage.
 
 M. Lasies. — Voilà dans quel parti et dans quelle
 cause vous allez ternir vos étoiles de général. (Bruit
-prolongé) n
 
 M. LE PRÉSIDENT. — Véritablement vous abusez ! ; |
 
@@ -6390,16 +5219,13 @@ M. Francis DE Pressensé. — Messieurs, M. Lasies a
 - 162
 
 , * SA pe MG Aer LETTRE ML LL NES 171} HAE
-MARRON 00 INTERVENTION JAURËS ê:
 
 | déclaré que le parti des faussaires n'était pas le parti K
 
 | qui avai compté dans ses rangs l'auteur du faux
 
-__ A droite. — À demain! à
 ee. M. ze PRÉSIDENT. — M. de Pressensé a la parole, je
 E | vous me prétendez pas la lui enlever, j'imagine. (A Ki
-- gauche: Parlez! parlez!) +
 à FA Â2s M. Francis pe PRESSENSÉ. — … mais que c'était notre
 ne parti pare que d'après notre collègue, la dépêche È
 x _Panizzardi est un faux.
@@ -6429,9 +5255,6 @@ F: ‘ai M: Francis DE PRESSENSÉ. —. de la dépêche Paniz- é
 …. M: Fernanp ENGERAND. — Celui-là l'était, vous prou-
 “ . vez donc que c'était un faux.
 … M: Lasres. — Je demande la parole.
-
-“ | Vis OR
-Invalidaiion Syveton Menu.
 
 M. FRANCIS DE PRESSENSÉ. — … que jamais onp'amis
 autre chose qu'un sceau de nature à faire reconnaître.
@@ -6474,7 +5297,6 @@ débat ; seulement on nous a convoqués à la bataille;
 _ je vous ai répondu que nous serions présents. Vous
 . voulez que nous nous battions, battons-nous ! Vous
 | verrez qui remportera la victoire. (Applaudissements à
-droite ctaucentre)
 à M M. de Pressensé vient de nous dire qu'en 1894 on
 Ê ‘à - avait entendu parler de la dépêche Panizzardi; je sais
 Se: bien qu'il circulait des versions multiples. C'est pour
@@ -6489,20 +5311,16 @@ prétend prouver que la dépêche Panizzardi est un faux.
 À Hi vous, monsieur de Pressensé, qui êtes un homme de
 … bonne foi, au lieu de nous combattre, vous devriez vous
 Da unir à nous... (/{nterruptions à gauche et à l'extrême
-16 gauche)
 … M. Maurice Viozcetrte. — En tout cas, c'était en
 
 “4 M. Francis DE PREssENSé. — C'est nous qui deman-
 . dons l'enquête, monsieur.
 _ M. Lasres. — Alors vous demanderez qu'elle porte
 | aussi sur ces faits et que le commandant Cuignet soit
-entendu?
 Fa M. FRANCIS DE PRESSENSÉ. — Nous demandons qu'elle
 ia porte sur tout.
 …__ M. Lasræs. — Nous y apporterons chacun notre con44 tribution en faisant connaître ce que nous savons.
 —. M. de Pressensé a dit que le commandant Cuignet et
-he. 165
-AMEN
 
 Invalidation Syveton LE SERIES
 le général Chamoïin avaient reconnu l'exactitude du È
@@ -6535,7 +5353,6 @@ officielles classés par jour sont enliassés par mois et
 conservés indéfiniment dans les archives ». (Très bien!
 très bien! à droite)
 M. FraANGIS DE Pressexsé. — Un télégramme adressé
-- 166 F”
 
 ï sa 4 INTERVENTION JAURÈS :
 Pa D énément italien n'est pas une dépêche ofliee. È M. Lasres. — On entend par là les télégrammes offi__ ciels émanant des agents diplomatiques. À
@@ -6546,11 +5363,9 @@ N M. Lasres. — Par conséquent le Gouvernement que
 7 Dreyfus de sa protection, a commis un premier menRe songe en disant qu'il n'avait pas l'original de la dépêche
 …. Panizzardi parce qu'il s'était conformé au règlement
 … pour la détruire; c'est là un premier mensonge et nous
-en reverrons d'autres.
 4 Lorsque M. Charles Dupuy, alors président du conseil,
 1 a fait parler le commandant Cuignet, il lui a dit: « Voici
 14 Voriginal de la dépêche Panizzardi que vous réclamez
-_ depuis si longtemps. »
 “Le commandant Cuignet prit entre ses mains le dé- Ù
 mu. calque que lui tendait le président du conseil, il l'exa-
 à mina avec soin.
@@ -6567,7 +5382,6 @@ __ zardi? Et tenez, ajouta M. le président du conseil, voyez
 _ à la française. »
 …_ M. le commandant Cuignet a dit à M. Dupuy, devant
 M. de Freycinet, ministre de la guerre : Cette pièce est
-\1 TR
 
 Inpalidation Syveton ES APE De
 un faux, l'écriture n'est pas de Panizzardi, j'ai ici dans < ue
@@ -6585,13 +5399,11 @@ M. FERNAND ENGERAND. — La commission de la cour
 de cassation n'a-t-elle pas reconnu que ce décalque M
 était un faux ? Il serait intéressant d'avoir sur ce È
 point le témoignage de M. Mazeau et celui de M: de è 1
-Freycinet. 4
 M. Lasres. — Par conséquent, jusqu'à ce que la
 lumière soit faite, c'est vous qui êtes les faussaires, et |
 si vous voulez vous laver de cette accusation, il faut, |
 que vous fassiez comparaître le commandant Cuignet. ]
 (Applaudissements à droite et sur divers bancs au |
-centre) U
 M. FRANCIS DE PRESSENSÉ. — J'ai appartenu moi-même …
 à la diplomatie pendant un certain temps. Chiffreur L
 dans une ambassade, j'ai été constamment chargé de È
@@ -6602,12 +5414,8 @@ militaire de France à Constantinople, elle n'en aurait
 pas moins été authentique, puisque c'était moi le chitfreur, et on aurait pu dire que ce n'était pas l'écriture
 de l'attaché militaire de France. Si vous vous fondez
 sur des suppositions pareilles, vous avez tort et vous
-° .168
 
-" RE AE | INTERVENTION JAURÈS
-AIN L »
 D: trahissez une complète ignorance des choses de la
-_ diplomatie.
 - D'ailleurs permettez-moi de vous faire observer que
 - sila traduction de la dépêche de 1894 a été faussée —
 _ ce qui est absurde — ce n'est pas par M. Delcassé, qui
@@ -6617,9 +5425,7 @@ M. Hanotaux, qui ne vous est pas, je pense, suspect.
 -_ connue authentique par le service des renseignements
 . lui-même, et vous ne pouvez avoir, sur ce point, rien de
 sérieux à alléguer contre elle. (Très bien! sur divers ?
-bancs à gauche)
 M. GEORGES GRrosEan. — Le chiffre du colonel Pa_ nizzardi lui était particulier ; il n'était pas celui de :
-_ l'ambassade. -
 A gauche. — Comment le savez-vous ?
 \ M: GEORGES GROSJEAN. — Par les documents. Je
 F pourrais relater à cette occasion ur incident fort grave
@@ -6633,27 +5439,19 @@ c'est le chiffreur de l'ambassade qui est chargé de chif-
 sur divers bancs à gauche)
 M. GEORGES GROSJEAN. — Jamais en un cas pareil et
 … J'attaché étant présent à l'ambassade. Ne n'obligez pas
-à préciser davantage.
 M. LAsrEs. — Je vous ai indiqué à quelle source vous.
 “ pourriez trouver la vérité et la lumière. Il s'agit de
 savoir si vous voulez aller jusqu'à cette source, si
-À 169
-; x
-G Te
 
-Invalidation Syveton h RFI 1
 vous voulez faire comparaître le commandant Cu J
-gnet. RUES & se
 
 Mais dans votre parti, on s'est servi non pas seulement de pièces fausses, mais encore vous dénaturez
 jusqu'aux sentiments des morts, qui ne sont pas là pour “4
-se défendre. : -14R
 
 M. Jaurès en lisant l'autre jour la lettre du général
 de Pellieux a eu l'air de dire que le général de Pellieux. M
 était resté jusqu'à la fin persuadé qu'on lui avait 4
 fait commettre des faux pour faire condamner un
-innocent. à
 
 Permettez-moi de vous dire que vous connaissez bien “4
 mal le général de Pellieux : s'il avait cru qu'un innocent M |
@@ -6661,16 +5459,12 @@ avait été condamné, il l'aurait crié bien haut. Comme
 il est mort, vous pourriez vous dire que c'est par ceux
 qui l'entouraient que vous savez que l'état-major était
 considéré comme un ramassis de faussaires. (Mouve- 4
-ments divers)
 
 Eh bien ! moi, je veux vous lire une lettre du général |
 de Pellieux ; la vôtre est de 1898, celle-ci est du 11 février
-1899. ES
 
 Cette lettre est écrite à celle qui était sa confidente,à
 sa mère.
-
-Paris, 11 février 1899 $
 
 Ma chère mère, -
 
@@ -6680,18 +5474,12 @@ après avoir naturellement pris part, dans la limite de mes k
 moyens, à la campagne qui vient d'aboutir au dessaisisse- È
 ment de l'ignoble chambre criminelle.
 
-(Exclamations à gauche)
-
-Hi 600 è à
-
-F nn. INTERVENTION JAURÈS
 ra Vous voyez l'opinion qu'il avait sur ceux qui combat-
 à _laient de votre côté.
 $ Où en sommes-nous en France et qu'avons-nous fait pour
 … mériter une magistrature pareille? Et ce qu'on a appris
 n'est rien encore.
 __ M. Vazeue. — Ce déballage est joli!
-M. Lastes. —
 .. auprès de ce que nous savons et
 - dirons: Certains des membres de cette Chambre doivent
 être et seront — s'il y a encore une justice au monde —
@@ -6699,7 +5487,6 @@ _ ‘traduits devant les tribunaux pour forfaiture. Enfin! À
 - chaque jour suffit sa peine. Un grand point est acquis et |
 …_ nous pouvons attendre avec plus de confiance.
 …. M. Gusrave Rouaxer. — Il était crédule !
-M. Lasres. —
 .… je ne serais pas étonné d'ailleurs qu'un
 " coup de théâtre se produisit. Dreyfus voyant ses aflaires
 - mal tourner renouvellera ses aveux et dénoncera ses complices, — car ilena; — et c'est ce que craignent les juifs.
@@ -6716,11 +5503,6 @@ La parole est à M. le rapporteur.
 _ M. Paur BEAUREGARD, rapporteur. — La Chambre ,
 | .… reconnaîtra aisément que, montant à la tribune en tant
 
-4 }
-PAF FRE .
-
-SU
-Invalidation Syveton LEVÉ
 que rapporteur de la comunission d'enquête, Va #
 trouve dans une situation assez singulière. MR
 Voilà deux jours que nous discutons au sujet de “F4
@@ -6743,19 +5525,13 @@ l'extrême gauche) Oui, c'est pour lui se trouver placé
 dans une situation injuste que de voir les conditions de à
 son élection réglées au milieu des passions que déve: M
 loppe fatalement parmi nous tout débat sur l'affaire "#4
-Dreyfus. À
 M. Gusrave Rouaner. — Il fallait tenir ce langage à 4
-M. Judet! 4
 M. LE RAPPORTEUR. — Je vais précisément répondre
 sur ce point. | ;
 M. LAMENDIN. — Si vous parliez de l'élection Syveton! Ë
 (On rit. — Mouvements divers) À
 M. LE RAPPORTEUR. — Je sais bien qu'on seraït heu- J
-;
-Nbr. 34
-ra D 1
 
-RTE INTERVENTION JAURÈS
 ÿ reux de rendre la commission d'enquête responsable
 _ du réveil de l'affaire, mais le procédé est vraiment trop
 simpliste. La commission d'enquête avait une mission i
@@ -6786,11 +5562,7 @@ et des accusations réciproques ont été échangées, aucune
 affiche de M. Syveton n'offre le caractère d'une manœuvre
 déloyale et qu'il a été loisible à son adversaire de répondre
 k à chacune d'elles. Nous ajouterons, spécialement en ce qui
-f 173 x fi
-Et
-ES y 4
 
-Invalidation Syveton Al The 71
 concerne l'affiche qu'avait surtout visée M. Berteaux — c'était: * 2) ë
 l'affiche dite « de l'étranger » — que les seuls témoignages
 par nous recueillis au sujet des affiches de M. Syveton ont De
@@ -6805,11 +5577,9 @@ qui vous est particulier. (Très bien! très bien! au 4
 centre) Quoi qu'il en soit, je ne perdrai pas mon #4
 temps à défendre lélection du deuxième arrondis
 sement contre des accusations qui ne se sont pas 4 4
-produites. 4
 Je me borne à vous apporter, au nom de la commis:
 sion d'enquête, la déclaration suivante : Nous avons 1 |
 examiné les divers chefs d'accusation; nous n'avons 4
-rien trouvé. h
 L'élection du deuxième arrondissement a été une
 élection loyale — oui, toutes les déclarations reçues, | 1
 comme l'examen des faits eux-mêmes, nous ont dé- D
@@ -6823,13 +5593,8 @@ triomphé; et dans le quatrième on était arrivé en |
 quelque sorte à l'égalité puisqu'il y avait une diffé |
 rence d'une seule voix. 4
 Dans ces conditions, nous ne pouvons que vous ;
-‘174 Fe
-
-AR Pa 4 SAN
 
 # FL te ï INTERVENTION JAURÈS
-
-L SM
 
 _ demander de suivre la majorité de votre commission.
 
@@ -6879,8 +5644,6 @@ _ ne lui semblaient pas pouvoir motiver l'invalidation.
 
 | 179
 
-3 < RO,
-Invalidation Syveton - MAUR ee 3
 Nos collègues, ne voulant pas paraître les couvrir par ;
 un vote positif, se sont abstenus. pee 5
 C'est, je crois, la seule voie que vous puissiez suivre.
@@ -6895,16 +5658,13 @@ autres feront un acte de justice. Comme rapporteur de ne
 la commission, messieurs, je termine en vous disant:
 au nom de la loyauté, au nom de la justice, la valida- 4 |
 tion s'impose. (Très bien! très bien! au centre et sur .
-divers bancs) -S
 M. LE PRÉSIDENT. — Personne ne demande plas la!
-parole? (Non! non!) 4
 Je mets aux voix les conclusions de la commission
 - qui tendent à la validation des opérations électorales M
 dü deuxième arrondissement de Paris. È
 Il y a une demande de scrutin, signée de MM. Rous- à
 set, Brice, Guilloteaux, Congy, Jacquey, Corrart des
 Essarts, Jules Auffray, Gauthier (de Clagny), Ernest M
-Flandin, Failliot, Rudelle, Firmin Faure, d'Alsace, 1
 Engerand, de Saint-Pol. 1
 Le scrutin est ouvert.
 (Les votes sont recueillis. — MM. les secrétaires en é
@@ -6913,42 +5673,22 @@ M. ze PRÉSIDENT. — MM. les secrétaires m'informent
 qu'il y a lieu de faire le pointage des votes. à
 Il va y être procédé. j
 (L'opération a lieu dans la forme habituelle.)
-+ Le
 
-r A i v4 RO EMNOETAN SEPEVAN 14 4, é)t4 Are 4
-INTERVENTION JAURËS se À RU
 Mu: RÉ SIDENT. — Voici le résultat du scrutin vé- PITAUES
 à rifié sur les conclusions de la commission tendant àla
-TEA EE ; ë À ANA }
 £ valide ion des opérations électorales du deuxième Wa
 _ arrondissement de Paris. SU
-HU 00 Nombre des votants. . ... ..... 509 1e ENS
-FES Mapmieabsolue 14-7000, 255 ;
-LR : x
-0 Pour l'adoption. . . ... 298 NE
--k60 UE LE SSSR PER E 281 À
 La Chambre des députés n'a pas adopté. fr
-PUS, LS P B f
 ER conséquence, les opérations électorales du Pan
 … deuxième arrondissement de Paris sont annulées. Ha
-TS À Fe EMA AE
 _ Avis en sera donné à M. le ministre de l'intérieur. Het
-16 de = c :
 … [Icivient dans le Journal officiel discussion des conclu- Hat)
 . sions du rapport de la commission chargée de procéder US
-ER UE PP D
 ca à une enquéte sur les opérations électorales de la 54
 … première circonscription du onzième arrondissement
-M: }
 A” run. Nous omettons ce compte rendu; la commis- LR
-MR \ à Û ” . A f
 de sion d'enquête proposait d'annuler les opérations élec- !
-CYEPITN n . . ee $ ñ
 | torales; au contraire la discussion conduisit à la k
-æ 120 *< |
-
-PRE PRE PRES QE NA NT PE EPP UE ANAL TT Er AR DRAC SR 2
-: LOOUUUUS
 
 Projets de résolution DR
 
@@ -6956,9 +5696,6 @@ M. Le PrésibEnT. — Je donne connaissance à la
 Chambre de trois projets de résolution que j'ai reçus. M
 Le premier est signé de MM. Jaurès, Maujan, Henri M
 Brisson, Charles Bos, Gouzy et Jean Codet. Il est ainsi
-conçu : 0
-
-: #0
 
 La Chambre, prenant acte des déclarations du Gou-. Fe
 
@@ -6969,8 +5706,6 @@ vernement et repoussant toute addition, (Exclamations
 M. Risor. — Je demande la parole. ; 4
 M. Lasrxs. — Je la demande également. 70
 L M. ze prÉsipeNT. — Le second est signé de MM. Paul.
-Constans, Vaillant, Allard, Bouveri, Chauvière, Jules. 4
-Coutant, Dejeante, Delory, Dufour (Indre), Sembat, M
 Thivrier et Walter, et est ainsi conçu : ; Ë à
 
 La Chambre, applaudissant en toute occasion à l&
@@ -6983,7 +5718,6 @@ Le troisième est ainsi conçu : À
 La Chambre invite le Gouvernement à s'opposer 1
 énergiquement à toute reprise de l'affaire Dreyfus: M
 
-RU Due = INTERVENTION JAURÉS
 | pe l'invite également à faire aboutir au plus 16 la
 4 4 réforme Jiscale et la loi sur les retraites ouvrières.
 Cetordre du jour est signé de M. Magniaudé.
@@ -6991,9 +5725,7 @@ Cetordre du jour est signé de M. Magniaudé.
 À signé de MM. Jaurès, Maujan, Henri Brisson, Charles
 ie Bos, Gouzy et Jean Codet.
 + M: Risor. — Nous demandons l'ordre du jour pur et
-_ simple.
 | Me PRÉSIDENT. — L'ordre du jour pur et simple est
-À demandé.
 _ La parole est à M. Ribot.
 ñ M. Rwor. — Je demande à la Chambre la permission
 … de préciser le sens du vote que nous allons émettre et
@@ -7014,11 +5746,7 @@ M. Rwor. — Fort bien. Nous avons assisté, ce n'est
 - le régime parlementaire.
 _ Il n'était bruit, depuis quelques jours, dans cette
 Chambre, que de l'intention presque unanime de la
-REA
 
-L ) " re EU fr: 4
-a F PSE
-Invalidation Syveton # FT ï
 majorité d'écarter, comme elle le doit et comme au 1
 fond elle le veut, cette misérable affaire apportée par | À
 M. Jaurès, d'accord avec M. le ministre de la guerre,
@@ -7026,7 +5754,6 @@ et que nous avons vue rentrer avec son triste cortège | 4
 de violences et de haïines que l'on croyait éteintes.
 (Applaudissements au centre et à droite) 0
 M. Maurice Viorzerre. — C'est M. Syveton qui l'a …#
-déchaïnée. 33
 M. RimorT. — Il n'était question, depuis quelques à
 jours, que d'écarter toute motion, quelle qu'elle fat, qui
 jetterait de nouveau la Chambre dans tous les périls de
@@ -7042,18 +5769,12 @@ bération — que si une motion, quelle qu'elle soit, M
 l'affaire, on serait d'accord pour dire nous n'avons pas M
 le droit de la discuter, c'était la vérité, je n'entends, |
 pour ma part, discuter le fond de l'affaire avec per- 4
-sonne ici. 1
 M. Gusrave RouanET. — Vous ne l'avez jamais ?
-discutée d'ailleurs ! d
 M. Risor. — Non, monsieur! je ne lai jamais dis- À
-cutée. 1
 M. J. Tuierry. — Et nous nous en honorons. À
 M. Risor. — et, en ne la discutant pas, j'ai obéi à 1
 une loi qui eùt dû s'imposer à nous tous. 11
 Je n'ai pas voulu mêler, comme vous l'avez fait, vous, : à
-- 180 É.
-
-Se LE __ INTERVENTION JAURÈS
 
 À dans un intérêt de parti, la politique à la justice.
 
@@ -7118,12 +5839,6 @@ gauche) Maïs il faut que cela se fasse comme la loi l'a
 
 1218 181
 
-Res .
-
-À LUE NNEPIEDNREEES
-Invalidation Syveton Re.
-
-à Ne,
 tumulte d'une mêlée parlementaire où l'on vient rap- ne.
 peler tous les souvenirs brülants de la lutte électorale, … 14
 toutesleshainesmalassoupies, toutes les colères ettoutes À A
@@ -7136,7 +5851,6 @@ qu'une dure et cruelle expérience avait appris à vos 4
 devanciers et dont vous sentez vous-mêmes la vérité. 1
 
 M. Gusrave Rouaner. — Il fallait le dire à la com
-mission. ‘4
 
 M. Rimor. — Oui, quand vos devanciers ont vu le
 mal que cette affaire avait fait au pays, lorsqu'on L
@@ -7162,11 +5876,7 @@ législature dernière, et je ne lé regrette pas. ]
 
 M. Risor. — Ni moi non plus. à
 
-182 ï
 #
-d
-
-LES INTERVENTION JAURÈS
 
 ‘#4 : M. Crapurs. — Je suis de ceux qui pensent qu'il eût
 
@@ -7219,19 +5929,14 @@ que vous avez faite, ce n'est pas mon rôle. Mais je puis
 malheur de faire afficher sur les murs de la France, il
 eût rendu à notre pays un immense service dont nous
 
-Ë 183
-
-_ Inpalidation Syveion D
 lui serions tous reconnaissants s'il avait lui-même ut Ls
 la direction de ce procès de revision. Il l'eût fait accep- |
 ter par tout lemonde. (Très bien! très bien !) ei ‘116
 
 A l'extrême gauche. — Il s'en est bien gardé! 572
-M. Risor. — M. Cavaignac en a pensé autrement. “3
 M. GoDEFROY CAVAIGNAC. — Puisque vous me mettez
 en cause dans des termes à la courtoisie desquels je M
 rends d'ailleurs hommage, veuillez me permettre de ‘4
-répondre deux mots. . “4
 M. Risor. — Très volontiers. 21e
 M. GoperroY CAVAIGNAG. — Vous avez répété ce que
 vous aviez dit l'autre jour que j'avais eu le malheur de “0 |
@@ -7255,9 +5960,7 @@ vérité. (Exclamations à l'extrême gauche et à gauche) M
 Sur le second point, je n'ai qu'un mot à dire. Vous il
 é dites: Pourquoi, monsieur Cavaignac, lorsque vous 4
 avez découvert le crime et que vous en avez arraché à
-Ÿ- 2"
 
-+ trad INTERVENTION JAURES
 4 laveu, n'avez-vous pas permis de liquider l'affaire en
 . acceptant la revision et en y donnant votre assentiment.
 …_ Ah! monsieur Ribot, je ne l'ai pas fait parce que ma
@@ -7269,7 +5972,6 @@ d'État ou à la raison du salut public pour maintenir au
 temps que tant que j'aurais, moi, la conviction que
 lPhomme était coupable, jamais je ne donnerais mon
 consentement à la revision. (Æxclamations à l'extréme
-_ gauche)
 
 M. Jaurès. — Vous vouliez être juge unique !
 
@@ -7290,15 +5992,11 @@ innocent, j'aurais en même temps apporté mon témoi-
  gnage à une cause que, dans ma conscience, je ne
 croyais pas juste. Voilà pourquoi je n'ai pas voulu
 engager la revision. (Applaudissements au centre et à
-droite)
-
-M. JAuRÈS. — Seul juge!
 
 M. Riot. — L''honorable M. Cavaignac a agi sans
 aucun doute dans la sincérité de sa conscience; je
 regrette qu'il n'ait pas pu, à ce moment, avec la situation qu'il avait, mettre fin comme il convenait aux
 
-Invalidation Syveton F D
 déchirements de ce pays. Mais il remarquera et la ds
 Chambre verra le danger extrême qu'il y a à apporter % fe 8
 devant elle, à soumettre à ses délibérations, des docu.
@@ -7311,7 +6009,6 @@ de ce document, qui devions croire, sur parole, le mi:
 nistre responsable de la guerre, vous regrettez assuré- 1 |
 ment que nous ayons donné notre vote pour faire - N
 aflicher une déclaration dont la fausseté matérielle a .
-été ensuite reconnue. = 3
 
 (M. Cavaignac fait un signe d'assentiment) 4 |
 Qu'est-ce que cela prouve ? Cela prouve qu'il ne faut
@@ -7332,9 +6029,6 @@ faux ? Comment peuvent-ils en déterminer la portée 1
 judiciaire ? Est-ce là notre tâche ? Non, quand nous la À
 prenons, nous usurpons un droit et nous introduisons 4
 dans ce pays un ferment de désordre, un germe de 5%
-186 É.
-
-iQ pi 4 INTERVENTION JAURÈS
 
 ‘ danger, parce que nous sommes ici pour faire les
 
@@ -7349,11 +6043,7 @@ sommes pas des juges; nous ne pouvons pas l'être.
 
 M: Francis pe PRESSsENSÉ. — Nous demandons des
 
-N'tjuges !
-
 M. Risor. — Ce n'est pas ici qu'il faut les demander !
-
-M. Jaurès. — Si! (Exclamations au centre)
 
 M: Rwor. — Et voilà pourquoi, en 1900, nous avons
 émis ce vote si considérable par le nombre de suffrages
@@ -7373,7 +6063,6 @@ est en train de conduire la majorité qu'il a contribué à
 former de ses propres mains, doit avoir, à cette heure,
 bien des sujets de réflexions et peut-être d'inquiétude !
 
-Invalidation Syveton We.
 M. Jaurès. — Des inquiétudes paternelles. Ce |: A
 M. Riot. — En tout cas, s'il avait été aujourd'hui au ne.
 banc du Gouvernement, ce n'est pas lui qui auraït tenu k.
@@ -7383,30 +6072,24 @@ M. le ministre de la guerre non seulement a accepté
 l'enquête qu'on ne lui avait pas encore proposée, mais
 il s'est précipité au devant d'elle et il a dit : Je veux À
 être le collaborateur de M. Jaurès pour découvrir la ñ
-vérité. 4
 Quel est ce langage de la part d'un ministre de la à
 guerre ? Est-ce qu'il est chargé de préparer les éléments À
 de revisions futures ? |
 M. ARISTIDE Brianp.— C'est une question de responsabilité politique. à
 M. Risor. — Non, ce n'est pas une question de res- #
-ponsabilité politique. à
 M. ArISniDE BrrAND. — Mais si! À
 M. Risor. — Non, monsieur Briand. Lorsqu'un mi- l
 aistre fait ce que la loi ne lui permet pas de faire, vous fi
 n'avez pas le droit de le couvrir ; (Très bien! très bien! {
 au centre) la constitution est violée et la loi méconnue. ï
 C'est le garde des sceaux, le garde des sceaux seul qui 4
-peut être saisi. (Applaudissements au centre) ï|
 M. FRANGIS DE PRESSENSÉ. — Vous connaissez les
-grandes enquêtes anglaises ?
 M. Risor. — Les grandes enquêtes anglaises ne por- j
 tent jamais sur des questions de justice. |
 M. Francis DE PrEssensé. — En ce moment, il y à 1
 une grande enquête faite en Angleterre sur la guerre. j
 M. RiBoT. — Quand vous voudrez faire une enquête F
-._ 188 j
 
-Eu": INTERVENTION JAURÈS à
 | sur la guerre de Chine, nous sérons prêts à le faire.
 (1 rès bien ! très bien! au centre)
 : M. Francs pe PRESsENsÉ. — Pourquoi sur la guerre
@@ -7431,16 +6114,13 @@ D: paroles que j'ai entendues. M. le ministre de la guerre
 —_. M:Srmvan. — Il n'a pas dit cela.
 ie M. ÉmLe Comses, président du conseil, ministre de
 ÿ _ l'intérieur et des cultes. — Non!
-._ M: Rmor. — Comment ! non?
 *  Aucentre. —Si!si! il l'a dit! ;
 M: Riorreau et plusieurs de ses collègues. — Nous
 Ft l'avons tous entendu !
 M. LE PRÉSIDENT DU CONSEIL, ministre de l'intérieur :
 ‘# et des cultes. — Je demande à dire un mot de ma place,
 si monsieur Ribot le permet.
-47 189 xt.
 
-Invalidation Syveton
 M. LE PRÉSIDENT. — La parole est à M. le président |
 du conseil, avec l'assentiment de M. Ribot. ë % ne.
 M. Émize Couees, président du conseil, ministre de :1
@@ -7448,7 +6128,6 @@ l'intérieur et des cultes. — Je ne me rappelle pas très M
 exactement les expressions dont s'est servi M. le mi- É:
 nistre de la guerre, mais je sais ce qu'il avait mission ; 1
 de déclarer. (Applaudissements à droite et au centre:
-— Mouvements divers. — Bruit) ;.
 M. Massaguau. — Voilà le compte rendu télégra- à |
 phique qui est apposé dans les couloirs ! (Applaudis- ".
 sements à droite et au centre) 14
@@ -7473,7 +6152,6 @@ quelques autres qu'il pourrait ouvrir ce dossier, (Mou- À
 vements divers) examiner et cataloguer les pièces, si
 besoin en était, afin de couvrir sa responsabilité et de |
 
-Mu À INTERVENTION JAURÈS sj
 _ m'être pas accusé, comme cela ne Fanrait manquer de
 D se produire, soit d'avoir soustrait des pièces à ce dos-
 « . sier, soit d'en avoir introduit de nouvelles. (Applaudis-
@@ -7496,9 +6174,7 @@ qu'il a le droit de faire. (Très bien! très bien! à gauche)
 D} la guerre : « Le ministre se fera assister par un certain
 nombre de magistrats dans le dépouillement des pièces
 ; “qu'il aura à faire. » (Applaudissements à gauche et à
-… lextréme gauche) k
 DT … M: Simyax. — Le ministre de la guerre n'a pas dit
-3 autre chose!
 à M. Risor. — J'accueille très volontiers l'explication
 . de M. le président du conseil. Il me permettra de lui
 4 dire qu'elle me surprend un peu. Je ne crois pas que
@@ -7506,21 +6182,17 @@ DT … M: Simyax. — Le ministre de la guerre n'a pas dit
 FR ÿ détenteur de ce dossier, ait besoin de se défendre contre
 :à les soupçons. (Applaudissements au centre. — Excla-
 } _mations à l'extrême gauche et à gauche) Soit!
-se ;
 
-Invalidation Syveton 5% Fr |
 M. Jaurès. — Vous rappelez-vous, monsieur Ribot,à |
 quelles calomnies, à quelles inventions fut en butte non E |
 pas un individu, mais une collectivité: la chambre cri
 minelle? M. le ministre de la guerre a le droit de vou- +
 loir ne pas être dessaisi comme l'a été la chambre cri
 minelle! (Applaudissements à l'extrême gauche et à
-gauche. — Bruit) 744 |
 M. Rmor. — Alors, monsieur Jaurès, il faudra faire
 surveiller, cautionner le ministre de la guerre par les 4
 magistrats de la cour de cassation, et je pense que
 M. le ministre de la guerre cautionnera à son tour là
-chambre criminelle. ji
 Messieurs, cela est indigne de nous! (Rumeurs à À
 l'extrême gauche) Quand on dit qu'on invitera de hauts “4
 magistrats de ce pays à faire le dépouillement d'un
@@ -7534,7 +6206,6 @@ derais ce qu'il pense de ce rôle qu'on destine aux magis- ‘à
 trats de la République! Je lui demanderais s'il y a un 4
 magistrat qui acceptera une pareille besogne, une fonc- ù
 tion aussi humiliée! (Applaudissements au centre et sur 4
-divers bancs) 4
 Soit ! vous le voulez, vous ferez comme vous voudrez, 4
 mais vous entamez là une procédure illégale dans son è
 principe, étrange dans ses procédés, qui ouvre de nou- ;
@@ -7542,9 +6213,7 @@ veau l'ère des agitations.
 Eh bien! vous me permeïtrez tout au moins de ne
 pas en prendre avec vous la responsabilité. (Oui ! oui!
 192 1
-k EMA
 
-F RU +. (À @#GINTERVENTION JAURËS |
 :2 à l'extrême gauche) Je ne voterai pas l'ordre du jour
 : # qui prend acte des déclarations du Gouvernement,
 …_. parce qu'en le votant j'assumerais la responsabilité
@@ -7562,7 +6231,6 @@ __ à la tribune et dans le pays, vous qui lui donniez un
 —_ avertissement que vous aviez le droit de lui donner.
 à ({nterruptions à l'extrême gauche)
 M: Cuarzes Bos. — J'ai demandé la parole pour
-_  m'expliquer.
 | M. RimoT. — … vous qui disiez que vous vous refusiez
 _ à le suivre et que si une motion était proposée, vous
 4 répondriez par l'ordre du jour pur et simple ?.. N'est-ce
@@ -7576,11 +6244,7 @@ demandé de ne pas donner suite à son projet, de ne
 e pas reprendre cette malheureuse affaire, et qui est allé
 … le matin trouver le ministre de la guerre et d'accord
 | avec lui, a organisé cette enquête. (Bruit à l'extrême
-ù gauche)
-x 193
-Aa.
 
-Invalidation Syveton ANSE pu di
 M. Jaurès. — Comment cela ! monsieur Ribot? #18 L
 Je vous donne ma parole que vous êtes mal informé!
 M. Rwor. — Bien! NE.
@@ -7588,17 +6252,13 @@ M. Jaurès. — Depuis que j'ai annoncé que j'avais M
 l'intention à propos de l'affaire Syveton de répondre au 1
 rapport de la commission, je vous affirme que je mai 4
 . jamais vu M. le ministre de la guerre. (Mouvements di- : 1
-vers) 14
 M. PAUL BEAUREGARD. — Ceci est une hypocrisie. M
-(Bruit) 4
 Je constate que vous n'avez nullement attaqué mon M
-rapport. ;
 M. Risor.— Eh bien! monsieur Jaurès, cela ne prouve Ki
 qu'une chose, c'est que M. le ministre de la guerre a n.
 pris les devants, qu'il s'est précipité vers cette demande L
 d'enquête que son devoir strict aurait été d'arrêter. 4
 (Vifs applaudissements au centre et à droite. — Interruptions à l'extrême gauche) 4
-M. Levraup. — Comment ! Î
 M. Le PRÉSIDENT. — Messieurs, laissez parler M. Ribot! 4
 M. Risor.— Et sur quoi allez-vous enquêter, monsieur {
 le ministre de la guerre, assisté de M. Jaurès ? ,
@@ -7612,16 +6272,13 @@ vous allez faire cette enquête ? C'est pour jeter un peu
 plus de soupçon. À
 M. Francis DE PRESsENSÉ. — Voyez donc ce que le A
 général de Pellieux écrivait dans sa lettre! F
-194 s
 
-js a re INTERVENTION JAURÈS
 …_  M.Rwmor. — … pour jeter, s'il est possible, un peu
 si _ plus de boue sur cette malheureuse armée française.
 En … (Wifs applaudissements au centre et à droite. — Inter- .
 ruptions à l'extrême gauche et à gauche)
 % Ah! permettez ! il faut s'expliquer ici.
 : A l'extréme gauche. — Esterhazy, ce n'est pas
-_ l'armée.
 à M. Riot. — M. Jaurès a un mérite, il a la franchise
 -  deses intentions et de sa politique et quand il est allé
 … à Lille en 1900 et qu'il s'est expliqué avec Jules Guesde,
@@ -7643,27 +6300,15 @@ l'esprit des hommes.
 Attendez! vous allez voir ce que c'est que le militarisme dans l'esprit et dans le langage de M. Jaurès.
 | Le militarisme n'est pas dangereux, sachez-le, seulement
 parce qu'il est le gardien armé du capital ; il est dangereux
-OR 195
-
-Inpalidation Syveton TRES
-
-$ AT TNR
-
-A
 
 aussi parce qu'il séduit le peuple par une fausse image de
-grandeur... à + ‘1
 (Très bien! très bien ! à l'extréme gauche) ‘21
-LX
 
 .… par je ne sais quel mensonge de dévouement et de “
-sacrifice. Es
 
 (Rumeurs au centre et à droite)
 
 M. Jaurès. — Je maintiens cela absolument. F
-
-M. Ræor. — : À
 
 Lorsqu'on a vu que cette idole, si glorieuse- ÿ
 ment péinte et si superbe, lorsqu'on a vu que cette idole j
@@ -7681,10 +6326,7 @@ M. Lasres. — Vive l'armée ! (Bruit à gauche) re
 
 Plusieurs membres à droite et au centre. — Oui! vive
 
-à
 l'armée ! (Interruptions à gauche) fl}
-
-M. RiBoT. — 1
 
 .… Alors, le militarisme a reçu un coup k
 mortel et la révolution sociale n'y a rien perdu.
@@ -7700,16 +6342,10 @@ obligé de vous suivre comme il l'a fait.
 
 (M. Walter interrompt violemment au milieu du (
 
-!
-bruit.)
-
 (Vives protestations au centre et à droite. —
 
 Cris : À l'ordre. — Bruit prolongé) :
-196 ï
-\
 
-INTERVENTION JAURÈS GA ES | |
 PA LEE PRÉSIDENT. — Je rappelle M. Walter à l'ordre. Fra
 70 M. 1E LIEUTENANT-COLONEL Rousser. — Je proteste si
 - contre la parole abominable qui vient d'être prononcée. qu
@@ -7718,39 +6354,25 @@ M: 1e PRÉSIDENT. — Messieurs, il y a des mots que la sn
 . dignité d'une assemblée ne permet pas d'entendre. (Ré- i
 — clamations à droite) J'ai rappelé M. Walter à l'ordre.
 0 ei — La censure! fl
-< : . . .
 — M:1e PRÉSIDENT. — Vous insistez sur un mot que je ;
-NET AS « x " 3
 n'a pas entendu. ({nterruptions au centre et à droite) are
 0 Plusieurs membres à droite. — Mais nous avons en- *
 _ tendu, nous!
 _ M.1e PRÉSIDENT. — Alors, j'invite M. Walter à s'ex- MR
 …_ A droite. — La censure! (Bruit prolongé) |
 . M. Pracue. — C'est une honte! 4
-12 ” C2 en re 7e
 ._ M. Rocer-Bazzu. — C'est une ignominie!
-“1108 o RL
 —. M.Z2E LIEUTENANT-COLONEL Rousser. — Allons-nous- BR
-LE
 _ (Un grand nombre de membres du centre et de la ie
 - droite se disposent à quitter la salle des séances. — J
-… Agitation prolongée ;
-LE É De &
 14 . M. Lasxs. — Monsieur Ribot, ne continuez pas.
-(: dr 4 c . # _
 - M. Jaurès. — Monsieur Ribot, voulez-vous me céder
 une minute la parole ?
-M. Rwor. — Volontiers. £
-"AFS
 4e a. Ribot quitte la tribune où il est remplacé par
-RRRE
-à . Jaurès.)
 |" RTE :
 …— M: LE LIEUTENANT-COLONEL Rousser. — Ce n'est pas |
 # à vous, monsieur Jaurès, de prendre la parole. 5
 
-Invalidation Syveton + 2 NAS
-sn
 M. Cacner. — Vous n'avez pas à expliquer la parole
 d'un collègue. (Bruit prolones) ; TS
 M. LE LIEUTENANT-COLONEL Rousser. — Nous avons
@@ -7759,7 +6381,6 @@ M. JAURÈS. — Qu'avez-vous entendu ? à
 M. LE LIEUTENANT-COLONEL Rousser. — M. Walter
 a dit qu'il y avait des m......... (1) dans l'armée, à
 et je tiens à ce que ce soit au Journal officiel, (Bruit à {
-gauche) à
 M. WaLrer. — Je demande la parole. |
 M. LE PRÉSIDENT. — La parole est à M. Walter. {
 (Vives rumeurs et protestations au centre et à droite) ÿ
@@ -7767,27 +6388,18 @@ Permettez à M. Walter de s'expliquer. Î
 M. WALTER. — Pour les besoins de votre cause, b)
 (Bruit à droite) vous avez voulu entendre autre chose à
 que ce que j'ai dit. (Vives réclamations sur les mêmes M
-bancs)
 Je répète mes paroles : J'ai dit que l'on n'a jamais !
 attaqué l'armée dans son ensemble, mais ceux qui, 4
 dans l'armée, comme Esterhazy, étaient des m......... 4
 (Applaudissements sur divers bancs à l'extréme gauche 4
 — Vives interruptions à droite et au centre. — Bruit 1
-prolongé) |
 M. LE PRÉSIDENT. — Je vous rappelle à l'ordre avec 4
-inscription au procès-verbal. !
 M. Gaston GaALpix. — Ce n'est pas ce que M. Walter 1
-a dit. |
 A droite. — La censure !
 M. LE PRÉSIDENT. — J'ai rappelé M. Walter à l'ordre
 () M. Walter avait dit des maquereaux.
 - 198
-M
-Eu
 
-ME | , à
-
-RATER INTERVENTION JAURÈS
 avec inscription au procès-verbal. Le règlement ne me
 # permet pas d'aller plus loin. (Bruit à droite)
 k La parole est à M. Ribot.
@@ -7799,7 +6411,6 @@ j Je terminais en plaignant sincèrement M. le président
  reux pays de France qui mériterait certainement de
 n'être pas ainsi troublé (Applaudissements au centre et
 .… sur divers bancs) par toute cette politique violente et
-_ désordonnée.
 
 Avant-hier, M. le ministre de la guerre, qui n'assistait
 pas à la séance où se discutait cependant un projet de
@@ -7829,11 +6440,6 @@ Qui donc parlait il y a quelques mois à ce pays d'a-
 
 à paisement et de concorde? Voilà de quelle façon déri-
 
-*'
-
-A YA Nel
-
-Invalidation Syveiton ' LUE
 soire on répond à ces paroles de paix. Vous voulez À
 pousser jusqu'au bout tous vos avantages, troubler ce
 pays jusque dans ses masses les plus profondes. Soit! 1
@@ -7852,7 +6458,6 @@ M. LE PRÉSIDENT DU CONSEIL, Ministre de l'intérieur "4
 et des cultes. — Avant les dernières paroles prononcées \ ]
 par M. Ribot, qui a nettement repoussé la politique du À |
 cabinet et posé la question sur le terrain politique, le "
-Gouvernement pouvait hésiter. (Æxclamations au 1 |
 centre et à droite) Ve
 L'ordre du jour pur et simple laissait, en effet, sub- À
 sister les déclarations du Gouvernement et ne lui était
@@ -7864,12 +6469,7 @@ Mais après les paroles de M. Ribot portant nettement “4
 le débat sur le terrain politique, il est impossible au |
 président du conseil de ne pas repousser l'ordre du jour 4
 pur et simple. (Applaudissements à gauche et à l'ex- {
-trême gauche) ;
-‘200 5
-1 €
 
-SAME INTERVENTION JAURÈS
-D
 A droite. — Tant mieux!
 - M. LE PRÉSIDENT. — La parole est à M. Magniaudé
 sur son ordre du jour.
@@ -7890,7 +6490,6 @@ et celle que M. Jaurès représente non moins dignement.
 M. Hugsarp. — Et nous, qu'est-ce quenous sommes ?
 
 M. Macnraupé. — Je vais vous le dire, mon cher
-collègue.
 
 Cela nous vaut certainement de très nombreux discours que j'écoute avec attention et que je relis même.
 Mais je déplore que le parti radical et le parti radicalsocialiste soient en quelque sorte étouffés entre ces deux
@@ -7903,7 +6502,6 @@ me semble, qu'à les soumettre à M. le garde des sceaux
 qui fera le nécessaire. Mais quand nous voyons ce qui
 se passe dans cette Chambre aujourd'hui, et à propos
 
-Invalidation Syveton {SOU
 de cette affaire dont le débat n'est même pas ouvert,
 jugez ce que ce sera ensuite lorsque ce débat sera ‘4
 rouvert. (Applaudissements sur divers bancs à gauche) 4
@@ -7940,10 +6538,6 @@ qui peuvent être intéressés à faire revivre et à agiter l'affaire Dreyfus. 
 qui l'ont accompagnée et qui recommenceront si elle
 renaissait, un affaiblissement pour la République ellemême.
 
-- 202 |
-
-ART INTERVENTION JAURÈS
-
 Je suis donc résolu,
 
 je ajoutait l'honorable M. Bourgeois,
@@ -7953,8 +6547,6 @@ je ajoutait l'honorable M. Bourgeois,
 - par lequel le Gouvernement essayerait de ressusciter l'af-
 
 _ faire Dreyfus.
-
-à | (Applaudissements)
 
 Ce sont ces paroles si sages, si clairvoyantes, si
 
@@ -7993,9 +6585,6 @@ assisté à cette réunion puisse s'inscrire en faux contre
 
 _ ce que je viens de dire.
 
-ë 203 s
-
-Inoalidation Syveton FR
 L'honorable M. Ribot a parlé tout à l'heure de la m= |
 nistie. Son langage devrait être écouté de tout le monde -
 si on ne voulait pas interpréter contre nous seuls lame a
@@ -8005,11 +6594,9 @@ entendant MM. Lemaître et Judet, qui n'avaient rien à
 faire dans l'élection Syveton, et il est certain que si la 4
 commission n'avait pas recueilli ces dépositions inté- 1
 ressées, M. Jaurès n'aurait pas apporté ce débat à la Fe |
-tribune. (Mouvements divers) 2
 J'explique maintenant le vote qu'un certain nombre E
 de mes amis et moi-même allons rendre; il nous est
 impossible après les révélations qu'a apportées “
-M. Jaurès... (Rires à droite. — Applaudissements à ‘4
 l'extrême gauche et sur divers bancs à gauche) de clô- i
 turer ce débat par l'ordre du jour pur et simple. 1
 Nous voterons donc l'ordre du jour proposé parles M
@@ -8027,10 +6614,7 @@ du conseil, ne voulant pas de crise ministérielle... 4
 dissements à l'extrême gauche et à gauche) nous voterons l'ordre du jour accepté par le Gouvernement. M
 M. le président du conseil, par ses déclarations, a
 | 204 E
-2 ANSE
 
-PPANERRNT à 14 . \
-Na) ENT. A f INTERVENTION JAURES
 | déplacé le débat. Tout à l'heure nous étions appelés à
 voter sur la question portée à la tribune par M. Jaurès,
 F et nous ne voulions pas suivre M. Jaurès. Il s'agit
@@ -8042,13 +6626,11 @@ nombreux dans cette Chambre, infiniment plus nom_ breux encore dans le pays, qui
 de nous en tenir, en ce qui concerne l'affaire Dreyfus,
 à ce mot d'un ancien ministre de la guerre : « L'incident
 … est clos. » (Applaudissements sur divers bancs. — Mou-
-… vements divers au centre)
 | Une autre considération nous permet de voter l'ordre
 … du jour motivé qu'adopte le Gouvernement : c'est qu'à
 s'en tenir à la lettre de cet ordre du jour, il s'agit simplement de prendre acte des déclarations de M. le
 … ministre de la guerre, et non pas de les approuver.
  (Æxclamations ironiques au centre et à l'extrême
-gauche)
 Eh oui ! nous prendrons acte des déclarations du
 _ général André sans les approuver, et si nous voulions
 tout à l'heure voter l'ordre du jour pur et simple, c'était
@@ -8060,11 +6642,7 @@ de cœur dans une enquête qu'on ne lui demandait pas.
 en un vote sur la politique générale du cabinet, et nous
 … sommes plus que jamais résolus à soutenir cette poli- :
 tique. (Applaudissements à gauche et sur divers
-_ bancs)
-bé .
 
-Invalidation Syveton : er Fa Ë
-\ |
 M. LE PRÉSIDENT. — La parole est à M. Astier. PQ Le
 M. Astier. — Tout à l'heure M. Ribot a parlé d'une « communication à la presse qui faisait connaître les É 24
 décisions d'un groupe important de la Chambre. Rs
@@ -8073,7 +6651,6 @@ le débat qui vient de se dérouler, avais proposé de
 suivre la politique adoptée dans la dernière législature ‘4 ù
 et de nous efforcer de laisser les affaires judiciaires sur E
 le terrain judiciaire. (Très bien! très bien! sur divers M
-bancs) 40)
 L'événement a prouvé que nous avions été clair
 voyants, mais M. Jaurès avait le droit de venir ici, en
 réponse aux essais de justification contenus dans le 4
@@ -8094,14 +6671,8 @@ repoussant toute addition, passe à l'ordre du jour.
 (Interruptions sur divers bancs. — Applaudissements à
 l'extrême gauche) k
 M. LE PRÉSIDENT. — J'ai reçu un quatrième projet de J
-: 206 À
-rh
-
-AS ETES INTERVENTION JAURÈS
 
 À résolution, signé de MM. Chapuis et Péret. Il est ainsi
-
-_ conçu :
 
 La Chambre, confiante dans le Gouvernement, et
 résolue à ne pas laisser sortir l'affaire Dreyfus du
@@ -8109,11 +6680,7 @@ domaine judiciaire, passe à l'ordre du jour.
 
 Le cinquième projet de résolution est celui de
 
-M. Astier.
-
 4 L'ordre du jour pur et simple est-il maintenu ?
-
-Au centre. — Oui! oui! ;
 
 M.xE PRÉSIDENT DU CONSEIL, ministre de l'intérieur
 
@@ -8149,8 +6716,6 @@ pur et simple. |
 
 Si c'est là le sens que M. Chapuis attache à son ordre
 
-+ SENS
-Invalidation Syveton C2
 du jour, je suis tout prêt, voulant que la Chambre puisse 4
 se prononcer avec netteté, à retirer notre ordre dujour,
 en votant sur l'ordre du jour de M. Chapuis et en ;
@@ -8175,10 +6740,7 @@ même de voter la seconde partie de l'ordre du jour de
 M. Chapuis ; ce sera l'ordre du jour de 1900 qui sera
 rappelé à cetie Chambre et qui sera consacré à nouveau. Mais ce sera aussi la condamnation et la répudiation de l'initiative prise par M. Jaurès. (Applaudissements au centre et à droite. Interruptions à gauche)
 M. LE PRÉSIDENT. — L'ordre du jour pur et simple est
-retiré. 3 8
-“#5408
 
-+. INTERVENTION JAURÈS |
 5 ho: a Ch ambre est appelée à se prononcer sur la priorité :
 _ à accorder à l'un des cinq projets de résolution dont
 j | elle est saisie.
@@ -8193,7 +6755,6 @@ Rs an ordre du jour. Contrairement à l'opinion person-
 … les congrégations, et je m'honore de l'avoir votée. (/n-
  terruptions à droite) C'est mon affaire; vous faites la
 _ politique qu'il vous convient, je fais celle qui me semble
-_ bonne. y
 —_  Désireux surtout que l'affaire Dreyfus ne sorte pas
 $ du domaine judiciaire, j'ai cru devoir l'indiquer ÿ
 _ dans mon ordre du jour. J'estime que la Chambre ;
@@ -8201,28 +6762,22 @@ _ dans mon ordre du jour. J'estime que la Chambre ;
 | nous soutenons ; nous affirmerons d'autre part la ;
 _ nécessité de ne pas rouvrir devant le Parlement une
 affaire qui nous a tant divisés. (Très bien! très bien!
-_ à gauche)
 L d ai Je profite de ma présence à la tribune pour dire que
 k | je suis de ceux qui aiment et respectent l'armée parce
 | qu'elle est la sauvegarde de l'indépendance de mon CP
 « _ pays. (Applaudissements) Je suis de ceux qui veulent
 s la voir forte ; mais je suis aussi de ceux qui ne pardon-
 È nent pas les fautes commises pour obtenir un jugement
-4 # G 209 XIT.
 
-Invalidation S "
 au moyen de procédés contraires à toutes les règles du de E
-droit, { +0
 On a bien fait d'y mettre ordre; on a eu raison de
 frapper les coupables et on devra, dans l'avenir, procé- ‘ei
 der à toutes les épurations nécessaires pour faire de
 cette armée une armée soumise à la République. (A4p>
-plaudissements à gauche) Se
 M. Le PRÉSIDENT. — Je vais appeler la Chambre à
 voter sur la priorité. É
 Il y a cinq ordres du jour. ‘4
 La priorité a d'abord été demandée pour celui de 4}
-MM. Jaurès, Maujan, Charles Bos, Henri Brisson, à
 Gouzy et Jean Codet, qui est ainsi conçu : OUR 4
 La Chambre, prenant acte des déclarations du Gou- à
 vernement, passe à l'ordre du jour. À
@@ -8239,14 +6794,9 @@ M. LE PRÉSIDENT DU CONSEIL. — Je crois avoir Prouvé
 dans différentes circonstances que je n'attachais au
 pouvoir d'autre prix que celui d'être en mesure d'a
 complir la tâche que j'ai assumée. (Applaudissements 1
-à gauche) à 1
 Mais je comprends la tactique nouvelle de M. Ribot. :
 Il avait présenté un ordre du jour pur et simple, sur
-Cr TO Ë
-%
-;:
 
-UC INTERVENTION JAURÈS
 4 lequel les opinions pouvaient commencer à se compter;
 f ilen a prévu le sort et il l'a retiré pour laisser le Gou-
 Ê + L vernement face à face avec d'autres ordres du jour.
@@ -8258,10 +6808,8 @@ ne. La Chambre me permettra dès lors, quelque jugement
 à M. LE PRÉSIDENT. — La parole est à M. Vazeille.
 8 M. Vazeuze. — Messieurs, l'heure à laquelle nous
 à sommes arrivés m'interdit de longues explications.
-È _ ({nterruptions à droite)
 | M. LE PRÉSIDENT. — Messieurs, je vous en prie, si
 “vous voulez hâter la fin de cette discussion, il faut
-; écouter. .
 ; M. pe Boury. — Nous pourrions tous expliquer notre
 È , vote; on n'en finirait pas.
 É M. Vazerrze. — Il ne s'agit pas d'explication de vote;
@@ -8297,7 +6845,6 @@ vernement d'une enquête administrative. +
 La façon dont s'est déroulé ce débat ne m'a pas permis de donner les explications que j'avais à fournir. Je
 suis convaincu que l'occasion se représentera pour moi :
 de les exposer intégralement à cette tribune. (Mouve- :
-ments divers) |
 Sur un grand nombre de bancs. — Aux voix! |
 « M. LE PRÉSIDENT. — Je consulte la Chambre sur la
 priorité du projet de résolution de MM. Jaurès, Maujan, Henri Brisson, Charles Bos, Gouzy, Jean Codet,
@@ -8306,52 +6853,33 @@ La Chambre, prenant acte des déclarations du Gou- |
 vernement, passe à l'ordre du jour.
 Il y à une demande de scrutin, signée de MM. Lassalle, Féron, Raymond Leygue, Basly, Lucien Cornet,
 de Pressensé, Jules-Louis Breton, Trouin, Selle, Charpentier, Bagnol, Baudin, Debaune, Sireyjol, Chamerlat,
-Krauss, Pajot, Bouhey-Allex, Cadenat, Aristide Briand,
-G. Baron, etc.
 
-. k “ 4,54 Ai TR Ed ROC PINTe CPU SP APN EN LR
-RU ET 4 7" 14 a bat: bi
 # INTERVENTION JAURÈS LORS AAENE CORRE
 + AS crutin est ur st Ÿ ? s'FR OM
-Le SCI Un ( ouvert. !
 … (Les votes sont recueillis. — MM. les secrétaires en
 font le dépouillement. ) ; pes
-(EF ris) 2 à 7?
 .M:: Æ PRÉSIDENT. — Voici le résultat du dépouille- Pa:
 Nombre MES votants 02 ALT 580 2
-D Majorité absolue... ... ...): ... . | 966 ÿs
-‘27e je
-. PONS Pour l'adoption. . . . .. 212
-‘RO BARRE Me TS CA CN AMIS !
 _ La Chambre des députés n'a pas adopté. (Applaudis- ‘at:
 sen rents au centre et à droite) aR
 pe M. Cuaruis. — Je demande la priorité en faveur de #
 mo n ordre du jour. PE
 Mie PRÉSIDENT. — La priorité a été demandée, en :
-FSI ET . À : : Ve
 Second lieu, par M. Magniaudé. Insiste-il ? Ù
 — M: MacnrauDÉ. — Je me rallie au projet de résolu- F
 tion de M. Chapuis et je lui cède mon tour de priorité.
 —… M. Asmær. — J'ai réclamé la priorité pour mon ordre f
-P P
 OM | MaGnrAuDé. — C'est possible, mais j'ai demandé .
 la priorité après M. Jaurès et j'ai cédé mon tour de re
 A priorit é à M. Chapuis, me ralliant à son texte. AC
-ES 0 .
 © M LE PRÉSIDENT. — C'est exact. Je vais appeler la
-"ESP L Tota £.
 “Chambre à se prononcer sur la priorité du projet de
-ñ # a . . ” .
 S ésolution de MM. Chapuis et Péret, dont je rappelle x
 W. La Chambre, confiante dans le Gouvernement, et
 _ résolue à ne pas laisser sortir l'affaire Dreyfus du
 domaine judiciaire, passe à l'ordre du jour.
 ra . Massapuau. — Je demande la parole pour expli_quer mon vote.
-DNS
 + PAR je ET hp?
-
-4 à Me FAST
-Invalidation Syveton LS #07
 
 M. LE PRÉSIDENT. — La parole est à M. Massabuau.
 
@@ -8360,7 +6888,6 @@ M. Chapuis d'autant plus volontiers que, comme je \
 l'aurais dit à cette tribune si je n'avais cédé mon tour D
 de parole à un de nos collègues qui m'en avait prié, i
 que je m'étonne qu'on vienne chercher des responsabilités quand une loi d'amnistie les a mises hors de :
-cause. (Mouvements divers) $
 
 M. LE PRÉSIDENT. — Je mets aux voix la priorité du
 
@@ -8373,7 +6900,6 @@ M. LE PRÉSIDENT. — Il y a une demande de scrutin
 signée de MM. Bouctot, Fleury-Ravarin, de Castelnau,
 Cibiel, Lechevallier, de Caraman, Eugène Motte,
 Marot, de Boury, Ballande, Cornudet, Charles Benoist,
-Raiïberti, J. Thierry, etc.
 
 Le scrutin est ouvert. 4 |
 
@@ -8383,42 +6909,22 @@ font le dépouillement.)
 M. ze PRÉSIDENT. — Voici le résultat du dépouillement du scrutin :
 
 È Nombre des votants. 1.1.1
-Majorité absolue ir St 273
-
-\ Pour l'adoption. . . . . . 367 |
-
-Contre Es RAM 178 |
 
 La Chambre des députés a adopté. (Applaudissements
 au centre et sur divers bancs) |
 
 M. LE PRÉSIDENT. — Je consulte la Chambre sur le |
-fond.
 
 Au centre. — Nous demandons la division.
 
-CRT TA
-
-A :
-ROUMN 0 (INTERVENTION JAURES ‘
 M. 1e PRÉSIDENT. — On demande la division après les
-mots:
 on .… La Chambre, confiante dans le Gouvernement.
 NicJe mets aux voix cette partie du projet de résolution. »  Ily a une demande de scrutin, signée de MM. Salis,
-J HE £
-_ Defontaine, Razimbaud, Petitjean, Louis Martin, Mir-
-. man, Gerville-Réache, Féron, Carpot, Klotz, Georges
 | Berger, Charles Chabert, Fouquet, Coulondre, etc.
 Le scrutin est ouvert. ë
 ‘4 . (Les votes sont recueillis. — MM. les secrétaires en
 … font le dépouillement.)
 …. M.2e PrRÉsienT. — Voici le résultat du dépouillefe: ment du scrutin: sus
-7.5 Nombre des votants. . . . . . . . . 499
-DE: Majorité absolue. . . . . . . . . . . 250
--2É4 Re
-Er Pour l'adoption . . . ... 282
-FRS Honre td eo fr Ke d'or
-+15
 #4 La Chambre des députés a adopté.
 Li. Je mets aux voix maintenant la seconde partie du
 -… projet de résolution de MM. Chapuis et Péret :
@@ -8429,11 +6935,6 @@ M. Famrn-Cessron. — C'est un blâme pour le
 Ë se _M:2E PRÉSIDENT. — Il y a une demande de scrutin
 … publie, signée de MM. Bouctot, Cibiel, Marot, Eugène
 _ Motte, de Castelnau, de Caraman, Lechevallier, de
-: _ Gontaut-Biron, Ballande, Jules Roche, Buisson, Georges À
-Grosjean, Cornudet, Fleury-Ravarin, Arnal, Charles
-VIF
-Rens Be Rates PIC:
-ETE 215
 
 Invalidation Syveton MA.
 . Le scrutin est ouvert. ‘ 2
@@ -8441,101 +6942,57 @@ Invalidation Syveton MA.
 font le dépouillement.) “4
 , M. LE PRÉSIDENT. — Voici le résultat du dépouillement du scrutin : ù *
 Nombre des votants #10 Ne 008 458 ;
-Majorité absolue. EN PRE ;
-Pour l'adoption. . . . . . 383 4
-Conire HA PERRIER 7 ; k
 La Chambre des députés a adopté. é
 Je mets aux voix l'ensemble du projet de résolution.
 Il y a une demande de scrutin, signée de MM. Buyat,
-Pajot, Bussière, Jules-Louis Breton, Charles Chabert, |
-Trouin, Debaune, Pastre, Octave Vigne, Viollette,
-Vazeïlle, Gouzy, Augé, Baudin, Chambige, Rouby, etc,
 Le scrutin est ouvert.
 (Les votes sont recueillis. — MM. les secrétaires en M
 font le dépouillement.) j
 M. LE PRÉSIDENT. — Voici le résultat du dépouille- l
 ment du scrutin :
 Nombre des votants! "20cm 325 | )
-Majorité absolue "17e MhRReMrITer 163 |
-Pour l'adoption. . . . . . 250
-Contre MEN ee 7o :
 La Chambre des députés a adopté. ;
 M. ze Hérissé. — Je constate qu'il y a dans la
 Chambre 55 voix pour la politique de M. Jaurès et la.
 réouverture de l'affaire Dreyfus. Il importe que le pays + « le sache. |
 
 MEN ES dal Ale LE eut Le EN A MoN de Gad ds
-tag FE AA 6 1 à À TEEN
 …_ Annexe au procés-verbal de la séance EAU
 Re du mardi 7 avril eut
-a 21 TARA 4 À 4
 Ë 4 les conclusions de la commission d'enquête tendant à F4
 _ da , validation des opérations électorales du deuxième arron- É
 FC dissement de Paris. (Résultat du pointage) 1
 Nombre des votants. .......+ 509 JE RUN
-2 TOR ONSIPE MS 5 TA HA
-I ESRR Motte fabsolue.. : , .: 4. . | 95 LTÉE
 SEE Pour l'adoption . . ... 928 El
-RS Mines. 2 Nogr PE
 La Chambre des députés n'a pas adopté. s ARE
-RAT ÿ
-4 ONT VOTÉ POUR : (ci
-: ANRT < A
-MX. Adam (Achille). Alsace.(comte d'), prince d''Hénin. ji
 _ Amodru. Anthime-Ménard. Archdeacon. Argeliès. Arnal. LA
-- Audiffred. Audigier. Auffray (Jules). Aynard (Édouard). tel
 4 _Ballange. Bansarddes Bois. Baron (Jules) (Maine-et-Loire). ;
 … Barrois. Bartissol. Baudry d'Asson (de). Beauregard (Paul) é
 6 eine). Beauregard (de) (Indre). Benoist (de) (Meuse). ue
-. Berger (Georges). Berry (Georges). Berthoulat (Georges). te
-ELLB ertrand Paul) (Marne). Bignon (Paul). Bischoffsheim. JEU
 k. Boissieu (baron de). Bonnevay. Bonte. Bonvalot. Borgnet. »
-[a Boucher (Henry). Bouctot. Bougère (Ferdinand). Bougère_ FE
 (Laurent). Bourgeois (Paul) (Vendée). Boury (de). Brice Ke
 _ (Jules) (Meurthe-et-Moselle). Brice (René) (Ille-et-Vilaine). ,
 . Brindeau. Brisson (Joseph) (Gironde). Broglie (due de). $
 ) de Cachet. Caffarelli (comte). Capéran. Caraman (comte de). .
 Carnot (François). Castellane(comteStanislas de). Castelnau
-FA É TRRS 7
-: MAN C LR TR $
-
-te DTA RU ren
-
-Invalidation Syveton LEURS
 
 (de). Cavaignac (Godefroy). Chambrun (marquis de). à:
-CharlesBenoïst(Seine). Chevalier. Cibiel. Cochery (Georges).
 Cochin (Henry) (Nord). Cornudet (vicomte). Corrart des
-Essarts. Coutant (Paul) (Marne).
 
-Dansette (Jules). Darblay. Daudé. Dèche. Delafosse :
-(Jules). Delarbre. Delaune (Marcel). Delombre (Paul).
-Denis (Théodore). Déribéré-Desgardes. Derrien. Desjardins
 (Jules). Dion (marquis de). Drake (Jacques). Duclaux-
 
- Monteil. Dujardin-Beaumetz. Dulau (Constant). Duquesnel.
-Durand. Dutreil.
-
-Elva (comte dd'). Engerand (Fernand). Ermant.
 Estourbeillon (marquis de l).
 
-Fabien-Cesbron. Fabre (Léopold). Failliot. Faure{Firmin).
-Ferrette. Flandin (Ernest) (Calvados). Fleury-Ravarin.
 Flourens. Fontaines (de). Forest. Fouché. Fouquet(Camille). R
-Fruchier. .
 
 Gaffier. Gailhard-Bancel (de). Gaillard (Jules). Galot (Gules).”
 Galpin (Gaston). Gauthier (de Clagny). Gautier (Léon) -
-(Vosges). Gayraud. Gellé. Gérard (baron Maurice)
 (Calvados). Gérard (Edmond) (Vosges). Gervaize (Meurtheet-Moselle). Gévelot. Ginoux-Defermon. Gonidec de Traissan
 (comte le). Gontaut-Biron(comteJoseph de). Goujon (Julien):
 Gourd. Grandmaison (de). Grosdidier. Grosjean. Groussau.
 Guiilain. Guilloteaux. Guyot de Villeneuve.
 
 Halgouet (lieutenant-colonel du). Harriague Saint-Martin.
-Haudricourt. Hémon. Holtz.
-
-Jacquey (général). Jules Jaluzot. Jules Legrand (BassesPyrénées).
 
 Kerjégu (J. de). Krantz (Camille).
 
@@ -8545,18 +7002,12 @@ La Ferronnays (marquis de). Lamy. Laniel (Henri):
 Lanjuinais (comte de). Lannes de Montebello. Largentaye
 (Rioust de). Laroche-Joubert. La Rochethulon (comte de). |
 Lasies. Laurens-Castelet (marquis de). Laville. Lebaudy
-(Paul). Lebrun. Lechevallier. Lefas. Léglise. Legrand
 (Arthur). Le Hérissé. Lemire. Lepelletier (Edmond):
 
-1} 2x8 ù
-
 1 EEE te MN LORS De
-à. INTERVENTION JAURÈS | AY
-SPORE LE ” Ds 5 : TE
 L erolle. Lespinay (marquis de). Lévis-Mirepoix (comte : f:
 _ de) + Limon . Loque. Ludre (comte Ferri de). DEL
 …Mackau (baron de). Mahy (de). Mando. Marot (Félix). ‘+
-Massabuau. Maure. Maurice Binder. Maurice Spronck. ÿ
 +  Maussabré (marquis de). Méline. Michel (Adrien) (Haute- É
 Loir e) Millevoye. Miossec. Montaigu (comte de).
 Montalembert (comte de). Motte. Moustier (marquis de).
@@ -8564,334 +7015,105 @@ fun (6 omte Albert de). ;
 f © livier. Ornano (Cuneo d'). Osmoy (comte d”). l » Pain. Passy (Louis). Paulmier. Périer (Germain). Périer ;
 de | Larsan (comte du). Perroche. Pichat, Pins (marquis de). f!
  Plichon. Pomereu (comte de). Prache. Pradet-Balade. ‘
-” Proust. Pugliesi-Conii. ;
 « Raiberti. Ramel (de). Rauline. Reille (baron Amédée). |
-Reille (baron Xavier). Renault-Morlière. Rey (Emile). Ribot. rs
-DR RTC y
-Riotteau. Ripert. Roche (Ernest) (Seine). Roche (Jules)
 (Ardèche). Roger-Ballu. Rohan (duc de). Roscoat (vicomte
 du). Rose. Rouland. Rousset (lieutenant-colonel). Rouvre
 (Bourlon de). Rozet (Albin). Rudelle.
 Saint Martin (de). Saint-Pol (de). Savary de Beauregard. j
 Schne der (Eugène) (Saône-et-Loire). Sibille. :
-Tailliandier. Thierry. Thierry-Delanoue. Tournade.
-. Vigouroux. Villiers.
-RTS. {
-+. ONE ONT VOTÉ CONTRE : :
-dé VER
-… MM: Abel-Bernard. Albert-Poulain. Aldy. Allard. Andrieu.
-Antoine Gras. Arbouin. Arène (Emmanuel). Aristide 4
-P riand. Astier. Astima (colonel). Aubry. Augé. Authier.
 Bachimont. Bagnol. Balandreau. Baron (Gabriel) (Bouches-du-Rhône). Barthou. Basly. Baudet (Charles) (Côtesdu-Nord). Baudet (Louis) (Eure-et-Loir). Baudin (Pierre). : à
-Baudon | Oise). .Beauquier. Begey. Bellier. Bénézech.
 | Bepmale. Bérard (Alexandre). Bersez. Berteaux. Berthet.
-Bertrand (Lucien) (Drôme). Bichon. Bizot. Bony-Cisternes.
-: LATE 219
 
-Invalidation Syveton fe
-
-Bouhey-Allex. Bourrat. Boutard. Bouveri. Braud. Breton s
 (Jules-Louis). Brisson (Henri) (Bouches-du-Rhône). Brunard.
 
 L Buisson (Ferdinand) (Seine). Bussière. Buyat. ;
 
-Cadenat. Camuzet. Cardet. Carnaud. Catalogne. Cazauvieilh. Caze (Edmond). Cazeaux-Cazalet. Cazencuve: Cère
-(Æmile). Chaigne. Chambige.Chambon.Chanal. Chandioux.
-
-+ Chapuis. Charles Chabert (Drôme). Charonnat. Charpentier.
-Charruyer. Chastenet (Guillaume). Chaumet. Chaussier.
 Chautemps (Alphonse) (Indre-et-Loire). Chautemps (Emile)
-(Haute-Savoie). Chauvière. Chavoix. Chenavaz. Clament
-(Clément) (Dordogne). Clément (Martinique). Clémentel.
-Cloarec. Codet (Jean). Colin. Colliard. Compayré (Emile). k
-Constans (Paul) (Allier). Constant (Emile) (Gironde).
-Corderoy. Cornet (Lucien). Coulondre. Coutant (Jules)
-(Seine). Cruppi.
 
-Dasque. Dauzon. David (Alban) (Indre). David (Fernand)
-(Haute-Savoie). Debaune (Louis). Debève (François).
-Debiève (Anatole). Debussy. Decker-David. Defontaine.
-Defumade. Dejeante. Delarue. Delbet. Delcassé. Deléglise:
-Delmas. Delory. Denêcheau. Desfarges (Antoine). Deshayes.
-Devèze. Dormoy. Doumer (Paul). Doumergue (Gaston). -
-Dron. Dubief. Dubois (Emile). Dufour (Jacques). Dumont
-(Charles). Dunaime. Dupuy (Pierre). Dussuel.
-
-Éliez-Évrard. Émile Chauvin. Empereur. ŒEscanyé.
-Euzière.
-
-Fernand-Brun. Féron. Ferrero. Ferrier. Fiquet. Fitte.
-Fournier (François).
-
-Gabriel Denis. Gabrielli. Galy-Gasparrou. Gauvin. Genet.
-Gentil. Gérault-Richard. Gervais (Seine). Gerville-Réache:
-Girod. Godet (Frédéric). Goujat. Gouzy. Grousset (Paschal).
-Guieysse. Guingand. Guyot-Dessaigne.
-
-Henrique-Duluc. Herbet. Hubbard. Eugon. Hugues (Clovis)
-(Seine).
-
-Iriart d'Etchepare (4°). Isambard. Isnard.
-
-Janet (Léon) (Doubs). Jaurès. Jeanneney. Jehanin.
-Jourdan (Louis). Judet. Jumel.
-
-Pur PR AC . F 4 £ fra. 4 ge" Ÿ y
-INTERVENTION JAURÈS +
-se XKlotz. Kranss. f
-… Labussière. Lachaud. Lacombe (Louis). Lafferre. Lamen- ‘
 =. Labussière. Lachaud. Lacombe (Louis). Laferre. L
 _ din. Lanessan (de). Larquier. Lassalle. Lauraine. Leffet.
 ] * Lepez. Lesage. Le Troadec. Leygue (Honoré) (Haute- j
-rs ‘onne). Leygue (Raymond) (Haute-Garonne). Lhopiteau.
-__  Lockroy. Loup.
-ve  Magniaudé. Malaspina. Maret (Henry). Martin (Bienvenu)
-_ (Xonn e). Martin (Louis) (Var). Maruéjouls. Mas. Massé. "
-—. Maujan. Menier (Gaston). Mercier (Jules).Merlou. Meslier.
 | Me simy. Michel (Henri) (Bouches-du-Rhône). Mil (Louis).
 # Minier (Albert). Monfeuillart. Morlot. Mougeot. Mulac. +
-_  Muteau.
 Ni; Pajot. Pams. Pasqual. Pastre. Paul Meunier. Pavie.
-_ Pelletan (Camille). Péret. Péronneau. Perrin. Petit. J
-M À Petitjean. Peureux. Pichery. Pierre Poisson. Piger. Pressensé 4
 _ (Francis de). Puech. ?
-Hi. … Rabier (Fernand). Ragot. Rajon (Claude). Razimbaud.
-EN. Régnier. René Renoult. Réveillaud (Eugène). Ridouard.
-_ Rivet (Gustave). Rouanet. Rouby. Rougier. Rousé. Ruau.
-TR _Sabaterie. Salis. Sandrique. Sarraut (Albert). Sarrazin. :
-_ Saumande. Sauzède. Schneider (Charles) (Haut-Rhin). ‘
-— Selle. Sembat. Sénac. Serres (Honoré). Siegfried. Simonet.
-Ve  Simyan. Sireyjol.
 | Les | Tavé. Théron. Thivrier. Thomson. Tiphaine. Tourgnol.
-… Tournier (Albert). Trouillot (Georges). Trouin.
-sd | Vacherie. Vaillant. Vazeille. Veber (Adrien). Vialis.
-.. Vigne (Octave) (Var). Vigné (Paul) (Hérault). Villaultin _ Duchesnoïs. Villejean. Viollette, Vival.
 ni SR
-4 Po. UT N'ONT PAS PRIS PART AU VOTE :
 > MM. Arago (François).
- … Bourgeois (Léon) (Marne).
-CSS
 
-NME Invalidation Syoeton A
-: Cardon. Carpot. Charles Bos. ot PE S : “VS
-Decrais. Delelis. Deloncle (François). Disleau, Dubuisson. 15
 ; Etienne. Ve : | SN CS ne Fi
 La Batut (de). Laurençon. Levet (Georges). Levraud.
 | Lozé. : ‘L'AERÈEE
 l Malizard. Mirman. Morel. LES
-Syveton. Me
-Turigny. su FAPIE
 N'A PAS PRIS PART AU VOTE : ER Rene M 1
 le député dont l'élection est soumise à l'enquête: de
-SE SN SIER
-M. Congy. RAS à 4
 ABSENTS PAR CONGÉ : LR ki
-D MM. Ancel-Seitz. Armez. 5 ÿ: "10
-Babaud-Lacroze. Balitrand. Beharelle. Boyer: (antide).
-Brunet. Ra + À : 10
 FAT Caïillaux. Castellane (comte Boni de). Castillard. Gauvin Hi: 4
-(Ernest). Chabert (Justin) (Rhône). Chamerlat. Chanoz. AI {
 | Coache. Cochin (Denys) (Seine). Couyba. ie : oi nu!
 } _ David (Henri) (Loir-et-Cher). Derveloy. Deschanel Fabre a À
 | Devins. #0 Ne de.
-Estournelles (d'). À mn |
-Flandin (Étienne) (Yonne). NL Hi
-Gérald (Georges). io 4 5
-TEE Hubert. Hugues (François) (Aisne). Sr: per 4
 #4 Jonnart. TE NE
 . Le Baïl. Le Mare. Le Moigne. Leroy (Modeste). Leygues
 4 (Georges) (Lot-et-Garonne). EP TIRNES
 __ Millerand. Mollard. Montjou (de). Ra FU
-! Noël. Noulens. À ti TEE
 Plissonnier. Poullan. Pourteyron. NE S Dr re
-Quilbeuf. 4) MER
-Richard (Pierre). Robert Surcouf, Roch. Ra Û si
 | ‘ 222 à | 1110 |
 | ‘us
 
-M 0 NPC ANS
-
-446 ERVENTION JAURÈS | AUURE. As
-
-arrien. Suchetet. s 1 3000
-
 _  Thierry-Cazes. Torchut. \ ENTRE
-rN Me 4 4 “ La
 
 _ M. Dunaime, porté comme ayant voté contre dans le {
 
-Ê crutin ci-dessus, déclare avoir voulu s'abstenir. LR
-
-L RE, PUS
-LEUR SCRUTIN
 Sar la priorité en faveur de l'ordre du jour de MM, Jaurès,
 
 140 A Henri Brisson, Jean Codet et Maujan.
 
-\ | Nombre MES yotanis 0, Ve 212 25 /NDO0: |
-Majorité DOPOeNSAE LUS |: LU 7/00E “
-AT à
-De Pour l'adoption. . . . . . 196
-14 ARE 2.304 #.,
 La Chambre des députés n'a pas adopté.
 
-LES ; ONT VOTÉ POUR :
-
-STE es À a ,
-
-? M) 4: Abel-Bernard. Albert-Poulain. Aldy. Allard. Andrieu.
-
-Antoine Gras. Arbouin. Arène (Emmanuel). Aristide
-
-Briand. Aubry. Augé. Authier. :
 £: Bachim ont. Bagnol. Baron (Gabriel) (Bouches-du-Rhône).
 
 Basly. Baudet (Louis) (Eure-et-Loir). Baudin (Pierre).
 
-. Baudon (Oise). Beauquier. Begey. Bénezech. Bepmale.
-
-Bert éaux. Bertrand (Lucien) (Drôme). Bizot. Bony- ;
-Gistern es. Bouhey-Allex. Bourrat. Boutard. Bouveri. Braud.
 psa (Juies-Louis). Brisson (Henri) (Bouches-du-Rhône).
 
-Brunard. Buisson (Ferdinand) (Seine). Bussière. Buyat.
-_ Cad enat. Camuzet. Cardet. Carnaud. Carpot. Cazeneuve. =
-Cère Em ile). Chambige. Chambon. Chanal. Chandioux. a.
-Charles Bos. Charles Chabert (Drôme). Charonnat. Charpentier. Chaussier. Chauvière. Chavoix. Chenavaz. Clament
-rs ete M: … 0
-"RE 233 :2
-
-FES
-Invalidation Syveton à
-
-Mae
-(Clément) (Dordogne). Clément (Martinique). Cloarec. x È
-Codet (Jean). Colin. Colliard. Compayré (Emile). Constans |
-(Paul) (Allier). Cornet (Lucien). Coulondre. Coutant (Jules) à
-(Seine). i À
-
-Dasque. Dauzon. Debeaune (Louis). Decker - David. "à
-Defumade. Dejeante. Delarue. Delmas. Deloncle (François). À
-Delory. Desfarges (Antoine). Devèze. Dubief. Dubois ;
-(Emile). Dufour (Jacques). Dumont (Charles). h:
-
-Émile Chauvin. Euzière. À
-
-Féron. Ferrero. Ferrier. Fiquet. Fitte. Fournier (Fran: |.
-çois). Ë
-
-Gabrielli. Galy - Gasparrou. Genet. Gentil. Gérault- À
-Richard. Gerville-Réache. Girod. Goujat. Gouzy. Grousset |
-(Paschal). Guieysse. Guingand. Guyot-Dessaigne.
-
-Herbet. Hubbard. Hugon. Hugues (Clovis) (Seine). |
-
-Isambard. Isnard.
-
-Jaurès. Jehanin. Jourdan (Louis). Judet. Jumel. ? pi
-
-Krauss. ï
-
-Labussière. Lachaud. Lacombe (Louis). Lafferre. Lamen- he
 din. Lanessan (de). Lassalle. Lesage. Levraud. Leygue
-(Honoré) (Haute-Garonne). Leygue (Raymond) (Haute- 4
-Garonne). Lhopiteau. Loup. Ie
 
-Malaspina. Malizard. Maret (Henry). Martin (Bienvenu)
-(Yonne). Massé. Maujan. Merlou. Meslier. Messimy. Michel
 (Henri) (Bouches-du-Rhône). Mill (Louis). Minier (Albert). }
 
-Czun. À
-
-Pajot. Pams. Pastre. Péronneau. Perrin. Petitjean. :
 Peureux. Pierre Poisson. Piger. Pressensé (Francis de):
-Puech.
 
-Rabier (Fernand). Rajon (Claude). Razimbaud. Régnier.
-René Renoult. Réveillaud (Eugène). Rivet (Gustave).
-Rouanet. Rouby.
-
-Salis. Sarraut (Albert). Sarrazin. Saumande. Sauzède.
-Schneider (Charles) (Haut-Rhin). Selle. Sembat. Senac.
-Serres (Honoré). Siegfried. Simonet. Simyan. Sireyjol.
-
-AA SES INTERVENTION JAURÈS
 ne. Tavé. Théron. Thivrier. Thomson. Tourgnol. Tournier
-‘ (Albert). Trouin.
-
-‘8 Ursleur. F:
-
-5 Vacherie. Vaillant. Vazeille. Veber (Adrien). Vialis.
-; - Vigne (Octave) (Var). Vigné (Paul) (Hérault). Villejean.
-__  Viollette. Vival.
 
 ET. Walter.
-à UE ONT VOTÉ CONTRE :
 
 | ? MM. Adam (Achille). Alsace (comte d'), prince d'Hénin.
-ALAN Amodru. Anthime-Ménard. Archdeacon. Argeliès. Arnal.
-‘# Astier. Audiffred. Audigier. Auffray (Jules) Aynard
-(Édouard).
 
 a Balandreau. Ballande. Bansard des Bois. Baron (Jules)
 Fe (Maine-et-Loire). Barrois. Barthou. Bartissol. Baudet
 + (Charles) (Côtes-du-Nord). Baudry d'Asson (de). Beauregard
 Pé (Paul) (Seine). Beauregard (de) (Indre). Bellier. Benoist (de)
-1e (Meuse). Berger (Georges). Berry (Georges). Bersez. Berthet.
-: Berthoulat (Georges). Bertrand (Paul) (Marne). Bignon
 à (Paul). Bischoffsheim. Boissieu (baron de). Bonnevay.
-; Bonte. Bonvalot. Borgnet. Boucher (Henry). Bouctot.
-‘4 ; Bougère (Ferdinand). Bougère (Laurent). Bourgeois (Paul)
 R (Vendée). Boury (de). Brice (Jules) (Meurthe-et-Moselle).
 b: Brice (René) (Ille-et-Vilaine). Brindeau. Brisson (Joseph)
 Hi (Gironde). Broglie (duc de).
 
 É- ; Cachet. Caffarelli (comte). Caraman (comte de). Cardon.
 à _ Carnot (François). Castellane (comte Stanislas de). Casee telnau (de). Catalogne. Cavaignac (Godefroy). Cazauvieilh.
-Là Caze (Edmond). Cazeaux-Cazalet. Chaigne. Chambrun
 S (marquis de). Chapuis. Charles Benoist (Seine). Charruyer.
-…_  Chastenet (Guillaume). Chaumet. Chautemps (Alphonse)
 ss - (Indre-et-Loire). Chautemps (Émile) (Haute-Savoie). Chevaat lier. Cibiel. Cochery (Georges). Cochin (Henry) (Nord).
-£ Congy. Constant (Émile) (Gironde). Corderoy. Cornudet
 ES (vicomte). Corrart des Essaris. Coutant (Paul) (Marne). « ë Cruppi. |
 
-Las Dansette (Jules). Darblay. Daudé. David (Alban) (Indre).
-David (Fernand) (Haute-Savoie). Debève (François).
-Date
-
-La
-
-PS
-
-Invalidation Syveton ETATS
-Debiève (Anatole). Dèche. Decrais. Delafosse (Jules). rs
-Delarbre. Delaune (Marcel). Delbet. Deléglise. Delelis. 23
-Delombre (Paul). Denêcheau. Denis (Théodore). Déribéré- |
 Desgardes. Derrien. Desjardins (Jules). Dion (marquis de). +
-Dormoy. Doumer (Paul). Drake (Jacques). Dron. Dubuisson. :
-Duclaux-Monteil. Dujardin-Beaumetz. Dulau (Constant). A
-c Dunaime. Dupuy (Pierre). Duquesnel. Durand. Dussuel.
-Dutreil. 110
-Éliez-Evrard. Elva (comte d')} Empereur. Engerand n.
 (Fernand). Ermanit. Estourbeillon (marquis de F). 14
-Fabien-Cesbron. Fabre (Léopold). Failliot. Faure (Firmin). à
-Fernand Brun. Ferrette. Flandin (Ernest) (Calvados). x
 Fleury-Ravarin. Flourens. Fontaines (de). Forest. Fouché, À
-Fouquet (Camille). Fruchier. |
 Gaflier. Gailhard-Bancel (de). Gaillard (Jules). Galot Re
 (Jules). Galpin (Gaston). Gauthier (de Clagny). Gautier %
-(Léon) (Vosges). Gauvin. Gayraud. Gellé. Gérard (baron 5
-Maurice) (Calvados). Gérard (Edmond) (Vosges). , Gervais “
 (Seine). Gervaize (Meurthe-et-Moselle). Géveloi. Ginoux- x
 Defermon. Gonidec de Traissan (comte le). Gontaut-Biron #
 (comte Joseph de). Goujon (Julien). Gourd. Grandmaison À
 (de). Grosdidier. Grosjean. Grousseau. Guiïllain. Guilloteaux. ï
 Guyot de Villeneuve. ‘3
 Halgouet (lieutenant-colonel du). Harriague Saint-Martin. 1
-Haudricourt. Hémon. Henrique-Dulue. Holtz. ;
-Iriart d'Htchepare (d'). 4
-Jacquey (général). Janet (Léon) (Doubs). Jeanneney. $
-Jules Jaluzot. Jules Legrand (Basses-Pyrénées). r
 Kerjégu (J. de). Klotz. Krantz (Camille). :
 La Batut (de). La Bourdonnaye (comte de). La Chambre. ÿ
 Lachièze. La Ferronnays (marquis de). Lamy. Laniel à
@@ -8899,177 +7121,89 @@ Lachièze. La Ferronnays (marquis de). Lamy. Laniel à
 Largentaye (Rioust de). Laroche-Joubert. La Rochethulon & -
 (comte de). Larquier. Lasies. Lauraine. Laurençon. Ml
 Laurens-Castelet (marquis de). Laville. Lebaudy (Paul). |
-Lebrun. Lechevallier. Lefas. Leffet. Léglise. Legrand y
 (Arthur). Le Hérissé. Lemire. Lepelletier (Edmond). Lepez. È
-226 Ni
 
-AA eee ACER RL EEE He es CUS
-D ve
 | GATE + 1 INTERVENTION JAURÈS | 4 Dax
 er: Lerolle. I espinay (marquis de). Le Troadec, Levet (Georges). AAC
 \ BL fe N lirepoix (comte de). Limon. Lockroy. Loque. Lozé. s
 F 4 Ludre (comte Ferri de). ; :
 _  Mackau (baron de). Magniaudé. Mahy (de). Mando. "5
-… Marot (Félix). Massabuau. Maure. Maurice Binder. Maurice TP
 PL Spronck. Maussabré (marquis de). Méline. Menier (Gaston). ;
-_ Mercier (Jules). Millevoye. Miossec. Mirman. Monfeuillart. AS
 .. Mo ntaigu (comte de). Montalembert (comte de). Morel. ;
 a Mon ot. Motte. Moustier (marquis de). Mulac. Mun (comte
 FR Albert de). Muieau. #
-5 xs Ollivier. Ornano (Cuneo d'). Osmoy (comte d'). Er
-2% Paie Pasqual. Passy (Louis). Paul Meunier. Paulmier.
 RE el _Périer (Germain). Périer de Larsan (comte du). :
 Perroche. Pichat. Pichery. Pins (marquis de). Plichon. !
 si _ Pomereu (comte de). Prache. Pradet-Balade. Proust. -
 | Pugliesi-Conti. | DETTE
 …_ Ragot. Raïberti. Ramel (de). Rauline. Reïlle (baron
-—._ Amédée). Reille (baron Xavier). Renault-Morlière. Rey
-nt mile). Ribot. Ridouard. Riotteau. Ripert. Roche (Ernest) ù
-+ er seine). Roche (Jules) (Ardèche). Roger-Ballu. Rohan (duc :
 de). Roscoat (vicomte du). Rose. Rouland. Rousé. Rousset UE
 … (lieutenant-colonel). Rouvre (Bourlon de). Rozet (Albin).
-FA  Ruau. Rudelle. - É
 ua Saint-Martin (de). Saint-Pol (de). Sandrique. Savary de
 Beauregard. Schneider (Eugène) (Saône-et-Loire). Sibille. |
-“…_._ Taïillandier. Thierry. Thierry-Delanoue. Tournade.
-__ Vigouroux. Villault-Duchesnois. Villiers.
 $ éE. À si N'ONT PAS PRIS PART AU VOTE : rs 2
 Ta _ MM. Arago (François). Astima (colonel). LES
 # | Bérard (Alexandre). Bichon. Bourgeois (Léon) (Marne). :
 | Capéran. Clémentel. AE
-à = a Debussy. Defontaine. Delcassé. Deshayes. Disleau.
-+ . Doumergue (Gaston). « 3 FT VE 227 ke,
 
 oh EE ER ON RE NOR
 
 ENT NE NE FRERE à < ANA ET TNS CAERR SO UE pr CRE de PS
-500 2 27 Mnpalidation Syveton 00
-sort _ Escanyé. Étienne. HAE a NU LATE D
-_ Godet (Frédéric). R |
-Martin (Louis) (Var). Maruéjouls. Mas. Michel (Adrien)
 
-RU (Haute-Loire). Mougeot. HMS Éoert :: À
-: AC Pavie. Pelletan (Camille). Petit. 7 LÉ ëti + <
-
-: Ÿ ‘ nee LS À F j
-_ Sabaterie. Re
-Qu Tiphaine. Trouillot (Georges). Turigny. SE PP. HN
-A ABSENTS PAR CONGÉ : SR
-2 MM. äncel-Scitz. Armez. © LL NES
-nie - Babaud-Lacroze. Balitrand. Behareile. Boyer (Antide). |
 : Caillaux. Castellane (comte Boni de). Castillard. Cauvin
-__ (Ærnest). Chabert (Justin) (Rhône). Chamerlat. Chanoz.
-SR Coache. Cochin (Denys) (Seine). Couyba. RC VE
 M David (Henri) (Loir-et-Cher). Derveloy. Deschanel (Pa al). Li
-FRE Devirs. F: AE J
-LR Estournelles (d'). mL AT We
 #1 Flandin {Étienne) (Yonne). 22 FE Fe
 Un. Gabriel Denis. Gérald (Georges). CSSS
-KR Hubert. Hugues (François) (Aisne). UE res ei"
-À Jonnart. 2 4706 ;
-Fa : : ‘9 2 RPSESENES
 Re Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues… |
 12 {Georges) (Lot-et-Garonne). . . ee Me |
 Ro Millerand. Mollard. Montjou (de). + LS
-set , Noël. Noulens. Re
-___  Plissonnier. Poullan. Pourteyron. à LAN
 | Richard (Pierre). Robert Surcouf. Roch. . VINS l
 Re:  Sarrien. Suchetet. Là : LE l
-ie Thierry-Cazes. Torchut. NUITS #08 0
-ee Vallée. Vogeli. : +1 RARES
-hi 3 RER? nel
-RE DT,
 
 ET RU MT RE Rte AU NOUS PA PAS Do PTS UE nel 4 Le
 | ‘INTERVENTION JAURÈS | PE NN A PO
-A 7, ; ' (SAR
-FAT RE TE: MOTOR pl En : ren | ‘ANA
 | jte es annoncés en séance avaient été de : LAS Ÿ
-{ A R Nimbre dés votants ANS 4.0 680 TER Nes
-Majorité ADSOHE RS MUNIE Mens the a66 A SR
 #24 PAPour l'adoption |. 41.11 are RAGE À
-Een. MeOntre st UE EU 7 318 2 Re
-472 ; NE
 CM ais, après vérification, ces nombres ont été rectifiés ES
 …_ conformément à la liste de scrutin ci-dessus. De
 | Sur! la priorité en faveur de l'ordre du jour de M. Chapuis
 êa F2 Nombre des votants." , 2... x) /ga CALE
-0 Mijorité absolue. . .. / .. + 1939 us
-À FRA Pour l'adoption. . : . 4.1) 336 AU ni
-Verte DARCOS MR 146 ô EVE
-“ie ‘1 : FEAR EN 2
-Re ê jà RAS
 dt _ La Chambre des députés a adopté. ï pe |
-' 58 k Qu
-" * NATURE
 5m 20 res ONT VOTÉ POUR : Faro)
 J5R _ MA : Adam (Achille). Alsace (comte d'), prince d'Hénin. Me
-… Amodru. Anthime-Ménard. Arago (François). Archdeacon. Pa
-_ Argeliès. Arnal. Astima (colonel). Audiffred. Audigier. 1
-Auf ray (Jules). Aynard (Édouard). RU
 }  Bala ndreau. Ballande. Baron (Jules) (Maine-et-Loire). AU
 Barrd is. Barthou. Bartissol. Baudet (Charles) (Côtes-du- Lau
 Nord). Baudry d'Asson (de). Beauregard (Paul) (Seine).
 Beauregard (de) (Indre). Bellier. Benoist (de) (Meuse). uu
 | Berger (Georges). Berry (Georges). Bersez. Berthet. PARENT
-Berthou t (Georges). Bertrand (Paul) (Marne). Bignon AG Pa
 | (Paul). Bischoffsheim. Boissieu (baron de). Bonnevay.
-_Bonte. Bonvalot. Borgnet. Boucher (Henry). Bouctot. UT
 | MANN 2e )
 
 TInvalidation Syveton Les
-Bougère (Ferdinand). Bougère (Laurent). Bourgeois (Paul)  :
 (Vendée). Boury (de). Boutard. Brice (Jules) (Meurthe-etMoselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson |
 (Joseph) (Gironde). Broglie (duc de). de
 
 Cachet. Caffarelli (comte). Caraman (comte de). Cardon. K
 Carnot (François). Castellane (comte Stanislas de). Castelnau À
 (de). Catalogne. Cavaignac (Godefroy). Cazauvieilh. Caze
-(Edmond). Cazeaux-Cazalet. Chaigne. Chambrun (marquis ;
 de). Chapuis. Charruyer. Chastenet (Guillaume). Chaumet, ;
 Chautemps (Alphonse) (Indre-et-Loire). Chautemps (Émile)
-(Haute-Savoie). Chavoix. Chevalier. Cibiel. Clament (Cié- î
-ment) (Dordogne). Clémentel. Cochery (Georges). Cochin
 (Henry) (Nord). Codet (Jean). Compayré (Émile). Congy. l
-Constant (Émile) (Gironde). Corderoy. Cornudet (vicomte).
 Corrart des Essarts. Coutant (Paul) (Marne). Crappi. |
 
-Dansetite (Jules). Darblay. Daudé. Dauzon. David (Alban)
-(Indre). David (Fernand) (Haute-Savoie). Debève (François).
-Debiève (Anatole). Debussy. Dèche. Decrais. Defontaine. |
-Delafosse (Jules). Delarbre. Delaune (Marcel). Delbet.
-Deléglise. Delelis. Delombre (Paul). Deloncle (François).
-Denis (Théodore). Déribéré-Desgardes. Derrien. Deshayes.
 Desjardins (Jules). Dion (marquis de). Disleau. Dormoy.
-Doumer (Paul). Drake (Jacques). Dron. Dubois (Émile).
-Dubuisson. Duclaux-Monteil. Dujardin-Beaumetz. Dulau
-(Constant). Dunaime. Dupuy (Pierre). Duquesnel. Durand.
-Dussuel. Dutreil. ‘
 
-Éliez-Evrard. Elva (comte d'). Empereur. Engerand
-(Fernand). Ermant. Escanyé. Estourbeillon (marquis à
-de l). |
-
-Fabien-Cesbron. Fabre (Léopold). Failliot. Faure (Firmin).
-Fernand Brun. Ferrette. Flandin (Ernest) (Calvados).
 Fleury-Ravarin. Flourens. Fontaines (de). Forest. Fouché.
-Fouquet (Camille). Fruchier.
 
 Gaffier. Gailhard-Bancel (de). Gaillard (Jules). Galot …
 (Jules). Galpin (Gaston). Gauthier (de Clagny). Gautier
-(Léon) (Vosges). Gauvin. Gayraud. Gellé. Gérard (baron
-Maurice) (Calvados). Gérard (Edmond) (Vosges). Gervais )
 (Seine). Gervaize (Meurthe-et-Moselle). Ginoux-Defermon.
 
-_/ INTERVENTION SAURÈS Phi
 Gode t Frédéric). Gonidec de Traissan (comte le). Gontaut_ Bir on (comte Joseph de). Goujon (Julien). Gourd, Grand- |
 ÿ maison (de). Grosdidier. Grosjean. Grousseau. Guillain.
 | Guillo teaux. Guyot de Villeneuve.
 Halgonet (lieutenant-colonel du). Harriague Saint-Martin. 3h
-1" Haud court. Henrique-Duluc. Holtz :
-We riart d'Etchepare (d').
 | Jacquey (général). Janet (Léon) (Doubs). Jeanneney. Jules
-…Jaluzot. Jules Legrand (Basses-Pyrénées). Jumel.
 
 SE erjégu (J. de). Klotz. Krantz (Camille).
 
@@ -9084,8 +7218,6 @@ Re. La Ferronnays (marquis de). Lamy. Laniel À
 
 Lechevallier. Lefas. Leffet. Léglise. Legrand (Arthur). Le
 
-Hérissé. Lemire. Lepelletier (Edmond). Lepez. Lerolle.
-
 Lesp nay (marquis de). Le Troadec. Levet (Georges). Lévis-
 
 Mirepoix (comte de). Levraud. Lockroy. Loque. Lozé. Ludre
@@ -9094,20 +7226,10 @@ Mirepoix (comte de). Levraud. Lockroy. Loque. Lozé. Ludre
 
 … Ma ckau (baron de). Magniaudé. Mahy (de). Mando.
 
-Martin (Louis) (Var). Mas. Massabuau. Maure. Maurice
-
 ] Bin er. Maurice Spronck. Maussabré (marquis de). Méline.
-
-1 fenier (Gaston). Mercier (Jules). Michel (Adrien) (Haute-
-
-Loire) .Millevoye. Miossec. Mirman. Monfeuillart. Montaigu
 
 (comte de). Montalembert (comte de). Morel. Morlot. Motte. |
 Moustier (marquis de). Mulac. Mun (comte Albert de).
- Muteau.
-nt Oltivicl. Osmoy (comte d').
-
-Pain. Pascal. Passy (Louis). Paul Meunier. Paulmier.
 
 Pavi e. Péret. Perier (Germain). Périer de Larsan (comte du).
 
@@ -9117,14 +7239,7 @@ Perro che. Petit. Pichat. Pichery. Pins (marquis de). Plichon.
 
 | Ragot. Raiberti. Ramel (de). Rauline. Reiïlle (baron
 | Amédé e). Reïlle (baron Xavier). Renault-Morlière. René #
-3 AA ù ù
 
-LA Fe NT
-
-Invalidation Syveton F4
-
-Renoult, Réveillaud (Eugène). Rey (Émile). Ribot.Ridouard.
-Riotteau. Ripert. Roche (Ernest) (Seine). Roche (Jules)
 (Ardèche). Roger-Ballu. Rohan (duc de). Roscoat (vicomte
 du). Rose. Rougier. Rouland. Rousé. Rousset (lieutenant-
 
@@ -9132,284 +7247,88 @@ colonel). Rouvre (Bourlon de). Rozet (Albin). Ruau. Rudelle,
 
 Sabaterie. Saint-Pol (de). Sandrique. Sarrazin. Saumande.
 Savary de Beauregard. Schneider (Eugène) (Saône-et-Loire).
-Sibille. Siegfried.
-
-Tailliandier. Thierry. Thierry-Delanoue. Tiphaine. Tournade. Trannoy.
-
-Vigouroux. Villault-Duchesnois. Villiers.
-
-ONT VOTÉ CONTRE :
-
-MM. Albert-Poulain. Aldy. Allard. Antoine Gras. Arbouin. « Aristide Briand. Astier. Aubry. Authier.
 
 Bachimont. Bagnol. Baron (Gabriel) (Bouches-du-Rhône).
 Basly. Baudet (Louis) (Eure-et-Loir). Beauquier. Begey.
-Bénézech. Bepmale. Berteaux. Bizot. Bony-Cisternes. Bouhey-Allex. Bourrat. Bouveri. Braud. Breton (Juies-Louis).
-Brunard. Buisson (Ferdinand) (Seine). Buyat.
-
-Cadenat. Camuzet. Carnaud. Carpot. Cazeneuve. Cère
-(Emile). Chambige. Chambon. Chanal. Chandioux. Charles
-Bos. Charpentier. Chauvière. Chenavaz. Cloarec. Colin.
-Colliard. Constans (Paul) (Allier). Cornet (Lucien). Coutant
-(Jules) (Seine).
-
-Dasque. Debaune (Louis). Defumade. Dejeante. Delory.
-Denêcheau. Desfarges (Antoine). Devèze. Dubief. Dufour
-(Jacques). Dumont (Charles). à Ë
-
-Émile Chauvin. Euzière.
-
-Féron. Ferrero. Fiquet. Fitte. Fournier (François).
-
-Galy-Gasparrou. Genet. Gentil. Gérault-Richard. Girod.
-Goujat. Grousset (Paschal). Guieysse. Guingand. GuyotDessaigne.
-
-Herbet. Hubbard. Hugues (Clovis) (Seine).
-
-Isambard. Isnard.
 
 |
 
 Er CU LE à FAN ; Ko U ë ‘ de N'a d + # 1 dre
-_ INTERVENTION JAURÈS PP MONS PR …
-HU 6 INT RTE L 4 , $ ? HS
-LATE . À « \ ÿ
-$ Jaurès. Jehanin. Jourdan (Louis). Judet,. NAN
-4e ER * Lu
-\'aYire Labussière. Lacombe(Louis). Lafferre. Lamendin. Lassalle. 1
-Lesage. Leygue (Honoré) (Haute-Garonne). Leygue 1,140
-(Raymond) (Haute-Garonne). Lhopiteau. Loup. LT
-…_  Malaspina. Malizard. Martin (Bienvenu) (Yonne). Massé. e
-- Maujan. Merlou. Meslier. Messimy. Michel (Henri) (Bouches- Pat
 du-Rhône). Mill (Louis). Minier (Albert). '
-Fe Pajot. Pastre. Péronneau. Perrin. Petitjean. Piger. A
-Far TE + È
 _Pressensé (Francis de).
-y TE abier (Fernand). Rajon (Claude). Razimbaud. Régnier. :
-_  Rivet (Gustave). Rouanel.
 | Salis. Sauzède. Schneider (Charles) (Haut-Rhin). Selle. ù
-— Sembat. Sénac. Serres (Honoré). Simonel. Simyan. WE
 $ | Théron. Thivrier. Thomson. Tourgnol. Trouin. Le
-F Vaillant. Vazeille. Veber (Adrien). Vialis. Vigne (Octave) x
-… (Mar). Vigné (Paul) (Hérault). Villejean. Vival. AU
-Walter. IN
-72 N'ONT PAS PRIS PART AU VOTE : Lg
-MM. Abel-Bernard. Andrieu. Arène (Emmanuel). Augé.
 “_ Bansard des Bois. Baudin (Pierre). Baudon (Oise). Bérard \
 Sal (Alexandre). Bertrand (Lucien) (Drôme). Bichon. Bourgeois PAS
 “ (Léon) (Marne). Brisson (Henri) (Bouches-du-Rhône). 4
 | Bussière.
-RTE Capéran. Cardet. Charles Benoist (Seine). Charles Chabert #
-_ (Drôme). Charonnat. Chaussier. Clément (Martinique). \
- Coulondre. Del
 | _ Decker-David. Delarue. Delcassé. Delmas. Doumergue HAN
-Étienne. « SU
-. … Gabrielli. Gerville-Réache. Gévelot. Gouzy.
 
-Invalidation Syveton re
-Hémon. Hugon... Ê “#
 Lachaud. Lanessan (de). Lion. Es
-Maret (Henry). Marot (Félix). Maruéjouls. Mougeot. js
-Ornano (Cuneo d'). ï :
-Pams. Pelletan (Camille). Peureux. Pierre Poisson. Puech. ;
-Rouby. s %
 Saint-Martin (de). Sarraut (Albert). Sireyjol.
-Tavé. Tournier (Albert). Trouillot (Georges). Turigny. f
-Vacherie. Viollette. :
-ABSENTS PAR CONGÉ : k
-MM. Ancel-Seitz. Armez. « à
-Babaud-Lacroze. Balitrand. Beharelle. Boyer (Antide). |
-Brunet. 3
 Caillaux. Castellane (comte Boni de). Castillard. Gauvin i
-(Ernest). Chabert (Justin) (Rhône). Chamerlat. Chanoz.
-Coache. Cochin (Denys). Couyba.
 David (Henri) (Loir-et-Cher). Derveloy. Deschanel (Paul).
 
-] Devins. |
-Estournelles (d'). J
-Flandin (Étienne) (Yonne).
-
-Gabriel (Denis). Gérald (Georges).
-Hubert. Hugues (François) (Aisne).
-; Jonpart.
 Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues
 (Georges) (Lot-et-Garonne).
 Millerand. Mollard. Monjou (de).
-Noël. Noulens.
-Plissonnier. Pouilan. Pourteyron.
-Quilbeuf. F
-Richard (Pierre). Robert Surcouf. Roch. ?
-Sarrien. Suchetet.
-Thierry-Cazes. Torchut.
-Vallée. Vogeli. ï
-" 234
-
-"INTERVENTION JAURÈS
-RNA
 
 1 4 Les nombres annoncés en séance avaient été de :
-
-: CAS ÿ Nombre Rés votants rss it PERL 545
-‘riceS Paorite absolue. 1,20. 1... 273
-on: Pour l'adoption . . . . . 367
-
-- 0 è LOT ARENA ER ANR 178
 
 | Mais, après vérification, ces nombres ont été rectifiés con_ formément à la liste de scrutin ci-dessus.
 
 1 40
 
-13 SCRUTIN
-
 à Sur la première partie de l'ordre du jour de M. Chapuis
-‘48 Nombre delvotants. : + : .... 485
-
-. (USSR crnnee
-
-D Maorrtéfabsolue. .... . . . . . . . 243
-
-Que Pour l'adoption . . . . . 274
-
-‘208 GENE. 20). Tr
 
 “ La Chambre des députés a adopté.
 
-Fa. ONT VOTÉ POUR :
-
-à - Ho MM. Abel Bernard. Albert-Poulain.Aldy. Andrieu. Antoine 1
-Gras: Arago (François). Arbouin. Arène (Emmanuel).
-
-Aristide Briand. Astier. Astima (colonel). Aubry. Auger.
-Authier. #
-
-_ Bachimont. Bagnol. Balandreau. Baron (Gabriel) (Bou-
 …. ches-du-Rhône). Barthou. Bartissol. Basly. Baudet (Charles)
 
 no es-du-Nord). Baudet (Louis) (Eure-et-Loir). Baudin
-FA Pierre). Baudon (Oise). Beauquier. Begey. Bellier. Bepmale.
 | … Bersez. Berteaux. Berthet. Bertrand (Lucien) (Drôme).
 | _ Bizot Bony-Cisternes. Bourrat. Boutard. Braud. Breton
 | r “(Eules-Louis). Brisson (Henri) (Bouches-du-Rhône). Brunard.
-Buisson (Ferdinand) (Seine). Bussière. Buyat.
 
 Invalidation Syveton de 5
-Camuzet. Capéran. Cardet. Cardon. Carnaud. Carpot, |
-Catalogne. Cazauvieilh. Caze (Edmond). Cazeaux-Cazalet.
-Cazeneuve. Cère (Emile). Chaigne. Chambige. Chambon.
-Chanal. Chandioux. Chapuis. Charles Bos. Charles Chabert We d
-(Drôme). Charonnat. Charpentier. Charruyer. Chastenet
-(Guillaume). Chaumat. Chaussier. Chautemps (Alphonse) …
 (Indre-et-Loire). Chautemps(Emile) (Haute-Savoie). Chavoix.
-Chenavaz. Ciament (Clément) (Dordogne). Clément (Marti
-nique). Clémentel. Cloarec. Codet (Jean). Colin. Colliard. 4
-Compayré (Émile). Constant (Émile) (Gironde). Corderoy.
-Cornet (Lucien). Coulondre. Cruppi. 2
-Dasque. Dauzon. David (Alban) (Indre). David (Kernand).
-(Haute-Savoie). Debeaune (Louis). Debève (François). —
-Debiève (Anatole). Debussy. Decker-David. Decrais.
-Defontaine. Defumade. Delbet. Deléglise. Delelis. Delmas. t:
-Delombre (Paul). Deloncle (François). Denêcheau. Desfarges
-(Antoine). Deshayes. Devèze. Disleau. Dormoy. Doumer 14
-Paul). Dron. Dubief. Dubois (Emile). Dujardin-Beaumetz. #4
-Dumont (Charles). Dunaime. Dupuy (Pierre). Dussuel. … iS
-Éliez-Evrard. Émile Chauvin. Empereur. Escanyé. - #
-Euzière. LR
-Fernand Brun. Féron. Ferrero. Ferrier. Fiquet. Fitte. +)
-Fournier (François). 1
-Gabrielli, Galy-Gasparrou. Gauvin. Genet. Gentil. Gérault- $
-Richard. Gervais (Seine). Gerville-Réache. Girod. Godet #
-(Frédéric). Goujat. Gouzy. Grosdidier. Grousset (Paschal). . M
-Guieysse. Guingand. Guyot-Dessaigne. 7
-Henrique-Duluc. Herbet. Holtz. Hubbard. Hugon. Hugues ÿ
-(Clovis) (Seine). &,
-Iriart d'Etchepare (d'). Isambard. Isnard. 52
-Janet (Léon) (Doubs). Jaurès. Jeanneney.Jehanin. Jourdan Ë Es
 (Louis). Judet. Jumel. É De
-Klotz. Krauss. re.
 La Batut (de). Labussière. Lachaud. Lacombe (Louis).
 Lafïerre. Lamendin. Lanessan (de). Larquier. Lassalle.
 Lauraine. Leffet. Lepez. Lesage. Le Troadec. Levet
-(Georges). Levraud. Leygue (Honoré) (Haute-Garonne). …
-236 ER » LES
 
 | OR A LE RO OT PU CE AE
-TA Mi x ' à ua è 5 ÿ LA n "”
-Ée ET INTERVENTION JAURES
-_ Leygue (Raymond) (Haute-Garonne). Lhopiteau. Lockroy.
-_ Loque. Loup. Lozé.
-x … Magniaudé. Malaspina. Malizard. Maret (Henry). Martin
-_ (Bienvenu) (Yonne). Martin (Louis) (Var). Mas. Massé.
-_ Maujan. Menier (Gaston). Mercier (Jules). Merlou. Messimy.
 ….. Michel (Henri) (Bouches-du-Rhône). Mill (Louis). Minier
-…. (Albert). Monfeuillart. Morel. Morlot. Mulac. Muteau.
-….…. … Pajot. Pams. Pasqual. Paul Meunier. Pavie. Péret. Périer
-a ei (Germain). Péronneau. Perrin. Petit. Petitjean. Peureux.
- Pichery. Pierre Poisson. Puech. Ê
-1 . Rabier (Fernand). Ragot. Rajon (Claude). Razimbaud.
-pe Régnier. René Renoult. Réveillaud (Eugène). Rey (Emile).
 Le Ridouard. Rivet (Gustave). Rouanet. Rouby. Rougier.
- Rousé. Rozet (Albin). Ruau.
-4 Sabaterie. Salis. Sandrique. Sarraut (Albert). Sarrazin.
--_  Saumande. Sauzède. Schneider (Charles) (Haut-Rhin). Selle.
-4 Sénac. Serres (Honoré). Siegfried. Simonet. Simyan. Sireyjol. |
-_ Tavé. Théron. Thomson. Tiphaine. Tourgnol. Tournier
 #3 (Albert). Trouin.
-4 _  Ursleur.
-É -  Vacherie. Vazeille. Vialis. Vigne (Octave) (Var). Vigné
-. . (Paul) (Hérault). Villejean. Viollette. Vival.
 & nr ONT- VOTÉ CONTRE :
-Le :
-3% MM. Adam (Achille). Alsace (comte d'), prince d'Hénin.
-5 Amodru. Anthime-Ménard. Archdeacon. Argeliès. Arnal.
-. Audifred. Audigier. Auffray (Jules). Aynard (Édouard).
 2° . Ballande. Bansard des Bois. Baron (Jules) (Maine-et-
 / Loire). Barrois. Baudry d'Asson (de). Beauregard (Paul)
 _ (Seine). Beauregard (de) (Indre). Benoist (de) (Meuse).
-à … Berger (Georges). Berry (Georges). Berthoulat (Georges).
-à # Bertrand (Paul) (Marne). Bischoffsheim. Boissieu (baron &e).
-Al: _ Bonnevay. Bonte. Bonvalot. Borgnet. Boucher (Henry).
-_ Bouctot. Bougère (Ferdinand). Bougère (Laurent). Bourgeois
-a os 237
-; Riu Ad
-
-Invalidation Syveton Dr
 
 (Paul) (Vendée). Boury (de). Brice (Jules) (Meürthe-et- nee
 Moselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson 4
 (Joseph) (Gironde). Broglie (duc de). Ki
-‘ à
 
 Cachet. Caffarelli (comte). Caraman (comte de). Carnot
 (François). Castellane (comte Stanislas de). Castelnau (de) Lt
 Cavaignac (Godefroy). Chambrun (marquis de). Charles à
-Benoist (Seine). Chevalier. Cibiel. Cochery (Georges). 4
-Cochin (Henry) (Nord). Congy. Cornudet (vicomte). Corrart 1e
 des Essarts. Coutant (Paul) (Marne). ÿ
 
-Dansette (Jules). Darblay. Daudé. Dèche. Delafosse (Jules), "
 Delaune (Marcel). Denis (Théodore). Déribéré-Desgardes. LA
 Derrien. Desjardins (Jules). Dion (marquis de). Drake £
-(Jacques). Duclaux-Monteil. Dulau (Constant). Duquesnel: È
-Durand. Dutreil. RSA
 
 Elva (comte d'). Engerand (Fernand). Ermant. Estourbeillon (marquis de l). À
 
-Fabien-Cesbron. Fabre (Léopold). Failliot. Faure (Firmin). :
-Ferrette. Flandin (Ernest) (Calvados). Fleury-Ravarin: |
 Flourens. Fontaines (de). Forest. Fouché. Fouquet (Camille). NM
-Fruchier. 11
 
 Gañfier. Gailhard-Bancel (de). Gaillard (Jules). Galot À
 (Jules). Galpin (Gaston). Gauthier (de Clagny). Gautier 4
-(Léon) (Vosges). Gayraud. Gellé. Gérard (baron Maurice) î
-(Calvados). Gérard (Edmond) (Vosges). Gervaize (Meurthe- 4
 et-Moselle). Gévelot. Ginoux-Defermon. Gonidec de Traïssan (comte le). Gontaut-Biron (comte Joseph de). Goujon nn
 (Julien). Gourd. Grandmaison (de). Grosjean. Groussau. ÿ
 Guillain. Guilloteaux. Guyot de Villeneuve.
 
 Halgouet (lieutenant-colonel du). Harriague Saint-Martin. ;
-Haudricourt. Hémon. ARE
-Jacquey (général). Jules Jaluzot. Jules Legrand (BassesPyrénées). Ÿ
 
 Kerjégu (J. de). Krantz (Camille).
 
@@ -9420,158 +7339,69 @@ Ferronnays (marquis de). Lamy. Laniel (Henri). Lanjuinais ÿ
 INTERVENTION JAURÈS ne ("UN
 Laroche Joubert. La Rochethulon (comte de). Lasies à: er
 … Laurens-C astelet (marquis de). Laville. Lebaudy (Paul). JA
-_ Lebrun. Lefas. Léglise. Legrand (Arthur). Lemire. Lepel- è à
 ! letier (Ed mond). Lerolle. Lespinay (marquis de). Lévis- HÈA
 Mirepoix (comte de). Ludre (comte Ferri de). ; re
 j … Mackau (baron de). Mahy (de). Mando. Marot (Félix). oi
-Massabuau. Maurice Binder. Maurice Spronck. Maussabré CEE
 (marqu s de). Méline. Michel (Adrien) (Haute-Loire). 4
 … Millevoye. Miossec. Montaigu (comte de). Montalembert
 (com e de). Motte. Moustier (marquis de). Mun (comte (a
-173 Ollivier. Ornano (Cuneo d'). Osmoy (comte d'). Ha?
 4 _ Pain. Passy (Louis). Paulmier. Périer de Larsan (comte (ES
 … du): Perroche. Pichat. Pins (marquis de). Plichon. Pomereu LA
 (comte de). Prache. Pradet-Ballade. Proust. Pugliesi-Conti. {St
 f _ Raïiber li. Ramel (de). Rauline. Reiïlle (baron Amédée). ce
-Ée | Reïlle (baron Xavier). Renault-Morlière. Ribot. Riotteau. 1
-Ripeï t. Roche (Ernest) (Seine). Roche (Jules) (Ardèche). ER
 .  Roger-Ballu. Rohan (due de). Roscoat (vicomte du). Rose.
  Rous set (lieutenant-colonel). Rouvre (Bourlon de). Rudelle.
 Saint-Martin (de). Saint-Pol (de). Savary de Beauregard. |
 Roue (Eugène) (Saône-et-Loire). Sibille. A
-; | Thierry-Delanoue. Tournade. Trannoy.
-“SERRE
-RARES - … N'ONT PAS PRIS PART AU VOTE :
-LA LRU SUR
-Ë wi . Allard.
-N | Bénézech. Bérard (Alexandre). Bichon. Bignon (Paul).
-“ Bouhey-Allex. Bourgeois (Léon) (Marne). Bouveri.
-+ Cadénat. Chauvière. Constans (Paul) (Allier). Coutant
-_ Dejeante. Delarbre. Delarue. Delcassé. Delory. Dou-
-… mergue (Gaston). Dubuisson. Dufour (Jacques). , k
 
-0 Invalidation Syveton M
 Mot Laurençon. Lechevallier. Le Hérissé. Limon. j
-es Maruéjouls. Maure. Meslier. Mirman. Mougeot.
-br y Ke RTL
 . Pasire. Pelletan (Camille). Piger. Pressensé (Francis de).
-SCEAUR Rouland. Rex > EU
-GT Sembat. TTC
-Has Thivrier. Trouillot (Georges). Turigny. RS
-a Vaillant. Veber (Adrien). Vigouroux. Villault-Duchesnoïs. …
-4 ABSENTS PAR CONGÉ : "4 Li PTE
-è MM. Ancel-Seitz. Armez. FT ANIRRRSE
 MA TA Babaud-Lacroze. Balitrand. Beharelle. Boyer (An ide). |
-LES a
 Caillaux. Castellane (comte Boni de). Castillard. Cauvin û
 ; (Ernest). Chabert (Justin) (Rhône). Chamerlat. ce noz.. 47
-{ Coache. Cochin (Denys) (Seine). Couyba. re + 00
 Es David (Henri) (Loir-et-Cher). Derveloy. Deschanel (Paul). à
-F=. Devins. er. + is
-Estournelles (d'). AE :
-Flandin (Étienne) (Yonne). F@ Es é
-Gabriel (Denis). Gérald (Georges). : ui Use ë
 À - Hubert. Hugues (François) (Aisne). LES à
-Jonnart. Re à
 4 Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues p
 QE (Georges) (Lot-et-Garonne). Re
 A Millerand. Mollard. Montjou (de). À ESS AA
-ES TEEN
 Ë Noël. Noulens. [NE |
-NS Plissonnier. Poullan. Pourteyron. hs 1 0 F; Î
-si Quiibeuf. % RS
-Richard (Pierre). Robert Surcouf, Roch. PU a A
-f Sarrien. Suchetet. à à # AT 4
-2 te Thierry-Cazes. Torchut. i Ÿ 5x Ds
 | Vallée. Vogeli. REG AU
-"240 R
-J : PART A SSNES |
-F 1180 SSL SEREER |
 
-1 ; INTERVENTION JAURÈS
 $ Les nombres annoncés en séance avaient été de :
-À Nombre/deés votants . 7. .::,. 499
-ï Mhiomdé absolue... , :, 1, 450
-Pour l'adoption . . . .. 282
-F LITLUTS ANRARQNRRNSRRREX Et RES 217
 g Mais, après vérification, ces nombres ont été rectifiés
 conformément à la liste de scrutin ci-dessus.
-SCRUTIN
 Sur la seconde partie de l'ordre du jour de M. Chapuis
-Nombreldes votants . * . :. . . . . 435
-ROUOeLÉé absolue . 1: . 1. 218
-Pour l'adoption. . . . . . 357
-do hs A 78
 Ba Chambre des députés a adopte.
-ONT VOTÉ POUR :
-MM: Adam (Achille). Alsace (comte d'), prince d'Hénin.
-é__Amodru. Anthime-Ménard. Arago (François). Archdeacon.
- Arène (Emmanuel). Argeliès. Arnal. Astima (colonel).
-Audiffred. Audigier. Auffray (Jules). Aynard (Edouard).
 Balandreau. Ballande. Bansard des Bois. Baron (Jules)
 (Maine-et-Loire). Barrois. Barthou. Bartissol. Baudet
 (Charles) (Côtes-du-Nord). Baudet (Louis) (Eure-et-Loir).
 Baudin (Pierre). Baudry d''Asson (de). Beauquier.
 Beauregard (Paul) (Seine). Beauregard (de) (Indre). Bellier.
 2 Benoist (de) (Meuse). Berger (Georges). Berry (Georges).
-…Bérsez. Berthet. Berthoulat (Georges). Bertrand (Paul)
 (Marne). Bignon (Paul). Bischoffsheim. Boissieu (baron de).
-el 241
-à
 
-F Invalidation Syveton +
-D'PEORT CORRE
-Bonnevay. Bonte. Bonvalot. Borgnet. Boucher | Henry).
 Bouctot. Bougère (Ferdinand). Bougère (Laurent). Bour geois Et.
 (Paul) (Vendée). Boury (de). Boutard. Brice (Jules) (Meurthe M
 et-Moselle). Brice (René) (Ille-et-Vilaine). Brindeau. Brisson
 (Joseph) (Gironde). Broglie (duc de). Brunard. Bussière. | :
-Cachet. Caffarelli (comte). Caraman (comte dej. code E
 Carnot (François). Carpot. Castellane (comte Stanislas DE
 Castelnau (de). Catalogne. Cavaignac (Godefroy). Cazau:- x :
--  vieilh.Caze(Edmond).Cazeaux-Cazalet. Cazeneuve.Chaïgne 5
 Chambon. Chambrun (marquis de). Chanal. ss ne
-Charles Benoist (Seine). Charruyer. Chastenet (Guillaume).
 Chaumet. Chaussier. Chautemps (Alphonse) (Indre-et
-Loire). Chautemps (Émile) (Haute-Savoie). Chavoix. Che
-valicr. Cibiel, Clament (Clément) (Dordogne). Clémentel
-Cochery (Georges). Cochin (Henry) (Nord). Compayré
-h (Œmile). Congy. Constant (Emile) (Gironde). Corderoy. > 44
 ; Cornudet (vicomte). Coyrart des Essarts. Coutant (Paul). 5 l
-(Marne). Cruppi. ASS FE “2
-Dansette (Jules). Darblay. Daudé. David (Alban) (ndre). |
-; David Œérmand)(ante Savoie) Deere si
-: (Anatole). Debussy. Dèche. Decker-David.  Decra s,. 13 \
-Defontaine. Delafosse (Jules). Delarbre. Delaune (Marcel).
-Delbet. Deléglise. Delelis. Delmas. Delombré (Paul). |
-Delonele (François). Denêcheau. Denis (Théodore). Déribér æ. À
-Desgardes. Derrien. Deshayes. Desjardins (Jules). Dion. 4
 (marquis de). Disleau. Dormoy. Doumer (Paul). Drake 13
-(Jacques). Dron. Dubois (Emile). Dubuisson. .DuclauxMonteil. Dujardin-Beaumetz. Dulau (Constant). Dunaime. 4
 Dupuy (Pierre). Duquesnel. Durand. Dussuel. Duireil. Ne. 1
-É Éliez-Evrard. Elva (comte d'). Empereur. ae fa x
 (Fernand). Ermant. Escanyé. Estourbeillon (marquis de] P) 53)
-Fabien-Cesbron. Fabre (Léopold). Failliot. Faure Œirmin SR \
-Fernand Brun. Ferrette. Flandin (Ernest) (Calvados). Fleury Sp ]
 Ravarin. Flourens. Fontaines (de). Forest. Fouché. Fouquet EP |
-(Camille). Fruchier. : RIVER
 Gabrielli. Gaflier. Gailhard-Bancel (de). Gaillard Gus). | |
 Galot (Jules). Galpin (Gaston). Gauthier (de Clagny) à
-Gautier (Léon) (Vosges). Gauvin. Gayraud. Gellé. G me à | i
-À 2 ; 10 3
 | CA SERRE
 
-D INTERVENTION JAURÈS
-. (baron Maurice) (Calvados). Gérard (Edmond) (Vosges).
 À Gervaize (Meurthe-et-Moselle), Gévelot. Ginoux-Defermon.
 …Godét (Frédéric). Gonidec de Traissan (comte le). Gontaut-
 « Biron (comte Joseph de). Goujon (Julien). Gourd. Grandxnaison (de). Grosdidier. Grosjean. Groussau. Guillain.
 —.. Guiïlloteaux. Guyot de Villeneuve.
 z Halgouet (lieutenant-colonel du). Harriague Saint-Martin.
-…Haudricourt. Hémon. Henrique-Duluc. Holtz. Hugon.
-* Iriart d'Etchepare (d'). Isambard.
-à »Jacquey (général). Janet (Léon) (Doubs). Jeanneney. Jules
-—Jatuzot. Jules Legrand (Basses-Pyrénées). Jumel.
 Kerjégu (J. de). Klotz. Krantz (Camille).
 La Batut (de). La Bourdonnaye (comte de). La Chambre.
 Lachaud. Lachièze. La Ferronnays (marquis de). Lamy.
@@ -9579,319 +7409,121 @@ Lachaud. Lachièze. La Ferronnays (marquis de). Lamy.
 de Montebello. Largentaye (Rioust de). Laroche-Joubert.
 ! La  Rochethulon (comte de). Larquier. Lasies. Lauraine.
 Laurençon. Laurens-Castelet (marquis de). Laville, Lebaudy
-(Paul): Lebrun. Lechevallier. Lefas. Leffet. Léglise. Legrand
 (Zrthur). Le Hérissé. Lemire. Lepelletier (Edmond). Lepez.
 ………ïcrolle. Lespinay (marquis de). Le Troadec. Levet (Georges).
 Lévis-Mirepoix (comte de). Levraud. Lhopiteau. Lockroy.
 —_ Loque. Lozé. Ludre (comte Ferri de).
 Mackau (baron de). Magniaudé. Mahy (de). Mando. Marot
-(Félix) Martin (Louis) (Var). Mas. Massabuau. Maure.
 Maurice Binder. Maurice Spronck.Maussabré (marquis de).
-.—….….Méline. Menier (Gaston). Mercier (Jules). Michel (Adrien)
-(Haute-Loire). Millevoye. Miossec. Mirman. Monfeuillart.
 ” Montaigu (comte de). Montalembert (comte de). Morel.
 Morlot. Motte. Moustier (marquis de). Mulac. Mun (comte
 _ Albert de). Muteau.
 ne Ollivier. Ornano (Cuneo d'). Osmoy (comte d').
-; Pain. Pasqual. Passy (Louis). Paul Meunier. Paulmier.
 ……Péret. Perier (Germain). Périer de Larsan (comte du).
 y Perroche. Petit. Peureux. Pichat. Pichery. Pins (marquis de).
 —_Plichon. Pomereu (comte de). Prache. Pradet-Balade. Proust.
-…_  Puech. Pugliesi-Conti.
 
-Invalidation Syveton se
-La
 Ragot. Raïberti. Ramel (de). Rauline. Reïlle (baron A
-Amédée). Reïlle (baron Xavier). Renault-Morlière. René À
-Renoult. Réveillaud (Eugène). Rey (Émile). Ribot. M
-Ridouard. Riotteau. Ripert. Roche (Ernest) (Seine). Roche 4
 (Jules) (Ardèche). Roger-Ballu. Rohan (duc de). Roscoat. pe,
 (vicomte du). Rose. Rouby. Rougier. Rouland. Rousé. "M
 Rousset (lieutenant-colonel). Rouvre (Bourlon de). Rozet M
-(Albin). Ruan. Rudelle. he.
 Sabaterie. Saint-Martin (de). Saint-Paul (de). Sandrique.
 Sarrazin. Saumande. Savary de Beauregard. Schneider ,
 (Eugène) (Saône-et-Loire). Sibille. Siegfried.
-Tailliandier. Tavé. Thierry. Thierry-Delanoue. Tiphaine. :
-Tourgnol. Tournade. Trannoy. KI
-Vacherie. Vigouroux.  Villault-Duchesnois. Villiers: |
-Viollette. Vival.
-ONT VOTÉ CONTRE : f
-MM. Albert-Poulain. Aldy. Andrieu. Arbouin. Aristide
-ù . Briand. Aubry. ÿ
 Bachimont. Bagnol. Baron (Gabriel) (Bouches-du-Rhône).
-Baudon (Oise). Begey. Berteaux. Bouhey-Allex. Bourrat: d
-Breton (Jules-Louis). +
-Camuzet. Cardet. Carnaud. Chambige. Chandioux: 4
-Charles Bos. Charpentier. Cloarec. Colliard.
-Dasque. Debaune (Louis). Defumade, Desfarges (Antoine).
-Devèze. Dubief. o
-Émile Chauvin.
-Ferrero. Fiquet. Fitte. Fournier (François).
-Galy-Gasparrou. Genet. Gérault-Richard. Girod. Goujat:
-Gouzy. Grousset (Paschal). Guieysse. sin
-Hubbard. Hugues (Clovis) (Seine). F
-Isnard. x)
-Jaurès. Jehanin. Judet. fs,
-Krauss. i
-- aff
 
 NS AUNE see de Bd: hf | ce L AT i Fe Lie NA VE his RU CPE FN
 RE nu FAN MEET NE
-INTERVENTION JAURÈS 3 AS EURE
 
 abussière. Lassalle. Lesage. Loup. (Le 4 TA NES
 
-“ Massé. Maujan. Merlou. Messimy. Michel (Henr)
 (Bouches-du-Rhône). Mill (Louis). RE
 
 Pajot. Pastre. Pressensé (Francis de). Ge
 
-Razimbaud. Rouanet. j'
-ME _ Salis. Sauzède. Sénac. Simonet. Simyan. Sireyjol. 4
 “* hé on. Tournier (Albert). Trouin. AS
-- … Vazeïlle. Veber (Adrien). Vigné (Octave) (Var).
-“ PAUL: .  N'ONT PAS PRIS PART AU VOTE :
-, . MM. Abel-Bernard. Allard. Antoine Gras. Astier. Augé.
 | Basly. Bénézech. Bepmale. Bérard (Alexandre). Bertrand ;
-
-(Lucien) (Drôme). Bichon. Bizot. Bony-Cisternes. Bourgeois
-Keucien y g'
-
-( A Bouveri. Braud. Brisson (Henri) (Bouches-
 
 du-Rhô &). Buisson (Ferdinand) (Seine). Buyat.
 
-- _ Cadenat. Capéran. Cère (Émile). Charles Chabert (Drôme). F
-Charonnat. Chauvière. Chenavaz. Clément (Martinique).
-Godet (Jean). Colin. Constans (Paul) (Allier). Cornet ;
-(Lucien). Coulondre. Coutant (Jules) (Seine).
-
-Da uzon. Dejeante, Delarue. Delcassé. Delory. Doumergue. |
-rt : Dufour (Jacques). Dumont (Charles).
-
-Étienne. Euzière. :
-Féron. Ferrier. ,
-; Gentil. _ Gervais (Seine). Gerville-Réache. Guingand. '
-
-_ Guyot-Dessaigne. |
-
-UHR
-Jourdan (Louis).
-Lacombe (Louis). Lafferre. Lamendin. Leygue (Honoré) :
-(Haute-Garonne). Leygue (Raymond) (Haute-Garonne).
-. Malas pina. Malizard. Maret (Henry). Martin (Bienvenu)
-(Monne). Maruéjouls. Meslier. Minier (Albert). Mougeot.
-
-HE Oran. | 22174 FREE
-Pams. Pavie. Pelletan (Camille). Panel Perrin.
 | Petitjean. Pierre Poisson. Piger. 4e ss Ds Æ
-; Rabier (Fernand). Rajon (Claude). Régnier. ! Rivet {
-(Gustave). Are ASS ;
-Sarraut (Albert). Schneider (Charles) (Haut-Rhin). Selle. -
-Sembat. Serres. (Honoré). LIST # “à
 Thivrier. Thomson. Trouillot (Georges). Tanigng. ce à
-; Vaillant. Vialis. Vigné (Paul) (Hérault). Villejean. ‘Te
 | Walter. : S' #40
 ABSENTS PAR CONGÉ : es ae +500
-Re
-ee MM. Ancel-Seitz. Armez. ner “71
-", Babaud-Lacroze. Balitrand. Beharelle. Boyer (A: ntide) ue
-Brunet. + LUS PAU
 Caillaux. Castellane (comte Boni de). Castillard. Cauvin
 CR (Ernest). Chabert (Justin) (Rhône). Chamerlat. Chane LE x |
-- Coache. Cochin (Denys) (Séine). Couyba. MR
 ! David (Henri) (Loir-et-Cher). Derveloy. Deschanel ( Paul). Es
-Devins. re RL.
-% Estournelles (d”). nr. Au
-Flandin (Etienne) (Yonne). ARE
-Gabriel Denis. Gérald (Georges). : CPE D:
-ar Hubert. Hugues (François) (Aisne). #E NS "15
-‘ Jonnart. J 4 A Me
 = Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leygues
 se (Georges) (Lot-et-Garonne). ; s Det À |
 ‘4 Millerand. Mollard. Montjou (de). : ‘20 5fl
 A Noël. Noulens. à ET A
-î Plissonnier. Poulan. Pourteyron. a 8 te re T |
-Pat Quilbeuf. MUR 5
-Richard (Pierre). Robert Surcouf. Roch. DR |
 Sarrien. Suchetet. ne 14
-Wire Thierry-Cazes. Torchut. Re FES : 34
-Vallée, Vogeli. J 3 HR. Ho RE |
 
-TE 9e PTS PAS A CR ee CRUE PRO N PESTE FO
-Ÿ INTERVENTION JAURÈS DRE
 Les n ombr es annoncés en séance avaient été de : "a ‘4
 En Nombre MES VOLADIS , de eee re 1) 01408
-4 Majorité MAROC AR PAIE Er 230 ; ;
-MA NU Pour l'adoption . : .. .. 383
 L 16 SEE Donne NA ue De 95
 LA Mai s, après vérification, ces nombres ont été rectifiés
 . conformément à la liste de scrutin ci-dessus.
-LR T SEA OS t
-PERS SCRUTIN
 Sur l'ensemble de l'ordre du jour de M. Chapuis
-x | Nombre Me VOlanIS 2000; . 10 42,1 V30b
-ME Majorité 2 TSI ER 153 1
-"4008 ; Pour l'adoption . . . .. 235
-“À PP HAAIGOntrE. : . - . . - . .. 70
 res ps « ns) sa Chambre des députés a adopté.
-LS PE ONT VOTÉ POUR : ‘
-MM: Amodru. Anthime-Ménard. Arago (François). Arène
- Œm mar nuel). Argeliès. Astier. Astima (colonel). Audifred.
 3 Fe un dreau. Barrois. Barthou. Bartissol. Baudet (Charles)
 -…(Côtes-du-Nord). Baudet (Louis) (Eure-et-Loir). Baudin
-…(Picrre). Baudon (Oise). Beauquier. Bellier. Berry (Georges). Ÿ
-Sersez. Berthet. Berthoulat (Georges). Bichon. Bignon
-I 'aul). Bischoffsheim. Bonnevay. Bonte. Boucher (Henry).
 ütard. Braud. Brisson (Henri) (Bouches-du-Rhône).
 | “es mu pesière. ,
 | _Gaffarelli (comte). Capéran. Caraman (comte de). Cardon.
 | LT t (François). Castellane (comte Stanislas de). Sa
-= ; 1 PHP L _
 
 Invalidation Syveton È “ De
 
-Catalogne. Cazauvieilh. Caze (Edmond). Cazeaux-Cazalet. ES.
-Cazeneuve. Chaigne. Chambon. Chapuis. Charonnat. 3
-Charruyer. Chasienet (Guillaume). Chaumet. Chaussier. %
 Chautemps (Alphonse) (Indre-et-Loire). Chautemps (Emile) LE
-(Haute-Savoie). Chavoix. Clament (Clément) (Dordogne). … "
-Clémentel. : Cloarec. Cochery (Georges). Codet (Jean). 3
-Compayré (Émile). Constant (Émile) (Gironde). Corderoy.
-Cornudet (vicomte). Cruppi. AE
-Dauzon. David (Alban) (Indre). David (Fernand) (Haute= à
-Savoie). Debève (François). Debiève (Anatole). Debussy.
-Decker-David. Decrais, Defontaine. Defumade. Delarue.
-Delaune (Marcel). Delbet. Deléglise. Delelis. Delmas. k
 Delombre (Paul). Deloncle (François). Denêcheau. Déribéré: un
-Desgardes. Desfarges (Antoine). Deshayes. BDisleau: 1e %
-Dormoy. Doumer (Paul). Dron. Dubois (Emile). Dubuisson: \
-Duclaux-Monteil. Dujardin-Beaumetz. Dulau (Constant). f
-Dunaime. Dupuy (Pierre). Durand. Dussuel. 2
-Éliez-Evrard. Empereur. Escanyé. a à
-Fernand Brun. Féron. Ferrier. Fleury-Ravarin. Fruchier.… À
-Gabrielli. Gaffier. Galy-Gasparrou. Gauvin. Gellé. Gérard”
-(Edmond) (Vosges). Gervais (Seine). Gerville-Réache. “
 Godet (Frédéric). Gontaut-Biron (comte Joseph de). Goujon
-(Julien). Grosdidier. Guillain. NNST
-Harriague Saint-Martin. Haudricourt. Henrique-Dulue. 53
-Holiz. Hugon. A
-Iriart d'Etchepare (d'). Isambard. f
-Janet (Léon) (Doubs). Jeanneney. Jehanin. Judet. Jules A
-Legrand (Basses-Pyrénées). Jumel. US #4
 Kerjégu (J. de). Klotz. Krantz (Camille). à F ‘ù
 La Batut (de). Lachaud. Lachièze. Lacombe (Louis): er
 Lanessan (de). Larquier. Lauraine. Laurençcon. Lebaudy Eu:
 (Paul). Lechevallier. Lefas. Leffet. Léglise. Le Hérissé. À
 Lepez. Lerolle. Le Troadec. Levet (Georges). Levraud
-j Lhopiteau. Lockroy. Loque. Lozé. pes se.
-Magniaudé. Malaspina. Mando. Martin (Bienvenu)
-(Yonne). Martin (Louis) (Var). Mas. Maure. Méline. Menier ÿ
 
-us INTERVENTION JAURÈS , pra
-( oh ercier (Jules). Mill (Louis). Minier (Albert). HAE
-Mirman. Monfeuillart. Morel. Morlot. Motte. Moustier
 s (marquis de). Mulac. Muteau. À 7 TRE
-. Pams. Pasqual. Paul Meunier. Pavie. Péret. Perier
 : (Germain). Périer de Larsan (comte du). Péronneau si
- Perri n. Perroche, Petit. Peureux. Pichery. Pierre Poisson. »
-Prache. Pradet-Balade. Proust. Puech. 0
 V  Ragot. Raiberti. Régnier. Renault-Morlière. René Renoult. NE
-ni A g À = F4 . C k %
-nt laud (Eugène). Rey (Émile). Ridouard. Roche (Jules) AE
 (Ardèche). Rouby. Rougier. Rouland. Rousé. Rouvre il
 (ourlon de). Rozet (Albin). Ruau. A
-4 _ Sabaterie. Sandrique. Sarrault (Albert). Sarrazin. ten
-4 Saumande. Schneider (Charles) (Haut-Rhin). Sibille. Fi
-Siegfried. Simonct. Sireyjol. MEN
-… lavé, Thierry-Delanoue. Tiphaine. Tourgnol. Trannoy. LR
  Vigouroux. Villault-Duchesnoïs. Villejean. Viollette. ne
-a. “4 FRE ONT VOTÉ CONTRE :
-* MM.  Albert-Poulain. Aldy. Andrieu. Arbouin. Aristide sf
 ù © Bachim ont. Bagnol, Baron (Gabriel) (Bouches-du-Rhône) : k
 | Basly. Bepmale. Berteaux. Bouhey-Allex. Bourrat. Breton
-(Jules-Louis). ù
-… Camuzet. Carnaud. Chandioux. Charles Bos. Charpentier. neo
-_ Collia due
-- Dasque. Debaune (Louis). Devèze. Dubief. À à
-Ferre xo. Fiquet. Fitte. Fournier (François). Fi
-Ge net. Gérault-Richard. Girod. Goujat. Gouzy. Grousset }
-"4 Hubbard . Hugues (Clovis) (Seine). T4 ÿ
 | 11 249 À
 
-POP SES NS TRE | a Le RS AE he "ER
-se BE Invalidation Syveton
-: 3 Jaurès. CHER SERRE
-Labussière. Lafferre. Lamendin. Lassalle. Lesage, Leygue
-(Honoré) (Haute-Garonne). Leygue (Raymond) (Œaute- T4
-Garonne). Loup. RE:
-À Massé. Maujan. Merlou. Messimy. x LCR
-ñ |: L{T'ÆMES
 3 Pajot. Pastre. Pressensé (Francis de). 43 ne es +
 Razimbaud. Rouanet. De, 1167 ;
-; Salis. Sauzède. Selle. Sénac. Serres (Honoré). Sim 7. :
-Théron. Tournier (Albert). D
-Ursleur. É es A ES 53
-Vazeille, Veber(Adrien). Vigne (Octave)(Var).Vigné(Paul)
-(Hérault). + RES
-N'ONT PAS PRIS PART AU VOTE : ‘à TLC ERIC
-MM. Abel-Bernard. Adam (Achille). Allard. Alsace
-(comte d), prince d'Hénin. Antoine Gras. Archdeacon
-… Arnal. Aubry. Audigier. Auffray (Jules). Authier. Aynard M
-- Édouard). A #5 3
 Ballande. Bansard des Bois. Baron (Jules) (Maiïne-et-Lo re) : DE
 Baudry d'Asson (de). Beauregard (Paul) (Seine). Bea regard
 (de) (Indre). Begey. Bénézech. Benoist (de) (Meuse). Bérard à
-(Alexandre). Berger (Georges). Bertrand (Lucien) (] Dr e).
 Bertrand (Paul) (Marne). Bizot. Boissieu (baron. de).
-F Bonvalot. Bony-Cisternes. Borgnet. Bouctot. Bongère
-el (Ferdinand). Bougère (Laurent). Bourgeois (Léon) (M: arne). à
 ; Bourgeois (Paul) (Vendée). Boury (de). Bouveri. Brice. 1
 (Jules) (Meurthe-et-Moselle). Brice (René) (Ille-et-Vilaine). … pt
 Brindeau. Brisson (Joseph) (Gironde). Broglie (due de). 7 1
-Buisson (Ferdinand) (Seine). Buyat. RS us 1
 ( Cachet. Cadenat. Cardet. Carpot. Castelnau à (de). |
-Cavaignac (Godefroy). Cère (Emile). Chambige. Chambrun
 (marquis de). Chanal. Charles Benoist (Seine). harles
-Chabert (Drôme). Chauvière. Chenavaz. Chevalier. Cibiel |
-Clément (Martinique). Cochin (Henry) (Nord). Colin. Congy. |
 | 250 110 |
-dos E 3
-
-22 7 4 Le CR d
-
-RES INTERVENTION JAURÈS
-
-ÉHRS As
 
 ‘  Constans (Paul) (Allier). Cornet (Lucien). Corrart des
 # _ Essarts. Coulondre. Coutant (Jules) (Seine), Coutant (Paul)
-… (Marne).
 
-* _ Dansette (Jules). Darblay. Daudé. Dèche. Dejeante.
 | LE 3
-Delafosse (Jules). Delarbre. Delcassé. Delory. Denis
 x (Théodore). Derrien. Desjardins (Jules). Dion (marquis de).
-….__Doumergue (Gaston). Drake (Jacques). Dufour (Jacques).
-Dumont (Charles). Duquesnel. Dutreil.
-PV © Elva (comte d'). Engerand (Fernand). Ermant. Estour-
- nelles (d'). Étienne. Euzière.
 
 ne —… Fabien-Cesbron. Fabre (Léopold). Failliot. Faure(Firmin).
-—Ferrette. Flandin (Ernest) (Calvados). Flourens. Fontaines
 k (de): Forest. Fouché. Fouquet (Camille).
 
 ? # … Gailhard-Bancel(de). Gaillard (Jules). Galot (Jules). Galpin
 14 (Gaston). Gauthier (de Clagny). Gauthier (Léon) (Vosges).
-—_Gayraud. Gentil. Gérard (baron Maurice) (Calvados).
 …Gervaize (Meurthe-et-Moselle). Gévelot. Ginoux-Defermon.
 hs Gonidec de Traissan (comte le). Gourd, Grandmaison (de).
 LES Grosjean. Groussau. Guieysse. Guilloteaux. Guingand.
 . Guyot-Dessaigne. Guyot de Villeneuve.
 #4 … Halgouet (lieutenant-colonel du). Hémon. Herbet.
 
-—. Jacquey (général). Jourdan (Louis). Jules Jaluzot.
 I: Bourdonnaye (comte de). La Chambre. La Ferronnays
 (marquis de). Lamy. Laniel (Henry). Lanjuinais (comte de).
 —Lannes de Montebello. Largentaye (Rioust de). LarocheJoubert. La Rochethulon (comte de). Lasies. LaurensCastelet (marquis de). Laville. Lebrun. Legrand (Arthur).
@@ -9907,76 +7539,35 @@ We Millevoye. Miossec. Montaigu (comte de). Montalembert
 
 | Ollivier. Ornano (Cuneo d'). Ozun.
 
-MP: 251
-
-ARE TOR _ Invalidation Syveton
-: Pain. Passy (Louis). Paulmier. Pelletan Camille).
 : Petitjean. Pichat. Piger. Pins (marquis de). Plichon. P omer EE
 _ - (comte de). Pugliesi-Conti. A
 Rabier (Fernand). Rajon (Claude). Ramel (de). Rauline, :
-Reïlle (baron Amédée). Reïlle (baron Xavier). Ribot.
-Riotieau. Ripert. Rivet (Gustave). Roche (Ernest) (Seine). ;
 Roger-Ballu. Rohan (due de). Roscoat (vicomte du). E ose. 5
-ie Rousset (lieutenant-colonel). Rudelle. a e LL
 Saint-Martin (de). Saint-Pol (de). Savary de Beauregard. | Le
 Schneider (Eugène) (Saône-et-Loire). Sembat.
-Men
-Tailliandier. Thierry. Thivrier. Thomson. Tournade. #1
-Trouillot (Georges). Trouin. Turigny. e TE
-‘ Vacherie. Vaillant. Vialis. Villiers. Vival. 1 5
 Walter. : LES
-; ABSENTS PAR CONGÉ : ‘ÈS
-MM. Ancel-Seitz. Armez. LL d
-x Babaud-Lacroze. Balitrand. Beharelle, Boyer (A ntide).
-Brunet. #4 He ‘A
 > Caillaux. Castellane (comte Boni de). Castillard. C uvin
-(Ernest). Chabert (Justin) (Rhône). Chamerlat. Chanoz.
-4 Coache. Cochin (Denys) (Seine). Couyba. Te
 2 David (Henri) (Loir-et-Cher). Derveloy. Deschanel _ Sa)
-Devins. 17792 1 |* 51
-Re Estournelles (d'). 142 me
 ae e Flandin (Étienne) (Yonne). : LES 14
-; Gabriel (Denis). Gérald (Georges). ‘ RAS
-Fe Hubert. Hugues (Francois) (Aisne). x * à
 . Jonnart. LES Es à
 Fe Le Bail. Le Mare. Le Moigne. Leroy (Modeste). Leypues
 à (Georges) (Lot-et-Garonne). F- # De: Fe
 Millerand. Mollard. Montjou (de). . |
 je Plissonnier. Poullan. Pourteyron. TES
-; M
 
 AA te FRS Du Er NUS AT jen 3 pi NU EVE F8 c
-__ INTERVENTION JAURÈS PT NS
-€ La 170 F SEM
-À ichard (Pierre). Robert Surcouf. Roch. del
-_ Thierry-Cazes. Torchut. ts
 Les nombres annoncés en séance avaient été de :
-F1 SE GS
-£ D Nombre de votants. . . . . . . . . . 3925 4
-D Majorité absolue. . . . . . . . . . . |: 165
-2 re > ; $
-Un Pourladoption. .,..,. 250 :
-D Conue,. . .….. . . . . .. 75 :
 Mais, après vérification, ces nombres ont été rectifiés
 conformément à la liste de scrutin ci-dessus.
-: 4 à
-ERP TN
-LT NES
-l , +2 +
 | LUTTE D
-4 < Et Re
-; € 1 VAR ;
 | 11, PTS
-Î FER 4
 | 4 HORS |
 | RARES :
 | 2 TRS xXv "NE
 se LE rt
 | QUIL RE ER tr
 
-TAC ANA
 Rectifications portées au Journal officiel du jeudi
-9 april : Pa :
 C'est par suite d'une erreur matérielle que le nom de
 M. le marquis de l'Estourbeillon ne figure dans aucune des
 catégories du scrutin du 7 avril sur l'ensemble de l'ordre
@@ -9988,7 +7579,6 @@ Dans le scrutin du 7 avril sur les conclusions de la com- E
 mission d'enquête tendant à la validation des opérations 3
 électorales du deuxième arrondissement de Paris : ICE ê
 M. Capéran, porté comme ayant voté pour, déclare avoir %
-. voulu voter contre. é 4
 Dans le scrutin du 7 avril, sur la priorité en faveur de
 : l'ordre du jour de MM. Jaurès, Henri Brisson, Jean Codet “4
 et Maujan : LE 8
@@ -9996,7 +7586,6 @@ M. Jehanin déclare qu'il a été porté par erreur comme *
 ayant voté pour, et qu'en réalité il avait voté contre. $ 6È
 M. Pavie déclare qu'il a été porté par erreur comme à
 n'ayant pas pris part au vote, et qu'en réalité il avait voté |
-contre. PRE 1
 M. Paul Meunier déclare qu'il a été porté par erreur ES
 comme ayant voté contre, et qu'en réalité il avait voté nn …
 pour. z EX É
@@ -10005,25 +7594,19 @@ l'ordre du jour de M. Chapuis : =: 20080
 M. Capéran déclare qu'il a été porté par erreur comme
 n'ayant pas pris part au vote, et qu'en réalité it avait voté n
 pour. TER
-D
 
-£ Dane FE DA D D CN. Qt ONMTPES EP Q 4
-Fr INTERVENTION JAURËS A Er à
 M. Jehanin déclare qu'il a été porté par erreur comme Fo ©
 ayant voté contre, et qu'en réalité il avait voté pour. 225%
 s M Paul Meunier déclare qu'il a été porté par erreur TÈs
 _ comme ayant voté pour et qu'en réalité il avait voté contre. CR
 > _ Dans le scrutin du 7 avril, sur la seconde partie de l'or- :
 _ dre du jour de M. Chapuis : ,
-PET. #1
 _ M. Capéran déclare qu'il a été porté par erreur comme s
 … n'ayant pas pris part au vote, et qu'en réalité il avait voté SE -
-pour. ;
 % M. Jehanin déclare qu'il a été porté par erreur comme %
 . ayant voté confre, et qu'en réalité il avait voté pour. ns
 SR M. Payie déclare qu'il a été porté par erreur comme 53
 … n'ayant pas pris part au vote, et qu'en réalité il avait voté PRE.
-pour. <
 M. Isnard déclare qu'il a été porté par erreur comme e
 sh yant voté contre, et qu'en réalité il avait voté pour. d! À
 _ _ Dans le scrutin du 7 avril, sur la seconde partie de l'or- FR
@@ -10034,7 +7617,6 @@ _ Da ns le scrutin du 7 avril, sur l'ensemble de l'ordre du :
 _jou r de M. Chapuis :
 _ M. Vacherie déclare qu'il a été porté par erreur comme
 3 na ant pas pris part au vote, et qu'en réalité il avait voté :
-_ pour. :
 HS M. Isnard déclare qu'il a été porté par erreur comme
 ; ayant voté contre, et qu'en réalité il avait voté pour.
 -_ M: Méline déclare qu'il a été porté par erreur comme
@@ -10043,11 +7625,8 @@ HS M. Isnard déclare qu'il a été porté par erreur comme
 Fer SE M: Pierre Poisson déclare qu'il a été porté par erreur
 … Comme ayant voté pour l'ensemble de l'ordre du jour de
 : “M. Che puis et qu'en réalité il s'est abstenu. :
-SERRE
 
-Inpalidation Syveton |
 Rectifications portées au Journal officiel du vendredi
-10 avril : CUS
 Dans le scrutin du 7 avril sur la deuxième partie de © +
 l'ordre du jour de M. Chapuis : AL, |
 M. Lafferre déclare qu'il a été porté par erreur comme |
@@ -10061,7 +7640,6 @@ jour de M. Chapuis : |
 
 M. Jules Roche (Ardèche) déclare qu'il a été porté par E |
 : erreur comme ayant voté pour, et qu'en réalité il s'était
-abstenu. Re
 M. Anthime-Ménard déclare qu'il a également été porté
 par erreur comme ayant voté pour, et qu'en réalité il s'était RU |
 volontairement abstenu. Je
@@ -10082,8 +7660,6 @@ Codet et Maujan, comme ayant voté contre la priorité en 5
 faveur de l'ordre du jour Chapuis, et comme s'étant abstenu
 
 LA ÉAER PRE je
-__ INTERVENTION JAURÈS
-fi: Ve SAM La” PR
 
 _ sur l'ensemble du même ordre du jour, et qu'en réalité
 
@@ -10096,14 +7672,9 @@ ni erreur comme n'ayant pas pris part au vote et qu'en réalité ;
 
 _ il avait voté contre. :
 
-À EE r
-
-7 Here ,
 à VB : ectifications portées au Journal officiel du samedi L
 de e CI avril : |
 
-2 ENT
-a PE PPAALCE
 # Dans le scrutin du 7 avril sur la seconde partie de l'ordre ,
 _ du jour de M. Chapuis :
 
@@ -10112,12 +7683,9 @@ comme ayant voté pour, et qu'en réalité il s'était abstenu.
 _ Dans le scrutin du 7 avril sur la priorité en faveur de
 : l'ordre du jour de MM. Jaurès, Henri Brisson, Jean Codet et
 
-1% ven PE . . » . 2y7 #
-
 AE M. Gervais (Seine) déclare qu'il a été porté par erreur
 -— comme ayant voté contre, et qu'en réalité il avait voté
 
-L'URSS
 M. Buyat déclare qu'il a été porté, dans les scrutins du 2
 - 7 avril, comme ayant voté pour la priorité en faveur de
 
@@ -10125,18 +7693,12 @@ M. Buyat déclare qu'il a été porté, dans les scrutins du 2
 D _M aujan ; comme n'ayant pas pris part au vote sur la seconde
 partie de l'ordre du jour de M. Chapuis; comme ayant voté
 CDI vire la priorité en faveur de l'ordre du jour de M. Chapuis; .
-DAC RE CES :
 
 WE comm en'ayant pas pris part au vote sur l'ensemble de l'orPa ap u jour de M. Chapuis, et qu'en réalité il avait eu l'inmt tion de s'abstenir dans le premier et le deuxième scru-
 | tin et de voter pour dans les trois autres.
-ve VPN ER
 5 357
 
-: j THAT
-: Invalidation Syveton Re |
 Rectifications portées au Journal officiel du dimanc ke. &
-12 avril : a
-À SL |
 Dans le scrutin du 7 avril sur la priorité en faveur de D |
 l'ordre du jour de MM. Jaurès, Henri Brisson, Jean Codet ne. |
 et Maujan : - 4
@@ -10156,19 +7718,13 @@ du même ordre du jour, et que s'il avait été présent, ir
 aurait voté contre dans les deux premiers scrutins etse
 serait abstenu dans le troisième. LÉ
 Rectifications portées au Journal officiel du mercredi. |
-15 avril : Ë +Èes
 C'est par suite d'une erreur matérielle que M. d'Estournelles a été porté comme absent par congé dans les sCrutins de la séance du 7 avril. En réalité, l'honorable membre UM
 avait voté pour la priorité de l'ordre du jour de MM. Jaurès,
 Henri Brisson, Jean Codet et Maujan. Il s'était abstenu sur à |
 la priorité en faveur de l'ordre du jour de M. Chapuis; il M
 avait voté pour la première partie de cet ordre du jouret ve |
 s'était abstenu sur la seconde partie ainsi que sur Ven-=
-semble. 10
-358 LPO |
 
-" Re La E 6 s SU CR AREA RS, GET TR
-2 Labo RAR M AE EL A RES AREA EE Pare D à
-INTERVENTION JAURÈS ER |
 ; M. Mas, porté dans la séance du 7 avril comme s'élant 1
  abstenu sur la priorité en faveur de l'ordre du jourde a
 à MM . Jaurès, Henri Brisson, Jean Codet et Maujan, déclare
@@ -10178,9 +7734,7 @@ qu'il était absent au moment duserutin et que, s'il avait été
 … l'ordre du jour de M. Chapuis il aurait voté contre s'il avait
 ét é présent. Enfin, porté comme ayant voté pour la seconde
 partie de l'ordre du jour de M. Chapuis, il aurait voté ”
-Ë SE SE À
 _ Rectifi cations portées au Journal officiel du jeudi ;
-16 avril:
 … M. Peureux déclare qu'il avait été empêché d'assister à la ;
 | séance du 7 avril et que, s'il avait été présent, il se serait 7
 | abstenu dans le scrutin sur la validation des opéra-
@@ -10188,7 +7742,6 @@ _ Rectifi cations portées au Journal officiel du jeudi ;
 « L'honorable membre déclare également qu'il aurait voté
 … contre la priorité de l'ordre du jour de M. Jaurès et pour la
 priorité de l'ordre du jour de M. Chapuis.
-æ: Rss
 : on donné le bon à tirer après corrections :
 ; pour deux mille exemplaires de ce dix-septième cahier
 le mardi 28 avril 1903.

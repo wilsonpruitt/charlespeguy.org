@@ -7,63 +7,17 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 19435
 ---
-
-9 $
-TROISIÈME CAHIER DE LA HUITIÈME SÉRIE
-CHARLES PÉGUY
 de la situation faite
 à l'histoire et à la sociologie
 dans les temps modernes
-CAHIERS DE LA QUINZAINE
 paraissant seize fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 ND HA TR TRES MR FRA RAR er ni) D MSN À
-MIS RUES PNA re RS ser FN Ke") dre à
-FR te ed LEE
-CLR Ar MES ER WE ES AE RES EU : AE Re ä
-Von ; 4 S = fi one A + 5
-Do . A
-MESSE 2% RE ALTER
-ENS À PT - RUES à
-+ ; BE LE AE LAN
-2 ; à À LEE Ka
-, | y - LRIERSSS |
-+4) | = , Le 226408 *
-L { " È = Gene jee. tee à |
-FRE S : 31 “SAN |
-ax à É * > SEEN VASE SAS |
-LE 4 cs : PERDRE :
-LES é < : ; E A. & Re |
-= ° RE ET : ORAN \
-C4 RTS
-Se ;
-WC : .
 
-VERRE * j RAT TEA 1'2N he Tan) A
-4018 jee ” \ + EE
-l L'ART " ne * 44%
-à ï "LC 1 RENE f 1e
-; 4 + AN ERR 4 #i
-) “iSMRRNRE À +150
-40 | KOMANE ES ë \ TS
-A FA ATEN PEL pe”
-LE D ANSE 1e
-ji #41, VAR CALE : LAS
-AT 0. f 110
-Ta AUS SE 1 $ Ce
-LEAVE : TRÈS
-à 0e ALLONS RAT ‘-4
-* F4 72 3 { Ÿr. EN
-AL ANSE PANIERS i - SES
 4 fi ee, (HAN " x L es DA
-ï La RSS me, Ce A0 Ê 1
-1 ie, a Fe AVAL SRE dela situation. —1 1008
 
-DNS OL Û
 | Fe RNORES, |
-Ste |
 à Nous avons publié dans nos éditions antérieures et |
 dans nos cinq premières séries, I900-1904, un si à
 ; grand nombre de documents, de textes formant dossiers, de renseignements et de commentaires; — un f
@@ -87,15 +41,7 @@ place, les références demandées.
 Ce catalogue, in-18 grand jésus, forme un cahier
 très épais de X114+408 pages très denses, marqué cinq
 
-A Us f
-
-AU H PA APN 2 RUE PAT RENE DA ABLE RTS
-PRE IN et VAN ANT 4 / LE
 MAUR ee de : |
-
-AE AN Pa \ \ 1.10
-
-Su fe HUE À :: ON
 
 1211 M TRRANNNSSSS ier cahier de la
 
@@ -116,167 +62,53 @@ de Fa D rEros de son abonnement, en tête de la Fee
 js vai. D or contre un mandat de cinq francs Re
 'nsé rie; nous Door ous en fait la demande. MA 38
 5 to te personne qui n gt + a 1
-eV ENTER se “ e RER
 
 À RTE A F ‘rie, année ouvrière 1905-1906, re
 Ai ANSE la septième série, TROT ANS “08
 LL tee aisse le catalogue analytiq no
-hé NUE AT” Ci
 AGE en attendant que p \ ing Séries, I904-1909, on 10
 Doi de nos deuxièmes ie 4 la petite table Hs:
 RÉ — provisoirement, — la LA Liu
 _ peut consulter, gr ue nous en avons établie'et me
-EE À ire j Fais
 à ve ons ytique très somma pi du premier cahier de la 1148
 : ss ué nous avons publiée e “00
-ADI ï 3 VA EM
 À, NE ê t travail que l'on aurait à comm ina
 (Ai Pour ri talogue analytique sommaire, con UE
-fe MF GRRITE alo Â 4 F1 V5 UE
 da ose 1 ps provisoire que nous 1
 
-ET CRUE , (Has
 4 “a sulter le petit index alp HU Cet Cao ue) an alrs Une
-“ATEN établi automatiquemen s éditions anté- cl
 avons ét ‘index total de nos édi 7 RER
 D lique sommaire dans l'indes qe me premier: 10
 RAP 0 t premières séries, méêm Le
 |  rieures et de nos sep P : ci
-SR NT "pts érie. 4 À Ÿ
 MM de la haitiôme s il
 RTL OR je
-(re x AI ” \ AU
 
-DA a ut
 ie LE) Fe CAEN CADRE na ui. MARS dns ITA fe \ Re PU
-ALES ) ' ï DRE DORE Ac TE SET RSR ETAT N ABS
-DE ur 5 \ A "A :! ! D'ECRAN ENTER »
-2 y J À pe Re FAT
-Ji ; 1 NON EAN
-té k É | PRRNAREES
-qu? È TN 2
-KR ÿ $ n TA HE TOTORNE
 
 es j'a ET OISE
-à ï ; K4 A LTÉE ARE |
-CIN : tu L'ÉTAT |
-FAN : x sé LS SIMS EONONRES
-x f y { 1 T4 CNE LA" *
 
-\ 2 RU) Li
-
-FA 3 CLP TA b 1: ht ;
 x ca & ° TES fe In? + L'ANRE 4
 
 TPE L A A fret VAE A RUN és EE MORE
-LRU PAST gs à fl n Li NAME CROSS AR Nas ER pis A
 
-1 ” Li a x us | #1 QI A1 NN LORTE PET CAE
-HU - * , 44204
-A AR dat (a 14e Li
-
-s'oy + Ah 2 48 & 17 L LD.
-- DS A : \ WA
-
-; k AL O ABLUA Te af
-à ARR ES RE { 1e
-CAN UT à ' 7
-
-, MIT: ar
-RTE TS ‘ie
-
-j \ à he Fo A7 ‘ A > d : po
-
-LITE EL de ; n:
-È D AL! ? AT
 | P' AA Kit QU
 
-F4 TEE PS OREERS * 5
-A : \2R
-
-4 LA? CCE" TÉSNE : 44 £ ÿ
-4 ROMANE. à : », & :1 0 er
-MAP E : IE
-' ANA ESA ‘ ‘ 1
-
-: LUNA RER È 4
-
-+ él j Na # Ne,
-, MON QUU CHU UE
-
-4) VAR PNR É FRAIS
-
-ANA HA AAA A À2 GT sai dt
 no HU HAS UE el NE PE RU
-FA AE Gt L'ÉTAT en RE PAUN AE y REA DNA ALT
 è NUE NE Es AU AN are ( BEA LR ARC RACE
 ( 14 EUX APS "te AUTRE CRT LE MRENÉ pins
-AN AUTRES à We à RU NRES VU TEE OUEN VETTEUN LRO RER
 le | 1 Kg A fn MN TE 0 à
-AURA | 1 L ÿ g NANTES NA À RC on EE
-Na RELE Merle ES
-(RTE ( « A À ï l MES ea É
-jf Û ; : / 5 7 42 de A ER 21
-1m x DS ni 440 APP +
-ES QE Nes LP SEX:
-AUAN Me x V'ANTYLEUES OT ENREE
-RE jan j ; API TE ep MT RL
-LAN ONS HAS 4 RL FA NA TI os Ven AN N o D HPRUE a
 Ÿ AE se Ft LRU (LE AlS Feu
-NERO R 1 | Te
-1: NIFIMBES
 
-géré zits ERA PE ARE AE EU 7 VE
-: MEANS 1 HAN TETE
-1 te nt À Y
-: NP À DA
 \ Ed nt 4, j i ar Et
-; MOIS Le BA Ka ÿ Na
-DE LA SITUATION FAITE | ‘| à 0
-RARES. è OGIE DR
-‘ +} M es *
 | À L'HISTOIRE ET A LA 50 À
-ÉruA JA 3 LE. À NE
-EST ar) - “: LNUROE
-: FE MATIEEES x LA
 ! : CTI ATENTIONS ; pics e LES
-Q n fc Œiiv PR = i Pr 1e
-L'TUAOE 5 AU +, À vs
-:'HLRE EUR EURE an) } ‘ Î 210 DL 1120
-Ne 1
 
-ne AS AA ANINER ANA TEE UE LAON CEA NE 1 SA Ed
-
-ARE RENE AU PA D EAN AS AA Le RARE + LEA ME Re SCENE
-
-PAANRA PO PO MUR RER TI RRN MER AN) EU NP DO SPC EC EPA A APR TAE SL ANECRR
-RTE: Cal À nr ; SE Tee TER OR
-“AA in À spi AR te \AtalE
-\(UENE ï l COTER, Se AU 4
-TUE :. VAL DA LES 1
-RAA \ 1 1 HMS à |
-AGE à 1.254 TARN \reaRe
-h ; $ : 4 472 MEANS
-
-! 4 fn É RIRE, ( ;
-ASS ) mn PANTIN ONNERES
-d'a | j LE 2 er IEEE
-VE CAT + SUN EAN pe AA (RE DRE 113
-
-en }4t L Fi à À AA NAME 4 A DATA NL #0
-
-44) " FT ü DURE DR AREA EUR LHRCER 1}
 2 ONE ji DS A D NET HAN ANNE La SANS
 
-ri y à L ; pa 1 # r
-(PE SA 2 :
-_  Cuarces PÉGUY
-F
 | DE LA SITUATION FAITE
-L
 ! à l'histoire et à la sociologie
 dans les temps modernes
-:
 Je me propose de rechercher jusqu'à un certain point
 quelle est la situation faite à l'histoire et à la sociologie
 dans les temps modernes. C'est une recherche extrème- J
@@ -294,10 +126,7 @@ son front, car alors elle n'exigerait pas moins que de j
 et on voit ces couples attelés et ces équipes de moisson-
 É neuses-lieuses mécaniques sur un même front de biais
 a 9 de la situation. — x.
-Dir. =
-Fe AR
 
-Charles Péguy Fi RTE “#
 s'avancer au pas des chevaux, moissonnant, ramassant Fr
 et liant tout le vaste monde sur une grande largeur- 4;
 et jusque sur toute la largeur d'un champ de blé. Plus
@@ -325,7 +154,6 @@ de la méthode des cas rares, des cas uniques, des cas ;
 
 | éminents ou de représentation, des cas extrêmes, des
 cas suprêmes, plus particulièrement et proprement des SE
-cas limites. |
 
 Ainsi linéaires, ainsi acheminées, nos recherches
 seront perpétuellement des recherches doubles, parce
@@ -333,9 +161,6 @@ que nous aurons séparément à chercher quelle est la
 situation faite à l'histoire dans les temps modernes,
 et quelle est la situation faite à la sociologie dans ces
 
-10 #
-
-A DE LA SITUATION FAITE |
 4 mêmes temps; l'histoire et la prétendue sociologie 1}
 | _ soutiennent en effet une relation telle que lhistoire RE
 } forme un système de connaissance du premier degré ou A
@@ -367,10 +192,7 @@ h Il faut qu'elle apporte toujours une preuve à elle. Elle
 | ne peut pas partager comme un pain la preuve de
 l'histoire. À
 k Si je ne connais pas avec certitude un événement, il
-\ a à
-FT ke
 
-. Charles Péguy 1
 suit automatiquement que je ne puis pas même ima- |
 giner avec certitude une loi dont cet événement soit la |
 matière; si je crois que je connais avec certitude un |
@@ -410,7 +232,6 @@ qui concerne la certitude, la sociologie est encore indé-
 pendante de l'histoire; mais en ce qui concerne l'incer-
 
 eat DE LA SITUATION FAITE
-g #
 | titude cette indépendance cesse de fonctionner : la
 sociologie devient dépendante de l'histoire. ÿ
 En ce qui concerne la certitude, la sociologie est
@@ -439,14 +260,10 @@ que l'histoire soit incertaine pour que la sociologie soit
 incertaine; il suffit que l'histoire soit incertaine pour
 k que la sociologie soit incertaine, et il ne suffit pas
 [% que l'histoire soit certaine pour que la sociologie soit
-certaine.
 | Tout ce qui est gagné par l'histoire n'est gagné
-v 13
 
-Charles Péguy Fu NUM
 que pour l'histoire, et tout ce qui est perdu par l'histoire 1
 est perdu tout à la fois pour l'histoire et pour la Ÿ
-sociologie. s
 Toute preuve de certitude administrée pour l'histoire
 n'est valable que pour l'histoire, et tout est à recommencer pour la sociologie superposée; toute preuve
 d'incertitude au contraire administrée contre l'histoire
@@ -469,7 +286,6 @@ secours; parce qu'ils nous avaient été de quelque
 utilité; mais ce serait se ménager les déceptions les ;
 plus graves que de s''imaginer qu'en général on à
 recevra des historiens beauéoup de secours dans cette W
-recherche. à
 
 : GORE DE LA SITUATION FAITE il
 55 _ J'entends des historiens qualifiés ou professionnels. 4
@@ -480,7 +296,6 @@ recherche. à
 ï qu'ils nous furent alors de quelque secours, nous étant (4
 de quelque utilité. + \
 À Mais les vrais historiens qualifiés; les vrais historiens At
-À “ professionnels vraiment ? k
 ï L'immense majorité des historiens se recrutent aujour- h
 à d'hui dans les fonctions de l'enseignement ; et comme il È
 ë n'y a rien de si contraire aux fonctions de la science que
@@ -499,15 +314,12 @@ Ltd Ceux qui appartiennent à l'enseignement primaire sont
 
 à officiellement chargés, sous le gouvernement des pré-
 
-Ÿ …_ fets, leurs supérieurs bhiérarchiques, d'enseigner au :
-
 * peuple une histoire gratuite, laïque et obligatoire; sous
 
 - le gouvernement de la République ils sont tenus d'en-
 
 k  seigner au peuple une histoire de défense républi-
 
-Charles Péguy
 caïine; sous un gouvernement réactionnaire ils seraient
 contraints, plus brutalement encore, d'enseigner au
 peuple une histoire de défense réactionnaire. Et quand
@@ -561,17 +373,11 @@ pour accéder à la connaissance du passé. Je dis
 ' maigres pour que l'on ne puisse même pas me soup-
 çonner de penser à notre bon camarade M. Thomas.
 Qui est, à ce que l'on m'assure, un agrégé d'histoire.
-; 17
-var /
 
-DE EL AA RS EE OR EI SERRES
-« l'US 11 ‘ iQ À AN LR CON x |
-‘ Charles Péguy 1 TNT EE
 C'est pourtant cette ignorance qui paraît le plus Fee |
 communément requise par le gouvernement de l'État Era,
 pour le choix des fonctionnaires qu'il nomme et |
 qu'il prépose à l'enseignement d'État d'une histoire |
-d'État. |
 Combien plus intéressants, et combien plus utiles,
 En: généralement et encore beaucoup plus pour ce que
 nous voulons faire, ces jeunes professeurs des lycées
@@ -595,7 +401,6 @@ que cela ; quand on voudra récolter des moissons de
 science un peu moins cinéraires, c'est au personnel actuel
 de l'enseignement secondaire qu'il faudra les demander.
 Ce n'est point en multipliant les internats, les instituts,
-18 |
 
 | Ne Fe. Fiae DE 1 SITUATION FAITE 1
 eur les vases clos qu'on les obtiendra jamais: nl L.
@@ -631,7 +436,6 @@ RE. . pas sûrs de toujours nous retrouver, je tiens à déclarer
 “| combien de renseignements et d'enseignements, quel fr
 FR secours j'ai reçu de cet admirable personnel, générale- +58
 
-Charles Péguy
 ment sous forme de confidences, quelquefois de con- |
 fessions, rarement ou jamais sous forme de déclarations -
 écrites, car ils ont femme et enfants. |
@@ -666,7 +470,6 @@ d'instruments, a beaucoup plus de chances d'avoir accès
 4 mont DE LA SITUATION FAITE
 ' à quelque vérité qu'un homme qui n'a que des instru- )
 ments, manquant de probité.
-À |
 De très grandes découvertes scientifiques, les plus
 grandes peut-être, au moins jusqu'ici, ont été faites
 avec des instruments qui aujourd'hui nous paraissent
@@ -689,10 +492,7 @@ de la réalité. Il se méfie de tout homme, et plus encore
 d'un fonctionnaire, qui a quelque sens de la réalité. Et
 les professeurs. Pensez donc : s'ils allaient enseigner
 quelque atome de réalité, transmettre quelque atome
-: 21 »
-A TER {
 
-3 Charles Péguy | Y'A
 de sens de la réalité. A leurs élèves. Il n'y aurait plus 10
 de gouvernement. Il sent bien qu'il y a là un ennemi, et = |
 l'ennemi le plus redoutable. Toute bureaucratie, rasse, à |
@@ -730,10 +530,6 @@ des joints hermétiques, une succession de bourses com- ï
 et d'écoles, jusqu'aux tièdes sinécures des secrétariats ÿ
 et des bibliothèques, les conduisent, les font arriver 4
 
-22 À
-v ‘54
-Re
-
 RD ve LA SITUATION FAITE :
 jusqu'à l'enseignement de l'histoire universelle sans 4
 … jamais avoir éprouvé les courants d'air de la vie. nn.
@@ -770,7 +566,6 @@ quand au courant de ces études, et assez près de leur
 
 Situation faite, entre autres parties du monde, à l'his- à
 
-Charles Péguy dé
 toire et à la sociologie dans l'État moderne. Et c'est
 alors que nous retrouverons les filiformes. Et nous verrons un peu en détail comme ïls sont parfaitement
 organisés en un parti de gouvernement. En un parti
@@ -801,9 +596,7 @@ le Babylonien et l'Assyrien; il connaît à fond les
 Égyptiens et leurs dynasties. Il n'a jamais vu Versailles ;
 il ne le verra point : il a presque vu la tour de Babel;
 
-cit at SP dé à
 ri La QUES à
-x DE LA SITUATION FAITE :
 il en compte les degrés; il sait combien d'architectes 4
 ; ont présidé à cet ouvrage; il sait le nom des archi- 3
 tectes. Dirai-je qu'il croit Henri IV (Henri le Grand) fils |
@@ -839,10 +632,6 @@ lautre; et il ajoute qu'il y a des auteurs graves qui J
 ù n'est point seulement ce qui est beaucoup plus, un |
 
 “je 25 de la situation. — 2 |
-EU 3;
-a Î
-
-ie Charles Péguy 0 At Fi (
 
 Na caractère de la Bruyère; cest un don des grands & |
 
@@ -882,8 +671,6 @@ allemandes et françaises. Dans quel sens et dans
 
 h quelle mesure nous-mêmes pouvons dire que nous les
 
-1 connaissons. 4 F
-
 |
 
 | De cette étude, intitulée Zangwill, où pour partir
@@ -898,7 +685,6 @@ nous nous étions éclairés de Renan et de Taiïne, et dont
 
 \ l'événement proposé. A ce résultat nous avait conduits
 
-158 ro ï. OU __ DE LA SITUATION FAITE 4 Ki
 D ne analyse un peu poussée de cette méthode si singu- Del
 1604 lière des inépuisables circumnavigations de Taine. A ce 16
 résultat nous avaient conduits beaucoup moins les 1
@@ -928,8 +714,6 @@ _ presque impudiques. À défaut du don des larmes, il ee nd:
 +4 he: garda profondément, sous toutes les apparences, à tra- ‘à ÿ
 14 _vers tant d'insincérités, on oserait presque dire à travers +. » toutes les insincérités, sous toutes les mondanités, il ‘4
 
-1 A1 2 S cs. TP
-Charles Péguyr 74
 garda éternellement ce don originel et métaphysique de 4
 tristesse; une longue expérience, une expérience person- \
 nelle de la vie religieuse l'avait introduit irrévocablement
@@ -957,10 +741,7 @@ d'Euclide et sur les autres postulats et définitions
 mathématiques ne ferait peut-être pas avancer beaucoup
 les mathématiques elles-mêmes, les sciences mathéma- 1
 tiques. Et peut-être en outre et en face, pourse rattraper, À
-28 :
 
-14 ‘ +
-à | DE LA SITUATION FAITE f
 1H ne ferait-il pas avancer beaucoup la métaphysique non F,
 plus, s'il n'était point métaphysicien bien doué, s'il f
 n'était pas né philosophe. Un historien qui resterait A
@@ -993,11 +774,8 @@ homme n'arrivera jamais au bout, car il y en aurait 4
 ë pour une éternité. Car au delà des difficultés il y a les M
 impossibilités, et les contrariétés insurmontables. Les 4
 <A autres sont des hommes de facilités, de possibilités 4
-È
 29 de la situation. — 2. x
 
-Charles Péguy Rs
-4 Dé: ‘ts
 et de dérivation. Il est un homme de difficultés, d'im- N
 à possibilités, d'inhibitions, un homme d'arrêt. Un homme +} |
 impopulaire et désagréable. Un raté en un certain 4
@@ -1027,13 +805,11 @@ d'une part, et d'autre part les seuls philosophes s'in- à
 stallent ensemble, au même point, comme une amicale à
 compagnie. C'est presque ce que nous modernes nommons une coopérative, moins les disputes. Mais apparente association : tout aussitôt après, aux premiers à
 mots de conversation, la scission éternelle intervient ;
-%
 
 58 on lol | DE LA SITUATION FAITE | IS
 ins lantanée ; artistes et savants, toujours ensemble, : k “
 H0 descendent la facilité du fleuve; et leur tournant le dos, A4
 les solitaires philosophes entreprennent de remonter. W
-\ a EP -
 ‘1 Peu d'hommes, et ceux-là devons-nous les nommer 4
 ne des hommes seulement, peu d'hommes circulent par Qu
 . dessus ce point de discernement. Par dessus ce point “5 à
@@ -1061,9 +837,7 @@ au Le jour que l'on voudra bien se demander un peu LA
 un peintre essentiel comme Rembrandt, un musicien dk 4 4
 à essentiel comme Beethoven, un tragique essentiel comme * *
 1 Corneille, un penseur essentiel comme Pascal, et je m'ar- RE:
-Qu Eu:
 
-Charles Péguy D.
 rête à ces quelques exemples pour ne point avoir à citer É:
 un trop grand nombre de nos Français, le jour que lon É
 voudra bien se demander un peu profondément ce qui :
@@ -1093,9 +867,7 @@ reproches que l'on entend faire à Michelet, comme à
 Corneille, comme à Pascal, sont très précisément de ;
 ceux que ferait à Beethoven quelqu'un qui ne serait
 pas musicien, à Rembrandt quelqu'un qui ne serait pas |
-peintre. ;
 
-Ed ; DE LA SITUATION FAITE ‘4
 | C'est-à-dire, ainsi que nous le démontrerons, quelqu'un 4
 dont il n'y a plus, absolument pas à s'occuper. 1
 * Pour un homme comme Michelet ce point de distrac- 4
@@ -1117,7 +889,6 @@ n'existe absolument pas pour lui, mais il cesse aussi
 absolument d'exister pour qui est avec lui; de là vient, pe
 pour le lecteur, pour le spectateur, cet aisé enchante- L
 ment que le talent laborieux ne donnera jamais. ja
-d
 
 Ceux qui ne sont pas Michelet font comme ils peuvent. à
 Ils se partagent le travail. La célèbre division du travail 3
@@ -1129,10 +900,7 @@ doute vaut-il mieux qu'il en soit ainsi. :
 Nous savons par l'histoire des sciences, des arts et 4
 de la philosophie, surtout en ce que la troisième a eu k
 de connexe aux deux premières, ou plutôt nous savons \
-33 ;
 
-A RO DATA DE OI I SR
-Charles Péguy + 1 ARS he
 par l'histoire des savants, des artistes et des philosophes, #2
 \ surtout en ce que la troisième a eu de connexe A
 aux deux premières, que les savants et que les artistes il
@@ -1147,8 +915,6 @@ son pour qu'ils y eussent réussi davantage. Et ainsi .
 à nous aurions peut-être beaucoup plus de métaphysique ù
 j et de philosophie, mais elle serait mauvaise; et nous
 é aurions, d'autant, beaucoup moins d'histoire, qui a pu |
-être fort bonne. "
-É
 Les œuvres des autres sont telles qu'on voit fort bien 1
 comment un homme intelligent, à force d'intelligence, 4
 pourrait en faire autant. Il y suffirait, à la rigueur, d'un
@@ -1162,19 +928,13 @@ a entre elles et l'intelligence une antipathie, profonde, à
 une invincible contrariété intérieure. Tous les gens ë
 intelligents que nous connaissons, et cette engeance
 
-RO EU DE LA SITUATION FAITE (0
 à _ pullule à Paris en France, haïssent mortellement le 23
 | génie et les œuvres du génie. C'est même le seul sen- 1
 _  timent sincère qu'on leur connaisse. “40
-PULA . ai
-ri ‘ a 13
 ni QU
-MA
 PR Tout autre est la situation d'un Renan, et c'est une D
 . situation presque véritablement unique. D'une part en \ 1
-mere ir, Ï ë ; À 170
 effet il n'est point un de ces hommes essentiels, c'est-à- il
-AU
 dire qu'il n'est point un de ces hommes où n'apparaît 1£
 __ pas ce point de rupture. Et d'autre part, sous des nt.
 aspects de frivolités qui allèrent souvent jusqu'à sh
@@ -1184,12 +944,10 @@ physiques, philosophiques, religieuses. Mais ses occu- +08
 1e pations d'historien et ses préoccupations de philosophe FA
 - ne communiquaient point entre elles. Du moins ainsi. k k:
 _ Tantôtilétait d'un côté, tantôt il était de l'autre. Tantôt ni
-è : : . Aie . ACL
 Pi il se mouvait dans ses occupations. Tantôt il se mouvaïit ! DRE
 fe: dans ses préoccupations. Il était deux hommes. Mais ne
 ti . jamais il ne passait de l'un à l'autre d'un mouvement UK
 _ continu. Tantôt il était d'un côté de ce point de discon- (oi
-s . }
 __ tinuité. Tantôt il était d'un autre côté, de l'autre côté. DU s)
 Jamais il n'obtint, jamais il ne réalisa cette suppression fl
 totale, ou plutôt cette non existence absolue de ce point 13
@@ -1198,15 +956,12 @@ libre qui fait une marque des génies. À « 1
 - C'est pour cela qu'il nous sera particulièrement pré- |
 - cieux dans nos recherches. Un Michelet n'est pas ane
 ni commode pour des petites gens comme nous. De là ‘1
-LMI Ja
 
-Charles Péguy ‘#
 vient sa grande impopularité actuelle, surtout auprès |
 de nos historiens. Mais un Renan, justement par ce qu'il
 a de discontinué, de décontenancé, de désarticulé, nous
 sera particulièrement utile dans nos recherches. Il |
 nous sera comme une planche anatomique préparée
-d'avance.
 
 Il faut bien se garder de confondre avec les génies
 véritables ces pseudo-génies qui ne font que nous en
@@ -1234,7 +989,6 @@ occupations et ses préoccupations ne sont pas du même
 monde. Un Michelet au contraire n'est jamais discernable comme historien de ce qu'il est comme philosophe,
 ni comme philosophe de ce qu'il est comme historien.
 On ne peut jamais le prendre sur le fait. Il n'est jamais
-36 |
 
 t& à ra + DE LA SITUATION FAITE ‘à
 Ja coupable. Il n'est jamais saisissable comme l'un ou 14
@@ -1244,7 +998,6 @@ Fe à C'est pour cela qu'un homme comme Renan nous « à
 apportera un concours presque uniquement précieux; 4
 ses incessantes plaisanteries, si souvent immodestes, 14
 .  métaient pourtant là que pour la modestie, et comme un ‘à
-vêtement. 1
 f Leurs habits sont aisés à faire; car, en ce doux AN
 … climat, on ne porte qu'une pièçe d'étoffe fine et légère, Hi:
 k qui nest point taillée, et que chacun met à longs plis M
@@ -1254,7 +1007,6 @@ autour de son corps pour la modestie, lui donnant la & 4
 _ Renan. Tant de mondanités, tant de faiblesses, tant de A à
 Fe concessions au siècle n'étaient qu'un revêtement. Et le PA ‘1
 3 souci métaphysique était dans l'organisme même. 4
-5 ; Sa
 Nulle part ce souci dans Renan n'apparaît autant que ï L
 dans ce livre singulier, singulièrement copieux, unique sil
 “4 de forme et de teneur dans toute son œuvre, qu'il a lui- 1
@@ -1265,15 +1017,11 @@ R même intitulé l'Avenir de la Science (pensées de 18/48). \ 1
 fe carne mea. Témoignage d'avant la vie, pour être publié - sl
 _ après sa mort, publié à l'achèvement de sa vie, parce ‘4
 _ que la vie se faisait longue, parce que la mort tardait à Lo
-Ù] $ j 67 de la situation. — 3 & 4
-s l
 
-Charles Péguy di 4
 venir, parce que l'éternité reniée se faisait attendre. Ou à
 plutôt témoignage entre deux vies, testament après 1
 ; l'achèvement, après un premier achèvement, qu'il 4
 f \ pouvait croire définitif, de la vie sacerdotale et reli- }
-gieuse, engagement, promesse, témoignage, vœu avant |
 le commencement de la deuxième carrière, avant
 ; l'inauguration de la carrière scientifique.
 l'ay quafi peur que voftre Alteffe ne penfe que ie ne ?
@@ -1291,29 +1039,13 @@ donné tout le refte de mon temps au relafche des fens
 cices de l'imagination, toutes les conuerfations ferieufes,
 & tout ce à quoy il faut auoir de l'attention. C'eft ce
 qui ma fait retirer aux champs; (Adam-Tannery,
-j tome III, pages 692-693; lettre CCCX, 28 Juin 1643;
 d''Egmond du Hoef) Observandum, non adeo incumbendum esse meditationibus, nec rebus metaphysicis, nec
-eas commentariis & similibus elaborandas ; multo minus
-altius repetendas quâm author fecit, ut quidam id ten38 4
 
-4 DE LA SITUATION FAITE 154
-cs | 1e M
 _ tant, nam ipse satis alte eas exorsus est. Sed sufficere 14
-3 semel in genere haec novisse, & tum* recordari conclu- 1 ;
-\ Sionem ; aliàs nimis abstrahunt mentem a rebus physicis 4
 É et sensibilibus, et faciunt eam ineptam ad illas conside- « 73
-randas, quod tamen maxime optandum ut homines 4
-- facerent, quia inde utilitas ad vitam redundaret. Ipse Nr À
 L autem satis est persecutus res metaphysicas in Meprra- 14
 TIONIBUS contra Scepticos, etc., et adstruxit earum 4
 4 certitudinem, sic ut id omnes tentare et aggredi non ” 1
-
-ÿ debeant, aut meditando diu se vexare in eis rebus opus 1%
-
-…_  habent ; sed sufficit nosse primum PriNcrP1oRUM librum, : nt
-
-s in quo continentur ea quae*ex Meiaphysicis ad 12
-4 Physica etc. scitu sunt necessaria. (Adam-Tannery, ke.
 
 ; tome V, page 165; Correspondance, DXIV, Entretien de 50 ‘4
 
@@ -1346,11 +1078,7 @@ L genre, dans leur classe, à leur place, dans leur forma- ‘À
 … elles retirent trop l'esprit des choses physiques et sen- ÿ
 ; sibles, et le rendent inapte à considérer celles-là (les A
 # choses physiques et sensibles), ce que (considération 2
-à % 4
-(54 # "ui
 
-- (PA TELTP ECRRRETES aie =
-fs Charles Péguy F0
 que) il faut pourtant souhaiter (choisir) au plus haut "4
 point que les hommes fissent, parce que [de] l'utilité « 3
 pour la vie en redonderait. Mais lui-méme a poursuivi 4
@@ -1414,8 +1142,6 @@ d et poèmes ou drames philosophiques, certitudes, proba- a
 He réellement, qu'est la pensée. Au moins ce qu'il veut F à
 k bien nous en laisser voir. (1
 
-Charles Péguy Re
-
 - Des papiers de Renan récemment publiés dans un
 certain nombre de revues et en librairie, lettres ou |
 
@@ -1468,9 +1194,6 @@ comme par hasard, fussent embarrassants, pour lui. 4
 Cela aussi est éminemment moderne. Et comme il À
 annonçait les modernes et les préparait, du même geste 4
 
-42 '
-
-Has 11 LIRE 4
 nor DE LA SITUATION FAITE 1
 FA il nous les représentait, du même geste il devenait, il 4 )
 af se faisait un de leurs plus éminents, peut-être leur plus h
@@ -1504,8 +1227,6 @@ L _ plus. C'est un immense et perpétuel détournement d'en- 114 À
 …_ naux correctionnels un mot technique, le nom d'une ne
 
 | 1 ST SENNON |
-; | RSS
-Charles Péguy e ‘ F |
 sorte particulière de vol, qui désignerait mieux, et qui . À |
 suffirait à désigner ce genre d'opération. ILestincroyable M]
 déjà qu'un intellectuel ait pu, aussi constamment, Al
@@ -1548,7 +1269,6 @@ ici apparaît dans sa manifestation peut-être la plus 4
 grave cette prudence de Renan, qui empêche un homme
 de se mettre mal avec les puissants du jour, mais qui ; |
 le sauve aussi d'atteindre aux vérités, qui sont des per- 4
-sonnes essentiellement compromettantes. A
 Le caractère même de Renan apparaîtrait ici sous un à
 assez vilain jour. On me dit d'ailleurs que sans doute il |
 ne faut pas traiter ce livre comme un livre de jeunesse, -
@@ -1559,7 +1279,6 @@ contestable, qu'il eût été jeune jamais. Il avait vingtcinq ans en 1848. Mais
 de tout le monde : c'étaient vingt-cinq ans de Renan; et
 les années de séminaire avaient compté double. Au moins
 comme avertissement, prétérition, timidité, méfiance,
-contrariété intérieure, analyse, pénétration, confession,
 retour sur soi-même, et sur les autres, défiance de soimême et des autres, désenchantement, enseignement de
 silence, leçon d'extrême prudence. Connaissance du 4
 monde et des dangers qu'il y a dans la vie. C'est-à-dire,
@@ -1575,8 +1294,6 @@ de philosophie.
 |
 |
 
-Charles Péguy 54
-
 Je me rangerais volontiers à cette explication, à cette.
 leçon, à cette version, à cette sorte de défense et de 3
 plaidoyer. Un homme ne fait pas, dans sa même vie, i
@@ -1591,7 +1308,6 @@ vérité, avec ses anciens amis politiques. Ce qui serait le
 deuxième degré du courage. Mais je ne mets là ce
 
 deuxième degré que pour la symétrie, et je ne me dissimule point qu'il est proprement ce que les mathématiciens nomment un cas imaginaire. Nullement un €as
-historique, réalisé, réel.
 
 Je crois que l'on trouverait aisément dans l'histoire :
 du monde un très grand nombre d'exemples de
@@ -1608,11 +1324,6 @@ premiers, aient eu le deuxième courage de sacrifier 1
 aussi délibérément leurs deuxièmes intérêts, leurs 4
 deuxièmes amitiés. Malheur à l'homme seul, et ce 1
 
-F.
-
-A ee
-
-à DE LA SITUATION FAITE 1
 n qu'ils redoutent le plus dans la création, c'est la soli- pe.
 54 tude. Ils veulent bien, pour la vérité, se brouiller avec Des,
 # une moitié du monde. D'autant qu'en se brouillant #
@@ -1622,11 +1333,9 @@ n retentissement, ils se font généralement des partisans ‘
 F que d'être antagoniste à la première. Mais si, pour 10
 ÿ l'amour de cette même vérité, ils vont se mettre sotte- D:
 K ment à rompre avec cette deuxième moitié, qui sera ‘à
-À leurs partisans ? si BE
 4 * Ils ne sont point des amis du genre humain, non, cela 3
 à serait indigne d'eux. Et de leur courage. Mais ils vou- ÿ
 . draïent bien demeurer les amis de la moitié du genre #
-À humain. .
 De cette véritable loi historique, au seul sens que ik
 
 | nous puissions reconnaître à cette insidieuse expression ;
@@ -1648,12 +1357,6 @@ tager les anciens partis et les départagea réellement, :
 - _ maïs ne les départagea, réellement, que pour instituer ;
 
 DR dE te RD
-
-”
-
-L É P£ Le
-
-Charles Péguy : |
 
 des partis nouveaux; et non pas, comme on lPavait |
 
@@ -1694,10 +1397,7 @@ s'agit plus que de gouverner tout le monde. Or pour
 exercer le gouvernement, dans nos sociétés démocratiques, et même dans les autres, il vaut mieux,
 
 ee CU US Ne Eee à at RO
-bit rer ;
-DE LA SITUATION FAITE
 3 en principe, être du côté où il y a beaucoup de
-4 monde. 5
 & Tel fut le mécanisme, schématisé, de cette immortelle ;
 À affaire Dreyfus, tel est le mécanisme, schématisé, de
 À toutes les grandes affaires humaines, et aussi de toutes
@@ -1729,8 +1429,6 @@ deuxième rupture : il n'y en a pour ainsi dire plus.
 Cumuler les ennemis inexpiables que l'on s'est faits
 par la première opération avec les contraires ennemis
 
-£ &: EE be”
-Charles Péguy = |
 infiniment plus inexpiables que l'on se ferait par la |
 deuxième opération : qui oserait? Ajouter à des ennemis Ë
 d'un premier bord autant et bientôt peut-être plus . |
@@ -1754,14 +1452,12 @@ la moitié d'un monde s'était un instant réclamée, continuera comme elle pour
 qu'il y a de plus fort, depuis qu'elle chemine ainsi, c'est 1
 qu'il ne soit jamais arrivé que cheminant ainsi au
 hasard des routes humaines elle se soit complètement
-perdue.
 Ce qu'il y a d'inexplicable dans le monde, ce n'est
 point l'erreur, ce n'est pas tant la vérité, que cette singulière survivance et cet acheminement de la vérité.
 Je dis ennemis infiniment pius ennemis, parce que si
 les hommes ne nous pardonnent pas de leur fausser
 compagnie après tout un long temps de compagnonnage, s
 
-DE LA SITUATION FAITE È
 ù. après tout un commencement de vie passé ensemble, ‘1
 ils pardonnent encore infiniment moins quand après È
 F tout cela, et après avoir ensemble rompu, après leur :
@@ -1780,7 +1476,6 @@ vant sa route politique, fausse compagnie à la vérité, #
 | de celui que cette petite compagnie à son tour devenue e
 À grande, cette minorité devenue majorité, quand à son ; Ç
 tour elle fausse compagnie à la même misérable vérité ee
-Ë continuante, voue aux quelques misérables solitaires à
 qui, rompant de nouveau, ne craignent point de conti- 4
 nüer d'accompagner une vérité désormais solitaire. Il ;
 : semble que cette deuxième rupture, dénonçant la de
@@ -1795,7 +1490,6 @@ légitime une révolution, comme on consolide un em- À
 tion: À leur corps défendant, sans doute, mais enfin ils :
 avaient fait une révolution. Ils étaient sortis. Non sans ‘
 
-Charles Pégur
 une inquiétude, secrète, parce qu'il est doux d'être du
 côté du pouvoir, de la conservation, de la tradition. Ils 3
 se hâtaient donc de consolider tout cela. De se refaire
@@ -1816,7 +1510,6 @@ Ils pouvaient à la fois être heureux autant et plus que
 des conservateurs, que les autres conservateurs, et,
 comme révolutionnaires, mépriser les anciens conser-
 | vateurs. Et voilà. qu'en deux ou trois ans tout serait à
-recommencer ?
 
 Juste au moment où ils commençaient à faire cette
 fin, où ils commençaient à réussir.
@@ -1843,7 +1536,6 @@ bien juré dans le fond de leur cœur, à eux-mêmes, qu'il Le
 * n'y a pas de danger, qu'on les y reprenne. Mais pour ti
 . garder tout de mème l'orgueil, dans leur nouvelle situa- à
 + tion, ils ont imaginé de faire de l'héroïsme à vie une 5 » fonction d'État, et ils se sont faits et ce sont eux les :
-._ fonctionnaires héros inamovibles. 3
 | Ils ont ainsi gardé tout. à
 1 C'est pour cela qu'ils ne pardonnent point à ceux qui ;
 . font la deuxième sortie, le deuxième saut. Juste au mo- À
@@ -1851,7 +1543,6 @@ ment où leur ancienne révolution, devenue bien conserva. £
 toire et très comme il faut, commençait à être reçue dans Her
 le monde. Bien portée. Portée comme une de ces décora- 9
 
-_ tions révolutionnaires. Légitime enfin. Presque légiti- à
 -  miste. Et voilà que ce retardé, par sa nouvelle sortie, 4
 1 par son deuxième saut, jette une fâcheuse suspicion sur Re
 … cette opération première que vous aviez faite en « commun avec lui. Sur cette opération originaire, sur 11
@@ -1872,7 +1563,6 @@ Ils éveillent, ils réveillent vraiment de fâcheux souve- |
 nirs. Ils vous délégitiment, d'un geste, d'un rappel, une
 première opération qui ne demandait qu'à se légitimer.
 Ils sont les perpétuels parents pauvres, inévitables, des
-révolutions parvenues.
 
 Ils sont ceux que l'on nommait : ces espèces.
 
@@ -1898,8 +1588,6 @@ du danger, le premier degré du courage est aussi d'être
 une fois apostat. On sait que l'on s'aitire ainsi des
 haïnes propres, et comme des haïines d'élection. Mais
 
-}{1 IN OSNSS Le:
-\ DE LA SITUATION FAITE 14
 on n'a peut-être jamais noté combien la deuxième vi
 . apostasie est infiniment plus dangereuse, combien elle 1 "4
 + demande un courage infiniment plus rare, combien par ï.
@@ -1926,11 +1614,9 @@ Ou encore : ils ont fait comme lui, dans le temps. 2,
 . ment infidèle à toutes les incessantes, successives, infa- 4
 - tigables renaissantes erreurs. Et l'homme qui veut 1
 demeurer fidèle à la justice doit se faire incessamment 4
-… infidèle aux injustices inépuisablement triomphantes. |
 | Cette perpétuelle infidélité est d'autant plus difficile à À
 k tenir, — j'entends cette expression au sens où l'on dit :
 . tenir sa foi, — que les puissances modernes ont des ï
-D 55
 
 | Charles Péguy +R
 sanctions implacables. Généralement toutes. Mais particulièrement les puissances modernes intellectuelles,
@@ -1962,7 +1648,6 @@ ennemis de prédilection. Aïnsi s'organisent dans le
 | que la mort même.
 | Ë Et il y a encore l'immense tourbe, la foule innumé-
 
-d'u _ DE LA SITUATION FAITE #4
 _ rable, l'incalculable plèbe de tous ceux qui ne seront À 4
 2 jamais ni amis ni ennemis, des morts indiflérents. Et il y ke
 | avait aussi ceux qui étaient ennemis d'avant, d'avance, We:
@@ -1971,7 +1656,6 @@ _ tion, pour ainsi dire par définition et tradition, avant Fe
 | toute entrée en matière de jeunesse même. :a
 _ Les anciennes censures, l'ostracisme grec, l'exil “A
 _ ancien, l'extermination de la cité, la mise au ban, les De
-_ pénalités médiévales, féodales, royales, ecclésiastiques, 4
 … lexcommunication, l'index étaient ou comportaient des À]
 sanctions redoutables. Souvent mortelles. Souvent elles À 4
 _ étaient capitales. Elles atteignaient peut-être moins Ne.
@@ -1984,7 +1668,6 @@ _ monde moderne contre tout ce qui toucherait à la domi- : 4
 _ et cela sans aucun doute, les activités intellectuelles 00
 _ sont moins nombreuses dans le monde moderne qu'elles £
 _ ne l'ont jamais été, dans aucun monde, moins considé-
-_  rables, moins libres surtout, moins fraîches, moins 5
 neuves, moins jaillissantes. Beaucoup moins que dans 4
 aucun monde connu. Il faut aux œuvres, à presque Fe:
 _ toutes les œuvres, et à presque tous les auteurs, sinon À
@@ -1995,12 +1678,8 @@ _ tout plutôt qu'un de ces silences comme le monde 4
 ss _ moderne seul a su en organiser autour des œuvres et pe.
 … des hommes qui auraient seulement l'air de faire sem- ‘4
 .… blant d'être capables d'être suspects de vouloir seule- ‘4
-* ; *
-APTE 14
 
-Charles Péguy UE
 ment commencer à marcher contre les superstitions |
-ÿ modernes. : 4
 Les haiïines intellectuelles modernes ont adopté, ont |
 emprunté tout l'arsenal des haïnes politiques anciennes À |
 et modernes, et notamment des haines politiques 1 |
@@ -2011,7 +1690,6 @@ scientifiques, et plus généralement la méthode. Il na L
 point menti pour cette méthode particulière que requiert |
 l'organisation méthodique, généralement de la haine, A, |
 particulièrement de la haine et du boycottage intel- 1
-lectuel. ? :
 De là vient en partie cette grande indigence intellec- |
 tuelle des temps modernes. L
 La solitude passerait encore, et un homme particulière- 4
@@ -2030,13 +1708,7 @@ plus contondantes pour ainsi dire, et ainsi elles paraïs- En:
 saient beaucoup plus écrasantes. Mais en réalité elles
 étaient moins hermétiques. Justement par ce qu'elles 4
 avaient de pugilaire, elles n'atteignaient pas uniformé- » 0
-D.‘
 58 4
-
-“RG: TOR RE DE LA SITUATION FAITE 14
-DAME : | ‘1588
-
-: EE a . FN
 
 . ment tout, et si elles retombaient lourdement quelques D:
 
@@ -2057,32 +1729,18 @@ _ mais ceci sera proprement, devant l'éternité, le chef- #2
 _ d'œuvre des temps modernes. : 140
 , | Au moins les anciennes sanctions n'étaient-elles point fa
 _ hypocrites. Elles désignaient celui qu'elles voulaient ni
-_ frapper. 0
 
-\ , 171400
-“Rr: GE:
-Ÿ js 3 ‘(08
 Ainsi ont commencé de nous apparaître au courant At
 _de ce premier cahier ; sous cette forme, sous cette figure ‘14
-sit Ë < Q-.
 
 . Ont commencé de se profiler sur lhorizon de nos T's
 _ recherches les premiers linéaments du massif mon- il
  tagneux, les premiers profils, et ces dents, ces décou- NA
 pures, ces profilements bleus, par qui s'annoncent au 1"
 
-4 RE N : h
 _ voyageur en marche, à l'homme de la plaine, les LS)
-\e7pe ET à AUS
 4 mobiles montagnes; ainsi ont commencé -de se des- Mo
-qe Bus
-LCA R. Le
-12 *.
-LUN 208 CAM
 
-dot Te NS ee TER RO ANT AU TRANS AUS
-Charles Péguy eu A:
-+ Li
 siner les premiers tracés de l'énorme question, du Li |
 i système, comme disent nos géographes, du problème  "3)
 . puissant et statutaire qui fera comme le réduit central | |
@@ -2094,11 +1752,9 @@ pourquoi tout un monde s'était séparé du christianisme,
 particulièrement du catholicisme. il
 ; Tout particulièrement et centralement la question 4
 était de savoir comment et pourquoi Renan, au commencement de tout ce monde, comment et pourquoi 4
-Renan, introduisant, préparant, figurant, représentant M
 tout ce monde, s'était séparé du christianisme, particu- à
 lièrement du catholicisme, comment et pourquoi notam- |
 ment, car pour lui la question revêtait cette forme A
-particulièrement critique, particulièrement aiguë, parti M
 culièrement éminente, comment et pourquoi il avait À
 quitté les fonctions du sacerdoce, le ministère ecclésias- M
 tique, l'état religieux. 4
@@ -2114,12 +1770,9 @@ ment de Renan à Tréguier, des mains de notre colla- 1 |
 borateur et de notre ami René Litalien. A |
 Cette question particulière et le problème général M
 ï qu'elle introduit et représente a été de toutes paris si ‘$ |
--_ 60 j
-' a |
 
 | ASC AE Ve rer Ga ARE ENT RE xt An REA
 D On ji ieh PRET de
-DRRNN 0 © DH LA SITUATION FAITE 21
 complètement résolu qu'il a été pour ainsi dire presque 1
 trop complètement résolu. La solution a été tellement De. j
 | parfaite qu'enfin elle est trop parfaite. 1
@@ -2128,11 +1781,8 @@ _ Le problème n'a pas seulement cessé d'être intéressant, 11
 1 _ pour nous. Il a disparu. Il a été comme étouffé, comme 4 4
 ; : sis sous la solution. La solution, trop grosse AA
  commère, s'était par mégarde assis sur le plat pro- 1e
-_ blème. ù a
-LASER Ru
 Do Alors apparaît, dans le silence et dans l'aplatisse- 17
 ment de l'ancien problème, dans l'effacement de cet Re
-_ ancien problème aujourd'hui épuisé, vidé, défait, dé- | #4
 | passé, alors apparaît au loin le nouveau problème, le : Es.
 problème de la génération présente, infiniment plus Da
 difficile, quand ce ne serait que parce qu'il est un pro- 1
@@ -2150,9 +1800,7 @@ ii eur vie dans des diflicultés infiniment plus difliciles, 2 #
 ARE ns des impossibilités infiniment plus impossibles, +
 de ns des conirariétés infiniment plus contraires, enfin à Fe
 SR 61 de la situation — 4 tt
-En.
 
-Charles Péguy +14
 dans des métaphysiques infiniment plus grossières, qui 4
 sont proprement les difficultés, les impossibilités, les > 4
 contrariétés, les métaphysiques de l'histoire et de la
@@ -2167,10 +1815,7 @@ monde, quel qu'il fût, il aurait toujours été meilleur n
 que ce monde moderne, les introducteurs, füt-ce très NM
 lointains et très perdus, de n'importe quel autre monde, |
 à venir, d'un tiers monde, d'une tierce création, d'une 4
-tierce Rome. à
 Tout eût mieux valu, et infiniment, que ce monde
-moderne, historique, scientifique, sociologique, incura- 4
-blement bourgeois. |
 : Si Renan et à sa suite et par le ministère de sa
 représentation le monde moderne entier ne s'étaient 1
 pas engagés dans cette voie d'être le monde moderne, Ë
@@ -2191,7 +1836,6 @@ d'homme qui a quitté l'Église, qui a perdu le sentiment ‘ai
 |
 |
 
-à DE LA SITUATION FAITE
 religieux, qui a quitté le christianisme, qui particulièrement a quitté le catholicisme, qui de sa personne à
 : quitté l'état ecclésiastique est aujourd'hui si parfaitement connue, d'une connaissance si claire et si intellec-
 \ tuelle, nous l'avons connue par tant de personnes
@@ -2224,11 +1868,7 @@ k nous acceptons parfaitement que Renan se soil dés-
 
 F tiens et particulièrement catholiques. Cela, c'est une
 
-À Charles Pé D
-à arles Pé, D |
-is ‘1
 4 affaire classée. Ce qui est nouveau, ce qui fait un fait De |
-He) À à & . ee PRE | nn |
 (Or nouveau, ce qui fait le problème, ce qui fait nos éton- |
 nements, commencements, sinon de toute science, au DL |
 ii moins de toute étude, ce n'est point ce désabonnement. |
@@ -2240,68 +1880,21 @@ K Qu'il se soit abonné à l'insipide revue que le monde M
 | Et non seulement ce qui fait le problème c'est ce singu
 | lier abonnement nouveau. Mais c'est la liaison, la rela-
 \ tion de ce désabonnement à cet abonnement nouveau.  #
-\ :
 | CnarLes PéÉcux Le |
 
 ses
 
-+0 4
-Qu |
-
-SE Kars.
-nn |
-
-JS
-
-"re
-
-L / sue WE d
-
-À 4 SU PRE LEA LEA” Li QUE MOINE TS UE n
-
 : RES HIEiT SES QE de
 
-+ 146 4 PORC ( NM
-AP LT. 13000
-DE" “ ; : 1:08
-
-F7 GUY Er: 1 70
-LE CR t à , 4,541
-Ne. À LEUR
-EE « SE
-i 8 5 1407 15 : F. APR
-* ne! A ‘150
-nr + È Mec
-HOME fs
-Ron 1400 :
-MU: à £ ” 1 DE:
-* : ENSANRIEES : BAT
-1 ss: re" Ki M
-
-: LR nr { ECTS
-123 LAVE - } OR
-1 T HAUENE ) Re ,
-AREAS AU:
-
-4 CANON ER TION SRE DS
-11 ATEN van = MC:
-
-+ VU ELU ï * AN
-SM JR 1. 0
 ET se ee ci y FR
-:1},. 1411 FN PET
 UE de Var | "RU
-TR 2 | aumaue ‘14e
 
 Il a été tiré de ce cahier treize exemplaires sur 4 |
 ”  whatman ainsi distribués : 4 |
 premier exemplaire de souche, exemplaire du gérant; 4 |
 deuxième exemplaire de souche, exemplaire de l'ad- 4
-; ministrateur ; 4
 troisième exemplaire de souche, exemplaire de lim- 4
-primeur ; 4 |
 dix exemplaires d'abonnement, numérotés de 1 à 10
-exemplaires d'abonnement. |
 Tous nos exemplaires sur whaiman sont numérotés
 à la presse et imprimés au nom du souscripteur ; nos à 74
 tirages d'exemplaires sur whatman sont rigoureuse- À Le
@@ -2310,42 +1903,20 @@ stant souscrits; nous ne vendons point d'exemplaires 3
 sur whatman en dehors de l'abonnement; l'abonnement E
 sur whatman à cette huitième série est de cent francs 1
 pour tous pays. 4
-? \
 Les Cahiers de la Quinzaine sont composés à la main, “4
 en caractères fin dix-huitième siècle (Didot) de la fon- A
 derie Mayeur (Allainguillaume et compagnie sueces- ‘M
 seurs) 21, rue du Montparnasse, à Paris, sixième 14
-arrondissement. : “180
 
 }, 4 VrdERESr ASH 4 LES fi 4. Mira NAN (Te. ©
-0) UNE #22 1 FCO
-TRES) , À 1°:"000
-ROMA Le - "Ne É
-À 40 EU 144
-ALTER 24; L'
 N° ATIES de”
-ARS : 01 Ÿ 0 00
-RU. 4 h #
-: FENRA : el
-FRS k Û r ! VEN
-108,7 (ART #° 4 + 542
-FES ve PU 7° È £ 16
-AUTRES 4 T1
-: te n x ».. VO ECC
-LT NN 4 È ' 1 {11e
-; CEE Ch 11
-Le é,.V(INRSNE ‘ j {0 É
-Ant.
-LENS A EAU : AUTOS
 
-nr A SOS
 CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, |
 rez-de-chaussée, Paris, cinquième arrondissement. me |
 Nos Cahiers sont édités par des souscriptions men- ja |
 suelles régulières et par des souscriptions extraordi- 4 |
 naires ; la souscription ne confère aucune autorité sur er |
 la rédaction ni sur l'administration ; ces fonctions |
-demeurent libres. “4
 Nos Cahiers paraissent par séries; une série paraît : \
 dans le temps d'une année scolaire, d'une année ‘1
 ouvrière, d'octobre-novembre à juin-juillet ; l'abonne- ne |
@@ -2355,8 +1926,6 @@ l'année, mais l'abonnement ainsi souscrit est, de droit, kù
 valable pour la série en cours. ‘4
 Prix de l'abonnement, pour chaque série annuelle à
 pendant le cours de cette série : 4
-Paris, départements, Alsace-Lorraine, 4 ,
-Abonnement ordi- \ Algérie, Tunisie... vingt francs pi
 maire ........... | Autres pays de l'Union postale uni- nn |
 | verselle....... vingt-cinq francs 14
 Abonnement sur whatman... cent francs pour tous pays ‘5 |
@@ -2375,41 +1944,10 @@ méro d'inscription qui devient automatiquement le "M
 ; numéro du tirage réservé à chacun des souscripteurs; M
 l'édition sur whatman est strictement limitée au |
 
-F nombre d'exemplaires à chaque instant souscrit. F
-
-1 {}
-\ 1
-
 Li ES jù ju j ja de ENT dau it d
 à Le fee ONU DER AC PAT A xl NS LEA ji RE Ah hobbies HITENS Ras :
 A MAN PEUT) 2 de A SAR AE OS GE à, Mit):
-12 LP 4 Éd % r , r
-UE AP ' FR
-“HaeRe qe
-RUE 45e
-"MN SERES 72
-UN ë 4
-: {EUR NES | ' ii 11
-{ } AC e 40
-EN nus à ; $ Er.
-pis FM 112
-4 M Le ai RARE + 8
-KR *i TT
-ï LUE eux É # +
-LILAS 1 N SA
-17 MONA ‘ A
-x ai AIRES 3 : à
-( SD Î ‘*
-l'RANNSRSES ‘LAS
-11. N'EMCASENRER \ À PA A
-à ve INA f Ne:
-2 tou A0) : TU
-re M APE 4 | ; | Fu
 , ; AE RP vr il
-* ARS ï « FER
-VIE ESRS ) J'R
-(EME RES # e , SVP
-: : L'ESESR 14 PAPA : M\VFas
 
 Pour tout changement d'adresse envoyer soixante nn. |
 centimes, six timbres de dix centimes. à “fi |

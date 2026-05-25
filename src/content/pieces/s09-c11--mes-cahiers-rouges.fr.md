@@ -7,14 +7,12 @@ author: maxime-vuillaume
 isAvertissement: false
 wordCount: 18904
 ---
-
 | Ÿ k M "1
 un peu de vérité sur la mort des otages
 la fusillade
 
 Quand on eut aiteint le fond de l'allée, le peloton
 
-é s'arrêta.
 Sicard se plaça à l'angle du mur.
 
 A côté de lui, Fortin. Derrière eux, le peloton des
@@ -24,7 +22,6 @@ suivi le cortège, et Genton.
 
 Les six otages étaient allés, sur un signe de Sicard,
 se placer au bas de la muraille qui faisait face aux exé-
-cuteurs.
 
 Tout près de Sicard, le premier du rang, le pompier
 casqué. Puis un fédéré, Lolive, (1) et, un peu plus loin,
@@ -35,12 +32,10 @@ de l'infirmerie. Ils mirent en joue, attendant le commandement.
 
 Là encore, je voulus savoir si quelque exclamation,
 injure, protestation, avait été remarquée. Rien. Le
-silence.
 
 Sicard leva le bras. Mais le commandement de |
 « Feu ! » ne sortit pas de ses lèvres. Il s'était rappelé
 qu'il n'avait pas d'arme. Il se tourna vivement vers
-Fortin.
 
 — Fortin, ton sabre !
 
@@ -52,15 +47,11 @@ mort. Fusillé à Satory le 18 septembre 1872.
 
 | 160
 
-‘ k L
-À L'ARCHEVÈQUE |
 Fortin tira son sabre du fourreau — le sabre que lui
 avait donné Ferré l'avant-veille. Il le tendit à Sicard,
 qui, sans lever l'arme — les exécuteurs étaient tellement
 pressés les uns contre les autres qu'il eût pu blesser
 quelqu'un d'eux — cria :
-
-— Feu!
 
 Le peloton tira.
 
@@ -70,7 +61,6 @@ Tous tombèrent, excepté l'archevêque.
 rechargeant rapidement son chassepot. (1) )
 
 Il ajusta le prélat, qui porta la main à sa poitrine, en
-s'affaissant.
 
 Quelques coups isolés éclatèrent encore.
 
@@ -103,12 +93,10 @@ de feu, vous avez rechargé votre arme pour tirer de nouveau.
 arrondissement) ; blessé boulevard Voltaire le 25 mai, mort à lPhô-
 pital de Versailles le 20 juin 1871.
 
-{
 |
 
 un peu de vérité sur la mort des otages # ÿ
 devait être grièvement blessé le lendemain, Jourde, (1) |
-Theisz, (2) Avrial. |
 
 — Eh bien! c'est fait, leur dit Genton, en s'approchant. Nous venons de fusiller l'archevêque !
 
@@ -136,16 +124,10 @@ Les hommes du peloton avaient raconté les détails
 du drame. L'odeur de sang qui flottait depuis le matin $
 
 (1) Jourde (François), membre de la Commune (einquième arron- é
-dissement) ; délégué aux finances (21 avril).
 
 (2) Theïsz (Albert), membre de la Commune (douzième arrondis- ;
 sement) ; délégué aux postes et télégraphes (6 avril). L
 
-k à
-
-“ (be ARMES
-“4 x N ï |
-L'ARCHEVÊQUE
 enivrait les combattants, sûrs désormais que la mort
 les attendait à brève échéance, la pire mort, celle des j
 représailles qui déciment les vaincus.
@@ -161,7 +143,6 @@ s'approche de Jourde.
 — Eh bien! lui crie-t-il insolemment au visage, on
 vient de lui en foutre dans la peau, à larchevèque !
 — Taisez-vous, riposta Jourde. Vous feriez mieux
-d'aller au feu.
 Le nain pâlit. Ses yeux s'allumèrent, II fit mine d'épauler son arme.
 — Ah! c'est comme ça! Ça vous déplaïit, à vous
 autres, qu'on fusille les curés !
@@ -170,15 +151,9 @@ resserrait autour de Jourde et de ses amis :
 — Est-ce que vous voudriez par hasard qu'on leur en
 foute aussi, aux membres de la Commune!
 Un rassemblement se formait. Les trois amis s'éloignèrent sans mot dire, poursuivis par les injures du
-nain féroce.
 (1) Privé (Francis), membre de la municipalité du sixième arron- ;
-dissement (Saint-Sulpice).
-
-; t
 
 un peu de vérité sur la mort des otages À
-
-A
 
 . Devant le Conseil de guerre |
 
@@ -210,26 +185,18 @@ Elle, naïve et hébétée, ne sut que pleurer, comme elle }
 avait pleuré devant Beaufort, quand elle l'avait vu acculé au mur de la place Voltaire. jh |
 
 — Mais, puisque c'est la vérité, répétait-elle entre
-deux sanglots. (1)
 
 (eo) La femme, la « compagne » de François, eut une attitude très
 Ene était aux derniers jours de sa grossesse. Elle devint mère
 au cours des débats.
 
 A June des audiences, en parlant de François, elle dit : « Mon ;
-mari ».
 
 Le commissaire du gouvernement, le commandant Rustant, crut
 
-164 }
-
-l 3 \
-L'ARCHEVÈQUE
-Poignante confrontation
 On a lu plus haut lincident du sabre avec lequel |
 Sicard commanda le feu, sabre remis par Fortin à
 Sicard, à l'instant même où ce dernier devait faire le
-geste suprême.
 Cet incident était ignoré du président du conseil de
 guerre, le colonel De la Porte, et du commissaire du .
 gouvernement, le commandant Rustant.
@@ -255,8 +222,6 @@ Le commandant. — À la mode de la Commune.
 Zélie Grandel. — Oui, monsieur. Mais mon mari ! Lt
 L'acte d'accusation portait: Fille Grandel, concubine de François.
 
-nil [}
-
 ur peu de vérité sur la mort des otages
 agents, dans un fiacre, qui marchaït au pas. Arrivé, on
 le restaura et on l'amena à la barre du conseil. }
@@ -265,7 +230,6 @@ L'apparition de ce cadavre aux joues hâves, d'une
 maigreur effrayante, produisit sur les accusés et sur le
 conseil une impression poignante. Était-ce donc là celui
 qui, un pied déjà dans la tombe, allait faire jaïllir la
-vérité ?
 
 Sicard est assis dans un fauteuil qu'ont apporté deux
 
@@ -301,12 +265,9 @@ chez-vous de Sicard.
 condamné, pour sa participation à l'insurrection, à la déportation
 dans une enceinte fortifiée (16 septembre 1871).
 
-ÿ k h
-L'ARCHEVÊQUE ;
 Fortin s'est approché. Il touche presque le moribond. ‘
 — Sicard, dit le colonel, vous avez juré de dire toute
 la vérité. Vous connaissez Fortin ?
-Sicard reste muet.
 Il est comme accablé. On dirait qu'il cherche à rassembler des souvenirs lointains, confus, dans son pauvre
 cerveau déjà figé par la mort toute proche.
 Il ne quitte pas Fortin du regard. Il fait un effort qui
@@ -314,7 +275,6 @@ secoue dans le fauteuil trop large son corps débile. Il
 tourne enfin la tête avec un signe de dénégation.
 Non. Il ne connaît pas Fortin.
 Le président adjure Sicard. Il voit qu'il y a là un mystère terrible, et que ce mort va l'emporter dans sa
-tombe.
 Sicard penche la tête. IL semble se rendormir, lassé fl
 de l'effort qu'on lui a imposé. Il fait un nouveau et dernier signe de dénégation. C'est fini.
 Les deux hommes qui ont apporté le malade à la
@@ -326,11 +286,8 @@ Des personnages mis en scène au cours de ce récit,
 aucun ne survit.
 Ferré, qui signa l'ordre d'exécution; Genton, qui le
 porta à la Roquette; François, qui livra les prisonniers :
-fusillés à Satory.
 Fusillé aussi Lolive, qui tira deux fois sur l'arche167
 
-; ke FT AN 5
-« % Ji 1 \
 un peu de vérité sur la mort des otages
 vêque, et qui, après sa condamnation, disait à un de
 ses camarades de prison : « Je ne l'ai pas volé. »
@@ -338,7 +295,6 @@ Morts : Sicard, qui commanda le feu; Fortin, qui lui
 prêta son sabre pour faire le geste fatal; Mégy, qui
 faisait partie du peloton.:(1)
 Morte la cantinière du 66° décimé à la Madeleine, |
-Lachaise. <
 On n'a jamais su le nom du pompier qui s'offrit place
 Voltaire, et qui se plaça, le premier, bien en vue, tout
 ; près de Sicard, pour « venger son frère ».
@@ -350,53 +306,27 @@ avait pris le fusil. Il passait place Voltaire quand le peloton se
 dirigeait vers la Roquette. Il se mêla aux hommes, et les suivit
 jusqu'au mur. Jouannin mourut il y a une dizaine d'années, à Moulins, sa ville natale. Sa famille lui fit faire des obsèques religieuses.
 
-L'HOMME DU MEXIQUE
-(vendredi 26 mai)
-otages. — 4
-
-CRAN ER RER FPE Ban à
-NDS PR Te RÉ PENS SHREIT AAA 5 164
-AN a PATES MAN
 HE et ERA nie DRE ASC. NC DRE "A VRAI ETES FN
 
-PRE dr Ar AE 7 CR nee pe ART alé
-NRA MANN pe ue pe He A Te FRA
-AE LU A d Ms RS Se ATEN
-Ste a DAS Re Res HAUT SMS à
-nes Sn HÉATES A FRA AN RUE à
-RAA ir PAUCRR OR UN a SN Me ES DATA AN SEEN LSRA RENAN ÿ
 ne FRS En Te. pra A EEE INR RUN OUS FU
 MAT à CU PES RAT APPAS nu LOTS FAURE L'
-Île A Sea AM Re À RNA (re DUR SAR:
-sat À SET EE DRE (Se FR LT RAT SRE Dore HET RS
-Re D  AÉONE FRE DT IAE
 a Rae à js AUS UN A RER ee ENTER
-Fe PAR de Se LUE TE EURE: En ALES FR RACE 2 VIS ASÉRE Ce
-RES RAA EN N'AEUES Ru PNR AIT ANS VE PE EUR AS PUR US PE ni
 as LUE NES NES LEUR SES ris
 SUR RAT re fiefs RE 4 AR EN ï
 ND. el UNE" PE TRES NU MENU ee LureMEre *
-: SR SAONE Sr AU ME PANNE es (VENTRE : :
 mo D Do. EL er AUS RD AE FPS Durs Dune de
 ee dE UU RS Aie CU HANAUE SIA Ron Re
 
 de ER AE PE EE NN que AIS ALIAS RARE RU NOUS RE FEI LAN LR .
 
-DRE LL NS A ci RL ÉONIENA APS NOEL DATE RME LE ET À
 NS EZS lee FE ART Re REINE IEEE +) LE
-SR IT Modo THIERS >
 
-DE NC CE ”
-N à
-L'HOMME DU MEXIQUE
-(Vendredi 26 mai)
 Si nous allions chercher Jecker (1)
 
 Le vendredi 26 mai, peu après le lever du jour, la
 pluie se mit à tomber, fine et serrée, une pluie à traverser les os.
 
 A la barricade de la place du Trône, les fédérés
-attendaient.
 
 Seuls, quelques hommes, conduits par un lieutenant,
 s'étaient portés en avant, vers Mazas.
@@ -419,7 +349,6 @@ Picpus-Bel-Air; Liberton, commandant du 275° bataillon; G., capitaine d'armemen
 
 ._ Clavier et Liberton sont morts. Les trois autres vivent (1907) et
 il m'est impossible de les désigner ici autrement que par des initiales.
-à 191 |
 
 un peu de vérité sur la mort des otages
 
@@ -441,7 +370,6 @@ tuité, (1) le capitaine adjudant-major dudit 275, un
 Polonais, Mizgier de Turzina, accusé lui aussi, se
 présenta devant le Conseil, se soutenant sur des
 béquilles. IL n'était pas encore guéri d'une terrible
-blessure reçue en combattant au Trône.
 
 Les derniers préparatifs de défense étaient terminés.
 
@@ -463,9 +391,6 @@ sous-officier d'artillerie de l'armée, fut fusillé à Satory le 6 juillet -
 
 (2) Géresme (J.-B.), membre de la Commune du douzième arrondissement.
 
-; |
-
-L'HOMME DU MEXIQUE L
 — Des canons! répondit Clavier. Mais vous n'avez $
 qu'à descendre au onzième. On vous donnera un ordre
 et vous irez les chercher au parc des Partants. ;
@@ -474,7 +399,6 @@ les points élevés des dix-huitième, dix-neuvième et vingtième arrondissemen
 dans un terrain vague que l'on atteignait en montant ;
 le chemin, aujourd'hui rue des Partants, qui part de la A
 rue des Amandiers et finit sur les hauteurs de Ménil- :
-montant. (1) :
 Les six amis, Clavier, Liberton, Géresme, G... B... et
 M... descendirent le boulevard Voltaire. Adolphe Bau- :
 doin retourna place du Trône.
@@ -484,7 +408,6 @@ Clavier resta sur la place avec les trois autres. (2)
 Jusqu'ici, soit à la barricade du Trône, soit au com- |
 missariat, soit pendant le trajet vers la mairie, il n'a
 pas été question une seule fois de Jecker, ni d'aucun
-autre otage. 4
 (1) Pour suivre ce récit, il est indispensable de se reporter à une
 carte du Paris de 1871. Ici, par exemple, le lecteur ne comprendrait pas, sans consulter une carte, pourquoi, pour atteindre les
 hauteurs de Ménilmontant, on passe par la rue des Partants. Cette
@@ -494,12 +417,10 @@ Père-Lachaise, a été percée après les événements.
 sous le nom de « l'homme », qui apporte de la mairie l'ordre de
 fusiller Jecker. C'est une erreur. Clavier n'est pas monté à la 5
 mairie, et il ny a eu auçun ordre, ni de la Commune, ni de quiconque. |
-173 otages. — 4. 4
 
 un peu de vérité sur la mort des otages
 ; Le nom du banquier mexicain (x) est prononcé pour la ;
 première fois par Clavier, on ne sait à la suite de quelle
-association d'idées. Ë
 
 Est-ce le voisinage de la Roquette où on a fusillé
 lavant-veille, le mercredi soir ?
@@ -544,7 +465,6 @@ Jecker fut conduit à la mort par Genton, François, Bo... et CI...
 Ges deux derniers faisaient bien partie des cinq, mais ni François
 ni Genton, n'étaient là.
 
-! Ne L'HOMME DU MEXIQUE
 FR | L'ordre de retirer les canons du parc des Partants fut
 porté au Trône par un fédéré. Ordre bien inutile. Le
 
@@ -559,13 +479,11 @@ L le mercredi soir Genton et Fortin, porteurs de l'ordre
 Le Ce fut Clavier qui sonna à la porte.
 
 — François est-il là? demanda-til aux hommes du
-; poste.
 À Sur une réponse aflirmative, tous cinq entrèrent dans
 . à la cour et ensuite au greffe, où était François.
 Après échange de poignées de main, tous étant de
 | vieux camarades de luttes politiques : E
 — Tu as ici Jecker? demanda Clavier.
-L — Oui.
 ‘ — Eh bien! nous venons le prendre.
 J — Vous avez des ordres ? ;
 F — Ne t'occupe pas de cela. C'est notre affaire.
@@ -574,8 +492,6 @@ F — Ne t'occupe pas de cela. C'est notre affaire.
 Ë placèrent sous le menton de François.
 : — Tu n'as plus d'observation à faire? demanda ironiquement Clavier. Allons! qu'il descende vite!
 8 — Vous me donnerez un reçu? reprit encore Fran-
-
-çois.
 
 un peu de vérité sur la mort des otages LS
 Clavier écrivit un reçu de la remise du prisonnier, 1
@@ -587,7 +503,6 @@ dit-il à demi-voix. Hier encore, il me proposait un million pour s'évader. (1)
 La porte de l'escalier qui conduisait au corridor du
 premier étage du pavillon Ouest, où était Jecker, s'ouvrit.
 Le condamné parut. |
-Interrogatoire
 La redingote serrée à la taille, boutonnée jusqu'au
 menton, les cheveux coupés ras, la barbe grisonnante
 soigneusement taillée, correct, Jecker avait le visage |
@@ -606,8 +521,6 @@ du greffe. ;
 qui s'est dit. G... m'a affirmé que telles avaient'été les paroles de
 François, mais qu'il n'ajoutait aucune foi à son dire.
 176 9
-
-F ; _ L'HOMME DU MEXIQUE
 
 Clavier questionna le prisonnier pendant un grand k
 s quart d'heure. Il lui reprocha « l'immense fortune »
@@ -655,10 +568,6 @@ des passeports, Charles Riel, lui ayant posé quelques questions,
 Jecker se troubla. On le conduisit devant Rigault, et là, il avoua
 qu'il était Jecker.
 
-s 177 +
-L
-
-\ 2 \ À
 un peu de vérité sur la mort des otages
 LIRE Le commandant Liberton, revolver au poing, précé-
 dait le groupe.
@@ -674,7 +583,6 @@ sur le Paris des faubourgs, vitrages d'ateliers pauvres,
 cheminées d'usines, jardins entourés de murs galeux.
 Malgré l'heure matinale, des fédérés, des femmes, Ë
 des gamins, sont sur le pas des portes, à l'entrée des
-allées.
 On dévisage le prisonnier, dont la tenue correcte,
 l'attitude sévère, augmentent la curiosité,
 — Qui est-ce ?
@@ -682,15 +590,12 @@ l'attitude sévère, augmentent la curiosité,
 Et quand ils apprennent que cet homme, entouré si
 étroitement, est « l'homme du Mexique », celui dont le
 nom a si souvent frappé leurs oreilles, Jecker, le fameux
-Jecker :
 — Nous en sommes !
 Et üls suivent, le fusil sur l'épaule.
 — ]1 nous fallait, me disait G..., refuser du monde !
 Augmenté des hommes « de bonne volonté », le cortège arriva au coin du chemin des Partants.
 Le chemin des Partants, dont la physionomie na
-178 ‘
 
-L'HOMME DU MEXIQUE À
 point changé, est une sente étroite, rapide, avec des
 - bosses et des heurts, des angles et des courbes, tout
 
@@ -735,8 +640,6 @@ qui les sépare aujourd'hui, wexistaient pas en 1871. Les terrains
 sur lesquels ils sont construits étaient un ensemble de jardins et
 de petites rues.
 
-179 d ù
-
 un peu de vérité sur la mort des otages
 
 contre-bas, où s'élevaient de rares constructions et où
@@ -760,11 +663,7 @@ ver braqué sur la tempe de Jecker.
 
 Une quinzaine d'hommes se mirent en face, l'arme en
 
-joue.
-— Feu ! commanda Liberton.
-Seuls, quelques-uns tirèrent.
 à Les autres relevèrent l'arme.
-j Jecker tomba.
 
 Une bande de gamins, affreuse vermine de la rue,
 s'abattit sur le cadavre. (1)
@@ -782,32 +681,11 @@ François « fouilla le cadavre, prit le portefeuille et le porte-
 (2) Nous répétons le mot tel qu'il nous a été rapporté par l'un
 des acteurs du drame. Voir aux Annexes, note VI, page 229.
 
-LA RUE HAXO
-(vendredi 26 mai)
-otages. — 5
-
-PAU RME PAIE CE AL EN RSA AE PR TU
-AE dt AREA A A RAA #4 AN a GoAe KRNENANR
-
-TA TO RCE
-
-Eu IE 0 IA ES AA ii At Gi ARRET,
-
-4 ER LE ERP PRE nr CO SUR PRO EL 7 EE ÉRANIEU ÿ A eLE
-AS : 11 NON QE LL Le A 0 SES
 He nt te MAS en qu RE Le EU wi etAno TES
-OS ARE SA AC E CH AANEE à a) PUR et Re NP CENanES Fa
-HN }| SAR AA RAGE AL OA Fur AE + 2 NN (ARE 1.24)
 de 1; 1 A ARE) HAE STE MA D LES AN EL Ne AAA ES nn HEURE MS DEVRA à 4
-Ro ‘110 ONE ST AS | 61 VIN AE ONE
-ER Sr NET (MES ARTE RACE 1 ! #yh RON IN ATEN IAE N ONE AAATARN ET D
 LEE us : 0 SNS M UE dE EN AR TE AN que
 DT MA HET RE AtES AS ART Due ea ea, JE AI) NES : NAS
 
-K{0 tte ms |
-LA RUE HAXO
-(Vendredi 26 mai)
-Préparatifs
 Jecker venait de tomber, quand deux hommes, attirés
 . par les coups de feu, arrivèrent en courant.
 
@@ -829,24 +707,18 @@ Et, fixant le cadavre :
 | — C'est Jecker,
 | — Jecker !.. Où l'avez-vous été prendre ?
 — A la Roquette.
-x Gois sembla réfléchir.
 | — Ah! à la Roquette.…..
-
-\ .
 
 un peu de vérité sur la mort des otages
 Puis brusquement :
 — Mais, si nous allions en chercher d'autres, à la
 Roquette!… Des curés... Des gendarmes... (1)
 Personne ne répondit.
-Goiïis poursuivit :
 | — Nous prendrions avec nous une compagnie d'Enfants Perdus... Ça y est-il? Et puis, j'ai aussi mon
-peloton d'exécution.
 Ce que Gois appelait son peloton d'exécution, était
 une compagnie, formée par lui, composée d'hommes
 choisis, triés parmi les plus violents et destinés à
 exécuter les sentences de la cour martiale qu'il présidait, Ces hommes portaient au képi une large bande
-rouge.
 Les Enfants Perdus, placés sous les ordres d'Eudes,
 \ se reconpaissaient à leur costume vert foncé, pantalon
 à la zouave du même ton, serré au bas dans des guêtres
@@ -867,24 +739,16 @@ sans oublier la fameuse vivandière à cheval, vêtue de rouge et le LR
 sabre à la main ! Ce n'est pas de l'histoire que fait Maxime du
 Camp, c'est du roman.
 
-RG tr \ Ê
-, k Î
-LA RUE HAXO
-A
-
 Le « secteur » était rue Haxo, au numéro 81, en face
 de la rue des Tourelles, à quelques cents mètres des
 fortifications, tout en haut de Belleville. Pendant les six
 mois du siège, un petit pavillon y avait servi de bureau
-au général Calier. (1)
 
 Nombre d'ofliciers fédérés, C.…, entre autres, étaient
 venus au rapport dans la salle basse de cette bicoque
 grise, sur le bord d'un grand jardin tout en arbres et en
-friche. (2) {
 
 A ce secteur, s'étaient donné rendez-vous, ce vendredi 26 mai, divers membres de la Commune et du
-Comité central. Eudes devait se trouver là.
 
 Rue Haxo, Eudes écouta ce que lui dirent Gois et G...,
 l'un des cinq de Jecker, qui l'avait accompagné. Mais
@@ -911,10 +775,6 @@ ral était rue Haxo, 99.
 (2) C'était ce qu'on appelait la Cité de Vincennes. Aujourd'hui
 une Société civile a acquis le terrain, et, au-dessus de la porte
 d'entrée, on voit resplendir, en lettres dorées, ce titre : Villa des
-Olag'es. (1898)
-
-î 185
-p
 
 un peu de vérité sur la mort des otages
 en tout, il redescendit avec G. vers le Père-Lachaïse et
@@ -924,7 +784,6 @@ Il m'en faut cinquante.
 Ces préparatifs avaient pris toute la matinée. Il était
 déjà deux heures quand les cinq exécuteurs de Jecker,
 Goiïs, C... et leur troupe armée, se présentèrent à la
-prison.
 
 La scène du matin se renouvela.
 
@@ -962,12 +821,9 @@ Et, ce disant, Gois tenait son regard, fixe et dur,
 
 \ attaché à une table, derrière laquelle, assis, écroulé,
 
-LA OEM TER RE PA CAT A
-LA RUE HAXO
 cherchant à dissimuler son visage, était un homme, l'un
 des quatre.
 Cet homme s'appelait Greffe. IL était ami de Fran-
-çois.
 0 — Ajoute donc à la liste, dit Gois à François, les
 quatre noms que tu connais bien : Largillière, Ruault, |
 Greffe et Dereste.
@@ -978,7 +834,6 @@ n'échappera plus... Assez de paroles. Fais descendre
 tout cela.
 — Mais, objecta encore François, où les conduis-ta ?
 — Que t'importe ! Allons ! fais vite copier la liste. Et
-en marche!
 La liste recopiée au greffe, Goïs la parcourut, la confronta avec celle qu'il avait dressée, compta encore une
 fois les noms. Un quart d'heure après, les otages voués À
 à la mort étaient réunis dans le préau central.
@@ -997,19 +852,15 @@ parce qu'il a compté lui-même les otages à la Roquette, et aussi
 parce qu'il a assisté, avant la fusillade, à leur partage en cinq
 groupes de dix dans la cour où ils attendaient.
 
-te
-
 un peu de vérité sur la mort des otages
 un ordre bref de Goïs, se dirigèrent vers l'entrée de la
 prison. Placés sur les deux côtés de l'allée d'arbres où
 se trouvaient, avant leur enlèvement, les cinq pierres
 de la guillotine, (1) les Enfants Perdus attendaient,
-armes chargées.
 Le cortège, qu'avait entouré, dès la sortie, une foule
 menaçante, prit la direction du Père-Lachaise.
 — Où allez-vous? criait-on à ceux qui avaient pris la
 tête de la colonne ?
-— A Belleville!
 Conversation à la prison
 Il s'en était fallu de peu que la Roquette vît se renouveler la scène tragique du mercredi.
 Pendant que les gardiens faisaient l'appel des victimes, Gois et ses compagnons discutaient dans la cour.
@@ -1021,7 +872,6 @@ y Celui qui venait de poser cette question continua :
 — Que veux-tu dire ?
 — Je dis qu'il faut fusiller les curés ici, ainsi que les
 quatre de la police.
-— Pourquoi ?
 — Parce qu'ils nous gêneront plutôt quand nous serons
 (x) Les dalles, encastrées dans le pavé, sur lesquelles s'appuyaient
 les bois de justice au jour des exécutions capitales, avaient été
@@ -1030,7 +880,6 @@ lui, 17, rue de Charonne, où il avait sa boutique d'emballeur. Elles
 s'y trouvaient encore à la date du 14 janvier 1872. François fut
 fusillé à Satory le 24 juillet 1872.
 
-LA RUE HAXO
 dehors. Nous pouvons, en effet, dire à la foule qui va
 nous entourer, que les militaires — les gardes de Paris —
 que nous escortons sont des prisonniers faits à l'armée
@@ -1047,7 +896,6 @@ en finir avec eux ici même, avant de quitter la prison.
 Les autres écoutaient sans mot dire.
 
 — Bah! dit Gois, il vaut bien mieux leur régler leur
-compte ensemble.
 
 Quelques minutes après, on se dirigeait vers le PèreLachaise et Belleville.
 
@@ -1066,13 +914,9 @@ qu'ils seront accompagnés. Quand les derniers coups de
 feu auront éclaté, on fouillera le bloc sanglant pour
 s'assurer qu'ils sont bien là et que pas un n'a échappé.
 
-189 otages. — 5.
-
-h 4 UE D GAP nt 2:
 | un peu de vérité sur la mort des otages
 
 Quels étaient ces hommes ? Pourquoi cette haïne
-implacable ?
 
 Pour ceux qui les menaïent à la mort, le crime des .
 
@@ -1085,7 +929,6 @@ trois d'entre eux, Largillière, Ruault et Greffe, qu'ils
 étaient accusés d'avoir trahi leurs compagnons de luttes
 
 politiques en s'enrôlant parmi les agents de la police
-impériale.
 
 On n'avait certes aucune trahison à reprocher à l'officier de paix Dereste. Son crime était « d'avoir fait son
 devoir ». Il avait été mêlé à toutes les affaires politiques
@@ -1108,7 +951,6 @@ Ruault parut dans le procès dit de l'OpéraComique. (1) Il était lié avec Del
 ( ») Les débats du procès dit de POpéra-Comique se déroulèrent
 du 9 au 16 novembre 1853, sous la présidence de Zangiacomi. Dans
 son réquisitoire, le procureur général Rouland dit à propos de
-Ruault :
 
 « Ruault ! Pourquoi discuter ? Il est mêlé à tout. Il a tout organisé. Conspirateur rusé, tenace, sombre, il est impassible, il oppose
 
@@ -1120,10 +962,6 @@ Ruault fut condamné à la déportation.
 . Lorsqu'Albert Fermé publia, en 1869, son livre des Conspirations
 du second Empire, Ranc, qui avait été des accusés dans le complot
 de l'Opéra-Comique, lui écrivait: « Après quinze ans, je vois
-190 <
-
-Le NN VO Re PA AM NN Er À M) F " v
-ñ } LA RUE HAXO
 
 qui l'avaient connu et estimé, et qui était bien loin de
 
@@ -1157,17 +995,12 @@ gendarmes, Joseph Ruault, un caractère stoïque, une âme impassible.. »
 Quelles mystérieuses et atroces misères ont conduit ce fier combattant aux infâmes besognes qu'il paya d'une mort, hélas méritée!
 
 (1) Protot (Eugène), membre de la Commune (onzième arrondissement), délégué à la Justice (17 avril), membre de la Commission
-exécutive (27 avril).
 
 (2) Giffault (Emile), commissaire de police attaché au cabinet du
 délégué à l'ex-préfecture de police. Condamné aux travaux forcés
-à perpétuité.
-
-Me V4
 
 un peu de vérité sur la mort des otages US
 avoir laissés dans son cabinet le chef de la police
-secrète impériale, Lagrange.
 
 Le cabinet de Lagrange était situé dans les vieux bâtiments, assez loin du bureau du délégué de la Commune.
 
@@ -1188,14 +1021,11 @@ Rigault. Elles devaient dévoiler quelques secrets.
 Quand on les dépouilla, on trouva d'abord plusieurs
 
 lettres au bas desquelles on crut reconnaître la signature de Largillière. Ces lettres paraissaient être entièrement de sa main. l'une d'elles était une demande
-d'argent, adressée à Lagrange.
 
 Raoul Rigault signa immédiatement un mandat
-d'amener contre Largillière.
 
 Mais où le rencontrer ? Aucune nouvelle de lui depuis
 le 4 septembre. On savait seulement qu'il habitait
-Belleville.
 
 On eut l'idée de chercher sur les états de la garde
 nationale, qui révélèrent son inscription dans une com-
@@ -1203,23 +1033,14 @@ nationale, qui révélèrent son inscription dans une com-
 pagnie sédentaire du 47° bataïllon. La compagnie était
 de garde au ministère des finances.
 
-Lorsque Giffault, chargé d'arrêter Largillière, entra
-
-}
-
-LA RUE HAXO
-
 dans le poste du ministère, il vit Largillière, qu'il connaissait pour lavoir souvent rencontré dans les réunions
 de l'Empire, étendu sur un lit de camp, fumant tranquillement sa pipe.
 
 Giffault fit un signe. Largillière se leva. Les deux
-hommes sortirent.
 
 — Rigault te demande à la préfecture.
 
 Largillière avait pali.
-
-— Pourquoi ?
 
 — Un renseignement.
 
@@ -1240,10 +1061,8 @@ Pas une parole ne fut échangée pendant le trajet. )
 cabinet de Rigault.
 
 Rigault était assis devant son bureau, la lettre de
-Largillière ouverte.
 
 — Tiens, lis, dit Rigault au prisonnier. C'est bien ton
-écriture. 1
 
 Largillière ne trouva pas une parole. Il était livide.
 
@@ -1254,9 +1073,6 @@ otages, le lundi 22 mai, à la Roquette. ;
 
 En même temps que la lettre de Largillière, les dos-
 
-193 )
-
-Ÿ Æ MT
 un peu de vérité sur la mort des otages Me
 siers de Lagrange avaient livré des papiers qui semblaient tout aussi compromettants pour Ruault. (1)
 Un mandat d'amener fut lancé contre ce dernier.
@@ -1264,7 +1080,6 @@ Giffault fut encore chargé de l'exécuter.
 | Ruault habitait Montmartre. On le retrouva comme
 on avait retrouvé Largillière. Il était inscrit, malgré
 son âge, dans un bataillon de marche, détaché à
-Clichy.
 Lorsque Giffault le rejoignit, après s'être muni de nouveaux renseignements à l'état major de la place, Ruault |
 était à la barricade d'Asnières, proche de l'imprimerie
 Paul-Dupont, le long du chemin de fer.
@@ -1288,11 +1103,9 @@ dénoncé à son bataillon et il aurait été fusillé. Rigault interrogea
 Ruault le 16 mai. Il lui dit que s'il ne faisait pas de révélations, il
 serait fusillé le lendemain. Le lendemain, Ruault faisait des révé-
 lations, et l'affaire n'eut pas de suite. » (Gazette des Tribunaux.
-Procès Da Costa, 28 juin 1872)
 (2) Regnard (Albert), docteur en médecine, secrétaire général de
 la Préfecture de police. ÿ
 
-AA le. \ Je h ! e
 | LA RUE HAXO
 
 On mit devant Ruault une feuille de papier blanc, et
@@ -1321,21 +1134,15 @@ Jusqu'à la Mairie de Belleville
 
 A peine les cinquante otages avaient-ils franchi la y
 porte de la Roquette, que la foule se répandit en malé-
-dictions.
 
 Le cortège n'avait pas fait les premiers pas dans la
 direction du Père-Lachaise, qu'il fallait déjà protéger :
 les prisonniers contre les femmes qui leur jetaient des
-immondices.
 
 Quand on tourna le coin du boulevard Ménilmontant,
 la rage qui couvait dans cette masse désordonnée,
 
-199 MURS
-
 un peu de vérilé sur la mort des otages
-combattants en uniforme, femmes aflolées, gamins À
-NS effrayants, dégénéra en furie.
 — À mort! À mort! criait-on de toutes parts. A mort
 les calotins !
 Des hommes se faufilaient à travers les rangs, cherchant à atteindre les otages et à les frapper.
@@ -1357,17 +1164,13 @@ Les hommes de la barricade, une cinquantaine du
 74° bataillon, sous les ordres du capitaine Dalivous, (1)
 s'étaient rangés contre les pavés.
 — Peux-tu nous donner des hommes de renfort ?
-demanda Gois au capitaine.
 à — Je viens avec vous, répond Dalivous.
 Grossis d'une vingtaine de gardes et de l'officier, le
 cortège s'engagea sur la chaussée. Sur toutes les portes,
 à toutes les fenêtres, des groupes, menaçants ou curieux.
 (1) Dalivous (Louis), capitaine de la 3: compagnie du 74° fédéré.
 Condamné à mort, affaire Haxo. Fusillé à Satory, le 24 juillet 1872.
-à 196 ,
 
-L
-LA RUE HAXO
 De toutes les rues qui s'ouvrent sur la vaste voie, des
 flots d'hommes, de femmes, d'enfants, viennent allonger
 la file.
@@ -1389,16 +1192,12 @@ de fédéré, la taille ceinturée de rouge, un képi sans
 galons sur la tête.
 
 A côté de lui, marche une cantinière, toute jeune,
-brune.
 
 Viennent ensuite les gardes de Paris, en veston d'uni-
 
 | forme, pantalon de treillis gris et képi. Quelques-uns
-en casquette.
 
 Les dix prêtres suivent, jésuites ou picpussiens, en
-
-f soutane.
 
 A la queue, les quatre otages civils. Largillière, gros,
 de taille moyenne, en capote verte de garde national,
@@ -1408,12 +1207,10 @@ de velours bleu clair, blouse bleue, gilet de laine rouge,
 son costume de tailleur de pierre. L'oflicier de paix
 Dereste, droit, correct, pantalon et paletot noirs.
 
-Près d'eux, surveillant leurs moindres mouvements,
 l'un de ceux qui les ont pris à la prison, C., le revolver
 
 | 197
 
-À x SRE Fe A NN APN
 un peu de vérité sur la mort des otages {
 chargé en main, prêt à faire feu sur celui des quatre
 qui tenterait de fuir.
@@ -1435,8 +1232,6 @@ Ranvier (2) était sur le seuil, le fusil sur l'épaule.
 Il vit venir de loin le cortège.
 Ù — Où les conduisez-vous? dit-il à ceux qui mar- $
 chaient en tête, dès qu'ils furent arrivés près de lui.
-— Au secteur !
-Lecortèges'arrêta quelques minutes à peine. Iltraversa
 la place et s'engagea dans la rue de Paris, aujourd'hui
 la rue de Belleville. :
 Rue de Paris
@@ -1445,13 +1240,10 @@ J'ai retrouvé, dans cette rue de Paris qui vit passer
 () Textuellement: « Vous ne b... plus nos filles ! »
 (2) Ranvier (Gabriel), membre de la Commune, vingtième arron- ;
 dissement. Membre du Comité de Salut public (2 mai).
-198 |
 
-LA RUE HAXO PAP
 Une après-midi, je parcourais ces quartiers, à la recherche des souvenirs des inoubliables jours, quand 14
 j'avisai une pauvre boutique de brocanteur, s'ouvrant,
 sur le trottoir étroit, à mi-chemin environ de la rue
-Haxo.
 Dans cette humble boutique, dont la porte grande
 ouverte laissait voir un amoncellement de vieilles
 choses, datant peut-être d'un demi-siècle, il me sembla \
@@ -1465,21 +1257,16 @@ les otages!
 Et, comme elle m'offrait, dans un carton, des caricatures de l'époque.
 — Vous étiez à Paris. du temps de la guerre?
 — Ah! oui, monsieur. Et je m'en souviens comme
-d'hier.
 — Et sous la Commune? +
 — Oui, c'est sous la Commune que je veux dire.
 — Alors, vous avez dû voir bien des choses ici. C'est
 dans cette rue précisément que sont passés les otages
-fusillés rue Haxo.
 La langue de la boutiquière se délia. Je la guidais
 dans ses souvenirs, l'interrogeant par-ci par-là sur un
 fait douteux, une légende, un racontar, que j'avais l'occasion d'éclaircir.
 — Je n'oublierai jamais ce jour, me dit la femme.
 J'avais en ce temps-là une quinzaine d'années. Je vivais
 
-; À
-
-\ } ( de di ' "A É
 un peu de périté sur la mort des OTA LES) VEN
 seule ici avec ma mère, veuve... Il était sur les cinq
 heures du soir quand les otages passèrent devant chez
@@ -1495,18 +1282,13 @@ piétinement comme si un régiment avait passé en courant.….
 « Déjà, au coin de la rue, on criait : A mort!
 
 « Nous entendions, tremblantes, collées derrière nos
-voleis.
 
 « Et les clairons sonnaïent, sonnaient à casser les
-vitres.
 
 « Je hasardai un regard en dérangeant les volets. Je
 les vis à une vingtainé de pas. ?
 
-« Ah! monsieur... » L
-
 La dame s'était tue, sous l'impression du souvenir
-terrible.
 
 — Il y avait une cantinière, en tête, lui demandai-je,
 une cantinière à cheval, avec un filet blanc sur sa coitfure? Vous savez... C'est ce qu'on raconta.
@@ -1525,8 +1307,6 @@ costume de gardes nationaux...
 
 Je crus le moment propice pour reparler de ma canti-
 
-F è à k { ‘
-LA RUE HAXO
 nière, la fameuse cantinière à cheval, habillée en
 zouave, dont parlent tous les récits.
 La dame rassembla ses souvenirs.
@@ -1534,15 +1314,12 @@ La dame rassembla ses souvenirs.
 à cheval... Non... Mais je vois encore, comme je vous -
 vois, un grand diable qui criait : Rentrez vos têtes ou
 je tire dessus. Vous pensez si je fermai le volet que
-j'avais entr'ouvert.….
 « Pendant un quart d'heure j'entendis encore des À
 cris, des sonneries de trompettes. Des gens passaient,
 courant après le cortège.
 « Le soir, on nous dit qu'ils avaient tous été fusillés à
 la Cité de Vincennes. »
-Rue Haxo |
 Quand on arriva rue Haxo, il était six heures.
-— En ligne! cria Gois. }
 Obéissant comme à la parade, les gardes de Paris
 s'alignèrent en silence. Le premier, dominant les autres
 de sa haute taille, un brigadier, la médaille militaire
@@ -1557,7 +1334,6 @@ l'écharpe rouge sur leur costume civil.
 Piétinant dans la boue, combattants en uniformes, fé- }
 dérés ou corps francs, des femmes, des enfants grimpés
 sur les murs, des gardes assis à la porte des cabarets,
-201 %
 
 un peu de vérité sur la mort des otages |
 le fusil entre les jambes. Au milieu, serré dans la foule,
@@ -1605,7 +1381,6 @@ A quelques pas, les frondaisons vertes du jardin, et,
 Cette entrée au secteur ne s'était pas faite sans incidents. Appuyé contre le mur, à l'entrée, un homme
 d'une taille athlétique se tenait, injuriant, frappant les
 
-LA RUE HAXO
 prisonniers. Le fait m'a été confirmé par Avrial, qui '
 était là.
 En même temps que les otages entraient au secteur
@@ -1614,7 +1389,6 @@ Quelque chose lui disait-il, à cette foule exaspérée
 par la déroute, qu'une vengeance terrible allait lui
 être offerte, et qu'au pied de ce mur qu'elle regardait Ç
 depuis l'arrivée du cortège, les otages allaient être
-massacrés ? ;
 le mur
 Un quart d'heure avant la fusillade, trois hommes,
 dont un membre de la Commune, Avrial, et deux journalistes, Lissagaray (2) et Alphonse Humbert (3) se ]
@@ -1623,11 +1397,9 @@ cabaret — le cabaret Debêne — au numéro 78 de la rue
 Haxo, face à l'un des angles du jardin sinistre, le coin
 de la rue du Borrego.
 L'un d'eux souleva le rideau, vit le jardin plein
-d'hommes armés. |
 Dans la rue, les femmes, féroces, hurlaient.
 — Taisez-vous, leur criait Édouard Roullier (4) — un
 vieux de Juin et de Décembre — vous nous en ferez
-peut-être autant demain!
 () On pénètre aujourd'hui dans le jardin par une porte située
 au numéro 79 de la rue; allée est au numéro 85, en face de la rue
 des Tourelles.
@@ -1672,7 +1444,6 @@ Alavoine se précipite pour barrer l'entrée. Il se heurte
 
 (1) Cournet (Frédéric), député démissionnaire, membre de la
 Commune (quinzième arrondissement), délégué à la Sûreté géné-
-rale (25 avril).
 
 €) Varlin (Eugène), membre de la Commune (sixième arrondissement), membre de la Commission des finances (30 mars), adjoint
 à la Commission de la guerre (6 mai).
@@ -1684,10 +1455,7 @@ de lImprimerie Nationale.
 
 (5) Arnold (G.), membre de la Commune (dix-huitième arrondissement).
 
-< t 1
-LA RUE HAXO :
 le vieux combattant. Et vous voulez qu'on épargne ces
-gens-là ! 7
 | Et, sortant son revolver, il le braque sur Alavoine.
 
 Le spectacle que présente la rue Haxo est terrifiant.
@@ -1705,20 +1473,17 @@ Les otages sont entrés au secteur. Tout effort pour
 les arracher à la mort serait désormais vain. Il n'y a :
 plus, pour ceux que révolte cette inutile hécatombe,
 qu'à se rejeter dans la bataille, et à fuir loin du
-forfait.
 
 Alavoine, qui a reconnu dans les groupes de la rue
 
 ‘quelques hommes de son arrondissement, le quatrième,
 trace à la craie sur le volet d'une boutique les mots :
-« Quatrième Légion ».
 
 Quelques hommes en armes, appartenant aux bataillons du quartier, s'y réunissent et se dirigent vers les
 barricades qui entourent les Buttes-Chaumont.
 
 Varlin s'était remis à signer des ordres, à délivrer des
 bons et de l'argent pour les réquisitions, calme en
-apparence. !
 
 Soudain, les coups de feu éclatent.
 
@@ -1727,14 +1492,12 @@ disait Vun des trois amis que j'ai nommés tout à l'heure.
 Pas un de nous n'osait se lever pour aller à la fenêtre...
 
 La patronne du cabaret entra, tenant à la main le plat
-205 otages. — 6
 
 un peu de vérité sur la mort des otages
 ” que nous lui avions commandé pour notre repas, un
 plat de lapin sauté. Elle s'arrêta, pâle comme une
 morte. Les larmes mouillaient ses yeux. Elle posa vivement sur la table le plat que ses mains tremblantes ne
 soutenaient plus. Elle se cacha la figure et se mit à
-sangloter.…
 
 « Les coups de feu continuaient. Nous restions là,.
 muets, atterrés.. Enfin, nous n'entendîimes plus qu'un
@@ -1748,14 +1511,12 @@ sol piétiné, semblaient avoir été ravagés par un ouragan.
 « Au bas du mur, une masse effrayante, déjà à demi
 noyée dans l'ombre, qui était le tas de cadavres. »
 le massacre
-BR
 
 Je sus plus tard comment s'était consommé le massacre. ;
 
 L'un des acteurs du drame, l'un de ceux qui condui-
 
 \ saient le cortège, me détailla, devant le mur même, la
-scène sanglante.
 
 Debout sur un petit mur bas, à quelques mètres dela
 haute muraille du fond, le capitaine Dalivous, sabre au
@@ -1768,10 +1529,6 @@ Attendez mon commandement ! |
 
 A droite du mur, dans le passage qui relie le jardin à
 
-206 <
-
-k
-LA RUE HAXO
 la cour du secteur, on voit, à travers les branches, les pantalons des gardes de Paris et les soutanes des prêtres.
 Les militaires sont à quelques pas.
 Ils sont dix.
@@ -1779,20 +1536,15 @@ L'officier fédéré qui me décrit la scène, C..., est là. IL
 montre du doigt le mur.
 Sans prononcer une parole, les gardes s'avancent, se
 placent face à la foule, en ligne.
-— Face au mur! crie Goiïs.
 — Jamais! crie un maréchal des logis. -
 Maïs la foule a déjà trop attendu. Les fusils sont mis
-en joue.
 Cent coups de feu partent ensemble. Les dix prisonniers s'affaissent.
 A peine. sont-ils tombés, que dix aütres, appelés,
-poussés, se présentent. -
 - On tire de tous les coins du jardin, au hasard, sans
-. aucun commandement.
 La fusillade est si désordonnée que les tireurs sont
 eux-mêmes blessés. Près de G., un homme a l'oreille
 entamée, un autre-le pouce emporté.
 Un otage, blessé seulement, se relève. Une fusillade
-labat.
 — On les tirait comme des lapins ! me disait, en face
 du mur, en me désignant le coin sinistre d'où défilaient |
 les otages, l'un des exécuteurs.
@@ -1802,7 +1554,6 @@ Les quatre civils furent tués les derniers. (1)
 dun témoin devant le sixième conseil de guerre. Grimpé sur le
 mur de la rue du Borrégo, ce témoin vit, jusqu'au dernier moment,
 Ruault, qu'on appelait dans son quartier « le père Joseph ».
-207 ;
 
 &* où APPART DU
 un peu de vérilé sur la mort des otages
@@ -1810,7 +1561,6 @@ un peu de vérilé sur la mort des otages
 Quand tout fut fini, quand le tas ne remua plus, les
 Enfants Perdus, qui s'étaient placés au premier rang,
 remirent leurs fusils en bandoulière et quittèrent le
-jardin.
 
 La besogne était terminée.
 
@@ -1839,7 +1589,6 @@ Deux hommes étaient restés dans l'enclos désert,
 Goiïis et l'autre officier, C...
 
 Le jour commençait à s'assombrir. Le ciel était
-pluvieux.
 
 — Plus personne! dit Goiïs. Ah! ïls ont peur, maintenant, les lâches ! Pas un n'oserait rentrer ici.
 
@@ -1849,7 +1598,6 @@ Ce tas de morts, au bas du mur, dans la terre rougie!
 
 Gois sortit de sa poche un papier plié qu'il ouvrit lentement, et qu'il déposa sur le rebord du petit mur.
 
-ASS (. K. :
 di LA RUE HAXO
 C'était la liste des cinquante otages qu'il avait pris à
 | la Roquette. (1) ÿ
@@ -1860,7 +1608,6 @@ Les deux officiers s'approchèrent du tas des morts,
 C. Ils étaient bien là! Nous reconnûmes aussi le grand
 brigadier, mutilé, l'œil sorti de l'orbite... Ma parole, il
 avait été brave, et c'est le seul que j'aurais voulu voir
-s'échapper !
 Lorsque les morts furent étendus, ils les comptèrent.
 — Cinquante-et-un ! tu as bien compté, toi aussi?
 — Oui, cinquante-et-un.
@@ -1868,12 +1615,10 @@ Lorsque les morts furent étendus, ils les comptèrent.
 | Et ils recomptèrent, un à un, craignant de se tromper
 encore.
 | — Voilà bien, dit Gois, dix curés. quatre de la police. trente-six militaires. Cela ne fait pourtant que
-- cinquante.
 Gois reprit sa liste, compta encore.
 — Décidément ! il°y en a un de trop!
 celui qui est de trop
 Les deux hommes se regardèrent.
-Soudain, C. se souvint.
 Pendant la fusillade, lorsque, du coin du pavillon, à
 (1) Encore une fois, les otages pris à la Roquette étaient bien au
 nombre de cinquante. G., qui les a comptés à l'entrée au secteur,
@@ -1924,13 +1669,7 @@ C. quittèrent le jardin lugubre.
 
 Ils passèrent la nuit dans un garni voisin.
 
-C., blessé au pied depuis deux jours, pouvait à peine
-marcher.
-
 Au petit jour, Gois vint le chercher dans sa chambre.
-
-à |
-LA RUE HAXO
 
 — Si nous retournions à la Roquette? lui dit-il.
 
@@ -1943,7 +1682,6 @@ Ils redescendirent vers la mairie de Belleville.
 | * Varmée envahissante, redoutant des représailles terribles, si les vainqueurs butaient, dès l'arrivée, contre
 cette montagne de cadavres, des habitants du quartier
 résolurent de cacher le crime, au moins pour quelques
-jours.
 
 C'est ainsi que les morts furent précipités dans une
 fosse creusée pendant le siège au pied du mur.
@@ -1957,7 +1695,6 @@ Devant les juges
 
 Sept condamnations à mort furent prononcées par
 le sixième conseil de guerre qui jugea l'affaire de la rue
-Haxo :
 
 François, qui avait refusé de livrer les otages ; Dalivous, un de ceux qui avaient commandé le feu;
 Bénot, (1) qui n'avait même point assisté au massacre
@@ -1969,8 +1706,6 @@ de vingt ans, Aubry, Trouvé et Racine, dont le grand
 
 (1) Bénot (Victor), colonel du 1* régiment Bergeret. Condamné
 à mort, affaire Haxo, fusillé à Satory le 22 janvier 183.
-
-. 211 K
 
 un peu de vérité sur la mort des otages
 crime était d'avoir déserté le 18 mars et d'être entrés
@@ -1988,13 +1723,11 @@ Quoi! Tant de dépositions, d'enquêtes et de témoins,
 et pas une lueur de vérité!
 
 Et les condamnations pleuvent quand même, frappant innocents et comparses, quand les vrais acteurs
-restent ignorés !
 
 François fut fusiilé à Satory, le' 24 juillet 1872, en
 même temps que Dalivous, Aubry et Saint-Omer. Bénot i
 
 f: devait attendre encore six mois avant de s'adosser, le
-23 janvier 1873, au poteau d'exécution.
 
 Trouvé et Racine, plus heureux que leur camarade
 Aubry, virent la peine de mort, à laquelle les avait condamnés le conseil de guerre, commuée en celle des travaux forcés à perpétuité. Un de nos amis les connut au
@@ -2014,11 +1747,6 @@ le procès, je crois que je nai plus de raison de le faire, maintenant
 que le conseil va prononcer sa sentence. Voici donc la vérité:
 
 l'officier qui dirigeait le peloton était le commandant Goïis. »
-
-ae ”
-CE k
-LA RUE HAXO
-Saint-Omer
 
 Le pauvre Saint-Omer mérite une mention spéciale.
 
@@ -2052,15 +1780,9 @@ de Satory !
 
 « La figure d'Omer s'éclairait d'un gros rire.
 
-213 <
-
-À y L ANNE ' 17%
-W l
 un peu de vérité sur la mort des otages 1
 « — Moi fusillé ? clamait-il. Mais comment pourrait-on
 5 me condamner. Je n'avais que ma canne à la maïn! »
-Pauvre Omer!
-: Émile Gois
 Dans ce récit du massacre, une silhouette se détache,
 d'une allure brutale, celle d'Émile Gois.
 Le président de la cour martiale de la Commune,
@@ -2086,9 +1808,6 @@ les courtes promenades que le pauvre Gois pouvait
 faire encore. Parfois, le malade, entêté, se refusait à
 regagner le logis. La promenade, toujours la même,
 
-1 " ÿ k Î j
-D]
-LA RUE HAXO
 comprenait une rue où se trouvait un poste de gardiens
 de la paix.
 
@@ -2101,15 +1820,12 @@ te prendre et emmener en prison...
 Et le pauvre Gois — le farouche exécuteur de la rue
 Haxo — baissait la tête, apeuré, et se laissait doucement conduire à la maison, comme un enfant.
 
-Aujourd'hui
-
 Le terrain vague, bossué de cailloux, qui vit le grand
 drame du 26 mai 1871, est aujourd'hui semé de gazon,
 coupé d'allées bien entretenues. La vasque du milieu est
 ornée d'un jet d'eau, sur lequel se jouent les arcs-en-ciel,
 
 - et où s'ébattent, en secouant leurs plumes, de graves
-canards. (1) À
 
 Les grilles en bois qui fermaient l'enclos ont été remplacées par des murs en maçonnerie. Les arbres ont
 grandi. Le site est plein de fraîcheur et de vie.
@@ -2122,9 +1838,6 @@ les cinquante otages attendirent la mort.
 Le grand bâtiment à un étage, surmonté d'un cloche-
 * (x) Écrit en 1898. Voir pour la disposition du jardin en 1851, à dé-
 faut de photographie de l'époque, une gravure de l'{Uustration Au
-13 avril 1872.
-
-215 {
 
 un peu de périlé sur la mort des otages
 ton, est toujours là, avec son balcon, d'où regardaient
@@ -2132,7 +1845,6 @@ les officiers fédérés.
 
 Le mur sinistre est tout noir. Le terhps a effacé les
 marques blanches qui étaient les éclaboussures des
-balles.
 
 Le jour où nous visitions, l'officier fédéré et moi, ce
 théâtre du massacre, le jardin était désert.
@@ -2155,7 +1867,6 @@ Nous nous dissimulâmes, attendant, pour poursuivre ù
 notre visite, qu'ils se fussent éloignés.
 
 Quand les trois prêtres furent partis, nous nous
-approchâmes.
 
 A un mètre du mur, l'ouverture d'une fosse entourée
 d'une grille, autour de laquelle court un lierre, et que
@@ -2166,7 +1877,6 @@ Je jette un regard au fond de la fosse.
 C'est là qu'ils furent entassés, tout sanglants.
 
 Sur la haute muraille, nous cherchons la trace des
-balles.
 
 L'oflicier fédéré me retrace la scène. :
 
@@ -2176,14 +1886,10 @@ Il parlait haut. Sa voix éclatait dans le silence.
 
 J'entendis des pas sur le sable de l'allée.
 
-LA RUE HAXO
-
 Les trois vieux prêtres, que nous avaient cachés les
 arbres, étaient derrière nous. -
 
 Avaient-ils entendu? Avaient-ils compris qu'ils se trouvaient en face de l'un des exécuteurs de la terrible journée?
-
-Comparaison
 
 Lorsque nous quittâmes le jardin de la rue Haxo, nu
 et dévasté au jour du drame, aujourd'hui ombragé et
@@ -2201,75 +1907,38 @@ Saint-Jacques, ceux de Satory, qui marchaient en :
 longues files, venant par centaines, par milliers, se coucher au pied du mur, emplir le jardin, former une terrifiante montagne dont j'avais peine à voir le faîte, et sous
 laquelle disparaissaient les cinquante victimes du 26 mai
 
-otages. — 7
-
 LA PET PU be AS Le ar
 RSS CE de us RE CARO a MAN ta RO 5
-fie is  : À
 NE NE CE Es AS SMART PI RP Un AU re SN AT NE Nes CR DATI ENS : We:
-EE Hot Na tre A AT MIRE AR EAN DAT Nan ra nid
-ete ie RAR Rae cut NA M me:
-Re nn
-GTR LA UNIS Ce Re MAUR IRAN AOL PSE
-ONE. FETE LIRE Det LM A ( F HDANERE EL: MR TA:
-a
-MORT ARE ROVER & NOR ANR PAS TOM ENT Bert AU RESTES (NP AT EERE
-HSM RE à 0 SNS M # LES VAE UE PR AS ANR RENTE SIENS GARE ER
 j'te RS Rss ÿ DATE ON RQ ee M
 | EM
 AA HA AA Mes ue ce PURE ROUEN PA ee
 LP NE A, à x vu d: il de ù EUR PRE AE. RAT e 2% n
 eee SERRES le EL Ù EIRE TTEN EEE 0 TR SR LLC TRE
-ON NE TE UP EN 7 SL RENTE Se LAN CARS F2;
 ne FN TNISRRPEAR ERE PA RE MEN NE RO NAT
 LORD RTE AREAS MENTES FE Re LEA TEA) dan ci M'EST EE HENRI
-nn ps RU
-ARE RAI LEE ARE Use ON RE Re |: SL NAONERE
 PAIE Ce RAS ot RSA A CR PET RARE HUIT Ron
-PANNES ESS RATE A sta eE LNN Et RE RSESSNEE
 RS AT RATE Gr n es RS ee Xe MES jeu TEE 2 Jeu
 Do Mise TR A LES à HE RSMEMeE
-D NINNES LUN LEE AREA DHRRTEVE RE OR OR DR NE MAO RIT ENTRE TRES RENTE (SU à NE ICa
-SARA NEC A née NT EE RTE IR NET PA De PRE OA PT
-ee A M en nee Lou sen KDE HAE
 
-eh Eee PNR AR Ho SSSR
 et SAN EN PR ARTE MES ART LA RTE AUS RAS
 is ar pi ne. NET ie 7 na tone
-0 os ia D Lu RARES
 CRAN Fes ne Fan DONS orne Le AS AN Ce À
-a A Fe A LUS à
 NEO 1 RAT NES Ne FO AE RL tail Heat
 fe Re ENS SES RDS LEE NA ie 1 EE ME AA NEPAL NAN EX CURE Sea à dress
-RARE ENTER EI ENER ARE) ARE NEA KILL SM NS AR NNAD
 jf RSS Mr A A ne Re APTE SACS
-RER CUT à 1e D A EE Fc AUS 1 RENE
-SRE NN UNE BR RAA D } on S FANS FORTS EN AR 4
-LA LS NA ARTS PE NE AA A FN eN PRES ES
 14) EEE NE eu je RNA Er RD RAP RE DR ETES"
 et Rd ar NY SMS ETES RO RUE A AG UE MERE Le ER
 | FOEUS ARS RNA PEUT j hrs RS NOTES FACE
-AA # ÿ AV ALNS DA à E (es LA FUI LUN NERO
-: RASE ue Fe ee F Me HS RARE
 TETE 3 È LAC FAP ur f s PAR UE te
-es CPR EN NS PEU ‘| LTTONEENSS Ra
-Mn RP EN es UE ST ARE NPÉES ASE 1 AUS AE
-dos Fee NANTES LAS ETES fus 4 D RAS ae, DORE + AE PMR ENS ie
-TH D DES 1 RE AE AD RAT AN MER RARE
-We ARS HN SRE A A HU DE : + A TRS
 
-A | :
-ANNEXES
-NOTE I
 Page 125. — L'Histoire qui. se trompe)
 
 M. Maxime du Camp n'est pas le seul qui, volontairement ou non, ait travesti les faits. Certains membres
 de la Commune eux-mêmes, dans les ouvrages qu'ils
 ont publiés, un peu hâtivement peut-être, se trompent
-parfois étrangement.
 
 C'est ainsi que Lefrançais (Étude sur le mouvement
-communaliste à Paris en 1871. — Neuchâtel, 1871)
 écrit, page 334, à propos de l'exécution de l'archevêque :
 
 Le mercredi 24 mai, vers cinq heures, nous apprîmes,
@@ -2280,7 +1949,6 @@ Sur des ordres donnés, nous dit-on, par deux membres de la
 Commune, dont on ne put nous préciserle nom, sans qu'il en *
 eût été parlé devant personne de nous, ni devant Delescluze,
 ni devant le Comité de Salut public, un certain nombre
-d'otages, parmi lesquels MM. Bonjean, Darboy, Deguerry,
 Sura, viennent d'être passés par les armes...
 
 Tous renseignements pris auprès de tous, y compris
@@ -2288,40 +1956,30 @@ Delescluze, nous fûmes convaincus qu'aucun ordre émanant
 de la mairie du onzième arrondissement n'avait été donné
 concernant cette exécution.
 
-221 (
-“Ye
-
 ; un peu de périté sur la mort des otages ?
-- ‘à 1 Ÿ
 Autant de phrases, autant d'erreurs. Fi DA
 - Comment M. Lefrançais, si véritablement il s'est renseigné auprès de tous, si seulement il a été présent à la
 mairie, n'a-t-il eu aucune connaissance des pas et dé- L
 marches de Genton et de Fortin, ses amis, non plus que d:
 des deux ordres signés de Ferré? ê
 Monseigneur Sura au nombre des six otages du mer- 4
-credi! :
 Lefrançais dit encore que c'est vers cinq heures qu'il
 apprit l'exécution, qui, d'après lui, aurait donc eu lieu
 entre quatre et cinq. Or, les otages, nous l'avons 2
 montré, furent exécutés un peu avant huit heures. |
 Malon n'est pas plus exact dans sa Troisième 5
 défaite du Prolétariat Français (Neuchâtel, 1831), :
-page 464. Le
 Dans cette journée du 26 (vendredi), écrit-il, furent exé- Les
 cutés de nouveaux otages à la Roquette.
 Aucun otage ne fut fusillé le 26 à la Roquette. Jecker
 fut fusillé rue de la Chine. Les cinquante otages de |
 l'après-midi furent conduits rue Haxo. d
-NOTE II
 (Page 143. — Sur Beaufort)
 Lissagaray dans son Histoire de la Commune, Da
 Costa dans sa Commune Vécue, semblent ignorer les
 circonstances dans lesquelles Beaufort se mêla au mou- 2
-vement insurrectionnel. .%
 Da Costa, parlant de Beaufort, dit : « .… le comte de #4
-222 :
 
-Nés \ ï ANNEXES
 Beaufort, élégant et vigoureux jeune homme, venu, on
 ne sait comment, ni pourquoi, à la révolte ».
 Et, plus loin, page 453, « .… ce jeune homme, dont la
@@ -2331,13 +1989,11 @@ membre du Comité central.
 Dans ses Souvenirs d'un Communard, Lefrançais,
 cette fois bien renseigné, avait déjà raconté les incidents qui précédèrent la mort de Beaufort. |
 Lorsque nous arrivàmes au onzième, vers midi, une grande
-animation y règne.
 Nous rencontrons Delescluze sur l'escalier. Il interpelle
 vivement un homme d'une trentaine d'années, à la physionomie très intelligente, mais l'air très abattu.
 — Je vous en conjure, dit-il à Delescluze, tentez encore une
 fois de le sauver.
 — Nous venons de faire l'impossible, vous l'avez vu, sans
-y pouvoir parvenir.
 Presque en même temps retentit une décharge non loin
 de là.
 L'homme tressaille et se couvre le visage, éperdu.
@@ -2347,7 +2003,6 @@ venez de tuer votre beau-frère.
 Le citoyen auquel s'adresse notre collègue s'éloigne atterré.
 - — Qu'est-ce done ? demandai-je. Quel est ce citoyen ?
 — Vous ne le connaissez pas ?
-— Non.
 — C'est Moreau, du Comité Central. Les hommes du 166°
 viennent de fusiller de Beaufort, son beau-frère. |
 - Beaufort était donc, d'après Lefrançais, lé propre beaufrère d'Édouard Moreau. Gouhier (voir note page 146)
@@ -2360,13 +2015,11 @@ D'après Lefrançais, Beaufort aurait été fusillé vers |
 midi. Il était certainement plus tard, deux heures très |
 probablement. Les hommes qui le fusillèrent faisaient
 partie du 66° bataillon, et non du 166°.
-NOTE III
 © (Page 147. — Sur la prise du Panthéon)
 Voici l'épisode des journées de juin 1848 auquel je fais
 allusion à propos de la lutte autour du Panthéon. Il est
 consigné dans le Prologue d'une Révolution de Louis ù
 à | Ménard (page 162. Édition des Cahiers de la Quinzaine {
-juin 1904): ‘
 L'insurrection s'était concentrée pendant la nuit dans le
 quartier Saint-Jacques, dans la Cité, dans les faubourgs
 Saint-Antoine, Saint-Denis et dans le quartier du Temple.
@@ -2381,11 +2034,6 @@ En écrivant que le Panthéon a été occupé « presque
 sans combat », j'ai éveillé, bien involontairement, les È
 susceptibilités de quelques anciens camarades de lutte
 du cinquième arrondissement.
-22/
-
-ÈS TNEN Ÿ À
-A er à nn EN ?
-‘ ANNEXES
 
 Je tiens donc à dire ici qu'il n'est pas entré dans ma
 pensée de méconnaître les efforts et ia bravoure de
@@ -2409,12 +2057,10 @@ le drapeau tricolore flottait au faîte du dôme.
 
 Je n'ai pas voulu dire autre chose.
 
-S NOTE IV $
 (Page 154. — Sur l'archevêque)
 
 Voici ce que raconte M. E. Ledrain, dans un article
 intitulé : « M. Émile Ollivier et le Pape » (Éclair du
-a1 octobre 1904) :
 
 Je ne crois pas être indiscret en répétant ce que m'a dit
 un jour M. Hyacinthe Loyson. Mandé à Rome pour s'expli- ‘
@@ -2422,14 +2068,10 @@ quer sur certaines accusations de libéralisme et sur certains
 discours qu'on lui reprochait, M. Loyson fut accueilli à ;
 bras ouverts, embrassé tendrement par le Souverain Pontife
 
-225 otages. — 7. À
-
-Lu
 un peu de vérité sur la mort des otages
 (Pie IX), qui le congédia avec ces mots : « Regardez-moi
 bien. Vous pouvez dire à votre empereur et à l'archevêque
 de Paris (considérés comme ennemis), que le pape se porte |
-bien. » î |
 
 M. Hyacinthe Loyson a confirmé ce grave propos …
 dans un article, paru dans le Siècle du 22 janvier 1906, R
@@ -2442,7 +2084,6 @@ principaux entretiens avec Pie IX.
 
 « Vous retournez à Paris, me dit-il, vous verrez votre archevêque, vous verrez votre empereur. Dites-leur que le x
 pape se porte bien, qu'il n'en veut à personne, mais qu'il ;
-prie ut inimicos Sanctæ Ecclesiæ humiliare digneris ». é
 
 Je répondis : « Très-Saint-Père, je ne fréquente pas les É
 Tuileries, mais quant à l'archevêque de Paris, je crois à
@@ -2451,7 +2092,6 @@ Tuileries, mais quant à l'archevêque de Paris, je crois à
 parmi les ennemis de l'Église. » — « Speramio », répliqua le
 pape en italien, puis il ajouta en français : QIl eût été
 beaucoup mieux ambassadeur à Londres qu'archevèque de
-Paris. » :
 
 Monseigneur Darboy — ia parole de Pie IX le confirme
 avec une singulière rudesse — était alors « l'ennemi »
@@ -2466,21 +2106,13 @@ Vénérable Frère Georges, Archevêque de Paris »; repro-
 vier (à partir de la 3° édition). j
 ; Lire encore l'étude très documentée parue dans la i
 Revue d'Histoire et de Littérature religieuses, numéro de : 3
-226 À
-S à af
 Le NW tes
 
-2e et
-ÿ | ANNEXES
-- mai-juin 1907, (Picard, éditeur, 82, rue Bonaparte,
 Paris) intitulée: Monseigneur Darboy et le Saint-Siège.
-Documents inédits.
-NOTE V
 (Page 159. — Sur deux lanternes)
 Da Costa, dans sa Commune Vécue (IL, 8), au sujet
 des lanternes que tiennent, dans mon récit, deux hommes du cortège des otages, me reproche d'avoir voulu,
 par une « invention de journaliste, dramatiser mon
-tableau ». £
 Da Costa ajoute que mes deux lanternes eussent été
 bien inutiles, car il était à peine six heures et demie.
 Je crois, moi, qu'il était, non six heures et demie,
@@ -2491,7 +2123,6 @@ Certainement le sinistre cortège ne mit pas plus d'une
 demi-heure à se rendre, par le chemin de ronde, du
 perron de l'escalier de secours par où étaient descendus les otages, au lieu de l'exécution. ;
 L'heure de l'exécution est confirmée par plusieurs
-témoignages.
 A l'audience du 8 août 1871 du troisième conseil de
 guerre (Procès des membres de la Commune), Trinquart,
 pharmacien de la prison, dépose : « J'ai entendu ÿ
@@ -2499,7 +2130,6 @@ pharmacien de la prison, dépose : « J'ai entendu ÿ
 . Dans son livre, Un prétre et la Commune de Paris en
 1871, l'abbé G. Delmas, vicaire à Saint-Ambroise, -
 ex-otage à la Roquette, écrit (page 202) : « Vers les huit
-k 227 :
 
 un peu de vérité sur la mort des otages ; 1
 heures, nous bondîmes sous la détonation d'un feu de |
@@ -2545,16 +2175,12 @@ Ce Vaitier, qui éclairait le corridor sur lequel s'ou-
 
 228 4
 
-LE VERS É S À %
-ANNEXES
 vraient les cellules, a certainement éclairé l'escalier, . |
 plus obscur encore.
 
 Mes lanternes sont ainsi expliquées. Elles ne sont
 donc pas, comme l'écrit Da Costa, une « invention de
-journaliste ».
 
-NOTE VI
 (Page 180, — Laissez là « cette charogne »)
 
 4 Comme le fait remarquer notre note en bas de
@@ -2566,52 +2192,35 @@ associer à cette suprême et bien inutile injure à celui
 dont on peut incriminer les actes, mais dont le cou-
 
 | rage, en face de la plus affreuse des morts, fut indé-
-niable.
 
 Nous avons donné le bon à tirer après corrections
 pour deux mille exemplaires de ce onzième cahier
 et pour vingt exemplaires sur whatman le mardi
 
-18 février 1908.
 Le gérant : CHARLES PÉGUY
 Ce cahier a été composé et tiré par des ouvriers syndiqués
-Suresnes. — Imprimerie ERNEST PAYEN, 13, rue Piétré DUboRt, — 2380
 
-CA HA RAS FRS RES FRS Noa r
- . PHRASE TAN PACE à
 A Dire
 ee. Are à ee je . ARS
 éros Ne ne a HR à
 PE AAC et PAS AE AR FE MU RER Re RPRRERE nes FA À LI NAR
 Les He ue RENE RARE RAA * Fi NA UIN EE en
-a. . DNA en dd
-CLR AREA RAS RM D PAPER MALO ENS A CR ATRS :
-Le ss VE RC à TON AC ! NBA PART ; AIS
 RES tas RES ne Mai 4 EUR RP SAGE Hs KES
 Ds de A É RE PA ALU ue LR ne
 À D NE A A Re AT HÉNARET BHENREe ‘isa
-RE SO AR PAS EU HNSIES RL TAUR es + ; RSGRCURE 0 CARE TON ATARI
-RSS re US RTE PONS 4 er ER re) \ a PEN ROCHER) NUM Area
-BR he % | ASIE
 ce ue PE SM TEA ; À A S FA RUE
-Se OM ASE. # y à AE Le FE)
 eo ON NES (RAD) En IE QE ARE NE HAN Abe A (CSSS
 PMR $ AMAR VAR PR RUE Er KR VUE va NA Foy Fe UN À ARS <
-ms = Ho en Re 5 D a
 Aves | HHMESE Pare RIRE ACTA SE Ne AR : RITES
-nue ee Hem HA PE CPP PAT PE FR SAN Y RSR LIFE
 |} 1 ETAT TN
 
-LS RASE RE RE A
 Il a été tiré de ce cahier vingt exemplaires sur
 #whatman ainsi distribués :
 premier exemplaire de souche, exemplaire du gérant;
 deuxième exemplaire de souche, exemplaire de 'administrateur ;
 : troisième exemplaire de souche, exemplaire de l'imprimeur;
 neuf exemplaires d'aëonnement, numérotés de I à 9
-exemplaires d'abonnement ; i
 et huit exemplaires d'auteur numérotés a, b, c, d,e,
-f, g, h exemplaires d'auteur.
 Tous nos exemplaires sur whatman sont numérotés x
 à la presse et imprimés au nom du souscripteur ; nos
 tirages d'exemplaires sur whatman sont rigoureusement limités au nombre d'abonnements à chaque instant souscrits; nous ne vendons point d'exemplaires
@@ -2620,39 +2229,18 @@ sur svhatman à cette neuvième série est de cent francs
 pour tous pays.
 Les Cahiers de la Quinzaine sont composés à la main,
 en caractères fin dix-huitième siècle (Didot) de la fonderie Mayeur (Allainguillaume et compagnie successeurs), 21, rue du Montparnasse, à Paris, sixième
-arrondissement.
 
-Set, SAT Tr MNT
-e VE Sisaee Rd he Te rs
-CEA AE ARRETE CERN PS Re 0 NAME PAPAS TA Es
 e: DUREE U FE os à PURE ne DR TR
 Pa PRE LE FA er PLUEE RTS EE PARA ES :
 Pr Re DANCE VUS EN AR MAN LÉLIERN ra Par à RER AUE PE
 Ne RCA SR ee Pi LT UURE AS one re |
-a M Li: RASE PRE os ia AAA Nan FASO : à
 ee HAE MnGES AREA + è VAE L: HER LR ke “
-Cure OR x à PERS ERA Fa R FA FUN 4 RSARANE à
-LUE Re 5 QUE Dau : GES RÉ A 11 RES A
-"r CPE Der 2 à RE VE Ve FRET eo PR RATS À
-à FRA ares M
-$ Re 4 j SitReroe HAUS Re 14
-Se ES PS ENS à ? Ar cb à 7 f È 3387 FLAPIPS
 St M ENTER É AT RECU LME DE à a <a rs
 pi CRD PANTIN] Û Ni &7 #4 ‘ É ae NE FAC M Lil k
 (ARE SON IP AE “2 Ant PA é 4h74 ( APE Len
-ci ES 4 MOOD EN MR Cu : 10
 ve LUE f “ A de k RS EM nt
-CEA fi UE DATE RCE “ use x: pe A" a ra
-Pi AU D PSE PR RE ER | SUCRE
-FE CHERE SITE AE RS 4 Fa EPA KIRIEVAN Eure
-RAC SLDE SEEN Re FDA HS CN KA HN
-A Ee eee SN AURTESS AU AN CO COTES FAN ER PERS
 
 AU NE NA à te He HT ie RE
-
-OA HOENE PTE | EEE
-
-; |
 
 Pour savoir ce que sont les Cahiers de la Quinzaine,
 il sufjit d'envoyer un mandat de trois francs cinquante
@@ -2668,7 +2256,6 @@ cinq francs à M. André Bourgeois, méme adresse; on
 recevra en retour le catalogue analytique sommaire,
 1900-1904, de nos cinq premières séries, premier cahier
 de la sixième série, un très fort cahier de XI1+408
-pagestrèsdenses,in-18 grand jésus, marqué cinq francs.
 
 Pour s'abonner à la neuvième série des cahiers, qui
 
@@ -2677,41 +2264,20 @@ $ est la série en cours, envoyer en un mandat à M. André
 Bourgeois, même adresse, le prix de l'abonnement; on
 recevra les cahiers parus, et de quinzaine en quinzaine,
 à leur date, les cahiers à paraître de cette neuvième
-série.
 
 Des Se SLR ANTONE
 ee re ie HN E SAC Le
 races $ HA Ci AUX EU PA AT ACHETE a PRESS Ne EE 537 : PUS ee
 à et L'an ne SR A Al
-à nn
-RES CA RER PTE SR ENST ANS à NE EINE ANSE TUE RE AR, ë è
-Ua Rte 0 El A PASS RNA RNA AREAS EAU tot ;
-DR es AU CS CEE UN ASS PRINT £ # PME ASE SPLITS FU
-RÉ NAS ARR TE AE TE ASS DR ES RE NT M LR EE LOUE | SET ARE
-RSR HEIE RAAS RL RAR VAE ARS AUS FRS SRE Nr CUAPAME r
 un si Fee NRA Re AN RASE HSE AS i RTS
 
-EN UNE Or Pl NEA (AE F CU ANNE Li Ta REV Ce RER
-4 SEAT ROUE AAA Fées Ë L LENS PO VS Ps 4 PR Te ÿ
 Pa | TURC EEE î CA ES pere AE Et ‘QU ea
-LR DA Le Fe ER Ho EU à TUE ME \ÉPAMES
 SAR TNT AE RES) UE TEST DRE NUL ne FINE
-RARE NN ERE ET Sr Re (2? LRU Bat KERTEEN “RANCE
-ua OIL
 re HT ANNE TEE der MALTE Fe 1 A NS TES “NE
-di Une FÉES SRE 4 # x £ 4 { 4 ie \ | CA? É vx Ke Û
-Es HUE 2x LA s4 Vs HART LES 1 EN AEES get,
 Me a LE HONOR { Cas NIUE x + st Les RAT DE PTE 4
-as HE RO OR AO 1 À dé 18 M à
 
-: NP Su jo Monet TAF se
 js HT AS A ns es L'AIDER
 vie on. Ne a AS RIRE TU PRO HERO l'A se
-a ACER LOUER dE EN NET AT NN TRUE LE
-he Re à fe au te EN Dai DESCENTE HART
-D din Se NCA QE PHARES VITRE NUS ë
-
-UE RS Rte Réce ra
 
 on
 _ … CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne, j
@@ -2719,7 +2285,6 @@ rez-de-chaussée, Paris, cinquième arrondissement. S
 Nos Cahiers sont édités par des souscriptions men- 5
 suelles régulières et par des souscriptions extraordinaires ; la souscription ne confère aucune autorité sur :
 la rédaction ni sur l'administration ; ces fonctions |
-demeurent libres. Era
 Nos Cahiers paraissent par séries; une série paraît
 dans le temps d'une année scolaire, d'une année
 ouvrière, d'octobre-novembre à juin-juillet ; l'abonnement se prend pour une série.
@@ -2728,10 +2293,7 @@ l'année, mais l'abonnement ainsi souscrit est, de droit,
 valable pour la série en cours. |
 Prix de l'abonnement, pour chaque série annuelle
 pendant le cours de cette série :
-! Paris, départements, Alasce-Lorraine, :
-Abonnement ordi- \ Algérie, Tunisie.... vingt francs
 HÉHENPANISRME ) Autres pays de l'Union postale uni-
-\  verselle....... vingt-cinq francs
 * Abonnement sur whatman... cent francs pour tous pays
 Les exemplaires sur whatman, tirage non réimposé,
 sont numérotés à la presse et imprimés au nom du
@@ -2743,43 +2305,19 @@ dans l'ordre de l'arrivée, les numéros les plus bas venant
 naturellement aux premières inscriptions; c'est ce numéro d'inscription qui devient automatiquement le
 numéro du tirage réservé à chacun des souscripteurs;
 l'édition sur whatman est striciement limitée au
-nombre d'exemplaires à chaque instant souscrit.
 
-AS, 4
 NT ES ape NUE RU RURSX HOT RAGE Ste LA
 SA es eee ar He
-. (RAD “ RIT eS
-he AE do nu RACE
-At TER Ne va D ONE HART ARE GR Ra MATE EM
 
 Vi HARAS JS ASE RAT pra LR A PA NE FA Mes RU SD RL
 
-TARA AA SE PANE TA RARE NANTES ATUNLE SS LA) NE A NAN LE AG SPAS 1
-ae 1e AAA AE 1éa FORTE 4? %
-% SANS AVATARS RARE UE MAD Jens 2 RUMEUR WA Ur RARE AGE ROLE EE UT |
-a “id APRES APE AE DRE M Ant: HG TAN TAN
 AB En PERLE RE Gr RW LÀ NEA dr ne ARTE ON Tee LAON ES k à
 
-RUE RER À # +} TEA PT GE APRRAP | D PL Mae
-me GE ARMES te A ae nt | FANS ps
-4 : D APRES À RE Re JR RE
-DAC “HN ACT 'ARAACARE LEON v FER AURAS Me
-RATS (a CU MANS $ LAS É # RTE RUES
 Ne se Pre DRE 1 RSR : ( 4] A PES ETS nr à ARS LAN
 ne, Ne st SEA AT AE OS SE an \
 ne LH ATEN ORNE ee | RICE 1 x
-CE Se OMS FE IRORS AU RAD PE DER) A NE CLPTTCAE als DUT
-PNA PLRIERS HE ane LCR PEU RoIeE MARAIS AE RE deb À
 ta tr SUN Ne ou MR + 1
-A ë RAS LAN ANRT MEME N: NON EL LAN Dune
-a ann CN TE EN AR He nt ji (NS FER AE
-a oo Le | ESS à
 
-SEAT ÿ RCE LS PE ONE AN ANNE LACET TE PME AE (at NA ATPAEEN RAP ALAN AVES LME
-
-OR RE D AU A EG A ;
-ARE A Ne QE {ONE Mn EE
-A RENE He AUS M5
 RAR Une
 
 Pour tout changement d'adresse envoyer soixante
@@ -2807,4 +2345,3 @@ A partir du premier janvier qui suit l'achèvement
 d'une série, le prix de cette série est porté au moins
 au total des prix marqués; ainsi à dater du premier
 janvier 1908 la huitième série complète se vend
-trente-six francs.

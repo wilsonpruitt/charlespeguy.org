@@ -7,18 +7,12 @@ author: charles-peguy
 isAvertissement: false
 wordCount: 18599
 ---
-
-PERSONNALITÉS
-CAHIERS DE LA QUINZAINE
 paraissant vingt fois par an
-PARIS
 8, rue de la Sorbonne, au rez-de-chaussée
 
 Nous avons publié dans le treizième cahier de la
-deuxième série “
 
 .: Dossier.— Jean Grave et Urbain Gohier, par Ludovie
-: Marchand. ,
 
 Ce dossier nous fit avoir une rectification, brève,
 d'Urbain Gohier, que nous avons publiée dans le
@@ -44,20 +38,15 @@ laïques et aux trahisons qui s'ensuivent. Il estindispensable que socialistes n
 
 | parmi nous les aventures des radicaux.
 
-SR SU È
-DOSSIER
-M. URBAIN GOHIER
 « M. Urbain Gohier a quitté l'Aurore. Ce départ est
 moraiement un événement considérable. M. Gobhier
 représentait tout un esprit, toute une méthode. Les
 circonstances de ce départ sont particulièrement
-instructives.
 À Nos anciens abonnés n'ont pas oublié que nos cahiers
 sont des cahiers d'enregistrement. Nous reproduisons
 ci-après, pour mémoire, plusieurs pièces de ce procès
 ; L'Aurore du vendredi 11 avril avait publié cet article
 de Vaughan
-CONSULTATION ÉLECTORALE
 En janvier 188r, quand je pris à l'Intransigeant la succession de Theïz pour les Chroniques Socialistes, je ne me
 faisais aucune illusion sur mon mérite et me demandais
 très sincèrement si j'étais de taille à tenir l'emploi que je
@@ -68,19 +57,12 @@ Paepe, d'Hector Denis, etc., de ceux, en un mot, quijétaient
 alors qualifiés pour répandre l'idée communiste et dont la
 valeur intellectuelle et morale était indiscutable — et indiscutée — mais cette amitié, flatteuse pour moi, m'autorisait-elle à professer à mon tour?
 J'en doutais si fort que je crus devoir, avant de m'enga- e\
-12 ï >”
-I \ $ À
-\ \ 1 LA
-
-É ‘ D | LA *
 
 ger formellement, prendre l'avis de Malon, avec qui je ‘:
 venais de collaborer à l'Emancipation.
 : Malon m'encouragea et me promit fraternellement son
 
-{ 3 7 : Es : 3:
 concours pour les cas — à prévoir — où ma maigre science
-sociologique se trouverait en défaut.
 
 Il mit, toutefois, à ce concours, une condition dont j'appréciai la justesse et à laquelle, depuis cette époque, je me
 suis conformé du mieux que j'ai pu.
@@ -125,19 +107,15 @@ discussions acrimonieuses est passée? N'est-ce pas, au
 contraire, le moment de faire litière — quitte à reprendre
 ses positions plus tard — des colères et des rancunes ? 414
 
-DOSSIER GOHIER
-
 La République tirée du danger que le nationalisme lui
 fait courir, il sera temps, si l'on en éprouve le besoin, de
 se redire, plus ou moins gentiment, en famille, ses quatre
-vérités.
 
 Pour faire échec au scandaleux succès d'un Drumont,
 d'un Lemaïtre, d'un Millevoye, d'un Syveton, d'un de Mun,
 d'un de Solages et de cent autres pétris de même farine,
 il n'est pas même nécessaire de connaître le degré de
 républicanisme de leurs concurrents : ils ne peuvent être
-pires.
 
 Je ne voudrais pas, pour ma part, qu'on püt me reprocher
 d'avoir contribué — n'eüt-ce été que par mon abstention—
@@ -150,7 +128,6 @@ idées. Loin de là! Je le juge avec moins de sévérité que
 d'autres, voilà tout. Je suis le juré que sa responsabilité
 effraie, que son droit de vie et de mort épouvante et quia
 plutôt tendance à chercher et à trouver les circonstances
-atténuantes.
 
 Jaurès manque de caractère ; c'est un improvisateur plus
 éloquent que profond et qui se grise lui-même au vin capiteux de sa parole; c'est le contraire d'un homme d'action;
@@ -166,23 +143,18 @@ r - Et ce que je ferais dans le Tarn, je le ferais ouvertement
 dans toutes les circonscriptions où la situation est pareille.
 Ce qui ne m'empécherait pas de souhaiter et d'attendre
 
-‘ mieux.
-
 Voilà ma petite consultation donnée — pour ce qu'elle vaut. Il n'est pas mauvais que chacun dise ce qu'il pense.
-ERNEST VAUGHAN
 -
 dix-huitième cahier … de la troisième série
 
 L'Aurore du dimanche 13 avril publia, du même,
 l'article suivant
-LE DÉPART D'URBAIN GOHIER
 
 Vendredi soir, Urbain Gohier apportait au journal un
 article sur l'élection de Carmaux, dont il demandait l'insertion immédiate. Les précédents, à côté de celui-là, peuvent
 passer pour d'innocentes berquinades. J'aurais voulu voir
 mon collaborateur pour essayer de lui démontrer que ses
 exagérations allaient plutôt à l'encontre de son but. Peutêtre, toutefois, eussé-je fait passer l'article quand je trouvai, à mon adresse, la lettre de démission que voici
-Paris, II avril 1902
 Mon cher Vaughan
 
 Comme vous l'écrivez fort bien, il faut que chacun
@@ -194,28 +166,19 @@ sur le personnel socialistes, nous nous mettions tout
 d'un coup à publier des avis contradictoires.
 Après votre article de vendredi matin, si vous aviez
 été le rédacteur et moile directeur, je vous aurais donné
-congé.
 
 C'est vous le directeur et moi le rédacteur : je m'en
-vais.
 
 Pas un de nos lecteurs ne comprendrait une autre
 décision de ma part; et tous ont senti que votre article
 était fait pour provoquer ma démission. Je vous l'apporte
-illico.
 
 Avec tous mes vœux de prospérité.
-
-URBAIN GOHIER
-
-à A L
-£ DOSSIER GOHIER
 
 Urbain Gobhier, s'il avait été le directeur, m'aurait donné
 mon congé.
 
 C'est une manière peu banale de respecter la liberté
-d'autrui.
 Urbain Gohier ne croit pas pouvoir me permettre de dire
 ce que je veux dans le journal que j'ai créé et où je lui ai
 laissé dire tout ce qu'il a voulu.
@@ -227,12 +190,10 @@ plus conciliante.
 
 Urbain Gohier parle d' « avis contradictoires ». De qui
 done est venue la contradiction ? C'est ce qu'il importe
-d'examiner.
 
 Le 15 juillet 1907, sous ce titre : « Liberté de Conscience »,
 j'appréciais, le premier ici, la conduite de Jaurès au sujet
 de la première communion de sa fille et je concluais en ces
-termes
 Eh bien! voilà qui est entendu : Jaurès a été trop
 faible ; Jaurès a manqué de volonté et de caractère;
 Jaurès n'a pas su avoir cet héroïsme obscur de tous les
@@ -267,7 +228,6 @@ temps qui vient à bout de tout.
 Urbain, Gohier a peu à peu et, je n'en doute pas, dans les
 meilleures intentions du monde, transformé le journal dont
 j'avais rêvé de faire une tribune idéale de liberté, d'humanité, de vérité, de justice, en une chaire de violence et de
-haine.
 
 Si je n'ai pas rompu avec mes affections les plus chères,
 on ne peut pas le lui reprocher,
@@ -293,8 +253,6 @@ et si rebelle à tous les conseils, dès qu'il a été piqué dans
 son amour-propre par une personnalité quelconque, en ï
 demande raison à l'univers entier. Heureusement pour moi
 
-DETTE Rr ï be
-à DOSSIER GOHIER
 que ses adversaires n'usent pas de représailles. J'en aurais
 entendu de belles !
 
@@ -320,7 +278,6 @@ Gohier se trompe ; j'étais précisément en train de chercher
 à consolider un terrain dont il sentait tellement lui-même
 la fragilité qu'il avait envisagé la nécessité de se chercher
 une situation plus rémunératrice et plus stable. C'était tout
-naturel.
 
 Je prétends, moi, que l'heure n'est pas venue de désespérer, au contraire ! Je voulais demander à Urbain Gohier
 —et je l'aurais obtenu, j'en suis sûr — de se consacrer aux
@@ -328,7 +285,6 @@ belles et nobles campagnes qu'il sait mener avec tant
 de talent contre les abus et les crimes de notre misérable
 société, en en retranchant les iavectives propres seulement
 à éloigner de nous bien des sympathies, sans compensation
-d'aucune sorte.
 
 | Je n'ai rien à désavouer de ce que j'ai dit d'Urbain
 Gohier; ce que je pensais de lui, je le pense encore et
@@ -342,7 +298,6 @@ le puis. Mais il a tort de donner à sa juste réclamation un dix-huitième cahi
 ton comminatoire. Je ne renie pas mes dettes et, jusqu'à
 présent, je les ai toujours payées. Il a tort surtout de dire
 et de penser que ma « conversion » m' « en facilitera les
-moyens ».
 
 Ou cela n'a pas de sens ou cela signifie que je me suis
 vendn à la « Sociale-Lucullus ».
@@ -355,8 +310,6 @@ cette malveillance.
 La misanthropie, poussée à ce point, doit faire horriblement souffrir, et celui qui ne trouve aux actes des autres
 hommes que des mobiles bas et vils est bien à plaindre.
 
-ERNEST VAUGHAN
-
 Je reçois la lettre suivante
 Paris, le 12 avril 1902
 Mon cher Vaughan
@@ -367,23 +320,17 @@ de rédacteur à l'Aurore.
 Veuillez agréer, mon cher Vaughan, mes hommages
 
 \ très humbles et très attristés.
-B. GUINAUDEAU
-
-Dont acte. E. V.
 
 On a pu voir par ces articles que M. Vaughan reprochaïit à M. Gohier d'avoir fait des personnalités. Nous
 ne reprocherons pas à M. Gohier d'avoir fait des personnalités. Nous lui avons reproché d'en avoir fait
-injustement.
 
 Ces deux articles nous donnaient la version de M. Vaughan. Conformément à notre institution, nous avons
 
-RÉPONSE À M. VAUGHAN
 aussitôt demandé la version de M. Gohier à M. Gohier
 lui-même.
 
 Dans la Raison datée du dimanche 13 avril M. Gohier
 avait publié un long article d'intérêt général, intitulé
-Bilan.
 
 Dans la Raison datée du dimanche 20 avril, sous la
 rubrique les actes, sous ce titre Gohier et l' « Aurore »,
@@ -399,7 +346,6 @@ fer, de fermer un peu leurs blessures. Et l'on recommencera.
 En attendant, Urbain Gohier est de La Raison.
 
 M. Gohier nous a fait parvenir peu après la réponse
-suivante
 Ce que j'aurais à répondre ?
 
 Le voici.
@@ -417,7 +363,6 @@ la fin des banquets. Mais ce n'est pas de la tolérance,
 c'est de l'absurdité, de réunir tous ces gens pour prêcher
 ensemble, dans leurs langues diverses, du haut de la
 
-Urbain Gohier
 même chaire. Et, dans un journal politique, c'est pis que
 de Vabsurdité,
 
@@ -428,7 +373,6 @@ la dignité d'un journal, et suspect, dans un journal
 politique, de recommander chaudement, à la veille des
 élections, les candidatures et les candidats. officiels
 qu'on a violemment et constamment combattus depuis
-six mois.
 
 Enfin, je l'airedit cent fois au cours de mes polémiques,
 la tolérance doit s'appliquer aux questions de doctrine
@@ -454,8 +398,6 @@ sans m'occuper de leurs alliances. !
 
 M. Vaughan ne « voulait point laisser dégénérer
 
-RÉPONSE À M. VAUGHAN
-
 son journal en un pamphlet ». C'est une résolution très
 méritoire, mais très inattendue, de la part d'un homme
 qui a collaboré tant d'années à l'Intransigeant, et qui
@@ -469,7 +411,6 @@ le pamphlet condamné par M. Vaughan que dans le
 pamphlet où M. Vaughan faisait sa partie.
 
 M. Vaughan donne, de ma violence et de ses résultats,
-deux exemples.
 II cite une attaque assez vive contre Kropotkine. Ce
 n'était pas une attaque, mais une riposte. C'est mon
 habitude de relever de mon mieux mes détracteurs, et
@@ -486,10 +427,7 @@ M. Vaughan cite encore des critiques dont ses amis,
 les socialistes belges, ont été irrités. Mais, quelques
 jours après mon départ, l'Aurore insérait, à propos des
 troubles de Belgique, un article qui provoqua la protestation collective des socialistes au Parlement de
-Bruxelles. J'avais pu froisser quelques individus
 M. Vaughan offensait le parti entier. Alors ?
-
-Urbain Gohier
 
 M. Vaughan déclare qu'il ne pouvait accepter mon
 dernier article sur la candidature Jaurès à Carmaux.
@@ -515,29 +453,23 @@ allures inquiétaient nos collaborateurs, et l'un d'eux
 peut témoigner qu'il laissa échapper en pleine rédaction
 des paroles significatives.
 
-M. Vaughan touche, en terminant, certaines questions
 d'ordre matériel. J'aurai la générosité de ne pasle suivre
 sur ce terrain. Tout enessayant de noiïrcir mon caractère,
 il faut que le directeur de l'Aurore en aït une excellente
 opinion, pour s'exposer gratuitement aux réponses que
 
-F DOSSIER GOHIER
 à je pourrais faire. Je veux bien avoir égard à sa
 situation désagréable ; je n'insiste pas : sa promesse
 nouvelle de tenir une foule d'engagements causera, chez
 . de nombreux intéressés, une joie qu'il serait cruel de
-troubler aujourd'hui.
-Urbain Gohier
 
 Le livre de M. Urbain Gohier, à bas la caserne, a été
 publié dans les éditions de la revue blanche; un volume
-à trois francs cinquante, 30 6 pages.
 
 Enfin dans /a Raison datée du dimanche 25 mai
 
 M. Urbain Gohier a publié un article intitulé larmes
 5 d'assassins. Cet article avait un post-scriptum que nous
-devons reproduire
 P.-S. — Nos lecteurs et amis voudront bien m''excuser de leur fausser compagnie pendant quelques mois.
 Il y a trop de choses à dire en ce moment, et je n'arriverais pas à les dire dans la Raison. J'aime mieux
 aller voir, au delà de l'Océan, si l'humanité est aussi pitoyable que de notre côté.
@@ -548,8 +480,6 @@ pressentiments qui ont choqué les âmes naïves auront
 été confirmés par les faits. Les tripotages commenceront à porter leurs fruits. La besogne ne manquera pas
 et, s'il plaît au Dieu du Jourdain, nous ne manquerons
 pas à notre besogne.
-
-LULAERR
 
 dix-huitième cahier , de la troisième série
 
@@ -568,12 +498,6 @@ ce manifeste; nos abonnés verront lequel vaut le mieux,
 quand on veut faire dire quelque chose, de le demander
 à quelqu'un, à un grand écrivain, — ou de le faire
 élaborer par un comité composé des gens les plus émi- j
-nents.
-
-ES LÉRREX
-LIGUE FRANÇAISE POUR LA DÉFENSE
-Rue Jacob, 1, Paris, sixième arrondissement
-MANIFESTE
 
 Lorsque, au mois de juin 1898, peu de temps après la nomination de la Chambre dont les pouvoirs vont prochainement expirer, la Ligue pour la Défense des
 Droits de l'Homme et du Citoyen s'est fondée, bien peu
@@ -586,7 +510,6 @@ Il fallut plusieurs années d'efforts ininterrompus, une
 propagande sans trêve sur tous les points du territoire
 pour faire clairement apparaître le but social de son
 programme, et le haut intérêt politique dont elle
-s'inspirait.
 
 Aujourd'hui nul ne peut nous contester l'honneur
 d'avoir été des premiers à discerner, derrière une crise
@@ -640,7 +563,6 @@ s'éloigne d'un écueil où l'on a déjà risqué sa vie. Non
 pas seulement même pour la sécurité, mais pour
 
 \ l'honneur de la Patrie, nous ne saurions les aider à
-revenir au Pouvoir.
 
 Pour les autres, chacun se laissera guider par ses
 sympathies individuelles ou par les solidarités de
@@ -652,7 +574,6 @@ marcher suivant son état d'esprit, avec tel ou tel parti.
 Elle ne demande à tous qu'un seul engagement, c'est
 de toujours savoir reconnaître chez elle le terrain
 d'entente où tous les vrais, les bons républicains doivent
-pouvoir se retrouver êt unir leurs forces défensives,
 quand il s'agit de repousser les attaques du nationalisme, cette sorte de Protée de la réaction, qui tantôt
 parle au nom d'un monarque, tantôt au nom d'un César,
 tantôt au nom d'un agitateur vulgaire, tantôt même au
@@ -671,47 +592,29 @@ les fidèles disciples de notre inviolable Déclaration des
 Ligue française pour la défense
 Droits, qui cherchent sincèrement comme nous, en toute
 matière, le Droit, la Justice, la Lumière et la Vérité.
-LE COMITÉ CENTRAL
 
 Lupovic TRARIEUX, sénateur, ancien ministre de la
-Justice, président.
 
 Louis Haver, membre de l'Institut, professeur au Collège
 de France, vice-président.
 
 Pauz Meyer, membre de l'Institut, directeur de l'Ecole des
-Chartes, vice-président.
 
 Marurias MorHARDT, homme de lettres, secrétaire général.
 
 GEorGEs Bourpon, homme de lettres, secrétaire général
-adjoint.
-LuciEN FONTAINE, industriel, trésorier général.
-
-ANATOLE KOPENHAGUE, trésorier général adjoint.
 
 ÉMILE BourGxotis, maître de Conférences à l'École normale
-supérieure.
 
 E. BrissaAu », professeur à la Faculté de médecine, médecin
 des hôpitaux.
 
-E. Brocnor, ouvrier électricien.
-
 \ FERDINAND Buisson, directeur honoraire de l'Enseignement primaire, professeur à la Sorbonne.
 
-J.-J. CLAMAGERAN, sénateur.
-
-DezPecu, sénateur.
-
 E. Duccaux, membre de l'Institut, directeur de l'Institut
-Pasteur.
-
-HENRI FONTAINE, industriel.
 
 Docteur Gzey, professeur agrégé à la Faculté de médecine
 de Paris.
-PAUL GUIEYSSE, ancien ministre, député.
 
 Yves Guyor, directeur politique du Siècle.
 
@@ -722,15 +625,11 @@ physiologie de la Faculté de médecine de Paris.
 
 Docteur Grorces Hervé, professeur à l'École d'Anthropologie.
 
-p QUO LR ,
-
 Docteur J.-P. LaAnGLois, professeur agrégé à la Faculté de
 
 Médecine de Paris.
 
 Docteur Louis LAPICQUE, maître de conférences à la
-
-Sorbonne.
 
 A. Mounier, professeur à l'Ecole des Chartes.
 
@@ -742,15 +641,7 @@ Eucène PRÉvosT, avocat à la Cour d'appel de Paris.
 
 JEAN PsicxaRr, directeur d'études à l'École des Hautes-
 
-Etudes.
-
-A. RANG, ancien sénateur, rédacteur au Radical.
-
-A. RATIER, sénateur.
-
 Pauz Reczus, membre de l'Académie de Médecine.
-
-Josepx REINACH, ancien député.
 
 CHARLES RicneT, professeur à la Faculté de médecine, membre de l'Académie de Médecine.
 
@@ -763,7 +654,6 @@ D'un côté un assemblage nombreux des noms les plus
 central, mais le simple président de la section du
 quartier de la Porte-Dauphine, seizième arrondissement.
 Et cependant insister sur la comparaison des deux
-textes serait féroce.
 
 Beaucoup de gens, qui lisaient péniblement sur les
 murs le manifeste, justifié d'un seul tenant, au lieu
@@ -777,7 +667,6 @@ On me répond que ce n'est pas le comité qui a fait le
 manifeste : il n'avait donc pas qu'à le signer. Je suis
 trop bête pour comprendre ces substitutions de respon-
 
-! sabilités.
 Que l'auteur signe son œuvre, et pas un autre.
 Je vais plus loin : l'auteur ou les auteurs du manifeste écriraient peut-être bien s'ils'écrivaient librement, sous
 leur nom, sous leur signature, en toute responsabilité.
@@ -785,7 +674,6 @@ Mais on écrit toujours mal quand on est asservi et mal
 responsable, quand on écrit pour trente qui signeront
 sans lire.
 
-Administration. — En pleine période électorale, ayant
 peur de compromettre les candidats, ou de se fairé
 comprometire par eux, en tout cas ne voulant ou ne
 pouvant pas faire voir ses affiches parles candidats, la
@@ -797,12 +685,10 @@ reviendrait, pour un tirage égal, un cahier ordinaire,
 de soixanté-douze pages, en 8, broché, couvert, chemisé,
 livré à domicile en province. Encore une comparaison
 qui s'impose; et avis aux citoyens qui ont six sous à
-dépenser.
 
 Nous ne pouvons publier tous les documents et renseignements que nos abonnés nous ont envoyés sur les
 dernières élections. Je retiens d'abord l'élection Beauregard, et la proclamation suivante
 
-ÉLECTION BEAUREGARD
 Paul BEAUREGARD, A SES ELECTEURS
 à Mes cHErs CONCITOYENS,
 
@@ -815,8 +701,6 @@ j'ai le sentiment de l'avoir justifiée. Je vous dois, je me dois
 la tâche entreprise.
 
 Tel je me suis présenté à vous en 1898, tel je suis aujourd'hui. — Mon programme est resté le même.
-
-Fermement RÉPUBLICAIN
 
 Je veux défendre la LIBERTÉ égale pour tous
 Par dessus tout, je suis un PATRIOTE.
@@ -836,7 +720,6 @@ d'élever leurs enfants comme il leur convient;
 
 Je veux la France forte au dehors et s'imposant au res- .
 pect de tous, l'Armée encouragée dans son œuvre de défense par l'affection des bons Citoyens et des pouvoirs
-publics.
 
 Je veux la propriété respectée, la liberté des Contrats
 assurée, la justice impartiale pour tous les Citoyens.
@@ -847,7 +730,6 @@ Je veux la classe ouvrière affranchie, mise en possession
 à l'œuvre de prévoyance nécessaire à son avenir; Soutenue
 dans la formation de ses associations ; devenant forte sans
 ‘ devenir tyrannique. Je veux tout pour elle par les vors
-DE LA LIBERTÉ,
 
 Je n'admets aucun État dans l'État. — Résolu, en franc
 libéral, à ne persécuter personne, je ne veux pas non plus
@@ -859,14 +741,12 @@ l'invasion cosmopolite qui risque de nous être funeste.
 La conscience publique exige impérieusement l'effacement des iniquités commises au nom du Dreyfusisme, dans
 ces dernières années. L'amnistie pour tous les condamnés
 de la Haute-Cour est une œuvre de réparation nécessaire et
-urgente.
 
 Le Service militaire peut être allégé, les Études de la
 Commission de l'armée le démontrent. — Mais c'est sous la
 condition que l'on crée au préalable les cadres sérieux indispensables pour assurer la solidité d'une armée moins
 
 , exercée qu'aujourd'hui. Sur ce point, nous devons être
-irréductibles.
 
 Il n'est que temps de prendre des mesures énergiques
 pour arrêter le déficit, rétablir l'équilibre de nos finances
@@ -886,8 +766,6 @@ au gaz, — sans parler d'incidents blessants pour le Conseil
 Municipal, ni de la visite du Tsar — sont autant de causes
 d'un ressentiment légitime contre lui.
 
-NE. ÉLECTION BEAUREGARD
-
 Aux premiers rangs de l'opposition dépuis que le Ministère WALDECK-MILLERAND est au pouvoir, fort de ma
 conscience, appuyé sur mes actes, je méprise les insinuations d'adversaires qui, pour expliquer leurs candidatures,
 sont bien obligés de trouver quand même quelque chose à
@@ -895,13 +773,6 @@ dire.
 
 Mes chers Concitoyens, vous me connaissez. Je compte
 sur yous.
-
-VIVE LA FRANCE! VIVE LA LIBERTÉ!
-
-VIVE PARIS! VIVE LA RÉPUBLIQUE !
-
-Paul BEAUREGARD
-Député sortant
 
 . “Nous empruntons ce texte à l'Union du seizième
 arrondissement, journal politique et littéraire, cinquième année, numéro 27, du dimanche 20 avril 1902.
@@ -915,7 +786,6 @@ se conduirait un peu en juriste.
 M. Émile Terquem, étudiant inscrit à la Faculté de
 Droit de l'Université de Paris, nous prie d'insérer cette
 
-LETTRE OUVERTE A M. PAUL BEAUREGARD
 Monsieur le Professeur,
 
 Vous avez fait récemment, au cours de votre campagne
@@ -929,7 +799,6 @@ Je veux bien que ce soit là le député ou plutôt le candidat
 . qui parle et non le professeur. Mais est-il permis à un élève respectueux de supposer chez son maître un dédoublement tel de la personnalité, que l'homme politique
 puisse affirmer un certain programme d'action que le pro-
 - fesseur et le juge aux concours doit répudier avec
-indignation.
 
 Je n'interrogerai pas l'homme politique; il appartient à
 ses électeurs, et je n'ai pas l'avantage d'être inscrit dans
@@ -956,7 +825,6 @@ vous voulez : « les Français libres de croire à leur gré ».
 Ne craignez-vous pas d'atteindre ainsi beaucoup de vos
 amis de la Patrie française, qui ont du sang juif, authentique, mais honteux, dans les veines ? Jusqu'à quel degré
 de parenté ou d'alliance poursuivrez-vous l'assimilation
-juive ?
 
 Si au contraire, répudiant vos déclarations libérales, vous
 suivez la seconde version antisémitique, si, laissant les
@@ -965,7 +833,6 @@ morale de l'éducation talmudique, que ferez-vous des historiquement Juifs, qui,
 s'intéressent au Talmud, à l'Ancien Testament au même ts _ ÉLECTION BEAUREGARD
 
 titre qu'à la Théogonie, aux livres bouddhiques, aux
-* Védas?
 
 Admettons pourtant que vous ayez réussi à établir vos
 statistiques juives et maçonniques sur les seules bases
@@ -1009,14 +876,11 @@ Reconnaissez, monsieur le Professeur, que voilà des
 êtes ne voudra pas laisser mettre en suspicion légitime la
 neutralité confessionnelle et la valeur scientifique de son
 
-: enseignement. ?
-
 Vos amis ont poursuivi avec une ardeur implacable le
 professeur Hervé, parce que, soûs le couvert d'ailleurs d'un
 anonymat fort discret, il avait, disiez-vous, révélé une mentalité incompatible avec ses fonctions de professeur, en
 
 = s'élevant, dans ur journal socialiste, contre l'ordre social
-établi.
 Pourquoi voulez-vous que vos élèves acceptent, sans plus
 ample informé, l'enseignement d'un professeur qui met hors
 le droit commun une partie de la nation. M. Hervé, professeur comme vous, n'était pas comme vous juge à des
@@ -1031,9 +895,7 @@ demander ce que, en toute conscience, vous pensez du cas
 du professeur BEAUREGARD, eu égard au cas du professeur Hervé.
 
 Comptant sur la réponse loyale que vous devez à la dignité de votre chaire, je vous prie d'agréer mes salutations empressées.
-Emile Terquem
 Ancien élève de l'École
-Polytechnique
 
 On nous communique en même temps cette circulaire
 commercialo-financière, de caractère purement national,
@@ -1042,21 +904,12 @@ connaît les déclarations électorales de M. Beauregard
 sur les financiers cosmopolites.
 
 La circulaire que nous reproduisons est écrite à la
-machine.
 
-$ # —
-ELECTION BEAUREGARD
 LA FRANCE 47, rue Taitbout (9°)
-“ ; 5 à Paris, ie premier mai 1902
 Économique et Financière p F'HRNES
 Organe des Intérêts
-Locaux,Régionaux & Nationaux
-Téléphone 2685-93
-Adresse Télégraphique
-ETINFICO — PARIS
 mr ici l'adresse du destinataire
 Abonnement : 42 fr. par an [
-Monsieur,
 
 J'ai l'honneur de vous informer que nous venons de faire
 paraître sous le titre « La France Economique et Financière » un journal hebdomadaire comprenant, encartés dans
@@ -1115,7 +968,6 @@ Fradet, cet ancien élève à l'école normale d'instituteurs d'Auxerre, qui fut
 frappé par M. Leygues, et que l'on a trop oublié, nous
 écrit de l'Yonne, où il exerce provisoirement un métier È
 honnéte, un métier de droit commun :
-ÉLECTIONS DANS L'YONNE
 Vous avez demandé dans vos cahiers des documents intéressants sur la période électorale. Bien entendu, ce qu'il vous
 fallait, ce n'étaient pas des affiches ordinaires. Je crois que
 ces deux spécimens de la grossièreté nationaliste et de la
@@ -1128,7 +980,6 @@ part, au bénéfice de la propagande... socialiste. XE
 Nous ne pouvons reproduire l'image nationaliste, Û
 | grossièrement enluminée ; à droite et à gauche deux
 pots de vin qui éclaboussent ; au milieu en haut une
-énorme carotte ; en haut à gauche M. Cornet, bonisseur,
 gesticule, envoie le boniment à de grotesques électeurs
 paysans, rangés en rang d'oignons; au-dessous la
 légende : Vous vendrez votre blé plus cher ! En face
@@ -1142,7 +993,6 @@ primant les mauvais effets pris part, l'Avenirdel'Yonne,
 de l'admission temporaire et journal officiel de la mairie
 -le trafic des acquits-à-cau- de Sens, a publié le commention à la discussion de la- taire suivant:
 quelle M. Lucien Cornet, « Les Agriculteurs fran-
-: 29 I.
 
 çais et notamment ceux du cela amènera l'abaissement
 département de l'Yonne et des prix des farines dont la
@@ -1150,7 +1000,6 @@ de l'arrondissement de Sens hausse était provoquée par
 se souviendront du service la sortie des farines franque leur a rendu M. Lucien caises à l'étranger, favorisée
 Cornet qui, à notre avis, a par le trafic des acquits-àprovoqué la plus impor- caution.
 tante réforme agricole « Les agriculteurs et les
-obtenue depuis vingt ans. acheteursde pain n'oublie-
 
 « Ainsi que nous l'avons ront pas le vote de cette loi
 déjà démontré, la consé- bienfaisante dont ils appréquence de cette loi sera d'em- cieront prochainement les
@@ -1169,16 +1018,12 @@ appartiennent à notre humanité.]
 Vous êtes prié d'assister à la déroute complète et au q
 service funèbre qui sera fait par Monsieur l'abbé OLLIVIER, ainsi qu'à l'enterrement définitif de la candida-
 
-LÉON FILLOT $
-
 FEUE DÉFUNIE d morte de l'abject et vil mensonge de ses amis, coifiée À
 d'un énorme bonnet de coton et ensevelie dans une è
 large veste électorale, ouatée, doublée et fourrée, en !
 son domicile à Sens, au siège du COMITÉ NATIONALISTE Î
 
-ÉLECTIONS DANS L'YONNE
 face le Musée aux corbeaux, à l'âge des illusions envolées.
-MUNIE DE TOUS LES SACREMEN-TEURS
 
 Lesquels auront lieu dans la basilique de Marie la
 
@@ -1210,11 +1055,9 @@ Lizé-GaILLARD, Pois-DE-SENTEUR, fabricants de chaussures
 inodores, CAUSERET, dit FonD-D'HEUR en retard, ses oncles
 en Saint-Antoine-de-Padoue
 De ses nombreux copains, copines et de ses innombrables
-tamis.
 
 Fe, Les 9.581 Beni-Bouf-Tout, Bachi-Bouzouks, Collectivistes, Églantinards, Canailles, Crapules, Brigands de la Compagnie du Soleil ne
 sont autorisés à suivre le Convoi qu'à la condition qu'ils entonneront le cantique rédempteur : ESPRIT SAINT DESCENDEZ EN
-NOUS.
 
 dix-huitième cahier | de la troisième série
 
@@ -1237,11 +1080,9 @@ Dans le même courrier Fradet nous envoyait cette h
 chanson, vendue aussi par les socialistes au bénéfice de i
 leur propagande : à
 
-LA VESTE A FILLOT
 Air du Bal à l'Hôtel de Ville
 
 Nous avons un chic candidat, à
-C't ami Fillot y s'pose, &
 Y'en a pas deux comme celui-là
 Car ÿ n'vaut pas grand'chose,
 Y vend des bonnets d'coton,
@@ -1251,8 +1092,6 @@ Il n'en a jamais d'reste;
 Mais comme député
 C'est un vrai curé,
 On lui taillera une veste. /bis) $
-
-ÉLECTIONS DANS L'YONNE
 
 Paraît qu'il parle épatamment, L
 I1 sait bien faire l'article.
@@ -1274,14 +1113,12 @@ k Tout l'monde le connaît,
 C' n'est plus du jésuitisme.
 Il a de bonnes idées,
 Qui sont approuvées
-_ Détruire lcléricalisme. /bis)
 
 Malgré que les belles petites sœurs,
 Ont fait beaucoup de galette
 Y faut pas croire qu'les électeurs
 S'laisseront conduire à la baguette,
 Faudra qu'ces belles sœurs
-Rentrent au Sacré-Cœur
 1 Pour ne plus faire la retape
 On va les marier
 Avec les curés,
@@ -1311,7 +1148,6 @@ Il fait partie de la clique. /bis]
 
 Électeurs, c'est dimanche prochain, à
 Qu'il faut donner tous vos suffrages,
-À Cornet, c'vieux républicain
 Et surtout pas de ballottage,
 Que chaque billet 3
 Soit « Lucien Cornet », ; L
@@ -1320,16 +1156,11 @@ C'est pourquoi Hurpeau
 Et tous les corbeaux, À
 Lui tiendront sa queue de pie. {bis}
 
-DU « MOUVEMENT SOCIALISTE »
 Nous avons reçu la lettre suivante. Elle n'est pas de
-Lagardelle.
 
 fe Mouvement Socialiste Paris, le 30 avril 1902
-Revue hebdomadaire internationale
 
 10, Rue Monsieur-le-Prince,
-PARIS (6°)
-RÉDACTION
 Moncher et intègre Péguy,
 
 Si habitués que soient tes abonnés à t'entendre proclamer
@@ -1349,7 +1180,6 @@ qu'une revue socialiste a déjà assez à faire en s'occupant de
 
 Aujourd'hui, ma vieille Conscience, tu dépasses tout de même la mesure. Je ne suis point chargé de te répondre,
 
-André Morizet
 mais tu m'as personnellement infligé un blâme, et je tiens
 à comparaître devant Ton Austérité.
 
@@ -1389,11 +1219,6 @@ flottante et une activilé peu socialiste ».
 
 Ce sont là constatations de faits, appuyées sur des exem- ples nombreux. Les mots que tu me prêtes, au contraire,
 « monceau de courages — ramassis de lâches », sont des
-(1) N°78, 8/2, page 261.
-(2) N° 73, 4 janvier, pages 18 et 20,
-
-MN MS Se À à
-Ts DU € MOUVEMENT SOCIALISTE »
 
 épithètes vides de sens, d'une polémique assez analogue à celle de l'Intransigeant.
 
@@ -1402,7 +1227,6 @@ de nos faussaires nationaux ?
 
 Et tu t'en prends à Vliegen, dont toute la faute se borne
 _ à citer une phrase de Jaurès sans y joindre l'article entier?
-Dieux Vengeurs, quel cynisme !
 Jusques à quand, terrible censeur, passeras-tu ton temps à
 / requérir à tour de bras? Tu ferais pourtant de bonne ï
 besogne, si tu laissais à ces bons singes le soin de se chercher les poux. !
@@ -1411,11 +1235,8 @@ nous serons dans quinze ou seize ans d'ici ? Il est fort probable que nous seron
 seras-tu ? Tu seras comme aujourd'hui, Péguyste. C'est très
 : dangereux, méfie-toi. L''orgueil est péché capital, et poussée "
 à un certain point, l'hypertrophie du moi relève de la
-pathologie.
 Toi aussi, tu deviendras inutile, qui aurais pu être si bon.
-Songe à Gchier, Péguy ! Péguy, songe à Gohier!
 Ton bien cordial, é
-André Morizet
 J'ajoute, ce qui n'est passuperflu, que je ne me désabonne
 pas : si je dois figurer au pilori des Cahiers, ce ne sera pas
 en cette qualité. On se désabonne d'une revue sans intérêt,
@@ -1426,9 +1247,7 @@ tent le socialisme en bouteille. ou en pantalons. Seulement,
 __ donne-nous quelque chose qui en vaille la peine, entre
 _ deux listes de suspects.
 
-AU « MOUVEMENT SOCIALISTE »
 Nous lisons dans le Mouvement Socialiste, sous la
-signature André Morizet
 Numéro 73, du samedi 4 janvier 1902
 page 1$ et suivantes
 Cette absence de cohésion est propice aux pires influences
@@ -1452,10 +1271,6 @@ par ses votes, la nécessité de maintenir intact notre idéal.
 Nous avons applaudi récemment la ténacité avec laquelle
 Sembat a lutté contre l'emprunt de Chine, flétri les assas-
 
-174 SES Le Ÿ ‘ 4 *
-RRATSMEN NT cine î
-FAURE SENS à
-
 | sinats des expéditions coloniales et dénoncé l'ignominie de la « campagne » de Turquie. s
 Ceux-là, du moins, ont sauvé l'honneur. Quelques-uns des
 autres se sont joints à eux avéc plus ou moins de fidélité.
@@ -1477,7 +1292,6 @@ __n'existe-t-il pas, par l'institution même du Comité Général, dont ils rel�
 que le Comité Général ne contrôle ni ne blâme! Mais ce
 contrôle et ce blâme n'ont jamais fait peur à personne en
 général, et aux députés du « groupe socialiste parlemen-
-. taire » en particulier.
 Et c'est cette tactique qui est coupable, cette indifférence
 qui est insensée. Que les fédérations dont nous parlons
 | aient jugé sévèrement Millerand et ses amis, soit. Cela
@@ -1506,7 +1320,6 @@ Si étrange que puisse paraître notre confiance, il devient,
 situations se précisent, que l'union socialiste, entre tous les
 socialistes fidèles au socialisme, et entre ceux-là seulement
 sera possible, dans un délai qui pourrait ne pas être très
-long.
 Numéro 78, du samedi 8 février 4902
 page 259 et suivantes
 
@@ -1522,12 +1335,9 @@ l'avant-veille, le même citoyen Rouanet avait, dans sa
 propre circonscription, conférencié, sous la haute présidence de M. Waldeck-Rousseau, assisté du préfet de la
 Seine, de la municipalité de Montmartre et des représentants des divers ministères. Merveilleux exemple de ce que À
 
-\ ANNE À
-j AU € MOUVEMENT SOCIALISTE
 peut le « socialisme de gouvernement »! A la vérité, le
 gouvernement, deux jours après, ne pouvait s'alarmer
 beaucoup d'interpellations et questions à lui faites par un
-« ami » si cher!
 
 De l'interpellation de M. Georges Berry sur le conflit anglotransvaalien, nous ne dirions rien — le nationalisme anglophobe n'ayant rien de commun avec la solidarité internationale des socialistes pour tous les opprimés — si précisément
 un député du « groupe parlementaire socialiste », le citoyen È
@@ -1541,7 +1351,6 @@ la rougeole était anglaise cette année ». Est-ce pour de telles
 
 - fadaises que le Bureau Socialiste International a invité tous
 les groupes parlementaires socialistes à interpeller leurs
-gouvernements respectifs ?
 Le ministère de « défense républicaine » — si intraitable
 pour les socialistes — n'a vraiment trouvé contre lui que
 les paroles enflammées de Zévaès, qui, répondant aux
@@ -1555,11 +1364,8 @@ d'élus se réclamant du socialisme nous avait, depuis longtemps, déshabitués 
 Contre ces aflirmations, aussi vaines que retentissanies,
 se dresse, chaque jour davantage, la conscience de classe
 du prolétariat organisé, d'accord avec le socialisme national
-eb international.
 
-André Morizet
 Numéro 80, du samedi 22 février 4902
-\? page 356
 
 Le 6 février, au cours de la discussion du budget du
 Commerce, la Chambre a rétabli l'Office National de Placement en le dotant de la même subvention de 10.000 francs
@@ -1583,7 +1389,6 @@ a publié un manifeste « Aux Travailleurs de Roubaix »,
 portant au bas l'adresse du citoyen Carrette, et invitant le
 prolétariat roubaisien à quitter le Parti ouvrier français
 pour constituer une organisation locale indépendante, le
-Parti ouvrier socialiste roubaisien.
 
 Ilne nous appartient pas de nous immiscer dans des
 querelles locales ; à plus forte raison, quand nous en ignorons les détails, et que nous manquent les plus simples
@@ -1622,14 +1427,12 @@ franco-russe. M. Loubet, comme jadis M. Faure, ira voir
 « notre grand ami ». On ignore si le « Parti socialiste français » lui adjoindra son délégué. « Oh! oh! diraïent les
 tapis de Peterhof, oh, oh! c'est un révolutionnaire ! » Mais
 ne profanons pas la muse de Rostand, notre grand poète
-lauréat.
 Elle s'en est abstenue, comme le « Parti Socialiste frangais » s'est abstenu de célébrer cette année l'anniversaire de
 a Commune. Une autre besogne l'occupe : les élections
 approcbent, il faut « sauver la République »; l'annonce des
 . candidats d'« union républicaine » emplit les colonnes des
 journaux qui se recommandent de lui !
 
-: , André Moriset
 Numéro 87, du samedi 12 avril 4902
 
 ‘ page 698 et suivantes
@@ -1648,15 +1451,10 @@ certain, dès maintenant, qu'au moins en ce qui concerne le
 : Parti Socialiste de France, un effort sérieux à été fait. Une
 affiche-type, imposée à tous les candidats qu'il présente,
 résume ainsi les principes du Parti
-PARTI SOCIALISTE DE FRANCE
-ï Unité Socialiste Révolutionnaire
-ÉLECTIONS LÉGISLATIVES DU...
-Citoyens,
 
 Le Parti Socialiste de France déclare qu'obligation est faite à tous
 les candidats présentés au nom de l'Unité socialiste révolutionnaire
 par les organisations et groupes qui la composent de souscrire à la
-formule ci-dessous
 Le Parti Socialiste de France (Unité socialiste révolutionnaire),
 fraction du prolétariat international organisé, poursuit l''émancipation du travail et de la société sur les bases suivantes
 Entente et action internationales des travailleurs ; organisation
@@ -1672,7 +1470,6 @@ conscient et organisé, possible également dès aujourd'hui.
 
 Parti de révolution, et par conséquent d'opposition à l'État bour-
 
-AU € MOUVEMENT SOCIALISTE
 geois, s'il est de son devoir d'arracher toutes les réformes susceptibles d'améliorer les conditions de lutte de la classe ouvrière, il ne
 saurait, en aucune circonstance, par la participation au pouvoir
 central, par le vote du budget, par des alliances avec des partis
@@ -1710,8 +1507,6 @@ que de très lointains rapports avec ceux qu'on nous a donnés jusqu'ici; et si 
 , . .
 résolutions de Tours, le « groupe parlementaire du Parti
 socialiste français (Unité fédérative), est formé des députés qui ont été élus dans les conditions déterminées
-45 Il.
-André Morizet
 par l'article 15 », il y a tout lieu de craindre que, malgré les
 nombreux succès que ne manquera pas de remporter ce
 parti, son groupe parlementaire voie difficilement le jour.
@@ -1745,8 +1540,6 @@ de réunions, les communiqués de la Petite République : la
 Défense Républicaine y fleurit, la démocratie y coule à
 pleins bords ; de socialisme, il n'est pas question.
 
-UE RE PRE AU à
-
 J'ai dit ici comment M. Rouanet, à Montmartre, conférenciait sous la présidence de M. Waldeck-Rousseau. Dans
 la circonscription voisine, M. Heppenheimer parle à la fin
 d'un banquet, sous le patronage de M. Mascuraud, président
@@ -1754,7 +1547,6 @@ du Comité républicain du commerce et de l'industrie (comité
 
 . radical), qui appuie sa candidature en conviant « tout le
 commerce républicain de la Chapelle à se rallier à la
-Défense Républicaine ». (1)
 
 ; L'exemple vient de haut ; c'est dans la deuxième circonscription &'Albi, à Carmaux, que le théoricien du « Parti
 socialiste », M. Jaurès, s'est chargé de le donner.
@@ -1786,11 +1578,7 @@ teute la démocratie. L'élection socialiste et républicaine de
 
 À (2) La Dépêche de Toulouse du 23 août 1901.
 
-AN ES" GNU
-
-André Moriset
 Chalon, est un grand signal d'action, d'union et de
-victoire. »
 
 Cette belle leçon de méthode socialiste s'est malheureusement perdue.
 
@@ -1808,7 +1596,6 @@ par l'organe de M. Jaurès, nous notilia ici même son intention de susciter ici
 et surtout dans les circonscriptions à tendances radicales.
 
 Il n'y avait rien à redire... nous ne pümes que souscrire à cette décision... Mais l'exemple de Carmaux vient à son heure. Les radicaux ont commencé. Aux socialistes de
-; suivre. » ?
 
 Les socialistes ont suivi ; pas de radicaux contre les socia- listes, pas de socialistes contre les radicaux. (2) « Gette union de tous les républicains s'est faite étroite et loyale,
 et depuis trois années, le gouvernement, composé de citoyens
@@ -1820,16 +1607,13 @@ Action commune, programme commun : « Je demanderai
 pour vous, si je suis élu, dit Jaurès, la réforme dans un
 sens plus équitable et plus démocratique du système actuel
 d'impôts, l'établissement de l'impôt général et progressif
-ARR A AS R*
 (1) Pseudonyme de M. Huc, directeur de la Dépêche, numéro du È
-12 mars 1902.
 (2) Sauf dans une circonscription où cela ne peut avoir grande
 importance. L
 
 (3) Discours prononcé à Monestiès (Tarn), par M: Jaurès. La
 Dépêche de Toulouse du 23 mars 1902.
 
-À À AU € MOUVEMENT SOCIALISTE
 sur le revenu, la réduction progressive du service militaire
 en attendant que les armées permanentes puissent être
 remplacées, etc., etc., je m'associerai à toutes les réformes
@@ -1854,7 +1638,6 @@ sentiers qui sont peut-être ceux des républicains bourgeois,
 Fraternellement unis dans la lutte, les candidats du
 
 « Parti Socialiste » et radicaux seront sans doute à la
-\ Chambre fraternellement unis.
 
 Seront-ils nombreux au Parlement? Faut-il croire à une
 _ énorme majorité réformatrice, comme on le dit dans les
@@ -1869,7 +1652,6 @@ dissipe, et cela ne peut se faire que par la constitution
 
 (1) Même discours.
 
-André Morizet
 définitive du parti de démocratie réformiste en formation,
 Le sogialisme aura à traverser des jours difficiles. Ce qu'il
 doit 1balgré tout souhaiter le plus ardemment, c'est que la
@@ -1883,7 +1665,6 @@ grand progrès; il n'y aura sans doute pas non plus d'éclatante défaite. En to
 de France et de quelques fédérations sauveront l'honneur.
 Ensuite, toute obscurité dissipée, on pourra recoudre et
 fondre les morceaux du socialisme en une véritable
-unité. (1)
 Numéro 90, du samedi 3 mai 1902
 page 843 et suivantes
 Nous y gagnerons, espérons-le, d'être enfin débarrassés
@@ -1895,14 +1676,12 @@ réjouissons franchement, car il y a là tout profit pour
 (1) Si désireux que je sois de n'engager pas un grand débat sur
 une incidence, et de ne pas méler le commentaire au texte, on
 m''accordera la joie de relire cette phrase
-Ensuite,
 toute obscurité dissipée,
 on pourra recoudre
 et fondre $ ai
 : les morceaux £ F
 du socialisme
 en une véritable
-unité.
 Il y avait à Orléans un poète lauréat à qui nous devons ces vers:
 Je voudrais forger des idées
 Dans le fer, le marbre ou l'airain. ù
@@ -1910,7 +1689,6 @@ Comme on voit tout de suite que ce sacré Morizet est un ouvrier
 manuel, familier avec les métaphores venues des arts et métiers.
 Comme il a raison de mépriser Landry et Salomé.
 
-{ AU € MOUVEMENT SOCIALISTE
 notre cause. D'abord parce que l'affermissement du régime
 républicain est nécessaire en ce pays à toute marche accélérée dans la voie des réformes démocratiques et sociales.
 Ensuite parce que la situation respective des partis ne
@@ -1927,7 +1705,6 @@ Les socialistes rentreront à la Chambre sans que leur
 nombre se soit très fortement accru. Mais le nombre de
 voix qu'auront groupé leurs candidats marquera sans
 doute, lorsqu'on en aura fait le recensement exact, une
-assez forte augmentation. ‘
 Il faut regretter les échecs survenus. Mais surtout il est
 pénible que Guesde n'ait pu remporter, dans le Nord, une
 { victoire, d'ailleurs inespérée ; mais deux de ses meilleurs
@@ -1947,10 +1724,6 @@ Quant aux socialistes ministérialistes, j'exprimais dernièrement ici (r) le v�
 leurs élus. Mais comme par un arrêt de justice immanente,
 (1) Le Mouvement Socialiste, 12 avril 1902.
 
-LS dé PRET CR
-\ ‘ A W
-
-André Moriset
 disparaissent ou vont disparaître quelques-uns de ceux qui,
 dans les Congrès, n'ont échappé que par hasard à l'exécution que méritaient leurs exploits. Jaurès et Briand sont
 élus, Dans plusieurs circonscriptions de Paris' et de la
@@ -1976,14 +1749,11 @@ ne portait pas seulement sur les articles de Moriset,
 mais sur la conduite politique de tout le Mouvement;
 si un autre signataire nous écrit, nous reproduirons les
 fragments intéressants des articles publiés sous sa
-signature.
 Si Lagardelle intervient au débat, je répondrai sur le
-fond.
 Pour que nos abonnés s'y reconnaissent, on me permettra de rappeler en bref quelle est ma thèse
 Les politiciens qui sont, tout à fait nombreux, dans
 l'Unité Socialiste Révolutionnaire ne valent pas mieux
 
-EXE AU ( MOUVEMENT SOCIALISTE »
 . que les politiciens qui sont, très nombreux, dans l'Unité
 Jfédérative : les honnêtes gens qui sont dans l'Unité
 fédérative — il y en a plusieurs dans l'État-Major et
@@ -1998,7 +1768,6 @@ les guesdo-blanquistes font des alliances, et ne l'avouent
 pas souvent.
 J'ai reçu le 31 mai la lettre suivante, même en-tête que
 la première
-FICHE RECTIFICATIVE
 à joindre au dossier du Mouvement socialiste
 | {Lettre de l'inculpé Morizset) i
 Ledit inculpé prie l'Incorruptible de joindre cette reetification à sa précédente lettre lorsquil dressera son acte.
@@ -2006,11 +1775,8 @@ d'accusation. I1 le prie en même temps de croire que, le
 jour où partira la charrette, le seul souci qu'il emportera,
 récidiviste impénitent, en y montant avec ses camarades,
 sera d'avoir obscurci un instant l'inaltérable pureté d'une
-belle âme...
-.…ême chef d'accusation
 « Nous y avons lu tous les huit jours avec stupeur que
 M. Zévaës tous les jours sauvait l'honneur du socialisme
-français. »
 = Le nom du citoyen Zévaëès est encore une fois mentionné
 dans le numéro du 17 mai. C'est la seconde!! !
 L'auteur d'une chronique sur les élections a cru devoir
@@ -2059,12 +1825,10 @@ témoignages qui viennent ci-après, ainsi que tous les
 documents et tous les témoignages qui pourront étre
 produits ultérieurement dans les Cahiers ou ailleurs.
 
-à CHOSES VUES. — DOCUMENTS
 Jeudi 10 avril. — J'entends à la Monnaie le Crépuscule des Dieux. Après le premier acte, souper aux Mille
 Colonnes. Puis je rentre dans le théâtre et m'arrête à
 causer devant le contrôle avec un wagnérien. Au moment où nous allons monter, des cris éclatent sur la
 place. Le wagnérien regagne son perchoir et je me
-risque dehors.
 { Une soixantaine de manifestants sont groupés devant
 / la Grande Poste, sifilant et braillant. Je distingue dans
 le nombre beaucoup de gamins. Cinq ou six agents, les
@@ -2080,13 +1844,9 @@ boie tout à côté des Mille Colonnes. Un passant me
 
 — Ils ont démoli la vitrine à coups de revolver pour
 & forcer le patron à fermer boutique. n
-() Fiacres bruxellois. N
-
-René Salomé
 
 Je vais constater les dégâts : la vitrine est trouée de
 cinq trous; les glaces des Mille Colonnes ont également
-recu deux balles.
 
 L'affolement règne parmi les badauds, et les esprits
 battent la campagne.
@@ -2098,7 +1858,6 @@ de feu.
 — Beaucoup plus, corrigent d'autres badauds.
 
 Dans la même soirée du 10 avril, le fait suivant se
-produisit aux galeries Saint-Hubert.
 
 Ce n'est pas moi qui parle, c'est un honorable israélite, voyageur de commerce.
 — Je passais aux Galeries, vers dix heures du soir,
@@ -2120,12 +1879,10 @@ d'autres vitrines furent brisées, l'Institut Saint Louis
 (collège des Jésuites) fut lapidé, des refrains obscènes et
 des cris ignobles furent jetés au vent, deux agents
 
-LARAIRe COURRIER DE BELGIQUE
 roués de coups, les députés catholiques Woeste et Hoyois
 menacés dans leurs demeures, par ces mêmes groupes ou
 par d'autres semblablement composés, cependant que
 des manifestants pacifiques se promenaient le long des
-boulevards.
 
 Il résulta de ces faits la confusion la plus fâcheuse; le bruit courut le lendemain que les manifestants
 avaient tout saccagé sur leur passage : les petits bourgeois et les boutiquiers, favorables auparavant à la
@@ -2152,7 +1909,6 @@ aurait des bagarres aux environs de la Maison du
 
 4 Peuple. Le lendemain, un père me dit
 — Mon ils était de garde, hier soir; il a couché en
-René Salomé
 joue les gens entassés dans la Maison du Peuple. Il
 + aurait tiré si l'on avait commandé le feu.
 Le père et le fils en question sont catholiques. J'ai
@@ -2198,7 +1954,6 @@ les rues étroites qui y débouchent: peu de femmes,
 beaucoup de jeunes ouvriers en veston et en melon,
 rien que des gens du quartier parlant cet affreux flamand du centre de Bruxelles, qui foisonne de mots %
 wallons, français et espagnols à préfixes et suflixes
-germaniques.
 (Les ouvriers des faubourgs restent dans les faubourgs. Ici chaque faubourg est une commune indé-
 : pendante. Quelques faubourgs pauvres ont une Maison
 du Peuple. Les habitués de la grande Maison du Peuple
@@ -2210,13 +1965,7 @@ Mais ce n'est rien encore.
 à Je descends en ville. Beaucoup de monde sur le boulevard Anspach, maïs rien que des bourgeois qui commentent avec placidité les faits de la veille. La Bourse
 est pleine de gardes civiques qui fument leurs pipes,
 jouent aux cartes ou mangent des pistolets (1) au
-! jambon.
-_ÉTCMRENEE
-HAL () Petits pains bruxellois.
-RUN Gr
-AA HIS iv
 
-René Salomé
 Je remonte vers la Maison du Peuple. Maintenant la
 : physionomie du quartier est tout autre. Comme j'arrive
 place de l'Empereur, une horde fuyante de gamins dé-
@@ -2258,7 +2007,6 @@ Il semble donc que M. De Mot, bourgmestre de
 Bruxelles, chef de la police urbaine, (1) sénateur libéral, ayant à sa disposition une milice citoyenne, composée d'êtres généralement sensés et calmes (ne pas
 confondre Bruxelles avec Louvain) ait préféré, le ven_ dredi 11, le samedi 12 (et aussile dimanche 13) opposer aux manifestants et aux curieux ces animaux féroces Fe
 qui (j'en ai pu juger de visu), avaient à peine l'appa- À
-rence d'êtres humains. Na
 Dimanche 13. — Mon ami le professeur d'histoire
 me donne une brochure intitulée Constitution revisée de à
 . la Belgique, publiée à Bruxelles par la Société belge “
@@ -2268,14 +2016,12 @@ me donne une brochure intitulée Constitution revisée de à
 . Un vote est attribué aux citoyens âgés de vingt-cinq ans
 () L'état de siège n'ayant pas été déclaré, M. De Mot est seul resté
 chargé d'organiser les services d'ordre pendant toute la durée des UE
-troubles.
 (2) L'article 47 ancien était conçu en ces termes
 AS Article 47. — La Chambre des représentants se compose de
 . députés élus directement par les citoyens payant le cèns déterminé
 par la loi électorale, lequel ne peut excéder 100 florins d'impôts
 directs, ni être au-dessous de 20 florins. »
 
-René Salomé
 . es . + . a accomplis, domiciliés depuis un an au moins dans la même
 commune et qui ne se trouvent pas dans l'un des cas
 d'exclusion prévus par la loi.
@@ -2311,9 +2057,7 @@ sans distinction entre les établissements publics ou privés.
 (1) On nomme ici enseignement moyen ce que nous nommons en
 France enseignement secondaire. On distingue l'enseignement
 moyen du degré supérieur (enseignement de nos Lycées et Collèges) et l'enseignement moyen du degré inférieur (enseignement
-commercial, agricole, industriel, etc...)
 
-COURRIER DE BELGIQUE
 B.— Remplir ou avoir rempli une fonction publique, ge
 occuper ou avoir occupé une position, exercer ou avoir
 exercé une profession privée qui impliquent la présomption que le titulaire possède au moins les connaissances de l'enseignement moyen du degré supérieur. La
@@ -2347,7 +2091,6 @@ _ mieux depuis qu'on les emploie seuls. Ils forment çà et
 
 _ là des cordons pour barrer les rues. On s'approche à 65 IV.
 
-: René Salomé
 d'eux pour leur parler, Des dames de tout âge et de toute mine, qui demeurent dans la zone gardée, franchissent le cordon après des pourparlers pleins de complications : un garde, plus ou moins empressé selon
 l'âge et la mine, reconduit chaque dame à son domicile. Aucun empressement pour reconduire les représentants de l'autre sexe.
 Un professeur de langues germaniques m'a dit ce
@@ -2360,25 +2103,19 @@ quatre francs quatre-vingt-quinze. Dévoués au gouvernement catholique, les fon
 les pluraux des électeurs qui payent moins de cinq
 \ francs, mais qui sont bors catholiques. Sans ces fraudes
 FE électorales, M. Béthune (1) ne serait pas député
-d'Alost.
 Mardi 15.— Je retrouve dans mes notes certains
 chiffres que M. Vandervelde cite parfois dans les u
 meetings. Les voici
 Il y aurait en Belgique 930.000 électeurs simples et
 
 473.487 électeurs pluraux disposant de 1.300.000 suf-
-{ frages.
 
 Aux Marolles (faubourg de Bruxelles) 100 ouvriers
-auraient 107 votes législatifs; 100 non ouvriers en
-auraient 167.
 (1) Il fut prouvé aux avant-dernières élections, en 1900, que °
 M. le baron Béthune, échevin d'Alost, avait falsifié les listes électorales. Aucune loi belge n'atteint ce délit. ‘ Li
 
-AR mn Ne, RACE à RQ 514
 Li ! COURRIER DE BELGIQUE bé
 A la Hulpe (Brabant) et à Haut-Fay, 100 ouvriers À
-auraient 113 Voix, 100 non ouvriers en auraient 265.
 Du mercredi 16 au vendredi 18. — Avant-hier, hier à
 et aujourd'hui, on a gardé autour des Chambres, durant les séances, une longue et large zone dite zone à
 neutre (une invention de M. De Mot), au grand dam des h,
@@ -2404,10 +2141,7 @@ D''aucuns lui reprochent ces changements d'uniforme.
 garde civique? Ça ne lui aurait pas coûté beaucoup, F
 __ puisqu'il a l'habitude, et ça aurait augmenté le nombre a
 : des bons gardes civiques. Il n'y a jamais trop de bons
-. ee Sani TN ns
 ee (1) Les deux autres furent M. Deswarte, avocat, et M. Spaak,
-i avocat. \
-René Salomé
 gardes civiques pour assagir les mauyais gardes civiques et surtout ceux qui ne sont ni bons ni mauvais.
 Finie, la séance du 18, si fiévreusement attendue,
 malgré la certitude où l'on était du résultat. Le bloc
@@ -2415,10 +2149,8 @@ catholique repousse la revision. Avant le vote, trois
 représentants, tous trois socialistes, ont parlé pour le
 
 S. U. et pour la revision. Ce sont MM. Smeets et Demblon, députés de Liège, et M. Anseele, député de Gand.
-René Salomé
 
 Nous reproduirons in extenso le discours de
-M. Anseele.
 
 Salomé m'écrivait le 3 juin de Bruxelles :
 Les événements d'avril dernier se sont terminés si
@@ -2434,7 +2166,6 @@ qu'il ait agi bêtement et lourdement, ou qu'il ait laissé
 agir bêtement ou lourdement des avant-gardes brouillonnes, n'a pas manqué en toute cette affaire d'intentions bonnes et généreuses. — Et pour donner aux lecteurs des Cahiers un aperçu de ce qu'a fait, fait et peut
 faire le gouvernement catholique, je te communiquerai,
 quand je serai de retour en France, fin juillet, un certain nombre de faits et de documents sur l'état de l'enseignement primaireen Belgique. vi
-René Salomé Ë
 
 COURRIER DE BELGIQUE hf
 ' De même que Jean Deck, nous ayant envoyé un premier courrier de Finlande, nous prépare tout un cahier
