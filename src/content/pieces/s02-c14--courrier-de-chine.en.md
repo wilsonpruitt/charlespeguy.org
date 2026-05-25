@@ -5,11 +5,7 @@ lang: en
 title: Courrier de Chine
 author: lionel-landry
 isAvertissement: false
-wordCount: 25
+wordCount: 0
+translationNotes: "FR source recovered 2026-05-25 (extracted from conflated s02-c14--expulsion-de-nicolas-paouli OCR). EN translation pending."
 ---
 
-## Dispatches from China
-
-*Lionel Landry*
-
-[This piece, a continuation from the fifth cahier of the second series, is not present in the source text.]
