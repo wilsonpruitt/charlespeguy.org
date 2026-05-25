@@ -9,7 +9,6 @@
 - **NO_EN**: 8
 - **AUTHOR_MISMATCH**: 4
 - **LOW_PROSE_FR**: 2
-- **EMPTY_FR**: 1
 
 
 ## AUTHOR_MISMATCH
@@ -88,10 +87,6 @@
 - s08-c02--l-abdication: L'abdication  *romain-rolland*
 - s10-c04--vin-de-champagne: Vin de Champagne  *pierre-hamp*
 - s10-c09--dans-la-maison-1: Dans la maison. 1  *romain-rolland*
-
-## EMPTY_FR
-
-- s03-c02--les-universites-populaires: Les Universités Populaires  *charles-guieysse*
 
 ## LOW_PROSE_EN
 
