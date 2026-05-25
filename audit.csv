@@ -218,7 +218,7 @@ s11-c02,le-portique,Le portique,gabriel-trarieux,1416,0.83,2,0.67,
 s11-c03,l-homme-en-proie-aux-enfants,L'homme en proie aux enfants,albert-thierry,2454,0.85,2,0.67,
 s11-c04,la-carte-au-lisere-vert,La carte au liseré vert,georges-delahache,5439,0.92,676,0.77,
 s11-c05,israel-zangwill,Israël Zangwill,andre-spire,2022,0.93,313,0.59,
-s11-c06,le-mystere-de-la-charite-de-jeanne-d-arc,Le mystère de la charité de Jeanne d'Arc,charles-peguy,0,,0,,COM_MISSING|NO_FR|NO_EN
+s11-c06,le-mystere-de-la-charite-de-jeanne-d-arc,Le mystère de la charité de Jeanne d'Arc,charles-peguy,4438,0.82,0,,COM_MISSING|NO_EN
 s11-c07,jean-christophe,Jean-Christophe. III. La fin du voyage. I. Les amies. 1,romain-rolland,2902,0.94,476,0.83,
 s11-c08,jean-christophe,Jean-Christophe. III. La fin du voyage. I. Les amies. 2,romain-rolland,3027,0.95,354,0.81,
 s11-c09,mes-cahiers-rouges,Mes cahiers rouges,maxime-vuillaume,3247,0.89,1,0.25,LOW_PROSE_EN
@@ -252,7 +252,7 @@ s13-c08,dostoievski,Dostoïevski,andre-suares,2249,0.93,298,0.87,COM_PLACEHOLDER
 s13-c09,un-cas-de-conscience,Un cas de conscience,paul-milliet,2,0.50,598,0.76,COM_PLACEHOLDER
 s13-c10,l-ami-desabuse,L'ami désabusé,joseph-melon,5182,0.88,2,0.67,COM_PLACEHOLDER
 s13-c11,deux-drames,Mes cahiers rouges. VIII. Deux drames,maxime-vuillaume,3826,0.86,792,0.58,COM_PLACEHOLDER
-s13-c12,le-mystere-des-saints-innocents,Le mystère des saints Innocents,charles-peguy,0,,0,,COM_MISSING|NO_FR|NO_EN
+s13-c12,le-mystere-des-saints-innocents,Le mystère des saints Innocents,charles-peguy,4189,0.77,0,,COM_MISSING|NO_EN
 s14-c01,de-napoleon,De Napoléon,andre-suares,848,0.91,80,0.70,
 s14-c02,jean-christophe-la-nouvelle-journee-1,Jean-Christophe. La nouvelle journée. 1,romain-rolland,3654,0.93,785,0.74,COM_PLACEHOLDER
 s14-c03,jean-christophe-la-nouvelle-journee-2,Jean-Christophe. La nouvelle journée. 2,romain-rolland,58,0.66,2,1.00,

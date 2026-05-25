@@ -6,8 +6,8 @@
 - **COM_MISSING**: 20
 - **EMPTY_FR**: 19
 - **LOW_PROSE_EN**: 17
-- **NO_FR**: 17
 - **EMPTY_EN**: 15
+- **NO_FR**: 15
 - **NO_EN**: 12
 - **AUTHOR_MISMATCH**: 4
 - **LOW_PROSE_FR**: 2
@@ -163,7 +163,6 @@
 ## NO_FR
 
 - s09-c03--the-socialist-party-and-the-trade-unions: The Socialist Party and the Trade Unions  *etienne-buisson*
-- s11-c06--le-mystere-de-la-charite-de-jeanne-d-arc: Le mystère de la charité de Jeanne d'Arc  *charles-peguy*
 - s11-c13--the-milliets-i-up-to-the-threshold-of-exile: The Milliets. I. Up to the Threshold of Exile  *paul-milliet*
 - s11-c14--the-milliets-ii-farewells: The Milliets. II. Farewells  *paul-milliet*
 - s12-c03--my-first-testament: My First Testament  *julien-benda*
@@ -172,7 +171,6 @@
 - s12-c10--oeuvres-choisies-postface: Œuvres choisies (postface)  *charles-peguy*
 - s13-c02--a-new-theologian-m-fernand-laudet: A New Theologian, M. Fernand Laudet  *charles-peguy*
 - s13-c07--the-milliets-x-the-commune-and-the-second-siege-of-paris: The Milliets. X. The Commune and the Second Siege of Paris  *paul-milliet*
-- s13-c12--le-mystere-des-saints-innocents: Le mystère des saints Innocents  *charles-peguy*
 - s14-c08--les-chants-de-l-ame-reveillee: Les chants de l'âme réveillée  *rene-salome*
 - s14-c11--mes-cahiers-rouges: Mes cahiers rouges  *maxime-vuillaume*
 - s14-c11--ix: IX  *maxime-vuillaume*

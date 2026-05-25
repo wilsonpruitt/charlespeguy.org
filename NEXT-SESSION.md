@@ -1,14 +1,14 @@
-# Next-session brief — Repair the 44 empty/missing FR cahier pieces
+# Next-session brief — Repair remaining empty/missing FR cahier pieces
 
-Drafted 2026-05-25 after the audit pass. Drop this file into a fresh `/clear`'d Claude Code session inside `~/charlespeguy.org/` to pick up the work.
+Drafted 2026-05-25; consolidated 2026-05-25 PM after Jean-Christophe pass. Drop this file into a fresh `/clear`'d Claude Code session inside `~/charlespeguy.org/` to pick up the work.
 
 ---
 
 ## Context (read first)
 
-The site went live 2026-05-24 at https://charlespeguy-org.vercel.app (custom domain DNS pending). 1,716 static pages, fully bilingual.
+The site went live 2026-05-24 at https://charlespeguy-org.vercel.app (custom domain DNS pending). 1,684 static pages after Jean-Christophe consolidation, fully bilingual.
 
-The previous brief (`NEXT-SESSION.md` before this rewrite) framed the problem as "11 cahiers of Jean-Christophe need vision OCR." That was wrong. **The full audit found 86 pieces across 76 cahiers with data problems**, not 11.
+The original brief framed the problem as "11 cahiers of Jean-Christophe need vision OCR." That was the wrong scope. The full audit found ~86 pieces with data problems. **Then on 2026-05-25 PM we discovered 8 of the 9 Jean-Christophe gaps were not real OCR work** — each cahier already had a complete `--jean-christophe` umbrella piece next to an empty installment-named stub. Dropping the duplicates (commit `15ee939`) collapsed Round 1 down to a single real OCR: **s10-c09 *Dans la maison. 1***.
 
 Read these in order:
 1. This file.
@@ -29,11 +29,13 @@ Read these in order:
 - `scripts/audit-pieces.py` — emits `audit.csv` + `audit.md`. Re-run after each repair to confirm progress.
 - 174,158 lines of OCR noise removed; build passes (8m 25s, 1,716 pages).
 
-## This session's job: 44 EMPTY_FR + NO_FR pieces
+## This session's job: remaining EMPTY_FR + NO_FR pieces
 
-Concretely, the highest-priority work is:
+Post-consolidation audit: **19 EMPTY_FR + 17 NO_FR**. The Jean-Christophe entries below (s05-c10 le-matin, s06-c08 l-adolescent, s08-c04/06/09 la-revolte-*, s10-c10 dans-la-maison-*) were already resolved via the umbrella-piece consolidation — they should **not** appear in a fresh `audit.csv`. The only Jean-Christophe cahier that still needs real OCR is **s10-c09 *Dans la maison. 1*** (umbrella has only 925 words of Péguy's editorial preface).
 
-### 27 EMPTY_FR (file exists, body is pure garbage — denoise produced 0 prose)
+Run `python3 scripts/audit-pieces.py` first to confirm what's actually still flagged before starting any OCR.
+
+### EMPTY_FR (file exists, body is pure garbage — denoise produced 0 prose)
 
 | Cahier+piece | Title | Author |
 |---|---|---|
@@ -92,10 +94,10 @@ Mostly Milliet/Rolland/Péguy installments where `.com` only ever had an EN tran
 
 ## Pace + budget
 
-The 9 cahiers in last week's wave took ~5 hours wall-clock with 5 parallel agents. 44 cahiers is roughly **4–6 full sessions** at that pace. Prioritize:
+Post-Jean-Christophe-consolidation, ~3-4 sessions remaining. Prioritize:
 
-1. **Round 1** — Jean-Christophe gaps (s05-c10, s06-c08, s08-c04/06/09, s10-c09/10, s11-c07/08): the work most likely to be visited. **9 cahiers.**
-2. **Round 2** — Péguy's own missing prose (s11-c06 Mystère de Jeanne d'Arc, s13-c12 Saints Innocents, s12-c10 Œuvres choisies postface): canonical Péguy. **3 cahiers.**
+1. **Round 1** — ~~Jean-Christophe gaps~~ DONE via consolidation, except **s10-c09 *Dans la maison. 1*** (real OCR still needed). **1 cahier.**
+2. **Round 2** — Péguy's own missing prose (s11-c06 Mystère de Jeanne d'Arc, s13-c12 Saints Innocents, s12-c10 Œuvres choisies postface): canonical Péguy. **3 cahiers.** *Pull from Wikisource, not vision OCR — both Mystères are on fr.wikisource.org.*
 3. **Round 3** — Vuillaume *Mes cahiers rouges* (s10-c11, s11-c09, s14-c11 ×3): 1871 Commune memoir, a coherent body. **5 cahiers.**
 4. **Round 4** — Milliet missing FR (s11-c13, s11-c14, s12-c10 les-milliet, s13-c07): bilingual completion. **4 cahiers.**
 5. **Round 5** — orphans (Allier, Garnier sonnets, Salomé chants, Spire, Avenard, Hamp, Porché, Benda, Delahache exode, Zangwill, Tolstoy 1905, Jaurès Études Socialistes, etc.). **~20 cahiers.**
