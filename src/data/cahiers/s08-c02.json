@@ -1,0 +1,24 @@
+{
+  "slug": "s08-c02",
+  "series": 8,
+  "issue": 2,
+  "label": "VIII-2",
+  "titleFr": "Deuxième cahier de la huitième série",
+  "sourceUrl": "https://archive.org/stream/s8cahiersdelaquinz01pg#page/n80/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-vie-de-michel-ange",
+      "titleFr": "La vie de Michel-Ange",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    },
+    {
+      "slug": "l-abdication",
+      "titleFr": "L'abdication",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1906-10-20"
+}

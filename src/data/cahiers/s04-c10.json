@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c10",
+  "series": 4,
+  "issue": 10,
+  "label": "IV-10",
+  "titleFr": "Dixième cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz10pg#page/n6/mode/1up",
+  "pieces": [
+    {
+      "slug": "vie-des-hommes-illustres-beethoven",
+      "titleFr": "Vie des hommes illustres, Beethoven",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-02-20"
+}

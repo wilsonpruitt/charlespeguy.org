@@ -1,0 +1,18 @@
+{
+  "slug": "s12-c05",
+  "series": 12,
+  "issue": 5,
+  "label": "XII-5",
+  "titleFr": "Cinquième cahier de la douzième série",
+  "sourceUrl": "https://archive.org/stream/s12cahiersdelaqui04pg#page/n124/mode/1up",
+  "pieces": [
+    {
+      "slug": "dialogue-d-eleuthere",
+      "titleFr": "Dialogue d'Eleuthère",
+      "author": "julien-benda",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1910-12-05"
+}

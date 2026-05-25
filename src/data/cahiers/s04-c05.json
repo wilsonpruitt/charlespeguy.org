@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c05",
+  "series": 4,
+  "issue": 5,
+  "label": "IV-5",
+  "titleFr": "Cinquième cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz05pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "textes-et-commentaires-emile-zola",
+      "titleFr": "Textes et commentaires. Emile Zola",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1902-12-05"
+}

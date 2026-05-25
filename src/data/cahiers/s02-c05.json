@@ -1,0 +1,30 @@
+{
+  "slug": "s02-c05",
+  "series": 2,
+  "issue": 5,
+  "label": "II-5",
+  "titleFr": "Cinquième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz05pg#page/n364/mode/1up",
+  "pieces": [
+    {
+      "slug": "pour-moi",
+      "titleFr": "Pour moi",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "contribution-aux-preuves",
+      "titleFr": "Contribution aux Preuves",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "courrier-de-chine",
+      "titleFr": "Courrier de Chine",
+      "author": "lionel-landry",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-12-05"
+}

@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c01",
+  "series": 5,
+  "issue": 1,
+  "label": "V-1",
+  "titleFr": "Premier cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "les-massacres-de-kichinef",
+      "titleFr": "Les massacres de Kichinef",
+      "author": "henri-dagan",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-10-05"
+}

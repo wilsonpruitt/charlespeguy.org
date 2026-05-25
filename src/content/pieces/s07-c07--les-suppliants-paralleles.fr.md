@@ -1,0 +1,3867 @@
+---
+cahier: s07-c07
+pieceSlug: les-suppliants-paralleles
+lang: fr
+title: Les suppliants parallèles
+author: charles-peguy
+isAvertissement: false
+wordCount: 32282
+---
+
+/ SEPTIÈME CAHIER, CAHIER DE NOËL
+NS DE LA SEPTIÈME SÉRIE
+FRANÇOIS PORCHÉ
+CAHIERS DE LA QUINZAINE
+paraissant vingt fois par an
+PARIS
+8, rue de la Sorbonne, au rez-de-chaussée
+
+| 3
+7 # #
+*
+| \
+“2 |
+2 :
+3 b |
+ci |
+k 1 î
+d |
+|
+> |
+- 1
+Le
+
+RS Ce RP AU
+gp 23 LE Ont ÉES SE PEER CUT ESS (oh À LR QE : RTL ARE Ed
+a À DNA A ed Port Sue « 4 NEA RS POP
+ÉARRRO en OP ae QUE RU RES * SUEN LEA
+ER GERE : : ‘ d hr
+A DES À LUE . 4.7
+es PA nus 5 fa ÿ Ÿ 4 : “ie Le
+ER RNA er AUS x TS
+\ he ' NN
+1 AT OPA Ed i.ÈNCSS
+OPEN VE RER
+LS RATER nS d SE 3
+D : | } * nl F b "
+D, HAS
+‘14% Bi 4 HU: NE:
+F STE TON PRIE qu NP VESTE NES ER
+
+je Nous avons publié dans nos éditions antérieures et |
+dans nos cinq premières séries, 1900-1904, un Si E
+y grand nombre de documents, de textes formant dos- À
+| siers, de renseignements et de commentaires; — un 4
+RES si grand nombre de cahiers de lettres; — nouvelles, 1
+k romans, drames, dialogues, poèmes et contes; — un à
+si grand nombre de cahiers d'histoire et de philoso- 4
+
+| phie ; et ces documents, renseignements, textes, dos- 4
+
+; siers et commentaires, ces cahiers de lettres, d'histoire = SI
+et de philosophie étaient si considérables que nous ne Ë
+
+pouvons pas songer à en donner ici l'énoncé méme le h |
+
+plus succinct; pour savoir ce qui a paru dans les cinq L|
+premières séries des cahiers, il suffit d'envoyer un man- À
+
+| dat de cinq francs à M. André Bourgeois, administra- h |
+
+teur des cahiers, 8, rue de la Sorbonne, rez-de-chaussée, È
+
+Paris, cinquième arrondissement ; on recevra en retour D |
+
+Des le catalogue analytique sommaire, 1900-1904, de nos L:|
+
+cinq premières séries. h |
+
+Ce catalogue a été justement établi pour donner, 1
+autant qu'il se pouvait, une imagre en bref, un raccourci, 1
+une idée, abrégée, mais complète, de nos éditions anté- N
+rieures et de nos cinq premières séries ; tout y est classé 4
+dans l'ordre ; il suffit de le lire pour trouver, à leur %
+
+place, les références demandées. 4
+
+Ce catalogue, in-18 grand jésus, forme un cahier 1 |
+
+très épais de XI1+-408 pages très denses, marqué cinq À
+
+A me
+
+Hate A SE ii, gd L AT nee LAN I dr É
+. francs ; ce cahier comptait comme premier cahier de la |
+…. sixième série et nos abonnés l'ont reçu à sa date, le A
+É 2 octobre 1904, comme premier cahier de la sixième (à
+Ë série; toute personne qui jusqu'au 31 décembre 1905 ‘
+À s'abonne rétrospectivement à la sixième série le reçoit, ;
+À par le fait même de son abonnement, en tête de la série ;
+g nous l'envoyons contre un mandat de cinq francs à toute
+1 personne qui nous en fait la demande.
+$
+à Pour amor cer tout travail que l'on aurait à commencer
+4 dans notre premier catalogue analytique sommaire, con4 sulter le petit index alphabétique provisoire que nous
+l avons établi de ce catalogue analytique sommaire.
+| Ce petit index alphabétique provisoire, in-18 grand
+s Jésus, forme un cahier très maniable de XII + 60 pages
+| très claires, marqué un franc; ce cahier comptait
+L comme premier cahier de la septième série et nos ñ
+% abonnés l'ont reçu à sa date, le premier octobre 1905,
+a comme premier cahier de la septième série; toute
+4 personne qui s'abonne à la septième série, qui est la
+} série en cours, le reçoit, par le fait même de son abonne0 ment, en tête de la série; nous l'envoyons contre un |
+à mandat de un franc à toute personne qui nous en fait
+la demande.
+L
+3 Pour la sixième série, année ouvrière 1904-1905, et |
+en attendant que paraisse le catalogue analytique som- =
+maire de nos deuxièmes cinq séries, 1904-1909, On
+J peut consulter, — provisoirement, — la petite table
+à analytique très sommaire que nous avons publiée en fin
+A de ce cahier index.
+
+L s |
+
+f “ je A À G y [a
+HAT : AVE en LRO a ACRUES DAS URI PR TANTET AFTER
++ US 14 Ç PS NE M
+LA ATEN ÿ? Ë i "1
+‘al ETS | ci
+: T5 S Le NU
+x HER ns Ne : |
+De ET ; d
+ARE tn :
+LR j 4
+CN 4
+{ ‘Ea |
+ARENC un , À
+« PT ENESES
++ LUCE |
+$}1 RS ‘4
+FEES EDEN 1 .
+
+nd ee AA LA Er Mere ts, Re LU a PA Ne
+
+J'TE sie d da RD RP Le TER CANON
+
+RAP ARE PR SUN VAE ps CAC LEP ASS FUREUR 1, FAT
+‘proie LR EREE RES “US ARE
+
+M Re UE LT 4 17 VERS
+
+L'RUISe VEINES : 718 PIN NERRRS
+
+Le ANNEE { k an AU 4
+
+16 160 RAS TUE int-P ne ï SH C
+
+UC RE : A
+LU SPP en # AA
+
+4: LAS hs! È + LEE
+2 RON EU: | ÿ k VE
+
+LE Met à ! i À “: \40
+
+He NAS MATE Ÿ { 1 {AGE
+nf en Tu LÉO à 4 à : Û Du
+: MINCE : ; LA SRESS
+
+LRU ‘ ÿ DA
+
+0 ‘ | RES TA
+2 SANS Ÿ à RO.
+27 MEN } LL LUYOTES
+A CNE | 110 re 1
+
+Pa La 28 TON DEA b BON RE MAX A He US
+
+DFA AUTRE LE ‘ A ROM ONE
+18 DER à: 5 ST dre + L |
+; DARE à 6 (RG AR HAUTE
+FAURE TRE À dé L'01248
+FL ES l : 104
+Ce gas A +. Ci
+jy: (HSE al
+RONA 7 <
+Rat *
+IRON
+VS D
+RAC {; ( k
+ETES RER à
+sk tu q
+RATER “4 |
+SLI “4
+‘5 5 | +
+FT MA : pee
+LATE EN
+LE REE $ +0
++ Heure { ÿ ‘2
+HAE: DCR
+: 7 RSC à {SCI EAN 4
+NE f \ ‘ FERA ic4 "T4 3 ANNEES
+UN UE Ô ui A LA UE
+à, NES SPATIAL À 42 ET 2 CERTES
+
+HAN M'ILTSS (? mes JET Has + à na D Las a ES EU, AA 0 |
+IE USM Si 3 ie ii Lpn (NET
+AC: DRE:
+PA OPEN , : RE
+NRA | À 2 FE
+
+sa Er à el
+
+FETES 3 É Rù
+
+71 PO DRE.
+
+LA EE Le À \
+néres AR: 4
+ANDRE \ 4
+JS HÉURIES x tu
+AR PAUSE 3 pe
+Re à RM.
+
+Most EX Vas AT y “ka 1
+COTE Ne 1 |
+CHAOS i 4 LUE
+
+1 SUR tif N'oti
+; 1% Lx À LATE Ie
+LKR ; 7 RAM
+
+RER i « LUE Re TER
+
+AD AMEN "4 1 / 4 | VER
+
+CHARLES PÉGUY
+LES SUPPLIANTS PARALLÈLES
+dy LU
+347 o |!”
+à |
+a: les suppliants. — 1.
+
+NS RÉ RA \ ] res. 2 VRDDOIREL TELE NIUE RERNREE
+LE REUER Y « T0. Rien :
+É "108 PE ñ | LE PETER
+RG 1 £ CAO MONTRE
+MALE » ï ' } "42 RON
+EUFATER Ÿ: ; H520
+JE 1 AE
+NY RES O1
+L'RACRANERA 2%
+% ÿ #3 APR i n “ i fl
+1 FHRPSR . 2
+LT S : 78
+Re ‘4
+:'L'ARRSSS NS
+* PT : k . #
+0 c« é
+ET % ca #*
+58 É Dr:
+(17 MLD 468
+FILME Les AT
+DRE LS ru
+LT, + mA |
+rtf . ; de |
+M + à STE |
+ARTE : RS |
+44 4 Pres + |
+FRE s "AE |
+Ki 200 + PC EALERS | ”
+DES: à FLE |
+1, EVER - f Ve COR {
+
+_ Cxarces Péeuy !
+LES SUPPLIANTS PARALLELES
+Pétition des ouvriers au tsar, dans le cahier d'Étienne
+Avenard, — le 22 janvier nouveau style, — cinquième
+cahier de cette septième série :
+. ‘  Sire! Nous, ouvriers de la ville de Saint-Pétersbourg, nos
+femmes, nos enfants et nos vieux parents invalides, sommes
+venus vers toi, Sire, chercher la justice et la protection.
+Nous sommes tombés dans la misère: on nous opprime, on
+nous charge d'un travail écrasant, on nous insulte; on
+ne reconnaît pas en nous des hommes, on nous traite
+comme des esclaves qui doivent supporter patiemment leur
+amer et triste sort et se taire!
+ot ixérar, les suppliants ; il y avait déjà dans Sophocle,
+Œdipe Roi, 14 et suivants:
+IEPEYY.
+AV, & xparbvwv Oiôlnouc yupas UT,
+dp&s uèv nus Qhixor rpoofuela ;
+Bwpoïor rois ooïs où uèv oùdérw paxpèv !
+ntéchar ofévovtes, où dÈ obv yhpa Bapeïs,
+iepebc yo uèv Znvos, oi à èr” néwv ?
+Aextot: T0 O' &AXO pÙhov éEecteupévoy
+dyopaior Jaxei, mods te [laAddos dinhoïc
+vaois, èn 'Iounvoÿ te uavreia oxodt.
+IT
+
+RAA REUEE _ Charles Péguy LIFE
+Fo
+LE PRÊTRE ve).
+Oui, (eh bien) 6 Œdipe, maître de mon pays, tu nous
+Ven vois, de quel âge, nous sommes prosternés au pied de tes ‘à
+_  autels: les uns n'ayant pas encore la force de voler une
+À
+longue traite, les autres lourds de vieillesse, et moi à |
+FN prêtre de Zeus, et ceux-ci choisis parmi les jeunes gens;
+gr et le reste du peuple, ceint de couronnes, est assis dans
+les places, et au double temple de Pallas, et sur la
+ne cendre prophétique de l'Ismènos. :
+| À 4
+A Pétition des ouvriers au tsar, en continuant : 1
+à
+Et nous l'avons supporté. Mais on nous pousse de plusen
+plus dans l'abime de la misère, de l'absence du droit, de 4
+l'ignorance ; le despotisme et l'arbitraire nous écrasent et ne!
+nous étouffons. Nous sommes à bout de forces, Sire! La ‘
+limite de la patience est dépassée. Nous sommes arrivés y
+à ce moment terrible, où mieux vaut la mort que la prolon- É
+gation de souffrances insupportables. Et alors nous avons h
+abandonné le travail et nous avons déclaré à nos patrons ;
+rer que nous ne recommencerons pas à travailler tant qu'ils (
+D n'auront pas satisfait nos demandes. ù
+ie: Sophocle, en continuant : %
+É Id yèp, donsp xadrôs elsopäc, &yav à
+ai H0n gaheder, xavarovoiout xépa
+! Bul@iv Et' oùy ola ze potviou oéhov, 1
+oivouca uèv xéAuEtv éyxéprots yovos, j
+| 5 gbivouoa d' àyéhais Pouvduos tÜxoust te (
+< &yôvots yuvauxr@v Î
+Car la cité,comme tu le vois là (et) toi-même, roule ‘4
+; à présent d'un violent roulis, désormais incapable de 4 |
+12 : Re |
+à
+
+OR j
+k SA LES SUPPLIANTS PARALLÈLES
+resoulever la tête des fonds de ce roulis rouge de sang,
+_ . dépérissant par les bourgeons des fruits de la terre,
+dépérissant par les troupeaux paissants de bœufs et
+par les enfantements stériles des femmes; !
+Ce que nous demandons est peu de chose. Nous ne dési-
+ÿ rions que ce sans quoi la vie n'est pas une vie, mais un
+bagne et une torture infinie.
+e Li | PAC + 1 Al
+ëv Ÿ 6 rupyopos eos
+cxmhac EAadver, Aomuos Éyliotos, rÜAw,
+69 où xevodrar doux Kaduciov: pêlas d'
+TAudns otevayuoïs xai ydots rAoutiterau.
+et (là-dedans) le dieu porteur de feu, s'étant élancé,
+pourchasse, peste suprême ennemie, la cité, peste par
+qui se vide la maison Kadméenne; et le noir Hadès
+s'enrichit de lamentations et de cris.
+Notre première demande était que nos patrons examinent
+ensemble, avec nous, nos besoins; mais cela même, on
+nous l'a refusé, on nous a refusé le droit de parler de nos
+besoins, trouvant que la loi ne nous reconnaît pas ce
+droit.
+Osoïar uév vuy oùx iobpeydv 0° yo
+000 ofde raides ELüueol” Épéorior,
+avop@v dÈ rp@tov Ev te ouuyopais flou
+xplvovtes Év te Oaudvwy ouvalhayaic
+Non pas égalé aux dieux, (donc), te jugeant, ni moi |
+ni ces enfants que voici, nous sommes assis au pied de
+tes autels, mais (te jugeant) le premier des hommes et
+dans les conjonctures de la vie et dans le commerce des
+divinités ;
+13 4
+un,
+
+Charles Péguy RS
+Illégale, aussi, a été trouvée notre demande de diminuer \
+Un le nombre des heures de travail jusqu'à huit heures par
+jour; d'établir le prix de notre travail ensemble, avec nous, 54
+k et de notre consentement ; d'examiner nos malentendus "\
+; avec l'administration subalterne de nos usines; d'augmen- M
+\ ter le salaire des manœuvres et des femmes jusqu'à rrouble M
+‘ par jour; de supprimer les travaux supplémentaires ; de 4
+°# nous donner des secours médicaux attentifs et sans nôus
+outrager ; d'aménager nos ateliers de façon à ce que nous
+\ puissions y travailler et non pas trouver notre mort par M
+les terribles courants d'air, les pluies et les neiges. Suivant W
+| nos patrons, tout se trouvait illégal : toute notre demande
+: était un crime, et notre désir d'améliorer notre situation,
+"see — une insolence, outrageante pour nos patrons. ‘ #
+ù 1 U : î
+Üc yéEsluous, äotv Kadueïoy polo, à
+cxAnoäc &o1doÿ Dasuôy 0 rapelyoue, “
+À xai Tad0” Üp” uv oùdèv éEadw réoy .
+00 éxddayleis, &XAX rpooûyxn 0eod 3
+Aëyer vopiter 0° fuiv opOGoar flov: ‘4
+toi qui (du moins) délias, venant dans la ville de
+. à
+Kadmos, le tribut de la dure chanteresse, que nous
+fournissions, et cela ne sachant rien de nous de plus, ni 4
+n'en ayant été enseigné, mais c'est par une assistance M
+divine que l'on dit et que l'on pense que tu nous dressas 1
+notre vie ; 4
+Sire! nous sommes ici plus de 300.000, et tous hommes
+seulement par les apparences, par l'aspect; en réalité, on ne « nous reconnaît aucun droit humain, pas même le droit de
+penser, de nous réunir, d'examiner nos besoins, de prendre
+des mesures pour améliorer notre situation. Quiconque M
+parmi nous ose élever sa voix pour la défense des intérêts M
+de la classe ouvrière est jeté en prison, envoyé en exil. On
+punit chez nous, comme un crime, un cœur bon, une âme |.
+14 À
+
+ne
+
+| HU Sie ANR IE jupe | à |
+Sd » Ÿ BRAS 5
+L ñ LI
+à LES SUPPLIANTS PARALLEÈLES
+| compatissante. Avoir pitié d'un homme opprimé, torturé,
+__ sans droits, — c'est commettre un crime très grave.
+vüv t', © modrioroy räoty Oidirov xéoa,
+ixeretouéy ce névres olde rpdotoono:
+au Tu' ebpeiy quiv, elte tou Oeüiv
+pfunv äxoboas lt” àän' àvôpôs oïold tou:
+et maintenant, 6 tête d''Edipe sur toutes (ou sur tous)
+la plus puissante, nous te supplions tous, que voici
+tournés vers toi, de nous trouver une force de secours,
+soit ayant entendu la voix de quelqu'un des dieux, soit
+que tu saches de quelque homme;
+Sire! cela est-il conforme aux lois divines, par la grâce
+._ desquelles tu règnes ? Et peut-on vivre sous de telles lois ?
+Ne vaut-il pas mieux mourir, mieux pour nous tous, travailleurs de toute la Russie? Que les capitalistes et les. \
+fonctionnaires seuls vivent donc, et qu'ils se réjouissent.
+Voilà ce qui est devant nous, Sire, et c'est ce qui nous a
+rassemblés près des murs de ton palais. C'est iei que nous |
+cherchons notre dernier salut. Ne refuse pas la protection à
+ton peuple; sors-le du tombeau de l'arbitraire, de la misère
+et de l'ignorance; donne-lui la possibilité de disposer de
+son propre sort; délivre-le de l'oppression intolérable des
+fonctionnaires; détruis le mur entre toi et ton peuple, — et
+qu'il gouverne le pays avec toi. Car tu règnes pour le
+bonheur du peuple, — et c'est ce bonheur-là que les fonetionnaires nous arrachent des mains : il n'arrive pas
+jusqu'à nous; nous ne recevons que la souffrance et
+lhumiliation.
+ds Toïouw éuretporsr xai Tèç Euupopàs *
+Cuoac 696 uéliota Tv fouAeupétov.
+car je vois même les conjonctures vivre des hommes
+d'expérience (ou par les hommes d'expérience) princi15 |
+
+; ‘Charles Péguy VIS |
+palement des conseils. Et je vois surtout que je m'embar- À {
+rasse inextricablement dans ma traduction. Heureux #
+temps de nos études, où dans de telles traductions nous M “
+ne nous embarrassions pas moins. Combien de fois, en ‘0
+
+F cinquième, combien de fois, en quatrième, en troisième, 4
+combien de fois, en rhétorique même, combien de fois f
+n'avons-nous pas bronché ainsi, combien de fois ne nous ‘4 |!
+
+sommes-nous pas aheurtés sur un texte, sur deux lignes "Ml
+
+| de grec, sur deux vers de Sophocle. Mais alors il y 1
+s avait deux cas, et il n'y avait que deux cas, très nette- (A
+ment caractérisés, deux cas distincts, et même contraires, } ;
+1 d'embarras inextricables : il y avait les fois où l'on com- M
+! prenait parfaitement le mot à mot et où l'on ne compre- %
+naît pas le français, et au contraire il y avait les cas où
+: l'on comprenait parfaitement le français, mais où lon |
+
+È ne comprenait pas le mot à mot. Nul homme vivant D:
+n'était dupe de ces innocentes formules; nul ne se trompait à ces habituels déplacements; nul, ni nos bons M
+
+maîtres, ni notre maître affectueux et cordialM.Simore, M
+
+ni notre maître sévère M. Doret, qui s'écrivait peut-être 4 ï
+
+Doré, ni notre regretté maître M. Paul Glachant; nul, À
+
+En ni surtout nos bons camarades, qui parlaient le même
+langage conventionnel-indulgent, — le même langage M
+usuel usager, de toutes les langues anciennes celle que
+
+: nous avions apprise le plus vite, et celle que nous parlions, familièrement, commodément, le mieux : Mon- “
+sieur, je comprends bien le français, mais je ne peux Î
+pas faire le mot-à-mot. — Monsieur, je comprends bien M
+le mot-à-mot, mais je ne peux pas faire le français : L:
+Amant alterna Camenae, c'était le chant alterné des
+anciennes classes de grammaire et des anciennes classes . À
+de lettres dans l'enseignement secondaire, et ce chant, A
+16 4
+
+|. tés, 0.
+4 | LES SUPPLIANTS PARALLÈLES
+beaucoup plus vieux mais moins informe que les
+célèbres « chants grossiers des Frères Arvales », était
+doux et bon comme un retour de strophe, ce refrain
+mutuel fonctionnait comme une complicité.
+Tout le monde entendait parfaitement ce que cela
+voulait dire : que l'on n'y voyait plus rien, que l'on n'y
+voyait plus clair, que l'on était absolument perdu, ‘
+comme en forêt, que l'on n'y comprenait absolument 4
+plus rien. Depuis je suis allé dans l'ancienne École Normale, et remis aux mains du noble vieillard l'ancien
+M. Tournier, j'ai appris qu'on donne un tout autre nom,
+un nom bizarre, aux passages que l'on ne comprend
+pas, quand on veut précisément signifier qu'on ne les
+comprend pas: on les nomme àlors des passages interpolés. Et il ne s'agit plus que de trouver des leçons.
+Et quand on ne trouve pas des leçons, on fait des conJectures. On nomme leçons les conjectures qui sont
+dans les manuscrits, et conjectures les leçons qui ne
+sont pas dans les manuscrits. À
+de Toïsw éuretpotor xai tàc Evupopds
+Cuoas 608 péliora T@v BouAsvudétuv.
+C'est à de tels passages que les traducteurs deviennent ù
+sages, vagues, suprêmes, et que les gloires aujourd'hui
+les mieux consacrées à l'origine se firent prudentes.
+Leconte de Lisle, Sophocle, II, Oidipous-Roi : car je
+sais que les sages conseils amènent les événements
+heureux. Il comprend son français, celui-là, mais je :
+voudrais bien savoir comment il fait son mot-à-mot, et ?
+ce qu'il fait de xai et de uélista; et de toïoiv éurstpouxr, et
+du datif, et de toute l'articulation de la phrase, et de
+tout. Mais allez donc demander son mot-à-mot à Leconte
+
+AIT
+
+DUR AA nn AU ER LE NEO OO
+Fr (ENS . de Lisle. — Monsieur, nous disaient nos anciens maîtres
+Her quand nos français devenaient par trop supérieurs, |
+< js monsieur, montrez-moi done votre mot-à-mot ; monsieur, 4
+Fe faites le mot-à-mot. Mais osez donc dire à Leconte de 4
+à ns Lisle de faire son mot-à-mot. ; 1
+Le bg toïotv épreloouor xai Tàs Evupooàs TUE
+‘1 Lucas 6p@ uéliora tüv Boukeuudto. D.
+# F
+À : La traduction de Jules Lacroix, sur laquelle se sont
+} ‘ faites les représentations triomphales des Français, se
+Fe compromet encore moins : E.
+| “Souvent l'expérience a vaincu le malheur. — 4
+‘s Nous n'en sortirons pas nous-même à moins d'essayef L
+< une juxtalinéaire : ‘
+à és car 4
+‘ep je vois k
+À xai méme 1
+rs Evuvopàc les événements (les issues, les
+à résultats) À
+‘ r@v fBouhsuudruv des conseils À
+CH Cuisas vivre (vivant) 4
+4 uäura le plus, principalement, surtout L
+de roïcw uxefpoux par les hommes d'expérience (ou)
+aux hommes d'expérience,
+ce qui donnerait en français : ,
+À car je vois les événements même, les résultats, des
+conseils (eventus consiliorum) vivre sur tout par les P
+k hommes d'expérience ; ou : réussir sur tout aux hommes 3
+à d'expérience. — Enfin c'est une de ces pensées peu com-
+
+{
+
+3 LES SUPPLIANTS PARALLÈLES
+_ promettantes qui faisaient une partie de la sagesse du ;
+chœur antique.
+Envisage sans colère et avec attention nos demandes : 4
+elles tendent non pas vers le mal, mais vers le bien, Sire!
+Ce n'est pas l'arrogance qui parle en nous, c'est la conscience !
+qu'il est nécessaire de sortir d'une situation qui est pour | |
+nous intolérable. La Russie est trop grande, ses besoins
+sont trop variés et importants, pour que les fonctionnaires
+puissent la gouverner à eux tout seuls. Il faut que le peuple
+lui-même vienne à son aide : lui seul connaît ses vrais
+. besoins. Ne repousse donc pas son secours, mais aeceptele, ordonne immédiatement la convocation des représen- :
+tants de la terre russe, de toutes les classes et de tous les
+ordres. Qu'ils soient tous présents ici, et le capitaliste, et
+l'ouvrier, et le prêtre, et le docteur, et linstituteur, et que
+tous, quels qu'ils soient, élisent leurs représentants; et que ;
+chacun soit égal et libre dans son droit d'élection. Et pour i
+cela, ordonne que les élections à l'Assemblée Constituante
+se fassent sur la base du suffrage universel, secret et égal. |
+10°, © Bporév &prot”, àvdpfwooy rdAuw:
+10°, edla6rOn0”: de où vüv uèv de yf
+cuwtioa xAnCer this répos rpobupiac
+Va, 6 le meilleur des mortels, redresse la cité; va, ;
+prends garde (prends soin); car à présent cette
+terre te nomme sauveur pour (à cause de) ton zèle
+. d'avant;
+C'est notre demande la plus importante : en elle et sur elle
+tout repose; c'est le baume principal pour nos plaies, sans x
+lequel elles saigneront toujours et nous pousseront à une ï
+mort prochaine. Mais cette mesure, à elle seule, ne peut pas
+guérir toutes nos plaies. D'autres nous sont nécessaires et s
+nous l'en parlons, Sire, comme à notre père, franchement et
+ouvertement. .
+
+RAA SEAT RME fe ART SN NP NT
+SE Charles Péguy 0000
+M) dpyñs D The she pndaps pepvouela A
+ë 5 $ otévres t' ès Op0V xal neodvtes Uotepov, N.
+ds Ê GAX Gcpahesia TAvd àvoplwooy rw. 4
+à Re que nous ne nous rappelions en aucune manière ton +
+LE TIRRS commandement nous étant levés d'abord en droit pour
+k étre ensuite retombés en arrière, mais dans la stabilité
+er redresse cette cité. 4
+# fe Sont nécessaires : 3
+4 I. — Les mesures contre l'ignorance et l'arbitraire qui
+% \ règnent parmi le peuple russe. 4
+1° La liberté et l'inviolabilité individuelles, la liberté de À ?
+(à ï parole, de presse, de réunion, de conscience en matière de M
+Eux religion; 4
+2 L'instruction publique universelle et obligatoire aux w
+frais de l'État ; À
+
+4 f 3 La responsabilité des ministres devant le peuple et la.
+ji légalité garantie dans l'administration ; \ N.
+: 4° L'égalité de tous devant la loi; l
+( 5° La mise en liberté immédiate de tous ceux qui ont
+4 souffert pour leurs convictions. \
+Ù II. — Les mesures contre la misère du peuple. ee
+1° L'abolition des impôts indirects et leur remplacement 4
+# par l'impôt direct et progressif sur le revenu; ( 1
+LT: #2 J:3 à : "
+î 2° L'abolition des annuités de rachat, le crédit à bon mar-"
+il î ché et le retour graduel de la terre au peuple. de.
+. k
+} II. — Les mesures contre l'oppression du Travail par le
+k Capital. ‘4
+1° La protection du travail par la loi; k i
++ 2° La liberté des sociétés de consommation, de production
+j et des sociétés personnelles ; Le |
++
+20 La
+> f 4 f:
+
+à LES SUPPLIANTS PARALLÈLES :
+3° La journée de 8 heures et la réglementation des travaux. f s
+supplémentaires ; AR
+£° La liberté de la lutte du travail contre le capital; is
+5° La participation des représentants des classes ouvrières LA
+à l'élaboration du projet de loi sur l'assurance gouvernementale des ouvriers ; ' :
+6° Le salaire normal. 4
+"Opyilr yap za tv tôt' aisiw TÜynv À
+Rapéoyes Auiv, xai TavÜv Toos Evo.
+
+Car par un oiseau de bon augure et tu nous a fourni
+la fortune d'alors, et à présent deviens égal (à toiméme).
+
+Voilà, Sire, les besoins principaux que nous sommes
+venus te présenter. Ordonne et jure de les faire exécuter,
+et tu rendras la Russie glorieuse et heureuse,iet tu laisseras
+gravé pour jamais ton nom dans les cœurs de nos petitsfils et de nos arrière-petits-fils. Mais si tu ne l'ordonnes pas,
+si tu ne réponds pas à nos prières, nous mourrons sur cette
+place même, devant ton palais.
+
+‘Qs elncp Gpbers Thode VC, Wonep xpareis,
+Eby &vdpéoiv xéAkov À xevñs xpateiv'
+
+Car si tu commandes (puisque tu commanderas) cette
+terre, comme tu en es le maître, il est plus beau d'en
+être le maître avec des hommes que vide;
+
+Nous n'avons plus où aller, et dans quel but ? Deux routes ".
+seulement s'offrent à nous : l'une vers la liberté et le :
+bonheur, l'autre vers la tombe. Indique-nous celle à suivre,
+
+Sire : nous la suivrons sans murmure, que ce soit même la
+voie de la mort. Que notre vie serve de sacrifice à la Russie
+agonisante. Ce sacrifice, nous l'accomplissons volontiers et
+sans regret. ;
+
+Fe
+
+Se ARABE TENTE ARS ESS
+' Charles Péguy
+4 ê ds oùdev éoTuw oÙte rpyocs oÙte vaÿs 4
+À Epnuos avdpGv ph Evvotxolvtuv Eco. |
+s car ce n'est rien, ni une tour ni un vaisseau déserté 1
+di d'hommes qui ne demeurent pas ensemble dedans. ‘
+à Je n'ai pour ainsi dire pas truqué pour achever en
+; même temps la supplication antique et la supplication
+‘ moderne; ces deux supplications, la supplication 4
+grecque et la supplication moderne, sont parallèles »
+f d'un parallélisme si poussé qu'elles ont sensiblement le
+h même nombre de paragraphes. De tels parallélismes |
+‘5 ne se peuvent passer sous silence. La différence d'exten-
+\ sion qu'elles présentent représente très exactement la #f
+proportion, le rapport qu'il doit y avoir entre une supd plication réelle et une supplication d'art, particulière- |
+Di. ment une supplication dramatique, scénique, notamment |
+une supplication tragique, nommément une supplication M
+jh de tragédie grecque. Ceci pour dire que la différence M
+| que l'on voit entre l'une et l'autre supplications, entre la
+supplication antique et la supplication moderne, ne vient M
+nullement de ce que l'une est une supplication antique
+et l'autre une supplication moderne, mais uniquement
+de de ce que l'une est une supplication, — étendue, — de
+réalité, — étendue, — l'autre une supplication, — ra-
+$ massée, toute au trait, — de tragédie grecque.
+Ce parallélisme singulier, poussé singulièrement, se Î
+continue et se rabat, se réplique dans la réponse du
+roi : ,
+On lit aujourd'hui dans le Messager officiel :
+S. M. l'Empereur, ayant daigné recevoir, le mercredi 19 janvier, M
+à Tsarskoïé Sélo, 34 délégués ouvriers des fabriqueset usines de *
+22 #
+
+a : À
+: - LES SUPPLIANTS PARALLELES è inte
+Saint-Pétersbourg et de la banlieue, leur a adressé les paroles ÿ
+suivantes :
+« Je vous ai mandés afin que vous puissiez entendre per- : <
+sonnellement Ma volonté, et la communiquer directement à
+vos camarades. Les malheureux événements, qui se sont
+produits dernièrement et qui ont eu des conséquences tristes 5
+mais inévitables, ont été causés par le fait que vous vous êtes
+laissé induire en erreur par des traitres et des ennemis de |
+notre Patrie, et parce que ces gens vous ont trompés.
+
+De même que Œdipe accusera, dans un coup de colère
+et d'aveuglement, peut-être pas si aveugle que cela,
+
+2 MY F2) . gp L
+Créon, Tirésias, de manigances politiciennes et de
+conspiration.
+
+« En vous invitant à venir Me remettre une pétition relative
+à vos besoins, ils vous incitaient à prendre part à la sédition
+qui était dirigée contre Moi et Mon gouvernement; ils vous
+Jirent quitter votre honnête travail dans un moment où tous 4
+les véritables Russes doivent travailler de concert et sans
+trêve, afin de vaincre notre ennemi extérieur si opiniâtre.
+« Les grèves et les réunions séditieuses ne font que pousser
+la foule désœuvrée à des troubles qui ont toujours forcé et ;
+forceront toujours les autorités à recourir à la force armée,
+ce qui cause nécessairement la mort de victimes innocentes.
+« Je sais que la vie de l'ouvrier n'est pas facile. Il y a bien
+des choses à améliorer et à organiser; mais prenez patience.
+Vous comprenez vous-mêmes, en toule conscience, qu'il faut à
+être également juste envers vos patrons et prendre en considération les intérêts de Notre industrie.
+« Mais c'est un crime que de réunir une foule séditieuse
+pour Me déclarer vos besoins. L
+
+Li |:
+
+be Charles Péguny ; "4
+à ‘J À
+« Dans Ma sollicitude pour les ouvriers, Je veillerai à ce
+que l'on fasse tout ce qu'il est possible de faire pour améliorer
+‘ ; leur condition, et à ce qu'on leur donne les moyens et la if
+? possibilité de faire connaître leurs nouveaux besoins, au fur &
+$ et à mesure que ceux-ci se manifesteront. 5
+« Je crois à l'honneur des ouvriers et à leur dévouement
+; inaltérable envers Moi, et Je leur pardonne leur faute. &
+Es « Retournez maintenant à vos paisibles travaux; mettez- î
+vous à l'œuvre, vous et vos camarades, en faisant le signe de \)
+la croix. Que Dieu vous soit en aide. » À
+| }
+Il peut sembler à première vue que le parallélismeici
+se retourne, se rabat seulement, se contrarie; mais jl
+devient vite évident qu'en réalité il se poursuit, qu'il se
+continue autant et plus qu'il ne se rabat. Mutations
+. faites, et omises pour un instant les variations circon-
+| stantielles, c'est bien une réponse de même sens à des
+supplications de même sens :
+OIATIIOYS.
+HE FQ raides oixtoot, yvurà 2002 &yYwTé pot 1
+rpoof}el" icloovres. Ed yàp où ürt J
+vogeite FÉVTES, Hal VOGODVTES, Ge ÉYO
+oùx Eotty buy Oarts ÉE laov voaet. |
+To pèv yèo buGv &dyos de Ev' Épyetau 1
+\ U , nur SL » [a CIRE 74° L
+uôvoy 200” abrôv, xobdév &XXov,  Ô Eu {
+duyn rdv Te xauè zal o ÔUOD oTéver. 4
+“Qor' oùy Ervw y ebdovré pu éfeyelpete:
+aXN Vote roXMà uév ue DaxpÜsayra Ôn, ÿ
+ss S? £9 > ! 1 3 Z f
+ê roc O 6dobc EXdvra ppovriÔos rAdvou.
+SHy d ed oxo7@v cüpiozov law pôvmy,
+: 24
+> ei
+
+HR RS:
+_ LES SUPPLIANTS PARALLÈLES ‘
+À ‘
+tabtnv ErpaËa raida yap Mevouxéws We
+Kpéovr', Éuauro yau6oov, à Ta [lubwà
+éreuba Dotéou dual', de rélof" 6 ze À
+DpGv À TÉ QuvGv TAvde Éuootuny rod. by
+Kai y quap H0n Evuuetpobuevoy ypdvw
+Âunei ti rodoset Toù yap eixOTOS répa |
+&nsott rhelewo! To xaÜWxovtoc ypdvov. ;
+lOrav d' Exntau, Tnvwxadr yo xaxôs
+un dpév àv elny rdv” Go' àv dndoi Mes.
+ŒprrE :
+O enfants lamentables, désirant des choses connues et ï
+non inconnues, vous êtes venus à moi. Car je sais bien
+que vous étes tous malades, et étant malades, comme
+moi il n'y a pas un de vous qui soit malade également.
+Gar votre douleur à vous va vers un seul un en ce
+qui le concerne lui-même, et nulle personne autre, 3
+mais mon âme gémit sur la cité, et sur moi, et sur toi
+ensemble.
+Mon âme gémit, mon âme pleure sur la cité, et sur
+moi, el sur toi ensemble : nous avons ici toute parfaite |
+et dans toute sa pureté la formule même des lamentations antiques. Il ne se sépare point de la cité, ni
+de son interlocuteur. Le supplié antique, lui-même ?
+suppliant, supplié des hommes, suppliant aux dieux, ne
+se sépare point du suppliant inférieur. Le supplié =
+antique, lui-même suppliant du deuxième degré, ne se
+sépare point du suppliant du premier degré. La supplication englobe l'un et l'autre, et nul citoyen, füt-il
+prêtre, fûüt-il roi, ne se sépare de la cité, comme nul
+RE . Les suppliants. — 2
+
+. Charles Péguy
+F suppliant ne se sépare de la commune supplication Li
+fs civique. La formule de la supplication chrétienne, et
+fi plus généralement de la lamentation chrétienne, et ori- je
+de ginairement de la lamentation messianique, sera
+donnée, parfaite aussi et dans toute sa pureté, comme |
+| dans toute sa plénitude, dans le Misereor super tur- :
+| bam. Je pleure, j'ai pitié sur la foule. Misereor super ;
+? lurbam : quia ecce jam triduo sustinent me, nec habent
+‘ quod manducent. Marc, VIII, 2. J'ai pitié sur la foule : +
+parce que voilà déjà trois jours qu'ils me soutiennent, ‘|
+À et ils n'ont pas de quoi manger. Et les lamentations ÿ
+à des Anciennes et de la Nouvelle Ecritures, sur la l
+Ÿ ruine de Jérusalem, si merveilleusement reprises dans
+les chœurs et dans les récitations d'Athalie, les lamer-
+| tations sur Jérusalem vidée. À
+à De sorte que vous ne m''éveillez pas dormant dans le j
+sommeil; mais sachez que j'ai versé beaucoup de larmes,
+et que j'ai enfilé beaucoup de routes dans les errements
+de la souciance. Mais le seul remède qu'en bien considé-
+rant j'ai trouvé (je trouvais), celui-là, je l'ai fait: car
+le fils de Ménécée, Kréon, mon beau-frère, je l'ai
+envoyé.
+
+Ce Créon, son beau-frère, et ceci soit dit sans offenser « personne, ce Créon qu'il envoie en ambassade extraordinaire, ce Créon, c'est un grand-duc, tout simplement.
+Cest le perpétuel grand-duc. C'est le prince du sang.
+C'est Monsieur, frère du roi. C'est Gaston d'Orléans. Ce
+Créon, qui succédera, la catastrophe arrivée, c'est la
+branche cadette toujours prête à succéder, ce sont
+les perpétuels d'Orléans, les quatre familles succes-
+
+_ sives d'O: éans, c'est Philippe-Égalité, Louis-Philippe, à AUS
+._ qi succédera, car le dernier finit toujours par suc- FI
+| céder. 180
+_ car le fils de Ménécée, Créon, mon beau-frère, je l'ai 1
+_ envoyé vers les demeures Pythiques de Phoibos, afin
+qu'il demandät et apprît quoi faisant ou quoi disant je D:
+L sauverais cette cité. Et moi le jour déjà, calculé en ARS
+comparaison du temps, me peine (me faisant me deman_ der.) que fait-il? car au-delà du convenable il est absent 57 ;
+plus long (temps) que le temps convenable. Et quand il {4
+_ viendra, à ce moment-là je serais un mauvais, de ne pas sa 4 J
+_ faire tout ce que le dieu manifeste. Par à
+_ Suppliants parallèles; mais le =ipæwos antique, lui, Res Hi
+4 avait reçu les siens au seuil de son palais : + Ke
+OIAITIOYS. nv
+7Q réxva, Kéduov toô méhar véx toopn, PE 1 Le
+î rivas roû” Edpas réode por Oodtete ‘4e
+4 . Ærmplous xAddotory ÉEeoreuuévor; 1 SCT
+\ rôds d'opoÿ uèv ouraudrov yêuet, RU
+be ôpoÿ D ratdvwv te xai oTevayUé TU É* 100
+dy GuGv ph rap” GYYÉAwY, Téva, ER sr
+; aXkwy àxoÿerv aûros O0 EAAUO&, he À
+Ÿ 6 räst eos Oidirouc xaloëuevos. ne
+‘1 'AXN, © ÿepaè, pod, Enel rpérwv Équc È 0
+
+/ neô TOvDe puveiv, tive toürw aiotars, î Qu.
+É qe delgavtes, 7 otéphavtec; @s O£lovros àv 2 j
+4 Euoÿ roocapxsiy r@v' duogAynros yap àv « Va
+| = elnv Totévds ph où xarouxtelpwv Edoav. ei :
+f 27 “ae
+
+\ * A Se CT LE D
+| Charles Péguy h..
+ŒprrE L,
+O enfants, du Kadmos d'il y a longtemps neuve géné-
+ration nourrissonne, quels sièges donc d'agitations
+! tumultueuses me tenez-vous, ceux-ci, couronnés de }
+4 rameaux d'olivier suppliants ? ÿ
+k
+Ainsi dans Sophocle la supplication est tout au com M
+mencement, au tout premier commencement, au com- À
+mencement magnifique, extérieurement et intérieure- |
+ment somptueux, de la tragédie antique. |
+| et la cité est pleine ensemble de parfums d'encens
+brûlés et ensemble de péans et de lamentations; -
+Et les lamentations accompagnent les supplications ;
+| comme une voix plus profonde encore et comme anté- {
+rieure ; comme une voix parallèle d'un ton plus profond k
+encore, plus grave et comme inférieur.
+que jugeant (juste), enfants, de ne pas entendre de
+messagers, autres, moi-même ici ainsi je suis venu, le fi
+célèbre à tous Œdipe appelé. Mais (eh bien) 6 vieillard,
+parle, puisque de naissance il convient que tu parles
+k pour ceux-ci, dis-moi dans quelle attitude vous êtes la,
+de crainte, ou affectueuse? dans cette pensée que je À
+veux subvenir (suffire) à tout : car je serais dur à la
+douleur, de n'avoir point en pitié une telle session que \
+celle-ci. 4
+Quand en cinquième, en troisième, et même en rhétorique nous avions suffisamment barboté, quand nous
+
+y
+dit
+
+4 LES SUPPLIANTS PARALLÈLES Ü Li
+avions fini de nous débattre dans le mot-à-mot et dans : ; {
+le français des phrases démembrées, un usage vou- (ul
+lait, une tradition exigeait que l'on fit d'un coup fe.
+tout le français, que l'on reprît le français d'un bout ee
+- à l'autre. Il est juste en effet, et l'on peut dire que pi
+c'est même une réparation tardive, qu'ayant disloqué € :
+ce pauvre texte par un usage et par un abus même de 5
+tous les appareils connus, on s'efforce, trop tard, mal- K
+heureusement, de le rétablir, inégalement, infructueuse- #
+ment, de le ressaisir tout, d'un seul tenant, comme il ù
+_ était. Vaine tentative. Ce qui est brisé, est brisé. Je
+voudrais bien me conformer à cette ancienne habitude
+mal fondée. D'ailleurs, et puisqu'il s'agit ici de supplica- |
+tions parallèles, puisque de l'autre part nos abonnés EAU
+dans le cahier d'Avenard ont eu d'un seul tenant la S
+supplication moderne et la réponse moderne à cette” |
+supplication, il est équitable, étant conforme au parallélisme que je me propose de respecter, puisque nous
+avons commencé par le constater, puisqu'il s'est dès SE
+l'abord imposé à nous, il est équitable de donner d'un +
+seul tenant aussi la supplication hellénique et la réponse
+hellénique à cette supplication. Il ne faut point songer à 5
+donner ici cette traduction de Jules Lacroix sur qui se k
+firent les représentations triomphales des Français.
+Cette traduction, commencée en grandeur, continue vite
+en faiblesse et se poursuit en contre-sens. Ne disons
+point qu'elle est presque perpétuellement grotesque,
+d'abord parce que ce n'est pas vrai, ensuite parce que 4
+nous devons éternellement respecter les émotions d'art ,
+que nous avons une fois reçues. Quel homme de ma !
+génération, jeune alors, ne se rappelle, comme une à
+initiation sacrée, le scéniquement somptueux commen-
+Ù 29 les suppliants. — 2.
+de
+
+| Charles Péguy fi
+4 cement de la tragédie dans sa version française, et
+4 Mounet debout au plus haut des marches, à droite, l
+jai recevant comme un Dieu la supplication de tout un 4
+UT peuple. Ce peuple, vous me le dites, était un peuple de à
+| figurants. D'où prenez-vous que dans le monde moderne À
+les figurants de théâtre, par leur situation sociale (£üpa), x
+û ne soient pas excellemment disposés à devenir les repré- î
+sentanis, les images des suppliants de l'antiquité. C'est {
+| comme si vous disiez que M. Mounet-Sully n'est pas un É
+| roi du monde moderne, et ainsi n'est pas éminemment |
+| désigné, par sa situation sociale même, pour devenir ÿ
+une image, un représentant des rois de l'antiquité. 1
+Nous avons encore le timbre rocheux et beurré de sa 1
+voix sonnant dans nos mémoires : Z *
+| Enfants, du vieux Cadmus jeune postérité,
+; Pourquoi vers ce palais vos cris ont-ils monté... }
+Il avait un manteau blanc superbe où il se drapait }
+Ù comme un ancien, mieux qu'un ancien, Car nous ;
+n'avons jamais vu d'ancien se draper, et le moindre 4
+fe de ses gestes est demeuré intact dans la mémoire de 3
+nos regards. Mais spectateurs, mes frères, compagnons 4
+G des hauteurs, poussinets du poulailler, anges du Para- 4
+dis, jeunes gens d'alors, qui dans la ferveur et la piété û
+des représentations de ce temps allâmes acheter la À
+traduction nouvelle en librairie (traduite littéralement $
+en vers français), vivons pieusement dans la mémoire de À
+nos regards et dans la mémoire de nos cœurs ; vivons 4
+dans la mémoire de ce que nous avons entendu alors #
+et de ce que nous avons aimé ; gardons-nous surtout de “
+jeter les yeux sur ce texte ancien; pas même ancien,
+| 30
+Ua
+
+à LES SUPPLIANTS PARALLÈLES |
+_ suranné: la désillusion serait trop forte, et atteindrait
+aux profondeurs d'une démolition. Dès les deux vers Ke
+suivants le texte français faiblit :
+” Et pourquoi ces rameaux suppliants, ces guirlandes ? 3
+Toute la ville est pleine et d'encens et d'offrandes, À
+Le reste ne vaut pas l'honneur d'être cité, ce reste qui .
+nous paraissait aussi tenu, aussi constant, aussi con- -
+tinué qu'un texte de Racine:
+Pleine de chants plaintifs, de sanglots et de pleurs ! —
+_ Et s'il était besoin de se convaincre une fois de plus
+_ que l'art du théâtre n'a sans doute rien de commun
+avec l'art de l'écriture, et en tout cas n'a aucunement
+besoin de l'art de l'écriture, il suffirait de confronter la
+grandeur unique et réelle et réellement souveraine de
+ces représentations avec la pauvreté, avec la faiblesse,
+avec l'inanité du texte que formaient assemblées les
+paroles mêmes qui étaient si grandes au cœur des
+représentations.
+Laissons ce texte vieillot. Cherchons un texte ancien.
+Serons-nous plus heureux avec Leconte de Lisle? Ii
+fut un grand poète, un des plus grands poètes français,
+un des plus grands poètes modernes. Sa traduction
+des grands poèmes antiques, généralement considérée
+comme une préparation à ses propres poèmes antiques, £.
+ce qu'elle était, et comme une partie intégrante du travail et de l'œuvre de ces mêmes poèmes antiques, ce 4
+qu'elle n'était peut-être pas, n'a point cessé de recevoir
+la plus grande réputation.
+31 |
+L
+
+À Charles Péguy 140 4
+Leconte de Lisle, Sophocle, II, Oidipous-Roi : ÿ
+OIDIPOUS. {
+; ENFANTS, race nouvelle de l'antique Kadmos, L'
+18 @ pourquoi vous tenez-vous ainsi devant moi avec |
+\ ces rameaux suppliants? Toute la Ville est M
+| pleine de l'encens qui brûle et du retentissement des
+Paians et des lamentations. Je n'ai point pensé que je ;
+dusse apprendre ceci par d'autres, à enfants ! Et je suis i
+venu moi-même, moi, Oidipous, célèbre parmi tous les |
+| hommes. Allons ! parle, vieillard, car il convient que tu
+parles pour eux. Qu'est-ce ? Quelle est votre pensée? M
+
+\ Redoutez-vous quelque danger? Désirez-vous être
+1 secourus dans une calamité présente ? Certes, je vous À
+viendrai en aide. Je serais sans pitié, si je n'étais touché |
+
+de votre morne attitude.
+LE SACRIFICATEUR. Î
+Oïdipous, ô toi qui commandes à la terre de ma M
+patrie, tu nous vois tous prosternés devant tes autels : ù
+| ceux-ci qui ne peuvent encore beaucoup marcher, ces
+sacrificateurs lourds d'années, et moi-même serviteur M
+| de Zeus, et cette élite de nos jeunes hommes. Le reste K« de la multitude, portant les rameaux suppliants, est M
+assis dans l'Agora, devant les deux temples de Pallas
+et le foyer fatidique de l'Isménien. En effet, comme tule M
+vois, la Ville, battue par la tempête, ne peut plus lever ï
+sa tête submergée par l'écume sanglante. Les fruits de s
+32 :
+
+AA PME EEE À A AIN MERE AE
+‘4 LES SUPPLIANTS PARALLÈLES “rs
+| la terre périssent, encore enfermés dans les bourgeons, AU
+les troupeaux de bœufs languissent, et les germes conçus vie,
+par les femmes ne naissent pas. Brandissant sa torche, bn
+la plus odieuse des Déesses, la Peste s'est ruée sur la | #
+Ville et a dévasté la demeure de Kadmos. Le noir 6
+Hadès s'enrichit de nos gémissements et de nos lamentations. Et voici que ces enfants et moi nous nous
+sommes rendus à ton seuil, non que tu nous sembles à
+égal aux Dieux, mais parce que, dans les maux qu'amène
+_ la vie ou dans ceux qu'infligent les Daimones irrités, tu
+es pour nous le premier des hommes, toi qui, à ton arri- |
+vée dans la ville de Kadmos, nous affranchis du tribut
+payé à la cruelle Divinatrice, n'étant averti de rien, ni
+- renseigné par nous. En effet, c'est à l'aide d'un Dieu que Ve,
+tu as sauvé notre vie. Tous le pensent et le croient. Or, Ÿ
+maintenant, Oidipous, le plus puissant des hommes, ;
+nous sommes venus vers toi en suppliants, afin que tu
+trouves quelque remède pour nous, soit qu'un oracle
+divin t'instruise, soit qu'un homme te conseille, car je ‘
+sais que les sages conseils amènent les événements
+heureux. Allons, à le meilleur des hommes, remets cette
+ville en son ancienne gloire, et prends souci de la
+tienne! Cette terre, se souvenant de ton premier service, SA
+te nomme encore son sauveur. Plaise aux Dieux que,
+songeant aux jours de ta puissance, nous ne disions pas
+que, relevés par toi, nous sommes tombés de nouveau! $
+Restaure donc et tranquillise cette ville. Déjà, par une
+heureuse destinée, tu nous a rétablis. Sois aujourd'hui =
+égal à toi-même. Car, si tu commandes encore sur cette
+terre, mieux vaut qu'elle soit pleine d'hommes que à
+déserte. Une tour ou une nef, en effet, si vaste qw'elle
+soit, n'est rien, vide d'hommes.
+
+MO A0 de TIM
+‘SN Charles Péguy Le 4
+| OIDIPOUS. #
+| 4
+O lamentables enfants! Je sais, je n'ignore pas ce que
+vous venez implorer. Je sais de quel mal vous souffrez L
+tous. Mais quelles que soient les douleurs qui vous 4
+affligent, elles ne valent pas les miennes; car chacun de ‘|
+| vous souffre pour soi, sans éprouver le mal d'autrui, et $
+moi, je gémis à la fois sur la Ville, sur vous et sur moi. À
+Certes, vous ne m'avez point éveillé tandis que je dor- û
+mais; mais, plutôt, sachez que j'ai beaucoup pleuré et
+| agité dans mon esprit bien des inquiétudes et des pen- M
+sées; de sorte que le seul remède trouvé en réfléchis- A
+sant, je lai tenté. C'est pourquoi j'ai envoyé à Pythô,
+aux demeures de Phoiïbos, le fils de Ménoïkeus, Kréôn,
+mon beau-frère, afin d'apprendre par quelle action ou i
+par quelle parole je puis sauver cette ville. Déjà, comp- {
+; tant les jours depuis son départ, je suis inquiet de ce
+qu'il fait; car il y a fort iongtemps qu'il est absent, et au F
+| délà de ce qui est vraisemblable. Quand il sera revenu, À
+que je sois tenu pour un mauvais homme, si je ne fais f
+ce qu'aura prescrit le Dieu! À
+- À
+Copiant cette traduction pour l'envoyer aux imprimeurs, elle m'apporte, elle aussi, une grande déception. À
+Elle est rapide, ce qui serait un bien. Mais elle est 4
+lâche. Mais elle est vague. Mais elle est éloignée. Mais M
+elle est supérieure. Et il me semble qu'elle fourmille des M
+contre-sens les plus graves. Ces contre-sens ne seraient k
+rien encore, parce qu'un bon contre-sens, comme le #
+disaient avec un soulagement nos bons maîtres, est une
+
+; LES SUPPLIANTS PARALLÈLES
+faute parfaitement caractérisée, nettement délimitée. À
+Mais ce qui est beaucoup plus grave que tous les
+contre-sens, c'est ce flottement continuel, ce relâchement, ce vague, ce sans-gêne avec un texte, ce vête- :
+ment trop lâche et nullement drapé, nullement serré,
+nullement épousé, ce vêtement tout fait, cette confec- 1e
+tion, mal ajustée, mal juste, appliquée aux figures qui
+le méritaient le moins, aux formes antiques, c'est-à-dire, :
+de toutes les formes, à celles qui le supportent le moins.
+Était-ce impatience de génie d'un grand poète ? incapable, par son activité, par sa poussée propre, de suivre
+dans le détail un peu poussé l'œuvre d'un autre, füt-ce
+d'un autre grand poète, et surtout d'un autre grand
+poète, d'un aîné, d'un ancien. Mais le génie n'éclate nulle
+part autant que dans le détail poussé. Était-ce, en même
+temps, incapacité de travailler longtemps, et longuement, à un travail de cet ordre. Trop grand homme.
+Trop grand poète. Trop olympien. Pour traduire du grec.
+Était-ce, inséparablement, en principe impatience de
+génie en fait se manifestant par une impatience de travail et même par la négligence du travail. Il est évident
+qu'en de tels exercices l'attention s'émousse rapidement. L'étreinte fatigue, comme en tout art, en toute
+science, en toute philosophie. La fatigue vient vite.
+Les yeux se brouillent, et l'esprit. Le temps fait défaut. à
+Le rouleau passe. On ne peut demander à un homme
+de travailler des jours et des jours comme on travaille
+un quart d'heure, et des années comme on travaille =
+quelques semaines. La fraîcheur est ce qui vient à
+manquer la première. La soudaineté. L'instantané.
+On ne peut demander à un grand homme de travailler
+comme un écolier, ni à un très grand poète de peiner
+
+à à Charles Péguy !, | INRP 4
+à ; toute sa vie comme un gueux de quatre semaines. k
+4 4 On ne peut pas demander à un moderne cette forme
+* de patience dans le travail, ce consciencieux à la 4
+k. | fois éternel et instantané, immédiat et idéal, direct et e
+É infini, qui au moyen-âge résidait aux cœurs des humbles f
+de | de tout un monde. Si Leconte de Lisle avait mis tout un !
+É É mois pour traduire les 77 premiers vers d'Œdipe roi, . 4
+FE :  Œdipe roi tout entier, quinze cent trente vers, je dis 1530, Lt
+v4 lui demandait vingt mois ; Sophocle tout entier, sept tra- ;
+gédies, qui font un sept cinquante, lui demandait cent !
++ quarante mois, douze ans. Eschyle, qui fait un sept cin- 1
+ie quante, douze ans. L'Jliade, qui fait un sept cinquante,
+
+} douze ans. L'Odyssée, qui fait un sept cinquante, douze
+Hs ans. Hésiode, un sept cinquante, douze ans. Nous voicï |
+à soixante ans. Il ne lui serait pas resté une heure pour |
+$ être ce qu'il était, c'est-à-dire Leconte de Lisle, un des |
+Aa plus grands poètes français, un des plus grands poêtes 1
+| modernes. |
+Et je n'ai compté ni Horace, texte et traduction, ni À
+: Euripide, traduction nouvelle, ni Virgile, texte et tra- |
+M ‘ duction. Et ici je m'aperçois que sous une forme 1
+ê éminente et dans un cas particulièrement éminent nous à
+; rejoignons ici cette ancienne contrariété intérieure des |
+| méthodes historiques prétendues scientifiques, — je dis |
+; ancienne parce que j'ai déjà pu en signaler l'importance |
+
+ÿ capitale, — premièrement en ce sens que de telles
+
+méthodes conduiraient le traducteur, grand poète
+
+moderne, à mettre beaucoup plus de temps pour faire
+; la traduction d'une tragédie que le premier poète, È
+antique, étant donnée leur fécondité connue, n'en avait s
+\ mis à faire le texte même; deuxièmement en ce sens À
+
+qu'elles conduiraient le même poète moderne à mettre
+
+ce
+
+j LES SUPPLIANTS PARALLÈLES
+beaucoup plus de temps pour faire la traduction d'une
+tragédie ancienne que pour faire lui-même une tragédie
+nouvelle.
+
+Je suis donc forcé de me rabattre sur ma pauvre traduction d'écolier. Les personnes qui pour avoir d'un
+seul tenant la teneur de la supplication antique, et de la
+réponse, comme elles ont eu dans Avenard d'un seul
+tenant la teneur de la supplication moderne, et de la
+réponse, auront le courage de la relire, comme j'ai
+eu la patience de la recopier d'ensemble, sont priées
+de la vouloir bien lire comme un maître indulgent lit
+un devoir appliqué, une copie d'élève, de vouloir bien
+la lire comme je l'ai faite, comme je la présente, comme
+un devoir d'écolier assez vieilli, comme un devoir
+d'écolier en retour :
+
+ŒpræEe
+
+O enfants, du Kadmos d'il y a longtemps neuve géné-
+ration nourrissonne, quels sièges donc d'agitations
+tumultueuses me tenez-vous, ceux-ci, — couronnés de
+rameaux d'olivier suppliants? Et la cité est pleine
+ensemble de parfums d'encens brûlés, et ensemble de
+péans et de lamentations ; que jugeant (juste), enfants,
+de ne pas entendre de messagers, autres, moi-même ici
+ainsi je suis venu, le célèbre à tous Œdipe appelé.Mais
+Ô vieillard, parle, puisque de naissance il convient que
+tu parles pour ceux-ci, dis-moi dans quelle attitude vous o
+êtes là, de crainte, ou affectueuse ? dans cette pensée
+que je veux suflire à tout : car je serais dur à la
+douleur, de n'avoir point en pitié une telle session que
+celle-ci.
+
+37 les suppliants. — 3
+
+PURE At È ag te EP ANOMEEP VONE PETER)
+ñ Charles Péguy SERRE CR
+a LE PRÊTRE
+à Oui (eh bien), à Œdipe, maître de mon pays, tu nous
+f vois, de quel âge, nous sommes prosternés au pied de
+1 tes autels : les uns n'ayant pas encore la force de voler
+Et, une longue traite, les autres lourds de vieillesse, et moi « NE prêtre de Zeus, et ceux-ci choisis parmi les jeunes gens; |
+: k et le reste du peuple, ceint de couronnes, est assis dans 4
+ue les places, et au double temple de Pallas, et sur la #
+; cendre prophétique de l'Ismènos. Car la cité, comme tu |
+à le vois là (et) toi-même, roule à présent d'un violent |
+; roulis, désormais incapable de resoulever la tête des
+ï fonds de ce roulis rouge de sang, dépérissant par les
+di bourgeons des fruits de la terre, dépérissant par les
+ie troupeaux paissants de bœufs et par les enfantements
+stériles des femmes; et (là-dedans) le dieu porteur de 4
+à feu, s'étant élancé, pourchasse, peste suprême ennemie,
+| la cité, peste par qui se vide la maison Kadméenne ; et |
+le noir Hadès s'enrichit de lamentations et de cris. Non #4
+pas égalé aux dieux, (donc), te jugeant, ni moi ni ces
+è enfants que voici, nous sommes assis au pied de tes 4
+autels, mais (te jugeant) le premier des hommes et dans À
+| les conjonctures de la vie et dans le commerce des Es
+RER divinités ; toi qui (du moins) délias, venant dans la ville M
+de Kadmos, le tribut de la dure chanteresse, que nous }
+fournissions, et cela ne sachant rien de nous de plus, ni
+4 n'en ayant été enseigné, mais c'est par une assistance 4
+divine que l'on dit et que l'on pense que tu nous dressas
+| notre vie; et maintenant, Ô tête d'Œdipe sur toutes (ou F
+sur tous) la plus puissante, nous te supplions tous, que À
+voici tournés vers toi, de nous trouver une force de
+
+_ secours, soit ayant entendu la voix de quelqu'un des DUR:
+_ dieux, soit que tu saches de quelque homme ; car je 210 “
+F vois les événements même des conseils vivre sur tout Er di a
+; par les hommes d'expérience. Va, à le meilleur des né
+_ mortels, redresse la cité; va, prends garde; car à pré- FR
+si sent cette terre te nomme sauveur pour ton zèle (OA) ne
+_ d'avant; que nous ne nous rappelions en aucune ma
+À nière ton commandement nous étant levés d'abord en #4 5e
+, droit pour être ensuite retombés en arrière, mais dans Ke Lu
+la stabilité redresse cette cité. Car par un oiseau de 100
+. bon augure et tu nous a fourni la fortune d'alors, et à 1 Le
+. présent deviens égal. Car si tu commandes cette terre, FE
+comme tu en es le maître, ilest plus beau d'en être Re
+_ le maître avec des hommes que vide; car ce n'est rien, Ru
+_ ni une tour ni un vaisseau déserté d'hommes qui ne 40e ‘y
+. demeurent pas ensemble dedans. MS
+? | ŒprE ; 12
+© enfants lamentables, désirant des choses connues FLOUE
+1 et non inconnues vous êtes venus à moi. Car je sais el 5
+# bien que vous êtes tous malades, et étant malades, 424
+É comme moi il n'y a pas un de vous qui soit malade PE
+_ également. Car votre douleur à vous va vers un seulun 19
+_ en ce qui le concerne lui-même, et nulle personne autre, « ia
+| mais mon âme gémit sur la cité, et sur moi, et sur toi à LA 4
+| ensemble. De sorte que vous ne m'éveillez pas dormant LE:
+k: dans le sommeil; mais sachez que j'ai versé beaucoup LE
+
+À de larmes, et que j'ai enfilé beaucoup de routes dans ne) Ê
+
+les errements de la souciance. Mais le seul remède ve
+
+| qu'en bien considérant j'ai trouvé, celui-là, je l'ai fait : N
+
+| car le fils de Ménécée, Créon, mon beau-frère, je l'ai 4
+
+Charles Péguy dj
+envoyé vers les demeures Pythiques de Phoibos, afin
+qu'il demandât et apprit quoi faisant ou quoi disant je
+sauverais cette cité. Et moi le jour déjà, calculé en
+comparaison du temps, me peine que fait-il? car audelà du convenable il est absent plus long que le temps
+convenable. Et quand il viendra, à ce moment-là je
+serais un mauvais, de ne pas faire tout ce que le dieu M
+manifeste. è
+
+Relisant ma traduction, je me rends bien compte qu'une |
+telle pauvre traduction, honnête, mais pauvre, justifie A
+abondamment toutes les lâchetés, — j'entends cemoten M
+un sens presque physique, — tous les relâchements d'un
+
+Leconte de Lisle. Et même d'un autre. Il ne faudrait pas
+
+lire en effet beaucoup de pages d'un français comme celuilà; on deviendrait fou avant la catastrophe; à plus forte
+raison le malheureux qui se chargerait de l'écrire. C'estla |
+
+misère commune de toutes les traductions. Quand elles
+sont courantes, elles ne serrent point le texte. Et quand |
+\ elles serrent le texte, ou quand elles s'efforcent de le l
+serrer, elles sont illisibles. Et même étant illisibles elles À
+sont encore défectueuses. Même à cette condition, elles à
+n'obtiennent point le repos. Ma pauvre traduction, qui M
+; est grotesque presque d'un bout à l'autre, à force de À
+vouloir serrer le texte : pour qui a le texte sous les M
+
+yeux elle est encore trop lâche elle-même et ne serre pas
+; encore assez le texte. Une traduction qui veutserrerun M
+| texte est longue. Ma traduction me paraît à la lecture
+beaucoup plus longue, plus lente que celle de Leconte M
+de Lisle. Une traduction qui veut serrer un texte est
+
+lente. Elle a des reprises, des retours, des remords. Elle
+
+A y 40
+
+| LES SUPPLIANTS PARALLÈLES
+
+se fait des reproches. Le texte, maître et prétexte et
+désespoir du traducteur jouet, le texte, ennemi de toute
+traduction. Tant il est vrai que les textes sont littérale- ko?
+ment incommunicables, et que nous devons renoncer
+à cette insoutenable hypothèse, à cet indéfendable postulat des méthodes historiques prétendues scientifiques, modernes : qu'il peut y avoir, qu'il y a des transcriptions, des transpositions, des traductions, des
+transferts, des communications exactement exactes. Ce
+qui est vrai, au contraire, ce que la réalité nous
+enseigne impitoyablement et sans aucune exception,
+c'est que toute opération de cet ordre, toute opération
+de déplacement, sans aucune exception, entraîne impitoyablement et irrévocablement une déperdition, une
+altération, et que cette déperdition, cette altération est
+toujours considérable.
+
+Pour qui n'a pas le texte sous les yeux, une traduction }
+est toujours trop compliquée. Pour qui a le texte sous
+les yeux, une traduction est toujours trop lâche.
+
+C'est la commune misère de tout travail humain; le
+mystérieux balancement : quand on a la fraîcheur, on
+n'a pas la compétence. Et quand vient un peu la compé-
+tence, on s'aperçoit qu'on n'a plus la fraîcheur, qui
+ne reviendra jamais, que rien ne remplace, qui est le
+premier des biens.
+
+Quand on pose la question ainsi, d'ailleurs, il est
+impossible de se soustraire à la constatation de cette
+vérité élémentaire; mais le jeu des tenants des méthodes e
+historiques prétendues scientifiques, modernes, est de
+faire semblant de ne pas voir que la question se pose
+ainsi.
+
+Tout ce que je me suis permis sur Leconte de Lisle a
+
+4x
+
+fs Charles Péguy 4
+k $ été de me dispenser de ne pas traduire les noms pro- #
+e: à pres, comme il fait. J'ai aussi traduit isosic par prêtre, M
+ce qui est moins savant, que par sacrificateur. \
+à J'ai traduit Oidirox par Œdipe et non point par M
+Era Oidipous, comme dans l'/liade je traduirais 'AyDeis #4
+‘si par Achille et non point par Akhilleus. Et ainsi de
+| suite. Je me demande avec inquiétude si dans Leconte #4
+Æ de Lisle cette ostentatoire transcription du nom propre,
+h au lieu d'une ordinaire traduction, ne fait point la pièce
+. essentielle d'un appareil artificieux destiné à donner le 4
+change au moderne sur le degré de strict resserrement
+j de la traduction. Autant que personne, mieux que personne il savait à quoi s'en tenir sur sa traduction; M
+| mieux que personne il savait combien elle était lâcheet
+. flottante. Mieux que personne il savait aussi, mieux que « ya personne ayant le sens de la forme et des formes, com- ;'
+bien une traduction vaut par le strict resserrement; par
+à 3 l'ajustement ; mieux que personne il savait qu'une tra- }
+duction ne vaut par aucune qualité comme par le fouillé
+: du détail, par le travaillé du rendu, par l'ajusté, par É
+| l'ouvragé, par le détaillé, par le poussé. Mieux que personne il savait ce que vaut une nuance, une forme, un
+geste, une attitude, le prix infini d'une ligne, l'éternité
+? de la ligne, l'incommutabilité du trait exact. Et que
+é l'art n'est rien s'il n'est point une étreinte ajustée de
+quelque réalité. Quand même il ne l'eût pas su comme « traducteur, ce qui est invraisemblable, le très grand
+poète qu'était Leconte de Lisle ne pouvait l'ignorer, et
+a bien montré qu'il ne l'ignorait pas tout aussitôt èt M
+toutes les fois qu'il ne s'agissait plus que d'établir ses à
+‘ propres textes. J'ai peur qu'en affectant de ne pas tra- M
+duire les noms propres, il n'ait eu la pensée de donner M
+62 |
+
+eau une
+à LES SUPPLIANTS PARALLÈLES ji pa
+i le change au lecteur moderne sur le degré de resserre- Ni
+. ment de sa traduction, de faire une sorte de compensa- ù
+tion, entre le relâché de tout le reste et la stricte appli- ii
+_ cation de ce nom propre transcrit non traduit collé de
+comme une étiquette ; comme d'un habit qui n'irait pas, ‘ At
+d'un vêtement tout fait, d'un tissu (texte) lâche que l'on fe
+voudrait ressaisir, que l'on repincerait hâtivement par
+quelques épingles, — mettons par quelques fibules, —
+piquant, au risque de piquer à même la peau. F
+Puisqu'on traduit, je me demande, en vain, pourquoi l'on f
+ne traduirait pas tout. Puisqu'on traduit tous les autres Faux
+mots, et particulièrement les noms communs, il n'y a
+aucune raison pour que l'on ne traduise pas aussi les
+noms propres, quisont du même langage, et particulièrement du même texte. Puisque l'on fait tant que de tra | |
+duire, je me demande pourquoi l'on ne traduit pas tout. À
+Si je traduis ispec, Boot, téxva, par prêtre, autels, enfants, l'E
+pourquoi ne pas traduire également et pareillement :
+Oùdtrovs par Œdipe. Si je traduis boire et manger, aller À
+et venir, pourquoi ne pas traduire pareillement le nom n
+de celui qui boit et qui mange, de celui qui dort, de \
+celui qui va et vient. Pourquoi cette inégalité, cette
+imparité, pourquoi introduire dans la traduction cette KE
+désharmonie artificielle, ce manque, cette rupture
+d'harmonie, de symétrie, cette rupture d'équilibre, ce
+plaqué, ce corps mort dans un organisme vivant, ce
+fragment mort dans une phrase vivante, ce fragment |
+ancien dans une traduction qui est forcément un texte r
+nouveau, ce fossile dans un organisme, cette esquille, ce Hs)
+morceau tout fait dans un ensemble que l'on fait, ce
+morceau immobile et raide, figé, fixé, dans une phrase
+mouvante et vivante et souple. Pourquoi enfin refusez- F4
+63 )
+
+Charles Péguy M
+vous de traduire le même homme, Œdipe, quand il
+paraît sous son nom de Oièirovs, et consentez-vous à le
+traduire quand il paraît sous son nom de zipa »vos, que
+vous ne traduisez ni par tyran, ni même par tyrannos, M
+‘ mais tout bonnement par le mot roi, et ce pour desrai- M
+sons historiques. Vous êtes conduit ainsi à vous contenter de la traduction suivante : Oidipous-Roi. Vous n'êtes
+point conséquent avec vous-même. Vous n'êtes point 5
+strict. Il fallait traduire ce titre ainsi Oidipous Tyrannos ; u
+ou traduire comme tout le monde (Œdipe-roi. Et le trait M
+d'union, mettrez-vous ce trait d'union, qui nm'existait
+point dans le grec, je pense, et qui aujourd'hui fait la M
+joie de notre bon camarade M. Gabriel-Ellen Prévost?
+? Il y a beaucoup d'enfantillage dans votre cas et beaucoup d'ostentation. Vous me répondez que Oiirovs n'est
+pas Œdipe, et qu'il y a de l'un à l'autre d'incalculables M
+distances. Vous avez cent fois raison. Mais cet argument
+à ne va pas seulement contre la traduction des noms |
+propres; il ne va pas seulement contre la traduction de {
+Oùirow en Œdipe : il va également et totalement contre 4
+toute sorte de traduction, et notamment contre la tra- M
+duction des noms communs. Si vous signifiez seulement 1
+par ce que vous dites que toute traduction comporte ?
+une altération, entraîne une déperdition, c'est ce que
+nous avons dit cent fois, mais cela est vrai des noms M
+communs au moins autant que des noms propres. |
+Si vous signifiez ainsi que toute traduction est une }
+opération essentiellement imparfaite et qu'il y a toujours entre un texte et toute traduction de ce texte M
+une distance irrémissible, vous abondez dans mon sens, À
+puisque nous rejoignons ici cette capitale insuffisance
+des méthodes historiques prétendues scientifiques,
+4%
+
+Î LES SUPPLIANTS PARALLÈLES
+
+k, modernes, à opérer une seule reproduction parfaite,
+
+_ une seule communication exactement exacte. Seulement
+vous n'en pouvez conclure que ceci : que toute traduction est une opération vaine, une opération impossible,
+et qu'il vaudrait peut-être mieux ne pas s'en mêler du
+tout; et à mon tour j'abonderai dans votre sens; mais
+vous n'en pouvez conclure qu'il faut traduire tout le
+
+_ reste et ne pas traduire les noms propres. Il faut ne pas
+traduire du tout, ou que toute la traduction soit une traduction commune, ordinaire, modeste, usuelle, usagère.
+
+Vous me dites que Oùdtrow n'est pas Œdipe. Croyez-
+
+| vous que zipavos fasse roi? Croyez-vous que ispeic fasse
+prêtre, et même sacrificateur ? au sens que ces deux
+mots éveillent dans un esprit, dans une âme moderne,
+en admettant que le deuxième éveille un sens dans un
+esprit ou dans une âme moderne. Croyez-vous que Bwuot
+soient autels, au sens que nous entendons autels ? Et
+même Croyez-vous que réxv+ soient enfants, et ne savezvous pas qu'il y a aussi des distances autant irrémissibles
+entre ce que réxvx éveillait dans les échos de l'âme antique
+et ce que enfants éveille dans les autres échos de l'âme ;
+moderne. Téxv« même n'est point enfants, rpoo1 n'est
+point nourriture, rd\x n'est point seulement ville ni cité;
+puisque c'est nommément une cité grecque; rien n'est
+rien; rien ne se refait parfaitement, rien ne se recommence, rien ne se reproduit exactement, rien d'ancien
+n'est en même temps nouveau, rien de nouveau n'est en
+même temps ancien ; de tout à tout il subsiste éternel- :
+lement des distances irrémissibles ; et c'est pour cela que
+toute opération de traduction est essentiellement, irrévocablement, irrémissiblementune opération miséreuse, une
+opération misérable et vaine, une opération condamnée.
+
+4) les suppliants. — 3.
+pi
+
+. Charles Péguy SCENE
+Mas Lui-même Leconte de Lisle, même traducteur, ilnese
+) conforme point jusqu'au bout à sa doctrine. Il dit Oidi-
+; pous, mais il dit Sophocle, et non point Sophoclès. Et il %
+ne dit Homère. Et son éditeur le dit encore beaucoup plus M
+5% que lui. Et lui-même Leconte de Lisle, voici comme on M
+cl m'écrit qu'il nomme les sept tragédies de Sophocle : M
+J Oidipous-Roi, Oidipous à Kolônos, Antigone, Philok- M
+| tètès, Aias, Elektra. F
+| L'éditeur, en pareille matière, quand même il serait, M
+ti comme était Alphonse Lemerre, un prince de l'édition, M
+\ et qui ait attaché son nom à tout un grand mouvement M
+; poétique inoubliable, quand même il serait un somp- M
+x tueux, un très notable commerçant, par cela seul qu'il D
+; exerce la marchandise, l'éditeur est ramené, automati M
+quement, à des conditions de vie plus communes, à des
+conditions de langage plus naturelles, à des conditions M
+de commerce et d'annonce plus actuelles, plus simples.
+J Leconte de Lisle peut dire Oidipous, Odysseus, Akhil- 4
+leus : M. Lemerre, dans ses catalogues, sur ses couver- M
+‘y tures, dit et annonce ÆEschyle, Homère, Sophocle, Euri- ë
+pide, Hésiode, — Virgile, Horace, — car la même €
+: question se pose, moins aiguement, mais elle se pose M
+| pour les Latins. C'est que M. Lemerre en vendait, On M
+peut encore écrire Sophoclès, par une espèce de gageure
+et d'amusement, mais on ne peut vendre que du Sophocle.
+Et encore on a bien du mal à en vendre. »
+1084 J'ai peur qu'il n'y ait ici dans Leconte de Lisle une 4
+survivance, un héritage de cette basse manie des î
+4 romantiques d'épater le bourgeois. Car enfin il faut
+choisir : ou lire dans le grec, ou parler, écrire dans le M
+français si l'on a ce malheur, de faire une traduction. M
+Il faut lire, écrire, commercer, converser dans le … k-
+
+a | LES SUPPLIANTS PARALLÈLES VAT
+4 grec, ou honnêtement tout faire en français. Tra- ELNT
+duire un poème du grec dans le français, cela ne : pe ù
+k peut avoir qu'un sens, un sens bien misérable, je k
+_ l'avoue, mais cela ne peut avoir qu'un sens : essayer 5
+
+d'obtenir chez le lecteur français et pour le lecteur fran- a s
+çais par la traduction française un effet qui soit, muta- Ti
+tions faites, autant que possible symétrique, homothé- ps
+tique, de l'effet obtenu chez le spectateur, chez le lecteur, XL
+_ chezl'auditeur grec et pour le spectateur, pour le lecteur, é
+* pourl'auditeur grec parle texte originel grec. Or cesnoms à
+de Oidirous, Odvasse, Ayieic étaient tout familiers aux Fa
+anciens Grecs, et quand ils rencontraient ces noms dans |
+_ le discours, ils n'étaient non plus surpris de les y ren-
+- contrer que nous ne sommes surpris de rencontrer dans e
+nos discours ces noms si répandus de Henri, d'Albert, k AN
+ou de Meunier. Ils disaient exactement Kpiwy comme A
+nous disons Durand. Il vaut donc mieux, il est plus ie
+intelligent, il est, au fond, plus exact et mieux traduit, A
+que dans nos traductions nous trouvions à ces mêmes x
+endroits des noms qui non plus ne nous surprennent ME
+pas. Quand je trouve Akhilleus dans une phrase fran-
+çaise, inopinément je reçois un heurt, un certain choc, in 1
+une impression d''hétérogène, de corps étranger, que par LA
+définition le Grec ne recevait, absolument pas, au même À
+endroit. Est-ce là ce que l'on demande? Est-ce là ce À
+que l'on veut obtenir ? Est-ce là ce que se propose une j
+traduction? de faire subir au moderne, à de certains tit
+moments bien déterminés, un traitement que l'ancien F
+ne subissait point à ces moments, de faire faire à celui 65
+qui lit la traduction précisément un sursaut que l'on est
+assuré que l'originel ne faisait pas. Quand je trouve ;
+Akhilleus dans une traduction, je bronche, parce que }
+| 43 ‘
+
+Charles Péguy L
+| cest du grec, dans du français, un État dans l'État, 1
+| un royaume de langage dans un royaume de langage.
+Au même endroit le Grec ne bronchaït pas, il continuait, il passait, uniment, parce qu'il trouvait 'Ayuebe, ù
+et que 'AyMkei, pour le Grec, c'était du grec, dans du
+grec, homogène. Où le Grec aurait pu manifester un :
+certain étonnement, légitime, c'était s'il avait trouvé )
+Û dans son texte Dupont ou Durand. C'est pourtant ce ü
+que l'on nous fait quand on nous fait trouver dans nos À
+textes Akhilleus. 4
+Il n'y a pas plus de raison pour que nous trouvions un $
+mot grec, fût-ce un nom propre, en vrac, non traduit, s
+dans une traduction qui est somme toute elle-même un
+texte français, qu'il n'y a de raison pour fourrer un M
+mot français, füt-ce un nom propre, en vrac, non traduit, dans un texte grec, dans le texte original grec. 4
+Cela est si vrai que l'on se demande et qu'il n'y a à
+vraiment absolument aucune raison pour que l'on ait
+mis au nominatif ces noms propres que l'on refusait de )
+traduire. C'est un contre-sens formel, c'est un non-sens 1
+formel, c'est tout ce que l'on voudra, mais ce n'est plus 1
+du tout du grec, et ce n'est pas davantage du français, M
+que de dire, que d'écrire : La déesse prit Odysseus par la
+main, ou : le dieu poursuivait Akhilleus. Il faudrait dire :
+au moins : (a déesse prit Odysséa par la main, ou:le M
+dieu poursuivait Akhilléa. Puisqu'on parle grec, il faut 4
+décliner. Et ici, en ce point éminent, apparaît toute la À
+9 vanité de cette ostentation. Le nominatif n'est pour
+nous un Cas éminent que parce que nous nous en servons artificiellement pour désigner en français le mot ë
+grec déclinable; parce que nous nous servons. de dic- U
+ù tionnaires; et nous ne nous en servons pour désigner le ÿ
+
+à LES SUPPLIANTS PARALLÈLES
+
+F mot grec en français, dans nos dictionnaires grecs- |
+français, et dans tout ce qu'il y a de dictionnaire dans
+nos exercices même oraux que parce que c'est le cas
+qui est le premier dans les déclinaisons des gram- '
+maires; mais quand nous disons que Achille se dit en
+grec 'Ayeic, nous mentons : Achille se dit en grec
+'Aynkeie, 'Aynws, et ainsi de suite, et autant 'Ayéws
+que 'Ayeïs, et autant "Aya que 'Aydéwc. Il n'est
+que trop évident, et il y a quelque honte à le dire, que k
+dans le discours, vrai, dans la langue vivante, tous les
+cas sont égaux entre eux, ont grammaticalement et d
+organiquement la même importance, représentent également le mot; quelle devient donc la difficulté quand il
+s'agit d'un mot comme Z:ve, Znvds, ou Atoc, Art, Al, où le
+nominatif s'éloigne autant de toutes les autres formes;
+notons que dans ces cas ce ne sont pas les autres
+formes qui s'écartent, — autant que ce mot d'ailleurs
+peut avoir un sens, — du nominatif, mais que c'estle
+nominatif, par qui vous désignez vocabulairement le
+mot, qui est à l'écart des formes les plus nombreuses
+du mot. — Et si l'on croit que dieu traduit 06, et que
+déesse traduit 64. Étant donné tout ce qu'il y a pour
+nous modernes dans ce mot de Dieu. Qui chez nous
+modernes, et pour nous en tenir à la différence morphologique la plus apparente, et la plus grossière, est toujours masculin, mais n'a plus de féminin. Et quand
+mettra-t-il ou ne mettra-t-il pas de grande capitale au
+mot Dieu. Quand écrira-t-il Dieu ? et quand écrira-t-il
+simplement dieu ? Et quand mettra-til au pluriel ? . z
+Qu'est-ce pour un chrétien que le pluriel de Dieu? et
+surtout pour un juif? Et quand il traduit datuwy, au singulier il mettra daimôn, avec un à long, et au pluriel il
+
+à Charles Péguy FETE A.
+a met daimones, avec un o bref, à cause de Datuovse, c'est- M
+h< } à-dire que refusant de transcrire l'accusatif singulier 1
+à morphologiquement distinct du nominatif singulier, il Î
+
+:  transcrit tout de même le nominatif pluriel morpholofé giquement distinct du nominatif singulier. k:
+
+Cela est si vrai que Leconte de Lisle, pour son usage Fe
+personnel, pour ses propres poèmes, savaitparfaitement À
+1h quand il fallait traduire, et non pas simplement tran- M
+| scrire. Poèmes antiques. Vénus de Milo : ! %
+A ni:
+ê Tu n'es pas Aphrodite, au bercement de l'onde,.… : |
+| Tu n'es pas Kythérée, en ta pose assouplie,.… h:
+b Et tu n'es pas la Muse aux lèvres éloquentes,.… ë 4
+: La difficulté, le débat, la question, l'apparence dd
+| question, la solution spécieuse est venue précisément M
+; des dieux. Il est tout à fait évident, il est acquis, et nul be
+| aujourd'hui ne le conteste, que lorsqu'on traduisait Zeÿc à
+par Jupiter, on faisait un grossier contre-sens, parce 4 |
+Le que Zee et Jupiter, le dieu grec et le dieu latin, n'étaient M
+nullement le même dieu, faisaient . deux personnages
+différents, notablement distincts. De même il y avait à
+| danger à traduire ‘Hoaxñ< par Hercule. Mais le contre
+sens ne venait pas de ce que l'on s'était proposé de tra- ;
+
+x duire le nom grec en français. Il venait uniquement de 4
+
+2. ce que s'imaginant traduire le nom grec en français, on l
+
+: l'avait traduit en latin. Et la rectification que l'on a faite |
+
+| ne prouve nullement qu'il ne faut point, dans les versions Ü
+grecques, traduire les noms propres du grec en français. n.
+Elle prouve uniquement qu'il ne faut pas, sous prétexte 4
+: de français, les traduire en latin. : 1%
+F4
+
+> » cha ?À
+
+‘À | LES SUPPLIANTS PARALLÉLES ani
+; Un exemple fera saisir toute la différence : quand on LES
+| traduisait 'Agooblrn en Vénus, on commettait ce contre- 1
+_ sens; mais il ne s'en suit nullement qu'il ne soit pas
+permis de traduire et même qu'il ne faille pas traduire
+séparément Venus par Vénus, et'Awcodtrn par Aphrodite. :
+Et encore ‘How par Hèraklès, et le latin Hercules
+par le français Hercule.
+
+A plus forte raison la difficulté tombe-t-elle partout
+ailleurs, puisqu'il n'y a point un Homerus latin qui soit
+le correspondant de l''Ounsos grec et pourtant qui soit
+autre que cet "Ounpos, comme il y a un Jupiter qui est le
+
+correspondant de Zeic dans une mythologie demi-filiale
+et demi-parallèle, et qui pourtant est autre que: Zebe.
+| La raison, le bon sens, le goût, maître souverain, le
+goût, maître indéplaçable, l'harmonie, l'homogénéité, la
+tenue du discours demandent que dans un texte français
+tout le parler, tout le discours, tout le langage soit fran- à
+çais, soit du langage français. Donner et retenir ne à
+vaut : puisque l'on fait tant que de traduire, on ne peut '
+pas, en même temps, traduire et ne traduire pas. Nos LAC)
+anciens, à nous, nos grands Français, allaient très loin AU
+dans le sens de la traduction. Émilie, Fulvie, dit le
+grand Corneille, Évandre, Curiace, Horace.
+Regarde le malheur de Brute et de Cassie.
+
+Cela n'empêche point Cinna et les Horaces d'être deux
+chefs-d'œuvre extraordinaires et deux tragédies presque
+extraordinairement romaines. — Je dis cela exprès ;
+parce que c'est vrai et pour embêter nos modernes
+exégètes, et l'on m'assure que je n'y réussis que trop. —
+
+Je ne parle point de Pompée, de Nicomède, tragédie de 4%
+
+Charles Pégur 4 ds
+grande joie et d'amusement, de Polyeucte, tragédie chré- M
+tienne. Enfin ne disons-nous pas nous-mêmes Athènes, pi
+Rome, le sénat, ce qui est presque un nom propre,
+un {riumvirat, ce qui est presque aussi un nom propre. ;
+Et le grand Racine, de ce qu'il disait Andromaque, +
+Oreste, Hermione, et de ce qu'il a nommé Phèdre son
+immortelle Phèdre, n'en a-til pas moins eu de l'anti
+quité hellénique une divination, une pénétration presque ÿ4
+invraisemblable. 4
+Et quand nous disons le ciel, quelle différence avec À
+oÿpavds, et même avec caelum. Et au contraire sommes- ;
+nous beaucoup plus près quand nous disons des Paians }
+que quand nous disons des péans. Au fond, ce n'est ni ë
+l'un ni l'autre; ce sont des zaréves. 11
+Et le grand Leconte de Lisle, quand il ouvrait pour À
+son propre compte, il savait parfaitement ce qu'il avait 4
+à faire. Il savait quand il fallait traduire tout à fait É
+L dans le langage le plus commun, transcrire au contraire a
+purement, ou traduire à moitié ; il connaissait toutes les 4
+1 nuances intercalaires. Je n'en veux pour témoin que ce :
+| poème antique, cette si parfaite et admirable invocation 4
+à la Vénus de Milo. Et quand ce ne serait que ce titre: A
+Vénus de Milo : quelle concession à l'usage le plus
+commun. Je cite entièrement cetteinvocation parce qu'elle
+présente précisément tous les degrés souhaïtables de la 4
+transcription pure à la traduction ordinaire pour les :
+noms propres et demi-communs, et aussi, dans un autre À
+: sens, tous les degrés souhaïtables du pur nom propre au ï
+nom communément commun. Je la cite entièrement A
+surtout parce que lorsque l'on a parlé aussi longtemps Le
+d'un grand poète il faut, à moins d'être soi-même un o
+béotien, finir par une citation de lui, par un poème |
+52 K
+à
+on]
+
+‘4 LES SUPPLIANTS PARALLÈLES
+entier, intact, qui fasse oublier au lecteur tout ce que
+soi-même on a pu dire. :
+Je prends mon texte dans ma vieille édition sortie de
+chez Poulet-Malassis et de Broïse, imprimeurs-libraires-
+éditeurs, 9, rue des Beaux-Arts, 1858. Je ne pense pas
+qu'il ait rien changé dans l'édition Lemerre :
+VÉNUS DE MILO
+M: sacré, vêtu de force et de génie,
+Déesse irrésistible au port victorieux,
+
+Pure comme un éclair et comme une harmonie,
+
+O Vénus, à beauté, blanche mère des dieux!
+
+Tu n'es pas Aphrodite, au bercement de l'onde,
+
+Sur ta conque d'azur posant un pied neigeux,
+
+Tandis qu'autour de toi, vision rose et blonde,
+
+Volent les Ris vermeils avec l'essaim des Jeux.
+
+Tu n'es pas Kythérée, en ta pose assouplie,
+
+Parfumant de baisers l'Adonis bienheureux,
+
+Et n'ayant pour témoins sur le rameau qui plie f
+
+Que colombes d'albâtre et ramiers amoureux.
+
+Et tu n'es pas la Muse aux lèvres éloquentes,
+
+La pudique Vénus, ni la molle Astarté
+
+Qui, le front couronné de roses et d'acanthes,
+
+Sur un lit de lotos se meurt de volupté.
+
+Non! les Ris et les Jeux, les Grâces enlacées,
+
+Rougissantes d'amour, ne t'accompagnent pas.
+
+Ton cortège est formé d'étoiles cadencées,
+
+Et les globes en chœur s'enchaînent sur tes pas.
+
+53 F
+
+dr sa Charles Péguy |
+Ë Du bonheur impassible, 6 symbole adorable, \ À
+: Calme comme la mer en sa sérénité, $ Eu
+La Nul sanglot n'a brisé ton sein inaltérable, L
+Fa Jamais les pleurs humains n'ont terni ta beauté. ‘1
+; Salut ! à ton aspect le cœur se précipite. À
+à Un flot marmoréen inonde tes pieds blancs ; à
+# Tu marches, fière et nue, et le monde palpite, 4
+\ Et le monde est à toi, déesse aux larges flancs! 4
+à Bienheureux Phidias, Lysippe ou Praxitèle, 4
+| Ces créateurs marqués d'un signe radieux ; 4 î
+Ÿ Car leur main a pétri cette forme immortelle, 1 "
+< Car ils se sont assis dans le sénat des dieux! = 4
+Bienheureux les enfants de l'Hellade sacrée ! FL
+Va Oh ! que ne suis-je né dans le saint archipel, n.:
+ai Aux siècles glorieux où la terre inspirée 4
+Voyait les cieux descendre à son premier appel ? 4
+\ Si mon berceau flottant sur la Thétys antique 4
+| Ne fut point caressé de son tiède cristal ; CA
+£ Si je n'ai point prié sous le fronton attique \ w
+k Ÿ Vénus victorieuse, à ton autel natal; a
+% Allume dans mon sein la sublime étincelle ; À
+N'enferme point ma gloire au tombeau soucieux ; d
+| Et fais que ma pensée en rhythmes d'or ruisselle 4
+À Comme un divin métal au moule harmonieux ! #
+
+< ; [Au moment où nous mettons sous presse, on m'envoie .
+une fiche d'où il résulterait que dans la grande édition ù |
+À Lemerre, à sept cinquante, du même poème antique, on
+|
+| À 54 5 ë
+
++ . 1ms SUPPLIANTS PARALLÈIES seu ae y !
+riple ATOUT kr ok de LOT LA Han ; ME v à F4 NI ty NES 22
+2 PAMTILIPES » PE PARECES D AO À ae
+aurait multiplié les grandes capitales: ainsi Dieux, Mer, ÿ j ke
+Déesse, et non pas seulement Fellas ou Hellade, mais a ce :
+_ Archipel, Terre, Ciel ou Cieux, ce qui donnerait: ‘1
+1 AT EL
+À O Vénus, Ô beauté, blanche mère des Dieux ! Te SA 1
+È Calme comme la Mer en sa sérénité, .… A
+4 Et le monde est à toi, Déesse aux larges flancs!
+% Oh! que ne suis-je né dans le saint Archipel, a je
+te = . ï : US PARAIT
+| Aux siècles glorieux où la Terre inspirée VID RES $
+M : . « . Fa FANS
+$ Voyait les Cieux descendre à son premier appel ? FE
+Et même: FPS
++ a RES
+D Salut ! A ton aspect le cœur se précipite. Mc
+4 JAN
+; L S ATK
+À On ne saurait nier l'importance de cet agrandissement 71e f.
+ÿ systématique et de cette personnalisation de certains nn
+noms communs en noms propres par la grande capita- ‘70 sh 4
+h _ lisation systématique, — de l'édition pauvre, première PES
+_ et improvisée, à l'édition solennelle, à la grande édition 48 M3
+_ officielle et définitive, — de la lettre initiale. Car les
+_ Dieux, ce n'est plus seulement les dieux, et lequel des
+_ deux est le plus près de 00{, qui lui-même n'était pasce
+que furent di, qui eux-mêmes... Mais nous n'en finirions f dt
+Doom. ‘10
+LATE
+ù Sans exagérer non plus l'importance de ces typogra- nu.
+phies; car j'ai peur que ces éditions, j'ai honte de le
+_ dire, ne soient négligées. On a pu lire dans le texte :
+| ur
+_ Poulet-Malassis : LT
+Si mon berceau flottant sur la Thétys antique... D |
+4 , 1 CLAMESÀ g.
+
+(1 . pra 20e
+Charles Péguy RL
+à De la fiche que l'on m'envoie il résulterait que dans %
+la grande édition Lemerre on pourrait lire : L'
+} Si mon berceau flottant sur la Thétis antique.
+Or les dictionnaires donnent : @£zx, en transcription { 1
+Thétis, femme de Pélée, mère d'Achille, divinité de la À
+mer, et Tnûé<, en transcription T'êthys, femme d'Okéanos, À
+nourrice d'Hèra : c'est cette dernière, Tèthys, que les L
+poètes invoquent lorsqu'ils veulent signifier la mer i
+elle-même. Il y a un contraste piquant entre ces deux É
+fautes d'orthographe, dans deux éditions successives, FA
+l'une améliorée, faite à loisir et définitive, et cet apparat
+prétentieux de pure transcription des noms propres. $
+Mais tout de même, si j'avais été l'éditeur de Leconte
+de Lisle, le jour que Leconte de Lisle m'aurait apporté h
+un poème comme celui-là, je me serais efforcé de ne &
+pas lui faire des fautes d'orthographe.] #
+Porché me pardonnera d'avoir introduit ici le texte, #
+ou l'un des textes les plus éminents, de l'invocation, de D:
+la lamentation, de la supplication antique. C'est lui qui he
+m'y a forcé, en prenant pour son poème ce titre : Les ë
+suppliants. On sait qu'il avait d'abord donné à ce poème‘ M
+ce titre : l'icône, qui nous acheminait tout doucement à 4
+en faire un cahier de Noël. Mais ressaisissant sa vision, ie
+. et substituant à une image physique et morale centrale à
+une idée plus profonde encore, il ne tarda point à $
+donner au poème que nous publions ce titre essentiel, #
+qui ne commande pas seulement son poème, qui com- à)
+mande aussi bien tout le cahier, qui commande, qui L: |
+exprime toute la réalité même : Les suppliants. Et sui- |
+&
+p+
+
+À LES SUPPLIANTS PARALLÈLES
+
+vant son exemple je me suis permis, restituant un mot ?
+grec, une épithète grecque, de donner à cette brève
+étude ce titre : les suppliants parallèles.
+
+Les suppliants : c'est le propre du poète, c'est un don |
+de poète que de saisir d'un mot, que de ramasser en un
+mot toute la réalité d'un événement, la réalité profondément essentielle d'une histoire, d'un mouvement, d'un
+geste individuel ou collectif. Pour qui veut bien regarder
+à la réalité d'un événement, et non point s'arrêter aux
+apparences politiciennes, cette immense manifestation \
+du 22 janvier était en effet une supplication immense, et
+non point une immense tentative de mouvement révolutionnaire. Et dans toute l'attitude, dans tout le geste,
+dans toute la lente opération de cet immense peuple, ou
+plutôt de tous ces immenses peuples, tout homme qui
+regardera aux réalités des événements politiques et
+sociaux verra une immense, une infinie supplication, |
+une infinie opération suppliante, et non point une opé-
+ration révolutionnaire. -
+
+Ce sont nos Français qui font des opérations révolutionnaires, et qui par suite s'imaginent que les autres
+peuples font des opérations révolutionnaires ; aussi;
+car ils jugent tous les autres peuples d'après soi. Mais
+seuls ils font, ou du moins ils faisaient, des opérations
+politiques et sociales vraiment révolutionnaires, c'est-à-
+dire qu'ils commencent par démolir un régime et par en
+mettre un autre, plus ou moins houveau, à la place, ,
+quitte à s'apercevoir le lendemain que le nouveau ne
+valait pas mieux que le vieux, si même il valait le
+vieux.
+
+C'est pour cela que nos Français n'entendent générale-
+
+DA AAA ICS RAT MN EE
+soi Charles Péguy 1
+ment rien aux événements des autres peuples, et, moins
+; qu'à tous autres, aux événements de Russie. Dans cette M
+JE même Humanité, où pourtant paraissaient les corresponJE dances d''Avenard, la suffisance, la sottise, l'outrecui- | |
+| dance, l'aplomb avec lequelun Longuet, — pour ne plus ke |
+| parler de ses deux maîtres Herr et Jaurès, — l'aplomb
+avec lequel un Longuet disposait en maître souverain EL
+x des hommes et des plus formidables événements russes #
+et japonais, faisait un spectacle qui était d'un grotesque
+lui-même lamentable. pi
+ts Pour qui s'applique à suivre au contraire, et modeste-
+‘ ment, la réalité de ce qui se passe, pour qui sait lire le h.
+peu que l'on nous dit de vrai, et ne pas lire le reste,
+pour qui a su lire notamment le cahier d'Avenard, il est” 4
+aa devenu évident que tout le mouvement russe n'est point M
+; ce que nous nommons en France un mouvement révolu M
+ï tionnaire ; c'est ce qu'en langage français nous sommes ÿ
+contraints de nommer un immense mouvement de sup- M
+ie plication. Supplication particulière du 22 janvier nouveau
+| style, supplication culminante, éminente, symbole émi- 1 |
+nent, éminente réalité, supplication de tout le peuple }}
+/ ouvrier de toute une ville capitale au tsar que tout ce %
+peuple demandait au seuil de son palais de ville; mais | 4
+supplication qui n'était elle-même que le symbole et la A
+$ représentante de toutes les immenses supplications de À
+tous les peuples d'un immense empire : Supplications 4
+ï d'un si grand nombre de races opprimées, qui s'adres- 1
+sent aux capitales, aux villes importantes. Supplications \
+de tant de classes qui s'adressent aux classes émi- ÿ
+| nentes. Supplications des ouvriers aux intellectuels. 1
+à Supplications des paysans aux ouvriers. Supplications
+confuses de tout le monde aux militaires. Et dans les 4
+| 58 ! |
+a
+« 1 lp fl
+
+a Ad A AA US ane Pr EE QU
+à DA Les SUPPLIANTS PARALLÈLES « CA
+militaires, particulièrement, supplications des armées à
+| de terre aux marins, qui sont plus avancés. Et retours *
+brusques de barbarie, inverses, remontant, ou plutôt |
+redescendant le sens des supplications ; puisque ce sont He
+les supplications qui montent. re
+Pour entendre ce que je veux dire, pour saisir exacte- de
+ment et entièrement ce que signifie ce mot essentiel et |
+titulaire et liminaire de Porché, les suppliants, il faut
+essayer de nous remettre un peu à parler français, }
+autant que cela est permis à des hommes qui sont nés à 4
+temps pour vivre dans cet âge moderne. Il faut dépouil- *
+ler cette idée de supplication, cette image de suppliants, Fu
+il faut la nettoyer de toute idée de platitude. C'est chez F.
+les modernes qu'une supplication est une opération :
+d'aplatissement. Mais gardons-nous d'étendre, en ima- A
+gination même, en raisonnement, à des civilisations
+plus intelligentes, nos tares modernes. Chez lesmodernes
+une supplication est une opération d'aplatissement, une %
+manifestation de platitude; le prosternement est une }
+prostration, physique et morale; pour tout dire d'un |
+mot, le suppliant est un candidat. Tel a été le retentissement de nos mœurs politiques parlementaires sur toute
+la vie, sur toutes nos relations sociales, et telle la 3
+déteinte. Infiniment plus profonde, et je pourrais presque |
+dire incomparablement, infiniment plus vraie, toute |
+autre, toute sage, toute renseignée la supplication
+antique. Dans Homère, dans les tragiques, le suppliant
+n'est point un candidat ; il n'est point un demandeur; NE
+il n'est point un homme qui s'abaisse, qui s'humilie, hi
+même chrétiennement ; à peine ai-je besoin de dire qu'il à
+n'est point un moderne, qui s'aplatit. La supplication
+antique, la seule qui étant digne de ce nom de supplica59
+
+“ GA È
+Charles Péguy
+tion doive nous retenir, la supplication antique n'esten
+aucun sens, en aucune forme, une opération de platitude. Au contraire. Lisez attentivement au contraireune
+de ces admirables supplications antiques, la supplication
+de tout ce peuple aux pieds d'Œdipe, ou celle qui est À
+encore plus admirable, assurément, celle qui est peut-
+être la plus admirable de toutes, la supplication du vieux
+Priam aux pieds d'Achille. Relisez-les attentivement : Ce
+n'est pas le supplié, c'est le suppliant au contraire qui À
+tient le haut de la situation, le haut du dialogue, au x
+fond. Dans toute la supplication antique, on pourrait
+presque dire, pédantesquement : dans tous les cas
+particuliers de cette supplication, le supplié est un
+homme qui paraît avoir une belle situation; c'est même
+un homme qui a, comme on dit, une belle situation, qui
+a ce que l'on nomme une belle situation : c'est un roi;
+c'est un tyran; c'est quelque chef; dans la guerre c'est
+un vainqueur; c'est un homme qui a quelque domination, apparente; réelle? c'est un puissant de la terre; |
+dans la paix c'est un riche, un puissant, un homme qui |
+a beaucoup de bœufs; disons-le d'un mot : c'est un
+homme heureux, un homme qui paraît être, qui est heureux. Mais c'est justement pour cela que dans cette
+rencontre du suppliant et du supplié qu'est la supplication ce n'est pas lui, le supplié, qui tient le haut du
+dialogue. Il est un homme heureux. Donc il est, pour les
+Grecs, un homme à plaindre. Dans ce dialogue du suppliant et du supplié, le supplié ne peut parler qu'au nom
+de son bonheur, tout au plus au nom du bonheur :
+en général. C'est peu. Cest rien. C'est moins que rien.
+C'est même le contraire de tout avantage. Le bonheur,
+entendu en ce sens, comme la réussite de l'événement,
+60 )
+
+é LES SUPPLIANTS PARALLÈLES
+la réussite un peu insolente et comme injurieuse, est
+pour les Grecs le signe le plus infaillible de ce qu'un ue
+homme est marqué pour la Fatalité, — par la Fatalité. — ;
+D'innombrables Grecs ont désiré, convoité, poursuivi de
+toutes leurs forces les biens de ce monde, comme les
+modernes, autant que les innombrables modernes, et x
+par toutes sortes de moyens : l'or, la puissance, les
+jouissances de toutes sortes; ils étaient des hommes
+comme nous ; ils aimaient mieux le bonheur que le mal- à
+heur et communément le beau temps que la pluie. Mais é
+il n'en demeure pas moins acquis, et il n'en demeure
+pas moins entier, que le bonheur, entendu techniquement
+comme la réussite de l'événement, est pour les Grecs le
+signe le plus infaillible de ce qu'un homme est marqué
+pour la Fatalité. De sorte que dans cette rencontre, dans
+ce dialogue du suppliant et du supplié, qui fait toute la
+supplication antique, c'est le suppliant, quel qu'il soit,
+qui que ce soit, que ce soit le mendiant errant au long y
+des routes, que ce soit l'aveugle misérable, que ce soit
+le proscrit, l'exterminé, le citoyen chassé de la cité,
+coupable ou non coupable, l'enfant chassé de la famille,
+coupable ou non coupable, ceci dans l'ordre politique et
+dans l'ordre de la paix, ou, dans l'ordre de la guerre,
+le prisonnier, le vaincu, le vieillard impotent, que ce soit
+l'orphelin ou au contraire le contre-orphelin, le vieillard
+dépouillé de sa descendance, toujours c'est le suppliant
+qui en réalité tient le dessus, qui tient le haut du
+dialogue, le haut de la situation. ;
+Le supplié, lui, a une grande, une haute situation
+humaine. Mais ce n'est jamais qu'une toute misérable
+situation humaine. Quelle que soit sa situation, cette
+Situation, le supplié n'a jamais que cette situation. Et
+61 les suppliants. — 4
+
+Charles Péguy 1
+| 5 c'est tout. Ce n'est rien. Surtout en comparaison d'autres L
+| grandeurs. Comparaison qui s'impose par l'opération |
+| même de la supplication. Ce qui fait la faiblesse, la 4h
+petitesse du supplié, c'est qu'il n'est que lui-même, et "à
+À son petit morceau de situation humaine. Ii ne représente |
+| pas. 1
+| ; Le suppliant représente. Il n'est plus seulement lui- M4
+", même. Il n'est même plus lui-même. Il n'existe plus, lui. H \
+| Il ne s'agit plus de lui. Et c'est pour cela qu'il faut que 1
+À l'autre se méfie. Dépouillé de tout par ce même événe- M
+ment qui a précisément fait le dangereux bonheur du M
+supplié, citoyen sans cité, tête sans regard, enfant sans 4
+père, père sans enfants, ventre sans pain, nuque sans
+lit, tête sans toit, homme sans biens, il n'existe plus
+comme lui-même. Et c'est à partir de cet instant qu'il M
+devient redoutable. Il représente.
+
+Parce qu'il a été manié, pétri, manipulé par les doigts "à
+humains surhumains des dieux, il est devenu soudainement cher au cœur humain surhumain des dieux.
+Parce qu'il a été une cire aux doigts divins surdivins de M
+la fatalité, il est devenu mystérieusement cher au cœur
+
+; divin surdivin de la fatalité. Parce que les puissances
+d'en haut ont appesanti leur main sur lui, par un singulier retour, — non point par une compensation, — par
+une sorte de filiation, plutôt, d'enfantement supérieur, 1
+
+d'adoption particulière, il est devenu leur protégé, leur
+fils. Les dieux et au-dessus d'eux, derrière eux, la fatalité, lui ont pris son père. Mais les dieux sont devenus
+
+son père. Les dieux, et derrière eux la fatalité, les dieux
+Q lui ont pris la cité. Mais les dieux lui ont en quelque
+sorte conféré leur propre cité. Les dieux, sous-ordres de
+la fatalité, lui ont pris ses biens. Mais ces mêmes dieux
+
+| 62 {
+
+D Une ces
+pe LES SUPPLIANTS PARALLÈLES nr
+A ?
+
+. lui ont donné ce bien que nul bien ne saurait remplacer, « |
+è les dieux lui ont donné ce premier des biens : qu'il est $
+_ devenu un représentant des dieux. RE
+Nulle idée de compensation, ni même de justice; une | ï
+. telle idée seraït une idée chrétienne, au moins une idée À
+r relativement récente, en un certain‘ sens une idée ; |
+moderne; bien entendu nulle idée d'antithèse roman- ke
+
+tique. Maïs une idée beaucoup plus profonde, un senti- LÉ
+- ment beaucoup plus profond et beaucoup plus vrai, 4 » autant qu'il est permis de se reconnaître un peu dans 1"
+ces sentiments mystérieux, profonds, vrais, un sentiment 1 È |
+de vie, d'art et d'œuvre : que ces hommes ont fait leur
+preuve qu'ils étaient des hommes plastiques aux doigts Le
+_  statuaires de la fatalité. ere
+: Les dieux, la fatalité se sont faits ses père et mère; un
+il est devenu, orphelin, le fils et le représentant des AU
+dieux subfatalisés. Mais c'est qu'en effet pour les anciens, ET
+pour les Grecs, par une deuxième génération, par un en
+deuxième enfantement, il est réellement devenu comme Fais
+un fils des dieux. a
+Il a suffi pour cela qu'il fût en leurs doigts une matière SA
+plastique, et qui a fait ses preuves de plasticité. Il est 03
+devenu leur fils comme la statue est née du statuaire. é
+Avec cet accroissement, avec cette élévation que le sta- SE
+tuaire est dieu, plus que dieu, fatal. i
+Ne parlons point de création, de deuxième création,
+de recréation, car nous devons soigneusement réserver
+les expressions chrétiennes, le langage chrétien. Parlons %
+de ce qui était tout pour ce peuple de fécondité: d'un 1]
+deuxième enfantement. Parlons de ce qui était tout pour
+ce peuple d'art : d'un enfantement d'art. Les dieux fé
+subfataliers l'aiment de cet amour qui pour ce peuple D
+63 :
+D. Ke
+
+Charles Péguy
+était plus qu'un amour paternel, d'un amour d'art, d'un
+amour d'artiste pour l'œuvre, d'un amour où insépa- !
+
+| rablement l'art se nourrit de fécondité, où la fécondité
+; se forme d'art. Enfin les dieux l'aiment comme une
+glaise, bien plastique à leurs doigts, comme un métal M
+ductile, comme un marbre qui a bien rendu. Étant donné
+en outre que le dieu, statuaire, est plus qu'homme, et Î
+que l'homme, matière, est plus que métal, glaise et |
+marbre. |
+De là vient, nous n'en pouvons douter, de là vient, au NM
+moins en partie, que les dieux sont à ce point avec M
+l'homme, que la fatalité est à ce point derrière l'homme
+qu'elle a une fois travaillé. Quand nous lisons dansles
+textes que Zeic est Éévios : que Zeus est hospitalier, 4
+‘qu'il est le dieu des hôtes, que les hôtes viennent de
+Zeus, que l'étranger vient des dieux, que le mendiant,
+que le suppliant, que le malheureux est un envoyé des
+dieux, gardons-nous surtout de croire que ce sont là |
+des métaphores et des élégances. Les modernes traitent
+ces graves questions par des métaphores et par des
+élégances. Les anciens entendaient ces expressions littéralement. Réellement. Ces misérables hommes, les
+suppliants, étaient comme les témoins ambulants de la
+fatalité, deux fois œuvres (ne disons point deux fois
+créatures) des dieux.
+| C'est pour cela que dans la supplication antique, —
+on peut les relire toutes, et comme je regrette à présent
+de n'avoir plus le temps de citer la très admirable supplication de Priam, — qu'on y fasse attention, dans la
+supplication antique, dans toute supplication antique,
+au fond, c'est le suppliant qui tient le haut de la supplication. L'autre est tout seul, tout nu, et ne représente
+64 |
+|
+
+LES SUPPLIANTS PARALLÈLES
+| rien. Il a, lui, derrière lui, tout l'Olympe, et ce qui
+domine l'Olympe même. Il représente tout un monde de
+dieux, et même il représente ce qui ensevelira les dieux
+mêmes.
+Il représente la misère, le malheur, toute infortune, la
+maladie, la mort, la fatalité, qui frappera les dieux
+mêmes.
+Dans toute supplication antique, c'est le suppliant qui
+est le maître, c'est le suppliant qui domine. Veuillez
+bien noter qu'on peut lui refuser ce qu'il demande. Si Na
+l'autre veut aggraver son cas, libre à lui. Mais c'est lui,
+le suppliant, l'homme plié aux pieds de l'autre, qui
+domine, la supplication, l'opération, le commerce de la
+supplication ; c'est lui qui est le maître, qui parle un
+grand langage, un langage maître et venu de loin, venu
+de tout à fait ailleurs.
+Notez que l'autre peut l'éconduire, le forclore, le
+maltraiter : tant pis pour l'autre. L'autre a un palais,
+un foyer, des servantes. Il peut repousser le suppliant
+au hasard des routes. Tant pis pour lui, l'autre. £
+Dans la supplication antique, c'est le suppliant qui
+est le roi de la supplication. Qu'on recoure aux textes.
+Qu'on rappelle ce ton, ces expressions, ce ton vraiment
+souverain. Ils sont tous des ambassadeurs. Et les
+ambassadeurs d'un grand roi.
+Qu'on rappelle ce ton de noblesse et de fermeté, ce
+ton digne et comme éloigné, lointain, ce ton antérieur.
+Ce sont eux qui parlent du plus haut. Et ce sont eux
+qui parlent du plus loin. Ils savent des savoirs que ;
+l'autre ne saura jamais. À moins d'avoir passé, lui
+aussi, par la même grande et inremplaçable épreuve.
+Ne parlons point d'ascension ; ne parlons pas même
+65 les suppliants. — 4.
+i
+
+ALU RUE DTA RENE ; US
+ie l Charles Péguy cr 4
+A d'élévation; car nous devons dans ces recherches pous- h
+Ÿ sées dansle monde antique réserver soigneusement les Mh
+| expressions chrétiennes, le langage chrétien. Parlons de h
+4 ce qui était tout pour ce peuple civique: d'une mutation
+pr civique, d'une promotion, d'un nouveau droit de cité.
+j La promotion du malheur est véritablement pour eux M
+une promotion. Le malheur, défini techniquement comme à
+Hi la non-réussite de l'événement, confère vraiment dans M .
+| leur esprit, dans leur statut, un droit de cité singulier, M}
+un droit de cité supérieur, un droit d'entrée comme
+citoyen dans une singulière cité supérieure. C'est ce qui
+fait la valeur unique, éminente, singulière, d'Œdipe-roi
+| parmi toutes les œuvres antiques. Œdipe-roi est essen- 1 |:
+fe tiellement, éminemment l'histoire d'une promotion, (ne "Mk
+à disons point d'une élection). C'est pour cela qu'ÆdipeA roi n'est pas seulement une des premières parmi les 4
+œuvres antiques, mais qu'elle ramasse, qu'elle concentre M
+en soi, — comme un symbole éminent, comme une ‘1 l
+réalité éminente représentant toute la réalité antique, M
+— tout le problème antique du malheur faisant promo- M
+tion. Œdipe est un promu, (ne disons point un élu); un “}
+homme qui au commencement de la tragédie était un 4
+homme comme nous, un roi, un homme ordinaire et
+vulgaire, et par le ministère du malheur, par la non-
+; réussite de son événement, plus particulièrement, plus
+| tragiquement, plus scéniquement par la découverte de 4
+cette non-réussite, tout au courant, àl''événement,audéve-
+.… loppement de cette tragédie voilà qu'il est non seulement ï
+: promu, mais découvert promu à la dignité de suppliant. ;
+; Il avait commencé, il commençait comme un simple roi. Û
+Il continue par une mutation, par une promotion.
+| Il monte. Il moûte. Il achève comme suppliant. Œdipe-. W
+\
+
+F | LES SUPPLIANTS PARALLÈLES AU
+
+_ roi est ainsi une tragédie éminente, une tragédie ts
+
+unique, plus que rare, une tragédie essentielle, un Re
+modèle, un type, au sens grec de ce mot, la plus À
+grecque, la plus tragique, la plus profondément grecque a
+et la plus essentiellement tragique des tragédies w
+grecques, le type, le modèle, et en un sens platonicien, Et ;
+l'idée de la tragédie, et particulièrement de la tragédie
+grecque. La tragédie grecque est essentiellement une s
+
+: démonstration, une manifestation de la supplication |
+antique introduite par une intervention de la fatalité. A
+ce titre Œdipe-roi est la plus tragique, la plus tragédie ;
+des tragédies grecques, la tragédie grecque par excel- 1
+lence. Fs
+
+Tout entière elle est la mise en œuvre de la supplica- ;
+
+tion antique, invocation, imploration, lamentation, supplication, tout entière elle réside et consiste en cette 1à
+supplication, tout entière elle met en œuvre cette cen- de.
+trale, cette essentielle supplication. Œdipe-roi est essen- " $
+tiellement, éminemment tragédie, c'est-à-dire explicite- “4
+ment que cette tragédie est la tragédie de la supplica- È
+tion antique. Et c'est un admirable coup de génie du U
+grand Sophocle que de nous l'avoir signifié dès le prin- Ï
+cipe, dès l'ouverture de la tragédie par l'admirable ta- #
+bleau de cette supplication de tout un peuple aux pieds ee
+du roi Œdipe.
+
+C'est ce que signifie, en symbole, cet admirable commencement. Que ce soit une tragédie de Corneille, une .
+tragédie de Racine, ou que ce soit le Tartufe de Molière, Wtr
+le véritable génie dramatique, l'invention, la loyauté “4
+scénique se reconnaît toujours à la décision de l'ouver- ;
+ture. Le commencement, l'ouverture dramatique ne ji
+vaut pas seulement par elle-même et ne signifie pas ne
+
+'YH :
+
+Charles Péguy DU
+seulement ce qu'elle signifie ; pour ces grands maîtres, | ‘4
+puisqu'elle ouvre, elle commande toute l'œuvre; il y a A
+comme une responsabilité, un sens engagé dès l'abord:
+dès le principe; il y a comme un immense, comme un
+total reflet, comme un report du commencement, de
+l'ouverture sur toute l'œuvre, comme une grande ombre F
+portée, que rien n'effacera plus, expression et symbole
+extérieur parallèle de ce que dans la mémoire la pre
+mière grande impression ne s'effacera plus non plus
+et portera sur toute l'impression de toute l'œuvre. "4
+. Quand donc Sophocle nous présente en ouverture de ‘il
+sa tragédie cette admirable supplication de tout un
+peuple aux pieds de celui qui est à ce moment le sup- 4
+plié, mais qui sera le suppliant définitif, non seulement L:
+; ce tableau est en réalité le tableau de la supplication de” n.
+tout un peuple aux pieds d'Œdipe, mais il est, en sym M
+bole, en représentation, en signification, la signification 4
+qu'une tragédie ainsi ouverte sera essentiellement et #
+toute une tragédie, la tragédie de la supplication. S
+Cette signification, cet engagement, cette promesse he:
+de l'ouverture, on sait comment elle est tenue. Le débat,
+le développement d''Œdipe-roi n'est point tant, comme
+on l'a communément dit, de savoir s'il y a un coupable, no
+qu'il y a un coupable, puis qui est le coupable, et de se LR:
+demander de proche en proche si ce n'est pas Œdipe M
+qui serait le coupable, jusqu'à ce que ce soit lui-même 4
+qui se le demande, et enfin d'acquérir de proche en M
+proche la conviction que c'est bien lui qui est le cou- ÿ
+pable, jusqu'à ce que ce soit lui-même qui en soit con M
+vaincu. Je ne nie point l'intérêt passionnant de cette en- 4
+quête, et de cette découverte. — Elle est passionnante 1
+surtout pour des modernes; pour des anciens... — Je ne “4
+68 :
+
+4 LES SUPPLIANTS PARALLÈLES
+
+ï nie point l'intérêt passionnant de cette enquête, et de :
+cette découverte. — Mais elle masque, mais elle recouvre un autre débat, sous-jacent, plus profond, infini- :
+ment plus grave, sous-terrain, sous le premier, infiniment plus profond : le débat de savoir qui en définitive
+sera promu, qui en définitive sera le malheureux; non
+point ie coupable, non point le criminel, mais le malheureux ; qu'importe le criminel, et ce débat du criminel; pour nous Grecs, c'est le malheureux qui importe,
+et le débat du malheureux; le débat de savoir qui en
+définitive sera le suppliant. :
+
+Cette tragédie est toute entière, toute essentiellement
+la tragédie de la supplication ; ouverte sur et par cette
+
+, immense supplication de tout un peuple aux pieds
+d'Œdipe, elle consiste toute en un immense retournement, en une immense opération de retournement qui
+fait que tout ce peuple qui était suppliant au commencement ne l'est plus à la fin (il est déchu) et que celui
+au contraire qui était au commencement le supplié, par ;
+ce retournement, par le ministère de son malheur etpar
+l'accomplissement de sa destinée, par la découverte
+officielle de son malheur et de sa destinée, est peu à peu
+ouvertement, officiellement promu au grade et à la dignité de suppliant.
+
+Il était entré roi. Il en sort suppliant. Promotion mystérieuse (ne disons point mystique) et que n'ont point
+oubliée les quelques personnes qui ont pu assister à
+Orange à la toute première cérémonie que fut la repré-
+sentation première d'(Ædipe-roi. Œdipe est grand quand
+il paraît, pour la première fois, dans l'apparition de
+cette somptueuse ouverture. Combien plus grand Mounet aveugle s'en va par ce chemin de théâtre qui, mer-
+
+à Charles Péguy 4 "100
+À à veille non encore inventée, se continuait insensiblement * |
+Hi) en un véritable chemin des champs, en un vérita- M |
+| ° ble chemin de vraie terre, quand il s'en allait par um. È
+| tout misérable mais véritable commun sentier qui devait M}
+REA aboutir à quelque chemin vicinal d'un département fran- "4
+FAN çais. Il était entré roi de Thèbes. Il s'en allait par une
+route commune, aveugle comme tous les aveugles. Il 1 al
+vif) était entré roi de pourpre et d'or. Il s'en allait dans la Mk
+# commune boue et dans la commune poussière. Il s'en M
+allait dans les cailloux pointus meurtrir ses pauvres 4h
+pr pieds saignants dans les sandales. Il allaït, plus misé- u d
+# rable que tout le monde, marcher par les chemins de “M
+it tout le monde. Il était entré roi. Il sortait suppliant, et M
+l'éternel père d'Antigone. =. |
+Car pour ne point triompher, moi-même, dans ma
+ÿ thèse, j'ai pris Œdipe, le père, le roi, l'homme. C'est-à- 4 4
+À dire quelqu'un de forcément mesuré et de grossier. Que : j
+serait-ce et que n'eussions-nous pas dit si j'avais eu la M
+LS grossièreté d'examiner devant vous ce que je suis M
+à presque forcé de nommer malgré moi la vocation d'An- "W#
+tigone : Antigone, petite princesse royale, petite fille, la #
+dauphine, petite future femme de gynécée. Et après la 4 Al
+catastrophe Antigone, l'éternelle Antigone, l'Antigone
+: de l'accompagnement d''Œdipe, l'Antigone de l'enseve- M
+lissement du Polynice fraternel. ne |!
+Ê Devant de telles promotions que devient, pour des M}
+Grecs, la contrariété pourtant si importante du juste et MM?
+de l'injuste, de l'innocence et du crime. Que devient la M
+à catégorie du juste? Que devient la justice. Quel hon- "MF
+neur ou quel déshonneur humain, ou si ceci est un mot  /?
+moderne, quel avantage ou quel désavantage humain
+: peut affronter l'avantage d'avoir été choisi pour devenir À
+70 Lil
+4, LE
+
+ne LES SUPPLIANTS PARALLÈLES
+‘4 la matière plastique des dieux, et de celle qui domine et Na
+qui modèlera les dieux mêmes et qui les gouvernera |
+dans le sommeil de la mort. Et c'est pour cela que le 4
+suppliant criminel, ou, pour parler exactement, ancien
+criminel, — car, puisqu'il est suppliant, il ne peut plus
+être criminel, — c'est pour cela que le suppliant prétendu es
+criminel est chez les Grecs un homme infiniment plus
+. sage, plus près des dieux, plus innocent que le plus
+- sage et que le plus innocent des hommes heureux. IL
+peut toujours donner des leçons à l'homme heureux,
+des leçons de sagesse et d'innocence. L'homme heureux  :
+est toujours coupable. Au moins d'être heureux. Mais
+- c'est le plus grand des crimes.
+[Je me sers de ce mot de fatalité plutôt que du mot » destinée ou destinées parce qu'il est plus général et
+_ moins marqué, comme il faut, et parce que depuis |
+Vigny le mot les Destinées, contrairement à ce que l'on
+| pouvait et devait attendre, a pris un sens plus particulièrement moderne et chrétien.] F
+D''innombrables Grecs ont convoité, poursuivi les
+bonheurs, comme le firent d'innombrables hommes de
+tous les temps. Mais il n'en demeure pas moins entier
+que pour le Grec le bonheur, défini comme la réussite
+de l'événement, n'est, au fond, point enviable, et n'est
+point envié.
+Les suppliants parallèles : restituant un mot grec,
+une épithète grecque, en souvenir du Grec illustre qui
+écrivit les Vies parallèles je me suis permis d'intituler
+ainsi cette étude préliminaire. Les vies des hommes
+
+Charles Péguy #
+individuels, et notamment les Vies des Hommes [
+illustres ne sont point les seules qui se puissent mettre ]
+en parallèle, en vies parallèles. Il y a des vies de . |
+peuples, et dans et parmi ces vies de peuples ily a ph:
+aussi des vies qui sont aussi des vies parallèles. C'est. hp:
+
+ÿ à-dire des vies qui sur deux plans d'existence différents, |
+mais parallèles, sur deux plans de civilisation paral- |
+; lèles suivent apparemment un même sens. Et dans ces
+vies parallèles il y a des paroles, des gestes, des aititudes parallèles. Qui de nous, lisant innocemment cette L
+pétition des ouvriers au tsar, n'a point soudainement
+entendu résonner dans le fond de sa mémoire, — et
+était-ce bien seulement de sa mémoire individuelle, — Al
+k l'écho momentanément assourdi, toujours vivant, de la E|!
+supplication antique. C'est qu'en effet, au sens que nous À
+avons restitué à ce mot, en ce sens de misère et de Ë
+dignité, de renseignement et de fermeté, tout le mou- À
+vement de soulèvement russe actuel est un mouvement d
+de supplication. Et dans tout ce mouvement, sortant de
+tout le reste du mouvement, éminemment cette suppli- i
+cation du 22 janvier nouveau style. Et si les Russes Î
+« révolutionnaires » qui demeurent à Paris ne s'achar- \]
+naient point à se faire croire qu'ils sont des révolution- |
+naires comme nous, et si en retour nous ne nous épui- i
+sions pas à nous imaginer aussi qu'ils sont des révolu- |
+tionnaires comme nous, il y aurait d'eux à nous un peu 1
+moins de tristesses parce qu'il y aurait un peu moins de P
+malentendus.
+C'est ce que Porché a vu admirablement, et c'est ce
+qu'il a montré admirablement par l'imposition de ce
+titre, imprévu à des modernes : les Suppliants. Je ne
+
+, 4
+
+Lo SR ERTSR AS RS
+S LL LR NCIS ' eos
+4 LES SUPPLIANTS PARALLÈLES UE À
+_ parle pas seulement de cette ressemblance, de ce paral- ti
+. Jélisme des détails, soudainement révélé. Je n'invoque à
+. pas seulement cette évocation lointaine, soudaine révé- A
+… lation, cette ressemblance, presque effrayante, de cer- ê 3
+tains mots, de certaines phrases, qui en fait comme une 20e
+survivance et plus encore comme une revivance, comme À
+_ une résurrection : Deux routes seulement s'offrent à k
+* nous; Voilà ce qui est devant nous, Sire, et c'est ce qui ÿ
+nous & rassemblés près des murs de ton palais; Mais
+k situ ne l''ordonnes pas, si tu ne réponds pas à nos prières, ss
+“ nous mourrons sur cette place même, devant ton palais. ÿ
+… Jen'invoque pas seulement cette effrayante ressemblance
+… des détails, cet effrayant parallélisme qui se forme en V3
++ je ne sais quelle forme de réminiscence platonicienne, es
+… j'invoque toute la ressemblance, tout le parallélisme de \5R
+r l'âme même, des situations, des attitudes physiques, SA
+; mentales, sentimentales. 0
+… - Tout ce qu'on nomme improprement le mouvement LR
+_ russe révolutionnaire est une immense et perpétuelle $
+_ oscillation, une vibration immense, un mouvement )
+… doubie, d'aller et de retour incessant : mouvement d'al- RnE
+ler de la supplication montant des misérables aux appa- c
+remment heureux, aux puissants; mouvement de retour de la réaction, de la répression, de la barbarie des
+__ puissants aux misérables.
+k Et il y a aussi, doublant le premier, un immense
+mouvement de supplication des populations, des élé- :
+ments moins intellectuels aux éléments plus intellec- ne
+tuels, aux éléments proprement intellectuels, parce que
+pour ces peuples grossiers l'intellectualisme est encore :
+une puissance, et un bonheur; et, en retour, des mou- vs
+73 Les suppliants. — 5
+
+vs
+Charles Pégury + 1
+vements de retour de barbarie et comme de revanche 1
+| des éléments moins intellectuels aux éléments intellectuels. al
+Et il y a aussi, triplant le premier, un immense mou- M}
+vement de supplication des populations, des éléments M
+| moins (prétendus) révolutionnaires aux éléments plus M
+(prétendus) révolutionnaires, aux éléments proprement
+(prétendus) révolutionnaires, parce que pour ces peuples À
+enfants et réactionnaires la prétention révolutionnaire,
+qui d'ailleurs se confond souvent avec l'intellectualisme, k
+est encore un avantage, une puissance, et un bonheur;
+et, en retour, des mouvements de retour de barbarie et M
+comme de revanche des éléments moins (prétendus) ré- à
+volutionnaires aux éléments (prétendus) révolution- Â
+naires. É !
+Il peut y avoir une certaine apparence de présomp- :
+tion, ou d'étrangeté, à déclarer qu'un immense mouve- |
+ment qui a sous nos yeux des effets immenses et des M
+retentissements immenses, qui a tout l'aspect d'un mou- |
+vement révolutionnaire et qui aura sans doute les effets ,"
+d'un mouvement révolutionnaire, pourtant n'est point #
+un mouvement révolutionnaire. C'est pourtant une
+simple constatation. Pour qu'un mouvement soit, au
+à sens technique de ce mot, un mouvement révolution-
+€ naire, il ne suffit point qu'il ait toute la force et toute
+l'étendue d'un mouvement révolutionnaire, ni qu'il en
+ait les effets, ni qu'il en aït cette violence que l'on per-
+._ siste à croire indispensable à la constitution du mouvement révolutionnaire; et il ne suffit point qu'un peuple
+soit en état de révolte, même permanente, surtout per-" |
+manente, même générale, même généralisée, pour que
+36 |
+
+0 SP EST LL ET
+. LES SUPPLIANTS PARALLÈLES
+ï |
+* ce peuple soit en état de révolution. Ce qui fait une ré-
+- volution, ce n'est ni seulement la force, ni l'étendue, ni
+- les effets, ni surtout ce n'est point cette violence, et enfin
+ce n'est point cet état de révolte, permanente, générale,
+_ généralisée. Ce qui fait une révolution, ce qui fait la ré- À
+…_ volution, c'est un certain rythme, propre, c'est un certain sens, une certaine forme, une certaine nature, un +
++ certain mouvement, une certaine vie, une certaine âme,
+un certain caractère, un certain style, parce que le
+style est de l'homme même.
+k On ne peut donner le nom de mouvement révolution-
+… naire à cet immense mouvement de balancier, d'aller ?
+… et de retour; un mouvement révolutionnaire est essen-
+“ tiellement au contraire un mouvement qui n'attend pas,
+ji — qui n'attend pas la réponse, le retour du balancier,
+…_ le contre-coup de l'événement, — qui va toujours au-
+: devant, au contraire, toujours de l'avant, qui attaque
+__ toujours.
+; Je ne puis nommer mouvement révolutionnaire un
+…_. mouvement qui ne marche au contraire qu'autant qu'il
+reçoit des excitations de la réaction ennemie. Un mouvement révolutionnaire est un mouvement qui prend en
+soi son point d'appui, qui part de soi-même et rejaillit
+de soï, qui attaque toujours, qui tient une perpétuelle
+offensive, qui altère délibérément, qui change. La réalité. Au contraire il est évident que les Russes ne se
+_ révoltent, ne marchent, ne changent qu'à mesure que et
+dans la mesure où c'est la réaction elle-même et la conservation qui les y contraint. Il ne faut point dire que -
+la révolution russe est comme ces pèlerins qui se ren- |
+daient à Jérusalem en faisant trois pas en avant et deux
+pas et demi en arrière; mais il faut dire que le mouve7
+
+MN, Charles Péguy #
+ù ment russe est comme un pèlerin se rendant à Jérusale mi
+PA qui tournant le dos à Jérusalem: ferait ainsi trois pas en pk.
+| arrière et deux pas et demi en avant. Sans doute c'est |
+un moyen. Mathématiquement, arithmétiquement, c'est euh
+j un moyen incontestable d'aller à Jérusalem. C'est aussi
+un moyen incontestable d'atteindre à une situation k
+:) sociale nouvelle. Mais ce moyen russe n'est pas un 4
+moyen révolutionnaire. 4 j
+Un révolutionnaire ne fait que des pas en avant; ou ph
+4 quand il fait un pas en arrière, quand il rétrograde,
+3 c'est qu'il ne peut pas faire autrement, c'est qu'il y est à ï
+contraint par l'adverse réaction; le Russe, au contraire, M}
+. c'est quand il y est contraint par la réaction qu'il s'im- M
+patiente, qu'enfin il se révolte, et c'est quand il ne peut M
+pas faire autrement, qu'il fait un pas en avant. C'est 4
+sur la réaction qu'il prend son point d'appui, — pour lui %
+résister, naturellement, — mais tout de même c'est de 1
+la réaction qu'il part et c'est de la réaction qu'il rejaillit. 4}
+Toute marche de lui, tout mouvement en avant n'est 4 |
+qu'une réponse donnée à une attaque, à une excitation, M » à un excès vraiment insupportable de la réaction qui
+est en face, un contre mouvement suscité par une exces- M
+sive attaque de l'adverse réaction, un contre mouve-
+É ment en arrière, un mouvement en arrière littéralement
+| retourné. Ainsi c'est de la réaction opposée que vient
+l'initiative, le point de départ, le mouvement originel, L |!
+et non point de la révolution posée. En un mot, dans
+. un mouvement révolutionnaire, c'est le mouvement
+révolutionnaire qui demande, qui appelle, qui fait toute M
+l'action, qui ne prend que dans sa force toute sa force,
+et c'est la réaction qui fait la réaction. Du mouvement
+révolutionnaire vient l'appel d'air. Dans le mouvement M}
+76 "4
+' h
+
+4 a . SR
+h LES SUPPLIANTS PARALLÈLES |
+. russe au contraire, c'est la réaction qui fait l'action : je
+_ veux dire que c'est la réaction, constituée en partis Pa
+politiques et sociaux, qui fait l'action, j'entends au
+sens que l'on peut donner à ce mot en physique sociale, \
+et c'est le mouvement prétendu révolutionnaire qui fait
+la réaction, j'entends au sens que l'on peut donner à ce
+mot en physique sociale. C'est-à-dire qu'il ne fait que
+_ la réponse, quand l'autre l'interroge. En un mot tout est A
+. à sa place dans un mouvement révolutionnaire, vraiment révolutionnaire ; tout répond à l'attente, et chacun |
+- des éléments fait face à sa fonction naturelle : l'action
+_ fait l'action, est à sa place d'action; la réaction fait la
+; réaction, est à sa place de réaction; dans le mouvement
+- russe, au contraire, tout est renversé : C'est l'action qui #1
+fait et qui se laisse faire la réaction, et c'est la réaction |
+” qui fournit l'action, initiale. De la réaction, des excès de ve
+* la réaction naissent et viennent tant de mouvements qui
+se prétendent révolutionnaires, et ces mouvements qui !
+_ se prétendent révolutionnaires ne fonctionnent que dans
+- la mesure où tout de même il faut bien qu'ils répondent
+aux provocations réactionnaires, à des excès réaction- ee
+. naires insupportables; ils font le retour perpétuel À:
+d'un mouvement perpétuel d'aller et de retour dont ce |
+sont les réactionnaires qui font perpétuellement l'aller;
+ils font le perpétuel deuxième temps d'une vibration
+_ perpétuelle dont ce sont les réactionnaires qui font
+perpétuellement le premier temps, et, aujourd'hui,
+seulement le retour d'une immense oscillation perpé- }
+tuelle.
+C'est pour cela qu'il y a eu tant de fois où nous avons 484
+cru en France que ça y était, comme on dit en France;
+et ça n'y était pas du tout; dans des conditions pour- le
+
+‘
+
+| Charles Pégur 7
+cl tant où en France ça y eût été infailliblement; notam-
+| ment après ce 22 janvier nouveau style. nn, |!
+Des excès de la réaction, des excès du despotisme, 1
+de l'excès du mal naît perpétuellement et sort et se
+F meut l'agitation, et c'est cette agitation qui en imagi-
+| naire devient le mouvement révolutionnaire prétendu :
+nous avons donc ici obtenue la plus belle illustration
+que nous ayons jamais pu avoir des méthodes gues- |
+distes; mais c'est justement par cette illustration que “
+l'on voit que les méthodes guesdistes, elles-mêmes corruptions et malentendus des méthodes marxistes, sont
+tout le contraire de méthodes révolutionnaires. |!
+Une méthode révolutionnaire au contraire est essen- ;
+tiellement positive; elle affirme; elle déclare; elle
+montre; elle est féconde; elle est toute rebondissante de M
+force, toute pleine de sa force, et puise sa force en elle- k
+même. C'est une des plus grandes erreurs des temps 4
+modernes, une des plus grossières, et par conséquent "A
+l'une des plus communément répandues, que de s'imaginer qu'une révolution est essentiellement corrosive, À
+qu'une révolution est essentiellement une opération qui
+détruit. Une révolution est essentiellement au contraire
+une opération qui fonde. 4
+Si l'on ne fait pas cette distinction nécessaire, cette M
+reconnaissance indispensable, on n'entend, on ne reconnaît rien à tout le mouvement russe, à tout ce qui se M
+passe actuellement en Russie; on n'entend rien notam- M
+ment à la haine invétérée de Tolstoï pour les révolutionnaires professionnels; ces hommes qui à nous ne M
+nous paraissent pas des véritables révolutionnaires,
+pour lui chrétien ils sont encore infiniment trop révolu- [I
+tionnaires, et il suffit de savoir lire un peu pour sentir,
+78 4
+
+| LES SUPPLIANTS PARALLÈLES
+
+_ pour savoir quelle haïne il a contre eux, quelle répulsion, quelle aversion il a d'eux.
+
+À Et faute de cette reconnaissance on n'entend rien, on
+ne reconnaît rien non plus à la situation du prêtre
+Gapone; ce serait évidemment commettre l'erreur la
+plus grossière, et par conséquent la plus communément
+répandue, que de se représenter le prêtre Gapone
+comme un chef, comme un meneur, comme un propa- |
+gandiste révolutionnaire : il est un chef de chœur
+antique, un prêtre du Dieu vivant, un chef de supplica-
+
+. tion. De là vient qu'il ne s'est jamais entendu que momentanément et accidentellement avec les révolutionnaires, je veux dire avec ces révolutionnaires profes- j
+sionnels qui pourtant nous paraissent, à nous, si peu
+des révolutionnaires. Et l'on sait combien ce conducteur
+de tout un peuple de suppliants est le rival et au fond
+l'ennemi de tous ces révolutionnaires professionnels, et ,
+combien en retour il n'en est pas aimé; quel est aussi
+son ascendant sur tout son peuple, sur tout son ancien
+peuple d'anciens suppliants, même sur les ouvriers, et
+qu'il ne semble pas que les chefs démocrates ou socialistes ou révolutionnaires aient un ascendant comparable. Ce qui semblerait prouver que les troupes ellesmêmes, les foules, le peuple, sont un peuple de
+suppliants et non point un peuple de révolutionnaires.
+
+Leur déclaration n'est point comme la nôtre une
+déclaration des droits, et la preuve, c'est que, quand ils
+veulent en faire une, ils copient servilement cette nôtre \
+déclaration française universelle des droits de l'homme
+et du citoyen; leur véritable déclaration, celle qu'ils
+ne copient point, qu'ils n'ont pas besoin de copier,
+
+Nes ANT à PRE CRU “ à RASE M TRE AE IUT “ “+
+Charles Péguy À nn. y
+UE PA qu'ils n'ont pas copiée, dans Sophocle, c'est la déclara- '
+tion de la misère et de la supplication de tout um. Li
+4 peuple. A % L.
+4 Ce qui nous empêchait de reconnaître dans cet À ;
+immense mouvement et soulèvement de tout ce peuple À
+ce qu'il était, une supplication, c'est qu'ayant assez mal
+È fait nos études nous-mêmes, ayant lu étourdiment nos d
+textes, nous nous imaginions naïvement, petits garçons 4 1
+; des vieilles provinces françaises, et un peu grossière- |!
+| ment, que d'être un suppliant, c'était d'être quelqu'un h !
+d'extrêmement embêté, que de faire une supplication, 4 ;
+c'était surtout avoir peur d'être battu, que c'était
+demander pardon, que c'était demander quelque chose. Li
+; que l'on aurait été bien content d'avoir. Mon Dieu,
+Û c'était cela ; mais c'était aussi beaucoup plus. Voilàce M
+que c'est que de lire étourdiment ses auteurs. Nous ne 4
+1 pouvions pas savoir, alors, nous ne pouvions pas sentir, M
+LR nous n'eussions même pas compris ce que cela eût voulu
+: dire, que de dire que la supplication antique était une
+cérémonie rituelle, aussi réglée, aussi intérieure, que M
+4 pouvait l'être le pèlerinage au moyen-âge. À nl
+[J'avais tort de déclarer dans un précédent cahier, — “4
++ je crois que c'est dans ce même cahier d'Avenard, — 1 Î
+que nous ne faisions rien pour le mouvement révolu- M}
+x tionnaire en Russie ; on vient d'inventer pour aider ce ;
+| mouvement révolutionnaire quelque chose d'extrême- É
+ment nouveau : on va faire, on fait, on vient defaire un  ###
+meeting. Je lis en effet dans le Socialiste, aujourd'hui #
+Organe Central du Parti Socialiste (Section Française
+de l'Internationale ouvrière : PARTI SOCIALISTE, — Sec80 nil
+À]
+
+ù LES SUPPLIANTS PARALLÈLES
+_ tion française de l'Internationale ouvrière, — Fédération de la Seine, — GRAND MEETING Pour la Lutte *
+révolutionnaire en Russie, — le lundi 1 r décembre 1905,
+. — à huit heures et demie du soir, — Salle du TRIANON,
+boulevard Rochechouart ; orateurs : Jean Jaurès,
+' Édouard Vaillant, Jean Allemane, Francis de Pressensé, ‘
+Paul Lafargue, Marcel Sembat, Gustave Rouanet, Victor Dejeante, citoyenne Woynarowska, E. Roubanovitch, D" Leiteisen, D' Mok, Maximoff, D' Effron ;
+entrée : 30 centimes.
+Parmi ces noms d'orateurs, autant que je connaisse
+le russe, il me semble que je reconnais des noms russes ;
+| il me serait très désagréable de prononcer, en des
+matières aussi délicates, des paroles qui seraient dures
+ou même simplement sévères ; mais je plains ces
+| Russes, je les plains sincèrement, ces Russes qui
+parlent, à Paris, dans un meeting, pendant que leurs
+ë camarades, pendant que leurs frères se font tuer, en
+Russie, combattent, réellement, pour la libération de
+leur peuple.
+Je sais bien que l'on me dira qu'il faut bien, qu'il faut
+aussi à la révolution, — et d'autant plus à la révolution ï
+russe qu'elle est plus éloignée, plus isolée, — des journalistes, des ambassadeurs, qui communiquent les
+nouvelles, transmettent les indications, font part des
+avis, combattent sur place les calomnies que les ennemis réactionnaires ne manqueront jamais d'apporter.
+Je sais bien qu'en toute guerre diplomatique, — et ilya
+aussi une diplomatie des révolutions, — il faut des à
+diplomates, et qu'on investisse des plénipotentiaires. Je
+sais qu'il faut des ambassadeurs à Paris, selon le meilleur mot que l'on ait fait sur le sionisme. Mais tout de
+; 81 les suppliants. — 5.
+
+; Gharles Péguy 0
+même je regrette que le poste d'ambassadeur à Paris
+F soit aussi demandé. Quand éclate une guerre militaire,
+il faut une intendance et des magasiniers : c'est une | j
+É fonction, ce sont des fonctionnaires strictement indispen=
+sables. Je n'en plains pas moins celui qui, au lieu de ‘|
+répondre à l'appel sur la ligne de feu, se précipite dans À
+l'intendance et dans le corps d'élite des magasiniers: “4
+Parmi ces noms d'orateurs, autant que je connaisse M
+| un peu de français, il me semble que je reconnais des "
+noms français. Un homme extraordinaire, qui à Paris …
+lit encore l'Humanité ailleurs que dans les coupures du Dh
+Matin, un être singulier, notre collaborateur M. Pierre Re
+Mille, du Temps, nous contait récemment dans ce der- M
+nier journal que Jaurès commence à s'apercevoir que "}
+l'empereur d'Allemagne n'est un apôtre ni de pacifisme, « “ ni de socialisme, ni même de libéralisme, et qu'il n'est 1e }
+point un défenseur absolument irréductible des libertés
+; nationales, politiques et sociales. Si Jaurès continue, et L
+TE surtout si son intérêt politique l'y pousse un tant soit L ;
+peu, il finira par découvrir des vérités premières. É.
+Il y a aussi Hervé, socialiste unifié avec Jaurès, qui
+voulait, nous a-t-on dit, aller en Pologne, voler au se- . À
+| cours des Polonais, et former toute une légion polonaise M
+avec les collaborateurs du Mouvement Socialiste. Seuj lement il n'est point parti. Un homme qui bavarde au
+lieu d'agir est, par définition même, un parlementaire. 1
+Ce Hervé n'est pas un traître seulement. Il est un politi
+cien, et même un politicien de l'espèce parlementaire. 1
+Jaurès et son camarade unifié Hervé finiront peut- :
+être par découvrir, surtout si leurs intérêts politiques les \
+y poussent un tant soit peu, ils finiront peut-être par L:
+s'apercevoir que ce n'est point en Pologne que nous au *
+82 %
+“ 2 ‘4
+
+| A La ti D A OA 0 D PACE MA
+4 ; \ je
+! LES SUPPLIANTS PARALLÈLES
+rons à défendre les libertés polonaises, et toutes les
+libertés de tout le monde, mais tout simplement et tout
+- tranquillement, si je puis dire, sur les bords de la
+Meuse. Ils finiront par découvrir ce que nous avons 1
+connu d'une saisie toute immédiate, parce que nous ne :
+sommes pas des politiciens : que plus que jamais la |
+* France est l'asile et le champion de toute la liberté du
+monde, et que toute la liberté du monde se jouera aux
+rives de Meuse, aux défilés d'Argonne, ainsi .qu'aux 4
+temps héroïques, à moins que ce ne soit aux rives de
+Sambre, ainsi qu'au temps d'une révolution réelle, — et
+veuillent les événements que ce soit Valmy ou Jem-
+| mapes, — ou à quelque coin de la forêt de Soignes, —
+et veuillent les événements, si ce doit être un Waterloo,
+que ce soit au moins un Waterloo retourné.
+| Jaurès et Hervé aujourd'hui nous opposeraient en
+vain que Bebel a parlé justifiant leur attitude. Le seul |
+fait que Bebel a parlé avec un an de retard, un an plus
+tard qu'il ne devait, dans des circonstances, dans une
+situation générale et sous la menace d'événements où
+une minuté avait son prix, le seul fait que Bebel a pu
+sensiblement se taire pendant toute une année montre
+assez combien cette intervention de Bebel est spontanée,
+intérieure, significative, efficace. Deuxièmement cette
+protestation de Bebel n'est qu'un discours de plus, un
+discours parlementaire de plus, et n'a aucune valeur
+que la valeur, si l'on peut dire, d'un discours politique
+parlementaire; en tout pays; en Allemagne moins que
+partout ailleurs ; il n'arrêterait pas plus l'invasion de k
+la menaçante catastrophe, si même il pouvait l'arrêter 6
+autant, qu'un discours de Jaurès en France n'arrêterait
+des événements véritablement graves. Enfin, dans le
+83 TA
+
+AA
+Vi Charles Péguy. ba
+‘fe " TT
+ra _ texte même des paroles sur qui s'est appuyé Jaurès
+À dans la séance d''interpellations du vendredi 8, je re. 1 Ï
+ae trouve cette bonne vieille duplicité de Bebel, cette él "1h
+Hs quence allemande qui florissait dans les congrès inter- |
+Li nationaux. - 4
+1h « Écoutez un dernier avertissement », aurait dit k
+{ . Bebel, cité par Jaurès à la tribune française. — J'em- 4 ù
+F prunte ce texte au Matin du lendemain matin samedi 9; ss
+EAN mais c'est un texte marqué si nettement qu'il ne peut
+Re pas y avoir de variantes considérables. — « Écoutez un ne.
+k dernier avertissement. Jusqu'ici l'ouvrier allemand à |
+i défendu la patrie allemande, mais, si vous continuez à 14
+à en faire une patrie de servitude, il se demandera s'il ‘# (°
++ vaut la peine pour lui de défendre cette patrie. » 2% 4
+i: ; Telle n'est point, telle n'est nullement la question : la E. À
+Ne question est tout autre. Nous ne demandons point que "”“
+Bebel fabrique, imite, et importe en Allemagne un her- ‘4 \
+à véisme ‘allemand qui fasse le pendant de l'hervéisme
+__ français. Ce n'est point de l'opposition, du balancement ‘à
+x de ces deux hervéismes que nous attendons un équi- ‘| ;
+wx libre qui fasse le salut de toutes nos libertés, et de Mn}
+Jr toutes les communes libertés de tout le monde. De |
+! KE Le hervéisme est essentiellement le sabotage, un sabo- - M
+$ tage, un cas particulier de sabotage appliqué aux rela- "|
+À tions, aux fonctions, aux opérations internationales. +}
+Le Hervé dit sensiblement : Parce que la France n'a pas 4
+ai donné instantanément aux ouvriers un mystique régime x.
+de béatitude économique, politique et sociale (duquel
+| régime les ouvriers auraient obtenu depuis cinquante M
+ans tout ce qui est humainement saisissable s'ils ne : M
+“ s'étaient point mis à la remorque des politiciens et si k
+15 eux-mêmes ils ne s'étaient point faits profondément
+ñ : y AN |
+
+Ne op
+N LES SUPPLIANTS PARALLÈLES
+| politiciens) pour la punir, dit sensiblement M. Hervé, ,
+pour la peine, comme disent les enfants geignards, nous
+attendrons que tout ce peuple soit sous le coup de la k
+plus atroce et de la plus pesante invasion militaire, et
+_ alors nous nous mettrons à le fusiller dans le tas, his- :
+toire de prouver combien nous sommes des pacifistes. |
+Ÿ — Nous ne demandons nullement que Bebel étende aux
+socialistes allemands ce raisonnement ingénieux. Nous
+demandons au contraire, nous espérons que si par im-
+ÉE possible un gouvernement césarien de réaction militaire
+français préparait, aussi ouvertement, exécutait une
+invasion militaire des provinces rhénanes pour écraser
+les libertés nationales, politiques et sociales des Alle-
+; mands, nous espérons que les socialistes allemands se |
+£ lèveraient comme un seul homme contre ceux de nos e
+Français qui se feraient les complices de ce crime. Et È
+| ces Français ne seraient pas nous. Car contre ce crime
+nous serions les premiers à donner non seulement le
+précepte, mais l'exemple non seulement de la désertion, :
+mais de l'insurrection et de la révolte. Et cette insurrection-ci ne serait autre que la traditionnelle insurrection Por
+révolutionnaire française. Mais tel n'est pas, tel n'est
+nullement le cas aujourd'hui. Nous ne demandons pas
+à Bebel de ne pas défendre son pays dans une hypothèse gratuite imaginaire opposée à l'hypothèse qui se
+présente réelle aujourd'hui. Nous lui demandons de ne
+pas attaquer, de ne pas contribuer à attaquer le nôtre
+dans l'hypothèse réelle qui se présente aujourd'hui.
+Nous ne lui demandons pas de ne pas s'opposer à un S
+crime qui serait commis par des armées françaises.
+Nous lui demandons au contraire qu'il s'y oppose; de
+toutes ses forces et par tous les moyens. Mais pour
+
+YA
+
+K _ Gharles Péguy Re
+| cette fois et dans la réalité nous lui demandons q ne
+) non seulement il ne participe point au crime que son
+empereur non seulement médite, mais prépare contre K |
+ï nous, mais qu'il sy oppose de toutes ses forces et k
+par tous les moyens. Comme nous nous y Opposons,
+comme nous nous y opposerons nous-mêmes. DA:
+‘3 On embarbouille à plaisir ces questions, je veux dire 4 ï
+| ces demandes, ces interrogations si simples de la réa- ne ;
+lité en les altérant, en les transformant en cas logiques, +
+voire mathématiques. Mais que deviendraient les char-. : RE
+L latans politiciens parlementaires s'ils ne gagnaient pas À
+| leur pauvre vie en embarbouillant toutes les questions. +
+Il ne s'agit point, aujourd'hui, de tous ces cas de pré- al
+tendue conscience amphigouriques. Il s'agit d'un événe- >.
+ment réel. Car il ne suffit plus de dire quenous sommes "4
+| sous la menace militaire allemande. Il faut dire aujour- #
+; d'hui que nous sommes sous la préparation militaire A. !
+allemande. Et même il faut dire que nous sommes 0
+aujourd'hui sous la promesse ferme militaire alle- n
+mande. ‘At
+Y Cela étant, quand Bebel parle de la défense du pays
+, allemand, je ne dirai pas qu'il fait le jeu de la politique
+: impériale allemande, parce que ce serait pousser un 1 :
+peu loin le souci de l'exactitude, mais il adopte la ver- nl
+sion impériale allemande des événements actuels, mais
+il entre dans cette version. Qui est que ce serait l'Alle- 1
+magne elle-même qui serait en danger d'invasion.
+Quand il répond que le peuple allemand finira par se \
+demander s'il doit continuer à défendre le pays alle- 2
+mand, il suppose, il feint, il confirme que la demande à 1
+laquelle il est contraint de répondre ainsi est en effet la ss
+question de savoir si et comment les Allemands doivent
+mr |!
+
+eo RE AT TOR DA NE PAR
+FL \ SOU Pat es s £
+‘VER LES SUPPLIANTS PARALLÈLES \
+défendre le pays allemand menacé. En un mot il parle
+de ce dont il ne s'agit pas, ce qui est le commencement
+des tactiques politiciennes dans tous les pays du monde.
+Car il n'y a jamais eu qu'un internationalisme réalisé.
+Et c'est celui du verbalisme politique parlementaire et
+des grosses malices politiques recousues de fil parlementaire dans tous les pays politiques parlementaires
+du monde.
+Quand Bebel répond que les socialistes allemands
+finiront par être conduits à se demander s'ils continueront à défendre le pays allemand, il ne répond pas à la
+question, il imagine, il feint, il imite une question ima-
+| ginaire opposée à la question réelle réellement posée.
+Ce qui est en cause réellement, ce n'est point la défense
+du pays allemand. C'est, ce qui est le contraire, la
+défense du pays français.
+| C'est abuser au delà des limites permises que d'imaginer un balancement exact où le gouvernement bourgeois français ferait symétriquement contre-poids au
+gouvernement impérial allemand et par suite où l'insurrection hervéiste française ferait un nécessaire contrepoids à une insurrection hervéiste allemande. Pour que
+ce raisonnement fût admissible, pour que cette imagination ne fût pas purement imaginaire, il faudrait que de
+part et d'autre les deux parties de cet équilibre imaginaire fussent égales elles-mêmes en toutes leurs parties
+ÿ sous-partielles, en toutes leurs subdivisions, ou que de
+part et d'autre les totaux au moins fussent égaux ou
+équivalents! Or nous sommes au contraire fort éloignés
+1 d'une égalité, et même d'une équivalence. Du côté
+Û gouvernemental, ou, pour ne point faire chevaucher
+deux jeux de comparaisons, une horizontale et une
+
+1 Charles Péguy D
+À verticale, dans les régions gouvernementales toute | a be id |
+À force militaire allemande est menace, promesse, prépa + C4
+ration, offensive et offense; toute la forcem ilitaire
+We française au contraire est menacée, défensive et défense; k
+demandons seulement qu'elle aussi elle soit toute
+. préparatoire. Dans les régions insurrectionnelles, toute É: AUDE
+) insurrection française serait dangereuse, — pour la E. nl
+ÿ défense militaire, — parce que toute insurrection fran- M}
+çaise serait sérieuse, parce que les Français, ou du 10
+4 moins certains Français, feraient l'insurrection, ou 4e Ë
+feraient de l'insurrection comme les Français font tout . ‘M
+NE, ou font de tout, sérieusement; il n'y a que les Français ‘Es 11
+! qui aient successivement pris au sérieux tant de théories
+contradictoires; et l'insurrection allemande au contraire - 74 1
+serait une opération non réelle, à l'allemande, purement
+| imaginaire, purement doctrinale, purement dogmatique, Le
+purement politique et parlementaire, nullement sérieuse, 118 |
+nullement dangereuse pour l'offense militaire; une 1
+: supplication elle-même et non point une révolution. Car 4
+i les Allemands aussi ne sont point révolutionnaires, les ï où IL
+| Allemands aussi sont supplicationnaires, plus lourde- |
+: ment que personne, et malgré toutes les apparences ki à À
+qu'ils veulent se donner, sous toutes ces apparences, la à ñ
+; supplication comme nous l'avons définie est la forme
+que prennent chez eux toutes les revendications. be :
+ii Ainsi ces deux inégalités, bien loin de s'opposer et de D
+se compenser, s'ajoutent au contraire et s'alourdissent on [fl
+: l'une l'autre. Du côté militaire allemand tout est offense; Ke >|
+du côté militaire français tout est défense. Du côté al
+ï insurrectionnel français, il y aurait, parmi les citoyens ‘4 |
+entraînés, quelques éléments, quelques hommes sérieux; no Il
+du côté insurrectionnel allemand, rien de sérieux : c'est 3 |
+0 F8)
+
+nn
+' LES SUPPLIANTS PARALLÈLES + 1
+A un peuple de soumis et d'obéissants, pour ne pas dire
+_ plus, un peuple de nuques basses et de discipline pas- PAS
+sive. Nullement un peuple révolutionnaire. Tout le contraire d'un peuple révolutionnaire. 1
+Toute confrontation, toute comparaison entre l'ensemble de la situation française et l'ensemble de la
+situation allemande tombe donc; loin qu'il faille ajouter et comparer d'une part la force militaire française
+et d'autre part la force militaire allemande comme des
+grandeurs du même ordre, loin aussi qu'il faille ajouter
+et comparer d'une part la tentative insurrectionnelle
+française et d'autre part la tentative insurrectionnelle
+| allemande comme des grandeurs du même ordre, au
+à contraire, dans ce conflit réel de deux puissances antafs gonistes, et non pas de quatre, — car on ne peut pas
+È se battre à quatre, on ne peut pas se battre quatre à la
+5 fois, c'est-à-dire chacun contre tous les trois autres, et
+ë de la vieille chanson :
+Ils étaient quatre
+Qui voulaient se battre,
+les grammates auraient tort de lire le texte en ce sens d
+que l'on peut se battre quatre à la fois, — dans ce conflit venu c'est la tentative insurrectionnelle française ;
+qui devient un appoint et qui doit se comparer comme
+une grandeur du même ordre et s'ajouter à la force
+© militaire allemande, et c'est la force militaire française
+qui devient le principal et qui doit se comparer comme
+une grandeur du même ordre et s'ajouter à la supposée
+tentative insurrectionnelle allemande.
+Loin que ce soit, comme un agité l'a dit, le soldat
+89 ;
+
+LR ê F AR |
+Charles Péguy É ble É Î
+| français quifasse la même chose que le soldat allemand, - 1 a Ë
+n et loin que ce soit le déserteur insurrectionnel français ! L À
+qui fasse la même chose que l'hypothétique déserteur M}
+l insurrectionnel allemand, au contraire, dans ce débat FE:
+| réel, dans ce double conflit, qui ne peut absolument
+pas être un conflit quadruple, c'est l'insurgé français 4 |
+qui fait la même chose que le soldat allemand, et c'est …?
+| le soldat français qui fait la même chose que le supposé Lu
+insurgé allemand. # d.: d
+| Dans l'histoire du monde, dans un tel conflit un so “Ah
+dat, un réserviste, un citoyen français qui rejoint fait ne À
+exactement la même chose que ferait un Allemand qui +10 l
+se révolterait, avec cette diminution d'effet qu'il est “ai
+moins efficace, opérant dans une armée ennemie à # k: |
+là l'armée allemande; et tout citoyen français qui ferait  \
+une insurrection ferait la même chose que fait un Alle- à 18
+mand qui rejoint, avec cette aggravation infinie qu'il 11
+est infiniment plus dangereux, parce qu'il est un traître, “1
+techniquement, c'est-à-dire parce qu'il opère derrière D. | ï
+une armée et dans une cité dont il avait jusqu'à cette Non
+date joui comme citoyen.] à 0
+[Parlementarisme de Jaurès et parlementarisme de ‘0 l
+Hervé. Parlementarisme de Bebel. Parlementarisme des "h
+réfugiés russes. Quand on voit des réfugiés russes ‘à Ë
+demeurant à Paris aller bavarder dans des meetings
+; français, comme on reconnait qu'il y a encore de beaux 4
+jours pour le parlementarisme en tous pays, et que s'il 1 |
+est permis d'espérer que la Russie échappera prochai- ‘4
+nement à la domination tsariste, de même on ne voit D
+pas qu'il soit permis d'espérer qu'elle soit près d'échap- D |f
+per aux dominations parlementaires.] E
+
+90 on |
+
+LES SUPPLIANTS PARALLÈLES
+[Quel contraste entre ce bruit de bavardage des
+meetings et ce grand silence que nous avons eu pen- MC:
+dant plus d'ane semaine de tout ce qui se passait de
+réel dans cet immense empire. Quel contraste : Nous
+avons les oreilles pleines de tout le bruit de ceux qui
+n'agissent pas. Et de tous ces immenses peuples qui
+agissent et qui souffrent, de tous ces immenses peuples
+qui travaillent et qui meurent, pendant une semaine et
+plus nous n'avons entendu rien. Une simple grève des
+agents russes des postes et des télégraphes, et, je
+pense, des célèbres sous-agents, avait suffi à nous
+replonger dans des conditions séculaires d'existence, et
+| daus des conditions de connaissance que tout le monde
+croyait définitivement abolies. C'est une idée chère au
+monde moderne que les perfectionnements obtenus,
+notamment dans l'ordre des moyens de communication,
+par l'application de la science à l'industrie, et plus gé-
+néralement par l'application de l'industrie à la science
+ont donné des résultats acquis, indéplaçables, irrémis__ siblement inamovibles. Je crois au contraire que de
+grandes commotions n'auraient pas beaucoup à faire
+pour nous replonger dans des conditions de vie antiques,
+et que presque instantanément elles replongeraient des
+parties considérables de l'humanité, sinon l'humanité
+tout entière, dans des conditions d'existence et de con- !
+naissance que l'on croyait irrévocablement dépassées. ;
+‘Eydtkuhnen est à notre porte, mais il y a eu immédiatement derrière Eydtkuhnen une barrière telle qu'audelà, qu'immédiatement à cette barrière commençait un
+silence plus silencieux que les silences du moyen-âge et
+de l'antiquité, un silence total et parfaitement réalisé,
+sans infiltrations, sans pèlerinages ni odyssées. Ce
+| OI
+
+te 9 "4e ON EL: PS2 ER etr LOL OUR Dauer A vi 6 Ve AL Su À [ Re
+À Charles Péguy Me Û à
+j silence n'a duré que quelques jours, mais pendant les je
+ni quelques jours qu'il a duré, nous étions autant ign Le
+À rants de ce quise passait dans ces pays que nos pères
+l'étaient au temps de la Horde d'Or, et plus ignorants
+# qu'ils ne l'étaient par le ministère des croisades. Et t.
+tb ‘ aujourd'hui même que les communications ont été ré- ê )
+AtTAUR tablies partiellement, aujourd'hui que des courriers de: LA: ;
+He voitures et de trains de chemins de fer ont partielle
+fi ment remplacé le télégraphe de Saint-Pétersbourg à
+vu i Eydtkuhnen, ce que nous apprenons, c'est que pour les 8
+à Russes mêmes, pour la capitale officielle de la Russie,
+F2 des provinces entières, des provinces considérables, des
+‘4 provinces plus grandes que cette France même et que
+44 l'autre Allemagne sont depuis plusieurs mois ensevelies Br.
+k dans un total silence. Comme les psychologues ont “2
+£ _ raison de nous dire que nous entendons le silence : Le
+à nous avons encore dans les oreilles la mémoire et le PA
+; son de ce silence-là. Et nous l'avons entendu aussi 4
+f comme un avertissement.] 11e
+is Porché me pardonnera : je n'ai pas pu résister au ù 4
+LR désir enfantin de mettre du grec dans ce cahier. J'ai 4
+de voulu me payer de corriger des épreuves de grec. Je me
+ma suis bien rendu compte que sans ce coup de force cela WE.
+ne me serait jamais donné sans doute. J'ai voulu copier D:
+4,68 du grec pour les imprimeurs. Le poète de à chaque jour  "}
+É comprendra mieux que personne ce sentiment qui dans
+les difficultés de l'action d'un certain âge, dans les j
+Si labeurs de la maturité, nous pousse à revivre artificiel :
+lement certains des anciens jours, quelques-uns des
+
+ï LES SUPPLIANTS PARALLÈLES Rs.
+jours passés, particulièrement chers, particulièrement
+élus, nous poussant à recommencer les exercices, 0
+- quelques, certains exercices de nos premiers apprentissages. Vainement. Je me suis aperçu, à l'essai, que ma î
+main de barbare était redevenue lourde. Ma lecture LUE
+* même était redevenue lourde. Et regardant les deux 1
+feuilles tirées de ce cahier je m'aperçois, trop tard, que
+page 49 j'ai laissé passer Atos accentué sur le t, au lieu
+de Aude, comme si ce n'était pas une hérésie de ne pas
+accentuer sur la finale un génitif ou un datif de nomi- |
+| natif monosyllabique. Enfin consolons-nous sur ce que
+le' dictionnaire donne Atos en éolien. Phénomène singu- d
+lier, le sens était demeuré beaucoup plus entier dans
+ma mémoire, beaucoup plus intact et beaucoup plus
+frais, comme s'il fût antérieur au texte et en nous encore .
+plus profond. L'enseignement de culture que nous avons
+reçu dans certaines écoles se perd vite aux grossièretés
+de la vie moderne. J'ai copié d'une main gauche. Tout
+uniment, trop tranquillement, trop innocemment j'ai pe
+copié dans ma vieille édition scolaire, dans mon vieux
+Tournier des familles. Cela doit être très mal porté,
+; aujourd'hui, de copier un texte grec dans une édition
+de Tournier. On a dû inventer, depuis, des éditions 7
+_ beaucoup plus savantes. Le temps n'est plus, le temps ;
+ne reviendra jamais où nous faisions pour nos bons
+maîtres, en thèmes, ces admirables manuscriptions
+moulées du grec. Ce grec de nos thèmes n'était pas toujours du bon grec. Et quelquefois même il n'était pas
+du grec du tout. C'est du moins ce que disaient nos e
+maîtres, et ensuite ce qu'ils écrivaient sous forme de ÿ
+notes quelquefois sévères. Ils avaient évidemment raison. Et quand même il n'auraient pas eu raison, ils
+
+_ Charles Péguy CR 4
+auraient eu raison tout de même. Car les anciens Grecs …
+ne revenaient point pour nous départager. Mais les RU R
+écritures étaient déjà belles et moulées comme les
+typographies de nos éditions ultérieures. Et ces écritures |}
+admirables relevaient un peu nos moyennes. Car nos 1
+maîtres étaient des hommes. Et ces écritures moulées
+\ reposaient un peu les regards de celui qui les corri- 4 A
+geait. Elles défronçaient les fronts soucieux et plissés;s ?
+elles reposaient un peu les pauvres yeux dévoués, ‘4 N
+£ fatigués professionnellement. Souveraines contre la #1
+migraine. Manuscriptions antinévralgiques. Et elles L
+faisaient plaisir à voir. Et leurs yeux fatigués, se fati- ‘4
+guant moins, inclinaient leurs âmes à l'indulgence. Etle … a
+À grec, avec raison, leur paraissait meilleur. Et peut-être, = "…_h
+en réalité, en était-il meilleur. 54 #
+ne | |
+Porché me pardonnera. Je n'ai pas pu résister à la à “1
+tentation. Comment, écrivain, résister à la tentation de k Ne 11
+se remettre à la rude, et salubre, et salutaire école de 18
+la traduction. Écrivain français, comment résister à la 104
+tentation de se remettre à cet admirable grec aïeul. Je
+n'ai pas pu résister au désir enfantin, — mettons au à ;
+désir filial, — de traduire le plus beau lever, — où M
+baisser, — de rideau qu'il y ait jamais eu depuis qu'il à.
+y a un théâtre au monde et que dans le monde ya
+des spectateurs. Combien ne faut-il pas que la misère 4
+et plus particulièrement le malheur, défini comme la A
+non réussite de l'événement, soient essentiels à l'huma- ;
+nité pour qu'en plein âge moderne un écho de la lamen- ‘e
+tation antique et de la supplication grecque retentisse À
+94 n ||
+À ; Us: nn 1
+
+| déni dl A Ce
+LES SUPPLIANTS PARALLÈLES
+aussi fidèle après un écartement de plus de vingt-deux
+siècles écoulés, ou si l'on va dans le sens contraire,
+pour que la lamentation contemporaine et pour que d
+cette supplication du 22 janvier nouveau style ait reçu
+il y a plus de vingt-deux siècles sa formule même, )
+son rite, je dirai son rythme, et son schème essentiel.
+Et quel ne faut-il pas qu'ait été le génie de ce Sophocle,
+d'avoir si exactement donné, il y a plus, de vingt-deux
+siècles, la formule de la supplication antique au seuil
+de sa tragédie, et si purement, que cette formule, après
+un écartement de plus de vingt-deux siècles à venir,
+devint la formule même et fît le rite essentiel d'une sup-
+| plication dont l'événement nous est contemporain. Quel
+effrayant et presque mystérieux retentissement à distance. Quelles effrayantes identités humaines. Sous tant
+d'apparences de transformations. On est prié de recevoir
+ma version grecque d'aujourd'hui comme un exercice À
+pieux et elle aussi comme un — modeste — ressouvenir,
+d'ancien élève. Je la placerai sous l'invocation de la mé-
+moire que nous avons gardée de l'un des hommes à qui
+nous devons le plus, sous l'invocation de notre regretté
+maître, de l'un, entre tous, de nos regrettés maîtres, de
+celui que tous ensemble nous nommions familièrement
+et affectueusement le père Edet. Pater Aedeas, comme
+disaient les nouveaux, qui voulaient faire les malins.
+Quoi qu'en ait prétendu un jour notre camarade Larby,
+c'est un des hommes à qui les hommes de ma géné-
+ration doivent le plus. Il était tout cœur et toute
+bonté. Sa grosse voix grondante paternelle écumait de :
+bonté. Sa voix trempée d'attendrissement un peu lourd
+-et profond, sa voix bourrée de bourrades bonnes enseignait cette justesse qui est inséparable de la justice. A
+
+Charles Péguy nn |
+tous ceux, petits élèves, qui eurent l'honneur et le bon- 1 4
+heur de recevoir ses leçons, à Lakanal, à Henri IV, en ( ;
+Sorbonne, il enseignait cette probité intellectuelle qui  }
+entraîne infailliblement la probité morale. C'est lui qui | (l
+
+‘à aimait mieux un bon contre-sens qu'un douteux faux-
+
+É sens. C'est-à-dire un beau contre-sens, hardi, franc du
+collier, bien dessiné, bien découplé. Mais bien déli- b |
+
+| mité aussi. Plutôt qu'un de ces douteux à côté entre M |
+deux bissecteurs qui ménagent également le bon sens |
+
+Es et le mauvais. Qui sont une trahison perpétuelle du Al
+
+) texte, et qui décèlent toujours chez leur auteur un
+
+double et louche et fourbe caractère faux fuyant. Ce
+
+ÿ n'est pas lui qui se contentait d'un à peu près. Sans 1
+
+/ morgue et sans aucun système, — comme tant d'autres, = M
+systématiques, et qui vous feraient un système rien 1
+
+ÿ que pour être, simplement, un honnête homme, — k d
+
+; il enseignaït inlassablement la probité, la lenteur, ‘Al
+
+à l'exactitude, l'attention, la précaution, le serré du
+texte, et de ne point confondre l'irréel avec le poten-  #h
+tiel, et de ne point emmêler ensemble tous les para- , M4}
+graphes du Riemann et Goelzer. J'avais encore le son al
+de sa voix dans la mémoire quand poursuivant aujour- Al
+d'hui ma version grecque je fus amené à traduire enfin 1
+que Œdipe serait un mauvais, de ne pas faire tout ce que 4
+le dieu manifeste. Qui ne se rappelle encore et qui n'en- \
+tend comme il prononçait un mauvais, en allongeant et > ||
+en aggravant le au en Ô : un môvais. Un môvais, c'était
+indistinctement et aussi sincèrement Œdipe qui déso- Al
+béirait aux dieux que celui qui lui mettait Romanibus ;
+dans un thème latin. Romanibus était l''abomination de h |!
+la désolation. Monsieur Gibout, vous m'avez encore 4h
+mis Romanibus. 4
+
+UPS UN ARE TES
+LES SUPPLIANTS PARALLÈLES Ë
+Pauvres nouveaux, qui faisaient les malins. C'est i
+encore lui qui leur enseignaïit ce que c'est qu'une édition,
+des éditeurs. Frais débarqués à Lakanal, pauvres petits U
+garçons des provinces départementales françaises, les AIN
+plus avancés d'entre nous débarquaient distinguant à ,
+peine d'un libraire, qui vend des livres, un éditeur, qui
+en sort, qui en fabrique. Ils disaient naïvement et
+couramment l'édition Hachette ou l'édition Colin. Quand
+encore ils regardaient à ces différences et connaissaient
+ces premières éditions mêmes : heureux encore ceux LU
+qui avaient de tels soucis. Et ils croyaient avoir tout
+dit quand ils avaient distingué une édition française
+| d'une autre édition française. Et c'est à peine si les plus
+dévergondés osaient aller jusqu'à parler de Teubner et |
+de Tauchnitz. Et quand ils avaient pronoucé l'un ou 40
+l'autre de ces deux noms, ils reculaient d'effroi devant \
+leur propre audace. Et ils croyaient qu'ils avaient passé
+les limites honnêtement permises de la science humaine,
+parce qu'ils avaient prononcé l'un de ces deux noms
+allemands. Alors intervenait doucement ce père Édet, —
+car Aedeas est lui-même un affreux barbarisme, — et il
+\ nous enseignait paternellement, sans ironie, sans orgueil
+de son ancien savoir, comme on enseigne aux conscrits
+dans les casernes quelques vérités par trop élémentaires
+paternellement il nous enseignait qu'un éditeur ce n'est
+pas un commerçant qui fabrique un livre ou qui le fait
+fabriquer, mais que c'est un savant qui établit un texte;
+| paternellement il nous enseignait tout le doux mépris
+paterne que l'on doit avoir pour ces commerçants qui
+s'enrichissent ou qui sont censés s'enrichir ou qui font
+semblant de s'enrichir en vendant du grec, et tout l'immense respect que l'on doit avoir, au contraire, toute
+97 les suppliants. — 6 ,
+
+2e ; APR PENEUrE hEe PENTIER
+ï Ë POMPES
+ÿ Charles Péguy LES
+? l'admiration pour les professeurs et pour les savants qui 4
+4 établissent des textes ; Le premier il nous fit discrètement ;
+comprendre que les éditeurs allemands étaient encore ;
+beaucoup plus forts que les éditeurs français; le premier È
+il fit qu'au bout de très peu de temps nous prononcions -
+comme père et mère et d'un air entendu ces phrases
+innocentes : Nous lisons dans Witzschel; ou : Je trouve "NX
+dans Stallbaum; ou enfin : Weise donne. Donne était “}
+sur tout éloquent, donne en disait long. Weise donne
+rakads, mais Untelmensch ne donne que rw. Et c'était "h
+toute une affaire. En moins d'un mois nous avions appris k
+; à sourire fraternellement, comme des frères aînés,
+quand un nouveau nouveau, ignorant les distinctions 0 |
+| nécessaires, impromptu recommençait à nous parler de "if
+l'édition Hachette. D ||
+F |
+Il était de ces anciens universitaires et de ces univer- M
+sitaires anciens qui avaient une telle idée de la justesse  f
+: qu''indissolublement et sans le faire exprès et même en  #f
+ayant quelquefois l'apparence du contraire, ils ensei-:
+2 gnaient indissolublement toute la justice. Note distinc- k
+tive : ils n'étaient pas conseillers municipaux ni même M
+adjoints des villes où ils opéraient. — Je ne dis pas cela Al
+pour Litalien, qui mérite une entière estime. Je le dis |
+pour beaucoup d'autres.
+Comme cette race n'est plus, — nous en avons vu les
+derniers exemplaires, et c'est à peine si nos jeunes '
+gens en ont aperçu, — ainsi ce temps n'est plus, et ; É
+ne sera sans doute plus jamais. Ce ne seraït rien, et
+je m'en consolerais aisément. L'homme se consolerait 1
+98 ;
+
+n: LES SUPPLIANTS PARALLÈLES 114
+aisément de vieillir, et de passer, et de disparaître, a
+puisque telle est sa nature, et que telle est sa destinée, L
+s'il avait au moins cette consolation que les générations ‘
+passent et que l'humanité demeure.
+
+Nous n'avons malheureusement plus cette consolation
+même; et même nous avons la certitude contraire, que
+l'humanité ne demeure pas. Les générations passent, et
+l'humanité ne passe pas moins. L'humanité grecque
+meurt aujourd'hui sous nos yeux. Ce que n'avaient
+
+j pu obtenir les invasions ni les pénétrations d'aueuns
+barbares, ce que n'avaient pu obtenir les persécutions
+
+d'aucuns barbares chrétiens, ni les émeutes sourdement
+concertées et sournoisement grossières et meurtrières |
+M des sales moines grossiers de la Thébaïde, ce que n'avait
+pas obtenu le temps même, infatigable démolisseur, le
+passager triomphe de quelques démagogies politiciennes j
+| est en train de l'effectuer sous nos yeux. s
+| Aujourd'hui : ce soir, à huit heures et demie, comme
+le disent les affiches, comme le crient les crieurs de |
+Û théâtre : ce soir, à huit heures et demie, sur le théâtre
+du monde moderne, IRRÉVOGABLEMENT suprême repré-
+sentation, au réel, du drame d'Hypatie. Les sales
+moines grossiers sortis de la Thébaïde comme un troupeau de nuit de chiens maigres n'avaient assassiné que.
+le corps. Ce que n'avaient obtenu aucuns barbares ni le
+Temps complice de toutes les démolitions, une mépri- 6
+sable compagnie de politiciens modernes l'a joué sous
+nos yeux, et a gagné la partie. Ce que n'avaient obtenu
+aucuns barbares ni le Temps barbare, une toute petite 7
+compagnie de politiciens modernes, sans effort, sans
+débat, sans bataille, vient de l'effectuer sous nos yeux.
+Une fois de plus il a été donné à une petite troupe de
+
+* tt ; ; Me)
+Charles Péguy 1108
+à petits malfaiteurs d'obtenir, d'exécuter, d'effectuer ce ;
+que des troupes immenses de grands malfaiteurs w
+| n'avaient point obtenu. « 4 |
+2 Je me vois aujourd'hui, pour avoir trop vécu, ni
+Recevoir un affront et demeurer vaincu. à {
+Ce que n'a pu jamais combat, siège, embuscade, À à
+Ce que n'a pu jamais Aragon ni Grenade, ne (|
+! Ni tous vos ennemis, ni tous mes envieux, À À
+Le comte en votre cour l'a fait presque à vos yeux. ne ||
+} Il est très fréquent dans l'histoire que de très petites 1
+compagnies de petites gens de bien réussissent à faire
+ce qui a été refusé à de grandes compagnies de grands L
+‘ hommes de bien. Et naturellement il est encore beau- 2 ;
+coup plus fréquent que de très petites compagnies de
+petites gens de mal réussissent à faire ce que detrès M
+grandes compagnies de criminels n'avaient point ob- “}
+À tenu. De grandes et de fortes humanités se sont battues
+* pendant des siècles pour et contre la culture grecque, : 1
+c'est-à-dire pour et contre une des cultures essentielles 1
+de l'humanité. Un immense effort a été donné pour  h
+l'oppression, pour l'ensevelissement, pour l'anéantisse- 4 ;
+ment de la culture antique. Un respectable effort de # k
+conservation, de continuation a été fait par un certain M}
+nombre de chrétiens. Un admirable effort de restitu- ||
+tion a été fait par les hommes de la Renaissance. Et h ||
+nos grands Français du dix-septième siècle, et même D |!
+ceux du dix-huitième, et même ceux du dix-neuvième il
+siècle avaient maintenu les résultats de cette renais- R'
+sance. Les grands républicains, — je ne parle évidem- À
+ment pas de ceux d'aujourd'hui, — les républicains de {1
+la première, de la deuxième, et du commencement de 3 é
+De :
+
+LES SUPPLIANTS PARALLÈLES |
+la troisième république avaient vu très nettement com- d
+bien il importait au maintien de l'esprit public sous un re
+gouvernement républicain que les humanités fussent ‘
+
+| premières maintenues. +
+C'est un phénomène très fréquent dans l'histoire de 4
+l'humanité. Pendant des siècles de grandes humanités :
+se battent pour et contre une grande cause. Et puis tout
+| passe. Et puis, un jour, pendant que l'humanité a le dos
+tourné, une petite bande de malandrins arrive, détrous- |
+seurs de cadavres, chacals et moins que chacals, et on
+s'aperçoit le lendemain que la dite grande cause a été
+_ étranglée dans la nuit. |
+C'est ce qui vient de nous arriver dans le monde os
+moderne avec le grec. Par une simple altération, par ee)
+une simple prétendue réforme des programmes de l'enseignement secondaire français, par le triomphe passa- |
+ger de quelques maniaques modernistes et scientistes « a
+français, généralement radicaux, quelques-uns socialistes professionnels, toute une culture, tout un monde, a
+une des quatre cultures qui aient fait le monde mo- :
+derne, — il est vrai que ce n'est pas ce qu'elles ont fait
+de mieux, — disparaît tout tranquillement et tout posé-
+ment sous nos yeux de la face du monde et de la vie de
+l'humanité. Sous nos yeux, par nos soins disparaît la |
+mémoire de la plus belle humanité. Et en deuxième
+ligne, au deuxième degré, sous nos yeux, par nos soins 6
+périt tout l'effort des humanistes et des hommes de la
+Renaissance. Tout cet admirable seizième siècle aura
+fermenté et restitué en vain.
+C'est une perte qui sera sans doute irréparable. Car
+nous savons par l'histoire de l'humanité qu'en matière
+de culture on sait bien quand on perd, et ce que l'on °
+| ) IOI les suppliants. — 6.
+
+ï: Charles Péguy "44
+6 perd, mais on ne sait pas quand on retrouve, ni ce q e È
+\ l'on retrouve. Le triomphe des démagogies est passager
+UE Mais les ruines sont éternelles. On ne retrouve jamais (
+f tout. En pareille matière il est beaucoup plus facile de“
+à perdre que de retrouver. n |
+On nous dit en vain que le grec s'est réfugié dans ww
+d l'enseignement supérieur, qu'il demeure entier dans "##}
+quelques chaires et dans quelques bibliothèques. C'est |
+ici la plus grande stupidité que l'on ait dite dans les
+temps modernes, où pourtant on ne s'est pas privé de M 4
+( dire des stupidités. C'est comme si l'on disait que les "M?
+S anciens Égyptiens vivent et revivent dans les momies
+des sarcophages des salles basses du Louvre. Comme
+À j'espère le démontrer dans la thèse que je prépare en ||
+| depuis plusieurs années de la situation faite à l'histoire d
+et à la sociologie dans les temps modernes, il y a un Le |
+abîme pour une culture, pour une histoire, pour une
+vie passée dans l'histoire de l'humanité, pour une huma- #
+LL nité enfin, entre figurer à son rang linéaire dans la #"}
+mémoire et dans l'enseignement de quelques savants et 1
+dans quelques catalogues de bibliothèques, et s'incor-
+; porer au contraire, par des études secondaires, par des ù
+humanités, dans tout le corps pensant et vivant, dans
+tout le corps sentant de tout un peuple, de tout le peuple, Î
+à dans tout le corps des artistes, des philosophes, des |
+È poètes, des écrivains, des savants, des hommes d'action, : 1
+de tous les hommes cultivés, des critiques mêmes et D ||
+des historiens, de tous les hommes de goût, de tous les s j
+hommes de sens, de tous les hommes de droiture et de 4 Ë
+fécondité, de tous ces hommes en un mot qui formaient  ""/h
+un peuple cultivé dans le peuple, dans un peuple plus 1}
+large. Ce sont deux existences qui ne sont pas du n |
+102 |!
+
+ire AA LME ‘2, AP HE Rs Ne AT 4 set A ET AOC EES
+Mat Ent r D SRE EEE FN re M RON PE
+_ LES SUPPLIANTS PARALLÈLES | “à
+même ordre. L'existence dans le corps des producteurs à F
+: de tout un peuple est une existence de vie. L'existence #4
+L d CNE FL.
+dans les rayons, de les rayons de quelques biblio- . 4
+thèques est une existence de mort. Surtout étant donné 3
+ce que sont les bibliothèques modernes. Un poète qui 6 à
+gisait manuscrit, ignoré, incompris, non lu non lisible ;
+« en quelque monastère perdu n'était lui-même ni un (2
+poète perdu ni un poète mort. Quelque moine pieux, #
+de méritant notre éternelle reconnaissance, pouvait le
+r . . ,
+soigner, le conserver, le recopier, nous le transmettre -
+È enfin. Il n'était donc pas mort. Il vivait donc pour la fe
+\ vie à venir de l'humanité. Un poète, connu, compris, s
+1%
+e. classé, catalogué, qui git imprimé aux rayons de cette 10
+H stérile Bibliothèque de l'École Normale et qui ne serait CRUE
+4 . . . . à N :
+4 point quelque autre part, qui ne serait point couvé ‘8 Fe
+1 dans quelque cœur, est un poète mort. k
+Ÿ CHaRLes PÉGuY 40
+L
+
+ah AS { 2: VAN AR Vans AIR IN 9 y. Fur f A !
+PERL PLANTES Ne Ne MON ERA Las AL VAS (En fa NEA \ |
+VS ASE SA RU M A vi an (NGDES (ei LYC TA NT | 1
+KT NS Ë 1 AMENER |
+14 1) 0) k 4 4
+RME: | 1
+4.4 TI 3 }' |
+AE de Fa x \ {1908
+1, FPT (TRE ‘
+INR LU |
+LE SE NP HE |
+LUS DA ; L À Î
+2,008 1 LR |
+VIA EL Æ v 1e |
+TEEN He
+# HUE \ ñ |:
+VAT : 4 4 |
+1261 “ + LV PES
+
+SR LRU fe Te Rte AN MERE DES VAR TNA" Re TOR es
+Fee À à CET ; TA TAT ENE ARE
+PANNE PACE
+RU NE : De
+PAPE ERA
+RE PT SOA A %E EU
+RPÉDON: ON RCE AA = À 4:17 ESS
+ÿ CR x: 704 ns DAS LA
+SA RME LA ‘ M
+| LES SUPPLIANTS à
+RNA ; Fe
+pie 1e ES 4
+4 À. 1 For
+HE 34 : ch: . 7
+FUIT k a
+_ 1 A 1 Ce
+VUS M AU
+: } 44
+% f RC
++14 À HR
+NAZAIRE ‘ | TOR
+Ai s Eh 4
+18 , ESS
+Le ef C
+me dy ut Qu:
+
+Ta] 4 Won rYW ie je " ! A à t 4 " $
+à NAN EUR CNP RS ORAN EE BAS OS LES RO ES Ge
+; He gx ui | À NA po : FONTATAOMENNEE
+SAUTER t ï A AU QRE "A1 TIR M eAS ‘7
+
+AE b 1 |
+di __ DU MÊME AUTEUR h |
+“40 en vente à la librairie des cahiers YA
+de. A chaque jour, — poèmes, — dix-septième cahier = |
+HT EURE # M4 tes 1
+
+_ de la cinquième série deux francs |
+ATEN mel
+
+Here ne Ë À
+Met À ma grand mère, — un poème, — dans le deuxième
+AT Cahier de Noël, septième cahier de la sixième série
+0080 ‘ . L'1a
++000 vingt francs”
+
+o) 75h e Dr + 4
+nt: (18
+AR 4 Fa Te
+KDE À DA
+| APR 6160
+
+Li NE NO RE PET IR AE
+de si (74e cx14343 5 AE 4 PPDA Ÿ 4
+LL François Porcité te
+l Î ‘pe ÿ
+É 6 TES
+{4 . de
+| è
+si ‘
+El LES SUPPLIANTS R
+A ,
+4 |
+110 -
+Rien au dehors : la nuït et le froid sur la pierre. |
+Eux, dans l'ombre entassés, ils rêvaient : leur paupière
+de Éblouie a cru voir la rue illuminée, s
+1 Claire comme une église profonde à Noël.
+&. Des chants, des bannières paisibles : sous le ciel |
+54 Une grave bonté de l'homme à l'homme est née. à
+: à Le cortège à pas lents s'ébranle et chacun sent
+"4 Un tremblement d'amour gagner ses mains, ses lèvres;
+_ Les fronts sont relevés, l'œil s'étonne innocent Ë
+4 De ne comprendre plus la haïne ; et vous, 6 fièvres
+4 Des mauvais soirs, colère, ivrognerie, injures,
+nt Bientôt cendre au milieu des hautes flammes pures.
+{ Mais lorsque, fous de joie, ils se dressaient, leur couche ®
+4 Était noire et la faim reprenait dans leur bouche en
+ÿ Ses longs cris sourds. Alors, comme pour fuir ce mal, à
+; Ils tournaient dans leur cage obscure et, las, pesants, A
+: 107
+
+"Jane TE François Porché NS |
+; ñ Semblaient courber le dos sous des ans et des ans {
+De misère. 1 |
+Pitié ! c'est un pauvre animal |
+Qui souffre, c'est le froid qui prend la chair vivante |
+Et la resserre et l'engourdit dans l'épouvante ii
+De la mort. Fais-nous grâce, interminable nuit. | (l
+Accablés de douleurs, nous guettons dans l'espace (8
+x La déchirure de l'aube, mais le temps passe, 18!
+Les siècles. La fenêtre est sombre, rien ne luit. “ Ë
+Fu Seule une lampe dans un coin, devant l'icône. : 11
+14 Grain de feu, sauve-nous ! petite étoile jaune, | »|
+Élance-toi, grandis rose aux carreaux de givre, a !
+| Sois l'Archange debout sur la neige, délivre HN
+DU L'orient. ï ; |
+C'est le jour. 6!
+D
+O lumière d'hiver, | :
+Pâle soleil blessé qui combattais dans lair j
+Pour nous joindre, rayon d'espoir tombé des nues, D »
+Entre, Seigneur à bout de forces, viens chez nous |
+Te réchauffer contre nos cœurs, sur nos genoux. |
+Laisse, soleil du pauvre, aux murs des chambres nues, |
+Dans la paille, dans les cheveux blonds de nos femmes, | |
+Sur les outils de l'établi, laisse en nos âmes | L A!
+Un peu de clair-obscur divin. Nous avons foi : |
+C'est l'attente, au réveil, toujours, d'on ne sait quoi, 1
+108 | Il
+
+D EE UNE EVA Le EN M AT on 1 Ne RTE D APE en EE TE ER
+Li HR
+LES SUPPLIANTS
+Puis le recommencement du malheur, l'usure
+De l'espérance au long du jour gris, à mesure
+Que du fond de l'échoppe au bord du toit en face
+Ta clarté se retire en montant et s'efface.
+L'autre été, dans la cour, un semblant de verdure
+Voulut vivre ; une tige grimpante a cherché
+Longtemps, de tout son humble amour, le ciel caché.
+Croirait-on qu'une faible plante füt si dure
+À mourir ?
+O les soirs, quand notre corps allonge
+Ses jambes tristement pour le sommeil et songe :
+Dormir, oublier tout, dormir sans rêve. Heureux
+Les morts : ils ont le poids de la terre sur eux,
+. L'ombre où ne descend pas le jour ; leur nuit ignore
+Nos soubresauts, nos tâtonnements vers l'aurore.
+Et voici qu'une fois encore l'aube a lui. À
+Comme elle brille aux vitres d'or ! la sainte messe
+; N'est pas plus belle. O joie ! est-ce pour aujourd'hui ?
+Vois, soleil, nous croyons quand même en ta promesse.
+Les femmes, on entend leur silence :
+: Nous sommes
+Où le ruisseau de fange aboutit et, si bas
+Dans l'asservissement que soient courbés les hommes,
+Plus bas encore. Ils vont, le soir, disputer, boire.
+Où traînent-ils si tard ? du bruit... est-ce leur pas
+Dans l'escalier? des mains cherchent la porte noire.
+: Les enfants réveillés gémissent : ils ont faim.
+109 les suppliants. — 7
+
+François Porché É ‘4
+Ils ont peur. Viens, petit, dans les bras de ta mère, à.
+Tète, épuise à longs traits ses mamelles, afin D |!
+; Que sa douleur, ce soir, tout en lait nourrissant 1 N
+S'écoule, t''enveloppe et que la source amère, 3 |
+.. Tu l'entendes un jour se plaindre dans ton sang. D |!
+Vierges nous n'avons eu de fraicheur, de jeunesse, LE |!
+Que ce qu'il faut à Dieu pour que le désir naïsse À
+Un matin : sur la joue un peu de rose ; aux yeux 1
+" Un éclat inaccoutumé, mystérieux. e
+Le piège c'est la rue au printemps, les gentilles LP
+Paroles : ce qui chante au cœur des pauvres filles. L' |
+Aujourd'hui, l'habitude morne, les tempêtes L |
+De l'alcool ont fait de nous les sœurs des bêtes. À
+Pourtant notre chair lasse est féconde toujours;
+Laide, triste, vieille avant l'âge, elle ne cesse
+D'accomplir son destin, de grossesse en grossesse : :
+En été, quand la nuit penche sur les faubourgs, |
+Écoutez quel vacarme d'enfants ! un délire, ;
+Une hâte à jouer plus que jamais, plus loin, \
+Encore; et de partout, d'un hangar, d'un vieux coin,
+Monte leur cri d'oiseaux passionnés, leur rire : "4
+On croit voir s'animer chaque pierre ; leur nombre 1
+Paraît confusément grandir, embrasser l'ombre. :
+Crépuscule du soir, heure, en toute saison,
+Complice : la fatigue obscurcit la raison; , i
+IIO 4
+
+ee AU Ne on NE
+a : ‘5
+RS T0 6 40
+TON 7 07 LES SUPPLIANTS Fe
+E _ Une voix s'insinue, entraîne dans la brume n.
+ER. Les cœurs faibles, les pieds hésitants, bientôt lâches.
+F. _ L'oubli, promet la voix, l'oubli des lourdes tâches #
+: 5 A deux pas, où l'enseigne est dorée et s'allume...
+°2 à Hier, l'ivrogne dormait en travers du chemin,
+k La face contre terre, inerte. Quelle main ;
+| A réveillé ce mort ? il se dresse, il regarde ;
+| E- Les pâles boulevards déserts où le jour point
+È : : Et, ramenant sur lui sa prunelle hagarde,
+: 2 Le front baissé, longtemps cherche et ne trouve point.
+: Plus fortement la main invisible se pose
+4 » Sur son bras : il tressaille, il a compris, il ose “
+_ Voir sa honte, espérer. Déjà sur le pavé :
+*  S'avance obliquement l'aurore : il est sauvé. |
+e Jésus, pour la dernière fois, lointain azur
+…_O  Sanslimite, éclaircie entre les cheminées
+pe : Vers le silencieux infini, grand jour pur,
+4 __ Descends, force la nuit où vont nos destinées,
+…_ Montre à nu le visage ancien de la douleur,
+À F2 _ Jette hors pêle-mêle, accouplés au malheur,
+“3 Les vices, fouille l'ombre en tous les recoins, lève
+* Sur les monstres tapis dans la cave ton glaive.
+si Tue en nous le passé : nos cœurs ont tour à tour :
+D Aimé, haï. Mon Dieu, que voulaient ces rancunes ?
+% _ Les fautes ne sont-elles pas toujours communes ?
+a de - Oh! que cette heure soit tout pardon, tout amour!
+
+François Porché 4
+
+C'est alors, à midi, que très calmes, ensemble, 4
+Hommes, femmes, enfants, les yeux tournés, il semble,
+Vers ce beau rêve intérieur qui les protège, 4
+Ils s'en viennent, les pas assourdis par la neige. HT SE
+Sombres, lourds, pleins de grave silence, ils ont l'air à
+De s'éveiller mal affermis d'un long hiver, $
+Comme en mars, reprenant, au soleil, conscience, B:
+La terre lentement sort de sa patience. D
+Sans doute, lorsqu'on a souffert pendant des ans, 4
+2 Chacun dans sa prison, à l'étroit, pour son compte, 4
+Quand l'escalier, les murs, le plafond, tout raconte ;
+Jour par jour une vie aux combats épuisants, 3 !
+Quand sur le cœur, avec sa peine à soi, l'on porte F
+Les siècles, tout un faix de vieille douleur morte, 4
+Sans doute il vient une heure où ni chambre, ni hall, É-
+Ni cour d'usine, où rien de ce qu'a bâti l'homme 4
+N'est assez grand pour tant de maux, où l'alcool i
+Est impuissant malgré les coups dont il assomme, 1
+Où l'être enfin, las de lui-même, ne peut plus ‘4
+Rester seul, replié dans son logis, reclus. 4
+Il faut à la misère immensément accrue, A
+A son piétinement innombrable, à sa horde À ;
+Errante, à son flot noir qui monte et qui déborde, À
+De l'espace, dans toute sa largeur la rue. E
+112 “4
+É.
+
+î 4 ER ee « _
+| FE LR T ER PR LES SUPPLIANTS æ È
+131 Elle rit des cloisons, de ces petits carrés 3
+& . Où, voisins, entendant leurs voix sans se connaître,
+F Le _ Des frères malheureux ont vécu séparés ;
+DE. _ Et chacun, du dehors regardant sa fenêtre,
++ #: S'étonne. Coude à coude, on ne sent plus le froid,
+Re _ Ou bien c'est comme un gai, vif compagnon de route.
+y Re Il dit : Courage, allons, camarade ! On l'écoute.
+| "ESS 11 chante : Espère, l'heure est venue. On le croit.
++ __ Naguères, la souffrance avait honte : maussade,
+4 __ Dérobant aux regards sa plaie empoisonnée,
+_ Elle rasait les murs, tournait la palissade
+… Du terrain vague avec la chienne abandonnée. ne
+E=- Mais aujourd'hui qu'un seul cœur bat, qu'un seul profond,
+Re ie Irrésistible rythme ondule dans la foule,
+D. _ Tout est égal, souffrance, amour, tout se confond ?
+54 Dans un remous, un bruit de grand fleuve qui roule.
+“5e _ Sentez-vous? c'est comme une autre âme : je la vois
+54 Briller dans tous les yeux; sa voix dans chaque voix
+be _ Tremble; comme au midi carillonné des fêtes,
+Fe 33 _ Elle est la brise en l'oriflamme, elle est encor,
+Fe Es ; Émergeant de l'obscur moutonnement des têtes,
+RS Balancée au soleil, l'icône toute en or;
+E- a Elle est la vision nocturne reparue,
+60 _ Mais grandie et mêlée au jour clair, à la rue,
+2 Non plus songe qui fuit nos bras quand nous dormons, 4
+0% Mais nous, nous-mêmes, respirant à pleins poumons ;
+704 _ _ Haleines des enfants, vapeurs des lèvres douces,
+* | Glace qui luit et fond dans les moustaches rousses, s”
+
+AR RES DA TS APRES RESTES
+ARS François Porché STE
+u _ Femmes, troupeau serré de tristes châles noirs, $
+_ Cette âme est tout cela, crédulités, espoirs, : 1 |
+ra Bontés aux larges dos et l'empreinte que laisse i F4
+a Un gros soulier qui vient droit sur la neige épaisse ; E
+“ Elle est aussi, montant de proche en proche, en chœur, 4
+A Le chant du psaume : il veut s'envoler, il s'élance, Re il
+Plane un moment, retombe... et, dans le grand silence, D |!
+SES Elle est le sourd marteau précipité du cœur; nn |:
+. Aux tempes, aux jarrets elle afflue et bourdonne, 4 |
+Et dans l'air, devant nous, derrière nous, là-bas, à Be
+de Sur les quais, sur les ponts, marchant, marquant le pas, É.
+_ C'est elle, elle toujours, qui supplie et pardonne. F4 |
+? Mais, au loin, une ligne sombre, une barrière à 4
+; Vivante se dresse. Un ordre bref la secoue : 3
+Trois rangs, l'un à genoux, les deux autres derrière "4
+Debout, tous bien d'aplomb, attentifs, l'arme en joue. Le:
+2148)
+François PORCHÉ 3
+di
+D,
+
+LL, 20 FPE EU T à 4 VS ASSET ENST TURN VO A Sr
+D fe g 1: "EN
+
+3! LORS TRES ie
+Te EME < te
+RASE LL à # HE
+
+AT Le ETAT EN F Ce.
+DATA RL © er
+| LHAURNSNIERSSS 14
+
+À: RTE BR "2 [ Pt}
+
+PRET ru Le S 4
+LEA 17 24 €: #4
+1 RESTES Bt, { = |
+D nl
+Re i 1 rh
+2 RITES NE
+
+L1,7 TUNER fai
+LR 9 - D ne
+Re LE : ie.
+M: : j D'LA
+1 12 TRÈS » 17
+. n = |
+ESS LCR
+
+a . * * Ro Pa Murs re
+CAHIERS DE LA QUINZAINE, 8, rue de la Sorbonne,
+rez-de-chaussée, Paris, cinquième arrondissement, 00
+3 3
+Nos Cahiers sont édités par des souscriptions mensuelles régulières et par des souscriptions extraordi- : È
+naires ; la souscription ne confère œucune autorité sur à
+la rédaction ni sur l'administration ; ces fonctions 4
+demeurent libres. E..
+Nos Cahiers paraissent par séries; une série paraît 4
+dans le temps d'une année scolaire, d'une année x
+ouvrière, d'octobre-novembre à juin-juillet; l'abonnement se prend pour une série. 4
+On peut souscrire cet abonnement à tout moment de .
+l'année, mais l'abonnement ainsi souscrit est, de droit,
+valable pour la série en cours, et pour toute cette série. ©
+Prix de l'abonnement, pour chaque série annuelle A
+pendant le cours de cette série : È
+! Paris, départements, Alsace-Lorraine, à
+Abonnement ordi- Algérie, Tunisie.... vingt francs 160
+HAUTE ace | Autres pays de l'Union postale Di à
+! \  verselle....... vingt-cinq francs nn
+Abonnement sur whatman... cent francs pour tous pays 53
+Les exemplaires sur whatman, tirage non réimposé, 4
+sont numérotés à la presse et imprimés au nom du 1
+souscripteur ; le tirage à part sur whatman commen- ‘4
+cera de fonctionner au premier janvier 1906; les :
+inscriptions pour cet abonnement particulier sont reçues "2
+dès à présent et reçoivent un numéro d'ordre déterminé ”
+automatiquement par le rang même qu'elles occupent À
+dans l'ordre de l'arrivée, les numéros les plus bas venant
+naturellement aux premières inscriptions; c'est ce nu- “ci
+méro d'inscription qui deviendra automatiquement le 4
+numéro du tirage réservé à chacun des souscripteurs ; 0
+e l'édition sur whatman sera strictement limitée au ‘4
+nombre d'exemplaires souscrit à chaque instant. “à
+
+Pour tout changement d'adresse envoyer soixante AR
+centimes, quatre timbres de quinze centimes. ns |!
+_ Nous engageons nos abonnés de, certains pays à nous j
+. demander un abonnement recommandé ; tous les cahiers
+de l'abonnement recommandé sont empaquetés à part et
+. recommandés à la poste ; la recommandation postale,
+comportant une transmission de signature, garantit le
+destinataire contre certains abus; pour cette recom
+mandation, pour tous pays, en sus, cinq francs. E.
+Automatiquement et sans augmentation de prix les ne |!
+exemplaires sur whatman sont tous recommandés et Lenvoyés aux souscripteurs dans des enveloppes-sacs. : É
+É L'abonnement ordinaire cesse de fonctionner pour 4
+chaque série au plus tard le 31 décembre qui suit 4
+à l'achèvement de cette série; ainsi du premier octobre 4
+au 31 décembre 1905, et sauf épuisement de la sixième = "
+série, on peut encore avoir pour vingt francs les dix-sept #
+cahiers de cette sixième série complète. b:
+A partir du premier janvier qui suit l'achèvement 5
+d'une série, le prix de cette série est porté au moins E,
+au total des prix marqués; ainsi à dater du premier 3
+janvier 1906 la sixième série complète, s'il en reste +
+encore à celte date, se vendra soixante-treize francs. L

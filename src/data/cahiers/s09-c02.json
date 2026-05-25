@@ -1,0 +1,18 @@
+{
+  "slug": "s09-c02",
+  "series": 9,
+  "issue": 2,
+  "label": "IX-2",
+  "titleFr": "Deuxième cahier de la neuvième série",
+  "sourceUrl": "https://archive.org/stream/s9cahiersdelaquinz01pg#page/n164/mode/1up",
+  "pieces": [
+    {
+      "slug": "quarante-huit",
+      "titleFr": "Quarante-Huit",
+      "author": "robert-dreyfus",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1907-10-20"
+}

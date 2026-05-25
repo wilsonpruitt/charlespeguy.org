@@ -1,0 +1,18 @@
+{
+  "slug": "s06-c01",
+  "series": 6,
+  "issue": 1,
+  "label": "VI-1",
+  "titleFr": "Premier cahier de la sixième série",
+  "sourceUrl": "https://archive.org/stream/s6cahiersdelaquinz01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "texte-sans-commentaires-catalogue-analytique-sommaire",
+      "titleFr": "Texte sans commentaires. Catalogue analytique sommaire",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1904-10-05"
+}

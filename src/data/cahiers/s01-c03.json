@@ -1,0 +1,18 @@
+{
+  "slug": "s01-c03",
+  "series": 1,
+  "issue": 3,
+  "label": "I-3",
+  "titleFr": "Troisième cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaquinz1pg#page/n300/mode/1up",
+  "pieces": [
+    {
+      "slug": "pour-ou-contre-le-socialisme-la-preparation-du-congres-socialiste-national",
+      "titleFr": "Pour ou contre le socialisme. La préparation du congrès socialiste national",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-02-05"
+}

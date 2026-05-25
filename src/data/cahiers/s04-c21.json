@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c21",
+  "series": 4,
+  "issue": 21,
+  "label": "IV-21",
+  "titleFr": "Vingt-et-unième cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz18pg#page/n284/mode/1up",
+  "pieces": [
+    {
+      "slug": "edgar-quinet",
+      "titleFr": "Edgar Quinet",
+      "author": "henry-michel",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-08-05"
+}

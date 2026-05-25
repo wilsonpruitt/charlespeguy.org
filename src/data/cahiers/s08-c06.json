@@ -1,0 +1,24 @@
+{
+  "slug": "s08-c06",
+  "series": 8,
+  "issue": 6,
+  "label": "VIII-6",
+  "titleFr": "Sixième cahier de la huitième série",
+  "sourceUrl": "https://archive.org/stream/s8cahiersdelaquinz05pg#page/n80/mode/1up",
+  "pieces": [
+    {
+      "slug": "jean-christophe",
+      "titleFr": "Jean-Christophe",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    },
+    {
+      "slug": "la-revolte-2-l-enlisement",
+      "titleFr": "La révolte. 2. L'enlisement",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1906-12-20"
+}

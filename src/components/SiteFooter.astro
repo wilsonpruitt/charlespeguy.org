@@ -1,0 +1,44 @@
+---
+import { isFrPath, workUrl, navUrl } from '../lib/paths';
+
+const path = Astro.url.pathname;
+const isFr = isFrPath(path);
+
+const works = [
+  { slug: 'jean-christophe', title: 'Jean-Christophe' },
+  { slug: 'mes-cahiers-rouges', title: 'Mes cahiers rouges' },
+  { slug: 'les-milliet', title: 'Les Milliet' },
+  { slug: 'lordination', title: "L'Ordination" },
+  { slug: 'les-mysteres', title: 'Les Mystères' },
+];
+
+const aboutHref = navUrl('about', isFr);
+const aboutLabel = isFr ? 'À propos.' : 'About this archive.';
+const intro = isFr
+  ? 'Œuvres longues réunies en ordre de lecture :'
+  : 'Long works assembled in reading order:';
+---
+
+<footer class="site-footer">
+  <p class="works-list">
+    {intro}{' '}
+    {works.map((w, i) => (
+      <>
+        <a href={workUrl(w.slug, isFr)}><em>{w.title}</em></a>{i < works.length - 1 ? ' · ' : ''}
+      </>
+    ))}
+  </p>
+  {isFr ? (
+    <p>
+      Les <em>Cahiers de la Quinzaine</em>, dirigés par <strong>Charles Péguy</strong>, 1900–1914.
+      <br />
+      Une archive numérique sur <a href="/fr/">charlespeguy.org</a>. <a href={aboutHref}>{aboutLabel}</a>
+    </p>
+  ) : (
+    <p>
+      <em>Cahiers de la Quinzaine</em>, edited by <strong>Charles Péguy</strong>, 1900–1914.
+      <br />
+      A digital archive at <a href="/">charlespeguy.org</a>. <a href={aboutHref}>{aboutLabel}</a>
+    </p>
+  )}
+</footer>

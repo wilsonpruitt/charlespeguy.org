@@ -1,0 +1,67 @@
+---
+// Site header with bilingual chrome + lang toggle.
+import { isFrPath, toFr, toEn, navUrl } from '../lib/paths';
+
+const path = Astro.url.pathname;
+const isFr = isFrPath(path);
+const isHome = path === '/' || path === '' || path === '/fr' || path === '/fr/';
+
+const altUrl = isFr ? toEn(path) : toFr(path);
+const altLabel = isFr ? 'EN' : 'FR';
+
+const homeUrl = isFr ? '/fr/' : '/';
+const nav = isFr
+  ? [
+      { href: navUrl('cahiers', true), label: 'Cahiers' },
+      { href: navUrl('authors', true), label: 'Auteurs' },
+      { href: navUrl('about', true), label: 'À propos' },
+    ]
+  : [
+      { href: navUrl('cahiers', false), label: 'Cahiers' },
+      { href: navUrl('authors', false), label: 'Authors' },
+      { href: navUrl('about', false), label: 'About' },
+    ];
+---
+
+{!isHome && (
+  <header class="site-header">
+    <p class="site-title">
+      <a href={homeUrl}>
+        <span class="site-title-name">Charles Péguy</span>
+        <span class="site-title-sep">·</span>
+        <em class="site-title-journal">Cahiers de la Quinzaine</em>
+      </a>
+    </p>
+    <nav class="site-nav">
+      {nav.map(item => (<a href={item.href}>{item.label}</a>))}
+      <a href={altUrl} class="lang-toggle" data-set-lang={altLabel.toLowerCase()}>{altLabel}</a>
+    </nav>
+  </header>
+)}
+
+<style>
+  .site-title-name { color: var(--ink); font-style: normal; letter-spacing: 0.01em; }
+  .site-title-sep { color: var(--rouge); margin: 0 0.5em; font-style: normal; }
+  .site-title-journal { color: var(--ink-soft); }
+  .site-title a:hover .site-title-name,
+  .site-title a:hover .site-title-journal { color: var(--rouge); }
+  .lang-toggle {
+    border: 1px solid var(--rule);
+    padding: 0.1rem 0.5rem;
+    margin-left: 0.5rem;
+    color: var(--ink-soft);
+    font-variant: small-caps;
+    letter-spacing: 0.1em;
+    font-size: 0.8rem;
+    text-decoration: none;
+    transition: background 0.15s, color 0.15s;
+  }
+  .lang-toggle:hover { background: var(--rouge); color: var(--paper); border-color: var(--rouge); }
+</style>
+
+<script is:inline>
+  document.addEventListener('click', (e) => {
+    const t = e.target.closest('[data-set-lang]');
+    if (t) localStorage.setItem('peguy-lang', t.dataset.setLang);
+  });
+</script>

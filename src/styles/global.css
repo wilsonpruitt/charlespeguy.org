@@ -1,0 +1,175 @@
+/* charlespeguy.org — restrained periodical typography
+   Cream paper / ink-black text / subtle Quinzaine rouge accents */
+
+:root {
+  /* Palette */
+  --paper: #f6f1e7;          /* slightly warm cream */
+  --paper-deep: #ece4d2;     /* deeper paper for cards / dividers */
+  --ink: #1a1612;            /* near-black with brown warmth */
+  --ink-soft: #4a4238;       /* secondary text */
+  --ink-muted: #8a7f6d;      /* dates, metadata */
+  --rouge: #8b1e1e;          /* Quinzaine rouge — gérant's red */
+  --rouge-soft: #b25656;     /* hover/link accents */
+  --rule: #c9bfa8;           /* hairline dividers */
+
+  /* Type scale */
+  --serif: 'EB Garamond', 'Crimson Pro', Georgia, 'Times New Roman', serif;
+  --sans: 'Inter', 'Helvetica Neue', system-ui, sans-serif;
+  --mono: 'IBM Plex Mono', 'Courier New', monospace;
+
+  /* Sizing */
+  --measure: 36rem;          /* reading column width */
+  --measure-wide: 60rem;     /* index pages */
+  --gutter: clamp(1rem, 4vw, 2.5rem);
+}
+
+* {
+  box-sizing: border-box;
+}
+
+html {
+  font-size: clamp(17px, 1vw + 14px, 19px);
+  -webkit-text-size-adjust: 100%;
+}
+
+body {
+  margin: 0;
+  background: var(--paper);
+  color: var(--ink);
+  font-family: var(--serif);
+  font-weight: 400;
+  line-height: 1.6;
+  font-feature-settings: 'liga', 'kern', 'onum';
+  text-rendering: optimizeLegibility;
+  -webkit-font-smoothing: antialiased;
+}
+
+a {
+  color: var(--rouge);
+  text-decoration: none;
+  border-bottom: 1px solid transparent;
+  transition: border-color 0.15s ease, color 0.15s ease;
+}
+
+a:hover {
+  color: var(--rouge-soft);
+  border-bottom-color: var(--rouge-soft);
+}
+
+h1, h2, h3, h4 {
+  font-weight: 400;
+  letter-spacing: -0.005em;
+  line-height: 1.2;
+  margin: 2em 0 0.5em;
+}
+
+h1 { font-size: 2.2rem; }
+h2 { font-size: 1.6rem; }
+h3 { font-size: 1.25rem; }
+h4 { font-size: 1.05rem; }
+
+p { margin: 0 0 1.1em; }
+
+hr {
+  border: none;
+  border-top: 1px solid var(--rule);
+  margin: 2.5rem 0;
+}
+
+/* ----------- layout ----------- */
+
+.page {
+  max-width: var(--measure-wide);
+  margin: 0 auto;
+  padding: 2rem var(--gutter) 4rem;
+}
+
+.reading {
+  max-width: var(--measure);
+  margin: 0 auto;
+}
+
+/* ----------- header ----------- */
+
+.site-header {
+  border-bottom: 1px solid var(--rule);
+  padding: 1.5rem var(--gutter);
+  display: flex;
+  justify-content: space-between;
+  align-items: baseline;
+  gap: 2rem;
+  flex-wrap: wrap;
+}
+
+.site-title {
+  font-size: 1.15rem;
+  font-style: italic;
+  letter-spacing: 0.02em;
+  margin: 0;
+}
+
+.site-title a {
+  color: var(--ink);
+  border: none;
+}
+
+.site-nav {
+  display: flex;
+  gap: 1.5rem;
+  font-size: 0.95rem;
+  font-style: italic;
+  font-variant: small-caps;
+  letter-spacing: 0.05em;
+}
+
+.site-nav a {
+  color: var(--ink-soft);
+  border: none;
+}
+
+.site-nav a:hover {
+  color: var(--rouge);
+}
+
+/* ----------- footer ----------- */
+
+.site-footer {
+  border-top: 1px solid var(--rule);
+  padding: 2rem var(--gutter);
+  font-size: 0.85rem;
+  color: var(--ink-muted);
+  text-align: center;
+  margin-top: 4rem;
+}
+
+.site-footer .works-list {
+  margin: 0.5rem 0 1rem;
+  font-style: italic;
+}
+
+.site-footer .works-list a {
+  margin: 0 0.5rem;
+}
+
+/* ----------- utility ----------- */
+
+.metadata {
+  font-style: italic;
+  color: var(--ink-muted);
+  font-size: 0.95rem;
+}
+
+.small-caps {
+  font-variant: small-caps;
+  letter-spacing: 0.05em;
+}
+
+.rule-ornament {
+  text-align: center;
+  color: var(--rouge);
+  font-size: 1.5rem;
+  margin: 2rem 0;
+  letter-spacing: 0.5rem;
+}
+
+.rule-ornament::before { content: '⁂'; }

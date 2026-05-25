@@ -1,0 +1,30 @@
+{
+  "slug": "s01-c12",
+  "series": 1,
+  "issue": 12,
+  "label": "I-12",
+  "titleFr": "Douzième cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaqui12pg#page/n2/mode/1up",
+  "pieces": [
+    {
+      "slug": "deuxieme-serie-au-provincial",
+      "titleFr": "Deuxième série au Provincial",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "administration",
+      "titleFr": "Administration",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "nouvelles-communications",
+      "titleFr": "Nouvelles communications",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-06-20"
+}

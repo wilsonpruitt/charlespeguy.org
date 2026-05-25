@@ -1,0 +1,18 @@
+{
+  "slug": "s11-c02",
+  "series": 11,
+  "issue": 2,
+  "label": "XI-2",
+  "titleFr": "Deuxième cahier de la onzième série",
+  "sourceUrl": "https://archive.org/stream/s11cahiersdelaqui01pg#page/n80/mode/1up",
+  "pieces": [
+    {
+      "slug": "le-portique",
+      "titleFr": "Le portique",
+      "author": "gabriel-trarieux",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1909-10-20"
+}

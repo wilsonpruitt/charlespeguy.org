@@ -1,0 +1,36 @@
+{
+  "slug": "s12-c10",
+  "series": 12,
+  "issue": 10,
+  "label": "XII-10",
+  "titleFr": "Dixième cahier de la douzième série",
+  "sourceUrl": "https://archive.org/stream/s12cahiersdelaqui07pg#page/n444/mode/1up",
+  "pieces": [
+    {
+      "slug": "les-milliet",
+      "titleFr": "Les Milliet",
+      "author": "paul-milliet",
+      "isAvertissement": false
+    },
+    {
+      "slug": "adrien-de-tuce",
+      "titleFr": "Adrien de Tucé",
+      "author": "adrien-de-tuce",
+      "isAvertissement": false
+    },
+    {
+      "slug": "cinq-ans-au-mexique",
+      "titleFr": "Cinq ans au Mexique",
+      "author": "adrien-de-tuce",
+      "isAvertissement": false
+    },
+    {
+      "slug": "oeuvres-choisies-postface",
+      "titleFr": "Œuvres choisies (postface)",
+      "author": "charles-peguy",
+      "isAvertissement": false,
+      "pages": "153-172"
+    }
+  ],
+  "partOfWorks": []
+}

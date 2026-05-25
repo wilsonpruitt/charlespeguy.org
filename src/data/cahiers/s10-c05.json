@@ -1,0 +1,18 @@
+{
+  "slug": "s10-c05",
+  "series": 10,
+  "issue": 5,
+  "label": "X-5",
+  "titleFr": "Cinquième cahier de la dixième série",
+  "sourceUrl": "https://archive.org/stream/s10cahiersdelaquinz03pg#page/n248/mode/1up",
+  "pieces": [
+    {
+      "slug": "le-portrait-d-ibsen",
+      "titleFr": "Le portrait d'Ibsen",
+      "author": "andre-suares",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908-12-05"
+}

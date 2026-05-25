@@ -1,0 +1,69 @@
+---
+import '../styles/global.css';
+import SiteHeader from '../components/SiteHeader.astro';
+import SiteFooter from '../components/SiteFooter.astro';
+
+interface Props {
+  title: string;
+  description?: string;
+  lang?: 'en' | 'fr';
+}
+
+const { title, description, lang = 'en' } = Astro.props;
+---
+
+<!doctype html>
+<html lang={lang}>
+  <head>
+    <meta charset="UTF-8" />
+    <meta name="viewport" content="width=device-width, initial-scale=1.0" />
+    <meta name="generator" content={Astro.generator} />
+    <title>{title} — charlespeguy.org</title>
+    {description && <meta name="description" content={description} />}
+    <link rel="preconnect" href="https://fonts.googleapis.com" />
+    <link rel="preconnect" href="https://fonts.gstatic.com" crossorigin />
+    <link
+      href="https://fonts.googleapis.com/css2?family=EB+Garamond:ital,wght@0,400;0,500;1,400&display=swap"
+      rel="stylesheet"
+    />
+    <script is:inline>
+      // Auto-detect language on first visit; respect saved preference thereafter.
+      // Runs early (before render) so French visitors don't briefly see English chrome.
+      (function () {
+        try {
+          var path = window.location.pathname;
+          var isFr = path === '/fr' || path === '/fr/' || path.indexOf('/fr/') === 0;
+          var saved = localStorage.getItem('peguy-lang');
+          if (saved) {
+            // Honor user's saved choice
+            if (saved === 'fr' && !isFr) {
+              window.location.replace('/fr' + (path === '/' ? '/' : path));
+              return;
+            }
+            if (saved === 'en' && isFr) {
+              window.location.replace(path.replace(/^\/fr/, '') || '/');
+              return;
+            }
+          } else {
+            // First visit — sniff browser language
+            var browserLang = (navigator.language || navigator.userLanguage || '').toLowerCase();
+            var wantsFr = browserLang.indexOf('fr') === 0;
+            if (wantsFr && !isFr) {
+              window.location.replace('/fr' + (path === '/' ? '/' : path));
+              return;
+            }
+          }
+        } catch (e) {
+          // localStorage unavailable / private browsing — fall through, no redirect
+        }
+      })();
+    </script>
+  </head>
+  <body>
+    <SiteHeader />
+    <main class="page">
+      <slot />
+    </main>
+    <SiteFooter />
+  </body>
+</html>

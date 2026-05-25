@@ -1,0 +1,18 @@
+{
+  "slug": "s02-c11",
+  "series": 2,
+  "issue": 11,
+  "label": "II-11",
+  "titleFr": "Onzième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz11pg#page/75/mode/1up",
+  "pieces": [
+    {
+      "slug": "compte-rendu-de-mandat",
+      "titleFr": "Compte rendu de mandat",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-03-05"
+}

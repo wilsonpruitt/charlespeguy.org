@@ -1,0 +1,18 @@
+{
+  "slug": "s10-c02",
+  "series": 10,
+  "issue": 2,
+  "label": "X-2",
+  "titleFr": "Deuxième cahier de la dixième série",
+  "sourceUrl": "https://archive.org/stream/s10cahiersdelaqui02pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "dix-contes-ecrits-dans-le-nord",
+      "titleFr": "Dix contes écrits dans le Nord",
+      "author": "pierre-hamp",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908-10-20"
+}

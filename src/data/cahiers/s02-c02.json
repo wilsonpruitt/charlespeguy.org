@@ -1,0 +1,18 @@
+{
+  "slug": "s02-c02",
+  "series": 2,
+  "issue": 2,
+  "label": "II-2",
+  "titleFr": "Deuxième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz05pg#page/n84/mode/1up",
+  "pieces": [
+    {
+      "slug": "vers-l-action",
+      "titleFr": "Vers l'action",
+      "author": "rene-salome",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-10-20"
+}

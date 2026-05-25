@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c05",
+  "series": 5,
+  "issue": 5,
+  "label": "V-5",
+  "titleFr": "Cinquième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz01pg#page/n574/mode/1up",
+  "pieces": [
+    {
+      "slug": "discours-pour-la-liberte",
+      "titleFr": "Discours pour la liberté",
+      "author": "georges-clemenceau",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-12-05"
+}

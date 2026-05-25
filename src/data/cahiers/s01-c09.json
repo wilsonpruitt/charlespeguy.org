@@ -1,0 +1,24 @@
+{
+  "slug": "s01-c09",
+  "series": 1,
+  "issue": 9,
+  "label": "I-9",
+  "titleFr": "Neuvième cahier de la premier série",
+  "sourceUrl": "https://gallica.bnf.fr/ark:/12148/bpt6k67405170/f1.image",
+  "pieces": [
+    {
+      "slug": "entre-deux-trains",
+      "titleFr": "Entre deux trains",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "le-socialisme-et-les-intellectuels",
+      "titleFr": "Le Socialisme et les intellectuels",
+      "author": "paul-lafargue",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-05-05"
+}

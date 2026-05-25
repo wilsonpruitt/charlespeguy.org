@@ -1,0 +1,18 @@
+{
+  "slug": "s11-c04",
+  "series": 11,
+  "issue": 4,
+  "label": "XI-4",
+  "titleFr": "Quatrième cahier de la onzième série",
+  "sourceUrl": "https://archive.org/stream/s11cahiersdelaqui04pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-carte-au-lisere-vert",
+      "titleFr": "La carte au liseré vert",
+      "author": "georges-delahache",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1909-11-20"
+}

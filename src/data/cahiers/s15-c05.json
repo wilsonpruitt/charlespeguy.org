@@ -1,0 +1,18 @@
+{
+  "slug": "s15-c05",
+  "series": 15,
+  "issue": 5,
+  "label": "XV-5",
+  "titleFr": "Cinquième cahier de la quinzième série",
+  "sourceUrl": "https://archive.org/stream/s15cahiersdelaquinz04pg#page/399/mode/1up",
+  "pieces": [
+    {
+      "slug": "francois-villon",
+      "titleFr": "François Villon",
+      "author": "andre-suares",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1913-12-05"
+}

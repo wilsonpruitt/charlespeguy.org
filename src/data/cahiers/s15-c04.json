@@ -1,0 +1,18 @@
+{
+  "slug": "s15-c04",
+  "series": 15,
+  "issue": 4,
+  "label": "XV-4",
+  "titleFr": "Quatrième cahier de la quinzième série",
+  "sourceUrl": "https://archive.org/stream/s15cahiersdelaquinz04pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "eve",
+      "titleFr": "Eve",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1913-11-20"
+}

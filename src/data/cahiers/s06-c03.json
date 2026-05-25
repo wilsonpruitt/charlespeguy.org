@@ -1,0 +1,24 @@
+{
+  "slug": "s06-c03",
+  "series": 6,
+  "issue": 3,
+  "label": "VI-3",
+  "titleFr": "Troisième cahier de la sixième série",
+  "sourceUrl": "https://archive.org/stream/s6cahiersdelaquinz01pg#page/153/mode/1up",
+  "pieces": [
+    {
+      "slug": "zangwill",
+      "titleFr": "Zangwill",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "chad-gadya",
+      "titleFr": "Chad Gadya!",
+      "author": "israel-zangwill",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1904-11-05"
+}

@@ -1,0 +1,24 @@
+{
+  "slug": "s01-c08",
+  "series": 1,
+  "issue": 8,
+  "label": "I-8",
+  "titleFr": "Huitième cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaqui05pg#page/83/mode/1up",
+  "pieces": [
+    {
+      "slug": "premiere-annonce-deuxieme-annonce-la-meme-consultation-internationale",
+      "titleFr": "Première annonce, deuxième annonce. La même Consultation internationale",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "la-lumiere",
+      "titleFr": "La lumière",
+      "author": "jerome-et-jean-tharaud",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-04-20"
+}

@@ -1,0 +1,18 @@
+{
+  "slug": "s02-c15",
+  "series": 2,
+  "issue": 15,
+  "label": "II-15",
+  "titleFr": "Quinzième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz12pg#page/n376/mode/1up",
+  "pieces": [
+    {
+      "slug": "memoires-et-dossiers-pour-les-libertes-du-personnel-enseignant-en-france",
+      "titleFr": "Mémoires et dossiers pour les libertés du personnel enseignant en France",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-07-05"
+}

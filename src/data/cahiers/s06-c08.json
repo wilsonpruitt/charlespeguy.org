@@ -1,0 +1,24 @@
+{
+  "slug": "s06-c08",
+  "series": 6,
+  "issue": 8,
+  "label": "VI-8",
+  "titleFr": "Huitième cahier de la sixième série",
+  "sourceUrl": "https://archive.org/stream/nscahiersdelaqui08pg#page/n6/mode/1up",
+  "pieces": [
+    {
+      "slug": "jean-christophe",
+      "titleFr": "Jean-Christophe",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    },
+    {
+      "slug": "l-adolescent",
+      "titleFr": "L'adolescent",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1905-01-20"
+}

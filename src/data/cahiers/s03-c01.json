@@ -1,0 +1,18 @@
+{
+  "slug": "s03-c01",
+  "series": 3,
+  "issue": 1,
+  "label": "III-1",
+  "titleFr": "Premier cahier de la troisième série",
+  "sourceUrl": "https://archive.org/stream/s3cahiersdelaquinz01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "compte-rendu-de-congres",
+      "titleFr": "Compte rendu de congrès",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-10-05"
+}

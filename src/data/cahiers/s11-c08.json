@@ -1,0 +1,24 @@
+{
+  "slug": "s11-c08",
+  "series": 11,
+  "issue": 8,
+  "label": "XI-8",
+  "titleFr": "Huitième cahier de la onzième série",
+  "sourceUrl": "https://archive.org/stream/s11cahiersdelaqui07pg#page/125/mode/1up",
+  "pieces": [
+    {
+      "slug": "jean-christophe",
+      "titleFr": "Jean-Christophe",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    },
+    {
+      "slug": "la-fin-du-voyage-i-les-amies-2",
+      "titleFr": "La fin du voyage. I. Les amies. 2",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1910-01-20"
+}

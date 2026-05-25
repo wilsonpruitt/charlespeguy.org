@@ -1,0 +1,24 @@
+{
+  "slug": "s01-c11",
+  "series": 1,
+  "issue": 11,
+  "label": "I-11",
+  "titleFr": "Onzième cahier de la premier série",
+  "sourceUrl": "https://gallica.bnf.fr/ark:/12148/bpt6k6740519t/f1.image",
+  "pieces": [
+    {
+      "slug": "reponse-breve-a-jaures",
+      "titleFr": "Réponse brève à Jaurès",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "le-socialisme-et-les-intellectuels",
+      "titleFr": "Le Socialisme et les intellectuels",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-06-05"
+}

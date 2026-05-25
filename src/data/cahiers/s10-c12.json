@@ -1,0 +1,18 @@
+{
+  "slug": "s10-c12",
+  "series": 10,
+  "issue": 12,
+  "label": "X-12",
+  "titleFr": "Douzième cahier de la dixième série",
+  "sourceUrl": "https://archive.org/stream/s10cahiersdelaqui11pg#page/385/mode/1up",
+  "pieces": [
+    {
+      "slug": "le-travail-de-zarathoustra",
+      "titleFr": "Le travail de Zarathoustra",
+      "author": "daniel-halevy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1909-03-20"
+}

@@ -1,0 +1,36 @@
+{
+  "slug": "s01-c01",
+  "series": 1,
+  "issue": 1,
+  "label": "I-1",
+  "titleFr": "Premier cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaquinz1pg#page/n3/mode/1up",
+  "pieces": [
+    {
+      "slug": "lettre-du-provincial",
+      "titleFr": "Lettre du Provincial",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "reponse-au-provincial",
+      "titleFr": "Réponse au Provincial",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "le-triomphe-de-la-republique",
+      "titleFr": "le \"triomphe de la République\"",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "l-affaire-liebknecht",
+      "titleFr": "L'affaire Liebknecht",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-01-05"
+}

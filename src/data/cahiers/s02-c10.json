@@ -1,0 +1,18 @@
+{
+  "slug": "s02-c10",
+  "series": 2,
+  "issue": 10,
+  "label": "II-10",
+  "titleFr": "Dixième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz11pg#page/n268/mode/1up",
+  "pieces": [
+    {
+      "slug": "cahier-d-annonces",
+      "titleFr": "Cahier d'annonces",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-02-20"
+}

@@ -1,0 +1,24 @@
+{
+  "slug": "s05-c10",
+  "series": 5,
+  "issue": 10,
+  "label": "V-10",
+  "titleFr": "Dixième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz06pg#page/n656/mode/1up",
+  "pieces": [
+    {
+      "slug": "jean-christophe",
+      "titleFr": "Jean-Christophe",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    },
+    {
+      "slug": "le-matin",
+      "titleFr": "Le matin",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1904-02-20"
+}

@@ -1,0 +1,24 @@
+{
+  "slug": "s07-c07",
+  "series": 7,
+  "issue": 7,
+  "label": "VII-7",
+  "titleFr": "Septième cahier de la septième série",
+  "sourceUrl": "https://archive.org/stream/s7cahiersdelaquinz05pg#page/n508/mode/1up",
+  "pieces": [
+    {
+      "slug": "les-suppliants-paralleles",
+      "titleFr": "Les suppliants parallèles",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "les-suppliants",
+      "titleFr": "Les suppliants",
+      "author": "francois-porche",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1906-01-05"
+}

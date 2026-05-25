@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c15",
+  "series": 5,
+  "issue": 15,
+  "label": "V-15",
+  "titleFr": "Quinzième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz15pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "jean-des-brebis",
+      "titleFr": "Jean des Brebis",
+      "author": "emile-moselly",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1904-05-05"
+}

@@ -1,0 +1,24 @@
+{
+  "slug": "s08-c04",
+  "series": 8,
+  "issue": 4,
+  "label": "VIII-4",
+  "titleFr": "Quatrième cahier de la huitième série",
+  "sourceUrl": "https://archive.org/stream/s8cahiersdelaquinz04pg#page/n6/mode/1up",
+  "pieces": [
+    {
+      "slug": "jean-christophe",
+      "titleFr": "Jean-Christophe",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    },
+    {
+      "slug": "la-revolte-1-sables-mouvants",
+      "titleFr": "La révolte. 1. Sables mouvants",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1906-11-20"
+}

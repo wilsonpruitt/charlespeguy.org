@@ -1,0 +1,24 @@
+{
+  "slug": "s06-c13",
+  "series": 6,
+  "issue": 13,
+  "label": "VI-13",
+  "titleFr": "Treizième cahier de la sixième série",
+  "sourceUrl": "https://archive.org/stream/s6cahiersdelaquinz13pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "l-eglise-et-l-etat",
+      "titleFr": "L'Eglise et l'Etat",
+      "author": "leon-tolstoi",
+      "isAvertissement": false
+    },
+    {
+      "slug": "les-evenements-actuels-en-russie",
+      "titleFr": "les événements actuels en Russie",
+      "author": "leon-tolstoi",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1905-04-05"
+}

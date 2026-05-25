@@ -1,0 +1,30 @@
+{
+  "slug": "s02-c03",
+  "series": 2,
+  "issue": 3,
+  "label": "II-3",
+  "titleFr": "Troisième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz05pg#page/n208/mode/1up",
+  "pieces": [
+    {
+      "slug": "pour-ma-maison",
+      "titleFr": "Pour ma maison",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "administration",
+      "titleFr": "Administration",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "le-theatre-social",
+      "titleFr": "Le théâtre social",
+      "author": "jean-jaures",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-11-05"
+}

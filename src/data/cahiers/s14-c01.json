@@ -1,0 +1,18 @@
+{
+  "slug": "s14-c01",
+  "series": 14,
+  "issue": 1,
+  "label": "XIV-1",
+  "titleFr": "Premier cahier de la quatorzième série",
+  "sourceUrl": "https://archive.org/stream/s14cahiersdelaqui01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "de-napoleon",
+      "titleFr": "De Napoléon",
+      "author": "andre-suares",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1912-10-05"
+}

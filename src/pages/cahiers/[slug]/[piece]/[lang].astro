@@ -1,0 +1,170 @@
+---
+import { getCollection, getEntry, render } from 'astro:content';
+import Base from '../../../../layouts/Base.astro';
+
+export async function getStaticPaths() {
+  const pieces = await getCollection('pieces');
+  return pieces.map(p => ({
+    params: {
+      slug: p.data.cahier.id,
+      piece: p.data.pieceSlug,
+      lang: p.data.lang,
+    },
+    props: { piece: p },
+  }));
+}
+
+const { piece } = Astro.props;
+const d = piece.data;
+const isFr = d.lang === 'fr';
+
+const cahier = await getEntry(d.cahier);
+const author = await getEntry(d.author);
+const { Content } = await render(piece);
+
+// Find sibling pieces in same cahier for prev/next-within-cahier nav.
+const cahierPieces = cahier?.data.pieces ?? [];
+const idx = cahierPieces.findIndex(p => p.slug === d.pieceSlug);
+const prevP = idx > 0 ? cahierPieces[idx - 1] : null;
+const nextP = idx >= 0 && idx < cahierPieces.length - 1 ? cahierPieces[idx + 1] : null;
+
+// Check if the other-language version exists.
+const allPieces = await getCollection('pieces');
+const otherLangExists = allPieces.some(p =>
+  p.data.cahier.id === d.cahier.id &&
+  p.data.pieceSlug === d.pieceSlug &&
+  p.data.lang !== d.lang
+);
+const otherLang = isFr ? 'en' : 'fr';
+const otherLangLabel = isFr ? 'Read in English' : 'Lire en français';
+---
+
+<Base title={d.title} lang={d.lang}>
+  <article class="piece">
+    <header class="piece-head">
+      <p class="piece-breadcrumb">
+        <a href={`/cahiers/${d.cahier.id}`}>
+          <span class="bc-label">{cahier?.data.label}</span>
+          <span class="bc-title"> · <em>{cahier?.data.titleFr}</em></span>
+          {cahier?.data.bonATirer && <span class="bc-date"> · {cahier.data.bonATirer}</span>}
+        </a>
+      </p>
+
+      {d.isAvertissement && (
+        <p class="piece-kind">Avertissement</p>
+      )}
+
+      <h1 class="piece-title">{d.title}</h1>
+      <p class="piece-author">
+        <a href={`/authors/${d.author.id}`}>{author?.data.name ?? d.author.id}</a>
+      </p>
+
+      {otherLangExists && (
+        <p class="piece-lang-switch">
+          <a href={`/cahiers/${d.cahier.id}/${d.pieceSlug}/${otherLang}`}>{otherLangLabel} →</a>
+        </p>
+      )}
+    </header>
+
+    <div class="piece-body">
+      <Content />
+    </div>
+
+    <footer class="piece-foot">
+      <nav class="piece-nav">
+        {prevP ? (
+          <a href={`/cahiers/${d.cahier.id}/${prevP.slug}/${d.lang}`} class="nav-prev">
+            ← <span class="nav-title">{prevP.titleFr}</span>
+          </a>
+        ) : <span />}
+        <a href={`/cahiers/${d.cahier.id}`} class="nav-up">Back to cahier</a>
+        {nextP ? (
+          <a href={`/cahiers/${d.cahier.id}/${nextP.slug}/${d.lang}`} class="nav-next">
+            <span class="nav-title">{nextP.titleFr}</span> →
+          </a>
+        ) : <span />}
+      </nav>
+    </footer>
+  </article>
+</Base>
+
+<style>
+  .piece { max-width: var(--measure); margin: 0 auto; }
+
+  .piece-head { text-align: center; margin: 1rem 0 3rem; }
+
+  .piece-breadcrumb {
+    font-size: 0.85rem; color: var(--ink-muted);
+    margin: 0 0 2rem;
+  }
+  .piece-breadcrumb a { border: none; color: var(--ink-muted); }
+  .piece-breadcrumb a:hover .bc-label,
+  .piece-breadcrumb a:hover .bc-title { color: var(--rouge); }
+  .bc-label {
+    color: var(--rouge); font-variant: small-caps; letter-spacing: 0.08em;
+  }
+  .bc-title { color: var(--ink-soft); }
+  .bc-date { color: var(--ink-muted); }
+
+  .piece-kind {
+    color: var(--rouge); font-style: italic;
+    font-variant: small-caps; letter-spacing: 0.15em;
+    font-size: 0.85rem; margin: 0 0 0.5rem;
+  }
+
+  .piece-title { font-size: 2rem; margin: 0 0 0.5rem; line-height: 1.2; }
+  .piece-author { font-style: italic; margin: 0; font-size: 1.05rem; }
+  .piece-author a { color: var(--ink); border: none; }
+  .piece-author a:hover { color: var(--rouge); }
+
+  .piece-lang-switch {
+    margin: 1.5rem 0 0; font-size: 0.9rem; font-style: italic;
+  }
+
+  /* Body — reading column. Markdown content. */
+  .piece-body { font-size: 1.08rem; line-height: 1.7; }
+  .piece-body :global(p) { margin: 0 0 1.1em; text-indent: 0; }
+  .piece-body :global(p + p) { text-indent: 1.5em; }
+  .piece-body :global(h2), .piece-body :global(h3) {
+    margin: 2.5em 0 0.5em; text-align: center;
+    font-variant: small-caps; letter-spacing: 0.05em;
+    font-weight: 400;
+  }
+  .piece-body :global(h2) { font-size: 1.3rem; }
+  .piece-body :global(h3) { font-size: 1.05rem; color: var(--ink-soft); }
+  .piece-body :global(blockquote) {
+    border-left: 2px solid var(--rouge);
+    padding-left: 1.25rem;
+    margin: 1.5em 0;
+    color: var(--ink-soft);
+    font-style: italic;
+  }
+  .piece-body :global(hr) {
+    border: none; text-align: center; margin: 2rem 0;
+    color: var(--rouge); height: 1em;
+  }
+  .piece-body :global(hr::before) {
+    content: '⁂'; letter-spacing: 0.5rem;
+  }
+
+  .piece-foot { margin-top: 4rem; }
+  .piece-nav {
+    display: grid;
+    grid-template-columns: 1fr auto 1fr;
+    gap: 1rem;
+    padding-top: 1.5rem;
+    border-top: 1px solid var(--rule);
+    font-size: 0.9rem;
+  }
+  .nav-prev { color: var(--ink-soft); border: none; }
+  .nav-next { color: var(--ink-soft); border: none; text-align: right; }
+  .nav-prev:hover, .nav-next:hover { color: var(--rouge); }
+  .nav-title { font-style: italic; }
+  .nav-up {
+    align-self: center; font-style: italic;
+    color: var(--ink-muted); border: none;
+    font-size: 0.85rem;
+    font-variant: small-caps; letter-spacing: 0.1em;
+  }
+  .nav-up:hover { color: var(--rouge); }
+</style>

@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c12",
+  "series": 5,
+  "issue": 12,
+  "label": "V-12",
+  "titleFr": "Douzième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz11pg#page/n204/mode/1up",
+  "pieces": [
+    {
+      "slug": "petites-garnisons",
+      "titleFr": "Petites garnisons",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1904-03-20"
+}

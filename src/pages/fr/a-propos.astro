@@ -1,0 +1,190 @@
+---
+import Base from '../../layouts/Base.astro';
+
+const portraitArc = [
+  {
+    src: '/portraits/peguy-1894-young.jpg',
+    caption: 'Portrait de promotion à l\'École normale supérieure, 1894. Péguy à vingt-et-un ans.',
+    year: '1894',
+  },
+  {
+    src: '/portraits/peguy-pirou-bearded.jpg',
+    caption: 'Portrait d\'atelier par Eugène Pirou, vers 1900 — l\'année où Péguy fonde les Cahiers.',
+    year: 'vers 1900',
+  },
+  {
+    src: '/portraits/peguy-laurens-portrait.jpg',
+    caption: 'Portrait à l\'huile par Jean-Pierre Laurens. Péguy dans la trentaine, les années de direction.',
+    year: 'vers 1908',
+  },
+  {
+    src: '/portraits/peguy-military-uniform.jpg',
+    caption: 'Lieutenant au 276ᵉ régiment d\'infanterie, été 1914 — quelques semaines avant Villeroy.',
+    year: '1914',
+  },
+];
+---
+
+<Base title="À propos" lang="fr">
+  <article>
+    <div class="reading">
+      <h1>À propos de cette archive</h1>
+      <p class="metadata">Une édition numérique des <em>Cahiers de la Quinzaine</em> de Charles Péguy</p>
+
+      <h2>La revue</h2>
+      <p>
+        Les <em>Cahiers de la Quinzaine</em> sont une revue littéraire et
+        politique que Charles Péguy fonde en janvier 1900 et qu'il dirige
+        jusqu'à sa mort, tombé comme lieutenant d'infanterie à la première
+        bataille de la Marne le 5 septembre 1914. Publiés à peu près tous les
+        quinze jours (d'où le nom), les cahiers paraissent en quinze séries,
+        soit 229 numéros au total. Les abonnés les reçoivent par la poste ;
+        plusieurs des numéros ne sont tirés qu'à mille cinq cents ou deux
+        mille exemplaires.
+      </p>
+
+      <p>
+        Péguy est à la fois rédacteur en chef, éditeur, administrateur,
+        distributeur, correcteur et collaborateur fréquent. Il signe chaque
+        colophon en tant que <em>gérant</em>. Il fait imprimer chaque cahier à
+        l'<em>Imprimerie de Suresnes</em> puis chez <em>Julien Crémieu,
+        imprimeur, 13 et 15, rue Pierre-Dupont, Suresnes</em>. La revue est
+        déficitaire la plupart du temps. Péguy la mène depuis une petite
+        boutique en face de la Sorbonne.
+      </p>
+
+      <h2>Les collaborateurs</h2>
+      <p>Parmi les écrivains que Péguy rassemble autour de la revue :</p>
+      <ul>
+        <li><strong>Romain Rolland</strong>, dont le roman-fleuve en dix
+          volumes <em>Jean-Christophe</em> paraît en feuilleton dans les Cahiers
+          et reçoit le prix Nobel de littérature en 1915.</li>
+        <li><strong>Maxime Vuillaume</strong>, ancien communard exilé, dont
+          les dix volumes de <em>Mes cahiers rouges</em> demeurent une
+          source principale pour les historiens de la Commune.</li>
+        <li><strong>Julien Benda</strong>, dont le roman <em>L'Ordination</em>
+          paraît dans les Cahiers en 1911–1913 (avant qu'il n'écrive
+          <em>La Trahison des clercs</em>).</li>
+        <li><strong>Daniel Halévy</strong>, historien et dreyfusard, dont
+          les écrits politiques et historiques traversent de nombreux numéros.</li>
+        <li><strong>Paul Milliet</strong>, dont le long projet éditorial
+          <em>Les Milliet</em> rassemble les lettres de trois générations
+          de sa famille, y compris les lettres du Mexique de son oncle
+          Adrien de Tucé (1862–1867).</li>
+        <li>Et bien d'autres : <strong>René Salomé</strong>,
+          <strong>André Suarès</strong>, <strong>Joseph Reinach</strong>,
+          <strong>Félicien Challaye</strong>, <strong>Lucien Herr</strong>,
+          <strong>Georges Sorel</strong>, <strong>M. M. Mangasarian</strong>,
+          <strong>Édouard Berth</strong>, et d'autres encore.</li>
+      </ul>
+
+      <h2>Comment le site est organisé</h2>
+      <p>
+        Le cahier — le numéro imprimé — est l'unité primaire. Parcourez
+        le <a href="/fr/cahiers">flot chronologique des 229 cahiers</a> pour
+        les lire dans l'ordre de publication, chaque cahier conservant son
+        appareil éditorial : les <em>Avertissements</em> de Péguy, les pièces
+        dans leur ordre imprimé, le colophon, les annonces de quatrième de
+        couverture.
+      </p>
+      <p>
+        Navigation secondaire par <a href="/fr/auteurs">auteur</a> : chaque
+        contributeur dispose d'une page recensant ses textes dans l'ordre de
+        publication. La page de Péguy recense en outre ses <em>Avertissements</em>,
+        chacun lié à l'article qu'il introduisait.
+      </p>
+      <p>
+        Cinq œuvres réparties sur plusieurs cahiers sont aussi proposées
+        comme éditions de lecture autonomes, pour ceux qui souhaitent lire
+        les longs feuilletons d'un seul tenant plutôt qu'à travers la revue :
+      </p>
+      <ul>
+        <li><a href="/fr/works/jean-christophe"><em>Jean-Christophe</em></a> — Romain Rolland</li>
+        <li><a href="/fr/works/mes-cahiers-rouges"><em>Mes cahiers rouges</em></a> — Maxime Vuillaume</li>
+        <li><a href="/fr/works/les-milliet"><em>Les Milliet</em></a> — Paul Milliet</li>
+        <li><a href="/fr/works/lordination"><em>L'Ordination</em></a> — Julien Benda</li>
+        <li><a href="/fr/works/les-mysteres"><em>Les Mystères</em></a> — Charles Péguy</li>
+      </ul>
+
+      <h2>Pourquoi cette archive</h2>
+      <p>
+        Les <em>Cahiers de la Quinzaine</em> sont disponibles intégralement
+        sur Archive.org et Gallica, mais uniquement sous la forme de scans
+        d'images (JP2). Aucune édition électronique du texte intégral
+        n'existait jusqu'à présent. Cette archive en propose pour la première
+        fois le texte clair, en lecture continue, recherchable, et accessible
+        sur tout appareil — en français d'origine et en traduction anglaise.
+      </p>
+
+      <h2>Le français et l'anglais</h2>
+      <p>
+        Chaque cahier est consultable dans son français d'origine, transcrit
+        à partir des scans d'Archive.org et de Gallica. Les traductions
+        anglaises avancent texte par texte. Les versions française et anglaise
+        de chaque pièce résident à des URL distinctes
+        (<code>/fr</code> et <code>/en</code>) ; lorsqu'une traduction n'existe
+        pas encore, le français reste lisible.
+      </p>
+
+      <h2>Cette édition</h2>
+      <p>
+        Compilée et traduite par <strong>Wilson Pruitt</strong>. Les
+        traductions sont faites avec soin mais ne sont pas définitives ;
+        corrections et améliorations sont les bienvenues.
+      </p>
+    </div>
+
+    <div class="rule-ornament"></div>
+
+    <section class="arc">
+      <h2 class="arc-title">Une vie en images</h2>
+      <p class="arc-subtitle">Quatre photographies et une peinture, 1894 — 1914.</p>
+
+      <div class="arc-grid">
+        {portraitArc.map(p => (
+          <figure class="arc-portrait">
+            <img src={p.src} alt={p.caption} loading="lazy" decoding="async" />
+            <figcaption>
+              <span class="arc-year">{p.year}</span>
+              <span class="arc-caption">{p.caption}</span>
+            </figcaption>
+          </figure>
+        ))}
+      </div>
+
+      <p class="arc-note">
+        Tous les portraits sont du domaine public. Provenance et URL sources
+        dans <code>public/portraits/MANIFEST.md</code>.
+      </p>
+    </section>
+  </article>
+</Base>
+
+<style>
+  .arc { max-width: var(--measure-wide); margin: 3rem auto 2rem; }
+  .arc-title { text-align: center; margin: 0 0 0.25rem; }
+  .arc-subtitle { text-align: center; font-style: italic; color: var(--ink-muted); margin: 0 0 2rem; }
+  .arc-grid {
+    display: grid;
+    grid-template-columns: repeat(auto-fit, minmax(200px, 1fr));
+    gap: 2.5rem 2rem;
+  }
+  .arc-portrait { margin: 0; }
+  .arc-portrait img {
+    width: 100%; height: auto; display: block;
+    filter: sepia(0.12) contrast(1.02);
+    border: 1px solid var(--rule);
+    aspect-ratio: 3 / 4; object-fit: cover; object-position: center top;
+  }
+  .arc-portrait figcaption { margin-top: 0.6rem; font-size: 0.88rem; line-height: 1.5; }
+  .arc-year {
+    display: block; color: var(--rouge); font-style: italic;
+    letter-spacing: 0.1em; font-size: 0.8rem; margin-bottom: 0.15rem;
+  }
+  .arc-caption { display: block; color: var(--ink-soft); font-style: italic; }
+  .arc-note {
+    text-align: center; color: var(--ink-muted);
+    font-size: 0.8rem; margin-top: 2.5rem; font-style: italic;
+  }
+  .arc-note code { font-family: var(--mono); font-size: 0.85em; }
+</style>

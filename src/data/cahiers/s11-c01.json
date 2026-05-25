@@ -1,0 +1,18 @@
+{
+  "slug": "s11-c01",
+  "series": 11,
+  "issue": 1,
+  "label": "XI-1",
+  "titleFr": "Premier cahier de la onzième série",
+  "sourceUrl": "https://archive.org/stream/s11cahiersdelaqui01pg#page/n3/mode/1up",
+  "pieces": [
+    {
+      "slug": "visite-a-pascal",
+      "titleFr": "Visite à Pascal",
+      "author": "andre-suares",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1909-10-05"
+}

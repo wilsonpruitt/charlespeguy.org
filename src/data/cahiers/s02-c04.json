@@ -1,0 +1,24 @@
+{
+  "slug": "s02-c04",
+  "series": 2,
+  "issue": 4,
+  "label": "II-4",
+  "titleFr": "Quatrième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz05pg#page/n288/mode/1up",
+  "pieces": [
+    {
+      "slug": "les-intellectuels-devant-le-socialisme",
+      "titleFr": "Les Intellectuels devant le socialisme",
+      "author": "hubert-lagardelle",
+      "isAvertissement": false
+    },
+    {
+      "slug": "l-amnistie-et-les-socialistes",
+      "titleFr": "L'amnistie et les socialistes",
+      "author": "hubert-lagardelle",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-11-20"
+}

@@ -1,0 +1,67 @@
+---
+import Base from '../../layouts/Base.astro';
+import { getCollection } from 'astro:content';
+import { cahierUrl } from '../../lib/paths';
+
+let cahiers: Awaited<ReturnType<typeof getCollection<'cahiers'>>> = [];
+try {
+  cahiers = await getCollection('cahiers');
+  cahiers.sort((a, b) => {
+    if (a.data.bonATirer && b.data.bonATirer) return a.data.bonATirer.localeCompare(b.data.bonATirer);
+    if (a.data.series !== b.data.series) return a.data.series - b.data.series;
+    return a.data.issue - b.data.issue;
+  });
+} catch {}
+---
+
+<Base title="Les cahiers — flot chronologique" lang="fr">
+  <h1>Cahiers de la Quinzaine</h1>
+  <p class="metadata">Les 229 cahiers dans l'ordre de publication, 1900–1914.</p>
+
+  {cahiers.length === 0 ? (
+    <div class="placeholder">
+      <p><em>Aucune donnée disponible pour le moment.</em></p>
+    </div>
+  ) : (
+    <ol class="river">
+      {cahiers.map(cahier => (
+        <li class="cahier-card">
+          <p class="cahier-label">
+            <span class="series-label">{cahier.data.label}</span>
+            {cahier.data.bonATirer && <span class="cahier-date"> · {cahier.data.bonATirer}</span>}
+          </p>
+          <p class="cahier-title">
+            <a href={cahierUrl(cahier.data.slug, true)}>
+              <em>{cahier.data.titleFr}</em>
+            </a>
+          </p>
+          <ul class="cahier-pieces">
+            {cahier.data.pieces.map(p => (
+              <li>
+                {p.isAvertissement && <span class="ave">Avertissement · </span>}
+                {p.titleFr}
+                {' '}<span class="cahier-author">({p.author.id})</span>
+              </li>
+            ))}
+          </ul>
+        </li>
+      ))}
+    </ol>
+  )}
+</Base>
+
+<style>
+  .placeholder { margin: 3rem auto; padding: 2rem; max-width: var(--measure); background: var(--paper-deep); border-left: 3px solid var(--rouge); color: var(--ink-soft); text-align: center; }
+  .river { list-style: none; padding: 0; margin: 2rem 0; }
+  .cahier-card { padding: 1.25rem 0; border-bottom: 1px solid var(--rule); }
+  .cahier-label { margin: 0 0 0.25rem; font-size: 0.85rem; color: var(--ink-muted); font-variant: small-caps; letter-spacing: 0.08em; }
+  .series-label { color: var(--rouge); font-weight: 500; }
+  .cahier-date { color: var(--ink-muted); }
+  .cahier-title { margin: 0; font-size: 1.2rem; }
+  .cahier-title a { border: none; color: var(--ink); }
+  .cahier-title a:hover { color: var(--rouge); }
+  .cahier-pieces { list-style: none; padding: 0; margin: 0.5rem 0 0 1rem; font-size: 0.95rem; color: var(--ink-soft); }
+  .cahier-pieces li { margin: 0.15rem 0; }
+  .ave { color: var(--rouge); font-style: italic; font-size: 0.9rem; }
+  .cahier-author { color: var(--ink-muted); font-style: italic; font-size: 0.9rem; }
+</style>

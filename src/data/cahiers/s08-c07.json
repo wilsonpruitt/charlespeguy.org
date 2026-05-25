@@ -1,0 +1,24 @@
+{
+  "slug": "s08-c07",
+  "series": 8,
+  "issue": 7,
+  "label": "VIII-7",
+  "titleFr": "Septième cahier de la huitième série",
+  "sourceUrl": "https://archive.org/stream/s8cahiersdelaquinz05pg#page/n228/mode/1up",
+  "pieces": [
+    {
+      "slug": "untitled",
+      "titleFr": "Les sonnets de Shakespeare. I.",
+      "author": "marie-garnier",
+      "isAvertissement": false
+    },
+    {
+      "slug": "les-sonnets-de-shakespeare-i",
+      "titleFr": "Les sonnets de Shakespeare. I",
+      "author": "marie-garnier",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1907-01-05"
+}

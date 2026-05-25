@@ -1,0 +1,253 @@
+---
+import { getCollection, getEntry } from 'astro:content';
+import Base from '../../layouts/Base.astro';
+
+export async function getStaticPaths() {
+  const cahiers = await getCollection('cahiers');
+  // Sort once so prev/next is stable.
+  cahiers.sort((a, b) => {
+    if (a.data.series !== b.data.series) return a.data.series - b.data.series;
+    return a.data.issue - b.data.issue;
+  });
+
+  // Build a piece-existence map so the template can show only links that resolve.
+  const pieces = await getCollection('pieces');
+  const pieceLangs = new Map<string, { fr: boolean; en: boolean }>();
+  for (const p of pieces) {
+    const key = `${p.data.cahier.id}--${p.data.pieceSlug}`;
+    const entry = pieceLangs.get(key) ?? { fr: false, en: false };
+    entry[p.data.lang] = true;
+    pieceLangs.set(key, entry);
+  }
+
+  return cahiers.map((cahier, i) => ({
+    params: { slug: cahier.id },
+    props: {
+      cahier,
+      prev: i > 0 ? cahiers[i - 1] : null,
+      next: i < cahiers.length - 1 ? cahiers[i + 1] : null,
+      pieceLangs: Object.fromEntries(pieceLangs),
+    },
+  }));
+}
+
+const { cahier, prev, next, pieceLangs } = Astro.props;
+const d = cahier.data;
+
+// Resolve author references for the piece table.
+const piecesWithAuthors = await Promise.all(
+  d.pieces.map(async (p) => {
+    const author = await getEntry(p.author);
+    const key = `${d.slug}--${p.slug}`;
+    const langs = pieceLangs[key] ?? { fr: false, en: false };
+    return { ...p, authorName: author?.data.name ?? p.author.id, authorSlug: p.author.id, langs };
+  })
+);
+
+const partOfWorks = d.partOfWorks ?? [];
+const works = await Promise.all(
+  partOfWorks.map(async (ref) => {
+    const w = await getEntry(ref);
+    return w ? { slug: w.data.slug, title: w.data.title } : null;
+  })
+);
+const validWorks = works.filter(Boolean);
+---
+
+<Base
+  title={d.titleFr}
+  description={`${d.label} — ${d.titleFr}${d.bonATirer ? ' · ' + d.bonATirer : ''}`}
+  lang="en"
+>
+  <article class="cahier">
+    <header class="cahier-head">
+      <p class="cahier-label-line">
+        <span class="cahier-label">{d.label}</span>
+        {d.bonATirer && <span class="cahier-date"> · {d.bonATirer}</span>}
+      </p>
+      <h1 class="cahier-title-fr">{d.titleFr}</h1>
+    </header>
+
+    {validWorks.length > 0 && (
+      <p class="cahier-works-note">
+        Part of {validWorks.map((w, i) => (
+          <>
+            <a href={`/works/${w!.slug}`}><em>{w!.title}</em></a>{i < validWorks.length - 1 ? ', ' : ''}
+          </>
+        ))}.
+      </p>
+    )}
+
+    <section class="cahier-pieces">
+      <h2 class="sr-only">Table of pieces</h2>
+      <ol class="pieces-list">
+        {piecesWithAuthors.map(p => (
+          <li class={`piece-row${p.isAvertissement ? ' is-ave' : ''}`}>
+            <p class="piece-title">
+              {p.isAvertissement && <span class="ave-tag">Avertissement</span>}
+              {p.titleFr}
+            </p>
+            <p class="piece-meta">
+              <a href={`/authors/${p.authorSlug}`} class="piece-author">{p.authorName}</a>
+              {p.pages && <span class="piece-pages"> · {p.pages}</span>}
+            </p>
+            <p class="piece-read">
+              {p.langs.fr && (
+                <a href={`/cahiers/${d.slug}/${p.slug}/fr`} class="piece-link">Read in French</a>
+              )}
+              {p.langs.fr && p.langs.en && <span class="piece-sep"> · </span>}
+              {p.langs.en && (
+                <a href={`/cahiers/${d.slug}/${p.slug}/en`} class="piece-link">Read in English</a>
+              )}
+              {!p.langs.fr && !p.langs.en && (
+                <span class="piece-pending"><em>Text not yet available.</em></span>
+              )}
+            </p>
+          </li>
+        ))}
+      </ol>
+    </section>
+
+    <div class="rule-ornament"></div>
+
+    <footer class="colophon">
+      <h2 class="colophon-head">Colophon</h2>
+      <dl class="colophon-list">
+        {d.bonATirer && (<>
+          <dt>Bon à tirer</dt>
+          <dd>{d.bonATirer}</dd>
+        </>)}
+        {d.pageCount && (<>
+          <dt>Pages</dt>
+          <dd>{d.pageCount}</dd>
+        </>)}
+        {d.printRun && (<>
+          <dt>Print run</dt>
+          <dd>{d.printRun} copies{d.whatmanCount ? ` (+ ${d.whatmanCount} on whatman)` : ''}</dd>
+        </>)}
+        {d.price && (<>
+          <dt>Price</dt>
+          <dd>{d.price}</dd>
+        </>)}
+        {d.imprimeur && (<>
+          <dt>Imprimeur</dt>
+          <dd>{d.imprimeur}</dd>
+        </>)}
+        <dt>Gérant</dt>
+        <dd>Charles Péguy</dd>
+        {d.sourceUrl && (<>
+          <dt>Source scan</dt>
+          <dd><a href={d.sourceUrl} target="_blank" rel="noopener">{d.sourceVolume ?? 'Archive.org'}</a></dd>
+        </>)}
+      </dl>
+    </footer>
+
+    <nav class="cahier-nav">
+      {prev ? (
+        <a href={`/cahiers/${prev.id}`} class="nav-prev">
+          ← <span class="nav-label">{prev.data.label}</span>
+          <span class="nav-title">{prev.data.titleFr}</span>
+        </a>
+      ) : <span />}
+      <a href="/cahiers" class="nav-up">All cahiers</a>
+      {next ? (
+        <a href={`/cahiers/${next.id}`} class="nav-next">
+          <span class="nav-label">{next.data.label}</span> →
+          <span class="nav-title">{next.data.titleFr}</span>
+        </a>
+      ) : <span />}
+    </nav>
+  </article>
+</Base>
+
+<style>
+  .cahier { max-width: 44rem; margin: 0 auto; }
+
+  .cahier-head { text-align: center; margin: 1rem 0 2rem; }
+  .cahier-label-line {
+    font-size: 0.9rem; color: var(--ink-muted);
+    font-variant: small-caps; letter-spacing: 0.1em; margin: 0;
+  }
+  .cahier-label { color: var(--rouge); font-weight: 500; }
+  .cahier-title-fr { font-size: 2rem; margin: 0.5rem 0 0; line-height: 1.2; }
+
+  .cahier-works-note {
+    text-align: center; font-style: italic;
+    color: var(--ink-soft); font-size: 0.95rem;
+    margin: 0 0 2rem;
+  }
+
+  .pieces-list { list-style: none; padding: 0; margin: 0; }
+
+  .piece-row {
+    padding: 1.25rem 0;
+    border-bottom: 1px solid var(--rule);
+  }
+  .piece-row:last-child { border-bottom: 0; }
+  .piece-row.is-ave { background: var(--paper-deep); padding-left: 1rem; padding-right: 1rem; margin: 0 -1rem; border-radius: 2px; }
+
+  .ave-tag {
+    color: var(--rouge); font-style: italic;
+    font-variant: small-caps; letter-spacing: 0.1em;
+    font-size: 0.8rem; margin-right: 0.5rem;
+  }
+
+  .piece-title { font-size: 1.2rem; margin: 0; }
+  .piece-meta { margin: 0.2rem 0 0; font-size: 0.9rem; color: var(--ink-soft); }
+  .piece-author { color: var(--ink); border: none; }
+  .piece-author:hover { color: var(--rouge); }
+  .piece-pages { color: var(--ink-muted); }
+  .piece-read { margin: 0.4rem 0 0; font-size: 0.92rem; }
+  .piece-link { font-style: italic; }
+  .piece-sep { color: var(--ink-muted); }
+  .piece-pending { color: var(--ink-muted); font-size: 0.9rem; }
+
+  .colophon { margin-top: 3rem; }
+  .colophon-head {
+    text-align: center; font-size: 0.9rem;
+    font-variant: small-caps; letter-spacing: 0.2em;
+    color: var(--ink-muted); font-weight: 400;
+    margin: 0 0 1rem;
+  }
+  .colophon-list {
+    display: grid;
+    grid-template-columns: 10rem 1fr;
+    gap: 0.3rem 1.5rem;
+    max-width: 32rem; margin: 0 auto;
+    font-size: 0.92rem;
+  }
+  .colophon-list dt { color: var(--ink-muted); font-style: italic; }
+  .colophon-list dd { margin: 0; color: var(--ink-soft); }
+
+  .cahier-nav {
+    display: grid;
+    grid-template-columns: 1fr auto 1fr;
+    gap: 1rem;
+    margin: 3rem 0 1rem;
+    padding-top: 1.5rem;
+    border-top: 1px solid var(--rule);
+    font-size: 0.9rem;
+  }
+  .nav-prev, .nav-next {
+    display: block; border: none; color: var(--ink-soft);
+  }
+  .nav-next { text-align: right; }
+  .nav-prev:hover, .nav-next:hover { color: var(--rouge); }
+  .nav-label { color: var(--rouge); font-variant: small-caps; letter-spacing: 0.05em; font-size: 0.8rem; }
+  .nav-title { display: block; font-style: italic; margin-top: 0.2rem; }
+  .nav-up {
+    align-self: center;
+    font-style: italic;
+    color: var(--ink-muted);
+    border: none;
+    font-size: 0.85rem;
+    font-variant: small-caps;
+    letter-spacing: 0.1em;
+  }
+  .nav-up:hover { color: var(--rouge); }
+
+  .sr-only {
+    position: absolute; width: 1px; height: 1px; padding: 0;
+    overflow: hidden; clip: rect(0,0,0,0); white-space: nowrap; border: 0;
+  }
+</style>

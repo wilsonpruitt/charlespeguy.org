@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c12",
+  "series": 4,
+  "issue": 12,
+  "label": "IV-12",
+  "titleFr": "Douzième cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz11pg#page/n84/mode/1up",
+  "pieces": [
+    {
+      "slug": "introduction-a-la-metaphysique",
+      "titleFr": "Introduction à la métaphysique",
+      "author": "henri-bergson",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-03-20"
+}

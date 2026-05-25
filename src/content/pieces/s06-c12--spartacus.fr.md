@@ -1,0 +1,1486 @@
+---
+cahier: s06-c12
+pieceSlug: spartacus
+lang: fr
+title: Spartacus
+author: urbain-gohier
+isAvertissement: false
+wordCount: 12077
+---
+
+RÉPÉTITEURS DE COLLÈGE
+luisants, que le surveillant général, en pleine cour de
+récréation, par n'importe quelle température, ne couvrait jamais d'aucun chapeau, crainte d'en déranger
+lharmonieuse ordonnance.
+
+Filon, — ainsi se nommait l'important et désolé fonctionnaire, — prit tout de suite Yves pour confident, et
+Yves ne tarda pas à constater comme déjà cet adolescent — blond et dodu — était aigri et déçu, méprisant
+et vaniteux — rancunier et médisant. Il avait conscience
+que le principal l'exploitait, que l'Université l'exploi-
+
+. tait, que les élèves le détestaient, que les professeurs
+Voubliaient, que ses collègues l'enviaient. Il ne trouvait
+qu'à se plaindre, qu'à grincer des dents, qu'à « z'yeuter
+la glace — et les p'tites femmes ! »
+
+— N'auriez-vous pas été plus heureux dans l'ensei-
+
+- gnement primaire ? interrogeait Yves. Ou bien pourquoi
+m'essayez-vous pas le certificat de professeur élémentaire ?
+
+… Filon mouillait ses belles lèvres du bout de la langue,
+
+…_ et de ses beaux yeux clairs et purs, regardait Yves en
+
+_ déclarant :
+
+— On n'arrive à rien dans l'enseignement primaire.
+
+… C'est un métier à crever de faim; et pour le certificat,
+je n'ai pas le temps de travailler!
+
+Les deux autres répétiteurs étaient aussi deux jeunes
+
+_ gens. L'un, déjà vieux dans le métier, avait près de
+
+… trente ans. Il s'appelait Corard : petit, brun, très barbu,
+
+très rieur, très fumeur de pipes, très buveur de bière
+ou de simple bleu, très amateur de blanchisseuses ou
+
+… repasseuses, de beau sexe, en général, dont ses fonc-
+
+… tions monacales ne devaient pas lui permettre l'abus. IL
+
+… vivait sa vie sans bougonner, en ricanant, et sans espé-
+
+à CR 3,
+
+Yves Madec LÉ
+; rance. Il pensait bien que — nom de Dieu! ça finirait
+
+2 un jour ou l'autre — et qu'il coucherait alors ailleurs
+qu'entre vingt-cinq ou trente bipèdes sans plumes; —
+mais il ne semblait pas en faire dépendre le bonheur de
+- sa vie. 4
+L'autre, Piray, était à peine sorti du collège où il 3
+avait fait ses études. Il n'avait pas vingt ans; et, bachelier, il préparait des examens pour entrer aux
+Ponts-ei-Chaussées. Grand, blond, robuste, sans un poil
+de barbe, sans ombre de moustaches, il avait l'air d'un Ê
+bel écolier, et Yves le prit en effet pendant quelques
+jours pour un « grand » de « Philo » ou de « Mat- .
+É élém. ». À
+Yves causa beaucoup avec eux du métier, de ce qu'il
+était, de ce qu'il pourrait être. [ls lui montrèrent leur 1
+chambre. Au premier, dans un coin de la grande ferme, |
+deux cases, l'une à la suite de l'autre, communiquant ; É
+une fenêtre à l'une, donnant sur la rue, et une fenêtre à 3
+- l'autre, sur les rameaux des tilleuls de la cour des ;
+élèves : les deux fenêtres et la porte de communication i
+en enfilade. La chambre de l'arrivée était plus vaste,
+£ elle était pourvue d'une cheminée : elle était commune :
+aux deux répétiteurs. L'autre, plus petite, était assez
+Es nue, mais proprement rangée, avec une couchette de N.
+fer, dans un rideau d'indienne, une table carrée et È
+quelques planches avec des livres. Celle-ci appartenait 3
+à Monsieur le surveillant général. Elle offrait un con-
+
+traste parfait avec la « turne » des deux répétiteurs,
+
+pavée de briques, alors que l'autre était planchéiée, et
+
+sans lit, ni rideau, tapissée de journaux illustrés, de
+gravures jaunâtres, sur une tapisserie loqueteuse. La
+table était un tas de bouquins de tous formats, surtout
+
+4 5 RÉPÉTITEURS DE COLLÈGE - £
+s | broc hés et sales, — de pipes, d'accessoires de bicy- Se
+ clettes, de pommes, de croûtons de pain et de chan- :
+. delle, et le parquet s'encombrait de bottes, de chaus- a
+| sons, de chiffons, de pain, et d'une vieille bécane rouil- |
+…lée. Les vitres étaient noires et vertes, et le plafond =
+ pendeloqué d'araignées. La cheminée, plâtrée et crou- CS
+Jante, en face la porte d'entrée donnant sur un corri_dor, était bouchée d'un vilain petit poêle de fonte, È
+bave ax et tricolore, boitillant parmi des noiïx de coke.
+is. expliquèrent à Yves, sans doute en manière d'excuse, que n'ayant que leurs quatre heures de liberté par
+singt-quatre heures, ils ne pouvaient guère s'occuper :
+d'eux ni de la turne, que le garçon s'en fichait pas mal,
+et que les potaches avaient tant de fois enfoncé leur ©
+por te, forcé la serrure, qu'ils y venaient librement
+fame Môcrs cigarettes, pendant leurs heures de service,
+qu'eux-mêmes étaient contraints de chiper de l'essence ;
+pour leur lampe de cuivre, quand ils étaient libres le
+soir, en vacances, ou les dimanches et jeudis d'études
+réunies; — que le patron refusait de refaire encore une
+fois leur serrure; qu'enfin il leur fallait se payer du fromage, du jambon, de la confiture, pour suppléer à l'or- Br
+dinai e qu'on leur servait, sur leur traitement de Sas
+quarante-cinq francs pour le plus jeune, de $oixante-et- PE
+onze francs pour l'ancien. Rs
+I ls disaient tout cela presque en riant, sans arrièrejensée, sans indignation, comme des bohèmes amusés
+de leur misère. Yves était stupéfait. Il se demandait ce
+qu'il serait devenu, lui, s'il s'était trouvé dans une telle
+ituation; la vie du répétiteur de lycée, celle qu'il avait
+récr ne , et dont il avait pourtant si amèrement souffert,
+Plepps t comme une existence de bourgeois aisé,
+
+Yves Madec ;
+comparée à celle-ci. Il regardait ces misérables réduits,
+ces deux jeunes gens pleins de force et de gaieté, et ne
+savait s'ils n'étaient pas d'admirables stoïques. ;
+Non. Leur bonne humeur, si loyale qu'elle fût, n'était
+pas admirable. Il les en blâmait intérieurement. Ils n'auraient pas dû tolérer un tel état de choses; ils se
+devaient à leur caractère d'êtres humains, d'individus
+éduqués et libres, de s'indigner, de se révolter, de faire
+‘ respecter leurs droits — connaïssaient-ils seulement les
+décrets de 91? n'étaient-ils donc pas applicables aux
+répétiteurs de collège autant qu'à leurs collègues des J
+lycées? Pourquoi ne protestaient-ils pas? Pourquoi ê
+ne signalaient-ils pas aux inspecteurs, aux recteurs, |
+les abus dont ils étaient victimes? Pourquoi ne les :
+criaient-ils pas sur les toits? Il était bon de rire sans 4
+$ doute, mais le rire est lâche qui console des iniquités;
+le rire est égoïste et stupide qui fait oublier le droit, la .
+justice. Si vous avez l'âme haute, insouciante et ;
+sereine, au moins que ce soit au risque de votre pain, |
+en vous révoltant, non parce que vous le mangez dans 1
+la honte !
+Et puis Yves, revenant chez lui, se disait qu'après
+tout inspecteurs et recteurs étaient instruits de tout
+cela, et que les droits de l'homme et du citoyen }
+n'étaient que de beau bois dont les politiciens font des
+flûtes pour faire danser les ânes! Il s'était promis |
+d'agir de son côté, pour mettre un peu de noble souci, |
+de fécond mécontentement peut-être, dans la vie de ces
+deux malheureux insouciants collègues, et d'alléger
+leurs tâches, pour sa part, autant qu'il pourrait.
+Il les convia à venir prendre le thé chez lui, entre
+quatre et cinq heures, quand l'un d'eux serait libre. Jse
+
+| RÉPÉTITEURS DE COLLÈGE
+mit à songer à ce que l'Université perd, gaspille, gâche
+de force précieuse dans la personne de ses répétiteurs, :
+en les traitant en parias comme elle fait. Répétiteurs
+de lycées, malgré leur confort relatif, répétiteurs de
+collèges, tous pions encore, logés à la même enseigne,
+tous domestiques, dédaignés et bêtes de somme, larbins pour les gros ouvrages, bêtes à corvées. Tout ce
+qui est sale, ennuyeux, pénible, tout leur est gardé : et
+
+on leur donne un logis ignoble, un salaire dérisoire,
+pour récompense de tels services.
+
+— Je veux, murmurait Yves, presque à haute voix, en
+remontant « le Château », que l'internat soit un mal
+
+nécessaire, qu'il faille faire des dortoirs, qu'il faille des
+gens pour surveiller les bains de pieds, pour conduire
+ces marches militaires qu'on appelle « Promenades »,
+et pour demeurer muets trois heures durant dans des
+études; mais pourquoi ces tâches sont-elles réservées
+aux mêmes! pourquoi ne sont-elles pas équitablement
+partagées entre tous les membres de l'Enseignement ;
+et pourquoi ne demande-t-on pas à tous, à tous, répétiteurs aussi bien que professeurs, de donner de leur |
+‘ cœur, de leur pensée, de leur âme, autant que de tout
+f ce qu'ils estiment le moins en eux, à la haute œuvre de
+l'éducation des hommes!
+
+Car enfin tout cela participe de l'éducation des
+
+hommes.
+
+Tout cela n'est pas corvées, choses sales ou pénibles,
+pourvu que tout cela ne soit pas mal compris, mal
+traité, traité en tas, par quintaux, par tonnes impo-
++. sées aux épaules de pauvres hères. Un dortoir,
+- deux dortoirs par mois, pour un professeur, quatre,
+
+cinq récréations par mois, une, deux promenades
+| 49
+
+Yres Madec 5-4
+ee
+. par mois, avec ou sans supplément de salaire, ne A à
+seraient pas des corvées, mais même peut-être des ;
+fonctions intéressantes. En tous cas, si fous les par- :
+tageaient, tous auraient conscience de l'équité de cette à
+solution, de la nécessité et de la valeur de l'œuvre, et :
+ils s'y donneraient en toute fierté.
+Mais non! au lieu de cela, du plâtrage. On allait 2
+replâtrer encore, paraît-il! Toujours le vieux, l'antique, 7
+l'éternel système de drogues mirifiques, de panacées 4
+mitigées au clair de lune — langues de serpent, œufs 4
+de vipère.. Moribonde, pauvre moribonde! Tu mourras |
+quand même, vieille Université! Ce ne sont pas tes
+pédants décorés, tes praticiens à déductions fleuries, :
+ni tes doctes volumineuses enquêtes qui te sauveront.
+Bien plutôt tout ce tas de faquins et de bouquins te ;
+tueront-ils! On va replâtrer! Logique éblouissante, 1
+solution merveilleuse du noir problème : on garderait
+“ les dortoirs, promenades, bains de pieds, récréations—
+toutes les corvées — oui, on les garderait et cependant
+les répétiteurs en seraient libérés? Oui! Entendons .
+bien! les répétiteurs ne jouiraient plus du doux « repos
+en commun ». Ils allaient avoir une chambre à eux,
+avec, dedans, un lit, où ils coucheraient! Et ils n'allaient
+plus être les honteux garde-bipèdes, chiens de bergers,
+chiens loups : « Mords-le, Pion! » Les répétiteurs n'allaient plus être des Pions, Alma mater! mais peut-être
+enfin les emploierait-on à des répétitions! de classes,
+de leçons, etc. Les répétiteurs allaient être des répétiteurs !.…
+— Parfait! Bravo! mais comment? Les dortoirs,
+les marches militaires, qui les ferait? Et parbleu! des
+commis de magasins, des garçons d'écuries, des sous50
+
+RÉPÉTITEURS DE COLLÈGE |
+officiers, de jeunes ou vieux bureaucrates, ronds-de-cuir
+en purée! des larbins ou des gens chics. — Quoi donc? à
+Tous ces gens-là de bonne volonté, par enthousiasme?
+Que non! Pour de la galette. On paieraïit tant la nuit,
+_ de huit heures du soir à six heures du matin; et tant
+pour une promenade, tant pour une récréation, etc. En
+un mot tant et tant pouvait atteindre, bon an, mal an,
+- à treize cents francs (c'est beau, messieurs! un instituteur ne gagne que neuf cent francs par an! N'est-ce pas 4
+- à déserter l'enseignement primaire en effet?).
+Alma mater. Bonne âme, âme généreuse! Tu ouvres
+- enfin tes bras longtemps croisés méditativement pour y
+| recevoir tous les petits. Tous universitaires! Tu penses
+- à ceux d'en dehors, aux profanes, qui peinent pour
+ê joindre les deux bouts, et tu leur offres ce dont
+tes fils orgueilleux, enrichis, luxueux sans doute, ne
+veulent plus. Tu exonères ceux-ci, et tu honores
+_ ceux-là.
+Et le système est à l'essai, se disait Yves outré. Ce °
+_ m'est pas un rêve, un cauchemar de cervelle hébétée,
+une hantise de pédagogue ivre. C'est fait, ça s'essaie
+_ dans des grands lycées, à deux pas d'ici! Voilà donc
+l'éducation des consciences, des esprits, des cœurs.
+… L'Université de France enseignait aux jeunes Français; :
+les graves et doctes messieurs du conseil de l'instruction publique décrétaient, que, pour faire des dortoirs,
+- des récréations, des promenades, n'importe qui était
+bon, venu de n'importe où. Elle déclarait : corvées,
+plus haut et plus fort que quiconque, toutes ces fonc-
+…_ tions accomplies jusqu'ici par des jeunes gens qu'elle
+…_ avait prétendu avoir choisis et elle payait ces corvées,
+_ elle les vendait à l'encan, comme un tas de saletés dont
+| 5x
+
+Yves Madec , A
+pour sa part, elle était heureuse et fière de se laver les
+mains. ‘
+
+Pions? Ah! qu'on eut donc raison de vous blaguer,
+de vous mépriser, de vous honnir! Il y en a parmi d
+vous qui crurent à un sacerdoce! Pions! oui. Bien bêtes ;
+de somme puisque vous ne faisiez que cela, que n'importe qui — venu de n'importe où — pour un peu plus
+de beurre sur son pain — ou tout simplement pour un :
+peu plus d'absinthe — est jugé digne de faire! Honte,
+honte, trois fois honte! Ÿ
+
+Les graves et doctes messieurs, d'âme si haute et si
+éclairée, ignorent donc que ces corvées sont la moitié de Ë
+la vie des élèves, la moitié de la vie de tous enfants de |
+dix à dix-huit ans, dans tous lycées et collèges? Que |
+reste-t-il, en dehors des corvées? des classes, des études; $
+dans les classes, leçons de grammaire, de littérature,
+de mathématiques, de physique, de géographie, d'histoire, etc. Dans les études, les devoirs de toutes ces
+leçons. Et cela comporte assurément quelque part
+d'éducation spirituelle. Mais tout le reste du temps?
+Plus de la moitié du temps? Les récréations, les promenades, les réfectoires, les dortoirs, — les matins,
+midis — soirs — hors du travail, — où l'enfant, le jeune
+homme rêve, songe, se repose, se distrait, s'amuse? :
+Tout cela est corvées. Et c'est là, qu'au foyer familial, à
+la chère maison du pays, le père, la mère, les sœurs,
+les frères donnent précisément le meilleur d'eux-mêmes!
+— Mais l'Université, grande dame, donne cela, le jette,
+à n'importe qui, venu de n'importe où, ayant besoin
+d'arrondir son budget! — Oui, honte, vraiment honte!
+
+Ces heures sont sacrées, — heures de sommeil,
+heures de loisir, heures des repas; heures où le cœur
+
+è2
+
+RÉPÉTITEURS DE COLLÈGE
+se joue, où l'esprit se détend et s'éveille pour d'autres
+horizons que les horizons marqués; où le corps s'étire
+aussi, se refait, se fait, se fortifie, parle, car le corps a
+sa voix; une voix de bête, dans les corvées, de brute,
+pour plus tard, après des années de corvées, dans les /
+internats.
+
+— Ces heures sont sacrées; pour ces heures-là, il faut
+des hommes, non des pions, non des crève-la-faim; des
+hommes qui savent être à l'interne maussade ei prisonnier, ce que le père est à l'externe heureux et libre : $
+des hommes au cœur délicat comme celui d'une mère;
+à l'imagination riche, comme celle d'une sœur aimante ;
+des hommes au front loyal, et à la main ferme.
+
+é Mais où les trouver ces hommes? Les professeurs
+s'estiment trop grands messieurs, pour partager ces
+heures-là avec les répétiteurs; les répétiteurs répugnent
+à être regardés comme des pions, pour ne vivre que ces
+
+- heures-là; et l'Université les déclare heures de corvées,
+et y convie tout ce qui se gratte les poches; et l'Université s'étonne de dégringoler pierre à pierre? Tout le mal
+est là! La question du répétitorat de l'internat, est la
+question de vie et de mort de l''Université.., et ce mal
+ne fait qu'empirer, à de tels replâtrages !
+
+r
+
+<>
+CHAPITRE VII
+Scènes d'Intérieur
+
+Une fin d'après-midi du commencement de novembre,
+Yves corrigeait des devoirs d'allemand près de sa fenêtre encore ouverte aux pâles rayons d'un crépuscule
+déjà froid de l'hiver.
+
+Il entendit en l'air un bruit singulier; quelque chose
+comme un claquement de mâchoires. Levant les yeux
+_vers le nord, il aperçut dans le ciel assombri une longue
+file d'oiseaux qui fuyaient, en une mince guirlande. IL
+quitta sa table et se pencha à la fenêtre pour les voir.
+Tout à coup une voix lui cria d'en bas : :
+
+— Les oïes sauvages, monsieur Madec! Si vous aimez
+le froid, c'est signe de froid!
+
+C'était Lina, la servante, blonde, très pâle, avec son
+tablier blanc, qui l'interpellait ainsi, de sa voix fraîche,
+toujours joyeuse. Elle venait de puiser de l'eau à la fontaine de ciment, au rebord de la petite pelouse du jardinet. Elle posa son broc de zinc en émail bleu, et les
+mains aux hanches, le menton levé, elle regardait flotter la banderolle des oiseaux. |
+
+— Tiens! curieux! dit Yves. Et ils annoncent le froid ?
+Brrr! Je ne l'aime guère!
+
+À ”.
+
+1 ; SCÈNES D'INTÉRIEUR
+1 _  — Ah! ah! tant pis! faudra bientôt que vous songiez
+_ au bois. Je l'disais justement c'matin, à mame Guiraud!
+-  — C'est vrai; mais je compte sur vous pour cela?
+_ Vous savez, je ne m'y connais pas?
+ë ï — Faudra t'y m'en occuper dès demain, monsieur
+à Madec?
+4 _  — Oui, bien sûr, le plus tôt possible!
+_ — Bon! Entendu! 8
+—__ La jeune fille reprit son broc, et rentra avec un petit
+— salut amical de la tête.
+…_ D'une timidité sauvage, comme tout bon Breton, Yves
+avait à peine encore osé adresser la parole à la servante.
+“3 La servante ! Il jeta sa plume d'encre rouge sur sa table,
+. passa sa main sur son front, et soudain se laissa aller
+à quelque rêverie. « Après tout, songea-t-il, je n'ai plus
+besoin de me tant presser. Je puis bien soufiler un peu.
+—_ D'ailleurs, je n'y vois plus, les jours diminuent... Je
+— commence à être à peu près à la hauteur de la grosse
+2 besogne. IL est temps que je me recueille et regarde autour de moi. »
+—_ Depuis son arrivée, il était encore comme étourdi de
+u a son voyage; de son changement de vie, de la hâte qu'il ;
+“ avait mise à se faire à ses nouvelles fonctions, pour
+_ quoi il ne se trouvait pas compétent; et voici qu'à l'ap-
+… proche frileuse de cette nuit de novembre, il s'arrêtait
+À pour se reconnaître un peu, voir où il en était.
+…. - — Ah oui! Une servante. Monsieur avait une servante!
+- Monsieur le Professeur se faisait servir! Monsieur le
+— Professeur prenait pension au plus grand hôtel de la
+_ ville! Comment! Je ne vais pas encore au café! Je ne
+- fais pas encore ma « partie »? Il est vraiment extraE. ordinaire que je ne sois pas membre du « Cercle »!
+
+Hi À
+Yves Madec
+Patience! Cela viendra. Ouais! je devais faire des tas de
+choses, « quand je serais libre ». Quand je n'aurais plus
+été ce vil esclave qu'est le répétiteur! Il ne s'agirait
+plus seulement d'écrire ma grande machine : Révolution
+immédiate dans la Conscience et les actes de la vie privée, mais de la faire, cette fameuse révolution; de la ;
+vivre! J'aurais donné l'exemple, moi, l'exemple du vrai
+acte révolutionnaire. Chacun de mes gestes accompli
+dans la vérité, aurait dénoncé la vanité monstrueuse, le .
+mensonge flagrant, le cynisme hypocrite de ces g'ens-là,
+les fameux socialistes, révolutionnaires de tintamarre,
+décrocheteurs de mandats parlementaires, et saltimbanques politiques, qui vont changer le monde, le
+recréer de leur souffle puissant, empesté d'alcool et de
+relents de truffes! Je serais venu, moi, un privilégié, un
+intellectuel, un professeur de l'Université; j'aurais pris
+une maisonnette nue, dans un quartier pauvre et populaire; j'aurais fait mon ménage moi-même ; j'aurais lavé
+mon plancher, vidé mes eaux sales! J'aurais mangé
+avec les ouvriers; j'aurais donné toutes mes heures de
+loisir aux ouvriers. Je les aurais aidés à s'éduquer en
+liberté, en beauté, en sagesse, en énergie sociale. J'au- |
+rais reçu chez moi leurs enfants, gamins, fillettes, en
+haïllons, sales, mal nourris, picorant toutes les ordures
+des ruisseaux; je les aurais décrassés; je leur aurais
+appris à lire, à écrire, à penser, à vouloir, à s'indigner,
+à revendiquer la justice sur la terre! Oui, oui! Ah!
+ah! comme c'était beau tout cela! Même dans ses
+classes, avec ses élèves, il devait parler, il devait dire
+ceci, cela... Et au dehors, l'Université Populaire... Il
+s'entendait encore dire, à la nouvelle de sa nomination:
+« Dans quinze jours, il y aura une U. P. à Villetaupier!! »
+
+l A €
+| SCÈNES D'INTÉRIEUR
+Il ricana.. « Je vis tout bonnement en bourgeois... Je
+suis un menteur et un lâche. » Il haussa les épaules et
+se coucha sur la table, la tête entre les bras. Un chagrin
+/ immense l'avait tout à coup envahi. Il se sentait vaincu
+déjà, emprisonné, asservi par toutes les circonstances,
+écrasé par le poids formidable de la tradition; et si seul,
+si infime, si faible contre tout!
+« Le second mois est déjà à demi écoulé. J'aurais dû,
+| j'aurais pu, il y a quinze jours, briser encore tous ces
+liens, ces lacs que l'habitude bourgeoise m'a tendus de
+- toutes parts, et où je me suis laissé prendre. Je n'ai pas
+| osé n'affranchir alors qu'ils me tenaient à peine; que
+…_  sera-ce maintenant que chaque heure les resserre plus
+fortement encore et les multiplie! Quel traquenard! Que
+è puis-je dire dans mes classes? Ces enfants, des petits
+aux grands, sont plus nuls, plus ignorants les uns que
+…. les autres. Je ne puis rien faire d'autre que leur enseid gner les éléments de grammaire anglaise et allemande.
+; Depuis un mois et demi je n'ai pu moi-même penser à
+î rien de plus qu'à me mettre en état d'accomplir comme
+—__ il faut cette tâche insipide et nécessaire! Si encore je
+5 pouvais leur enseigner quelque littérature ? Oui, un peu.
+À Cinq, dix minutes d'histoire anglaise et allemande
+1 chaque classe! Je leur lirais des traductions de Shakes3 peare, de Heïine, etc. Par là un instant au moins de
+1 temps à autre je pourrais approcher de leur être inté-
+rieur, — les forcer à voir que, par délà la Manche, par
+LE: delà le Rhin, des hommes comme nous ont vécu, vivent,
+Ë pour de la Beauté, de la Justice, de la Vérité! — les
+] grammaires, syntaxes, thèmes, versions, perpétuelle-
++ ment me sont autant de barrières hérissées et meurtrières
+r. entre eux et moi!….
+À |
+LE
+
+Yves Madec F
+« Et à l'extérieur? Comment n'ai-je donc encore rien ‘A
+tenté? Mes collègues! Tous bourgeois, tous mariés, tous È
+indifférents à ce qui n'est pas leur bien-être personnel!
+Il n'y a que mon voisin... et il me blague! et il est con- Ée:
+scient que sa vie est inique, et il continue à la vivre en 4
+s'en moquant! Mais les instituteurs! les ouvriers! Con- |
+nais pas! je ne sais rien d'eux! C'est honteux! JL faut à
+que je les voie au plus tôt. Et ici? Eh bien j'oserai! Ce
+soir, quand « la petite » va venir faire ma couverture, 4
+elle la trouvera faite... Je ferai mon lit dès le lever; je ;
+viderai mon vase; j'époussetterai; … nous verrons! Il
+faut que je commence, que je devienne un homme! je
+me le suis juré. Je crois que la vérité et la justice sont
+là, dans l'accomplissement quotidien incessant de la
+révolution personnelle. Je ferai ma révolution, coûte
+que coûte! » ;
+Il leva la tête, raffermi un peu par l'espérance d'un ;
+plus grand effort. La nuit était tout à fait tombée, il
+frissonna. ÉS |
+Soudain la porte s'ouvrit. Quelque chose de blanc se
+montra. Un petit cri d'émoi, puis un franc rire : |
+— Oh! je vous demande pardon, monsieur Madec! Je
+vous croyais sorti. Je ne voyais plus de lumière dans
+votre chambre... Mais vous devez geler d'être là sans
+bouger à la fenêtre!
+C'était Lina. Il s'était levé, s'étirait :
+— Pardon aussi, mademoiselle! Je crois que j'ai
+dormi.
+— Mais ce n'est pas prudent! voyons! Je venais chercher votre broe. Vous n'avez pas eu d'eau ce matin, la
+pompe était fermée. Ils ont un tuyau de crevé, je ne sais
+NN quoi.
+
+Le 1
+Es SCÈNES D'INTÉRIEUR
+— Laissez donc, mademoiselle, je prendrai de l'eau
+moi-même !
+— Ah mais non, par exemple!
+Elle courut, gamine, vers le petit cabinet, au fond de
+_ Ja chambre, où il y avait juste place à une petite table
+à toilette. Yves se précipita, l'arrêtant par le bras :
+— Non! vous dis-je, laissez!
+Un peu interdite, riant toujours, la jeune fille s'écria :
+_ — Bon! comme vous voudrez! mais quelle idée!
+—_ — Vous me croyez donc trop grand seigneur pour
+aller prendre de l'eau moi-même”? Hein? Ce que vous
+à devez me trouver bête, tout de même, de me laisser
+R servir comme cela, grand dadais! par une demoiselle!
+À Tout ceci était si nouveau pour mademoiselle Lina,
+4 qu'elle se laissa tomber sur une chaise au pied du lit, Ë
+: en éclatant de rire. Cependant Madec, craquant une
+A allumette, allumait sa lampe. Il ferma la fenêtre et la
+… porte, et, se frottant les mains, voyant que mademoi2 selle Lina se levait :
+F — Mais non! restez assise! Vous n'êtes pas pressée ?
+. La servantese leva:
+_. — Si, monsieur Madec ! Il faut que je fasse mon
+… diner. Alors vous irez prendre votre eau ?
+- Elle marchait vers la porte.
+“_ — Oui, après ce tas-là !
+Il montrait une poignée de copies. Elle se rapprocha, » se pencha sous la lampe :
+_  — C'est-y ça des devoirs ?
+… _— Oui, mon enfant ! c'est ça des devoirs ! répéta-t-il,
+imitant plaisamment le ton de la jeune fille... — Et de
+sacrés sales devoirs !
+_ _— C'est-y ça des fautes, toutes ces marques rouges ?
+| :
+KI
+
+Yves Madec +
+— Oui, c'est des fautes, vous voyez que ça ne manque
+pas !
+— C'est-y ça de l'anglais ?
+— Non, c'est de l'allemand !
+— Vous savez donc l'allemand aussi ?
+— Non! rugit Yves. Mais il paraît qu'on peut apprendre aux autres ce qu'on ne sait pas soi-même !
+Lina ne comprit pas; elle soupira :
+— J'aurais tant voulu savoir l'anglais !
+Yves tressaillit…
+— Vous voudriez savoir l'anglais ! Fichtre ! Rien de
+_ plus simple ! Asseyez-vous là, je vais vous donner une
+première leçon !
+Lina se sauva jusqu'à la porte :
+d — Ah ben ! Est-ce que j'ai le temps ! Et mon diner !
+— Votre diner ?.. Non, mais sérieusement, parlezmoi deux minutes... Avez-vous été à l'école ? Qu'est-ce
+que vous avez appris ? Qu'est-ce que vous savez ?
+— Bien sûr, j'ai été à l'école ! Jusqu'à quatorze ans!
+— Quel âge avez-vous ?
+— J'ai eu vingt ans à la saint Jean passée !
+— Il y a donc six ans que vous avez quitté l'école; et
+vous ne faites rien depuis ?
+— Qu'est-ce que vous voulez que je fasse, monsieur
+Madec? Je ne m'appartiens pas, je n'ai pas une minute
+Eu à moi. C'est toute la journée : @« Lina par ci, Lina
+- par là! »
+— Quoi ? pas un moment pour lire?
+Yves écoutait, songeur.
+— Lire ?.. Ah ben oui !
+— Écoutez, mademoiselle Lina. Demain nous en
+reparlerons. Il faut, si vous le voulez, — et vous devez
+6o
+
+| SCÈNES D'INTÉRIEUR
+le vouloir, — que vous trouviez ne serait-ce qu'une
+demi-heure par jour... je vous aiderai à travailler, à
+rapprendre peut-être ce que vous ne savez plus... Je...
+Dans l'escalier la voix affectueuse de madame Guiraud appelait :
+— Lina ! Où êtes-vous donc ?.…
+Yves tendit la main :
+— Sauvez-vous, à demain, nous recauserons : J'ai
+une idée... camarades, n'est-ce pas ?
+| Lina, bravement, prit la main du jeune homme :
+nr — C'est ça ! à bientôt, monsieur Madec ! Mais vous
+_ savez. Je ne peux pas compter.
+k La voix du dehors montait encore :
+— Lina !
+— Oui ! cria celle-ci. 5
+Et elle se sauva.…
+— Entendu ! se dit Madec; voilà de la bonne ouvrage
+| toute prête !.… C'est le commencement ! Ce sera bien
+i le diable si je ne trouve pas le moyen de faire quelque
+chose pour cette petite ! Elle a l'air bien gentille, pas
+. idiote du tout !.. C'est inouï de penser qu'elle ne lit
+… rien, jamais ! que ça n'a pas le temps de penser, de
+| devenir une personne ! Ça reste une chose; une chose !
+« Ja chose des maîtres ! Et il y en a, il y en a comme
+à cela, de par le monde ! Qu'est-ce qu'elle va devenir ?
+_ quelle est sa destinée ?.. La tâche quotidienne, l'éternel balayage, cuisinage, échaudage, époussetage ! Et
+| comme distractions : les commérages aux portes; les
+échappées rares au bal du mastroquet ; quelque ouvrier
+ou commis Jui pince la taille... et allez donc ! on n'est
+pas de bois ! Elle se laisse faire, ou pas. Dans tous les
+- cas, épouse un jour ou l'autre une pauvre « chose »
+Gr 4
+à
+*
+
+Yes Madec +5
+mâle — s'abêtissent ensemble, ont des gosses, filles où 5
+garçons, qui serviront aussi; les garçons un jour ou 4
+l'autre se feront casser la tête pour un patron, oules
+patrons — à la mine, ou au fameux « champ d'hon- k
+neur » ! — Les filles Dieu sait ! Et puis voilà encore 4
+des « choses » !.… — Ou bien. elle n'épouse pas. È
+Alors c'est peut-être pis !.. Et puis c'est ça le monde ! .
+Pouah ! l'immonde saleté !.… |
+En rentrant du restaurant, ce même soir, il fit sa couverture, et se remit au travail, résolu à interroger plus à
+longuement la jeune fille sur son passé dès qu'elle vien- ;
+drait.
+Vers neuf heures et demie, il reçut la petite visite atten- |
+due. Sans embarras, mademoiselle Lina lui dit sa vie.
+Elle était fille de paysans des environs. Elle avait servi
+d'abord chez un horloger en qualité de bonne et de factrice à la fois. Elle gardait souvent la boutique. Il y
+avait peu d'ouvrage. Elle s'était plu là. Elle avait
+| quinze ans. Madame était très bonne, mais jalouse...
+et monsieur plaisantait trop.
+— Un soir, pris de vin sans doute... C'est pas rare
+dans c'pays-ci, monsieur Madec... Tout le monde ne
+boit pas de l'eau, comme vous... Il voulut m'embrasser. Justement madame arrive comme je courais en
+criant !
+Elle avait dû quitter la maison, après avoir exigé et
+obtenu des excuses de madame et de monsieur.
+Ensuite elle avait été à la Poste... enfin chez madame
+Guiraud depuis un an. C'était sa meilleure place.
+Yves dit :
+— C'est bien ! Demain je parlerai à madame Guiraud. Nous vous trouverons bien deux ou trois demi62
+
+2 SCÈNES D'INTÉRIEUR |
+_ heures par semaine pour faire quelques dictées, lettres,
+_ narrations, lectures critiques, etc.…., puisque, d'autre 3
+part, je vous ferai toute cette partie de votre ouvrage :
+_ que vous devez faire chez moi — cela vous dégagera FPS
+, d'autant. Madame Guiraud est très bonne, elle ne
+.  refusera pas cela. Vous ne devez pas vous laisser aller
++ la stupidité. Vous avez reçu une instruction élémen- |
+__ taire, vous devez la compléter — ou au moins ne pas
++4 perdre ce que vous savez. Il faut que vous ne vous ren_ diez pas inférieure à ceux que vous servez... Il ne faut
+—… pas laisser l'infériorité — l'esclavage, se justifier.
+—_ Leur conversation se prolongea jusqu'à près de onze
+…. heures. Yves se coucha radieux. Il lui semblait avoir
+_ vraiment fait un premier pas dans le bon chemin, et
+tout l'avenir, muet et fermé jusque-là, se rouvrit à lui
+| avec une gloire d'aube.
+…. Dès le lendemain en effet, il obtint de la bonne dame
+- Guiraud trois demi-heures par semaine du temps de
++ mademoiselle Lina, qu'il choisit parmi ses heures libres |
+… des matins, et il commença cette même semaine à in-
++ terroger sa nouvelle élève.
+
+Br
+
+ñ T
+CHAPITRE VII n
+Chez Têtu À
+
+Ce fut aussi vers ce temps qu'il rencontra un ouvrier %
+chez un de ses collègues : Têtu. Têtu était un ancien L
+instituteur : un brave garçon, rien qu'à le voir, pensait É
+Madec; petit, trapu, avec une grosse tête blonde, ronde, 3
+au large front dur, poli comme une roche de marbre, ;
+et de gros yeux bleus sans profondeur; des gestes |
+courts et étroits, — et monotones ; — un brave garçon, |
+rien qu'à entendre sa voix nette, cependant roulante en 4
+la gorge, comme des Cra » de tambour. Têtu était j
+radical-socialiste ; il avait combattu le maire actuel |
+aux élections; il était mal va en haut lieu pour des |
+crimes politiques dont assurément il était incapable,
+mais dont il pouvait se rendre complice, à cause de sa ;
+sincérilé à penser, et de son obstination à dire ce qu'il!
+pensait. Bavardant un jour avec Madee, il lui avait
+appris qu'une section de la Ligue des Droits de l'Homme
+et du Citoyen allait se fonder à Villetaupier, entre bourgeois et ouvriers :
+— Venez donc me voir, ajouta-t-il, je vous présenterai Périer, un des ouvriers les plus sérieux sur qui
+nous comptons.
+
+à
+
+| CHEZ TÊTU
+Un soir, Madec s'en fut chez Têtu. Têtu était marié.
+
+. Sa femme, grande, mince, d'apparence un peu roide,
+: mais toute pleine de bons efforts pour de la grâce, lui
+-_ poussa Jean-Pierre dans les bras. Jean-Pierre était un
+_ gamin de sept ans, fort et grave, de visage obstiné £
+- comme celui de son père. Périer était déjà là quand
+- Yves arriva. L'ouvrier, ajusteur aux chemins de fer de
+J'État, se leva du coin de la cheminée où il était assis
+-  fumant la pipe. Il toucha son béret béarnais, qu'il avait
+… sur la tête, et se rassit, après avoir serré la main que
+… Jui offrait Madec. Périer plut tout de suite à Yves : il
+—… avait l'air joyeux et grave tout à la fois; son visage
+# brun, aux traits fins, nez droit, grands yeux noirs,
+à longs sourcils, petite moustache noire, avait quelque
+—._ chose d'aristocratique. Il portait une courte blouse de
++ toile bleue d'atelier, ouverte sur une chemise de couleur sans cravate. :
+
+_ Déjà on causait des chemins de fer, du travail aux
+4 ateliers, — tandis que madame Têtu, après avoir mis
+Een train le café, montait coucher Jean-Pierre. Yves
+
+- écoutait avec émotion. Périer tendait au feu ses pieds
+4 chaussés de sabots, et, une jambe croisée sur la main
+— gauche à plat sur le genou de l'autre jambe, de la main
+É. droïte tenant sa pipe, il décrivait quelques rares gestes
+— en parlant. Il causait avec des heurts, tantôt les longs
+4 sourcils se fronçaient, et de l'ombre venait dans ses
+— yeux; tantôt le front se détendait, et un beau sourire
+… éclairait le visage sous la lumière de la lampe. — A
+
+. l'atelier Périer était regardé de travers : il avait fait
+- des jaloux de ses camarades et de ses supérieurs. Il
+- passait pour un « poseur ».
+
+É — Parce que d'abord je ne mets pas les pieds au
+
+< = RE at 20,
+Me ce -
+Yves Madec . S%
+café... Jamais je n'accepte un verre de vin blanc : ça
+me fait mal, et puis je n'en ai pas envie. “à
+Ensuiteil travaillait beaucoup, et sa tâche l'intéressait:
+— J'ai apporté deux ou trois modifications aux cylindres et à la chaudière; — et c'est en essai — tou
+jours; mais vous comprenez, je ne sais pas dessiner!
+Alors il m'a fallu l'aide du chef de dépôt. Alors ia
+voulu dire que c'est son système, parce qu'il l'a des
+siné, lui. J'ai réclamé. On m'a donné raison. Mais il « m'en veut. Et les camarades se foutent de moi parce
+que mes inventions ne m'ont rien rapporté encore, et
+qu'elles me passeront sous le nez, parce qu'elles portent « maintenant le nom de l'ingénieur ! Ils disent : « T'es
+bien muff ! de t'esquinter le tempérament ! »
+.  Périer ricana. Il n'était la dupe de personne : il ne
+travaillait pas pour de l'avancement, ni même pour :
+des récompenses quelconques, ou de la gloire. Il travaillait parce qu'il aimait travailler, voilà tout; et
+bien sûr que personne ne pouvait l'empêcher. .
+} Têtu, le torse cambré sur la chaise, la cigarette entre
+deux doigts, approuvait plaisamment ; 1
+— Ah ! sacré Périer ! Il n'a pas peur, lui ! è 1
+Et il se pencha en avant, se frottant les mains en
+riant. — Madec s'abstenaïit de tout commentaire, surpris d'une muette admiration pour ce très simple ouvrier sans ambition, sans vanité, qui disait sa vie :
+pénible et joyeuse, toute absorbée en la mâle énergie +
+du quotidien labeur. La causerie s'élargissait maïintenant. Madec revint sur la phrase de Périer : s
+— Je ne mets pas les pieds au café. ù :
+Il s'exclamait, soucieux : ; 4
+— Ah! bon Dieu! Si tous étaient comme vous! C'est 4
+66 3
+
+MES |
+? CHEZ TÊTU
+bien cela, c'est beau! savez-vous? Je ne parle pas seu-
+
+_ lement des ouvriers; moins que les autres ils sont cou4 pables quand ils boivent jusqu'à la soûlerie. — J'aime
+. beaucoup ces bons bourgeoïs, ceux de mon genre, par
+_ exemple, qui passent leurs journées le derrière sur une
+chaise, sans sueur, avec des entours confortables, pré-
+à chant aux ouvriers de ne pas boire; aux ouvriers
+324 comme vous, comme les mécaniciens, les mineurs qui
+“4 respirent un air vicié de charbon, et dépensent dans
+‘4 leurs efforts musculaires, toutes les sécrétions néces-
+à saires à la vie; dont le sang se brüle, et la gorge se
+…._ dessèche du matin au soir! S'ils donnaient l'exemple
+seulement, ces doux prêcheurs! Mais non! au dernier
+4 de ces petits freluquets de bureaucrates comme au preke: mier gros rentier, dont les jouissances pourraient être
+—. si variées et si hautes, il faut quoi! L'apéritif, le
+Ée … digestif, le jeu de manille interminable, devant les bou-
+—. ‘teilles! — Ignoble en vérité! Ignoble! c'est pourtant là,
+— l'exemple que reçoivent les ouvriers, (à qui d'ailleurs
+
+—_ onn'a jamais parlé d'éducation morale), de ceux qui
+… ont passé dix, quinze ans sur les bancs des collèges et
+
+…— des lycées, dans leurs familles aisées et comme il faut,
+
++ avec du loisir.et tant de soin au milieu des plus beaux
+
+- principes, des plus grandes maximes!
+
+“ — Oui, affirma Têtu, c'est bien vrai ce que vous
+… dites là ; c'est les bourgeois qui, pouvant plus, devraient
+_ plus!
+
+…  — Et bien sûr, parbleu! Tu dois ce que tu peux!
+
+- — Voyez-vous, je ne fais partie d'aucun groupe, d'au-
+
+-  cune société. Cependant j'approuverais hautement la
+_ propagande antialcoolique, si elle ne s'était pas si mes-
+
+ quinement entichée de l'unique but qu'elle poursuit — à
+
+à 67
+
+Yves Madec Lee
+avec les armes déloyales de la Foi — aveuglément, stupidement quelquefois. Oui, assurément, il faut tuer 4
+l'alcoolisme. Mais je dis que la voie qu'on prend, — bien *
+qu'on ait l'air d'attaquer la bête en face, — est la plus À
+longue et la plus détournée pour marcher à l'ennemi. k.
+L'alcoolisme est un mal dérivé.Le vraimalestplushaut,
+plus secret, plus adhérent à l'individu social. Les L”
+ouvriers boivent, et boivent de l'alcool, parce qu'ils ne 4
+connaissent pas d'autres joies, parce que les bourgeois
+ne leur en enseignent pas d'autres, parce que les bourgeois n'en connaissent pas d'autres ! Et si les bourgeois S
+n'en connaissent pas d'autres, c'est que le bourgeois est
+pourri par le milieu qu'il s'est créé. — Il s'est bâti cette
+société pour son propre bien-être, égoïstement, vorace- |
+ment. Or, tout égoïsme est bestial et condamné à ne se
+nourrir que de grossières, que de crapulardes jouis- É
+sances. L'égoïsme repose sur la force brute. Tout individu qui ne s'efforce pas de faire entrer dans chacun
+des actes de sa vie la préoccupation d'autrui, qui
+n'érige pas la maxime de son action en maxime universelle, est fatalement amené à rouler, sans délai, au
+plus bas degré de l'échelle humaine. Si je convoite
+quelque bien matériel pour moi seul, je ne le fais
+qu'à mes dépens. Ce que je possède en propre, je le
+
+: vole! — Preuve ? … Il me faut des gendarmes, des sol- J
+dats et des canons pour défendre mon bien contre autrui, |
+qui, à son tour, encouragé par la loi de mon action, veut 3
+aussi posséder pour soi. — Mais du jour où j'arrive à
+considérer que tout bien matériel, nécessaire à la vie
+d'autrui, m'est commun avec autrui, de ce jour, j'ai 4
+d'autres préoccupations que de garder jalousement,
+férocement mon bien! J'ai libéré ma personne de chaînes
+
+68 d
+$
+k
+
+b.: CHEZ TÊTU
+
+| impitoyables; je sens naître en moi le dégoût, le
+
+_ mépris, l'horreur de toutes jouissances basses et violentes auxquelles j'étais contraint de m'abandonner,
+quand la pensée n'était pour moi que la geôlière des
+soucis d'augmenter et de garder mon bien-être maté-
+riel! Le bourgeois souffre à penser; son rêve est de ne
+plus penser; d'où nécessité de quelque passion qui lui
+ôte un moment le souci de soi-même, qui l'aliène à soimême; d'où les jeux stupides, prétextes à boire, à s'enivrer ; d'où l'alcool!... Et d'autre part l'ouvrier misé-
+rable, anxieux de son pain, perpétuellement, ignorant
+de tout, n'ayant pas le temps de penser à autre chose,
+voyant la folie hilare et bruyante du bourgeois, n'ima_gine pas d'autre jouissance!
+
+Madec conclut :
+— Abolissez la propriété privée, et vous vous libé-
+
+“ rerez de toutes folies, de l'alcoolisme entre autres!
+
+à Têtu tapa sur ses genoux :
+
+à — Eh! l'ami Madec! C'est un communard! Tiens,
+
+4 tiens!
+
+*_  Périer, secouant la cendre de sa pipe sur le chenetne
+
+_ disait rien.
+
+Madec reprit :
+
+4 — Communard, collectiviste, anarchiste — appelez-
+
+à moi comme vous voudrez! Je m'en fiche! Ce sont des
+
+… mots! Les mots ne sont rien — les actes sont tout :
+
+Or retenez ceci : la Révolution ne se fera que par l'in-
+
+… dividu non plus par la foule; et elle se fera quotidien-
+
+| nement, heure par heure, par chacun de nous. La Révo-
+
+…—. lution se fait à toute minute, depuis le commencement.
+
+Il faut que chacun de nous s'affranchisse personnelle-
+
+À ment de toute bestialité d'abord, et aide à la même
+
+\ 69
+
+Re à
+Yres Madec ; * rs d
+œuvre, de tout son pouvoir ceux qui l'entourent : cha- #
+cun de nous, bourgeois ou ouvriers. La tâche est # Fi
+d'autant plus ardue que l'individu est plus étroitement EE
+asservi aux forces ennemies dont l'enserre l'esprit
+inique de la société actuelle; mais, coûte que coûte, il 4
+faut qu'il s'affranchisse! C'est l'heure des Héros ob- E
+scurs. Fais-toi toi-même ce que tu voudrais que les
+autres soient! Tu veux que la justice règne? Fais de
+toi un juste, envers et contre tous et tout! Que la jus- …
+| tice règne en toi, par toi! Exige ton droit imprescriptible à la lumière, à l'air, au bien-être, à la liberté. —
+Accomplis ta tâche avec justice, avec amour, et
+dénonces-en les iniquités, si tu ne peux les arracher
+seul. — Refuse obstinément de te soumettre à toute M
+besogne que tu juges en conscience inutile ou nuisible.
+Unis-toi à ceux qui souffrent les mêmes maux que toi!
+Agissez sur l'opinion publique contre vos chefs hiérarchiques, contre vos maîtres; soutenez-vous les uns les  !
+à autres, par les syndicats, les secours mutuels! —
+Abolis dans ta vie privée tout ce qui n'est pas propre,
+| tout ce qui est antisocial. La société humaine doit
+reposer sur la raison : vis une vie toute de raison. (2
+Interdis-toi tout geste, toute parole, toute action con- l
+traires à la raison. Maïîtrise-toi toi-même : Ilest lamentable, il est honteux, il est odieux, il est ixhumain, que
+tu supportes un autre maître que toi-même! — Quand
+l'individu s'exerce à un pareil jeu, il s'y prend d'amour Ë
+lui-même, et cette joie lui suffit. IL n'a bientôt plus 4
+besoin que de satisfaire aux nécessités essentielles de k
+son existence : il ne songe plus à amasser; il donne
+aisément de soi à ceux qui manquent, à ceux qu'il faut
+élever à d'analogues conditions matérielles de luttes: »
+
+id Li res " 2 NRA RS
+__ comme on l'a dit : « la révolution sociale sera morale
+ou elle ne sera pas! »
+| — Eh bien? Qu'est-ce que vous pensez de la poli_ tique? — questionna Têtu. |
+> — Rotten!/ comme disent les Anglais: Pourrie! à |
+… bas toute politique! La politique, voilà vraiment l'en_ nemi! : :
+_ Bravo! cria derrière lui madame Têtu, qui, une petite
+à lampe à globe à la main, rentrait après le coucher de |
+_ Jean-Pierre.
+ne _ — Bravo, M. Madec! vous faites bien, allez! de dire
+
+ça à mon mari. Ab! si vous pouviez le convaincre !.…
+
+…—._ Le visage de Têtu s'était rembruni. Il eut l'air d'un
+… gros Dee ennuyé qui ue Il LE: regardant F RE
+
+_ — Tais-toi donc, toi! Tu ne sais pas de quoi il est
+
+_ question!
+
+-  Agacée tout de suite, madame Têtu, posant la lampe
+
+- sur la table, ripostait :
+
++ — Comment? J'entends bien ce que dit M. Madec! 5
+
+- Oui! Pas de politique! Elle trouble la paix des ménages » et puis on se met le Gouvernement contre soi... Et qui
+
+« est-ce qui paie les pots cassés? Hein? Tu le sais bien,
+
+_toi! avec ta politique! quand on n'est pas le plus
+
+Buort!...
+
+s Têtu, le sourcil froncé, haussa les épaules en mouil-
+
+- lant sa cigarette. Madec sentait que quelque raneune
+
+- conjugale grondait sourdement. Il éprouva un profond
+
+._ malaise, et, d'un air plaisant, essaya de donner le
+
+| change.
+
+—. — Parfait, chère madame! vous parlez d'or! Plus de
+
+_ Chambre des Députés, je la supprime!
+
+… Périer le regarda avec une douce ironie, non sans
+
+È | 71
+
+Yves Madec FER “REPOE
+£ tristesse. Madame Têtu affecta de rire et soufila la |
+ù lampe. Elle servit le café et la conversation devint
+banale. 2
+A la fin, comme Madec et Périer se levaient pour se
+retirer, on conclut : L:
+__— Alors, dit Tétu, vous consentez? à la Ligue? 4
+— C'est le docteur Pirault qui prendra la présidence
+de la section; et on se réunira ici jusqu'à ce qu'on
+trouve un local? ;
+— Entendu, dit Madec — à bientôt! _ d
+Et il sortit avec Périer. à
+|
+|
+
+|
+
+] CHAPITRE IX
+
+F Un trimestre
+4 Le mois de décembre fut pluvieux et doux comme en
+_ Bretagne. Yves, déchargé maintenant du gros travail
+_ du début était moins soucieux de la tâche profession_ nelle. Ii s'habituait à ses élèves. Il commençait à les
+. connaître tous, et il osait espérer qu'à force de patience
+… et de soin, il parviendrait à leur apprendre quelques
+sûrs éléments des deux langues qu'il avait à leur enseigner. D'autre part, il avait un peu apaisé sa conscience.
+_ Il était lié maintenant avec quelques ouvriers, et avec
+deux instituteurs. Enfin il avait parlé aux collègues et à
+. ses nouveaux amis de l'œuvre des Universités Popu_ laïires. Le cœur battant, il escomptait déjà les joies de
+_ l'avenir.
+_ J1s'accordait maintenant quelques promenades, cela F
+_ d'ailleurs entrait dans son plan de vie. IL voulait que
+. chacun eût assez de loisir, pour, à défaut d'autre exer-
+. cice physique, se permettre une marche d'au moins une
+. heure et demie chaque jour, au grand air. Il prolongeait
+_ ses promenades à pied les jeudis, vendredis et di-
+; manches, où il avait tout le temps à lui. IL connut
+4 bientôt toute la pauvre campagne nue et nulle des envi-
+
+Yves” Madec #. RS
+rons.. Cependant, au cœur même de la petite ville, il Fe
+n'avait pas tardé à trouver un lieu familier : le cha a
+teau. C'était un antique donjon carré, de vingt à trente ÿ
+mètres de hauteur, à douze arcs-boutants, fait de tuffe
+blanche et datant du douzième siècle; seul reste de
+l'immense citadelle dont de vagues débris s'effritaient |
+encore par la plaine. Cette tour carrée, visible de dix à
+vingt kilomètres à la ronde, était plantée sur le sommet +
+du coteau dont les vieilles maisons de Villetaupier tapis- |
+saient les flancs, et comblaient le vieux vallon. Le donjon
+s'élevait dans une solitude orgueilleuse, et les trous
+
+; carrés de son couronnement lorgnaient tristement la
+campagne. Vingt fois pris et repris par les catholiques
+et les protestants, au temps des guerres de religion, il
+semblait maintenant dormir, dans l'oubli et le dédain
+des chicanes d'aujourd'hui, un éternel sommeil hanté du
+fracas des antiques armures, quand les vents du lointain soufflaient en tempête autour de lui. Non loin, des
+murailles de jardins — jadis de remparts — s'écroulaient ; puis une esplanade s'ouvrait, dressée sur les
+fondements de l'ancienne grande salle du palais, —
+entourée de tilleuls. Enfin tout un taillis de lilas pous-
+
+3 sait à la diable sur la pente qui regardait le sud, et que ;
+les habitations avaient laissée déserte, des acacias sauvages et des élanthes, deux ou trois jeunes cèdres
+ornaient les lignes de l'ancien chemin de ronde. |
+
+L'endroit était si peu fréquenté, bien que charmant
+dans sa sauvagerie, que Madec s'y trouvait toujours k
+
+seul. Il y passait maintes fois pour se rendre au collège.
+
+Il y montait encore pour se choisir d'en haut, un but de
+promenade. De là il dominait le pays à l'est, au sud, où 4
+
+la plaine s'abaissait, et à l'ouest. La « contrée » était
+74 P
+
++ UN TRIMESTRE
+: monotone, faiblement ondulée, presque entièrement sans
+arbres, et tout à fait sans eau. Du nord au sud Yves
+| aïmait à suivre des yeux, à sa droite, la ligne maigre
+_ des peupliers, et il évoquait le mystère fuyant d'une
+_ source imaginaire qu'ils auraient dérobée. Il se plaisait
+là surtout aux jours de tempête. Il aimait la tiède
+_ humidité du vent d'ouest. Enveloppé de sa pèlerine, il
+_ marchait sur le gravier trempé dont on avait semé les
+… allées de l'esplanade. Aux rumeurs du vent qui souf-
+ flait par la plaine et frémissait dans les ramures dénu_ dées des vieux tilleuls bossués et tordus comme d'im-
+| menses ceps au-dessus de sa tête, il se souvenait du
+Miss de la mer. Ii foulait les sables des grèves, il
+| _ aspirait avec délices la fraîcheur marine des embruns
+_— perlant sur ses cils, ses joues, ses moustaches. Puis il
+_ ouvrait les yeux et regardait vers le sud.
+—. L'illusion ne s'évanouissait pas. Le ciel n'était qu'une
+| fu ite éperdue de nuées sombres, au ventre lourd, traî-
+nant jusqu'aux menus sommets des ondulations stériles.
+S Par delà se creusait un long et large vallon peuplé
+; 2 d'arbres, de champs cultivés, de maisons dispersées. IL
+… distinguait comme une haute bouée, dominant les
+“ masses noires des flots, la silhouette trapue d'une
+— antique tourelle d'un bourg démantelé. Dans l'atmosphère grisâtre où se noyaient toutes choses, c'était le
+… prolongement indéfini des remous d'une mer de tem_pête. Par instant, quelque lueur éparse d'un rayon bla3 Fa rd faisait, dans les profondeurs de l'horizon, luire une
+“toiture d'ardoise, une vitre, ou la blanche volute d'une
+lumée de locomotive. Et Yves croyait voir gerber, dans
+la pluie, l'écume éclatante d'un brisant. Il restait là,
+“immobile, apaisé, comme si, dans la tourmente des
+
+: : RS
+Yres Madec : . ae
+choses, se perdait, en une goutte d'eau dans la mer, …
+l'angoisse infime de son individualité.…. - DE
+Ses jours de loisir dans la semaine étaient aussi bien +
+remplis. Les matins, c'était l'arrivée de mademoiselle
+Lina, dans sa chambre, avec, à la main, quelque balai “4 |
+et un livre scolaire. Il écartait aussitôt toutes ses pape- E
+rasses, el sur l'étroite table lui ménageait un coin. Elle 4
+était bonne écolière, docile, travailleuse; et c'était une 4
+bonne demi-heure qu'ils passaient ensemble vraiment :
+frère et sœur. Il lui faisait faire des lettres, des dictées, 4
+de courtes narrations. Il lui donnait des leçons de litté- à
+rature, d'art. Elle se plaignait de n'avoir pas assez de « temps, d'être contrainte de mâchonner ses leçons en
+époussetant, en lavant sa vaisselle, en balayant. « Je
+n'ai vraiment pas une minute, si vous saviez! vous ne
+vous rendez pas compte, monsieur Madec! »
+Et alors il la plaisantait sur son goût du bavardage :
+— Allons donc! Tenez! vous avez perdu hier matin |
+_ trois quarts d'heure, montre en main, avec Louise, dans
+le jardin. Que diable aviez-vous besoin d'étendre son
+linge sur le treillage? Est-ce que c'est votre ouvrage?
+Ne dites pas cela! Vous reveniez de prendre du bois . |
+sous le hangar, et madame Guiraud vous appelait!
+Je n'ai pas voulu avoir l'air d'intervenir! ;
+Et mademoiselle Lina, avec son balai et sa nouvelle
+leçon s'en.allait bientôt. ‘4
+Un jeudi par mois Yves faisait la promenade à là
+place du répétiteur de service. Il trouvait maintenant 4
+autant de plaisir à errer par la campagne avec les 4
+trente où quarante pauvres diables en uniforme, pen- L |
+dant trois heures, qu'il y avait trouvé de peine autre- |
+fois, quand cette tâche lui était régulièrement imposée 1
+76 2!
+
+1. 700 UN TRIMESTRE
+| deux fois par semaine. Cependant le répétiteur qu'il
+_  Jibéraït ainsi, avait une après-midi par mois pour faire
+_ de son temps ce qui lui plaisait. À quatre heures il ren-
+Ë- trait, et retrouvait là un répétiteur qui, frais et dispos,
+_  gardait les élèves en cour de récréation, tandis qu'Yves
+Le retournait vivement chez lui pour soufller un peu, ;
+en prenant une tasse de thé; puis il revenait au collège
+- à cinq heures pour la rentrée des élèves en étude. Tous
+| les jeudis, qu'il fit ou non la promenade, il donnait deux
+_ Heures aux élèves, de cinq à sept. La première, qu'il ne
+_ … roulait pas que les élèves prissent pour une « retenue »,
+à _é ait cependant consacrée aux paresseux qui n'avaient
+: op as eu la moyenne pour leurs leçons ou devoirs de la
+2 Ë semaine. Il y faisait venir les externes, et, afin que
+_ce ie heure ne leur fût pas comme une punition, il les
+. laissait bavarder ensemble, plaisantait même avec eux,
+— Lout en exigeant qu'ils réparassent leurs fautes. Il les
+— prenait là chacun à son tour, tâchait d'obtenir leur aveu
+de ce qu'ils n'avaient pas compris de ses explications,
+et leur développait tel ou tel point de grammaire qui
+avait embarrassé les moins intelligents. Durant l'heure
+_ suivante, il allait à la grande étude. Le répétiteur qui la
+s urveillait était enchanté de cette liberté d'une
+heure que lui apportait Madec au milieu de cette
+horrible surveillance de trois heures, venant souvent
+da ès une récréation d'une heure et une promenade
+LÉ d l& trois heures. Madec lisait à haute voix aux
+- élèves de l'étude; la plupart du temps c'était quelque
+. œuvre de romantique français ou étranger. Il s'appli-
+. quait à simplifier, à commenter, — à causer, de façon à
+ne pas faire durer une heure entière sa lecture. Le
+choix des ouvrages présentait toujours quelque diffi-
+% 77
+Fe
+À à
+
+Yves Madec DS
+
+culté, car cette étude réunissait presque tous les élèves à
+internes du collège, de tous âges. IL y avait là quelques a
+philosophes et rhétoriciens, de dix-sept et dix-huit ans; P
+mais la majorité était faite de moyens et de petits, de +
+seize à douze ans. Il lui fallait rendre intéressantes à NS
+tous également sa lecture et sa causerie. Il lut des
+poèmes de Victor Hugo, de Vigny, un drame de Schilz
+ler, des pages de Tolstoï, un conte de Ruskin. Il s'at- 4
+_tarda longuement sur « l'Ennemi du Peuple » d'Ibsen, ‘4
+et les petits mêmes écoutèrent attentivement le com
+mentaire qu'il en fit, et les applications qu'il leur sug- 4
+géra de l'idée maîtresse de cette grande œuvre aux 4
+événements de la vie présente les invitèrent à lui poser
+des questions si embarrassantes, que Madec resta à
+court de réponses. Un d'eux, fils d'un avocat connu, M
+gamin de treize ans peut-être, s'écria : 4
+
+— Mais, m'sieur, il y a des métiers où on ne peut pas 4
+dire la vérité, puisque papa est obligé quelquefois de 4
+plaider pour quelqu'un qu'il sait être coupable !
+
+Et le fils d'un marchand de chevaux : À
+
+— M'sieur, comment donc faire alors, puisque papa 1
+fait souvent arranger ses vieux chevaux pour les vendre
+comme s'ils étaient de jeunes étalons! .
+
+Madec se tirait d'embarras loyalement : . E
+
+— Mes amis, je n'ai pas à juger des personnes ! Vous
+voyez bien, par ce beau drame norvégien, que seule la
+vérité est sacrée, et doit être dite, au risque de notre
+bien être et de notre vie. Vous-mêmes vous l'avez |
+reconnu, et que tout le reste, mensonges et menteurs,
+vous à paru misérable. Le monde où nous vivons est
+pétri d'iniquités. C'est à vous de les juger, partout où
+elles sont, — de vous efforcer avec tout votre cœur et
+
+78 :
+
+| 200 2
+> UN TRIMESTRE
+toute votre raison, et toute votre énergie, à les faire
+disparaître, en y employant les moyens les plus dignes
+d'hommes généreux et vaillants, et aimants !
+Un des grands dit même en riant, à moitié sûr seulement de sa réflexion : 5
+— Mais, m'sieur, l'Ennemi du Peuple est-ce que ça
+west pas un peu l'affaire Dreyfus ?
+Un autre jour de la semaine Yves était parvenu à
+amener chez lui un gamin de quatorze ans, le fils d'un
+pauvre garde-barrière, qui travaillait à obtenir une
+bourse. En outre, non sans difficulté, il avait persuadé
+Têtu de lui laisser deux quarts d'heure par semaine son
+gros garçonnet, Pierrot, pour le préparer à jaboter
+… quelques mots d'anglais. À ce propos, une scène avait
+failli éclater dans le ménage Têtu. Madame Têtu enten-
+— dait qu'Yves acceptât quelques honoraires : :
+—_  _— Tout travail doit être rétribué.
+à Et Yves dut se rendre chez madame Têtu un soir,
+és pour lui exposer ses principes :
+— D'accord, madame, mais ce n'est pas un travail
+pour moi, d'apprendre le « how do you do? » à votre
+À Pierrot. Si c'est un amusement ? Allez-vous me payer
+… mes plaisirs, hein ? Et puis quand même, qu'est-ce que
+| Sa vous fait ? Si je crevais de faim ce serait une autre
+K affaire ! Mais puisque je suis payé au collège d'une façon S
+4 satisfaisante en somme ; puisque mon travail me laisse
+À du temps de libre et-que je n'ai aucune charge par ail4 leurs ? Dites, est-ce que ça n'est pas un devoir pour
+4 nous, et une joie, de donner, pour la joie même, et sans
+— salaire, l'activité qui nous reste à dépenser? — Si
+. vous étiez millionnaire, bien sûr que je ne ferais pas ce
+… que je fais! Et toutefois, ne prenez pas cela pour une
+s
+
+Yves Madec M
+charité! Non! Vous n'en avez pas besoin, Dieu merci! …
+C'est une affaire de justice, de raison surtout. Votre - #
+gamin aimerait déjà à apprendre l'anglais ; vous ne le “3
+trouvez pas encore d'âge à avoir de très sérieuses a
+leçons — qui d'ailleurs le fatigueraient. Tout en s'amu- : 1
+sant avec moi, il trouve le moyen d'éviter d'avance les
+difficultés qui pourraient le décourager ensuite. Pour- ]
+quoi allez-vous empêcher cela par un faux-orgueil bour- à
+geois? Eh, que diable! habituez-vous donc à penser ;
+aux échanges d'actions, non aux équivalents en argent. |
+Le service que je vous rends, ou à votre gamin, si tant À
+est qu'il vaille quelque chose, eh bien rendez-le donc, !
+non à moi, bien sûr, puisque je n'en ai pas besoin, à
+maintenant, mais à quelque autre qui en a besoin, sous ;
+une forme ou sous une autre. Et sinon vous, laissez- 3
+moi par là apprendre à Pierrot que cela doit se faire, ;
+se fera couramment, dans une société supérieure, un .
+peu plus vraiment humaine que celle-ci. Le salaire que
+je demande pour ce que je fais gratuitement, le voici :
+que mon « obligé » s'engage vis-à-vis de soi-même, à
+« obliger » pareiïllement tel premier autre qu'il rencon- :
+trera de la même façon, en sorte que cet autre, à son 4
+tour, en « oblige » un troisième, et ainsi de suite indéfiniment. .
+
+Et Madec ajouta en riant :
+
+— Chère madame je vous interdis de croire que vous
+êtes quitte envers la société et l'homme quand vousm'avez 4
+donné en argent ce que vous estimez être la valeur de mon 1
+action. Nous ne sommes jamais quittes les uns envers les |
+autres, tant qu'il y a un besoin ou un manque quelque |
+part. Et cela durera longtemps; ne craignez pas que le :
+« salaire » dû ne trouve pas d'emploi, allez !.…
+
+# UN TRIMESTRE
+| La bonne madame Têétu se résigna en apparence;
+mais, à la grande désolation de Yves, elle s'obstina à
+| le payer lui-même, qui n'en avait cure ni besoin, en
+mille attentions, prévenances, et quelquefois flatteries.
+_ Elle fit si bien que Pierrot, au jour de la « fête de
+M. Madec » (!!) lui apporta un présent de valeur. Yves
+_ en eut une grande colère.
+_  — Cette femme, s'écriait-il, contant l'histoire au sarA castique Arverne, réussit à anéantir une de mes actions.
+a Elle la coupe au ras du sol, et en détruit toutes les
+__ semences! Voilà un cadeau qui coûte cher aux inconnus qui seront privés des conséquences que je voulais
++ plus tard pour eux du seul fait de cette « leçon gra_… tuite »! Quand Pierrot sera grand, nul doute que lui
+1 aussi ne se figure quitte envers ce que j'ai fait pour lui, .
+M et parce qu'il m'a fait ce cadeau, il se détournera sans
+| scrupule ni remords d'une tâche désintéressée qui s'of-
+… frira à lui ! Bougre de sacrés bourgeois !
+- _ Arverne pouffait :
+…._ — Bougre de sacré apôtre! Vous me faites tordre...
+— Pourquoi diable semez-vous vos « marguerites » devant
+‘à des porcs! Et pourquoi diable ne foutez-vous pas la
+_ paix aux gens ! Est-ce qu'on vous demande quelque
+a chose! Vous figurez-vous que vous allez changer le
+— monde, vous? Vous êtes trop pêtit, mon bon!
+—.  Arverne raillait avec amertume, comme s'il en vou- :
+“ lait vraiment à Yves de sa naïveté — et Yves quelque-
+—… fois trouvait que le ricanement d'Arverne avait quelque
+; | chose de diabolique. Il sortait, meurtri.
+#
+"4 5.
+à.
+
+LS RE EE à ME SÉELS y ets Ne Sr. LE 1) =
+PQ SE RME A NE EU DC RE ee De
+Re à 7 ; : HÉTHADIES
+Re er È Se f PET EEE) ACER EN:
+Ge . à: ù L'MeRrs SEE
+FR € À SE AE 5 PHONE
+(PLANTES | EE ris RL
+T0 ” se ose MER T AS 9)
+LT SES : = L'REC PA ENOTE
+FTP Ë » La l'E CE ES
+MR : ;\ Û PRE ET CL
+nd + ET. _ j d SR € ls à INTER LA.
+LPS à: LÉRANIOT NOTE
+RSC NERENES nie | 1: DÉARNEEREE
+> 4 EE L ri * AU + 1 à M
+A ENE 5 A1 ARMOR ER
+Dur ‘ > Le TA 4 RE "
++ 1 À: Pt RES ECS 27: ;
+Dr e à 15 EXO se
+* Fa Pi te 4 « > : 2 SPA Li
+M: 4 VER EN RME
+SOA : Lu EE MST
+EL x ! 3 LOL ET AL À Lee LS
+nes « À : 1 L: 7 SOSRECSRRERERERNES
+RE à 3 4: HYACReS DR 2 NS
+: LM PEL pe £. A "4 PEU "EP RS D 1240 D de,
+a à M, LAS BREST
+2800 ei n k 2e ETS CR JT RS
+BR ; Se 7.2 To'e PAR r Es ME) al
+* “+ Fan À j . MP EME EC RS EN RET ;
+
+a “#
+la, (02 ANSE Fe 4
+CN » Lei" TORRES Le
+
+RE © PU É S
+v PEx ER A <
+D : :
+LFP
+PR | “es
+1 MES ”
+7 AP
+VER Fe ;
+7 DEUXIEME PARTIE
+MA x
+
+“em
+AO PE
+Ex He Pr | D
+à "LES L
+RS 6
+Cal « 1e PA
+CT. d
+à 2 P
+NÉE ‘
+Re: ( A 18
+
+NT TER NT AT OR NT RER
+D TO DO vogue EU RSS EEE CONTE
+ne ! 2, PES TUE RE ER Re 770 POELE RE re 2
+Fe À Les 7 DES PAP EEE
+è Pi se
+Es ? | RE
+Es LT AA, CNE
+ÉTAT d A r EL.
+4 s 53%
+A , : URSS
+LT « l 3 PE.
+D ÿ 2 F0 EEE
+y x Ah O
+Fee RUES OR ME NES
+; k à PR
+= : à È » : per La
+> : pi HP RENTE
+2x + TL SAINS
+| ARE et €
+
+CHAPITRE X
+Chez Périer
+
+a Cependant les vacances du jour de l'An étaient arri-
+
+4 vées. Le soir du premier janvier Yves se rendit dans
+
+3  Jes bas quartiers de la ville :
+
+—…_ — Je viendrai à votre rencontre avec une lanterne,
+…_ avait dit Périer; sans cela vous ne vous reconnaîtriez
+
+M pas !
+
+_ (C'était une joie pour Yves d'avoir pu accepter l'invi-
+—_ tation de Périer. Celle de Têtu était venue un peu plus
+tard.
+
+2. __ — J'en ai assez des soirées bourgeoises, murmurait-
+— il, en s'acheminant au rendez-vous, avec un saint4 honoré à la crème sous le bras. — Je ne suis pas fâché
+—. d'aller fumer une pipe chez un vrai ouvrier.
+
+—._ Madec avait déjà fait connaissance avec madame
+… Périer, une après-midi de jeudi que Périer, indisposé,
+—_ avait dû garder la chambre. C'était une grosse, rouge,
+… fraîche petite femme de vingt-sept à trente ans, qui
+avait de fort beaux yeux, et un grand front intelligent
+… et doux. Elle lui avait plu, dans la simplicité de son
+- grossier caraco usé, et de son long tablier bleu, du cou
+- aux pieds, qui l'enveloppait comme un sarrau. Elle tra85
+
+Yres Madec  .:
+vaillait tout le jour, à une machine à bas, pour une 45
+maison de la ville. PR
+— Halte au falot ! cria Yves, dans la nuit des ruelles,
+k dès qu'il aperçut la lueur trouble de la lanterne. 8
+— Avance au ralliement ! répliqua en riant le bon “4 Ki.
+Périer. ; à
+Ils se trouvèrent, et aussitôt, sautant un large ruisseau débordé qui encombraïit le milieu de la rue, ils E À
+entrèrent. Périer était seul locataire de la maisonnette
+proprette, pauvrette, blanchie à la chaux, d'une frai- È
+cheur de linge.
+— Dommage d'être dans ce trou ! disait Périer. Si .
+c'était seulement la campagne, on aurait de l'air i
+Il y avait deux pièces en bas : la salle à manger, où :
+était aussi le métier à bas, devant la fenêtre, — où les
+deux amis pénétrèrent ; puis la cuisine. En haut était
+une chambre à coucher, d'où on allait au grenier par
+une échelle. ;
+. Sous la petite lampe vulgaire, à abat-jour, sur la
+table ronde, un vase de fleurs, deux assiettes de biscuits et de grands verres.
+Madame Périer vint à eux de la cuisine, et toute sa
+pleine face de bonne enfant riait :
+— Eh ben ! — elle avait un accent un peu traînant,
+une sorte de mélopée paysanne (elle était vendéenne) ;
+— eh ben? vous vous êtes donc pas perdu ? Pauv L
+monsieur Madec ! A-t-on idée aussi de venir dans des 3
+maisons comme celle-ci ? À
+Elle parlait toujours ainsi, avec une ironie sans amer- $
+tume, qui dilatait légèrement ses narines. ;
+— Non, madame! Vous me prenez toujours pour un si
+bourgeois !
+
+4 # CHEZ PÉRIER
+L Périer, le poing sur la hanche où se plissait la blouse
+| bleue, se grattait la tête sous son béret béarnais, en
+riant simplement, avec une vraie joie dans ses beaux
+yeux noirs. !
+— Tu sais bien, Valentine, qu'y dit comme ça qu'il a
+toujours mal au cœur, ou envie de vomir chez les
+bourgeois. Tâche donc voir que ton thé soit pas de la
+mélasse, et ta conversation aut' que d'chiffons !
+Périer et Madec s'étaient revus quelquefois, depuis
+-_ leur rencontre chez Têtu, et ils avaient senti naître
+_ entre eux une fraternelle amitié.
+… — C'est-y qu'y va pas venir, Boulon? Y s'fait déjà
+_ tard!
+$ Périer avait fait asseoir Yves :
+É — J'sais pas ! Probab' que si ! — Attends un peu !
+— Et Périer s'assit, tandis que Valentine retournait à sa
+_ cuisine :
+* — Faiït-y assez chaud, monsieur Madec! cria-t-elle de
+& Vautre pièce. J'ai pas fait de feu. C'est si petit ici
+— qu'avec le fourneau de cuisine ça chauffe trop... Mais si
+| ci vous voulez un'chaufferette !
+fs - Elle s'esclaffait, la moqueuse.
+—. — Allez-y! Ça y est! Vous ne cesserez jamais de me
+“prendre pour une poule mouillée !
+—.  Périer bourrait sa pipe et riait aussi :
+‘4 — Vous êtes qu'un bourgeois ! qu'voulez-vous y
+— faire ? Ma femme vous traite en p'tit m'sieur |
+…—…. — Dites donc en p'tite femme !
+—_ Et on entendait le gloussement de rire de Valentine,
+14 Yves demanda :
+Ë — Boulon doit venir? Chouette alors !.. Et son
+_ épouse ?
+#
+ë 87
+y
+
+Yves Madec SA He:
+— Y z'ont dit qui viendraient, toujours, déclara : k
+Périer. Je leur z'ai dit que vous veniez ! Ÿ
+Périer, à demi levé, allumait sa pipe au verre de. 2€
+lampe. ‘2
+Boulon était un instituteur dont Yves tentait de se
+rapprocher. Deux ou trois fois, à la sortie des classes,
+ils s'étaient rencontrés et avaient fait une promenade
+ensemble autour du boulevard. Un moment il était
+entré chez Boulon, et avait aperçu madame Boulon,
+petite, échevelée un peu, très affairée derrière sa ma- ; |
+chine à coudre, et aussi frivole et loquace que son mari
+(un gars de trente ans, petit, trapu) lui avait paru
+grave et roide.
+— J'entends justement des pas sul'pavé ! dit Périer. -
+Et il alla vers la porte. Mais Valentine revenait vers
+la petite table ronde et s'exclamait devant le gâteau à
+la crème offrant sa neige à la lumière de la lampe :
+— C'est-y donc vous qu'apportez ça ? Ah! m'sieu
+-Madec, par exemple, v'là qu'est borgeois ! .
+— Mais non ! erreur ! c'est Périer qui vous fait
+une surprise. Sacré Périer ! 4
+Des voix, des pas s'approchaient dans le couloir,
+avec un froufroutement d'étoffes mouillées. Yves se
+leva :
+— Il pleut donc ? Bonsoir monsieur, madame !… |
+— J'vous crois, qu'il pleut ! {
+Et Boulon, le menton encadré d'une barbe noire
+d'Assyrien symétriquement taillée, la bouche ouverte Ë
+j en un rire, tendait à Yves une large et robuste main ©
+blanche. Et la petite dame Boulon papottait déjà étour- E
+diment parmi les lentes paroles grasses de Valentine,
+tandis que Périer, fermant les portes, criait derrière : 4
+88 {

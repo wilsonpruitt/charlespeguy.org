@@ -1,0 +1,18 @@
+{
+  "slug": "s01-c02",
+  "series": 1,
+  "issue": 2,
+  "label": "I-2",
+  "titleFr": "Deuxième cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaquinz1pg#page/n151/mode/1up",
+  "pieces": [
+    {
+      "slug": "du-second-provincial-reponse-provisoire-la-preparation-du-congres-socialiste-national",
+      "titleFr": "Du second Provincial. Réponse provisoire. La préparation du congrès socialiste national",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-01-20"
+}

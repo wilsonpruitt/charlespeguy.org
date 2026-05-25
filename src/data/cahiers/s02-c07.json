@@ -1,0 +1,36 @@
+{
+  "slug": "s02-c07",
+  "series": 2,
+  "issue": 7,
+  "label": "II-7",
+  "titleFr": "Septième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz11pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "administration",
+      "titleFr": "Administration",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "casse-cou",
+      "titleFr": "Casse-cou",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "librairie-des-cahiers",
+      "titleFr": "librairie des cahiers",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "pour-et-contre-diderot",
+      "titleFr": "Pour et contre Diderot",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-01-05"
+}

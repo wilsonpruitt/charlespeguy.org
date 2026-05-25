@@ -1,0 +1,24 @@
+{
+  "slug": "s07-c05",
+  "series": 7,
+  "issue": 5,
+  "label": "VII-5",
+  "titleFr": "Cinquième cahier de la septième série",
+  "sourceUrl": "https://archive.org/stream/s7cahiersdelaquinz05pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "courrier-de-russie",
+      "titleFr": "Courrier de Russie",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "le-22-janvier",
+      "titleFr": "Le 22 janvier",
+      "author": "etienne-avenard",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1905-12-05"
+}

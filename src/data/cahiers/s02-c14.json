@@ -1,0 +1,36 @@
+{
+  "slug": "s02-c14",
+  "series": 2,
+  "issue": 14,
+  "label": "II-14",
+  "titleFr": "Quatorzième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz12pg#page/n300/mode/1up",
+  "pieces": [
+    {
+      "slug": "expulsion-de-nicolas-paouli",
+      "titleFr": "Expulsion de Nicolas Paouli",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "boecklin-chez-les-francais",
+      "titleFr": "Boecklin chez les Français",
+      "author": "leon-deshairs",
+      "isAvertissement": false
+    },
+    {
+      "slug": "congres-de-lyon",
+      "titleFr": "Congrès de Lyon",
+      "author": "louise-levi",
+      "isAvertissement": false
+    },
+    {
+      "slug": "courrier-de-chine",
+      "titleFr": "Courrier de Chine",
+      "author": "lionel-landry",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-06-15"
+}

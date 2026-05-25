@@ -1,0 +1,30 @@
+{
+  "slug": "s02-c01",
+  "series": 2,
+  "issue": 1,
+  "label": "II-1",
+  "titleFr": "Premier cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz05pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "ajournement",
+      "titleFr": "Ajournement",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "nouvelles-communications",
+      "titleFr": "Nouvelles communications",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "nos-annonces",
+      "titleFr": "nos annonces",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-10-05"
+}

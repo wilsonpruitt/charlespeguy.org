@@ -1,0 +1,24 @@
+{
+  "slug": "s03-c04",
+  "series": 3,
+  "issue": 4,
+  "label": "III-4",
+  "titleFr": "Quatrième cahier de la troisième série",
+  "sourceUrl": "https://archive.org/stream/s3cahiersdelaquinz01pg#page/n232/mode/1up",
+  "pieces": [
+    {
+      "slug": "de-la-raison",
+      "titleFr": "De la raison",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "etudes-socialistes",
+      "titleFr": "Études Socialistes",
+      "author": "jean-jaures",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-11-20"
+}

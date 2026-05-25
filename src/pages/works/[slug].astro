@@ -1,0 +1,139 @@
+---
+import { getCollection, getEntry, render } from 'astro:content';
+import Base from '../../layouts/Base.astro';
+
+export async function getStaticPaths() {
+  const works = await getCollection('works');
+  return works.map(w => ({
+    params: { slug: w.id },
+    props: { work: w },
+  }));
+}
+
+const { work } = Astro.props;
+const d = work.data;
+const { Content } = await render(work);
+
+const author = await getEntry(d.author);
+
+// Resolve every part: look up cahier + piece title + which langs are available.
+const allPieces = await getCollection('pieces');
+const pieceLangs = new Map<string, { fr: boolean; en: boolean }>();
+for (const p of allPieces) {
+  const key = `${p.data.cahier.id}--${p.data.pieceSlug}`;
+  const entry = pieceLangs.get(key) ?? { fr: false, en: false };
+  entry[p.data.lang] = true;
+  pieceLangs.set(key, entry);
+}
+
+const resolvedParts = await Promise.all(
+  d.parts.map(async (part) => {
+    const cahier = await getEntry('cahiers', part.cahier);
+    const pieceInCahier = cahier?.data.pieces.find(p => p.slug === part.piece);
+    const key = `${part.cahier}--${part.piece}`;
+    return {
+      ...part,
+      cahier,
+      pieceTitle: pieceInCahier?.titleFr ?? part.piece,
+      langs: pieceLangs.get(key) ?? { fr: false, en: false },
+    };
+  })
+);
+---
+
+<Base title={d.title} lang="en">
+  <article class="work">
+    <header class="work-head">
+      <p class="work-kicker">A work assembled across cahiers</p>
+      <h1 class="work-title">{d.title}</h1>
+      <p class="work-author">
+        <a href={`/authors/${d.author.id}`}>{author?.data.name ?? d.author.id}</a>
+      </p>
+      {d.yearSpan && <p class="work-span">{d.yearSpan}</p>}
+    </header>
+
+    <section class="work-intro reading">
+      <Content />
+    </section>
+
+    <div class="rule-ornament"></div>
+
+    <section class="work-parts">
+      <h2 class="parts-head">Read in order</h2>
+      <p class="parts-meta">
+        {resolvedParts.length} installments as originally published in the cahiers.
+      </p>
+      <ol class="parts-list">
+        {resolvedParts.map((part, i) => (
+          <li>
+            <p class="part-n">Part {i + 1}</p>
+            <p class="part-title">{part.label ?? part.pieceTitle}</p>
+            <p class="part-meta">
+              <a href={`/cahiers/${part.cahier?.id}`}>
+                <span class="part-label">{part.cahier?.data.label}</span>
+                <span class="part-date">
+                  {part.cahier?.data.bonATirer && ` · ${part.cahier.data.bonATirer}`}
+                </span>
+              </a>
+            </p>
+            <p class="part-read">
+              {part.langs.fr && <a href={`/cahiers/${part.cahier?.id}/${part.piece}/fr`}>French</a>}
+              {part.langs.fr && part.langs.en && <span class="sep"> · </span>}
+              {part.langs.en && <a href={`/cahiers/${part.cahier?.id}/${part.piece}/en`}>English</a>}
+              {!part.langs.fr && !part.langs.en && (
+                <span class="pending"><em>Text not yet available.</em></span>
+              )}
+            </p>
+          </li>
+        ))}
+      </ol>
+    </section>
+  </article>
+</Base>
+
+<style>
+  .work { max-width: var(--measure-wide); margin: 0 auto; }
+
+  .work-head { text-align: center; margin: 1rem 0 2rem; }
+  .work-kicker {
+    font-style: italic; color: var(--ink-muted);
+    font-variant: small-caps; letter-spacing: 0.15em;
+    font-size: 0.85rem; margin: 0 0 1rem;
+  }
+  .work-title { font-size: clamp(2rem, 5vw, 3rem); margin: 0; line-height: 1.1; font-style: italic; }
+  .work-author { font-size: 1.2rem; margin: 0.5rem 0 0; }
+  .work-author a { color: var(--ink); border: none; }
+  .work-author a:hover { color: var(--rouge); }
+  .work-span {
+    color: var(--rouge); letter-spacing: 0.2em;
+    margin: 0.5rem 0 0; font-size: 0.9rem; font-style: italic;
+  }
+
+  .work-intro { margin: 2rem auto; }
+
+  .work-parts { max-width: var(--measure); margin: 2rem auto; }
+  .parts-head { text-align: center; font-size: 1.4rem; margin: 1rem 0 0.25rem; }
+  .parts-meta { text-align: center; font-style: italic; color: var(--ink-muted); margin: 0 0 1.5rem; }
+
+  .parts-list { list-style: none; padding: 0; }
+  .parts-list > li {
+    padding: 1.25rem 0;
+    border-bottom: 1px solid var(--rule);
+  }
+  .parts-list > li:last-child { border-bottom: 0; }
+
+  .part-n {
+    color: var(--rouge); font-style: italic;
+    font-variant: small-caps; letter-spacing: 0.1em;
+    font-size: 0.8rem; margin: 0;
+  }
+  .part-title { font-size: 1.15rem; margin: 0.15rem 0 0; font-style: italic; }
+  .part-meta { margin: 0.25rem 0 0; font-size: 0.88rem; }
+  .part-meta a { border: none; color: var(--ink-soft); }
+  .part-meta a:hover .part-label { color: var(--rouge); }
+  .part-label { color: var(--rouge); font-variant: small-caps; letter-spacing: 0.08em; font-style: normal; }
+  .part-date { color: var(--ink-muted); }
+  .part-read { margin: 0.3rem 0 0; font-size: 0.85rem; }
+  .sep { color: var(--ink-muted); }
+  .pending { color: var(--ink-muted); }
+</style>

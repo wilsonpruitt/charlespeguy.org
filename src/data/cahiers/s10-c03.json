@@ -1,0 +1,18 @@
+{
+  "slug": "s10-c03",
+  "series": 10,
+  "issue": 3,
+  "label": "X-3",
+  "titleFr": "Troisième cahier de la dixième série",
+  "sourceUrl": "https://archive.org/stream/s10cahiersdelaquinz03pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-peine-des-hommes-i-maree-fraiche",
+      "titleFr": "La peine des hommes. I. Marée fraîche",
+      "author": "pierre-hamp",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908-11-05"
+}

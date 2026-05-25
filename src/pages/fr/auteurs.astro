@@ -1,0 +1,46 @@
+---
+import Base from '../../layouts/Base.astro';
+import { getCollection } from 'astro:content';
+import { authorUrl } from '../../lib/paths';
+
+let authors: Awaited<ReturnType<typeof getCollection<'authors'>>> = [];
+try {
+  authors = await getCollection('authors');
+  authors.sort((a, b) => (a.data.nameSort || a.data.name).localeCompare(b.data.nameSort || b.data.name, 'fr'));
+} catch {}
+---
+
+<Base title="Auteurs" lang="fr">
+  <h1>Auteurs</h1>
+  <p class="metadata">
+    Tous les collaborateurs des Cahiers de la Quinzaine, par ordre alphabétique.
+    Cliquez sur un nom pour voir tous les textes publiés dans les cahiers, dans
+    l'ordre de publication.
+  </p>
+
+  {authors.length === 0 ? (
+    <div class="placeholder"><p><em>Aucune donnée disponible.</em></p></div>
+  ) : (
+    <ul class="authors">
+      {authors.map(author => (
+        <li>
+          <a href={authorUrl(author.data.slug, true)}>{author.data.name}</a>
+          {author.data.isEditor && <span class="role"> · directeur</span>}
+          {(author.data.born || author.data.died) && (
+            <span class="dates">
+              {' '}({author.data.born?.slice(0, 4) ?? '?'}–{author.data.died?.slice(0, 4) ?? '?'})
+            </span>
+          )}
+        </li>
+      ))}
+    </ul>
+  )}
+</Base>
+
+<style>
+  .placeholder { margin: 3rem auto; padding: 2rem; max-width: var(--measure); background: var(--paper-deep); border-left: 3px solid var(--rouge); color: var(--ink-soft); text-align: center; }
+  .authors { list-style: none; padding: 0; columns: 2; column-gap: 3rem; margin: 2rem 0; max-width: var(--measure-wide); }
+  .authors li { margin: 0.4rem 0; break-inside: avoid; }
+  .role { color: var(--rouge); font-style: italic; font-size: 0.9rem; }
+  .dates { color: var(--ink-muted); font-size: 0.9rem; }
+</style>

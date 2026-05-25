@@ -1,0 +1,24 @@
+{
+  "slug": "s01-c06",
+  "series": 1,
+  "issue": 6,
+  "label": "I-6",
+  "titleFr": "Sixième cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaqui05pg#page/n80/mode/1up",
+  "pieces": [
+    {
+      "slug": "de-la-grippe",
+      "titleFr": "De la grippe",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "la-meme-consultation-internationale",
+      "titleFr": "La même consultation internationale",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-03-20"
+}

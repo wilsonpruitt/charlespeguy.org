@@ -1,0 +1,24 @@
+{
+  "slug": "s11-c09",
+  "series": 11,
+  "issue": 9,
+  "label": "XI-9",
+  "titleFr": "Neuvième cahier de la onzième série",
+  "sourceUrl": "https://archive.org/stream/s11cahiersdelaqui09pg#page/n6/mode/1up",
+  "pieces": [
+    {
+      "slug": "mes-cahiers-rouges",
+      "titleFr": "Mes cahiers rouges",
+      "author": "maxime-vuillaume",
+      "isAvertissement": false
+    },
+    {
+      "slug": "dernier-cahier",
+      "titleFr": "Dernier cahier",
+      "author": "maxime-vuillaume",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1910-02-05"
+}

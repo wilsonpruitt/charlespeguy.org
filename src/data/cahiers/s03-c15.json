@@ -1,0 +1,18 @@
+{
+  "slug": "s03-c15",
+  "series": 3,
+  "issue": 15,
+  "label": "III-15",
+  "titleFr": "Quinzième cahier de la troisième série",
+  "sourceUrl": "https://archive.org/stream/s3cahiersdelaquinz12pg#page/n248/mode/1up",
+  "pieces": [
+    {
+      "slug": "cahiers-de-la-quinzaine",
+      "titleFr": "Cahiers de la Quinzaine",
+      "author": "anatole-france",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1902-05-05"
+}

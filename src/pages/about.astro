@@ -1,0 +1,225 @@
+---
+import Base from '../layouts/Base.astro';
+
+// Iconographic life-arc — the four portraits arranged in chronological order
+// at the foot of the About page.
+const portraitArc = [
+  {
+    src: '/portraits/peguy-1894-young.jpg',
+    caption: 'École normale supérieure, class portrait, 1894. Péguy at twenty-one.',
+    year: '1894',
+  },
+  {
+    src: '/portraits/peguy-pirou-bearded.jpg',
+    caption: 'Studio portrait by Eugène Pirou, c. 1900 — the year Péguy founded the Cahiers.',
+    year: 'c. 1900',
+  },
+  {
+    src: '/portraits/peguy-laurens-portrait.jpg',
+    caption: 'Oil portrait by Jean-Pierre Laurens. Péguy in his thirties, the editor years.',
+    year: 'c. 1908',
+  },
+  {
+    src: '/portraits/peguy-military-uniform.jpg',
+    caption: 'Lieutenant of the 276ᵉ régiment d\'infanterie, summer 1914 — weeks before Villeroy.',
+    year: '1914',
+  },
+];
+---
+
+<Base title="About">
+  <article>
+    <div class="reading">
+      <h1>About this archive</h1>
+      <p class="metadata">A digital edition of Charles Péguy's <em>Cahiers de la Quinzaine</em></p>
+
+      <h2>The journal</h2>
+      <p>
+        The <em>Cahiers de la Quinzaine</em> was a literary and political review
+        that Charles Péguy founded in January 1900 and edited until his death as
+        a French infantry lieutenant at the First Battle of the Marne on
+        5 September 1914. Published roughly every two weeks (the name means
+        "Fortnightly Notebooks"), the cahiers came out in fifteen series totaling
+        229 issues. Subscribers received them by mail; many of the issues were
+        printed in editions of only fifteen hundred or two thousand copies.
+      </p>
+
+      <p>
+        Péguy was simultaneously editor, publisher, business manager, distributor,
+        proofreader, and frequent contributor. He signed every colophon as
+        <em>le gérant</em>. He printed each cahier at <em>Imprimerie de
+        Suresnes</em> and later at <em>Julien Crémieu, imprimeur, 13 et 15, rue
+        Pierre-Dupont, Suresnes</em>. The journal lost money for most of its run.
+        Péguy ran it from a small bookshop opposite the Sorbonne.
+      </p>
+
+      <h2>The contributors</h2>
+      <p>
+        Among the writers Péguy gathered around the journal:
+      </p>
+      <ul>
+        <li><strong>Romain Rolland</strong>, whose ten-volume novel
+          <em>Jean-Christophe</em> ran serially across the Cahiers and won
+          the Nobel Prize for Literature in 1915.</li>
+        <li><strong>Maxime Vuillaume</strong>, an exiled veteran of the Paris
+          Commune of 1871, whose ten-volume <em>Mes cahiers rouges</em> remains a
+          principal source for historians of the Commune.</li>
+        <li><strong>Julien Benda</strong>, whose novel <em>L'Ordination</em>
+          appeared in the Cahiers in 1911–1913 (before he wrote
+          <em>La Trahison des clercs</em>).</li>
+        <li><strong>Daniel Halévy</strong>, historian and Dreyfusard, whose
+          political and historical writing ran across many issues.</li>
+        <li><strong>Paul Milliet</strong>, whose long editorial project
+          <em>Les Milliet</em> assembled three generations of his family's
+          letters, including the Mexico letters of his uncle Adrien de Tucé
+          from 1862–1867.</li>
+        <li>And many others: <strong>René Salomé</strong>,
+          <strong>André Suarès</strong>, <strong>Joseph Reinach</strong>,
+          <strong>Félicien Challaye</strong>, <strong>Lucien Herr</strong>,
+          <strong>Georges Sorel</strong>, <strong>M. M. Mangasarian</strong>,
+          <strong>Édouard Berth</strong>, and others.</li>
+      </ul>
+
+      <h2>How the site is organized</h2>
+      <p>
+        The cahier — the printed issue — is the primary unit. Browse the
+        <a href="/cahiers">chronological river of all 229 cahiers</a> to read
+        them in order of publication, with each cahier's editorial apparatus
+        preserved: Péguy's <em>Avertissements</em>, the pieces in their
+        printed order, the colophon, the back-cover commerce notices.
+      </p>
+      <p>
+        Secondary navigation by <a href="/authors">author</a>: every contributor
+        has a page listing their pieces in publication order. Péguy's page
+        additionally lists his <em>Avertissements</em>, each cross-linked to
+        the article it introduced.
+      </p>
+      <p>
+        Five multi-cahier works are also available as standalone reading editions
+        for those who want to read the long serials straight through rather than
+        through the periodical:
+      </p>
+      <ul>
+        <li><a href="/works/jean-christophe"><em>Jean-Christophe</em></a> — Romain Rolland</li>
+        <li><a href="/works/mes-cahiers-rouges"><em>Mes cahiers rouges</em></a> — Maxime Vuillaume</li>
+        <li><a href="/works/les-milliet"><em>Les Milliet</em></a> — Paul Milliet</li>
+        <li><a href="/works/lordination"><em>L'Ordination</em></a> — Julien Benda</li>
+        <li><a href="/works/les-mysteres"><em>Les Mystères</em></a> — Charles Péguy</li>
+      </ul>
+
+      <h2>French and English</h2>
+      <p>
+        Every cahier is available in its original French, taken from the
+        Archive.org and Gallica scans of the original printings. English
+        translations are progressing piece by piece. French and English versions
+        of each piece live at separate URLs (<code>/fr</code> and <code>/en</code>);
+        where a translation does not yet exist, the French is still readable.
+      </p>
+
+      <h2>This archive</h2>
+      <p>
+        Compiled and translated by <strong>Wilson Pruitt</strong>. The translations
+        are made with care but are not yet authoritative; corrections and
+        improvements are welcome.
+      </p>
+    </div>
+
+    <div class="rule-ornament"></div>
+
+    <section class="arc">
+      <h2 class="arc-title">An iconographic life</h2>
+      <p class="arc-subtitle">Four photographs and a painting, 1894 — 1914.</p>
+
+      <div class="arc-grid">
+        {portraitArc.map(p => (
+          <figure class="arc-portrait">
+            <img src={p.src} alt={p.caption} loading="lazy" decoding="async" />
+            <figcaption>
+              <span class="arc-year">{p.year}</span>
+              <span class="arc-caption">{p.caption}</span>
+            </figcaption>
+          </figure>
+        ))}
+      </div>
+
+      <p class="arc-note">
+        All portraits public domain. Provenance and source URLs in
+        <code>public/portraits/MANIFEST.md</code>.
+      </p>
+    </section>
+  </article>
+</Base>
+
+<style>
+  .arc {
+    max-width: var(--measure-wide);
+    margin: 3rem auto 2rem;
+  }
+
+  .arc-title {
+    text-align: center;
+    margin: 0 0 0.25rem;
+  }
+
+  .arc-subtitle {
+    text-align: center;
+    font-style: italic;
+    color: var(--ink-muted);
+    margin: 0 0 2rem;
+  }
+
+  .arc-grid {
+    display: grid;
+    grid-template-columns: repeat(auto-fit, minmax(200px, 1fr));
+    gap: 2.5rem 2rem;
+  }
+
+  .arc-portrait {
+    margin: 0;
+  }
+
+  .arc-portrait img {
+    width: 100%;
+    height: auto;
+    display: block;
+    filter: sepia(0.12) contrast(1.02);
+    border: 1px solid var(--rule);
+    aspect-ratio: 3 / 4;
+    object-fit: cover;
+    object-position: center top;
+  }
+
+  .arc-portrait figcaption {
+    margin-top: 0.6rem;
+    font-size: 0.88rem;
+    line-height: 1.5;
+  }
+
+  .arc-year {
+    display: block;
+    color: var(--rouge);
+    font-style: italic;
+    letter-spacing: 0.1em;
+    font-size: 0.8rem;
+    margin-bottom: 0.15rem;
+  }
+
+  .arc-caption {
+    display: block;
+    color: var(--ink-soft);
+    font-style: italic;
+  }
+
+  .arc-note {
+    text-align: center;
+    color: var(--ink-muted);
+    font-size: 0.8rem;
+    margin-top: 2.5rem;
+    font-style: italic;
+  }
+
+  .arc-note code {
+    font-family: var(--mono);
+    font-size: 0.85em;
+  }
+</style>

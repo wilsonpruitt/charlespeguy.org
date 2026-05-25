@@ -1,0 +1,18 @@
+{
+  "slug": "s09-c11",
+  "series": 9,
+  "issue": 11,
+  "label": "IX-11",
+  "titleFr": "Onzième cahier de la neuvième série",
+  "sourceUrl": "https://archive.org/stream/s9cahiersdelaquinz09pg#page/n208/mode/1up",
+  "pieces": [
+    {
+      "slug": "mes-cahiers-rouges",
+      "titleFr": "Mes cahiers rouges",
+      "author": "maxime-vuillaume",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908-03-05"
+}

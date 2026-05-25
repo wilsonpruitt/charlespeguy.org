@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c02",
+  "series": 4,
+  "issue": 2,
+  "label": "IV-2",
+  "titleFr": "Deuxième cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz01pg#page/n88/mode/1up",
+  "pieces": [
+    {
+      "slug": "l-aube-fraternelle",
+      "titleFr": "L'aube fraternelle",
+      "author": "emile-moselly",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1902-10-20"
+}

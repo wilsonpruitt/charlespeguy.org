@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c04",
+  "series": 5,
+  "issue": 4,
+  "label": "V-4",
+  "titleFr": "Quatrième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz01pg#page/n354/mode/1up",
+  "pieces": [
+    {
+      "slug": "le-theatre-du-peuple",
+      "titleFr": "Le Théâtre du Peuple",
+      "author": "romain-rolland",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-11-20"
+}

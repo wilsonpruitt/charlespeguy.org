@@ -1,0 +1,18 @@
+{
+  "slug": "s12-c03",
+  "series": 12,
+  "issue": 3,
+  "label": "XII-3",
+  "titleFr": "Troisième cahier de la douzième série",
+  "sourceUrl": "https://archive.org/stream/s12cahiersdelaqui01pg#page/n276/mode/1up",
+  "pieces": [
+    {
+      "slug": "my-first-testament",
+      "titleFr": "My First Testament",
+      "author": "julien-benda",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908"
+}

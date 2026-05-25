@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c22",
+  "series": 4,
+  "issue": 22,
+  "label": "IV-22",
+  "titleFr": "Vingt-deuxième cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz18pg#page/n386/mode/1up",
+  "pieces": [
+    {
+      "slug": "courriers-de-macedoine",
+      "titleFr": "Courriers de Macédoine",
+      "author": "maurice-kahn",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-08-20"
+}

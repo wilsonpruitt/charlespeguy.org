@@ -1,0 +1,17 @@
+{
+  "slug": "s13-c12",
+  "series": 13,
+  "issue": 12,
+  "label": "XIII-12",
+  "titleFr": "Douzième cahier de la treizième série",
+  "sourceUrl": "https://archive.org/stream/s13cahiersdelaqui09pg#page/n516/mode/1up",
+  "pieces": [
+    {
+      "slug": "le-mystere-des-saints-innocents",
+      "titleFr": "Le mystère des saints Innocents",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": []
+}

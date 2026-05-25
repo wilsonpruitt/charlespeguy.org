@@ -1,0 +1,160 @@
+---
+import Base from '../layouts/Base.astro';
+---
+
+<Base
+  title="Charles Péguy — editor of the Cahiers de la Quinzaine"
+  description="A digital archive of Charles Péguy's literary journal, 1900–1914."
+  lang="en"
+>
+  <section class="desk">
+    <p class="kicker">A digital archive</p>
+
+    <div class="hero-row">
+      <figure class="hero-portrait">
+        <img
+          src="/portraits/peguy-pirou-bearded.jpg"
+          alt="Charles Péguy, photographed by Eugène Pirou, c. 1900"
+          width="1088"
+          height="1705"
+          loading="eager"
+          decoding="sync"
+        />
+        <figcaption>Eugène Pirou, c. 1900</figcaption>
+      </figure>
+
+      <div class="hero-text">
+        <h1 class="hero-name">Charles Péguy</h1>
+        <p class="hero-dates">1873 — 1914</p>
+
+        <p class="hero-role">
+          Founder and <em>gérant</em> of the<br />
+          <a href="/cahiers" class="hero-journal"><em>Cahiers de la Quinzaine</em></a>
+          <span class="hero-span">1900 — 1914</span>
+        </p>
+      </div>
+    </div>
+
+    <div class="rule-ornament"></div>
+
+    <div class="framing reading">
+      <p class="lede">
+        For fourteen years, Péguy edited a literary review that came out
+        roughly every two weeks. He founded it in January 1900 from a small
+        bookshop opposite the Sorbonne, and he kept it going until he was
+        killed leading his infantry section at the First Battle of the Marne
+        on 5 September 1914. <strong>Two hundred and twenty-nine cahiers</strong>,
+        across fifteen series, every one of which he signed as
+        <em>gérant</em> on the colophon.
+      </p>
+      <p>
+        He paid his contributors and his printer at perpetual financial loss
+        and gathered around the journal a generation of writers —
+        Romain Rolland, Daniel Halévy, Maxime Vuillaume, Julien Benda,
+        Paul Milliet, René Salomé, André Suarès, Joseph Reinach, and many
+        more. Today Péguy is remembered for a handful of his own writings:
+        <em>Notre jeunesse</em>, <em>Le Mystère de la charité de Jeanne d'Arc</em>,
+        <em>Ève</em>. The journal that consumed his adult life is largely
+        forgotten.
+      </p>
+      <p>
+        This archive is built around that corrective: every cahier in its
+        original form, in French and in English translation, with the
+        editorial apparatus — Péguy's <em>Avertissements</em>, the colophons,
+        the back-cover commerce notices — preserved as he printed them.
+      </p>
+      <p class="text-note">
+        The cahiers exist on Archive.org and Gallica as JP2 image scans only.
+        This archive provides the full text in clean, continuous, searchable
+        form for the first time.
+      </p>
+    </div>
+
+    <div class="rule-ornament"></div>
+
+    <p class="enter">
+      <a href="/cahiers" class="cta">Enter the cahiers →</a>
+    </p>
+
+    <p class="secondary">
+      Or browse by <a href="/authors">author</a>,
+      or read longer works assembled across cahiers:
+      <a href="/works/jean-christophe"><em>Jean-Christophe</em></a>,
+      <a href="/works/mes-cahiers-rouges"><em>Mes cahiers rouges</em></a>,
+      <a href="/works/les-milliet"><em>Les Milliet</em></a>,
+      <a href="/works/lordination"><em>L'Ordination</em></a>,
+      <a href="/works/les-mysteres"><em>Les Mystères</em></a>.
+    </p>
+
+    <p class="lang-switch">
+      <a href="/fr/" data-set-lang="fr">Lire cette page en français →</a>
+    </p>
+  </section>
+</Base>
+
+<style>
+  .desk { padding-top: 2rem; }
+  .kicker {
+    text-align: center; font-style: italic; color: var(--ink-muted);
+    font-variant: small-caps; letter-spacing: 0.15em;
+    margin: 0 0 2rem; font-size: 0.85rem;
+  }
+  .hero-row {
+    display: grid;
+    grid-template-columns: minmax(180px, 280px) 1fr;
+    gap: clamp(2rem, 5vw, 4rem);
+    align-items: center;
+    max-width: 56rem;
+    margin: 0 auto;
+  }
+  @media (max-width: 640px) {
+    .hero-row { grid-template-columns: 1fr; text-align: center; }
+    .hero-portrait { max-width: 220px; margin: 0 auto; }
+  }
+  .hero-portrait { margin: 0; }
+  .hero-portrait img {
+    width: 100%; height: auto; display: block;
+    filter: sepia(0.12) contrast(1.02);
+    border: 1px solid var(--rule);
+    box-shadow: 0 1px 0 var(--paper-deep), 0 18px 36px -28px rgba(26, 22, 18, 0.4);
+  }
+  .hero-portrait figcaption {
+    font-style: italic; color: var(--ink-muted); font-size: 0.8rem;
+    text-align: center; margin-top: 0.5rem; letter-spacing: 0.05em;
+  }
+  .hero-name {
+    font-size: clamp(2.5rem, 6.5vw, 4rem);
+    margin: 0; line-height: 1; color: var(--ink); letter-spacing: -0.01em;
+  }
+  .hero-dates {
+    font-style: italic; color: var(--rouge);
+    letter-spacing: 0.3em; margin: 0.5rem 0 1.5rem; font-size: 0.95rem;
+  }
+  .hero-role { margin: 0 0 0.5rem; font-size: 1.05rem; color: var(--ink-soft); line-height: 1.6; }
+  .hero-journal {
+    font-size: 1.4rem; color: var(--ink); border: none;
+    display: inline-block; margin: 0.25rem 0;
+  }
+  .hero-journal:hover { color: var(--rouge); }
+  .hero-span {
+    display: block; font-style: italic; color: var(--ink-muted);
+    font-size: 0.85rem; letter-spacing: 0.2em; margin-top: 0.25rem;
+  }
+  .framing { font-size: 1.05rem; margin: 2rem auto; }
+  .lede { font-size: 1.15rem; line-height: 1.6; }
+  .text-note {
+    font-style: italic; color: var(--ink-soft);
+    border-left: 3px solid var(--rouge); padding-left: 1rem; font-size: 0.98rem;
+  }
+  .enter { text-align: center; margin: 2rem 0 1rem; font-size: 1.2rem; }
+  .cta { font-style: italic; letter-spacing: 0.05em; }
+  .secondary {
+    text-align: center; font-size: 0.92rem;
+    color: var(--ink-soft); max-width: var(--measure);
+    margin: 1rem auto; line-height: 1.7;
+  }
+  .lang-switch {
+    text-align: center; margin-top: 2.5rem;
+    font-size: 0.9rem; font-style: italic;
+  }
+</style>

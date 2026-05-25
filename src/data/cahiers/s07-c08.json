@@ -1,0 +1,24 @@
+{
+  "slug": "s07-c08",
+  "series": 7,
+  "issue": 8,
+  "label": "VII-8",
+  "titleFr": "Huitième cahier de la septième série",
+  "sourceUrl": "https://archive.org/stream/s7cahiersdelaquinz08pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "louis-de-gonzague",
+      "titleFr": "Louis de Gonzague",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "et-vous-riez",
+      "titleFr": "Et vous riez",
+      "author": "andre-spire",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1906-01-20"
+}

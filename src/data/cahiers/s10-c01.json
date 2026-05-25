@@ -1,0 +1,18 @@
+{
+  "slug": "s10-c01",
+  "series": 10,
+  "issue": 1,
+  "label": "X-1",
+  "titleFr": "Premier cahier de la dixième série",
+  "sourceUrl": "https://archive.org/stream/s10cahiersdelaqui01pg#page/n5/mode/1up",
+  "pieces": [
+    {
+      "slug": "l-enfant-et-la-reine-morte",
+      "titleFr": "L'enfant et la reine morte",
+      "author": "pierre-mille",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908-10-05"
+}

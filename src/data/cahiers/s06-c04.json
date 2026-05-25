@@ -1,0 +1,24 @@
+{
+  "slug": "s06-c04",
+  "series": 6,
+  "issue": 4,
+  "label": "VI-4",
+  "titleFr": "Quatrième cahier de la sixième série",
+  "sourceUrl": "https://archive.org/stream/s6cahiersdelaquinz04pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "un-essai-de-monopole",
+      "titleFr": "Un essai de monopole",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "l-enseignement-primaire-a-madagascar",
+      "titleFr": "L'enseignement primaire à Madagascar",
+      "author": "raoul-allier",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1904-11-20"
+}

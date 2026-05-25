@@ -1,0 +1,18 @@
+{
+  "slug": "s06-c12",
+  "series": 6,
+  "issue": 12,
+  "label": "VI-12",
+  "titleFr": "Douzième cahier de la sixième série",
+  "sourceUrl": "https://archive.org/stream/s6cahiersdelaquinz09pg#page/235/mode/1up",
+  "pieces": [
+    {
+      "slug": "spartacus",
+      "titleFr": "Spartacus",
+      "author": "urbain-gohier",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1905-03-20"
+}

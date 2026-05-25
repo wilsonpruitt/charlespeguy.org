@@ -1,0 +1,18 @@
+{
+  "slug": "s07-c01",
+  "series": 7,
+  "issue": 1,
+  "label": "VII-1",
+  "titleFr": "Premier cahier de la septième série",
+  "sourceUrl": "https://archive.org/stream/s7cahiersdelaquinz01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "petit-index-alphabetique",
+      "titleFr": "Petit index alphabétique",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1905-10-05"
+}

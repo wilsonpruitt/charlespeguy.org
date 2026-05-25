@@ -1,0 +1,24 @@
+{
+  "slug": "s10-c04",
+  "series": 10,
+  "issue": 4,
+  "label": "X-4",
+  "titleFr": "Quatrième cahier de la dixième série",
+  "sourceUrl": "https://archive.org/stream/s10cahiersdelaquinz03pg#page/n102/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-peine-des-hommes",
+      "titleFr": "La peine des hommes",
+      "author": "pierre-hamp",
+      "isAvertissement": false
+    },
+    {
+      "slug": "vin-de-champagne",
+      "titleFr": "Vin de Champagne",
+      "author": "pierre-hamp",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1908-11-20"
+}

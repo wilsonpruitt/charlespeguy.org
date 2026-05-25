@@ -1,0 +1,24 @@
+{
+  "slug": "s01-c10",
+  "series": 1,
+  "issue": 10,
+  "label": "I-10",
+  "titleFr": "Dixième cahier de la premier série",
+  "sourceUrl": "https://gallica.bnf.fr/ark:/12148/bpt6k6740518d/f1.image",
+  "pieces": [
+    {
+      "slug": "communications-les-petits-teigneux",
+      "titleFr": "Communications. Les Petits Teigneux",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "socialisme-et-collectivisme",
+      "titleFr": "Socialisme et collectivisme",
+      "author": "emile-vandervelde",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-05-20"
+}

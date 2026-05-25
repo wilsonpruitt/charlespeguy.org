@@ -1,0 +1,18 @@
+{
+  "slug": "s03-c17",
+  "series": 3,
+  "issue": 17,
+  "label": "III-17",
+  "titleFr": "Dix-septième cahier de la troisième série",
+  "sourceUrl": "https://archive.org/stream/s3cahiersdelaquinz12pg#page/n400/mode/1up",
+  "pieces": [
+    {
+      "slug": "cahier-de-courriers",
+      "titleFr": "Cahier de courriers",
+      "author": "felicien-challaye",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1902-06-05"
+}

@@ -1,0 +1,177 @@
+---
+import { getCollection, render } from 'astro:content';
+import Base from '../../../layouts/Base.astro';
+import { cahierUrl, pieceUrl } from '../../../lib/paths';
+
+export async function getStaticPaths() {
+  const authors = await getCollection('authors');
+  const cahiers = await getCollection('cahiers');
+  cahiers.sort((a, b) => {
+    if (a.data.series !== b.data.series) return a.data.series - b.data.series;
+    return a.data.issue - b.data.issue;
+  });
+
+  const pieces = await getCollection('pieces');
+  const pieceLangs = new Map<string, { fr: boolean; en: boolean }>();
+  for (const p of pieces) {
+    const key = `${p.data.cahier.id}--${p.data.pieceSlug}`;
+    const e = pieceLangs.get(key) ?? { fr: false, en: false };
+    e[p.data.lang] = true;
+    pieceLangs.set(key, e);
+  }
+
+  return authors.map(author => {
+    const contributions: Array<{ cahier: any; piece: any; langs: { fr: boolean; en: boolean } }> = [];
+    for (const cahier of cahiers) {
+      for (const p of cahier.data.pieces) {
+        if (p.author.id === author.id) {
+          const key = `${cahier.id}--${p.slug}`;
+          contributions.push({ cahier, piece: p, langs: pieceLangs.get(key) ?? { fr: false, en: false } });
+        }
+      }
+    }
+    return { params: { slug: author.id }, props: { author, contributions } };
+  });
+}
+
+const { author, contributions } = Astro.props;
+const d = author.data;
+const { Content } = await render(author);
+
+const isPeguy = d.isEditor;
+const avertissements = isPeguy ? contributions.filter(c => c.piece.isAvertissement) : [];
+const writings = isPeguy ? contributions.filter(c => !c.piece.isAvertissement) : contributions;
+---
+
+<Base title={d.name} lang="fr">
+  <article class="author">
+    <header class="author-head">
+      <h1 class="author-name">{d.name}</h1>
+      {(d.born || d.died) && (<p class="author-dates">{d.born ?? '?'} — {d.died ?? '?'}</p>)}
+      {d.isEditor && (<p class="author-role">Directeur des <em>Cahiers de la Quinzaine</em>, 1900–1914</p>)}
+    </header>
+
+    <section class="author-bio reading"><Content /></section>
+
+    <div class="rule-ornament"></div>
+
+    {isPeguy ? (
+      <>
+        <section class="author-list">
+          <h2 class="list-head">Écrits dans les Cahiers</h2>
+          <p class="list-meta">{writings.length} textes par ordre de publication.</p>
+          <ol class="contrib-list">
+            {writings.map(c => (
+              <li>
+                <p class="contrib-title">{c.piece.titleFr}</p>
+                <p class="contrib-meta">
+                  <a href={cahierUrl(c.cahier.id, true)} class="contrib-cahier">
+                    <span class="contrib-label">{c.cahier.data.label}</span>
+                    <span class="contrib-cahier-title"> · {c.cahier.data.titleFr}</span>
+                  </a>
+                  {c.cahier.data.bonATirer && <span class="contrib-date"> · {c.cahier.data.bonATirer}</span>}
+                </p>
+                <p class="contrib-read">
+                  {c.langs.fr && <a href={pieceUrl(c.cahier.id, c.piece.slug, 'fr', true)}>Français</a>}
+                  {c.langs.fr && c.langs.en && <span class="sep"> · </span>}
+                  {c.langs.en && <a href={pieceUrl(c.cahier.id, c.piece.slug, 'en', true)}>Anglais</a>}
+                </p>
+              </li>
+            ))}
+          </ol>
+        </section>
+
+        {avertissements.length > 0 && (
+          <section class="author-list ave-section">
+            <h2 class="list-head">Avertissements</h2>
+            <p class="list-meta">
+              Les présentations éditoriales de Péguy aux textes d'autres collaborateurs —
+              {' '}{avertissements.length} en tout, chacun renvoyant à l'article qu'il introduisait.
+            </p>
+            <ol class="contrib-list">
+              {avertissements.map(c => {
+                const intro = c.cahier.data.pieces.find((p: any) => p.slug === (c.piece as any).introducesPiece);
+                return (
+                  <li>
+                    <p class="contrib-title"><em>Avertissement</em></p>
+                    <p class="contrib-meta">
+                      <a href={cahierUrl(c.cahier.id, true)} class="contrib-cahier">
+                        <span class="contrib-label">{c.cahier.data.label}</span>
+                        <span class="contrib-cahier-title"> · {c.cahier.data.titleFr}</span>
+                      </a>
+                    </p>
+                    {intro && (<p class="contrib-introduces">Introduit : <em>{intro.titleFr}</em></p>)}
+                    <p class="contrib-read">
+                      {c.langs.fr && <a href={pieceUrl(c.cahier.id, c.piece.slug, 'fr', true)}>Français</a>}
+                      {c.langs.fr && c.langs.en && <span class="sep"> · </span>}
+                      {c.langs.en && <a href={pieceUrl(c.cahier.id, c.piece.slug, 'en', true)}>Anglais</a>}
+                    </p>
+                  </li>
+                );
+              })}
+            </ol>
+          </section>
+        )}
+      </>
+    ) : (
+      <section class="author-list">
+        <h2 class="list-head">Dans les Cahiers</h2>
+        <p class="list-meta">
+          {contributions.length} {contributions.length === 1 ? 'texte' : 'textes'} par ordre de publication.
+        </p>
+        {contributions.length === 0 ? (
+          <p class="empty">Aucun texte rattaché à cet auteur pour le moment.</p>
+        ) : (
+          <ol class="contrib-list">
+            {contributions.map(c => (
+              <li>
+                <p class="contrib-title">{c.piece.titleFr}</p>
+                <p class="contrib-meta">
+                  <a href={cahierUrl(c.cahier.id, true)} class="contrib-cahier">
+                    <span class="contrib-label">{c.cahier.data.label}</span>
+                    <span class="contrib-cahier-title"> · {c.cahier.data.titleFr}</span>
+                  </a>
+                  {c.cahier.data.bonATirer && <span class="contrib-date"> · {c.cahier.data.bonATirer}</span>}
+                </p>
+                <p class="contrib-read">
+                  {c.langs.fr && <a href={pieceUrl(c.cahier.id, c.piece.slug, 'fr', true)}>Français</a>}
+                  {c.langs.fr && c.langs.en && <span class="sep"> · </span>}
+                  {c.langs.en && <a href={pieceUrl(c.cahier.id, c.piece.slug, 'en', true)}>Anglais</a>}
+                </p>
+              </li>
+            ))}
+          </ol>
+        )}
+      </section>
+    )}
+  </article>
+</Base>
+
+<style>
+  .author { max-width: var(--measure-wide); margin: 0 auto; }
+  .author-head { text-align: center; margin: 1rem 0 2rem; }
+  .author-name { font-size: 2.4rem; margin: 0; }
+  .author-dates { font-style: italic; color: var(--rouge); letter-spacing: 0.2em; margin: 0.4rem 0 0; font-size: 0.95rem; }
+  .author-role { margin: 0.4rem 0 0; color: var(--ink-soft); font-style: italic; font-size: 0.95rem; }
+  .author-bio { margin: 2rem auto; }
+  .author-bio :global(h2) { font-size: 1.1rem; font-variant: small-caps; letter-spacing: 0.1em; color: var(--ink-muted); text-align: center; font-weight: 400; margin: 2em 0 0.5em; }
+  .author-list { margin: 2rem auto; max-width: var(--measure); }
+  .list-head { font-size: 1.4rem; margin: 1rem 0 0.25rem; text-align: center; }
+  .list-meta { text-align: center; font-style: italic; color: var(--ink-muted); margin: 0 0 1.5rem; font-size: 0.95rem; }
+  .ave-section { margin-top: 3rem; padding-top: 2rem; border-top: 1px solid var(--rule); }
+  .contrib-list { list-style: none; padding: 0; counter-reset: contrib; }
+  .contrib-list > li { counter-increment: contrib; padding: 1rem 0 1rem 2.5rem; border-bottom: 1px solid var(--rule); position: relative; }
+  .contrib-list > li::before { content: counter(contrib); position: absolute; left: 0; top: 1rem; color: var(--ink-muted); font-style: italic; font-size: 0.85rem; }
+  .contrib-list > li:last-child { border-bottom: 0; }
+  .contrib-title { margin: 0; font-size: 1.1rem; }
+  .contrib-meta { margin: 0.2rem 0 0; font-size: 0.88rem; color: var(--ink-soft); }
+  .contrib-cahier { border: none; color: var(--ink-soft); }
+  .contrib-cahier:hover .contrib-label, .contrib-cahier:hover .contrib-cahier-title { color: var(--rouge); }
+  .contrib-label { color: var(--rouge); font-variant: small-caps; letter-spacing: 0.08em; }
+  .contrib-cahier-title { font-style: italic; }
+  .contrib-date { color: var(--ink-muted); }
+  .contrib-introduces { margin: 0.2rem 0 0; font-size: 0.88rem; color: var(--ink-muted); font-style: italic; border-left: 2px solid var(--rouge); padding-left: 0.75rem; }
+  .contrib-read { margin: 0.3rem 0 0; font-size: 0.85rem; }
+  .sep { color: var(--ink-muted); }
+  .empty { text-align: center; color: var(--ink-muted); font-style: italic; }
+</style>

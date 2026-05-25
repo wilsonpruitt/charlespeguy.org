@@ -1,0 +1,18 @@
+{
+  "slug": "s01-c04",
+  "series": 1,
+  "issue": 4,
+  "label": "I-4",
+  "titleFr": "Quatrième cahier de la premier série",
+  "sourceUrl": "https://gallica.bnf.fr/ark:/12148/bpt6k6740512x?rk=107296;4",
+  "pieces": [
+    {
+      "slug": "de-la-grippe",
+      "titleFr": "De la grippe",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-02-20"
+}

@@ -1,0 +1,18 @@
+{
+  "slug": "s04-c01",
+  "series": 4,
+  "issue": 1,
+  "label": "IV-1",
+  "titleFr": "Premier cahier de la quatrième série",
+  "sourceUrl": "https://archive.org/stream/s4cahiersdelaquinz01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "l-affaire-crainquebille-edition-complete",
+      "titleFr": "L'affaire Crainquebille, édition complète",
+      "author": "anatole-france",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1902-10-05"
+}

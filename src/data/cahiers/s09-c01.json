@@ -1,0 +1,18 @@
+{
+  "slug": "s09-c01",
+  "series": 9,
+  "issue": 1,
+  "label": "IX-1",
+  "titleFr": "Premier cahier de la neuvième série",
+  "sourceUrl": "https://archive.org/stream/s9cahiersdelaquinz01pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "de-la-situation-faite-au-parti-intellectuel-devant-les-accidents-de-la-gloire-temporelle",
+      "titleFr": "De la situation faite au parti intellectuel devant les accidents de la gloire temporelle",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1907-10-05"
+}

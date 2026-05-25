@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c03",
+  "series": 5,
+  "issue": 3,
+  "label": "V-3",
+  "titleFr": "Troisième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz01pg#page/n242/mode/1up",
+  "pieces": [
+    {
+      "slug": "le-monument-de-renan",
+      "titleFr": "Le monument de Renan",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-11-05"
+}

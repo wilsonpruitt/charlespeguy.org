@@ -1,0 +1,18 @@
+{
+  "slug": "s01-c05",
+  "series": 1,
+  "issue": 5,
+  "label": "I-5",
+  "titleFr": "Cinquième cahier de la premier série",
+  "sourceUrl": "https://archive.org/stream/s1cahiersdelaqui05pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-consultation-internationale-ouverte-a-la-petite-republique-sur-l-affaire-dreyfus-et-le-cas-millerand",
+      "titleFr": "La Consultation internationale ouverte à la Petite République sur l'affaire Dreyfus et le cas Millerand",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1900-03-05"
+}

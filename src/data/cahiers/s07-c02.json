@@ -1,0 +1,18 @@
+{
+  "slug": "s07-c02",
+  "series": 7,
+  "issue": 2,
+  "label": "VII-2",
+  "titleFr": "Deuxième cahier de la septième série",
+  "sourceUrl": "https://archive.org/stream/s7cahiersdelaquinz01pg#page/n80/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-paix-et-la-guerre",
+      "titleFr": "La paix et la guerre",
+      "author": "charles-richet",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1905-10-20"
+}

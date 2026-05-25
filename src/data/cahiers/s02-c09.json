@@ -1,0 +1,30 @@
+{
+  "slug": "s02-c09",
+  "series": 2,
+  "issue": 9,
+  "label": "II-9",
+  "titleFr": "Neuvième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz11pg#page/111/mode/1up",
+  "pieces": [
+    {
+      "slug": "proces-verbaux",
+      "titleFr": "Procès-verbaux",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "intellectuels-et-socialisme",
+      "titleFr": "Intellectuels et socialisme",
+      "author": "paul-mantoux-charles-guieysse",
+      "isAvertissement": false
+    },
+    {
+      "slug": "quatre-jours-a-montceau",
+      "titleFr": "Quatre jours à Montceau",
+      "author": "andre-bourgeois",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-02-05"
+}

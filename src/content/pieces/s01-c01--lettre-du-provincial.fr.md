@@ -1,0 +1,586 @@
+---
+cahier: s01-c01
+pieceSlug: lettre-du-provincial
+lang: fr
+title: Lettre du Provincial
+author: charles-peguy
+isAvertissement: false
+wordCount: 4691
+---
+
+*Charles Péguy*
+
+De la Province,
+jeudi 21 décembre 1899,
+Mon cher Péguy,
+
+Aussi longtemps que l'affaire Dreyfus a duré, je
+me suis efforcé, à mes risques et périls, et surtout
+mes frais, de rester à Paris. Nous sentions que cette
+crise était redoutable, nous savions qu'elle était
+en un sens décisive, et, autant que nous le pouvions, nous étions présents. Nous achetions sept ou
+huit journaux le matin, même des grands journaux,
+même des journaux cher, comme le Figaro bien
+renseigné. Puis nous achetions des journaux à midi,
+quand il y en avait. Puis nous achetions des journaux à quatre heures, les Droits de l'Homme ou le
+Petit Bleu. Puis nous achetions des journaux le soir.
+Nous dévorions les nouvelles. Nous passions des
+heures et des jours à lire les documents, les pièces
+des procès. La passion de La vérité, la passion de
+la justice, l'indignation, l'impatience du faux,
+l'intolérance du mensonge et de l'injustice occupaient toutes nos heures, obtenaient toutes nos
+forces. Parfois nous descendions en Sorbonne:
+il fallait repousser l'envahissement nationaliste et
+antisémitique loin des cours troublés, loin de la
+salle des Pas-Perdus. Nous nous donnâmes enfin,
+dans les voies et carrefours, des coups de canne
+qui n'étaient pas tragiques, mais qui furent sérieux.
+Ceux qui avaient alors des métiers faisaient comme
+ils pouvaient pour les exercer tout de même.
+J'avoue que plus d'un métier fut assez mal exercé,
+que plus d'un travail fut un peu négligé. Ceux qui
+n'avaient pas encore de métier ne se hâtaient nullement d'en choisir un. Plus d'un homme de métier
+fut affreusement surmené. Cela ne pouvait pas
+durer. Cela ne dura pas. Ces temps sont passés.
+Aujourd'hui je suis professeur de l'enseignement
+secondaire dans une bonne ville de province. Rien
+n'est aussi dur dans le monde, rien n'est aussi mauvais que ces bonnes villes bourgeoises. Des amis
+nous sont partis pour ces provinces internationales
+plus lointaines encore situées aux pays que les bourgeois nomment les pays étrangers, en Hongrie, en
+Roumanie. Nous recevons les journaux de Paris avec
+up, deux ou quatre jours de retard. J'ai 20 heures
+de service par semaine, environ 200 devoirs à corriger par semaine, 7 compositions par trimestre,
+sans compter les notes trimestrielles chères aux
+parents des élèves. Il me reste quelques heures de
+loin en loin pour savoir ce qui se passe dans le
+
+monde habité. Cependant je suis homme, ainsi
+que l'a dit cet ancien. Il me reste quelques heures
+pour savoir ce qui se passe dans la France républicaine et socialiste. Cependant je suis camarade et
+citoyen. L'État bourgeois, moyennant le travail
+que je lui fournis, me sert le traitement ordinaire
+des agrégés, moins la retenue ordinaire qu'il mefait
+pour préparer ma retraite. La vie étant un peu
+moins chère qu'a Paris, je réussis à nourrir ma
+récente famille. Mais je réussis tout juste. Il me
+reste quelques sous pour acheter les nouvelles de ce
+qui se passe. Les marchands ne vendent que le Petit
+Journal. Je me suis abonné à la Petite République,
+parce qu'elle est un journal ami et parce qu'elle
+représente assez bien pour moi le socialisme officiel
+révolutionnaire: je me suis abonné à /'Aurore parce
+qu'elle est un journal ami et parce qu'elle représente
+assez bien pour moi le dreyfusisme opiniâtre et
+révolutionnaire. Je me suis abonné au Matin, parce
+qu'il n'est pas malveillant et donne assez bien les
+nouvelles intéressantes. Surtout je me suis abonné
+au Mouvement Socialiste pour toutes les bonnes
+raisons que tu connais. Cela fait déjà 95 francs par
+‘an. C'est presque tout ce que je puis. Si j'étais un
+partisan déchaïiné de la glorieuse Luttedeclasse, il
+y aurait un moyen: je me dirais que, sauf quelques
+boursiers miséreux, tous ces enfants assis sur leurs
+bancs à leurs tables devant moi sont des bourgeois,
+fils et petits-fils de bourgeois, que je dois donc les
+abrutir et non pas les enseigner, pour précipiter la
+ruine et pour avancer la corruption intérieure de
+cette infâme société bourgeoise, qui, à ce que nous
+ont assuré les orateurs des réunions publiques, travaille de ses propres mains à sa propre destruction.
+Ce serait un sabotage d'un nouveau genre. Je ne
+préparerais pas mes leçons. Je ne corrigerais pas ou
+je corrigerais mal mes devoirs. J'aurais ainsi beaucoup de temps de reste. Je pourrais, quand mes
+élèves seraient ainsi devenus trop faibles pour
+suivre ma classe, leur donner, comme on dit agréablement, des leçons particulières. J'aurais ainsi quelque argent de reste. Mais j'ai la cruauté d'abandon:-
+ner quelquefois le terrain de la lutte de classe. Il
+me semble que ces enfants seront un jour des
+hommes et des citoyens. Je tâche de faire tout ce
+que je peux pour qu'ils soient plus tard des hommes
+humains et de bons citoyens. Outre le respect que
+l'on se doit et que l'on doit à son métier, je ne suis
+pas immoral. Même j'espère que quelques-uns de
+ces enfants pourront devenir des camarades. N'avons-nous pas été nous-mêmes au Lycée? N'avonsnous pas trouvé dans l'enseignement que nous
+avons reçu au Lycée au moins quelques raisons
+profondes pour lesquelles nous sommes devenus
+
+socialistes? Oh! je ne dis pas que nos maïtres et
+professeurs l'aient fait exprès. Ils n'étaient pas
+socialistes, en ce temps-là. Mais c'étaient de braves
+gens et des hommes honnêtes, ils disaient la vérité
+qu'ils pouvaient. Sans le savoir ces hommes de
+métier ont beaucoup fait pour nous introduire au
+socialisme. Et combien ne connaïissons-nous pas,
+n'avons-nous pas connu de bons socialistes élevés
+au Lycée ou dans les écoles, fils de père et mère
+bourgeois. Quand un fils de bourgeois devient
+socialiste, avec ou sans les siens, ou malgré les
+siens, je dis et je crois que c'est un morceau de la
+Révolution sociale qui se fait, sans qu'intervienne
+la dictature impersonnelle du prolétariat. C'est nous
+qui sommes les révolutionnaires. — Pour toutes ces
+raisons, je me réserve assez peu de loisirs. Et sur
+ces loisirs j'emploie un certain temps à préparer et
+à faire des conférences publiques dans les écoles
+primaires. Je parlerai ce soir sur Le prince de Bismarck. Je me suis servi du livre de Charles Andler
+pour préparer ma conférence. Aux enfants de
+l'école, aux adultes anciens élèves, aux parents, je
+conterai comment le chancelier de fer s'est ébréché
+“ sur la social-démocratie allemande. Mes loisirs
+seront diminués d'autant. Je crois qu'un très grand
+nombre d'hommes ont aussi peu de loisir que moi.
+Je crois qu'à Paris même il y a beaucoup d'hommes
+
+au moins aussi occupés que moi. Je crois que les
+
+ivstituteurs, les laboureurs, les maçons, les boulan-
+
+gers, les maréchaux-ferrants, les charrons et les for-
+
+gerons de Paris et de la province ont beaucoup moins
+
+de loisir que moi.
+
+Cependant nous ne sommes pas négligeables.
+
+Nous sommes les maçons de la cité prochaine, les
+tailleurs de pierre et les gâcheurs de mortier. Attachés à la glèbe ainsi qu'au temps passé, attachés au
+travail, à l'atelier, à la classe, nous ne serons pas
+plus délégués socialistes aux Parlements socialistes
+que nous n'avons été députés socialistes aux Parlements bourgeois. Nous préparons la matière dont
+
+! sont faites les renommées et les gloires publiques.
+Nous aimons ce que nous faisons, nous sommes
+heureux de ce que nous faisons, mais nous voulons
+savoir ce que l'on en fait après nous.
+
+. Or nous ne le savons pas, nous n'avons pas le
+temps de le savoir. Sans être aussi affairés que ce
+guesdiste qui n'avait le temps de rien lire du tout,
+parce qu'il fondait des groupes, il est certain que
+nous n'avons pas le temps de lire tous les journaux
+et toutes les revues qui nous intéresseraient; il est
+certain que nous n'avons pas mème le temps de
+chercher ce qui serait à lire dans les journaux et
+dans les revues que nous ne recevons pas réguliè-
+rement et personnellement. : F
+
+Enfin, dans les journaux que nous lisons réguliè-
+rement, nous ne recevons pas la vérité même. Cela
+devient évident. Tu sais quel respect, quelle amitié,
+quelle estime j'ai pour la robustesse et la droiture
+de Jaurès ; tu sais quel assentiment cordial et profond je donnais aux lumineuses démonstrations
+qu'il nous a produites au cours de l'affaire. Ce n'est
+donc pas sans étonnement et sans tristesse que je
+lis sous sa signature dans la Petite République du
+jeudi 16 novembre des phrases comme celles-ci
+« Zévaès a eu raison de rappeler les principes essentiels de notre Parti. Il a eu raison d'opposer à l'ensemble de la classe capitaliste, que divisent des rivalités secondaires, mais qui est unie par un même
+intérêt essentiel, la revendication du prolétariat. ».…
+« Et d'autre part ni Zévaès, ni ses amis, ne sont
+prêts à faire le jeu des nationalistes et de la réaction. »... « Et Zévaëès, si élevé que soit son point de
+vue, » Je ne veux pas me donner le ridicule de
+poursuivre M. Zévaès; mais enfin nous l'avons
+connu, et quand on nous parle de son point de vue
+élevé, si élevé, nous sentons venir la vérité d'État.
+Or nous avons passé vingt mois et plus à distinguer
+et à faire distinguer la vérité d'État de la vérité. —
+Vous avez célébré à Paris Le Triomphe de la Répu- ù
+blique. Dans la Petite République du lendemain je
+trouve une manchette vraiment grandiose : Une
+
+Journée Historique. — Paris au peuple.- Manifes-
+
+tation triomphale. — 500,000 travailleurs accla-
+
+ment le socialisme. Et dans l'Aurore je trouve une
+manchette plus modeste : Le Triomphe de la Ré-
+publique. — Une Grande Journée. - Défilé de
+250,000 Citoyens. Cela fait mauvais effet sur les
+simples d'esprit. Ne pourrons-nous pas, victorieux, 54
+imiter au moins la véracité des généraux anglais
+battus ? Allons-nous avoir une vérité officielle, une
+
+vérité d'État, une vérité de parti. Je le crains quand
+
+je relis une résolution du récent Congrès
+« Le Congrès déclare qu'aucun des journaux
+socialistes n'est, dans l'état actuel des choses, l'organe ofliciel du Parti. » Mais tous les journaux qui se réclament du
+socialisme ont des obligations définies qui grandissent avec l'importance du journal et le concours
+que lui ont prêté dans tout le pays les militants. » La liberté de discussion est entière pour toutes
+les questions de doctrine et de méthode; mais, pour
+l'action, les journaux devront se conformer strictement aux décisions du Congrès, interprétées par le
+Comité général. » De plus, les journaux s'abstiendront de toute
+polémique et de toute communication de nature
+blesser une des organisations. »
+
+J'admets le premier de ces quatre paragraphes.
+
+Quand je dis que je l'admets, je ne veux pas dire
+que je m'arroge un droit de contrôle, une autorité
+sur les décisions du Congrès : je veux dire, en gros,
+qu'il me paraît conforme à la raison et à la vérité.
+
+Le second paragraphe présente quelque difficulté.
+Les obligations définies dont on parle ici, et qui
+grandissent ou diminuent, me semblent des obligations d'intérêt. Avant ces obligations ou ces reconnaissances d'intérêts, je place une obligation de
+droit, perpétuelle, qui ne subit aucune exception,
+qui ne peut pas grandir ou diminuer, parce qu'elle
+est toujours totale, qui s'impose aux petites revues
+comme aux grands journaux, qui ne peut varier
+avec le tirage, ni avec les concours ou les utilités
+l'obligation de dire la vérité.
+
+Dire la vérité, toute la vérité, rien que la vérité,
+dire bêtement la vérité bête, ennuyeusement la
+vérité ennuyeuse, tristement la vérité triste : voilà
+ce que nous nous sommes proposé depuis plus de
+vingt mois, et non pas seulement pour les questions
+
+de doctrine et de méthode, mais aussi, mais surtout
+pour l'action. Nous y avons à peu près réussi.
+Faut-il que nous y renoncions? Qui distinguera
+de l'action la doctrine et la méthode? Qu'est-ce que
+la doctrine, sinon l'intelligence de l'action ? Qu'estce que la méthode, sinon la pragmatique de l'action ? Comment la doctrine et comment la méthode
+
+peuvent-elles demeurer libres, si l'action doit se
+conformer strictement aux décisions du Congres,
+interprétées par un Comité général. Qui travaille
+5 / pour un serf n'est pas libre. Et même, à y regarder
+de près, ce n'est pas la doctrine et la méthode qui
+sont libres : c'est la discussion qui est entièrement
+libre pour toutes les questions de doctrine et de
+méthode. Qu'est-ce qu'une liberté de discussion qui
+n'emporte pas avec elle une liberté de décision ?
+
+Et le paragraphe quatrième nous présente justement un exemplaire de ces décisions de Congrès
+devant lesquelles, avant toute interprétation de
+Comité général, je suis forcé de refuser résolument
+d'incliner ma raison. C'est en effet une question
+que de savoir si le Congrès ainsi constitué avait le
+droit de départager les intérêts. Maïs il est certain
+que le Congrès n'avait aucune qualité pour faire
+passer la satisfaction à donner à ces intérêts avant
+le droit de la vérité.
+
+Les journaux ont pour fonction de donner à leurs
+lecteurs les nouvelles du jour, comme on dit. Les
+journaux doivent donner les nouvelles vraies, toutes
+les nouvelles vraies qu'ils peuvent, rien que des
+nouvelles vraies. La délimitation de ce que les journaux doivent donner à leurs lecteurs et de ce qu'ils
+ne doivent pas leur donner, de ce qu'ils doivent
+même refuser, doit coïncider exactement avec la
+
+délimitation réelle de ce qui est vrai d'avec ce qui
+est faux, nullement avec la délimitation artificielle
+de ce qui est ou n'est pas de nature à blesser une
+organisation nationalement ou régionalement
+constituée. Cette blessure n'est pas un crierium.
+Certains hommes, comme Zola, sont blessés par le
+mensonge; mais certains hommes, comme le général
+Mercier, sont blessés par la vérité. Sans parler
+de ces cas extrêmes, si la vérité blesse une organisation, taira-t-on la vérité? Si le mensonge favorise
+une organisation, dira-t-on le mensonge? Vraiment à la vérité blessante on fera l'honneur de ne
+pas la traiter plus mal que le mensonge blessant?
+Mais, taire la vérité, n'est-ce pas déjà mentir? Combien de fois n'avons-nous pas produit cette simple
+proposition au cours de la récente campagne. Aux
+bons bourgeois, et aussi aux camarades qui voulaient se réfugier commodément dans le silence
+n'avons-nous pas coupé bien souvent la retraite en
+leur disant brutalement, — car en ce temps-là nous
+finissions tous par avoir un langage brutal, —:
+« Qui ne gueule pas la vérité, quand il sait la vérité,
+se fait le complice des menteurs et des faussaires ! »
+Voilà ce que nous proclamions alors. Voilà ce que
+nous proclamions au commencement de cet hiver:
+Cette proposition est-elle annuelle, ou bisannuelle ?
+Fond-elle avec la gelée? Et voilà ce que nous décla- é
+
+Jeudi 27 décembre 1899, M
+rons encore aujourd'hui contre les antisémites.
+Cette proposition est-elle, aussi, locale ? Non. Elle
+est universelle et éternelle, disons-le sans fausse
+honte. Nous demandons simplement qu'on dise la
+vérité.
+Cela peut mener loin, ces blessures faites ou censées faites aux organisations. 1l est évident que cette
+résolution a été proposée au Congrès par sa commission plus particulièrement pour protéger contre
+la critique certaines organisations. Ces organisations sont justement celles qui ont des chefs et de
+jeunes ambitieux : seront-elles blessées quand on
+blessera quelqu'un de leurs chéfs? Alors la sanction
+sera terrible, et vague, et presque religieuse:
+« Si le Comité général estime que tel journal viole
+les décisions du Parti et cause un préjudice au prolétariat, il appelle devant lui les rédacteurs responsables. Ceux-ci étant entendus, le Comité général
+leur signifie, s'il y a lieu, par un avertissement
+publie, qu'il demandera contre eux ou un blâme ou
+l'exclusion du Parti ou la mise en interdit du
+journal lui-même. »
+Irons-nous soufller sur des flammes de cierge au
+seuil des interdits ?
+La sérénité parfaite avec laquelle ce Congrès a,
+pour le service intérieur du Parti socialiste, supprimé la liberté de la presse, m'a laissé stupide. Je
+
+sais bien que le Congrès était souverain. Mais
+aucun souverain, quand même il serait l'Internationale humaine, le genre humain, n'a ce droit, n'a
+le droit de se prononcer contre la vérité. On ne
+dispose pas de soi contre la vérité. Avons-nous
+assez répété qu'un homme, un individu n'a pas le
+droit de s'engager contre la vérité. Cette proposition était naguère un axiome. À moins que les
+partis n'aient des droits surhumains, allons-nous
+marcher contre les axiomes? Cela porte malheur
+à la raison.
+
+Quel chef d'accusation vague : un préjudice causé
+au prolétariat, et quelle tentation présentée aux avocats généraux de la démagogie! Mais plus que le
+vague religieux de l'inculpation, des poursuites et
+du procès, la précision économique de la sanction
+m'épouvante. C'est le journaliste jeté à la misère,
+c'est le journal acculé à la faillite pour avoir blessé
+une des organisations. Les journalistes, cependant,
+
+sont aussi des ouvriers. Le Parti qu'ils servent serat-il pour eux un patron impitoyable?
+
+Ainsi le Congrès a piétiné sur un de nos plus
+chers espoirs. Combien de fois n'avons-nous pas
+déploré que nos journaux socialistes et révolutionnaires eussent, pour la plupart, des mœurs bourgeoises. Mais il faut bien que le journal vive. Il faut
+que le même papier porte au peuple un article qui
+
+le libère et une annonce qui, en un sens, l'asservit.
+Je n'ai jamais, depuis le commencement de l'affaire,
+senti une impression de défaite aussi lourde que le
+jour où Vaughan nous annonça dans l'Aurore que
+le journal publierait, comme tout le monde, un bul-
+ letin financier, une chronique financière. Le journal s'envole donc, emportant la parole d'affranchissement et l'annonce d'asservissement, le génie ou
+le talent révolutionnaire avec l'absinthe réactionnaire, les tuyaux des courses, les théâtres immondes. Le journal emporte le mal et le bien. Le hasard
+fera la balance, bonne ou mauvaise. Quelle angoisse
+pour l'écrivain, pour l'homme d'action, pour l'orateur génial, de savoir et de voir que sa prose couche
+avec ces prospectus indicateurs! Cette angoisse
+n'a-t-elle pas une résonance profonde au cœur même
+de son œuvre, n'y introduit-elle pas des empêchements, des impuissances ? Comme le talent des uns
+et comme le génie du grand orateur se déploierait
+joyeusement, clairement, purement dans la santé
+d'un journal enfin libre! Or, en admettant que le
+génie et le talent soient moralement négligeables en ,
+eux-mêmes, ils sont considérables quand ils servent
+à préparer la Révolution sociale. Nousespérions donc
+passionnément que le Congrès essaierait au moins
+d'affranchir la quatrième page. Voici au contraire
+qu'il a commencé l'asservissement de la première.
+
+Le Congrès a entendu, semble-t-il au second pa-
+ragraphe, régir fous les journaux qui se réclament
+du socialisme. J'espère que la langue lui a fourché.
+Au paragraphe des sanctions il semble que le Congrès n'a entendu régir que les journaux qui se
+réclament du Parti socialiste ainsi constitué. Car
+on doit distinguer désormais entre le socialisme et
+le Parti socialiste ainsi qu'on distingue entre les
+Églises et le christianisme ou la chrétienté, ainsi
+qu'on distingue entre la République et les différents
+partis républicains. Il ne s'agit pas de les opposer
+toujours, mais il y a lieu de les distinguer, et c'est
+un symptôme inquiétant que le Congrès n'ait pas
+de lui-même introduit cette distinction.
+
+Nous avons fait l'avant-dernière et la dernière
+année un virement redoutable et qui ne peut se justifier que par la conséquence. Nous nous sommes
+servis de la vérité. Cela n'a l'air de rien. Nous nous
+sommes servis de la vérité. Nous l'avons utilisée.
+Nous avons détourné la vérité, qui est de la connaissance, aux fins de l'action. Il s'agit à présent
+de savoir si nous avons commis une malversation.
+Car la vérité que nous avons utilisée n'était pas la
+facile vérité des partis et des polémiques ; elle était
+la vérité scientifique, historique, la vérité même, la
+vérité. Nous l'avons assez dit. Et c'était vrai. Nous
+avons prétendu, — et c'était vrai, — que nous 0p-
+
+posions aux scélératesses et aux imbécillités antisé-
+mitiques exactement l'histoire authentique et scientifique du présent et d'un récent passé. Nous nous
+
+faisions gloire, — ceux du moins qui étaient acces-
+
+sibles à la gloire, — de nous conduire, dans cette
+affaire qui nous étreignait vivants, comme de parfaits historiens. Cette gloire était fondée en vérité.
+Nous fûmes les chercheurs et les serviteurs de la
+vérité. Telle était en nous la force de la vérité que
+nous l'aurions proclamée envers et contre nous.
+Telle fut hors de nous la force de la vérité qu'elle
+nous donna la victoire.
+
+Car ce fut la force révolutionnaire de la vérité
+qui nous donna la victoire. Nous n'étions pas un
+parti un. Je ne sais pas si nous avions parmi nous
+des tacticiens. Cela se peut, car c'est une race qui
+sévit partout. Mais Zola, qui n'était pas un tacticien, prononça la vérité.
+
+présent que la vérité nous a sauvés, si nous la
+lâächons comme un bagage embarrassant, nous dé-
+justifions notre conduite récente, nous démentons
+nos paroles récentes, nous démoralisons notre action
+récente. Nous prévariquons en arrière. Nous abusons de confiance.
+On aurait tort de s'imaginer que ces paragraphes
+sont insignifiants et peu dangereux. On aurait tort
+de s'imaginer qu'on peut distinguer entre. les
+
+vérités, respecter aux moments de crise les grandes
+vérités, les vérités explosives, glorieuses, et dans la
+vie ordinaire négliger les petites vérités familières
+et fréquentes. C'est justement parce que l'on néglige
+pendant dix ans la lente infiltration des mensonges:
+familiers et des politesses que brusquement il faut
+qu'un révolutionnaire crève l'abcès. Pourrons-nous
+trouver toujours un révolutionnaire comme Zola ?
+Il y a beaucoup de chances pour qu'un Comité
+général commette moins délibérément qu'un homme
+une de ces terribles imprudences qu'on nomme
+révolutions salutaires quand elles ont réussi. — 6
+Nous ne devons pas avoir une préférence, un goût
+malsain pour la vérité chirurgicale, nous devons au
+contraire tâcher d'y échapper modestement par la
+pratique régulière de la vérité hygiénique.
+
+Tu sais combien nous avons donné, abandonné
+la cause de la vérité. Je ne parle plus du temps ni
+de nos forces, du travail ni des sentiments. Nous
+avons donné à la vérité ce qui ne se remplace pas,
+des amitiés d'enfance, des amitiés de quinze et de
+dix-huit ans, qui devenaient complaisamment plus
+vieilles, qui seraient devenues des amitiés de cinquante ans. Nombreux sont les dreyfusards qui ont
+perdu quelques relations mondaines ou quelques
+amitiés politiques. Cela n'est rien. Mais j'ai
+traité comme des forbans, comme des bandits,
+
+ae comme des voyous, des jeunes gens honnêtes,
+perdus dans leur province, qui s'étaient laissé fourvoyer par les infamies plus menues d'Alphonse
+Humbert ou par les infamies bestialement laides de
+. Drumont. Cette amputation était nécessaire alors.
+Cette violence était juste, car ces honnêtes jeunes
+gens contribuaient à maintenir la plus grande infamie du siècle. Ce fut notre force, que cette facilité
+douloureuse au retranchement, à la solitude, à
+l'exil intérieur. Ayant subi cela pour la vérité, nous
+n'accepterons pas qu'on nous force à la lâcher pour
+ménager les susceptibilités, les amours-propres, les
+épidermes de quelques individus. — Car au fond
+c'est cela.
+f Pour ces raisons je te prie de m'envoyer toutes
+les quinzaïines un cahier de renseignements.
+
+Tu demeures auprès de Paris; tu peux assister
+certaines cérémonies, scènes et solennités ; tu m'en « feras le compte rendu fidèle. Tu peux assister à certains actes. Tu me diras ce que tu verras et ce que
+tu sauras des hommes et des événements, en parti-
+
+culier ce qui ne sera pas dans les journaux. Non pas
+que je veuille avoir les derniers tuyaux ; non pas
+que j'attache une importance qu'elles n'ont pas aux
+grandes nouvelles, vraies et fausses, qui cheminent
+aux salles de rédaction. Je ne veux pas t'envoyeren
+
+ces endroits, où tu n'es pas accoutumé d'aller. Je ne
+
+veux pas savoir les secrets des cours. Je consens à fe
+ne savoir jamais pourquoi ni comment M. Cle-
+
+menceau a quitté l'Aurore. Je ne te prie pas
+
+de m'envoyer les nouvelles privées, mais les
+nouvelles publiques non communiquées ou mal
+communiquées par la presse au public. Elles
+
+sont nombreuses, importantes, quelquefois capi-
+
+tales.
+
+Tu me diras ce que tu penses des hommes et des
+événements. Non pas que je m'engage à penser
+comme toi, ni à penser avec toi. Mais tu me diras
+ce que tu penses. Tu iras voir les docteurs que tu
+connais, et tu leur demanderas pour moi des consultations sur les cas difliciles.
+
+Tu me signaleras les articles de journaux et de
+revues et même les livres que je puisse lire utilement dans le temps dont je dispose. Tu sais que je
+m'intéresse de près ou de loin à tout ce qui touche
+la Révolution sociale. Je me réabonnerai à mes
+trois journaux. Je me réabonnerai surtout au
+Mouvement Socialiste. La Revue Socialiste est une
+grande revue : elle a sa place marquée dans tous
+les groupes et cercles d'études et de propagande.
+Le Mouvement, plus court, plus portatif, nourri,
+amical, très largement international, ne quitte
+guère la poche de ma veste. Pour avoir les autres
+
+F 127 MARS
+journaux et revues et les livres, nous avons fondé
+un cercle d'études et de lecture. Mais il ne suflit pas
+d'avoir tout cela. Il faut encore s'y retrouver. Tu
+
+m'aideras à m'y retrouver.
+
+Tu me transcriras tous les documents ou tous les
+renseignements qui sont à conserver. On ne peut
+garder indéfiniment les coupures des journaux que
+l'on a ou que l'on n'a pas. Un cahier est plus commode. Quand un document est donné au publie,
+tout le monde en parle, on le trouve un peu
+partout. Trois mois plus tard on ne sait où s'adresser
+pour l'avoir. Je suis assuré que tu me donneras
+
+impartialement les pièces pour et contre. Ce
+fut notre honneur, au temps de cette affaire sur
+laquelle je n'ai pas peur de radoter, d'aller chercher
+dans les témoignages, dans les journaux ennemis
+les meilleures de nos preuves, les plus invincibles de
+nos arguments. Renoncerons-nous à ces bonnes
+habitudes? L'ouvrage dreyfusard le plus eflicace ne
+fut-il pas une Histoire des Variations de l'ÉtatMajor fournie par lui-même?
+
+Jete prie de me donner tous les documents et
+tous les renseignements que tu pourras, même
+longs, même ennuyeux. Nous devons à la même s
+affaire la publication exacte, historique, de procèsverbaux, de comptes rendus sténographiques, de
+documents, de papiers, de pièces. Nous avons eu le
+
+Procès Zola, la Revision de l'Affaire Dreyfus,
+Enquête et Débats de la Cour de Cassation, les
+publications du Figaro. L'Éclair donne le compte
+rendu sténographique des débats qui se poursuivent si ennuyeusement devant la Haute Cour. Ici
+reconnaissons l'hommage que le vice rend à la
+vertu. J'ai lu avec plaisir sur la quatrième page de
+
+la couverture du Mouvement que la Société nouvelle de librairie et d'édition allait nous donner le
+
+« Compte rendu sténographique ofliciel du Congrès
+général des Organisations Socialistes Françaises
+tenu à Paris en Décembre 1899 ». C'estlà de bon style
+ofliciel. Voilà de bonne publication. Nous aurons là
+même les paroles inutiles prononcées dans le grand
+gymnase pendant que la commission travaillait.
+Nous aurons les basses démagogies de Ebers aussi
+bien que l'austère démonstration historique de Lagardelle. Qu'importe? Mieux vaut publier tel que.
+est même intéressant que le Congrès, dans sa
+deuxième journée, ait résolu que l'on procéderait
+cette publication. Il donnait ainsi le bon exemple.
+
+On va publier, sur l'invitation formelle du Congrès,
+
+sous le contrôle d'une commission spéciale, des
+discours blessants pour telle ou telle organisation.
+C'était d'une large liberté. Pourquoi le Congrès
+n'a-t-il pas continué? — Il y aura dans tes cahiers
+beaucoup plus d'édité que d'inédit. Mais il y a tant
+
+d'inédit que tout le monde connaît d'avance, il y a
+tant d'édité que tout le monde ignore.
+
+Si enfin quelqu'un te met en mains de la copie,
+joins-là aux cahiers. J'aurai cette copie en communication, je la lirai ou ne la lirai pas selon le
+temps que j'aurai. Il peut arriver que de la bonne
+copie ne soit reçue en aucune revue par aucun
+éditeur. Tu m'enverras de la bonne copie. Tu
+m'enverras même des vers si tu en recois. Le vers
+n'est pas forcément déshonorant.
+
+Ce sera une partie facultative des cahiers, facultative pour toi, facultative surtout pour nous.
+
+Je ne te demande nullement de m'envoyer une
+histoire du monde par quinzaine, ou une géographie
+du monde par quinzaine, ou une chronologie du
+monde par quinzaine. Je te prie de m'envoyer des
+cahiers de renseignement, sans esprit de parti, sur
+ce qui m'intéresse.
+
+LE ProviINCIAL
+
+---

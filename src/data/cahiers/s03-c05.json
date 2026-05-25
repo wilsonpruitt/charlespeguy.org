@@ -1,0 +1,18 @@
+{
+  "slug": "s03-c05",
+  "series": 3,
+  "issue": 5,
+  "label": "III-5",
+  "titleFr": "Cinquième cahier de la troisième série",
+  "sourceUrl": "https://archive.org/stream/s3cahiersdelaquinz05pg#page/n4/mode/1up",
+  "pieces": [
+    {
+      "slug": "juifs",
+      "titleFr": "Juifs",
+      "author": "georges-delahache",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-12-05"
+}

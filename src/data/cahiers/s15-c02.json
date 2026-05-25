@@ -1,0 +1,18 @@
+{
+  "slug": "s15-c02",
+  "series": 15,
+  "issue": 2,
+  "label": "XV-2",
+  "titleFr": "Deuxième cahier de la quinzième série",
+  "sourceUrl": "https://archive.org/stream/s15cahiersdelaquinz01pg#page/n164/mode/1up",
+  "pieces": [
+    {
+      "slug": "une-philosophie-pathetique",
+      "titleFr": "Une philosophie pathétique",
+      "author": "julien-benda",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1913-10-20"
+}

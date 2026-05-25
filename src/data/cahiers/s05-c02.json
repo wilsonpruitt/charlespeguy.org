@@ -1,0 +1,18 @@
+{
+  "slug": "s05-c02",
+  "series": 5,
+  "issue": 2,
+  "label": "V-2",
+  "titleFr": "Deuxième cahier de la cinquième série",
+  "sourceUrl": "https://archive.org/stream/s5cahiersdelaquinz01pg#page/n128/mode/1up",
+  "pieces": [
+    {
+      "slug": "la-vie-d-evariste-galois",
+      "titleFr": "La vie d'Evariste Galois",
+      "author": "paul-dupuy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1903-10-20"
+}

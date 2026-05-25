@@ -1,0 +1,29 @@
+{
+  "slug": "s14-c11",
+  "series": 14,
+  "issue": 11,
+  "label": "XIV-11",
+  "titleFr": "Onzième cahier de la quatorzième série",
+  "sourceUrl": "https://archive.org/stream/s14cahiersdelaqui09pg#page/n358/mode/1up",
+  "pieces": [
+    {
+      "slug": "mes-cahiers-rouges",
+      "titleFr": "Mes cahiers rouges",
+      "author": "maxime-vuillaume",
+      "isAvertissement": false
+    },
+    {
+      "slug": "ix",
+      "titleFr": "IX",
+      "author": "maxime-vuillaume",
+      "isAvertissement": false
+    },
+    {
+      "slug": "lettres-et-temoignages",
+      "titleFr": "Lettres et témoignages",
+      "author": "maxime-vuillaume",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": []
+}

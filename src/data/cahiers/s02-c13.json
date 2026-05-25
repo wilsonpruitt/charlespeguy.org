@@ -1,0 +1,24 @@
+{
+  "slug": "s02-c13",
+  "series": 2,
+  "issue": 13,
+  "label": "II-13",
+  "titleFr": "Treizième cahier de la deuxième série",
+  "sourceUrl": "https://archive.org/stream/s2cahiersdelaquinz12pg#page/n224/mode/1up",
+  "pieces": [
+    {
+      "slug": "librairie-des-cahiers",
+      "titleFr": "Librairie des cahiers",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    },
+    {
+      "slug": "quelques-mots-sur-proudhon",
+      "titleFr": "Quelques mots sur Proudhon",
+      "author": "georges-sorel",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1901-04-05"
+}

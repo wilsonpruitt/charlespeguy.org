@@ -1,0 +1,18 @@
+{
+  "slug": "s11-c12",
+  "series": 11,
+  "issue": 12,
+  "label": "XI-12",
+  "titleFr": "Douzième cahier de la onzième série",
+  "sourceUrl": "https://archive.org/stream/s11cahiersdelaqui10pg#page/n200/mode/1up",
+  "pieces": [
+    {
+      "slug": "notre-jeunesse-les-milliet",
+      "titleFr": "Notre jeunesse. Les Milliet",
+      "author": "charles-peguy",
+      "isAvertissement": false
+    }
+  ],
+  "partOfWorks": [],
+  "bonATirer": "1910-03-20"
+}
